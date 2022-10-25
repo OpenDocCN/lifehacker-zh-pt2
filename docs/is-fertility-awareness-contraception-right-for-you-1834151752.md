@@ -1,0 +1,91 @@
+# is fertility awareness contraception right for you 1834151752
+
+> 原文:[https://life hacker . com/is-生育-认知-避孕-你的权利-1834151752](https://lifehacker.com/is-fertility-awareness-contraception-right-for-you-1834151752)
+
+如果你在过去几年的某个时候给你的朋友发短信、发短信或大声说出“节育”这个词，你可能会看到广告宣称有一个应用程序可以解决这个问题。几家公司承诺，用他们的应用程序和算法跟踪你的月经周期将有助于你防止怀孕——不需要激素、植入物或宫内节育器。
+
+所有的节育应用都依赖于一种一直存在的避孕技术，叫做 [生育意识](https://lifehacker.com/the-pros-and-cons-of-using-a-fertility-app-to-try-to-ge-1785341014) :基本上，你每天都记录某些身体特征来跟踪你的月经周期，直到你能像钟表一样预测排卵。在排卵期和排卵期前后避免无保护的性行为，你不太可能怀孕。如果操作正确，这种方法是有效的——但是确切地说*如何有效是一个有争议的问题。*
+
+<label class="bxm4mm-13 juykRM">Advertisement</label>
+
+这就是最近围绕节育应用的争议的根源，比如 [、Daysy](https://usa.daysy.me/) 和 [自然周期](https://www.naturalcycles.com/en) 。与任何节育方法一样，生育意识的有效性取决于你如何正确和持续地使用它。但与避孕套或避孕药不同，我们并不清楚“平均”生育意识的使用情况是什么样的——而且对于那些“ [93%有效”背后的研究质量，也几乎没有科学共识！](https://www.naturalcycles.com/en/science) 谓主张。FDA 批准的 app Natural Cycles [已经让瑞典医疗机构](https://www.engadget.com/2018/09/15/natural-cycles-investigation-sweden/) 对其功效声明进行了调查和审核，但英国发现它们误导性足以 [禁止其部分广告](https://www.theguardian.com/technology/2018/aug/29/natural-cycles-app-highly-accurate-contraceptive-claim-misled-consumers) 。尽管有 [不当数据收集和分析](http://chelseapolis.com/1/post/2018/06/pushing-daysys-how-people-could-be-misled-into-buying-an-unproven-device-for-contraception.html) 的严重指控，Daysy 至今仍在市场上。所有这些都使得潜在的使用者很难看穿宣传，做出明智的避孕决定。
+
+除此之外，还有很多关于生育意识避孕的错误信息。铁杆支持者经常夸大它的有效性，而怀疑者则很快就完全否定了它——对使用它们的人做了一些非常粗略的假设。为了澄清事实，我采访了 [研究科学家切尔西·波利斯](https://www.guttmacher.org/about/staff/chelsea-polis) 和 [OB/GYN 的雷切尔·佩拉加罗·乌鲁蒂亚](https://www.replyobgyn.com/clinic_team/rachel-urrutia-md/) 博士，他们在过去几年里对生育意识研究 [进行了系统的回顾。如果你对节育应用的想法感兴趣，或者如果你只是想了解更多关于生育意识的知识，这里有(几乎)你需要知道的一切，以决定它是否适合你。](https://www.ncbi.nlm.nih.gov/pubmed/30095777)
+
+### 什么是基于生育意识的避孕？
+
+基于生育意识的方法，或 FABMs，旨在通过将月经周期分为“可生育”和“不可生育”的日子来防止怀孕。在生育的日子里，通过无保护的性行为怀孕的可能性是最高的；在不肥沃的日子里，它是最低的。通过仔细追踪生物标志物，或你在周期中进行了多长时间的身体指标，可以弄清楚哪一天是哪一天。
+
+<label class="bxm4mm-13 juykRM">Advertisement</label>
+
+您可以跟踪一些相关的生物标记，这意味着有多个晶圆厂可供选择。这些是最常见的类型:
+
+**日历法**和传统的“节律法”一样，通过月经周期的日历日来追踪生育力。一旦你熟悉了月经的长度和规律，你就可以使用标准的月经周期时间表来确定你最容易受孕和最不容易受孕的日子。以 [中的标准天数法](https://www.plannedparenthood.org/learn/birth-control/fertility-awareness/whats-standard-days-method) 为例，周期第 8-19 天被认为是可育的。
+
+**宫颈粘液(或排卵)方法**通过观察宫颈粘液的变化来追踪排卵，这就像它听起来的一样:从你的宫颈流出的粘液。它的稠度和外观随着月经周期的激素波动而变化，在排卵前变得有弹性和光滑。最简单的粘液法是 [两天法](https://www.plannedparenthood.org/learn/birth-control/fertility-awareness/whats-cervical-mucus-method-fams#twoday) :你观察到这种粘液的任何一天都算作是可孕的一天，前一天也一样。
+
+**基础体温(BBT)方法**也跟踪排卵，排卵会导致体温轻微但可测量的升高。每天早上起床前，你会测量体温，并在应用程序上或手动记录在图表纸上。无论你如何记录读数，目标都是一样的:确定伴随排卵的体温峰值。 [广受欢迎又有些争议的自然循环应用](https://www.theguardian.com/society/2018/jul/21/colossally-naive-backlash-birth-control-app) 就是一个 BBT 独有方法的例子。
+
+<label class="bxm4mm-13 juykRM">Advertisement</label>
+
+**基于尿液激素的方法**使用一种叫做 [避孕监测器](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC3017256/) 的设备来测试你尿液中雌激素和其他激素的水平。这些测量值被输入到一个计算生育窗口的算法中。
+
+这些单一生物标志物方法中的任何一种在正确使用时都可以防止怀孕，但你也可以将它们结合起来获得额外的信息。将 BBT 方法与日历和/或粘液方法结合使用是一种*协同热方法*；将 BBT 换成尿激素使其成为一种*症状激素方法。*
+
+#### 这听起来很像自然计划生育(NFP)。它们是一回事吗？
+
+是也不是。从科学上来说，没有真正的区别——NFP 和法姆斯使用相同的技术——但是他们的社会和道德框架经常有有意义的区别。正如生育意识专业人员协会(AFAP)解释的那样， [NFP 传统上是在天主教背景下教授的](http://www.fertilityawarenessprofessionals.com/what-is-fertility-awareness/) :
+
+> “如果一对夫妇希望避免怀孕，大多数 NFP 方法主张在周期的生育期保持贞洁节欲(克制一切性行为)。NFP 教不宽容婚外性行为，并且经常限制对异性、订婚或已婚夫妇的指导。”
+
+<label class="bxm4mm-13 juykRM">Advertisement</label>
+
+相比之下，生育意识是刻意包容的。AFAP 欢迎所有人，无论性别、性取向、宗教或婚姻状况如何，他们明确支持“全方位的生殖选择”，包括避孕套、生育治疗和堕胎。
+
+### 有哪些优点？
+
+关于 FABMs 要记住的最重要的一点是，它们只不过是另一种节育选择。 就像其他任何方法一样，你必须权衡利弊。
+
+#### 没有激素意味着没有副作用
+
+激素避孕有副作用；这是没有办法的。虽然其中一些可能是积极的——月经更淡，痤疮更少，经前综合症更温和——但找到正确的激素鸡尾酒可能需要数年的反复试验。出于这个和其他原因，像 FABMs 这样的非激素方法有其优势:像铜宫内节育器和避孕套一样，FABM 不会引起令人不快的激素副作用。但与宫内节育器不同，FABMs 不需要痛苦的插入过程，也不会改变你的月经——而且，与大多数避孕套不同，乳胶过敏不是交易的破坏者。
+
+<label class="bxm4mm-13 juykRM">Advertisement</label>
+
+#### 许多方法是免费的或低成本的
+
+物质和资金上的便利是 FABMs 的另一个优势。一旦你知道你在做什么， [检查你的子宫颈粘液](https://www.plannedparenthood.org/learn/birth-control/fertility-awareness/whats-cervical-mucus-method-fams) 你唯一需要的设备就是你的子宫颈、一根手指和一个日历或图表。你可以在自己家里，按照自己的时间表自己进行测量。
+
+当然，一些公司渴望将生育意识货币化，特别是在指导方面。就其本身而言，这不一定是一件坏事:正确使用需要一定水平的专业知识。向有执照的从业者提供的课程或个人咨询不是免费的，但许多都是低成本或按浮动比例收费的。虽然两者都不是绝对必要的，但一个别致的温度计和一个应用程序订阅仍然可能比一次妇产科预约和一个月处方花费更少，这取决于你的保险。
+
+#### 所有的权力都在你(和你的伴侣)手中
+
+多年来每天跟踪和记录生物标志物比服用一片药或偶尔记住你的宫内节育器的存在给你一个更全面的生殖健康画面。取决于你有多喜欢跟踪健康指标——以及你在医疗保健系统中的经历——这可能是完全授权的。
+
+使用 FABM 还需要与你的伴侣和医疗从业者进行密切沟通。对于处于健康、相互支持关系中的人来说，团队合作是有益的；从临床医生的角度来看，对病人的健康有一个知情的、投入的兴趣是一种享受。乌鲁蒂亚医生告诉我，她喜欢生育意识咨询，因为这代表了她和病人之间“真正的伙伴关系”。
+
+<label class="bxm4mm-13 juykRM">Advertisement</label>
+
+### 缺点是什么？
+
+看你的角度了，FABMs 最大的优点可能也是他们最大的缺点。这些方法与“设置好就忘了”相反——它们需要至少两个人每天积极参与，这使得它们特别容易出现人为错误。但除此之外，了解 FABMs 最令人沮丧的障碍之一是我们对它们的用途和功效知之甚少。
+
+#### 它不会立即生效
+
+切换到 FABM 既不快速也不容易。这涉及到一个上升期，在此期间，你每天跟踪你选择的生物标志物，最好是没有性生活。即使你的月经像钟表一样准时，这个导入期也可以持续一到三个周期:你需要知道“正常”是什么样子，但你也需要时间来习惯这些技巧。
+
+不规则的周期使入职流程变得复杂。如果你正在停止服用避孕药，最近产后和/或哺乳，围绝经期，或者患有导致月经不规律的疾病，可能需要更长的时间——最多六个月——来建立基线。根据乌鲁蒂亚博士的说法。“你不能就这么跳进来。”换句话说，除非你真正掌握了生物标记追踪的诀窍*和*做了足够长的时间来准确预测生育天数，否则你不能仅仅依靠 FABM 来防止怀孕。
+
+#### 没有性传播感染或性病保护
+
+与任何非屏障避孕一样，FABMs 不能保护你免受性传播感染或疾病。如果你的性生活有感染的风险，并且你依靠 FABM 避孕，一定要使用屏障方法，如 [避孕套](https://lifehacker.com/the-adults-guide-to-using-condoms-1796670822) ，作为备用。
+
+<label class="bxm4mm-13 juykRM">Advertisement</label>
+
+### FABMs 真的有用吗？
+
+几乎所有其他避孕方法都被研究得死去活来。我们非常肯定地知道有多少人使用避孕药，他们使用它的可靠性有多高，以及在典型或完美的使用中避孕药失败的频率有多高。
+
+对于 FABMs 来说，这些都不成立，因为 FABMs 很少成为临床试验的焦点。由于它们没有被广泛使用，这是有意义的；研究参与者的潜在池开始很小，并随着排除标准的应用而不断缩小。生育应用背后的数据通常来自私人资助的实验室，所以它们是专有的——你不能只通过谷歌搜索结果。即使是关于 FABMs 的同行评议论文也不总是可靠的:它们可能在统计上力量不足，依赖自我报告或精选的数据，展示有严重缺陷的实验设计， [或所有三个](https://reproductive-health-journal.biomedcentral.com/articles/10.1186/s12978-018-0560-1) 。一些研究甚至将所有 FABMs 归为一种方法，这掩盖了其有效率的巨大差异:
+
+<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1020688644829532160&amp;autosize=1" autoresize="true" id="twitter-1020688644829532160" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><div class="bxm4mm-12 dFBBhS js_movable_ad_slot"><div class="bxm4mm-14 gFcZLy"><label class="bxm4mm-13 juykRM">Advertisement</label><div is="bulbs-dfp" class="ad-container dfp dfp-slot-MID_BANNER ad-middleboard" data-ad-unit="MID_BANNER" data-targeting="{&quot;pos&quot;:&quot;mid_banner&quot;}"/><div class="bt-wrapper"><span data-uid="5d1b8a6cd5-384" class="bt-uid-tg" style="display:none !important;text-align:center" data-css-selector="ad-container.ad-middleboard"/></div></div></div><p class="sc-77igqf-0 bOfvBY">不幸的是，所有这些都意味着 FABMs 严重缺乏同行审查的数据——当涉及到明智的决策时，这对提供者和患者都是最大的障碍。<br/></p><h4 class="sc-1bwb26k-1 kpbNNd" id="h174906">完美和典型的使用效果没有很好的定义</h4><p class="sc-77igqf-0 bOfvBY">在选择避孕药时要考虑的无数标准中，大多数人关注两个数字:<span></span>完美使用时的有效性，以及典型使用时的有效性。知道这两者的区别以及你对这种区别的容忍度是至关重要的。</p><p class="sc-77igqf-0 bOfvBY">完美使用或多或少就像它听起来的那样:每次都严格按照指示使用避孕方法。波利斯博士将其定义为“我们对每次都正确并持续使用该方法的人所期望的有效性。”显然，这是避孕最有效的时候；完美的使用会带来高效力或低失败率，这取决于你的观点。</p><div class="bxm4mm-12 dFBBhS js_movable_ad_slot"><div class="bxm4mm-14 gFcZLy"><label class="bxm4mm-13 juykRM">Advertisement</label><div is="bulbs-dfp" class="ad-container dfp dfp-slot-MID_BANNER ad-middleboard" data-ad-unit="MID_BANNER" data-targeting="{&quot;pos&quot;:&quot;mid_banner&quot;}"/><div class="bt-wrapper"><span data-uid="5d1b8a6cd5-384" class="bt-uid-tg" style="display:none !important;text-align:center" data-css-selector="ad-container.ad-middleboard"/></div></div></div><p class="sc-77igqf-0 bOfvBY">她解释说，典型的用法并不简单。“简而言之，典型用途就是你对普通人可能期望的有效性。…它为您每次使用该方法时不完全遵循说明留有余地。”这意味着典型的使用效率比完美使用时要低(而失败率更高)。</p><p class="sc-77igqf-0 bOfvBY"><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://vitals.lifehacker.com/debunking-the-myths-about-condoms-you-may-have-learned-1802063730&quot;,{&quot;metric25&quot;:1}]]" href="https://vitals.lifehacker.com/debunking-the-myths-about-condoms-you-may-have-learned-1802063730">典型和完美使用</a> </span>的定义不会因方法不同而改变，但它们实际上看起来像什么会改变。正如波利斯博士解释的那样，完美的 FABM 使用需要检查一大堆框:“(它需要)完美地跟踪使用该方法所涉及的所有生物标记，完美地解释它们，然后在被计算为可生育的每一天完美地避免无保护的性行为。”</p><p class="sc-77igqf-0 bOfvBY">如果你<em>能</em>始终如一地勾选这些框，FABMs 是有效的，但可靠的完美使用数据可能很难获得。<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.ncbi.nlm.nih.gov/pubmed/30095777&quot;,{&quot;metric25&quot;:1}]]" href="https://www.ncbi.nlm.nih.gov/pubmed/30095777" target="_blank" rel="noopener noreferrer">根据乌鲁蒂亚博士和波利斯博士发表的系统综述</a> </span>，一项研究表明，仅粘液比林斯排卵法在绝对完美使用的情况下，每 100 人年可导致少至 1 例意外怀孕。换句话说，如果 100 个人在一年中完美地使用了比林斯排卵法，我们预计会看到一个意外怀孕。对于标准天数日历方法，该数字为 5；对于两天只用黏液的方法，是 3.5。</p><p class="sc-77igqf-0 bOfvBY">FABMs 的典型使用数据比较容易找到——对于某些方法来说，这是我们所拥有的全部数据——但是这些数据是不一致的，甚至在方法内部也是如此。根据研究结果，通常情况下，比林斯方法可能导致每 100 人-年少至 10 例，多至 33 例意外怀孕。标准的日子是 11-14 次怀孕；两天 14 元。即使你知道典型的使用会降低有效性，并且对你的行为持现实态度，10 到 33 次意外怀孕之间还是有很大的差别。</p><div class="bxm4mm-12 dFBBhS js_movable_ad_slot"><div class="bxm4mm-14 gFcZLy"><label class="bxm4mm-13 juykRM">Advertisement</label><div is="bulbs-dfp" class="ad-container dfp dfp-slot-MID_BANNER ad-middleboard" data-ad-unit="MID_BANNER" data-targeting="{&quot;pos&quot;:&quot;mid_banner&quot;}"/><div class="bt-wrapper"><span data-uid="5d1b8a6cd5-384" class="bt-uid-tg" style="display:none !important;text-align:center" data-css-selector="ad-container.ad-middleboard"/></div></div></div><p class="sc-77igqf-0 bOfvBY">这在很大程度上解释了为什么围绕 FABMs 的讨论充斥着错误信息。没有来自独立研究的可重复的、经过严格测试的功效数据，很难确切知道你在注册什么——尤其是一旦涉及到营销术语。都使用 BBT 方法的 Natural Cycles 和 DaysyView 最近因其宣传的典型使用效率而面临反弹。但调查这些指控的价值，然后采取行动，如果它们是合法的，可能是一个痛苦艰巨的过程。2018 年 6 月，<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://reproductive-health-journal.biomedcentral.com/articles/10.1186/s12978-018-0560-1&quot;,{&quot;metric25&quot;:1}]]" href="https://reproductive-health-journal.biomedcentral.com/articles/10.1186/s12978-018-0560-1" target="_blank" rel="noopener noreferrer">波利斯博士在<em>生殖健康</em>(也发表了最初的研究)上发表了对 DaysyView 营销</a> </span>中使用的研究的批评，引用了严重的分析和方法缺陷。根据她的评论，她认为撤回是有根据的——但最初的研究仍然有效，DaysyView 的开发者没有面临任何实际后果，除了令人沮丧的应用商店评级。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h174907">如何选择适合自己的方法</h3><p class="sc-77igqf-0 bOfvBY">如果 FABMs 的利弊符合你的生活方式，并且你想开始，你必须先做一些研究。但是在互联网上进行医学研究是复杂的，令人困惑的，并且有潜在的危险。你如何能过滤掉渣滓？</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h174908">寻找高质量的来源</h4><p class="sc-77igqf-0 bOfvBY">根据波利斯博士的说法，你能做的最好的事情就是<em>避免炒作。</em>有很多人希望从你使用 FABM 的决定中获益，无论是用一个看起来很光滑的应用程序，一个昂贵的培训项目，甚至是一本书。在这种情况下，她有一个具体的建议:“尽量避免指望社交媒体影响者<span></span>来帮你做出避孕决定。”也就是说，只要你知道要寻找什么，就有可能从盈利来源获得高质量的信息，这是对所有风险和收益的详细、清晰的解释。</p><div class="bxm4mm-12 dFBBhS js_movable_ad_slot"><div class="bxm4mm-14 gFcZLy"><label class="bxm4mm-13 juykRM">Advertisement</label><div is="bulbs-dfp" class="ad-container dfp dfp-slot-MID_BANNER ad-middleboard" data-ad-unit="MID_BANNER" data-targeting="{&quot;pos&quot;:&quot;mid_banner&quot;}"/><div class="bt-wrapper"><span data-uid="5d1b8a6cd5-384" class="bt-uid-tg" style="display:none !important;text-align:center" data-css-selector="ad-container.ad-middleboard"/></div></div></div><p class="sc-77igqf-0 bOfvBY">如果你刚刚起步，不知道从哪里开始，试试 FABM 常见问题，来自<span></span><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.fertilityawarenessprofessionals.com/what-is-fertility-awareness/&quot;,{&quot;metric25&quot;:1}]]" href="http://www.fertilityawarenessprofessionals.com/what-is-fertility-awareness/" target="_blank" rel="noopener noreferrer">【AFAP】</a></span><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.acog.org/Patients/FAQs/Fertility-Awareness-Based-Methods-of-Family-Planning?IsMobileSet=false&quot;,{&quot;metric25&quot;:1}]]" href="https://www.acog.org/Patients/FAQs/Fertility-Awareness-Based-Methods-of-Family-Planning?IsMobileSet=false" target="_blank" rel="noopener noreferrer">美国妇产科学院</a> </span> (ACOG)。为了更深入的讨论，这仍然是用户友好的，波利斯博士有一个很棒的博客和同样棒的推特，在那里她谈论所有关于避孕的事情；回复 OB/GYN，乌鲁蒂亚医生执业的地方，有<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.replyobgyn.com/resources/fertility-awareness/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.replyobgyn.com/resources/fertility-awareness/" target="_blank" rel="noopener noreferrer">一整页专门介绍 FABMs </a> </span>。如果你宁愿直接去找文学，<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.guttmacher.org/article/2018/04/multiple-contraceptive-method-use-and-prevalence-fertility-awareness-based-method&quot;,{&quot;metric25&quot;:1}]]" href="https://www.guttmacher.org/article/2018/04/multiple-contraceptive-method-use-and-prevalence-fertility-awareness-based-method" target="_blank" rel="noopener noreferrer">古特马赫研究所</a> </span>是一个极好的资源。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h174909">如果可以，找一个合格的专业人士</h4><p class="sc-77igqf-0 bOfvBY">某些 FABMs(特别是 Billings 排卵法、Marquette 法和 Sensiplan 法)实际上需要经过认证的教授这种特殊方法的专业人士的指导。没有联邦认证委员会。证书因方法而异。如果你对任何 FABM 感兴趣，特别是需要指导的，使用 AFAP 从业者目录 找到你所在地区的合格教育工作者，或者在线——大多数从业者提供虚拟咨询。</p><p class="sc-77igqf-0 bOfvBY">值得注意的是，虽然一个值得信任的医生可以成为一个很好的向导，但你的妇产科医生可能帮不上忙；正如 Urrutia 博士向我解释的那样，FABMs 不是正规妇产科教育的一部分。这样做的好处是，提供 FABM 咨询的医生(如乌鲁蒂亚医生)通常是出于对工作的真正热情——所以如果你能找到一个，他们可能会很乐意与你合作。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h174910">对你自己和你的医生诚实</h4><p class="sc-77igqf-0 bOfvBY">当咨询对 FABMs 感兴趣的患者时，Urrutia 博士的主要目标是了解他们的生殖计划。这涉及到很多问题，都需要诚实完整的回答，她才能做出推荐:“你要不要孩子？你想要更多的孩子吗？你想什么时候要孩子？你们的关系怎么样？…为了确保你的方法有效，你想做多少工作？你过去使用过什么避孕方法，这对你有什么影响？”她还特别提到，对患者进行亲密伴侣暴力筛查是这种评估的关键部分:家庭暴力需要相互信任、尊重和诚实，而这种信任、尊重和诚实在身体或情感虐待关系中是不存在的。</p><div class="bxm4mm-12 dFBBhS js_movable_ad_slot"><div class="bxm4mm-14 gFcZLy"><label class="bxm4mm-13 juykRM">Advertisement</label><div is="bulbs-dfp" class="ad-container dfp dfp-slot-MID_BANNER ad-middleboard" data-ad-unit="MID_BANNER" data-targeting="{&quot;pos&quot;:&quot;mid_banner&quot;}"/><div class="bt-wrapper"><span data-uid="5d1b8a6cd5-384" class="bt-uid-tg" style="display:none !important;text-align:center" data-css-selector="ad-container.ad-middleboard"/></div></div></div><p class="sc-77igqf-0 bOfvBY">如果这看起来很难接受，确实如此。选择避孕方法是一个巨大的、潜在的改变生活的决定——你应该知道你将要面对的是什么。了解你自己，了解你的阻碍因素，尽可能花时间做出最好的决定。</p><p class="sc-77igqf-0 bOfvBY"><strong>更新于【4/23/2019，下午 2:53】:</strong>编辑澄清<!-- --> Natural Cycles 广告<!-- -->被英国<!-- -->广告标准管理局禁止，而非应用本身。此外，Daysy 营销材料中使用的<!-- -->研究是一项回顾性调查，而非临床试验。</p></div> </body> </html></iframe>
