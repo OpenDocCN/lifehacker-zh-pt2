@@ -1,6 +1,6 @@
 # 像对待蹒跚学步的孩子一样，认可你孩子的爆发
 
-> 原文:[https://life hacker . com/validate-your-tens-outbrews-as-you-would-1835873755](https://lifehacker.com/validate-your-teens-outbursts-as-you-would-for-a-toddle-1835873755)
+> 原文：<https://lifehacker.com/validate-your-teens-outbursts-as-you-would-for-a-toddle-1835873755>
 
 父母很早就知道，对孩子的负面经历反应过度会让事情变得更糟。这就是为什么当他们在蹒跚学步时摔倒擦破膝盖时，我们保持脸上的表情不变，说:“没关系！你没事吧！”我们是他们判断事情有多糟糕的晴雨表，当他们看到我们不担心时，他们自己的担心就会减少。
 

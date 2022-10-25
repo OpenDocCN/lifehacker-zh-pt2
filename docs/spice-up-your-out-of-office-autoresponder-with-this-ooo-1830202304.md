@@ -1,6 +1,6 @@
 # 用这个 OOO 生成器给你的“不在办公室”自动回复邮件增添趣味
 
-> 原文:[https://life hacker . com/spice-up-your ' s-out-of-office-auto responder-with-this-ooo-1830202304](https://lifehacker.com/spice-up-your-out-of-office-autoresponder-with-this-ooo-1830202304)
+> 原文：<https://lifehacker.com/spice-up-your-out-of-office-autoresponder-with-this-ooo-1830202304>
 
 假期很快就要到了，这意味着是时候开始构思完美的办公室外信息了。我曾经试着用这些创意，但在某个时候又回到了经典的“我出去到 x。如果你需要什么，发邮件给这个家伙。”这不会让任何人脸上露出笑容，但它完成了任务。
 

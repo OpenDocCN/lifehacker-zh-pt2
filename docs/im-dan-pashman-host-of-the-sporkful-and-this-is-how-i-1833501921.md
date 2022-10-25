@@ -1,6 +1,6 @@
 # 我是丹·帕什曼，体育节目的主持人，这就是我为人父母的方式
 
-> 原文:[https://life hacker . com/im-Dan-pashman-host-of-the-spork ful-and-this-is-how-I-1833501921](https://lifehacker.com/im-dan-pashman-host-of-the-sporkful-and-this-is-how-i-1833501921)
+> 原文：<https://lifehacker.com/im-dan-pashman-host-of-the-sporkful-and-this-is-how-i-1833501921>
 
 丹·帕什曼是一个关于食物和吃食物的人的播客节目《T2》的主持人。多年来，这位两个孩子的父亲与孩子们分享了许多关于用餐时间的思考，包括(他将父母描述为“天然清道夫”)， [如何为下一代破坏冰淇淋蛋卷](http://www.sporkful.com/building-a-better-ice-cream-cone-for-the-next-generation/) (“把你的浇头变成底部！”)和 [他对挑食的辩护。他向我们讲述了他是如何为人父母的，并分享了他对成功的家庭餐馆郊游的建议。](http://www.sporkful.com/in-defense-of-picky-eaters/)
 

@@ -1,6 +1,6 @@
 # 用这个游戏学习和练习 SQL
 
-> 原文:[https://life hacker . com/learn-and-practice-SQL-with the-game-1840484299](https://lifehacker.com/learn-and-practice-sql-with-this-game-1840484299)
+> 原文：<https://lifehacker.com/learn-and-practice-sql-with-this-game-1840484299>
 
 有没有尝试过学习 SQL，这种查询语言可以让你深入了解数据库的内部？大多数教程首先让您创建自己的数据库，用无意义的内容填充它，然后运行会让您眼花缭乱的查询(万岁，我们可以模拟小部件工厂的会计部门)。骑士实验室的 [SQL 谋杀 Myster](https://mystery.knightlab.com/) y 然而，让事情变得有趣了一点。
 

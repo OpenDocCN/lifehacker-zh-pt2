@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:救命，糟糕的性爱正在毁掉我的感情
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-help-worthy-breaking-my-relation-1844163670](https://kotaku.com/ask-dr-nerdlove-help-awful-sex-is-ruining-my-relatio-1844163670)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-help-awful-sex-is-ruining-my-relatio-1844163670>
 
 你好，所有你电爱群，欢迎来到 [问博士 NerdLove](http://kotaku.com/askdrnerdlove) ，唯一的建议专栏，有助于消除紧缩时间的需要，帮助你的爱情生活走向黄金。
 

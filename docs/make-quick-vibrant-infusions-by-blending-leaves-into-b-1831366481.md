@@ -1,6 +1,6 @@
 # 通过将树叶混合到酒中，制作快速、充满活力的浸剂
 
-> 原文:[https://life hacker . com/make-quick-vibrant-infusions-by-blending-leaves-into-b-1831366481](https://lifehacker.com/make-quick-vibrant-infusions-by-blending-leaves-into-b-1831366481)
+> 原文：<https://lifehacker.com/make-quick-vibrant-infusions-by-blending-leaves-into-b-1831366481>
 
 有些叶子尝起来没什么味道，但还有一些叶子尝起来非常非常好。用味道好的叶子给烈酒调味是聪明而正确的，但是，除非你有一个或 [花式虹吸管](https://skillet.lifehacker.com/whip-up-a-bespoke-liqueur-with-nitrous-oxide-1825862121) ，否则这可能需要几天时间，这太长了。幸运的是，你可以用搅拌机大大加快这个过程。
 

@@ -1,6 +1,6 @@
 # 你应该在疫情期间开始投资吗？
 
-> 原文:[https://life hacker . com/should-you-start-investing-in-the-疫情-1843951659](https://lifehacker.com/should-you-start-investing-during-the-pandemic-1843951659)
+> 原文：<https://lifehacker.com/should-you-start-investing-during-the-pandemic-1843951659>
 
 你可能会考虑通过投资你的储蓄或刺激支票来利用动荡的市场。
 

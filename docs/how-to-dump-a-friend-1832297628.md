@@ -1,6 +1,6 @@
 # 如何甩掉一个朋友
 
-> 原文:[https://lifehacker.com/how-to-dump-a-friend-1832297628](https://lifehacker.com/how-to-dump-a-friend-1832297628)
+> 原文：<https://lifehacker.com/how-to-dump-a-friend-1832297628>
 
 几年前，我的一个大学好友和我分手了。她在电子邮件中写道，“我认为，如果我们不经常互相交谈，可能会更健康。”。“也许有一天我们会看法一致，但现在这感觉不健康。”
 

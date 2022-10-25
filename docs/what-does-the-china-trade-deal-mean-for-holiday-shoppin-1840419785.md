@@ -1,6 +1,6 @@
 # 对华贸易协议对假日购物价格意味着什么？
 
-> 原文:[https://life hacker . com/what-the-China-trade-deal-mean-for-holiday-shoppin-1840419785](https://lifehacker.com/what-does-the-china-trade-deal-mean-for-holiday-shoppin-1840419785)
+> 原文：<https://lifehacker.com/what-does-the-china-trade-deal-mean-for-holiday-shoppin-1840419785>
 
 就在新一轮关税即将生效之前，美国和中国宣布了一项有限的协议，以结束贸易战。最终。
 

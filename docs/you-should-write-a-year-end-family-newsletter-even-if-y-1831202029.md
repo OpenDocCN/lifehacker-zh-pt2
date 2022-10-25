@@ -1,6 +1,6 @@
 # 即使你没有家庭，你也应该写一份年终家庭通讯
 
-> 原文:[https://life hacker . com/you-should-write-a year-end-family-newsletter-even-if-y-1831202029](https://lifehacker.com/you-should-write-a-year-end-family-newsletter-even-if-y-1831202029)
+> 原文：<https://lifehacker.com/you-should-write-a-year-end-family-newsletter-even-if-y-1831202029>
 
 当我听到“节日简讯”时，我会想，“这是我的七个孩子今年分别达到的人生里程碑！”这就是*时报*用来作为 [他们一个好的年终简讯](https://www.nytimes.com/2018/12/18/smarter-living/holiday-cards-family-newsletter.html) 的例子。但是年终简讯是为每个人准备的。尤其是没有孩子的情况下。
 

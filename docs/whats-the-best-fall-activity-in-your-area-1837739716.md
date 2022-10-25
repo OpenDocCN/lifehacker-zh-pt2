@@ -1,6 +1,6 @@
 # 你所在地区最好的秋季活动是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-fall-activity-in-your-area-1837739716](https://lifehacker.com/whats-the-best-fall-activity-in-your-area-1837739716)
+> 原文：<https://lifehacker.com/whats-the-best-fall-activity-in-your-area-1837739716>
 
 现在是秋天了，至少在 PSLT 是这样(南瓜香料拿铁时间)。气温可能每天仍会达到 80 度，但劳动节就要到了，肉豆蔻的味道也是如此。[Spoopy Memes](https://www.instagram.com/2spoopymemes4u/)Insta 又开始发帖了。所以！在你的城市，享受秋天的最好方式是什么？
 

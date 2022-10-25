@@ -1,6 +1,6 @@
 # 现在如何充分利用你的健康储蓄账户
 
-> 原文:[https://life hacker . com/how-to-make-the-most-your-health-savings-account-rig-1844449242](https://lifehacker.com/how-to-make-the-most-of-your-health-savings-account-rig-1844449242)
+> 原文：<https://lifehacker.com/how-to-make-the-most-of-your-health-savings-account-rig-1844449242>
 
 随着冠状病毒病例在 [一些](https://www.cnbc.com/2020/07/19/we-need-to-close-down-florida-reports-more-than-10000-coronavirus-cases-for-fifth-day.html) [国家的部分地区](https://www.sfchronicle.com/bayarea/article/California-could-overtake-New-York-in-coronavirus-15421651.php) 激增，许多美国人还在从疫情的经济冲击中步履蹒跚。作为回应，国会已经通过了几项救济法案，包括立法让医疗储蓄账户在这个困难时期更容易使用。这些是自三月以来 HSAs 最大的变化。
 

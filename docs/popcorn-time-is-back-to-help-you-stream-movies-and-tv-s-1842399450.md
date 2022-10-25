@@ -1,6 +1,6 @@
 # 爆米花时间又回来了，帮助你流媒体电影和电视节目
 
-> 原文:[https://life hacker . com/popcorn-time-is-back-to-help-you-stream-movies-and-TV-s-1842399450](https://lifehacker.com/popcorn-time-is-back-to-help-you-stream-movies-and-tv-s-1842399450)
+> 原文：<https://lifehacker.com/popcorn-time-is-back-to-help-you-stream-movies-and-tv-s-1842399450>
 
 对于那些健康但由于 oronavirus 限制而被困在里面的人来说，这有点像是宇宙给了我们一个借口，让我们尽情观看我们最喜欢的电影和电视节目(或者 [补上我们积压的游戏](https://lifehacker.com/these-free-mobile-games-can-help-you-cope-with-cabin-fe-1842396048) )。我们大多数人可能会启动许多付费流媒体服务 [中的一个](https://lifehacker.com/heres-the-streaming-video-service-thats-the-best-bargai-1838050860) 来获得我们的内容修复，但也有大量的免费选项，包括 Popcorn Time——一个受欢迎(但众所周知不那么合法)的免费流媒体应用程序，它使用 BitTorrent 技术来查找和观看视频。
 

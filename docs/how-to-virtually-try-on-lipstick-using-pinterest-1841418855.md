@@ -1,6 +1,6 @@
 # 如何使用 Pinterest 虚拟试戴口红
 
-> 原文:[https://life hacker . com/how-to-virtual-try-on-lipstick-using-Pinterest-1841418855](https://lifehacker.com/how-to-virtually-try-on-lipstick-using-pinterest-1841418855)
+> 原文：<https://lifehacker.com/how-to-virtually-try-on-lipstick-using-pinterest-1841418855>
 
 如果你想买一款新的口红，现在你可以在 Pinterest 上试试。Interest 本周推出了一款新的试妆工具，可以让你足不出户就可以带着不同颜色的口红出去转一圈。
 

@@ -1,6 +1,6 @@
 # 如何成为一个好老板，与 Basecamp 的大卫·海涅梅尔·汉森和专栏作家罗布·沃克一起
 
-> 原文:[https://life hacker . com/how-to-be-a-good-boss-with-base camp-s-David-heinemeier-1832438020](https://lifehacker.com/how-to-be-a-good-boss-with-basecamp-s-david-heinemeier-1832438020)
+> 原文：<https://lifehacker.com/how-to-be-a-good-boss-with-basecamp-s-david-heinemeier-1832438020>
 
 太多时候，擅长创造事物的人被提升为创造事物的人的主管，而没有任何关于如何领导的培训。那么如何成为一个好老板呢？你在工作中学会了领导技能，还是需要特殊的指导？本周我们将揭晓答案。首先，我们将通过 Lifehacker 的全新职业建议专栏“人力资源”的作者来了解一个好老板的素质:罗布·沃克[:。然后，高管教练](https://www.nytimes.com/by/rob-walker) [詹妮弗·戈德曼-韦兹勒](http://alignmentstrategiesgroup.com/) 告诉我们她是如何帮助老板们做到最好的。最后，Ruby on Rails 的创始人和 Basecamp 的联合创始人[David Heinemeier Hansson](https://www.amazon.com/gp/product/0062874780/ref=dbs_a_def_rwt_bibl_vppi_i0?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-be-a-good-boss-with-basecamp-s-david-heinemeier-1832438020&asc_source=&tag=kinjalifehackerlink-20)，告诉我们如何用五个步骤打造一个不疯狂的工作场所。
 

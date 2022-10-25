@@ -1,6 +1,6 @@
 # 怀孕期间如何安全系安全带
 
-> 原文:[https://life hacker . com/how-to-safety-wear-a seat-belt-while-contiguous-1839354700](https://lifehacker.com/how-to-safely-wear-a-seat-belt-while-pregnant-1839354700)
+> 原文：<https://lifehacker.com/how-to-safely-wear-a-seat-belt-while-pregnant-1839354700>
 
 安全带的安全性总是很重要，尤其是对于孕妇来说，为了她们和胎儿的安全，她们必须正确佩戴安全带。有一些面向孕妇的产品声称可以让安全带在怀孕期间更加安全。但是，如果这些产品被放置在腹部或使安全带过于松弛，它们中的许多实际上会使乘坐更加危险。
 

@@ -1,6 +1,6 @@
 # 为了避免更高的航空行李费用，请提前计划
 
-> 原文:[https://life hacker . com/to-avoid-higher-airline-行李费-plan-ahead-1841838612](https://lifehacker.com/to-avoid-higher-airline-baggage-fees-plan-ahead-1841838612)
+> 原文：<https://lifehacker.com/to-avoid-higher-airline-baggage-fees-plan-ahead-1841838612>
 
 总有一天，我们会告诉我们的孙辈，在那段美好的时光里，你坐飞机时不用花钱带行李。现在，我们将只关注尽可能少的花费来携带我们的包。
 

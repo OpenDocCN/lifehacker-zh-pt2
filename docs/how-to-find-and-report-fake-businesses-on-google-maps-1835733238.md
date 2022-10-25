@@ -1,6 +1,6 @@
 # 如何在谷歌地图上发现并举报假冒商家
 
-> 原文:[https://life hacker . com/how-to-find-and-report-fake-business-on-Google-maps-1835733238](https://lifehacker.com/how-to-find-and-report-fake-businesses-on-google-maps-1835733238)
+> 原文：<https://lifehacker.com/how-to-find-and-report-fake-businesses-on-google-maps-1835733238>
 
 下一次你去订购比萨饼，或者打电话找人修理电器时，确保你不会被一个实际上并不存在的企业的代表所欺骗。
 

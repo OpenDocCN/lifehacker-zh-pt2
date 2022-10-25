@@ -1,6 +1,6 @@
 # 今天就在小卡尔餐厅获得免费的 Beyond 汉堡
 
-> 原文:[https://life hacker . com/get-a-free-beyond-burger-at-carls-Jr-today-1837270266](https://lifehacker.com/get-a-free-beyond-burger-at-carls-jr-today-1837270266)
+> 原文：<https://lifehacker.com/get-a-free-beyond-burger-at-carls-jr-today-1837270266>
 
 如果你喜欢上周在汉堡王 尝试不可能的汉堡，现在你可以在小卡尔
 尝试它的竞争对手，超越汉堡

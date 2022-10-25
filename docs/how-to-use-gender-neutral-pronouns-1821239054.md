@@ -1,6 +1,6 @@
 # 如何使用中性代词
 
-> 原文:[https://life hacker . com/how-to-use-gender-neutral-代词-1821239054](https://lifehacker.com/how-to-use-gender-neutral-pronouns-1821239054)
+> 原文：<https://lifehacker.com/how-to-use-gender-neutral-pronouns-1821239054>
 
 韦氏词典今年正式将单数非二进制“他们” 加入他们的字典，标志着我们看待和接受中性代词的方式发生了重大转变，并禁止那些拒绝使用他们/他们的人，因为他们“语法不正确”如果你还不习惯这种包容的语言——拜托大家，都 2019 年了！—这里有一本方便的入门书。
 

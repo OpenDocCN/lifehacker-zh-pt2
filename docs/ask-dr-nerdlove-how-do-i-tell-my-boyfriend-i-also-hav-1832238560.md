@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:我如何告诉我的男朋友我也有一个柏拉图式的生活伴侣？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-how-do-I-tell-my-男友-i-also-hav-1832238560](https://kotaku.com/ask-dr-nerdlove-how-do-i-tell-my-boyfriend-i-also-hav-1832238560)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-how-do-i-tell-my-boyfriend-i-also-hav-1832238560>
 
 大家好，欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是唯一一个拥有认证钥匙刃使用者的约会建议专栏。
 

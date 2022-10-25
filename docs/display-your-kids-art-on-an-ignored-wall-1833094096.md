@@ -1,6 +1,6 @@
 # 在一面无人问津的墙上展示你孩子的作品
 
-> 原文:[https://life hacker . com/display-your-kids-art-on-an-ignored-wall-1833094096](https://lifehacker.com/display-your-kids-art-on-an-ignored-wall-1833094096)
+> 原文：<https://lifehacker.com/display-your-kids-art-on-an-ignored-wall-1833094096>
 
 几年前我们搬进我们家后不久，我的儿子开始上幼儿园。突然间，他一周多次带回家巨型手指画、节日场景和简笔画。
 

@@ -1,6 +1,6 @@
 # 冷冻糊状的葡萄使它们可以再次食用
 
-> 原文:[https://life hacker . com/freeze-mushy-grapes-to-make-them-eable-again-1836999557](https://lifehacker.com/freeze-mushy-grapes-to-make-them-edible-again-1836999557)
+> 原文：<https://lifehacker.com/freeze-mushy-grapes-to-make-them-edible-again-1836999557>
 
 一颗好的葡萄多汁、香甜(带一点酸味)，而且结实。一旦一颗葡萄开始变得糊状，它就成了一颗坏葡萄。通常我会用 [烤](https://lifehacker.com/turn-overripe-grapes-into-a-fruit-spread-thats-perfect-1829438320) 来处理坏葡萄，但在夏季，这个策略就没那么吸引人了，尤其是当你可以把它们放进冰箱里冷藏的时候。
 

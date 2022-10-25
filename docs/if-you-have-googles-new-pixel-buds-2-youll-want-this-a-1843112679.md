@@ -1,6 +1,6 @@
 # 如果你有谷歌的新 Pixel Buds 2，你会想要这个应用程序
 
-> 原文:[https://life hacker . com/if-you-have-Google-new-pixel-buds-2-youll-want-this-a-1843112679](https://lifehacker.com/if-you-have-googles-new-pixel-buds-2-youll-want-this-a-1843112679)
+> 原文：<https://lifehacker.com/if-you-have-googles-new-pixel-buds-2-youll-want-this-a-1843112679>
 
 第二代像素芽是 [最后这里是](https://store.google.com/us/config/pixel_buds) 。虽然大多数人仍然需要等待他们的订单从谷歌的在线商店出现——因为，你知道，大多数实体店目前都关闭了——你可以通过下载刚刚推出的 Pixel Buds 应用程序来为他们做准备。
 

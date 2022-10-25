@@ -1,6 +1,6 @@
 # 2019 年全国冰淇淋日在哪里可以获得免费冰淇淋
 
-> 原文:[https://life hacker . com/where-to-get-free-ice-cream-on-national-ice cream-day-2-1836419197](https://lifehacker.com/where-to-get-free-ice-cream-on-national-ice-cream-day-2-1836419197)
+> 原文：<https://lifehacker.com/where-to-get-free-ice-cream-on-national-ice-cream-day-2-1836419197>
 
 国家冰淇淋日是 7 月 21 日星期日。这里有免费或便宜的甜奶油。
 

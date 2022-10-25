@@ -1,6 +1,6 @@
 # how to make extra creamy potato salad with less mayo 1844222984
 
-> 原文:[https://life hacker . com/how-to-make-extra-creamy-potato-salad with less-mayo-1844222984](https://lifehacker.com/how-to-make-extra-creamy-potato-salad-with-less-mayo-1844222984)
+> 原文：<https://lifehacker.com/how-to-make-extra-creamy-potato-salad-with-less-mayo-1844222984>
 
 没有哪种单一成分像蛋黄酱一样引发食谱文化战争。作为一个乐于用勺子舔蛋黄酱的人，我的“蛋黄酱太多”门槛几乎不存在——但绝大多数人的感觉完全不同，尤其是在土豆沙拉方面。
 

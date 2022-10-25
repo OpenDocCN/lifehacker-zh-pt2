@@ -1,6 +1,6 @@
 # 苹果酱-切达干酪更好的汉堡是秋季烧烤的线衣
 
-> 原文:[https://the take out . com/apple-butter-cheddar-bacon-burger-recipe-fall-1838408376](https://thetakeout.com/apple-butter-cheddar-bacon-burger-recipe-fall-1838408376)
+> 原文：<https://thetakeout.com/apple-butter-cheddar-bacon-burger-recipe-fall-1838408376>
 
 芝加哥的夏天吸引了所有的媒体，但这里的秋天才是真正热闹的季节。它拥有夏季所有的户外乐趣，结合了初冬冬眠准备的舒适食物。门廊喝酒*和*辣椒天气？那些安排节日的异教徒知道发生了什么。
 

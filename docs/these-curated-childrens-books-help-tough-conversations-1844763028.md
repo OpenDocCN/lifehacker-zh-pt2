@@ -1,6 +1,6 @@
 # 这些精选的儿童书籍有助于与孩子进行艰难的对话
 
-> 原文:[https://life hacker . com/these-curated-children-books-help-tough-conversations-1844763028](https://lifehacker.com/these-curated-childrens-books-help-tough-conversations-1844763028)
+> 原文：<https://lifehacker.com/these-curated-childrens-books-help-tough-conversations-1844763028>
 
 Scholastic 在 Instagram 上推出了一个名为“[Scholastic Bookshelf](https://www.instagram.com/scholasticbookshelf/?hl=en)”的新资源，以策划父母可能希望与孩子一起浏览的重要主题的书籍，包括 [焦虑](https://www.instagram.com/p/CDp6aPqBPRz/) 、 [民权](https://www.instagram.com/p/CDp5PVeB-n0/) 、 [欺凌](https://www.instagram.com/p/CDp5z9QhT4m/) 和 [性别](https://www.instagram.com/p/CDpminZB2ha/) 。该账户于上周推出，有超过 65 个精选的主题和故事，据 [学术网站](https://shop.scholastic.com/parent-ecommerce/scholastic-bookshelf.html?eml=SSO%2Fsmd%2F20200812%2FIG%2FBookShelf%2FBioLink) 称，可以“帮助孩子和成年人谈论生活中的重大问题”
 

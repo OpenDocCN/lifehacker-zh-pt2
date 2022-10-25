@@ -1,6 +1,6 @@
 # 如何支持想跳舞的男生
 
-> 原文:[https://life hacker . com/how-to-support-boys-want-to-dance-1837612292](https://lifehacker.com/how-to-support-boys-who-want-to-dance-1837612292)
+> 原文：<https://lifehacker.com/how-to-support-boys-who-want-to-dance-1837612292>
 
 《早安美国》的劳拉·斯宾塞最近在舞蹈界引起了轩然大波，因为她在《T2》和《T3》的节目中笑称六岁的乔治王子正在上——而且热爱——芭蕾课。斯潘塞后来道歉了，但她话中的嘲讽性质触动了专业男舞者的神经，他们说，他们不得不忍受的欺凌让许多男孩放弃了他们热爱的艺术。
 

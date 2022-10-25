@@ -1,6 +1,6 @@
 # 这个小小的魔法 App 能让你的耳机听起来很完美吗？
 
-> 原文:[https://gizmodo . com/can-this-little-magic-app-make-your-headphones-sound-PE-1830835884](https://gizmodo.com/can-this-little-magic-app-make-your-headphones-sound-pe-1830835884)
+> 原文：<https://gizmodo.com/can-this-little-magic-app-make-your-headphones-sound-pe-1830835884>
 
 来自拉脱维亚一家名为 Sonarworks 的公司的一款新应用声称，它可以通过特定的耳机型号来完美播放音乐。因此，无论你使用的是 AirPods 还是一双 900 美元的 Auduze LCD-2，你都会听到完全相同的混音。让音乐听起来更好的未来会是一个补偿我们大多数人坚持购买的糟糕耳机的应用程序吗？**T2】**
 

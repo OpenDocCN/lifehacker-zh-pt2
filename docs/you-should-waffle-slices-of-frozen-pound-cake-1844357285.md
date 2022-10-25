@@ -1,6 +1,6 @@
 # 你应该华夫饼干切片冷冻磅蛋糕
 
-> 原文:[https://life hacker . com/you-should-waffle-slices of-frozen-pound-cake-1844357285](https://lifehacker.com/you-should-waffle-slices-of-frozen-pound-cake-1844357285)
+> 原文：<https://lifehacker.com/you-should-waffle-slices-of-frozen-pound-cake-1844357285>
 
 冷冻蛋糕是一种被低估的方便食品，李丽蕊做了一个非常好的。 [全黄油磅蛋糕](https://saraleedesserts.com/products/butter-pound-cake/) 是这种类型的一个非常紧密的例子，尽管人们应该在食用前让它达到室温，但当渴望袭来时吃冷冻切片更符合我的速度。这是我对现在放在冰箱里的蛋糕的计划，直到我想起我有一个华夫饼干机。
 

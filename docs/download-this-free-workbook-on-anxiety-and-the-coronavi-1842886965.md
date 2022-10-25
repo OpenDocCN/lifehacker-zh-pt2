@@ -1,6 +1,6 @@
 # 下载这个关于焦虑和冠状病毒的免费工作手册
 
-> 原文:[https://life hacker . com/download-this-free-workbook-on-anxiety-and-the-coronavi-1842886965](https://lifehacker.com/download-this-free-workbook-on-anxiety-and-the-coronavi-1842886965)
+> 原文：<https://lifehacker.com/download-this-free-workbook-on-anxiety-and-the-coronavi-1842886965>
 
 如果你和我一样，患有焦虑症，那么疫情的整体情况可能会让你的日子特别难过。鉴于所有的不确定性和我们现在对几乎所有事情缺乏控制，即使那些通常没有焦虑问题的人也感觉到了。不管你属于哪一类，你现在都有可能需要一点帮助——[，尤其是如果这种帮助是免费的](https://thewellnesssociety.org/wp-content/uploads/2020/04/Coronavirus-Anxiety-Workbook.pdf) 。
 

@@ -1,6 +1,6 @@
 # 这些是聪明人不会拼写的单词
 
-> 原文:[https://life hacker . com/these-is-the-words-smart-people-cant-spell-1838362845](https://lifehacker.com/these-are-the-words-smart-people-cant-spell-1838362845)
+> 原文：<https://lifehacker.com/these-are-the-words-smart-people-cant-spell-1838362845>
 
 语言学家和 [*因为互联网*](https://www.amazon.com/Because-Internet-Understanding-Rules-Language-ebook/dp/B076GNS3J4?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/these-are-the-words-smart-people-cant-spell-1838362845&asc_source=&tag=kinjalifehackerlink-20) 作者格雷琴·麦卡洛克要求她的推特粉丝分享那些他们不依靠拼写检查实际上不会拼写的单词。她得到的答案会安慰和陶冶你。
 

@@ -1,6 +1,6 @@
 # 如何找到并使用脸书改进的隐私检查工具
 
-> 原文:[https://life hacker . com/how-to-find-and-use-face books-revenuated-privacy-check-1840854879](https://lifehacker.com/how-to-find-and-use-facebooks-revamped-privacy-checkup-1840854879)
+> 原文：<https://lifehacker.com/how-to-find-and-use-facebooks-revamped-privacy-checkup-1840854879>
 
 脸书在 2020 年开始更新其在 2014 年推出的隐私检查工具，这使得用户更容易找到并更改几个重要的账户设置。老实说，除了一些视觉天赋和对每个设置的更新解释之外，它算不上是一次升级——而且仍然没有包括*所有*对用户可用的隐私和安全功能。
 

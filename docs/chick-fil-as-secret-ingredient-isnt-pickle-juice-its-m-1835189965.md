@@ -1,6 +1,6 @@
 # chick fil as secret ingredient isnt pickle juice its m 1835189965
 
-> 原文:[https://life hacker . com/chick-fil-as-secret-ingredient-not-pickle-juice-its-m-1835189965](https://lifehacker.com/chick-fil-as-secret-ingredient-isnt-pickle-juice-its-m-1835189965)
+> 原文：<https://lifehacker.com/chick-fil-as-secret-ingredient-isnt-pickle-juice-its-m-1835189965>
 
 快餐欺骗食谱受欢迎有很多原因。有些人会因为钉上一个虚幻的风味简介而兴奋不已，有些人觉得这样更健康一点，而且——就福乐鸡快餐店而言——有些人不喜欢自己的钱被捐给反同性恋组织。
 

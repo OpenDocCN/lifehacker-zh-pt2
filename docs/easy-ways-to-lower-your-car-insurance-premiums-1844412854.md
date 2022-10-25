@@ -1,6 +1,6 @@
 # 降低汽车保险费的简单方法
 
-> 原文:[https://life hacker . com/easy-ways-to-low-your-car-insurance-premium-1844412854](https://lifehacker.com/easy-ways-to-lower-your-car-insurance-premiums-1844412854)
+> 原文：<https://lifehacker.com/easy-ways-to-lower-your-car-insurance-premiums-1844412854>
 
 随着在家订单的持续，许多人放弃了通勤去远程工作。减少在车里的时间已经产生了一些积极的影响，比如减少交通流量和减少事故[。这些变化也对汽车保险行业产生了积极的影响。](https://thehill.com/changing-america/resilience/smart-cities/490601-amid-coronavirus-lockdowns-traffic-accidents-in)
 

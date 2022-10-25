@@ -1,6 +1,6 @@
 # 如何知道你的储蓄账户里是否有太多现金
 
-> 原文:[https://life hacker . com/how-to-know-if-they-there-that-so-much-cash-in-your-savings-AC-1844574343](https://lifehacker.com/how-to-know-if-there-s-too-much-cash-in-your-savings-ac-1844574343)
+> 原文：<https://lifehacker.com/how-to-know-if-there-s-too-much-cash-in-your-savings-ac-1844574343>
 
 由于个人储蓄率一直处于高位，但储蓄账户的利率很低，你可能会变得焦躁不安，担心自己是否携带了太多现金，并失去了将钱投资于其他地方的好处。下面看看你手头应该有多少现金，以及你可以把剩下的放在哪里。
 

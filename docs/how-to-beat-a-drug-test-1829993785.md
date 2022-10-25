@@ -1,6 +1,6 @@
 # 如何通过药检
 
-> 原文:[https://lifehacker.com/how-to-beat-a-drug-test-1829993785](https://lifehacker.com/how-to-beat-a-drug-test-1829993785)
+> 原文：<https://lifehacker.com/how-to-beat-a-drug-test-1829993785>
 
 你或我永远不会吸毒，也不会试图在药检这样重要的事情上作弊。但是也许你有一个“朋友”对测试是如何进行的很好奇。以下是你的“朋友”需要知道的。
 

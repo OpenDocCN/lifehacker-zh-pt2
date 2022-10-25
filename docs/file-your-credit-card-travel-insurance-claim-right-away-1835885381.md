@@ -1,6 +1,6 @@
 # 马上提交你的信用卡旅行保险索赔
 
-> 原文:[https://life hacker . com/file-your-credit-card-travel-insurance-claim-right-away-1835885381](https://lifehacker.com/file-your-credit-card-travel-insurance-claim-right-away-1835885381)
+> 原文：<https://lifehacker.com/file-your-credit-card-travel-insurance-claim-right-away-1835885381>
 
 Watch
 

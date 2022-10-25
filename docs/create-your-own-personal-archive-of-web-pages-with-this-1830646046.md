@@ -1,6 +1,6 @@
 # 用这个 Chrome 扩展创建你自己的个人网页档案
 
-> 原文:[https://life hacker . com/create-your-own-personal-archive-of-web-pages-with-this-1830646046](https://lifehacker.com/create-your-own-personal-archive-of-web-pages-with-this-1830646046)
+> 原文：<https://lifehacker.com/create-your-own-personal-archive-of-web-pages-with-this-1830646046>
 
 十多年前，我在一个名为 DownloadSquad 的网站上开始了我的写作生涯。当“Web 2.0 公司”还是人们使用的一个术语时，我们已经讨论过“Web 2.0”公司。我为他们写了无数的帖子，至少有几千个。那些仍然在线的文章的数量:零。
 

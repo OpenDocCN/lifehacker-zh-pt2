@@ -1,6 +1,6 @@
 # 用 Vivaldi 新的内置浏览器设置阻止广告和跟踪
 
-> 原文:[https://life hacker . com/block-ads-and-tracking-with-vivaldis-new-built-in-brows-1843006826](https://lifehacker.com/block-ads-and-tracking-with-vivaldis-new-built-in-brows-1843006826)
+> 原文：<https://lifehacker.com/block-ads-and-tracking-with-vivaldis-new-built-in-brows-1843006826>
 
 [Vivaldi 网络浏览器](https://vivaldi.com/) 的开发者正在增强其已经很强的隐私功能，内置内容拦截工具，可以屏蔽广告并防止追踪者收集你的浏览信息。
 

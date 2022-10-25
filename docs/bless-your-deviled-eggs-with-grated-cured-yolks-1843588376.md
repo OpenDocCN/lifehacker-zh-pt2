@@ -1,6 +1,6 @@
 # 用磨碎的腌制蛋黄祝福你的芥末蛋
 
-> 原文:[https://life hacker . com/bless-your-deviled-eggs-with-grated-cured-yellows-1843588376](https://lifehacker.com/bless-your-deviled-eggs-with-grated-cured-yolks-1843588376)
+> 原文：<https://lifehacker.com/bless-your-deviled-eggs-with-grated-cured-yolks-1843588376>
 
 我一直在做 [很多酸](https://skillet.lifehacker.com/make-a-big-batch-of-sours-in-your-blender-1843565201) ，也就是说我一直在用*很多*蛋清。相应的蛋黄被腌制，然后磨碎，放在沙拉、披萨片、意大利面碗中，以及最近的芥末蛋中。鸡蛋上的鸡蛋可能看起来太多了，但是腌制的蛋黄是浓缩的，浓郁的，美味的，这正是你想要的调味鸡蛋的味道。
 

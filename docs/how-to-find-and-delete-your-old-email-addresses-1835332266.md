@@ -1,6 +1,6 @@
 # 如何找到并删除您的旧电子邮件地址
 
-> 原文:[https://life hacker . com/how-to-find-and-delete-your-old-email-addresses-1835332266](https://lifehacker.com/how-to-find-and-delete-your-old-email-addresses-1835332266)
+> 原文：<https://lifehacker.com/how-to-find-and-delete-your-old-email-addresses-1835332266>
 
 旧的、未使用的电子邮件账户 [将你的安全和隐私置于危险之中](https://www.consumerreports.org/privacy/privacy-fix-search-and-destroy-old-email-accounts/) 。有了受损的帐户，有人可以冒充您，搜索个人信息，或在您的其他帐户上尝试相同的密码。你有越多不受监控的(和被遗忘的)账户，就有越多的机会让粗略的人进入你的个人信息。如果你几年前创建的账户没有 [良好的密码卫生](https://lifehacker.com/how-to-create-secure-passwords-that-arent-impossible-to-1825048324) ，那就更是如此。
 

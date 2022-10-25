@@ -1,6 +1,6 @@
 # 如何辨别阴谋论
 
-> 原文:[https://life hacker . com/how-to-spot-a-阴谋论-1843463080](https://lifehacker.com/how-to-spot-a-conspiracy-theory-1843463080)
+> 原文：<https://lifehacker.com/how-to-spot-a-conspiracy-theory-1843463080>
 
 有真正的理由不信任政府和企业。确实有很多有权有势的人为了自己的利益行事，而往往损害他人的利益。在现实生活中，有*有*，合法的阴谋和掩盖。塔斯基吉。水门事件。大众 [伪造排放测试结果](https://jalopnik.com/understanding-the-test-mode-that-let-vw-trick-the-emiss-1732175835) 的怪事。但是真正的阴谋不同于那种脱离事实、自成一体的阴谋论。
 

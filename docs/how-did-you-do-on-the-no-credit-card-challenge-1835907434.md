@@ -1,6 +1,6 @@
 # 你在无信用卡挑战中表现如何？
 
-> 原文:[https://life hacker . com/how-do-you-do-on-no-credit-challenge-1835907434](https://lifehacker.com/how-did-you-do-on-the-no-credit-card-challenge-1835907434)
+> 原文：<https://lifehacker.com/how-did-you-do-on-the-no-credit-card-challenge-1835907434>
 
 快到翻过日历一页的时候了，这意味着是时候结束我们的无信用- 卡挑战了。在这个月 Lifehacker 有史以来最极端的挑战中，你表现如何？你有没有发现自己打算用现金代替信用卡？你是否完全削减了开支？
 

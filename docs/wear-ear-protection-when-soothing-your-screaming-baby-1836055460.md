@@ -1,6 +1,6 @@
 # 安抚尖叫的宝宝时，戴上护耳器
 
-> 原文:[https://life hacker . com/wear-ear-protection-when-抚慰你的尖叫宝贝-1836055460](https://lifehacker.com/wear-ear-protection-when-soothing-your-screaming-baby-1836055460)
+> 原文：<https://lifehacker.com/wear-ear-protection-when-soothing-your-screaming-baby-1836055460>
 
 婴儿会哭。这是一个特性，不是一个 bug。当然，在进入整个为人父母的事情之前，我们都知道这一点，但我不认为任何经历——在飞机上坐在一个小小的尖叫者旁边，抱着一个尖叫的侄子，因为他的奶瓶已经准备好了，或者甚至生活在一个完全睡眠训练模式的婴儿上面——可以让一个人准备好面对自己伤心欲绝的孩子和感到完全无助的无情痛苦。前几天晚上，我和我的 [“轻松宝贝”一起经历了这一切。](https://offspring.lifehacker.com/the-best-baby-hack-is-to-have-an-easy-baby-1833938430) 我摇着他，站起来，又坐回去，换个姿势摇着他，又站起来，嘟囔了几句*神圣的地狱*，他还在嚎啕大哭。
 

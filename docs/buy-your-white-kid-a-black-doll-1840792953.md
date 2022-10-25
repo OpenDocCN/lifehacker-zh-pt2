@@ -1,6 +1,6 @@
 # 给你的白人孩子买个黑人娃娃
 
-> 原文:[https://life hacker . com/buy-your-white-kid-a-black-doll-1840792953](https://lifehacker.com/buy-your-white-kid-a-black-doll-1840792953)
+> 原文：<https://lifehacker.com/buy-your-white-kid-a-black-doll-1840792953>
 
 这可能是你从来没有真正想过太多的事情:你走进商店给你的白人孩子买一个娃娃，你伸手去拿最苍白的版本(通常也是唯一的版本)。事实上，如果你的孩子是白人，他们的绝大多数玩具在肤色上都很像他们。
 

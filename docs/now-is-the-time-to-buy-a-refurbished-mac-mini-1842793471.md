@@ -1,6 +1,6 @@
 # 现在是时候买一台翻新的 Mac Mini 了
 
-> 原文:[https://life hacker . com/now-is-the-time-to-buy-a-refined-MAC-mini-1842793471](https://lifehacker.com/now-is-the-time-to-buy-a-refurbished-mac-mini-1842793471)
+> 原文：<https://lifehacker.com/now-is-the-time-to-buy-a-refurbished-mac-mini-1842793471>
 
 如果你一直在考虑购买一台 Mac mini，但由于价格而犹豫不决，苹果公司目前更难抵制点击购买按钮的诱惑 : 该公司终于将 2018 Mac mini 放入其翻新商店，这意味着你可以挑选你梦想中的机器，同时为你自己节省一大笔零钱。
 

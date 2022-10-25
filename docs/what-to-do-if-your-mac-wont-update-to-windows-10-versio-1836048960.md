@@ -1,6 +1,6 @@
 # 如果你的 Mac 无法更新到 Windows 10 版本 1903，该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-if-your-MAC-wont-update-to-windows-10-versio-1836048960](https://lifehacker.com/what-to-do-if-your-mac-wont-update-to-windows-10-versio-1836048960)
+> 原文：<https://lifehacker.com/what-to-do-if-your-mac-wont-update-to-windows-10-versio-1836048960>
 
 在 Mac 上运行 Windows 要比在 Windows 机器上运行 macOS 容易得多，但这并不意味着这种疯狂的混合环境总是完美的。微软最近发布了一个公告，解释了为什么如果你试图在 Boot Camp 版本的操作系统上更新到 Windows 10 (1903)的最新版本 [时可能会遇到一些问题。](http://Editor-in-Chief for Cloud)
 

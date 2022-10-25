@@ -1,6 +1,6 @@
 # 根据谷歌地图，今年感恩节旅游的最佳和最差时机
 
-> 原文:[https://life hacker . com/the-best and-worst-times to travel-this-thanksgiving-a-1839865666](https://lifehacker.com/the-best-and-worst-times-to-travel-this-thanksgiving-a-1839865666)
+> 原文：<https://lifehacker.com/the-best-and-worst-times-to-travel-this-thanksgiving-a-1839865666>
 
 感恩节就要到了，如果你的计划包括旅行，谷歌有一些小贴士让旅行变得更愉快。像每年一样， [公司本周](https://www.blog.google/products/maps/map-out-thanksgiving/) 发布了一些见解，根据去年的谷歌地图数据判断假期旅行的最佳和最差时间。
 

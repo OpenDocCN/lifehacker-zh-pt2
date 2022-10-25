@@ -1,6 +1,6 @@
 # 使用 Microsoft 新的 Excel“金钱”模板跟踪您的支出
 
-> 原文:[https://life hacker . com/track-your-spending-with-Microsoft-new-money-template-1844053591](https://lifehacker.com/track-your-spending-with-microsofts-new-money-template-1844053591)
+> 原文：<https://lifehacker.com/track-your-spending-with-microsofts-new-money-template-1844053591>
 
 如果你厌倦了使用第三方服务来跟踪你的支出——要么是因为它们没有你想象的那么有用，要么是你担心让第三方服务访问你的银行账户和信用卡——你现在可以将你的各种财务账户直接连接到 Microsoft Excel。你需要的只是微软新的“钱”模板。
 

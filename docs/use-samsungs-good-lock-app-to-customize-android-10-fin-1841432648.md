@@ -1,6 +1,6 @@
 # 用三星的‘好锁’App 定制 Android 10，最后
 
-> 原文:[https://life hacker . com/use-samsungs-good-lock-app-to-customize-Android-10-fin-1841432648](https://lifehacker.com/use-samsungs-good-lock-app-to-customize-android-10-fin-1841432648)
+> 原文：<https://lifehacker.com/use-samsungs-good-lock-app-to-customize-android-10-fin-1841432648>
 
 通过 One UI 2.0 更新，Android 10 终于可以在几款最新的三星智能手机上使用，但正如许多三星用户发现的那样，最新版本的 Android 在发布时不支持 One UI 的 Good Lock 定制应用。幸运的是，该应用程序最近更新了对 Android 10 和 One UI 2.0 的支持，你现在可以从 [Galaxy Store](https://galaxystore.samsung.com/detail/com.samsung.android.goodlock) 下载新版本。
 

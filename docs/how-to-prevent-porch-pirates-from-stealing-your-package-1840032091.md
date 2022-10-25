@@ -1,6 +1,6 @@
 # 当你不在镇上时，如何防止门廊海盗偷你的包裹
 
-> 原文:[https://life hacker . com/how-to-prevent-portion-pirates-from-steak-your-package-1840032091](https://lifehacker.com/how-to-prevent-porch-pirates-from-stealing-your-package-1840032091)
+> 原文：<https://lifehacker.com/how-to-prevent-porch-pirates-from-stealing-your-package-1840032091>
 
 这是吃馅饼、蛋奶酒的季节，抵制“好吧，布玛儿”你父母的冲动，以及包裹盗窃。真是鱼龙混杂。但如今，包裹被偷已经成为现代假日季中不可避免的一部分。包裹失窃在 11 月和 12 月出现高峰，当你想到网购节日礼物的兴起时，这并不奇怪。
 

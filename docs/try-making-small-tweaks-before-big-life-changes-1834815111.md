@@ -1,6 +1,6 @@
 # 在生活发生重大变化之前，试着做些小调整
 
-> 原文:[https://life hacker . com/try-making-small-tweaks-before-big-life-changes-1834815111](https://lifehacker.com/try-making-small-tweaks-before-big-life-changes-1834815111)
+> 原文：<https://lifehacker.com/try-making-small-tweaks-before-big-life-changes-1834815111>
 
 如果你对自己的生活不满意，是做一点小小的调整好还是做一个大的改变好？
 

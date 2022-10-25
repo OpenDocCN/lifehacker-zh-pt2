@@ -1,6 +1,6 @@
 # 如何用触控 ID 或 Face ID 锁定 iOS 上的 WhatsApp
 
-> 原文:[https://life hacker . com/how-to-lock-whatsapp-on-IOs-with-touch-id-or-face-id-1832343492](https://lifehacker.com/how-to-lock-whatsapp-on-ios-with-touch-id-or-face-id-1832343492)
+> 原文：<https://lifehacker.com/how-to-lock-whatsapp-on-ios-with-touch-id-or-face-id-1832343492>
 
 WhatsApp 刚刚在 iOS 上获得了一个整洁的新安全功能。在 2.19.20 版本中，iPhone 和 iPad 用户现在可以使用他们设备的生物识别锁来锁定应用程序——触控 ID 或 Face ID，这取决于你设备的功能。添加锁定需要你每次打开应用程序时重新验证自己，即使你的 iPhone 从未锁定。如果你是那种把手机借给别人的人，或者有爱管闲事的朋友和亲戚想看你的私人谈话，或者不请自来地浏览你的照片库的人，这真的是一个很好的功能。
 

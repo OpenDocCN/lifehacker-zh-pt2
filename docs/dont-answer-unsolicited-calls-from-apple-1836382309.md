@@ -1,6 +1,6 @@
 # 不要接听苹果公司主动打来的电话
 
-> 原文:[https://life hacker . com/don-answer-unsolicited-calls-from-apple-1836382309](https://lifehacker.com/dont-answer-unsolicited-calls-from-apple-1836382309)
+> 原文：<https://lifehacker.com/dont-answer-unsolicited-calls-from-apple-1836382309>
 
 最近，你*可能*收到了一条来自“苹果”的紧急语音邮件，声称你设备上的“金融活动”处于危险之中。
 

@@ -1,6 +1,6 @@
 # 如何像专业人士一样交际
 
-> 原文:[https://lifehacker.com/how-to-network-like-a-pro-1839691035](https://lifehacker.com/how-to-network-like-a-pro-1839691035)
+> 原文：<https://lifehacker.com/how-to-network-like-a-pro-1839691035>
 
 他们说这都是关于你认识谁，但是你怎么去认识合适的人呢？
 

@@ -1,6 +1,6 @@
 # 该不该给信用不好的人办亚马逊的新卡？
 
-> 原文:[https://life hacker . com/should-you-get-amazons-new-card-for-bad-cre-1835376164](https://lifehacker.com/should-you-get-amazons-new-card-for-people-with-bad-cre-1835376164)
+> 原文：<https://lifehacker.com/should-you-get-amazons-new-card-for-people-with-bad-cre-1835376164>
 
 如果你有不良信用或没有信用，并且真的喜欢在亚马逊购物，电子商务的大佬有一个新的信用卡选项可以考虑。
 

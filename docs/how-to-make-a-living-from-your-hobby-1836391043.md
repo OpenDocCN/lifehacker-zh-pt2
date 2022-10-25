@@ -1,6 +1,6 @@
 # 如何从你的爱好中谋生
 
-> 原文:[https://life hacker . com/how-to-make-a-living-from-your-hobby-1836391043](https://lifehacker.com/how-to-make-a-living-from-your-hobby-1836391043)
+> 原文：<https://lifehacker.com/how-to-make-a-living-from-your-hobby-1836391043>
 
 如果你把你的爱好变成工作，你可能会得到一份令人满意且利润丰厚的职业——或者你可能会破产，永远毁掉你的爱好。把爱好变成工作并不意味着按下“赚钱”的开关。这需要几年的时间来积累，你需要有策略地制作和推广你的作品。我们采访了 [贾斯汀·马勒](http://justinmaller.com/) ， [DeviantArt](https://www.deviantart.com/) 的首席创意官，一位有成就的艺术总监和插画师，讨论了如何从业余爱好者走向专业人士，以及如何享受其中。
 

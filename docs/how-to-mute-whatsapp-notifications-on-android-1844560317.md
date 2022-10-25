@@ -1,6 +1,6 @@
 # 如何在 Android 上静音 WhatsApp 通知
 
-> 原文:[https://life hacker . com/how-to-mute-whatsapp-notifications-on-Android-1844560317](https://lifehacker.com/how-to-mute-whatsapp-notifications-on-android-1844560317)
+> 原文：<https://lifehacker.com/how-to-mute-whatsapp-notifications-on-android-1844560317>
 
 WhatsApp 正在测试一个新的 Android 静音功能，让你直接在系统通知中点击“静音”就可以快速静音，而不必在应用程序内部静音。还有一个新的“总是静音” [选项也即将推出](https://wabetainfo.com/whatsapp-beta-for-android-2-20-197-3-whats-new/) ，取代“静音一年”选项。如果你只是不想和某些健谈的人打交道，这是再好不过了...*曾经*。
 

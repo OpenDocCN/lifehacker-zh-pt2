@@ -1,6 +1,6 @@
 # 用不新鲜的剩余咖啡做红眼肉汁
 
-> 原文:[https://life hacker . com/use-stale-left-coffee-to-make-red-eye-gravy-1833132999](https://lifehacker.com/use-stale-leftover-coffee-to-make-red-eye-gravy-1833132999)
+> 原文：<https://lifehacker.com/use-stale-leftover-coffee-to-make-red-eye-gravy-1833132999>
 
 我在一个痴迷于咖啡因的家庭中长大。我父亲在别人还没睁开眼睛的时候就喝了一整壶酒，我母亲和姐妹们一整天喝的酒比她们小小的身体所能承受的要多得多(身高五英尺四英寸的我是高个子)。当我和他们在一起的时候，我觉得我也是一个咖啡爱好者，但是一旦我一个人回到家里，我每天放在壶里慢慢变酸的那杯左右的咖啡就证明不是这样了。
 

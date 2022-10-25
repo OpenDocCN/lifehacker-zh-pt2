@@ -1,6 +1,6 @@
 # 使用“查看身份”查看您在脸书上公开共享的内容
 
-> 原文:[https://life hacker . com/use-view-as-to-see-what-you-sharing-public-on-face b-1834917501](https://lifehacker.com/use-view-as-to-see-what-youre-sharing-publicly-on-faceb-1834917501)
+> 原文：<https://lifehacker.com/use-view-as-to-see-what-youre-sharing-publicly-on-faceb-1834917501>
 
 它回来了——算是吧。脸书已经正式恢复了它的“查看”功能，这是一种让别人看到你的个人资料的方式。这是一个很棒的隐私工具，但有一些新的令人讨厌的限制。
 

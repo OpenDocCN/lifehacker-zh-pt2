@@ -1,6 +1,6 @@
 # 将红薯半熟，放在烤架上烤熟
 
-> 原文:[https://life hacker . com/par-cook-sweet-potatos-and-finish-them-on-the-grill-1843996729](https://lifehacker.com/par-cook-sweet-potatoes-and-finish-them-on-the-grill-1843996729)
+> 原文：<https://lifehacker.com/par-cook-sweet-potatoes-and-finish-them-on-the-grill-1843996729>
 
 当许多人第一次购买烤架时，他们被在所述烤架上从头到尾烹饪他们的全部食物的愿望所压倒，而没有“欺骗”和使用任何其他热源。这是愚蠢的。虽然有些东西非常适合只烧烤的烹饪过程，但另一些东西用两步法会好得多。
 

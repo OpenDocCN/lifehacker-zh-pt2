@@ -1,6 +1,6 @@
 # 给你的“免费”物品标上价格，这样可以更快地处理掉它们
 
-> 原文:[https://life hacker . com/put-a price-on-your-free-stuff-get-out-it-faster-1836248089](https://lifehacker.com/put-a-price-on-your-free-stuff-to-get-rid-of-it-faster-1836248089)
+> 原文：<https://lifehacker.com/put-a-price-on-your-free-stuff-to-get-rid-of-it-faster-1836248089>
 
 当你努力把家里所有不再带给你快乐的东西都清理掉的时候，你可能不想在这个过程中费心去赚钱。“哦，这一文不值”你可能会想到一张旧桌子或椅子。“我就送人了。”
 

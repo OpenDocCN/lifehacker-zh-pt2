@@ -1,6 +1,6 @@
 # 为什么你应该鼓励女孩玩电子游戏
 
-> 原文:[https://life hacker . com/why-you-should-increase-girls-play-video-games-1829921335](https://lifehacker.com/why-you-should-encourage-girls-to-play-video-games-1829921335)
+> 原文：<https://lifehacker.com/why-you-should-encourage-girls-to-play-video-games-1829921335>
 
 你的孩子可能太年轻，不能认真考虑 STEM 职业，但这并不意味着他们太年轻，不能培养兴趣。如果你要抚养一个女孩，新的研究表明，最简单的方法之一就是让她做个孩子——玩电子游戏。
 

@@ -1,6 +1,6 @@
 # 用黑胡椒炒出便宜的薯片
 
-> 原文:[https://life hacker . com/fancy-up-cheap-chips-with black-pepper-1844178326](https://lifehacker.com/fancy-up-cheap-potato-chips-with-black-pepper-1844178326)
+> 原文：<https://lifehacker.com/fancy-up-cheap-potato-chips-with-black-pepper-1844178326>
 
 没有难吃的薯片，但是有些薯片绝对比其他的好。在光谱的低端，你有薄的，脆弱的，油腻的，超咸的普通薯片:放在旁边或夹在三明治里很好，b 但我单独放在碗里就没什么味道了。在另一端，你会发现更结实的锅煮薯片，通常有更多的土豆味道和结构能力舀洋葱蘸酱而不破碎。但是无论你的薯片落在薯片谱的哪个位置，只要加几粒新鲜的胡椒就能提升它。
 

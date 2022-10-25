@@ -1,6 +1,6 @@
 # 为什么大通银行为加拿大持卡人消除债务
 
-> 原文:[https://life hacker . com/why-chase-muted-out-of-debt-for-Canadian-carders-1837214496](https://lifehacker.com/why-chase-wiped-out-debt-for-canadian-cardholders-1837214496)
+> 原文：<https://lifehacker.com/why-chase-wiped-out-debt-for-canadian-cardholders-1837214496>
 
 曾经希望你的信用卡债务会消失吗？不是吗，我的朋友们。但如果你是大通的客户，这可能真的发生了。只有一个条件:你必须是它以前的加拿大客户之一。
 

@@ -1,6 +1,6 @@
 # 用这个工具看看你是否有资格获得公共服务贷款豁免
 
-> 原文:[https://life hacker . com/see-if-you-qualify-for-public-service-loan-religion-1844338887](https://lifehacker.com/see-if-you-qualify-for-public-service-loan-forgiveness-1844338887)
+> 原文：<https://lifehacker.com/see-if-you-qualify-for-public-service-loan-forgiveness-1844338887>
 
 随着选举的临近，学生贷款减免成为一个热门话题。虽然一些政治家已经提出了 [学生贷款免除](https://berniesanders.com/issues/free-college-cancel-debt/) ，但目前的公共服务贷款免除(PSLF)计划遇到了一些困难。
 

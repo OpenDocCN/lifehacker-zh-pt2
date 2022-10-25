@@ -1,6 +1,6 @@
 # 如何阻止 Twitter 与广告商分享你的数据
 
-> 原文:[https://life hacker . com/how-to-stop-Twitter-from-share-your-data-with-adverti-1842794674](https://lifehacker.com/how-to-stop-twitter-from-sharing-your-data-with-adverti-1842794674)
+> 原文：<https://lifehacker.com/how-to-stop-twitter-from-sharing-your-data-with-adverti-1842794674>
 
 在你发推之前知道:Twitter 现在向第三方广告商出售更多关于你在平台上活动的信息，不管你打开或关闭了哪个隐私选项。注册该服务的用户最近收到了一条推送通知，通知他们该公司改变了隐私政策，不再允许其用户选择不与其他公司共享他们的数据。正如 Twitter(令人困惑地)写道的那样:
 

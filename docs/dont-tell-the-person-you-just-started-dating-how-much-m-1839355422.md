@@ -1,6 +1,6 @@
 # 不要告诉你刚开始约会的人你有多少钱
 
-> 原文:[https://life hacker . com/don-t-tell-the-the-person-you-just-started-date-how-much-much-1839355422](https://lifehacker.com/dont-tell-the-person-you-just-started-dating-how-much-m-1839355422)
+> 原文：<https://lifehacker.com/dont-tell-the-person-you-just-started-dating-how-much-m-1839355422>
 
 如果你认为你比你刚开始约会的那个人赚得更多，这可能是一个好主意，至少在一段时间内。
 

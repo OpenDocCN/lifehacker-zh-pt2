@@ -1,6 +1,6 @@
 # 我们要给你多少钱让你离开脸书一年？
 
-> 原文:[https://life hacker . com/how-mud-would-would-to-pay-you-to-quit-Facebook-for-1831440890](https://lifehacker.com/how-much-would-we-have-to-pay-you-to-quit-facebook-for-1831440890)
+> 原文：<https://lifehacker.com/how-much-would-we-have-to-pay-you-to-quit-facebook-for-1831440890>
 
 在最近的一项研究中，大学生平均要求 2076 美元才能离开脸书一年。正如 Ars Technica 解释的那样，这不仅仅是一项调查——研究人员 [实际上举行了小型拍卖](https://arstechnica.com/science/2018/12/economists-calculate-the-true-value-of-facebook-to-its-users-in-new-study/) 来支付最低出价者一天、三天、一周和一年的退出费用。这还没算上那些拒绝给脸书标价的学生。所以，如果你还没有向下滚动到评论:你会出价多少？
 

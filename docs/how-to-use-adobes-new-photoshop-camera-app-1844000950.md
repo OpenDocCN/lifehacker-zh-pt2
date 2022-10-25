@@ -1,6 +1,6 @@
 # 如何使用 Adobe 的新 Photoshop 相机应用程序
 
-> 原文:[https://life hacker . com/how-to-use-adobes-new-Photoshop-camera-app-1844000950](https://lifehacker.com/how-to-use-adobes-new-photoshop-camera-app-1844000950)
+> 原文：<https://lifehacker.com/how-to-use-adobes-new-photoshop-camera-app-1844000950>
 
 Adobe 今天推出了新的 [Photoshop 相机应用](https://www.adobe.com/products/photoshop-camera.html) ，虽然它肯定不是 Photoshop 或 Lightroom 的替代品，但它可以让你的照片接近“Photoshop”的外观，而无需知道什么是透明遮罩或什么是减淡和燃烧。
 

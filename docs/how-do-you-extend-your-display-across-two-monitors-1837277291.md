@@ -1,6 +1,6 @@
 # 如何在两台显示器之间扩展显示？
 
-> 原文:[https://life hacker . com/how-do-you-extend-your-display-cross-two-monitors-1837277291](https://lifehacker.com/how-do-you-extend-your-display-across-two-monitors-1837277291)
+> 原文：<https://lifehacker.com/how-do-you-extend-your-display-across-two-monitors-1837277291>
 
 在本周的 [**Tech 911**](https://lifehacker.com/c/tech-911) 专栏，Lifehacker 对所有极客的建议专栏中，我们正在解决一位读者的问题，他对自己的梦想设置有问题:多显示器安排让他的生产率翻倍(或偷懒)。
 

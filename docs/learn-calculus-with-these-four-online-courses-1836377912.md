@@ -1,6 +1,6 @@
 # 通过这四门在线课程学习微积分
 
-> 原文:[https://life hacker . com/learn-calculus-with this-four-online-courses-1836377912](https://lifehacker.com/learn-calculus-with-these-four-online-courses-1836377912)
+> 原文：<https://lifehacker.com/learn-calculus-with-these-four-online-courses-1836377912>
 
 寻求善意的部分前提是，如果你足够聪明，你应该跳过正规教育，用书本自学。这还是在名牌大学开始在网上免费上传所有课程之前。现在你可以选择任何科目的各种课程——包括来自*亲善大使*数学顾问的微积分指南。
 

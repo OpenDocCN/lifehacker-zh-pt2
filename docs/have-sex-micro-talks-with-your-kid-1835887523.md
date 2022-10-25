@@ -1,6 +1,6 @@
 # 和你的孩子进行性“微对话”
 
-> 原文:[https://life hacker . com/have-sex-micro-talks-with-your-kid-1835887523](https://lifehacker.com/have-sex-micro-talks-with-your-kid-1835887523)
+> 原文：<https://lifehacker.com/have-sex-micro-talks-with-your-kid-1835887523>
 
 在为人父母的历史上，可能没有什么比性话题更可怕的了。手淫、遗精、月经周期、如何使用避孕套——没人想听关于这些话题的尴尬讲座。我记得有一次在电视上看到一个广告后，我和妈妈开玩笑说要洗胃。然后她用一种超级严肃的语气开始解释阴道卫生。我不确定我还没有恢复。
 

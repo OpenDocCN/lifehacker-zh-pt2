@@ -1,6 +1,6 @@
 # 今年你感谢什么？
 
-> 原文:[https://life hacker . com/1830588467](https://lifehacker.com/what-are-you-thankful-for-this-year-1830588467)
+> 原文：<https://lifehacker.com/what-are-you-thankful-for-this-year-1830588467>
 
 生活黑客的读者们，感恩节快乐。无论你在庆祝什么，我们都希望你的日子充满家人、朋友、黄油、碳水化合物，当然还有美味的火鸡[。](https://skillet.lifehacker.com/how-to-make-a-delicious-thanksgiving-turkey-1830465631)
 

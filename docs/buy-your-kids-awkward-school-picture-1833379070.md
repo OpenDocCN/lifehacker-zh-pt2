@@ -1,6 +1,6 @@
 # 买你孩子笨拙的学校照片
 
-> 原文:[https://life hacker . com/buy-your-kids-jumbly-school-picture-1833379070](https://lifehacker.com/buy-your-kids-awkward-school-picture-1833379070)
+> 原文：<https://lifehacker.com/buy-your-kids-awkward-school-picture-1833379070>
 
 年复一年，我的儿子总是带着自信的姿态和自然的微笑在学校照相日离开公园。除了他两岁半在托儿所的那一年。因为他的朋友总有一天会谷歌他的名字，我就不贴在这里了。相反，我会为你描绘一幅精神图景。
 

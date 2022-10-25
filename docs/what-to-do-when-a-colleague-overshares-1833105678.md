@@ -1,6 +1,6 @@
 # what to do when a colleague overshares 1833105678
 
-> 原文:[https://life hacker . com/what-to-do what-what-what-what-what-a-college-over shares-1833105678](https://lifehacker.com/what-to-do-when-a-colleague-overshares-1833105678)
+> 原文：<https://lifehacker.com/what-to-do-when-a-colleague-overshares-1833105678>
 
 本周，人力资源部回答了这个问题:你如何应对一个把你当成私人治疗师的工作“朋友”？
 

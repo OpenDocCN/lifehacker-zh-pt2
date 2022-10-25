@@ -1,6 +1,6 @@
 # 为你的孩子建立一个安静的角落
 
-> 原文:[https://life hacker . com/set-up-a-quining-nook-for-your-kid-1834121704](https://lifehacker.com/set-up-a-calming-nook-for-your-kid-1834121704)
+> 原文：<https://lifehacker.com/set-up-a-calming-nook-for-your-kid-1834121704>
 
 在漫长的一天之后，当我们心情不好或者只是需要一点独处的时间时，我们都需要一个小地方来减压。对你来说，这可能意味着洗个热水澡放松一下，或者在你最喜欢的安静的地方读本书。对于孩子来说，一个专用的平静区域可以成为过度刺激、权力斗争和兄弟姐妹竞争中的绿洲。
 

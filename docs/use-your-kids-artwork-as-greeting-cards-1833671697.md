@@ -1,6 +1,6 @@
 # 用你孩子的作品作为贺卡
 
-> 原文:[https://life hacker . com/use-your-kids-artwork-as-贺卡-1833671697](https://lifehacker.com/use-your-kids-artwork-as-greeting-cards-1833671697)
+> 原文：<https://lifehacker.com/use-your-kids-artwork-as-greeting-cards-1833671697>
 
 如果你有一个孩子，你就有一个永不枯竭的儿童艺术品供应。墙壁的面积是有限的，所以你能拿这些手印杰作做什么呢？(除了把它们扔进回收箱或塞进记忆盒，你的孩子必须弄清楚当他们 26 岁时该做什么，你已经决定把他们的旧卧室变成健身中心。)试试这个来自一个名叫丹尼斯的后代读者的想法:
 

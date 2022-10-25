@@ -1,6 +1,6 @@
 # 用“山地方法”帮你的孩子打扫房间
 
-> 原文:[https://life hacker . com/help-your-kid-clean-the-mountain-method-1831137317](https://lifehacker.com/help-your-kid-clean-their-room-with-the-mountain-method-1831137317)
+> 原文：<https://lifehacker.com/help-your-kid-clean-their-room-with-the-mountain-method-1831137317>
 
 “好的，妈妈，我的房间干净了！”
 

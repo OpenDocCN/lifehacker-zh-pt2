@@ -1,6 +1,6 @@
 # 当你最喜欢的导演发布新电影时，你会收到提醒
 
-> 原文:[https://life hacker . com/get-an-alert-when-your favorite-directors-release-new-m-1843979422](https://lifehacker.com/get-an-alert-when-your-favorite-directors-release-new-m-1843979422)
+> 原文：<https://lifehacker.com/get-an-alert-when-your-favorite-directors-release-new-m-1843979422>
 
 我怀念电影；更重要的是，我怀念去电影院看电影的日子。但在过去三个月的隔离期间，我也完全忘记了好莱坞的一切。这就是为什么我很兴奋地看到有人创建了一个网站——[**【导演提醒】**](https://directoralerts.website/)——帮助你在电影界的活动恢复后，随时了解你最喜欢的导演发生了什么。
 

@@ -1,6 +1,6 @@
 # 如何解决旧路由器的安全漏洞
 
-> 原文:[https://life hacker . com/how-to-address-security-bugs-in-your-old-router-1840264553](https://lifehacker.com/how-to-address-security-bugs-in-your-old-router-1840264553)
+> 原文：<https://lifehacker.com/how-to-address-security-bugs-in-your-old-router-1840264553>
 
 如果一个 n 攻击者设法访问你的 D-Link 路由器的登录屏幕，并且你的路由器足够旧，他们就有可能控制路由器，给它注入代码，并用它来攻击其他连接的系统和设备。最棒的是。D-Link 完全知道这些问题，但它不打算修复受影响的路由器，因为它们太旧了。
 

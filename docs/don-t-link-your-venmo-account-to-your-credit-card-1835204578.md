@@ -1,6 +1,6 @@
 # 不要将您的 Venmo 帐户与您的信用卡关联
 
-> 原文:[https://life hacker . com/don-t-link-your-venmo-account-to-your-credit-card-1835204578](https://lifehacker.com/don-t-link-your-venmo-account-to-your-credit-card-1835204578)
+> 原文：<https://lifehacker.com/don-t-link-your-venmo-account-to-your-credit-card-1835204578>
 
 是时候偿还你的朋友的早午餐，你的保姆的晚归，或者你的室友的电费了。只要你连接了正确的账户，使用 Venmo 可以使交易变得快速而轻松。
 

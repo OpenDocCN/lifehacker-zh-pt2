@@ -1,6 +1,6 @@
 # 浸泡并冷冻竹串，用于夏季烧烤
 
-> 原文:[https://life hacker . com/浸泡冷冻竹串-夏季烧烤-1843755279](https://lifehacker.com/soak-and-freeze-bamboo-skewers-for-summer-grilling-1843755279)
+> 原文：<https://lifehacker.com/soak-and-freeze-bamboo-skewers-for-summer-grilling-1843755279>
 
 在夏天的几个月里，吃棍子上的食物特别有趣，在烤架上扔一串烤肉串是实现这一点的简单方法。但是竹子做的串肉扦会裂开或者烧焦，烧焦的碎片也不开胃。稍微浸泡一下会有帮助，但是你必须记住浸泡它们。为了防止尴尬的骨头- 烤串时刻，只需提前浸泡一串并冷冻即可。
 

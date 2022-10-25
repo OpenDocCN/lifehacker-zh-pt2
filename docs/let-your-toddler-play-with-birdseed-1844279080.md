@@ -1,6 +1,6 @@
 # 让你的孩子玩鸟食
 
-> 原文:[https://life hacker . com/let-your-lead-play-with-birdseed-1844279080](https://lifehacker.com/let-your-toddler-play-with-birdseed-1844279080)
+> 原文：<https://lifehacker.com/let-your-toddler-play-with-birdseed-1844279080>
 
 如果你是一个蹒跚学步的孩子或学龄前儿童的家长，你很可能已经发现了感官活动所能带来的快乐(和混乱)。当我儿子在那个年龄时，一个装满奇怪材料的箱子会让他一次占用好几分钟——肯定比塑料玩具、游戏或拼图要多。成功的感官活动的诀窍是找到一些有趣的东西，把手伸进去，没有窒息的危险，最重要的是，不会弄得乱七八糟，比花在玩它上的时间还要长。我建议:鸟食。
 

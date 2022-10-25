@@ -1,6 +1,6 @@
 # 你应该从 Square 的现金应用程序获得短期贷款吗？
 
-> 原文:[https://life hacker . com/should-you-get-a-short-loan-from-square-s-cash-app-1844717579](https://lifehacker.com/should-you-get-a-short-term-loan-from-square-s-cash-app-1844717579)
+> 原文：<https://lifehacker.com/should-you-get-a-short-term-loan-from-square-s-cash-app-1844717579>
 
 Square 的 [现金应用](https://cash.app/)——一种点对点支付服务——目前正在测试精选用户的短期贷款。 [据 TechCrunch 报道](https://techcrunch.com/2020/08/12/square-cash-app-borrowing/) ，Cash App 正在提供小额贷款，还款期限为四周。虽然这项新功能仅面向 1000 名 Cash 应用用户，但该公司未来可能会推出更广泛的应用。
 

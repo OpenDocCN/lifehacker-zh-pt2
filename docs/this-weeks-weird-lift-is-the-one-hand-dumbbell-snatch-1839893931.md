@@ -1,6 +1,6 @@
 # 本周的怪异举是单手举哑铃
 
-> 原文:[https://life hacker . com/this-weeks-verged-lift-is-one-hand-dumbling-skit-1839893931](https://lifehacker.com/this-weeks-weird-lift-is-the-one-hand-dumbbell-snatch-1839893931)
+> 原文：<https://lifehacker.com/this-weeks-weird-lift-is-the-one-hand-dumbbell-snatch-1839893931>
 
 我很高兴上周你们中有超过 0 人和我一起参加了 [单手硬拉](https://vitals.lifehacker.com/lets-get-weird-and-try-a-one-handed-deadlift-1839717740) 。奇怪但很酷，对吧？这个星期我们又有了一个单手举，这个举过头顶，这让它变得特别的糟糕。这是单手举哑铃。
 

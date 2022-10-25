@@ -1,6 +1,6 @@
 # 最佳像素 4a 预购交易(迄今为止)
 
-> 原文:[https://life hacker . com/the-best-pixel-4a-pre-order-deals-so-far-1844607196](https://lifehacker.com/the-best-pixel-4a-pre-order-deals-so-far-1844607196)
+> 原文：<https://lifehacker.com/the-best-pixel-4a-pre-order-deals-so-far-1844607196>
 
 谷歌终于在周一宣布了传闻已久(也经常泄露)的 Pixel 4a 智能手机。虽然这款新的中端手机与更强大的 Pixel 5 和 Pixel 4a 5G 手机分享了舞台，但我们仍然不太了解这两款手机(包括发布日期)。眼下，是 Pixel 4a 大放异彩的时候了。
 

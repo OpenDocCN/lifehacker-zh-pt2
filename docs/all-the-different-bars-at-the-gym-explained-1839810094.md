@@ -1,6 +1,6 @@
 # 健身房所有不同的酒吧，解释
 
-> 原文:[https://life hacker . com/all-the-different-bar-at-the-gym-explained-1839810094](https://lifehacker.com/all-the-different-bars-at-the-gym-explained-1839810094)
+> 原文：<https://lifehacker.com/all-the-different-bars-at-the-gym-explained-1839810094>
 
 举杠铃的第一步是将重量板放在杠铃上。在一些健身房，只有一种酒吧，45 磅重的，你只需要知道这些。但这不是唯一的类型，如果你的健身房有不同形状和重量的不同酒吧，这可能会混淆。
 

@@ -1,6 +1,6 @@
 # 如何举报你的植物
 
-> 原文:[https://lifehacker.com/how-to-repot-your-plants-1833383381](https://lifehacker.com/how-to-repot-your-plants-1833383381)
+> 原文：<https://lifehacker.com/how-to-repot-your-plants-1833383381>
 
 不管 Instagram 会让你相信什么，植物养育是困难的。有很多问题需要回答。你浇水太多了吗？不够？你房间的光线是明亮的、间接的还是微弱的？什么是土腐病？为什么万物都在消亡？
 

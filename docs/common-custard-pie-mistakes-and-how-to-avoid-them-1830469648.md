@@ -1,6 +1,6 @@
 # 常见的蛋奶派错误以及如何避免
 
-> 原文:[https://life hacker . com/common-蛋羹馅饼-错误和如何避免-1830469648](https://lifehacker.com/common-custard-pie-mistakes-and-how-to-avoid-them-1830469648)
+> 原文：<https://lifehacker.com/common-custard-pie-mistakes-and-how-to-avoid-them-1830469648>
 
 感恩节甜点桌上到处都是烤蛋卷。除了苹果派，几乎所有其他节日经典都要求烘焙糖蛋浆，直到完全凝固。这看起来很简单，但是蛋羹馅饼是出了名的棘手——尤其是涉及到罐装南瓜的时候。
 

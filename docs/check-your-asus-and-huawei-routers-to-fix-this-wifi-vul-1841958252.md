@@ -1,6 +1,6 @@
 # 检查您的华硕和华为路由器以修复此 Wifi 漏洞
 
-> 原文:[https://life hacker . com/check-your-ASUS-and-Huawei-routers-to-fix-this-wifi-vul-1841958252](https://lifehacker.com/check-your-asus-and-huawei-routers-to-fix-this-wifi-vul-1841958252)
+> 原文：<https://lifehacker.com/check-your-asus-and-huawei-routers-to-fix-this-wifi-vul-1841958252>
 
 然而 [另一个主要的固件漏洞](https://lifehacker.com/how-to-check-your-usb-devices-for-unsafe-firmware-1841773522) 被发现，使得*数十亿*来自苹果、谷歌、亚马逊的手机、路由器和其他无线设备暴露在间谍活动之下。
 

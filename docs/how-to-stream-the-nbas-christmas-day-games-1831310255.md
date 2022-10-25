@@ -1,6 +1,6 @@
 # 如何直播 NBA 的圣诞节比赛
 
-> 原文:[https://life hacker . com/how-to-stream-the-NBA-Christmas-day-games-1831310255](https://lifehacker.com/how-to-stream-the-nbas-christmas-day-games-1831310255)
+> 原文：<https://lifehacker.com/how-to-stream-the-nbas-christmas-day-games-1831310255>
 
 NBA 今年圣诞节有五场比赛，以密尔沃基雄鹿队和纽约尼克斯队之间的比赛开始，以 T2 时间晚上 10:30 波特兰开拓者队和犹他爵士队之间的比赛结束。
 

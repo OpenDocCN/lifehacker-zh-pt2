@@ -1,6 +1,6 @@
 # Travelex 用户:立即锁定您的财务信息
 
-> 原文:[https://life hacker . com/travelex-users-lock-down-your-financial-info-right-now-1840859923](https://lifehacker.com/travelex-users-lock-down-your-financial-info-right-now-1840859923)
+> 原文：<https://lifehacker.com/travelex-users-lock-down-your-financial-info-right-now-1840859923>
 
 如果您已经使用 Travelex 兑换货币，您可能需要格外密切地关注您的财务信息。六个月前，黑客进入了 Travelex 网络，并宣布他们持有 600 万美元的数据赎金，据 BBC[报道。](https://www.bbc.com/news/business-51017852)
 

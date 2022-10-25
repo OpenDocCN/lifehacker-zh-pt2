@@ -1,6 +1,6 @@
 # 哪些企业在周一退伍军人节停止营业
 
-> 原文:[https://life hacker . com/what-business-is-closed-Monday-for-veterans-day-1830371093](https://lifehacker.com/what-businesses-are-closed-monday-for-veterans-day-1830371093)
+> 原文：<https://lifehacker.com/what-businesses-are-closed-monday-for-veterans-day-1830371093>
 
 虽然退伍军人节的官方日期是星期天，但它是在 11 月 12 日星期一。这意味着，取决于你的雇主，你可能会放假一天来庆祝。许多企业，尤其是联邦政府经营的企业，也将在当天关闭。
 

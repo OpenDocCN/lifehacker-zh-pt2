@@ -1,6 +1,6 @@
 # Freedom 的新 Chrome 扩展迫使你在打开一个令人分心的网站前暂停
 
-> 原文:[https://life hacker . com/freedom-new-chrome-extension-forces-you-pause-before-1835122378](https://lifehacker.com/freedoms-new-chrome-extension-forces-you-to-pause-befor-1835122378)
+> 原文：<https://lifehacker.com/freedoms-new-chrome-extension-forces-you-to-pause-befor-1835122378>
 
 如果你“不小心”上了令人分心的网站，下载 Chrome 的 [暂停扩展。Pause 不会屏蔽分散注意力的网站，而是弹出一个五秒钟的绿色空白屏幕，迫使你暂停。然后你可以点击进入实际的网站。(您也可以单击以禁止在接下来的 24 小时内暂停该站点。)](https://chrome.google.com/webstore/detail/pause/ljfdccdjpfjpfjbpdiihanpodilolofh) 
 

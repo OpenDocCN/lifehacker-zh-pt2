@@ -1,6 +1,6 @@
 # 如果您错过了转机，请立即联系航空公司
 
-> 原文:[https://life hacker . com/if-you-miss-a-connection-contact-the-airline-immediate-1839635585](https://lifehacker.com/if-you-miss-a-connection-contact-the-airline-immediate-1839635585)
+> 原文：<https://lifehacker.com/if-you-miss-a-connection-contact-the-airline-immediate-1839635585>
 
 早在 8 月份，我们就写过所谓的“”的风险——当一个旅行者因为比直飞更便宜而故意错过一段连接时。航空公司并不这么认为，这就是为什么它会带来取消整个行程的真实风险(这在几份航空公司的运输合同中是不可避免的)。但是，如果您*不小心*错过了一段连接，并且面临同样的风险，您该怎么办？
 

@@ -1,6 +1,6 @@
 # 偷猎可以产出极其多汁多汁的鸡肉
 
-> 原文:[https://the take out . com/偷猎-生产-难以置信-多汁-多汁-鸡肉-1837682227](https://thetakeout.com/poaching-produces-incredibly-succulent-juicy-chicken-1837682227)
+> 原文：<https://thetakeout.com/poaching-produces-incredibly-succulent-juicy-chicken-1837682227>
 
 水煮鸡肉。这听起来像是在容易变淡的肉上使用的温和技术。但是我告诉你，偷猎产生了我尝过的最多汁的鸡肉，在某些应用中，它将不起眼的鸡肉提升为令人惊叹的蛋白质。
 

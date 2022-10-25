@@ -1,6 +1,6 @@
 # 亚马逊 Prime 值得吗？
 
-> 原文:[https://lifehacker.com/is-amazon-prime-worth-it-1038496234](https://lifehacker.com/is-amazon-prime-worth-it-1038496234)
+> 原文：<https://lifehacker.com/is-amazon-prime-worth-it-1038496234>
 
 如果你还不是亚马逊 Prime 会员，这项服务的价格从 79 美元涨到 99 美元，最近又涨到 119 美元，这可能会让你怀疑是否值得注册。
 

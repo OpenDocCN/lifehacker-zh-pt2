@@ -1,6 +1,6 @@
 # 教育你的孩子，每项任务都有开始、中间和结束
 
-> 原文:[https://life hacker . com/teach-your-kid-that-every-task has-a-beginning-middle-1836922721](https://lifehacker.com/teach-your-kid-that-every-task-has-a-beginning-middle-1836922721)
+> 原文：<https://lifehacker.com/teach-your-kid-that-every-task-has-a-beginning-middle-1836922721>
 
 如果我试图帮助我六岁的女儿玛吉成为一个更有条理的思考者，我的指导似乎来得太晚了。“到处都是棋盘游戏棋子，*，*”我会告诉她，在她逃离棋盘游戏并开始三种不同活动的几个小时后，我注意到了这一场景。作为一个目前拥有大约七本不同小说书签的人，在如何完成你开始的事情上，我可能不是最伟大的老师。但我想让我的孩子走上一条不同的道路——有条理可以减轻压力，增强信心，让人们有更多的时间去做他们喜欢的事情(即使现在，我女儿喜欢的是把手指伸进蓬松的粘液里)。
 

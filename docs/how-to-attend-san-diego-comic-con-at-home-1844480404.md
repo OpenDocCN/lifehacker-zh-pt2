@@ -1,6 +1,6 @@
 # 如何在家参加圣地亚哥动漫展
 
-> 原文:[https://life hacker . com/how-to-attend-San-Diego-comic-con-in-home-1844480404](https://lifehacker.com/how-to-attend-san-diego-comic-con-at-home-1844480404)
+> 原文：<https://lifehacker.com/how-to-attend-san-diego-comic-con-at-home-1844480404>
 
 今年显然不会举行面对面的会议和大会，但是圣地亚哥国际动漫展(T1)已经将所有的活动都虚拟化了——你可以在自己舒适的家中免费参加(T5 ),而 T2 动漫展通常于 7 月中旬在圣地亚哥举行。
 

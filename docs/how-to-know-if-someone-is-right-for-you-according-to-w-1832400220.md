@@ -1,6 +1,6 @@
 # 根据 Reddit 上女性的说法，如何判断一个人是否适合你
 
-> 原文:[https://life hacker . com/how-to-know-if someone ' s right for you-by-w-1832400220](https://lifehacker.com/how-to-know-if-someone-is-right-for-you-according-to-w-1832400220)
+> 原文：<https://lifehacker.com/how-to-know-if-someone-is-right-for-you-according-to-w-1832400220>
 
 理论上，我们约会是为了找到一段我们想要坚持的关系。实际上，人们约会有很多不同的原因，很难判断你和约会对象是否意见一致。以下是 Reddit 上的女性如何打这个电话。
 

@@ -1,6 +1,6 @@
 # how to create less waste this holiday season 1831048278
 
-> 原文:[https://life hacker . com/how-to-create-less-waste-this-holiday-season-1831048278](https://lifehacker.com/how-to-create-less-waste-this-holiday-season-1831048278)
+> 原文：<https://lifehacker.com/how-to-create-less-waste-this-holiday-season-1831048278>
 
 假期是一年中最美好的时光，除非你是地球。要获得真正的节日快乐，你必须撕开几层垃圾:一次性包装、褶边丝带、包装带、成堆的塑料购物袋、堆积如山的蛤壳式包装，还有甚至没能撑到平安夜的蹩脚灯。
 

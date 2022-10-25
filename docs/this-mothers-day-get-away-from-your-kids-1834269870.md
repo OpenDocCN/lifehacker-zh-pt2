@@ -1,6 +1,6 @@
 # 这个母亲节，远离你的孩子
 
-> 原文:[https://life hacker . com/this-mother-day-get-away-your-kids-1834269870](https://lifehacker.com/this-mothers-day-get-away-from-your-kids-1834269870)
+> 原文：<https://lifehacker.com/this-mothers-day-get-away-from-your-kids-1834269870>
 
 在我育儿之旅的最初一年，我向丈夫提出了一个母亲节的要求。我说，我引用一下，“你知道我母亲节想要什么吗？我想一个人呆着。
 

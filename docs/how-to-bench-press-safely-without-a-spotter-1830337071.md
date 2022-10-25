@@ -1,6 +1,6 @@
 # 如何在没有观察员的情况下安全地卧推
 
-> 原文:[https://life hacker . com/how-to-bench-press-safety-without-a-spotter-1830337071](https://lifehacker.com/how-to-bench-press-safely-without-a-spotter-1830337071)
+> 原文：<https://lifehacker.com/how-to-bench-press-safely-without-a-spotter-1830337071>
 
 举重通常是一种挑战:我真的能举起这么多吗？或者，我已经举了八次了，但是我能举第九次吗？所以你需要为失败后会发生什么做好准备。
 

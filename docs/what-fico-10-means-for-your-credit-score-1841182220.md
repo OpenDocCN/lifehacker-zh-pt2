@@ -1,6 +1,6 @@
 # FICO 10 对你的信用评分意味着什么
 
-> 原文:[https://life hacker . com/what-Fico-10-means-for-your-credit-score-1841182220](https://lifehacker.com/what-fico-10-means-for-your-credit-score-1841182220)
+> 原文：<https://lifehacker.com/what-fico-10-means-for-your-credit-score-1841182220>
 
 对你的信用评分感觉良好吗？一种新的评分模式可能会改变这一点，但可能不会彻底改变。FICO 今天宣布推出 FICO 10，这是贷方用来计算你的信用评分的评分模型的最新版本。
 

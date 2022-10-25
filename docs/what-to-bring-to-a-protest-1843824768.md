@@ -1,6 +1,6 @@
 # 带什么去抗议
 
-> 原文:[https://life hacker . com/what-to-bring-to-a-a-protocol-1843824768](https://lifehacker.com/what-to-bring-to-a-protest-1843824768)
+> 原文：<https://lifehacker.com/what-to-bring-to-a-protest-1843824768>
 
 参加抗议的第一步只是简单地出现，但为所有情况做好准备也很重要——从极端天气条件下的漫长一天，到在疫情中与其他人的密切接触，再到可能的逮捕。
 

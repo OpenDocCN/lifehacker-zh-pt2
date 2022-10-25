@@ -1,6 +1,6 @@
 # 如果你预订了(现已取消的)WOW 航空公司的航班，该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-if-you-booked-on-now-canceled-wow-air-1833641318](https://lifehacker.com/what-to-do-if-youre-booked-on-a-now-canceled-wow-air-1833641318)
+> 原文：<https://lifehacker.com/what-to-do-if-youre-booked-on-a-now-canceled-wow-air-1833641318>
 
 几年前，我和男朋友乘坐 WOW 航空公司的航班去了苏格兰。这趟航班不贵，包括在冰岛的 17 小时中途停留，我们在蓝色泻湖度过了一个下午。
 

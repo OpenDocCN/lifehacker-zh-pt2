@@ -1,6 +1,6 @@
 # 创建一个假期恢复计划
 
-> 原文:[https://life hacker . com/create-a-vacation-recovery-plan-1841182815](https://lifehacker.com/create-a-vacation-recovery-plan-1841182815)
+> 原文：<https://lifehacker.com/create-a-vacation-recovery-plan-1841182815>
 
 在 NBC 新闻 的 [节目中，作家莎拉·迪久里奥描述了休假后你即将体验到的恐惧感，也就是所谓的后假期忧郁——周一早上，你回到办公室，坐在办公桌前，怀疑这是不是一场梦。](https://www.nbcnews.com/better/lifestyle/why-it-s-so-hard-come-back-vacation-how-do-ncna1115341) 
 

@@ -1,6 +1,6 @@
 # 告诉我们你的公共交通黑客
 
-> 原文:[https://life hacker . com/tell-us-your-public-transit-hacks-1832625828](https://lifehacker.com/tell-us-your-public-transit-hacks-1832625828)
+> 原文：<https://lifehacker.com/tell-us-your-public-transit-hacks-1832625828>
 
 在本周的《黑客入侵你的城市》节目中，我们不是针对一个城市，而是针对所有城市。无论你住在哪里，我们都想知道你乘坐公共交通的建议。比如！在纽约州，除了去自由女神像旅行，免费乘坐史坦顿岛渡轮是一种众所周知的选择。但是不太受欢迎的是罗斯福岛电车，只要在你的地铁卡上刷 2.75 美元。
 

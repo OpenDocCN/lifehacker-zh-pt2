@@ -1,6 +1,6 @@
 # 如何用襁褓包裹婴儿
 
-> 原文:[https://lifehacker.com/how-to-swaddle-a-baby-1843445056](https://lifehacker.com/how-to-swaddle-a-baby-1843445056)
+> 原文：<https://lifehacker.com/how-to-swaddle-a-baby-1843445056>
 
 一般来说，婴儿、睡眠和毯子是不可分割的。多年来，美国儿科学会 一直建议的婴儿仰卧在一个没有松散被褥或柔软物体的结实的床面上睡觉。这个没有毯子的规定有一个例外:他用襁褓包裹。
 

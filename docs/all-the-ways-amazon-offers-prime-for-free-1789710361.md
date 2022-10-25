@@ -1,6 +1,6 @@
 # 免费获得亚马逊 Prime 的所有方法
 
-> 原文:[https://life hacker . com/all-the-way-Amazon-offers-prime-for-free-1789710361](https://lifehacker.com/all-the-ways-amazon-offers-prime-for-free-1789710361)
+> 原文：<https://lifehacker.com/all-the-ways-amazon-offers-prime-for-free-1789710361>
 
 如果你经常从亚马逊订购——或者如果你充分利用了 Prime 视频和亚马逊音乐的好处——亚马逊 Prime 119 美元的年费可能会非常划算。但是，如果对于你的购物和流媒体习惯来说，这是一个过高的价格，有一些方法可以免费(或便宜)获得主要的好处。下面是怎么做的。
 

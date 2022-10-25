@@ -1,6 +1,6 @@
 # 在 iOS 上使用您的 Android 设备作为安全密钥
 
-> 原文:[https://life hacker . com/use-your-Android-device-as-a-a-security-key-on-IOs-1835489655](https://lifehacker.com/use-your-android-device-as-a-security-key-on-ios-1835489655)
+> 原文：<https://lifehacker.com/use-your-android-device-as-a-security-key-on-ios-1835489655>
 
 如果你是那些既拥有又使用 Android 和 iOS 设备又喜欢混乱的人之一，谷歌现在允许你使用你的 Android 智能手机作为物理安全密钥，用于 [在 iOS](https://security.googleblog.com/2019/06/use-your-android-phones-built-in.html) 上登录你的谷歌账户。
 

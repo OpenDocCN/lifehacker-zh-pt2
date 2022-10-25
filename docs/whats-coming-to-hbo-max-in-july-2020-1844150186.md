@@ -1,6 +1,6 @@
 # 2020 年 7 月 HBO Max 将迎来什么
 
-> 原文:[https://life hacker . com/whats-coming-to-HBO-max-in-July-2020-1844150186](https://lifehacker.com/whats-coming-to-hbo-max-in-july-2020-1844150186)
+> 原文：<https://lifehacker.com/whats-coming-to-hbo-max-in-july-2020-1844150186>
 
 格式化这个巨大的列表，列出这个月来和离开 HBO Max、HBO Go 和普通老电视 HBO 的内容，让我有机会注意到流媒体服务上新到达和计划离开之间的奇怪同步性。例如:一批基于华盛顿漫画的电影，包括上世纪八九十年代的《蝙蝠侠》(the Batman)正在消失，但 HBO 正在安抚超级英雄粉丝，增加了十几部华盛顿动画电影。(这篇文章的早期版本表明，更新的华盛顿电影*蝙蝠侠大战超人，正义联盟，X 特遣队*和*神奇女侠*也将退出服务，但 HBO 已经 [“延长”了它们，因为“大众需求”](https://deadline.com/2020/06/hbo-max-justice-league-wonder-woman-watchmen-superman-1202968107/) 又名人们在互联网上拖动它们。)
 

@@ -1,6 +1,6 @@
 # 感恩节捐什么(除了钱)
 
-> 原文:[https://life hacker . com/1830591342](https://lifehacker.com/what-to-donate-on-thanksgiving-besides-money-1830591342)
+> 原文：<https://lifehacker.com/what-to-donate-on-thanksgiving-besides-money-1830591342>
 
 我们已经确定，食品供应站 [可以最好地使用现金](https://lifehacker.com/donate-money-not-food-to-your-local-food-bank-1830561819)——他们可以进一步扩展，为他们的客户群购买最合适的东西。不管出于什么原因，如果这不是你能够或倾向于做的事情，在这个假期仍然有一些有用的捐赠方式。
 

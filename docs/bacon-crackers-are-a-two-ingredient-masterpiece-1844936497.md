@@ -1,6 +1,6 @@
 # 培根饼干是两种成分的杰作
 
-> 原文:[https://life hacker . com/bacon-cracker-is-a-two-ingredient-masterive-1844936497](https://lifehacker.com/bacon-crackers-are-a-two-ingredient-masterpiece-1844936497)
+> 原文：<https://lifehacker.com/bacon-crackers-are-a-two-ingredient-masterpiece-1844936497>
 
 我已经有大约六个月没有主持、招待或参加聚会了，如果我说我那颗外向的小心脏没有受到影响，那我就是在撒谎。但是缺少其他人并不意味着我不能享受聚会食物——毕竟，我应该得到娱乐，即使我没有做任何娱乐。
 

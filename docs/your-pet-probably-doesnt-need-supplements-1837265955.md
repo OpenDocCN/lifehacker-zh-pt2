@@ -1,6 +1,6 @@
 # 你的宠物可能不需要补充营养
 
-> 原文:[https://life hacker . com/your-pet-possible-non-need-supplements-1837265955](https://lifehacker.com/your-pet-probably-doesnt-need-supplements-1837265955)
+> 原文：<https://lifehacker.com/your-pet-probably-doesnt-need-supplements-1837265955>
 
 大多数人类 [不需要服用维生素补充剂](https://lifehacker.com/which-vitamins-do-you-really-need-1826433744) ，大多数宠物也不需要。但 Vox [报道](https://www.vox.com/the-goods/2019/8/12/20799061/pet-supplement-industry-vitamins-dogs-cats) 称，宠物补充剂行业的规模大致相当于“南瓜香料工业综合体”虽然一些宠物确实需要补充维生素，但更多的宠物获得维生素只是因为公司喜欢出售它们。我们认为，我想最好地照顾我的宠物。所以我们给他们买东西。
 

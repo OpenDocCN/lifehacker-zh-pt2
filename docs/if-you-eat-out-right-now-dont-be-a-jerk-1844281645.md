@@ -1,6 +1,6 @@
 # 如果你现在出去吃饭，不要犯傻
 
-> 原文:[https://life hacker . com/if-you-eat-out-right-not-be-a-jerk-1844281645](https://lifehacker.com/if-you-eat-out-right-now-dont-be-a-jerk-1844281645)
+> 原文：<https://lifehacker.com/if-you-eat-out-right-now-dont-be-a-jerk-1844281645>
 
 餐馆和酒吧在全国各地纷纷开张，人们肯定会去那里。这当然是一个让我感到不舒服的选择，但如果你只是必须现在就出去，付钱给别人做你的食物，那么你不要表现得像一个不知感激的呆子，这是非常重要的。
 

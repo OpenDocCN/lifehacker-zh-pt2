@@ -1,6 +1,6 @@
 # 暂时不要安排洗牙
 
-> 原文:[https://life hacker . com/dont-schedule-a-dental-cleaning-just-yet-1844686939](https://lifehacker.com/dont-schedule-a-dental-cleaning-just-yet-1844686939)
+> 原文：<https://lifehacker.com/dont-schedule-a-dental-cleaning-just-yet-1844686939>
 
 许多牙医诊所现在都开门了，如果你嘴里有什么东西自三月中旬以来一直困扰着你，或者如果你知道你需要做牙科手术，这是一个好消息。但这并不意味着，如果你需要的只是打扫卫生，那就该照常营业了。牙医特别容易从病人那里感染新冠肺炎病毒，所以最好将非紧急就诊推迟一段时间。
 

@@ -1,6 +1,6 @@
 # 如果你的邻居在放烟花，如何防止你的狗逃跑
 
-> 原文:[https://life hacker . com/how-to-prevent-your-dog-from-if-your-neighbors-1844249448](https://lifehacker.com/how-to-prevent-your-dog-from-escaping-if-your-neighbors-1844249448)
+> 原文：<https://lifehacker.com/how-to-prevent-your-dog-from-escaping-if-your-neighbors-1844249448>
 
 我们的小狗已经熬过了 7 月 4 日的周末，但是很有可能另一个独立日 [的过去并没有阻止你的邻居](https://www.theatlantic.com/technology/archive/2020/06/firework-summer-2020-conspiracy-theory-police/613450/) 燃放烟花。我们已经分享了[小贴士](https://lifehacker.com/how-to-calm-your-dog-when-there-are-fireworks-going-off-1836079557) 让你的狗狗在过去的烟花表演中保持冷静，b 但是不管你提前计划了多少，你的狗狗*最终还是需要到户外透透气。而且你可能无法预测你家附近什么时候会发生这些歌舞表演——而且即使你所在城镇的官方夏季焰火表演被取消了，那也不意味着你的街道会安静下来。*
 

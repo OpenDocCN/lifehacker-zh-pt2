@@ -1,6 +1,6 @@
 # 关于不太常见的新冠肺炎症状，你需要知道什么
 
-> 原文:[https://life hacker . com/what-you-should-know-the-less-common-sym-1843241146](https://lifehacker.com/what-you-should-know-about-the-less-common-covid-19-sym-1843241146)
+> 原文：<https://lifehacker.com/what-you-should-know-about-the-less-common-covid-19-sym-1843241146>
 
 “典型的”新冠肺炎症状是发烧、干咳和气短，这些症状在几个月前首次报道，当时普通美国人只是通过一些零星的新闻报道熟悉这种疾病。从那以后，我们对新冠肺炎有了更多的了解，美国疾病控制和预防中心也大大扩展了官方症状清单 。这对你意味着什么？
 

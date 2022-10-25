@@ -1,6 +1,6 @@
 # 立即更新你的火狐浏览器，修复一个严重的安全漏洞
 
-> 原文:[https://life hacker . com/update-your-Firefox-browser-right-now-to-fix-a-serious-1835630124](https://lifehacker.com/update-your-firefox-browser-right-now-to-fix-a-serious-1835630124)
+> 原文：<https://lifehacker.com/update-your-firefox-browser-right-now-to-fix-a-serious-1835630124>
 
 在 Firefox 67.0 发布之后，Mozilla 推出了 Firefox 67.0.3，修复了一个主要的安全漏洞。根据 Mozilla 安全委员会 的 [消息，据报道，黑客](https://www.mozilla.org/en-US/security/advisories/mfsa2019-18/) [一直在利用该漏洞接管运行未打补丁的火狐 67.0 版本的个人电脑。](https://www.us-cert.gov/ncas/alerts/AA19-168A) 所有火狐用户应该立即更新到最新版本，以保护自己免受漏洞攻击，这很容易做到:直接从 Mozilla 下载最新版本的浏览器 [，或者点击右上角的汉堡图标，然后帮助，然后关于火狐。](https://www.mozilla.org/en-US/firefox/67.0.3/releasenotes/)
 

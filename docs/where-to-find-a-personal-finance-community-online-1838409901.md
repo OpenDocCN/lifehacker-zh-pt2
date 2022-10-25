@@ -1,6 +1,6 @@
 # 在哪里可以找到在线个人理财社区
 
-> 原文:[https://life hacker . com/where-to-find-a-personal-finance-community-online-1838409901](https://lifehacker.com/where-to-find-a-personal-finance-community-online-1838409901)
+> 原文：<https://lifehacker.com/where-to-find-a-personal-finance-community-online-1838409901>
 
 我们可能每天都在 Lifehacker 的这个角落里谈论金钱，但是在两美分的温暖范围之外，讨论金钱通常仍然是不被允许的。事实上，根据 Motley Fool's The Ascent 的一份报告，人们对他们的财务状况如此非常秘密的，以至于他们宁愿在晚宴上谈论他们的性生活，而不是他们的信用卡债务。该调查发现，几乎 57%的受访者认为，不论时间和地点，讨论个人财务都是禁忌。当你想讨论你的财务目标、理解你的挫折或庆祝你的成就时，这种耻辱可能会让你感到失落。
 

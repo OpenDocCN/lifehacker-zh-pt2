@@ -1,6 +1,6 @@
 # 如何帮助孩子发展“新闻素养”技能
 
-> 原文:[https://life hacker . com/how-to-help-kids-develop-news-literacy-skills-1840482035](https://lifehacker.com/how-to-help-kids-develop-news-literacy-skills-1840482035)
+> 原文：<https://lifehacker.com/how-to-help-kids-develop-news-literacy-skills-1840482035>
 
 帮助孩子发展他们的新闻素养技能变得比以往任何时候都更重要——只教孩子 [识别假新闻](https://lifehacker.com/how-to-teach-your-kids-to-spot-fake-news-1820985245) 是不够的。为了培养真正的新闻素养，孩子们必须学习比简单的事实核查更深层次的策略；他们还必须考虑如何收集和呈现新闻。
 

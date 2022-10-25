@@ -1,6 +1,6 @@
 # 在任何群体环境中避免这些类型的行为
 
-> 原文:[https://life hacker . com/avoid-these-type-of-behavior-in-any-group-setting-1830349609](https://lifehacker.com/avoid-these-types-of-behavior-in-any-group-setting-1830349609)
+> 原文：<https://lifehacker.com/avoid-these-types-of-behavior-in-any-group-setting-1830349609>
 
 大多数社区，无论在线还是离线，都有一些严格的界限:没有仇恨言论，没有威胁，没有骚扰。但是一个好的社区认识到一些更边缘的行为——这些行为并不明显可怕，但仍然可以在讨论中慢慢侵蚀，吓跑(或惹恼)好成员，直到只剩下混蛋。它可以毁掉任何社交团体，从读书俱乐部或群发短信到 Reddit。
 

@@ -1,6 +1,6 @@
 # 如何让威瑞森帮你屏蔽自动电话
 
-> 原文:[https://life hacker . com/how-to-get-Verizon-to-block-robo calls-for-you-1837662914](https://lifehacker.com/how-to-get-verizon-to-block-robocalls-for-you-1837662914)
+> 原文：<https://lifehacker.com/how-to-get-verizon-to-block-robocalls-for-you-1837662914>
 
 在客户无休止的抱怨之后，服务提供商正在采取措施减少——并希望消除——现代机器人电话的麻烦。威瑞森用户已经可以下载一个免费的垃圾邮件过滤器，阻止在[](https://apps.apple.com/us/app/verizon-call-filter/id777875529)**和 [**安卓**](https://play.google.com/store/apps/details?id=com.vzw.ecid&hl=en_US) 上的 robocalls，但一些安卓用户现在自动注册了这项服务(不需要额外下载应用程序)。** 
 

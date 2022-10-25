@@ -1,6 +1,6 @@
 # 住的空间小如何批量购买
 
-> 原文:[https://life hacker . com/how-to-buy-when-you-live-a-small-space-1835445092](https://lifehacker.com/how-to-buy-in-bulk-when-you-live-in-a-small-space-1835445092)
+> 原文：<https://lifehacker.com/how-to-buy-in-bulk-when-you-live-in-a-small-space-1835445092>
 
 批量购买可能是一种授权体验。节约成本，再加上暂时不需要再买那个东西的满足感，会让你觉得你真的欺骗了系统。直到你回到家，意识到，嗯，你没有地方放这么多罐汤——事实上，你甚至不喜欢罐装汤。
 

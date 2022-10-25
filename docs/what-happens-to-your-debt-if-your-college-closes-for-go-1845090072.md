@@ -1,6 +1,6 @@
 # 如果你的大学永久关闭，你的债务怎么办？
 
-> 原文:[https://life hacker . com/1845090072](https://lifehacker.com/what-happens-to-your-debt-if-your-college-closes-for-go-1845090072)
+> 原文：<https://lifehacker.com/what-happens-to-your-debt-if-your-college-closes-for-go-1845090072>
 
 Watch
 

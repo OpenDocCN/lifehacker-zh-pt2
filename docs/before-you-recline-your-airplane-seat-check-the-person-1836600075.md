@@ -1,6 +1,6 @@
 # 在你放倒飞机座椅之前，检查一下你身后的人
 
-> 原文:[https://life hacker . com/before-you-reclined-your-plant-seat-check-the-person-1836600075](https://lifehacker.com/before-you-recline-your-airplane-seat-check-the-person-1836600075)
+> 原文：<https://lifehacker.com/before-you-recline-your-airplane-seat-check-the-person-1836600075>
 
 飞机上什么时候可以放倒座椅？正确答案当然是“起飞和着陆之间”然而，更好的答案可能与坐在你后面的人有关。
 

@@ -1,6 +1,6 @@
 # 如何预防和应对 SIM 卡互换骗局
 
-> 原文:[https://life hacker . com/how-to-prevent-and-response-a-sim-swap-scam-1835627474](https://lifehacker.com/how-to-prevent-and-respond-to-a-sim-swap-scam-1835627474)
+> 原文：<https://lifehacker.com/how-to-prevent-and-respond-to-a-sim-swap-scam-1835627474>
 
 当 ZDNet 的 [马修·米勒](https://www.zdnet.com/article/sim-swap-horror-story-ive-lost-decades-of-data-and-google-wont-lift-a-finger/) 受到 SIM 交换攻击时，他形容这是一个“恐怖故事”，导致他丢失了“几十年的数据”他没有夸张；一个多星期后，他仍在处理后遗症，一些主要的技术公司——包括推特和谷歌——都不能保证他能够重新获得被攻击者搞砸的东西。
 

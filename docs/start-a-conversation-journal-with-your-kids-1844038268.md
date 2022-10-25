@@ -1,6 +1,6 @@
 # 和你的孩子一起开始写“对话日记”
 
-> 原文:[https://life hacker . com/start-a-conversation-journal-with-your-kids-1844038268](https://lifehacker.com/start-a-conversation-journal-with-your-kids-1844038268)
+> 原文：<https://lifehacker.com/start-a-conversation-journal-with-your-kids-1844038268>
 
 当我在高中的时候，我有一个笔记本，我和两个朋友一起传阅。我们每个人轮流在上面写字，在课间的走廊里把它递给，就像一张无尽的螺旋装订的纸条——在有短信之前就有短信了。我们会画画，我们会抱怨生物课有多无聊，我们会制定周末计划。这是一种谈话日志——你也可以和你的孩子一起做这件事。
 

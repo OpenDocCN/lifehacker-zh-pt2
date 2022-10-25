@@ -1,6 +1,6 @@
 # 如何改变一个叛逆的孩子
 
-> 原文:[https://life hacker . com/how-to-redirect-a-defiant-kid-1835491710](https://lifehacker.com/how-to-redirect-a-defiant-kid-1835491710)
+> 原文：<https://lifehacker.com/how-to-redirect-a-defiant-kid-1835491710>
 
 如果你已经养育了一个小孩，你很有可能已经学到了一些谈判的艺术。尽管我们很想给孩子一个指示，并让他们每次都照着做——因为我们是这么说的，这就是为什么——有时候孩子们只是说，“不用了，我很好，谢谢。”
 

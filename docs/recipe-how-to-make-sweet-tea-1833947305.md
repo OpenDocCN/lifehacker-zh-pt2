@@ -1,6 +1,6 @@
 # 特殊甜茶的秘密是什么？
 
-> 原文:[https://the take out . com/recipe-how-to-make-sweet-tea-1833947305](https://thetakeout.com/recipe-how-to-make-sweet-tea-1833947305)
+> 原文：<https://thetakeout.com/recipe-how-to-make-sweet-tea-1833947305>
 
 以前，我与甜茶最密切的联系是，当我不注意时，我的孩子在浆果茶中加入了一堆糖，结果得到了一种味道像液体 Jolly Rancher 的饮料。但是夏天快到了，作为一个一生都生活在北方的人，我羡慕南方人的热情好客——随时准备一杯甜茶。瑞茜·威瑟斯彭亲自教导我们 甜茶是欢迎回家的重要标志，就像门环上的菠萝标志一样。
 

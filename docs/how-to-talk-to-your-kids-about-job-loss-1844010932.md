@@ -1,6 +1,6 @@
 # how to talk to your kids about job loss 1844010932
 
-> 原文:[https://life hacker . com/how-to-talk to-your-children 关于失业的话题-1844010932](https://lifehacker.com/how-to-talk-to-your-kids-about-job-loss-1844010932)
+> 原文：<https://lifehacker.com/how-to-talk-to-your-kids-about-job-loss-1844010932>
 
 如果你是疫情期间失业的数千万美国人中的一员，你可能已经面临了比锁定、远程学习和社会距离带来的更多的压力(这已经足够了)。想知道是否或者如何和你的孩子谈论失业的话题是很棘手的；你不想给他们增加负担，或者给已经困难的一年增加更多的担忧。
 

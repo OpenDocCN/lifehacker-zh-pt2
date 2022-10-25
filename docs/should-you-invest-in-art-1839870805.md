@@ -1,6 +1,6 @@
 # 应该投资艺术品吗？
 
-> 原文:[https://lifehacker.com/should-you-invest-in-art-1839870805](https://lifehacker.com/should-you-invest-in-art-1839870805)
+> 原文：<https://lifehacker.com/should-you-invest-in-art-1839870805>
 
 对于那些没有艺术界背景的人来说，收藏艺术品作为一种投资似乎是一个崇高的目标。尽管你喜欢和欣赏艺术，但你可能不在一个可以选择购买毕加索作品的经济环境中。但这并不意味着你完全不能投资艺术品。新的平台不断涌现，允许你投资艺术品股票，就像你投资上市公司的股票一样。
 

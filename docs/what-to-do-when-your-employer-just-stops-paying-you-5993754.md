@@ -1,6 +1,6 @@
 # 当你的雇主停止支付你工资时该怎么办
 
-> 原文:[https://life hacker . com/what-to-do what-when-your-employer-just-stop-pay-you-5993754](https://lifehacker.com/what-to-do-when-your-employer-just-stops-paying-you-5993754)
+> 原文：<https://lifehacker.com/what-to-do-when-your-employer-just-stops-paying-you-5993754>
 
 你可能有一份很好的工作，爱你的同事，和每个人都相处得很好——但是这些东西不会让你的薪水源源不断。如果你的雇主突然停止支付你工资，要么承诺以后会补偿，要么根本没有解释，你有权利。以下是你需要知道的。
 

@@ -1,6 +1,6 @@
 # 通过在速食锅里煮半熟土豆来准备膳食
 
-> 原文:[https://life hacker . com/meal-prep-potatos-by-par-cooking-them-in-the-instant-p-1840901511](https://lifehacker.com/meal-prep-potatoes-by-par-cooking-them-in-the-instant-p-1840901511)
+> 原文：<https://lifehacker.com/meal-prep-potatoes-by-par-cooking-them-in-the-instant-p-1840901511>
 
 关于饮食计划最具挑战性的事情之一是预测你将来想吃什么。我很不擅长这个，因为我的味觉经常渴望最后一分钟的冒险，但有一样东西总是让我兴奋。
 

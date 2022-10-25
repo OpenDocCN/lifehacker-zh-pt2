@@ -1,6 +1,6 @@
 # 如何看待苹果今天的“时光飞逝”事件
 
-> 原文:[https://life hacker . com/how-to-watch-apple-time-flys-event-today-1845052865](https://lifehacker.com/how-to-watch-apples-time-flies-event-today-1845052865)
+> 原文：<https://lifehacker.com/how-to-watch-apples-time-flies-event-today-1845052865>
 
 又是一天，又是一场苹果活动。尽管由于疫情事件(以及随之而来的隔离)，苹果的产品发布时间表看起来很不稳定，但我们今天还是会看到一些有趣的新玩意。
 

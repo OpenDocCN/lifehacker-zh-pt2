@@ -1,6 +1,6 @@
 # how to get started composting 1830416203
 
-> 原文:[https://life hacker . com/how-to-get-started-堆肥-1830416203](https://lifehacker.com/how-to-get-started-composting-1830416203)
+> 原文：<https://lifehacker.com/how-to-get-started-composting-1830416203>
 
 我最早的记忆之一是在康涅狄格州乡下我家后院的堆肥堆上剥玉米。就像煮玉米，涂上厚厚一层甜黄油，然后吃掉它一样，剥去外壳，去除丝状物的行为已经深深扎根于我的内心。我们从小就被教导，为了得到我们想要的东西，我们必须为之努力，即使是玉米棒子也是如此。
 

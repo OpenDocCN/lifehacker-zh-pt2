@@ -1,6 +1,6 @@
 # 如何在不收到大量垃圾邮件的情况下向慈善机构捐款
 
-> 原文:[https://life hacker . com/how-can-I-due-to-charity-without-get-hard assed-b-1570300719](https://lifehacker.com/how-can-i-donate-to-charity-without-getting-harrassed-b-1570300719)
+> 原文：<https://lifehacker.com/how-can-i-donate-to-charity-without-getting-harrassed-b-1570300719>
 
 你知道那句谚语吗，“好心没好报”？向慈善机构捐款会让你觉得自己注定要下地狱。每个曾经为某项事业捐过钱的人，很可能在几个月后的邮件中收到了那些地址标签为“礼物”的东西(对于所有你没有写的信和你自动支付的账单)。或者学会屏蔽慈善电话推销员的持续电话。或者，每当他们把一封敦促增加每月捐款的信原封不动地扔进回收站时，他们都会叹气。
 

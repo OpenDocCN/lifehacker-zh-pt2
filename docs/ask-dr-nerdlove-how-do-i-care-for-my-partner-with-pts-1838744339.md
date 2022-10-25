@@ -1,6 +1,6 @@
 # 问 NerdLove 医生:我如何照顾患有 PTSD 的伴侣？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-how-do-I-care-for-my-partner-with-pts-1838744339](https://kotaku.com/ask-dr-nerdlove-how-do-i-care-for-my-partner-with-pts-1838744339)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-how-do-i-care-for-my-partner-with-pts-1838744339>
 
 你好，你们这些被诅咒的电动海牛，欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是唯一一个帮助你穿越爱的黑暗灵魂的约会建议专栏。
 

@@ -1,6 +1,6 @@
 # 关掉我的智能手机会影响它的健康吗？
 
-> 原文:[https://life hacker . com/does-turning-off-my-smart phone-influence-its-health-1834981341](https://lifehacker.com/does-turning-off-my-smartphone-affect-its-health-1834981341)
+> 原文：<https://lifehacker.com/does-turning-off-my-smartphone-affect-its-health-1834981341>
 
 当我为本周的 [**Tech 911**](https://lifehacker.com/c/tech-911) 挑选信件时，我想起了我的房子有太阳能电池板是多么幸福。这意味着我可以在白天让大部分设备开着，继续充电，而不会因为浪费了多少电而感到内疚。
 

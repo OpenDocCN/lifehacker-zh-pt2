@@ -1,6 +1,6 @@
 # 想烤吗？以下是如何在家制作大麻庆祝 4 月 20 日
 
-> 原文:[https://gizmodo . com/wanna-bake-heres-how-to-make-cannabutter-to-庆功-1842907625](https://gizmodo.com/wanna-bake-heres-how-to-make-cannabutter-to-celebrate-1842907625)
+> 原文：<https://gizmodo.com/wanna-bake-heres-how-to-make-cannabutter-to-celebrate-1842907625>
 
 4 月 20 日，星期一，被认为是我们一生中最史诗般的 4/20:这个百年一遇的日子，4/20 既可以指一个月中的某一天，也可以指一年中的某一天。但是新冠肺炎的传播，已经增长到超过 210 万病例和 140，000 人死亡，4/20/20 将是比我预期的更温和的一天。
 

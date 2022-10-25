@@ -1,6 +1,6 @@
 # 问咸味女服务员:知道有什么绝地武士的心法可以让服务员获得更多小费吗？
 
-> 原文:[https://the take out . com/how-can-servers-get-bigger-tips-1835502841](https://thetakeout.com/how-can-servers-get-bigger-tips-1835502841)
+> 原文：<https://thetakeout.com/how-can-servers-get-bigger-tips-1835502841>
 
 > 亲爱的咸:我刚刚大学毕业，今年夏天我在做服务员。我擅长服务(至少我的老板是这么说的)，我喜欢顾客，我认为我的工作很有趣。所以请你知道，我有点不好意思问这个问题:你有什么特殊的技巧来获得更多的小费吗？例如，我听说如果你在收据上写下你的名字，你的顾客可能会觉得服务员更有风度，这可能会导致更多的小费。你还知道其他绝地的思维技巧吗？
 > 

@@ -1,6 +1,6 @@
 # 查理斯和雷·伊姆斯如何将现代设计带入他们生活的方方面面
 
-> 原文:[https://life hacker . com/how-Charles-and-ray-Eames-bring-modern-design-into ev-1831618971](https://lifehacker.com/how-charles-and-ray-eames-brought-modern-design-into-ev-1831618971)
+> 原文：<https://lifehacker.com/how-charles-and-ray-eames-brought-modern-design-into-ev-1831618971>
 
 如果你认为标志性的设计夫妇查理斯和雷·伊姆斯是“椅子人”，你在技术上是正确的，但是错过了他们一生中创造的所有其他创新。
 

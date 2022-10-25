@@ -1,6 +1,6 @@
 # 用你剩下的冰沙做冰棍
 
-> 原文:[https://life hacker . com/make-popsicles-out-of-your ' s left-smoothies-1836847614](https://lifehacker.com/make-popsicles-out-of-your-leftover-smoothies-1836847614)
+> 原文：<https://lifehacker.com/make-popsicles-out-of-your-leftover-smoothies-1836847614>
 
 我儿子小的时候，我经常给他做很多奶昔。我的首选食谱是香蕉、冷冻蓝莓、希腊酸奶、牛奶或橙汁、菠菜和亚麻籽。他喜欢新鲜出炉的。但我总会吃一点剩菜，一旦它在冰箱里放了一段时间，他就会嗤之以鼻。
 

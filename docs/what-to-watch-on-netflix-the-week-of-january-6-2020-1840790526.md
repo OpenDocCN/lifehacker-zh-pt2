@@ -1,6 +1,6 @@
 # 2020 年 1 月 6 日这一周网飞有什么看点
 
-> 原文:[https://life hacker . com/2020 年 1 月 6 日网飞周看点-1840790526](https://lifehacker.com/what-to-watch-on-netflix-the-week-of-january-6-2020-1840790526)
+> 原文：<https://lifehacker.com/what-to-watch-on-netflix-the-week-of-january-6-2020-1840790526>
 
 这是本周网飞上不冷不热的产品，一个可能有趣的网飞原创作品的冬季组合，具有崇拜的潜力，但让我们面对现实吧，更有可能只是打发时间，而不是改变你的生活。
 

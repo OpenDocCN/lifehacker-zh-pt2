@@ -1,6 +1,6 @@
 # 你可以直接在速溶锅搅拌机里煮汤
 
-> 原文:[https://life hacker . com/you-can-cook-soup-right-in-the-instant-pot-ace-blender-1829870294](https://lifehacker.com/you-can-cook-soup-right-in-the-instant-pot-ace-blender-1829870294)
+> 原文：<https://lifehacker.com/you-can-cook-soup-right-in-the-instant-pot-ace-blender-1829870294>
 
 我从来都不是一个喜欢搅拌的人。我不喝冰沙，我通常能够用我的食物处理器或浸入式搅拌机制作浓汤，加工或以其他方式消灭任何和所有的食物。然而，我对 [王牌烹饪搅拌机](https://www.walmart.com/ip/Instant-Pot-Ace-60-Cooking-Blender/626991948) (由即时锅的人们制造)及其煲汤能力印象深刻。
 

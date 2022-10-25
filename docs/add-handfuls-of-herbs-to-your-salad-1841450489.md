@@ -1,6 +1,6 @@
 # 在沙拉中加入几把香草
 
-> 原文:[https://life hacker . com/add-handles-of-herbals-to-your-salad-1841450489](https://lifehacker.com/add-handfuls-of-herbs-to-your-salad-1841450489)
+> 原文：<https://lifehacker.com/add-handfuls-of-herbs-to-your-salad-1841450489>
 
 说到让沙拉变得美味，很多人都非常依赖调料，其次是奶酪。我喜欢调味汁和奶酪，但两者都太多会使沙拉变得沉重，并使它失去新鲜。为了增加沙拉的味道，同时保持沙拉的鲜味，可以加入大量的新鲜香草。
 

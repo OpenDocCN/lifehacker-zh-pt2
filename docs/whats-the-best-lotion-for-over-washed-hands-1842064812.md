@@ -1,6 +1,6 @@
 # 洗过头的手用什么乳液最好？
 
-> 原文:[https://life hacker . com/whats-the-best 洗液用于洗手-1842064812](https://lifehacker.com/whats-the-best-lotion-for-over-washed-hands-1842064812)
+> 原文：<https://lifehacker.com/whats-the-best-lotion-for-over-washed-hands-1842064812>
 
 最近有谁的手真的又干又脏吗？ [流感季节](https://vitals.lifehacker.com/if-youre-worried-about-coronavirus-get-your-flu-shot-1841201798)//[冠状病毒](https://vitals.lifehacker.com/the-coronavirus-has-an-official-name-covid-19-1841601530) 偏执狂让我们比平时更加频繁地擦洗——再加上冬天的天气，我们可怜的手急需水分。
 

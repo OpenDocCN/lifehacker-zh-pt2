@@ -1,6 +1,6 @@
 # 如何让一家航空公司与另一家航空公司的精英会员身份相匹配
 
-> 原文:[https://life hacker . com/how-to-get-a-a-1836567069](https://lifehacker.com/how-to-get-an-airline-to-match-your-elite-status-from-a-1836567069)
+> 原文：<https://lifehacker.com/how-to-get-an-airline-to-match-your-elite-status-from-a-1836567069>
 
 去年，我乘坐阿拉斯加航空公司(Alaska Airlines)飞行了 7，000 英里，但我目前拥有该公司的顶级地位“Gold 75k”，这是一项专为在前一年中乘坐该公司飞行了 75，000 英里或以上的乘客保留的荣誉。这一称号让我在今年至少六次航班上获得了头等舱升级，以及免费托运行李和优先登机——我是通过身份匹配到达那里的。
 

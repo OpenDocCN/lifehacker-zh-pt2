@@ -1,6 +1,6 @@
 # 如何在家工作而不陷入绝望的深渊
 
-> 原文:[https://life hacker . com/how-to-work-from-home-with-but-in-the-pit-of-des-1830536117](https://lifehacker.com/how-to-work-from-home-without-falling-into-a-pit-of-des-1830536117)
+> 原文：<https://lifehacker.com/how-to-work-from-home-without-falling-into-a-pit-of-des-1830536117>
 
 令我和我的室友吃惊的是，我已经设法在家工作了整整一年。过着自由放任的沙发写作生活有很多好处。我从来不需要通勤，这是一个真正的福气，考虑到纽约市所有的 [地铁经常在高峰时段经历全系统瘫痪](https://jalopnik.com/the-new-york-city-subway-is-hell-1821910690) 。我很少穿真正的裤子。我可以在中午预约医生，或者至少我可以，如果我有医疗保险的话。
 

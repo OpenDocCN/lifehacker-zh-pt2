@@ -1,6 +1,6 @@
 # 不要用 Alexa 买卖股票
 
-> 原文:[https://life hacker . com/don-use-Alexa-to-buy-and-self-stocks-for-you-1830003528](https://lifehacker.com/dont-use-alexa-to-buy-and-sell-stocks-for-you-1830003528)
+> 原文：<https://lifehacker.com/dont-use-alexa-to-buy-and-sell-stocks-for-you-1830003528>
 
 忙着做饭，但同时又渴望卖出一些股票？现在你可以让 Alexa 帮你做了。
 

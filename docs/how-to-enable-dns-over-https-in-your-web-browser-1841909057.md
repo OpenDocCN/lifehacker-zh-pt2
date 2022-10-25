@@ -1,6 +1,6 @@
 # 如何在您的网页浏览器中启用 HTTPS 域名系统
 
-> 原文:[https://life hacker . com/how-to-enable-DNS-over-https-in-your-web-browser-1841909057](https://lifehacker.com/how-to-enable-dns-over-https-in-your-web-browser-1841909057)
+> 原文：<https://lifehacker.com/how-to-enable-dns-over-https-in-your-web-browser-1841909057>
 
 Mozilla 已经开始为所有 Firefox 用户在 HTTPS 推出 DNS，这是一个坚实的安全变化，旨在解决第三方监视你访问的网站的问题。通常，当您在浏览器的地址栏中键入网站并按 Enter 键时，浏览器会使用 DNS 将域名映射到您尝试访问的服务器的实际 IP 地址，即托管您要访问的网站的服务器。
 

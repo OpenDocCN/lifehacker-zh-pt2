@@ -1,6 +1,6 @@
 # 在大西洋城寻找元游戏
 
-> 原文:[https://kotaku . com/finding-the-meta game-in-Atlantic-city-1834273973](https://kotaku.com/finding-the-metagame-in-atlantic-city-1834273973)
+> 原文：<https://kotaku.com/finding-the-metagame-in-atlantic-city-1834273973>
 
 上周日去大西洋城的 greige boardwalk 时，我踏入了我的第一家赌场，一家名为 Bally's 的随叫随到的赌场，红地毯上有多年的香烟味。这是复活节——不是一个与罪交流的好日子——但仍然是一个休息日。经过响个不停的老虎机，我在一张空着的 5 美元的 21 点桌上坐下，由一位头发花白的老妇人管理。她优雅地把手滑过毛毯，递给我第一只手。我知道如何玩 21 点，但我还没有想到 21 点的基本机制只是我必须玩的游戏的一小部分。
 

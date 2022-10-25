@@ -1,6 +1,6 @@
 # 总是买袜子作为旅行纪念品
 
-> 原文:[https://life hacker . com/always-buy-socks-as-a-trip-纪念品-1833473912](https://lifehacker.com/always-buy-socks-as-a-trip-souvenir-1833473912)
+> 原文：<https://lifehacker.com/always-buy-socks-as-a-trip-souvenir-1833473912>
 
 上周我去了东京。我给自己买了一件风衣，给我的宝宝买了一本立体书和一部手机。我买了折纸、茶和一个支持无线网络的变焦镜头耳垢清除器。我给我的朋友们买了小饰品——贴纸、别针、一本立体书、一个手镯、一个看起来像屁股的软软的桃子。我当然有很多零食。但是我确定我买了袜子。如果你去任何地方都买袜子，你会有一个能保留几个月或几年的纪念品。
 

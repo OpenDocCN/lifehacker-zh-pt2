@@ -1,6 +1,6 @@
 # 如何出售或回收你的旧电子产品
 
-> 原文:[https://life hacker . com/how-to-sell-or-recycle-your-old-electronics-1834456060](https://lifehacker.com/how-to-sell-or-recycle-your-old-electronics-1834456060)
+> 原文：<https://lifehacker.com/how-to-sell-or-recycle-your-old-electronics-1834456060>
 
 我有几副坏了的耳机，一个不能用的 PlayStation，还有一个破了的 iPhone，上面有微量的血迹。在我的公寓里翻找无用的物品时，我经常想，我的旧电子产品——不管有没有破损——是否有比坐在我的抽屉里或被扔进垃圾桶更大的用途。
 

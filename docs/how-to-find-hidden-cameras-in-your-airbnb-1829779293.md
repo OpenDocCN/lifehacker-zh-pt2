@@ -1,6 +1,6 @@
 # 如何在你的 Airbnb 中找到隐藏的摄像头
 
-> 原文:[https://life hacker . com/how-to-find-hidden-camera-in-your-Airbnb-1829779293](https://lifehacker.com/how-to-find-hidden-cameras-in-your-airbnb-1829779293)
+> 原文：<https://lifehacker.com/how-to-find-hidden-cameras-in-your-airbnb-1829779293>
 
 当你住在一个陌生人家里时，有许多事情要考虑。他们会杀了我吗？在我的卧室吃午餐可以吗，这样我就不用和他们说话了？和...是不是有隐藏的摄像头等着抓我裸体？
 

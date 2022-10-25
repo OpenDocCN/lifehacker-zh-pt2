@@ -1,6 +1,6 @@
 # 苹果今天宣布的一切:价格、预购和发布日期
 
-> 原文:[https://life hacker . com/everything-apple-announced-today-prices-pre-orders-a-1845066128](https://lifehacker.com/everything-apple-announced-today-prices-pre-orders-a-1845066128)
+> 原文：<https://lifehacker.com/everything-apple-announced-today-prices-pre-orders-a-1845066128>
 
 苹果的“时光飞逝”事件今天真的飞起来了。一个小时，进进出出，你可以像苹果超级粉丝一样开始预订一系列新产品。我开玩笑，但只是一点点。
 

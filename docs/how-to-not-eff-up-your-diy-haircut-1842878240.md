@@ -1,6 +1,6 @@
 # how to not eff up your diy haircut 1842878240
 
-> 原文:[https://life hacker . com/how-to-not-eff-up-your-DIY-理发-1842878240](https://lifehacker.com/how-to-not-eff-up-your-diy-haircut-1842878240)
+> 原文：<https://lifehacker.com/how-to-not-eff-up-your-diy-haircut-1842878240>
 
 隔离生活和个人仪容使可怜的同伴。如果你习惯于通过定期的发型预约来保持你的形象，事情很可能已经变得暗淡无光了。也许你在刘海后看不到外面，或者你的胡子终于从“迷人的邋遢”变成了“旧时的船长”但是，当你不能坐在离发型师六英尺以内的地方，谁知道能坐多久，你又能做什么呢？
 

@@ -1,6 +1,6 @@
 # 为什么你需要让你的孩子远离化妆品
 
-> 原文:[https://life hacker . com/why-you-need-keep-cosmetics-from-your-kids-1835586680](https://lifehacker.com/why-you-need-to-keep-cosmetics-away-from-your-kids-1835586680)
+> 原文：<https://lifehacker.com/why-you-need-to-keep-cosmetics-away-from-your-kids-1835586680>
 
 你可能会把药物放在小孩子够不到的地方，也不会想到把腐蚀性清洁剂放在你的孩子可以拿到的地方。但是化妆品也可能是危险的，最近的一项研究发现儿童经常因化妆品中毒和化学灼伤。
 

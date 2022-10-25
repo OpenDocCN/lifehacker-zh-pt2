@@ -1,6 +1,6 @@
 # 用“下一个”唤醒你最喜欢的播客
 
-> 原文:[https://life hacker . com/wake-up-to-your favorite-podcast-with-next-up-1840315597](https://lifehacker.com/wake-up-to-your-favorite-podcast-with-next-up-1840315597)
+> 原文：<https://lifehacker.com/wake-up-to-your-favorite-podcast-with-next-up-1840315597>
 
 如果你早上听播客，也许你应该从醒来的那一刻就开始听。 [接下来的](https://landonjmitchell.com/nextup/) 与苹果的播客应用程序同步，将你最喜欢的播客变成你的闹钟。
 

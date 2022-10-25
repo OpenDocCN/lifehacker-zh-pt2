@@ -1,6 +1,6 @@
 # what to do when you receive a takedown request 1837440520
 
-> 原文:[https://life hacker . com/what-to-do-when-you-receive-a-take-down-request-1837440520](https://lifehacker.com/what-to-do-when-you-receive-a-takedown-request-1837440520)
+> 原文：<https://lifehacker.com/what-to-do-when-you-receive-a-takedown-request-1837440520>
 
 本周一， [YouTube](https://www.theverge.com/2019/8/19/20812144/youtube-copyright-strike-lawsuit-alleged-extortion-minecraft) 对其某用户通过虚假版权罢工敲诈他人提起诉讼；在提交了未经核实的视频版权声明后，有问题的用户会要求付款(比如 300 美元的 Paypal 或 200 美元的比特币)，或者威胁对他们的账户进行第三次*版权罢工，这将意味着从平台上彻底终止。* 
 

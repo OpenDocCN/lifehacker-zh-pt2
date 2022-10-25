@@ -1,6 +1,6 @@
 # 2020 年 4 月 6 日这一周网飞有什么新消息
 
-> 原文:[https://life hacker . com/whats-new-on-the-week-of-four-6-2020-1842699120](https://lifehacker.com/whats-new-on-netflix-the-week-of-april-6-2020-1842699120)
+> 原文：<https://lifehacker.com/whats-new-on-netflix-the-week-of-april-6-2020-1842699120>
 
 新的一周意味着我们要向网飞的一些新内容问好，并向一些旧的选项说再见。
 

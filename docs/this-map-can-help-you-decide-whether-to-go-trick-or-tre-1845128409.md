@@ -1,6 +1,6 @@
 # 这张地图可以帮助你决定是否去不给糖就捣蛋
 
-> 原文:[https://life hacker . com/this-map-can-help-you-decision-when-go-trick-or-tre-1845128409](https://lifehacker.com/this-map-can-help-you-decide-whether-to-go-trick-or-tre-1845128409)
+> 原文：<https://lifehacker.com/this-map-can-help-you-decide-whether-to-go-trick-or-tre-1845128409>
 
 相信像好时这样的公司，并建议今年去“不给糖就捣蛋”是否安全，这似乎是违反直觉的。毕竟，他们在那场游戏中确实有一些严肃的内容，占他们年销售额的 10%。但是著名的糖果公司 [推出了一个网站](https://www.halloween2020.org) ，这可能会对父母们有所帮助，他们将试图决定今年是否送他们的孩子上门——或者如何以其他方式安全地庆祝。
 

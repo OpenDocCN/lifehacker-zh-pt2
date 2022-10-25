@@ -1,6 +1,6 @@
 # 平等法案真的会有所作为吗？
 
-> 原文:[https://life hacker . com/will-the-equality-act-actually-do-any-let-s-discu-1834922938](https://lifehacker.com/will-the-equality-act-actually-do-anything-let-s-discu-1834922938)
+> 原文：<https://lifehacker.com/will-the-equality-act-actually-do-anything-let-s-discu-1834922938>
 
 周五，众议院通过了平等法案——该法案为 LBGTQ 社区提供了全面的保护，也是第一个由国会通过的此类法案。
 

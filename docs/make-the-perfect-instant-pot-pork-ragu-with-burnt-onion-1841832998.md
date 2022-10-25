@@ -1,6 +1,6 @@
 # 用烧焦的洋葱制作完美的即食猪肉炖肉
 
-> 原文:[https://life hacker . com/make-the-perfect-instant-pot-pork-ragu-with-burned-onion-1841832998](https://lifehacker.com/make-the-perfect-instant-pot-pork-ragu-with-burnt-onion-1841832998)
+> 原文：<https://lifehacker.com/make-the-perfect-instant-pot-pork-ragu-with-burnt-onion-1841832998>
 
 我主要用我的速食锅来煮大块的肉，直到它们很嫩，一眼就能碎掉。这种设备可以烤出美味的猪肉，但是，如果你用一罐西红柿来烤，你会得到一份美味的炖肉。
 

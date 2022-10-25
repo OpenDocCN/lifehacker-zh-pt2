@@ -1,6 +1,6 @@
 # 用免费的“龙与地下城”冒险战胜冠状病毒
 
-> 原文:[https://life hacker . com/beat-the-coronavirus-blues-with-a-free-dungons-drago-1842397668](https://lifehacker.com/beat-the-coronavirus-blues-with-a-free-dungeons-drago-1842397668)
+> 原文：<https://lifehacker.com/beat-the-coronavirus-blues-with-a-free-dungeons-drago-1842397668>
 
 无论你是一直想尝试 的一些掷骰子冒险，还是因为你的常规*地下城&龙*团队可能不得不虚拟化几周(或几个月)而感到沮丧，现在都是用桌面游戏对抗冠状病毒引起的厌倦的好时机。
 

@@ -1,6 +1,6 @@
 # 为什么你的 iOS Vaping 应用突然消失了
 
-> 原文:[https://life hacker . com/why-your-IOs-vaping-app-突然消失-1839894951](https://lifehacker.com/why-your-ios-vaping-app-suddenly-disappeared-1839894951)
+> 原文：<https://lifehacker.com/why-your-ios-vaping-app-suddenly-disappeared-1839894951>
 
 根据 [新的应用商店指南](https://developer.apple.com/app-store/review/guidelines/#safety) ，苹果从平台上移除了 181 个 vape 相关应用，并彻底禁止在其应用市场中包含任何 vape 相关应用或功能。对苹果公司来说，这似乎是一个突然的举动，但几个月来，苹果公司一直在慢慢走向这一不可避免的禁令——很容易看出为什么。
 

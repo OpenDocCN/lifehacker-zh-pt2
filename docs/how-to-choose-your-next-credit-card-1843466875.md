@@ -1,6 +1,6 @@
 # 如何选择你的下一张信用卡
 
-> 原文:[https://life hacker . com/how-to-choose-your next-信用卡-1843466875](https://lifehacker.com/how-to-choose-your-next-credit-card-1843466875)
+> 原文：<https://lifehacker.com/how-to-choose-your-next-credit-card-1843466875>
 
 我有一些信用卡，我出于不同的原因保存着它们。一个是我最喜欢的航空公司用的，一个是我用来积累旅行积分的，一个是我在大学里得到的，主要是出于情感原因而保留的...这样的例子不胜枚举。
 

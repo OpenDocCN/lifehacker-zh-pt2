@@ -1,6 +1,6 @@
 # 中国烹饪四大必备书籍
 
-> 原文:[https://the take out . com/essential-cookbooks-Chinese-cooking-1832102493](https://thetakeout.com/essential-cookbooks-chinese-cooking-1832102493)
+> 原文：<https://thetakeout.com/essential-cookbooks-chinese-cooking-1832102493>
 
 就像外卖网站上的许多故事一样，这个想法的起源来自 Twitter 网站。蒂娜·安托里尼是优秀的 [弹出式杂志](https://www.popupmagazine.com/) 的高级故事制作人，上个月她正在征集关于中国烹饪书的建议。作为一个在食品媒体工作的中国人，他会拿起他遇到的每一本中国烹饪书，我附和道。我脱口而出三个:
 

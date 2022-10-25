@@ -1,6 +1,6 @@
 # 如何不被你的项目车拥有
 
-> 原文:[https://jalopnik . com/how-to-not-get-own-by-your-project-car-1834281628](https://jalopnik.com/how-to-not-get-owned-by-your-project-car-1834281628)
+> 原文：<https://jalopnik.com/how-to-not-get-owned-by-your-project-car-1834281628>
 
 最后一根稻草——我的意思是，在我心中有几根“最后一根稻草”,但这是最后一根，最后一根稻草——是一名港务局警察把我的车踢出隧道。
 

@@ -1,6 +1,6 @@
 # 问那个有咸味的女服务员:杯子里的酒是敲竹杠吗？
 
-> 原文:[https://the take out . com/is-wine-by-the-glass-a-rip-off-1837986444](https://thetakeout.com/is-wine-by-the-glass-a-rip-off-1837986444)
+> 原文：<https://thetakeout.com/is-wine-by-the-glass-a-rip-off-1837986444>
 
 > 嘿咸，我有这个无所不知的妹夫，他必须是这个房间里最聪明，最逆向思维的家伙。最近，我和他以及我可爱的妹妹在一家高级餐厅吃饭，他开始教训我不应该点一杯酒，因为一杯一杯的酒总是敲竹杠。他谈了大约 10 分钟，关于餐馆如何总是提高葡萄酒的价格，如果我聪明的话，我会点一瓶酒或者点一杯鸡尾酒。
 > 

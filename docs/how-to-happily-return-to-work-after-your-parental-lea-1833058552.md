@@ -1,6 +1,6 @@
 # 产假结束后，如何(愉快地)重返工作岗位
 
-> 原文:[https://life hacker . com/how-to-happy-back-to-work after-your-parental-lea-1833058552](https://lifehacker.com/how-to-happily-return-to-work-after-your-parental-lea-1833058552)
+> 原文：<https://lifehacker.com/how-to-happily-return-to-work-after-your-parental-lea-1833058552>
 
 在家里和我刚出生的儿子马克斯度过了几个美妙而疲惫的月之后，我回来了，对着太阳(或者更确切地说，是我的 LED 台灯)眨着眼睛，试图完成重返工作的过渡。太不和谐了。我什么时候挤奶？我如何弥补我错过的一切？在与一个只会放屁和咯咯笑的小生命相处了这么多天之后，我该如何与人相处呢？
 

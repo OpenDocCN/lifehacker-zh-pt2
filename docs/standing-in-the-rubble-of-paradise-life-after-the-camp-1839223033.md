@@ -1,6 +1,6 @@
 # 站在天堂的废墟中:一年后的生活
 
-> 原文:[https://gizmodo . com/standing-in-the-craft-of-paradise-life-after-the-camp-1839223033](https://gizmodo.com/standing-in-the-rubble-of-paradise-life-after-the-camp-1839223033)
+> 原文：<https://gizmodo.com/standing-in-the-rubble-of-paradise-life-after-the-camp-1839223033>
 
 对于生活在加州天堂及其周围的 36，000 人来说， [营火是一个决定性的时刻](https://earther.gizmodo.com/what-happens-after-an-entire-town-burns-to-the-ground-1830441990) ，它将生命分成了前一段和后一段。
 

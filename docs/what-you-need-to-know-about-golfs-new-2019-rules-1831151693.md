@@ -1,6 +1,6 @@
 # 关于高尔夫 2019 年的新规则，你需要知道什么
 
-> 原文:[https://life hacker . com/what-you-need-to-know-about-golfs-new-2019-rules-1831151693](https://lifehacker.com/what-you-need-to-know-about-golfs-new-2019-rules-1831151693)
+> 原文：<https://lifehacker.com/what-you-need-to-know-about-golfs-new-2019-rules-1831151693>
 
 2019 年将带来许多变化，包括高尔夫运动的一些重大变化。
 

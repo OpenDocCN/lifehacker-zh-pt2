@@ -1,6 +1,6 @@
 # 你要死了吗？！美国东部时间下午 1 点，问两位医生你最棘手的健康问题
 
-> 原文:[https://life hacker . com/are-you-dye-ask-two-doctors-your-trickiest-health-q-1837986211](https://lifehacker.com/are-you-dying-ask-two-doctors-your-trickiest-health-q-1837986211)
+> 原文：<https://lifehacker.com/are-you-dying-ask-two-doctors-your-trickiest-health-q-1837986211>
 
 听着，我们明白。你很忙。你已经有一段时间感到身体一侧奇怪的疼痛，或者你可能对自己的血压有疑问——但你只是没有时间去看医生。你肯定还是应该这样做，但是如果你同时需要一点帮助，为什么不在 Lifehacker dot com 上向一些医生寻求建议呢？
 

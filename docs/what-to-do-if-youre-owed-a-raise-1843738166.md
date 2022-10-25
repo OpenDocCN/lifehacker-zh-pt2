@@ -1,6 +1,6 @@
 # 如果你被要求加薪，该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-you-own-a-raise-1843738166](https://lifehacker.com/what-to-do-if-youre-owed-a-raise-1843738166)
+> 原文：<https://lifehacker.com/what-to-do-if-youre-owed-a-raise-1843738166>
 
 自从冠状病毒封锁开始以来，我们这些有幸保住工作的人一直在投入大量时间和精力工作。我们一直在学习新的技能，包括用变焦开会的艺术；我们还帮助我们的公司在不确定性和焦虑加剧的时期保持高效。
 

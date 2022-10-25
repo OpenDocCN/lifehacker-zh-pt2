@@ -1,6 +1,6 @@
 # 如何充分利用你的时间表
 
-> 原文:[https://life hacker . com/how-to-get-the-most-out-of-your-schedule-1845054322](https://lifehacker.com/how-to-get-the-most-out-of-your-schedule-1845054322)
+> 原文：<https://lifehacker.com/how-to-get-the-most-out-of-your-schedule-1845054322>
 
 你一天的结构可能已经发生了巨大的变化。虽然你可能不再通勤，但仍然有办法规划你的一天，以获得最佳的工作效率。
 

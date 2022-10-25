@@ -1,6 +1,6 @@
 # 苹果的“即时笔记”是你 iPhone 或 iPad 上的必备软件
 
-> 原文:[https://life hacker . com/apple-instant-notes-is-a-must-have-on-your-iphone-or-I-1841934940](https://lifehacker.com/apples-instant-notes-is-a-must-have-on-your-iphone-or-i-1841934940)
+> 原文：<https://lifehacker.com/apples-instant-notes-is-a-must-have-on-your-iphone-or-i-1841934940>
 
 我很不擅长记笔记，只是因为我没有那种花哨的三星智能手机，可以让你直接在锁屏上画出你的想法。相反，我不得不对着数字助理大喊——这有时是正确的——或者我不得不认证我的手机，打开我的笔记应用程序，开始一个新的笔记，输入我的想法，确保笔记正确保存，等等。这是一个过程，但通过启用 iOS 的“即时笔记”功能，这个过程可以变得简单一点。
 

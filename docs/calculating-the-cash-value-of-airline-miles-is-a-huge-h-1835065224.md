@@ -1,6 +1,6 @@
 # 请不要计算航空里程的现金价值
 
-> 原文:[https://life hacker . com/calculating-the-cash-value-of-airline-miles is-a-give-h-1835065224](https://lifehacker.com/calculating-the-cash-value-of-airline-miles-is-a-huge-h-1835065224)
+> 原文：<https://lifehacker.com/calculating-the-cash-value-of-airline-miles-is-a-huge-h-1835065224>
 
 上周我写了关于最佳奖励信用卡的文章，评论者[millennial Harley](https://twocents.lifehacker.com/1835)问了这个问题:
 

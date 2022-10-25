@@ -1,6 +1,6 @@
 # 2019 年 9 月 9 日这一周，网飞有哪些活动
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of-septemb-1837452718](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-septemb-1837452718)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-septemb-1837452718>
 
 我全力以赴观看网飞原创电影《I-Land 》( T1 )(周四)，这部电影显然试图回答这样一个问题:“如果你去了 Fyre Festival，却从未离开，会怎么样？”凯特·波茨沃斯(或者是“博-沃斯”)出演了 10 个被困在孤岛上的人之一，他们必须忍受考验，实现自我实现，或者遭受...可怕的事情，我猜是死亡。貌似*输了*遇上*饥饿游戏*。让我们都看这个，然后回来报告。
 

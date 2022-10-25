@@ -1,6 +1,6 @@
 # 如果你在一次工作面试后被吓到了，该怎么办
 
-> 原文:[https://life hacker . com/1836491956](https://lifehacker.com/what-to-do-if-youre-ghosted-after-a-job-interview-1836491956)
+> 原文：<https://lifehacker.com/what-to-do-if-youre-ghosted-after-a-job-interview-1836491956>
 
 被朋友或浪漫的伴侣跟踪是一种痛苦的拒绝。(是你做的事吗？你说了什么？他们以前很喜欢你！为什么他们不再喜欢你了？)但是，被一家你面试过的公司在职业上代笔，感觉就像是它自己的一把特殊匕首刺进了你的心脏——尤其是如果你已经参加了多次面试*和*而且你已经完成了他们要求你做的任何测试/免费劳动。
 

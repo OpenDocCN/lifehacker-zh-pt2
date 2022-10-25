@@ -1,6 +1,6 @@
 # 为什么蓝牙 5.1 会让你更容易找到丢失的车钥匙
 
-> 原文:[https://life hacker . com/why-bluetooth-5-1-will-make-it-easy-to-find your-miss-1832234887](https://lifehacker.com/why-bluetooth-5-1-will-make-it-easier-to-find-your-miss-1832234887)
+> 原文：<https://lifehacker.com/why-bluetooth-5-1-will-make-it-easier-to-find-your-miss-1832234887>
 
 开发者现在可以开始玩下一代蓝牙了——这种方便的小技术可以让你将音乐传输到附近的设备，或者在没有电缆连接你的智能手机的情况下进行跑步。虽然蓝牙 5.1 进入手机、笔记本电脑和其他设备还需要一段时间，但蓝牙特别兴趣小组(SIG) [最近发布了](https://www.bluetooth.com/bluetooth-resources/core-51?utm_campaign=location-services&utm_source=homepage&utm_medium=featured-resource&utm_content=core51-feature) 对蓝牙 5.1 的一些主要特性的分析，你现在就可以开始兴奋了。
 

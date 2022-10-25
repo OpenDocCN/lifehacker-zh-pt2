@@ -1,6 +1,6 @@
 # 有一种更准确的方法来计算狗的年龄
 
-> 原文:[https://life hacker . com/theres-a-more-accurate-way-to-calculate-dog-years-1840876692](https://lifehacker.com/theres-a-more-accurate-way-to-calculate-dog-years-1840876692)
+> 原文：<https://lifehacker.com/theres-a-more-accurate-way-to-calculate-dog-years-1840876692>
 
 如果你曾经将你的小狗的年龄乘以 7，以获得他们实际年龄的一些观点，你可能已经注意到这个公式有它的缺陷。一个 [新计算](https://theconversation.com/are-dog-years-for-real-an-explanation-of-calculating-canine-age-127655) 有点难记，但给出的答案可能更准确。
 

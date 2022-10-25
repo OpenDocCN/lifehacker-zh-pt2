@@ -1,6 +1,6 @@
 # 如果您的旧 LiveJournal 密码被泄露，该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-if-your-old-live journal-password-is-leaved-1843708718](https://lifehacker.com/what-to-do-if-your-old-livejournal-password-was-leaked-1843708718)
+> 原文：<https://lifehacker.com/what-to-do-if-your-old-livejournal-password-was-leaked-1843708718>
 
 我喜欢收到来自 Firefox Monitor 的电子邮件，告诉我我的电子邮件被发现存在全新的数据漏洞。雪上加霜的是，这是一封我十年没用过的电子邮件。这种情况的三重含义是当服务是 live journal——你知道，在 Tumblr 很酷之前，每个人都在这个地方写博客。
 

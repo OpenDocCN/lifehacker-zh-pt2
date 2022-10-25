@@ -1,6 +1,6 @@
 # 彪马重新发布了它 32 岁的智能鞋，领先于它的时代
 
-> 原文:[https://gizmodo . com/puma-is-re-release-its-32 岁的智能鞋那瓦-1831008821](https://gizmodo.com/puma-is-re-releasing-its-32-year-old-smart-shoe-that-wa-1831008821)
+> 原文：<https://gizmodo.com/puma-is-re-releasing-its-32-year-old-smart-shoe-that-wa-1831008821>
 
 今天的智能互联可穿戴设备的概念在 20 世纪 80 年代还不存在，当时 MS-DOS 等纯文本操作系统还很流行。但这并没有阻止彪马发布可能是世界上第一个现代健身追踪器，它将一台笨重的电脑绑在运动鞋的后面。32 年后，彪马用同样的设计带回了这些踢腿，但里面有更新的技术。
 

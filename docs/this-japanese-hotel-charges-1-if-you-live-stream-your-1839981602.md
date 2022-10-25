@@ -1,6 +1,6 @@
 # 这家日本酒店收费 1 美元——如果你实时直播你的住宿
 
-> 原文:[https://life hacker . com/this-Japanese-hotel-charges-1-if-you-live-stream-your-1839981602](https://lifehacker.com/this-japanese-hotel-charges-1-if-you-live-stream-your-1839981602)
+> 原文：<https://lifehacker.com/this-japanese-hotel-charges-1-if-you-live-stream-your-1839981602>
 
 去年，我们写过一个令人困扰的问题，Airbnb 出租的 [带有隐藏摄像头](https://lifehacker.com/how-to-find-hidden-cameras-in-your-airbnb-1829779293) ，监视客人。(回到[4 月](https://www.cnn.com/2019/04/05/europe/ireland-airbnb-hidden-camera-scli-intl/index.html) ，一个家庭甚至发现了一个隐藏的摄像头，对他们在爱尔兰 Airbnb 的住宿进行直播。)但在我们最新一期的 [Hack or Wack](https://lifehacker.com/c/hack-or-wack) 中，我们提出了另一个重要的相关问题:如果*知道*你会在 YouTube 上直播你的整个住宿过程，你会愿意预订一家便宜的酒店或 Airbnb 吗？
 

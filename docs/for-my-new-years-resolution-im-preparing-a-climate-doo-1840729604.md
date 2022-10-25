@@ -1,6 +1,6 @@
 # 对于我的新年决心，我正在准备一个气候末日工具包
 
-> 原文:[https://gizmodo . com/for-my-new-years-resolution-im-preparing-a-climate-doo-1840729604](https://gizmodo.com/for-my-new-years-resolution-im-preparing-a-climate-doo-1840729604)
+> 原文：<https://gizmodo.com/for-my-new-years-resolution-im-preparing-a-climate-doo-1840729604>
 
 我花了很多时间思考即将到来的气候末日。我是说，拜托，我靠写这个为生。然而，有了这种对人类将走向何方的清晰认识，如果我们不振作起来，就会产生许多恐惧和焦虑。我该如何处理这种感觉？为什么，当然是计划和准备。
 

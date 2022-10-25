@@ -1,6 +1,6 @@
 # 如何将你的谷歌日历添加到苹果的日历应用程序中(反之亦然)
 
-> 原文:[https://life hacker . com/how-to-add-your-Google-calendar-to-apple-calendar-app-1844498638](https://lifehacker.com/how-to-add-your-google-calendar-to-apples-calendar-app-1844498638)
+> 原文：<https://lifehacker.com/how-to-add-your-google-calendar-to-apples-calendar-app-1844498638>
 
 如果你生活在多种服务和电脑之间——例如，使用谷歌的数字工具套件和苹果的各种基于 iCloud 的产品——你能为自己做的最好的事情就是将你的所有世界融合在一起。为了延续这个例子，你将能够在谷歌日历中看到你的 iCloud 日历，或者导入你的谷歌日历以便在苹果的各种日历应用中查看。
 

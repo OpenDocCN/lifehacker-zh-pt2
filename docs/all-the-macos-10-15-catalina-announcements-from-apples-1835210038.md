@@ -1,6 +1,6 @@
 # 苹果 WWDC 2019 主题演讲中的所有 MacOS 10.15 Catalina 公告
 
-> 原文:[https://life hacker . com/all-the-MAC OS-10-15-catalina-announcements-from-apple-1835210038](https://lifehacker.com/all-the-macos-10-15-catalina-announcements-from-apples-1835210038)
+> 原文：<https://lifehacker.com/all-the-macos-10-15-catalina-announcements-from-apples-1835210038>
 
 苹果 WWDC 发布会最后详细概述了即将发布的 macOS 更新，现在官方名称为“Catalina”让我们回顾一下在 WWDC 宣布的所有新功能，这些功能将成为 macOS 10.15 Catalina 的一部分，当它 [在 f all，2019](https://www.apple.com/newsroom/2019/06/apple-previews-macos-catalina/) 发布时。
 

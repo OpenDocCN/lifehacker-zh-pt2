@@ -1,6 +1,6 @@
 # 后疫情时代，你认为航空公司应该如何改变
 
-> 原文:[https://life hacker . com/how-you-think-airlines-should-change-post-疫情-1843006773](https://lifehacker.com/how-you-think-airlines-should-change-post-pandemic-1843006773)
+> 原文：<https://lifehacker.com/how-you-think-airlines-should-change-post-pandemic-1843006773>
 
 本周初，我们问你，一旦疫情结束，生活恢复正常，你认为航空公司应该做出什么改变。我们收到了 60 多条评论，其中很多人指出航空公司*不太可能会*改变(至少是变得更好)。这可能是真的，但是嘿，我们正努力保持乐观。因此，让我们来看看您认为我们可以如何改善旅行体验——无论是关于健康和安全、舒适度还是效率。
 

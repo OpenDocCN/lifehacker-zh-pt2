@@ -1,6 +1,6 @@
 # 在美味的南瓜圈里煎鸡蛋
 
-> 原文:[https://life hacker . com/fry-eggs-in-delicata-squash-rings-1831845920](https://lifehacker.com/fry-eggs-in-delicata-squash-rings-1831845920)
+> 原文：<https://lifehacker.com/fry-eggs-in-delicata-squash-rings-1831845920>
 
 我喜欢“在一个洞里”烹饪鸡蛋的风格，无论是在一片简单的白面包，烤奶酪三明治，甚至是甜椒上的洞。(这个家庭中我唯一讨厌的成员是一个用鳄梨煮熟的鸡蛋；不是所有的洞都应该被填满。)我的新宠是 delicata 南瓜，特别是在棕色黄油中煎炸，直到整个变软，边缘变成焦糖。
 

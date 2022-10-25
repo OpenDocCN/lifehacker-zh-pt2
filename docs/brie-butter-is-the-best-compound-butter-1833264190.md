@@ -1,6 +1,6 @@
 # 布里黄油是最好的复合黄油
 
-> 原文:[https://life hacker . com/brie-butter-is-the-best-compound-butter-1833264190](https://lifehacker.com/brie-butter-is-the-best-compound-butter-1833264190)
+> 原文：<https://lifehacker.com/brie-butter-is-the-best-compound-butter-1833264190>
 
 你知道《双峰镇》里杰瑞·霍恩进来大谈布里干酪和黄油三明治的那场戏吗？这就是昨晚的我，除了我对复合黄油赞不绝口，我还在和我的猫说话。
 

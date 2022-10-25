@@ -1,6 +1,6 @@
 # 我希望你在挤玉米棒子
 
-> 原文:[https://life hacker . com/I-hope-you-be-milking-you-corn-cobs-1844854804](https://lifehacker.com/i-hope-you-are-milking-your-corn-cobs-1844854804)
+> 原文：<https://lifehacker.com/i-hope-you-are-milking-your-corn-cobs-1844854804>
 
 夏天即将结束，这意味着“克莱尔谈论玉米季节”也即将出门，走向日落(但只持续一个日历年)。但是，在那之前，玉米仍然是丰富和甜蜜的，我会继续吃它，烹饪它，并与你分享我脑海中出现的所有最美好的想法。
 

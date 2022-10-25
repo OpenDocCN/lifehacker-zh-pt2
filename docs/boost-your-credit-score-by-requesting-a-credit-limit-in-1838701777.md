@@ -1,6 +1,6 @@
 # 通过请求增加信用额度来提高你的信用评分
 
-> 原文:[https://life hacker . com/boost-your-credit-score-by-request-a-credit-limit-in-1838701777](https://lifehacker.com/boost-your-credit-score-by-requesting-a-credit-limit-in-1838701777)
+> 原文：<https://lifehacker.com/boost-your-credit-score-by-requesting-a-credit-limit-in-1838701777>
 
 如果你想提高你的信用评分，你需要按时支付所有的债务，保持信用卡的低余额，并等待所有良好的信用记录随着时间的推移慢慢提高你的分数。正确
 

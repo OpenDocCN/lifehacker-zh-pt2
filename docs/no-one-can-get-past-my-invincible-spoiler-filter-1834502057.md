@@ -1,6 +1,6 @@
 # 如何永远避免剧透一切
 
-> 原文:[https://kotaku . com/no-one-can-get-past-my-无敌-spoiler-filter-1834502057](https://kotaku.com/no-one-can-get-past-my-invincible-spoiler-filter-1834502057)
+> 原文：<https://kotaku.com/no-one-can-get-past-my-invincible-spoiler-filter-1834502057>
 
 我是个超级剧透宝贝。对我来说，预告片就是剧透。关于预告片的对话是剧透。海报是剧透。演员名单是剧透。我讨厌看任何变质的东西。此外，我喜欢避免剧透的智力挑战。在这段视频中，我将向你透露我的 15 个最佳避免剧透的秘密。虽然不言而喻，但我还是要说:这个视频不包含任何剧透。
 

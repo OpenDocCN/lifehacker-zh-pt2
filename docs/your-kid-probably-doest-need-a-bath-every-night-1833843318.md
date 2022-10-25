@@ -1,6 +1,6 @@
 # 事实上，如果你的孩子不经常洗澡也没关系
 
-> 原文:[https://life hacker . com/your-kid-possible-not-need-a-bath-every night-1833843318](https://lifehacker.com/your-kid-probably-doest-need-a-bath-every-night-1833843318)
+> 原文：<https://lifehacker.com/your-kid-probably-doest-need-a-bath-every-night-1833843318>
 
 阿什顿·库彻和米拉·库妮丝昨天发布了一条新闻，引起了轰动，这条新闻说他们家根本没有泼水。也就是说，他们——以及他们的孩子——不经常洗澡。他们在 [上解释了扶手椅专家播客](https://armchairexpertpod.com/pods/mila-kunis-ashton-kutcher)[正如 CNN 报道的](https://www.cnn.com/2021/07/27/entertainment/ashton-kutcher-mila-kunis-bathing/index.html) :
 

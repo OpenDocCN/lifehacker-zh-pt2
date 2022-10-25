@@ -1,6 +1,6 @@
 # 为节日享受节日母狗马提尼
 
-> 原文:[https://life hacker . com/enjoy-a-festive-birch-martini-for-the-holidays-1831263265](https://lifehacker.com/enjoy-a-festive-birch-martini-for-the-holidays-1831263265)
+> 原文：<https://lifehacker.com/enjoy-a-festive-birch-martini-for-the-holidays-1831263265>
 
 各位周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周，我们制作了一款冬季马提尼，灵感来自于极其美丽的白桦树。
 

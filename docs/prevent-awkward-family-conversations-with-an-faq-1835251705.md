@@ -1,6 +1,6 @@
 # 用 FAQ 防止尴尬的家庭对话
 
-> 原文:[https://life hacker . com/prevent-jumbly-family-conversations-with-an-FAQ-1835251705](https://lifehacker.com/prevent-awkward-family-conversations-with-an-faq-1835251705)
+> 原文：<https://lifehacker.com/prevent-awkward-family-conversations-with-an-faq-1835251705>
 
 不管你是每周 [见你的家人](https://lifehacker.com/top-10-ways-to-survive-going-home-for-the-holidays-5961297) 一次还是一年一次，他们似乎都有一种诀窍，可以询问关于 [你不想讨论的话题](https://lifehacker.com/how-to-give-someone-really-really-bad-news-1832908009) 。如果你不得不参加有多个大家庭成员参加的聚会，比如感恩节或毕业派对，你可能会发现自己不得不一遍又一遍地重复同样的故事和更新。
 

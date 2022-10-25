@@ -1,6 +1,6 @@
 # 如何在你的播客应用程序中设置睡眠定时器，这样你就不会在打瞌睡后忘记位置
 
-> 原文:[https://life hacker . com/how-to-set-a-sleep-timer-in-you-podcast-app-so-you-don-1836856244](https://lifehacker.com/how-to-set-a-sleep-timer-in-your-podcast-app-so-you-don-1836856244)
+> 原文：<https://lifehacker.com/how-to-set-a-sleep-timer-in-your-podcast-app-so-you-don-1836856244>
 
 听着播客入睡已经变成了睡前喝杯热牛奶的怪癖。事实上，它是如此受欢迎，以至于有一种 [的播客类型](https://lifehacker.com/the-best-podcasts-for-falling-asleep-1830255561) 致力于枯燥的话题和温和的对话来帮助你入睡。这也是一个可怕的第 22 条军规:睡前播放你最喜欢的播客，醒来后你可能不得不去寻找你记得听到的最后一个地方。如果你不小心的话，你甚至可能会在播放完所有积压的节目时睡着。
 

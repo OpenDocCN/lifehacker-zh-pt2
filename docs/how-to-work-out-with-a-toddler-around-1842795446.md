@@ -1,6 +1,6 @@
 # 如何在蹒跚学步的孩子身边锻炼
 
-> 原文:[https://life hacker . com/how-to-work out with a-leaddle-around-1842795446](https://lifehacker.com/how-to-work-out-with-a-toddler-around-1842795446)
+> 原文：<https://lifehacker.com/how-to-work-out-with-a-toddler-around-1842795446>
 
 保持活跃对你的健康和心理健康很重要。我们都知道这一点，然而在疯狂地争夺在家工作和照顾孩子之间的平衡时，更不用说在疫情度过的所有存在的担忧了，健身是那些容易放弃的习惯之一。如果你正在照顾一个蹒跚学步的孩子，这一点更是如此。
 

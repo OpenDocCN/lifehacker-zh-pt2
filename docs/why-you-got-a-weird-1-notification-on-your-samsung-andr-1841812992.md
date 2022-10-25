@@ -1,6 +1,6 @@
 # 为什么你的三星安卓手机会收到奇怪的“1”通知
 
-> 原文:[https://life hacker . com/why-you-get-a-odd-1-notification-on-your-Samsung-andr-1841812992](https://lifehacker.com/why-you-got-a-weird-1-notification-on-your-samsung-andr-1841812992)
+> 原文：<https://lifehacker.com/why-you-got-a-weird-1-notification-on-your-samsung-andr-1841812992>
 
 昨晚你的三星手机收到奇怪的通知了吗？你并不孤单。在一些三星手机收到“查找我的手机”推送通知后，过去一天，关于神秘通知的报道一直在互联网上流传，该通知只说了“1”，没有任何解释。
 

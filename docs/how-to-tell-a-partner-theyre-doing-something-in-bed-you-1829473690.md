@@ -1,6 +1,6 @@
 # 如何告诉伴侣他们在床上做你不喜欢的事情
 
-> 原文:[https://life hacker . com/how-to-tell-a-partner-they-doing-something-in-bed-you-1829473690](https://lifehacker.com/how-to-tell-a-partner-theyre-doing-something-in-bed-you-1829473690)
+> 原文：<https://lifehacker.com/how-to-tell-a-partner-theyre-doing-something-in-bed-you-1829473690>
 
 你还记得克里斯汀·韦格饰演的安妮被乔恩·哈姆的泰德抚摸的伴娘场景吗？他揉捏着她的乳房，就像揉捏面团一样，试图证明他是一个比她虚构的勾搭伙伴乔治格拉斯更好的情人。很明显安妮无时无刻不在憎恨。然而，她什么也没说。
 

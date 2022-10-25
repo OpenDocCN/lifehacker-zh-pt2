@@ -1,6 +1,6 @@
 # 购买新的 Chromebook，免费获得 3 个月的 Disney+
 
-> 原文:[https://life hacker . com/get-3-免费使用新 chromebook-purc-1840052357](https://lifehacker.com/get-3-free-months-of-disney-with-a-new-chromebook-purc-1840052357)
+> 原文：<https://lifehacker.com/get-3-free-months-of-disney-with-a-new-chromebook-purc-1840052357>
 
 对于那些在这个假期购买或收到新 Chromebook 的人来说，这里有一个不错的奖励:谷歌和迪士尼将向在 2020 年 11 月 25 日至 1 月 31 日期间激活新 Chromebook 的客户赠送三个月的免费 Disney+。
 

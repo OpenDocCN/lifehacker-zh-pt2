@@ -1,6 +1,6 @@
 # 烧烤痕迹是愚蠢的
 
-> 原文:[https://lifehacker.com/grill-marks-are-dumb-1836598757](https://lifehacker.com/grill-marks-are-dumb-1836598757)
+> 原文：<https://lifehacker.com/grill-marks-are-dumb-1836598757>
 
 排骨和牛排上金棕色的平行条纹可能会让人惊呼“夏季烹饪”，但烧烤痕迹——事实上——非常愚蠢。我这样说不是因为我的公寓居住方式让我缺少烧烤部门；我这么说是因为 [Meathead Goldwyn](https://amazingribs.com/about-us/meet-meathead) (无可争议的烧烤王)告诉我的，也因为它让*有意义*。
 

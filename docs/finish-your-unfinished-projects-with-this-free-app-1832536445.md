@@ -1,6 +1,6 @@
 # 用这个免费的应用程序完成你未完成的项目
 
-> 原文:[https://life hacker . com/finish-your-unfinished-projects-with this-free-app-1832536445](https://lifehacker.com/finish-your-unfinished-projects-with-this-free-app-1832536445)
+> 原文：<https://lifehacker.com/finish-your-unfinished-projects-with-this-free-app-1832536445>
 
 任务管理应用都很好，但有时你需要比简单的(数字)待办事项清单更多的组织能力。我最近一直在玩 Nozbe，我很喜欢这个应用程序如何轻松地跟踪你在任何时候杂耍的许多项目中需要做的一切。
 

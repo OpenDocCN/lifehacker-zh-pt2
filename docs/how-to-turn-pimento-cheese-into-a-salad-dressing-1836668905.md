@@ -1,6 +1,6 @@
 # 如何把甜椒奶酪变成沙拉酱
 
-> 原文:[https://life hacker . com/how-to-turn-pimento-cheese-to-a-salad-dressing-1836668905](https://lifehacker.com/how-to-turn-pimento-cheese-into-a-salad-dressing-1836668905)
+> 原文：<https://lifehacker.com/how-to-turn-pimento-cheese-into-a-salad-dressing-1836668905>
 
 在网上写作多年，很酷的一点是，我的大部分想法和想法都有一个运行记录。有些是好的，有些是坏的，有些是 [太先进了在他们那个时代](https://skillet.lifehacker.com/how-to-keep-your-egg-from-rolling-away-1835877930) 不被欣赏。
 

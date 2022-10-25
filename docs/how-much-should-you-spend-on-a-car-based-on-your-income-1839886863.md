@@ -1,6 +1,6 @@
 # 根据你的收入，你应该花多少钱买车？
 
-> 原文:[https://jalopnik . com/how-number-you ' s spend-on your income-1839886863](https://jalopnik.com/how-much-should-you-spend-on-a-car-based-on-your-income-1839886863)
+> 原文：<https://jalopnik.com/how-much-should-you-spend-on-a-car-based-on-your-income-1839886863>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。我决定挑几个问题，试着帮帮大家。本周，我们将讨论如何根据你收入的百分比为汽车做预算，为高个子设计小型 SUV，以及为一辆老款讴歌购买延长保修。
 

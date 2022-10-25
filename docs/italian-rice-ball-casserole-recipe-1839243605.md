@@ -1,6 +1,6 @@
 # 砂锅饭让你在工作日吃得更好
 
-> 原文:[https://the take out . com/Italian-饭团-砂锅-食谱-1839243605](https://thetakeout.com/italian-rice-ball-casserole-recipe-1839243605)
+> 原文：<https://thetakeout.com/italian-rice-ball-casserole-recipe-1839243605>
 
 有些食物围绕着你的整个生活，以至于你认为它们是理所当然的。我以为每个人都知道饭团是什么，我还以为无论我去哪里都可以买到。也许它们不会像来自 U 大道 的 [乔氏餐厅——一家位于布鲁克林格雷夫森德深处的西西里餐馆——那么好，但它们至少还会存在。没有。自从搬出纽约市后，我能找到和我从小到大吃的一样(有时甚至更好)的披萨和百吉饼，但是那些饭团呢？Fuggedaboudit。](https://www.facebook.com/pages/category/Italian-Restaurant/Joes-Of-Avenue-U-115168725182994/) 
 

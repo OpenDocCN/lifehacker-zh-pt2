@@ -1,6 +1,6 @@
 # 在 Lyft 应用程序中为你从不记得的地址设置“自定义快捷方式”
 
-> 原文:[https://life hacker . com/set-custom-shortcut s-in-the-lyft-app-for-addresses-you-1840447283](https://lifehacker.com/set-custom-shortcuts-in-the-lyft-app-for-addresses-you-1840447283)
+> 原文：<https://lifehacker.com/set-custom-shortcuts-in-the-lyft-app-for-addresses-you-1840447283>
 
 在过去的几个月里，我不得不去镇上几个不同的医生那里预约。我住在旧金山，没有车，所以去那些约会总是意味着付钱给他们。毫无疑问，在他们每一个人之前，我都准备出门，然后意识到我实际上不知道我要去哪里。
 

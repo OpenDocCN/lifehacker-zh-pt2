@@ -1,6 +1,6 @@
 # 如何在成年后不那么害怕牙医
 
-> 原文:[https://life hacker . com/how-to-less-dis 畏 the-dentist-as a-adult-1833981314](https://lifehacker.com/how-to-be-less-afraid-of-the-dentist-as-an-adult-1833981314)
+> 原文：<https://lifehacker.com/how-to-be-less-afraid-of-the-dentist-as-an-adult-1833981314>
 
 没有人喜欢去看牙医。好吧，好吧，那不是真的。至少有一个不愿透露姓名的人(Lifehacker 执行主编弗吉尼亚·史密斯)说，她很享受这种体验。
 

@@ -1,6 +1,6 @@
 # 如何使用指纹登录网站？
 
-> 原文:[https://life hacker . com/how-can-I-use-a-fingerprint-to-log-into-websites-1832025199](https://lifehacker.com/how-can-i-use-a-fingerprint-to-log-into-websites-1832025199)
+> 原文：<https://lifehacker.com/how-can-i-use-a-fingerprint-to-log-into-websites-1832025199>
 
 当我们在 Lifehacker 结束唤醒周的时候，我希望你和我一样，期待着慷慨的 [**Tech 911**](https://lifehacker.com/c/tech-911) 本周每周五上午，我们将讨论一个我已经好奇了一段时间的问题——并不是说我对你的问题不好奇，但这个话题在我的脑海中萦绕了一会儿，因为我很懒，我
 

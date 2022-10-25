@@ -1,6 +1,6 @@
 # 宠物保险值得吗？
 
-> 原文:[https://lifehacker.com/is-pet-insurance-worth-it-5864155](https://lifehacker.com/is-pet-insurance-worth-it-5864155)
+> 原文：<https://lifehacker.com/is-pet-insurance-worth-it-5864155>
 
 所以你领养了一只狗(或猫或鸟)。你已经有了食物、床和玩具，现在你想知道宠物保险是否是一项好的投资。如果你的新伙伴生病或受伤了怎么办？宠物保险能帮助拯救他们的生命，保护你的钱包吗？
 

@@ -1,6 +1,6 @@
 # 在 2019 年朝着这些高级姿势努力
 
-> 原文:[https://life hacker . com/work-forward-these-advanced-poses-in-2019-1831263018](https://lifehacker.com/work-toward-these-advanced-poses-in-2019-1831263018)
+> 原文：<https://lifehacker.com/work-toward-these-advanced-poses-in-2019-1831263018>
 
 [瑜伽挑战赛](https://vitals.lifehacker.com/decembers-fitness-challenge-is-yoga-1830827794) 进行的怎么样了？你是否正在掌握家庭练习的窍门，或者去健身房或瑜伽馆参加课程？我们在一个月的时间里只能做这么多，你真的可以花几年的时间来达到一些更有雄心的体式。所以在一年中的这个时候，放眼未来是很棒的。
 

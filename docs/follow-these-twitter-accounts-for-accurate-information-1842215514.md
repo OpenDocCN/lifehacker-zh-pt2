@@ -1,6 +1,6 @@
 # 关注这些 Twitter 账户，获取关于冠状病毒的准确信息
 
-> 原文:[https://life hacker . com/follow-these-Twitter-accounts-for-accurate-information-1842215514](https://lifehacker.com/follow-these-twitter-accounts-for-accurate-information-1842215514)
+> 原文：<https://lifehacker.com/follow-these-twitter-accounts-for-accurate-information-1842215514>
 
 Twitter 是获取关于的最新信息的好方法。我跟踪流行病学家、病毒学家、健康记者和其他人——当我每天早上检查我的饲料时，我总能学到一些东西。但是也有很多人可能*看起来*像专家，甚至可能*认为*他们是专家，但是他们不是可靠的消息来源。幸运的是，有一些 twitter 列表可以帮助你找到合适的人。
 

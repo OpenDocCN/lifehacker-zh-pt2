@@ -1,6 +1,6 @@
 # 如何与朋友和家人设定数字界限
 
-> 原文:[https://life hacker . com/how-to-set-digital-boundaries-with-friends and-family-1841177412](https://lifehacker.com/how-to-set-digital-boundaries-with-friends-and-family-1841177412)
+> 原文：<https://lifehacker.com/how-to-set-digital-boundaries-with-friends-and-family-1841177412>
 
 界限是我们传达对一段关系的期望的方式，让别人知道我们认为可以接受或不可以接受的行为。我们一直在用小方法做这件事，比如在争论中要求一个伙伴不要大喊大叫，或者甚至只是对一个朋友说，“我不想谈这个”。但在网上设定这些界限有时会很棘手。
 

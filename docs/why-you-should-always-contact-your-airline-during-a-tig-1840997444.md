@@ -1,6 +1,6 @@
 # 为什么在航班紧张的时候你应该联系你的航空公司
 
-> 原文:[https://life hacker . com/why-you-should-always-contact-your-airline-in-a-TIG-1840997444](https://lifehacker.com/why-you-should-always-contact-your-airline-during-a-tig-1840997444)
+> 原文：<https://lifehacker.com/why-you-should-always-contact-your-airline-during-a-tig-1840997444>
 
 在 [传单论坛](https://www.flyertalk.com/forum/united-airlines-mileageplus/2004035-united-removed-my-mobile-boarding-pass-ruined-my-trip-2.html) 上，一位用户解释了为什么他们因为手机上的登机牌问题而错过了转机航班。根据他们的说法，联合航空的应用程序在乘客在安检处排队时出了故障*——未能出示任何实际登机牌的证明。“我笨手笨脚地向运输安全管理局的人咕哝，这怎么可能，”乌瓦尔 44 写道。" 10 分钟后，我就要开始我的旅程和登机了."*
 

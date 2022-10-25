@@ -1,6 +1,6 @@
 # 2019 年 9 月亚马逊 Prime 视频会有什么
 
-> 原文:[https://life hacker . com/whats-coming-to-Amazon-prime-video-in-2019-9-1837392416](https://lifehacker.com/whats-coming-to-amazon-prime-video-in-september-2019-1837392416)
+> 原文：<https://lifehacker.com/whats-coming-to-amazon-prime-video-in-september-2019-1837392416>
 
 九月为亚马逊 Prime video 带来了许多新节目，包括五部亚马逊平台独家原创系列——如半小时动画系列*第一季未完成*和*克里斯·塔尔呈现*，这是第一部由德国著名喜剧演员主演的无剧本德国亚马逊原创。
 

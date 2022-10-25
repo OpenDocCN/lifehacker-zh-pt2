@@ -1,6 +1,6 @@
 # 为什么经销商说我不能租一个旧型号，即使它是全新的？
 
-> 原文:[https://jalopnik . com/how-come-the-dealer-says-I-cant-lease-an-older-model-ev-1841382257](https://jalopnik.com/how-come-the-dealer-says-i-cant-lease-an-older-model-ev-1841382257)
+> 原文：<https://jalopnik.com/how-come-the-dealer-says-i-cant-lease-an-older-model-ev-1841382257>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。我决定挑几个问题，试着帮帮大家。本周我们将讨论新旧库存的租赁、昂贵的文件费用以及
 

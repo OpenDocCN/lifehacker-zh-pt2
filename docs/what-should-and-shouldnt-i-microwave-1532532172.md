@@ -1,6 +1,6 @@
 # 我该不该用微波炉加热什么？
 
-> 原文:[https://life hacker . com/what-should-and-should nt-I-microwave-1532532172](https://lifehacker.com/what-should-and-shouldnt-i-microwave-1532532172)
+> 原文：<https://lifehacker.com/what-should-and-shouldnt-i-microwave-1532532172>
 
 微波炉要么是厨房的救命稻草，要么是危险的辐射机器，这取决于你问的是谁。事实上，它们对某些目的来说是伟大的，但对另一些目的来说却不是。以下是如何确定哪些该用微波炉加热，哪些该跳过。
 

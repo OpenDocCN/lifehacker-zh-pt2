@@ -1,6 +1,6 @@
 # 2020 年 7 月 25 日这一周网飞有什么新消息
 
-> 原文:[https://life hacker . com/whats-new-on-the-week of July-25-2020-1844437390](https://lifehacker.com/whats-new-on-netflix-the-week-of-july-25-2020-1844437390)
+> 原文：<https://lifehacker.com/whats-new-on-netflix-the-week-of-july-25-2020-1844437390>
 
 因此，每周我都会撰写这些周一早间的帖子，重点介绍下周网飞有哪些新的和值得关注的事情。对我个人来说，这是一个有用的过程，因为它要么让我想起我一直想看的东西(迫不及待地观看迈克尔·乔丹的纪录片《最后的舞蹈》，并了解几个月前每个人都在谈论什么)，要么让我了解我从来不知道存在的东西(通常是许多从海外引进的“网飞原创”电视剧)。
 

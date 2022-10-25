@@ -1,6 +1,6 @@
 # 如何使用谷歌新的 GIF 搜索工具
 
-> 原文:[https://life hacker . com/how-to-use-Google s-new-gif-search-tools-1841977704](https://lifehacker.com/how-to-use-googles-new-gif-search-tools-1841977704)
+> 原文：<https://lifehacker.com/how-to-use-googles-new-gif-search-tools-1841977704>
 
 谷歌发布了几款新的 GIF 搜索工具，应该可以让你更容易找到你想要的动画图片。用户可以使用这些工具——使用来自 Tenor GIF 应用程序的搜索数据——更准确地缩小搜索标准，并根据他们想要的心情或背景获得建议。N o 更多的梳理不相关的图片，忙乱的搜索词汇，以找到正确的 GIF。
 

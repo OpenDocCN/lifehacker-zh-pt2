@@ -1,6 +1,6 @@
 # 讨厌推特改版？别担心，你可以恢复原状
 
-> 原文:[https://life hacker . com/hate-the-Twitter-design-dont-worry-you-can-revert-b-1834270139](https://lifehacker.com/hate-the-twitter-redesign-dont-worry-you-can-revert-b-1834270139)
+> 原文：<https://lifehacker.com/hate-the-twitter-redesign-dont-worry-you-can-revert-b-1834270139>
 
 在过去的几个月里，Twitter 已经为桌面网站推出了最新的重新设计。新的布局有一个更紧凑和精简的外观，并增加了新的功能，如图像编辑工具和书签推文标签。
 

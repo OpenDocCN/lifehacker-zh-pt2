@@ -1,6 +1,6 @@
 # 做好熏肉后，给你的锅脱釉
 
-> 原文:[https://life hacker . com/de glaze-your-pan-after-cooking-bacon-1842963600](https://lifehacker.com/deglaze-your-pan-after-cooking-bacon-1842963600)
+> 原文：<https://lifehacker.com/deglaze-your-pan-after-cooking-bacon-1842963600>
 
 烤焦后给锅去釉是烹饪牛排或猪排时显而易见的、几乎是本能的一部分，但在煎培根时却不太常见。但是像排骨和牛排一样，培根只是一块肉，去釉——也就是在少量液体的帮助下刮去所有美味的棕色部分——确保你不会在锅里留下任何味道。
 

@@ -1,6 +1,6 @@
 # 如何通过短信而不是使用 Twitter 的应用程序发推文
 
-> 原文:[https://life hacker . com/how-to-tweet-via-SMS-而不是-use-twitters-app-1837775986](https://lifehacker.com/how-to-tweet-via-sms-rather-than-using-twitters-app-1837775986)
+> 原文：<https://lifehacker.com/how-to-tweet-via-sms-rather-than-using-twitters-app-1837775986>
 
 昨天深夜有消息称，Twitter 联合创始人兼首席执行官杰克·多西的 [Twitter 账户](https://www.nytimes.com/2019/08/30/technology/jack-dorsey-twitter-account-hacked.html) 遭到泄露。周五晚上，他的账户在 20 分钟内发了大约 12 条种族主义和攻击性的推文。原因？黑客能够通过入侵 SIM 卡进入他的账户。
 

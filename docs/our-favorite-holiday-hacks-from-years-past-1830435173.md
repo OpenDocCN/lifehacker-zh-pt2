@@ -1,6 +1,6 @@
 # 过去几年我们最喜欢的假日秘诀
 
-> 原文:[https://life hacker . com/our-favorite-holiday-hacks-from-years-past-1830435173](https://lifehacker.com/our-favorite-holiday-hacks-from-years-past-1830435173)
+> 原文：<https://lifehacker.com/our-favorite-holiday-hacks-from-years-past-1830435173>
 
 当假期来临的时候(还是假期降临在我们身上？)，重温一下我们过去给过的所有顶级建议，感觉是时候进入假期黑客思维了。
 

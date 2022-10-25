@@ -1,6 +1,6 @@
 # 如果你现在在家工作很糟糕也没关系
 
-> 原文:[https://life hacker . com/its-okay-if-you-suck-on-work-from-home-now-1842498164](https://lifehacker.com/its-okay-if-you-suck-at-working-from-home-right-now-1842498164)
+> 原文：<https://lifehacker.com/its-okay-if-you-suck-at-working-from-home-right-now-1842498164>
 
 Watch
 

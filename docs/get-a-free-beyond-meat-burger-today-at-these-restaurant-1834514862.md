@@ -1,6 +1,6 @@
 # 今天就在这些餐厅获得免费的“超越肉类”汉堡
 
-> 原文:[https://life hacker . com/get-a-free-a-beyond-meat-burger-today-in-these-restaurant-1834514862](https://lifehacker.com/get-a-free-beyond-meat-burger-today-at-these-restaurant-1834514862)
+> 原文：<https://lifehacker.com/get-a-free-beyond-meat-burger-today-at-these-restaurant-1834514862>
 
 如果你还没有尝试过 Beyond Meat 的无肉汉堡，那么今天可能是尝试该公司植物汉堡的好时机。为了纪念“超越日”，该公司在全国各地的餐馆提供汉堡优惠，包括小卡尔、德尔塔科和 Epic Burger。
 

@@ -1,6 +1,6 @@
 # 当您乘坐国际航班抵达这些机场时，请进行全球入境面试
 
-> 原文:[https://life hacker . com/you-can-do-you-global-entry-interview-when-you-land-fr-1839760719](https://lifehacker.com/you-can-do-your-global-entry-interview-when-you-land-fr-1839760719)
+> 原文：<https://lifehacker.com/you-can-do-your-global-entry-interview-when-you-land-fr-1839760719>
 
 Global Entry 是迄今为止我做过的最好的投资之一。我经常出国旅行，拥有它不仅可以在入境时节省大量时间(有时我比没有它的旅伴快一个半小时)，还可以在离开时节省大量时间，这要归功于包含的 TSA Pre。
 

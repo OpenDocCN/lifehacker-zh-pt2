@@ -1,6 +1,6 @@
 # 我听过的关于向老板要更多钱的最好建议
 
-> 原文:[https://life hacker . com/the-best-advice-I-ve-heard-on-questing your-boss-m-1833160504](https://lifehacker.com/the-best-advice-i-ve-heard-about-asking-your-boss-for-m-1833160504)
+> 原文：<https://lifehacker.com/the-best-advice-i-ve-heard-about-asking-your-boss-for-m-1833160504>
 
 我采访过许多职业和金钱专家，寻求加薪的建议。他们一般都给一样的(好！)建议:做好准备，做好调查，保持冷静和镇定，等等。
 

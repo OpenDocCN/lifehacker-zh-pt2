@@ -1,6 +1,6 @@
 # 2020 年 6 月 8 日这一周网飞有什么新消息
 
-> 原文:[https://life hacker . com/whats-new-on-the-week-of-June-8-2020-1843596959](https://lifehacker.com/whats-new-on-netflix-the-week-of-june-8-2020-1843596959)
+> 原文：<https://lifehacker.com/whats-new-on-netflix-the-week-of-june-8-2020-1843596959>
 
 如果你正在寻找一些新的东西加入你的网飞队列，流媒体服务本周将增加一些新的电影和电视节目，包括《如何逃脱谋杀》第六季和《华盛顿特区明日传奇》第五季
 

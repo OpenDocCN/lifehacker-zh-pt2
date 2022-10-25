@@ -1,6 +1,6 @@
 # 和司机进行眼神交流，这样他们就不会从你身上碾过
 
-> 原文:[https://life hacker . com/make-eye-contact-with-drivers-so-they-won-run-you-over-1835154592](https://lifehacker.com/make-eye-contact-with-drivers-so-they-wont-run-you-over-1835154592)
+> 原文：<https://lifehacker.com/make-eye-contact-with-drivers-so-they-wont-run-you-over-1835154592>
 
 Lifehacker 的工作人员在纽约时代广场工作，这意味着我们经常处于被路过的汽车撞上的威胁之下。就在今天，一辆 SUV 差点撞倒我，尽管它闯了红灯。
 

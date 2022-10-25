@@ -1,6 +1,6 @@
 # 如何跨设备共享 Chrome 浏览器标签
 
-> 原文:[https://life hacker . com/how-to-share-chrome-browser-tabs-cross-devices-1838015225](https://lifehacker.com/how-to-share-chrome-browser-tabs-across-devices-1838015225)
+> 原文：<https://lifehacker.com/how-to-share-chrome-browser-tabs-across-devices-1838015225>
 
 谷歌终于推出了一个方便的新工具，用于在设备之间共享 Chrome 标签。跨设备标签共享已经在 Chrome Canary 版本中存在了几个月，但现在似乎也可以在稳定的桌面和移动版本中为许多用户提供。我们将向您展示如何在桌面和手机上启用设置和共享选项卡。
 

@@ -1,6 +1,6 @@
 # 有了这个插件，可以在谷歌文档中快速按字母顺序排列列表和段落
 
-> 原文:[https://life hacker . com/quickly-alphabetize-lists-and-paragraphs-in-Google-docs-1835359581](https://lifehacker.com/quickly-alphabetize-lists-and-paragraphs-in-google-docs-1835359581)
+> 原文：<https://lifehacker.com/quickly-alphabetize-lists-and-paragraphs-in-google-docs-1835359581>
 
 生活中有很多时候你会想要创建一个按字母顺序排列的列表。例如，如果每个人都是按字母顺序排列的，那么在门口浏览聚会的客人名单就容易多了。
 

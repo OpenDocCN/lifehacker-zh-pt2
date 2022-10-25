@@ -1,6 +1,6 @@
 # 用罗勒杜松子柠檬水对抗严冬
 
-> 原文:[https://life hacker . com/combat-bad-winter-with-a-basil-gin-柠檬水-1840933421](https://lifehacker.com/combat-bad-winter-with-a-basil-gin-lemonade-1840933421)
+> 原文：<https://lifehacker.com/combat-bad-winter-with-a-basil-gin-lemonade-1840933421>
 
 我们坚定地处于糟糕的冬天，一年中寒冷、潮湿、灰暗的一段时间，没有温暖的季节欢呼来平衡不利影响。我不知道你是如何应对不良影响的，但我听说喝杜松子酒有时会有帮助。
 

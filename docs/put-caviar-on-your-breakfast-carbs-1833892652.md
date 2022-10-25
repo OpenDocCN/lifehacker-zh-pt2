@@ -1,6 +1,6 @@
 # 在你的早餐碳水化合物中加入鱼子酱
 
-> 原文:[https://life hacker . com/put-caviar-on-your-breakfast-carbs-1833892652](https://lifehacker.com/put-caviar-on-your-breakfast-carbs-1833892652)
+> 原文：<https://lifehacker.com/put-caviar-on-your-breakfast-carbs-1833892652>
 
 谈到早餐，我总是选择咸的而不是甜的。这通常意味着我选择熏肉和鸡蛋，而不是煎饼和华夫饼，但真正的解决方案是将鸡蛋放在煎饼和华夫饼上，我说的“鸡蛋”是指“鱼子酱”
 

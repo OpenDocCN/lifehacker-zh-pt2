@@ -1,6 +1,6 @@
 # 将西瓜浸泡在尼格罗尼中
 
-> 原文:[https://life hacker . com/soak-your-sil 西瓜-in-a-negroni-1844293349](https://lifehacker.com/soak-your-watermelon-in-a-negroni-1844293349)
+> 原文：<https://lifehacker.com/soak-your-watermelon-in-a-negroni-1844293349>
 
 将西瓜浸泡在某种酒精中并不是什么新的夏季策略。传统上，我更喜欢伏特加或龙舌兰酒——这两种酒都非常好喝——因为几乎任何一种酒都可以作为西瓜的洗澡水。 B 但是当你可以制作一杯完整的鸡尾酒的时候，为什么要停在一点呢？这就是为什么今年夏天我们要做*尼格罗尼*瓜。
 

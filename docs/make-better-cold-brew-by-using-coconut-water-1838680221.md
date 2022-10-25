@@ -1,6 +1,6 @@
 # 用椰子汁做更好的冷泡茶
 
-> 原文:[https://life hacker . com/make-better-cold-brew-by-use-coconut-water-1838680221](https://lifehacker.com/make-better-cold-brew-by-using-coconut-water-1838680221)
+> 原文：<https://lifehacker.com/make-better-cold-brew-by-using-coconut-water-1838680221>
 
 冷煮咖啡不是我喜欢的冷咖啡。虽然它确实有效，但就咖啡因而言，它的味道可能有点淡，有点刺鼻，让我想起一点点酒。它感觉没有完成，就像它需要一些东西来完善它，而椰子汁就是这样。
 

@@ -1,6 +1,6 @@
 # 如何使用 Instagram 卷轴
 
-> 原文:[https://life hacker . com/how-to-use-insta gram-reels-1844620719](https://lifehacker.com/how-to-use-instagram-reels-1844620719)
+> 原文：<https://lifehacker.com/how-to-use-instagram-reels-1844620719>
 
 如果你还在犹豫是否要涉入抖音的世界——或者在抖音的未来仍不确定的情况下寻找另一个选择——insta gram 正在乞求你的创造力。
 

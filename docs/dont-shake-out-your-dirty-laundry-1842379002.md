@@ -1,6 +1,6 @@
 # 不要抖掉你的脏衣服
 
-> 原文:[https://life hacker . com/don-抖掉你的脏衣服-1842379002](https://lifehacker.com/dont-shake-out-your-dirty-laundry-1842379002)
+> 原文：<https://lifehacker.com/dont-shake-out-your-dirty-laundry-1842379002>
 
 想要保护自己和家人免受冠状病毒的侵害，尤其是如果你的家人目前正经历潜在的新冠肺炎症状？这里有一个直接来自疾病预防控制中心的建议:不要抖掉你的脏衣服。
 

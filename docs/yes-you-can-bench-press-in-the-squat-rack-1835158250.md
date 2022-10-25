@@ -1,6 +1,6 @@
 # 是的，你可以在深蹲架上做卧推
 
-> 原文:[https://life hacker . com/yes-you-can-bent-press-in-the-squat-rack-1835158250](https://lifehacker.com/yes-you-can-bench-press-in-the-squat-rack-1835158250)
+> 原文：<https://lifehacker.com/yes-you-can-bench-press-in-the-squat-rack-1835158250>
 
 有没有担心过卧推失败后会被杠铃压住？你并不孤单——这是互联网上健身论坛和 [Reddit threads](https://www.reddit.com/r/Fitness/comments/5l4p2e/how_to_progress_in_bench_press_without_a_spotter/) 的共同担忧。
 

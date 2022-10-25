@@ -1,6 +1,6 @@
 # how to get your child the mental health care they need 1843268534
 
-> 原文:[https://life hacker . com/how-to-get-your-child-the-mental-health-care-they-need-1843268534](https://lifehacker.com/how-to-get-your-child-the-mental-health-care-they-need-1843268534)
+> 原文：<https://lifehacker.com/how-to-get-your-child-the-mental-health-care-they-need-1843268534>
 
 “玛丽”一直在帮助她 10 岁的孩子应对不断升级的对自己和家人的行为模式，这时在他的一次治疗中事情到了紧要关头。他威胁要伤害自己，“医疗服务提供者建议我们带他去急诊室，”宾夕法尼亚州 50 岁的作家玛丽(Marie)说，她要求我们使用化名来保护她儿子的隐私。
 

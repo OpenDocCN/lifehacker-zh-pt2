@@ -1,6 +1,6 @@
 # 使用 DuckDuckGo 'Lite '获得快得离谱的搜索结果
 
-> 原文:[https://life hacker . com/use-duck duck go-lite-for-aburdly-fast-search-results-1841156955](https://lifehacker.com/use-duckduckgo-lite-for-absurdly-fast-search-results-1841156955)
+> 原文：<https://lifehacker.com/use-duckduckgo-lite-for-absurdly-fast-search-results-1841156955>
 
 大多数人可能认为 DuckDuckGo 是谷歌更注重隐私的替代产品，但放弃所有数据跟踪的一个较少讨论的好处是提高搜索速度。与谷歌相比，普通的 DuckDuckGo 搜索消耗的数据更少，需要的请求也更少，但也有一个“ [Lite](https://duckduckgo.com/lite) ”版本的 DuckDuckGo 页面，加载结果的速度要快得多。
 

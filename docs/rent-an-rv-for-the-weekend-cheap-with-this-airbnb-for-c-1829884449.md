@@ -1,6 +1,6 @@
 # 用这个“露营车 Airbnb”租一辆周末用的廉价房车
 
-> 原文:[https://life hacker . com/rent-an-RV-for-the-weekend-price-with-this-Airbnb-for-c-1829884449](https://lifehacker.com/rent-an-rv-for-the-weekend-cheap-with-this-airbnb-for-c-1829884449)
+> 原文：<https://lifehacker.com/rent-an-rv-for-the-weekend-cheap-with-this-airbnb-for-c-1829884449>
 
 如果你想租一辆车或一个住的地方，你有很多选择。但是如果你想租一辆兼作住宿地方的车呢？那么你的选择就会变得更加有限。
 

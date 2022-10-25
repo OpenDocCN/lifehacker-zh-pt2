@@ -1,6 +1,6 @@
 # 如何访问谷歌地图新的 AR 步行方向
 
-> 原文:[https://life hacker . com/how-to-access-Google-maps-new-ar-walking-directions-in-1837132289](https://lifehacker.com/how-to-access-google-maps-new-ar-walking-directions-in-1837132289)
+> 原文：<https://lifehacker.com/how-to-access-google-maps-new-ar-walking-directions-in-1837132289>
 
 今年早些时候，谷歌宣布了 Live View，这是谷歌地图步行方向的增强现实版本，可以让你看到覆盖在你周围世界的方向。所以与其试图决定“它是要我走这条街还是另一条街？”你会在你想走的那条街上看到一个箭头。
 

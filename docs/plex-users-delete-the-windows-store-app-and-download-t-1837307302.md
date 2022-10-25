@@ -1,6 +1,6 @@
 # Plex 用户:删除 Windows 应用商店应用并下载更新的应用
 
-> 原文:[https://life hacker . com/plex-users-delete-the-windows-store-app-and-download-t-1837307302](https://lifehacker.com/plex-users-delete-the-windows-store-app-and-download-t-1837307302)
+> 原文：<https://lifehacker.com/plex-users-delete-the-windows-store-app-and-download-t-1837307302>
 
 关于 Plex 的一个伟大之处——除了用它来 [创建你自己的私人、可共享的流库](https://lifehacker.com/use-a-plex-media-server-to-stream-your-media-collection-1832992483)——就是它支持多少平台。你可以在 Android、iOS、PC、Roku、智能电视甚至你的网络浏览器上使用这项服务(和服务器)。
 

@@ -1,6 +1,6 @@
 # 如何启用 Chrome 78 的隐藏黑暗模式和安全密码功能
 
-> 原文:[https://life hacker . com/how-to-enable-chrome-78s-hidden-dark-mode-and-secure-pa-1839357304](https://lifehacker.com/how-to-enable-chrome-78s-hidden-dark-mode-and-secure-pa-1839357304)
+> 原文：<https://lifehacker.com/how-to-enable-chrome-78s-hidden-dark-mode-and-secure-pa-1839357304>
 
 Chrome 78 在这里。幸运的话，你的浏览器现在应该已经更新到了全新的版本，它有错误修复，安全补丁，以及当你将鼠标移到标签上时更快的悬停框。Chrome 78 中还有两个有趣的功能(适用于你的台式机或笔记本电脑)需要深入挖掘才能实现。
 

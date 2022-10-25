@@ -1,6 +1,6 @@
 # Twix 和 chill:哪种糖果冷冻后味道更好？
 
-> 原文:[https://the take out . com/which-candies-taste-best-frozen-1837816896](https://thetakeout.com/which-candies-taste-best-frozen-1837816896)
+> 原文：<https://thetakeout.com/which-candies-taste-best-frozen-1837816896>
 
 在杂货店里，有一个女人在我前面排队，她正在买一瓶酒。她可能会去参加一个晚宴，或者独自喝酒，或者和她的伴侣一起——我不会问，但她来杂货店只有一个目的:那瓶红酒。我也是怀着特殊的目的来到这里的。我抓起分隔器，把它放在我们中间，把价值 40 美元的糖果倒在传送带上。她瞥了我一眼，不一定是带着判断，而是带着一种困惑，“好吧，这里有什么背景故事？”看啊。
 

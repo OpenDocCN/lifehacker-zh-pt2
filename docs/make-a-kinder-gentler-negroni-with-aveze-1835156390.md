@@ -1,6 +1,6 @@
 # 和阿芙兹一起做一个更善良、更温柔的“尼格罗尼”
 
-> 原文:[https://life hacker . com/make-a-kinder-gentler-negro ni-with-aveze-1835156390](https://lifehacker.com/make-a-kinder-gentler-negroni-with-aveze-1835156390)
+> 原文：<https://lifehacker.com/make-a-kinder-gentler-negroni-with-aveze-1835156390>
 
 这是尼格罗尼的季节。我怎么知道？很简单——我只是打开收件箱，阅读许多提醒我注意这一事实的新闻稿。我确实喜欢三种配料的鸡尾酒；我一年到头都喝它，但“季节”实际上是坎帕里公司的营销策略，这意味着青草味更浓、以龙胆根为主的白尼格罗尼被排除在谈话之外。
 

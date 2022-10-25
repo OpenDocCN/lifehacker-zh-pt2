@@ -1,6 +1,6 @@
 # 确保你没有购买这三种召回口味的 Ragú意大利面酱
 
-> 原文:[https://life hacker . com/确保你没有购买三个召回产品中的一个 flavo-1835789223](https://lifehacker.com/make-sure-you-didnt-buy-one-of-the-three-recalled-flavo-1835789223)
+> 原文：<https://lifehacker.com/make-sure-you-didnt-buy-one-of-the-three-recalled-flavo-1835789223>
 
 如果你这个月购买了 Ragú意大利面酱，你应该检查包装，以确保它没有被召回。
 

@@ -1,6 +1,6 @@
 # 通过这些在线复习课程，让你的孩子为 AP 考试做好准备
 
-> 原文:[https://life hacker . com/get-your-teen-ready-for-AP-exams-with the-online-revi-1843260741](https://lifehacker.com/get-your-teen-ready-for-ap-exams-with-these-online-revi-1843260741)
+> 原文：<https://lifehacker.com/get-your-teen-ready-for-ap-exams-with-these-online-revi-1843260741>
 
 除了失去正常的社交生活、学术常规的中断、和学年结束庆祝活动的取消，许多高三和高四学生(甚至一些高二学生)现在都在努力在家里准备参加挑战性的跳级考试。虽然上 AP 课程通常是帮助学生准备大学课程的好方法，但在很多情况下，风险甚至更高。
 

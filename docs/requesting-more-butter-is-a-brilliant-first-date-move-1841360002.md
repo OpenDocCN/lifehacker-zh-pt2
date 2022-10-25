@@ -1,6 +1,6 @@
 # 要求“更多黄油”是第一次约会的明智之举
 
-> 原文:[https://life hacker . com/requesting-more-butter-is-a-brilliant-first-date-move-1841360002](https://lifehacker.com/requesting-more-butter-is-a-brilliant-first-date-move-1841360002)
+> 原文：<https://lifehacker.com/requesting-more-butter-is-a-brilliant-first-date-move-1841360002>
 
 许多餐馆会拿出“餐桌上用的”面包，但大多数餐馆都没有足够的黄油来供应面包。就像只提供奇数个可食用项目的开胃菜一样，不清楚他们是否在黄油上吝啬以制造冲突，或者是否出于某种财政考虑，但不管怎样，我都不喜欢它。
 

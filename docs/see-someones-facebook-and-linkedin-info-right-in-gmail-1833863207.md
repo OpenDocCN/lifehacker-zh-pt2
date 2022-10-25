@@ -1,6 +1,6 @@
 # 使用此扩展功能可以在 Gmail 中查看某人的脸书和 LinkedIn 信息
 
-> 原文:[https://life hacker . com/see-someones-Facebook-and-LinkedIn-info-right-in-Gmail-1833863207](https://lifehacker.com/see-someones-facebook-and-linkedin-info-right-in-gmail-1833863207)
+> 原文：<https://lifehacker.com/see-someones-facebook-and-linkedin-info-right-in-gmail-1833863207>
 
 做记者的一个特点是你会收到大量不请自来的电子邮件，通常来自你不认识的人。 [发现](https://chrome.google.com/webstore/detail/discoverly-for-gmail-link/dijhcpbkalfgkcebgoncjmfpbamihgaf) 是一个 Chrome 扩展，可以帮助把那些陌生人的电子邮件放入视野。
 

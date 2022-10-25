@@ -1,6 +1,6 @@
 # 不要为了一个三明治对大力水手的员工大喊大叫
 
-> 原文:[https://life hacker . com/don-yell-at-popeyes-employees-about-a sandwich-1839607734](https://lifehacker.com/dont-yell-at-popeyes-employees-about-a-sandwich-1839607734)
+> 原文：<https://lifehacker.com/dont-yell-at-popeyes-employees-about-a-sandwich-1839607734>
 
 昨天标志着大肆宣传的大力水手鸡肉三明治的回归，人们立即失去了理智。虽然我理解对曾经稀缺的食物(你好，塔可钟薯条)感到兴奋是什么感觉，但我敦促——不，恳求——每个人请冷静下来。
 

@@ -1,6 +1,6 @@
 # 不要把你用过的床垫扔进垃圾桶
 
-> 原文:[https://life hacker . com/don ' t-throw-your-used-matters-in-trash-1833722847](https://lifehacker.com/dont-throw-your-used-mattress-in-the-trash-1833722847)
+> 原文：<https://lifehacker.com/dont-throw-your-used-mattress-in-the-trash-1833722847>
 
 有些物品很容易回收，比如塑料瓶或报纸。其他东西要困难得多，原因很简单，因为它们可能放不进普通的回收箱——比如特大号床垫。
 

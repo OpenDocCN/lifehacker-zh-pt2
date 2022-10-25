@@ -1,6 +1,6 @@
 # 如何和你的孩子谈论 LGBTQ+问题
 
-> 原文:[https://life hacker . com/how-to-talk-to-your-kids-about-lgbtq-issues-1836801945](https://lifehacker.com/how-to-talk-to-your-kids-about-lgbtq-issues-1836801945)
+> 原文：<https://lifehacker.com/how-to-talk-to-your-kids-about-lgbtq-issues-1836801945>
 
 作为一名刚出柜的女同性恋者，一开始我有点不确定如何和我的孩子谈论 LGBTQ+话题。但是，即使在我接受自己的身份并告诉家人我是同性恋之前，进行这些对话对我来说也是很重要的事情。我希望我的孩子们成为同盟，不仅仅是为了我，也是为了整个同性恋群体。我也想让他们明白，如果他们在美丽的 LGBTQ+彩虹中的任何地方倒下，我会接受并爱他们。
 

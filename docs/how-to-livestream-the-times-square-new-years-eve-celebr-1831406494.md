@@ -1,6 +1,6 @@
 # 如何直播时代广场新年庆典
 
-> 原文:[https://life hacker . com/how-to-live stream-the-times-square-new-years-eve-celebr-1831406494](https://lifehacker.com/how-to-livestream-the-times-square-new-years-eve-celebr-1831406494)
+> 原文：<https://lifehacker.com/how-to-livestream-the-times-square-new-years-eve-celebr-1831406494>
 
 如果你想今晚在纽约时代广场看球落下，你有一些选择。
 

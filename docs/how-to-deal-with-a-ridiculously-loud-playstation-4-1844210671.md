@@ -1,6 +1,6 @@
 # 如何应对噪音大得离谱的 ps4
 
-> 原文:[https://kotaku . com/how-to-deal-with-a-slurry-loud-PlayStation-4-1844210671](https://kotaku.com/how-to-deal-with-a-ridiculously-loud-playstation-4-1844210671)
+> 原文：<https://kotaku.com/how-to-deal-with-a-ridiculously-loud-playstation-4-1844210671>
 
 [*《我们最后的人 2》*](https://kotaku.com/the-last-of-us-part-ii-the-kotaku-review-1844006193)可能是 PlayStation 4 游戏有史以来最响亮的声音。我说的不是声音设计，虽然它令人印象深刻。我说的是游戏对基本上任何 PlayStation 4 的影响。启动顽皮狗的最新杰作，你几乎听不到遥控器的声音盖过了控制台风扇无休止的尖叫。这就像试图在房间里玩汽船游戏。
 

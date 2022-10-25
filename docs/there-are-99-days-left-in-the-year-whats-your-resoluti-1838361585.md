@@ -1,6 +1,6 @@
 # 一年还剩 99 天。你的决心是什么？
 
-> 原文:[https://life hacker . com/还有-99 天-你的决定是什么-1838361585](https://lifehacker.com/there-are-99-days-left-in-the-year-whats-your-resoluti-1838361585)
+> 原文：<https://lifehacker.com/there-are-99-days-left-in-the-year-whats-your-resoluti-1838361585>
 
 这是新赛季的第一天——这意味着这是开始新生活的好时机。
 

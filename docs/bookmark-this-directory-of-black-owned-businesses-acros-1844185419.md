@@ -1,6 +1,6 @@
 # 将这个跨行业的黑人企业目录加入书签
 
-> 原文:[https://life hacker . com/bookmark-this-directory-of-black-owned-business-acros-1844185419](https://lifehacker.com/bookmark-this-directory-of-black-owned-businesses-acros-1844185419)
+> 原文：<https://lifehacker.com/bookmark-this-directory-of-black-owned-businesses-acros-1844185419>
 
 虽然购物看起来像是你为了得到你需要的东西而必须做的事情，但是我们花钱的方式比我们想象的有更大的影响。如果你选择从小企业购买东西，大盒子零售商不会错过销售。此外，当你在独立商店购物时，你可能会得到别人没有的鞋子、盘子或贺卡。具体来说，如果你想支持更多的黑人企业，但不知道从哪里开始，有一个在线目录可以让这个过程变得非常简单。
 

@@ -1,6 +1,6 @@
 # 通过 Amazon Prime 用免费的书籍和杂志建立你的 TBR
 
-> 原文:[https://life hacker . com/build-your-tbr-with-free-book-and-magazine-through-am-1844517768](https://lifehacker.com/build-your-tbr-with-free-books-and-magazines-through-am-1844517768)
+> 原文：<https://lifehacker.com/build-your-tbr-with-free-books-and-magazines-through-am-1844517768>
 
 不管你喜不喜欢，亚马逊 Prime 已经成为许多人在新冠肺炎疫情期间的主要生命线，让他们(T2)能够将食物和物资快速送到他们的家。虽然免费两天送达可能是这项服务最受欢迎的特点，但如果你只是用你的账户来订购东西，你就错过了。是的，有亚马逊 Prime Video— 但是你知道你的 Prime 订阅还附带大量的免费书籍、漫画书和杂志吗？以下是访问它们的方法——即使你没有 Kindle 设备。
 

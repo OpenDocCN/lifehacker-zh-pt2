@@ -1,6 +1,6 @@
 # 你绝对应该粉碎所有百吉饼调料
 
-> 原文:[https://life hacker . com/you-should-individual-combination-everything-bagel-season-1834670937](https://lifehacker.com/you-should-definitely-pulverize-everything-bagel-season-1834670937)
+> 原文：<https://lifehacker.com/you-should-definitely-pulverize-everything-bagel-season-1834670937>
 
 乔氏 [除了百吉饼调料](https://skillet.lifehacker.com/this-everything-bagel-seasoning-is-quite-literally-my-1793624935) 之外的所有东西都擅长很多事情，但坚持吃爆米花和薯条之类的干零食不在其中。种子、相当大块的脱水大蒜和粗盐的混合物对于调味品来说相当重，这意味着它有向碗底部下落的趋势。为了帮助它充分发挥潜力(并坚持吃这些零食)，你只需要稍微粗暴一点。
 

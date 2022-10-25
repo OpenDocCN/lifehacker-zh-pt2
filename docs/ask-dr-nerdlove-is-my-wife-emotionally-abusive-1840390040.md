@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:我的妻子有精神虐待吗？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-is-my-wife-emotional-辱骂-1840390040](https://kotaku.com/ask-dr-nerdlove-is-my-wife-emotionally-abusive-1840390040)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-is-my-wife-emotionally-abusive-1840390040>
 
 你好，所有你的小高潮皮肤甲虫，欢迎来到 [问博士 NerdLove](http://kotaku.com/askdrnerdlove) ，唯一的约会建议专栏，帮助你把你的关系带出早期访问。
 

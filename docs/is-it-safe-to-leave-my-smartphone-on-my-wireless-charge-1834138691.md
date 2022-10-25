@@ -1,6 +1,6 @@
 # 将智能手机放在无线充电器上安全吗？
 
-> 原文:[https://life hacker . com/is-it-safe-to-leave-my-smart phone-on-my-wireless-charge-1834138691](https://lifehacker.com/is-it-safe-to-leave-my-smartphone-on-my-wireless-charge-1834138691)
+> 原文：<https://lifehacker.com/is-it-safe-to-leave-my-smartphone-on-my-wireless-charge-1834138691>
 
 欢迎来到 Lifehacker 的另一个版本的技术建议专栏 ，这是由大量的 DayQuil 带给你的——感谢在过去一周左右的时间里让我患上重感冒的人。因为我仍然觉得我可以轻松地在今天的时间表中多睡八个小时，所以在我趴在键盘上之前，我将直接切入本周的问题。
 

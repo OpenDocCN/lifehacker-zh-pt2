@@ -1,6 +1,6 @@
 # 别忘了清洁你的方向盘
 
-> 原文:[https://jalopnik . com/don ' t-forget-clean-your-steering-wheel-1836629194](https://jalopnik.com/dont-forget-to-clean-your-steering-wheel-1836629194)
+> 原文：<https://jalopnik.com/dont-forget-to-clean-your-steering-wheel-1836629194>
 
 在 之前，我们已经 [讨论过这个问题，但它值得重复。孩子们，一定要定期清洁方向盘。这些东西既恶心又肮脏，如果你定期擦拭，可能有助于避免瘟疫的爆发。](https://jalopnik.com/your-steering-wheel-is-nasty-as-hell-study-1832063111)
 

@@ -1,6 +1,6 @@
 # 如果你想一夜成名，先经历许多失败
 
-> 原文:[https://life hacker . com/if-you-want-to-be-a-night-success-fail-a-lot-firs-1835277568](https://lifehacker.com/if-you-want-to-be-an-overnight-success-fail-a-lot-firs-1835277568)
+> 原文：<https://lifehacker.com/if-you-want-to-be-an-overnight-success-fail-a-lot-firs-1835277568>
 
 詹姆斯·霍尔茨豪尔的成名吸引了《危险边缘》!粉丝这两个月来。但是也许更吸引人的是一个 27 岁的图书管理员看似 [不知从哪里冒出来打败他](http://money.com/money/5646440/who-is-jeopardy-champ-emma-boettcher/) 。新科冠军艾玛·波特彻可以成为我们所有人的一个教训:如果你想成为一个一夜成功的故事，先计划失败一大堆。
 

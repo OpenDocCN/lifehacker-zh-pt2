@@ -1,6 +1,6 @@
 # 十月是间歇训练的季节
 
-> 原文:[https://life hacker . com/October-is-for-interval-workouts-1838751041](https://lifehacker.com/october-is-for-interval-workouts-1838751041)
+> 原文：<https://lifehacker.com/october-is-for-interval-workouts-1838751041>
 
 今年十月，是时候将有氧运动提升一个档次并做一些间歇训练了！(Intervaltober？希尔托博？好吧，没关系。)做间歇的方法有很多，而且不一定都要让你觉得自己快死了，所以让我们来探索一下可能性。
 

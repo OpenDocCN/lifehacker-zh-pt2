@@ -1,6 +1,6 @@
 # 以下是中期选举后大麻法律的变化
 
-> 原文:[https://life hacker . com/heres-how-than-大麻法律在中期选举后改变了 1830280579](https://lifehacker.com/heres-how-marijuana-laws-have-changed-after-the-midterm-1830280579)
+> 原文：<https://lifehacker.com/heres-how-marijuana-laws-have-changed-after-the-midterm-1830280579>
 
 中期选举期间，有四个州就大麻合法化进行了投票:密歇根州、北达科他州、犹他州和密苏里州。密歇根州和北达科他州就是否将大麻娱乐合法化进行了投票，密歇根州通过了该提案，北达科他州最终投了反对票。犹他州和密苏里州就是否提供医用大麻进行了投票，这两个州都批准了这些措施。
 

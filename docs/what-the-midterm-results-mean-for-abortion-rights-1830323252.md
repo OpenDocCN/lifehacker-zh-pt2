@@ -1,6 +1,6 @@
 # 中期结果对堕胎权利意味着什么
 
-> 原文:[https://life hacker . com/what-the-midterm-results-mean-for-declaration-rights-1830323252](https://lifehacker.com/what-the-midterm-results-mean-for-abortion-rights-1830323252)
+> 原文：<https://lifehacker.com/what-the-midterm-results-mean-for-abortion-rights-1830323252>
 
 我们获得生殖健康保健的能力不应该成为一个政治问题，但可悲的是，它往往取决于政治家的行动。最近的期中考试有一些有利因素和不利因素。
 

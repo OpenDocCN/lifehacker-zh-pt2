@@ -1,6 +1,6 @@
 # 使用该网站确定亚马逊产品评论是否合法
 
-> 原文:[https://life hacker . com/determine-if-Amazon-product-reviews-is-legit-using-thi-1830622508](https://lifehacker.com/determine-if-amazon-product-reviews-are-legit-using-thi-1830622508)
+> 原文：<https://lifehacker.com/determine-if-amazon-product-reviews-are-legit-using-thi-1830622508>
 
 假日购物时间到了，这意味着我们可能会比平时买得更多。当你在网上购物时，网上评论是一个很好的工具，可以帮助你判断你将要购买的礼物是一件好东西还是一件无用的东西。也就是说，这些天有大量的虚假和付费评论，当涉及到获得关于你所购物品的可靠信息时，这些评论会把水搅浑。
 

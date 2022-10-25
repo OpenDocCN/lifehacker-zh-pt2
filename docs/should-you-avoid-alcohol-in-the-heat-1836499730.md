@@ -1,6 +1,6 @@
 # 在炎热的天气里你应该避免饮酒吗？
 
-> 原文:[https://life hacker . com/should-you-忌酒热-1836499730](https://lifehacker.com/should-you-avoid-alcohol-in-the-heat-1836499730)
+> 原文：<https://lifehacker.com/should-you-avoid-alcohol-in-the-heat-1836499730>
 
 天气越热，饮料似乎越提神——包括一杯冰啤酒或一杯 frosé。但是出于安全考虑，你可能会想在热浪来袭时尽量减少饮酒。
 

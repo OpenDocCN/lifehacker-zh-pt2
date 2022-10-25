@@ -1,6 +1,6 @@
 # 用手背将杀虫剂喷在脸上
 
-> 原文:[https://life hacker . com/use-the-back-of-your-hand-apply-bug-spray to-your-fa-1836456537](https://lifehacker.com/use-the-back-of-your-hand-to-apply-bug-spray-to-your-fa-1836456537)
+> 原文：<https://lifehacker.com/use-the-back-of-your-hand-to-apply-bug-spray-to-your-fa-1836456537>
 
 如果你想要最好的防蚊保护，你需要在几乎所有暴露的皮肤上涂上驱蚊剂(最好是避蚊胺)。包括你的脸。
 

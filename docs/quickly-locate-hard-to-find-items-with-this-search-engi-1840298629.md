@@ -1,6 +1,6 @@
 # 使用这个搜索引擎快速找到难以找到的古董衣服
 
-> 原文:[https://life hacker . com/quick-locate-hard-to-find-items-with this-search-engi-1840298629](https://lifehacker.com/quickly-locate-hard-to-find-items-with-this-search-engi-1840298629)
+> 原文：<https://lifehacker.com/quickly-locate-hard-to-find-items-with-this-search-engi-1840298629>
 
 如果你正在购买新衣服，那么找到你想要的东西是一件相对容易的事情。当你寻找复古服装时；然而，找到一件完美的夹克、包包或牛仔裤变得有点复杂。 [Gem 是一个可以帮忙的网站和 app](https://gem.app/) 。
 

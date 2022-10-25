@@ -1,6 +1,6 @@
 # 今天就在沃尔格林获得免费的艾滋病毒检测
 
-> 原文:[https://life hacker . com/get-a-free-a-HIV-test-today-at-walgreens-1835914254](https://lifehacker.com/get-a-free-hiv-test-today-at-walgreens-1835914254)
+> 原文：<https://lifehacker.com/get-a-free-hiv-test-today-at-walgreens-1835914254>
 
 再过几个小时，你也许可以在附近的沃尔格林超市得到一次免费的艾滋病毒检测(T1，T2，T3，T4 ),这是国家艾滋病毒检测日“大于艾滋病”合作项目的一部分。
 

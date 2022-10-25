@@ -1,6 +1,6 @@
 # 如何礼貌地退出对话
 
-> 原文:[https://life hacker . com/how-to-礼貌地退出对话-1839592512](https://lifehacker.com/how-to-politely-exit-a-conversation-1839592512)
+> 原文：<https://lifehacker.com/how-to-politely-exit-a-conversation-1839592512>
 
 如果你是那种 [纠结于](https://lifehacker.com/how-to-make-better-small-talk-1832124157) [闲聊](https://lifehacker.com/how-to-make-better-small-talk-1832124157) 的人，那么你大概也纠结于如何*结束*一段对话；毕竟，当谈话陷入尴尬的沉默时，没有唯一正确的方式告诉某人“我们别说了，现在我们已经没有什么可谈的了。”
 

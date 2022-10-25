@@ -1,6 +1,6 @@
 # 如何识别诈骗众筹活动
 
-> 原文:[https://life hacker . com/how-to-spot-a-scammy-crowd funding-campaign-1830588086](https://lifehacker.com/how-to-spot-a-scammy-crowdfunding-campaign-1830588086)
+> 原文：<https://lifehacker.com/how-to-spot-a-scammy-crowdfunding-campaign-1830588086>
 
 众筹运动是人们帮助需要帮助的人的有效方式。但是，一对夫妇与一名无家可归的男子合谋编造一个温暖人心的好撒玛利亚人故事来骗取钱财的新闻凸显了在捐赠前审查病毒式感觉良好的故事的重要性。
 

@@ -1,6 +1,6 @@
 # 所有能让你的学生贷款被免除的方法
 
-> 原文:[https://life hacker . com/all-the-ways-you-can-get-your-student-loans-forgiven-1832647791](https://lifehacker.com/all-the-ways-you-can-get-your-student-loans-forgiven-1832647791)
+> 原文：<https://lifehacker.com/all-the-ways-you-can-get-your-student-loans-forgiven-1832647791>
 
 随着 2018 届学生贷款 [平均余额达到 29800 美元](https://studentloanhero.com/student-loan-debt-statistics/) ，你可能正在寻找任何可以帮助你偿还债务的方法。如果你满足了某些要求，你的一部分余额是有可能被原谅的。
 

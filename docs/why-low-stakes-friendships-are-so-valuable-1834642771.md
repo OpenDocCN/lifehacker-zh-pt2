@@ -1,6 +1,6 @@
 # 为什么低赌注的友谊如此珍贵
 
-> 原文:[https://life hacker . com/why-low-stakes-friendships-is-so-valued-1834642771](https://lifehacker.com/why-low-stakes-friendships-are-so-valuable-1834642771)
+> 原文：<https://lifehacker.com/why-low-stakes-friendships-are-so-valuable-1834642771>
 
 如果你想感觉自己是社区的一部分，是时候去了解你的邻居了。
 

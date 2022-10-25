@@ -1,6 +1,6 @@
 # 如何在平安夜追踪圣诞老人的实时位置
 
-> 原文:[https://life hacker . com/how-to-track-Santas-real-time-location-on-Christmas-eve-1831298077](https://lifehacker.com/how-to-track-santas-real-time-location-on-christmas-eve-1831298077)
+> 原文：<https://lifehacker.com/how-to-track-santas-real-time-location-on-christmas-eve-1831298077>
 
 尽管政府停摆，北美防空司令部今年仍忙于追踪圣诞老人。这项服务从 50 年代就开始追踪圣诞老人在平安夜的行踪，当时它的号码被误认为是圣诞老人热线。
 

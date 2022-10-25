@@ -1,6 +1,6 @@
 # 用果皮、果梗和果核制作免煮水果糖浆
 
-> 原文:[https://life hacker . com/make-no-cook-fruit-糖浆-带皮-茎-核-1837037978](https://lifehacker.com/make-no-cook-fruit-syrups-with-peels-stems-and-pits-1837037978)
+> 原文：<https://lifehacker.com/make-no-cook-fruit-syrups-with-peels-stems-and-pits-1837037978>
 
 说到水果，人们想要的是果肉，但果肉往往附着在茎、核和果皮上，扔掉这些部分意味着你扔掉了味道。幸运的是， [糖果女王斯特拉·帕克斯](https://lifehacker.com/im-pastry-chef-stella-parks-and-this-is-how-i-eat-1833139563) 有一个解决方案:用这些所谓的下脚料制作充满活力的免煮糖浆。
 

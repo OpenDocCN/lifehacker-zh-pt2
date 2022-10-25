@@ -1,6 +1,6 @@
 # 如何将照片从 Flickr 移到另一个服务
 
-> 原文:[https://life hacker . com/how-to-move-your-photos-from-Flickr-to-another-service-1830307573](https://lifehacker.com/how-to-move-your-photos-from-flickr-to-another-service-1830307573)
+> 原文：<https://lifehacker.com/how-to-move-your-photos-from-flickr-to-another-service-1830307573>
 
 Flickr 不会消失，但如果你不遵循 [它的新限制](https://www.businesswire.com/news/home/20181101005328/en/Flickr-Announces-New-Photographer-Centric-Improvements-Flickr-Pro):1000 张照片，就这样。这些照片可以是你想要的任何尺寸，但是你只能得到一千张。Flickr 存储空间免费万亿字节的时代即将结束。
 

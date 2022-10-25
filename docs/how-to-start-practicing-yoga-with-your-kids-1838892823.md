@@ -1,6 +1,6 @@
 # 如何开始和你的孩子练习瑜伽
 
-> 原文:[https://life hacker . com/how-to-start-practice-yoga-with-your-kids-1838892823](https://lifehacker.com/how-to-start-practicing-yoga-with-your-kids-1838892823)
+> 原文：<https://lifehacker.com/how-to-start-practicing-yoga-with-your-kids-1838892823>
 
 孩子们喜欢瑜伽。成年人喜欢孩子做瑜伽，因为它能集中他们的身心，减少对家庭和兄弟姐妹的间接伤害。但是如果你不做瑜伽或者不知道如何让你的孩子对瑜伽感兴趣呢？
 

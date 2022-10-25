@@ -1,6 +1,6 @@
 # 把你的感恩节剩菜变成饺子
 
-> 原文:[https://life hacker . com/turn-your-感恩节-剩菜-饺子-1830542599](https://lifehacker.com/turn-your-thanksgiving-leftovers-into-dumplings-1830542599)
+> 原文：<https://lifehacker.com/turn-your-thanksgiving-leftovers-into-dumplings-1830542599>
 
 当你盯着一桶天——陈旧的感恩节剩菜时，几乎不可能鼓起创造力去做*的事情*，任何事情，除了在打开的冰箱前把它们铲进你的嘴里。在冰箱铲游戏中没有什么丢人的，但是给你盛宴的最后一点残渣注入新的生命就像拿起一包饺子皮或馄饨皮一样简单。
 

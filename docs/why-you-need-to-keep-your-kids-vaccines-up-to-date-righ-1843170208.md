@@ -1,6 +1,6 @@
 # 为什么你现在需要让你的孩子的疫苗保持最新
 
-> 原文:[https://life hacker . com/why-you-need-keep-your-kids-vaccines-update-righ-1843170208](https://lifehacker.com/why-you-need-to-keep-your-kids-vaccines-up-to-date-righ-1843170208)
+> 原文：<https://lifehacker.com/why-you-need-to-keep-your-kids-vaccines-up-to-date-righ-1843170208>
 
 在每次出门都会带来新的担忧的时候，确保儿童仍然接受疫苗接种就像以往一样重要。据《纽约时报》报道，在过去的几个月里， [疫苗接种率以惊人的速度下降](https://www.nytimes.com/2020/04/23/health/coronavirus-measles-vaccines.html) :麻疹、腮腺炎和风疹疫苗接种率下降了 50%，百日咳疫苗接种率下降了 42%，人乳头瘤病毒疫苗接种率下降了 73%。
 

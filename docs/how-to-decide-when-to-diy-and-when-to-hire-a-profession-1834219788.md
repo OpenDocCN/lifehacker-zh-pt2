@@ -1,6 +1,6 @@
 # 如何决定何时自己动手，何时聘请专业人士
 
-> 原文:[https://life hacker . com/how-to-decision-when-DIY-when-hire-a-profession-1834219788](https://lifehacker.com/how-to-decide-when-to-diy-and-when-to-hire-a-profession-1834219788)
+> 原文：<https://lifehacker.com/how-to-decide-when-to-diy-and-when-to-hire-a-profession-1834219788>
 
 去年秋天，我和丈夫在后院安装了新的栅栏。这是白雪松，木材已经足够干燥，因为它被安装，是时候让我们染色和密封它之前，天气开始采取它的代价。问题是，我们真的不想做。
 

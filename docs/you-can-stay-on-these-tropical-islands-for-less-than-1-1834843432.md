@@ -1,6 +1,6 @@
 # 你可以住在这些热带岛屿上，每晚不到 100 美元
 
-> 原文:[https://life hacker . com/you-can-stay-on-than-1-1834843432](https://lifehacker.com/you-can-stay-on-these-tropical-islands-for-less-than-1-1834843432)
+> 原文：<https://lifehacker.com/you-can-stay-on-these-tropical-islands-for-less-than-1-1834843432>
 
 去热带度假不一定要花很多钱。
 

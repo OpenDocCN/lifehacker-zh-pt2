@@ -1,6 +1,6 @@
 # 如何在谷歌地图中检查速度陷阱、限速和交通事故
 
-> 原文:[https://life hacker . com/how-to-check-for-speed-traps-speed-limits-and-traffic-1835125560](https://lifehacker.com/how-to-check-for-speed-traps-speed-limits-and-traffic-1835125560)
+> 原文：<https://lifehacker.com/how-to-check-for-speed-traps-speed-limits-and-traffic-1835125560>
 
 从今天开始，谷歌地图正在将其交通功能扩展到更多地区。该应用程序现在将显示您当前所在道路的速度限制，以及 40 多个国家的各种关键交通信息的位置，如事故、移动速度跟踪器和交通摄像头。
 

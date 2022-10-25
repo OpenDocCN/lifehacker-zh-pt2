@@ -1,6 +1,6 @@
 # 是什么导致了亚马逊雨林大火？
 
-> 原文:[https://life hacker . com/what-caused-the-Amazon-rain-forest-fires-1837511635](https://lifehacker.com/what-caused-the-amazon-rain-forest-fires-1837511635)
+> 原文：<https://lifehacker.com/what-caused-the-amazon-rain-forest-fires-1837511635>
 
 周一下午 3 点，巴西最大的城市[S](https://www.buzzfeednews.com/article/skbaer/sao-paulo-darkness-amazon-fires)[o Paolo](https://www.buzzfeednews.com/article/skbaer/sao-paulo-darkness-amazon-fires)【陷入黑暗，因为正在进行的大火正在摧毁数千英里外的亚马逊雨林。今年，巴西目睹了创纪录数量的野火。该国总统雅伊尔·博索纳罗表示，该国政府缺乏扑灭这些火灾的资源，这引起了人们对雨林破坏和土著人土地毁坏的更多关注。
 

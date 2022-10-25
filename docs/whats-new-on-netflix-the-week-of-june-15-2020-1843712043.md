@@ -1,6 +1,6 @@
 # 2020 年 6 月 15 日这一周网飞有什么新消息
 
-> 原文:[https://life hacker . com/whats-new-on-the-week-of-June-15-2020-1843712043](https://lifehacker.com/whats-new-on-netflix-the-week-of-june-15-2020-1843712043)
+> 原文：<https://lifehacker.com/whats-new-on-netflix-the-week-of-june-15-2020-1843712043>
 
 本周，网飞推出了大量新内容，包括几部原创电影，如《感受节拍》(Feel the Beat)，讲述了一名女子在百老汇失败后，回到家乡训练一群年轻舞者参加比赛的故事。
 

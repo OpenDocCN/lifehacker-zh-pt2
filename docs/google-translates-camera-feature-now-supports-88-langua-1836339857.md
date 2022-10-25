@@ -1,6 +1,6 @@
 # 谷歌翻译的相机功能现在支持 88 种语言
 
-> 原文:[https://life hacker . com/Google-translates-camera-feature-now-supports-88-langua-1836339857](https://lifehacker.com/google-translates-camera-feature-now-supports-88-langua-1836339857)
+> 原文：<https://lifehacker.com/google-translates-camera-feature-now-supports-88-langua-1836339857>
 
 我经常旅行，经常去那些我的语言能力有点欠缺的国家。在那个时代，谷歌翻译已经成为一个无价的工具。这款应用帮助我与法国南部一名不会说英语的车站管理员进行了一次关于错过火车的对话，甚至在我的西班牙语技能不及格时，还帮助我与我在旧金山的大楼里的人进行了对话。
 

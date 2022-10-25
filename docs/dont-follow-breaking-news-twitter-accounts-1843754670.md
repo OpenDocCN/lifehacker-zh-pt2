@@ -1,6 +1,6 @@
 # 不要关注“突发新闻”推特账户
 
-> 原文:[https://life hacker . com/don t-follow-breaking-news-Twitter-accounts-1843754670](https://lifehacker.com/dont-follow-breaking-news-twitter-accounts-1843754670)
+> 原文：<https://lifehacker.com/dont-follow-breaking-news-twitter-accounts-1843754670>
 
 当事件发生得很快时，就像昨晚在明尼阿波利斯发生的反对警察暴力的抗议活动，错误信息也传播得很快。检查你的消息来源，不要相信那些仅仅为了传播“突发新闻”而存在的账户。
 

@@ -1,6 +1,6 @@
 # 如何核实候选人关于已有条件的声明
 
-> 原文:[https://life hacker . com/how-to-fact-check-candidates-claims-on-pre-existing-con-1829861830](https://lifehacker.com/how-to-fact-check-candidates-claims-on-pre-existing-con-1829861830)
+> 原文：<https://lifehacker.com/how-to-fact-check-candidates-claims-on-pre-existing-con-1829861830>
 
 在即将到来的 2018 年中期选举中，医疗保健是选民最重要的问题，对已有疾病的人的持续保护是最受关注的问题。
 

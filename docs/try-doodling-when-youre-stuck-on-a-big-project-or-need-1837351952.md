@@ -1,6 +1,6 @@
 # 当你陷入一个大项目或需要放松时，尝试涂鸦
 
-> 原文:[https://life hacker . com/try-doodle-when-you-stick-on-a-big-project-or-need-1837351952](https://lifehacker.com/try-doodling-when-youre-stuck-on-a-big-project-or-need-1837351952)
+> 原文：<https://lifehacker.com/try-doodling-when-youre-stuck-on-a-big-project-or-need-1837351952>
 
 快速浏览一下我高中的笔记本，就能证明我是一个糟糕的艺术家，但这并不是因为我没有尝试过。
 

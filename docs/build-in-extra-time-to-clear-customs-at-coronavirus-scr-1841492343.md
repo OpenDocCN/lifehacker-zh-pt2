@@ -1,6 +1,6 @@
 # 在冠状病毒“筛选机场”建立额外的通关时间
 
-> 原文:[https://life hacker . com/build-in-extra-time-to-clear-customs-at-coronavirus-SCR-1841492343](https://lifehacker.com/build-in-extra-time-to-clear-customs-at-coronavirus-scr-1841492343)
+> 原文：<https://lifehacker.com/build-in-extra-time-to-clear-customs-at-coronavirus-scr-1841492343>
 
 如果你在美国指定的“冠状病毒筛查机场”进出，你可能需要准备更长的队伍和等待——特别是如果你是国际旅行。
 

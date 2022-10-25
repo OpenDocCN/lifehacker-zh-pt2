@@ -1,6 +1,6 @@
 # 用咖啡渣给冰淇淋添加咖啡因
 
-> 原文:[https://life hacker . com/give-ice-cream-a-caffeinated-kick-with-coffee-grounds-1844232307](https://lifehacker.com/give-ice-cream-a-caffeinated-kick-with-coffee-grounds-1844232307)
+> 原文：<https://lifehacker.com/give-ice-cream-a-caffeinated-kick-with-coffee-grounds-1844232307>
 
 在早期的电视连续剧*别名*的第二季大结局中，詹妮弗·加纳的超级间谍西德尼·布里斯托发现她的室友弗朗西已经被一个邪恶的二重身取代，当时弗朗西正在吃一品脱咖啡冰淇淋，因为 [“弗朗西不喜欢咖啡冰淇淋。”](https://www.youtube.com/watch?v=imaZnz7Ne4w) 但要我说，原味弗朗西才是邪恶的那个，因为咖啡冰淇淋是所有冰激淋中最好的。事实上，我非常喜欢它，我已经发明了一种简单的方法来给任何口味的冰淇淋添加咖啡因。这是出于绝望而产生的想法(而不是你可能怀疑的醉酒)。那是一个星期五的深夜。我急需冰淇淋(想必你能理解冰淇淋的紧急情况？)我们冰箱里只有一瓶淡而无味的商店品牌 Nea politan，因为孩子们很傻，会被颜色弄得眼花缭乱。希望能接近咖啡冰淇淋的味道，我小心翼翼地舀出剩余的香草，撒上一些早上冲泡时留在磨锥机里的咖啡渣——只是一小撮。
 

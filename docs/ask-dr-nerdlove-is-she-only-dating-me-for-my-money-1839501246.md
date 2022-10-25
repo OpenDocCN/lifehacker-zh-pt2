@@ -1,6 +1,6 @@
 # 问问 NerdLove 博士:她和我约会只是为了我的钱吗？
 
-> 原文:[https://kotaku . com/ask-dr-nerdlove-is-she-only-dating-me for my-money-1839501246](https://kotaku.com/ask-dr-nerdlove-is-she-only-dating-me-for-my-money-1839501246)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-is-she-only-dating-me-for-my-money-1839501246>
 
 你好，你们这些深渊的电天使，欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是唯一一个帮助你在万圣节接到期待已久的 BOO-ty 电话的约会建议专栏。
 

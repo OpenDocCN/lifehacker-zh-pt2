@@ -1,6 +1,6 @@
 # 缓解就寝时间与放松时间的斗争
 
-> 原文:[https://life hacker . com/ease-bedrome-struggles-with-a-wind-down-period-1837926718](https://lifehacker.com/ease-bedtime-struggles-with-a-wind-down-period-1837926718)
+> 原文：<https://lifehacker.com/ease-bedtime-struggles-with-a-wind-down-period-1837926718>
 
 有时候，孩子们就是对上床睡觉不感兴趣。你知道他们累了(他们发誓他们没有)，你肯定也累了(他们感觉到了你的弱点)，你不想再进行同样的战斗。
 

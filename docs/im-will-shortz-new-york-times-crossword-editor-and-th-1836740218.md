@@ -1,6 +1,6 @@
 # im will shortz new york times crossword editor and th 1836740218
 
-> 原文:[https://life hacker . com/im-will-shortz-new-York-times-crossword-editor-and-th-1836740218](https://lifehacker.com/im-will-shortz-new-york-times-crossword-editor-and-th-1836740218)
+> 原文：<https://lifehacker.com/im-will-shortz-new-york-times-crossword-editor-and-th-1836740218>
 
 威尔·肖兹是纵横字谜中最有声望的名字。作为《纽约时报》每日纵横字谜的编辑，自 1993 年以来，他一直在研究每一个字谜。他也是世界字谜锦标赛，美国纵横字谜锦标赛的创始人，以及威彻斯特乒乓球中心的所有者。
 

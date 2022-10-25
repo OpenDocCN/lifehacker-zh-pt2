@@ -1,6 +1,6 @@
 # 安卓用户:现在更新信号，防止窃听
 
-> 原文:[https://life hacker . com/Android-users-update-signal-now-to-prevent-eagle oppi-1838842602](https://lifehacker.com/android-users-update-signal-now-to-prevent-eavesdroppi-1838842602)
+> 原文：<https://lifehacker.com/android-users-update-signal-now-to-prevent-eavesdroppi-1838842602>
 
 根据谷歌 Project Zero 团队 9 月底的一份错误报告，Android 上流行的秘密消息应用 Signal 的一个问题允许任何攻击者基本上窃听一个人的设备(通过音频，而不是视频)。
 

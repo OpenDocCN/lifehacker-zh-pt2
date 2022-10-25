@@ -1,6 +1,6 @@
 # 不要更新 TI-83 或 TI-84 计算器的固件
 
-> 原文:[https://life hacker . com/don-update-your-ti-83-or-ti-84-calculators-firmware-1843712224](https://lifehacker.com/dont-update-your-ti-83-or-ti-84-calculators-firmware-1843712224)
+> 原文：<https://lifehacker.com/dont-update-your-ti-83-or-ti-84-calculators-firmware-1843712224>
 
 在 2020 年，当几乎每个人都有智能手机或笔记本电脑时，想到使用计算器是很奇怪的，但德州仪器的计算器仍然是学生们流行的(经常需要的)资源。最新的计算器甚至能够安装和运行简单的应用程序，这使它们成为编码人员和硬件改装人员的优秀学习工具。(我甚至修改了我的 TI 计算器来运行大学时代的《毁灭战士》和《超级马里奥》的相当不错的复制品。)
 

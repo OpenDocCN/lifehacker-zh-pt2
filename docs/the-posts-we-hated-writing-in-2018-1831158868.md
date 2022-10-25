@@ -1,6 +1,6 @@
 # 2018 年我们讨厌写的帖子
 
-> 原文:[https://life hacker . com/the-posts-we-hated-writing-in-2018-1831158868](https://lifehacker.com/the-posts-we-hated-writing-in-2018-1831158868)
+> 原文：<https://lifehacker.com/the-posts-we-hated-writing-in-2018-1831158868>
 
 相信我们，我们不喜欢告诉你蒸你的阴道会烧伤你。我们也不想写下面的任何帖子。但我们生活在现实世界中，人们会考虑做对自己和他人有害的事情。比如在句号后面加两个空格。以下是我们希望没有写的帖子。
 

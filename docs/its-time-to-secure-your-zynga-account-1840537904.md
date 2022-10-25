@@ -1,6 +1,6 @@
 # 是时候保护你的 Zynga 账户了
 
-> 原文:[https://life hacker . com/its-time-to-secure-your-zynga-account-1840537904](https://lifehacker.com/its-time-to-secure-your-zynga-account-1840537904)
+> 原文：<https://lifehacker.com/its-time-to-secure-your-zynga-account-1840537904>
 
 我喜欢从 Firefox Monitor 发来的电子邮件开始我的一天，我的一个登录和密码组合又一次泄露到了网上。今天，轮到 Zynga*认错*，我开始后悔我玩过的那些回合*和朋友*的话了。
 

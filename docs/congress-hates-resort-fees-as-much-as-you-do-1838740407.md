@@ -1,6 +1,6 @@
 # 国会和你一样讨厌度假费用
 
-> 原文:[https://life hacker . com/congress-hates-resort-fees-as-much-you-do-do-1838740407](https://lifehacker.com/congress-hates-resort-fees-as-much-as-you-do-1838740407)
+> 原文：<https://lifehacker.com/congress-hates-resort-fees-as-much-as-you-do-1838740407>
 
 没有什么比发现你想预订的酒店收取度假费更让人兴奋的了。也许你被酒店的低房价所吸引，并被他们房间和便利设施的照片所吸引。但是到了预定的时候，额外的费用被加了进去，使得每晚的总数远远高于你的预期。
 

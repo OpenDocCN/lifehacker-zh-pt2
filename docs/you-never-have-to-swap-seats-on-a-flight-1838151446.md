@@ -1,6 +1,6 @@
 # 你永远不需要在飞机上换座位
 
-> 原文:[https://life hacker . com/you-never-to-swap-on-a-flight-1838151446](https://lifehacker.com/you-never-have-to-swap-seats-on-a-flight-1838151446)
+> 原文：<https://lifehacker.com/you-never-have-to-swap-seats-on-a-flight-1838151446>
 
 在最近的一篇 Reddit 帖子 中，u/christontoast666 解释了他在同意与另一名乘客交换座位时的道德困境。“我订了一张去欧洲的 12 小时航班的靠走廊座位，当我上飞机时，一位女士问我是否介意和她换一下，这样她就可以和她的孩子坐在一起了，”何 wrote⁠—only 发现他的新座位将是中间一个。“所以我回到我原来的座位上，对那位女士说‘不’，她立刻变得很沮丧。我向她解释了为什么我需要靠过道的座位，但此时，每个人都看着我，好像我是个让母亲和孩子分开的大混蛋。”
 

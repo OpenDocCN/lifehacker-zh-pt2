@@ -1,6 +1,6 @@
 # 为你的孩子准备一个有洋娃娃的兄弟姐妹
 
-> 原文:[https://life hacker . com/prepare-your-kid for a sibling-a baby-doll-1831519294](https://lifehacker.com/prepare-your-kid-for-a-sibling-with-a-baby-doll-1831519294)
+> 原文：<https://lifehacker.com/prepare-your-kid-for-a-sibling-with-a-baby-doll-1831519294>
 
 像许多怀了第二个孩子的母亲一样，我想知道我怎么可能像爱第一个孩子一样爱另一个孩子。我会看着我三岁的儿子在房间里蹦蹦跳跳，就好像地板上有弹簧一样。他会开着玩具卡车碾过家具，把它们撞在一起，一边开着微型金属喷气机，一边发出巨大的轰鸣声。当我看到他的滑稽动作时，我的胸膛会因爱而膨胀，然而，伴随着那种温暖、模糊的感觉而来的是……焦虑。因为圣牛，被他*粗暴*。
 

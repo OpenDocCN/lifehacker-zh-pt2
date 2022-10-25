@@ -1,6 +1,6 @@
 # 用三种配料做一份又辣又甜的芥末
 
-> 原文:[https://life hacker . com/make-a-hot-sweet-芥末三料-1845050707](https://lifehacker.com/make-a-hot-and-sweet-mustard-with-three-ingredients-1845050707)
+> 原文：<https://lifehacker.com/make-a-hot-and-sweet-mustard-with-three-ingredients-1845050707>
 
 作为一个饥饿的青春期前的孩子，我痴迷于 Trader Joe(现已停产)的辣甜芥末酱。天气很热。很甜蜜。涂在咸火腿片上真的很好吃。不再是了。
 

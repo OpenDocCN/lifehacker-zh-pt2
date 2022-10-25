@@ -1,6 +1,6 @@
 # 当你忙的时候，这是“推”你孩子荡秋千的最好方法吗？
 
-> 原文:[https://life hacker . com/is-this-the-best-way to-push-your-kids-swing-when-you-1842025144](https://lifehacker.com/is-this-the-best-way-to-push-your-kids-swing-when-youre-1842025144)
+> 原文：<https://lifehacker.com/is-this-the-best-way-to-push-your-kids-swing-when-youre-1842025144>
 
 在我们今天开始之前，你应该有两条相关的信息:1 .我喜欢一个好的育儿技巧和 2。我从来不喜欢无休止地站在那里推着孩子荡秋千。因此，我应该成熟地支持任何努力来破解这个苦差事。然而， [这段视频](https://www.youtube.com/watch?v=p96Fa1JJbVU&feature=youtu.be) 中，一位家长从他们四楼公寓的窗户推(嗯，拉)着他们的孩子荡秋千，这让我很困惑。
 

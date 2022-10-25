@@ -1,6 +1,6 @@
 # how i got my first eight pullups 1834556786
 
-> 原文:[https://life hacker . com/how-I-get-my-first-eight-pullups-1834556786](https://lifehacker.com/how-i-got-my-first-eight-pullups-1834556786)
+> 原文：<https://lifehacker.com/how-i-got-my-first-eight-pullups-1834556786>
 
 我大半辈子都在仰望引体向上的杠杠，希望自己能升到它们的高度。有时候我会努力训练，然后做一个引体向上。但之后我会放松一分钟，然后我会回到零。我是一名独联体女性，在上身肌肉方面没有特别的天赋。但是去年我决定集中力量做引体向上，我做到了。
 

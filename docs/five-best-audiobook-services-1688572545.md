@@ -1,6 +1,6 @@
 # 最佳有声读物服务
 
-> 原文:[https://life hacker . com/five-best-audio book-services-1688572545](https://lifehacker.com/five-best-audiobook-services-1688572545)
+> 原文：<https://lifehacker.com/five-best-audiobook-services-1688572545>
 
 如果你正在寻找一种方便的方法来让更多的书融入你忙碌的生活，试着挑选一本有声读物。你可以在上下班的路上听，也可以在度假闲逛的时候听，或者在家里隔离期间想些事情打发时间的时候听。
 

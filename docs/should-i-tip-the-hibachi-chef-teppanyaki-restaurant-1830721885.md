@@ -1,6 +1,6 @@
 # 问咸味女服务员:我该给炭火盆厨师小费吗？
 
-> 原文:[https://the take out . com/should-I-tip-the-hibachi-chef-tepanyaki-restaurant-1830721885](https://thetakeout.com/should-i-tip-the-hibachi-chef-teppanyaki-restaurant-1830721885)
+> 原文：<https://thetakeout.com/should-i-tip-the-hibachi-chef-teppanyaki-restaurant-1830721885>
 
 > 嗨，咸味，我的问题很简单:我们应该给炭火盆厨师小费吗？如果有，多少？服务员和厨师会平分小费吗(我听说他们会，所以当我围着炭火盆吃饭时，我会给额外的小费)...你能为我澄清这个灰色地带吗？
 > 

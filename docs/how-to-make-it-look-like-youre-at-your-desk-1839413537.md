@@ -1,6 +1,6 @@
 # 如何让它看起来像你在你的办公桌前
 
-> 原文:[https://life hacker . com/how-to-make it-like-you-at-desk-1839413537](https://lifehacker.com/how-to-make-it-look-like-youre-at-your-desk-1839413537)
+> 原文：<https://lifehacker.com/how-to-make-it-look-like-youre-at-your-desk-1839413537>
 
 你不需要在办公室完成工作——但是有时候让办公室看起来像你在那里是个好主意。
 

@@ -1,6 +1,6 @@
 # the ruthless reality of amazons one day shipping 1835513901
 
-> 原文:[https://gizmodo . com/the-reality-of-amazons-one-day-shipping-1835513901](https://gizmodo.com/the-ruthless-reality-of-amazons-one-day-shipping-1835513901)
+> 原文：<https://gizmodo.com/the-ruthless-reality-of-amazons-one-day-shipping-1835513901>
 
 随着亚马逊从默认的两天送货服务转向一天送货服务，亚马逊迅速扩大了内部送货服务。该公司 [承诺](https://www.cnbc.com/2019/04/25/amazon-spending-800-mln-to-make-free-one-day-shipping-prime-default.html) 本季度花费 8 亿美元实现一日送达，作为所有 prime 会员的默认送货选项。但这种有计划的增长引发了工人、合同快递公司和物流分析师的担忧，他们担心亚马逊正试图主导另一个经济领域。
 

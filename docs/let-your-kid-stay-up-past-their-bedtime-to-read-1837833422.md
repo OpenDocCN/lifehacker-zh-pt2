@@ -1,6 +1,6 @@
 # 让你的孩子熬夜阅读
 
-> 原文:[https://life hacker . com/let-your-kid-stay-past-they-bedrome-to-read-1837833422](https://lifehacker.com/let-your-kid-stay-up-past-their-bedtime-to-read-1837833422)
+> 原文：<https://lifehacker.com/let-your-kid-stay-up-past-their-bedtime-to-read-1837833422>
 
 整个夏天，我儿子花了很多时间阅读，部分原因是这是他第三喜欢的打发时间的方式(第一种方式是和朋友一起玩；第二个是任何和所有的屏幕时间)，部分是因为他正试图赚取一张餐馆优惠券。
 

@@ -1,6 +1,6 @@
 # 这一周，我们都想找个人来责怪
 
-> 原文:[https://life hacker . com/this-is-the-week-that-we ' s-all-that-the-week-to-find someone-to-kill-1842968679](https://lifehacker.com/this-is-the-week-we-all-try-to-find-someone-to-blame-1842968679)
+> 原文：<https://lifehacker.com/this-is-the-week-we-all-try-to-find-someone-to-blame-1842968679>
 
 这场危机中的每一周似乎都有一个主题。三月初的那一周，我们中的许多人第一次经历了禁闭，这是一个在家锻炼和吃酸面团面包的天真的一周，希望这一切很快就会过去。就在不久前，有一周我们都在争论口罩的问题，包括口罩是否有用，以及谁应该戴口罩。本周，在我看来，一种即将爆发的怨恨已经冒泡，本周的主题是:责备。
 

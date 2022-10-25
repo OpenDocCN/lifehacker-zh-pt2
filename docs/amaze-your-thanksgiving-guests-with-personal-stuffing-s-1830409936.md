@@ -1,6 +1,6 @@
 # 让你的感恩节客人惊喜地品尝充满馅料的南瓜
 
-> 原文:[https://life hacker . com/amaze-your-thanksgiving-guests-s-1830409936](https://lifehacker.com/amaze-your-thanksgiving-guests-with-personal-stuffing-s-1830409936)
+> 原文：<https://lifehacker.com/amaze-your-thanksgiving-guests-with-personal-stuffing-s-1830409936>
 
 如果我对 [烤火鸡](https://skillet.lifehacker.com/choose-taste-over-looks-when-cooking-your-turkey-1820444769) 有一点批评的话，那就是你不能把它塞满。我甚至不喜欢火鸡里的填料，但称之为“填料”感觉不对，因为你实际上并没有做这样的事情。但是你也可以用填料填充其他东西，我最喜欢的是(可爱！)迷你壁球。
 

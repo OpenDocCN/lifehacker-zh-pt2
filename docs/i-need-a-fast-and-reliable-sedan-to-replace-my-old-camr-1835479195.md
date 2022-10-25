@@ -1,6 +1,6 @@
 # 我需要一辆又快又可靠的轿车来取代我的旧凯美瑞！应该买什么车？
 
-> 原文:[https://jalopnik . com/I-need-a-fast-and-reliable-sedan-to-replace-my-old-camr-1835479195](https://jalopnik.com/i-need-a-fast-and-reliable-sedan-to-replace-my-old-camr-1835479195)
+> 原文：<https://jalopnik.com/i-need-a-fast-and-reliable-sedan-to-replace-my-old-camr-1835479195>
 
 约翰已经厌倦了他 13 年的凯美瑞，它对他很好，但现在是升级的时候了。他正在寻找一种有点刺激的东西，这种东西不需要花很多钱就能保持在路上。他应该买什么车？
 

@@ -1,6 +1,6 @@
 # 如何玩并赢得谷歌的万圣节主题多人游戏
 
-> 原文:[https://life hacker . com/how-to-play-and-win-Google-万圣节主题-多人游戏-1830119039](https://lifehacker.com/how-to-play-and-win-googles-halloween-themed-multiplay-1830119039)
+> 原文：<https://lifehacker.com/how-to-play-and-win-googles-halloween-themed-multiplay-1830119039>
 
 谷歌的万圣节主题涂鸦于周二上线，它恰好是一款多人竞技游戏，名为 [*不给糖就捣蛋:食尸鬼大决斗*](https://www.google.com/doodles/halloween-2018) 。
 

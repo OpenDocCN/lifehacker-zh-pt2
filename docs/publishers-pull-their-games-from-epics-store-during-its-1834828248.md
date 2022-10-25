@@ -1,6 +1,6 @@
 # 在大减价期间，出版商从 Epic 的商店撤下他们的游戏
 
-> 原文:[https://kotaku . com/publishers-pull-thes-games-from-epics-store-during-its-1834828248](https://kotaku.com/publishers-pull-their-games-from-epics-store-during-its-1834828248)
+> 原文：<https://kotaku.com/publishers-pull-their-games-from-epics-store-during-its-1834828248>
 
 今天早些时候，Epic 再次从 Steam 的书中吸取了一页， [宣布了一项“大甩卖”](https://kotaku.com/epic-s-controversial-pc-gaming-store-is-doing-its-first-1834813817) ，其中包括百分比折扣以及在 Epic Games Store 上每款售价 14.99 美元或更高的游戏额外优惠 10 美元。销售看似一帆风顺，但随后两款主要游戏突然从商店中消失。
 

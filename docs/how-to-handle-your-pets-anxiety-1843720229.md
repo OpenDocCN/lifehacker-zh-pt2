@@ -1,6 +1,6 @@
 # 如何处理宠物的焦虑
 
-> 原文:[https://life hacker . com/how-to-hand-your-pets-anxiety-1843720229](https://lifehacker.com/how-to-handle-your-pets-anxiety-1843720229)
+> 原文：<https://lifehacker.com/how-to-handle-your-pets-anxiety-1843720229>
 
 如果你的宠物最近行为古怪，你并不孤单。疫情时代 p et 的主人报告了他们的猫狗 一系列 [奇怪的新行为。对我们许多毛茸茸的伙伴来说，像攻击家具、旋转、过度梳理毛发、增加发声和抓挠这样的反常行为似乎是新的异常现象。](https://www.vox.com/the-highlight/2020/4/24/21231806/coronavirus-pets-covid-19-cats-dogs)
 

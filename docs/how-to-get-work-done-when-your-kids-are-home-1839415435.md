@@ -1,6 +1,6 @@
 # 当你的孩子在家时，如何完成工作
 
-> 原文:[https://life hacker . com/how-to-get-work-done-when-your-kids-home-1839415435](https://lifehacker.com/how-to-get-work-done-when-your-kids-are-home-1839415435)
+> 原文：<https://lifehacker.com/how-to-get-work-done-when-your-kids-are-home-1839415435>
 
 每个人都有一个在家工作的计划，直到你的孩子流鼻涕和轻微发烧醒来。在这一点上，许多父母会告诉你，这只是为了度过一天。但是有时候，用正确的心态和策略，你可以拥有一切。
 

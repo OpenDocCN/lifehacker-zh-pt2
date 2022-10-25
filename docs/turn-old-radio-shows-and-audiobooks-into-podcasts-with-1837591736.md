@@ -1,6 +1,6 @@
 # 使用 Fourble 将旧的广播节目和有声读物变成播客
 
-> 原文:[https://life hacker . com/turn-old-radio-shows-and-audio books-with-1837591736](https://lifehacker.com/turn-old-radio-shows-and-audiobooks-into-podcasts-with-1837591736)
+> 原文：<https://lifehacker.com/turn-old-radio-shows-and-audiobooks-into-podcasts-with-1837591736>
 
 广播节目档案很难找到；即使有，也往往是以尴尬的形式出现。(为了得到电台情景喜剧 [*【小屋压力】*](https://www.bbc.co.uk/programmes/b00lmcxj/episodes/guide) ，我不得不买一季作为音乐专辑，另一季作为有声读物。)你可以在 [互联网档案](https://archive.org/search.php?query=subject%3A%22Radio%22&and[]=mediatype%3A%22audio%22) 上找到一些节目，但是听着别扭。网站 [Fourble](https://fourble.co.uk/) 解决了这个问题。
 

@@ -1,6 +1,6 @@
 # 你现在可以改变 Alexa 的语速
 
-> 原文:[https://life hacker . com/you-can-now-change-alexas-speed-1837075956](https://lifehacker.com/you-can-now-change-alexas-speaking-speed-1837075956)
+> 原文：<https://lifehacker.com/you-can-now-change-alexas-speaking-speed-1837075956>
 
 现在，如果 Alexa 对你的反应太快，你可以让她慢下来。
 

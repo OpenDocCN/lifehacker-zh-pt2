@@ -1,6 +1,6 @@
 # 如何查看您的冠状病毒救济款的状态
 
-> 原文:[https://life hacker . com/how-to-check-the-status-of-your-coronavirus-relief-paym-1842868515](https://lifehacker.com/how-to-check-the-status-of-your-coronavirus-relief-paym-1842868515)
+> 原文：<https://lifehacker.com/how-to-check-the-status-of-your-coronavirus-relief-paym-1842868515>
 
 如果你担心你的冠状病毒救济款项何时到达，或者去哪里寻找这笔钱，你现在可以找到这些问题的答案。
 

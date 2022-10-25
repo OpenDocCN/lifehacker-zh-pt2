@@ -1,6 +1,6 @@
 # wrangle control of your life with a notion wiki 1833077259
 
-> 原文:[https://life hacker . com/wrangle-control-of-your-life-with-a concept-wiki-1833077259](https://lifehacker.com/wrangle-control-of-your-life-with-a-notion-wiki-1833077259)
+> 原文：<https://lifehacker.com/wrangle-control-of-your-life-with-a-notion-wiki-1833077259>
 
 这可能看起来违反直觉，但有时你需要*另一件*事情来帮助自己变得有条理，即使你对你已经争论的所有应用和服务感到疲劳。 [**观念**](https://notion.so/) 是一个一体化的工作空间应用程序，可以帮助你减少对某个特定项目的所有部分的不知所措，即使该项目与你的日常生活一样庞大。
 

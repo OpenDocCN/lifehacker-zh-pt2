@@ -1,6 +1,6 @@
 # 你现在可以免费听一些有声读物
 
-> 原文:[https://life hacker . com/you-can-listen-to-some-audible-audio-books-free-righ-1842441584](https://lifehacker.com/you-can-listen-to-some-audible-audiobooks-for-free-righ-1842441584)
+> 原文：<https://lifehacker.com/you-can-listen-to-some-audible-audiobooks-for-free-righ-1842441584>
 
 当全国各地的学校关闭时， [Audible 正在免费提供它的一些收藏，](https://stories.audible.com/start-listen) 。与其他一些免费服务不同，你需要注册试用，或者至少提供你的电子邮件地址，这些服务都可以在没有登录和支付信息交换的情况下进行流式传输。
 

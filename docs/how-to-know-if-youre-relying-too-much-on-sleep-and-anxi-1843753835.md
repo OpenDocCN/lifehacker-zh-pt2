@@ -1,6 +1,6 @@
 # 你是否过度依赖睡眠或抗焦虑药物？
 
-> 原文:[https://life hacker . com/how-to-know-if-you-过分依赖睡眠和安西-1843753835](https://lifehacker.com/how-to-know-if-youre-relying-too-much-on-sleep-and-anxi-1843753835)
+> 原文：<https://lifehacker.com/how-to-know-if-youre-relying-too-much-on-sleep-and-anxi-1843753835>
 
 与往常相比，我们的生活现在更被压力所定义，而压力的结果就是许多焦虑的不眠之夜。对许多人来说，这意味着转向抗焦虑药物或处方睡眠辅助药物。事实上，在过去的几个月里，抗焦虑和睡眠药物的 [处方已经增加](https://www.wsj.com/articles/more-people-are-taking-drugs-for-anxiety-and-insomnia-and-doctors-are-worried-11590411600?mod=e2tw) 到了医生们越来越担心他们的病人可能会过度使用药物或者对药物产生依赖的程度。
 

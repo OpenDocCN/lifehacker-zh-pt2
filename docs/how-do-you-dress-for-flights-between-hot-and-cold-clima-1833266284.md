@@ -1,6 +1,6 @@
 # 在炎热和寒冷气候之间飞行时，你如何着装？
 
-> 原文:[https://life hacker . com/how-do-you-dress-to-flight-the-hot-and-cold-clima-1833266284](https://lifehacker.com/how-do-you-dress-for-flights-between-hot-and-cold-clima-1833266284)
+> 原文：<https://lifehacker.com/how-do-you-dress-for-flights-between-hot-and-cold-clima-1833266284>
 
 从非常冷的地方飞到非常热的地方是最好的问题。(反向行程...没那么严重。)但这也带来了一些后勤问题。
 

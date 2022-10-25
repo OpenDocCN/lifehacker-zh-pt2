@@ -1,6 +1,6 @@
 # 使用应用程序更好，还是用传统的方式更好？
 
-> 原文:[https://life hacker . com/is-it-better-to-use-a-app-or-do-it-the-old-fashion-1835382063](https://lifehacker.com/is-it-better-to-use-an-app-or-do-it-the-old-fashioned-1835382063)
+> 原文：<https://lifehacker.com/is-it-better-to-use-an-app-or-do-it-the-old-fashioned-1835382063>
 
 你有没有拿出手机写下一个清单，然后想“这种方式真的比以前更好吗？”
 

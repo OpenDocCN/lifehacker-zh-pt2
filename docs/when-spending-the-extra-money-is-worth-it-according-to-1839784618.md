@@ -1,6 +1,6 @@
 # 根据 Reddit 的说法，什么时候花额外的钱是值得的
 
-> 原文:[https://life hacker . com/when-spending the extra-money is-value-by-1839784618](https://lifehacker.com/when-spending-the-extra-money-is-worth-it-according-to-1839784618)
+> 原文：<https://lifehacker.com/when-spending-the-extra-money-is-worth-it-according-to-1839784618>
 
 当商店里一个更便宜的版本就摆在你面前，甚至可能就在同一个货架上时，很难证明花更多的钱买一件东西是合理的。但是仅仅因为某样东西便宜并不意味着它能满足你的需求。在最好的情况下，你会比你想象的更快地更换物品。在最坏的情况下，那个小气鬼几乎会立刻抛弃你，让你后悔当初没有多花几个钱。
 

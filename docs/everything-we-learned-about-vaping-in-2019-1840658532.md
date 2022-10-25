@@ -1,6 +1,6 @@
 # 我们在 2019 年了解到的关于 Vaping 的一切
 
-> 原文:[https://life hacker . com/everything-we-learn-on-vaping-2019-1840658532](https://lifehacker.com/everything-we-learned-about-vaping-in-2019-1840658532)
+> 原文：<https://lifehacker.com/everything-we-learned-about-vaping-in-2019-1840658532>
 
 你可能会说，2019 年不是 vaping 的好年景。今年年初，vaping 作为一种流行的、潜在的比吸烟更安全的替代品，仍然享有它的地位。也就是说，直到我们意识到某些类型的 vapes 可能导致突发疾病甚至死亡。
 

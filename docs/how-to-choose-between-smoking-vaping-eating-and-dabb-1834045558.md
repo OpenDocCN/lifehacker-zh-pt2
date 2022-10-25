@@ -1,6 +1,6 @@
 # how to choose between smoking vaping eating and dabb 1834045558
 
-> 原文:[https://life hacker . com/how-to-choose-that-smoking-VAP-eating-dab b-1834045558](https://lifehacker.com/how-to-choose-between-smoking-vaping-eating-and-dabb-1834045558)
+> 原文：<https://lifehacker.com/how-to-choose-between-smoking-vaping-eating-and-dabb-1834045558>
 
 在经历了几代人的阴影和漫漫长夜之后，“还在等那个人，那个人怎么了，我们应该再打电话给他吗？”焦虑，购买合法大麻正在成为美国的一种生活方式。娱乐性大麻现在在 10 个州和哥伦比亚特区合法用于成人，在 33 个州允许用于医疗，而更多的州已经将拥有大麻合法化。药房的新法律菜单可能有点令人不知所措，但从好的方面来看，有点像在欧洲国家看医疗费用。这么多选择！这么便宜！现在有格兰诺拉麦片了？“粉碎”究竟是什么？
 

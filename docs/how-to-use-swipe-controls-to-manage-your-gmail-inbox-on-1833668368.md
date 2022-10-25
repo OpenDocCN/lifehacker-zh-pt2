@@ -1,6 +1,6 @@
 # 如何使用滑动控制在 iOS 上管理您的 Gmail 收件箱
 
-> 原文:[https://life hacker . com/how-to-use-swipe-controls-to-manage-your-Gmail-inbox-on-1833668368](https://lifehacker.com/how-to-use-swipe-controls-to-manage-your-gmail-inbox-on-1833668368)
+> 原文：<https://lifehacker.com/how-to-use-swipe-controls-to-manage-your-gmail-inbox-on-1833668368>
 
 谷歌宣布滑动手势控制 [即将在 Gmail iOS 开始](https://gsuiteupdates.googleblog.com/2019/03/take-action-faster-with-customizable.html?utm_source=feedburner&utm_medium=feed&utm_campaign=Feed%3A+GoogleAppsUpdates+(G+Suite+Update+Alerts)) [今天](https://gsuiteupdates.googleblog.com/2019/03/take-action-faster-with-customizable.html?utm_source=feedburner&utm_medium=feed&utm_campaign=Feed%3A+GoogleAppsUpdates+(G+Suite+Update+Alerts)) 推出，应该很快就能为所有 iOS Gmail 用户提供。尽管此次更新没有给 Gmail 添加任何新的命令，但它让用户自定义向左或向右“滑动”的动作，从而使快速管理收件箱变得更加容易。
 

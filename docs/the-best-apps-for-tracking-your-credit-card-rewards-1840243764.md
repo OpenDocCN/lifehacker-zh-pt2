@@ -1,6 +1,6 @@
 # 追踪信用卡奖励的最佳应用程序
 
-> 原文:[https://life hacker . com/the-best-apps-for-tracking-your-credit-card-rewards-1840243764](https://lifehacker.com/the-best-apps-for-tracking-your-credit-card-rewards-1840243764)
+> 原文：<https://lifehacker.com/the-best-apps-for-tracking-your-credit-card-rewards-1840243764>
 
 如果你有几张不同的奖励信用卡，很难跟踪哪张卡给了你哪些好处。有些卡给你最多的点数，用于购买杂货、汽油或神奇的旋转奖励类别；其他人把他们的最高奖励留到特定的航空公司或酒店预订。这足以让你放弃玩你曾经渴望的点数游戏，并且每次都输给了同一张卡。
 

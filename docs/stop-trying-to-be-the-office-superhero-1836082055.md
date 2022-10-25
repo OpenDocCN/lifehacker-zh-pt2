@@ -1,6 +1,6 @@
 # stop trying to be the office superhero 1836082055
 
-> 原文:[https://life hacker . com/stop-尝试成为办公室超级英雄-1836082055](https://lifehacker.com/stop-trying-to-be-the-office-superhero-1836082055)
+> 原文：<https://lifehacker.com/stop-trying-to-be-the-office-superhero-1836082055>
 
 你已经成为办公室里一大堆其他人无法(或不愿)完成的任务的“关键人物”。好消息:你觉得自己不可或缺。坏消息:你基本上永远不能休假。以下是如何摆脱这种困境的方法——或者，更好的是，从一开始就避免它。
 

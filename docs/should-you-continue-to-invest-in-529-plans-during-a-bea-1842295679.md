@@ -1,6 +1,6 @@
 # 熊市期间应该继续投资 529 计划吗？
 
-> 原文:[https://life hacker . com/should-you-continue-to-invest-in-a-bea-1842295679](https://lifehacker.com/should-you-continue-to-invest-in-529-plans-during-a-bea-1842295679)
+> 原文：<https://lifehacker.com/should-you-continue-to-invest-in-529-plans-during-a-bea-1842295679>
 
 现在我们正处于熊市——股票下跌了 20%——你可能会问自己，把钱投资到你孩子(或孙子)的 529 计划中是否还值得。
 

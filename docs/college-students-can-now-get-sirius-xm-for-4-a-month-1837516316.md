@@ -1,6 +1,6 @@
 # 大学生现在每月花 4 美元就可以获得 Sirius XM
 
-> 原文:[https://life hacker . com/college-students-can-now-get-Sirius-XM-for-4 a-month-1837516316](https://lifehacker.com/college-students-can-now-get-sirius-xm-for-4-a-month-1837516316)
+> 原文：<https://lifehacker.com/college-students-can-now-get-sirius-xm-for-4-a-month-1837516316>
 
 如果你目前正在一所学院或大学注册，那么天狼星 XM 有一个交易给你。卫星广播公司向学生提供每月 4 美元的付费服务，比传统的 13 美元的价格低了 9 美元。
 

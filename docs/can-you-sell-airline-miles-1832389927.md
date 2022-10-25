@@ -1,6 +1,6 @@
 # 你能卖航空里程吗？
 
-> 原文:[https://life hacker . com/can-you-sell-airline-miles-1832389927](https://lifehacker.com/can-you-sell-airline-miles-1832389927)
+> 原文：<https://lifehacker.com/can-you-sell-airline-miles-1832389927>
 
 假设你正在黑市 搜寻一些泄露的密码，这时你发现了一个航空里程的宝库。“有意思，”你想，“我也有一些航空里程想卖掉！我该怎么做呢？”
 

@@ -1,6 +1,6 @@
 # 技术黑客之王阿布·扎法尔的最佳视频
 
-> 原文:[https://life hacker . com/the-best-videos-by-Abu-Zafar-king-of-tech-hacks-1844404690](https://lifehacker.com/the-best-videos-by-abu-zafar-king-of-tech-hacks-1844404690)
+> 原文：<https://lifehacker.com/the-best-videos-by-abu-zafar-king-of-tech-hacks-1844404690>
 
 在过去的一年半时间里，我们无畏的视频制作人 [阿布·扎法尔](https://lifehacker.com/author/abuzafar93) 为 Lifehacker 撰写、主持和编辑了一些精彩片段。为了祝愿他在新的努力中一切顺利，我们收集了一些他最好的视频供你欣赏。
 

@@ -1,6 +1,6 @@
 # 2019 年 6 月亚马逊 Prime 视频会有什么
 
-> 原文:[https://life hacker . com/whats-coming-to-Amazon-prime-video-in-June-2019-1835100854](https://lifehacker.com/whats-coming-to-amazon-prime-video-in-june-2019-1835100854)
+> 原文：<https://lifehacker.com/whats-coming-to-amazon-prime-video-in-june-2019-1835100854>
 
 六月将为平台带来五部亚马逊原创系列电影和两部亚马逊原创电影，这些电影都将免费为现有的 Prime 会员提供流媒体或下载。
 

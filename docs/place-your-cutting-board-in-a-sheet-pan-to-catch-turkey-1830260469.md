@@ -1,6 +1,6 @@
 # 把你的切菜板放在一个薄平底锅里，接住火鸡流出的水
 
-> 原文:[https://life hacker . com/place-your-cut-board-in-a-sheet-pan-to-catch-turkey-1830260469](https://lifehacker.com/place-your-cutting-board-in-a-sheet-pan-to-catch-turkey-1830260469)
+> 原文：<https://lifehacker.com/place-your-cutting-board-in-a-sheet-pan-to-catch-turkey-1830260469>
 
 在一个完美的世界里，我们都拥有漂亮、巨大的砧板，这些砧板是从自由放养的树木上雕刻而成的，边缘上有凹槽，用来收集切割肉类时可能出现的任何溢出物。但是地狱是空的，魔鬼在这里，我的砧板没有凹槽。
 

@@ -1,6 +1,6 @@
 # 如何在面试中解释你被解雇了
 
-> 原文:[https://life hacker . com/how-to-explain-the-you are-fired-in-a-job-intervi-1833295789](https://lifehacker.com/how-to-explain-that-you-were-fired-during-a-job-intervi-1833295789)
+> 原文：<https://lifehacker.com/how-to-explain-that-you-were-fired-during-a-job-intervi-1833295789>
 
 求职可能会很残酷；即使你的简历无懈可击，仅仅是获得第一次面试就感觉是一个巨大的障碍。如果不是呢？嗯，这就是你如何向未来的雇主解释过去的一份工作的糟糕结局。
 

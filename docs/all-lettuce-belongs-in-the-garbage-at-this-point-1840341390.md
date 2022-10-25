@@ -1,6 +1,6 @@
 # 此时，所有的莴苣都属于垃圾
 
-> 原文:[https://life hacker . com/all-莴苣-属于-在这个点-1840341390](https://lifehacker.com/all-lettuce-belongs-in-the-garbage-at-this-point-1840341390)
+> 原文：<https://lifehacker.com/all-lettuce-belongs-in-the-garbage-at-this-point-1840341390>
 
 两次袋装沙拉召回可能会让你这周不想吃蔬菜。或者永远。
 

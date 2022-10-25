@@ -1,6 +1,6 @@
 # Edison Mail 的安全灾难对您的电子邮件意味着什么
 
-> 原文:[https://life hacker . com/what-Edison-mail-security-disaster-means-for-your-email-1843526187](https://lifehacker.com/what-edison-mails-security-disaster-means-for-your-emai-1843526187)
+> 原文：<https://lifehacker.com/what-edison-mails-security-disaster-means-for-your-emai-1843526187>
 
 流行的第三方电子邮件客户端 Edison Mail 最近允许少数 iOS 用户访问不属于他们的电子邮件地址。这不是黑客攻击或泄露，而是一个 bug——而且是一个相当大的 bug。
 

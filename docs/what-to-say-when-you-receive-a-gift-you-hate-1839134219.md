@@ -1,6 +1,6 @@
 # 收到不喜欢的礼物时该说什么
 
-> 原文:[https://life hacker . com/1839134219](https://lifehacker.com/what-to-say-when-you-receive-a-gift-you-hate-1839134219)
+> 原文：<https://lifehacker.com/what-to-say-when-you-receive-a-gift-you-hate-1839134219>
 
 收到礼物总是一种尴尬的交流，尤其是当送礼者，不管是你的妈妈还是办公室的同事，明确表示他们花了时间给你找礼物。考虑到这些信息，人们显然会有所期待——一旦你打开那个包装精美的礼盒，除了“我将为此而生，为此而死”之外，任何东西都可能会让他们失望。
 

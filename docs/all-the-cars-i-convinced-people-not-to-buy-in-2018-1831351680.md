@@ -1,6 +1,6 @@
 # 2018 年我说服大家不要买的所有车
 
-> 原文:[https://jalopnik . com/all-the-cars-I-confident-people-not-buy-in-2018-1831351680](https://jalopnik.com/all-the-cars-i-convinced-people-not-to-buy-in-2018-1831351680)
+> 原文：<https://jalopnik.com/all-the-cars-i-convinced-people-not-to-buy-in-2018-1831351680>
 
 又到了一年中的这个时候，我在 [谨慎购车建议](https://jalopnik.com/c/car-buying) 中稍作休息，给大家一个我说“不。只是不”的所有时间的纲要。这里是我说服人们在 2018 年不要购买的所有汽车，包括一些 Jalopnik 最喜欢的汽车。
 

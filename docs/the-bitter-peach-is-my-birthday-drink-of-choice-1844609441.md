@@ -1,6 +1,6 @@
 # 苦桃是我生日饮料的选择
 
-> 原文:[https://life hacker . com/the-bitter-peach-is-my-birthday-drink-of-choice-1844609441](https://lifehacker.com/the-bitter-peach-is-my-birthday-drink-of-choice-1844609441)
+> 原文：<https://lifehacker.com/the-bitter-peach-is-my-birthday-drink-of-choice-1844609441>
 
 在《快乐时光》即将出版的三天前，我正在写这一期的《快乐时光》。当我写这篇文章时，我已经 33 岁了。明天，我就 34 岁了。当你读到这封信的时候，我已经 34 岁两天了。时间就是这样运转的——它行进着，不等人( [甚至米克·贾格尔](https://www.youtube.com/watch?v=YsH2In5r2sM) ，另一个著名的狮子座)。
 

@@ -1,6 +1,6 @@
 # 如何发现当地检察官是否追究警察的责任
 
-> 原文:[https://life hacker . com/how-to-find-out-if-your-local-professor-is-holding-pol-1843886724](https://lifehacker.com/how-to-find-out-if-your-local-prosecutor-is-holding-pol-1843886724)
+> 原文：<https://lifehacker.com/how-to-find-out-if-your-local-prosecutor-is-holding-pol-1843886724>
 
 解决警察暴力是一个复杂的问题，需要多种解决方案。在追究警察责任的问题上，当地的检察官扮演着重要的角色。检察官的工作是在法庭上代表地方、州或联邦政府，帮助调查犯罪，并决定是否指控某人犯罪。当涉及到警察暴力时，他们是决定一名警察是否以及如何被指控的人。
 

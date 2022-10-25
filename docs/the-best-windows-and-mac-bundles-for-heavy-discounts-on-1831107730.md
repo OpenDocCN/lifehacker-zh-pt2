@@ -1,6 +1,6 @@
 # 最棒的 Windows 和 Mac 套装，在应用程序和游戏上提供大幅折扣
 
-> 原文:[https://life hacker . com/the-best-windows-and-MAC-bundles-for-heavy-discounts-on-1831107730](https://lifehacker.com/the-best-windows-and-mac-bundles-for-heavy-discounts-on-1831107730)
+> 原文：<https://lifehacker.com/the-best-windows-and-mac-bundles-for-heavy-discounts-on-1831107730>
 
 应用捆绑包是一个很好的方式，可以节省一大笔有用的应用和游戏的钱。这个概念很容易理解:开发者或第三方店面将一堆有趣的软件打包到一个数字盒子里，然后以很大的折扣出售，比你单独购买每个应用程序的成本要低得多。有时候，你打一个统一费率就能获得一批应用；其他时候，你可以自己定价，你支付的费用决定了你能获得多少应用程序。
 

@@ -1,6 +1,6 @@
 # 如何在晨星上研究 401(k)基金
 
-> 原文:[https://life hacker . com/how-to-research-401-k-funds-on-morning star-1833445409](https://lifehacker.com/how-to-research-401-k-funds-on-morningstar-1833445409)
+> 原文：<https://lifehacker.com/how-to-research-401-k-funds-on-morningstar-1833445409>
 
 周三，我写了如何 [研究你的 401(k)经理](https://twocents.lifehacker.com/how-to-improve-your-401-k-1833432710) 提供的基金，并建议使用雅虎财经或晨星这样的网站。今天我就来详细说说你查资金的时候其实需要注意什么。
 

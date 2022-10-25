@@ -1,6 +1,6 @@
 # 如何在假期找到便宜的现场演出票
 
-> 原文:[https://life hacker . com/how-to-find-cheap-er-tickets-in-the-1840032429](https://lifehacker.com/how-to-find-cheap-er-tickets-for-live-shows-during-the-1840032429)
+> 原文：<https://lifehacker.com/how-to-find-cheap-er-tickets-for-live-shows-during-the-1840032429>
 
 今年可能是孩子们的第一个迪士尼冰上表演年，或者是本地制作的《圣诞颂歌》或《胡桃夹子》。在假期，有很多诱人的方式来打破我们所有的屏幕时间，播放一些经典的现场家庭娱乐节目，但这也恰好是一年中最花钱的时候。
 

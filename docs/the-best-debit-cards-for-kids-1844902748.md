@@ -1,6 +1,6 @@
 # 最适合孩子的借记卡
 
-> 原文:[https://life hacker . com/the-best-the-debit-cards-for-kids-1844902748](https://lifehacker.com/the-best-debit-cards-for-kids-1844902748)
+> 原文：<https://lifehacker.com/the-best-debit-cards-for-kids-1844902748>
 
 虽然越来越多的人要求 T2 和 T3 在学校里学习更多的金融知识，但大多数 T4 的孩子仍然在家里学习理财知识。 [研究显示](https://mascdn.azureedge.net/cms/the-money-advice-service-habit-formation-and-learning-in-young-children-may2013.pdf) 孩子可能在七岁时就了解个人理财的基础知识，所以你可以尽早开始教他们。一种方法是允许他们在你的监督下用专门为孩子设计的借记卡花钱。这些是可供选择的最佳选项。
 

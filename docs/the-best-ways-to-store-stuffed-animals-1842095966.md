@@ -1,6 +1,6 @@
 # 储存毛绒动物玩具的最佳方式
 
-> 原文:[https://life hacker . com/the-best-ways-to-store-fluffed-1842095966](https://lifehacker.com/the-best-ways-to-store-stuffed-animals-1842095966)
+> 原文：<https://lifehacker.com/the-best-ways-to-store-stuffed-animals-1842095966>
 
 这是许多好心人送的最好礼物。它们很柔软！它们毛绒绒的！他们很可爱！但是在你意识到之前，你的孩子已经有大约 147 个填充动物玩具了——这些玩具不能堆叠，只能危险地堆积起来，直到最轻微的轻推就会使整座山崩塌。
 

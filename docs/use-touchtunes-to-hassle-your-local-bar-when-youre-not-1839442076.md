@@ -1,6 +1,6 @@
 # 当你不在酒吧的时候，用 TouchTunes 来骚扰你当地的酒吧
 
-> 原文:[https://life hacker . com/use-touch tunes-to-laush-you-local-bar-when-you-not-1839442076](https://lifehacker.com/use-touchtunes-to-hassle-your-local-bar-when-youre-not-1839442076)
+> 原文：<https://lifehacker.com/use-touchtunes-to-hassle-your-local-bar-when-youre-not-1839442076>
 
 获得对点唱机的控制权会让人头脑发热，尤其是当那个人有点醉的时候。你可以善用这种力量，演奏一首每个人都会喜欢的歌曲(比如吉米·克罗斯的《算子》或 T-Pain 的《丹·比尔泽里安》)，或者你可以连续演奏 13 次《怪兽大杂烩》。你甚至不需要成为酒吧里的*。*
 

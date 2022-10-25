@@ -1,6 +1,6 @@
 # is fertility awareness contraception right for you 1834151752
 
-> 原文:[https://life hacker . com/is-生育-认知-避孕-你的权利-1834151752](https://lifehacker.com/is-fertility-awareness-contraception-right-for-you-1834151752)
+> 原文：<https://lifehacker.com/is-fertility-awareness-contraception-right-for-you-1834151752>
 
 如果你在过去几年的某个时候给你的朋友发短信、发短信或大声说出“节育”这个词，你可能会看到广告宣称有一个应用程序可以解决这个问题。几家公司承诺，用他们的应用程序和算法跟踪你的月经周期将有助于你防止怀孕——不需要激素、植入物或宫内节育器。
 

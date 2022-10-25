@@ -1,6 +1,6 @@
 # 如何将你的 PS4 传输到任何安卓手机上
 
-> 原文:[https://life hacker . com/how-to-stream-your-ps4-to-any-Android-phone-1838909366](https://lifehacker.com/how-to-stream-your-ps4-to-any-android-phone-1838909366)
+> 原文：<https://lifehacker.com/how-to-stream-your-ps4-to-any-android-phone-1838909366>
 
 嘿，Android 粉丝们，我知道你们可能已经厌倦了 iOS 用户对苹果街机的所有乐趣，但是也有一些好的游戏消息即将到来。索尼针对 PlayStation 4 的最新固件更新 使得在所有 Android 手机上使用 PS4 远程播放应用成为可能，允许你将游戏从 PS4 传输到手机。
 

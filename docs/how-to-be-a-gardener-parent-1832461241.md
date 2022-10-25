@@ -1,6 +1,6 @@
 # 如何成为“园丁”父母
 
-> 原文:[https://life hacker . com/how-to-be-a-gardener-parent-1832461241](https://lifehacker.com/how-to-be-a-gardener-parent-1832461241)
+> 原文：<https://lifehacker.com/how-to-be-a-gardener-parent-1832461241>
 
 “你能做到的，”我告诉我 7 岁的儿子。“我们不会停止，直到你得到它。我*知道*你能做到。”
 

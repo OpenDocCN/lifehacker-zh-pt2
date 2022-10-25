@@ -1,6 +1,6 @@
 # 第一次去 ALDI 旅行前要知道什么
 
-> 原文:[https://life hacker . com/what-to-know-before you ' s first-trip to aldi-1834924976](https://lifehacker.com/what-to-know-before-your-first-trip-to-aldi-1834924976)
+> 原文：<https://lifehacker.com/what-to-know-before-your-first-trip-to-aldi-1834924976>
 
 [对 ALDI](https://lifehacker.com/what-to-buy-and-skip-at-aldi-1798664491) 的崇拜是真实的，是强大的。这家连锁店的粉丝喜欢它独特的顾客体验方式，就像他们喜欢它的低价一样，并很快向他们遇到的每个人宣传它。
 

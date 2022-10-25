@@ -1,6 +1,6 @@
 # 适合您隔离生活方式的鸡尾酒
 
-> 原文:[https://life hacker . com/cocktails-to-fit-your-quarantine-life style-1842902304](https://lifehacker.com/cocktails-to-fit-your-quarantine-lifestyle-1842902304)
+> 原文：<https://lifehacker.com/cocktails-to-fit-your-quarantine-lifestyle-1842902304>
 
 在家做鸡尾酒比开啤酒或倒酒需要更多的原料(和工具),而且复杂性可能不是我们中任何一个人现在期待培养的氛围。幸运的是，鸡尾酒没有*和*那么复杂。
 

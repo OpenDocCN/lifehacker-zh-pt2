@@ -1,6 +1,6 @@
 # 立即更改你的 Wishbone 应用程序密码
 
-> 原文:[https://life hacker . com/change-your-wishbone-app-password-now-1843587573](https://lifehacker.com/change-your-wishbone-app-password-now-1843587573)
+> 原文：<https://lifehacker.com/change-your-wishbone-app-password-now-1843587573>
 
 如果你曾经使用过社交投票应用[Wishbone](https://wishbone.io/)你需要立即更改你的账户密码。今年早些时候，黑客入侵了这款手机应用，窃取了整个用户信息数据库，其中包含超过 4000 万个用户名、电子邮件、物理地址、电话号码和密码。据 ZDNet 报道，该数据库最近出现在流行的黑客论坛上； ZDNet 获得了数据库的副本，并确认账户信息是新的，不是 2017 年类似 Wishbone 泄露的转售。
 

@@ -1,6 +1,6 @@
 # 使用该网站快速创建您自己的自定义表情符号
 
-> 原文:[https://life hacker . com/quick-create-your-own-custom-e mojis-with this-website-1840114297](https://lifehacker.com/quickly-create-your-own-custom-emojis-with-this-website-1840114297)
+> 原文：<https://lifehacker.com/quickly-create-your-own-custom-emojis-with-this-website-1840114297>
 
 表情符号可以是推文或信息的有趣补充，但正确的表情符号并不存在。 [表情符号制作者](https://jamstack.studio/emoji) 是一个简单的工具，可以提供帮助。
 

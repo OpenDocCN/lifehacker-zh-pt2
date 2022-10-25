@@ -1,6 +1,6 @@
 # 这些航空公司在 2019 年的准点到达次数最少
 
-> 原文:[https://life hacker . com/these-airlines-has-the-less-on-time-arrivals-1840829471](https://lifehacker.com/these-airlines-had-the-fewest-on-time-arrivals-in-2019-1840829471)
+> 原文：<https://lifehacker.com/these-airlines-had-the-fewest-on-time-arrivals-in-2019-1840829471>
 
 如果你在不久的将来乘坐 Frontier 或 JetBlue，如果你的航班不能准时到达，不要感到惊讶。数据收集机构去年跟踪了超过 560 万次航班，根据准点到达情况对所有北美航空公司进行了排名。报告发现，边疆航空公司和捷蓝航空公司在让旅客在时间到达目的地方面表现最差。
 

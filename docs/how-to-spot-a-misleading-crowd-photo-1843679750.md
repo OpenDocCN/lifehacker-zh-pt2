@@ -1,6 +1,6 @@
 # 如何识别误导的人群照片
 
-> 原文:[https://life hacker . com/how-to-spot-a-missing-crowd-photo-1843679750](https://lifehacker.com/how-to-spot-a-misleading-crowd-photo-1843679750)
+> 原文：<https://lifehacker.com/how-to-spot-a-misleading-crowd-photo-1843679750>
 
 随着企业重新开业，人们去海滩和公园，你可能已经看到新闻照片或视频，显示人们挤进密集的人群，愉快地无视社交距离准则。但是这些照片可能会误导人，这要归功于一个相机技巧。
 

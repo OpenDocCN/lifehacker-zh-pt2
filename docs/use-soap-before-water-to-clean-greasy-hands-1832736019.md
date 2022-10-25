@@ -1,6 +1,6 @@
 # 先用肥皂再用水清洗油腻的手
 
-> 原文:[https://life hacker . com/use-soap-before-water-to-clean-油腻-hands-1832736019](https://lifehacker.com/use-soap-before-water-to-clean-greasy-hands-1832736019)
+> 原文：<https://lifehacker.com/use-soap-before-water-to-clean-greasy-hands-1832736019>
 
 每个人都知道传统的洗手程序:把你的手放在自来水下弄湿，加入一些肥皂，然后擦洗干净。不幸的是，如果你的手上涂了一层厚厚的油脂，通常的方法可能不会奏效——但是反过来肯定会。
 

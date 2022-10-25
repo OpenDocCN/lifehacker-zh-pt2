@@ -1,6 +1,6 @@
 # 如何开始跑步，即使你不擅长跑步
 
-> 原文:[https://life hacker . com/how-to-start-running-even-if-you-bad-it-1843399578](https://lifehacker.com/how-to-start-running-even-if-youre-bad-at-it-1843399578)
+> 原文：<https://lifehacker.com/how-to-start-running-even-if-youre-bad-at-it-1843399578>
 
 如果你想开始一个健身计划，跑步是你能做的最简单也是最便宜的事情之一。但是你如何开始跑步，尤其是如果你真的非常非常不擅长跑步的话？(我说的是“绕着街区跑让我忍俊不禁，怀疑自己是不是就要死了”的糟糕程度？)
 

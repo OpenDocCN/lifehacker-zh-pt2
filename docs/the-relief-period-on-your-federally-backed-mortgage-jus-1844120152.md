@@ -1,6 +1,6 @@
 # 你的联邦抵押贷款的减免期刚刚延长了
 
-> 原文:[https://life hacker . com/the-relief-period on-your-federally-backed-mortgage-jus-1844120152](https://lifehacker.com/the-relief-period-on-your-federally-backed-mortgage-jus-1844120152)
+> 原文：<https://lifehacker.com/the-relief-period-on-your-federally-backed-mortgage-jus-1844120152>
 
 担心在疫情期间支付抵押贷款的人将从政府获得延期偿付。联邦住房金融机构 [上周宣布](https://www.fhfa.gov/Media/PublicAffairs/Pages/FHFA-Extends-Foreclosure-and-Eviction-Moratorium-6172020.aspx) 房利美和房地美将延长他们的止赎和驱逐延期至“至少”8 月 31 日。
 

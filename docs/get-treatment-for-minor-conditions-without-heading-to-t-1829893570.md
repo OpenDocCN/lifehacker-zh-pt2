@@ -1,6 +1,6 @@
 # 有了这个网站，你就可以在不去医生办公室的情况下获得小病的治疗
 
-> 原文:[https://life hacker . com/get-treatment-for-minor-conditions-without-heading-to-t-1829893570](https://lifehacker.com/get-treatment-for-minor-conditions-without-heading-to-t-1829893570)
+> 原文：<https://lifehacker.com/get-treatment-for-minor-conditions-without-heading-to-t-1829893570>
 
 即使你有很好的保险，看医生有时也会是一种巨大的痛苦。你必须找到一个他们能给你安排的时间，找到一个你实际上可以下班去办公室的时间，并找出你需要支付共同支付费用的现金——而你正在做这一切的时候，你并没有感觉到自己的最佳状态。
 

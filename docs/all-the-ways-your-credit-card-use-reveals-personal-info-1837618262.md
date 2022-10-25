@@ -1,6 +1,6 @@
 # 你使用信用卡的所有方式都会泄露个人信息
 
-> 原文:[https://life hacker . com/all-the-ways-your-credit-card-use-reveals-personal-info-1837618262](https://lifehacker.com/all-the-ways-your-credit-card-use-reveals-personal-info-1837618262)
+> 原文：<https://lifehacker.com/all-the-ways-your-credit-card-use-reveals-personal-info-1837618262>
 
 如果有人问你为什么用信用卡购买日常物品，比如食品杂货，你可能会不假思索地说出一些组合，比如方便以后支付信用卡账单，保护消费者免受潜在的欺诈，或者不必携带现金或担心支票余额。
 

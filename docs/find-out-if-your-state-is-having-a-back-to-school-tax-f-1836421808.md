@@ -1,6 +1,6 @@
 # 了解一下你所在的州在 2019 年是否有返校免税周末
 
-> 原文:[https://life hacker . com/find-out-if-your-state-have-a-back-to-school-tax-f-1836421808](https://lifehacker.com/find-out-if-your-state-is-having-a-back-to-school-tax-f-1836421808)
+> 原文：<https://lifehacker.com/find-out-if-your-state-is-having-a-back-to-school-tax-f-1836421808>
 
 父母可以去药店买一个新的捕兽器并宣布返校购物结束的日子已经一去不复返了。所需学习用品的清单非常紧张。根据 [德勤的年度调查](https://www2.deloitte.com/us/en/pages/consumer-business/articles/back-to-school-survey.html#) ，爸爸妈妈们今年将在每个家庭的学习用品上花费大约 519 美元，这并不奇怪。
 

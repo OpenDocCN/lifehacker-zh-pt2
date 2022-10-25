@@ -1,6 +1,6 @@
 # 你应该在利率见顶之前投资 CDs 吗？
 
-> 原文:[https://life hacker . com/should-you-invest-before-interest-peak-1835129328](https://lifehacker.com/should-you-invest-in-cds-before-interest-rates-peak-1835129328)
+> 原文：<https://lifehacker.com/should-you-invest-in-cds-before-interest-rates-peak-1835129328>
 
 在经历了几个后衰退时期的零利率后，最近几年存款利率有了显著改善。这在一定程度上要归功于联邦基金利率，从 2015 年 12 月到 2018 年 12 月，美联储已经九次上调联邦基金利率。
 

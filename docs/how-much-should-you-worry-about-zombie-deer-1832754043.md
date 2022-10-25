@@ -1,6 +1,6 @@
 # 你应该有多担心‘僵尸’鹿？
 
-> 原文:[https://life hacker . com/how-do-much-you-should-journey-deer-1832754043](https://lifehacker.com/how-much-should-you-worry-about-zombie-deer-1832754043)
+> 原文：<https://lifehacker.com/how-much-should-you-worry-about-zombie-deer-1832754043>
 
 根据美国疾病控制和预防中心的报告，在 24 个州 的鹿、麋鹿和驼鹿中已经报道了慢性消耗性疾病 [。这种疾病并不新鲜，但它的绰号是:你现在可以阅读关于“僵尸鹿”的耸人听闻的标题](https://www.cdc.gov/prions/cwd/occurrence.html)
 

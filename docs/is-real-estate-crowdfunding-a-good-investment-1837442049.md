@@ -1,6 +1,6 @@
 # is real estate crowdfunding a good investment 1837442049
 
-> 原文:[https://life hacker . com/is-real-estate-crowd funding-a-good-investment-1837442049](https://lifehacker.com/is-real-estate-crowdfunding-a-good-investment-1837442049)
+> 原文：<https://lifehacker.com/is-real-estate-crowdfunding-a-good-investment-1837442049>
 
 问一个富人他们是如何变富的，很有可能他们会说他们投资了房地产。事实上，房地产是 [公认的最稳固的方式之一](https://www.forbes.com/sites/davidgreene/2018/11/27/why-real-estate-builds-wealth-more-consistently-than-other-asset-classes/#57718a685405) s 来建立财富。这就是为什么有很多人渴望买一套房子，看着它的价值随着时间的推移而上升。房东愿意管理多年的房客，以换取最终的购买回报。还有一些你在电视上看到的人，他们买房转手，寻求看似近于即时的利润。
 

@@ -1,6 +1,6 @@
 # 如果你不是开发者，如何安装最新的苹果测试版
 
-> 原文:[https://life hacker . com/how-to-install-the-latest-apple-beta-if-you-not-a-de-1835296432](https://lifehacker.com/how-to-install-the-latest-apple-betas-if-youre-not-a-de-1835296432)
+> 原文：<https://lifehacker.com/how-to-install-the-latest-apple-betas-if-youre-not-a-de-1835296432>
 
 [Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)) : title[![](../Images/80a55aae3a4e6ac59b23fae8fccddf22.png)](https://applemacos.kinja.com)[Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)Many people turn to Macs because they're incredibly easy to operate. That's true, but there's still plenty worth knowing before you can truly master your Mac.
 

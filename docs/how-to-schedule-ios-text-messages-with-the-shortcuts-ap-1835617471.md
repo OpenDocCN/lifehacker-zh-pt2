@@ -1,6 +1,6 @@
 # 如何使用快捷方式应用程序安排 iOS 短信
 
-> 原文:[https://life hacker . com/how-to-schedule-IOs-text-messages-with-the-shortcut s-AP-1835617471](https://lifehacker.com/how-to-schedule-ios-text-messages-with-the-shortcuts-ap-1835617471)
+> 原文：<https://lifehacker.com/how-to-schedule-ios-text-messages-with-the-shortcuts-ap-1835617471>
 
 [像电子邮件](https://lifehacker.com/how-to-schedule-emails-with-gmails-new-feature-1833717623) 和 [社交媒体帖子](https://lifehacker.com/the-beginners-guide-to-ifttt-1819624556) ，能够起草和安排你的文本可以是时间管理的救命稻草——特别是如果你依赖文本作为你工作或业务的一部分，或者把它们作为你发送给自己的个人提醒。虽然一些 [Android 应用内置了](https://lifehacker.com/how-to-schedule-text-messages-on-android-1831323365) 文本调度，但没有第一方 iOS 消息应用默认包含此类功能。然而，通过使用苹果高度灵活的快捷方式应用程序，我们可以创建一个相当不错的替代方案。
 

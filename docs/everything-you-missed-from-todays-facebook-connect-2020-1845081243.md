@@ -1,6 +1,6 @@
 # 今天脸书互联 2020 活动中您错过的一切
 
-> 原文:[https://life hacker . com/everything-you-missed-from-todays-Facebook-connect-2020-1845081243](https://lifehacker.com/everything-you-missed-from-todays-facebook-connect-2020-1845081243)
+> 原文：<https://lifehacker.com/everything-you-missed-from-todays-facebook-connect-2020-1845081243>
 
 今天的 [脸书连接](https://www.facebookconnect.com/en) 以两个小时的主题演讲拉开帷幕，详细介绍了该公司最新的虚拟和增强现实开发。有产品发布，新的应用程序和游戏展示，和引人注目的窥视一些投机技术。我们将为那些未能现场观看演示的人回顾精彩内容。
 

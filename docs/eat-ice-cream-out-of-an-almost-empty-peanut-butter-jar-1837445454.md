@@ -1,6 +1,6 @@
 # 从几乎空了的花生酱罐子里吃冰淇淋
 
-> 原文:[https://life hacker . com/eat-ice-cream-out-of-a near-empty-peanut-butter-jar-1837445454](https://lifehacker.com/eat-ice-cream-out-of-an-almost-empty-peanut-butter-jar-1837445454)
+> 原文：<https://lifehacker.com/eat-ice-cream-out-of-an-almost-empty-peanut-butter-jar-1837445454>
 
 清除罐子里最后一点粘糊糊的果酱通常是酒精的工作，但是其他可涂抹的物质——如坚果和花生酱——就不会很好地溶解。显然，解决办法是把一个老虎钳换成另一个老虎钳，用冰淇淋填满那个几乎空了的罐子。
 

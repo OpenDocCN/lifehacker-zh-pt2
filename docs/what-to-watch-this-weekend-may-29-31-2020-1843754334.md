@@ -1,6 +1,6 @@
 # 2020 年 5 月 29-31 日这个周末看什么
 
-> 原文:[https://life hacker . com/what-to-watch-this-weekend-may-29-31-2020-1843754334](https://lifehacker.com/what-to-watch-this-weekend-may-29-31-2020-1843754334)
+> 原文：<https://lifehacker.com/what-to-watch-this-weekend-may-29-31-2020-1843754334>
 
 今晚想看些有趣的东西吗？每天下午，我们都在寻找并强调周围最好的流媒体选项。
 

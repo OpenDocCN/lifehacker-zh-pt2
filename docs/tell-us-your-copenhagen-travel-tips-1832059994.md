@@ -1,6 +1,6 @@
 # 告诉我们你的哥本哈根旅行建议
 
-> 原文:[https://life hacker . com/tell-us-your-Copenhagen-travel-tips-1832059994](https://lifehacker.com/tell-us-your-copenhagen-travel-tips-1832059994)
+> 原文：<https://lifehacker.com/tell-us-your-copenhagen-travel-tips-1832059994>
 
 Hack Your City 出发去哥本哈根吧，这里是汉斯·克里斯蒂安·安徒生、蒂沃利花园和丹麦政治剧《Borgen》的故乡。丹麦的 *hygge* 心脏深处埋藏着什么快乐？我们想听听你对在哥本哈根旅游和生活的最佳建议。
 

@@ -1,6 +1,6 @@
 # 你不需要马上变得富有成效
 
-> 原文:[https://life hacker . com/you-don-to-do-to-be-to-productive-now-1842378468](https://lifehacker.com/you-dont-have-to-be-productive-right-now-1842378468)
+> 原文：<https://lifehacker.com/you-dont-have-to-be-productive-right-now-1842378468>
 
 我们被告知，艾萨克·牛顿在一个瘟疫年 完成了他最好的作品 [。当剧院关门时，莎士比亚可能已经把](https://www.washingtonpost.com/history/2020/03/12/during-pandemic-isaac-newton-had-work-home-too-he-used-time-wisely/) [变成了十四行诗](https://www.theatlantic.com/culture/archive/2020/03/broadway-shutdown-could-be-good-theater-coronavirus/607993/) 。现在你认识的每一个人都在家里工作(或者不工作)的时候从事某种项目。但是你知道你还有什么选择吗？*不* *做任何那种事。*
 

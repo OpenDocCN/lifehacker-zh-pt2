@@ -1,6 +1,6 @@
 # 你终于可以在 Firefox 中加入缩放通话了
 
-> 原文:[https://life hacker . com/you-can-finally-join-zoom-calls-in-Firefox-1843262033](https://lifehacker.com/you-can-finally-join-zoom-calls-in-firefox-1843262033)
+> 原文：<https://lifehacker.com/you-can-finally-join-zoom-calls-in-firefox-1843262033>
 
 Mozilla 的 Firefox 浏览器的一个奇怪之处在于，它允许你通过网络加入 Zoom 通话，不需要下载单独的应用程序，但你不能在通话中说任何话。或者至少，在最新的更新之前你不能。
 

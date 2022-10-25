@@ -1,6 +1,6 @@
 # 如何手动上传您的 Garmin 锻炼数据
 
-> 原文:[https://life hacker . com/how-to-manually-upload-your-garmin-workout-data-1844497005](https://lifehacker.com/how-to-manually-upload-your-garmin-workout-data-1844497005)
+> 原文：<https://lifehacker.com/how-to-manually-upload-your-garmin-workout-data-1844497005>
 
 你的 Garmin 手表是不是周四突然停了？你并不孤单。 该公司遭遇疑似勒索软件攻击，导致*其所有*在线服务瘫痪。
 

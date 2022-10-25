@@ -1,6 +1,6 @@
 # 用先买后付融资前知道什么
 
-> 原文:[https://life hacker . com/what-to-know-before-use-buy-pay-la ter-financing-1844945584](https://lifehacker.com/what-to-know-before-using-buy-now-pay-later-financing-1844945584)
+> 原文：<https://lifehacker.com/what-to-know-before-using-buy-now-pay-later-financing-1844945584>
 
 自大萧条以来，先买后付的概念就一直存在。分期付款购物在 20 世纪 80 年代基本消失了，它包括在你把东西带回家之前支付少量的定金和分期付款。尽管在大萧条期间，分期付款 [短暂地卷土重来](https://www.bankrate.com/finance/personal-finance/layaway-makes-a-comeback-1.aspx) ，但它已经被更高成本的融资选择所取代，比如信用卡。
 

@@ -1,6 +1,6 @@
 # 如果你的 AirPods 变得更安静了，你可能会得到一副免费的新苹果手机
 
-> 原文:[https://life hacker . com/if-your-ai rpods-have-get-quiet-you-may-be-entit-1835151830](https://lifehacker.com/if-your-airpods-have-gotten-quieter-you-might-be-entit-1835151830)
+> 原文：<https://lifehacker.com/if-your-airpods-have-gotten-quieter-you-might-be-entit-1835151830>
 
 这里有一个有用的技巧，如果你怀疑苹果 AirPods 的性能不如你新买的时候，它可能会给你带来一双新的苹果 ai rpods。唯一的问题是，你的 AirPods 仍然必须在一年保修期内，才能获得回报。
 

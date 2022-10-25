@@ -1,6 +1,6 @@
 # 抽一整根熏牛肉，因为你值得
 
-> 原文:[https://the take out . com/recipe-自制-DIY-熏牛肉-1832407782](https://thetakeout.com/recipe-homemade-diy-pastrami-1832407782)
+> 原文：<https://thetakeout.com/recipe-homemade-diy-pastrami-1832407782>
 
 对于家庭厨师来说，没有什么比做出来的菜和你喜欢的版本一样更好的感觉了——真实的“哦，该死，这正是我想要的”反应。我在这里告诉你，当谈到熏牛肉，无可争议的熟食冠军，它不仅可以自己制作，而且你会觉得非常神秘地超级胜任，我希望它不会弄乱你的自我，让你成为一个混蛋。
 

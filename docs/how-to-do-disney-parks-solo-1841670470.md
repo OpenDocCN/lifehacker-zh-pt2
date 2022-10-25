@@ -1,6 +1,6 @@
 # 如何独唱迪士尼乐园
 
-> 原文:[https://life hacker . com/how-to-do-Disney-parks-solo-1841670470](https://lifehacker.com/how-to-do-disney-parks-solo-1841670470)
+> 原文：<https://lifehacker.com/how-to-do-disney-parks-solo-1841670470>
 
 在过去的三年里，我已经独自去了三次迪士尼。两次去迪斯尼乐园，一次去华特·迪士尼世界。每次，我都独自度过了一个绝对不可思议的假期——我会向任何想要以自己的节奏体验迪士尼乐园的人推荐独自迪士尼旅行。
 

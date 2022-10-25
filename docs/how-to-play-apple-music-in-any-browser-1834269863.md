@@ -1,6 +1,6 @@
 # 如何在任何浏览器中播放 Apple Music
 
-> 原文:[https://life hacker . com/how-to-play-apple-music-in-any-browser-1834269863](https://lifehacker.com/how-to-play-apple-music-in-any-browser-1834269863)
+> 原文：<https://lifehacker.com/how-to-play-apple-music-in-any-browser-1834269863>
 
 **Web:** 当我在 Windows 上的时候，我受不了 iTunes。即使是在我的 MacBook 上，体验也不太理想。但是你能做什么呢？如果你已经购买了苹果的生态系统——尤其是每月 9.99 美元的苹果音乐——你真的没有选择。正确
 

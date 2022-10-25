@@ -1,6 +1,6 @@
 # Alexa 用户本月可以获得一张免费电影票
 
-> 原文:[https://life hacker . com/Alexa-users-can-get-a-free-film-ticket-this-month-1842123932](https://lifehacker.com/alexa-users-can-get-a-free-movie-ticket-this-month-1842123932)
+> 原文：<https://lifehacker.com/alexa-users-can-get-a-free-movie-ticket-this-month-1842123932>
 
 如果你住在美国，并拥有任何支持 Alexa 的设备，你可以在 3 月下半月 [获得一张免费电影票](https://www.atomtickets.com/promotions?clickid=186b6db9N8bac11e9b7fb42010a246f0d&irgwc=1&ref=ir) 。是一些小事，对吗？
 

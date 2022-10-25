@@ -1,6 +1,6 @@
 # 你现在喜欢堡垒之夜了
 
-> 原文:[https://kotaku.com/so-youre-into-fortnite-now-1839174220](https://kotaku.com/so-youre-into-fortnite-now-1839174220)
+> 原文：<https://kotaku.com/so-youre-into-fortnite-now-1839174220>
 
 当我们这些扮演*堡垒之夜*的人被上周末的黑洞吸引住的时候，世界上的其他人看着我们困惑地看着它，在某些情况下，好奇。差不多两天后，当这款游戏最终上线时，我的许多朋友——以及评论中的许多人——问你是否应该加入。你还问你会不会被一个 10 岁的孩子毁了。两个问题的答案都是:是的。
 

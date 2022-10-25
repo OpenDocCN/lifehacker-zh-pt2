@@ -1,6 +1,6 @@
 # 如何给朋友一年的免费密码
 
-> 原文:[https://life hacker . com/how-to-give-a-friend-a-free-year of-1 password-1830587944](https://lifehacker.com/how-to-give-a-friend-a-free-year-of-1password-1830587944)
+> 原文：<https://lifehacker.com/how-to-give-a-friend-a-free-year-of-1password-1830587944>
 
 每个人都应该使用密码管理应用程序。即使你不得不花钱买一个，它的便利性也是值得的——不用再写下或记住 T2 的密码——还有安全性。1Password 是我们最喜爱的密码管理应用之一，它正在开展一项令人惊叹的节日促销活动，让当前 1Password 用户向朋友赠送 1Password Families 的一年免费套餐(价值 60 美元)。
 

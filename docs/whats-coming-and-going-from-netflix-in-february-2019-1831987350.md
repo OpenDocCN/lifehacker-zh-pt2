@@ -1,6 +1,6 @@
 # 2019 年 2 月网飞有什么来往
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-Japan-in-2019-2-1831987350](https://lifehacker.com/whats-coming-and-going-from-netflix-in-february-2019-1831987350)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-in-february-2019-1831987350>
 
 这个月，网飞将迎来一些好东西:关于一个男孩的*、比利·埃利奥特(Billy Elliot)、大白鲨(Jaws)、40 岁的处女*、摩尔*厨师之桌*，以及墨西哥版的*搞定了！*离开前值得一看的好东西:*人类的孩子，职员，大勒保斯基，谍影重重，*和*僵尸肖恩*。我想我在宿舍的笔记本电脑上看了所有这些。这是二月份网飞发生的所有事情。
 

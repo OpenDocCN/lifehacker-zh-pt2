@@ -1,6 +1,6 @@
 # 2019 年 WWDC 有什么值得期待的
 
-> 原文:[https://life hacker . com/what-to-expect-at-wwdc-2019-1835202067](https://lifehacker.com/what-to-expect-at-wwdc-2019-1835202067)
+> 原文：<https://lifehacker.com/what-to-expect-at-wwdc-2019-1835202067>
 
 苹果年度开发者大会今天在加州圣何塞开幕。开发者大会每年举行一次，传统上是苹果向我们展示它为 iOS、macOS 和 watchOS 等苹果设备上的软件准备了什么的地方。
 

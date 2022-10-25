@@ -1,6 +1,6 @@
 # 你的洗碗布比你想象的要脏
 
-> 原文:[https://life hacker . com/your-dish cloths-is-filible than-you-think-1836250554](https://lifehacker.com/your-dishcloths-are-filthier-than-you-think-1836250554)
+> 原文：<https://lifehacker.com/your-dishcloths-are-filthier-than-you-think-1836250554>
 
 如果你的抹布已经挂在周围擦拭了一两天以上，它就有被沙门氏菌、大肠杆菌、葡萄球菌和其他细菌和霉菌污染的风险。克里斯·史密斯是剑桥大学的顾问病毒学家，也是《裸体科学家》的主编，他告诉《卫报》 我们应该把衣服放在炖锅里煮:
 

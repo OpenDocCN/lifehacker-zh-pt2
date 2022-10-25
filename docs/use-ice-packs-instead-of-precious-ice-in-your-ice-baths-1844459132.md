@@ -1,6 +1,6 @@
 # 在你的冰浴中用冰袋代替珍贵的冰
 
-> 原文:[https://life hacker . com/use-ice-packs-inst-the-precious-ice-bases-in-your ' s ice-baths-1844459132](https://lifehacker.com/use-ice-packs-instead-of-precious-ice-in-your-ice-baths-1844459132)
+> 原文：<https://lifehacker.com/use-ice-packs-instead-of-precious-ice-in-your-ice-baths-1844459132>
 
 我的沉浸式循环器在夏天比冬天用得多。腌制肉类意味着我不必打开烤箱，将长时间的恒温水浴和几分钟的烧烤结合起来是我最喜欢的热天烹饪方法(尤其是在做排骨的时候)。
 

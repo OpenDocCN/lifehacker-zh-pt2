@@ -1,6 +1,6 @@
 # 为你的下一个欢乐时光做一个颠倒的曼哈顿
 
-> 原文:[https://life hacker . com/make-an-down-a-Manhattan-for-your-next-zoom-happy-1842795130](https://lifehacker.com/make-an-upside-down-manhattan-for-your-next-zoom-happy-1842795130)
+> 原文：<https://lifehacker.com/make-an-upside-down-manhattan-for-your-next-zoom-happy-1842795130>
 
 如果社交距离教会了我什么，那就是我爱酒吧胜过爱酒。我怀念坐在一个我不付房租的地方，喝着我没有调过的冰镇马提尼，听着我没有选择的音乐。我想，我怀念放弃控制权的日子。
 

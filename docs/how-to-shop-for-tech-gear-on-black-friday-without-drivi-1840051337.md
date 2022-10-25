@@ -1,6 +1,6 @@
 # 如何在黑色星期五购买科技产品而不把自己逼疯
 
-> 原文:[https://life hacker . com/how-to-shop-for-tech-gear-on-black-Friday-no-drive-1840051337](https://lifehacker.com/how-to-shop-for-tech-gear-on-black-friday-without-drivi-1840051337)
+> 原文：<https://lifehacker.com/how-to-shop-for-tech-gear-on-black-friday-without-drivi-1840051337>
 
 黑色星期五周即将来临。虽然你不应该觉得自己有必要购买任何东西，但肯定会有一些很棒的交易。在这些伟大的交易中，有一吨*的旧车根本不值得你关注，还有大量闪电般的交易需要你随时准备扣动扳机。*
 

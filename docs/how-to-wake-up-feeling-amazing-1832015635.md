@@ -1,6 +1,6 @@
 # 如何一觉醒来感觉很棒
 
-> 原文:[https://life hacker . com/how-to-wake-up-feeling-amazing-1832015635](https://lifehacker.com/how-to-wake-up-feeling-amazing-1832015635)
+> 原文：<https://lifehacker.com/how-to-wake-up-feeling-amazing-1832015635>
 
 醒来后不再害怕白天，这不是很好吗？不希望你还在沉睡，而是期待着新的一天，知道这一天会很美好？有可能，只要稍微计划一下。以下是如何拥有一个完美的早晨。
 

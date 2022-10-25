@@ -1,6 +1,6 @@
 # 如何在星巴克点餐，以免咖啡师对你品头论足
 
-> 原文:[https://life hacker . com/how-to-order-at-Starbucks-so-baristas-don-t-judge-you-1831876643](https://lifehacker.com/how-to-order-at-starbucks-so-baristas-dont-judge-you-1831876643)
+> 原文：<https://lifehacker.com/how-to-order-at-starbucks-so-baristas-dont-judge-you-1831876643>
 
 就基本的和无处不在的连锁店而言，星巴克几乎是最基本和无处不在的——然而它的规则和仪式仍然设法让最有经验的咖啡饮用者感到困惑。
 

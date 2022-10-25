@@ -1,6 +1,6 @@
 # 在冠状病毒关闭期间，你在杂货店购物时会遇到什么
 
-> 原文:[https://life hacker . com/what-to-expect-when-when-you-that-shopping-the-c-1842456523](https://lifehacker.com/what-to-expect-when-youre-grocery-shopping-during-the-c-1842456523)
+> 原文：<https://lifehacker.com/what-to-expect-when-youre-grocery-shopping-during-the-c-1842456523>
 
 这个周末我去杂货店购物。不仅仅是去买些东西，而是去我的公寓和我的男朋友家装满东西。
 

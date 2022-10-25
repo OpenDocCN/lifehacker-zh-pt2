@@ -1,6 +1,6 @@
 # 了解你的苹果手表的心率数据
 
-> 原文:[https://life hacker . com/understand-your-apple-watches-heart-rate-numbers-1831767054](https://lifehacker.com/understand-your-apple-watchs-heart-rate-numbers-1831767054)
+> 原文：<https://lifehacker.com/understand-your-apple-watchs-heart-rate-numbers-1831767054>
 
 当你剧烈运动时，你的心跳会加快，当你休息或睡觉时，心跳会减慢。你的 Apple Watch 整天都在为你把脉，并想告诉你关于它的一切。
 

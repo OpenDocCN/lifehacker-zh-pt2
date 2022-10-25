@@ -1,6 +1,6 @@
 # 不要指望消毒湿巾会储存一段时间
 
-> 原文:[https://life hacker . com/don-expect-消毒剂-湿巾-to-be-stocked-for-a-whil-1844635402](https://lifehacker.com/dont-expect-disinfectant-wipes-to-be-stocked-for-a-whil-1844635402)
+> 原文：<https://lifehacker.com/dont-expect-disinfectant-wipes-to-be-stocked-for-a-whil-1844635402>
 
 在 2019 年的旧日，消毒湿巾有一个小而专用的市场。恐惧症患者和父母定期购买；对于我们中的许多人来说，它们要么是偶尔出现的，要么是不必要的。现在一切都变了，生产湿巾的公司正在努力跟上。
 

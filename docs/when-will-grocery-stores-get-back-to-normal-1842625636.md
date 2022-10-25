@@ -1,6 +1,6 @@
 # when will grocery stores get back to normal 1842625636
 
-> 原文:[https://life hacker . com/when-will-杂货店-get-back-to-normal-1842625636](https://lifehacker.com/when-will-grocery-stores-get-back-to-normal-1842625636)
+> 原文：<https://lifehacker.com/when-will-grocery-stores-get-back-to-normal-1842625636>
 
 我也以为卫生纸现在会重新进货。我习惯了在杂货店和药店看到空空的货架，但我认为一旦足够多的人买了 20 包的卫生纸，货架就会恢复正常。
 

@@ -1,6 +1,6 @@
 # 向你当地的食物银行捐钱，而不是食物
 
-> 原文:[https://life hacker . com/duate-money-not-food to-your-local-food-bank-1830561819](https://lifehacker.com/donate-money-not-food-to-your-local-food-bank-1830561819)
+> 原文：<https://lifehacker.com/donate-money-not-food-to-your-local-food-bank-1830561819>
 
 如果你想捐赠给当地的食物银行，最好的方法不是在你的食品柜里翻找不需要的罐头，甚至是带着优惠券去杂货店。食物银行和施舍处最需要的是你冰冷的现金。
 

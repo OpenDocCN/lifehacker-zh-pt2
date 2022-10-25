@@ -1,6 +1,6 @@
 # 停止强制关闭你的应用
 
-> 原文:[https://life hacker . com/stop-force-closing-your-apps-1837838439](https://lifehacker.com/stop-force-closing-your-apps-1837838439)
+> 原文：<https://lifehacker.com/stop-force-closing-your-apps-1837838439>
 
 不断强制关闭应用程序是我们许多人多年来养成的坏习惯。我们被告知，它有助于提高电池寿命，使我们的手机运行速度更快。但事实是，它实际上会产生相反的效果。在上面的视频中，我解释了为什么我们都应该停止强制关闭应用。
 

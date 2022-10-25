@@ -1,6 +1,6 @@
 # 使用 Splitwise，让旅行和家庭开支的分摊变得更容易
 
-> 原文:[https://life hacker . com/make-splitting-trip-and-household-expenses-easy-with-1838597939](https://lifehacker.com/make-splitting-trip-and-household-expenses-easier-with-1838597939)
+> 原文：<https://lifehacker.com/make-splitting-trip-and-household-expenses-easier-with-1838597939>
 
 我目前正和我的两个朋友进行为期 10 天的公路旅行。我们从维加斯出发，正缓慢跋涉到科罗拉多州的丹佛，沿途在国家公园停留。
 

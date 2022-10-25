@@ -1,6 +1,6 @@
 # 尝试阅读儿童书籍来理解复杂或无趣的话题
 
-> 原文:[https://life hacker . com/try-reading-a-children-book-to-understand-complicated-1834365747](https://lifehacker.com/try-reading-a-childrens-book-to-understand-complicated-1834365747)
+> 原文：<https://lifehacker.com/try-reading-a-childrens-book-to-understand-complicated-1834365747>
 
 如果你想学点什么，但在阅读成人参考书时有困难，可以考虑选择儿童版本。
 

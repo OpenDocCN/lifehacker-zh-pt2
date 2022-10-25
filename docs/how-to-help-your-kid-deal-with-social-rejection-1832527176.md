@@ -1,6 +1,6 @@
 # 如何帮助你的孩子应对社会排斥
 
-> 原文:[https://life hacker . com/how-to-help-your-kid-deal-social-rejection-1832527176](https://lifehacker.com/how-to-help-your-kid-deal-with-social-rejection-1832527176)
+> 原文：<https://lifehacker.com/how-to-help-your-kid-deal-with-social-rejection-1832527176>
 
 看着我们的孩子被拒绝，尤其是被他们自己的同龄人拒绝，是为人父母最令人心痛的事情之一。很明显，我们无法保护他们免受拒绝:N 这不仅会发生，在某种程度上，这将是他们整个生活中都会经历的事情。但我们仍然可以支持他们，既帮助他们度过此刻的伤痛，又教会他们如何建立自己的韧性。
 

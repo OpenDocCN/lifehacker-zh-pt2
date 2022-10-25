@@ -1,6 +1,6 @@
 # 将薄煎饼面糊加入鸡蛋中，可以做出上好的煎蛋卷
 
-> 原文:[https://life hacker . com/add-pancake-paster-to-eggs-to-make-a-superior-煎蛋卷-1840978257](https://lifehacker.com/add-pancake-batter-to-eggs-to-make-a-superior-omelet-1840978257)
+> 原文：<https://lifehacker.com/add-pancake-batter-to-eggs-to-make-a-superior-omelet-1840978257>
 
 我感觉我是最后一个知道 IHOP 在他们的煎蛋卷 里放 [煎饼面糊的人。(你知道吗？你为什么不告诉我？)通常我对这类事情很在行，但不知何故，这种特殊的连锁餐厅黑客技术就这样从我身边溜走了。幸运的是，这个疏忽很容易补救。我刚吃了个煎蛋卷。](https://www.huffpost.com/entry/ihop-omelet-copycat-recipe_n_5808b166e4b0180a36e96abb)
 

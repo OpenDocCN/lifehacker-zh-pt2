@@ -1,6 +1,6 @@
 # 在你的可乐中加入木本洋蓟
 
-> 原文:[https://life hacker . com/spike-your-cola-with-woodsy-cynar-1834006407](https://lifehacker.com/spike-your-cola-with-woodsy-cynar-1834006407)
+> 原文：<https://lifehacker.com/spike-your-cola-with-woodsy-cynar-1834006407>
 
 “一些东西和可乐”勉强称得上鸡尾酒，但你不能否认它们很美味，尤其是当你把可乐和一种复杂的草本甜酒搭配起来时，就像我的好朋友西纳尔。
 

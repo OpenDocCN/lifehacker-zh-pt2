@@ -1,6 +1,6 @@
 # 记笔记的最佳技巧
 
-> 原文:[https://life hacker . com/back-to-basics-perfect-your-note-taking-techniques-484879924](https://lifehacker.com/back-to-basics-perfect-your-note-taking-techniques-484879924)
+> 原文：<https://lifehacker.com/back-to-basics-perfect-your-note-taking-techniques-484879924>
 
 我们毕业后并没有停止记笔记:这也是我们许多人在成年后以某种方式做的事情。它甚至可能不是你真正考虑的事情——你只是去做。但是你也可以做得更好，这就是我们的用武之地。可能是时候回归基础，重新启动你的笔记了。以下是一些最佳实践。
 

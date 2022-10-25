@@ -1,6 +1,6 @@
 # 使用您的智能手机，通过 Airtime 与朋友一起观看 YouTube 视频和更多内容
 
-> 原文:[https://life hacker . com/use-your-smart phone-to-watch-YouTube-videos-and-more-wi-1843216129](https://lifehacker.com/use-your-smartphone-to-watch-youtube-videos-and-more-wi-1843216129)
+> 原文：<https://lifehacker.com/use-your-smartphone-to-watch-youtube-videos-and-more-wi-1843216129>
 
 如果你想和你的朋友在线看电影，疫情给我们带来了一些选择。
 

@@ -1,6 +1,6 @@
 # im behavioral economist benjamin ho and this is how i 1830562135
 
-> 原文:[https://life hacker . com/im-behavioral-economist-Benjamin-ho-and-this-is-how-I-1830562135](https://lifehacker.com/im-behavioral-economist-benjamin-ho-and-this-is-how-i-1830562135)
+> 原文：<https://lifehacker.com/im-behavioral-economist-benjamin-ho-and-this-is-how-i-1830562135>
 
 这就是我工作的方式。经济学家 Ben Ho 从经济角度研究道歉、信任和不平等等问题——这种方法使 [成为一个好的 NPR 故事](https://www.npr.org/2018/10/17/658253838/the-economics-of-apologies-why-saying-sorry-isnt-always-as-easy-as-it-seems) 。他工作非常努力，他对工作流程、老派的文本应用程序和便携式键盘感到兴奋，他还编写了自己的应用程序。他有一个早上淋浴的黑客，坦率地说，听起来不可能。他就是我们在《我如何工作》嘉宾中寻找的一切。
 

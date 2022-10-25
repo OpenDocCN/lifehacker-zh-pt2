@@ -1,6 +1,6 @@
 # 9 月 28 日前购买 Pixel 3 或 Pixel 3 XL 可节省 300 美元
 
-> 原文:[https://life hacker . com/save-300-on-a-pixel-3-or-pixel-3-XL-through-September-1836968367](https://lifehacker.com/save-300-on-a-pixel-3-or-pixel-3-xl-through-september-1836968367)
+> 原文：<https://lifehacker.com/save-300-on-a-pixel-3-or-pixel-3-xl-through-september-1836968367>
 
 关于即将到来的 Pixel 4 和 4 XL 有很多 [传言](https://gizmodo.com/google-pixel-4-leaks-purport-to-show-huge-front-bezel-1836568450) ，这些都被证实将在今年晚些时候的谷歌制造 2019 活动上首次正式亮相。最有说服力的证据之一是，去年的 Pixel 3 和 3 XL 手机目前的售价比通常的 低 300 美元。似乎有人想腾出一些货架空间。 
 

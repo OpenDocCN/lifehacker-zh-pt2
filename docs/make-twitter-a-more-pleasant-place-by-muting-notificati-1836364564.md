@@ -1,6 +1,6 @@
 # 通过屏蔽某些账户的通知，让 Twitter 成为一个更令人愉快的地方
 
-> 原文:[https://life hacker . com/make-Twitter-a-more-pleasant-place-by-muting-notificati-1836364564](https://lifehacker.com/make-twitter-a-more-pleasant-place-by-muting-notificati-1836364564)
+> 原文：<https://lifehacker.com/make-twitter-a-more-pleasant-place-by-muting-notificati-1836364564>
 
 Twitter 是一个与世界各地的人们联系的好地方。它也可能是机器人和垃圾账户向你发送垃圾推文的好地方，你希望你一开始就没有看到这些推文。
 

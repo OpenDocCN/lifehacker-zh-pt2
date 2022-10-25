@@ -1,6 +1,6 @@
 # 这是黑人希望从白人盟友那里得到的
 
-> 原文:[https://life hacker . com/heres-what-black-people-want-from white-alliances-1843920638](https://lifehacker.com/heres-what-black-people-want-from-white-allies-1843920638)
+> 原文：<https://lifehacker.com/heres-what-black-people-want-from-white-allies-1843920638>
 
 本周早些时候，我创建了一个帖子，我认为这会为黑人创造一个空间和一个时刻，让他们确切地说出他们现在需要从他们的白人盟友那里得到什么。我们很悲伤。在警察不当行为、白人义务警员的暴力行为以及遭受冠状病毒疫情的冲击所带来的创伤中，我们的心理健康正在不断受到动摇——除了影响美国黑人的社会经济差距的现实以及除此之外更长的感到绝望的理由之外。
 

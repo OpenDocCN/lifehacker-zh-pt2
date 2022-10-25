@@ -1,6 +1,6 @@
 # 这位工程师想把你废弃的圣诞树变成可持续的家居产品
 
-> 原文:[https://gizmodo . com/this-engineer-want-to-turn-your-abused-Christmas-tr-1831362362](https://gizmodo.com/this-engineer-wants-to-turn-your-abandoned-christmas-tr-1831362362)
+> 原文：<https://gizmodo.com/this-engineer-wants-to-turn-your-abandoned-christmas-tr-1831362362>
 
 化学工程师辛西娅·卡特伊致力于将生物质——从剩余的农作物秸秆到倒下的树木——转化为有价值的东西。所以圣诞节 [给谢菲尔德大学的博士生 Kartey 带来了一个灯泡时刻](https://www.sheffield.ac.uk/news/nr/pine-needles-christmas-trees-1.822340) ，她开始想知道人们的树在假期季节后会发生什么。
 

@@ -1,6 +1,6 @@
 # 让 Windows 10 计算出何时自动更新您的电脑
 
-> 原文:[https://life hacker . com/let-windows-10-figure-out-when-to-automatically-update-1834953954](https://lifehacker.com/let-windows-10-figure-out-when-to-automatically-update-1834953954)
+> 原文：<https://lifehacker.com/let-windows-10-figure-out-when-to-automatically-update-1834953954>
 
 在微软 2019 年 5 月对 Windows 10 的重大更新中，有许多新功能，有些大，有些小，有些小。我已经介绍了几个我最喜欢的(如我所说的，“ [最酷的](https://lifehacker.com/the-best-new-features-in-windows-10s-may-2019-update-1834927597?_ga=2.160566452.804941293.1558360664-1723114163.1524514905) ”)，但我将介绍其余的更新，并强调 Lifehacker 的强大读者可能想知道的其他有趣的调整。
 

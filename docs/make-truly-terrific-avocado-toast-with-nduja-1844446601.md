@@ -1,6 +1,6 @@
 # 用 Nduja 做真正美味的鳄梨吐司
 
-> 原文:[https://life hacker . com/make-true-terrible-avocado-toast-with-nd uja-1844446601](https://lifehacker.com/make-truly-terrific-avocado-toast-with-nduja-1844446601)
+> 原文：<https://lifehacker.com/make-truly-terrific-avocado-toast-with-nduja-1844446601>
 
 尽管我已经是千禧年的长者，但我从来没有对鳄梨吐司着迷过。(至今 [我还租](https://twocents.lifehacker.com/how-to-afford-a-house-when-youre-spending-all-your-mone-1795231082) ！)很好——没什么*毛病——但我通常更喜欢用勺子直接从鳄梨坚韧的果皮中舀进嘴里。*
 

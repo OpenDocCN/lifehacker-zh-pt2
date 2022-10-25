@@ -1,6 +1,6 @@
 # 烤鸡前先在上面刷上蛋黄酱
 
-> 原文:[https://life hacker . com/brush-your-chicken with mayo-before-braking-it-1843608730](https://lifehacker.com/brush-your-chicken-with-mayo-before-roasting-it-1843608730)
+> 原文：<https://lifehacker.com/brush-your-chicken-with-mayo-before-roasting-it-1843608730>
 
 我一直最喜欢的烤鸡是烤鸡，但那东西需要 24 小时腌泡，有时我简直没有耐心。然而，我不能不经过任何处理就把一只鸡——赤裸的、无人爱的——直接放进烤箱。在这些匆忙的、没有腌泡汁的时刻，我伸手去拿我最好的朋友:蛋黄酱。
 

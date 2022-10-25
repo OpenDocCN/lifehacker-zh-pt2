@@ -1,6 +1,6 @@
 # 遣散费是如何征税的
 
-> 原文:[https://life hacker . com/how-severance-pay-is-taed-1832957851](https://lifehacker.com/how-severance-pay-is-taxed-1832957851)
+> 原文：<https://lifehacker.com/how-severance-pay-is-taxed-1832957851>
 
 你被解雇了，正期待着前雇主给你一张遣散费支票。你试着用这笔钱做一个预算，找工作来填补缺口。然后你终于收到了付款，但是远远低于你的预期。这是怎么回事？
 

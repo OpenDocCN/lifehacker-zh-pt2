@@ -1,6 +1,6 @@
 # 知道一个企业通过这种扩展向哪个政党捐款
 
-> 原文:[https://life hacker . com/know-what-political-party-a-business-donates-to-with-1832278528](https://lifehacker.com/know-what-political-party-a-business-donates-to-with-th-1832278528)
+> 原文：<https://lifehacker.com/know-what-political-party-a-business-donates-to-with-th-1832278528>
 
 几年前，我不再喝我真正喜欢的啤酒，因为我发现它的主人向一位政治候选人提供了巨额捐款，而这几乎违背了我所信仰的一切。
 

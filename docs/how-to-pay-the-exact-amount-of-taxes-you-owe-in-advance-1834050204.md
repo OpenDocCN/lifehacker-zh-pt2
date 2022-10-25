@@ -1,6 +1,6 @@
 # 如何提前支付你所欠的确切税款
 
-> 原文:[https://life hacker . com/how-to-pay-the-exact-amount-you-beat-forward-1834050204](https://lifehacker.com/how-to-pay-the-exact-amount-of-taxes-you-owe-in-advance-1834050204)
+> 原文：<https://lifehacker.com/how-to-pay-the-exact-amount-of-taxes-you-owe-in-advance-1834050204>
 
 既然我们中的大多数人已经缴纳了税款，既然我们明白了我们的税收负担是如何因减税和就业法案而转移的，那么是时候开始规划 2019 纳税年度了。
 

@@ -1,6 +1,6 @@
 # 如何在外国与街头小贩讨价还价
 
-> 原文:[https://life hacker . com/how-to-chagging-with a street-vendor-in-a-foreign-country-1844067189](https://lifehacker.com/how-to-haggle-with-a-street-vendor-in-a-foreign-country-1844067189)
+> 原文：<https://lifehacker.com/how-to-haggle-with-a-street-vendor-in-a-foreign-country-1844067189>
 
 旅行时讨价还价的想法可能令人生畏，但任何人都可以做到。它实际上只是看看你是否能以低于街头小贩的价格买到东西。但这是一门艺术——这可能是一件麻烦事，尤其是如果语言障碍意味着你无法尽可能清晰地交流。所以，以下是你如何不费力地讨价还价。
 

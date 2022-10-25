@@ -1,6 +1,6 @@
 # 你可能需要在汉堡里加更多的盐
 
-> 原文:[https://life hacker . com/you-possible-need-to-salt-your burgers-more-1833972802](https://lifehacker.com/you-probably-need-to-salt-your-burgers-more-1833972802)
+> 原文：<https://lifehacker.com/you-probably-need-to-salt-your-burgers-more-1833972802>
 
 盐的重要性怎么强调都不为过，尤其是对于肉类。虽然我从来没有在锅里捣碎我的碎牛肉之前撒过盐，但一次遥远的旅行让我意识到(在肉饼上)仍有改进的空间(更多的盐)。
 

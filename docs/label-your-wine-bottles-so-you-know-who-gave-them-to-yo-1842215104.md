@@ -1,6 +1,6 @@
 # 给你的酒瓶贴上标签，这样你就知道是谁给你的了
 
-> 原文:[https://life hacker . com/label-your-wine-bottles-so-you-know-who-give-yo-1842215104](https://lifehacker.com/label-your-wine-bottles-so-you-know-who-gave-them-to-yo-1842215104)
+> 原文：<https://lifehacker.com/label-your-wine-bottles-so-you-know-who-gave-them-to-yo-1842215104>
 
 我的母亲(一个离纳帕不远的兽医)喝了很多酒。她从客户那里拿酒，从同事那里拿酒，也从我这里拿酒(不太经常)。作为一个发送感谢卡的人——我们都应该这样——记住谁给了她哪一瓶是压力的来源。
 

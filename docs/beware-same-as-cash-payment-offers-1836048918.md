@@ -1,6 +1,6 @@
 # 当心“与现金相同”的付款优惠
 
-> 原文:[https://life hacker . com/feel-same-as-cash-payment-offers-1836048918](https://lifehacker.com/beware-same-as-cash-payment-offers-1836048918)
+> 原文：<https://lifehacker.com/beware-same-as-cash-payment-offers-1836048918>
 
 如果你花时间在车里听收音机，你可能会听到一些“六个月和现金一样”的广告。如果你不是想买床垫、洗衣机或二手车，你可能不会太在意这些广告。但是有一天，你会想要为一件有形的物品进行一次大采购。它可能会帮助你在它被提供给你之前知道“和现金一样”是什么意思。
 

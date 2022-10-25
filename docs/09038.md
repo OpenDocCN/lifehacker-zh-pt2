@@ -1,6 +1,6 @@
 # 如何为经济衰退做准备
 
-> 原文:[https://life hacker . com/how-to-prepare-a economic-downlight-1831320497](https://lifehacker.com/how-to-prepare-for-an-economic-downturn-1831320497)
+> 原文：<https://lifehacker.com/how-to-prepare-for-an-economic-downturn-1831320497>
 
 如果你像许多美国人一样，股票市场的波动不一定会让你晚上睡不着觉——只有大约一半的美国人 投资于股票市场，其中，“美国前 10%的财富持有者拥有估计 85%至 90%的股票”,根据《华盛顿邮报》[](https://www.washingtonpost.com/blogs/post-partisan/wp/2018/08/22/a-record-breaking-market-doesnt-matter-to-most-americans/?noredirect=on&utm_term=.5a1902615ccb)*。相反，就业市场疲软的想法才是对你真正重要的。标准普尔指数的下降并不意味着你的公司解雇更多的工人。* 
 

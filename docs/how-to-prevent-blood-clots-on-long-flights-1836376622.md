@@ -1,6 +1,6 @@
 # 如何在长途飞行中预防血栓
 
-> 原文:[https://life hacker . com/how-to-prevent-block-on-long-flight-1836376622](https://lifehacker.com/how-to-prevent-blood-clots-on-long-flights-1836376622)
+> 原文：<https://lifehacker.com/how-to-prevent-blood-clots-on-long-flights-1836376622>
 
 如果你静坐超过四个小时，你的腿上可能会形成血块。严重的血栓很罕见，但可能危及生命，所以疾病预防控制中心说 任何乘坐长途飞机(或汽车)超过四个小时的人都应该知道如何降低他们的风险。
 

@@ -1,6 +1,6 @@
 # 我们今年花的最值的钱
 
-> 原文:[https://life hacker . com/the-best-money-we-spend-this-year-1840488331](https://lifehacker.com/the-best-money-we-spent-this-year-1840488331)
+> 原文：<https://lifehacker.com/the-best-money-we-spent-this-year-1840488331>
 
 他们说金钱买不到幸福，但我不相信。一些购买可以让你的生活更轻松或更愉快，这有助于你的整体幸福。不相信我？我问 Lifehacker 的员工，他们认为今年最有价值的东西是什么(当然，不包括日常必需品)。从一次性挥霍到持续的投资，这些购买表明，如果你明智地花钱，它确实能让你的生活更幸福。
 

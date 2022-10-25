@@ -1,6 +1,6 @@
 # 当你有孩子时，如何搬家(并保持理智)
 
-> 原文:[https://life hacker . com/how-to-move-and-stay-sane-when you-hacked-1832751141](https://lifehacker.com/how-to-move-and-stay-sane-when-you-have-kids-1832751141)
+> 原文：<https://lifehacker.com/how-to-move-and-stay-sane-when-you-have-kids-1832751141>
 
 六年前，我丈夫和我从亚利桑那州搬到了东海岸，我们都是从那里来的。当时，我们有一只两岁大的猫和一只焦虑不安的猫——更不用说我们租的房子里的家具和物品，我们拥有的公寓*和*一个储藏室。这比我 22 岁带着满满一车东西搬到亚利桑那州*时要复杂得多。* 
 

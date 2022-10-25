@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:我应该约芝士蛋糕工厂的工人吗？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-should-I-ask-out-the-worker-at-cheese-1842901977](https://kotaku.com/ask-dr-nerdlove-should-i-ask-out-the-worker-at-cheese-1842901977)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-should-i-ask-out-the-worker-at-cheese-1842901977>
 
 你们好，所有的深渊性感天使，欢迎来到 [向 NerdLove](http://kotaku.com/askdrnerdlove) 博士提问，这是唯一一个可以帮助你在现实生活和*动物穿越*中处理好人际关系的建议专栏。
 

@@ -1,6 +1,6 @@
 # 像素所有者:现在提交您的理赔申请，最高可获得 500 美元
 
-> 原文:[https://life hacker . com/pixel-owners-submit-your-settlement-claim-now-to-receii-1837211040](https://lifehacker.com/pixel-owners-submit-your-settlement-claim-now-to-recei-1837211040)
+> 原文：<https://lifehacker.com/pixel-owners-submit-your-settlement-claim-now-to-recei-1837211040>
 
 几个月前， [谷歌同意](https://lifehacker.com/if-you-own-a-pixel-you-could-get-up-to-500-from-googl-1834783480) 支付 725 万美元来解决一项关于最初的 Pixel 和 Pixel XL 智能手机上有问题的麦克风的集体诉讼。对你来说，这意味着高达 500 美元的支出，并且从今天起，你可以提交现金的索赔(即使你从未遇到任何 mic 问题)。
 

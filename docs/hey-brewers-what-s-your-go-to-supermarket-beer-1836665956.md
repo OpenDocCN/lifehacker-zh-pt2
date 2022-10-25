@@ -1,6 +1,6 @@
 # 嘿，酿酒人，你去超市买什么啤酒？
 
-> 原文:[https://the take out . com/hey-brewers-what-s-your-go-supermarket-beer-1836665956](https://thetakeout.com/hey-brewers-what-s-your-go-to-supermarket-beer-1836665956)
+> 原文：<https://thetakeout.com/hey-brewers-what-s-your-go-to-supermarket-beer-1836665956>
 
 大多数酿酒商可能不需要经常购买啤酒，介于他们可以从工作中带回家的啤酒和他们的酿酒同行给他们的礼物之间。但是当他们发现自己在杂货店或便利店的时候，也许是想喝一杯以前最喜欢的或容易喝的饮料的时候，他们会怎么做呢？
 

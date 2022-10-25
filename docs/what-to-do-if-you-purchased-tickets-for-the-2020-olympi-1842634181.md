@@ -1,6 +1,6 @@
 # 如果你购买了 2020 年奥运会的门票，该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-you-buyed-the-2020-Olympic-1842634181](https://lifehacker.com/what-to-do-if-you-purchased-tickets-for-the-2020-olympi-1842634181)
+> 原文：<https://lifehacker.com/what-to-do-if-you-purchased-tickets-for-the-2020-olympi-1842634181>
 
 东京奥运会将举办 33 个不同运动项目的 339 场比赛，780 万张门票中的 30%卖给了日本以外的海外游客——大约 234 万人。但是[3 月 24 日](https://tokyo2020.org/en/tickets/)[东京奥运会和残奥会组委会](https://tokyo2020.org/en/) 决定奥运会延期至 2021 年 7 月。所以:如果你买了一张票，你会怎么做？
 

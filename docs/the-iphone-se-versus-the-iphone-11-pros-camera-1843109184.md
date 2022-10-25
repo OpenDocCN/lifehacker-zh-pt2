@@ -1,6 +1,6 @@
 # 400 美元的 iPhone SE 的摄像头如何与苹果最贵的手机相抗衡
 
-> 原文:[https://gizmodo . com/the-iphone-se-vs-the-iphone-11-pros-camera-1843109184](https://gizmodo.com/the-iphone-se-versus-the-iphone-11-pros-camera-1843109184)
+> 原文：<https://gizmodo.com/the-iphone-se-versus-the-iphone-11-pros-camera-1843109184>
 
 新的第二代 iPhone SE 是你能买到的最便宜的 iPhone，这意味着你必须做出一些牺牲，特别是在相机方面。
 

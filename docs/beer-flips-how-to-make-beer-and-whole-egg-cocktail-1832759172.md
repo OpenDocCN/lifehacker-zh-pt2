@@ -1,6 +1,6 @@
 # 啤酒翻转是啤酒和全蛋鸡尾酒——等等，听我说完
 
-> 原文:[https://the take out . com/beer-flips-how-to-make-beer-and-all-egg-cocktail-1832759172](https://thetakeout.com/beer-flips-how-to-make-beer-and-whole-egg-cocktail-1832759172)
+> 原文：<https://thetakeout.com/beer-flips-how-to-make-beer-and-whole-egg-cocktail-1832759172>
 
 哎呀，凯特，你什么时候才能分享一份包括热啤酒和一个全蛋的鸡尾酒配方呢？
 

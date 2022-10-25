@@ -1,6 +1,6 @@
 # 如何在 Spotify 上查看您孩子的收听历史
 
-> 原文:[https://life hacker . com/how-to-access-your-kids-listening-history-on-Spotify-1843418789](https://lifehacker.com/how-to-access-your-kids-listening-history-on-spotify-1843418789)
+> 原文：<https://lifehacker.com/how-to-access-your-kids-listening-history-on-spotify-1843418789>
 
 对于希望密切关注孩子在 [Spotify Kids](https://www.spotify.com/us/kids/) 中听什么的父母来说，该应用发布了两个新的家长控制，允许你访问他们的收听历史并阻止不想要的内容。
 

@@ -1,6 +1,6 @@
 # 如何判断 iPhone Bug 是否正在吞噬你的数据计划
 
-> 原文:[https://life hacker . com/how-to-tell-if-a-iphone-bug-is-eating-up-your-data-PLA-1842381977](https://lifehacker.com/how-to-tell-if-an-iphone-bug-is-eating-up-your-data-pla-1842381977)
+> 原文：<https://lifehacker.com/how-to-tell-if-an-iphone-bug-is-eating-up-your-data-pla-1842381977>
 
 一个奇怪的 iOS 漏洞正在吞噬移动数据，并导致 iPhone 用户每月账单飙升。您可能不会受到影响，但是值得检查一下(以防万一)。
 

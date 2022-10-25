@@ -1,6 +1,6 @@
 # 使用 Spotify 的“Soundtrack Your Workout”工具获得自定义播放列表
 
-> 原文:[https://life hacker . com/get-a-custom-playlist-with-spotifys-soundtrack-your-wor-1844308487](https://lifehacker.com/get-a-custom-playlist-with-spotifys-soundtrack-your-wor-1844308487)
+> 原文：<https://lifehacker.com/get-a-custom-playlist-with-spotifys-soundtrack-your-wor-1844308487>
 
 厌倦了你的锻炼组合？我们也是。特别是如果你在疫情期间独自在家锻炼，你厌倦了听同样的音乐是不足为奇的，如果你也对每次都制作一个新的播放列表感到不知所措也是完全可以理解的。
 

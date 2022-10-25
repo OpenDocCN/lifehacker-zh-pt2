@@ -1,6 +1,6 @@
 # 用这些工具获取脸书广告商的信息
 
-> 原文:[https://life hacker . com/get-information-on-Facebook-advertisers-with-these-tool-1834303639](https://lifehacker.com/get-information-on-facebook-advertisers-with-these-tool-1834303639)
+> 原文：<https://lifehacker.com/get-information-on-facebook-advertisers-with-these-tool-1834303639>
 
 我们听说了很多关于脸书广告的问题——无论是关于用户信息被追踪用于定向广告，还是可疑团体利用广告传播错误信息。看看对我们政治前景的影响:我们有选民*和政治家*散布虚假信息，通常只是因为他们在社交媒体上看到了。脸书的广告尤其令人震惊，因为该网站收集个人数据，并根据你的浏览行为定制你看到的广告。这不仅导致了令人毛骨悚然的特定目标广告，也增加了那些没有正确核实事实的人被包含虚假或误导信息的广告欺骗的机会。
 

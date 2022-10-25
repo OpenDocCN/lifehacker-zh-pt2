@@ -1,6 +1,6 @@
 # 如何在社交距离外试驾汽车？
 
-> 原文:[https://jalopnik . com/how-can-I-test-drive-a-car-while-social-distanding-1842425981](https://jalopnik.com/how-can-i-test-drive-a-car-while-social-distancing-1842425981)
+> 原文：<https://jalopnik.com/how-can-i-test-drive-a-car-while-social-distancing-1842425981>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。我决定挑几个问题，试着帮帮大家。这个星期，我们正在讨论社会距离和试驾，用你的信用杠杆低年利率融资和潜在的疯狂的麦克斯汽车。
 

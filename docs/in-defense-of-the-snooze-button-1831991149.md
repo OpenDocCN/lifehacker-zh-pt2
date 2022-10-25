@@ -1,6 +1,6 @@
 # 为贪睡按钮辩护
 
-> 原文:[https://life hacker . com/in-defense-of-the-snooze-button-1831991149](https://lifehacker.com/in-defense-of-the-snooze-button-1831991149)
+> 原文：<https://lifehacker.com/in-defense-of-the-snooze-button-1831991149>
 
 每个人醒来的方式不同，但大多数人都认同 [贪睡键](https://lifehacker.com/science-explains-why-you-should-stop-hitting-the-snooze-5991618) [是](https://lifehacker.com/does-the-snooze-button-turn-you-into-a-zombie-1543880213) [坏](https://lifehacker.com/how-to-stop-snoozing-and-get-yourself-out-of-bed-5934145) 。但我希望你能考虑不同的意见。我希望你能考虑一下，贪睡按钮是好的。
 

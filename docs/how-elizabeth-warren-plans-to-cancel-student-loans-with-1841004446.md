@@ -1,6 +1,6 @@
 # 不管有没有国会，伊丽莎白·沃伦计划如何取消学生贷款
 
-> 原文:[https://life hacker . com/how-Elizabeth-Warren-plans-to-cancel-student-loans-with-1841004446](https://lifehacker.com/how-elizabeth-warren-plans-to-cancel-student-loans-with-1841004446)
+> 原文：<https://lifehacker.com/how-elizabeth-warren-plans-to-cancel-student-loans-with-1841004446>
 
 问问任何一位政治学教授，他们都会告诉你，总统候选人野心勃勃，不择手段。由于我们的制衡制度，总统只能做这么多来改变政策。他们需要国会 通过法律，启动戏剧性的政策转变。
 

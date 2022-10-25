@@ -1,6 +1,6 @@
 # 什么是出生公民权？
 
-> 原文:[https://life hacker . com/what-is-birth-birth-citizenship-1830105835](https://lifehacker.com/what-is-birthright-citizenship-1830105835)
+> 原文：<https://lifehacker.com/what-is-birthright-citizenship-1830105835>
 
 南北战争后，美国宪法获得了三次修正:第 13 次宣布 [最](https://lifehacker.com/1830111620) 非自愿劳役为非法；第 14 次授予任何在这个国家出生的人公民身份，包括以前的奴隶；第 15 号法律宣布选举权中的种族歧视为非法。现在，特朗普总统 [表示，他相信](https://www.axios.com/trump-birthright-citizenship-executive-order-0cf4285a-16c6-48f2-a933-bd71fd72ea82.html) 他可以通过行政命令推翻第 14 修正案的关键条款。
 

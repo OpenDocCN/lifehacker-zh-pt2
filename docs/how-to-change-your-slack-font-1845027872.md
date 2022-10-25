@@ -1,6 +1,6 @@
 # 如何改变你的松弛字体
 
-> 原文:[https://life hacker . com/how-to-change-your-slack-font-1845027872](https://lifehacker.com/how-to-change-your-slack-font-1845027872)
+> 原文：<https://lifehacker.com/how-to-change-your-slack-font-1845027872>
 
 权力越大，责任越大。如果我想强调的话，我也不会再强调了，因为我现在要给你一个工具，你会被诱惑以一种愚蠢的方式使用:一个意味着改变 Slack 中的默认字体。
 

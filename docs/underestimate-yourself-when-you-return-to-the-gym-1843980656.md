@@ -1,6 +1,6 @@
 # 当你回到体育馆时，低估你自己
 
-> 原文:[https://life hacker . com/understand-you-when-you-retail-you-return-to-gym-1843980656](https://lifehacker.com/underestimate-yourself-when-you-return-to-the-gym-1843980656)
+> 原文：<https://lifehacker.com/underestimate-yourself-when-you-return-to-the-gym-1843980656>
 
 许多地区的健身房正在重新开放，或者很快就会重新开放，我们很多人都迫不及待地想回到正常的锻炼中。(我自己有一个设备齐全的家庭健身房，但我梦想有一天我可以回到一个合适的深蹲架。)但是让我们来谈谈当你第一次回去的时候应该有什么样的心态，这样你就不会让自己失望。
 

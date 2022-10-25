@@ -1,6 +1,6 @@
 # 特朗普总统被弹劾，现在会发生什么？
 
-> 原文:[https://life hacker . com/what-happens-now-that-president-trump-hacken-1840531039](https://lifehacker.com/what-happens-now-that-president-trump-has-been-impeache-1840531039)
+> 原文：<https://lifehacker.com/what-happens-now-that-president-trump-has-been-impeache-1840531039>
 
 周三，众议院弹劾了唐纳德·特朗普总统，这使他成为美国历史上第三位被弹劾的总统，投票结果非常接近党派界限。在投票中，众议院通过了昨天提出的两项弹劾条款，包括滥用权力( [定义为](https://www.reuters.com/article/us-usa-trump-impeachment-charges-factbox/factbox-abuse-of-power-obstruction-the-charges-against-trump-explained-idUSKBN1YM1O8) )和阻碍国会(通过他所谓的阻碍对他与乌克兰行动的调查)。
 

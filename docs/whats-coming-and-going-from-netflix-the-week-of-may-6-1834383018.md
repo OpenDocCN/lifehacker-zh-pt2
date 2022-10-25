@@ -1,6 +1,6 @@
 # 2019 年 5 月 6 日这一周，网飞有哪些活动
 
-> 原文:[https://life hacker . com/what-coming-and-going-from-the-week of-may-6-1834383018](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-may-6-1834383018)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-may-6-1834383018>
 
 你可以用它来校准你的手表:当网飞凭借*橙色是新的黑色*获得金牌的时候，有人有了一个好主意制作一个关于女子监狱的*真人秀*。 *Jailbirds* (周五)看起来会发生什么，如果有这个聪明想法的天才是*泽西海岸的创造者，*也就是说，它看起来像一个剥削的混乱，暴露人们最糟糕的一面供你娱乐。除了背景不是在一个避暑别墅之外，Jailbirds 的背景是在萨克拉门托乡村监狱。即使是我，带着我对真实犯罪的迷恋和真人秀的倾向，也会跳过这一集。
 

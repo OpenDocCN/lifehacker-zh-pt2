@@ -1,6 +1,6 @@
 # 用 Tally 记录你的新年决心
 
-> 原文:[https://life hacker . com/keep-track-of-your-new-years-resolutions-with-tally-1831419471](https://lifehacker.com/keep-track-of-your-new-years-resolutions-with-tally-1831419471)
+> 原文：<https://lifehacker.com/keep-track-of-your-new-years-resolutions-with-tally-1831419471>
 
 今天是新年，所以我们猜测你可能已经制定了一些新年计划。 [Tally](https://itunes.apple.com/us/app/tally-the-anything-tracker/id1090990601?mt=8) 是一个 iOS 应用程序，它可以帮助你记录你昨晚在醉酒后做出的所有崇高承诺。
 

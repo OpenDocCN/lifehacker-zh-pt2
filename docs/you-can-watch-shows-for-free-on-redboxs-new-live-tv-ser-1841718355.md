@@ -1,6 +1,6 @@
 # 你可以在 Redbox 新推出的直播电视服务上免费观看节目
 
-> 原文:[https://life hacker . com/you-can-watch-shows-on-redbox-new-live-TV-ser-1841718355](https://lifehacker.com/you-can-watch-shows-for-free-on-redboxs-new-live-tv-ser-1841718355)
+> 原文：<https://lifehacker.com/you-can-watch-shows-for-free-on-redboxs-new-live-tv-ser-1841718355>
 
 如果你正在寻找这个假期周末可以看的东西，现在你又多了一个可以看的地方。加油站和杂货店 DVD 出租盒背后的公司 Redbox， [本周推出了自己的免费电视服务](https://www.redbox.com/stream-free-live-tv) 。
 

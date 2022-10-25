@@ -1,6 +1,6 @@
 # 告诉我们你最好的雅典旅行建议
 
-> 原文:[https://life hacker . com/tell-us-your-best-Athens-travel-tips-1828094545](https://lifehacker.com/tell-us-your-best-athens-travel-tips-1828094545)
+> 原文：<https://lifehacker.com/tell-us-your-best-athens-travel-tips-1828094545>
 
 我读过一本关于雅典的书，这是一本关于“奔跑者”的小说，他们跳上火车进入城市，骗游客为城里破旧的旅馆房间多付钱。[](https://www.amazon.com/Running-Novel-Cara-Hoffman-ebook/dp/B01HMXV0JW/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/tell-us-your-best-athens-travel-tips-1828094545&asc_source=&tag=kinjalifehackerlink-20)*是一部关于尊严和绝望的深思熟虑的时期片。但这并不完全是游览雅典的广告。*雅典这几天怎么样？是因为太拥挤而无法享受，还是因为如果你离开那条车辙很深的小路，会有很多事情可以做？如果不值得，希腊爱好者还能去哪里吸收文化，尤其是如果他们还想去卫城一日游的话？** 
 

@@ -1,6 +1,6 @@
 # 哪些 PlayStation 和 Xbox 游戏可以免费升级？
 
-> 原文:[https://life hacker . com/which-PlayStation-and-Xbox-games-get-a-free-upgrade-1845030096](https://lifehacker.com/which-playstation-and-xbox-games-get-a-free-upgrade-1845030096)
+> 原文：<https://lifehacker.com/which-playstation-and-xbox-games-get-a-free-upgrade-1845030096>
 
 我们距离微软 Xbox Series X 和索尼 PlayStation 5 的发布只有几周时间。与大多数时代飞跃不同，这套新游戏机不会强迫你切断与 Xbox One 或 PS4 游戏库的联系。
 

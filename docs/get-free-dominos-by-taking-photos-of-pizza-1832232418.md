@@ -1,6 +1,6 @@
 # 通过拍摄比萨饼的照片获得免费的多米诺骨牌
 
-> 原文:[https://life hacker . com/get-free-dominos-by-photos-of-pizza-1832232418](https://lifehacker.com/get-free-dominos-by-taking-photos-of-pizza-1832232418)
+> 原文：<https://lifehacker.com/get-free-dominos-by-taking-photos-of-pizza-1832232418>
 
 免费披萨。
 

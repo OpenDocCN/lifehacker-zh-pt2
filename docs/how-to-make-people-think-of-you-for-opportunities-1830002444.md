@@ -1,6 +1,6 @@
 # 如何让人们认为你有机会
 
-> 原文:[https://life hacker . com/how-to-make-people-think-you-for-opportunities-1830002444](https://lifehacker.com/how-to-make-people-think-of-you-for-opportunities-1830002444)
+> 原文：<https://lifehacker.com/how-to-make-people-think-of-you-for-opportunities-1830002444>
 
 如果你曾经因为有人“想到你”而得到一份工作或一份演出，那么你已经从人际关系网中受益。良好的人际关系不需要任何肮脏或自私的东西。它要求你定义自己。这意味着当你遇到或赶上别人时，要更加注意自己的行为。
 

@@ -1,6 +1,6 @@
 # 为什么你不应该从你的退休账户里取钱，即使是现在
 
-> 原文:[https://life hacker . com/why-you-should-not-take money from your retirement-accoun-1842617492](https://lifehacker.com/why-you-shouldnt-take-money-from-your-retirement-accoun-1842617492)
+> 原文：<https://lifehacker.com/why-you-shouldnt-take-money-from-your-retirement-accoun-1842617492>
 
 上周签署成为法律的冠状病毒救助方案包括从你的退休账户中取钱的宽松规定。但是，尽管那些需要财务生命线的人现在有了选择，但在你开始转移资金之前，有几个注意事项要记住。
 

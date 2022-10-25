@@ -1,6 +1,6 @@
 # 如果你是一个夜猫子，如何度过清晨
 
-> 原文:[https://life hacker . com/a-night-owls-guide-to-surviving-earning-1831880539](https://lifehacker.com/a-night-owls-guide-to-surviving-early-mornings-1831880539)
+> 原文：<https://lifehacker.com/a-night-owls-guide-to-surviving-early-mornings-1831880539>
 
 如果你天生就是一个夜猫子，那么早早地把自己从床上拽起来就已经够有挑战性了。除此之外，没有必要再增加冥想、写日记、五英里跑步和电子邮件。如果早晨很难熬，你的早晨日程应该会很容易。
 

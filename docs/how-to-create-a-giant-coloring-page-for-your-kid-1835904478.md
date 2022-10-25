@@ -1,6 +1,6 @@
 # 如何为你的孩子创建一个巨大的彩色页面
 
-> 原文:[https://life hacker . com/how-to-create-a-giant-coloring-page for your-kid-1835904478](https://lifehacker.com/how-to-create-a-giant-coloring-page-for-your-kid-1835904478)
+> 原文：<https://lifehacker.com/how-to-create-a-giant-coloring-page-for-your-kid-1835904478>
 
 今年夏天，我一直在寻找一些有意义的儿童项目——可以在几天或几周内完成的项目。我找到了一个简单的活动，需要很少的材料，让我感觉自己像个巫师:我放大了一张彩色纸。
 

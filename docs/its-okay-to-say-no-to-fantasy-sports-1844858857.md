@@ -1,6 +1,6 @@
 # 对幻想运动说不没关系
 
-> 原文:[https://life hacker . com/its-okay-to-say-no-to-fantasy-sports-1844858857](https://lifehacker.com/its-okay-to-say-no-to-fantasy-sports-1844858857)
+> 原文：<https://lifehacker.com/its-okay-to-say-no-to-fantasy-sports-1844858857>
 
 随着秋天而来的是足球。尽管新冠肺炎疫情和大多数大学体育赛季被推迟，但 NFL 似乎决心继续前进，这意味着美国最受关注的运动的全数字版本已经领先于潮流。是的，每年的这个时候，你的收件箱都会收到电子邮件邀请和回复——都是来自朋友的帖子，邀请你加入他们的梦幻足球联盟。
 

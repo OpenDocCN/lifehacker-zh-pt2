@@ -1,6 +1,6 @@
 # learn how to make taco bell potatoes because they will 1844608145
 
-> 原文:[https://life hacker . com/learn-how-to-make-taco-bell-potatos-因为他们会-1844608145](https://lifehacker.com/learn-how-to-make-taco-bell-potatoes-because-they-will-1844608145)
+> 原文：<https://lifehacker.com/learn-how-to-make-taco-bell-potatoes-because-they-will-1844608145>
 
 今年早些时候，塔可钟犯了一个惊人的错误 [*从菜单上删除了所有美味的土豆类食物*](https://thetakeout.com/missouri-man-preserves-taco-bell-potato-tacos-for-scien-1845369095) *。该公司已经看到了其方式的错误，cheesy potato tacos 等* [*将很快再次成为第四餐。但是你不需要塔可钟的怜悯，也不需要等待——因为我们已经告诉你如何在家里制作你自己版本的这些淀粉食品。原文如下。*
 

@@ -1,6 +1,6 @@
 # 你应该拥有八条长内裤
 
-> 原文:[https://life hacker . com/you-should-own-like-first-pairs-1832969771](https://lifehacker.com/you-should-own-like-eight-pairs-of-long-underwear-1832969771)
+> 原文：<https://lifehacker.com/you-should-own-like-eight-pairs-of-long-underwear-1832969771>
 
 Lifehacker 的员工在 [一间冰冷的办公室](https://lifehacker.com/what-to-do-when-your-office-is-too-cold-1821872684) 里工作。有时我们戴帽子，总是穿毛衣，有几次甚至戴无指手套。今年冬天，每天气温都在 45 度以下，我在裤子里穿上了舒适的秋裤。 [我是一个大大的烤肉桂面包。](https://www.youtube.com/watch?v=GGfz7ptRjgM) 你应该也是。
 

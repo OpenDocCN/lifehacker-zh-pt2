@@ -1,6 +1,6 @@
 # 你的 DNA 结果会影响你的锻炼
 
-> 原文:[https://life hacker . com/your-DNA-results-can-screw-up-your-workout-1834336806](https://lifehacker.com/your-dna-results-can-screw-up-your-workout-1834336806)
+> 原文：<https://lifehacker.com/your-dna-results-can-screw-up-your-workout-1834336806>
 
 显然， [某种程度的健康是遗传的](https://vitals.lifehacker.com/how-much-does-genetics-really-affect-your-fitness-1747333767) :你不能指望每个人都遵循同样的锻炼有相同的结果。进行测试来看看你个人是否与优秀短跑运动员或举重运动员有相同的基因是很有诱惑力的。但是 [DNA 测试不能告诉你太多关于你的健康状况](https://vitals.lifehacker.com/can-a-dna-test-really-help-you-lose-weight-1825822704) ，事实证明，知道你的结果实际上可能会改变你的感觉和表现。
 

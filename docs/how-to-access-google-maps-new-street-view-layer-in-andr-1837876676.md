@@ -1,6 +1,6 @@
 # 如何在 Android 中访问谷歌地图的新街景图层
 
-> 原文:[https://life hacker . com/how-to-access-Google-maps-new-street-view-layer-in-andr-1837876676](https://lifehacker.com/how-to-access-google-maps-new-street-view-layer-in-andr-1837876676)
+> 原文：<https://lifehacker.com/how-to-access-google-maps-new-street-view-layer-in-andr-1837876676>
 
 谷歌正在慢慢缩小谷歌地图移动版和桌面版之间的功能差距，最近的一次更新终于使在 Android 应用程序上玩街景像在电脑上一样容易。
 

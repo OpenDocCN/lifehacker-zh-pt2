@@ -1,6 +1,6 @@
 # 你应该什么时候列举你的税款？
 
-> 原文:[https://life hacker . com/when-should-you-item-you-taxes-1832119045](https://lifehacker.com/when-should-you-itemize-your-taxes-1832119045)
+> 原文：<https://lifehacker.com/when-should-you-itemize-your-taxes-1832119045>
 
 如何决定是采用 [标准扣除](https://www.investopedia.com/terms/s/standarddeduction.asp) 还是采用 [分项扣除](https://www.investopedia.com/terms/i/itemizeddeduction.asp) ？显然，你会想选择哪一个能最大程度地降低你的年收入，这样你就能少交税。但是你怎么知道呢？
 

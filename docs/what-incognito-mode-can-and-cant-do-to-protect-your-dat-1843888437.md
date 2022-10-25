@@ -1,6 +1,6 @@
 # “匿名模式”能做什么和不能做什么来保护您的数据
 
-> 原文:[https://life hacker . com/what-incognito-mode-can-and-cant-do-to-protect-your-dat-1843888437](https://lifehacker.com/what-incognito-mode-can-and-cant-do-to-protect-your-dat-1843888437)
+> 原文：<https://lifehacker.com/what-incognito-mode-can-and-cant-do-to-protect-your-dat-1843888437>
 
 你知道 Chrome 的隐姓埋名模式会对你浏览器的数据做什么吗？如果没有，这是值得重温的，因为似乎有些用户一直在错误的印象下操作。
 

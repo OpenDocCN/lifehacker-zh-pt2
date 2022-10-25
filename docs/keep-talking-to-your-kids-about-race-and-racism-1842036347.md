@@ -1,6 +1,6 @@
 # 继续和你的孩子谈论种族和种族主义
 
-> 原文:[https://life hacker . com/keep-talk-to-your-kids-on-race-and-racism-1842036347](https://lifehacker.com/keep-talking-to-your-kids-about-race-and-racism-1842036347)
+> 原文：<https://lifehacker.com/keep-talking-to-your-kids-about-race-and-racism-1842036347>
 
 如果你是非美国黑人，你大概(希望？)在二月份找些时间和你的孩子谈谈奴隶制、民权和种族主义。孩子们在一个月的某个时候从学校回家谈论小马丁·路德·金的梦想或罗莎·帕克斯的公共汽车座位，你直接跳到上面，和他们谈论我们国家的种族主义历史以及它是如何仍然存在的。
 

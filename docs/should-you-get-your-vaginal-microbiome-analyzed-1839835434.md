@@ -1,6 +1,6 @@
 # 你应该去做阴道微生物组分析吗？
 
-> 原文:[https://life hacker . com/should-you-get-your-vaginal-microbiome-analyzed-1839835434](https://lifehacker.com/should-you-get-your-vaginal-microbiome-analyzed-1839835434)
+> 原文：<https://lifehacker.com/should-you-get-your-vaginal-microbiome-analyzed-1839835434>
 
 生活在阴道中的细菌和其他微生物对我们的健康非常重要，但是(就像身体其他部位的微生物一样)人们对它们的了解并不多。现在，一家公司正在向参加他们研究的女性提供免费的阴道微生物组报告 。
 

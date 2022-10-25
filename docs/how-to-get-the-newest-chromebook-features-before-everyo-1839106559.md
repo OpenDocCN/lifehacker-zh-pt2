@@ -1,6 +1,6 @@
 # 如何在其他人之前获得最新的 Chromebook 功能
 
-> 原文:[https://life hacker . com/how-to-get-the-newest-chrome book-features-before-every o-1839106559](https://lifehacker.com/how-to-get-the-newest-chromebook-features-before-everyo-1839106559)
+> 原文：<https://lifehacker.com/how-to-get-the-newest-chromebook-features-before-everyo-1839106559>
 
 当热门应用 和操作系统出现时，我们尽最大努力强调它们的 [酷新测试功能，但事实是新功能和想法总是在每一个活跃的软件上进行测试。只要那些产品有测试程序，你就可以随时测试它们。](https://lifehacker.com/how-to-change-firefoxs-default-search-engine-for-privat-1838880194) 
 

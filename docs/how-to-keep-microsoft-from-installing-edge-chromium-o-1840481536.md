@@ -1,6 +1,6 @@
 # 如何阻止微软在你的电脑上安装 Edge (Chromium)
 
-> 原文:[https://life hacker . com/how-to-keep-Microsoft-from-installing-edge-chromium-o-1840481536](https://lifehacker.com/how-to-keep-microsoft-from-installing-edge-chromium-o-1840481536)
+> 原文：<https://lifehacker.com/how-to-keep-microsoft-from-installing-edge-chromium-o-1840481536>
 
 微软计划在 1 月 15 日通过 Windows 更新推出 Edge。自从浏览器的 Chromium 版本在 4 月份首次亮相以来，我们已经玩得很开心了，在下个月正式发布之前，我们可能会有更多的话要说。但我也不希望你的台式机或笔记本电脑上有另一个浏览器——不幸的是，在这个问题上你没有太多的选择。
 

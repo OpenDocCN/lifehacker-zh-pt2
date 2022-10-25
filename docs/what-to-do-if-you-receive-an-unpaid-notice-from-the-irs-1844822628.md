@@ -1,6 +1,6 @@
 # 如果收到美国国税局的未付通知，该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-you-to-do-if-you-receive-a-notice-from-the-IRS-1844822628](https://lifehacker.com/what-to-do-if-you-receive-an-unpaid-notice-from-the-irs-1844822628)
+> 原文：<https://lifehacker.com/what-to-do-if-you-receive-an-unpaid-notice-from-the-irs-1844822628>
 
 当冠状病毒开始席卷全国时，许多办公室被迫关闭，包括国税局这样的政府机构。这些关闭导致处理延迟，特别是纸质纳税申报表。据美国消费者新闻与商业频道 报道，该机构的办公室今年夏天有 1200 万封未拆封的邮件——其中包括税款。
 

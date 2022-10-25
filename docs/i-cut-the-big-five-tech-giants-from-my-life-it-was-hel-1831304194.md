@@ -1,6 +1,6 @@
 # i cut the big five tech giants from my life it was hel 1831304194
 
-> 原文:[https://gizmodo . com/I-cut-the-big-five-tech-giants-from-my-life-it-was-hel-1831304194](https://gizmodo.com/i-cut-the-big-five-tech-giants-from-my-life-it-was-hel-1831304194)
+> 原文：<https://gizmodo.com/i-cut-the-big-five-tech-giants-from-my-life-it-was-hel-1831304194>
 
 **第六周:全部屏蔽**
 

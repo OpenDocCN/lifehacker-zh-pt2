@@ -1,6 +1,6 @@
 # 如果你在疫情之后才支付学生贷款，会发生什么？
 
-> 原文:[https://life hacker . com/what-happen-if-you-not-pay-your student-loans-unta-a-1842861361](https://lifehacker.com/what-happens-if-you-dont-pay-your-student-loans-until-a-1842861361)
+> 原文：<https://lifehacker.com/what-happens-if-you-dont-pay-your-student-loans-until-a-1842861361>
 
 当冠状病毒爆发期间 [政府暂停支付](https://lifehacker.com/heres-the-new-coronavirus-student-loan-plan-1842560767) 和所有联邦学生贷款的利息时，这对许多借款人来说就像是一张免费通行证。
 

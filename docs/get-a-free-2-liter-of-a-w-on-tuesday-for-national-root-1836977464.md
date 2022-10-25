@@ -1,6 +1,6 @@
 # 8 月 6 日获得一杯免费的 2 升 A&W 根啤酒
 
-> 原文:[https://life hacker . com/get-a-free-a-2-liter-of-a-w-on-Tuesday-for-national-root-1836977464](https://lifehacker.com/get-a-free-2-liter-of-a-w-on-tuesday-for-national-root-1836977464)
+> 原文：<https://lifehacker.com/get-a-free-2-liter-of-a-w-on-tuesday-for-national-root-1836977464>
 
 周二是“全国根汁汽水漂浮日”我们需要一天来庆祝根汁汽水漂浮吗？大概不会。但既然我们有一个，我们不妨用它来获得一些免费的根啤酒。
 

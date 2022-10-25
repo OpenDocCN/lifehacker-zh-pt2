@@ -1,6 +1,6 @@
 # 为家庭杂务创建一个“招聘”公告栏
 
-> 原文:[https://life hacker . com/create-a-help-wanted-bulletin-board-for-family-features-1841833307](https://lifehacker.com/create-a-help-wanted-bulletin-board-for-family-chores-1841833307)
+> 原文：<https://lifehacker.com/create-a-help-wanted-bulletin-board-for-family-chores-1841833307>
 
 在学校度过漫长的一周后，孩子们不一定想在周末做家务。他们宁愿看电视也不愿吸尘。或者建造一个新的乐高玩具而不是折叠毛巾。(孩子们，我们也是。我们也是。)他们对日常工作之外的家务活特别抵触——你想让我喂狗、清空洗碗机、拔草？！
 

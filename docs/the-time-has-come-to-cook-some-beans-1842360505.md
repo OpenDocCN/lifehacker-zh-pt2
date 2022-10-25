@@ -1,6 +1,6 @@
 # 是时候煮些豆子了
 
-> 原文:[https://life hacker . com/the-time-has-to-cook-some-beans-1842360505](https://lifehacker.com/the-time-has-come-to-cook-some-beans-1842360505)
+> 原文：<https://lifehacker.com/the-time-has-come-to-cook-some-beans-1842360505>
 
 这是成为一颗豆子，或者更准确地说，成为豆子供应商的大好时机。除了某个独家豆类俱乐部 的受欢迎程度之外，当前的条件也让干豆和罐装豆成为了抢手货。
 

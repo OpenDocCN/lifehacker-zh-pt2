@@ -1,6 +1,6 @@
 # 你为什么要谎报年龄
 
-> 原文:[https://life hacker . com/why-you-should-like your-age-1837065887](https://lifehacker.com/why-you-should-lie-to-yourself-about-your-age-1837065887)
+> 原文：<https://lifehacker.com/why-you-should-lie-to-yourself-about-your-age-1837065887>
 
 很多年来，我妈妈一直告诉她自己——以及任何愿意听她的人——她已经 45 岁了。她没有主动试图欺骗我们(我已经 37 岁了，所以我不会上当)；她试图欺骗自己。她曾在某处读到过，如果你告诉自己你还年轻，你会开始觉得自己更年轻。
 

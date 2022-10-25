@@ -1,6 +1,6 @@
 # 了解您的网络，第 1 课:路由器硬件 101
 
-> 原文:[https://life hacker . com/know-your-network-lesson-1-router-hardware-101-5830886](https://lifehacker.com/know-your-network-lesson-1-router-hardware-101-5830886)
+> 原文：<https://lifehacker.com/know-your-network-lesson-1-router-hardware-101-5830886>
 
 购买和配置一个新的无线路由器可能是一个令人麻木的练习。如果你对自己的极客技能非常自信，你可能不需要太多的手把手，但是有很多人对无线网络几乎一无所知。他们几年前买的一些四四方方的设备可以让他们在马桶上看 YouTube，这才是最重要的。
 

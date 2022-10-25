@@ -1,6 +1,6 @@
 # 总是带着现金，这样你就可以留下小费
 
-> 原文:[https://life hacker . com/always-carry-cash-so-you-can-leave-tips-1834167484](https://lifehacker.com/always-carry-cash-so-you-can-leave-tips-1834167484)
+> 原文：<https://lifehacker.com/always-carry-cash-so-you-can-leave-tips-1834167484>
 
 今年早些时候，新泽西州成为第二个禁止无现金餐馆的州(仅次于马萨诸塞州)。来报 [餐厅生意](https://www.restaurantbusinessonline.com/operations/nj-becomes-2nd-state-ban-cashless-restaurants) :
 

@@ -1,6 +1,6 @@
 # 你的 401(k)计划中这个令人困惑的术语是什么意思
 
-> 原文:[https://life hacker . com/what-this-foaming-term-in-your-401-k-plan-means-1832565508](https://lifehacker.com/what-this-confusing-term-in-your-401-k-plan-means-1832565508)
+> 原文：<https://lifehacker.com/what-this-confusing-term-in-your-401-k-plan-means-1832565508>
 
 "下滑路径、、、、管理风险。"我们退休账户中的术语常常看起来像是翻译外语。
 

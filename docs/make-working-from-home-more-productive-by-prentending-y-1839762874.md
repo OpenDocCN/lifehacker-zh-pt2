@@ -1,6 +1,6 @@
 # 假装你在办公室，让在家工作更有效率
 
-> 原文:[https://life hacker . com/make-work-from-home-productive-by-pretending-y-1839762874](https://lifehacker.com/make-working-from-home-more-productive-by-prentending-y-1839762874)
+> 原文：<https://lifehacker.com/make-working-from-home-more-productive-by-prentending-y-1839762874>
 
 在过去十年的大部分时间里，我都是在家工作。在家工作很棒，但也会让人分心。一件让事情变得简单的事？假装你去了办公室。
 

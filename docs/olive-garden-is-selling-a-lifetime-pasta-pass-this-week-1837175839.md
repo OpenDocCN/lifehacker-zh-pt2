@@ -1,6 +1,6 @@
 # 橄榄园本周正在出售终身意大利面券
 
-> 原文:[https://life hacker . com/olive-garden-is-selling-a life-a-pass-this-week-1837175839](https://lifehacker.com/olive-garden-is-selling-a-lifetime-pasta-pass-this-week-1837175839)
+> 原文：<https://lifehacker.com/olive-garden-is-selling-a-lifetime-pasta-pass-this-week-1837175839>
 
 橄榄园著名的无限“意大利面通行证”本周回归。通行证将于周四下午 2 点正式发售，但今年他们也将成为意大利面通行证阵容的新成员:终身通行证。
 

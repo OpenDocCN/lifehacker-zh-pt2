@@ -1,6 +1,6 @@
 # 你应该办一张航空信用卡吗？
 
-> 原文:[https://life hacker . com/should-you-get-a-airline-credit-card-1836427704](https://lifehacker.com/should-you-get-an-airline-credit-card-1836427704)
+> 原文：<https://lifehacker.com/should-you-get-an-airline-credit-card-1836427704>
 
 有了大量的旅行奖励信用卡选择，你可能会想知道是否有航空公司专用的信用卡值得考虑。如果你已经有了一张，也许新鲜感已经消失了，它已经让位于一张新的卡片，这种卡片不需要太多的品牌忠诚度。但是，如果旅行信用卡对你来说是新的，你可能会考虑让事情变得简单，办一张卡，你可以只在一家航空公司旅行时消费。
 

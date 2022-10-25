@@ -1,6 +1,6 @@
 # 在 Apple 日历中添加事件时让文件自动打开
 
-> 原文:[https://life hacker . com/have-a-file-automatically-open-when-adding-a-event-in-1829960749](https://lifehacker.com/have-a-file-automatically-open-when-adding-an-event-in-1829960749)
+> 原文：<https://lifehacker.com/have-a-file-automatically-open-when-adding-an-event-in-1829960749>
 
 我通常是谷歌日历的用户，但自从越来越多地使用我的 MacBook Air 后，我也开始将苹果日历融入我的日常生活中，。我喜欢这个布局，，我也喜欢 MacOS Mojave 的新黑暗模式。 
 

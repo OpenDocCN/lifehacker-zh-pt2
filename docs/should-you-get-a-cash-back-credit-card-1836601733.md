@@ -1,6 +1,6 @@
 # 你应该办一张返现信用卡吗？
 
-> 原文:[https://life hacker . com/should-you-get-a-cash-back-credit-card-1836601733](https://lifehacker.com/should-you-get-a-cash-back-credit-card-1836601733)
+> 原文：<https://lifehacker.com/should-you-get-a-cash-back-credit-card-1836601733>
 
 返现信用卡经常被旅行奖励卡所取代。的确，通过积分获得免费机票或升级酒店住宿感觉比声明信用更令人眼花缭乱。但是难道你不想在月底拿到钱吗？
 

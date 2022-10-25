@@ -1,6 +1,6 @@
 # 如何为你的电动汽车追溯获得税收抵免
 
-> 原文:[https://life hacker . com/how-to-get-tax-credits-retro-for-your-electric-1840563976](https://lifehacker.com/how-to-get-tax-credits-retroactively-for-your-electric-1840563976)
+> 原文：<https://lifehacker.com/how-to-get-tax-credits-retroactively-for-your-electric-1840563976>
 
 国会本周批准的支出法案没有为有意购买电动汽车的人提供任何税收减免。但是它确实有一些追溯性税收抵免 如果你已经有了一个这种新奇的玩意儿，你可以去偷。
 

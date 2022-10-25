@@ -1,6 +1,6 @@
 # 用 Darkdocs 给 Google Docs 添加一个黑暗模式
 
-> 原文:[https://life hacker . com/add-a-dark-mode-to-Google-docs-with-dark docs-1830043475](https://lifehacker.com/add-a-dark-mode-to-google-docs-with-darkdocs-1830043475)
+> 原文：<https://lifehacker.com/add-a-dark-mode-to-google-docs-with-darkdocs-1830043475>
 
 我非常喜欢网站和应用程序的夜晚或“黑暗”模式。较暗的背景比明亮的白色背景耗电更少，对眼睛也更好看。这是双赢。我以前写过几个 Chrome 扩展，可以让你做任何事情都打开黑暗模式。本周，我偶然发现了一个专门适用于谷歌文档的新工具。
 

@@ -1,6 +1,6 @@
 # 即使你经济上有保障，也是时候按照预算生活了
 
-> 原文:[https://life hacker . com/its-time-to-live-on-a-budget-even-if-you-financial-1843180219](https://lifehacker.com/its-time-to-live-on-a-budget-even-if-youre-financially-1843180219)
+> 原文：<https://lifehacker.com/its-time-to-live-on-a-budget-even-if-youre-financially-1843180219>
 
 现在我们的生活中有两大未知:新冠肺炎疫情将会发生什么，这对经济意味着什么。如果我们进入大流行后的衰退(或者已经处于疫情中期的衰退)，这对我们的工作和生计意味着什么——我们应该在财务上做些什么准备？
 

@@ -1,6 +1,6 @@
 # 如何安装谷歌 Chrome 的实验阅读器模式
 
-> 原文:[https://life hacker . com/how-to-install-Google-chrome-s-experimental-reader-mode-1834171339](https://lifehacker.com/how-to-install-google-chrome-s-experimental-reader-mode-1834171339)
+> 原文：<https://lifehacker.com/how-to-install-google-chrome-s-experimental-reader-mode-1834171339>
 
 对于讨厌广告、自动播放视频和繁忙网页的人来说，我们有一些好消息:*谷歌 Chrome 增加了一个阅读器模式*。
 

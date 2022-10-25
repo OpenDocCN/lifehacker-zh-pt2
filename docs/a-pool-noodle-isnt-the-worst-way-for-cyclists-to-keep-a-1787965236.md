@@ -1,6 +1,6 @@
 # 用泳池面条在路上为你的自行车腾出空间
 
-> 原文:[https://life hacker . com/a-pool-noodle-is-the-worst-way for-cyclers-to-keep-a-1787965236](https://lifehacker.com/a-pool-noodle-isnt-the-worst-way-for-cyclists-to-keep-a-1787965236)
+> 原文：<https://lifehacker.com/a-pool-noodle-isnt-the-worst-way-for-cyclists-to-keep-a-1787965236>
 
 如果你所在的城市没有自行车道，那就由骑着自行车经过你身边的每辆车来决定给你多少空间。他们经常做得很差。但是你可以回收一些空间——特别是安全通过距离——通过在你的自行车上绑一个游泳池面条。
 

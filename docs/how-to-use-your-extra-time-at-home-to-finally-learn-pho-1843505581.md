@@ -1,6 +1,6 @@
 # 如何利用在家的多余时间最终学会 Photoshop
 
-> 原文:[https://gizmodo . com/how-to-use your ' s extra-time-to-finally-learn-pho-1843505581](https://gizmodo.com/how-to-use-your-extra-time-at-home-to-finally-learn-pho-1843505581)
+> 原文：<https://gizmodo.com/how-to-use-your-extra-time-at-home-to-finally-learn-pho-1843505581>
 
 精通 Adobe Photoshop 可以帮助你在各个领域简化工作流程，从网页设计和 T2 在线出版到数字艺术和摄影。该软件在图像- 编辑领域占据主导地位(尽管也有其他选择)，无论你是什么级别——从初学者到专家——在 Windows 或 macOS 上使用该程序总会有更多东西要学。
 

@@ -1,6 +1,6 @@
 # 这些送餐服务机构保留员工的小费
 
-> 原文:[https://life hacker . com/these-food-delivery-services-keep-they-employees-tips-1836601037](https://lifehacker.com/these-food-delivery-services-keep-their-employees-tips-1836601037)
+> 原文：<https://lifehacker.com/these-food-delivery-services-keep-their-employees-tips-1836601037>
 
 如果你使用一个应用程序来获得食物，你的小费可能会直接进入送货员工作的公司的银行账户，而不是这个人的口袋。
 

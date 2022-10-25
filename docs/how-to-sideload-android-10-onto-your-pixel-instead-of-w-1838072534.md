@@ -1,6 +1,6 @@
 # 如何将 Android 10 加载到你的 Pixel 上，而不是等待自动更新
 
-> 原文:[https://life hacker . com/how-to-side load-Android-10-on-your-pixel-of-w-1838072534](https://lifehacker.com/how-to-sideload-android-10-onto-your-pixel-instead-of-w-1838072534)
+> 原文：<https://lifehacker.com/how-to-sideload-android-10-onto-your-pixel-instead-of-w-1838072534>
 
 Android 10 已经为 Pixel 手机提供了几天，但一些用户可能还没有收到自动更新。你可以在你的 Pixel 上进入**设置>关于手机>系统更新**来检查待更新；更新可能会在未来几天内到达你的 Pixel，但如果你急于安装 Android 10，不想等待谷歌，你可以手动下载新的操作系统版本。这种方法适用于所有的像素模型，我们将向你展示它是如何工作的。
 

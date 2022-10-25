@@ -1,6 +1,6 @@
 # 如何回复米歇尔·奥巴马的毕业生“虚拟毕业典礼”
 
-> 原文:[https://life hacker . com/how-to-RSVP-for-Michelle-Obama-virtual-concurrence-fo-1843365886](https://lifehacker.com/how-to-rsvp-for-michelle-obamas-virtual-commencement-fo-1843365886)
+> 原文：<https://lifehacker.com/how-to-rsvp-for-michelle-obamas-virtual-commencement-fo-1843365886>
 
 家庭订单意味着今年大多数高中和大学毕业典礼都被取消了。
 

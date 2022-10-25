@@ -1,6 +1,6 @@
 # 你现在应该在浏览器中启用的五个自定义搜索
 
-> 原文:[https://life hacker . com/five-custom-searches-you-should-enable-in-your-browser-5971715](https://lifehacker.com/five-custom-searches-you-should-enable-in-your-browser-5971715)
+> 原文：<https://lifehacker.com/five-custom-searches-you-should-enable-in-your-browser-5971715>
 
 定制搜索引擎是任何现代浏览器中最酷的功能之一。只需敲击几下键盘，你就可以直接从地址栏搜索维基百科，在谷歌上搜索 Lifehacker 的文章，甚至还能找到某个特定地点的行车路线。
 

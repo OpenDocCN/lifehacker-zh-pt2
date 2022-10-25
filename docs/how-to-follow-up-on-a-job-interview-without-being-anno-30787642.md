@@ -1,6 +1,6 @@
 # 如何跟进工作面试(不让人讨厌)
 
-> 原文:[https://life hacker . com/how-to-follow-up-on-a-job-surface-without-be-anno-30787642](https://lifehacker.com/how-to-follow-up-on-a-job-interview-without-being-anno-30787642)
+> 原文：<https://lifehacker.com/how-to-follow-up-on-a-job-interview-without-being-anno-30787642>
 
 面试一份潜在的工作本身就足以引发压力，甚至不用考虑整个后续过程。如果你认为进行得很顺利，但没有收到任何回复，该怎么办？有时这是坏消息的征兆，有时不是。你想跟进了解情况，但又不想惹人烦。以下是有效处理这种情况的方法。
 

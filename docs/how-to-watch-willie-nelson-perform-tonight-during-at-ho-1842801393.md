@@ -1,6 +1,6 @@
 # 如何观看威利·尼尔森今晚在“在家务农”节目中的表演
 
-> 原文:[https://life hacker . com/how-to-watch-Willie-Nelson-perform-night-in-at-ho-1842801393](https://lifehacker.com/how-to-watch-willie-nelson-perform-tonight-during-at-ho-1842801393)
+> 原文：<https://lifehacker.com/how-to-watch-willie-nelson-perform-tonight-during-at-ho-1842801393>
 
 威利·尼尔森今晚将举办他广受欢迎的农场援助节的数字版。这场名为“农业援助之家”的演出将包括农业援助委员会成员的表演，其中包括戴夫·马休斯、尼尔·杨和约翰·梅伦坎普。
 

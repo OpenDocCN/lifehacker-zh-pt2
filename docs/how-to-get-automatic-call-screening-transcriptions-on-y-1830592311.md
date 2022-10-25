@@ -1,6 +1,6 @@
 # 如何立即在您的 Pixel 上获得自动来电显示转录
 
-> 原文:[https://life hacker . com/how-to-get-automatic-call-screening-transcriptions-on-y-1830592311](https://lifehacker.com/how-to-get-automatic-call-screening-transcriptions-on-y-1830592311)
+> 原文：<https://lifehacker.com/how-to-get-automatic-call-screening-transcriptions-on-y-1830592311>
 
 Pixel 2 和 Pixel 3 用户享受的最方便的功能之一通话筛选正在进行重要升级。到今年年底，你的设备将能够保存它在处理疑似垃圾电话(或你选择手动筛选的电话)时创建的电话记录。如果你不想等待，你现在就可以测试这个功能。
 

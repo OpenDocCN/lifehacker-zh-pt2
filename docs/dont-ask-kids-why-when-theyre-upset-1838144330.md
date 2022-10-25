@@ -1,6 +1,6 @@
 # 当孩子们不开心的时候，不要问他们“为什么”
 
-> 原文:[https://life hacker . com/don ' t-ask-kids-why-when-they-sense-1838144330](https://lifehacker.com/dont-ask-kids-why-when-theyre-upset-1838144330)
+> 原文：<https://lifehacker.com/dont-ask-kids-why-when-theyre-upset-1838144330>
 
 在过去的五分钟里，你的孩子在做数学作业时一直在小声嘟囔；最后，他明显沮丧地摔下铅笔。“你为什么变得如此沮丧？”你可能会问。或者你的学龄前儿童冲下楼梯奔向你，泪水顺着她的脸颊流下；“你为什么难过？”你问。
 

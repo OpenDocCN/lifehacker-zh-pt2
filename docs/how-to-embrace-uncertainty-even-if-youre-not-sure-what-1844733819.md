@@ -1,6 +1,6 @@
 # 如何拥抱不确定性，即使你不确定接下来会发生什么
 
-> 原文:[https://life hacker . com/how-to-embrace-uncertainty-even-if-you-not-that-what-1844733819](https://lifehacker.com/how-to-embrace-uncertainty-even-if-youre-not-sure-what-1844733819)
+> 原文：<https://lifehacker.com/how-to-embrace-uncertainty-even-if-youre-not-sure-what-1844733819>
 
 对许多人来说，不确定性令人不安。当然，我们不希望我们生活的每一部分都是公式化和乏味的，但是不确定你是否能每月支付你的账单，例如，可能会导致焦虑。大多数人每天都有某种类型的不确定性——无论是财务、职业、个人还是关系——但在过去的几个月里，一切都变了。
 

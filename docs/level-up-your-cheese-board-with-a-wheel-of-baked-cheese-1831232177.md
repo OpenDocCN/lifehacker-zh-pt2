@@ -1,6 +1,6 @@
 # 用一轮烤奶酪来提升你的奶酪板
 
-> 原文:[https://life hacker . com/level-up-your-cheese-board with-a wheel-of-baked-cheese-1831232177](https://lifehacker.com/level-up-your-cheese-board-with-a-wheel-of-baked-cheese-1831232177)
+> 原文：<https://lifehacker.com/level-up-your-cheese-board-with-a-wheel-of-baked-cheese-1831232177>
 
 奶酪盘是节日聚会开胃菜 的支柱，但寻找新的方法来增加通常的怀疑可能是一个挑战。请允许我向你介绍你的新朋友:烤奶酪。
 

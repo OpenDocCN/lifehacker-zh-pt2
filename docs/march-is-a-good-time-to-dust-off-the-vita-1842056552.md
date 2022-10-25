@@ -1,6 +1,6 @@
 # 三月是重温旧梦的好时候
 
-> 原文:[https://kotaku . com/March-is-a-good-time-to-dush-off-the-vita-1842056552](https://kotaku.com/march-is-a-good-time-to-dust-off-the-vita-1842056552)
+> 原文：<https://kotaku.com/march-is-a-good-time-to-dust-off-the-vita-1842056552>
 
 春天还有几周才正式到来，但外面已经超过了 50 度，新的增长开始萌芽，我开始怀念多年来我在 Vita 上积累的十几个丰富多彩的独立游戏。
 

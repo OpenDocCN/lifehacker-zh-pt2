@@ -1,6 +1,6 @@
 # 让我们不要再叫孩子们“害羞”了
 
-> 原文:[https://life hacker . com/let-stop-calling-kids-shy-1834778014](https://lifehacker.com/lets-stop-calling-kids-shy-1834778014)
+> 原文：<https://lifehacker.com/lets-stop-calling-kids-shy-1834778014>
 
 我从小就觉得自己很害羞。这是一个很容易得出的结论，因为每当我处在一个让我感到不舒服的情况下——特别是当我被期待与一个我几乎不认识的人互动时——总有人会不可避免地说，“哦，她很害羞。”或者，更糟的是，他们会直接问我，“你害羞吗？?"
 

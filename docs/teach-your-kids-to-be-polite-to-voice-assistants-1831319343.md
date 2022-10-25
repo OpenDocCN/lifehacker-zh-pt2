@@ -1,6 +1,6 @@
 # 教育你的孩子对语音助手有礼貌
 
-> 原文:[https://life hacker . com/teach-your-kids-to-be-currently-to-voice-assistants-1831319343](https://lifehacker.com/teach-your-kids-to-be-polite-to-voice-assistants-1831319343)
+> 原文：<https://lifehacker.com/teach-your-kids-to-be-polite-to-voice-assistants-1831319343>
 
 我们教我们的孩子“礼貌地”要求一些东西，开头是“请”，结尾是“T2”。我们教他们对邻居、收银员和餐厅服务员要有礼貌。当他们打嗝时，为他们开门并说声“对不起”。
 

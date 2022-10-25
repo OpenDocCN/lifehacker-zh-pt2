@@ -1,6 +1,6 @@
 # 你的联邦学生贷款服务商可能会改变
 
-> 原文:[https://life hacker . com/your-federal-student-loan-servicer-may-be-changing-1844246809](https://lifehacker.com/your-federal-student-loan-servicer-may-be-changing-1844246809)
+> 原文：<https://lifehacker.com/your-federal-student-loan-servicer-may-be-changing-1844246809>
 
 如果你有联邦学生贷款，你可能知道，虽然政府拥有贷款，但他们会招募另一家公司——一家服务公司——来处理向借款人收取还款的日常业务。但是很快，你支付每月学生贷款账单的方式将会改变，你甚至会发现你有了一个新的贷款服务商。
 

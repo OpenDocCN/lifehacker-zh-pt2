@@ -1,6 +1,6 @@
 # 你需要一个金钱问责伙伴
 
-> 原文:[https://life hacker . com/you-need-a-money-account ability-buddy-1830181929](https://lifehacker.com/you-need-a-money-accountability-buddy-1830181929)
+> 原文：<https://lifehacker.com/you-need-a-money-accountability-buddy-1830181929>
 
 自动化是让你的财务 井然有序的 [最重要的诀窍之一。事实证明，向退休账户或其他投资账户自动存款，并向储蓄账户转账，可以让人们储蓄更多，而自动账单支付可以帮助个人减少滞纳金，提高他们的信用评分。](https://lifehacker.com/how-to-automate-your-finances-and-save-money-explained-1723625611) 
 

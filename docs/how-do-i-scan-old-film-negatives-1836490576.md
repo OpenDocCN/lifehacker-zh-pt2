@@ -1,6 +1,6 @@
 # 我如何扫描旧胶片底片？
 
-> 原文:[https://life hacker . com/how-do-I-scan-old-film-negatives-1836490576](https://lifehacker.com/how-do-i-scan-old-film-negatives-1836490576)
+> 原文：<https://lifehacker.com/how-do-i-scan-old-film-negatives-1836490576>
 
 我们用本周的 [**科技 911**](https://lifehacker.com/c/tech-911) 专栏——生活黑客的每周 Q & A 来老套地解决你古怪的技术问题。虽然很多人现在把智能手机作为默认的相机选择，但有些人仍然喜欢可靠的傻瓜相机。你们中的精英甚至可能会不时拿出一部叫做*的电影*，或者在打扫你(或你父母)的房子时发现一卷潜在有价值的旧电影。
 

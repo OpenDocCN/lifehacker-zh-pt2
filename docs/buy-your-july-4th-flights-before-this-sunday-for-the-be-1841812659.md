@@ -1,6 +1,6 @@
 # 在本周日之前购买 7 月 4 日的航班，享受最优惠的价格
 
-> 原文:[https://life hacker . com/buy-your-July-4-flights-before the-be-the-Sunday 1841812659](https://lifehacker.com/buy-your-july-4th-flights-before-this-sunday-for-the-be-1841812659)
+> 原文：<https://lifehacker.com/buy-your-july-4th-flights-before-this-sunday-for-the-be-1841812659>
 
 如果你计划 7 月 4 日出门旅行，现在就预订机票吧。
 

@@ -1,6 +1,6 @@
 # 当 iOS 更新导致问题时，如何修复您的 iPhone
 
-> 原文:[https://life hacker . com/how-to-fix-your-iphone-when-an-IOs-update-causes-issues-1844235582](https://lifehacker.com/how-to-fix-your-iphone-when-an-ios-update-causes-issues-1844235582)
+> 原文：<https://lifehacker.com/how-to-fix-your-iphone-when-an-ios-update-causes-issues-1844235582>
 
 无论你是咬紧牙关在你的 iPhone 上安装了一个全新的 iOS 测试版 还是升级到一个新的 iOS 公开版本，这个过程*通常*都进行得很顺利。然而，当它不工作时，焦虑就出现了:除了一些新的致命缺陷之外，你到底如何修理一部几乎完美工作的 iPhone？
 

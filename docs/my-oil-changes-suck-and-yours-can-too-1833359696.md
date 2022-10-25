@@ -1,6 +1,6 @@
 # 我的换油糟透了，你的也可以
 
-> 原文:[https://jalopnik . com/my-oil-changes-suck-and-your-can-too-1833359696](https://jalopnik.com/my-oil-changes-suck-and-yours-can-too-1833359696)
+> 原文：<https://jalopnik.com/my-oil-changes-suck-and-yours-can-too-1833359696>
 
 定期更换机油和过滤器是帮助您的汽车、卡车或自行车过上长寿和富有成效的生活的最佳方式之一。这也是绿荫树技工能处理的最简单的维护任务之一。我找到了一个让它变得更简单的方法。
 

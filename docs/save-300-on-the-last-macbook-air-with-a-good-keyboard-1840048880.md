@@ -1,6 +1,6 @@
 # 购买最后一台配有优质键盘的 MacBook Air 可节省 300 美元
 
-> 原文:[https://life hacker . com/save-300-on-the-last-macbook-air-with-a-good-keyboard-1840048880](https://lifehacker.com/save-300-on-the-last-macbook-air-with-a-good-keyboard-1840048880)
+> 原文：<https://lifehacker.com/save-300-on-the-last-macbook-air-with-a-good-keyboard-1840048880>
 
 问题:你想要一台没有蹩脚键盘的 Mac，但是你买不起(或者不需要)全新的 16 英寸 MacBook Pro。你可以去淘一台 2015 年的 MacBook Pro——一台我越来越喜欢的 Mac——或者买一台更便宜、功能更弱的替代品:2017 年的 MacBook Air， [现在打折 300 美元](https://smile.amazon.com/Apple-MacBook-1-8GHz-dual-core-Intel/dp/B07211W6X2?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/save-300-on-the-last-macbook-air-with-a-good-keyboard-1840048880&asc_source=&tag=kinjalifehackerlink-20) 。
 

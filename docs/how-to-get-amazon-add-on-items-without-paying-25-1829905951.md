@@ -1,6 +1,6 @@
 # 如何在不支付 25 美元的情况下获得亚马逊附加商品
 
-> 原文:[https://life hacker . com/how-to-get-Amazon-add-on-items-without-payed-25-1829905951](https://lifehacker.com/how-to-get-amazon-add-on-items-without-paying-25-1829905951)
+> 原文：<https://lifehacker.com/how-to-get-amazon-add-on-items-without-paying-25-1829905951>
 
 时不时地，我会发现自己需要一件亚马逊附加商品，而且只是一件附加商品，这让我在购物时有点纠结。
 

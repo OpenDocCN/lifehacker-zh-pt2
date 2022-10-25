@@ -1,6 +1,6 @@
 # 如果你有旅游保险，请保留好收据
 
-> 原文:[https://life hacker . com/if-you-have-travel-insurance-always-keep-your-receipts-1841306738](https://lifehacker.com/if-you-have-travel-insurance-always-keep-your-receipts-1841306738)
+> 原文：<https://lifehacker.com/if-you-have-travel-insurance-always-keep-your-receipts-1841306738>
 
 在艾略特倡导 的 [上，一位读者分享了一个简单的保险错误如何让她在医院花费了大约 6000 美元。根据这位读者的描述，她在墨西哥度假时被链条绊倒，在令人难以置信的系列事件中，她被救护车送往当地医院，接受了几次 x 光检查，输血，腿部多处骨折，并进行了紧急手术。](https://www.elliott.org/travel-problems/hurt-on-vacation-avoid-travel-insurance-mistake-problems/)
 

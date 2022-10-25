@@ -1,6 +1,6 @@
 # 一家大医院的算法对黑人病人有偏见
 
-> 原文:[https://life hacker . com/a-major-hospital-algorithm-is-biased-against-black-pati-1839336816](https://lifehacker.com/a-major-hospital-algorithm-is-biased-against-black-pati-1839336816)
+> 原文：<https://lifehacker.com/a-major-hospital-algorithm-is-biased-against-black-pati-1839336816>
 
 计算机可以比人更快地完成许多工作，但它们倾向于复制我们的错误——毕竟，它们是从观察我们中学到的。科学家发现医院使用的主要算法 [对黑人患者](https://science.sciencemag.org/content/366/6464/447) 有偏见，因为它反映了已经存在的种族健康差异。
 

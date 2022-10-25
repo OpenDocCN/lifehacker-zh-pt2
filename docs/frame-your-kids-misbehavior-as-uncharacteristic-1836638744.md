@@ -1,6 +1,6 @@
 # 将你孩子的不良行为框定为非典型行为
 
-> 原文:[https://life hacker . com/frame-your-kids-behavior-as-anonymous-1836638744](https://lifehacker.com/frame-your-kids-misbehavior-as-uncharacteristic-1836638744)
+> 原文：<https://lifehacker.com/frame-your-kids-misbehavior-as-uncharacteristic-1836638744>
 
 当你的孩子做了你不满意的事情时，很容易将这种行为与他们的身份联系起来。
 

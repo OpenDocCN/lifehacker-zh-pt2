@@ -1,6 +1,6 @@
 # 如何在不旅行的情况下使用您的航空里程
 
-> 原文:[https://life hacker . com/how-to-use-your-airline-miles-without travel-1843109358](https://lifehacker.com/how-to-use-your-airline-miles-without-traveling-1843109358)
+> 原文：<https://lifehacker.com/how-to-use-your-airline-miles-without-traveling-1843109358>
 
 如果你已经积攒了航空积分或里程，你可以留着它们，希望在某个时候你可以用它们来兑换一次飞行——但是如果你看不到自己很快会登上飞机，你也可以看看是否有其他方法来兑换这些里程。
 

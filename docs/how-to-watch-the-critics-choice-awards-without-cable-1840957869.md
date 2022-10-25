@@ -1,6 +1,6 @@
 # 如何在没有有线电视的情况下观看评论家选择奖
 
-> 原文:[https://life hacker . com/how-to-watch-the-critics-choice-awards-without-cable-1840957869](https://lifehacker.com/how-to-watch-the-critics-choice-awards-without-cable-1840957869)
+> 原文：<https://lifehacker.com/how-to-watch-the-critics-choice-awards-without-cable-1840957869>
 
 评论家选择奖将于美国东部时间今晚 7 点播出。*爱尔兰人*今年获得提名，包括最佳影片提名，它将与 *1917、《兔子啾啾》、《小妇人》、《婚姻故事》、《好莱坞往事》、《小丑》、《极速车王》、《原钻*和*寄生虫*竞争。
 

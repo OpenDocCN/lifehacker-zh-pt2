@@ -1,6 +1,6 @@
 # 克服你自己，开始用漫画书写作
 
-> 原文:[https://life hacker . com/get-over-yourself-and-start-writing-in-comic-sans-1831177236](https://lifehacker.com/get-over-yourself-and-start-writing-in-comic-sans-1831177236)
+> 原文：<https://lifehacker.com/get-over-yourself-and-start-writing-in-comic-sans-1831177236>
 
 每个为了乐趣或利益而写作的人都害怕坐下来工作，到头来却只能盯着一份空白文件看几个小时。最终我们都会遭遇文思枯竭 ，但解决方案可能一直潜伏在你的字体菜单中。
 

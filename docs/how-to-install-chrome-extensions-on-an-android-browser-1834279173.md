@@ -1,6 +1,6 @@
 # 如何在 Android 浏览器上安装 Chrome 扩展
 
-> 原文:[https://life hacker . com/how-to-install-chrome-extensions-on-an-Android-browser-1834279173](https://lifehacker.com/how-to-install-chrome-extensions-on-an-android-browser-1834279173)
+> 原文：<https://lifehacker.com/how-to-install-chrome-extensions-on-an-android-browser-1834279173>
 
 如果你曾经坐在笔记本电脑或台式机上，想知道为什么不能在智能手机上使用所有有趣的浏览器扩展，你一定是 Chrome 用户。火狐粉丝已经能够为 Android 版本的浏览器安装扩展有一段时间了，但这一能力尚未成为 Chrome 的正式版本。
 

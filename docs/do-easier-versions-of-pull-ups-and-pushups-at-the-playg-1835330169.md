@@ -1,6 +1,6 @@
 # 在操场上做简单的引体向上和俯卧撑
 
-> 原文:[https://life hacker . com/do-easy-versions-of-pull-up-and-pustups-at-the-play g-1835330169](https://lifehacker.com/do-easier-versions-of-pull-ups-and-pushups-at-the-playg-1835330169)
+> 原文：<https://lifehacker.com/do-easier-versions-of-pull-ups-and-pushups-at-the-playg-1835330169>
 
 如果你已经很久没有爬过单杠了，操场可能看起来不会提供很多上身锻炼的选择。但是如果你能找到一些中等高度的酒吧，看看这些动作。
 

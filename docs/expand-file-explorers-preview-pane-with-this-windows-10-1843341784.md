@@ -1,6 +1,6 @@
 # 使用此 Windows 10 PowerToy 扩展文件资源管理器的预览窗格
 
-> 原文:[https://life hacker . com/expand-file-explorers-preview-pane-with-this-windows-10-1843341784](https://lifehacker.com/expand-file-explorers-preview-pane-with-this-windows-10-1843341784)
+> 原文：<https://lifehacker.com/expand-file-explorers-preview-pane-with-this-windows-10-1843341784>
 
 安装最新版 Windows 10 的 PowerToys 有两个原因。首先，也是最重要的，PowerToys 将很快开始自我更新。你不用每次新功能掉的时候都去访问；每当应用程序自我更新时，您就会获得它。进步！
 

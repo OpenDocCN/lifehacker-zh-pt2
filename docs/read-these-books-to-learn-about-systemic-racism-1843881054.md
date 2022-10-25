@@ -1,6 +1,6 @@
 # 阅读这些书来了解系统性的种族主义
 
-> 原文:[https://life hacker . com/read-these-books-to-learn-on-systemic-racism-1843881054](https://lifehacker.com/read-these-books-to-learn-about-systemic-racism-1843881054)
+> 原文：<https://lifehacker.com/read-these-books-to-learn-about-systemic-racism-1843881054>
 
 随着我们越来越意识到现在发生的种族不公正，教育我们自己了解过去以及它如何影响我们现在的处境也很重要。下面是一个书单，看看结构性和制度化的种族主义如何影响黑人社区的不同方面。
 

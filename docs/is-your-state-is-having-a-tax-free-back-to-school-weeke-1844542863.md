@@ -1,6 +1,6 @@
 # 你所在的州在 2020 年有一个免税的返校周末。
 
-> 原文:[https://life hacker . com/is-your-state-is-having-a-tax-back-school-weeke-1844542863](https://lifehacker.com/is-your-state-is-having-a-tax-free-back-to-school-weeke-1844542863)
+> 原文：<https://lifehacker.com/is-your-state-is-having-a-tax-free-back-to-school-weeke-1844542863>
 
 即使在平时，学校的供应清单也往往很长，而且非常具体(五个橙色的文件夹，T4 的？).但是今年，它们又长又奇怪地具体*和*我们还必须花钱在家里建立远程学习空间，因为即使我们的孩子在秋天回到教室，我们也知道这一切再次关闭只是时间问题 。这是我令人沮丧的说法，你应该检查一下你所在的州今年是否有一个免税的返校周末，这将帮助你减轻这些费用的影响。
 

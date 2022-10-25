@@ -1,6 +1,6 @@
 # 如何通过超空间在谷歌地图中探索太阳系
 
-> 原文:[https://life hacker . com/how-to-explore-the-solar-system-in-Google-maps-via-hype-1840777348](https://lifehacker.com/how-to-explore-the-solar-system-in-google-maps-via-hype-1840777348)
+> 原文：<https://lifehacker.com/how-to-explore-the-solar-system-in-google-maps-via-hype-1840777348>
 
 不管你对最近六部左右的《星球大战》电影有什么看法，但不可否认的是，穿越多维空间到达遥远的星球是整个系列中最酷的视觉效果之一。现在，除非 2020 年变得非常奇怪，否则人类很可能不会很快进行任何接近光速的旅行。 B ut 谷歌地图现在可以通过一种新的超空间效果来帮助我们实现这种体验，这种效果已经添加到导航工具的太阳系探索功能中。除此之外，它并没有增加太多，但如果你以前没有看过太阳系的话，这是一个有趣的借口。
 

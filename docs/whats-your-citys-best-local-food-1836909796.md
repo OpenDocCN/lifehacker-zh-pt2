@@ -1,6 +1,6 @@
 # 你的城市最好的当地食物是什么？
 
-> 原文:[https://life hacker . com/whats-your-cities-best-local-food-1836909796](https://lifehacker.com/whats-your-citys-best-local-food-1836909796)
+> 原文：<https://lifehacker.com/whats-your-citys-best-local-food-1836909796>
 
 一些城市知道他们擅长什么食物，并以此为荣。不吃百吉饼就不能去纽约，不吃羊角面包就不能去巴黎，不吃玉米卷就不能去洛杉矶。一些当地的食物与其说出名，不如说是声名狼藉:费城的奶酪牛排，芝加哥的深盘披萨。但是任何人都可以告诉你，当你在这个城市的时候，你有什么食物可以吃。这些食物超越了任何特定的餐馆或被高估的面包店。它们是你可以在整个城镇订购的食物，在你离开这个城市之前，你可以尝试十种不同的食物。
 

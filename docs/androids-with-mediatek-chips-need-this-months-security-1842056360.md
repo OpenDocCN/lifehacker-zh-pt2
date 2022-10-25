@@ -1,6 +1,6 @@
 # 装有联发科芯片的机器人需要尽快进行本月的安全更新
 
-> 原文:[https://life hacker . com/Android-with-mediatek-chips-need-this-months-security-1842056360](https://lifehacker.com/androids-with-mediatek-chips-need-this-months-security-1842056360)
+> 原文：<https://lifehacker.com/androids-with-mediatek-chips-need-this-months-security-1842056360>
 
 虽然每个人都应该尽可能为他们的机器人获取最新的安全更新，但如果你的设备内部有任何联发科技芯片，你应该格外关注本月的更新，并立即获取。
 

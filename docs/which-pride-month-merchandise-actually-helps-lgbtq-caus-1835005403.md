@@ -1,6 +1,6 @@
 # 哪个骄傲月商品实际上帮助 LGBTQ 引起的？
 
-> 原文:[https://life hacker . com/which-pride-month-commodity-actually-helps-lgbtq-caus-1835005403](https://lifehacker.com/which-pride-month-merchandise-actually-helps-lgbtq-caus-1835005403)
+> 原文：<https://lifehacker.com/which-pride-month-merchandise-actually-helps-lgbtq-caus-1835005403>
 
 今年 6 月，特朗普总统通过努力盈利来庆祝骄傲月的开始——并在他的网站上销售一系列新的“特朗普的 LGBTQ 恤，零售价为每件 24 美元。
 

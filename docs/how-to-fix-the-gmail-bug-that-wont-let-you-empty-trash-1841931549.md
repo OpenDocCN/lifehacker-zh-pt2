@@ -1,6 +1,6 @@
 # 如何修复 Gmail 不能让你清空垃圾邮件的错误
 
-> 原文:[https://life hacker . com/how-to-fix-the-Gmail-bug-that-wot-let-you-empty-trash-1841931549](https://lifehacker.com/how-to-fix-the-gmail-bug-that-wont-let-you-empty-trash-1841931549)
+> 原文：<https://lifehacker.com/how-to-fix-the-gmail-bug-that-wont-let-you-empty-trash-1841931549>
 
 尽管我的收件箱很笨重，我还是尽可能保持整洁有序。这包括花些时间扔掉带有巨大附件的旧邮件，然后清理我的垃圾，看看我节省了多少空间。
 

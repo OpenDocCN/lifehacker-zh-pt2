@@ -1,6 +1,6 @@
 # 如何更好地与你的伴侣争论
 
-> 原文:[https://life hacker . com/how-to-debate-better-your-partner-1831076056](https://lifehacker.com/how-to-argue-better-with-your-partner-1831076056)
+> 原文：<https://lifehacker.com/how-to-argue-better-with-your-partner-1831076056>
 
 在浪漫犯罪中，你永远不要和你的爱人、配偶或伴侣争吵，这种期望太过分了。以下是你如何让这种争论成为更有成效的讨论，而不是没完没了的争吵。
 

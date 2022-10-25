@@ -1,6 +1,6 @@
 # 如果你报税晚了，如何避免支付罚款
 
-> 原文:[https://life hacker . com/how-to-avoid-pay-a-penalty-if-you-miss-the-tax-fil-1844651211](https://lifehacker.com/how-to-avoid-paying-a-penalty-if-you-missed-the-tax-fil-1844651211)
+> 原文：<https://lifehacker.com/how-to-avoid-paying-a-penalty-if-you-missed-the-tax-fil-1844651211>
 
 如果你错过了上周延长的报税截止日期，你可能会担心被国税局罚款。然而，如果你最近没有逾期纳税的记录，可以申请一种叫做的首次罚款减免，这将免除你的一些罚款。下面看看你可以如何申请。
 

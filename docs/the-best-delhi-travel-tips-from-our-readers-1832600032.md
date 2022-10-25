@@ -1,6 +1,6 @@
 # 来自我们读者的最佳德里旅游贴士
 
-> 原文:[https://life hacker . com/the-best-Delhi-travel-tips-from-our-readers-1832600032](https://lifehacker.com/the-best-delhi-travel-tips-from-our-readers-1832600032)
+> 原文：<https://lifehacker.com/the-best-delhi-travel-tips-from-our-readers-1832600032>
 
 在本周的《黑客你的城市》节目中，我们得到了你去印度首都德里旅游的建议。 [最佳评论](https://lifehacker.com/tell-us-your-best-delhi-travel-tips-1832464903) 有关于礼仪、安全和参观地点的提示。以下是一些亮点。
 

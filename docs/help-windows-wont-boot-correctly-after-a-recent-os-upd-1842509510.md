@@ -1,6 +1,6 @@
 # 救命啊！在最近的操作系统更新后，Windows 将无法正确启动
 
-> 原文:[https://life hacker . com/help-windows-wont-boot-correct-after-a-recent-OS-upd-1842509510](https://lifehacker.com/help-windows-wont-boot-correctly-after-a-recent-os-upd-1842509510)
+> 原文：<https://lifehacker.com/help-windows-wont-boot-correctly-after-a-recent-os-upd-1842509510>
 
 在今天这一期的[**Tech 911**](https://lifehacker.com/c/tech-911)——life hacker 的技术支持专栏一周以来一直关注你在家工作的问题——我们将讨论一个老话题:微软 Windows。具体来说，当每次你试图启动操作系统时，Windows 开始抛出令人讨厌的错误信息，会发生什么？如果你试图在一天中登录并在关键的截止日期前完成工作，而你又没有真正的 IT 部门来帮忙，这可能是最糟糕的情况。
 

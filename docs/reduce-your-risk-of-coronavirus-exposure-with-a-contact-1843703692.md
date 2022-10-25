@@ -1,6 +1,6 @@
 # 通过“接触预算”降低您接触冠状病毒的风险
 
-> 原文:[https://life hacker . com/reduce-your-risk-of-a-contact-1843703692](https://lifehacker.com/reduce-your-risk-of-coronavirus-exposure-with-a-contact-1843703692)
+> 原文：<https://lifehacker.com/reduce-your-risk-of-coronavirus-exposure-with-a-contact-1843703692>
 
 现在各州再次开放，许多人被要求回去工作，我们中的许多人被迫寻找新的风险和不确定性来源。考虑到这一点，流行病学家埃莉·默里(Ellie Murray)就如何考虑你的总体风险水平提出了一个建议:制定一个联系预算。
 

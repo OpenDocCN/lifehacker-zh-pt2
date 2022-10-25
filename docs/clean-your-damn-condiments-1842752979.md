@@ -1,6 +1,6 @@
 # 清理你该死的调味品
 
-> 原文:[https://life hacker . com/clean-your-damn-conditions-1842752979](https://lifehacker.com/clean-your-damn-condiments-1842752979)
+> 原文：<https://lifehacker.com/clean-your-damn-condiments-1842752979>
 
 并不是说“用一个奇怪的技巧改变你的一生”，但我真的认为清洗你各种调味品黏糊糊、硬邦邦、滴滴答答的盖子和侧面是一个小小的窍门，可以提升你的情绪，改善你对 T4 的整体感觉。
 

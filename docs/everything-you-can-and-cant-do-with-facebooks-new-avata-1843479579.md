@@ -1,6 +1,6 @@
 # 脸书的新头像能做和不能做的一切
 
-> 原文:[https://life hacker . com/everything-you-can-and-cant-do-face books-new-avata-1843479579](https://lifehacker.com/everything-you-can-and-cant-do-with-facebooks-new-avata-1843479579)
+> 原文：<https://lifehacker.com/everything-you-can-and-cant-do-with-facebooks-new-avata-1843479579>
 
 我讨厌铺开。真的。每当一家公司宣布一些新的、令人敬畏的功能，但在描述中漏掉了“推出”这个词，我无法告诉你我有多恼火。毫无疑问，这意味着我不得不等待一周或更长时间来尝试一些东西，同时看到我认识的每个人都在我之前获得了特殊的访问权限。
 

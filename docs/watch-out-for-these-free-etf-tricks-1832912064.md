@@ -1,6 +1,6 @@
 # 小心这些“免费”的 ETF 把戏
 
-> 原文:[https://life hacker . com/watch-out-for-thes-free-ETF-tricks-1832912064](https://lifehacker.com/watch-out-for-these-free-etf-tricks-1832912064)
+> 原文：<https://lifehacker.com/watch-out-for-these-free-etf-tricks-1832912064>
 
 对于普通投资者来说，交易所交易基金的交易成本越来越低，因为多家公司在过去几个月里推出或扩大了免费选项。以 为例，vanguard[在 8 月份为投资者提供了近 1800 种不同 ETF 的免佣金投资。查尔斯·施瓦布和富达也扩大了免佣金服务。](https://twocents.lifehacker.com/vanguard-is-expanding-commission-free-etf-options-in-au-1827359408)
 

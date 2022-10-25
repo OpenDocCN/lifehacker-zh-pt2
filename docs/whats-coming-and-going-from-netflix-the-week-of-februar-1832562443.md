@@ -1,6 +1,6 @@
 # 2019 年 2 月 18 日这一周，网飞有哪些活动
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week-of-februar-1832562443](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-februar-1832562443)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-februar-1832562443>
 
 当雷·罗马诺将他最近的单口相声特辑命名为“就在这里，就在拐角处”时，他并没有开玩笑。我很不高兴地告诉你， [在上述特辑](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-februar-1832133675) (如果雷·罗马诺生产的任何东西都可以说已经“下降”)仅仅两周之后，雷就在拐角处回来了，他就在这里，从你的房子里面——和你的心里发出了呼唤。这一次，他与马克·杜普拉斯的穆斯塔奇奥斯共同主演了《扭曲的伙伴喜剧》(星期五)。转折是马克得了绝症，而雷是他在这个困难时期的伙伴。会有欢笑，会有泪水，但我们都会从另一面走出来，对自己有所了解。
 

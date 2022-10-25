@@ -1,6 +1,6 @@
 # 确保你的安全线在起飞前没有关闭
 
-> 原文:[https://life hacker . com/make-assure-your-security-line-not-closed-before-a-fligh-1833773238](https://lifehacker.com/make-sure-your-security-line-isnt-closed-before-a-fligh-1833773238)
+> 原文：<https://lifehacker.com/make-sure-your-security-line-isnt-closed-before-a-fligh-1833773238>
 
 还有什么比在机场看不到尽头的长长的、蜿蜒的安检线更糟糕的呢？正如一位旅行者最近发现的那样，这是一条封闭的线路，无法进入你的航班。
 

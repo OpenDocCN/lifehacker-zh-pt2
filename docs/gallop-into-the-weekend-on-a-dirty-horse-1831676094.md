@@ -1,6 +1,6 @@
 # 骑着一匹脏马飞奔到周末
 
-> 原文:[https://life hacker . com/glory-into-the-weekend-on-a-dirty-horse-1831676094](https://lifehacker.com/gallop-into-the-weekend-on-a-dirty-horse-1831676094)
+> 原文：<https://lifehacker.com/gallop-into-the-weekend-on-a-dirty-horse-1831676094>
 
 各位周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。你们还记得我的 BBF 辣根伏特加吧？(应该的，twas 昨天才 [这是向全世界发布的](https://skillet.lifehacker.com/make-crazy-potent-horseradish-vodka-in-your-blender-1831650872) 。)好吧，在一个你可能已经预见到的举动中，我们用她来做一杯清爽的、略带咸味的、有点清窦的马提尼酒。
 

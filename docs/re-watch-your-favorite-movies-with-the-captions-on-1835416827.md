@@ -1,6 +1,6 @@
 # 重新观看你最喜欢的带字幕的电影
 
-> 原文:[https://life hacker . com/re-watch-your favorite-movies-with the-captions-on-1835416827](https://lifehacker.com/re-watch-your-favorite-movies-with-the-captions-on-1835416827)
+> 原文：<https://lifehacker.com/re-watch-your-favorite-movies-with-the-captions-on-1835416827>
 
 也许你看了太多遍《肖申克的救赎》，以至于你确信你已经记住了每一句台词。或者，弹指一挥间，你可以跳起来背诵杰克·尼克尔森著名的“ [你处理不了的真相](https://www.youtube.com/watch?v=9FnO3igOkOk) ”独白出自*几个好人、*招牌冷笑和所有。(“儿子，我们生活在一个有围墙的世界里，这些围墙必须由持枪的人来守卫。谁来做？你呢。 ***你，*** ***上尉·温伯格*** ？”)
 

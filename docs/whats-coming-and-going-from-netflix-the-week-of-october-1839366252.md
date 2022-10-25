@@ -1,6 +1,6 @@
 # 2019 年 10 月 28 日这一周，网飞有哪些来往
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of the-October-1839366252](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-october-1839366252)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-october-1839366252>
 
 当然，这是万圣节周，我们中的大多数人可能都在使用我们的流媒体服务来狂欢所有怪异的事情。但随着周五到来的是新的一个月，新的网飞产品，以及随着 [*酷眼*剧组加利穿越日本](https://www.youtube.com/watch?v=_IubrZmB3tk) 乘着舒缓的云飘走的机会。
 

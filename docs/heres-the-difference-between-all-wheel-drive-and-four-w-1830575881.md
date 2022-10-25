@@ -1,6 +1,6 @@
 # 这就是全轮驱动和四轮驱动的区别
 
-> 原文:[https://jalopnik . com/heres-the difference of all-wheel drive and four-w-1830575881](https://jalopnik.com/heres-the-difference-between-all-wheel-drive-and-four-w-1830575881)
+> 原文：<https://jalopnik.com/heres-the-difference-between-all-wheel-drive-and-four-w-1830575881>
 
 随着冬天的到来，如果我们有一个训练有素的拉力车手，能够接触到一堆组装在一起的四轮驱动和四轮驱动车辆，帮助解释这两个越来越混乱的术语之间的区别，那将是非常棒的。哦，等等，他来了！
 

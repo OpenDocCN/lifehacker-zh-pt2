@@ -1,6 +1,6 @@
 # 现在如何在任何安卓手机上获得堡垒之夜
 
-> 原文:[https://life hacker . com/how-to-get-fort nite-on-any-Android-phone-now-1829743939](https://lifehacker.com/how-to-get-fortnite-on-any-android-phone-now-1829743939)
+> 原文：<https://lifehacker.com/how-to-get-fortnite-on-any-android-phone-now-1829743939>
 
 当 Epic Games 今年早些时候首次发布 Android 版堡垒之夜时，它只在三星设备上提供。如果你正在摇晃 Galaxy S9 或 Note 9，那么这是个好消息。如果你有这个星球上的任何其他 Android 手机，这是一种失望。
 

@@ -1,6 +1,6 @@
 # 是时候找到一个保险箱的替代品了
 
-> 原文:[https://life hacker . com/its-time-to-find-a-safe-box-alternative-1836535622](https://lifehacker.com/its-time-to-find-a-safe-deposit-box-alternative-1836535622)
+> 原文：<https://lifehacker.com/its-time-to-find-a-safe-deposit-box-alternative-1836535622>
 
 保险箱以揭示解决问题的物品而闻名——至少在好莱坞的故事中是这样的。但在现实生活中，保险箱可能不再像过去那样是存放贵重物品的天堂。《纽约时报》 上的一个可怕的故事讲述了一些人的故事，他们把贵重物品(比如钻石和名贵手表)连同文件和家庭照片一起放入保险箱，结果他们的许多物品都不见了。
 

@@ -1,6 +1,6 @@
 # the fortnite world cup was a kids paradise 1836804682
 
-> 原文:[https://kotaku . com/the-fort nite-world-cup-was-a-kids-paradise-1836804682](https://kotaku.com/the-fortnite-world-cup-was-a-kids-paradise-1836804682)
+> 原文：<https://kotaku.com/the-fortnite-world-cup-was-a-kids-paradise-1836804682>
 
 为了这个周末的堡垒之夜世界杯，纽约皇后区阿瑟·阿什网球体育馆挤满了人，这些人都是热爱 T2 堡垒之夜的人，或者至少是那些人和他们的父母。我看到的大部分与会者都是年轻的孩子，穿着足球短裤和宽松的*堡垒之夜* t 恤游泳。他们表演了游戏中的表情舞蹈。他们打迷你高尔夫球洞，这些球洞是根据 Durr Burger 吉祥物和战斗巴士等游戏图标设计的。他们参加了堡垒之夜的知识竞赛，展示了如此丰富的游戏知识，一位年轻的参赛者甚至纠正了主持人前一天的问题。世界杯，就像堡垒之夜一样，感觉像是孩子们的世界。
 

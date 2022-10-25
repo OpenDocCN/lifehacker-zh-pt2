@@ -1,6 +1,6 @@
 # 甜奶酪布雷克将教你如何与 phyllo 争吵并保持信念
 
-> 原文:[https://the take out . com/borek-phyllo-dough-recipe-ricotta-Turkish-pastry-how-to-1841136889](https://thetakeout.com/borek-phyllo-dough-recipe-ricotta-turkish-pastry-how-to-1841136889)
+> 原文：<https://thetakeout.com/borek-phyllo-dough-recipe-ricotta-turkish-pastry-how-to-1841136889>
 
 如果你曾经尝试过用 phyllo 面团做菜，它会一直包括一个注释，大意是，“用湿毛巾一直盖住 phyllo，防止它变干。”很好的笔记，因为是真的！冷冻的生面团可能很方便，但是如果它变干了一点点，那将是一场噩梦。Phyllo 要求精确。叶洛要求生活在一个完美的世界里。你什么时候知道现实生活是完美的？
 

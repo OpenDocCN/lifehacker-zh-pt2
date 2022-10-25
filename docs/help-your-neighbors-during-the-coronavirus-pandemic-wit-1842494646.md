@@ -1,6 +1,6 @@
 # 在冠状病毒疫情期间，用这些新的 Nextdoor 功能帮助你的邻居
 
-> 原文:[https://life hacker . com/help-your-neighbors-in-the-coronavirus-疫情-wit-1842494646](https://lifehacker.com/help-your-neighbors-during-the-coronavirus-pandemic-wit-1842494646)
+> 原文：<https://lifehacker.com/help-your-neighbors-during-the-coronavirus-pandemic-wit-1842494646>
 
 我们很多人被困在里面，但这并不意味着我们不能成为好邻居，互相帮助。 [Nextdoor](https://nextdoor.com/) 最近推出了一项新的“ [帮助地图](https://blog.nextdoor.com/2020/03/18/nextdoor-launches-help-map-and-groups-to-bring-neighbors-together/) ”功能，让用户自愿为周围的人承担额外的家务和其他有益的活动。这一功能可以为老年居民、大家庭以及在新冠肺炎疫情爆发期间需要额外援助的患病或有特殊需求的个人带来巨大变化。
 

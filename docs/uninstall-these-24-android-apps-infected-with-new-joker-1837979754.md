@@ -1,6 +1,6 @@
 # 卸载这 24 个感染了新型“小丑”恶意软件的安卓应用
 
-> 原文:[https://life hacker . com/uninstall-these-24-Android-apps-infected-with-new-joker-1837979754](https://lifehacker.com/uninstall-these-24-android-apps-infected-with-new-joker-1837979754)
+> 原文：<https://lifehacker.com/uninstall-these-24-android-apps-infected-with-new-joker-1837979754>
 
 又是一天，又有一批安卓应用进入谷歌 Play 商店——累计下载数十万次——代码中嵌入了一些狡猾的恶意软件。
 

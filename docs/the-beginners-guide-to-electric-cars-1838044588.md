@@ -1,6 +1,6 @@
 # the beginners guide to electric cars 1838044588
 
-> 原文:[https://life hacker . com/the-初学者-电动汽车指南-1838044588](https://lifehacker.com/the-beginners-guide-to-electric-cars-1838044588)
+> 原文：<https://lifehacker.com/the-beginners-guide-to-electric-cars-1838044588>
 
 电动汽车 [越来越便宜](https://qz.com/1695602/the-average-electric-vehicle-is-getting-cheaper-in-the-us/)——所以无论你是在寻找一种 [的方式来节省汽油](https://www.energy.gov/maps/egallon) 的麻烦和成本，减少你的碳足迹，还是只是开着一辆新的特斯拉到处跑，都有很多理由考虑混合动力或电动汽车。
 

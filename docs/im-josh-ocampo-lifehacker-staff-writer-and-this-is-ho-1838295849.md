@@ -1,6 +1,6 @@
 # im josh ocampo lifehacker staff writer and this is ho 1838295849
 
-> 原文:[https://life hacker . com/im-Josh-Ocampo-life hacker-staff-writer-and-this-is-ho-1838295849](https://lifehacker.com/im-josh-ocampo-lifehacker-staff-writer-and-this-is-ho-1838295849)
+> 原文：<https://lifehacker.com/im-josh-ocampo-lifehacker-staff-writer-and-this-is-ho-1838295849>
 
 每周，我们都会分享我们最喜欢的专家的快捷方式、工作空间和生产力提示。本周，我们将来到 Lifehacker 的幕后。我是乔希·奥坎波，这是我的工作方式。
 

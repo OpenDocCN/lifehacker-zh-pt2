@@ -1,6 +1,6 @@
 # 我的手机热点可以是我唯一的互联网连接吗？
 
-> 原文:[https://life hacker . com/can-my-phones-hotspot-be-my-only-internet-connection-1843590046](https://lifehacker.com/can-my-phones-hotspot-be-my-only-internet-connection-1843590046)
+> 原文：<https://lifehacker.com/can-my-phones-hotspot-be-my-only-internet-connection-1843590046>
 
 是的，这个世界上有些地方你无法上网——我不是在说一个偏远的热带地区，在那里你不可能在度假的时候玩表情闪电战。美国的很多地方要么没有互联网，要么很糟糕，这就要求你发挥创造力才能上网。
 

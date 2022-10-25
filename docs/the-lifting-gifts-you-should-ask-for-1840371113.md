@@ -1,6 +1,6 @@
 # 你应该要求的提升礼物
 
-> 原文:[https://life hacker . com/the-lifting-gifts-you-should-ask-for-1840371113](https://lifehacker.com/the-lifting-gifts-you-should-ask-for-1840371113)
+> 原文：<https://lifehacker.com/the-lifting-gifts-you-should-ask-for-1840371113>
 
 读者可能已经注意到，在过去的一两年里，我真的迷上了举重。一路上，我买了一些有点贵的东西。如果我聪明的话，我会要求把它们作为生日或节日礼物，但是去年的这个时候，我不太确定我最终会需要什么。这是给过去的我的礼物指南，他可能也是你。
 

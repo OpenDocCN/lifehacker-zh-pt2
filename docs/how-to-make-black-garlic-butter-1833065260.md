@@ -1,6 +1,6 @@
 # 如何制作黑蒜黄油
 
-> 原文:[https://life hacker . com/how-to-make-black-蒜泥黄油-1833065260](https://lifehacker.com/how-to-make-black-garlic-butter-1833065260)
+> 原文：<https://lifehacker.com/how-to-make-black-garlic-butter-1833065260>
 
 我第一次对大蒜面包的概念的介绍是非常浅薄的。涂有大量人造黄油、撒有大蒜盐并经过烘烤的白面包片并不完全正宗，但它们相当美味，为一生探索和欣赏大蒜面包奠定了基础。
 

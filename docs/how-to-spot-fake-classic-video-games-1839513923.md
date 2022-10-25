@@ -1,6 +1,6 @@
 # 如何识别假的经典电子游戏
 
-> 原文:[https://kotaku . com/how-to-spot-fake-classic-video-games-1839513923](https://kotaku.com/how-to-spot-fake-classic-video-games-1839513923)
+> 原文：<https://kotaku.com/how-to-spot-fake-classic-video-games-1839513923>
 
 假冒的经典游戏无处不在:在跳蚤市场，在你当地的游戏店，在易贝，甚至可能混在你自己的收藏中。制造它们的私酒贩子正在大量生产，这意味着随着时间的推移，市场只会变得更加饱和。如果你打算收集游戏，你需要学会如何观察仿冒品。
 

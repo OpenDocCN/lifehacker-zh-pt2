@@ -1,6 +1,6 @@
 # the summer i tried to understand why sex hurt 1830718897
 
-> 原文:[https://Jezebel . com/the-summer-I-try-to-understand-why-sex-hurt-1830718897](https://jezebel.com/the-summer-i-tried-to-understand-why-sex-hurt-1830718897)
+> 原文：<https://jezebel.com/the-summer-i-tried-to-understand-why-sex-hurt-1830718897>
 
 当我想起我的性高峰期时，我想起了我 25 岁时在纽约的那个夏天，在我的第一段感情中，当我的妇科医生用棉签戳我的阴道时，我仰面尖叫。
 

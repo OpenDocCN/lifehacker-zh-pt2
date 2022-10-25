@@ -1,6 +1,6 @@
 # 虚拟地参加与 80 年代系列剧《宇宙》的联合创作者的问答
 
-> 原文:[https://life hacker . com/virtually-attend-a-q-a-with-a-co-creator-of-80-serie-1844189078](https://lifehacker.com/virtually-attend-a-q-a-with-a-co-creator-of-1980s-serie-1844189078)
+> 原文：<https://lifehacker.com/virtually-attend-a-q-a-with-a-co-creator-of-1980s-serie-1844189078>
 
 你是科学电视节目和纪录片的粉丝吗？尽管自 1903 年 以来，它们在某些版本中一直出现在 [左右，但 PBS 在 1980 年播出的一个 13 集系列节目真正吸引了全国的注意力。它被称为](http://blogs.nature.com/ofschemesandmemes/2011/03/01/science-as-seen-on-screen-wt#:~:text=First%20ever%20documentary,the%20first%20ever%20science%20documentary.) [“宇宙:个人航行”](http://carlsagan.com/) ，由卡尔·萨根、安·德鲁扬和史蒂文·索特创作并撰写，萨根担任该节目的主持人(在大多数人使用这个词之前，他担任 [“科学传播者”](https://blogs.scientificamerican.com/observations/how-to-become-a-scientist-communicator/) )。
 

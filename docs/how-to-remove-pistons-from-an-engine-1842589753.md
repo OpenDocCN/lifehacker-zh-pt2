@@ -1,6 +1,6 @@
 # 如何从发动机上拆卸活塞
 
-> 原文:[https://jalopnik . com/how-to-remove-piston-from-an-engine-1842589753](https://jalopnik.com/how-to-remove-pistons-from-an-engine-1842589753)
+> 原文：<https://jalopnik.com/how-to-remove-pistons-from-an-engine-1842589753>
 
 自从密歇根州因冠状病毒而有了 [居家令](https://www.michigan.gov/whitmer/0,9309,7-387-90499_90705-522626--,00.html) 以来，我一直在参加我现在正式命名为 2020 年的扳手节——对我的各种破车 的全力修复突击。上个周末对我的切诺基金鹰吉普车来说是个不错的周末，因为我撞上了它的 AMC 360 V8 引擎。下面看看我是如何移除这八个活塞的。
 

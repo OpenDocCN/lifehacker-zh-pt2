@@ -1,6 +1,6 @@
 # 越来越多的对富人征税的理由
 
-> 原文:[https://life hacker . com/the-growing-case for taxing-the-rich-1840484817](https://lifehacker.com/the-growing-case-for-taxing-the-rich-1840484817)
+> 原文：<https://lifehacker.com/the-growing-case-for-taxing-the-rich-1840484817>
 
 到目前为止，许多民主党总统候选人都希望向富人增税，为他们的政策计划提供资金。但是这到底意味着什么呢？
 

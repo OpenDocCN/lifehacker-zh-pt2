@@ -1,6 +1,6 @@
 # 如何在极地涡旋中与孩子保持理智
 
-> 原文:[https://life hacker . com/how-to-stay-sane-with-kids-in-polar-vortex-1832198199](https://lifehacker.com/how-to-stay-sane-with-kids-during-the-polar-vortex-1832198199)
+> 原文：<https://lifehacker.com/how-to-stay-sane-with-kids-during-the-polar-vortex-1832198199>
 
 新闻报道称本周袭击美国大部分地区的极地涡旋 T3 带来了一代人以来最冷的温度。这意味着我们的孩子有可能成为一代人中最疯狂的 T4。这不是演习。
 

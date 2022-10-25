@@ -1,6 +1,6 @@
 # 给某人一个他们已经用过的最花哨的版本
 
-> 原文:[https://life hacker . com/gift-someone-with the fanciest-version of-what-they-ALR-1833034999](https://lifehacker.com/gift-someone-with-the-fanciest-version-of-what-they-alr-1833034999)
+> 原文：<https://lifehacker.com/gift-someone-with-the-fanciest-version-of-what-they-alr-1833034999>
 
 送礼物并不是每个人的爱的语言；如果你不知道该给某人买什么，考虑一下他们喜欢用什么，然后给他们最好的礼物。这是奢华与实用的完美结合。
 

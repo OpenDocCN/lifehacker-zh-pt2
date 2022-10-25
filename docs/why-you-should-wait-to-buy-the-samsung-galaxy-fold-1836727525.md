@@ -1,6 +1,6 @@
 # 为什么您应该等待购买三星 Galaxy Fold
 
-> 原文:[https://life hacker . com/why-you-should-wait-to-buy-the-Samsung-galaxy-fold-1836727525](https://lifehacker.com/why-you-should-wait-to-buy-the-samsung-galaxy-fold-1836727525)
+> 原文：<https://lifehacker.com/why-you-should-wait-to-buy-the-samsung-galaxy-fold-1836727525>
 
 我稍微更兴奋地*看到*一个三星 Galaxy Fold，现在制造商已经解决了与公司今年春天发出的第一批审查单元的所有问题。其中最大的是薄薄的聚合物保护层，它最初看起来像是那种你在开始使用设备之前会从设备上撕下的屏幕保护器 Galaxy Fold 完全不是这种情况，因为那样做会严重损坏你的设备。
 

@@ -1,6 +1,6 @@
 # 尽早从塔可钟获得 Xbox 的新精英控制器
 
-> 原文:[https://life hacker . com/get-Xbox s-new-elite-controller-early-from-taco-bell-1839138369](https://lifehacker.com/get-xboxs-new-elite-controller-early-from-taco-bell-1839138369)
+> 原文：<https://lifehacker.com/get-xboxs-new-elite-controller-early-from-taco-bell-1839138369>
 
 如果你看上了 Xbox 新的 Elite 2 控制器，你可能会考虑午餐吃塔可钟。
 

@@ -1,6 +1,6 @@
 # 用这些心算技巧在你的头脑中做数学
 
-> 原文:[https://life hacker . com/do-math-in-your-head with these-mental-math-tricks-1835384146](https://lifehacker.com/do-math-in-your-head-with-these-mental-math-tricks-1835384146)
+> 原文：<https://lifehacker.com/do-math-in-your-head-with-these-mental-math-tricks-1835384146>
 
 你可能已经很多年没有手写数学了，但是你每天都在心算。或者你可能一天用谷歌搜索十次数学题，因为你已经忘了除了基本的乘法表之外如何做任何数学。这里有一些捷径，可以帮助你做更多的心算。
 

@@ -1,6 +1,6 @@
 # 平行泊车的正确方法，循序渐进
 
-> 原文:[https://life hacker . com/the-right-way-to-parallel-park-step-by-step-1461902768](https://lifehacker.com/the-right-way-to-parallel-park-step-by-step-1461902768)
+> 原文：<https://lifehacker.com/the-right-way-to-parallel-park-step-by-step-1461902768>
 
 如果你不经常在人口密集的市区开车和停车，平行停车可能会让你充满焦虑。当然，即使是最有经验的司机，如果他们习惯了在车道和停车场停车，这也是一个挑战——尽管现在许多汽车都配备了自动停车系统，但无论你开的是什么车，这都是一项值得完善的技能。谢天谢地， [在 Quora](https://www.quora.com/Driving/What-are-some-parallel-parking-tips) ，王一山(Yishan Wong)整理了一套如何每次都完美地平行泊车的分步指导——如果你严格按照这些指导，你会发现他说得一点都没错。
 

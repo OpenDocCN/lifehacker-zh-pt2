@@ -1,6 +1,6 @@
 # 没时间怎么玩长时间的电子游戏
 
-> 原文:[https://kotaku . com/how-to-play-long-video-games-when you-have-time-1830099478](https://kotaku.com/how-to-play-long-video-games-when-you-have-no-time-1830099478)
+> 原文：<https://kotaku.com/how-to-play-long-video-games-when-you-have-no-time-1830099478>
 
 对于许多对工作、婚姻和/或家庭要求很高的游戏玩家来说，阅读《红色死亡救赎 2》和《T2 刺客信条奥德赛》等游戏的好评的兴奋被他们永远没有时间玩这些游戏的沮丧意识所冲淡。在忙碌的生活中，你是如何挤出时间玩 60+小时的游戏的？
 

@@ -1,6 +1,6 @@
 # 如何观看“费里斯·布勒的休息日”聚会
 
-> 原文:[https://life hacker . com/how-to-watch-the-ferris-buellers-day-off-reunion-1844899](https://lifehacker.com/how-to-watch-the-ferris-buellers-day-off-reunion-1844184899)
+> 原文：<https://lifehacker.com/how-to-watch-the-ferris-buellers-day-off-reunion-1844184899>
 
 过去几个月的隔离中为数不多的亮点之一是乔什·加德的“”YouTube 系列。每隔几周，他都会主持一次与明星和制作团队其他成员的虚拟聚会，这些明星和制作团队来自上世纪 80 年代一些最受欢迎的电影，如“ [【指环王】](https://lifehacker.com/how-to-watch-the-lord-of-the-rings-reunion-1843768181)[【七宝奇谋】](https://www.youtube.com/watch?v=-SF_VyXQpyo) [【回到未来】](https://www.youtube.com/watch?v=crdYIUdUOhc) [【飞溅】](https://www.youtube.com/watch?v=MbFIgQoHSJM) 以及最近的 [【捉鬼敢死队】明天(6 月 28 日，周日)，Gad 将以“费里斯·布勒的休息日”的重聚来结束这个系列以下是参与人员和观看方式。](https://www.youtube.com/watch?v=4JtOHr4IJHQ) 
 

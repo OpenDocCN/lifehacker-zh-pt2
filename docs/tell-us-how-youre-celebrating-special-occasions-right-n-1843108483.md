@@ -1,6 +1,6 @@
 # 告诉我们你现在是如何庆祝特殊场合的
 
-> 原文:[https://life hacker . com/tell-us-how-you-欢庆-特殊场合-权利-n-1843108483](https://lifehacker.com/tell-us-how-youre-celebrating-special-occasions-right-n-1843108483)
+> 原文：<https://lifehacker.com/tell-us-how-youre-celebrating-special-occasions-right-n-1843108483>
 
 现在我们都已经在家里呆了一段时间，很有可能你或你的家人或朋友已经标记了至少一个特殊的场合，在以前，会用聚会或晚上外出来庆祝:一个美好的整数生日。豪华的周年晚宴。单身派对。显然，这样的聚会——甚至是家里的小聚会！—再也不可能了。
 

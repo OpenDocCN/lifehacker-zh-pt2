@@ -1,6 +1,6 @@
 # 如何帮助你的孩子找到一份虚拟的暑期工作
 
-> 原文:[https://life hacker . com/how-to-help-your-future-found-a-virtual-summer-job-1844282213](https://lifehacker.com/how-to-help-your-teenager-find-a-virtual-summer-job-1844282213)
+> 原文：<https://lifehacker.com/how-to-help-your-teenager-find-a-virtual-summer-job-1844282213>
 
 暑期工作不仅仅是 20 世纪 80 年代青少年浪漫喜剧的背景——它们是青少年的权利。对一些孩子来说，这些初次演出是他们第一次真正独立。对于其他人来说，这是一个磨练技能的机会，将来可能成为职业。对于所有的孩子来说，这是一个赚一点——有时是很多——额外零花钱的机会。
 

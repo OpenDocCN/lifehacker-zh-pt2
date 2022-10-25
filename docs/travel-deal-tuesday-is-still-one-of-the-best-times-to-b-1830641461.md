@@ -1,6 +1,6 @@
 # “周二旅游优惠”仍然是购买机票的最佳时机之一
 
-> 原文:[https://life hacker . com/travel-deal-Tuesday-is-one-of-b-1830641461](https://lifehacker.com/travel-deal-tuesday-is-still-one-of-the-best-times-to-b-1830641461)
+> 原文：<https://lifehacker.com/travel-deal-tuesday-is-still-one-of-the-best-times-to-b-1830641461>
 
 去年 ，我们写了几篇关于‘周二旅游交易’的帖子。这一天最初是由旅游网站 Hopper 向我们指出的。当查看历史票价数据时，它发现感恩节后的周二传统上提供的票价交易比黑色星期五或网络星期一加起来还要多。
 

@@ -1,6 +1,6 @@
 # 哈维·卡普用这种方法对你的孩子进行睡眠训练
 
-> 原文:[https://life hacker . com/sleep-train-your-tuckly-using-this-method-by-Harvey-ka-1839802317](https://lifehacker.com/sleep-train-your-toddler-using-this-method-by-harvey-ka-1839802317)
+> 原文：<https://lifehacker.com/sleep-train-your-toddler-using-this-method-by-harvey-ka-1839802317>
 
 哈维·卡普医生可能是最出名的想帮你哄孩子睡觉的人。卡普是《街区最快乐的婴儿》《T0》《T1》《T2》《T3》《T4》《T5》的作者，他给了我们安抚婴儿的“五个 S”——襁褓、侧卧/俯卧、嘘嘘、摇摆和吮吸——来帮助我们安抚最不平静的婴儿。但是儿科医生和儿童发展专家卡普也有一个让幼儿入睡的窍门。尤其是当他们希望有人陪他们一起躺到睡着的时候。
 

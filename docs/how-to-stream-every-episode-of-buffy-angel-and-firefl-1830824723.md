@@ -1,6 +1,6 @@
 # 如何免费播放《巴菲》、《天使》和《萤火虫》的每一集
 
-> 原文:[https://life hacker . com/how-to-stream-every-set-of-buffy-angel-and-fire fl-1830824723](https://lifehacker.com/how-to-stream-every-episode-of-buffy-angel-and-firefl-1830824723)
+> 原文：<https://lifehacker.com/how-to-stream-every-episode-of-buffy-angel-and-firefl-1830824723>
 
 “ [《吸血鬼猎人巴菲》](https://www.facebook.com/BuffyTheVampireSlayerTheSeries/) 、 [天使](https://www.facebook.com/AngelTheSeries/) 、 [萤火虫](https://www.facebook.com/FireflyTheSeries/) ”的粉丝现在可以使用脸书免费观看这三部剧的每一集。
 

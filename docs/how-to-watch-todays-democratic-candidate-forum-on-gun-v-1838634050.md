@@ -1,6 +1,6 @@
 # 如何观看今天的民主党候选人枪支暴力论坛
 
-> 原文:[https://life hacker . com/how-to-watch-todays-democratic-candidate-forum-on-gun-v-1838634050](https://lifehacker.com/how-to-watch-todays-democratic-candidate-forum-on-gun-v-1838634050)
+> 原文：<https://lifehacker.com/how-to-watch-todays-democratic-candidate-forum-on-gun-v-1838634050>
 
 今天在拉斯维加斯，10 名民主党候选人将加入 MSNBC 论坛，讨论美国的枪支安全问题，就在拉斯维加斯音乐节大规模枪击事件两周年的第二天，T2 58 人死亡，T4 数百人受伤。
 

@@ -1,6 +1,6 @@
 # 在国外使用谷歌翻译的最佳方式
 
-> 原文:[https://life hacker . com/the-best-ways-to-use-Google-translate-in-a-foreign-coun-1833411661](https://lifehacker.com/the-best-ways-to-use-google-translate-in-a-foreign-coun-1833411661)
+> 原文：<https://lifehacker.com/the-best-ways-to-use-google-translate-in-a-foreign-coun-1833411661>
 
 如果你使用谷歌翻译只是复制粘贴文本，那你就错过了。该应用程序可以直观地翻译标志和菜单，保存您最常用的短语，等等。
 

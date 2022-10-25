@@ -1,6 +1,6 @@
 # 用这个魔术读懂你孩子的心
 
-> 原文:[https://life hacker . com/read-your-kids-mind-with this-magic-trick-1836924186](https://lifehacker.com/read-your-kids-mind-with-this-magic-trick-1836924186)
+> 原文：<https://lifehacker.com/read-your-kids-mind-with-this-magic-trick-1836924186>
 
 你不能读你孩子的想法。如果可以的话，你会知道他新喜欢的颜色变成了蓝绿色，尽管你刚刚给他买了一个蓝色的杯子，这是他三个小时前最喜欢的颜色。但是你可以让他*认为*你可以读懂他的心思，这多亏了 u/trongs24 发布在 Reddit 上的这个 [超级好玩的小把戏](https://www.reddit.com/r/howto/comments/bkkuje/how_to_perform_this_simple_mind_reading_trick/) 。
 

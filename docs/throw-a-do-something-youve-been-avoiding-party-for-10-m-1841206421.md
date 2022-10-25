@@ -1,6 +1,6 @@
 # 举办一个 10 分钟的“做一些你一直在逃避的事情”的聚会
 
-> 原文:[https://life hacker . com/throw-a-do-something-you-being-party for-10-m-1841206421](https://lifehacker.com/throw-a-do-something-youve-been-avoiding-party-for-10-m-1841206421)
+> 原文：<https://lifehacker.com/throw-a-do-something-youve-been-avoiding-party-for-10-m-1841206421>
 
 在你的待办事项清单上，一周又一周出现的烦人的事情是什么？缝补你最喜欢的衬衫上的线缝？清理你的桌子？整理一个月的邮件？
 

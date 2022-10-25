@@ -1,6 +1,6 @@
 # 布质面具无法抵御野火烟雾
 
-> 原文:[https://life hacker . com/cloth-masks-dont-protect-against-wild fire-smoke-1845049868](https://lifehacker.com/cloth-masks-dont-protect-against-wildfire-smoke-1845049868)
+> 原文：<https://lifehacker.com/cloth-masks-dont-protect-against-wildfire-smoke-1845049868>
 
 如果你生活在一个真实的地狱场景中(美国西部的大部分地区都是如此)，你知道你可以戴口罩来保护自己免受冠状病毒的侵害，也可以戴口罩来保护自己免受野火烟雾中的微粒的侵害。然而:这些不一定是相同的面具。
 

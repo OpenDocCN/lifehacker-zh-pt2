@@ -1,6 +1,6 @@
 # 你如何让平淡无味的食谱变得有生气？
 
-> 原文:[https://life hacker . com/how-do-you-perk-up-a-bland-recipe-1831015523](https://lifehacker.com/how-do-you-perk-up-a-bland-recipe-1831015523)
+> 原文：<https://lifehacker.com/how-do-you-perk-up-a-bland-recipe-1831015523>
 
 今天，当我登录 Slack 时，一个恐怖的故事映入了我的眼帘。昨晚，我们亲爱的执行主编弗吉尼亚正在用[编辑]做扁豆汤，却发现只需要微不足道的 1/4 茶匙盐。“读者，它很平淡，”她告诉我们，对此 A.A .牛顿回答说“我要尖叫了”，因为她基本上是一个盐权活动家。
 

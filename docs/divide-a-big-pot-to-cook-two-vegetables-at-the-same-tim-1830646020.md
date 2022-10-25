@@ -1,6 +1,6 @@
 # 分一口大锅同时煮两种蔬菜
 
-> 原文:[https://life hacker . com/divide-a-big-pot-to-cook-two-vegetables at-same-Tim-1830646020](https://lifehacker.com/divide-a-big-pot-to-cook-two-vegetables-at-the-same-tim-1830646020)
+> 原文：<https://lifehacker.com/divide-a-big-pot-to-cook-two-vegetables-at-the-same-tim-1830646020>
 
 我对我的土豆泥很挑剔。我喜欢赤褐色和育空金色的混合 ，但我更喜欢育空金色。(我不喜欢米色的质感。)这就需要在烹饪时将土豆分开，因为一旦去皮煮熟，很难区分开来。我没有拿出两个不同的汤锅，而是用一个小平底锅把我的大锅分成两份。
 

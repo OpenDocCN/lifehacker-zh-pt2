@@ -1,6 +1,6 @@
 # 我是克里斯·巴柳，又名卡斯帕·宝贝潘茨，这就是我为人父母的方式
 
-> 原文:[https://life hacker . com/im-Chris-ballew-aka-Caspar-baby pants-and-this-is-how-1830039399](https://lifehacker.com/im-chris-ballew-aka-caspar-babypants-and-this-is-how-1830039399)
+> 原文：<https://lifehacker.com/im-chris-ballew-aka-caspar-babypants-and-this-is-how-1830039399>
 
 你可能知道克里斯·巴柳，他是 90 年代另类摇滚乐队“美利坚合众国总统”的主唱。但是如果你不到八岁，比如说，你可能对他最熟悉的名字是 [卡斯帕·巴比潘茨](https://babypantsmusic.com/home) ，一个“kindie-rock”偶像，他制作适合家庭的音乐，主题是 [一个不随大流的泡泡](https://www.youtube.com/watch?v=ZLn9qoasfrk)[一只在免费沙发上找到住处的扁虱](https://www.youtube.com/watch?v=A72HyxRBgco) 和 [一个从天而降的黑莓馅饼](https://www.youtube.com/watch?v=aHZ2fSX30ps) 。作为两个孩子的父亲，他与我们分享了他是如何为人父母的。
 

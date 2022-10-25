@@ -1,6 +1,6 @@
 # 永远不要为你的隐形眼镜处方复印件付钱
 
-> 原文:[https://life hacker . com/never-pay-for-a-copy of-your ' s contact lens-prescription-1844147850](https://lifehacker.com/never-pay-for-a-copy-of-your-contact-lens-prescription-1844147850)
+> 原文：<https://lifehacker.com/never-pay-for-a-copy-of-your-contact-lens-prescription-1844147850>
 
 如果你戴眼镜或隐形眼镜很久了，你就知道这种舞蹈。你去看验光师要新的处方。然后他们想让你从他们的眼镜店订购。验光师不知道你是否在预算之内，或者更喜欢购买某个特定的品牌，或者只是想让该死的眼圈每三个月邮寄一次给你。
 

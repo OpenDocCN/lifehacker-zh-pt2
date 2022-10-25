@@ -1,6 +1,6 @@
 # 把你的腌泡汁煮沸后再作为调味汁食用
 
-> 原文:[https://life hacker . com/boil-your-marinade-before-serve-it-as-a-sauce-1836080779](https://lifehacker.com/boil-your-marinade-before-serving-it-as-a-sauce-1836080779)
+> 原文：<https://lifehacker.com/boil-your-marinade-before-serving-it-as-a-sauce-1836080779>
 
 当我们为伟大的美国烧烤日做准备时，有一些重要的事情你需要知道，你可能没有想到:如果你的腌泡汁中有生肉，它充满了生肉细菌。
 

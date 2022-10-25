@@ -1,6 +1,6 @@
 # 如果你的谷歌日历事件在你的 Mac 上消失了，试试这些临时的修复方法
 
-> 原文:[https://life hacker . com/if-your-Google-calendar-events-just-impossed-on-your-1837507324](https://lifehacker.com/if-your-google-calendar-events-just-disappeared-on-your-1837507324)
+> 原文：<https://lifehacker.com/if-your-google-calendar-events-just-disappeared-on-your-1837507324>
 
 这就是我一天多没碰我的苹果电脑的下场。多亏了来自 Lifehacker 读者 [大卫](https://twitter.com/dmbmke/status/1164907105771511808?s=20) (没有关系)的提示，我们现在可以确认 Mac 用户今天可能在试图管理他们的时间表时遇到了麻烦。如果你将谷歌日历与苹果日历同步，你所有的活动可能都会消失。谢天谢地，有*和*来临时修复你的事件，但是很麻烦。
 

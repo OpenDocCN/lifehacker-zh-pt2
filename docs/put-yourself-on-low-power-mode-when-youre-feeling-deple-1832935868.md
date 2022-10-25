@@ -1,6 +1,6 @@
 # 当你感到精疲力尽时，让自己进入“低功耗模式”
 
-> 原文:[https://life hacker . com/put-you-on-low-power-mode-when-you-feel-deple-1832935868](https://lifehacker.com/put-yourself-on-low-power-mode-when-youre-feeling-deple-1832935868)
+> 原文：<https://lifehacker.com/put-yourself-on-low-power-mode-when-youre-feeling-deple-1832935868>
 
 如果你正在经历一个巨大的转变或者只是感到精疲力竭，进入“低功耗模式”会有所帮助我在休产假的时候，在播客上听到了这个建议，立刻感到安慰。低功耗模式— *是*。在此期间，你只能执行最关键的功能，而将其他所有事情推迟到你重新充满电的时候。你在保存你的能量，这样你就不必完全关闭。(这个词指的是 iPhone 的省电模式，针对非苹果用户。)
 

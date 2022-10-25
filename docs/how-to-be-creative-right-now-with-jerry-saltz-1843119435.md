@@ -1,6 +1,6 @@
 # 如何现在就变得有创造力，杰瑞·萨尔茨
 
-> 原文:[https://life hacker . com/how-to-be-creative-right-now with-Jerry-saltz-1843119435](https://lifehacker.com/how-to-be-creative-right-now-with-jerry-saltz-1843119435)
+> 原文：<https://lifehacker.com/how-to-be-creative-right-now-with-jerry-saltz-1843119435>
 
 身体上的距离让你感到无聊吗？本周，在杰里·萨尔茨的帮助下，我们正在重振我们的创作本能，他是《纽约时报》畅销书《如何成为艺术家》的作者。听听 Jerry 讲述他在这些孤立的时代寻找灵感的秘密，以及他如何想象艺术世界将从全球疫情中崛起。他是否认为现在是很难有动力的时候？是的。他认为这意味着你应该停止创作吗？绝对不行，丫的'大宝宝们！
 

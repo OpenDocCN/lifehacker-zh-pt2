@@ -1,6 +1,6 @@
 # 根据游戏设计师的说法，如何帮助你的孩子提高桌游水平
 
-> 原文:[https://life hacker . com/how-to-help-your-kid-improve-on-board-games 1833611348](https://lifehacker.com/how-to-help-your-kid-improve-at-board-games-according-1833611348)
+> 原文：<https://lifehacker.com/how-to-help-your-kid-improve-at-board-games-according-1833611348>
 
 关于和孩子玩桌游应该有多争强好胜的问题，众说纷纭。在一个极端，有些父母每次都让他们的孩子赢，决心保护他们脆弱的灵魂免受失败的巨大痛苦。在另一端，有些人大喊“嘘！在你脸上，吸！”因为他们在《大富翁少年》中领先于他们的后代。大多数妈妈和爸爸可能会处于中间的某个位置——他们可能会在开始时放松，然后随着他们年轻的对手变得更加熟练，他们的游戏会变得更好。
 

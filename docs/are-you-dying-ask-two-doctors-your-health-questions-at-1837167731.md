@@ -1,6 +1,6 @@
 # 你要死了吗？美国东部时间下午 1 点，问两位医生你的健康问题[更新:结束]
 
-> 原文:[https://life hacker . com/1837167731](https://lifehacker.com/are-you-dying-ask-two-doctors-your-health-questions-at-1837167731)
+> 原文：<https://lifehacker.com/are-you-dying-ask-two-doctors-your-health-questions-at-1837167731>
 
 又到时间了，山雀队:是时候问那些你已经推迟(或者说实话，忘记)了几个月的关于你健康的问题了。
 

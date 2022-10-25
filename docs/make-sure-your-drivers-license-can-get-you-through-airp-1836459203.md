@@ -1,6 +1,6 @@
 # 确保你的驾照能让你在 2020 年通过机场安检
 
-> 原文:[https://life hacker . com/make-sure-your-drivers-license-can-get-you-through-airp-1836459203](https://lifehacker.com/make-sure-your-drivers-license-can-get-you-through-airp-1836459203)
+> 原文：<https://lifehacker.com/make-sure-your-drivers-license-can-get-you-through-airp-1836459203>
 
 《真实身份法》计划于 2020 年 10 月 1 日全面生效。这意味着，根据你所在的州，明年你的驾照可能不再是通过机场安检的可接受的身份证明。
 

@@ -1,6 +1,6 @@
 # 如果我从同一个经销商那里买两辆车，会不会更划算？
 
-> 原文:[https://jalopnik . com/will-I-get-a-better-deal-if-I-buy-two-cars-from-the-Sam-1835726442](https://jalopnik.com/will-i-get-a-better-deal-if-i-buy-two-cars-from-the-sam-1835726442)
+> 原文：<https://jalopnik.com/will-i-get-a-better-deal-if-i-buy-two-cars-from-the-sam-1835726442>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。我决定挑几个问题，试着帮帮大家。本周我们将讨论两辆车的交易，这是私下销售的最佳时机，以及认证车的小事故。
 

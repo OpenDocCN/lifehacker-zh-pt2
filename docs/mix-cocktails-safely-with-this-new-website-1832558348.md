@@ -1,6 +1,6 @@
 # 使用这个新网站安全地混合鸡尾酒
 
-> 原文:[https://life hacker . com/mix-cocktails-safely-with-this-new-website-1832558348](https://lifehacker.com/mix-cocktails-safely-with-this-new-website-1832558348)
+> 原文：<https://lifehacker.com/mix-cocktails-safely-with-this-new-website-1832558348>
 
 “鸡尾酒安全”这个词可能会唤起人们对错误的燃烧射击烧焦眉毛的记忆，仅此而已，但事实证明你的花式饮料可能含有不止几种潜在危险成分。谢天谢地， [有一个新网站](https://www.cocktailsafe.org/) 旨在帮助行业专业人士和有抱负的调酒师驾驭复杂的、基本上不受监管的特色鸡尾酒配料。
 

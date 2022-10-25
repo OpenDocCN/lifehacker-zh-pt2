@@ -1,6 +1,6 @@
 # 如何让自己不再遭受倦怠
 
-> 原文:[https://life hacker . com/how-to-stop-yourself-experience-burnout-1844827570](https://lifehacker.com/how-to-stop-yourself-from-suffering-burnout-1844827570)
+> 原文：<https://lifehacker.com/how-to-stop-yourself-from-suffering-burnout-1844827570>
 
 停止工作并花些时间放松可能很难。一旦你试图放松，你可能会发现自己在推特、Instagram 或 Pinterest 上不停地滚动。然后当你试图睡觉时，你所能想到的就是工作，划掉你的待办事项清单上的项目，以及其他人看起来有多有效率。你觉得你不能再这样做了，但你还是继续这样做。
 

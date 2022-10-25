@@ -1,6 +1,6 @@
 # 毕业生可以免费得到一打甜甜圈
 
-> 原文:[https://life hacker . com/graduates-can-get-a 打-krispy-kreme-doughnuts-free-t-1843484264](https://lifehacker.com/graduates-can-get-a-dozen-krispy-kreme-doughnuts-free-t-1843484264)
+> 原文：<https://lifehacker.com/graduates-can-get-a-dozen-krispy-kreme-doughnuts-free-t-1843484264>
 
 虽然他们错过了面对面的仪式，但今年应该从高中或大学毕业的学生有资格在 5 月 19 日从 Krispy Kreme 免费获得一打甜甜圈。
 

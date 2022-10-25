@@ -1,6 +1,6 @@
 # 用这个游戏让你的朋友远离他们的手机
 
-> 原文:[https://life hacker . com/keep-your-friends-off-the-game-1837449803](https://lifehacker.com/keep-your-friends-off-their-phones-with-this-game-1837449803)
+> 原文：<https://lifehacker.com/keep-your-friends-off-their-phones-with-this-game-1837449803>
 
 当出去玩的时候，尤其是喝酒的时候，当有人和你说话的时候，简单地拿出你的手机检查一下已经成为一种正常的习惯。尽管这样做很粗鲁，尽管我们讨厌朋友这样对我们，我们还是会这样做。我们控制不住自己，也不是我们的错；整个资本主义机器都在试图让我们多看手机。可以用小游戏反击。
 

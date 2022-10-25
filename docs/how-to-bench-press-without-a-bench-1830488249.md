@@ -1,6 +1,6 @@
 # 没有板凳怎么卧推
 
-> 原文:[https://life hacker . com/how-to-bench-press-without-a-bench-1830488249](https://lifehacker.com/how-to-bench-press-without-a-bench-1830488249)
+> 原文：<https://lifehacker.com/how-to-bench-press-without-a-bench-1830488249>
 
 [卧推挑战](https://lifehacker.com/novembers-challenge-is-bench-press-1830153476) 进行的怎么样了？希望你已经设法举起了一些东西，无论是传统的杠铃、哑铃还是任何大小的重物。今天我们来看看如果你没有一个设备齐全的健身房，你可能会面临的另一个挑战:如何在没有长凳的情况下进行卧推。
 

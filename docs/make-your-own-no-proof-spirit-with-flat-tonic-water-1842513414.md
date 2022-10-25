@@ -1,6 +1,6 @@
 # 用平淡的奎宁水制作你自己的无酒精“烈酒”
 
-> 原文:[https://life hacker . com/make-your-own-no-proof-spirit-with-flat-tonic-water-1842513414](https://lifehacker.com/make-your-own-no-proof-spirit-with-flat-tonic-water-1842513414)
+> 原文：<https://lifehacker.com/make-your-own-no-proof-spirit-with-flat-tonic-water-1842513414>
 
 当我第一次听说我会一直呆在家里的时候，我想象着每晚在浴室里喝鸡尾酒的时光，大量的阅读，以及一个闪闪发光的干净公寓。但是在科学家所谓的“可预测”中，这些都没有真正发生。
 

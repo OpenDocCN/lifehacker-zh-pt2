@@ -1,6 +1,6 @@
 # 使用威瑞森的新覆盖地图检查您所在地区的 5G 服务
 
-> 原文:[https://life hacker . com/check-for-5g-service-in-your-area-with-Verizon-new-cov-1839959227](https://lifehacker.com/check-for-5g-service-in-your-area-with-verizons-new-cov-1839959227)
+> 原文：<https://lifehacker.com/check-for-5g-service-in-your-area-with-verizons-new-cov-1839959227>
 
 该不该买 5G 智能手机？你*可能* [现在不需要一个](https://lifehacker.com/5g-phones-are-coming-soon-but-you-should-wait-to-buy-o-1831406561) 除非价格合适，而且——至少如果你是威瑞森的用户——你的生活或工作空间在它的 5G 范围内，这一点你现在可以通过该公司刚刚发布的 5G 覆盖地图来检查。如果其中一个(或两个)都这样，决策就变得有点棘手了。
 

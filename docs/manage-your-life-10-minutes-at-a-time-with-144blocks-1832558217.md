@@ -1,6 +1,6 @@
 # 用 144 块积木一次管理你 10 分钟的生活
 
-> 原文:[https://life hacker . com/manage-your-life-144 blocks-1832558217](https://lifehacker.com/manage-your-life-10-minutes-at-a-time-with-144blocks-1832558217)
+> 原文：<https://lifehacker.com/manage-your-life-10-minutes-at-a-time-with-144blocks-1832558217>
 
 正如博客作者蒂姆·厄本在《等待，但为什么》中所写的，你醒着的一天通常有大约 1000 分钟 。厄本喜欢把自己的时间分成几块来分析，用 [来衡量一个人几周内的生命](https://waitbutwhy.com/2014/05/life-weeks.html) ，或者计算 [他在父母去世前还能见多少次](https://waitbutwhy.com/2015/12/the-tail-end.html) 。是啊，他的思想实验会很快变得沉重。他的 1000 分钟计算启发了 [144blocks](https://144blocks.com/date/021319) ，一个以 10 分钟为单位安排时间的网络工具。
 

@@ -1,6 +1,6 @@
 # 让这些医生告诉你你是否快死了
 
-> 原文:[https://life hacker . com/let-thes-doctors-tell-you-if-you-dead-1830740911](https://lifehacker.com/let-these-doctors-tell-you-if-youre-dying-1830740911)
+> 原文：<https://lifehacker.com/let-these-doctors-tell-you-if-youre-dying-1830740911>
 
 每当你头痛或胸痛得厉害时，你可能会直接冲向 WebMD，疯狂地进行研究，陷入全面恐慌之中。
 

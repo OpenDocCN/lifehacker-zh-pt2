@@ -1,6 +1,6 @@
 # 在开始打电话之前，确保你看起来不像个怪人
 
-> 原文:[https://life hacker . com/确保你在跳楼前看起来不像个大怪人-1842469549](https://lifehacker.com/make-sure-you-dont-look-like-a-big-weirdo-before-jumpin-1842469549)
+> 原文：<https://lifehacker.com/make-sure-you-dont-look-like-a-big-weirdo-before-jumpin-1842469549>
 
 现在，我们中许多有幸工作的人都在家工作，虚拟地主持我们的会议，我们非常专注于让视频电话会议不那么可怕的 ，从 [开始，确保我们](https://lifehacker.com/how-to-look-and-sound-great-on-a-conference-call-1842431127)[在镜头前看起来不错](https://lifehacker.com/how-to-look-better-in-your-next-zoom-meeting-1842457998) 。但是你有多确定你看起来并不可怕或者你身后没有什么尴尬的事情发生？你不想在打电话之前最后检查一下吗？你应该检查一下。
 

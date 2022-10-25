@@ -1,6 +1,6 @@
 # “驱逐暂停”到底是什么意思？
 
-> 原文:[https://life hacker . com/what-do-a-eviction-pause-really-mean-1842496524](https://lifehacker.com/what-does-an-eviction-pause-really-mean-1842496524)
+> 原文：<https://lifehacker.com/what-does-an-eviction-pause-really-mean-1842496524>
 
 全国各州和城市决定在冠状病毒疫情期间暂停驱逐和公用事业关闭。但如果你面临被驱逐的风险，暂缓令可能只是一种临时保护。
 

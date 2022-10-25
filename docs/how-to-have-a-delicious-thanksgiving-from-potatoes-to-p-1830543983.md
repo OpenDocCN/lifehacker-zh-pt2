@@ -1,6 +1,6 @@
 # 如何过一个从土豆到馅饼的美味感恩节
 
-> 原文:[https://life hacker . com/how-to-have-a-delicious-感恩节从土豆到 p-1830543983](https://lifehacker.com/how-to-have-a-delicious-thanksgiving-from-potatoes-to-p-1830543983)
+> 原文：<https://lifehacker.com/how-to-have-a-delicious-thanksgiving-from-potatoes-to-p-1830543983>
 
 如果你一直在关注我们的感恩节报道，你会知道我们有一个小小的员工晚宴，你会知道我帮助每个员工确保他们的菜闪闪发光。我们有过一些欢笑，也吸取了一些教训(有一次，、、[、](https://skillet.lifehacker.com/make-these-thanksgiving-classics-even-better-1830236674)、跳了一小段舞)，整个月我们都在和你分享这些技巧和诀窍。
 

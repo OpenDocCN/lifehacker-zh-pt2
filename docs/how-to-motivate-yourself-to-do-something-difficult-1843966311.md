@@ -1,6 +1,6 @@
 # 如何激励自己去做困难的事情
 
-> 原文:[https://life hacker . com/how-to-motivate-yourself-do-something-different-1843966311](https://lifehacker.com/how-to-motivate-yourself-to-do-something-difficult-1843966311)
+> 原文：<https://lifehacker.com/how-to-motivate-yourself-to-do-something-difficult-1843966311>
 
 下一次你发现自己在盯着一项困难、耗时或无聊的任务时，不要告诉自己你以后会做。告诉自己这将会很困难，很耗时，很无聊。承认你会讨厌它的每一分钟。让自己接受这将会很糟糕——然后，令人惊讶的是，你可能会有动力去完成它。
 

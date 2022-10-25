@@ -1,6 +1,6 @@
 # 这些是吃夏天西红柿的最好方法
 
-> 原文:[https://life hacker . com/这些是夏季西红柿的最佳食用方法-1836849765](https://lifehacker.com/these-are-the-best-ways-to-eat-summer-tomatoes-1836849765)
+> 原文：<https://lifehacker.com/these-are-the-best-ways-to-eat-summer-tomatoes-1836849765>
 
 现在是八月，这意味着我们正处于西红柿季节的中期，如果你还没有计划好如何享用它们多汁美味的美味，你最好加快步伐。那些苍白、水状、无味的垃圾番茄就在眼前。
 

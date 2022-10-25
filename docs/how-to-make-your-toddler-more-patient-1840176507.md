@@ -1,6 +1,6 @@
 # 如何让你的孩子更有耐心
 
-> 原文:[https://life hacker . com/how-to-make-your-tuckly-more-patient-1840176507](https://lifehacker.com/how-to-make-your-toddler-more-patient-1840176507)
+> 原文：<https://lifehacker.com/how-to-make-your-toddler-more-patient-1840176507>
 
 还记得上一次你让你的孩子为了某样东西再等一秒钟吗？这只会让他们更加不顾一切，更加无情地追求他们想要的东西。初学走路的孩子知道很多事情，但耐心不是其中之一。他们是初学者，需要锻炼他们的耐心。但是作为父母，完全有可能我们没有教会他们以最有效的方式来加强那些肌肉。
 

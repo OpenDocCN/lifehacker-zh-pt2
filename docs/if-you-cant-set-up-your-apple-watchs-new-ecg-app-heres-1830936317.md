@@ -1,6 +1,6 @@
 # 如果你不能设置你的苹果手表的新心电图应用程序，原因如下
 
-> 原文:[https://life hacker . com/if-you-cant-set-up-your-apple-watches-new-ECG-app-heres-1830936317](https://lifehacker.com/if-you-cant-set-up-your-apple-watchs-new-ecg-app-heres-1830936317)
+> 原文：<https://lifehacker.com/if-you-cant-set-up-your-apple-watchs-new-ecg-app-heres-1830936317>
 
 虽然这不是我今年早些时候买 Apple Watch Series 4 的唯一原因，但苹果在 9 月份的大型活动中展示的心电图功能无疑是智能手表最独特的功能之一。我怀疑我的心脏有什么问题，苹果的实现仍然 [不如你在医院](https://vitals.lifehacker.com/what-to-know-about-the-ecg-feature-in-the-new-apple-wat-1829064723) 得到的心电图好——当然——但在你的手腕上看到你的心脏的电活动很有趣。
 

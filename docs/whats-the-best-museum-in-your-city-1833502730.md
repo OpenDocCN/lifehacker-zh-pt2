@@ -1,6 +1,6 @@
 # 在你的城市里最好的博物馆是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-museum in-your-city-1833502730](https://lifehacker.com/whats-the-best-museum-in-your-city-1833502730)
+> 原文：<https://lifehacker.com/whats-the-best-museum-in-your-city-1833502730>
 
 博物馆是一个城市皇冠上的明珠。即使是一个普通的城市，通常也至少有一个坚固的博物馆，你可以在那里度过一个下午；大多数人有足够的钱来完成一次旅行。有些被公认为珍宝:每个人都知道卢浮宫、史密森尼、大都会博物馆的价值。很少人，但仍有很多人，知道罗切斯特的强大的游戏博物馆，或新泽西州的银球博物馆可玩的弹球机。
 

@@ -1,6 +1,6 @@
 # 根据专业人士的说法，如何创建一个伟大的播客
 
-> 原文:[https://life hacker . com/how-to-create-a-great-podcast-by-the-professor-1835496121](https://lifehacker.com/how-to-create-a-great-podcast-according-to-the-profess-1835496121)
+> 原文：<https://lifehacker.com/how-to-create-a-great-podcast-according-to-the-profess-1835496121>
 
 创建自己的播客很难。让你的播客更好更难。很多建议都太模糊了。*如何*让它变得更有趣？*你如何确定你的目标受众？所以我们问了 14 个成功的播客人一个问题:大多数人没有想到的播客技巧是什么？他们是这样说的。* 
 

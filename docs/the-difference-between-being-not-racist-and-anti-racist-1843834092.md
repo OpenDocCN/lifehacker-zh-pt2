@@ -1,6 +1,6 @@
 # “不是种族主义者”和“反种族主义者”的区别
 
-> 原文:[https://life hacker . com/the-difference-being-not-racistic-and-anti-racistic-1843834092](https://lifehacker.com/the-difference-between-being-not-racist-and-anti-racist-1843834092)
+> 原文：<https://lifehacker.com/the-difference-between-being-not-racist-and-anti-racist-1843834092>
 
 种族主义是影响有色人种安全和福祉的瘟疫。当我们继续目睹种族主义导致的不公正时，有一点是清楚的:我们的白人盟友仅仅“不是种族主义者”是不够的；他们必须是反种族主义者。如果你想知道有什么不同，我们将为你分析一下。
 

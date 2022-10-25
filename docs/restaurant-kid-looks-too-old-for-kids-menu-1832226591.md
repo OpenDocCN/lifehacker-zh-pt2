@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:这孩子看起来太老了，不适合儿童菜单
 
-> 原文:[https://the take out . com/restaurant-kid-looks-too-old-for-kids-menu-1832226591](https://thetakeout.com/restaurant-kid-looks-too-old-for-kids-menu-1832226591)
+> 原文：<https://thetakeout.com/restaurant-kid-looks-too-old-for-kids-menu-1832226591>
 
 > *亲爱的咸:这里的服务伙伴。我们的餐厅有 12 岁及以下儿童菜单，我发誓随着年龄的增长，我对年轻人年龄的判断越来越差。我觉得有些父母试图欺骗我，从儿童菜单上为他们的青少年点餐，这些青少年显然太老了，不适合儿童菜单(我们还在周二为 12 岁以下的儿童提供免费餐)。*
 > 

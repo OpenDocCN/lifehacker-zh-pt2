@@ -1,6 +1,6 @@
 # 使用这个计算器来建立你自己的财富税
 
-> 原文:[https://life hacker . com/use-this-calculator-to-build-your-own-wealth-tax-1832629581](https://lifehacker.com/use-this-calculator-to-build-your-own-wealth-tax-1832629581)
+> 原文：<https://lifehacker.com/use-this-calculator-to-build-your-own-wealth-tax-1832629581>
 
 在竞选总统的过程中，民主党参议员伊丽莎白·沃伦最近提议对超级富豪征收财富税，以对抗收入不平等。她的计划要求对净资产超过 5000 万美元的人征收 2%的税，对资产超过 10 亿美元的人征收 3%的税。
 

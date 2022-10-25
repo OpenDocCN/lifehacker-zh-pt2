@@ -1,6 +1,6 @@
 # 众议院监督委员会做什么？
 
-> 原文:[https://life hacker . com/what-the-house-oversight-Committee-do-1831992759](https://lifehacker.com/what-does-the-house-oversight-committee-do-1831992759)
+> 原文：<https://lifehacker.com/what-does-the-house-oversight-committee-do-1831992759>
 
 昨晚，纽约州女众议员亚历山大奥卡西奥- 科尔特斯和马萨诸塞州众议员艾安娜·普莱斯利 [在赢得众望所归的众议院监督委员会席位后成为头条新闻](https://www.usatoday.com/story/news/politics/2019/01/22/alexandria-ocasio-cortez-appointed-oversight-and-reform-committee/2653661002/) 。
 

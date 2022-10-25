@@ -1,6 +1,6 @@
 # how to ride an escalator according to escalator manufa 1838877278
 
-> 原文:[https://life hacker . com/how-to-ride-an-扶梯-根据自动扶梯-manufa-1838877278](https://lifehacker.com/how-to-ride-an-escalator-according-to-escalator-manufa-1838877278)
+> 原文：<https://lifehacker.com/how-to-ride-an-escalator-according-to-escalator-manufa-1838877278>
 
 人们不应该在自动扶梯上行走。 (它减缓了高峰时间的流量。)根据最近 CBC 的一份报告，所有的步行者都在加快破坏自动扶梯的速度。奥的斯电梯公司甚至说在自动扶梯上行走有安全隐患。但这不是我们在这里要谈的。我们在这里是因为奥蒂斯令人哭笑不得的爆料。
 

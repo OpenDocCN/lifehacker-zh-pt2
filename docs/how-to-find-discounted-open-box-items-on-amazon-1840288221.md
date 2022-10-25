@@ -1,6 +1,6 @@
 # 如何在亚马逊上找到打折的开箱商品
 
-> 原文:[https://life hacker . com/how-to-find-discounted-open-box-items-on-Amazon-1840288221](https://lifehacker.com/how-to-find-discounted-open-box-items-on-amazon-1840288221)
+> 原文：<https://lifehacker.com/how-to-find-discounted-open-box-items-on-amazon-1840288221>
 
 如果你愿意购买已经打开的东西，下次在亚马逊购物时，你可能会为自己节省一大笔钱， [假设在亚马逊购物仍然是你这个假期正在做的事情](https://twocents.lifehacker.com/how-to-do-your-holiday-shopping-without-amazon-1840179642) 。
 

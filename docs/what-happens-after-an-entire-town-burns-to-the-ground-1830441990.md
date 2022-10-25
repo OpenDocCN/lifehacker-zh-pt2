@@ -1,6 +1,6 @@
 # 整个城镇被夷为平地后会发生什么？
 
-> 原文:[https://gizmodo . com/1830441990](https://gizmodo.com/what-happens-after-an-entire-town-burns-to-the-ground-1830441990)
+> 原文：<https://gizmodo.com/what-happens-after-an-entire-town-burns-to-the-ground-1830441990>
 
 每个逃离营火的人都有一个故事，当他们知道事情将会非常非常糟糕时，在那个灾难性的星期四，火焰撕裂了天堂镇和周围地区。
 

@@ -1,6 +1,6 @@
 # 设定金钱目标时，要考虑你的情绪
 
-> 原文:[https://life hacker . com/take-your-emotions-to-account-when-set-a-money-go-1833406785](https://lifehacker.com/take-your-emotions-into-account-when-setting-a-money-go-1833406785)
+> 原文：<https://lifehacker.com/take-your-emotions-into-account-when-setting-a-money-go-1833406785>
 
 根据投资公司晨星最近的一份报告，人们并不擅长设定的财务目标。但如果他们更多地利用自己的情感，这种情况可能会改变。
 

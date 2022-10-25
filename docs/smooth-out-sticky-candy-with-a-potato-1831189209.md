@@ -1,6 +1,6 @@
 # 用土豆把黏糊糊的糖果弄平
 
-> 原文:[https://life hacker . com/smooth-out-sticky-candy-with a-potato-1831189209](https://lifehacker.com/smooth-out-sticky-candy-with-a-potato-1831189209)
+> 原文：<https://lifehacker.com/smooth-out-sticky-candy-with-a-potato-1831189209>
 
 玛塞拉·哈赞最广为人知的是她的三种成分番茄酱，但她的专长不仅仅是意大利面和你放在上面的东西。事实上，她有一个惊人的优雅的方法来制作杏仁脆片，除了一个土豆之外没有任何特殊的设备。(老实说，这种根菜能给我们多少礼物？)
 

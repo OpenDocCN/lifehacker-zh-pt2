@@ -1,6 +1,6 @@
 # 你有没有改变你个人对于身体距离的规则？
 
-> 原文:[https://life hacker . com/have-you-changed-your-personal-rules-for-physical-dista-1843245452](https://lifehacker.com/have-you-changed-your-personal-rules-for-physical-dista-1843245452)
+> 原文：<https://lifehacker.com/have-you-changed-your-personal-rules-for-physical-dista-1843245452>
 
 当我们到达第七或第八或第九周的 [时，不管我们正在经历的](https://lifehacker.com/we-dont-have-the-words-for-what-were-living-through-1843111507) 是什么，我们都在与我们开始的大不相同的(即使我们都永远呆在同一个地方)。一方面，身体上的距离变得更容易练习熟悉:我们大多数人都在认真对待事情，越来越多的人戴着面具和路边的皮卡正迅速成为一种习惯欧元。然而，另一方面，我们都渴望去外面，或者去拜访一下朋友[。](https://vitals.lifehacker.com/no-you-cant-just-visit-a-friend-1842518655)
 

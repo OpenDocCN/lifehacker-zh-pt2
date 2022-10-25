@@ -1,6 +1,6 @@
 # 来自我们读者的最佳迈阿密旅行建议
 
-> 原文:[https://life hacker . com/the-best-Miami-travel-tips-from-our-readers-1830290561](https://lifehacker.com/the-best-miami-travel-tips-from-our-readers-1830290561)
+> 原文：<https://lifehacker.com/the-best-miami-travel-tips-from-our-readers-1830290561>
 
 “我用‘沼泽独角兽’这个词来形容我们这些迈阿密本地人，”读者 [迈杜斯](https://lifehacker.com/1830252955) 说。“我们是神奇的生物，在一个充斥着世界上最大的混蛋的小镇上很难找到，他们决定来这里过‘疯狂的生活’，给这个地方带来坏名声。人们在 [的评论帖中为迈阿密旅行提示](https://lifehacker.com/tell-us-your-best-miami-travel-tips-1830184686) 变得活跃起来！在我们的精彩综述中，我们包括了一些来自憎恨者的建议，告诉我们应该避免什么或者去哪里，但是更多的来自爱好者(和宽容者)的建议，告诉我们在这个多元文化的城市里的所有好东西，尽管价格昂贵。教争议。
 

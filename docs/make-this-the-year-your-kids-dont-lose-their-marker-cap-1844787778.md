@@ -1,6 +1,6 @@
 # 让这一年成为你的孩子不会丢失记号笔的一年
 
-> 原文:[https://life hacker . com/make-this-the-year-your-kids-don-lose-them-marker-cap-1844787778](https://lifehacker.com/make-this-the-year-your-kids-dont-lose-their-marker-cap-1844787778)
+> 原文：<https://lifehacker.com/make-this-the-year-your-kids-dont-lose-their-marker-cap-1844787778>
 
 如果有人知道丢了满地的记号笔盖——以及随之而来的干记号笔——每天的挫败感，那就是一名幼儿园老师。但是一位这样的老师有一个窍门，去年在她的课堂上有效，今年也可以在家里对家长有效:用胶带把他们粘在一起。
 

@@ -1,6 +1,6 @@
 # 在与乌克兰的交往中，迈克·彭斯怎么能声称自己似乎可以推脱责任？
 
-> 原文:[https://life hacker . com/how-can-Mike-pence-claim-likely-deniability-in-his-d-1838773012](https://lifehacker.com/how-can-mike-pence-claim-plausible-deniability-in-his-d-1838773012)
+> 原文：<https://lifehacker.com/how-can-mike-pence-claim-plausible-deniability-in-his-d-1838773012>
 
 据《华盛顿邮报》 本周报道，美国官员指控特朗普总统多次试图让副总统迈克·彭斯参与他与乌克兰的交易，包括“使用便士”扣留援助，直到对乔·拜登进行更彻底的腐败调查。
 

@@ -1,6 +1,6 @@
 # 你可以免费参加这 600 门在线课程
 
-> 原文:[https://life hacker . com/you-can-take-these-600-online-courses-free-1830066444](https://lifehacker.com/you-can-take-these-600-online-courses-for-free-1830066444)
+> 原文：<https://lifehacker.com/you-can-take-these-600-online-courses-for-free-1830066444>
 
 你不再需要成为哈佛学生或普林斯顿毕业生，就能从这些精英机构的教学中受益。你可以通过 [MOOCs](http://mooc.org/) 在线访问一些他们最受欢迎的课程。
 

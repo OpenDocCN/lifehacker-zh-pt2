@@ -1,6 +1,6 @@
 # 度假时去教堂
 
-> 原文:[https://life hacker . com/go-to-church-when-you-on-vacation-1831328044](https://lifehacker.com/go-to-church-when-youre-on-vacation-1831328044)
+> 原文：<https://lifehacker.com/go-to-church-when-youre-on-vacation-1831328044>
 
 这不是一个关于你宗教义务的故事！如果我们的假期与周日上午重叠，即使是我那笃信圣经的父母也不会拉着全家去教堂。但是不管你的个人信仰如何，有两个很好的理由让你在旅行时参加宗教仪式。
 

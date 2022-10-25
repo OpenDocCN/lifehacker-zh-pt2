@@ -1,6 +1,6 @@
 # 带着美男子慢慢进入雪莉
 
-> 原文:[https://life hacker . com/ease-you-way-into-sherry-with-the-Adonis-1839895313](https://lifehacker.com/ease-your-way-into-sherry-with-the-adonis-1839895313)
+> 原文：<https://lifehacker.com/ease-your-way-into-sherry-with-the-adonis-1839895313>
 
 有鸡尾酒专家做朋友有很多好处。除了是优秀的主持人，他们还经常(相当慷慨地)为我提供这个专栏的灵感和食谱。通常，他们最后会给我介绍我错过的经典鸡尾酒。这很有帮助。
 

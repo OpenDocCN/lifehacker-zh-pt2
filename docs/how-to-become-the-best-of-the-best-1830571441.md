@@ -1,6 +1,6 @@
 # 如何成为精英中的精英
 
-> 原文:[https://life hacker . com/how-to-be-the-best-1830571441](https://lifehacker.com/how-to-become-the-best-of-the-best-1830571441)
+> 原文：<https://lifehacker.com/how-to-become-the-best-of-the-best-1830571441>
 
 事实上，有很多人具备成为伟人的条件。但是要成为伟人中的伟人，你需要的不仅仅是天赋。
 

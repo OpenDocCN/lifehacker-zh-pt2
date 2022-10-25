@@ -1,6 +1,6 @@
 # 美联储紧急降息对你的钱意味着什么
 
-> 原文:[https://life hacker . com/what-the-feds-emergency-降息意味着你的钱-1842058976](https://lifehacker.com/what-the-feds-emergency-rate-cut-means-for-your-money-1842058976)
+> 原文：<https://lifehacker.com/what-the-feds-emergency-rate-cut-means-for-your-money-1842058976>
 
 由于越来越担心冠状病毒对经济的影响，美联储今天早上宣布了一项意外的降息。
 

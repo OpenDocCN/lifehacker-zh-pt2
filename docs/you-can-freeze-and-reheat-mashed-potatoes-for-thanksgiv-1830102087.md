@@ -1,6 +1,6 @@
 # 感恩节你可以冷冻和加热土豆泥
 
-> 原文:[https://life hacker . com/you-can-freeze-and-reheated-the-pasteur-pasteur-thanksgiv-1830102087](https://lifehacker.com/you-can-freeze-and-reheat-mashed-potatoes-for-thanksgiv-1830102087)
+> 原文：<https://lifehacker.com/you-can-freeze-and-reheat-mashed-potatoes-for-thanksgiv-1830102087>
 
 土豆因为加热不好而有点臭名昭著。烤土豆、炸薯条和土豆煎饼是它们刚出炉时最好的样子，要让它们恢复往日的辉煌相当棘手——有些人会说“不可能”。然而，土豆泥是一个例外，这是非常幸运的，因为这意味着你可以在感恩节(或随机的星期二)制作、冷冻和加热它们。
 

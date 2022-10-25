@@ -1,6 +1,6 @@
 # 使用这款组织应用程序管理您的冠状病毒清理需求
 
-> 原文:[https://life hacker . com/manage-your-coronavirus-cleaning-urses-with this-organi-1842585282](https://lifehacker.com/manage-your-coronavirus-cleaning-urges-with-this-organi-1842585282)
+> 原文：<https://lifehacker.com/manage-your-coronavirus-cleaning-urges-with-this-organi-1842585282>
 
 随着美国各地的城市开始发布“在家更安全”的命令，我觉得自己是唯一一个在期间没有雄心勃勃的项目或三个项目要处理的人。
 

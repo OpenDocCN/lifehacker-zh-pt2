@@ -1,6 +1,6 @@
 # 今天通过避开这些公司来支持员工[更新]
 
-> 原文:[https://life hacker . com/support-workers-by-avoiding-these-companies-tomorrow-1843164788](https://lifehacker.com/support-workers-by-avoiding-these-companies-tomorrow-1843164788)
+> 原文：<https://lifehacker.com/support-workers-by-avoiding-these-companies-tomorrow-1843164788>
 
 避免明天使用亚马逊、Instacart、全食超市、沃尔玛、塔吉特和联邦快递，因为他们的工人正在 [计划罢工](https://theintercept.com/2020/04/28/coronavirus-may-1-strike-sickout-amazon-target-whole-foods/) 以抗议雇主前所未有的利润，这是以员工的健康和安全为代价的。5 月 1 日星期五，员工们要么打电话请病假，要么在午休时离开工作岗位。
 

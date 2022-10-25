@@ -1,6 +1,6 @@
 # 向这些解决种族歧视和心理健康问题的组织捐款
 
-> 原文:[https://life hacker . com/donate-to-these-organizations-addressing-racism-and-men-1843942977](https://lifehacker.com/donate-to-these-organizations-addressing-racism-and-men-1843942977)
+> 原文：<https://lifehacker.com/donate-to-these-organizations-addressing-racism-and-men-1843942977>
 
 除了与系统性种族主义相关的身体暴力外，它还对心理健康产生重大影响。几代人的集体创伤现在与焦虑结合在一起，不仅是警察暴力的威胁，而且是在全球疫情的中间，有色人种受到不成比例的影响。
 

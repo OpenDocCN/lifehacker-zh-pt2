@@ -1,6 +1,6 @@
 # 如何在 Twitter 上隐藏回复
 
-> 原文:[https://life hacker . com/how-to-hide-replies-on-Twitter-1838286479](https://lifehacker.com/how-to-hide-replies-on-twitter-1838286479)
+> 原文：<https://lifehacker.com/how-to-hide-replies-on-twitter-1838286479>
 
 几年前，Twitter 用“ [”对话排名](https://www.theverge.com/2016/11/29/13779330/twitter-ranked-replies-conversation-counts-mobile) ”取代了按时间顺序排列的推文回复列表，“优先考虑你关注的人和最初推文的作者的回复。2018 年，为了遏制滥用，排名系统开始纳入 [其他因素](https://www.theverge.com/2018/5/15/17352962/twitter-abuse-changes-ranking-tweets-conversations-search) ，如用户拥有的账户数量及其 IP 地址。
 

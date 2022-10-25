@@ -1,6 +1,6 @@
 # 在你对互联网上的任何事情做出反应之前，问问自己这个问题
 
-> 原文:[https://life hacker . com/ask-you-this-before-react-on-the-I-1829851864](https://lifehacker.com/ask-yourself-this-before-you-react-to-anything-on-the-i-1829851864)
+> 原文：<https://lifehacker.com/ask-yourself-this-before-you-react-to-anything-on-the-i-1829851864>
 
 我在网上说了太多废话。我去社交媒体，我们现在都去尖叫的地方，我看到一些不好的东西。我引用坏事来嘲笑它，从而传播坏事，并邀请不好的回复。尽管我已经有了一份指向不好的事情并邀请不好的回复来赚钱的工作，或者被称为博客，我还是这样做。所以最近我在互联网上说任何话之前——尤其是回复或反应——都在使用这个咒语，不是我告诉自己的，而是我问自己的。我问自己，“这是战略性的，还是纯粹的宣泄？”
 

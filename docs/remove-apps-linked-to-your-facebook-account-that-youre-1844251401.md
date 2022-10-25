@@ -1,6 +1,6 @@
 # 删除链接到你的脸书帐户但你不使用的应用
 
-> 原文:[https://life hacker . com/remove-apps-linked-to-your-Facebook-account-that-you-1844251401](https://lifehacker.com/remove-apps-linked-to-your-facebook-account-that-youre-1844251401)
+> 原文：<https://lifehacker.com/remove-apps-linked-to-your-facebook-account-that-youre-1844251401>
 
 如果你曾经使用你的脸书帐户登录过第三方应用或网站，你应该花点时间更新一些安全设置。
 

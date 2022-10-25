@@ -1,6 +1,6 @@
 # 用谷歌提醒来保护你家庭住址的隐私
 
-> 原文:[https://life hacker . com/keep-your-home-address-private-with-a-Google-alert-1837369957](https://lifehacker.com/keep-your-home-address-private-with-a-google-alert-1837369957)
+> 原文：<https://lifehacker.com/keep-your-home-address-private-with-a-google-alert-1837369957>
 
 从“人物搜索”网站上删除你的家庭住址是一个漫长、乏味、有时甚至是昂贵的过程。所以一旦你做了，你会希望它坚持下去。不幸的是，BoingBoing 说， [这不是一劳永逸的过程](https://boingboing.net/2018/12/04/a-tip-to-keep-your-home-addres.html) 。即使你被除名，你的名字也会出现在新的数据库中。
 

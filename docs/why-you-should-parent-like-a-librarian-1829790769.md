@@ -1,6 +1,6 @@
 # 为什么你应该像图书管理员一样为人父母
 
-> 原文:[https://life hacker . com/why-you-should-parent-like-a-librarian-1829790769](https://lifehacker.com/why-you-should-parent-like-a-librarian-1829790769)
+> 原文：<https://lifehacker.com/why-you-should-parent-like-a-librarian-1829790769>
 
 作为父母，我们被告知我们是孩子的第一任老师。这是真的，但对我来说，这唤起了一个想法，我们必须站在他们的肩膀上，用一支红笔告诉他们到底该学什么，怎么学。为了更好地支持他们天生的好奇心，把自己想象成一名图书管理员会有所帮助。
 

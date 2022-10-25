@@ -1,6 +1,6 @@
 # 如何在没有有线电视的情况下直播 Jeopardy 的“史上最伟大”锦标赛
 
-> 原文:[https://life hacker . com/how-to-stream-jeopardys-the-great-time-tourna-1840902010](https://lifehacker.com/how-to-stream-jeopardys-the-greatest-of-all-time-tourna-1840902010)
+> 原文：<https://lifehacker.com/how-to-stream-jeopardys-the-greatest-of-all-time-tourna-1840902010>
 
 *危险！本周，三位最伟大的球员将在肯·詹宁斯、布拉德·鲁特和詹姆斯·霍尔茨哈尔之间举行一场比赛。这个事件，叫做 [*治罪！史上最伟大的*](https://www.jeopardy.com/jbuzz/special-tournament-stories/only-1-champ-will-be-greatest-all-time) *，*于周三晚在美国广播公司正式开播，但也将于美国东部时间周四和周五晚 8 点播出。* 
 

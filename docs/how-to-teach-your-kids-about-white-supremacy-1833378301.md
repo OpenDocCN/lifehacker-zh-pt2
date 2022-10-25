@@ -1,6 +1,6 @@
 # 如何教育你的孩子白人至上
 
-> 原文:[https://life hacker . com/how-to-teach-your-children-about white-supremarity-1833378301](https://lifehacker.com/how-to-teach-your-kids-about-white-supremacy-1833378301)
+> 原文：<https://lifehacker.com/how-to-teach-your-kids-about-white-supremacy-1833378301>
 
 这种想法倾向于种族主义者培养种族主义者。因此，如果你认为自己是一个好人，用包容的道德观抚养你的孩子，你就没有理由担心他们长大后会成为那种在夏洛茨维尔与白人民族主义者一起游行的人。 [但偏偏](https://www.washingtonpost.com/lifestyle/style/he-didnt-learn-this-at-home-what-to-do-when-a-child-sides-with-neo-nazis/2017/08/15/5f5158a0-81be-11e7-ab27-1a21a8e006ab_story.html?utm_term=.b657bf40cf64) 。
 

@@ -1,6 +1,6 @@
 # 你能做脆饼馅饼吗？你当然可以
 
-> 原文:[https://the take out . com/how-to-pretzel-pierogi-recipe-1839113396](https://thetakeout.com/how-to-pretzel-pierogi-recipe-1839113396)
+> 原文：<https://thetakeout.com/how-to-pretzel-pierogi-recipe-1839113396>
 
 虽然我不太喜欢足球，但我喜欢足球小吃。在一周的其余时间，零食是格兰诺拉燕麦卷或一片水果——在足球日，零食是八只鸡翅、17 只裹在毯子里的猪、一品脱蘸酱、四块派对三明治和一盘全装玉米片。然后在比赛结束后，你可以吃一顿明智的晚餐，一份沙拉，只要你点两个中等大小的披萨，就可以免费得到。
 

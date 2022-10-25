@@ -1,6 +1,6 @@
 # 如何发现你的 Airbnb 是否合法
 
-> 原文:[https://life hacker . com/how-to-find-out-if-your-Airbnb-is-legal-1836056937](https://lifehacker.com/how-to-find-out-if-your-airbnb-is-legal-1836056937)
+> 原文：<https://lifehacker.com/how-to-find-out-if-your-airbnb-is-legal-1836056937>
 
 今年 1 月，纽约市提起了一场价值 2100 万美元的诉讼，指控一个房地产经纪人团伙在 Airbnb 上向超过 75000 名客人非法出租纽约市的房产。在西班牙的巴塞罗纳，政府已经关闭了超过 2000 个 [房源](https://qz.com/quartzy/1330701/barcelona-wants-tourists-to-check-if-their-airbnb-style-rentals-are-legal/) ，并警告游客在旅行前检查他们出租房屋的合法性。在许多其他大城市，房屋租赁网站也面临着类似的严格规定。
 

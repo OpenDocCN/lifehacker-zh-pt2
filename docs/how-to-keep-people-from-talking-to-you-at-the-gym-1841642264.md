@@ -1,6 +1,6 @@
 # 如何让人们在健身房不和你说话
 
-> 原文:[https://life hacker . com/how-to-keep the people-to-talking-you-in-gym-1841642264](https://lifehacker.com/how-to-keep-people-from-talking-to-you-at-the-gym-1841642264)
+> 原文：<https://lifehacker.com/how-to-keep-people-from-talking-to-you-at-the-gym-1841642264>
 
 锻炼的社交方面可能很有趣，但并不是所有人都愿意在锻炼的时候闲聊。以下是你如何散发出正确的拒人于千里之外的氛围，从而在公共健身房里以最少的干扰进行锻炼。
 

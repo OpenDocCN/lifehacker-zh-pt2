@@ -1,6 +1,6 @@
 # 如何用不到 100 美元装饰你家的入口通道
 
-> 原文:[https://life hacker . com/how-to-spruce-up-your home-entry way-for-less-100-1834843347](https://lifehacker.com/how-to-spruce-up-your-homes-entryway-for-less-than-100-1834843347)
+> 原文：<https://lifehacker.com/how-to-spruce-up-your-homes-entryway-for-less-than-100-1834843347>
 
 今年春天，我会把我家的外部打扫干净。也许是因为我冬天的大部分时间都待在又深又黑的地下室 ，冬天一到，我就想出去晒晒太阳。
 

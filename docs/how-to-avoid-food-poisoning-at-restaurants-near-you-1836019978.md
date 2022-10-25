@@ -1,6 +1,6 @@
 # 如何避免在你附近的餐馆食物中毒
 
-> 原文:[https://life hacker . com/how-to-避免在你附近的餐馆食物中毒 1836019978](https://lifehacker.com/how-to-avoid-food-poisoning-at-restaurants-near-you-1836019978)
+> 原文：<https://lifehacker.com/how-to-avoid-food-poisoning-at-restaurants-near-you-1836019978>
 
 在 9 名在多明尼加共和国旅游的美国游客死亡后的几周里，数百名去过该国的游客在网站[【IWasPoisoned.com】](https://iwaspoisoned.com/)上报告了他们自己类似食物中毒的症状；自 2019 年初以来，在超过 [的时间里，总共报告了 1600 例](https://www.businessinsider.com/dominican-republic-i-was-poisoned-reports-2019-6) 疾病。
 

@@ -1,6 +1,6 @@
 # macOS 让你安装一个应用不代表它不是恶意软件
 
-> 原文:[https://life hacker . com/just-because-MAC OS-let-you-install-a-app-sints-mean-1844933037](https://lifehacker.com/just-because-macos-lets-you-install-an-app-doesnt-mean-1844933037)
+> 原文：<https://lifehacker.com/just-because-macos-lets-you-install-an-app-doesnt-mean-1844933037>
 
 只要 macOS 让你装个 app，应该就安全了吧？这是苹果看门人和 [公证服务](https://developer.apple.com/documentation/xcode/notarizing_macos_software_before_distribution) 的点，早在二月份就开始在 macOS Catalina 强制执行。从理论上来说，这意味着你在 Mac 上安装的任何应用程序*都应该*已经过苹果的 [恶意组件检测](https://developer.apple.com/documentation/xcode/notarizing_macos_software_before_distribution) 。”但是，如果你认为任何带有 [看门人绿灯](https://support.apple.com/en-us/HT202491) 的应用程序实际上是安全的，那你就错了。
 

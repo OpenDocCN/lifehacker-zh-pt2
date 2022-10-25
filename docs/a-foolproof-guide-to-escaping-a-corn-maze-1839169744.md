@@ -1,6 +1,6 @@
 # 逃离玉米迷宫的简单指南
 
-> 原文:[https://kotaku . com/a-防呆指南-逃离玉米迷宫-1839169744](https://kotaku.com/a-foolproof-guide-to-escaping-a-corn-maze-1839169744)
+> 原文：<https://kotaku.com/a-foolproof-guide-to-escaping-a-corn-maze-1839169744>
 
 我喜欢在纸上解决好的迷宫，但事实证明现实生活中的迷宫可能更难解决。最大的变化是，你被推下*内* 的迷宫，失去那令人垂涎的鸟瞰图。除了拿着一袋面包屑来标记你的路，你如何逃脱？
 

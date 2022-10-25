@@ -1,6 +1,6 @@
 # 我是 Vlogger Kristina Kuzmic，这就是我如何为人父母
 
-> 原文:[https://life hacker . com/im-vlogger-kristina-kuzmic-and-this-is-how-I-parent-1829747711](https://lifehacker.com/im-vlogger-kristina-kuzmic-and-this-is-how-i-parent-1829747711)
+> 原文：<https://lifehacker.com/im-vlogger-kristina-kuzmic-and-this-is-how-i-parent-1829747711>
 
 克里斯蒂娜·库兹米奇 知道:完美是无聊的。为人父母是很麻烦的。我们不妨拥抱混乱。在她有趣而富有同情心的视频中，这位拥有超过 200 万 [脸书粉丝](https://www.facebook.com/KristinaKuzmic/) 的博客明星抨击了父母应该热爱抚养孩子的每一分钟的观念。她变得真实起来，谈到了人们非常熟悉的[青少年的不可预测性](https://www.youtube.com/watch?v=DyaSRC6fXBw) 以及她的立场，即 [她的孩子不是她的朋友](https://www.youtube.com/watch?v=M4OKjNB7KMo) (“如果你是三四十岁的人，而你最好的朋友是一个八岁的孩子，那就太奇怪了”)。库兹米克让我们看到了她的日常生活。
 

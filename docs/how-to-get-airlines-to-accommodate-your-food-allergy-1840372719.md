@@ -1,6 +1,6 @@
 # 如何让航空公司适应你的食物过敏
 
-> 原文:[https://life hacker . com/how-to-get-airlines-to-accommodate-your-food-allergy-1840372719](https://lifehacker.com/how-to-get-airlines-to-accommodate-your-food-allergy-1840372719)
+> 原文：<https://lifehacker.com/how-to-get-airlines-to-accommodate-your-food-allergy-1840372719>
 
 在《纽约时报》 的一篇报道中，一名对苹果严重过敏的旅客分享了她最近被拒绝登机的经历。根据她的说法，她填写了一份医疗申请表，承认自己过敏，并将其提供给了航空公司——但这份文件不足以让航空公司相信她的飞行能力。
 

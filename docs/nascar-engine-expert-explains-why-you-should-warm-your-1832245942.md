@@ -1,6 +1,6 @@
 # 纳斯卡引擎专家解释了为什么当外面很冷的时候你应该暖车
 
-> 原文:[https://jalopnik . com/NASCAR-engine-expert-explains-why-you-should-warm-your-1832245942](https://jalopnik.com/nascar-engine-expert-explains-why-you-should-warm-your-1832245942)
+> 原文：<https://jalopnik.com/nascar-engine-expert-explains-why-you-should-warm-your-1832245942>
 
 最近，一位读者批评了我不久前写的一篇评论，在这篇评论中，我声称，如果你在冷的时候启动发动机，它会损害你的发动机。虽然我袖手旁观的评论，我会承认这是不令人满意的，缺乏细节。因此，我联系了一位动力系统工程师，请他帮我补充一些信息。
 

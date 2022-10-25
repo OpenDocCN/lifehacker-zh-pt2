@@ -1,6 +1,6 @@
 # 用香草豆调味你最喜欢的 Amaro
 
-> 原文:[https://life hacker . com/flavor-your-favor-amaro-with-a-乏香草豆-1836187072](https://lifehacker.com/flavor-your-favorite-amaro-with-a-spent-vanilla-bean-1836187072)
+> 原文：<https://lifehacker.com/flavor-your-favorite-amaro-with-a-spent-vanilla-bean-1836187072>
 
 香草豆很贵。这是无法回避的。香草豆也很美味——这是另一个不可回避的事实。这些严酷的事实让我不愿意扔掉豆荚，不管它有多没有种子。在我有条不紊地从咖啡豆里刮出每一粒香草籽后，我盯着它用过的外壳，想知道如何处理珍贵、昂贵的植物部分。
 

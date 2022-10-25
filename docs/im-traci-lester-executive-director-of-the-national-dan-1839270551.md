@@ -1,6 +1,6 @@
 # im traci lester executive director of the national dan 1839270551
 
-> 原文:[https://life hacker . com/im-traci-Lester-executive-director-of-the-national-Dan-1839270551](https://lifehacker.com/im-traci-lester-executive-director-of-the-national-dan-1839270551)
+> 原文：<https://lifehacker.com/im-traci-lester-executive-director-of-the-national-dan-1839270551>
 
 [国家舞蹈学院](http://nationaldance.org/) 每年都有数千名儿童参与班级、表演、学校合作、教育工作者职业发展以及残疾儿童舞蹈项目。我们与执行董事 Traci Lester 讨论了监管这个重要的、包容性的非营利组织的问题。
 

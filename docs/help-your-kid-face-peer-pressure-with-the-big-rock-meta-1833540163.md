@@ -1,6 +1,6 @@
 # 用“大石头”的比喻帮助你的孩子面对同龄人的压力
 
-> 原文:[https://life hacker . com/help-your-kid-face-peer-pressure with the big-rock-meta-1833540163](https://lifehacker.com/help-your-kid-face-peer-pressure-with-the-big-rock-meta-1833540163)
+> 原文：<https://lifehacker.com/help-your-kid-face-peer-pressure-with-the-big-rock-meta-1833540163>
 
 当其他中学生走下坡路时，你希望你的孩子走上正轨。你希望*你的*孩子是那个勇敢面对欺负者或者说，“不，谢谢，那(在此插入危险行为)是愚蠢的。”
 

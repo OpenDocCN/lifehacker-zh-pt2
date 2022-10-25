@@ -1,6 +1,6 @@
 # 火鸭砂锅是一次吃三只鸟的更简单的方法
 
-> 原文:[https://life hacker . com/the-turducken-sandboard-is-the-easy-way-to-eat-three-1830182745](https://lifehacker.com/the-turducken-casserole-is-the-easier-way-to-eat-three-1830182745)
+> 原文：<https://lifehacker.com/the-turducken-casserole-is-the-easier-way-to-eat-three-1830182745>
 
 我这一天做了很多感恩节大餐，但是有一样东西我从来没有弄乱过，那就是火鸭鸡。不反对这一切的过度暴饮暴食——一次吃三只鸟实际上听起来很有趣——我只是珍惜我的时间，去三只鸟的骨头只是为了让它们重新形成围绕在一起的形状会占用太多的时间。但是通过将火鸡、鸡肉和鸭肉分层放在砂锅里，我们可以一口就吃到所有三种有羽毛的朋友，而不必处理太多的骨头。
 

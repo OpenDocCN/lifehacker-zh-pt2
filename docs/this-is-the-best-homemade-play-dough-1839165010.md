@@ -1,6 +1,6 @@
 # 这是最好的自制橡皮泥
 
-> 原文:[https://life hacker . com/this-is-the-best-family-play-dough-1839165010](https://lifehacker.com/this-is-the-best-homemade-play-dough-1839165010)
+> 原文：<https://lifehacker.com/this-is-the-best-homemade-play-dough-1839165010>
 
 当我儿子蹒跚学步时，我们经历了一个非常大的“感官活动”阶段。他可以挤压或塑造的任何新纹理(并融入他的恐龙战斗)都会让他占用几十分钟宝贵的时间。他喜欢常规的 Play-Doh，所以我去寻找一个自制的版本，它会更柔软，更蓬松，并立即找到了一个最喜欢的。
 

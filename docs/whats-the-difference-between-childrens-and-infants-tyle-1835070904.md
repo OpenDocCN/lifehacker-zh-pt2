@@ -1,6 +1,6 @@
 # 儿童和婴儿的泰诺有什么区别？
 
-> 原文:[https://life hacker . com/what-the-difference-of-children-and-in 婴-tyle-1835070904](https://lifehacker.com/whats-the-difference-between-childrens-and-infants-tyle-1835070904)
+> 原文：<https://lifehacker.com/whats-the-difference-between-childrens-and-infants-tyle-1835070904>
 
 如果你曾经不得不为一个小家伙买止痛药，你可能已经注意到有分开的“儿童”和“婴儿”产品瓶。在对乙酰氨基酚(泰诺)的情况下，瓶子的内容是相同的。
 

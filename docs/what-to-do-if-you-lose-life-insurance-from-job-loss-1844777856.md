@@ -1,6 +1,6 @@
 # 如果你因失业而失去人寿保险，该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-you-lost-life-insurance-from-job-lost-1844777856](https://lifehacker.com/what-to-do-if-you-lose-life-insurance-from-job-loss-1844777856)
+> 原文：<https://lifehacker.com/what-to-do-if-you-lose-life-insurance-from-job-loss-1844777856>
 
 随着冠状病毒疫情肆虐，数百万美国人仍在与公司裁员和员工福利损失作斗争。如果你最近失去了工作，你可能会渴望取代其中的一些福利——包括你的团体人寿保险。当你开始探索你的选择时，这里有一些事情要考虑。
 

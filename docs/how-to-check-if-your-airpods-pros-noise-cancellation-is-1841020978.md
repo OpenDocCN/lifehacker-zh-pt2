@@ -1,6 +1,6 @@
 # 如何检查你的 AirPods Pro 的噪音消除是否坏了
 
-> 原文:[https://life hacker . com/how-to-check-if-your-ai rpods-pros-noise-cancellation-is-1841020978](https://lifehacker.com/how-to-check-if-your-airpods-pros-noise-cancellation-is-1841020978)
+> 原文：<https://lifehacker.com/how-to-check-if-your-airpods-pros-noise-cancellation-is-1841020978>
 
 降噪耳机可以让你在公交车等拥挤的地方安静地聆听，或者在咖啡店或嘈杂的办公室里专注于工作。它们工作起来很棒，但一些 AirPods Pro 用户发现最近的固件更新影响了他们耳塞的降噪功能。
 

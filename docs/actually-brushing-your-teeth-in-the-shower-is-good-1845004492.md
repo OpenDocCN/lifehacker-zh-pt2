@@ -1,6 +1,6 @@
 # 其实洗澡的时候刷牙挺好的
 
-> 原文:[https://life hacker . com/actually-刷牙洗澡是好事-1845004492](https://lifehacker.com/actually-brushing-your-teeth-in-the-shower-is-good-1845004492)
+> 原文：<https://lifehacker.com/actually-brushing-your-teeth-in-the-shower-is-good-1845004492>
 
 如果你曾经在早上洗澡时没有刷牙，也许你会分享我的观察，当你的嘴尝起来仍然像一个潮湿的，充满蝙蝠的咖啡洞穴时，淋浴的魅力就失去了一点。(蝙蝠是我的牙齿。)
 

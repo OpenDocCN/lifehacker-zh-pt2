@@ -1,6 +1,6 @@
 # 为什么汽车经销商不会回复邮件？
 
-> 原文:[https://jalopnik . com/why-wot-car-dealers-respond-to-emails-1831668748](https://jalopnik.com/why-wont-car-dealers-respond-to-emails-1831668748)
+> 原文：<https://jalopnik.com/why-wont-car-dealers-respond-to-emails-1831668748>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。我决定挑几个问题，试着帮帮大家。本周我们将讨论缺乏来自经销商的电子邮件交流、超便宜的 AMG 以及低轮廓轮胎的缺点。
 

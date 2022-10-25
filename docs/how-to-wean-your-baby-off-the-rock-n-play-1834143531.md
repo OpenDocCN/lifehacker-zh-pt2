@@ -1,6 +1,6 @@
 # 如何让你的宝宝远离摇滚乐
 
-> 原文:[https://life hacker . com/how-to-waving-your-baby-off-the-rock-n-play-1834143531](https://lifehacker.com/how-to-wean-your-baby-off-the-rock-n-play-1834143531)
+> 原文：<https://lifehacker.com/how-to-wean-your-baby-off-the-rock-n-play-1834143531>
 
 本月早些时候，当费雪公司召回其非常受欢迎的摇滚乐“sleeper”时，各地睡眠不足的父母发出了沮丧的集体叹息。对于一些父母来说——尤其是那些婴儿有反流的父母——轻微倾斜和舒适的结构(更不用说它的振动功能)在午睡时间和晚上是天赐之物。
 

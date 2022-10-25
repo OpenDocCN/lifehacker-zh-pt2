@@ -1,6 +1,6 @@
 # 如何在 Android 上启用 Chrome 新的自动填充登录
 
-> 原文:[https://life hacker . com/how-to-enable-chrome-s-new-auto fill-logins-on-Android-1844442494](https://lifehacker.com/how-to-enable-chrome-s-new-autofill-logins-on-android-1844442494)
+> 原文：<https://lifehacker.com/how-to-enable-chrome-s-new-autofill-logins-on-android-1844442494>
 
 在 [增长的反浏览器情绪](https://lifehacker.com/preview/why-you-should-stop-using-chrome-1844408232?rev=1594927085538) 中，浏览器仍然有一个好处:方便。现在， Chrome 的内置密码存储功能正在升级，在 Android 上有了新的自动填充选项。
 

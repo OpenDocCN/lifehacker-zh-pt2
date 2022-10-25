@@ -1,6 +1,6 @@
 # 什么是托管，什么时候需要托管？
 
-> 原文:[https://life hacker . com/what-is-escrow-and-when-it-required-1838050821](https://lifehacker.com/what-is-escrow-and-when-is-it-necessary-1838050821)
+> 原文：<https://lifehacker.com/what-is-escrow-and-when-is-it-necessary-1838050821>
 
 当你的钱被“托管”时，你的钱去了哪里？谁负责这件事？这意味着你有麻烦了吗？听起来你有麻烦了。钱还在，对吧？
 

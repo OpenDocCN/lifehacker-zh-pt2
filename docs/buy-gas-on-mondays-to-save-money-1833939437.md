@@ -1,6 +1,6 @@
 # 周一买汽油可以省钱
 
-> 原文:[https://life hacker . com/buy-gas-on-Monday-to-save-money-1833939437](https://lifehacker.com/buy-gas-on-mondays-to-save-money-1833939437)
+> 原文：<https://lifehacker.com/buy-gas-on-mondays-to-save-money-1833939437>
 
 我们在汽油上花费很多。2018 年 6 月，根据的一份报告，与前一个夏天相比，我们每个月在汽油上多花了 69 美元。
 

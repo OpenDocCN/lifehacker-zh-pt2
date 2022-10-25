@@ -1,6 +1,6 @@
 # 如何让你的手机大声读出屏幕上的所有内容
 
-> 原文:[https://gizmodo . com/how-to-make-your-phone-read-everything-on-screen-out-lo-1797710177](https://gizmodo.com/how-to-make-your-phone-read-everything-on-screen-out-lo-1797710177)
+> 原文：<https://gizmodo.com/how-to-make-your-phone-read-everything-on-screen-out-lo-1797710177>
 
 像平时一样浏览智能手机屏幕并不总是方便或可能的，但通过对手机设置的一些调整，你可以在不低头看显示屏的情况下获得最重要的信息。以下是如何让你的手机通过扬声器或耳机大声读出你需要的信息。
 

@@ -1,6 +1,6 @@
 # 如何找回旧 Twitter
 
-> 原文:[https://life hacker . com/how-to-get-old-Twitter-back-1836704742](https://lifehacker.com/how-to-get-old-twitter-back-1836704742)
+> 原文：<https://lifehacker.com/how-to-get-old-twitter-back-1836704742>
 
 如果你还没有注意到的话，Twitter 刚刚进行了一次*重大的*改版， [改变了](https://www.cnet.com/how-to/how-to-use-the-new-twitter-redesign-you-just-noticed-you-have/) 的设计，使其更像其时尚的移动应用。通过一个更大的导航面板，该平台现在允许你改变你的 feed 的背景颜色和字体大小。但是并不是每个人都是粉丝。
 

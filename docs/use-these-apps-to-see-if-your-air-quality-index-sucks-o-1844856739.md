@@ -1,6 +1,6 @@
 # 使用这些应用程序来看看你的室外空气质量指数是否糟糕
 
-> 原文:[https://life hacker . com/use-these-apps-to-see-if-your-air-quality-index-sucks-o-1844856739](https://lifehacker.com/use-these-apps-to-see-if-your-air-quality-index-sucks-o-1844856739)
+> 原文：<https://lifehacker.com/use-these-apps-to-see-if-your-air-quality-index-sucks-o-1844856739>
 
 我在可爱的、阳光明媚的加利福尼亚写这篇文章——至少，我认为天气晴朗，因为硅谷周围的大火产生的烟雾已经在该地区翻腾了大约一周左右。这场生态灾难的古怪之处在于，有时会有“哦，上帝，太阳是红色的，”被“我想我终于可以在下午散步了。”
 

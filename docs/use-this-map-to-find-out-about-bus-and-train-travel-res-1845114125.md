@@ -1,6 +1,6 @@
 # 使用这张地图找出公共汽车和火车旅行的限制
 
-> 原文:[https://life hacker . com/use-this-map-to-find-out-about-bus-and-train-travel-RES-1845114125](https://lifehacker.com/use-this-map-to-find-out-about-bus-and-train-travel-res-1845114125)
+> 原文：<https://lifehacker.com/use-this-map-to-find-out-about-bus-and-train-travel-res-1845114125>
 
 在过去的六个月里，围绕 COVID 旅行选择的讨论主要集中在飞行的安全性和公路旅行的回程上。但是，这让那些主要通过火车或公共汽车出行的人怎么办呢？我们不是在谈论 [公共交通](https://lifehacker.com/how-to-stay-as-safe-as-possible-on-public-transit-right-1845037829) 的安全问题(尽管考虑这一点很重要)，而是美国国家铁路客运公司、灰狗、Megabus 和各种区域公交公司的长途旅行。
 

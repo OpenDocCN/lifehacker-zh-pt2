@@ -1,6 +1,6 @@
 # 如何观看今天的一加 8 发布会
 
-> 原文:[https://life hacker . com/how-to-watch-todays-one-plus-8-launch-event-1842849266](https://lifehacker.com/how-to-watch-todays-one-plus-8-launch-event-1842849266)
+> 原文：<https://lifehacker.com/how-to-watch-todays-one-plus-8-launch-event-1842849266>
 
 虽然在可预见的未来，大多数大型科技活动都被取消了，但一加今天将举行一场虚拟活动，宣布其受欢迎的智能手机的最新版本一加 8 系列。
 

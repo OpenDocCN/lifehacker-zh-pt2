@@ -1,6 +1,6 @@
 # 为什么你的老式需要可可甜酒
 
-> 原文:[https://life hacker . com/why-your-old-fashion-needs-creme-de-cacao-1838780532](https://lifehacker.com/why-your-old-fashioned-needs-creme-de-cacao-1838780532)
+> 原文：<https://lifehacker.com/why-your-old-fashioned-needs-creme-de-cacao-1838780532>
 
 大多数老式鸡尾酒都有一点糖，要么是方糖，要么是糖浆，但这不是我所说的“甜”鸡尾酒。(除非我们说的是 [威斯康星老式的](https://www.liquor.com/recipes/wisconsin-old-fashioned/) ，那是完全不同的情况。)如果你正在寻找一种以波旁威士忌为主、带有一点南方魅力的鸡尾酒，可以考虑看看 20 世纪 30 年代的肯塔基河。
 

@@ -1,6 +1,6 @@
 # 如何在 Chrome 的匿名模式下通过付费墙
 
-> 原文:[https://life hacker . com/how-to-get-past-pay walls-in-chromes-incognity-mode-1835513589](https://lifehacker.com/how-to-get-past-paywalls-in-chromes-incognito-mode-1835513589)
+> 原文：<https://lifehacker.com/how-to-get-past-paywalls-in-chromes-incognito-mode-1835513589>
 
 绕过付费墙——并检测用户这样做的方法——是新闻出版商和读者之间的一场猫捉老鼠的游戏，已经持续了一段时间。虽然在匿名模式下浏览网站一直是~~向记者隐瞒~~绕过网站对你在任何给定时间可以浏览多少免费文章的限制的屡试不爽的方法，但出版商也不是没有自己的花招。最近，一些网站在如何检测匿名模式方面变得更有创意:
 

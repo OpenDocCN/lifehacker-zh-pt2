@@ -1,6 +1,6 @@
 # 如果我从很远的地方买车，我怎么知道经销商是否合法？
 
-> 原文:[https://jalopnik . com/if-im-buying-a-car-from-far-away-do-I-know-if-the-1844175277](https://jalopnik.com/if-im-buying-a-car-from-far-away-how-do-i-know-if-the-1844175277)
+> 原文：<https://jalopnik.com/if-im-buying-a-car-from-far-away-how-do-i-know-if-the-1844175277>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。我决定挑几个问题，试着帮帮大家。本周我们将讨论远距离购车、未修复的召回以及英菲尼迪在美国市场的命运。
 

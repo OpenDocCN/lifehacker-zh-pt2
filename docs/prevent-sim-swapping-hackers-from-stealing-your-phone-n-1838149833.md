@@ -1,6 +1,6 @@
 # 防止 SIM 卡交换黑客窃取您的电话号码以及您的其他身份信息
 
-> 原文:[https://life hacker . com/prevent-sim-swapping-hacker-from-steak-your-phone-n-1838149833](https://lifehacker.com/prevent-sim-swapping-hackers-from-stealing-your-phone-n-1838149833)
+> 原文：<https://lifehacker.com/prevent-sim-swapping-hackers-from-stealing-your-phone-n-1838149833>
 
 你知道比密码被盗更糟糕的是什么吗？电话号码被盗。SIM 卡交换是一种身份盗窃，是骗子获取您的电话号码和所有个人账户的一种手段。
 

@@ -1,6 +1,6 @@
 # 2018 年 11 月 19 日这一周，网飞有哪些来往
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of novembe-1830077862](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-novembe-1830077862)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-novembe-1830077862>
 
 我对《摩城魔术》(Motown Magic)寄予厚望，这是一部由史摩基·罗宾逊执行制作的动画系列片，讲述了一个 8 岁男孩“发现自己可以将街头艺术带入生活”的故事电影配乐自然都是摩城的热门歌曲，所以我们可能会有一个很有前途的“不把父母逼疯的儿童节目”候选人！
 

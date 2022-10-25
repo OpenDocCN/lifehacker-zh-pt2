@@ -1,6 +1,6 @@
 # 如何找出你的飞机的年龄
 
-> 原文:[https://life hacker . com/how-to-find-the-age-of-your plane-1836022174](https://lifehacker.com/how-to-find-out-the-age-of-your-plane-1836022174)
+> 原文：<https://lifehacker.com/how-to-find-out-the-age-of-your-plane-1836022174>
 
 虽然飞机的安全性更多地取决于航空公司如何维护它，而不是它的年龄，但飞机的年龄对你在飞机上的舒适程度起着非常关键的作用。老式飞机将会是那些没有机上娱乐屏幕的飞机，或者是那些分辨率很低的飞机。老式飞机也是那些会让你在飞行中更加脱水的飞机(老式飞机的机舱是由铝制成的，所以的湿度水平必须设置得比用高科技复合材料制成的更低，这意味着你到达目的地时可能会更加口渴，皮肤更加干燥，时差反应更加严重。
 

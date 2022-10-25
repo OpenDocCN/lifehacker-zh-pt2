@@ -1,6 +1,6 @@
 # 与嘶嘶作响的共产主义者聚会
 
-> 原文:[https://life hacker . com/party-with the fizzly-communist-1839541767](https://lifehacker.com/party-with-the-fizzy-communist-1839541767)
+> 原文：<https://lifehacker.com/party-with-the-fizzy-communist-1839541767>
 
 关于运行 Skillet，我最喜欢的事情之一是我与读者建立的关系。除了评论区——这是互联网上一个令人惊讶的冷门——可爱的人们经常给我发短信或电子邮件，告诉我建议、要求和食谱。
 

@@ -1,6 +1,6 @@
 # 当你整天坐在电脑前时，使用这个应用程序可以防止眼睛疲劳
 
-> 原文:[https://life hacker . com/prevent-eye-strain-when-you-been-a-com-1833693350](https://lifehacker.com/prevent-eye-strain-when-youre-sitting-in-front-of-a-com-1833693350)
+> 原文：<https://lifehacker.com/prevent-eye-strain-when-youre-sitting-in-front-of-a-com-1833693350>
 
 我们都知道整天盯着电脑屏幕对我们的眼睛不好，但是我们中有多少人真的用这些知识做了些什么呢？
 

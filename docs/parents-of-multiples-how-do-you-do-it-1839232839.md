@@ -1,6 +1,6 @@
 # 多胎父母:你们是怎么做到的？
 
-> 原文:[https://life hacker . com/parents-of-multiples-how-do-you-do-it-1839232839](https://lifehacker.com/parents-of-multiples-how-do-you-do-it-1839232839)
+> 原文：<https://lifehacker.com/parents-of-multiples-how-do-you-do-it-1839232839>
 
 成为一个新的父母，嗯，很难。这是美妙的、令人激动的、令人精疲力尽的、可怕的、惊人的和艰难的。一次成为多个孩子的新父母？那完全是另一回事。
 

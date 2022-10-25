@@ -1,6 +1,6 @@
 # 特朗普的预算计划对你的学生贷款债务意味着什么
 
-> 原文:[https://life hacker . com/what-trumps-budget-plan-may-mean-for your student-loa-1841637438](https://lifehacker.com/what-trumps-budget-plan-would-mean-for-your-student-loa-1841637438)
+> 原文：<https://lifehacker.com/what-trumps-budget-plan-would-mean-for-your-student-loa-1841637438>
 
 特朗普总统 2021 财年的预算本周下降了，这真是太棒了。在 [数百页](https://www.whitehouse.gov/wp-content/uploads/2020/02/budget_fy21.pdf) 的计划变化中，你会发现川普想从教育部拨款中削减 56 亿美元——减少了 7.8%。
 

@@ -1,6 +1,6 @@
 # 今天就用 Target 的 10%礼品卡促销活动为你买东西吧
 
-> 原文:[https://life hacker . com/use-targets-10-off-gift-card-promotion-today-to-buy-ST-1830806775](https://lifehacker.com/use-targets-10-off-gift-card-promotion-today-to-buy-st-1830806775)
+> 原文：<https://lifehacker.com/use-targets-10-off-gift-card-promotion-today-to-buy-st-1830806775>
 
 如果你还在寻找节日礼物，Target 今天提供了一个相当不错的交易:所有礼品卡都打九折。
 

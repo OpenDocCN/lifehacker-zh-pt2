@@ -1,6 +1,6 @@
 # im mark zuckerman president of the century foundation 1837628960
 
-> 原文:[https://life hacker . com/im-mark-zucker man-president-of-the-century-foundation-1837628960](https://lifehacker.com/im-mark-zuckerman-president-of-the-century-foundation-1837628960)
+> 原文：<https://lifehacker.com/im-mark-zuckerman-president-of-the-century-foundation-1837628960>
 
 [世纪基金会](https://tcf.org/) 今年一百岁。进步智库 [塑造了美国历史](https://archivesofthecentury.org) ，协助 SEC 的诞生，并就社会保障、城市化、公平选举、加强工人权利、打击恐怖主义、维护公民自由等问题提出建议。我们与基金会主席马克·祖克曼(Mark Zuckerman)讨论了如何在 21 世纪运营基金会，并为基金会的新“创业智库” [Next100](https://thenext100.org) 寻找年轻的政策领导人。
 

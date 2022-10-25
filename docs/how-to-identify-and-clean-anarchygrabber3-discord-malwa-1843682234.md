@@ -1,6 +1,6 @@
 # 如何识别和清除“AnarchyGrabber3”不和谐恶意软件
 
-> 原文:[https://life hacker . com/how-to-identify-and-clean-anarcygrabber 3-discord-malwa-1843682234](https://lifehacker.com/how-to-identify-and-clean-anarchygrabber3-discord-malwa-1843682234)
+> 原文：<https://lifehacker.com/how-to-identify-and-clean-anarchygrabber3-discord-malwa-1843682234>
 
 有一种相当新的恶意软件在 Discord 上传播。该软件名为“AnarchyGrabber3”，让你退出应用程序，并在你试图重新登录时捕捉你的凭据——电子邮件、登录名和密码。雪上加霜的是，如果你以前使用它来保护你的帐户，它甚至会禁用你的双因素身份验证。
 

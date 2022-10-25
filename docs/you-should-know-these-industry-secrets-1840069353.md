@@ -1,6 +1,6 @@
 # 你应该知道这些行业秘密
 
-> 原文:[https://life hacker . com/you-should-know-these-industry-secrets-1840069353](https://lifehacker.com/you-should-know-these-industry-secrets-1840069353)
+> 原文：<https://lifehacker.com/you-should-know-these-industry-secrets-1840069353>
 
 程序员 Myk Bilokonsky 向 Twitter 询问一些“你所在领域的每个人都知道，但你所在行业的人都不谈论的事情，因为这会导致普遍的混乱。”答案来自四面八方，从改变生活到毫无用处。有些是冷硬的事实，有些是专家的分析，有些是没有根据的观点。这里是最有趣的，令人震惊的，和翔实的。
 

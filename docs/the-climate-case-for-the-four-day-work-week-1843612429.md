@@ -1,6 +1,6 @@
 # 四天工作周的气候案例
 
-> 原文:[https://gizmodo . com/the-climate-case-for-the-four-day-work-week-1843612429](https://gizmodo.com/the-climate-case-for-the-four-day-work-week-1843612429)
+> 原文：<https://gizmodo.com/the-climate-case-for-the-four-day-work-week-1843612429>
 
 杰辛达·阿德恩因新西兰对冠状病毒疫情 T3 的处理赢得了许多应有的赞誉。该国一直是一个例外，病例一直保持在低位，该国正开始以它希望是安全的方式重新开放。因此，也许我们也应该关注他们对复苏计划的想法。
 

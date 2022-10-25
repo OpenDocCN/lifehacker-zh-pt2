@@ -1,6 +1,6 @@
 # 如何观看今晚的民主党总统候选人辩论
 
-> 原文:[https://life hacker . com/how-to-watch-tonights-democratic-president-debate-1840975980](https://lifehacker.com/how-to-watch-tonights-democratic-presidential-debate-1840975980)
+> 原文：<https://lifehacker.com/how-to-watch-tonights-democratic-presidential-debate-1840975980>
 
 自 2020 年初以来，三名民主党总统候选人退出了总统竞选，包括新泽西参议员科里·布克、前住房和城市发展部长朱利安·卡斯特罗和作家玛丽安娜·威廉森——使目前的候选人阵容比以往任何时候都小。因此，今晚只有六名民主党候选人将出现在艾奥瓦州得梅因的舞台上，参加迄今为止由 CNN 和得梅因注册处共同主办的第七场辩论。
 

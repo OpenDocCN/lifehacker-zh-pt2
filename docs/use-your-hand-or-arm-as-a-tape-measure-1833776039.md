@@ -1,6 +1,6 @@
 # 用你的手或手臂作为卷尺
 
-> 原文:[https://life hacker . com/use-your-hand-or-arm-as-a tape-measure-1833776039](https://lifehacker.com/use-your-hand-or-arm-as-a-tape-measure-1833776039)
+> 原文：<https://lifehacker.com/use-your-hand-or-arm-as-a-tape-measure-1833776039>
 
 有时候，当你出门在外，你会发现有一把卷尺真的很有帮助。
 

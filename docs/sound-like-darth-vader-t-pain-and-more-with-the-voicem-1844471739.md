@@ -1,6 +1,6 @@
 # 使用 iOS 和 Android 的 Voicemod 应用程序，听起来像达斯·维德、T-Pain 等
 
-> 原文:[https://life hacker . com/sound-like-Darth-Vader-t-pain-and-more-with-the-voice m-1844471739](https://lifehacker.com/sound-like-darth-vader-t-pain-and-more-with-the-voicem-1844471739)
+> 原文：<https://lifehacker.com/sound-like-darth-vader-t-pain-and-more-with-the-voicem-1844471739>
 
 流行的变声电脑软件 Voicemod 现在可以在 iOS/iPadOS 和 Android 上作为免费应用程序使用，这使得改变你的声音变得更加容易创建愚蠢的消息，快速给视频添加语音效果，也许对你的朋友开轻松的玩笑——只是不要对此感到毛骨悚然。
 

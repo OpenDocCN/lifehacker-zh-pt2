@@ -1,6 +1,6 @@
 # 玩最终幻想 7 翻拍的小技巧
 
-> 原文:[https://kotaku . com/tips-for-playing-final-fantasy-VII-repeat-1842775495](https://kotaku.com/tips-for-playing-final-fantasy-vii-remake-1842775495)
+> 原文：<https://kotaku.com/tips-for-playing-final-fantasy-vii-remake-1842775495>
 
 最终幻想 7 重制版并不是一个困难的游戏，但是在你玩它之前，仍然有一些事情你应该知道——更有效率的方法，获得更多的宝藏，以及避免那些讨厌的游戏结束。
 

@@ -1,6 +1,6 @@
 # 计划生育基金的变化对病人意味着什么
 
-> 原文:[https://life hacker . com/what-planned-parenthoods-funding-change-means-for-patie-1837420022](https://lifehacker.com/what-planned-parenthoods-funding-change-means-for-patie-1837420022)
+> 原文：<https://lifehacker.com/what-planned-parenthoods-funding-change-means-for-patie-1837420022>
 
 最近，特朗普政府改变了 Title X 基金的规则，本周计划生育组织决定停止接受这笔资金。因此，免费和浮动比例的节育、性病检测和其他服务可能变得更难获得。以下是你需要知道的。
 

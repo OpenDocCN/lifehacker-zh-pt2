@@ -1,6 +1,6 @@
 # 常见头痛的最佳疗法
 
-> 原文:[https://life hacker . com/the-best-remedies-for-common-feathers-5982052](https://lifehacker.com/the-best-remedies-for-common-headaches-5982052)
+> 原文：<https://lifehacker.com/the-best-remedies-for-common-headaches-5982052>
 
 无论是偏头痛的搏动性疼痛还是鼻窦充血的眼后压力，没有人喜欢头痛。如果你患有这些疾病，你可能需要循环使用十几种不同的治疗方法来找到一种有效的方法。问题是，头痛——以及它们的起因——都是不同的。记住这一点，下面是最常见的头痛类型的原因和治疗方法。
 

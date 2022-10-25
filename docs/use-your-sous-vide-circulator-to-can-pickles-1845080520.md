@@ -1,6 +1,6 @@
 # use your sous vide circulator to can pickles 1845080520
 
-> 原文:[https://life hacker . com/use-your-sous-vide-circulator-to-can-pickles-1845080520](https://lifehacker.com/use-your-sous-vide-circulator-to-can-pickles-1845080520)
+> 原文：<https://lifehacker.com/use-your-sous-vide-circulator-to-can-pickles-1845080520>
 
 像我们许多生活在这个反乌托邦、世界末日、蓬蓬袖、村舍核心时代的人一样，我今年加大了腌制力度——部分是因为谁知道明年夏天植物是否还会存在，部分是因为我经常在家，而且我有时间。为什么不让腌制突然成为我自我意识的重要部分，成为我微妙的情绪稳定的支柱呢？
 

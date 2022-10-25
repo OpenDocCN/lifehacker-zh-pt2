@@ -1,6 +1,6 @@
 # Kir Péttilant 是完美的新年前夜饮品
 
-> 原文:[https://life hacker . com/the-kir-petti lant-is-the-perfect-new-years-eve-drink-1831367189](https://lifehacker.com/the-kir-pettilant-is-the-perfect-new-years-eve-drink-1831367189)
+> 原文：<https://lifehacker.com/the-kir-pettilant-is-the-perfect-new-years-eve-drink-1831367189>
 
 如果你一定要叫我基本的，但是我爱除夕。无论你是在跳干净的舞，还是只是在家庭聚会上闲逛，穿上闪亮闪亮的衣服，喝着闪亮闪亮的饮料，都是有趣的事情，该死的。Kir Péttilant 不仅像它们来的时候一样花哨喜庆，而且制作极其简单，在照片上看起来美极了。
 

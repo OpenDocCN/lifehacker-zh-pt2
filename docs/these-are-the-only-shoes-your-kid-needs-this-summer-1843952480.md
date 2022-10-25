@@ -1,6 +1,6 @@
 # 这是你的孩子今年夏天唯一需要的鞋子
 
-> 原文:[https://life hacker . com/this-is the-only-the-shoes-your-kid-needs-this-summer-1843952480](https://lifehacker.com/these-are-the-only-shoes-your-kid-needs-this-summer-1843952480)
+> 原文：<https://lifehacker.com/these-are-the-only-shoes-your-kid-needs-this-summer-1843952480>
 
 今年夏天有什么好玩的计划吗？或者你的夏天会看起来更像今年的冬末和整个春天——除了更多的户外活动而不是室内活动？我们大多数人都不会经常去公共场合，更不用说去什么高档的地方了。所以说真的，这个夏天你的孩子唯一需要的鞋子就是水鞋。
 

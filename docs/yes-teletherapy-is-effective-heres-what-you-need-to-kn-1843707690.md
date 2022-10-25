@@ -1,6 +1,6 @@
 # 远程治疗有效吗？
 
-> 原文:[https://life hacker . com/yes-tele therapy-is-effective-heres-what-you-need-kn-1843707690](https://lifehacker.com/yes-teletherapy-is-effective-heres-what-you-need-to-kn-1843707690)
+> 原文：<https://lifehacker.com/yes-teletherapy-is-effective-heres-what-you-need-to-kn-1843707690>
 
 新冠肺炎最广泛的副作用之一是对精神健康的影响。可以理解的是，全球化的疫情让人们比平时应对更多的焦虑和抑郁——更不用说它给患有强迫症和创伤后应激障碍等其他疾病的人带来的额外困难 [。](https://lifehacker.com/how-to-deal-with-a-quarantine-if-youre-struggling-emoti-1842139296) 
 

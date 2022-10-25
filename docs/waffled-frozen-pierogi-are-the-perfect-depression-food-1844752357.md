@@ -1,6 +1,6 @@
 # 华夫饼冷冻馅饼是完美的抑郁食品
 
-> 原文:[https://life hacker . com/waffled-frozen-pierogi-are-the-perfect-depression-food-1844752357](https://lifehacker.com/waffled-frozen-pierogi-are-the-perfect-depression-food-1844752357)
+> 原文：<https://lifehacker.com/waffled-frozen-pierogi-are-the-perfect-depression-food-1844752357>
 
 我最近经历了一些情绪问题，这并不是什么独特或令人惊讶的事情。很多人现在感觉很糟糕，因为事情很糟糕。焦虑和抑郁都会影响一个人与食物的关系，作为一名美食作家，我的工作也不例外。
 

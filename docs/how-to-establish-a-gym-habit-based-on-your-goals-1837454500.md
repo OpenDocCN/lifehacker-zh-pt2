@@ -1,6 +1,6 @@
 # 如何根据你的目标建立健身习惯
 
-> 原文:[https://life hacker . com/how-to-establish-a-gym-habit-based-on-your-goals-1837454500](https://lifehacker.com/how-to-establish-a-gym-habit-based-on-your-goals-1837454500)
+> 原文：<https://lifehacker.com/how-to-establish-a-gym-habit-based-on-your-goals-1837454500>
 
 每天去健身房的人往往对自己的习惯感到满意——这就是他们不断回来的原因。但是很多人都渴望这样做，并且还不知道如何去做。因为我也是这样的人之一(我甚至在假期锻炼，抱歉)我想帮助你学会热爱健身房——但这取决于你是什么样的人。请继续阅读适用的章节:
 

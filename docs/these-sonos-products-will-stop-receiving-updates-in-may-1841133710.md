@@ -1,6 +1,6 @@
 # 这些 Sonos 产品将在 5 月停止接收更新
 
-> 原文:[https://life hacker . com/these-sonos-products-will-stop-receiving-updates-in-may-1841133710](https://lifehacker.com/these-sonos-products-will-stop-receiving-updates-in-may-1841133710)
+> 原文：<https://lifehacker.com/these-sonos-products-will-stop-receiving-updates-in-may-1841133710>
 
 sonos——主要以其无线多房间扬声器、音乐流媒体设备和智能扬声器系列而闻名的音频品牌——[今天](https://blog.sonos.com/en/end-of-software-updates-for-legacy-products/) 宣布，它计划在 2020 年 5 月停止对其几款最老设备的支持。
 

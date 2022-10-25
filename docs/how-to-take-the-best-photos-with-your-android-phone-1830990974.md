@@ -1,6 +1,6 @@
 # 如何用安卓手机拍出最好的照片
 
-> 原文:[https://life hacker . com/how-to-take-the-best-photos-with-your-Android-phone-1830990974](https://lifehacker.com/how-to-take-the-best-photos-with-your-android-phone-1830990974)
+> 原文：<https://lifehacker.com/how-to-take-the-best-photos-with-your-android-phone-1830990974>
 
 又到了一年中的这个时候，当你用智能手机加班工作，试图记住所有关于节日聚会、家庭聚会和宠物穿上节日服装的记忆。如果你正在使用任何最新的 Android 手机，包括谷歌 Pixel 3 或三星 Note9，那么市场上最好的相机之一已经在你的口袋里了。
 

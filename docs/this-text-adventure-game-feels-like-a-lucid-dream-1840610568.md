@@ -1,6 +1,6 @@
 # 这个文本冒险游戏感觉像一个清醒的梦
 
-> 原文:[https://life hacker . com/this-text-adventure-game-feeling-like-a-lucid-dream-1840610568](https://lifehacker.com/this-text-adventure-game-feels-like-a-lucid-dream-1840610568)
+> 原文：<https://lifehacker.com/this-text-adventure-game-feels-like-a-lucid-dream-1840610568>
 
 人工智能不仅仅是反乌托邦算法；这也有利于创造性的娱乐，就像这个人工智能为一堆不存在的小说 写开头的句子。现在，一个人工智能随时准备引导你通过一个古老的学校文本冒险游戏，一个在你开始尝试玩它之前并不存在的游戏。
 

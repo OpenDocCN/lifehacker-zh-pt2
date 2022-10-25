@@ -1,6 +1,6 @@
 # 什么时候买手机是有意义的？
 
-> 原文:[https://life hacker . com/when-it-make-sense-to-buy-a-mobile-phone-1843006230](https://lifehacker.com/when-does-it-make-sense-to-buy-a-mobile-phone-outright-1843006230)
+> 原文：<https://lifehacker.com/when-does-it-make-sense-to-buy-a-mobile-phone-outright-1843006230>
 
 就在几周前，在《纽约时报》上，我收到一位读者的电子邮件，询问是否值得用你的纳税申报表去购买一部手机。
 

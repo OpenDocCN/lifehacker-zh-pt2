@@ -1,6 +1,6 @@
 # 如何评论 Airbnb 租房
 
-> 原文:[https://life hacker . com/how-to-critical-an-Airbnb-rental-1836050683](https://lifehacker.com/how-to-critique-an-airbnb-rental-1836050683)
+> 原文：<https://lifehacker.com/how-to-critique-an-airbnb-rental-1836050683>
 
 在专门介绍 Airbnb 上噩梦经历的网站[【AirbnbHell.com】](http://airbnbhell.com/airbnb-guest-stories/)上，客人们分享他们与 [蚂蚁和蟑螂横行](https://www.airbnbhell.com/infestation-refund-charge/) [ns](https://www.airbnbhell.com/infestation-refund-charge/) 、拥有“假” [海边风景](https://www.airbnbhell.com/french-airbnb-features-fake-seaside-view/) 的单元，以及根本不存在的公寓住在一起的故事。
 

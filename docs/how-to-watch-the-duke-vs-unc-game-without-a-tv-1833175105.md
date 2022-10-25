@@ -1,6 +1,6 @@
 # 如何在没有电视的情况下观看杜克大学对北卡大学的比赛
 
-> 原文:[https://life hacker . com/how-to-watch-the-duke-vs-unc-game-without-a-TV-1833175105](https://lifehacker.com/how-to-watch-the-duke-vs-unc-game-without-a-tv-1833175105)
+> 原文：<https://lifehacker.com/how-to-watch-the-duke-vs-unc-game-without-a-tv-1833175105>
 
 我在北卡罗来纳州长大，离杜克大学和北卡罗来纳大学只有几英里远。这两所学校之间的竞争是严重的，即使只是在一场常规比赛中，但今天的比赛可能会决定谁是 NCAA 锦标赛的头号种子，这使得赌注更高。
 

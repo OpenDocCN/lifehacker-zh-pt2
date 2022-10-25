@@ -1,6 +1,6 @@
 # 给送货员现金小费
 
-> 原文:[https://life hacker . com/tip-your-delivery-person-in-cash-1832312684](https://lifehacker.com/tip-your-delivery-person-in-cash-1832312684)
+> 原文：<https://lifehacker.com/tip-your-delivery-person-in-cash-1832312684>
 
 当你在网上点餐时，只需在网上加几美元作为小费就太容易了——毕竟，这比在你的钱包里摸索多余的美元要好。
 

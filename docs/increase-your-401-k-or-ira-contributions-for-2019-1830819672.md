@@ -1,6 +1,6 @@
 # 增加你 2019 年的 401(k)或个人退休账户缴款
 
-> 原文:[https://life hacker . com/increase-your-401-k-or-IRA-contributions-for-2019-1830819672](https://lifehacker.com/increase-your-401-k-or-ira-contributions-for-2019-1830819672)
+> 原文：<https://lifehacker.com/increase-your-401-k-or-ira-contributions-for-2019-1830819672>
 
 在我们寻求在新的一年里将我们的财务状况提高百分之一的过程中，这里有一个你今天可以在几分钟内完成的简单任务:增加你的 401(k)或 IRA 缴款。
 

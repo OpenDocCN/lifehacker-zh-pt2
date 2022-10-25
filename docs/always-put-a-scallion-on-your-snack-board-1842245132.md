@@ -1,6 +1,6 @@
 # 永远在你的零食盘上放一根葱
 
-> 原文:[https://life hacker . com/always-put-a skill-on-your ' s 零食板上的葱-1842245132](https://lifehacker.com/always-put-a-scallion-on-your-snack-board-1842245132)
+> 原文：<https://lifehacker.com/always-put-a-scallion-on-your-snack-board-1842245132>
 
 小吃板块，无论是奶酪还是熟食，都不仅仅是奶酪和/或熟食。对于一个真正平衡的餐盘，你需要泡菜、果酱或蜂蜜，以及其他咸的、松脆的和辛辣的小吃来突出和补充主要的吸引力。你还需要一根葱。
 

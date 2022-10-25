@@ -1,6 +1,6 @@
 # 如何鼓励孩子的善良
 
-> 原文:[https://life hacker . com/how-to-鼓励善待孩子-1837409755](https://lifehacker.com/how-to-encourage-kindness-in-kids-1837409755)
+> 原文：<https://lifehacker.com/how-to-encourage-kindness-in-kids-1837409755>
 
 我们通过自己树立善良的榜样来教育孩子善良，和他们谈论善良，当我们发现他们善良时表扬他们。我们也可以用毛绒球来教它。
 

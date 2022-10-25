@@ -1,6 +1,6 @@
 # 如果你发现一个丢失的钱包，你可以把它投入邮箱来归还它
 
-> 原文:[https://life hacker . com/if-you-found-a-lost-wallet-you-can-drop-it-1833745884](https://lifehacker.com/if-you-find-a-lost-wallet-you-can-return-it-by-dropping-1833745884)
+> 原文：<https://lifehacker.com/if-you-find-a-lost-wallet-you-can-return-it-by-dropping-1833745884>
 
 如果你在地上发现了某人丢失的钱包，你可以做一个乐善好施的人*和*懒惰的人:把它放在蓝色的盒子里就行了。
 

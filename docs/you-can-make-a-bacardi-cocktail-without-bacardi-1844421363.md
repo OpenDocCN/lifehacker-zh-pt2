@@ -1,6 +1,6 @@
 # 你可以不用百加得制作百加得鸡尾酒
 
-> 原文:[https://life hacker . com/you-can-make-a-Bacardi-cocktail-no-Bacardi-1844421363](https://lifehacker.com/you-can-make-a-bacardi-cocktail-without-bacardi-1844421363)
+> 原文：<https://lifehacker.com/you-can-make-a-bacardi-cocktail-without-bacardi-1844421363>
 
 台克利酒是最普遍的朗姆酒鸡尾酒，这是有充分理由的。它很好吃，很提神，而且非常容易做。它不需要任何修改，但如果你觉得有必要改变它，你可以通过将简单的糖浆换成石榴糖浆来制作一种全新的(完全粉红色的)饮料。
 

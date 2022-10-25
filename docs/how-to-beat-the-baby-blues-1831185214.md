@@ -1,6 +1,6 @@
 # how to beat the baby blues 1831185214
 
-> 原文:[https://life hacker . com/how-to-beat-the-baby-blues-1831185214](https://lifehacker.com/how-to-beat-the-baby-blues-1831185214)
+> 原文：<https://lifehacker.com/how-to-beat-the-baby-blues-1831185214>
 
 凯西·拉迪根的第一个孩子已经 20 岁了，但她记得她和他的“婴儿忧郁”，就像是昨天一样。
 

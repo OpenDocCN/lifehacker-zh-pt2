@@ -1,6 +1,6 @@
 # 使用季节性汽车维护计划来防止夏季故障
 
-> 原文:[https://life hacker . com/use-a-seasonal-car-maintenance-schedule-to-prevent-summ-1835148820](https://lifehacker.com/use-a-seasonal-car-maintenance-schedule-to-prevent-summ-1835148820)
+> 原文：<https://lifehacker.com/use-a-seasonal-car-maintenance-schedule-to-prevent-summ-1835148820>
 
 你可能会密切关注汽车蓝牙、Apple CarPlay、wifi 热点和巡航控制的工作和健康状况。所有有趣的东西，对吗？但是你对你的雨刷了解多少呢？
 

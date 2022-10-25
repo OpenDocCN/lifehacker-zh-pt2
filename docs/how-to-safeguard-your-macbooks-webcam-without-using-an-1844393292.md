@@ -1,6 +1,6 @@
 # 如何在不使用外盖的情况下遮挡 MacBook 的网络摄像头
 
-> 原文:[https://life hacker . com/how-to-guard-your-macbooks-web cam-without-use-an-1844393292](https://lifehacker.com/how-to-safeguard-your-macbooks-webcam-without-using-an-1844393292)
+> 原文：<https://lifehacker.com/how-to-safeguard-your-macbooks-webcam-without-using-an-1844393292>
 
 盖住网络摄像头是最古老的隐私技巧之一，但一些 MacBook 用户不幸发现，当你试图关闭笔记本电脑 时，第三方摄像头盖 [会损坏你的笔记本电脑。许多这种外壳体积庞大，以至于 MacBook 无法完全关闭，并且它们对屏幕施加的过度压力可能会使其破裂。](https://www.reddit.com/r/apple/comments/eg84x1/psa_do_not_apply_a_webcam_cover_to_your_macbook/)
 

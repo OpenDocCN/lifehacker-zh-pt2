@@ -1,6 +1,6 @@
 # 使用谷歌助手成为一名 HQ 琐事专家
 
-> 原文:[https://life hacker . com/use-Google-assistant-to-be-an-HQ-trivia-pro-1832564999](https://lifehacker.com/use-google-assistant-to-become-an-hq-trivia-pro-1832564999)
+> 原文：<https://lifehacker.com/use-google-assistant-to-become-an-hq-trivia-pro-1832564999>
 
 想用自己的时间掌握 HQ 琐事？谷歌助手可以帮你做到这一点。
 

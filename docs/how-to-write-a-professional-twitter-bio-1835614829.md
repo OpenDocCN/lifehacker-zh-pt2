@@ -1,6 +1,6 @@
 # 如何写一篇专业的推特简历
 
-> 原文:[https://life hacker . com/how-to-write-a-professional-Twitter-bio-1835614829](https://lifehacker.com/how-to-write-a-professional-twitter-bio-1835614829)
+> 原文：<https://lifehacker.com/how-to-write-a-professional-twitter-bio-1835614829>
 
 你的 Twitter 账户应该反映你的个人生活，还是你的专业知识？可以说，答案是“两者都有”——但要找到如何平衡这两种身份并不总是那么容易。
 

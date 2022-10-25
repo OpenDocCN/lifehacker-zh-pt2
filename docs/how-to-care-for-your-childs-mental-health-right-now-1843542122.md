@@ -1,6 +1,6 @@
 # 现在如何关心你孩子的心理健康
 
-> 原文:[https://life hacker . com/how-to-care-for-your-childs-mental-health-right-now-1843542122](https://lifehacker.com/how-to-care-for-your-childs-mental-health-right-now-1843542122)
+> 原文：<https://lifehacker.com/how-to-care-for-your-childs-mental-health-right-now-1843542122>
 
 目前许多悬而未决的问题中，有一个是疫情会对儿童的心理健康产生什么影响。最近发表在 JAMA Pediatrics 杂志上的一篇论文记录了在中国被禁闭的儿童中焦虑和抑郁情绪升高。虽然现在确切知道确切的死亡人数还为时过早，但据传闻，许多父母报告说，他们的孩子焦虑、压力和抑郁的迹象越来越多。
 

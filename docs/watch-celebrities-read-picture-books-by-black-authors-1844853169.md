@@ -1,6 +1,6 @@
 # 观看名人阅读黑人作者的图画书
 
-> 原文:[https://life hacker . com/watch-smokes-read-picture-books-by-black-authors-1844853169](https://lifehacker.com/watch-celebrities-read-picture-books-by-black-authors-1844853169)
+> 原文：<https://lifehacker.com/watch-celebrities-read-picture-books-by-black-authors-1844853169>
 
 父母经常用书来介绍和激发与孩子围绕重要话题、概念或主题的对话。在这个国家努力解决如此多的社会公正问题之际，以这种方式使用书籍现在变得尤为重要，。这就是为什么网飞说它已经创建了一个新的真人表演， [*书签:庆祝黑人的声音*](https://media.netflix.com/en/company-blog/bookmarks-celebrating-black-voices-aims-to-spark-conversations-on-and-off-screen) ，展示黑人名人阅读黑人作者写的儿童书籍，突出黑人的经历。
 

@@ -1,6 +1,6 @@
 # 对于一辆二手车来说，多少英里才算多？
 
-> 原文:[https://jalopnik . com/多少英里对于二手车来说太多了-1840547117](https://jalopnik.com/how-many-miles-are-too-many-for-a-used-car-1840547117)
+> 原文：<https://jalopnik.com/how-many-miles-are-too-many-for-a-used-car-1840547117>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。我决定挑几个问题，试着帮帮大家。本周我们将讨论二手车的里程数，带孩子去经销商处，以及柠檬车的广告。
 

@@ -1,6 +1,6 @@
 # 如何让 Alexa 阅读你的邮件，并告诉你“那个”消息是否已经到达
 
-> 原文:[https://life hacker . com/how-to-get-Alexa-read-you-emails-and-tell-you-if-t-1830993561](https://lifehacker.com/how-to-get-alexa-to-read-your-emails-and-tell-you-if-t-1830993561)
+> 原文：<https://lifehacker.com/how-to-get-alexa-to-read-your-emails-and-tell-you-if-t-1830993561>
 
 亚马逊周一向其虚拟助手推出了一项新的电子邮件阅读功能，允许它阅读过去 24 小时内你的新邮件和重要邮件的摘要。当它打开时，你可以选择阅读、回复、删除或存档这些信息，而不用打开你的电脑。
 

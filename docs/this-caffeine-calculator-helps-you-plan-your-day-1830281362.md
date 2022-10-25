@@ -1,6 +1,6 @@
 # 这个咖啡因计算器帮助你计划你的一天
 
-> 原文:[https://life hacker . com/this-caffeine-calculator-help-you-plan-you-day-1830281362](https://lifehacker.com/this-caffeine-calculator-helps-you-plan-your-day-1830281362)
+> 原文：<https://lifehacker.com/this-caffeine-calculator-helps-you-plan-your-day-1830281362>
 
 咖啡因可以让你更加清醒，但是一夜好眠也可以。到目前为止，如果你想详细计划你的咖啡因消费量，可以使用的工具是 2B 警报 ，它很棒，但笨重且难以阅读。但是现在，omnicalculator 做了一个简化版，他们称之为 [咖啡计算器](https://www.omnicalculator.com/food/coffee-kick) 。
 

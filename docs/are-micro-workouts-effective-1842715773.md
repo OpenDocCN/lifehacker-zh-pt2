@@ -1,6 +1,6 @@
 # 微型锻炼有效吗？
 
-> 原文:[https://life hacker . com/are-微健身-有效-1842715773](https://lifehacker.com/are-micro-workouts-effective-1842715773)
+> 原文：<https://lifehacker.com/are-micro-workouts-effective-1842715773>
 
 我们现在都在生存模式下运作，在疫情中超越你的常规锻炼当然是可以理解的。定期锻炼有助于缓解焦虑、抑郁和提高睡眠质量，而在我们生活的这个世界上，这些好处会让一切变得不同。如果你的日程太混乱，不适合专门的锻炼，答案可能是微锻炼，大致定义为包含高强度间歇的 10 分钟锻炼。
 

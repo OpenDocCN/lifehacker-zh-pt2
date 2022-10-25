@@ -1,6 +1,6 @@
 # 如何确定自己的血型
 
-> 原文:[https://life hacker . com/how-to-figure-out-of-your-blood-type-1844424454](https://lifehacker.com/how-to-figure-out-your-blood-type-1844424454)
+> 原文：<https://lifehacker.com/how-to-figure-out-your-blood-type-1844424454>
 
 问一个特定年龄的人他们是什么血型，他们很可能马上就能知道。从 [军用狗牌](https://www.army.mil/article/123034/whats_on_your_dog_tag#:~:text=Today's%20identification%20tags%20identify%20vital,H%20for%20Hebrew%20(Jewish).) 到 [儿童身上的冷战时期纹身](https://www.mentalfloss.com/article/573101/operation-tat-type) ，其理念是知道你的血型可以在你可能需要立即输血的紧急情况下拯救你的生命。但是曾经是一条重要的个人信息，人们可以在出生日期、家庭住址和社会安全号码旁边快速背诵，不再是每个人都知道或记得的东西。
 

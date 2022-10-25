@@ -1,6 +1,6 @@
 # why its so hard to predict the shape of an economic rec 1843754570
 
-> 原文:[https://life hacker . com/why-its-so-hard-to-predict-the-shape of-a-economic-rec-1843754570](https://lifehacker.com/why-its-so-hard-to-predict-the-shape-of-an-economic-rec-1843754570)
+> 原文：<https://lifehacker.com/why-its-so-hard-to-predict-the-shape-of-an-economic-rec-1843754570>
 
 尽管在大流行后重新开启美国经济的过程将是漫长而复杂的，但已经有很多关于经济复苏会是什么样子的猜测。
 

@@ -1,6 +1,6 @@
 # 如何修复一个蹩脚的康卡斯特无线连接
 
-> 原文:[https://life hacker . com/how-to-fix-a-lappy-Comcast-wifi-connection-1844884320](https://lifehacker.com/how-to-fix-a-crappy-comcast-wifi-connection-1844884320)
+> 原文：<https://lifehacker.com/how-to-fix-a-crappy-comcast-wifi-connection-1844884320>
 
 我不会嫉妒任何人使用他们的 ISP 提供的调制解调器和路由器。你*不应该—* 因为你很可能付钱给你的 ISP 去“租”一个不太好的设备—但是并不是每个人都有耐心或倾向去理解无线网络的细微差别，甚至是他们每月的账单。
 

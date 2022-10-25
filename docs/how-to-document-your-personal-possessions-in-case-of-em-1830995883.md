@@ -1,6 +1,6 @@
 # 如何在紧急情况下记录你的个人财产
 
-> 原文:[https://life hacker . com/how-to-document-your personal-owners-in-case-of-em-1830995883](https://lifehacker.com/how-to-document-your-personal-possessions-in-case-of-em-1830995883)
+> 原文：<https://lifehacker.com/how-to-document-your-personal-possessions-in-case-of-em-1830995883>
 
 在一场摧毁你房子的灾难之后，你几乎不可能想通你所失去的一切。火灾、洪水、飓风、损坏的屋顶——当你重新开始生活时，你可能不会考虑如何为保险公司将你的厨房用具分类。
 

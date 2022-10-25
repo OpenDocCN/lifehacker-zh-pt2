@@ -1,6 +1,6 @@
 # 在你的思慕雪中加入冰镇饮料
 
-> 原文:[https://life hacker . com/add-cold-brew-to-your-smoothie-1842238809](https://lifehacker.com/add-cold-brew-to-your-smoothie-1842238809)
+> 原文：<https://lifehacker.com/add-cold-brew-to-your-smoothie-1842238809>
 
 一个奶昔爱好者可能会注意到的一个问题是，他们需要添加比他们最初想象的更多的液体。加得太少，你最终会得到一种水果泥——一种美味的水果泥，但仍然是一种泥。
 

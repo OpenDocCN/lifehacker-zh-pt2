@@ -1,6 +1,6 @@
 # 请不要去电影院:“这是我现在最不想做的事情，”专家说
 
-> 原文:[https://www . av club . com/please-don-to-go-a-movie-theater-it-just-about-th-1844756993](https://www.avclub.com/please-don-t-go-to-a-movie-theater-it-s-just-about-th-1844756993)
+> 原文：<https://www.avclub.com/please-don-t-go-to-a-movie-theater-it-s-just-about-th-1844756993>
 
 几个月来，全国各地的电影院已经关闭，作为拯救生命和减缓新冠肺炎病毒传播的持续努力的一部分。作为回应， [工作室选择推迟他们的大制作](https://news.avclub.com/in-the-heights-movie-gets-bumped-back-to-2021-1842991544) 或 [转而推出 VOD](https://news.avclub.com/lets-get-down-to-business-mulan-will-debut-on-disney-1844611084)。但是拉塞尔·克罗不会被某种冠状病毒所阻挡。他有一部新的动作片将于周五上映，还有“我不是在和你开玩笑。电影 的最新广告 [中，这位奥斯卡奖得主对着镜头说:“它将在电影院上映。”该电影将在 44 个州上映。](https://twitter.com/edgarwright/status/1294757848405233664)
 

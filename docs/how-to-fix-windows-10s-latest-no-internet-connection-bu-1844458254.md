@@ -1,6 +1,6 @@
 # 如何修复 Windows 10 最新的“无法连接互联网”错误
 
-> 原文:[https://life hacker . com/how-to-fix-windows-10s-latest-no-internet-connection-bu-1844458254](https://lifehacker.com/how-to-fix-windows-10s-latest-no-internet-connection-bu-1844458254)
+> 原文：<https://lifehacker.com/how-to-fix-windows-10s-latest-no-internet-connection-bu-1844458254>
 
 Windows 10 更新往往会打破东西，最近的 Window 10 版本 2004 更新也不例外。根据许多论坛帖子，最新的恼人错误阻止了 Windows 10 应用程序访问互联网，即使当 PC 成功连接并且您的网络浏览器工作正常时。
 

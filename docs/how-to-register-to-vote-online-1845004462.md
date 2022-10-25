@@ -1,6 +1,6 @@
 # 如何注册网上投票
 
-> 原文:[https://life hacker . com/how-to-register-to-vote-online-1845004462](https://lifehacker.com/how-to-register-to-vote-online-1845004462)
+> 原文：<https://lifehacker.com/how-to-register-to-vote-online-1845004462>
 
 随着 11 月大选的临近，你需要准备好如何以及何时投票。被拒绝投票的最简单的方法是有一个过期的选民登记，所以你应该尽快检查你的登记。
 

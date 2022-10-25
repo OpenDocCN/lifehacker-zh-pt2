@@ -1,6 +1,6 @@
 # 你可以在家观看这些新上映的电影
 
-> 原文:[https://life hacker . com/you-can-stream-these-new-release-movies-in-home-1842375850](https://lifehacker.com/you-can-stream-these-new-release-movies-at-home-1842375850)
+> 原文：<https://lifehacker.com/you-can-stream-these-new-release-movies-at-home-1842375850>
 
 社交距离意味着我们很多人在家的时间明显增加了。如果这不是你习惯做的事情，那么你可能已经开始没有事情可以打发时间了。
 

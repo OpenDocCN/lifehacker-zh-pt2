@@ -1,6 +1,6 @@
 # 用蔓越莓巴芙洛娃点亮你的感恩节甜点
 
-> 原文:[https://life hacker . com/brighten-up-your ' s thanksgivity-dessert-spread with-a-CRA-1830539135](https://lifehacker.com/brighten-up-your-thanksgiving-dessert-spread-with-a-cra-1830539135)
+> 原文：<https://lifehacker.com/brighten-up-your-thanksgiving-dessert-spread-with-a-cra-1830539135>
 
 在吃了一整天浇满肉汁的碳水化合物后，一点点阳光确实是受欢迎的景象。可悲的是，感恩节甜点通常不是；这是另一场碳水化合物游行，鲜奶油代替了肉汁。
 

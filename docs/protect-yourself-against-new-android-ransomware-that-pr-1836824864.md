@@ -1,6 +1,6 @@
 # 保护自己免受伪装成色情的新 Android 勒索软件的攻击
 
-> 原文:[https://life hacker . com/protect-yourself-against-new-Android-ransomware-that-pr-1836824864](https://lifehacker.com/protect-yourself-against-new-android-ransomware-that-pr-1836824864)
+> 原文：<https://lifehacker.com/protect-yourself-against-new-android-ransomware-that-pr-1836824864>
 
 ESET 研究人员 最近发现了一种新的 Android 威胁，它有一个古怪的成人主题，可能足以吸引不知情的用户安装它。
 

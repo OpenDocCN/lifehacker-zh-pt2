@@ -1,6 +1,6 @@
 # 如何将我的工作笔记本电脑连接到我的家用显示器？
 
-> 原文:[https://life hacker . com/how-do-I-connect-my-work-laptop-to-my-home-monitor-1842471071](https://lifehacker.com/how-do-i-connect-my-work-laptop-to-my-home-monitor-1842471071)
+> 原文：<https://lifehacker.com/how-do-i-connect-my-work-laptop-to-my-home-monitor-1842471071>
 
 这是在家工作版 [**Tech 911**](https://lifehacker.com/c/tech-911) 的第二天，我回来处理更多棘手的故障排除。请记住，如果你对在家工作的设置有任何问题，我鼓励你在这个帖子( [或这个帖子](https://lifehacker.com/tell-us-your-working-from-home-tech-issues-1842428782) )上发表评论！)，或者拍我 [一封邮件](mailto:david.murphy@lifehacker.com?subject=Tech%20911) 。我会尽力回答你的问题，因为一个好的谜题有助于打破隔离区的单调。
 

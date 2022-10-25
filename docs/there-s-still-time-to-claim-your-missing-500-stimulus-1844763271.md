@@ -1,6 +1,6 @@
 # 现在还来得及为你丢失的 500 美元家属刺激计划索赔
 
-> 原文:[https://life hacker . com/there-s-than-time to claim your-missing-500-stimulus-1844763271](https://lifehacker.com/there-s-still-time-to-claim-your-missing-500-stimulus-1844763271)
+> 原文：<https://lifehacker.com/there-s-still-time-to-claim-your-missing-500-stimulus-1844763271>
 
 尽管许多美国人渴望国会通过下一个救助方案——以及第二次刺激计划——一些人仍然 [错过他们的](https://twocents.lifehacker.com/get-help-with-missing-coronavirus-relief-payments-1844604522)。幸运的是，美国国税局一直在积极努力解决这个问题。
 

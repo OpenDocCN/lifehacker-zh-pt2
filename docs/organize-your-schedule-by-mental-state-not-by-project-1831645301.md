@@ -1,6 +1,6 @@
 # 根据精神状态而不是项目来组织你的时间表
 
-> 原文:[https://life hacker . com/organize-your-schedule-by-mental-state-not-by-project-1831645301](https://lifehacker.com/organize-your-schedule-by-mental-state-not-by-project-1831645301)
+> 原文：<https://lifehacker.com/organize-your-schedule-by-mental-state-not-by-project-1831645301>
 
 如果你正在努力完成工作，并且发现自己时而坐立不安，时而心烦意乱，时而疲惫不堪，那么试试这种替代的日程安排方法。作家兼播客大卫·卡达维 [根据他们的精神负荷](https://medium.com/getting-art-done/dont-organize-your-todos-by-project-organize-them-by-mental-state-328570f6b9fb) 来组织他的任务，将高水平的创造性任务(如想法产生)与不太费力的任务(如研究)和更世俗的任务(如管理)分开。Kadavy 的 Medium post 描述了六种脑力劳动，以及他如何在自己的周计划中安排它们。
 

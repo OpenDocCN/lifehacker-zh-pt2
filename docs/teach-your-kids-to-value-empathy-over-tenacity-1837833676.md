@@ -1,6 +1,6 @@
 # 教育你的孩子重视同理心胜过坚韧
 
-> 原文:[https://life hacker . com/teach-your-kids-to-value-empathy-over-tenacity-1837833676](https://lifehacker.com/teach-your-kids-to-value-empathy-over-tenacity-1837833676)
+> 原文：<https://lifehacker.com/teach-your-kids-to-value-empathy-over-tenacity-1837833676>
 
 如果你周六看了可可·高夫在美国网球公开赛 第三轮的失利，你可能不会记得比分或比赛本身的许多细节；你应该还记得大坂直美在失败后是如何安慰 15 岁的女孩的。
 

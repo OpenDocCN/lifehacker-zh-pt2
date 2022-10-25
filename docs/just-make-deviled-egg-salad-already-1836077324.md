@@ -1,6 +1,6 @@
 # 已经开始做芥末鸡蛋沙拉了
 
-> 原文:[https://life hacker . com/just-make-deviled-egg-salad-always-1836077324](https://lifehacker.com/just-make-deviled-egg-salad-already-1836077324)
+> 原文：<https://lifehacker.com/just-make-deviled-egg-salad-already-1836077324>
 
 我喜欢魔鬼蛋，但它们是挑剔的小家伙，尤其是如果你倾向于过分珍惜展示的话。这可能是一个“我”的问题，但是剥皮、舀取和重新装满鸡蛋而不损伤蛋白总是让我感到紧张。(我很容易紧张。)但是有一种更简单的方法:只做芥末鸡蛋沙拉。
 

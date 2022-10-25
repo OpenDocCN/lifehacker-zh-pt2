@@ -1,6 +1,6 @@
 # 通过为会议设置“硬停”来获得更多的工作时间
 
-> 原文:[https://life hacker . com/get-more-time-in-your-work-day-by-setting-hard-stops-fo-1838122573](https://lifehacker.com/get-more-time-in-your-work-day-by-setting-hard-stops-fo-1838122573)
+> 原文：<https://lifehacker.com/get-more-time-in-your-work-day-by-setting-hard-stops-fo-1838122573>
 
 时间是我们都可以更多利用的东西之一。
 

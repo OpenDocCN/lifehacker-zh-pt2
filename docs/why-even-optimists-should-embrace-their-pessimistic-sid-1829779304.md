@@ -1,6 +1,6 @@
 # 为什么即使是乐观主义者也应该拥抱他们悲观的一面
 
-> 原文:[https://life hacker . com/why-even-乐观主义者应该拥抱他们的悲观主义者-sid-1829779304](https://lifehacker.com/why-even-optimists-should-embrace-their-pessimistic-sid-1829779304)
+> 原文：<https://lifehacker.com/why-even-optimists-should-embrace-their-pessimistic-sid-1829779304>
 
 设定目标并努力实现目标是一种天生的乐观行为:你想要更多更好，你相信自己有能力完成工作并获得回报。但是有时候表现出自己悲观的一面可以帮助你更快的达到目标。
 

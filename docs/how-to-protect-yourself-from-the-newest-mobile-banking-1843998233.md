@@ -1,6 +1,6 @@
 # 如何保护自己免受最新手机银行恶意软件的攻击
 
-> 原文:[https://life hacker . com/how-to-protect-you-from-the-newest-mobile-banking-1843998233](https://lifehacker.com/how-to-protect-yourself-from-the-newest-mobile-banking-1843998233)
+> 原文：<https://lifehacker.com/how-to-protect-yourself-from-the-newest-mobile-banking-1843998233>
 
 手机银行应用程序很方便，但你应该在智能手机上查看余额之前加强账户安全。根据最近的一份政府网络安全 PSA 报告，许多人享受着手机银行的便利，但却没有多少人采取必要的措施来尽可能保证他们账户的安全。
 

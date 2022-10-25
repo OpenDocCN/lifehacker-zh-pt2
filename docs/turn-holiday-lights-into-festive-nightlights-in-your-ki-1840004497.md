@@ -1,6 +1,6 @@
 # 将节日灯变成孩子房间的节日“夜灯”
 
-> 原文:[https://life hacker . com/turn-holiday-lights-into-festive-night lights-in-your-ki-1840004497](https://lifehacker.com/turn-holiday-lights-into-festive-nightlights-in-your-ki-1840004497)
+> 原文：<https://lifehacker.com/turn-holiday-lights-into-festive-nightlights-in-your-ki-1840004497>
 
 我儿子生来就有节日气氛。这孩子从没见过他不喜欢的庆典。所以很明显每年的这个时候是他的高峰期。今年我们花了很多时间(我是说很多时间)来装饰万圣节。在过去的一两个星期里，他一直恳求我开始建立我们的小冬季村，包括今年增加的东西——一辆墨西哥玉米卷卡车。
 

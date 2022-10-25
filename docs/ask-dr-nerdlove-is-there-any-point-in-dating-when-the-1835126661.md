@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:世界一片火海，约会还有意义吗？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-is-any-point-in-dating-when-1835126661](https://kotaku.com/ask-dr-nerdlove-is-there-any-point-in-dating-when-the-1835126661)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-is-there-any-point-in-dating-when-the-1835126661>
 
 大家好，欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是唯一的约会建议专栏，帮助你快速度过约会中最糟糕的部分，开始你爱情生活的新游戏。
 

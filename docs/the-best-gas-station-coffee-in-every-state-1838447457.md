@@ -1,6 +1,6 @@
 # 每个州最好的加油站咖啡
 
-> 原文:[https://life hacker . com/the-best-gas-state-coffee-in-every-state-1838447457](https://lifehacker.com/the-best-gas-station-coffee-in-every-state-1838447457)
+> 原文：<https://lifehacker.com/the-best-gas-station-coffee-in-every-state-1838447457>
 
 你离家很远。一百英里前，你经过了最后一个熟悉的坎伯兰农场。你去哪里买一杯可靠的咖啡？
 

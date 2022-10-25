@@ -1,6 +1,6 @@
 # “宠物友好型”融冰对宠物真的安全吗？
 
-> 原文:[https://life hacker . com/are-pet-friendly-ice-melts-really-safe-for-pets-1832626427](https://lifehacker.com/are-pet-friendly-ice-melts-really-safe-for-pets-1832626427)
+> 原文：<https://lifehacker.com/are-pet-friendly-ice-melts-really-safe-for-pets-1832626427>
 
 撒在人行道上融雪的岩盐是对宠物爪子有害的。橡胶短靴 [有助于](https://lifehacker.com/how-to-get-rubber-booties-on-your-dog-1821778886) ，但是如果你在自己的走道上撒盐，你可以买对宠物友好的融冰。但是这些产品都有自己的注意事项。
 

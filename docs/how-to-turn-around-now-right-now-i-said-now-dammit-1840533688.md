@@ -1,6 +1,6 @@
 # 怎么现在转身，现在，我说现在该死
 
-> 原文:[https://jalopnik . com/how-turn-around-now-right-now-I-said-now-damn-1840533688](https://jalopnik.com/how-to-turn-around-now-right-now-i-said-now-dammit-1840533688)
+> 原文：<https://jalopnik.com/how-to-turn-around-now-right-now-i-said-now-dammit-1840533688>
 
 你是否曾经在旅途中才意识到你把一些重要的东西忘在了家里？你后面有没有一些小孩不知道什么时候该停止踢你该死的座椅靠背？或者你只是厌倦了五点转弯？然后掌握向前 180，由 Wyatt Knox 在 [队奥尼尔拉力学校](https://jalopnik.com/tag/team-oneil) 提供，可能对你来说是完美的！
 

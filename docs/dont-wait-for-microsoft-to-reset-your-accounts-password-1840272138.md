@@ -1,6 +1,6 @@
 # 不要等待 Microsoft 重置您的帐户密码
 
-> 原文:[https://life hacker . com/don-wait-for-Microsoft-reset-your-accounts-password-1840272138](https://lifehacker.com/dont-wait-for-microsoft-to-reset-your-accounts-password-1840272138)
+> 原文：<https://lifehacker.com/dont-wait-for-microsoft-to-reset-your-accounts-password-1840272138>
 
 微软决定重设 4400 万个账户、的密码，实际上是一件好事。如果你的账户受到影响，感谢盖茨神父，因为微软提醒你，它搜索了超过 30 亿个泄露账户的数据库，发现了属于你的的信息。
 

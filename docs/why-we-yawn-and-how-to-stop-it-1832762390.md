@@ -1,6 +1,6 @@
 # 我们为什么打哈欠以及如何停止打哈欠
 
-> 原文:[https://life hacker . com/why-we-呵欠和如何停止它 1832762390](https://lifehacker.com/why-we-yawn-and-how-to-stop-it-1832762390)
+> 原文：<https://lifehacker.com/why-we-yawn-and-how-to-stop-it-1832762390>
 
 说到打哈欠，有一个合适的时间和地点。
 

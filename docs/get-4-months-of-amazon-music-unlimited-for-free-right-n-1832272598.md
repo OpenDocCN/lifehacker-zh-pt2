@@ -1,6 +1,6 @@
 # 立即免费获得 4 个月的亚马逊音乐无限
 
-> 原文:[https://life hacker . com/get-4-months-of-Amazon-music-unlimited-for-free-right-n-1832272598](https://lifehacker.com/get-4-months-of-amazon-music-unlimited-for-free-right-n-1832272598)
+> 原文：<https://lifehacker.com/get-4-months-of-amazon-music-unlimited-for-free-right-n-1832272598>
 
 如果你拥有一台亚马逊 Echo 设备，你现在就可以免费获得四个月的亚马逊音乐无限服务——，前提是你之前没有订阅这项服务。
 

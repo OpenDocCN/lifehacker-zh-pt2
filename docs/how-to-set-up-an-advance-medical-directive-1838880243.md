@@ -1,6 +1,6 @@
 # 如何建立预先医疗指示
 
-> 原文:[https://life hacker . com/how-to-set-a-advance-medical-directive-1838880243](https://lifehacker.com/how-to-set-up-an-advance-medical-directive-1838880243)
+> 原文：<https://lifehacker.com/how-to-set-up-an-advance-medical-directive-1838880243>
 
 如果你失去知觉，依靠生命维持系统，你希望你的家人等多久，看你是否康复？如果你想确保你的意愿得到尊重，可以考虑预先医疗指示。
 

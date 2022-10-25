@@ -1,6 +1,6 @@
 # 从小企业协会获得 PPP 贷款豁免的建议
 
-> 原文:[https://life hacker . com/get-advice-on-PPP-loan-religion-from-the-small-busin-1844638013](https://lifehacker.com/get-advice-on-ppp-loan-forgiveness-from-the-small-busin-1844638013)
+> 原文：<https://lifehacker.com/get-advice-on-ppp-loan-forgiveness-from-the-small-busin-1844638013>
 
 随着国会 [就下一个刺激方案](https://www.forbes.com/sites/sarahhansen/2020/08/04/a-new-small-business-relief-proposal-even-bigger-than-the-ppp-could-be-part-of-the-next-stimulus-bill/#d0ca65035a81) 展开辩论，许多企业主一直在等待关于 [薪酬保护计划](https://www.sba.gov/funding-programs/loans/coronavirus-relief-options/paycheck-protection-program)(PPP)——以及如何获得贷款豁免资格的指导。
 

@@ -1,6 +1,6 @@
 # 如何挑选合适的 Windows 10 测试版渠道
 
-> 原文:[https://life hacker . com/how-to-pick-the-right-windows-10-beta-channel-1844055922](https://lifehacker.com/how-to-pick-the-right-windows-10-beta-channel-1844055922)
+> 原文：<https://lifehacker.com/how-to-pick-the-right-windows-10-beta-channel-1844055922>
 
 我从来不喜欢测试版“戒指”的想法——尤其是 Windows 10。我一直认为普通人更容易理解测试版的概念，当它被显示在“频道”中时，就像你在你最喜欢的网络浏览器中看到的一样，而不是“快”和“慢”的铃声。
 

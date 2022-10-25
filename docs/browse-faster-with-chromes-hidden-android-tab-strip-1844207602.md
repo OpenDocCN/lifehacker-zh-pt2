@@ -1,6 +1,6 @@
 # 使用 Chrome 隐藏的 Android 标签条更快地浏览
 
-> 原文:[https://life hacker . com/browse-fast-with-chromes-hidden-Android-tab-strip-1844207602](https://lifehacker.com/browse-faster-with-chromes-hidden-android-tab-strip-1844207602)
+> 原文：<https://lifehacker.com/browse-faster-with-chromes-hidden-android-tab-strip-1844207602>
 
 我是一个标签迷，但让我的 Android 版 Chrome 保持整洁的是，在我打开的不同网站之间切换是一件令人讨厌的事情。你必须点击 上的，而不是一个看起来很可爱的标签，这是一个丑陋的盒子，然后像纸牌游戏中一叠交错的卡片一样转储出你所有打开的页面。
 

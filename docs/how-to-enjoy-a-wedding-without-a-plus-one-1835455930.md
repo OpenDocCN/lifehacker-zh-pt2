@@ -1,6 +1,6 @@
 # 如何享受没有伴侣的婚礼
 
-> 原文:[https://life hacker . com/how-to-enjoy-a-plus-one-1835455930](https://lifehacker.com/how-to-enjoy-a-wedding-without-a-plus-one-1835455930)
+> 原文：<https://lifehacker.com/how-to-enjoy-a-wedding-without-a-plus-one-1835455930>
 
 任何婚礼最糟糕的部分——除了在闷热的天气里等待新娘大步走过过道，或者在婚宴上吃一份特别烤过头的牛排——就是不得不独自忍受。
 

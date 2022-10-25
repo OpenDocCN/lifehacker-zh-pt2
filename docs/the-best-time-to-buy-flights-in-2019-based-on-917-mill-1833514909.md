@@ -1,6 +1,6 @@
 # 2019 年购买航班的最佳时间，基于 9.17 亿张机票
 
-> 原文:[https://life hacker . com/the-best-time-to-buy-of-2019-based-on-917-mill-1833514909](https://lifehacker.com/the-best-time-to-buy-flights-in-2019-based-on-917-mill-1833514909)
+> 原文：<https://lifehacker.com/the-best-time-to-buy-flights-in-2019-based-on-917-mill-1833514909>
 
 当你计划度假时，要考虑的最大因素之一，或者至少是最贵的因素，就是机票。当你买机票的时候，往往会对机票价格产生和你要去哪里一样大的影响。
 

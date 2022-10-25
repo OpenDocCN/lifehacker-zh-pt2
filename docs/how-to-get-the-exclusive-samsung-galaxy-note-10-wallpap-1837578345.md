@@ -1,6 +1,6 @@
 # 如何为您的 Android 或 iPhone 获得独家三星 Galaxy Note 10 壁纸
 
-> 原文:[https://life hacker . com/how-to-get-the-exclusive-Samsung-galaxy-note-10-wallpap-1837578345](https://lifehacker.com/how-to-get-the-exclusive-samsung-galaxy-note-10-wallpap-1837578345)
+> 原文：<https://lifehacker.com/how-to-get-the-exclusive-samsung-galaxy-note-10-wallpap-1837578345>
 
 [Lifehacker's Complete Guide to Android](https://androidos.kinja.com)) : title[![](../Images/e2dcc498f7314a475ad7b9879a9d5584.png)](https://androidos.kinja.com)[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)Don't get overwhelmed by Android's many (many!) settings and apps. Master your Android phone or tablet with our ample collection of guides, tips, and tricks.
 

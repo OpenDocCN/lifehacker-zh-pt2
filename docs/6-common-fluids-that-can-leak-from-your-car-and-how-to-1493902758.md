@@ -1,6 +1,6 @@
 # 如何识别你的车在漏什么液体
 
-> 原文:[https://life hacker . com/6-common-fluids-that-can-leak from your-car-and-how-to 1493902758](https://lifehacker.com/6-common-fluids-that-can-leak-from-your-car-and-how-to-1493902758)
+> 原文：<https://lifehacker.com/6-common-fluids-that-can-leak-from-your-car-and-how-to-1493902758>
 
 意识到你的车正在滴下某种神秘的液体是非常令人不安的。或许没什么，又或许你即将面对一次昂贵的机械师之旅。好消息是，破译这些点并不太困难，并告诉液体泄漏是无害的滴漏还是需要尽快解决的严重问题。以下是方法。
 

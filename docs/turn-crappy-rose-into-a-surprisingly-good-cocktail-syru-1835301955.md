@@ -1,6 +1,6 @@
 # 把蹩脚的桃红葡萄酒变成令人惊讶的好鸡尾酒糖浆
 
-> 原文:[https://life hacker . com/turn-lappy-rose-into-surprise-good-cocktail-syru-1835301955](https://lifehacker.com/turn-crappy-rose-into-a-surprisingly-good-cocktail-syru-1835301955)
+> 原文：<https://lifehacker.com/turn-crappy-rose-into-a-surprisingly-good-cocktail-syru-1835301955>
 
 我在温暖的天气里最愚蠢的习惯是买超级便宜的桃红葡萄酒，告诉自己和别人“我不挑剔”，却发现我其实*有点挑剔，一瓶五美元的葡萄酒让我几乎立刻头疼。然而我坚持不懈，在我的冰箱里装满了半成品瓶蹩脚的粉红葡萄酒。*
 

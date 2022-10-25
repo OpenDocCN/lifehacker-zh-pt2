@@ -1,6 +1,6 @@
 # 这个来自计划生育协会的聊天机器人可以回答你孩子的性问题
 
-> 原文:[https://life hacker . com/this-chatbot-from-planned-parenthood-can-answer-your-te-1832153705](https://lifehacker.com/this-chatbot-from-planned-parenthood-can-answer-your-te-1832153705)
+> 原文：<https://lifehacker.com/this-chatbot-from-planned-parenthood-can-answer-your-te-1832153705>
 
 和我们的孩子谈论性 诚然，这是一件大多数父母并不期待的任务。但是公平地说，我们的孩子可能对此也不太兴奋，。
 

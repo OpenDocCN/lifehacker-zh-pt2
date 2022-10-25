@@ -1,6 +1,6 @@
 # 确保你没有下载这 17 个恶意 iOS 应用中的任何一个
 
-> 原文:[https://life hacker . com/make-sure-you-not-download-one-of-these-17-malicious-1839331632](https://lifehacker.com/make-sure-you-didnt-download-one-of-these-17-malicious-1839331632)
+> 原文：<https://lifehacker.com/make-sure-you-didnt-download-one-of-these-17-malicious-1839331632>
 
 研究人员在苹果应用商店中发现了 17 款感染了恶意软件的应用。虽然苹果已经从商店中移除了恶意应用程序，但如果你有 iPhone 或 iPad，你应该确保在移除之前没有下载过其中的任何一个。
 

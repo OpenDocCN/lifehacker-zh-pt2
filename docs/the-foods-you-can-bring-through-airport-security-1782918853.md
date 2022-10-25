@@ -1,6 +1,6 @@
 # 可以通过机场安检的食物
 
-> 原文:[https://life hacker . com/the-foods-you-can-bring-through-airport-security-1782918853](https://lifehacker.com/the-foods-you-can-bring-through-airport-security-1782918853)
+> 原文：<https://lifehacker.com/the-foods-you-can-bring-through-airport-security-1782918853>
 
 自从美国运输安全管理局颁布了[【3-1-1】规则](https://www.tsa.gov/travel/security-screening/liquids-rule) ，真正收紧了对液体、糊状物和凝胶的限制后，对于某些食品是否被允许通过机场安检一直存在一些困惑。
 

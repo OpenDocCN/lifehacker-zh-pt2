@@ -1,6 +1,6 @@
 # 绿豆“鸡蛋”素食替代品好吗？
 
-> 原文:[https://life hacker . com/is-this-egg-substitute-any-good-1837590893](https://lifehacker.com/is-this-egg-substitute-any-good-1837590893)
+> 原文：<https://lifehacker.com/is-this-egg-substitute-any-good-1837590893>
 
 寻求复制真实事物的味道和质地的纯素食食品正在经历一个时刻，看起来这个时刻可能会延长到一分钟，甚至一个小时。(这是好事，我相信。)虽然有很多方法可以模仿鸡蛋在烹饪和烘焙中的结构作用，但 [Just Egg](https://www.ju.st/en-us/products/consumer/egg/scramble) 是第一款为素食者提供早餐吃炒鸡蛋这种简单快乐的产品。
 

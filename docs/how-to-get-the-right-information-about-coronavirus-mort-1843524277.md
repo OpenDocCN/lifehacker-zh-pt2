@@ -1,6 +1,6 @@
 # 如何获得关于冠状病毒抵押付款救济的正确信息
 
-> 原文:[https://life hacker . com/how-to-get-the-right-information-about-coronavirus-mort-1843524277](https://lifehacker.com/how-to-get-the-right-information-about-coronavirus-mort-1843524277)
+> 原文：<https://lifehacker.com/how-to-get-the-right-information-about-coronavirus-mort-1843524277>
 
 今年春天通过的 CARES 法案包括为难以支付每月还款的抵押贷款持有者提供便利。但是，就像政府几乎所有的冠状病毒救援工作一样，*获得这种帮助对许多借款人来说并不容易。* 
 

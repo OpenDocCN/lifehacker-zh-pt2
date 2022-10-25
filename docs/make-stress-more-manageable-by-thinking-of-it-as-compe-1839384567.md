@@ -1,6 +1,6 @@
 # 把压力想象成“竞争”,让它变得更容易控制
 
-> 原文:[https://life hacker . com/make-stress-more-managed-by-thinking-it-as-compe-1839384567](https://lifehacker.com/make-stress-more-manageable-by-thinking-of-it-as-compe-1839384567)
+> 原文：<https://lifehacker.com/make-stress-more-manageable-by-thinking-of-it-as-compe-1839384567>
 
 压力是我们每个人都会有的，不同的是我们如何处理它。虽然在完成任务时，压力很容易让我们慢下来，甚至拖垮我们。本周, [Fast Company 发表了一篇关于压力](https://www.fastcompany.com/90416002/how-to-handle-stress-like-a-nascar-pit-crew-member) 的报道，并提出了一些应对压力的好建议，一:像飞行员一样驾驭压力。
 

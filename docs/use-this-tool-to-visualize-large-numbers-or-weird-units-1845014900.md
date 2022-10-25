@@ -1,6 +1,6 @@
 # 使用这个工具来可视化大的数字或奇怪的单位
 
-> 原文:[https://life hacker . com/use-this-tool-visualize-large-numbers-or-verged-units-1845014900](https://lifehacker.com/use-this-tool-to-visualize-large-numbers-or-weird-units-1845014900)
+> 原文：<https://lifehacker.com/use-this-tool-to-visualize-large-numbers-or-weird-units-1845014900>
 
 你有没有遇到过一个非常大的数字或者一个模糊单位的度量，然后想，我不知道它到底有多大或者有多少？如果你能和你熟悉的东西比较，比如一场篮球赛的长度或者一个浴缸的大小，不是更容易吗？
 

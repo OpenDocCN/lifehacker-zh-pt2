@@ -1,6 +1,6 @@
 # 安装 iOS 13.5 可以在戴口罩的情况下更快地解锁 iPhone
 
-> 原文:[https://life hacker . com/how-to-unlock-your-iphone-even-fast-which wear-a-f-1843162575](https://lifehacker.com/how-to-unlock-your-iphone-even-faster-while-wearing-a-f-1843162575)
+> 原文：<https://lifehacker.com/how-to-unlock-your-iphone-even-faster-while-wearing-a-f-1843162575>
 
 **2020 年 5 月 20 日下午 2:00 更新:** *iOS 13.5 现在出来了，所以你仍然可以在戴着口罩的情况下按照我们的指示解锁 iPhone。你不需要安装一个测试版来使用这个功能，只需要一个常规的 iOS 更新。虽然苹果和谷歌也正式推出了用于合同追踪的曝光通知 API，但目前还没有你需要下载的 Android 或 iOS“应用程序”。*
 

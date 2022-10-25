@@ -1,6 +1,6 @@
 # 如何确保你的脸书时间表总是从你最喜欢的人开始
 
-> 原文:[https://life hacker . com/how-to-assure-your-Facebook-timeline-always-starts-w-1839180000](https://lifehacker.com/how-to-make-sure-your-facebook-timeline-always-starts-w-1839180000)
+> 原文：<https://lifehacker.com/how-to-make-sure-your-facebook-timeline-always-starts-w-1839180000>
 
 如果你是脸书用户，那么你可能非常熟悉脸书的时间线，在那里你可以看到所有朋友的状态更新。
 

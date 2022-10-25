@@ -1,6 +1,6 @@
 # 如何摆放你的调料架(并实际使用调料)
 
-> 原文:[https://life hacker . com/how-to-konmari-your-spice-rack-and-actual-use-the-sp-1831812987](https://lifehacker.com/how-to-konmari-your-spice-rack-and-actually-use-the-sp-1831812987)
+> 原文：<https://lifehacker.com/how-to-konmari-your-spice-rack-and-actually-use-the-sp-1831812987>
 
 现在是我们不满的冬天——由于网飞发生的一些事情——人们似乎通过扔掉他们所有的垃圾来管理这种不满。我很喜欢。我一直是净化的粉丝，这延伸到了我的冰箱、冰柜和橱柜。(我每周至少整理一次冰箱，以免我失去理智。)
 

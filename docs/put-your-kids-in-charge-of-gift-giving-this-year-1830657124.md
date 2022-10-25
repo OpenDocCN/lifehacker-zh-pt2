@@ -1,6 +1,6 @@
 # 今年让你的孩子负责送礼物
 
-> 原文:[https://life hacker . com/put-your-kids-in-charge-the-gifting-this-year-1830657124](https://lifehacker.com/put-your-kids-in-charge-of-gift-giving-this-year-1830657124)
+> 原文：<https://lifehacker.com/put-your-kids-in-charge-of-gift-giving-this-year-1830657124>
 
 它始于几年前给我嫂子(或者她被称为“阿姨”)的一份圣诞礼物:在试图为我们这个大家庭的所有成员选择礼物时，我用尽了创造性的想法。我问我当时四岁的儿子他想给阿姨买什么。
 

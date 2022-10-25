@@ -1,6 +1,6 @@
 # 写下你的悼词来理清你的人生
 
-> 原文:[https://life hacker . com/write-your-du 颂-to-figure-out-of-your-life-1830490262](https://lifehacker.com/write-your-eulogy-to-figure-out-your-life-1830490262)
+> 原文：<https://lifehacker.com/write-your-eulogy-to-figure-out-your-life-1830490262>
 
 人类醒着的时候会花很多时间来避免思考我们不可避免的结局。这可能是最好的，因为沉湎于死亡是一种病态的练习。但是，事实证明，当你试图弄清楚自己的生活时，这也是一件非常有用的事情。
 

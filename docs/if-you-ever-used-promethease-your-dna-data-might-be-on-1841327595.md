@@ -1,6 +1,6 @@
 # 如果你曾经用过普罗米修斯，你的 DNA 数据现在可能在我的遗产中
 
-> 原文:[https://life hacker . com/if-you-ever-use-promethease-your-DNA-data-may-on-1841327595](https://lifehacker.com/if-you-ever-used-promethease-your-dna-data-might-be-on-1841327595)
+> 原文：<https://lifehacker.com/if-you-ever-used-promethease-your-dna-data-might-be-on-1841327595>
 
 说到了解你的 DNA 的方法，普罗米修斯公司的服务似乎是最安全的。他们承诺匿名，并在 45 天后删除你的报告。但是现在 [MyHeritage](https://www.myheritage.com/) 已经收购了这家公司，用户被告知他们的 DNA 数据现在在 MyHeritage 上。等等，什么？
 

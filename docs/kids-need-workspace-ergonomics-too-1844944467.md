@@ -1,6 +1,6 @@
 # 孩子们也需要工作空间人体工程学
 
-> 原文:[https://life hacker . com/kids-need-workspace-ergonomics-too-184494467](https://lifehacker.com/kids-need-workspace-ergonomics-too-1844944467)
+> 原文：<https://lifehacker.com/kids-need-workspace-ergonomics-too-1844944467>
 
 不再只有成年人会一次在电脑屏幕前呆上几个小时；随着本学年孩子们在家学习的时间增加，通常是使用 Chromebooks 或其他笔记本电脑，确保它们尽可能设置在最佳的人体工程学位置非常重要。在年轻时养成良好的习惯将会减少现在和将来发生疼痛或受伤的可能性。
 

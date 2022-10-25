@@ -1,6 +1,6 @@
 # 在让自己购买大件商品之前，先实现一个个人目标
 
-> 原文:[https://life hacker . com/achieve-a-personal-goal before-make-a-yourself-a-1834671522](https://lifehacker.com/achieve-a-personal-goal-before-letting-yourself-make-a-1834671522)
+> 原文：<https://lifehacker.com/achieve-a-personal-goal-before-letting-yourself-make-a-1834671522>
 
 我们都为自己建立了奖励系统。也许我们告诉自己，如果我们花一整天打扫房子，我们可以订购一个披萨，或者也许我们告诉自己，一旦我们在工作中完成这项任务，我们可以花几分钟检查社交媒体。(然后，如果我们发现自己在完成任务前查看社交媒体，我们会告诉自己，我们要设置一个社交网站屏蔽器。)
 

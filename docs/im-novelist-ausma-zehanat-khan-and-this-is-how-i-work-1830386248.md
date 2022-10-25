@@ -1,6 +1,6 @@
 # 我是小说家奥斯马·泽哈纳特·汗，这就是我的工作方式
 
-> 原文:[https://life hacker . com/im-小说家-ausma-ze hanat-Khan-and-this-is-how-I-work-1830386248](https://lifehacker.com/im-novelist-ausma-zehanat-khan-and-this-is-how-i-work-1830386248)
+> 原文：<https://lifehacker.com/im-novelist-ausma-zehanat-khan-and-this-is-how-i-work-1830386248>
 
 在*黑可汗*、、奥斯马·泽哈纳可汗最新奇幻小说中，一个 抵抗组织 奋力推翻一个暴君领导的残酷父权制。你知道，逃避现实的东西。可汗的作品被拿来与乔治·R·R·马丁的作品相提并论，但它也探索了当代和历史世界激发的文化分歧和冲突。我们采访了可汗，她谈到了放弃法律职业去写作，她如何获得和给予其他小说家的帮助，以及写一本书如何改变她工作的房间。
 

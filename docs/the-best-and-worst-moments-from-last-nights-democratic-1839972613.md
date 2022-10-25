@@ -1,6 +1,6 @@
 # 昨晚民主党辩论的最佳和最差时刻
 
-> 原文:[https://life hacker . com/the-best-and-worth-moments-from the last-nights-democratic-1839972613](https://lifehacker.com/the-best-and-worst-moments-from-last-nights-democratic-1839972613)
+> 原文：<https://lifehacker.com/the-best-and-worst-moments-from-last-nights-democratic-1839972613>
 
 结束了漫长的一天 [弹劾听证会证词](https://www.cnn.com/2019/11/20/politics/gordon-sondland-hearing-takeaways/index.html)[昨晚的民主辩论](https://www.washingtonpost.com/politics/2019/11/21/transcript-november-democratic-debate/) 中，10 名总统候选人就充足的带薪家庭假、妇女生育权和罗伊诉韦德案以及美国在香港持续抗议和暴力中的作用等问题进行了辩论。
 

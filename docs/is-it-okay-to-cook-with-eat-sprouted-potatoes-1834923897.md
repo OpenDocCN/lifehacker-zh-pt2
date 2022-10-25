@@ -1,6 +1,6 @@
 # 用发芽的土豆做菜可以吗？
 
-> 原文:[https://the take out . com/is-it-okay-to-cook-with-eat 发芽马铃薯-1834923897](https://thetakeout.com/is-it-okay-to-cook-with-eat-sprouted-potatoes-1834923897)
+> 原文：<https://thetakeout.com/is-it-okay-to-cook-with-eat-sprouted-potatoes-1834923897>
 
 每年的这个时候，你可能会从杂货店带一袋土豆回家，却发现一两天后它们就发芽了。怎么回事？
 

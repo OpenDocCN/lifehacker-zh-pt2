@@ -1,6 +1,6 @@
 # 如何在你的非像素安卓系统上试用谷歌手机应用
 
-> 原文:[https://life hacker . com/how-to-try-Google-phone-app-on-your-non-pixel-Android-1844699947](https://lifehacker.com/how-to-try-googles-phone-app-on-your-non-pixel-android-1844699947)
+> 原文：<https://lifehacker.com/how-to-try-googles-phone-app-on-your-non-pixel-android-1844699947>
 
 厌倦了你的手机...电话应用？如果你不想要，你不必一直使用它，现在你可能可以在你的 Android 上尝试谷歌的手机应用程序——以前仅限于其 Pixel 手机。
 

@@ -1,6 +1,6 @@
 # 制作动画 gif 的完整指南
 
-> 原文:[https://life hacker . com/the-complete-guide-to-making-animated-gifs-1503276993](https://lifehacker.com/the-complete-guide-to-making-animated-gifs-1503276993)
+> 原文：<https://lifehacker.com/the-complete-guide-to-making-animated-gifs-1503276993>
 
 有时，对群聊或电子邮件的最佳回应是一个强有力的 GIF——一个小动画，它可以比你键入的内容更好地表达你的感受。虽然你可以在你最喜欢的消息应用程序中轻敲几下手机键盘，找到大量适合各种场合的 gif，但如果你可以制作自己的 gif，为什么要使用相同的“deal with it . gif”meme 呢？
 

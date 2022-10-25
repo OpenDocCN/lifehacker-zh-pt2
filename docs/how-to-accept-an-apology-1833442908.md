@@ -1,6 +1,6 @@
 # 如何接受道歉
 
-> 原文:[https://lifehacker.com/how-to-accept-an-apology-1833442908](https://lifehacker.com/how-to-accept-an-apology-1833442908)
+> 原文：<https://lifehacker.com/how-to-accept-an-apology-1833442908>
 
 由衷的道歉可能会很艰难；承认自己错了需要自省，谦虚，脆弱。但是接受道歉的人的粗鲁经常会加剧已经不舒服的情况。Redditor
 

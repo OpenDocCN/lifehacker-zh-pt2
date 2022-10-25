@@ -1,6 +1,6 @@
 # 如何在社交媒体上拒绝某人
 
-> 原文:[https://life hacker . com/how-to-reject-someone-on-social-media-1832464867](https://lifehacker.com/how-to-reject-someone-on-social-media-1832464867)
+> 原文：<https://lifehacker.com/how-to-reject-someone-on-social-media-1832464867>
 
 我不得不在社交媒体上处理这么多愚蠢的事情，这让我想至少每周退出一次我所在的几乎每个网站。你肯定也有过这种感觉——也许是因为一个讨厌的朋友，一种拒绝消亡的趋势，或者一些充斥着种族主义和白痴的政治话语。
 

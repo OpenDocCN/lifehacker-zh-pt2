@@ -1,6 +1,6 @@
 # 如何直播今晚 2020 年民主党候选人关于气候变化的市政厅会议
 
-> 原文:[https://life hacker . com/how-to-stream-tonights-2020-democratic-candidate-town-h-1837868200](https://lifehacker.com/how-to-stream-tonights-2020-democratic-candidate-town-h-1837868200)
+> 原文：<https://lifehacker.com/how-to-stream-tonights-2020-democratic-candidate-town-h-1837868200>
 
 从美国东部时间今天下午 5 点开始，CNN 将采访 10 位民主党总统候选人，询问他们应对气候变化的计划。与辩论不同，每位候选人将有 40 分钟时间回答 CNN 主持人和演播室观众的问题；整个论坛预计将持续七个小时。
 

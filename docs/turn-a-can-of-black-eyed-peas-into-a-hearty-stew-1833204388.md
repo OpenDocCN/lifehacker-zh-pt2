@@ -1,6 +1,6 @@
 # 将一罐黑眼豌豆做成丰盛的炖菜
 
-> 原文:[https://life hacker . com/turn-a-can-of-black-eyed-peas-to-a-heartly-stew-1833204388](https://lifehacker.com/turn-a-can-of-black-eyed-peas-into-a-hearty-stew-1833204388)
+> 原文：<https://lifehacker.com/turn-a-can-of-black-eyed-peas-into-a-hearty-stew-1833204388>
 
 我从没想过我会这么说，但我对罐装黑眼豆豆相当着迷。没错，它们使 [成为一道美味的鹰嘴豆泥](https://lifehacker.com/black-eyed-pea-hummus-will-make-your-new-year-better-1831468123) ，但它们也是一道极其美味的炖菜的完美基础，这道菜不到 15 分钟就能上桌。
 

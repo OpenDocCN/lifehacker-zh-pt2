@@ -1,6 +1,6 @@
 # 你好 pozole 再见 hangover
 
-> 原文:[https://the take out . com/recipe-Mexican-pozole-hominy-stew-1831035614](https://thetakeout.com/recipe-mexican-pozole-hominy-stew-1831035614)
+> 原文：<https://thetakeout.com/recipe-mexican-pozole-hominy-stew-1831035614>
 
 Pozole 是一种在墨西哥烹饪民间传说中过着两种生活的炖菜。就像一个肩膀上的天使一样，pozole 可以作为一种无辜的冬季热身，作为节日大餐与家人一起享用。或者，像另一个肩膀上的魔鬼一样，一个已知的宿醉疗法敦促你出去喝掉所有的酒。
 

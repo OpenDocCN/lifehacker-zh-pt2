@@ -1,6 +1,6 @@
 # 大麻会改善你的锻炼吗？
 
-> 原文:[https://life hacker . com/will-cannabis-improve-your-workouts-1834142064](https://lifehacker.com/will-cannabis-improve-your-workouts-1834142064)
+> 原文：<https://lifehacker.com/will-cannabis-improve-your-workouts-1834142064>
 
 一份你在兴奋时不应该做的事情的简单清单:开车、网上购物、看皮克斯电影、找朋友、给建议——但是跑步或举重呢？
 

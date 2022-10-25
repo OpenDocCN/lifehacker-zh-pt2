@@ -1,6 +1,6 @@
 # 如何真正享受你的休息时间
 
-> 原文:[https://life hacker . com/how-to-make-the-most-your-affair-time-1840538034](https://lifehacker.com/how-to-make-the-most-of-your-leisure-time-1840538034)
+> 原文：<https://lifehacker.com/how-to-make-the-most-of-your-leisure-time-1840538034>
 
 如果你假期有时间，你会用它来做一些有趣的事情吗？你今晚的空闲时间怎么样——什么会让你觉得这段时间很愉快，很有恢复力？这里有一个想法:也许你需要确保你有两种不同的乐趣。
 

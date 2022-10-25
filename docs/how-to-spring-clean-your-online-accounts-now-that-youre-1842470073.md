@@ -1,6 +1,6 @@
 # 当你被困在家里时，如何彻底清理你的在线账户
 
-> 原文:[https://gizmodo . com/how-to-spring-clean-your-now-than-you-1842470073](https://gizmodo.com/how-to-spring-clean-your-online-accounts-now-that-youre-1842470073)
+> 原文：<https://gizmodo.com/how-to-spring-clean-your-online-accounts-now-that-youre-1842470073>
 
 与世隔绝在家意味着你有更多的时间设置你的 [*动物穿越*](https://kotaku.com/animal-crossing-new-horizons-is-the-escape-we-all-need-1842320037) 岛屿和狂欢关于 [迪士尼加](https://gizmodo.com/how-to-get-the-most-out-of-your-disney-plus-subscriptio-1842392816) ，但是这也是一个好机会来完成一些你一直在拖延的数字琐事。您的在线安全、设备安全和安心都有赖于此。
 

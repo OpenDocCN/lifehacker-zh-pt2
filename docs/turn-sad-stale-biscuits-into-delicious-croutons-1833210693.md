@@ -1,6 +1,6 @@
 # 把悲伤、不新鲜的饼干变成美味的面包丁
 
-> 原文:[https://life hacker . com/turn-sad-stale-biscuits-into-delicious-croutons-1833210693](https://lifehacker.com/turn-sad-stale-biscuits-into-delicious-croutons-1833210693)
+> 原文：<https://lifehacker.com/turn-sad-stale-biscuits-into-delicious-croutons-1833210693>
 
 昨天早上，我决定把我为 [这篇关于红眼肉汁](https://lifehacker.com/use-stale-leftover-coffee-to-make-red-eye-gravy-1833132999) 的文章买的剩余饼干烤了。我的男朋友在外面闲逛，因为他是一个在建筑工地工作的家伙，我想他至少会吃四个中的两个。我烤了饼干，给了他一份——还有火腿——却被告知他“不喜欢饼干。”
 

@@ -1,6 +1,6 @@
 # 用少许盐软化预先切好的胡萝卜丝
 
-> 原文:[https://life hacker . com/defense-pre-切丝胡萝卜-加一点盐-1844437368](https://lifehacker.com/soften-pre-shredded-carrots-with-a-little-salt-1844437368)
+> 原文：<https://lifehacker.com/soften-pre-shredded-carrots-with-a-little-salt-1844437368>
 
 一袋预先切好的胡萝卜丝可能看起来非常方便，但通常干燥、莫名其妙地像橡胶一样的蔬菜丝让我想起了太多悲伤的沙拉。即使我完全意识到我喜欢新鲜的胡萝卜丝远远超过袋装的，我还是无法抗拒懒惰的诱惑。(目前我冰箱里有两包胡萝卜丝。幸运的是，接近脱水的蔬菜丝可以变回柔韧可口的样子；你只需要一点盐。
 

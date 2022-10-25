@@ -1,6 +1,6 @@
 # 如何阻止亚马逊审查您的 Alexa Convos
 
-> 原文:[https://life hacker . com/how-to-prevent-Amazon-review-your-Alexa-concos-1836938142](https://lifehacker.com/how-to-prevent-amazon-from-reviewing-your-alexa-convos-1836938142)
+> 原文：<https://lifehacker.com/how-to-prevent-amazon-from-reviewing-your-alexa-convos-1836938142>
 
 在 [卫报的一篇报道披露苹果公司本周使用人类承包商](https://www.theguardian.com/technology/2019/jul/26/apple-contractors-regularly-hear-confidential-details-on-siri-recordings) 审查其 Siri 录音后，苹果公司决定暂时中止该程序。谷歌紧随其后推出了它的虚拟助手，现在亚马逊也为 Alexa 做了同样的事情——只是它没有放弃人工评论，而是增加了明确选择退出的选项。
 

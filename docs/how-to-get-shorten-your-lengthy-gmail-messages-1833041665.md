@@ -1,6 +1,6 @@
 # 如何缩短冗长的 Gmail 邮件
 
-> 原文:[https://life hacker . com/how-to-get-shorten-your-long-Gmail-messages-1833041665](https://lifehacker.com/how-to-get-shorten-your-lengthy-gmail-messages-1833041665)
+> 原文：<https://lifehacker.com/how-to-get-shorten-your-lengthy-gmail-messages-1833041665>
 
 我写长邮件。这是我应该打破的习惯，但我倾向于错误的全面回复而不是简短的回复。几个副词后来和*轰！*这就像在你的收件箱里阅读一篇*纽约客*的文章。
 

@@ -1,6 +1,6 @@
 # 如果你戴隐形眼镜，现在考虑换成眼镜
 
-> 原文:[https://life hacker . com/if-you-wear-contacts-consider-switching-to-glasses-for-1842912934](https://lifehacker.com/if-you-wear-contacts-consider-switching-to-glasses-for-1842912934)
+> 原文：<https://lifehacker.com/if-you-wear-contacts-consider-switching-to-glasses-for-1842912934>
 
 美国眼科学会(AAO)表示，如果你戴隐形眼镜，你可能会想 [考虑换成眼镜](https://www.aao.org/eye-health/tips-prevention/coronavirus-covid19-eye-infection-pinkeye) 。
 

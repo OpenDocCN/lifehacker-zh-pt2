@@ -1,6 +1,6 @@
 # “Verbage”不是一个词
 
-> 原文:[https://lifehacker.com/verbage-is-not-a-word-1837711169](https://lifehacker.com/verbage-is-not-a-word-1837711169)
+> 原文：<https://lifehacker.com/verbage-is-not-a-word-1837711169>
 
 如果你曾经不得不停下来问自己，“嗯，这里哪个词是正确的...*啰嗦*或*啰嗦*，“我为你准备了完美的记忆术:*啰嗦*是*垃圾*。
 

@@ -1,6 +1,6 @@
 # what happens to your domain when you die 1840265975
 
-> 原文:[https://life hacker . com/what-happens-to-your-domain-what-happens-to-when-you-die-1840265975](https://lifehacker.com/what-happens-to-your-domain-when-you-die-1840265975)
+> 原文：<https://lifehacker.com/what-happens-to-your-domain-when-you-die-1840265975>
 
 无论有多少科幻电影描述它，我们都无法通过将我们意识的数字版本上传到云端来实现永生。
 

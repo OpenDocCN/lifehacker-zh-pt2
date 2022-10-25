@@ -1,6 +1,6 @@
 # 你要死了吗？！现在就问两位医生你的健康问题[更新:结束]
 
-> 原文:[https://life hacker . com/are-you-dye-ask-two-doctors-your-health-questions-r-1839234949](https://lifehacker.com/are-you-dying-ask-two-doctors-your-health-questions-r-1839234949)
+> 原文：<https://lifehacker.com/are-you-dying-ask-two-doctors-your-health-questions-r-1839234949>
 
 在一个被存在主义恐惧淹没的世界——主要是由深夜的 WebMD 搜索引起的——life hacker 坚决反对胡说八道。
 

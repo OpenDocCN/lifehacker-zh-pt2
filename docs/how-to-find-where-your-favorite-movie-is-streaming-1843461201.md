@@ -1,6 +1,6 @@
 # 如何找到您最喜爱的电影正在播放的位置
 
-> 原文:[https://life hacker . com/how-to-find-where-your favorite-movie-is-streaming-1843461201](https://lifehacker.com/how-to-find-where-your-favorite-movie-is-streaming-1843461201)
+> 原文：<https://lifehacker.com/how-to-find-where-your-favorite-movie-is-streaming-1843461201>
 
 流媒体大战正在进行中。苹果、NBC、HBO、网飞、Hulu、迪士尼和无数其他公司都在争夺我们的注意力，争夺我们最喜爱的节目和电影的独家版权。那么，你如何弄清楚什么在哪里、什么时候、流了多长时间？在上面的视频中，我介绍了一些追踪你最喜欢的节目和电影的方法。
 

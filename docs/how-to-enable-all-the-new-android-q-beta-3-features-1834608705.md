@@ -1,6 +1,6 @@
 # 如何启用 Android Q Beta 3 的所有新功能
 
-> 原文:[https://life hacker . com/how-to-enable-all-the-new-Android-q-beta-3-features-1834608705](https://lifehacker.com/how-to-enable-all-the-new-android-q-beta-3-features-1834608705)
+> 原文：<https://lifehacker.com/how-to-enable-all-the-new-android-q-beta-3-features-1834608705>
 
 截至昨天谷歌 I/O 2019 的大型启动仪式，Android Q Beta 3 现已面向公众开放。我可能是那个在新闻区疯狂地试图下载我的 Pixel 3 XL 设备的任何和所有更新的人。(不好意思，其他人。)
 

@@ -1,6 +1,6 @@
 # 不要认为精油对皮肤是安全的
 
-> 原文:[https://life hacker . com/don-assume-精油对皮肤是安全的-1831556025](https://lifehacker.com/dont-assume-essential-oils-are-safe-for-skin-1831556025)
+> 原文：<https://lifehacker.com/dont-assume-essential-oils-are-safe-for-skin-1831556025>
 
 精油可能是天然的，但这并不意味着它们总是健康的或对你有益的。它们是植物出于各种原因制造的化学物质的高度浓缩版本:一些是为了吸引授粉者，一些是为了击退或伤害它们的天敌。
 

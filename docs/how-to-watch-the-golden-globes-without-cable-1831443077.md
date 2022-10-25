@@ -1,6 +1,6 @@
 # 如何不用有线电视看金球奖
 
-> 原文:[https://life hacker . com/how-to-watch-the golden-globes-with-wireless-1831443077](https://lifehacker.com/how-to-watch-the-golden-globes-without-cable-1831443077)
+> 原文：<https://lifehacker.com/how-to-watch-the-golden-globes-without-cable-1831443077>
 
 金球奖今晚正式播出。该节目今年由安迪·萨姆伯格和吴珊卓主持，于美国东部时间晚上 8 点/下午 5 点在贝弗利山正式拉开帷幕。今年的节目还将推出一个新的奖项，卡洛尔·伯纳特奖，该奖项将在播出期间颁发给伯内特。
 

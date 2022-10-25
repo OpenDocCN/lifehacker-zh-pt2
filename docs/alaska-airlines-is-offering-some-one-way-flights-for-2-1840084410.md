@@ -1,6 +1,6 @@
 # 阿拉斯加航空公司在黑色星期五提供一些单程航班，票价为 29 美元
 
-> 原文:[https://life hacker . com/Alaska-airlines-is-provide-some-one-way-flights-for-2-1840084410](https://lifehacker.com/alaska-airlines-is-offering-some-one-way-flights-for-2-1840084410)
+> 原文：<https://lifehacker.com/alaska-airlines-is-offering-some-one-way-flights-for-2-1840084410>
 
 阿拉斯加航空公司今天举行了今年最大的票价促销活动之一，其中包括一些低至 29 美元的航班。
 

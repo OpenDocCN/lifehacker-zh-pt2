@@ -1,6 +1,6 @@
 # 如何不养恶霸
 
-> 原文:[https://lifehacker.com/how-to-not-raise-a-bully-1830877035](https://lifehacker.com/how-to-not-raise-a-bully-1830877035)
+> 原文：<https://lifehacker.com/how-to-not-raise-a-bully-1830877035>
 
 昨天我写了一篇关于如何 [帮助你的儿子驾驭“坏男孩”关系](https://offspring.lifehacker.com/help-your-sons-navigate-mean-boy-relationships-1830826960) 的故事。这让我想到:有很多恶霸在外面游荡。你怎么确定你的孩子不是他们中的一员？
 

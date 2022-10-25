@@ -1,6 +1,6 @@
 # 年轻人可能会因新冠肺炎而患上严重的并发症
 
-> 原文:[https://life hacker . com/young-people-can-get-serious-compositions-from-covid-1-1842415846](https://lifehacker.com/young-people-can-get-serious-complications-from-covid-1-1842415846)
+> 原文：<https://lifehacker.com/young-people-can-get-serious-complications-from-covid-1-1842415846>
 
 到目前为止，我们都至少从生活中的一个人那里听到过这句话:“我不担心感染新冠肺炎，因为我还年轻。”这是那些在海滩上开派对的[旅行者](https://www.nytimes.com/2020/03/13/travel/coronavirus-travel-deals.html) 利用廉价交易，或者拥挤在酒吧里的 [年轻职业人士](https://www.nytimes.com/2020/03/14/opinion/coronavirus-bars-lockdown.html) 给出的理由。
 

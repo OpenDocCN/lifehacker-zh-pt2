@@ -1,6 +1,6 @@
 # 今天就更新你宠物的微芯片信息
 
-> 原文:[https://life hacker . com/update-your-pets-microchip-information-today-1837278385](https://lifehacker.com/update-your-pets-microchip-information-today-1837278385)
+> 原文：<https://lifehacker.com/update-your-pets-microchip-information-today-1837278385>
 
 聪明的做法是给你的宠物植入微芯片，这样如果它们走失了，你就可以和它们团聚，但是别忘了这个计划还有另一个步骤:更新你的信息，这样无论谁发现了你的宠物，都能联系到你。
 

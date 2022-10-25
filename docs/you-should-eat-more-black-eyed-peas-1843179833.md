@@ -1,6 +1,6 @@
 # 你应该多吃黑眼豌豆
 
-> 原文:[https://life hacker . com/you-should-eat-more-black-eyed-peas-1843179833](https://lifehacker.com/you-should-eat-more-black-eyed-peas-1843179833)
+> 原文：<https://lifehacker.com/you-should-eat-more-black-eyed-peas-1843179833>
 
 目前很难找到某些豆子的罐头，主要是黑豆和鹰嘴豆。但是罐装黑眼豆豆很丰富，没有足够多的人利用它们的多功能性。
 

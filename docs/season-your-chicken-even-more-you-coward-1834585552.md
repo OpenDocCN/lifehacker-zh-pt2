@@ -1,6 +1,6 @@
 # 你这个胆小鬼，给你的鸡多加点调料
 
-> 原文:[https://life hacker . com/season-your-chicken-even-more-you-coward-1834585552](https://lifehacker.com/season-your-chicken-even-more-you-coward-1834585552)
+> 原文：<https://lifehacker.com/season-your-chicken-even-more-you-coward-1834585552>
 
 除了将洋葱切丁之外，很少有食物像烤鸡一样被广泛报道。原因是显而易见的——这是一种温馨舒适的蛋白质来源，可以在放进烤箱之前反复使用，并在之后的一周内重新使用。做一只好吃的烤鸡很容易，但是做一只普通的烤鸡也不是很难。
 

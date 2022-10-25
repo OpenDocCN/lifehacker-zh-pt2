@@ -1,6 +1,6 @@
 # 如何用 Folding@Home 辅助冠状病毒研究
 
-> 原文:[https://life hacker . com/how-to-assist-coronavirus-research-with-folding-home-1842270929](https://lifehacker.com/how-to-assist-coronavirus-research-with-folding-home-1842270929)
+> 原文：<https://lifehacker.com/how-to-assist-coronavirus-research-with-folding-home-1842270929>
 
 回想我在*最大 PC* 工作的时候，我们是 [大进折](https://stats.foldingathome.org/team/11108) 。我们有一个由编辑、读者和计算机组成的庞大团队为斯坦福大学的项目做出贡献，该项目将你系统中未使用的资源用于 [蛋白质折叠](https://foldingathome.org/support/faq/project-details/) 。您的系统加入了一个分布式计算网络，为研究人员处理计算，让他们了解如何治疗癌症、帕金森病和现在的新冠肺炎等疾病。
 

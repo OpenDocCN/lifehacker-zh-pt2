@@ -1,6 +1,6 @@
 # 如何更新您的 Mac 及其所有应用程序
 
-> 原文:[https://life hacker . com/how-to-update-your-MAC-and-all-of-its-apps-1843443820](https://lifehacker.com/how-to-update-your-mac-and-all-of-its-apps-1843443820)
+> 原文：<https://lifehacker.com/how-to-update-your-mac-and-all-of-its-apps-1843443820>
 
 更新您的 Mac 很容易。如果你只是从 Mac App Store 下载应用程序，保持那些更新的 [也很容易](#macapps) 。但是如果你想确保你 Mac 上的[](#otherapps)*都有最新的功能和安全补丁，我们有一些小技巧可以帮你。*
 

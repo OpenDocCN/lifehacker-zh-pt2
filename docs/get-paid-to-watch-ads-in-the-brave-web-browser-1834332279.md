@@ -1,6 +1,6 @@
 # 在勇敢的网络浏览器中观看广告即可获得报酬
 
-> 原文:[https://life hacker . com/get-payed-to-watch-ads-in-the-brave-web-browser-1834332279](https://lifehacker.com/get-paid-to-watch-ads-in-the-brave-web-browser-1834332279)
+> 原文：<https://lifehacker.com/get-paid-to-watch-ads-in-the-brave-web-browser-1834332279>
 
 Brave 是一款基于 chromium 的网络浏览器，号称拥有无广告浏览体验，现在将向观看广告的用户付费。没错——广告拦截浏览器现在将运行广告，但比我们习惯的方式更周到。
 

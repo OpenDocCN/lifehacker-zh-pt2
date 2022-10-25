@@ -1,6 +1,6 @@
 # 旗舰智能手机对决:谷歌的 Pixel 4 怎么样？
 
-> 原文:[https://life hacker . com/旗舰-智能手机-smack down-how-Google-pixel-4-1839235187](https://lifehacker.com/flagship-smartphone-smackdown-how-does-googles-pixel-4-1839235187)
+> 原文：<https://lifehacker.com/flagship-smartphone-smackdown-how-does-googles-pixel-4-1839235187>
 
 谷歌上个月推出的 Pixel 4 配备了大量新功能，如面部解锁、后置长焦镜头和天文摄影功能。当黑色星期五在几周内到来时，这些足以将像素放在你购物清单的首位吗？让我们快速看看 Pixel 4 如何与三星、苹果和其他所有人最热门的设备相抗衡。
 

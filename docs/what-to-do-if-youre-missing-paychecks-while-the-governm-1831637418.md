@@ -1,6 +1,6 @@
 # 当政府关门时，如果你的工资不见了，该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-you-missing-pay checks-while-the-government-1831637418](https://lifehacker.com/what-to-do-if-youre-missing-paychecks-while-the-governm-1831637418)
+> 原文：<https://lifehacker.com/what-to-do-if-youre-missing-paychecks-while-the-governm-1831637418>
 
 受联邦政府关闭影响的 80 万联邦工作人员中的一些人，现在已经进入第 19 天，他们发起了众筹活动来支付基本费用， [石英报道](https://qz.com/1519556/unpaid-us-federal-workers-are-asking-for-donations-to-survive-through-the-shutdown/) 。
 

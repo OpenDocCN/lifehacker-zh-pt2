@@ -1,6 +1,6 @@
 # 如何流租:活！今晚
 
-> 原文:[https://life hacker . com/how-to-stream-rent-live-tonight-1832100845](https://lifehacker.com/how-to-stream-rent-live-tonight-1832100845)
+> 原文：<https://lifehacker.com/how-to-stream-rent-live-tonight-1832100845>
 
 有史以来最受欢迎的音乐剧之一 *Rent* 今晚将在你的客厅首演，只上演一个晚上。福克斯正在播出*出租:直播！*美国东部时间今晚 8 点，其他时区的人会有一段延迟时间。现场直播将由迈克尔·格雷夫(Michael Greif)执导，他执导了最初的舞台版本，并将由凡妮莎·哈金斯、乔丹·费舍尔(Jordan Fisher)和布兰登·维克托·迪克森(Brandon Victor Dixon)等人主演。
 

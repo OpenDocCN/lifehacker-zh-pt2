@@ -1,6 +1,6 @@
 # 如果检查发现二手车有问题，我该怎么办？
 
-> 原文:[https://jalopnik . com/what-do-I-do-if-an-inspection-discloses-on-a-use-1838092990](https://jalopnik.com/what-do-i-do-if-an-inspection-reveals-issues-on-a-used-1838092990)
+> 原文：<https://jalopnik.com/what-do-i-do-if-an-inspection-reveals-issues-on-a-used-1838092990>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。我决定挑几个问题，试着帮帮大家。本周，我们将讨论二手车检查中发现的问题，取消保修，以及经销商需要多长时间找到一辆车。
 

@@ -1,6 +1,6 @@
 # 如何让你的孩子和他们在《我的世界》的朋友联系起来
 
-> 原文:[https://life hacker . com/how-to-connect-your-kids-on-minecraf-1843615098](https://lifehacker.com/how-to-connect-your-kids-with-their-friends-on-minecraf-1843615098)
+> 原文：<https://lifehacker.com/how-to-connect-your-kids-with-their-friends-on-minecraf-1843615098>
 
 如果你的孩子和我的一样，他们已经花了几千个小时的隔离时间来玩《我的世界》。但是如果他们只是在单人模式下玩《我的世界》，他们就错过了——不仅错过了大量有趣的游戏选项，还错过了与朋友社交的机会。《我的世界》就像一个虚拟的游乐场，孩子们可以在那里一起玩耍，但没有疾病可以传播。
 

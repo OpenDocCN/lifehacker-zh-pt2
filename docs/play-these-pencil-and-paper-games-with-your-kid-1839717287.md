@@ -1,6 +1,6 @@
 # 和你的孩子玩这些“纸笔游戏”
 
-> 原文:[https://life hacker . com/play-these-pencil and-paper-games-with-your-kid-1839717287](https://lifehacker.com/play-these-pencil-and-paper-games-with-your-kid-1839717287)
+> 原文：<https://lifehacker.com/play-these-pencil-and-paper-games-with-your-kid-1839717287>
 
 在为人父母的过程中，很多时候你会发现自己和孩子在某个地方，等待着什么事情发生。你可能在等医生给你回电话预约，等你的食物送到餐厅，或者等飞机降落。你需要做些事情，所以你翻开餐馆的纸质菜单，或者从钱包里拿出一张旧收据，玩一个小游戏来打发时间。
 

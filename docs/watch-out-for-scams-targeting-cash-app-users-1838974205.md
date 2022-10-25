@@ -1,6 +1,6 @@
 # 警惕针对现金应用用户的诈骗
 
-> 原文:[https://life hacker . com/watch-out-for-scams-targeting-cash-app-users-1838974205](https://lifehacker.com/watch-out-for-scams-targeting-cash-app-users-1838974205)
+> 原文：<https://lifehacker.com/watch-out-for-scams-targeting-cash-app-users-1838974205>
 
 转账应用 Cash App 周五送钱。如果你在 Twitter 或 Instagram 上关注该公司，你可能是通过回复一个#CashAppFriday 帖子，用你的应用程序用户 ID 进入的。
 

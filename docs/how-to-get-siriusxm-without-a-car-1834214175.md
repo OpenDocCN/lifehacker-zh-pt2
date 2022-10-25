@@ -1,6 +1,6 @@
 # 如何获得 SiriusXM——无需汽车
 
-> 原文:[https://life hacker . com/how-to-get-siriusxm-without-a-car-1834214175](https://lifehacker.com/how-to-get-siriusxm-without-a-car-1834214175)
+> 原文：<https://lifehacker.com/how-to-get-siriusxm-without-a-car-1834214175>
 
 订阅 SiriusXM 的卫星广播平台之前需要一个兼容的汽车音响。甚至通过 Alexa 扬声器或流媒体盒子等设备访问频道也是只有那些基于汽车订阅的用户才可以选择的。然而，由于 SiriusXM 新的家庭和移动流媒体计划，这不再是一个问题，它根本不需要你拥有一辆汽车。
 

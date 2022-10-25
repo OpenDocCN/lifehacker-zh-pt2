@@ -1,6 +1,6 @@
 # 告诉我们你最好的疫情育儿秘诀
 
-> 原文:[https://life hacker . com/tell-us-your-best-疫情-育儿-hacks-1842919580](https://lifehacker.com/tell-us-your-best-pandemic-parenting-hacks-1842919580)
+> 原文：<https://lifehacker.com/tell-us-your-best-pandemic-parenting-hacks-1842919580>
 
 在冠状病毒危机中，我们真的开始在疫情育儿方面做得更好了吗？我们中的许多人已经经历了几个星期，并且非常严肃地经历了许多——如果不是全部的话——对我们的日常生活变得如此悲伤的阶段。然而，我们做了父母一直在做的事情——我们找到了让它运转的方法。我们又活过了一天，有时，我们甚至会发现一个随机的小把戏。
 

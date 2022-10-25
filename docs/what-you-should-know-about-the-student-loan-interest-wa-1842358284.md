@@ -1,6 +1,6 @@
 # 关于学生贷款利息减免你应该知道什么
 
-> 原文:[https://life hacker . com/what-you-should-know-on-student-loan-interest-wa-1842358284](https://lifehacker.com/what-you-should-know-about-the-student-loan-interest-wa-1842358284)
+> 原文：<https://lifehacker.com/what-you-should-know-about-the-student-loan-interest-wa-1842358284>
 
 周五，特朗普总统表示，他将免除联邦学生贷款的利息(T2)。但这一举措并不像听起来那么令人兴奋。
 

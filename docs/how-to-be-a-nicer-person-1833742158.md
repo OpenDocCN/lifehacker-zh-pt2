@@ -1,6 +1,6 @@
 # 如何成为一个更好的人
 
-> 原文:[https://lifehacker.com/how-to-be-a-nicer-person-1833742158](https://lifehacker.com/how-to-be-a-nicer-person-1833742158)
+> 原文：<https://lifehacker.com/how-to-be-a-nicer-person-1833742158>
 
 有没有觉得你*可能*是个混蛋？
 

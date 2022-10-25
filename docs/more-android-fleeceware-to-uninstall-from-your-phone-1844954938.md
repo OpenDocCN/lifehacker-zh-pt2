@@ -1,6 +1,6 @@
 # 更多的 Android“fleece ware”可以从你的手机上卸载
 
-> 原文:[https://life hacker . com/more-Android-fleece ware-to-uninstall-from-your-phone-1844954938](https://lifehacker.com/more-android-fleeceware-to-uninstall-from-your-phone-1844954938)
+> 原文：<https://lifehacker.com/more-android-fleeceware-to-uninstall-from-your-phone-1844954938>
 
 又到了那个时候:一堆蹩脚的应用程序来到了谷歌 Play 商店，你要确保你的安卓手机上没有这些程序。如果你有，你只是被“羊毛制品”骗了。
 

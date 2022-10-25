@@ -1,6 +1,6 @@
 # 如何在没有有线电视的情况下观看期中考试成绩
 
-> 原文:[https://life hacker . com/how-to-watch-the-terminal-results-without-cable-1830253491](https://lifehacker.com/how-to-watch-the-midterm-results-without-cable-1830253491)
+> 原文：<https://lifehacker.com/how-to-watch-the-midterm-results-without-cable-1830253491>
 
 美国，选举日快乐。2018 年中期选举已经到来，如果你想关注比社交媒体更有声誉的事情，新闻机构正在取消收费墙，允许人们在没有有线登录的情况下观看结果。
 

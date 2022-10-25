@@ -1,6 +1,6 @@
 # Chromebook 新用户的最佳入门应用
 
-> 原文:[https://life hacker . com/the-best-starter-apps-for-new-chrome book-users-1831397586](https://lifehacker.com/the-best-starter-apps-for-new-chromebook-users-1831397586)
+> 原文：<https://lifehacker.com/the-best-starter-apps-for-new-chromebook-users-1831397586>
 
 尽管 Chrome 操作系统是浏览器的雏形，但它是一个真正的桌面平台，拥有快照窗口、文件系统和键盘快捷键。作为 Chromebook 的新用户，你也可以利用绝大多数的 Chrome 扩展、Android 应用和 Linux 应用。(稍加欺骗，你甚至可以运行一些 32 位的 Windows 应用程序。)
 

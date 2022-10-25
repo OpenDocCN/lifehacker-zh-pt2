@@ -1,6 +1,6 @@
 # 如何佩戴自行车头盔
 
-> 原文:[https://life hacker . com/how-to-fit-your bike-helmet-1843449689](https://lifehacker.com/how-to-fit-your-bike-helmet-1843449689)
+> 原文：<https://lifehacker.com/how-to-fit-your-bike-helmet-1843449689>
 
 如果你在骑行过程中摔倒并撞到了头，自行车头盔确实可以救你一命——但是如果它不适合你，它就没那么好了(也许根本没有好处)。
 

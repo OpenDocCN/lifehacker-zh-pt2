@@ -1,6 +1,6 @@
 # 现在就在 iOS 和 Android 上预先注册“使命召唤:移动”测试版
 
-> 原文:[https://life hacker . com/pre-register-now-for-call-of-duty-mobile-beta-on-I-1833442617](https://lifehacker.com/pre-register-now-for-the-call-of-duty-mobile-beta-on-i-1833442617)
+> 原文：<https://lifehacker.com/pre-register-now-for-the-call-of-duty-mobile-beta-on-i-1833442617>
 
 继[*PUBG*](https://kotaku.com/playerunknowns-battlegrounds-mobile-is-a-pretty-decent-1823840220)T5[*堡垒之夜*](https://kotaku.com/fortnite-comes-to-android-today-but-there-are-catches-1828224066) 之后，动视将《使命召唤》的传奇多人游戏带到了 iOS 和 Android 设备的*使命召唤:移动*。该游戏将包括经典的使命召唤多人模式，如团队死亡比赛和免费开放，以及粉丝最喜欢的地图，如 Nuketown。 
 

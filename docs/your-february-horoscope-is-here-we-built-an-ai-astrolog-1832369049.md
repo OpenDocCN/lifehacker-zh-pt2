@@ -1,6 +1,6 @@
 # 你的二月星座在这里——我们建造了一个人工智能占星师来预测你的未来
 
-> 原文:[https://gizmodo . com/your-二月宫图-is-here-we-build-a-ai-astrology-1832369049](https://gizmodo.com/your-february-horoscope-is-here-we-built-an-ai-astrolog-1832369049)
+> 原文：<https://gizmodo.com/your-february-horoscope-is-here-we-built-an-ai-astrolog-1832369049>
 
 欢迎来到 AIstrology。在研究科学家 [詹妮尔·谢恩](https://twitter.com/JanelleCShane) 的帮助下，我们建造了一个机器人来生成每月的星座运势，训练了大约 3500 个现存的读数以及当前的每月星座运势。因此，下面的每个星座都是基于对每个星座的大量预测的预测；本月星象为你准备的精华。
 

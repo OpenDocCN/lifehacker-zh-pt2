@@ -1,6 +1,6 @@
 # 如何在 Microsoft Teams 视频通话中隐藏您的背景
 
-> 原文:[https://life hacker . com/how-to-hide-your-background-in-Microsoft-teams-video-ca-1844038974](https://lifehacker.com/how-to-hide-your-background-in-microsoft-teams-video-ca-1844038974)
+> 原文：<https://lifehacker.com/how-to-hide-your-background-in-microsoft-teams-video-ca-1844038974>
 
 我们之前向您展示了一个为您的微软团队视频聊天解锁定制背景 的黑客程序，允许您将自己放在一个岛屿、您家中房间的静态图像或您最喜欢的视频游戏前面。嗯，你现在可以忽略*的建议，因为微软已经正式向免费和付费团队用户推出了这一功能。*
 

@@ -1,6 +1,6 @@
 # 如果你的 Android 应用程序在加载网页时总是崩溃，该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-if-your-Android-apps-keep-crashing-when-load-1838099572](https://lifehacker.com/what-to-do-if-your-android-apps-keep-crashing-when-load-1838099572)
+> 原文：<https://lifehacker.com/what-to-do-if-your-android-apps-keep-crashing-when-load-1838099572>
 
 你的 Android 应用程序在加载网页时崩溃过吗？你并不孤单；许多用户几周来一直在报告这些问题，似乎 Android 的 WebView 功能是罪魁祸首。
 

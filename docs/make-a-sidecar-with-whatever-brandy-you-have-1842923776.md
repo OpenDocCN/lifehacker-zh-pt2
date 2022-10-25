@@ -1,6 +1,6 @@
 # 用你所有的白兰地做一个边车
 
-> 原文:[https://life hacker . com/make-a sidecar-with what-brandy-you-have-1842923776](https://lifehacker.com/make-a-sidecar-with-whatever-brandy-you-have-1842923776)
+> 原文：<https://lifehacker.com/make-a-sidecar-with-whatever-brandy-you-have-1842923776>
 
 最近我一直在做很多酸味的，仅仅是因为它们几乎适用于任何烈酒，而且不需要太多配料。酒精、柑橘和甜味剂组成了整个饮料，但当你为更多的酒精添加糖浆时，事情变得更有趣了。
 

@@ -1,6 +1,6 @@
 # 使用这些网站找到便宜的机票
 
-> 原文:[https://life hacker . com/use-these-websites-to-find-leave-air-fares-1830150807](https://lifehacker.com/use-these-websites-to-find-cheap-air-fares-1830150807)
+> 原文：<https://lifehacker.com/use-these-websites-to-find-cheap-air-fares-1830150807>
 
 旅游网站和在线代理机构不缺搜索和预订航班，但当谈到获得最佳交易时，使用网站组合往往会给你最好的结果。如果你有一点时间和灵活性来玩，这里有一些为你的下一次旅行做书签。
 

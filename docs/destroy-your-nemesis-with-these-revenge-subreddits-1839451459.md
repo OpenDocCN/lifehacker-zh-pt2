@@ -1,6 +1,6 @@
 # 用这些复仇的子弹摧毁你的敌人
 
-> 原文:[https://life hacker . com/destroy-your ne mesis-with these-revenue-subred dits-1839451459](https://lifehacker.com/destroy-your-nemesis-with-these-revenge-subreddits-1839451459)
+> 原文：<https://lifehacker.com/destroy-your-nemesis-with-these-revenge-subreddits-1839451459>
 
 “种族主义老板骚扰波多黎各员工，违反劳动法。 [最后被驱逐](https://www.reddit.com/r/ProRevenge/comments/doby8f/racist_boss_harassed_puerto_rican_employees_and/) 。”“我把他 [扔进了监狱](https://www.reddit.com/r/NuclearRevenge/comments/d5bvhk/i_got_him_thrown_in_jail_and_ruined_his/) 还毁了他 5 年的感情。” [小勺](https://www.reddit.com/r/pettyrevenge/comments/dnsca3/revenge_of_the_little_spoon/) 的复仇"显然 [牙膏填充的奥利奥](https://www.reddit.com/r/backfiredrevenge/comments/ayrcyo/apparently_toothpastefilled_oreos_taste_like_real/) 尝起来像真的奥利奥."“垃圾王得到 [垃圾回复](https://www.reddit.com/r/RegularRevenge/comments/d10vut/spam_king_gets_spammed_back_and_sent_to_prison/) 送进监狱。” [谓疯狂的酒保。](https://www.reddit.com/r/GamersRevenge/comments/6zc1ih/the_mad_bartender/)[绍复仇！！！](https://www.reddit.com/r/myevilplan/comments/di2h3j/the_salt_revenge/)
 

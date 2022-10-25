@@ -1,6 +1,6 @@
 # 喝下这款冰镇烈酒，为漫长的周末注入活力
 
-> 原文:[https://life hacker . com/energize-yourself-the-boozy-1837746818](https://lifehacker.com/energize-yourself-for-the-long-weekend-with-this-boozy-1837746818)
+> 原文：<https://lifehacker.com/energize-yourself-for-the-long-weekend-with-this-boozy-1837746818>
 
 一杯制作得当的 [爱尔兰咖啡](https://lifehacker.com/how-to-make-a-perfect-irish-coffee-1836223423) 是一件美好的事情，但它也是一件*热*的事情，这使得它成为夏季最后几周的糟糕选择。要制作一款一年四季都可以享用的烈酒咖啡，你只需要冷咖啡和一点点甜炼乳。
 

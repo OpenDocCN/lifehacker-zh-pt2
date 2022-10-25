@@ -1,6 +1,6 @@
 # 如何让谷歌助手阅读来自第三方应用的通知
 
-> 原文:[https://life hacker . com/how-to-get-Google-assistant-to-read-notifications-from-1837004823](https://lifehacker.com/how-to-get-google-assistant-to-read-notifications-from-1837004823)
+> 原文：<https://lifehacker.com/how-to-get-google-assistant-to-read-notifications-from-1837004823>
 
 谷歌助手悄然对其消息功能进行了重大升级，使人工智能助手能够从第三方应用程序中读取消息。
 

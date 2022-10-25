@@ -1,6 +1,6 @@
 # 我是一名堕胎提供者，是时候说出怀孕后期堕胎的真相了
 
-> 原文:[https://Jezebel . com/im-an-aboration-provider-and-its-time-to-tell-the-truth-1832394430](https://jezebel.com/im-an-abortion-provider-and-its-time-to-tell-the-truth-1832394430)
+> 原文：<https://jezebel.com/im-an-abortion-provider-and-its-time-to-tell-the-truth-1832394430>
 
 纽约在一月份通过了生殖健康法案，该法案将在最高法院推翻罗伊诉韦德案的情况下保障生殖健康的可及性。作为一名在纽约州提供堕胎服务的医生，当我得知我的病人将获得生殖健康服务时，我非常激动，我希望其他州也能效仿。虽然像我这样的医生和生殖权利倡导者庆祝 RHA 的通过，但也有许多不必要的愤怒，这些愤怒是由对该法案实际上做了什么的歪曲以及怀孕后期的堕胎引起的。
 

@@ -1,6 +1,6 @@
 # 如何为 Windows 10 中的所有应用打开 HTTPS DNS
 
-> 原文:[https://life hacker . com/how-to-turn-on-DNS-over-https-for-all-apps-in-windows-1-1843544589](https://lifehacker.com/how-to-turn-on-dns-over-https-for-all-apps-in-windows-1-1843544589)
+> 原文：<https://lifehacker.com/how-to-turn-on-dns-over-https-for-all-apps-in-windows-1-1843544589>
 
 使用 HTTPS DNS(DoH)可以隐藏您的电脑正在访问的网站，从而使您的 web 浏览更加安全。我们已经介绍过 [在浏览器](https://lifehacker.com/how-to-enable-dns-over-https-in-your-web-browser-1841909057) 中开启 DoH，但是最新的 Windows Insider 更新为 Windows 10 增加了系统级 DoH 设置。它非常方便。
 

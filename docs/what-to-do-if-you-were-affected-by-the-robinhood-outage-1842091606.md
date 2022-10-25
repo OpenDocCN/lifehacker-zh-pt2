@@ -1,6 +1,6 @@
 # 如果你受到罗宾汉停电的影响该怎么办[更新]
 
-> 原文:[https://life hacker . com/what-to-do-if-you-be-affected-by-the-robin hood-outage-1842091606](https://lifehacker.com/what-to-do-if-you-were-affected-by-the-robinhood-outage-1842091606)
+> 原文：<https://lifehacker.com/what-to-do-if-you-were-affected-by-the-robinhood-outage-1842091606>
 
 Robinhood 用户在周一经历了惨痛的教训，当每个人都想立刻交易时会发生什么。股票交易应用程序在周一的大部分时间里都无法运行，周二早上又恢复了运行，导致用户 [被锁定在账户](https://gizmodo.com/stock-trading-app-robinhood-experiences-widespread-outa-1842042516) 之外，无法在主要市场反弹期间完成交易。
 

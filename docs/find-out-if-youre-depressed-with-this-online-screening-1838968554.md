@@ -1,6 +1,6 @@
 # 看看你是否对这个在线筛查感到沮丧
 
-> 原文:[https://life hacker . com/find-out-if-you-depressed-with this-online-screening-1838968554](https://lifehacker.com/find-out-if-youre-depressed-with-this-online-screening-1838968554)
+> 原文：<https://lifehacker.com/find-out-if-youre-depressed-with-this-online-screening-1838968554>
 
 如果昨天的心理健康意识日让你想知道是否应该寻求帮助，你应该知道你可以在网上进行抑郁症筛查，并将结果带给心理健康专家。
 

@@ -1,6 +1,6 @@
 # 如何估计你的零钱罐里有多少钱
 
-> 原文:[https://life hacker . com/how-to-estimate-how-amount-money-in-your-change-jar-wit-5804773](https://lifehacker.com/how-to-estimate-how-much-moneys-in-your-change-jar-wit-5804773)
+> 原文：<https://lifehacker.com/how-to-estimate-how-much-moneys-in-your-change-jar-wit-5804773>
 
 你听说了吗？美国正处于严重的硬币短缺之中，就像几乎所有导致今年垃圾大火的大火一样，这场大火是由疫情点燃的。正如我们在 7 月初第一次解释一样，在 COVID 危机期间，亲自购物和银行业务的减少使得无数硬币无法流通。本周，根据《国会山报》的报道，美国铸币局局长大卫·赖德呼吁我们所有人帮助缓解危机，在购物时使用准确的零钱，并最终兑现我们多年来收集的所有零钱。
 

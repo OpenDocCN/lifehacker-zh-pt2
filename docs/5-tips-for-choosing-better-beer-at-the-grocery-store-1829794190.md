@@ -1,6 +1,6 @@
 # 在杂货店选择更好啤酒的 5 个技巧
 
-> 原文:[https://the take out . com/5-在杂货店选择更好啤酒的提示-1829794190](https://thetakeout.com/5-tips-for-choosing-better-beer-at-the-grocery-store-1829794190)
+> 原文：<https://thetakeout.com/5-tips-for-choosing-better-beer-at-the-grocery-store-1829794190>
 
 上周末，我走近我经常光顾的杂货店的啤酒冷却器，看到聚集在那里的安静的人群，沉浸在荧光白光中，我暗自发笑。各个年龄层的购物者目光呆滞，嘴巴微张，盯着数百个选项，表情茫然不知所措。当然，买啤酒不应该如此令人困惑吧？
 

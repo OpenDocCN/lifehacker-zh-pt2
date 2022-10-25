@@ -1,6 +1,6 @@
 # 使用这些工具查看谁为政治活动捐了款
 
-> 原文:[https://life hacker . com/see-who-has-done-to-a-political-campaign-with this-1844713650](https://lifehacker.com/see-who-has-donated-to-a-political-campaign-with-these-1844713650)
+> 原文：<https://lifehacker.com/see-who-has-donated-to-a-political-campaign-with-these-1844713650>
 
 悄悄了解某人的政治和他们真正关心的问题的一个方法是弄清楚他们资助了哪些竞选活动。有时你会发现 [意想不到的惊喜](https://www.snopes.com/fact-check/trump-donated-kamala-harris/) 或者了解到某人把钱投在哪里并不总是仅仅与党派有关。或者你可能会发现，一个宣扬某种价值观的组织 [用它的美元](https://popular.info/p/kelly-loeffler-is-running-against) 投票是不同的。
 

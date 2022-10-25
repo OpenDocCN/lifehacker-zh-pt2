@@ -1,6 +1,6 @@
 # 今晚预订你的宿醉早餐
 
-> 原文:[https://life hacker . com/pre-order-your-hangover-breakfast-tonight-1831341656](https://lifehacker.com/pre-order-your-hangover-breakfast-tonight-1831341656)
+> 原文：<https://lifehacker.com/pre-order-your-hangover-breakfast-tonight-1831341656>
 
 如果你住在一个相对城市化的地区，在你深夜外出之前，为自己点一份早餐。无缝让你提前几天从大多数餐馆订餐；你也可以打电话。制定一个简单的宿醉订单——培根鸡蛋和奶酪百吉饼，或早餐玉米卷，或咸牛肉和薯饼——外卖或外卖。和一杯咖啡。这将解决两个问题。
 

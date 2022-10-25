@@ -1,6 +1,6 @@
 # 新的羟氯喹研究需要知道什么
 
-> 原文:[https://life hacker . com/what-to-know-about the-new-羟氯喹-study-1843680384](https://lifehacker.com/what-to-know-about-that-new-hydroxychloroquine-study-1843680384)
+> 原文：<https://lifehacker.com/what-to-know-about-that-new-hydroxychloroquine-study-1843680384>
 
 编者按:这篇文章最初描述了一项研究，发表于 5 月 22 日，但由于担心研究人员使用的数据集的完整性，该研究随后于 6 月 5 日被撤回。撤稿信可以在 [*柳叶刀的网站上找到。*](https://www.thelancet.com/journals/lancet/article/PIIS0140-6736(20)31324-6/fulltext?utm_campaign=tlcoronavirus20&utm_source=twitter&utm_medium=social)
 

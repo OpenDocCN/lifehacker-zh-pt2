@@ -1,6 +1,6 @@
 # 用这个播客教你的孩子关于金钱的知识
 
-> 原文:[https://life hacker . com/teach-your-kids-about money with this-podcast-1844777812](https://lifehacker.com/teach-your-kids-about-money-with-this-podcast-1844777812)
+> 原文：<https://lifehacker.com/teach-your-kids-about-money-with-this-podcast-1844777812>
 
 如果你的孩子对学习更多关于金钱的知识感兴趣，或者如果你想教他们赚钱、储蓄和消费，但不知道从哪里开始，Marketplace 的一个新播客可以开始这些对话。《百万富翁》 于 7 月开播，至今只有五集，它已经解决了孩子们(和你)会感兴趣的各种各样与金钱相关的话题。
 

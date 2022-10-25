@@ -1,6 +1,6 @@
 # 在你开始发邮件之前，设置一个计时器
 
-> 原文:[https://life hacker . com/before-you-start-a-email-set-a-timer-1838145388](https://lifehacker.com/before-you-start-an-email-set-a-timer-1838145388)
+> 原文：<https://lifehacker.com/before-you-start-an-email-set-a-timer-1838145388>
 
 如果你写邮件和回复邮件有困难，这里有一个简单的窍门:设置三分钟的计时器。现在，在时间用完之前写完这封邮件。
 

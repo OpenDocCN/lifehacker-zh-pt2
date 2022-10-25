@@ -1,6 +1,6 @@
 # 关闭后如何帮助约书亚树国家公园
 
-> 原文:[https://life hacker . com/how-to-help-Joshua-tree-national-park-after-the-shut Dow-1832261143](https://lifehacker.com/how-to-help-joshua-tree-national-park-after-the-shutdow-1832261143)
+> 原文：<https://lifehacker.com/how-to-help-joshua-tree-national-park-after-the-shutdow-1832261143>
 
 本周，美国政府在关闭 35 天后重新开放。它对我们国家公园的影响是毁灭性的，毁坏了公共土地，危及了各地联邦工作人员的生计。幸运的是，这里有 T2、T4，你能做的很少，来帮助一个遭受重创的公园。
 

@@ -1,6 +1,6 @@
 # 是时候停止使用你的旅行奖励信用卡了
 
-> 原文:[https://life hacker . com/its-time-to-stop-use-your-travel-rewards-credit-card-1842615023](https://lifehacker.com/its-time-to-stop-using-your-travel-rewards-credit-card-1842615023)
+> 原文：<https://lifehacker.com/its-time-to-stop-using-your-travel-rewards-credit-card-1842615023>
 
 直到最近，我把大部分支出都花在了给我提供旅游奖励的信用卡上。我倾向于个人消费用航空卡，自由职业消费用商务旅行卡。S 因为我(过去)经常旅行，所以我对尽可能快地赚取和消耗我的旅行奖励非常感兴趣。本周，我把消费转向了信用卡返现。
 

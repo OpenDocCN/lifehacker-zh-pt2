@@ -1,6 +1,6 @@
 # 为什么不在你的蔓越莓酱里加入蓝莓呢？
 
-> 原文:[https://life hacker . com/why-not-add-the-your ' s cranberry-sauce-1830162598](https://lifehacker.com/why-not-add-blueberries-to-your-cranberry-sauce-1830162598)
+> 原文：<https://lifehacker.com/why-not-add-blueberries-to-your-cranberry-sauce-1830162598>
 
 像感恩节晚餐的每一种成分一样，蔓越莓酱激发了许多情感。 [有罐头纯化论者](https://lifehacker.com/your-homemade-cranberry-sauce-sucks-1820651745)——“我们需要山脊！”——还有自制爱好者。还有一些人喜欢玩这种类型的游戏，激怒了两个阵营。我打赌你能猜出我属于哪一类。
 

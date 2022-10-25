@@ -1,6 +1,6 @@
 # 什么时候 DSLR 相机比你的手机相机更好？
 
-> 原文:[https://life hacker . com/when-a-film-camera-better-your-phone-camera-1838776409](https://lifehacker.com/when-is-a-film-camera-better-than-your-phone-camera-1838776409)
+> 原文：<https://lifehacker.com/when-is-a-film-camera-better-than-your-phone-camera-1838776409>
 
 “越大越好”这句古老的格言在科技领域已经不再适用了，尤其是在摄影领域。相机逐年变得越来越小、越来越好、越来越强大——以至于我们手机内置的迷你相机能够拍摄出媲美一些专业照片的图像。
 

@@ -1,6 +1,6 @@
 # 2018 年最受欢迎的帖子
 
-> 原文:[https://life hacker . com/the-most-popular-posts-of-2018-1831054289](https://lifehacker.com/the-most-popular-posts-of-2018-1831054289)
+> 原文：<https://lifehacker.com/the-most-popular-posts-of-2018-1831054289>
 
 Lifehacker 的读者如果不实用，那就一无是处。根据我们的流量日志，2018 年你想要更快的 wifi，更便宜的航班，以及在你中奖时保持匿名的指南。所有这些都是人们过上幸福而富有成效的生活所需要的。在我们今年最受欢迎的十篇文章中，看看我们关于这些话题的故事。
 

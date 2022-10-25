@@ -1,6 +1,6 @@
 # 2019 年 11 月 HBO 有什么来往
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-HBO-in-11-2019-1839277924](https://lifehacker.com/whats-coming-and-going-from-hbo-in-november-2019-1839277924)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-hbo-in-november-2019-1839277924>
 
 从这个月开始，你可以赶上新的补充，如*大，大吉岭有限公司，和 Shazam！*现在 HBO 上。这三部电影都将于 11 月 1 日开始提供流媒体播放，其他一些电影也将于 11 月 1 日开始。同样在 11 月到来的还有《T2》、《他的黑暗物质》和《T4》的系列首播，以及《芝麻街》第 50 季首播。
 

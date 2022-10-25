@@ -1,6 +1,6 @@
 # 通过搭建乐高积木，向您的孩子传授在线安全知识
 
-> 原文:[https://life hacker . com/teach-your-kids-about-online-safety-by-building-Lego-1844468268](https://lifehacker.com/teach-your-kids-about-online-safety-by-building-lego-1844468268)
+> 原文：<https://lifehacker.com/teach-your-kids-about-online-safety-by-building-lego-1844468268>
 
 这是一个普遍的问题——你想教你的孩子关于网络安全的知识，但是*他们*只想整天建造乐高。好了，最后，你可以通过乐高新推出的“ [”建造和对话](https://www.lego.com/en-gb/aboutus/buildandtalk) ”活动同时做这两件事。
 

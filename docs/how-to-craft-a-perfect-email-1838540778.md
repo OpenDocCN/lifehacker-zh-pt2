@@ -1,6 +1,6 @@
 # 如何制作一封完美的电子邮件
 
-> 原文:[https://life hacker . com/how-to-craft-a-perfect-email-1838540778](https://lifehacker.com/how-to-craft-a-perfect-email-1838540778)
+> 原文：<https://lifehacker.com/how-to-craft-a-perfect-email-1838540778>
 
 孩子们写信或写文章时会做一件事。他们写“哦，还有……”仿佛读者正在实时接收他们的话语。他们不知道如何在写作中隐藏自己的意识流。如果你是在灵感迸发时写作，你也可以这样做。把你的想法写出来很好。但是在你发送之前，你应该编辑。
 

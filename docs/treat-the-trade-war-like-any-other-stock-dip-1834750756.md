@@ -1,6 +1,6 @@
 # 像对待任何其他股票下跌一样对待贸易战
 
-> 原文:[https://life hacker . com/treat-the-trade-war-like-any-other-stock-dip-1834750756](https://lifehacker.com/treat-the-trade-war-like-any-other-stock-dip-1834750756)
+> 原文：<https://lifehacker.com/treat-the-trade-war-like-any-other-stock-dip-1834750756>
 
 股票市场已经提高了警惕，因为中国将无限期提高关税。周一，标准普尔 500 经历了自一月以来最糟糕的一天，纳斯达克经历了今年最严重的下跌，道琼斯指数下跌了 617 点。苹果股票 [下跌近 6%](https://www.nytimes.com/2019/05/13/business/global-markets.html) ，公司债券市场利率上升，大豆价格下跌。事实上，贸易战是导致股市大约一周 下跌的罪魁祸首。恐慌时刻到了，对吧？
 

@@ -1,6 +1,6 @@
 # 在 YouTube 上免费看电影，只要你不介意广告
 
-> 原文:[https://life hacker . com/watch-movies-on-you-dont-m-1830548465](https://lifehacker.com/watch-movies-on-youtube-for-free-as-long-as-you-dont-m-1830548465)
+> 原文：<https://lifehacker.com/watch-movies-on-youtube-for-free-as-long-as-you-dont-m-1830548465>
 
 如果你愿意忍受几个商业广告，YouTube 现在在其网站上提供了一些可以免费播放的电影。
 

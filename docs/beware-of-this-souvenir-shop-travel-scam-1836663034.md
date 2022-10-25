@@ -1,6 +1,6 @@
 # 当心这个纪念品商店旅游骗局
 
-> 原文:[https://life hacker . com/当心这个纪念品商店旅游骗局-1836663034](https://lifehacker.com/beware-of-this-souvenir-shop-travel-scam-1836663034)
+> 原文：<https://lifehacker.com/beware-of-this-souvenir-shop-travel-scam-1836663034>
 
 在你出国旅行之前，总是在你的目的地调查常见的骗局，这样你*就不会*成为针对游客的骗局的受害者(比如瓶装水或者“跳过线路” [骗局](https://lifehacker.com/how-to-avoid-getting-scammed-when-traveling-1835913288) )。下次你决定去纪念品商店时，一定要小心。O 在最近的一个 [Reddit 帖子](https://www.reddit.com/r/LifeProTips/comments/cgefdz/lpt_if_youre_on_vacation_and_find_yourself_in_a/) 中，几个用户报告了*另一个*骗局，在这个骗局中，旅行者被指控违反 item⁠—and，却突然被要求负责赔偿任何损失。
 

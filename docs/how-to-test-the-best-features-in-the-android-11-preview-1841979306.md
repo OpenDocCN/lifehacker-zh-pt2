@@ -1,6 +1,6 @@
 # 如何测试 Android 11 预览版中的最佳功能
 
-> 原文:[https://life hacker . com/how-to-test-the-best-features-in-the-Android-11-preview-1841979306](https://lifehacker.com/how-to-test-the-best-features-in-the-android-11-preview-1841979306)
+> 原文：<https://lifehacker.com/how-to-test-the-best-features-in-the-android-11-preview-1841979306>
 
 这么多 Android 设备 [还在等待 Android 10](https://lifehacker.com/find-out-when-your-samsung-device-is-getting-android-10-1840235349) ，很难相信 Android 11 的第一个 [预览版已经面世](https://developer.android.com/preview) 。Android 11 目前没有官方发布日期，普通用户还有一段时间才有机会试用公共测试版，但早期测试人员已经发现了 Android 11 将在今年晚些时候推出的一些功能。以下是一些最值得注意的例子:
 

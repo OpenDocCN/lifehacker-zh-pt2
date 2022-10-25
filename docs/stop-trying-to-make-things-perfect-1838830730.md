@@ -1,6 +1,6 @@
 # 不要试图让事情变得“完美”
 
-> 原文:[https://life hacker . com/stop-trying-to-make-things-perfect-1838830730](https://lifehacker.com/stop-trying-to-make-things-perfect-1838830730)
+> 原文：<https://lifehacker.com/stop-trying-to-make-things-perfect-1838830730>
 
 当我第一次开始写作时，像这样一篇 300-500 字的短篇小说要花我几天时间才能写完。我出版了一些东西给人们阅读，我想确保每一个字都是完美的。
 

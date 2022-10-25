@@ -1,6 +1,6 @@
 # 为什么孩子们在 9 岁时不再以阅读为乐(以及该怎么办)
 
-> 原文:[https://life hacker . com/why-kids-stop-read-for-fun-by-age-and-what-do-1833554143](https://lifehacker.com/why-kids-stop-reading-for-fun-by-age-9-and-what-to-do-1833554143)
+> 原文：<https://lifehacker.com/why-kids-stop-reading-for-fun-by-age-9-and-what-to-do-1833554143>
 
 由学术 进行的一项 [全国阅读调查揭示了他们所谓的“下降九分”根据这份报告，被定义为经常阅读的孩子——那些一周阅读五到七天以寻找乐趣的孩子——的比例从 8 岁的 57%下降到 9 岁的 35%。在八岁到九岁之间，说自己喜欢阅读的孩子数量从 40%骤降至 28%。这一年发生了什么，更重要的是，父母可以做些什么来让他们的年轻读者心甘情愿地阅读*？*](https://www.scholastic.com/readingreport/home.html) 
 

@@ -1,6 +1,6 @@
 # 查找捷蓝航空秋季大减价期间低至 20 美元的航班
 
-> 原文:[https://life hacker . com/find-flights-as-low-as-20-in-jetblues-fall-sale-1836213058](https://lifehacker.com/find-flights-as-low-as-20-during-jetblues-fall-sale-1836213058)
+> 原文：<https://lifehacker.com/find-flights-as-low-as-20-during-jetblues-fall-sale-1836213058>
 
 如果你准备在繁忙的假期前计划一次初秋出游，[JetBlue](https://www.jetblue.com/deals/flash-sale-fall/)的秋季闪购可能会有一张便宜的机票来满足你的旅行渴望。
 

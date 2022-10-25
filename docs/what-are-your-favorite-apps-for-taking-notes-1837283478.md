@@ -1,6 +1,6 @@
 # 你最喜欢的做笔记的 app 有哪些？
 
-> 原文:[https://life hacker . com/what-are-you ' s favorite-apps-for-taking-notes-1837283478](https://lifehacker.com/what-are-your-favorite-apps-for-taking-notes-1837283478)
+> 原文：<https://lifehacker.com/what-are-your-favorite-apps-for-taking-notes-1837283478>
 
 互联网以及随后智能手机和云存储的兴起彻底改变了记笔记的行为。保存您的想法比以往任何时候都更容易(因为我们几乎总是有一个触手可及的连接设备)，从各种*其他*设备访问它们，并与需要了解您计划的人分享它们。你写在便利贴上再也找不到的杂货清单或突然迸发的创意火花不会丢失，你的批判性想法和必做清单可以安全地保存在云中。
 

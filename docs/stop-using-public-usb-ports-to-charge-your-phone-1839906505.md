@@ -1,6 +1,6 @@
 # 停止使用公共 USB 端口给手机充电
 
-> 原文:[https://life hacker . com/stop-using-public-USB-ports-to-charge-your-phone-1839906505](https://lifehacker.com/stop-using-public-usb-ports-to-charge-your-phone-1839906505)
+> 原文：<https://lifehacker.com/stop-using-public-usb-ports-to-charge-your-phone-1839906505>
 
 电池电源是非常珍贵的东西之一，尤其是当你在旅行时，需要使用机场为数不多的电源插座之一来为你的设备充电。
 

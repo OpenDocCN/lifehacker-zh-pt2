@@ -1,6 +1,6 @@
 # 在新的一年里，尝试这些廉价的社交想法
 
-> 原文:[https://life hacker . com/try-these-friendly-socialization-ideas-in-the-new-year-1830747956](https://lifehacker.com/try-these-inexpensive-socializing-ideas-in-the-new-year-1830747956)
+> 原文：<https://lifehacker.com/try-these-inexpensive-socializing-ideas-in-the-new-year-1830747956>
 
 在经历了一两年越来越无意义的消费后，我新年的目标之一就是尽可能多的存钱。在我生活的某些方面，比如在外面吃饭或者买衣服，很明显我需要削减什么，而且有很多简单的方法来省钱。
 

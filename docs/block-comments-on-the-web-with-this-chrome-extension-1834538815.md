@@ -1,6 +1,6 @@
 # 使用此 Chrome 扩展阻止网上的评论
 
-> 原文:[https://life hacker . com/block-comments-on-the-web-with-this-chrome-extension-1834538815](https://lifehacker.com/block-comments-on-the-web-with-this-chrome-extension-1834538815)
+> 原文：<https://lifehacker.com/block-comments-on-the-web-with-this-chrome-extension-1834538815>
 
 浏览网上几乎任何网站的评论区，你肯定会遇到至少一些有害的评论。可能不止几个，这取决于你在看的网站和人们评论的帖子的主题。
 

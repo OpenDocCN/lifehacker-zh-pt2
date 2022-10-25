@@ -1,6 +1,6 @@
 # 不要沉迷于某个年龄段的成功
 
-> 原文:[https://life hacker . com/don-t-obses-over-be-successful-by-a-a-age-1830440576](https://lifehacker.com/don-t-obsess-over-being-successful-by-a-certain-age-1830440576)
+> 原文：<https://lifehacker.com/don-t-obsess-over-being-successful-by-a-certain-age-1830440576>
 
 每次福布斯 30 岁以下 30 人排行榜 出炉，都会让经历过那个可怕生日的古老灵魂感到不寒而栗。从未上榜？太晚了，朋友。现在，请不要再去想它了。
 

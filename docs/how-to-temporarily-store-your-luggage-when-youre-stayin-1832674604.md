@@ -1,6 +1,6 @@
 # 当你住在 Airbnb 时，如何暂时存放你的行李
 
-> 原文:[https://life hacker . com/how-to-temporary-store-you-when-stay in-1832674604](https://lifehacker.com/how-to-temporarily-store-your-luggage-when-youre-stayin-1832674604)
+> 原文：<https://lifehacker.com/how-to-temporarily-store-your-luggage-when-youre-stayin-1832674604>
 
 当我们旅行时都住在酒店里，弄清楚如何处理你的行李是很容易的。如果你在应该登记入住之前很久就到达了城镇，或者你的航班在退房时间之后很久才到达，任何合理的酒店都会提供行李寄存服务，并会为你保留你的包，只需付小费给行李员。当你住在 Airbnb 之类的地方时，事情会变得有点复杂。
 

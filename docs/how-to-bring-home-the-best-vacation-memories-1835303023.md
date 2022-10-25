@@ -1,6 +1,6 @@
 # 如何将最美好的假期记忆带回家
 
-> 原文:[https://life hacker . com/how-to-bring-the-home the-best-vacation-memories-1835303023](https://lifehacker.com/how-to-bring-home-the-best-vacation-memories-1835303023)
+> 原文：<https://lifehacker.com/how-to-bring-home-the-best-vacation-memories-1835303023>
 
 回忆是一些最好的旅游纪念品:首先，它们是免费的，而且它们会伴随你一生。如果你提前一点计划，实际上有可能给自己留下最美好的假期记忆。
 

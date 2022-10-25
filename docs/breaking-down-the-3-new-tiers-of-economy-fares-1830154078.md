@@ -1,6 +1,6 @@
 # 分解经济舱票价的三个新等级
 
-> 原文:[https://life hacker . com/breaking-down-the-3-new-tiers of-economy-fares-1830154078](https://lifehacker.com/breaking-down-the-3-new-tiers-of-economy-fares-1830154078)
+> 原文：<https://lifehacker.com/breaking-down-the-3-new-tiers-of-economy-fares-1830154078>
 
 为了从顾客身上赚取尽可能多的钱，并与廉价航空公司竞争，美国三家航空公司——美国航空公司、达美航空公司和联合航空公司——现在提供三种不同等级的经济舱机票，不同等级之间的差异可能相当于数百美元的票价。
 

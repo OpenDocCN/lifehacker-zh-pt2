@@ -1,6 +1,6 @@
 # 如何在网上访问您的 Instagram DMs
 
-> 原文:[https://life hacker . com/how-to-access-your-insta gram-DMS-on-the-web-1842810335](https://lifehacker.com/how-to-access-your-instagram-dms-on-the-web-1842810335)
+> 原文：<https://lifehacker.com/how-to-access-your-instagram-dms-on-the-web-1842810335>
 
 社交和物理距离让我们很多人花更多的时间在屏幕前，以不同于平时的方式与朋友交流，通常是通过社交媒体。
 

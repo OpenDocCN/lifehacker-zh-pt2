@@ -1,6 +1,6 @@
 # all the big ios 13 changes apple announced at wwdc 19 1835216984
 
-> 原文:[https://life hacker . com/all-the-big-IOs-13-changes-apple-announced-at-wwdc-19-1835216984](https://lifehacker.com/all-the-big-ios-13-changes-apple-announced-at-wwdc-19-1835216984)
+> 原文：<https://lifehacker.com/all-the-big-ios-13-changes-apple-announced-at-wwdc-19-1835216984>
 
 苹果本周将举办一年一度的全球开发者大会，并如预期的那样，在大会的开幕主题演讲中推出了其移动操作系统的下一版本 iOS 13。苹果展示了很多东西，包括对整体隐私的关键改进，彻底改革的应用程序，以及针对 iPads 的全面软件更改。以下是你会注意到的一些变化，以及它们对你的 iPhone 意味着什么。
 

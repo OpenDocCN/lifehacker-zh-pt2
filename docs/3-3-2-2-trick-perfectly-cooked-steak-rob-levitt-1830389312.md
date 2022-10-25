@@ -1,6 +1,6 @@
 # 3-3-2-2 法是屠夫用来制作烤焦牛排的绝招
 
-> 原文:[https://the take out . com/3-3-2-2-trick-perfect-cooked-steak-rob-Levitt-1830389312](https://thetakeout.com/3-3-2-2-trick-perfectly-cooked-steak-rob-levitt-1830389312)
+> 原文：<https://thetakeout.com/3-3-2-2-trick-perfectly-cooked-steak-rob-levitt-1830389312>
 
 为了给我所在的社区带来来自小型家庭农场的质量更好的肉，我在芝加哥开了一家肉店，名为[&屠夫](http://localfoods.com/butcher/)储藏室。八年来，我一直在帮助人们做各种事情，从感恩节晚餐到如何烹饪牛排。
 

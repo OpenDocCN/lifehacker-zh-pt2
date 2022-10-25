@@ -1,6 +1,6 @@
 # how to make your own vegan ikea style meatballs 1835305813
 
-> 原文:[https://life hacker . com/how-to-make-your-own-vegan-IKEA-style-mealls-1835305813](https://lifehacker.com/how-to-make-your-own-vegan-ikea-style-meatballs-1835305813)
+> 原文：<https://lifehacker.com/how-to-make-your-own-vegan-ikea-style-meatballs-1835305813>
 
 受其纯素热狗和软食成功的启发， [宜家](https://lifehacker.com/how-to-hack-the-ikea-food-market-1755817567) 宣布 [计划在明年推出其经典猪肉和牛肉丸子](https://www.bloomberg.com/news/articles/2019-05-23/ikea-s-vegan-swedish-meatballs-head-to-stores-for-fall-trial) 的植物版本。但距离 2020 年夏天正式发布还有很长的路要走，如果你等不了那么久，我会支持你的。你不需要晦涩的配料或数小时的时间来在家制作瑞典肉丸。
 

@@ -1,6 +1,6 @@
 # 在你的安卓设备上试试这些用户自制的 Pixel 4a 壁纸
 
-> 原文:[https://life hacker . com/try-out-these-user-made-pixel-4a-wallpapers-on-your-and-1842291990](https://lifehacker.com/try-out-these-user-made-pixel-4a-wallpapers-on-your-and-1842291990)
+> 原文：<https://lifehacker.com/try-out-these-user-made-pixel-4a-wallpapers-on-your-and-1842291990>
 
 Pixel 4a 几乎被证实是谷歌的下一代智能手机，但我们仍在等待该公司正式宣布严重泄露的设备。在那之前，如果你渴望体验 Pixel 4a 的用户体验，你可以现在就在你自己的 Android 设备上尝试用户制作的手机壁纸版本。
 

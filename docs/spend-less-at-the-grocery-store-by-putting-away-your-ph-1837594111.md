@@ -1,6 +1,6 @@
 # 收起手机，减少在杂货店的花费
 
-> 原文:[https://life hacker . com/buying-less-in-the-stay-store by-put-away-your-ph-1837594111](https://lifehacker.com/spend-less-at-the-grocery-store-by-putting-away-your-ph-1837594111)
+> 原文：<https://lifehacker.com/spend-less-at-the-grocery-store-by-putting-away-your-ph-1837594111>
 
 在杂货店分心是不可避免的。处处都有诱惑:b 恰到好处的彩色销售标志！样表！新款 [口味的矿泉水](https://skillet.lifehacker.com/how-to-pick-the-best-sparkling-water-1787685816) ！你可能会认为，把你的鼻子放在手机上——滚动播客片段，给你的 妈妈打电话——会防止你被现代杂货店的营销策略所吸引。但是事实证明，如果你在商店的过道里打电话，你最终可能会花掉比你预想的更多的钱。
 

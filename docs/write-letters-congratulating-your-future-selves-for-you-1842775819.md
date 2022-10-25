@@ -1,6 +1,6 @@
 # 让你孩子给他们未来的自己写信
 
-> 原文:[https://life hacker . com/write-letters-恭喜你的未来 1842775819](https://lifehacker.com/write-letters-congratulating-your-future-selves-for-you-1842775819)
+> 原文：<https://lifehacker.com/write-letters-congratulating-your-future-selves-for-you-1842775819>
 
 如果你在冠状病毒疫情期间被困在家里，正在想办法帮助你的孩子改善他们的行为——或者希望大一点的孩子可能开始理解行为和家庭和谐之间的联系——可能是时候让家里的每个人坐下来，要求他们每个人写一封信了。
 

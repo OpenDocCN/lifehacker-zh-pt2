@@ -1,6 +1,6 @@
 # 如何找到更好的播客推荐
 
-> 原文:[https://life hacker . com/how-to-find-better-podcast-recommendations-1829864463](https://lifehacker.com/how-to-find-better-podcast-recommendations-1829864463)
+> 原文：<https://lifehacker.com/how-to-find-better-podcast-recommendations-1829864463>
 
 使用苹果的“热门播客”列表来寻找新的播客就像使用尼尔森收视率来发现新的电视节目。你错过了这么多好东西。顶级榜单由几个类别(商业、新闻和真实犯罪)和永远受欢迎的节目主导，如*这种美国生活*和*乔·罗根经历*。这些节目没毛病！他们可以得到...老样子。
 

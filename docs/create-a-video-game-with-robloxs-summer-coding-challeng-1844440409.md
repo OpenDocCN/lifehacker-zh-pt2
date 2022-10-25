@@ -1,6 +1,6 @@
 # 用 Roblox 的夏季编码挑战创建一个视频游戏
 
-> 原文:[https://life hacker . com/create-a-video-game-with-robloxs-summer-coding-challeng-1844440409](https://lifehacker.com/create-a-video-game-with-robloxs-summer-coding-challeng-1844440409)
+> 原文：<https://lifehacker.com/create-a-video-game-with-robloxs-summer-coding-challeng-1844440409>
 
 如果你的孩子曾经想设计自己的视频游戏并制作动画，但不知道从哪里开始，Roblox 有一个免费的夏季编码挑战，可以教他们基础知识。这项名为“ [”的挑战为孩子们提供了简单易懂的指导，帮助他们学习如何创建一个带有自定义动画的游戏，然后通过使用移动设备在现实生活中移动来获得游戏等级。](https://blog.roblox.com/2020/07/build-it-play-it-animations)
 

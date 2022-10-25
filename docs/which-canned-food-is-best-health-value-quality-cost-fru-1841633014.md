@@ -1,6 +1,6 @@
 # 这些是最好的罐头食品
 
-> 原文:[https://the take out . com/which-canned-food-is-best-health-value-quality-cost-fru-1841633014](https://thetakeout.com/which-canned-food-is-best-health-value-quality-cost-fru-1841633014)
+> 原文：<https://thetakeout.com/which-canned-food-is-best-health-value-quality-cost-fru-1841633014>
 
 二月是官方的罐头食品月，或者说在 1987 年罐头食品信息委员会是这样认为的。在 80 年代，CFIC 做了大量的工作来提高人们对罐头食品的认识。看看这个 1985 年的古怪性感的罐头食品广告，它不仅提高了罐头食品的知名度，而且...太空探索？
 

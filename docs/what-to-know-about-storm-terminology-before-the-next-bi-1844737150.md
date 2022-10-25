@@ -1,6 +1,6 @@
 # what to know about storm terminology before the next bi 1844737150
 
-> 原文:[https://life hacker . com/what-to-know-to-know-about-storm-terminals-before-the-next-bi-1844737150](https://lifehacker.com/what-to-know-about-storm-terminology-before-the-next-bi-1844737150)
+> 原文：<https://lifehacker.com/what-to-know-about-storm-terminology-before-the-next-bi-1844737150>
 
 现在才八月中旬，几场主要的热带风暴和飓风已经袭击了美国的不同地区。事实上，我们已经创造了八月初命名风暴数量的最高记录(九次)。虽然在东南部的常见地点有一些行动，但东海岸的北部地区也受到了袭击，包括飓风伊萨亚斯 T3(后来降级为热带风暴)的袭击，造成至少 9 人死亡，数百万人连续几天断电。
 

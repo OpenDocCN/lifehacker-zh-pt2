@@ -1,6 +1,6 @@
 # 如何使用 Google Home 控制你的八月智能锁
 
-> 原文:[https://life hacker . com/how-to-use-Google-home-to-control-your-August-smart-loc-1830799478](https://lifehacker.com/how-to-use-google-home-to-control-your-august-smart-loc-1830799478)
+> 原文：<https://lifehacker.com/how-to-use-google-home-to-control-your-august-smart-loc-1830799478>
 
 当你需要让某人临时进入你的家，并且不想交出一把可复制的钥匙，或者你只想能够使用你的智能手机来访问你的 pad，而不是翻遍你的钱包或包来找你的钥匙时，智能锁可以是很棒的。
 

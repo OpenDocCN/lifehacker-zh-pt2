@@ -1,6 +1,6 @@
 # 每个好的哺乳室应该包括什么
 
-> 原文:[https://life hacker . com/what-every-good-泌乳室应包括-1840876152](https://lifehacker.com/what-every-good-lactation-room-should-include-1840876152)
+> 原文：<https://lifehacker.com/what-every-good-lactation-room-should-include-1840876152>
 
 前几天，在闲聊关于 [和](https://lifehacker.com/store-your-breast-pump-parts-in-the-fridge-between-sess-1840874381) 的时候，我的几个同事开始讨论什么样的工作场所才有足够的哺乳空间。我决定问问专家们( [后代脸书集团](https://www.facebook.com/groups/2018785615043946/) )他们认为私人抽水空间应该包括什么，这些人从来没有这么快回答过问题。他们说，一个好的抽水室是一项人权，但实际上并没有说。
 

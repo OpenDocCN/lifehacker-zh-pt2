@@ -1,6 +1,6 @@
 # 八月的健身挑战是:游泳
 
-> 原文:[https://life hacker . com/the-August-fitness-challenge-is-swimming-1836888131](https://lifehacker.com/the-august-fitness-challenge-is-swimming-1836888131)
+> 原文：<https://lifehacker.com/the-august-fitness-challenge-is-swimming-1836888131>
 
 你已经等了一年了，对吧？我们打算跳进游泳池游泳锻炼身体。(也欢迎湖泊和海洋游泳者。)
 

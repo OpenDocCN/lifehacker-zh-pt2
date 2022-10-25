@@ -1,6 +1,6 @@
 # 你应该何时以及如何“追踪”你的新生儿？
 
-> 原文:[https://life hacker . com/when-and-how-you-shake-1831649433](https://lifehacker.com/when-and-how-should-you-track-your-newborn-1831649433)
+> 原文：<https://lifehacker.com/when-and-how-should-you-track-your-newborn-1831649433>
 
 上周，一位读者向我们提问，关于跟踪新生儿喂养和尿布更换的最佳应用程序。对此我的第一反应是，“应用程序？我用的是黄色的拍纸簿。”但后来我想起那是八年前的事了，就新父母的技术而言，那可能是 50 年前的事了。
 

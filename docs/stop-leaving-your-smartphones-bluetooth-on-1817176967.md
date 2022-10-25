@@ -1,6 +1,6 @@
 # 不要让智能手机的蓝牙开着
 
-> 原文:[https://life hacker . com/stop-leaving-your-smarts-bluetooth-on-1817176967](https://lifehacker.com/stop-leaving-your-smartphones-bluetooth-on-1817176967)
+> 原文：<https://lifehacker.com/stop-leaving-your-smartphones-bluetooth-on-1817176967>
 
 蓝牙是一个方便的功能，可以让你轻松连接各种设备，无论你是想让你的新无线耳机与你的 Android 手机通话，还是将你的 Apple Watch 连接到你的 iPhone。如果你不够幸运的话，蓝牙还可以让你陷入青少年与陌生人分享自拍的交叉火力 中。尽管蓝牙很方便，但是如果你不经常使用它，或者从来不使用它，那么让它一直开着会有一些不愉快的后果。
 

@@ -1,6 +1,6 @@
 # DJ D-Nice 的《俱乐部隔离》今晚在电视上播出
 
-> 原文:[https://life hacker . com/DJ-d-nices-club-quarantine-is-on-TV-tonight-1843054219](https://lifehacker.com/dj-d-nices-club-quarantine-is-on-tv-tonight-1843054219)
+> 原文：<https://lifehacker.com/dj-d-nices-club-quarantine-is-on-tv-tonight-1843054219>
 
 一个多月来，DJ D-Nice 一直定期在 Instagram 上打开俱乐部隔离区的虚拟大门。从史努比狗狗到奥普拉，每个人都参加了他的在线 DJ 会议。今晚，这种体验正以一种特殊的“俱乐部 MTV”音乐活动的形式跃上电视。
 

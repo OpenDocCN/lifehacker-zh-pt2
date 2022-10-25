@@ -1,6 +1,6 @@
 # what to do when your friends have broken up with each o 1832406268
 
-> 原文:[https://life hacker . com/1832406268](https://lifehacker.com/what-to-do-when-your-friends-have-broken-up-with-each-o-1832406268)
+> 原文：<https://lifehacker.com/what-to-do-when-your-friends-have-broken-up-with-each-o-1832406268>
 
 去年的一个深夜，我正坐在公寓里工作，这时我的电话响了。是我的好朋友亚历克斯。亚历克斯正在和我的另一个好朋友索尼娅约会，她带他去密歇根见她的家人。我以为他们在一起，想打个招呼，但我沉浸在自己的事情中，没有理会电话。
 

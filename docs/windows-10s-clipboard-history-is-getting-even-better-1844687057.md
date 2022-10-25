@@ -1,6 +1,6 @@
 # Windows 10 的剪贴板历史变得更好了
 
-> 原文:[https://life hacker . com/windows-10s-clipboard-history-be-being-even-better-1844687057](https://lifehacker.com/windows-10s-clipboard-history-is-getting-even-better-1844687057)
+> 原文：<https://lifehacker.com/windows-10s-clipboard-history-is-getting-even-better-1844687057>
 
 Windows 10 有一个内置的剪贴板历史，随着 Windows 10 Build 20185 的即将发布，它将变得更加方便，目前可供 Windows 内部人员测试。
 

@@ -1,6 +1,6 @@
 # 两大航空公司是如何处理社交距离的
 
-> 原文:[https://life hacker . com/how-two-major-airlines-are-actually-handling-social-dis-1844233813](https://lifehacker.com/how-two-major-airlines-are-actually-handling-social-dis-1844233813)
+> 原文：<https://lifehacker.com/how-two-major-airlines-are-actually-handling-social-dis-1844233813>
 
 当旅行开始慢慢开放时，航空公司证实他们将采取社交距离措施:取消中间座位分配，不要让飞机满员。然而，联合航空公司和美国航空公司现在都选择退出，并取消了航班上的社交距离措施，使航班满员——包括中间座位。
 

@@ -1,6 +1,6 @@
 # 旅行时如何藏起你的现金
 
-> 原文:[https://life hacker . com/how-to-hide-your-cash-when-your-traveling-1844177506](https://lifehacker.com/how-to-hide-your-cash-when-youre-traveling-1844177506)
+> 原文：<https://lifehacker.com/how-to-hide-your-cash-when-youre-traveling-1844177506>
 
 我经常听人说他们在旅行时被扒窃，或者他们认为酒店工作人员从他们的财物中偷了钱。无论你的钱包是在罗马的科隆 T2 博物馆被抢走，还是当你在巴塞罗纳当地的地铁线上跳跃时被扒手偷走，你永远不会怀疑你的钱不见了，直到你去使用它。幸运的是，当你旅行时，有许多创造性的方法来保护你的钱。
 

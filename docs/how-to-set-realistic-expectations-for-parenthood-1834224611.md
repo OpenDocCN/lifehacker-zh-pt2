@@ -1,6 +1,6 @@
 # 如何为为人父母设定现实的期望
 
-> 原文:[https://life hacker . com/how-to-set-realistic-expectations for parenthood-1834224611](https://lifehacker.com/how-to-set-realistic-expectations-for-parenthood-1834224611)
+> 原文：<https://lifehacker.com/how-to-set-realistic-expectations-for-parenthood-1834224611>
 
 当你的孩子出生时，你会疯狂地爱上他。你的心就完整了！哦，看着你的伴侣照顾新生儿会很性感。你只会一直想和他们做爱！此外，对于像母乳喂养、睡眠、你的身体和你的职业这样的事情，你已经有了一个计划，一个无论如何都要坚持的计划。你已经读完了所有的书，你已经看了其他父母的经历(所以你知道你将*永远*不会对你自己的孩子做什么，T2)，现在你已经准备好赢得父母身份了。
 

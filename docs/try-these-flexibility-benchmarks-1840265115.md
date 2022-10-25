@@ -1,6 +1,6 @@
 # 尝试这些灵活性基准
 
-> 原文:[https://life hacker . com/try-these-flexibility-benchmarks-1840265115](https://lifehacker.com/try-these-flexibility-benchmarks-1840265115)
+> 原文：<https://lifehacker.com/try-these-flexibility-benchmarks-1840265115>
 
 在 2019 年的最后一个月，我们将做一些练习来衡量进展并设定目标。无论你今年已经锻炼了很多还是刚刚开始，现在设定一个具体的基准将有助于你欣赏自己目前和未来的进步。今天我们从灵活性开始。
 

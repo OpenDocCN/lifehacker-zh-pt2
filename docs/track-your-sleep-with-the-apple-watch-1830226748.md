@@ -1,6 +1,6 @@
 # 用 Apple Watch 追踪你的睡眠
 
-> 原文:[https://life hacker . com/track-your-sleep with-the-apple-watch-1830226748](https://lifehacker.com/track-your-sleep-with-the-apple-watch-1830226748)
+> 原文：<https://lifehacker.com/track-your-sleep-with-the-apple-watch-1830226748>
 
 我至少和一个人分享我的卧室，有时是两个或三个，这取决于晚上是否有孩子迁移。所以当我醒来时，我觉得我有一种超能力，在闹钟真正响起前五分钟让它静音。我当然不是超级:这只是我 Apple Watch 上的一个无声警报。
 

@@ -1,6 +1,6 @@
 # Roman Mars 建议对你的播客进行更多的编辑，减少对设备的担心
 
-> 原文:[https://life hacker . com/Roman-mars-recommendes-more-editing-of-your-podcast-and-1835951526](https://lifehacker.com/roman-mars-recommends-more-editing-of-your-podcast-and-1835951526)
+> 原文：<https://lifehacker.com/roman-mars-recommends-more-editing-of-your-podcast-and-1835951526>
 
 可以肯定地说，罗曼·马尔斯对播客略知一二。
 

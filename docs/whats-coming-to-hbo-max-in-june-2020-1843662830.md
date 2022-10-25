@@ -1,6 +1,6 @@
 # 2020 年 6 月 HBO Max 将迎来什么
 
-> 原文:[https://life hacker . com/whats-coming-to-HBO-max-in-June-2020-1843662830](https://lifehacker.com/whats-coming-to-hbo-max-in-june-2020-1843662830)
+> 原文：<https://lifehacker.com/whats-coming-to-hbo-max-in-june-2020-1843662830>
 
 HBO Max 本周正式推出，到 6 月份，流媒体服务将加载新的内容。
 

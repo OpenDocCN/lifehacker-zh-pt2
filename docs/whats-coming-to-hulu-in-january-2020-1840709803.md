@@ -1,6 +1,6 @@
 # 2020 年 1 月，Hulu 将迎来什么
 
-> 原文:[https://life hacker . com/whats-coming-to-Hulu-in-January-2020-1840709803](https://lifehacker.com/whats-coming-to-hulu-in-january-2020-1840709803)
+> 原文：<https://lifehacker.com/whats-coming-to-hulu-in-january-2020-1840709803>
 
 Hulu 是一种流媒体服务，其内容在一定程度上取决于常规广播电视的内容，但该服务也有许多独特的电影和连续剧。
 

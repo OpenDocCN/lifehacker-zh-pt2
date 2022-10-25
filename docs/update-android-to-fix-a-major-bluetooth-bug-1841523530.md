@@ -1,6 +1,6 @@
 # 更新 Android 以修复一个主要的蓝牙错误
 
-> 原文:[https://life hacker . com/update-Android-to-fix-a-major-bluetooth-bug-1841523530](https://lifehacker.com/update-android-to-fix-a-major-bluetooth-bug-1841523530)
+> 原文：<https://lifehacker.com/update-android-to-fix-a-major-bluetooth-bug-1841523530>
 
 任何拥有运行 Android 8 或 9 的旧 Android 设备的人都需要警惕使用蓝牙。网络安全公司 ERNW 发现了一个漏洞，该漏洞允许蓝牙 Android 设备范围内的任何人访问该设备的存储。
 

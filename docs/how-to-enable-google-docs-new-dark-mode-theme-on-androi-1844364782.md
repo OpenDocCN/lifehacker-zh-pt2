@@ -1,6 +1,6 @@
 # 如何在 Android 上启用谷歌文档的新黑暗模式主题
 
-> 原文:[https://life hacker . com/how-to-enable-Google-docs-new-dark-mode-theme-on-androi-1844364782](https://lifehacker.com/how-to-enable-google-docs-new-dark-mode-theme-on-androi-1844364782)
+> 原文：<https://lifehacker.com/how-to-enable-google-docs-new-dark-mode-theme-on-androi-1844364782>
 
 谷歌*终于*给安卓系统上的谷歌文档和幻灯片增加了和[黑暗模式。新的深色主题看起来与其他第一方谷歌应用程序中的相同:亮白色被深色灰色和黑色取代，这对眼睛和电池来说应该更容易。](https://gsuiteupdates.googleblog.com/2020/07/dark-theme-google-docs-sheets-slides-.html)
 

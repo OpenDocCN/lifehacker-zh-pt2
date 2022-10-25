@@ -1,6 +1,6 @@
 # 为什么你的 iPhone 希望你比平时更新更多的应用程序
 
-> 原文:[https://life hacker . com/how-to-stop-your-iphone-from-redownloading-app-updates-1843678780](https://lifehacker.com/how-to-stop-your-iphone-from-redownloading-app-updates-1843678780)
+> 原文：<https://lifehacker.com/how-to-stop-your-iphone-from-redownloading-app-updates-1843678780>
 
 苹果应用商店随机要求用户 [重新下载他们之前安装的应用更新](https://www.macrumors.com/2020/05/25/apple-reissuing-ios-app-updates/) 。一个类似的问题 [已经影响安卓用户](https://lifehacker.com/dont-be-afraid-of-google-plays-ghost-updates-bug-1843461145) 几个星期了，但是 iOS 应用程序更新似乎正在下载整个更新文件，而不是像安卓一样的空“幽灵”更新。
 

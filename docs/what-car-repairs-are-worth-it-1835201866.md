@@ -1,6 +1,6 @@
 # 有哪些修车值得？
 
-> 原文:[https://jalopnik . com/what-car-repairs-worth-it-1835201866](https://jalopnik.com/what-car-repairs-are-worth-it-1835201866)
+> 原文：<https://jalopnik.com/what-car-repairs-are-worth-it-1835201866>
 
 去年秋天，我和我的女士在纽约北部开车，我看到一些烟从引擎盖下冒出来。没有警示灯，但当我靠边停车并掀开引擎盖后，冒出了更多的烟。后来我才知道，我的 2008 款本田飞度运动版的空调已经烤焦了。
 

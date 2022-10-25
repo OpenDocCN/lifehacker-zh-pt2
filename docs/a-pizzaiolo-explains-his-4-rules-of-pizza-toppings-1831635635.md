@@ -1,6 +1,6 @@
 # 一个比萨爱好者解释了他的比萨配料的 4 条规则
 
-> 原文:[https://the take out . com/a-pizza iolo-explains-his-4-rules-of-pizza-toppings-1831635635](https://thetakeout.com/a-pizzaiolo-explains-his-4-rules-of-pizza-toppings-1831635635)
+> 原文：<https://thetakeout.com/a-pizzaiolo-explains-his-4-rules-of-pizza-toppings-1831635635>
 
 我们中的绝大多数人都吃披萨，我们都有自己最喜欢的配料，就像我们最喜欢的运动队或最爱的黑道家族剧集一样。就个人而言，我更喜欢意大利香肠和蘑菇。请不要凤尾鱼。
 

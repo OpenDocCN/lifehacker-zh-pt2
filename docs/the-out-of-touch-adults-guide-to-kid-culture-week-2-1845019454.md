@@ -1,6 +1,6 @@
 # 脱离现实的成人对儿童文化的指导:第二周
 
-> 原文:[https://life hacker . com/the-out-of-touch-成年人-儿童文化指南-week-2-1845019454](https://lifehacker.com/the-out-of-touch-adults-guide-to-kid-culture-week-2-1845019454)
+> 原文：<https://lifehacker.com/the-out-of-touch-adults-guide-to-kid-culture-week-2-1845019454>
 
 ### 
 

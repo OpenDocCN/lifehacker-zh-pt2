@@ -1,6 +1,6 @@
 # 如何向你的孩子介绍社交媒体的狂野世界
 
-> 原文:[https://life hacker . com/how-to-introduction-your-kid-to-the-wild-world-of-social-m-1839944406](https://lifehacker.com/how-to-introduce-your-kid-to-the-wild-world-of-social-m-1839944406)
+> 原文：<https://lifehacker.com/how-to-introduce-your-kid-to-the-wild-world-of-social-m-1839944406>
 
 为人父母最棘手的部分之一是教我们的孩子如何安全地做有很大可能伤害他们的事情。从教他们在学龄前安全使用剪刀开始，然后教他们用锋利的刀切自己的食物，在我们知道之前，教他们如何开车。我们不喜欢这样做，但我们这样做是因为我们知道另一种选择——他们做这些事情，却从来没有在我们的指导下学会如何安全地做——更糟糕。
 

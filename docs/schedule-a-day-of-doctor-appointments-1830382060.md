@@ -1,6 +1,6 @@
 # 安排一天的医生预约
 
-> 原文:[https://life hacker . com/schedule-a-day-of-doctor-appointments-1830382060](https://lifehacker.com/schedule-a-day-of-doctor-appointments-1830382060)
+> 原文：<https://lifehacker.com/schedule-a-day-of-doctor-appointments-1830382060>
 
 典型的美国人很不善于请假，也不善于像他们应该做的那样经常去看医生。当然，对于许多人来说，这有结构性的原因，但随着一年接近尾声，考虑将这两者结合起来，假设你有稳定性和方法:请一天假，把你所有的医疗预约都解决掉。
 

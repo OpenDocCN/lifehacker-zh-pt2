@@ -1,6 +1,6 @@
 # 使用此交互式地图了解最新的 COVID 旅行限制
 
-> 原文:[https://life hacker . com/stay-update-on-covid-travel-restrictions-with-this-1845011555](https://lifehacker.com/stay-up-to-date-on-covid-travel-restrictions-with-this-1845011555)
+> 原文：<https://lifehacker.com/stay-up-to-date-on-covid-travel-restrictions-with-this-1845011555>
 
 自从新冠肺炎·疫情开始，旅行就变得一团糟。考虑到旅行限制是遏制传染病传播的重要组成部分，这是有道理的。起初，大部分人确实呆在原地，避免乘飞机旅行，呆在他们的家里(或第二个家)。
 

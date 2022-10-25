@@ -1,6 +1,6 @@
 # 免费观看 HBO 的新“人类推荐”工具
 
-> 原文:[https://life hacker . com/watch-HBO-for-free-with-its-new-recommended-by-humans-t-1837036836](https://lifehacker.com/watch-hbo-for-free-with-its-new-recommended-by-humans-t-1837036836)
+> 原文：<https://lifehacker.com/watch-hbo-for-free-with-its-new-recommended-by-humans-t-1837036836>
 
 现在你不需要订阅 HBO 就可以观看一些 HBO 最受欢迎的节目。今天，该网络推出了一个新的“人类推荐”工具，它将允许任何人流式播放超过 50 个免费剧集、电影和纪录片 — ，只要它们是由人类推荐的。
 

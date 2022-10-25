@@ -1,6 +1,6 @@
 # 通过稀释煎饼粉来制作“骗子”薄饼
 
-> 原文:[https://life hacker . com/make-checker-blini-by-thinning-out-pancake-mix-1842981687](https://lifehacker.com/make-cheater-blini-by-thinning-out-pancake-mix-1842981687)
+> 原文：<https://lifehacker.com/make-cheater-blini-by-thinning-out-pancake-mix-1842981687>
 
 由于花式家庭烘焙的激增，仍然很难找到面粉、鸡蛋和酵母，但混合料仍然丰富，煎饼混合料就是其中之一。我——著名的懒女人——已经是加水煎饼粉的粉丝了，特别是自从我发现我可以用它来做不太正宗，但非常好用的薄饼。
 

@@ -1,6 +1,6 @@
 # all the questions to ask before starting your own busin 1832880662
 
-> 原文:[https://life hacker . com/all-the-questions-to-ask-before-starting-your-own-busin-1832880662](https://lifehacker.com/all-the-questions-to-ask-before-starting-your-own-busin-1832880662)
+> 原文：<https://lifehacker.com/all-the-questions-to-ask-before-starting-your-own-busin-1832880662>
 
 [Get Ready To...](https://worksmarter.kinja.com)) : title[![](../Images/6df5a12c55ead4b12ad20872c9620c3d.png)](https://worksmarter.kinja.com)[Get Ready To...](https://worksmarter.kinja.com)Running a small business is hard work, but we're here to help. Welcome to Work Smarter, your one-stop-shop for tips and tricks to help small business owners save time and energy.
 

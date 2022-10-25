@@ -1,6 +1,6 @@
 # 年轻和年长的投资者在熊市中应该做什么
 
-> 原文:[https://life hacker . com/what-younger-and-older-investors-due-a-bea-1842378441](https://lifehacker.com/what-younger-and-older-investors-should-do-during-a-bea-1842378441)
+> 原文：<https://lifehacker.com/what-younger-and-older-investors-should-do-during-a-bea-1842378441>
 
 周一，股市经历了 1987 年以来最大跌幅。虽然 [市场目前正试图反弹](https://www.cnbc.com/2020/03/16/us-stock-futures-rise-slightly-following-dows-third-worst-day-ever.html) ，但在一段时间内，投资肯定会感觉比平时风险更大。
 

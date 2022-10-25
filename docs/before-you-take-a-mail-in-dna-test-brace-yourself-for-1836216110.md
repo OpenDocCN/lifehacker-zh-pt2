@@ -1,6 +1,6 @@
 # before you take a mail in dna test brace yourself for 1836216110
 
-> 原文:[https://life hacker . com/before-you-take-a-mail-in-DNA-test-brace-you-for-1836216110](https://lifehacker.com/before-you-take-a-mail-in-dna-test-brace-yourself-for-1836216110)
+> 原文：<https://lifehacker.com/before-you-take-a-mail-in-dna-test-brace-yourself-for-1836216110>
 
 像许多人一样，芭芭拉·格林伯格(Barbara Greenberg)几年前向一个试管里吐口水，并把她的 DNA 送去分析，当时她并不想揭开任何深刻、黑暗的家庭秘密。“我只是好奇，想看看我是否会发现一些有趣的东西，”格林伯格说。
 

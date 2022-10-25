@@ -1,6 +1,6 @@
 # 现在是让你的孩子学习天文学的时候了
 
-> 原文:[https://life hacker . com/now-is-time to-get-your-kids to-astronomy-1842883585](https://lifehacker.com/now-is-the-time-to-get-your-kids-into-astronomy-1842883585)
+> 原文：<https://lifehacker.com/now-is-the-time-to-get-your-kids-into-astronomy-1842883585>
 
 你们现在要去哪里？任何地方？哪里都没有？也许每 10-14 天去一次杂货店，像我一样？我正在进行社交距离的第五周，在进行*然而* *又一次*散步的时候今天，我告诉我 9 岁的儿子，也许我们应该在周末把狗打包放在车里，开车四处逛逛。“但是我们要把*开到哪里去呢？*”他问道。“不是*到，*”我回应道。“只是...左右。”
 

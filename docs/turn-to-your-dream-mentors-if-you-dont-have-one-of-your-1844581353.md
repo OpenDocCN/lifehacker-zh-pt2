@@ -1,6 +1,6 @@
 # 如果你没有自己的梦想导师，那就去找吧
 
-> 原文:[https://life hacker . com/turn-to-you-dream-mentors-if-you-not-have-one-of-you-of-you-1844581353](https://lifehacker.com/turn-to-your-dream-mentors-if-you-dont-have-one-of-your-1844581353)
+> 原文：<https://lifehacker.com/turn-to-your-dream-mentors-if-you-dont-have-one-of-your-1844581353>
 
 导师在理论上是伟大的，但在现实生活中并不总是按照你希望的方式进行。也许你选择的导师不像你希望的那样有帮助，或者你找不到导师。如果是这样的话，记者出身的博客作者乔安娜·戈达德有一个建议 :列一个你梦想中的导师的名单，问问你自己他们在给定的情况下会怎么做或者会怎么想。以下是如何做到这一点。
 

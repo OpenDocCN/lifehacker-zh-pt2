@@ -1,6 +1,6 @@
 # 指数基金初学者指南
 
-> 原文:[https://life hacker . com/a-初学者指南指数基金-1840135748](https://lifehacker.com/a-beginners-guide-to-index-funds-1840135748)
+> 原文：<https://lifehacker.com/a-beginners-guide-to-index-funds-1840135748>
 
 作为第一次投资者，你经常被引导投资指数基金，以此开始你的财富积累之旅。但是，你如何开始判断众多指数基金选项中哪一个适合你呢？让我们来看看一些指数基金的基础知识，可以帮助你定位自己。
 

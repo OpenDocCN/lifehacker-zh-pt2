@@ -1,6 +1,6 @@
 # 我是 Mailchimp 的联合创始人 Ben Chestnut，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-mailchimp-联合创始人-Ben-chestnut-and-this-is-how-I-1827110952](https://lifehacker.com/im-mailchimp-co-founder-ben-chestnut-and-this-is-how-i-1827110952)
+> 原文：<https://lifehacker.com/im-mailchimp-co-founder-ben-chestnut-and-this-is-how-i-1827110952>
 
 如果你听过播客，你一定听说过 Mailchimp。(“邮件...金普？”)我们采访了电子邮件通讯公司和营销平台的首席执行官兼联合创始人本·切斯特纳特，该公司在 [从未获得任何风险投资](https://www.inc.com/magazine/201802/mailchimp-company-of-the-year-2017.html) 的情况下，收入增长到 5 亿美元。本透露了他早期招聘政策中的电子邮件习惯。
 

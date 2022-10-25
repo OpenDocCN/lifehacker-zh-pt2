@@ -1,6 +1,6 @@
 # 自我隔离实际上是什么意思？
 
-> 原文:[https://life hacker . com/what-do-self-quarantine-actually-mean-1842268976](https://lifehacker.com/what-does-self-quarantine-actually-mean-1842268976)
+> 原文：<https://lifehacker.com/what-does-self-quarantine-actually-mean-1842268976>
 
 你现在可能被要求“在家工作”,或者如果你可能已经接触了新冠肺炎病毒，就准备“自我隔离”。但是对于这涉及到什么还有一些困惑。你能在咖啡馆工作吗？遛狗？
 

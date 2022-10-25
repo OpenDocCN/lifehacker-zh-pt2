@@ -1,6 +1,6 @@
 # 男女薪酬差距可能比之前计算的还要大
 
-> 原文:[https://life hacker . com/pay-gap-of-men-women-may-be bad than-previ-1833743887](https://lifehacker.com/pay-gap-between-men-and-women-might-be-worse-than-previ-1833743887)
+> 原文：<https://lifehacker.com/pay-gap-between-men-and-women-might-be-worse-than-previ-1833743887>
 
 今天是同工同酬日，在这一天，我们承认一个女人必须工作整整 15 个月才能挣到同等职位的男人一年的工资。由于工资差距是 1 美元 80 美分——也就是说，男性同事赚 1 美元，女性赚 80 美分——女性直到 4 月 2 日才能赚到男性 1 月至 12 月的收入。许多有色人种女性必须工作更长时间才能赶上他们的白人男性和白人女性同伴。
 

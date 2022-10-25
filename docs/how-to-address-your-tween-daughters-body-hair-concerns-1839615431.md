@@ -1,6 +1,6 @@
 # 如何解决你十几岁女儿的体毛问题
 
-> 原文:[https://life hacker . com/how-to-address-your-tween-millions-body-hair-concerns-1839615431](https://lifehacker.com/how-to-address-your-tween-daughters-body-hair-concerns-1839615431)
+> 原文：<https://lifehacker.com/how-to-address-your-tween-daughters-body-hair-concerns-1839615431>
 
 “哇，你的毛真多，”站在我女儿左边的男孩说。他敬畏地凝视着她七岁大的圆润的手臂，被夏日的阳光晒成褐色，周围环绕着柔滑的黑发。那是二年级的第一天，也是第一次有人评论我女儿的体毛。但我等待这一刻已经很久了。我的女儿，像许多来自中东和南亚的女孩一样——她是伊朗人和印度人的混血儿——是多毛的(按照西方的标准)。在一所满是白皮肤、浅色头发的白人孩子的学校里，她——在那个年龄——看起来比实际上毛更多，当然也比那个男孩的毛更多。
 

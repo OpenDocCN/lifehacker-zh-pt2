@@ -1,6 +1,6 @@
 # 神奇宝贝剑和盾将会有合作突袭(以及我们今天学到的所有东西)
 
-> 原文:[https://kotaku . com/pokemon-剑与盾-将有-合作-突袭-和-前夕-1835266586](https://kotaku.com/pokemon-sword-and-shield-will-have-co-op-raids-and-eve-1835266586)
+> 原文：<https://kotaku.com/pokemon-sword-and-shield-will-have-co-op-raids-and-eve-1835266586>
 
 《神奇宝贝剑与盾》是任天堂 Switch 期待已久的神奇宝贝系列新作，将于 11 月 15 日发售。现在我们终于对加洛地区有了更多的了解，那里等待着你的神奇宝贝冒险，以及生活在那里的口袋妖怪。
 

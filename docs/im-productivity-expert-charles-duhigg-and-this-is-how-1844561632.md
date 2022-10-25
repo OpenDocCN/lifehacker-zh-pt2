@@ -1,6 +1,6 @@
 # im productivity expert charles duhigg and this is how 1844561632
 
-> 原文:[https://life hacker . com/im-productivity-expert-Charles-du higg-and-this-is-how-1844561632](https://lifehacker.com/im-productivity-expert-charles-duhigg-and-this-is-how-1844561632)
+> 原文：<https://lifehacker.com/im-productivity-expert-charles-duhigg-and-this-is-how-1844561632>
 
 我们大多数人认为的建议实际上根本不是建议。至少不是有用的建议。这可能是我最近采访畅销书作家和生产力专家查尔斯·杜希格的最大收获，他是《石板的*如何做》的主持人。*播客 旨在一次解决一个问题。好的建议 — 可行的、能引起共鸣的、改变人生的建议 — 与明确的指导或指示关系不大，与故事关系更大。杜希格说，故事对于任何人以任何有意义的方式理解和内化改善生活的建议都是至关重要的。我采访了《习惯的力量》和《更快更好更聪明更快更好》的作者，以纪念《How To！。
 

@@ -1,6 +1,6 @@
 # learning to not hate my pandemic beard 1843338589
 
-> 原文:[https://Jezebel . com/learning-to-not-恨我的疫情-比尔德-1843338589](https://jezebel.com/learning-to-not-hate-my-pandemic-beard-1843338589)
+> 原文：<https://jezebel.com/learning-to-not-hate-my-pandemic-beard-1843338589>
 
 3 月，美国第一个 sta rted 重视冠状病毒的一周，一份 2017 [疾控中心指南](https://jezebel.com/looks-like-coronavirus-is-going-to-kill-beards-1841940073) 关于疫情-宜的面部毛发重新浮出水面。最初，我没有理会那张建议我剃掉胡须的 [图片](https://blogs.cdc.gov/niosh-science-blog/2017/11/02/noshave/) ，因为它会影响口罩的佩戴——在那个时候，如果我们没有生病，就不应该戴口罩。进入疫情已经几个月了，在我居住的纽约市，口罩或多或少是必须的。我自制的布口罩永远不会有医用级的贴合性，但我不得不摆弄它，让它贴合我的胡子。这些飞散的胡子会让我看起来像是在走私一只小猫，尽管至少面具掩盖了我的胡子在隔离中变得凌乱不堪。我一直在想是不是该刮胡子了，但是我没办法让自己去刮。
 

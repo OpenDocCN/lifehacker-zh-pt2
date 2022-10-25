@@ -1,6 +1,6 @@
 # how to learn to drive as an adult 1835623159
 
-> 原文:[https://life hacker . com/how-to-learn-to-drive-as a-adult-1835623159](https://lifehacker.com/how-to-learn-to-drive-as-an-adult-1835623159)
+> 原文：<https://lifehacker.com/how-to-learn-to-drive-as-an-adult-1835623159>
 
 我直到 27 岁才学会开车。我在城市长大，所以没有很大的需求，更重要的是，我非常害怕:当我 18 岁试图驾驶我当时男朋友的车时，我每次刹车和转弯时闭上眼睛都尖叫着血腥谋杀。这是一次去回收厂的重要旅程。
 

@@ -1,6 +1,6 @@
 # 征服拉面茶书完全指南
 
-> 原文:[https://the take out . com/recipe-how-to-make-ramen-chashu-ramen-Lord-1831216636](https://thetakeout.com/recipe-how-to-make-ramen-chashu-ramen-lord-1831216636)
+> 原文：<https://thetakeout.com/recipe-how-to-make-ramen-chashu-ramen-lord-1831216636>
 
 拉面最棒的一点是一碗可以包含多种配料——这是许多厨师发挥创造力的地方。它可以是简单而经典的东西，如切成薄片的大葱，或添加复杂的配料，如鱼粉或油炸牛蒡根。有些浇头是预期的，有些不是。
 

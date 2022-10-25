@@ -1,6 +1,6 @@
 # 即使你不喝鸡尾酒，也可以制作鸡尾酒糖浆
 
-> 原文:[https://life hacker . com/make-cocktail-糖浆-即使你不喝鸡尾酒-1841912429](https://lifehacker.com/make-cocktail-syrups-even-if-you-dont-drink-cocktails-1841912429)
+> 原文：<https://lifehacker.com/make-cocktail-syrups-even-if-you-dont-drink-cocktails-1841912429>
 
 我的冰箱里装满了糖浆。除了必不可少的枫糖，还有一些便宜的“煎饼糖浆”，一些 [浆果蜂蜜](https://lifehacker.com/make-a-jewel-toned-honey-with-two-ingredients-1841002930) ，一瓶简单糖浆，一瓶蜂蜜糖浆。从历史上来说，后两种主要用于鸡尾酒，但实际上每个人都应该在他们的冰箱里有它们，不管他们是否喝酒。
 

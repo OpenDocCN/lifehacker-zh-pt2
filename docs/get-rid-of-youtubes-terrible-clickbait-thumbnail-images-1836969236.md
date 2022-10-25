@@ -1,6 +1,6 @@
 # 摆脱 YouTube 可怕的点击诱饵缩略图
 
-> 原文:[https://life hacker . com/get-rid-of-youtubes-terrible-click bait-thumbnail-images-1836969236](https://lifehacker.com/get-rid-of-youtubes-terrible-clickbait-thumbnail-images-1836969236)
+> 原文：<https://lifehacker.com/get-rid-of-youtubes-terrible-clickbait-thumbnail-images-1836969236>
 
 曾经，YouTube 缩略图实际上很像他们广告的视频。曾经，推荐视频列表不是 PS 头像和图形叠加的感官过载，每个缩略图看起来都像一场史诗般的说唱历史之战。你可以回到那个时候，用实际 YouTube 视频中的帧替换 clickbaity 缩略图，用 Chrome 扩展 [为 YouTube](https://chrome.google.com/webstore/detail/clickbait-remover-for-you/omoinegiohhgbikclijaniebjpkeopip) 移除 Clickbait。
 

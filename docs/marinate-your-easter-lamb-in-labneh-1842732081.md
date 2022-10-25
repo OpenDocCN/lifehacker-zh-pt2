@@ -1,6 +1,6 @@
 # 用 Labneh 腌制你的复活节羊肉
 
-> 原文:[https://life hacker . com/腌制你的复活节羔羊-in-labneh-1842732081](https://lifehacker.com/marinate-your-easter-lamb-in-labneh-1842732081)
+> 原文：<https://lifehacker.com/marinate-your-easter-lamb-in-labneh-1842732081>
 
 很久以前，我有个大计划，要和我的朋友丹举办一次复活节早午餐。我们曾有过 [预配料](https://skillet.lifehacker.com/how-to-throw-a-cheap-dinner-party-cocktails-1825727460) 鸡尾酒、 [酸辣酱](https://skillet.lifehacker.com/make-hollandaise-sauce-the-easy-way-with-an-immersion-c-1836184914) 和羊肉雕刻站的宏伟愿景，但显然这些都不再发生了。但是没有能力举办一场盛大的聚会并不是我放弃吃羊肉计划的理由；这些计划只能按比例缩减。
 

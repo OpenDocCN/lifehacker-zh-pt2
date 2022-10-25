@@ -1,6 +1,6 @@
 # 用烧焦的洋葱做更好更快的洋葱蘸酱
 
-> 原文:[https://life hacker . com/make-a-better-fast-onion-dip-with-burned-onions-1843998650](https://lifehacker.com/make-a-better-faster-onion-dip-with-burnt-onions-1843998650)
+> 原文：<https://lifehacker.com/make-a-better-faster-onion-dip-with-burnt-onions-1843998650>
 
 洋葱蘸酱可能是我最喜欢的蘸酱，但是将洋葱焦糖化既烦人又无聊。因为我已经有点烦了，讨厌无聊，所以我现在非常喜欢烤焦洋葱的生活方式，并且在做洋葱蘸酱的时候用烤焦的洋葱代替焦糖洋葱。
 

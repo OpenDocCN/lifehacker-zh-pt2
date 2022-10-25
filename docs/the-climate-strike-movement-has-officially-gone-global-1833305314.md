@@ -1,6 +1,6 @@
 # 气候罢工运动已经正式走向全球
 
-> 原文:[https://gizmodo . com/the-climate-strike-movement-has-official-going-global-1833305314](https://gizmodo.com/the-climate-strike-movement-has-officially-gone-global-1833305314)
+> 原文：<https://gizmodo.com/the-climate-strike-movement-has-officially-gone-global-1833305314>
 
 周五，世界各地的学生醒来时知道，在数学、英语、生物或其他一些死记硬背的课程之间，他们会站起来走出去。从瓦努阿图到欧洲再到美国，气候罢工运动已经正式成为一种全球现象。预计周五将有 123 个国家的 100 万名学生进行罢工。
 

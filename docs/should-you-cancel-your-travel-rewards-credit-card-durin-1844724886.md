@@ -1,6 +1,6 @@
 # 你应该在疫情取消你的旅行奖励信用卡吗？
 
-> 原文:[https://life hacker . com/should-you-cancel-your-travel-rewards-credit-card-durin-1844724886](https://lifehacker.com/should-you-cancel-your-travel-rewards-credit-card-durin-1844724886)
+> 原文：<https://lifehacker.com/should-you-cancel-your-travel-rewards-credit-card-durin-1844724886>
 
 随着疫情取消秋季计划，如和 [大学足球](https://www.politico.com/news/2020/08/13/college-football-coronavirus-maga-394505) ，你可能不会期待旅行到 2020 年甚至更久。有了所有的 [旅行限制](https://www.cdc.gov/coronavirus/2019-ncov/travelers/travel-during-covid19.html) ，你可能在想你的 [奖励信用卡](https://twocents.lifehacker.com/its-time-to-stop-using-your-travel-rewards-credit-card-1842615023?_ga=2.195227624.558985030.1597022187-1566653369.1585083891) ，高额的年费，以及保留它是否还有意义。
 

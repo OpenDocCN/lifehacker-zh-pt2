@@ -1,6 +1,6 @@
 # 我向苹果询问了它所知道的关于我的一切，以下是我的发现
 
-> 原文:[https://life hacker . com/I-asked-apple-for-everything-it-know-on-me and her-1831045096](https://lifehacker.com/i-asked-apple-for-everything-it-knows-about-me-and-her-1831045096)
+> 原文：<https://lifehacker.com/i-asked-apple-for-everything-it-knows-about-me-and-her-1831045096>
 
 苹果和大多数科技巨头一样，收集了大量关于你的数据。不像其他人那样多——因为它不是你一切都依赖的单一搜索引擎——但是你不能在不留下某种数字足迹的情况下使用苹果的产品和服务。
 

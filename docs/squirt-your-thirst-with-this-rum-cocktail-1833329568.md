@@ -1,6 +1,6 @@
 # 用这种朗姆酒鸡尾酒来解渴吧
 
-> 原文:[https://life hacker . com/squirt-your ' s drught with this-rum-cocktail-1833329568](https://lifehacker.com/squirt-your-thirst-with-this-rum-cocktail-1833329568)
+> 原文：<https://lifehacker.com/squirt-your-thirst-with-this-rum-cocktail-1833329568>
 
 上周末，周日名副其实，我得以在波特兰东南部的 [阳光鸡尾酒吧](https://www.barpalomar.com) 享受几杯鸡尾酒。我先喝了一杯椰子杜松子酒 negroni，在啜饮的时候，一杯时髦的鸡尾酒(我年轻时最喜欢的苏打水之一)吸引了我的目光。
 

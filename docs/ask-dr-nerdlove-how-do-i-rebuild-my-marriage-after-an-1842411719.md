@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:我如何在婚外情后重建婚姻？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-how-do-I-rebuild-my-marriage-after-an-1842411719](https://kotaku.com/ask-dr-nerdlove-how-do-i-rebuild-my-marriage-after-an-1842411719)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-how-do-i-rebuild-my-marriage-after-an-1842411719>
 
 大家好，所有你们这些令人恐惧的皮肤机器，欢迎来到 [向 NerdLove](http://kotaku.com/askdrnerdlove) 博士提问，这是唯一一个关于如何在腐败的血液瘟疫中生存的建议专栏。
 

@@ -1,6 +1,6 @@
 # 如何完美地管理你的复活节篮子
 
-> 原文:[https://the take out . com/how-to-perfect-策展你的复活节篮子巧克力-1833723507](https://thetakeout.com/how-to-perfectly-curate-your-easter-basket-chocolate-1833723507)
+> 原文：<https://thetakeout.com/how-to-perfectly-curate-your-easter-basket-chocolate-1833723507>
 
 复活节是在 4 月 21 日(希腊人是 4 月 28 日)，这意味着你只有几天时间为你和你的家人做一些重要的决定。你会用季节风格打扮自己吗？你会勇敢面对早午餐人群在你城市的街道上游荡吗？最重要的是:在你家的复活节篮子里会有什么等待着让所有收到篮子的人惊喜呢？
 

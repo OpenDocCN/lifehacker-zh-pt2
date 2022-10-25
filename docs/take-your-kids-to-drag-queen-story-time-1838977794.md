@@ -1,6 +1,6 @@
 # 带你的孩子去拖拉女王故事时间
 
-> 原文:[https://life hacker . com/take-your-kids-to-drag-queen-story-time-1838977794](https://lifehacker.com/take-your-kids-to-drag-queen-story-time-1838977794)
+> 原文：<https://lifehacker.com/take-your-kids-to-drag-queen-story-time-1838977794>
 
 在“变装皇后故事时间”里，闪闪丽最喜欢读的故事之一是 [*费迪南*](https://www.amazon.com/Story-Ferdinand-Munro-Leaf/dp/044845694X?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/take-your-kids-to-drag-queen-story-time-1838977794&asc_source=&tag=kinjalifehackerlink-20) 的故事。出版于 1936 年的《费迪南》( Ferdinand)讲述了一只西班牙公牛的故事，这只公牛被认为是一名有男子气概的斗牛士，但他只想坐在花丛中欣赏美景。
 

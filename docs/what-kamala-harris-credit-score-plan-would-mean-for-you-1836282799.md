@@ -1,6 +1,6 @@
 # 卡玛拉·哈里斯的信用评分计划对你意味着什么
 
-> 原文:[https://life hacker . com/what-kamala-Harris-credit-score-plan-will-mean-for-you-1836282799](https://lifehacker.com/what-kamala-harris-credit-score-plan-would-mean-for-you-1836282799)
+> 原文：<https://lifehacker.com/what-kamala-harris-credit-score-plan-would-mean-for-you-1836282799>
 
 信用评分通常由贷款和信用卡的使用情况决定。但是，几乎每个人每个月都要支付的账单，比如水电费，只有当这些账单被收账时，才会出现在你的信用报告上。这种结构排除了很多不使用信贷产品的人，无论是出于选择还是出于需要。
 

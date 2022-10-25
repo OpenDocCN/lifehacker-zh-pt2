@@ -1,6 +1,6 @@
 # are you still trying to conceive during the pandemic 1842981406
 
-> 原文:[https://life hacker . com/1842981406](https://lifehacker.com/are-you-still-trying-to-conceive-during-the-pandemic-1842981406)
+> 原文：<https://lifehacker.com/are-you-still-trying-to-conceive-during-the-pandemic-1842981406>
 
 在情况最好的时候，决定何时尝试怀孕可能会很复杂。即使你的工作很稳定，你确定你真的做好了财务准备吗？即使你愿意再等一会儿，你的年龄是否已经开始慢慢增长，以至于你担心你的时间窗口可能会关闭？兄弟姐妹的年龄差距、太短的育儿假和太高的日托费用怎么办？现在让我们把全球健康危机也加入进来，看看我们的感受。
 

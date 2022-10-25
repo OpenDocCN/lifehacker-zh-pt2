@@ -1,6 +1,6 @@
 # how you can help save the fireflies 1844469569
 
-> 原文:[https://life hacker . com/how-you-can-help-拯救萤火虫-1844469569](https://lifehacker.com/how-you-can-help-save-the-fireflies-1844469569)
+> 原文：<https://lifehacker.com/how-you-can-help-save-the-fireflies-1844469569>
 
 如果你已经注意到你的后院不再像过去那样闪烁着萤火虫的光芒，你是对的:很可能不会。 [萤火虫正在从世界各地的田野、沼泽和森林中消失](https://www.firefly.org/why-are-fireflies-disappearing.html) 。
 

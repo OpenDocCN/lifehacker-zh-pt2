@@ -1,6 +1,6 @@
 # 利用这些父亲节促销活动
 
-> 原文:[https://life hacker . com/take-advantage-these-father-day-sales-1835480554](https://lifehacker.com/take-advantage-of-these-fathers-day-sales-1835480554)
+> 原文：<https://lifehacker.com/take-advantage-of-these-fathers-day-sales-1835480554>
 
 这个周日是父亲在 Day⁠—in 的案子，你忘了——今年不给他买领带，也许是时候送他一些他真正需要的东西了。这里是我们在网上发现的一些最好的交易和折扣(也许还有一两件你想自己买的东西)。
 

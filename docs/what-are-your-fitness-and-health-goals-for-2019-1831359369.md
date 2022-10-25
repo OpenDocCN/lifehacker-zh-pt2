@@ -1,6 +1,6 @@
 # 2019 年你的健身健康目标是什么？
 
-> 原文:[https://life hacker . com/what-your ' s fitness-and-health-goals-for-2019-1831359369](https://lifehacker.com/what-are-your-fitness-and-health-goals-for-2019-1831359369)
+> 原文：<https://lifehacker.com/what-are-your-fitness-and-health-goals-for-2019-1831359369>
 
 你们所有人都 [震撼了 2018](https://lifehacker.com/the-most-inspiring-2018-fitness-accomplishments-from-ou-1831242234) ，所以我迫不及待地想听听接下来会发生什么。你要多跑步吗？多抬抬？吃得更好？
 

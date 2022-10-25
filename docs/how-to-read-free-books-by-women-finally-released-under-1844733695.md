@@ -1,6 +1,6 @@
 # 如何阅读女性的免费书籍，最终以她们的真实姓名发行
 
-> 原文:[https://life hacker . com/how-to-read-free-books-by-women-finally-released-under-1844733695](https://lifehacker.com/how-to-read-free-books-by-women-finally-released-under-1844733695)
+> 原文：<https://lifehacker.com/how-to-read-free-books-by-women-finally-released-under-1844733695>
 
 在我们的历史上，有很长一段时间，女性用男性笔名写书，以便有机会出版。自那以后，情况有所改善(尽管显然我们仍然需要 [假男助手](https://www.lifehacker.com.au/2020/07/get-yourself-a-fake-male-assistant/) 来让欧的请求得到认真对待)，为了庆祝这些作者，并以他们的真实姓名给予他们荣誉，他们的 25 本书将通过“收回她的名字”系列发行。以下是如何找到标题并免费下载的方法。
 

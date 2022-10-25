@@ -1,6 +1,6 @@
 # 给 Instacart 购物者小费的正确方式
 
-> 原文:[https://life hacker . com/the-right-way-to-tip-your-insta cart-shopper-1839775934](https://lifehacker.com/the-right-way-to-tip-your-instacart-shopper-1839775934)
+> 原文：<https://lifehacker.com/the-right-way-to-tip-your-instacart-shopper-1839775934>
 
 上周，Instacart 的工人们组织了一场全国性的罢工，持续了三天，要求将交付平台界面上的默认小费从 5%增加到 10%。在一篇因“隐私”原因被 Medium 删除的帖子中(自从 [被重新发布](https://medium.com/@nopenever50/dear-apoorva-mehta-founder-and-ceo-of-instacart-944ca4db6ad0) )，几名 Instacart 购物者在罢工前对该公司的首席执行官 Apoorva Mehta 说，他的商业行为“不道德”。
 

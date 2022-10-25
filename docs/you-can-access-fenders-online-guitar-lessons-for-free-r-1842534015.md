@@ -1,6 +1,6 @@
 # 你现在可以免费访问芬达的在线吉他课程
 
-> 原文:[https://life hacker . com/you-can-access-fenders-online-guitar-lessons-for-free-r-1842534015](https://lifehacker.com/you-can-access-fenders-online-guitar-lessons-for-free-r-1842534015)
+> 原文：<https://lifehacker.com/you-can-access-fenders-online-guitar-lessons-for-free-r-1842534015>
 
 如果你正在利用你的时间物理距离学习吉他，芬达正在向第一批报名参加 [芬达演奏](https://www.fender.com/play) 的 50 万人提供免费的吉他、贝斯和尤克里里课程。这是一个免费的试用，但你不必处理任何支付细节来获得访问，所以你不会冒被收费的风险，如果你忘记了它。
 

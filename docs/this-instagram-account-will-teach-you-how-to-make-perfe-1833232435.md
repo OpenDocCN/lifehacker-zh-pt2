@@ -1,6 +1,6 @@
 # 使用 Instagram 帐户学习如何制作完美的奶酪盘
 
-> 原文:[https://life hacker . com/this-insta gram-account-will-teach-you-how-to-make-perfe-1833232435](https://lifehacker.com/this-instagram-account-will-teach-you-how-to-make-perfe-1833232435)
+> 原文：<https://lifehacker.com/this-instagram-account-will-teach-you-how-to-make-perfe-1833232435>
 
 我对奶酪盘充满热情。它们不仅充满美味的奶酪供我食用，而且看起来也很有趣。一个好的奶酪盘是对风味平衡的研究，但一个真正优秀的奶酪盘是以一种视觉上令人愉悦的方式排列的。 [这个 Instagram 账号](https://www.instagram.com/cheesebynumbers/) 可以教你如何两者兼得。
 

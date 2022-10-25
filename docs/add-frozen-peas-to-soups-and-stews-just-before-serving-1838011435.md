@@ -1,6 +1,6 @@
 # 上菜前，在汤和炖菜中加入冷冻豌豆
 
-> 原文:[https://life hacker . com/add-frozen-peas-to-soups-and-stews-just-before-serving-1838011435](https://lifehacker.com/add-frozen-peas-to-soups-and-stews-just-before-serving-1838011435)
+> 原文：<https://lifehacker.com/add-frozen-peas-to-soups-and-stews-just-before-serving-1838011435>
 
 冷冻豌豆为各种菜肴增添了一抹甜味和色彩，但我尤其欣赏它们在浓汤和炖菜中的味道。它们鲜亮的味道为肉类和奶油口味提供了一点植物性的喘息，如果你在最后添加它们，它们可以帮助你将汤冷却到一个合理的、不太痛苦的温度。
 

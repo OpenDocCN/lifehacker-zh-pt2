@@ -1,6 +1,6 @@
 # 在你的金巴利酒和苏打水中加入黄绿色
 
-> 原文:[https://life hacker . com/add-chartreuse-to-your-campari-and-soda-1841837045](https://lifehacker.com/add-chartreuse-to-your-campari-and-soda-1841837045)
+> 原文：<https://lifehacker.com/add-chartreuse-to-your-campari-and-soda-1841837045>
 
 当我推荐一瓶新酒时，我会尝试在多种食谱中突出它，这样它就不会坐在你的酒吧推车上，慢慢消失。我特别喜欢用昂贵的瓶子来强调这一点，绿色黄绿色——我在 Lifehacker 的生日鸡尾酒 中使用过——呃，相当昂贵。
 

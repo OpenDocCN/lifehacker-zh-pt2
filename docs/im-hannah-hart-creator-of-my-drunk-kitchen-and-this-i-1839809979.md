@@ -1,6 +1,6 @@
 # im hannah hart creator of my drunk kitchen and this i 1839809979
 
-> 原文:[https://life hacker . com/im-Hannah-hart-creator-of-my-druged-kitchen-and-this-I-1839809979](https://lifehacker.com/im-hannah-hart-creator-of-my-drunk-kitchen-and-this-i-1839809979)
+> 原文：<https://lifehacker.com/im-hannah-hart-creator-of-my-drunk-kitchen-and-this-i-1839809979>
 
 汉娜·哈特创造了 [*我的醉厨*](https://www.youtube.com/user/MyHarto/featured) ，互联网最著名的烹饪节目，但哈特的频道还包括游记、生活建议、LGBTQ 行动主义等等。八年来，哈特已经成为了一个类似奥普拉或艾伦之类的博客主持人，定期接待名人嘉宾，并发展了一个庞大的崇拜者群体。她还主持了美食网络节目《我爱美食》( I Hart Food )( T7 ),并联合主演了电影《Takota 营》( T8 )( t 9)。她的第三本书 [*我的醉鬼厨房假期*](https://www.penguinrandomhouse.com/books/603769/my-drunk-kitchen-holidays-by-hannah-hart/) 于今年十月出版。我们和汉娜谈论了她对项目的态度，她如何用日历代替电子邮件，以及令人惊讶的禁欲主义者对饮料的选择。
 

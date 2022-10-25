@@ -1,6 +1,6 @@
 # 这种漂亮的粉红色菠萝饮料比看起来更难喝
 
-> 原文:[https://life hacker . com/this-pretty-pink-菠萝饮料比它-loo-1837936745](https://lifehacker.com/this-pretty-pink-pineapple-drink-is-tougher-than-it-loo-1837936745)
+> 原文：<https://lifehacker.com/this-pretty-pink-pineapple-drink-is-tougher-than-it-loo-1837936745>
 
 “原则上”拒绝水果饮料或双杯饮料的人很可能是非常无聊的人。比起代基里酒，更喜欢一杯纯威士忌没什么错，但根据颜色、玻璃器皿或想象中的性别来判断一种饮料是非常怪异的，尤其是当水果美味、跑车优雅的时候。
 

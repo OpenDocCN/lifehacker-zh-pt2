@@ -1,6 +1,6 @@
 # 为什么你的冠状病毒抗体阳性测试可能是错的
 
-> 原文:[https://life hacker . com/why-your-positive-coronavirus-antibody-test-may-be-wr-1843711812](https://lifehacker.com/why-your-positive-coronavirus-antibody-test-might-be-wr-1843711812)
+> 原文：<https://lifehacker.com/why-your-positive-coronavirus-antibody-test-might-be-wr-1843711812>
 
 疾控中心[发布了新的抗体检测指南](https://www.cdc.gov/coronavirus/2019-ncov/lab/resources/antibody-tests-guidelines.html)指出一项准确率为 90-95%的检测有可能在超过一半的时间里给出不正确的阳性结果。这听起来令人震惊，但这可能是真的——如果你正在考虑接受测试或者已经得到了积极的结果，理解为什么是重要的。
 

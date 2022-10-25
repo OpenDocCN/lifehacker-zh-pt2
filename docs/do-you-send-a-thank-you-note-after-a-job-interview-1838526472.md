@@ -1,6 +1,6 @@
 # 你会在工作面试后发感谢信吗？
 
-> 原文:[https://life hacker . com/do-you-send-a-thank-you-note-after-a-job-interview-1838526472](https://lifehacker.com/do-you-send-a-thank-you-note-after-a-job-interview-1838526472)
+> 原文：<https://lifehacker.com/do-you-send-a-thank-you-note-after-a-job-interview-1838526472>
 
 在最近为《知情者》 撰写的一篇 [报道中，执行总编杰西卡·利伯曼就她的招聘实践明确了一件事:如果你想得到这份工作，你最好发一封“感谢信”。“当我刚开始招聘时，我想出了一个简单的规则:我们不应该让候选人进入面试过程的下一阶段，除非他们发了一封感谢信，”她写道。然而，这条规则在社交媒体上并不那么受欢迎。](https://twitter.com/jessicaliebman/status/1114160523581501440)
 

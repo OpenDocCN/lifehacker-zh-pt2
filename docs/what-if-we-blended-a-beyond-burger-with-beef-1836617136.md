@@ -1,6 +1,6 @@
 # 如果我们混合一个超越汉堡...用牛肉吗？
 
-> 原文:[https://the take out . com/what-if-we-blended-a beyond-burger-with-beef-1836617136](https://thetakeout.com/what-if-we-blended-a-beyond-burger-with-beef-1836617136)
+> 原文：<https://thetakeout.com/what-if-we-blended-a-beyond-burger-with-beef-1836617136>
 
 本周，*外卖*的工作人员受到了 Otto42.5 的 [评论的启发，这是一个关于](https://thetakeout.com/1836494689?) [吃肉/不可能的汉堡](https://thetakeout.com/who-eats-fast-food-meatless-vegan-burgers-data-1836490878) (不是纯素食者)以外的东西的故事。T 帽子评论:
 

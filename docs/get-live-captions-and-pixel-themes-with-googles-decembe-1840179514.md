@@ -1,6 +1,6 @@
 # 通过谷歌 12 月的安全更新获得实时字幕和像素主题
 
-> 原文:[https://life hacker . com/get-live-captions-and-pixel-themes-with-Google es-decembe-1840179514](https://lifehacker.com/get-live-captions-and-pixel-themes-with-googles-decembe-1840179514)
+> 原文：<https://lifehacker.com/get-live-captions-and-pixel-themes-with-googles-decembe-1840179514>
 
 安卓 12 月安全更新来了。如果你是 Pixel 手机的骄傲拥有者，是时候 [检查一下](https://support.google.com/pixelphone/answer/4457705) ，看看你是否能为你的设备获取最新的补丁、补丁和功能。但是请记住:谷歌将一如既往地推出更新，所以你可能还没有更新。
 

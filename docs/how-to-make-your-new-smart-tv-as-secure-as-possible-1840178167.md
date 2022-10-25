@@ -1,6 +1,6 @@
 # 如何让您的新智能电视尽可能安全
 
-> 原文:[https://life hacker . com/how-to-make-your-new-smart-TV-as-secure-as-possible-1840178167](https://lifehacker.com/how-to-make-your-new-smart-tv-as-secure-as-possible-1840178167)
+> 原文：<https://lifehacker.com/how-to-make-your-new-smart-tv-as-secure-as-possible-1840178167>
 
 很多人在黑色星期五和网络星期一购买电视，但是在设置智能电视时，你需要考虑的不仅仅是把所有东西都插上电源。与任何基于互联网的产品一样，智能电视容易受到黑客和安全漏洞的攻击。被黑客入侵的电视听起来像是你最喜欢的犯罪剧里的情节，但这是非常真实的可能性。事实上，正如最近 Inc.com 专栏所指出的，就连联邦调查局也介入警告消费者超市电视可能带来的潜在危险。以下是他们的一些建议，以及我们对提高超市电视安全性的一些建议:
 

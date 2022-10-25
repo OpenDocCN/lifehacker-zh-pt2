@@ -1,6 +1,6 @@
 # 如何帮助 NICU 有婴儿的家庭
 
-> 原文:[https://life hacker . com/how-to-help-a-family-the-have-a-baby in-the-NICU-1839499787](https://lifehacker.com/how-to-help-a-family-that-has-a-baby-in-the-nicu-1839499787)
+> 原文：<https://lifehacker.com/how-to-help-a-family-that-has-a-baby-in-the-nicu-1839499787>
 
 当蒂芙尼·布罗修斯怀孕 26 周时，她的脚开始肿胀。但是这位 37 岁的亚特兰大母亲说她没有想太多。毕竟孕期肿胀是常有的事。但随后它开始在她体内传播，所以 Brosius 去了她的供应商那里，她发现她正在经历先兆子痫——怀孕期间危险的高血压。她被送进医院，接受治疗和密切监测。六天后，当流向胎儿的血液因她的状况而受损时，她通过剖腹产生下了孩子。
 

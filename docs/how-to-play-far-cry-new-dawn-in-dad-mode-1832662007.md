@@ -1,6 +1,6 @@
 # 如何在“爸爸模式”下玩《孤岛惊魂新黎明》
 
-> 原文:[https://life hacker . com/how-to-play-far-cry-new-dawn-in-dad-mode-1832662007](https://lifehacker.com/how-to-play-far-cry-new-dawn-in-dad-mode-1832662007)
+> 原文：<https://lifehacker.com/how-to-play-far-cry-new-dawn-in-dad-mode-1832662007>
 
 [*【孤岛惊魂】新黎明*](https://far-cry.ubisoft.com/game/en-gb/home) ，育碧开放世界《孤岛惊魂》系列的最新版本，设定在结束*《孤岛惊魂》5* 的世界末日核事件多年后。蒙大拿州的霍普县几乎被摧毁，但是一群乌合之众的幸存者想要重建。你的工作是帮助他们清除物资，建立繁荣的定居点，并与恐吓民众的邪恶拦路强盗作战。
 

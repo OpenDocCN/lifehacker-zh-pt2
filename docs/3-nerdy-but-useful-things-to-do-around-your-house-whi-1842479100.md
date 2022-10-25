@@ -1,6 +1,6 @@
 # 3 个呆在家里时可以在家里做的无聊但有用的事情
 
-> 原文:[https://gizmodo . com/3-在家做些无聊但有用的事情](https://gizmodo.com/3-nerdy-but-useful-things-to-do-around-your-house-whi-1842479100)
+> 原文：<https://gizmodo.com/3-nerdy-but-useful-things-to-do-around-your-house-whi-1842479100>
 
 被 [困在家里](https://io9.gizmodo.com/shaun-of-the-dead-gets-a-coronavirus-update-thanks-to-s-1842413440) 太可恶了。你能做的最好的事情之一——除了绝对呆在家里[](https://gizmodo.com/what-it-s-like-to-be-sick-and-in-quarantine-at-the-epic-1842583739)*——就是对所说的家做一些更新。你是怎么做到的？有很多方法。例如， [你可以清洁物品](https://io9.gizmodo.com/the-cast-of-watchmen-become-the-washmen-in-this-pandemi-1842527397?_ga=2.264541580.2058015170.1584977341-1982811367.1584376436)；你的窗户、地板、厨房，这些东西肯定需要检查一下。当然，那不是很好玩。所以我们想出了一些你可以做的有用的、有益的、令人愉快的活动，这些活动可能会让你呆在家里至少轻松一点。* 
 

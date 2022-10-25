@@ -1,6 +1,6 @@
 # 用葡萄腌制你的羊肉
 
-> 原文:[https://life hacker . com/sous-vide-your lamb-with grapes-1838948491](https://lifehacker.com/sous-vide-your-lamb-with-grapes-1838948491)
+> 原文：<https://lifehacker.com/sous-vide-your-lamb-with-grapes-1838948491>
 
 吃一堆从骨头上掉下来的肉是一种原始的、令人愉快的体验，尤其是如果肉上刷有某种粘稠的、略带甜味的酱料。羊脖子可以提供这种内脏般的用餐体验，但它真正令人印象深刻的骨头和结缔组织意味着你必须在最慢的时间里用最少的热量。显然——我想你知道我在说什么——这使得这种切割成为真空烹饪的绝佳选择。
 

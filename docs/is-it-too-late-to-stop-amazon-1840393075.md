@@ -1,6 +1,6 @@
 # 阻止亚马逊还来得及吗？
 
-> 原文:[https://gizmodo . com/is-it-a-tain-to-stop-Amazon-1840393075](https://gizmodo.com/is-it-too-late-to-stop-amazon-1840393075)
+> 原文：<https://gizmodo.com/is-it-too-late-to-stop-amazon-1840393075>
 
 脑洞大开的时刻发生在大约一周前。一个 [视频](https://www.facebook.com/kathy.slater.330/posts/10157619021525967) (带有亚马逊公司 Ring 的相机标志)显示一名男子递送亚马逊包裹，在门廊上找到一盒零食，然后跳舞 [迅速走红](https://www.yahoo.com/lifestyle/amazon-delivery-man-speaks-about-viral-video-of-his-celebratory-dance-230237902.html) 。我的心灵没能在那一刻找到快乐。
 

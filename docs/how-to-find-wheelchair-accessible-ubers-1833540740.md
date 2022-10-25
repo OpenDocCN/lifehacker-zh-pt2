@@ -1,6 +1,6 @@
 # 如何找到方便轮椅的 Ubers
 
-> 原文:[https://life hacker . com/how-to-find-轮椅无障碍-ubers-1833540740](https://lifehacker.com/how-to-find-wheelchair-accessible-ubers-1833540740)
+> 原文：<https://lifehacker.com/how-to-find-wheelchair-accessible-ubers-1833540740>
 
 让我们面对现实吧——我们认为像优步这样的打车应用是理所当然的。在不到三分钟的时间内，我们只需点击几下电话就能叫到车。就像魔法一样。
 

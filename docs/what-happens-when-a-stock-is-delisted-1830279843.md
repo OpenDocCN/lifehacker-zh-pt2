@@ -1,6 +1,6 @@
 # 一只股票退市会怎么样？
 
-> 原文:[https://life hacker . com/what-happens-what-when-when-a stock-be-delivered-1830279843](https://lifehacker.com/what-happens-when-a-stock-is-delisted-1830279843)
+> 原文：<https://lifehacker.com/what-happens-when-a-stock-is-delisted-1830279843>
 
 每年，股票都会被各种交易所暂停交易和摘牌。虽然这种情况并不少见，但作为投资者，你肯定不想经历这种事情。因为最大的问题是:你的钱怎么了？
 

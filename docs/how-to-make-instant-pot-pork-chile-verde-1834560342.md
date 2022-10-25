@@ -1,6 +1,6 @@
 # 如何制作即食罐猪肉智利佛得角-周末和工作日版本
 
-> 原文:[https://the take out . com/how-to-make-instant-pot-pork-Chile-Verde-1834560342](https://thetakeout.com/how-to-make-instant-pot-pork-chile-verde-1834560342)
+> 原文：<https://thetakeout.com/how-to-make-instant-pot-pork-chile-verde-1834560342>
 
 啊，一个人生活的无忧无虑的日子。我记得那些平静的日子充满了快乐的反复无常，可消耗的收入，做我想做的任何菜。我对智利绿色猪肉的了解和喜爱始于那时。我总是挑战自己去尝试慢煮的、劳动密集型的菜肴，我可以毫无愧疚地花半个周六去做，同时听大量的崩世光景音乐。我对墨西哥烹饪中的家常风味情有独钟，并决定从那里开始。有些周末我们会开车去芝加哥附近的皮尔森，那里有充满活力的墨西哥美食，还有很棒的杂货店/餐馆之家。他们的自助餐厅是油腔滑调的炖菜的仙境，在金属锅里闪闪发光。
 

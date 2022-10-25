@@ -1,6 +1,6 @@
 # 2020 年 3 月迪士尼+会有什么
 
-> 原文:[https://life hacker . com/whats-coming-to-Disney-in-March-2020-1841812925](https://lifehacker.com/whats-coming-to-disney-in-march-2020-1841812925)
+> 原文：<https://lifehacker.com/whats-coming-to-disney-in-march-2020-1841812925>
 
 迪士尼+用户将能够在 3 月 4 日*黑豹*上线流媒体服务时对瓦坎达进行点播访问。*杜立德医生 2* 和*冰河世纪*也将于 3 月在迪士尼+上首次亮相，同时还有一些迪士尼+系列的新剧集，如*星球大战:克隆人战争*和*未来总统的日记*。
 

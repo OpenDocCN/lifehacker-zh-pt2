@@ -1,6 +1,6 @@
 # 确保在这个周末下载你的 Flickr 照片
 
-> 原文:[https://life hacker . com/make-to-download-your-Flickr-photos-this-weekend-1832073708](https://lifehacker.com/make-sure-to-download-your-flickr-photos-this-weekend-1832073708)
+> 原文：<https://lifehacker.com/make-sure-to-download-your-flickr-photos-this-weekend-1832073708>
 
 如果你有超过 1000 张照片上传到 Flickr，那么你应该现在就下载它们，否则就有可能永远失去它们。
 

@@ -1,6 +1,6 @@
 # 如果你在飞机上生病了该怎么办
 
-> 原文:[https://life hacker . com/1836421256](https://lifehacker.com/what-to-do-if-youre-sick-on-a-plane-1836421256)
+> 原文：<https://lifehacker.com/what-to-do-if-youre-sick-on-a-plane-1836421256>
 
 不管你是晕机还是吃了不该吃的东西，在飞机上生病是最糟糕的。以下是如何度过这场磨难的方法。
 

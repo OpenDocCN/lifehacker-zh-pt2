@@ -1,6 +1,6 @@
 # 问问 NerdLove 博士:我爱上了我最好的朋友，现在一切都毁了
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-I-fall-in-love-my-best-friend-an-1830774633](https://kotaku.com/ask-dr-nerdlove-i-fell-in-love-with-my-best-friend-an-1830774633)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-i-fell-in-love-with-my-best-friend-an-1830774633>
 
 你好，所有你认为是网络罪犯的人，欢迎来到 [向 NerdLove](http://kotaku.com/askdrnerdlove) 博士提问，这是唯一一个帮助你快速奔向爱情生活美好结局的约会建议专栏。
 

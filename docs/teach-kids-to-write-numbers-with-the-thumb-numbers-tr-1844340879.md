@@ -1,6 +1,6 @@
 # 用“拇指数字”技巧教孩子写数字
 
-> 原文:[https://life hacker . com/teach-kids-to-write-numbers-with-the-thumb-numbers-tr-1844340879](https://lifehacker.com/teach-kids-to-write-numbers-with-the-thumb-numbers-tr-1844340879)
+> 原文：<https://lifehacker.com/teach-kids-to-write-numbers-with-the-thumb-numbers-tr-1844340879>
 
 对一些孩子来说，学习如何写数字是一个真正的挑战。有这么多东西要学！各种奇怪的形状！人们可以看到这是多么令人沮丧。但是一个 [职业治疗助理](https://www.facebook.com/kevindelores.koster/posts/1416642591855683) 可能已经想出了一个帮助那些孩子的方法。她称之为“拇指数字”法。
 

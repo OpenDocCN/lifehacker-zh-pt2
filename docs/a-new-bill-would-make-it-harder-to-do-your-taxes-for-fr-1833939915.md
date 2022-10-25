@@ -1,6 +1,6 @@
 # 一项新法案将使你更难免费纳税
 
-> 原文:[https://life hacker . com/a-new-bill-would-that-do-it-did-to-your-tax-for-fr-1833939915](https://lifehacker.com/a-new-bill-would-make-it-harder-to-do-your-taxes-for-fr-1833939915)
+> 原文：<https://lifehacker.com/a-new-bill-would-make-it-harder-to-do-your-taxes-for-fr-1833939915>
 
 如果你是 70%有资格免费电子报税的美国人之一——或者是近 100%希望报税过程不那么复杂的美国人之一——以下是你需要了解的关于 [的一项新法案，该法案正在国会迅速通过。](https://splinternews.com/congress-poised-to-help-tax-prep-lobby-keep-bilking-ame-1833913185)
 

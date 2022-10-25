@@ -1,6 +1,6 @@
 # 2020 年 8 月，网飞将迎来什么
 
-> 原文:[https://life hacker . com/whats-coming-to-2020-8-1844467717](https://lifehacker.com/whats-coming-to-netflix-in-august-2020-1844467717)
+> 原文：<https://lifehacker.com/whats-coming-to-netflix-in-august-2020-1844467717>
 
 继 7 月 的 [大片之后，8 月的网飞看起来有点安静——除非你是《T4》的《阿凡达:最后的气宗》的粉丝，在这种情况下，你无疑会非常兴奋，因为《科拉传说》的全部四个~~季~~都将于 8 月 14 日上映，这是受动漫影响的 Nickelodeon 热门电影的续集。(*阿凡达:最后的气宗*五月登上网飞，开始了长达 58 天的记录，成为流光最受欢迎的节目之一。)
 

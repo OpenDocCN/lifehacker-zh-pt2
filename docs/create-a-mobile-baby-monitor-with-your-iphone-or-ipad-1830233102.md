@@ -1,6 +1,6 @@
 # 用你的 iPhone 或 iPad 创建一个移动婴儿监视器
 
-> 原文:[https://life hacker . com/create-a-mobile-baby-monitor-with-your-iphone-or-ipad-1830233102](https://lifehacker.com/create-a-mobile-baby-monitor-with-your-iphone-or-ipad-1830233102)
+> 原文：<https://lifehacker.com/create-a-mobile-baby-monitor-with-your-iphone-or-ipad-1830233102>
 
 在过去的几年里，苹果公司已经提供了 [Live Listen](https://support.apple.com/en-us/HT203990) 服务，作为听障用户将他们的 iPhone、iPad 或 iPod touch 变成连接助听器的远程麦克风的一种方式。
 

@@ -1,6 +1,6 @@
 # 您现在可以免费获得 Final Cut Pro X 和 Logic Pro X 天
 
-> 原文:[https://life hacker . com/you-can-get-final-cut-pro-x-and-logic-pro-x-free-for-90-1842548855](https://lifehacker.com/you-can-get-final-cut-pro-x-and-logic-pro-x-free-for-90-1842548855)
+> 原文：<https://lifehacker.com/you-can-get-final-cut-pro-x-and-logic-pro-x-free-for-90-1842548855>
 
 如果你在家里利用你的社交距离时间来磨练你的音乐或视频编辑技能，你可以免费获得一个月的一些流行软件程序来帮助你实现这一点。
 

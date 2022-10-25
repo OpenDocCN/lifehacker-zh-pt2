@@ -1,6 +1,6 @@
 # 计划保留一张新信用卡至少一年
 
-> 原文:[https://life hacker . com/plan-to-keep-a-new-credit-card-a 至少一年 1841811621](https://lifehacker.com/plan-to-keep-a-new-credit-card-for-at-least-a-year-1841811621)
+> 原文：<https://lifehacker.com/plan-to-keep-a-new-credit-card-for-at-least-a-year-1841811621>
 
 经常阅读 Lifehacker 的读者会认识到我们的员工对枯燥的财务的热爱。尤其是涉及到信用卡的时候。多年使用同一张信用卡可以延长你的信用使用历史，从而提高你的信用评分。
 

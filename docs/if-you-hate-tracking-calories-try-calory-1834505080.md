@@ -1,6 +1,6 @@
 # 如果你讨厌记录卡路里，试试“卡路里”
 
-> 原文:[https://life hacker . com/if-you-hate-tracking-calories-try-caloriy-1834505080](https://lifehacker.com/if-you-hate-tracking-calories-try-calory-1834505080)
+> 原文：<https://lifehacker.com/if-you-hate-tracking-calories-try-calory-1834505080>
 
 我最讨厌任何一种减肥计划的部分是“我必须拿出手机，输入我吃的所有东西，以保持诚实”这一整方面。因为尽管我假装我能心算出我吃的食物，但我往往会忘记这里的一把葡萄干，那里的一根蛋白质棒，一罐微型可乐就这样神奇地出现在我的桌子上——诸如此类的事情。
 

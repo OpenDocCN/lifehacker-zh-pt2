@@ -1,6 +1,6 @@
 # 如何延长 MacBook 电池的寿命
 
-> 原文:[https://life hacker . com/how-to-extend-the-life-of-your-macbooks-battery-1842906595](https://lifehacker.com/how-to-extend-the-life-of-your-macbooks-battery-1842906595)
+> 原文：<https://lifehacker.com/how-to-extend-the-life-of-your-macbooks-battery-1842906595>
 
 苹果将在 macOS Catalina 10.15.5 中加入一项新功能，该功能将改变 MacBook 的充电方式，有望让你从设备的致命弱点:电池中获得更长的寿命。
 

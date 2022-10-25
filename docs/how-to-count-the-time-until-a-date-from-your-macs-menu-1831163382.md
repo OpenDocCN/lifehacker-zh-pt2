@@ -1,6 +1,6 @@
 # 如何从 Mac 的菜单栏中计算日期前的时间
 
-> 原文:[https://life hacker . com/how-to-count-the-time-to-date-from-your-MAC-menu-1831163382](https://lifehacker.com/how-to-count-the-time-until-a-date-from-your-macs-menu-1831163382)
+> 原文：<https://lifehacker.com/how-to-count-the-time-until-a-date-from-your-macs-menu-1831163382>
 
 最近我一直在想很多关于倒计时器的事情，一部分是因为我总是很好奇离下一个重大节日还有多长时间(就像*星球大战:第九集*的首次亮相)，一部分是因为 Lifehacker 的主编 [梅丽莎](https://lifehacker.com/im-melissa-kirsch-lifehacker-editor-in-chief-and-this-1829150849) 偶然发现了 [**进度条**](https://itunes.apple.com/us/app/progress-bar/id1441939775?mt=12) 应用程序，我很好奇是否有更便宜的方法来完成同样的事情。
 

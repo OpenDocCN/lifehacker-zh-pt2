@@ -1,6 +1,6 @@
 # 为什么你今年应该节省你的退税
 
-> 原文:[https://life hacker . com/why-you-should-save-your-tax-refund-this-year-1842212398](https://lifehacker.com/why-you-should-save-your-tax-refund-this-year-1842212398)
+> 原文：<https://lifehacker.com/why-you-should-save-your-tax-refund-this-year-1842212398>
 
 说到退税，标准的财务建议基本上可以归结为“要么把你的退税存起来，要么用来还债。”(是的，我知道很多人用他们的退税来支付其他大的财务目标，从度假到房屋维修；我只是告诉你典型的财务顾问可能会推荐什么。)
 

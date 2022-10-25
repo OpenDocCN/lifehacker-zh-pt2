@@ -1,6 +1,6 @@
 # 如何自动扩展 Gmail 对话？
 
-> 原文:[https://life hacker . com/how-do-I-automatically-expand-Gmail-conversations-1837512739](https://lifehacker.com/how-do-i-automatically-expand-gmail-conversations-1837512739)
+> 原文：<https://lifehacker.com/how-do-i-automatically-expand-gmail-conversations-1837512739>
 
 在 Lifehacker 本周的 [技术支持专栏](https://lifehacker.com/c/tech-911) 中，我们正在解决 Gmail 中一个相对简单的问题——但如果你对你的电子邮件的外观非常挑剔，这个问题可能会非常烦人。(讲究一点也可以！)
 

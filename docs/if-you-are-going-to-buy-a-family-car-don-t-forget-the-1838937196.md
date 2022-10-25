@@ -1,6 +1,6 @@
 # 如果你打算买一辆家用车，不要忘记家庭部分
 
-> 原文:[https://jalopnik . com/if-you-to-buy-a-family-car-勿忘我 1838937196](https://jalopnik.com/if-you-are-going-to-buy-a-family-car-don-t-forget-the-1838937196)
+> 原文：<https://jalopnik.com/if-you-are-going-to-buy-a-family-car-don-t-forget-the-1838937196>
 
 人们出于各种原因购买汽车。有些是理性的，有些是感性的。买车并没有错，因为它很快，或者很时尚，或者它只是让你开起来感觉很好。然而，当主要目标是运输家庭时，太多的购买者忘记了关注关键问题:“哪种汽车会使这项任务更容易？”
 

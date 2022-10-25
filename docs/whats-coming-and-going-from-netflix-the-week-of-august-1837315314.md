@@ -1,6 +1,6 @@
 # 2019 年 8 月 19 日这一周，网飞有哪些活动
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of the-August-1837315314](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-august-1837315314)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-august-1837315314>
 
 室内猫:坏消息。我们在八月的背风面，这意味着严重的网飞干旱，直到劳动节的绿洲。我当然不会推荐*纽约黑帮*(周二)，但是如果你愿意的话，可以在评论中随意推荐。我将交替地狂欢*停止和着火*(网飞四季都有)和骑着自行车漫无目的地逛布鲁克林。下周见。
 

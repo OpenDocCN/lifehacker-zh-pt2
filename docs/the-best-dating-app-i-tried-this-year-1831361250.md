@@ -1,6 +1,6 @@
 # the best dating app i tried this year 1831361250
 
-> 原文:[https://life hacker . com/the-best-dating-app-I-tryed-this-year-1831361250](https://lifehacker.com/the-best-dating-app-i-tried-this-year-1831361250)
+> 原文：<https://lifehacker.com/the-best-dating-app-i-tried-this-year-1831361250>
 
 由于对 Bumble、Tinder、Hinge、OKCupid 和她感到失望，我在 9 月份向一个朋友抱怨约会应用程序对我来说变得多么乏味。他们问我是否听说过 Feeld。不知何故，我没有。
 

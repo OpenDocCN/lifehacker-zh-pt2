@@ -1,6 +1,6 @@
 # 完美的双面鸡蛋的关键在于翻转
 
-> 原文:[https://life hacker . com/the-key to-the-perfect over-easy-egg is-in-flip-1836862573](https://lifehacker.com/the-key-to-the-perfect-over-easy-egg-is-in-the-flip-1836862573)
+> 原文：<https://lifehacker.com/the-key-to-the-perfect-over-easy-egg-is-in-the-flip-1836862573>
 
 "双面煎"？更像是“过了*难关，*”我说的对吗？
 

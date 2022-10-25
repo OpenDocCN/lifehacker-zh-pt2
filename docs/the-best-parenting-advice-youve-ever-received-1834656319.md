@@ -1,6 +1,6 @@
 # 你收到过的最好的育儿建议
 
-> 原文:[https://life hacker . com/the-best-parenting-advice-you ve-ever-received-1834656319](https://lifehacker.com/the-best-parenting-advice-youve-ever-received-1834656319)
+> 原文：<https://lifehacker.com/the-best-parenting-advice-youve-ever-received-1834656319>
 
 当你成为父母后，你会得到很多育儿建议。有些已经过时了(“妈妈，我知道你让我睡在梳妆台的抽屉里，但我们会用婴儿床”)甚至很搞笑(“享受每一个时刻？你是说像现在这样，我的孩子在农产品通道里尖叫，因为她想收养一个红薯作为宠物？”).
 

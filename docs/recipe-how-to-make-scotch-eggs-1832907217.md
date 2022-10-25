@@ -1,6 +1,6 @@
 # 如何制作苏格兰鸡蛋，香肠包裹的早午餐爱的表达
 
-> 原文:[https://the take out . com/recipe-how-to-make-scotch-eggs-1832907217](https://thetakeout.com/recipe-how-to-make-scotch-eggs-1832907217)
+> 原文：<https://thetakeout.com/recipe-how-to-make-scotch-eggs-1832907217>
 
 如果你决心白天喝酒，你必须找到合理的借口。幸运的是，我们的邻居是所有爱尔兰事物的粉丝，也是橄榄球的狂热爱好者。这种情况在每年 2 月六国橄榄球系列赛的周末团体聚会上达到高潮，比赛通常在中部时间上午 8 点开始。
 

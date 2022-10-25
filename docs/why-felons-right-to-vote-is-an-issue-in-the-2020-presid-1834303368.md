@@ -1,6 +1,6 @@
 # 为什么重罪犯的投票权是 2020 年总统选举的一个问题
 
-> 原文:[https://life hacker . com/why-eflons-投票权是 2020 年的一个问题-presid-1834303368](https://lifehacker.com/why-felons-right-to-vote-is-an-issue-in-the-2020-presid-1834303368)
+> 原文：<https://lifehacker.com/why-felons-right-to-vote-is-an-issue-in-the-2020-presid-1834303368>
 
 本周，伯尼·桑德斯成为第一个表达支持重罪犯投票权的 2020 年民主党总统候选人——在其他候选人就这个关键问题进行的大规模辩论中爆发。
 

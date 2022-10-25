@@ -1,6 +1,6 @@
 # 用这个包含 150 多个 iOS 快捷方式的列表来尝试 iPhone 自动化
 
-> 原文:[https://life hacker . com/try-out-iphone-automation-with this-list-of-150-IOs-sh-1833153395](https://lifehacker.com/try-out-iphone-automation-with-this-list-of-150-ios-sh-1833153395)
+> 原文：<https://lifehacker.com/try-out-iphone-automation-with-this-list-of-150-ios-sh-1833153395>
 
 [Lifehacker's Complete Guide to iOS](https://appleios.kinja.com)) : title[![](../Images/71562cabb8ab94eee70dc08ff80378ef.png)](https://appleios.kinja.com)[Lifehacker's Complete Guide to iOS](https://appleios.kinja.com)Apple's iPhone is easy to learn, but difficult to master. Instead of spending hours sifting through settings yourself, check out our giant collection of guides, tips, and tricks for all things iOS.
 

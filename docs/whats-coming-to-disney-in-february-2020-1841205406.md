@@ -1,6 +1,6 @@
 # 2020 年 2 月迪士尼+会有什么
 
-> 原文:[https://life hacker . com/whats-coming-to-Disney-in-two-2020-1841205406](https://lifehacker.com/whats-coming-to-disney-in-february-2020-1841205406)
+> 原文：<https://lifehacker.com/whats-coming-to-disney-in-february-2020-1841205406>
 
 Disney+是最新的流媒体服务之一，但可以说是目前拥有一些最佳内容的服务。
 

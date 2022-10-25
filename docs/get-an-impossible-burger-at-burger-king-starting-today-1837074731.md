@@ -1,6 +1,6 @@
 # 从今天开始在汉堡王买一个不可能的汉堡
 
-> 原文:[https://life hacker . com/get-an-impossible-burger-at-burger-king-starting-today-1837074731](https://lifehacker.com/get-an-impossible-burger-at-burger-king-starting-today-1837074731)
+> 原文：<https://lifehacker.com/get-an-impossible-burger-at-burger-king-starting-today-1837074731>
 
 从今天开始，你可以在当地的汉堡王买到一个不可能的汉堡。在几个试点成功测试后，这种植物汉堡正在汉堡王推广。这意味着如果你还没有尝试过，现在是你的机会。
 

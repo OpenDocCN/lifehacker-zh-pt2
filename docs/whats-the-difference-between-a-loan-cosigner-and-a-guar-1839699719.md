@@ -1,6 +1,6 @@
 # 贷款联署人和担保人有什么区别？
 
-> 原文:[https://life hacker . com/a-loan-co signer-and-a-guar-1839699719](https://lifehacker.com/whats-the-difference-between-a-loan-cosigner-and-a-guar-1839699719)
+> 原文：<https://lifehacker.com/whats-the-difference-between-a-loan-cosigner-and-a-guar-1839699719>
 
 一些金融术语非常相似，以至于它们最终可以互换使用。但这并不意味着它们是完全一样的东西。一个特别常见的混淆是:共同签名人和担保人的区别，如果你的个人财务记录不够好，他们都可以帮助你获得贷款。
 

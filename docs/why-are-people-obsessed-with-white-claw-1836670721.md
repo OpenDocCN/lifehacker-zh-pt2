@@ -1,6 +1,6 @@
 # 为什么会有人迷恋白爪？
 
-> 原文:[https://the take out . com/why-why-people-痴迷于白爪-1836670721](https://thetakeout.com/why-are-people-obsessed-with-white-claw-1836670721)
+> 原文：<https://thetakeout.com/why-are-people-obsessed-with-white-claw-1836670721>
 
 自从我的 [品尝硬塞尔策](https://thetakeout.com/what-s-the-best-tasting-hard-seltzer-taste-test-1835089320) 后，人们开始把我当成他们的个人硬塞尔策讲解者。我在聚会上，通过短信，在推特上回答问题:坚硬的塞尔策是什么做的？谁在喝？但最重要的是:为什么人们如此痴迷白爪？
 

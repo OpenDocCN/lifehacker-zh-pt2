@@ -1,6 +1,6 @@
 # 不要对每月 2000 美元的刺激计划感到兴奋
 
-> 原文:[https://life hacker . com/don ' t-get-excited-on the-that-2000-month-in-stimulation-plan-1843345119](https://lifehacker.com/dont-get-excited-about-that-2-000-month-stimulus-plan-1843345119)
+> 原文：<https://lifehacker.com/dont-get-excited-about-that-2-000-month-stimulus-plan-1843345119>
 
 当许多美国人继续等待他们的冠状病毒救济支票或失业救济金时，有一项计划正在制定中，以提供另一笔救济款项——这将是每月一次。
 

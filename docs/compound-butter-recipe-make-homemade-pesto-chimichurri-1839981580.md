@@ -1,6 +1,6 @@
 # 黄油+这个世界上任何好吃的东西=复合黄油
 
-> 原文:[https://the take out . com/compound-butter-recipe-make-home-pesto-chimichurri-1839981580](https://thetakeout.com/compound-butter-recipe-make-homemade-pesto-chimichurri-1839981580)
+> 原文：<https://thetakeout.com/compound-butter-recipe-make-homemade-pesto-chimichurri-1839981580>
 
 我是任何“助推器”食谱的超级粉丝，一种既简单又有味道的迷你食谱，旨在增强其他食谱。无论是松脆的浇头、釉料还是酱汁，这些种类的食谱可以让一道菜从简单变得特别，通常不费吹灰之力。通常，他们可以提前做好，藏在冰箱或冰柜里以备将来使用。
 

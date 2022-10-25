@@ -1,6 +1,6 @@
 # 如果不应该使用棉签，如何清洁耳朵
 
-> 原文:[https://life hacker . com/how-to-clean-your-ears-if-you-not-should-use-q-t-1839961798](https://lifehacker.com/how-to-clean-your-ears-if-youre-not-supposed-to-use-q-t-1839961798)
+> 原文：<https://lifehacker.com/how-to-clean-your-ears-if-youre-not-supposed-to-use-q-t-1839961798>
 
 把棉签放在耳朵里是一种很糟糕的清洁方式，因为棉签可能会清除一点点耳垢，但会把其余的塞得更深。但是如果你已经养成了用棉签的习惯，那就很难打破了。以下是你应该做的。
 

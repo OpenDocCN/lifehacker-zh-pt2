@@ -1,6 +1,6 @@
 # Windows 10 不让怎么卸载 Edge Chromium
 
-> 原文:[https://life hacker . com/how-to-uninstall-edge-chromium-when-windows-10-wont-let-1844297854](https://lifehacker.com/how-to-uninstall-edge-chromium-when-windows-10-wont-let-1844297854)
+> 原文：<https://lifehacker.com/how-to-uninstall-edge-chromium-when-windows-10-wont-let-1844297854>
 
 [Edge Chromium 是一款像样的网页浏览器](https://lifehacker.com/how-to-try-out-edge-chromiums-latest-features-months-be-1842562597) 。鉴于谷歌 Chrome 在内存使用方面的改进，我甚至可以说它值得从谷歌 Chrome 换过来。然而，微软一直对 [向每个人灌输 Edge Chromium](https://www.express.co.uk/life-style/science-technology/1292563/Google-Chrome-Microsoft-Edge-best-browser-adverts-Windows-10-gmail) 非常恼火，最近的一次 Windows 更新甚至将这款浏览器锁定在你的操作系统中。
 

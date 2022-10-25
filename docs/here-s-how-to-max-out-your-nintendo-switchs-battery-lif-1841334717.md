@@ -1,6 +1,6 @@
 # 以下是如何最大限度地延长你的任天堂 Switch 的电池寿命
 
-> 原文:[https://kotaku . com/here-s-how-to-max-out-your-Nintendo-switchs-battery-lif-1841334717](https://kotaku.com/here-s-how-to-max-out-your-nintendo-switchs-battery-lif-1841334717)
+> 原文：<https://kotaku.com/here-s-how-to-max-out-your-nintendo-switchs-battery-lif-1841334717>
 
 如果说任天堂 Switch 有什么不好的地方，那就是电池。对，对，你可以在路上玩*塞尔达*。但如果你只能这样做两个小时，这真的是卖点吗？这还不包括从纽约到纽黑文的火车费用！如果你面临一次更长的旅行，或者更糟糕的是，去机场，你可以忘记相信这个东西会持续整个旅程。
 

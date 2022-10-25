@@ -1,6 +1,6 @@
 # 我最喜欢的 80 年代童年小玩意，说话和拼写，又回来了
 
-> 原文:[https://gizmodo . com/my-favorite-childhood-gadget-of-the-80-the-speak-sp-1832140129](https://gizmodo.com/my-favorite-childhood-gadget-of-the-80s-the-speak-sp-1832140129)
+> 原文：<https://gizmodo.com/my-favorite-childhood-gadget-of-the-80s-the-speak-sp-1832140129>
 
 我不记得说话和拼写第一次进入我的生活是什么时候——那是在 20 世纪 80 年代初的某个时候，我四五岁的时候——但我记得我很惊讶我的父母允许我触摸和玩这个技术奇迹，当时其他设备，如录像机和立体声音响，都是严格禁止的。现在，一种新的口语和拼写即将出现，它适用于那些还没有准备好使用你仍然放在身边的过时手机或平板电脑的孩子。在介绍了经典的教育标题之后， [*【奥勒冈小道】*](https://gizmodo.com/my-family-died-of-dysentery-in-the-palm-of-my-hands-and-1823591318) ，给新一代的孩子们带来了 [第一款便携版游戏](https://gizmodo.com/my-family-died-of-dysentery-in-the-palm-of-my-hands-and-1823591318) ，基本过瘾！正在复活我年轻时的另一个经典电子玩具，也是我第一次真正痴迷的小玩意。
 

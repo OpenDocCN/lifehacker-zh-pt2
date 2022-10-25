@@ -1,6 +1,6 @@
 # 如何强迫自己离开电脑
 
-> 原文:[https://life hacker . com/how-to-force-your-computer-1841605473](https://lifehacker.com/how-to-force-yourself-off-your-computer-1841605473)
+> 原文：<https://lifehacker.com/how-to-force-yourself-off-your-computer-1841605473>
 
 不管我们是没有注意，还是我们只是不想与这个世界打交道，我们都有那些时刻，当我们意识到...我们一整天都在电脑上。当这种情况发生时，你可以痛打自己缺乏意志力(或纯粹的懒惰)，或者你可以求助于一个应用程序。
 

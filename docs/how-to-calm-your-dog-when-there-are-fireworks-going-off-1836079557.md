@@ -1,6 +1,6 @@
 # 烟花燃放时如何让你的狗安静下来
 
-> 原文:[https://life hacker . com/how-to-calm-your dog-when-there ' s-when-there ' s-wave-the-fireworks-off-1836079557](https://lifehacker.com/how-to-calm-your-dog-when-there-are-fireworks-going-off-1836079557)
+> 原文：<https://lifehacker.com/how-to-calm-your-dog-when-there-are-fireworks-going-off-1836079557>
 
 对于敏感的狗来说，烟花每年都是一个问题，但今年，它们是一个祸害。似乎几乎在每个地方，被关了几个月的人每天晚上都会出去燃放看起来像是专业级的烟花。(关于这些烟花来源的阴谋论比比皆是，但没有人能达成一致，除了它们很吵，恒定，而且没有必要。)如果你在和一只被烟火吓坏的狗打交道，振作起来:看到解脱了。以下是帮助他们应对的方法。
 

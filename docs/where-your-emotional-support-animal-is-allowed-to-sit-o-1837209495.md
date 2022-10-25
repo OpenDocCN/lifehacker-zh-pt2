@@ -1,6 +1,6 @@
 # 你的情感支持动物可以坐在飞机上
 
-> 原文:[https://life hacker . com/where-your-emotional-support-animal-is-ally-sit-o-1837209495](https://lifehacker.com/where-your-emotional-support-animal-is-allowed-to-sit-o-1837209495)
+> 原文：<https://lifehacker.com/where-your-emotional-support-animal-is-allowed-to-sit-o-1837209495>
 
 5 月，一名男子在乘坐德尔塔航班时被情绪支持动物 [攻击](https://www.nbcnews.com/news/us-news/man-attacked-emotional-support-dog-delta-flight-sues-airline-passenger-n1011881)；根据这名乘客提起的诉讼，这只动物在攻击前多次试图坐在主人的腿上——尽管根据达美航空的规定，esa 必须留在地板上——而乘务员无视航空公司的政策。
 

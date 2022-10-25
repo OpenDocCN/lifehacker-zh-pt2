@@ -1,6 +1,6 @@
 # 如何在你的速溶锅里煮粗燕麦粉
 
-> 原文:[https://life hacker . com/how-to-cook-grits-in-your-instant-pot-1844458517](https://lifehacker.com/how-to-cook-grits-in-your-instant-pot-1844458517)
+> 原文：<https://lifehacker.com/how-to-cook-grits-in-your-instant-pot-1844458517>
 
 我永远不会理解不喜欢吃玉米粉的人，但是我理解不喜欢做玉米粉的人。就像准备意大利调味饭和玉米粥一样，这个过程通常需要搅拌，我讨厌一动不动地站在炉子前。好消息是你可以在你的速溶锅里煮粗燕麦粉。你仍然需要让自己受到*一些*的刺激，但要少得多——我最多说三分钟。
 

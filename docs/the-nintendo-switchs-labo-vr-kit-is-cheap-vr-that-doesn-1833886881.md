@@ -1,6 +1,6 @@
 # 任天堂 Switch 的 Labo VR 套件是不烂的廉价 VR
 
-> 原文:[https://gizmodo . com/the-Nintendo-switchs-labo-VR-kit-is-cheap-VR-that-1833886881](https://gizmodo.com/the-nintendo-switchs-labo-vr-kit-is-cheap-vr-that-doesn-1833886881)
+> 原文：<https://gizmodo.com/the-nintendo-switchs-labo-vr-kit-is-cheap-vr-that-doesn-1833886881>
 
 这款售价 180 美元的虚拟男孩被认为是任天堂最大的失败和无尽的笑话，它在 1995 年首次亮相时，提供了令人尴尬的有限虚拟现实体验。但游戏机的迅速消亡并没有阻止任天堂冒险，24 年后，它第二次尝试虚拟现实，利用 Switch 硬件推出了一系列实验游戏，让你以低至 40 美元的价格涉足令人印象深刻的虚拟现实体验。
 

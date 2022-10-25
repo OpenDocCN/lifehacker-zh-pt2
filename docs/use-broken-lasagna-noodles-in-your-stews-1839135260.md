@@ -1,6 +1,6 @@
 # 在炖菜中使用碎千层面
 
-> 原文:[https://life hacker . com/use-broken-lasagna-noodles-in-your-stews-1839135260](https://lifehacker.com/use-broken-lasagna-noodles-in-your-stews-1839135260)
+> 原文：<https://lifehacker.com/use-broken-lasagna-noodles-in-your-stews-1839135260>
 
 炖肉季节的一半乐趣在于选择搭配哪种碳水化合物。尽管我喜欢各种形式的硬皮面包和土豆，但我最喜欢的丰盛、多肉的炖菜 的搭档将永远是不起眼的黄油面条——具体来说，就是已经碎成碎片的廉价千层面。
 

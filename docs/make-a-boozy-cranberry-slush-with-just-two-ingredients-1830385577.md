@@ -1,6 +1,6 @@
 # 只用两种原料做一份蔓越莓泥
 
-> 原文:[https://life hacker . com/make-a-boozy-cranberry-slush-with just-two-ingredients-1830385577](https://lifehacker.com/make-a-boozy-cranberry-slush-with-just-two-ingredients-1830385577)
+> 原文：<https://lifehacker.com/make-a-boozy-cranberry-slush-with-just-two-ingredients-1830385577>
 
 我不知道有谁会在感恩节大餐中用完蔓越莓酱。这很容易做，人们往往会做很多，我通常会在火鸡被狼吞虎咽的第二天发现自己有一点额外的酱料。
 

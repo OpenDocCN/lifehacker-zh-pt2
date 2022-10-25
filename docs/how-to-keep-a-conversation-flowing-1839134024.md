@@ -1,6 +1,6 @@
 # 如何保持对话流畅
 
-> 原文:[https://life hacker . com/how-to-keep-a-conversation-flow-1839134024](https://lifehacker.com/how-to-keep-a-conversation-flowing-1839134024)
+> 原文：<https://lifehacker.com/how-to-keep-a-conversation-flowing-1839134024>
 
 停顿是令人痛苦的。我和父母隔着房间盯着我的化学老师和他的妻子。我们微笑着北方白人新教徒的微笑。我们无话可说。我发誓，当我长大后，我绝不会满足于尴尬的谈话。
 

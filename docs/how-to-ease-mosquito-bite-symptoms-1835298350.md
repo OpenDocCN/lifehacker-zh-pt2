@@ -1,6 +1,6 @@
 # 如何缓解蚊虫叮咬症状
 
-> 原文:[https://life hacker . com/how-to-ease-蚊子叮咬症状-1835298350](https://lifehacker.com/how-to-ease-mosquito-bite-symptoms-1835298350)
+> 原文：<https://lifehacker.com/how-to-ease-mosquito-bite-symptoms-1835298350>
 
 我们中的一些人在这个地球上漫游时知道，无论我们坐得离香茅蜡烛多近，无论我们穿什么衣服，或者在夏天的什么时候我们在户外游荡一会儿，我们都会被蚊子叮咬，穿过我们发誓我们刚刚使用的杀虫剂层。
 

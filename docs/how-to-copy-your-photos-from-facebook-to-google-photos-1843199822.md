@@ -1,6 +1,6 @@
 # 如何将您的照片从脸书复制到 Google 相册
 
-> 原文:[https://life hacker . com/how-to-copy-your-photos-from-Facebook-to-Google-photos-1843199822](https://lifehacker.com/how-to-copy-your-photos-from-facebook-to-google-photos-1843199822)
+> 原文：<https://lifehacker.com/how-to-copy-your-photos-from-facebook-to-google-photos-1843199822>
 
 谷歌的照片平台优于脸书的。尽管它同样可以免费使用——有一些限制——但它在组织照片和按名称、时间、日期或照片中的人查找特定镜头方面要好得多。此外，将你的照片与你的社交媒体账户分离，可以让你暂时(或永久)脱离后者，而不会失去对这些记忆的轻松访问。
 

@@ -1,6 +1,6 @@
 # 如何删除你不小心发的一条 Instagram 消息
 
-> 原文:[https://life hacker . com/how-to-delete-an-insta gram-message-you-sent-by-accident-1837479277](https://lifehacker.com/how-to-delete-an-instagram-message-you-sent-by-accident-1837479277)
+> 原文：<https://lifehacker.com/how-to-delete-an-instagram-message-you-sent-by-accident-1837479277>
 
 几周前，我和几个朋友参加了一个音乐节。在某个时候，我正在浏览 Instagram 上的故事，然后把手机放进了口袋。过了一会儿，当我把它拿出来的时候，我意识到我显然已经给我的一些朋友发送了带有另一个朋友那盘牡蛎图片的 DMs。
 

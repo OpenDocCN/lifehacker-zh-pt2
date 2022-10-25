@@ -1,6 +1,6 @@
 # im author austin kleon and this is how i parent 1833311660
 
-> 原文:[https://life hacker . com/im-author-Austin-kle on-and-this-how-I-parent-1833311660](https://lifehacker.com/im-author-austin-kleon-and-this-is-how-i-parent-1833311660)
+> 原文：<https://lifehacker.com/im-author-austin-kleon-and-this-is-how-i-parent-1833311660>
 
 奥斯汀·克莱恩并没有美化创造性的工作。很难。(因此，有了“工作”)但这位畅销书作家已经找到了在精疲力竭、自我怀疑、甚至抚养孩子的情况下坚持到底的方法。他在他的新书 [*继续前进*](https://www.amazon.com/exec/obidos/ASIN/1523506644/wwwaustinkleo-20/ref=nosim/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-author-austin-kleon-and-this-is-how-i-parent-1833311660&asc_source=&tag=kinjalifehackerlink-20) 中分享了他的智慧，该书将于明天出版。今天，他向我们讲述了他的父母。
 

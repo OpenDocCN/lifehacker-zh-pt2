@@ -1,6 +1,6 @@
 # 如何在 FreeSync 显示器上使用 Nvidia G-Sync
 
-> 原文:[https://life hacker . com/how-to-use-NVIDIA-g-sync-on-a-free sync-monitor-1831840268](https://lifehacker.com/how-to-use-nvidia-g-sync-on-a-freesync-monitor-1831840268)
+> 原文：<https://lifehacker.com/how-to-use-nvidia-g-sync-on-a-freesync-monitor-1831840268>
 
 上周，英伟达宣布计划推出纯软件版本的 G-Sync，其用于 PC 显示器的 [自适应同步工具](https://lifehacker.com/learn-the-basics-of-nvidias-g-sync-and-amds-freesync-mo-1831578473#_ga=2.255835912.1014487321.1547747405-396842925.1520800403) 。现在，随着 [GeForce 驱动程序 417.71](https://www.geforce.com/drivers/results/141906) 的公开，将 Nvidia 显卡与 FreeSync 显示器混合使用的一小群人可以尝试 G-Sync 的新实现。
 

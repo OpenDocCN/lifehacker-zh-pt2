@@ -1,6 +1,6 @@
 # 考虑在 Microsoft Office 成为订阅服务之前购买它
 
-> 原文:[https://life hacker . com/consider-buying-Microsoft-office-before-that-a-su-1837202488](https://lifehacker.com/consider-buying-microsoft-office-before-it-becomes-a-su-1837202488)
+> 原文：<https://lifehacker.com/consider-buying-microsoft-office-before-it-becomes-a-su-1837202488>
 
 好消息是:你仍然可以购买微软 Office 的独立版本，而不是向微软支付常规的订阅费用。然而，坏消息是，你再也不能通过微软的家庭使用计划获得超便宜的一次性 Office 软件了。
 

@@ -1,6 +1,6 @@
 # 你可能不知道你信用卡的利率
 
-> 原文:[https://life hacker . com/you-possible-not-know-your-credit-rate-1837472684](https://lifehacker.com/you-probably-dont-know-your-credit-cards-interest-rate-1837472684)
+> 原文：<https://lifehacker.com/you-probably-dont-know-your-credit-cards-interest-rate-1837472684>
 
 想想你钱包里的信用卡。你能说出你为他们每个人赢得的奖励吗？利率呢:你能列出来吗？根据 Nerdwallet 的 2019 年消费者信用卡报告 ，结果显示，38%的人不知道自己信用卡的利率。
 

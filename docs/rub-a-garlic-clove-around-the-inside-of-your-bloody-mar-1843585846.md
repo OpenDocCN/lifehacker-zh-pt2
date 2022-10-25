@@ -1,6 +1,6 @@
 # 在你的血腥玛丽杯内擦一片蒜瓣
 
-> 原文:[https://life hacker . com/rub-a-garlic-clove-in-the-inside-of-your-bloody-mar-1843585846](https://lifehacker.com/rub-a-garlic-clove-around-the-inside-of-your-bloody-mar-1843585846)
+> 原文：<https://lifehacker.com/rub-a-garlic-clove-around-the-inside-of-your-bloody-mar-1843585846>
 
 在我看来，在食物中添加足够的 T2 大蒜是很难的，更不用说添加太多了。我通常会将食谱中要求的量增加一倍(或三倍),我也曾将它加入到不需要全部量的食谱中。但当你试图在饮料中添加大蒜时，事情就变得棘手了，即使是像血腥玛丽这样的鲜味饮料。
 

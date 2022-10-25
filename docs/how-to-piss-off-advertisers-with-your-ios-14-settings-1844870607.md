@@ -1,6 +1,6 @@
 # 如何用你的 iOS 14 设置惹怒广告商
 
-> 原文:[https://life hacker . com/how-to-good-off-advertisers-with-your-IOs-14-settings-1844870607](https://lifehacker.com/how-to-piss-off-advertisers-with-your-ios-14-settings-1844870607)
+> 原文：<https://lifehacker.com/how-to-piss-off-advertisers-with-your-ios-14-settings-1844870607>
 
 在所有大型科技公司中，苹果的隐私政策可以说是最好的。随着 iOS 14 的发布，苹果正在对 iOS 进行又一次以隐私为重点的大升级。一旦新的操作系统更新在今年秋天发布，用户可以选择在应用程序中隐藏他们设备的“广告客户标识符”(IDFA)号码。如果你这么做了，广告商就不会喜欢我了
 

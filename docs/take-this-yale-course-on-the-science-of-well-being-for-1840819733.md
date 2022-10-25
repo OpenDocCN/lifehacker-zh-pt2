@@ -1,6 +1,6 @@
 # 免费参加耶鲁大学关于“幸福科学”的课程
 
-> 原文:[https://life hacker . com/take-this-Yale-course-on-the-science-of-福祉 1840819733](https://lifehacker.com/take-this-yale-course-on-the-science-of-well-being-for-1840819733)
+> 原文：<https://lifehacker.com/take-this-yale-course-on-the-science-of-well-being-for-1840819733>
 
 如果你 2020 年的目标之一是培养更有成效的习惯，增加自己的生活幸福感，耶鲁或许可以帮你实现这一目标。
 

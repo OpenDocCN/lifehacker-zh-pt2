@@ -1,6 +1,6 @@
 # 使用 Shleep 应用程序纠正你的不良睡眠习惯
 
-> 原文:[https://life hacker . com/fix-your ' s bad-sleep-app-1830442457](https://lifehacker.com/fix-your-bad-sleep-habits-with-the-shleep-app-1830442457)
+> 原文：<https://lifehacker.com/fix-your-bad-sleep-habits-with-the-shleep-app-1830442457>
 
 有很多昂贵的睡眠科技产品，更不用说旨在让你在一天中获得更多“能量”的补充品和产品了。但是我们中的大多数人，如果我们一直感觉很累，只需要上床睡觉。
 

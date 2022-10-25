@@ -1,6 +1,6 @@
 # 你被盗的医疗数据会怎么样
 
-> 原文:[https://life hacker . com/what-occurs-to-your ' s stopped-medical-data-1835373958](https://lifehacker.com/what-happens-to-your-stolen-medical-data-1835373958)
+> 原文：<https://lifehacker.com/what-happens-to-your-stolen-medical-data-1835373958>
 
 很明显，你为什么想要保持个人信息的私密性，比如密码和信用卡数据。但是医疗数据可能不那么明显:为什么黑客会关心我是否有糖尿病？多亏了 [一份新的报告](https://www.carbonblack.com/resources/threat-research/healthcare-cyber-heists-in-2019/) ，我们现在对医疗系统的数据遭到破坏时会发生什么有了更多的了解。
 

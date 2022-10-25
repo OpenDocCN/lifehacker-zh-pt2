@@ -1,6 +1,6 @@
 # 你可能完全用错了防晒霜
 
-> 原文:[https://life hacker . com/you-possible-use-sun-all-错了-1844245538](https://lifehacker.com/youre-probably-using-sunscreen-all-wrong-1844245538)
+> 原文：<https://lifehacker.com/youre-probably-using-sunscreen-all-wrong-1844245538>
 
 没有什么比出去晒太阳被严重晒伤更能说明夏天的了，对吗？不对！
 

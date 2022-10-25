@@ -1,6 +1,6 @@
 # 用 Booky.io 整理浏览器的书签
 
-> 原文:[https://life hacker . com/organize-your-browsers-bookmarks-with-Booky-io-1832365252](https://lifehacker.com/organize-your-browsers-bookmarks-with-booky-io-1832365252)
+> 原文：<https://lifehacker.com/organize-your-browsers-bookmarks-with-booky-io-1832365252>
 
 保持你的浏览器的许多书签有组织是一个永无止境的斗争。相信我，我理解这种痛苦；不管我安装了多少扩展，也不管我发誓多少次我绝不会让我溢出的书签工具栏达到这种状态，它总是发生。总有一天，我会学会的。
 

@@ -1,6 +1,6 @@
 # 如何雇佣一个不会敲你竹杠的理财顾问
 
-> 原文:[https://life hacker . com/how-to-find-and-hire-a-financial-advisor-who-won-t-rip-1729724424](https://lifehacker.com/how-to-find-and-hire-a-financial-advisor-who-won-t-rip-1729724424)
+> 原文：<https://lifehacker.com/how-to-find-and-hire-a-financial-advisor-who-won-t-rip-1729724424>
 
 让我们面对现实吧:资金管理是很难的，我们大多数人都不像我们能够(或者应该)做到的那样擅长。从税收到投资，再到债务清偿，财务规划中包含了很多内容。当我们在 [都在学习自己动手的时候，](https://twocents.lifehacker.com/how-i-got-my-financial-life-together-by-managing-it-mys-1691833013) 有很多理由寻求顾问的帮助。
 

@@ -1,6 +1,6 @@
 # 像“孪生”应用这样的数字时尚几乎总是对你的隐私有害
 
-> 原文:[https://life hacker . com/digital-fads-like-the-twining-app-are-almost-almost-1831433304](https://lifehacker.com/digital-fads-like-the-twinning-app-are-almost-always-1831433304)
+> 原文：<https://lifehacker.com/digital-fads-like-the-twinning-app-are-almost-always-1831433304>
 
 伙计们，这是新的一年，但我们仍然需要讨论 2018 年的最后一个数据泄露。如果你在假期花时间上网，你可能会看到有人在脸书或推特上发布 Popsugar 的 [结对应用](https://twinning.popsugar.com/) 的照片，该应用使用面部识别告诉你你可能是什么样的名人，有点像什么。
 

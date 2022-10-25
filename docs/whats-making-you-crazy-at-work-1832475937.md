@@ -1,6 +1,6 @@
 # 工作中什么让你抓狂？
 
-> 原文:[https://life hacker . com/whats-making-you-crazy-in-work-1832475937](https://lifehacker.com/whats-making-you-crazy-at-work-1832475937)
+> 原文：<https://lifehacker.com/whats-making-you-crazy-at-work-1832475937>
 
 也许你的老板是个混蛋。也许你管理的团队有怪异的内部冲突。也许你对自己下一步的职业发展犹豫不决。也许你的隔间邻居快把你逼疯了。
 

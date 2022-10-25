@@ -1,6 +1,6 @@
 # 如何帮助你的行李脱颖而出
 
-> 原文:[https://life hacker . com/how-to-help-your-laugh-stand-out-1843969593](https://lifehacker.com/how-to-help-your-luggage-stand-out-1843969593)
+> 原文：<https://lifehacker.com/how-to-help-your-luggage-stand-out-1843969593>
 
 当谈到选择行李箱时，我们有太多的选择——然而黑色行李箱似乎是我在旅行中看到的行李箱的 80%。但是为什么呢？黑色行李更难识别，也更容易被抓住(如果你是小偷的话)。如果你不能为了更多不同色调的选择而放弃黑色的行李，没有必要因为它们是黑色的就扔掉你的包——仍然有办法让它们易于辨认。
 

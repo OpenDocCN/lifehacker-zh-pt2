@@ -1,6 +1,6 @@
 # 如何停止整天盯着手机
 
-> 原文:[https://life hacker . com/how-to-stop-stay-on-your phone-all-day-1839642069](https://lifehacker.com/how-to-stop-staring-at-your-phone-all-day-1839642069)
+> 原文：<https://lifehacker.com/how-to-stop-staring-at-your-phone-all-day-1839642069>
 
 你最近不看屏幕的最长时间是什么时候？我敢打赌，对大多数人来说，答案只是几分钟甚至几秒钟。
 

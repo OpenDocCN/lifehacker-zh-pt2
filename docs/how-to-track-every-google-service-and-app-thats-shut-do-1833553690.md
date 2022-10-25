@@ -1,6 +1,6 @@
 # 如何追踪每一个被关闭的谷歌服务和应用
 
-> 原文:[https://life hacker . com/how-to-track-every-Google-service-and-app-thas-shut-do-1833553690](https://lifehacker.com/how-to-track-every-google-service-and-app-thats-shut-do-1833553690)
+> 原文：<https://lifehacker.com/how-to-track-every-google-service-and-app-thats-shut-do-1833553690>
 
 提醒人们谷歌扼杀其应用和服务的臭名昭著的记录是老生常谈，但这是真的。像任何公司一样，谷歌也在不断尝试新想法和测试新技术。有时行得通，但有时行不通，谷歌的一款新 [产品似乎每隔几个月就会有自己的末日倒计时](https://lifehacker.com/what-to-do-before-google-shuts-down-on-april-2-1832298293) 。如果你已经忘记哪些谷歌应用和服务被关闭了，一群开源数字历史学家会支持你。
 

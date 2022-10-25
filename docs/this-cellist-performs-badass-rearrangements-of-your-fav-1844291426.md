@@ -1,6 +1,6 @@
 # 这位大提琴家演奏了你最喜欢的主题曲
 
-> 原文:[https://life hacker . com/this-cellist-performs-badass-arrangements-of-your-fav-1844291426](https://lifehacker.com/this-cellist-performs-badass-rearrangements-of-your-fav-1844291426)
+> 原文：<https://lifehacker.com/this-cellist-performs-badass-rearrangements-of-your-fav-1844291426>
 
 一位专业大提琴家已经准确地找出了我们现在都需要什么——我们最喜欢的电视、电影和电子游戏主题曲，这些歌曲被改编成 8 或 10 部分的大提琴作品，完全由她演奏。
 

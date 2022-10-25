@@ -1,6 +1,6 @@
 # 用这个传感器混搭来评估你的空气质量
 
-> 原文:[https://life hacker . com/assesse-your-air-quality-with this-mashup-of-sensors-1845091896](https://lifehacker.com/assess-your-air-quality-with-this-mashup-of-sensors-1845091896)
+> 原文：<https://lifehacker.com/assess-your-air-quality-with-this-mashup-of-sensors-1845091896>
 
 有一天，我在查看我加州住所的空气质量，我访问的第一个网站说空气质量指数是可爱的 40 左右。这看起来很奇怪，因为外面烟雾弥漫——所以我尝试了另一个网站:400+。这似乎也很奇怪，因为它看起来不太像外面的沙丘拖车。
 

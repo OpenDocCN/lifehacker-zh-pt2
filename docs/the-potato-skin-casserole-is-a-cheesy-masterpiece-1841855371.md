@@ -1,6 +1,6 @@
 # 土豆皮砂锅是一个奶酪杰作
 
-> 原文:[https://life hacker . com/the-土豆皮-砂锅-is-a-cheese-masterious-1841855371](https://lifehacker.com/the-potato-skin-casserole-is-a-cheesy-masterpiece-1841855371)
+> 原文：<https://lifehacker.com/the-potato-skin-casserole-is-a-cheesy-masterpiece-1841855371>
 
 土豆皮是食物世界的加重毯子——温暖、舒适，而且足够重。然而，我们似乎已经忘记了三十年前将 TGI 星期五餐厅推向全国意识的开胃菜。土豆皮——保龄球馆和潜水酒吧的基石——是濒临灭绝的物种。
 

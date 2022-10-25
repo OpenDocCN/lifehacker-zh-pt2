@@ -1,6 +1,6 @@
 # 让这个人工智能告诉你如何开始你的小说
 
-> 原文:[https://life hacker . com/let-this-ai-show-you-how-to-begin-you-you-novel-1840037286](https://lifehacker.com/let-this-ai-show-you-how-to-begin-your-novel-1840037286)
+> 原文：<https://lifehacker.com/let-this-ai-show-you-how-to-begin-your-novel-1840037286>
 
 这一定是未来，因为我正在接受电脑的写作建议。我一直是贾内尔·谢恩的人工智能实验的粉丝，因为它们可爱而愚蠢，就像计算机刚刚开始学习人类语言的方式，或者像 [食谱](https://aiweirdness.com/post/163878889437/try-these-neural-network-generated-recipes-at-your) 或 [颜色](https://gizmodo.com/the-first-ai-generated-paint-names-include-homestar-bro-1795367644) 这样的概念。但是她的最新创作 [写出了小说](https://aiweirdness.com/post/189170306297/how-to-begin-a-novel) 的开头句子，真是天才:
 

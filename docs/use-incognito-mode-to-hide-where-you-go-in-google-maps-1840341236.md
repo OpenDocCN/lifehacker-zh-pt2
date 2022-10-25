@@ -1,6 +1,6 @@
 # 使用隐姓埋名模式来隐藏你在谷歌地图中的位置
 
-> 原文:[https://life hacker . com/use-incognito-mode-to-hide-where-you-go-in-Google-maps-1840341236](https://lifehacker.com/use-incognito-mode-to-hide-where-you-go-in-google-maps-1840341236)
+> 原文：<https://lifehacker.com/use-incognito-mode-to-hide-where-you-go-in-google-maps-1840341236>
 
 有很多原因让你想在谷歌地图中追踪你去过的一些地方，但也许不是所有的地方。你可能不想让你的朋友和爱人(可以使用你的电话或账户)知道你去了当地的药房。也许你正在为某人计划一个惊喜聚会，需要去几次场地做准备。你也可能对位置追踪有所怀疑；那也可以。
 

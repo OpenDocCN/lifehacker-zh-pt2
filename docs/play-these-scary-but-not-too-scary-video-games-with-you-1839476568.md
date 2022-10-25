@@ -1,6 +1,6 @@
 # 和你的孩子一起玩这些可怕但不太可怕的电子游戏
 
-> 原文:[https://life hacker . com/play-these-terrible-but-too-terrible-games-with-you-1839476568](https://lifehacker.com/play-these-scary-but-not-too-scary-video-games-with-you-1839476568)
+> 原文：<https://lifehacker.com/play-these-scary-but-not-too-scary-video-games-with-you-1839476568>
 
 如果你的小家伙想用季节性的电子游戏来庆祝万圣节，你的父母有责任选择一些合适的东西——足够吓人来刺激，但不要太吓人来伤害你孩子的心灵。大多数恐怖电子游戏都是暴力露骨(粉丝们就是这么喜欢的)，而和孩子又软又嫩，所以你必须策展。你必须在“哦，真吓人！”还有“我已经连续八个晚上没睡，跑去安慰一个做噩梦的孩子，因为该死的兰迪叔叔决定给她看*遗传*。”
 

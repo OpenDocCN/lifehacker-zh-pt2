@@ -1,6 +1,6 @@
 # 如何挑选真正保护眼睛的太阳镜
 
-> 原文:[https://life hacker . com/how-to-pick-太阳镜-实际上保护你的眼睛-1836045286](https://lifehacker.com/how-to-pick-sunglasses-that-actually-protect-your-eyes-1836045286)
+> 原文：<https://lifehacker.com/how-to-pick-sunglasses-that-actually-protect-your-eyes-1836045286>
 
 太阳镜 [是为数不多的](https://lifehacker.com/tag/sun-glasses) 物品之一，它既能保护你的健康，又能作为的时尚配饰。仅仅根据它们让你看起来有多酷来购买一副眼镜是很诱人的，检查它们的标签并确保它们确实为你的眼睛提供了一些保护也是一个好主意。
 

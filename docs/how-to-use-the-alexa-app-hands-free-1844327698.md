@@ -1,6 +1,6 @@
 # 如何免提使用 Alexa 应用程序
 
-> 原文:[https://life hacker . com/how-to-use-the-Alexa-app-hands-free-1844327698](https://lifehacker.com/how-to-use-the-alexa-app-hands-free-1844327698)
+> 原文：<https://lifehacker.com/how-to-use-the-alexa-app-hands-free-1844327698>
 
 根据设计，大多数 Alexa 驱动的设备可以完全通过开箱即用的语音命令来控制——只需说“Alexa ”,你的 Echo 扬声器、Fire TV 或其他 Alexa 设备就会做出响应，不需要按按钮或点击。罕见的例外是 Alexa 智能手机应用程序，它要求用户点击一个“Alexa”按钮来启用数字助理。或者至少，它曾经是这样的:亚马逊最近为 Alexa iOS 和 Android 应用程序添加了一个新的免提选项，但你需要手动打开它才能利用它。
 

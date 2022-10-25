@@ -1,6 +1,6 @@
 # how to schedule your day when you freelance or work fro 1833242226
 
-> 原文:[https://life hacker . com/how-to-schedule-when you-day-you-free-or-work-1833242226](https://lifehacker.com/how-to-schedule-your-day-when-you-freelance-or-work-fro-1833242226)
+> 原文：<https://lifehacker.com/how-to-schedule-your-day-when-you-freelance-or-work-fro-1833242226>
 
 自 2012 年以来，我一直是一名全职自由职业者，我的大部分工作都是在家里完成的——也就是说，在我的家庭办公室。我尝试过在咖啡店和合作空间工作，但当我在一个安静、舒适、熟悉的空间时，我往往能完成最多的工作，在那里我不必担心我是否能在电源插座附近找到一个座位(也不必在每次我需要使用厕所时请人照看我的笔记本电脑)。
 

@@ -1,6 +1,6 @@
 # 将这些伟大的在线游戏添加到您的虚拟游戏之夜阵容中
 
-> 原文:[https://life hacker . com/add-these-great-online-games-to-your-virtual-game-night-1843641129](https://lifehacker.com/add-these-great-online-games-to-your-virtual-game-night-1843641129)
+> 原文：<https://lifehacker.com/add-these-great-online-games-to-your-virtual-game-night-1843641129>
 
 自从 3 月份加州的家庭订单开始以来，我和一群朋友在周六晚上举办了一个虚拟游戏之夜。我想我们玩的第一个星期我们只是玩了反人类和猜图游戏的山寨版，但每个星期我们都加入了一两个新游戏。
 

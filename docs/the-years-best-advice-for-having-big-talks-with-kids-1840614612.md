@@ -1,6 +1,6 @@
 # 今年关于与孩子“高谈阔论”的最佳建议
 
-> 原文:[https://life hacker . com/the-years-best-advice-have-big-talks-1840614612](https://lifehacker.com/the-years-best-advice-for-having-big-talks-with-kids-1840614612)
+> 原文：<https://lifehacker.com/the-years-best-advice-for-having-big-talks-with-kids-1840614612>
 
 过去，父母们为这次谈话做好了准备，我们都知道这次谈话只涉及一个话题:性。但是这些天，很大程度上由于互联网和我们都喜欢称之为“政治气候”的东西，父母们正在和他们的孩子进行各种各样严肃、持续的聊天。话题从色情到自杀，从种族主义到气候变化。
 

@@ -1,6 +1,6 @@
 # 立即更新到 iOS 12.4 以阻止新的漏洞
 
-> 原文:[https://life hacker . com/update-to-IOs-12-4-right-now-block-new-vulnerabiliti-1836856944](https://lifehacker.com/update-to-ios-12-4-right-now-to-block-new-vulnerabiliti-1836856944)
+> 原文：<https://lifehacker.com/update-to-ios-12-4-right-now-to-block-new-vulnerabiliti-1836856944>
 
 大多数 iPhone 和 iPad 用户都在运行 iOS 12。这是一件好事，因为你可以更快地体验到尽可能多的补丁程序和漏洞。鉴于谷歌研究人员最近披露了苹果在本月早些时候发布的 iOS 12.4 中修复的六个严重的 iOS 漏洞，这一点也尤为重要。
 

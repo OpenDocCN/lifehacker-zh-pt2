@@ -1,6 +1,6 @@
 # 屏幕保护器还有必要吗？
 
-> 原文:[https://life hacker . com/are-screen-protectors-required-more-5881290](https://lifehacker.com/are-screen-protectors-necessary-anymore-5881290)
+> 原文：<https://lifehacker.com/are-screen-protectors-necessary-anymore-5881290>
 
 在智能手机的早期，你可能不敢走出美国电话电报公司或威瑞森的商店，除非你的非常精致(也非常昂贵)的设备上已经安装了屏幕保护装置和外壳。摔到地板上或者你的包里有任何碰撞都会给你留下破碎或划伤的玻璃，这将花费更多的钱来修理。
 

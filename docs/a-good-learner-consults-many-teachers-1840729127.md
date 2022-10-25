@@ -1,6 +1,6 @@
 # 一个好的学习者会向许多老师请教
 
-> 原文:[https://life hacker . com/a-good-learner-consults-many-teachers-1840729127](https://lifehacker.com/a-good-learner-consults-many-teachers-1840729127)
+> 原文：<https://lifehacker.com/a-good-learner-consults-many-teachers-1840729127>
 
 这是我作为 Lifehacker 特约撰稿人的最后一篇文章，所以我想给你一些元建议。当你想学习一项新技能时，不要只使用一本书，或应用程序，或 YouTube 教程。尝试很多，坚持其中的几个，偶尔咨询一下其他人。
 

@@ -1,6 +1,6 @@
 # 你的工作空间需要一个模拟时钟
 
-> 原文:[https://life hacker . com/your-workspace-needs-an-analog-clock-1841020448](https://lifehacker.com/your-workspace-needs-an-analog-clock-1841020448)
+> 原文：<https://lifehacker.com/your-workspace-needs-an-analog-clock-1841020448>
 
 如果你在工作中挣扎于时间管理，你可能会受益于一个清晰可见的模拟时钟。
 

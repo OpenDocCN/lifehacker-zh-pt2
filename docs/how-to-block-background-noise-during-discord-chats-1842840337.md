@@ -1,6 +1,6 @@
 # 如何在不和谐的聊天中屏蔽背景噪音
 
-> 原文:[https://life hacker . com/how-to-block-background-noise-during-discord-chats-1842840337](https://lifehacker.com/how-to-block-background-noise-during-discord-chats-1842840337)
+> 原文：<https://lifehacker.com/how-to-block-background-noise-during-discord-chats-1842840337>
 
 我认为 [Discord](https://discordapp.com/) 是与你的朋友进行语音和视频聊天的最佳服务之一——更不用说它是致力于你能想到的任何极客爱好的社区之家。在服务上交谈将会变得更好——特别是如果你的朋友总是抱怨你的麦克风很糟糕。
 

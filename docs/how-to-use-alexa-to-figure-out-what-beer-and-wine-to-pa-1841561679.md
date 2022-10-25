@@ -1,6 +1,6 @@
 # 使用 Alexa 来找出什么啤酒和葡萄酒来搭配你的晚餐
 
-> 原文:[https://life hacker . com/how-to-use-Alexa-to-figure-what-beer and wine-to-pa-1841561679](https://lifehacker.com/how-to-use-alexa-to-figure-out-what-beer-and-wine-to-pa-1841561679)
+> 原文：<https://lifehacker.com/how-to-use-alexa-to-figure-out-what-beer-and-wine-to-pa-1841561679>
 
 当你做饭时，至少在我家，一个经常出现的问题是我们打算用它喝什么。
 

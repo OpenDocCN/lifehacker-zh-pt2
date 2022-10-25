@@ -1,6 +1,6 @@
 # 你真的能通过眼球反射跟踪某人吗？
 
-> 原文:[https://life hacker . com/can-you-really-stalk-through-their-eye-ref-1839072779](https://lifehacker.com/can-you-really-stalk-somebody-through-their-eyeball-ref-1839072779)
+> 原文：<https://lifehacker.com/can-you-really-stalk-somebody-through-their-eyeball-ref-1839072779>
 
 最近，一名跟踪者发现并攻击了一名日本流行歌星，部分是通过 [使用眼睛反射来判断她使用](https://www.tokyoreporter.com/crime/saitama-man-used-eye-reflection-in-online-image-to-stalk-idol/) 的哪个火车站。(然后他在火车站等她，跟着她回家。)这让我们想知道 : 从某人的自拍中获取其位置的线索有多容易？
 

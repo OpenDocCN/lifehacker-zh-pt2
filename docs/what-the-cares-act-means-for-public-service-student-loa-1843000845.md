@@ -1,6 +1,6 @@
 # CARES 法案对公共服务学生贷款减免意味着什么
 
-> 原文:[https://life hacker . com/what-the-cares-act-means-for-public-service-student-loa-1843000845](https://lifehacker.com/what-the-cares-act-means-for-public-service-student-loa-1843000845)
+> 原文：<https://lifehacker.com/what-the-cares-act-means-for-public-service-student-loa-1843000845>
 
 政府向偿还联邦贷款的学生贷款借款人授予了 T2 临时缓刑。虽然几个月不用偿还贷款是件好事，但对于一群借款人来说，这是一个令人困惑的情况:那些希望通过公共服务贷款豁免计划获得剩余贷款的人。
 

@@ -1,6 +1,6 @@
 # 2020 年 3 月亚马逊 Prime 视频会有什么
 
-> 原文:[https://life hacker . com/whats-coming-to-Amazon-prime-video-in-March-2020-1841799489](https://lifehacker.com/whats-coming-to-amazon-prime-video-in-march-2020-1841799489)
+> 原文：<https://lifehacker.com/whats-coming-to-amazon-prime-video-in-march-2020-1841799489>
 
 3 月将是亚马逊 Prime Video 的一个大月份，许多新的原创系列将首次亮相，如*zero zero*和阿加莎·克里斯蒂的 *The Pale Horse* ，以及其他一些受欢迎的节目和电影，包括*活死人之夜*、*韦恩的世界 2* 和*功夫熊猫*。
 

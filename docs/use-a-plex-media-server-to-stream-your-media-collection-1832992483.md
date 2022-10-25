@@ -1,6 +1,6 @@
 # 借助 Plex 媒体服务器，在任何地方流式播放您的媒体收藏
 
-> 原文:[https://life hacker . com/use-a-plex-media-server-to-stream-your-media-collection-1832992483](https://lifehacker.com/use-a-plex-media-server-to-stream-your-media-collection-1832992483)
+> 原文：<https://lifehacker.com/use-a-plex-media-server-to-stream-your-media-collection-1832992483>
 
 我们可能处于云流媒体和订阅服务的时代，但媒体所有权(包括数字和物理)仍然存在。也就是说，能够从一个地方整合和流式传输您的电影、音乐和其他媒体收藏，比在多个硬盘驱动器、设备和物理副本堆栈上拥有一个碎片化的库要方便得多。
 

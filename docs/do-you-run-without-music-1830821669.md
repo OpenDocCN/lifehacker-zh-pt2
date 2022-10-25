@@ -1,6 +1,6 @@
 # 你跑步的时候没有音乐吗？
 
-> 原文:[https://lifehacker.com/do-you-run-without-music-1830821669](https://lifehacker.com/do-you-run-without-music-1830821669)
+> 原文：<https://lifehacker.com/do-you-run-without-music-1830821669>
 
 不带耳机跑步的美妙之处在于，你终于可以独自思考了。这也是不戴耳机跑步的恐怖之处:如果你不想*让*和你的思想独处呢？
 

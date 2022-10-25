@@ -1,6 +1,6 @@
 # 了解如何在这个免费的在线研讨会蜜蜂友好的花园
 
-> 原文:[https://life hacker . com/learn-how-to-make-bee-friendly-at-this-free-onl-1844252779](https://lifehacker.com/learn-how-to-make-bee-friendly-gardens-at-this-free-onl-1844252779)
+> 原文：<https://lifehacker.com/learn-how-to-make-bee-friendly-gardens-at-this-free-onl-1844252779>
 
 除了编织、拼图和烘焙，园艺已经成为疫情另一种流行的消遣方式。种子 的 [销售暴涨，不管人们在城市里有没有巨大的后院或者微小的消防通道，他们一直在进入杂草中(主要是为了拔草)。](https://www.marketwatch.com/story/this-earth-day-especially-remember-plants-are-non-judgmental-what-its-like-to-start-gardening-during-a-pandemic-2020-04-22)
 

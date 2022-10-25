@@ -1,6 +1,6 @@
 # 今天就更新你的 iPhone，摆脱那个烦人的多任务 Bug
 
-> 原文:[https://life hacker . com/update-your-iphone-today-to-摆脱那个讨厌的 mu-1839701723](https://lifehacker.com/update-your-iphone-today-to-get-rid-of-that-annoying-mu-1839701723)
+> 原文：<https://lifehacker.com/update-your-iphone-today-to-get-rid-of-that-annoying-mu-1839701723>
 
 如果当你在你的设备上进行多任务处理时，你的 iOS 设备上的应用程序在后台关闭的速度比你预期的稍快，那么我们有一个好消息:苹果发布了一个修复程序。
 

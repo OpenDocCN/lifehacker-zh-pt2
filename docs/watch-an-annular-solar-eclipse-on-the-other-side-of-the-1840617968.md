@@ -1,6 +1,6 @@
 # 今晚在世界的另一端观看日环食
 
-> 原文:[https://life hacker . com/watch-an-annular-eclipse-on-the-other-side-the-1840617968](https://lifehacker.com/watch-an-annular-solar-eclipse-on-the-other-side-of-the-1840617968)
+> 原文：<https://lifehacker.com/watch-an-annular-solar-eclipse-on-the-other-side-of-the-1840617968>
 
 一种非常特殊的日食将在今晚发生，但它将发生在地球的另一端，在沙特、印度和马来西亚的 T3 可以看到。幸运的是，它将被直播，所以你可以在美国东部时间今晚 10:30 左右在家收看。
 

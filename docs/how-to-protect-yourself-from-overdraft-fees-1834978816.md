@@ -1,6 +1,6 @@
 # 如何保护自己免于透支费
 
-> 原文:[https://life hacker . com/how-to-protect-yourself-overdraft-fees-1834978816](https://lifehacker.com/how-to-protect-yourself-from-overdraft-fees-1834978816)
+> 原文：<https://lifehacker.com/how-to-protect-yourself-from-overdraft-fees-1834978816>
 
 参议员科里·布克和谢罗德·布朗正在重新引入一项 2018 年的法案，以结束银行透支费用，Vox 本周 报道。 [制止透支牟取暴利法案](https://www.booker.senate.gov/?p=press_release&id=835) 将禁止银行对借记交易收取透支费，以及在自动取款机上收取不足的资金费。基于支票的透支费将限于每月一次，每个日历年不超过六次。银行将无法重新安排交易顺序，以最大限度地提高透支费用。
 

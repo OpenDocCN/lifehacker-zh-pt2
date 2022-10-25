@@ -1,6 +1,6 @@
 # 如何解锁 Edge、Firefox 和 Chrome 中隐藏的浏览器游戏
 
-> 原文:[https://life hacker . com/how-to-unlock-hidden-browser-games-in-edge-Firefox-and-1843685233](https://lifehacker.com/how-to-unlock-hidden-browser-games-in-edge-firefox-and-1843685233)
+> 原文：<https://lifehacker.com/how-to-unlock-hidden-browser-games-in-edge-firefox-and-1843685233>
 
 你的网络浏览器充满了秘密。我通常花时间研究我可以通过像 *chrome://flags* 和 *about:config* 这样的页面解锁的新功能，但休息一会儿玩一下最流行的浏览器中的隐藏游戏也不错。
 

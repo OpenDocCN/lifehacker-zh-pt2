@@ -1,6 +1,6 @@
 # 如何移动超大型设备
 
-> 原文:[https://life hacker . com/how-to-move-a oversize-appliance-1833095416](https://lifehacker.com/how-to-move-an-oversized-appliance-1833095416)
+> 原文：<https://lifehacker.com/how-to-move-an-oversized-appliance-1833095416>
 
 定期清洁你的厨房需要你要么无视冰箱下面的 T2，要么移动它，这样你就可以正确地清洁了。以下是如何做到后者，因为最终前者会赶上你。
 

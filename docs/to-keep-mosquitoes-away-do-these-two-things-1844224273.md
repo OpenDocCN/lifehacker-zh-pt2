@@ -1,6 +1,6 @@
 # 这是仅有的两种能真正赶走蚊子的方法
 
-> 原文:[https://life hacker . com/to-keep-蚊子-away-do-this-two-things-1844224273](https://lifehacker.com/to-keep-mosquitoes-away-do-these-two-things-1844224273)
+> 原文：<https://lifehacker.com/to-keep-mosquitoes-away-do-these-two-things-1844224273>
 
 人们讨厌蚊子，所以公司制造了许多防蚊用品:蜡烛、腕带、化学和草药喷雾，甚至电子设备。但是如果你想在这个夏天让蚊子远离你裸露的皮肤，你只需要两样东西:杀虫剂和风扇。
 

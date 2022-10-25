@@ -1,6 +1,6 @@
 # 你不需要一个决议，你需要优先次序
 
-> 原文:[https://life hacker . com/you-dont-need-a-resolution-you-need-priorities-1840831336](https://lifehacker.com/you-dont-need-a-resolution-you-need-priorities-1840831336)
+> 原文：<https://lifehacker.com/you-dont-need-a-resolution-you-need-priorities-1840831336>
 
 下定决心的日子是有大梦想的日子。你会有一个美好的一年，一个伟大的一月。你最终会养成锻炼的习惯，或者写那本书，或者打扫你的房子——只要你决定其他事情必须付出什么，这些都是可能的。
 

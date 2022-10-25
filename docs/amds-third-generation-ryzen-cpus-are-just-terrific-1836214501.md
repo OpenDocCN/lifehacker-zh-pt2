@@ -1,6 +1,6 @@
 # AMD 的第三代锐龙处理器非常棒
 
-> 原文:[https://gizmodo . com/amds-third-generation-ryzen-CPU-is-just-terrible-1836214501](https://gizmodo.com/amds-third-generation-ryzen-cpus-are-just-terrific-1836214501)
+> 原文：<https://gizmodo.com/amds-third-generation-ryzen-cpus-are-just-terrific-1836214501>
 
 AMD 做到了。它生产了一系列速度快得离谱的 CPU，比竞争对手和前辈的功耗低得多，同时也更便宜，并增加了一些额外的功能，如 PCIe 4.0 支持，只有铁杆 PC 用户才需要。新的 500 美元的锐龙 9 3900X 和 330 美元的锐龙 7 3700X 兑现了 AMD 在过去几年中关于功率和价格的许多承诺。
 

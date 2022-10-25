@@ -1,6 +1,6 @@
 # 在堡垒之夜冬季节活动期间获得免费皮肤
 
-> 原文:[https://life hacker . com/get-free-skins-during-fort nites-winter fest-event-1840535736](https://lifehacker.com/get-free-skins-during-fortnites-winterfest-event-1840535736)
+> 原文：<https://lifehacker.com/get-free-skins-during-fortnites-winterfest-event-1840535736>
 
 从现在到 1 月 7 日，堡垒之夜将在盛大的 [冬季节活动](https://www.epicgames.com/fortnite/en-US/news/winterfest-2019-begins) 期间向所有玩家赠送 14 张免费角色皮肤和其他游戏物品。
 

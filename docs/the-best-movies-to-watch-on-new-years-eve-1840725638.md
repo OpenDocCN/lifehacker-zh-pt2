@@ -1,6 +1,6 @@
 # 除夕夜最好看的电影
 
-> 原文:[https://life hacker . com/the-best-movies-to-watch-on-new-years-eve-1840725638](https://lifehacker.com/the-best-movies-to-watch-on-new-years-eve-1840725638)
+> 原文：<https://lifehacker.com/the-best-movies-to-watch-on-new-years-eve-1840725638>
 
 2011 年的浪漫喜剧《新年前夜》发生在纽约市舞会前的几个小时，是一部糟糕的电影。你可能知道它，因为每个演员——除了那些在类似的节日电影《T2》中有演员阵容的演员——都在里面。尽管如此，凭借巨大的明星影响力和庞大的预算，*的新年夜*还是一场灾难。为什么丽娅·米歇尔和阿什顿·库彻扮演的角色住在这么好的建筑里，却仍然被困在电梯里几个小时？为什么莎拉·杰西卡·帕克的角色没有电话？为什么乔恩·邦·乔维试图采取行动？
 

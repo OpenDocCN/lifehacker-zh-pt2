@@ -1,6 +1,6 @@
 # 如何做一杯真正好的高杯酒
 
-> 原文:[https://life hacker . com/how-to-make-a really-good-highball-1843479746](https://lifehacker.com/how-to-make-a-really-good-highball-1843479746)
+> 原文：<https://lifehacker.com/how-to-make-a-really-good-highball-1843479746>
 
 我的第一杯高杯是将摩根船长五香朗姆酒和健怡可乐等量混合倒入一个红色的索罗杯中。一切都是错的。比例失调了。搅拌机很恶心。这些冰是由一台冷冻机制造的，这台冷冻机的管路可能有一段时间没有清洗过了。
 

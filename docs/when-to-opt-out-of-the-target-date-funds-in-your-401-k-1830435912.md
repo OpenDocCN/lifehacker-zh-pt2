@@ -1,6 +1,6 @@
 # 何时退出 401(k)计划中的目标日期基金
 
-> 原文:[https://life hacker . com/when-to-opt-out-of-the-target-date-funds-in-your-401-k-1830435912](https://lifehacker.com/when-to-opt-out-of-the-target-date-funds-in-your-401-k-1830435912)
+> 原文：<https://lifehacker.com/when-to-opt-out-of-the-target-date-funds-in-your-401-k-1830435912>
 
 根据富达 [2018 年](https://sponsor.fidelity.com/bin-public/06_PSW_Website/documents/Building_Financial_Futures_Q2_2018_FINAL.pdf) 报告，自动登记已被证明是员工为退休储蓄的一种有效方式，91%的自动登记参加固定缴款计划(如 401(k))的人仍然选择参加该计划。
 

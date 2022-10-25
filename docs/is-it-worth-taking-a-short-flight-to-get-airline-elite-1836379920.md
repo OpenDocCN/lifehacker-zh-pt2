@@ -1,6 +1,6 @@
 # 乘坐短途航班获得航空公司精英身份值得吗？
 
-> 原文:[https://life hacker . com/is-it-value-take-a-short-flight-to-get-airline-elite-1836379920](https://lifehacker.com/is-it-worth-taking-a-short-flight-to-get-airline-elite-1836379920)
+> 原文：<https://lifehacker.com/is-it-worth-taking-a-short-flight-to-get-airline-elite-1836379920>
 
 过去有一个非常安全的假设，你飞得越多，你得到的额外津贴就越多。如果你在飞机上呆了足够长的时间，你可以用这段时间换取未来航班上更好的体验:更宽敞的座位、更早的登机手续、免费行李或任何其他“精英”身份可以带给你的东西。
 

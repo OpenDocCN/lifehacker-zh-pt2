@@ -1,6 +1,6 @@
 # 帮助你的孩子克服对自动马桶的恐惧
 
-> 原文:[https://life hacker . com/help-your-culk-convert-they-fear-of-the-automatic-t-1841201544](https://lifehacker.com/help-your-toddler-conquer-their-fear-of-the-automatic-t-1841201544)
+> 原文：<https://lifehacker.com/help-your-toddler-conquer-their-fear-of-the-automatic-t-1841201544>
 
 这是许多初学走路的孩子都会经历的阶段——谁能责怪他们呢？这些新奇的自动冲水马桶(通常一次可以冲好几次)并没有让任何人的如厕训练过程变得更容易。它们声音很大，听起来像是要把你和你周围的一切都吸进虚无，而一个孩子只想安静地撒尿。
 

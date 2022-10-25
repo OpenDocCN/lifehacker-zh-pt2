@@ -1,6 +1,6 @@
 # 哪里可以找到适合你肌肉发达的腿的牛仔裤
 
-> 原文:[https://life hacker . com/where-to-find-jeans-the-fit-your-muscum-legs-1831733794](https://lifehacker.com/where-to-find-jeans-that-fit-your-muscly-legs-1831733794)
+> 原文：<https://lifehacker.com/where-to-find-jeans-that-fit-your-muscly-legs-1831733794>
 
 我们问 [如果你有经常锻炼的人的屁股和腿，你在哪里可以买到真正合身的](https://vitals.lifehacker.com/where-do-you-find-jeans-that-fit-your-athletic-butt-1831672623) 牛仔裤。标准尺寸的牛仔裤适合你的腰部，但可能无法挤到你的股四头肌，事实证明，许多种类的运动员(举重运动员、自行车运动员等等)都有这个问题。今天，我们提出一些可能的解决方案。
 

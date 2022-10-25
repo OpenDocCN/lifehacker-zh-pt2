@@ -1,6 +1,6 @@
 # 用卷尺记录孩子的里程碑
 
-> 原文:[https://life hacker . com/track-your-kids-milestones-on-a tape-measure-1835653136](https://lifehacker.com/track-your-kids-milestones-on-a-tape-measure-1835653136)
+> 原文：<https://lifehacker.com/track-your-kids-milestones-on-a-tape-measure-1835653136>
 
 哦，童年记录门口高度的仪式。你会尽可能地站直，就像妈妈或爸爸会在你的头顶划一条线，写上当天的日期一样。然后你会退后一步，看看结果。嘿，你看！你长了四分之三英寸！你的父母会微笑着和你击掌，然后在你跑去玩耍时偷偷哭一会儿。
 

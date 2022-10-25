@@ -1,6 +1,6 @@
 # 如何缓解选举日的紧张情绪
 
-> 原文:[https://life hacker . com/how-to-ease-your-election-day-jitters-1830230964](https://lifehacker.com/how-to-ease-your-election-day-jitters-1830230964)
+> 原文：<https://lifehacker.com/how-to-ease-your-election-day-jitters-1830230964>
 
 中期选举增加了你的压力吗？我理解你。我们当前的政治气候导致我们所有人都喝得更多，根据一项新的民意调查，甚至 [导致一些选民“吃他们的感觉，](https://www.nbcnews.com/better/health/political-climate-making-democrats-eat-their-feelings-here-s-how-ncna929826) ”,这两者都不是解决这个问题的最健康的方式。
 

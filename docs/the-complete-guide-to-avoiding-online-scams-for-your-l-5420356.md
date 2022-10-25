@@ -1,6 +1,6 @@
 # 避免网上诈骗的完整指南
 
-> 原文:[https://life hacker . com/the-complete-guide-to-avoiding-online-scams-for-your-l-5420356](https://lifehacker.com/the-complete-guide-to-avoiding-online-scams-for-your-l-5420356)
+> 原文：<https://lifehacker.com/the-complete-guide-to-avoiding-online-scams-for-your-l-5420356>
 
 我们知道——你太懂技术了，不会被网上骗局愚弄。但是，即使是我们当中最聪明的人也可能成为互联网骗局的受害者，我们都有一些朋友和亲戚可以在数字安全方面得到一些额外的帮助。
 

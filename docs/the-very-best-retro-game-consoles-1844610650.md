@@ -1,6 +1,6 @@
 # 最好的复古游戏机
 
-> 原文:[https://gizmodo . com/the-very-best-retro-game-consoles-1844610650](https://gizmodo.com/the-very-best-retro-game-consoles-1844610650)
+> 原文：<https://gizmodo.com/the-very-best-retro-game-consoles-1844610650>
 
 现代视频游戏和游戏机提供了可与好莱坞大片媲美的叙事体验，但今天的游戏也需要很长时间才能玩完。有时候你只想投入到游戏中去，而你过去最喜欢的 8 位和 16 位游戏非常适合这种情况。
 

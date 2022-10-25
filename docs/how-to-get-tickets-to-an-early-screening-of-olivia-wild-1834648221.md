@@ -1,6 +1,6 @@
 # 如何买到奥利维亚·维尔德“书市”的提前放映票
 
-> 原文:[https://life hacker . com/how-to-get-tickets-a-early-screening-of-Olivia-wild-1834648221](https://lifehacker.com/how-to-get-tickets-to-an-early-screening-of-olivia-wild-1834648221)
+> 原文：<https://lifehacker.com/how-to-get-tickets-to-an-early-screening-of-olivia-wild-1834648221>
 
 如果你对看奥利维亚·维尔德的电影《书市》感到兴奋，Instagram 可能是你在早期放映中获得一席之地的门票。
 

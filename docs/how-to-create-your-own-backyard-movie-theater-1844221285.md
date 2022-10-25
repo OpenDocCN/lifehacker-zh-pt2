@@ -1,6 +1,6 @@
 # 如何创建自己的后院电影院
 
-> 原文:[https://life hacker . com/how-to-create-your-own-后院电影院-1844221285](https://lifehacker.com/how-to-create-your-own-backyard-movie-theater-1844221285)
+> 原文：<https://lifehacker.com/how-to-create-your-own-backyard-movie-theater-1844221285>
 
 很有可能，在疫情的这个时候，你已经有很多家庭电影之夜了。我们也有家庭电影下午和家庭电影周六上午。也许新鲜感正在消失，曾经是一个有趣的每周款待现在只是另一个平凡的，这是我们能做的最好的活动。在这种情况下，是时候把你的后院变成你家人的私人影院体验了。
 

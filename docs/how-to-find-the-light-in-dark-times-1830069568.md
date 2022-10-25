@@ -1,6 +1,6 @@
 # 如何在黑暗的时代找到光明
 
-> 原文:[https://life hacker . com/how-to-find-the-light-in-dark-times-1830069568](https://lifehacker.com/how-to-find-the-light-in-dark-times-1830069568)
+> 原文：<https://lifehacker.com/how-to-find-the-light-in-dark-times-1830069568>
 
 寄给民主党政治领袖的管状炸弹。两名美国黑人在杂货店被谋杀。美国历史上最大的反犹袭击。所有这三起由仇恨引发的事件都发生在上周，让这个国家悲痛欲绝，并在寻找答案和寻求灵感。
 

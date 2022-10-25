@@ -1,6 +1,6 @@
 # 用“活动宾果”改变你孩子的学习常规
 
-> 原文:[https://life hacker . com/shake-up-your-kids-academic-routine-with-activity-bingo-1842488839](https://lifehacker.com/shake-up-your-kids-academic-routine-with-activity-bingo-1842488839)
+> 原文：<https://lifehacker.com/shake-up-your-kids-academic-routine-with-activity-bingo-1842488839>
 
 现在我们中的许多人已经(c *hecks watch)* 一周半进入 [身体距离](https://vitals.lifehacker.com/were-calling-it-physical-distancing-now-1842454451)——也就是说，和孩子们关在房子里——是时候进行福利检查了。大家的 [学业调度](https://lifehacker.com/create-a-daytime-academic-schedule-for-kids-stuck-at-ho-1842357145) 怎么样了？你已经变成了一名出色的家庭学校教师了吗？或者你的孩子已经连续 10 天不停地玩电子游戏了？
 

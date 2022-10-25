@@ -1,6 +1,6 @@
 # 今天在哪里可以获得国家快餐日的免费食物
 
-> 原文:[https://life hacker . com/where-to-get-free-food-today-for-national fast-food-day-1830481320](https://lifehacker.com/where-to-get-free-food-today-for-national-fast-food-day-1830481320)
+> 原文：<https://lifehacker.com/where-to-get-free-food-today-for-national-fast-food-day-1830481320>
 
 11 月 16 日星期五是全国快餐日。虽然对我们所有人来说，这一天可能离感恩节太近了，但像大多数其他虚构的节日一样，有相当多的免费赠品，值得好好利用。
 

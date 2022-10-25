@@ -1,6 +1,6 @@
 # 告诉我们你最喜欢的 Windows 或 Mac 媒体播放器
 
-> 原文:[https://life hacker . com/tell-us-about-your favorite-media-player-for-windows-or-1835635189](https://lifehacker.com/tell-us-about-your-favorite-media-player-for-windows-or-1835635189)
+> 原文：<https://lifehacker.com/tell-us-about-your-favorite-media-player-for-windows-or-1835635189>
 
 又到了 [蜂巢五](https://lifehacker.com/tag/hive-five) 的时间了！我们希望您告诉我们您最喜欢的桌面媒体播放器。
 

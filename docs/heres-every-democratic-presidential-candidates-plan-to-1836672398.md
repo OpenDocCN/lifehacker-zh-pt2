@@ -1,6 +1,6 @@
 # 这是每位民主党总统候选人解决学生贷款债务的计划
 
-> 原文:[https://life hacker . com/heres-every-democratic-president-patients-plan-to-1836672398](https://lifehacker.com/heres-every-democratic-presidential-candidates-plan-to-1836672398)
+> 原文：<https://lifehacker.com/heres-every-democratic-presidential-candidates-plan-to-1836672398>
 
 学生贷款债务将成为整个 2020 年总统竞选季的热门话题，特别是民主党候选人 [【伊丽莎白·沃伦】](https://lifehacker.com/why-elizabeth-warrens-student-debt-plan-isnt-that-radic-1834240902?) 和 [【伯尼·桑德斯】](https://twocents.lifehacker.com/keep-paying-your-loans-while-bernie-tries-to-cancel-stu-1835817118?) 的早期举措，他们立即宣布了详细的计划。但这只是众多候选人中的两个，他们将在明年秋天的选举中与唐纳德·特朗普总统竞争。
 

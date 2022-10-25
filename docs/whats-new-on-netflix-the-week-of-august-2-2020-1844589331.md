@@ -1,6 +1,6 @@
 # 2020 年 8 月 2 日这一周网飞有什么新消息
 
-> 原文:[https://life hacker . com/whats-new-on-the-week-of-August-2-2020-1844589331](https://lifehacker.com/whats-new-on-netflix-the-week-of-august-2-2020-1844589331)
+> 原文：<https://lifehacker.com/whats-new-on-netflix-the-week-of-august-2-2020-1844589331>
 
 在斯蒂芬·金的小说中，缅因州的德里镇受到了某种诅咒。每隔 27 年，Pennywise 的恶魔之魂就会回到这个小镇，并捕食它的孩子。事实证明，类似的诅咒笼罩着好莱坞，但它不是一个真正的恶魔回来吞噬儿童的灵魂，而是一个象征性的恶魔，它吞噬着崭露头角的演员的灵魂，并利用他们的青春活力翻拍了 2000 年的啦啦队长电影*带来它*。
 

@@ -1,6 +1,6 @@
 # 今天就享受低至 49 美元的西南航空票价优惠
 
-> 原文:[https://life hacker . com/get-south west-fare-deals-as-low-as-49-today-1837473395](https://lifehacker.com/get-southwest-fare-deals-as-low-as-49-today-1837473395)
+> 原文：<https://lifehacker.com/get-southwest-fare-deals-as-low-as-49-today-1837473395>
 
 正如我们 [上周](https://lifehacker.com/why-you-probably-shouldnt-book-a-flight-through-a-third-1837272409) 提到的，你可能不应该在 Expedia 或 Travelocity 等第三方网站上预订航班，否则你可能会错过一些航空公司的促销活动。恰在此时，西南航空公司宣布对最早于 9 月份出发的航班进行减价销售，一直持续到春季。
 

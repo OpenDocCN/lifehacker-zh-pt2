@@ -1,6 +1,6 @@
 # 在 24 小时内发送 Venmo 请求
 
-> 原文:[https://life hacker . com/send-venmo-requests-within-24-hours-1841131205](https://lifehacker.com/send-venmo-requests-within-24-hours-1841131205)
+> 原文：<https://lifehacker.com/send-venmo-requests-within-24-hours-1841131205>
 
 下一次，当你以“我会原谅你”来结束一次集体聚餐或郊游时，确保你及时跟进。
 

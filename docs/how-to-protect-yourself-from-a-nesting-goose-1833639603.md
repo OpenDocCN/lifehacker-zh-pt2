@@ -1,6 +1,6 @@
 # 如何保护自己免受筑巢鹅的伤害
 
-> 原文:[https://life hacker . com/how-to-protect-you-from-a-nesting-goose-1833639603](https://lifehacker.com/how-to-protect-yourself-from-a-nesting-goose-1833639603)
+> 原文：<https://lifehacker.com/how-to-protect-yourself-from-a-nesting-goose-1833639603>
 
 鹅:朋友还是敌人？这主要取决于是否是筑巢季节。如果一只鹅有东西要保护，它会保护自己——而且一只鹅会把你搞得一团糟。
 

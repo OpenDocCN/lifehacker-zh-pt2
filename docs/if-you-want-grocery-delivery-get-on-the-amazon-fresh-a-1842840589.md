@@ -1,6 +1,6 @@
 # 如果你想送货上门，现在就加入亚马逊生鲜和全食超市的等候名单吧
 
-> 原文:[https://life hacker . com/if-you-want-dry-delivery-get-on-the-Amazon-fresh-a-1842840589](https://lifehacker.com/if-you-want-grocery-delivery-get-on-the-amazon-fresh-a-1842840589)
+> 原文：<https://lifehacker.com/if-you-want-grocery-delivery-get-on-the-amazon-fresh-a-1842840589>
 
 如果你正在考虑第一次尝试亚马逊生鲜或全食超市的送货或提货服务，请注意，在使用这两种服务购买食品之前，你可能需要在等候名单上花一些时间——所以你可能想现在就把自己放在名单上。
 

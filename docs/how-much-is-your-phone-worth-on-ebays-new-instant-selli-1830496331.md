@@ -1,6 +1,6 @@
 # 在易贝新推出的“即时销售”项目中，你的手机值多少钱？
 
-> 原文:[https://life hacker . com/你的手机在 ebay-new-instant-selli-1830496331](https://lifehacker.com/how-much-is-your-phone-worth-on-ebays-new-instant-selli-1830496331)
+> 原文：<https://lifehacker.com/how-much-is-your-phone-worth-on-ebays-new-instant-selli-1830496331>
 
 在你买到闪亮的、新的、可能比旧手机贵得多的东西之前，有一百万种不同的方式来卖掉你的旧手机。虽然经典的建议是“易贝你的手机”——除非你仍然相信 Craigslist，或者想尝试一下 Facebook market place——如果你想在这个拍卖巨头上出售智能手机，你有两个选择。你可以把它拿出来拍卖，就像你卖掉豆豆娃系列后一直在做的一样，或者你可以试试易贝的新“即时销售”计划。
 

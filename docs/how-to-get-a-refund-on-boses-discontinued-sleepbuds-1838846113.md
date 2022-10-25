@@ -1,6 +1,6 @@
 # 如何获得 Bose 停产 Sleepbuds 的退款
 
-> 原文:[https://life hacker . com/how-to-get-a-return-on-boses-discontinued-sleep buds-1838846113](https://lifehacker.com/how-to-get-a-refund-on-boses-discontinued-sleepbuds-1838846113)
+> 原文：<https://lifehacker.com/how-to-get-a-refund-on-boses-discontinued-sleepbuds-1838846113>
 
 如果你买了一双 250 美元的 Bose Sleepbuds 是为了获得更好的睡眠，你应该知道 Bose 刚刚停止了它的噪音屏蔽 Sleepbuds，并向客户提供全额退款。
 

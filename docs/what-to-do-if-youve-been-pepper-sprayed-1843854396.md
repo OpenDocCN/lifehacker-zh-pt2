@@ -1,6 +1,6 @@
 # 如果你被胡椒喷雾了该怎么办
 
-> 原文:[https://life hacker . com/1843854396](https://lifehacker.com/what-to-do-if-youve-been-pepper-sprayed-1843854396)
+> 原文：<https://lifehacker.com/what-to-do-if-youve-been-pepper-sprayed-1843854396>
 
 胡椒喷雾(包括品牌名称 Mace)会导致眼睛和鼻子极度刺痛和灼烧感。如果你被喷了胡椒喷雾，你需要把化学物质冲出来。水是有用的，但不是唯一的选择。
 

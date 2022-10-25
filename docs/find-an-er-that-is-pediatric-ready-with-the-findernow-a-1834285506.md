@@ -1,6 +1,6 @@
 # 使用 findERNow 应用程序找到儿科急诊室
 
-> 原文:[https://life hacker . com/find-an-er-that-is-pediatric-ready-with-the-finder now-a-1834285506](https://lifehacker.com/find-an-er-that-is-pediatric-ready-with-the-findernow-a-1834285506)
+> 原文：<https://lifehacker.com/find-an-er-that-is-pediatric-ready-with-the-findernow-a-1834285506>
 
 我希望你不用带你的孩子去急诊室。但是如果你去了，你会想去一家准备好治疗婴儿和儿童的医院。
 

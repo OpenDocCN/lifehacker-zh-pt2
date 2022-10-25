@@ -1,6 +1,6 @@
 # what to do about your incredibly boring job 1835664566
 
-> 原文:[https://life hacker . com/1835664566](https://lifehacker.com/what-to-do-about-your-incredibly-boring-job-1835664566)
+> 原文：<https://lifehacker.com/what-to-do-about-your-incredibly-boring-job-1835664566>
 
 你浪费了一天工作时间的一半，因为没有足够的事情可做——这让你发疯。以下是如何做出改变的方法，这样你就不会在脸书消磨时间，等待时钟敲响第五下。
 

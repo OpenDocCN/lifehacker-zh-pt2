@@ -1,6 +1,6 @@
 # 如何选择不与陌生人分享你的 Instagram 故事
 
-> 原文:[https://life hacker . com/how-to-opt-out-of-have-your-insta gram-stories-shared-1839402359](https://lifehacker.com/how-to-opt-out-of-having-your-instagram-stories-shared-1839402359)
+> 原文：<https://lifehacker.com/how-to-opt-out-of-having-your-instagram-stories-shared-1839402359>
 
 我非常喜欢 Instagram 的 Stories 功能。我喜欢在故事中标记我所在的企业和朋友，可能会在一天中花太多时间来查看我关注的人在这项服务上做了什么(和分享了什么)。本周，Instagram [为故事](https://instagram.tumblr.com/post/160984741062/170523-location-hashtag-stories) 增加了一些新功能，特别是那些通过位置或标签突出故事的功能。
 

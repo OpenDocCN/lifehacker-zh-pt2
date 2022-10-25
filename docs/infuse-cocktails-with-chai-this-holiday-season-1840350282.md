@@ -1,6 +1,6 @@
 # 在这个节日里用柴调鸡尾酒
 
-> 原文:[https://life hacker . com/infuse-cocktails-with-chai-this-holiday-season-1840350282](https://lifehacker.com/infuse-cocktails-with-chai-this-holiday-season-1840350282)
+> 原文：<https://lifehacker.com/infuse-cocktails-with-chai-this-holiday-season-1840350282>
 
 经典鸡尾酒的假日即兴表演是一件好事，但“季节性转折”似乎总是以肉桂开始和结束。肉桂本身没有任何问题——它容易获得，没有争议，它读起来很甜，没有添加实际的甜味，甚至据称对你的血压或其他东西有好处。因此，它似乎可以在任何和所有节日专用鸡尾酒中找到自己的方式，这是如何让一种饮料的味道*适合*现在*的问题的第一个和最后一个答案。*
 

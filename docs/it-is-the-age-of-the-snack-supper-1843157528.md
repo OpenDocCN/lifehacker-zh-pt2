@@ -1,6 +1,6 @@
 # 这是快餐晚餐的时代
 
-> 原文:[https://life hacker . com/it-is-the-age-of-the-snack-super-1843157528](https://lifehacker.com/it-is-the-age-of-the-snack-supper-1843157528)
+> 原文：<https://lifehacker.com/it-is-the-age-of-the-snack-supper-1843157528>
 
 我想我开始讨厌做饭了。或者至少我开始讨厌自己做饭了。(我已经变得容易情绪激动，在痛苦中，我在回到厨房之前戏剧性地宣布我“讨厌烹饪”。)在“这一切”发生之前，我已经做了相当多的饭，所以物理距离带来的额外烹饪并不有趣或令人放松。虽然我很高兴每个人都能在冥想、烧烤和反思中找到安慰，但我通常会在晚餐时间到来时发现自己有点疲惫。
 

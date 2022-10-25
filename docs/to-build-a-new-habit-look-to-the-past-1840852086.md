@@ -1,6 +1,6 @@
 # 要养成一个新习惯，回顾过去
 
-> 原文:[https://life hacker . com/to-build-a-new-habit-look-to-the-past-1840852086](https://lifehacker.com/to-build-a-new-habit-look-to-the-past-1840852086)
+> 原文：<https://lifehacker.com/to-build-a-new-habit-look-to-the-past-1840852086>
 
 如果你想在日常生活中增加一个新习惯，值得花时间反思一下你是如何养成当前习惯的，以及你是否可以用同样的技巧将另一个习惯或行为融入你的日常生活。
 

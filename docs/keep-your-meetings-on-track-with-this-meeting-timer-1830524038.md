@@ -1,6 +1,6 @@
 # 使用此会议计时器让您的会议如期进行
 
-> 原文:[https://life hacker . com/keep-your-meetings-on-track with this-meeting-timer-1830524038](https://lifehacker.com/keep-your-meetings-on-track-with-this-meeting-timer-1830524038)
+> 原文：<https://lifehacker.com/keep-your-meetings-on-track-with-this-meeting-timer-1830524038>
 
 破坏会议最简单的方法之一就是开始谈论一些跑题的事情，或者花太多时间谈论一些事情，而没有留出足够的时间来讨论其他事情。让我们面对现实吧，没有人喜欢参加一个 20 分钟的会议，而这个会议通常会变成一个小时的冒险。
 

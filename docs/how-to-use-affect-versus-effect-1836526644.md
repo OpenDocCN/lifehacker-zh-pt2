@@ -1,6 +1,6 @@
 # 如何使用“影响”和“效果”
 
-> 原文:[https://life hacker . com/how-to-use-affect-vs-effect-1836526644](https://lifehacker.com/how-to-use-affect-versus-effect-1836526644)
+> 原文：<https://lifehacker.com/how-to-use-affect-versus-effect-1836526644>
 
 每次我写“影响”或“效果”时，我都要停下来仔细检查一下自己。他们的意思是相关的，他们的拼写是相似的；甚至他们的发音也几乎一样。但是其中一个*导致*某事，另一个是*结果*。知道区别是一件好事。
 

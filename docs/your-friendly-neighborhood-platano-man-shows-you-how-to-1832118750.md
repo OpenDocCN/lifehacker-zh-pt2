@@ -1,6 +1,6 @@
 # 你友好的邻居普拉塔诺人告诉你如何在上班的路上打倒种族主义者
 
-> 原文:[https://www . the root . com/your-friendly-neighborhood-platano-man-show-you-how-to-1832118750](https://www.theroot.com/your-friendly-neighborhood-platano-man-shows-you-how-to-1832118750)
+> 原文：<https://www.theroot.com/your-friendly-neighborhood-platano-man-shows-you-how-to-1832118750>
 
 乍看之下，胡安·阿亚拉可能看起来像你在 Brook ly n 见过的普通多米尼加人。但这位保安和电台名人去年 12 月在“地铁苏珊”( Subway Susan)上拍摄、对抗并执行公民逮捕后迅速走红，她的真名是安娜·卢什钦斯卡娅(Anna Lushchinskaya ),一名白人女子在早上通勤期间袭击并对斯特拉芬的同伴发起种族主义诽谤。
 

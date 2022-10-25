@@ -1,6 +1,6 @@
 # 很快你就需要一个面罩来接受优步了
 
-> 原文:[https://life hacker . com/soon-you-need-a-face-covering-to-take-an-Uber-1843242345](https://lifehacker.com/soon-youll-need-a-face-covering-to-take-an-uber-1843242345)
+> 原文：<https://lifehacker.com/soon-youll-need-a-face-covering-to-take-an-uber-1843242345>
 
 如果你想骑优步，很快你就需要戴面罩了。
 

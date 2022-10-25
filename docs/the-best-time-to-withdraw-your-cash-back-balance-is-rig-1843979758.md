@@ -1,6 +1,6 @@
 # 提取现金返还余额的最佳时机就是现在
 
-> 原文:[https://life hacker . com/the-best-time to-draw-your-cash-back-balance-is-rig-1843979758](https://lifehacker.com/the-best-time-to-withdraw-your-cash-back-balance-is-rig-1843979758)
+> 原文：<https://lifehacker.com/the-best-time-to-withdraw-your-cash-back-balance-is-rig-1843979758>
 
 如果你使用积分信用卡来获得旅行积分，你可能在等待时机，并保留这些积分和里程，直到你再次打包行李时感觉舒适。
 

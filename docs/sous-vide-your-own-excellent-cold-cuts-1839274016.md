@@ -1,6 +1,6 @@
 # 提供您自己的美味冷盘
 
-> 原文:[https://life hacker . com/sous-vide-your-own-excellent-cold-cuts-1839274016](https://lifehacker.com/sous-vide-your-own-excellent-cold-cuts-1839274016)
+> 原文：<https://lifehacker.com/sous-vide-your-own-excellent-cold-cuts-1839274016>
 
 我喜欢猪肉。腌猪肉、未腌猪肉、烤猪肉和裹面包粉的猪肉。我喜欢各种火腿——从最便宜的机械切片到橡子喂养的伊比利亚火腿。大多数猪肉制品都很容易 DIY，但“自制冷盘”不是你经常听到的短语，这太糟糕了，因为如果你有一个浸泡循环器，它们很容易获得。
 

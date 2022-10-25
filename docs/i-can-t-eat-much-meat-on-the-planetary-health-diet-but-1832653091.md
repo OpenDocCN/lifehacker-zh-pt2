@@ -1,6 +1,6 @@
 # 按照行星健康食谱，我不能吃太多肉——但是当我吃的时候，我感觉好多了
 
-> 原文:[https://gizmodo . com/I-can-t-eat-much-on-the-planet-health-diet-but-1832653091](https://gizmodo.com/i-can-t-eat-much-meat-on-the-planetary-health-diet-but-1832653091)
+> 原文：<https://gizmodo.com/i-can-t-eat-much-meat-on-the-planetary-health-diet-but-1832653091>
 
 像许多其他美国人一样，我喜欢吃肉。但作为一名气候记者，这是我最大的困难之一，因为我知道我们对肉类的热爱付出了巨大的代价。然而，我在过去几周一直在吃的行星健康盘饮食确实帮助我正确看待不太显眼的动物消费——并帮助我认识到什么时候一点肉是好的。
 

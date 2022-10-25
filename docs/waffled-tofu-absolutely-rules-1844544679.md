@@ -1,6 +1,6 @@
 # 豆腐花绝对统治
 
-> 原文:[https://life hacker . com/waffled-豆腐-绝对-规则-1844544679](https://lifehacker.com/waffled-tofu-absolutely-rules-1844544679)
+> 原文：<https://lifehacker.com/waffled-tofu-absolutely-rules-1844544679>
 
 华夫饼干机非常擅长将食物变得又热又脆，而这恰好是我喜欢的豆腐(以及我的[SPAM](https://skillet.lifehacker.com/cook-spam-in-your-waffle-maker-1840879423)[火腿脆片](https://skillet.lifehacker.com/make-prosciutto-crisps-in-your-waffle-maker-1839177507) ，以及 [土豆饼](https://skillet.lifehacker.com/make-these-parm-crusted-waffles-with-leftover-mashed-po-1840055015) )。我也喜欢我的豆腐酱，还有华夫饼豆腐——它的小方杯——比其他豆腐更能盛酱。
 

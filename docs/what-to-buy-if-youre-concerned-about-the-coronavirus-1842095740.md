@@ -1,6 +1,6 @@
 # 如果你担心冠状病毒，该买什么
 
-> 原文:[https://life hacker . com/what-to-buy-if-you-concern-the-coronavirus-1842095740](https://lifehacker.com/what-to-buy-if-youre-concerned-about-the-coronavirus-1842095740)
+> 原文：<https://lifehacker.com/what-to-buy-if-youre-concerned-about-the-coronavirus-1842095740>
 
 你已经看过 [被洗劫一空的杂货店](https://www.usatoday.com/story/money/2020/03/02/coronavirus-toilet-paper-shortage-stores-selling-out/4930420002/) 的照片，也听过当地仓库俱乐部的噩梦故事。每个人似乎都在储备，嗯，所有的东西，因为他们预计美国会有检疫隔离。
 

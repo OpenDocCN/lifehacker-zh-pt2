@@ -1,6 +1,6 @@
 # 如何回收旧 t 恤
 
-> 原文:[https://life hacker . com/how-to-make-money-recycling-old-t-shirts-1834211784](https://lifehacker.com/how-to-make-money-recycling-old-t-shirts-1834211784)
+> 原文：<https://lifehacker.com/how-to-make-money-recycling-old-t-shirts-1834211784>
 
 我穿的每件衣服都有洞。
 

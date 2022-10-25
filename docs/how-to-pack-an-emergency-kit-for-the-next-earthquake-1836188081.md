@@ -1,6 +1,6 @@
 # 如何为下次地震打包应急包
 
-> 原文:[https://life hacker . com/how-to-pack a emergency-kit for the next-strange-1836188081](https://lifehacker.com/how-to-pack-an-emergency-kit-for-the-next-earthquake-1836188081)
+> 原文：<https://lifehacker.com/how-to-pack-an-emergency-kit-for-the-next-earthquake-1836188081>
 
 如果你生活在地震多发的国家，本周加州发生的 [6.9 级和 7.1 级地震](https://earther.gizmodo.com/magnitude-7-1-earthquake-in-southern-california-is-seco-1836152140)可能会让你有点紧张。好好利用你的紧张情绪，准备好你的两个急救包。
 

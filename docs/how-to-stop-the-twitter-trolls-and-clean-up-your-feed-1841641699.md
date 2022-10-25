@@ -1,6 +1,6 @@
 # 如何阻止 Twitter 上的流氓并清理你的订阅
 
-> 原文:[https://life hacker . com/how-to-stop-the-Twitter-trolls-and-clean-up-your-feed-1841641699](https://lifehacker.com/how-to-stop-the-twitter-trolls-and-clean-up-your-feed-1841641699)
+> 原文：<https://lifehacker.com/how-to-stop-the-twitter-trolls-and-clean-up-your-feed-1841641699>
 
 Twitter 可能是一个满是机器人、巨魔和 [回复家伙](https://lifehacker.com/dont-be-a-reply-guy-1832792226) 的粪坑。幸运的是，有一些内置的隐私和安全工具可以用来最大限度地减少提要中的垃圾。在上面的视频中，我向你展示了如何做。
 

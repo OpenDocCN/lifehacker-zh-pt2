@@ -1,6 +1,6 @@
 # 你现在可以在 16 英寸的 MacBook Pro 上安装 Windows 10 了
 
-> 原文:[https://life hacker . com/you-can-now-install-windows-10-on-your-16 英寸 macbook-1839961622](https://lifehacker.com/you-can-now-install-windows-10-on-your-16-inch-macbook-1839961622)
+> 原文：<https://lifehacker.com/you-can-now-install-windows-10-on-your-16-inch-macbook-1839961622>
 
 我知道，我知道；如果你刚刚花了 2000 多美元买了一台新的 16 英寸 MacBook Pro，这听起来有点神圣，但我们生活在一个小猫和小狗可以成为朋友的时代。如果你想在同一个系统上运行 macOS 和 Windows 10，你应该觉得你可以做到这一点，而不会惹恼苹果之神(或粉丝)。
 

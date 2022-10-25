@@ -1,6 +1,6 @@
 # 腌制葡萄的美妙时光
 
-> 原文:[https://life hacker . com/pickle-grapes-for-a surprise-good-time-1839061793](https://lifehacker.com/pickle-grapes-for-a-surprisingly-good-time-1839061793)
+> 原文：<https://lifehacker.com/pickle-grapes-for-a-surprisingly-good-time-1839061793>
 
 一些泡菜——黄瓜、洋葱，甚至胡萝卜——是显而易见的，但葡萄不是显而易见的泡菜。葡萄是一种令人惊讶的泡菜，一种意想不到的泡菜，一种耐人寻味的泡菜。如果你在发酵过程中不动它们，它们就会变成冒泡的泡菜。
 

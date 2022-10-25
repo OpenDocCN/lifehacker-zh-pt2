@@ -1,6 +1,6 @@
 # 当别人在玩游戏时，如何走到电视机前
 
-> 原文:[https://kotaku . com/how-to-walk-in-the-from-the-television-when-someone-is-gam-1843296560](https://kotaku.com/how-to-walk-in-front-of-the-tv-when-someone-else-is-gam-1843296560)
+> 原文：<https://kotaku.com/how-to-walk-in-front-of-the-tv-when-someone-else-is-gam-1843296560>
 
 最纯粹的社会契约很简单:我们同意尽可能远离彼此。这也适用于乘坐地铁，购买食品杂货，以及其他任何让我们与另一个灵魂保持距离的事情。但是，当导航到一个其他人正在玩视频游戏的房间时，这是双倍的——不，是四倍的。
 

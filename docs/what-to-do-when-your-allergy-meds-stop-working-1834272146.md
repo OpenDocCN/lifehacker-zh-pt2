@@ -1,6 +1,6 @@
 # 当你的抗过敏药失效时该怎么办
 
-> 原文:[https://life hacker . com/what-do-when-your-allergy-meds-stop-working-1834272146](https://lifehacker.com/what-to-do-when-your-allergy-meds-stop-working-1834272146)
+> 原文：<https://lifehacker.com/what-to-do-when-your-allergy-meds-stop-working-1834272146>
 
 我都试过了:Zyrtec、Allegra、Claritin、Xyzal、Benadryl、Nasacort、Flonase——甚至 neti pot——但我仍然很难找到一种有效的工具，可以一劳永逸地消除我布满血丝的眼睛和鼻涕。
 

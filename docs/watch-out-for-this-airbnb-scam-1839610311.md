@@ -1,6 +1,6 @@
 # 当心这个 Airbnb 骗局
 
-> 原文:[https://life hacker . com/watch-out-for-this-Airbnb-scam-1839610311](https://lifehacker.com/watch-out-for-this-airbnb-scam-1839610311)
+> 原文：<https://lifehacker.com/watch-out-for-this-airbnb-scam-1839610311>
 
 就在上个月， [我们写了](https://lifehacker.com/avoid-these-red-flags-while-booking-an-airbnb-1838842601) 关于一对夫妇因为虚假房源在 Airbnb 上被骗走近 12000 美元。但是根据资深职业作家艾丽·康蒂为 [Vice](https://www.vice.com/en_us/article/43k7z3/nationwide-fake-host-scam-on-airbnb) 写的一份报告——她是几个主要城市 Airbnb 用户上玩的骗局的受害者——平台上的骗子变得更加聪明。
 

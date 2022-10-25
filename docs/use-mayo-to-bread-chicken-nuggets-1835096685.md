@@ -1,6 +1,6 @@
 # 用蛋黄酱裹鸡块
 
-> 原文:[https://life hacker . com/use-mayo-to-bread-chicken-nuggets-1835096685](https://lifehacker.com/use-mayo-to-bread-chicken-nuggets-1835096685)
+> 原文：<https://lifehacker.com/use-mayo-to-bread-chicken-nuggets-1835096685>
 
 我们早就知道蛋黄酱除了三明治和熟食沙拉之外还有其他用途。[烤饼](https://skillet.lifehacker.com/3-unexpected-things-you-can-do-with-mayo-that-arent-put-1798356585) 和 [捣浓汤](https://skillet.lifehacker.com/make-these-thanksgiving-classics-even-better-1830236674) 只是其“面包之外”的应用中的几个，我很高兴地宣布另一个应用:用面包屑包裹那些 nugs。
 

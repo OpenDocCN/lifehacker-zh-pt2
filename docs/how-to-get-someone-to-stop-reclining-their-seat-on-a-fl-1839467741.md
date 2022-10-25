@@ -1,6 +1,6 @@
 # 如何让某人在飞机上停止倾斜座椅
 
-> 原文:[https://life hacker . com/how-to-get-someone-stop-living-the-seat-on-a-fl-1839467741](https://lifehacker.com/how-to-get-someone-to-stop-reclining-their-seat-on-a-fl-1839467741)
+> 原文：<https://lifehacker.com/how-to-get-someone-to-stop-reclining-their-seat-on-a-fl-1839467741>
 
 最近几周，我们在 Lifehacker 总部这里就航班上的正确礼仪进行了几次重要的辩论，比如哪个乘客有 [关闭窗帘的权利](https://lifehacker.com/who-has-the-right-to-the-window-shade-on-a-flight-1838482583)[进入](https://lifehacker.com/go-ahead-and-use-the-first-class-bathroom-on-flights-1838743415)[头等舱洗手间](https://lifehacker.com/go-ahead-and-use-the-first-class-bathroom-on-flights-1838743415)[第一个下飞机的权利](https://lifehacker.com/whats-the-correct-etiquette-for-getting-off-a-plane-1838911167) 。
 

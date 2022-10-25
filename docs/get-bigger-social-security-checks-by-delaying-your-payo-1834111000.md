@@ -1,6 +1,6 @@
 # 通过延迟支付获得更大的社会保障支票
 
-> 原文:[https://life hacker . com/get-bigger-social-security-checks-by-delay-your-payo-1834111000](https://lifehacker.com/get-bigger-social-security-checks-by-delaying-your-payo-1834111000)
+> 原文：<https://lifehacker.com/get-bigger-social-security-checks-by-delaying-your-payo-1834111000>
 
 如果你能推迟几年申请社会保障金，你就能在余生中每月获得更高的补助。
 

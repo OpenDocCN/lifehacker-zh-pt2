@@ -1,6 +1,6 @@
 # 9 部老派家庭电影，与你的孩子一起狂欢
 
-> 原文:[https://life hacker . com/9-old-school-family-flicks-to-binge-your-kids-1844548364](https://lifehacker.com/9-old-school-family-flicks-to-binge-with-your-kids-1844548364)
+> 原文：<https://lifehacker.com/9-old-school-family-flicks-to-binge-with-your-kids-1844548364>
 
 为人父母的乐趣之一就是和你的孩子分享你最喜欢的童年电影。没有比这几天更好的时间来展示你最喜欢的老派家庭电影了，尤其是在你看了这么多月的所有节目后，你的观看清单可能会感觉有点薄。所以，让我们把这九部你会喜欢和孩子一起看的老派家庭电影添加到你的列表中。
 

@@ -1,6 +1,6 @@
 # 如果不小心丢失了螺丝，请向宜家索要替换螺丝
 
-> 原文:[https://life hacker . com/ask-IKEA-for-replacement-screw-when-you-incidentialy-l-1828917819](https://lifehacker.com/ask-ikea-for-replacement-screws-when-you-accidentally-l-1828917819)
+> 原文：<https://lifehacker.com/ask-ikea-for-replacement-screws-when-you-accidentally-l-1828917819>
 
 几年前，我搬进了一个新公寓。虽然我的新家离我的旧家只有几英里，但搬家变成了包装和拆卸家具艺术的一次冒险，这样它就能真正适合在那几英里的路程中旅行。
 

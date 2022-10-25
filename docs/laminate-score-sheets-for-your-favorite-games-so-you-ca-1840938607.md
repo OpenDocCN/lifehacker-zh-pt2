@@ -1,6 +1,6 @@
 # 为您最喜爱的游戏层压比分表，以便您可以重复使用它们
 
-> 原文:[https://life hacker . com/laminate-score-sheets-for-you-favorite-games-so-you-ca-1840938607](https://lifehacker.com/laminate-score-sheets-for-your-favorite-games-so-you-ca-1840938607)
+> 原文：<https://lifehacker.com/laminate-score-sheets-for-your-favorite-games-so-you-ca-1840938607>
 
 几年前，我的朋友们发现了骰子游戏 Quixx。如果你没玩过，我强烈推荐。本质上，你掷出一组不同颜色的骰子，然后试着根据总数在分数表上标出数字。
 

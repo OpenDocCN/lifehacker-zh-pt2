@@ -1,6 +1,6 @@
 # 如何对待对同事的嫉妒
 
-> 原文:[https://life hacker . com/how-to-deal-to-envy-forward-colleges-1830821133](https://lifehacker.com/how-to-deal-with-envy-towards-colleagues-1830821133)
+> 原文：<https://lifehacker.com/how-to-deal-with-envy-towards-colleagues-1830821133>
 
 如果你在你的职业中有哪怕一盎司的野心，总会有其他人得到你想要的东西的时候:晋升、荣誉、压力。
 

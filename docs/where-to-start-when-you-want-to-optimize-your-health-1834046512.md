@@ -1,6 +1,6 @@
 # 当你想优化你的健康时，从哪里开始
 
-> 原文:[https://life hacker . com/where-to-start-when-you-want-optimize-your-health-1834046512](https://lifehacker.com/where-to-start-when-you-want-to-optimize-your-health-1834046512)
+> 原文：<https://lifehacker.com/where-to-start-when-you-want-to-optimize-your-health-1834046512>
 
 你可能会花上一辈子的时间来研究如何过上健康的生活——互联网上充斥着帮助你优化每个小细节的。但是说实话，睡眠、锻炼和节食的大部分好处来自于做好最基本的事情。因此，如果你感到不知所措，从这里开始。
 

@@ -1,6 +1,6 @@
 # 在你的法国榨汁机里做冰镇啤酒
 
-> 原文:[https://life hacker . com/make-cold-brew-in-your-French-press-1843396039](https://lifehacker.com/make-cold-brew-in-your-french-press-1843396039)
+> 原文：<https://lifehacker.com/make-cold-brew-in-your-french-press-1843396039>
 
 冷冲泡是一种非常懒惰的咖啡冲泡方法，尽管这并不意味着它是一种没有学究气的过程。虽然我肯定有许多文章致力于最佳研磨粒度、提取时间和温度，但我倾向于关注物流，如过滤— ，这取决于您选择的过滤系统，可能需要*而*。由于我懒*和*没耐心，所以很少做冷泡茶。
 

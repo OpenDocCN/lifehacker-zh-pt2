@@ -1,6 +1,6 @@
 # 看看这个 iOS 13 定制 Siri 快捷键的大集合
 
-> 原文:[https://life hacker . com/check-out-this-massive-collection-of-custom-Siri-shortc-1838364911](https://lifehacker.com/check-out-this-massive-collection-of-custom-siri-shortc-1838364911)
+> 原文：<https://lifehacker.com/check-out-this-massive-collection-of-custom-siri-shortc-1838364911>
 
 随着 iOS 13 的 [发布，几乎所有的苹果设备都预装了 Siri，这使得苹果的人工智能助手比以前更加无处不在。虽然 Siri 是一个有用的工具，大多数用户都能找到它的用处——尤其是与 Shortcuts 应用结合使用——但 Siri 老手和新手都可以通过使用定制的 Siri 快捷方式从他们的 iOS 设备中获得更多。](https://www.lifehacker.com.au/2019/09/find-out-if-your-iphone-or-ipad-can-download-ios-13/) 
 

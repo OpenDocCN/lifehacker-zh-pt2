@@ -1,6 +1,6 @@
 # 为您的 iCloud 地址创建一个替身，以维护您的在线隐私
 
-> 原文:[https://life hacker . com/create-a-alias-for-you-I cloud-address-to-maintain-you-1829996154](https://lifehacker.com/create-an-alias-for-your-icloud-address-to-maintain-you-1829996154)
+> 原文：<https://lifehacker.com/create-an-alias-for-your-icloud-address-to-maintain-you-1829996154>
 
 如今，在线隐私爱好者可以获得各种一次性工具来保护他们的实际信息安全。 [一次性电子邮件地址](https://lifehacker.com/make-fake-email-accounts-for-website-signups-using-the-1826627262#_ga=2.66456622.1848657415.1540315742-3846207152.1521480874) 防止自己的真实地址被泄露，[一次性电话号码](https://lifehacker.com/burner-the-disposable-phone-number-app-gets-nomorobo-1791348413#_ga=2.66456622.1848657415.1540315742-3846207152.1521480874) 让自己的真实号码更容易不被泄露。
 

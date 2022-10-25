@@ -1,6 +1,6 @@
 # 我们最喜欢的煮鸡蛋的方法
 
-> 原文:[https://life hacker . com/all-of-our-favored-ways-to-cook a egg-1831880695](https://lifehacker.com/all-of-our-favorite-ways-to-cook-an-egg-1831880695)
+> 原文：<https://lifehacker.com/all-of-our-favorite-ways-to-cook-an-egg-1831880695>
 
 不起眼的鸡蛋的多功能性几乎令人震惊。虽然鸡蛋只要撒上一点盐就非常美味，但它们也非常容易发光，给你放入的任何菜肴带来丰富、美味的蛋黄和抗饥饿物质。它们是早餐的主力，我们收集了所有我们喜欢的方法来准备它们。
 

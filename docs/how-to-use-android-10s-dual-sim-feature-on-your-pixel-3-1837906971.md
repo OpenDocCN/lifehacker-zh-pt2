@@ -1,6 +1,6 @@
 # 如何在您的 Pixel 3a 或 Pixel 3a XL 上使用 Android 10 的双 SIM 卡功能
 
-> 原文:[https://life hacker . com/how-to-use-Android-10s-dual-sim-feature-on-your-pixel-3-1837906971](https://lifehacker.com/how-to-use-android-10s-dual-sim-feature-on-your-pixel-3-1837906971)
+> 原文：<https://lifehacker.com/how-to-use-android-10s-dual-sim-feature-on-your-pixel-3-1837906971>
 
 随着 Android 10 [推出](https://lifehacker.com/do-this-before-installing-android-10-on-your-phone-1837842182) ，用户正在发现更新中包含的一些 [意想不到的惊喜](https://lifehacker.com/how-to-access-googles-secret-easter-eggs-in-android-9-a-1837877288) 。例如，升级到 Pixel 3a 和 3a XL 的双 SIM 双待机(DSDS)功能，最终在这些设备上实现真正的双 SIM 卡支持。
 

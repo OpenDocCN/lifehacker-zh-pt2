@@ -1,6 +1,6 @@
 # 如何关闭你的授权用户信用卡而不伤害你的信用评分
 
-> 原文:[https://life hacker . com/how-to-close-your-authorized-user-card-without-h-1841158752](https://lifehacker.com/how-to-close-your-authorized-user-credit-card-without-h-1841158752)
+> 原文：<https://lifehacker.com/how-to-close-your-authorized-user-credit-card-without-h-1841158752>
 
 成为别人信用卡的授权用户的好处远不止能够获得别人的信用额度。如果你是刚刚开始使用信用卡的，这是在你的信用报告上快速建立历史的最简单的方法之一。但是，如果你到达了你的生活中的一个点，当你想展开翅膀，控制自己的信用评分呢？
 

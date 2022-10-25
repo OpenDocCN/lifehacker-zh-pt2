@@ -1,6 +1,6 @@
 # 如何避免在飞机上坐在哭闹的婴儿旁边
 
-> 原文:[https://life hacker . com/how-to-避免在飞机上坐在哭泣的婴儿旁边-1841258894](https://lifehacker.com/how-to-avoid-sitting-next-to-a-crying-baby-on-a-flight-1841258894)
+> 原文：<https://lifehacker.com/how-to-avoid-sitting-next-to-a-crying-baby-on-a-flight-1841258894>
 
 早在 9 月份， [日本航空](https://www.cntraveler.com/story/japan-airlines-has-created-a-map-to-help-you-avoid-babies-on-your-flight) 因将一些航班的座位图改为包括“儿童图标”而成为头条新闻，这意味着年幼的儿童将坐在这些位置上——这一变化旨在让其他乘客在航班上找到远离这些婴儿的*座位。* 
 

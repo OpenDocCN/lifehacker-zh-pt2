@@ -1,6 +1,6 @@
 # 在全国披萨日哪里可以找到特价商品
 
-> 原文:[https://life hacker . com/where-to-find-deals-on-national-pizza-day-1841501522](https://lifehacker.com/where-to-find-deals-on-national-pizza-day-1841501522)
+> 原文：<https://lifehacker.com/where-to-find-deals-on-national-pizza-day-1841501522>
 
 老实说:我不喜欢美食“假日”但是全国披萨日？这是一个值得庆祝的节日，因为披萨很棒。事实上，我发现很少有食物比比萨饼更美味。所以我邀请你们所有人在 2 月 9 日和我一起庆祝。
 

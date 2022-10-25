@@ -1,6 +1,6 @@
 # 如何在假期支持有孩子住院的家庭
 
-> 原文:[https://life hacker . com/how-to-support-families-with-kids-in-how-durin-1840512364](https://lifehacker.com/how-to-support-families-with-kids-in-the-hospital-durin-1840512364)
+> 原文：<https://lifehacker.com/how-to-support-families-with-kids-in-the-hospital-durin-1840512364>
 
 有你期待的医院就诊——例如，计划好的手术。还有一些你意想不到的拜访——比如在圣诞节前几天，你不得不匆忙将你的先天性心脏病婴儿送到急诊室。
 

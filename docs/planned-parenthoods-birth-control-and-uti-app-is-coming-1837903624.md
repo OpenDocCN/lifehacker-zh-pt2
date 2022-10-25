@@ -1,6 +1,6 @@
 # 计划生育协会的节育和 UTI 应用程序将于明年在全美 50 个州推出
 
-> 原文:[https://life hacker . com/planned-parenthoods-birth-control-and-uti-app-is-coming-1837903624](https://lifehacker.com/planned-parenthoods-birth-control-and-uti-app-is-coming-1837903624)
+> 原文：<https://lifehacker.com/planned-parenthoods-birth-control-and-uti-app-is-coming-1837903624>
 
 当我们 [第一次](https://lifehacker.com/these-online-services-offer-birth-control-without-visit-1790510793) 写到 [计划生育指导](https://www.plannedparenthooddirect.org) 的时候，它是一个小众产品，如果你住在加州，它可以通过邮件让你避孕。现在它在 27 个州都很好，它的制造商宣布将于 2020 年 年底 [在全国发售。哦，它还能帮助你接受 UTI 治疗。](https://www.plannedparenthood.org/about-us/newsroom/press-releases/planned-parenthood-direct-app-expands-to-more-than-half-the-country)
 

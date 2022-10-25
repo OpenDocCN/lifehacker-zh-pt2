@@ -1,6 +1,6 @@
 # 如何找到关于你旅行目的地的播客
 
-> 原文:[https://life hacker . com/how-to-find-podcast-about-your-travel-destination-1836644210](https://lifehacker.com/how-to-find-podcasts-about-your-travel-destination-1836644210)
+> 原文：<https://lifehacker.com/how-to-find-podcasts-about-your-travel-destination-1836644210>
 
 [历史播客地图](https://timurpodcast.com/map-of-podcasts/) 是一个世界地图，带有讨论某些城市、州、国家和地区的播客(和播客片段)的标记。虽然它远非详尽，但如果你想了解一个特定的地方，这是一个很好的起点。
 

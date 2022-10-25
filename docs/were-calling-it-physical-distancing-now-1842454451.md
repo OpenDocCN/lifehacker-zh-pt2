@@ -1,6 +1,6 @@
 # 我们现在称之为“物理距离”
 
-> 原文:[https://life hacker . com/were-calling-it-physical-distanding-now-1842454451](https://lifehacker.com/were-calling-it-physical-distancing-now-1842454451)
+> 原文：<https://lifehacker.com/were-calling-it-physical-distancing-now-1842454451>
 
 我们*刚刚*习惯了“社交距离”这个词，但也许是时候继续前进了。在周五 的 [简报会上，世界卫生组织的玛利亚·范·克霍夫赞同一种开始变得越来越普遍的措辞变化:我们需要练习“身体距离”而不是社交距离](https://twitter.com/WHO/status/1241048714971475968)
 

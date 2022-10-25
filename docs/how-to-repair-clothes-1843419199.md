@@ -1,6 +1,6 @@
 # 如何修补你的衣服
 
-> 原文:[https://lifehacker.com/how-to-repair-clothes-1843419199](https://lifehacker.com/how-to-repair-clothes-1843419199)
+> 原文：<https://lifehacker.com/how-to-repair-clothes-1843419199>
 
 你的背包有裂缝吗？一个你需要缝回去的衬衫纽扣？或者，如果你雄心勃勃，你想补牛仔裤上的一个洞？让我们来谈谈修补衣服的基本知识，这样你就会知道你有能力修补什么，以及如何去修补。
 

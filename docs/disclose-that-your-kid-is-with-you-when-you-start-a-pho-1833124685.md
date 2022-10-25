@@ -1,6 +1,6 @@
 # 透露当你开始电话会议时，你的孩子和你在一起
 
-> 原文:[https://life hacker . com/discover-your-kid-is-with-you-when-you-start-a-pho-1833124685](https://lifehacker.com/disclose-that-your-kid-is-with-you-when-you-start-a-pho-1833124685)
+> 原文：<https://lifehacker.com/disclose-that-your-kid-is-with-you-when-you-start-a-pho-1833124685>
 
 如果你曾经在家里带着一个小孩工作，你会知道这是一个不成文的规则，你接一个重要电话的第二个，你的孩子会泄露一些东西，伤害一些东西或者只是一般需要你的一些东西。
 

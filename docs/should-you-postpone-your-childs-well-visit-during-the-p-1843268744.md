@@ -1,6 +1,6 @@
 # 在疫情期间，你应该推迟孩子的探井吗？
 
-> 原文:[https://life hacker . com/should-you-default-your-childs-well-visit-in-p-1843268744](https://lifehacker.com/should-you-postpone-your-childs-well-visit-during-the-p-1843268744)
+> 原文：<https://lifehacker.com/should-you-postpone-your-childs-well-visit-during-the-p-1843268744>
 
 最近，我的儿子一岁了，随着这个里程碑的到来，他应该进行为期 12 个月的健康检查了。或者——等等——他是吗？我认为为我的儿子找到合适的手抓食物是一件棘手的事情，然后这个世界给了我一个疫情曲线球。我想知道我所在的印第安纳州的居家命令和必要的额外医疗预防措施是否会导致他的访问被取消和重新安排。但是，我很快发现，事实并非如此。
 

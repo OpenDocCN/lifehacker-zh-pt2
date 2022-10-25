@@ -1,6 +1,6 @@
 # 我们挖掘了一辆特斯拉 Model 3 和雪佛兰 Bolt，以了解它们的秘密
 
-> 原文:[https://jalopnik . com/watch-us-dig-into-a-total-disablished-Tesla-model-3-1833772985](https://jalopnik.com/watch-us-dig-into-a-totally-disassembled-tesla-model-3-1833772985)
+> 原文：<https://jalopnik.com/watch-us-dig-into-a-totally-disassembled-tesla-model-3-1833772985>
 
 如果你仍然不相信电动汽车至少会成为我们汽车未来的一个重要组成部分，那么，好吧，我想你可以享受你那充满汽油的美好幻想生活了。如果你像大多数有眼睛和大脑的人一样，你知道电动汽车会一直存在，深入了解它们是有意义的。这就是为什么当我们听说我们可以获得市场上最受欢迎的三款电动汽车，并将其拆成零部件时，我们知道我们必须利用这个机会。好家伙，我们做到了。
 

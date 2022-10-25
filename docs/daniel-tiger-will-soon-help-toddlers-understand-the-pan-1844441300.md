@@ -1,6 +1,6 @@
 # 丹尼尔老虎将很快帮助幼儿了解疫情
 
-> 原文:[https://life hacker . com/Daniel-tiger-will-soon-help-toddle-understand-the-pan-1844441300](https://lifehacker.com/daniel-tiger-will-soon-help-toddlers-understand-the-pan-1844441300)
+> 原文：<https://lifehacker.com/daniel-tiger-will-soon-help-toddlers-understand-the-pan-1844441300>
 
 在冠状病毒疫情肆虐期间，孩子们可以向许多英雄寻求指导。《芝麻街》在早期推出了一个虚拟的 [疫情与埃尔莫](https://offspring.lifehacker.com/check-out-elmos-pandemic-playdate-special-1842836663) 的游戏日和一个 [新冠肺炎市政厅与 CNN](https://offspring.lifehacker.com/attend-sesame-street-and-cnns-virtual-covid-19-town-hal-1843025806) 。 [莱瓦尔·伯顿](https://offspring.lifehacker.com/levar-burton-will-read-to-us-thank-god-1842621471) 读给我们听。《纽约时报》的科学记者甚至回答了孩子们的问题。但最后，大家最喜欢的有益健康的动物团队将向我们的幼儿和学龄前儿童解释不可能的事情，因为《丹尼尔老虎的邻居》[](https://pbskids.org/daniel)*以新冠肺炎特别节目和为期一周的新剧集拉开了第五季的序幕。*
 

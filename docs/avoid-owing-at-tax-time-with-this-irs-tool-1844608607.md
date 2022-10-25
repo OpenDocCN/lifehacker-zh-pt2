@@ -1,6 +1,6 @@
 # 使用这个 IRS 工具避免欠税
 
-> 原文:[https://life hacker . com/avoid-own-at-tax-time-with-this-IRS-tool-1844608607](https://lifehacker.com/avoid-owing-at-tax-time-with-this-irs-tool-1844608607)
+> 原文：<https://lifehacker.com/avoid-owing-at-tax-time-with-this-irs-tool-1844608607>
 
 没有什么比意外的税单更糟糕的了。如果你仍然对最近的税收惊喜感到震惊，或者如果过去一年的剧变改变了你的个人情况，现在是咨询国税局的 [支票检查](https://www.irs.gov/paycheck-checkup) 工具的最佳时机，它将帮助你微调你的预扣税，并防止 2021 纳税年度的任何不愉快。
 

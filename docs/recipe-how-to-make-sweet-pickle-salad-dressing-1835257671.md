@@ -1,6 +1,6 @@
 # 甜泡菜沙拉酱。是的，你听到了，甜泡菜沙拉酱。
 
-> 原文:[https://the take out . com/recipe-how-to-make-sweet-pickle-salad-dressing-1835257671](https://thetakeout.com/recipe-how-to-make-sweet-pickle-salad-dressing-1835257671)
+> 原文：<https://thetakeout.com/recipe-how-to-make-sweet-pickle-salad-dressing-1835257671>
 
 那是 90 年代。沙拉上的橄榄油和醋是一种东西。自制调料的爆炸还没有从帕妮丝蔓延到中美洲。因此，当一种自制的(我不严格地使用这个词)调料来到我们家的餐桌上时，我们都兴奋不已。
 

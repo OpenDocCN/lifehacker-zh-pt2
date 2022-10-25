@@ -1,6 +1,6 @@
 # 为什么您的达美航空里程信用卡取消了休息室使用权
 
-> 原文:[https://life hacker . com/why-your-delta-sky miles-credit-card-removed-lounge-acce-1841492865](https://lifehacker.com/why-your-delta-skymiles-credit-card-removed-lounge-acce-1841492865)
+> 原文：<https://lifehacker.com/why-your-delta-skymiles-credit-card-removed-lounge-acce-1841492865>
 
 当达美航空宣布重新设计其美国运通卡时，弗吉尼亚 已经厌倦了她的大通蓝宝石储值卡的高额年费。这套卡提供了类似的附加福利，并提供了一个有吸引力的注册奖励:如果她在前三个月在卡上花了 2000 美元，就可以获得 60，000 奖励里数。
 

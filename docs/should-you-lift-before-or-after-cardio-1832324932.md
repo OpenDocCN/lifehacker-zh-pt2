@@ -1,6 +1,6 @@
 # 你应该在有氧运动之前还是之后举重？
 
-> 原文:[https://life hacker . com/should-you-lift-before or after-cardio-1832324932](https://lifehacker.com/should-you-lift-before-or-after-cardio-1832324932)
+> 原文：<https://lifehacker.com/should-you-lift-before-or-after-cardio-1832324932>
 
 力量训练对你的肌肉有好处；有氧运动对你的心脏有好处。如果你想成为一个健康的人，这两者都是必不可少的，但是把它们结合起来的最好方法是什么呢？
 

@@ -1,6 +1,6 @@
 # 做一大份早餐沙拉，一周都吃
 
-> 原文:[https://life hacker . com/make-a-big-batch-of-breakfast-slaw-and-eat-from-it-all 1831987836](https://lifehacker.com/make-a-big-batch-of-breakfast-slaw-and-eat-from-it-all-1831987836)
+> 原文：<https://lifehacker.com/make-a-big-batch-of-breakfast-slaw-and-eat-from-it-all-1831987836>
 
 众所周知，以沙拉开始新的一天会让你在各方面都比你周围的人更有道德，但是工作日的早上根本不是冲洗、切和给一堆蔬菜调味的时候。进入早餐沙拉——早餐沙拉爱好者的提前选择，可以在慵懒的周日分批，然后在一周内享用。
 

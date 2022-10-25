@@ -1,6 +1,6 @@
 # 当你的航班延误时你有什么权利
 
-> 原文:[https://life hacker . com/what-you-entitled-when-your-your-flight-delayed-1832014604](https://lifehacker.com/what-youre-entitled-to-when-your-flights-delayed-1832014604)
+> 原文：<https://lifehacker.com/what-youre-entitled-to-when-your-flights-delayed-1832014604>
 
 上周末，在一架从新泽西州纽瓦克飞往香港的联合航班上，大约 250 名乘客经历了每个旅行者最糟糕的噩梦:在一个加拿大机场因医疗紧急情况而计划外停留后，乘客们被困在停机坪上近 14 个小时。
 

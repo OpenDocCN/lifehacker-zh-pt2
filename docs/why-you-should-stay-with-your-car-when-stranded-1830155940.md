@@ -1,6 +1,6 @@
 # 当你被困时，为什么你应该呆在你的车里
 
-> 原文:[https://life hacker . com/why-you-should-stay-with-your-car-why-why-you-should-why-study-1830155940](https://lifehacker.com/why-you-should-stay-with-your-car-when-stranded-1830155940)
+> 原文：<https://lifehacker.com/why-you-should-stay-with-your-car-when-stranded-1830155940>
 
 这是人类采取行动的冲动，尤其是在潜在的可怕情况下。你可能认为当被困在你的车里时，出去寻求帮助是最好的办法。不是的。
 

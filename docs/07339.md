@@ -1,6 +1,6 @@
 # 这是 TurboTax 的实际链接，可以免费申请
 
-> 原文:[https://life hacker . com/here-is-turbotaxs-actual-link-to-file-free-1834380008](https://lifehacker.com/here-is-turbotaxs-actual-link-to-file-for-free-1834380008)
+> 原文：<https://lifehacker.com/here-is-turbotaxs-actual-link-to-file-for-free-1834380008>
 
 如果你正在寻找 TurboTax 的免费文件选项，你可能听说过它很难找到。
 

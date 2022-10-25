@@ -1,6 +1,6 @@
 # 如何举报社交媒体上的种族主义或辱骂性帖子
 
-> 原文:[https://life hacker . com/how-to-report-racistic-or-辱骂-post-on-social-media-1843836814](https://lifehacker.com/how-to-report-racist-or-abusive-posts-on-social-media-1843836814)
+> 原文：<https://lifehacker.com/how-to-report-racist-or-abusive-posts-on-social-media-1843836814>
 
 社交媒体是促进一项事业的强大工具，但宽松的发帖政策也给用户留下了大量空间，让他们可以发表种族主义、仇恨的和暴力言论，或 [来欺骗无辜的人](https://gizmodo.com/nypd-union-doxes-mayors-daughter-on-twitter-1843813751) 。
 

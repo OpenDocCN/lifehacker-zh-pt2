@@ -1,6 +1,6 @@
 # 使用 AccuWeather 的更新应用程序获得精确的“黑暗天空”预报
 
-> 原文:[https://life hacker . com/use-accuweathers-updated-app-to-get-precise-dark-sky-fo-1844443607](https://lifehacker.com/use-accuweathers-updated-app-to-get-precise-dark-sky-fo-1844443607)
+> 原文：<https://lifehacker.com/use-accuweathers-updated-app-to-get-precise-dark-sky-fo-1844443607>
 
 Android: 虽然我对 8 月 1 日起黑暗天空将不再在 Android 上有一个家感到恼火，但其他大型天气玩家——这个词我用得不够多——开始提供类似的服务，这种痛苦略有减轻。或者，至少，这是[**AccuWeather**](https://play.google.com/store/apps/details?id=com.accuweather.android&hl=en_US)在其应用程序的最新重新设计中试图做的事情，该应用程序于昨天发布。
 

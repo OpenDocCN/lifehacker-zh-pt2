@@ -1,6 +1,6 @@
 # 父亲节在哪里可以买到免费(或比平时更便宜)的食物
 
-> 原文:[https://life hacker . com/where-to-get-free-or-beat-by-usual-food-on-fathe-1844098759](https://lifehacker.com/where-to-get-free-or-cheaper-than-usual-food-on-fathe-1844098759)
+> 原文：<https://lifehacker.com/where-to-get-free-or-cheaper-than-usual-food-on-fathe-1844098759>
 
 明天(6 月 21 日，周日)是父亲节，对很多人来说，今年的庆祝活动看起来会有点不同。除非你和你爸爸住在一起，并且一直在隔离他，否则你可能这个周末都见不到他本人。但如果你是，你想请他吃顿饭，但不一定在你的预算内，有各种各样的餐厅提供免费食物和其他交易来庆祝爸爸。即使你没有和你的父亲一起做一些事情(和/或 [如果对你来说是艰难的一天](https://lifehacker.com/how-to-make-it-through-fathers-day-if-its-difficult-for-1844082621) )，你仍然可以利用这些美味的提议。
 

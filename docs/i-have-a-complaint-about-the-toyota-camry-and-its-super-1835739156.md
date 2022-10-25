@@ -1,6 +1,6 @@
 # 我对丰田佳美有意见，它太小家子气了
 
-> 原文:[https://jalopnik . com/I-have-a-complaint-on-Toyota-Camry-and-its-super-1835739156](https://jalopnik.com/i-have-a-complaint-about-the-toyota-camry-and-its-super-1835739156)
+> 原文：<https://jalopnik.com/i-have-a-complaint-about-the-toyota-camry-and-its-super-1835739156>
 
 尽管你对它嗤之以鼻，但 2019 款 [丰田凯美瑞](https://jalopnik.com/tag/toyota-camry) 确实是一款 [好车](https://jalopnik.com/2018-toyota-camry-heres-why-its-still-the-sedan-king-1826940096) 。尤其是你跟 [300 马力发动机](https://jalopnik.com/look-at-this-nearly-40-000-camry-with-300-horsepower-1828716522) 一起订购的时候。它是轿车之王，因为它既可靠又宽敞。对此我只有一个抱怨。而且是小家子气。
 

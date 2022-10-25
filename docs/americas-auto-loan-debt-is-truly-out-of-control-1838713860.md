@@ -1,6 +1,6 @@
 # 美国的汽车贷款债务真的失控了
 
-> 原文:[https://jalopnik . com/Americas-auto-loan-debt-is-true-out-of-control-1838713860](https://jalopnik.com/americas-auto-loan-debt-is-truly-out-of-control-1838713860)
+> 原文：<https://jalopnik.com/americas-auto-loan-debt-is-truly-out-of-control-1838713860>
 
 当你去买一辆新车的时候，你真的希望多久能付款？三年？四个？也许五年？最近，很有可能超过六年，这对买家、汽车行业和整体经济来说是一个越来越令人不安的迹象。
 

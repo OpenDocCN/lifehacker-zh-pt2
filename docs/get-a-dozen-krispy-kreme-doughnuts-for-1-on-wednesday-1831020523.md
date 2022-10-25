@@ -1,6 +1,6 @@
 # 周三花 1 美元买一打甜甜圈
 
-> 原文:[https://life hacker . com/get-a-十二-krispy-kreme-doughnuts-for-1-周三-1831020523](https://lifehacker.com/get-a-dozen-krispy-kreme-doughnuts-for-1-on-wednesday-1831020523)
+> 原文：<https://lifehacker.com/get-a-dozen-krispy-kreme-doughnuts-for-1-on-wednesday-1831020523>
 
 Krispy Kreme 正在让明天在你的办公室里传播节日快乐变得稍微容易一点，它提供了一打它原来的釉面甜甜圈，价格仅为 1 美元。
 

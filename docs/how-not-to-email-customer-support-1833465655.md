@@ -1,6 +1,6 @@
 # 如何不向客户支持发送电子邮件
 
-> 原文:[https://life hacker . com/how-not-to-email-customer-support-1833465655](https://lifehacker.com/how-not-to-email-customer-support-1833465655)
+> 原文：<https://lifehacker.com/how-not-to-email-customer-support-1833465655>
 
 没有人喜欢等待与客户支持人员交谈，但出于某种原因，等待电子邮件回复会更加令人沮丧。在你得到回应之前愤怒地按下“回复”键可能会让你感到满足，但这实际上会降低你及时做出 [决定](https://lifehacker.com/customer-service-reps-how-can-people-get-better-servic-1708577000) 的几率。
 

@@ -1,6 +1,6 @@
 # 不要相信廉价安卓手机的基准
 
-> 原文:[https://life hacker . com/don-trust-the-benchmarks-for-budget-Android-phones-1843133177](https://lifehacker.com/dont-trust-the-benchmarks-for-budget-android-phones-1843133177)
+> 原文：<https://lifehacker.com/dont-trust-the-benchmarks-for-budget-android-phones-1843133177>
 
 硬件评测人员、制造商和用户喜欢对他们的设备的性能进行基准测试。虽然看到科技在被推到极限时的表现很有趣，有时甚至令人惊讶，但你可能应该忽略采用联发科芯片的智能手机的基准数据。
 

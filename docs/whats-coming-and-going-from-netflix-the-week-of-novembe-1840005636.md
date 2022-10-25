@@ -1,6 +1,6 @@
 # 2019 年 11 月 25 日这一周，网飞有哪些来往
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of novembe-1840005636](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-novembe-1840005636)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-novembe-1840005636>
 
 你们这些火鸡可能认为，当你们躲在自己的房间里，避开你们堂兄语无伦次的弹劾咆哮时，网飞已经给你们提供了一堆有趣的新内容。你这么想也不会完全错！假设你走了，把你和我变成傻瓜，你的堂兄一个人过得很好！让我们看一些 teevee。
 

@@ -1,6 +1,6 @@
 # 查看您的圣诞航班将在这些美国机场延误多长时间
 
-> 原文:[https://life hacker . com/see-how-your ' s Christmas-flight-to-t-1840391426](https://lifehacker.com/see-how-long-your-christmas-flight-will-be-delayed-at-t-1840391426)
+> 原文：<https://lifehacker.com/see-how-long-your-christmas-flight-will-be-delayed-at-t-1840391426>
 
 如果你打算在今年圣诞节前后乘坐航班，在你的日程表中安排一些延迟时间。如果你想优化，查看不同机场的延误率和平均延误时间。人造圣诞树网站 Treetopia，在一个有用的品牌数据新闻中，分析了去年假日季的政府航班数据和 [列出的 20 个机场和 9 家航空公司](https://blog.treetopia.com/b/best-worst-airports-for-christmas-air-travel/) 的平均延误时间。
 

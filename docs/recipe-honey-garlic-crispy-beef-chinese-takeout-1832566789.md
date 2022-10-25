@@ -1,6 +1,6 @@
 # 如何做中式外卖式的蜂蜜大蒜脆皮牛肉
 
-> 原文:[https://the take out . com/recipe-蜂蜜-大蒜-脆皮-牛肉-中餐-外卖-1832566789](https://thetakeout.com/recipe-honey-garlic-crispy-beef-chinese-takeout-1832566789)
+> 原文：<https://thetakeout.com/recipe-honey-garlic-crispy-beef-chinese-takeout-1832566789>
 
 *欢迎来到*【外卖】 *s* [***大蒜周***](https://thetakeout.com/tag/garlic-week) *，我们的情人节来了，世界上最可爱的臭味。*
 

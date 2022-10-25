@@ -1,6 +1,6 @@
 # 在预订转机航班之前，先寻找单独的机票
 
-> 原文:[https://life hacker . com/look-for-separate-tickets-before-booking-a-connecting-f-1836860010](https://lifehacker.com/look-for-separate-tickets-before-booking-a-connecting-f-1836860010)
+> 原文：<https://lifehacker.com/look-for-separate-tickets-before-booking-a-connecting-f-1836860010>
 
 长时间的中途停留并不都是可怕的；如果你在一个不熟悉的城市转机，这是一个花几个小时探索一个新目的地的机会，直到你的下一趟航班起飞。但是如果你因为你的连接太窄而找不到一个理想的行程，你可以通过分别预订连接的每一站*来扩大你的选择；在这个过程中，你甚至可以省下一点钱。* 
 

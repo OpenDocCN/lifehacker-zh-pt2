@@ -1,6 +1,6 @@
 # 如何在九月的温蒂餐厅获得免费的鸡块
 
-> 原文:[https://life hacker . com/how-to-get-free-chicken-nuggets-at-wendys-in-9-1844928060](https://lifehacker.com/how-to-get-free-chicken-nuggets-at-wendys-in-september-1844928060)
+> 原文：<https://lifehacker.com/how-to-get-free-chicken-nuggets-at-wendys-in-september-1844928060>
 
 免费食物的粉丝们请注意，特别是温迪店的食物，特别是鸡块:这个月有一笔特别好的交易，涉及到他们广受欢迎的油炸和裹面包屑的鸡块。不服气？优惠涉及 [10 个免费香喷喷的鸡块](https://www.wendys.com/offers-coupons) 。以下是你需要知道的。
 

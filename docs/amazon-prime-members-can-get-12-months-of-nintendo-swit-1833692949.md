@@ -1,6 +1,6 @@
 # 亚马逊 Prime 会员可以免费在线获得 12 个月的任天堂 Switch
 
-> 原文:[https://life hacker . com/Amazon-prime-members-can-get-12 个月的任天堂 swit-1833692949](https://lifehacker.com/amazon-prime-members-can-get-12-months-of-nintendo-swit-1833692949)
+> 原文：<https://lifehacker.com/amazon-prime-members-can-get-12-months-of-nintendo-swit-1833692949>
 
 如果你是亚马逊的 Prime 用户，本周你会得到另一个额外的好处:未来 12 个月免费订阅任天堂 Switch 在线。
 

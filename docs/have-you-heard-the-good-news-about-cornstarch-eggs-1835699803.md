@@ -1,6 +1,6 @@
 # 你听说过玉米淀粉鸡蛋的好消息吗？
 
-> 原文:[https://life hacker . com/have-you-heard-the-good-news-about-玉米淀粉-鸡蛋-1835699803](https://lifehacker.com/have-you-heard-the-good-news-about-cornstarch-eggs-1835699803)
+> 原文：<https://lifehacker.com/have-you-heard-the-good-news-about-cornstarch-eggs-1835699803>
 
 遭受橡胶，煮过头的炒鸡蛋足以破坏这种风格，但正确烹饪的炒鸡蛋是奶油，放纵成堆的安慰。我长期以来一直是超慢的 的粉丝，但我大约一个月才吃一次，因为它们需要整整 45 分钟来烹饪。
 

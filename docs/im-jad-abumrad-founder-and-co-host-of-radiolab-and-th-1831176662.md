@@ -1,6 +1,6 @@
 # im jad abumrad founder and co host of radiolab and th 1831176662
 
-> 原文:[https://life hacker . com/im-jad-abumrad-founder-and-co-host-of-radio lab-and-th-1831176662](https://lifehacker.com/im-jad-abumrad-founder-and-co-host-of-radiolab-and-th-1831176662)
+> 原文：<https://lifehacker.com/im-jad-abumrad-founder-and-co-host-of-radiolab-and-th-1831176662>
 
 作为 [*Radiolab*](https://www.wnycstudios.org/shows/radiolab) 的创作者，Jad Abumrad 不仅负责最受推崇的广播节目和播客之一，还负责影响了当今许多最受欢迎的音频节目的声音设计风格。他还是一档关于最高法院裁决和宪法修正案的节目*radio lab*spin off[](https://www.wnycstudios.org/shows/radiolabmoreperfect)*的主持人。我们和他谈论了他的职业生涯、Radiolab 团队以及他写给 Pro Tools 的恐吓信。*
 

@@ -1,6 +1,6 @@
 # 如何在失去访问权限之前切换你的“堡垒之夜”苹果登录
 
-> 原文:[https://life hacker . com/how-to-switch-your-fort nite-apple-log in-before-you-lose-1845014659](https://lifehacker.com/how-to-switch-your-fortnite-apple-login-before-you-lose-1845014659)
+> 原文：<https://lifehacker.com/how-to-switch-your-fortnite-apple-login-before-you-lose-1845014659>
 
 **更新 9/10/20，下午 2:00(PT):**自从我们发表这篇文章后，苹果公司给了 Epic Games 一个“无限期延长”的期限，让其继续使用“登录苹果公司。“然而，考虑到两家公司之间的嫌隙，我们建议不要卷入冲突，转而使用不同的登录选项。
 

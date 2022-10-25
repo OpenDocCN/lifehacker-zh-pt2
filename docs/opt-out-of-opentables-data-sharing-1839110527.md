@@ -1,6 +1,6 @@
 # 选择退出 OpenTable 的数据共享
 
-> 原文:[https://life hacker . com/opt-out-of-opentables-data-sharing-1839110527](https://lifehacker.com/opt-out-of-opentables-data-sharing-1839110527)
+> 原文：<https://lifehacker.com/opt-out-of-opentables-data-sharing-1839110527>
 
 OpenTable 是在白天或晚上的任何时间预订餐馆的一个方便的选择，尤其是如果你想避免通过电话与任何人交谈。但如果你有一个 OpenTable 账户，你很可能会允许该平台使用和分享你的数据，包括你的餐饮偏好和销售点信息。
 

@@ -1,6 +1,6 @@
 # 在五分钟内做出更好的鸡蛋松饼
 
-> 原文:[https://life hacker . com/make-an-even-better-egg-mcmffin-in-five-minutes-1838218899](https://lifehacker.com/make-an-even-better-egg-mcmuffin-in-five-minutes-1838218899)
+> 原文：<https://lifehacker.com/make-an-even-better-egg-mcmuffin-in-five-minutes-1838218899>
 
 我最喜欢的早餐之一是麦当劳的鸡蛋松饼，但没有汽车意味着我不得不从 UberEats 订购，没有什么比麦当劳的外卖更让我觉得自己是个垃圾了。幸运的是，我已经知道了如何用我的垃圾烤箱在大约五分钟内做出一个麦当劳式的三明治。
 

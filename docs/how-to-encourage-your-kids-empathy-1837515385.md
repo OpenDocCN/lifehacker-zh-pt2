@@ -1,6 +1,6 @@
 # 如何鼓励孩子的同情心
 
-> 原文:[https://life hacker . com/how-to-鼓励你的孩子-同理心-1837515385](https://lifehacker.com/how-to-encourage-your-kids-empathy-1837515385)
+> 原文：<https://lifehacker.com/how-to-encourage-your-kids-empathy-1837515385>
 
 当谈到培养有同理心的孩子 时，给父母的建议通常是与他们谈论他人的感受，鼓励他们想象另一个人的感受，并在他们表现出同理心的行为时表扬他们。
 

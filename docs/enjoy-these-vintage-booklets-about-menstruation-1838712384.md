@@ -1,6 +1,6 @@
 # 享受这些关于月经的经典小册子
 
-> 原文:[https://life hacker . com/enjoy-these-vintage-booklets-about-月经-1838712384](https://lifehacker.com/enjoy-these-vintage-booklets-about-menstruation-1838712384)
+> 原文：<https://lifehacker.com/enjoy-these-vintage-booklets-about-menstruation-1838712384>
 
 还记得五年级的那一天，他们把男生和女生分到了不同的教室吗？孩子们了解他们的身体在青春期如何变化的方式，本身已经随着时间的推移发生了变化。根据我自己的经验，学校将大部分工作外包给一家 maxipad 公司发行的小册子。
 

@@ -1,6 +1,6 @@
 # 如何让你的个人数据远离 IRL 定向广告
 
-> 原文:[https://life hacker . com/how-to-keep-your-personal-data-out-of-IRL-targeted-ads-1830712112](https://lifehacker.com/how-to-keep-your-personal-data-out-of-irl-targeted-ads-1830712112)
+> 原文：<https://lifehacker.com/how-to-keep-your-personal-data-out-of-irl-targeted-ads-1830712112>
 
 个性化广告——它们不再仅仅出现在你的屏幕上。在过去的几年里，广告商一直在尝试将他们所拥有的关于你的所有数据应用到广告牌和其他 IRL 广告上。想想当 [脸书太了解你](https://gizmodo.com/people-you-may-know-a-controversial-facebook-features-1827981959) 的时候有多毛骨悚然。现在想象一下，如果购物中心的一个巨大的平面屏幕以巨大的文本向你展示同样的信息，其他人可能不会看，但如果引起他们的注意，*肯定会看。*
 

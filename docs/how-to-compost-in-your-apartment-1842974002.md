@@ -1,6 +1,6 @@
 # 如何在你的公寓里堆肥
 
-> 原文:[https://life hacker . com/how-to-compost-in-your-apartment-1842974002](https://lifehacker.com/how-to-compost-in-your-apartment-1842974002)
+> 原文：<https://lifehacker.com/how-to-compost-in-your-apartment-1842974002>
 
 作为我们新疫情防备生活方式的一部分，我们许多人已经转向园艺，以至于现在有广泛的种子短缺。鉴于种子也需要营养丰富的土壤才能生长，你可能想知道如何将你的食物残渣转化为堆肥。毕竟，当你可以自己制作堆肥的时候，谁愿意为堆肥付费呢，而且几乎是免费的。
 

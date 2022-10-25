@@ -1,6 +1,6 @@
 # 玉米淀粉在热的时候效果最好
 
-> 原文:[https://life hacker . com/corn starch-does-its-best-work-when-it-hot-1841311617](https://lifehacker.com/cornstarch-does-its-best-work-when-its-hot-1841311617)
+> 原文：<https://lifehacker.com/cornstarch-does-its-best-work-when-its-hot-1841311617>
 
 当谈到玉米淀粉时，很多重点都放在创造一种浆状物的重要性上。在水或牛奶(或其他液体)中旋转和悬浮淀粉，防止它在你的酱中结块，并确保一切都变得美好甚至喜欢。浆液很重要，但当涉及到最大限度地提高玉米淀粉的增稠性能时，它们只是等式的一部分——还必须注意热量。
 

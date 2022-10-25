@@ -1,6 +1,6 @@
 # 在政府关闭期间，预计机场的安全线会更长
 
-> 原文:[https://life hacker . com/expect-longer-security-lines-in-the-the-1831504341](https://lifehacker.com/expect-longer-security-lines-at-the-airport-during-the-1831504341)
+> 原文：<https://lifehacker.com/expect-longer-security-lines-at-the-airport-during-the-1831504341>
 
 如果你要赶飞机，你可能会想在机场多给自己一点时间。
 

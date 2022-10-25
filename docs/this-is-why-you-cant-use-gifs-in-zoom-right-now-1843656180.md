@@ -1,6 +1,6 @@
 # 这就是为什么你现在不能在缩放中使用 gif
 
-> 原文:[https://life hacker . com/this-is-why-you-can-use-gifs-in-zoom-right-now-1843656180](https://lifehacker.com/this-is-why-you-cant-use-gifs-in-zoom-right-now-1843656180)
+> 原文：<https://lifehacker.com/this-is-why-you-cant-use-gifs-in-zoom-right-now-1843656180>
 
 如果您在 Zoom 会议期间一直使用 gif 与其他人聊天，您可能会注意到该功能已经消失。
 

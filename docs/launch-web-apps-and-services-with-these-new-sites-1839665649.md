@@ -1,6 +1,6 @@
 # 用这些启动网络应用和服务”。新“站点
 
-> 原文:[https://life hacker . com/launch-web-apps-and-services-with-these-new-sites-1839665649](https://lifehacker.com/launch-web-apps-and-services-with-these-new-sites-1839665649)
+> 原文：<https://lifehacker.com/launch-web-apps-and-services-with-these-new-sites-1839665649>
 
 谷歌最近宣布将发布一个全新的域名。新——它有一个巧妙的附带条件。购买者必须使用它来创建一个活动、动作或应用程序的快捷方式。或者，用谷歌术语 来说 [，“所有。新域名必须用于行动生成或在线创建流程。”](https://www.registry.google/policies/registration/new/#!/)
 

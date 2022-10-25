@@ -1,6 +1,6 @@
 # 已经起床去散步了
 
-> 原文:[https://life hacker . com/get-up-and-go-for-a walk-already-1844325797](https://lifehacker.com/get-up-and-go-for-a-walk-already-1844325797)
+> 原文：<https://lifehacker.com/get-up-and-go-for-a-walk-already-1844325797>
 
 你在家坐着吗？或许，在家工作？在某个地方的办公桌前工作？如果是这样，我今天对你的健身挑战很简单:起来一会儿，在街区周围散散步。
 

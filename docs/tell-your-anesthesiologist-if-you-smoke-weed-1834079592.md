@@ -1,6 +1,6 @@
 # 如果你抽大麻，告诉你的麻醉师
 
-> 原文:[https://life hacker . com/tell-your-麻醉师-if-you-smoke-weed-1834079592](https://lifehacker.com/tell-your-anesthesiologist-if-you-smoke-weed-1834079592)
+> 原文：<https://lifehacker.com/tell-your-anesthesiologist-if-you-smoke-weed-1834079592>
 
 向你的朋友和家人撒些善意的小谎可以说是没问题的。我们中的许多人习惯性地对自己撒谎。但是在这个地球上有一个人你必须百分百诚实:你的麻醉师。
 

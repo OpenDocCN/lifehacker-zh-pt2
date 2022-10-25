@@ -1,6 +1,6 @@
 # 你所在城市最重要的地方法律是什么？
 
-> 原文:[https://life hacker . com/what-the-most-important-local-law in-you-city-1836539551](https://lifehacker.com/whats-the-most-important-local-law-in-your-city-1836539551)
+> 原文：<https://lifehacker.com/whats-the-most-important-local-law-in-your-city-1836539551>
 
 在纽约，你不能在红灯时右转(或者在公园里抽烟——但祝你好运能强制执行)。在新奥尔良的法国区，你可以带着饮料上街，只要它不是装在玻璃容器里。了解当地的法律是有好处的:当酒类商店被允许营业时，房东可以提高你的租金多少，以及哪些愚蠢的驾驶习惯被彻底禁止。
 

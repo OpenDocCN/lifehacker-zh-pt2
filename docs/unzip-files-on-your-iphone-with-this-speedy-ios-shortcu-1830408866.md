@@ -1,6 +1,6 @@
 # 用这个快捷的 iOS 快捷方式解压你的 iPhone 上的文件
 
-> 原文:[https://life hacker . com/unzip-files-on-your-iphone-with-this-speedy-IOs-short Cu-1830408866](https://lifehacker.com/unzip-files-on-your-iphone-with-this-speedy-ios-shortcu-1830408866)
+> 原文：<https://lifehacker.com/unzip-files-on-your-iphone-with-this-speedy-ios-shortcu-1830408866>
 
 在智能手机上处理压缩 Zip 文件可能会很麻烦。有一些应用程序可以完成这项工作，但是这个过程从来没有像它应该的那样无缝。在笔记本电脑或台式机上，打开文件是第二天性——最多点击一两下。
 

@@ -1,6 +1,6 @@
 # 三星 Galaxy S10 评测:令人兴奋的安卓冠军
 
-> 原文:[https://gizmodo . com/Samsung-galaxy-S10-review-an-Android-champ-to-get-exci-1833080698](https://gizmodo.com/samsung-galaxy-s10-review-an-android-champ-to-get-exci-1833080698)
+> 原文：<https://gizmodo.com/samsung-galaxy-s10-review-an-android-champ-to-get-exci-1833080698>
 
 如果说 [Pixel 3](https://gizmodo.com/google-pixel-3-review-the-other-way-to-make-a-killer-p-1829749807) 是谷歌展示软件优先的手机设计方法有多好的最高成就，那么 [Galaxy S10](https://www.samsung.com/us/mobile/galaxy-s10/) 则是向硬件之神致敬。Galaxy S10 采用了令人厌倦的凹口自拍摄像头，重新设计了带有三种不同镜头的后置摄像头，以及令人难以置信的电池续航时间，感觉像是智能手机技术成熟的庆典。
 

@@ -1,6 +1,6 @@
 # 注册 Beta 测试 GitHub 的新 iOS 和 Android 应用
 
-> 原文:[https://life hacker . com/sign-up-to-beta-test-githubs-new-IOs-and-Android-apps-1839862801](https://lifehacker.com/sign-up-to-beta-test-githubs-new-ios-and-android-apps-1839862801)
+> 原文：<https://lifehacker.com/sign-up-to-beta-test-githubs-new-ios-and-android-apps-1839862801>
 
 Github 是一个优秀的 [资源，适用于所有级别的](https://lifehacker.com/fund-your-favorite-open-source-projects-using-githubs-n-1834983571) 程序员，并且是一个很好的现成软件和开发工具的仓库。该网站除了在桌面上使用之外，在其他任何地方使用都很麻烦，但这可能很快就会改变，因为 GitHub 正在要求你帮助测试一个新的专用应用程序。
 

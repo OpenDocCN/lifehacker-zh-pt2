@@ -1,6 +1,6 @@
 # 没有上身力量怎么开始攀岩
 
-> 原文:[https://life hacker . com/how-to-start-攀岩-当你没有上身的时候-1833498240](https://lifehacker.com/how-to-start-rock-climbing-when-you-have-no-upper-body-1833498240)
+> 原文：<https://lifehacker.com/how-to-start-rock-climbing-when-you-have-no-upper-body-1833498240>
 
 像任何其他看似硬核的锻炼场所一样，室内攀岩馆对第一次攀岩的人来说可能是令人生畏的地方——但也不尽然。事实上，对攀岩的一个普遍误解是，要开始攀岩，你必须有一吨的上肢力量。
 

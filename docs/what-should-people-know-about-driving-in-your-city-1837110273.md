@@ -1,6 +1,6 @@
 # 在你的城市开车，人们应该知道些什么？
 
-> 原文:[https://life hacker . com/what-should-the-people-know-on-driving-your-city-1837110273](https://lifehacker.com/what-should-people-know-about-driving-in-your-city-1837110273)
+> 原文：<https://lifehacker.com/what-should-people-know-about-driving-in-your-city-1837110273>
 
 什么样的白痴会把内环开到外环而不在红灯时并入 HOV 车道？你为什么要在高峰时间穿过百老汇的 101 公路，而不在你的平行泊车上安装保险杆？但是说真的，在你的城市开车之前，我们需要知道些什么，这样我们才能避免被那个白痴外地佬搞砸你的通勤？
 

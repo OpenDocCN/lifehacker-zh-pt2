@@ -1,6 +1,6 @@
 # 用牙线切肉桂卷
 
-> 原文:[https://life hacker . com/cut-cinnamon-rolls-with-dental floss-1842267255](https://lifehacker.com/cut-cinnamon-rolls-with-dental-floss-1842267255)
+> 原文：<https://lifehacker.com/cut-cinnamon-rolls-with-dental-floss-1842267255>
 
 肉桂卷是一种真正的糕点。一听到它的名字，你马上就知道你要做什么了。会有肉桂，会有*滚*。 [制作肉桂卷](https://lifehacker.com/how-to-make-your-cinnamon-rolls-taste-like-cinnabons-1839326463) 需要不- 的少量步骤，其中一个步骤是将一大卷肉桂卷切割成几卷较小的肉桂卷。对于这项任务，你不应该使用刀，甚至糕点刀具。你应该使用牙线。
 

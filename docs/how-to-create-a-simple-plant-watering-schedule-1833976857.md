@@ -1,6 +1,6 @@
 # 如何创建一个简单的植物浇水时间表
 
-> 原文:[https://life hacker . com/how-to-create-a-simple-plant-watering-schedule-1833976857](https://lifehacker.com/how-to-create-a-simple-plant-watering-schedule-1833976857)
+> 原文：<https://lifehacker.com/how-to-create-a-simple-plant-watering-schedule-1833976857>
 
 作为一个年长的千禧一代，不言而喻，我喜欢植物。我的办公桌上有五个(一个是一个小鱼缸，里面有两个 Marimo moss 球)。但是我不只是自动驾驶，每周五给它们浇水。植物不喜欢这样，更喜欢更个性化的时间表。但是你是如何组织的呢？这里有一个简单的方法来创建一个植物浇水时间表，确保每棵植物得到它需要的水量。
 

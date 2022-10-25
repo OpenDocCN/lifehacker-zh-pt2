@@ -1,6 +1,6 @@
 # im pandora music analyst hannah glass and this is how 1831011373
 
-> 原文:[https://life hacker . com/im-Pandora-music-analyst-Hannah-glass-and-this-is-how-1831011373](https://lifehacker.com/im-pandora-music-analyst-hannah-glass-and-this-is-how-1831011373)
+> 原文：<https://lifehacker.com/im-pandora-music-analyst-hannah-glass-and-this-is-how-1831011373>
 
 潘多拉的音乐管理是该网站在 Spotify、谷歌、苹果和 YouTube 的竞争中脱颖而出的一个重要原因。专业音乐分析师聆听曲目并识别共同元素，建立了为潘多拉定制用户站提供动力的 [音乐基因组项目](https://www.pandora.com/about/mgp) 。作为一名资深音乐分析师，汉娜·格拉斯决定着你接下来要听什么。我们和她谈论了她在潘多拉的工作，她的音乐背景，以及她自己作为表演者的项目。
 

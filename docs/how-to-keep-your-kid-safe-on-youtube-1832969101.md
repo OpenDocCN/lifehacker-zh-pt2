@@ -1,6 +1,6 @@
 # 如何在 YouTube 上保护孩子的安全
 
-> 原文:[https://life hacker . com/how-to-keep-your-kid-safe-on-YouTube-1832969101](https://lifehacker.com/how-to-keep-your-kid-safe-on-youtube-1832969101)
+> 原文：<https://lifehacker.com/how-to-keep-your-kid-safe-on-youtube-1832969101>
 
 你可能看过。那张图片——一个令人毛骨悚然的，*那到底是什么东西,*长着凸出的眼睛和令人不寒而栗的笑容的女人鸟形象。它的名字叫:“陌陌。”
 

@@ -1,6 +1,6 @@
 # 如何在 Chrome OS 上观看画中画视频
 
-> 原文:[https://life hacker . com/how-to-watch-picture-in-picture-videos-on-chrome-OS-1842096378](https://lifehacker.com/how-to-watch-picture-in-picture-videos-on-chrome-os-1842096378)
+> 原文：<https://lifehacker.com/how-to-watch-picture-in-picture-videos-on-chrome-os-1842096378>
 
 对许多人来说，画中画(PIP)视频播放几乎是一项普遍功能——除非你拥有一台 Chromebook。在那里，该功能只对几个应用程序有效，不像你会在 Android、iOS、Windows 和 macOS 上的 [网络浏览器和](https://lifehacker.com/how-to-watch-picture-in-picture-videos-in-firefox-and-c-1840272901) 视频流应用程序中获得的体验。
 

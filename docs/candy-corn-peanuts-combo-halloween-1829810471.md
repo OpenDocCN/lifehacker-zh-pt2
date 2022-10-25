@@ -1,6 +1,6 @@
 # 你也可以忍受玉米糖——只要加入花生
 
-> 原文:[https://the take out . com/candy-corn-peanuts-combo-Halloween-1829810471](https://thetakeout.com/candy-corn-peanuts-combo-halloween-1829810471)
+> 原文：<https://thetakeout.com/candy-corn-peanuts-combo-halloween-1829810471>
 
 好吧，听我说完。
 

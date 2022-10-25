@@ -1,6 +1,6 @@
 # 如何在崎岖的道路上驾驶
 
-> 原文:[https://life hacker . com/how-to-drive-on-rough-roads-1833741594](https://lifehacker.com/how-to-drive-on-rough-roads-1833741594)
+> 原文：<https://lifehacker.com/how-to-drive-on-rough-roads-1833741594>
 
 每个地方的道路都不一样，所以当 Lifehacker 的哥斯达黎加团队提名我驾驶租来的汽车时，我不知道会发生什么。我们的道路尘土飞扬，崎岖不平，但如果你习惯了这种情况，开车并不难。(我发现压力最大的部分是在拥挤的街道上平行停车；他们称我为英雄，因为我让我们的花冠穿过了一条小河。)下面是你在崎岖道路上开车需要知道的。
 

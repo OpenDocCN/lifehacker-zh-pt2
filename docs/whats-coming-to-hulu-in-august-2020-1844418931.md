@@ -1,6 +1,6 @@
 # 2020 年 8 月，Hulu 将迎来什么
 
-> 原文:[https://life hacker . com/whats-coming-to-Hulu-in-August-2020-1844418931](https://lifehacker.com/whats-coming-to-hulu-in-august-2020-1844418931)
+> 原文：<https://lifehacker.com/whats-coming-to-hulu-in-august-2020-1844418931>
 
 在禁闭的早期——当我试图告诉自己事情可能会在夏天之前恢复正常，尽管我知道我在骗自己——我不想看任何不是 20 世纪 80 年代喜剧的电影。但大约五个月后，我对日常生活中的恐怖变得如此麻木，以至于我可以再次观看各种各样的东西，而不会陷入恐惧之中(我现在生活在恐惧之中)，所以我很高兴看到 8 月份 Hulu 上映的各种新电影。
 

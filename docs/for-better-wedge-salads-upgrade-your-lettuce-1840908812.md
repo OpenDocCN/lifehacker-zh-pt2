@@ -1,6 +1,6 @@
 # 为了更好的楔形沙拉，升级你的生菜
 
-> 原文:[https://life hacker . com/for-better-wedge-salads-upgrade-your-莴苣-1840908812](https://lifehacker.com/for-better-wedge-salads-upgrade-your-lettuce-1840908812)
+> 原文：<https://lifehacker.com/for-better-wedge-salads-upgrade-your-lettuce-1840908812>
 
 楔形沙拉通常被认为只不过是蓝纹奶酪和腌制猪肉的载体。我不认为这有什么不对。事实上，我认为奶酪和熏肉的配送系统是生菜应该努力达到的，但是你可以通过把冰山换成更有特色的东西来让你的楔形更有营养(和味道)。
 

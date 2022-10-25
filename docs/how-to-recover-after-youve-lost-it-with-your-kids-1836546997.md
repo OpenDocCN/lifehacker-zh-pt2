@@ -1,6 +1,6 @@
 # 当你和你的孩子失去联系后如何恢复
 
-> 原文:[https://life hacker . com/how-to-recover-after-you have-you-kids-1836546997](https://lifehacker.com/how-to-recover-after-youve-lost-it-with-your-kids-1836546997)
+> 原文：<https://lifehacker.com/how-to-recover-after-youve-lost-it-with-your-kids-1836546997>
 
 我们都有和孩子失控的时候。
 

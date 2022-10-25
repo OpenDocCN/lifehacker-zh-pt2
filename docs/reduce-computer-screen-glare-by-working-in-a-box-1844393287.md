@@ -1,6 +1,6 @@
 # 通过在盒子里工作来减少电脑屏幕眩光
 
-> 原文:[https://life hacker . com/reduce-computer-screen-glare-by-work-in-a-box-1844393287](https://lifehacker.com/reduce-computer-screen-glare-by-working-in-a-box-1844393287)
+> 原文：<https://lifehacker.com/reduce-computer-screen-glare-by-working-in-a-box-1844393287>
 
 不可避免的是，每周有几天下午的某个时候，我儿子会突然跑进我的办公室，问我是否愿意在他在充气泳池玩耍的时候去后院外面工作。他让我在阴天做这个吗？没有；你看，阴天可不是游泳的好日子。因此，我最终走到了外面，在阳光下，有着不稳定的 wifi，屏幕上覆盖着太多的眩光，我发现自己不断地定位和重新定位我的笔记本电脑，试图找到一个角度，让我在工作时感到最少的挫败感。至少，我*用*就是这么干的。现在我把我的笔记本电脑放在一个盒子里。
 

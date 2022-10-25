@@ -1,6 +1,6 @@
 # 如果你窃取了别人的身份，你可以做的所有有趣的事情
 
-> 原文:[https://life hacker . com/all-the-fun-things-you-can-do-if-you-steal-someones-ide-1830030647](https://lifehacker.com/all-the-fun-things-you-can-do-if-you-steal-someones-ide-1830030647)
+> 原文：<https://lifehacker.com/all-the-fun-things-you-can-do-if-you-steal-someones-ide-1830030647>
 
 [恶周](https://lifehacker.com/c/evil-week) 正在收尾，但这并不意味着你的恶行需要告一段落。套用特雷西·乔丹的话，你可以像过邪恶周一样过好每一周。
 

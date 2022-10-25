@@ -1,6 +1,6 @@
 # 告诉我们你的街头美食小贴士
 
-> 原文:[https://life hacker . com/tell-us-your-street-food-tips-1832831695](https://lifehacker.com/tell-us-your-street-food-tips-1832831695)
+> 原文：<https://lifehacker.com/tell-us-your-street-food-tips-1832831695>
 
 我最好的街头小吃是在我的婚礼上租了一辆 [Wafels & Dinges](https://dinges.nyc/) 卡车来供应甜点。快餐车是目前街头食品最时尚的形式，但你最喜欢的餐馆可能是手推车、小摊、拖车或在公园里推着冷藏车的人。
 

@@ -1,6 +1,6 @@
 # 英国退出欧盟的“无交易”实际上意味着什么
 
-> 原文:[https://life hacker . com/what-you-should-know-on-a-no-deal-英国退出欧盟-1837665694](https://lifehacker.com/what-you-should-know-about-a-no-deal-brexit-1837665694)
+> 原文：<https://lifehacker.com/what-you-should-know-about-a-no-deal-brexit-1837665694>
 
 周三，女王同意了英国首相鲍里斯·约翰逊的请求，在英国退出欧盟最后期限前暂停议会。根据约翰逊的说法，这与英国退出欧盟无关，但批评人士指出，时机肯定会对他有利。
 

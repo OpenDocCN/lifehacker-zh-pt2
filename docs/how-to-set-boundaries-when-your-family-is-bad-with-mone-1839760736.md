@@ -1,6 +1,6 @@
 # 当你的家庭不善于理财时，如何设定界限
 
-> 原文:[https://life hacker . com/how-to-set-boundaries-when your ' s family-bad-with mone-1839760736](https://lifehacker.com/how-to-set-boundaries-when-your-family-is-bad-with-mone-1839760736)
+> 原文：<https://lifehacker.com/how-to-set-boundaries-when-your-family-is-bad-with-mone-1839760736>
 
 当我最近问你从父母那里学到的不良理财习惯时， [你插嘴说](https://lifehacker.com/what-bad-money-habits-did-your-parents-teach-you-1839547587) 你讲述了债务、绝望和通往财务稳定的坎坷之路。但是，仅仅因为你(最终)学会了不犯你父母犯过的同样的错误，并不意味着你的整个家谱都解决了财务缺陷。
 

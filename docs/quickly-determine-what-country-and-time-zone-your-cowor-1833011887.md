@@ -1,6 +1,6 @@
 # 使用这个工具快速确定你的同事本周所在的国家和时区
 
-> 原文:[https://life hacker . com/quick-determine-what-country-and-time-zone-your-cower-1833011887](https://lifehacker.com/quickly-determine-what-country-and-time-zone-your-cowor-1833011887)
+> 原文：<https://lifehacker.com/quickly-determine-what-country-and-time-zone-your-cowor-1833011887>
 
 在过去的几年里，并不是团队中的每个人都在同一个办公室工作，这已经变得越来越普遍了。在某些情况下，一个工作“团队”还可以包括不仅和你不住在同一个城市，而且甚至不住在同一个国家的人。这会让交流变得有点复杂。
 

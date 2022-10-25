@@ -1,6 +1,6 @@
 # 使用 Ring 的新控制中心来阻止警方的请求
 
-> 原文:[https://life hacker . com/use-rings-new-control-center-to-block-police-requests-1841432223](https://lifehacker.com/use-rings-new-control-center-to-block-police-requests-1841432223)
+> 原文：<https://lifehacker.com/use-rings-new-control-center-to-block-police-requests-1841432223>
 
 感觉很多人都不会放弃他们昂贵的摄像机门铃，不管 Ring 做什么——要么是因为他们花了很多钱买了一个，而且他们很固执，要么是他们不想花更多时间摆弄螺丝刀和电线来安装其他东西。
 

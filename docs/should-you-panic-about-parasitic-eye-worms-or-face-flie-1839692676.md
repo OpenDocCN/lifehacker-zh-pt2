@@ -1,6 +1,6 @@
 # 你应该对‘寄生眼虫’或脸蝇感到恐慌吗？
 
-> 原文:[https://life hacker . com/should-you-should-panic-on-parasitic-eye-worms-or-face-flie-1839692676](https://lifehacker.com/should-you-panic-about-parasitic-eye-worms-or-face-flie-1839692676)
+> 原文：<https://lifehacker.com/should-you-panic-about-parasitic-eye-worms-or-face-flie-1839692676>
 
 我第二次想到眼睛里有昆虫的糟糕经历是在现实生活中的一次遭遇，当时我在一条小道上跑步时正面撞上了一团昆虫。我无法摆脱眼睛里仍然有东西的感觉，几个小时后我终于提取了一个死(？)用棉签从我的眼睑内侧抓出一只小昆虫。唯一能打败那个的: [今早在 Gizmodo 上看脸苍蝇](https://gizmodo.com/a-second-woman-has-gotten-parasitic-eye-worms-and-sure-1839670950) 。
 

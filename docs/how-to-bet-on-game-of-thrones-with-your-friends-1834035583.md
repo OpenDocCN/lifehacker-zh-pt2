@@ -1,6 +1,6 @@
 # 如何和朋友一起赌《权力的游戏》
 
-> 原文:[https://life hacker . com/how-to-bet-on-game-of-thrones-your-friends-1834035583](https://lifehacker.com/how-to-bet-on-game-of-thrones-with-your-friends-1834035583)
+> 原文：<https://lifehacker.com/how-to-bet-on-game-of-thrones-with-your-friends-1834035583>
 
 我是赌博的狂热爱好者。我不是一个在拉斯维加斯玩扑克会输掉大量钱的人，但我确实喜欢三月疯狂支架、幻想体育和其他任何我可以赌少量现金以赢得朋友们的支持权的东西，这就是为什么我在这一季中一直在寻找一些方法来通过一些友好的赌注来增强《权力的游戏》。
 

@@ -1,6 +1,6 @@
 # 你应该为了奖励而改变银行账户吗？
 
-> 原文:[https://life hacker . com/should-you-switch-bank-accounts-for-the-rewards-1834583483](https://lifehacker.com/should-you-switch-bank-accounts-for-the-rewards-1834583483)
+> 原文：<https://lifehacker.com/should-you-switch-bank-accounts-for-the-rewards-1834583483>
 
 注册奖金对于新银行账户来说是如此普遍，以至于我几乎可以保证你上次开支票账户的时候就拿到了。设立直接存款或将一定金额的现金存入您的账户，通常会获得小额现金奖励。但是像积分和里程这样通常留给信用卡的奖励呢？
 

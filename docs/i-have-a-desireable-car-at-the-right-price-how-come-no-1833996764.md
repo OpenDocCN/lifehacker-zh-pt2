@@ -1,6 +1,6 @@
 # 我有一辆理想的价格合适的车，为什么没有人想买呢？
 
-> 原文:[https://jalopnik . com/I-have-a-desired-a-car in-the-right-price-how-come-no-1833996764](https://jalopnik.com/i-have-a-desireable-car-at-the-right-price-how-come-no-1833996764)
+> 原文：<https://jalopnik.com/i-have-a-desireable-car-at-the-right-price-how-come-no-1833996764>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。我决定挑几个问题，试着帮帮大家。本周，我们将讨论销售汽车的挫折，2018 年 [和 2019 年马自达 Miata](https://jalopnik.com/the-2019-mazda-miata-really-is-that-much-better-1831319504) 之间的定价，以及帮助朋友购车的风险。
 

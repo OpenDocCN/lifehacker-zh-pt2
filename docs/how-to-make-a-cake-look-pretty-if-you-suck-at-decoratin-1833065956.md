@@ -1,6 +1,6 @@
 # 如果你不擅长装饰，如何让蛋糕看起来漂亮
 
-> 原文:[https://life hacker . com/how-to-make-a-cake-look-pretty-if-you-suck-at-decoration in-1833065956](https://lifehacker.com/how-to-make-a-cake-look-pretty-if-you-suck-at-decoratin-1833065956)
+> 原文：<https://lifehacker.com/how-to-make-a-cake-look-pretty-if-you-suck-at-decoratin-1833065956>
 
 我可以做一个美味的蛋糕，但是——当谈到装饰时——我是一集*搞定它！*起死回生。我怀疑我的问题主要在于我缺乏耐心，但值得注意的是，我无法画出大多数简笔画，这可能是完全缺乏艺术天赋的问题。
 

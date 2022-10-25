@@ -1,6 +1,6 @@
 # 来自我们读者的最佳巴塞罗那旅游贴士
 
-> 原文:[https://life hacker . com/the-best-Barcelona-travel-tips-from-our-readers-1830440455](https://lifehacker.com/the-best-barcelona-travel-tips-from-our-readers-1830440455)
+> 原文：<https://lifehacker.com/the-best-barcelona-travel-tips-from-our-readers-1830440455>
 
 在你登上圣家堂的电梯之前，你应该知道:唯一的下路是楼梯。在本周的《黑客入侵你的城市》节目中，我们得到了你对西班牙加泰罗尼亚首府巴塞罗那 T3 的建议。对于该地区对游客的友好程度还存在一些分歧；像许多受欢迎的目的地一样，当地人也有一些抵触情绪。举止要恭敬，学一些加泰罗尼亚语(不是西班牙语)的短语——说这种语言 [处处吸引当地人](https://lifehacker.com/get-world-travel-tips-from-this-webcomic-1829667933#_ga=2.72495507.1691089044.1542033047-1297080755.1497980211) 。现在让我们来看看本周的最佳建议。
 

@@ -1,6 +1,6 @@
 # 你终于可以将 Spotify 从你的电脑上传到谷歌家庭音箱了
 
-> 原文:[https://life hacker . com/you-can-finally-stream-Spotify-from-your-PC-to-Google-h-1844532664](https://lifehacker.com/you-can-finally-stream-spotify-from-your-pc-to-google-h-1844532664)
+> 原文：<https://lifehacker.com/you-can-finally-stream-spotify-from-your-pc-to-google-h-1844532664>
 
 Spotify 几乎可以在我们能想到的所有流行设备上使用。无论你是在智能手机、电脑上还是通过智能电视应用程序听音乐，每个应用程序都做着几乎相同的事情，但对桌面用户来说有一个奇怪的限制:你不能从电脑 将 Spotify 转换到“谷歌播放”设备，如 Chomecast 或谷歌智能扬声器[——至少，如果你是 macOS 或 Windows 系统，就不能。](https://community.spotify.com/t5/Desktop-Windows/Spotify-Connect-amp-Google-Home/td-p/4642461) 
 

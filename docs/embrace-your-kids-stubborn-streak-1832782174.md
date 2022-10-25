@@ -1,6 +1,6 @@
 # 拥抱你孩子的固执
 
-> 原文:[https://life hacker . com/embrace-your-kids-nevery-streak-1832782174](https://lifehacker.com/embrace-your-kids-stubborn-streak-1832782174)
+> 原文：<https://lifehacker.com/embrace-your-kids-stubborn-streak-1832782174>
 
 在我儿子三岁的时候，我带他去了一个室内弹跳屋公园。不过，一个小时的跳跃、滑行和弹跳并没有像我希望的那样让他疲惫不堪。这只能让他再准备一个小时。不幸的是，“开放式弹跳”时间已经结束，所有其他三岁的孩子都尽职尽责地喝着水瓶里的水，穿上运动鞋。与此同时，我的儿子坚决拒绝离开。
 

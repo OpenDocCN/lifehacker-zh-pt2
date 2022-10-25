@@ -1,6 +1,6 @@
 # 清洁污渍锅碗瓢盆的最佳方法
 
-> 原文:[https://life hacker . com/our-best-methods-to-clean-stained-pot-and-pan-1844291589](https://lifehacker.com/our-best-methods-to-clean-stained-pots-and-pans-1844291589)
+> 原文：<https://lifehacker.com/our-best-methods-to-clean-stained-pots-and-pans-1844291589>
 
 无论你如何努力擦洗或浸泡，你的锅碗瓢盆还是会有污渍、棕色和污垢。虽然用得好的锅是你烹饪能力的标志(或者至少是你烹饪的频率)，但有时你只是想在锅底看到自己的影子。
 

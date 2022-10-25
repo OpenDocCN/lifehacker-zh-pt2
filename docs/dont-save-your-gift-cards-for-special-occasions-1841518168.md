@@ -1,6 +1,6 @@
 # 不要把你的礼品卡留给特殊的场合
 
-> 原文:[https://life hacker . com/don ' t-save-your-gift-cards-for-special-places-1841518168](https://lifehacker.com/dont-save-your-gift-cards-for-special-occasions-1841518168)
+> 原文：<https://lifehacker.com/dont-save-your-gift-cards-for-special-occasions-1841518168>
 
 如果你收到了一张节日礼品卡，但你还没有使用它，为什么不呢？也许这是一个逻辑问题——就像，你得到了一张商店或餐馆的卡片，但你还没有时间亲自去拜访——但也许你有意识地(或无意识地)保留着那张礼品卡，因为你想把它留到一个特殊的事件中，就像它被给予的那个事件一样。
 

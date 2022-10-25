@@ -1,6 +1,6 @@
 # 通过“Seated”应用程序获得晚餐预订奖励
 
-> 原文:[https://life hacker . com/get-rewards-for-your-dinner-over-the-sea-1834421261](https://lifehacker.com/get-rewards-for-your-dinner-reservation-through-the-sea-1834421261)
+> 原文：<https://lifehacker.com/get-rewards-for-your-dinner-reservation-through-the-sea-1834421261>
 
 当你住在大城市时，预订晚餐可能意味着在你到达餐馆后不久就能得到一张桌子，以及在晚上厨房关闭前等待几个小时才能享受高速点餐的特权。
 

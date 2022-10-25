@@ -1,6 +1,6 @@
 # 使用新的 Google 相册功能重温美好回忆
 
-> 原文:[https://life hacker . com/review-happy-memories-with-the-new-Google-photos-featu-1838105227](https://lifehacker.com/revisit-happy-memories-with-the-new-google-photos-featu-1838105227)
+> 原文：<https://lifehacker.com/revisit-happy-memories-with-the-new-google-photos-featu-1838105227>
 
 谷歌为今天的照片添加了一些新功能，无论你使用的是哪个版本的 Android 或 iOS，都可以更容易地重新查看你过去的照片。如果你发现怀旧情绪特别强烈，你可以直接从照片中打印图片给当地的零售商。
 

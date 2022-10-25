@@ -1,6 +1,6 @@
 # 为什么你的下一代 iPhone 可能没有 Lightning 端口
 
-> 原文:[https://life hacker . com/why-your-next-iphone-may-not-a-lightning-port-1841067950](https://lifehacker.com/why-your-next-iphone-might-not-have-a-lightning-port-1841067950)
+> 原文：<https://lifehacker.com/why-your-next-iphone-might-not-have-a-lightning-port-1841067950>
 
 苹果的产品有许多不同于竞争对手的地方。其中最具标志性的是 Lightning port，这是苹果公司专有的充电和连接线，其大多数产品已经使用了一段时间，但这可能很快就会改变。欧盟委员会成员将投票决定是否强制所有科技公司采用一种统一的收费方法，这种方法将适用于所有设备和制造商，包括苹果公司。
 

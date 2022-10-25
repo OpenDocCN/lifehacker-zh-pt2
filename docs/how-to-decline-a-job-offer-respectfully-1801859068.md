@@ -1,6 +1,6 @@
 # 如何礼貌地拒绝工作邀请
 
-> 原文:[https://life hacker . com/how-to-decline-a-job-offer-恭敬地-1801859068](https://lifehacker.com/how-to-decline-a-job-offer-respectfully-1801859068)
+> 原文：<https://lifehacker.com/how-to-decline-a-job-offer-respectfully-1801859068>
 
 恭喜——经过漫长的申请和面试过程，你得到了这份工作！哦，但是你不想要或者不再需要它了。你是做什么的？你应该说什么？这是的艰难处境，但我们在这里会帮你度过难关。下面是要做的事情。
 

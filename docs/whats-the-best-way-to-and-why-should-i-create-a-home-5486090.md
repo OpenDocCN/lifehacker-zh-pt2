@@ -1,6 +1,6 @@
 # 如何以及为什么创建一个家居清单
 
-> 原文:[https://life hacker . com/whats-the-best-way to-and-why-should-I-create-a-home-5486090](https://lifehacker.com/whats-the-best-way-to-and-why-should-i-create-a-home-5486090)
+> 原文：<https://lifehacker.com/whats-the-best-way-to-and-why-should-i-create-a-home-5486090>
 
 另一个 [飓风季节](https://lifehacker.com/what-to-know-about-storm-terminology-before-the-next-bi-1844737150?rev=1597806326363) 正在进行，很可能是一个糟糕的季节。野火也在加州肆虐，，【疫情】意味着我们其余的人比以往任何时候都花更多的时间在家里， [增加了房屋火灾](https://abc7amarillo.com/news/local/fires-increase-during-pandemic) 和其他导致财产损失的事故的可能性。如果你最近一直在考虑为家里的东西购买保险，或者增加保险，那么你已经领先一步了:记录你的财产以防盗窃、损坏或火灾，这永远不是一个坏主意。但是你应该怎么做呢？好吧，这项工作的最佳工具是你实际使用的工具。
 

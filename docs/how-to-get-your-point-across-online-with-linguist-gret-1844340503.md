@@ -1,6 +1,6 @@
 # 语言学家格雷琴·麦卡洛克教你如何在网上表达自己的观点
 
-> 原文:[https://life hacker . com/how-to-get-your point-cross-online-with-languages-gret-1844340503](https://lifehacker.com/how-to-get-your-point-across-online-with-linguist-gret-1844340503)
+> 原文：<https://lifehacker.com/how-to-get-your-point-across-online-with-linguist-gret-1844340503>
 
 你有没有想过为什么你的朋友用句号结束了那条短信？或者错过了一封不准时的邮件中微妙的讽刺？本周，在网络语言学家格雷琴·麦卡洛克的帮助下，我们正在清理所有这些网上的沟通障碍。请收听 Gretchen 讲述如何更好地处理那些令人疲惫不堪的 Zoom 电话，以及我们如何改进与那些沟通方式与你不同的人发短信的方式。
 

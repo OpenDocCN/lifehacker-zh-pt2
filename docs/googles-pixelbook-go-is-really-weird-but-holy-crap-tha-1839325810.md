@@ -1,6 +1,6 @@
 # googles pixelbook go is really weird but holy crap tha 1839325810
 
-> 原文:[https://gizmodo . com/Googles-pixel book-go-is-really-very-but-holy-crap-tha-1839325810](https://gizmodo.com/googles-pixelbook-go-is-really-weird-but-holy-crap-tha-1839325810)
+> 原文：<https://gizmodo.com/googles-pixelbook-go-is-really-weird-but-holy-crap-tha-1839325810>
 
 Pixelbook Go 是谷歌迄今为止最便宜的 Chromebook。谷歌的旗舰 Chrome OS 设备通常起价 1000 美元，因此基础级 Pixelbook Go 的 650 美元价格令人难以置信。与其他谷歌制造的 Chrome OS 设备相比，Pixelbook Go 是一个非常划算的选择，它在一个非常轻薄、制作精良的设备中为您提供了 Chrome OS 的一些最佳元素。问题是谷歌不是唯一一家生产 Chrome OS 设备的公司，事实上，650 美元是谷歌生产的 Chromebook *而非*的平均价格到高于平均价格，也是不能用作平板电脑的 Chromebook 的高于平均价格。当考虑 Pixelbook Go 与无数更便宜、功能更丰富的 Chromebooks 相比时，你将面临一个棘手的问题:它真的足够好，值得支付 650 美元吗？光是电池寿命就让我觉得可以。
 

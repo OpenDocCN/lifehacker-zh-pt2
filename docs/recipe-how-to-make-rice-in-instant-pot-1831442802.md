@@ -1,6 +1,6 @@
 # 我很生气速食锅做的饭比我昂贵的亚洲电饭锅做的饭还好吃
 
-> 原文:[https://the take out . com/recipe-how-to-make-how-the-rice-in-instant-pot-1831442802](https://thetakeout.com/recipe-how-to-make-rice-in-instant-pot-1831442802)
+> 原文：<https://thetakeout.com/recipe-how-to-make-rice-in-instant-pot-1831442802>
 
 像任何有一点主流流行的东西一样，我对速溶壶的反应最初是不屑一顾的。“我知道如何烹饪，”我说服自己，“我不需要新奇的噱头来做出美味的食物。”不过，我还是买了一个上班用的。我的血管里仍然流淌着怀疑。但在 45 分钟内只吃了一批叉烧炖肉后，其余的，正如他们所说的，从此过上了幸福的生活。
 

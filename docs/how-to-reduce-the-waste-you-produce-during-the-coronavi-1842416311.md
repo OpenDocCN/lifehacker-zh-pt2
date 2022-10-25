@@ -1,6 +1,6 @@
 # 如何减少冠状病毒爆发期间你产生的废物
 
-> 原文:[https://life hacker . com/how-to-reduce-the-waste-you-produce-in-the-coronavi-1842416311](https://lifehacker.com/how-to-reduce-the-waste-you-produce-during-the-coronavi-1842416311)
+> 原文：<https://lifehacker.com/how-to-reduce-the-waste-you-produce-during-the-coronavi-1842416311>
 
 自从冠状病毒爆发 袭击美国海岸以来，我注意到我制造的垃圾量增加了。像很多其他人一样，我买了那些方便的消毒湿巾，但每次我使用一张然后扔掉，感觉很浪费。除此之外，我还使用了比平时多得多的纸巾，我的回收箱里装满了小瓶的洗手液，这些都是我从各种政治活动或会议上免费得到的。
 

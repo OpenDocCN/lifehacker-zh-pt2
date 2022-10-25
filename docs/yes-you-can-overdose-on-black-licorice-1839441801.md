@@ -1,6 +1,6 @@
 # 是的，你可以过量服用黑甘草
 
-> 原文:[https://life hacker . com/yes-you-can-doxed-on-black-glycoric-1839441801](https://lifehacker.com/yes-you-can-overdose-on-black-licorice-1839441801)
+> 原文：<https://lifehacker.com/yes-you-can-overdose-on-black-licorice-1839441801>
 
 宇宙中有一种平衡。大多数人讨厌黑甘草糖，所以当他们在“不给糖就捣蛋”的袋子里收到一些时，或者当他们在复活节战利品中发现黑糖豆时，他们可以把它传给他们的爷爷和其他真正喜欢这种东西的怪人。但这些怪人要小心了。
 

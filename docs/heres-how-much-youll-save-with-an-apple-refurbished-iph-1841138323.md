@@ -1,6 +1,6 @@
 # 这是你用苹果翻新的 iPhone XS 能省多少钱
 
-> 原文:[https://life hacker . com/heres-how-what-much-you-save-with a apple-refined-iph-1841138323](https://lifehacker.com/heres-how-much-youll-save-with-an-apple-refurbished-iph-1841138323)
+> 原文：<https://lifehacker.com/heres-how-much-youll-save-with-an-apple-refurbished-iph-1841138323>
 
 苹果现在通过其在线商店 和认证零售商销售翻新的 iPhone XS 和 iPhone XS Max 智能手机 [。对于任何想从 iPhone 8 或更旧版本升级到的人来说，这是一个好消息，但他们可能不想为解锁的 XS 或 XS Max 支付全价(或者直接跳到 iPhone 11)。XS 和 XS Max 才两年，他们的技术仍然很快，所以他们仍然是可靠的升级。](https://www.apple.com/shop/refurbished)
 

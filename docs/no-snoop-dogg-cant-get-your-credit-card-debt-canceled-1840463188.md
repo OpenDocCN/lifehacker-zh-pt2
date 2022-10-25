@@ -1,6 +1,6 @@
 # 不，史努比·道格不能取消你的信用卡债务
 
-> 原文:[https://life hacker . com/no-snoop-dogg-cant-get-your-credit-card-debt-canceled-1840463188](https://lifehacker.com/no-snoop-dogg-cant-get-your-credit-card-debt-canceled-1840463188)
+> 原文：<https://lifehacker.com/no-snoop-dogg-cant-get-your-credit-card-debt-canceled-1840463188>
 
 当你平静地浏览你的脸书视频时，你可能已经看过史努比·道格为债务委员会的债务减免项目做广告的视频。
 

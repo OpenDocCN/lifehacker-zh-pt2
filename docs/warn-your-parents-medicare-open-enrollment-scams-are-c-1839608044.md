@@ -1,6 +1,6 @@
 # 警告你的父母:医疗保险开放注册骗局来了
 
-> 原文:[https://life hacker . com/warn-your-parents-medicare-open-enrollment-scams-is-c-1839608044](https://lifehacker.com/warn-your-parents-medicare-open-enrollment-scams-are-c-1839608044)
+> 原文：<https://lifehacker.com/warn-your-parents-medicare-open-enrollment-scams-are-c-1839608044>
 
 开放注册的季节到了，一年中的这个时候，几乎每个人都可以改变他们的医疗保险，而不会受到今年剩余时间的限制。虽然你可能对自己的医疗保健做出改变的过程充满信心，但你知道谁在每年的这个时候特别容易被骗吗？你的父母。
 

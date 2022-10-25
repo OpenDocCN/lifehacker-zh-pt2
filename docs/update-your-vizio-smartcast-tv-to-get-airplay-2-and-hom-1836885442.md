@@ -1,6 +1,6 @@
 # 更新您的 Vizio SmartCast 电视以获取 AirPlay 2 和 HomeKit
 
-> 原文:[https://life hacker . com/update-your-vizio-smart cast-TV-to-get-airplay-2-and-hom-1836885442](https://lifehacker.com/update-your-vizio-smartcast-tv-to-get-airplay-2-and-hom-1836885442)
+> 原文：<https://lifehacker.com/update-your-vizio-smartcast-tv-to-get-airplay-2-and-hom-1836885442>
 
 Vizio 的 SmartCast 电视以其集成的 Chromecast 支持而闻名，这使得它对 Android 用户来说很容易销售。现在，许多 Vizio 智能电视也有资格进行 SmartCast 3.0 升级，这将带来 AirPlay 2 和 HomeKit 支持——向 iOS 和 Mac 用户传播一些爱。
 

@@ -1,6 +1,6 @@
 # 如何找到已经过污染物测试的维生素
 
-> 原文:[https://life hacker . com/how-to-find-the-vitamins-that-be-tested-for-contamin-1834952676](https://lifehacker.com/how-to-find-vitamins-that-have-been-tested-for-contamin-1834952676)
+> 原文：<https://lifehacker.com/how-to-find-vitamins-that-have-been-tested-for-contamin-1834952676>
 
 包括维生素、 [在内的补充剂不受与药物](https://lifehacker.com/how-to-figure-out-if-your-supplements-are-safe-1685494324) 相同的测试要求的约束。FDA 采取不干涉的方式，允许公司自己进行质量控制。因此，许多补充剂含有标签上没有的污染物，或者它们可能缺少一些成分。
 

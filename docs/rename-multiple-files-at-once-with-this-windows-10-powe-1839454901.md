@@ -1,6 +1,6 @@
 # 使用此 Windows 10 PowerToy 一次重命名多个文件
 
-> 原文:[https://life hacker . com/rename-multiple-files-at-once-with-this-windows-10-power-1839454901](https://lifehacker.com/rename-multiple-files-at-once-with-this-windows-10-powe-1839454901)
+> 原文：<https://lifehacker.com/rename-multiple-files-at-once-with-this-windows-10-powe-1839454901>
 
 微软掉了一个全新的开源 Windows 10 PowerToy，它和另外两个 一样好玩有用。这个新增的“PowerRename”为您提供了一个在文件资源管理器中批量重命名文件的简单方法。它免费、简单，值得花 10 秒钟安装到您的系统上。
 

@@ -1,6 +1,6 @@
 # youtube 整天都在玩什么视频游戏
 
-> 原文:[https://life hacker . com/how-much-work-it-take-to-be-a-video-game-yout-1830832157](https://lifehacker.com/how-much-work-it-actually-takes-to-be-a-video-game-yout-1830832157)
+> 原文：<https://lifehacker.com/how-much-work-it-actually-takes-to-be-a-video-game-yout-1830832157>
 
 “职业博客”是一个相当新的职业。在观看 YouTube 频道 的 Smosh 游戏时，我们可能看起来像是一群朋友在玩，我们跟随主持人和创始成员 Mari Takahashi，看看这个团队是如何提出想法的，找出哪些节目是有效的，以及在 8 小时的拍摄过程中发生了什么。
 

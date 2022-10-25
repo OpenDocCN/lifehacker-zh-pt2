@@ -1,6 +1,6 @@
 # 最好的法式吐司甚至不需要糖浆
 
-> 原文:[https://the take out . com/how-to-make-the-best-French-toast-tips-tricks-hacks-pai-1839940713](https://thetakeout.com/how-to-make-the-best-french-toast-tips-tricks-hacks-pai-1839940713)
+> 原文：<https://thetakeout.com/how-to-make-the-best-french-toast-tips-tricks-hacks-pai-1839940713>
 
 意大利面包、鸡蛋、牛奶、黄油和糖浆——这是我的铁路工人父亲为我们做法式吐司时常用的五种配料。他吃的是原味的，但我和我哥哥希望我们的食物上面放上大量的糖。我记得我妈妈试图教我控制份量，希望我不会在我的盘子里制造一大池甜糖浆。
 

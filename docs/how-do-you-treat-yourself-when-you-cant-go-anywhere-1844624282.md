@@ -1,6 +1,6 @@
 # 哪里都去不了的时候，你是怎么对待自己的？
 
-> 原文:[https://life hacker . com/how-do-you-treat-you-what-you-course-when you-can-go-where-1844624282](https://lifehacker.com/how-do-you-treat-yourself-when-you-cant-go-anywhere-1844624282)
+> 原文：<https://lifehacker.com/how-do-you-treat-yourself-when-you-cant-go-anywhere-1844624282>
 
 在我成长的过程中，我的家人用最微小的成就作为出去吃庆祝晚餐的理由。也许这只是我父母不想做饭的愿望的一个幌子，但是每当我通过了一次考试——或者家里的任何人在学校或工作中完成了某事——我们都会去一家价格适中的餐馆，称之为庆祝。
 

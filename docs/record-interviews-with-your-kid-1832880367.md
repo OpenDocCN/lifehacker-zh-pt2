@@ -1,6 +1,6 @@
 # 记录对你孩子的采访
 
-> 原文:[https://life hacker . com/record-interests-with-your-kid-1832880367](https://lifehacker.com/record-interviews-with-your-kid-1832880367)
+> 原文：<https://lifehacker.com/record-interviews-with-your-kid-1832880367>
 
 当我哥哥还是个孩子的时候，他有一台绿色的赫曼录音机。正如我妈妈讲述的那样，他会坐在自己的房间里，点击“录音”，开始诗意地讲述自己的生活。听起来有点像这样:“Myyyy naaaaaame 是大卫！我有。录音机！我可以。大喊。入之！”
 

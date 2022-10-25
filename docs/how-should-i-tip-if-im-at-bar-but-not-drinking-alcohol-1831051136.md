@@ -1,6 +1,6 @@
 # 问有咸味的女服务员:如果我在酒吧，但没有喝酒，我应该如何给小费？
 
-> 原文:[https://the take out . com/how-should-I-tip-if-im-at-bar-but-not-drinking-alcohol-1831051136](https://thetakeout.com/how-should-i-tip-if-im-at-bar-but-not-drinking-alcohol-1831051136)
+> 原文：<https://thetakeout.com/how-should-i-tip-if-im-at-bar-but-not-drinking-alcohol-1831051136>
 
 > 亲爱的咸，我最近戒了酒，冷火鸡，并正在学习如何在清醒的世界导航。我仍然经常去一两个严格意义上不是酒吧的地方，但那里确实有酒吧，但我只是点了一杯苏打水。苏打水通常是免费的，所以我会在第一杯酒时给酒保几块钱小费，作为一种租金。够了吗？每次续杯都要给小费吗？苏打水也一样吗？我不想要啤酒(嗯，也许)，但我也不想成为酒保的痛苦。
 > 

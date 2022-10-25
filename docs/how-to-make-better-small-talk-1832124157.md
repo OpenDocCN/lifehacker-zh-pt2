@@ -1,6 +1,6 @@
 # 如何变得更擅长闲聊
 
-> 原文:[https://life hacker . com/how-to-make-better-small-talk-1832124157](https://lifehacker.com/how-to-make-better-small-talk-1832124157)
+> 原文：<https://lifehacker.com/how-to-make-better-small-talk-1832124157>
 
 三年前，在离职后，由于(非常)无事可做，我用部分积蓄参加了正直公民旅的即兴表演班。据大家说，我既不风趣也不敏捷。我也不停地流汗，班里的大多数人都认为我在课间休息时把头浸在了水池里(他们没有错)。
 

@@ -1,6 +1,6 @@
 # 如何在当地和网上找到并支持黑人企业
 
-> 原文:[https://life hacker . com/how-to-find-and-support-black-owned-business-locally-1843907745](https://lifehacker.com/how-to-find-and-support-black-owned-businesses-locally-1843907745)
+> 原文：<https://lifehacker.com/how-to-find-and-support-black-owned-businesses-locally-1843907745>
 
 随着反对种族不公正和警察暴行的抗议在全国继续，你可能已经听到了支持 T4 非国有企业的呼声。疫情和相关的经济关闭导致全国企业经历了艰难的几个月。当你冒险回到自己的社区时，你的支出对于重建需要关闭几周或几个月的企业的财务来说是必不可少的。
 

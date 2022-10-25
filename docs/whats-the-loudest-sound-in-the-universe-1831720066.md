@@ -1,6 +1,6 @@
 # 宇宙中最大的声音是什么？
 
-> 原文:[https://gizmodo . com/what-the-loud-sound-in-the-universe-1831720066](https://gizmodo.com/whats-the-loudest-sound-in-the-universe-1831720066)
+> 原文：<https://gizmodo.com/whats-the-loudest-sound-in-the-universe-1831720066>
 
 从银河系的角度来看，人类对声音的容忍度是微不足道的。火山爆发，手提钻密集的建筑工程，我的血腥情人节音乐会——这些令人耳鸣的现象，除了在外层空间发生的壮观、翻滚的爆炸和碰撞，简直就是耳语。
 

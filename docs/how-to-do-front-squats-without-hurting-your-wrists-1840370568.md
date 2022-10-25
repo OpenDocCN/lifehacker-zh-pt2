@@ -1,6 +1,6 @@
 # 如何做前蹲而不伤手腕
 
-> 原文:[https://life hacker . com/how-to-do-front-squat-without-injury-1840370568](https://lifehacker.com/how-to-do-front-squats-without-hurting-your-wrists-1840370568)
+> 原文：<https://lifehacker.com/how-to-do-front-squats-without-hurting-your-wrists-1840370568>
 
 前蹲是一项很好的日常锻炼，但我们中的一些人很难适应把杠铃放在脖子前面，手腕向后翘。如果这听起来像你，我们有几个选项你可以试试。
 

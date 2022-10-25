@@ -1,6 +1,6 @@
 # 你需要在简历中解释这个空白
 
-> 原文:[https://life hacker . com/you-need-to-explain-the-gap in-your-resume-1836290878](https://lifehacker.com/you-need-to-explain-that-gap-in-your-resume-1836290878)
+> 原文：<https://lifehacker.com/you-need-to-explain-that-gap-in-your-resume-1836290878>
 
 根据简历撰写公司 ResumeGo 的研究，如果你在简历中留出很长的工作间隙，雇主打电话给你进一步交谈的可能性不到一半。虽然一两年的差距只会略微降低你接到电话的机会，但三年的差距会让你的机会减半。但是你可以通过解释差距来增加你打电话的机会。
 

@@ -1,6 +1,6 @@
 # 如何快速移除 Windows 10 的新 Cortana 应用
 
-> 原文:[https://life hacker . com/how-to-fast-remove-windows-10s-new-cortana-app-1843906742](https://lifehacker.com/how-to-quickly-remove-windows-10s-new-cortana-app-1843906742)
+> 原文：<https://lifehacker.com/how-to-quickly-remove-windows-10s-new-cortana-app-1843906742>
 
 新的 Windows 10 V 版本 2004 更新正在缓慢地向兼容的设备推出，尽管一些用户将会在 [等待更长的时间](https://lifehacker.com/how-to-install-the-windows-10-may-2020-update-if-its-mi-1843732242) 。此次更新为操作系统带来了几个新功能，包括微软全新版本的数字助理 Cortana，不管你喜欢与否。
 

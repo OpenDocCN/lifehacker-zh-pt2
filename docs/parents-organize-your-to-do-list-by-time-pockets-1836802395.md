@@ -1,6 +1,6 @@
 # 父母:用“时间口袋”来组织你的待办事项清单
 
-> 原文:[https://life hacker . com/parents-organize-your-to-do-list-by-time-pockets-1836802395](https://lifehacker.com/parents-organize-your-to-do-list-by-time-pockets-1836802395)
+> 原文：<https://lifehacker.com/parents-organize-your-to-do-list-by-time-pockets-1836802395>
 
 如果你在家带小孩，有工作要做，我很抱歉。这很难。不可否认。你将不得不利用“中间”时间——通常是午睡时间或者安静时间——这些时间永远都不够长，但是，唉，它们是你可以利用的时间。
 

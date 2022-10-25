@@ -1,6 +1,6 @@
 # 如何在电话会议上看起来和听起来都很棒
 
-> 原文:[https://life hacker . com/how-to-look-and-sound-great-on-a-conference-call-1842431127](https://lifehacker.com/how-to-look-and-sound-great-on-a-conference-call-1842431127)
+> 原文：<https://lifehacker.com/how-to-look-and-sound-great-on-a-conference-call-1842431127>
 
 疫情冠状病毒突然让视频电话会议成为我们生活的一部分。不幸的是，网络摄像头有一种不可思议的能力来揭示我们最脆弱和最不讨人喜欢的一面。在上面的视频中，我们分享了一些关于如何在视频通话中表现最佳的技巧。
 

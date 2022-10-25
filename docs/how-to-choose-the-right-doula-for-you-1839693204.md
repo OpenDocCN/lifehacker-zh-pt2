@@ -1,6 +1,6 @@
 # 如何选择适合自己的导乐
 
-> 原文:[https://life hacker . com/how-to-choose-the-right-doula-for-you-1839693204](https://lifehacker.com/how-to-choose-the-right-doula-for-you-1839693204)
+> 原文：<https://lifehacker.com/how-to-choose-the-right-doula-for-you-1839693204>
 
 在 2019 年，几乎可以肯定的是，任何一个拥有智能手机和 Instagram 账户的孕妇都知道导乐是什么(非医学分娩支持者，对任何后来者而言)。导乐陪伴孕妇度过怀孕、分娩和产后的转变过程。有证据表明，导乐可以提供身体和情感上的支持，以及各种其他好处，其中一些好处包括剖腹产的几率更低，对整体分娩体验的满意度更高。
 

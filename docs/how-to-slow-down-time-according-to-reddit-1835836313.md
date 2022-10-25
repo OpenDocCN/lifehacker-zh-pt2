@@ -1,6 +1,6 @@
 # 据 Reddit 报道，如何让时间慢下来
 
-> 原文:[https://life hacker . com/how-to-slow-down-time-by-Reddit-1835836313](https://lifehacker.com/how-to-slow-down-time-according-to-reddit-1835836313)
+> 原文：<https://lifehacker.com/how-to-slow-down-time-according-to-reddit-1835836313>
 
 当我的儿子开始上幼儿园的时候，我的妈妈给了我一个非常令人震惊的消息:“现在他已经开始全日制上学了，”她说，“时间过得真快。”多亏了她，我注意到每一年都过得越来越快，这是我认识的每个成年人都能证实的事实。
 

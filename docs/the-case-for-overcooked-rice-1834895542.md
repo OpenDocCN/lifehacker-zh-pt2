@@ -1,6 +1,6 @@
 # 米饭煮过头的理由
 
-> 原文:[https://life hacker . com/the-case-for-over cooked-rice-1834895542](https://lifehacker.com/the-case-for-overcooked-rice-1834895542)
+> 原文：<https://lifehacker.com/the-case-for-overcooked-rice-1834895542>
 
 吃东西是一种感官体验，有时重新设定你的感官是个好主意。也许你已经吃了太多太多太有味道的食物，也许你的胃因为疾病(或放纵)而不舒服，或者也许你只是不想做*做*。无论如何，你需要的是一碗像粥一样的稀饭。
 

@@ -1,6 +1,6 @@
 # 将你的感恩节剩菜储存在餐馆供应店的汤容器里
 
-> 原文:[https://life hacker . com/store-your-thanksgiving-remainers-in-soup-containers-fr-1840033737](https://lifehacker.com/store-your-thanksgiving-leftovers-in-soup-containers-fr-1840033737)
+> 原文：<https://lifehacker.com/store-your-thanksgiving-leftovers-in-soup-containers-fr-1840033737>
 
 感恩节剩菜并不完全是一种负担，但它们确实需要一些策略。用保鲜膜覆盖的半满砂锅菜可能看起来是阻力最小的路径，但它们堆叠起来很差，而且经常占用大量空间。为了一个真正愉快的剩菜储存体验，去餐馆用品店买一些盛汤的容器。
 

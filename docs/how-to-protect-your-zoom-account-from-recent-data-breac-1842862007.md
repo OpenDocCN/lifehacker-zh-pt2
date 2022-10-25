@@ -1,6 +1,6 @@
 # 如何保护您的 Zoom 帐户免受最近数据泄露的影响
 
-> 原文:[https://life hacker . com/how-to-protect-your-zoom-account-from-recent-data-breac-1842862007](https://lifehacker.com/how-to-protect-your-zoom-account-from-recent-data-breac-1842862007)
+> 原文：<https://lifehacker.com/how-to-protect-your-zoom-account-from-recent-data-breac-1842862007>
 
 有超过 500，000 个被盗的缩放登录 [漂浮在暗网](https://www.fastcompany.com/90490295/half-a-million-zoom-logins-are-available-on-the-dark-web-for-less-than-a-cent-each) 周围。这并不好，尤其是因为它们正以近乎零的价格出售，但这是一个很好的提醒*你不应该在不同的服务中使用相同的凭证*。
 

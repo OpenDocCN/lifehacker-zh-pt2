@@ -1,6 +1,6 @@
 # 2018 年最佳健康岗位
 
-> 原文:[https://life hacker . com/the-best-health-posts-of-2018-1831100297](https://lifehacker.com/the-best-health-posts-of-2018-1831100297)
+> 原文：<https://lifehacker.com/the-best-health-posts-of-2018-1831100297>
 
 今年，我们了解了 DNA 测试、健康饮酒和消除粉刺背后的真相。以下是 2018 年最佳健康岗位。
 

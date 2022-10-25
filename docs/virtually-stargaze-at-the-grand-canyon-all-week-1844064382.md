@@ -1,6 +1,6 @@
 # 几乎整个星期都在大峡谷观星
 
-> 原文:[https://life hacker . com/virtually-stargaze-at-the-grand-canyon-all-week-1844064382](https://lifehacker.com/virtually-stargaze-at-the-grand-canyon-all-week-1844064382)
+> 原文：<https://lifehacker.com/virtually-stargaze-at-the-grand-canyon-all-week-1844064382>
 
 虽然这个月我们比往常有更多的 [机会看到行星](https://lifehacker.com/how-to-see-jupiter-mars-and-saturn-rise-every-day-this-1844021311) ，但这与抬头看到布满星星的天空是不一样的。但是本周，由于有了 [大峡谷国家公园](https://www.nps.gov/grca/index.htm) ，你可以参加他们一年一度的“明星派对”，该派对将在网上举行，一直持续到 6 月 20 日。以下是你需要知道的。
 

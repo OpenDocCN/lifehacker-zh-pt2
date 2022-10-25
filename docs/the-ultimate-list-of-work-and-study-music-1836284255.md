@@ -1,6 +1,6 @@
 # the ultimate list of work and study music 1836284255
 
-> 原文:[https://life hacker . com/the-ultimate-list-of-work and-study-music-1836284255](https://lifehacker.com/the-ultimate-list-of-work-and-study-music-1836284255)
+> 原文：<https://lifehacker.com/the-ultimate-list-of-work-and-study-music-1836284255>
 
 我不能安静地工作。如果我在和文字打交道——这是大部分时间——我就不能在演奏典型的流行、摇滚或嘻哈音乐时工作。因此，我收集器乐和外语音乐的规模以周为单位，而不是以小时为单位。以下是我工作、学习和创作背景音乐的一些最佳来源。
 

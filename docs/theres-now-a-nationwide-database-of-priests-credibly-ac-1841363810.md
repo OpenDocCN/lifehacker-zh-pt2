@@ -1,6 +1,6 @@
 # 现在有一个全国性的数据库，里面有可信的被指控虐待的牧师
 
-> 原文:[https://life hacker . com/theres-now-a-nationwide-database-of-drugs-creibly-AC-1841363810](https://lifehacker.com/theres-now-a-nationwide-database-of-priests-credibly-ac-1841363810)
+> 原文：<https://lifehacker.com/theres-now-a-nationwide-database-of-priests-credibly-ac-1841363810>
 
 一个名为 [可信指控](https://projects.propublica.org/credibly-accused/) 的 ProPublica 项目提供了一个可搜索的天主教牧师数据库，顾名思义，这些牧师已经被确定为涉嫌虐待者。并非每个教堂或教区都公布了名单，但很多都公布了，数据库中有超过 6000 个名字。
 

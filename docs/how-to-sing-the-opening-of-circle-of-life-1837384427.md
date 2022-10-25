@@ -1,6 +1,6 @@
 # 如何演唱《生命的循环》的开场
 
-> 原文:[https://life hacker . com/how-to-sing-the-opening-of-circle of-life-1837384427](https://lifehacker.com/how-to-sing-the-opening-of-circle-of-life-1837384427)
+> 原文：<https://lifehacker.com/how-to-sing-the-opening-of-circle-of-life-1837384427>
 
 从小到大，我唱的是“nahhhht-SYLVANIAAAA！”你唱了一些更傻的歌。但是我们现在是成年人了，我们可以从迪士尼的《狮子王》中学习《生命的循环》开场的原话。当我们像辛巴一样把东西举到空中时，我们听起来会更酷。下面是这首歌的演唱方法，以及它的含义。
 

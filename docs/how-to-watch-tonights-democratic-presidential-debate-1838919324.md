@@ -1,6 +1,6 @@
 # 如何观看今晚的民主党总统候选人辩论
 
-> 原文:[https://life hacker . com/how-to-watch-tonights-democratic-president-debate-1838919324](https://lifehacker.com/how-to-watch-tonights-democratic-presidential-debate-1838919324)
+> 原文：<https://lifehacker.com/how-to-watch-tonights-democratic-presidential-debate-1838919324>
 
 现在已经进行了三场辩论，比以往任何时候都更清楚的是，民主党候选人谁真正有机会当选总统。今晚俄亥俄州的辩论可能会成为这些总统候选人中大多数人的另一个成败时刻，包括那些仍在努力引起轰动的候选人。
 

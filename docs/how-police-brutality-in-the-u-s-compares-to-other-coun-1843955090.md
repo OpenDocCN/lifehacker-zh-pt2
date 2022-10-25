@@ -1,6 +1,6 @@
 # 美国的警察暴行与其他国家相比如何
 
-> 原文:[https://life hacker . com/how-police-ruthy-in-u-s-comparison-to-other-coun-1843955090](https://lifehacker.com/how-police-brutality-in-the-u-s-compares-to-other-coun-1843955090)
+> 原文：<https://lifehacker.com/how-police-brutality-in-the-u-s-compares-to-other-coun-1843955090>
 
 鉴于过去几周针对警察暴行的抗议活动，以及乔治·弗洛伊德(George Floyd)、布里奥纳·泰勒(Breonna Taylor)和其他许多人在警察手中被杀，很有必要看看美国与其他国家在警察暴力盛行方面的对比。
 

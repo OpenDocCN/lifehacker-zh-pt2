@@ -1,6 +1,6 @@
 # 用芫荽茎做墨西哥风味米饭
 
-> 原文:[https://life hacker . com/make-chipotle-style-rice-with-cilanto-stems-1829820745](https://lifehacker.com/make-chipotle-style-rice-with-cilantro-stems-1829820745)
+> 原文：<https://lifehacker.com/make-chipotle-style-rice-with-cilantro-stems-1829820745>
 
 自从 2017 年 的 [大溃败之后，我就没有再去过 Chipotle 与奶酪有关的心碎需要最长的时间才能愈合——但我仍然对他们的香菜石灰饭情有独钟。幸运的是，这并不难复制，而且可以用芫荽叶茎做成*和*。](https://lifehacker.com/3-cheesy-dips-that-are-way-better-than-whatever-chipotl-1818528845) 
 

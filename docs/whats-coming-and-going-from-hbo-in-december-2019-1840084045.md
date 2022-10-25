@@ -1,6 +1,6 @@
 # 2019 年 12 月 HBO 有什么来往
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-HBO-in-2019-1840084045](https://lifehacker.com/whats-coming-and-going-from-hbo-in-december-2019-1840084045)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-hbo-in-december-2019-1840084045>
 
 随着 2019 年即将结束，HBO 的一系列剧集也将结束。*硅谷*将结束第六季将在 12 月 8 日播出大结局，*守望者*将在 12 月 15 日结束本季，*他的黑暗物质*将在 12 月 23 日播出本季最后一集。
 

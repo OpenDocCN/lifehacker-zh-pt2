@@ -1,6 +1,6 @@
 # 如何计算一个余额转移是否值得
 
-> 原文:[https://life hacker . com/how-to-calculate-a-balance-transfer-it-1840171007](https://lifehacker.com/how-to-calculate-whether-a-balance-transfer-is-worth-it-1840171007)
+> 原文：<https://lifehacker.com/how-to-calculate-whether-a-balance-transfer-is-worth-it-1840171007>
 
 如果你有一张以上的信用卡，你可能已经收到了将余额转移到你的另一张卡上的提议——可能是比其他卡用得少的那张。不想被遗漏，这张卡给你 12 个月、15 个月或 18 个月的零利息优惠，给你时间支付你的余额，而没有利息随着时间推移推回总数。
 

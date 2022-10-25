@@ -1,6 +1,6 @@
 # 摩托车学校如何让我成为更好的司机
 
-> 原文:[https://jalopnik . com/how-motorcycle-school-make-me-a-better-driver-1834642961](https://jalopnik.com/how-motorcycle-school-made-me-a-better-driver-1834642961)
+> 原文：<https://jalopnik.com/how-motorcycle-school-made-me-a-better-driver-1834642961>
 
 上周末，我参加并通过了 [摩托车安全基金会](https://www.msf-usa.org/) 的基础骑行课程，这是你在纽约州无需路考就能获得摩托车认证的课程。这并不容易，但我确实对自己安全驾驶自行车的能力充满了信心。我很惊讶地了解到它也教会了我如何驾驶普通汽车。
 

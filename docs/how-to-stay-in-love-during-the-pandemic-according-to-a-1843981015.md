@@ -1,6 +1,6 @@
 # 离婚律师称，如何在疫情保持爱情
 
-> 原文:[https://life hacker . com/how-to-stay-in-love-in-the-疫情-根据-1843981015](https://lifehacker.com/how-to-stay-in-love-during-the-pandemic-according-to-a-1843981015)
+> 原文：<https://lifehacker.com/how-to-stay-in-love-during-the-pandemic-according-to-a-1843981015>
 
 大约三个月(或者 47 年...谁在数？)因为我们开始了社交距离。尽管有“距离”，我们中的许多人发现自己在身体上更接近我们的伴侣和重要的人。
 

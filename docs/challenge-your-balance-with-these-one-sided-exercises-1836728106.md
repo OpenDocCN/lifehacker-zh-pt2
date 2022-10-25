@@ -1,6 +1,6 @@
 # 用这些单边练习来挑战你的平衡
 
-> 原文:[https://life hacker . com/challenge-your-balance with this-side-exercises-1836728106](https://lifehacker.com/challenge-your-balance-with-these-one-sided-exercises-1836728106)
+> 原文：<https://lifehacker.com/challenge-your-balance-with-these-one-sided-exercises-1836728106>
 
 我们已经讨论过如何用一只脚平衡，但是有时候做一个不是*而是*关于平衡的练习也不错。许多标准的力量训练动作可以以单边的方式进行，挑战你的大脑和身体，给你一个核心锻炼的地狱。
 

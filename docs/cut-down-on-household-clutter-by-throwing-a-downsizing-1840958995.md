@@ -1,6 +1,6 @@
 # 举办一个瘦身派对，减少家庭杂物
 
-> 原文:[https://life hacker . com/cut-down-on-household-through-through-a-sliding-1840958995](https://lifehacker.com/cut-down-on-household-clutter-by-throwing-a-downsizing-1840958995)
+> 原文：<https://lifehacker.com/cut-down-on-household-clutter-by-throwing-a-downsizing-1840958995>
 
 我在 2019 年初的新年决心之一就是开始送人东西。我在一个家庭中长大，在这个家庭中，如果任何东西有任何价值，即使是零件，你也会保留它，因为你将来“可能需要它”。
 

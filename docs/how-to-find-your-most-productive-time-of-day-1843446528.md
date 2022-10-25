@@ -1,6 +1,6 @@
 # 如何找到你一天中最有效率的时间
 
-> 原文:[https://life hacker . com/how-to-find-your-most-productive-time-of-day-1843446528](https://lifehacker.com/how-to-find-your-most-productive-time-of-day-1843446528)
+> 原文：<https://lifehacker.com/how-to-find-your-most-productive-time-of-day-1843446528>
 
 无论你是一个经验丰富的在家工作的人，还是仍在适应《疫情时报》的,你可能都遇到了“所有时间都是潜在工作时间”的问题。如果家庭和办公室没有明显的区别，就很难知道什么时候该工作，什么时候不该工作——尤其是当你把工作与养育子女、烹饪、锻炼、带你的狗出去散步以及其他日常事务结合在一起的时候。
 

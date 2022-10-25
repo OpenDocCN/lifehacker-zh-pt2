@@ -1,6 +1,6 @@
 # 如何战胜算法并控制你的信息饮食
 
-> 原文:[https://life hacker . com/how-to-outsmart-algorithms-and-take-control-of-your-INF-1834893542](https://lifehacker.com/how-to-outsmart-algorithms-and-take-control-of-your-inf-1834893542)
+> 原文：<https://lifehacker.com/how-to-outsmart-algorithms-and-take-control-of-your-inf-1834893542>
 
 “某些算法，”蒂姆·库克说，“把你拉向你已经知道、相信或喜欢的东西，而它们会推开其他一切。往后推。”在杜兰大学 的 [毕业典礼演讲中，苹果公司首席执行官告诉毕业生要对自己的信息饮食负责。尽管我们很想嘲笑一家手机制造商告诉我们要当心算法的讽刺，但我们不得不承认，苹果的屏幕时间应用是改善你科技习惯的一个好工具。这里是我们已经写过的关于对抗算法的最好的帖子。](https://www.businessinsider.com/tim-cook-commencement-speech-tulane-urges-grads-to-push-back-2019-5?r=US&IR=T) 
 

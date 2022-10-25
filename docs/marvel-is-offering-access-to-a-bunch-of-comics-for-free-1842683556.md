@@ -1,6 +1,6 @@
 # 漫威免费提供一批漫画
 
-> 原文:[https://life hacker . com/marvel-is-offing-access-to-a-bunch-of-comics-free-1842683556](https://lifehacker.com/marvel-is-offering-access-to-a-bunch-of-comics-for-free-1842683556)
+> 原文：<https://lifehacker.com/marvel-is-offering-access-to-a-bunch-of-comics-for-free-1842683556>
 
 如果你正在寻找新的读物，漫威正在通过漫威无限应用 为 iOS 和 Android 提供 12 部漫画免费下载 [。](https://apps.apple.com/us/app/marvel-unlimited/id607205403) 
 

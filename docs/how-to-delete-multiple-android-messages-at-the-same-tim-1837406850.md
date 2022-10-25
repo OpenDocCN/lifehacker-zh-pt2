@@ -1,6 +1,6 @@
 # 如何同时删除多条安卓消息
 
-> 原文:[https://life hacker . com/how-to-delete-multiple-Android-messages-at-same-Tim-1837406850](https://lifehacker.com/how-to-delete-multiple-android-messages-at-the-same-tim-1837406850)
+> 原文：<https://lifehacker.com/how-to-delete-multiple-android-messages-at-the-same-tim-1837406850>
 
 Android Messages 版本今天早上发布，新的更新增加了人们期待已久的删除对话线程中多条消息的功能。这是一个很棒、很方便的附加功能，同样奇怪的是，Android Messages 花了这么长时间才获得一个在其他地方似乎很常见的功能。
 

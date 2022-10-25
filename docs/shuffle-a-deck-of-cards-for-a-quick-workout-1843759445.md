@@ -1,6 +1,6 @@
 # 洗牌快速锻炼
 
-> 原文:[https://life hacker . com/shuffle-a-deck of cards-a-quick-workout-1843759445](https://lifehacker.com/shuffle-a-deck-of-cards-for-a-quick-workout-1843759445)
+> 原文：<https://lifehacker.com/shuffle-a-deck-of-cards-for-a-quick-workout-1843759445>
 
 对于今天的经典在家锻炼，我们一直追溯到 2011 年，当时 Lifehacker 在一个现已不复存在的平台上创建了自己的锻炼程序 。它每周为提供四种锻炼，可以根据你的目标进行调整，我们今天正在尝试其中的一种: [纸牌锻炼](https://lifehacker.com/todays-lifehacker-workout-the-deck-of-cards-5865877) 。
 

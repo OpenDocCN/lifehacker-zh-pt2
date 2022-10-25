@@ -1,6 +1,6 @@
 # 向你的孩子扔冰淇淋是你整个夏天最奇怪的乐趣
 
-> 原文:[https://life hacker . com/dropping-the-ice cream-on-your-kids-is-the-very-y-1844278852](https://lifehacker.com/dropping-ice-cream-onto-your-kids-is-the-weirdest-fun-y-1844278852)
+> 原文：<https://lifehacker.com/dropping-ice-cream-onto-your-kids-is-the-weirdest-fun-y-1844278852>
 
 如果你已经用尽了让这个夏天变得令人兴奋的方法，我们有一个你可能还没有想到的建议——从你的屋顶向你的孩子扔冰淇淋。或者，*试着*把冰淇淋丢进你的孩子拿着的大碗里，然后期待最好的结果。
 

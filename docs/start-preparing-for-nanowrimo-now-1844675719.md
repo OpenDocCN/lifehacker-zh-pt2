@@ -1,6 +1,6 @@
 # 现在就开始准备 NaNoWriMo 吧
 
-> 原文:[https://life hacker . com/start-preparing-for-nanowrimo-now-1844675719](https://lifehacker.com/start-preparing-for-nanowrimo-now-1844675719)
+> 原文：<https://lifehacker.com/start-preparing-for-nanowrimo-now-1844675719>
 
 即使在正常情况下，重大活动的早期规划对其成功也至关重要。当然，今年我们的情况远非寻常，这使得作家们现在就开始为全国小说写作月(或简称 NaNoWriMo，甚至更短)做计划变得更加重要。
 

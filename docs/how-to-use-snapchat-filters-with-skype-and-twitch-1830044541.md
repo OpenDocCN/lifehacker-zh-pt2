@@ -1,6 +1,6 @@
 # 如何在 Skype 和 Twitch 上使用 Snapchat 过滤器
 
-> 原文:[https://life hacker . com/how-to-use-snapchat-filters-with-Skype-and-twitch-1830044541](https://lifehacker.com/how-to-use-snapchat-filters-with-skype-and-twitch-1830044541)
+> 原文：<https://lifehacker.com/how-to-use-snapchat-filters-with-skype-and-twitch-1830044541>
 
 如果你是 Snapchat 过滤器的粉丝，现在你可以在台式电脑上的 Skype 和 Google Hangouts 等地方使用它们。该公司本周发布了一款名为 [Snap Camera](https://snapcamera.snapchat.com/) 的专用桌面应用，允许你在 Skype、Google Hangouts 和 Twitch 等其他桌面应用中使用该公司的增强现实自拍镜头。
 

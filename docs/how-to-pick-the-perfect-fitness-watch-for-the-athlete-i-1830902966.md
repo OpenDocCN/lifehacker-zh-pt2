@@ -1,6 +1,6 @@
 # 如何为你生活中的运动员挑选最完美的健身手表
 
-> 原文:[https://life hacker . com/how-to-pick-the-perfect-fitness-watch for the-athlete-I-1830902966](https://lifehacker.com/how-to-pick-the-perfect-fitness-watch-for-the-athlete-i-1830902966)
+> 原文：<https://lifehacker.com/how-to-pick-the-perfect-fitness-watch-for-the-athlete-i-1830902966>
 
 Watch
 

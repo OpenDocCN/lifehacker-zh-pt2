@@ -1,6 +1,6 @@
 # 如何做出最好吃的牛排和鸡蛋
 
-> 原文:[https://life hacker . com/how-to-make the best-牛排和鸡蛋-1835806413](https://lifehacker.com/how-to-make-the-best-steak-and-eggs-1835806413)
+> 原文：<https://lifehacker.com/how-to-make-the-best-steak-and-eggs-1835806413>
 
 早餐吃牛排是一个大胆的举动。从 1 到伐木工人，大约是 9。但是，即使你认为自己是罗恩·斯旺森类型的人，以一份牛排开始你的一天也会让你昏昏欲睡，有些牛排比其他的更适合作为早餐。
 

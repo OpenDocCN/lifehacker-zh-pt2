@@ -1,6 +1,6 @@
 # 我们的疫情播放列表让您远离压力
 
-> 原文:[https://life hacker . com/get-through-the-疫情与我们的播放列表-1842983248](https://lifehacker.com/get-through-the-pandemic-with-our-playlist-1842983248)
+> 原文：<https://lifehacker.com/get-through-the-pandemic-with-our-playlist-1842983248>
 
 当一切都糟透了，你还不如起来跳舞。或者蜷缩着哭。你知道什么对这两件事有帮助吗？音乐。这就是为什么我向我的 Lifehacker 同事求助，想知道过去几周有哪些歌曲帮助他们度过了难关。以下是一些亮点，以及 Spotify 上的完整播放列表，供您欣赏。
 

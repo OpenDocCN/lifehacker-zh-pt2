@@ -1,6 +1,6 @@
 # 在夏季农产品上涂上棕色黄油
 
-> 原文:[https://life hacker . com/put-brown-butter-on-summer-product-1837407081](https://lifehacker.com/put-brown-butter-on-summer-produce-1837407081)
+> 原文：<https://lifehacker.com/put-brown-butter-on-summer-produce-1837407081>
 
 采摘新鲜农产品和吃新鲜农产品是我最喜欢的两项夏季活动。我做的“沙拉”实际上只是成堆的生玉米，在水槽上吃多汁的桃子，吃几碗浸在浓奶油中的浆果。我从来没有太多的理由去做什么*熟的*的东西，直到 Food 52 的天才们建议在我夏季收获的农产品上淋上棕色黄油。
 

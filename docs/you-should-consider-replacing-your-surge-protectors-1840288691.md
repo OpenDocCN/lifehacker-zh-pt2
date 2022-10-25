@@ -1,6 +1,6 @@
 # 你应该考虑更换旧的电涌保护器
 
-> 原文:[https://life hacker . com/you-should-consider-replace-your-surge-protectors-1840288691](https://lifehacker.com/you-should-consider-replacing-your-surge-protectors-1840288691)
+> 原文：<https://lifehacker.com/you-should-consider-replacing-your-surge-protectors-1840288691>
 
 如果你在家里使用电涌保护器，你可能要考虑更换它们，特别是如果你不记得你什么时候买了目前正在使用的电涌保护器。
 

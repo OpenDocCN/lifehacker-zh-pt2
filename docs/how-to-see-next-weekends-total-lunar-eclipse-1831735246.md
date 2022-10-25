@@ -1,6 +1,6 @@
 # 如何看下周末的月全食
 
-> 原文:[https://life hacker . com/how-to-see-next-weekends-total-lunar-eclipse-1831735246](https://lifehacker.com/how-to-see-next-weekends-total-lunar-eclipse-1831735246)
+> 原文：<https://lifehacker.com/how-to-see-next-weekends-total-lunar-eclipse-1831735246>
 
 1 月 20 日，北美、南美、欧洲西部和非洲的天文爱好者可以看到月全食。作为奖励，这将是一个超级月亮，所以这将是一个比平常更大的 T2 日食。
 

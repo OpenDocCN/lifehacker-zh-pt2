@@ -1,6 +1,6 @@
 # 如何停止摸脸
 
-> 原文:[https://life hacker . com/how-to-stop-touching-your face-1842290379](https://lifehacker.com/how-to-stop-touching-your-face-1842290379)
+> 原文：<https://lifehacker.com/how-to-stop-touching-your-face-1842290379>
 
 在这一点上，许多人都很清楚减缓冠状病毒传播的两个主要策略:洗手和*不要摸脸。*
 

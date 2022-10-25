@@ -1,6 +1,6 @@
 # 你需要尽快安装的 11 款 Apple Watch 应用
 
-> 原文:[https://gizmodo . com/11-apple-watch-apps-you-need-to-install-asap-1843780828](https://gizmodo.com/11-apple-watch-apps-you-need-to-install-asap-1843780828)
+> 原文：<https://gizmodo.com/11-apple-watch-apps-you-need-to-install-asap-1843780828>
 
 如果你终于花了一大笔钱买了一块全新的苹果手表(或者幸运地收到了一份非常好的礼物)，你可能会想:现在怎么办？苹果手表有很多很棒的内置功能，但你应该去手表的应用商店找第三方选项，让这款设备更有用。
 

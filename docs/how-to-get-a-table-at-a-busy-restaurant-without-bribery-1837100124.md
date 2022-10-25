@@ -1,6 +1,6 @@
 # 如何在繁忙的餐厅不行贿而得到一张桌子
 
-> 原文:[https://life hacker . com/how-to-get-a-table-in-a-busy-restaurant-without-贿赂-1837100124](https://lifehacker.com/how-to-get-a-table-at-a-busy-restaurant-without-bribery-1837100124)
+> 原文：<https://lifehacker.com/how-to-get-a-table-at-a-busy-restaurant-without-bribery-1837100124>
 
 2014 年，纽约的一位厨师创造了头条新闻在开了世界上“最独特”的 restaurant⁠—to 抢桌后，你得等 10 年*。虽然这家餐厅的独特性被证明是一个骗局，但它提醒人们愿意为食物等很长时间；纽约餐馆本身和 Le Bernardin 建议提前几个月预订餐桌。* 
 

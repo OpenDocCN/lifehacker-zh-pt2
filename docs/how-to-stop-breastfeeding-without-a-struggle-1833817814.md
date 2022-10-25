@@ -1,6 +1,6 @@
 # 如何不用挣扎就停止母乳喂养
 
-> 原文:[https://life hacker . com/how-to-stop-母乳喂养-不要挣扎-1833817814](https://lifehacker.com/how-to-stop-breastfeeding-without-a-struggle-1833817814)
+> 原文：<https://lifehacker.com/how-to-stop-breastfeeding-without-a-struggle-1833817814>
 
 虽然我的第一个孩子很早就自己断奶了，一旦她决定断奶就拒绝喂奶，但我 18 个月大的儿子仍然是个母乳狂。事实上，他专门叫我“笨蛋”(谁说母亲得不到荣耀？)
 

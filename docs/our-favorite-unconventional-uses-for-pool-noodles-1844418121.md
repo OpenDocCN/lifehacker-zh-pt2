@@ -1,6 +1,6 @@
 # 我们最喜欢的泳池面条的非常规用法
 
-> 原文:[https://life hacker . com/our-favorite-non-conventi on-uses-for-pool-noodle-noodles-1844418121](https://lifehacker.com/our-favorite-unconventional-uses-for-pool-noodles-1844418121)
+> 原文：<https://lifehacker.com/our-favorite-unconventional-uses-for-pool-noodles-1844418121>
 
 你知道吗，你只能点六包或更多的泳池面？因为我学到了惨痛的教训。
 

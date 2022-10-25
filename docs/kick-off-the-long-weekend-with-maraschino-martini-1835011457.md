@@ -1,6 +1,6 @@
 # 以一杯马拉希诺马提尼开始漫长的周末
 
-> 原文:[https://life hacker . com/kick-off-the long-weekend-with-maraschino-martini-1835011457](https://lifehacker.com/kick-off-the-long-weekend-with-maraschino-martini-1835011457)
+> 原文：<https://lifehacker.com/kick-off-the-long-weekend-with-maraschino-martini-1835011457>
 
 假日周末——尤其是夏季的周末——通常与烧烤和啤酒联系在一起。我总是下来吃一些烧烤，但啤酒让我打喷嚏，我不明白为什么我要在一个长周末改变我的饮酒习惯。
 

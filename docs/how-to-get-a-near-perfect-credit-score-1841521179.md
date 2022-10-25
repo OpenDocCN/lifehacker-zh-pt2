@@ -1,6 +1,6 @@
 # 如何获得近乎完美的信用评分
 
-> 原文:[https://life hacker . com/how-to-get-a near-perfect-credit-score-1841521179](https://lifehacker.com/how-to-get-a-near-perfect-credit-score-1841521179)
+> 原文：<https://lifehacker.com/how-to-get-a-near-perfect-credit-score-1841521179>
 
 我们都想在某件事上做到完美:一项运动，一项技能，一个技巧。但当涉及到你的信用时，你能做的只有这么多，以达到 850 分的最高分。有些因素可能对你不利，你没有能力改变——比如你的账户已经存在多久了。
 

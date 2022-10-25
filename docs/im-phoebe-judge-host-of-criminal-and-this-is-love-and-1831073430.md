@@ -1,6 +1,6 @@
 # im phoebe judge host of criminal and this is love and 1831073430
 
-> 原文:[https://life hacker . com/im-Phoebe-judge-host-of-criminal-and-this-is-love-1831073430](https://lifehacker.com/im-phoebe-judge-host-of-criminal-and-this-is-love-and-1831073430)
+> 原文：<https://lifehacker.com/im-phoebe-judge-host-of-criminal-and-this-is-love-and-1831073430>
 
 根据苹果的图表，真实犯罪播客 [*罪犯*](https://thisiscriminal.com/)T5】和人性播客 [*这就是爱*](https://www.thisislovepodcast.com/) 是目前最受欢迎的两个播客。菲比·贾奇主持并共同创作了这两个独立的、高质量的节目。我们和她谈了她的电台背景，她如何创作新的剧集，以及她如何在录制前准备她的工作室。 
 

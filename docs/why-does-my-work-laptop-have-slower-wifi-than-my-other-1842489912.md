@@ -1,6 +1,6 @@
 # 为什么我的工作笔记本电脑的 Wifi 速度比其他设备慢？
 
-> 原文:[https://life hacker . com/why-my-work-laptop-with-my-other-1842489912](https://lifehacker.com/why-does-my-work-laptop-have-slower-wifi-than-my-other-1842489912)
+> 原文：<https://lifehacker.com/why-does-my-work-laptop-have-slower-wifi-than-my-other-1842489912>
 
 日 Three of[**Tech 911**](https://lifehacker.com/c/tech-911)来这里答疑周，我正在快速浏览 [读者评论](https://lifehacker.com/tell-us-your-working-from-home-tech-issues-1842428782) 仿佛这是我的工作。事实就是如此。这是我的工作，我喜欢尽我所能帮助别人。请记住，如果你对在家工作的技术有疑问，因为你有一些不可靠的电脑或智能手机问题不能完全解决，例如，留下评论或给我发电子邮件。让我帮你做。
 

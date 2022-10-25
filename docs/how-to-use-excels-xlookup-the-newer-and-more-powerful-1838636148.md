@@ -1,6 +1,6 @@
 # 如何使用 Excel 的 Xlookup，更新更强大的 Vlookup
 
-> 原文:[https://life hacker . com/how-to-use-excel-xlookup-the-newer-and-more-powerful-1838636148](https://lifehacker.com/how-to-use-excels-xlookup-the-newer-and-more-powerful-1838636148)
+> 原文：<https://lifehacker.com/how-to-use-excels-xlookup-the-newer-and-more-powerful-1838636148>
 
 我还记得第一天我想出如何在 Excel 中运行一个 vlookup 命令；我坐在我的咖啡桌旁，不知道这个愚蠢的小命令有什么意义。一旦我意识到它的力量，我就再也没有回去过。作为斯坦福大学的一名商业分析师，我经常求助于 vlookup 来完成一天的工作。
 

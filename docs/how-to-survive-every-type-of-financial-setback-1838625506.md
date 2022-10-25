@@ -1,6 +1,6 @@
 # 如何在各种金融挫折中生存下来
 
-> 原文:[https://life hacker . com/how-to-survive-every-type-of-financial-success-1838625506](https://lifehacker.com/how-to-survive-every-type-of-financial-setback-1838625506)
+> 原文：<https://lifehacker.com/how-to-survive-every-type-of-financial-setback-1838625506>
 
 即使你认为你在财务上做的一切都是正确的，事情仍然可能出错。失业、离婚和疾病都会对你的财务状况造成严重破坏，车祸、自然灾害也是如此——好吧，你明白了。
 

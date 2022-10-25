@@ -1,6 +1,6 @@
 # 我应该给谁小费(多少)？
 
-> 原文:[https://life hacker . com/who-should-I-tip-and-how-much-5970143](https://lifehacker.com/who-should-i-tip-and-how-much-5970143)
+> 原文：<https://lifehacker.com/who-should-i-tip-and-how-much-5970143>
 
 给小费确实是最令人困惑的习俗之一。在美国，它有一段漫长而麻烦的历史，并且经常成为激烈辩论的主题。那是因为给小费并没有真正的“规则”，而且这种礼节看起来相当随意。除了对给谁小费和给多少小费有不同的看法之外，各国的习俗也各不相同。问十几个人他们什么时候给小费，给多少，你会得到十几个不同的答案。
 

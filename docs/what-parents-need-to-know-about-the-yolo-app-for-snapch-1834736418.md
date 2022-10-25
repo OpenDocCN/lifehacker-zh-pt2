@@ -1,6 +1,6 @@
 # 关于 Snapchat 的 YOLO 应用，父母需要了解什么
 
-> 原文:[https://life hacker . com/what-parents-need-to-know-the-yolo-app-for-snapch-1834736418](https://lifehacker.com/what-parents-need-to-know-about-the-yolo-app-for-snapch-1834736418)
+> 原文：<https://lifehacker.com/what-parents-need-to-know-about-the-yolo-app-for-snapch-1834736418>
 
 有一款名为 YOLO 的新应用在青少年中非常受欢迎。仅在发布一周后，它就成为了美国下载量最大的 iPhone 应用。这是 Snapchat 的一个免费附加功能——当用户将 YOLO 与他们的账户联系起来时，他们可以在他们的 Snapchat 故事中添加一个贴纸，邀请他们的粉丝给他们提供反馈或匿名提问。然后，如果他们愿意，用户可以在他们的故事中回答这些问题。把它想象成一个关于你生活的匿名评论箱。“看到人们对你的评价是如此有趣和令人兴奋，”iTunes 上的一位评论者写道。
 

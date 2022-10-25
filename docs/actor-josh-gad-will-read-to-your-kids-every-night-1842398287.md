@@ -1,6 +1,6 @@
 # 演员乔什·加德每晚都会给你的孩子朗读
 
-> 原文:[https://life hacker . com/actor-Josh-gad-will-read-to-your kids-every night-1842398287](https://lifehacker.com/actor-josh-gad-will-read-to-your-kids-every-night-1842398287)
+> 原文：<https://lifehacker.com/actor-josh-gad-will-read-to-your-kids-every-night-1842398287>
 
 如果奥拉夫能每天晚上给你的孩子读书，那不是很棒吗？嗯，这可能不会发生，但下一个最好的事情已经发生了——为奥拉夫配音的演员正在给你的孩子朗读。
 

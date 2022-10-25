@@ -1,6 +1,6 @@
 # 你今年会把亚马逊排除在假日购物之外吗？
 
-> 原文:[https://life hacker . com/are-you-cutting-Amazon-out-of-you-holiday-shopping-thi-1830740594](https://lifehacker.com/are-you-cutting-amazon-out-of-your-holiday-shopping-thi-1830740594)
+> 原文：<https://lifehacker.com/are-you-cutting-amazon-out-of-your-holiday-shopping-thi-1830740594>
 
 你的签名问题是否是 [体面的工作条件和工人的生活工资](https://gizmodo.com/amazon-workers-across-europe-protest-black-friday-citi-1830622250)；该公司的 [在其“搜索”HQ2](https://www.newyorker.com/tech/annals-of-technology/the-new-york-hustle-of-amazons-second-headquarters) 中对美国城市的系统性诈骗；或者一个简单的事实，没有人( [更不用说像杰夫·贝索斯](https://splinternews.com/the-math-of-jeff-bezos-astounding-greed-1829032247#_ga=2.111234753.490175163.1543500591-2127637903.1532515930) 这样明显贪婪的人)应该拥有 1630 亿美元——似乎现在几乎每个人都在生亚马逊的气。
 

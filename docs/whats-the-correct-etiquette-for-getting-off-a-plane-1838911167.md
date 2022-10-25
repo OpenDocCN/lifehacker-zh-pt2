@@ -1,6 +1,6 @@
 # 下飞机的正确礼仪是什么？
 
-> 原文:[https://life hacker . com/what ' s-the-correct-礼仪下飞机-1838911167](https://lifehacker.com/whats-the-correct-etiquette-for-getting-off-a-plane-1838911167)
+> 原文：<https://lifehacker.com/whats-the-correct-etiquette-for-getting-off-a-plane-1838911167>
 
 回到 2018 年 8 月，边疆航空公司 航班上的两名乘客在下飞机时相互威胁，最终演变成一场争吵；据目击者称，一名乘客在试图从头顶的行李箱中拿包时撞到了另一名乘客，引发了打斗。
 

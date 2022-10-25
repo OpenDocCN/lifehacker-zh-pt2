@@ -1,6 +1,6 @@
 # 使用免下车自动取款机时，请盖住密码键盘
 
-> 原文:[https://life hacker . com/cover-the-pin-pad-while-use-a-drive-up-ATM-1833228572](https://lifehacker.com/cover-the-pin-pad-while-using-a-drive-up-atm-1833228572)
+> 原文：<https://lifehacker.com/cover-the-pin-pad-while-using-a-drive-up-atm-1833228572>
 
 略读诈骗无处不在，但根据安全 上的 [Krebs，它们还有另一个很容易防止的组成部分——骗子记录你的 PIN 码。](https://krebsonsecurity.com/2019/03/insert-skimmer-camera-cover-pin-stealer/) 
 

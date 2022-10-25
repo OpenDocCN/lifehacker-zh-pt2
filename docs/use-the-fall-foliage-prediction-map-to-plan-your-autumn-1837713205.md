@@ -1,6 +1,6 @@
 # 现在就使用秋叶预测地图来计划你的秋季旅行吧
 
-> 原文:[https://life hacker . com/use-the-fall-years-prediction-map-to-plan-your-autumn-1837713205](https://lifehacker.com/use-the-fall-foliage-prediction-map-to-plan-your-autumn-1837713205)
+> 原文：<https://lifehacker.com/use-the-fall-foliage-prediction-map-to-plan-your-autumn-1837713205>
 
 从技术上讲，我们可能还有一个月的夏天，但这并不意味着我们不能现在就开始计划我们最喜欢的秋季活动。
 

@@ -1,6 +1,6 @@
 # 如何在不暴露自己的情况下写一份求职简历
 
-> 原文:[https://life hacker . com/how-to-write-a-glass door-job-review-without-giving your-1836608959](https://lifehacker.com/how-to-write-a-glassdoor-job-review-without-giving-your-1836608959)
+> 原文：<https://lifehacker.com/how-to-write-a-glassdoor-job-review-without-giving-your-1836608959>
 
 有些工作你只是想警告别人。也许你的老板会对你的一举一动进行微观管理，或者尽管你有着出色的职业道德，但你的工资仍然低得令人尴尬。出于各种原因，你可能会觉得有必要写一篇评论，并在众多在线评论网站中的一个上分享你的薪水，比如 Glassdoor、InHerSight 或类似网站。
 

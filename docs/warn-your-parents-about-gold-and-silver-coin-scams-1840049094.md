@@ -1,6 +1,6 @@
 # 警告你的父母关于金币和银币的骗局
 
-> 原文:[https://life hacker . com/warn-your-parents-about-gold-and-silver-coins-1840049094](https://lifehacker.com/warn-your-parents-about-gold-and-silver-coin-scams-1840049094)
+> 原文：<https://lifehacker.com/warn-your-parents-about-gold-and-silver-coin-scams-1840049094>
 
 在这个假期，还有一个更棘手的话题需要和你的家人讨论:黄金和白银退休骗局。Quartz [的一项调查详细描述了这些骗局](https://qz.com/se/facebook-silver/) ，这些骗局欺骗老年人将他们的退休基金转移到不稳定的贵金属投资上。据 Quartz 报道，黄金和白银投资骗局并不新鲜，但在过去两年中，它们一直针对脸书保守的老年人。
 

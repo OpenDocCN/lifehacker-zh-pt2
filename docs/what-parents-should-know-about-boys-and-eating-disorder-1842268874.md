@@ -1,6 +1,6 @@
 # 关于男孩和饮食失调，父母应该知道什么
 
-> 原文:[https://life hacker . com/what-parents-should-know-on-boys-and-eating-disorder-1842268874](https://lifehacker.com/what-parents-should-know-about-boys-and-eating-disorder-1842268874)
+> 原文：<https://lifehacker.com/what-parents-should-know-about-boys-and-eating-disorder-1842268874>
 
 女孩的父母可能知道，面对来自社会和同龄人(有时甚至是家庭)的压力，他们需要留意饮食失调的迹象。但是，专家们最近才真正开始发现，我们的男孩也可能有饮食紊乱的风险——他们的饮食紊乱往往表现不同，因此需要更长的时间来识别。
 

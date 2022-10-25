@@ -1,6 +1,6 @@
 # 这就是为什么你的信用卡交易需要这么长时间才能结清
 
-> 原文:[https://life hacker . com/this-is-why-your ' s-credit-card-transactions-take so long-1786567382](https://lifehacker.com/this-is-why-your-credit-card-transactions-take-so-long-1786567382)
+> 原文：<https://lifehacker.com/this-is-why-your-credit-card-transactions-take-so-long-1786567382>
 
 当你在商店刷信用卡或借记卡时，你立刻就完成了交易。那么为什么你的对账单跟不上呢？如果你想知道为什么购物需要这么长时间才能显示在你的信用卡账单上或从银行提款，这是因为幕后有一个漫长而复杂的过程。
 

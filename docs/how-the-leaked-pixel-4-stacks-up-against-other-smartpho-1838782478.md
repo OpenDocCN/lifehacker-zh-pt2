@@ -1,6 +1,6 @@
 # 让我们比较一下谷歌的 Pixel 4 和其他智能手机的规格
 
-> 原文:[https://life hacker . com/how-the-leaved-pixel-4-stacks-up-against-other-smart pho-1838782478](https://lifehacker.com/how-the-leaked-pixel-4-stacks-up-against-other-smartpho-1838782478)
+> 原文：<https://lifehacker.com/how-the-leaked-pixel-4-stacks-up-against-other-smartpho-1838782478>
 
 在你花 799 美元购买谷歌的 Pixel 4(或 899 美元购买 Pixel 4 XL)之前，让我们先来快速浏览一下谷歌最新最棒的安卓智能手机与竞争对手的对比。我们在这篇文章中只谈论规格，而不是功能，所以要知道你并没有得到关于它是否比它的同行更好的完整的故事，只是原始的细节。
 

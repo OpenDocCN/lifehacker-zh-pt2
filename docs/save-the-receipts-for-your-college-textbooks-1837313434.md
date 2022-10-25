@@ -1,6 +1,6 @@
 # 保存好你大学课本的收据
 
-> 原文:[https://life hacker . com/save-the-receipt-for-your-college-textbooks-1837313434](https://lifehacker.com/save-the-receipts-for-your-college-textbooks-1837313434)
+> 原文：<https://lifehacker.com/save-the-receipts-for-your-college-textbooks-1837313434>
 
 今年秋天回去上课吗？虽然一些教科书正在将 [转移到云](https://www.wired.com/story/digital-textbooks-radical-transformation/) ，但很有可能你将不得不为你的大学课程购买或租赁至少几本教科书。总有一个教授让每个人都买最新版本的教科书，尽管它比去年的版本贵了 80 美元。但是你可以收回一些成本。
 

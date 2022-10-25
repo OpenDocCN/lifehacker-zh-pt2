@@ -1,6 +1,6 @@
 # 你的月周期如何影响你的锻炼
 
-> 原文:[https://life hacker . com/how-your-monthly-cycle-affects-your-workouts-1836815473](https://lifehacker.com/how-your-monthly-cycle-affects-your-workouts-1836815473)
+> 原文：<https://lifehacker.com/how-your-monthly-cycle-affects-your-workouts-1836815473>
 
 任何曾经来过月经的人都知道，伴随而来的情绪波动、疲劳和痉挛可能会很痛苦。当然，每个人都是不同的，你的里程数可能会有所不同，但如果你确实患有严重的症状，那么无论出于什么原因——包括你的锻炼——都很难将你自己从沙发上拉起来。
 

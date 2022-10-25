@@ -1,6 +1,6 @@
 # 尝试这些 iOS 和 Android 的“旅鼠”游戏，而不是索尼的蹩脚端口
 
-> 原文:[https://life hacker . com/try-these-IOs-and-Android-lemmings-games-inst-of-son-1831360899](https://lifehacker.com/try-these-ios-and-android-lemmings-games-instead-of-son-1831360899)
+> 原文：<https://lifehacker.com/try-these-ios-and-android-lemmings-games-instead-of-son-1831360899>
 
 iOS / Android: 经典的*旅鼠*体验终于(也正式)在你的智能手机上实现了。花了很多时间咒骂这些数字生物的愚蠢，我通常会很兴奋地解决他们在通勤、站在周围或坐在床上时面临的许多后勤挑战。不幸的是，索尼真的在这个移动端口上踢了一脚。
 

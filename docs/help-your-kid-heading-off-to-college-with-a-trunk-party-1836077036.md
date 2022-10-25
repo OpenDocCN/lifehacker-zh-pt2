@@ -1,6 +1,6 @@
 # 用“行李箱派对”帮助你的孩子走向大学
 
-> 原文:[https://life hacker . com/help-your-kid-heading-to-college with a trunk-party-1836077036](https://lifehacker.com/help-your-kid-heading-off-to-college-with-a-trunk-party-1836077036)
+> 原文：<https://lifehacker.com/help-your-kid-heading-off-to-college-with-a-trunk-party-1836077036>
 
 所以你的孩子要去上大学了，你想在他们进入宿舍恶作剧、能量饮料和搞清楚如何成为一个成年人的伟大土地之前给他们最后一次欢呼。怎么办？给他们办一个后备箱派对。
 

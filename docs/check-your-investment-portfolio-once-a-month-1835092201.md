@@ -1,6 +1,6 @@
 # 每月检查一次你的投资组合
 
-> 原文:[https://life hacker . com/check-your-investment-portfolio-每月一次-1835092201](https://lifehacker.com/check-your-investment-portfolio-once-a-month-1835092201)
+> 原文：<https://lifehacker.com/check-your-investment-portfolio-once-a-month-1835092201>
 
 这是你以前在这里听过的一句老话:停止检查你的投资。让市场发挥作用。仍然有点幸福地不知道。相信你的储蓄会增长。
 

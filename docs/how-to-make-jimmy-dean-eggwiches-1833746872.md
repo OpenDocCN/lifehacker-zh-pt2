@@ -1,6 +1,6 @@
 # 如何制作吉米·迪恩的“蛋威奇”
 
-> 原文:[https://life hacker . com/how-to-make-Jimmy-dean-eggwiches-1833746872](https://lifehacker.com/how-to-make-jimmy-dean-eggwiches-1833746872)
+> 原文：<https://lifehacker.com/how-to-make-jimmy-dean-eggwiches-1833746872>
 
 作为一个国家，我们擅长做不一定做得很好的事情，但是做得很多。这体现在我们的政治上，也体现在我们的饮食方式上，我们集体膨胀的腰围就是明证。随之而来的是，我们试图削减腰围的努力也是不可思议的，绝对疯狂的事情，在任何其他正常、健康的文化中长大的人都不会做。对于美国节食者来说，没有什么太极端的，无论是不必要的惩罚性锻炼还是去除了维持人类数千年的全部宏量营养素的饮食。
 

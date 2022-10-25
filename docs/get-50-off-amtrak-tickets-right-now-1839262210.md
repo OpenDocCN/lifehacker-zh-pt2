@@ -1,6 +1,6 @@
 # 立即享受美国国家铁路客运公司机票五折优惠
 
-> 原文:[https://life hacker . com/get-50-off-Amtrak-tickets-right-now-1839262210](https://lifehacker.com/get-50-off-amtrak-tickets-right-now-1839262210)
+> 原文：<https://lifehacker.com/get-50-off-amtrak-tickets-right-now-1839262210>
 
 如果你还没有为感恩节做好旅行安排，现在你有机会预订一趟回家的火车(或者假期期间你为了躲避家人而去的任何地方)——只呆两天，美国国家铁路客运公司今年 11 月的旅行有 50%的折扣。
 

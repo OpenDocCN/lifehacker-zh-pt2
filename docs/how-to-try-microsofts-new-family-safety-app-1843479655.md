@@ -1,6 +1,6 @@
 # 如何试用微软新的家庭安全应用程序
 
-> 原文:[https://life hacker . com/how-to-try-Microsoft-new-family-safety-app-1843479655](https://lifehacker.com/how-to-try-microsofts-new-family-safety-app-1843479655)
+> 原文：<https://lifehacker.com/how-to-try-microsofts-new-family-safety-app-1843479655>
 
 微软在三月份发布了新的家庭安全应用程序，你现在可以在 iOS 或 Android 上注册该应用程序 的 [有限预览版。该应用背后的想法是让父母们一瞥他们的孩子是如何在他们的设备上花费时间的，这样他们就可以根据需要做出调整。应用程序还允许家庭成员更容易地分享他们的位置并保持联系。](https://www.microsoft.com/en-us/microsoft-365/blog/2020/05/11/new-microsoft-family-safety-app-now-available-preview-ios-android/)
 

@@ -1,6 +1,6 @@
 # 通过少量的体育活动来打破你的一天，保持高效率
 
-> 原文:[https://life hacker . com/stay-productive-by-breaking-your-day-up with-micro burst-1829740819](https://lifehacker.com/stay-productive-by-breaking-your-day-up-with-microburst-1829740819)
+> 原文：<https://lifehacker.com/stay-productive-by-breaking-your-day-up-with-microburst-1829740819>
 
 当我刚开始在家工作时，我有时会发现自己花 12-14 个小时粘在办公椅上。虽然那段时间都是“工作”,但那段时间往往是我效率最低的时候，原因很简单，因为我在某个时候停滞不前，无法重新回到高效的状态。
 

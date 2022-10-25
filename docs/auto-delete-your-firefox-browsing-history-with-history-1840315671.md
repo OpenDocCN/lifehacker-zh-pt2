@@ -1,6 +1,6 @@
 # 用历史清除器自动删除你的 Firefox 浏览历史
 
-> 原文:[https://life hacker . com/auto-delete-your-Firefox-browsing-history-with-history-1840315671](https://lifehacker.com/auto-delete-your-firefox-browsing-history-with-history-1840315671)
+> 原文：<https://lifehacker.com/auto-delete-your-firefox-browsing-history-with-history-1840315671>
 
 当谈到用户隐私时，我经常推荐 [Firefox 而不是谷歌 Chrome](https://lifehacker.com/the-best-browsers-for-ad-blocking-that-arent-chrome-1835130559)，但是尽管对谷歌收集多少用户数据有合理的担忧，该公司已经变得很好地让我们控制如何处理这些数据——包括让我们设置定时器来自动删除一些数据。
 

@@ -1,6 +1,6 @@
 # 如何不被虚假订阅应用欺骗
 
-> 原文:[https://life hacker . com/how-to-not-get-scammed-by-dog-subscription-apps-1829831182](https://lifehacker.com/how-to-not-get-scammed-by-bogus-subscription-apps-1829831182)
+> 原文：<https://lifehacker.com/how-to-not-get-scammed-by-bogus-subscription-apps-1829831182>
 
 在科技地狱里，有一个专门的角落留给了那些试图引诱人们为一个不起眼的产品支付巨额费用的应用程序开发人员。
 

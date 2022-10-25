@@ -1,6 +1,6 @@
 # 根据 AAP 的说法，从 1 岁开始教你的孩子游泳
 
-> 原文:[https://life hacker . com/start-根据 1835095141](https://lifehacker.com/start-teaching-your-kids-to-swim-at-age-1-according-to-1835095141) 在 1 岁时教你的孩子游泳
+> 原文：<https://lifehacker.com/start-teaching-your-kids-to-swim-at-age-1-according-to-1835095141> 在 1 岁时教你的孩子游泳
 
 美国儿科学会 希望所有年龄段的孩子的父母对水上安全保持警惕，尤其是幼儿和青少年，他们溺水的风险最大。但它也可能确定了父母应该何时开始给孩子上游泳课的最佳时机——就在孩子一岁生日的时候。
 

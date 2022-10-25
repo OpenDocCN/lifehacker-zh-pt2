@@ -1,6 +1,6 @@
 # 使用睡眠追踪器的最佳方式
 
-> 原文:[https://life hacker . com/the-best-way-to-use-your-sleep-tracker-1837169983](https://lifehacker.com/the-best-way-to-use-your-sleep-tracker-1837169983)
+> 原文：<https://lifehacker.com/the-best-way-to-use-your-sleep-tracker-1837169983>
 
 如果你每天早上查看你的 Fitbit 或 Apple watch，看看你睡得有多好，我谦卑地建议你现在就*停止。有一个更好的方法来使用这些数据，它包括忽略它一点点。*
 

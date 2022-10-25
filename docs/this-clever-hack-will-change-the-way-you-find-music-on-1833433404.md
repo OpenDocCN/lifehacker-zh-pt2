@@ -1,6 +1,6 @@
 # 这个聪明的方法将改变你在 Spotify 上寻找音乐的方式
 
-> 原文:[https://gizmodo . com/this-clever-hack-will-change-the-way-you-find-music-on-1833433404](https://gizmodo.com/this-clever-hack-will-change-the-way-you-find-music-on-1833433404)
+> 原文：<https://gizmodo.com/this-clever-hack-will-change-the-way-you-find-music-on-1833433404>
 
 我最喜欢的 Spotify 一直是音乐发现。因此，当该公司开始建立像《探索周刊》和《释放雷达》这样的个性化播放列表时，我就被迷住了。唯一的问题是听所有的新音乐要花很长时间。但是来自 Spotify 开发者的一个独立项目提供了一个惊人的探索数百万首歌曲的方法。他们称之为。
 

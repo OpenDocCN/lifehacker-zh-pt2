@@ -1,6 +1,6 @@
 # 如何打破假日购物习惯
 
-> 原文:[https://life hacker . com/how-to-break the holiday-shopping-habit-1840900071](https://lifehacker.com/how-to-break-the-holiday-shopping-habit-1840900071)
+> 原文：<https://lifehacker.com/how-to-break-the-holiday-shopping-habit-1840900071>
 
 如果你在过去的几个月里沉迷于各种东西，从礼物到新衣服，再到你最喜欢的更贵的食物，那么回归日常消费习惯可能比你意识到的要困难得多。
 

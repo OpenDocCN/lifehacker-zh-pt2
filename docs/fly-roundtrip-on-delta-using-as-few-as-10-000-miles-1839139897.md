@@ -1,6 +1,6 @@
 # 仅用 10，000 英里乘坐达美航空往返航班
 
-> 原文:[https://life hacker . com/fly-round-trip-on-delta-using-less-as-10000-miles-1839139897](https://lifehacker.com/fly-roundtrip-on-delta-using-as-few-as-10-000-miles-1839139897)
+> 原文：<https://lifehacker.com/fly-roundtrip-on-delta-using-as-few-as-10-000-miles-1839139897>
 
 如果你已经收集航空里程有一段时间了，那么你可能也开始考虑你可以用它们做些什么。根据您想去的地方和时间，这些里程的价值可能会有很大的不同。如果这些里程是达美航空的， [，航空公司有一个页面专门向你展示这些里程可能到达最远的](https://www.delta.com/content/www/en_US/shop/deals-and-offers/north-america/skymiles-award-travel-deals.html) 。在某些情况下，您可以获得低至 10，000 英里的往返机票。
 

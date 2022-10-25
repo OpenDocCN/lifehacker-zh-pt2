@@ -1,6 +1,6 @@
 # 告诉我们你所在城市最好的停车技巧
 
-> 原文:[https://life hacker . com/tell-us-your-cities-best-parking-hacks-1832989545](https://lifehacker.com/tell-us-your-citys-best-parking-hacks-1832989545)
+> 原文：<https://lifehacker.com/tell-us-your-citys-best-parking-hacks-1832989545>
 
 在芝加哥的一个冬天，你可以预订一个带折叠椅、、、或、[巨型泰迪熊](http://chicagodibs.tumblr.com/post/182541853621/photo-uhhhfishaaa-superbear-sunday-chicagodibs)、的停车位。或者至少你可以试试。这是世界上最伟大的停车技巧之一:如果你在芝加哥的停车位铲出一个积雪，然后在这个位置放一个占位符，很多人会尊重你的“优先权”，而不会夺走你的停车位。你拥有那个地方直到雪融化。尤其是如果你 [威胁任何偷它的人](http://chicagodibs.tumblr.com/post/182197809421/photo-via-clintwsabin) 。但无论你住在哪里，我们都希望你能为当地城市停车提供帮助。 
 

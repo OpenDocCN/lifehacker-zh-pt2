@@ -1,6 +1,6 @@
 # 在免费音乐档案关闭前下载音乐
 
-> 原文:[https://life hacker . com/download-the-music-you-want-from-the-free-music-archive-1830320515](https://lifehacker.com/download-the-music-you-want-from-the-free-music-archive-1830320515)
+> 原文：<https://lifehacker.com/download-the-music-you-want-from-the-free-music-archive-1830320515>
 
 早在 2009 年， [免费音乐档案馆](http://freemusicarchive.org/) 成立，作为一个艺术家可以分享他们的音乐，听众可以合法下载歌曲的地方。现在，它正在关闭——所以现在是时候从服务上下载你想在你自己的个人图书馆里拥有的任何歌曲了。
 

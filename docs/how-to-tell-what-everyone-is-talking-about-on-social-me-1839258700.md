@@ -1,6 +1,6 @@
 # 如何辨别社交媒体上每个人都在谈论什么
 
-> 原文:[https://life hacker . com/how-to-tell-what-all-talking-on-social-me-1839258700](https://lifehacker.com/how-to-tell-what-everyone-is-talking-about-on-social-me-1839258700)
+> 原文：<https://lifehacker.com/how-to-tell-what-everyone-is-talking-about-on-social-me-1839258700>
 
 如果你把 FOMO 和失语症结合起来，你会有一种上 Twitter 或 Reddit 或脸书的感觉，看到每个人都在清楚地谈论某件事，但不知道那件事是什么。你查看了热门话题，但它们只是充斥着“为什么#EatMyBlempglorf 成为热门话题！?"以下是如何弄清楚到底是怎么回事。
 

@@ -1,6 +1,6 @@
 # 切圣女果不需要两个盖子
 
-> 原文:[https://life hacker . com/you-dont-need-two-lids-to-cut-cherry-tomatos-1834419213](https://lifehacker.com/you-dont-need-two-lids-to-cut-cherry-tomatoes-1834419213)
+> 原文：<https://lifehacker.com/you-dont-need-two-lids-to-cut-cherry-tomatoes-1834419213>
 
 使用 [两个盖子](https://lifehacker.com/cut-cherry-tomatoes-in-half-the-time-by-slicing-through-5910382) 将樱桃番茄切成两半是一个经典的做法。盖子的边缘可以稳定西红柿，让你可以轻松地用刀穿过小家伙。但是我在这里告诉你，你不需要两个盖子。你从来没有。你只需要一块砧板和你的手。
 

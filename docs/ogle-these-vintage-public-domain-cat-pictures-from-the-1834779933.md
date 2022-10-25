@@ -1,6 +1,6 @@
 # 向这些来自国会图书馆的老式公共领域猫图片抛媚眼
 
-> 原文:[https://life hacker . com/ogle-these-vintage-public-domain-cat-pictures-from-the-1834779933](https://lifehacker.com/ogle-these-vintage-public-domain-cat-pictures-from-the-1834779933)
+> 原文：<https://lifehacker.com/ogle-these-vintage-public-domain-cat-pictures-from-the-1834779933>
 
 国会图书馆拥有一个巨大的公共领域图像库，可以用于任何你想要的东西，包括商业用途。他们偶尔会从他们的 [数据库中挑选出超过 80 万张照片、印刷品和图画](https://www.loc.gov/photos/) 作为小型收藏。图书馆已经建立了 [28 个主题的图片收藏](https://www.loc.gov/free-to-use/) ，包括 [一个迷人的老式猫照片和图纸收藏](https://www.loc.gov/free-to-use/cats) 。这里有一些我们最喜欢的老猫。
 

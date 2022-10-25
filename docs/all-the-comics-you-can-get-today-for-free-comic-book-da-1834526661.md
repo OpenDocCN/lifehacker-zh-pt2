@@ -1,6 +1,6 @@
 # 今天免费漫画书日你能得到的所有漫画
 
-> 原文:[https://life hacker . com/all-the-comics-you-can-get-today-free-comic-book-da-1834526661](https://lifehacker.com/all-the-comics-you-can-get-today-for-free-comic-book-da-1834526661)
+> 原文：<https://lifehacker.com/all-the-comics-you-can-get-today-for-free-comic-book-da-1834526661>
 
 [免费漫画日](https://www.freecomicbookday.com/Article/222154-Free-Comic-Book-Day-2019-Full-List-of-Comic-Books-Announced) 是今天，5 月 4 日，这一天也正好是星球大战日。漫画零售今年共选择了 51 本免费书籍，12 本来自金牌赞助商，39 本来自银牌赞助商。
 

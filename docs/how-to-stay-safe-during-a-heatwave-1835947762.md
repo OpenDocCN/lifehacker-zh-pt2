@@ -1,6 +1,6 @@
 # 如何在热浪中保持安全
 
-> 原文:[https://life hacker . com/how-to-stay-safe-in-a-heat wave-1835947762](https://lifehacker.com/how-to-stay-safe-during-a-heatwave-1835947762)
+> 原文：<https://lifehacker.com/how-to-stay-safe-during-a-heatwave-1835947762>
 
 既然我们已经进入了一年中最热的时候，是时候谈谈热浪了——特别是如何在热浪中保持健康。与其试图坚持到底，不如采取一些预防措施。如果你或你要照顾的人属于高危人群，比如 65 岁及以上的老人、两岁及以下的儿童、孕妇或慢性病患者，这一点尤其正确。
 

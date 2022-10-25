@@ -1,6 +1,6 @@
 # 如何腌制冷冻蔬菜
 
-> 原文:[https://life hacker . com/how-to-泡菜-冷冻蔬菜-1841954582](https://lifehacker.com/how-to-pickle-frozen-vegetables-1841954582)
+> 原文：<https://lifehacker.com/how-to-pickle-frozen-vegetables-1841954582>
 
 腌制首先是保存食物的一种方式，但除非你有一个富有成果的(蔬菜？)花园，你很可能把它看作是一种使植物部分变得扑鼻可口的方法。这通常是用新鲜蔬菜做的，但是如果你想要的蔬菜不是当季的，你可以(很可能)用冷冻的。
 

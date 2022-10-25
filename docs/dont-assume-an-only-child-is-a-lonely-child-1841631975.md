@@ -1,6 +1,6 @@
 # 不要认为独生子女是孤独的孩子
 
-> 原文:[https://life hacker . com/don-assume-a-only-child-is-a-lonely-child-1841631975](https://lifehacker.com/dont-assume-an-only-child-is-a-lonely-child-1841631975)
+> 原文：<https://lifehacker.com/dont-assume-an-only-child-is-a-lonely-child-1841631975>
 
 我并没有打算做一个独生子女的父母；事情就是这样发展的。因为我丈夫、儿子和我在寄养家庭生活了几年，我儿子的独生子女身份对我来说可能比大多数父母更明显。对我的儿子来说，这不是不知道他错过了什么的问题——他有“兄弟”，他想念他们，他非常想要一个兄弟姐妹。
 

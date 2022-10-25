@@ -1,6 +1,6 @@
 # 让我们做一些臀部伸展运动
 
-> 原文:[https://life hacker . com/let-breathe-into-some-hip-opener-stretchs-1842428304](https://lifehacker.com/lets-breathe-into-some-hip-opener-stretches-1842428304)
+> 原文：<https://lifehacker.com/lets-breathe-into-some-hip-opener-stretches-1842428304>
 
 这几天世界有点乱，但是 Lifehacker 健身挑战赛还是一如既往的为你而来。这个月我们一直在练习柔韧性，现在我们已经学完了和 [脚踝灵活性](https://vitals.lifehacker.com/how-to-improve-your-ankle-mobility-for-squats-1842315361) 是时候打开我们的臀部了。
 

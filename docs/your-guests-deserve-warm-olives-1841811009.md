@@ -1,6 +1,6 @@
 # 你的客人应该得到热橄榄
 
-> 原文:[https://life hacker . com/your-guests-worth-warm-olives-1841811009](https://lifehacker.com/your-guests-deserve-warm-olives-1841811009)
+> 原文：<https://lifehacker.com/your-guests-deserve-warm-olives-1841811009>
 
 对于你的朋友来说，一碗橄榄棒橄榄是一种不错的小吃，特别是如果你有各种颜色、大小和腌制方法(皱纹油腌制的家伙是我目前的最爱)。没有人会对一碗室温橄榄生气，但是如果你想让你的客人感受到爱、关心和特别的照顾，在上菜前把橄榄加热一下。
 

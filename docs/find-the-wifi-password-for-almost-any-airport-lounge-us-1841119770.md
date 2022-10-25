@@ -1,6 +1,6 @@
 # 使用此免费地图查找几乎任何机场候机室的 WiFi 密码
 
-> 原文:[https://life hacker . com/find-the-wifi-password-for-almost-any-airport-lounge-us-1841119770](https://lifehacker.com/find-the-wifi-password-for-almost-any-airport-lounge-us-1841119770)
+> 原文：<https://lifehacker.com/find-the-wifi-password-for-almost-any-airport-lounge-us-1841119770>
 
 幸运的是，我们现在所处的位置是，美国大多数机场都以某种形式提供免费 WiFi。是的，有时你必须看广告才能到达那里，但它就在那里。
 

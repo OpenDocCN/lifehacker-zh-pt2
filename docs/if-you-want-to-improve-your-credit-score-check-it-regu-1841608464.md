@@ -1,6 +1,6 @@
 # 如果你想提高你的信用评分，定期检查
 
-> 原文:[https://life hacker . com/if-you-want-to-improve-your-credit-score-check-it-regu-1841608464](https://lifehacker.com/if-you-want-to-improve-your-credit-score-check-it-regu-1841608464)
+> 原文：<https://lifehacker.com/if-you-want-to-improve-your-credit-score-check-it-regu-1841608464>
 
 想知道如何增加你的信用评分？做出改进的第一步可能是简单的意识。
 

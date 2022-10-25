@@ -1,6 +1,6 @@
 # 在最新的 iOS 测试版中尝试 iPhone 11 的“深度融合”相机
 
-> 原文:[https://life hacker . com/try-the-iphone-11s-deep-fusion-camera-in-the-latest-IOs-1838744376](https://lifehacker.com/try-the-iphone-11s-deep-fusion-camera-in-the-latest-ios-1838744376)
+> 原文：<https://lifehacker.com/try-the-iphone-11s-deep-fusion-camera-in-the-latest-ios-1838744376>
 
 当它推出时，即将到来的 iOS 13.2 更新将为 iPhone 11 和 11 Pro 添加苹果的“深度融合”相机功能。Y 但是，现在可以通过下载 [iOS 13.2 beta](https://betaprofiles.com) 来访问这个功能。
 

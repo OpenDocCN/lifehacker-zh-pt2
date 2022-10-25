@@ -1,6 +1,6 @@
 # 你一年到头都需要脆炸洋葱
 
-> 原文:[https://life hacker . com/you-need-crisp-油炸洋葱-全年-1833037023](https://lifehacker.com/you-need-crispy-fried-onions-year-round-1833037023)
+> 原文：<https://lifehacker.com/you-need-crispy-fried-onions-year-round-1833037023>
 
 香脆的油炸洋葱是节日的标志，但它们香喷喷的葱蒜味可以给人带来一整年的快乐。即使你不是一年到头都在做砂锅菜，这些咸油炸食物也可以提升几乎任何一餐，从沙拉到小吃组合。
 

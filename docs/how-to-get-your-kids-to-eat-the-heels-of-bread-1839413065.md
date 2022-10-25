@@ -1,6 +1,6 @@
 # 如何骗你的孩子吃面包跟
 
-> 原文:[https://life hacker . com/how-to-get-your-kids-eat-the-heels of-bread-1839413065](https://lifehacker.com/how-to-get-your-kids-to-eat-the-heels-of-bread-1839413065)
+> 原文：<https://lifehacker.com/how-to-get-your-kids-to-eat-the-heels-of-bread-1839413065>
 
 一条面包的后跟——那些都是面包皮的末端部分——和面包的其他部分一样好。但祝你向一个四岁的孩子解释清楚。不要试图说服他们，只要把他们的三明治里里外外做出来，他们永远不会知道。
 

@@ -1,6 +1,6 @@
 # what can i do about my tonsil stones 1844791527
 
-> 原文:[https://life hacker . com/what-can-I-do-about my-tonsil-stones-1844791527](https://lifehacker.com/what-can-i-do-about-my-tonsil-stones-1844791527)
+> 原文：<https://lifehacker.com/what-can-i-do-about-my-tonsil-stones-1844791527>
 
 是时候开始另一期热点问题专栏了，在这个专栏中，我回答了一些你可能不想在谷歌历史中出现的健康问题。提醒一下，这不是医学建议，我也不是医生。今天，我们谈论扁桃体结石。
 

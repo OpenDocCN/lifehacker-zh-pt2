@@ -1,6 +1,6 @@
 # 为什么和前任上床不是个坏主意
 
-> 原文:[https://life hacker . com/why-being-with-your-ex-may-not-a-worthy-idea-1829839500](https://lifehacker.com/why-sleeping-with-your-ex-might-not-be-a-terrible-idea-1829839500)
+> 原文：<https://lifehacker.com/why-sleeping-with-your-ex-might-not-be-a-terrible-idea-1829839500>
 
 我们都同意，要忘掉前任，没有比和他们再睡一次更糟糕的主意了。或者两次以上。正确坏主意。除非...除非事实证明这对你有好处。
 

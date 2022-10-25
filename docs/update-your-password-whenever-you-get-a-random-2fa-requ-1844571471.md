@@ -1,6 +1,6 @@
 # 每当你得到一个随机的 2FA 请求时，更新你的密码
 
-> 原文:[https://life hacker . com/update-your-password-anywhere-you-get-a-random-2fa-requ-1844571471](https://lifehacker.com/update-your-password-whenever-you-get-a-random-2fa-requ-1844571471)
+> 原文：<https://lifehacker.com/update-your-password-whenever-you-get-a-random-2fa-requ-1844571471>
 
 每当您收到包含一些登录尝试的安全代码的文本或通知时，千万不要忽略它。如果您一开始就没有发起登录请求，那就更不可能了。
 

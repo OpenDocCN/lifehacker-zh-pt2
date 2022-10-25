@@ -1,6 +1,6 @@
 # 不要试图用伏特加制作洗手液
 
-> 原文:[https://life hacker . com/please-don-t-try-to-make-hand-sanitizer-using-vodka-1842189071](https://lifehacker.com/please-dont-try-to-make-hand-sanitizer-using-vodka-1842189071)
+> 原文：<https://lifehacker.com/please-dont-try-to-make-hand-sanitizer-using-vodka-1842189071>
 
 如果你在过去几周去了当地的杂货店或药店寻找洗手液，你可能会遇到问题。对冠状病毒的担忧导致洗手液几乎在任何地方都被抢购一空，如果你最近访问了社交媒体，几乎每个人都有一个你应该如何制作自己的配方。除非你不应该喝，尤其是伏特加。
 

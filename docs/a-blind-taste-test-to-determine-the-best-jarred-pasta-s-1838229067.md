@@ -1,6 +1,6 @@
 # 一个盲品测试来决定最好的意面酱
 
-> 原文:[https://the take out . com/a-blind-taste-test-to-determine-the-best-jarred-pasta-s-1838229067](https://thetakeout.com/a-blind-taste-test-to-determine-the-best-jarred-pasta-s-1838229067)
+> 原文：<https://thetakeout.com/a-blind-taste-test-to-determine-the-best-jarred-pasta-s-1838229067>
 
 买番茄酱是对我从小到大所做的一切的冒犯。我在一个你在流行文化中见过的意大利大家庭中长大:我们的家具被塑料覆盖。我们的谈话是以最大音量进行的。我们的 [周日晚餐](https://thetakeout.com/recipe-sunday-sauce-pasta-jersey-family-1831469548) 堪称史诗。商业制备的番茄酱对我来说是一个完全陌生的概念，这使我成为对几乎任何超市都能找到的八个品牌进行盲品测试的最佳人选。
 

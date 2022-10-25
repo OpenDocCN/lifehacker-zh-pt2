@@ -1,6 +1,6 @@
 # im beth skwarecki lifehacker health editor and this i 1838284294
 
-> 原文:[https://life hacker . com/im-Beth-skwarecki-life hacker-health-editor-and-this-I-1838284294](https://lifehacker.com/im-beth-skwarecki-lifehacker-health-editor-and-this-i-1838284294)
+> 原文：<https://lifehacker.com/im-beth-skwarecki-lifehacker-health-editor-and-this-i-1838284294>
 
 嗨，朋友们！这是 Lifehacker 的“我们如何工作”周。在这里呆的时间够长了，平常的题 [几个](https://vitals.lifehacker.com/how-we-work-out-2015-beth-skwareckis-gear-and-prod-1685733900) [次](https://vitals.lifehacker.com/how-we-work-2016-beth-skwarecki-s-gear-and-productivi-1759692265) [过](https://lifehacker.com/im-beth-skwarecki-lifehacker-health-editor-and-this-i-1828867791) 。因此，代替通常的电话/电脑/待办事项清单，我会给你一瞥我在健康和健身领域的习惯和惯例。
 

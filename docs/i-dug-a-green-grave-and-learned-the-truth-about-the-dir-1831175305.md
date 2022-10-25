@@ -1,6 +1,6 @@
 # i dug a green grave and learned the truth about the dir 1831175305
 
-> 原文:[https://gizmodo . com/I-dug-a-green-grave-and-learn-the-truth of-the-dir-1831175305](https://gizmodo.com/i-dug-a-green-grave-and-learned-the-truth-about-the-dir-1831175305)
+> 原文：<https://gizmodo.com/i-dug-a-green-grave-and-learned-the-truth-about-the-dir-1831175305>
 
 纽约州埃塞克斯郡——我和约翰·戴维斯站在他的墓前。这是他三年前在阿迪朗达克坚实的土地上挖的第一个坟墓，在一个被称为精神避难所的地方。他原计划葬在自己的土地上，但他对这个藏在柳树中间、松树后面的地方如此着迷，以至于他决定把它作为自己最后的安息之地。
 

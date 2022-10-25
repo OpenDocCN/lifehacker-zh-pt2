@@ -1,6 +1,6 @@
 # 带着苏联精神享受漫长的周末
 
-> 原文:[https://life hacker . com/slip-into-the long-weekend with a-Soviet-spritz-1844252480](https://lifehacker.com/slip-into-the-long-weekend-with-a-soviet-spritz-1844252480)
+> 原文：<https://lifehacker.com/slip-into-the-long-weekend-with-a-soviet-spritz-1844252480>
 
 我无法想象现在有谁会感到非常爱国。如果有一件事我们都同意的话，那就是美国的事情真的很糟糕，庆祝美国的感觉最好也不过是五音不全。 [我从来不觉得自己特别爱国](https://lifehacker.com/celebrate-independence-day-with-a-cosmonaut-1827219810) ，但我不会让这阻止我在漫长的周末喝酒。(不是现在，不是永远。)
 

@@ -1,6 +1,6 @@
 # 请不要使用布卫生纸
 
-> 原文:[https://life hacker . com/please-don-t-use-cloth-toilet-paper-1823649458](https://lifehacker.com/please-don-t-use-cloth-toilet-paper-1823649458)
+> 原文：<https://lifehacker.com/please-don-t-use-cloth-toilet-paper-1823649458>
 
 这个故事是在疫情之前写的——但现在我们在这里，囤积卫生纸，担心下一次短缺，尼克·道格拉斯的信息感觉更加及时，甚至紧迫。所以我们把这个给你，作为一个提醒，布卫生纸永远不应该被考虑。一切都很糟糕，但不是那么*糟糕。Eds。*
 

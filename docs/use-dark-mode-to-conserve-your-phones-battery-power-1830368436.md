@@ -1,6 +1,6 @@
 # 使用黑暗模式来保存你的手机电池电量
 
-> 原文:[https://life hacker . com/use-dark-mode-to-conserve-your-phones-battery-power-1830368436](https://lifehacker.com/use-dark-mode-to-conserve-your-phones-battery-power-1830368436)
+> 原文：<https://lifehacker.com/use-dark-mode-to-conserve-your-phones-battery-power-1830368436>
 
 我是夜晚或黑暗模式的超级粉丝，已经写了很多不同的应用程序和扩展，你可以用它们来让你的屏幕变暗。任何黑暗模式爱好者都会告诉你，如何在黑暗的背景下使用你的设备，而不是白色的背景，将节省你的眼睛和你的设备的电池电量。本周，谷歌更进了一步，讨论了通过关闭屏幕可以节省多少电池电量。
 

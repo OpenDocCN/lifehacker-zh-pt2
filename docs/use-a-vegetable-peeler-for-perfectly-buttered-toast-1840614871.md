@@ -1,6 +1,6 @@
 # 使用蔬菜削皮器来制作完美的黄油吐司
 
-> 原文:[https://life hacker . com/use-a-vegetable-peeler-for-perfect buttered-toast-1840614871](https://lifehacker.com/use-a-vegetable-peeler-for-perfectly-buttered-toast-1840614871)
+> 原文：<https://lifehacker.com/use-a-vegetable-peeler-for-perfectly-buttered-toast-1840614871>
 
 在这家店，我们努力让 [两种黄油](https://lifehacker.com/you-need-two-types-of-butter-in-your-kitchen-1837837122) 随时可用:便宜的烹饪黄油(保存在冰箱里)和零食黄油(保存在室温下，便于涂抹)。但我不是一个完美的人，有时我会忘记给黄油碟加满黄油，让我的厨房里没有可涂抹的零食黄油。
 

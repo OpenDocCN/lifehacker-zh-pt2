@@ -1,6 +1,6 @@
 # 如何消耗掉小孩子的能量
 
-> 原文:[https://life hacker . com/how-to-burn-off the little-kid-energy-1842620326](https://lifehacker.com/how-to-burn-off-that-little-kid-energy-1842620326)
+> 原文：<https://lifehacker.com/how-to-burn-off-that-little-kid-energy-1842620326>
 
 蹒跚学步的孩子们的父母们，我觉得有必要向你们问好:你们还好吗？所有这些小小的儿童能量在你的客厅里制造了一个漩涡，或者在你的厨房里制造了一个黑洞，或者——我不知道——让它们自燃了吗？现在一切似乎都有可能！
 

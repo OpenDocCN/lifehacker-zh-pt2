@@ -1,6 +1,6 @@
 # 今年九月，让我们骑自行车吧
 
-> 原文:[https://life hacker . com/this-September-let ' s-ride-our-bikes-1837912381](https://lifehacker.com/this-september-lets-ride-our-bikes-1837912381)
+> 原文：<https://lifehacker.com/this-september-lets-ride-our-bikes-1837912381>
 
 我们已经完成了跑步和游泳，所以让我们把九月的健身挑战集中在骑自行车上。如果你没有自行车，不要担心——室内自行车是非常允许的。今天，我们有一些给初学者的建议。
 

@@ -1,6 +1,6 @@
 # 如何观看今晚的 MST3K 现场即兴表演
 
-> 原文:[https://life hacker . com/how-to-watch-tonights-mst3k-live-riff-along-1843205827](https://lifehacker.com/how-to-watch-tonights-mst3k-live-riff-along-1843205827)
+> 原文：<https://lifehacker.com/how-to-watch-tonights-mst3k-live-riff-along-1843205827>
 
 神秘科学剧场 3000 现在应该正在进行现场巡演。由于疫情已经推迟了这个计划，以及几乎所有的事情，创作者们决定暂时把事情放到网上。
 

@@ -1,6 +1,6 @@
 # 使用半流行应用程序删除你的推文，同时保留你的收藏
 
-> 原文:[https://life hacker . com/use-the-semi phermal-app-to-delete-your-tweets-while-ke-1835486372](https://lifehacker.com/use-the-semiphemeral-app-to-delete-your-tweets-while-ke-1835486372)
+> 原文：<https://lifehacker.com/use-the-semiphemeral-app-to-delete-your-tweets-while-ke-1835486372>
 
 删除你的推文有很多很好的理由，但我一直犹豫要不要扣动扳机。虽然这个想法在纸上是有道理的，但我知道有些事情我会后悔抹去。我们之前推荐过清除你 Twitter 的服务，但据我所知，它们都是删除你的全部历史。要么全有，要么全无。
 

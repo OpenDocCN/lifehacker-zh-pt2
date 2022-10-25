@@ -1,6 +1,6 @@
 # 问咸的女服务员:为什么我不能有好的桌子？
 
-> 原文:[https://the take out . com/why-t-I-can-the-good-table-at-the-restaurant-1829942524](https://thetakeout.com/why-can-t-i-have-the-good-table-at-the-restaurant-1829942524)
+> 原文：<https://thetakeout.com/why-can-t-i-have-the-good-table-at-the-restaurant-1829942524>
 
 > 上周五，我带妈妈去了一家小法国餐厅庆祝她的生日。只有我们两个人(我父亲去世了，我的兄弟们，老实说，都是些不愿穿有领衬衫的游手好闲的人)。无论如何，我们已经预订了，尽管在这个对老年人友好的早晚餐时间，餐馆并不太忙。女主人让我们坐在靠墙的一张双人小桌子旁，但我看到餐厅中间有一张更宽敞的桌子——为两人准备的——空着。我问我们是否可以坐在那里。女人说没有，说是被救了。在我们吃饭的整个 90 分钟里，我没有看到任何人坐在那里。怎么回事？为什么我们没有漂亮的桌子？
 > 

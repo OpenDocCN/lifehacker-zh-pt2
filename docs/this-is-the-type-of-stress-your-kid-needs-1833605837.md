@@ -1,6 +1,6 @@
 # 这是你的孩子需要的压力类型
 
-> 原文:[https://life hacker . com/this-is-the-type of-stress-your-kid-needs-1833605837](https://lifehacker.com/this-is-the-type-of-stress-your-kid-needs-1833605837)
+> 原文：<https://lifehacker.com/this-is-the-type-of-stress-your-kid-needs-1833605837>
 
 当我们站在评委室的门外时，我八岁女儿手里抓着的乐谱明显在颤抖。我鼓励她尝试一首真正挑战她的钢琴曲，她为此挣扎了几个月。她在演出前几天特别紧张，以至于我想让她退出。我是不是把她逼得太紧了？
 

@@ -1,6 +1,6 @@
 # 如何创建便携式版本的 Cinebench R20
 
-> 原文:[https://life hacker . com/how-to-create-a-portable-version-of-cinebench-r20-1833201374](https://lifehacker.com/how-to-create-a-portable-version-of-cinebench-r20-1833201374)
+> 原文：<https://lifehacker.com/how-to-create-a-portable-version-of-cinebench-r20-1833201374>
 
 我很高兴读到上周 Cinebench R20 的发布。这是我说过的最令人讨厌的话之一，但这仍然是事实。这款免费的基准测试应用非常适合测试你的电脑，如果你想知道它的运行速度(以及它与其他系统相比的表现)。
 

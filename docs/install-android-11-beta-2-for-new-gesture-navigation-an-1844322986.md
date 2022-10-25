@@ -1,6 +1,6 @@
 # 安装 Android 11 Beta 2 以获得新的手势导航等功能
 
-> 原文:[https://life hacker . com/install-Android-11-beta-2-for-new-gesture-navigation-an-1844322986](https://lifehacker.com/install-android-11-beta-2-for-new-gesture-navigation-an-1844322986)
+> 原文：<https://lifehacker.com/install-android-11-beta-2-for-new-gesture-navigation-an-1844322986>
 
 Android 11 beta 2 来了。这意味着我们离发布预览版只有一个测试版了，也就是所谓的“如果你想在尽可能稳定的环境中尝试新特性，你想要得到的测试版。”从那里开始，它就到了 Android 11 最终版本。如此接近！
 

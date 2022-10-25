@@ -1,6 +1,6 @@
 # 不是所有的东西都需要优化
 
-> 原文:[https://life hacker . com/not-everything-need-to-be-optimized-1830411135](https://lifehacker.com/not-everything-needs-to-be-optimized-1830411135)
+> 原文：<https://lifehacker.com/not-everything-needs-to-be-optimized-1830411135>
 
 只需点击几下键盘，你就能找到数百种意见，讨论出最好的生活方式和行为方式。旅行，花钱，投资，高效，安排你的一天，听音乐，腌制火鸡——每件事都有正确和错误的方式，上帝禁止你使用错误的信用卡或错误地写一封电子邮件，因为你可以支配的资源范围很广。有了这么多关于如何优化一切的信息，就没有借口去做专家认为不合标准的事情了。如果你选择了一条谷歌地图不推荐的路线，并且比你按照人工智能的指示到达目的地晚了四分钟，会怎么样？你好。
 

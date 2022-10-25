@@ -1,6 +1,6 @@
 # 我如何把我的前朋友踢出我们共享的谷歌账户？
 
-> 原文:[https://life hacker . com/how-do-I-kick-my-ex-friend-out-of-our-shared-Google-ACC-1833639741](https://lifehacker.com/how-do-i-kick-my-ex-friend-out-of-our-shared-google-acc-1833639741)
+> 原文：<https://lifehacker.com/how-do-i-kick-my-ex-friend-out-of-our-shared-google-acc-1833639741>
 
 在所有关于苹果新的“附加”服务 的家庭共享的谈论中，以及前几天我终于在我的电视上设置了我家的共享网飞账户的事实中，我想了很多关于如何最小化我的技术需求的财务影响。这总是会导致我和室友们的对话，在对话中我会衡量他们可能愿意为我*真正想要的服务贡献多少(反之亦然)。* 
 

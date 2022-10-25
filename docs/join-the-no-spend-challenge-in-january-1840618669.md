@@ -1,6 +1,6 @@
 # 参加一月份的零花费挑战
 
-> 原文:[https://life hacker . com/join-the-no-spend-challenge-in-January-1840618669](https://lifehacker.com/join-the-no-spend-challenge-in-january-1840618669)
+> 原文：<https://lifehacker.com/join-the-no-spend-challenge-in-january-1840618669>
 
 当我们准备好迎接新的一年时，让我们在今年一月做一个零开销的挑战。如果你已经读了一段时间的《两分钱》，你可能会想，“女士， [我们去年做了这个](https://lifehacker.com/a-new-years-resolution-that-will-actually-improve-your-1831321233) 。追上去。”我知道！所以我想再来一次。
 

@@ -1,6 +1,6 @@
 # 如何在 Waze 中让 Cookie Monster 成为你的导航语音
 
-> 原文:[https://life hacker . com/how-to-make-cookie-monster-your-navigation-voice-in-waz-1836584967](https://lifehacker.com/how-to-make-cookie-monster-your-navigation-voice-in-waz-1836584967)
+> 原文：<https://lifehacker.com/how-to-make-cookie-monster-your-navigation-voice-in-waz-1836584967>
 
 桑德斯上校在我的车里为我的每一个转弯指示配音的那几个月，是我开车时最喜欢的时光。几年后，C-390 帮助我穿越了这个国家，这也很有趣，但他关于道路建设的笑话几乎让我在新墨西哥州得到了一张罚单(说来话长，我当时在笑，警察以为我在做别的事情)，所以他很快就被解雇了。
 

@@ -1,6 +1,6 @@
 # 从你的 Android 手机中删除这些被禁止的应用
 
-> 原文:[https://life hacker . com/delete-these-banned-apps-from-your-Android-1836494919](https://lifehacker.com/delete-these-banned-apps-from-your-android-1836494919)
+> 原文：<https://lifehacker.com/delete-these-banned-apps-from-your-android-1836494919>
 
 谷歌最近从谷歌 Play 商店移除了几个应用程序，因为发现它们违反了 Play Store 的服务条款——更重要的是，它们可能被用作跟踪软件。不过，这并不意味着它们已经从你的安卓设备上删除了，所以现在是删除它们的好时机。
 

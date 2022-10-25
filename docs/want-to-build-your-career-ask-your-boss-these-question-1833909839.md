@@ -1,6 +1,6 @@
 # 想建立自己的事业？问你的老板这些问题
 
-> 原文:[https://life hacker . com/want-to-build-your-career-ask-your-boss-these-question-1833909839](https://lifehacker.com/want-to-build-your-career-ask-your-boss-these-question-1833909839)
+> 原文：<https://lifehacker.com/want-to-build-your-career-ask-your-boss-these-question-1833909839>
 
 你如何从你的老板那里得到高质量的反馈——你如何让你的老板投资帮助你建立职业生涯？
 

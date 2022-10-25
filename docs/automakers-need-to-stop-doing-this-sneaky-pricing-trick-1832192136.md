@@ -1,6 +1,6 @@
 # 汽车制造商需要停止在他们的网站上做这种偷偷摸摸的定价把戏
 
-> 原文:[https://jalopnik . com/automobile makers-need-stop-do-this-sneaky-pricing-trick-1832192136](https://jalopnik.com/automakers-need-to-stop-doing-this-sneaky-pricing-trick-1832192136)
+> 原文：<https://jalopnik.com/automakers-need-to-stop-doing-this-sneaky-pricing-trick-1832192136>
 
 当决定买一辆新车时，价格并不是一切。但这是一个大问题。几乎每个人都在网上研究汽车，甚至在进入经销商之前，使用汽车制造商的网站为汽车配置他们想要的选项和功能。问题是一些品牌在公布汽车总成本时有点偷偷摸摸。
 

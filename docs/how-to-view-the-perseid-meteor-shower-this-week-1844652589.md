@@ -1,6 +1,6 @@
 # 如何看待本周的英仙座流星雨
 
-> 原文:[https://life hacker . com/how-to-view-the-perseid-meteor-shower-this-week-1844652589](https://lifehacker.com/how-to-view-the-perseid-meteor-shower-this-week-1844652589)
+> 原文：<https://lifehacker.com/how-to-view-the-perseid-meteor-shower-this-week-1844652589>
 
 一年一度的英仙座流星雨在本周达到顶峰，所以现在是时候计划你逃到 [一个开阔天空](https://lifehacker.com/heres-where-you-can-still-find-a-pristine-night-sky-1837028406) 下的黑暗点。
 

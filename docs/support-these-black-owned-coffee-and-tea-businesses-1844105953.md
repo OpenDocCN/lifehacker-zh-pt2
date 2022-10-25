@@ -1,6 +1,6 @@
 # 支持这些黑人拥有的咖啡和茶叶生意
 
-> 原文:[https://life hacker . com/support-these-black-owned-coffee-and-tea-business-1844105953](https://lifehacker.com/support-these-black-owned-coffee-and-tea-businesses-1844105953)
+> 原文：<https://lifehacker.com/support-these-black-owned-coffee-and-tea-businesses-1844105953>
 
 即使你习惯了——并且忠诚于——一家特定的咖啡连锁店，也可以扩大你的视野，尝试一家当地的独立咖啡店。既然你这么做了，为什么不把它变成黑人的生意呢？如果你正在你的地区寻找一个新的地方喝咖啡或喝茶(或者知道当你最终再次旅行时去哪里)，这里有全国各地许多黑人拥有的咖啡店。
 

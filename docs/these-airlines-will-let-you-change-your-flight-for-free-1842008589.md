@@ -1,6 +1,6 @@
 # 这些航空公司会因为冠状病毒让你免费改签航班
 
-> 原文:[https://life hacker . com/these-airlines-will-let-you-change-you-flight-1842008589](https://lifehacker.com/these-airlines-will-let-you-change-your-flight-for-free-1842008589)
+> 原文：<https://lifehacker.com/these-airlines-will-let-you-change-your-flight-for-free-1842008589>
 
 周二我应该会飞往马尔代夫。我说“应该”是因为上周五，我发现我飞往韩国的航班被航空公司取消了，原因是我将在韩国停留两个小时，韩国目前是受新冠肺炎病毒(又称冠状病毒)影响最严重的地区之一。
 

@@ -1,6 +1,6 @@
 # 经销商提供的终身保修有什么好处吗？
 
-> 原文:[https://jalopnik . com/is-these-lifetime-warranties-from-dealers-any-good-1839351651](https://jalopnik.com/are-those-lifetime-warranties-from-dealers-any-good-1839351651)
+> 原文：<https://jalopnik.com/are-those-lifetime-warranties-from-dealers-any-good-1839351651>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。我决定挑几个问题，试着帮帮大家。本周，我们将讨论终身保修优惠、2.5 万美元以下的大型豪华轿车以及复杂的多车情况。
 

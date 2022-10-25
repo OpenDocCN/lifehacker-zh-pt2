@@ -1,6 +1,6 @@
 # 最好的锅酱主要是黄油
 
-> 原文:[https://life hacker . com/the-best-pan-sauce-is-most-butter-1841047008](https://lifehacker.com/the-best-pan-sauce-is-mostly-butter-1841047008)
+> 原文：<https://lifehacker.com/the-best-pan-sauce-is-mostly-butter-1841047008>
 
 一个人可能会对平底锅酱汁变得很挑剔。(拿我来说， [这个](https://skillet.lifehacker.com/how-to-make-a-freaking-pan-sauce-1795277933) 我是有罪的。)各种增稠剂、芳香剂，甚至奶油都给平底锅带来了一定的魅力，但我最喜欢(顺便说一下，也是最容易)做的平底锅酱主要是黄油。
 

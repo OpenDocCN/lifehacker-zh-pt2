@@ -1,6 +1,6 @@
 # 除了 Goodreads 还有其他选择
 
-> 原文:[https://life hacker . com/there-are-alternatives-to-good reads-1844846066](https://lifehacker.com/there-are-alternatives-to-goodreads-1844846066)
+> 原文：<https://lifehacker.com/there-are-alternatives-to-goodreads-1844846066>
 
 我在 2008 年创建了我的 Goodreads 个人资料。当时它还是一个小网站，在 2007 年刚刚推出，但它很快改变了我跟踪阅读的方式。这个想法简单明了，给读者一种方法来记录他们拥有的、读过的或想读的书，并通过评论和留言板与更广泛的书迷群体互动。对我来说，这个网站提供了一个简单的方法来跟踪我读过但没有拥有的书——这是很多，因为我经常使用图书馆或从朋友那里借，很少有钱来建立我的书架。不幸的是，曾经简单的快乐会变成图书世界中一股难以驾驭且经常令人沮丧的力量。
 

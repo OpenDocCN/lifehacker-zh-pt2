@@ -1,6 +1,6 @@
 # 允许自己享受预先包装好的零食
 
-> 原文:[https://life hacker . com/allow-yourself-the luxury of-pre packaged-零食-1844827898](https://lifehacker.com/allow-yourself-the-luxury-of-prepackaged-snacks-1844827898)
+> 原文：<https://lifehacker.com/allow-yourself-the-luxury-of-prepackaged-snacks-1844827898>
 
 这是(某种程度上，也许是)返校季，今年比往年更有趣，也更有压力。根据你居住的地方，你可能会带着面具送你的孩子去学校或者让他们呆在家里通过 Chromebook 学习。也许是两者的混合。无论哪种方式，它可能都很糟糕，这就是为什么我认为你应该继续前进，让你生活的一个小方面变得更容易，并购买一些预包装的零食。
 

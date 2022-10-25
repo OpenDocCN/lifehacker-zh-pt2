@@ -1,6 +1,6 @@
 # 如何向你的 Airbnb 房东要求折扣
 
-> 原文:[https://life hacker . com/how-to-ask-your-Airbnb-host-for-a-discount-1844056675](https://lifehacker.com/how-to-ask-your-airbnb-host-for-a-discount-1844056675)
+> 原文：<https://lifehacker.com/how-to-ask-your-airbnb-host-for-a-discount-1844056675>
 
 也许你还不喜欢离家太远的冒险，但是你已经做好了公路旅行和改变风景的准备。太好了——但是我在你预定房间之前会看两遍。你也许能省下一点钱，然后再投入到你的旅行预算中。根据 [的克里斯·董(Chris Dong)所说，积分专家](https://thepointsguy.com/guide/how-to-negotiate-airbnb/) 的秘密是向你的 Airbnb 房东索要折扣。董(音译)写道:“许多旅行社已经仔细考虑了他们的定价，尤其是考虑到的情况，他们希望能从旅游低迷中弥补一些收入损失。“然而，这并不意味着你完全不能谈判。”
 

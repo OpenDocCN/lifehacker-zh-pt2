@@ -1,6 +1,6 @@
 # 如何在家中使用旅行配件
 
-> 原文:[https://life hacker . com/how-to-use-your-travel-accessories-in-home-1843134914](https://lifehacker.com/how-to-use-your-travel-accessories-at-home-1843134914)
+> 原文：<https://lifehacker.com/how-to-use-your-travel-accessories-at-home-1843134914>
 
 虽然我们中的大多数人暂时不坐飞机，不自驾游，也不入住酒店，但我们仍然可以利用我们收集的所有旅行配件，让我们的生活在旅途中更加轻松。
 

@@ -1,6 +1,6 @@
 # 谷歌 Pixel Slate 是 Chrome 操作系统对 iPad 的杰出回应
 
-> 原文:[https://gizmodo . com/the-Google-pixel-slate-is-a-brilliant-chrome-OS-respons-1830679518](https://gizmodo.com/the-google-pixel-slate-is-a-brilliant-chrome-os-respons-1830679518)
+> 原文：<https://gizmodo.com/the-google-pixel-slate-is-a-brilliant-chrome-os-respons-1830679518>
 
 Chromebooks 不应该花很多钱。 [这是我们喜欢他们的一大原因](https://gizmodo.com/why-i-bought-a-chromebook-instead-of-a-mac-1778403065#_ga=2.237087750.768447776.1543244064-171684553.1542638922) ！它们总是足够好*，*，而且总是很便宜——想想不到 500 美元。但搭载最新版本 Chrome 操作系统的 Pixel Slate 为价格更高的 chromebook 提供了一个近乎完美的案例。这款平板电脑可以变成一台笔记本电脑，外加一个 160 至 200 美元的配件，起价 600 美元，无论是作为笔记本电脑还是平板电脑，它的表现都非常好，让人觉得它几乎总是物有所值。
 

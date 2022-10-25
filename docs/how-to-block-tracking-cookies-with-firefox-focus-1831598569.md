@@ -1,6 +1,6 @@
 # 如何用 Firefox Focus 阻止跟踪 Cookies
 
-> 原文:[https://life hacker . com/how-to-block-tracking-cookies-with-Firefox-focus-1831598569](https://lifehacker.com/how-to-block-tracking-cookies-with-firefox-focus-1831598569)
+> 原文：<https://lifehacker.com/how-to-block-tracking-cookies-with-firefox-focus-1831598569>
 
 **iOS/Android:** 如果你更关心数据隐私，你应该检查一下 Firefox Focus for[iOS](https://itunes.apple.com/us/app/firefox-focus-privacy-browser/id1055677337?mt=8)或 [Android](https://play.google.com/store/apps/details?id=org.mozilla.focus&hl=en_US) 。这款以隐私为主题的移动浏览器让您能够很好地控制浏览会话与您访问的网站共享的数据。最重要的是，它的大多数反跟踪功能在默认情况下是启用的:
 

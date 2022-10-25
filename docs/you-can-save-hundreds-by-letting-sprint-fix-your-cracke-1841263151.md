@@ -1,6 +1,6 @@
 # 让 Sprint 来修理你坏掉的三星手机，你可以省下数百美元
 
-> 原文:[https://life hacker . com/you-can-save-bain-by-let-sprint-fix-your-cracke-1841263151](https://lifehacker.com/you-can-save-hundreds-by-letting-sprint-fix-your-cracke-1841263151)
+> 原文：<https://lifehacker.com/you-can-save-hundreds-by-letting-sprint-fix-your-cracke-1841263151>
 
 如今，斯普林特感觉非常慷慨。如果你一直在处理你的三星手机屏幕破裂的问题，运营商正在提供一个特别的促销活动，只需 50 美元就可以修复所述屏幕——与你在三星授权的维修中心花费数百美元的相比，这是一个巨大的节省。
 

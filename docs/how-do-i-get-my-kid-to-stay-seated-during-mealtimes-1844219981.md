@@ -1,6 +1,6 @@
 # how do i get my kid to stay seated during mealtimes 1844219981
 
-> 原文:[https://life hacker . com/how-do-I-get-my-kid-stay-in-mean time-1844219981](https://lifehacker.com/how-do-i-get-my-kid-to-stay-seated-during-mealtimes-1844219981)
+> 原文：<https://lifehacker.com/how-do-i-get-my-kid-to-stay-seated-during-mealtimes-1844219981>
 
 每位父母都有他们独特的争论点:一件应该简单的事情——对其他父母来说*就是*简单——然而对他们来说却从来不容易。睡觉时从不疲倦的孩子。一个从第一天起就讨厌汽车座椅的孩子。无论如何都拒绝坐在婴儿车里的蹒跚学步的孩子。当然，还有吃饭时不想合作的孩子。
 

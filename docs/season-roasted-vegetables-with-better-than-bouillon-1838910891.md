@@ -1,6 +1,6 @@
 # 用比肉汤更好的调料给烤蔬菜调味
 
-> 原文:[https://life hacker . com/season-baked-vegetables with-better-bouillon-1838910891](https://lifehacker.com/season-roasted-vegetables-with-better-than-bouillon-1838910891)
+> 原文：<https://lifehacker.com/season-roasted-vegetables-with-better-than-bouillon-1838910891>
 
 现在天气正式冷到我可以在家里穿运动衫了，这意味着天气冷到可以 [烤蔬菜](https://lifehacker.com/why-roasting-vegetables-is-the-best-way-to-cook-them-1797605912) 。烤土豆、胡萝卜、抱子甘蓝和所有其他类型的植物加一点油、盐和胡椒都很好，但为了得到更浓郁、更复杂的味道，我喜欢加一点 [比肉汤](https://www.betterthanbouillon.com/our-products/?group=premium) 更好。
 

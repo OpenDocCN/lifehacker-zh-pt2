@@ -1,6 +1,6 @@
 # 支票初学者指南
 
-> 原文:[https://life hacker . com/the-beginners-guide-to-checks-1843347581](https://lifehacker.com/the-beginners-guide-to-checks-1843347581)
+> 原文：<https://lifehacker.com/the-beginners-guide-to-checks-1843347581>
 
 支票:它们是如此的 20 世纪，却仍然在我们的生活中浮动。有时候，它们是绝对必要的。
 

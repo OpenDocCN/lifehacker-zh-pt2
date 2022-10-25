@@ -1,6 +1,6 @@
 # 关闭 Venmo 上的位置访问以避免您的地址被共享
 
-> 原文:[https://life hacker . com/turn-off-location-access-on-venmo-to-avoid-have-your-1841890499](https://lifehacker.com/turn-off-location-access-on-venmo-to-avoid-having-your-1841890499)
+> 原文：<https://lifehacker.com/turn-off-location-access-on-venmo-to-avoid-having-your-1841890499>
 
 我们之前已经告诉过你 [把你的 Venmo 设置改成私人](https://lifehacker.com/we-are-actually-begging-you-to-make-your-venmo-transact-1840412474) 这样全世界都不知道你在缠着你的哪个朋友把上周末的电影票钱还给你。
 

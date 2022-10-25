@@ -1,6 +1,6 @@
 # 如何查看受加州野火影响的朋友
 
-> 原文:[https://life hacker . com/how-to-check-on-friends-impact-by-californias-wild fire-1830363604](https://lifehacker.com/how-to-check-on-friends-impacted-by-californias-wildfir-1830363604)
+> 原文：<https://lifehacker.com/how-to-check-on-friends-impacted-by-californias-wildfir-1830363604>
 
 随着野火继续肆虐加利福尼亚的部分地区，看望在该地区的朋友和家人通常是一件困难的事情。成千上万的人不得不撤离家园，许多被撤离的人可能无法正常上网或给手机充电，无法让人们知道他们没事。
 

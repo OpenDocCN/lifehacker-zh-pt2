@@ -1,6 +1,6 @@
 # 三星 Galaxy A50 评论:新的预算智能手机击败
 
-> 原文:[https://gizmodo . com/Samsung-galaxy-a50-review-the-new-budget-smart phone-to-1836488108](https://gizmodo.com/samsung-galaxy-a50-review-the-new-budget-smartphone-to-1836488108)
+> 原文：<https://gizmodo.com/samsung-galaxy-a50-review-the-new-budget-smartphone-to-1836488108>
 
 在这一点上，每个人至少都知道三星的旗舰 Galaxy S 手机，如 [Galaxy S10 和 S10+](https://gizmodo.com/samsung-galaxy-s10-review-an-android-champ-to-get-exci-1833080698) ，以及其略便宜的兄弟姐妹，750 美元的 [Galaxy S10e](https://gizmodo.com/samsung-galaxy-s10e-review-cheaper-smaller-just-righ-1833149084) 。然而，一旦你在这些之外寻找更实惠的东西，三星的产品组合很快就会变得一团糟。
 

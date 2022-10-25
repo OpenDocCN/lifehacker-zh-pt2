@@ -1,6 +1,6 @@
 # 如果你在旅行中迷路了该怎么办
 
-> 原文:[https://life hacker . com/what-do-if you-what-do-if you-lost-while travel-1844051119](https://lifehacker.com/what-to-do-if-you-get-lost-while-traveling-1844051119)
+> 原文：<https://lifehacker.com/what-to-do-if-you-get-lost-while-traveling-1844051119>
 
 旅行中有各种各样的方式会让你迷路。你在火车上睡着了，错过了很多站，当你醒来的时候，火车已经不再服务了。你的手机没电了，谷歌或苹果地图不再是一个选择。也许你的手机彻底丢了——你唯一的地图也不见了。
 

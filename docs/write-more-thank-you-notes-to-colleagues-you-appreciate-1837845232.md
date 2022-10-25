@@ -1,6 +1,6 @@
 # 给你欣赏的同事写更多的感谢信
 
-> 原文:[https://life hacker . com/write-more-thank-you-aware-notes-to-colleges-1837845232](https://lifehacker.com/write-more-thank-you-notes-to-colleagues-you-appreciate-1837845232)
+> 原文：<https://lifehacker.com/write-more-thank-you-notes-to-colleagues-you-appreciate-1837845232>
 
 专业交流包括很多感谢。对于电子邮件来说，这是一个必不可少的结尾，即使是那些不需要收件人采取行动的邮件。但是，你上一次在 37 封邮件之外坐下来给同事写感谢信是什么时候？
 

@@ -1,6 +1,6 @@
 # 如何在脸书的新设计中“强制”一个按时间顺序排列的提要
 
-> 原文:[https://life hacker . com/how-to-force-a-chronological-feed-in-face books-new-desi-1842426847](https://lifehacker.com/how-to-force-a-chronological-feed-in-facebooks-new-desi-1842426847)
+> 原文：<https://lifehacker.com/how-to-force-a-chronological-feed-in-facebooks-new-desi-1842426847>
 
 新脸书在这里，但一个新的按时间顺序排列的新闻源却没有——除非有一个聪明的小技巧。
 

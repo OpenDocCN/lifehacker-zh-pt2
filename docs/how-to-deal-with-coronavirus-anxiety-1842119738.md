@@ -1,6 +1,6 @@
 # 如何应对冠状病毒焦虑
 
-> 原文:[https://life hacker . com/how-to-deal-to-dealing-coronavirus-anxiety-1842119738](https://lifehacker.com/how-to-deal-with-coronavirus-anxiety-1842119738)
+> 原文：<https://lifehacker.com/how-to-deal-with-coronavirus-anxiety-1842119738>
 
 如果新冠肺炎疫情让你更频繁地查看新闻，或者问自己是否该储备食物或药物，取消旅行，或者准备在家工作，你并不孤单。
 

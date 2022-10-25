@@ -1,6 +1,6 @@
 # 用浸泡过酒精的干果装饰你的鸡尾酒
 
-> 原文:[https://life hacker . com/decorize-your-cocktails-with-bounce-sopped-dry-fruit-1843184967](https://lifehacker.com/garnish-your-cocktails-with-booze-soaked-dried-fruit-1843184967)
+> 原文：<https://lifehacker.com/garnish-your-cocktails-with-booze-soaked-dried-fruit-1843184967>
 
 货架稳定是这些天的时尚，去商店买水果鸡尾酒装饰并不是大多数人认为的“必要的”如果你没有新鲜的柑橘，你的鸡尾酒樱桃也越来越少，去拿些干果，然后浸泡在酒里。
 

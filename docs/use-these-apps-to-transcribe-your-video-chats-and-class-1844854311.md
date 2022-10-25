@@ -1,6 +1,6 @@
 # 使用这些应用程序来转录您的视频聊天和课程
 
-> 原文:[https://life hacker . com/use-these-apps-to-transcripte-your-video-chats-and-class-1844854311](https://lifehacker.com/use-these-apps-to-transcribe-your-video-chats-and-class-1844854311)
+> 原文：<https://lifehacker.com/use-these-apps-to-transcribe-your-video-chats-and-class-1844854311>
 
 虽然更聪明的学校关闭校园并转向虚拟学习很糟糕，但这种转变有一个很大的好处:做笔记、录音和自动创建在线课程和会议的完整副本要容易得多。
 

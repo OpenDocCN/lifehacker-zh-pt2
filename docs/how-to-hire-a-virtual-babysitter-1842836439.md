@@ -1,6 +1,6 @@
 # 如何雇佣虚拟保姆
 
-> 原文:[https://life hacker . com/how-to-hire-a-virtual-保姆-1842836439](https://lifehacker.com/how-to-hire-a-virtual-babysitter-1842836439)
+> 原文：<https://lifehacker.com/how-to-hire-a-virtual-babysitter-1842836439>
 
 那些同时进行的“在家工作”和“养育子女”对你来说怎么样？如果你能时不时地从保姆那里得到一点帮助，那不是很好吗？我们甚至不再关心约会之夜了；不用在任何特定的时刻不停地扮演两个截然不同的角色，那就太好了。
 

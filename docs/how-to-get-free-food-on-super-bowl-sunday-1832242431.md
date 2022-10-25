@@ -1,6 +1,6 @@
 # 如何在超级碗周日获得免费食物
 
-> 原文:[https://life hacker . com/how-to-get-free-food-on-super-bowl-Sunday-1832242431](https://lifehacker.com/how-to-get-free-food-on-super-bowl-sunday-1832242431)
+> 原文：<https://lifehacker.com/how-to-get-free-food-on-super-bowl-sunday-1832242431>
 
 这是一年中最美好的时光！不，不是圣诞节——是超级碗！
 

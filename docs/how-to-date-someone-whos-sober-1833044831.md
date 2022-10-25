@@ -1,6 +1,6 @@
 # 如何和清醒的人约会
 
-> 原文:[https://life hacker . com/how-date-someone-whos-sober-1833044831](https://lifehacker.com/how-to-date-someone-whos-sober-1833044831)
+> 原文：<https://lifehacker.com/how-to-date-someone-whos-sober-1833044831>
 
 约会本来就很难。对于那些正在从药物滥用中恢复的人，或者干脆不喝酒的人来说，可能会更难。毕竟，在第一次约会时进行这样的谈话并不容易，而且当不可能选择在酒吧约会时，这可能会使最初的几次外出变得复杂。
 

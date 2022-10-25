@@ -1,6 +1,6 @@
 # 疾控中心正式确认维生素 E 醋酸酯是引起蒸发性疾病的主要嫌疑人
 
-> 原文:[https://life hacker . com/the-CDC-just-confirm-the-vitamin-e-acetate-is-they-1839723177](https://lifehacker.com/the-cdc-just-confirmed-that-vitamin-e-acetate-is-their-1839723177)
+> 原文：<https://lifehacker.com/the-cdc-just-confirmed-that-vitamin-e-acetate-is-their-1839723177>
 
 美国疾病控制和预防中心今天宣布，他们终于同意了关于导致他们称之为[EVALI](https://www.cdc.gov/media/releases/2019/p1028-first-analysis-lung-injury-deaths.html)vape 疾病的主要理论 :醋酸维生素 E，主要存在于 THC vapes 中。一种新的肺液取样技术显示，所有接受测试的患者——来自 10 个州的 29 人的方便样本——在他们的肺部都有维生素 E 醋酸酯。
 

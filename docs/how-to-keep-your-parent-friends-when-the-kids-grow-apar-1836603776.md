@@ -1,6 +1,6 @@
 # 当孩子逐渐疏远时，如何维系你的父母朋友
 
-> 原文:[https://life hacker . com/how-to-keep-your-parent-friends-when-the-kids-grow-APAR-1836603776](https://lifehacker.com/how-to-keep-your-parent-friends-when-the-kids-grow-apar-1836603776)
+> 原文：<https://lifehacker.com/how-to-keep-your-parent-friends-when-the-kids-grow-apar-1836603776>
 
 你的孩子交了个朋友。你见到了朋友的父母。你很喜欢那个家长。你开始安排玩耍的时间，主要是为了孩子，也是为了你自己。然后你的伴侣相遇，他们互相喜欢，这意味着现在你们可以一起在后院烧烤、野营和水上乐园度过周末，生活从未如此完美。
 

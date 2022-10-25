@@ -1,6 +1,6 @@
 # 如何在周日观看纳斯卡的可口可乐 600
 
-> 原文:[https://life hacker . com/how-to-watch-nascars-coca-cola-600-on-Sunday-1843629063](https://lifehacker.com/how-to-watch-nascars-coca-cola-600-on-sunday-1843629063)
+> 原文：<https://lifehacker.com/how-to-watch-nascars-coca-cola-600-on-sunday-1843629063>
 
 纳斯卡上周末正式回归，周日它将举行另一场比赛:标志性的可口可乐 600，这是过去 8 天的第三场比赛。
 

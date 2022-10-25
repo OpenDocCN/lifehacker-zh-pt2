@@ -1,6 +1,6 @@
 # 不要从迷因中获取营养信息
 
-> 原文:[https://life hacker . com/dont-get-your-nutrition-information-from-memes-1840562340](https://lifehacker.com/dont-get-your-nutrition-information-from-memes-1840562340)
+> 原文：<https://lifehacker.com/dont-get-your-nutrition-information-from-memes-1840562340>
 
 豆类的蛋白质和牛肉一样多吗？喝一杯可乐和吃半打甜甜圈是一样的吗？每个百吉饼里真的有六片面包吗？我们将对那些一直流传的营养迷因进行事实核查。剧透:如果它们令人震惊，通常不是真的。
 

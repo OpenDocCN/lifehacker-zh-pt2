@@ -1,6 +1,6 @@
 # 如何优先偿还高利息债务
 
-> 原文:[https://life hacker . com/how-to-prioritize-your debt-payments-1843830625](https://lifehacker.com/how-to-prioritize-your-debt-payments-1843830625)
+> 原文：<https://lifehacker.com/how-to-prioritize-your-debt-payments-1843830625>
 
 关于还清债务的建议通常告诉你先还清你的高息债务。但什么才算真正的高息债务呢？看你各种账单上的数字是不是很简单？是的，但是有一些额外的细节需要注意。
 

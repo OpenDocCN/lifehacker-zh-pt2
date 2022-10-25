@@ -1,6 +1,6 @@
 # 为新年前夜制作你自己的气球空投
 
-> 原文:[https://life hacker . com/make-your-own-balloon-drop-for-new-years-eve-1831340567](https://lifehacker.com/make-your-own-balloon-drop-for-new-years-eve-1831340567)
+> 原文：<https://lifehacker.com/make-your-own-balloon-drop-for-new-years-eve-1831340567>
 
 让你的孩子过一个特别的新年夜可能需要一点努力。你已经有了起泡苹果酒，为获胜者准备了愚蠢礼物的游戏之夜，也许是一场电影马拉松或一个热巧克力站。
 

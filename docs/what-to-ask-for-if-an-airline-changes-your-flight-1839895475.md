@@ -1,6 +1,6 @@
 # 如果一家航空公司改变你的航班，你该要求什么
 
-> 原文:[https://life hacker . com/1839895475](https://lifehacker.com/what-to-ask-for-if-an-airline-changes-your-flight-1839895475)
+> 原文：<https://lifehacker.com/what-to-ask-for-if-an-airline-changes-your-flight-1839895475>
 
 如果一家 [航空公司无意中把你](https://lifehacker.com/what-to-ask-for-when-youre-bumped-from-a-flight-1836448891) 赶下飞机，你可能会要求比你想象的更多的东西，比如餐券、酒店住宿或现金。但是如果一家航空公司突然决定完全改变你的航班起飞时间，你有什么权利呢？它发生了；在 Reddit 上， [u/kaileen](https://www.reddit.com/r/airlines/comments/9xm5y4/frontier_airlines_changed_a_flight_by_more_than/) 分享了他们的家人在航空公司最后一刻改变行程的经历。
 

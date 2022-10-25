@@ -1,6 +1,6 @@
 # 花钱重新装修之前，先重新整理一下你的家具
 
-> 原文:[https://life hacker . com/在花钱之前重新整理你的家具-1834668984](https://lifehacker.com/rearrange-your-furniture-before-you-spend-money-on-rede-1834668984)
+> 原文：<https://lifehacker.com/rearrange-your-furniture-before-you-spend-money-on-rede-1834668984>
 
 时不时地，你可能会有这种冲动。你无法想象为什么你会选择那种灰色的沙发。你开始觉得古董灯看起来不那么“古董”而更“古老”是的，那张咖啡桌是你大学毕业后搬进第一套公寓时，从你阿姨那里拿来的旧东西。你想抛弃一切，重新开始！
 

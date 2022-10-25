@@ -1,6 +1,6 @@
 # 如何在这个夏天和你的孩子一起放慢脚步
 
-> 原文:[https://life hacker . com/how-to-slow-down-with your-kids-this-summer-1834984164](https://lifehacker.com/how-to-slow-down-with-your-kids-this-summer-1834984164)
+> 原文：<https://lifehacker.com/how-to-slow-down-with-your-kids-this-summer-1834984164>
 
 我们常常哀叹上世纪 80 年代和 90 年代夏天的逝去。我们怀念孩子们早上和他们的朋友骑着自行车离开家，只回来一两次吃东西，然后在黄昏时停下来的样子。
 

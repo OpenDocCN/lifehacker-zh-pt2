@@ -1,6 +1,6 @@
 # 我让激光射进我的耳朵来制作完美的定制耳机
 
-> 原文:[https://gizmodo . com/I-had-lasers-shot-into-my-ear-to-make-the-perfect-cust-1835733903](https://gizmodo.com/i-had-lasers-shot-into-my-ears-to-make-the-perfect-cust-1835733903)
+> 原文：<https://gizmodo.com/i-had-lasers-shot-into-my-ears-to-make-the-perfect-cust-1835733903>
 
 硅胶黏糊糊的东西，家用配件包，还有能把激光射进你脑袋的双摄像头枪。这些只是用来制作最硬核定制入耳式监听系统的几个工具。我们去了加州尔湾的 Ultimate Ears，看看技术人员如何为一些世界顶级唱片艺术家定制耳机，以及他们如何努力将这项技术带给更广泛的音乐爱好者观众。
 

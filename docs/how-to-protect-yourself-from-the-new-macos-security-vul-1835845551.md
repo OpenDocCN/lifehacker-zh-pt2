@@ -1,6 +1,6 @@
 # 如何防范新的 macOS 安全漏洞
 
-> 原文:[https://life hacker . com/how-to-protect-you-from-the-new-MAC OS-security-vul-1835845551](https://lifehacker.com/how-to-protect-yourself-from-the-new-macos-security-vul-1835845551)
+> 原文：<https://lifehacker.com/how-to-protect-yourself-from-the-new-macos-security-vul-1835845551>
 
 Mac 用户注意了:据报道，最近披露的 macOS Gatekeeper 中存在的一个漏洞——也被称为“Cavallarin”漏洞——已被广告软件创作者利用。正是在这样的时候，我们想起了保护你的 Mac 免受此类问题影响的最佳建议:当有疑问时，从 Mac 应用商店或受信任的第三方来源安装应用程序，而不只是你在互联网上找到的任何旧东西。
 

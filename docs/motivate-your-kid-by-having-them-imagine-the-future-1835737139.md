@@ -1,6 +1,6 @@
 # 通过让孩子想象未来来激励他们
 
-> 原文:[https://life hacker . com/motivate-your-kid by-have-them-imagine-the-future-1835737139](https://lifehacker.com/motivate-your-kid-by-having-them-imagine-the-future-1835737139)
+> 原文：<https://lifehacker.com/motivate-your-kid-by-having-them-imagine-the-future-1835737139>
 
 你的孩子不想这么做。打扫他的房间。完成她的读书报告。练习小提琴。不管此刻有多困难。作为父母，你可能会忍不住去唠叨，但这只会让每个人更加沮丧。根据昆士兰大学的研究，激励孩子的更好方法是让他们想象未来的自己会是什么感觉。
 

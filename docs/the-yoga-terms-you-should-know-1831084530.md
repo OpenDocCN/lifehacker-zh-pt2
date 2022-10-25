@@ -1,6 +1,6 @@
 # 你应该知道的瑜伽术语
 
-> 原文:[https://life hacker . com/the-yoga-terms-you-should-know-1831084530](https://lifehacker.com/the-yoga-terms-you-should-know-1831084530)
+> 原文：<https://lifehacker.com/the-yoga-terms-you-should-know-1831084530>
 
 正如芭蕾舞者需要学习几句法语，跑步者需要能够听到和说出瑞典语单词 *fartlek* 而不会咯咯笑得太多，练习瑜伽的人如果能够理解瑜伽课和瑜伽视频中常见的梵语和其他术语，就会做得最好。
 

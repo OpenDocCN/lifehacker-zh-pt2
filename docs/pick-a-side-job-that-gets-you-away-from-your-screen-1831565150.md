@@ -1,6 +1,6 @@
 # 选择一份让你远离屏幕的副业
 
-> 原文:[https://life hacker . com/pick-a-side-job-that-get-you-from-you-screen-1831565150](https://lifehacker.com/pick-a-side-job-that-gets-you-away-from-your-screen-1831565150)
+> 原文：<https://lifehacker.com/pick-a-side-job-that-gets-you-away-from-your-screen-1831565150>
 
 任何在家工作的人都知道这是一个特殊的地狱。尽管柔软的裤子和没有通勤的诱惑，它可以是孤立和沉闷的。当你被留给自己的设备——字面上，只有你和你的设备——盯着屏幕，试图把文字或图形或代码变成美元，你不知道今天是什么日子，也不知道下一张支票什么时候会到来，这太容易让你最具破坏性、最自我挫败的想法占据主导地位。
 

@@ -1,6 +1,6 @@
 # do all these things before traveling internationally 1833125147
 
-> 原文:[https://life hacker . com/do-all-things-before-traveling-international-1833125147](https://lifehacker.com/do-all-these-things-before-traveling-internationally-1833125147)
+> 原文：<https://lifehacker.com/do-all-these-things-before-traveling-internationally-1833125147>
 
 所以你终于预订了那个已经在你的日历上标记了几个月的海外假期。恭喜你！
 

@@ -1,6 +1,6 @@
 # 通过这个不可翻译单词的网站扩大你的词汇量
 
-> 原文:[https://life hacker . com/expand-your-vocabulary-with this-site-of-not-translatable-1844887879](https://lifehacker.com/expand-your-vocabulary-with-this-site-of-untranslatable-1844887879)
+> 原文：<https://lifehacker.com/expand-your-vocabulary-with-this-site-of-untranslatable-1844887879>
 
 学习一门新语言最好的部分之一就是发现英语中没有的单词。他们中的许多人描述了一种特定的感觉或心态——比如幸灾乐祸——我们经历过，但从来没有一个词来捕捉它。其中一些单词能够如此准确地给一种感觉命名，以至于它们现在经常在英语中使用，比如前面提到的，或者最近的 [hygge](https://lifehacker.com/learn-how-to-do-nothing-with-the-dutch-concept-of-nikse-1822310051) 。
 

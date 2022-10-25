@@ -1,6 +1,6 @@
 # 如何让猫咪过敏的客人住得更舒适
 
-> 原文:[https://life hacker . com/how-to-make your-home-more-for-guest-1833206912](https://lifehacker.com/how-to-make-your-home-more-comfortable-for-guests-with-1833206912)
+> 原文：<https://lifehacker.com/how-to-make-your-home-more-comfortable-for-guests-with-1833206912>
 
 当你的好朋友因为你最好的朋友猫住在你家而不能去你家玩的时候，你会很难过。如果你决定有过敏芽，有几种方法可以帮助减轻他们潜在的过敏反应。
 

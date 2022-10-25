@@ -1,6 +1,6 @@
 # 如何真正识别毒藤，超越“三叶，随它去”
 
-> 原文:[https://life hacker . com/how-to-identify-poison-ivy-1836417759](https://lifehacker.com/how-to-identify-poison-ivy-1836417759)
+> 原文：<https://lifehacker.com/how-to-identify-poison-ivy-1836417759>
 
 “三片叶子，随它去吧”是一首关于毒藤的经典押韵诗，而且很准确:这种植物的三重小叶是一个可靠的特征。但是，如果你想更多地了解这种诱发瘙痒的植物，你需要了解更多的东西。
 

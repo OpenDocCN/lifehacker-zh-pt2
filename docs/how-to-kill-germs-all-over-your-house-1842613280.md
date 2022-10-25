@@ -1,6 +1,6 @@
 # 如何杀死你房子里的细菌
 
-> 原文:[https://life hacker . com/how-to-kill-germs-all-over-your house-1842613280](https://lifehacker.com/how-to-kill-germs-all-over-your-house-1842613280)
+> 原文：<https://lifehacker.com/how-to-kill-germs-all-over-your-house-1842613280>
 
 湿巾。消毒剂。消毒剂。漂白剂。喷雾。你应该在哪里使用什么清洁剂？在我们对抗病毒的过程中，哪一种最有效？“99.9。%的病菌”包括冠状病毒？
 

@@ -1,6 +1,6 @@
 # 油炸前在你的腊肠上打个叉
 
-> 原文:[https://life hacker . com/make-an-x-in-your-bologna-before-油炸-1838453912](https://lifehacker.com/make-an-x-in-your-bologna-before-frying-1838453912)
+> 原文：<https://lifehacker.com/make-an-x-in-your-bologna-before-frying-1838453912>
 
 如果你煎了很多腊肠——你应该这样做——你可能会注意到两件事，一是它闻起来很香。但是第二个，你可能已经观察到的不太令人愉快的现象是，它有气球上升的趋势，上升并远离平底锅。
 

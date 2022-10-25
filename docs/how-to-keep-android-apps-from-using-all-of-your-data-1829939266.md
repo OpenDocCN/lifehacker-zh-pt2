@@ -1,6 +1,6 @@
 # 如何防止 Android 应用程序使用你的所有数据
 
-> 原文:[https://life hacker . com/how-to-keep-Android-apps-from-using-all-of-your-data-1829939266](https://lifehacker.com/how-to-keep-android-apps-from-using-all-of-your-data-1829939266)
+> 原文：<https://lifehacker.com/how-to-keep-android-apps-from-using-all-of-your-data-1829939266>
 
 并非所有人都幸运地拥有无限的数据套餐，这可能会导致人们对每月分配给网页浏览、视频流和其他移动活动的配额感到焦虑。超过数据限制会花费一大笔钱，而且很难跟踪所有数据的去向。
 

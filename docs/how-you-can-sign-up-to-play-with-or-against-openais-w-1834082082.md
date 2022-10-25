@@ -1,6 +1,6 @@
 # 如何报名参加本周末 OpenAI 的世界级 Dota 2 AI 比赛
 
-> 原文:[https://life hacker . com/how-you-can-sign-up-to-play with-or-against-open ais-w-1834082082](https://lifehacker.com/how-you-can-sign-up-to-play-with-or-against-openais-w-1834082082)
+> 原文：<https://lifehacker.com/how-you-can-sign-up-to-play-with-or-against-openais-w-1834082082>
 
 本周末(也仅限于本周末)，Dota 2 玩家可以亲眼见证 [OpenAI 的](https://openai.com/) 竞技 Dota 2 AI，OpenAI Five 的 wold-champ 击败技巧。人工智能已经使用一种称为“深度强化学习”的技术进行了训练，这种技术已经让人工智能在短短 10 个月内玩了超过 45，000 *年*的 Dota 2。这种训练似乎得到了回报，因为人工智能“团队”最近在一场三局两胜的比赛中击败了卫冕职业 Dota 2 电子竞技队 OG。你可以在这里阅读整个传奇故事。
 

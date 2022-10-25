@@ -1,6 +1,6 @@
 # 如何放大而不必看到自己的脸
 
-> 原文:[https://life hacker . com/how-to-zoom without have-see-your-own-face-1844337032](https://lifehacker.com/how-to-zoom-without-having-to-see-your-own-face-1844337032)
+> 原文：<https://lifehacker.com/how-to-zoom-without-having-to-see-your-own-face-1844337032>
 
 看看这个场景听起来是否熟悉:你已经穿上了你最好的 Zoom 衬衫去上班，你已经为你每周一次的朋友聚会倒了酒，你已经准备好参与一些面对面的数字联系——但你在整个聊天过程中一直盯着自己的脸。令人高兴的是，如果你想改变这一点，有一些方法可以让你的脸在缩放时不出现在你自己的屏幕上。
 

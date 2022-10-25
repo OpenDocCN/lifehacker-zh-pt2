@@ -1,6 +1,6 @@
 # 问问 NerdLove 博士:我们挺过了邪教，但我们的婚姻却没有
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-we-survive-a-cult-but-our-marriage-1831105012](https://kotaku.com/ask-dr-nerdlove-we-survived-a-cult-but-our-marriage-1831105012)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-we-survived-a-cult-but-our-marriage-1831105012>
 
 大家好，互联网上的绅士们，混蛋们，T2，T3，欢迎来到 T5，向 NerdLove 博士提问，这是唯一一个帮助驯服狂野西部的约会建议专栏。
 

@@ -1,6 +1,6 @@
 # iOS 13 将于周四什么时候推出？
 
-> 原文:[https://life hacker . com/what-time-will-IOs-13-and-ipados-13-launch-on-Thursday-1838183688](https://lifehacker.com/what-time-will-ios-13-and-ipados-13-launch-on-thursday-1838183688)
+> 原文：<https://lifehacker.com/what-time-will-ios-13-and-ipados-13-launch-on-thursday-1838183688>
 
 苹果为你的 iPhone 发布的最新也是最棒的更新——iOS 13——将于 9 月 19 日周四发布。不过，不要大清早醒来去看看圣诞老人蒂姆是否给了你一个重要的设备更新作为礼物；你将不得不等待一段时间，直到两个操作系统真正启动。
 

@@ -1,6 +1,6 @@
 # 尝试这些蒸汽游戏演示之前，他们消失周六
 
-> 原文:[https://life hacker . com/try-these-steam-game-demos-before-them-discover-saturd-1840416838](https://lifehacker.com/try-these-steam-game-demos-before-they-disappear-saturd-1840416838)
+> 原文：<https://lifehacker.com/try-these-steam-game-demos-before-they-disappear-saturd-1840416838>
 
 昨晚举行了游戏颁奖。虽然我们确实喜欢漂亮的奖杯(并为外部世界 [没有获得最高荣誉](https://kotaku.com/sekiro-wins-game-of-the-year-at-the-2019-game-awards-1840403746) 而感到难过)，但这一事件不仅仅是像素盛况。在这个大日子的同时，还有一个 PC“游戏节”正在进行——全部在 [Steam](https://store.steampowered.com/sale/thesteamgamefestival) 上进行——其中有一些很棒的限时演示，你现在就可以玩。
 

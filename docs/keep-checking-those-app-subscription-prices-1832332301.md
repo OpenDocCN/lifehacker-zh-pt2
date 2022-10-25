@@ -1,6 +1,6 @@
 # 继续查看这些应用程序的订阅价格
 
-> 原文:[https://life hacker . com/keep-checking-these-app-subscription-prices-1832332301](https://lifehacker.com/keep-checking-those-app-subscription-prices-1832332301)
+> 原文：<https://lifehacker.com/keep-checking-those-app-subscription-prices-1832332301>
 
 苹果对试图以复杂的订阅价格吸引你的应用采取了稍微强硬的立场，但这并不意味着你不会受到那些想要你所有现金的蹩脚应用的影响。我们的建议？假装什么都没变。像本尼迪克特·康伯巴奇(Benedict Cumberbatch)一样不断检查订阅价格，就像你在解决一个*夏洛克*的恶作剧一样，并且定期检查你订阅了什么，以防你支付了你不想要的东西。
 

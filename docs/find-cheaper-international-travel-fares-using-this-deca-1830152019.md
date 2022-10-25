@@ -1,6 +1,6 @@
 # 利用这个几十年的漏洞找到更便宜的国际旅行机票
 
-> 原文:[https://life hacker . com/find-prize-international-travel-fares-using-this-deca-1830152019](https://lifehacker.com/find-cheaper-international-travel-fares-using-this-deca-1830152019)
+> 原文：<https://lifehacker.com/find-cheaper-international-travel-fares-using-this-deca-1830152019>
 
 如果航空公司的总部不在两个国家中的任何一个，就不允许在这两个国家之间包机。这就是为什么你不会发现达美航空销售加拿大和法国之间的航班，或者马来西亚航空公司在美国和英国之间飞行。
 

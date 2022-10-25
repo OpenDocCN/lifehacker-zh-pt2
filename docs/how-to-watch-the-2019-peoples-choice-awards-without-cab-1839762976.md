@@ -1,6 +1,6 @@
 # 如何在没有有线电视的情况下观看 2019 人民选择奖
 
-> 原文:[https://life hacker . com/how-to-watch-the-2019-peoples-choice-awards-without-cab-1839762976](https://lifehacker.com/how-to-watch-the-2019-peoples-choice-awards-without-cab-1839762976)
+> 原文：<https://lifehacker.com/how-to-watch-the-2019-peoples-choice-awards-without-cab-1839762976>
 
 e！美国人民选择奖将于美国东部时间今晚 9 点开始，红地毯秀将于稍早的美国东部时间晚上 7 点正式开始。
 

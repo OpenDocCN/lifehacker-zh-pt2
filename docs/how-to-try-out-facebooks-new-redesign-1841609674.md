@@ -1,6 +1,6 @@
 # 如何尝试脸书的新设计
 
-> 原文:[https://life hacker . com/how-to-try-out-face books-new-design-1841609674](https://lifehacker.com/how-to-try-out-facebooks-new-redesign-1841609674)
+> 原文：<https://lifehacker.com/how-to-try-out-facebooks-new-redesign-1841609674>
 
 脸书正在让用户测试其即将到来的重新设计的测试版，预计将于今年晚些时候全面推出。你可以通过登录脸书并选择你的新闻订阅顶部的“查看脸书测试版”来启用新的外观——尽管该选项可能不是对所有人都可用。
 

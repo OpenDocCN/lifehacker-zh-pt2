@@ -1,6 +1,6 @@
 # 小心这种新的银行诈骗
 
-> 原文:[https://life hacker . com/watch-out-for-this-new-banking-scam-1830223508](https://lifehacker.com/watch-out-for-this-new-banking-scam-1830223508)
+> 原文：<https://lifehacker.com/watch-out-for-this-new-banking-scam-1830223508>
 
 收到银行发来的短信，告诉你你的账户被锁定了？在遵循它的指示之前，你可能要三思而行。
 

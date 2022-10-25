@@ -1,6 +1,6 @@
 # 在你的支票账户中保持最低金额
 
-> 原文:[https://life hacker . com/keep-the-bare-minimum-in-your checking-account-1836413864](https://lifehacker.com/keep-the-bare-minimum-in-your-checking-account-1836413864)
+> 原文：<https://lifehacker.com/keep-the-bare-minimum-in-your-checking-account-1836413864>
 
 当许多美国人依赖于下一个经济刺激方案 的时候，如果你不再过着领薪水的生活，是时候把钱从你的支票账户中取出来了。
 

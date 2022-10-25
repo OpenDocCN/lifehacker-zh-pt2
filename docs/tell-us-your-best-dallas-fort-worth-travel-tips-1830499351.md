@@ -1,6 +1,6 @@
 # 告诉我们你最好的达拉斯/沃斯堡旅行建议
 
-> 原文:[https://life hacker . com/tell-us-your-best-Dallas-fort-worth-travel-tips-1830499351](https://lifehacker.com/tell-us-your-best-dallas-fort-worth-travel-tips-1830499351)
+> 原文：<https://lifehacker.com/tell-us-your-best-dallas-fort-worth-travel-tips-1830499351>
 
 让我们一起去 DFW 大都会区，这座丹尼尔·戴·刘易斯在剧中独自建造的城市。奇怪的是，他在角色中扮演了《幻影线》中的那个人。历史是疯狂的。
 

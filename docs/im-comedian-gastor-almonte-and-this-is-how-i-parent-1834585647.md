@@ -1,6 +1,6 @@
 # im comedian gastor almonte and this is how i parent 1834585647
 
-> 原文:[https://life hacker . com/im-comedian-gastor-al Monte-and-this-how-I-parent-1834585647](https://lifehacker.com/im-comedian-gastor-almonte-and-this-is-how-i-parent-1834585647)
+> 原文：<https://lifehacker.com/im-comedian-gastor-almonte-and-this-is-how-i-parent-1834585647>
 
 加斯顿·阿尔蒙特是东纽约的喜剧演员。在他的首张单口相声专辑《移民制造》中，他讲述了作为多米尼加移民的儿子在布鲁克林长大的经历，中产阶级化如何影响他的邻居，以及为人父母如何改变了他。(当不得不在周日早上 8:30 看《T2》复仇者联盟时，他面无表情:“人们早餐吃葡萄干。这狗屎是令人不安的。”)可以在 [iTunes](https://itunes.apple.com/us/album/immigrant-made/1451876165) 、 [Spotify](https://open.spotify.com/album/2kS0Pi1sNnbvb5477VUunD) 上找到专辑或者在 [亚马逊 Prime Video](https://www.amazon.com/dp/B07QY9YL28?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-comedian-gastor-almonte-and-this-is-how-i-parent-1834585647&asc_source=&tag=kinjalifehackerlink-20) 上观看视频版本。这是他为人父母的方式。
 

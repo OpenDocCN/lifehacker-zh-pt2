@@ -1,6 +1,6 @@
 # “家不是每个人都安全的地方”:冠状病毒如何影响家庭暴力庇护所
 
-> 原文:[https://Jezebel . com/home-not-a-safe-place-for-everybody-how-coronavirus-is-1842409643](https://jezebel.com/home-isnt-a-safe-place-for-everyone-how-coronavirus-is-1842409643)
+> 原文：<https://jezebel.com/home-isnt-a-safe-place-for-everyone-how-coronavirus-is-1842409643>
 
 随着越来越多的美国人被要求就地躲避，并练习社交距离以阻止新型冠状病毒的传播，有一群人将受到特别的影响——家庭暴力和虐待的幸存者，对他们来说，家是危险的。
 

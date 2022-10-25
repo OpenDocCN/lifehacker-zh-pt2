@@ -1,6 +1,6 @@
 # 看看万维网诞生时的世界是什么样子
 
-> 原文:[https://life hacker . com/see-what-the-world-looked-when-the-world-wide-web-1833324960](https://lifehacker.com/see-what-the-world-looked-like-when-the-world-wide-web-1833324960)
+> 原文：<https://lifehacker.com/see-what-the-world-looked-like-when-the-world-wide-web-1833324960>
 
 本周，万维网迎来了它的 30 岁生日，每个人都用他们所知道的最好的方式来庆祝——列出我们在过去几十年中处理过(或痴迷过)的所有互联网相关话题的清单。这包括拨号调制解调器、美国在线、 [头像-](https://www.youtube.com/watch?v=etdK69B0pvU) 和 [基于漫画的](https://www.youtube.com/watch?v=goEqyQgWIe4) 聊天室，以及[Homestar Runner](https://www.youtube.com/watch?v=JwZwkk7q25I)，这些只是我在成长过程中想到的几个项目。哦，还有 [快乐的小狗](https://www.wired.com/1997/02/happy-puppy-snaps-up-games-domain/) 。还记得从快乐小狗那里得到游戏吗？*叹息。*
 

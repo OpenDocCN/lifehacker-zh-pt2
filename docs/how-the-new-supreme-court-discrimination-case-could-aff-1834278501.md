@@ -1,6 +1,6 @@
 # 最高法院新的歧视案件将如何影响 LGBTQ 工作者
 
-> 原文:[https://life hacker . com/how-the-new-supreme-court-discrimina tion-case-can-aff-1834278501](https://lifehacker.com/how-the-new-supreme-court-discrimination-case-could-aff-1834278501)
+> 原文：<https://lifehacker.com/how-the-new-supreme-court-discrimination-case-could-aff-1834278501>
 
 周一，最高法院同意审查三名 LGBTQ 员工在工作场所受到歧视的案件——这是一个非常重要的决定，很可能导致全国范围内对 LGBTQ 员工的保护发生变化。什么悬而未决？什么时候会做出决定？以下是你需要知道的关于明年对 LGBTQ 群体有多重要的事情。
 

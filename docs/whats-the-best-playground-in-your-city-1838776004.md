@@ -1,6 +1,6 @@
 # 你所在的城市最好的游乐场是什么？
 
-> 原文:[https://life hacker . com/whats-your-city-1838776004](https://lifehacker.com/whats-the-best-playground-in-your-city-1838776004)
+> 原文：<https://lifehacker.com/whats-the-best-playground-in-your-city-1838776004>
 
 有些游乐场客观上是最好的，还是口味问题？我的孩子还太小，如果不抓住什么东西，就无法站立或行走，所以我们带她去了一个【tot lot】—one，那不是一个更大的游乐场的一部分，在那里，大孩子(对我们来说，“大”是指不穿尿布的孩子)会跨过来使用不适合年龄的设备。
 

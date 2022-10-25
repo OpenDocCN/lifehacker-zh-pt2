@@ -1,6 +1,6 @@
 # 马上收拾好你孩子的新玩具
 
-> 原文:[https://life hacker . com/pack-away-some-of-your-dolls-new-toys-right-now-1840615953](https://lifehacker.com/pack-away-some-of-your-toddlers-new-toys-right-now-1840615953)
+> 原文：<https://lifehacker.com/pack-away-some-of-your-toddlers-new-toys-right-now-1840615953>
 
 你决定今年不要给你蹒跚学步的孩子买太多礼物。你问(求？要求！)让你的家人效仿。你想，他们还这么年轻。你想，他们甚至不真正理解圣诞老人。他们非常开心地玩着汤锅和木勺，你惊呼道！
 

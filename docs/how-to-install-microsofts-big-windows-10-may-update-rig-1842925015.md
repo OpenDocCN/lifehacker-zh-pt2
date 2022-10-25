@@ -1,6 +1,6 @@
 # 如何安装微软的大 Windows 10 可能马上更新
 
-> 原文:[https://life hacker . com/how-to-install-Microsoft-big-windows-10-may-update-rig-1842925015](https://lifehacker.com/how-to-install-microsofts-big-windows-10-may-update-rig-1842925015)
+> 原文：<https://lifehacker.com/how-to-install-microsofts-big-windows-10-may-update-rig-1842925015>
 
 微软每年都会发布两次重大的 Windows 10 更新，2020 年的第一次重大更新 Windows 10 Version 2004 离现在只有几个星期了——但是我们会告诉你如何尽早安装。
 

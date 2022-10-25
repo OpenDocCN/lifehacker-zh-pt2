@@ -1,6 +1,6 @@
 # 如何一次创建多个谷歌联系人
 
-> 原文:[https://life hacker . com/how-to-create-multiple-Google-contacts-at-once-1841937882](https://lifehacker.com/how-to-create-multiple-google-contacts-at-once-1841937882)
+> 原文：<https://lifehacker.com/how-to-create-multiple-google-contacts-at-once-1841937882>
 
 谷歌悄悄地恢复了批量创建多个联系人并一次性导入到你的谷歌账户的功能。当谷歌去年开始将其移动和网络应用程序切换到材料主题设计时，这一节省时间的功能被删除，谷歌没有宣布它的回归。这是一个遗憾，因为如果你想批量导入一群人到你的谷歌账户，这是非常有用的。
 

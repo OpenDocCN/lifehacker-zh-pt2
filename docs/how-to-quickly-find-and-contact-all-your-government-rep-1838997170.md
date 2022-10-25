@@ -1,6 +1,6 @@
 # 如何使用脸书快速找到并联系您的所有政府代表
 
-> 原文:[https://life hacker . com/how-to-fast-find-and-contact-all-your-government-rep-1838997170](https://lifehacker.com/how-to-quickly-find-and-contact-all-your-government-rep-1838997170)
+> 原文：<https://lifehacker.com/how-to-quickly-find-and-contact-all-your-government-rep-1838997170>
 
 知道谁在政府中代表你是很重要的，可以说现在比以往任何时候都重要。
 

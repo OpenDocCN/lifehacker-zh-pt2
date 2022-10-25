@@ -1,6 +1,6 @@
 # 你可以为你的炉子买新的滴水盘
 
-> 原文:[https://life hacker . com/you-can-buy-new-drip-pan-for-your-stove-1836612127](https://lifehacker.com/you-can-buy-new-drip-pans-for-your-stove-1836612127)
+> 原文：<https://lifehacker.com/you-can-buy-new-drip-pans-for-your-stove-1836612127>
 
 我的公寓里有一个电炉。我的烹饪技术也有限。将这种技能的缺乏与我笨拙的倾向结合起来，你就不会对烹饪混乱的情况感到惊讶了，有时我会在紧急情况下不彻底地清理它们。
 

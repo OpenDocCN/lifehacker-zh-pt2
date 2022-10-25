@@ -1,6 +1,6 @@
 # Fitbit Versa 2 是一个可靠的更新，它让我想要更多
 
-> 原文:[https://gizmodo . com/the-fitbit-versa-2-is-a-solid-update-the-just-make-me-1836705570](https://gizmodo.com/the-fitbit-versa-2-is-a-solid-update-that-just-makes-me-1836705570)
+> 原文：<https://gizmodo.com/the-fitbit-versa-2-is-a-solid-update-that-just-makes-me-1836705570>
 
 让我以说我爱我的 [Fitbit Versa](https://gizmodo.com/the-fitbit-versa-is-the-first-real-bargain-smartwatch-1824036224) 开始这篇评论。它是 Fitbit 最受欢迎的智能手表是有原因的。它时尚、经济、健身功能强大，5 天以上的电池续航时间简直是天赐之物。我只是厌倦了 Fitbit 的每一个新公告都是 Versa 的不同风格——即使最新的 Versa 2 是一款优秀的智能手表。
 

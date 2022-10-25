@@ -1,6 +1,6 @@
 # 如何让你的财务井然有序
 
-> 原文:[https://life hacker . com/how-to-get-your finance-in-order-1830404012](https://lifehacker.com/how-to-get-your-finances-in-order-1830404012)
+> 原文：<https://lifehacker.com/how-to-get-your-finances-in-order-1830404012>
 
 你应该还清债务，还是未雨绸缪？扣除一些你的学生贷款余额，或者把一些额外的钱用于你的信用卡债务？关注你的储蓄账户，还是为退休储蓄？
 

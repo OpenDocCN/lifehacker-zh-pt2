@@ -1,6 +1,6 @@
 # 如何判断是否可以相信最新的冠状病毒头条
 
-> 原文:[https://life hacker . com/how-to-tell-if-you-can-trust-the-latest-coronavirus-hea-1844609639](https://lifehacker.com/how-to-tell-if-you-can-trust-the-latest-coronavirus-hea-1844609639)
+> 原文：<https://lifehacker.com/how-to-tell-if-you-can-trust-the-latest-coronavirus-hea-1844609639>
 
 每天都有这么多关于新冠肺炎·疫情的文章，人们很容易被大量的信息淹没。鉴于此，现在比以往任何时候都更难找出哪些是真正提供高质量报告、值得关注的。那么，我们如何知道该读什么，该相信谁呢？
 

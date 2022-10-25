@@ -1,6 +1,6 @@
 # 2019 年 12 月亚马逊 Prime 视频会有什么
 
-> 原文:[https://life hacker . com/whats-coming-to-Amazon-prime-video-in-2019-12-1840074051](https://lifehacker.com/whats-coming-to-amazon-prime-video-in-december-2019-1840074051)
+> 原文：<https://lifehacker.com/whats-coming-to-amazon-prime-video-in-december-2019-1840074051>
 
 亚马逊 Prime Video 将迎来一个盛大的 12 月。《了不起的麦瑟尔夫人》第三季将于 12 月 6 日登陆亚马逊平台。《T2》第四季《无垠的 T3》将于 12 月 13 日开播，许多热门电影和电视节目将于本月在流媒体服务上首次亮相。
 

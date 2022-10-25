@@ -1,6 +1,6 @@
 # 2020 年总统日开放和关闭的是什么
 
-> 原文:[https://life hacker . com/whats-open-and-closed-on-presidents-day-2020-1841698076](https://lifehacker.com/whats-open-and-closed-on-presidents-day-2020-1841698076)
+> 原文：<https://lifehacker.com/whats-open-and-closed-on-presidents-day-2020-1841698076>
 
 明天是总统日。这是一个联邦假日，这意味着很多人下班了，也意味着很多通常在周一开门的地方关门了。
 

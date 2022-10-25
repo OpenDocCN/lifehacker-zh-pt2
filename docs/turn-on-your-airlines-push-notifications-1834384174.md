@@ -1,6 +1,6 @@
 # 打开航空公司的推送通知
 
-> 原文:[https://life hacker . com/turn-on-your-airlines-push-notifications-1834384174](https://lifehacker.com/turn-on-your-airlines-push-notifications-1834384174)
+> 原文：<https://lifehacker.com/turn-on-your-airlines-push-notifications-1834384174>
 
 我一直担心会错过航班。我会提前几个小时到达，手里拿着一个随身携带的包、颈枕和登机牌，如果看到长长的安检队伍，我会吓出一身冷汗。
 

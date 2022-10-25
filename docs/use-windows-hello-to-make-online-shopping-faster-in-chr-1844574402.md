@@ -1,6 +1,6 @@
 # 使用 Windows Hello 在 Chrome 中更快地进行在线购物
 
-> 原文:[https://life hacker . com/use-windows-hello-to-make-online-shopping-faster-in-chr-1844574402](https://lifehacker.com/use-windows-hello-to-make-online-shopping-faster-in-chr-1844574402)
+> 原文：<https://lifehacker.com/use-windows-hello-to-make-online-shopping-faster-in-chr-1844574402>
 
 每当你在网上购物时，不得不键入你的信用卡号和 CVC 码，这可能是一件痛苦的事。然而，将这些信息保存在你的浏览器中，却没有足够的安全性来隐藏它，这也是一个糟糕的举动。要解决这个问题，可以考虑将 Windows Hello 与谷歌 Chrome 配合使用，这是一种更安全、快捷的购物方式，前提是你的笔记本电脑或台式机上有某种指纹识别器。
 

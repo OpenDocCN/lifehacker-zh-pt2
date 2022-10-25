@@ -1,6 +1,6 @@
 # 关于做爱时的疼痛，你需要知道什么
 
-> 原文:[https://life hacker . com/what-you-need-know-on-sexual-pain-1836020523](https://lifehacker.com/what-you-need-to-know-about-sexual-pain-1836020523)
+> 原文：<https://lifehacker.com/what-you-need-to-know-about-sexual-pain-1836020523>
 
 你知道吗 [30%的女性在最后一次性经历中经历了疼痛](https://nationalsexstudy.indiana.edu/) ？30%!但是尽管很普遍，性疼痛却没有得到足够的重视。数百万妇女默默忍受着痛苦，不知道她们的痛苦有多种治疗方案。为了帮助我报道这个重要的话题，我采访了纽约市的骨盆疼痛专家索尼娅·巴拉尼医生。
 

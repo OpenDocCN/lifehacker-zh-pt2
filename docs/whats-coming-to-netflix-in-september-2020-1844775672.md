@@ -1,6 +1,6 @@
 # 2020 年 9 月，网飞将迎来什么
 
-> 原文:[https://life hacker . com/whats-coming-to-2020-9-1844775672](https://lifehacker.com/whats-coming-to-netflix-in-september-2020-1844775672)
+> 原文：<https://lifehacker.com/whats-coming-to-netflix-in-september-2020-1844775672>
 
 八月的三伏天即将结束，随之而来的是夏季的。网飞正准备在 9 月份推出一系列有趣的新系列和由顶级人才主演的原创电影，为了帮助你理清困境——也是对这些时代的认可——我强调了几个流光最值得注意的独家新闻，并在疫情压力感应的尺度上对它们进行了排名。
 

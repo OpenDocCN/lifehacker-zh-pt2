@@ -1,6 +1,6 @@
 # 至少帕特里克·斯图尔特还在给我们读十四行诗
 
-> 原文:[https://life hacker . com/至少-Patrick-Stewart-is-still-reading-sonnets-to-us-1844774518](https://lifehacker.com/at-least-patrick-stewart-is-still-reading-sonnets-to-us-1844774518)
+> 原文：<https://lifehacker.com/at-least-patrick-stewart-is-still-reading-sonnets-to-us-1844774518>
 
 感觉好像没有什么值得庆祝的:我们不能举办生日聚会或婚宴，甚至不能在周五晚上出去看电影。我们的孩子已经五个月没有离他们的朋友六英尺以内了，运动很奇怪，我们已经有一个漫长而黑暗的冬天在我们面前逼近。但是！帕特里克·斯图尔特还在 [Instagram](https://www.instagram.com/sirpatstew/) 和 [Twitter](https://twitter.com/SirPatStew) 上读十四行诗。
 

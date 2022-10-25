@@ -1,6 +1,6 @@
 # 即使你没有购买保险，也要估算一下健康保险的费用
 
-> 原文:[https://life hacker . com/get-a-health-insurance-cost-estimate-even-if-you-not-1839837882](https://lifehacker.com/get-a-health-insurance-cost-estimate-even-if-youre-not-1839837882)
+> 原文：<https://lifehacker.com/get-a-health-insurance-cost-estimate-even-if-youre-not-1839837882>
 
 又到了一年中的这个时候。不，不是蜷缩在沙发上看足球的赛季(尽管它也是)。我说的是开放式登记，这是每年唯一一次，你可以通过患者保护与平价医疗法案获得或更改健康保险，而无需符合资格的人生事件。
 

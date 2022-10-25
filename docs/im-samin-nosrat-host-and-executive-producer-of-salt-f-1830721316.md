@@ -1,6 +1,6 @@
 # 我是 Samin Nosrat，主持人和“盐脂肪酸热”的执行制片人，这是我的吃法
 
-> 原文:[https://life hacker . com/im-samin-no srat-host-and-executive-producer-of-salt-f-1830721316](https://lifehacker.com/im-samin-nosrat-host-and-executive-producer-of-salt-f-1830721316)
+> 原文：<https://lifehacker.com/im-samin-nosrat-host-and-executive-producer-of-salt-f-1830721316>
 
 在食品媒体的世界里，Samin Nosrat 是一种味觉清洁剂。尽管她是烹饪知识和智慧的源泉，但无论是她的获奖书籍 还是 [她的网飞秀](https://www.netflix.com/title/80198288) 都从未感觉到规定性。相反，她邀请读者或观众去了解、吃和享受食物，同时散发出快乐和温暖。本着这种慷慨的精神，她亲切地告诉我们她如何喝咖啡，她最喜欢的乔氏套餐，以及为什么吃煮蔬菜有时会感觉像度假。(她还让我们看她的冰箱。)
 

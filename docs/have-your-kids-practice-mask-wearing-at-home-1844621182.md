@@ -1,6 +1,6 @@
 # 让你的孩子在家练习戴面具
 
-> 原文:[https://life hacker . com/have-your-kids-practice-mask-weaking-in-home-1844621182](https://lifehacker.com/have-your-kids-practice-mask-wearing-at-home-1844621182)
+> 原文：<https://lifehacker.com/have-your-kids-practice-mask-wearing-at-home-1844621182>
 
 你可能已经让你的孩子开始戴面具了。(他们可能讨厌它，因为我们都讨厌它，但你已经解释了为什么他们需要穿等等。)大多数学龄前和更大的孩子都或多或少地戴着面具——当你带他们去吃冰淇淋甜筒时，或者在清晨 [去游乐场](https://offspring.lifehacker.com/how-to-safely-take-kids-to-the-playground-1844234506) 的时候。但是，如果你的孩子今年秋天将回到教室，或者甚至在某种类型的 [较小的学习小组](https://offspring.lifehacker.com/how-to-start-your-own-learning-co-op-at-home-1844394666) 中，他们将不得不习惯在室内更长时间地戴着面具。现在是开始练习的时候了，在家里。
 

@@ -1,6 +1,6 @@
 # 使用墨西哥玉米卷混合调料烹饪的不仅仅是墨西哥玉米卷
 
-> 原文:[https://the take out . com/how-to-use-taco-调料-混合-烹饪-非 taco-菜肴-1833899578](https://thetakeout.com/how-to-use-taco-seasoning-mix-to-cook-non-taco-dishes-1833899578)
+> 原文：<https://thetakeout.com/how-to-use-taco-seasoning-mix-to-cook-non-taco-dishes-1833899578>
 
 我居住的芝加哥有大量美味的墨西哥食物。在城市的各个角落，居民几乎都会被完美的 tortas、birria 或 tamales 绊倒。不幸的是，我在郊区长大，所以我的前 18 年是通过当地超市的“国际”通道了解的。这意味着我整个童年吃的每一个墨西哥玉米卷都是用牛肉末和无处不在的墨西哥玉米卷调料包( [)调味制成的，这在瑞典很受欢迎！](https://thetakeout.com/tacopaj-is-the-culinary-love-child-of-sweden-and-mexico-1798264566) )。根据你购买的品牌，它是辣椒粉、辣椒粉、干洋葱和大蒜、牛至、孜然和几种增稠剂之一的大杂烩。
 

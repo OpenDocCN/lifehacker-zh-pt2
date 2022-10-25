@@ -1,6 +1,6 @@
 # 如何使用你的信用卡来保护环境
 
-> 原文:[https://life hacker . com/how-to-use-your-card-help-the-environment-1838010610](https://lifehacker.com/how-to-use-your-credit-card-to-help-the-environment-1838010610)
+> 原文：<https://lifehacker.com/how-to-use-your-credit-card-to-help-the-environment-1838010610>
 
 今年早些时候，万事达卡和瑞典金融科技初创公司 Doconomy 发布了 Mastercard Do Black，这是一种跟踪你每次购买的碳足迹的信用卡，一旦你达到碳预算，就会阻止你进行额外的购买。
 

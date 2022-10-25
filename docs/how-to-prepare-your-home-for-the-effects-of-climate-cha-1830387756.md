@@ -1,6 +1,6 @@
 # 如何让你的家为气候变化的影响做好准备
 
-> 原文:[https://life hacker . com/how-to-prepare-your home for the effects-of-climate-cha-1830387756](https://lifehacker.com/how-to-prepare-your-home-for-the-effects-of-climate-cha-1830387756)
+> 原文：<https://lifehacker.com/how-to-prepare-your-home-for-the-effects-of-climate-cha-1830387756>
 
 气候变化过去似乎是我们的子孙后代要面对的事情——一个遥远的问题。然而现在，当我们早上起床时，它就在我们面前。
 

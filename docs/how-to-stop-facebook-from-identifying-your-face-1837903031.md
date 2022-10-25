@@ -1,6 +1,6 @@
 # 如何阻止脸书认出你的脸
 
-> 原文:[https://life hacker . com/how-to-stop-Facebook-from-identifying-your-face-1837903031](https://lifehacker.com/how-to-stop-facebook-from-identifying-your-face-1837903031)
+> 原文：<https://lifehacker.com/how-to-stop-facebook-from-identifying-your-face-1837903031>
 
 如果你最近在脸书，你可能会注意到你的订阅中有一个新通知，解释了该公司如何使用其面部识别技术和管理附带的数据。作为其中的一部分，脸书已经重新命名了设置，如果你不喜欢这个概念，你需要知道如何关闭在照片中找到你的脸的功能。
 

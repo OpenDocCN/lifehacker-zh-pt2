@@ -1,6 +1,6 @@
 # 惠普的 YouTube 频道现在是技术支持和修补的宝库
 
-> 原文:[https://life hacker . com/HPS-YouTube-channel-is-now-a-Trevor-trove-for-tech-su-1836820670](https://lifehacker.com/hps-youtube-channel-is-now-a-treasure-trove-for-tech-su-1836820670)
+> 原文：<https://lifehacker.com/hps-youtube-channel-is-now-a-treasure-trove-for-tech-su-1836820670>
 
 要么是某个实习生度过了最无聊的硅谷夏天，要么是惠普的 YouTube 团队已经为权力而疯狂。不管是什么原因，该公司最近在 YouTube 上掀起了一场，上传了*数百个*详细的技术支持视频，涵盖了拆卸、修理以及以其他方式搞乱其众多笔记本电脑、台式机和其他产品的无数方法。
 

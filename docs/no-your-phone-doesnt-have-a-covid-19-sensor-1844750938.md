@@ -1,6 +1,6 @@
 # 不，你的手机没有“新冠肺炎传感器”
 
-> 原文:[https://life hacker . com/no-your-phone-sensor-1844750938](https://lifehacker.com/no-your-phone-doesnt-have-a-covid-19-sensor-1844750938)
+> 原文：<https://lifehacker.com/no-your-phone-doesnt-have-a-covid-19-sensor-1844750938>
 
 打开脸书，假设你还在使用它，在搜索栏中输入“新冠肺炎传感器”。这应该会显示一个公共帖子列表，在这些帖子中，人们——请注意，这不是一个小数目——发誓他们的手机最近更新了“新冠肺炎跟踪器”,可以告诉他们何时接近了感染者。
 

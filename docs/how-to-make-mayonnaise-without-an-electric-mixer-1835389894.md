@@ -1,6 +1,6 @@
 # 如何不用电动搅拌器制作蛋黄酱
 
-> 原文:[https://life hacker . com/how-to-make-蛋黄酱-不用电动搅拌器-1835389894](https://lifehacker.com/how-to-make-mayonnaise-without-an-electric-mixer-1835389894)
+> 原文：<https://lifehacker.com/how-to-make-mayonnaise-without-an-electric-mixer-1835389894>
 
 蛋黄酱并不难做，尤其是如果你有一个食品加工机或浸入式搅拌机，但如果没有电动设备的帮助，乳液可能会有点棘手。因为手打是一个慢得多的过程——特别是如果你不得不休息一下让你的手腕休息——耐心是防止蛋黄酱破裂的关键，但使用全蛋和第戎芥末可以让事情不那么棘手。
 

@@ -1,6 +1,6 @@
 # 在你“插话”Change.org 之前，读一下这个
 
-> 原文:[https://life hacker . com/before-you-chip-in-on-change-org-read-this-1843998045](https://lifehacker.com/before-you-chip-in-on-change-org-read-this-1843998045)
+> 原文：<https://lifehacker.com/before-you-chip-in-on-change-org-read-this-1843998045>
 
 当你决定进行慈善捐赠时，你会希望确保尽可能多的钱流向正确的地方，用于实际支持无论你试图支持的是什么。虽然我们已经警告过你与慈善捐赠有关的彻头彻尾的骗局，但还有一个因素需要警惕:那些实际上对慈善事业毫无贡献的在线按钮。
 

@@ -1,6 +1,6 @@
 # 如何在没有有线电视的情况下观看今晚的 AMAs
 
-> 原文:[https://life hacker . com/how-to-watch-the-amas-tonight-without-cable-1840021726](https://lifehacker.com/how-to-watch-the-amas-tonight-without-cable-1840021726)
+> 原文：<https://lifehacker.com/how-to-watch-the-amas-tonight-without-cable-1840021726>
 
 美国音乐奖今晚举行。这场比赛将于美国东部时间晚上 8 点正式开始，并将在美国广播公司播出。
 

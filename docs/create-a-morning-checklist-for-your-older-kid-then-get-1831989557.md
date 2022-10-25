@@ -1,6 +1,6 @@
 # 为你的大孩子创建一份晨间清单，然后离开他们
 
-> 原文:[https://life hacker . com/create-a-morning-check list-for-your-old-kid-then-get 1831989557](https://lifehacker.com/create-a-morning-checklist-for-your-older-kid-then-get-1831989557)
+> 原文：<https://lifehacker.com/create-a-morning-checklist-for-your-older-kid-then-get-1831989557>
 
 我收到的让我的学龄前儿童早上出门的最好的建议之一是创建一个视觉清单来指导他。我用一把牙刷(刷牙)、一件毛衣(穿衣服)、一碗麦片(吃早餐)和一份报纸(去前廊拿报纸)制作了一个剪贴画时间线...我不知道，他喜欢这样做)。
 

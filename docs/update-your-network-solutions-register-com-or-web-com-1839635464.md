@@ -1,6 +1,6 @@
 # 更新你的网络解决方案，Register.com。还是 Web.com 现在的密码
 
-> 原文:[https://life hacker . com/update-your-network-solutions-register-com-or-we B- com-1839635464](https://lifehacker.com/update-your-network-solutions-register-com-or-web-com-1839635464)
+> 原文：<https://lifehacker.com/update-your-network-solutions-register-com-or-web-com-1839635464>
 
 如果你曾经从 Network Solutions、Register.com 或 Web.com 购买过域名，你应该尽快修改你的密码。域名注册商 [宣布](https://notice.networksolutions.com/?siteid=100&clickid=1000000000&channelid=P99C100S500N0B11A1D38E0000V288&cid=NetSol%20Customer%20Notice%20-%2011/04/2019&bid=567782307) 于 2019 年 8 月遭遇数据泄露。
 

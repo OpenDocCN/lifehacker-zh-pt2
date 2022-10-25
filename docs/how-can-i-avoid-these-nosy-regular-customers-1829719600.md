@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:我怎样才能避开这些爱管闲事的常客？
 
-> 原文:[https://the take out . com/how-can-I-avoid-this-nosy-regular-customers-1829719600](https://thetakeout.com/how-can-i-avoid-these-nosy-regular-customers-1829719600)
+> 原文：<https://thetakeout.com/how-can-i-avoid-these-nosy-regular-customers-1829719600>
 
 > 嗨，咸味，我刚开始在一家小餐馆工作，午餐和晚餐都营业。在午餐服务期间，我是唯一的服务员，这并不罕见，所以我必须处理所有的桌子。在过去的两个星期里，有一对老夫妇在同一个时间，两个星期五都来了，他们问了一些问题，好像他们认识我一样:“你多大了？你在这里上大学吗？你这么帅，一定有女朋友了。”(事实上，我是同性恋，但不管怎样，我不想马上和这些陌生人讨论我的私生活。)我对向我的经理提起这件事感到紧张，因为我是新来的，而且我感觉他们是我的老顾客了。我有什么选择来回避他们的问题？
 > 谢谢，

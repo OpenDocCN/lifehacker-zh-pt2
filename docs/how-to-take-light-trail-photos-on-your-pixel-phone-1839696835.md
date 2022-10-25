@@ -1,6 +1,6 @@
 # 如何在你的 Pixel 手机上拍摄光迹照片
 
-> 原文:[https://life hacker . com/how-to-take-light-trail-photos-on-your-pixel-phone-1839696835](https://lifehacker.com/how-to-take-light-trail-photos-on-your-pixel-phone-1839696835)
+> 原文：<https://lifehacker.com/how-to-take-light-trail-photos-on-your-pixel-phone-1839696835>
 
 随着智能手机相机变得越来越复杂，普通用户更容易创造出通常需要高端设备和技术才能实现的效果。例如，Pixel 4 的天文摄影模式能够以最小的努力拍摄夜空，但它也被用来创建标志性的光迹效果，这种效果定义了夜间城市摄影和“光写作”趋势。
 

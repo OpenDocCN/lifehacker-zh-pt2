@@ -1,6 +1,6 @@
 # 如何不被宜家的心理游戏所迷惑
 
-> 原文:[https://life hacker . com/how-to-not-get-fool-by-ike as-mind-games-1829818519](https://lifehacker.com/how-to-not-get-fooled-by-ikeas-mind-games-1829818519)
+> 原文：<https://lifehacker.com/how-to-not-get-fooled-by-ikeas-mind-games-1829818519>
 
 有时候，在宜家漫步，你会觉得自己置身于一个迷宫中，墙壁由引人注目的组织单元搭建而成。你们都不能也不想离开。这不是意外——宜家是故意陷害你的。
 

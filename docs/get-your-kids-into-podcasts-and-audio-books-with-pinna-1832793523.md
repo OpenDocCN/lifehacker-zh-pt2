@@ -1,6 +1,6 @@
 # 使用 Pinna 让您的孩子接触播客和有声书
 
-> 原文:[https://life hacker . com/get-your-kids-to-podcast-and-audio-books-with-pinna-1832793523](https://lifehacker.com/get-your-kids-into-podcasts-and-audio-books-with-pinna-1832793523)
+> 原文：<https://lifehacker.com/get-your-kids-into-podcasts-and-audio-books-with-pinna-1832793523>
 
 有一天，当我和儿子开车穿过城镇时，他决定他不想长大成人。
 

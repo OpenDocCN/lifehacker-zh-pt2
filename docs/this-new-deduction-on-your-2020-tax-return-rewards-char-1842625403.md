@@ -1,6 +1,6 @@
 # 你 2020 年纳税申报表中的这一新扣除额奖励了慈善捐款
 
-> 原文:[https://life hacker . com/this-new-deduction-on-your-2020-tax-return-rewards-char-1842625403](https://lifehacker.com/this-new-deduction-on-your-2020-tax-return-rewards-char-1842625403)
+> 原文：<https://lifehacker.com/this-new-deduction-on-your-2020-tax-return-rewards-char-1842625403>
 
 虽然冠状病毒救济法案中的许多项目都是暂时的，但这里有一项可以让你在未来几年的纳税申报中受益。
 

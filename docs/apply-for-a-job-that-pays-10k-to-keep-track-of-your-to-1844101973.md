@@ -1,6 +1,6 @@
 # 申请一份报酬为 100 美元 10K 的工作，记录你的如厕习惯
 
-> 原文:[https://life hacker . com/apply-for-a-job-the-pay-10k-to-1844101973](https://lifehacker.com/apply-for-a-job-that-pays-10k-to-keep-track-of-your-to-1844101973)
+> 原文：<https://lifehacker.com/apply-for-a-job-that-pays-10k-to-keep-track-of-your-to-1844101973>
 
 2019 年底， [Tushy](https://hellotushy.com/) 宣布了他们的#Bidet2020 战役。这最终在两个方面成为了奇怪的预言。首先，这个标签看起来像是一个有趣的错别字，用来宣传现在可能成为民主党总统候选人的乔·拜登。然后是整个疫情的卫生纸恐慌/短缺，这导致 [一整年到目前为止坐浴盆销售](https://www.businessinsider.com/coronavirus-bidet-sales-increase-panic-toilet-paper-shortages-brondell-tushy-2020-3) 源源不断。如果你已经赶上(或坐过)坐浴盆潮流，或者仍然对坐浴盆好奇，Tushy(你现在可能已经猜到它是生产坐浴盆的)正好有适合你的工作: [粪便事务副总裁](https://hellotushy.com/pages/bidet-2020-job-posting) 。以下是这份工作的要求以及你如何申请。
 

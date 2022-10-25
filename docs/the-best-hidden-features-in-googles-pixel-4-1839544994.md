@@ -1,6 +1,6 @@
 # 谷歌 Pixel 4 的最佳隐藏功能
 
-> 原文:[https://life hacker . com/the-best-hidden-features-in-Google-pixel-4-1839544994](https://lifehacker.com/the-best-hidden-features-in-googles-pixel-4-1839544994)
+> 原文：<https://lifehacker.com/the-best-hidden-features-in-googles-pixel-4-1839544994>
 
 谷歌 Pixel 4 已经上市。评论既振奋人心又有些不温不火。在旗舰手机发布方面，Pixel 4 不是革命性的，尽管它比前代产品有所改进。如果你已经升级了，不要担心。Pixel 4 有足够多的规格和功能来吹嘘。
 

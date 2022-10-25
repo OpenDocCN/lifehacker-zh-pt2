@@ -1,6 +1,6 @@
 # 当你的孩子在浴缸里时，给他们读书
 
-> 原文:[https://life hacker . com/read-to-your-kids-while-than-they ' s in-the-battle-1835100569](https://lifehacker.com/read-to-your-kids-while-theyre-in-the-bathtub-1835100569)
+> 原文：<https://lifehacker.com/read-to-your-kids-while-theyre-in-the-bathtub-1835100569>
 
 给孩子读书真的没有什么不好的时间或地点(好吧，也许在潜水或做根管治疗的时候，但你知道我的意思)。尽管如此，当我女儿更小的时候，最伟大的故事时间设置之一包括把她塞在浴缸里，抓起一摞书，然后扑通一声坐在有盖的马桶或凳子上。
 

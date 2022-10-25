@@ -1,6 +1,6 @@
 # 在室内烧烤时，给牛排上油而不是平底锅，以减少烟雾
 
-> 原文:[https://life hacker . com/reduce-smoke-by-greating-the-steak-to-the-pan-w-1838445621](https://lifehacker.com/reduce-smoke-by-greasing-the-steak-instead-of-the-pan-w-1838445621)
+> 原文：<https://lifehacker.com/reduce-smoke-by-greasing-the-steak-instead-of-the-pan-w-1838445621>
 
 烤牛排时不可避免地会冒出一点烟，如果你的炉子上没有通风口，那烟会一直存在，破坏你原本很棒的牛排晚餐的气氛。你不能完全消除烟雾，但是你可以通过给你的牛排而不是平底锅稍微上油来显著减少烟雾的产生。
 

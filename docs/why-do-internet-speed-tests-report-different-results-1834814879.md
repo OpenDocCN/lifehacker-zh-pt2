@@ -1,6 +1,6 @@
 # 为什么网速测试会报告不同的结果？
 
-> 原文:[https://life hacker . com/why-do-internet-speed-tests-report-different-results-1834814879](https://lifehacker.com/why-do-internet-speed-tests-report-different-results-1834814879)
+> 原文：<https://lifehacker.com/why-do-internet-speed-tests-report-different-results-1834814879>
 
 我道歉。上周在 [**Tech 911**](https://lifehacker.com/c/tech-911) ，Lifehacker 的技术-建议专栏，我接受了 Lifehacker 编辑-in-Chief[Melissa](https://lifehacker.com/im-melissa-kirsch-lifehacker-editor-in-chief-and-this-1829150849)的提问。严格来说，她是 Lifehacker 的读者，所以这仍然符合本专栏的主题，但感觉像是作弊。这周我又在做同样的事情，不是因为你没有提交有价值的问题，而是你提交了！—只是另一个 Lifehacker 的员工有一个关于 [的很好的问题，这是我们最近探讨的一个话题](https://lifehacker.com/top-10-ways-to-deal-with-a-slow-internet-connection-514138634) ，我打赌你们中的一些人会有类似的想法。
 

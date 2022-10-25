@@ -1,6 +1,6 @@
 # 是时候打扫你的门了
 
-> 原文:[https://life hacker . com/its-time-to-clean-your-doors-1843465964](https://lifehacker.com/its-time-to-clean-your-doors-1843465964)
+> 原文：<https://lifehacker.com/its-time-to-clean-your-doors-1843465964>
 
 你用吸尘器。你是灰尘。偶尔，你的帽子里会有一只蜜蜂，于是你决定去擦窗户。而现在，你可能正在花额外的精力清洁你的 [门把手和](https://lifehacker.com/how-long-does-the-coronavirus-live-on-different-surface-1842316128) 电灯开关。
 

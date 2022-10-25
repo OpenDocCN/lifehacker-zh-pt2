@@ -1,6 +1,6 @@
 # 我有 15000 美元来避免另一个可怜的人生选择！应该买什么车？
 
-> 原文:[https://jalopnik . com/I-have-15-000-to-avoid-another-poor-life-choice-what-1836276693](https://jalopnik.com/i-have-15-000-to-avoid-another-poor-life-choice-what-1836276693)
+> 原文：<https://jalopnik.com/i-have-15-000-to-avoid-another-poor-life-choice-what-1836276693>
 
 罗恩目前开着一辆林肯城市汽车，里程表显示行驶了 20 万英里。他是如何得到这辆车的说来话长，但他已经准备好继续前进了。他想要一种他可以改装的东西，既可以作为公路旅行巡洋舰，也可以偶尔作为自动越野机。他应该买什么车？
 

@@ -1,6 +1,6 @@
 # 赢取并烧掉您的航空公司奖励，以最大限度地获得免费航班
 
-> 原文:[https://life hacker . com/earn-and-burn-your-airline-rewards-to-maximized-free-fli-1834165867](https://lifehacker.com/earn-and-burn-your-airline-rewards-to-maximize-free-fli-1834165867)
+> 原文：<https://lifehacker.com/earn-and-burn-your-airline-rewards-to-maximize-free-fli-1834165867>
 
 上个月，我收到一封电子邮件，通知我与我的美国航空公司 AAdvantage 信用卡相关的一项福利将于 5 月份“停止使用”:
 

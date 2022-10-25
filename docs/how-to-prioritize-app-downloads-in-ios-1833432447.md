@@ -1,6 +1,6 @@
 # 如何在 iOS 中优先下载应用程序
 
-> 原文:[https://life hacker . com/how-to-prioritize-app-downloads-in-IOs-1833432447](https://lifehacker.com/how-to-prioritize-app-downloads-in-ios-1833432447)
+> 原文：<https://lifehacker.com/how-to-prioritize-app-downloads-in-ios-1833432447>
 
 [Lifehacker's Complete Guide to iOS](https://appleios.kinja.com)) : title[![](../Images/71562cabb8ab94eee70dc08ff80378ef.png)](https://appleios.kinja.com)[Lifehacker's Complete Guide to iOS](https://appleios.kinja.com)Apple's iPhone is easy to learn, but difficult to master. Instead of spending hours sifting through settings yourself, check out our giant collection of guides, tips, and tricks for all things iOS.
 

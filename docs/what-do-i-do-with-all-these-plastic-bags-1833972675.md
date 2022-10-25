@@ -1,6 +1,6 @@
 # 我该怎么处理这些塑料袋？
 
-> 原文:[https://life hacker . com/what-do-I-do-with all-this-plastic-bags-1833972675](https://lifehacker.com/what-do-i-do-with-all-these-plastic-bags-1833972675)
+> 原文：<https://lifehacker.com/what-do-i-do-with-all-these-plastic-bags-1833972675>
 
 我尽我所能避免使用塑料袋——我曾经买过几样冷冻食品，并选择把它们抱回家，就像抱婴儿一样。
 

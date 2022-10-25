@@ -1,6 +1,6 @@
 # 您现在可以使用 Google Meet 来主持免费的视频会议
 
-> 原文:[https://life hacker . com/you-can-now-use-Google-meet-to-host-free-video-conferen-1843159365](https://lifehacker.com/you-can-now-use-google-meet-to-host-free-video-conferen-1843159365)
+> 原文：<https://lifehacker.com/you-can-now-use-google-meet-to-host-free-video-conferen-1843159365>
 
 谷歌正在将谷歌视频会议应用的价格一路下调到“免费”你只需要一个谷歌账户就可以访问它，而不是像以前那样订阅更贵的 G-Suite。(不过，作为推出 Google Meet 免费版本的一部分，G Suite 用户也可以在 9 月 30 日之前免费使用企业版 Meet。)
 

@@ -1,6 +1,6 @@
 # 如何查看和分享您的 Instagram 存档故事
 
-> 原文:[https://life hacker . com/how-to-view-and-reshare-your-archived-insta gram-stories-1821020501](https://lifehacker.com/how-to-view-and-reshare-your-archived-instagram-stories-1821020501)
+> 原文：<https://lifehacker.com/how-to-view-and-reshare-your-archived-instagram-stories-1821020501>
 
 你的 Instagram 故事会在 24 小时后从你的 feed 中消失，但它们不会永远消失:它们实际上保存在你个人资料的私人部分，你可以随时返回查看或重新分享它们。下面是怎么做的。
 

@@ -1,6 +1,6 @@
 # 利用《我的世界》教你的孩子几乎任何东西
 
-> 原文:[https://life hacker . com/use-minecraft-to-teach-your-kids-pretty-much-any-1838265622](https://lifehacker.com/use-minecraft-to-teach-your-kids-pretty-much-anything-1838265622)
+> 原文：<https://lifehacker.com/use-minecraft-to-teach-your-kids-pretty-much-anything-1838265622>
 
 《纽约时报》称他们为“ [、《我的世界》一代](https://www.nytimes.com/2016/04/17/magazine/the-minecraft-generation.html) 是有原因的今天的孩子和青少年是在这个游戏中成长起来的，他们在生存模式上磨砺了自己的牙齿，并继续在《我的世界》创造复杂的多人游戏世界。但是《我的世界》庞大的社区(每月有 1.12 亿人登录！)不仅仅是在玩游戏。他们沉浸在深深吸引人的教育体验中，这种体验鼓励解决问题、创造力、规划和执行——甚至可以教大一点的孩子编程和电气工程。
 

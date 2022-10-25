@@ -1,6 +1,6 @@
 # 为什么你应该在黄油中加入一点酸奶
 
-> 原文:[https://life hacker . com/why-you-should-add-a little-your-butter-1832877504](https://lifehacker.com/why-you-should-add-a-little-yogurt-to-your-butter-1832877504)
+> 原文：<https://lifehacker.com/why-you-should-add-a-little-yogurt-to-your-butter-1832877504>
 
 即使是最便宜、最基本的黄油也是一种美丽的东西，但是，正如我喜欢各种价位和颜色的盐一样，我也喜欢各种不同的黄油，从人工黄油到复合黄油。事实上，我最喜欢的孩子碰巧是一种很有文化的复合黄油——你只需要一点酸奶。
 

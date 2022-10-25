@@ -1,6 +1,6 @@
 # 如何训练你的大脑少分心
 
-> 原文:[https://life hacker . com/how-to-training your brain to-get-offender-1841753422](https://lifehacker.com/how-to-train-your-brain-to-get-distracted-less-1841753422)
+> 原文：<https://lifehacker.com/how-to-train-your-brain-to-get-distracted-less-1841753422>
 
 我们生活在一个不断被拉向不同方向的社会中。当你在工作时，你必须专注于一项任务，但也要注意像电子邮件和懈怠这样的事情，然后你的桌子上有电话，你的口袋里有手机。有太多的干扰，很难只专注于一件事。
 

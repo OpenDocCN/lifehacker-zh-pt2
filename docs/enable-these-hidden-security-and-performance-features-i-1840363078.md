@@ -1,6 +1,6 @@
 # 在 Chrome 79 中启用这些隐藏的安全和性能功能
 
-> 原文:[https://life hacker . com/enable-these-hidden-security-and-performance-features-I-1840363078](https://lifehacker.com/enable-these-hidden-security-and-performance-features-i-1840363078)
+> 原文：<https://lifehacker.com/enable-these-hidden-security-and-performance-features-i-1840363078>
 
 Chrome 79 在这里。在你做任何事情之前，点击桌面浏览器右上角的三点图标，点击帮助，点击“关于谷歌浏览器”，然后为你的系统调用更新。(继续更新你的 Android 或 iOS 应用程序。)
 

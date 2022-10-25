@@ -1,6 +1,6 @@
 # 如何在 Spotify 上屏蔽乐队
 
-> 原文:[https://life hacker . com/how-to-block-bands-on-Spotify-1831951659](https://lifehacker.com/how-to-block-bands-on-spotify-1831951659)
+> 原文：<https://lifehacker.com/how-to-block-bands-on-spotify-1831951659>
 
 去吧，把“谢谢你，下一个”的笑话从你的系统中去掉。我会等的。因为这正是你将在 Spotify 的最新功能中做的事情:告诉你无法忍受的各种乐队，你不再希望他们出现在你原本喜欢的精选播放列表中。
 

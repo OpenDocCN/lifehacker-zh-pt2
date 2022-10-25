@@ -1,6 +1,6 @@
 # 查看这些免费的教育应用和网站
 
-> 原文:[https://life hacker . com/check-out-these-free-educational-apps-and-sites-1842363236](https://lifehacker.com/check-out-these-free-educational-apps-and-sites-1842363236)
+> 原文：<https://lifehacker.com/check-out-these-free-educational-apps-and-sites-1842363236>
 
 当我写这篇文章的时候，我个人正处于学校临时关闭的第二天，但是我们不知道如何关闭。同病相怜的人都知道“日子很长”这句话有了全新的含义。这些日子必须充满一些东西，理想情况下，至少部分的*东西*应该是学术性的。
 

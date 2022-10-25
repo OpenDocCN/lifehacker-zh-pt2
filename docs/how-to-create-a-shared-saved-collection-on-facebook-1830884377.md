@@ -1,6 +1,6 @@
 # 如何在脸书上创建共享的“已保存”收藏
 
-> 原文:[https://life hacker . com/how-to-create-a-shared-saved-collection-on-Facebook-1830884377](https://lifehacker.com/how-to-create-a-shared-saved-collection-on-facebook-1830884377)
+> 原文：<https://lifehacker.com/how-to-create-a-shared-saved-collection-on-facebook-1830884377>
 
 我最喜欢的脸书功能之一是“保存文章”按钮。我每天至少用五六次来保存各种东西。
 

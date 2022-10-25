@@ -1,6 +1,6 @@
 # 家长如何参与「互联网安全日」
 
-> 原文:[https://life hacker . com/how-parents-can-getted-on-safer-internet-day-1841574051](https://lifehacker.com/how-parents-can-get-involved-on-safer-internet-day-1841574051)
+> 原文：<https://lifehacker.com/how-parents-can-get-involved-on-safer-internet-day-1841574051>
 
 你知道什么最棒吗？如果每一天都是“更安全的互联网日”当谈到互联网时，有很多事情让父母感到恐惧:网络掠夺者、网络欺凌、令人难以置信的图形和暴力色情的流行，等等。但是，如果我们想教我们的孩子如何安全而明智地浏览互联网，完全回避并不是一个选项。所以我们创造了一个节日来帮助我们，这个节日就是今天。
 

@@ -1,6 +1,6 @@
 # 哪些 DNA 数据库对隐私最好和最差？
 
-> 原文:[https://life hacker . com/which-DNA-databases-is-the-best and worth-for-privacy-1833946048](https://lifehacker.com/which-dna-databases-are-the-best-and-worst-for-privacy-1833946048)
+> 原文：<https://lifehacker.com/which-dna-databases-are-the-best-and-worst-for-privacy-1833946048>
 
 你的 DNA 透露了很多关于你的信息，很可能你 [或者你的一个亲戚](https://vitals.lifehacker.com/you-probably-already-have-cousins-in-a-dna-database-1825892173) 出现在现在用于追踪罪犯的 DNA 数据库中。但是 [邮寄一小瓶唾液](https://lifehacker.com/how-dna-testing-services-work-1825759291) 难道*不会*自动把你放入执法部门可以访问的数据库。你的隐私风险取决于你工作的公司类型。
 

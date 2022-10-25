@@ -1,6 +1,6 @@
 # 厌倦了泄露和猜测，谷歌刚刚发布了 Pixel 4 的官方照片
 
-> 原文:[https://gizmodo . com/厌倦了泄露和猜测-Google-just-dropped-an-1835458332](https://gizmodo.com/tired-of-leaks-and-speculation-google-just-dropped-an-1835458332)
+> 原文：<https://gizmodo.com/tired-of-leaks-and-speculation-google-just-dropped-an-1835458332>
 
 本周早些时候，知名手机侦探 Steve Hemmerstoffer([@ on leaks 在 Twitter 上](https://twitter.com/OnLeaks) ) [与 price Baba](https://pricebaba.com/blog/google-pixel-4-renders-exclusive)[合作，根据泄露的原理图制作即将推出的 Pixel 4 的渲染图](https://twitter.com/OnLeaks/status/1138082917995995137) 。自然，这让谣言工厂愤怒了，但现在在一个前所未有的举动中，谷歌决定用 Pixel 4 的第一张官方图片来提升最近的粉丝渲染。
 

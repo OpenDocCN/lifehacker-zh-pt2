@@ -1,6 +1,6 @@
 # 如何使腌樱桃变酸
 
-> 原文:[https://life hacker . com/how-to-make-a-picked-cherry-sour-1843924927](https://lifehacker.com/how-to-make-a-pickled-cherry-sour-1843924927)
+> 原文：<https://lifehacker.com/how-to-make-a-pickled-cherry-sour-1843924927>
 
 本周早些时候，我做了一罐腌樱桃 ，我发现它们很好吃。它们是奶酪盘中的佳品，也是沙拉中的佳品，但它们绝对是充满酒精的跑车中的佼佼者。最简单的方法就是把它扔进曼哈顿。最专业的做法是把它们倒进杜松子酒里。
 

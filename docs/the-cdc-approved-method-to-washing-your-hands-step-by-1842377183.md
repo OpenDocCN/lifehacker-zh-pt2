@@ -1,6 +1,6 @@
 # 疾控中心认可的洗手方法，循序渐进
 
-> 原文:[https://life hacker . com/the-CDC-approved-method-to-washing-your-hands-step-by-1842377183](https://lifehacker.com/the-cdc-approved-method-to-washing-your-hands-step-by-1842377183)
+> 原文：<https://lifehacker.com/the-cdc-approved-method-to-washing-your-hands-step-by-1842377183>
 
 为了公众健康的利益，也为了那些视觉学习者，我们向展示正确洗手的视频指南。
 

@@ -1,6 +1,6 @@
 # 将南瓜籽浸泡在啤酒中，可以得到更好的南瓜籽
 
-> 原文:[https://life hacker . com/make-better-punch-seeds-by-brining-them-in-beer-1830129783](https://lifehacker.com/make-better-pumpkin-seeds-by-brining-them-in-beer-1830129783)
+> 原文：<https://lifehacker.com/make-better-pumpkin-seeds-by-brining-them-in-beer-1830129783>
 
 我不喜欢雕刻南瓜。从上面的空心南瓜灯你可以看到，我的艺术技巧相当有限，我通常会在中途感到非常无聊。然而，我确实喜欢烘烤南瓜子，然后吃南瓜子，而其他人还在雕刻球茎南瓜。我相信我的活动更有趣，尤其是因为我把种子泡在啤酒里。
 

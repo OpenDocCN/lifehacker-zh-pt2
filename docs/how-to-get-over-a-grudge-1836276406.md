@@ -1,6 +1,6 @@
 # 如何克服怨恨
 
-> 原文:[https://lifehacker.com/how-to-get-over-a-grudge-1836276406](https://lifehacker.com/how-to-get-over-a-grudge-1836276406)
+> 原文：<https://lifehacker.com/how-to-get-over-a-grudge-1836276406>
 
 我们人类喜欢我们的怨恨。我们一遍又一遍地讲述我们的怨恨故事，就像永远不会完全愈合的战争创伤:我们被错误地拒绝了晋升，我们支付了不属于我们的账单，我们从未收到邀请。
 

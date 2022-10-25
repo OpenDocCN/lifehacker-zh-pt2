@@ -1,6 +1,6 @@
 # 为什么在商务旅行中你应该总是点客房服务早餐
 
-> 原文:[https://life hacker . com/why-you-should-always-order-room-service-on-b-1830055016](https://lifehacker.com/why-you-should-always-order-room-service-breakfast-on-b-1830055016)
+> 原文：<https://lifehacker.com/why-you-should-always-order-room-service-breakfast-on-b-1830055016>
 
 到今年年底，我将有一半以上的时间花在旅行上，大部分时间呆在酒店房间里。所以，我发展了一点…惯例。当我入住酒店房间时，我做的第一件事就是喝完所有的免费水瓶(飞行脱水是真的！)，在早上填写客房服务早餐的门衣架，要求它在我早上需要离开酒店前大约一个小时到达。我先填，因为我可能会很晚才出来，我不想冒以后忘记填的风险。
 

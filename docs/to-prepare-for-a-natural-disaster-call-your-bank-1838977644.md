@@ -1,6 +1,6 @@
 # 为了防备自然灾害，打电话给你的银行
 
-> 原文:[https://life hacker . com/to-prepare-for-a-natural-disaster-call-your-bank-1838977644](https://lifehacker.com/to-prepare-for-a-natural-disaster-call-your-bank-1838977644)
+> 原文：<https://lifehacker.com/to-prepare-for-a-natural-disaster-call-your-bank-1838977644>
 
 无论是飓风、洪水还是野火，面对大自然可能抛给你的最坏情况已经够艰难的了。但是，嘿，当你填完沙袋或打包撤离时，确保你所有的账单都按时支付，好吗？
 

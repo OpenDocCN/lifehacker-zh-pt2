@@ -1,6 +1,6 @@
 # 如何停止讨厌玉米糖
 
-> 原文:[https://life hacker . com/how-to-stop-hatting-candy-corn-1838855471](https://lifehacker.com/how-to-stop-hating-candy-corn-1838855471)
+> 原文：<https://lifehacker.com/how-to-stop-hating-candy-corn-1838855471>
 
 玉米糖是坏糖。至少这是我多年来坚持的观点，每年 10 月，在我经常光顾的每个社交媒体平台上，公开宣称它是“垃圾”。但是现在有很多真正重要的事情需要大声疾呼，在网上为糖果疯狂似乎是愚蠢的。无论在哪里，人们都应该找到快乐，即使这种快乐是以季节性款待的形式出现的。
 

@@ -1,6 +1,6 @@
 # 你可以在 2019 年重复使用这些老式日历
 
-> 原文:[https://life hacker . com/you-can-reuse-these-vintage-calendars-in-2019-1832401036](https://lifehacker.com/you-can-reuse-these-vintage-calendars-in-2019-1832401036)
+> 原文：<https://lifehacker.com/you-can-reuse-these-vintage-calendars-in-2019-1832401036>
 
 安排日历只有 14 种可能的方式:一年要么有 365 天，要么有 366 天，它从一周七天中的一天开始。这意味着日历重复:在 2019 年，你可以使用 2013 年的日历，也是 365 天，从周二开始。
 

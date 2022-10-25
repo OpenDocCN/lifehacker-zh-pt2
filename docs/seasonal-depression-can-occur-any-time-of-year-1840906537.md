@@ -1,6 +1,6 @@
 # 季节性抑郁症可能发生在一年中的任何时候
 
-> 原文:[https://life hacker . com/seasonal-depression-can-occurse-any-time-of-year-1840906537](https://lifehacker.com/seasonal-depression-can-occur-any-time-of-year-1840906537)
+> 原文：<https://lifehacker.com/seasonal-depression-can-occur-any-time-of-year-1840906537>
 
 在波特兰东南部，如果我从办公室的电脑上抬起头，我会看到错落有致的砖砌建筑，中间点缀着常绿的森林，所有这些建筑都映衬着铅色的天空。太平洋西北部现在是冬天，我们已经进入雨季几个月了，这个雨季可能会持续到四月。我很幸运，我喜欢下雨和寒冷——只要我有足够的功夫和瑜伽，我整个冬天都很开心。是的，拜托，我想把我的条纹毛衣再穿六个月。把苹果酒拿来。
 

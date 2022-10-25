@@ -1,6 +1,6 @@
 # 每个年龄你应该存多少钱？
 
-> 原文:[https://life hacker . com/你每个年龄应该存多少钱 1821498621](https://lifehacker.com/how-much-should-you-have-saved-at-every-age-1821498621)
+> 原文：<https://lifehacker.com/how-much-should-you-have-saved-at-every-age-1821498621>
 
 到一定年龄时你应该存多少钱的问题是个人理财问题中的一个老生常谈的问题——就在如何 [制定预算和如何开始投资](https://twocents.lifehacker.com/how-to-build-an-easy-beginner-set-and-forget-investm-1686878594) 之前。但是就像许多金钱决策一样，没有一个单一的、神奇的数字适用于所有人。
 

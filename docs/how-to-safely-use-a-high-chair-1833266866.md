@@ -1,6 +1,6 @@
 # 如何安全使用高脚椅
 
-> 原文:[https://life hacker . com/how-to-safety-use-a-high-chair-1833266866](https://lifehacker.com/how-to-safely-use-a-high-chair-1833266866)
+> 原文：<https://lifehacker.com/how-to-safely-use-a-high-chair-1833266866>
 
 当你吃饭或试图在厨房准备晚餐时，高脚椅似乎是限制你的宝宝或蹒跚学步的孩子的完美场所。往托盘上扔几个麦片，大家都很开心。但是高脚椅也是小孩子的父母经常使用的东西之一，随着时间的推移，你的安全措施可能会变得松懈。
 

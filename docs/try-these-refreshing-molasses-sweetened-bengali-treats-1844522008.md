@@ -1,6 +1,6 @@
 # 尝尝这些清爽的糖蜜加糖孟加拉点心
 
-> 原文:[https://life hacker . com/try-these-refreshing-糖蜜-加糖-孟加拉糖-1844522008](https://lifehacker.com/try-these-refreshing-molasses-sweetened-bengali-treats-1844522008)
+> 原文：<https://lifehacker.com/try-these-refreshing-molasses-sweetened-bengali-treats-1844522008>
 
 随着气温的持续上升，我们对清凉消费品的需求也在增加。虽然你可能习惯于在像姜饼这样的烘焙食品中食用糖蜜，但这种黑色的美味甜味剂可以用来制作美味的夏季美食。
 

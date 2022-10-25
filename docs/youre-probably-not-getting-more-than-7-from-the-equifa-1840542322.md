@@ -1,6 +1,6 @@
 # 你可能从 Equifax 和解中得不到超过 7 美元
 
-> 原文:[https://life hacker . com/you-possible-not-going-than-7 from-the-equifa-1840542322](https://lifehacker.com/youre-probably-not-getting-more-than-7-from-the-equifa-1840542322)
+> 原文：<https://lifehacker.com/youre-probably-not-getting-more-than-7-from-the-equifa-1840542322>
 
 还记得那次我们都提交了对 Equifax 违约集体诉讼的索赔，期望每人得到 125 美元吗？在得知我们的个人数据可能在 2017 年 1.47 亿个账户的黑客攻击中丢失后，我们理所当然地应该(或者我们认为)获得足够的现金，几乎可以购买一套 AirPods。
 

@@ -1,6 +1,6 @@
 # 在模拟人生 4 中你可能不知道的 5 个建造技巧
 
-> 原文:[https://kotaku . com/5-tips-you-may-not-know-for-building-in-the-sims-4-1833409109](https://kotaku.com/5-tips-you-might-not-know-for-building-in-the-sims-4-1833409109)
+> 原文：<https://kotaku.com/5-tips-you-might-not-know-for-building-in-the-sims-4-1833409109>
 
 尽管《模拟人生 4》比以往任何时候都更好地建造了房屋，但建造你梦想中的家仍然有点棘手。这里有一些提示，可以帮助你超越仅仅制作一个带窗口的盒子。
 

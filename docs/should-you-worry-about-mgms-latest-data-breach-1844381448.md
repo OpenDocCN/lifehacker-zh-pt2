@@ -1,6 +1,6 @@
 # 你应该担心米高梅最近的数据泄露吗？
 
-> 原文:[https://life hacker . com/should-you-worry-mgms-latest-data-breach-1844381448](https://lifehacker.com/should-you-worry-about-mgms-latest-data-breach-1844381448)
+> 原文：<https://lifehacker.com/should-you-worry-about-mgms-latest-data-breach-1844381448>
 
 一个包含超过 1 . 42 亿米高梅度假村客人的个人信息的数据库在网上出售给 T2。这些数据在暗网上以 2900 美元的价格出售，包括敏感的客人信息，如姓名、电话号码等等——尽管似乎不包括财务信息。
 

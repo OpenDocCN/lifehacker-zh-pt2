@@ -1,6 +1,6 @@
 # 如何找到 Gmail 新的黑暗模式设置
 
-> 原文:[https://life hacker . com/how-to-find-gmails-new-dark-mode-setting-1838066217](https://lifehacker.com/how-to-find-gmails-new-dark-mode-setting-1838066217)
+> 原文：<https://lifehacker.com/how-to-find-gmails-new-dark-mode-setting-1838066217>
 
 尽管 [在 Android 10 发布之前戏弄了扩展的黑暗模式支持](https://www.android.com/android-10/) ，许多安装了更新的用户指出，几个谷歌应用程序仍然缺乏黑暗主题，包括其 Gmail 应用程序。然而，看起来那些缺失的黑暗主题选项终于开始出现了。
 

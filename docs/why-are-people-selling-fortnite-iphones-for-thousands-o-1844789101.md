@@ -1,6 +1,6 @@
 # 为什么有人卖几千美元的“堡垒之夜”iPhones？
 
-> 原文:[https://life hacker . com/why-the-people-selling-fort nine-o-1844789101](https://lifehacker.com/why-are-people-selling-fortnite-iphones-for-thousands-o-1844789101)
+> 原文：<https://lifehacker.com/why-are-people-selling-fortnite-iphones-for-thousands-o-1844789101>
 
 绝望的时代带来了人们最糟糕的一面——从那些在新冠肺炎检疫开始时囤积卫生纸并以每卷 50 多美元的价格出售的人，到那些现在试图以几千美元的价格出售装有*堡垒之夜*游戏的的蹩脚 iPhones 的人。
 

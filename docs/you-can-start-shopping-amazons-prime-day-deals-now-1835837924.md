@@ -1,6 +1,6 @@
 # 你现在可以开始购买亚马逊的 Prime Day 优惠
 
-> 原文:[https://life hacker . com/you-can-start-shopping-amazons-prime-day-deals-now-1835837924](https://lifehacker.com/you-can-start-shopping-amazons-prime-day-deals-now-1835837924)
+> 原文：<https://lifehacker.com/you-can-start-shopping-amazons-prime-day-deals-now-1835837924>
 
 亚马逊宣布了一年一度的 Prime Day 庆祝活动，今年将在 7 月 15 日和 16 日两天内举行，有超过 100 万笔交易。
 

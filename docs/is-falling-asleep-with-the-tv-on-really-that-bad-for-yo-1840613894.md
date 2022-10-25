@@ -1,6 +1,6 @@
 # 开着电视睡觉真的对你有害吗？
 
-> 原文:[https://life hacker . com/is-开着电视入睡真的对溜溜球不好吗 1840613894](https://lifehacker.com/is-falling-asleep-with-the-tv-on-really-that-bad-for-yo-1840613894)
+> 原文：<https://lifehacker.com/is-falling-asleep-with-the-tv-on-really-that-bad-for-yo-1840613894>
 
 在一个完美的世界里，我们都应该在睡觉前至少半小时关闭电子设备，洗个澡，读一本放松的书，冥想，然后在刚洗过的熏衣草香味的床单上昏昏欲睡。但对我来说——以及大约 60%的美国人——实际上，这个过程包括在我们试图入睡时看电视。
 

@@ -1,6 +1,6 @@
 # 如何设计自己的完美性玩具
 
-> 原文:[https://life hacker . com/how-to-design-your-own-perfect-sex-toy-1832434425](https://lifehacker.com/how-to-design-your-own-perfect-sex-toy-1832434425)
+> 原文：<https://lifehacker.com/how-to-design-your-own-perfect-sex-toy-1832434425>
 
 性玩具是非常私人的物品，但人们仍然主要购买装配线上的东西。如果你已经超越了千篇一律的性玩具，以下是你如何根据自己的需求设计完美造型的方法。
 

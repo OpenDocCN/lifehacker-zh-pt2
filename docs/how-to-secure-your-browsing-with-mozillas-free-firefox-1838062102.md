@@ -1,6 +1,6 @@
 # 如何用 Mozilla 的免费火狐“VPN”保护你的浏览
 
-> 原文:[https://life hacker . com/how-to-secure-your-browsing-with-mozillas-free-Firefox-1838062102](https://lifehacker.com/how-to-secure-your-browsing-with-mozillas-free-firefox-1838062102)
+> 原文：<https://lifehacker.com/how-to-secure-your-browsing-with-mozillas-free-firefox-1838062102>
 
 毫无疑问，在我看来，Mozilla 正在努力——非常努力地——寻找 Firefox 网络浏览器未来的各种盈利方式。我仍然很高兴该公司决定提供免费的 VPN 服务(实际上是一个 [网络代理](https://news.ycombinator.com/item?id=20928445) 而不是其他任何东西)，给你一个简单的方法“屏蔽你的 IP 地址，防止网络上的第三方追踪者，”正如 Mozilla [所说](https://blog.mozilla.org/blog/2019/09/10/firefoxs-test-pilot-program-returns-with-firefox-private-network-beta/) 。
 

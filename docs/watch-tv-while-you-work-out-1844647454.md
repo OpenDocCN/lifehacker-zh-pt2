@@ -1,6 +1,6 @@
 # 健身时看电视
 
-> 原文:[https://life hacker . com/watch-TV-while-you-work-out-1844647454](https://lifehacker.com/watch-tv-while-you-work-out-1844647454)
+> 原文：<https://lifehacker.com/watch-tv-while-you-work-out-1844647454>
 
 在疫情期间锻炼是一种很好的健康利用时间的方式。边看你最喜欢的节目边锻炼是对时间更好的利用。也许在冠状病毒出现之前，其他人就已经发现了让心脏跳动的同时，还能看到一群真正的家庭主妇喝大量的酒，为一些愚蠢的事情互相争吵。但这对我来说是一个顿悟，这让我非常高兴。
 

@@ -1,6 +1,6 @@
 # 一个人一生中会摄入多少人类皮肤？
 
-> 原文:[https://gizmodo . com/how-much-human-skin-over-the-cours-1830221873](https://gizmodo.com/how-much-human-skin-does-a-person-ingest-over-the-cours-1830221873)
+> 原文：<https://gizmodo.com/how-much-human-skin-does-a-person-ingest-over-the-cours-1830221873>
 
 普通美国人一年要吃掉将近一吨的食物(T4、T2 和 T3)。T 他分解为大约 630 份牛奶、奶酪和冰淇淋，185 磅肉，以及一种 [剂量越来越高的](https://www.health.harvard.edu/blog/astounding-increase-in-antidepressant-use-by-americans-201110203624) 抗抑郁药。但是人肉在哪里合适呢？人类每天脱落大约 5 亿个皮肤细胞。事实是，这些数以百万计的脱落细胞正直接进入我们的嘴里，通常——尤其是——当我们认为我们只吃了几个鸡蛋或其他东西的时候。
 

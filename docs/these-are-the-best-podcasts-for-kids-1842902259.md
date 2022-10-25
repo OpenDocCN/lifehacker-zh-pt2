@@ -1,6 +1,6 @@
 # these are the best podcasts for kids 1842902259
 
-> 原文:[https://life hacker . com/these-is-the-best-podcast-for-kids-1842902259](https://lifehacker.com/these-are-the-best-podcasts-for-kids-1842902259)
+> 原文：<https://lifehacker.com/these-are-the-best-podcasts-for-kids-1842902259>
 
 就像播客领域的每个成年人都有自己的事情一样——真实犯罪！幽默！新闻！虚构！—所以，对于有不同兴趣的孩子来说，有各种各样的播客口味。有适合对事物如何运作感到好奇的孩子、喜欢烹饪的孩子、喜欢听故事的孩子和喜欢音乐的孩子的播客。
 

@@ -1,6 +1,6 @@
 # can happiness courses really make you happier 1844606252
 
-> 原文:[https://life hacker . com/can-happy-courses-really-make-you-happiness-1844606252](https://lifehacker.com/can-happiness-courses-really-make-you-happier-1844606252)
+> 原文：<https://lifehacker.com/can-happiness-courses-really-make-you-happier-1844606252>
 
 当 Krysta 报名参加加州大学伯克利分校的课程快乐科学时，她不知道该期待什么。她之前做过的最接近的事情是个人发展训练营，其中加入了一点积极心理学。但在努力解决了婚姻中的一个根本性分歧后，她表示，这门课程对她离婚的决定产生了影响。
 

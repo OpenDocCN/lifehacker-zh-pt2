@@ -1,6 +1,6 @@
 # 每周深度清洁厨房中一个被忽视的部分
 
-> 原文:[https://life hacker . com/deep-clean-one-ignored-part-of-your ' s kitchen-weekly-1842419892](https://lifehacker.com/deep-clean-one-neglected-part-of-your-kitchen-each-week-1842419892)
+> 原文：<https://lifehacker.com/deep-clean-one-neglected-part-of-your-kitchen-each-week-1842419892>
 
 考虑到这些天你可能会花一些额外的时间做饭，你可能已经注意到你的厨房中一些昏暗的、被忽视的区域需要一些爱和关注。我并不是建议你把所有与世隔绝的时间 [都用来擦洗你的烤箱](https://lifehacker.com/you-dont-have-to-be-productive-right-now-1842378468) ，但是每周挑选一个小的厨房改造项目会让房间变得更舒适。
 

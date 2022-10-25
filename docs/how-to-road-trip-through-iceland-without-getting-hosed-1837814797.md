@@ -1,6 +1,6 @@
 # how to road trip through iceland without getting hosed 1837814797
 
-> 原文:[https://jalopnik . com/how-to-road-trip-through-you-get-get-hosed-1837814797](https://jalopnik.com/how-to-road-trip-through-iceland-without-getting-hosed-1837814797)
+> 原文：<https://jalopnik.com/how-to-road-trip-through-iceland-without-getting-hosed-1837814797>
 
 在一个像冰岛这样地理上如此多样，我们做事的方式又如此陌生的国家，你该从哪里开始呢？我会告诉你确切的地点:汽车租赁。
 

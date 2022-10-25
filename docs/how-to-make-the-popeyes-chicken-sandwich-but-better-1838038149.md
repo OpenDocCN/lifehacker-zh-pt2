@@ -1,6 +1,6 @@
 # how to make the popeyes chicken sandwich but better 1838038149
 
-> 原文:[https://life hacker . com/how-to-make-the-popeyes-chicken-sandwich-but-better-1838038149](https://lifehacker.com/how-to-make-the-popeyes-chicken-sandwich-but-better-1838038149)
+> 原文：<https://lifehacker.com/how-to-make-the-popeyes-chicken-sandwich-but-better-1838038149>
 
 如果你眨了眨眼，你可能已经错过了，但大约一个月前大力水手 [发布了一款炸鸡三明治](https://thetakeout.com/review-popeyes-chicken-sandwich-chick-fil-a-1837353035) ，悄无声息，几乎没有任何宣传。作为一个很酷的人，我肯定不会在快餐博客上花太多时间，我注意到他们正在我的领域进行测试，并在售罄之前设法得到了一些。你知道吗？他们(或者至少曾经)非常好！
 

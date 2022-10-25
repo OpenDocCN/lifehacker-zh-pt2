@@ -1,6 +1,6 @@
 # 为什么你应该冷冻西红柿而不先去皮
 
-> 原文:[https://life hacker . com/why-you-should-freeze-then-去皮西红柿-fir-1844714372](https://lifehacker.com/why-you-should-freeze-tomatoes-without-peeling-them-fir-1844714372)
+> 原文：<https://lifehacker.com/why-you-should-freeze-tomatoes-without-peeling-them-fir-1844714372>
 
 “番茄太多”不是我目前面临的问题，因为我缺少一个可以种植任何番茄的花园(T2)。但是我知道有很多人现在被自家院子里的工厂生产的大量爱情苹果弄得不知所措，显然“多吃点西红柿三明治”不是一个足够积极的缓解计划。
 

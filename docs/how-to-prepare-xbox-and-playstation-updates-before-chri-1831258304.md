@@ -1,6 +1,6 @@
 # 如何在圣诞节前准备 Xbox 和 PlayStation 的更新
 
-> 原文:[https://life hacker . com/how-to-prepare-Xbox-and-PlayStation-updates-before-chri-1831258304](https://lifehacker.com/how-to-prepare-xbox-and-playstation-updates-before-chri-1831258304)
+> 原文：<https://lifehacker.com/how-to-prepare-xbox-and-playstation-updates-before-chri-1831258304>
 
 当圣诞节到来时，一群人会打开全新的 Xbox 或 PlayStation 游戏机，插上电源，等待下载和安装巨大的系统更新。取决于有多少急切的游戏玩家注册了微软或索尼的服务来获取更新——或玩全新的游戏——如果两家公司的服务器都感到紧张，这个过程可能会比平时花费更长的时间。
 

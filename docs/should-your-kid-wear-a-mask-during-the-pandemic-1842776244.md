@@ -1,6 +1,6 @@
 # 疫情期间你的孩子应该戴口罩吗？
 
-> 原文:[https://life hacker . com/should-your-kid-wear a-mask-in-the-疫情-1842776244](https://lifehacker.com/should-your-kid-wear-a-mask-during-the-pandemic-1842776244)
+> 原文：<https://lifehacker.com/should-your-kid-wear-a-mask-during-the-pandemic-1842776244>
 
 在过去的一周里，我们都不得不在思想上从“你不需要面具，把它们留给专业人士吧”的心态转变为疾病预防控制中心的最新建议，即我们确实应该在任何时候离开家时都戴上“布面套”。当一个家庭朋友本周给我们缝了两个口罩(一个给我，一个给我丈夫)时，我 9 岁的儿子立刻想知道他的口罩在哪里。
 

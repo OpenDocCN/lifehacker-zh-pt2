@@ -1,6 +1,6 @@
 # 你不能相信公司会说出数据泄露的真相
 
-> 原文:[https://life hacker . com/what-to-do what-what-what-what-do-what-a-company-like-a-data-breach-1836967506](https://lifehacker.com/what-to-do-when-a-company-lies-about-a-data-breach-1836967506)
+> 原文：<https://lifehacker.com/what-to-do-when-a-company-lies-about-a-data-breach-1836967506>
 
 上周，在线运动鞋交易平台 [StockX](https://stockx.com) 要求其用户重置密码，原因是“StockX 平台最近完成了系统更新”事实上，该公司早在 5 月份就遭遇了一次大规模数据泄露，直到记者追问下，该公司才最终澄清此事，这些记者中的 [接触到了一些泄露的数据](https://techcrunch.com/2019/08/03/stockx-hacked-millions-records/) 。
 

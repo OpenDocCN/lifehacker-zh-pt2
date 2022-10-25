@@ -1,6 +1,6 @@
 # 用朱尔充电器和牙线拯救坠落的气垫
 
-> 原文:[https://life hacker . com/rescue-a-fall-air pod-a-juul-charger-and-floss-1835130466](https://lifehacker.com/rescue-a-fallen-airpod-with-a-juul-charger-and-floss-1835130466)
+> 原文：<https://lifehacker.com/rescue-a-fallen-airpod-with-a-juul-charger-and-floss-1835130466>
 
 苹果公司是世界上最大的昂贵可丢弃物品销售商，它的巅峰之作是 T1 AirP T2 ODS T3 T4 T5 169 美元一对 T6 T7 无绳耳机 T8，这款耳机可以一天五次从耳朵里拿出来。你最终会将一个丢进一个狭小的空间，家具后面，甚至是人行道的格栅里。那就是你需要一个会蒸发的朋友的时候。
 

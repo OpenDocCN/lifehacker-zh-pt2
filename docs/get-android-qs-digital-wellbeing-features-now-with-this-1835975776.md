@@ -1,6 +1,6 @@
 # 立即使用此应用程序获取 Android 10 的“数字健康”功能
 
-> 原文:[https://life hacker . com/get-Android-QS-digital-well being-features-now-with-this-1835975776](https://lifehacker.com/get-android-qs-digital-wellbeing-features-now-with-this-1835975776)
+> 原文：<https://lifehacker.com/get-android-qs-digital-wellbeing-features-now-with-this-1835975776>
 
 随着 Android 10 的发布，谷歌计划推出一款数字健康应用。该应用程序旨在帮助你专注于与技术打交道的时间，并更经常地拔掉插头，这样你就可以享受你周围的世界，而不仅仅是你手机上的世界。
 

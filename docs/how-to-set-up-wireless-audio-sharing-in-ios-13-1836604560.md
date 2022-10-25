@@ -1,6 +1,6 @@
 # 如何在 iOS 13 中设置无线音频共享
 
-> 原文:[https://life hacker . com/how-to-set-up-wireless-audio-sharing-in-IOs-13-1836604560](https://lifehacker.com/how-to-set-up-wireless-audio-sharing-in-ios-13-1836604560)
+> 原文：<https://lifehacker.com/how-to-set-up-wireless-audio-sharing-in-ios-13-1836604560>
 
 [Lifehacker's Complete Guide to iOS](https://appleios.kinja.com)) : title[![](../Images/71562cabb8ab94eee70dc08ff80378ef.png)](https://appleios.kinja.com)[Lifehacker's Complete Guide to iOS](https://appleios.kinja.com)Apple's iPhone is easy to learn, but difficult to master. Instead of spending hours sifting through settings yourself, check out our giant collection of guides, tips, and tricks for all things iOS.
 

@@ -1,6 +1,6 @@
 # 用 Broadly 的性别图谱收藏使你的照片多样化
 
-> 原文:[https://life hacker . com/diversize-your-stock-photos-with-broadlys-gender-spectr-1833615871](https://lifehacker.com/diversify-your-stock-photos-with-broadlys-gender-spectr-1833615871)
+> 原文：<https://lifehacker.com/diversify-your-stock-photos-with-broadlys-gender-spectr-1833615871>
 
 库存照片往往落后于文化。他们在商业照片中只出现男性，或者没有充分代表少数民族，或者只显示人们扮演过时的文化角色。这是我们在 Lifehacker 经常遇到的问题，在那里，我们每天必须在有限的照片预算上展示 15 个以上的帖子，并希望代表我们所有的观众。因此，我们对许多免费照片库的出现感到兴奋，它们包括多样化的选择或强调代表性不足的群体。最新的是 [性别谱收集自广泛的](https://broadlygenderphotos.vice.com/) 。
 

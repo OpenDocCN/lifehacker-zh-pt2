@@ -1,6 +1,6 @@
 # 如何处理别人留在你家的东西
 
-> 原文:[https://life hacker . com/what-to-do-with-stuff-someone-left-in-your place-1826115025](https://lifehacker.com/what-to-do-with-stuff-someone-left-at-your-place-1826115025)
+> 原文：<https://lifehacker.com/what-to-do-with-stuff-someone-left-at-your-place-1826115025>
 
 如果有人来你家，不管是朋友、室友、前搭档还是一个随机的派对客人，总有人会在某个时候把东西留在你家。但只是因为它在你的房子里，它并不自动成为你的。根据美国普通法，你应该这样做。
 

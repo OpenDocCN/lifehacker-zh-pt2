@@ -1,6 +1,6 @@
 # how to match your kid with a bike that fits 1844309390
 
-> 原文:[https://life hacker . com/how-to-match-your-kid with a-the-fit-the-bike 1844309390](https://lifehacker.com/how-to-match-your-kid-with-a-bike-that-fits-1844309390)
+> 原文：<https://lifehacker.com/how-to-match-your-kid-with-a-bike-that-fits-1844309390>
 
 过去，当我要给儿子买辆新自行车时，我们会带他去商店，让他试骑几辆。通常，只要他在自行车上坐一会儿，就足以告诉我们一辆自行车是太小、太大还是刚刚好。嗯，在宾夕法尼亚州东部(以及其他许多地区)，自行车已经断货好几个月了。即使它们不是，我也不会带我的儿子去商店试它们。所以，当然，几周前他的自行车坏了。
 

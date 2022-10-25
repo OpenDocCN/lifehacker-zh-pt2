@@ -1,6 +1,6 @@
 # 通过庆祝小事来教育孩子积极向上
 
-> 原文:[https://life hacker . com/teach-kids-positivity-by-staging-the-little-things-1831749205](https://lifehacker.com/teach-kids-positivity-by-celebrating-the-little-things-1831749205)
+> 原文：<https://lifehacker.com/teach-kids-positivity-by-celebrating-the-little-things-1831749205>
 
 “我们是一个庆祝的家庭，”在一次不知什么场合的庆祝晚宴上，我儿子说。
 

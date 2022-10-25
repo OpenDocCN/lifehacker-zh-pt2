@@ -1,6 +1,6 @@
 # 考虑在葡萄酒厂和农场露营(获得许可)
 
-> 原文:[https://life hacker . com/consider-camping-in-wineries-and-farms-with-permission-1844810512](https://lifehacker.com/consider-camping-at-wineries-and-farms-with-permission-1844810512)
+> 原文：<https://lifehacker.com/consider-camping-at-wineries-and-farms-with-permission-1844810512>
 
 与年初相比，现在的旅游看起来有很大不同。这些变化大多反映了新冠肺炎周围的社会距离准则和预防措施，旅行者如何决定住宿也不例外。虽然许多酒店已经采取措施来帮助阻止病毒的传播，但一些人不愿意与陌生人有太多的互动。
 

@@ -1,6 +1,6 @@
 # 只需打印一份纸质登机牌
 
-> 原文:[https://life hacker . com/just-print-a-paper-copy-of-your ' s 登机牌-1841209440](https://lifehacker.com/just-print-a-paper-copy-of-your-boarding-pass-1841209440)
+> 原文：<https://lifehacker.com/just-print-a-paper-copy-of-your-boarding-pass-1841209440>
 
 这些天我一个月至少飞四次，经常更多。虽然我总是在前一天在网上登记我的航班，并在我的手机上安装了这款应用程序，但当我到达机场时，我也会在信息亭停下来打印纸质登机牌。
 

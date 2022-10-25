@@ -1,6 +1,6 @@
 # 在烤奶酪外层涂上大量调味蛋黄酱
 
-> 原文:[https://the take out . com/slather-gricked-cheese-exteriors-with-flavored-mayo-1829916342](https://thetakeout.com/slather-grilled-cheese-exteriors-with-flavored-mayo-1829916342)
+> 原文：<https://thetakeout.com/slather-grilled-cheese-exteriors-with-flavored-mayo-1829916342>
 
 “重新发明轮子”这句话经常被提起，但老实说，这种方法是一个新发现——至少对烤奶酪来说是这样。
 

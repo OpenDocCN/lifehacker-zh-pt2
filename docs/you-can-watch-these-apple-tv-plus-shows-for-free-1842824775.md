@@ -1,6 +1,6 @@
 # 您可以免费观看这些 Apple TV Plus 节目
 
-> 原文:[https://life hacker . com/you-can-watch-these-apple-TV-plus-shows-for-free-1842824775](https://lifehacker.com/you-can-watch-these-apple-tv-plus-shows-for-free-1842824775)
+> 原文：<https://lifehacker.com/you-can-watch-these-apple-tv-plus-shows-for-free-1842824775>
 
 现在我们很多人都花更多的时间在家里，许多流媒体服务已经开始提供更长时间的免费试用或免费访问他们的一些原创内容。
 

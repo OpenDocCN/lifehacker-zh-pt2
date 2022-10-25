@@ -1,6 +1,6 @@
 # 用标签结束零食大战
 
-> 原文:[https://life hacker . com/use-labels-to-end-the-snack-wars-1843591854](https://lifehacker.com/use-labels-to-end-the-snack-wars-1843591854)
+> 原文：<https://lifehacker.com/use-labels-to-end-the-snack-wars-1843591854>
 
 在这个社会距离和家庭隔离的时代，小事变得格外重要。阳光明媚的一天，在附近散步。通过视频聊天与爱人联系。确保你那该死的弟弟不会再把所有好吃的麦片吃光。
 

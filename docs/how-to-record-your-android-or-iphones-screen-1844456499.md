@@ -1,6 +1,6 @@
 # 如何录制你的安卓或 iPhone 的屏幕
 
-> 原文:[https://life hacker . com/how-to-record-your-Android-or-iphone-screen-1844456499](https://lifehacker.com/how-to-record-your-android-or-iphones-screen-1844456499)
+> 原文：<https://lifehacker.com/how-to-record-your-android-or-iphones-screen-1844456499>
 
 屏幕录制功能非常适合指导面临技术挑战的家庭成员使用他们的新智能手机，捕捉游戏中的镜头，在报告错误时收集证据等。然而，并不是所有的设备都能让你同样或容易地录制你的屏幕。
 

@@ -1,6 +1,6 @@
 # 使用这些众包地图寻找最佳秋叶
 
-> 原文:[https://life hacker . com/find-the-best-fall-years-football-with the-crowdsourced-maps-1838212128](https://lifehacker.com/find-the-best-fall-foliage-with-these-crowdsourced-maps-1838212128)
+> 原文：<https://lifehacker.com/find-the-best-fall-foliage-with-these-crowdsourced-maps-1838212128>
 
 秋天的树叶很漂亮，但也很棘手。在一些地区，你可能要等一整年，直到树叶变黄——某天早上醒来，它们都落在地上了。或者如果你住在没有四季的地方，也许你 [用预测地图](https://lifehacker.com/use-the-fall-foliage-prediction-map-to-plan-your-autumn-1837713205) 来计划你要去的时间和地点。这些都很棒，但就像生活中的其他事情一样，不能保证在树叶完美变色的时候抓住它们。
 

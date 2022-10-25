@@ -1,6 +1,6 @@
 # 如何组织你的财务文件
 
-> 原文:[https://life hacker . com/how-to-organize-your-financial-documents-1831339097](https://lifehacker.com/how-to-organize-your-financial-documents-1831339097)
+> 原文：<https://lifehacker.com/how-to-organize-your-financial-documents-1831339097>
 
 这里还有一件你可以在年底前解决的小事:整理你的财务文件。
 

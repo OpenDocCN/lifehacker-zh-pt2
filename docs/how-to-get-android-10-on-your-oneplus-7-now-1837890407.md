@@ -1,6 +1,6 @@
 # 现在如何在你的一加 7 上安装 Android 10
 
-> 原文:[https://life hacker . com/how-to-get-Android-10-on-your-oneplus-7-now-1837890407](https://lifehacker.com/how-to-get-android-10-on-your-oneplus-7-now-1837890407)
+> 原文：<https://lifehacker.com/how-to-get-android-10-on-your-oneplus-7-now-1837890407>
 
 如果你有一台一加 7 设备，你现在就可以提前 [接入 Android 10](https://www.google.com/search?q=lifehacker+android+10&rlz=1C5CHFA_enUS779US779&oq=lifehacker+android+10&aqs=chrome..69i57.5566j0j4&sourceid=chrome&ie=UTF-8) 。
 

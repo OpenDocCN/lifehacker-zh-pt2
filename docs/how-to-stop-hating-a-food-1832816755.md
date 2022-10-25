@@ -1,6 +1,6 @@
 # 如何停止讨厌一种食物
 
-> 原文:[https://lifehacker.com/how-to-stop-hating-a-food-1832816755](https://lifehacker.com/how-to-stop-hating-a-food-1832816755)
+> 原文：<https://lifehacker.com/how-to-stop-hating-a-food-1832816755>
 
 你不必喜欢每一种食物。但是当你在外面的世界时，某些食物厌恶是非常不方便的。例如，作家阿曼达·穆尔希望她不讨厌黄瓜。所以她和营养师兼治疗师 Ellyn Satter 聊了聊。 [诀窍是只把*部分*的食物吃掉](https://www.theatlantic.com/health/archive/2019/02/how-to-like-food-you-hate/582985/) :
 

@@ -1,6 +1,6 @@
 # 水烟并不比香烟更安全
 
-> 原文:[https://life hacker . com/hookahs-arent-safe-than-chickens-1837215748](https://lifehacker.com/hookahs-arent-safer-than-cigarettes-1837215748)
+> 原文：<https://lifehacker.com/hookahs-arent-safer-than-cigarettes-1837215748>
 
 水烟越来越受欢迎，但是如果你因为听说水烟比其他吸烟方式“安全”而感兴趣，我们有坏消息告诉你:它们可能不是。
 

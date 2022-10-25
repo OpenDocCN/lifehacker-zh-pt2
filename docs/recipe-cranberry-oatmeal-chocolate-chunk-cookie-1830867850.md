@@ -1,6 +1,6 @@
 # 我们最喜爱的节日饼干食谱，pt。1:蔓越莓燕麦巧克力块饼干
 
-> 原文:[https://the take out . com/recipe-蔓越莓-燕麦片-巧克力-大块饼干-1830867850](https://thetakeout.com/recipe-cranberry-oatmeal-chocolate-chunk-cookie-1830867850)
+> 原文：<https://thetakeout.com/recipe-cranberry-oatmeal-chocolate-chunk-cookie-1830867850>
 
 我的妻子是家里的面包师，一丝不苟，一丝不苟，不盯着配料看，也不在完成之前戳戳戳。另一方面，我是一个大惊小怪并凭直觉行事的人，这就是为什么我在烘焙方面一直是垃圾。
 

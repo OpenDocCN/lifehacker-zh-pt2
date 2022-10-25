@@ -1,6 +1,6 @@
 # 新款 AirPods 很好
 
-> 原文:[https://gizmodo.com/the-new-airpods-are-fine-1833621733](https://gizmodo.com/the-new-airpods-are-fine-1833621733)
+> 原文：<https://gizmodo.com/the-new-airpods-are-fine-1833621733>
 
 对话越来越老套。你知道，关于苹果公司如何不在新硬件上创新，因为其业务的未来在服务和流媒体视频，以及新的苹果信用卡 等等等等。但是很多人指出了一个例外，一个感觉真正具有革命性并且非常好的苹果新产品:AirPods。第二代 AirPods 已经到了，我可以很自信的说，他们很好。作为升级，我想他们很好。他们不是革命者，这没关系。
 

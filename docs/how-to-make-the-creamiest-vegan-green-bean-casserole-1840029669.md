@@ -1,6 +1,6 @@
 # how to make the creamiest vegan green bean casserole 1840029669
 
-> 原文:[https://life hacker . com/how-to-make-the-cream ist-vegan-green-bean-sarbang-1840029669](https://lifehacker.com/how-to-make-the-creamiest-vegan-green-bean-casserole-1840029669)
+> 原文：<https://lifehacker.com/how-to-make-the-creamiest-vegan-green-bean-casserole-1840029669>
 
 讨厌绿豆砂锅既容易又很酷。不可否认，“罐装青豆混合罐装浓缩奶油蘑菇汤，上面放着罐装油炸洋葱”听起来不怎么样，但是因为某样东西来自罐头而讨厌它比这道菜本身更能揭示出讨厌者的一面。
 

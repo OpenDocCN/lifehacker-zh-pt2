@@ -1,6 +1,6 @@
 # 据韦氏词典说,“休假”现在是一个真实的词
 
-> 原文:[https://life hacker . com/vacay-is-now-a-real-word-by-merriam-Webster-1838493217](https://lifehacker.com/vacay-is-now-a-real-word-according-to-merriam-webster-1838493217)
+> 原文：<https://lifehacker.com/vacay-is-now-a-real-word-according-to-merriam-webster-1838493217>
 
 韦氏词典又来了， [将数百个新词](https://www.merriam-webster.com/words-at-play/new-words-in-the-dictionary) 加入其英语词典，这一过程被其称为“一种活语言的快乐生活”我们碰巧分享了他们对新单词的兴奋。毕竟，*是一个令人高兴的事实，他们终于扩大了 [***的定义，他们***](https://www.merriam-webster.com/dictionary/they)*包括了“用来指性别认同非二元的单身人士”那是过期的。**
 

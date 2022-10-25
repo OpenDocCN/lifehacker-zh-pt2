@@ -1,6 +1,6 @@
 # 如何看待格蕾塔·图恩伯格在联合国气候行动峰会上的证词
 
-> 原文:[https://life hacker . com/how-to-watch-Greta-thunbergs-witness-at-the-United-na-1838401362](https://lifehacker.com/how-to-watch-greta-thunbergs-testimony-at-the-united-na-1838401362)
+> 原文：<https://lifehacker.com/how-to-watch-greta-thunbergs-testimony-at-the-united-na-1838401362>
 
 周一，作为气候行动峰会的一部分，16 岁的活动家格里塔·图恩伯格(Greta Thunberg)在联合国作证，并给世界领导人带来了一个新的挑战。
 

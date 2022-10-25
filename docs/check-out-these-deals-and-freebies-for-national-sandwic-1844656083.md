@@ -1,6 +1,6 @@
 # 查看全国三明治月的这些优惠和赠品
 
-> 原文:[https://life hacker . com/check-out-these-deals-and-freebies-for-national-sandwic-1844656083](https://lifehacker.com/check-out-these-deals-and-freebies-for-national-sandwic-1844656083)
+> 原文：<https://lifehacker.com/check-out-these-deals-and-freebies-for-national-sandwic-1844656083>
 
 当你在吃一个美味的三明治时，在几分钟内，世界上的一切似乎都是正确的(或者至少稍微好一点)。所有的馅料和面包和谐地融合在一起，这不仅仅是一顿午餐:这可能是一种超凡的体验。当然可以，( [)而且应该！](https://skillet.lifehacker.com/sandwich-bread-is-the-only-bread-worth-making-yourself-1843440765) )在家自己做三明治，但有时候你需要在旅途中抓点东西，或者就是不想做。如果这种情况发生在下个月，你很幸运，因为八月是全国三明治月。这是这个月所有的优惠和赠品。
 

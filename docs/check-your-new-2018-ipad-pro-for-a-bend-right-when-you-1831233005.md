@@ -1,6 +1,6 @@
 # 购买新的 2018 年 iPad Pro 时，请检查它是否弯曲
 
-> 原文:[https://life hacker . com/check-your-new-2018-ipad-pro-for-a-bend-right-when-you-1831233005](https://lifehacker.com/check-your-new-2018-ipad-pro-for-a-bend-right-when-you-1831233005)
+> 原文：<https://lifehacker.com/check-your-new-2018-ipad-pro-for-a-bend-right-when-you-1831233005>
 
 无论你是作为礼物得到它，还是送给自己，如果你刚刚得到一台新的 2018 年 iPad Pro[，都有一点额外的准备工作要做。在一系列的](https://lifehacker.com/the-6-most-important-announcements-from-apple-s-october-1830107703) [报道和传言](https://forums.macrumors.com/threads/bent-ipad-unacceptable.2156929/) 之后，苹果承认一定比例的新 iPad Pros 在底盘上有一个小的结构弯曲。没有人愿意花 800 多美元买一个新奇的平板电脑，却发现它是弯曲的，所以确保在购买时检查它，如果你看到弯曲，在苹果的 14 天退货期内将其退回。
 

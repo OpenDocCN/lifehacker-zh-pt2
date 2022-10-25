@@ -1,6 +1,6 @@
 # 把你的工作描述留到将来的薪资谈判中
 
-> 原文:[https://life hacker . com/save-your-job-description-for-future-salary-negotiation-1837509805](https://lifehacker.com/save-your-job-description-for-future-salary-negotiation-1837509805)
+> 原文：<https://lifehacker.com/save-your-job-description-for-future-salary-negotiation-1837509805>
 
 你得到了一份温暖而模糊的工作——至少现在是这样。经过一个漫长的申请过程，包括至少一次电话面试和两次面对面的面试，你得到了一份你刚刚*知道*非常适合你的工作。你已经获得了他们需要的技能和资格，这份工作正是你喜欢做的；你想象你会在这个职位上快乐很长时间。
 

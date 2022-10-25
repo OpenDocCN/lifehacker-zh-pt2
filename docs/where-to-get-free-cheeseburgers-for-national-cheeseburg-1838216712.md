@@ -1,6 +1,6 @@
 # 在哪里可以买到全国芝士汉堡日的免费芝士汉堡
 
-> 原文:[https://life hacker . com/where-to-get-free-cheeseburg-for-national-cheeseburg-1838216712](https://lifehacker.com/where-to-get-free-cheeseburgers-for-national-cheeseburg-1838216712)
+> 原文：<https://lifehacker.com/where-to-get-free-cheeseburgers-for-national-cheeseburg-1838216712>
 
 今天是全国芝士汉堡日，这是一个虚构的年度假期，根据你的旅行目的地，你可以买到从大折扣到免费芝士汉堡的各种东西。
 

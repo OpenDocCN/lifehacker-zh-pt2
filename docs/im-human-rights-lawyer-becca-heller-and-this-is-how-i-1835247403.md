@@ -1,6 +1,6 @@
 # im human rights lawyer becca heller and this is how i 1835247403
 
-> 原文:[https://life hacker . com/im-human-rights-lawyer-Becca-Heller-and-this-is-how-I-1835247403](https://lifehacker.com/im-human-rights-lawyer-becca-heller-and-this-is-how-i-1835247403)
+> 原文：<https://lifehacker.com/im-human-rights-lawyer-becca-heller-and-this-is-how-i-1835247403>
 
 作为 [国际难民援助项目](https://refugeerights.org/) 的联合创始人和执行董事，贝卡·海勒(Becca Heller)为试图移民美国的难民提供法律援助。她的组织通过 [直接对抗川普政府的旅行禁令，这是一场联邦诉讼](https://www.clearinghouse.net/detail.php?id=15637) ，这场诉讼 [挽救了数千人免受歧视性旅行限制](https://refugeerights.org/litigation/) 。我们与海勒谈论了她创建 IRAP 的道路，她是如何日常运作的，以及她在遵循冗长的流程方面的问题。
 

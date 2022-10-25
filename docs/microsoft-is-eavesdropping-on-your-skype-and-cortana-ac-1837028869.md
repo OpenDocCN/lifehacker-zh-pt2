@@ -1,6 +1,6 @@
 # 微软正在窃听你的 Skype 和 Cortana 活动
 
-> 原文:[https://life hacker . com/Microsoft-is-tapping-on-your-Skype-and-cortana-AC-1837028869](https://lifehacker.com/microsoft-is-eavesdropping-on-your-skype-and-cortana-ac-1837028869)
+> 原文：<https://lifehacker.com/microsoft-is-eavesdropping-on-your-skype-and-cortana-ac-1837028869>
 
 许多公司开始对使用真人来“改善”他们的数字助理持保留态度，方法是审查你对智能扬声器或手机说过的话。我敢打赌，微软也将很快改变这种做法，但现在，承包商可能会听你告诉 Skype Translator 和 Cortana。
 

@@ -1,6 +1,6 @@
 # 安装 iOS 13 测试版的最简单方法
 
-> 原文:[https://life hacker . com/the-easy-the-easy-way-install-the-IOs-13-beta-1835610960](https://lifehacker.com/the-easiest-way-to-install-the-ios-13-beta-1835610960)
+> 原文：<https://lifehacker.com/the-easiest-way-to-install-the-ios-13-beta-1835610960>
 
 苹果最近发布了 iOS 13 测试版的第二个(开发者)版本。这意味着功能丰富的 [漏洞修复](https://developer.apple.com/documentation/ios_ipados_release_notes/ios_ipados_13_beta_2_release_notes) 和新功能。比如对你的笔记清单进行排序(将已完成的项目移到底部)，新的 Animoji 贴纸，用于调整人像模式照明强度的滑块，以及询问你是否也想取消订阅你删除的订阅应用的提示。
 

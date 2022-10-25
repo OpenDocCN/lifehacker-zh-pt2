@@ -1,6 +1,6 @@
 # 用火腿补充你的感恩节火鸡
 
-> 原文:[https://life hacker . com/supplement-your-thanksgiving-turkey-with-a-ham-1830282591](https://lifehacker.com/supplement-your-thanksgiving-turkey-with-a-ham-1830282591)
+> 原文：<https://lifehacker.com/supplement-your-thanksgiving-turkey-with-a-ham-1830282591>
 
 从小到大，我从来没有参加过小型的感恩节。我的母亲是七个孩子中年龄最大的，当我们没有去密西西比州和她的家人在一起时，我们会和一个完全不同的家庭(Kavons)一起折断许愿骨，使我们家的孩子数达到七个(都很饿，大多数是青春期的女孩)。卡冯家会带来火鸡，我妈妈会做火腿，然后我们会玩一个有剧本的神秘谋杀游戏 。
 

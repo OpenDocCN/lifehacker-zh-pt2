@@ -1,6 +1,6 @@
 # 什么时候预订国际航班
 
-> 原文:[https://life hacker . com/when-to-book-the-international-flight-1834672258](https://lifehacker.com/when-to-book-that-international-flight-1834672258)
+> 原文：<https://lifehacker.com/when-to-book-that-international-flight-1834672258>
 
 如果你计划今年去海外旅行，现在就在日历上做个标记吧。
 

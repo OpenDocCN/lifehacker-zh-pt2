@@ -1,6 +1,6 @@
 # 在 2020 年，你可以帮助解决气候危机
 
-> 原文:[https://gizmodo . com/in-2020-heres-how-you-can-help-address-the-climate-CRI-1840731099](https://gizmodo.com/in-2020-heres-how-you-can-help-address-the-climate-cri-1840731099)
+> 原文：<https://gizmodo.com/in-2020-heres-how-you-can-help-address-the-climate-cri-1840731099>
 
 这是一年中我们谈论美好事物的时候。充满希望的事情。
 

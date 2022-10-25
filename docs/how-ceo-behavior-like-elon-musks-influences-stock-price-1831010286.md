@@ -1,6 +1,6 @@
 # 像埃隆·马斯克这样的 CEO 行为如何影响股价
 
-> 原文:[https://life hacker . com/how-CEO-behavior-like-elon-musks-influences-stock-price-1831010286](https://lifehacker.com/how-ceo-behavior-like-elon-musks-influences-stock-price-1831010286)
+> 原文：<https://lifehacker.com/how-ceo-behavior-like-elon-musks-influences-stock-price-1831010286>
 
 过去几个月，埃隆·马斯克的日子并不好过。
 

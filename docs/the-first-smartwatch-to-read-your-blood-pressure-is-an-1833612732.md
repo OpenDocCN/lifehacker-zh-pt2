@@ -1,6 +1,6 @@
 # 第一个读取血压的智能手表是一个丑陋的漫威
 
-> 原文:[https://gizmodo . com/the first-a-read-your-blood-pressure-an-1833612732](https://gizmodo.com/the-first-smartwatch-to-read-your-blood-pressure-is-an-1833612732)
+> 原文：<https://gizmodo.com/the-first-smartwatch-to-read-your-blood-pressure-is-an-1833612732>
 
 他们称高血压为沉默的杀手是有原因的。疾病控制中心称，7500 万美国人患有高血压，相当于三分之一的成年人患有高血压。更糟糕的是，它说只有 54%的人控制住了他们的病情——由于高血压是每天约 1100 例死亡的原因之一，这一事实变得更加糟糕。是啊。
 

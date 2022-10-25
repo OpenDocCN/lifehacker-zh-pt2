@@ -1,6 +1,6 @@
 # 通过此网站跟踪冠状病毒爆发
 
-> 原文:[https://life hacker . com/track-the-coronavirus-outbreak-with-this-website-1841264738](https://lifehacker.com/track-the-coronavirus-outbreak-with-this-website-1841264738)
+> 原文：<https://lifehacker.com/track-the-coronavirus-outbreak-with-this-website-1841264738>
 
 武汉 c 型奥罗那病毒 (也被称为 2019-nCoV)在 mainland China 和世界其他地区的 [传播令人担忧，但如果没有可靠的数字，很难理解当前爆发的范围。对于那些好奇(或担心)的人，约翰·霍普金斯大学系统科学与工程中心(CSSE)创建了一个在线仪表板](https://vitals.lifehacker.com/what-is-wuhan-coronavirus-and-how-much-should-i-worry-a-1841138441) [，跟踪冠状病毒爆发](https://gisanddata.maps.arcgis.com/apps/opsdashboard/index.html#/bda7594740fd40299423467b48e9ecf6) 的当前状态。
 

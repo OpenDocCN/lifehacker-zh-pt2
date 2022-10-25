@@ -1,6 +1,6 @@
 # 如何从 Alexa、谷歌助手、脸书门户和 Siri 中删除语音记录
 
-> 原文:[https://life hacker . com/how-to-delete-voice-recordings-with-Alexa-Google-assis-1836977240](https://lifehacker.com/how-to-delete-voice-recordings-with-alexa-google-assis-1836977240)
+> 原文：<https://lifehacker.com/how-to-delete-voice-recordings-with-alexa-google-assis-1836977240>
 
 [Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)) : title[![](../Images/ce8fdf9d40d4898cdc1fe3570dd2a22f.png)](https://dataprivacy.kinja.com)[Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)We'll walk you through everything you should do to live the most secure, private life in the digital era.
 

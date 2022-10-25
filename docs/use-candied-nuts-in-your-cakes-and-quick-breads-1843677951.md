@@ -1,6 +1,6 @@
 # 在蛋糕和速食面包中使用蜜饯坚果
 
-> 原文:[https://life hacker . com/use-candicted-nuts-in-your-cakes-and-quick-breads-1843677951](https://lifehacker.com/use-candied-nuts-in-your-cakes-and-quick-breads-1843677951)
+> 原文：<https://lifehacker.com/use-candied-nuts-in-your-cakes-and-quick-breads-1843677951>
 
 许多快餐面包(如香蕉)和蛋糕(如胡萝卜)需要少量的山核桃或核桃。我通常会吃山核桃，因为它们比核桃好吃，但这个周末我在给朋友做的胡萝卜蛋糕中使用了蜜饯山核桃，进一步提升了味道。
 

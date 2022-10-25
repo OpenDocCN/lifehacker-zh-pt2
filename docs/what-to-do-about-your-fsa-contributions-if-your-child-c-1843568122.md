@@ -1,6 +1,6 @@
 # 如果你的托儿服务被关闭了，该如何处理你的 FSA 缴款
 
-> 原文:[https://life hacker . com/what-to-do-about-your-FSA-contributions-if-your-child-c-1843568122](https://lifehacker.com/what-to-do-about-your-fsa-contributions-if-your-child-c-1843568122)
+> 原文：<https://lifehacker.com/what-to-do-about-your-fsa-contributions-if-your-child-c-1843568122>
 
 疫情冠状病毒带来的物理距离措施使你所有的儿童保育计划变得不确定。你的托儿所会重新开放吗？如果是的话， [把你的孩子送到](https://vitals.lifehacker.com/when-will-it-be-safe-to-send-your-child-to-daycare-1843343985) 安全吗？学前和课后护理会发生什么变化？如果你计划用依赖型护理灵活支出账户(FSA)来支付这些费用，你可能会想，你是否会失去一些你为了更容易支付这些费用而储存起来的钱。
 

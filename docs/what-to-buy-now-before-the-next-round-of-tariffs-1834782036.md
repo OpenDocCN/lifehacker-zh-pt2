@@ -1,6 +1,6 @@
 # 在关税导致价格上涨之前应该储备什么
 
-> 原文:[https://life hacker . com/what-to-buy-before-the-next-round-of-tariffs-1834782036](https://lifehacker.com/what-to-buy-now-before-the-next-round-of-tariffs-1834782036)
+> 原文：<https://lifehacker.com/what-to-buy-now-before-the-next-round-of-tariffs-1834782036>
 
 如果有一个我们反复听到的关于贸易战的信息，那就是生活将 [变得更加昂贵](https://twocents.lifehacker.com/how-increased-china-tariffs-might-cost-you-money-1834670162?_ga=2.140631730.1451944291.1557756156-173178311.1556715687) 。这可能是现在购物的一个理由。
 

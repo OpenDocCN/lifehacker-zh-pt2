@@ -1,6 +1,6 @@
 # 据 Reddit 报道，如何睡得更好
 
-> 原文:[https://life hacker . com/how-to-sleep-better-据 reddit-1839064835](https://lifehacker.com/how-to-sleep-better-according-to-reddit-1839064835)
+> 原文：<https://lifehacker.com/how-to-sleep-better-according-to-reddit-1839064835>
 
 如果你是一个似乎永远睡不好觉的人，甚至推迟一天的开始时间也没有帮助，你并不孤单。有时候，你眼睛下面的眼袋与你的睡眠时间长短关系不大，而与你的实际睡眠质量关系更大。
 

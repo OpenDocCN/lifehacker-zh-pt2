@@ -1,6 +1,6 @@
 # how to prepare for your childs separation anxiety 1844804925
 
-> 原文:[https://life hacker . com/how-to-prepare-for-your-childs-separation-anxiety-1844804925](https://lifehacker.com/how-to-prepare-for-your-childs-separation-anxiety-1844804925)
+> 原文：<https://lifehacker.com/how-to-prepare-for-your-childs-separation-anxiety-1844804925>
 
 上学的第一天(一周，一个月)对一些孩子来说可能很难，尤其是那些第一次进入学前班或幼儿园的孩子。他们想和你在一起；他们害怕你不会回来；他们不认识这个成年人或其他孩子——整件事可能很可怕。但是今年，许多孩子完成了一年多的虚拟学习。依附在你的臀部是默认的操作模式，一些最年轻的学生甚至从未踏进教室一步。
 

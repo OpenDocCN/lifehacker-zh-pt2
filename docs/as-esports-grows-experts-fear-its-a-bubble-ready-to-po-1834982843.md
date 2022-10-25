@@ -1,6 +1,6 @@
 # as esports grows experts fear its a bubble ready to po 1834982843
 
-> 原文:[https://kotaku . com/as-esports-grows-experts-fear-it-a-bubble-ready-to-po-1834982843](https://kotaku.com/as-esports-grows-experts-fear-its-a-bubble-ready-to-po-1834982843)
+> 原文：<https://kotaku.com/as-esports-grows-experts-fear-its-a-bubble-ready-to-po-1834982843>
 
 电子竞技的主流叙事是由那些从其成功中受益的人精心打造的。他们说，电子竞技赚大钱。你听过这些故事。十几岁的游戏玩家飞到海外，和 [留宿厨师](https://compete.kotaku.com/how-pro-gamers-live-now-curfews-personal-chefs-and-a-1827017564) 一起住在阳光明媚的豪宅里。为*恩德斯游戏*风格的科幻战争建造 5000 万美元的竞技场。英雄联盟职业选手拉下七位数的薪水。然而，这些故事具有足够的煽动性，吸引了商业新闻中令人垂涎的头条新闻，并积累了巨额风险资本，这是有原因的。电子竞技越来越像一个即将破裂的泡沫。
 

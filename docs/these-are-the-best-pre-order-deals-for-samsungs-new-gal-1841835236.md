@@ -1,6 +1,6 @@
 # 这些是三星新款 Galaxy 手机的最佳预购交易
 
-> 原文:[https://life hacker . com/these-is-the-best-pre-order-deals-for-samsungs-new-gal-1841835236](https://lifehacker.com/these-are-the-best-pre-order-deals-for-samsungs-new-gal-1841835236)
+> 原文：<https://lifehacker.com/these-are-the-best-pre-order-deals-for-samsungs-new-gal-1841835236>
 
 三星下一批银河级安卓智能手机 的预购于今天早上开始。我们怀疑你会开夜车提前购买智能手机，但当你考虑是否要花一大笔钱购买一部新的三星设备时，要知道有许多不同的预购交易可能会为你节省一点钱，或者为你提供一些免费的额外设备。
 

@@ -1,6 +1,6 @@
 # DoorDash 的新支付方案是如何真正发挥作用的
 
-> 原文:[https://gizmodo . com/how-door dashs-new-payment-scheme-is-really-play-out-1838674796](https://gizmodo.com/how-doordashs-new-payment-scheme-is-really-playing-out-1838674796)
+> 原文：<https://gizmodo.com/how-doordashs-new-payment-scheme-is-really-playing-out-1838674796>
 
 你会为了两块钱跑腿吗？3 美元怎么样？也许 4 美元？这些是快递服务 DoorDash 的许多送货工人表示，他们现在面临的问题，因为该公司建立了一种新的薪酬模式，每份工作仅支付 2 美元——这种制度旨在取代以前的掠夺性工资模式。由于公司的奖励计划即将发生变化，经常为残羹剩饭工作可能是一些老板的唯一选择。
 

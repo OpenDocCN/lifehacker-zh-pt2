@@ -1,6 +1,6 @@
 # 你应该用抵押贷款偿还你的学生贷款吗？
 
-> 原文:[https://life hacker . com/should-your-pay-off-your-student loans with-a mortgage-r-1844842779](https://lifehacker.com/should-you-pay-off-your-student-loans-with-a-mortgage-r-1844842779)
+> 原文：<https://lifehacker.com/should-you-pay-off-your-student-loans-with-a-mortgage-r-1844842779>
 
 那些关注美联储新闻的人可能知道 [他们最近决定](https://twocents.lifehacker.com/how-this-week-s-fed-meetings-may-impact-your-wallet-1844561078) 保持低利率，这影响了从 [抵押贷款](https://twocents.lifehacker.com/how-to-know-if-you-should-refinance-your-mortgage-1844406684) 到你的 [储蓄账户](https://twocents.lifehacker.com/where-to-put-your-money-when-interest-rates-are-falling-1844380477) 的一切。如果你背负着任何类型的债务，你可能会寻找降低利率的机会。
 

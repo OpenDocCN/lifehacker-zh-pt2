@@ -1,6 +1,6 @@
 # 让你的孩子为他们的第一次过夜做好准备
 
-> 原文:[https://life hacker . com/get-your-kid-ready for ' s first-sleep-over-1830178329](https://lifehacker.com/get-your-kid-ready-for-their-first-sleepover-1830178329)
+> 原文：<https://lifehacker.com/get-your-kid-ready-for-their-first-sleepover-1830178329>
 
 去参加你的第一次通宵派对是一个大孩子的成人礼。这意味着你已经正式跨过了门槛，从“我去参加我妈妈安排的约会”到“我有自己合法的社交生活”
 

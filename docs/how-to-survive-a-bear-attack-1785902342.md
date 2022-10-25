@@ -1,6 +1,6 @@
 # 如何在熊的袭击中幸存
 
-> 原文:[https://life hacker . com/how-to-survive-a-bear-attack-1785902342](https://lifehacker.com/how-to-survive-a-bear-attack-1785902342)
+> 原文：<https://lifehacker.com/how-to-survive-a-bear-attack-1785902342>
 
 你可能认为你知道如果你在森林里走来走去遇到一只熊该怎么做，但你也可能完全错了——在这种情况下，你可能会死。国家公园管理局的脸书邮报最近分享了一些该做和不该做的事情...不要为了救自己而把你的慢朋友推倒。”)，我们在这里提醒你，如果你在野外遇到一只不像 [巴鲁](https://en.wikipedia.org/wiki/Baloo) 那么友好的熊，你该怎么办。
 

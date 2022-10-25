@@ -1,6 +1,6 @@
 # 如何最终开始那个创意项目
 
-> 原文:[https://life hacker . com/如何最终启动创意项目-1843260194](https://lifehacker.com/how-to-finally-start-that-creative-project-1843260194)
+> 原文：<https://lifehacker.com/how-to-finally-start-that-creative-project-1843260194>
 
 还记得这一切开始的时候，你打算 [写下一部《李尔王》](https://twitter.com/rosannecash/status/1238700345548627969?lang=en) 吗？你没有。但是现在开始还不晚。
 

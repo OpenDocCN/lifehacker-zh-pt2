@@ -1,6 +1,6 @@
 # 在国外做志愿者时不要做什么
 
-> 原文:[https://life hacker . com/what-not-to-do-what-what-what-not-to-do-what-foreign-1844083181](https://lifehacker.com/what-not-to-do-when-volunteering-abroad-1844083181)
+> 原文：<https://lifehacker.com/what-not-to-do-when-volunteering-abroad-1844083181>
 
 后疫情时代，很可能会立即需要志愿者来帮助世界各地的重建。旅游业一落千丈 ，许多经济依赖旅游业的国家将极度需要援助。
 

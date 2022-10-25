@@ -1,6 +1,6 @@
 # 最好的飞机点心是柑橘
 
-> 原文:[https://life hacker . com/the-best-plane-snack-is-a-mandarin-orange-1836378421](https://lifehacker.com/the-best-plane-snack-is-a-mandarin-orange-1836378421)
+> 原文：<https://lifehacker.com/the-best-plane-snack-is-a-mandarin-orange-1836378421>
 
 飞行是一件乏味的事情，毫无魅力可言。座位不好。空气不好。食物是糟糕的。让自己从所有糟糕的事情中转移注意力是度过飞行的唯一方法，而且(惊喜，惊喜)我喜欢用食物转移注意力。
 

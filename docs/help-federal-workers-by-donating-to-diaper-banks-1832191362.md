@@ -1,6 +1,6 @@
 # 通过向尿布银行捐款来帮助联邦工作人员
 
-> 原文:[https://life hacker . com/help-federal-workers-by-donut-to-diaper-banks-1832191362](https://lifehacker.com/help-federal-workers-by-donating-to-diaper-banks-1832191362)
+> 原文：<https://lifehacker.com/help-federal-workers-by-donating-to-diaper-banks-1832191362>
 
 尽管在政府关门期间一个月没有拿到薪水的联邦工作人员有望在本周拿到工资，但尿布银行仍在不知疲倦地为他们的家庭分发尿布。
 

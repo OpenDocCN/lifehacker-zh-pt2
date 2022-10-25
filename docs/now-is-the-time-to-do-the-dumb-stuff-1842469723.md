@@ -1,6 +1,6 @@
 # 现在是做蠢事的时候了
 
-> 原文:[https://gizmodo . com/now-is-the-time-to-do the-dumb-stuff-1842469723](https://gizmodo.com/now-is-the-time-to-do-the-dumb-stuff-1842469723)
+> 原文：<https://gizmodo.com/now-is-the-time-to-do-the-dumb-stuff-1842469723>
 
 隔离，避难所——不管你在哪里叫它什么——都是可怕的。如果地狱是其他人，被迫将所有的人都留在六英尺的周界之外，这是地球上炼狱的一个强有力的例子。但在我对这场灾难感到乐观的短暂时刻，社会隔离也是一种奇怪的解放。
 

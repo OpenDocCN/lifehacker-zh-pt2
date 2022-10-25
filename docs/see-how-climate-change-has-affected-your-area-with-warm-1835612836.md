@@ -1,6 +1,6 @@
 # 用“变暖条纹”看看气候变化是如何影响你的地区的
 
-> 原文:[https://life hacker . com/see-how-climate-change-has-affect-your-area-with warm-1835612836](https://lifehacker.com/see-how-climate-change-has-affected-your-area-with-warm-1835612836)
+> 原文：<https://lifehacker.com/see-how-climate-change-has-affected-your-area-with-warm-1835612836>
 
 几十年来，地球一直在变暖，但每年的变化很难实时观察到。今年冬天的雪真的比往常少吗？现在有一种简便的方法可以看到你所在地区的年平均温度是如何随时间变化的。
 

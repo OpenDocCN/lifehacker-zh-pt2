@@ -1,6 +1,6 @@
 # 向心理健康专家咨询如何在疫情生活[Ended]
 
-> 原文:[https://life hacker . com/ask-a-mental-health-expert-about-navigating-in-a-a-p-1842842680](https://lifehacker.com/ask-a-mental-health-expert-about-navigating-life-in-a-p-1842842680)
+> 原文：<https://lifehacker.com/ask-a-mental-health-expert-about-navigating-life-in-a-p-1842842680>
 
 问答比赛现在结束了。感谢哈菲兹博士！当我们都在疫情生活时，一个紧迫的问题是如何在一场前所未有的危机中优先考虑我们的心理健康。鉴于我们生活的快速变化，对经济崩溃的担忧，以及对我们所爱的人的安全和健康的不断担忧，许多人都报告说 [恐惧、压力、焦虑和抑郁](https://www.nytimes.com/2020/04/09/opinion/sunday/coronavirus-depression-anxiety.html) 的数量增加了。
 

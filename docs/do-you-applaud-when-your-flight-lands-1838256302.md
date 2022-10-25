@@ -1,6 +1,6 @@
 # 当你的航班着陆时，你鼓掌吗？
 
-> 原文:[https://life hacker . com/do-you-appeal-when-you-flight-lands-1838256302](https://lifehacker.com/do-you-applaud-when-your-flight-lands-1838256302)
+> 原文：<https://lifehacker.com/do-you-applaud-when-your-flight-lands-1838256302>
 
 如果你错过了，现在是 Lifehacker 总部的 [混蛋周](https://lifehacker.com/c/jerk-week) ，这意味着我们整个星期都在告诉你如何对付混蛋——但是如果*你*可能就是混蛋，会发生什么呢？有时候，并不清楚谁是罪魁祸首。
 

@@ -1,6 +1,6 @@
 # 如果你认为自己可能得了麻疹，该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-you-think you-may-hacken-1834397146](https://lifehacker.com/what-to-do-if-you-think-you-might-have-measles-1834397146)
+> 原文：<https://lifehacker.com/what-to-do-if-you-think-you-might-have-measles-1834397146>
 
 首先，深呼吸。不要惊慌。很有可能，几乎所有阅读这篇文章的人都没有麻疹。但是你可能想知道如果那个统计异常值是你(或者你的孩子)该怎么办。
 

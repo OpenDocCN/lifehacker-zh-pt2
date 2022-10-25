@@ -1,6 +1,6 @@
 # 如果可以的话，继续支付你的健身会员费
 
-> 原文:[https://life hacker . com/keep-pay-your-gym-membership-if-you-can-1842394698](https://lifehacker.com/keep-paying-your-gym-membership-if-you-can-1842394698)
+> 原文：<https://lifehacker.com/keep-paying-your-gym-membership-if-you-can-1842394698>
 
 你的健身房可能关门了。(即使不是，你也可能不应该去— 健身房是一个靠近他人和触摸他人触摸的东西的完美地方。)所以你可能很想取消会员资格。但是如果你能负担得起，可以考虑坚持下去。
 

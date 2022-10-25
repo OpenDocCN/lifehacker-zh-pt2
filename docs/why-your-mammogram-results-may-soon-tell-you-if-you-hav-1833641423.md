@@ -1,6 +1,6 @@
 # 为什么你的乳房 x 光检查结果会很快告诉你是否有致密的乳房
 
-> 原文:[https://life hacker . com/why-your-mammog-results-may-soon-tell-you-if-you-hav-1833641423](https://lifehacker.com/why-your-mammogram-results-may-soon-tell-you-if-you-hav-1833641423)
+> 原文：<https://lifehacker.com/why-your-mammogram-results-may-soon-tell-you-if-you-hav-1833641423>
 
 致密的乳房组织会使乳房 x 光检查更难发现肿瘤。一些州已经有法律明文规定，如果患者有致密的乳腺组织，必须告知他们。现在，美国食品和药物管理局已经提出了一项法规 ，要求在全国范围内公布乳腺密度。
 

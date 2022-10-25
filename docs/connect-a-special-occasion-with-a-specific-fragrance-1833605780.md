@@ -1,6 +1,6 @@
 # 将特殊场合与特定香味联系起来
 
-> 原文:[https://life hacker . com/connect-a-special-occasion-with-a-specific-fragrance-1833605780](https://lifehacker.com/connect-a-special-occasion-with-a-specific-fragrance-1833605780)
+> 原文：<https://lifehacker.com/connect-a-special-occasion-with-a-specific-fragrance-1833605780>
 
 在我结婚之前，我在一个婚礼留言板上看到一些建议:买一种新的香水，在你的婚礼当天第一次使用。以后每次用的时候，气味都会把你送回大日子。
 

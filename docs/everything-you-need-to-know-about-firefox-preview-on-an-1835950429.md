@@ -1,6 +1,6 @@
 # 关于安卓版火狐预览版你需要知道的一切
 
-> 原文:[https://life hacker . com/everything-you-need-to-know-on-an-1835950429](https://lifehacker.com/everything-you-need-to-know-about-firefox-preview-on-an-1835950429)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-about-firefox-preview-on-an-1835950429>
 
 Mozilla 用 AndroidT3 上的新版 Firefox[再次尝试移动浏览。我们一直在玩最近发布的这款新 Firefox 的早期公开版本，目前被称为“Firefox Preview”，现在我们在这里向你提供你需要了解的一切——它有多快，它有多安全，以及我们发现的最好的新功能。](https://blog.mozilla.org/futurereleases/2019/06/27/reinventing-firefox-for-android-a-preview/) 
 

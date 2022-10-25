@@ -1,6 +1,6 @@
 # 如何在你的 Gmail 中去掉 Google Meet
 
-> 原文:[https://life hacker . com/how-to-get-out-of-Google-meet-in-your-Gmail-1844481331](https://lifehacker.com/how-to-get-rid-of-google-meet-in-your-gmail-1844481331)
+> 原文：<https://lifehacker.com/how-to-get-rid-of-google-meet-in-your-gmail-1844481331>
 
 如果你以前不知道 Google Meet 是什么，现在你肯定知道了；至少，每当我打开 Gmail 时，*我*肯定会被不断提醒这个免费视频聊天应用的存在。一个完全属于它的部分只是把挂在我的收件箱里， 要么在我的桌面界面的角落里，要么在我 iPhone 的 Gmail 应用程序的底部。
 

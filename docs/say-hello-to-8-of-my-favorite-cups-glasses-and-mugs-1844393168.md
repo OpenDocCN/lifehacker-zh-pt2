@@ -1,6 +1,6 @@
 # 向我最喜欢的 8 个杯子问好
 
-> 原文:[https://life hacker . com/say-hello-to-8-of-my favor-cups-glasses-and-mugs-1844393168](https://lifehacker.com/say-hello-to-8-of-my-favorite-cups-glasses-and-mugs-1844393168)
+> 原文：<https://lifehacker.com/say-hello-to-8-of-my-favorite-cups-glasses-and-mugs-1844393168>
 
 往嘴里灌液体是每天必须执行的任务，无论如何。(不喜欢，但是已经接受了。)我每天都会喝各种各样的液体，而且——虽然所有的杯子都有同样的功效——某些杯子最适合某些液体，当然，我也有一些最爱。让我们来看看。
 

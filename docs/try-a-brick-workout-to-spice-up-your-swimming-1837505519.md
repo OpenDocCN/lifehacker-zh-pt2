@@ -1,6 +1,6 @@
 # 尝试“砖块”训练来增加你游泳的乐趣
 
-> 原文:[https://life hacker . com/try-a-brick-workout-to-spice-up-your-swimming-1837505519](https://lifehacker.com/try-a-brick-workout-to-spice-up-your-swimming-1837505519)
+> 原文：<https://lifehacker.com/try-a-brick-workout-to-spice-up-your-swimming-1837505519>
 
 我首先是一个跑步者。然后我开始骑自行车上下班。当我学游泳的时候，没多久我就想:*这就是缺失的那一块！我可以成为铁人三项运动员！*(不要介意我并不特别擅长这些学科。)
 

@@ -1,6 +1,6 @@
 # a newcomers take on disney world 1834218483
 
-> 原文:[https://kotaku . com/a-新人-迪士尼世界-1834218483](https://kotaku.com/a-newcomers-take-on-disney-world-1834218483)
+> 原文：<https://kotaku.com/a-newcomers-take-on-disney-world-1834218483>
 
 直到上个月，我从未去过迪斯尼世界，也没有去过任何大型主题公园。我小时候去过六旗游乐园，但我几乎不记得了。作为一个成年人第一次去迪斯尼世界，我不能从一个孩子的角度去体验它，这个孩子有能力爱上公园的幻觉，即它的魔力是专门为你创造的。因此，相反，我通过分析这种魔力是如何工作的来享受它。
 

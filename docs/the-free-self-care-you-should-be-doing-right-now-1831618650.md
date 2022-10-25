@@ -1,6 +1,6 @@
 # 你现在应该做的免费自我护理
 
-> 原文:[https://life hacker . com/the-free-self-care-you-should-be-doing-now-1831618650](https://lifehacker.com/the-free-self-care-you-should-be-doing-right-now-1831618650)
+> 原文：<https://lifehacker.com/the-free-self-care-you-should-be-doing-right-now-1831618650>
 
 下面说说如何照顾好自己。不是公司以此为借口让你买他们的屎的“自理”，而是如何覆盖你身心的基本需求。
 

@@ -1,6 +1,6 @@
 # 这两个问题将帮助你决定是否要做某事
 
-> 原文:[https://life hacker . com/this-two-questions-will-help-you-decision-if-you-want-1830411844](https://lifehacker.com/these-two-questions-will-help-you-decide-if-you-want-to-1830411844)
+> 原文：<https://lifehacker.com/these-two-questions-will-help-you-decide-if-you-want-to-1830411844>
 
 对于我们的大部分雄心壮志来说，在“想要”和“做”之间是有差距的。在你开始尝试关闭它之前，问自己这两个问题。他们可能会节省你一些时间。
 

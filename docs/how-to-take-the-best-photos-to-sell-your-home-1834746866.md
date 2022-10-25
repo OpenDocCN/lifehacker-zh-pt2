@@ -1,6 +1,6 @@
 # 如何拍出最好的照片来推销你的家
 
-> 原文:[https://life hacker . com/how-to-take-the-best-photos-sell-your-home-1834746866](https://lifehacker.com/how-to-take-the-best-photos-to-sell-your-home-1834746866)
+> 原文：<https://lifehacker.com/how-to-take-the-best-photos-to-sell-your-home-1834746866>
 
 春天到了，气温终于变暖了，花儿开了，草变绿了，你可能会想:“现在是卖掉我的房子的好时候了。”
 

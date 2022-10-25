@@ -1,6 +1,6 @@
 # 2020 年 7 月，网飞将迎来什么
 
-> 原文:[https://life hacker . com/whats-coming-to-2020-7-1844148289](https://lifehacker.com/whats-coming-to-netflix-in-july-2020-1844148289)
+> 原文：<https://lifehacker.com/whats-coming-to-netflix-in-july-2020-1844148289>
 
 快速浏览一下本月网飞的新原创产品，很快就能发现我的个人偏见。例如，我很清楚极客友好的特性，无论是新的还是回归的:根据杰拉德·威和加布里埃尔·巴的漫画改编的《T2》伞学院第二季；根据漫画传奇人物弗兰克·米勒的阿雅小说改编的《被诅咒的 T4》首映；查莉兹·塞隆主演的超级英雄电影《永生守卫》也是根据漫画改编的。
 

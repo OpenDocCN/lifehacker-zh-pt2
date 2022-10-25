@@ -1,6 +1,6 @@
 # 在这一年的剩余时间里，买一杯 19 美分的 7-11 咖啡
 
-> 原文:[https://life hacker . com/get-a-coffee-or-water-from-7-11 for-19-until-2019-1831267427](https://lifehacker.com/get-a-coffee-or-water-from-7-11-for-19-until-2019-1831267427)
+> 原文：<https://lifehacker.com/get-a-coffee-or-water-from-7-11-for-19-until-2019-1831267427>
 
 如果你在周末假日购物或开车去下一个目的地时熬夜了，7-11 提供了一个让你补充能量并随时准备出发的交易:19 美分的咖啡。
 

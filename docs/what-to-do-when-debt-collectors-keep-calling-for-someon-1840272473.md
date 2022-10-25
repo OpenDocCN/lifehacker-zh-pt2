@@ -1,6 +1,6 @@
 # what to do when debt collectors keep calling for someon 1840272473
 
-> 原文:[https://life hacker . com/what-to-do what-when-to-do-when-the-debt-collectors-keep-calling-for-someon-1840272473](https://lifehacker.com/what-to-do-when-debt-collectors-keep-calling-for-someon-1840272473)
+> 原文：<https://lifehacker.com/what-to-do-when-debt-collectors-keep-calling-for-someon-1840272473>
 
 从 2003 年起，我就有了同一个电话号码，而在那之前，我父亲至少用了五年。就我的个人身份而言，我的电话号码排在我的第一个 AOL 即时通讯用户名的前面，在我的社会保险号的后面。
 

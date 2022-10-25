@@ -1,6 +1,6 @@
 # 为什么你应该每月捐款来支持一项事业
 
-> 原文:[https://life hacker . com/why-you-should-support-a cause with a-monthly-捐赠-1843965363](https://lifehacker.com/why-you-should-support-a-cause-with-a-monthly-donation-1843965363)
+> 原文：<https://lifehacker.com/why-you-should-support-a-cause-with-a-monthly-donation-1843965363>
 
 如果你有能力向旨在解决警察暴力或系统性种族歧视的组织捐款，考虑每月定期捐款，而不是一次性付清。在一年的时间里，每月一小笔捐款加起来会比一次性捐款多得多，同时也更容易为你的慈善支出做计划和预算。
 

@@ -1,6 +1,6 @@
 # 总统被免职后会发生什么？
 
-> 原文:[https://life hacker . com/what-happens-after-a-president-an-remove-after-office-1838449755](https://lifehacker.com/what-happens-after-a-president-is-removed-from-office-1838449755)
+> 原文：<https://lifehacker.com/what-happens-after-a-president-is-removed-from-office-1838449755>
 
 现在，每个人和任何对美国政治状况感兴趣的人都一头扎进了一系列假设情景中。如果弹劾程序按照众议院民主党人的计划继续进行，那么它将启动众议院司法委员会的调查，随后该委员会就弹劾条款进行投票，众议院再次投票，最后由参议院进行审判和投票。迄今为止，只有两位美国总统面临弹劾，尽管这两次审判都没有导致总统下台。
 

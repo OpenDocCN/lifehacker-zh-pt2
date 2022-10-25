@@ -1,6 +1,6 @@
 # 通过避免唱歌或喊叫的聚会来降低你的新冠肺炎风险
 
-> 原文:[https://life hacker . com/reduce-your-新冠肺炎-risk-by-avoid-s-1843819330](https://lifehacker.com/reduce-your-covid-19-risk-by-avoiding-gatherings-with-s-1843819330)
+> 原文：<https://lifehacker.com/reduce-your-covid-19-risk-by-avoiding-gatherings-with-s-1843819330>
 
 最近， [疾病预防控制中心取消了在宗教服务期间限制合唱团](https://www.washingtonpost.com/health/white-house-and-cdc-remove-coronavirus-warnings-about-choirs-in-faith-guidance/2020/05/28/5d9c526e-a117-11ea-9590-1858a893bd59_story.html) 的警告。最初的指导方针包括建议宗教集会“考虑暂停或至少减少唱诗班/音乐合奏以及教徒在服务或其他节目中唱歌、诵经或背诵，如果在信仰传统范围内合适的话”，并警告说“唱歌的行为可能会促进新冠肺炎的传播，可能通过气溶胶的排放。”
 

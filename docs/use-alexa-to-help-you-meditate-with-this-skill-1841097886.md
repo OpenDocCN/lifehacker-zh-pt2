@@ -1,6 +1,6 @@
 # 使用 Alexa 来帮助你用这个技能冥想
 
-> 原文:[https://life hacker . com/use-Alexa-to-help-you-mountain-with the-skill-1841097886](https://lifehacker.com/use-alexa-to-help-you-meditate-with-this-skill-1841097886)
+> 原文：<https://lifehacker.com/use-alexa-to-help-you-meditate-with-this-skill-1841097886>
 
 今年，我试着冥想更多，这涉及到对你能在互联网上找到的所有冥想工具的深入探究，特别是那些 f re e 工具。
 

@@ -1,6 +1,6 @@
 # 美国国家铁路客运公司本周向 BOGO 提供卧铺车票
 
-> 原文:[https://life hacker . com/Amtrak-is-offing-bogo-sleeper-car-tickets-this-week-1835217277](https://lifehacker.com/amtrak-is-offering-bogo-sleeper-car-tickets-this-week-1835217277)
+> 原文：<https://lifehacker.com/amtrak-is-offering-bogo-sleeper-car-tickets-this-week-1835217277>
 
 如果你计划在今年晚些时候乘火车旅行，美国国家铁路客运公司本周正在进行一项促销活动，可以大大降低旅行费用。
 

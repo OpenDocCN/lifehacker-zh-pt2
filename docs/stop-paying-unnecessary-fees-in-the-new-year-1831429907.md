@@ -1,6 +1,6 @@
 # 在新的一年里停止支付不必要的费用
 
-> 原文:[https://life hacker . com/stop-pay-needly-fees-in-the-new-year-1831429907](https://lifehacker.com/stop-paying-unnecessary-fees-in-the-new-year-1831429907)
+> 原文：<https://lifehacker.com/stop-paying-unnecessary-fees-in-the-new-year-1831429907>
 
 欢迎来到 2019 年。我们现在都变得更好，更有责任感了，这难道不好吗？我们正在 [控制我们的支出](https://twocents.lifehacker.com/how-to-prepare-for-a-no-spend-month-1831401525)[擅长我们的爱好](https://lifehacker.com/become-a-better-photographer-with-this-52-week-photo-ch-1831420107) 并且用技术 建立 [更好的界限。](https://lifehacker.com/how-to-mindfully-break-up-with-your-phone-1825587301) 
 

@@ -1,6 +1,6 @@
 # should you let your kids curse 1831488576
 
-> 原文:[https://life hacker . com/should-you-let-your-kids-curse-1831488576](https://lifehacker.com/should-you-let-your-kids-curse-1831488576)
+> 原文：<https://lifehacker.com/should-you-let-your-kids-curse-1831488576>
 
 假期里，我和家人一起玩游戏。我的三个侄女在餐桌旁，所以我尽力清理我的便壶嘴。我为自己能说出“废话”和“弗里克”而不是脏话而感到骄傲。
 

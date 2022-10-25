@@ -1,6 +1,6 @@
 # 如果你的信用评分下降该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-your ' s credit-score-drops-1838096126](https://lifehacker.com/what-to-do-if-your-credit-score-drops-1838096126)
+> 原文：<https://lifehacker.com/what-to-do-if-your-credit-score-drops-1838096126>
 
 有了 Credit Karma 和 Credit Sesame 等服务的便利，上网查看自己的信用评分比以往任何时候都更容易。几个点的上下波动，比如说，从 720 到 725，或者 680 到 670，都是正常的，但是突然大幅度下降 30 个点或者更多的可能会引起关注。如果你发现你的信用分数一夜之间大幅下降你会怎么做？
 

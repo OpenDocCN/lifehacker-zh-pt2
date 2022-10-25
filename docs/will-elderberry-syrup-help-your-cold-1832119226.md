@@ -1,6 +1,6 @@
 # 接骨木糖浆对你的感冒有帮助吗？
 
-> 原文:[https://life hacker . com/will-elder berry-糖浆-治感冒-1832119226](https://lifehacker.com/will-elderberry-syrup-help-your-cold-1832119226)
+> 原文：<https://lifehacker.com/will-elderberry-syrup-help-your-cold-1832119226>
 
 当你因流鼻涕和喉咙痛而卧床时，很少有什么能真正缓解疼痛。(休息、流质和非处方速食片是。)但是药店货架上有很多声称有帮助的“天然”物品。今天，我们正在寻找一种背后有一点点科学证据的东西:接骨木糖浆。
 

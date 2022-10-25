@@ -1,6 +1,6 @@
 # 如何更快通过机场安检
 
-> 原文:[https://life hacker . com/how-to-get-through-airport-security-faster-1836385746](https://lifehacker.com/how-to-get-through-airport-security-faster-1836385746)
+> 原文：<https://lifehacker.com/how-to-get-through-airport-security-faster-1836385746>
 
 当你赶不上 flight⁠—or 的时候，尽快通过机场安检，这是关键。除了参加美国运输安全管理局的预检、全球入境或清关，您还可以通过在正确的时间预订您的航班并组织您的随身行李来更快地通过机场安检线。
 

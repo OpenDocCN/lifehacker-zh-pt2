@@ -1,6 +1,6 @@
 # 在家工作应该使用哪种显示器和外置硬盘？
 
-> 原文:[https://life hacker . com/which-monitor-and-external-hard-drive-should-I-get-for-1842645456](https://lifehacker.com/which-monitor-and-external-hard-drive-should-i-get-for-1842645456)
+> 原文：<https://lifehacker.com/which-monitor-and-external-hard-drive-should-i-get-for-1842645456>
 
 如果你之前所有的技术需求都由你的公司处理，但他们后来让你在家工作，只带了一台笔记本电脑，这可能是一个不和谐的转变。既然我们都可能会面临几个月的自我隔离，那么用有助于提高工作效率的设备来装饰一下你的家庭工作站是有意义的。
 

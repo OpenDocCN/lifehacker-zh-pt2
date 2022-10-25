@@ -1,6 +1,6 @@
 # 花 66 美元买下这座意大利别墅
 
-> 原文:[https://life hacker . com/buy-this-Italian-villa-for-66-1833467006](https://lifehacker.com/buy-this-italian-villa-for-66-1833467006)
+> 原文：<https://lifehacker.com/buy-this-italian-villa-for-66-1833467006>
 
 如果你厌倦了 AirBnB，这里还有一个选择:购买自己的度假屋。一名男子(有严重的房地产问题)在一次抽奖中提供了他带家具的意大利别墅，报名费为 50 欧元(66 美元)，没有任何附加条件。
 

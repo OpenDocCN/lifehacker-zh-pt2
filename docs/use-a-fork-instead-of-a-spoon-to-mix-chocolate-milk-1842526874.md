@@ -1,6 +1,6 @@
 # 用叉子而不是勺子搅拌巧克力牛奶
 
-> 原文:[https://life hacker . com/用叉子而不是勺子来混合巧克力牛奶 1842526874](https://lifehacker.com/use-a-fork-instead-of-a-spoon-to-mix-chocolate-milk-1842526874)
+> 原文：<https://lifehacker.com/use-a-fork-instead-of-a-spoon-to-mix-chocolate-milk-1842526874>
 
 一杯又高又冷的巧克力牛奶对年轻人和老年人来说都是很好的款待，但是大多数人用勺子搅拌它，我很遗憾地说，勺子是一种劣质的搅拌工具。你会问，正确的工具是什么？为什么，一叉当然！
 

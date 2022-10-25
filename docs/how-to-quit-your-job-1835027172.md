@@ -1,6 +1,6 @@
 # how to quit your job 1835027172
 
-> 原文:[https://lifehacker.com/how-to-quit-your-job-1835027172](https://lifehacker.com/how-to-quit-your-job-1835027172)
+> 原文：<https://lifehacker.com/how-to-quit-your-job-1835027172>
 
 你已经准备好继续前进，是时候把这个消息告诉老板了。正确的出行方式是什么？
 

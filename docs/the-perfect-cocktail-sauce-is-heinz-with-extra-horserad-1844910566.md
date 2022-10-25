@@ -1,6 +1,6 @@
 # 完美的鸡尾酒酱是亨氏加额外的辣根
 
-> 原文:[https://life hacker . com/the-perfect-cocktail-sauce-is-Heinz-with-extra-horse rad-1844910566](https://lifehacker.com/the-perfect-cocktail-sauce-is-heinz-with-extra-horserad-1844910566)
+> 原文：<https://lifehacker.com/the-perfect-cocktail-sauce-is-heinz-with-extra-horserad-1844910566>
 
 在吃(和做)了近三十年的虾鸡尾酒后，我得出了一个不可避免的结论:真的很难做得比亨氏鸡尾酒酱更好，尤其是如果你额外添加辣根的话。我尝试过更好、更贵的鸡尾酒酱品牌，我自己做了，但我总是手里拿着象征性的帽子回到亨氏。(男朋友这个周末犯了买海狸牌鸡尾酒酱的错误，我现在还有点恼火！)
 

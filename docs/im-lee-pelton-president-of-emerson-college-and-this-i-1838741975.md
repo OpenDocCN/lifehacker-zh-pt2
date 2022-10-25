@@ -1,6 +1,6 @@
 # im lee pelton president of emerson college and this i 1838741975
 
-> 原文:[https://life hacker . com/im-lee-pelt on-president-of-Emerson-college-and-this-I-1838741975](https://lifehacker.com/im-lee-pelton-president-of-emerson-college-and-this-i-1838741975)
+> 原文：<https://lifehacker.com/im-lee-pelton-president-of-emerson-college-and-this-i-1838741975>
 
 艾默生学院成立于 1880 年，是波士顿演讲、演讲和戏剧艺术学院，是美国最负盛名的文科学院之一。我们与第 12 任总统李·佩尔顿讨论了他的学术背景、个人工作习惯以及出色的阅读建议。
 

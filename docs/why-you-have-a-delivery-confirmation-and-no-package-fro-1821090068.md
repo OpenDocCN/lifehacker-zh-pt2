@@ -1,6 +1,6 @@
 # 为什么你有送货确认，却没有收到亚马逊的包裹
 
-> 原文:[https://life hacker . com/why-you-have-a-delivery-confirmation-and-no-package-fro-1821090068](https://lifehacker.com/why-you-have-a-delivery-confirmation-and-no-package-fro-1821090068)
+> 原文：<https://lifehacker.com/why-you-have-a-delivery-confirmation-and-no-package-fro-1821090068>
 
 你知道该怎么做:你从亚马逊订购一些东西，然后等待门铃响或者送货确认邮件弹出。但是假设你收到邮件通知，打开前门...却一无所获。你的包裹被偷了吗？也许吧！但是还有其他可能的解释。
 

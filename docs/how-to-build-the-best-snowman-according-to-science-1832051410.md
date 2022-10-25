@@ -1,6 +1,6 @@
 # 根据科学，如何堆最好的雪人
 
-> 原文:[https://life hacker . com/how-to-build-the-best-snowman-by-science-1832051410](https://lifehacker.com/how-to-build-the-best-snowman-according-to-science-1832051410)
+> 原文：<https://lifehacker.com/how-to-build-the-best-snowman-according-to-science-1832051410>
 
 真实故事:第 8，011，991 号美国专利的标题是“便于建造雪人/女人的装置”，这似乎暗示着有一种*正确的*方法来建造雪人、雪人或雪人。
 

@@ -1,6 +1,6 @@
 # 水果沙拉实际上是多吃奶酪的借口
 
-> 原文:[https://life hacker . com/fruit-salads-that-is-a-more-eat-chee-1834784909](https://lifehacker.com/fruit-salads-that-are-really-an-excuse-to-eat-more-chee-1834784909)
+> 原文：<https://lifehacker.com/fruit-salads-that-are-really-an-excuse-to-eat-more-chee-1834784909>
 
 黏糊糊的、涂有酸奶的水果沙拉绝对不性感，尤其是在野餐桌上坐了几个小时之后。但是水果沙拉不需要酸奶。事实上，如果我必须选择一种乳制品来搭配一堆多汁香甜的农产品，我会选择奶酪。
 

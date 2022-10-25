@@ -1,6 +1,6 @@
 # 如何观看今天 NASA 的洞察号登陆火星
 
-> 原文:[https://life hacker . com/how-to-watch-nasas-insight-land-on-mars-today-1830597344](https://lifehacker.com/how-to-watch-nasas-insight-land-on-mars-today-1830597344)
+> 原文：<https://lifehacker.com/how-to-watch-nasas-insight-land-on-mars-today-1830597344>
 
 美国国家航空航天局今天将在火星上着陆一艘宇宙飞船，你可以实时观看这一过程。
 

@@ -1,6 +1,6 @@
 # 什么是“决策疲劳”，它对你有什么影响？
 
-> 原文:[https://life hacker . com/what-is-decision-fatigue-and-how-affect-you-1842851099](https://lifehacker.com/what-is-decision-fatigue-and-how-does-it-affect-you-1842851099)
+> 原文：<https://lifehacker.com/what-is-decision-fatigue-and-how-does-it-affect-you-1842851099>
 
 就在几个月前，我们会和朋友出去吃早午餐，在商店短暂停留买一加仑牛奶，看望我们的祖父母，所有这些都不会有第二个想法。
 

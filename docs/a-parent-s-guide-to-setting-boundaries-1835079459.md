@@ -1,6 +1,6 @@
 # a parent s guide to setting boundaries 1835079459
 
-> 原文:[https://life hacker . com/a-parent-s-guide-to-setting-boundaries-1835079459](https://lifehacker.com/a-parent-s-guide-to-setting-boundaries-1835079459)
+> 原文：<https://lifehacker.com/a-parent-s-guide-to-setting-boundaries-1835079459>
 
 在试图写这篇文章的时候，我已经不得不把一个蹒跚学步的孩子从我的腿上拖开了大约 57 次。
 

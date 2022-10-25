@@ -1,6 +1,6 @@
 # 在书籍付印前用 NetGalley 阅读
 
-> 原文:[https://life hacker . com/read-books-with-netgalley-before-they-hit-print-1844790532](https://lifehacker.com/read-books-with-netgalley-before-they-hit-print-1844790532)
+> 原文：<https://lifehacker.com/read-books-with-netgalley-before-they-hit-print-1844790532>
 
 在我成为 Lifehacker 之前的日子里，我是美国最大的连锁书店的内容创建者——我肯定你知道那家——每天来到办公室就像书呆子的圣诞节:我的邮箱不断收到出版商寄来的包裹，里面有几个月内不会上市的书籍的预读本(或“ARCs”)。进入这些独家邮件列表可能会很棘手(这肯定是我最怀念的额外待遇)，但如果你的手机上有电子阅读器或电子书应用程序，你可以通过[netgally](https://www.netgalley.com/)捕捉一点那种魔力。
 

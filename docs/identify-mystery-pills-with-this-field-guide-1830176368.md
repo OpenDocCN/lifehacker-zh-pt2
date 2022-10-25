@@ -1,6 +1,6 @@
 # 使用本指南识别神秘药丸
 
-> 原文:[https://life hacker . com/identify-mystery-pills-with the-field-guide-1830176368](https://lifehacker.com/identify-mystery-pills-with-this-field-guide-1830176368)
+> 原文：<https://lifehacker.com/identify-mystery-pills-with-this-field-guide-1830176368>
 
 有没有在你的钱包里发现一些神秘的药片——或者更糟，在你的孩子或宠物可能去过的地方？幸运的是，每种药物都有其独特的形状、颜色和标记，因此有可能识别丢失的药丸。毒物控制中心有一个 [药丸标识符](https://pill-id.webpoisoncontrol.org/) 可以帮忙。
 

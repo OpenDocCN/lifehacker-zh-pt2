@@ -1,6 +1,6 @@
 # 用速溶锅做芝士蛋糕和烤芝士蛋糕一样好吃吗？
 
-> 原文:[https://the take out . com/recipe-how-to-make-instant-pot-cheese cake-1834034972](https://thetakeout.com/recipe-how-to-make-instant-pot-cheesecake-1834034972)
+> 原文：<https://thetakeout.com/recipe-how-to-make-instant-pot-cheesecake-1834034972>
 
 当我写这篇文章的时候，我正坐在家里狼吞虎咽地吃着两周以来的最后一片奶酪蛋糕。它始于一个生日奶酪蛋糕，这让我陷入了探索方法的兔子洞，所有这些方法都声称要提供最好的奶酪蛋糕。我做过标准的烤箱烘焙，水浴烘焙，用馅饼盘做迷你芝士蛋糕。然后我读到了即食罐奶酪蛋糕法。我很感兴趣，立即收集了所有的材料，尝试在 [做一个芝士蛋糕，就像前一天晚上我在](https://thetakeout.com/recipe-how-to-make-rice-in-instant-pot-1831442802) 做米饭一样。我试图回答的问题是这样的:使用速溶锅，这种钢铁般的烹饪之神，来制作更好的奶酪蛋糕值得吗？(还有，为什么我的紧身牛仔裤不再合身了？)
 

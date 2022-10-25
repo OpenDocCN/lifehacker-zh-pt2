@@ -1,6 +1,6 @@
 # 当你带着小孩飞行时，最后登机
 
-> 原文:[https://life hacker . com/board-last-when-you-flying with little-kids-1833395487](https://lifehacker.com/board-last-when-youre-flying-with-little-kids-1833395487)
+> 原文：<https://lifehacker.com/board-last-when-youre-flying-with-little-kids-1833395487>
 
 啊，预登机——有小孩的一个后勤好处。
 

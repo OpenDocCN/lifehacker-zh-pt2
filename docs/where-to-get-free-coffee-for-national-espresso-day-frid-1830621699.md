@@ -1,6 +1,6 @@
 # 周五“全国浓缩咖啡日”在哪里可以买到免费咖啡
 
-> 原文:[https://life hacker . com/where-to-get-free-coffee-for-national-espresso-day-frid-1830621699](https://lifehacker.com/where-to-get-free-coffee-for-national-espresso-day-frid-1830621699)
+> 原文：<https://lifehacker.com/where-to-get-free-coffee-for-national-espresso-day-frid-1830621699>
 
 除了是黑色星期五，星期五 11 月 23 日也是全国浓缩咖啡日。如果你早起购物，或者如果你今天早上还在从火鸡昏迷中恢复，全国各地有许多不同的咖啡店，今天你可以在那里庆祝并达成一些交易。
 

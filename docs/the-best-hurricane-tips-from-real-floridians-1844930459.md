@@ -1,6 +1,6 @@
 # 来自真正的佛罗里达人的最佳飓风提示
 
-> 原文:[https://life hacker . com/the-best-hurricane-tips-from-real-floridians-1844930459](https://lifehacker.com/the-best-hurricane-tips-from-real-floridians-1844930459)
+> 原文：<https://lifehacker.com/the-best-hurricane-tips-from-real-floridians-1844930459>
 
 似乎 2020 年不会变得更糟，今年我们可能会看到更强大的飓风登陆。由于这些风暴可能会袭击一些没有风暴的地区，这里有一些来自我们的风暴专家工作人员的建议:佛罗里达人。
 

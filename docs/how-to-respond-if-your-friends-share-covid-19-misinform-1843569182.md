@@ -1,6 +1,6 @@
 # 如果你的朋友分享新冠肺炎的错误信息，你该如何回应
 
-> 原文:[https://life hacker . com/how-to-response-if-your-friends-share-新冠肺炎-misinform-1843569182](https://lifehacker.com/how-to-respond-if-your-friends-share-covid-19-misinform-1843569182)
+> 原文：<https://lifehacker.com/how-to-respond-if-your-friends-share-covid-19-misinform-1843569182>
 
 我们的朋友名单上可能都有人分享了许多关于冠状病毒的可疑信息。阴谋论的成分伪事实在脸书大量流传，看到它们被你认识和爱的人重播让人超级沮丧。你可能很想解除他们的好友关系或者忽略他们的帖子——这两个选项都是有效的，如果你选择接受它们的话——但是当涉及到反击错误信息时，你比你想象的更有力量。
 

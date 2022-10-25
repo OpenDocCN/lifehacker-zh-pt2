@@ -1,6 +1,6 @@
 # 在你买房之前，想想五年后你需要什么
 
-> 原文:[https://life hacker . com/before-you-buy-a-home-think-what-you-need-five-1834610214](https://lifehacker.com/before-you-buy-a-home-think-about-what-youll-need-five-1834610214)
+> 原文：<https://lifehacker.com/before-you-buy-a-home-think-about-what-youll-need-five-1834610214>
 
 标准的购房建议是“只买你需要的房子。”有道理，对吧？例如，如果一对新婚夫妇正在购买他们的第一套房子，一套两居室的平房可能比一套四居室的平房更明智。
 

@@ -1,6 +1,6 @@
 # 你一个月的间歇训练怎么样？
 
-> 原文:[https://life hacker . com/how-of-your ' s-month ' s interval-outsettles-1839534161](https://lifehacker.com/how-was-your-month-of-interval-workouts-1839534161)
+> 原文：<https://lifehacker.com/how-was-your-month-of-interval-workouts-1839534161>
 
 我们熬过了 10 月，这意味着有氧运动间歇 的 [月结束了，我们现在可以躺在地板上，流汗喘气，发誓再也不这样了。](https://lifehacker.com/c/lifehacker-fitness-challenge)
 

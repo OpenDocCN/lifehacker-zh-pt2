@@ -1,6 +1,6 @@
 # 想培养有同情心的孩子吗？让他们看看该怎么做
 
-> 原文:[https://life hacker . com/want-to-raise-empathy-kids-show-em-how-its-done-1831050481](https://lifehacker.com/want-to-raise-empathetic-kids-show-em-how-its-done-1831050481)
+> 原文：<https://lifehacker.com/want-to-raise-empathetic-kids-show-em-how-its-done-1831050481>
 
 我儿子昨晚问我今天要写些什么。我刚刚在纽约时报 上读到这篇关于父母如何培养有同情心的孩子的文章，它引起了我的共鸣。作为一名家长，我非常想把我的儿子培养成那种在别人有需要时挺身而出的人，但这是我能真正影响的吗？
 

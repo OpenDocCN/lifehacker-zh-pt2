@@ -1,6 +1,6 @@
 # 用 Kool-Aid 给你的孩子染发
 
-> 原文:[https://life hacker . com/dye-your-kids-hair-with kool-aid-1843541006](https://lifehacker.com/dye-your-kids-hair-with-kool-aid-1843541006)
+> 原文：<https://lifehacker.com/dye-your-kids-hair-with-kool-aid-1843541006>
 
 如今，Kool-Aid 是一种你仍然可以在商店里找到的东西。当然，如果你想回忆起 1980 年代的童年，你可以喝它。*或*你可以用它给你的孩子一个时髦的春天造型。
 

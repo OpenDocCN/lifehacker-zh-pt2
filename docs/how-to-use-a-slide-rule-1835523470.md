@@ -1,6 +1,6 @@
 # 如何使用计算尺
 
-> 原文:[https://lifehacker.com/how-to-use-a-slide-rule-1835523470](https://lifehacker.com/how-to-use-a-slide-rule-1835523470)
+> 原文：<https://lifehacker.com/how-to-use-a-slide-rule-1835523470>
 
 我总觉得自己有点被传统的书呆子刻板印象冷落了。我不戴眼镜，我的 [女士衣服没有真正的口袋](https://lifehacker.com/confirmed-the-pockets-on-womens-pants-are-indeed-bulls-1828371022) 所以我不能用口袋保护器，而且我出生在计算尺统治时期之后。但是本着 [模拟周](https://lifehacker.com/c/analog-week) 的精神，我在努力学习。
 

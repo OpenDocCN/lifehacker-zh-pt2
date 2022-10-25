@@ -1,6 +1,6 @@
 # 使用这张秋天树叶地图来帮助你计划你的秋天旅行
 
-> 原文:[https://life hacker . com/use-this-fall-yeah-map-to-help-plan-your-autumn-road-1844942798](https://lifehacker.com/use-this-fall-foliage-map-to-help-plan-your-autumn-road-1844942798)
+> 原文：<https://lifehacker.com/use-this-fall-foliage-map-to-help-plan-your-autumn-road-1844942798>
 
 在我们经历了这一年的一切之后，我们应该有所期待。不幸的是，由于 COVID 的存在，许多常见的秋季活动——比如乔装打扮的孩子拜访你家附近的每户人家——可能都不可能了。但是我们仍然可以指望的一件事(虽然在这一点上，谁知道在自然灾害方面下一步的议程是什么)是享受树叶变色。
 

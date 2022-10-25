@@ -1,6 +1,6 @@
 # 使用这些手势快速浏览 YouTube 视频
 
-> 原文:[https://life hacker . com/use-these-gestures-to-zip-through-YouTube-videos-1843464855](https://lifehacker.com/use-these-gestures-to-zip-through-youtube-videos-1843464855)
+> 原文：<https://lifehacker.com/use-these-gestures-to-zip-through-youtube-videos-1843464855>
 
 在你的屏幕上敲敲打打是傻瓜才会做的事。如果你真的想在 Android 和 iOS 上浏览 YouTube 应用程序，有四种手势值得了解——很可能你已经在每天的 YouTube 狂欢中偶然发现了其中的一种(或大部分)。
 

@@ -1,6 +1,6 @@
 # 如果你要赠送一个视频游戏系统，现在就安装，不要等到圣诞节
 
-> 原文:[https://life hacker . com/if-you-gifting-a-video-game-system-set-up-now-1840613702](https://lifehacker.com/if-youre-gifting-a-video-game-system-set-it-up-now-no-1840613702)
+> 原文：<https://lifehacker.com/if-youre-gifting-a-video-game-system-set-it-up-now-no-1840613702>
 
 我以为这个建议已经是旧闻了，但我已经看到了大量的推文，让我觉得许多节日送礼者仍然不知道赠送视频游戏和视频游戏机的大秘密。所以，我们又来了，带着一杯温暖的节日建议，可能需要你重新包装一两件礼物。相信我，值得的。
 

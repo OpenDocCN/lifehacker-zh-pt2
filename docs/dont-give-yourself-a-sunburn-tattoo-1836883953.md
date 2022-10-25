@@ -1,6 +1,6 @@
 # 不要给自己一个“晒伤纹身”
 
-> 原文:[https://life hacker . com/don-t-给自己晒伤-纹身-1836883953](https://lifehacker.com/dont-give-yourself-a-sunburn-tattoo-1836883953)
+> 原文：<https://lifehacker.com/dont-give-yourself-a-sunburn-tattoo-1836883953>
 
 我讨厌说服人们放弃简单、异想天开、几乎免费的东西。但这里说:最好不要给自己纹上晒伤的纹身。或者让你的孩子给自己纹上晒伤的纹身。
 

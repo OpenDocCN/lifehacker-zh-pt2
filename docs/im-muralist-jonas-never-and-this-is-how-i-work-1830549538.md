@@ -1,6 +1,6 @@
 # im muralist jonas never and this is how i work 1830549538
 
-> 原文:[https://life hacker . com/im-muralist-Jonas-never-and-this-is-how-I-work-1830549538](https://lifehacker.com/im-muralist-jonas-never-and-this-is-how-i-work-1830549538)
+> 原文：<https://lifehacker.com/im-muralist-jonas-never-and-this-is-how-i-work-1830549538>
 
 乔纳斯从不在公共场合工作。成千上万的路人看到了他的壁画(很快他们的 Instagram 粉丝也看到了)，但他比许多可以私下工作的艺术家有更少的时间来画它们。他学会了快速工作，最大限度地利用自己的时间在洛杉矶及更远的地方创造地标。我们和乔纳斯谈了他的过程，他最喜欢的绘画工具，以及他遵循的“画得又大又快”的规则
 

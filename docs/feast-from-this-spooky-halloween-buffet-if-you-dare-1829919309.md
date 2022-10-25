@@ -1,6 +1,6 @@
 # 从这个怪异的万圣节自助餐盛宴...如果你敢
 
-> 原文:[https://life hacker . com/feast-from-this-ghost-Halloween-buffet-if-you-dare-1829919309](https://lifehacker.com/feast-from-this-spooky-halloween-buffet-if-you-dare-1829919309)
+> 原文：<https://lifehacker.com/feast-from-this-spooky-halloween-buffet-if-you-dare-1829919309>
 
 “给我留着那根滑稽的骨头！”- [克莱尔](https://kinja.com/clairelower) ，美食编辑
 

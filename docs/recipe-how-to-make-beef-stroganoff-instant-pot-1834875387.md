@@ -1,6 +1,6 @@
 # 用一个速溶锅把牛肉干变成炖牛肉
 
-> 原文:[https://the take out . com/recipe-how-to-make-beef-stroganoff-instant-pot-1834875387](https://thetakeout.com/recipe-how-to-make-beef-stroganoff-instant-pot-1834875387)
+> 原文：<https://thetakeout.com/recipe-how-to-make-beef-stroganoff-instant-pot-1834875387>
 
 一些读者可能会认为意式牛肉不是一道适合时令的菜肴。斜坡和芦笋，甜豌豆和蚕豆在哪里？如果我的家乡芝加哥的气温没有徘徊在 45 度左右，我可能会同意你的观点。芝加哥坚持炖肉季节超过必要的时间，目前我也会。
 

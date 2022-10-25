@@ -1,6 +1,6 @@
 # 8 个最值得全家观看的单口喜剧演员
 
-> 原文:[https://life hacker . com/8-of-the-best-stand-up-to-watch-as-a-family-1844078926](https://lifehacker.com/8-of-the-best-stand-up-comedians-to-watch-as-a-family-1844078926)
+> 原文：<https://lifehacker.com/8-of-the-best-stand-up-comedians-to-watch-as-a-family-1844078926>
 
 我们现在都需要一些额外的笑声，但特别是我们的孩子，今年过得很艰难。带着长长的(无聊？)夏天仍然在我们面前延伸，现在是在家里放松心情的好时候——来点老式的单口喜剧。
 

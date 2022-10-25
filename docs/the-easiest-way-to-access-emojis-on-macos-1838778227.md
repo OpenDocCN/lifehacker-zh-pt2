@@ -1,6 +1,6 @@
 # 在 MacOS 上访问表情符号的最简单方式
 
-> 原文:[https://life hacker . com/the-easy-way-to-access-e mojis-on-MAC OS-1838778227](https://lifehacker.com/the-easiest-way-to-access-emojis-on-macos-1838778227)
+> 原文：<https://lifehacker.com/the-easiest-way-to-access-emojis-on-macos-1838778227>
 
 在试图从我的 MacBook Pro 上删除一个多年前的自定义键盘快捷键时(失败了)，我无意中在键盘设置中发现了一个方便的选项，它让访问桌面上的表情符号变得更加容易。
 

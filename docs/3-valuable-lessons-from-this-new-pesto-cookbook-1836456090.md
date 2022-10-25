@@ -1,6 +1,6 @@
 # 我从这本新的香蒜酱食谱中学到了 3 条宝贵的经验
 
-> 原文:[https://the take out . com/3-valued-lessons-from-this-new-pesto-cookbook-1836456090](https://thetakeout.com/3-valuable-lessons-from-this-new-pesto-cookbook-1836456090)
+> 原文：<https://thetakeout.com/3-valuable-lessons-from-this-new-pesto-cookbook-1836456090>
 
 你可能会对单一主题的烹饪书感到惊讶:“我真的会做足够多的蛋糕来证明一整本书的主题吗？”(我拥有 [蛋糕流行食谱](https://www.barnesandnoble.com/p/cake-pops-bakerella/1112399461/2661769588116) 。我做了一次，然后把书捐了出去。)
 

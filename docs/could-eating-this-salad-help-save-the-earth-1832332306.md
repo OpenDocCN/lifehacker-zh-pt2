@@ -1,6 +1,6 @@
 # 吃这种沙拉有助于拯救地球吗？
 
-> 原文:[https://life hacker . com/can-eating-this-salad-help-save-the-earth-1832332306](https://lifehacker.com/could-eating-this-salad-help-save-the-earth-1832332306)
+> 原文：<https://lifehacker.com/could-eating-this-salad-help-save-the-earth-1832332306>
 
 吃饭很复杂。食物不仅由复杂的化学系统组成，这些化学系统会以各种方式影响我们的身体(好的和坏的)，而且一旦你开始考虑动物福利、农业实践和用水，试图“像一个好人一样”吃饭可能会完全无法抗拒。但这并不意味着我们的好朋友布莱恩·卡恩(地球人)不打算 [尽他最大的努力](https://gizmodo.com/for-30-days-im-going-to-eat-like-im-trying-to-save-the-1832239885) 。
 

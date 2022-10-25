@@ -1,6 +1,6 @@
 # 周一而不是周日坐飞机可以省钱
 
-> 原文:[https://life hacker . com/save-money-by-flying-than-sundays-1831288324](https://lifehacker.com/save-money-by-flying-on-mondays-rather-than-sundays-1831288324)
+> 原文：<https://lifehacker.com/save-money-by-flying-on-mondays-rather-than-sundays-1831288324>
 
 如果你计划新年旅行，你可能会考虑在周一而不是周日飞回家。
 

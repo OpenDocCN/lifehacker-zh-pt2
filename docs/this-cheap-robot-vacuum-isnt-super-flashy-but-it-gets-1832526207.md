@@ -1,6 +1,6 @@
 # 这种廉价的机器人吸尘器并不华丽，但它能完成工作
 
-> 原文:[https://gizmodo . com/this-price-robot-vacuum-not-super-flash-but-it-gets-1832526207](https://gizmodo.com/this-cheap-robot-vacuum-isnt-super-flashy-but-it-gets-1832526207)
+> 原文：<https://gizmodo.com/this-cheap-robot-vacuum-isnt-super-flashy-but-it-gets-1832526207>
 
 尽管它们还是有点笨，但机器人吸尘器恰好是目前最成功的家用机器人。但是几年前，它们对普通人来说太贵了，预算选项往往是 [非常糟糕的](https://gizmodo.com/robovacs-are-terrible-and-a-bad-gift-idea-1820876350) 。他们会错过明显的灰尘兔子，撞上家具，绝望地迷失在你的床下寻找充电站。
 

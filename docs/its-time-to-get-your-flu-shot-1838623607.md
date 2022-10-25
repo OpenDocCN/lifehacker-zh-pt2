@@ -1,6 +1,6 @@
 # 是时候去打流感疫苗了
 
-> 原文:[https://life hacker . com/its-time-to-get-your-flu-shot-1838623607](https://lifehacker.com/its-time-to-get-your-flu-shot-1838623607)
+> 原文：<https://lifehacker.com/its-time-to-get-your-flu-shot-1838623607>
 
 如果你在八月 错过了所有的流感疫苗广告 [，这里有一个友好的提醒:十月是去打流感疫苗的最佳时间。](https://lifehacker.com/is-it-too-early-to-get-a-flu-shot-1837287127)
 

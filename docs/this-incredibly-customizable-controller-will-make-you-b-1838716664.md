@@ -1,6 +1,6 @@
 # 这种难以置信的可定制控制器将使你更好地在开关
 
-> 原文:[https://gizmodo . com/this-难以置信的可定制控制器将使你 b-1838716664](https://gizmodo.com/this-incredibly-customizable-controller-will-make-you-b-1838716664)
+> 原文：<https://gizmodo.com/this-incredibly-customizable-controller-will-make-you-b-1838716664>
 
 对于那些喜欢玩比 Switch 的 Joy-Cons 更实在的游戏的人来说，任天堂是一款出色的独立控制器。Pro 控制器一直是我向任何寻找 Switch 游戏手柄的人推荐的，但现在不是了。 [8BitDo 的 SN30 Pro+](https://www.8bitdo.com/sn30-pro-plus/) 并不完美，但它最大的吸引力——它能够被 [完全定制和重新编程](https://gizmodo.com/this-super-customizable-controller-might-be-a-secret-we-1836304487)——远远弥补了它的几个缺陷。
 

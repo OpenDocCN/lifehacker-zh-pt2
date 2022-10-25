@@ -1,6 +1,6 @@
 # 是的，你可以回收那些塑料邮件
 
-> 原文:[https://life hacker . com/yes-you-can-recycle-these-plastic-mailers-1835742442](https://lifehacker.com/yes-you-can-recycle-those-plastic-mailers-1835742442)
+> 原文：<https://lifehacker.com/yes-you-can-recycle-those-plastic-mailers-1835742442>
 
 在任何一天整理你的邮件，很可能你已经收到了很多垃圾——从垃圾邮件到不必要的包装材料。幸运的是，你可以很容易地回收一些讨厌的塑料邮件。
 

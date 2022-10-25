@@ -1,6 +1,6 @@
 # what one accessory vastly improved your gaming experien 1844342763
 
-> 原文:[https://kotaku . com/what-one-accessory-大幅改善你的游戏体验-1844342763](https://kotaku.com/what-one-accessory-vastly-improved-your-gaming-experien-1844342763)
+> 原文：<https://kotaku.com/what-one-accessory-vastly-improved-your-gaming-experien-1844342763>
 
 欢迎提问 Kotaku，这是一个新的每周专题节目，在这个节目中， *Kotaku* 的普通成员参与讨论我们这个时代的紧迫问题。每一个问题都是书呆子和巨人碰撞的熔炉，是智慧的不朽竞赛...好吧。这只是另一个谈论 vidya 游戏的借口。你下来了吗？
 

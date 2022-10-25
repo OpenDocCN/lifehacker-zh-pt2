@@ -1,6 +1,6 @@
 # 如何不让人讨厌地溜进别人的 DMs
 
-> 原文:[https://life hacker . com/how-to-slide-into-someones-DMS-without-be-a-creep-1834819507](https://lifehacker.com/how-to-slide-into-someones-dms-without-being-a-creep-1834819507)
+> 原文：<https://lifehacker.com/how-to-slide-into-someones-dms-without-being-a-creep-1834819507>
 
 互联网给了我们前所未有的接触每个人的机会。我们不仅可以在多个社交网络平台上看到我们的前任在做什么，而且我们现在(不管是好是坏)也可以看到我们最喜欢的名人和人物的短暂想法、偷拍照片和语无伦次的漫谈。我们还可以直接进入他们的 DMs 系统。
 

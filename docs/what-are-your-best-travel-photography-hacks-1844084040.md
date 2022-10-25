@@ -1,6 +1,6 @@
 # 你最好的旅行摄影技巧是什么？
 
-> 原文:[https://life hacker . com/what-is-your-best-travel-photography-hacks-1844084040](https://lifehacker.com/what-are-your-best-travel-photography-hacks-1844084040)
+> 原文：<https://lifehacker.com/what-are-your-best-travel-photography-hacks-1844084040>
 
 我们许多人在旅行时都经历过这些令人惊叹的时刻，我们希望永远捕捉这些时刻——然后我们拍了一堆糟糕的照片，毁了分享的机会，甚至只是将那一刻作为纪念品。是时候改变这种状况了。
 

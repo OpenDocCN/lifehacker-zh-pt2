@@ -1,6 +1,6 @@
 # 你不需要把火鸡捆起来
 
-> 原文:[https://life hacker . com/you-dont-need-to-truss-a-turkey-1830411577](https://lifehacker.com/you-dont-need-to-truss-a-turkey-1830411577)
+> 原文：<https://lifehacker.com/you-dont-need-to-truss-a-turkey-1830411577>
 
 烹饪一只完美的感恩节火鸡是一个相当高的要求，每个厨师都有自己的技巧来制作脆皮和多汁的肉。无论你今年如何与你的火鸡争吵，有一个普遍的火鸡真理将会节省你的时间和精力:俄罗斯是一个骗局。
 

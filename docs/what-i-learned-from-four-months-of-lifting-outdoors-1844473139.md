@@ -1,6 +1,6 @@
 # 我从四个月的户外举重中学到了什么
 
-> 原文:[https://life hacker . com/what-I-learn-from-four-months-lifting-outdoors-1844473139](https://lifehacker.com/what-i-learned-from-four-months-of-lifting-outdoors-1844473139)
+> 原文：<https://lifehacker.com/what-i-learned-from-four-months-of-lifting-outdoors-1844473139>
 
 自从健身房三月份关门后，我就一直在家锻炼。因为我的房子没有一个适合我喜欢做的运动的地方，所以我主要在外面举重。以下是我学到的东西。
 

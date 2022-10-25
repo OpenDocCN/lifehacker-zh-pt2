@@ -1,6 +1,6 @@
 # 如何在三星 Galaxy 手机上获得更好看的屏幕截图
 
-> 原文:[https://life hacker . com/how-to-get-better-looking-screens-on-your-Samsung-g-1842965074](https://lifehacker.com/how-to-get-better-looking-screenshots-on-your-samsung-g-1842965074)
+> 原文：<https://lifehacker.com/how-to-get-better-looking-screenshots-on-your-samsung-g-1842965074>
 
 默认情况下，三星 Galaxy 智能手机会将屏幕截图保存为 crappier 格式。JPEG 图像。没有什么反对好的老 JPEG，尤其是如果你需要节省尽可能多的设备空间。它们只是看起来不如(几乎)每个其他 Android 设备默认使用的替代品——强大、 [无损](https://www.digitaltrends.com/photography/jpeg-vs-png/) .PNG
 

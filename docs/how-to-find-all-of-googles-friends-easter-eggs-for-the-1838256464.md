@@ -1,6 +1,6 @@
 # 如何找到谷歌“朋友”节目 25 周年纪念日的所有复活节彩蛋
 
-> 原文:[https://life hacker . com/how-to-find-all-of-Googles-friends-复活节彩蛋 1838256464](https://lifehacker.com/how-to-find-all-of-googles-friends-easter-eggs-for-the-1838256464)
+> 原文：<https://lifehacker.com/how-to-find-all-of-googles-friends-easter-eggs-for-the-1838256464>
 
 *朋友*快 25 岁了。为了庆祝，谷歌在围绕该剧主要角色的搜索中添加了大量复活节彩蛋。
 

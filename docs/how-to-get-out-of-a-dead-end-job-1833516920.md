@@ -1,6 +1,6 @@
 # how to get out of a dead end job 1833516920
 
-> 原文:[https://life hacker . com/how-to-get-out of a dead-end-job-1833516920](https://lifehacker.com/how-to-get-out-of-a-dead-end-job-1833516920)
+> 原文：<https://lifehacker.com/how-to-get-out-of-a-dead-end-job-1833516920>
 
 当你那份没有前途的工作没有给你逃脱所需的技能时，你会怎么做？人力资源部正在调查此案。
 

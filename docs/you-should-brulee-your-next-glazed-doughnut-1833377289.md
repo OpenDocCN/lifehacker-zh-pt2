@@ -1,6 +1,6 @@
 # 你应该带上你的下一个糖浆甜甜圈
 
-> 原文:[https://life hacker . com/you-should-brulee-your ' s next-glassed-甜甜圈-1833377289](https://lifehacker.com/you-should-brulee-your-next-glazed-doughnut-1833377289)
+> 原文：<https://lifehacker.com/you-should-brulee-your-next-glazed-doughnut-1833377289>
 
 一个好的甜甜圈不依赖于噱头，但噱头可以帮助一个不合格的甜甜圈。不管一家甜甜圈店有多手工或多有名，如果他们不能做出一个像样的普通的、酵母发酵的、有光泽的甜甜圈——没有分散注意力的配料——他们就不是一家好的甜甜圈店。
 

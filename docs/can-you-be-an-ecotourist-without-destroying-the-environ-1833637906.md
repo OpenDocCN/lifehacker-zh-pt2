@@ -1,6 +1,6 @@
 # 在不破坏环境的情况下，你能成为一名生态旅游者吗？
 
-> 原文:[https://life hacker . com/can-you-be-an-a-eco tourist-without-destroying-the-environ-1833637906](https://lifehacker.com/can-you-be-an-ecotourist-without-destroying-the-environ-1833637906)
+> 原文：<https://lifehacker.com/can-you-be-an-ecotourist-without-destroying-the-environ-1833637906>
 
 理论上，生态旅游背后的动机是好的——谁不想去一个美丽的地方，享受大自然的奇迹，回家后对全球脆弱的生态系统(以及它们面临的气候变化带来的可怕风险)有更好的欣赏呢？
 

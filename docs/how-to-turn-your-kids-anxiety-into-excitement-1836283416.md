@@ -1,6 +1,6 @@
 # 如何将孩子的焦虑转化为兴奋
 
-> 原文:[https://life hacker . com/how-to-turn-your-kids-anxiety-to-excitation-1836283416](https://lifehacker.com/how-to-turn-your-kids-anxiety-into-excitement-1836283416)
+> 原文：<https://lifehacker.com/how-to-turn-your-kids-anxiety-into-excitement-1836283416>
 
 昨晚，当我和六岁的女儿玛吉躺在床上时，她对我说:“我希望这个星期永远不要结束。”我正在努力思考过去几天有什么特别的，这时她继续说道:“下周，我要去一个新的游泳班，而且是在深水区。”
 

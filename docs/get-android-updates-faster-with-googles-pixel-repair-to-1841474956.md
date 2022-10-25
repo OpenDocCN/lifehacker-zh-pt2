@@ -1,6 +1,6 @@
 # 使用谷歌的 Pixel 修复工具更快地获得 Android 更新
 
-> 原文:[https://life hacker . com/get-Android-updates-faster-with-Google-pixel-repair-to-1841474956](https://lifehacker.com/get-android-updates-faster-with-googles-pixel-repair-to-1841474956)
+> 原文：<https://lifehacker.com/get-android-updates-faster-with-googles-pixel-repair-to-1841474956>
 
 [更新一部安卓手机](https://lifehacker.com/why-you-should-install-the-october-2019-android-securit-1838848808) 有很多种方法。大多数人可能会等待最新补丁的到来，让他们的手机自动运行更新。这是最方便的选择，但也是最慢的，因为它依赖于您的运营商为您推出更新。有一些方法可以更快地获得更新——比如 [自己下载新的更新](https://lifehacker.com/how-to-sideload-android-10-onto-your-pixel-instead-of-w-1838072534)——但是对于那些不想用额外的软件或系统级操作来捣乱的人来说，这些方法可能会令人生畏和困惑。
 

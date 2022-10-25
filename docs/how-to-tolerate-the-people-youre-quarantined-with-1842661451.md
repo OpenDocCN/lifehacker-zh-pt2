@@ -1,6 +1,6 @@
 # 如何忍受和你一起被隔离的人
 
-> 原文:[https://life hacker . com/how-to-tolerance-the-people-you-quarantine-with-1842661451](https://lifehacker.com/how-to-tolerate-the-people-youre-quarantined-with-1842661451)
+> 原文：<https://lifehacker.com/how-to-tolerate-the-people-youre-quarantined-with-1842661451>
 
 我们已经开始物理距离好几个星期了，每个人都在想如何与他们再也见不到的人保持社交关系。但是那些你被迫看太多*的人呢？*
 

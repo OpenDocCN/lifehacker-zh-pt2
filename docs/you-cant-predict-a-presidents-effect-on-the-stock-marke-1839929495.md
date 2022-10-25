@@ -1,6 +1,6 @@
 # 你无法预测总统对股票市场的影响
 
-> 原文:[https://life hacker . com/you-cant-predict-a-presidents-effect-on-the-stock-marke-1839929495](https://lifehacker.com/you-cant-predict-a-presidents-effect-on-the-stock-marke-1839929495)
+> 原文：<https://lifehacker.com/you-cant-predict-a-presidents-effect-on-the-stock-marke-1839929495>
 
 总统候选人经常宣布他们入主白宫后的激进计划——但这是一条通往彻底变革的漫长道路。新总统不会一上任就马上颁布他们的新政策。在根据新总统的政策目标提出新的法律之前，国会也不会立即召开会议，说“是的，听起来不错，让我们这样做吧”。
 

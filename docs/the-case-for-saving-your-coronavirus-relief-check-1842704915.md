@@ -1,6 +1,6 @@
 # 拯救你的冠状病毒救济支票
 
-> 原文:[https://life hacker . com/the-case-for-saving-your-coronavirus-relief-check-1842704915](https://lifehacker.com/the-case-for-saving-your-coronavirus-relief-check-1842704915)
+> 原文：<https://lifehacker.com/the-case-for-saving-your-coronavirus-relief-check-1842704915>
 
 如果你在冠状病毒疫情期间失业或工作时间缩短，你的政府救济金可能最早于本周到达，这可能是你银行账户中一个受欢迎的额外收入。
 

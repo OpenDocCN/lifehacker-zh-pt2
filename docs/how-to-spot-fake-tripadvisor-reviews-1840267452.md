@@ -1,6 +1,6 @@
 # 如何识别虚假的猫途鹰评论
 
-> 原文:[https://life hacker . com/how-to-spot-fake-tripadvisor-reviews-1840267452](https://lifehacker.com/how-to-spot-fake-tripadvisor-reviews-1840267452)
+> 原文：<https://lifehacker.com/how-to-spot-fake-tripadvisor-reviews-1840267452>
 
 在最近由华尔街日报发布的一份报告中，帮助追踪虚假评论的网站 Fakespot 估计，亚马逊和 Walmart.com 等主要网站上超过三分之一的评论是虚假的，主要由机器人或被赞助撰写好评的人生成。当然，如果你曾经浏览过产品或餐馆的评论，这并不奇怪。
 

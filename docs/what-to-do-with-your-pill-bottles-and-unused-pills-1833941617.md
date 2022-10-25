@@ -1,6 +1,6 @@
 # 如何处理你的药瓶和没用过的药片
 
-> 原文:[https://life hacker . com/what-do-with the-your ' s pill-bottles-and-used-pills-1833941617](https://lifehacker.com/what-to-do-with-your-pill-bottles-and-unused-pills-1833941617)
+> 原文：<https://lifehacker.com/what-to-do-with-your-pill-bottles-and-unused-pills-1833941617>
 
 我有很多未用过的药瓶。有些是我拔智齿时留下的，有些是最近一次食物中毒留下的，还有一些是因为我的关节发炎。
 

@@ -1,6 +1,6 @@
 # 如何帮助飓风道林救援工作
 
-> 原文:[https://life hacker . com/how-to-help-hurricane-Dorian-relief-efforts-1837833970](https://lifehacker.com/how-to-help-hurricane-dorian-relief-efforts-1837833970)
+> 原文：<https://lifehacker.com/how-to-help-hurricane-dorian-relief-efforts-1837833970>
 
 周末，飓风道林肆虐巴哈马，破坏了 13，000 所房屋，造成至少 5 人死亡。 截至周二早上，多里安——最近被 [降级为 2 s](https://www.nytimes.com/2019/09/03/us/hurricane-dorian-updates.html?smtyp=cur&smid=tw-nytnational&module=inline) 级风暴——正在缓慢向佛罗里达州海岸移动；从那里开始，预计本周晚些时候会沿着海岸沿着乔治亚州、北卡罗来纳州和南卡罗来纳州蔓延。
 

@@ -1,6 +1,6 @@
 # 2019 年万圣节去哪里领取免费食物
 
-> 原文:[https://life hacker . com/where-to-get-free-food-on-Halloween-2019-1839480667](https://lifehacker.com/where-to-get-free-food-on-halloween-2019-1839480667)
+> 原文：<https://lifehacker.com/where-to-get-free-food-on-halloween-2019-1839480667>
 
 今晚你可以从陌生人那里得到免费糖果。但是你也可以从 Krispy Kreme 和其他连锁店获得一些免费糖果。对于免费的儿童餐来说，这是一个重要的夜晚——不管孩子们是否穿着戏服。
 

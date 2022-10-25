@@ -1,6 +1,6 @@
 # 使用微软的新插件在 Windows 10 中查看原始图像
 
-> 原文:[https://life hacker . com/view-raw-images-in-windows-10-with-Microsoft-new-plugi-1836281441](https://lifehacker.com/view-raw-images-in-windows-10-with-microsofts-new-plugi-1836281441)
+> 原文：<https://lifehacker.com/view-raw-images-in-windows-10-with-microsofts-new-plugi-1836281441>
 
 微软刚刚为 Windows 10 发布了一个免费的 RAW 图像扩展，使得在 Windows 的文件浏览器中查看 RAW 文件更加容易——摄影师们，欢呼吧。你不必使用 Adobe Photoshop 或其他第三方应用程序和插件来打开 [RAW 图像](https://lifehacker.com/which-format-is-best-when-you-should-shoot-photos-in-j-5907434) ，你也可以使用 Window 10 的内置照片应用程序来打开它们，就像你会更简单。JPG 或者。PNG 文件。
 

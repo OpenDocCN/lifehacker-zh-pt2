@@ -1,6 +1,6 @@
 # 我如何为患有自闭症的孩子计划更好的玩耍时间？
 
-> 原文:[https://life hacker . com/how-can-I-plan-better-play dates-for-my-child with-autis-1842030299](https://lifehacker.com/how-can-i-plan-better-playdates-for-my-child-with-autis-1842030299)
+> 原文：<https://lifehacker.com/how-can-i-plan-better-playdates-for-my-child-with-autis-1842030299>
 
 玩耍日是小孩子练习社交、发展认知和语言技能以及练习自我调节的好方法——特别是如果他们没有通过日托或学前环境定期接触其他孩子的话。当然，他们对任何父母来说都是一个挑战，因为他们缺乏社交经验。但是，特别是那些有神经分歧的孩子的父母可能会发现，当他们的孩子在玩耍或受周围环境影响方面的差异开始变得明显时，一些额外的前期准备会有所帮助。
 

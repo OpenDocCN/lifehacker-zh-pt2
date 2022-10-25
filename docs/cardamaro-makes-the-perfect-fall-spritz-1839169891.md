@@ -1,6 +1,6 @@
 # 卡尔达马罗是完美的秋季烈酒
 
-> 原文:[https://life hacker . com/cardamaro-makes-the-perfect-fall-spritz-1839169891](https://lifehacker.com/cardamaro-makes-the-perfect-fall-spritz-1839169891)
+> 原文：<https://lifehacker.com/cardamaro-makes-the-perfect-fall-spritz-1839169891>
 
 很多人喜欢在寒冷的天气里喝热酒精，但我不是那种人。穿着厚厚的毛线衫在体内取暖会让我出汗——并且恐慌——这就是为什么不管天气如何，我都保持我的鸡尾酒又冷又能狂饮。
 

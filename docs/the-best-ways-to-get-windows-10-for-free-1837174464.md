@@ -1,6 +1,6 @@
 # 免费获得 Windows 10 的最佳方式
 
-> 原文:[https://life hacker . com/the-best-ways-to-get-windows-10-for-free-1837174464](https://lifehacker.com/the-best-ways-to-get-windows-10-for-free-1837174464)
+> 原文：<https://lifehacker.com/the-best-ways-to-get-windows-10-for-free-1837174464>
 
 即使是 Zune 的忠实用户也不得不承认 Mac 用户过得很好——至少现在是这样。苹果已经多年没有对 macOS 和 macOS 更新收费了。当然，你需要从苹果公司购买电脑才能使用 macOS ( [差不多](https://lifehacker.com/what-was-your-best-hackintosh-experience-1834388817) )，但至少操作系统是免费的。
 

@@ -1,6 +1,6 @@
 # 如何在周二直播苹果 10 月份的 iPad 发布会
 
-> 原文:[https://life hacker . com/how-to-live stream-apple-December-ipad-event-Tuesday-1830055208](https://lifehacker.com/how-to-livestream-apples-october-ipad-event-tuesday-1830055208)
+> 原文：<https://lifehacker.com/how-to-livestream-apples-october-ipad-event-tuesday-1830055208>
 
 预计苹果将于本周二发布大量新产品，包括搭载 Face ID 的新款 iPad Pro、新款 MacBook Air，或许还有 iPad 或 Mac Mini。活动将在布鲁克林举行，只有受邀者才能参加。如果你没有被列入嘉宾名单，你仍然可以在线关注所有的活动。
 

@@ -1,6 +1,6 @@
 # 像研究餐馆一样研究抵押贷款机构
 
-> 原文:[https://life hacker . com/research-mortgage-lenders-the way-you-research-restaura-1834411257](https://lifehacker.com/research-mortgage-lenders-the-way-you-research-restaura-1834411257)
+> 原文：<https://lifehacker.com/research-mortgage-lenders-the-way-you-research-restaura-1834411257>
 
 我不知道你，但是在我选择餐馆之前，我喜欢看许多照片和评论。
 

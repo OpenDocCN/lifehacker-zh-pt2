@@ -1,6 +1,6 @@
 # this rental company in japan will let you drive your jd 1829987840
 
-> 原文:[https://jalopnik . com/this-rental-company-in-Japan-will-let-you-drive-your-JD-1829987840](https://jalopnik.com/this-rental-company-in-japan-will-let-you-drive-your-jd-1829987840)
+> 原文：<https://jalopnik.com/this-rental-company-in-japan-will-let-you-drive-your-jd-1829987840>
 
 尽管驾驶高档跑车在日本进行公路冒险很有趣，但我意识到，并不是每个来日本的人都能在这个国家最好的公路上驾驶 T1 T2 阿斯顿马丁 T3 T4 或 T6 迈凯轮 T7 T8。事实上，我走过的大部分路都不需要一百万马力或者上来享受的门。
 

@@ -1,6 +1,6 @@
 # how to cope when a city rejects you 1832469236
 
-> 原文:[https://life hacker . com/how-to-cope-when-a-city-rejects-you-1832469236](https://lifehacker.com/how-to-cope-when-a-city-rejects-you-1832469236)
+> 原文：<https://lifehacker.com/how-to-cope-when-a-city-rejects-you-1832469236>
 
 对我来说，是建筑最终做到了。
 

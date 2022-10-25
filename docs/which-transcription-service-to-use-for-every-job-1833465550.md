@@ -1,6 +1,6 @@
 # 每个作业使用哪种转录服务[更新]
 
-> 原文:[https://life hacker . com/which-transcription-service-to-use-for-every-job-1833465550](https://lifehacker.com/which-transcription-service-to-use-for-every-job-1833465550)
+> 原文：<https://lifehacker.com/which-transcription-service-to-use-for-every-job-1833465550>
 
 有了音频转录，你得到你所支付的。每分钟一美元的音频， [Rev](https://www.rev.com/) 会给你一份格式良好的成绩单。每分钟 25 美分(大容量的话价格会低一点)， [Trint](https://trint.com/pricing/) 会给你一份错误百出的成绩单，但会用一个复杂的编辑工具帮你改正。每分钟 10 美分，全新的[cheap transcription . io](https://www.cheaptranscription.io/)将会给你一个有更多错误的简洁文本文档。根据您的需要，您可能希望使用这三种方法。下面是如何选择。
 

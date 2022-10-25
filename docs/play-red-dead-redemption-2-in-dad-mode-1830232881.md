@@ -1,6 +1,6 @@
 # 在“爸爸模式”下玩红色死亡救赎 2
 
-> 原文:[https://life hacker . com/play-red-dead-redemption-2-in-dad-mode-1830232881](https://lifehacker.com/play-red-dead-redemption-2-in-dad-mode-1830232881)
+> 原文：<https://lifehacker.com/play-red-dead-redemption-2-in-dad-mode-1830232881>
 
 [*红色亡灵救赎 2*](https://www.rockstargames.com/reddeadredemption2/restricted-content/agegate/form?redirect=https%3A%2F%2Fwww.rockstargames.com%2Freddeadredemption2%2F&options=&locale=en_us) 不适合小孩子。
 

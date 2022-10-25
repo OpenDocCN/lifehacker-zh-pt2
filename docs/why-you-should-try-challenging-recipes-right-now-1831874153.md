@@ -1,6 +1,6 @@
 # 为什么你现在应该尝试“挑战”食谱
 
-> 原文:[https://life hacker . com/why-you-should-try-challenge-recipes-right-now-1831874153](https://lifehacker.com/why-you-should-try-challenging-recipes-right-now-1831874153)
+> 原文：<https://lifehacker.com/why-you-should-try-challenging-recipes-right-now-1831874153>
 
 类似于滑旱冰，烹饪并不是每个人都有诀窍。也像滑旱冰一样，烹饪是一个人可以学习的东西，学习的很大一部分是实践。他们说命运偏爱勇敢的人，接受令人生畏的挑战会让你成为更好的厨师。(这是我发现烹饪和滑旱冰有分歧的地方，因为我曾经因为大胆的滑旱冰严重擦伤了我的尾骨。)
 

@@ -1,6 +1,6 @@
 # 确保照片是合法的谷歌反向图像搜索
 
-> 原文:[https://life hacker . com/assure-a-photo-is-legit-with-Google-reverse-image-searc-1837715954](https://lifehacker.com/ensure-a-photo-is-legit-with-google-reverse-image-searc-1837715954)
+> 原文：<https://lifehacker.com/ensure-a-photo-is-legit-with-google-reverse-image-searc-1837715954>
 
 如果说过去几年教会了我们什么，那就是“假新闻”在社交媒体上找到了自己的家。
 

@@ -1,6 +1,6 @@
 # 如何制作世界上最脆的土豆煎饼
 
-> 原文:[https://the take out . com/recipe-how-to-make-crisp-hash-browns-1835221842](https://thetakeout.com/recipe-how-to-make-crispy-hash-browns-1835221842)
+> 原文：<https://thetakeout.com/recipe-how-to-make-crispy-hash-browns-1835221842>
 
 我不喜欢土豆煎饼。我的努力如此平淡，我觉得自己不适合做父亲。周六早上，我会把一袋湿土豆丝扔进煎锅——5 分钟过去了，然后是 10 分钟、15 分钟，到第 20 分钟，土豆还是白色的，没有煮熟。最后端上盘子的不是金黄酥脆的美味，更多的是烤土豆在微波炉中爆炸后留下的混乱。
 

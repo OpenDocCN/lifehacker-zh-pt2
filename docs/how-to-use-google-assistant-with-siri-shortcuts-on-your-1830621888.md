@@ -1,6 +1,6 @@
 # 如何在 iPhone 上使用带有 Siri 快捷方式的谷歌助手
 
-> 原文:[https://life hacker . com/how-to-use-Google-assistant-with-Siri-shortcut s-on-your-1830621888](https://lifehacker.com/how-to-use-google-assistant-with-siri-shortcuts-on-your-1830621888)
+> 原文：<https://lifehacker.com/how-to-use-google-assistant-with-siri-shortcuts-on-your-1830621888>
 
 谷歌助手本周在 iOS 上有了一点升级，引入了对 Siri 快捷方式的支持。现在，你可以在 Siri 中录制一个类似“Ok Google”的短语，然后用这个短语打开手机上的 Google Assistant 应用程序。
 

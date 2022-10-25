@@ -1,6 +1,6 @@
 # 2020 年 7 月，Hulu 将迎来什么
 
-> 原文:[https://life hacker . com/whats-coming-to-Hulu-in-July-2020-1844180606](https://lifehacker.com/whats-coming-to-hulu-in-july-2020-1844180606)
+> 原文：<https://lifehacker.com/whats-coming-to-hulu-in-july-2020-1844180606>
 
 时间循环结构是我最喜欢的电影比喻之一，在电影中，一个角色注定要一遍又一遍地重复同样的几个小时或几天，直到他们想出如何摆脱世俗炼狱的。想想 *土拨鼠日*，网飞的*俄罗斯娃娃*和恐怖片*快乐死亡日*。
 

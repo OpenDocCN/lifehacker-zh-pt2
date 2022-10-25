@@ -1,6 +1,6 @@
 # 如何在度假时离开你的孩子
 
-> 原文:[https://life hacker . com/how-to-get-a-break-from your-kids-while-度假-1835700833](https://lifehacker.com/how-to-get-a-break-from-your-kids-while-on-vacation-1835700833)
+> 原文：<https://lifehacker.com/how-to-get-a-break-from-your-kids-while-on-vacation-1835700833>
 
 正如气象学家保罗·古德洛 [对我们](https://offspring.lifehacker.com/im-paul-goodloe-meteorologist-at-the-weather-channel-1834710496) 谈到家庭旅行时说的:“如果你把孩子也算在内，那就不再是度假了——我们只是称之为旅行。”不要误解我们的意思:和你的孩子一起周游世界可以是一次形成终生记忆的经历。它也可能相当令人窒息(闪回那次去圣地亚哥的旅行，当时酒店只有单人床的房间)。你的孩子很吵，喝了维珍提基酒，无处可逃。
 

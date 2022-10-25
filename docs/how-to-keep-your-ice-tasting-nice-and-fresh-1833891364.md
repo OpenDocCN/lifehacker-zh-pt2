@@ -1,6 +1,6 @@
 # 如何让你的冰尝起来新鲜可口
 
-> 原文:[https://life hacker . com/how-to-keep-your-ice-tasting-nice-and-fresh-1833891364](https://lifehacker.com/how-to-keep-your-ice-tasting-nice-and-fresh-1833891364)
+> 原文：<https://lifehacker.com/how-to-keep-your-ice-tasting-nice-and-fresh-1833891364>
 
 一年中第一个真正温暖的春天应该是在最近的阳光充足的地方享受阳光，手里拿着一杯冰镇饮料。但是如果从冰箱里拿出来的冰有一股怪味，那真的会让人心情低落。
 

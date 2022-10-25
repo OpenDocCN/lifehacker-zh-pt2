@@ -1,6 +1,6 @@
 # 了解这些壁虱物种，在户外保持安全
 
-> 原文:[https://life hacker . com/know-these-tick-species-to-stay-safe-outdoors-1836082172](https://lifehacker.com/know-these-tick-species-to-stay-safe-outdoors-1836082172)
+> 原文：<https://lifehacker.com/know-these-tick-species-to-stay-safe-outdoors-1836082172>
 
 众所周知，蜱虫会在树林里缠住你，吸你的血，传播莱姆病——但并不是所有的蜱虫都是一样的。有不同的物种，生活在不同的地区，它们并不都传播相同的疾病。 [根据](https://www.cdc.gov/ticks/tickbornediseases/tickID.html) 疾控中心的说法，要警惕的蜱包括这些:
 

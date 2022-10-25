@@ -1,6 +1,6 @@
 # 你真的能不熨衬衫就解开它吗？
 
-> 原文:[https://life hacker . com/can-you-really-unwinkle-a shirt-with-iron-it-1837417849](https://lifehacker.com/can-you-really-unwrinkle-a-shirt-without-ironing-it-1837417849)
+> 原文：<https://lifehacker.com/can-you-really-unwrinkle-a-shirt-without-ironing-it-1837417849>
 
 我讨厌熨衣服。半年来，我一直穿着这件皱巴巴的衬衫。所以我测试了所有不用熨烫就能去除衣服褶皱的流行方法。结果不是我所希望的。
 

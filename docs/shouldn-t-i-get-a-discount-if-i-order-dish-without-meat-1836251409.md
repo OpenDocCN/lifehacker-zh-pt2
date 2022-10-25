@@ -1,6 +1,6 @@
 # 问咸的女服务员:点一个菜不加肉不应该打折吗？
 
-> 原文:[https://the take out . com/should-t-I-get-a-disk-if-I-order-dish-without-meat-1836251409](https://thetakeout.com/shouldn-t-i-get-a-discount-if-i-order-dish-without-meat-1836251409)
+> 原文：<https://thetakeout.com/shouldn-t-i-get-a-discount-if-i-order-dish-without-meat-1836251409>
 
 > 嘿，咸味，如果我点了一道主菜，主菜的主要部分是肉，比如鸡胸肉意大利面，或者三文鱼沙拉，那么要求他们为我降低这道菜的价格合理吗？通常，厨房甚至不会添加额外的其他配料，这多少会让它变得更好，因为我会得到更多的其他配料，因为我没有得到肉。很多时候，我最后点了一份 18 美元的沙拉，因为它应该和三文鱼一起上。
 > 

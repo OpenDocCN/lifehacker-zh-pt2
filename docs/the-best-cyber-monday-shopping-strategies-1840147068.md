@@ -1,6 +1,6 @@
 # 最佳网络星期一购物策略
 
-> 原文:[https://life hacker . com/the-best-cyber-Monday-shopping-strategies-1840147068](https://lifehacker.com/the-best-cyber-monday-shopping-strategies-1840147068)
+> 原文：<https://lifehacker.com/the-best-cyber-monday-shopping-strategies-1840147068>
 
 我今天早上 5:15 起床去网络星期一购物。不到一个小时，我就买下了节日礼物清单上的所有东西，而预算是 37.36 美元。
 

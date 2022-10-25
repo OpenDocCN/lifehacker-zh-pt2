@@ -1,6 +1,6 @@
 # 要存更多的钱，像乐观主义者一样思考
 
-> 原文:[https://life hacker . com/to-save-more-think-like-a-optimist-1834242942](https://lifehacker.com/to-save-more-think-like-an-optimist-1834242942)
+> 原文：<https://lifehacker.com/to-save-more-think-like-an-optimist-1834242942>
 
 一项新的研究表明，积极思考的力量也会对你的银行存款余额产生积极影响。
 

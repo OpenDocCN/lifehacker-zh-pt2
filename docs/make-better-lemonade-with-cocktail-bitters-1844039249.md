@@ -1,6 +1,6 @@
 # 用鸡尾酒苦味制作更好的柠檬水
 
-> 原文:[https://life hacker . com/make-better-lemonade-with-cocktail-bitters-1844039249](https://lifehacker.com/make-better-lemonade-with-cocktail-bitters-1844039249)
+> 原文：<https://lifehacker.com/make-better-lemonade-with-cocktail-bitters-1844039249>
 
 我的酒吧推车上有大约七瓶鸡尾酒苦味酒，但在制作鸡尾酒时，我真的只使用两瓶——ango stura 和 orange。这并不是说其他口味不好，只是我很少想要一种用葡萄柚或薰衣草苦味剂制成的老式饮料。但是柠檬水是完全不同的故事。
 

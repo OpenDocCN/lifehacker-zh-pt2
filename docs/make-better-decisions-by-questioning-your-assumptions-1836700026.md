@@ -1,6 +1,6 @@
 # 质疑你的假设，做出更好的决定
 
-> 原文:[https://life hacker . com/make-better-decisions-by-questioning-your-assumptions-1836700026](https://lifehacker.com/make-better-decisions-by-questioning-your-assumptions-1836700026)
+> 原文：<https://lifehacker.com/make-better-decisions-by-questioning-your-assumptions-1836700026>
 
 当你发现自己有两个看似不相容的目标、需求或欲望时，问问自己怎样才能同时实现这两个结果。
 

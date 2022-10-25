@@ -1,6 +1,6 @@
 # 阻力乐队健身挑战赛怎么样？
 
-> 原文:[https://life hacker . com/how-was-the-resistance-band-fitness-challenge-1833664496](https://lifehacker.com/how-was-the-resistance-band-fitness-challenge-1833664496)
+> 原文：<https://lifehacker.com/how-was-the-resistance-band-fitness-challenge-1833664496>
 
 我们整个月都在 [试验阻力带](https://vitals.lifehacker.com/the-march-fitness-challenge-is-the-resistance-band-wor-1832996075) ，但是说实话，我还没有找到任何我真正喜欢的新运动。也许这是因为我的大多数乐队是较小的环型，这是伟大的一些下半身练习，而不是其他。
 

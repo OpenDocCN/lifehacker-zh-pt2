@@ -1,6 +1,6 @@
 # 如何在 iPadOS 13.4 中自定义光标的外观
 
-> 原文:[https://life hacker . com/how-to-customize-the-look-of-your-cursor-in-ipados-13-4-1842512969](https://lifehacker.com/how-to-customize-the-look-of-your-cursor-in-ipados-13-4-1842512969)
+> 原文：<https://lifehacker.com/how-to-customize-the-look-of-your-cursor-in-ipados-13-4-1842512969>
 
 去年 [推出 IP ados](https://lifehacker.com/the-biggest-ipad-changes-coming-to-ipados-from-wwdc-201-1835237728)时，苹果为 iPad 添加了外部鼠标支持，但自 iPadOS 13.4 更新以来，用户现在可以定制 iPad UI 光标的外观和行为。使用鼠标 [或触控板](https://www.apple.com/shop/product/MXQT2LL/A/magic-keyboard-for-ipad-pro-11%E2%80%91inch-2nd-generation-us-english) 来控制你的 iPad 可能看起来没有必要，因为是一个触摸屏设备，但如果你将 iPad 用作笔记本电脑的替代品或 Mac 的辅助显示器，它会很有帮助。对于使用 iPad 默认触摸屏界面有困难的用户来说，这也是一个重要的辅助选项——能够修改光标对于那些在屏幕上看不到光标的人来说更有用。
 

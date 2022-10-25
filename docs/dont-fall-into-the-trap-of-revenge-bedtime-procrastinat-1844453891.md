@@ -1,6 +1,6 @@
 # 不要陷入‘报复睡前拖延症’的陷阱
 
-> 原文:[https://life hacker . com/don-t-fall-in-the-trap-of-return-bedrome-drastinat-1844453891](https://lifehacker.com/dont-fall-into-the-trap-of-revenge-bedtime-procrastinat-1844453891)
+> 原文：<https://lifehacker.com/dont-fall-into-the-trap-of-revenge-bedtime-procrastinat-1844453891>
 
 正在进行的疫情已经改变了我们生活的许多方面，以至于我们很难感觉到自己控制了太多。每天都有一个似乎永无止境的必须完成的任务清单，所以当你最终完成并有机会睡觉时，那可能是你一天中属于自己的第一个时刻。虽然让我们自己平静地进入睡眠是有意义的，但在睡觉前尝试多塞一件东西，让我们感觉一天中至少有(很小)一部分是我们自己的，是如此诱人。
 

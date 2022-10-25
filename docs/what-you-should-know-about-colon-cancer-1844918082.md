@@ -1,6 +1,6 @@
 # what you should know about colon cancer 1844918082
 
-> 原文:[https://life hacker . com/what-you-should-know-on-colon-cancer-1844918082](https://lifehacker.com/what-you-should-know-about-colon-cancer-1844918082)
+> 原文：<https://lifehacker.com/what-you-should-know-about-colon-cancer-1844918082>
 
 黑豹明星查德维克·博斯曼 因结肠癌不幸离世。他很年轻，很成功，并且默默地独自承受着这个毁灭性的诊断结果。他也不是一个人。“结肠癌是美国最常见的癌症之一，”印第安纳波利斯阿森松圣文森特医院的胃肠病学家 Mazen Alastie 博士说。以下是你应该知道的事情——风险、征兆以及你能做些什么。
 

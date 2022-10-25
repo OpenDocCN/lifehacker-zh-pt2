@@ -1,6 +1,6 @@
 # 不要给你的宠物万圣节糖果
 
-> 原文:[https://life hacker . com/dont-give-your-pets-Halloween-candy-1838872147](https://lifehacker.com/dont-give-your-pets-halloween-candy-1838872147)
+> 原文：<https://lifehacker.com/dont-give-your-pets-halloween-candy-1838872147>
 
 万一你想在这个万圣节给你的宠物糖果，这里有一个快速提醒:不要。虽然糖果看起来无害，但你的宠物不能安全地吃掉大多数商店里买的糖果，在某些情况下，选择甜食甚至可以 [证明是致命的](https://www.wthr.com/article/woman-warns-pet-owners-dangerous-ingredient-sugar-free-candy-cane-after-dog-dies) 。
 

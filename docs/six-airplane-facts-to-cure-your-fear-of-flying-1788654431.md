@@ -1,6 +1,6 @@
 # 这些飞机知识将有助于治愈你对飞行的恐惧
 
-> 原文:[https://life hacker . com/six-plane-facts-to-cure-your-fear of flight-1788654431](https://lifehacker.com/six-airplane-facts-to-cure-your-fear-of-flying-1788654431)
+> 原文：<https://lifehacker.com/six-airplane-facts-to-cure-your-fear-of-flying-1788654431>
 
 对一些人来说，空中旅行只是日常生活的另一部分。但对其他人来说，这是压力和焦虑的主要来源。好消息是，大多数恐惧都可以归结为缺乏理解，在这种情况下，知识就是力量。如果一想到坐飞机 [就让你焦虑](http://lifehacker.com/how-i-beat-my-fear-of-flying-1052703615) 并出一身冷汗，这些飞行安全常识就是你在飞行前、飞行中、飞行后都要服用的良药。
 

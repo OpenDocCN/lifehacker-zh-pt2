@@ -1,6 +1,6 @@
 # 在你的假期汉姆真空中
 
-> 原文:[https://life hacker . com/sous-vide-your-holiday-ham-1831204938](https://lifehacker.com/sous-vide-your-holiday-ham-1831204938)
+> 原文：<https://lifehacker.com/sous-vide-your-holiday-ham-1831204938>
 
 我非常喜欢假日火腿，尤其是配上粘粘甜甜的糖衣。咸肥美的猪肉片味道很好，不需要你大惊小怪。因为你在商店里找到的所有螺旋切火腿都已经煮熟了，你所要做的就是把它们加热。当然，关键是不要在这样做的时候把它弄干。
 

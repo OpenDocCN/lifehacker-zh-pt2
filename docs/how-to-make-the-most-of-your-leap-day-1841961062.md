@@ -1,6 +1,6 @@
 # 如何充分利用你的闰日
 
-> 原文:[https://life hacker . com/how-to-make-the-most-your-leap-day-1841961062](https://lifehacker.com/how-to-make-the-most-of-your-leap-day-1841961062)
+> 原文：<https://lifehacker.com/how-to-make-the-most-of-your-leap-day-1841961062>
 
 星期六是闰日，这是每四年添加到日历上的额外一天，因为...嗯...地球绕着太阳转的方式？差不多吧？基本上，时间是一个构造，每四年我们都会构造一个额外的日子来确保剩下的日子都在它们应该在的地方。
 

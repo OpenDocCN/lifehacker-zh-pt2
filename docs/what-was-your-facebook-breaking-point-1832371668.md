@@ -1,6 +1,6 @@
 # 你的脸书转折点是什么？
 
-> 原文:[https://life hacker . com/what-was-your-Facebook-breaking-point-1832371668](https://lifehacker.com/what-was-your-facebook-breaking-point-1832371668)
+> 原文：<https://lifehacker.com/what-was-your-facebook-breaking-point-1832371668>
 
 本周早些时候，脸书就满 15 岁了，请原谅我没有冲到面包店去订一个庆祝蛋糕。感觉上大多数人都不想和脸书说话，尽管许多人仍然会定期浏览网站，快速浏览可爱的动物图片，有机会向持有他们不同意的可怕观点的人发帖，还有机会了解你的朋友在没有你的情况下所享受的乐趣。
 

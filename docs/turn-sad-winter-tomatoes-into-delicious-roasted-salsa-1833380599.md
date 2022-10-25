@@ -1,6 +1,6 @@
 # 把悲伤的冬季西红柿变成美味的烤沙拉
 
-> 原文:[https://life hacker . com/turn-sad-winter-tomatos-into-delicious-baked-salsa-1833380599](https://lifehacker.com/turn-sad-winter-tomatoes-into-delicious-roasted-salsa-1833380599)
+> 原文：<https://lifehacker.com/turn-sad-winter-tomatoes-into-delicious-roasted-salsa-1833380599>
 
 Watch
 

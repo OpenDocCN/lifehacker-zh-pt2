@@ -1,6 +1,6 @@
 # 如何在 WhatsApp 和其他应用程序中共享您的位置
 
-> 原文:[https://life hacker . com/how-to-share-your-location-in-whatsapp-and-other-apps-1819658511](https://lifehacker.com/how-to-share-your-location-in-whatsapp-and-other-apps-1819658511)
+> 原文：<https://lifehacker.com/how-to-share-your-location-in-whatsapp-and-other-apps-1819658511>
 
 允许你的手机允许其他人追踪你的位置的想法有点令人毛骨悚然，但是有很多情况下你可能希望朋友或家人知道你在任何给定时间的确切位置。
 

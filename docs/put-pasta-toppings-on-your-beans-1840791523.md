@@ -1,6 +1,6 @@
 # 在豆子上放意大利面配料
 
-> 原文:[https://life hacker . com/put-pasta-toppings-on-your-beans-1840791523](https://lifehacker.com/put-pasta-toppings-on-your-beans-1840791523)
+> 原文：<https://lifehacker.com/put-pasta-toppings-on-your-beans-1840791523>
 
 一大锅豆子，在美味的液体中慢炖，是任何一种膳食计划的坚实基础。豆类既能填饱肚子又便宜，但是不管你有多喜欢某一种豆类，在你吃了第三碗之后，豆类疲劳就会开始出现。但是有一个非常简单的方法可以让你的下一碗豆子变得漂亮——只要把它们当成意大利面。
 

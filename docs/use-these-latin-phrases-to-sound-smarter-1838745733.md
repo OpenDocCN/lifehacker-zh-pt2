@@ -1,6 +1,6 @@
 # 使用这些拉丁短语听起来更聪明
 
-> 原文:[https://life hacker . com/use-this-Latin-phrases-to-sound-smarter-1838745733](https://lifehacker.com/use-these-latin-phrases-to-sound-smarter-1838745733)
+> 原文：<https://lifehacker.com/use-these-latin-phrases-to-sound-smarter-1838745733>
 
 韦氏词典希望我们在日常生活中更多地使用拉丁语，我们认为没有理由不这样做。(好吧，M-W 并没有确切地说*说*，但是他们已经公布了一份他们最喜欢的拉丁短语的列表，所以这是一个公平的结论。)
 

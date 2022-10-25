@@ -1,6 +1,6 @@
 # 给你的汽车应急包添加现金
 
-> 原文:[https://life hacker . com/add-cash-to-your-cars-emergency-kit-1837713379](https://lifehacker.com/add-cash-to-your-cars-emergency-kit-1837713379)
+> 原文：<https://lifehacker.com/add-cash-to-your-cars-emergency-kit-1837713379>
 
 随身携带一点现金可以帮助你避免一些小的不便。但是，如果你想使用每次你去借或贷时从钱包里偷出来的现金，你可能会想把一些现金藏在另一个地方:你的汽车。
 

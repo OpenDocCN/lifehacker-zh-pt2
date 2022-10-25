@@ -1,6 +1,6 @@
 # 三星的 Galaxy S10+拥有最快的 4G 速度(目前)
 
-> 原文:[https://life hacker . com/samsungs-galaxy-S10-拥有目前最快的 4g 速度 1833264433](https://lifehacker.com/samsungs-galaxy-s10-has-the-fastest-4g-speeds-for-now-1833264433)
+> 原文：<https://lifehacker.com/samsungs-galaxy-s10-has-the-fastest-4g-speeds-for-now-1833264433>
 
 没人喜欢等着东西加载到手机上。无论是空白网页还是流媒体网站缓冲，我们都指望我们的掌上电脑来实现即时连接和即时满足，当它们让我们失望时，或者花很长时间来加载一个愚蠢的视频时，这是多么令人恼火。
 

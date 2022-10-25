@@ -1,6 +1,6 @@
 # 在这家 Etsy 商店寻找残疾玩偶和配件
 
-> 原文:[https://life hacker . com/find-disability-inclusive-dolls-and-accessories-at-this-1845077014](https://lifehacker.com/find-disability-inclusive-dolls-and-accessories-at-this-1845077014)
+> 原文：<https://lifehacker.com/find-disability-inclusive-dolls-and-accessories-at-this-1845077014>
 
 对我们的孩子来说，看到自己在周围世界中的形象是非常重要的，从他们自己社区中的人和电影中描绘的人物，到他们玩的玩具。但是对于有助听器、人工耳蜗、唇裂、气管造口术、饲管或手术疤痕的孩子来说，找到这种表现可能是一个挑战。
 

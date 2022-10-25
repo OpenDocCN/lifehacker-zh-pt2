@@ -1,6 +1,6 @@
 # 如何少用纸巾
 
-> 原文:[https://life hacker . com/how-to-use-less-纸巾-1835204049](https://lifehacker.com/how-to-use-fewer-paper-towels-1835204049)
+> 原文：<https://lifehacker.com/how-to-use-fewer-paper-towels-1835204049>
 
 说到减少浪费，有些习惯比其他习惯更难打破。以纸巾为例。 T 他们真是太方便了——但是这种方便是有代价的。
 

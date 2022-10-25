@@ -1,6 +1,6 @@
 # 如何观看今晚的“喂养美国喜剧节”
 
-> 原文:[https://life hacker . com/how-to-watch-tonights-feeding-America-comedy-festival-1843376499](https://lifehacker.com/how-to-watch-tonights-feeding-america-comedy-festival-1843376499)
+> 原文：<https://lifehacker.com/how-to-watch-tonights-feeding-america-comedy-festival-1843376499>
 
 史蒂芬·科拜尔、威尔·法瑞尔、蒂娜·菲等预计将在今晚的“ [”喂养美国喜剧特辑](https://www.nbc.com/feeding-america-comedy-festival) ，“喂养美国义演”中亮相。
 

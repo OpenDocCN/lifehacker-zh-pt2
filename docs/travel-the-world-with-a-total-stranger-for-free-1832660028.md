@@ -1,6 +1,6 @@
 # 免费和一个完全陌生的人环游世界
 
-> 原文:[https://life hacker . com/travel-the-world with-a total-stranger-free-1832660028](https://lifehacker.com/travel-the-world-with-a-total-stranger-for-free-1832660028)
+> 原文：<https://lifehacker.com/travel-the-world-with-a-total-stranger-for-free-1832660028>
 
 没有什么比第一次和朋友一起旅行更让人清醒的了。你很快就会了解他们的旅行“怪癖”，比如他们讨厌走太多的路，或者他们睡觉时磨牙(我不是说我认识这样做的人，但我也不是说*也不是说*)。
 

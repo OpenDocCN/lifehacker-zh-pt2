@@ -1,6 +1,6 @@
 # 2020 年斋月和新冠肺炎:黑人穆斯林将受到怎样的影响？
 
-> 原文:[https://www . theroot . com/Ramadan-2020-和-新冠肺炎-如何将-黑人-穆斯林-是-af-1843018143](https://www.theroot.com/ramadan-2020-and-covid-19-how-will-black-muslims-be-af-1843018143)
+> 原文：<https://www.theroot.com/ramadan-2020-and-covid-19-how-will-black-muslims-be-af-1843018143>
 
 斋月从今晚开始，对于世界各地的许多穆斯林来说，今年的节日看起来会有很大的不同。
 

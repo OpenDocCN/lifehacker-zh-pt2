@@ -1,6 +1,6 @@
 # 使用此应用程序加快您的下一次护照续签
 
-> 原文:[https://life hacker . com/expedite-your-next-passport-renewal-using-this-app-1840599290](https://lifehacker.com/expedite-your-next-passport-renewal-using-this-app-1840599290)
+> 原文：<https://lifehacker.com/expedite-your-next-passport-renewal-using-this-app-1840599290>
 
 现在有更多的理由使用手机护照:你可以用它来更新你的护照。
 

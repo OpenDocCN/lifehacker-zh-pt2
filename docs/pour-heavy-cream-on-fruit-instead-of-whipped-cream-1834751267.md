@@ -1,6 +1,6 @@
 # 在水果上倒浓奶油而不是生奶油
 
-> 原文:[https://life hacker . com/pour-heavy-cream-on-fruit-inst-white-cream-1834751267](https://lifehacker.com/pour-heavy-cream-on-fruit-instead-of-whipped-cream-1834751267)
+> 原文：<https://lifehacker.com/pour-heavy-cream-on-fruit-instead-of-whipped-cream-1834751267>
 
 当我十几岁的时候，我父亲住在华盛顿州，这意味着我花了很多夏天和我的继母和姐妹一起采摘樱桃和浆果。大多数水果会被烤成馅饼和水果馅饼，但总会有一碗采摘后的浆果和鲜奶油来庆祝丰收。
 

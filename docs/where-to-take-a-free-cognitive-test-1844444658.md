@@ -1,6 +1,6 @@
 # 去哪里做免费的认知测试
 
-> 原文:[https://life hacker . com/where-to-take-a-a-free-cognitive-test-184444658](https://lifehacker.com/where-to-take-a-free-cognitive-test-1844444658)
+> 原文：<https://lifehacker.com/where-to-take-a-free-cognitive-test-1844444658>
 
 显然，对一些人来说，认知测试是非常难的。
 

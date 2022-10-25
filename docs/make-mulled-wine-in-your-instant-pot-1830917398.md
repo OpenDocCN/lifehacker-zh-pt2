@@ -1,6 +1,6 @@
 # 在你的速溶壶中制作热葡萄酒
 
-> 原文:[https://life hacker . com/make-multed-wine-in-your-instant-pot-1830917398](https://lifehacker.com/make-mulled-wine-in-your-instant-pot-1830917398)
+> 原文：<https://lifehacker.com/make-mulled-wine-in-your-instant-pot-1830917398>
 
 我不喜欢烈性酒，但我会为热葡萄酒破例。事实上，如果你试图在佛罗里达 90 度的天气里——在 12 月里——制作热葡萄酒来制造季节性的欢乐。——教会了我什么，那就是我会为热葡萄酒做很多例外。
 

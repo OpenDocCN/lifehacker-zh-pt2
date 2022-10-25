@@ -1,6 +1,6 @@
 # 通过 NPR 的 Austin 100 播放列表发现新音乐
 
-> 原文:[https://life hacker . com/discover-new-music-with-NPRS-Austin-100-playlist-1833321056](https://lifehacker.com/discover-new-music-with-nprs-austin-100-playlist-1833321056)
+> 原文：<https://lifehacker.com/discover-new-music-with-nprs-austin-100-playlist-1833321056>
 
 寻找一些新的音乐让你在这个周末迷失自我？不要再看了。每年，NPR 的 All Songs Considered 团队都会为西南偏南音乐节制作一个包含 100 首歌曲的播放列表，而且它总能推出新的艺术家和流派。
 

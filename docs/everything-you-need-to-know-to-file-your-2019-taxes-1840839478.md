@@ -1,6 +1,6 @@
 # 申报 2019 年税收所需的一切
 
-> 原文:[https://life hacker . com/everything-your-2019-taxes-1840839478](https://lifehacker.com/everything-you-need-to-know-to-file-your-2019-taxes-1840839478)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-to-file-your-2019-taxes-1840839478>
 
 如果你还没有开始收到提交 2019 年纳税申报表所需的表格，你肯定会很快收到。虽然去年我们面临了很多变化，但今年的变化会少很多。有一些调整你应该知道，但在大多数情况下，这一切都将感到非常熟悉。
 

@@ -1,6 +1,6 @@
 # 如何制作蛋黄最辣的鸡蛋
 
-> 原文:[https://life hacker . com/how-to-make the yolkiest-deviled-eggs-1844404415](https://lifehacker.com/how-to-make-the-yolkiest-deviled-eggs-1844404415)
+> 原文：<https://lifehacker.com/how-to-make-the-yolkiest-deviled-eggs-1844404415>
 
 人们不会为了白人而吃魔鬼蛋，任何声称不吃魔鬼蛋的人都不可信。鸡蛋无味的白色部分是美味的蛋黄馅的输送系统，当制作蛋黄馅鸡蛋时，目标是使每一口的馅量最大化。为了最好地实现这一点，去掉一个(或两个)白色。
 

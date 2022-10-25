@@ -1,6 +1,6 @@
 # 用剩余的咖啡做一份慵懒的咖啡
 
-> 原文:[https://life hacker . com/make-a-lazy-affogato-with-left-coffee-1841428980](https://lifehacker.com/make-a-lazy-affogato-with-leftover-coffee-1841428980)
+> 原文：<https://lifehacker.com/make-a-lazy-affogato-with-leftover-coffee-1841428980>
 
 我听说有些人喝很多咖啡。事实上，他们的情绪如此依赖于饮料，以至于在他们喝完咖啡之前，你甚至都不想和他们谈 T2。这些人大概没有很多剩下的咖啡挂在身边，但这些人不是我。
 

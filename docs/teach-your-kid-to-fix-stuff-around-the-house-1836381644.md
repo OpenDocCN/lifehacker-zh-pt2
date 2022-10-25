@@ -1,6 +1,6 @@
 # 教你的孩子修理房子周围的东西
 
-> 原文:[https://life hacker . com/teach-your-kid-fix-stuff-house-1836381644](https://lifehacker.com/teach-your-kid-to-fix-stuff-around-the-house-1836381644)
+> 原文：<https://lifehacker.com/teach-your-kid-to-fix-stuff-around-the-house-1836381644>
 
 我的单亲妈妈没钱雇一个杂工来修理房子，所以我们都自己动手。我们一起修理窗户，安装水龙头，给电器重新布线。尽管我们做这些都是出于需要，但我喜欢和妈妈一起做项目。儿童心理学家可能会说，在年轻时学习修理东西帮助我发展了决策和解决问题的技能，我可以将这些技能应用于生活的挑战，而不是凭着自发的情绪做出反应。但对我和妈妈来说，这一切都是为了省钱——并且乐在其中。(我要补充一点，我后来成了职业木匠，做了十几年。)
 

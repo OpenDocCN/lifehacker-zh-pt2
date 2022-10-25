@@ -1,6 +1,6 @@
 # 还清债务的最好方法是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-way to-pay-off-debt-1840777763](https://lifehacker.com/whats-the-best-way-to-pay-off-debt-1840777763)
+> 原文：<https://lifehacker.com/whats-the-best-way-to-pay-off-debt-1840777763>
 
 你觉得自己被债务困住了吗？你并不孤单:美国成年人平均负债近 3 万美元。征服你的债务山起初可能感觉不可能，但是通过一些计划，你可以开始采取行动变得无债一身轻。
 

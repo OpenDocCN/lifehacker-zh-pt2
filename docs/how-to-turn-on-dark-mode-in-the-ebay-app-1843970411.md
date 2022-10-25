@@ -1,6 +1,6 @@
 # 如何在易贝应用中打开黑暗模式
 
-> 原文:[https://life hacker . com/how-to-turn-on-dark-mode-in-the-ebay-app-1843970411](https://lifehacker.com/how-to-turn-on-dark-mode-in-the-ebay-app-1843970411)
+> 原文：<https://lifehacker.com/how-to-turn-on-dark-mode-in-the-ebay-app-1843970411>
 
 这是一个漫长的过程，但易贝的移动应用程序终于进入黑暗模式，这意味着的漏斗将能够跟踪他们的出价到深夜，而不会灼伤他们的视网膜。
 

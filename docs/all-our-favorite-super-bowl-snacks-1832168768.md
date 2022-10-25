@@ -1,6 +1,6 @@
 # 我们最喜欢的超级碗小吃
 
-> 原文:[https://life hacker . com/all-our-favorite-super-bowl-零食-1832168768](https://lifehacker.com/all-our-favorite-super-bowl-snacks-1832168768)
+> 原文：<https://lifehacker.com/all-our-favorite-super-bowl-snacks-1832168768>
 
 我听说本周末有一场大型体育赛事，如果你打算召集人们在家观看，你将需要一些小吃。幸运的是，我们这里有很多。
 

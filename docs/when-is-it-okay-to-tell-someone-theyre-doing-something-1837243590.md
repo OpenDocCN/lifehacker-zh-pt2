@@ -1,6 +1,6 @@
 # 什么时候可以在健身房纠正别人的姿势？
 
-> 原文:[https://life hacker . com/when-it-okay-to-tell-someone-they-do-someone-1837243590](https://lifehacker.com/when-is-it-okay-to-tell-someone-theyre-doing-something-1837243590)
+> 原文：<https://lifehacker.com/when-is-it-okay-to-tell-someone-theyre-doing-something-1837243590>
 
 这个话题在 [引起了热烈的讨论，我们呼吁健身房礼仪问题](https://vitals.lifehacker.com/ask-us-your-gym-etiquette-questions-1836254313) : W 告诉别人他们锻炼错了可以吗？
 

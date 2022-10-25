@@ -1,6 +1,6 @@
 # 这是你可以运送包裹并让它们在圣诞节前到达的最后一天
 
-> 原文:[https://life hacker . com/heres-the-last-day-you-can-ship-and-have-these-1831025709](https://lifehacker.com/heres-the-last-day-you-can-ship-packages-and-have-them-1831025709)
+> 原文：<https://lifehacker.com/heres-the-last-day-you-can-ship-packages-and-have-them-1831025709>
 
 如果你打算在这个假期给朋友和家人寄礼物，那么你可能不会感到惊讶，因为你只有有限的时间来这样做，并把这些礼物送到最终目的地。
 

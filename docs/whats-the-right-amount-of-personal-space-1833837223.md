@@ -1,6 +1,6 @@
 # 个人空间多少合适？
 
-> 原文:[https://life hacker . com/whats-the-right-amount of-personal-space-1833837223](https://lifehacker.com/whats-the-right-amount-of-personal-space-1833837223)
+> 原文：<https://lifehacker.com/whats-the-right-amount-of-personal-space-1833837223>
 
 本周，前副总统乔·拜登在推特 上的 [视频中公开道歉，此前几名女性指控他有不恰当的身体接触。](https://twitter.com/i/web/status/1113515882960052224) 
 

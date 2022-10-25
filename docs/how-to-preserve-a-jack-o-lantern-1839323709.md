@@ -1,6 +1,6 @@
 # 如何保存鬼火
 
-> 原文:[https://life hacker . com/how-to-preserve-a-jack-o-lantern-1839323709](https://lifehacker.com/how-to-preserve-a-jack-o-lantern-1839323709)
+> 原文：<https://lifehacker.com/how-to-preserve-a-jack-o-lantern-1839323709>
 
 你知道什么比妖精和食尸鬼更可怕吗？霉菌和老鼠住在你门廊的葫芦里。
 

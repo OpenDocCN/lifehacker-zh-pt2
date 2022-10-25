@@ -1,6 +1,6 @@
 # 工作时听听白噪音，提高你的工作效率
 
-> 原文:[https://life hacker . com/increase-your-productivity by-listen-to-white-noise 1837796171](https://lifehacker.com/increase-your-productivity-by-listening-to-white-noise-1837796171)
+> 原文：<https://lifehacker.com/increase-your-productivity-by-listening-to-white-noise-1837796171>
 
 在办公室工作经常会让人分心，以至于你周围无意识的闲聊最终会让你的生产力受到打击。
 

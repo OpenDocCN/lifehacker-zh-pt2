@@ -1,6 +1,6 @@
 # 给每个三明治涂上厚厚的一层黄油
 
-> 原文:[https://life hacker . com/slather-every-every-sandwich-with butter-1840731274](https://lifehacker.com/slather-every-sandwich-with-butter-1840731274)
+> 原文：<https://lifehacker.com/slather-every-sandwich-with-butter-1840731274>
 
 我是黄油 的忠实粉丝，但我没有充分发挥它的潜力。这是一种明显的土司配料和烹饪脂肪，但它也是一种非常奇妙的(并且被犯罪性地低估了的)三明治涂抹料。
 

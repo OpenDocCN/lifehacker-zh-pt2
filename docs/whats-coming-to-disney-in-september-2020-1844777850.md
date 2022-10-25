@@ -1,6 +1,6 @@
 # 2020 年 9 月迪士尼+会有什么
 
-> 原文:[https://life hacker . com/whats-coming-to-Disney-in-September-2020-1844777850](https://lifehacker.com/whats-coming-to-disney-in-september-2020-1844777850)
+> 原文：<https://lifehacker.com/whats-coming-to-disney-in-september-2020-1844777850>
 
 毫无疑问，迪士尼希望我利用这个免费的广告空间来推广《花木兰》的数字首映，这是一部不是《T4》T5 的春季大片《T2》T3——当然，如果你想在现有的每月迪士尼+订阅 T9】的基础上再花 30 美元来“拥有”(如果只是在 2020 年“没有人真正拥有*媒体”的话)这部看起来很有希望的动画故事片转变为动作片，请便——但是* 
 

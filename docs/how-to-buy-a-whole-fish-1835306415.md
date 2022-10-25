@@ -1,6 +1,6 @@
 # 如何购买一整条鱼
 
-> 原文:[https://lifehacker.com/how-to-buy-a-whole-fish-1835306415](https://lifehacker.com/how-to-buy-a-whole-fish-1835306415)
+> 原文：<https://lifehacker.com/how-to-buy-a-whole-fish-1835306415>
 
 整体而言，平底锅烤鱼看起来确实令人印象深刻，而且非常容易烹饪，但一些家庭厨师对去鳞、清洗或以其他方式处理鱼内脏的想法感到厌恶。好消息是，在任何像样的海鲜柜台，任何鱼贩都会为你准备好鱼——你只需要用你的话。
 

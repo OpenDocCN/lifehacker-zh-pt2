@@ -1,6 +1,6 @@
 # 看一场汽车电影，给你的周末带来一些真实
 
-> 原文:[https://life hacker . com/catch-a-drive-in-drag-show-and-bring-some-reality-to-y-1844418151](https://lifehacker.com/catch-a-drive-in-drag-show-and-bring-some-realness-to-y-1844418151)
+> 原文：<https://lifehacker.com/catch-a-drive-in-drag-show-and-bring-some-realness-to-y-1844418151>
 
 自从疫情事件以来，周末并不是最好的。(而且这还是轻描淡写。)但从今天开始，一个有趣的新选择将在全国各地出现:作为免下车体验的鲁保罗飙车赛。具体来说，这是一个名为“驾车飙车”的直播节目，由热门电视节目中一些你最喜欢的飙车全明星组成。该节目将包括对口型歌唱比赛和舞台走秀挑战。
 

@@ -1,6 +1,6 @@
 # 如何用谷歌主页给圣诞老人打电话
 
-> 原文:[https://life hacker . com/how-to-call-Santa-using-Google-home-1831121199](https://lifehacker.com/how-to-call-santa-using-google-home-1831121199)
+> 原文：<https://lifehacker.com/how-to-call-santa-using-google-home-1831121199>
 
 如果你是圣诞老人的粉丝，谷歌今年为孩子们(和成年人)提供了一个有趣的机会，可以在圣诞老人位于北极的家中给他打电话。
 

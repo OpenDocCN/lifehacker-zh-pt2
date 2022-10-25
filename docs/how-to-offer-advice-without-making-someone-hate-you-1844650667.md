@@ -1,6 +1,6 @@
 # 如何提供建议而不让人讨厌你
 
-> 原文:[https://life hacker . com/how-to-propose-advice-without-make-some-hate-you-1844650667](https://lifehacker.com/how-to-offer-advice-without-making-someone-hate-you-1844650667)
+> 原文：<https://lifehacker.com/how-to-offer-advice-without-making-someone-hate-you-1844650667>
 
 作为人类，我们不喜欢感到无助，所以当我们看到有人在与某事作斗争时，我们的本能反应可能是给他们一些建议。当有人经历了某种类型的损失时，我们也使用这种策略进行交流。在这种情况下，很难知道该说什么，而且“我很抱歉你经历了这些”似乎还不够(但通常是这样)。这时，不请自来的建议开始源源不断。它几乎总是来自一个好的地方，但对一些人来说，得到未经请求的建议足以让他们陷入愤怒的漩涡。以下是为什么以及如何在不让别人讨厌你的情况下向他们提供你的意见。
 

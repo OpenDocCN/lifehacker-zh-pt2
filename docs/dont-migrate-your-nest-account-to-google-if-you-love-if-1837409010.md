@@ -1,6 +1,6 @@
 # 如果你爱 IFTTT，就不要把你的 Nest 账号迁移到 Google
 
-> 原文:[https://life hacker . com/don-migrate-you-nest-account-to-Google-if-you-love-if-1837409010](https://lifehacker.com/dont-migrate-your-nest-account-to-google-if-you-love-if-1837409010)
+> 原文：<https://lifehacker.com/dont-migrate-your-nest-account-to-google-if-you-love-if-1837409010>
 
 今年早些时候， [谷歌宣布](https://blog.google/products/google-nest/helpful-home/) 其智能家居设备系列 Nest 将并入其“有益家庭”计划。此举的一个副作用是，从 2019 年 8 月 31 日开始，IFTTT 粉丝将不再能够使用他们的 Nest 设备构建触发器和自动装置。
 

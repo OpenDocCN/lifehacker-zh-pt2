@@ -1,6 +1,6 @@
 # 冠状病毒在不同表面存活多久？
 
-> 原文:[https://life hacker . com/the-coronavirus-live-on-different-surface-1842316128](https://lifehacker.com/how-long-does-the-coronavirus-live-on-different-surface-1842316128)
+> 原文：<https://lifehacker.com/how-long-does-the-coronavirus-live-on-different-surface-1842316128>
 
 我会因为打开包装而生病吗？处理图书馆的书怎么样？从饮水机里喝水安全吗？在健身房举重怎么样？我需要担心我的孩子把所有东西都放进嘴里的习惯吗？我们知道冠状病毒可以在表面存活一段时间，这留下了许多细节问题。
 

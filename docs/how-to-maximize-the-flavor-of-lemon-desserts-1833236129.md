@@ -1,6 +1,6 @@
 # 如何最大化柠檬甜点的风味
 
-> 原文:[https://life hacker . com/how-to-maximize-of-lemon-desserts-1833236129](https://lifehacker.com/how-to-maximize-the-flavor-of-lemon-desserts-1833236129)
+> 原文：<https://lifehacker.com/how-to-maximize-the-flavor-of-lemon-desserts-1833236129>
 
 大多数人认为自己要么是巧克力甜点爱好者，要么是水果甜点爱好者。我坚定地属于第二类，但更具体地说，我是一个柠檬甜点爱好者:给我一份柠檬味足以让我噘起嘴唇、扭曲面部的甜点，或者什么都不给我。
 

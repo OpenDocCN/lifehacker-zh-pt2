@@ -1,6 +1,6 @@
 # 用糖果来教你的孩子如何吞下药片
 
-> 原文:[https://life hacker . com/use-candy-to-teach-your-kid-how-to-swallow-pill-1835513940](https://lifehacker.com/use-candy-to-teach-your-kid-how-to-swallow-pills-1835513940)
+> 原文：<https://lifehacker.com/use-candy-to-teach-your-kid-how-to-swallow-pills-1835513940>
 
 大多数儿童药物都有咀嚼片或液体形式，但总有一天你的孩子不得不吞下一粒药丸。这可能是一件奇怪、可怕的事情。这里有一个儿科医生的建议，可以减少这种挣扎:用糖果练习。辛辛那提儿童医院医疗中心的 Avani Modi 和 Lisa Ingerski 医生建议使用大小逐渐增加的糖果(PDF)——纸杯蛋糕粉、书呆子糖、迷你 M & M 糖、普通 M & M 糖和优质 T7 糖——来教你的孩子如何吞下真正的药片。
 

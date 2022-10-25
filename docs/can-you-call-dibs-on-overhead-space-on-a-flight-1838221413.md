@@ -1,6 +1,6 @@
 # 你能在飞机上要求头顶空间吗？
 
-> 原文:[https://life hacker . com/can-you-call-dibs-on-overhead-space-on-a-flight-1838221413](https://lifehacker.com/can-you-call-dibs-on-overhead-space-on-a-flight-1838221413)
+> 原文：<https://lifehacker.com/can-you-call-dibs-on-overhead-space-on-a-flight-1838221413>
 
 本周早些时候，我们解释了为什么你永远不应该在航班 上调换座位，为另一名乘客腾出空间——但是他们的手提行李的头顶空间呢？
 

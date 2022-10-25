@@ -1,6 +1,6 @@
 # 你应该尝试“非学校教育”吗？
 
-> 原文:[https://life hacker . com/should-you-give-unschooling-a-try-1843184632](https://lifehacker.com/should-you-give-unschooling-a-try-1843184632)
+> 原文：<https://lifehacker.com/should-you-give-unschooling-a-try-1843184632>
 
 我们中的大多数人已经和孩子在家呆了至少一个月了。我的孩子们从 3 月 6 日就已经回家了(但是谁会去计算呢？)，尽管我们很乐意保持必要的距离，但我非常渴望有一天我可以把我的女儿交给他们耐心而合格的专业教育者，而不是整天打电话和使用数字学习平台。
 

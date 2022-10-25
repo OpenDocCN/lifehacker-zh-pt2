@@ -1,6 +1,6 @@
 # 如何退出亚马逊的打印假日目录
 
-> 原文:[https://life hacker . com/how-to-opt-out-of-amazons-print-holiday-catalog-1830309091](https://lifehacker.com/how-to-opt-out-of-amazons-print-holiday-catalog-1830309091)
+> 原文：<https://lifehacker.com/how-to-opt-out-of-amazons-print-holiday-catalog-1830309091>
 
 亚马逊希望用一种老式的 [印刷假日目录](https://gizmodo.com/report-amazon-may-prey-on-your-toys-r-us-catalog-nosta-1827351683) 来填补我们心中的玩具反斗城，就像最近关闭的玩具店的“大 B 玩具书”The Verge 表示，亚马逊的目录将被称为的“玩乐假期”，希望通过在每件商品旁边添加二维码来重新想象黑色星期五礼物指南，这样你就可以用手机购物了。
 

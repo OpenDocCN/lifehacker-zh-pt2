@@ -1,6 +1,6 @@
 # 如何使用社会工程——但不是以邪恶的方式
 
-> 原文:[https://life hacker . com/how-to-use-social-engineering-but-not-in-an-evil-way-1838776443](https://lifehacker.com/how-to-use-social-engineering-but-not-in-an-evil-way-1838776443)
+> 原文：<https://lifehacker.com/how-to-use-social-engineering-but-not-in-an-evil-way-1838776443>
 
 如果你想赢得朋友并影响他人，那么，有一整本书教你如何去做。但是，你如何以正确的方式进行社会工程——让每个人的生活变得更好，而不仅仅是操纵人们做你想做的事情？
 

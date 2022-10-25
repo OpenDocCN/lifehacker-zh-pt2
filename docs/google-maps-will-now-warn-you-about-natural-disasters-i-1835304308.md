@@ -1,6 +1,6 @@
 # 谷歌地图现在会提醒你所在地区的自然灾害
 
-> 原文:[https://life hacker . com/Google-maps-will-now-warn-you-about-natural-disasters-I-1835304308](https://lifehacker.com/google-maps-will-now-warn-you-about-natural-disasters-i-1835304308)
+> 原文：<https://lifehacker.com/google-maps-will-now-warn-you-about-natural-disasters-i-1835304308>
 
 谷歌地图已经可以为你提供交通和道路封闭的路线，但现在它还能帮助你避开受自然灾害影响的地区。
 

@@ -1,6 +1,6 @@
 # 今天就购买低至 20 美元的边疆航空单程机票
 
-> 原文:[https://life hacker . com/buy-one-way-frontier-airlines-tickets-low-as-20-tod-1839230887](https://lifehacker.com/buy-one-way-frontier-airlines-tickets-as-low-as-20-tod-1839230887)
+> 原文：<https://lifehacker.com/buy-one-way-frontier-airlines-tickets-as-low-as-20-tod-1839230887>
 
 本月早些时候，受够了行李费，一名旅行者为了节省额外的行李费，从她的行李箱里拿出看起来像所有衣服的东西，就像她在《脸书邮报》上看到的 [和](https://www.facebook.com/photo.php?fbid=2430537840357366&set=a.428321277245709&type=3&theater)。但是如果你不想一次穿完所有的衣服，并且愿意支付随身行李的费用，那么 Frontier 正在进行一场今晚结束的单程机票大减价。
 

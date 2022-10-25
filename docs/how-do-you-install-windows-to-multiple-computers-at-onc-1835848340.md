@@ -1,6 +1,6 @@
 # 如何一次给多台电脑安装 Windows？
 
-> 原文:[https://life hacker . com/how-do-you-install-windows-to-multi-computers-at-onc-1835848340](https://lifehacker.com/how-do-you-install-windows-to-multiple-computers-at-onc-1835848340)
+> 原文：<https://lifehacker.com/how-do-you-install-windows-to-multiple-computers-at-onc-1835848340>
 
 在本周的 [**Tech 911**](https://lifehacker.com/c/tech-911) 建议专栏中，一位 Lifehacker 读者想要自动化一个 otherwis e 耗时又烦人的过程:安装一个全新的 Windows(大概是， Windows 10)。有什么问题吗？他们不想只在一个系统上安装操作系统。
 

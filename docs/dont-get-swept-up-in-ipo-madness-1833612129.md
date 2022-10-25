@@ -1,6 +1,6 @@
 # 不要被 IPO 的疯狂冲昏了头脑
 
-> 原文:[https://life hacker . com/don-get-sweep-up-in-IPO-madness-1833612129](https://lifehacker.com/dont-get-swept-up-in-ipo-madness-1833612129)
+> 原文：<https://lifehacker.com/dont-get-swept-up-in-ipo-madness-1833612129>
 
 包括李维斯、优步和 Lyft 在内的许多知名公司都计划今年上市。但是如果你想在你的投资组合中增加几只“”独角兽，你应该暂时踩刹车。
 

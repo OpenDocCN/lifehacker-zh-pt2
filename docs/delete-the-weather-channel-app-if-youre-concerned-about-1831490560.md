@@ -1,6 +1,6 @@
 # 如果你担心你的位置数据，删除天气频道应用程序
 
-> 原文:[https://life hacker . com/delete-the-weather-channel-app-if-you-concern-1831490560](https://lifehacker.com/delete-the-weather-channel-app-if-youre-concerned-about-1831490560)
+> 原文：<https://lifehacker.com/delete-the-weather-channel-app-if-youre-concerned-about-1831490560>
 
 天气频道是我们许多人的应用程序抽屉中的主要内容，它可能会在未经你同意的情况下使用你的位置数据。洛杉矶市周四提起诉讼，指控天气频道所有者天气公司及其母公司 IBM 未经许可，使用通过应用获得的位置数据进行有针对性的广告销售和营销。安装后，Weather Channel 应用程序会请求访问您的位置数据，以向您提供当地天气报告，但没有提到这些数据将用于广告或可能出售给第三方。
 

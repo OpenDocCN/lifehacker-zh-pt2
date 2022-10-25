@@ -1,6 +1,6 @@
 # 在寒冷的冬夜，吃炖豆子和排骨暖暖身子
 
-> 原文:[https://the take out . com/recipe-炖菜-豆角-排骨-舒适-美食-冬季-1840007530](https://thetakeout.com/recipe-stewed-beans-ribs-comfort-food-winter-1840007530)
+> 原文：<https://thetakeout.com/recipe-stewed-beans-ribs-comfort-food-winter-1840007530>
 
 我是在晚年才开始吃豆子的。作为一个年轻人，我从来没有真正喜欢过他们。我完全把它们和过于甜的烤豆或者熟食柜台上黏糊糊的三豆沙拉联系在一起。我家所有的豆子都是罐装的。我在 20 多岁的时候，终于见识到了精心烹制干豆的神奇之处。
 

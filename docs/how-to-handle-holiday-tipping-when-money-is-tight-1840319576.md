@@ -1,6 +1,6 @@
 # 手头紧时如何处理节日小费
 
-> 原文:[https://life hacker . com/how-to-handle-holiday-tipping-when-money-tight-1840319576](https://lifehacker.com/how-to-handle-holiday-tipping-when-money-is-tight-1840319576)
+> 原文：<https://lifehacker.com/how-to-handle-holiday-tipping-when-money-is-tight-1840319576>
 
 你应该给你的遛狗者、发型师或保姆小费，以回报他们的时间和服务。但是你记得给这些人年终奖金小费或礼物吗？事实证明，我们可能并不像我们所期望的那样乐于向服务提供商发放节日小费或礼物
 

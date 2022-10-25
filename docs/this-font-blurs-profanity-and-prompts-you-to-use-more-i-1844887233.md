@@ -1,6 +1,6 @@
 # 这种字体模糊亵渎，并提示您使用更具包容性的语言
 
-> 原文:[https://life hacker . com/this-font-blurs-prompts-you-to-use-more-I-1844887233](https://lifehacker.com/this-font-blurs-profanity-and-prompts-you-to-use-more-i-1844887233)
+> 原文：<https://lifehacker.com/this-font-blurs-profanity-and-prompts-you-to-use-more-i-1844887233>
 
 如果你是一个喜欢骂人的人，你可能会发现自己无意中在邮件中加入了一句脏话——或者至少，你想这么做。根据你在哪里工作，和谁一起工作，这可能会引起不满，甚至会自动触发电子邮件监控系统，如果你的公司有这样的系统的话。帮助遏制(或至少变得更加意识到)这种习惯的一种方法是下载一种模糊诅咒语并促进反种族主义和包容性语言的字体。以下是需要了解的内容。
 

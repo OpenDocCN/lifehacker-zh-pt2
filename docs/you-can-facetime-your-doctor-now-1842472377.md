@@ -1,6 +1,6 @@
 # 你现在可以和你的医生面对面交流了
 
-> 原文:[https://life hacker . com/you-can-face time-your-doctor-now-1842472377](https://lifehacker.com/you-can-facetime-your-doctor-now-1842472377)
+> 原文：<https://lifehacker.com/you-can-facetime-your-doctor-now-1842472377>
 
 无论你是否感到不舒服，呆在家里是你能做的最好的事情 来阻止新冠肺炎的传播——这使得现在寻求医疗护理成为一个复杂的提议。令人欣慰的是，各地的医疗服务提供者为他们的病人提供虚拟就诊变得更加容易，所以你不用走出家门就可以看到医生。
 

@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:为什么餐馆不会为不完整的聚会安排座位？
 
-> 原文:[https://the take out . com/why-wont-restaurants-seat-uncomplete-parties-1831843484](https://thetakeout.com/why-wont-restaurants-seat-incomplete-parties-1831843484)
+> 原文：<https://thetakeout.com/why-wont-restaurants-seat-incomplete-parties-1831843484>
 
 > 亲爱的咸:我是一个新妈妈，我已经有一段时间不能和我的女朋友们出去吃一顿长时间的晚餐了(她们也大多是年轻孩子的妈妈)。上周四，我们终于在一家小吃店预订了一顿晚餐，并为我们五个人预订了座位。我们中的三个人准时到了，另外两个人发短信说他们会迟到 10 分钟。女主人没有带我们入座，而是告诉我们三个人，我们必须等到所有的客人都到了。
 > 

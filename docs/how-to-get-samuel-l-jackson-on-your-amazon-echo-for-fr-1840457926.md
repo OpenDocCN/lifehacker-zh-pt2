@@ -1,6 +1,6 @@
 # 如何让塞缪尔·L·杰克逊免费出现在你的亚马逊 Echo 上
 
-> 原文:[https://life hacker . com/how-to-get-Samuel-l-Jackson-on-your-Amazon-echo-for-fr-1840457926](https://lifehacker.com/how-to-get-samuel-l-jackson-on-your-amazon-echo-for-fr-1840457926)
+> 原文：<https://lifehacker.com/how-to-get-samuel-l-jackson-on-your-amazon-echo-for-fr-1840457926>
 
 我不需要比我的回声更好的 ol' Alexa，但如果你更喜欢与或 [皮卡丘](https://smile.amazon.com/gp/product/B074X8X6RL?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-get-samuel-l-jackson-on-your-amazon-echo-for-fr-1840457926&asc_source=&ref=skillrw_dsk_pnps__4&tag=kinjalifehackerlink-20) (仅举几个名人的声音)聊天，你可以选择。杰克逊是我最喜欢的一个，但他不是免费的:现在下载这个技能需要 0.99 美元，如果你磨蹭的话，这个价格会涨到 4.99 美元。
 

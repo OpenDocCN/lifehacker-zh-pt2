@@ -1,6 +1,6 @@
 # 问问自己这些关于退休收入的问题
 
-> 原文:[https://life hacker . com/ask-your-retirement-inco-1831669242](https://lifehacker.com/ask-yourself-these-questions-about-your-retirement-inco-1831669242)
+> 原文：<https://lifehacker.com/ask-yourself-these-questions-about-your-retirement-inco-1831669242>
 
 除了专业人士建议你每年存多少钱之外，你退休后需要多少钱还取决于许多变量。每个人都需要不同的储蓄，这取决于优先考虑的事情、生活方式和其他资产。
 

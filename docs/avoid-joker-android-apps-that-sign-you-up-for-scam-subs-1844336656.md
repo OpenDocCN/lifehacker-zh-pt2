@@ -1,6 +1,6 @@
 # 避免“小丑”Android 应用程序，为你注册诈骗订阅
 
-> 原文:[https://life hacker . com/avoid-joker-Android-apps-that-sign-up-you-for-scam-subs-1844336656](https://lifehacker.com/avoid-joker-android-apps-that-sign-you-up-for-scam-subs-1844336656)
+> 原文：<https://lifehacker.com/avoid-joker-android-apps-that-sign-you-up-for-scam-subs-1844336656>
 
 Scammy Android 应用？你没说。一种被称为“小丑”的相对成熟的恶意软件——在这里插入你最喜欢的希斯·莱杰迷因——已经渗透到另一批 Android 应用程序中。有趣的是，这个小丑喜欢帮你注册你不想要的订阅。
 

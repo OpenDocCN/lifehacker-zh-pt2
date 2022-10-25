@@ -1,6 +1,6 @@
 # 不要把一次性口罩冲进马桶
 
-> 原文:[https://life hacker . com/don-flush-disposable-masks-down-the-toilet-1843981275](https://lifehacker.com/dont-flush-disposable-masks-down-the-toilet-1843981275)
+> 原文：<https://lifehacker.com/dont-flush-disposable-masks-down-the-toilet-1843981275>
 
 在冠状病毒疫情期间，一次性口罩是保护自己和他人的有效方法——只要你正确处理它们。不要把用过的口罩扔到马路上或人行道上。(我不知道你怎么想，但我在爱荷华州的公共场所见过很多乱扔蓝色小面具的人。)
 

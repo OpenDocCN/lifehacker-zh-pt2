@@ -1,6 +1,6 @@
 # 这个网站为你总结了长篇文章，所以你不必去读它们
 
-> 原文:[https://life hacker . com/this-site-summary-long-articles-to-you-dont-have-to 1836952823](https://lifehacker.com/this-site-summarizes-long-articles-to-you-dont-have-to-1836952823)
+> 原文：<https://lifehacker.com/this-site-summarizes-long-articles-to-you-dont-have-to-1836952823>
 
 长篇文章是深入探讨某个特定话题的好方法。也就是说，有时候你没有能力(或者说没有欲望)立刻通读一篇 5000 字的关于某个主题的文章，但是你仍然想要得到文章的主旨，这就是 TLDR 的用武之地。
 

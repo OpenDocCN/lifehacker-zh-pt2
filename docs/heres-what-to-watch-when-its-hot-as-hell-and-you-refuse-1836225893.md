@@ -1,6 +1,6 @@
 # 天气热得要命，你又拒绝出门，看什么呢
 
-> 原文:[https://life hacker . com/heres-what-to-watch-what-the-hot-as-hell-and-you-reject-1836225893](https://lifehacker.com/heres-what-to-watch-when-its-hot-as-hell-and-you-refuse-1836225893)
+> 原文：<https://lifehacker.com/heres-what-to-watch-when-its-hot-as-hell-and-you-refuse-1836225893>
 
 7 月 4 日之后，天气变得令人厌恶，在美国纽约市的大部分地区，我和 Lifehacker 团队的大部分人都住在那里，我们花了很多时间在外面，在拥挤、污染的大都市的夏天，拖着脚步穿过潮湿、有热狗香味的汤。于是我们变成了室内猫，躲在室内，寻找隐士的海滩阅读，众所周知，这是空调狂欢。今年夏天，我在看英国的诉讼程序，我告诉你，没有什么比一队快速交谈的 DCIs 找出一些“弯曲的警察”更能让人忘记一个着火的星球。以下是你应该在匆忙之后开始播放的系列。
 

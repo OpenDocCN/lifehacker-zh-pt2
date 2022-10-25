@@ -1,6 +1,6 @@
 # 用这种恶心但有效的方法清洁你的 AirPods
 
-> 原文:[https://life hacker . com/the-gross-but-effective-way to-clean-your-ai rpods-1820945258](https://lifehacker.com/the-gross-but-effective-way-to-clean-your-airpods-1820945258)
+> 原文：<https://lifehacker.com/the-gross-but-effective-way-to-clean-your-airpods-1820945258>
 
 如果你已经买了一对 AirPods，你要确保它们处于最佳状态——是的，这意味着定期清洁它们。你的 AirPods 需要清理的一个线索是，它们似乎变得越来越安静。原来，可能是你自己的天然耳垢堵塞了豆荚。
 

@@ -1,6 +1,6 @@
 # 如何让商店买的烤肉酱味道更好
 
-> 原文:[https://life hacker . com/how-to-make-store-buyed-烤肉-酱-taste-better-1836050087](https://lifehacker.com/how-to-make-store-bought-barbecue-sauce-taste-better-1836050087)
+> 原文：<https://lifehacker.com/how-to-make-store-bought-barbecue-sauce-taste-better-1836050087>
 
 烧烤酱就是这样一种两极分化的调味品。就像烧烤一样，全国各地风格的变化会导致激烈的争论、激烈的辩论和彻底的人身攻击。但是——就像比萨饼一样——我对这种或那种风格都没有任何忠诚。我都喜欢。然而，有一件事我无法忍受，那就是令人作呕的单一口味的调味酱。
 

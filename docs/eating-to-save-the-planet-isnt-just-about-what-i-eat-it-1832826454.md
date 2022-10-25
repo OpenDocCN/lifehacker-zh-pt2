@@ -1,6 +1,6 @@
 # 为了拯救地球而吃不仅仅是我吃了什么，而是我不吃什么
 
-> 原文:[https://gizmodo . com/eating-to-save-the-planet-not-just-about-what-I-eat-it-1832826454](https://gizmodo.com/eating-to-save-the-planet-isnt-just-about-what-i-eat-it-1832826454)
+> 原文：<https://gizmodo.com/eating-to-save-the-planet-isnt-just-about-what-i-eat-it-1832826454>
 
 在为期三周的饮食中，我了解到了 [我自己与食物的关系](https://earther.gizmodo.com/i-can-t-eat-much-meat-on-the-planetary-health-diet-but-1832653091) 以及 2050 年饮食的 [起伏](https://earther.gizmodo.com/i-followed-the-planetary-health-diet-during-a-week-of-f-1832464856) 。这个星期，我看了看我的冰箱，意识到有一件事我一直在努力。
 

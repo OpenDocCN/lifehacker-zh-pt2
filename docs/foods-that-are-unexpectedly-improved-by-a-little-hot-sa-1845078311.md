@@ -1,6 +1,6 @@
 # 被一点辣酱意外改善的食物
 
-> 原文:[https://life hacker . com/foods-that-is-the-unexpected-improved-by-a little-hot-sa-1845078311](https://lifehacker.com/foods-that-are-unexpectedly-improved-by-a-little-hot-sa-1845078311)
+> 原文：<https://lifehacker.com/foods-that-are-unexpectedly-improved-by-a-little-hot-sa-1845078311>
 
 如果说有些东西*没有*因一点辣酱而得到改善，这是不公平的，但肯定有一些食物更适用于*典型的*。但是，如果你像我一样，想拓宽你的思维，甚至给 T4 更多的东西添加辣酱，我有一些建议。
 

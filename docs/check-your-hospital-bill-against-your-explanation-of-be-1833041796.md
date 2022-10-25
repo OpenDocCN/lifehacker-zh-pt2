@@ -1,6 +1,6 @@
 # 对照你对福利的解释核对你的医院账单
 
-> 原文:[https://life hacker . com/check-your-hospital-bill-against-your-explain-of-be-1833041796](https://lifehacker.com/check-your-hospital-bill-against-your-explanation-of-be-1833041796)
+> 原文：<https://lifehacker.com/check-your-hospital-bill-against-your-explanation-of-be-1833041796>
 
 医疗计费错误非常猖獗，就像我们最近报道的。发现开账单错误的一个方法是对照你的健康保险福利解释核对费用(EOB)。
 

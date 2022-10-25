@@ -1,6 +1,6 @@
 # 如何让你的咖啡味道更浓
 
-> 原文:[https://life hacker . com/how-to-make-your-coffee-taste-strong-1844336245](https://lifehacker.com/how-to-make-your-coffee-taste-stronger-1844336245)
+> 原文：<https://lifehacker.com/how-to-make-your-coffee-taste-stronger-1844336245>
 
 所以你喜欢浓咖啡，但你家里只有一袋轻度烘焙的咖啡豆。怎么办？嗯，一个解决办法是再买一袋咖啡——T1，但是做一些小小的调整，T2 有可能从轻度烘焙的咖啡豆中获得深度烘焙的味道。
 

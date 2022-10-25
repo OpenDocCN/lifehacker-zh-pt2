@@ -1,6 +1,6 @@
 # 如何在 Mac 上拍摄更漂亮的截图
 
-> 原文:[https://life hacker . com/how-to-take-beautiful-screens-on-a-MAC-1828009545](https://lifehacker.com/how-to-take-prettier-screenshots-on-a-mac-1828009545)
+> 原文：<https://lifehacker.com/how-to-take-prettier-screenshots-on-a-mac-1828009545>
 
 如果你是一名 Mac 用户，剪下一段文字的图像以发送推文或保存租车确认页面的信息，标准的 **Command-Shift-4** 快捷键可以让你在想要捕捉的内容周围画一个框，这已经足够了。但是你的电脑比这聪明得多:有很多其他方法可以截图，这些方法同样简单，但最终产品会漂亮得多，当你想在演示文稿中包括你公司网页的专业外观图像时，它们会产生很大的影响。
 

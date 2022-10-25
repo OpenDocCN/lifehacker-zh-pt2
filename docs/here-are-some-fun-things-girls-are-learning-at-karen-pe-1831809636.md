@@ -1,6 +1,6 @@
 # 凯伦·彭斯学校的女孩们正在学习一些有趣的事情
 
-> 原文:[https://Jezebel . com/here-is-some-some-fun-things-girls-learning-at-Karen-PE-1831809636](https://jezebel.com/here-are-some-fun-things-girls-are-learning-at-karen-pe-1831809636)
+> 原文：<https://jezebel.com/here-are-some-fun-things-girls-are-learning-at-karen-pe-1831809636>
 
 周二，卡伦·彭斯的办公室宣布，第二夫人将返回伊曼纽尔基督教学校兼职，她在丈夫的国会任期内曾在那里任教。著名水彩爱好者彭斯将在该学院的小学教授艺术。赫芬顿邮报 首先报道的几个具有法律约束力的协议 [中编纂的学校规则，对于一所福音派学校来说是相当标准的。它们也很好地提醒了铅笔们真正相信的东西。](https://www.huffingtonpost.com/?icid=hjx004) 
 

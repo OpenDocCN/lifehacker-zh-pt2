@@ -1,6 +1,6 @@
 # 苹果卡会让你这个月不用付款
 
-> 原文:[https://life hacker . com/apple-card-will-let-you-skip-you-payment-this-month-1842359888](https://lifehacker.com/apple-card-will-let-you-skip-your-payment-this-month-1842359888)
+> 原文：<https://lifehacker.com/apple-card-will-let-you-skip-your-payment-this-month-1842359888>
 
 担心支付你的信用卡账单吗？你的发卡机构也许能帮上忙。
 

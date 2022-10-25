@@ -1,6 +1,6 @@
 # 这张图表显示了更换家具需要多少布料
 
-> 原文:[https://life hacker . com/this-chart-shows-you-how-much-fabric-you-need-to-reu pho-1686187809](https://lifehacker.com/this-chart-shows-you-how-much-fabric-you-need-to-reupho-1686187809)
+> 原文：<https://lifehacker.com/this-chart-shows-you-how-much-fabric-you-need-to-reupho-1686187809>
 
 更换旧家具——无论是你已经用了多年的沙发，还是你从路边捡来的沙发——都能让一件家具重获新生。问题是，根据物品的类型和形状来计算出你到底需要多少布料是一个挑战。
 

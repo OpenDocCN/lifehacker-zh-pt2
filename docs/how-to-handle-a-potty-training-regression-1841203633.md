@@ -1,6 +1,6 @@
 # 如何处理如厕训练回归
 
-> 原文:[https://life hacker . com/how-to-hand-a-potty-training-regression-1841203633](https://lifehacker.com/how-to-handle-a-potty-training-regression-1841203633)
+> 原文：<https://lifehacker.com/how-to-handle-a-potty-training-regression-1841203633>
 
 你以为你完成了；你扔掉了尿布，不知何故，仅仅几天后，你就进入了无事故生活的神奇世界。但是现在，不知从何而来，你的孩子退步了。令人沮丧和困惑的是，如厕训练退步是正常的。这很常见。而且，最好的是，它是*临时的。*
 

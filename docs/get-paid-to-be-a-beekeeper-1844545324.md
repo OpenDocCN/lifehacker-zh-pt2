@@ -1,6 +1,6 @@
 # 当养蜂人赚钱
 
-> 原文:[https://life hacker . com/get-payed-to-be-a-bee keeper-1844545324](https://lifehacker.com/get-paid-to-be-a-beekeeper-1844545324)
+> 原文：<https://lifehacker.com/get-paid-to-be-a-beekeeper-1844545324>
 
 像 [蝴蝶](https://lifehacker.com/help-save-the-monarch-butterfly-1844531151) 和 [萤火虫](https://lifehacker.com/how-you-can-help-save-the-fireflies-1844469569) 一样，蜜蜂种群也因栖息地丧失而遭受重创。蜜蜂是多种植物的重要传粉者，尽管蜂群 [去年的表现比预期的](https://www.latimes.com/world-nation/story/2020-06-22/us-honeybees-are-doing-better-after-bad-year-survey-shows) 稍好，但数据显示，在 15 年的时间里，某些地区的[](https://abcnews.go.com/US/40-decline-honey-bee-population-winter-unsustainable-experts/story?id=64191609)下降了 90%。
 

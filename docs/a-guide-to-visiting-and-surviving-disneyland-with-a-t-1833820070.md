@@ -1,6 +1,6 @@
 # a guide to visiting and surviving disneyland with a t 1833820070
 
-> 原文:[https://life hacker . com/a-guide-to-visiting-and-survival-disneyland-a-t-1833820070](https://lifehacker.com/a-guide-to-visiting-and-surviving-disneyland-with-a-t-1833820070)
+> 原文：<https://lifehacker.com/a-guide-to-visiting-and-surviving-disneyland-with-a-t-1833820070>
 
 华特·迪士尼曾经说过:“做不可能的事情是一种乐趣。”他可能不是指带着一个蹒跚学步的孩子去他传奇的主题公园，但这已经成为我带着我快三岁的孩子去迪斯尼乐园时的口头禅。
 

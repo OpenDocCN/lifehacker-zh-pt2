@@ -1,6 +1,6 @@
 # 如何在学校关闭期间帮助有需要的孩子
 
-> 原文:[https://life hacker . com/how-to-help-feed-during-school-closed-1842412136](https://lifehacker.com/how-to-help-feed-kids-in-need-during-school-closures-1842412136)
+> 原文：<https://lifehacker.com/how-to-help-feed-kids-in-need-during-school-closures-1842412136>
 
 在疫情期间，学校停课对任何人来说都是一个挑战。但是对于有食物的低收入家庭来说，缺乏安全感的孩子可能不仅仅是一个大的、长期的不便:它可能是有害的。
 

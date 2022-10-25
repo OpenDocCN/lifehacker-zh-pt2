@@ -1,6 +1,6 @@
 # 那些便宜的充电线不值得
 
-> 原文:[https://life hacker . com/那些廉价充电电缆不值得 1839135653](https://lifehacker.com/those-cheap-charging-cables-arent-worth-it-1839135653)
+> 原文：<https://lifehacker.com/those-cheap-charging-cables-arent-worth-it-1839135653>
 
 我们都被那些便宜到难以置信的 10 美元一包的充电电缆所诱惑。电缆让人觉得*应该*便宜，像苹果和三星这样的第一方制造商收取的价格可能难以自圆其说。但是要注意:那些便宜的充电电缆不值得你这么麻烦。
 

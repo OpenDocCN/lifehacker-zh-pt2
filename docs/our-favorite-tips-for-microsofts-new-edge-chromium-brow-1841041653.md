@@ -1,6 +1,6 @@
 # 我们对微软新的 Edge Chromium 浏览器最喜欢的提示
 
-> 原文:[https://life hacker . com/our-favorite-tips-for-Microsoft-new-edge-chromium-brow-1841041653](https://lifehacker.com/our-favorite-tips-for-microsofts-new-edge-chromium-brow-1841041653)
+> 原文：<https://lifehacker.com/our-favorite-tips-for-microsofts-new-edge-chromium-brow-1841041653>
 
 微软终于发布了基于 Chromium 的 Edge 网络浏览器的官方稳定版本。尽管这并不意味着你的老派优势正在消失，微软*将* [开始小批量推出](https://blogs.windows.com/msedgedev/2020/01/15/upgrading-new-microsoft-edge-79-chromium/)Chromium 浏览器，最终在今年夏天通过 Windows Update 取代它。
 

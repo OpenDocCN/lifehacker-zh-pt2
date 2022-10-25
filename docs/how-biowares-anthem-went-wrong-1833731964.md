@@ -1,6 +1,6 @@
 # BioWare 的颂歌是如何出错的
 
-> 原文:[https://kotaku . com/how-bioware-anthem-go-error-1833731964](https://kotaku.com/how-biowares-anthem-went-wrong-1833731964)
+> 原文：<https://kotaku.com/how-biowares-anthem-went-wrong-1833731964>
 
 它甚至不应该被称为*国歌*。就在 2017 年 6 月一年一度的 E3 会议前几天，当著名的工作室 BioWare 将展示其最新游戏时，计划是用一个不同的名字:*超越*。他们甚至为员工印制了 *Beyond* T 恤衫。
 

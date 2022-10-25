@@ -1,6 +1,6 @@
 # 我应该在苹果设备上使用哪个笔记应用程序？
 
-> 原文:[https://life hacker . com/which-note-taking-app-should-I-use-for-apple-devices-1844166294](https://lifehacker.com/which-note-taking-app-should-i-use-for-apple-devices-1844166294)
+> 原文：<https://lifehacker.com/which-note-taking-app-should-i-use-for-apple-devices-1844166294>
 
 我经常为 Lifehacker 的 [**Tech 911**](https://lifehacker.com/c/tech-911) 专栏撰写关于相当激烈且日益恶化的技术问题的文章。我可以吗...很多。为了在夏天小歇一会儿，我将在本周放松心情，专注于一个影响每个人的问题，而不仅仅是你们中的少数人目前正在经历从 PC 中喷出的火焰、灾难性的数据丢失，或者一条鲨鱼带着你的 iPhone 逃跑，而你不知道如何使用“查找我的”让它游回到你身边。
 

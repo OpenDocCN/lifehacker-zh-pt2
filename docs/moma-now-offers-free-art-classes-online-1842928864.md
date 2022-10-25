@@ -1,6 +1,6 @@
 # 现代艺术博物馆现在提供免费的在线艺术课程
 
-> 原文:[https://life hacker . com/MoMA-now-offers-free-art-classes-online-1842928864](https://lifehacker.com/moma-now-offers-free-art-classes-online-1842928864)
+> 原文：<https://lifehacker.com/moma-now-offers-free-art-classes-online-1842928864>
 
 虽然纽约现代艺术博物馆现在不对公众开放，但它的虚拟大门以博物馆免费课程的形式开放。
 

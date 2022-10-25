@@ -1,6 +1,6 @@
 # 事实上，Scrunchies 一直统治着
 
-> 原文:[https://Jezebel . com/actually-scrunch ies-have-always-ruled-1837903447](https://jezebel.com/actually-scrunchies-have-always-ruled-1837903447)
+> 原文：<https://jezebel.com/actually-scrunchies-have-always-ruled-1837903447>
 
 你知道束发带很流行吗？你知不知道他们最近的重现引起了**[千禧年的焦虑](https://www.theatlantic.com/health/archive/2019/09/time-is-a-neon-scrunchie/597454/) 关于缓慢的、不可阻挡的时间前进？你有没有意识到，你用来把头发挡在脸上的东西不仅仅是一个发带，而是一个重要的和必不可少的镜头，通过它可以把趋势视为一种概念、生活方式和资本主义实体？**
 

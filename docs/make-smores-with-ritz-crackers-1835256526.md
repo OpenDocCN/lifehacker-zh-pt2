@@ -1,6 +1,6 @@
 # 用里兹饼干做点心
 
-> 原文:[https://the take out . com/make-s mores-with-ritz-cracker-1835256526](https://thetakeout.com/make-smores-with-ritz-crackers-1835256526)
+> 原文：<https://thetakeout.com/make-smores-with-ritz-crackers-1835256526>
 
 我不会浪费你的时间做过度的解释:你喜欢在火上烤棉花糖和做点心吗？全麦饼干很经典，但是考虑一下用瑞兹饼干怎么样？这个提示来自我的同事凯特·伯诺特的朋友兼理发师丽莎(你好，丽莎！).听到这个消息，我们不得不试一试。Ritz 饼干为棉花糖和巧克力添加了咸味，为你最喜欢的营火点心增添了甜蜜和咸味。这真好！而且不一样！不要认为这是一种替代，而是对你定期安排的全麦饼干节目的一个有趣的小干扰。
 

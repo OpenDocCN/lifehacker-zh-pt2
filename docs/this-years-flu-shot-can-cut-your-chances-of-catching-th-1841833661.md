@@ -1,6 +1,6 @@
 # 今年的流感疫苗可以将你感染病毒的几率降低一半
 
-> 原文:[https://life hacker . com/this-years-flu-shot-can-cut-your-chance-of-catch-th-1841833661](https://lifehacker.com/this-years-flu-shot-can-cut-your-chances-of-catching-th-1841833661)
+> 原文：<https://lifehacker.com/this-years-flu-shot-can-cut-your-chances-of-catching-th-1841833661>
 
 如果你还没有注射流感疫苗，还有时间去做。现在我们也知道它可能有多有效。
 

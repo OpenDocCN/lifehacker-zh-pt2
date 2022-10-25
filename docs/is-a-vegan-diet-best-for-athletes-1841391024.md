@@ -1,6 +1,6 @@
 # 纯素食对运动员来说是最好的吗？
 
-> 原文:[https://life hacker . com/is-a-vegan-diet-best-for-sports-1841391024](https://lifehacker.com/is-a-vegan-diet-best-for-athletes-1841391024)
+> 原文：<https://lifehacker.com/is-a-vegan-diet-best-for-athletes-1841391024>
 
 植物性饮食是一种很好的饮食方式，不管你是不是运动员。一部名为《游戏改变者》的网飞纪录片认为，肉不仅好，而且更好，而且在某种程度上是有害的。大多数营养专家都不是这么说的，所以让我们来看看《游戏改变者》中的说法，以及你应该知道的关于纯素食营养和训练的知识。
 

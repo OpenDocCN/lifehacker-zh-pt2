@@ -1,6 +1,6 @@
 # 孩子们仍然可以通过阅读获得免费的必胜客
 
-> 原文:[https://life hacker . com/kids-can-still-earn-free-pizza-hut-by-reading-1844202780](https://lifehacker.com/kids-can-still-earn-free-pizza-hut-by-reading-1844202780)
+> 原文：<https://lifehacker.com/kids-can-still-earn-free-pizza-hut-by-reading-1844202780>
 
 如果你是 20 世纪 80 年代或 90 年代的孩子，你可能记得阅读主要是为了获得免费的必胜客个人平底锅比萨饼。1984 年，必胜客推出了图书吧！这个项目是建立在这样一个前提上的，那就是承诺俗气的、深奥的好东西是一个足够有效的激励因素，可以让孩子们更加坚持不懈地阅读。他们当时是对的，今天也是对的——尤其是在一个夏天，图书馆阅读计划可能不是一个好的选择。
 

@@ -1,6 +1,6 @@
 # 用免费的墨西哥卷饼表明你对这段感情是认真的
 
-> 原文:[https://life hacker . com/show-you-serious-by-a-free-1831067246](https://lifehacker.com/show-youre-serious-about-this-relationship-with-a-free-1831067246)
+> 原文：<https://lifehacker.com/show-youre-serious-about-this-relationship-with-a-free-1831067246>
 
 你约会吗？你吃快餐时会多加番石榴吗？节日快乐！从 2018 年 12 月 13 日(星期四)到年底，约会网站 Hinge 的会员可以在美国的在线或店内参与 Chipotle 活动的地点购买一件主菜，免费获得一件商品
 

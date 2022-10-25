@@ -1,6 +1,6 @@
 # 这是苹果今天宣布的所有东西
 
-> 原文:[https://gizmodo . com/heres-all-the-stuff-apple-announced-today-1830094572](https://gizmodo.com/heres-all-the-stuff-apple-announced-today-1830094572)
+> 原文：<https://gizmodo.com/heres-all-the-stuff-apple-announced-today-1830094572>
 
 苹果今年秋天的 [第二次](https://gizmodo.com/everything-apple-announced-today-1829006328) 发布会没有带来什么惊喜，没有谈到期待已久的 Mac Pro 改造，也没有关于 AirPower 到底发生了什么的逾期更新。但是，随着苹果公司为其过时的 [Mac Mini](https://gizmodo.com/apple-brings-the-mac-mini-back-from-the-dead-1830093762) 注入新的生命，并为 Face ID 带来了 [iPad Pro](https://gizmodo.com/apples-revamped-ipad-pro-with-faceid-is-official-1830080451?rev=1540911618631#_ga=2.61416868.906263676.1540822193-1182680357.1539885723) ，许多传言今天终于成真了。对于你们这些吝啬鬼来说，这里有一份苹果宣布的所有东西的概要。
 

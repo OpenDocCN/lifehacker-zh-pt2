@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:我女朋友想要个孩子，但我不想要
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-my-friend-want-a-baby-but-I-don-1841040763](https://kotaku.com/ask-dr-nerdlove-my-girlfriend-wants-a-baby-but-i-don-1841040763)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-my-girlfriend-wants-a-baby-but-i-don-1841040763>
 
 你好，所有的死亡孢子电云，欢迎来到 [问博士 NerdLove](http://kotaku.com/askdrnerdlove) ，唯一的约会建议专栏，帮助你的爱情生活的新游戏+。
 

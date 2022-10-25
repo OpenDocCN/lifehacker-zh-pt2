@@ -1,6 +1,6 @@
 # 这种 15 分钟的晨练之所以成为经典是有原因的
 
-> 原文:[https://life hacker . com/this-15 分钟的晨练是一个经典的理由-1843481007](https://lifehacker.com/this-15-minute-morning-workout-is-a-classic-for-a-reaso-1843481007)
+> 原文：<https://lifehacker.com/this-15-minute-morning-workout-is-a-classic-for-a-reaso-1843481007>
 
 在本月的 [健身挑战赛](https://lifehacker.com/c/lifehacker-fitness-challenge) 中，我们重温了 [科学的七分钟锻炼](https://vitals.lifehacker.com/lets-revisit-the-seven-minute-workout-1843201042) 和加拿大的古董套索 [5BX](https://lifehacker.com/this-week-we-return-to-the-fighter-pilot-workout-1843341941) 。本周，让我们把时间机器拨回到几年前的 2016 年，那时我们告诉你们关于 Darebee 的这个 15 分钟的早晨锻炼。
 

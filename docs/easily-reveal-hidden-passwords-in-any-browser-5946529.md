@@ -1,6 +1,6 @@
 # 在任何浏览器中轻松揭示隐藏的密码
 
-> 原文:[https://life hacker . com/easy-reveal-hidden-passwords-in-any-browser-5946529](https://lifehacker.com/easily-reveal-hidden-passwords-in-any-browser-5946529)
+> 原文：<https://lifehacker.com/easily-reveal-hidden-passwords-in-any-browser-5946529>
 
 如果您不想每次登录帐户时都要记住并键入密码，自动填充是一个很好的设置。事实上，我们强烈建议你 [使用密码管理器](https://lifehacker.com/the-five-best-password-managers-5529133) (并利用自动填充功能)来跟踪安全密码。但是如果你需要在其他地方输入密码，自动填充很容易忘记你的密码。
 

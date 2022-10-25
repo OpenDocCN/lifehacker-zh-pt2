@@ -1,6 +1,6 @@
 # 如果你的报税人不能在 4 月 15 日前报税，该怎么办
 
-> 原文:[https://life hacker . com/1833838282](https://lifehacker.com/what-to-do-if-your-tax-preparer-cant-file-your-taxes-by-1833838282)
+> 原文：<https://lifehacker.com/what-to-do-if-your-tax-preparer-cant-file-your-taxes-by-1833838282>
 
 如果你与注册会计师或会计公司合作完成你的税务，你可能最近会收到一些令人头疼的消息:由于包括我们最近的政府关闭和新税法在内的一系列因素，许多税务准备工作落后于计划，不是每个人的税收都会按时提交。引用 [*《纽约时报》*](https://www.nytimes.com/2019/04/05/your-money/tax-returns-filing-last-minute.html) :
 

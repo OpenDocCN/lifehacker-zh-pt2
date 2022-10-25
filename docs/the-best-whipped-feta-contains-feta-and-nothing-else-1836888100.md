@@ -1,6 +1,6 @@
 # 最好的搅打羊乳酪只含羊乳酪，不含其他成分
 
-> 原文:[https://life hacker . com/the-best-whipped-feta-contains-feta-and-nothing-else-1836888100](https://lifehacker.com/the-best-whipped-feta-contains-feta-and-nothing-else-1836888100)
+> 原文：<https://lifehacker.com/the-best-whipped-feta-contains-feta-and-nothing-else-1836888100>
 
 像其他消费品一样，食物也受资本主义之风的影响，这导致了与季节性无关的趋势。搅打羊乳酪目前很流行，但也很美味，所以我——这类东西的仲裁者——对它的流行很满意。
 

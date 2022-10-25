@@ -1,6 +1,6 @@
 # 新款 Galaxy A50 与 Galaxy S10、S10+和 S10e 相比有何不同
 
-> 原文:[https://life hacker . com/how-the-new-galaxy-a50-comparison-the-galaxy-S10-S10-1835424780](https://lifehacker.com/how-the-new-galaxy-a50-compares-to-the-galaxy-s10-s10-1835424780)
+> 原文：<https://lifehacker.com/how-the-new-galaxy-a50-compares-to-the-galaxy-s10-s10-1835424780>
 
 三星最近宣布 [Galaxy A50 终于在美国上市](https://www.samsung.com/uk/smartphones/galaxy-a50/SM-A505FZKSBTU/) 。这款中端智能手机将成为三星旗舰 S10 系列设备(如 S10、S10+和 S10e)的更实惠的替代产品。A50 之后还将推出更便宜的 A20 和 A10e 版本，但三星尚未宣布发布日期。
 

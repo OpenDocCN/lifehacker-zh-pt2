@@ -1,6 +1,6 @@
 # 如何清洁你的浴缸和瓷砖
 
-> 原文:[https://life hacker . com/how-to-clean-your ' s tub-and-tile-1843422181](https://lifehacker.com/how-to-clean-your-bathtub-and-tile-1843422181)
+> 原文：<https://lifehacker.com/how-to-clean-your-bathtub-and-tile-1843422181>
 
 如果你是那种喜欢在 [享受舒适热水浴](https://lifehacker.com/how-to-take-the-best-bath-possible-1795702871) 的人，那么你可能已经注意到了你的浴缸和周围瓷砖的状况(或者你当然应该注意)。如果你只是在淋浴时进进出出，没有逗留的时间，很容易让污垢随着时间积累，直到有一天，你发现你的淋浴瓷砖之间的黑色粘糊糊的东西，并被迫面对事实:你的浴缸看起来很恶心。
 

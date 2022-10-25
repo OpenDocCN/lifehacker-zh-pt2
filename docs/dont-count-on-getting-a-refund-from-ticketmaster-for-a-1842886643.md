@@ -1,6 +1,6 @@
 # 不要指望从票务中心得到延期演出的退款
 
-> 原文:[https://life hacker . com/don-count-on-get-a-ticket master-for-a-1842886643](https://lifehacker.com/dont-count-on-getting-a-refund-from-ticketmaster-for-a-1842886643)
+> 原文：<https://lifehacker.com/dont-count-on-getting-a-refund-from-ticketmaster-for-a-1842886643>
 
 ticket master[澄清了因新冠肺炎而取消或推迟的活动的退款政策](https://help.ticketmaster.com/s/article/Purchase-Policy?language=en_US) ，这对已经购买了即将到来的活动门票的人来说可能是个坏消息。
 

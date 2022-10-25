@@ -1,6 +1,6 @@
 # 如何从现在到 8 月 23 日观看流星雨
 
-> 原文:[https://life hacker . com/how-to-watch-the-meteor-show-occuring-now-through-au-1844505160](https://lifehacker.com/how-to-watch-the-meteor-shower-happening-now-through-au-1844505160)
+> 原文：<https://lifehacker.com/how-to-watch-the-meteor-shower-happening-now-through-au-1844505160>
 
 在最近的罕见彗星[和 7 月 4 日半影月食](https://lifehacker.com/how-to-see-a-comet-that-wont-be-visible-for-another-6-0-1844345120) 的 [之间，对于天文学来说是伟大的几周。但是在夜空中还有更多的东西可以看到，那就是为期 42 天的流星雨。虽然这场流星雨开始于 7 月 12 日，但它将在 7 月 28 日和 29 日最明显，并将持续到 8 月 23 日。以下是你需要知道的关于这个天文事件的信息。](https://lifehacker.com/how-to-watch-the-penumbral-eclipse-on-july-4-1844253787) 
 

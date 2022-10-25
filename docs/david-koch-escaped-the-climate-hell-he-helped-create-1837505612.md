@@ -1,6 +1,6 @@
 # 大卫·科赫逃脱了他帮助制造的气候地狱
 
-> 原文:[https://gizmodo . com/David-Koch-escape-the-climate-hell-he-help-create-1837505612](https://gizmodo.com/david-koch-escaped-the-climate-hell-he-helped-create-1837505612)
+> 原文：<https://gizmodo.com/david-koch-escaped-the-climate-hell-he-helped-create-1837505612>
 
 大卫·科赫是 [死了](https://splinternews.com/david-koch-a-bad-man-has-died-1837504323) 。
 

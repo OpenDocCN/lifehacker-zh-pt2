@@ -1,6 +1,6 @@
 # 如何正确护理铸铁
 
-> 原文:[https://life hacker . com/how-to-right-care-for-cast-iron-1842089019](https://lifehacker.com/how-to-properly-care-for-cast-iron-1842089019)
+> 原文：<https://lifehacker.com/how-to-properly-care-for-cast-iron-1842089019>
 
 铸铁是严肃的家庭厨师最喜欢的工具。但是大多数人认为真正重要的是维护他们重金属炊具的正确方法。有些人说肥皂是调味得当的锅的敌人。其他人坚持认为调味锅的正确方法需要*五个小时*。
 

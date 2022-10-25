@@ -1,6 +1,6 @@
 # 你可以出去，并不意味着你应该出去
 
-> 原文:[https://life hacker . com/just-因为你能出去并不意味着你应该去 1843523899](https://lifehacker.com/just-because-you-can-go-out-doesnt-mean-you-should-go-1843523899)
+> 原文：<https://lifehacker.com/just-because-you-can-go-out-doesnt-mean-you-should-go-1843523899>
 
 许多地区的企业正在重新开业，如果你想去参观关闭期间错过的每个地方，这是完全可以理解的。但是，本周的风险真的比上周，甚至是上个月更低吗？在大多数地方，你最好还是呆在家里。
 

@@ -1,6 +1,6 @@
 # LGBTQ 期间如何安全出行
 
-> 原文:[https://life hacker . com/how-to-travel-safety-while-LBG TQ-1835617902](https://lifehacker.com/how-to-travel-safely-while-lbgtq-1835617902)
+> 原文：<https://lifehacker.com/how-to-travel-safely-while-lbgtq-1835617902>
 
 全球各地的国家都在庆祝骄傲月，但是 LGBTQ 群体仍然处于危险之中。
 

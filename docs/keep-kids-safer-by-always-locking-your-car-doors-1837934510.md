@@ -1,6 +1,6 @@
 # 锁好车门，让孩子更安全
 
-> 原文:[https://life hacker . com/keep-kids-safer-by-always-locking-your-car-doors-1837934510](https://lifehacker.com/keep-kids-safer-by-always-locking-your-car-doors-1837934510)
+> 原文：<https://lifehacker.com/keep-kids-safer-by-always-locking-your-car-doors-1837934510>
 
 当你考虑锁车门的时候，大多数情况下你最关心的是防止别人偷你车里的东西——或者车本身。虽然这肯定是一个合理的担忧，但一位 Reddit 用户提出了锁门的另一个重要的原因:为了不让的孩子进来。
 

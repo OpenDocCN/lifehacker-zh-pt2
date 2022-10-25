@@ -1,6 +1,6 @@
 # 下次有人借你的笔时，用这种被动攻击的方式
 
-> 原文:[https://life hacker . com/use-this-passive-aggressive-hack-the-next-time-someone-1834952643](https://lifehacker.com/use-this-passive-aggressive-hack-the-next-time-someone-1834952643)
+> 原文：<https://lifehacker.com/use-this-passive-aggressive-hack-the-next-time-someone-1834952643>
 
 你是否厌倦了人们在工作中借用你的东西——比如一支昂贵的钢笔，配有你喜欢的 0.38 毫米线宽和舒适的握感——并且永远不会归还？
 

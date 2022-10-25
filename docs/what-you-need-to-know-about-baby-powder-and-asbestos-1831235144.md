@@ -1,6 +1,6 @@
 # 关于婴儿爽身粉和石棉你需要知道什么
 
-> 原文:[https://life hacker . com/what-you-need-to-know-about-baby-powder-and-石棉-1831235144](https://lifehacker.com/what-you-need-to-know-about-baby-powder-and-asbestos-1831235144)
+> 原文：<https://lifehacker.com/what-you-need-to-know-about-baby-powder-and-asbestos-1831235144>
 
 我们最近得知，婴儿爽身粉 [的制造商强生公司多年来一直知道他们的滑石粉含有微量石棉](https://www.reuters.com/investigates/special-report/johnsonandjohnson-cancer/) ，并向监管者和因癌症案件起诉他们的人隐瞒了这一事实。是时候抓狂了吗？以下是你需要知道的。
 

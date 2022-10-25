@@ -1,6 +1,6 @@
 # 在悲伤的时候，我能说什么是真正有用的呢？
 
-> 原文:[https://life hacker . com/what-can-I-say-that-is-actually-help-times-5941009](https://lifehacker.com/what-can-i-say-thats-actually-helpful-in-times-of-grief-5941009)
+> 原文：<https://lifehacker.com/what-can-i-say-thats-actually-helpful-in-times-of-grief-5941009>
 
 悲伤是可怕的，但也可能是尴尬的。如果你认识的某人正沉浸在 的悲痛中，可能很难知道该对他们说些什么——或者更重要的是，该对他们说些什么*不该说的话。当然，你的意图是好的，你想让事情变得更好，而不是更糟。以下是你需要知道的。*
 

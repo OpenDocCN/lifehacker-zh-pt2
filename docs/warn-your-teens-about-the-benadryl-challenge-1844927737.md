@@ -1,6 +1,6 @@
 # 警告你的孩子关于苯那君的挑战
 
-> 原文:[https://life hacker . com/warn-your-tens-about-the-benadryl-challenge-1844927737](https://lifehacker.com/warn-your-teens-about-the-benadryl-challenge-1844927737)
+> 原文：<https://lifehacker.com/warn-your-teens-about-the-benadryl-challenge-1844927737>
 
 从给我们带来“ [颅骨粉碎者挑战](https://offspring.lifehacker.com/warn-your-kids-about-this-dangerous-tiktok-challenge-1841892348) 的应用程序来看，我们现在显然有了“苯海拉明挑战”，年轻人服用大量药物来产生幻觉。这一挑战导致至少一名青少年死亡，其他人住院治疗。
 

@@ -1,6 +1,6 @@
 # 脸书的新应用程序值得一试吗？
 
-> 原文:[https://life hacker . com/is-Facebook-s-new-catch up-app-worth-trying-1843713895](https://lifehacker.com/is-facebook-s-new-catchup-app-worth-trying-1843713895)
+> 原文：<https://lifehacker.com/is-facebook-s-new-catchup-app-worth-trying-1843713895>
 
 脸书最近 [发布了 CatchUp](https://npe.fb.com/2020/05/26/introducing-catchup-helping-you-stay-in-touch-with-the-people-you-care-about/) 的早期版本，这是一款纯音频聊天应用，有一个有用的功能:用户可以看到他们的联系人何时有空聊天，并且只需轻轻一点就可以开始对话(或群组通话)。
 

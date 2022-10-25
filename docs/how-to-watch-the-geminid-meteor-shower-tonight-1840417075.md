@@ -1,6 +1,6 @@
 # 今晚如何观看双子座流星雨
 
-> 原文:[https://life hacker . com/how-to-watch-the-geminid-meteor-shower-tonight-1840417075](https://lifehacker.com/how-to-watch-the-geminid-meteor-shower-tonight-1840417075)
+> 原文：<https://lifehacker.com/how-to-watch-the-geminid-meteor-shower-tonight-1840417075>
 
 今晚的满月仍然是夜空中的视觉享受，但同时还有另一场灯光秀在上演:双子座流星雨。这是今年倒数第二场流星雨。
 

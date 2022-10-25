@@ -1,6 +1,6 @@
 # 如何充分利用你的扫帚
 
-> 原文:[https://life hacker . com/how-to-get-the-use-out-of-your-broom-1841958558](https://lifehacker.com/how-to-get-the-most-use-out-of-your-broom-1841958558)
+> 原文：<https://lifehacker.com/how-to-get-the-most-use-out-of-your-broom-1841958558>
 
 当 [扫帚挑战](https://www.refinery29.com/en-us/2020/02/9396069/broom-stand-up-challenge-nasa-twitter) 热潮席卷互联网时，我们开始思考，一定有比站着用扫帚更有效的方法。
 

@@ -1,6 +1,6 @@
 # 从亚马逊和塔吉特百货有限的买二送一活动中获得一个免费的视频游戏
 
-> 原文:[https://life hacker . com/get-a-free-video-game-from-Amazon-and-targets-limited-b-1839450393](https://lifehacker.com/get-a-free-video-game-from-amazon-and-targets-limited-b-1839450393)
+> 原文：<https://lifehacker.com/get-a-free-video-game-from-amazon-and-targets-limited-b-1839450393>
 
 再见，薪水支票。亚马逊和 Target 本周正在精选的 PlayStation 4、Xbox One 和任天堂 Switch 游戏上推出限时买二送一的优惠活动，包括最近发布的*《外层世界》*和*《使命召唤:现代战争》*，甚至还有任天堂发布的*《超级马里奥制作人 2》*。
 

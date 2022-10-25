@@ -1,6 +1,6 @@
 # 2018 年最佳父母技术
 
-> 原文:[https://life hacker . com/our-favorite-2018-technology-hacks-for-parents-1831237624](https://lifehacker.com/our-favorite-2018-technology-hacks-for-parents-1831237624)
+> 原文：<https://lifehacker.com/our-favorite-2018-technology-hacks-for-parents-1831237624>
 
 有时候，我们的孩子似乎已经能比我们更好地驾驭科技。他们的优势是在平板电脑、笔记本电脑和智能手机的支配下成长，而我们记得你过去必须在我们的翻盖手机上按三次#5 才能看到字母“l”(即使在那时也很烦人。)
 

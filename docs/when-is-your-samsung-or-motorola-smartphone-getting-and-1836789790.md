@@ -1,6 +1,6 @@
 # 你的三星或摩托罗拉手机什么时候会有 Android 10？
 
-> 原文:[https://life hacker . com/when-your-Samsung-or-Motorola-smart phone-getting-and-1836789790](https://lifehacker.com/when-is-your-samsung-or-motorola-smartphone-getting-and-1836789790)
+> 原文：<https://lifehacker.com/when-is-your-samsung-or-motorola-smartphone-getting-and-1836789790>
 
 [Lifehacker's Complete Guide to Android](https://androidos.kinja.com)) : title[![](../Images/e2dcc498f7314a475ad7b9879a9d5584.png)](https://androidos.kinja.com)[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)Don't get overwhelmed by Android's many (many!) settings and apps. Master your Android phone or tablet with our ample collection of guides, tips, and tricks.
 

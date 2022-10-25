@@ -1,6 +1,6 @@
 # how to plan the perfect trip to disneyland and star war 1835587423
 
-> 原文:[https://life hacker . com/how-to-plan-the-perfect-to-disneyland-star-war-1835587423](https://lifehacker.com/how-to-plan-the-perfect-trip-to-disneyland-and-star-war-1835587423)
+> 原文：<https://lifehacker.com/how-to-plan-the-perfect-trip-to-disneyland-and-star-war-1835587423>
 
 当我告诉我的朋友们，我计划参加迪士尼乐园新的"*星球大战*之地"，也称为*星球大战:银河边缘*的开幕周末，他们有一个共同的反应:恐怖。
 

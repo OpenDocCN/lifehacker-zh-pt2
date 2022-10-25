@@ -1,6 +1,6 @@
 # 如何打造终极“小鬼当家”
 
-> 原文:[https://life hacker . com/how-to-create-the ultimate-kid-cave-1832334325](https://lifehacker.com/how-to-create-the-ultimate-kid-cave-1832334325)
+> 原文：<https://lifehacker.com/how-to-create-the-ultimate-kid-cave-1832334325>
 
 我住在宾夕法尼亚州东部的一栋建于 1925 年的双胞胎住宅里。它的魅力很高，但在其他方面却很低，比如居住空间、储物空间和浴室数量。随着我儿子年龄的增长，玩耍的日子也从许多必要的徘徊中演变而来(“让我们记住分享吧！))为了更少干涉，我们一直在努力为他找一个和朋友们一起玩的地方。
 

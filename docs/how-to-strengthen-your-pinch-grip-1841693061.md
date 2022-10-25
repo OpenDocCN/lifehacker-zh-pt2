@@ -1,6 +1,6 @@
 # 如何加强你的握力
 
-> 原文:[https://life hacker . com/how-to-strength-your pinch-grip-1841693061](https://lifehacker.com/how-to-strengthen-your-pinch-grip-1841693061)
+> 原文：<https://lifehacker.com/how-to-strengthen-your-pinch-grip-1841693061>
 
 我们已经用抓手 和 [训练了](https://vitals.lifehacker.com/how-to-get-a-stronger-support-grip-for-deadlifts-and-ha-1841519693) [挤压抓手和](https://vitals.lifehacker.com/februarys-fitness-challenge-is-grip-1841383983) 支撑抓手。现在是另一种握拍力量的时候了:捏握。
 

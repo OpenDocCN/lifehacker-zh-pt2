@@ -1,6 +1,6 @@
 # 谷歌的 Pixel 支架是一种更智能的无线充电器
 
-> 原文:[https://gizmodo . com/Google s-pixel-stand-is-a-smarter-breed-of-wireless-char-1829925295](https://gizmodo.com/googles-pixel-stand-is-a-smarter-breed-of-wireless-char-1829925295)
+> 原文：<https://gizmodo.com/googles-pixel-stand-is-a-smarter-breed-of-wireless-char-1829925295>
 
 在一个技术日益复杂的世界，无线充电器是令人耳目一新的简单设备。拿起你的手机，把它放在垫子或架子上，然后走开。就是这样。现在无线充电基本上是大多数旗舰手机的标准功能，它很快成为保持手机电池充满电的首选方式。但是，如果你的无线充电器不需要电线或电缆，不仅仅可以激发电子，会怎么样呢？嗯，这正是谷歌试图用新的 [像素支架](https://store.google.com/us/product/pixel_stand?hl=en-US) 做的事情。
 

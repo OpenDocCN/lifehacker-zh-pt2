@@ -1,6 +1,6 @@
 # 我用九种方法做了魔鬼蛋，找到了最好的配方
 
-> 原文:[https://the take out . com/I-made-deviled-eggs-nine-ways-found-the-best-recipe-1835090986](https://thetakeout.com/i-made-deviled-eggs-nine-ways-and-found-the-best-recipe-1835090986)
+> 原文：<https://thetakeout.com/i-made-deviled-eggs-nine-ways-and-found-the-best-recipe-1835090986>
 
 一道家常便饭。开胃菜界的巨人。并非完全不可能搞砸，但也远没有它们华丽的外表所暗示的那么复杂。但是就像所有经典食谱一样，有许多方法来制作它们，微小的变化会产生巨大的差异。
 

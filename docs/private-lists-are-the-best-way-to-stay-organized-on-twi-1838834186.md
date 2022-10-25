@@ -1,6 +1,6 @@
 # 私人列表是在 Twitter 上保持有序的最好方式
 
-> 原文:[https://life hacker . com/private-lists-is-the-best-way-to-stay-organized-on-twi-1838834186](https://lifehacker.com/private-lists-are-the-best-way-to-stay-organized-on-twi-1838834186)
+> 原文：<https://lifehacker.com/private-lists-are-the-best-way-to-stay-organized-on-twi-1838834186>
 
 我承认，我喜欢使用 Twitter 列表。虽然在你的 Twitter 应用上滚动浏览常规的 ol' feed 很“容易”,但这个过程让我恼火，主要有两个原因:它总是返回到“热门推文”,而不是按时间顺序排列的 feed，这令人沮丧，我在我的 feed 中不断看到随机推广的推文。咩。
 

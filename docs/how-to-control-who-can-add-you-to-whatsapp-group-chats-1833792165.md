@@ -1,6 +1,6 @@
 # 如何控制哪些人可以将您添加到 WhatsApp 群聊
 
-> 原文:[https://life hacker . com/how-to-control-who-can-add-you-to-whatsapp-group-chats-1833792165](https://lifehacker.com/how-to-control-who-can-add-you-to-whatsapp-group-chats-1833792165)
+> 原文：<https://lifehacker.com/how-to-control-who-can-add-you-to-whatsapp-group-chats-1833792165>
 
 几年前，我和来自世界其他地方的记者一起去苏格兰出差。在旅途中，我们使用 WhatsApp 保持联系，这鼓励参与者也通过 WhatsApp 保持联系，特别是以小组聊天的形式。
 

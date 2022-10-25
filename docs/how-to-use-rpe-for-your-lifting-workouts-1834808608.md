@@ -1,6 +1,6 @@
 # 如何使用 RPE 进行举重训练
 
-> 原文:[https://life hacker . com/how-to-use-RPE-for-your-lifting-workouts-1834808608](https://lifehacker.com/how-to-use-rpe-for-your-lifting-workouts-1834808608)
+> 原文：<https://lifehacker.com/how-to-use-rpe-for-your-lifting-workouts-1834808608>
 
 几周前，我中断了常规的举重训练，去跑半程马拉松。我全力以赴，第二天醒来发现了一个致命的案例。但这是举重的一天，所以我拖着酸痛的屁股去了健身房，做了常规锻炼。多亏了 RPE，感觉很好很容易。
 

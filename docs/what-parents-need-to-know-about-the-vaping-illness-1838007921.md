@@ -1,6 +1,6 @@
 # 父母需要了解什么样的蒸发性疾病
 
-> 原文:[https://life hacker . com/what-parents-need-to-know-the-vaping-disease-1838007921](https://lifehacker.com/what-parents-need-to-know-about-the-vaping-illness-1838007921)
+> 原文：<https://lifehacker.com/what-parents-need-to-know-about-the-vaping-illness-1838007921>
 
 你可能一直怀疑抽烟对任何人来说都不是最健康的习惯，更不用说青少年了。现在，我们似乎正在收集这方面的证据，因为全国各地有数百人患有与 vaping 相关的严重肺部疾病，其中许多人是 20 岁出头的青少年或年轻人。
 

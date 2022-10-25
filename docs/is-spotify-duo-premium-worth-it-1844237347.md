@@ -1,6 +1,6 @@
 # Spotify Duo Premium 值不值？
 
-> 原文:[https://life hacker . com/is-Spotify-duo-premium-worth-it-1844237347](https://lifehacker.com/is-spotify-duo-premium-worth-it-1844237347)
+> 原文：<https://lifehacker.com/is-spotify-duo-premium-worth-it-1844237347>
 
 我和我女朋友共用一个账户来注册我们使用的所有服务。这些服务中的大部分对我们来说都很酷，我们可以同时使用同一个账户，但有几个不是这样。Spotify 曾经是那些更具限制性的应用程序之一，但该公司刚刚为美国客户添加了一个新的“Premium Duo”[订阅计划](https://www.spotify.com/us/premium/) (该计划也适用于欧洲和拉丁美洲的其他 54 个国家)，这将给予密码共享合作伙伴更多自由。
 

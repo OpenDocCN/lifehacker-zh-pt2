@@ -1,6 +1,6 @@
 # 继续使用 Global Entry，即使您的续订处于“待定”状态
 
-> 原文:[https://life hacker . com/keep-using-global-entry-even-if-your-renewal-is-pendi-1840699140](https://lifehacker.com/keep-using-global-entry-even-if-your-renewal-is-pendi-1840699140)
+> 原文：<https://lifehacker.com/keep-using-global-entry-even-if-your-renewal-is-pendi-1840699140>
 
 如果你似乎一直在等待你的全球入境续签通过，你并不孤单。美国海关本周宣布，有超过 35 万份全球入境申请需要通过。
 

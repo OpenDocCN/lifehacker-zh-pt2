@@ -1,6 +1,6 @@
 # 使用这个“官方”表格来改变你的宠物的名字
 
-> 原文:[https://life hacker . com/use-this-official-form-to-change-your-pets-name-1842775224](https://lifehacker.com/use-this-official-form-to-change-your-pets-name-1842775224)
+> 原文：<https://lifehacker.com/use-this-official-form-to-change-your-pets-name-1842775224>
 
 如果你把自己和你的孩子——以及一只或多只动物——隔离在家里，你可能已经决定现在是给你的宠物改名的最佳时机。也许你从一开始就没有真正喜欢过这个名字，现在你们每天都在近距离接触，似乎永远不会，你只是不能忍受再听到“凯蒂咕噜”一次。当时很搞笑；一点都不好笑。
 

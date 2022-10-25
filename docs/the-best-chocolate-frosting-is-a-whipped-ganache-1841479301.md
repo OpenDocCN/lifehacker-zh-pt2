@@ -1,6 +1,6 @@
 # 最好的巧克力糖霜是搅打过的 Ganache
 
-> 原文:[https://life hacker . com/the-best-chocolate-frosting-is-a-whipped-ganache-1841479301](https://lifehacker.com/the-best-chocolate-frosting-is-a-whipped-ganache-1841479301)
+> 原文：<https://lifehacker.com/the-best-chocolate-frosting-is-a-whipped-ganache-1841479301>
 
 如果我觉得在做蛋糕的过程中不得不偷工减料，我更有可能 [伪造蛋糕](https://lifehacker.com/how-to-make-a-boxed-cake-mix-taste-homemade-1839165427) 而不是糖霜。商店里买的糖霜比盒装的混合蛋糕更容易被发现，而且糖霜是一个更容易的项目——你只需要搅拌一个 ganache。
 

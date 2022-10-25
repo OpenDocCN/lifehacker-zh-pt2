@@ -1,6 +1,6 @@
 # 仔细检查你的安卓杀毒软件是否能正常工作
 
-> 原文:[https://life hacker . com/double-check-that-your-Android-anti virus-app-actually-w-1833414047](https://lifehacker.com/double-check-that-your-android-antivirus-app-actually-w-1833414047)
+> 原文：<https://lifehacker.com/double-check-that-your-android-antivirus-app-actually-w-1833414047>
 
 [杀毒软件](https://lifehacker.com/the-best-antivirus-app-for-windows-5865356)的本意是让我们的设备免受恶意软件的侵害，但如果是杀毒应用本身出了问题，会发生什么呢？
 

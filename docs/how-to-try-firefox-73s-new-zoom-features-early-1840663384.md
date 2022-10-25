@@ -1,6 +1,6 @@
 # 如何尽早尝试 Firefox 73 的新缩放功能
 
-> 原文:[https://life hacker . com/how-to-try-Firefox-73s-new-zoom-features-early-1840663384](https://lifehacker.com/how-to-try-firefox-73s-new-zoom-features-early-1840663384)
+> 原文：<https://lifehacker.com/how-to-try-firefox-73s-new-zoom-features-early-1840663384>
 
 可定制的缩放级别是火狐最好的辅助功能之一。用户可以根据每个网站调整放大尺寸，每次访问网站时，浏览器都会记住并应用首选的缩放级别。对于有视觉障碍的用户来说，这使得导航和阅读页面变得更加容易，但是对于您访问的每个新页面来说，不得不调整这一点是很烦人的。此外，放大太多还会扭曲网站上的图像和其他图形元素，破坏缩放功能的好处。幸运的是，Firefox 将很快添加两个新的设置来修复这些缺点。
 

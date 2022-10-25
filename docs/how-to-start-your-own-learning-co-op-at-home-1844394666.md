@@ -1,6 +1,6 @@
 # 如何在家里建立自己的学习“合作社”
 
-> 原文:[https://life hacker . com/how-to-start-your-own-learning-co-op-at-home-1844394666](https://lifehacker.com/how-to-start-your-own-learning-co-op-at-home-1844394666)
+> 原文：<https://lifehacker.com/how-to-start-your-own-learning-co-op-at-home-1844394666>
 
 通常，选择很简单——孩子们要么去学校学习，要么在家上学。通常*、*这两个基本选项中至少有一个符合你家庭的生活方式或你孩子的需求。直到今年。今年，如果孩子们去上学，我们会担心每个人的身体健康，如果他们不去上学，我们也会担心他们(和我们)的心理健康。但是还有另一个选择，一个不错的小妥协，许多家庭开始探索——形成他们自己的小型学习“合作社”
 

@@ -1,6 +1,6 @@
 # 让你成为 Lightroom 专家的 10 个技巧和诀窍
 
-> 原文:[https://gizmodo . com/10-制作 lightroom-expert-1844130341](https://gizmodo.com/10-tips-and-tricks-to-make-you-a-lightroom-expert-1844130341)
+> 原文：<https://gizmodo.com/10-tips-and-tricks-to-make-you-a-lightroom-expert-1844130341>
 
 Lightroom 可能没有像 Photoshop 那样渗透到普通语言中，但在某些方面，它与强大的图像编辑器一样有用——你可以通过 20 美元的创意云 [摄影订阅](https://www.adobe.com/creativecloud/photography/compare-plans.html) 和豪华 CC 包获得这两者。无论您是刚刚开始使用该软件，还是已经习惯了使用它来调整图像，这些提示应该可以帮助您提升 Lightroom 游戏的水平。
 

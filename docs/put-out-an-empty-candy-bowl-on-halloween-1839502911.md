@@ -1,6 +1,6 @@
 # 在万圣节放一个空的糖果碗
 
-> 原文:[https://life hacker . com/put-out-an-empty-candy-bowl-on-Halloween-1839502911](https://lifehacker.com/put-out-an-empty-candy-bowl-on-halloween-1839502911)
+> 原文：<https://lifehacker.com/put-out-an-empty-candy-bowl-on-halloween-1839502911>
 
 需要一些最后一分钟的万圣节糖果，因为你要么太便宜而买不起，要么你自己吃光了？这里有一个窍门:你实际上不知道。
 

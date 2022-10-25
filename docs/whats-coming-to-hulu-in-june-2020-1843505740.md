@@ -1,6 +1,6 @@
 # 2020 年 6 月，Hulu 将迎来什么
 
-> 原文:[https://life hacker . com/whats-coming-to-Hulu-in-June-2020-1843505740](https://lifehacker.com/whats-coming-to-hulu-in-june-2020-1843505740)
+> 原文：<https://lifehacker.com/whats-coming-to-hulu-in-june-2020-1843505740>
 
 快到六月了，这意味着是时候开始建立你的新东西清单了看一次月初到来你最喜欢的流媒体服务体验大量内容涌入。
 

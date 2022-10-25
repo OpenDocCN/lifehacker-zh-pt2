@@ -1,6 +1,6 @@
 # 挑选汽车座椅时，遵循 AAP 的安全建议
 
-> 原文:[https://life hacker . com/when-pick-out-a-car-seat-follow-the-aaps-safety-rec-1841491423](https://lifehacker.com/when-picking-out-a-car-seat-follow-the-aaps-safety-rec-1841491423)
+> 原文：<https://lifehacker.com/when-picking-out-a-car-seat-follow-the-aaps-safety-rec-1841491423>
 
 今天， [ProPublica](https://www.propublica.org/article/evenflo-maker-of-the-big-kid-booster-seat-put-profits-over-child-safety) 发表了一份令人不安的报告，内容是关于 Evenflo 和其他公司出售的安全带定位增高座椅的安全性，这是对父母的一个重要提醒:永远要首先遵循 [美国儿科学会的指导方针](https://www.healthychildren.org/English/safety-prevention/on-the-go/Pages/Car-Safety-Seats-Information-for-Families.aspx) 。制造商对最低身高和体重的建议可能不像他们声称的那样安全。
 

@@ -1,6 +1,6 @@
 # 如何在有氧健身器上进行间歇锻炼
 
-> 原文:[https://life hacker . com/how-to-get-a great-interval-workout-on-gym-cardio-machi-1839353603](https://lifehacker.com/how-to-get-a-great-interval-workout-on-gym-cardio-machi-1839353603)
+> 原文：<https://lifehacker.com/how-to-get-a-great-interval-workout-on-gym-cardio-machi-1839353603>
 
 你可以在任何地方进行有氧间歇运动，正如我们在本月的健身挑战 中发现的那样:你的客厅是经典的，或者你可以跳上自行车或系上跑鞋。但有时最简单的选择是去健身房，在那里挑选有氧运动器材。
 

@@ -1,6 +1,6 @@
 # 提醒你在买车时一定要阅读附属细则
 
-> 原文:[https://jalopnik . com/a-reminder-to-always-read-the-fine-print-when-you-is-s-1840480440](https://jalopnik.com/a-reminder-to-always-read-the-fine-print-when-you-are-s-1840480440)
+> 原文：<https://jalopnik.com/a-reminder-to-always-read-the-fine-print-when-you-are-s-1840480440>
 
 12 月通常是达成汽车交易的好时机，因为制造商和经销商都希望以强劲的销售数字结束这一年。然而，仅仅因为某样东西看起来像一笔好交易，并不意味着你不应该挑剔细节。
 

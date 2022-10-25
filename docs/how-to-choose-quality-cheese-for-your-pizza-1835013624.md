@@ -1,6 +1,6 @@
 # 如何为你的披萨选择优质奶酪
 
-> 原文:[https://life hacker . com/how-to-choose-quality-cheese-for-your-pizza-1835013624](https://lifehacker.com/how-to-choose-quality-cheese-for-your-pizza-1835013624)
+> 原文：<https://lifehacker.com/how-to-choose-quality-cheese-for-your-pizza-1835013624>
 
 除了烧烤，很少有食物能像披萨一样充满激情。来自美国南部，我不喜欢任何特定的风格，这很好，因为我可以享受所有的(菠萝)。但是比萨饼是由三种主要成分组成的——皮、酱和奶酪，在皮是分裂的地方，奶酪可以是统一的(甚至可能是愈合？).
 

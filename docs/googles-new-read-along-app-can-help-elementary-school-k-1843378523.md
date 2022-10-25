@@ -1,6 +1,6 @@
 # 谷歌新的“跟着读”应用程序可以帮助小学生提高阅读技能
 
-> 原文:[https://life hacker . com/Google s-new-read-along-app-can-help-elementary-school-k-1843378523](https://lifehacker.com/googles-new-read-along-app-can-help-elementary-school-k-1843378523)
+> 原文：<https://lifehacker.com/googles-new-read-along-app-can-help-elementary-school-k-1843378523>
 
 如果你家里有一个刚开始学习阅读的小孩，谷歌有一个新的免费资源可以帮助他们。
 

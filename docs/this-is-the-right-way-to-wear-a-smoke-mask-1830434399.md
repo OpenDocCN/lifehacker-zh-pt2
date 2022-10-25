@@ -1,6 +1,6 @@
 # 这是戴防烟面具的正确方法
 
-> 原文:[https://life hacker . com/this-is-the-right-way to-wear a-smoke-mask-1830434399](https://lifehacker.com/this-is-the-right-way-to-wear-a-smoke-mask-1830434399)
+> 原文：<https://lifehacker.com/this-is-the-right-way-to-wear-a-smoke-mask-1830434399>
 
 外科口罩不会保护你的肺部免受野火烟雾的伤害，所以如果你在烟雾弥漫的地区，确保你有合适的口罩，并且知道如何佩戴。
 

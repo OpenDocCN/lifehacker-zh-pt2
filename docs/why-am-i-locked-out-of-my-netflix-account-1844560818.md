@@ -1,6 +1,6 @@
 # 为什么我的网飞账户被锁定了？
 
-> 原文:[https://life hacker . com/why-am-I-lock-out-of-my-网飞-account-1844560818](https://lifehacker.com/why-am-i-locked-out-of-my-netflix-account-1844560818)
+> 原文：<https://lifehacker.com/why-am-i-locked-out-of-my-netflix-account-1844560818>
 
 在过去的几个月里一直生活在隔离中——不管怎样，已经有多长时间了？——我想不出比最近发生在一位生活黑客 读者身上更糟糕的事情了。不，他们没有感染冠状病毒。那肯定是最坏的情况。然而，他们确实被锁在了网飞门外。
 

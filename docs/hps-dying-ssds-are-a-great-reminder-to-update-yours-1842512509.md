@@ -1,6 +1,6 @@
 # HPE 正在消亡的固态硬盘是更新你的固态硬盘的一个很好的提醒
 
-> 原文:[https://life hacker . com/HPS-dying-SSDs-are-a-great-reminder-to-update-yours-1842512509](https://lifehacker.com/hps-dying-ssds-are-a-great-reminder-to-update-yours-1842512509)
+> 原文：<https://lifehacker.com/hps-dying-ssds-are-a-great-reminder-to-update-yours-1842512509>
 
 40000 小时后，你的 HP E 固态硬盘将会死亡。那不是 D-List *碟中谍*恶搞的情节；这是现实。谢天谢地，*你*可能没有受到影响，因为有自毁问题的固态硬盘都是企业级 HPE 硬盘——公司服务器或各种惠普企业存储产品中的 800GB 或 1.6TB 硬盘，而不是你的台式 PC 或笔记本电脑。
 

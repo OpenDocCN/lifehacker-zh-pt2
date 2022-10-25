@@ -1,6 +1,6 @@
 # Vive Pro Eye 是虚拟现实的下一个重大进步
 
-> 原文:[https://gizmodo . com/the-next-evolution-in-VR-is-the-vive-pro-eye-1831559650](https://gizmodo.com/the-next-evolution-in-vr-is-the-vive-pro-eye-1831559650)
+> 原文：<https://gizmodo.com/the-next-evolution-in-vr-is-the-vive-pro-eye-1831559650>
 
 当脸书和 Oculus 凭借 [Oculus Go](http://Follow along with all of our CES 2019 coverage here) 和即将推出的 [Oculus Quest](https://gizmodo.com/the-oculus-quest-is-real-facebook-promises-400-standa-1829336268) 追赶普通人时，HTC Vive 似乎正朝着相反的方向前进，试图通过新的 Vive Pro Eye 将 VR 体验推得更远。
 

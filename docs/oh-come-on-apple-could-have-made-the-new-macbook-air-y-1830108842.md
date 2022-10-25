@@ -1,6 +1,6 @@
 # 哦，得了吧，苹果几年前就可以制造出“新”MacBook Air 了
 
-> 原文:[https://gizmodo . com/oh-come-on-apple-could-make-the-new-macbook-air-y-1830108842](https://gizmodo.com/oh-come-on-apple-could-have-made-the-new-macbook-air-y-1830108842)
+> 原文：<https://gizmodo.com/oh-come-on-apple-could-have-made-the-new-macbook-air-y-1830108842>
 
 围绕 MacBook Air 有一种奇怪的热情，我从来没有完全理解。当然，当史蒂夫·乔布斯在 2008 年从一个马尼拉信封中取出第一封信时，那简直酷毙了。但在此后的 10 年里， [苹果曾经行业领先的笔记本电脑](https://gizmodo.com/how-the-macbook-air-changed-laptops-forever-1822466412) 被忽视和抛弃，以至于成为一个流传的笑话。
 

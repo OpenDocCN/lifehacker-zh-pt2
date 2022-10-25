@@ -1,6 +1,6 @@
 # 不要忘记你的失业救济金的税收
 
-> 原文:[https://life hacker . com/don-t-forget-about-taxes-on-your lose-benefits-1844647688](https://lifehacker.com/don-t-forget-about-taxes-on-your-unemployment-benefits-1844647688)
+> 原文：<https://lifehacker.com/don-t-forget-about-taxes-on-your-unemployment-benefits-1844647688>
 
 尽管美国经济在 7 月份 [增加了 180 万个就业岗位](https://www.bls.gov/news.release/pdf/empsit.pdf) ，这个国家却在遭受打击，与的失业率都在两位数。如果你是目前约 3000 万领取失业救济金的美国人之一，你可能会渴望了解最新一轮刺激谈判的最新进展——但税务专家表示，你应该意识到另一个迫在眉睫的问题。
 

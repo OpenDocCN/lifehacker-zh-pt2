@@ -1,6 +1,6 @@
 # 开始圣诞节“捐赠倒计时”
 
-> 原文:[https://life hacker . com/start-a-giving-count-to-Christmas-1840171000](https://lifehacker.com/start-a-giving-countdown-to-christmas-1840171000)
+> 原文：<https://lifehacker.com/start-a-giving-countdown-to-christmas-1840171000>
 
 为了准备今天的“给予星期二”,我最近在社交媒体上为我最喜欢的非营利组织之一发起了一场筹款活动。一位捐款的朋友提到，他们把这份礼物作为她家“圣诞节送礼倒计时”的一部分。他们创造了一个充满欢乐和慷慨的降临节日历。
 

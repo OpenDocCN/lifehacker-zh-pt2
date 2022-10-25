@@ -1,6 +1,6 @@
 # 如何清洁猫砂盒
 
-> 原文:[https://lifehacker.com/how-to-clean-a-litter-box-1843428474](https://lifehacker.com/how-to-clean-a-litter-box-1843428474)
+> 原文：<https://lifehacker.com/how-to-clean-a-litter-box-1843428474>
 
 垃圾箱。如果你是一个养猫的人——特别是如果你的猫似乎每天都要拉掉它们体重的一半，比如我的猫——这个肮脏的长方形会引起一种特别的不安感。清洁它是每个猫主人害怕的任务。情况不一定如此。
 

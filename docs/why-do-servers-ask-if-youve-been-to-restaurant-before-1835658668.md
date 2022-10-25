@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:为什么服务员会问你以前去过这家餐厅？
 
-> 原文:[https://the take out . com/why-do-servers-ask-if-you-before-to-restaurant 1835658668](https://thetakeout.com/why-do-servers-ask-if-youve-been-to-restaurant-before-1835658668)
+> 原文：<https://thetakeout.com/why-do-servers-ask-if-youve-been-to-restaurant-before-1835658668>
 
 > 嘿咸:为什么 YYYY 服务员会问你以前去过这家餐厅吗？
 > 

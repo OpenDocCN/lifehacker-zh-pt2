@@ -1,6 +1,6 @@
 # 正宗的意大利婚礼汤是对我所有烹饪错误的忏悔
 
-> 原文:[https://the take out . com/recipe-proper-Italian-wedding-soup-1833035950](https://thetakeout.com/recipe-proper-italian-wedding-soup-1833035950)
+> 原文：<https://thetakeout.com/recipe-proper-italian-wedding-soup-1833035950>
 
 我们来谈谈艾德·阿尔弗雷多。我知道艾德·阿尔弗雷多听起来像个化名，或者是别人拿枪指着你的头让你快速说出黑帮老大的名字时你编的，但我发誓他是真的。艾德和我一起在宾夕法尼亚州西部的一家乡村俱乐部工作，另一份工作在我声名狼藉的职业生涯中担任 [线厨师](https://thetakeout.com/pittsburgh-salad-french-fries-1831592099#_ga=2.185709289.1731109329.1552187299-1235910833.1537835469) 。
 

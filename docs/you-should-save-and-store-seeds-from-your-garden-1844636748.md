@@ -1,6 +1,6 @@
 # 你应该保存和储存你花园里的种子
 
-> 原文:[https://life hacker . com/you-should-save-and-store-seeds-from-your-garden-1844636748](https://lifehacker.com/you-should-save-and-store-seeds-from-your-garden-1844636748)
+> 原文：<https://lifehacker.com/you-should-save-and-store-seeds-from-your-garden-1844636748>
 
 作为第一次园丁，我的许多失败之一是让我的绿色植物结籽。我没有收获精心照料的羽衣甘蓝和莴苣，而是等了太久，结果一无所获。
 

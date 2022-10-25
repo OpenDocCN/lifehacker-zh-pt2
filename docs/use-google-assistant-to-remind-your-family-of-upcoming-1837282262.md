@@ -1,6 +1,6 @@
 # 使用谷歌助手提醒你的家人即将举行的活动
 
-> 原文:[https://life hacker . com/use-Google-assistant-to-remind-your-family-of-coming-1837282262](https://lifehacker.com/use-google-assistant-to-remind-your-family-of-upcoming-1837282262)
+> 原文：<https://lifehacker.com/use-google-assistant-to-remind-your-family-of-upcoming-1837282262>
 
 当你是家里有条理的人，或者是唯一一个记录不断增长的待办事项清单的人时，你会觉得你的一天充满了给你爱的人发短信和写便利贴，这样他们就不会忘记他们肯定已经忘记的事情。谁需要它？对我们所有人来说幸运的是，科技已经来拯救我们了。谷歌助手现在可以向你的孩子、配偶或你的 [家庭群组](https://families.google.com/families) 中的任何人发送通知——唯一的要求是他们有自己的谷歌账户同步到家庭群组。
 

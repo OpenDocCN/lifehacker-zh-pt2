@@ -1,6 +1,6 @@
 # 你坐飞机见过最糟糕的事是什么？
 
-> 原文:[https://jalopnik . com/你在飞行中见过的最糟糕的事是什么-1839715805](https://jalopnik.com/whats-the-worst-thing-youve-ever-seen-while-flying-1839715805)
+> 原文：<https://jalopnik.com/whats-the-worst-thing-youve-ever-seen-while-flying-1839715805>
 
 任何一个经常乘飞机旅行的人都可能会因为他们在飞行中经历的所有可怕的事情而有一套非常特殊的烦恼——但是有些事情完全超越了小烦恼。你知道，那些你简直不敢相信有人真的做了的事情，那些让你吃了一口恶气，对人类的处境有一种模糊的恐惧感的事情。
 

@@ -1,6 +1,6 @@
 # 如何建立零基预算
 
-> 原文:[https://life hacker . com/how-to-set-a-zero-based-budget-1844071656](https://lifehacker.com/how-to-set-up-a-zero-based-budget-1844071656)
+> 原文：<https://lifehacker.com/how-to-set-up-a-zero-based-budget-1844071656>
 
 到目前为止，我们已经回顾了两种预算方法的设置，这两种方法侧重于广泛的类别并修改您对每个类别的分配: [50/20/30 预算](https://twocents.lifehacker.com/how-to-set-up-a-50-20-30-budget-1843889336) 和 [60/40 预算](https://twocents.lifehacker.com/how-to-set-up-a-60-40-budget-1843985810?rev=1592426261405) 。
 

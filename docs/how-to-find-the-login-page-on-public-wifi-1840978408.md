@@ -1,6 +1,6 @@
 # 如何在公共 Wifi 上找到登录页面
 
-> 原文:[https://life hacker . com/how-to-find-the-log in-page-on-public-wifi-1840978408](https://lifehacker.com/how-to-find-the-login-page-on-public-wifi-1840978408)
+> 原文：<https://lifehacker.com/how-to-find-the-login-page-on-public-wifi-1840978408>
 
 取决于你住在哪里，有很多地方提供免费的 wifi 连接，这样你就可以远程工作或学习，或者避免在智能手机上突破数据限制。然而，一些公共网络在连接过程中非常烦人，各种各样的间隙登录页面挡在你和那个可爱的无线网络之间。
 

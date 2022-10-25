@@ -1,6 +1,6 @@
 # 把你的玉米煎饼放在杯子里，而不是盘子里
 
-> 原文:[https://life hacker . com/put-your-burrito-in-a-mug-而不是-on-a-plate-1834933277](https://lifehacker.com/put-your-burrito-in-a-mug-instead-of-on-a-plate-1834933277)
+> 原文：<https://lifehacker.com/put-your-burrito-in-a-mug-instead-of-on-a-plate-1834933277>
 
 一些想法没有得到最初应得的赞扬。早在 16 世纪哥白尼的日心太阳系就是如此，今天 Reddit 用户 shananies 带给我们的玉米煎饼也是如此。
 

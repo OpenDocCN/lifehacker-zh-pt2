@@ -1,6 +1,6 @@
 # 把这些财务记录放在你的“随身包”里
 
-> 原文:[https://life hacker . com/keep-these-financial-records-in-your-go-bag-1835947477](https://lifehacker.com/keep-these-financial-records-in-your-go-bag-1835947477)
+> 原文：<https://lifehacker.com/keep-these-financial-records-in-your-go-bag-1835947477>
 
 但是，即使你不像我一样生活在飓风多发地区，也没有理由不为最坏的情况准备好应急装备，无论是野火还是 [洪水](https://lifehacker.com/what-to-do-before-during-and-after-a-flood-1835209186) 或 [地震](https://lifehacker.com/heres-everything-you-need-to-know-to-survive-an-earthqu-1826238047) 。
 

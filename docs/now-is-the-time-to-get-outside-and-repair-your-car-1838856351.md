@@ -1,6 +1,6 @@
 # 冬天来了，所以现在是时候出去修理你的车了
 
-> 原文:[https://jalopnik . com/now-is-time-to-get-out-and-repair-your car-1838856351](https://jalopnik.com/now-is-the-time-to-get-outside-and-repair-your-car-1838856351)
+> 原文：<https://jalopnik.com/now-is-the-time-to-get-outside-and-repair-your-car-1838856351>
 
 过去的这个周末，白天的每一刻我都在打理一辆 1985 年的吉普 J10 和一辆 [2000 吉普切诺基](https://jalopnik.com/heres-whats-wrong-with-my-500-low-mileage-jeep-cheroke-1836311140) 。为什么我要牺牲宝贵的几个小时来享受社交生活呢？因为如果我等太久去修车，我就完了。如果你也这样做，你也会的。
 

@@ -1,6 +1,6 @@
 # 如何虚拟参加 DC 爵士音乐节演出
 
-> 原文:[https://life hacker . com/how-to-virtual-accept-DC-jazz-festival-performations-1843935577](https://lifehacker.com/how-to-virtually-attend-dc-jazz-festival-performances-1843935577)
+> 原文：<https://lifehacker.com/how-to-virtually-attend-dc-jazz-festival-performances-1843935577>
 
 像今年的许多现场活动一样，DC 爵士音乐节因为新冠肺炎疫情 — 而被推迟，但这并不意味着你不能享受一些世界上最好的爵士音乐家的流畅声音。尽管官方现场活动暂时搁置，但每个周六， [DCJazzFest from Home 系列](https://dcjazzfest.org/dcjazzfest-from-home-series) 都会播放新的音乐会供您观看和聆听。
 

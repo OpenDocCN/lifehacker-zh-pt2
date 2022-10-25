@@ -1,6 +1,6 @@
 # 谷歌地图现在显示附近的外卖和送货选项
 
-> 原文:[https://life hacker . com/Google-maps-now-shows-nearly-take out-and-delivery-optio-1842707092](https://lifehacker.com/google-maps-now-shows-nearby-takeout-and-delivery-optio-1842707092)
+> 原文：<https://lifehacker.com/google-maps-now-shows-nearby-takeout-and-delivery-optio-1842707092>
 
 点餐还是取餐？谷歌地图更新了两个搜索过滤器，突出显示了附近的外卖和配送选项。新的搜索选项在美国、加拿大、T4 和法国都可以在 Android 和 iOS 上正式使用，但是其他国家的用户也报告说看到了这个功能，所以不管你住在哪里都值得一试。
 

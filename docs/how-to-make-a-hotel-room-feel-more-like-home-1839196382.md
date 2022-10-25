@@ -1,6 +1,6 @@
 # 如何让酒店房间更有家的感觉
 
-> 原文:[https://life hacker . com/how-to-make-a-hotel-room-feel-more-like-home-1839196382](https://lifehacker.com/how-to-make-a-hotel-room-feel-more-like-home-1839196382)
+> 原文：<https://lifehacker.com/how-to-make-a-hotel-room-feel-more-like-home-1839196382>
 
 如果你出差，那么很有可能你会把至少几个酒店房间当成“家”
 

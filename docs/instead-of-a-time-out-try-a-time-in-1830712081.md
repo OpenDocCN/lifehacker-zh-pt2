@@ -1,6 +1,6 @@
 # 不要暂停，尝试暂停
 
-> 原文:[https://life hacker . com/inst-of-a-time-out-try-a-time-in-1830712081](https://lifehacker.com/instead-of-a-time-out-try-a-time-in-1830712081)
+> 原文：<https://lifehacker.com/instead-of-a-time-out-try-a-time-in-1830712081>
 
 当我的儿子还是一个爱发脾气(有点好斗)的学步儿童/学龄前儿童时，我们花了很多时间来执行由来已久的暂停传统。由于超级巨星乔·弗罗斯特 而变得格外受欢迎，暂停似乎有点像最后的结果——老实说并不是非常有效——但我们发现自己一遍又一遍地去做，不知道如何纠正非常不好的行为。
 

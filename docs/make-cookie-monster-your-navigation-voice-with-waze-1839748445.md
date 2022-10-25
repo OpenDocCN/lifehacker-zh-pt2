@@ -1,6 +1,6 @@
 # 用 Waze 让 Cookie Monster 成为你的导航语音
 
-> 原文:[https://life hacker . com/make-cookie-monster-your-navigation-voice-with-waze-1839748445](https://lifehacker.com/make-cookie-monster-your-navigation-voice-with-waze-1839748445)
+> 原文：<https://lifehacker.com/make-cookie-monster-your-navigation-voice-with-waze-1839748445>
 
 今年早些时候，Waze [让 Cookie Monster 成为其导航语音](https://lifehacker.com/how-to-make-cookie-monster-your-navigation-voice-in-waz-1836584967) 之一。这很有趣，但也是一种有限的参与，这意味着如果你有 Cookie 指导你，他最终会消失，并被默认的 Waze 声音取代。
 

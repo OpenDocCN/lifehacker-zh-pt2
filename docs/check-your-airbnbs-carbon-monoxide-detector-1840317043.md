@@ -1,6 +1,6 @@
 # 检查你的 Airbnb 的一氧化碳探测器
 
-> 原文:[https://life hacker . com/check-your-air bnbs-一氧化碳探测器-1840317043](https://lifehacker.com/check-your-airbnbs-carbon-monoxide-detector-1840317043)
+> 原文：<https://lifehacker.com/check-your-airbnbs-carbon-monoxide-detector-1840317043>
 
 5 月， [六名游客](https://www.yahoo.com/news/6-brazilian-tourists-die-carbon-monoxide-chile-235023548.html) 在智利圣地亚哥的一家 Airbnb 租赁酒店住宿时死于一氧化碳中毒。这不是一个孤立的事件。2018 年， [一对去墨西哥圣米格尔德阿连德](https://www.usatoday.com/story/travel/2018/12/11/airbnb-security-mexico-costa-rica-deaths/2239544002/) 旅游的夫妇也在不知情的情况下吸入了他们 Airbnb 出租房里的加热器发出的气体后死亡。
 

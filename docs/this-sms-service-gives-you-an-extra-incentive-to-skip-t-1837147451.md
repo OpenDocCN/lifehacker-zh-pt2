@@ -1,6 +1,6 @@
 # 这项短信服务给了你一个跳过贪睡按钮的额外激励
 
-> 原文:[https://life hacker . com/this-SMS-service-give-a-extra-incentive-to-skip-t-1837147451](https://lifehacker.com/this-sms-service-gives-you-an-extra-incentive-to-skip-t-1837147451)
+> 原文：<https://lifehacker.com/this-sms-service-gives-you-an-extra-incentive-to-skip-t-1837147451>
 
 早上醒来很难。有时候很辛苦。
 

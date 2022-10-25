@@ -1,6 +1,6 @@
 # 停止发送普通短信
 
-> 原文:[https://gizmodo . com/stop-sending-regular-text-messages-1831258324](https://gizmodo.com/stop-sending-regular-text-messages-1831258324)
+> 原文：<https://gizmodo.com/stop-sending-regular-text-messages-1831258324>
 
 多亏了上周联邦通信委员会的投票，无线运营商现在对你的短信有了更多的控制权。如果这听起来是不祥之兆，那是因为它是如此之大，以至于现在是完全抛弃常规短信的最佳时机。
 

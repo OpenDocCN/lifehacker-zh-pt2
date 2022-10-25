@@ -1,6 +1,6 @@
 # 如果买房似乎不可能，那就制定一个三年储蓄计划
 
-> 原文:[https://life hacker . com/if-buying-a home-same-impossible-create-a-three-year-1838043406](https://lifehacker.com/if-buying-a-home-seems-impossible-create-a-three-year-1838043406)
+> 原文：<https://lifehacker.com/if-buying-a-home-seems-impossible-create-a-three-year-1838043406>
 
 房主和租房者之间的对话有时是这样的:房主会问租房者，当他们每月的付款可以用来拥有一栋房子的时候，他们为什么要把钱浪费在房租上。租房者说，“我没钱付首付。”如果租房者很幸运，房主耸耸肩，谈话就到此为止，租房者不会因为讨论他们可能没有准备好考虑的房屋所有权的复杂性而感到内疚。对许多人来说，拥有住房似乎是一个不可能实现的梦想。
 

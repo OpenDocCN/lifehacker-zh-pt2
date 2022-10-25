@@ -1,6 +1,6 @@
 # 如何打开 Skype 新的实时字幕功能
 
-> 原文:[https://life hacker . com/how-to-turn-on-Skype-new-real-time-captioning-feature-1830961689](https://lifehacker.com/how-to-turn-on-skypes-new-real-time-captioning-feature-1830961689)
+> 原文：<https://lifehacker.com/how-to-turn-on-skypes-new-real-time-captioning-feature-1830961689>
 
 如果您耳聋或听力不好，那么拨打或参与 Skype 通话可能是一件复杂的事情。本周， [微软推出了一个功能](https://blogs.skype.com/news/2018/12/03/introducing-live-captions-and-subtitles-in-skype/) 让事情变得简单一点:标题和字幕。
 

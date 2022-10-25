@@ -1,6 +1,6 @@
 # 2019 年 4 月网飞有什么来往
 
-> 原文:[https://life hacker . com/whats-coming-and-going-in-four-2019-1833405108](https://lifehacker.com/whats-coming-and-going-from-netflix-in-april-2019-1833405108)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-in-april-2019-1833405108>
 
 网飞继续从流媒体平台转型为 HBO 的竞争对手，在 4 月份增加了几十个原创节目，同时失去了许多授权目录。如果你对网飞自己的作品不感兴趣，并且你是为了经典电影图书馆而来，那么是时候退订了。
 

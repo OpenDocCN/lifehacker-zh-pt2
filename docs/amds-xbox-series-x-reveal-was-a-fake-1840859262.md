@@ -1,6 +1,6 @@
 # AMD 的 Xbox 系列 X 'Reveal '是假的
 
-> 原文:[https://life hacker . com/amds-Xbox-series-x-reveal-was-a-fake-1840859262](https://lifehacker.com/amds-xbox-series-x-reveal-was-a-fake-1840859262)
+> 原文：<https://lifehacker.com/amds-xbox-series-x-reveal-was-a-fake-1840859262>
 
 虽然新游戏硬件的发布对于主机游戏迷来说总是一个令人兴奋的时刻，但在今年晚些时候微软 Xbox Series X 和索尼 PlayStation 5 正式发布之前，我们肯定会看到大量虚假的“泄漏”和谣言。有时，这些“泄漏”甚至来自你意想不到的地方——比如另一家大公司的新闻发布会。
 

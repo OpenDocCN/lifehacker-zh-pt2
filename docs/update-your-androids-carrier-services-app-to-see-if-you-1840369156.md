@@ -1,6 +1,6 @@
 # 更新你的安卓“运营商服务”应用，看看你是否有 RCS 信息
 
-> 原文:[https://life hacker . com/update-your-androids-carrier-services-app-to-see-if-you-1840369156](https://lifehacker.com/update-your-androids-carrier-services-app-to-see-if-you-1840369156)
+> 原文：<https://lifehacker.com/update-your-androids-carrier-services-app-to-see-if-you-1840369156>
 
 RCS messaging 是谷歌为其 Android 操作系统推出的下一代短信服务，自去年 11 月以来一直在 Android 智能手机上推广。这并不意味着你的手机，在你的运营商上，可以使用 [这种超级改进版本的短信](https://lifehacker.com/how-to-check-if-you-have-access-to-googles-rcs-messagin-1839891234) ，但是你的运营商服务应用程序的新更新可能会为你解锁。
 

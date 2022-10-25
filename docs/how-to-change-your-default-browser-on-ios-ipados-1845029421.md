@@ -1,6 +1,6 @@
 # 如何更改 iOS/iPadOS 上的默认浏览器
 
-> 原文:[https://life hacker . com/how-to-change-your-default-browser-on-IOs-IP ados-1845029421](https://lifehacker.com/how-to-change-your-default-browser-on-ios-ipados-1845029421)
+> 原文：<https://lifehacker.com/how-to-change-your-default-browser-on-ios-ipados-1845029421>
 
 厌倦了 iPhone 或 iPad 上的 Safari？你可以从 App Store 安装很多其他很棒的替代品——没问题。但是如果你想在你的设备上使用它们作为你的默认浏览器，你必须通过一些额外的关卡。
 

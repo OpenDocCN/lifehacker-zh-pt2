@@ -1,6 +1,6 @@
 # 为什么你应该避免健康共享部委
 
-> 原文:[https://life hacker . com/why-you-should-avoid-health-sharing-ministries-1844766937](https://lifehacker.com/why-you-should-avoid-health-sharing-ministries-1844766937)
+> 原文：<https://lifehacker.com/why-you-should-avoid-health-sharing-ministries-1844766937>
 
 随着疫情的继续，特朗普总统悄悄对患者保护与平价医疗法案发起了另一场攻击:财政部提出了一项 [新法规](https://www.federalregister.gov/documents/2020/06/10/2020-12213/certain-medical-care-arrangements) 将医疗保健共享部委定义为医疗保险。正如《T4 时报》报道的那样，新规则可以通过使医疗保健共享部门的费用免税来增加这些基于信仰的计划的吸引力，这些计划已经收取较低的月保费。
 

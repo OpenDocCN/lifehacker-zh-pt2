@@ -1,6 +1,6 @@
 # 如果没有温度计，如何判断你的不锈钢锅是否足够热
 
-> 原文:[https://life hacker . com/how-to-tell-if-your ' s 不锈钢锅是否够热-w-1835458729](https://lifehacker.com/how-to-tell-if-your-stainless-steel-pan-is-hot-enough-w-1835458729)
+> 原文：<https://lifehacker.com/how-to-tell-if-your-stainless-steel-pan-is-hot-enough-w-1835458729>
 
 不锈钢锅是厨房的主要工具，但是它们的学习曲线非常小，尤其是在烤焦食物而不粘锅的时候。在加入油之前让锅变热是关键，但是通过视觉来确定某物的温度不是大多数人所拥有的技能。
 

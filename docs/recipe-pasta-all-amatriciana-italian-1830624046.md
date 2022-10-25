@@ -1,6 +1,6 @@
 # 正宗的意大利面只有一个要求
 
-> 原文:[https://the take out . com/recipe-pasta-all-amatricia na-Italian-1830624046](https://thetakeout.com/recipe-pasta-all-amatriciana-italian-1830624046)
+> 原文：<https://thetakeout.com/recipe-pasta-all-amatriciana-italian-1830624046>
 
 下次你在菜单上看到意大利面时，不要点它。我是认真的。算是吧。你最好自己做，这样你就能看到它包含了最重要的成分。
 

@@ -1,6 +1,6 @@
 # 如何捐赠或处理你的旧油漆
 
-> 原文:[https://life hacker . com/how-to-donate-or-dispose-your-old-paint-1834481469](https://lifehacker.com/how-to-donate-or-dispose-of-your-old-paint-1834481469)
+> 原文：<https://lifehacker.com/how-to-donate-or-dispose-of-your-old-paint-1834481469>
 
 除非你在地下室、阁楼或棚子的黑暗角落里藏了几堆用过一半的油漆罐，否则你不是一个真正的房主。有些是你搬进来之前在墙上扔了一件新衣服后剩下的，也许是你改造浴室时留下的，甚至是前主人的几件旧衣服。
 

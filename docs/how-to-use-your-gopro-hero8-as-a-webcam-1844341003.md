@@ -1,6 +1,6 @@
 # 如何将 GoPro HERO8 用作网络摄像头
 
-> 原文:[https://life hacker . com/how-to-use-your-go pro-hero 8-as-a-web cam-1844341003](https://lifehacker.com/how-to-use-your-gopro-hero8-as-a-webcam-1844341003)
+> 原文：<https://lifehacker.com/how-to-use-your-gopro-hero8-as-a-webcam-1844341003>
 
 经过几个月的隔离，我们都习惯了远程工作和社交(对吗？).无处不在的摄像头吹捧设备和 [丰富的视频聊天应用](https://lifehacker.com/find-the-best-video-chat-app-with-this-mega-guide-1842732323) 让这种转变变得容易(嗯，不是*容易* ) ，但总有改进的空间——让你的视频聊天看起来更好的一个方法就是获得一个更好的网络摄像头。
 

@@ -1,6 +1,6 @@
 # 为什么你应该点“未切”的披萨
 
-> 原文:[https://life hacker . com/why-you-should-order-your pizza-uncut-1842592481](https://lifehacker.com/why-you-should-order-your-pizza-uncut-1842592481)
+> 原文：<https://lifehacker.com/why-you-should-order-your-pizza-uncut-1842592481>
 
 由于外出就餐(我最喜欢的爱好)现在不是一个选项，订购外卖已经成为一件大事，尤其是订购披萨。而且，因为没有太多其他的事情发生，所以幸福很大程度上取决于那些披萨。这就是为什么我点了未切片的披萨。
 

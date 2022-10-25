@@ -1,6 +1,6 @@
 # 不旅行如何做国际志愿者
 
-> 原文:[https://life hacker . com/how-to-volunteer-international-without-traveling-1844278165](https://lifehacker.com/how-to-volunteer-internationally-without-traveling-1844278165)
+> 原文：<https://lifehacker.com/how-to-volunteer-internationally-without-traveling-1844278165>
 
 疫情使整个世界陷入危机；世界各地的人们都需要很多东西，包括工作、医疗保健、食物、住房等等。虽然旅行开始开放，但在没有疫苗的情况下，并不是每个人都想坐飞机。
 

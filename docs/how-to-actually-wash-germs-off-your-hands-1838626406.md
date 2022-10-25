@@ -1,6 +1,6 @@
 # 如何洗掉手上的细菌
 
-> 原文:[https://life hacker . com/how-to-really-wash-off-your-hands-1838626406](https://lifehacker.com/how-to-actually-wash-germs-off-your-hands-1838626406)
+> 原文：<https://lifehacker.com/how-to-actually-wash-germs-off-your-hands-1838626406>
 
 洗手是不生病 或使他人生病的 [必不可少的重要部分。我们大多数人都不擅长这个。如果你只洗了几秒钟手，或者你在水龙头下晃了晃然后用肮脏的毛巾擦干手，那么是时候开始你的游戏了。](https://www.cdc.gov/handwashing/why-handwashing.html)
 

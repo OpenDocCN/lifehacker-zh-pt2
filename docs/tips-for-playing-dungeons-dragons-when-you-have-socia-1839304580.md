@@ -1,6 +1,6 @@
 # 社交焦虑时玩龙与地下城的小贴士
 
-> 原文:[https://kotaku . com/tips-for-playing-dungons-dragons-when-you-have-socia-1839304580](https://kotaku.com/tips-for-playing-dungeons-dragons-when-you-have-socia-1839304580)
+> 原文：<https://kotaku.com/tips-for-playing-dungeons-dragons-when-you-have-socia-1839304580>
 
 *龙与地下城&龙*也许有龙与地下城，但它真正的秘制酱是别人。地下城主和党员使战役变得有趣和不可预测，迫使玩家进入高风险的骰子游戏。然而，当你想参与行动，但你也有一个糟糕的、愚蠢的大脑，每当它进入一个涉及其他人的陌生环境时，就会像受惊的老鼠一样尖叫，这时你该怎么办呢？
 

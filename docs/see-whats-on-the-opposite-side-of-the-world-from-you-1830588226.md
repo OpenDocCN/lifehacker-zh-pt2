@@ -1,6 +1,6 @@
 # 看看世界的另一边有什么
 
-> 原文:[https://life hacker . com/see-whats-on-the-opposite-the-side-of-the-world-from-you-1830588226](https://lifehacker.com/see-whats-on-the-opposite-side-of-the-world-from-you-1830588226)
+> 原文：<https://lifehacker.com/see-whats-on-the-opposite-side-of-the-world-from-you-1830588226>
 
 当我还是个孩子的时候，我记得大人们开玩笑说，任何深洞(可能是我在沙箱里挖的)都会“直通中国”。所以我当然得找个地球仪来验证。惊喜:我真的会葬身大海，在澳大利亚海岸的某个地方。今天，你可以用 [对跖地图](https://www.antipodesmap.com/) 在线回答同样的问题。
 

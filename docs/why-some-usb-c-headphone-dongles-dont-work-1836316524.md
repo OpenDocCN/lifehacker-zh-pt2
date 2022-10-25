@@ -1,6 +1,6 @@
 # 为什么一些 USB-C 耳机连接器不工作
 
-> 原文:[https://life hacker . com/why-some-USB-c-headphone-dongles-dong-work-1836316524](https://lifehacker.com/why-some-usb-c-headphone-dongles-dont-work-1836316524)
+> 原文：<https://lifehacker.com/why-some-usb-c-headphone-dongles-dont-work-1836316524>
 
 自从苹果抛弃了 iPhone 的耳机插孔，让你的旧耳机与新智能手机兼容就成了一个棘手的问题。许多 Android 机型仍然有 3.5 毫米音频插孔，但一些机型，如三星即将推出的 Galaxy Note 10，已经跟随苹果的脚步，转向一个单一的连接选项:USB-C
 

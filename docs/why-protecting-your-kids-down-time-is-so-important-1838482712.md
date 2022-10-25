@@ -1,6 +1,6 @@
 # 为什么保护孩子的休息时间如此重要
 
-> 原文:[https://life hacker . com/why-protecting-your-kids-down-time-so-important-1838482712](https://lifehacker.com/why-protecting-your-kids-down-time-is-so-important-1838482712)
+> 原文：<https://lifehacker.com/why-protecting-your-kids-down-time-is-so-important-1838482712>
 
 我们知道孩子们被过度安排和过度工作。我们知道他们比我们小时候有更少的休息时间，更少的无聊时间和更少的玩耍时间。但我们可能没有意识到的是，学生身上的所有压力——尤其是那些在“高成就”学校的学生——正在导致焦虑、抑郁、药物滥用和违法行为的发生率上升。
 

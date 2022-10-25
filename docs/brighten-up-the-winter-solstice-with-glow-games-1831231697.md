@@ -1,6 +1,6 @@
 # 用发光游戏点亮冬至
 
-> 原文:[https://life hacker . com/brighten-up-the-冬至-glow-games-1831231697](https://lifehacker.com/brighten-up-the-winter-solstice-with-glow-games-1831231697)
+> 原文：<https://lifehacker.com/brighten-up-the-winter-solstice-with-glow-games-1831231697>
 
 在今年的大部分时间里，从某种意义上来说，一切都很黑暗。但是今晚，黑暗也将在字面上笼罩着我们:今天是冬至——一年中最短的一天，因此也是一年中最长的*夜*。这是和你的孩子玩发光游戏的完美夜晚。
 

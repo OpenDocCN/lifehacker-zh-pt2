@@ -1,6 +1,6 @@
 # 2019 年 1 月 7 日这一周，网飞有什么动静
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of-January-1831572552](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-january-1831572552)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-january-1831572552>
 
 好在你这周正忙着做你的废话，因为网飞能提供的最好的是 *Solo: A Star Wars Story* (周三)*，*，我很想对此感到兴奋，但网飞上可供我使用的“Star Wars stories”的绝对数量使另一个的到来变得无足轻重。我可能会找到去《大学好友 T4》的路:第二季(周五)*，*仅仅是因为无论如何我都会带上我的科甘·迈克尔·基补丁。即使我不记得第一季的任何事情，除了我非常讨厌每个角色。
 

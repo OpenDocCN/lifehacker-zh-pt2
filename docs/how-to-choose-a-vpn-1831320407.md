@@ -1,6 +1,6 @@
 # how to choose a vpn 1831320407
 
-> 原文:[https://lifehacker.com/how-to-choose-a-vpn-1831320407](https://lifehacker.com/how-to-choose-a-vpn-1831320407)
+> 原文：<https://lifehacker.com/how-to-choose-a-vpn-1831320407>
 
 [Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)) : title[![](../Images/ce8fdf9d40d4898cdc1fe3570dd2a22f.png)](https://dataprivacy.kinja.com)[Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)We'll walk you through everything you should do to live the most secure, private life in the digital era.
 

@@ -1,6 +1,6 @@
 # 在速食味噌里煮一个鸡蛋，做一顿快速美味的早餐
 
-> 原文:[https://life hacker . com/pocket-a egg-in-instant-miso-for-a quick-salvour-break f-1842863559](https://lifehacker.com/poach-an-egg-in-instant-miso-for-a-quick-savory-breakf-1842863559)
+> 原文：<https://lifehacker.com/poach-an-egg-in-instant-miso-for-a-quick-savory-breakf-1842863559>
 
 我总是说我是一个“美味的早餐食用者”，但事实是，我根本很少吃早餐(T2)。不管是好是坏，我已经以这样一种方式安排了我的生活:我几乎一睁开眼睛就开始写作；停下来做一顿“真正的”早餐会带来更多不必要的焦虑。如果准备时间超过五分钟，那就不是我在工作日早上要吃的东西。
 

@@ -1,6 +1,6 @@
 # 你自制的猫粮可能对你的猫有害
 
-> 原文:[https://life hacker . com/your-manufactured-cat-food-may-bad for your-cat-1834593452](https://lifehacker.com/your-homemade-cat-food-may-be-bad-for-your-cat-1834593452)
+> 原文：<https://lifehacker.com/your-homemade-cat-food-may-be-bad-for-your-cat-1834593452>
 
 如果你想彻底改变自己的饮食习惯，更多地在家做饭，你可能会想为你的猫做同样的事情。有很多自制猫粮的食谱，但是最近的一项研究发现它们中的许多都没有提供适当的营养。
 

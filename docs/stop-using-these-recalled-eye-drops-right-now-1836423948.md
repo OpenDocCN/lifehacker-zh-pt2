@@ -1,6 +1,6 @@
 # 立即停止使用这些召回的眼药水
 
-> 原文:[https://life hacker . com/stop-use-these-recall-eye-drops-right-now-1836423948](https://lifehacker.com/stop-using-these-recalled-eye-drops-right-now-1836423948)
+> 原文：<https://lifehacker.com/stop-using-these-recalled-eye-drops-right-now-1836423948>
 
 几种非处方药眼药水，包括沃尔玛、沃尔格林和 CVS 品牌下专门包装的眼药水，由于担心它们可能不是无菌的，已经被召回。
 

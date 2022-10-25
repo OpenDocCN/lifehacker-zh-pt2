@@ -1,6 +1,6 @@
 # 如何在卢浮宫度过一晚
 
-> 原文:[https://life hacker . com/how-to-spend a night-in-Louvre-1833814716](https://lifehacker.com/how-to-spend-a-night-in-the-louvre-1833814716)
+> 原文：<https://lifehacker.com/how-to-spend-a-night-in-the-louvre-1833814716>
 
 有没有因为 AirBnb 糟糕的评论而对预订持怀疑态度？(小厨房！位置不好！卫生纸不够！)
 

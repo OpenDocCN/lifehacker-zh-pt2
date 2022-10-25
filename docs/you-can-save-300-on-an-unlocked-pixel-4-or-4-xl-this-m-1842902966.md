@@ -1,6 +1,6 @@
 # 这个月你可以在一个未锁定的 Pixel 4 或 4 XL 上节省 300 美元
 
-> 原文:[https://life hacker . com/you-can-save-300-on-an-unlocked-pixel-4-or-4-XL-this-m-1842902966](https://lifehacker.com/you-can-save-300-on-an-unlocked-pixel-4-or-4-xl-this-m-1842902966)
+> 原文：<https://lifehacker.com/you-can-save-300-on-an-unlocked-pixel-4-or-4-xl-this-m-1842902966>
 
 Pixel 4a 很可能正在路上，就像之前的 3a 一样，我们预计它将是一款中端手机，适合那些不想为新设备支付旗舰价格，也不介意功能稍弱的手机的人。然而，如果你行动迅速，你可能会以不到正常价格三分之二的价格买到更强大的 Pixel 4 或 4xl——只比你可能为 Pixel 4a 支付的价格多 100 美元左右。
 

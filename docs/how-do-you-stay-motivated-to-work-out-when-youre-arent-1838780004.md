@@ -1,6 +1,6 @@
 # 当你看不到进步时，你如何保持锻炼的动力？
 
-> 原文:[https://life hacker . com/how-do-you-stay-motive-to-work-out-when you-parent-1838780004](https://lifehacker.com/how-do-you-stay-motivated-to-work-out-when-youre-arent-1838780004)
+> 原文：<https://lifehacker.com/how-do-you-stay-motivated-to-work-out-when-youre-arent-1838780004>
 
 在健身博客和举重论坛中有一个普遍的说法:你开始举重的那一天就是你永远变小的那一天。换句话说，经过多年的努力工作或当你达到目标时，你可能永远不会感到满足。
 

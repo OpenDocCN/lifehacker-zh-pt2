@@ -1,6 +1,6 @@
 # 美国穆斯林解释了“圣战”的真正含义
 
-> 原文:[https://life hacker . com/Muslim-Americans-explain-what-jihad-really-means-1831783003](https://lifehacker.com/muslim-americans-explain-what-jihad-really-means-1831783003)
+> 原文：<https://lifehacker.com/muslim-americans-explain-what-jihad-really-means-1831783003>
 
 *Gizmodo 媒体集团与 Smartypants Pictures 合作首播第二季* [*【穆斯林的秘密生活】*](http://www.secretlifeofmuslims.com/)*——一部关于现代伊斯兰教的视频系列，你不会在有线新闻上看到。*
 

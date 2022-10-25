@@ -1,6 +1,6 @@
 # 我们现在在喝玉米牛奶潘趣酒
 
-> 原文:[https://life hacker . com/were-drinking-corn-milk-punch-now-1844804596](https://lifehacker.com/were-drinking-corn-milk-punch-now-1844804596)
+> 原文：<https://lifehacker.com/were-drinking-corn-milk-punch-now-1844804596>
 
 “你和 [玉米](https://lifehacker.com/tag/corn) 最近怎么了？”我男朋友今天早上问我，很粗鲁。当时还不到九点，我刚刚宣布我将制作一杯玉米牛奶潘趣酒(为了工作)，从而继续我的 2020 年玉米完全成熟的计划(我可以补充一下，面对 [许多逆境](https://twitter.com/clairelizzie/status/1293325603500777474) )。
 

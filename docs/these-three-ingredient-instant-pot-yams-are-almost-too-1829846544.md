@@ -1,6 +1,6 @@
 # 这些三种成分的即食山药几乎太简单了
 
-> 原文:[https://life hacker . com/this-three-ingredient-instant-pot-yamas-is-almost-too 1829846544](https://lifehacker.com/these-three-ingredient-instant-pot-yams-are-almost-too-1829846544)
+> 原文：<https://lifehacker.com/these-three-ingredient-instant-pot-yams-are-almost-too-1829846544>
 
 昨晚，当我从烤箱里拿出本季第一只试验火鸡时，我突然想到我没有准备任何搭配烤火鸡的配菜。我需要一些能在火鸡休息时凑在一起的东西，而我只有三个山药。
 

@@ -1,6 +1,6 @@
 # 关于智能手机安全，杰夫·贝索斯能教给你什么
 
-> 原文:[https://life hacker . com/what-Jeff-be zos-can-teach-you-about-smart phone-security-1841188670](https://lifehacker.com/what-jeff-bezos-can-teach-you-about-smartphone-security-1841188670)
+> 原文：<https://lifehacker.com/what-jeff-bezos-can-teach-you-about-smartphone-security-1841188670>
 
 杰夫·贝索斯可能比你富有(很多),但他没有你聪明——至少，在基本的智能手机安全方面没有。你可能会读到并嘲笑(然后在你查了贝佐斯 [每分钟赚多少](https://qz.com/work/1410621/jeff-bezos-makes-more-than-his-least-amazon-paid-worker-in-11-5-seconds/) 后感叹)，沙特王储穆罕默德·本·萨勒曼最近通过 WhatsApp 给贝佐斯发了一个视频文件。《卫报》描述道，该文件实际上“包含了侵入贝佐斯手机的恶意软件，并在数小时内泄露了大量数据”。
 

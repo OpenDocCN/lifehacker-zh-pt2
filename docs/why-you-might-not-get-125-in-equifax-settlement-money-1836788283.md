@@ -1,6 +1,6 @@
 # 为什么您可能得不到 125 美元的 Equifax 结算款
 
-> 原文:[https://life hacker . com/why-you-may-not-get-125-in-equifax-settlement-money-1836788283](https://lifehacker.com/why-you-might-not-get-125-in-equifax-settlement-money-1836788283)
+> 原文：<https://lifehacker.com/why-you-might-not-get-125-in-equifax-settlement-money-1836788283>
 
 如果你要从 2017 年的 Equifax 数据泄露中索赔 125 美元的和解金，不要把这笔额外的现金加入你的预算中，因为你可能不会得到全额。
 

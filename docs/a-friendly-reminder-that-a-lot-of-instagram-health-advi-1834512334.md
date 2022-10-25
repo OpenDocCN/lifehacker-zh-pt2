@@ -1,6 +1,6 @@
 # 友情提醒，很多 Instagram 健康建议都是垃圾
 
-> 原文:[https://life hacker . com/a-friendly-reminder-the-a-lot-of-insta gram-health-advi-1834512334](https://lifehacker.com/a-friendly-reminder-that-a-lot-of-instagram-health-advi-1834512334)
+> 原文：<https://lifehacker.com/a-friendly-reminder-that-a-lot-of-instagram-health-advi-1834512334>
 
 到处都有扯淡的健康建议，但你会希望当你在 Insta 上关注看起来合法的人时——大量的关注者，蓝色的勾号，博客上看起来可靠的建议——你会得到好东西。不幸的是，仍然有很多垃圾。
 

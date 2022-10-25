@@ -1,6 +1,6 @@
 # 你的家人如何在疫情做志愿者
 
-> 原文:[https://life hacker . com/how-your-family-can-volunteer-in-the-疫情-1842457312](https://lifehacker.com/how-your-family-can-volunteer-during-the-pandemic-1842457312)
+> 原文：<https://lifehacker.com/how-your-family-can-volunteer-during-the-pandemic-1842457312>
 
 现在，你和你的家人在你自己的小吉利根岛上。本来应该是三个小时的旅程，但是由于新冠肺炎，你和你的船员至少还要滞留几个星期。就像《快乐的漂流者》一样，你可能会感到与世隔绝。
 

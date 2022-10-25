@@ -1,6 +1,6 @@
 # 用速溶锅混合最好的扁豆和法式洋葱汤
 
-> 原文:[https://the take out . com/recipe-instant-pot-扁豆-法式-洋葱-汤-1839592595](https://thetakeout.com/recipe-instant-pot-lentil-french-onion-soup-1839592595)
+> 原文：<https://thetakeout.com/recipe-instant-pot-lentil-french-onion-soup-1839592595>
 
 扁豆汤不需要在速溶锅里做，因为你可以在炉子上用不到 40 分钟的时间做好扁豆汤。速溶扁豆汤的食谱会说这个过程需要 8 分钟，但一旦你炒完蔬菜(分批，以免过度拥挤)，把锅加压，煮“仅仅 8 分钟”，然后排放蒸汽，你仍然要等半个多小时才能吃。所以，如果你想用速溶锅做扁豆汤，你必须让你节省下来的时间有所值。比如说，焦糖洋葱。
 

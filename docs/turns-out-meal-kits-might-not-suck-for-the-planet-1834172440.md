@@ -1,6 +1,6 @@
 # 事实证明，餐盒对地球来说可能并不糟糕
 
-> 原文:[https://gizmodo . com/turns-out-meal-kits-may-not-suck-for-the-planet-1834172440](https://gizmodo.com/turns-out-meal-kits-might-not-suck-for-the-planet-1834172440)
+> 原文：<https://gizmodo.com/turns-out-meal-kits-might-not-suck-for-the-planet-1834172440>
 
 在过去的几年里，我看到蓝围裙和 HelloFresh 等公司生产的餐包越来越受欢迎，对此我越来越怀疑。塞满了冰箱贴和独立包装的食材，挂满了从农场到餐桌营销的和 [回收标志](https://www.hellofresh.ca/green/?redirectedFromAccountArea=true) ，这些包装便利的晚餐似乎是企业绿色环保的缩影。每次朋友通过 kit 告诉我他们最近的烹饪冒险时，我都会想，这对地球来说不可能是好事。
 

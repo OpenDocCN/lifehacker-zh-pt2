@@ -1,6 +1,6 @@
 # 如果你给汽车加错了辛烷值的汽油会怎么样
 
-> 原文:[https://life hacker . com/1785407622](https://lifehacker.com/what-happens-if-you-put-the-wrong-octane-of-gas-in-your-1785407622)
+> 原文：<https://lifehacker.com/what-happens-if-you-put-the-wrong-octane-of-gas-in-your-1785407622>
 
 尽管我开着几辆不同的车，但我总是有点担心什么时候该加满油。如果我用 87 而不是 93 会发生什么吗，或者反之亦然？总之，看情况。
 

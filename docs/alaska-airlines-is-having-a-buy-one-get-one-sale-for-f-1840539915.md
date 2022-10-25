@@ -1,6 +1,6 @@
 # 阿拉斯加航空公司今天有航班“买一送一”的促销活动
 
-> 原文:[https://life hacker . com/Alaska-airlines-is-having-a-buy-one-get-one-self-1840539915](https://lifehacker.com/alaska-airlines-is-having-a-buy-one-get-one-sale-for-f-1840539915)
+> 原文：<https://lifehacker.com/alaska-airlines-is-having-a-buy-one-get-one-sale-for-f-1840539915>
 
 如果你还在寻找完美的节日礼物，你可能会考虑给那个很难买到的人买一张机票，在新年和你一起去度假。
 

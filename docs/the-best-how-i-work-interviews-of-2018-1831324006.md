@@ -1,6 +1,6 @@
 # 2018 年最佳“我如何工作”访谈
 
-> 原文:[https://life hacker . com/the-best-how-I-work-visitors-of-2018-1831324006](https://lifehacker.com/the-best-how-i-work-interviews-of-2018-1831324006)
+> 原文：<https://lifehacker.com/the-best-how-i-work-interviews-of-2018-1831324006>
 
 今年我 n [我是如何工作的](https://lifehacker.com/c/how-i-work) ，我们采访了 50 多位开发人员、设计师、作家、播客、演员以及其他商业、非营利、科技、艺术和娱乐领域的成功人士，讨论他们的工作习惯和职业道路。每个人都很优秀——我们联系我们最喜欢的人，每年筛选数百份申请来选择我们的客人——但这些是今年最伟大的一些简介，以及他们的一些最佳报价。
 

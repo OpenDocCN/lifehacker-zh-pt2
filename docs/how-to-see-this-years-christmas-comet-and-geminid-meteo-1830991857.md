@@ -1,6 +1,6 @@
 # 如何看今年的‘圣诞彗星’和双子座流星雨
 
-> 原文:[https://life hacker . com/how-to-see-this-years-Christmas-comet-and-Gemini id-meteo-1830991857](https://lifehacker.com/how-to-see-this-years-christmas-comet-and-geminid-meteo-1830991857)
+> 原文：<https://lifehacker.com/how-to-see-this-years-christmas-comet-and-geminid-meteo-1830991857>
 
 如果你能在寒冷中坚持足够长的时间，找到一片清澈的夜空，你可以在今年 12 月观看到两个明亮的天文现象:46P/Wirtanen“圣诞彗星”和双子座流星雨。
 

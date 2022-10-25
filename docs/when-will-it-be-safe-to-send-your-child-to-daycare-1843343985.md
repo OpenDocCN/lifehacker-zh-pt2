@@ -1,6 +1,6 @@
 # 什么时候送你的孩子去日托是安全的？
 
-> 原文:[https://life hacker . com/when-it-will-it-safe-to-send-your child to the day care-1843343985](https://lifehacker.com/when-will-it-be-safe-to-send-your-child-to-daycare-1843343985)
+> 原文：<https://lifehacker.com/when-will-it-be-safe-to-send-your-child-to-daycare-1843343985>
 
 这是疫情时代许多幼儿家长面临的最大问题:孩子们什么时候可以安全地回到日托所？为了让经济重新复苏，为了让人们能够重返工作岗位，儿童保育问题必须得到解决，而且不能让新冠肺炎病毒进一步扩散。
 

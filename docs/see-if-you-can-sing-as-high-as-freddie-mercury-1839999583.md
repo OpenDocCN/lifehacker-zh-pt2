@@ -1,6 +1,6 @@
 # 看看你能否唱得和佛莱迪·摩克瑞一样高
 
-> 原文:[https://life hacker . com/see-if-you-can-sing-as-high-as-Freddie-mercury-1839999583](https://lifehacker.com/see-if-you-can-sing-as-high-as-freddie-mercury-1839999583)
+> 原文：<https://lifehacker.com/see-if-you-can-sing-as-high-as-freddie-mercury-1839999583>
 
 我以为办公室闹鬼。透过通风口传来的猫或婴儿刺耳的哀鸣声。窗外建筑的机器？天啊，可能是天花板上一只垂死的老鼠。我带来了我们的副主编爱丽丝和我一起听。“我听说了！”她说。她回到她的办公室；我在办公室的各个房间里蹑手蹑脚地走动。问我们的创意制作人希瑟是否也听到了。她笑了。昨天我们都在玩 [打高音](https://vole.wtf/high-notes/) ，这个游戏看你能唱多高。她试图战胜它。
 

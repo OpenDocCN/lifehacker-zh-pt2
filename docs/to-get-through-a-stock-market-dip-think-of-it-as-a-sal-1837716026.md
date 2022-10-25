@@ -1,6 +1,6 @@
 # 要度过股市低迷，就把它当成一次销售
 
-> 原文:[https://life hacker . com/to-get-through-a-stock-market-dip-think-it-as-a-sal-1837716026](https://lifehacker.com/to-get-through-a-stock-market-dip-think-of-it-as-a-sal-1837716026)
+> 原文：<https://lifehacker.com/to-get-through-a-stock-market-dip-think-of-it-as-a-sal-1837716026>
 
 随着最近对潜在衰退的谈论，很难知道你是否应该购买、出售或持有你的投资——或者盖上被子，躲避股市的波折。不要绝望，在接下来查看你的投资账户之前，想想下面的类比。
 

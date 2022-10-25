@@ -1,6 +1,6 @@
 # 如何合法海葬
 
-> 原文:[https://life hacker . com/how-to-be-legal-buried-in-sea-1832120754](https://lifehacker.com/how-to-be-legally-buried-at-sea-1832120754)
+> 原文：<https://lifehacker.com/how-to-be-legally-buried-at-sea-1832120754>
 
 多亏了 Reddit 上最近的一个帖子，葬礼已经是旧闻了。如果你正在寻找一个引人注目的葬礼，这是如何完成的。
 

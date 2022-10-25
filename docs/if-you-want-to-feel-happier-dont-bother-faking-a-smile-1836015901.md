@@ -1,6 +1,6 @@
 # 如果你想感觉更快乐，不要强颜欢笑
 
-> 原文:[https://life hacker . com/if-you-want-to-feel-hacker-dont-worth-fucking-a smile-1836015901](https://lifehacker.com/if-you-want-to-feel-happier-dont-bother-faking-a-smile-1836015901)
+> 原文：<https://lifehacker.com/if-you-want-to-feel-happier-dont-bother-faking-a-smile-1836015901>
 
 出于某种原因，某些人觉得他们有义务告诉别人——通常是女人——微笑。很明显，这是有问题的，原因很多，但是作为经常收到这些评论的人，我特别讨厌当 [的人试图用科学](https://lifehacker.com/put-on-a-smile-even-when-youre-stressed-to-improve-y-1520997865) 来试图说服我装出一副快乐的面孔。
 

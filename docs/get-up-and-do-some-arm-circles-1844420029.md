@@ -1,6 +1,6 @@
 # 站起来做几个手臂环
 
-> 原文:[https://life hacker . com/get-up-and-do-some-arm-circles-1844420029](https://lifehacker.com/get-up-and-do-some-arm-circles-1844420029)
+> 原文：<https://lifehacker.com/get-up-and-do-some-arm-circles-1844420029>
 
 你有没有时不时想起 [起床散步](https://vitals.lifehacker.com/get-up-and-go-for-a-walk-already-1844325797) ？自从我们上周谈到它，我肯定比以前走得更多了，但不一定是我想要的那种小范围的频繁行走。
 

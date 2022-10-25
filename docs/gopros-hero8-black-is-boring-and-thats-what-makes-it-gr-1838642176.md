@@ -1,6 +1,6 @@
 # GoPro 的 Hero8 Black 很无聊——而这正是它的伟大之处
 
-> 原文:[https://gizmodo . com/go pros-hero 8-black-is-boring-and-that-something-it-gr-1838642176](https://gizmodo.com/gopros-hero8-black-is-boring-and-thats-what-makes-it-gr-1838642176)
+> 原文：<https://gizmodo.com/gopros-hero8-black-is-boring-and-thats-what-makes-it-gr-1838642176>
 
 GoPro 新旗舰相机的任何一次升级都不会令您惊讶。没有什么“新杀手特征”能让它与竞争对手或去年的 [英雄 7 黑色](https://gizmodo.com/i-strapped-gopros-hero7-black-to-my-dog-and-my-hog-to-s-1829710269) 区别开来。它甚至没有内置自拍屏幕(尽管您可以购买一个作为新的附加“mod”。)然而，不知何故，黑色英雄 8 是我期待已久却没有意识到的 GoPro。
 

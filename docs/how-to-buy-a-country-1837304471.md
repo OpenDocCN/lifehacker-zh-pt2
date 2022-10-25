@@ -1,6 +1,6 @@
 # 如何购买一个国家
 
-> 原文:[https://lifehacker.com/how-to-buy-a-country-1837304471](https://lifehacker.com/how-to-buy-a-country-1837304471)
+> 原文：<https://lifehacker.com/how-to-buy-a-country-1837304471>
 
 川普总统已经表示对购买格陵兰岛感兴趣——尽管格陵兰岛外交部通过推特 表示，他们“是为了商业，而不是为了销售”，但值得一问的是:你到底是如何购买一个国家的？
 

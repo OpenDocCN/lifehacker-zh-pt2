@@ -1,6 +1,6 @@
 # 如何面对一群可爱的鳗鱼
 
-> 原文:[https://life hacker . com/how-to-face time-a-bunch-of-elves-1843199804](https://lifehacker.com/how-to-facetime-a-bunch-of-adorable-eels-1843199804)
+> 原文：<https://lifehacker.com/how-to-facetime-a-bunch-of-adorable-eels-1843199804>
 
 日本隅田水族馆邀请人们与他们的花园鳗鱼缸 进行一次短暂的视频通话。这不是直播；这是一个双向呼叫，他们特别想让鳗鱼看到你的脸。
 

@@ -1,6 +1,6 @@
 # 如何免费录制你的手机屏幕
 
-> 原文:[https://life hacker . com/how-to-record-your-phone-screen-for-free-1837381767](https://lifehacker.com/how-to-record-your-phone-screen-for-free-1837381767)
+> 原文：<https://lifehacker.com/how-to-record-your-phone-screen-for-free-1837381767>
 
 你不需要昂贵的应用程序或花哨的硬件。在上面的视频中，我解释了如何免费录制高质量的手机屏幕画面。
 

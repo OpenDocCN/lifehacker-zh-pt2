@@ -1,6 +1,6 @@
 # 不要再用语法来监管“他们”这个词了
 
-> 原文:[https://life hacker . com/stop-grammar-policing-the-word-they-1840346687](https://lifehacker.com/stop-grammar-policing-the-word-they-1840346687)
+> 原文：<https://lifehacker.com/stop-grammar-policing-the-word-they-1840346687>
 
 如果有人想指一个他们不知道性别的人，或者没有性别的人，他们可以使用某种非常常见的英语代词。你知道我指的是哪一个。我刚刚用了两次。恭喜*他们*荣登 [韦氏词典年度词汇](https://www.merriam-webster.com/words-at-play/word-of-the-year/they) 。
 

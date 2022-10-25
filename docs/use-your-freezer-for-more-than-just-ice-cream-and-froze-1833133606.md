@@ -1,6 +1,6 @@
 # 使用你的冰箱不仅仅是为了冰激凌和冷冻披萨
 
-> 原文:[https://life hacker . com/use-your ' s refuge-than-just-of-ice cream-and-freeze-1833133606](https://lifehacker.com/use-your-freezer-for-more-than-just-ice-cream-and-froze-1833133606)
+> 原文：<https://lifehacker.com/use-your-freezer-for-more-than-just-ice-cream-and-froze-1833133606>
 
 用你的冰箱做更多事情。
 

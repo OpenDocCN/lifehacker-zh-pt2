@@ -1,6 +1,6 @@
 # 通过丢球来管理压力和时间
 
-> 原文:[https://life hacker . com/manage-stress-and-time-management-by-drop-the-ball-1844673998](https://lifehacker.com/manage-stress-and-time-management-by-dropping-the-ball-1844673998)
+> 原文：<https://lifehacker.com/manage-stress-and-time-management-by-dropping-the-ball-1844673998>
 
 现在有很多事情正在进行，这意味着合理安排你的时间似乎特别困难。感到不知所措会导致压力，在这些不确定的时期(*轻描淡写*)，很容易感觉自己被淹没在未完成的任务中。
 

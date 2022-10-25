@@ -1,6 +1,6 @@
 # 在政府关闭期间，如何帮助你的邻居购买食品杂货
 
-> 原文:[https://life hacker . com/how-to-help-your-neighbors-getting-Shu-1843108929](https://lifehacker.com/how-to-help-your-neighbors-get-groceries-during-the-shu-1843108929)
+> 原文：<https://lifehacker.com/how-to-help-your-neighbors-get-groceries-during-the-shu-1843108929>
 
 简单的任务 [买菜](https://lifehacker.com/what-to-expect-when-youre-grocery-shopping-during-the-c-1842456523) 已经成为最紧张的事情之一——T5)然而不可避免——T7——在冠状病毒疫情期间，我们都需要搞清楚的活动。对于那些不容易到达商店的人来说，问题甚至更加复杂——特别是当许多送货服务警告漫长等待时间的时候。
 

@@ -1,6 +1,6 @@
 # 如何在求职面试中胜出
 
-> 原文:[https://life hacker . com/how-to-ace-a-job-interview-1837902479](https://lifehacker.com/how-to-ace-a-job-interview-1837902479)
+> 原文：<https://lifehacker.com/how-to-ace-a-job-interview-1837902479>
 
 在参加新工作的面试之前，你只能做这么多的研究和准备。
 

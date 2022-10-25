@@ -1,6 +1,6 @@
 # 用你的华夫饼干制作机制作“羽绒被里的猪”
 
-> 原文:[https://life hacker . com/use-your-waffle-maker-to-make-pigs-in-a-duvet-cover-1841909795](https://lifehacker.com/use-your-waffle-maker-to-make-pigs-in-a-duvet-cover-1841909795)
+> 原文：<https://lifehacker.com/use-your-waffle-maker-to-make-pigs-in-a-duvet-cover-1841909795>
 
 大脑很神秘，我最迷惑的是我自己。昨天，当我漫步在杂货店的过道时，我的目光碰巧落在一管冷藏的新月形面团上。不一会儿，我的脑子里就想出了制作一道名为“羽绒被里的猪”的菜肴的详细计划，这道菜就像毯子里的猪，只是平的、有绒毛的、被诅咒的。
 

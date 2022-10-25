@@ -1,6 +1,6 @@
 # 股票怎么会有 20 年来最好的一个月？
 
-> 原文:[https://life hacker . com/how-the-hell-do-the-stock-market-just-have-its-best-mo-1843199455](https://lifehacker.com/how-the-hell-did-the-stock-market-just-have-its-best-mo-1843199455)
+> 原文：<https://lifehacker.com/how-the-hell-did-the-stock-market-just-have-its-best-mo-1843199455>
 
 你可能已经注意到经济不太景气。消费支出大幅下降。 [失业人数](https://gizmodo.com/an-old-computer-system-is-keeping-many-americans-from-g-1842839527) 继续上升。但是股票市场...还好吗？
 

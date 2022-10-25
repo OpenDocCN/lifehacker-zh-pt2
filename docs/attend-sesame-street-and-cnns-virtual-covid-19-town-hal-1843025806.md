@@ -1,6 +1,6 @@
 # 参加芝麻街和 CNN 的虚拟新冠肺炎市政厅
 
-> 原文:[https://life hacker . com/attend-sesame-street-and-CNN-virtual-新冠肺炎-town-hal-1843025806](https://lifehacker.com/attend-sesame-street-and-cnns-virtual-covid-19-town-hal-1843025806)
+> 原文：<https://lifehacker.com/attend-sesame-street-and-cnns-virtual-covid-19-town-hal-1843025806>
 
 现在世界上正在发生很多奇怪的事情。大部分都是以一种糟糕的方式变得怪异。但是“大鸟”和桑杰·古普塔联手为孩子和家长举办一个冠状病毒市政厅？现在，这就是我们能得到的那种怪异。
 

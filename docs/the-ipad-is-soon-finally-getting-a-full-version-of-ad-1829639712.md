@@ -1,6 +1,6 @@
 # iPad 很快，终于，获得了 Adobe Photoshop 的完整版本
 
-> 原文:[https://gizmodo . com/the-ipad-is-soon-finally-get-a-full-version-of-ad-1829639712](https://gizmodo.com/the-ipad-is-soon-finally-getting-a-full-version-of-ad-1829639712)
+> 原文：<https://gizmodo.com/the-ipad-is-soon-finally-getting-a-full-version-of-ad-1829639712>
 
 苹果公司将得到 Adobe 公司的大力支持，该公司正努力使 iPad Pro 合法化，成为一种生产力工具。今天，在洛杉矶举行的 MAX 会议上， [Adobe 证实，Photoshop CC](https://gizmodo.com/full-version-of-adobe-photoshop-is-reportedly-coming-to-1827572583)——其照片编辑应用程序的完整、未妥协版本——将于明年年初在 iPad 上推出。
 

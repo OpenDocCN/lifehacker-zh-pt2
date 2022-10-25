@@ -1,6 +1,6 @@
 # 将一盘奶酪的所有味道混合在一起
 
-> 原文:[https://life hacker . com/combine-all-the-flavors-of-a-cheese-plate-into-single-1835209783](https://lifehacker.com/combine-all-the-flavors-of-a-cheese-plate-into-a-single-1835209783)
+> 原文：<https://lifehacker.com/combine-all-the-flavors-of-a-cheese-plate-into-a-single-1835209783>
 
 一盘好的奶酪是几种成分的和谐组合。是的，奶酪很重要，但是你也需要水果、坚果、少量的甜食和碳水化合物。虽然混合、搭配和堆叠给我温暖和模糊的午餐感觉，但有时我只想把东西塞进嘴里，而不用担心“构建”任何东西。
 

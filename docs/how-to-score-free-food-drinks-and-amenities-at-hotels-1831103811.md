@@ -1,6 +1,6 @@
 # 如何在酒店获得免费食物、饮料和便利设施
 
-> 原文:[https://life hacker . com/how-to-score-free-food-drinks-and-facilities-at-hotels-1831103811](https://lifehacker.com/how-to-score-free-food-drinks-and-amenities-at-hotels-1831103811)
+> 原文：<https://lifehacker.com/how-to-score-free-food-drinks-and-amenities-at-hotels-1831103811>
 
 很容易假设你在酒店找到的几乎所有东西都是有价格的——尤其是如果你在绝望的衣架状态下洗劫了迷你吧后被烧伤了。
 

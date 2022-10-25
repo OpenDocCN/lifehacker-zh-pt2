@@ -1,6 +1,6 @@
 # 当你戴着面具时如何与孩子交流
 
-> 原文:[https://life hacker . com/how-to-communication-to-kids-when-you-being-a-mask-1845067940](https://lifehacker.com/how-to-communicate-with-kids-when-youre-wearing-a-mask-1845067940)
+> 原文：<https://lifehacker.com/how-to-communicate-with-kids-when-youre-wearing-a-mask-1845067940>
 
 “口罩”( Mask-muff)是我刚刚编造的一个术语，但它是真实存在的。如果这种布料是为了阻挡一堆微小的呼吸道飞沫，它也一定会让我们的话语变得模糊。当你站在一个戴着面具的人旁边时，很难听清每个单词，如果你是推荐的六英尺(T3)或更远(T4)的人，就更难了。更糟糕的是，我们也失去了看到一个人的嘴组成单词来填空的好处，尤其是孩子，他们依赖于说话和语言发展以及社会互动。
 

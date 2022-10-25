@@ -1,6 +1,6 @@
 # 设置余额转账自动付款，在 0%的介绍年利率到期前还清债务
 
-> 原文:[https://life hacker . com/set-up-balance-transfer-auto payments-to-pay-off-your-de-1840202224](https://lifehacker.com/set-up-balance-transfer-autopayments-to-pay-off-your-de-1840202224)
+> 原文：<https://lifehacker.com/set-up-balance-transfer-autopayments-to-pay-off-your-de-1840202224>
 
 如果你有很多信用卡债务，并且每月的利息费用在增加，余额转移信用卡可以是一个不用支付利息就能还清债务的好方法。这些卡给你一个免息宽限期，在此期间你可以全额付清你的余额，以此换取一笔小额的余额转账费(通常是你转账余额的 3%到 5%)。
 

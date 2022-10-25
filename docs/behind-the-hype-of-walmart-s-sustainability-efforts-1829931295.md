@@ -1,6 +1,6 @@
 # behind the hype of walmart s sustainability efforts 1829931295
 
-> 原文:[https://gizmodo . com/back-the-hype-of-Walmart-s-sustainable-efforts-1829931295](https://gizmodo.com/behind-the-hype-of-walmart-s-sustainability-efforts-1829931295)
+> 原文：<https://gizmodo.com/behind-the-hype-of-walmart-s-sustainability-efforts-1829931295>
 
 2005 年，沃尔玛的首席执行官李·斯科特遇到了麻烦。活动家们最近揭露了沃尔玛与人类[权利](https://www.amiba.net/wp-content/uploads/2015/08/everyday-low-wages-georgemiller-walmartreport.pdf) [滥用](https://usatoday30.usatoday.com/money/companies/management/2005-11-02-walmart-employees_x.htm) 的联系，他的公司股票比加州的供水情况还要糟糕。然后，一场暴风雨来了。当卡特里娜飓风淹没墨西哥湾海岸时，它拯救了沃尔玛。
 

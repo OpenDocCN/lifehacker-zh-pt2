@@ -1,6 +1,6 @@
 # 通过在 iOS 中给自己发送跟踪号码的短信来跟踪送货情况
 
-> 原文:[https://life hacker . com/keep-tabs-on-deliveries-by-texting-yourself-tracking-nu-1834844009](https://lifehacker.com/keep-tabs-on-deliveries-by-texting-yourself-tracking-nu-1834844009)
+> 原文：<https://lifehacker.com/keep-tabs-on-deliveries-by-texting-yourself-tracking-nu-1834844009>
 
 **iOS:** 这是一个小技巧——一个*的小技巧*，如果你愿意的话——它已经在 iOS 上可用多年了，但如果你不想注册应用或服务来跟踪收到的包裹，这是值得提醒的。(如果你知道一些特别的东西正在路上，并且你想要一个简单的方法来跟踪送货司机，这也是适用的。)
 

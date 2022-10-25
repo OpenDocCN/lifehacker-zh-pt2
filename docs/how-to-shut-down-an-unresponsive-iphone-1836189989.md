@@ -1,6 +1,6 @@
 # 如何关闭没有反应的 iPhone
 
-> 原文:[https://life hacker . com/how-to-shut-down-an-responsible-iphone-1836189989](https://lifehacker.com/how-to-shut-down-an-unresponsive-iphone-1836189989)
+> 原文：<https://lifehacker.com/how-to-shut-down-an-unresponsive-iphone-1836189989>
 
 [Lifehacker's Complete Guide to iOS](https://appleios.kinja.com)) : title[![](../Images/71562cabb8ab94eee70dc08ff80378ef.png)](https://appleios.kinja.com)[Lifehacker's Complete Guide to iOS](https://appleios.kinja.com)Apple's iPhone is easy to learn, but difficult to master. Instead of spending hours sifting through settings yourself, check out our giant collection of guides, tips, and tricks for all things iOS.
 

@@ -1,6 +1,6 @@
 # 凯特的多功能野餐酱可以简化你的春季野餐
 
-> 原文:[https://the take out . com/recipe-kates-all-purpose-coordination-sauce-mayo-lime-juice-1833644410](https://thetakeout.com/recipe-kates-all-purpose-picnic-sauce-mayo-lime-juice-1833644410)
+> 原文：<https://thetakeout.com/recipe-kates-all-purpose-picnic-sauce-mayo-lime-juice-1833644410>
 
 我的房子很小。我哥哥曾经告诉我，我住在一个小房子里，“但就像，不是一个*实际的* [小房子](https://en.wikipedia.org/wiki/Tiny_house_movement) ”谢了兄弟。但是它的内部面积不足，但它有一个相当大的后院，有足够的空间来建一个花园，养 T7 只鸡和烧烤聚会。在春季和夏季，我会冲动地给朋友发短信，让他们过来，通常是在我查看冰箱里的东西之前。这意味着我做了很多野餐和后院菜单的即兴创作，这导致了凯特野餐酱的诞生。
 

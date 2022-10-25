@@ -1,6 +1,6 @@
 # 用这个工具创建你的谷歌位置历史的热图
 
-> 原文:[https://life hacker . com/create-a-heat-map-of-your-Google-location-history-with-1830215410](https://lifehacker.com/create-a-heat-map-of-your-google-location-history-with-1830215410)
+> 原文：<https://lifehacker.com/create-a-heat-map-of-your-google-location-history-with-1830215410>
 
 我对任何把文本数据转化成视觉的东西都很着迷。本周我遇到了 [位置历史可视化工具](https://locationhistoryvisualizer.com) ，这是一个利用你的谷歌位置历史创建热图的工具。
 

@@ -1,6 +1,6 @@
 # 当你们距离很远时，如何分享一顿饭
 
-> 原文:[https://life hacker . com/how-to-share-a-meal-when-you-physical-distance-1843394813](https://lifehacker.com/how-to-share-a-meal-when-youre-physically-distancing-1843394813)
+> 原文：<https://lifehacker.com/how-to-share-a-meal-when-youre-physically-distancing-1843394813>
 
 看起来——至少在宾夕法尼亚州的部分地区——餐馆周日人满为患，顾客想要(期待？)他们通常为母亲节准备的特别庆祝餐。如此多的人涌入像红龙虾和橄榄园这样的地方，至少根据和 [推特](https://twitter.com/KevinHornePSU/status/1259594232844746756) 的说法，结果是排队的人特别多，脾气也特别暴躁。在这个节日里，人们应该更多地庆祝和尊重各地的母亲，而不是尽可能多的吃面包条。
 

@@ -1,6 +1,6 @@
 # 像这样切意大利面南瓜可以切得更长
 
-> 原文:[https://life hacker . com/cut-spaghetti-squaw-like-this-for-long-strands-1841458263](https://lifehacker.com/cut-spaghetti-squash-like-this-for-longer-strands-1841458263)
+> 原文：<https://lifehacker.com/cut-spaghetti-squash-like-this-for-longer-strands-1841458263>
 
 现在，你可能已经对意面南瓜下定决心了，我不会在这里用任何方式说服你。我从来没有发现自己购买它，但我确实有一个令人惊讶的美味意大利面南瓜菜，当我出去的时候，所以你可以随便吃。
 

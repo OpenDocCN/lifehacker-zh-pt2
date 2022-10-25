@@ -1,6 +1,6 @@
 # 让我非常开心的 9 种盐
 
-> 原文:[https://life hacker . com/9-salts-that-make-me-very-happy-1844559849](https://lifehacker.com/9-salts-that-make-me-very-happy-1844559849)
+> 原文：<https://lifehacker.com/9-salts-that-make-me-very-happy-1844559849>
 
 我真的很喜欢盐。作为一个孩子，我经常嫉妒奶牛和它们夏天舔盐的样子；作为一个成年人，我已经知道吃像小薯片一样的大块 Maldon 片(这被称为“零食盐”)。从技术上来说，所有的盐都是氯化钠，但是添加剂、颗粒大小和晶体形状使得每一种盐的食用方式有很大的不同。请允许我向你详细介绍我收藏的盐。实际上比以前小多了。
 

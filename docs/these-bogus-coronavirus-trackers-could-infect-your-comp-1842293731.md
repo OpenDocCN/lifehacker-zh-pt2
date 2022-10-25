@@ -1,6 +1,6 @@
 # 这些伪造的冠状病毒追踪器可能会感染你的电脑
 
-> 原文:[https://life hacker . com/these-bogus-coronavirus-trackers-could-infect-your-comp-1842293731](https://lifehacker.com/these-bogus-coronavirus-trackers-could-infect-your-comp-1842293731)
+> 原文：<https://lifehacker.com/these-bogus-coronavirus-trackers-could-infect-your-comp-1842293731>
 
 新冠肺炎的信息铺天盖地而来，我们都想保持更新，但你应该避免下载冠状病毒跟踪器仪表板。根据 Reason Security 的调查，这些 [冠状病毒地图中有一些包含了被称为 AZORult 的严重恶意软件](https://blog.reasonsecurity.com/2020/03/09/covid-19-info-stealer-the-map-of-threats-threat-analysis-report/) 。利用 AZORult，黑客可以窃取你的浏览器历史和社交媒体登录信息；访问您的银行账户或加密货币金库，甚至获得对受感染设备的完全远程访问权限。
 

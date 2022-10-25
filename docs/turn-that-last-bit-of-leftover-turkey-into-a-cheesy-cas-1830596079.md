@@ -1,6 +1,6 @@
 # 把剩下的最后一点火鸡变成奶酪砂锅
 
-> 原文:[https://life hacker . com/turn-the last-bit of left-than-turn-the-less-turn-a-cheesy-cas-1830596079](https://lifehacker.com/turn-that-last-bit-of-leftover-turkey-into-a-cheesy-cas-1830596079)
+> 原文：<https://lifehacker.com/turn-that-last-bit-of-leftover-turkey-into-a-cheesy-cas-1830596079>
 
 如果我必须选择一种砂锅菜来度过余生，那将是鸡肉——或者在这种情况下，是火鸡——意大利面。这东西是个俗气，媚俗，浓缩- 汤- 泡的杰作。这是一个真正意义上的砂锅，它是一个伟大的载体，即使是最悲伤的剩余火鸡。
 

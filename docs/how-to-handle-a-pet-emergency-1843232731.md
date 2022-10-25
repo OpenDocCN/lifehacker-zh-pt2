@@ -1,6 +1,6 @@
 # 如何处理宠物突发事件
 
-> 原文:[https://life hacker . com/how-to-handle-a-pet-emergency-1843232731](https://lifehacker.com/how-to-handle-a-pet-emergency-1843232731)
+> 原文：<https://lifehacker.com/how-to-handle-a-pet-emergency-1843232731>
 
 如果你的宠物需要医疗护理，你会怎么做？正如疫情生活中的许多其他方面一样，为你的宠物获得兽医护理是一个快速变化的情况，全国各地的兽医都已经适应了这种情况。
 

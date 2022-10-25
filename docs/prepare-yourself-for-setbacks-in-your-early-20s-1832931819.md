@@ -1,6 +1,6 @@
 # 在你 20 出头的时候，做好遭受挫折的准备
 
-> 原文:[https://life hacker . com/20 岁出头就为挫折做好准备-1832931819](https://lifehacker.com/prepare-yourself-for-setbacks-in-your-early-20s-1832931819)
+> 原文：<https://lifehacker.com/prepare-yourself-for-setbacks-in-your-early-20s-1832931819>
 
 redditor u/InvictaVox 在 r/AskMen 上的一篇关于变老的帖子中说，“大学毕业后没有指导或既定的道路”。当你大部分时间都在学校度过，一年毕业一个年级，你就习惯了稳步前进。你可能会在第一份工作中保持这种感觉。但是在你 20 出头的时候，如果你是一个还没有经历过重大挫折的幸运儿，你很可能正在走向你的第一次。
 

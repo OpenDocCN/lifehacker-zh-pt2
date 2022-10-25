@@ -1,6 +1,6 @@
 # 如何升级你的沙拉三明治
 
-> 原文:[https://life hacker . com/how-to-upgrade-your-salad-sandwich-1832203444](https://lifehacker.com/how-to-upgrade-your-salad-sandwich-1832203444)
+> 原文：<https://lifehacker.com/how-to-upgrade-your-salad-sandwich-1832203444>
 
 鸡肉、金枪鱼和鸡蛋沙拉三明治可以激发两种截然不同的情绪。它们要么是美味的恢复和怀旧，要么是悲伤的，无聊的，令人想起凄凉的桌上午餐(类似于荧光灯)。关键成分从未改变——正是细节让这些三明治变得如此美味。
 

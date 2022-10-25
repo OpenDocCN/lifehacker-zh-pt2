@@ -1,6 +1,6 @@
 # 如果您今天预订，就可以获得价值 15 美元的 Frontier 秋季航班
 
-> 原文:[https://life hacker . com/get-15-fall-flights-on-frontier-if-you-book-today-1837204111](https://lifehacker.com/get-15-fall-flights-on-frontier-if-you-book-today-1837204111)
+> 原文：<https://lifehacker.com/get-15-fall-flights-on-frontier-if-you-book-today-1837204111>
 
 如果你正在考虑今年秋天去度假，现在是时候预订了: [边疆航空公司目前有 190 万个座位出售](https://www.flyfrontier.com/deals/flight-sales/) ，单程票价 15 美元起。但是快点，因为减价只限于今天。
 

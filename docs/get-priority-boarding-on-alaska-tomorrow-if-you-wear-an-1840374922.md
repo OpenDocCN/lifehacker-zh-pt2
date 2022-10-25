@@ -1,6 +1,6 @@
 # 如果你穿了一件“难看的毛衣”，明天就可以优先登上阿拉斯加
 
-> 原文:[https://life hacker . com/get-priority-boarding-on-Alaska-tomorrow-if-you-wear-an-1840374922](https://lifehacker.com/get-priority-boarding-on-alaska-tomorrow-if-you-wear-an-1840374922)
+> 原文：<https://lifehacker.com/get-priority-boarding-on-alaska-tomorrow-if-you-wear-an-1840374922>
 
 如果你计划明天飞往阿拉斯加，你可能会想穿上你最喜欢的节日毛衣。
 

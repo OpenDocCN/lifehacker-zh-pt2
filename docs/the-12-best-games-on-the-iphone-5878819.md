@@ -1,6 +1,6 @@
 # iPhone 上最好的 12 款游戏
 
-> 原文:[https://kotaku.com/the-12-best-games-on-the-iphone-5878819](https://kotaku.com/the-12-best-games-on-the-iphone-5878819)
+> 原文：<https://kotaku.com/the-12-best-games-on-the-iphone-5878819>
 
 曾几何时，iPhone 游戏是一种干扰。你可以在上下班的路上玩，或者在烧水的时候玩，或者在命运号加载屏幕的时候玩。但那是过去，这是现在。如果你不知道，今天的选项也一样精美(而且有趣！)一样多的主机同行。现在 App Store 上的游戏比银河系里的星星还多，一些监管势在必行。这就是我们的切入点。以下是市面上最好的 iPhone 游戏。
 

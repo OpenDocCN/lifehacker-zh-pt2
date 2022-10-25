@@ -1,6 +1,6 @@
 # 我们对潜在的新冠肺炎疫苗的了解
 
-> 原文:[https://life hacker . com/what-we-know-about-a-potential-新冠肺炎-vaccine-1842480209](https://lifehacker.com/what-we-know-about-a-potential-covid-19-vaccine-1842480209)
+> 原文：<https://lifehacker.com/what-we-know-about-a-potential-covid-19-vaccine-1842480209>
 
 根据最近的新闻报道，人们可能会认为新冠肺炎疫苗将很快问世。不幸的是，情况并非如此。专家们的共识是，在疫苗被广泛使用之前，我们需要 12 到 18 个月的时间。
 

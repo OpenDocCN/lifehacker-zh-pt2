@@ -1,6 +1,6 @@
 # 一劳永逸地停止 iPhone 上的自动呼叫
 
-> 原文:[https://life hacker . com/stop-robo calls-on-your-iphone-once-and-all-1834510716](https://lifehacker.com/stop-robocalls-on-your-iphone-once-and-for-all-1834510716)
+> 原文：<https://lifehacker.com/stop-robocalls-on-your-iphone-once-and-for-all-1834510716>
 
 机器人电话越来越糟糕——对于任何拥有智能手机的人来说，这应该是一个熟悉的标题，如果不是熟悉的感觉的话。我的情况有所好转，但我有很多朋友就没那么幸运了——他们厌倦了一个又一个电话的随机保险诈骗、“特别法庭通知”或一天中最新的垃圾邮件。
 

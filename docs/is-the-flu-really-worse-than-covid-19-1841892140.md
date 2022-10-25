@@ -1,6 +1,6 @@
 # 流感真的比新冠肺炎更严重吗？
 
-> 原文:[https://life hacker . com/is-the-flu-真的比新冠肺炎还糟糕吗-1841892140](https://lifehacker.com/is-the-flu-really-worse-than-covid-19-1841892140)
+> 原文：<https://lifehacker.com/is-the-flu-really-worse-than-covid-19-1841892140>
 
 新冠肺炎和流感都是致命的呼吸道疾病。一种在美国仍很罕见，而另一种则很普遍。我们应该更害怕其中一个吗？
 

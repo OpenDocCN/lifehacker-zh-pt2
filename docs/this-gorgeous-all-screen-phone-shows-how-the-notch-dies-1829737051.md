@@ -1,6 +1,6 @@
 # 这款华丽的全屏手机展示了缺口是如何消失的
 
-> 原文:[https://gizmodo . com/this-huarly-all-screen-phone-shows-how-the-notch-dies-1829737051](https://gizmodo.com/this-gorgeous-all-screen-phone-shows-how-the-notch-dies-1829737051)
+> 原文：<https://gizmodo.com/this-gorgeous-all-screen-phone-shows-how-the-notch-dies-1829737051>
 
 当你看到苹果、三星和谷歌最新手机的设计时，很难区分今年的产品和 2017 年的过时产品。与此同时，除了三大巨头，其他所有手机制造商似乎都满足于跳上有缺口的屏幕潮流，满足于类似的迭代美学。就在 2018 年似乎将成为手机真正无聊的一年时，Oppo 推出了 Find X，这款设备同时显示了智能手机的创造力并没有死亡，并埋葬了没有办法避免那些愚蠢的屏幕剪切的想法。
 

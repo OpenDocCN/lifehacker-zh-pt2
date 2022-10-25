@@ -1,6 +1,6 @@
 # 如何做一个拉面鸡蛋
 
-> 原文:[https://lifehacker.com/how-to-make-a-ramen-egg-1836419141](https://lifehacker.com/how-to-make-a-ramen-egg-1836419141)
+> 原文：<https://lifehacker.com/how-to-make-a-ramen-egg-1836419141>
 
 任何鸡蛋，无论是煮熟的、半熟的、、[、](https://skillet.lifehacker.com/youll-want-to-make-these-seasoned-tea-eggs-over-and-ove-1798514929)、[、水煮的、](https://skillet.lifehacker.com/poach-an-egg-right-in-your-instant-ramen-1826540837)、，都可以放在一碗拉面中，但这种类型的国王是*、用酱油和其他美味的朋友腌制的半熟鸡蛋。它们通常被称为“拉面鸡蛋”，但你并不需要一碗面条来享受它们——它们是一顿很棒的早餐(在一些吐司上捣碎)，鲜味包装的沙拉配料，或简单的小吃。*
 

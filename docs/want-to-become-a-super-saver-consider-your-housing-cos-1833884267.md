@@ -1,6 +1,6 @@
 # 想成为“超级储蓄者”吗？考虑你的住房成本
 
-> 原文:[https://life hacker . com/want-to-be-a-super-saver-consider-your housing-cos-1833884267](https://lifehacker.com/want-to-become-a-super-saver-consider-your-housing-cos-1833884267)
+> 原文：<https://lifehacker.com/want-to-become-a-super-saver-consider-your-housing-cos-1833884267>
 
 区别“超级储蓄者”和我们这些只是尽力储蓄的人的一点是什么？
 

@@ -1,6 +1,6 @@
 # 那个病毒大蒜黑客没用
 
-> 原文:[https://life hacker . com/that-viral-garlic-hack-sints-work-1835657749](https://lifehacker.com/that-viral-garlic-hack-doesnt-work-1835657749)
+> 原文：<https://lifehacker.com/that-viral-garlic-hack-doesnt-work-1835657749>
 
 人们通常都在寻找最简单的方法来做一件事，无论这件事是[吃菠萝](https://skillet.lifehacker.com/this-viral-pineapple-hack-has-some-issues-1833110354) 还是剥大蒜。我欣赏这种动力，不仅因为我的整个职业生涯都是由它推动的，还因为我非常懒。
 

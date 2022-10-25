@@ -1,6 +1,6 @@
 # 是的，你应该停止使用谷歌浏览器
 
-> 原文:[https://life hacker . com/yes-you-should-quit-using-Google-chrome-1844408232](https://lifehacker.com/yes-you-should-quit-using-google-chrome-1844408232)
+> 原文：<https://lifehacker.com/yes-you-should-quit-using-google-chrome-1844408232>
 
 是时候 [停止使用 Chrome](https://www.wsj.com/articles/quit-chrome-safari-and-edge-are-just-better-browsers-for-you-and-your-computer-11594558801) 了吗？我们当然已经准备好放弃占用资源的浏览器，特别是考虑到最近有消息称，微软对 Chrome 占用内存问题的有望修复已经被谷歌自己挫败。
 

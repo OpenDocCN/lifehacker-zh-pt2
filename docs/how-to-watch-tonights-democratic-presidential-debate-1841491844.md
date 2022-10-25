@@ -1,6 +1,6 @@
 # 如何观看今晚的民主党总统候选人辩论
 
-> 原文:[https://life hacker . com/how-to-watch-tonights-democratic-president-debate-1841491844](https://lifehacker.com/how-to-watch-tonights-democratic-presidential-debate-1841491844)
+> 原文：<https://lifehacker.com/how-to-watch-tonights-democratic-presidential-debate-1841491844>
 
 今晚，七名总统候选人将在新罕布什尔州的曼彻斯特举行另一场民主党总统候选人辩论， [领先于该州的初选](https://lifehacker.com/how-does-new-hampshires-primary-work-and-why-does-it-ma-1841447680) 。这场辩论由美国广播公司新闻(ABC News)、当地子公司 WMUR-TV 和苹果新闻(Apple News)共同主办，可能会包括对爱荷华州党团会议和特朗普总统最近无罪释放的讨论。
 

@@ -1,6 +1,6 @@
 # 用剩余的汉堡面包制作完美的面包丁
 
-> 原文:[https://life hacker . com/make-perfect-croutons-from the left-hamburger-boets-1835917183](https://lifehacker.com/make-perfect-croutons-from-leftover-hamburger-buns-1835917183)
+> 原文：<https://lifehacker.com/make-perfect-croutons-from-leftover-hamburger-buns-1835917183>
 
 在世界历史上，从来没有人为一次烧烤带来足够的面包——要么他们在一个小时内用完，要么主人想出如何处理剩下的 48 个热狗面包。如果后者听起来像今天的你，你可以用那些多余的面包做一些真正美味的面包块。
 

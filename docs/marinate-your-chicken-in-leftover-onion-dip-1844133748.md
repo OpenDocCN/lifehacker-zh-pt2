@@ -1,6 +1,6 @@
 # 用剩下的洋葱蘸酱腌制鸡肉
 
-> 原文:[https://life hacker . com/卤制你的鸡肉洋葱蘸酱 1844133748](https://lifehacker.com/marinate-your-chicken-in-leftover-onion-dip-1844133748)
+> 原文：<https://lifehacker.com/marinate-your-chicken-in-leftover-onion-dip-1844133748>
 
 有些人会说没有所谓的“剩余洋葱蘸酱”，但是薯片用完是一个非常真实的灾难，它会给你留下多余的东西。昨晚我就面临了这样一个危机:薯片吃完了，我只剩下和少量的额外蘸料——只有几汤匙——但还是太多了难以下咽。我把额外的蘸酱涂在鸡腿上，让它在冰箱里晾几个小时。
 

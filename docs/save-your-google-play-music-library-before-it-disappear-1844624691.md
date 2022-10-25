@@ -1,6 +1,6 @@
 # 在 Google Play 音乐库消失之前保存它
 
-> 原文:[https://life hacker . com/save-your-Google-play-music-library-before-it-away-1844624691](https://lifehacker.com/save-your-google-play-music-library-before-it-disappear-1844624691)
+> 原文：<https://lifehacker.com/save-your-google-play-music-library-before-it-disappear-1844624691>
 
 到 2020 年底，Google Play Music 将加入不断增长的谷歌死亡产品名单。如果你曾经使用该服务存储过音乐——这是它最好的功能之一——你现在需要备份或传输你的歌曲，因为它们将在几个月后全部消失。
 

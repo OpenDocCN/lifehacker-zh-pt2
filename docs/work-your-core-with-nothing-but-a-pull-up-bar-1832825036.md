@@ -1,6 +1,6 @@
 # 只用一个引体向上的杠铃锻炼你的核心力量
 
-> 原文:[https://life hacker . com/work-your-core with-but-a-pull-up-bar-1832825036](https://lifehacker.com/work-your-core-with-nothing-but-a-pull-up-bar-1832825036)
+> 原文：<https://lifehacker.com/work-your-core-with-nothing-but-a-pull-up-bar-1832825036>
 
 欢迎回来！我希望你们都喜欢这个月 全力以赴，无所事事。今天，我们来谈谈你可以在引体向上或一套体操环上做的运动。
 

@@ -1,6 +1,6 @@
 # 抖音追踪了你的 MAC 地址:现在怎么办？
 
-> 原文:[https://life hacker . com/tiktok-tracked-your-MAC-address-now-what-1844701553](https://lifehacker.com/tiktok-tracked-your-mac-address-now-what-1844701553)
+> 原文：<https://lifehacker.com/tiktok-tracked-your-mac-address-now-what-1844701553>
 
 嗯，可能会更糟。抖音可能正在遭受一些巨大的数据泄露，将你的账户凭证和私人视频片段暴露给全世界。但从隐私角度来看，另一种选择也好不到哪里去:《华尔街日报》最近的一份报告发现，这家流行的社交网络跟踪安卓用户的 MAC 地址至少 15 个月，只是在去年 11 月更新该应用时取消了这一做法。
 

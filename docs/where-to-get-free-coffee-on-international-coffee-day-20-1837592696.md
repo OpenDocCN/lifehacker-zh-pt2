@@ -1,6 +1,6 @@
 # 2019 年国际咖啡日在哪里可以获得免费咖啡
 
-> 原文:[https://life hacker . com/where-to-get-free-coffee-on-international-coffee-day-20-1837592696](https://lifehacker.com/where-to-get-free-coffee-on-international-coffee-day-20-1837592696)
+> 原文：<https://lifehacker.com/where-to-get-free-coffee-on-international-coffee-day-20-1837592696>
 
 [国际咖啡日](https://www.internationalcoffeeday.org/) 是 9 月 29 日星期日。一些咖啡品牌将通过向慈善机构捐赠部分销售额来庆祝这一天；其他人将“提高意识”,了解咖啡行业如何以报酬过低的农民为代价，让销售者致富。一些人会分发免费咖啡。这是你的地址。
 

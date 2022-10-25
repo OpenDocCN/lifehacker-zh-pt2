@@ -1,6 +1,6 @@
 # 我需要喝过滤水还是水龙头没问题？
 
-> 原文:[https://life hacker . com/do-I-need-to-drink-filtered-water-or-is-the-tap-okay-563167069](https://lifehacker.com/do-i-need-to-drink-filtered-water-or-is-the-tap-okay-563167069)
+> 原文：<https://lifehacker.com/do-i-need-to-drink-filtered-water-or-is-the-tap-okay-563167069>
 
 有很多不同形式的饮用水:自来水，瓶装的，过滤的，添加电解质的那种——不胜枚举。但是我们真的需要把钱花在新奇的水上面吗，或者直接从水龙头里出来就可以了吗？以下是你需要知道的。
 

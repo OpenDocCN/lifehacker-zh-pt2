@@ -1,6 +1,6 @@
 # 青少年如何在今年夏天获得免费健身房会员资格
 
-> 原文:[https://life hacker . com/how-tens-can-get-a-free-gym-membership-this-summer-1834279749](https://lifehacker.com/how-teens-can-get-a-free-gym-membership-this-summer-1834279749)
+> 原文：<https://lifehacker.com/how-teens-can-get-a-free-gym-membership-this-summer-1834279749>
 
 如果今年夏天你有一个无聊的青少年在你家附近闲逛，这是一个好消息:星球健身公司正在提供一个 [夏季挑战抽奖活动](https://static1.squarespace.com/static/5638c88de4b0ad04e240fd6c/t/5cb0d64d971a184855bfe825/1555093176901/PF_TSC_FAQ_r5.pdf) ，这基本上相当于为 15 至 18 岁的青少年提供一个长达一个夏天的免费健身房通行证。
 

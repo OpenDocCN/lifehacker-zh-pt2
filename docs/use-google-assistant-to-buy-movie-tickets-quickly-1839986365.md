@@ -1,6 +1,6 @@
 # 使用谷歌助手快速购买电影票
 
-> 原文:[https://life hacker . com/use-Google-assistant-to-buy-movie-tickets-quickly-1839986365](https://lifehacker.com/use-google-assistant-to-buy-movie-tickets-quickly-1839986365)
+> 原文：<https://lifehacker.com/use-google-assistant-to-buy-movie-tickets-quickly-1839986365>
 
 Android 用户现在可以让谷歌助手购买电影票并为他们预订座位，这要归功于一项新的谷歌双工功能，该功能使人工智能能够自己访问和导航 Chrome 网页——就像双工人工智能允许谷歌助手代表你打电话给餐馆或酒店预订。
 

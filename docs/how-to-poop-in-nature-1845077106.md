@@ -1,6 +1,6 @@
 # how to poop in nature 1845077106
 
-> 原文:[https://lifehacker.com/how-to-poop-in-nature-1845077106](https://lifehacker.com/how-to-poop-in-nature-1845077106)
+> 原文：<https://lifehacker.com/how-to-poop-in-nature-1845077106>
 
 我们都经历过。不可避免的是，一旦你离休息区、厕所或公共厕所太远——前提是它们一开始就开着——你就不得不*走*。当你要走的时候，你必须走。
 

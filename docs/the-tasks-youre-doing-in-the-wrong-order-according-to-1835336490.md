@@ -1,6 +1,6 @@
 # 根据 Reddit 的说法，你做任务的顺序是错误的
 
-> 原文:[https://life hacker . com/the-tasks-you-do-in-the-order-on-1835336490](https://lifehacker.com/the-tasks-youre-doing-in-the-wrong-order-according-to-1835336490)
+> 原文：<https://lifehacker.com/the-tasks-youre-doing-in-the-wrong-order-according-to-1835336490>
 
 [“什么是不需要你做任何新的事情，只需要改变你已经在做的事情的顺序的‘生活黑客’？”](https://old.reddit.com/r/AskReddit/comments/bxgvjz/what_is_a_lifehack_that_doesnt_require_you_to_do/) 问 Reddit 用户 DetroitHustlesHarder。Redditors 回答了大量好的时间管理建议，不需要额外的工作，只是以更好的顺序做同样的工作。你需要做的只是控制你的时间表，和一些自我控制。
 

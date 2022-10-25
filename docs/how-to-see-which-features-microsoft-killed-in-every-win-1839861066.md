@@ -1,6 +1,6 @@
 # 如何查看微软在每次 Windows 10 更新中扼杀了哪些功能
 
-> 原文:[https://life hacker . com/how-to-see-which-features-Microsoft-killed-in-every-win-1839861066](https://lifehacker.com/how-to-see-which-features-microsoft-killed-in-every-win-1839861066)
+> 原文：<https://lifehacker.com/how-to-see-which-features-microsoft-killed-in-every-win-1839861066>
 
 微软相当定期地推出较小的 Windows 10 更新，将其较大批量的修复、调整和功能保留到每年两次的发布中。事实上，我们刚刚有了一个——11 月份的大更新，也就是 Windows 10 版本 1909。随之而来的是微软不想再继续开发的一些 Windows 10 功能。
 

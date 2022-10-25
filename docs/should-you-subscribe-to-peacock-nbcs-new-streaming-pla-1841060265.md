@@ -1,6 +1,6 @@
 # NBC 新推出的流媒体服务 Peacock 值得订阅吗？
 
-> 原文:[https://life hacker . com/should-you-subscribe-to-peacock-nbcs-new-streaming-PLA-1841060265](https://lifehacker.com/should-you-subscribe-to-peacock-nbcs-new-streaming-pla-1841060265)
+> 原文：<https://lifehacker.com/should-you-subscribe-to-peacock-nbcs-new-streaming-pla-1841060265>
 
 今天，NBC 环球新的流媒体平台孔雀 向公众发布——如果你已经在为网飞、Hulu、亚马逊 Prime Video 和/或其他流媒体服务付费，你可能会考虑是否要把这个加入列表。
 

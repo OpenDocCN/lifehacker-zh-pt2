@@ -1,6 +1,6 @@
 # 在帮助科学家了解水质的同时识别细菌
 
-> 原文:[https://life hacker . com/identify-bugs-while-you-help-scientists-learn-about-wat-1835694685](https://lifehacker.com/identify-bugs-while-you-help-scientists-learn-about-wat-1835694685)
+> 原文：<https://lifehacker.com/identify-bugs-while-you-help-scientists-learn-about-wat-1835694685>
 
 有些昆虫只会生活在最新鲜、最干净的水中。其他人在任何又脏又旧的沼泽里都很快乐。科学家可以用水源中的虫子作为水质指标，在各种公民科学项目中，你也可以。
 

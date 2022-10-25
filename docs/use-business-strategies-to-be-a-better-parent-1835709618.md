@@ -1,6 +1,6 @@
 # 运用商业策略成为更好的父母
 
-> 原文:[https://life hacker . com/use-business-strategies-to-be-a-better-parent-1835709618](https://lifehacker.com/use-business-strategies-to-be-a-better-parent-1835709618)
+> 原文：<https://lifehacker.com/use-business-strategies-to-be-a-better-parent-1835709618>
 
 我以前是图书管理员。我曾经是一名报社记者。我以前是出版业的市场研究员。我曾经有带门的办公室，可以进入储藏室，还可以定期休息，喝几壶免费咖啡。
 

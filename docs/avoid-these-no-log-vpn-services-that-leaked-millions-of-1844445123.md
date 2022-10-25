@@ -1,6 +1,6 @@
 # 避免这些泄露数百万用户数据的“无日志”VPN 服务
 
-> 原文:[https://life hacker . com/avoid-these-no-log-VPN-services-that-leaved-millions-of-1844445123](https://lifehacker.com/avoid-these-no-log-vpn-services-that-leaked-millions-of-1844445123)
+> 原文：<https://lifehacker.com/avoid-these-no-log-vpn-services-that-leaked-millions-of-1844445123>
 
 我希望我们不需要 VPN，但它们可能是平衡数据安全早餐的必要组成部分。互联网服务提供商、政府、广告商甚至个人 都渴望知道你在网上做什么，他们可以找到方法轻松跟踪你的浏览数据。VPN 通过代理服务器使你的连接变得模糊，从而使这变得更加困难(但并非不可能)。他们不能对所有人隐藏你，但他们是一个有价值的隐私工具——只要他们不是泄露你数据的人。
 

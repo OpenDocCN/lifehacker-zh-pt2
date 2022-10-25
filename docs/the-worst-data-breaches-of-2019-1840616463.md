@@ -1,6 +1,6 @@
 # 2019 年最严重的数据泄露事件
 
-> 原文:[https://life hacker . com/the-worst-data-explosions-of-2019-1840616463](https://lifehacker.com/the-worst-data-breaches-of-2019-1840616463)
+> 原文：<https://lifehacker.com/the-worst-data-breaches-of-2019-1840616463>
 
 今年，我们目睹了许多令人不快的数据泄露事件。如此之多，如果你没有受到哪怕一个或更多的影响，我会很惊讶。虽然我并不期待在 2020 年报道更多的灾难，但我认为回顾一下今年影响您和您的数据的一些最糟糕、最大和最令人讨厌的黑客攻击是很重要的。
 

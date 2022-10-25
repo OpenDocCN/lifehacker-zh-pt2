@@ -1,6 +1,6 @@
 # 问咸的女服务员:为什么厨师不让我给我的食物拍照？
 
-> 原文:[https://the take out . com/why-wot-restaurant-chef-let-me-take-photo-my-food-1833270904](https://thetakeout.com/why-wont-restaurant-chef-let-me-take-picture-of-my-food-1833270904)
+> 原文：<https://thetakeout.com/why-wont-restaurant-chef-let-me-take-picture-of-my-food-1833270904>
 
 > 亲爱的 Salty:我最近在纽约，在一家昂贵的四星级寿司店用餐。这是我一年一度的挥霍。预订很难保证，我真的很兴奋坐在酒吧里，体验著名寿司厨师的 omakase 菜单。
 > 

@@ -1,6 +1,6 @@
 # 如何为你的宠物准备航空旅行
 
-> 原文:[https://life hacker . com/how-to-prepare-your pet for a-air travel-1836378060](https://lifehacker.com/how-to-prepare-your-pet-for-air-travel-1836378060)
+> 原文：<https://lifehacker.com/how-to-prepare-your-pet-for-air-travel-1836378060>
 
 和动物一起旅行可能会很棘手，压力也很大，尤其是如果它们像我养过的每一只宠物一样，而且天生就容易受惊。但是你可以采取一些措施来减轻他们— 和你的压力。
 

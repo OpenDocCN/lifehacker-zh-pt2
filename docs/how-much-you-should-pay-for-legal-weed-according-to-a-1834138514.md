@@ -1,6 +1,6 @@
 # 根据预算，你应该为合法的大麻支付多少钱
 
-> 原文:[https://life hacker . com/how-much-you-should-much-much-you-pay-much-much-you-much-much-for-legal-weed-on-a-1834138514](https://lifehacker.com/how-much-you-should-pay-for-legal-weed-according-to-a-1834138514)
+> 原文：<https://lifehacker.com/how-much-you-should-pay-for-legal-weed-according-to-a-1834138514>
 
 根据 [2018 年大麻价格指数](http://weedindex.io/) 显示，在美国购买合法的大麻每克要花费 7 到 11 美元，具体取决于你住在哪里。然而，当你试图弄清楚某种酊剂或一包橡皮糖是否划算时，这不会有太大帮助。同样，某些品种的杂草比其他品种更贵——这意味着更贵的杂草会给你更好的体验，还是意味着你在浪费钱？
 

@@ -1,6 +1,6 @@
 # 只在你需要的时候支付亚马逊 Prime
 
-> 原文:[https://life hacker . com/only-pay-for-Amazon-prime-when-you-need-it-1836052828](https://lifehacker.com/only-pay-for-amazon-prime-when-you-need-it-1836052828)
+> 原文：<https://lifehacker.com/only-pay-for-amazon-prime-when-you-need-it-1836052828>
 
 当你想到通过亚马逊 Prime 获得快速送货的费用时，你可能会想到 119 美元的年度会员费——这可能对你来说只是太高了，特别是如果你的续订即将到来，但你最近经历了一场与流行病有关的裁员。另一方面，随着 [冠状病毒病例在全国大部分地区激增](https://www.npr.org/sections/coronavirus-live-updates/2020/07/25/895437773/covid-19-cases-continue-to-surge-in-states-across-the-u-s) ，你可能也在寻找一种方法，将一些你亲自购买的东西转移到送货上门。如果你想选择获得免费送货或免费送货服务，但不想预付一整年的费用，请记住**你可以按月支付服务费用，而不是一整年的费用**。
 

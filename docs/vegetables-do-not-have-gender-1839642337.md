@@ -1,6 +1,6 @@
 # 蔬菜没有性别
 
-> 原文:[https://life hacker . com/vegetables-do-not-have-gender-1839642337](https://lifehacker.com/vegetables-do-not-have-gender-1839642337)
+> 原文：<https://lifehacker.com/vegetables-do-not-have-gender-1839642337>
 
 你听说过女西瓜比男西瓜甜吗？雄性茄子没有雌性茄子那么苦？雄性辣椒的种子更少？你听错了。
 

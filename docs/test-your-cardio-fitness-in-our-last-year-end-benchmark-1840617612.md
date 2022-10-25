@@ -1,6 +1,6 @@
 # 在我们去年的年终基准测试中测试您的有氧健身能力
 
-> 原文:[https://life hacker . com/test-your ' s cardio-fitness-in our ' s last-year-end-benchmark-1840617612](https://lifehacker.com/test-your-cardio-fitness-in-our-last-year-end-benchmark-1840617612)
+> 原文：<https://lifehacker.com/test-your-cardio-fitness-in-our-last-year-end-benchmark-1840617612>
 
 我们已经做了一些力量和柔韧性的基准测试，所以我想我们也应该做一个有氧运动的基准测试。你的 Fitbit 或 Apple Watch 可能会给你一些数字，比如 VO2max，但我更喜欢更简单的测试。
 

@@ -1,6 +1,6 @@
 # 你的爆米花需要你所有的迷迭香
 
-> 原文:[https://life hacker . com/your-popcorn-needs-all-the-rosemary-you ve-got-1842313691](https://lifehacker.com/your-popcorn-needs-all-the-rosemary-youve-got-1842313691)
+> 原文：<https://lifehacker.com/your-popcorn-needs-all-the-rosemary-youve-got-1842313691>
 
 有时生活给你的比你能处理的更多，有时它给你的是草药。无论你有一个产量过剩的花园，有一个产量过剩的花园的慷慨的朋友，还是一个拒绝出售除了包装好的塑料蛤壳以外的草药的杂货店，获得适量的草药并不总是容易的。没关系: Y 你可以用它们来做爆米花。
 

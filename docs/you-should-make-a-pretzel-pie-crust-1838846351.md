@@ -1,6 +1,6 @@
 # 你应该做一个椒盐卷饼皮
 
-> 原文:[https://life hacker . com/you-should-make-a-pretzel-pie-crust-1838846351](https://lifehacker.com/you-should-make-a-pretzel-pie-crust-1838846351)
+> 原文：<https://lifehacker.com/you-should-make-a-pretzel-pie-crust-1838846351>
 
 正如我之前提到的，我是产品烘焙师，不是流程烘焙师。摺叠、、[、冷却、](https://skillet.lifehacker.com/chill-your-countertop-before-rolling-out-pie-dough-1836994486)、、[敲打、](https://skillet.lifehacker.com/for-better-pie-crust-resort-to-violence-1798295233)、很少能提供任何形式的宣泄，制作糕点让我感到压力很大。正因为如此，我一直在寻找简单而美味的馅饼皮，椒盐卷饼皮是我的新宠。
 

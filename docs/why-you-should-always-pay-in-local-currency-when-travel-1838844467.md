@@ -1,6 +1,6 @@
 # 为什么旅行时应该总是用当地货币支付
 
-> 原文:[https://life hacker . com/why-you-should-always-pay-in-local-currency-when-travel-1838844467](https://lifehacker.com/why-you-should-always-pay-in-local-currency-when-travel-1838844467)
+> 原文：<https://lifehacker.com/why-you-should-always-pay-in-local-currency-when-travel-1838844467>
 
 当你考虑申请哪张信用卡时，你可能首先会注意到一张卡是否有签约奖金或提供高回报率。但如果你计划出国旅行，你应该忽略奖励，确保你得到了越来越普遍的信用卡好处:零国外交易费。
 

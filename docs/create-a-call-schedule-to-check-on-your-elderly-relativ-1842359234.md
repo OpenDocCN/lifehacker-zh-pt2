@@ -1,6 +1,6 @@
 # 创建一个拜访时间表来检查你年长的亲戚
 
-> 原文:[https://life hacker . com/create-a-call-schedule-to-check-on-your-older-relative-1842359234](https://lifehacker.com/create-a-call-schedule-to-check-on-your-elderly-relativ-1842359234)
+> 原文：<https://lifehacker.com/create-a-call-schedule-to-check-on-your-elderly-relativ-1842359234>
 
 为了防止冠状病毒的传播，该国大部分地区正在开始社会距离化的过程——如果不是完全与外界隔离的话。虽然这样做很重要，特别是为了保护我们人口中最脆弱的群体，但这也意味着许多脆弱的人(即老年人)可能很快就会与孤独作斗争。
 

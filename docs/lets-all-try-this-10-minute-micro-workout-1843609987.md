@@ -1,6 +1,6 @@
 # 让我们都来试试这个 10 分钟的小锻炼吧
 
-> 原文:[https://life hacker . com/let-all-try-this-10 分钟微锻炼-1843609987](https://lifehacker.com/lets-all-try-this-10-minute-micro-workout-1843609987)
+> 原文：<https://lifehacker.com/lets-all-try-this-10-minute-micro-workout-1843609987>
 
 我们一直在为本月的 [Lifehacker 健身挑战赛](https://lifehacker.com/c/lifehacker-fitness-challenge) 进行快速的家庭训练，今天我们将尝试一种由使高强度间歇训练流行起来的科学家设计的训练。这就是所谓的“去锻炼”，你可以改变它，无论你喜欢。
 

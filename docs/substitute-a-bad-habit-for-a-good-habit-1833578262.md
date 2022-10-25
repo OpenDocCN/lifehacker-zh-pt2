@@ -1,6 +1,6 @@
 # 用好习惯代替坏习惯
 
-> 原文:[https://life hacker . com/substitute-a-bad-habit-for-a-good-habit-1833578262](https://lifehacker.com/substitute-a-bad-habit-for-a-good-habit-1833578262)
+> 原文：<https://lifehacker.com/substitute-a-bad-habit-for-a-good-habit-1833578262>
 
 在 Lifehacker，我们谈论了很多关于如何养成好习惯和如何改掉坏习惯的话题。 但这个技巧是关于如何把后者换成前者，并简化整个过程。
 

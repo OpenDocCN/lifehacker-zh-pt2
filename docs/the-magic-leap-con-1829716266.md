@@ -1,6 +1,6 @@
 # 神奇飞跃骗局
 
-> 原文:[https://gizmodo.com/the-magic-leap-con-1829716266](https://gizmodo.com/the-magic-leap-con-1829716266)
+> 原文：<https://gizmodo.com/the-magic-leap-con-1829716266>
 
 “今天，我们的世界感觉分裂。”臭名昭著的混合现实初创公司 Magic Leap 的首席执行官罗尼·阿博维茨(Rony Abovitz)尴尬地站在圆形舞台上，周围是数百名参加他公司首次开发者大会和首次面向公众的重大活动的与会者，他盯着提词器，手臂放在背后。“感觉坏了，”他说。“我们空间计算的新媒介让人感觉新鲜。它没有如今主导新闻的包袱和负面标题。”
 

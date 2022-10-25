@@ -1,6 +1,6 @@
 # 在家工作时如何免费访问 Microsoft Office
 
-> 原文:[https://life hacker . com/how-to-access-Microsoft-office-for-free-while-working-f-1842427545](https://lifehacker.com/how-to-access-microsoft-office-for-free-while-working-f-1842427545)
+> 原文：<https://lifehacker.com/how-to-access-microsoft-office-for-free-while-working-f-1842427545>
 
 随着社交距离迫使更多人远程办公或在线上课，许多人无法访问工作场所或校园提供的 Microsoft Office 应用程序。这使得许多人没有可靠的方法继续正常工作。
 

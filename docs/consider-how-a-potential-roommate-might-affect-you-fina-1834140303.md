@@ -1,6 +1,6 @@
 # 考虑一下潜在的室友会如何影响你的经济状况
 
-> 原文:[https://life hacker . com/consider-how-a-potential-roommate-may-effect-you-fina-1834140303](https://lifehacker.com/consider-how-a-potential-roommate-might-affect-you-fina-1834140303)
+> 原文：<https://lifehacker.com/consider-how-a-potential-roommate-might-affect-you-fina-1834140303>
 
 当我读研究生的时候，有一天我下课回家，发现我的三个室友中有一个已经搬出去了。
 

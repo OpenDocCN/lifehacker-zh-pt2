@@ -1,6 +1,6 @@
 # 脸书可能知道你上次做爱是什么时候
 
-> 原文:[https://life hacker . com/Facebook-may-know-when you last-had-sex-1837988620](https://lifehacker.com/facebook-might-know-when-you-last-had-sex-1837988620)
+> 原文：<https://lifehacker.com/facebook-might-know-when-you-last-had-sex-1837988620>
 
 一些时期跟踪应用程序一直在向脸书发送数据， [BuzzFeed 报道](https://www.buzzfeednews.com/article/meghara/period-tracker-apps-facebook-maya-mia-fem) ，包括你做爱的时间，如果你使用应用程序记录的话。他们还分享你记录的其他信息，从详细的医疗数据到你的情绪，再到你正在使用月经应用的事实。
 

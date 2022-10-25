@@ -1,6 +1,6 @@
 # 如何让你的猫在早上安静下来
 
-> 原文:[https://life hacker . com/how-to-get-your-cat-to-be-quiet-in-the-morning-1836422209](https://lifehacker.com/how-to-get-your-cat-to-be-quiet-in-the-morning-1836422209)
+> 原文：<https://lifehacker.com/how-to-get-your-cat-to-be-quiet-in-the-morning-1836422209>
 
 现在是早上 5:37，你知道你的猫在哪里吗？你当然知道。他坐在你的床脚，用他那小小的肺尖着嗓子叫着要喂食。如此坚持不懈地从睡眠中被唤醒，注定会把最忠实的爱猫人士逼到绝望的边缘。
 

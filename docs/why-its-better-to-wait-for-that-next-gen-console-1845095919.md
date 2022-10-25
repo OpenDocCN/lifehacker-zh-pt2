@@ -1,6 +1,6 @@
 # 为什么等待下一代游戏机更好
 
-> 原文:[https://life hacker . com/why-its-better-wait-the-next-gen-console-1845095919](https://lifehacker.com/why-its-better-to-wait-for-that-next-gen-console-1845095919)
+> 原文：<https://lifehacker.com/why-its-better-to-wait-for-that-next-gen-console-1845095919>
 
 PlayStation 5 和 Xbox Series X 将在短短几周内发布，大量游戏玩家正试图在肯定会出现[稀少的假期供应](https://www.usgamer.net/articles/neither-the-xbox-series-x-or-ps5-are-really-ready-for-this-holiday) 之前获得他们的预购订单。人们很容易陷入对下一代的炒作、困惑、愤世嫉俗和焦虑之中。不过，这里有一个秘密:你最好等着购买你选择的系统。
 

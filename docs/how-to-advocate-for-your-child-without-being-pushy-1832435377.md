@@ -1,6 +1,6 @@
 # 如何在不出风头的情况下为你的孩子说话
 
-> 原文:[https://life hacker . com/how-to-advocate-for your child-without-push-1832435377](https://lifehacker.com/how-to-advocate-for-your-child-without-being-pushy-1832435377)
+> 原文：<https://lifehacker.com/how-to-advocate-for-your-child-without-being-pushy-1832435377>
 
 我们最了解我们的孩子。我们知道他们的长处和短处，他们的才能和诱因。作为父母，我们很容易看到，时间表的小小调整或政策的改变将有助于我们的孩子在学校取得更大的成功。我们的工作就是为我们的孩子辩护，对吗？
 

@@ -1,6 +1,6 @@
 # 离开健身房休息一下没关系
 
-> 原文:[https://life hacker . com/its-okay-to-take-a-break-from-the-gym-1836422659](https://lifehacker.com/its-okay-to-take-a-break-from-the-gym-1836422659)
+> 原文：<https://lifehacker.com/its-okay-to-take-a-break-from-the-gym-1836422659>
 
 不管你怎么想，我们都需要离开健身房休息一下。有时候，是因为受伤而不得不这样做。其他时候，是因为你就是没有时间。
 

@@ -1,6 +1,6 @@
 # 用这个网站停止用你的病毒之手触摸你该死的脸
 
-> 原文:[https://life hacker . com/use-this-website-to-stop-touch-your-damn-face with-y-1842154454](https://lifehacker.com/use-this-website-to-stop-touching-your-damn-face-with-y-1842154454)
+> 原文：<https://lifehacker.com/use-this-website-to-stop-touching-your-damn-face-with-y-1842154454>
 
 我喜欢简单的小工具，帮助你更好地改变你的行为——番茄红素；所有那些提醒你喝水的 apps 现在，好老“不要碰你的脸”点 com。
 

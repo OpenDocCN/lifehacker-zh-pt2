@@ -1,6 +1,6 @@
 # 如何将你在亚马逊购买的一部分给支持堕胎权利的组织
 
-> 原文:[https://life hacker . com/how-to-give-a-portion-of-your-Amazon-purchases-to-pro-c-1834890175](https://lifehacker.com/how-to-give-a-portion-of-your-amazon-purchases-to-pro-c-1834890175)
+> 原文：<https://lifehacker.com/how-to-give-a-portion-of-your-amazon-purchases-to-pro-c-1834890175>
 
 如果你是亚马逊的顾客*和*，你对六周堕胎禁令签署成为法律感到厌恶，你可以设置你的账户直接支持堕胎组织。
 

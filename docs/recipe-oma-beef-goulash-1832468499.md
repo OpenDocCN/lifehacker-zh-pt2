@@ -1,6 +1,6 @@
 # 爱情之路是用炖牛肉铺成的
 
-> 原文:[https://thetakeout.com/recipe-oma-beef-goulash-1832468499](https://thetakeout.com/recipe-oma-beef-goulash-1832468499)
+> 原文：<https://thetakeout.com/recipe-oma-beef-goulash-1832468499>
 
 如果你吃肉，你会喜欢我妈妈做的菜炖牛肉。我知道这是个大胆的主张，但我有证据支持它。这不仅是我小时候最喜欢的一道菜(不管是我妈妈做的还是我妈妈做的)，甚至是我哥哥经常要求的一道菜，他是一个挑食的人，经历了只吃 [意大利饺子](https://thetakeout.com/recipe-tips-for-how-to-make-ravioli-1832375982) 或奶酪通心粉的单一食物阶段。或者菜炖牛肉，浇在面条上。
 

@@ -1,6 +1,6 @@
 # 用你的华夫饼机做垃圾食品
 
-> 原文:[https://life hacker . com/cook-spam-in-your-waffle-maker-1840879423](https://lifehacker.com/cook-spam-in-your-waffle-maker-1840879423)
+> 原文：<https://lifehacker.com/cook-spam-in-your-waffle-maker-1840879423>
 
 我一直很怀疑那些声称他们在清醒时无法创造任何有价值的东西的艺术家。我从来没有发现我喝醉时的写作比我清醒时的写作更好，但我不得不承认，一旦我的抑制力被酒精降低，我就会想到一些最好的想法。清醒的头脑能做出垃圾华夫饼吗？可能吧，但昨晚是我喝醉的身体让*要求*他们。
 

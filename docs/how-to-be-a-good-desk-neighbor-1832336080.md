@@ -1,6 +1,6 @@
 # 如何做一个好的同桌邻居
 
-> 原文:[https://life hacker . com/how-to-be-a-good-desk-neighbor-1832336080](https://lifehacker.com/how-to-be-a-good-desk-neighbor-1832336080)
+> 原文：<https://lifehacker.com/how-to-be-a-good-desk-neighbor-1832336080>
 
 在 Lifehacker 总部，我就坐在我们出色的视频制作人希瑟旁边。
 

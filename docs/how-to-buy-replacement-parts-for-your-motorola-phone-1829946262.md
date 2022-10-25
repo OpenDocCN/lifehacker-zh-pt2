@@ -1,6 +1,6 @@
 # 如何为你的摩托罗拉手机购买替换零件
 
-> 原文:[https://life hacker . com/how-to-buy-replacement-parts for your-Motorola-phone-1829946262](https://lifehacker.com/how-to-buy-replacement-parts-for-your-motorola-phone-1829946262)
+> 原文：<https://lifehacker.com/how-to-buy-replacement-parts-for-your-motorola-phone-1829946262>
 
 几年前当我第 20 次破解我的 iPhone 5 屏幕时，我从 iFixit [订购了一个修复包，并自己修复了](https://www.popularmechanics.com/technology/gadgets/how-to/a11348/i-fixed-my-broken-iphone-screen-and-you-should-too-17250663/) 。更换显示屏出人意料地容易，而且自己动手比请苹果或其他人来做要便宜得多。如此简单，我开始为我的朋友们做这件事，如果他们从易贝购买 10 美元的替代显示器。
 

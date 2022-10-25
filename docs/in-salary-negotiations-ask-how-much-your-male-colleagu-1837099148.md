@@ -1,6 +1,6 @@
 # 在薪资谈判中，问问你的男同事工资多少
 
-> 原文:[https://life hacker . com/in-salary-negotiations-ask-how-your-male-colleagu-1837099148](https://lifehacker.com/in-salary-negotiations-ask-how-much-your-male-colleagu-1837099148)
+> 原文：<https://lifehacker.com/in-salary-negotiations-ask-how-much-your-male-colleagu-1837099148>
 
 也许你已经做了网上调查 关于你的经验在就业市场中的价值。但是如果你没有问你的同事他们挣多少钱，你可能会在下一次工资谈判中低估自己。
 

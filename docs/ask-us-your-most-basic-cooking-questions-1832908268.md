@@ -1,6 +1,6 @@
 # 问我们你最基本的烹饪问题
 
-> 原文:[https://life hacker . com/ask-us-your-most-basic-cooking-questions-1832908268](https://lifehacker.com/ask-us-your-most-basic-cooking-questions-1832908268)
+> 原文：<https://lifehacker.com/ask-us-your-most-basic-cooking-questions-1832908268>
 
 差不多两年前，我们推出了 [《成人厨房》](https://lifehacker.com/c/the-grown-up-kitchen) ，向大家征集 [你们最基本的烹饪问题](https://skillet.lifehacker.com/the-grown-up-kitchen-what-basic-kitchen-skills-would-y-1794539838#_ga=2.41977381.182320907.1551038447-1157707288.1539189461) 。了解读者不知道的东西让我填补了这些知识空白，这(希望)能让我们做更好、更快乐的家庭烹饪。
 

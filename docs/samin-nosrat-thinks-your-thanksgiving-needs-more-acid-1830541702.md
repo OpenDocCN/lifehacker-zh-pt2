@@ -1,6 +1,6 @@
 # 萨明·诺斯拉特认为你的感恩节需要更多的酸
 
-> 原文:[https://life hacker . com/samin-no srat-thinks-your ' s thanksgiving-needs-more-acid-1830541702](https://lifehacker.com/samin-nosrat-thinks-your-thanksgiving-needs-more-acid-1830541702)
+> 原文：<https://lifehacker.com/samin-nosrat-thinks-your-thanksgiving-needs-more-acid-1830541702>
 
 萨敏·诺斯拉特的《网飞秀 [*盐、脂肪、酸、热*](https://www.netflix.com/title/80198288) (以 [她那本不可思议的书](https://www.saltfatacidheat.com) 命名)既有教育意义，又很美，带着一种从萨敏本人身上散发出来的温暖平静。像任何一个经常思考食物的人一样，她有一些关于美好一天的建议和建议，包括为什么使用湿盐水没关系，如何用一些汤打破食物的丰富性，以及为什么她将在本周四吃螃蟹和炸鸡。
 

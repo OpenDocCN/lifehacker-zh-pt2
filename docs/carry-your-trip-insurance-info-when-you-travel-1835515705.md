@@ -1,6 +1,6 @@
 # 旅行时携带旅行保险信息
 
-> 原文:[https://life hacker . com/carry-your-trip-insurance-info-when-you-travel-1835515705](https://lifehacker.com/carry-your-trip-insurance-info-when-you-travel-1835515705)
+> 原文：<https://lifehacker.com/carry-your-trip-insurance-info-when-you-travel-1835515705>
 
 我获得航空信用卡的主要原因之一是因为它附带了多种形式的旅行保险。
 

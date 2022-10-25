@@ -1,6 +1,6 @@
 # YouTube 是如何危害儿童的
 
-> 原文:[https://life hacker . com/how-YouTube-is-accessing-children-1835212113](https://lifehacker.com/how-youtube-is-endangering-children-1835212113)
+> 原文：<https://lifehacker.com/how-youtube-is-endangering-children-1835212113>
 
 一份《纽约时报》 [报道](https://t.co/zNwsd9UsgN) 发现，YouTube 的算法建立了记者马克斯·费舍尔 [所描述的](https://twitter.com/Max_Fisher/status/1135535437441748992) 为“儿童性剥削的广大观众——也许是前所未有的。”它通过向观看过其他半裸儿童家庭电影的观众推荐半裸儿童家庭电影，创建了一个完整的视频目录，专家们称之为儿童色情化。巴西的一位母亲向《泰晤士报》描述了她 10 岁的女儿上传了一段她和一个朋友在后院游泳池玩耍的视频，很快就获得了 40 万的点击率。
 

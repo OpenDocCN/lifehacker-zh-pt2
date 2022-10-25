@@ -1,6 +1,6 @@
 # 冠状病毒封锁期间怎么立遗嘱？
 
-> 原文:[https://life hacker . com/how-do-you-make-a-will-due-the-coronavirus-lockdown-1842471746](https://lifehacker.com/how-do-you-make-a-will-during-the-coronavirus-lockdown-1842471746)
+> 原文：<https://lifehacker.com/how-do-you-make-a-will-during-the-coronavirus-lockdown-1842471746>
 
 如果冠状病毒的爆发让你问自己是否终于到了立遗嘱的时候，你并不孤单。(这是“你手头的时间”和“认真思考最坏情况下你所爱的人可能会发生什么的时间”的结合。)
 

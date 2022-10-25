@@ -1,6 +1,6 @@
 # T-Mobile 的 5G 网络准备好迎接黄金时段了吗？
 
-> 原文:[https://life hacker . com/is-t-mobiles-5g-network-ready-for-prime time-1840397246](https://lifehacker.com/is-t-mobiles-5g-network-ready-for-primetime-1840397246)
+> 原文：<https://lifehacker.com/is-t-mobiles-5g-network-ready-for-primetime-1840397246>
 
 又是一个大 5G 承诺的一年，尽管我们已经看到第一批 5G 设备上市，并且在过去的 12 个月里，越来越多的广告宣传 5G 速度的荣耀，但这项技术仍然不值得普通智能手机用户花钱。对于 T-Mobile 的大多数新“全国 5G”网络来说尤其如此。
 

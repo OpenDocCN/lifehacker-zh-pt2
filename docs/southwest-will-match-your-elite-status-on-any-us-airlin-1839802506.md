@@ -1,6 +1,6 @@
 # 西南航空公司将与您目前在任何美国航空公司的精英会员身份相匹配
 
-> 原文:[https://life hacker . com/south west-will-match-your-elite-status-on-any-us-airlin-1839802506](https://lifehacker.com/southwest-will-match-your-elite-status-on-any-us-airlin-1839802506)
+> 原文：<https://lifehacker.com/southwest-will-match-your-elite-status-on-any-us-airlin-1839802506>
 
 让一家航空公司的 [与你在另一家航空公司的](https://lifehacker.com/how-to-get-an-airline-to-match-your-elite-status-from-a-1836567069) 精英地位相匹配并不总是那么容易。例如，美国航空公司通常要求你额外支付一点现金才能获得资格。然而,西南航空公司,是目前正在提供一笔你应该好好利用的交易。
 

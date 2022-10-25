@@ -1,6 +1,6 @@
 # 每个人都应该使用的最佳 iOS 辅助功能
 
-> 原文:[https://life hacker . com/how-to-enable-the-best-accessibility-features-on-your-I-1843985318](https://lifehacker.com/how-to-enable-the-best-accessibility-features-on-your-i-1843985318)
+> 原文：<https://lifehacker.com/how-to-enable-the-best-accessibility-features-on-your-i-1843985318>
 
 在过去的 中，我们已经介绍了大量的 iPhone 和 iPad [辅助功能，但是如果你不习惯浏览 iPhone 或 iPad 的设置，这些选项很容易被忽略。你*应该*花点时间了解一下有哪些可用的工具，因为有很多有用的工具，任何人都可以用来提高他们的生产力(或解决小故障)。](https://lifehacker.com/the-secret-powers-hidden-in-your-iphones-accessibility-816886743) 
 

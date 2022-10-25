@@ -1,6 +1,6 @@
 # 为什么你应该在小径上跑步
 
-> 原文:[https://life hacker . com/why-you-should-do-some-you-running-on-trails-1834763168](https://lifehacker.com/why-you-should-do-some-of-your-running-on-trails-1834763168)
+> 原文：<https://lifehacker.com/why-you-should-do-some-of-your-running-on-trails-1834763168>
 
 现在天气变得越来越好，这是忘记人行道和跑步机的好时机，带着你的跑步去。步道也可以帮助你跑步，并可能减少受伤——但不是因为你认为的原因。
 

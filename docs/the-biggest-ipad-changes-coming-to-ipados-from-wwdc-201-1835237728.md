@@ -1,6 +1,6 @@
 # 2019 年 WWDC 的 iPad 最大的变化来自 iPadOS
 
-> 原文:[https://life hacker . com/the-biggest-ipad-changes-coming-to-ipados-from-wwdc-201-1835237728](https://lifehacker.com/the-biggest-ipad-changes-coming-to-ipados-from-wwdc-201-1835237728)
+> 原文：<https://lifehacker.com/the-biggest-ipad-changes-coming-to-ipados-from-wwdc-201-1835237728>
 
 在周一举行的年度全球开发者大会(简称 WWDC)上，苹果公司就其所有产品的未来做出了一些重大宣布，但其中最大的一个事实是，iPads 现在拥有自己的操作系统 iPadOS。iPad 将能够走自己的路，而不是使用与 iPhone 相同的软件 iOS。根据演示，这将使它更好地遵循区分手机和笔记本电脑的道路，成为家庭电脑的可行替代品，用于基本任务，如打字和浏览网页。
 

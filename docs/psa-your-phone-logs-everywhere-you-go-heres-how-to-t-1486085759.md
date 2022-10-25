@@ -1,6 +1,6 @@
 # PSA:无论你去哪里，你的电话都会记录下来。以下是关闭它的方法
 
-> 原文:[https://life hacker . com/PSA-you-phone-log-随处可见-to-t-1486085759](https://lifehacker.com/psa-your-phone-logs-everywhere-you-go-heres-how-to-t-1486085759)
+> 原文：<https://lifehacker.com/psa-your-phone-logs-everywhere-you-go-heres-how-to-t-1486085759>
 
 [Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)) : title[![](../Images/ce8fdf9d40d4898cdc1fe3570dd2a22f.png)](https://dataprivacy.kinja.com)[Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)We'll walk you through everything you should do to live the most secure, private life in the digital era.
 

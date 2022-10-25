@@ -1,6 +1,6 @@
 # 如何协商更低的月账单
 
-> 原文:[https://life hacker . com/how-to-negotiate-lower-monthly-bills-1844334828](https://lifehacker.com/how-to-negotiate-lower-monthly-bills-1844334828)
+> 原文：<https://lifehacker.com/how-to-negotiate-lower-monthly-bills-1844334828>
 
 随着失业数字仍在图表上和经济 [正式陷入衰退](https://twocents.lifehacker.com/what-to-do-with-your-money-now-that-were-in-a-recesssio-1843966353) ，你可能会发现自己需要削减每月开支。毫无疑问，虽然你已经在努力为生活的其他方面做预算，但实际上你也有很好的机会在账单上省钱:只要提出要求，就有可能通过谈判获得更低的月还款额。
 

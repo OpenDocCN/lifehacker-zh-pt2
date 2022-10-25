@@ -1,6 +1,6 @@
 # 如何将豌豆汤变成砂锅菜
 
-> 原文:[https://life hacker . com/how-to-turn-split-pea-soup-to-a-砂锅-1833323374](https://lifehacker.com/how-to-turn-split-pea-soup-into-a-casserole-1833323374)
+> 原文：<https://lifehacker.com/how-to-turn-split-pea-soup-into-a-casserole-1833323374>
 
 你好，欢迎回到 [*会砂锅吗？*](https://skillet.lifehacker.com/you-deserve-a-hot-and-cheesy-pierogi-casserole-1819722125?rev=1508528101066#) ，我把你的美味概念重新想象成砂锅造物的专栏。我们已经有一段时间没有一起做砂锅菜了，这种豌豆汤的情况真的是回归了。
 

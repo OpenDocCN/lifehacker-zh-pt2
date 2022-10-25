@@ -1,6 +1,6 @@
 # 如何清洁沙发
 
-> 原文:[https://lifehacker.com/how-to-clean-a-couch-1838884988](https://lifehacker.com/how-to-clean-a-couch-1838884988)
+> 原文：<https://lifehacker.com/how-to-clean-a-couch-1838884988>
 
 尽管沙发是我们家中最昂贵的家具之一，但在我们常规的清洁程序中却常常被忽视，我们中的许多人不知道如何真正护理它们。在这个视频中，我们将分解你需要知道的一切，不管你有什么类型的沙发。
 

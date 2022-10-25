@@ -1,6 +1,6 @@
 # 这是全套早餐吗？
 
-> 原文:[https://life hacker . com/is-this-eggwich-a-complete-breakfast-1845092641](https://lifehacker.com/is-this-eggwich-a-complete-breakfast-1845092641)
+> 原文：<https://lifehacker.com/is-this-eggwich-a-complete-breakfast-1845092641>
 
 我是一个充满激情的人，我的众多激情之一就是早餐三明治。不管你的价位如何，它们都是美味的稀有食物之一。在白吐司上涂上最薄、最薄的培根和美国奶酪的廉价 BEC，就像在面包店的羊角面包上涂上一个完美的荷包蛋、熏肉和精装切达干酪一样超凡脱俗。面包、鸡蛋、肉和奶酪的组合是一个完美的配方，永远不会让你失望，当这些关键元素中的一个被删除时，我会有点不安。
 

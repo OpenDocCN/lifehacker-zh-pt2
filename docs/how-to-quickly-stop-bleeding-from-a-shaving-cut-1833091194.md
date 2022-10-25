@@ -1,6 +1,6 @@
 # 如何快速止血剃须伤口
 
-> 原文:[https://life hacker . com/how-to-fast-stop-a-shaving-cut-1833091194](https://lifehacker.com/how-to-quickly-stop-bleeding-from-a-shaving-cut-1833091194)
+> 原文：<https://lifehacker.com/how-to-quickly-stop-bleeding-from-a-shaving-cut-1833091194>
 
 你正急着去上班，突然一切都失控了——就在你的脸上。
 

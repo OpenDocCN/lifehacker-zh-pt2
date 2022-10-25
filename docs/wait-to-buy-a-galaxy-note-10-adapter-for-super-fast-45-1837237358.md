@@ -1,6 +1,6 @@
 # 等下买个 Galaxy Note 10+适配器超快 45W 充电
 
-> 原文:[https://life hacker . com/wait-to-buy-a-galaxy-note-10-adapter-for-super-fast-45-1837237358](https://lifehacker.com/wait-to-buy-a-galaxy-note-10-adapter-for-super-fast-45-1837237358)
+> 原文：<https://lifehacker.com/wait-to-buy-a-galaxy-note-10-adapter-for-super-fast-45-1837237358>
 
 为手机购买新充电器可能会令人困惑。通常情况下，你可以使用你的设备附带的任何东西，但它可能不是一个可以给你最快最好充电速度的适配器。这些通常更贵，你的智能手机制造商不会那么慷慨。
 

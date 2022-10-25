@@ -1,6 +1,6 @@
 # 最适合讨厌节日的人的恐怖电影
 
-> 原文:[https://life hacker . com/the-best-the-horse-movies-for-the-people ' s-hate-the-holidays-1840482912](https://lifehacker.com/the-best-horror-movies-for-people-who-hate-the-holidays-1840482912)
+> 原文：<https://lifehacker.com/the-best-horror-movies-for-people-who-hate-the-holidays-1840482912>
 
 如果你是那种讨厌假期的人，很可能你并不喜欢那种可预测的圣诞电影模式。但是如果你喜欢恐怖片，你很幸运，因为原来假日恐怖片是它自己的电影分支。Ju st 本周，经典电影*的翻拍版*在影院 *s* 首映，向过去的圣诞恐怖电影致敬。
 

@@ -1,6 +1,6 @@
 # 在为时已晚之前做一个吉姆特
 
-> 原文:[https://life hacker . com/make-a-gimlet-before-that-late-1842144872](https://lifehacker.com/make-a-gimlet-before-its-too-late-1842144872)
+> 原文：<https://lifehacker.com/make-a-gimlet-before-its-too-late-1842144872>
 
 这是真的，孩子们:如果你不用它，你就会失去它。触摸脚趾的能力、年轻的乐观主义和可控制的宿醉都会随着每个季节的流逝而消退。柑橘也是。
 

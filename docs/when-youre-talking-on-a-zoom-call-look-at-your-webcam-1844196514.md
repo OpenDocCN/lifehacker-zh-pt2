@@ -1,6 +1,6 @@
 # 当你在进行变焦通话时，看看你的网络摄像头
 
-> 原文:[https://life hacker . com/when-you-talking-on-a-zoom-call-look-at-you-web cam-1844196514](https://lifehacker.com/when-youre-talking-on-a-zoom-call-look-at-your-webcam-1844196514)
+> 原文：<https://lifehacker.com/when-youre-talking-on-a-zoom-call-look-at-your-webcam-1844196514>
 
 目光接触对每个人来说都不容易。现在我们已经被隔离了几个月，可能很难记起在其他人在场的情况下，到底是如何互动和运作的。目前，我们大多数人最接近的是在工作视频会议上，当你瞥见你同事的隔离生活(和家)时。当你在参加一个视频会议时(或者即使只是一对一的)，你可能很难记得和电话中的其他人进行数字眼神交流——但这可能是一个好主意。
 

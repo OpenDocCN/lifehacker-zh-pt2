@@ -1,6 +1,6 @@
 # 通过创建一个“不要做的事情”清单来提高你的工作效率
 
-> 原文:[https://life hacker . com/improve-your-productivity-by-creating-a-to-do-list-1830355526](https://lifehacker.com/improve-your-productivity-by-creating-a-to-dont-list-1830355526)
+> 原文：<https://lifehacker.com/improve-your-productivity-by-creating-a-to-dont-list-1830355526>
 
 我们都知道待办事项清单可以帮助你保持专注。待办事项列表有时也同样有用。创建一个清单背后的想法就像它听起来的那样:创建一个清单，列出当天你不应该做的所有事情。
 

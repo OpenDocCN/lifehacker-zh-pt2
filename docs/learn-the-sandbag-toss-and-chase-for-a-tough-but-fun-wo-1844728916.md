@@ -1,6 +1,6 @@
 # 学习“沙袋投掷和追逐”这一艰难但有趣的运动
 
-> 原文:[https://life hacker . com/learn-the-sand-bag-toss-chase-for-a tough-but-fun-wo-1844728916](https://lifehacker.com/learn-the-sandbag-toss-and-chase-for-a-tough-but-fun-wo-1844728916)
+> 原文：<https://lifehacker.com/learn-the-sandbag-toss-and-chase-for-a-tough-but-fun-wo-1844728916>
 
 事情已经到了这一步，在沙袋健身挑战赛的这一周，我尝试了臭名昭著的。户外。在酷热中。如果我活下来了，你也可以。
 

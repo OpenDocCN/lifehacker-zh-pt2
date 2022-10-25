@@ -1,6 +1,6 @@
 # 这是我们见过的最聪明的缩放黑客
 
-> 原文:[https://life hacker . com/this-is-the-smartest-zoom-hack-we ve-seen-yet-1843418059](https://lifehacker.com/this-is-the-smartest-zoom-hack-weve-seen-yet-1843418059)
+> 原文：<https://lifehacker.com/this-is-the-smartest-zoom-hack-weve-seen-yet-1843418059>
 
 让一个无聊的青少年想出一个我见过的最巧妙的方法来在缩放聊天中“在场”——特别是如果聊天是在较大的一边，并且有人没有太注意你在网格视图中的网络摄像头。
 

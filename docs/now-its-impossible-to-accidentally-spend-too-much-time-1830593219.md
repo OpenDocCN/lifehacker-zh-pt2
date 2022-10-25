@@ -1,6 +1,6 @@
 # 现在不可能“偶然”在脸书身上花太多时间
 
-> 原文:[https://life hacker . com/now-its-impossible-in-incidential-spend-too-time-1830593219](https://lifehacker.com/now-its-impossible-to-accidentally-spend-too-much-time-1830593219)
+> 原文：<https://lifehacker.com/now-its-impossible-to-accidentally-spend-too-much-time-1830593219>
 
 现在你没有借口在脸书上花太多时间了。
 

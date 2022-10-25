@@ -1,6 +1,6 @@
 # 以冰冷的讣告开始周末
 
-> 原文:[https://life hacker . com/kick-off-the-weekend-an-ice-cold-讣告-1844883471](https://lifehacker.com/kick-off-the-weekend-with-an-ice-cold-obituary-1844883471)
+> 原文：<https://lifehacker.com/kick-off-the-weekend-with-an-ice-cold-obituary-1844883471>
 
 茴香是一种黑暗、危险、虚无的味道。也许是因为我习惯了在当地的哥特酒吧喝苦艾酒，也可能是因为直到 2007 年(我 21 岁那年)苦艾酒在美国还是非法的，但这种茴香酒有一个明显黯淡的名字并不令我惊讶。(不能只有我一个人有这种感觉；苦艾酒和香槟酒的组合被称为“下午的死亡”！)
 

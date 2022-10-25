@@ -1,6 +1,6 @@
 # im susan orlean author of the library book and this i 1834084691
 
-> 原文:[https://life hacker . com/im-Susan-or lean-the-library-book-and-this-I-1834084691 作者](https://lifehacker.com/im-susan-orlean-author-of-the-library-book-and-this-i-1834084691)
+> 原文：<https://lifehacker.com/im-susan-orlean-author-of-the-library-book-and-this-i-1834084691>
 
 苏珊·奥尔琳是《兰大盗》[](https://www.amazon.com/Orchid-Thief-Obsession-Ballantine-Readers/dp/044900371X?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-susan-orlean-author-of-the-library-book-and-this-i-1834084691&asc_source=&tag=kinjalifehackerlink-20)*等书籍的畅销书作者，最近出版了《图书馆》一书[](https://www.amazon.com/Library-Book-Susan-Orlean/dp/1476740186/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-susan-orlean-author-of-the-library-book-and-this-i-1834084691&asc_source=&crid=3UJVSFMW5WJSI&keywords=the library book susan orlean&qid=1555436423&s=books&sprefix=the libr,stripbooks,128&sr=1-1&tag=kinjalifehackerlink-20)*，他还是《纽约客》的定期撰稿人。她还痴迷于行李，是随身行李的坚定信徒，更喜欢没有任何计划的旅行。一点也不。“这让你意识到自己有多无知，有多错误，”她说。“我认为这是唯一真实的旅行方式。”**
 

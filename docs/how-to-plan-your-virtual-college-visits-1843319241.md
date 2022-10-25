@@ -1,6 +1,6 @@
 # 如何计划你的虚拟大学之旅
 
-> 原文:[https://life hacker . com/how-to-plan-your-virtual-college-visits-1843319241](https://lifehacker.com/how-to-plan-your-virtual-college-visits-1843319241)
+> 原文：<https://lifehacker.com/how-to-plan-your-virtual-college-visits-1843319241>
 
 随着大学校园关闭和招生办公室远程工作，未来的学生可能无法在可预见的未来亲自访问。
 

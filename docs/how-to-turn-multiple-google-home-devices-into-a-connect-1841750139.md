@@ -1,6 +1,6 @@
 # 如何将多个 Google Home 设备变成一个连接的扬声器系统
 
-> 原文:[https://life hacker . com/how-to-turn-multiple-Google-home-devices-into-a-connect-1841750139](https://lifehacker.com/how-to-turn-multiple-google-home-devices-into-a-connect-1841750139)
+> 原文：<https://lifehacker.com/how-to-turn-multiple-google-home-devices-into-a-connect-1841750139>
 
 在某个时候，我决定全力以赴让谷歌家庭设备在身边。我喜欢问天气，设置定时器和提醒，只要问一下就能知道演员的年龄，以至于现在我家里几乎每个房间都有一个 Google Home 设备。对于没有房间，一个迷你可能是足够接近它，并拿起我的声音。
 

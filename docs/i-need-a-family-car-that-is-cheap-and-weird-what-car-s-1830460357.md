@@ -1,6 +1,6 @@
 # 我需要一辆便宜又奇怪的家用车！应该买什么车？
 
-> 原文:[https://jalopnik . com/I-need-a-family-car-that ' s-1830460357](https://jalopnik.com/i-need-a-family-car-that-is-cheap-and-weird-what-car-s-1830460357)
+> 原文：<https://jalopnik.com/i-need-a-family-car-that-is-cheap-and-weird-what-car-s-1830460357>
 
 斯图尔特有一对双胞胎男孩，他们玩音乐，喜欢怪异的汽车。他正在寻找一些既能吸引一些注意力又实用的东西。他是日本国内市场的忠实粉丝，但不确定这些选择是否可行。他应该买什么车？
 

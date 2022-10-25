@@ -1,6 +1,6 @@
 # 你在家和孩子们在一起是怎么熬过来的？
 
-> 原文:[https://life hacker . com/how-are-how-you-surviding-being-in-home-the-kids-1842410888](https://lifehacker.com/how-are-you-surviving-being-at-home-with-the-kids-1842410888)
+> 原文：<https://lifehacker.com/how-are-you-surviving-being-at-home-with-the-kids-1842410888>
 
 今天早上醒来，我真的不知道今天是什么日子。那天不是星期三就是星期四，我很确定。一周以来，应该是星期六，但是现在，星期六就像星期一一样，所以今天是星期几还重要吗？肯定是周四(周五？).
 

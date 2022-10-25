@@ -1,6 +1,6 @@
 # 涂有莱姆黄油的烤鱼是我最喜欢的佛罗里达纪念品
 
-> 原文:[https://the take out . com/recipe-panko-fish-key-lime-butter-lazy-days-Florida-1833279993](https://thetakeout.com/recipe-panko-fish-key-lime-butter-lazy-days-florida-1833279993)
+> 原文：<https://thetakeout.com/recipe-panko-fish-key-lime-butter-lazy-days-florida-1833279993>
 
 我们一家人上周在佛罗里达群岛度假。这次旅行更关注温暖的天气而不是食物，所以我们到达时除了迈阿密的古巴食物和基斯岛的新鲜海鲜之外，几乎没有其他的用餐期望。在寻找餐馆推荐时，一个名为的地方引起了我的注意。基斯岛的许多餐馆供应烧烤、油炸和熏黑的海鲜，但“懒人日”有一种独特的专有准备，被谦虚地称为“懒人日风格”
 

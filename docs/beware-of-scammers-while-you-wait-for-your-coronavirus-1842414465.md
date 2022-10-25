@@ -1,6 +1,6 @@
 # 在你等待冠状病毒刺激检查的时候，小心骗子
 
-> 原文:[https://life hacker . com/当心骗子-等你的冠状病毒-1842414465](https://lifehacker.com/beware-of-scammers-while-you-wait-for-your-coronavirus-1842414465)
+> 原文：<https://lifehacker.com/beware-of-scammers-while-you-wait-for-your-coronavirus-1842414465>
 
 冠状病毒的爆发使美国经济陷入混乱，总统一直在与国会合作，向我们许多人发放救济支票。我们将尽快分享该计划的细节，但同时，请确保您不会被骗子欺骗，好吗？
 

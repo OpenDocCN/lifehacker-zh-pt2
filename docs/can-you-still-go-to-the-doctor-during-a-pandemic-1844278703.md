@@ -1,6 +1,6 @@
 # 疫情期间你还能去看医生吗？
 
-> 原文:[https://life hacker . com/can-you-still-to-the-doctor-in-a-疫情-1844278703](https://lifehacker.com/can-you-still-go-to-the-doctor-during-a-pandemic-1844278703)
+> 原文：<https://lifehacker.com/can-you-still-go-to-the-doctor-during-a-pandemic-1844278703>
 
 你现在走进医生的办公室可能会紧张。如果你甚至不应该在餐馆或教室里，你怎么能和其他病人一起去一个封闭的空间呢？
 

@@ -1,6 +1,6 @@
 # 为什么在手机上播放音乐听不到人声？
 
-> 原文:[https://life hacker . com/why-cant-I-heart-the-vocals-when-playing-music-on-my-pho-1835303640](https://lifehacker.com/why-cant-i-hear-the-vocals-when-playing-music-on-my-pho-1835303640)
+> 原文：<https://lifehacker.com/why-cant-i-hear-the-vocals-when-playing-music-on-my-pho-1835303640>
 
 在本周的 [Tech 911](https://lifehacker.com/c/tech-911) 栏目中我们有一个好玩的。乍一看，这是一个如此奇怪的问题，以至于我甚至不会用一个崇高的介绍来介绍它。我会让《生活黑客》的读者**娜塔莉**来解释——是的，她把自己邮件的主题称为“YouTube 音频巫术”这就是这个故事的古怪之处。
 

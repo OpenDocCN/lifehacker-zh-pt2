@@ -1,6 +1,6 @@
 # 当你的健身房倒闭时该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-when-your gym-closed-down-1831881007](https://lifehacker.com/what-to-do-when-your-gym-closes-down-1831881007)
+> 原文：<https://lifehacker.com/what-to-do-when-your-gym-closes-down-1831881007>
 
 最近的一个下午，我走向我的健身房:一个二楼的小空间，我已经加入至少五年了。这是我的第二个家，比起我公寓外的任何地方，我花了更多的时间在那里，在举重和有氧运动器械中思考生活。
 

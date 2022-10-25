@@ -1,6 +1,6 @@
 # 用加糖的谷物牛奶作为咖啡奶精
 
-> 原文:[https://life hacker . com/use-sweeted-麦片-牛奶-咖啡-奶精-1843904927](https://lifehacker.com/use-sweetened-cereal-milk-as-coffee-creamer-1843904927)
+> 原文：<https://lifehacker.com/use-sweetened-cereal-milk-as-coffee-creamer-1843904927>
 
 在我孩子的学校因疫情冠状病毒而关闭两个月后，我毫不羞愧地说，在家管理工作，同时在家教育一个 3 岁和 8 岁的孩子的挑战已经对我们的育儿惯例造成了严重破坏。然而，我有点惭愧，这对于我的后代摄入幸运符意味着什么。
 

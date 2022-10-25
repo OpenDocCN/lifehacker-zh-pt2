@@ -1,6 +1,6 @@
 # 在家做这个哑铃锻炼
 
-> 原文:[https://life hacker . com/do-this-dumbling-workout-from-home-1842490289](https://lifehacker.com/do-this-dumbbell-workout-from-home-1842490289)
+> 原文：<https://lifehacker.com/do-this-dumbbell-workout-from-home-1842490289>
 
 喜欢我们的 [最后一次在家锻炼](https://vitals.lifehacker.com/do-this-workout-at-home-no-equipment-needed-1842425497) 但是想利用你在疫情之前得到的那些哑铃吗？这里有另外五个动作，不管你家里有什么重量都可以。水瓶或汤罐总比没有好，但是如果你有一副真正的砝码，你就是黄金。
 

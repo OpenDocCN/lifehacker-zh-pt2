@@ -1,6 +1,6 @@
 # 现在你可以使用谷歌地图在 24 个城市查找自行车共享
 
-> 原文:[https://life hacker . com/now-you-can-use-Google-maps-to-find-bike-shares-in-24-c-1836559919](https://lifehacker.com/now-you-can-use-google-maps-to-find-bike-shares-in-24-c-1836559919)
+> 原文：<https://lifehacker.com/now-you-can-use-google-maps-to-find-bike-shares-in-24-c-1836559919>
 
 如果你去任何一个大城市旅行，甚至是一些小城市，你可能会遇到一些自行车共享的机会。
 

@@ -1,6 +1,6 @@
 # 周四在麦当劳用你剩余的外币
 
-> 原文:[https://life hacker . com/use-your-remain-foreign-currency-at-McDonalds-on-thur-1835242665](https://lifehacker.com/use-your-leftover-foreign-currency-at-mcdonalds-on-thur-1835242665)
+> 原文：<https://lifehacker.com/use-your-leftover-foreign-currency-at-mcdonalds-on-thur-1835242665>
 
 如果你在最近一次国际旅行中有多余的欧元、日元或卢比，明天，6 月 6 日，你就有机会把它们兑换成一些 A 级美国快餐。
 

@@ -1,6 +1,6 @@
 # 如何快速模糊照片中的人脸
 
-> 原文:[https://life hacker . com/how-to-fast-blur-faces-in-photos-1843908720](https://lifehacker.com/how-to-quickly-blur-faces-in-photos-1843908720)
+> 原文：<https://lifehacker.com/how-to-quickly-blur-faces-in-photos-1843908720>
 
 就像 [关闭手机的 GPS](https://lifehacker.com/psa-your-phone-logs-everywhere-you-go-heres-how-to-t-1486085759) 或 [限制你与谷歌](https://lifehacker.com/how-to-automatically-delete-your-google-data-and-why-y-1839614022) 分享的数据一样，人们有权保护数字隐私，但脸书等网站或谷歌照片等应用程序的内置面部识别算法积极反对我们的数字自主权。
 

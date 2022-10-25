@@ -1,6 +1,6 @@
 # 当你有一个新的婴儿时，如何获得睡眠
 
-> 原文:[https://life hacker . com/how-to-get-sleep-when you-have-a-new-baby-1831198484](https://lifehacker.com/how-to-get-sleep-when-you-have-a-new-baby-1831198484)
+> 原文：<https://lifehacker.com/how-to-get-sleep-when-you-have-a-new-baby-1831198484>
 
 你可能会对这个标题有两种反应。第一，有人嘲笑试图帮助新生儿父母睡觉的愚蠢行为。或者，第二，绝望的，脆弱的希望这篇文章能在你睡眠不足，朦胧，艰难的时候拯救你。两者都可以理解，但事实是这篇文章*是*来解救你的。因为良好的睡眠是你能为自己和孩子做的最好的事情之一。
 

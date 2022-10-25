@@ -1,6 +1,6 @@
 # 知道你的时间值多少钱，这样你就可以合理地使用它
 
-> 原文:[https://life hacker . com/know-how-how-your-time-worth-so-you-can-spend it-AP-1841132200](https://lifehacker.com/know-how-much-your-time-is-worth-so-you-can-spend-it-ap-1841132200)
+> 原文：<https://lifehacker.com/know-how-much-your-time-is-worth-so-you-can-spend-it-ap-1841132200>
 
 一小时对你来说值多少钱？
 

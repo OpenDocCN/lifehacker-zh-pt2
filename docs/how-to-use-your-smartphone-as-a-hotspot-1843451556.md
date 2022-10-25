@@ -1,6 +1,6 @@
 # 如何将智能手机用作热点
 
-> 原文:[https://life hacker . com/how-to-use-your-smart phone-as-a-hotspot-1843451556](https://lifehacker.com/how-to-use-your-smartphone-as-a-hotspot-1843451556)
+> 原文：<https://lifehacker.com/how-to-use-your-smartphone-as-a-hotspot-1843451556>
 
 我们都有过这样的经历:你需要在电脑上工作几分钟，眼前却没有免费的 wifi。如果你口袋里有一部智能手机，你可能会很幸运。大多数智能手机数据计划允许您将手机用作移动热点，这意味着您可以与您的计算机共享该数据连接，并完成您的工作。
 

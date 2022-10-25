@@ -1,6 +1,6 @@
 # 如何停止关心无关紧要的事情
 
-> 原文:[https://life hacker . com/how-to-stop-care-that-matter-1839508201](https://lifehacker.com/how-to-stop-caring-about-stuff-that-doesnt-matter-1839508201)
+> 原文：<https://lifehacker.com/how-to-stop-caring-about-stuff-that-doesnt-matter-1839508201>
 
 许多人会说他们最大的弱点是太在乎。
 

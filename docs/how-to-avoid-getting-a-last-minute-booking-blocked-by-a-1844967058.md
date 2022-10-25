@@ -1,6 +1,6 @@
 # 如何避免最后一刻的预订被 Airbnb 屏蔽
 
-> 原文:[https://life hacker . com/how-to-avoid-getting-a-1844967058](https://lifehacker.com/how-to-avoid-getting-a-last-minute-booking-blocked-by-a-1844967058)
+> 原文：<https://lifehacker.com/how-to-avoid-getting-a-last-minute-booking-blocked-by-a-1844967058>
 
 Airbnb 正在打击派对。他们现在基本上相当于你高中时的父母。即使你称之为“小型聚会”，仍然有可能造成混乱或其他类型的财产损失。因此，为了避免这种情况，他们制定了一个新的最后一分钟预订政策。以下是你需要知道的。
 

@@ -1,6 +1,6 @@
 # 使用此应用程序观看网飞时学习另一种语言
 
-> 原文:[https://life hacker . com/learn-another-language-watching-网飞-using-this-app-1833869703](https://lifehacker.com/learn-another-language-watching-netflix-using-this-app-1833869703)
+> 原文：<https://lifehacker.com/learn-another-language-watching-netflix-using-this-app-1833869703>
 
 学习一门新语言很难。学了八年法语后，我在这门语言上是一个糟糕透顶的失败者，直到我在这个国家花了一个月的时间经常使用它。看到在上下文中使用的单词和短语会比仅仅在教科书中阅读更容易理解。
 

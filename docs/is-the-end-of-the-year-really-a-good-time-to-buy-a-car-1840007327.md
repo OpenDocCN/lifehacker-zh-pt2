@@ -1,6 +1,6 @@
 # 年底真的是买车的好时机吗？
 
-> 原文:[https://life hacker . com/is-the-end-of-the-year-the-end ' s-a-good time to-buy-a-car-1840007327](https://lifehacker.com/is-the-end-of-the-year-really-a-good-time-to-buy-a-car-1840007327)
+> 原文：<https://lifehacker.com/is-the-end-of-the-year-really-a-good-time-to-buy-a-car-1840007327>
 
 你能想到的每家企业都在进行黑色星期五促销，包括汽车经销商。当然，也许你没有想到把汽车放在你的假日购物清单上，但是年底经常被传言是买车的好时机。如果你想买一辆新车，你可能会想看看这些季节性促销活动。
 

@@ -1,6 +1,6 @@
 # 为感恩节早上制作并冷冻蔓越莓烤面包机糕点
 
-> 原文:[https://life hacker . com/make-and-freeze-cranberry-toaster-peaches-for-thanksgi-1830445831](https://lifehacker.com/make-and-freeze-cranberry-toaster-pastries-for-thanksgi-1830445831)
+> 原文：<https://lifehacker.com/make-and-freeze-cranberry-toaster-pastries-for-thanksgi-1830445831>
 
 感恩节早上只有时间做一顿饭，而且那顿饭不是早餐。谷类食品或商店购买的丹麦点心总是一个选择，但如果你想提供温暖和季节性合适的东西，你可以现在就制作这些三种成分的烤面包机糕点，并把它们放在冰箱里直到喂食时间。
 

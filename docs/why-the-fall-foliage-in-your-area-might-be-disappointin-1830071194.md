@@ -1,6 +1,6 @@
 # 为什么今年你所在地区的秋叶会令人失望
 
-> 原文:[https://gizmodo . com/why-the fall-folize-in-1830071194](https://gizmodo.com/why-the-fall-foliage-in-your-area-might-be-disappointin-1830071194)
+> 原文：<https://gizmodo.com/why-the-fall-foliage-in-your-area-might-be-disappointin-1830071194>
 
 如果你住在美国东海岸，很有可能你已经注意到今年明显缺乏生机勃勃的秋叶。
 

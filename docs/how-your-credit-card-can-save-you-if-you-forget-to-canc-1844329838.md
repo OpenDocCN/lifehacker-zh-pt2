@@ -1,6 +1,6 @@
 # 如果你忘记取消免费试用，你的信用卡会如何帮你
 
-> 原文:[https://life hacker . com/how-your-credit-card-can-save-you-if-you-forget-to-canc-1844329838](https://lifehacker.com/how-your-credit-card-can-save-you-if-you-forget-to-canc-1844329838)
+> 原文：<https://lifehacker.com/how-your-credit-card-can-save-you-if-you-forget-to-canc-1844329838>
 
 疫情在很多方面影响了美国人的消费方式。4 月， [《纽约时报》报道了](https://www.nytimes.com/interactive/2020/04/11/business/economy/coronavirus-us-economy-spending.html) 在旅游、购物和餐饮方面的支出大幅下降。但是在其他领域也有增长，比如食品杂货和订阅服务。
 

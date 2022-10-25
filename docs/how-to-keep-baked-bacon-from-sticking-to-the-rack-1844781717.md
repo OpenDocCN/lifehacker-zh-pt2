@@ -1,6 +1,6 @@
 # 如何防止烤培根粘架
 
-> 原文:[https://life hacker . com/how-to-keep-baked-bacon-sticking-to-the-rack-1844781717](https://lifehacker.com/how-to-keep-baked-bacon-from-sticking-to-the-rack-1844781717)
+> 原文：<https://lifehacker.com/how-to-keep-baked-bacon-from-sticking-to-the-rack-1844781717>
 
 我做了很多熏肉。有时我会油炸它(当然是从一个 [冷锅](https://lifehacker.com/the-secret-to-great-bacon-is-a-cold-pan-1829171657) 开始)，但大多数时候我会在一个有边框的烤盘内的金属丝架上烘烤它。它平放，从一端到另一端均匀地酥脆，我永远不用担心油脂溅到我苍白敏感的皮肤上。这种不干涉的方法比油炸更安全也更容易(这对于像我这样懒惰的懦夫来说很好)，但是我注意到一些熏肉——尤其是更薄的熏肉——倾向于粘在它所在的金属丝架上。
 

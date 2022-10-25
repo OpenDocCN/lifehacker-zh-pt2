@@ -1,6 +1,6 @@
 # 要想知道你未来的老板是否称职，可以问这个问题
 
-> 原文:[https://life hacker . com/to-find-out-if-your ' s potential-boss-be-any-good-as-1844240788](https://lifehacker.com/to-find-out-if-your-potential-boss-will-be-any-good-as-1844240788)
+> 原文：<https://lifehacker.com/to-find-out-if-your-potential-boss-will-be-any-good-as-1844240788>
 
 求职面试是在推销自己和你的技能之间的微妙平衡，同时也要评估公司和你潜在的新老板。正如许多人发现的那样，即使你得到了你认为是“梦想的工作”，如果你为一个结果是糟糕的老板和/或经理的人工作，你的经历会让你觉得更像是一场噩梦。但是如果有一个简单的问题可以让你判断一个人会成为什么样的老板呢？据 WorkItDaily.com 职业教练 J.T .安东内尔 称，有。
 

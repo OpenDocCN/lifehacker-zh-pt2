@@ -1,6 +1,6 @@
 # 据 Reddit 报道，随机建议可能会救你一命
 
-> 原文:[https://life hacker . com/random-advice-that-may-save-your-life-据 r-1836814664](https://lifehacker.com/random-advice-that-might-save-your-life-according-to-r-1836814664)
+> 原文：<https://lifehacker.com/random-advice-that-might-save-your-life-according-to-r-1836814664>
 
 你永远不知道什么可怕的、威胁生命的事件即将发生。当然，想一想都会让人焦虑——你不可能在每种情况下都知道该怎么做——但 Reddit 上的一个帖子可能会让你对避免悲剧有更多的准备。 [哪些知识可能会在某一天救你一命](https://www.reddit.com/r/AskReddit/comments/cj95jb/what_knowledge_might_save_your_life_one_day/) ？”帖子里有很多关于如何快速思考而不死的技巧和诀窍。
 

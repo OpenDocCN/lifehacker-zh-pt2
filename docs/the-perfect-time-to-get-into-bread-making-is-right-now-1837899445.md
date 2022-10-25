@@ -1,6 +1,6 @@
 # 现在是制作面包的最佳时机
 
-> 原文:[https://life hacker . com/the-perfect-time to-get-in-bread-making-right-now-1837899445](https://lifehacker.com/the-perfect-time-to-get-into-bread-making-is-right-now-1837899445)
+> 原文：<https://lifehacker.com/the-perfect-time-to-get-into-bread-making-is-right-now-1837899445>
 
 从头开始烘焙一条面包似乎是典型的冬季烹饪项目。在寒冷的日子里，温暖的厨房和新鲜出炉的面包的味道是如此的舒适，以至于在夏天想起来都感觉怪怪的。但是相信我:我如果你是面包制作的新手，并且对这个过程有点害怕，你应该现在就开始，在夏末，当你的房子还足够温暖让面团发酵的时候。
 

@@ -1,6 +1,6 @@
 # 俄亥俄州阿片类药物和解对其他诉讼意味着什么
 
-> 原文:[https://life hacker . com/what-the-Ohio-opoid-settlement-means-for-other-law-1839236895](https://lifehacker.com/what-the-ohio-opioid-settlement-means-for-other-lawsuit-1839236895)
+> 原文：<https://lifehacker.com/what-the-ohio-opioid-settlement-means-for-other-lawsuit-1839236895>
 
 俄亥俄州的两个县计划起诉一些公司在阿片类药物流行中的作用，但在最后一刻，双方 [达成了 2.6 亿美元的和解](https://www.washingtonpost.com/health/ohio-counties-drug-firms-reach-260m-settlement-averting-trial/2019/10/21/c9ac1dd4-f39f-11e9-ad8b-85e2aa00b5ce_story.html) 。这对于相关的国家和公司以及未来更多诉讼的可能性意味着什么。
 

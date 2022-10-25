@@ -1,6 +1,6 @@
 # 最好的自己动手的 DVR 增加了有线电视
 
-> 原文:[https://gizmodo . com/the-best-do-it-yourself-DVR-adds-live-cable-1830461013](https://gizmodo.com/the-best-do-it-yourself-dvr-adds-live-cable-1830461013)
+> 原文：<https://gizmodo.com/the-best-do-it-yourself-dvr-adds-live-cable-1830461013>
 
 有一种新的方法来切断这种联系，对于像我这样自己动手的书呆子来说，这可能也是最好的方法。SiliconDust 最出名的是它的一系列 [HDHomeRun DVR 设备](https://www.silicondust.com/hdhomerun/) ，你可以将它们连接到你已经拥有的硬盘或 NAS 上，以录制电视内容并在家中的任何地方播放。现在，每月支付 35 美元，你就可以在从天线下载的所有内容上播放 45 个有线电视频道。这意味着所有的地方频道都是高清的，同时还有大量的有线电视频道，包括 ESPN、HGTV 和卡通频道。
 

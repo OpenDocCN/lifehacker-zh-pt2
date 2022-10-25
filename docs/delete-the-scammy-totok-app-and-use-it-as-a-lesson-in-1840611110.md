@@ -1,6 +1,6 @@
 # 删除诈骗的“ToTok”应用程序，并将其作为避免间谍软件的一个教训
 
-> 原文:[https://life hacker . com/delete-the-scammy-totok-app-and-use-it-as-a-lesson-in-1840611110](https://lifehacker.com/delete-the-scammy-totok-app-and-use-it-as-a-lesson-in-1840611110)
+> 原文：<https://lifehacker.com/delete-the-scammy-totok-app-and-use-it-as-a-lesson-in-1840611110>
 
 首先，是“托托克”，不是“抖音”一个是消息应用程序，结果是阿拉伯联合酋长国的间谍软件；另一个是古怪的视频应用程序，人们用它来和他们的猫做口型同步来制作有趣的迷因。继续这样做，但如果你是数百万安装 ToTok 的人中的一员，一定要把它从你的设备上删除，因为它完全是假的。
 

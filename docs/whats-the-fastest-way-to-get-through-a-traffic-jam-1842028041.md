@@ -1,6 +1,6 @@
 # 穿过交通堵塞的最快方法是什么？
 
-> 原文:[https://life hacker . com/whats-1842028041](https://lifehacker.com/whats-the-fastest-way-to-get-through-a-traffic-jam-1842028041)
+> 原文：<https://lifehacker.com/whats-the-fastest-way-to-get-through-a-traffic-jam-1842028041>
 
 啊，没有什么比在阳光明媚的日子里在高速公路上飞驰更好的了——风吹过你的头发，戴上太阳镜，还有...交通堵塞时，你突然来了个急刹车。
 

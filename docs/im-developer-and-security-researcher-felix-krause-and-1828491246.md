@@ -1,6 +1,6 @@
 # 我是开发人员和安全研究员 Felix Krause，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-developer-and-security-research-Felix-Krause-and-1828491246](https://lifehacker.com/im-developer-and-security-researcher-felix-krause-and-1828491246)
+> 原文：<https://lifehacker.com/im-developer-and-security-researcher-felix-krause-and-1828491246>
 
 如果你喜欢或讨厌苹果，你应该听听菲利克斯·克劳斯的歌。我们已经在 Lifehacker 上多次报道过他的安全研究，因为他揭露了 MacOS 和 iOS 上的漏洞:任何 Mac 应用程序如何能够秘密截取你电脑的屏幕截图 ，或者 iOS 应用程序如何能够通过伪造的登录屏幕 窃取你的密码。那项研究甚至不是他的主要工作。我们采访了他的许多项目，包括 fastlane，一个名为 Master Key 的自动发邮件应用程序，他的安全研究，以及他如何在 Twitter 和 Google 工作。
 

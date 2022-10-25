@@ -1,6 +1,6 @@
 # 如何在健身房与人交谈
 
-> 原文:[https://life hacker . com/how-to-talk-to-people-in-the-gym-1837583622](https://lifehacker.com/how-to-talk-to-people-at-the-gym-1837583622)
+> 原文：<https://lifehacker.com/how-to-talk-to-people-at-the-gym-1837583622>
 
 在满是人的健身房里呆上一两个小时，却不和任何人说话，这是完全正常的。戴上耳机，专注于你的训练。但是如果你想让 T1 和某人说话呢？一个可爱的家伙？一个让你敬畏的运动员？
 

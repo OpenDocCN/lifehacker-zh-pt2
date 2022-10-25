@@ -1,6 +1,6 @@
 # 紧急疏散时要带什么
 
-> 原文:[https://life hacker . com/what-to-pack-in-a-emergency-evacuation-1839418212](https://lifehacker.com/what-to-pack-during-an-emergency-evacuation-1839418212)
+> 原文：<https://lifehacker.com/what-to-pack-during-an-emergency-evacuation-1839418212>
 
 周末，加州北部的毁灭性火灾迫使大约 20 万人撤离——据《华盛顿邮报》报道，这是索诺玛县历史上最大的一次撤离。与此同时，就在南方几百英里处， [盖蒂大火](https://losangeles.cbslocal.com/2019/10/28/getty-fire-mandatory-evacuations-ordered/) 已经吞噬了洛杉矶地区至少 500 英亩的土地，并迫使数千人撤离。
 

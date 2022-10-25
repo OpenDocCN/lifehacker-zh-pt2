@@ -1,6 +1,6 @@
 # 没有这个变通办法，你就不能在 Linux 上播放《星际迷航:皮卡德》
 
-> 原文:[https://life hacker . com/you-cant-stream-star-trek-Picard-on-Linux-without-this-1841327097](https://lifehacker.com/you-cant-stream-star-trek-picard-on-linux-without-this-1841327097)
+> 原文：<https://lifehacker.com/you-cant-stream-star-trek-picard-on-linux-without-this-1841327097>
 
 现在是 2020 年，你认为在任何你想要的设备上播放任何你想要的内容都很容易——尤其是 CBS All Access 上全新的 *Picard* 系列。如果你是一个既喜欢《T2》、《星际迷航》、《T3》又喜欢 Linux 的超级极客，那你就不走运了。由于数字版权管理(DRM)的乐趣，你无法在 Linux 上使用 CBS 的 All Access 服务来传输 Picard。
 

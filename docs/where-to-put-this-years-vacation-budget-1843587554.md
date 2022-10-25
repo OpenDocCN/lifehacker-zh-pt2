@@ -1,6 +1,6 @@
 # 今年的假期预算放在哪里
 
-> 原文:[https://life hacker . com/where-put-this-years-vacation-budget-1843587554](https://lifehacker.com/where-to-put-this-years-vacation-budget-1843587554)
+> 原文：<https://lifehacker.com/where-to-put-this-years-vacation-budget-1843587554>
 
 我不知道你怎么样，但是我从一月份开始为我的暑假存钱。事实上，我有两次单独旅行的预算项目:一次去看朋友，一次去看家人。
 

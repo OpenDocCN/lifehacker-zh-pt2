@@ -1,6 +1,6 @@
 # HBO Max 缺少什么
 
-> 原文:[https://lifehacker.com/what-hbo-max-lacks-1843710742](https://lifehacker.com/what-hbo-max-lacks-1843710742)
+> 原文：<https://lifehacker.com/what-hbo-max-lacks-1843710742>
 
 HBO 的新流媒体服务 HBO Max 昨天推出，随之而来的是关于如何和在哪里可以访问它以及你甚至可以在上面观看什么的大量困惑。
 

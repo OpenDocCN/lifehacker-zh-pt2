@@ -1,6 +1,6 @@
 # 如何将垃圾邮件排除在谷歌日历之外
 
-> 原文:[https://life hacker . com/how-to-keep-spam-out-of-your-Google-calendar-1835810050](https://lifehacker.com/how-to-keep-spam-out-of-your-google-calendar-1835810050)
+> 原文：<https://lifehacker.com/how-to-keep-spam-out-of-your-google-calendar-1835810050>
 
 多年来，骗子和垃圾邮件发送者一直在悄悄进入毫无防备的用户的谷歌日历，但在过去几周，谷歌日历钓鱼诈骗的头条新闻层出不穷。原因如下。
 

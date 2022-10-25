@@ -1,6 +1,6 @@
 # 如何阻止电子邮件跟踪你
 
-> 原文:[https://life hacker . com/how-to-stop-emails-from-tracking-you-1836079891](https://lifehacker.com/how-to-stop-emails-from-tracking-you-1836079891)
+> 原文：<https://lifehacker.com/how-to-stop-emails-from-tracking-you-1836079891>
 
 电子邮件跟踪可能是一种糟糕的做法。我想不出更好的方式来描述最新的报道，硅谷时尚 [超人](https://gizmodo.com/silicon-valley-s-hottest-email-app-raises-ethical-quest-1836051629)——一个月 30 美元的电子邮件服务——记录电子邮件收件人打开邮件的次数。
 

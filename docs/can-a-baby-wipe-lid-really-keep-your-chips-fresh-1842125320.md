@@ -1,6 +1,6 @@
 # 婴儿擦拭盖真的能保持薯片新鲜吗？
 
-> 原文:[https://life hacker . com/can-a-baby-wipe-lid-really-keep-your chips-fresh-1842125320](https://lifehacker.com/can-a-baby-wipe-lid-really-keep-your-chips-fresh-1842125320)
+> 原文：<https://lifehacker.com/can-a-baby-wipe-lid-really-keep-your-chips-fresh-1842125320>
 
 在 Hack 或 Wack，我们喜欢测试来自年轻人最喜欢的平台抖音的黑客。但事实证明，抖音也有一些年长的内容制作人贡献他们最好的生活窍门。
 

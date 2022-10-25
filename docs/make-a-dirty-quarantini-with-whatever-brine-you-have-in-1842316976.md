@@ -1,6 +1,6 @@
 # 用你冰箱里的盐水做一次“肮脏的隔离”
 
-> 原文:[https://life hacker . com/make-a-dirty-quarantini-with whatever-brine-you-has-in-1842316976](https://lifehacker.com/make-a-dirty-quarantini-with-whatever-brine-you-have-in-1842316976)
+> 原文：<https://lifehacker.com/make-a-dirty-quarantini-with-whatever-brine-you-have-in-1842316976>
 
 看起来我们中的很多人将会花更多的时间在家里，这可能会导致无聊、厌倦和大量饮酒。Twitter——这是一个非常有趣的地方——似乎对这些潜在的“隔离”感到兴奋，这些隔离有两种形式:“ [一种你在家里独自喝的普通马提尼](https://twitter.com/stonecold2050/status/1238249845770653696) ”和 [这种饮料](https://twitter.com/J4CKMULL/status/1238475320115724289) ，其中含有 Emergen-C
 

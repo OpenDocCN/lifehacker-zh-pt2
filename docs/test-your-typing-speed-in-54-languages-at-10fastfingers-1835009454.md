@@ -1,6 +1,6 @@
 # 以 10 个快速手指在 54 种语言中测试您的打字速度
 
-> 原文:[https://life hacker . com/test-your-typing-speed-in-54-languages-at-10 fast fingers-1835009454](https://lifehacker.com/test-your-typing-speed-in-54-languages-at-10fastfingers-1835009454)
+> 原文：<https://lifehacker.com/test-your-typing-speed-in-54-languages-at-10fastfingers-1835009454>
 
 伙计，我刚做了打字测试，心跳加速了。在[10 个快速手指](https://10fastfingers.com/) ，你可以在大多数主要语言和欧洲语言中测试你的打字速度，与你语言中的其他打字员进行比较，并进行实时比赛(但仅限英语)。
 

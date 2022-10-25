@@ -1,6 +1,6 @@
 # 你应该喝巧克力糖浆瓶子里的水吗？
 
-> 原文:[https://life hacker . com/should-you-drink-water-out-of-a-chocolate-糖浆-bottle-1841642300](https://lifehacker.com/should-you-drink-water-out-of-a-chocolate-syrup-bottle-1841642300)
+> 原文：<https://lifehacker.com/should-you-drink-water-out-of-a-chocolate-syrup-bottle-1841642300>
 
 上周，当田纳西州众议员肯特·卡尔菲(Kent Calfee)喝着看起来像是纯好时巧克力糖浆 的照片出现时，互联网上一片哗然。
 

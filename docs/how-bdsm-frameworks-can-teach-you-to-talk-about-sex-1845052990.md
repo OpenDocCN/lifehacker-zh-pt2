@@ -1,6 +1,6 @@
 # how bdsm frameworks can teach you to talk about sex 1845052990
 
-> 原文:[https://life hacker . com/how-bdsm-frameworks-can-teach-you-talk-on-sex-1845052990](https://lifehacker.com/how-bdsm-frameworks-can-teach-you-to-talk-about-sex-1845052990)
+> 原文：<https://lifehacker.com/how-bdsm-frameworks-can-teach-you-to-talk-about-sex-1845052990>
 
 虽然在外行人看来它们可能是一样的，但 BDSM 却是《搏击俱乐部》的反义词:BDSM 的第一条规则是你要谈论 BDSM。很多。
 

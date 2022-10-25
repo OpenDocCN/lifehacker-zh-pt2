@@ -1,6 +1,6 @@
 # 如何黑宝宝的衣服
 
-> 原文:[https://life hacker . com/how-to-hack-your-babys-clothing-1836622203](https://lifehacker.com/how-to-hack-your-babys-clothing-1836622203)
+> 原文：<https://lifehacker.com/how-to-hack-your-babys-clothing-1836622203>
 
 给婴儿穿衣服会很有趣。也许你有一抽屉的连体衣，上面有这样的标语:“尿布装载。请稍候。”*爆笑。但是有时也会很棘手。对于一些常见的婴儿服装挑战，我们有一些巧妙的解决方案。*
 

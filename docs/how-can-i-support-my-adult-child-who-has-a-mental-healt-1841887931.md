@@ -1,6 +1,6 @@
 # 我该如何抚养患有精神健康障碍的成年子女？
 
-> 原文:[https://life hacker . com/how-can-I-support-my-大人-child-who-a-mental-health-1841887931](https://lifehacker.com/how-can-i-support-my-adult-child-who-has-a-mental-healt-1841887931)
+> 原文：<https://lifehacker.com/how-can-i-support-my-adult-child-who-has-a-mental-healt-1841887931>
 
 无论是在父母咨询专栏还是在其他更普通的帖子中，心理健康仍然是读者要求我涵盖的最多的话题之一。因此，当我在 1 月份写了关于如何养育一个有患精神健康障碍风险的孩子的文章时，我并不感到惊讶，这引发了另一个读者关于这个主题的问题——这一次是关于如何养育一个患有精神疾病的成年孩子。
 

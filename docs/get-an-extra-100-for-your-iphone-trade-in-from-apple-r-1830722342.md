@@ -1,6 +1,6 @@
 # 立即从苹果获得额外的 100 美元的 iPhone 折价
 
-> 原文:[https://life hacker . com/get-an-extra-100-for-your-apple-r-1830722342](https://lifehacker.com/get-an-extra-100-for-your-iphone-trade-in-from-apple-r-1830722342)
+> 原文：<https://lifehacker.com/get-an-extra-100-for-your-iphone-trade-in-from-apple-r-1830722342>
 
 如果你一直在考虑升级你的 iPhone，现在可能是个好时机。
 

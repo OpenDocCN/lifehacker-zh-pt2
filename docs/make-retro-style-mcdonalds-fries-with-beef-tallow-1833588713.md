@@ -1,6 +1,6 @@
 # 用牛油做复古麦当劳薯条
 
-> 原文:[https://life hacker . com/make-retro-style-麦当劳-牛油薯条-1833588713](https://lifehacker.com/make-retro-style-mcdonalds-fries-with-beef-tallow-1833588713)
+> 原文：<https://lifehacker.com/make-retro-style-mcdonalds-fries-with-beef-tallow-1833588713>
 
 1990 年，发生了两件意义重大的事情:我举办了一个恐龙主题的生日派对，麦当劳改变了他们的薯条配方。有人可能会说，1990 年 4 岁的人不可能记得最初的麦当劳薯条的标志性味道，但我记得我的恐龙主题生日派对的极端细节，所以将军，亚里士多德。
 

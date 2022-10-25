@@ -1,6 +1,6 @@
 # 询问你的医生关于任何治疗的这四个问题
 
-> 原文:[https://life hacker . com/ask-your-doctor-this-four-questions-about-any-treatment-1830830788](https://lifehacker.com/ask-your-doctor-these-four-questions-about-any-treatmen-1830830788)
+> 原文：<https://lifehacker.com/ask-your-doctor-these-four-questions-about-any-treatmen-1830830788>
 
 你的医生推荐一件事，你做了。这是医患关系可能走向的最简单版本，但并不总是最好的版本。你以后可能会发现还有其他你不知道的治疗方案，或者你服用的药物的风险可能大于其益处。要了解全貌，问这四个问题。
 

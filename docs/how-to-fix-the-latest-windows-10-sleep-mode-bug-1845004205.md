@@ -1,6 +1,6 @@
 # 如何修复最新的 Windows 10 睡眠模式 Bug
 
-> 原文:[https://life hacker . com/how-to-fix-the-latest-windows-10-sleep-mode-bug-1845004205](https://lifehacker.com/how-to-fix-the-latest-windows-10-sleep-mode-bug-1845004205)
+> 原文：<https://lifehacker.com/how-to-fix-the-latest-windows-10-sleep-mode-bug-1845004205>
 
 Windows 10 年 9 月更新终于修复了 [过度热心的驱动器优化行为，这种行为将固态硬盘置于风险之中](https://lifehacker.com/this-windows-10-drive-optimization-bug-could-harm-your-1844868836) 。不幸的是，它也引入了另一个恼人的错误，使一些用户无法进入睡眠模式。
 

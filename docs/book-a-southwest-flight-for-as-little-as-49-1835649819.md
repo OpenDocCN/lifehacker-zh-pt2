@@ -1,6 +1,6 @@
 # 你可以只花 49 美元预订西南航空公司的航班
 
-> 原文:[https://life hacker . com/book-a-south west-flight-for-little-as-as-49-1835649819](https://lifehacker.com/book-a-southwest-flight-for-as-little-as-49-1835649819)
+> 原文：<https://lifehacker.com/book-a-southwest-flight-for-as-little-as-49-1835649819>
 
 夏天快开始了——这意味着如果你还没有计划好今年秋天的假期计划的话，现在可能是时候了。直到明天午夜，西南航空公司正在大减价，庆祝公司的生日，今秋单程机票价格低至 49 美元。
 

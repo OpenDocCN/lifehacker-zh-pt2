@@ -1,6 +1,6 @@
 # 如果你是军人，如何节省信用卡费用
 
-> 原文:[https://life hacker . com/how-to-save-on-cards-if you-in-the-military-1838785755](https://lifehacker.com/how-to-save-on-credit-cards-if-youre-in-the-military-1838785755)
+> 原文：<https://lifehacker.com/how-to-save-on-credit-cards-if-youre-in-the-military-1838785755>
 
 $250.$450.$550.顶级旅行奖励卡的年费持续攀升。但是现役军人根本不需要支付这些费用。这一巨大的折扣要归功于《军事借贷法》(MLA)和 [服役人员民事救济法(SCRA)](https://www.consumerfinance.gov/ask-cfpb/when-am-i-covered-by-the-servicemembers-civil-relief-act-scra-en-2086/) ，这些法律旨在保护服役人员免受不公平信贷和借贷行为的影响。
 

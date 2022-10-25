@@ -1,6 +1,6 @@
 # VSCO 女孩父母指南
 
-> 原文:[https://life hacker . com/a-parents-guide-to-vsco-girls-1839095762](https://lifehacker.com/a-parents-guide-to-vsco-girls-1839095762)
+> 原文：<https://lifehacker.com/a-parents-guide-to-vsco-girls-1839095762>
 
 如果你注意到你的十几岁或十几岁的女孩经常穿着超大号 t 恤、Birkenstock 凉鞋、贝壳项链和用发带固定的凌乱的发髻，她可能是 VSCO 女孩——特别是如果她一直恳求你挥霍 35 美元的 Hydro Flask。
 

@@ -1,6 +1,6 @@
 # 从第二轮民主党总统候选人辩论中可以期待什么
 
-> 原文:[https://life hacker . com/what-to-expect-from-round-two-of-the-democratic-president-1836601396](https://lifehacker.com/what-to-expect-from-round-two-of-the-democratic-preside-1836601396)
+> 原文：<https://lifehacker.com/what-to-expect-from-round-two-of-the-democratic-preside-1836601396>
 
 第二轮民主党辩论还有一周就要开始了，10 名总统候选人将在底特律的两个不同的夜晚出现在舞台上——赌注比以往任何时候都高。到 9 月份，候选人必须拥有 13 万名独特的捐助者，并且在四次民意调查中至少获得 2%的支持，才有资格参加*下一轮*辩论，这意味着我们很可能会目睹中等候选人引起全国关注。
 

@@ -1,6 +1,6 @@
 # 我把我的孩子拖进了五辆不同的小型货车:以下是我学到的东西
 
-> 原文:[https://jalopnik . com/I-tuwled-my-kid-around-in-five-different-minivans-here-1840699578](https://jalopnik.com/i-hauled-my-kid-around-in-five-different-minivans-here-1840699578)
+> 原文：<https://jalopnik.com/i-hauled-my-kid-around-in-five-different-minivans-here-1840699578>
 
 人们要么讨厌小型货车，要么完全忘记了它们，尽管它们是最实用、最舒适的交通工具，一个四口之家甚至更多的人都可以使用它们。
 

@@ -1,6 +1,6 @@
 # 在一切再次关闭之前，你现在应该得到宫内节育器吗？
 
-> 原文:[https://life hacker . com/should-you-get-an-IUD-now-before-everything-shut-down-1844412323](https://lifehacker.com/should-you-get-an-iud-now-before-everything-shuts-down-1844412323)
+> 原文：<https://lifehacker.com/should-you-get-an-iud-now-before-everything-shuts-down-1844412323>
 
 今年到目前为止，所有的焦点都在新冠肺炎，人们很容易忽略常规医疗保健。对于有子宫但对怀孕不感兴趣的人来说，这包括获得他们首选的节育方法。那些服用避孕药的人也许可以通过他们的药店或者 [送货上门服务](https://vitals.lifehacker.com/these-online-services-offer-birth-control-without-visit-1790510793) 获得补充，但是对于选择 [宫内节育器](https://lifehacker.com/why-the-iud-could-be-your-perfect-birth-control-method-1718250795) 的人来说，事情就有点复杂了。
 

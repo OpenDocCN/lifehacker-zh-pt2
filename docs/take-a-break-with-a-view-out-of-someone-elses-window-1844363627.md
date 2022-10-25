@@ -1,6 +1,6 @@
 # 休息一下，看看别人窗外的风景
 
-> 原文:[https://life hacker . com/take-a-break-with-a-view-out-of-someone-elses-window-1844363627](https://lifehacker.com/take-a-break-with-a-view-out-of-someone-elses-window-1844363627)
+> 原文：<https://lifehacker.com/take-a-break-with-a-view-out-of-someone-elses-window-1844363627>
 
 随着美国和其他国家 [的新冠肺炎病例数量暴涨，限制谁能和谁不能越过他们的边境](https://lifehacker.com/everything-you-need-to-know-about-the-eu-travel-ban-1844323586) ，我们可能有一段时间不能出国旅行了。见鬼，这不是一个旅行的好主意，即使是在我们国家境内。但是被困在家里，对周围的环境感到厌烦，并不意味着你不能体验到不同的风景。
 

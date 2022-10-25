@@ -1,6 +1,6 @@
 # 你可以用华夫饼干机“烤”桃子
 
-> 原文:[https://life hacker . com/you-can-grill-peaches-with your-waffle-maker-1844442237](https://lifehacker.com/you-can-grill-peaches-with-your-waffle-maker-1844442237)
+> 原文：<https://lifehacker.com/you-can-grill-peaches-with-your-waffle-maker-1844442237>
 
 烧烤一片新鲜水果增加了焦度、维度和风味。热量让果汁流动，而炉栅使糖焦化，烧焦——如果你在处理一个次等的桃子或不太成熟的油桃，这是特别受欢迎的。
 

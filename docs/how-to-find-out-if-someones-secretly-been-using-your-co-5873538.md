@@ -1,6 +1,6 @@
 # 如何发现有人秘密使用你的电脑
 
-> 原文:[https://life hacker . com/how-to-find-out-if-someones-be secretly-used-your-co-5873538](https://lifehacker.com/how-to-find-out-if-someones-secretly-been-using-your-co-5873538)
+> 原文：<https://lifehacker.com/how-to-find-out-if-someones-secretly-been-using-your-co-5873538>
 
 既然我们都与室友、朋友和爱人共享家庭办公空间，那么就有必要多考虑一下笔记本电脑或台式电脑的安全性。当别人未经你的允许使用你的电脑时，感觉有点侵犯隐私，尤其是当你怀疑他们是出于恶意的时候。
 

@@ -1,6 +1,6 @@
 # 你现在可以把你的安卓系统带到康卡斯特的 Xfinity 移动服务中
 
-> 原文:[https://life hacker . com/you-can-now-bring-these-Android-phones-to-comcasts-xfin-1836526992](https://lifehacker.com/you-can-now-bring-these-android-phones-to-comcasts-xfin-1836526992)
+> 原文：<https://lifehacker.com/you-can-now-bring-these-android-phones-to-comcasts-xfin-1836526992>
 
 康卡斯特的移动运营商 Xfinity Mobile 终于向 Android 设备敞开了大门——但不是所有的 Android 设备。
 

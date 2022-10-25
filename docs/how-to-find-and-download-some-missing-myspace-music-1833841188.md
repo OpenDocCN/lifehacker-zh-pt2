@@ -1,6 +1,6 @@
 # 如何找到并下载丢失的 MySpace 音乐
 
-> 原文:[https://life hacker . com/how-to-find-and-download-some-missing-MySpace-music-1833841188](https://lifehacker.com/how-to-find-and-download-some-missing-myspace-music-1833841188)
+> 原文：<https://lifehacker.com/how-to-find-and-download-some-missing-myspace-music-1833841188>
 
 上个月，我感觉到了一股原力的骚动，仿佛从 2003 年到 2015 年的几百万首蹩脚的歌在恐惧中呼喊，突然沉寂。他们确实是。MySpace——是的，它仍然存在——由于在服务器迁移期间一些损坏的数据，丢失了这些年上传到网站的所有音乐。哎呦。
 

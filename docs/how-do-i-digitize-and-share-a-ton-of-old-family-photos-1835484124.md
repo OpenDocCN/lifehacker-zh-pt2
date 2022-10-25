@@ -1,6 +1,6 @@
 # 我如何数字化和分享大量的家庭老照片？
 
-> 原文:[https://life hacker . com/how-do-I-digital-and-share-ton-of-old-family-photos-1835484124](https://lifehacker.com/how-do-i-digitize-and-share-a-ton-of-old-family-photos-1835484124)
+> 原文：<https://lifehacker.com/how-do-i-digitize-and-share-a-ton-of-old-family-photos-1835484124>
 
 欢迎回到又一周的[Tech 911](https://lifehacker.com/c/tech-911)——life hacker 的建议专栏，旨在回答你关于技术的最紧迫和最奇特的问题。本周，我们接受了一个人的提问，他想为一个特殊的项目找到一个可靠的照片存储服务。我将让《生活黑客》读者**乔尔**解释:
 

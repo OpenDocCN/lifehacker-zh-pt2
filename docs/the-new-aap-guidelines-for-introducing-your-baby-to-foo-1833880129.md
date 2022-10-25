@@ -1,6 +1,6 @@
 # 向您的宝宝介绍食物过敏原的新 AAP 指南
 
-> 原文:[https://life hacker . com/the-new-AAP-guidelines-for-introducing-your-baby-to-foo-1833880129](https://lifehacker.com/the-new-aap-guidelines-for-introducing-your-baby-to-foo-1833880129)
+> 原文：<https://lifehacker.com/the-new-aap-guidelines-for-introducing-your-baby-to-foo-1833880129>
 
 美国儿科学会(AAP)更新了向婴儿引入花生的建议，延续了几十年来从推迟引入食物过敏原到尽早且经常引入花生的实践转变。
 

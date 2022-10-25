@@ -1,6 +1,6 @@
 # 这些是美国最好和最差的机场
 
-> 原文:[https://life hacker . com/这些是美国最好和最差的机场-sta-1830293576](https://lifehacker.com/these-are-the-best-and-worst-airports-in-the-united-sta-1830293576)
+> 原文：<https://lifehacker.com/these-are-the-best-and-worst-airports-in-the-united-sta-1830293576>
 
 旅游提示网站今天公布了全美最佳机场评选结果。今年排名第一的是凤凰城的空港机场，自 2016 年以来一直保持该网站排名第一。
 

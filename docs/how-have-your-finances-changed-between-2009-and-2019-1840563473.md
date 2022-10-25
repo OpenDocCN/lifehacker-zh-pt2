@@ -1,6 +1,6 @@
 # 从 2009 年到 2019 年，你的财务状况有什么变化？
 
-> 原文:[https://life hacker . com/how-have-your-finance-changed-between-2009-2019-1840563473](https://lifehacker.com/how-have-your-finances-changed-between-2009-and-2019-1840563473)
+> 原文：<https://lifehacker.com/how-have-your-finances-changed-between-2009-and-2019-1840563473>
 
 2009 年，我 27 岁，从事第一份带福利的全职工作已经一年了。我当时在 DC 华盛顿州的一家智库担任行政助理，在过去的五年里，我一直在做电话销售、做临时工、去研究生院攻读戏剧硕士学位、从研究生院毕业后不再想在剧院工作，并询问一位我信任的教授我如何才能找到一份年薪至少 5 万美元的工作。
 

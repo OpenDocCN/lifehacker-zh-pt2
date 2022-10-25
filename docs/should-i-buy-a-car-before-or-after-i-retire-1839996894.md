@@ -1,6 +1,6 @@
 # 我应该在退休前还是退休后买车？
 
-> 原文:[https://jalopnik . com/should-I-buy-a-car-before-or-after-I retire-1839996894](https://jalopnik.com/should-i-buy-a-car-before-or-after-i-retire-1839996894)
+> 原文：<https://jalopnik.com/should-i-buy-a-car-before-or-after-i-retire-1839996894>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。我决定挑几个问题，试着帮帮大家。本周我们讨论的是在退休前后购买新车的时机，不会在州外销售的经销商，以及最好的低价但高 MPG 手动挡汽车。
 

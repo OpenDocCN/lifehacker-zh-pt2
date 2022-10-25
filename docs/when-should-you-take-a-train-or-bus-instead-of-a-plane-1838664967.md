@@ -1,6 +1,6 @@
 # 什么时候你应该乘火车或公共汽车而不是飞机？
 
-> 原文:[https://life hacker . com/when-you-should-take-a train-or-bus-not-a plane-1838664967](https://lifehacker.com/when-should-you-take-a-train-or-bus-instead-of-a-plane-1838664967)
+> 原文：<https://lifehacker.com/when-should-you-take-a-train-or-bus-instead-of-a-plane-1838664967>
 
 给你出个数学题:如果火车和飞机同时离开同一个城市，火车需要五个多小时才能到达目的地，而飞机只需要 75 分钟，哪个选项更好？
 

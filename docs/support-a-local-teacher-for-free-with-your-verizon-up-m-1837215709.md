@@ -1,6 +1,6 @@
 # 使用您的威瑞森 Up 会员资格，免费支持当地教师
 
-> 原文:[https://life hacker . com/support-a-local-teacher-for-free-with-your-Verizon-up-m-1837215709](https://lifehacker.com/support-a-local-teacher-for-free-with-your-verizon-up-m-1837215709)
+> 原文：<https://lifehacker.com/support-a-local-teacher-for-free-with-your-verizon-up-m-1837215709>
 
 如果你是威瑞森 Up 的会员，你可以得到 10 美元来支持你身边的一位老师——这是一个在月底对有益的促销活动。要使用它，请转到您的威瑞森 Up 应用程序并找到该优惠。点击页面上的“立即使用”获取您的特定优惠券代码。
 

@@ -1,6 +1,6 @@
 # 你如何支持黑人玩家
 
-> 原文:[https://kotaku . com/how-you-can-support-black-gamers-1843867230](https://kotaku.com/how-you-can-support-black-gamers-1843867230)
+> 原文：<https://kotaku.com/how-you-can-support-black-gamers-1843867230>
 
 自从乔治·弗洛伊德 在明尼阿波利斯被警察残忍杀害以来，已经过去了一个多星期。 [集会和抗议](https://www.theroot.com/heres-what-happened-during-the-week-following-george-fl-1843827818) 从那以后，正当地，从东海岸到西海岸。不仅仅是弗洛伊德。是菲兰多·卡斯蒂利亚和布里奥纳·泰勒，弗雷迪·格雷和迈克·布朗，塔米尔·赖斯和埃里克·加纳( [在许许多多其他](https://www.npr.org/2020/05/29/865261916/a-decade-of-watching-black-people-die) )之间。死于警察之手的黑人被允许继续不受控制和有增无减。正义早就应该伸张，现在是以任何可能的方式提供支持的时候了。
 

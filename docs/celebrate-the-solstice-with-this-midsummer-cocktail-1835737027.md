@@ -1,6 +1,6 @@
 # 用这款仲夏鸡尾酒庆祝夏至
 
-> 原文:[https://life hacker . com/用这仲夏鸡尾酒庆祝至日-1835737027](https://lifehacker.com/celebrate-the-solstice-with-this-midsummer-cocktail-1835737027)
+> 原文：<https://lifehacker.com/celebrate-the-solstice-with-this-midsummer-cocktail-1835737027>
 
 夏至快乐，猫猫们！今天不仅是一年中最长的一天，也是夏天的正式开始，或者我们喜欢称之为“天井磅季节”你会问，什么是天井捣锤？很简单:夏天喝起来有点太容易下咽，最好在户外喝。好家伙，我有一个给你。
 

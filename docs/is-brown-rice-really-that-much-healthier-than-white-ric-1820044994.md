@@ -1,6 +1,6 @@
 # 糙米真的比白米健康那么多吗？
 
-> 原文:[https://life hacker . com/is-brown-ric-1820044994](https://lifehacker.com/is-brown-rice-really-that-much-healthier-than-white-ric-1820044994)
+> 原文：<https://lifehacker.com/is-brown-rice-really-that-much-healthier-than-white-ric-1820044994>
 
 我的女朋友和我在大米问题上意见不一致:她喜欢糙米是因为健康原因，而我喜欢白米是因为好吃。我知道糙米应该比白米更“健康”，但是它真的如此健康以至于我需要改变吗？
 

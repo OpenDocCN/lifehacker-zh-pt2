@@ -1,6 +1,6 @@
 # 用冰棍做冰淇淋就行了
 
-> 原文:[https://life hacker . com/just-make-frose-with-pop sicles-1844486468](https://lifehacker.com/just-make-frose-with-popsicles-1844486468)
+> 原文：<https://lifehacker.com/just-make-frose-with-popsicles-1844486468>
 
 每年夏天，人们都会因为 frosé而失去理智，这是一种粉红色的酒浆，对我来说非常好。我在各种有户外座位的场所点了一些，但我从未想到要在家里做一个——当你考虑到大多数 frosé食谱是多么挑剔时，这是可以理解的。
 

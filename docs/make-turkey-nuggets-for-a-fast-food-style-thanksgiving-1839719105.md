@@ -1,6 +1,6 @@
 # 为快餐式的感恩节做火鸡块
 
-> 原文:[https://life hacker . com/make-turkey-nuggets-for-a-fast-food-style-thanksgiving-1839719105](https://lifehacker.com/make-turkey-nuggets-for-a-fast-food-style-thanksgiving-1839719105)
+> 原文：<https://lifehacker.com/make-turkey-nuggets-for-a-fast-food-style-thanksgiving-1839719105>
 
 当你搞乱感恩节晚餐的形式时，大多数人都会变得相当激动，但我尽量不让我们生活的这个社会影响我的创作过程。对于真正创新的——有些人可能会说是“颠覆性的”——火鸡大餐，我强烈建议你考虑快餐式的展示，特色是*裹着面包屑的*火鸡块。
 

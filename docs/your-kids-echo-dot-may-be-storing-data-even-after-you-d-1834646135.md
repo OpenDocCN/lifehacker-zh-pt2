@@ -1,6 +1,6 @@
 # 您孩子的 Echo Dot 可能在您“删除”数据后仍在存储数据
 
-> 原文:[https://life hacker . com/your-kids-echo-dot-may-be-storing-data-even-after-you-d-1834646135](https://lifehacker.com/your-kids-echo-dot-may-be-storing-data-even-after-you-d-1834646135)
+> 原文：<https://lifehacker.com/your-kids-echo-dot-may-be-storing-data-even-after-you-d-1834646135>
 
 一年前，当亚马逊 [推出其儿童版 Echo Dot 智能音箱](https://offspring.lifehacker.com/theres-now-an-alexa-just-for-kids-1825543919?_ga=2.165380095.171784206.1557094295-1940201396.1552611778) 时，我们希望这是一种技术祝福，而不是诅咒。但作为私人信息不再神圣的进一步证明，昨天提交给美国联邦贸易委员会的一份诉状称，这些设备非法存储儿童数据——即使在父母试图删除数据之后。
 

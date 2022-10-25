@@ -1,6 +1,6 @@
 # 在 Green Man Gaming 的周年促销活动中获得免费神秘游戏
 
-> 原文:[https://life hacker . com/get-a-free-a-mystery-game-during-green-man-gamings-annive-1843393865](https://lifehacker.com/get-a-free-mystery-game-during-green-man-gamings-annive-1843393865)
+> 原文：<https://lifehacker.com/get-a-free-mystery-game-during-green-man-gamings-annive-1843393865>
 
 流行的数字 PC 游戏市场 Green Man Gaming 正在举行 [十周年大拍卖](https://www.greenmangaming.com/hot-deals/) ，其中包括大量优秀的游戏，价格有史以来最低。促销活动将持续到 5 月 31 日，但是如果你在接下来的几天内购买产品，你还可以获得其他好处——包括当你购买促销活动中众多游戏中的一个时，额外的免费神秘游戏 。
 

@@ -1,6 +1,6 @@
 # 如何制作一个不是黄色的白色尼格罗尼
 
-> 原文:[https://life hacker . com/how-to-make-a white-negroni-that-not-yellow-1844729177](https://lifehacker.com/how-to-make-a-white-negroni-that-isnt-yellow-1844729177)
+> 原文：<https://lifehacker.com/how-to-make-a-white-negroni-that-isnt-yellow-1844729177>
 
 尼格罗尼也许是现存的最反复调制的鸡尾酒。见鬼，有整整一周的时间专门用来反复练习。一个这样的重复片段是“白色尼格罗尼”，它通常是由草质较高、龙胆苦苷前锋 Suze 或 Avèze 组成的。它很好，但我不知道他们为什么叫它“白色”——它是亮黄色的。
 

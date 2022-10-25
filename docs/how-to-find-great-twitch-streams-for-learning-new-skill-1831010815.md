@@ -1,6 +1,6 @@
 # 如何找到学习新技能和改善生活的好方法
 
-> 原文:[https://life hacker . com/how-to-find-great-twitch-streams-for-learning-new-skill-1831010815](https://lifehacker.com/how-to-find-great-twitch-streams-for-learning-new-skill-1831010815)
+> 原文：<https://lifehacker.com/how-to-find-great-twitch-streams-for-learning-new-skill-1831010815>
 
 在 Twitch 上总会有新的东西可以观看，无论是有人在堡垒之夜比赛中奋力拼搏，完成一场 24 小时马拉松式的经典游戏，还是向你展示你最喜欢的数字纸牌游戏的全新扩展的所有秘密。
 

@@ -1,6 +1,6 @@
 # 在本周的体能挑战中，我们和理查德·西蒙斯一起挥汗如雨
 
-> 原文:[https://life hacker . com/for-this-weeks-fitness-challenge-was-sweat in-with-ric-1842729598](https://lifehacker.com/for-this-weeks-fitness-challenge-were-sweatin-with-ric-1842729598)
+> 原文：<https://lifehacker.com/for-this-weeks-fitness-challenge-were-sweatin-with-ric-1842729598>
 
 我问你迄今为止做过的最好的家庭锻炼，这个月的每个星期我们都要选择一个一起做。本周，这将是一个老掉牙的好东西(谢谢，[safety Cynthia](https://vitals.lifehacker.com/1842676997)):Richard Simmons。
 

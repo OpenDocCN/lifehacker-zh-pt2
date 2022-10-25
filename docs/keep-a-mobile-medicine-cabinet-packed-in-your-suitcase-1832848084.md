@@ -1,6 +1,6 @@
 # 在你的行李箱里放一个“移动医药箱”,以防旅途中出现意外
 
-> 原文:[https://life hacker . com/keep-a-mobile-medicine-cabinet-packed-in-your-suitcase-1832848084](https://lifehacker.com/keep-a-mobile-medicine-cabinet-packed-in-your-suitcase-1832848084)
+> 原文：<https://lifehacker.com/keep-a-mobile-medicine-cabinet-packed-in-your-suitcase-1832848084>
 
 我写了不少游记，这意味着我花了很多时间在路上。在几次“紧急”去当地药店(通常很难找到)后，我拿了一个小化妆包，为我的行李箱准备了一袋药物，我总是带在身边，因为我会把它打包。
 

@@ -1,6 +1,6 @@
 # 希望支持您当地的餐馆吗？特殊订单可能会有帮助。
 
-> 原文:[https://the take out . com/how-to-support-local-restaurants-with-special-order-pur-1843004150](https://thetakeout.com/how-to-support-local-restaurants-with-special-order-pur-1843004150)
+> 原文：<https://thetakeout.com/how-to-support-local-restaurants-with-special-order-pur-1843004150>
 
 Instagram 告诉我，去年我工作的一家餐厅因冠状病毒而关闭。我的脑海里浮现出在可预见的未来，我那些失业的厨师同事们，那些没有薪水就无法生活的洗碗工，还有那些用小费付房租的酒保和服务员们。不可否认的是，我同时也在想，这家餐厅的胡萝卜鹰嘴豆泥会变成什么样，这是一种深受人们喜爱的酱料，它支撑着我度过了许多漫长的服务时光。
 

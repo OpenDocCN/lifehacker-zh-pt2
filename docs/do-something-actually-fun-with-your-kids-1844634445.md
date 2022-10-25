@@ -1,6 +1,6 @@
 # 和你的孩子一起做一些真正有趣的事情
 
-> 原文:[https://life hacker . com/do-something-其实-fun-with-your-kids-1844634445](https://lifehacker.com/do-something-actually-fun-with-your-kids-1844634445)
+> 原文：<https://lifehacker.com/do-something-actually-fun-with-your-kids-1844634445>
 
 每天早上我都被同一个问题惊醒:“爸爸，你愿意和我一起玩吗？”(我的意思是“觉醒”在这里是字面上的意思；通常这个问题是一个三岁的孩子在离我睡觉的脸几英寸远的地方大声问我的。)而且，尽管我并不骄傲地承认这一点，我对这个问题的回答总是暗暗地强调“不”,即使我说“是”。因为和小娃儿玩的是 [其实有点可怕的](https://www.todaysparent.com/kids/confession-i-hate-playing-with-my-kid/) 。但如果不是呢？昨天我写了一篇关于正念的好处的文章——当你感到快乐时，有意识地记录下来。但是我可以诚实地说，当我和我的孩子一起进行富有想象力的游戏时，我很少有快乐的时刻。作为一个被许多日常事务和责任分心的成年人，我发现很难关闭我的大脑，满足我的孩子的水平，特别是当这样做意味着用磁砖建造“礼物”，并连续第 30 次假装惊讶地发现里面有玩具车时。
 

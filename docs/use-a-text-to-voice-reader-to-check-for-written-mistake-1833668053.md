@@ -1,6 +1,6 @@
 # 使用文本到语音阅读器检查书写错误
 
-> 原文:[https://life hacker . com/use-a-text-to-voice-reader-to-check-for-written-mission-1833668053](https://lifehacker.com/use-a-text-to-voice-reader-to-check-for-written-mistake-1833668053)
+> 原文：<https://lifehacker.com/use-a-text-to-voice-reader-to-check-for-written-mistake-1833668053>
 
 当你想在求职信或书面材料中给人留下好印象时，你会非常沮丧地发现你在第一句话中漏掉了一个单词。我们的大脑并不总是能捕捉到简单的错误，所以争取一点数字帮助也无妨。
 

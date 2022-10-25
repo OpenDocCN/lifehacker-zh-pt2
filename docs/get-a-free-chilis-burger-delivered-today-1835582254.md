@@ -1,6 +1,6 @@
 # 今天就可以获得免费的 Chili's 汉堡
 
-> 原文:[https://life hacker . com/get-a-free-chilis-burger-delivered-today-1835582254](https://lifehacker.com/get-a-free-chilis-burger-delivered-today-1835582254)
+> 原文：<https://lifehacker.com/get-a-free-chilis-burger-delivered-today-1835582254>
 
 Chili 今天宣布与 DoorDash 建立新的合作伙伴关系，这意味着你现在可以从餐厅获得从蛋卷到薯条和调味汁的任何东西。为了庆祝，它为顾客 [提供免费的奶酪](https://www.chilis.com/menu/big-mouth-burgers/oldtimer-w-cheese) 老前辈，今天购物满 10 美元。
 

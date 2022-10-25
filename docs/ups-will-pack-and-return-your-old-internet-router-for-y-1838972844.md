@@ -1,6 +1,6 @@
 # UPS 将为您打包并返还您的旧互联网路由器
 
-> 原文:[https://life hacker . com/ups-will-pack-and-return-your-old-internet-router-for-y-1838972844](https://lifehacker.com/ups-will-pack-and-return-your-old-internet-router-for-y-1838972844)
+> 原文：<https://lifehacker.com/ups-will-pack-and-return-your-old-internet-router-for-y-1838972844>
 
 如果你要更换互联网服务提供商，升级到新设备，或者有任何其他原因要运回你的 ISP 提供的调制解调器和路由器，那么大多数最大的 ISP 会让你把它放在 UPS，甚至不用装箱。这里有一些可以，一些不可以，以及在哪里可以得到你需要的设备。
 

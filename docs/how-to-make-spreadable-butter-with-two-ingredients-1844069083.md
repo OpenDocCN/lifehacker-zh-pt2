@@ -1,6 +1,6 @@
 # 如何用两种原料制作可涂抹的黄油
 
-> 原文:[https://life hacker . com/how-to-make-spreaded-butter-with two-ingredients-1844069083](https://lifehacker.com/how-to-make-spreadable-butter-with-two-ingredients-1844069083)
+> 原文：<https://lifehacker.com/how-to-make-spreadable-butter-with-two-ingredients-1844069083>
 
 我是 [室温黄油生活方式](https://skillet.lifehacker.com/you-need-two-types-of-butter-in-your-kitchen-1837837122) 的忠实信徒，但有时我会忘记补充黄油碟，留给我的只有冰冷易碎的黄油。虽然我已经找到了绕过这种 的 [方法，但正是在这样的时刻，我“获得”了一种可涂抹的不太像黄油的*类似于*的物质的吸引力。](https://lifehacker.com/use-a-vegetable-peeler-for-perfectly-buttered-toast-1840614871)
 

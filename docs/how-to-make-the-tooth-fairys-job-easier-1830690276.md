@@ -1,6 +1,6 @@
 # 如何让牙仙的工作更轻松
 
-> 原文:[https://life hacker . com/how-to-make-the-tooth-missy-job-easy-1830690276](https://lifehacker.com/how-to-make-the-tooth-fairys-job-easier-1830690276)
+> 原文：<https://lifehacker.com/how-to-make-the-tooth-fairys-job-easier-1830690276>
 
 最近，当一位家长询问是否可以跳过“一个仙女为你的牙齿带来金钱”这件事时，牙仙出现在我们的 [后代脸书集团](https://www.facebook.com/groups/2018785615043946/) 中。在讨论过程中，一位家长提出了一个很好的建议，用一种稍微非传统(但更简单)的方式用牙齿换钱...
 

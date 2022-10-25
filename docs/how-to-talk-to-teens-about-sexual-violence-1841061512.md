@@ -1,6 +1,6 @@
 # 如何与青少年谈论性暴力
 
-> 原文:[https://life hacker . com/how-to-talk-to-tenders-about-th-violence-1841061512](https://lifehacker.com/how-to-talk-to-teens-about-sexual-violence-1841061512)
+> 原文：<https://lifehacker.com/how-to-talk-to-teens-about-sexual-violence-1841061512>
 
 送你的孩子去上大学是一个重大的父母成年礼；它也可能是可怕的。突然，你不知道他们在哪里，在做什么，和谁在一起，而不是每天都看到他们。尤其是十几岁女孩的父母，他们担心自己的安全，因为#MeToo 运动已经非常清楚地表明，针对年轻女性的性暴力行为不仅普遍存在，而且往往没有报告。
 

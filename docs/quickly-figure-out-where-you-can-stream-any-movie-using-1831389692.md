@@ -1,6 +1,6 @@
 # 使用此应用程序快速找出您可以在哪里流式播放任何电影
 
-> 原文:[https://life hacker . com/quickly-figure-out-where-you-can-stream-any-movie-using-1831389692](https://lifehacker.com/quickly-figure-out-where-you-can-stream-any-movie-using-1831389692)
+> 原文：<https://lifehacker.com/quickly-figure-out-where-you-can-stream-any-movie-using-1831389692>
 
 有时候，你真的想看《办公室空间》(Office Space)，或者《高保真》(High Fidelity)，或者《跟着那只鸟》(Follow the Bird)——你只需要找出在哪里可以实现。
 

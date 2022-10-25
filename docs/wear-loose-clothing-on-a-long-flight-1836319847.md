@@ -1,6 +1,6 @@
 # 长途飞行时穿宽松的衣服
 
-> 原文:[https://life hacker . com/wear-loose-cloth-on-a-long-flight-1836319847](https://lifehacker.com/wear-loose-clothing-on-a-long-flight-1836319847)
+> 原文：<https://lifehacker.com/wear-loose-clothing-on-a-long-flight-1836319847>
 
 当你在空中时，你的肠道扩张是有原因的——不，不是因为飞机食物中的钠。
 

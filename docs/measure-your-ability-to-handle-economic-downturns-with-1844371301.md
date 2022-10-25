@@ -1,6 +1,6 @@
 # 用这个新的 FICO 分数来衡量你应对经济衰退的能力
 
-> 原文:[https://life hacker . com/measure-your-capacity-to-1844371301](https://lifehacker.com/measure-your-ability-to-handle-economic-downturns-with-1844371301)
+> 原文：<https://lifehacker.com/measure-your-ability-to-handle-economic-downturns-with-1844371301>
 
 随着金融不确定性在疫情持续存在，银行对贷款变得更加严格。根据圣路易斯美联储银行的最新报告，38.5%的美国银行在 2020 年第二季度收紧了贷款标准。这种反应也发生在 2008 年金融危机期间，使得申请贷款或信用卡变得更加困难。但是，一种新的 FICO 评分模式可能会使未来获得信贷变得更加容易。
 

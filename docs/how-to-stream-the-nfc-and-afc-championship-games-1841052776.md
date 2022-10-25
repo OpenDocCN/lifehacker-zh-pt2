@@ -1,6 +1,6 @@
 # 如何直播 NFC 和 AFC 冠军赛
 
-> 原文:[https://life hacker . com/how-to-stream-the-NFC-and-AFC-championship-games-1841052776](https://lifehacker.com/how-to-stream-the-nfc-and-afc-championship-games-1841052776)
+> 原文：<https://lifehacker.com/how-to-stream-the-nfc-and-afc-championship-games-1841052776>
 
 Watch
 

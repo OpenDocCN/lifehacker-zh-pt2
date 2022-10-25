@@ -1,6 +1,6 @@
 # 用黄油和牛奶代替浓奶油
 
-> 原文:[https://life hacker . com/substitute-butter-and-milk for-heavy-cream-5933953](https://lifehacker.com/substitute-butter-and-milk-for-heavy-cream-5933953)
+> 原文：<https://lifehacker.com/substitute-butter-and-milk-for-heavy-cream-5933953>
 
 重奶油很美味，可以为各种各样的甜食和美味菜肴增添丰富的味道，但并不是每个人都一直把它放在冰箱里。那么，如果你渴望得到一份需要重奶油的食谱，但手头上没有，你该怎么办呢？事实证明，你可以用牛奶和黄油的混合物作为非常有效的替代品。
 

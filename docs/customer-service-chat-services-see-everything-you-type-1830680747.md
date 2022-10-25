@@ -1,6 +1,6 @@
 # 客服聊天服务可以看到你输入的所有内容，无论你是否发送
 
-> 原文:[https://life hacker . com/customer-service-chat-services-see-everything-you-type-1830680747](https://lifehacker.com/customer-service-chat-services-see-everything-you-type-1830680747)
+> 原文：<https://lifehacker.com/customer-service-chat-services-see-everything-you-type-1830680747>
 
 在最近(或者说，实际上是最近发现的)互联网比大多数用户意识到的更令人毛骨悚然的例子中，我们注意到，在大多数网站上，你用来与客户服务代表交流的文本框并没有按照你预期的方式工作。简而言之:似乎很多让你与客服代表实时聊天的公司都利用了一项服务，这项服务允许客服代表看到你在文本框中输入的所有内容，不管你是否按下了发送键。
 

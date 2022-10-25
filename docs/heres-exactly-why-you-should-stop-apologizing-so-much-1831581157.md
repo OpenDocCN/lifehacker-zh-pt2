@@ -1,6 +1,6 @@
 # 这就是为什么你应该停止道歉了
 
-> 原文:[https://life hacker . com/heres-exact-why-you-should-stop-more-dialogue-1831581157](https://lifehacker.com/heres-exactly-why-you-should-stop-apologizing-so-much-1831581157)
+> 原文：<https://lifehacker.com/heres-exactly-why-you-should-stop-apologizing-so-much-1831581157>
 
 当你犯了错误时，承认错误并弥补通常是最好的做法，但有时这并不是你的责任。
 

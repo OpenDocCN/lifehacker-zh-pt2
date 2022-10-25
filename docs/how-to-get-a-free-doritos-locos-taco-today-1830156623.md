@@ -1,6 +1,6 @@
 # 如何获得一个免费的多力多滋玉米卷今天
 
-> 原文:[https://life hacker . com/how-to-get-a-free-Doritos-locos-taco-today-1830156623](https://lifehacker.com/how-to-get-a-free-doritos-locos-taco-today-1830156623)
+> 原文：<https://lifehacker.com/how-to-get-a-free-doritos-locos-taco-today-1830156623>
 
 拉响警报:塔可钟今天免费赠送玉米饼。
 

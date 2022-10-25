@@ -1,6 +1,6 @@
 # 如何在家洗“只能干洗”的衣服
 
-> 原文:[https://life hacker . com/how-to-wash-dry-clean-only-clothes-home-1843390361](https://lifehacker.com/how-to-wash-dry-clean-only-clothes-at-home-1843390361)
+> 原文：<https://lifehacker.com/how-to-wash-dry-clean-only-clothes-at-home-1843390361>
 
 当我母亲教我买新衣服时，她提到的第一件事就是检查标签，确保衣服不是“只能干洗”接下来通常是“不管它降价多少，如果算上干洗的费用，它实际上会更贵。”
 

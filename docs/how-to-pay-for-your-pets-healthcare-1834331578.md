@@ -1,6 +1,6 @@
 # 如何支付宠物的医疗费用
 
-> 原文:[https://life hacker . com/how-to-pay-for-your-pets-health care-1834331578](https://lifehacker.com/how-to-pay-for-your-pets-healthcare-1834331578)
+> 原文：<https://lifehacker.com/how-to-pay-for-your-pets-healthcare-1834331578>
 
 支付宠物的医疗保健费用——无论是标准检查还是更复杂的程序——都可能很昂贵。
 

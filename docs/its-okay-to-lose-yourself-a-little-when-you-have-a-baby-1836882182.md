@@ -1,6 +1,6 @@
 # 当你有了孩子的时候，有点迷失自己是可以的
 
-> 原文:[https://life hacker . com/its-okay-to-lose yourself-little when you-have-a-baby-1836882182](https://lifehacker.com/its-okay-to-lose-yourself-a-little-when-you-have-a-baby-1836882182)
+> 原文：<https://lifehacker.com/its-okay-to-lose-yourself-a-little-when-you-have-a-baby-1836882182>
 
 我第一次把儿子送到托儿所时，我突然意识到:我是某人的妈妈。当然，这可能已经很明显了，考虑到我已经怀了一个足月(甚至更长)的婴儿，生下了那个婴儿，并且在过去的几个月里一直在照顾一个婴儿。但当我一手拿着婴儿车座，一手拿着工作包走在人行道上时，我感到有些眩晕。我现在是谁？
 

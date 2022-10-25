@@ -1,6 +1,6 @@
 # 如果你仍然没有收到救济支票，该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-if-you wave-not-get-you-relief-ch-1844532720](https://lifehacker.com/what-to-do-if-you-still-haven-t-received-your-relief-ch-1844532720)
+> 原文：<https://lifehacker.com/what-to-do-if-you-still-haven-t-received-your-relief-ch-1844532720>
 
 随着美国国税局 1 月 15 日发出最后一张救济支票，大多数人现在应该已经收到了他们所有的付款。但是如果你还在等你的支票，这里有一些你的支票被延迟的原因和你可以做的事情。
 

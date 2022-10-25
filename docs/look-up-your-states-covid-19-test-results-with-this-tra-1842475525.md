@@ -1,6 +1,6 @@
 # 用这个追踪器查找你所在州的新冠肺炎测试结果
 
-> 原文:[https://life hacker . com/look-up-your-States-新冠肺炎-test-results-with this-tra-1842475525](https://lifehacker.com/look-up-your-states-covid-19-test-results-with-this-tra-1842475525)
+> 原文：<https://lifehacker.com/look-up-your-states-covid-19-test-results-with-this-tra-1842475525>
 
 毫无疑问，美国的新冠肺炎 病例比检测显示的要多得多，但检测仍然是开始了解疫情扩散程度的重要方式。一个名为 [Covid 跟踪项目](https://covidtracking.com/data/) 的在线工具已经收集了每个州的测试数据，如果你想了解进展情况的话。
 

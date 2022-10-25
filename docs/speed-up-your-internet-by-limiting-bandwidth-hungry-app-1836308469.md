@@ -1,6 +1,6 @@
 # 通过限制占用大量带宽的应用程序来加快互联网速度
 
-> 原文:[https://life hacker . com/speed-up-your-internet-by-limiting-bandwidth-hungry-app-1836308469](https://lifehacker.com/speed-up-your-internet-by-limiting-bandwidth-hungry-app-1836308469)
+> 原文：<https://lifehacker.com/speed-up-your-internet-by-limiting-bandwidth-hungry-app-1836308469>
 
 你可能会为某个服务等级向你的 ISP 付费，但这并不意味着你能同时获得这两种速度——细则可能会指出你的上传速度比下载速度慢得多。
 

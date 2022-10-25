@@ -1,6 +1,6 @@
 # 如何直播下周的温布尔登
 
-> 原文:[https://life hacker . com/how-to-live stream-温布尔登-下周-1835973831](https://lifehacker.com/how-to-livestream-wimbledon-next-week-1835973831)
+> 原文：<https://lifehacker.com/how-to-livestream-wimbledon-next-week-1835973831>
 
 温布尔登网球公开赛周一正式开始。卫冕冠军诺瓦克·德约科维奇是今年锦标赛的头号种子，其次是八次温布尔登冠军罗杰·费德勒。
 

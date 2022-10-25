@@ -1,6 +1,6 @@
 # 如何处理未付的税单
 
-> 原文:[https://life hacker . com/how-to-deal-a-not-tax-bill-1841601903](https://lifehacker.com/how-to-deal-with-an-unpaid-tax-bill-1841601903)
+> 原文：<https://lifehacker.com/how-to-deal-with-an-unpaid-tax-bill-1841601903>
 
 又到了纳税季——对一些人来说，这是一个令人不快的提醒，提醒他们仍未支付上一纳税年度的未清余额。
 

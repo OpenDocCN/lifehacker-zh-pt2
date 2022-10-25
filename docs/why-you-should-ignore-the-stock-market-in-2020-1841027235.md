@@ -1,6 +1,6 @@
 # 为什么你应该在 2020 年忽略股票市场
 
-> 原文:[https://life hacker . com/why-you-should-ignore-the-stock-market-in-2020-1841027235](https://lifehacker.com/why-you-should-ignore-the-stock-market-in-2020-1841027235)
+> 原文：<https://lifehacker.com/why-you-should-ignore-the-stock-market-in-2020-1841027235>
 
 对所有层次的投资者来说，去年充其量是压力重重。经过多年的增长后，美联储几次降低利率。特朗普总统真的倾向于他与中国的贸易战。股票市场达到了一些显著的高点和低点。金融专家们如此频繁地使用“衰退”这个词，以至于我们不得不 [分解](https://twocents.lifehacker.com/how-youll-know-a-recession-is-coming-1837273628)**这些因素，以防他们怀疑我们正接近衰退。** 
 

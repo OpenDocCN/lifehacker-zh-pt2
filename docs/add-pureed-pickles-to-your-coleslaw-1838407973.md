@@ -1,6 +1,6 @@
 # 在凉拌卷心菜中加入酸黄瓜泥
 
-> 原文:[https://life hacker . com/add-pureed-pickles-to-your-coleslaw-1838407973](https://lifehacker.com/add-pureed-pickles-to-your-coleslaw-1838407973)
+> 原文：<https://lifehacker.com/add-pureed-pickles-to-your-coleslaw-1838407973>
 
 烧烤季节可能要结束了，但是一个好的凉拌卷心菜 不知道季节。如果今年夏天你已经饱尝了通常的微甜沙拉调料，试着用一些咸的和酸的泡菜混合。
 

@@ -1,6 +1,6 @@
 # 周末睡懒觉真的有那么不好吗？
 
-> 原文:[https://life hacker . com/周末睡懒觉真的那么糟糕吗-1835732204](https://lifehacker.com/is-it-really-so-bad-to-sleep-late-on-the-weekends-1835732204)
+> 原文：<https://lifehacker.com/is-it-really-so-bad-to-sleep-late-on-the-weekends-1835732204>
 
 在一个完美的世界里，我们都会准时上床睡觉，享受七到九个小时的睡眠，并且每天早上在同一时间醒来，精神焕发。虽然这可能是我们的目标，但我猜我们大多数人都喜欢休息一天所带来的额外睡眠。那么周末睡懒觉有多糟糕呢？
 

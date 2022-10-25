@@ -1,6 +1,6 @@
 # 遵循以下三个步骤来挑选最完美的西瓜
 
-> 原文:[https://life hacker . com/follow-these-three-steps-to-pick the-perfect-西瓜-1844251076](https://lifehacker.com/follow-these-3-steps-to-pick-the-perfect-watermelon-1844251076)
+> 原文：<https://lifehacker.com/follow-these-3-steps-to-pick-the-perfect-watermelon-1844251076>
 
 现在是夏天，所以你可能想利用新鲜西瓜上市的机会。但是你怎么知道哪个瓜是最熟最甜的，哪些应该留在杂货店里呢？以下是挑选完美西瓜的三个步骤，由德克萨斯 A 公司 [和 M 公司&](https://today.tamu.edu/2020/07/01/how-to-pick-the-perfect-watermelon/)提供。
 

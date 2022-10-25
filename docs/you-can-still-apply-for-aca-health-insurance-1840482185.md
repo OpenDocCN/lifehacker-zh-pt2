@@ -1,6 +1,6 @@
 # 你仍然可以申请 ACA 健康保险
 
-> 原文:[https://life hacker . com/you-can-still-apply-for-ACA-health-insurance-1840482185](https://lifehacker.com/you-can-still-apply-for-aca-health-insurance-1840482185)
+> 原文：<https://lifehacker.com/you-can-still-apply-for-aca-health-insurance-1840482185>
 
 如果你希望申请 2020 年平价医疗法案健康保险计划，你应该知道通过 Healthcare.gov 提交申请的截止日期已经延长。
 

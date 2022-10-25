@@ -1,6 +1,6 @@
 # 用这个 Best Buy 交易获得 350 美元的解锁 Pixel 3 XL
 
-> 原文:[https://life hacker . com/get-350-off-an-unlocked-pixel-3-XL-with-this-best-buy-1838705769](https://lifehacker.com/get-350-off-an-unlocked-pixel-3-xl-with-this-best-buy-1838705769)
+> 原文：<https://lifehacker.com/get-350-off-an-unlocked-pixel-3-xl-with-this-best-buy-1838705769>
 
 如果你一直在等待合适的价格下降，以挑选一款未锁定的 Pixel 3 XL，那可能是时候行动了。百思买推出的 64GB 内存的 Pixel 3xl 售价仅为 550 美元，比其 900 美元的原价整整低了 350 美元。唯一的要求是你在购买时激活手机；如果你以后想激活你的新 Pixel 3 XL，价格会涨到 600 美元。
 

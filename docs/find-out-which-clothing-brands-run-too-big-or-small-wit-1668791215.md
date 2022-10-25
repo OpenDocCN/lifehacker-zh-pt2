@@ -1,6 +1,6 @@
 # 用这张图表找出哪些服装品牌太大或太小
 
-> 原文:[https://life hacker . com/find-out-which-clothing-brands-run-too-big-or-small-wit-1668791215](https://lifehacker.com/find-out-which-clothing-brands-run-too-big-or-small-wit-1668791215)
+> 原文：<https://lifehacker.com/find-out-which-clothing-brands-run-too-big-or-small-wit-1668791215>
 
 在这一点上，我们都知道——某些品牌改变衣服尺寸，让我们对自己感觉“更好”，因为我们穿的尺寸比平时小。但不管你是不是粉丝，你都必须承认，这让买衣服变得比想象中难多了。没有什么是标准化的，考虑到我们这些天做了这么多的网上购物，大相径庭的尺寸也让这个过程变得更加困难。(是的，我们知道大多数网站都有那些 [尺码表](https://lifehacker.com/find-the-right-bike-size-for-you-with-these-measurement-1652054741) ，但是谁真的会拿出卷尺测量出他们“自然腰围”的尺寸呢？)
 

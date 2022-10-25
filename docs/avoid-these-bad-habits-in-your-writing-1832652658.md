@@ -1,6 +1,6 @@
 # 在写作中避免这些坏习惯
 
-> 原文:[https://life hacker . com/avoid-these-bad-habits-in-your-writing-1832652658](https://lifehacker.com/avoid-these-bad-habits-in-your-writing-1832652658)
+> 原文：<https://lifehacker.com/avoid-these-bad-habits-in-your-writing-1832652658>
 
 兰登书屋的顶级文字编辑出版了一本关于你在写作中应该做什么和不应该做什么的书，人们已经在争论这个问题了。所有的写作建议都是相对的，因为语言不是物理，是人们编造的东西。这并不意味着写作建议是无用的，所以如果你喜欢写作并试图做得更好，你应该 [阅读本杰明·德雷尔的书*德雷尔的英语:清晰和风格的绝对正确指南*](https://lithub.com/are-these-bad-habits-creeping-into-your-writing/) 中的摘录。
 

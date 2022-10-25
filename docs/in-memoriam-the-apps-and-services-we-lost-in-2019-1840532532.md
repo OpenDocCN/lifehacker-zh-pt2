@@ -1,6 +1,6 @@
 # 纪念:我们在 2019 年失去的应用和服务
 
-> 原文:[https://life hacker . com/in-memoriam-the-apps-and-services-we-lost-in-2019-1840532532](https://lifehacker.com/in-memoriam-the-apps-and-services-we-lost-in-2019-1840532532)
+> 原文：<https://lifehacker.com/in-memoriam-the-apps-and-services-we-lost-in-2019-1840532532>
 
 Wii 购物频道再也看不到另一个 [更新日](https://www.youtube.com/watch?v=B_qnI1WrlnU) 。iTunes 被剥离了部分内容。MoviePass 就像风中的蜡烛一样被熄灭了，两端燃烧，被扔在顾客的脸上。让我们记住今年我们失去的应用和服务。
 

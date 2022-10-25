@@ -1,6 +1,6 @@
 # 如何培养孩子的内在动机
 
-> 原文:[https://life hacker . com/how-to-develop-intrinsic-motivation-in-your-child-1838788109](https://lifehacker.com/how-to-develop-intrinsic-motivation-in-your-child-1838788109)
+> 原文：<https://lifehacker.com/how-to-develop-intrinsic-motivation-in-your-child-1838788109>
 
 “我拿走了他的手机，他表现了三天，然后又回到了顶嘴和糟糕的态度。我不明白他为什么不...*学*！”
 

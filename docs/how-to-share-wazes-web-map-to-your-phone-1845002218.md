@@ -1,6 +1,6 @@
 # 如何将 Waze 的 Web 地图共享到手机
 
-> 原文:[https://life hacker . com/how-to-share-wazes-web-map-to-your-phone-1845002218](https://lifehacker.com/how-to-share-wazes-web-map-to-your-phone-1845002218)
+> 原文：<https://lifehacker.com/how-to-share-wazes-web-map-to-your-phone-1845002218>
 
 现在，你可以在桌面上用 Waze Live 地图规划出你的下一次公路旅行，然后将这些路线发送到你的手机上。这个新功能是 [live for everyone](https://medium.com/waze/new-feature-alert-you-can-now-save-your-drives-from-the-web-to-your-app-587f2406b652) ，你可以通过桌面上的 [Waze 的 live 地图](https://www.waze.com/livemap) 来访问。当然，Waze 应用程序需要安装在你的手机上才能加载路线，但这是唯一的要求。
 

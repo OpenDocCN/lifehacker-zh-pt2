@@ -1,6 +1,6 @@
 # 为什么 Windows 10 找不到我的共享网络文件夹？
 
-> 原文:[https://life hacker . com/why-cant-windows-10-find-my-shared-network-folders-1841669387](https://lifehacker.com/why-cant-windows-10-find-my-shared-network-folders-1841669387)
+> 原文：<https://lifehacker.com/why-cant-windows-10-find-my-shared-network-folders-1841669387>
 
 在网络上的两台计算机之间共享文件夹总是让人觉得麻烦而不值得。至少，不能保证这个过程会顺利进行，而且当你解决了正在发生的任何问题，建立了你的共享，并传输了文件，那么，你还不如把它们复制到一个外部硬盘驱动器(或闪存驱动器)上。
 

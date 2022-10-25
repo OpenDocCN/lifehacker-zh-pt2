@@ -1,6 +1,6 @@
 # 如何放弃使用杠铃垫进行深蹲
 
-> 原文:[https://life hacker . com/how-to-quit-use-a-barbell-pad-for-squats-1841794207](https://lifehacker.com/how-to-quit-using-a-barbell-pad-for-squats-1841794207)
+> 原文：<https://lifehacker.com/how-to-quit-using-a-barbell-pad-for-squats-1841794207>
 
 在大多数健身房，地板上靠近深蹲架的地方有一个圆柱形垫子。(如果没有，检查史密斯机。)当我第一次开始蹲着的时候，我需要吧台上的垫子——或者说我认为我需要。不然我怎么保护我瘦骨嶙峋的脖子？
 

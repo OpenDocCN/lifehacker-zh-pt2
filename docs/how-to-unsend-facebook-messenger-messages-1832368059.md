@@ -1,6 +1,6 @@
 # 如何取消发送 Facebook Messenger 消息
 
-> 原文:[https://life hacker . com/how-to-un send-Facebook-messenger-messages-1832368059](https://lifehacker.com/how-to-unsend-facebook-messenger-messages-1832368059)
+> 原文：<https://lifehacker.com/how-to-unsend-facebook-messenger-messages-1832368059>
 
 错别字时有发生。现在，当它们出现在 Facebook Messenger 上时，你可以选择删除它们。脸书*终于*本周开始推出删除 Messenger 信息的功能。
 

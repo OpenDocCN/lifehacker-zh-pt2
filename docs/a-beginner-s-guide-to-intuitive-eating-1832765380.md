@@ -1,6 +1,6 @@
 # a beginner s guide to intuitive eating 1832765380
 
-> 原文:[https://life hacker . com/a-beginner-s-guide-to-intuitive-eating-1832765380](https://lifehacker.com/a-beginner-s-guide-to-intuitive-eating-1832765380)
+> 原文：<https://lifehacker.com/a-beginner-s-guide-to-intuitive-eating-1832765380>
 
 我第一次在 Instagram 上遇到“直觉饮食”这个词，我的第一个假设是，它是另一个节食规则列表，包装在一个漂亮的授权和自我护理包中。然后我注意到了百吉饼。还有纸杯蛋糕。还有那几杯酒。在与我自己有时混乱的食物关系作斗争后，我有点退缩了，因为这似乎是一张你想吃什么就吃什么的免费通行证，并宣称自己是一个直觉型进食者。
 

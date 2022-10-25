@@ -1,6 +1,6 @@
 # 如何快速检查 WhatsApp 上转发的消息
 
-> 原文:[https://life hacker . com/how-to-quick-fact-check-forwarded-messages-on-what sap-1844605934](https://lifehacker.com/how-to-quickly-fact-check-forwarded-messages-on-whatsap-1844605934)
+> 原文：<https://lifehacker.com/how-to-quickly-fact-check-forwarded-messages-on-whatsap-1844605934>
 
 没有人喜欢连锁信。虽然你可能更习惯于在收件箱中收到来自朋友和亲人的烦人垃圾邮件，但你可能已经在 WhatsApp 上收到了不少转发给你的烦人消息。
 

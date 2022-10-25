@@ -1,6 +1,6 @@
 # 用棉绒滚筒和钳子掸掉那些难以触及的地方
 
-> 原文:[https://life hacker . com/use-lint-roller-and-tong-to-dust-than-reach-1840316811](https://lifehacker.com/use-lint-rollers-and-tongs-to-dust-those-hard-to-reach-1840316811)
+> 原文：<https://lifehacker.com/use-lint-rollers-and-tongs-to-dust-those-hard-to-reach-1840316811>
 
 如果你的过敏症发作了，很可能你的房子里到处都藏着灰尘。
 

@@ -1,6 +1,6 @@
 # 《侠盗猎车手 V》的免费版？是的，请
 
-> 原文:[https://life hacker . com/a-free-copy-of-grand-theft-auto-v-yes-please-1843460680](https://lifehacker.com/a-free-copy-of-grand-theft-auto-v-yes-please-1843460680)
+> 原文：<https://lifehacker.com/a-free-copy-of-grand-theft-auto-v-yes-please-1843460680>
 
 我一直是你可以从 Epic 游戏商店获得的每周免费游戏的粉丝，并且已经收集了相当多的游戏，我相信有一天我会得到它们。今天，Epic 放弃了可以说是其迄今为止最好的免费服务:*侠盗猎车手 V* ，这是一个令人愉快的、充满伤害的游戏，穿越了类似洛杉矶的城市洛斯桑托斯。
 

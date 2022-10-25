@@ -1,6 +1,6 @@
 # how to get the most out of a virtual college course 1844858507
 
-> 原文:[https://life hacker . com/how-to-get-out-of-a-virtual-college-course-1844858507](https://lifehacker.com/how-to-get-the-most-out-of-a-virtual-college-course-1844858507)
+> 原文：<https://lifehacker.com/how-to-get-the-most-out-of-a-virtual-college-course-1844858507>
 
 今年，从常青藤联盟到两年制学校的大学都将全部或部分教学转移到了网上。(诶，你知道为什么)。这对于那些期待住在宿舍 或者向坐在他们旁边的小可爱而不是像他们的父亲寻求帮助的学生来说，会感到额外的不公平。
 

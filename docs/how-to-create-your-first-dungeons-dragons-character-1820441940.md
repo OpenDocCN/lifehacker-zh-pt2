@@ -1,6 +1,6 @@
 # 如何创建你的第一个龙与地下城角色
 
-> 原文:[https://life hacker . com/how-to-create-your ' s first-duonsongs-character-1820441940](https://lifehacker.com/how-to-create-your-first-dungeons-dragons-character-1820441940)
+> 原文：<https://lifehacker.com/how-to-create-your-first-dungeons-dragons-character-1820441940>
 
 龙与地下城曾经是一个古怪的小爱好，被视为无可救药的书呆子气，幼稚，甚至是邪恶的。现在这是一个比垄断更大的文化交易，甚至是国际象棋。它出现在*陌生事物*和播客 [冒险区](https://maximumfun.org/shows/adventure-zone) 中。在现实世界中，这在艺术化的父母和他们的孩子中很流行。而且我一直听到:“我真的想开始玩 D&D .”
 

@@ -1,6 +1,6 @@
 # 如何不再把任何东西留在酒店房间里
 
-> 原文:[https://life hacker . com/how-to-never-leave-anything-in-a-hotel-room-again-1835951815](https://lifehacker.com/how-to-never-leave-anything-in-a-hotel-room-again-1835951815)
+> 原文：<https://lifehacker.com/how-to-never-leave-anything-in-a-hotel-room-again-1835951815>
 
 2018 年，总部位于英国的连锁酒店 [Travelodge](https://www.traveldailymedia.com/travelodge-bizarre-things-left-behind/) 列出了旅行者留在房间里的最奇怪的东西——包括三条金鱼、一整辆冰淇淋车和两只波斯猫。早在 2016 年，有人还把他们的设得兰矮种马布丁留在了 Travelodge 酒店。(谢天谢地，他后来被认领了)。
 

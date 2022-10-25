@@ -1,6 +1,6 @@
 # 你能多早为你的航班托运一个提包？
 
-> 原文:[https://life hacker . com/how-early-can-check a bag for your the flight-1840511899](https://lifehacker.com/how-early-can-you-check-a-bag-for-your-flight-1840511899)
+> 原文：<https://lifehacker.com/how-early-can-you-check-a-bag-for-your-flight-1840511899>
 
 如果你曾经在航班开始登机前几个小时退房，你可能会想:如果你想在目的地多呆一会儿，你会怎么处理你的行李？如果是一家酒店，答案很简单；你可以把你的东西放在前台几个小时，然后在去机场之前回来。当然，你*也可以*在机场等你的航班，但是如果你来了这里，你可能会寻找一个不那么痛苦的解决方案。
 

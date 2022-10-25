@@ -1,6 +1,6 @@
 # 如何将户外活动带入室内
 
-> 原文:[https://life hacker . com/how-to-bring-outside-activities-indoor-1843709609](https://lifehacker.com/how-to-bring-outside-activities-indoors-1843709609)
+> 原文：<https://lifehacker.com/how-to-bring-outside-activities-indoors-1843709609>
 
 到目前为止，我儿子六月份的夏令营已经被取消了，我预计七月和八月最终也会取消。我们取消了两次漫长的周末旅行。公共游泳池在夏天关闭，我们的后院太小，太倾斜，不适合任何像样的游泳池。我将继续像多年来一样在家工作，甚至在我丈夫回到他的办公室之后。这就是为什么说，“*这小子整个夏天到底要干什么？*“已经在我脑中回荡了几个星期了。
 

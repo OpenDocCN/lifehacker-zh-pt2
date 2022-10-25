@@ -1,6 +1,6 @@
 # 如何搭车去投票站
 
-> 原文:[https://life hacker . com/how-to-get-a-ride-to-polls-1830227297](https://lifehacker.com/how-to-get-a-ride-to-the-polls-1830227297)
+> 原文：<https://lifehacker.com/how-to-get-a-ride-to-the-polls-1830227297>
 
 每次选举，数百万登记投票的美国人不去投票，仅仅是因为他们无法到达投票地点。如果你是他们中的一员，以下是你搭车的方法。
 

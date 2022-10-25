@@ -1,6 +1,6 @@
 # 举办你能想象到的最中西部聚会的 7 条温和规则
 
-> 原文:[https://the take out . com/7-gentle-rules-hosting-most-midwestern-感恩节-1830273841](https://thetakeout.com/7-gentle-rules-hosting-most-midwestern-thanksgiving-1830273841)
+> 原文：<https://thetakeout.com/7-gentle-rules-hosting-most-midwestern-thanksgiving-1830273841>
 
 我看着我妈妈主持了 30 多个感恩节。这大约相当于 870 名客人，半吨火鸡，足够淹没芝加哥郊区的肉汤。任何能估算出总热量摄入的人都应该获得诺贝尔奖。
 

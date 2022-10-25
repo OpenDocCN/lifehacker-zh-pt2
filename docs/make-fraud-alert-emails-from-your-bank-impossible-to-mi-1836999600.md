@@ -1,6 +1,6 @@
 # 让来自您的银行的欺诈警报电子邮件无法错过
 
-> 原文:[https://life hacker . com/make-fraud-alert-emails-from-your-bank-impossible-to-mi-1836999600](https://lifehacker.com/make-fraud-alert-emails-from-your-bank-impossible-to-mi-1836999600)
+> 原文：<https://lifehacker.com/make-fraud-alert-emails-from-your-bank-impossible-to-mi-1836999600>
 
 总有一天会发生这种事:有人最终伪造了我的新信用卡，我收到了一个警报，他们正试图在当地的加油站进行实物购买。这里有一个快速的解释，为什么我几乎错过了这个重要的通知(所以你不会有同样的问题在未来！)。
 

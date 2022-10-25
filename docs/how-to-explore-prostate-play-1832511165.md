@@ -1,6 +1,6 @@
 # 如何探索前列腺玩法
 
-> 原文:[https://life hacker . com/how-to-explore-prostate-play-1832511165](https://lifehacker.com/how-to-explore-prostate-play-1832511165)
+> 原文：<https://lifehacker.com/how-to-explore-prostate-play-1832511165>
 
 在一群男性中提到“前列腺”这个词，大多数人会自动想到医生进行的尴尬的癌症筛查前列腺检查。但是前列腺比那个有趣多了！前列腺是大量神经末梢的家园，可以玩得很开心，并且可以创造极其强大的高潮。
 

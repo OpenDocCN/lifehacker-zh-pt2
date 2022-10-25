@@ -1,6 +1,6 @@
 # 给孩子一个“正式”的头衔，让他们对家务感到兴奋
 
-> 原文:[https://life hacker . com/get-your-kid-psyched-on-giving-that-as-off-1836295028](https://lifehacker.com/get-your-kid-psyched-about-chores-by-giving-them-an-off-1836295028)
+> 原文：<https://lifehacker.com/get-your-kid-psyched-about-chores-by-giving-them-an-off-1836295028>
 
 想让你的孩子对帮忙做家务感到兴奋吗？给他们一个官衔。作为一个著名的“橙色班长”的母亲，我告诉你这些。我女儿五岁时，我给了她这个职位。她的工作是在我们的橙子快没了的时候提醒我和她爸爸，然后在商店里挑选新的橙子，装袋。她非常认真地对待自己的责任，学习不同种类的橙子，并做了品尝测试，以确定我们下次应该多买哪一种(我相信卡拉卡拉赢了？).太棒了——她有了自己的东西，我们的房子有充足的柑橘供应。
 

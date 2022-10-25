@@ -1,6 +1,6 @@
 # 从酒吧拿杯垫
 
-> 原文:[https://lifehacker.com/take-coasters-from-bars-1831839564](https://lifehacker.com/take-coasters-from-bars-1831839564)
+> 原文：<https://lifehacker.com/take-coasters-from-bars-1831839564>
 
 杯垫是一件聪明的东西，但却是一件愚蠢的东西。生活中最大的讽刺之一是，最昂贵的杯垫通常是由坚硬、厚重的材料制成的，而不是吸收水分，让水分聚集，直到无法控制，溢出到你的表面。解决办法很明显:不要买杯垫；相反，T2 从酒吧里偷了它们。
 

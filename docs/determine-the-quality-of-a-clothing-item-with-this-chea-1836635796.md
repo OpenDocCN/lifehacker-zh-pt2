@@ -1,6 +1,6 @@
 # 用这张备忘单确定一件衣服的质量
 
-> 原文:[https://life hacker . com/determine-the-quality-of-a-this-Chea-1836635796](https://lifehacker.com/determine-the-quality-of-a-clothing-item-with-this-chea-1836635796)
+> 原文：<https://lifehacker.com/determine-the-quality-of-a-clothing-item-with-this-chea-1836635796>
 
 穿衣服的人经常问我一个问题:“我在哪里可以买到不太贵，但第一次洗完就不会散架的衣服？”作为一名前复古服装经销商和长期的时尚播客，当谈到服装质量时，我已经看到了好的，坏的，和非常非常丑陋的。
 

@@ -1,6 +1,6 @@
 # 通过这个基督教青年会项目，花很少的钱(或不用钱)就能学会水安全
 
-> 原文:[https://life hacker . com/learn-water-safety-for-little-or-no-money with this-y-1834727380](https://lifehacker.com/learn-water-safety-for-little-or-no-money-with-this-y-1834727380)
+> 原文：<https://lifehacker.com/learn-water-safety-for-little-or-no-money-with-this-y-1834727380>
 
 去游泳池或在湖边划船听起来是度过夏日午后的一种有趣方式。然而，如果你是一个不知道如何游泳的人，那么参加任何水上活动都可能是一个可怕的提议。
 

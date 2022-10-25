@@ -1,6 +1,6 @@
 # 我房东的监控摄像头侵犯了我的隐私吗？
 
-> 原文:[https://life hacker . com/are-my-房东-安全-摄像头-侵犯我的隐私-1842123040](https://lifehacker.com/are-my-landlords-security-cameras-invading-my-privacy-1842123040)
+> 原文：<https://lifehacker.com/are-my-landlords-security-cameras-invading-my-privacy-1842123040>
 
 家庭安全？超级重要。隐私？也很重要。当两者发生冲突，有人开始使用他们的家庭安全摄像头侵犯他人的隐私*和*同时保护他们的包裹免受小偷的侵犯，会发生什么？
 

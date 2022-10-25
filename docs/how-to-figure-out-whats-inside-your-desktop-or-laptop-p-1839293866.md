@@ -1,6 +1,6 @@
 # 如何找出台式机或笔记本电脑中的内容
 
-> 原文:[https://life hacker . com/how-to-figure-that-what-inside-your desktop-or-laptop-p-1839293866](https://lifehacker.com/how-to-figure-out-whats-inside-your-desktop-or-laptop-p-1839293866)
+> 原文：<https://lifehacker.com/how-to-figure-out-whats-inside-your-desktop-or-laptop-p-1839293866>
 
 如果你制作了你的电脑，你很可能知道里面有什么。或者，至少你有一个大概的想法——可能只需要不时复习一下具体的型号。如果你买了一台预装的台式机或笔记本电脑，你可能早就忘记里面有什么了。不过，不要担心；在任一场景中，找出系统的组件并不困难。
 

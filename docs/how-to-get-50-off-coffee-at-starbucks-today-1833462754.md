@@ -1,6 +1,6 @@
 # 今天如何在星巴克享受咖啡五折优惠
 
-> 原文:[https://life hacker . com/how-to-get-50-off-coffee-at-Starbucks-today-1833462754](https://lifehacker.com/how-to-get-50-off-coffee-at-starbucks-today-1833462754)
+> 原文：<https://lifehacker.com/how-to-get-50-off-coffee-at-starbucks-today-1833462754>
 
 如果你想今天去星巴克，你可能会考虑下午 3 点以后去。这家咖啡连锁店 [在 3 月 21 日](https://www.wral.com/starbucks-50-off-espresso-beverages-on-thursday-march-21/18274268/) 周四恢复其广受欢迎的欢乐时光优惠，并在下午 3 点开始提供手工制作的大杯和大杯饮料五折优惠。
 

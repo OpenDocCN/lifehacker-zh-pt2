@@ -1,6 +1,6 @@
 # 你应该让木法沙成为你的锁屏
 
-> 原文:[https://life hacker . com/you-should-make-mufasa-your-lock-screen-1839897803](https://lifehacker.com/you-should-make-mufasa-your-lock-screen-1839897803)
+> 原文：<https://lifehacker.com/you-should-make-mufasa-your-lock-screen-1839897803>
 
 当我的朋友科尔花太多时间穿着内衣玩视频游戏，或者在 YouTube 上看别人玩视频游戏时，他会想象他的祖父叹着气，翻着白眼，说“我为了这个参加了一场战争？”
 

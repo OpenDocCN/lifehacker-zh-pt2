@@ -1,6 +1,6 @@
 # 购买旧游戏的最佳地点
 
-> 原文:[https://kotaku . com/the-best-places-to-buy-old-games-1830468915](https://kotaku.com/the-best-places-to-buy-old-games-1830468915)
+> 原文：<https://kotaku.com/the-best-places-to-buy-old-games-1830468915>
 
 收集电子游戏很容易。你所要做的就是创建一个易贝账户，然后在你想要的每一款视频游戏上点击“立即购买”。恭喜你，你有一个电子游戏收藏！你的银行账户余额现在是负 100 万美元。
 

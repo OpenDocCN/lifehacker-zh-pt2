@@ -1,6 +1,6 @@
 # 发生火灾时，用声音报警器叫醒你的孩子
 
-> 原文:[https://life hacker . com/use-a-voice-alarm-to-wake-your-child-in-a-fire-1830099396](https://lifehacker.com/use-a-voice-alarm-to-wake-your-child-during-a-fire-1830099396)
+> 原文：<https://lifehacker.com/use-a-voice-alarm-to-wake-your-child-during-a-fire-1830099396>
 
 我们的孩子似乎没有在听我们说话，但新的研究表明，在紧急情况下，妈妈的声音比标准的铃声更有可能吵醒孩子。
 

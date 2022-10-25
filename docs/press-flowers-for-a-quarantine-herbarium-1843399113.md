@@ -1,6 +1,6 @@
 # 把花压成“检疫标本室”
 
-> 原文:[https://life hacker . com/press-flowers-for-a-quarantine-herbalium-1843399113](https://lifehacker.com/press-flowers-for-a-quarantine-herbarium-1843399113)
+> 原文：<https://lifehacker.com/press-flowers-for-a-quarantine-herbarium-1843399113>
 
 草本植物制作迷人的时间胶囊。 [在你附近的博物馆或大学](https://en.wikipedia.org/wiki/List_of_herbaria) 里，可能有一个房间里放着一页又一页的旧的大纸，每张纸上都小心翼翼地贴着一整株干枯的植物。这些是恐龙骨骼或动物标本的植物等价物:为未来保存的曾经活着的标本，它们的所有细节都完好无损，因为它们不是图画或印记，而是真正的植物本身。
 

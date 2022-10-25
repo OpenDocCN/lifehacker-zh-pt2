@@ -1,6 +1,6 @@
 # 今天很多美国国家铁路客运公司的票都打五折
 
-> 原文:[https://life hacker . com/lots-of-Amtrak-tickets-is-50-off-today-1841982845](https://lifehacker.com/lots-of-amtrak-tickets-are-50-off-today-1841982845)
+> 原文：<https://lifehacker.com/lots-of-amtrak-tickets-are-50-off-today-1841982845>
 
 如果你正在考虑今年春天乘火车旅行，美国国家铁路客运公司今天提供 [优惠票，值得一看](https://www.amtrak.com/leap-year-sale) 。为了庆祝闰年，美国国家铁路客运公司推出了多条不同路线的半价机票。
 

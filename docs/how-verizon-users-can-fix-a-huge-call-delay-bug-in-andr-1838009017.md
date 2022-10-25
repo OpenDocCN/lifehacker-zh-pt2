@@ -1,6 +1,6 @@
 # 更新威瑞森的应用程序，修复 Android 10 中的一个巨大的呼叫延迟错误
 
-> 原文:[https://life hacker . com/how-Verizon-users-can-fix-a-big-call-delay-bug-in-andr-1838009017](https://lifehacker.com/how-verizon-users-can-fix-a-huge-call-delay-bug-in-andr-1838009017)
+> 原文：<https://lifehacker.com/how-verizon-users-can-fix-a-huge-call-delay-bug-in-andr-1838009017>
 
 在“我的设备令人讨厌的怪癖”列表中，我怀疑等待 20 到 60 秒的电话连接在任何人的列表中都是相当高的。这正是一些威瑞森用户在升级到 Android 10 后遇到的问题——当呼入电话和呼出电话试图连接时，会出现令人痛苦的问题延迟。
 

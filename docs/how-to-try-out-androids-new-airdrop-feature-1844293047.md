@@ -1,6 +1,6 @@
 # 如何试用 Android 的新“隔空投送”功能
 
-> 原文:[https://life hacker . com/how-to-try-out-androids-new-airdrop-feature-1844293047](https://lifehacker.com/how-to-try-out-androids-new-airdrop-feature-1844293047)
+> 原文：<https://lifehacker.com/how-to-try-out-androids-new-airdrop-feature-1844293047>
 
 我记得 2013 年苹果首次在 iOS 上推出隔空投送的时候。一个不同的版本已经在 Mac 上存在了一段时间，它无关紧要，因为当你可以在不同的 iphone*和笔记本电脑*之间拍摄文件时，隔空投送更有用，而不仅仅是后者。当时，我心想，“好吧，这就是未来。”
 

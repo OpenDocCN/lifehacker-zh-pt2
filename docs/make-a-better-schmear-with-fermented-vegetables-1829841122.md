@@ -1,6 +1,6 @@
 # 用发酵蔬菜做一道更好的菜
 
-> 原文:[https://life hacker . com/make-a-better-sch memer-with-酵菜-1829841122](https://lifehacker.com/make-a-better-schmear-with-fermented-vegetables-1829841122)
+> 原文：<https://lifehacker.com/make-a-better-schmear-with-fermented-vegetables-1829841122>
 
 我可能不是一个对百吉饼有强烈意见的新奇的新雅卡人 ，但是我知道我喜欢吃它们。原味奶油奶酪没有缺点，但是我经常喜欢美味的奶酪。大葱很棒，蔬菜也很棒，但是*发酵*蔬菜？这会让你的早晨充满活力。
 

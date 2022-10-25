@@ -1,6 +1,6 @@
 # 最后切洋葱
 
-> 原文:[https://lifehacker.com/chop-the-onions-last-1838040460](https://lifehacker.com/chop-the-onions-last-1838040460)
+> 原文：<https://lifehacker.com/chop-the-onions-last-1838040460>
 
 如果你要做一顿有很多食材的饭，需要清洗、去皮、切碎，那么你很有可能要设置一个 [*米色 en place*](https://lifehacker.com/how-and-when-to-use-mise-en-place-1819188676) 。将你所有的原料整齐地堆放在一起，意味着你可以按照要求的速度来做，而不必停下来摆弄。你在中准备 *mise* 的顺序没那么重要，有一点要注意:你绝对应该最后准备洋葱。
 

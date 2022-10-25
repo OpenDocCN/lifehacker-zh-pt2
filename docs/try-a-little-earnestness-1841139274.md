@@ -1,6 +1,6 @@
 # try a little earnestness 1841139274
 
-> 原文:[https://jezebel.com/try-a-little-earnestness-1841139274](https://jezebel.com/try-a-little-earnestness-1841139274)
+> 原文：<https://jezebel.com/try-a-little-earnestness-1841139274>
 
 在个人或职业危机时刻，我的第一个也是唯一的本能是通过努力陷入虚无主义来解决问题，提醒自己到最后，什么都不重要；人际关系在很大程度上是非物质的；而说到底，我们都打算 [孤独地](https://jezebel.com/sorry-your-cat-might-consume-your-corpse-when-you-die-1841019994) 死去。这种思路，在事物的大格局中是无可辩驳的真理，通常可以修复任何损坏的东西。带着好的和坏的继续跋涉，但不敢投入一盎司你的心，因为失望潜伏在每个角落。做好 [最坏的准备，](https://earther.gizmodo.com/doomsday-is-now-just-100-seconds-away-1841178662) 期待最好的，走出来中间的某个地方。
 

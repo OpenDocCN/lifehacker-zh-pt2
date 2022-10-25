@@ -1,6 +1,6 @@
 # 如何在本月同时看到五颗明亮的行星
 
-> 原文:[https://life hacker . com/how-to-see-all-five-bright-plants-once-1844377952](https://lifehacker.com/how-to-see-all-five-bright-planets-at-once-this-month-1844377952)
+> 原文：<https://lifehacker.com/how-to-see-all-five-bright-planets-at-once-this-month-1844377952>
 
 在过去的一个半月里，我们地球人享受了夜空，在夜空中我们可以同时指出三颗行星:火星、木星和土星。从本周开始，你可以加入金星，如果你使用双筒望远镜的话，还可以加入水星。以下是如何一次找到天空中所有五颗明亮的行星。
 

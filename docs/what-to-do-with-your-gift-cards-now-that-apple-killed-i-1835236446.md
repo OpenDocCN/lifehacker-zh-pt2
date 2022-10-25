@@ -1,6 +1,6 @@
 # 既然苹果扼杀了 iTunes，你的礼品卡该怎么处理
 
-> 原文:[https://life hacker . com/what-do-with-your-gift-cards-now-the-apple-killed-I-1835236446](https://lifehacker.com/what-to-do-with-your-gift-cards-now-that-apple-killed-i-1835236446)
+> 原文：<https://lifehacker.com/what-to-do-with-your-gift-cards-now-that-apple-killed-i-1835236446>
 
 正如在今年的[【WWDC】](https://www.buzzfeednews.com/article/buzzfeednews/apple-wwdc-2019-announcements)上宣布的那样，18 年后，苹果终于决定杀死 iTunes，它的 [笨重的](https://www.rollingstone.com/music/music-news/apple-is-finally-killing-itunes-842750/) ，标志性的音乐应用。苹果打算将这项服务拆分成更小的部分——这意味着我们所知的 iTunes 将不复存在。
 

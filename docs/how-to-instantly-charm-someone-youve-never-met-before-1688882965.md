@@ -1,6 +1,6 @@
 # 如何吸引一个你从未谋面的人
 
-> 原文:[https://life hacker . com/how-to-instant-charm-someone-you ve-never-met-first-1688882965](https://lifehacker.com/how-to-instantly-charm-someone-youve-never-met-before-1688882965)
+> 原文：<https://lifehacker.com/how-to-instantly-charm-someone-youve-never-met-before-1688882965>
 
 结识新朋友可能会很棘手，甚至会引发焦虑。当然，你想给人留下好的第一印象，尽可能讨人喜欢地接触。如果你很难施展魅力，这里有一些最重要的策略，可以让你立刻吸引一个你从未见过的人。
 

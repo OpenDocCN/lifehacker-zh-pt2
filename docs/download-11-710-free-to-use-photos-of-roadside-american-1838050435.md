@@ -1,6 +1,6 @@
 # 下载 11，710 张免费使用的美国路边照片
 
-> 原文:[https://life hacker . com/download-11-710-免费使用的美国路边照片-1838050435](https://lifehacker.com/download-11-710-free-to-use-photos-of-roadside-american-1838050435)
+> 原文：<https://lifehacker.com/download-11-710-free-to-use-photos-of-roadside-american-1838050435>
 
 国会图书馆已经发布了超过 11，000 张美国路边景点的高分辨率照片，并将这些照片(它已经购买了版权)发布到公共领域。这些照片是由建筑评论家和摄影师约翰·马戈利斯拍摄的，他花了 40 年时间记录他在美国高速公路上的旅行，拍摄广告牌、汽车电影院、餐车、洗车处、迷你高尔夫、新奇建筑和其他路边建筑。
 

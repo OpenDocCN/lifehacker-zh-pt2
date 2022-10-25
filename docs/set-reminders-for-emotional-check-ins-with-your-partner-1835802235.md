@@ -1,6 +1,6 @@
 # 为你的伴侣设置情感“签到”提醒
 
-> 原文:[https://life hacker . com/set-reminders-for-emotional-check-in-with-your-partner-1835802235](https://lifehacker.com/set-reminders-for-emotional-check-ins-with-your-partner-1835802235)
+> 原文：<https://lifehacker.com/set-reminders-for-emotional-check-ins-with-your-partner-1835802235>
 
 有些人擅长与他们的伴侣保持足够的情感交流，定期检查，表达感激，发一条甜蜜或有趣的短信。有些人是...不是。
 

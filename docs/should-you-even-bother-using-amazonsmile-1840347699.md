@@ -1,6 +1,6 @@
 # 你应该用亚马逊微笑吗？
 
-> 原文:[https://life hacker . com/should-you-even-during-using-Amazon smile-1840347699](https://lifehacker.com/should-you-even-bother-using-amazonsmile-1840347699)
+> 原文：<https://lifehacker.com/should-you-even-bother-using-amazonsmile-1840347699>
 
 如果你想支持一个非营利组织而不捐钱，你可以通过志愿服务或传播他们的工作来贡献你的时间。或者，你可以在亚马逊上购物来支持你最喜欢的慈善机构。
 

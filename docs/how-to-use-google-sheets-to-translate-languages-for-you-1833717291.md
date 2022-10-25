@@ -1,6 +1,6 @@
 # 如何用 Google Sheets 翻译语言
 
-> 原文:[https://life hacker . com/how-to-use-Google-sheets-to-translate-languages-for-you-1833717291](https://lifehacker.com/how-to-use-google-sheets-to-translate-languages-for-you-1833717291)
+> 原文：<https://lifehacker.com/how-to-use-google-sheets-to-translate-languages-for-you-1833717291>
 
 有比手持字典更有效的方法来记录重要的外语词汇。如果你正在学习一门新语言或进行基本的翻译，尝试使用 Google Sheets 中的 Google Translate 公式，轻松获取你知道或想知道的内容列表。
 

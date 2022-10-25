@@ -1,6 +1,6 @@
 # 如何从里到外清洁你的窗户
 
-> 原文:[https://life hacker . com/how-to-clean-your-windows-inside-and-out-1843451482](https://lifehacker.com/how-to-clean-your-windows-inside-and-out-1843451482)
+> 原文：<https://lifehacker.com/how-to-clean-your-windows-inside-and-out-1843451482>
 
 擦窗户是那些感觉几乎无法完成的任务之一。当它们需要被清洁时，这是显而易见的，但这显然也将是一项繁重的工作。尽管如此，你还是希望有一天能看到窗外清晰的风景——尤其是因为这是你在 2020 年与世界联系的主要方式。
 

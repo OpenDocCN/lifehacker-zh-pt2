@@ -1,6 +1,6 @@
 # 回收黑色塑料前要三思
 
-> 原文:[https://life hacker . com/think-two-before-recycling-black-plastic-1832868090](https://lifehacker.com/think-twice-before-recycling-black-plastic-1832868090)
+> 原文：<https://lifehacker.com/think-twice-before-recycling-black-plastic-1832868090>
 
 把你的黑色外卖容器扔进回收站？不幸的是，尽管你做出了努力，它们还是有可能最终被扔进我们的垃圾填埋场。
 

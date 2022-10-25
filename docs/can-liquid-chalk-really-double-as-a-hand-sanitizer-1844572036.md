@@ -1,6 +1,6 @@
 # 液体粉笔真的可以兼做洗手液吗？
 
-> 原文:[https://life hacker . com/can-liquid-chalk-true-double-as-a-hand-sanitizer-1844572036](https://lifehacker.com/can-liquid-chalk-really-double-as-a-hand-sanitizer-1844572036)
+> 原文：<https://lifehacker.com/can-liquid-chalk-really-double-as-a-hand-sanitizer-1844572036>
 
 为了保护我们免受冠状病毒的侵害，CDC [建议](https://www.cdc.gov/coronavirus/2019-ncov/prevent-getting-sick/prevention.html) 尽可能保持双手清洁，包括在无法洗手时使用含至少 60%酒精的洗手液。攀岩者和力量举重者使用的液体粉笔帮助抓握，通常含有大量的酒精。那么你能依靠液体粉笔来阻止新冠肺炎吗？
 

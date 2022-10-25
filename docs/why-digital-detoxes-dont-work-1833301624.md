@@ -1,6 +1,6 @@
 # 为什么数字排毒不起作用
 
-> 原文:[https://life hacker . com/why-digital-detox-don-work-1833301624](https://lifehacker.com/why-digital-detoxes-dont-work-1833301624)
+> 原文：<https://lifehacker.com/why-digital-detoxes-dont-work-1833301624>
 
 如今，没有手机是一种奢侈。如果你能做到这一点，你要么是在度假，要么你有一个员工来处理你所有的数字繁重的工作。对于我们其他人来说，科技既是一种干扰，也是一种必需品。数字戒毒并不能改变这一点。
 

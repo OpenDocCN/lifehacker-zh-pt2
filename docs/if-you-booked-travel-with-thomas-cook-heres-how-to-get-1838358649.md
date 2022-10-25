@@ -1,6 +1,6 @@
 # 如果你预订了去托马斯·库克的旅行，以下是退款的方法
 
-> 原文:[https://life hacker . com/if-you-booked-travel-with-Thomas-cook-heres-how-to-get-1838358649](https://lifehacker.com/if-you-booked-travel-with-thomas-cook-heres-how-to-get-1838358649)
+> 原文：<https://lifehacker.com/if-you-booked-travel-with-thomas-cook-heres-how-to-get-1838358649>
 
 周一，总部位于英国的旅游公司托马斯·库克突然崩溃，影响了 15 万名游客的计划，并解雇了数万名员工。在西班牙梅诺卡这样的机场，数百名旅客滞留在登机口。
 

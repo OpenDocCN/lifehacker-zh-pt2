@@ -1,6 +1,6 @@
 # 出国旅游前如何研究当地礼仪
 
-> 原文:[https://life hacker . com/how-to-research-local-礼仪旅行前海外-1836698545](https://lifehacker.com/how-to-research-local-etiquette-before-traveling-overse-1836698545)
+> 原文：<https://lifehacker.com/how-to-research-local-etiquette-before-traveling-overse-1836698545>
 
 当你前往海外时，研究 [旅游诈骗](https://lifehacker.com/how-to-avoid-getting-scammed-when-traveling-1835913288) 很重要，但你也应该*努力寻找当地的社会习俗——比如用手吃饭是否会引起不满，或者初次握手需要的确切的*坚定度*。*
 

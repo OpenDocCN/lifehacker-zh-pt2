@@ -1,6 +1,6 @@
 # 三摄像头 iPhone 11 Pro 的初步观察
 
-> 原文:[https://gizmodo . com/a-first-look-at-the-triple-camera-iphone-pro-1838022627](https://gizmodo.com/a-first-look-at-the-triple-camera-iphone-pro-1838022627)
+> 原文：<https://gizmodo.com/a-first-look-at-the-triple-camera-iphone-pro-1838022627>
 
 肿块很大。这是不可避免的。颠簸会分散你的注意力。而且颠簸也没那么严重。它在 iPhone 11 和 iPhone 11 Pro 上都可以看到，但 Pro 上的凸起似乎更加明显，这要归功于三个摄像头塞进了凸起，以及苹果决定让它周围的玻璃变得光滑。
 

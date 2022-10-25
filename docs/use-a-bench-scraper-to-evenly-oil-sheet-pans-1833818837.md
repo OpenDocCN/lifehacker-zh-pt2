@@ -1,6 +1,6 @@
 # 使用台式刮刀均匀地给薄烤盘上油
 
-> 原文:[https://life hacker . com/use-a-bench-scraper-to-equally-oil-sheet-pan-1833818837](https://lifehacker.com/use-a-bench-scraper-to-evenly-oil-sheet-pans-1833818837)
+> 原文：<https://lifehacker.com/use-a-bench-scraper-to-evenly-oil-sheet-pans-1833818837>
 
 烤蔬菜的季节很快就要过去了，所以我刚刚想出给平底锅上油的*完美的*方法是有道理的——当然，这需要一把刮刀。
 

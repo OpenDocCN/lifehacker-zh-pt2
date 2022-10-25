@@ -1,6 +1,6 @@
 # 如何建立你的 2020 年健身训练日志
 
-> 原文:[https://life hacker . com/how-to-set-up-your-2020-fitness-training-journal-1840879180](https://lifehacker.com/how-to-set-up-your-2020-fitness-training-journal-1840879180)
+> 原文：<https://lifehacker.com/how-to-set-up-your-2020-fitness-training-journal-1840879180>
 
 锻炼应用程序很好，但我坚信老式的训练杂志[。从去年春天开始，我把我的锻炼记录在精装的绘图纸笔记本上，我发现空白页给了我足够的空间来放图表、思考、参考资料等等。因此，根据过去对我有效的方法，让我看看我是如何建立 2020 年的训练日志的。](https://vitals.lifehacker.com/why-you-still-need-a-workout-notebook-1834590216)
 

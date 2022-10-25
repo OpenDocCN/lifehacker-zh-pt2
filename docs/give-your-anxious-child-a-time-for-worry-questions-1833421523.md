@@ -1,6 +1,6 @@
 # 给你焦虑的孩子一段时间问“担心的问题”
 
-> 原文:[https://life hacker . com/give-your-anxious-child-a-time-for-worry-questions-1833421523](https://lifehacker.com/give-your-anxious-child-a-time-for-worry-questions-1833421523)
+> 原文：<https://lifehacker.com/give-your-anxious-child-a-time-for-worry-questions-1833421523>
 
 作为一个孩子是艰难的。有很多不确定性——关于明天的医生预约，他们应该参加的生日聚会，或者妈妈会在飞机上呆多久。焦虑有时以问题的形式出现。*所以*很多问题。经常是同样的问题一遍又一遍。他们想，*需要*才能知道:到底会发生什么？
 

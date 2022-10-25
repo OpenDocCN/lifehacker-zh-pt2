@@ -1,6 +1,6 @@
 # 我需要 35，000 美元的刺激来驾驶！应该买什么车？
 
-> 原文:[https://jalopnik . com/I-need-something-exciting-to-drive-for-35-000-what-ca-1836879973](https://jalopnik.com/i-need-something-exciting-to-drive-for-35-000-what-ca-1836879973)
+> 原文：<https://jalopnik.com/i-need-something-exciting-to-drive-for-35-000-what-ca-1836879973>
 
 玛戈特曾经有一辆她喜欢的 2005 款英菲尼迪 G35，但她换成了一辆 V6 本田雅阁。还不错，但是她觉得很无聊。她正在寻找一个令人兴奋和不同的日常驱动程序，价格为 35，000 美元。她应该买什么车？
 

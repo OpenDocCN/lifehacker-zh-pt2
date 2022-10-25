@@ -1,6 +1,6 @@
 # 本周，挑战自我，进行速度跑
 
-> 原文:[https://life hacker . com/this-week-challenge-yourself-a-tempo-run-1833836670](https://lifehacker.com/this-week-challenge-yourself-with-a-tempo-run-1833836670)
+> 原文：<https://lifehacker.com/this-week-challenge-yourself-with-a-tempo-run-1833836670>
 
 你已经出门参加我们的 [跑步挑战](https://vitals.lifehacker.com/happy-spring-were-running-again-1833723734) 了吗？今年四月，我们将探索跑步者做的不同种类的锻炼，向你展示这不一定只是一次漫长而痛苦的跋涉。随着我们进入第二周，让我们探索我最不喜欢的变化(我保证从这里开始会变得更好)，即 [节奏跑](https://lifehacker.com/a-step-by-step-guide-to-tempo-runs-1781580399) 。
 

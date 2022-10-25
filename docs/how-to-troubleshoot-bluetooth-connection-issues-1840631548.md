@@ -1,6 +1,6 @@
 # 如何诊断蓝牙连接问题
 
-> 原文:[https://life hacker . com/how-to-trouble shooting-bluetooth-connection-issues-1840631548](https://lifehacker.com/how-to-troubleshoot-bluetooth-connection-issues-1840631548)
+> 原文：<https://lifehacker.com/how-to-troubleshoot-bluetooth-connection-issues-1840631548>
 
 蓝牙技术已经允许我们的电子设备相互通信 20 年了。然而，设备之间的蓝牙连接仍然可能失败，或者在你试图设置它们时给你带来各种各样的问题。这里有一些故障排除技术，当蓝牙设备配对让你郁闷的时候可以试试。
 

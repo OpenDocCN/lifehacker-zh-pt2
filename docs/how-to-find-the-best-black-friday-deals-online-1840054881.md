@@ -1,6 +1,6 @@
 # 如何在网上找到最好的黑色星期五交易
 
-> 原文:[https://life hacker . com/how-to-find-the-best-black-Friday-deals-online-1840054881](https://lifehacker.com/how-to-find-the-best-black-friday-deals-online-1840054881)
+> 原文：<https://lifehacker.com/how-to-find-the-best-black-friday-deals-online-1840054881>
 
 在过去的四年里，我的工作需要在黑色星期五到来之前的几天和几周内通读每一则广告和通知。今年，我几乎摆脱了这个任务。周五的早些时候，我不用监控销售、闪电交易和破门而入，而是睡个懒觉。然后，我去购物。
 

@@ -1,6 +1,6 @@
 # 2018 年最佳视频
 
-> 原文:[https://lifehacker.com/the-best-videos-of-2018-1830983882](https://lifehacker.com/the-best-videos-of-2018-1830983882)
+> 原文：<https://lifehacker.com/the-best-videos-of-2018-1830983882>
 
 视频！它们就像活的文章。每个人都喜欢，我们今年做了一大堆。这些是我们 2018 年最好的视频。
 

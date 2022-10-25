@@ -1,6 +1,6 @@
 # 如何零浪费杂货店
 
-> 原文:[https://life hacker . com/how-to-zero-waste-杂货店-1833064391](https://lifehacker.com/how-to-zero-waste-grocery-shop-1833064391)
+> 原文：<https://lifehacker.com/how-to-zero-waste-grocery-shop-1833064391>
 
 随着零浪费杂货店的兴起，现在购物时减少对环境的影响比以往任何时候都容易。但是*到底是什么*【零浪费】你问？
 

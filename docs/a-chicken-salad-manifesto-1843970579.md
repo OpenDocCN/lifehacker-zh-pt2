@@ -1,6 +1,6 @@
 # 鸡肉沙拉宣言
 
-> 原文:[https://lifehacker.com/a-chicken-salad-manifesto-1843970579](https://lifehacker.com/a-chicken-salad-manifesto-1843970579)
+> 原文：<https://lifehacker.com/a-chicken-salad-manifesto-1843970579>
 
 鸡肉沙拉通常不被视为“性感”它是家常便饭、教堂晚餐、乏味的婴儿或婚礼送礼会的选择，通常调味不足，穿着过度。难吃的鸡肉沙拉会让你完全远离类别。 B ut 好吃的鸡肉沙拉？好的鸡肉沙拉可以是超然的。
 

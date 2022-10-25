@@ -1,6 +1,6 @@
 # 2020 年 6 月 1 日这一周网飞有什么新消息
 
-> 原文:[https://life hacker . com/whats-new-on-the-week-of-June-1-2020-1843594060](https://lifehacker.com/whats-new-on-netflix-the-week-of-june-1-2020-1843594060)
+> 原文：<https://lifehacker.com/whats-new-on-netflix-the-week-of-june-1-2020-1843594060>
 
 新的一个月正式开始了，这意味着是时候补充你的网飞队列了。
 

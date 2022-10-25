@@ -1,6 +1,6 @@
 # 你可能用错了“包含”这个词
 
-> 原文:[https://life hacker . com/you-possible-use-the-word-comprise-wrong-1837622031](https://lifehacker.com/youre-probably-using-the-word-comprise-wrong-1837622031)
+> 原文：<https://lifehacker.com/youre-probably-using-the-word-comprise-wrong-1837622031>
 
 在我深情地解释了 [“谁”和“谁”](https://lifehacker.com/how-to-remember-the-difference-between-who-and-whom-1837581203) 之间的区别后，一位亲爱的读者意识到了一个事实:我一直在进行一场 [一个女人的圣战](https://lifehacker.com/tag/grammar-police) 来净化我们这个世界上所有可怕的语法。我只知道那个叫“Fabian Knockwurst”的人来找我，要求“做*来组成* next”，我很乐意答应。
 

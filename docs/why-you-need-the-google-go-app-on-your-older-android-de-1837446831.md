@@ -1,6 +1,6 @@
 # 为什么你需要在旧的 Android 设备上安装“Google Go”应用程序
 
-> 原文:[https://life hacker . com/why-you-need-the-Google-go-app-on-your-older-Android-de-1837446831](https://lifehacker.com/why-you-need-the-google-go-app-on-your-older-android-de-1837446831)
+> 原文：<https://lifehacker.com/why-you-need-the-google-go-app-on-your-older-android-de-1837446831>
 
 尽管与目前最大的技术和最受欢迎的设备有关，谷歌也为基础设施和资源有限的地方开发产品和服务。其中一个产品，精简的搜索应用“Google Go”现在在全球范围内可供所有安卓用户试用。
 

@@ -1,6 +1,6 @@
 # 如何在 Instagram 上启用黑暗模式
 
-> 原文:[https://life hacker . com/how-to-enable-dark-mode-on-insta gram-1838869676](https://lifehacker.com/how-to-enable-dark-mode-on-instagram-1838869676)
+> 原文：<https://lifehacker.com/how-to-enable-dark-mode-on-instagram-1838869676>
 
 **iOS:** Instagram 刚刚更新了黑暗模式，所以你可以盯着人们色彩鲜艳的度假照片和被墨黑色包围的恐怖茶几 的 [广告，就像你在暗房里冲洗胶卷一样。打开它的唯一方法是在所有 iOS 上启用黑暗模式。](https://twitter.com/toomuchnick/status/1180864275730112512) 
 

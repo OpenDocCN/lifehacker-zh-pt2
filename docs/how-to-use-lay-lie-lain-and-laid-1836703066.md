@@ -1,6 +1,6 @@
 # 如何使用躺，躺，躺，躺
 
-> 原文:[https://life hacker . com/how-to-use-lay-lie-lain-layed-1836703066](https://lifehacker.com/how-to-use-lay-lie-lain-and-laid-1836703066)
+> 原文：<https://lifehacker.com/how-to-use-lay-lie-lain-and-laid-1836703066>
 
 偶尔，你会想躺下来小睡一会儿，对吗？不，你没有。你刚刚犯了混淆你的谎言和谎言的罪。
 

@@ -1,6 +1,6 @@
 # 当心这些额外的机场税和费用
 
-> 原文:[https://life hacker . com/当心这些额外的机场税费-1829837907](https://lifehacker.com/watch-out-for-these-extra-airport-taxes-and-fees-1829837907)
+> 原文：<https://lifehacker.com/watch-out-for-these-extra-airport-taxes-and-fees-1829837907>
 
 在旅游博客的世界里，如果你想要最便宜的航班，有一些窍门。比如，利用单程票，避开昂贵的机场，比如伦敦的希思罗机场。
 

@@ -1,6 +1,6 @@
 # 如何在谷歌地图中找到“蛇”复活节彩蛋
 
-> 原文:[https://life hacker . com/how-to-access-the-snake-Easter-egg-in-Google-maps-1833700845](https://lifehacker.com/how-to-access-the-snake-easter-egg-in-google-maps-1833700845)
+> 原文：<https://lifehacker.com/how-to-access-the-snake-easter-egg-in-google-maps-1833700845>
 
 谷歌地图今年用经典街机游戏 Snake 的限量版来庆祝愚人节。复活节彩蛋将从今天开始一直持续到周末。有了它，你可以在桌面上玩 Snake，也可以在世界各地的一些标志性城市(包括伦敦、开罗、东京和旧金山)用谷歌地图的智能手机应用程序玩 Snake。
 

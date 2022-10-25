@@ -1,6 +1,6 @@
 # 你应该吃你的五花肉
 
-> 原文:[https://life hacker . com/you-should-brulee-your-penny-1833079149](https://lifehacker.com/you-should-brulee-your-pork-belly-1833079149)
+> 原文：<https://lifehacker.com/you-should-brulee-your-pork-belly-1833079149>
 
 慢煮的五花肉很难改进。未处理过的培根牛排肉质细嫩，美味的猪肉脂肪融化的部分贯穿其中。这已经很放纵了，但是你应该给它一个甜脆脆的布勒饼皮，让它更像的*甚至*T3。
 

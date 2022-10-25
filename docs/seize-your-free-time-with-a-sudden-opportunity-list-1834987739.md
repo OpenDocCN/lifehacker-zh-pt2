@@ -1,6 +1,6 @@
 # 用“突发机会清单”抓住你的空闲时间
 
-> 原文:[https://life hacker . com/justice-your ' s free-time with a burn-opportunity-list-1834987739](https://lifehacker.com/seize-your-free-time-with-a-sudden-opportunity-list-1834987739)
+> 原文：<https://lifehacker.com/seize-your-free-time-with-a-sudden-opportunity-list-1834987739>
 
 也许你已经*走了，走了，走了*，感觉你已经几周没有休息了。还是几个月？谁知道呢？然后，不知从哪里，它击中了你。随意的一点时间。也许一个邻居提出今天下午带你的孩子去看电影，或者你早上的约会取消了，或者你的老板决定今天早点打烊。一开始，你很激动！但之后你会迷失方向。有了这份意外的自由，你打算*做什么*？你开始感到紧张。然后你开始谷歌。*我附近最好的温泉。* *网飞系列开始狂看。所有你能在 30 分钟或更短时间内完成的徒步旅行。你如此专注于做决定，以至于在你意识到之前，你的休息时间已经结束了。* 
 

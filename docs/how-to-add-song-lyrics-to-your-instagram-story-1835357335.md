@@ -1,6 +1,6 @@
 # 如何在你的 Instagram 故事中添加歌词
 
-> 原文:[https://life hacker . com/how-to-add-song-lyrics-to-your-insta gram-story-1835357335](https://lifehacker.com/how-to-add-song-lyrics-to-your-instagram-story-1835357335)
+> 原文：<https://lifehacker.com/how-to-add-song-lyrics-to-your-instagram-story-1835357335>
 
 如果你在过去六个月左右的时间里注意到你的 Instagram 故事提要看起来有点像个性化的卡拉 ok 视频，那是因为去年 the Gram 增加了一项功能，允许你为你的故事添加歌词。这项功能不仅可以为你的故事添加音乐(你已经可以这样做一段时间了)，还可以在图像或视频上看到这些歌词，类似于你可能使用抖音应用程序所做的事情。
 

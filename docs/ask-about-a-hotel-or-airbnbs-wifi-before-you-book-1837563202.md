@@ -1,6 +1,6 @@
 # 在预订之前，询问一下酒店或 Airbnb 的无线网络
 
-> 原文:[https://life hacker . com/ask-about-a-hotel-or-airbnbs-wifi-before-you-book-1837563202](https://lifehacker.com/ask-about-a-hotel-or-airbnbs-wifi-before-you-book-1837563202)
+> 原文：<https://lifehacker.com/ask-about-a-hotel-or-airbnbs-wifi-before-you-book-1837563202>
 
 去年圣诞节，我决定在家乡的 Airbnb 上挥霍几天，而不是在整个旅行中与朋友和家人呆在一起。我喜欢这样的想法，我可以随心所欲地来去，也可以想睡多晚就睡多晚，而不会打扰我的主人。事实证明，有时在东海岸，我在西海岸的午夜就寝时间变成了凌晨 3 点。这样我可以看《网飞》,在酒吧呆到很晚，或者工作到深夜而不打扰任何人。
 

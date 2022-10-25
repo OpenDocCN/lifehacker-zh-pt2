@@ -1,6 +1,6 @@
 # 以下是网飞的新动物纪录片中最令人难过的场景的时间标记
 
-> 原文:[https://life hacker . com/here-is-the-time-stamps-of-the-most-distress-scenes-1834012668](https://lifehacker.com/here-are-the-time-stamps-of-the-most-distressing-scenes-1834012668)
+> 原文：<https://lifehacker.com/here-are-the-time-stamps-of-the-most-distressing-scenes-1834012668>
 
 网飞的新自然纪录片《我们的星球》内容丰富——令人敬畏(该节目是视觉奇观)、信息丰富(它展示了气候变化的真实影响)和发人深省(它揭示了*我们*是罪魁祸首)。对于一些观众来说，这也令人深感不安。以至于网飞发布了 [一个带有时间戳的内容警告](https://www.buzzfeednews.com/article/michaelblackmon/netflix-issued-a-warning-for-scenes-in-its-new-documentary?bftwnews&utm_term=4ldqpgc#4ldqpgc) ，对于某些“动物爱好者可能想跳过的场景”
 

@@ -1,6 +1,6 @@
 # 你应该为 4/20 烤松饼
 
-> 原文:[https://life hacker . com/you-should-waffle-your-pot-brownie-for-4-20-1842965977](https://lifehacker.com/you-should-waffle-your-pot-brownie-for-4-20-1842965977)
+> 原文：<https://lifehacker.com/you-should-waffle-your-pot-brownie-for-4-20-1842965977>
 
 像大多数烘焙一样，制作完美的巧克力饼实际上是一门科学。你必须 [将花蕾](https://skillet.lifehacker.com/how-to-sous-vide-your-own-medical-marijuana-edibles-1772309487) 脱羧酸，注入黄油并(理想情况下)计算剂量。但是，一旦它们被烤好，并被分成责任分配的方块，还有最后一个专业步骤:用华夫饼机快速压制。
 

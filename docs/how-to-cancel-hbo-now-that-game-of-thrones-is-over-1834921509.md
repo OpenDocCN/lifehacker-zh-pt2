@@ -1,6 +1,6 @@
 # 《权力的游戏》已经结束了，如何取消 HBO
 
-> 原文:[https://life hacker . com/how-to-cancel-HBO-now-that-the-game-of-thrones-over-1834921509](https://lifehacker.com/how-to-cancel-hbo-now-that-game-of-thrones-is-over-1834921509)
+> 原文：<https://lifehacker.com/how-to-cancel-hbo-now-that-game-of-thrones-is-over-1834921509>
 
 随着《权力的游戏》正式成为过去，你可能会问自己很多棘手的问题。粉丝们本周一直在问的最大问题之一是，不出所料，“既然《权力的游戏》已经结束了，我该如何取消 HBO？”
 

@@ -1,6 +1,6 @@
 # 今天在星巴克购物可免费获得一杯冰镇饮料
 
-> 原文:[https://life hacker . com/get-a-free-a-ice-drink-at-Starbucks-today-with-purchase-1837073402](https://lifehacker.com/get-a-free-iced-drink-at-starbucks-today-with-purchase-1837073402)
+> 原文：<https://lifehacker.com/get-a-free-iced-drink-at-starbucks-today-with-purchase-1837073402>
 
 如果你是一个喜欢免费东西的人，也是一个喜欢冰咖啡(或茶)的人，那么我有一些相当好的消息。从今天(8 月 8 日)下午 2 点开始，星巴克开始在 BOGO 出售冰镇饮料。
 

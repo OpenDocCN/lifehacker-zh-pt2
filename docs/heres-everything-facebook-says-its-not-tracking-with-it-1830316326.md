@@ -1,6 +1,6 @@
 # 这是脸书说它没有用它的入口设备追踪的所有东西
 
-> 原文:[https://life hacker . com/heres-everything-Facebook-says-its-not-tracking-with-it-1830316326](https://lifehacker.com/heres-everything-facebook-says-its-not-tracking-with-it-1830316326)
+> 原文：<https://lifehacker.com/heres-everything-facebook-says-its-not-tracking-with-it-1830316326>
 
 脸书的新视频聊天设备，门户网站，今天开始销售。通过 [选择一个](https://portal.facebook.com/) ，它将接入您的脸书帐户，让您进行免提视频通话、显示照片、播放音乐、播放视频内容等。
 

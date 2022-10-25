@@ -1,6 +1,6 @@
 # 你可以在线观看《罗杰斯先生的邻居》剧集
 
-> 原文:[https://life hacker . com/you-can-watch-mister-Rogers-neighborhood-episodes-onlin-1833439180](https://lifehacker.com/you-can-watch-mister-rogers-neighborhood-episodes-onlin-1833439180)
+> 原文：<https://lifehacker.com/you-can-watch-mister-rogers-neighborhood-episodes-onlin-1833439180>
 
 今天是弗雷德·罗杰斯的生日，这个教会我们如何从 [寻找帮手](https://www.youtube.com/watch?v=-LGHtc_D328) 的人，这个在 [成为国家药方](https://pediatrics.aappublications.org/content/142/3/e20182058) 之前就懂得玩耍的力量的人，这个能轻而易举地把他母亲 做的一件拉链毛衣 [摇得滚瓜烂熟的人。我想念他，也想念他的节目。](https://www.rewire.org/pbs/sweaters-sneakers-rogers-neighborhood/) 
 

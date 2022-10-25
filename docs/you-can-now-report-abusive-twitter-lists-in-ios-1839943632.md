@@ -1,6 +1,6 @@
 # 你现在可以在 iOS 中报告辱骂性的 Twitter 列表
 
-> 原文:[https://life hacker . com/you-can-now-report-abuse-Twitter-lists-in-IOs-1839943632](https://lifehacker.com/you-can-now-report-abusive-twitter-lists-in-ios-1839943632)
+> 原文：<https://lifehacker.com/you-can-now-report-abusive-twitter-lists-in-ios-1839943632>
 
 Twitter 的列表功能使得浏览该平台的噪音变得容易，但它也带来了一个主要的烦恼——列表充满了被滥用的可能性，尤其是当你发现自己是其他人“吸 Twitter 的人”列表中的持卡人时。
 

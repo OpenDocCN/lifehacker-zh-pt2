@@ -1,6 +1,6 @@
 # 确保你的美国运输安全管理局预检和全球入境不会很快过期
 
-> 原文:[https://life hacker . com/make-sure-your-TSA-pre check-and-global-entry-arent-expi-1830625561](https://lifehacker.com/make-sure-your-tsa-precheck-and-global-entry-arent-expi-1830625561)
+> 原文：<https://lifehacker.com/make-sure-your-tsa-precheck-and-global-entry-arent-expi-1830625561>
 
 如果您是 TSA PreCheck 或 Global Entry 的早期采用者，现在可能是查看您的计划会员资格何时到期的好时机。
 

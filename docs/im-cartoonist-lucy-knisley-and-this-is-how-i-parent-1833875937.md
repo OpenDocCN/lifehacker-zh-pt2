@@ -1,6 +1,6 @@
 # 我是漫画家 Lucy Knisley，这是我如何为人父母
 
-> 原文:[https://life hacker . com/im-cartoon-Lucy-knis ley-and-this-how-I-parent-1833875937](https://lifehacker.com/im-cartoonist-lucy-knisley-and-this-is-how-i-parent-1833875937)
+> 原文：<https://lifehacker.com/im-cartoonist-lucy-knisley-and-this-is-how-i-parent-1833875937>
 
 露西·尼斯利以描绘自己的生活为职业。她最新的漫画小说[](https://www.amazon.com/Kid-Gloves-Months-Careful-Chaos/dp/1626728089/ref=asc_df_1626728089/?adgrpid=60258871177&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-cartoonist-lucy-knisley-and-this-is-how-i-parent-1833875937&asc_source=&hvadid=312176305142&hvadid=312176305142&hvdev=c&hvdev=c&hvdvcmdl=&hvdvcmdl=&hvlocint=&hvlocint=&hvlocphy=9031023&hvlocphy=9031023&hvnetw=g&hvnetw=g&hvpone=&hvpone=&hvpos=1o1&hvpos=1o1&hvptwo=&hvptwo=&hvqmt=&hvqmt=&hvrand=6690919836953059989&hvrand=6690919836953059989&hvtargid=pla-632507596779&hvtargid=pla-632507596779&linkCode=df0&psc=1&ref=&tag=kinjalifehackerlink-20)*详细描述了她成为母亲的艰难转变——从生育问题到流产，再到分娩时的濒死体验。它既亲密又信息量大，展示了生殖健康的科学和历史。(我了解到，直到 20 世纪 10 年代，女性在怀孕期间都穿着紧身胸衣，医生们终于开始意识到这不是一个好主意。)Knisley 也刚刚发布了一本名为 [*你是新的*](https://www.amazon.com/You-Are-New-Lucy-Knisley/dp/1452161569/ref=pd_lpo_sbs_14_img_0?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-cartoonist-lucy-knisley-and-this-is-how-i-parent-1833875937&asc_source=&psc=1&refRID=TVVYW2F40RT803W0V708&tag=kinjalifehackerlink-20) 的绘本，庆祝做宝宝的快乐。她和她的伴侣约翰、她称为“回文”的孩子以及一只名叫琳妮的猫住在一起。以下是她为人父母的方式。*
 

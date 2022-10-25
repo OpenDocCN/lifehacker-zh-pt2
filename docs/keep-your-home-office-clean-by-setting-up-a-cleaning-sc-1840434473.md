@@ -1,6 +1,6 @@
 # 通过制定清洁计划来保持家庭办公室的清洁
 
-> 原文:[https://life hacker . com/keep-your-home-office-clean-by-setting-up-a-cleaning-sc-1840434473](https://lifehacker.com/keep-your-home-office-clean-by-setting-up-a-cleaning-sc-1840434473)
+> 原文：<https://lifehacker.com/keep-your-home-office-clean-by-setting-up-a-cleaning-sc-1840434473>
 
 在家工作在很多方面都很棒。独自在家工作可以让午餐休息和你穿什么衣服变得非常灵活。它也可以像清理你的空间一样是可选的，在某些情况下是可选的，以至于你可能不会做所有的事情。没有人会看到你的家庭办公室，对不对？
 

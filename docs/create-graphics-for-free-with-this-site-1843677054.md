@@ -1,6 +1,6 @@
 # 用这个网站免费创建图形
 
-> 原文:[https://life hacker . com/create-graphics-for-free-with the-site-1843677054](https://lifehacker.com/create-graphics-for-free-with-this-site-1843677054)
+> 原文：<https://lifehacker.com/create-graphics-for-free-with-this-site-1843677054>
 
 在和孩子在家呆了几个月之后，许多父母期待着和他们一起度过这个夏天...孩子们全职在家。取决于你住在哪里，以及你个人打算在温暖的月份里对社交距离有多严格，特别是青少年可能已经达到厌倦的顶峰。是时候让他们 1)玩一些新的有创意的东西，2)装饰自己卧室的墙壁或更新他们的社交媒体档案了。要做到这两点，把他们介绍给 [海报我的墙](https://www.postermywall.com/) 。
 

@@ -1,6 +1,6 @@
 # 从幼儿园开始给孩子送高中毕业礼物
 
-> 原文:[https://life hacker . com/start-your-kids-high-school-毕业礼-in-kinderga-1833940742](https://lifehacker.com/start-your-kids-high-school-graduation-gift-in-kinderga-1833940742)
+> 原文：<https://lifehacker.com/start-your-kids-high-school-graduation-gift-in-kinderga-1833940742>
 
 当我的儿子在幼儿园时，我看到一个想法在我的育儿圈子里流传:选择一本伤感的书，从幼儿园开始，让他的老师在书的一页上给他写一个便条。从高中开始每年都这样做。毕业那天，把书给他。
 

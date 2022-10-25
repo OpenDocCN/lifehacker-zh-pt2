@@ -1,6 +1,6 @@
 # 请听这段关于青少年和科技的播客
 
-> 原文:[https://life hacker . com/listen-to-this-podcast-about-tens-and-technology-1831012228](https://lifehacker.com/listen-to-this-podcast-about-teens-and-technology-1831012228)
+> 原文：<https://lifehacker.com/listen-to-this-podcast-about-teens-and-technology-1831012228>
 
 作为一个在屏幕时代抚养孩子的父母，我经常试图在允许他探索适合他年龄的技术和确定多少是太多之间找到平衡。
 

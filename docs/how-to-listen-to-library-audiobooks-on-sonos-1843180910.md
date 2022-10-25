@@ -1,6 +1,6 @@
 # 如何在 Sonos 上听图书馆有声读物
 
-> 原文:[https://life hacker . com/how-to-listen-to-library-audio books-on-sonos-1843180910](https://lifehacker.com/how-to-listen-to-library-audiobooks-on-sonos-1843180910)
+> 原文：<https://lifehacker.com/how-to-listen-to-library-audiobooks-on-sonos-1843180910>
 
 藏书家们欢欣鼓舞:Sonos now [与 Libby](https://www.theverge.com/2020/4/30/21242505/sonos-libby-overdrive-local-library-audiobooks-free) 集成，后者是音频和电子书服务 OverDrive 的应用程序，可以将你与当地公共图书馆的免费内容联系起来。
 

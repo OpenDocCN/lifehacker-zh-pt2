@@ -1,6 +1,6 @@
 # 我如何对屏幕破碎的 Android 手机进行出厂重置？
 
-> 原文:[https://life hacker . com/how-do-I-factory-reset-an-Android-phone-with-a-broken-s-1830573253](https://lifehacker.com/how-do-i-factory-reset-an-android-phone-with-a-broken-s-1830573253)
+> 原文：<https://lifehacker.com/how-do-i-factory-reset-an-android-phone-with-a-broken-s-1830573253>
 
 你如何修理坏掉的东西？具体来说，当你破坏了智能手机的屏幕时，你如何访问你的智能手机——大概是在把它送去维修之前，把你所有的重要数据都清除掉？
 

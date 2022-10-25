@@ -1,6 +1,6 @@
 # 如何针对较暗的场景调整电视设置
 
-> 原文:[https://life hacker . com/what-happens-when-when-you-adjust-you-TV-settings-for-dark-1834445701](https://lifehacker.com/what-happens-when-you-adjust-your-tvs-settings-for-dark-1834445701)
+> 原文：<https://lifehacker.com/what-happens-when-you-adjust-your-tvs-settings-for-dark-1834445701>
 
 太多的人不得不调整他们的电视机来观看上周日的《权力的游戏》第一集。事实上，周一早上有太多关于你应该尝试启动的所有设置的文章——亮度、对比度、伽马、图像模式、背光等等——你现在在电视上看到的图像可能与以前大不相同。临冬城之战死伤惨重。您的电视图像质量也不例外。
 

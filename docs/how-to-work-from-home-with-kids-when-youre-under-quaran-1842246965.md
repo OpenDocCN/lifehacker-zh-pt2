@@ -1,6 +1,6 @@
 # 当你在社交上疏远时，如何在家和孩子一起工作
 
-> 原文:[https://life hacker . com/how-to-work-from-you-under-quaran-1842246965](https://lifehacker.com/how-to-work-from-home-with-kids-when-youre-under-quaran-1842246965)
+> 原文：<https://lifehacker.com/how-to-work-from-home-with-kids-when-youre-under-quaran-1842246965>
 
 如果你曾经在家里带着小孩工作过，哪怕只有一天，你都知道这不是开玩笑。孩子们要求很高，工作需要注意力集中——这两者并不完全一致。
 

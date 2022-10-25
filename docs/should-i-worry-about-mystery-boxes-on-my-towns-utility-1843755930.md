@@ -1,6 +1,6 @@
 # 我应该担心镇上电线杆上的神秘盒子吗？
 
-> 原文:[https://life hacker . com/should-I-fuck-on-my-towns-utility-1843755930](https://lifehacker.com/should-i-worry-about-mystery-boxes-on-my-towns-utility-1843755930)
+> 原文：<https://lifehacker.com/should-i-worry-about-mystery-boxes-on-my-towns-utility-1843755930>
 
 我真的不太注意我家附近的电线杆——只要它们屹立不倒，不冒火花，不发出奇怪的嗡嗡声或类似的声音，它们做它们的事，我做我的事。不过，有些 Lifehacker 的读者比我还有点眼尖。
 

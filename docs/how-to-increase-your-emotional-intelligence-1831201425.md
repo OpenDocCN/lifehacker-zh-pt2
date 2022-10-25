@@ -1,6 +1,6 @@
 # 如何增加自己的情商
 
-> 原文:[https://life hacker . com/how-to-increase-your-emotional-intelligence-1831201425](https://lifehacker.com/how-to-increase-your-emotional-intelligence-1831201425)
+> 原文：<https://lifehacker.com/how-to-increase-your-emotional-intelligence-1831201425>
 
 有学校智能，街道智能，商业智能，但我们往往忘记了感觉智能:情商。就像你批判性思考的能力一样，你阅读和表达情感的能力也是可以培养的。
 

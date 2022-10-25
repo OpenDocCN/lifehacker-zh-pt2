@@ -1,6 +1,6 @@
 # 烧掉你的南瓜派的案子
 
-> 原文:[https://life hacker . com/the-case for-torching-your ' s 南瓜馅饼-1839671497](https://lifehacker.com/the-case-for-torching-your-pumpkin-pie-1839671497)
+> 原文：<https://lifehacker.com/the-case-for-torching-your-pumpkin-pie-1839671497>
 
 火很有趣。馅饼很有趣。把你的南瓜派(轻轻地)放在火上，这是一段美好的时光。事实上，我认为所有的蛋羹馅饼都渴望着被烤熟，但是南瓜是当季的宠儿，所以我们将重点放在这一点上。
 

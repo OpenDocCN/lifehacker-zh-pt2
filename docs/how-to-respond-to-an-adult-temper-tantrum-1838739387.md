@@ -1,6 +1,6 @@
 # 如何应对成年人发脾气
 
-> 原文:[https://life hacker . com/how-to-response-a-成人发脾气-1838739387](https://lifehacker.com/how-to-respond-to-an-adult-temper-tantrum-1838739387)
+> 原文：<https://lifehacker.com/how-to-respond-to-an-adult-temper-tantrum-1838739387>
 
 当你和一个五岁的孩子打交道时，有时候，对付他们的乱发脾气的最好方法就是完全无视他们。但是对于一个处于公众崩溃中的成年人来说呢？这确实发生了(不仅仅是在电视转播的 [新闻发布会上](https://www.cnn.com/videos/politics/2019/10/02/trump-press-conference-schiff-impeachment-inquiry-acosta-pkg-tsr-vpx.cnn/video/playlists/this-week-in-politics/) )。
 

@@ -1,6 +1,6 @@
 # 如何衡量孩子对屏幕的依恋
 
-> 原文:[https://life hacker . com/how-to-measure-your-kids-attachment-to-screens-1837097000](https://lifehacker.com/how-to-measure-your-kids-attachment-to-screens-1837097000)
+> 原文：<https://lifehacker.com/how-to-measure-your-kids-attachment-to-screens-1837097000>
 
 从我们第一次在米老鼠俱乐部门前抱着他们安静地吃晚饭，到他们把自己锁在房间里连续几个小时玩 [【堡垒之夜】](https://lifehacker.com/is-your-kid-old-enough-for-fortnite-1833471479) ，父母们经常问自己，“*的屏幕时间多长*多长？”
 

@@ -1,6 +1,6 @@
 # 免费下载美国宇航局最新一批令人惊叹的火星图片
 
-> 原文:[https://life hacker . com/download-nasas-new-batch-of-using-images-of-1844736860](https://lifehacker.com/download-nasas-new-batch-of-stunning-images-of-mars-for-1844736860)
+> 原文：<https://lifehacker.com/download-nasas-new-batch-of-stunning-images-of-mars-for-1844736860>
 
 自从美国宇航局发射火星勘测轨道飞行器(MRO)已经 15 年了，它继续为我们提供这颗红色星球的壮观图像。为了庆祝这个周年纪念日，美国宇航局发布了一批来自 MROT3 的新图像，包括一些我们迄今为止看到的最详细的照片。以下是我们不仅可以看到，而且可以免费下载的内容。
 

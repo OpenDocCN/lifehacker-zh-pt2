@@ -1,6 +1,6 @@
 # 你最喜欢的低防鸡尾酒有哪些？
 
-> 原文:[https://life hacker . com/what-are-you-favorite-low-proof-cocktails-1836675224](https://lifehacker.com/what-are-your-favorite-low-proof-cocktails-1836675224)
+> 原文：<https://lifehacker.com/what-are-your-favorite-low-proof-cocktails-1836675224>
 
 人们喜欢在夏天喝醉，尤其是在户外，这会导致脱水和高度醉酒。显然，作为一个温和、负责任的成年人，喝大量的水是对抗这种现象的最好方法，但是选择温和、低度数的鸡尾酒也可以有所帮助。
 

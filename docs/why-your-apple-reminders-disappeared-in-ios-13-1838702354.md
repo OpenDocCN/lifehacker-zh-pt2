@@ -1,6 +1,6 @@
 # 为什么你的苹果提醒在 iOS 13 中消失了
 
-> 原文:[https://life hacker . com/why-your-apple-reminders-missing-in-IOs-13-1838702354](https://lifehacker.com/why-your-apple-reminders-disappeared-in-ios-13-1838702354)
+> 原文：<https://lifehacker.com/why-your-apple-reminders-disappeared-in-ios-13-1838702354>
 
 苹果提醒今年正在进行一次大检修。新版本现在可以在 iOS 13 和 iPadOS 13 上使用，并将在本月 Catalina 更新发布时在 macOS 上发布。它看起来更好，并增加了新的功能，增加了有用的深度，如创建与行动项目相关的列表的能力。
 

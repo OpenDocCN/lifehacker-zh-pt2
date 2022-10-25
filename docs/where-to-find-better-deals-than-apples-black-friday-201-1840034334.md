@@ -1,6 +1,6 @@
 # 哪里能找到比苹果 2019 年黑色星期五销售更好的交易
 
-> 原文:[https://life hacker . com/where-to-find-better-deals-than-apple-black-Friday-201-1840034334](https://lifehacker.com/where-to-find-better-deals-than-apples-black-friday-201-1840034334)
+> 原文：<https://lifehacker.com/where-to-find-better-deals-than-apples-black-friday-201-1840034334>
 
 苹果 [宣布了 2019 年黑色星期五销售的部分细节](https://www.apple.com/us/shop/gifts/shopping-event) :当你在苹果、苹果商店或亚马逊和其他第三方卖家在线购买时，至少有一些苹果产品会为你提供高达 200 美元的苹果礼品卡。优惠活动将从 11 月 29 日持续到 12 月 2 日。但是,*真的是一笔好交易吗？*
 

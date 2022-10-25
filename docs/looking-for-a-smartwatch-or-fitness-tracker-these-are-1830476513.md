@@ -1,6 +1,6 @@
 # 最好的智能手表和健身追踪器
 
-> 原文:[https://gizmodo . com/looking-a-smart watch-or-fitness-tracker-this-is-1830476513](https://gizmodo.com/looking-for-a-smartwatch-or-fitness-tracker-these-are-1830476513)
+> 原文：<https://gizmodo.com/looking-for-a-smartwatch-or-fitness-tracker-these-are-1830476513>
 
 从智能手表和健身追踪器到蓝牙戒指和睡眠记录腕带，如果它是你可以佩戴的技术，我们已经审查过了。无论你是苹果还是安卓的死忠，这些都是你应该购买的可穿戴设备。
 

@@ -1,6 +1,6 @@
 # 参加麻省理工学院关于新冠肺炎的免费课程
 
-> 原文:[https://life hacker . com/take-a-free-course-on-新冠肺炎-from-mit-1844908524](https://lifehacker.com/take-a-free-course-on-covid-19-from-mit-1844908524)
+> 原文：<https://lifehacker.com/take-a-free-course-on-covid-19-from-mit-1844908524>
 
 从美国东部时间 9 月 1 日上午 11:30(太平洋时间上午 8:30)开始，麻省理工学院将在 [开设一门关于“新冠肺炎、新型冠状病毒和疫情”的课程](https://biology.mit.edu/undergraduate/current-students/subject-offerings/covid-19-sars-cov-2-and-the-pandemic) 该课程的讲座将于每周二直播，并对公众免费。(只有报名的学生可以提问，但是大家都可以看。)
 

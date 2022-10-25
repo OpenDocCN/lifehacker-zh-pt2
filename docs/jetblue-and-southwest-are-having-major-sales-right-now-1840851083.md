@@ -1,6 +1,6 @@
 # 捷蓝航空公司和西南航空公司正在大减价
 
-> 原文:[https://life hacker . com/JetBlue-and-south west-are-having-major-sales-right-now-1840851083](https://lifehacker.com/jetblue-and-southwest-are-having-major-sales-right-now-1840851083)
+> 原文：<https://lifehacker.com/jetblue-and-southwest-are-having-major-sales-right-now-1840851083>
 
 如果你在寻找一个特别好的机票，现在可能是时候预订你的下一个出城的航班了。现在，捷蓝航空和西南航空正在大减价。只需 44 美元，你就可以乘坐捷蓝航空公司的单程票从纽瓦克飞往劳德代尔堡。只需 49 美元，你就可以乘坐西南航空公司的航班从旧金山飞往拉斯维加斯。
 

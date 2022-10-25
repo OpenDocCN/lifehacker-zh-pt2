@@ -1,6 +1,6 @@
 # 如何教你的孩子独立思考
 
-> 原文:[https://life hacker . com/how-to-teach-your-kids-to-think-1836013177](https://lifehacker.com/how-to-teach-your-kids-to-think-for-themselves-1836013177)
+> 原文：<https://lifehacker.com/how-to-teach-your-kids-to-think-for-themselves-1836013177>
 
 从我汽车后座传来的谈话开始让我不舒服。
 

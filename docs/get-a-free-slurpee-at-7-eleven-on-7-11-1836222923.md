@@ -1,6 +1,6 @@
 # 7 月 11 日在 7-11 便利店获得免费思乐冰
 
-> 原文:[https://life hacker . com/get-a-free-slurpee-at-7-eleven-on-7-11-1836222923](https://lifehacker.com/get-a-free-slurpee-at-7-eleven-on-7-11-1836222923)
+> 原文：<https://lifehacker.com/get-a-free-slurpee-at-7-eleven-on-7-11-1836222923>
 
 每年 7 月 11 日，从上午 11 点到下午 7 点，7-11 都会免费赠送思乐冰。今年你可以得到两杯。
 

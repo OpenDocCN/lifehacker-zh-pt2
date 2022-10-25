@@ -1,6 +1,6 @@
 # 哪个杂货递送订阅是最好的交易？
 
-> 原文:[https://life hacker . com/which-杂货店交付订阅是最好的交易 1835584559](https://lifehacker.com/which-grocery-delivery-subscription-is-the-best-deal-1835584559)
+> 原文：<https://lifehacker.com/which-grocery-delivery-subscription-is-the-best-deal-1835584559>
 
 每周长途跋涉去杂货店的时代结束了吗？杂货店的送货服务可能会让你这么想。每次你转身，都会有另一辆卡车从你的街道上疾驰而过，满载着从甘蓝到糖果的各种东西。
 

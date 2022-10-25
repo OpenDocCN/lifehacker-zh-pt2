@@ -1,6 +1,6 @@
 # 以下是 Audible 的新 Plus 计划
 
-> 原文:[https://life hacker . com/heres-what-coming-with-audibles-new-plus-plans-1844846253](https://lifehacker.com/heres-whats-coming-with-audibles-new-plus-plans-1844846253)
+> 原文：<https://lifehacker.com/heres-whats-coming-with-audibles-new-plus-plans-1844846253>
 
 Audible 宣布 [全新的定价结构，将于本周向所有现有和新用户推出](https://www.audible.com/about/newsroom/all-you-can-listen-membership-option-audible-plus-rolls-out-in-preview) 。
 

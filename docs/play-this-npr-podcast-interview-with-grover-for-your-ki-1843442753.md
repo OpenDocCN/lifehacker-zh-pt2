@@ -1,6 +1,6 @@
 # 为你的孩子播放这段 NPR 采访格罗弗的播客
 
-> 原文:[https://life hacker . com/play-this-NPR-podcast-interview-with-Grover-for-your-ki-1843442753](https://lifehacker.com/play-this-npr-podcast-interview-with-grover-for-your-ki-1843442753)
+> 原文：<https://lifehacker.com/play-this-npr-podcast-interview-with-grover-for-your-ki-1843442753>
 
 格罗弗和我们其他人一样，从疫情开始就一直在练习社交距离。NPR 的《生活锦囊播客 的主持人安雅·卡梅尼茨和科里·特纳本周采访了这位深受喜爱的芝麻街角色，他透露自己现在是一个“送货怪兽”，为邻居挑选和运送杂货。
 

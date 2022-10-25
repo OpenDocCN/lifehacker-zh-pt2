@@ -1,6 +1,6 @@
 # how to survive the 2020 presidential campaign without l 1833274651
 
-> 原文:[https://life hacker . com/how-to-survive-the-2020-president-campaign-without-l-1833274651](https://lifehacker.com/how-to-survive-the-2020-presidential-campaign-without-l-1833274651)
+> 原文：<https://lifehacker.com/how-to-survive-the-2020-presidential-campaign-without-l-1833274651>
 
 来自 2016 年活动季的制作者们，准备好迎接 2020 年这个并不新鲜也绝对没有改进的活动季吧！这个坏男孩拥有上一季所有你讨厌的东西，甚至增加了更多科学设计的功能，让你疯狂，从不诚实的论点到反智主义。此外，我们还有许多旨在增加您压力水平的全新功能，包括:现在必须关注[*视图*](https://splinternews.com/oh-god-no-oh-god-no-oh-god-no-oh-god-no-1833136333) ！星巴克的那个 [家伙](https://splinternews.com/dumb-starbucks-man-im-a-troop-basically-1833301322) ！ [塔克·卡尔森](https://jezebel.com/tucker-carlson-seems-to-have-a-lot-of-fun-thoughts-on-w-1833191803) 对选美的思考！如果你等不及了，好消息是:2020 年的运动现在就可以开始了，比以往任何时候都更早，它将在接下来的 19 个月里接管你的生活和你的所有谈话不管你喜欢与否。
 

@@ -1,6 +1,6 @@
 # 我会因为在别处买了车而在当地经销商那里得到糟糕的服务吗？
 
-> 原文:[https://jalopnik . com/will-I-get-bad-service-at-my-local-dealer-cause-I-bou-1829861278](https://jalopnik.com/will-i-get-bad-service-at-my-local-dealer-because-i-bou-1829861278)
+> 原文：<https://jalopnik.com/will-i-get-bad-service-at-my-local-dealer-because-i-bou-1829861278>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。我决定挑几个问题，试着帮帮大家。本周我们将讨论当地经销商服务、制造商确定的折扣以及购买二手宝马的风险。
 

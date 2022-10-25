@@ -1,6 +1,6 @@
 # 把你的鸡肉放进你的饺子怎么样？
 
-> 原文:[https://the take out . com/recipe-鸡肉饺子-南方-美食-娱乐-1839836816](https://thetakeout.com/recipe-chicken-in-dumplings-southern-food-entertaining-1839836816)
+> 原文：<https://thetakeout.com/recipe-chicken-in-dumplings-southern-food-entertaining-1839836816>
 
 如果你有幸在南方或与南方血统的人呆过一段时间，最终你会被介绍到鸡肉饺子的魔力。在老派的鸡肉饺子中，鸡肉块悬浮在味道浓郁的肉汁中，可能还会混合一些洋葱和胡萝卜，并用厚厚的手工饺子或“切片”进行大量点缀它们不完全是面条，也不完全是饼干。他们生活在他们自己的碳水化合物的完美王国里，一旦你拥有了它们，你会想要在你的生活中拥有更多。
 

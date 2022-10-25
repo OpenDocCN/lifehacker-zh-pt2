@@ -1,6 +1,6 @@
 # 你仍然可以在亚马逊上订购任何你想要的东西
 
-> 原文:[https://life hacker . com/you-can-still-order-what-you-want-on-Amazon-1842396337](https://lifehacker.com/you-can-still-order-whatever-you-want-on-amazon-1842396337)
+> 原文：<https://lifehacker.com/you-can-still-order-whatever-you-want-on-amazon-1842396337>
 
 如果你在当地杂货店或大卖场找不到卫生纸和洗手液等必需品，你可能会在互联网上找到慰藉。至少你还可以在网上订购家居用品，然后送货上门，对吗？我们可能无法在大群体中闲逛，但那些亚马逊送货车仍然在我们的街区到处跑。
 

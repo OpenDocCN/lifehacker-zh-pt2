@@ -1,6 +1,6 @@
 # 使用移动护照应用程序轻松通过海关，无需全球入境
 
-> 原文:[https://life hacker . com/use-the-mobile-passport-app-to-breeze-through-customs-w-1833203914](https://lifehacker.com/use-the-mobile-passport-app-to-breeze-through-customs-w-1833203914)
+> 原文：<https://lifehacker.com/use-the-mobile-passport-app-to-breeze-through-customs-w-1833203914>
 
 当你乘坐国际航班返回美国时，排队等候美国海关的检查是非常痛苦的。人们花钱购买像 [美国运输安全管理局预检和全球入境](https://lifehacker.com/make-sure-your-tsa-precheck-and-global-entry-arent-expi-1830625561) 这样的程序是有充分理由的，以努力加快这一过程。
 

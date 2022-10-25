@@ -1,6 +1,6 @@
 # 这种苦艾酒和梨鸡尾酒是清爽夜晚的理想选择
 
-> 原文:[https://life hacker . com/this-苦艾酒加梨子的鸡尾酒是最理想的脆偶 1839722734](https://lifehacker.com/this-vermouth-and-pear-cocktail-is-ideal-for-crisp-even-1839722734)
+> 原文：<https://lifehacker.com/this-vermouth-and-pear-cocktail-is-ideal-for-crisp-even-1839722734>
 
 比起真正的水果，我更喜欢梨，主要是因为——像鳄梨一样——它们的“啊，该死的耶”窗口很短。但是梨白兰地从来没有让我失望；味道一直很好，口感从不粗糙，ABV 徘徊在 40%左右。
 

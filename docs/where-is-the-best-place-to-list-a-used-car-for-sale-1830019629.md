@@ -1,6 +1,6 @@
 # 二手车在哪里挂牌出售最好？
 
-> 原文:[https://jalopnik . com/where ' s-best-place-to-list-a-二手车出售-1830019629](https://jalopnik.com/where-is-the-best-place-to-list-a-used-car-for-sale-1830019629)
+> 原文：<https://jalopnik.com/where-is-the-best-place-to-list-a-used-car-for-sale-1830019629>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。我决定挑几个问题，试着帮帮大家。本周，我们将讨论列出你的二手车的最佳位置，买一辆二手雷克萨斯还是一辆新丰田，以及回收车的保修。
 

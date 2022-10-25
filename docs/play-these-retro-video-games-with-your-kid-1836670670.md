@@ -1,6 +1,6 @@
 # 和你的孩子一起玩这些复古的电子游戏
 
-> 原文:[https://life hacker . com/play-these-retro-video-games-with-your-kid-1836670670](https://lifehacker.com/play-these-retro-video-games-with-your-kid-1836670670)
+> 原文：<https://lifehacker.com/play-these-retro-video-games-with-your-kid-1836670670>
 
 你知道谁是地球上最坏的人吗？那些居高临下地嘲笑创造性作品的人，因为他们不“现代”那些去看《复活》电影的人会对数字特效嗤之以鼻，或者会说“这游戏糟透了！图形是*所以*块状，它不会每五秒自动保存一次！”
 

@@ -1,6 +1,6 @@
 # 如果你在旅行中丢失了护照该怎么办
 
-> 原文:[https://life hacker . com/what-do if you-lost your-passport-1844231869](https://lifehacker.com/what-to-do-if-you-lose-your-passport-while-traveling-1844231869)
+> 原文：<https://lifehacker.com/what-to-do-if-you-lose-your-passport-while-traveling-1844231869>
 
 没有什么比想到在旅行中丢失护照更让我焦虑的了。在旅行中丢失任何东西都令人沮丧，但你的护照确实是你的生命线，可以确保一点安全，确认你的身份，并让你回家，这样你就不会被困。没有人想错过航班或支付比他们最初预期更多的钱。
 

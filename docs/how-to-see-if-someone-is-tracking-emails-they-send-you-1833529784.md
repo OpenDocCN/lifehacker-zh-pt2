@@ -1,6 +1,6 @@
 # 如何查看某人是否在跟踪他们发送给您的电子邮件
 
-> 原文:[https://life hacker . com/how-to-see-if-someone-tracking-emails-they-send-you-1833529784](https://lifehacker.com/how-to-see-if-someone-is-tracking-emails-they-send-you-1833529784)
+> 原文：<https://lifehacker.com/how-to-see-if-someone-is-tracking-emails-they-send-you-1833529784>
 
 几年前，一位在公关部门工作的朋友告诉我关于 Streak 的事情，这是一种电子邮件跟踪服务，可以让你知道某人何时打开了你发给他们的邮件，有时还会详细说明邮件是在哪里打开的，甚至是他们在什么设备上阅读的。
 

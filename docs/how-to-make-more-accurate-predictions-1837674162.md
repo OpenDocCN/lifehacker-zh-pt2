@@ -1,6 +1,6 @@
 # 如何做出更准确的预测
 
-> 原文:[https://life hacker . com/how-to-make-more-accurate-predictions-1837674162](https://lifehacker.com/how-to-make-more-accurate-predictions-1837674162)
+> 原文：<https://lifehacker.com/how-to-make-more-accurate-predictions-1837674162>
 
 任何时候，当你不仅仅基于自己的行为来制定长期计划时，你都需要记住这个世界是多么不可预测。很难不被冲昏头脑，尤其是如果你有很多“好”数据作为你计划的基础。合作基金博客列出了制定计划和预测时需要牢记的 12 件事。虽然博客主要关注投资预测，但在任何规划中，这些都是需要记住的好原则。我们的最爱:
 

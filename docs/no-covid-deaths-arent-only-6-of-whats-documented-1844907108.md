@@ -1,6 +1,6 @@
 # 不，COVID 死亡并不只是记录在案的“6%”
 
-> 原文:[https://life hacker . com/no-covid-deaths-arent-only-6-of-what-documented-1844907108](https://lifehacker.com/no-covid-deaths-arent-only-6-of-whats-documented-1844907108)
+> 原文：<https://lifehacker.com/no-covid-deaths-arent-only-6-of-whats-documented-1844907108>
 
 有一个令人震惊的错误统计数据正在流传， [说](https://twitter.com/littllemel/status/1300024392290832387) 疾病预防控制中心“承认”只有 6%有记录的新冠肺炎死亡实际上是由病毒引起的。这是错误的，是那种你只有在不知道死亡证明如何运作的情况下才能得出结论的事情。这些死亡病例都来自 COVID，其中约 95%的人将冠状病毒作为最初的病因。
 

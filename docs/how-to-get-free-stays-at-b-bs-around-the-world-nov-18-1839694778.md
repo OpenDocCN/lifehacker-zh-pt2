@@ -1,6 +1,6 @@
 # 如何在 11 月 18 日至 24 日期间免费入住世界各地的 B&酒店
 
-> 原文:[https://life hacker . com/how-to-get-free-stays-at-b-bs-around-the-world-nov-18-1839694778](https://lifehacker.com/how-to-get-free-stays-at-b-bs-around-the-world-nov-18-1839694778)
+> 原文：<https://lifehacker.com/how-to-get-free-stays-at-b-bs-around-the-world-nov-18-1839694778>
 
 在感恩节热潮之前，[11 月一般是](https://lifehacker.com/save-money-by-buying-your-thanksgiving-flight-tickets-i-1839043700) 旅游比较安静的月份之一。但是，如果你正在寻找一个价格合理的节前最后一刻度假，你可能想看看 [易货周](https://www.barterweek.com/en/) 的产品，它允许旅行者免费入住各种住宿选择，以换取提供所需的服务或项目。有什么问题吗？您需要立即预订并在 11 月 18 日至 11 月 2 日 4 之间旅行。
 

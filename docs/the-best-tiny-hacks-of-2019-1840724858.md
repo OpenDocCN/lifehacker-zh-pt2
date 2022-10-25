@@ -1,6 +1,6 @@
 # 2019 年最佳小黑客
 
-> 原文:[https://life hacker . com/the-best-tiny-hacks-of-2019-1840724858](https://lifehacker.com/the-best-tiny-hacks-of-2019-1840724858)
+> 原文：<https://lifehacker.com/the-best-tiny-hacks-of-2019-1840724858>
 
 小黑客可能会觉得，嗯，很小，但他们可以在很大程度上改变你的生活。以下是我们今年发布的最佳生活小窍门。
 

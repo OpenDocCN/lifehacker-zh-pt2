@@ -1,6 +1,6 @@
 # 如何重新认证你的学生贷款偿还计划
 
-> 原文:[https://life hacker . com/how-to-re-certificate-your-student-loan-return-plan-1841457643](https://lifehacker.com/how-to-recertify-your-student-loan-repayment-plan-1841457643)
+> 原文：<https://lifehacker.com/how-to-recertify-your-student-loan-repayment-plan-1841457643>
 
 将你的学生贷款偿还计划切换到联邦政府提供的四个收入驱动计划 中的一个，可以为你的财务创造奇迹。这些项目通常会延长你偿还贷款余额的时间。但作为交换，将你的月供与你的收入水平挂钩的能力可以帮助你提高财务稳定性，让你不至于被贷款余额完全压垮。
 

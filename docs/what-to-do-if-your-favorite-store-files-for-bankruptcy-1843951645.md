@@ -1,6 +1,6 @@
 # 如果你最喜欢的商店申请破产，该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-your-favorite-store-files-for-launch-1843951645](https://lifehacker.com/what-to-do-if-your-favorite-store-files-for-bankruptcy-1843951645)
+> 原文：<https://lifehacker.com/what-to-do-if-your-favorite-store-files-for-bankruptcy-1843951645>
 
 J.Crew、Neiman Marcus、JCPenney、Pier 1 Imports:这些只是在冠状病毒疫情期间申请破产的零售商中的一部分。
 

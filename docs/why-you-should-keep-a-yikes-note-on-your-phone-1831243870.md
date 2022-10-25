@@ -1,6 +1,6 @@
 # 为什么你应该在手机上留一个“哎呀”的便条
 
-> 原文:[https://life hacker . com/why-you-should-keep-a-yikes-note-on-your-phone-1831243870](https://lifehacker.com/why-you-should-keep-a-yikes-note-on-your-phone-1831243870)
+> 原文：<https://lifehacker.com/why-you-should-keep-a-yikes-note-on-your-phone-1831243870>
 
 你知道，当你和你的朋友或伴侣在某人面前做一些愚蠢/疯狂/令人愤怒的事情时，你想发出“这是疯狂的，的信号，对吗？“？但是扬起你的眉毛，甚至*看着对方可能会给做疯狂事情的人提供线索？ [微型弹夹](http://tinycartridge.com/) 合著者埃里克·卡奥利有一个巧妙的解决办法。* 
 

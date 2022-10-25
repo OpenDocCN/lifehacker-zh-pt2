@@ -1,6 +1,6 @@
 # 付清酒店账单，用完外币
 
-> 原文:[https://life hacker . com/use-up-foreign-currency-by-pay-down-your-hotel-bill-1834918060](https://lifehacker.com/use-up-foreign-currency-by-paying-down-your-hotel-bill-1834918060)
+> 原文：<https://lifehacker.com/use-up-foreign-currency-by-paying-down-your-hotel-bill-1834918060>
 
 在最近一次去墨西哥的旅行中，就在我准备退房去机场的时候，我意识到我还有大约 1000 比索的现金。
 

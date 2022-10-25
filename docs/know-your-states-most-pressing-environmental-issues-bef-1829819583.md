@@ -1,6 +1,6 @@
 # 在选举日之前了解你所在州最紧迫的环境问题
 
-> 原文:[https://life hacker . com/know-your-States-most-pressing-environmental-issues-bef-1829819583](https://lifehacker.com/know-your-states-most-pressing-environmental-issues-bef-1829819583)
+> 原文：<https://lifehacker.com/know-your-states-most-pressing-environmental-issues-bef-1829819583>
 
 污染正在杀死俄勒冈州的牡蛎。新泽西州的大部分地区都是铺砌的，因此它的雨水无处可去。在内华达州，联邦政府想把一座山变成核废料的存放地。在你前往投票站之前，你应该知道你所在州最紧迫的环境问题，而 [科普有一个 guid](https://www.popsci.com/important-science-issues-every-state) e 来帮你复习。
 

@@ -1,6 +1,6 @@
 # 触发警告有帮助吗？
 
-> 原文:[https://life hacker . com/are-trigger-warnings-helical-1836387748](https://lifehacker.com/are-trigger-warnings-helpful-1836387748)
+> 原文：<https://lifehacker.com/are-trigger-warnings-helpful-1836387748>
 
 你可能在网上的帖子中看到过触发警告，或者回忆起一些电视节目之前的公告“建议观众谨慎”触发警告有时也会在课堂上使用，最近的一项研究再次引发了一场关于它们是有用还是适得其反的辩论。以下是我们所知道的触发警告。
 

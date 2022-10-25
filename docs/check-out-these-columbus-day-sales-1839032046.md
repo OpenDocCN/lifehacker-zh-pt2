@@ -1,6 +1,6 @@
 # 看看这些哥伦布日的销售
 
-> 原文:[https://life hacker . com/check-out-these-Columbus-day-sales-1839032046](https://lifehacker.com/check-out-these-columbus-day-sales-1839032046)
+> 原文：<https://lifehacker.com/check-out-these-columbus-day-sales-1839032046>
 
 祝 [土著民族日，又名](https://lifehacker.com/the-real-history-of-columbus-day-1819220166)哥伦布日快乐！为了纪念这位著名的欧洲奴隶贩子，美国的每家商店都从他们的商品和服务中获得了一点点利润。这是网上哥伦布日交易的综述。
 

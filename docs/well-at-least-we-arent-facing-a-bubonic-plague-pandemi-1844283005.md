@@ -1,6 +1,6 @@
 # 至少我们没有面临黑死病，疫情
 
-> 原文:[https://life hacker . com/well-至少我们没有面对一场黑死病-pandemi-1844283005](https://lifehacker.com/well-at-least-we-arent-facing-a-bubonic-plague-pandemi-1844283005)
+> 原文：<https://lifehacker.com/well-at-least-we-arent-facing-a-bubonic-plague-pandemi-1844283005>
 
 是的，现在是 2020 年，糟糕的事情正在发生。但是在蒙古和内蒙古的几个鼠疫 病例的 [诊断并不预示着黑死病的重演。就像所谓的](https://www.nytimes.com/2020/07/06/world/asia/china-bubonic-plague-inner-mongolia.html) [杀人黄蜂](https://vitals.lifehacker.com/murder-hornets-are-unlikely-to-murder-you-personally-1843264533) 一样，这种吓唬又是一个哑弹。
 

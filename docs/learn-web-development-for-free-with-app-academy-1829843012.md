@@ -1,6 +1,6 @@
 # 通过 App Academy 免费学习 Web 开发
 
-> 原文:[https://life hacker . com/learn-web-development-for-free-with-app-academy-1829843012](https://lifehacker.com/learn-web-development-for-free-with-app-academy-1829843012)
+> 原文：<https://lifehacker.com/learn-web-development-for-free-with-app-academy-1829843012>
 
 编码学校 App Academy 开设了 [免费在线互动版的 12 周课程](https://www.aaonline.io/) 。这是一笔非常划算的交易，因为该学院在旧金山和纽约的面授课程费用可能高达大学一个学期的费用。在线版本不太涉及直接的人际互动，但它包括在线导师和社区聊天。
 

@@ -1,6 +1,6 @@
 # 如何观看奥普拉关于种族不公正的市政厅
 
-> 原文:[https://life hacker . com/how-to-watch-Oprah-town-hall-on-racial-unjustice-1843950944](https://lifehacker.com/how-to-watch-oprahs-town-hall-on-racial-injustice-1843950944)
+> 原文：<https://lifehacker.com/how-to-watch-oprahs-town-hall-on-racial-injustice-1843950944>
 
 现在，奥普拉·温弗瑞(Oprah Winfrey)加入了其他讨论种族不公正的声音，她将主持一个为期两天的市政厅会议，名为“我们将何去何从？”6 月 9 日和 10 日播出。该节目将在自己的网络上运行:奥普拉·温弗瑞网络，以及探索频道的其他 18 个美国网络，包括探索频道、HGTV、ID、食品网络和 TLC。
 

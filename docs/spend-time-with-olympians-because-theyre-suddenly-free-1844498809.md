@@ -1,6 +1,6 @@
 # 花时间和奥运选手在一起，因为他们今年夏天突然有空了
 
-> 原文:[https://life hacker . com/与奥运选手共度时光——因为他们突然自由了——1844498809](https://lifehacker.com/spend-time-with-olympians-because-theyre-suddenly-free-1844498809)
+> 原文：<https://lifehacker.com/spend-time-with-olympians-because-theyre-suddenly-free-1844498809>
 
 早在三月份，当许多人都相信世界将在阵亡将士纪念日之前恢复正常运行时，国际奥委会(IOC)做出了推迟东京夏季奥运会的决定。 虽然这对全世界成千上万为奥运会训练的运动员来说可能是毁灭性的，但我们现在知道这是正确的决定，因为新冠肺炎疫情仍然没有得到控制(至少在美国)。
 

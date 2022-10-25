@@ -1,6 +1,6 @@
 # 为你的孩子准备一份熟食午餐
 
-> 原文:[https://life hacker . com/serve-your-child-a-charcuterie-board-lunch-1844931913](https://lifehacker.com/serve-your-child-a-charcuterie-board-lunch-1844931913)
+> 原文：<https://lifehacker.com/serve-your-child-a-charcuterie-board-lunch-1844931913>
 
 如果你发现自己和孩子的午餐时间很单调(我的公式一直是三明治+水果/酸奶+一些松脆的东西)，也许是时候改变一下了——用一个充满多样性的食谱。
 

@@ -1,6 +1,6 @@
 # 你应该用根汁汽水腌猪排
 
-> 原文:[https://life hacker . com/you-should-卤汁猪排-1834813681](https://lifehacker.com/you-should-marinate-pork-chops-in-root-beer-1834813681)
+> 原文：<https://lifehacker.com/you-should-marinate-pork-chops-in-root-beer-1834813681>
 
 多汁、烹饪完美的猪排不难做到；一个简单的 [盐水，接着是一个反向烤焦](https://lifehacker.com/never-make-a-dry-pork-chop-again-1827055338) 的情况，每次都会使它多汁可口。但是如果你想给你的生活增加一点甜蜜——创造一个真正的炸弹外壳——试着把它们浸泡在根汁啤酒中几个小时。
 

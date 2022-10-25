@@ -1,6 +1,6 @@
 # 以下是你应该多久洗一次面膜
 
-> 原文:[https://life hacker . com/heres-你应该多久洗一次脸面膜-1844012206](https://lifehacker.com/heres-how-often-you-should-wash-your-face-mask-1844012206)
+> 原文：<https://lifehacker.com/heres-how-often-you-should-wash-your-face-mask-1844012206>
 
 自从新冠肺炎疫情事件开始以来——甚至早在[1 月](https://vitals.lifehacker.com/can-a-surgical-mask-protect-you-from-coronavirus-1841311686) 和[2 月](https://vitals.lifehacker.com/quit-buying-coronavirus-masks-you-dont-need-1841521105) 美国的事情真正开始变得糟糕之前——就已经有一些混杂的消息谈到戴着面具的。在 Lifehacker，我们很幸运，我们的高级健康编辑 Beth Skwarecki 一直在关注这个问题，为我们提供了口罩佩戴指南中所有变化的更新。
 

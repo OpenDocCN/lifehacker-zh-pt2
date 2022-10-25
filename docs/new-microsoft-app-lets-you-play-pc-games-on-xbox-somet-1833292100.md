@@ -1,6 +1,6 @@
 # 新的微软应用程序让你有时可以在 Xbox 上玩电脑游戏
 
-> 原文:[https://kotaku . com/new-Microsoft-app-let-you-play-PC-games-on-Xbox-somet-1833292100](https://kotaku.com/new-microsoft-app-lets-you-play-pc-games-on-xbox-somet-1833292100)
+> 原文：<https://kotaku.com/new-microsoft-app-lets-you-play-pc-games-on-xbox-somet-1833292100>
 
 经过多年的 Xbox Insider 计划测试，微软终于正式发布了免费的无线显示应用程序，允许 PC 流媒体传输到 Xbox One，并提供控制器支持。它工作的时候很整洁。以我目前的经验来看，这并不经常奏效。
 

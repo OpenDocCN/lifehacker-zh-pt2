@@ -1,6 +1,6 @@
 # 2019 年 8 月 26 日这一周，网飞有什么动静
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of the-August-1837446821](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-august-1837446821)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-august-1837446821>
 
 你和我都不是那种一到劳动节就“夏天结束了，回去工作”的人；还有三个星期的阳光和乐趣，我们准备保持轻松愉快的心态，直到第一次霜冻。你瞧，我们在网飞的朋友同样不认为返校时间是开始工作的理由——看看本周平淡无奇的流媒体服务就知道了。八月下旬，网飞被扔进垃圾场:节奏还在继续！:第七季(周二)，为了确保你整个劳动节周末都呆在户外烧烤，*你不会和 Zohan* (周日)搅在一起。
 

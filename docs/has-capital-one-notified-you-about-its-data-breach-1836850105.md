@@ -1,6 +1,6 @@
 # Capital One 通知你数据泄露的事了吗？
 
-> 原文:[https://life hacker . com/has-capital-one-notified-you-about-its-data-breach-1836850105](https://lifehacker.com/has-capital-one-notified-you-about-its-data-breach-1836850105)
+> 原文：<https://lifehacker.com/has-capital-one-notified-you-about-its-data-breach-1836850105>
 
 如果你是 Capital One 的客户，你很可能被该公司最近的数据泄露事件所困扰——该事件影响了 1.06 亿人(美国 1 亿人，加拿大 600 万人)。)我们的问题是:如果你受到影响，Capital One 实际上*告诉过*你吗？
 

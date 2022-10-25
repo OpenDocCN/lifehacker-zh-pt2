@@ -1,6 +1,6 @@
 # 如何在 Firefox 67.0 上启用内容阻止过滤器和隐私扩展
 
-> 原文:[https://life hacker . com/how-to-enable-content-blocking-filters-and-privacy-exte-1835242670](https://lifehacker.com/how-to-enable-content-blocking-filters-and-privacy-exte-1835242670)
+> 原文：<https://lifehacker.com/how-to-enable-content-blocking-filters-and-privacy-exte-1835242670>
 
 Mozilla 今天为桌面版 Firefox 推出了几个新的隐私功能，包括增强的跟踪器保护和内容阻止、密码管理器和新的可选安全扩展。其中一些功能需要为现有用户启用和配置，尽管那些 [下载全新安装的火狐](https://www.mozilla.org/en-US/firefox/new/) 的用户应该默认开启大部分功能。无论哪种方式，我们都会在下一节详细介绍更新中的所有更改，以及如何启用它们。
 

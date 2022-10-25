@@ -1,6 +1,6 @@
 # 如何成为一名举报者
 
-> 原文:[https://lifehacker.com/how-to-be-a-whistleblower-1794921442](https://lifehacker.com/how-to-be-a-whistleblower-1794921442)
+> 原文：<https://lifehacker.com/how-to-be-a-whistleblower-1794921442>
 
 最近，告密似乎经常出现在新闻中。这让我们这些普通的傻瓜想知道:如果我们不得不出卖我们的同事或上司，无论是为了保护其他消费者和公民，还是仅仅为了保护自己，我们 T2 会如何处理？如果一个工人看到一些肮脏的行为，想引起人们的注意，他们如何在法律上保护自己？
 

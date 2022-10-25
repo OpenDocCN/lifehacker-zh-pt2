@@ -1,6 +1,6 @@
 # we looked at every setting on the galaxy note 10 and he 1837450445
 
-> 原文:[https://life hacker . com/we-looked-at-every-setting-on-the-galaxy-note-10 and-he-1837450445](https://lifehacker.com/we-looked-at-every-setting-on-the-galaxy-note-10-and-he-1837450445)
+> 原文：<https://lifehacker.com/we-looked-at-every-setting-on-the-galaxy-note-10-and-he-1837450445>
 
 [Lifehacker's Complete Guide to Android](https://androidos.kinja.com)) : title[![](../Images/e2dcc498f7314a475ad7b9879a9d5584.png)](https://androidos.kinja.com)[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)Don't get overwhelmed by Android's many (many!) settings and apps. Master your Android phone or tablet with our ample collection of guides, tips, and tricks.
 

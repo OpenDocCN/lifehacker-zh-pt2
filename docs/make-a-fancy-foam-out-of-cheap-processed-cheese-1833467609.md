@@ -1,6 +1,6 @@
 # 用廉价的加工奶酪制作花式泡沫
 
-> 原文:[https://life hacker . com/make-a-fancy-foam-out-of-cheese-1833467609](https://lifehacker.com/make-a-fancy-foam-out-of-cheap-processed-cheese-1833467609)
+> 原文：<https://lifehacker.com/make-a-fancy-foam-out-of-cheap-processed-cheese-1833467609>
 
 我偶尔喜欢分子技术，但泡沫对我来说总是有点困难。在我看来，没有多少食物能从这种特殊的口感中获益。加工奶酪就是其中之一。
 

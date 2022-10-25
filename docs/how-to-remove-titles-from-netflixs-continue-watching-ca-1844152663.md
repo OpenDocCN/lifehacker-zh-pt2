@@ -1,6 +1,6 @@
 # 如何从网飞的“继续观看”类别中删除标题
 
-> 原文:[https://life hacker . com/how-to-remove-titles-from-netflixs-continue-watching-ca-1844152663](https://lifehacker.com/how-to-remove-titles-from-netflixs-continue-watching-ca-1844152663)
+> 原文：<https://lifehacker.com/how-to-remove-titles-from-netflixs-continue-watching-ca-1844152663>
 
 一旦你结束了目前的工作，总会有一个新的网飞系列开始，但有这么多选择，肯定会有一些你没有坚持下去。但是你仍然不得不看到他们在你的队列中占据空间，这很烦人。
 

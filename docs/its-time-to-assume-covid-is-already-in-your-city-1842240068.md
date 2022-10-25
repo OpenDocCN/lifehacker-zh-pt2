@@ -1,6 +1,6 @@
 # 是时候假设新冠肺炎已经在你的城市了
 
-> 原文:[https://life hacker . com/its-time-to-assume-covid-is-has-in-your-city-1842240068](https://lifehacker.com/its-time-to-assume-covid-is-already-in-your-city-1842240068)
+> 原文：<https://lifehacker.com/its-time-to-assume-covid-is-already-in-your-city-1842240068>
 
 虽然在其他国家已经记录了数千例新冠肺炎 T2 T3 病例，但是美国的大部分地区现在只是到处出现一些阳性检测。但我们也没有像其他国家那样彻底检测冠状病毒。我敢打赌，无论你在美国的哪个地方，你所在的城市都已经出现了病例。
 

@@ -1,6 +1,6 @@
 # 在家举办奥运会
 
-> 原文:[https://life hacker . com/stage-an-in-home-Olympic-games-1843732128](https://lifehacker.com/stage-an-at-home-olympic-games-1843732128)
+> 原文：<https://lifehacker.com/stage-an-at-home-olympic-games-1843732128>
 
 尽管 2020 年的奥运会被取消了，但如果你在自家后院举办奥运会，你的家人就不必在今年夏天没有激烈的体育赛事了。你不需要能够完成一个后手翻或冒险让你的孩子扔标枪来完成这个动作——只要在创造性的活动中找到一些乐趣，用你的手机作为计时器，拿一张纸来记录分数。
 

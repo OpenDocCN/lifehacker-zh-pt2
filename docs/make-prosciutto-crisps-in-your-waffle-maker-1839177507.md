@@ -1,6 +1,6 @@
 # 用你的华夫饼机制作火腿薯片
 
-> 原文:[https://life hacker . com/make-prosciutto-crips-in-your-waffle-maker-1839177507](https://lifehacker.com/make-prosciutto-crisps-in-your-waffle-maker-1839177507)
+> 原文：<https://lifehacker.com/make-prosciutto-crisps-in-your-waffle-maker-1839177507>
 
 熏火腿薯片，我亲切地称之为“猪肉片”，可以作为一种别致的小吃，highfalutin' bacon bit，或者——在我有一次喝鸡尾酒的情况下——意想不到的饮料配菜。通常像纸一样薄的切片需要在烤箱 中至少 15 分钟 [才能变得又好又脆，但是如果你有华夫饼干机，你可以大大加快这个过程。](https://skillet.lifehacker.com/make-almost-any-type-of-crisp-with-two-sheet-pans-1737700654)
 

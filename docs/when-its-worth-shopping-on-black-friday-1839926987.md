@@ -1,6 +1,6 @@
 # 当黑色星期五值得购物的时候
 
-> 原文:[https://life hacker . com/when-its-worth-shopping-on-black-Friday-1839926987](https://lifehacker.com/when-its-worth-shopping-on-black-friday-1839926987)
+> 原文：<https://lifehacker.com/when-its-worth-shopping-on-black-friday-1839926987>
 
 也许你已经开始了假日购物。11 月初，你抓住了一个光棍节的机会，或者是零售商的节前促销活动。但这一切都是黑色星期五这个大日子的前奏。
 

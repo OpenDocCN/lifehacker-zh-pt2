@@ -1,6 +1,6 @@
 # 你所在城市最酷的社区是哪里？
 
-> 原文:[https://life hacker . com/whats-your-city-1836319329](https://lifehacker.com/whats-the-coolest-neighborhood-in-your-city-1836319329)
+> 原文：<https://lifehacker.com/whats-the-coolest-neighborhood-in-your-city-1836319329>
 
 也许是每条街都有两家咖啡店的那家。也许是丑陋的公寓将要毁掉的那栋。也许是有鱼市场、一排古董店、海滨木板路或安静的住宅区街道的那家。但是在你的城市里有一个客观上最好的社区，你知道它是什么，每个不同意的人都是错的。
 

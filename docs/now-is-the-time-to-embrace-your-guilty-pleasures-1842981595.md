@@ -1,6 +1,6 @@
 # 现在是拥抱你罪恶快乐的时候了
 
-> 原文:[https://life hacker . com/now-is-the-time to-contracting-your-civil-pleasure-1842981595](https://lifehacker.com/now-is-the-time-to-embrace-your-guilty-pleasures-1842981595)
+> 原文：<https://lifehacker.com/now-is-the-time-to-embrace-your-guilty-pleasures-1842981595>
 
 如果你在隔离期间通过 [动物穿越](https://lifehacker.com/create-digital-passports-to-invite-friends-in-animal-cr-1842414730) 与朋友和家人互动，或者在你最喜欢的节目的每一季大吃大喝，你并不孤单。退回到简单的快乐似乎是对我们都在经历的压力的自然反应——根据新的研究，沉迷于这些所谓的“有罪的快乐”可以帮助我们在这个前所未有的孤立时期感到更有联系。
 

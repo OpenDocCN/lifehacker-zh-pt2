@@ -1,6 +1,6 @@
 # 我是演员蒂亚·莫瑞，这就是我为人父母的方式
 
-> 原文:[https://life hacker . com/im-employee-TIA-mowry-and-this-how-I-parent-1830747093](https://lifehacker.com/im-actress-tia-mowry-and-this-is-how-i-parent-1830747093)
+> 原文：<https://lifehacker.com/im-actress-tia-mowry-and-this-is-how-i-parent-1830747093>
 
 *蒂亚·莫瑞(Tia Mowry)是一位女演员，她因在 20 世纪 90 年代的情景喜剧* [*姐姐*](https://www.imdb.com/title/tt0108927/) *中扮演蒂亚·兰德里而广为人知。她将出演一部即将上映的网飞系列、* [*家庭团聚*](https://media.netflix.com/en/press-releases/netflix-announces-multi-generational-live-action-family-comedy-series-family-reunion-co-starring-loretta-devine-and-tia-mowry) *，以及一部标志性频道的圣诞电影、* [*一部姜饼罗曼史*](http://www.hallmarkchannel.com/a-gingerbread-romance) *。Tia 还与* [*谈论花生过敏*](https://www.talkingpeanutallergy.com) *运动合作，以提高对花生过敏患者所面临挑战的认识。*
 

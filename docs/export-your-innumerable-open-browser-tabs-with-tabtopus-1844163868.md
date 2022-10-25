@@ -1,6 +1,6 @@
 # 用“TabTopus”导出你无数打开的浏览器标签
 
-> 原文:[https://life hacker . com/export-your-numberly-open-browser-tabs-with-tabtopus-1844163868](https://lifehacker.com/export-your-innumerable-open-browser-tabs-with-tabtopus-1844163868)
+> 原文：<https://lifehacker.com/export-your-innumerable-open-browser-tabs-with-tabtopus-1844163868>
 
 如果你有在各种浏览器上打开大量标签页的习惯，那么，这里有一个好消息:你并不孤单。尽管我们尽可能保持有序，*标签蔓延*只是...发生了。有时，它不会仅仅局限于你系统上安装的浏览器之一——比如说，如果你在工作时间使用 Safari，在私人时间使用 Chrome(或其他)。
 

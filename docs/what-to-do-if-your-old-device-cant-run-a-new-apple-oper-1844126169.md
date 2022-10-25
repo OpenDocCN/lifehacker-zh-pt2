@@ -1,6 +1,6 @@
 # 如果你的旧设备不能运行新的苹果操作系统，该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-if-your-old-device-can-run-a-new-apple-oper-1844126169](https://lifehacker.com/what-to-do-if-your-old-device-cant-run-a-new-apple-oper-1844126169)
+> 原文：<https://lifehacker.com/what-to-do-if-your-old-device-cant-run-a-new-apple-oper-1844126169>
 
 苹果公司的年度操作系统更新总是令人极客庆祝的原因，但你们中的一些人没有太多理由感到兴奋。如果你心爱的老款苹果设备已经过时，这种一年一度的仪式会让你觉得是时候了。卡特琳娜是你的老款 MacBook 将要攀登的最高的山峰；去大苏尔马科斯旅行是不可能的。
 

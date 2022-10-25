@@ -1,6 +1,6 @@
 # 在一个几乎空了的蜂蜜瓶子里做一份调味汁
 
-> 原文:[https://life hacker . com/make-a-vinaigrette-in-a-a-a-almost-empty-honey-bottle-1834980660](https://lifehacker.com/make-a-vinaigrette-inside-an-almost-empty-honey-bottle-1834980660)
+> 原文：<https://lifehacker.com/make-a-vinaigrette-inside-an-almost-empty-honey-bottle-1834980660>
 
 很难从瓶子里取出最后一点蜂蜜，尤其是如果瓶子的形状像熊(有很多裂缝)的话。幸运的是，挂在瓶子里的又甜又粘的东西是简单的调味汁的完美部分。
 

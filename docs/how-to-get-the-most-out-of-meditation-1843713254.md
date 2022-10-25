@@ -1,6 +1,6 @@
 # 如何从冥想中获得最大收益
 
-> 原文:[https://life hacker . com/how-to-get-the-most-out-of-冥想-1843713254](https://lifehacker.com/how-to-get-the-most-out-of-meditation-1843713254)
+> 原文：<https://lifehacker.com/how-to-get-the-most-out-of-meditation-1843713254>
 
 如果你的冥想练习已经成为待办事项清单上的又一件事——或者如果你一直在尝试冥想，但没有发现它像你希望的那样平静——那么可能是时候重新思考你对待正念的方式了。
 

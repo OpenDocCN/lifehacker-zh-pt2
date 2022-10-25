@@ -1,6 +1,6 @@
 # 如何预测“动物穿越”流星雨到秒
 
-> 原文:[https://life hacker . com/how-to-predict-animal-crossing-流星雨-to-se-1844279683](https://lifehacker.com/how-to-predict-animal-crossing-meteor-showers-to-the-se-1844279683)
+> 原文：<https://lifehacker.com/how-to-predict-animal-crossing-meteor-showers-to-the-se-1844279683>
 
 在*动物穿越:新视野*中最容易预测的事情之一就是天气，，我不只是在说*(这里是你的岛屿名称)什么时候会是一个可爱的晴天。*通过一种全新的数据挖掘技术，你将能够准确地知道彩虹和北极光会在什么时候出现——甚至流星雨会在什么时候出现。事实上，你可以预测他们的流星*到第二个*，避免你浪费无数个晚上盯着没有生命的天空。
 

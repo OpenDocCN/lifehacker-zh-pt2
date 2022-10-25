@@ -1,6 +1,6 @@
 # 现在是制作鸡尾酒糖浆的好时机
 
-> 原文:[https://life hacker . com/now-is-a-good-time to-make-bunch-of-cocktail-糖浆-1842706064](https://lifehacker.com/now-is-a-good-time-to-make-a-bunch-of-cocktail-syrups-1842706064)
+> 原文：<https://lifehacker.com/now-is-a-good-time-to-make-a-bunch-of-cocktail-syrups-1842706064>
 
 在家整理需要一些配件。除了调酒器、搅拌杯、勺子等。，没有苦味酒、柑橘和糖浆的家庭酒吧是不完整的。前两种是相当简单的购买方式，但是在家制作糖浆非常容易，也非常划算。它们还几乎可以无限重复，这使它们成为一个不错的晚上/下午/周末项目，取决于你有多少空闲时间，以及你想要的各种口味。
 

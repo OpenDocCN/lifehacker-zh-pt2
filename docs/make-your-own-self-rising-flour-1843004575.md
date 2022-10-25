@@ -1,6 +1,6 @@
 # 自己制作自发粉
 
-> 原文:[https://life hacker . com/make-your-own-self-rising-flour-1843004575](https://lifehacker.com/make-your-own-self-rising-flour-1843004575)
+> 原文：<https://lifehacker.com/make-your-own-self-rising-flour-1843004575>
 
 面粉的普遍短缺造成了这样一种局面，我们很感激能得到我们能得到的任何东西。全麦面粉、通用面粉、蛋糕面粉，不管空架子上剩下什么袋子，我们可能已经拿走了，并且很高兴我们可以得到任何东西。
 

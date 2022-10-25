@@ -1,6 +1,6 @@
 # 如何打造便宜的空气净化器
 
-> 原文:[https://life hacker . com/how-to-build-a 廉价空气净化器-1830541783](https://lifehacker.com/how-to-build-a-cheap-air-purifier-1830541783)
+> 原文：<https://lifehacker.com/how-to-build-a-cheap-air-purifier-1830541783>
 
 一个高质量的 HEPA 空气净化器可以消除房间里几乎所有的烟雾、灰尘或过敏原颗粒，但一个 30 美元的装置可以消除大约 90%。如果你需要廉价清洁室内空气，值得一试。
 

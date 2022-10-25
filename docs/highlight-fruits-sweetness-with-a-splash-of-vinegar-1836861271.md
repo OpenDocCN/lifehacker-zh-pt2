@@ -1,6 +1,6 @@
 # 用一点醋突出水果的甜味
 
-> 原文:[https://life hacker . com/highlight-fruits-sweet-with-a-splash-of-醋-1836861271](https://lifehacker.com/highlight-fruits-sweetness-with-a-splash-of-vinegar-1836861271)
+> 原文：<https://lifehacker.com/highlight-fruits-sweetness-with-a-splash-of-vinegar-1836861271>
 
 对比是一件很重要的事情，无论是食物还是生活。一个人如何能欣赏快乐而不悲伤，高潮而不低落，甜蜜而不酸涩？这就是说我喜欢把醋放在我的水果上，我敦促你也这样做。
 

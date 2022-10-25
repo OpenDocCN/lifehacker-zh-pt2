@@ -1,6 +1,6 @@
 # 总是带着啤酒疯子旅行
 
-> 原文:[https://jalopnik . com/always-travel-with-beer-koo zies-1841067705](https://jalopnik.com/always-travel-with-beer-koozies-1841067705)
+> 原文：<https://jalopnik.com/always-travel-with-beer-koozies-1841067705>
 
 Beer koozies，那些可以装 12 盎司铝罐的小泡沫套，当你在沙漠中喝酒时，可以很好地保持你的饮料凉爽。(或者当你在雪地里喝水的时候，让你的手保持温暖！)但它们也是您旅途中出色的小保护者和组织者。
 

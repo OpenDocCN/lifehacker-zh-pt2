@@ -1,6 +1,6 @@
 # 如何直播今晚的民主党总统候选人辩论
 
-> 原文:[https://life hacker . com/how-to-stream-tonights-democratic-president-debate-1841790691](https://lifehacker.com/how-to-stream-tonights-democratic-presidential-debate-1841790691)
+> 原文：<https://lifehacker.com/how-to-stream-tonights-democratic-presidential-debate-1841790691>
 
 第九次民主党总统候选人辩论将于今晚在内华达州举行，这是内华达州党团会议的三天前。六名候选人有资格登上舞台:伊丽莎白·沃伦、伯尼·桑德斯、艾米·克洛布查尔、乔·拜登、皮特·布蒂吉格和迈克·彭博，他们在周二 公布的民意调查中获得了 19%的支持率，刚刚获得了辩论资格。汤姆·斯泰尔和图尔西·加巴德没有晋级。
 

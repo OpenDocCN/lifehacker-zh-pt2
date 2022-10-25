@@ -1,6 +1,6 @@
 # 我如何使用苹果的“查找我的”锁定丢失的 iPad？
 
-> 原文:[https://life hacker . com/how-to-access-a-lost-a-ipad-that-locked-with-apple-find-1839332161](https://lifehacker.com/how-to-access-a-lost-ipad-thats-locked-with-apples-find-1839332161)
+> 原文：<https://lifehacker.com/how-to-access-a-lost-ipad-thats-locked-with-apples-find-1839332161>
 
 苹果的“查找我的”功能是找回丢失或被盗设备的有力工具。如果你已经购买或以其他合法方式获得了一个仍然绑定在另一个人账户上的二手设备，这也可能是一件令人头疼的事情。在本周的 [**Tech 911**](https://lifehacker.com/c/tech-911) 栏目中，我们要解决的是后者。
 

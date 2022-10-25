@@ -1,6 +1,6 @@
 # 永远不要试图在洪水中开车
 
-> 原文:[https://life hacker . com/never-try-to-drive-through-a-flood-1836255457](https://lifehacker.com/never-try-to-drive-through-a-flood-1836255457)
+> 原文：<https://lifehacker.com/never-try-to-drive-through-a-flood-1836255457>
 
 现在是飓风季节，墨西哥湾正在酝酿一场奇怪的风暴。风暴 [正朝着路易斯安那](https://earther.gizmodo.com/wild-weather-in-the-midwest-could-spawn-a-tropical-stor-1836211905) 前进，路易斯安那本周已经与洪水搏斗，所以是时候我们冷静地发出以下要求了:
 

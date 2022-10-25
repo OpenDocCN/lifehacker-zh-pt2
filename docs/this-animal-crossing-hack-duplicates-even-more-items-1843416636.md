@@ -1,6 +1,6 @@
 # 这个动物穿越黑客复制了更多的物品
 
-> 原文:[https://life hacker . com/this-animal-crossing-hack-duplicates-even-more-items-1843416636](https://lifehacker.com/this-animal-crossing-hack-duplicates-even-more-items-1843416636)
+> 原文：<https://lifehacker.com/this-animal-crossing-hack-duplicates-even-more-items-1843416636>
 
 好了，已经一周了，任天堂还没有干掉 [最后一个*动物穿越:新视野*](https://lifehacker.com/duplicate-all-your-items-in-animal-crossing-because-no-1843260796) hack 允许你免费复制某些物品。万一它真的出现了，或者如果你想要另一种方法，让你可以复制你拥有的每一个物品——小故障的圣杯——另一种方法出现了。下面是怎么做的。
 

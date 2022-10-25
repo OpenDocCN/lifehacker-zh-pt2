@@ -1,6 +1,6 @@
 # 如何从 Kindle 中永久删除图书
 
-> 原文:[https://life hacker . com/how-to-permanent-delete-books-from-your-kindle-1843967290](https://lifehacker.com/how-to-permanently-delete-books-from-your-kindle-1843967290)
+> 原文：<https://lifehacker.com/how-to-permanently-delete-books-from-your-kindle-1843967290>
 
 从 Kindle 上移除你已经读完的书一直都是可能的，但是有一个问题。您从设备中移除的任何内容都会保留在您的帐户中。它并没有永远消失，只是从你正在使用的 Kindle 设备中消失了。
 

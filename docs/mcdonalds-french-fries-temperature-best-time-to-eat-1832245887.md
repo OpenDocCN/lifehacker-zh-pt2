@@ -1,6 +1,6 @@
 # 在麦当劳的薯条变得不可食用之前，你有这几分钟的时间来吃掉它们
 
-> 原文:[https://the take out . com/麦当劳-薯条-温度-最佳食用时间-1832245887](https://thetakeout.com/mcdonalds-french-fries-temperature-best-time-to-eat-1832245887)
+> 原文：<https://thetakeout.com/mcdonalds-french-fries-temperature-best-time-to-eat-1832245887>
 
 罗伯特.弗罗斯特明白了。他明白生活的乐趣——不，生活本身——是多么短暂。
 

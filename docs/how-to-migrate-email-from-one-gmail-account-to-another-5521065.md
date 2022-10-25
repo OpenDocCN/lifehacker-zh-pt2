@@ -1,6 +1,6 @@
 # 如何将邮件从一个 Gmail 帐户迁移到另一个帐户
 
-> 原文:[https://life hacker . com/how-to-migrate-email-from-one-Gmail-account-to-another-5521065](https://lifehacker.com/how-to-migrate-email-from-one-gmail-account-to-another-5521065)
+> 原文：<https://lifehacker.com/how-to-migrate-email-from-one-gmail-account-to-another-5521065>
 
 无论你是将 [从工作邮箱迁移到私人邮箱](https://lifehacker.com/how-can-i-save-all-my-emails-for-a-personal-backup-5990556) ，还是只是不喜欢你选择的用户名，想换一个听起来更专业的用户名，你并不是唯一一个在寻找将所有 Gmail 数据从一个地方转移到另一个地方的人。
 

@@ -1,6 +1,6 @@
 # 如何摆脱绝望的财务困境
 
-> 原文:[https://life hacker . com/how-to-claw-you-way-out-of-a-financial-pit-1837482515](https://lifehacker.com/how-to-claw-your-way-out-of-a-financial-pit-of-despair-1837482515)
+> 原文：<https://lifehacker.com/how-to-claw-your-way-out-of-a-financial-pit-of-despair-1837482515>
 
 当你决定朝着一个大的财务目标努力时，一开始就变得有动力是很自然的。你很兴奋开始切东西。当你接近金钱马拉松的终点时，你会重新振作起来，开始思考目标后生活的无限可能性。但是中间那个看似无穷无尽的部分呢？你如何保持动力来不断削弱你的进步？
 

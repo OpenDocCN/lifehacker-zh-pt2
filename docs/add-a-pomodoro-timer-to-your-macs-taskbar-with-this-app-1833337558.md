@@ -1,6 +1,6 @@
 # 使用此应用程序将番茄计时器添加到 Mac 的任务栏中
 
-> 原文:[https://life hacker . com/add-a-pomodoro-timer-to-your-Macs-taskbar-with the-app-1833337558](https://lifehacker.com/add-a-pomodoro-timer-to-your-macs-taskbar-with-this-app-1833337558)
+> 原文：<https://lifehacker.com/add-a-pomodoro-timer-to-your-macs-taskbar-with-this-app-1833337558>
 
 如果你正在寻找更高效的方法，番茄工作法是一个很好的开始。这项技术是由开发者 Francesco Cirillo 在 20 世纪 90 年代早期开发的，它包括将大任务分解成短的定时间隔。西里洛称这些间隔为番茄，部分原因是他用一个看起来像西红柿的厨房计时器来计时。
 

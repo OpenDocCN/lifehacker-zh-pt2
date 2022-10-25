@@ -1,6 +1,6 @@
 # 如何关闭 Alexa 令人毛骨悚然的“耳语模式”
 
-> 原文:[https://life hacker . com/how-to-turn-off-alexas-creepy-whisper-mode-1844908094](https://lifehacker.com/how-to-turn-off-alexas-creepy-whisper-mode-1844908094)
+> 原文：<https://lifehacker.com/how-to-turn-off-alexas-creepy-whisper-mode-1844908094>
 
 我爱我的智能音箱——就像一个人爱一件隐私窃取技术一样，我想它的存在只是为了收集关于你的信息——但这并不意味着我不觉得它有很多令人毛骨悚然的东西，以一种反乌托邦的方式。我发现 Alexa 最令人毛骨悚然的一点是，如果你对它耳语一个命令，它会小声回应。幸运的是，你可以很容易地关闭这个可怕的功能。
 

@@ -1,6 +1,6 @@
 # 你应该在 7 月 4 日这天腌制你的肉
 
-> 原文:[https://life hacker . com/you-should-sous-vide-this-7 月 4 日-1836021181](https://lifehacker.com/you-should-sous-vide-this-4th-of-july-1836021181)
+> 原文：<https://lifehacker.com/you-should-sous-vide-this-4th-of-july-1836021181>
 
 我只是一个卑微的公寓租户，因此，我没有一个院子，也没有一个烤架放在院子里。这意味着我所有的烧烤都是在别人的院子里完成的，这很不方便，特别是如果我想在以烧烤为主的假日周末娱乐的话。幸运的是，我知道如何在没有夏季火炉的情况下做出美味的食物。
 

@@ -1,6 +1,6 @@
 # 利用集体休息时间提高你在家工作的士气
 
-> 原文:[https://life hacker . com/improve-your-work-home-more-with-group-slack-bre-1842880766](https://lifehacker.com/improve-your-work-from-home-morale-with-group-slack-bre-1842880766)
+> 原文：<https://lifehacker.com/improve-your-work-from-home-morale-with-group-slack-bre-1842880766>
 
 在家工作的困难之一——我们很多人第一次做的事情——是持续的压力，要*在场*。如果你不能给出答案或参与讨论，你会有一种挥之不去的负罪感。相反，当人们不回应你时，你很容易变得烦躁。
 

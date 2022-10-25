@@ -1,6 +1,6 @@
 # 不要拆掉切斯特顿的篱笆
 
-> 原文:[https://life hacker . com/don-tear-down-Chester tons-fence-1839669911](https://lifehacker.com/dont-tear-down-chestertons-fence-1839669911)
+> 原文：<https://lifehacker.com/dont-tear-down-chestertons-fence-1839669911>
 
 在好莱坞工作室有一个非常愚蠢的现象。当一个新的工作室主管取代了一个旧的，他们扔掉所有的老电影项目的发展，他们开始新的。你已经在你自己的行业中看到了这种情况( [，我也看到了](https://www.vice.com/en_us/article/wjwagz/turns-out-blogging-is-hard) )，因为这是新老板做的事情。他们改变了一切。这通常是让新人负责的*点*。当它正常工作时，我们称之为改革，当它不正常时，我们称之为灾难。有一种方法可以确保你做得正确。
 

@@ -1,6 +1,6 @@
 # 你能在柠檬上戳一个洞来榨汁吗？
 
-> 原文:[https://life hacker . com/can-you-juice-a-lemon-by-polking-a-hole-in-it-1843758834](https://lifehacker.com/can-you-juice-a-lemon-by-poking-a-hole-in-it-1843758834)
+> 原文：<https://lifehacker.com/can-you-juice-a-lemon-by-poking-a-hole-in-it-1843758834>
 
 似乎这些天每个人都在接受新的挑战。所以当我们看到抖音 上的 [#lemonjuicechallenge，我们决定搭上这股潮流。](https://www.tiktok.com/@jacquibaihn/video/6813240299620470022?referer_url=https%3A%2F%2Fwww.broadsheet.com.au%2Fnational%2Ffood-and-drink%2Farticle%2Flemon-juice-hack-deserves-go-viral&referer_video_id=6813240299620470022)
 

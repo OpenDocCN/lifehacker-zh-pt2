@@ -1,6 +1,6 @@
 # 想象你的墙壁用这些应用程序涂上了不同的颜色
 
-> 原文:[https://life hacker . com/visualize-your-wall-painted-a-different-color-with the-1833360173](https://lifehacker.com/visualize-your-wall-painted-a-different-color-with-thes-1833360173)
+> 原文：<https://lifehacker.com/visualize-your-wall-painted-a-different-color-with-thes-1833360173>
 
 粉刷你的墙壁绝对是一项任务，但不像弄清楚你想用什么颜色的油漆那么重要。
 

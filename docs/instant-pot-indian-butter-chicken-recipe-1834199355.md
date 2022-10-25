@@ -1,6 +1,6 @@
 # 速食锅是用来烹饪印度黄油鸡的
 
-> 原文:[https://the take out . com/instant-pot-Indian-butter-chicken-recipe-1834199355](https://thetakeout.com/instant-pot-indian-butter-chicken-recipe-1834199355)
+> 原文：<https://thetakeout.com/instant-pot-indian-butter-chicken-recipe-1834199355>
 
 我不是勒德分子，但当速溶咖啡第一次兴起时，我把自己算作怀疑者之一。我见过太多的时尚电器在辉煌中到来，却以失败告终，最终被装进了一个善意的盒子里。就连 [作为狂热粉丝的](https://thetakeout.com/5-foods-i-cook-in-my-instant-pot-1828235185?_ga=2.173969123.1104587947.1555868105-1235910833.1537835469) 做出的即食锅出来被车轮/面包片级别的大发明，我都捧出来了。有什么是我信赖的 7 夸脱 Le Creuset 做不到的？
 

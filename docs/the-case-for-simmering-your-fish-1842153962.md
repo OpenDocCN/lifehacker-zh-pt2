@@ -1,6 +1,6 @@
 # 煨鱼的理由
 
-> 原文:[https://life hacker . com/the-case-for-smoking-your-fish-1842153962](https://lifehacker.com/the-case-for-simmering-your-fish-1842153962)
+> 原文：<https://lifehacker.com/the-case-for-simmering-your-fish-1842153962>
 
 作为一名食谱作家(和食客)，我可能会过度专注于开发超级美味、浓郁的褐色菜肴。通过烤焦、焦糖化和其他非酶褐变过程*产生的味道是*美味，但它们不是让东西变得美味的唯一方法。有时候，采取一种更友好、更温和的方式会更好，尤其是在你做鱼的时候。
 

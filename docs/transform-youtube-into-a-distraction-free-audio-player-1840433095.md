@@ -1,6 +1,6 @@
 # 用这个扩展把 YouTube 变成一个不受干扰的音频播放器
 
-> 原文:[https://life hacker . com/transform-YouTube-into-a-distraction-free-audio-player-1840433095](https://lifehacker.com/transform-youtube-into-a-distraction-free-audio-player-1840433095)
+> 原文：<https://lifehacker.com/transform-youtube-into-a-distraction-free-audio-player-1840433095>
 
 YouTube 是一个寻找音乐的好地方。既然是视频网站；然而，当你真的只是在寻找一些曲调时，音乐往往会伴随着视频，这会分散你的注意力。 [音乐模式是 Chrome 的扩展](https://chrome.google.com/webstore/detail/music-mode-for-youtube/jeieekjcmkhfffleemgbiooooockfmha?ref=producthunt) 可以帮忙。
 

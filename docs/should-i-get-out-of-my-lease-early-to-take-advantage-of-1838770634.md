@@ -1,6 +1,6 @@
 # 我是否应该提前解除租约，以利用汽车销售缓慢的机会？
 
-> 原文:[https://jalopnik . com/should-I-get-out-of-my-lease-early-to-advantage-of-1838770634](https://jalopnik.com/should-i-get-out-of-my-lease-early-to-take-advantage-of-1838770634)
+> 原文：<https://jalopnik.com/should-i-get-out-of-my-lease-early-to-take-advantage-of-1838770634>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。我决定挑几个问题，试着帮帮大家。本周，我们将讨论提前退租以应对缓慢的汽车销售，依靠电脑进行定期维护，以及如果你只需要乘坐六个月，是购买还是租赁更好。
 

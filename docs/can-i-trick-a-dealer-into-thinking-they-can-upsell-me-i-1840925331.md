@@ -1,6 +1,6 @@
 # 我能否欺骗经销商，让他们认为可以在财务办公室向我追加销售，以获得更好的汽车交易？
 
-> 原文:[https://jalopnik . com/can-I-trick-a-dealer-into thinking-they-can-up sell-me-I-1840925331](https://jalopnik.com/can-i-trick-a-dealer-into-thinking-they-can-upsell-me-i-1840925331)
+> 原文：<https://jalopnik.com/can-i-trick-a-dealer-into-thinking-they-can-upsell-me-i-1840925331>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。我决定挑几个问题，试着帮帮大家。本周，我们将讨论一个有趣的策略来达成汽车交易，试驾一辆经济实惠的高性能汽车，并检查廉价的乘坐体验。
 

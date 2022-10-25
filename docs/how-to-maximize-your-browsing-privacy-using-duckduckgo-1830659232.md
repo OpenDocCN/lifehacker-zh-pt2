@@ -1,6 +1,6 @@
 # 如何使用 DuckDuckGo 最大化你的浏览隐私
 
-> 原文:[https://life hacker . com/how-to-maximize-your-browsing-privacy-using-duck duck go-1830659232](https://lifehacker.com/how-to-maximize-your-browsing-privacy-using-duckduckgo-1830659232)
+> 原文：<https://lifehacker.com/how-to-maximize-your-browsing-privacy-using-duckduckgo-1830659232>
 
 感觉就像每天，我看到另一个人意识到他们在网上的隐私是多么少，然后说“够了”对我们与科技公司的关系感到不安，他们是 [退出脸书](https://lifehacker.com/how-to-delete-your-facebook-account-a-checklist-1829436824) 和 Twitter， [避开亚马逊，](https://lifehacker.com/how-to-stop-giving-amazon-your-money-1823468097) 和 [放弃谷歌。](https://lifehacker.com/the-comprehensive-guide-to-quitting-google-1830001964#_ga=2.114842702.87543563.1543241483-3846207152.1521480874)
 

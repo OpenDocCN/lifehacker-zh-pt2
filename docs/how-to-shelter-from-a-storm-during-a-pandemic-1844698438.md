@@ -1,6 +1,6 @@
 # 如何在疫情躲避暴风雨
 
-> 原文:[https://life hacker . com/how-to-shelted from-a-疫情风暴-1844698438](https://lifehacker.com/how-to-shelter-from-a-storm-during-a-pandemic-1844698438)
+> 原文：<https://lifehacker.com/how-to-shelter-from-a-storm-during-a-pandemic-1844698438>
 
 发生在全球疫情中的 [【极度活跃】飓风季节](https://www.noaa.gov/media-release/extremely-active-hurricane-season-possible-for-atlantic-basin) 听起来像是 20 世纪 90 年代末灾难电影的情节，但现在是 2020 年，所以这是我们当前的现实。本月早些时候，纽约市和东海岸的其他地方尝到了双重灾难的滋味，当时热带风暴“T4”横扫了几个州，造成至少 9 人死亡，数百万人断电。
 

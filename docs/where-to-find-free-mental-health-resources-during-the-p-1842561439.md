@@ -1,6 +1,6 @@
 # 疫情期间在哪里可以找到免费的心理健康资源
 
-> 原文:[https://life hacker . com/where-to-find-free-mental-health-resources-in-p-1842561439](https://lifehacker.com/where-to-find-free-mental-health-resources-during-the-p-1842561439)
+> 原文：<https://lifehacker.com/where-to-find-free-mental-health-resources-during-the-p-1842561439>
 
 如果你觉得自己在和心理健康做斗争，你并不孤单。我们中的许多人都在应对深刻的不确定性和意想不到的压力，无论我们是担心我们的健康、我们的财务、我们的家庭，还是我们将如何度过下个月的物理距离和自我隔离。
 

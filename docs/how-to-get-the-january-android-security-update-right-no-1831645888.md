@@ -1,6 +1,6 @@
 # 如何立即获得一月份的 Android 安全更新
 
-> 原文:[https://life hacker . com/how-to-get-the-January-Android-security-update-right-no-1831645888](https://lifehacker.com/how-to-get-the-january-android-security-update-right-no-1831645888)
+> 原文：<https://lifehacker.com/how-to-get-the-january-android-security-update-right-no-1831645888>
 
 谷歌 2019 年 1 月 月度安卓派 [安全更新现已发布。与之前的更新一样，它修复了 Android 操作系统中许多可能被黑客和恶意程序利用的潜在安全缺陷。虽然这些修复适用于所有 Android Pie 设备，但一月份的更新也有](https://source.android.com/security/bulletin/2019-01-01) [Pixel 3 和 3 XL 特定的修复](https://source.android.com/security/bulletin/pixel/2019-01-01) ，据报道，这将为视频录制带来更好的音频质量。
 

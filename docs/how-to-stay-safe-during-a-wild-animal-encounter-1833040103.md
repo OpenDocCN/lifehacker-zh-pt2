@@ -1,6 +1,6 @@
 # 如何在遭遇野生动物时保持安全
 
-> 原文:[https://life hacker . com/how-to-stay-safe-in-a-a-wild-animal-encounter-1833040103](https://lifehacker.com/how-to-stay-safe-during-a-wild-animal-encounter-1833040103)
+> 原文：<https://lifehacker.com/how-to-stay-safe-during-a-wild-animal-encounter-1833040103>
 
 通常，当我深夜回家时，我会留意令人毛骨悚然的人，但昨晚我在街上被一只郊狼跟踪。我不知道该怎么办。
 

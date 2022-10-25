@@ -1,6 +1,6 @@
 # 在这段艰难的日子里，你应该得到比鸡胸肉更好的东西
 
-> 原文:[https://life hacker . com/you-worth-between-than-chicken-breads-tr-1843022308](https://lifehacker.com/you-deserve-better-than-chicken-breasts-during-these-tr-1843022308)
+> 原文：<https://lifehacker.com/you-deserve-better-than-chicken-breasts-during-these-tr-1843022308>
 
 我已经有 10 天没去过杂货店了，但上次去的时候，我不禁注意到那里明显没有去骨去皮的鸡胸肉。事实上，所有干净、无骨的肉块已经很少了，虽然我理解现在需要简单，但现在不是吃无聊肉的时候。
 

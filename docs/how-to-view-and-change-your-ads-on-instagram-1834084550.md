@@ -1,6 +1,6 @@
 # 如何定制你在 Instagram 上看到的广告
 
-> 原文:[https://life hacker . com/how-to-view-and-change-your-ads-on-insta gram-1834084550](https://lifehacker.com/how-to-view-and-change-your-ads-on-instagram-1834084550)
+> 原文：<https://lifehacker.com/how-to-view-and-change-your-ads-on-instagram-1834084550>
 
 在我的 Instagram feed 上，我看到很多面膜和其他抗衰老护肤品的定向广告——我承认，我经常购买这两种产品。
 

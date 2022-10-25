@@ -1,6 +1,6 @@
 # 我是如何克服害羞，拥抱与陌生人交谈的
 
-> 原文:[https://life hacker . com/how-I-get-over-be-shy-and-embracted-talking-to-people-1692295385](https://lifehacker.com/how-i-got-over-being-shy-and-embraced-talking-to-people-1692295385)
+> 原文：<https://lifehacker.com/how-i-got-over-being-shy-and-embraced-talking-to-people-1692295385>
 
 有一次，我独自出现在一个聚会上，在我的朋友到达之前。我没有去交际，而是躲在浴室里消磨时间，避免和不认识的人说话。对于像我这样害羞的人来说，社交——尤其是与陌生人的社交——可能是一种令人反胃、充满焦虑的经历。但经过一些努力，我能够控制住自己，并能自如地与人交谈。
 

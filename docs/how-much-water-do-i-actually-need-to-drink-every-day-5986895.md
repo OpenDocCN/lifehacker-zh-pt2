@@ -1,6 +1,6 @@
 # 我每天实际需要喝多少水？
 
-> 原文:[https://life hacker . com/how-do-much-do-much-much-much-much-much-much-much-much-much-much-much-much-much-much-much-much-much-much-much-much-much-much-much-much-much-much-much-much-much-much-much-much-much-much-much-much-much-much-much-much-much-much-much-much-much-much-much-much-much-much-much-](https://lifehacker.com/how-much-water-do-i-actually-need-to-drink-every-day-5986895)
+> 原文：<https://lifehacker.com/how-much-water-do-i-actually-need-to-drink-every-day-5986895>
 
 水已经不仅仅是对我们有好处:可重复使用的水瓶已经成为一种声明，向世界表明我们的健康和环境意识。我们如此习惯于不停地喝水，以至于有些人如果身上没有水，就会感到恐慌。但是我们每天开车实际上需要多少水呢？我们采访了一位医生来寻找答案。
 

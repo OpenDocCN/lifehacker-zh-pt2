@@ -1,6 +1,6 @@
 # 使用此浏览器扩展预览您的 Google 搜索结果
 
-> 原文:[https://life hacker . com/preview-your-Google-search-results-using-this-browser-e-1833693596](https://lifehacker.com/preview-your-google-search-results-using-this-browser-e-1833693596)
+> 原文：<https://lifehacker.com/preview-your-google-search-results-using-this-browser-e-1833693596>
 
 毫无疑问，我的谷歌搜索结果中的第一个链接从来都不是我真正在寻找的东西。因此，我通常的做法是在浏览器上打开所有看起来可能很合适的搜索结果，然后逐一浏览。根据我搜索的内容，可能会有很多。
 

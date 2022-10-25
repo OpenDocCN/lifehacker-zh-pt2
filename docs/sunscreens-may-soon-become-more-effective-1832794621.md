@@ -1,6 +1,6 @@
 # 防晒霜可能很快会变得更有效
 
-> 原文:[https://life hacker . com/sunscreens-may-soon-be-more-effective-1832794621](https://lifehacker.com/sunscreens-may-soon-become-more-effective-1832794621)
+> 原文：<https://lifehacker.com/sunscreens-may-soon-become-more-effective-1832794621>
 
 根据 FDA 今天宣布的一项拟议规则，防晒霜将很快获得新的标签，其中一些将退出市场。这些变化也意味着更容易找到抵御 UVA 射线(造成伤害但不会晒伤的射线)的防晒霜。
 

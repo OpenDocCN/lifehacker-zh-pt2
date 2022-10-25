@@ -1,6 +1,6 @@
 # 所有女性需要的医学筛查，以及何时需要
 
-> 原文:[https://life hacker . com/the-medical-screenings-all-women-need-and-when-1779451699](https://lifehacker.com/the-medical-screenings-all-women-need-and-when-1779451699)
+> 原文：<https://lifehacker.com/the-medical-screenings-all-women-need-and-when-1779451699>
 
 无论医学让我们以多快的速度走向治疗，预防医学将永远是保持健康最有效和最便宜的方法。在本帖中，我们将介绍一些常见的女性健康筛查测试，你应该在什么时候做，当你走进去的时候你会做什么。(如果你正在寻找男性同样的信息， [我们已经在这里](https://vitals.lifehacker.com/the-medical-screenings-all-men-need-and-when-1779846310) 讨论过了。)
 

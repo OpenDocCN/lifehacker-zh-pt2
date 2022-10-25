@@ -1,6 +1,6 @@
 # 大黄伏特加是你能用搅拌机做出的最好的东西
 
-> 原文:[https://life hacker . com/大黄-伏特加是你能做出的最好的东西 1836196220](https://lifehacker.com/rhubarb-vodka-is-the-best-thing-you-can-make-with-your-1836196220)
+> 原文：<https://lifehacker.com/rhubarb-vodka-is-the-best-thing-you-can-make-with-your-1836196220>
 
 俄勒冈州波特兰市有一家 [俄罗斯餐厅](https://kachkapdx.com) ，这里的伏特加让人难以置信。这既是一件非常好的事情，也是一件非常坏的事情。口味从山葵到甜豆，清新纯净，冰镇伏特加以克为单位。这两个因素结合在一起，很难判断你到底喝了多少，特别是如果你从来没有记住伏特加的密度(顺便说一下，密度是 970 公斤/米)。
 

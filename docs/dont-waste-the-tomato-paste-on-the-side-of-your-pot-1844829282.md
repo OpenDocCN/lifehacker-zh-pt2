@@ -1,6 +1,6 @@
 # 不要浪费你锅边的番茄酱
 
-> 原文:[https://life hacker . com/don-t-waste-the-side-of-your-pot-1844829282](https://lifehacker.com/dont-waste-the-tomato-paste-on-the-side-of-your-pot-1844829282)
+> 原文：<https://lifehacker.com/dont-waste-the-tomato-paste-on-the-side-of-your-pot-1844829282>
 
 任何做过番茄意大利面酱的人可能都注意到，当番茄酱被稀释后，会在锅壁上留下厚厚的深红色痕迹。这种粘稠的残渣是(免费的！奖金！)番茄酱，而且是任何情况下都不应该抛弃的。
 

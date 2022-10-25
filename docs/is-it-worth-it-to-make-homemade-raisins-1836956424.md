@@ -1,6 +1,6 @@
 # 葡萄干:值得自己晒干葡萄吗？
 
-> 原文:[https://the take out . com/is-it-worth-it-to-make-made-raisins-1836956424](https://thetakeout.com/is-it-worth-it-to-make-homemade-raisins-1836956424)
+> 原文：<https://thetakeout.com/is-it-worth-it-to-make-homemade-raisins-1836956424>
 
 葡萄干曾经在社会上享有很高的地位，这可以从它们在古代体育赛事中作为奖品分发的事实中得到证明。但是它们在我们现在的食物中占据了一个奇怪的位置。它们是小吃还是配料？美味的款待还是废弃的午餐盒？ [还有千禧一代是不是在杀他们？](https://www.vox.com/the-goods/2018/9/26/17901510/sun-maid-raisins-taste-of-nostalgia) 今年早些时候，Sun-Maid 非常依赖怀旧营销来问我们:嘿，还记得葡萄干吗？
 

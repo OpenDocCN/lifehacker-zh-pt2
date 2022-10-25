@@ -1,6 +1,6 @@
 # ring s hidden data let us map amazons sprawling home su 1840312279
 
-> 原文:[https://gizmodo . com/ring-s-hidden-data-let-us-map-amazons-蔓生-home-su-1840312279](https://gizmodo.com/ring-s-hidden-data-let-us-map-amazons-sprawling-home-su-1840312279)
+> 原文：<https://gizmodo.com/ring-s-hidden-data-let-us-map-amazons-sprawling-home-su-1840312279>
 
 今年夏天，当记者们竞相曝光 ring 执法合同的新细节时，这家去年被亚马逊以 10 亿美元高价收购的家庭安全公司，努力强调其承诺为用户提供的隐私。
 

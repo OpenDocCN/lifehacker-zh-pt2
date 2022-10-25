@@ -1,6 +1,6 @@
 # 处理你孩子晚上情绪崩溃的指南
 
-> 原文:[https://life hacker . com/a-guide-to-handling-your-toddle-evening-meltdown-1833756746](https://lifehacker.com/a-guide-to-handling-your-toddlers-evening-meltdown-1833756746)
+> 原文：<https://lifehacker.com/a-guide-to-handling-your-toddlers-evening-meltdown-1833756746>
 
 像许多有小孩的家庭一样，我们有一个“魔法时间”下午 6 点左右，蹒跚学步的孩子使出浑身解数，5 岁的孩子换上了涡轮增压器，我丈夫很沮丧，我完全没气了。
 

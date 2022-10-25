@@ -1,6 +1,6 @@
 # 现在做一件事
 
-> 原文:[https://lifehacker.com/do-one-thing-now-1830771564](https://lifehacker.com/do-one-thing-now-1830771564)
+> 原文：<https://lifehacker.com/do-one-thing-now-1830771564>
 
 不是太病态，但我们都会死。我们中的一些人比预期的要早，正如艾米丽·马洛尼在《皮夹》中提醒我们的那样。
 

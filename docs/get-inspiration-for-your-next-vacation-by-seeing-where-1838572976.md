@@ -1,6 +1,6 @@
 # 看看你可以直飞哪里，为你的下一个假期寻找灵感
 
-> 原文:[https://life hacker . com/get-inspiration-for-your next-vacation by-seeing-where-1838572976](https://lifehacker.com/get-inspiration-for-your-next-vacation-by-seeing-where-1838572976)
+> 原文：<https://lifehacker.com/get-inspiration-for-your-next-vacation-by-seeing-where-1838572976>
 
 谈到飞行，没有什么比直飞更好的了。直飞意味着你不太可能丢失行李，也不太可能被困在你转机的那个随机机场。虽然我肯定会故意选择更贵或更不方便的航班，因为它是直达的，但我从未考虑过仅仅因为提供了直达航班就飞往某个特定的目的地，但这是一个值得考虑的想法。
 

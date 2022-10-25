@@ -1,6 +1,6 @@
 # 如何延长新任天堂 Switch 或 Switch Lite 的电池寿命
 
-> 原文:[https://life hacker . com/how-to-extend-your-new-Nintendo-switch-or-switch-lites-1840660953](https://lifehacker.com/how-to-extend-your-new-nintendo-switch-or-switch-lites-1840660953)
+> 原文：<https://lifehacker.com/how-to-extend-your-new-nintendo-switch-or-switch-lites-1840660953>
 
 任天堂 Switch 可能不如其竞争对手强大，但该系统仍有许多令人喜爱的地方，包括跨越多代游戏机的庞大游戏库，以及在电视游戏和手持游戏之间无缝切换的能力。
 

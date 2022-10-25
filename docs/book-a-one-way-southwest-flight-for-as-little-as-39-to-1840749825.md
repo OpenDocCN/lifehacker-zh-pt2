@@ -1,6 +1,6 @@
 # 今天预订西南航空单程航班，仅需 39 美元
 
-> 原文:[https://life hacker . com/book-a-one-way-south west-flight for-little-as-as-39 转 1840749825](https://lifehacker.com/book-a-one-way-southwest-flight-for-as-little-as-39-to-1840749825)
+> 原文：<https://lifehacker.com/book-a-one-way-southwest-flight-for-as-little-as-39-to-1840749825>
 
 如果旅行是你 2020 年上半年的计划，那么你可能想看看西南航空 2020 年的最终销售。该公司今天在一些单程航班上提供大幅折扣，从美国大陆和夏威夷出发的航班低至 39 美元，美国大陆内的航班低至 49 美元。
 

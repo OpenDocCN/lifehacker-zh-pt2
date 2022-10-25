@@ -1,6 +1,6 @@
 # 如何预订飞机航班上的“预订”座位
 
-> 原文:[https://life hacker . com/how-to-reserve-blocked-seats-on-plant-flights-1832791620](https://lifehacker.com/how-to-reserve-blocked-seats-on-airplane-flights-1832791620)
+> 原文：<https://lifehacker.com/how-to-reserve-blocked-seats-on-airplane-flights-1832791620>
 
 航空公司喜欢折磨我们。他们用包费、延误、不穿 [裤子](https://www.travelandleisure.com/travel-news/passenger-took-off-pants-air-france) 的乘客来忽悠我们。最重要的是，即使你做好了准备和组织，你也无法逃避他们对利润的嗜血。如果你曾经在航班上预订过座位，你会注意到航空公司的整个区域都被封锁了，所以你不能认领，即使你想或愿意支付额外的费用。
 

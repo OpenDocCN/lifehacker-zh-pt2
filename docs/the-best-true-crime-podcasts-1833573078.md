@@ -1,6 +1,6 @@
 # 最佳真实犯罪播客
 
-> 原文:[https://life hacker . com/the-best-true-crime-podcast-1833573078](https://lifehacker.com/the-best-true-crime-podcasts-1833573078)
+> 原文：<https://lifehacker.com/the-best-true-crime-podcasts-1833573078>
 
 自从 [系列](https://serialpodcast.org/) 在 2014 年问世，唤醒了世界对播客奇迹的认识，真正的犯罪迷们一直在寻找一种方法来重现那种快感。高中毕业生 Hae Min Lee 被谋杀和她前男友 Adnan Sayed 被定罪的故事受到了媒体的广泛关注，并被改编成了《T4》[书](https://www.amazon.com/Adnans-Story-Search-Justice-Serial/dp/1250087104?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-best-true-crime-podcasts-1833573078&asc_source=&tag=kinjalifehackerlink-20) 和 HBO 纪录片 。
 

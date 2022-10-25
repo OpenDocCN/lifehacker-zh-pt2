@@ -1,6 +1,6 @@
 # Palm 的超微型手机绝对是零食
 
-> 原文:[https://gizmodo . com/palms-ultra-tiny-phone-is-a-absolute-snack-1830528949](https://gizmodo.com/palms-ultra-tiny-phone-is-an-absolute-snack-1830528949)
+> 原文：<https://gizmodo.com/palms-ultra-tiny-phone-is-an-absolute-snack-1830528949>
 
 这部手机有点问题。从我看到这东西的那一刻起，它就让我很开心。它像一只新生的小狗一样小巧可爱，尽管在照片上看起来很娇小，但实际上它看起来和感觉上更小。我不是唯一有这种反应的人。当我把它带进办公室时，周围的人都惊叹不已。一个人对它发出咕咕声，另一个人说，“太完美了，”而第三个人说这正是他们多年来希望有人能做的那种东西。
 

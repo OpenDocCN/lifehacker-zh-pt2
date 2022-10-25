@@ -1,6 +1,6 @@
 # 安装最新的 WhatsApp 更新以修复一个重大错误
 
-> 原文:[https://life hacker . com/install-the-latest-whatsapp-update-to-fix-a-major-bug-1839944628](https://lifehacker.com/install-the-latest-whatsapp-update-to-fix-a-major-bug-1839944628)
+> 原文：<https://lifehacker.com/install-the-latest-whatsapp-update-to-fix-a-major-bug-1839944628>
 
 WhatsApp 用户应该点击 [【谷歌 Play 商店】](https://play.google.com/store/apps/details?id=com.whatsapp&hl=en_US) 或 [应用商店](https://apps.apple.com/us/app/whatsapp-messenger/id310633997) 并确保他们运行的是最新版本的应用程序，因为新的更新修复了一个重大的安全漏洞，该漏洞可能会让黑客 [通过看似无辜的 MP4 视频文件将恶意代码](https://www.facebook.com/security/advisories/cve-2019-11931) 溜到设备上。
 

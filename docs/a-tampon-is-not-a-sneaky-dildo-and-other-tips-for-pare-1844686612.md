@@ -1,6 +1,6 @@
 # 卫生棉条不是鬼鬼祟祟的假阳具，还有给父母的其他建议
 
-> 原文:[https://life hacker . com/a-tampon-is-not-a-sneaky-dildo-and-other-tips-for-pare-1844686612](https://lifehacker.com/a-tampon-is-not-a-sneaky-dildo-and-other-tips-for-pare-1844686612)
+> 原文：<https://lifehacker.com/a-tampon-is-not-a-sneaky-dildo-and-other-tips-for-pare-1844686612>
 
 青春期对于参与的各方都是尴尬的。对于孩子来说，随着朋友们开始达到这些生物学里程碑，它开始有所发展，随后是新的身体部位和特征的萌芽，最终导致几年后问自己“这正常吗？”一天 37 次。
 

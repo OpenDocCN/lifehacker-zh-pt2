@@ -1,6 +1,6 @@
 # 利用你的孩子帮你摆脱不想做的事情
 
-> 原文:[https://life hacker . com/use-your-kid-to-get-you-out-of-stuff-you-want-to-d-1839412476](https://lifehacker.com/use-your-kid-to-get-you-out-of-stuff-you-dont-want-to-d-1839412476)
+> 原文：<https://lifehacker.com/use-your-kid-to-get-you-out-of-stuff-you-dont-want-to-d-1839412476>
 
 我们的孩子带给我们如此多的快乐和比我们想象的更深的爱。看着你的孩子就在你眼前成长和成熟是一件不可思议、令人谦卑的事情。而且，你的孩子可以帮你摆脱你不想做的事情。
 

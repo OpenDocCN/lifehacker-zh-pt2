@@ -1,6 +1,6 @@
 # 如何在你的故事中使用 Instagram 的新问答贴
 
-> 原文:[https://life hacker . com/how-to-use-instagrams-new-quick-sticks-in-your-stories-1834274226](https://lifehacker.com/how-to-use-instagrams-new-quiz-stickers-in-your-stories-1834274226)
+> 原文：<https://lifehacker.com/how-to-use-instagrams-new-quiz-stickers-in-your-stories-1834274226>
 
 两年前，Instagram 在 Instagram Stories 中增加了对投票的支持。今天，它将这一功能向前推进了一步，引入了一个新的“测验”功能，允许您在自己的故事中向朋友提出多项选择问题。
 

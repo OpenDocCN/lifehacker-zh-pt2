@@ -1,6 +1,6 @@
 # 如何将 AirPods 连接到 Windows PC？
 
-> 原文:[https://life hacker . com/how-do-I-connect-ai rpods-to-a-windows-PC-1845096777](https://lifehacker.com/how-do-i-connect-airpods-to-a-windows-pc-1845096777)
+> 原文：<https://lifehacker.com/how-do-i-connect-airpods-to-a-windows-pc-1845096777>
 
 我要为本周 Lifehacker 的 Tech 911 问答稍微作弊一下。我没有像往常一样通过电子邮件收到这个问题，但我*是*一个朋友问的，因为 AirPods Pro 是本周的热门话题，这要归功于苹果的 iOS 14 大更新 / iPadOS 14。
 

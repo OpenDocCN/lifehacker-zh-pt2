@@ -1,6 +1,6 @@
 # 如何重新下载您从 App Store 购买的旧应用程序
 
-> 原文:[https://life hacker . com/how-to-redownload-old-apps-you-purchased-from-the-app-s-1842095762](https://lifehacker.com/how-to-redownload-old-apps-you-purchased-from-the-app-s-1842095762)
+> 原文：<https://lifehacker.com/how-to-redownload-old-apps-you-purchased-from-the-app-s-1842095762>
 
 安装一部新手机总是一件痛苦的事。但是，试图搜索和重新下载你所有的应用程序可能会特别烦人。在上面的视频中，我向你展示了如何轻松找到你曾经下载或购买的所有应用程序。
 

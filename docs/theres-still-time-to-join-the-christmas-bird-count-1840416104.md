@@ -1,6 +1,6 @@
 # 还有时间加入圣诞鸟的行列
 
-> 原文:[https://life hacker . com/there-time to-join-the-Christmas-bird-count-1840416104](https://lifehacker.com/theres-still-time-to-join-the-christmas-bird-count-1840416104)
+> 原文：<https://lifehacker.com/theres-still-time-to-join-the-christmas-bird-count-1840416104>
 
 你喜欢鸟吗？你也不讨厌在寒冷的户外吗？每年这个时候都会有一次年度鸟类普查，在许多地方仍然有时间报名帮忙。
 

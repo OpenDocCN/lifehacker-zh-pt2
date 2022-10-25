@@ -1,6 +1,6 @@
 # 2019 年最佳思维导图应用
 
-> 原文:[https://life hacker . com/the-best-mind-mapping-apps-of-2019-1838851298](https://lifehacker.com/the-best-mind-mapping-apps-of-2019-1838851298)
+> 原文：<https://lifehacker.com/the-best-mind-mapping-apps-of-2019-1838851298>
 
 让我们先解决这个难题，首先:思维导图到底是什么？把它想象成一种组织你思想的方式。你选择一个总的主题，然后你画出分支到副主题，每个副主题可以有自己的分支到副主题，等等。
 

@@ -1,6 +1,6 @@
 # 搜索 Slack，发现新工作中的办公室秘密
 
-> 原文:[https://life hacker . com/search-slack-to-discover-office-secrets-at-you-new-job-1835802611](https://lifehacker.com/search-slack-to-discover-office-secrets-at-your-new-job-1835802611)
+> 原文：<https://lifehacker.com/search-slack-to-discover-office-secrets-at-your-new-job-1835802611>
 
 当你开始一份新工作时，除了正式的入职培训，你还有很多需要学习的。你需要弄清楚你的未言明的职责，人与人之间的关系，部门之间的关系，以及一些办公室的流言蜚语。如果你的工作场所使用聊天应用 [Slack](https://slack.com/) ，你可以通过搜索档案获得大量信息。你没有时间去阅读每个人写的所有东西，所以这里有一些如何找到最重要(和有趣)的东西。
 

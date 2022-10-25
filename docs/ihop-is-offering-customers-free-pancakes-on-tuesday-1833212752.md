@@ -1,6 +1,6 @@
 # IHOP 周二为顾客提供免费煎饼
 
-> 原文:[https://life hacker . com/ihop-is-offing-customers-free-pancakes-on-Tuesday-1833212752](https://lifehacker.com/ihop-is-offering-customers-free-pancakes-on-tuesday-1833212752)
+> 原文：<https://lifehacker.com/ihop-is-offering-customers-free-pancakes-on-tuesday-1833212752>
 
 周二是 IHOPs [第 14 届年度免费煎饼日](https://lifehacker.com/preview/ihop-is-offering-customers-free-pancakes-on-tuesday-1833212752?rev=1552336219589) ，今年的主题是“为孩子向前翻转”周二早上 7 点到晚上 7 点，参与活动的餐厅会向任何想要的人免费赠送一叠薄煎饼。在某些情况下，一些夜宵店也会营业到晚上 10 点。
 

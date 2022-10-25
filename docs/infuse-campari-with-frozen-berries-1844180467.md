@@ -1,6 +1,6 @@
 # 用冷冻浆果浸泡金巴利
 
-> 原文:[https://life hacker . com/infuse-campari-with-frozen-berries-1844180467](https://lifehacker.com/infuse-campari-with-frozen-berries-1844180467)
+> 原文：<https://lifehacker.com/infuse-campari-with-frozen-berries-1844180467>
 
 金巴利有着烧焦的、苦涩的柑橘味和糖浆般的、近乎药用的味道，通常不被认为是“夏天的”这份特殊的荣誉属于一个人。但是金巴利和它更甜的表亲一样能适应夏天。它在 spritz 中很棒，但你可以通过与冷冻浆果一起摇晃它，使它成为水果味的，清爽的餐后饮品。
 

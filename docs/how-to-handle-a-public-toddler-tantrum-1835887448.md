@@ -1,6 +1,6 @@
 # how to handle a public toddler tantrum 1835887448
 
-> 原文:[https://life hacker . com/how-to-hand-a-public-tuckle-tantrum-1835887448](https://lifehacker.com/how-to-handle-a-public-toddler-tantrum-1835887448)
+> 原文：<https://lifehacker.com/how-to-handle-a-public-toddler-tantrum-1835887448>
 
 我们在商人乔的停车场。我当时两岁的女儿拒绝坐进她的汽车座椅。我试着平静地哄她，然后一点也不平静。很快，这是一个场景。她尖叫着，我挣扎着她的身体，我的脚伸在我身后，以阻止我的购物车装满食品杂货滚动了。人们向我的车内窥视，想知道发生了什么事。“我们没事！”我撒了谎，脸发烫，头发晕。
 

@@ -1,6 +1,6 @@
 # 如果您没有 PCP，该去哪里
 
-> 原文:[https://life hacker . com/where-to-go-when you don ' t-a-PCP-1831105576](https://lifehacker.com/where-to-go-when-you-dont-have-a-pcp-1831105576)
+> 原文：<https://lifehacker.com/where-to-go-when-you-dont-have-a-pcp-1831105576>
 
 如果你是一个成年人，做了所有你应该做的事情，当你应该做的时候，那么你的手机联系人中肯定有一个初级保健医生 。你见过这个人，看过他们的健康检查，他们有你所有的医疗记录，所以你可以打电话给他们，得到处方和建议。
 

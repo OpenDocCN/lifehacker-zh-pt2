@@ -1,6 +1,6 @@
 # 你现在可以免费在线参加常春藤联盟的课程
 
-> 原文:[https://life hacker . com/you-can-now-attend-ivy-league-classes-online-free-1842907160](https://lifehacker.com/you-can-now-attend-ivy-league-classes-online-for-free-1842907160)
+> 原文：<https://lifehacker.com/you-can-now-attend-ivy-league-classes-online-for-free-1842907160>
 
 如果你一直想上哈佛，现在可能是最佳时机:哈佛大学 [向所有报名者免费提供 64 门不同的在线课程](https://online-learning.harvard.edu/catalog/FREE?page=1) 。
 

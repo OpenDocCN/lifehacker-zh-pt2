@@ -1,6 +1,6 @@
 # 如何防止松脆的玉米卷外壳破裂
 
-> 原文:[https://life hacker . com/how-to-keep-crunchy-taco-shell-from-breaking-1829784383](https://lifehacker.com/how-to-keep-crunchy-taco-shells-from-breaking-1829784383)
+> 原文：<https://lifehacker.com/how-to-keep-crunchy-taco-shells-from-breaking-1829784383>
 
 咬一口松脆的墨西哥玉米卷，结果底部裂开，馅料洒了出来，这绝对是一场悲剧，但这是可以预防的:你只需要稍微加热一下。
 

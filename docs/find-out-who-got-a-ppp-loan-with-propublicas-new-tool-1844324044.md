@@ -1,6 +1,6 @@
 # 使用 ProPublica 的新工具了解谁获得了 PPP 贷款
 
-> 原文:[https://life hacker . com/find-out-who-got-a-PPP-loan-with-propublicas-new-tool-1844324044](https://lifehacker.com/find-out-who-got-a-ppp-loan-with-propublicas-new-tool-1844324044)
+> 原文：<https://lifehacker.com/find-out-who-got-a-ppp-loan-with-propublicas-new-tool-1844324044>
 
 你是否很想知道你的雇主或当地企业是否从政府 2.2 万亿美元的刺激计划中分得一杯羹？本周，独立的非营利新闻编辑室 ProPublica 发布了一个新的薪酬保护计划(PPP) [跟踪工具](https://projects.propublica.org/coronavirus/bailouts/) 。
 

@@ -1,6 +1,6 @@
 # 如何做一个即兴蛋糕架
 
-> 原文:[https://life hacker . com/how-to-make-a-即席蛋糕摊-1835064137](https://lifehacker.com/how-to-make-an-impromptu-cake-stand-1835064137)
+> 原文：<https://lifehacker.com/how-to-make-an-impromptu-cake-stand-1835064137>
 
 蛋糕是一种值得赞美的食物，这就是为什么蛋糕架如此重要。他们不仅把甜点举到高处合适的位置，而且通过提供一个容易进入蛋糕底部的杠杆点，使它更容易到达。然而，如果你做的蛋糕不多，你可能就没有蛋糕了。
 

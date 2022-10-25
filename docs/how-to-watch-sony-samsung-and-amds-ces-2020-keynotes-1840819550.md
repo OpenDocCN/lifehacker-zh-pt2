@@ -1,6 +1,6 @@
 # 如何观看索尼、三星和 AMD 的 CES 2020 主题演讲
 
-> 原文:[https://life hacker . com/how-to-watch-Sony-Samsung-and-amds-ces-2020-keynotes-1840819550](https://lifehacker.com/how-to-watch-sony-samsung-and-amds-ces-2020-keynotes-1840819550)
+> 原文：<https://lifehacker.com/how-to-watch-sony-samsung-and-amds-ces-2020-keynotes-1840819550>
 
 消费电子展周二在拉斯维加斯正式开幕；然而，周一一些大公司将举行新闻发布会，展示他们在展会上发布的一些最大的产品。
 

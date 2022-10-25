@@ -1,6 +1,6 @@
 # 如何在健身房欢迎新人
 
-> 原文:[https://life hacker . com/how-to-welcome-the-new-people-in-the-gym-1840836764](https://lifehacker.com/how-to-welcome-the-new-people-at-the-gym-1840836764)
+> 原文：<https://lifehacker.com/how-to-welcome-the-new-people-at-the-gym-1840836764>
 
 一月是健身房的美好时光。这么多新朋友！也许他们中的一个会成为你的长期健身伙伴。也许你可以鼓励和启发那些刚刚起步的人。什么？不，我不是在讽刺。
 

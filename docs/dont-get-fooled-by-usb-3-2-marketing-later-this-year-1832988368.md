@@ -1,6 +1,6 @@
 # 不要被今年晚些时候的“USB 3.2”营销所迷惑
 
-> 原文:[https://life hacker . com/don-t-get-stopped-by-USB-3-2-marketing-la ter-this-year-1832988368](https://lifehacker.com/dont-get-fooled-by-usb-3-2-marketing-later-this-year-1832988368)
+> 原文：<https://lifehacker.com/dont-get-fooled-by-usb-3-2-marketing-later-this-year-1832988368>
 
 在上周的世界移动通信大会上，USB 实现者论坛决定改变 USB 的狂野和疯狂世界，将现在被称为“USB 3.2”——预计将于今年晚些时候登陆个人电脑的最新和最快的标准——以及 USB 3.0 和 USB 3.1 重新命名。
 

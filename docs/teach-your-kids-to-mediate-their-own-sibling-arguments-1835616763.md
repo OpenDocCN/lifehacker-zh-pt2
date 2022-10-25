@@ -1,6 +1,6 @@
 # 教你的孩子调解他们自己的兄弟姐妹间的争论
 
-> 原文:[https://life hacker . com/teach-your-kids-to-mediate-their-own-sibling-arguments-1835616763](https://lifehacker.com/teach-your-kids-to-mediate-their-own-sibling-arguments-1835616763)
+> 原文：<https://lifehacker.com/teach-your-kids-to-mediate-their-own-sibling-arguments-1835616763>
 
 养育多个孩子有时感觉像是裁判。当兄弟姐妹间的争吵开始时，看起来你有两个选择:进去分手或者让他们自己解决。不管怎样，他们几分钟后就会回来。
 

@@ -1,6 +1,6 @@
 # 如何知道指数基金何时不划算
 
-> 原文:[https://life hacker . com/how-to-know-when-index-funds-arent-a-good-deal-1833538955](https://lifehacker.com/how-to-know-when-index-funds-arent-a-good-deal-1833538955)
+> 原文：<https://lifehacker.com/how-to-know-when-index-funds-arent-a-good-deal-1833538955>
 
 指数基金是退休投资的黄金标准，因为其(通常)低成本、内在的多样化和税收效率。但并不是每个指数基金都是平等的。
 

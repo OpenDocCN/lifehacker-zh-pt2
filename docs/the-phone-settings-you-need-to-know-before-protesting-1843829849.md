@@ -1,6 +1,6 @@
 # the phone settings you need to know before protesting 1843829849
 
-> 原文:[https://life hacker . com/the-phone-settings-you-need-to-know-before-抗议-1843829849](https://lifehacker.com/the-phone-settings-you-need-to-know-before-protesting-1843829849)
+> 原文：<https://lifehacker.com/the-phone-settings-you-need-to-know-before-protesting-1843829849>
 
 尽管去参加抗议活动可能很诱人，但一点点计划可能会大有帮助，尤其是如果你打算带上手机的话。我们已经讨论过 [一个有用的快捷方式，iOS 用户](https://lifehacker.com/you-need-this-iphone-shortcut-if-youre-protesting-1843824931) 可以用它来保护自己的安全(我们还有一个 Android 版本正在开发中！)，但是您需要对您的设备做更多的事情来确保您的保护和隐私。
 

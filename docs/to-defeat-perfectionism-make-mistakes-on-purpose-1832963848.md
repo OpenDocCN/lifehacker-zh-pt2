@@ -1,6 +1,6 @@
 # 为了打败完美主义，故意犯错
 
-> 原文:[https://life hacker . com/to-failure-完美主义-故意犯错-1832963848](https://lifehacker.com/to-defeat-perfectionism-make-mistakes-on-purpose-1832963848)
+> 原文：<https://lifehacker.com/to-defeat-perfectionism-make-mistakes-on-purpose-1832963848>
 
 追求完美的冲动会阻止你采取行动。你不会分享没有 100%准备好的创意项目，或者如果你不确定 T4 是否完全正确，你会害怕去问 T2 某人...不要。如果你感到被这个需要永远不要搞砸所困扰，试着故意犯一个错误。
 

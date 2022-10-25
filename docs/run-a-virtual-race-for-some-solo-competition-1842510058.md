@@ -1,6 +1,6 @@
 # 为一些单人比赛跑一场虚拟比赛
 
-> 原文:[https://life hacker . com/run-a-virtual-race-for-some-solo-competition-1842510058](https://lifehacker.com/run-a-virtual-race-for-some-solo-competition-1842510058)
+> 原文：<https://lifehacker.com/run-a-virtual-race-for-some-solo-competition-1842510058>
 
 物理距离结束了我们大多数的日常活动。对于跑步者来说，这包括取消任何即将到来的比赛。幸运的是，在保持安全和健康的同时，有一些替代方法可以提高你的心率，激发你的竞争意识。
 

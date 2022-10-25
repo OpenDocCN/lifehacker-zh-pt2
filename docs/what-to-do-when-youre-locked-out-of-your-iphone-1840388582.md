@@ -1,6 +1,6 @@
 # 当你被 iPhone 锁在门外时该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-when-you-lock-out-of-you-iphone-1840388582](https://lifehacker.com/what-to-do-when-youre-locked-out-of-your-iphone-1840388582)
+> 原文：<https://lifehacker.com/what-to-do-when-youre-locked-out-of-your-iphone-1840388582>
 
 当其他人锁定你的 iPhone 并要求你做一些事情以重新获得访问权限时会发生什么？你吓坏了——这是理所当然的，因为这意味着有人可以访问你的 iPhone，或者更糟的是，你的整个苹果账户。
 

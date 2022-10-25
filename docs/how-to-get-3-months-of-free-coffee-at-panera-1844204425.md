@@ -1,6 +1,6 @@
 # 如何在 Panera 获得 3 个月的免费咖啡
 
-> 原文:[https://life hacker . com/how-to-get-3 个月免费咖啡-at-panera-1844204425](https://lifehacker.com/how-to-get-3-months-of-free-coffee-at-panera-1844204425)
+> 原文：<https://lifehacker.com/how-to-get-3-months-of-free-coffee-at-panera-1844204425>
 
 如果你厌倦了在家制作隔离咖啡，或者只是需要一杯普通的冰咖啡来抵御夏天的炎热，如果你附近有 Panera，现在就注册三个月的免费 MyPanera Coffee+订阅。
 

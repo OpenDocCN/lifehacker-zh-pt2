@@ -1,6 +1,6 @@
 # 如何写草书
 
-> 原文:[https://lifehacker.com/how-to-write-in-cursive-1835450619](https://lifehacker.com/how-to-write-in-cursive-1835450619)
+> 原文：<https://lifehacker.com/how-to-write-in-cursive-1835450619>
 
 我整天打字。我在手机上滑动和点击。我在纸上潦草地给自己写笔记。我对我的数字化生活很满意。但时不时地，我会收到一封手写的短信——通常是来自一位老太太——我发现自己希望自己能更经常地练习草书。那些老太太会*写*。
 

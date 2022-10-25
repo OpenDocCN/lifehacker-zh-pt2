@@ -1,6 +1,6 @@
 # Spotify 家庭计划订户如何获得免费的 Google Home Mini
 
-> 原文:[https://life hacker . com/how-Spotify-family-plan-subscribers-can-get-a-free-goog-1830128734](https://lifehacker.com/how-spotify-family-plan-subscribers-can-get-a-free-goog-1830128734)
+> 原文：<https://lifehacker.com/how-spotify-family-plan-subscribers-can-get-a-free-goog-1830128734>
 
 Spotify 正在为假期增加家庭计划订阅优惠。从明天，11 月 1 日开始，美国的家庭计划账户持有人可以免费获得一个谷歌 Home 迷你智能扬声器，享受聆听(和语音搜索)的乐趣。根据流媒体服务 T3[的说法，这项从周四持续到今年年底的优惠是谷歌和 Spotify 交叉促销营销协议的结果。](https://newsroom.spotify.com/2018-10-31/spotify-premium-for-family-gets-a-new-family-membera-google-home-mini/)
 

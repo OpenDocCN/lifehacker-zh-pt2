@@ -1,6 +1,6 @@
 # 你现在可以在线管理你的苹果卡了
 
-> 原文:[https://life hacker . com/you-can-now-manage-your-apple-card-online-1844278495](https://lifehacker.com/you-can-now-manage-your-apple-card-online-1844278495)
+> 原文：<https://lifehacker.com/you-can-now-manage-your-apple-card-online-1844278495>
 
 当苹果去年夏天推出其新信用卡时，一大卖点是它不像一张普通的信用卡。它主要存在于你 iPhone 或 iPad 的苹果钱包中，除非你要求，否则你甚至不会得到一张实体卡。
 

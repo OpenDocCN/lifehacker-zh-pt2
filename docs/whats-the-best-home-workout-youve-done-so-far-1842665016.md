@@ -1,6 +1,6 @@
 # 到目前为止，你做过的最好的家庭锻炼是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-home-workout-you ve-done-so-1842665016](https://lifehacker.com/whats-the-best-home-workout-youve-done-so-far-1842665016)
+> 原文：<https://lifehacker.com/whats-the-best-home-workout-youve-done-so-far-1842665016>
 
 伙计们，我们需要谈谈。虽然我的身体一如既往地需要锻炼，但我的大脑已经疲惫不堪。我在 [独自进行力量训练](https://vitals.lifehacker.com/how-to-plan-your-strength-training-when-the-future-is-u-1842649573) ，但我必须承认，我喜欢把如何锻炼的决定权交给屏幕上的某个人的想法，他会确保我玩得开心。
 

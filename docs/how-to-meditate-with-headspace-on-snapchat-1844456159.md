@@ -1,6 +1,6 @@
 # 如何在 Snapchat 上用 Headspace 冥想
 
-> 原文:[https://life hacker . com/how-to-meaning-with-head-on-snapchat-1844456159](https://lifehacker.com/how-to-meditate-with-headspace-on-snapchat-1844456159)
+> 原文：<https://lifehacker.com/how-to-meditate-with-headspace-on-snapchat-1844456159>
 
 花大量时间在社交媒体上滚动，点击浏览照片、视频和故事，可以说是正念的对立面，但现在你可以一心多用，至少在 Snapchat 上是这样。新的 Headspace Mini 附带六个简短的冥想，你可以独自或与朋友一起进行，无需离开应用程序。
 

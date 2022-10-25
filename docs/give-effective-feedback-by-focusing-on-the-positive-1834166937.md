@@ -1,6 +1,6 @@
 # 关注积极的一面，给出有效的反馈
 
-> 原文:[https://life hacker . com/give-effective-feedback-by-focusing-on-the-positive-1834166937](https://lifehacker.com/give-effective-feedback-by-focusing-on-the-positive-1834166937)
+> 原文：<https://lifehacker.com/give-effective-feedback-by-focusing-on-the-positive-1834166937>
 
 建设性的批评可能是工作环境的祸根。很难给而不让接受者处于守势。(也很难接受。)这并不意味着我们不应该谈论彼此的表现；不讨论我们做得如何会导致一个停滞不前的环境，在这个环境中，员工不会学习、成长和提高。
 

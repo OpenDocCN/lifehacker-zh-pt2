@@ -1,6 +1,6 @@
 # 使用 LICEcap 将您的屏幕录制为 GIF
 
-> 原文:[https://life hacker . com/record-your-screen-as-a-gif-using-lice cap-1840204678](https://lifehacker.com/record-your-screen-as-a-gif-using-licecap-1840204678)
+> 原文：<https://lifehacker.com/record-your-screen-as-a-gif-using-licecap-1840204678>
 
 **Windows 和 MAC OS:**[LICEcap](https://www.cockos.com/licecap/)是一个简单的应用程序，用于录制你屏幕的一部分，并将其保存为 GIF 格式。当您不能轻松共享视频文件时，或者当您想要将您的录制内容发布到网页上，并且视频上传太麻烦时，它非常有用。
 

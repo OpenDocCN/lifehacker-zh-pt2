@@ -1,6 +1,6 @@
 # 告诉你的孩子什么而不是“再多五分钟”
 
-> 原文:[https://life hacker . com/what-to-tell-your-kid-of-not-the-five-more-minutes-1836058634](https://lifehacker.com/what-to-tell-your-kid-instead-of-five-more-minutes-1836058634)
+> 原文：<https://lifehacker.com/what-to-tell-your-kid-instead-of-five-more-minutes-1836058634>
 
 “再五分钟！”是父母对他们年幼的孩子说的一句话，当他们结束他们正在做的任何事情的时候——游泳，与他们的朋友进行光剑大战，制造银河粘液。然后，当时间到了，事情是这样的:孩子们看起来很震惊，很困惑，可能会开始抽泣。我去过那里。
 

@@ -1,6 +1,6 @@
 # 根据 Reddit，花 20 美元的最佳方式
 
-> 原文:[https://life hacker . com/the-best-ways-to-spend-20-bucks-据 reddit-1830075914](https://lifehacker.com/the-best-ways-to-spend-20-bucks-according-to-reddit-1830075914)
+> 原文：<https://lifehacker.com/the-best-ways-to-spend-20-bucks-according-to-reddit-1830075914>
 
 "[20 美元以下你花过最划算的钱是什么？](https://www.reddit.com/r/AskReddit/comments/9s8jek/what_is_the_best_money_you_ever_spent_under_20/)”redditor Davy _ do 问道。里面有一些有趣的故事，但我们只收集了你可以应用到自己生活中的回复。
 

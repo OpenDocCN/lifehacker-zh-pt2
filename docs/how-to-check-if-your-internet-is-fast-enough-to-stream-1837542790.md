@@ -1,6 +1,6 @@
 # 如何检查您的互联网速度是否足以在 4K 传输网飞
 
-> 原文:[https://life hacker . com/how-to-check-if-your-internet ' s-fast-to-stream-1837542790](https://lifehacker.com/how-to-check-if-your-internet-is-fast-enough-to-stream-1837542790)
+> 原文：<https://lifehacker.com/how-to-check-if-your-internet-is-fast-enough-to-stream-1837542790>
 
 如果你想从网飞传输 4K 超高清内容，你不仅需要一台高分辨率的电视，还需要一个快速的互联网连接。
 

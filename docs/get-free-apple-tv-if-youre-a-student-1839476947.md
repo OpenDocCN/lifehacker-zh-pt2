@@ -1,6 +1,6 @@
 # 如果你是学生，可以免费获得 Apple TV+
 
-> 原文:[https://life hacker . com/get-free-apple-TV-if-you-a-student-1839476947](https://lifehacker.com/get-free-apple-tv-if-youre-a-student-1839476947)
+> 原文：<https://lifehacker.com/get-free-apple-tv-if-youre-a-student-1839476947>
 
 苹果音乐学生订阅服务 即将变得更好，该服务允许用户以正常月费的一小部分访问苹果的优质音乐流媒体服务。
 

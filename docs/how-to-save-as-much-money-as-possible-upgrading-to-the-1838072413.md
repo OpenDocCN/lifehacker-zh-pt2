@@ -1,6 +1,6 @@
 # 如何尽可能省钱升级到 iPhone 11
 
-> 原文:[https://life hacker . com/how-to-save-to-the-the-1838072413](https://lifehacker.com/how-to-save-as-much-money-as-possible-upgrading-to-the-1838072413)
+> 原文：<https://lifehacker.com/how-to-save-as-much-money-as-possible-upgrading-to-the-1838072413>
 
 iPhones 真他妈的贵。如果你是下周想升级到 iPhone 11 或 iPhone 11 Pro 的数百万人中的一员，那么当你付清时，你至少要花 700 美元。你可能只需要一部手机，而你*可能*已经有一部了，那么 ***可能*** 应该想办法用你的旧手机来抵消新手机的成本。
 

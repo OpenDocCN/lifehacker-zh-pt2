@@ -1,6 +1,6 @@
 # 如何辨别一篇网上评论是不是假的
 
-> 原文:[https://life hacker . com/how-to-tell-if-an-online-review-is-fake-1839264069](https://lifehacker.com/how-to-tell-if-an-online-review-is-fake-1839264069)
+> 原文：<https://lifehacker.com/how-to-tell-if-an-online-review-is-fake-1839264069>
 
 用户评论非常有用，尤其是在护肤品和美容产品领域。毕竟，这是你抹在脸上的东西。你珍贵的脸！但是当其中一些评论被证明是假的，你怎么能确定你能相信你读到的任何东西呢？
 

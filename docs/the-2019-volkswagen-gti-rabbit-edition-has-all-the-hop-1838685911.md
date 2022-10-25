@@ -1,6 +1,6 @@
 # the 2019 volkswagen gti rabbit edition has all the hop 1838685911
 
-> 原文:[https://jalopnik . com/the-2019-Volkswagen-gti-rabbit-edition-has-all-the-hop-1838685911](https://jalopnik.com/the-2019-volkswagen-gti-rabbit-edition-has-all-the-hop-1838685911)
+> 原文：<https://jalopnik.com/the-2019-volkswagen-gti-rabbit-edition-has-all-the-hop-1838685911>
 
 正如任何一个恋爱中的汽车爱好者都知道的那样，拥有一些无聊的、不冒犯任何一方的东西，比拥有一些真正让你的伴侣恼火的东西要容易得多。亲爱的朋友们，这就是为什么 [大众 GTI](https://jalopnik.com/tag/volkswagen-gti) 兔子版不是兔子而是独角兽。我的妻子，经常把媒体车混为一谈——要么是因为它们统一的沉闷，要么是因为“有趣”的车不舒服和/或不实用——喜欢 GTI。
 

@@ -1,6 +1,6 @@
 # 你可以强迫自己对生活更加感恩
 
-> 原文:[https://life hacker . com/you-can-force-you-be-force-your-lif-1830654181](https://lifehacker.com/you-can-force-yourself-to-be-more-grateful-for-your-lif-1830654181)
+> 原文：<https://lifehacker.com/you-can-force-yourself-to-be-more-grateful-for-your-lif-1830654181>
 
 感恩节已经过去了，所以你可以在下一年忘记感激生活的慷慨。或者你可以继续锻炼那块肌肉。通过练习，你可以更快乐，更感激你的生活。
 

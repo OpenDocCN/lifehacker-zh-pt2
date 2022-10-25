@@ -1,6 +1,6 @@
 # 使用这个免费的应用程序开始观鸟
 
-> 原文:[https://life hacker . com/get-started-bird-watching-with this-free-app-1844106484](https://lifehacker.com/get-started-birdwatching-with-this-free-app-1844106484)
+> 原文：<https://lifehacker.com/get-started-birdwatching-with-this-free-app-1844106484>
 
 既然我们已经接受了较慢、低技术含量的活动，如拼图、编织和手工制作，这也可能是开始观鸟的好时机。这是你可以在大自然中自己做的事情，或者从你自己家里(甚至防火梯)方便的地方做。如果你是一个老的观鸟专家，当谈到有翼生物时，你可能知道你在寻找什么。但是如果你是这个爱好的新手，可能很难知道从哪里开始以及如何开始。你会拿起望远镜去公园吗？你怎么知道你找到的是哪种鸟？无论你是观鸟艺术的新手还是老手，eBird 应用程序 都可能有所帮助——而且是免费的。
 

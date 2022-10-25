@@ -1,6 +1,6 @@
 # 你应该在煎饼面糊里加入柠檬皮
 
-> 原文:[https://life hacker . com/you-should-add-lemon-zest-to-pancake-面糊-1839034827](https://lifehacker.com/you-should-add-lemon-zest-to-pancake-batter-1839034827)
+> 原文：<https://lifehacker.com/you-should-add-lemon-zest-to-pancake-batter-1839034827>
 
 我是烘焙混合料的坚定拥护者。从头开始烘焙很棒，如果你有时间和资源这样做，那就去做吧。但是 mixes 是最早的现代黑客之一，它们的引入帮助减轻了(大多数)在家从事无偿劳动的妇女的工作量。这——除了在我的个人生活中懒散之外——让我成为了一个不害羞的粉丝。
 

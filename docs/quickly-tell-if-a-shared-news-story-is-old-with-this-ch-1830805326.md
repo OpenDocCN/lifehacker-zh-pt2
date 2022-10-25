@@ -1,6 +1,6 @@
 # 使用这个 Chrome 扩展，快速判断一个共享的新闻故事是否过时
 
-> 原文:[https://life hacker . com/quick-tell-if-a-shared-news-story-is-old-with this-ch-1830805326](https://lifehacker.com/quickly-tell-if-a-shared-news-story-is-old-with-this-ch-1830805326)
+> 原文：<https://lifehacker.com/quickly-tell-if-a-shared-news-story-is-old-with-this-ch-1830805326>
 
 在过去的一年里，我们所有人(嗯，至少是大多数人)对我们在新闻中读到的东西，尤其是社交媒体上读到的东西，变得更加怀疑了。
 

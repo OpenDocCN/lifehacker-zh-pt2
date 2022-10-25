@@ -1,6 +1,6 @@
 # 如何用你的健康储蓄账户为退休储蓄
 
-> 原文:[https://life hacker . com/how-to-save for the retirement with your health-savings-ACC-1844592077](https://lifehacker.com/how-to-save-for-retirement-with-your-health-savings-acc-1844592077)
+> 原文：<https://lifehacker.com/how-to-save-for-retirement-with-your-health-savings-acc-1844592077>
 
 关于 [高免赔额健康保险](https://vitals.lifehacker.com/how-to-survive-a-high-deductible-health-insurance-plan-1792436777) 计划并没有太多让人喜欢的地方。如果你有一个，你可能已经在医疗保健上花费了数千美元。在达到免赔额之前，很难支付基本费用。不幸的是，这些计划已经成为许多大公司的首选——这种代价高昂的趋势可能会继续下去。
 

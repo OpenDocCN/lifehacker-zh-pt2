@@ -1,6 +1,6 @@
 # 如果您受到万豪数据泄露的影响，该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-if-you-affected-by-marriotts-data-breach-1830774584](https://lifehacker.com/what-to-do-if-youre-affected-by-marriotts-data-breach-1830774584)
+> 原文：<https://lifehacker.com/what-to-do-if-youre-affected-by-marriotts-data-breach-1830774584>
 
 万豪国际酒店集团(Marriott International)[周五](https://answers.kroll.com/) 宣布，其多达 5 亿名客人的个人信息可能已被侵入其喜达屋客人预订数据库。如果你过去几年住在万豪酒店，这可能就是你。
 

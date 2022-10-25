@@ -1,6 +1,6 @@
 # 用你的 FSA 的钱去捐赠街头医疗用品
 
-> 原文:[https://life hacker . com/use-your-FSA-money-to-duate-street-medic-supplies-1843907657](https://lifehacker.com/use-your-fsa-money-to-donate-street-medic-supplies-1843907657)
+> 原文：<https://lifehacker.com/use-your-fsa-money-to-donate-street-medic-supplies-1843907657>
 
 如果你倾向于在年底时在你的医疗灵活支出账户(FSA)中有笔现金，你不必等到 [到 12 月](https://lifehacker.com/how-to-spend-your-extra-fsa-money-1821055768) 才开始花费。你现在可以用它来购买急救用品，并考虑将其捐赠给为抗议者组织医疗支持的团体。
 

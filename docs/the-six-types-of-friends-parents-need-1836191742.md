@@ -1,6 +1,6 @@
 # 父母需要的六种朋友
 
-> 原文:[https://life hacker . com/the-six-types-of-friends-parents-need-1836191742](https://lifehacker.com/the-six-types-of-friends-parents-need-1836191742)
+> 原文：<https://lifehacker.com/the-six-types-of-friends-parents-need-1836191742>
 
 我女儿今年秋天要去一所新学校，有一群全新的同学和父母。我会睁大眼睛看待这次经历，看看她和哪些孩子合得来，我可能会和哪些家长联系上。
 

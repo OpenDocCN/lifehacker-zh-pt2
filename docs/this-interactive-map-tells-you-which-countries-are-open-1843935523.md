@@ -1,6 +1,6 @@
 # 这张交互式地图告诉你哪些国家开放旅游
 
-> 原文:[https://life hacker . com/this-interactive-map-tell-you-that-countries-is-open-1843935523](https://lifehacker.com/this-interactive-map-tells-you-which-countries-are-open-1843935523)
+> 原文：<https://lifehacker.com/this-interactive-map-tells-you-which-countries-are-open-1843935523>
 
 随着我们进入夏季，很难不去想旅行。这不仅是传统的度假季节，而且我们已经被关在里面几个月了，我们大多数人可能都渴望探索一些新的东西。当然，考虑到我们正处于一个全球化的疫情，旅行——尤其是乘飞机——不是一个好主意，如今计划一次旅行可能更多的是幻想而不是现实。不管怎样，你可能会好奇哪些国家对游客开放了。如果是这样，国际航空运输协会 推出的 [互动地图就是一个很好的工具。](https://www.iatatravelcentre.com/international-travel-document-news/1580226297.htm) 
 

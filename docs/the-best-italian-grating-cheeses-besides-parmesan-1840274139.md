@@ -1,6 +1,6 @@
 # 最好的意大利干酪(除了帕尔马干酪)
 
-> 原文:[https://life hacker . com/the-best-Italian-grating-cheeses-bye-parmesan-1840274139](https://lifehacker.com/the-best-italian-grating-cheeses-besides-parmesan-1840274139)
+> 原文：<https://lifehacker.com/the-best-italian-grating-cheeses-besides-parmesan-1840274139>
 
 在食物上磨碎奶酪是人生最大的乐趣之一。将卷曲的咸味牛奶雪刮到蔬菜、汤和意大利面上是多种文化的食物 DNA 编码。不是拟人化的意大利美食评论 ，但是当谈到意大利奶酪时，没有什么比得上真正的奶酪，尤其是如果你把它们放在意大利面食上。
 

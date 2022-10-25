@@ -1,6 +1,6 @@
 # 如何参与雷德利·斯科特制作的纪录片
 
-> 原文:[https://life hacker . com/how-to-take-part-in-a-Ridley-Scott-produced-recordinate-1844468081](https://lifehacker.com/how-to-take-part-in-a-ridley-scott-produced-documentary-1844468081)
+> 原文：<https://lifehacker.com/how-to-take-part-in-a-ridley-scott-produced-documentary-1844468081>
 
 你有没有想过你会是纪录片的理想主题？世界上的其他人会从瞥见你的日常生活中受益吗？可能不会(除非你是一个自恋者...你是自恋狂吗？)，，但是如果正在，[参与一部雷德利·斯科特制作的纪录片](https://lifeinaday.youtube/take-part/)，吸引你，现在你的机会来了。以下是你需要知道的。
 

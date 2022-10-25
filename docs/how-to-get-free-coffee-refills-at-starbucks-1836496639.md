@@ -1,6 +1,6 @@
 # 如何在星巴克免费续杯咖啡
 
-> 原文:[https://life hacker . com/how-to-get-free-coffee-fills-at-Starbucks-1836496639](https://lifehacker.com/how-to-get-free-coffee-refills-at-starbucks-1836496639)
+> 原文：<https://lifehacker.com/how-to-get-free-coffee-refills-at-starbucks-1836496639>
 
 星巴克的咖啡不便宜；对于一个在美国消费者新闻与商业频道 [做](https://www.cnbc.com/2018/12/14/giving-up-starbucks-for-a-year-could-make-me-17000-dollars-heres-why-i-refuse.html) 的作家来说，这是一项每年花费近 2300 美元的开支。
 

@@ -1,6 +1,6 @@
 # 我们 2019 年最受欢迎的理财建议
 
-> 原文:[https://life hacker . com/our-2019-1840397874](https://lifehacker.com/our-most-popular-money-advice-of-2019-1840397874)
+> 原文：<https://lifehacker.com/our-most-popular-money-advice-of-2019-1840397874>
 
 当你在思考自己过去一年的 [金融课程](https://t.co/nWrMFwmj93) 时，看看 2019 年最受欢迎的一些故事。它们从实际的到荒谬的都有，但它们都在这个名单上是有原因的:它们包含了一些你可以带走并应用到你自己生活中的金融智慧的核心。
 

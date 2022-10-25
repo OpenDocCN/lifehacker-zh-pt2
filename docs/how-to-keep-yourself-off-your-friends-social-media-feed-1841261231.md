@@ -1,6 +1,6 @@
 # 如何让自己远离朋友的社交媒体
 
-> 原文:[https://life hacker . com/how-to-keep your-your-friends-social-media-feed-1841261231](https://lifehacker.com/how-to-keep-yourself-off-your-friends-social-media-feed-1841261231)
+> 原文：<https://lifehacker.com/how-to-keep-yourself-off-your-friends-social-media-feed-1841261231>
 
 如果你在一个聚会上，你的一个朋友开始拍照，你会怎么做？你接受你在活动中做的任何事情可能会出现在脸书或 Instagram 上吗？你是不是很不情愿的挤到了团体自拍的后面？
 

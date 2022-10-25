@@ -1,6 +1,6 @@
 # 如何在一个蹩脚的酒店健身房得到良好的锻炼
 
-> 原文:[https://life hacker . com/how-to-get-a-good-out-of-crappy-hotel-gym-1830405477](https://lifehacker.com/how-to-get-a-good-workout-in-a-crappy-hotel-gym-1830405477)
+> 原文：<https://lifehacker.com/how-to-get-a-good-workout-in-a-crappy-hotel-gym-1830405477>
 
 一些酒店比其他酒店尝试得更多，但没有一家酒店的“健身中心”能与设备齐全的健身房相媲美。你有跑步机，椭圆机，通常还有几个哑铃。除此之外的任何东西都是罕见的奖励。以下是如何进行体面的锻炼。
 

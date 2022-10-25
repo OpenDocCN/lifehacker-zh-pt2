@@ -1,6 +1,6 @@
 # 使用 iOS 快捷方式清除您的相机胶卷[更新]
 
-> 原文:[https://life hacker . com/clear-out-your-camera-roll-with-an-IOs-shortcut-1829789054](https://lifehacker.com/clear-out-your-camera-roll-with-an-ios-shortcut-1829789054)
+> 原文：<https://lifehacker.com/clear-out-your-camera-roll-with-an-ios-shortcut-1829789054>
 
 照片膨胀是真的，伙计们。我们中的大多数人在把自己的自拍、美食照片和随机照片上传到 Instagram、Snapchat、Twitter、脸书等网站后不久，就会忘记它们。但你的手机不会。这些文件位于你的照片应用程序的相机胶卷中，占用了宝贵的存储空间，你可以用应用程序、播客或者像我一样的大量积压的电子邮件来填充这些空间。最终，事情可能变得如此糟糕，以至于每次需要空间时，你都要滚动浏览照片并删除一些照片。
 

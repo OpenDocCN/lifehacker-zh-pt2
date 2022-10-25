@@ -1,6 +1,6 @@
 # 在冠状病毒期间，不要跳过这些遗产规划
 
-> 原文:[https://life hacker . com/don-t-skip-these-estate-planning-moves-during-coronavir-1844703114](https://lifehacker.com/don-t-skip-these-estate-planning-moves-during-coronavir-1844703114)
+> 原文：<https://lifehacker.com/don-t-skip-these-estate-planning-moves-during-coronavir-1844703114>
 
 随着冠状病毒疫情席卷全国，一些人正在为最坏的情况做准备。据美国退休人员协会报道 ，随着美国人争相准备遗产规划文件，律师们看到了业务的增长——原因显而易见。不到三分之一的成年人有遗嘱或其他必要的遗产规划文件，根据最近一项 [的调查](https://www.caring.com/caregivers/estate-planning/wills-survey) 来自。如果你是大多数没有去世的人的一部分——并且意外去世——这可能会给你的家庭带来问题。以下是一些重要的遗产规划举措，供您现在考虑。
 

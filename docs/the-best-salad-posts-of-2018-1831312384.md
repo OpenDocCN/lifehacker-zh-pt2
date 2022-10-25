@@ -1,6 +1,6 @@
 # 2018 年最佳沙拉帖子
 
-> 原文:[https://life hacker . com/the-best-salad-posts-of-2018-1831312384](https://lifehacker.com/the-best-salad-posts-of-2018-1831312384)
+> 原文：<https://lifehacker.com/the-best-salad-posts-of-2018-1831312384>
 
 随着这一年接近尾声，1 月 1 日开始以一种略微不祥的方式隐约出现，你可能会发现自己正在审视自己在 2018 年做出的食物选择。显然你不应该后悔什么，但如果所有这些反思导致渴望一两份沙拉，我们有相当多的资源来确保这是最好的沙拉(包括培根油醋酱)。
 

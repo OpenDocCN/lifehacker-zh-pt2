@@ -1,6 +1,6 @@
 # 今晚观看两场流星雨高峰
 
-> 原文:[https://life hacker . com/watch-two-流星雨-今晚高峰-1836785745](https://lifehacker.com/watch-two-meteor-showers-peak-tonight-1836785745)
+> 原文：<https://lifehacker.com/watch-two-meteor-showers-peak-tonight-1836785745>
 
 两场流星雨——德尔塔宝瓶座和阿尔法摩羯座——都将在今晚和周二早上达到顶峰。由于月亮只有 6%满，黑暗的天空可能是流星雨的完美舞台。
 

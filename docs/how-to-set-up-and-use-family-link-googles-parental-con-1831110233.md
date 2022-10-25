@@ -1,6 +1,6 @@
 # 如何设置和使用谷歌的家长控制应用程序 Family Link
 
-> 原文:[https://life hacker . com/how-to-set-up-and-use-family-link-Google-parental-con-1831110233](https://lifehacker.com/how-to-set-up-and-use-family-link-googles-parental-con-1831110233)
+> 原文：<https://lifehacker.com/how-to-set-up-and-use-family-link-googles-parental-con-1831110233>
 
 谷歌在 Chrome OS 版本的家长监督应用 Family Link 中推出了屏幕时间和应用管理功能，因此现在你可以远程管理和监控孩子在运行该操作系统的笔记本电脑和平板电脑上的活动，以及运行 Android 5.1 或更高版本的任何 Android 设备上的活动。
 

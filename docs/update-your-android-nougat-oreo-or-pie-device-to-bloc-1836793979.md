@@ -1,6 +1,6 @@
 # 更新您的 Android 牛轧糖、奥利奥或馅饼设备，以阻止视频恶意软件
 
-> 原文:[https://life hacker . com/update-your-Android-nougat-Oreo-or-pie-device-to-bloc-1836793979](https://lifehacker.com/update-your-android-nougat-oreo-or-pie-device-to-bloc-1836793979)
+> 原文：<https://lifehacker.com/update-your-android-nougat-oreo-or-pie-device-to-bloc-1836793979>
 
 又到了一个关于更新你的旧到半旧的 Android 设备的 PSA 的时候了，这一次是为了保护你的智能手机和平板电脑免受新发现的漏洞的攻击，该漏洞可能让黑客通过嵌入在设备上播放的视频文件中的恶意代码来控制 Android 设备。
 

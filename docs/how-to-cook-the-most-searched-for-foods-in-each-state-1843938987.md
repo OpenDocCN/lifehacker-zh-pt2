@@ -1,6 +1,6 @@
 # 如何烹饪各州搜索次数最多的食物
 
-> 原文:[https://life hacker . com/how-to-cook-the-most-search-for-foods-in-each-state-1843938987](https://lifehacker.com/how-to-cook-the-most-searched-for-foods-in-each-state-1843938987)
+> 原文：<https://lifehacker.com/how-to-cook-the-most-searched-for-foods-in-each-state-1843938987>
 
 过去几个月被关在家里让很多人发现——或者重新发现——家常菜。从酸面团到香蕉面包，我们在厨房花的时间比平时多。但事实证明，我们需要烹饪技巧，不出所料，我们正在向谷歌寻求帮助。以下是各州(加上华盛顿州和 DC)在过去 30 天里一直在寻找的东西， [每日一餐](https://www.thedailymeal.com/cook/most-searched-coronavirus-cooking-tips-america) 。
 

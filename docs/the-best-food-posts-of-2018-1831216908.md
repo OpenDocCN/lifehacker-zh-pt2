@@ -1,6 +1,6 @@
 # 2018 年最佳美食帖
 
-> 原文:[https://life hacker . com/the-best-food-posts-of-2018-1831216908](https://lifehacker.com/the-best-food-posts-of-2018-1831216908)
+> 原文：<https://lifehacker.com/the-best-food-posts-of-2018-1831216908>
 
 你得吃东西，而且你也应该尽可能轻松美味地吃东西。这里是所有的甜蜜和美味的职位，帮助这一年走得稍微容易一点。
 

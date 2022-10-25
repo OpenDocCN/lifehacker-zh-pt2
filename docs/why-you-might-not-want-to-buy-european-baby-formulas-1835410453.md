@@ -1,6 +1,6 @@
 # 为什么你可能不想买欧洲婴儿配方奶粉
 
-> 原文:[https://life hacker . com/why-you-may-not-want-to-buy-European-baby-formulas-1835410453](https://lifehacker.com/why-you-might-not-want-to-buy-european-baby-formulas-1835410453)
+> 原文：<https://lifehacker.com/why-you-might-not-want-to-buy-european-baby-formulas-1835410453>
 
 父母的第一个重大决定之一是如何——或吃什么——喂养他们的孩子。对于那些配方奶喂养的人来说，寻找一种尽可能营养的高质量产品的压力可能令人望而生畏。这可能是一些父母转向欧洲品牌的原因，如[【Holle】](https://www.beyondorganicbaby.com/product/holle-organic-baby-formula-stage-1/)[Lebenswert](https://babykindmarket.com/products/lebenswert-bio-stage-1-organic-infant-formula-500g?variant=16716727809)和[tpfer](https://organicstart.com/topfer/)，一些人可能会认为这些品牌比美国货架上的产品更自然、更好。
 

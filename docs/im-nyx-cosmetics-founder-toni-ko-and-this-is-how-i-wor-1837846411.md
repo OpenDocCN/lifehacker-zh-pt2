@@ -1,6 +1,6 @@
 # im nyx cosmetics founder toni ko and this is how i wor 1837846411
 
-> 原文:[https://life hacker . com/im-nyx-cosmetics-founder-Toni-ko-and-this-is-how-I-wor-1837846411](https://lifehacker.com/im-nyx-cosmetics-founder-toni-ko-and-this-is-how-i-wor-1837846411)
+> 原文：<https://lifehacker.com/im-nyx-cosmetics-founder-toni-ko-and-this-is-how-i-wor-1837846411>
 
 托尼·柯在创业的第一年，在没有雇佣一名员工之前，就卖出了价值 200 万美元的化妆品 。她把自己的公司 NYX Cosmetics 发展成了 5 亿美元的业务，然后卖给了欧莱雅。我们与这位千万富翁企业家谈论了她的早期创业、她最大的错误以及她为女性所有的企业设立的风险基金。
 

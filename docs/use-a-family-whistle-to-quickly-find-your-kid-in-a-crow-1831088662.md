@@ -1,6 +1,6 @@
 # 使用“家庭口哨”在人群中快速找到你的孩子
 
-> 原文:[https://life hacker . com/use-a-family-whistle-to-quick-find-your kid-in-a-crow-1831088662](https://lifehacker.com/use-a-family-whistle-to-quickly-find-your-kid-in-a-crow-1831088662)
+> 原文：<https://lifehacker.com/use-a-family-whistle-to-quickly-find-your-kid-in-a-crow-1831088662>
 
 如果你的孩子和我的孩子一样是个跑步者，你会知道反复转动你的头以确保他们还在你身边，没有跑走，消失在人群中会导致紧张性头痛。我们的儿子卢卡斯，从他想到他的腿可以让他有所作为的那一刻起，就把探索他周围环境的每一个细节作为他的使命。如果他好奇的对象是在我们前进的方向或没有区别；如果他想要，他就跑了。是的，有时他会溜得无影无踪。
 

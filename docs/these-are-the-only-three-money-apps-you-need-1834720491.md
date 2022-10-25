@@ -1,6 +1,6 @@
 # 这是你唯一需要的三款理财软件
 
-> 原文:[https://life hacker . com/these-is-only-three money-apps-you-need-1834720491](https://lifehacker.com/these-are-the-only-three-money-apps-you-need-1834720491)
+> 原文：<https://lifehacker.com/these-are-the-only-three-money-apps-you-need-1834720491>
 
 你有几款理财 app？事实证明，完美的数字可能是三个:一个预算应用程序，一个投资跟踪器，和一个信用监控服务。
 

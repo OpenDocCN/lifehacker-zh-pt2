@@ -1,6 +1,6 @@
 # 找到你真正喜欢的葡萄酒的四个建议
 
-> 原文:[https://life hacker . com/four-tips-for-finding-wine-you-really-enjoy-1831237653](https://lifehacker.com/four-tips-for-finding-wine-youll-actually-enjoy-1831237653)
+> 原文：<https://lifehacker.com/four-tips-for-finding-wine-youll-actually-enjoy-1831237653>
 
 客观来说，酒是好的。
 

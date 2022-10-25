@@ -1,6 +1,6 @@
 # 讨厌拉伸怎么拉伸
 
-> 原文:[https://life hacker . com/how-to-stretch-if-you-hate-stretching-1829767874](https://lifehacker.com/how-to-stretch-if-you-hate-stretching-1829767874)
+> 原文：<https://lifehacker.com/how-to-stretch-if-you-hate-stretching-1829767874>
 
 对我来说幸运的是，我不觉得体育活动是一件苦差事。我非常喜欢骑自行车、跑步和踢足球，并且经常做这些事情。但是说到拉伸——嗯，我讨厌拉伸。我的口头禅基本上是，“我死后会伸展身体。”运动和健身最吸引人的部分是运动，所以，当我想到趴在垫子上，保持身体静止的时候，我只是...不要这样做。
 

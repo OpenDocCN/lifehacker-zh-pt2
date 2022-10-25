@@ -1,6 +1,6 @@
 # 如何浏览你的浏览器标签
 
-> 原文:[https://life hacker . com/how-to-konmari-your-browser-tabs-1832760171](https://lifehacker.com/how-to-konmari-your-browser-tabs-1832760171)
+> 原文：<https://lifehacker.com/how-to-konmari-your-browser-tabs-1832760171>
 
 我喜欢写关于 [组织你的网络浏览器](https://lifehacker.com/the-chrome-extensions-our-tech-editor-uses-to-manage-a-1823999980) 的不同方法，因为我自己的 Chrome 浏览器看起来像一个标签农场。它从不失败。无论我多频繁地将所有打开的标签转储到某种档案中，只要一两周，问题就会以 20 多个浏览器标签的形式重新出现。
 

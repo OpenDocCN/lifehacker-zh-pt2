@@ -1,6 +1,6 @@
 # 我们最好的熨烫工具
 
-> 原文:[https://lifehacker.com/our-best-ironing-hacks-1843732671](https://lifehacker.com/our-best-ironing-hacks-1843732671)
+> 原文：<https://lifehacker.com/our-best-ironing-hacks-1843732671>
 
 你可能已经穿了几个月的运动裤了，但是请相信:T 在这里*会有一天*会让你最终需要再次穿上漂亮的衣服。所以你不妨借此机会练习一下你的熨烫技巧。
 

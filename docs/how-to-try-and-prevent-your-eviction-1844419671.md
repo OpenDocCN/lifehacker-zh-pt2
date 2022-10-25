@@ -1,6 +1,6 @@
 # 如何试图阻止你被驱逐
 
-> 原文:[https://life hacker . com/how-to-try-and-prevention-you-eviction-1844419671](https://lifehacker.com/how-to-try-and-prevent-your-eviction-1844419671)
+> 原文：<https://lifehacker.com/how-to-try-and-prevent-your-eviction-1844419671>
 
 随着联邦福利一寸一寸地接近到期，数百万美国人仍在找工作。上周，又有 130 万人首次申领失业保险金。如果没有延期支付抵押贷款的选择，租房者可能会特别脆弱。
 

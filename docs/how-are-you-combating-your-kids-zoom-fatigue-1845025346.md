@@ -1,6 +1,6 @@
 # 你是如何对抗你孩子的变焦疲劳的？
 
-> 原文:[https://life hacker . com/how-are-you-fighting-your-kids-zoom-fatigue-1845025346](https://lifehacker.com/how-are-you-combating-your-kids-zoom-fatigue-1845025346)
+> 原文：<https://lifehacker.com/how-are-you-combating-your-kids-zoom-fatigue-1845025346>
 
 回到春天，没过多久，我 9 岁的儿子就患上了我现在认为的变焦疲劳症。他不介意在网上完成作业，也不介意我为他整理的的课程表。但是什么时候开始和他的班级一起缩放呢？哥们儿不感兴趣。
 

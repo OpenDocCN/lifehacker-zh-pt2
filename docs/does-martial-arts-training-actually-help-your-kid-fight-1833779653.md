@@ -1,6 +1,6 @@
 # does martial arts training actually help your kid fight 1833779653
 
-> 原文:[https://life hacker . com/does-武术-训练-实际上-帮助你的孩子-战斗-1833779653](https://lifehacker.com/does-martial-arts-training-actually-help-your-kid-fight-1833779653)
+> 原文：<https://lifehacker.com/does-martial-arts-training-actually-help-your-kid-fight-1833779653>
 
 自从 20 世纪 70 年代的空手道热潮以来，无数的孩子们拳打脚踢，大喊“嗨呀！”在全美的商业街道场和社区中心武术班。武术训练培养纪律，鼓励身体健康，并让你的孩子每周有几个小时不烦你。但是作为父母，你可能会想:这种训练真的有助于孩子们反击吗，他们需要反击吗？掌握福建白鹤 karate12*形*的孩子比选择在 Y 参加壁球班的孩子更有机会对抗校园恶霸吗？如果是这样的话，那么无数种战斗方式中哪一种最有效呢？
 

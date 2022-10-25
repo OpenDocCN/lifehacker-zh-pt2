@@ -1,6 +1,6 @@
 # 父母如何对抗性别刻板印象
 
-> 原文:[https://life hacker . com/how-parents-can-fight-gender-stereotypes-1839225144](https://lifehacker.com/how-parents-can-fight-gender-stereotypes-1839225144)
+> 原文：<https://lifehacker.com/how-parents-can-fight-gender-stereotypes-1839225144>
 
 父母有足够的理由反对传统的性别刻板印象。我们希望我们的女孩从事 STEM 职业，我们希望我们的男孩在表达悲伤或恐惧时感到舒适，我们也希望不要假设他们的外表性别是他们内在的性别认同。
 

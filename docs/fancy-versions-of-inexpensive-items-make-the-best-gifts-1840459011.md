@@ -1,6 +1,6 @@
 # 廉价物品的花哨版本是最好的礼物
 
-> 原文:[https://life hacker . com/fancy-versions-of-friend-items-make-the-best-gifts-1840459011](https://lifehacker.com/fancy-versions-of-inexpensive-items-make-the-best-gifts-1840459011)
+> 原文：<https://lifehacker.com/fancy-versions-of-inexpensive-items-make-the-best-gifts-1840459011>
 
 如果你今年在预算内进行假日购物，尽可能把钱花在质量最好的产品上。买最好的便宜的东西，而不是质量差的昂贵的东西。
 

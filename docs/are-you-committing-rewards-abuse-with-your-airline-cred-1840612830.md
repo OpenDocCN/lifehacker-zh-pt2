@@ -1,6 +1,6 @@
 # 你用你的航空信用卡犯了“滥用奖励”吗？
 
-> 原文:[https://life hacker . com/are-you-committing-rewards-abuse-with-you-airline-cred-1840612830](https://lifehacker.com/are-you-committing-rewards-abuse-with-your-airline-cred-1840612830)
+> 原文：<https://lifehacker.com/are-you-committing-rewards-abuse-with-your-airline-cred-1840612830>
 
 试图利用信用卡奖励系统存在明显的风险。你可能会搞砸你获得注册奖金的计算，最终负债累累。你的信用评分可能会受到打击。您的积分可能会贬值，或者卡的合作伙伴可能会被调换。
 

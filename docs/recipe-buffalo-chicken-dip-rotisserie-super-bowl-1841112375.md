@@ -1,6 +1,6 @@
 # 在你的布法罗鸡肉蘸酱中使用烤鸡
 
-> 原文:[https://the take out . com/recipe-buffalo-chicken-dip-rotisserie-super-bowl-1841112375](https://thetakeout.com/recipe-buffalo-chicken-dip-rotisserie-super-bowl-1841112375)
+> 原文：<https://thetakeout.com/recipe-buffalo-chicken-dip-rotisserie-super-bowl-1841112375>
 
 布法罗鸡汁。你觉得《死亡日记》里会有这东西的配方吗？当然，它很美味，但是当你在做它的时候，你没有感觉到你可能在做一些引发世界末日的事情吗？令人不安的奶油奶酪、鸡肉和牧场一起在同一个碗里晃动，听起来像一种邪恶的、被遗忘的语言，当说出时，将所有邪恶释放到世界上。这道开胃菜的诅咒也是它的祝福:它消除了你的压抑。吃负责任量的布法罗鸡汁是不存在的。一旦你把一片薯片舀进一碗中，你还不如抓一些披萨、冰淇淋、酒、香烟、氯胺酮——这些都在桌上，所有的赌注都取消了。恭喜你。
 

@@ -1,6 +1,6 @@
 # 为圣诞节早上做这些薄烤盘早餐
 
-> 原文:[https://life hacker . com/make-these-sheet-pan-breakfast-sliders-for-Christmas-mo-1831061103](https://lifehacker.com/make-these-sheet-pan-breakfast-sliders-for-christmas-mo-1831061103)
+> 原文：<https://lifehacker.com/make-these-sheet-pan-breakfast-sliders-for-christmas-mo-1831061103>
 
 你知道我喜欢在圣诞节做什么吗？吃饭。你知道我不喜欢在圣诞节做什么吗？打扫卫生。你知道是什么让我吃很多东西却很少打扫卫生吗？你在上面看到的分开的熏肉、鸡蛋和奶酪片，完全在一个平底锅里烹制。
 

@@ -1,6 +1,6 @@
 # 你能在飞机上买到第二个座位吗？
 
-> 原文:[https://life hacker . com/can-you-buy-a second-seat on-a-flight-just-as-1840245867](https://lifehacker.com/can-you-buy-a-second-seat-on-a-flight-just-because-1840245867)
+> 原文：<https://lifehacker.com/can-you-buy-a-second-seat-on-a-flight-just-because-1840245867>
 
 当你坐在拥挤的航班上，膝盖抱着前面的乘客时，你可能会开始幻想如果飞行不是如此痛苦的经历会是什么样子。在 [埃利奥特倡导](https://forum.elliott.org/threads/can-i-purchase-a-middle-seat-without-having-a-person-actually-sit-in-it.11491/) 论坛上，用户 Qorx 有了一个想法:为什么不买下你旁边的座位，这样你就可以伸展身体，让在如此狭小的空间里飞行不那么令人窒息？
 

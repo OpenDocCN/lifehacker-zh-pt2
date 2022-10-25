@@ -1,6 +1,6 @@
 # 如何在没有有线电视的情况下播放 2020 玫瑰碗
 
-> 原文:[https://life hacker . com/how-to-stream-the-2020-rose-bowl-without-cable-1840762483](https://lifehacker.com/how-to-stream-the-2020-rose-bowl-without-cable-1840762483)
+> 原文：<https://lifehacker.com/how-to-stream-the-2020-rose-bowl-without-cable-1840762483>
 
 第 106 届玫瑰杯今晚在美国东部时间下午 5 点/太平洋时间下午 2 点开始。今年的新年比赛是俄勒冈鸭子队对威斯康星獾队。这场比赛在加州的帕萨迪纳举行，并在 ESPN 播出。
 

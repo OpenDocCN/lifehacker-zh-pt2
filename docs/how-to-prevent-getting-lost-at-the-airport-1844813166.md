@@ -1,6 +1,6 @@
 # 如何防止在机场迷路
 
-> 原文:[https://life hacker . com/how-to-prevent-to-lost-in-the-airport-1844813166](https://lifehacker.com/how-to-prevent-getting-lost-at-the-airport-1844813166)
+> 原文：<https://lifehacker.com/how-to-prevent-getting-lost-at-the-airport-1844813166>
 
 在经历了几个月的历史低位空中旅行后，人们又开始慢慢飞行了。根据 [运输安全管理局(TSA)](https://www.tsa.gov/coronavirus/passenger-throughput)的数据，8 月 16 日，将近 863，000 人通过他们的机场检查站——这是自 3 月 17 日以来人数最多的一次。关于商业航空公司的未来以及新冠肺炎病毒在飞机上传播的细节还有许多未知，但在这一点上，可以肯定地说，没有人想在机场花任何额外的时间。(尽管这在非疫情时代也是绝对正确的。)因为机场可能很难导航，这里有一些提示可以帮助你防止迷路。
 

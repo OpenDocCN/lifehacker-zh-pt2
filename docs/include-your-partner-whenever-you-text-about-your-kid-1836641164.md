@@ -1,6 +1,6 @@
 # 每当你发关于你孩子的短信时，都要包括你的伴侣
 
-> 原文:[https://life hacker . com/include-your-partner-when-you-text-about-your-kid-1836641164](https://lifehacker.com/include-your-partner-whenever-you-text-about-your-kid-1836641164)
+> 原文：<https://lifehacker.com/include-your-partner-whenever-you-text-about-your-kid-1836641164>
 
 如果你在给某人发关于育儿任务的短信——一个照顾者、一个家庭教师、一个有玩伴的父母，任何时候你和第三方谈论你的孩子——那么把你的伴侣也包括在短信里。这就像在电子邮件线程中 CCing 它们，只是你可能不太习惯。它让你保持一致。如果所有的通知都很烦人，那也是问题的关键。
 

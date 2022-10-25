@@ -1,6 +1,6 @@
 # 旅游保险值得吗？
 
-> 原文:[https://life hacker . com/do-I-really-need-to-buy-travel-insurance-1674681487](https://lifehacker.com/do-i-really-need-to-buy-travel-insurance-1674681487)
+> 原文：<https://lifehacker.com/do-i-really-need-to-buy-travel-insurance-1674681487>
 
 每次你购买机票、邮轮旅行或其他旅行机票时，你最终都会被问及同样的问题:你想多花几美元就增加一份旅行保险吗？在那一刻，你可能对买票和制定计划感到兴奋，而不是想办法为保险多付钱——到底是什么？
 

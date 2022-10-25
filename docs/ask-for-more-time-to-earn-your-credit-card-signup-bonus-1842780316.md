@@ -1,6 +1,6 @@
 # 请求更多时间来赢取您的信用卡注册奖金
 
-> 原文:[https://life hacker . com/ask-for-more-time-to-earn-your-credit-card-sign-bonus-1842780316](https://lifehacker.com/ask-for-more-time-to-earn-your-credit-card-signup-bonus-1842780316)
+> 原文：<https://lifehacker.com/ask-for-more-time-to-earn-your-credit-card-signup-bonus-1842780316>
 
 还记得您注册了一张新的 rewards 信用卡并获得注册奖金的情景吗？你预订一系列航班、支付每天通勤的油费，或者在每周去杂货店购物以获得积分的计划可能已经飞出窗外，你甚至看不到它们。现在你有了一张新的信用卡，但却没有什么奖励——收入潜力可言。
 

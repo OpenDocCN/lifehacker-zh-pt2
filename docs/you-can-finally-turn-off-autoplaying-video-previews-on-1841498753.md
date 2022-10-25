@@ -1,6 +1,6 @@
 # 如何最终关闭网飞的自动播放视频预览
 
-> 原文:[https://life hacker . com/you-can-finally-turn-off-autoplay-video-previews-on-1841498753](https://lifehacker.com/you-can-finally-turn-off-autoplaying-video-previews-on-1841498753)
+> 原文：<https://lifehacker.com/you-can-finally-turn-off-autoplaying-video-previews-on-1841498753>
 
 自从我开始看《网飞》以来，我就一直在等待这部电影，我很高兴这一天终于到来了。网飞最终屈服于大众需求，发布了一项功能，允许你关闭所有该死的自动播放预览。
 

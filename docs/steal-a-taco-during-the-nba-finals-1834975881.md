@@ -1,6 +1,6 @@
 # 在 NBA 总决赛期间偷一个玉米卷
 
-> 原文:[https://life hacker . com/steal-a-taco-in-the-NBA-finals-1834975881](https://lifehacker.com/steal-a-taco-during-the-nba-finals-1834975881)
+> 原文：<https://lifehacker.com/steal-a-taco-during-the-nba-finals-1834975881>
 
 如果你是 NBA(或 MLB)球迷，你可能对塔可钟在高风险比赛期间赠送玉米饼的倾向很熟悉。如果你不是一个粉丝，你仍然可以通过它的“偷一个游戏，偷一个玉米卷”促销活动给自己买一个免费的玉米卷，如果你能强迫自己注意的话。
 

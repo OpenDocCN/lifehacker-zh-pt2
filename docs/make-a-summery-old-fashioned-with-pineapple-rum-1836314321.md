@@ -1,6 +1,6 @@
 # 用菠萝朗姆酒做一杯夏季老酒
 
-> 原文:[https://life hacker . com/make-a-summary-old-fashied-with-菠萝朗姆酒-1836314321](https://lifehacker.com/make-a-summery-old-fashioned-with-pineapple-rum-1836314321)
+> 原文：<https://lifehacker.com/make-a-summery-old-fashioned-with-pineapple-rum-1836314321>
 
 不管天气如何，我都可以喝老式的饮料，但有时根据季节调整饮料也很有趣。老式的深色朗姆酒已经是很好的选择，但是老式的菠萝朗姆酒更好。
 

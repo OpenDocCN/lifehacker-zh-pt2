@@ -1,6 +1,6 @@
 # 大学延期一个学期还来得及吗？
 
-> 原文:[https://life hacker . com/is-it-a-it-a-tain-a-late-to-defer-college-a-semestic-1844168024](https://lifehacker.com/is-it-too-late-to-defer-college-for-a-semester-1844168024)
+> 原文：<https://lifehacker.com/is-it-too-late-to-defer-college-for-a-semester-1844168024>
 
 上大学是一个财务决定，它会影响毕业生和他们的家庭几年，甚至几十年。
 

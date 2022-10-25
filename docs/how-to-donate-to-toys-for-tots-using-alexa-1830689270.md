@@ -1,6 +1,6 @@
 # 如何使用 Alexa 向儿童玩具捐款
 
-> 原文:[https://life hacker . com/how-to-donate-to-toys-for-tots-using-Alexa-1830689270](https://lifehacker.com/how-to-donate-to-toys-for-tots-using-alexa-1830689270)
+> 原文：<https://lifehacker.com/how-to-donate-to-toys-for-tots-using-alexa-1830689270>
 
 你现在可以使用 Alexa 来捐赠玩具。在周二，亚马逊为其虚拟助手推出了一项新功能，允许你向有需要的孩子捐赠玩具，只需说，“Alexa，捐给儿童玩具吧。当你这样做的时候，Alexa 会建议你可以购买的实际玩具发送到该组织。
 

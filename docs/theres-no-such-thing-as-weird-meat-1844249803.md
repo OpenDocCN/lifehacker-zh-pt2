@@ -1,6 +1,6 @@
 # theres no such thing as weird meat 1844249803
 
-> 原文:[https://life hacker . com/theres-no-the-some-the-some-the-some-the-some-the-some-the-some-the-thing-the-this-the-some-the-some-the-this-this-the-thing-the-soon-the-soon-the-soon-soon-break-1844249803](https://lifehacker.com/theres-no-such-thing-as-weird-meat-1844249803)
+> 原文：<https://lifehacker.com/theres-no-such-thing-as-weird-meat-1844249803>
 
 大约三年前，我从猪头上取下一张猪脸，用香草、皮和香料将它包起来，放在料酒里浸泡了几个小时，做了一份猪肉罐头。这个过程被录了下来，拍成了视频(我第一次为 Lifehacker)，让很多人非常气愤。
 

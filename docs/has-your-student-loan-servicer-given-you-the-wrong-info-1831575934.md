@@ -1,6 +1,6 @@
 # 你的学生贷款服务商是否给了你错误的贷款信息？
 
-> 原文:[https://life hacker . com/has-your-student-loan-service-given-you-the-error-info-1831575934](https://lifehacker.com/has-your-student-loan-servicer-given-you-the-wrong-info-1831575934)
+> 原文：<https://lifehacker.com/has-your-student-loan-servicer-given-you-the-wrong-info-1831575934>
 
 Lifehacker 在几乎所有关于学生贷款的帖子中给出的一条建议是，确保你跟踪所有的付款，并反复检查你的服务人员没有弄乱你的任何信息或还款进度。这些 [机构搞砸他们负责执行的](https://studentloanhero.com/featured/student-loan-servicer-gives-wrong/) 流程的地方变得如此普遍，以至于我们理所当然地认为它会发生。
 

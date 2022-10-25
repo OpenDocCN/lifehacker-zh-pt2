@@ -1,6 +1,6 @@
 # 如果你的退休金超过限额，会发生什么
 
-> 原文:[https://life hacker . com/here-s-what-shake-if-you-go-over-the-limit-for retire-1840795706](https://lifehacker.com/here-s-what-happens-if-you-go-over-the-limit-for-retire-1840795706)
+> 原文：<https://lifehacker.com/here-s-what-happens-if-you-go-over-the-limit-for-retire-1840795706>
 
 当你第一次开始为退休储蓄时，你可能会认为你永远也不会达到“最大化”你的年度贡献的地步。但也许从那以后你的收入已经大幅提高，或者你已经优先考虑为退休储蓄。你可能会看到自己接近每年 19500 美元的 401(k)养老金上限，或者 6000 美元的个人退休账户上限。
 

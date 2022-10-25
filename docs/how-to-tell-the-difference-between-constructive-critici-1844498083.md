@@ -1,6 +1,6 @@
 # 如何区分建设性的批评和欺凌
 
-> 原文:[https://life hacker . com/how-to-tell-the-difference-constructive-crisis-1844498083](https://lifehacker.com/how-to-tell-the-difference-between-constructive-critici-1844498083)
+> 原文：<https://lifehacker.com/how-to-tell-the-difference-between-constructive-critici-1844498083>
 
 在“取消文化”中，生活在一个极端政治极化的社会中，收到来自其他人的反馈并不罕见。事实上，即使是“反馈”这个词也感觉很委婉，因为现在这么多的交流——无论是在社交媒体上还是面对面——都可以变得热烈起来(说得委婉一点)。虽然被告知你做错了什么和/或在某些方面可以改进通常感觉不好，但从某人那里得到建设性的批评和被欺负是有区别的。我们脆弱的自我会让即使是温和的批评也感觉像是人身攻击，但这不一定是正在发生的事情。那么建设性的批评和恃强凌弱有什么区别呢？这里有一些有帮助的见解。
 

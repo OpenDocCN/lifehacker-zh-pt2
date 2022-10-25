@@ -1,6 +1,6 @@
 # 放下这些稀缺思维的误区
 
-> 原文:[https://life hacker . com/let-go-the-thingness-mind-myths-1831573848](https://lifehacker.com/let-go-of-these-scarcity-mindset-myths-1831573848)
+> 原文：<https://lifehacker.com/let-go-of-these-scarcity-mindset-myths-1831573848>
 
 今天关于生产力的讨论分成了两个阵营:第一个阵营是像我们的 [科技霸主](https://twocents.lifehacker.com/do-not-take-this-twitter-exec-s-vacation-advice-1821423513) 这样的人，他们继续鼓吹早上 4 点起床到 [，花更多的时间工作](https://twitter.com/elonmusk/status/1067173497909141504?lang=en) ，少做其他事情会让你成为天才。第二种是由那些像 Lifehacker 的工作人员一样的人组成的，他们说，嘿，也许我们应该后退一步，在我们都耗尽精力之前享受我们的生活。
 

@@ -1,6 +1,6 @@
 # Disney+可能无法在您的设备上运行
 
-> 原文:[https://life hacker . com/Disney-may-not-work-on-your-device-1839229645](https://lifehacker.com/disney-might-not-work-on-your-device-1839229645)
+> 原文：<https://lifehacker.com/disney-might-not-work-on-your-device-1839229645>
 
 那些期待着 [即将到来的迪士尼+](https://lifehacker.com/see-what-s-coming-to-disney-plus-before-it-launches-1838178773) 的人可能想先仔细检查一下他们的首选设备是否真的可以运行流媒体服务。 [根据 Linux 开发者 Hansdegoede](https://hansdegoede.livejournal.com/22338.html) 的说法，Linux PCs、Chromebooks 和一些 Android 设备无法满足迪士尼通过网络浏览器访问 Disney+所必需的严格 DRM 要求。
 

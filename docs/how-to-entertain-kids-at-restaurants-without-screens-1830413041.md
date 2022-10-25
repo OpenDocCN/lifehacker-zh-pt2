@@ -1,6 +1,6 @@
 # 如何在没有屏幕的餐馆里娱乐孩子
 
-> 原文:[https://life hacker . com/how-to-entertain-kids-in-restaurants-without-screens-1830413041](https://lifehacker.com/how-to-entertain-kids-at-restaurants-without-screens-1830413041)
+> 原文：<https://lifehacker.com/how-to-entertain-kids-at-restaurants-without-screens-1830413041>
 
 想和你的家人在外面享受一顿美食，没有抱怨和抱怨的屏幕吗？好吧，我们不是奇迹工作者，但每个喜欢外出就餐的父母都应该在车里藏一个“餐厅包”。
 

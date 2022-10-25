@@ -1,6 +1,6 @@
 # Itch.io 以 5 美元的价格出售 700 多种游戏，以支持种族公正和平等
 
-> 原文:[https://kotaku . com/itch-io-is-selling-a-bundle-of-over-700-for-5-t-1843936605](https://kotaku.com/itch-io-is-selling-a-bundle-of-over-700-games-for-5-t-1843936605)
+> 原文：<https://kotaku.com/itch-io-is-selling-a-bundle-of-over-700-games-for-5-t-1843936605>
 
 独立游戏商店 Itch.io 已经整合了一个巨大的捆绑包，包含 742 个独立游戏，价值超过 3400 美元，并以 5 美元的价格出售整个产品，以帮助筹集资金，支持全美有色人种协进会法律辩护和教育基金和社区保释基金。
 

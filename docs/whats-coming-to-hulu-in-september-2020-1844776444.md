@@ -1,6 +1,6 @@
 # 2020 年 9 月，Hulu 将迎来什么
 
-> 原文:[https://life hacker . com/whats-coming-to-Hulu-in-September-2020-1844776444](https://lifehacker.com/whats-coming-to-hulu-in-september-2020-1844776444)
+> 原文：<https://lifehacker.com/whats-coming-to-hulu-in-september-2020-1844776444>
 
 在我成长的过程中，九月*意味着*什么的。凉爽的秋天( [不](https://www.greenvilleonline.com/story/news/2019/09/23/sc-gets-hotter-columbia-greenville-anderson-extreme-heat-national-weather-service-forecast/2120020001/) )，返校( [不](https://www.msn.com/en-gb/news/us/quarantine-requirements-may-delay-return-to-in-person-school/ar-BB182yMQ) )，新的电视节目在所有的网络上首映(嗯，有点)。即使关于 2020 年第九个月的一切都很糟糕，至少我们在 Hulu 上有一些东西可以看，Hulu 正在首播一个有趣的新系列，并带回了我最喜欢的一个。
 

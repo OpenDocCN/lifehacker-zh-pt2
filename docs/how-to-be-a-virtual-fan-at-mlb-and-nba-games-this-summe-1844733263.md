@@ -1,6 +1,6 @@
 # 如何成为今夏 MLB 和 NBA 比赛的“虚拟球迷”
 
-> 原文:[https://life hacker . com/how-to-be-a-virtual fan-at-MLB-and-NBA-games-this-summe-1844733263](https://lifehacker.com/how-to-be-a-virtual-fan-at-mlb-and-nba-games-this-summe-1844733263)
+> 原文：<https://lifehacker.com/how-to-be-a-virtual-fan-at-mlb-and-nba-games-this-summe-1844733263>
 
 职业体育是一些人非常喜欢的事情。鉴于过去几个月由于冠状病毒的爆发，大部分比赛都被取消了，粉丝们开始(可以理解)不安了。好消息是一些职业运动——像棒球、篮球和曲棍球——已经重新开始。坏消息是，就像我们生活中的其他事情一样，球迷们将无法亲自观看比赛。
 

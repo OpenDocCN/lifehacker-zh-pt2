@@ -1,6 +1,6 @@
 # 如何帮助孩子从恐怖电影中走出来
 
-> 原文:[https://life hacker . com/how-to-help-kids-get-over-a-terrible-movie-1839039285](https://lifehacker.com/how-to-help-kids-get-over-a-scary-movie-1839039285)
+> 原文：<https://lifehacker.com/how-to-help-kids-get-over-a-scary-movie-1839039285>
 
 尽管我们尽了最大努力不在孩子很小的时候吓到他们，但是我们的孩子还是有朋友的。这些朋友有年长的兄弟姐妹或 YouTube，并且经常非常乐意向他们介绍我们童年时代的恐怖坏蛋——弗雷迪·克鲁格、彭尼威斯、迈克尔·梅耶斯、杰森·沃赫斯。还记得小妖精有多恐怖吗？？
 

@@ -1,6 +1,6 @@
 # 将蔬菜浸入拉面粉中
 
-> 原文:[https://life hacker . com/dip-vegetables-into-ramen-powder-1844481642](https://lifehacker.com/dip-vegetables-into-ramen-powder-1844481642)
+> 原文：<https://lifehacker.com/dip-vegetables-into-ramen-powder-1844481642>
 
 当你想到“蘸”食物时，你可能会想象将它们浸入一碗奶油状、通常呈鲜味的蘸酱中。这样做通常是为了让薯条更美味，让蔬菜更令人兴奋，但你不一定需要酸奶油来实现后者。你所需要的是一种精细的、超级美味的粉末，它会附着在蔬菜的新鲜切面上。你需要的只是拉面粉。
 

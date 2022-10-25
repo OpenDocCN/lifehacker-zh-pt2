@@ -1,6 +1,6 @@
 # 享受这款桃子薄荷鸡尾酒，没有特别的理由
 
-> 原文:[https://life hacker . com/enjoy-this-peach-mint-cocktail-for-no-special-reason-1838538519](https://lifehacker.com/enjoy-this-peach-mint-cocktail-for-no-particular-reason-1838538519)
+> 原文：<https://lifehacker.com/enjoy-this-peach-mint-cocktail-for-no-particular-reason-1838538519>
 
 这是多么美好的一周啊。发生了很多事。我不知道你喜欢如何放松，但如果你的周末计划包括了解新闻和政治话语，我建议你在登录前给自己做一杯美味的桃子薄荷鸡尾酒。
 

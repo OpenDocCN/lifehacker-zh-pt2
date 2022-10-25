@@ -1,6 +1,6 @@
 # 新的沃尔玛信用卡只有 12 个月的有效期
 
-> 原文:[https://life hacker . com/the-new-Walmart-credit-card-is-only-used-12 个月-1838221897](https://lifehacker.com/the-new-walmart-credit-card-is-only-useful-for-12-month-1838221897)
+> 原文：<https://lifehacker.com/the-new-walmart-credit-card-is-only-useful-for-12-month-1838221897>
 
 沃尔玛有两张新的信用卡 将于下周发行，这两张信用卡都承诺给零售商的粉丝带来丰厚的回报。但现在返现信用卡领域竞争异常激烈，如果你考虑在假日购物季前开一张新卡，沃尔玛奖励计划的一大亮点是它只是一个一般的选择。
 

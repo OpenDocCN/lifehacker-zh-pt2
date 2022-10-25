@@ -1,6 +1,6 @@
 # 如何哄骗你的孩子成为一个爱书的人
 
-> 原文:[https://life hacker . com/how-to-trick-your-kid-into-a-book-lover-1834876385](https://lifehacker.com/how-to-trick-your-kid-into-becoming-a-book-lover-1834876385)
+> 原文：<https://lifehacker.com/how-to-trick-your-kid-into-becoming-a-book-lover-1834876385>
 
 我一直是个超级书呆子，所以我的育儿梦肯定包括我的孩子像我一样对书着迷。我喜欢当我在故事中迷失自己时，真实世界逐渐消失的体验，我想让我的孩子也知道这种感觉。但是当我的儿子卢卡斯 8 岁的时候，也就是我开始爱上书的时候，他并没有表现出太多的兴趣。从出生开始，我就给他读书，尽管他喜欢一些图画书和非小说类的书籍，但我无法让他一头扎进一本真正的章节书，无论我向他保证他会多么喜欢。我不想就此事一直纠缠他，因为那只会使他更加固执己见。我需要变得有创造力。
 

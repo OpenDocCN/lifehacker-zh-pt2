@@ -1,6 +1,6 @@
 # 考虑一下把你剩下的意大利面扔掉
 
-> 原文:[https://life hacker . com/consider-waffling-your-left-spaghetti-1844224533](https://lifehacker.com/consider-waffling-your-leftover-spaghetti-1844224533)
+> 原文：<https://lifehacker.com/consider-waffling-your-leftover-spaghetti-1844224533>
 
 剩下的意大利面和最好的剩菜放在一起。在冰箱里放一夜，和酱料的味道融合在一起，将浸泡在面条里，渗透进去。我的一个前男友非常喜欢吃剩下的意大利面，他直接从冰箱里凉着吃，这很好。 我不知道吃剩的意大利面有什么不好的方法，事实上——但是华夫饼剩的意大利面是最好的之一。
 

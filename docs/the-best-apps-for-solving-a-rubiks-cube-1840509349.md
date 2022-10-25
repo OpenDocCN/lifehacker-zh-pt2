@@ -1,6 +1,6 @@
 # 解魔方的最佳应用
 
-> 原文:[https://life hacker . com/the-best-apps-for-solving-a-Rubik-cube-1840509349](https://lifehacker.com/the-best-apps-for-solving-a-rubiks-cube-1840509349)
+> 原文：<https://lifehacker.com/the-best-apps-for-solving-a-rubiks-cube-1840509349>
 
 一个魔方或“魔方”可以有 43 万亿种配置方式，每种配置技术上可以在 [20 步或更少](http://www.cube20.org/) 内解决。实际上，最专业的人类立方体解算者通常需要 40 步以上。但是这些移动应用程序可以更快地解决它——或者它们可以像专家一样教你如何解决。这些是最好的。
 

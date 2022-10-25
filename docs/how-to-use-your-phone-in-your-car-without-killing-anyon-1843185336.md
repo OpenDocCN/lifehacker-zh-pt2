@@ -1,6 +1,6 @@
 # 如何在不杀人的情况下在车里使用手机
 
-> 原文:[https://life hacker . com/how-to-use-your-phone-in-your-car-without-killing-any on-1843185336](https://lifehacker.com/how-to-use-your-phone-in-your-car-without-killing-anyon-1843185336)
+> 原文：<https://lifehacker.com/how-to-use-your-phone-in-your-car-without-killing-anyon-1843185336>
 
 分心只是一个指纹或屏幕图案一直在消失——当你开车时，这是不安全的。美国国家公路交通安全管理局(NHTSA) [报告](https://www.nhtsa.gov/risky-driving/distracted-driving) 称，2018 年有 40 万人在分心驾驶事故中受伤，2841 人死亡。
 

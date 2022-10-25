@@ -1,6 +1,6 @@
 # 2020 年 2 月 10 日这一周网飞有什么新消息
 
-> 原文:[https://life hacker . com/whats-new-on-the-week-of-two-10-2020-1841520063](https://lifehacker.com/whats-new-on-netflix-the-week-of-february-10-2020-1841520063)
+> 原文：<https://lifehacker.com/whats-new-on-netflix-the-week-of-february-10-2020-1841520063>
 
 你知道，当网飞称某事为“为期三周的事件”时，那一定是件大事。如何大？我将收听前杰西卡·辛普森·尼克·拉基先生和他的妻子凡妮莎的“社会实验”*爱情是盲目的*(周四，正好赶上情人节，情侣们！！！)来了解一下。该节目的前提是创造持久的关系:情侣们坠入爱河并订婚*，却不知道他们的爱人长什么样*！多浪漫啊！
 

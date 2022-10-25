@@ -1,6 +1,6 @@
 # 现在你可以每月花 9.99 美元购买 Spotify Premium 和 Hulu
 
-> 原文:[https://life hacker . com/now-you-can-get-Spotify-premium-and-Hulu-for-9-99-a-mo-1833233717](https://lifehacker.com/now-you-can-get-spotify-premium-and-hulu-for-9-99-a-mo-1833233717)
+> 原文：<https://lifehacker.com/now-you-can-get-spotify-premium-and-hulu-for-9-99-a-mo-1833233717>
 
 Spotify 和 Hulu 已经降低了价格，将两种服务合起来每月 9.99 美元。
 

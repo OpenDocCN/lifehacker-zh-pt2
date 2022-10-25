@@ -1,6 +1,6 @@
 # 最好的防晒霜是你会涂的那种
 
-> 原文:[https://life hacker . com/the-best-sun-the-one-the-you-wear-1835945471](https://lifehacker.com/the-best-sunscreen-is-the-one-youll-wear-1835945471)
+> 原文：<https://lifehacker.com/the-best-sunscreen-is-the-one-youll-wear-1835945471>
 
 [面霜或喷雾](https://lifehacker.com/sunscreen-showdown-creams-vs-sprays-1784495399) 、矿物或化学成分、高防晒系数与否——有很多特性让你*可以*选择防晒霜。但是从长远来看，重要的是你是否真的戴上它，并且戴够了。
 

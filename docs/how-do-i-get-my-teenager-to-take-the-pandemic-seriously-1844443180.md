@@ -1,6 +1,6 @@
 # how do i get my teenager to take the pandemic seriously 1844443180
 
-> 原文:[https://life hacker . com/how-do-I-get-my-future-to-take-the-疫情认真对待-1844443180](https://lifehacker.com/how-do-i-get-my-teenager-to-take-the-pandemic-seriously-1844443180)
+> 原文：<https://lifehacker.com/how-do-i-get-my-teenager-to-take-the-pandemic-seriously-1844443180>
 
 在我们的生活中，都有人没有认真对待疫情。一个不断邀请你参加非远距离室内晚宴的朋友，一个把口罩戴在下巴上的邻居，一个拒绝承认他们是高风险的父母。但是，当你每周(或每天)与你自己的孩子发生争执时，你该怎么办呢，尤其是如果他们看起来已经足够大，足够聪明，应该更懂事的时候？
 

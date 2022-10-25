@@ -1,6 +1,6 @@
 # 奥利维亚·维尔德想让旧衣服变得凉爽(并让它们远离垃圾填埋场)
 
-> 原文:[https://gizmodo . com/Olivia-Wilde-wants-to-make-used-clothes-cool-and-keep-1834139360](https://gizmodo.com/olivia-wilde-wants-to-make-used-clothes-cool-and-keep-1834139360)
+> 原文：<https://gizmodo.com/olivia-wilde-wants-to-make-used-clothes-cool-and-keep-1834139360>
 
 节约者知道:不是所有穿过的衣服都是可爱的。在当地寄售店的衣架上找到那些隐藏的宝贝会很累。现在，女演员奥利维亚·维尔德正试图通过为我们找到可爱的旧衣服并给它们添加一些额外的东西来让我们的生活变得更轻松，这是她与在线旧货店 thredUP 新合作的一部分。
 

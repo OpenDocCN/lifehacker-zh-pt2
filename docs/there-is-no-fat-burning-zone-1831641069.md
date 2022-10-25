@@ -1,6 +1,6 @@
 # 没有“脂肪燃烧区”
 
-> 原文:[https://life hacker . com/there-is-no-fat-burning-zone-1831641069](https://lifehacker.com/there-is-no-fat-burning-zone-1831641069)
+> 原文：<https://lifehacker.com/there-is-no-fat-burning-zone-1831641069>
 
 所有的有氧健身器都在骗你。可能会有一些椭圆运动承诺让你保持在“脂肪燃烧区”，跑步机上的图表会告诉你，当你的心脏以一定的速率跳动时，这个区域存在。你做梦去吧。脂肪燃烧区是一个神话。
 

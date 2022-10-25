@@ -1,6 +1,6 @@
 # 什么时候为转机航班重新检查你的提包
 
-> 原文:[https://life hacker . com/when-to-re-check-your ' s bag for a connecting-flight-1836378252](https://lifehacker.com/when-to-re-check-your-bag-for-a-connecting-flight-1836378252)
+> 原文：<https://lifehacker.com/when-to-re-check-your-bag-for-a-connecting-flight-1836378252>
 
 周末，我学到了一个艰难的旅行教训:从海外旅行回来时，不要忘记在国内停留时拿起你的包。在离开波士顿机场的安检后，我意识到了这一点，并疯狂地向达美航空公司的服务员求助。尽管我尽了最大努力，并承诺我一着陆它就会出现在拉瓜迪亚机场，但我的包*还是错过了我的航班。* 
 

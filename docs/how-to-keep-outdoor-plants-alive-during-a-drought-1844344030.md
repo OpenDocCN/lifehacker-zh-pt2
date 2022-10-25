@@ -1,6 +1,6 @@
 # 如何在干旱期间保持室外植物存活
 
-> 原文:[https://life hacker . com/how-to-keep-outdoor-plants-alive-during-1844344030](https://lifehacker.com/how-to-keep-outdoor-plants-alive-during-a-drought-1844344030)
+> 原文：<https://lifehacker.com/how-to-keep-outdoor-plants-alive-during-a-drought-1844344030>
 
 如果你住在一个四季分明的地方(或者更现实一点，两季:夏天和冬天)，一旦天气变暖，你可能会期待种植户外植物。但是如果没有足够的雨水，事情会变得棘手。根据国家气象局气候预测中心 的消息，整个夏天，西南部和大平原的许多地区将可能继续面临干旱状况，而新英格兰的部分地区可能会出现短期干旱。(玉米带和中西部今年夏天应该会有充足的降雨。)在正经历干旱期的地方，你可以做一些事情来保持室外植物的存活——是的，它们涉及到水。
 

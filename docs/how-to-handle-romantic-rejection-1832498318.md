@@ -1,6 +1,6 @@
 # 如何处理浪漫的拒绝
 
-> 原文:[https://life hacker . com/how-to-handle-romantic-rejection-1832498318](https://lifehacker.com/how-to-handle-romantic-rejection-1832498318)
+> 原文：<https://lifehacker.com/how-to-handle-romantic-rejection-1832498318>
 
 爱情的神秘与更大的如何摆脱被甩的神秘相比相形见绌。下面是如何开始。
 

@@ -1,6 +1,6 @@
 # 通过采用芬兰的“Sisu”方法变得更有弹性
 
-> 原文:[https://life hacker . com/being-more-resilient-by-adoption-the-Finnish-approach-1844254184](https://lifehacker.com/become-more-resilient-by-adopting-the-finnish-approach-1844254184)
+> 原文：<https://lifehacker.com/become-more-resilient-by-adopting-the-finnish-approach-1844254184>
 
 如果 2020 年教会了我们什么，那就是大多数人能够处理的事情远比他们想象的多。在过去的几个月里，我们许多人的工作、家庭和社会生活都经历了前所未有的变化。就在你认为你没有可能承担另一件事情的时候，事情发生了，不知何故我们成功了。但与此同时，今年已经过去六个月了，这已经是很大一笔了。这就是为什么现在是了解芬兰“sisu”概念的理想时机 下面是它的意思和它的帮助。
 

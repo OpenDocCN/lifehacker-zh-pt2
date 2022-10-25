@@ -1,6 +1,6 @@
 # 立即更新 iCloud for Windows 以抵御勒索软件
 
-> 原文:[https://life hacker . com/update-I cloud-for-windows-right-now-to-protect-against-1838970211](https://lifehacker.com/update-icloud-for-windows-right-now-to-protect-against-1838970211)
+> 原文：<https://lifehacker.com/update-icloud-for-windows-right-now-to-protect-against-1838970211>
 
 Windows iTunes 用户:Windows 上的苹果软件 Bonjour updater 存在严重漏洞，使得有人可能在您的系统上悄悄安装勒索软件。
 

@@ -1,6 +1,6 @@
 # 用这个网站把一篇长长的在线文章快速总结成几句话
 
-> 原文:[https://life hacker . com/quickly-summary-a-long-online-article-into-first-sent-1835037786](https://lifehacker.com/quickly-summarize-a-long-online-article-into-a-few-sent-1835037786)
+> 原文：<https://lifehacker.com/quickly-summarize-a-long-online-article-into-a-few-sent-1835037786>
 
 当一篇文章只有几百个字的时候，你可能有几分钟的时间来阅读它。当你打开一篇文章，以为只有几百篇，实际上有几千篇，你的时间可能会更有限一些。
 

@@ -1,6 +1,6 @@
 # 网络攻击者用其他人的电子邮件制作虚假的史诗游戏账号
 
-> 原文:[https://kotaku . com/cyber-attakers-is-making-phony-epic-games-accounts-wi-1834007072](https://kotaku.com/cyber-attackers-are-making-phony-epic-games-accounts-wi-1834007072)
+> 原文：<https://kotaku.com/cyber-attackers-are-making-phony-epic-games-accounts-wi-1834007072>
 
 几个月来，试图在 Epic Games 注册账户的数量不明的用户发现，他们的电子邮件地址已经以某种方式与账户关联起来。今天，Epic Games 告诉 Kotaku，罪魁祸首是一次持续的网络攻击，该公司正在努力删除这些账户，但他们没有透露有多少人受到影响。
 

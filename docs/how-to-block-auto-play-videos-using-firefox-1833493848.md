@@ -1,6 +1,6 @@
 # 如何使用 Firefox 阻止自动播放视频
 
-> 原文:[https://life hacker . com/how-to-block-auto-play-videos-using-Firefox-1833493848](https://lifehacker.com/how-to-block-auto-play-videos-using-firefox-1833493848)
+> 原文：<https://lifehacker.com/how-to-block-auto-play-videos-using-firefox-1833493848>
 
 没有人喜欢自动播放视频。你可能会看到或可能不会看到的声音的随机攻击很少是令人愉快的惊喜。本周，Firefox 获得了的更新，增加了一个新的、强大的工具来阻止来自任何网站的自动播放视频的音频，这使得网页浏览更加舒适。
 

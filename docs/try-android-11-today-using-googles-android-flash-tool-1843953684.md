@@ -1,6 +1,6 @@
 # 今天就用谷歌的“Android Flash 工具”试用 Android 11 吧
 
-> 原文:[https://life hacker . com/try-Android-11-today-using-Google-Android-flash-tool-1843953684](https://lifehacker.com/try-android-11-today-using-googles-android-flash-tool-1843953684)
+> 原文：<https://lifehacker.com/try-android-11-today-using-googles-android-flash-tool-1843953684>
 
 我们中的许多人都渴望安装 Android 11 Beta 1——下一代 Android 操作系统的公共测试版，它可能比 Android 11 开发者预览版稳定得多，包含的错误也更少。虽然一些幸运的 Android 用户已经得到了它，但我们其余的人现在还停留在 Android 11 开发者预览版 4 上。
 

@@ -1,6 +1,6 @@
 # 现在检查你的选民登记
 
-> 原文:[https://life hacker . com/check-your-voter-registration-now-1840481290](https://lifehacker.com/check-your-voter-registration-now-1840481290)
+> 原文：<https://lifehacker.com/check-your-voter-registration-now-1840481290>
 
 周一晚上，一名联邦法官批准清洗佐治亚州 31.3 万名在最近的选举中没有投票的选民，有效地将该州的注册选民人数从 740 万减少到 710 万，亚特兰大宪法日报报道 。
 

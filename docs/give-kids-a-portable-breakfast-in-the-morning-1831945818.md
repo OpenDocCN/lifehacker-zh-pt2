@@ -1,6 +1,6 @@
 # 早上给孩子们一份便携式早餐
 
-> 原文:[https://life hacker . com/give-kids-a-portable-earth-in-the-morning-1831945818](https://lifehacker.com/give-kids-a-portable-breakfast-in-the-morning-1831945818)
+> 原文：<https://lifehacker.com/give-kids-a-portable-breakfast-in-the-morning-1831945818>
 
 我的儿子胃口很大，几乎总是为下一顿饭做好准备，所以在我家，早餐之争往往更多地围绕着吃什么而不是 T2 是否吃。但是这些年来，我看着我的几个朋友一次又一次地打着*请吃点东西*的仗。
 

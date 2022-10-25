@@ -1,6 +1,6 @@
 # 如何在 Facebook Messenger 中发送引用回复
 
-> 原文:[https://life hacker . com/how-to-send-quoted-replies-in-Facebook-messenger-1833472989](https://lifehacker.com/how-to-send-quoted-replies-in-facebook-messenger-1833472989)
+> 原文：<https://lifehacker.com/how-to-send-quoted-replies-in-facebook-messenger-1833472989>
 
 在脸书管理对话将变得容易得多。这个社交巨头——当它不忙的时候 [破坏你的账户安全](https://gizmodo.com/facebook-stored-hundreds-of-millions-of-passwords-acces-1833466094)——正在为所有用户的 Messenger 对话添加一种新的线索回复功能。当您使用这些回复之一时，您将能够用文本、gif、图像和视频来回复评论。您的条目将出现在您回复的任何内容的引用版本下方，使您和最初的评论者更容易拥有侧边栏。
 

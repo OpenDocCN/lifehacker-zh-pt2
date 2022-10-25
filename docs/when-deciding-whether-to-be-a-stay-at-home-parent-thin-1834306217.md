@@ -1,6 +1,6 @@
 # 当决定是否做全职妈妈时，像经济学家一样思考
 
-> 原文:[https://life hacker . com/when-decision-you-to-be-stay-home-parent-thin-1834306217](https://lifehacker.com/when-deciding-whether-to-be-a-stay-at-home-parent-thin-1834306217)
+> 原文：<https://lifehacker.com/when-deciding-whether-to-be-a-stay-at-home-parent-thin-1834306217>
 
 辞去工作成为全职妈妈是一个非常个人化的决定，涉及许多不同的因素。当然，还有财务方面的。还有变化会如何影响你的孩子(尽管 [这是主观的](https://www.fastcompany.com/90338409/we-need-to-stop-shaming-women-for-wanting-or-not-wanting-to-return-to-work) )。
 

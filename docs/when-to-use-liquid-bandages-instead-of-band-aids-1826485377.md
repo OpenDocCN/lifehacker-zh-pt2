@@ -1,6 +1,6 @@
 # 何时使用液体绷带代替创可贴
 
-> 原文:[https://life hacker . com/when-to-use-liquid-braddins-to-inst-a-band-AIDS-1826485377](https://lifehacker.com/when-to-use-liquid-bandages-instead-of-band-aids-1826485377)
+> 原文：<https://lifehacker.com/when-to-use-liquid-bandages-instead-of-band-aids-1826485377>
 
 当我在药店无聊的时候，我会买一些我不需要的骗人的东西。这就是我最终发现液体绷带的原因，事实证明我确实需要它，因为它对我手上的小伤口、水泡和任何伤口都非常有效。液体绷带用一层直接敷在伤口上的透明液体代替了普通绷带。
 

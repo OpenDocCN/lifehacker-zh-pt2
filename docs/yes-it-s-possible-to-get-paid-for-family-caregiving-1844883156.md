@@ -1,6 +1,6 @@
 # 是的，家庭护理有可能获得报酬
 
-> 原文:[https://life hacker . com/yes-it-s-possible-to-get-payed for-family-caring-1844883156](https://lifehacker.com/yes-it-s-possible-to-get-paid-for-family-caregiving-1844883156)
+> 原文：<https://lifehacker.com/yes-it-s-possible-to-get-paid-for-family-caregiving-1844883156>
 
 在正常情况下，护理是一种负担——对许多家庭来说，疫情只会让事情变得更加困难。美国退休人员协会最近的一项研究发现，几乎五分之一的美国人无偿照顾另一个成年人。同样比例的人报告说，由于护理，他们的经济压力很大，原因很容易理解: [美国退休人员协会报道](https://www.aarp.org/caregiving/financial-legal/info-2019/out-of-pocket-costs.html#:~:text=The%20study%20found%20that%20family,more%20from%20the%20care%20recipient.) 你每年可能要花 7000 美元到 12700 美元在护理上。
 

@@ -1,6 +1,6 @@
 # 在拥挤的体育馆里哪里能找到空间
 
-> 原文:[https://life hacker . com/where-to-find-space-in-a-crowd-gym-1841176924](https://lifehacker.com/where-to-find-space-in-a-crowded-gym-1841176924)
+> 原文：<https://lifehacker.com/where-to-find-space-in-a-crowded-gym-1841176924>
 
 这是 January⁠—which，意思是你的健身房里挤满了决心爱好者。没关系。如果人们想提高自己，那么他们和你一样有权利去锻炼。然而，缺点是你经常被迫等待免费的深蹲架、卧推或椭圆机。好奇在特别拥挤的健身房里你能在哪里找到一点空间吗？
 

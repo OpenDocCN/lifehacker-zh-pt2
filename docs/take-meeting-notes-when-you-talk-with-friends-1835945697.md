@@ -1,6 +1,6 @@
 # 当你和朋友交谈时，记下“会议笔记”
 
-> 原文:[https://life hacker . com/take-meeting-notes-when-you-talk-with-friends-1835945697](https://lifehacker.com/take-meeting-notes-when-you-talk-with-friends-1835945697)
+> 原文：<https://lifehacker.com/take-meeting-notes-when-you-talk-with-friends-1835945697>
 
 生产力作家雷切尔·米勒 [和朋友](https://www.justgoodshit.com/blog/a-modest-proposal-take-notes-when-youre-hanging-out-with-friends) 在一起时会做笔记——“即使是在喝咖啡的约会中，”她说。主要是她会记下推荐的东西——好的电视节目或食谱，或者有一次，套头袜子。这是一种习惯，她的朋友们互相发邮件索要雷切尔的“会议笔记”。以下是如何开始你自己的会议笔记，而不觉得自己是个十足的傻瓜。
 

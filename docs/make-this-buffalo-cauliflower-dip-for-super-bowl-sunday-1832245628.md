@@ -1,6 +1,6 @@
 # 为周日的超级碗做这道水牛花菜蘸酱
 
-> 原文:[https://life hacker . com/make-this-buffalo-flower-dip-for-super-bowl-Sunday-1832245628](https://lifehacker.com/make-this-buffalo-cauliflower-dip-for-super-bowl-sunday-1832245628)
+> 原文：<https://lifehacker.com/make-this-buffalo-cauliflower-dip-for-super-bowl-sunday-1832245628>
 
 布法罗鸡翅和超级碗就像花生酱和果冻一样搭配在一起，没有人会像素食球迷一样知道这一点。尽管我很喜欢布法罗花椰菜“翅膀”，但油炸时它们真的是最好的，这是一种不与饮酒混合的技术。幸运的是，上帝给了我们布法罗鸡汁。
 

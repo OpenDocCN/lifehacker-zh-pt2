@@ -1,6 +1,6 @@
 # 学生可以半价购买 YouTube Premium 和 YouTube 音乐
 
-> 原文:[https://life hacker . com/students-can-get-YouTube-premium-and-YouTube-music-for-1830696467](https://lifehacker.com/students-can-get-youtube-premium-and-youtube-music-for-1830696467)
+> 原文：<https://lifehacker.com/students-can-get-youtube-premium-and-youtube-music-for-1830696467>
 
 如果你是一名正在考虑购买 YouTube Premium 或 YouTube 音乐订阅的学生，现在可能是购买的时候了。
 

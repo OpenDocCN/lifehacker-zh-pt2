@@ -1,6 +1,6 @@
 # 你在一月份的零开销挑战中表现如何？
 
-> 原文:[https://life hacker . com/how-do-you-fare-in-January-no-spend-challenge-1841364188](https://lifehacker.com/how-did-you-fare-in-the-january-no-spend-challenge-1841364188)
+> 原文：<https://lifehacker.com/how-did-you-fare-in-the-january-no-spend-challenge-1841364188>
 
 一月感觉是有史以来最长的一个月吗？我们会很兴奋，因为我们即将翻开日历，进入新的一个月(更短的一个月)。但是，在我们从漫长而漫长的开始走向 2020 年之前，我们需要检查一下每个人的无支出挑战。
 

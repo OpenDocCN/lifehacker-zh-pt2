@@ -1,6 +1,6 @@
 # 2020 年 10 月，Hulu 将迎来什么
 
-> 原文:[https://life hacker . com/everything-coming-to-Hulu-in-10-2020-1845106250](https://lifehacker.com/everything-coming-to-hulu-in-october-2020-1845106250)
+> 原文：<https://lifehacker.com/everything-coming-to-hulu-in-october-2020-1845106250>
 
 没有人知道一个远离社交的万圣节会是什么样子，但 Hulu 不会让这阻止它在 10 月的流媒体时间表中加载大量的惊悚片，从新的原版到过去几年的恐怖电影。对流派迷来说，最大的吸引力可能是*可利夫·巴克的《血之书》*，这是一部新的选集电影 [，基于该流派中一位恶心的身体恐怖大师的作品](https://en.wikipedia.org/wiki/Books_of_Blood) 。这部电影将三个故事串联起来，这些故事取自巴克的一系列令人不寒而栗的故事，其框架基于标题作品，讲述了一名超自然现象调查员在调查一所鬼屋时遭到恶魔袭击，最终受到诅咒。如果那个剧情简介让你热血沸腾，你可能会出现在目标演示中——尽管我的热情被导演布兰农·布拉加的参与所冲淡，他的电影记录包括了《星际迷航》系列中一些真正的低谷。
 

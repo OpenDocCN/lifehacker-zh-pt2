@@ -1,6 +1,6 @@
 # 如何为你的孩子创造一个私人学习空间
 
-> 原文:[https://life hacker . com/how-to-create-a private-learning-area for your-kids-1844764568](https://lifehacker.com/how-to-create-a-private-learning-area-for-your-kids-1844764568)
+> 原文：<https://lifehacker.com/how-to-create-a-private-learning-area-for-your-kids-1844764568>
 
 许多父母试图找出如何在家里为他们的孩子创造一个学习空间，有几个复杂的因素需要考虑。如果你在家工作，他们需要离你足够近，这样你就不会在每次他们有问题或困难的时候穿过房子；b 但是他们不能太亲近以至于一个人接的每一个电话或视频电话都会分散其他人的注意力。如果你要为多个孩子建立工作空间，那就更加限制了你的选择。
 

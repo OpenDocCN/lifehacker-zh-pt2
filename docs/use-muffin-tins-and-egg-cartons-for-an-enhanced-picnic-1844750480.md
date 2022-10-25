@@ -1,6 +1,6 @@
 # 使用松饼罐和鸡蛋盒来增强野餐体验
 
-> 原文:[https://life hacker . com/use-muffin-tings and-egg-cartos-for-a-enhanced-picnic-1844750480](https://lifehacker.com/use-muffin-tins-and-egg-cartons-for-an-enhanced-picnic-1844750480)
+> 原文：<https://lifehacker.com/use-muffin-tins-and-egg-cartons-for-an-enhanced-picnic-1844750480>
 
 这是户外用餐的夏天。从人行道到后院到公园，我们都在享受温暖的天气，吸入新鲜空气。然而，保持野餐(和你的手指)干净整洁是一件很有挑战性的事情——尤其是当家的舒适远离你的时候。
 

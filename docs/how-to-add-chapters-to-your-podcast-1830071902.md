@@ -1,6 +1,6 @@
 # 如何将章节添加到您的播客
 
-> 原文:[https://life hacker . com/how-to-add-chapters-to-your-podcast-1830071902](https://lifehacker.com/how-to-add-chapters-to-your-podcast-1830071902)
+> 原文：<https://lifehacker.com/how-to-add-chapters-to-your-podcast-1830071902>
 
 我很早就退出了很多对话播客。他们会无聊几分钟，我试着跳过 30 秒寻找下一个好的片段，然后我放弃并删除了这集。但是我不会退出 [脚本注释](https://johnaugust.com/podcast)——因为即使主持人可以跑题或者讨论对我来说无关紧要的内部话题，我也可以直接跳到下一个话题的开头。那是因为制片人在节目描述中加入了章节标题。这就是为什么你，播客的创作者，应该在你的播客中添加章节标题。而 [预测](https://overcast.fm/forecast) 是最好的免费应用。
 

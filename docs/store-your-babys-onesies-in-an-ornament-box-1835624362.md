@@ -1,6 +1,6 @@
 # 将宝宝的连体衣存放在装饰盒中
 
-> 原文:[https://life hacker . com/store-your-babys-onesies-in-a-a-corrupt-box-1835624362](https://lifehacker.com/store-your-babys-onesies-in-an-ornament-box-1835624362)
+> 原文：<https://lifehacker.com/store-your-babys-onesies-in-an-ornament-box-1835624362>
 
 作为一个婴儿的母亲，我遇到过各种各样的连体衣存储技巧，它们在理论上听起来都不错。在晾衣绳上抓拍！用 [衣服隔断](https://www.amazon.com/Minnebaby-Neutral-Hangers-Ultra-Clothing-Dividers/dp/B07CJ49Y8J?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/store-your-babys-onesies-in-an-ornament-box-1835624362&asc_source=&ref_=fsclp_pl_dp_3&tag=kinjalifehackerlink-20) 把它们挂起来！把它们折叠成 Kond0 风格的和并把它们直立地放在漂亮的、闪耀着欢乐火花的盒子里！我曾试图在我的婴儿室实施这样一个系统，但我不断停下来问自己:“来吧。你*真的*要跟上这个吗？”答案总是:“可能性极小。”
 

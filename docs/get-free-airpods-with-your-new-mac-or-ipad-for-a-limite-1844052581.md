@@ -1,6 +1,6 @@
 # 在有限的时间内，通过您的新 Mac 或 iPad 获得免费的 AirPods
 
-> 原文:[https://life hacker . com/get-free-ai rpods-with-your-new-MAC-or-ipad-for-a-limite-1844052581](https://lifehacker.com/get-free-airpods-with-your-new-mac-or-ipad-for-a-limite-1844052581)
+> 原文：<https://lifehacker.com/get-free-airpods-with-your-new-mac-or-ipad-for-a-limite-1844052581>
 
 苹果推出了一项新的促销活动，购买各种 iPads 或 MAC 电脑可以免费获得一对 AirPods——请注意，这是普通的 AirPods，除非你想额外支付 90 美元购买打折的 AirPods Pro(或 40 美元购买带无线充电外壳的普通 ai rpods)。
 

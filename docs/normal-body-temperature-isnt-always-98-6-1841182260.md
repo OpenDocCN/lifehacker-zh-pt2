@@ -1,6 +1,6 @@
 # 正常体温并不总是 98.6 度
 
-> 原文:[https://life hacker . com/normal-body-temperature-not-always-98-6-1841182260](https://lifehacker.com/normal-body-temperature-isnt-always-98-6-1841182260)
+> 原文：<https://lifehacker.com/normal-body-temperature-isnt-always-98-6-1841182260>
 
 多年来，我注意到我的体温经常低于它“应该”的温度。在平常的一天，可能是 97；如果我有寒战和其他明显的发烧症状，不一定会超过 100 度。很奇怪，对吧？但是其他人告诉我他们有同样的经历。
 

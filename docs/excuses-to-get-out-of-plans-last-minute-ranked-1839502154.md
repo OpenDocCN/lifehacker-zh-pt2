@@ -1,6 +1,6 @@
 # 最后一刻放弃计划的借口，排名
 
-> 原文:[https://life hacker . com/excuses-to-get-out-of-plans-last-minute-ranked-1839502154](https://lifehacker.com/excuses-to-get-out-of-plans-last-minute-ranked-1839502154)
+> 原文：<https://lifehacker.com/excuses-to-get-out-of-plans-last-minute-ranked-1839502154>
 
 没有比在最后一刻取消计划更让人肾上腺素激增的了。曾经压在你肩膀上的重量，随着时间的流逝，已经消失了。突然间，你的时间又属于你了。我们明白了——你和某人约好了 [突然有事](https://www.youtube.com/watch?v=I1vJXvZHGKY) 。或者你可能累了或者冷了，出门感觉太费力了。
 

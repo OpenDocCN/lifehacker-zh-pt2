@@ -1,6 +1,6 @@
 # 遵循这个通用的理财建议
 
-> 原文:[https://life hacker . com/follow-this-one-size-fit-all-financial-advice-1832269698](https://lifehacker.com/follow-this-one-size-fits-all-financial-advice-1832269698)
+> 原文：<https://lifehacker.com/follow-this-one-size-fits-all-financial-advice-1832269698>
 
 Lifehacker 的一个基本原则是，并不是每个黑客都适合每个人。在金钱建议上尤其如此，因为每个人的个人情况和目标都会和其他人有很大的不同。例如，当你使用信用卡时，你可能会超支，所以关于最佳奖励卡的建议对你不起作用。
 

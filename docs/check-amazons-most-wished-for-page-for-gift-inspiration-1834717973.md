@@ -1,6 +1,6 @@
 # 查看亚马逊的“最想要的礼物”页面，寻找礼物灵感
 
-> 原文:[https://life hacker . com/check-amazons-most-wish-for-page-gift-inspiration-1834717973](https://lifehacker.com/check-amazons-most-wished-for-page-for-gift-inspiration-1834717973)
+> 原文：<https://lifehacker.com/check-amazons-most-wished-for-page-for-gift-inspiration-1834717973>
 
 如果你一直在亚马逊愿望清单上为将来的购买藏东西，你可能会无意中为完全陌生的人提供礼物想法。
 

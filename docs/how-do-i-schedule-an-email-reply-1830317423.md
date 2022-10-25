@@ -1,6 +1,6 @@
 # 我如何安排回复电子邮件？
 
-> 原文:[https://life hacker . com/how-do-I-schedule-an-email-reply-1830317423](https://lifehacker.com/how-do-i-schedule-an-email-reply-1830317423)
+> 原文：<https://lifehacker.com/how-do-i-schedule-an-email-reply-1830317423>
 
 有多少人还在使用美国在线邮件？我以为是三个人，但显然你们中仍有相当一部分人坚持自己的 aol.com 账户。你希望 AOL 有一天会东山再起吗？你怀念拨号调制解调器的声音吗？你讨厌 Gmail 吗？ [可以移动提供商](https://lifehacker.com/how-do-i-import-another-email-account-into-gmail-1829997407)；会没事的。
 

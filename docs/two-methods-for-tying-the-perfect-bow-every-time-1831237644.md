@@ -1,6 +1,6 @@
 # 每次打完美蝴蝶结的两种方法
 
-> 原文:[https://life hacker . com/two-methods-for-tie-the-perfect-bow-time-1831237644](https://lifehacker.com/two-methods-for-tying-the-perfect-bow-every-time-1831237644)
+> 原文：<https://lifehacker.com/two-methods-for-tying-the-perfect-bow-every-time-1831237644>
 
 我想礼物是好的。但是真正让礼物唱歌的是顶部完美打结的蝴蝶结。
 

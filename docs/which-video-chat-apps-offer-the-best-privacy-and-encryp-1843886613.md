@@ -1,6 +1,6 @@
 # 因为缩放不能保证你的隐私，尝试这些替代方案
 
-> 原文:[https://life hacker . com/which-video-chat-apps-offer-the-best-privacy-and-encryp-1843886613](https://lifehacker.com/which-video-chat-apps-offer-the-best-privacy-and-encryp-1843886613)
+> 原文：<https://lifehacker.com/which-video-chat-apps-offer-the-best-privacy-and-encryp-1843886613>
 
 有许多免费的群组视频聊天和电话会议应用程序 。他们中的许多人兜售他们的隐私和安全功能。仅仅因为他们禁止其他用户或潜在黑客进行某些通信，并不意味着你的谈话不受这些公司本身或他们合作的其他组织的保护。
 

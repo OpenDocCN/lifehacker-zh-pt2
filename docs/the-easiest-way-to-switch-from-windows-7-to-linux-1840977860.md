@@ -1,6 +1,6 @@
 # 从 Windows 7 切换到 Linux 的最简单方法
 
-> 原文:[https://life hacker . com/the-easy-way-switch-from-windows-7-to-Linux-1840977860](https://lifehacker.com/the-easiest-way-to-switch-from-windows-7-to-linux-1840977860)
+> 原文：<https://lifehacker.com/the-easiest-way-to-switch-from-windows-7-to-linux-1840977860>
 
 欢迎来到 Windows 7 的最后一天——这是微软为过时的操作系统 发布 [安全更新的最后一天。虽然你有很多选择](https://lifehacker.com/am-i-screwed-if-i-dont-upgrade-windows-7-by-january-15-1840903120) [升级 Windows 7](https://lifehacker.com/the-best-ways-to-get-windows-10-for-free-1837174464) ，甚至有一个黑客 [可能能够将你的更新](https://lifehacker.com/how-to-extend-your-windows-7-security-updates-past-janu-1840313094) 延长数年，如果你*不想 [跳到 Windows 10](https://lifehacker.com/quickly-upgrade-windows-7-to-windows-10-for-free-with-t-1840843214) 的话，你可以做的最好的事情之一就是来个 90 度大转弯，转向 Linux。*
 

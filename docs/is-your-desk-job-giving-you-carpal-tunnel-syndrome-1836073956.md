@@ -1,6 +1,6 @@
 # 你的办公室工作会让你患上腕管综合症吗？
 
-> 原文:[https://life hacker . com/is-your-desk-job-giving-you carpal-tunnel-syndrome-1836073956](https://lifehacker.com/is-your-desk-job-giving-you-carpal-tunnel-syndrome-1836073956)
+> 原文：<https://lifehacker.com/is-your-desk-job-giving-you-carpal-tunnel-syndrome-1836073956>
 
 如果你在工作的时候读到这篇文章，你可能会担心你现在正在做的事情正在慢慢杀死你。长年累月无精打采的脊椎姿势、眯着眼看屏幕和坐着( [【新吸烟】](https://www.startstanding.org/sitting-new-smoking/) )是 80%的工作不经常需要体力活动的劳动力健康偏执的来源。
 

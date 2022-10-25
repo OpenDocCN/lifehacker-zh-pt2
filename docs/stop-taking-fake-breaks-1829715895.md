@@ -1,6 +1,6 @@
 # 不要假装休息
 
-> 原文:[https://lifehacker.com/stop-taking-fake-breaks-1829715895](https://lifehacker.com/stop-taking-fake-breaks-1829715895)
+> 原文：<https://lifehacker.com/stop-taking-fake-breaks-1829715895>
 
 当你的大脑扭曲时，最容易做的事情就是在社交媒体上分区，查看克莉茜·泰根昨晚吃了什么，或者找出你是哪种不受欢迎的万圣节糖果。你告诉自己，“我需要这个”当然可以。但是要知道你并不是真的在充电。
 

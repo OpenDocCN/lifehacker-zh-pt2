@@ -1,6 +1,6 @@
 # 2020 年所有文件最便宜的云存储服务
 
-> 原文:[https://life hacker . com/Google-one-is-now-open-for all-but-it-a-good-d-1826049257](https://lifehacker.com/google-one-is-now-open-for-everyone-but-is-it-a-good-d-1826049257)
+> 原文：<https://lifehacker.com/google-one-is-now-open-for-everyone-but-is-it-a-good-d-1826049257>
 
 有很多云存储服务，但是哪一个是最好的呢？你怎么定义“最好的”，因为这个词，对我来说，意味着“我不用付出任何代价就能得到的最多的东西。”
 

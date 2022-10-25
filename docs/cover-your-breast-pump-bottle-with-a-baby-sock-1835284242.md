@@ -1,6 +1,6 @@
 # 用婴儿袜盖住你的吸奶器
 
-> 原文:[https://life hacker . com/cover-your-breast-pump-bottle-with a baby-sock-1835284242](https://lifehacker.com/cover-your-breast-pump-bottle-with-a-baby-sock-1835284242)
+> 原文：<https://lifehacker.com/cover-your-breast-pump-bottle-with-a-baby-sock-1835284242>
 
 吸母乳可能会令人沮丧，尤其是如果你分泌不多的话。我坐在那里，连接着我的威廉姆斯-索诺马乳头榨汁机(商标 [、蒂娜·菲](https://www.amazon.com/Bossypants-Tina-Fey/dp/0316056898?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/cover-your-breast-pump-bottle-with-a-baby-sock-1835284242&asc_source=&tag=kinjalifehackerlink-20) )，观察、等待、希望和期盼着液体黄金喷涌而出。嗯，随时都有可能。
 

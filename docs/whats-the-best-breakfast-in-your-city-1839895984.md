@@ -1,6 +1,6 @@
 # 你们城市最好吃的早餐是什么？
 
-> 原文:[https://life hacker . com/whats-your-city-1839895984](https://lifehacker.com/whats-the-best-breakfast-in-your-city-1839895984)
+> 原文：<https://lifehacker.com/whats-the-best-breakfast-in-your-city-1839895984>
 
 [多蒂的 True Blue Café](http://dottiestruebluesf.com/) 给了我第一份我真正喜欢的家庭薯条——第一份在我吃完真正的食物后不仅仅是填饱肚子的家庭薯条。这就是为什么在拐角处(第 6 街和市场街)有一条线，也是为什么在旧金山所有我喜欢的早餐点中(Boogaloos！西尔斯！扎奇！)，这是我为本周的《黑客你的城市》挑选的。如果你必须选择一个地方(好吧，也许两三个)带一个朋友去吃早餐，你会选择哪里？为什么呢？
 

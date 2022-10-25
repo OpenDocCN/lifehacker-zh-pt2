@@ -1,6 +1,6 @@
 # 使用这些新的快捷方式快速创建新的 Google Drive 文件
 
-> 原文:[https://life hacker . com/create-new-Google-drive-files-quickly-with the-new-sh-1830044173](https://lifehacker.com/create-new-google-drive-files-quickly-with-these-new-sh-1830044173)
+> 原文：<https://lifehacker.com/create-new-google-drive-files-quickly-with-these-new-sh-1830044173>
 
 如果你每天花很多时间在 Google Drive 上工作，创建新的文档、幻灯片、表格和表格 [会变得更加容易](https://twitter.com/googledocs/status/1055490445088903168/photo/1) 。本周，谷歌为谷歌文档推出了一系列新的快捷方式，让你无需进入谷歌硬盘就能创建新文件。
 

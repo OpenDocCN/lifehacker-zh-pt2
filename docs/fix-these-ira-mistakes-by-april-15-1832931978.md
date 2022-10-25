@@ -1,6 +1,6 @@
 # 在 4 月 15 日之前修正这些爱尔兰共和军的错误
 
-> 原文:[https://life hacker . com/fix-these-IRA-errors-by-April-15-1832931978](https://lifehacker.com/fix-these-ira-mistakes-by-april-15-1832931978)
+> 原文：<https://lifehacker.com/fix-these-ira-mistakes-by-april-15-1832931978>
 
 如果你正在处理 2018 年的纳税申报单，你会希望确保仔细检查你这一年的个人退休帐户缴款和支出，这样你就不会招致国税局的愤怒(好吧，反正是罚款)。
 

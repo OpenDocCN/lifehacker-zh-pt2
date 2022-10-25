@@ -1,6 +1,6 @@
 # 在你的早餐三明治里放土豆煎饼
 
-> 原文:[https://life hacker . com/put-hash-browns-inside-your ' s breakfast-sandwich-1843731822](https://lifehacker.com/put-hash-browns-inside-your-breakfast-sandwich-1843731822)
+> 原文：<https://lifehacker.com/put-hash-browns-inside-your-breakfast-sandwich-1843731822>
 
 我狂热地热爱早餐三明治。我喜欢它们的可定制性(因此非常个性化);一个人早餐点的三明治比其他食物更能告诉你他的性格。我把一件事说的一清二楚: [*这婊子爱土豆*](https://lifehacker.com/hash-browns-are-the-new-toast-1834626337) *。*
 

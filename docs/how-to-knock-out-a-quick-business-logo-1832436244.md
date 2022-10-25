@@ -1,6 +1,6 @@
 # 如何敲出一个快速的商业标志
 
-> 原文:[https://life hacker . com/how-to-knock-out-a-quick-business-logo-1832436244](https://lifehacker.com/how-to-knock-out-a-quick-business-logo-1832436244)
+> 原文：<https://lifehacker.com/how-to-knock-out-a-quick-business-logo-1832436244>
 
 [Get Ready To...](https://worksmarter.kinja.com)) : title[![](../Images/6df5a12c55ead4b12ad20872c9620c3d.png)](https://worksmarter.kinja.com)[Get Ready To...](https://worksmarter.kinja.com)Running a small business is hard work, but we're here to help. Welcome to Work Smarter, your one-stop-shop for tips and tricks to help small business owners save time and energy.
 

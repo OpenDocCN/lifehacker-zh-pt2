@@ -1,6 +1,6 @@
 # 任天堂在 E3 2019 上宣布的一切
 
-> 原文:[https://kotaku . com/everything-Nintendo-announced-at-E3-2019-1835413325](https://kotaku.com/everything-nintendo-announced-at-e3-2019-1835413325)
+> 原文：<https://kotaku.com/everything-nintendo-announced-at-e3-2019-1835413325>
 
 按照传统，任天堂周二上午以直接展示结束了为期四天的 E3 直播马拉松。大新闻？《塞尔达:野性的呼吸》的完整续作。我们还更新了*路易吉的豪宅*、*动物穿越*，以及一堆更小的公告，外加两个令人兴奋的新*粉碎*角色。
 

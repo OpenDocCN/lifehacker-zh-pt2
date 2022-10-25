@@ -1,6 +1,6 @@
 # 国际旅行中商务舱机票更划算吗？
 
-> 原文:[https://life hacker . com/is-a-business-class-ticket-the-better-deal-on-internati-1836452615](https://lifehacker.com/is-a-business-class-ticket-the-better-deal-on-internati-1836452615)
+> 原文：<https://lifehacker.com/is-a-business-class-ticket-the-better-deal-on-internati-1836452615>
 
 我只坐过一次头等舱，而且是短途飞行，几乎不值得升级。然而，我已经多次乘坐基本经济舱，因为我是一个身材娇小的女人，不管坐在什么样的座位上，都喜欢轻装上阵，所以我发现它非常值得节省。
 

@@ -1,6 +1,6 @@
 # 2019 年全国甜甜圈日在哪里可以获得免费的甜甜圈
 
-> 原文:[https://life hacker . com/where-to-get-free-donuts-on-national-donut-day-2019-1835101014](https://lifehacker.com/where-to-get-free-donuts-on-national-donut-day-2019-1835101014)
+> 原文：<https://lifehacker.com/where-to-get-free-donuts-on-national-donut-day-2019-1835101014>
 
 6 月 7 日， 星期五，是全国甜甜圈日。你可以在几家受欢迎的大连锁店买到免费的甜甜圈，在几家不太受欢迎的连锁店买到打折的甜甜圈。Krispy Kreme 甚至正在计划第二个免费甜甜圈日，有一个条件。这里是在全国各地获得免费甜甜圈的地方。
 

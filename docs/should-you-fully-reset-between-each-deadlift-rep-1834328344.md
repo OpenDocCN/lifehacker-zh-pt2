@@ -1,6 +1,6 @@
 # 你应该在每次硬拉之间完全复位吗？
 
-> 原文:[https://life hacker . com/should-you-fully-reset-between-each-deadlift-rep-1834328344](https://lifehacker.com/should-you-fully-reset-between-each-deadlift-rep-1834328344)
+> 原文：<https://lifehacker.com/should-you-fully-reset-between-each-deadlift-rep-1834328344>
 
 我一生中有过三次不同的下背部受伤，都是因为糟糕的硬拉形式。直到几年前，在参加了一个举重健身房后，我才终于了解到什么可能是我持续背痛的最大原因:一触即发的硬拉动作，以及在每次练习之间轻轻擦过地板
 

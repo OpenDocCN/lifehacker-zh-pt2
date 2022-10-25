@@ -1,6 +1,6 @@
 # 通过这些免费旅游来一次虚拟的纽约之旅
 
-> 原文:[https://life hacker . com/take-a-virtual-trip-to-NYC-with-these-free-tours-1843320097](https://lifehacker.com/take-a-virtual-trip-to-nyc-with-these-free-tours-1843320097)
+> 原文：<https://lifehacker.com/take-a-virtual-trip-to-nyc-with-these-free-tours-1843320097>
 
 在新冠肺炎出现之前，纽约市是美国最受欢迎的城市。但作为疫情爆发的中心，它不再被游客淹没(甚至被轻度占据)。在这一点上，即使是本地人也不能在他们的城市呆上一段时间，但是现在，虚拟参观纽约比以往任何时候都容易。
 

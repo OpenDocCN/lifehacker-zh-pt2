@@ -1,6 +1,6 @@
 # i turned garth brooks breakfast bowl into a casserole a 1840541163
 
-> 原文:[https://life hacker . com/I-turned-garth-brooks-breakfast-bowl-into-a-a-1840541163](https://lifehacker.com/i-turned-garth-brooks-breakfast-bowl-into-a-casserole-a-1840541163)
+> 原文：<https://lifehacker.com/i-turned-garth-brooks-breakfast-bowl-into-a-casserole-a-1840541163>
 
 一些改变人生的事件被完美的细节保存下来，就像被困在琥珀里的昆虫；有些人如此彻底地进入了你的意识，以至于你再也无法确切地知道以前的生活是什么样子。我不能告诉你当我第一次知道加斯早餐碗的时候我在哪里，但是我知道我大概每周都会思考一次，这感觉就像是我的一生。
 

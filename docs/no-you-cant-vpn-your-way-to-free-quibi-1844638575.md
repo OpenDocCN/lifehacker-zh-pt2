@@ -1,6 +1,6 @@
 # 不，你不能通过 VPN 来释放奎比
 
-> 原文:[https://life hacker . com/no-you-cant-VPN-your-way-to-free-quibi-1844638575](https://lifehacker.com/no-you-cant-vpn-your-way-to-free-quibi-1844638575)
+> 原文：<https://lifehacker.com/no-you-cant-vpn-your-way-to-free-quibi-1844638575>
 
 多么奇怪的标题，但这是真的。当我听说 [Quibi](https://lifehacker.com/everything-you-need-to-know-about-quibi-1842710665) 在澳洲推出免费的广告支持服务时，我的第一个想法是，“我想知道 VPN 是否能让我访问所有我想要的*最危险的游戏*，而不必为这个垂死的服务支付订阅费。”
 

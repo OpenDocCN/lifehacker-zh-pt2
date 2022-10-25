@@ -1,6 +1,6 @@
 # 如何让塞缪尔·L·杰克逊的声音出现在你的亚马逊回声上
 
-> 原文:[https://life hacker . com/how-to-get-Samuel-l-Jacksons-voice-on-your-Amazon-echo-1840422142](https://lifehacker.com/how-to-get-samuel-l-jacksons-voice-on-your-amazon-echo-1840422142)
+> 原文：<https://lifehacker.com/how-to-get-samuel-l-jacksons-voice-on-your-amazon-echo-1840422142>
 
 今天早上塞缪尔·L·杰克逊帮我做了一点节日烘焙。我说的“帮助”是指告诉我是时候把饼干从烤箱里拿出来了，这项工作通常是留给我的厨房 Alexa 的。
 

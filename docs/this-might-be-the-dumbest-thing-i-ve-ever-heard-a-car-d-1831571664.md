@@ -1,6 +1,6 @@
 # 这可能是我听过的汽车经销商说的最愚蠢的话
 
-> 原文:[https://jalopnik . com/this-may-be-dumb-this-ve-even-heard-a-car-d-1831571664](https://jalopnik.com/this-might-be-the-dumbest-thing-i-ve-ever-heard-a-car-d-1831571664)
+> 原文：<https://jalopnik.com/this-might-be-the-dumbest-thing-i-ve-ever-heard-a-car-d-1831571664>
 
 在一年的时间里，我可能和几千个汽车经销商谈过话。事实是，他们中的许多人都很好，但他们中的一些人会说一些完全错误的、错误的或明显的谎言。这个关于提前还清贷款的弥天大谎，可能是最坏的例子。
 

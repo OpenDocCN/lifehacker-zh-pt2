@@ -1,6 +1,6 @@
 # 安全抗议的最佳应用
 
-> 原文:[https://life hacker . com/the-best-apps-for-safer-抗议-1843856359](https://lifehacker.com/the-best-apps-for-safer-protesting-1843856359)
+> 原文：<https://lifehacker.com/the-best-apps-for-safer-protesting-1843856359>
 
 我们已经讨论过 [你需要知道的设置](https://lifehacker.com/the-phone-settings-you-need-to-know-before-protesting-1843829849) 在抗议时保证你的手机、数据和*你自己*的安全。如果你选择在抗议期间使用你的手机，在你出门之前，有几个安全和信息应用程序你会想安装在你的手机上。
 

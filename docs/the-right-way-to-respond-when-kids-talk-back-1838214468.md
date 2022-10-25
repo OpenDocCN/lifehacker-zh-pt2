@@ -1,6 +1,6 @@
 # 当孩子顶嘴时，正确的回应方式
 
-> 原文:[https://life hacker . com/the-right-way-to-response-when-kids-talk-back-1838214468](https://lifehacker.com/the-right-way-to-respond-when-kids-talk-back-1838214468)
+> 原文：<https://lifehacker.com/the-right-way-to-respond-when-kids-talk-back-1838214468>
 
 我的一个朋友曾经长篇大论地说她不会抚养一个无礼的孩子。“这是不可能的，”她说。“他不会顶嘴的。尊重对我来说太重要了，我不会容忍他的粗鲁。”她的儿子当时大约一岁。我的比她大几岁。于是，我笑了。
 

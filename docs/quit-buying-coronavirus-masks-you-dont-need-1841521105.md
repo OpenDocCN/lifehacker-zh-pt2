@@ -1,6 +1,6 @@
 # 停止购买你不需要的冠状病毒口罩
 
-> 原文:[https://life hacker . com/quit-buying-coronavirus-masks-you-dont-need-1841521105](https://lifehacker.com/quit-buying-coronavirus-masks-you-dont-need-1841521105)
+> 原文：<https://lifehacker.com/quit-buying-coronavirus-masks-you-dont-need-1841521105>
 
 当疾病爆发正在进行时，没有被感染的人需要知道和做一些重要的事情，比如洗手。也有一些事情*不*要做，因为它们大多是无用的，实际上干扰了对需要它们的人的适当护理。对于我们大多数人来说，口罩属于第二类。
 

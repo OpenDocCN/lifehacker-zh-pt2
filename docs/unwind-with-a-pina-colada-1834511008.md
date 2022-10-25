@@ -1,6 +1,6 @@
 # 喝一杯鸡尾酒放松一下
 
-> 原文:[https://lifehacker.com/unwind-with-a-pina-colada-1834511008](https://lifehacker.com/unwind-with-a-pina-colada-1834511008)
+> 原文：<https://lifehacker.com/unwind-with-a-pina-colada-1834511008>
 
 一些相当不错的食谱可以在盒子、瓶子、罐子和其他包装的背面找到——大声喊出雀巢 Tollhouse 饼干——印在罐子 La Preferida 奶油椰子上的 pia colada 食谱就是这种类型的一个很好的例子。
 

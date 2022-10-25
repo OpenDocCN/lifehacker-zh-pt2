@@ -1,6 +1,6 @@
 # 在你的血腥玛丽中加入土坯酱
 
-> 原文:[https://life hacker . com/add-adobo-sauce-to-your-bloody-Mary-1841313377](https://lifehacker.com/add-adobo-sauce-to-your-bloody-mary-1841313377)
+> 原文：<https://lifehacker.com/add-adobo-sauce-to-your-bloody-mary-1841313377>
 
 上周，我和家人去了佛罗里达群岛。太棒了。当我父母去机场接我的时候，我爸爸对我说“好的，克莱尔。我给你买了一壶餐酒，一瓶血腥玛丽，一瓶塔巴斯科辣肉酱和一包腊肠。”被理解的感觉真好。
 

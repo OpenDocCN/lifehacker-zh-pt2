@@ -1,6 +1,6 @@
 # 使用 Chrome 扩展将你的推文转化为给政治家的信息
 
-> 原文:[https://life hacker . com/turn-your-tweets-into-messages-to-politics-with this-1832897027](https://lifehacker.com/turn-your-tweets-into-messages-to-politicians-with-this-1832897027)
+> 原文：<https://lifehacker.com/turn-your-tweets-into-messages-to-politicians-with-this-1832897027>
 
 现在，我们比以往任何时候都更有在推特和脸书上发泄政治情绪的习惯。
 

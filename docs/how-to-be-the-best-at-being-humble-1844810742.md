@@ -1,6 +1,6 @@
 # 如何成为最善于谦虚的人
 
-> 原文:[https://life hacker . com/how-to-be-the-best at-below-1844810742](https://lifehacker.com/how-to-be-the-best-at-being-humble-1844810742)
+> 原文：<https://lifehacker.com/how-to-be-the-best-at-being-humble-1844810742>
 
 当我们感到迫使去“销售”和“品牌化”自己以获得成功的时候，很难看出谦逊在哪里——以及如何——适合这个画面。从工作到约会到旅行，一切都像是一场竞赛，我们可以花很多时间和精力来展示自己的优势，以便在人群中脱颖而出。然后是当前的政治气候，许多人完全相信他们在某件事情上是对的，并且无意了解更多，甚至不想与另一方的人交往。
 

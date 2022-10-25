@@ -1,6 +1,6 @@
 # 警察部门的“声学武器”是如何工作的？
 
-> 原文:[https://life hacker . com/how-do-police-departments-acoustic-weapons-work-1843982813](https://lifehacker.com/how-do-police-departments-acoustic-weapons-work-1843982813)
+> 原文：<https://lifehacker.com/how-do-police-departments-acoustic-weapons-work-1843982813>
 
 最近几周，声波武器如闪光弹和声波炮在公众意识中占据了新的位置，这要归功于它们被纳入了警察对付抗议者的武器库。
 

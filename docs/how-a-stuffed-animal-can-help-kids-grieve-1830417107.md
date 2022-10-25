@@ -1,6 +1,6 @@
 # 填充动物玩具如何帮助孩子悲伤
 
-> 原文:[https://life hacker . com/how-a-filled-animal-can-help-kids-grive-1830417107](https://lifehacker.com/how-a-stuffed-animal-can-help-kids-grieve-1830417107)
+> 原文：<https://lifehacker.com/how-a-stuffed-animal-can-help-kids-grieve-1830417107>
 
 六年前，当我的父亲突然去世时，我没有想到他的去世会给我带来巨大的悲痛。在葬礼准备过程中，我像在雾中一样艰难地决定着鲜花、仪式和墓碑。在我们经历痛苦的告别过程时，我所能做的就是让它保持在一起。
 

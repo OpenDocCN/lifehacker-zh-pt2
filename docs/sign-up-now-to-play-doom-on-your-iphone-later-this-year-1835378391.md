@@ -1,6 +1,6 @@
 # 现在注册，今年晚些时候在你的 iPhone 上玩毁灭战士
 
-> 原文:[https://life hacker . com/sign-up-now-to-play-doom-on-your-iphone-今年晚些时候-1835378391](https://lifehacker.com/sign-up-now-to-play-doom-on-your-iphone-later-this-year-1835378391)
+> 原文：<https://lifehacker.com/sign-up-now-to-play-doom-on-your-iphone-later-this-year-1835378391>
 
 《毁灭战士》的粉丝们很快就可以在他们的 iOS 设备上玩这个游戏，而不必耗尽大量的存储空间。
 

@@ -1,6 +1,6 @@
 # 如何了解你的国家退税情况
 
-> 原文:[https://life hacker . com/how-to-find-the-status-of-your-state-tax-refund-1832954998](https://lifehacker.com/how-to-find-out-the-status-of-your-state-tax-refund-1832954998)
+> 原文：<https://lifehacker.com/how-to-find-out-the-status-of-your-state-tax-refund-1832954998>
 
 如果你已经提交了你的纳税申报表，并且正在等待那笔 [甜蜜的、甜蜜的退款](https://twocents.lifehacker.com/what-to-do-with-your-tax-refund-1822515530) ，你可能知道检查你的联邦身份是多么容易。你只需登录国税局的网站或使用其应用程序(你可以 [在这里](https://sa.www4.irs.gov/irfof/lang/en/irfofgetstatus.jsp) 追踪你的)。
 

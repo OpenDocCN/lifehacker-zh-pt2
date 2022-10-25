@@ -1,6 +1,6 @@
 # 提高您的信用评分，按时支付网飞
 
-> 原文:[https://life hacker . com/boost-your-credit-score-with-on-time-网飞-payments-1844520091](https://lifehacker.com/boost-your-credit-score-with-on-time-netflix-payments-1844520091)
+> 原文：<https://lifehacker.com/boost-your-credit-score-with-on-time-netflix-payments-1844520091>
 
 随着越来越多的人呆在家里，像网飞这样的流媒体服务已经变得比以往任何时候都更受欢迎。虽然网飞提供了大量值得狂欢的电视节目和电影，但它也可能提供另一个新的好处:增加你的信用评分的能力。从今天开始，你可以将你的网飞付款历史记录添加到你的 [Experian Boost](http://www.experian.com/Boost) 账户中，这可能有助于提升你的 FICO 信用评分。
 

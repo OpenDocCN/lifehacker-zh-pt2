@@ -1,6 +1,6 @@
 # 19 个最重要的 Gmail 键盘快捷键
 
-> 原文:[https://life hacker . com/the-19-most-important-Gmail-keyboard-shortcut s-1836311313](https://lifehacker.com/the-19-most-important-gmail-keyboard-shortcuts-1836311313)
+> 原文：<https://lifehacker.com/the-19-most-important-gmail-keyboard-shortcuts-1836311313>
 
 Gmail 拥有超过 80 个键盘快捷键。你不需要全部。你确实需要这 19 个。它们不仅比点击按钮更快，还会鼓励其他好习惯来帮助你浏览收件箱。
 

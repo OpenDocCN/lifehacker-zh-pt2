@@ -1,6 +1,6 @@
 # 如何修复 Pixel Buds 的音频暂停错误
 
-> 原文:[https://life hacker . com/how-to-fix-the-pixel-buds-audio-paging-bug-1845110142](https://lifehacker.com/how-to-fix-the-pixel-buds-audio-pausing-bug-1845110142)
+> 原文：<https://lifehacker.com/how-to-fix-the-pixel-buds-audio-pausing-bug-1845110142>
 
 谷歌终于修补了一个困扰 Pixel Buds 用户数周的恼人问题:每隔 1 分 50 秒，无线耳机就会在播放过程中突然暂停。每一个。单身。时间。
 

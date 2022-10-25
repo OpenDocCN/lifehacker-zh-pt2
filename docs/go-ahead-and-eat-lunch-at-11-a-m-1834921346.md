@@ -1,6 +1,6 @@
 # 去吧，上午 11 点吃午饭
 
-> 原文:[https://life hacker . com/go-ahead-and-吃午餐在上午 11 点-1834921346](https://lifehacker.com/go-ahead-and-eat-lunch-at-11-a-m-1834921346)
+> 原文：<https://lifehacker.com/go-ahead-and-eat-lunch-at-11-a-m-1834921346>
 
 早上 10 点 55 分在餐馆外面等着，感觉有点难过，饿着肚子，感觉自己没有像正常人一样计划好自己的饭菜。但是 11 点的午餐显然是我们很多人的渴望，我在这里告诉你，无论你想什么时候吃都可以。
 

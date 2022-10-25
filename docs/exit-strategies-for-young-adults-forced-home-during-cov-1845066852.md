@@ -1,6 +1,6 @@
 # 新冠肺炎期间被迫回家的年轻人的退出策略
 
-> 原文:[https://life hacker . com/exit-strategies-for-young-adults-forced-home-during-cov-1845066852](https://lifehacker.com/exit-strategies-for-young-adults-forced-home-during-cov-1845066852)
+> 原文：<https://lifehacker.com/exit-strategies-for-young-adults-forced-home-during-cov-1845066852>
 
 众所周知，疫情对美国人的财务生活造成了严重破坏，年轻人是受影响最大的人群之一。根据 [一项新的皮尤研究](https://www.pewresearch.org/fact-tank/2020/09/04/a-majority-of-young-adults-in-the-u-s-live-with-their-parents-for-the-first-time-since-the-great-depression/) 显示，自大萧条以来，第一次出现了 18 至 29 岁的年轻人与父母住在一起的现象。
 

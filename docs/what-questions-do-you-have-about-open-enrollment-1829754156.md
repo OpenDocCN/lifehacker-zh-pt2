@@ -1,6 +1,6 @@
 # 关于开放招生你有什么疑问？
 
-> 原文:[https://life hacker . com/what-questions-do-you-have-about-open-enrollment-1829754156](https://lifehacker.com/what-questions-do-you-have-about-open-enrollment-1829754156)
+> 原文：<https://lifehacker.com/what-questions-do-you-have-about-open-enrollment-1829754156>
 
 现在是开放注册的季节，你很快就会被分派任务，为你和你的家人选择 2019 年的医疗保健计划。我们知道你有疑问:你应该选择 PPO 吗？HMO？ACA？HSA？还是另一个三个字母的缩写？
 

@@ -1,6 +1,6 @@
 # 在《科学美国人》中找到数百个科学实验想法
 
-> 原文:[https://life hacker . com/find-Bailey-of-science-experiment-ideas-in-scientific-1837366468](https://lifehacker.com/find-hundreds-of-science-experiment-ideas-in-scientific-1837366468)
+> 原文：<https://lifehacker.com/find-hundreds-of-science-experiment-ideas-in-scientific-1837366468>
 
 作为一个孩子，很大一部分是构建事物，解构事物，总的来说，是发现事物如何工作——这就是为什么我们购买那些入门科学实验套件和玩具显微镜来鼓励他们的好奇心。但是保持他们对科学的兴趣是很容易的，特别是当他们长大的时候。对父母来说幸运的是，《科学美国人》多年来一直在开发数百个科学实验的档案，供 6-12 岁的孩子与父母一起进行。
 

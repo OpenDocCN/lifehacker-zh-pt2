@@ -1,6 +1,6 @@
 # 用衣物柔顺剂清洁窗户，让它们远离灰尘
 
-> 原文:[https://life hacker . com/keep-your-windows-dust-free-by-cleaning-them with-fabri-1835186506](https://lifehacker.com/keep-your-windows-dust-free-by-cleaning-them-with-fabri-1835186506)
+> 原文：<https://lifehacker.com/keep-your-windows-dust-free-by-cleaning-them-with-fabri-1835186506>
 
 在我们家，保持窗户清洁是一场持续的战斗。本周，我遇到了一个可能让这项任务变得稍微容易一点的窍门:用衣物柔顺剂清洁窗户。
 

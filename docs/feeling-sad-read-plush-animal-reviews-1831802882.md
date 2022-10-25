@@ -1,6 +1,6 @@
 # 12 个毛绒动物评论让你平静下来
 
-> 原文:[https://life hacker . com/feeling-sad-read-毛绒-动物-评论-1831802882](https://lifehacker.com/feeling-sad-read-plush-animal-reviews-1831802882)
+> 原文：<https://lifehacker.com/feeling-sad-read-plush-animal-reviews-1831802882>
 
 本周你可能会感到有点紧张。忧虑。警惕。(吓坏了？)你知道此刻你应该尽可能地进行自我护理，但是所有通常的方法——散步、冥想、把自己一个人锁在浴室里换气——都不管用了。是时候读一读毛绒动物玩具的真实甜蜜评论了。
 

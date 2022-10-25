@@ -1,6 +1,6 @@
 # 在你把你的东西送人之前，把它拆开
 
-> 原文:[https://life hacker . com/take-apart-your-stuff-away-1836212631](https://lifehacker.com/take-apart-your-stuff-before-you-give-it-away-1836212631)
+> 原文：<https://lifehacker.com/take-apart-your-stuff-before-you-give-it-away-1836212631>
 
 这个周末差点把高中日记弄丢了。谢天谢地，我的旧文件柜太重了，Craigslist 的用户把它拿走的时候，不得不把所有的抽屉都拉出来，然后才能把它搬到楼下。这就是她注意到日记、一些童年照片和各种文件的原因，所有这些东西都藏在抽屉后面。
 

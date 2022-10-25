@@ -1,6 +1,6 @@
 # 当你的 Airbnb 很糟糕时该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-when-your-Airbnb-is-terrible-1838661428](https://lifehacker.com/what-to-do-when-your-airbnb-is-terrible-1838661428)
+> 原文：<https://lifehacker.com/what-to-do-when-your-airbnb-is-terrible-1838661428>
 
 当你的决定完全基于灯光明亮的家具照片时，预订 Airbnb 永远是一场赌博。over on[Elliot](https://www.elliott.org/blog/hate-vacation-rental-horrible-vacation-rental/https://www.elliott.org/blog/hate-vacation-rental-horrible-vacation-rental/)[advocation](https://www.elliott.org/blog/hate-vacation-rental-horrible-vacation-rental/)执行董事 Michelle Couch-Friedman 讲述了一个旅行者的故事，当她在巴黎预订出租时，她显然输掉了这场打赌——却发现房源并不是她承诺的那样。“这地方很脏，”她告诉埃利奥特。“厨房里有血迹斑斑的床单、霉菌和过期的食物。整个公寓的每个架子和壁橱里都堆满了垃圾。”
 

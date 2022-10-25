@@ -1,6 +1,6 @@
 # 如何在你的手机或电脑上模拟一个图形计算器
 
-> 原文:[https://life hacker . com/how-to-emulate-a-graphing-calculator-on-your-phone-or-p-1835456320](https://lifehacker.com/how-to-emulate-a-graphing-calculator-on-your-phone-or-p-1835456320)
+> 原文：<https://lifehacker.com/how-to-emulate-a-graphing-calculator-on-your-phone-or-p-1835456320>
 
 我觉得对大多数人来说，在高中的那一两年里，当你被迫在任何数学课上使用图形计算器时，它才是真正的“东西”。当每个人在开学的第一天拿出他们笨重的小动物，看谁的父母为疯狂花哨的模型倾倒时，你终于感觉自己变老了——十几岁的年纪。
 

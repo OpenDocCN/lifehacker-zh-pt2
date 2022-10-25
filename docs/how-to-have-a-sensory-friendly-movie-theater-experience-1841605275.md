@@ -1,6 +1,6 @@
 # 如何拥有感官友好的电影院体验
 
-> 原文:[https://life hacker . com/how-to-have-a-sensory-friendly-movie-theater-experience-1841605275](https://lifehacker.com/how-to-have-a-sensory-friendly-movie-theater-experience-1841605275)
+> 原文：<https://lifehacker.com/how-to-have-a-sensory-friendly-movie-theater-experience-1841605275>
 
 电影院对任何人来说都是一种过度刺激的体验。有大于生活的行动，弥漫着黄油爆米花的气味，音量调到一个可笑的水平。但是对于一个有感觉处理障碍的孩子——或者因为其他原因感觉敏感的孩子——这可能是一种压倒性的经历，父母可能会选择完全避免它。
 

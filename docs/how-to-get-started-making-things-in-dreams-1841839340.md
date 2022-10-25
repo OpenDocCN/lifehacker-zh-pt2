@@ -1,6 +1,6 @@
 # 如何开始在梦中制作东西
 
-> 原文:[https://kotaku . com/how-to-start-making-things-in-dreams-1841839340](https://kotaku.com/how-to-get-started-making-things-in-dreams-1841839340)
+> 原文：<https://kotaku.com/how-to-get-started-making-things-in-dreams-1841839340>
 
 梦不仅仅是一个游戏。这是一个有无限可能性的创意孵化器。如果你能梦想它，你就能创造它。想做出比顽皮狗过场动画看起来更逼真的 [早餐](https://kotaku.com/this-breakfast-looks-deliciously-real-but-was-actually-1840808587) ？去吧！一个 [可爱的凯居吃船模拟器](https://kotaku.com/this-cute-kaiju-rampage-is-the-best-dreams-level-ive-pl-1837715607) ？当然可以！一个 [空中克星 boss 战斗](https://kotaku.com/someone-made-an-awesome-final-fantasy-vii-remake-boss-f-1836540586) 来自*最终幻想 VII* ？一部连载的 [【木偶】剧](https://kotaku.com/professional-animator-uses-dreams-to-make-excellent-pup-1835942605) ？*赛博朋克 2077* ，但是 [PS1 化](https://kotaku.com/made-in-dreams-this-is-what-cyberpunk-2077-would-like-1840949241) ？快快快。
 

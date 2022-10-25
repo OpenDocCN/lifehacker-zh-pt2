@@ -1,6 +1,6 @@
 # 通过给他分配任务来防止办公室话匣子分散你的注意力
 
-> 原文:[https://life hacker . com/prevent-the-office-chatter box-by-a-1832677049](https://lifehacker.com/prevent-the-office-chatterbox-from-distracting-you-by-a-1832677049)
+> 原文：<https://lifehacker.com/prevent-the-office-chatterbox-from-distracting-you-by-a-1832677049>
 
 每个办公室都有这样一个人，他总是有一个故事要讲，或者有一个无关紧要的问题要问，这样办公室里就没有其他人能真正完成任何事情。
 

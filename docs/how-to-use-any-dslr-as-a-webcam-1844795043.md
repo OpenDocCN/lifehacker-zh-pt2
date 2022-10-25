@@ -1,6 +1,6 @@
 # 如何使用任何 DSLR 作为网络摄像头
 
-> 原文:[https://life hacker . com/how-to-use-any-dslr-as-a-web cam-1844795043](https://lifehacker.com/how-to-use-any-dslr-as-a-webcam-1844795043)
+> 原文：<https://lifehacker.com/how-to-use-any-dslr-as-a-webcam-1844795043>
 
 新冠肺炎继续。为了迫使我们中的许多人在家工作和社交，大多数大相机品牌都发布了官方软件，可以将你的 DSLR 变成一个 T2 网络摄像头，可以与 Zoom、OBS、Facebook Messenger 和其他应用程序一起使用。
 

@@ -1,6 +1,6 @@
 # 如何阻止 Steam 聊天中的种族主义、亵渎和垃圾邮件
 
-> 原文:[https://life hacker . com/how-to-block-racism-promise-and-spam-in-stream-chats-1844881756](https://lifehacker.com/how-to-block-racism-profanity-and-spam-in-steam-chats-1844881756)
+> 原文：<https://lifehacker.com/how-to-block-racism-profanity-and-spam-in-steam-chats-1844881756>
 
 厌倦了在 Steam 聊天中被指责？厌倦了看到单词、短语或政治声明，让你想知道你为什么要开始使用聊天室？有了新的测试版功能，你现在可以阻止各种单词和短语出现在 Valve Steam 服务的任何聊天中。
 

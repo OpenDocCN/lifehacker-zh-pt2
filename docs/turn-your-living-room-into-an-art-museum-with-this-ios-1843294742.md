@@ -1,6 +1,6 @@
 # 使用这款 iOS 应用程序，将您的客厅变成艺术博物馆
 
-> 原文:[https://life hacker . com/turn-your ' s living-room to-a art-museum with this-IOs-1843294742](https://lifehacker.com/turn-your-living-room-into-an-art-museum-with-this-ios-1843294742)
+> 原文：<https://lifehacker.com/turn-your-living-room-into-an-art-museum-with-this-ios-1843294742>
 
 我们听到很多关于新冠肺炎封锁如何影响小企业和餐馆，但它影响了我们文化的方方面面。博物馆和美术馆也不例外，但只要你有一部 iPhone，就有办法把艺术展品带进你的家里——事实上，就是这样。
 

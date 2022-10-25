@@ -1,6 +1,6 @@
 # 如何度过漫长的机场延误
 
-> 原文:[https://life hacker . com/how-to-survive-a-long-airport-delay-1836503807](https://lifehacker.com/how-to-survive-a-long-airport-delay-1836503807)
+> 原文：<https://lifehacker.com/how-to-survive-a-long-airport-delay-1836503807>
 
 上周，纽约拉瓜迪亚机场的数百架航班因该地区的雷暴而延误或取消；进港航班比预定到达时间晚了将近 4 个小时才着陆。虽然我们愿意认为延误是罕见的事情，但联合航空公司和其他主要航空公司如 [达美航空公司和美国](https://www.usatoday.com/story/travel/flights/2019/02/28/american-delta-dot-fine-lengthy-tarmac-delays-million/3015837002/) 航空公司已经因严重的停机坪延误被罚款数百万。
 

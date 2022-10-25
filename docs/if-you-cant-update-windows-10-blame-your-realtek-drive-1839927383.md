@@ -1,6 +1,6 @@
 # 如果你不能更新 Windows 10，那就怪你的 Realtek 驱动程序
 
-> 原文:[https://life hacker . com/if-you-cant-update-windows-10-kill-your-realtek-drive-1839927383](https://lifehacker.com/if-you-cant-update-windows-10-blame-your-realtek-drive-1839927383)
+> 原文：<https://lifehacker.com/if-you-cant-update-windows-10-blame-your-realtek-drive-1839927383>
 
 这里有一个好消息:如果你有一段时间没有更新你的 Realtek 蓝牙驱动程序，或者甚至不知道这是一件事，你终于可以更新到 Windows 10 版本 1909-截至我们发表这篇文章时，该操作系统的最新和最大的迭代。
 

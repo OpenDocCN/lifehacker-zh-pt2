@@ -1,6 +1,6 @@
 # 2019 年 7 月网飞有什么来往
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-2019-7-1835653336](https://lifehacker.com/whats-coming-and-going-from-netflix-in-july-2019-1835653336)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-in-july-2019-1835653336>
 
 网飞大型演出的大月份。4 号有新一季的*奇怪的事情*——孩子们现在都十几岁了，奇怪——19 号有新的*喜剧演员在车里喝咖啡*、*裤衩队长*和*酷儿眼*。7 月 26 日，橙色是新的黑色。我为新的模拟纪录片感到兴奋。这个月也是你最后一次看很多好电影的机会。
 

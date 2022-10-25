@@ -1,6 +1,6 @@
 # 你最喜欢的举重后餐是什么？
 
-> 原文:[https://life hacker . com/what-is-your favorite-post-life-饭局-1838706591](https://lifehacker.com/what-is-your-favorite-post-lifting-meal-1838706591)
+> 原文：<https://lifehacker.com/what-is-your-favorite-post-lifting-meal-1838706591>
 
 不管你是否关心吃饭的时间，从健身房辛苦一天回到家，开始吃一些有意义的东西是令人满意的。
 

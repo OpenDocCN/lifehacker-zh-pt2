@@ -1,6 +1,6 @@
 # 如何以每年 60 美元的价格为你的孩子获得免费航班
 
-> 原文:[https://life hacker . com/how-to-get-free-flights-for-your kid-60 一年-1832214985](https://lifehacker.com/how-to-get-free-flights-for-your-kid-for-60-a-year-1832214985)
+> 原文：<https://lifehacker.com/how-to-get-free-flights-for-your-kid-for-60-a-year-1832214985>
 
 如果你计划今年和孩子一起旅行，飞边境可能会有好处。
 

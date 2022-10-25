@@ -1,6 +1,6 @@
 # 试试这些稳定性核心球练习
 
-> 原文:[https://life hacker . com/try-these-stability-ball-core-exercises-1832654182](https://lifehacker.com/try-these-stability-ball-core-exercises-1832654182)
+> 原文：<https://lifehacker.com/try-these-stability-ball-core-exercises-1832654182>
 
 是时候表达一点感激了。每当我做本周的核心练习时，我都非常感激我没有做厚木板 。即使动作很难，也没关系，因为至少它们不是无聊的*。*
 

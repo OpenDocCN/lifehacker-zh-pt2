@@ -1,6 +1,6 @@
 # im meteorologist jim cantore and this is how i work 1837659041
 
-> 原文:[https://life hacker . com/im-meteorological ist-Jim-cantore-and-this-is-how-I-work-1837659041](https://lifehacker.com/im-meteorologist-jim-cantore-and-this-is-how-i-work-1837659041)
+> 原文：<https://lifehacker.com/im-meteorologist-jim-cantore-and-this-is-how-i-work-1837659041>
 
 当吉姆·康托尔抵达一个城市时，就会成为新闻。在像飓风道林这样的重大天气事件期间，新闻媒体甚至 [推测](https://www.miamiherald.com/news/weather/hurricane/article234465647.html) 关于他的 [下一个目的地](https://www.newsobserver.com/news/weather-news/article234734712.html) 。因为除了出现在像 AMHQ*和风暴故事*这样的节目中:下一章*之外，Cantore 还是天气频道现场报道恶劣天气的负责人。他到处都有超级粉丝，当他对天气感到兴奋时， [就会像病毒一样传播。我们和吉姆谈了他长期的气象事业，他疯狂的起床时间，以及他最大的错误。](https://www.youtube.com/watch?v=PdRWGMyeSYY)*
 

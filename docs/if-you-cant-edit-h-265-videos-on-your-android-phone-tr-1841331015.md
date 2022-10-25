@@ -1,6 +1,6 @@
 # 如果你不能在你的安卓手机上编辑 H.265 视频，试试这个修复
 
-> 原文:[https://life hacker . com/if-you-cant-edit-h-265-videos-on-your-Android-phone-tr-1841331015](https://lifehacker.com/if-you-cant-edit-h-265-videos-on-your-android-phone-tr-1841331015)
+> 原文：<https://lifehacker.com/if-you-cant-edit-h-265-videos-on-your-android-phone-tr-1841331015>
 
 你更喜欢哪一个:节省 Android 设备的空间还是能够在智能手机上编辑视频？现在，你得到了一个或另一个——一个时髦的 Android 错误出现了，然后消失了，现在又出现了，这使得你不可能在你的设备上充分利用 [H.265/HEVC 编码](https://lifehacker.com/how-to-reduce-video-file-sizes-on-googles-pixel-4-witho-1839326135) 。
 

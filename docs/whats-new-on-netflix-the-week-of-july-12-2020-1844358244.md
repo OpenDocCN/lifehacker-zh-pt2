@@ -1,6 +1,6 @@
 # 2020 年 7 月 12 日这一周网飞有什么新消息
 
-> 原文:[https://life hacker . com/whats-new-on-the-week of July-12-2020-1844358244](https://lifehacker.com/whats-new-on-netflix-the-week-of-july-12-2020-1844358244)
+> 原文：<https://lifehacker.com/whats-new-on-netflix-the-week-of-july-12-2020-1844358244>
 
 法国人给了我们很多美好的东西。比如酒。没有人像法国人那样酿造发酵葡萄汁。还有，羊角面包，*显然是*。羊角面包是他妈的最好的。几年前，我在法国度过了三个星期的夏天，每天我都从去附近的面包店——大约有六家可供选择——买新鲜的羊角面包开始，这是*的荣耀。*后来我试着自己做，发现它们实际上是一半黄油。这是对的，也是好的。
 

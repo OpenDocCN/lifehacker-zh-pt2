@@ -1,6 +1,6 @@
 # 防止你的 Windows 电脑带着咖啡因睡觉
 
-> 原文:[https://life hacker . com/prevent-your-windows-PC-from-sleeping-with-caffeinated-1832271248](https://lifehacker.com/prevent-your-windows-pc-from-sleeping-with-caffeinated-1832271248)
+> 原文：<https://lifehacker.com/prevent-your-windows-pc-from-sleeping-with-caffeinated-1832271248>
 
 我对 Mac 应用程序 [**安非他命**](https://lifehacker.com/macos-app-of-the-week-amphetamine-1825108890) 有着极大的热爱，因为它是防止你的 MacBook 因为任何特殊原因而睡眠(或启动屏幕保护程序)的好方法。我很惭愧地承认，我花了一年时间，如果不是几年的话，才意识到我没有在我的 Windows 桌面和笔记本电脑上安装类似的应用程序。
 

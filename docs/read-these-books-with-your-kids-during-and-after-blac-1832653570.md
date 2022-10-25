@@ -1,6 +1,6 @@
 # 在黑人历史月期间和之后，和你的孩子一起读这些书
 
-> 原文:[https://life hacker . com/read-these-books-with-your-kids-in-blac-1832653570](https://lifehacker.com/read-these-books-with-your-kids-during-and-after-blac-1832653570)
+> 原文：<https://lifehacker.com/read-these-books-with-your-kids-during-and-after-blac-1832653570>
 
 正如我们在 之前说过的，教孩子感同身受的最好方法之一就是通过虚构。我不记得我在小学的任何关于 B 缺乏历史的讲座或课程，但我记得读过米尔德里德·泰勒的“ [《如雷贯耳，听我的呼喊](https://www.amazon.com/Roll-Thunder-Hear-My-Cry/dp/0142401129?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/read-these-books-with-your-kids-during-and-after-blac-1832653570&asc_source=&tag=kinjalifehackerlink-20) 》，9 岁的凯西·洛根在大萧条时期长大，几乎每天都经历着个人和机构的种族主义。 
 

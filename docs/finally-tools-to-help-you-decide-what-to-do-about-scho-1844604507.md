@@ -1,6 +1,6 @@
 # 最后，帮助你决定如何对待学校的工具
 
-> 原文:[https://life hacker . com/finally-tools-to-help-you-decision-what-do-about-scho-1844604507](https://lifehacker.com/finally-tools-to-help-you-decide-what-to-do-about-scho-1844604507)
+> 原文：<https://lifehacker.com/finally-tools-to-help-you-decide-what-to-do-about-scho-1844604507>
 
 如果你还在疑惑和争论今年秋天在学校要做什么，你并不孤单。对于许多父母来说，他们选择的最后期限——无论是面对面，全虚拟还是两者的混合——还有几天。我们都在权衡身体上的风险和心理上的顾虑，以及照顾孩子的后勤挑战。很难知道该优先考虑什么。
 

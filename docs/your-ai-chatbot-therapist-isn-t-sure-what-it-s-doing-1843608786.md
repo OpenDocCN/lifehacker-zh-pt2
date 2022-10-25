@@ -1,6 +1,6 @@
 # your ai chatbot therapist isn t sure what it s doing 1843608786
 
-> 原文:[https://gizmodo . com/your-ai-chatbot-therapy-is-t-sure-what-it-s-doing-1843608786](https://gizmodo.com/your-ai-chatbot-therapist-isn-t-sure-what-it-s-doing-1843608786)
+> 原文：<https://gizmodo.com/your-ai-chatbot-therapist-isn-t-sure-what-it-s-doing-1843608786>
 
 1966 年，Joseph Weizenbaum 创造了第一个心理治疗聊天机器人 Eliza。Eliza 的编程相对简单:通过检测用户语句中的关键字来吸引用户，并将这些信息作为开放式提示反馈给用户。(用户可能会说“我很难过”，对此，伊莱扎可以回答:“听到你难过，我很难过。”)
 

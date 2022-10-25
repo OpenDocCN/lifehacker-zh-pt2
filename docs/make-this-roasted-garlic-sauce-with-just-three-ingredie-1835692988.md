@@ -1,6 +1,6 @@
 # 用烤大蒜做这三种配料的意大利面酱
 
-> 原文:[https://life hacker . com/make-this-bracked-garlic-sauce-with just-three-ingredie-1835692988](https://lifehacker.com/make-this-roasted-garlic-sauce-with-just-three-ingredie-1835692988)
+> 原文：<https://lifehacker.com/make-this-roasted-garlic-sauce-with-just-three-ingredie-1835692988>
 
 人们倾向于将意大利面酱与大量的煨炖、调味和品尝联系在一起，但并不是所有的酱都需要繁重的劳动，即使这是一项充满爱的劳动。如果你从一种超级美味的配料开始——比如烤大蒜——你几乎什么都不用做。
 

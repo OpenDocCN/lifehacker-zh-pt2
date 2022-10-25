@@ -1,6 +1,6 @@
 # 英国退出欧盟到底怎么了？跟上这些流程图
 
-> 原文:[https://life hacker . com/英国退出欧盟追到 th-1833268486](https://lifehacker.com/what-the-hell-is-going-on-with-brexit-catch-up-with-th-1833268486)
+> 原文：<https://lifehacker.com/what-the-hell-is-going-on-with-brexit-catch-up-with-th-1833268486>
 
 今天是谈判的大日子。议会成员正在辩论“无协议”退出，该计划将使英国在 3 月 29 日离开欧盟，两个实体之间没有任何正式的组织或协调。如果这种情况发生，几乎肯定会导致英国和欧洲乃至全世界的经济混乱。
 

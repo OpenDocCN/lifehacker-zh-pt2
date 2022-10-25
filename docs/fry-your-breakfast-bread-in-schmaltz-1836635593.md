@@ -1,6 +1,6 @@
 # 用油炸你的早餐面包
 
-> 原文:[https://life hacker . com/fry-your-break-in-schmaltz-1836635593](https://lifehacker.com/fry-your-breakfast-bread-in-schmaltz-1836635593)
+> 原文：<https://lifehacker.com/fry-your-breakfast-bread-in-schmaltz-1836635593>
 
 从质感、口感和纯粹的颓废感来看， [油炸面包比](https://lifehacker.com/fried-bread-is-better-than-toast-1827629232) 烤面包要好。脂肪不是坐在上面，而是渗透进去，酥脆并覆盖你面包的每一寸。我通常用剩下的熏肉油煎面包，但一种新的脂肪照亮了我的早晨，这种脂肪是 schmaltz。
 

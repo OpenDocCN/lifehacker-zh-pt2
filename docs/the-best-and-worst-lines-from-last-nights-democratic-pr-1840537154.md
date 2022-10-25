@@ -1,6 +1,6 @@
 # 昨晚民主党总统候选人辩论的最佳和最差台词
 
-> 原文:[https://life hacker . com/the-best-and-worst-lines from the last-nights-democratic-pr-1840537154](https://lifehacker.com/the-best-and-worst-lines-from-last-nights-democratic-pr-1840537154)
+> 原文：<https://lifehacker.com/the-best-and-worst-lines-from-last-nights-democratic-pr-1840537154>
 
 如果你错过了昨晚的民主党总统候选人辩论，这里有一个快速的回顾:伊丽莎白·沃伦谈到了她提议的财富税，伯尼·桑德斯称川普为“病态骗子”，每个人都讨厌葡萄酒洞穴。好奇我们在说什么吗？下面，是 2019 年第六场也是最后一场辩论中我们最喜欢的几个解释和俏皮话。
 

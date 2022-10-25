@@ -1,6 +1,6 @@
 # 如何在家里和你的孩子一起抗议社会正义
 
-> 原文:[https://life hacker . com/how-to-prompt-for-social-justice-home-with-your-kid-1844038856](https://lifehacker.com/how-to-protest-for-social-justice-at-home-with-your-kid-1844038856)
+> 原文：<https://lifehacker.com/how-to-protest-for-social-justice-at-home-with-your-kid-1844038856>
 
 这个世界现在正处于巨大的变化之中。一方面，你有一个可怕的全球疫情；另一方面，一个处于社会不公正觉醒中的社会。许多家庭希望成为运动的一部分，但仍然担心冒险远离他们的隔离安全空间。
 

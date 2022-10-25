@@ -1,6 +1,6 @@
 # 购买礼品卡，在冠状病毒爆发后使用，支持当地企业
 
-> 原文:[https://life hacker . com/support-your-local-business-by-buying-gift-cards-to-u-1842310796](https://lifehacker.com/support-your-local-businesses-by-buying-gift-cards-to-u-1842310796)
+> 原文：<https://lifehacker.com/support-your-local-businesses-by-buying-gift-cards-to-u-1842310796>
 
 如果对冠状病毒的担忧和社交距离让你错过了去当地咖啡店、餐馆或剧院的旅行，现在就考虑购买礼品卡。
 

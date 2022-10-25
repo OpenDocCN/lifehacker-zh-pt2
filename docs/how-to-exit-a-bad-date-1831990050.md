@@ -1,6 +1,6 @@
 # 如何结束糟糕的约会
 
-> 原文:[https://lifehacker.com/how-to-exit-a-bad-date-1831990050](https://lifehacker.com/how-to-exit-a-bad-date-1831990050)
+> 原文：<https://lifehacker.com/how-to-exit-a-bad-date-1831990050>
 
 约会进行到一半时，你突然意识到——你犯了一个可怕的错误。这个人不仅不是你的真命天子，他们还会成为你的敌人。你怎么离开那里？
 

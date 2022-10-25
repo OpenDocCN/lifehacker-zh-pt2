@@ -1,6 +1,6 @@
 # 和你的孩子一起看没有对话的动画
 
-> 原文:[https://life hacker . com/watch-dialogue-free-animated-shows-with-your-kids-1830288816](https://lifehacker.com/watch-dialogue-free-animated-shows-with-your-kids-1830288816)
+> 原文：<https://lifehacker.com/watch-dialogue-free-animated-shows-with-your-kids-1830288816>
 
 我从来没有和我的儿子一起坐着看电视节目。当然，我会检查它们，以确保它们符合年龄，并有我可以理解的整体信息，但你不会经常发现我只是为了好玩而和他一起蜷缩在沙发上。他看电视的时间是我完成工作的时间。
 

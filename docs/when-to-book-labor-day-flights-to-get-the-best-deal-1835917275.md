@@ -1,6 +1,6 @@
 # 何时预订劳动节航班可以获得最优惠的价格
 
-> 原文:[https://life hacker . com/when-to-book-labor-day-flights-to-get-the-best-deal-1835917275](https://lifehacker.com/when-to-book-labor-day-flights-to-get-the-best-deal-1835917275)
+> 原文：<https://lifehacker.com/when-to-book-labor-day-flights-to-get-the-best-deal-1835917275>
 
 如果你打算在这个劳动节周末外出，你应该计划尽快购买机票。
 

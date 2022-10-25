@@ -1,6 +1,6 @@
 # 我需要一些结实、古怪又便宜的东西来运送一桶桶啤酒！应该买什么车？
 
-> 原文:[https://jalopnik . com/I-need-something-study-quirky-and-price-to-delivery-ke-1836681012](https://jalopnik.com/i-need-something-sturdy-quirky-and-cheap-to-deliver-ke-1836681012)
+> 原文：<https://jalopnik.com/i-need-something-sturdy-quirky-and-cheap-to-deliver-ke-1836681012>
 
 凯西在阿肯色州帮助经营一家小酿酒厂，该厂即将迎来一周年纪念日。然而，他们用来送货的旧萨博货车不会持续太久。他需要一些便宜的东西，可以处理有效载荷，但又足够古怪，可以发表声明。他应该买什么车？
 

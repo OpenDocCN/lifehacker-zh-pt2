@@ -1,6 +1,6 @@
 # 在你的车里玩危险游戏，你这个书呆子
 
-> 原文:[https://life hacker . com/play-jeopardy-in-you-car-you-nerd-1838016532](https://lifehacker.com/play-jeopardy-in-your-car-you-nerd-1838016532)
+> 原文：<https://lifehacker.com/play-jeopardy-in-your-car-you-nerd-1838016532>
 
 播客、有声读物和音乐可以让你的日常生活不那么枯燥，但对于那些想要更多互动和精神参与的人来说，你现在可以通过智能手机使用 **Drivetime** 应用程序( [Android](https://play.google.com/store/apps/details?id=fm.drivetime.original&hl=en_US) ， [iOS](https://apps.apple.com/us/app/drivetime/id1357342274) )玩*亚历克斯·崔贝克主持的【危险】。*
 

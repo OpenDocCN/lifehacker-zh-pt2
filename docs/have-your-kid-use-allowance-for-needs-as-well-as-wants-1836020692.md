@@ -1,6 +1,6 @@
 # 让你的孩子把零花钱用在需求和欲望上
 
-> 原文:[https://life hacker . com/have-your-kid-use-allow ance for-needs-as-wants-1836020692](https://lifehacker.com/have-your-kid-use-allowance-for-needs-as-well-as-wants-1836020692)
+> 原文：<https://lifehacker.com/have-your-kid-use-allowance-for-needs-as-well-as-wants-1836020692>
 
 我们很多人都记得第一次用我们的钱——我们自己的钱——去买我们渴望已久的东西。也许是一个尖锐的音箱，或者是一双溜冰鞋，或者是一部透明手机。我们攒下了零用钱和苔丝姨妈塞在生日贺卡里的那些 2 美元钞票，用它们换了一些我们珍爱的东西。感觉很棒。"成为消费人群中的一员是多么快乐啊！"我们以为。
 

@@ -1,6 +1,6 @@
 # 如何看三星本周的 Unpacked 活动
 
-> 原文:[https://life hacker . com/how-to-watch-samsungs-unpacked-event-this-week-1836956742](https://lifehacker.com/how-to-watch-samsungs-unpacked-event-this-week-1836956742)
+> 原文：<https://lifehacker.com/how-to-watch-samsungs-unpacked-event-this-week-1836956742>
 
 周三，三星预计将推出 Galaxy Note 10，这是其广受欢迎的触控笔智能手机的下一代产品。
 

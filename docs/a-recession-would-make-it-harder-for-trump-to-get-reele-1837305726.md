@@ -1,6 +1,6 @@
 # 经济衰退将使特朗普更难连任
 
-> 原文:[https://life hacker . com/a-recession-would-be-make it-hard-for-trump-get-reele-1837305726](https://lifehacker.com/a-recession-would-make-it-harder-for-trump-to-get-reele-1837305726)
+> 原文：<https://lifehacker.com/a-recession-would-make-it-harder-for-trump-to-get-reele-1837305726>
 
 距离总统大选还有一年多的时间，但是一个话题正在成为讨论的焦点，那就是经济。随着 [迹象指向低迷](https://twocents.lifehacker.com/how-youll-know-a-recession-is-coming-1837273628) ，我们的经济健康将如何影响选举？
 

@@ -1,6 +1,6 @@
 # for a better cannabis shopping experience focus on how 1834111510
 
-> 原文:[https://life hacker . com/for-a-better-大麻购物体验-focus-on-how-1834111510](https://lifehacker.com/for-a-better-cannabis-shopping-experience-focus-on-how-1834111510)
+> 原文：<https://lifehacker.com/for-a-better-cannabis-shopping-experience-focus-on-how-1834111510>
 
 如果你从高中或大学开始就没有买过大麻，那么去药房会是令人愉快和难以抗拒的。站在干净、明亮、设计精美的商店里当然比在汉堡王后面遇见某人更好，但这一切纯粹的时髦会让大麻顾客感到力不从心。
 

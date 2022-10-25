@@ -1,6 +1,6 @@
 # 你应该专注于削减开支还是增加收入？
 
-> 原文:[https://life hacker . com/should-you-focus on-cutting expenses-or-growing-your-in-1841134920](https://lifehacker.com/should-you-focus-on-cutting-expenses-or-growing-your-in-1841134920)
+> 原文：<https://lifehacker.com/should-you-focus-on-cutting-expenses-or-growing-your-in-1841134920>
 
 如果你的支出和收入不匹配，你有两个选择:削减支出，或者想办法赚更多的钱。
 

@@ -1,6 +1,6 @@
 # 为什么弱势美元有利于你的投资
 
-> 原文:[https://life hacker . com/why-the weak-dollar is good-for-your-investments-1844570186](https://lifehacker.com/why-the-weak-dollar-is-good-for-your-investments-1844570186)
+> 原文：<https://lifehacker.com/why-the-weak-dollar-is-good-for-your-investments-1844570186>
 
 随着 [经济在](https://www.nytimes.com/2020/07/30/business/economy/q2-gdp-coronavirus-economy.html) 中挣扎，对美元来说，这是一个艰难的月份。据《华尔街日报》报道，我们的货币可能是近十年来最疲软的一个月。两件事导致了最近的下跌:我们的冠状病毒爆发和来自美联储的低利率。
 

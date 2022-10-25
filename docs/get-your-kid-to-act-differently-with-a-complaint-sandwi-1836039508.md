@@ -1,6 +1,6 @@
 # 用“抱怨三明治”让你的孩子做出不同的行为
 
-> 原文:[https://life hacker . com/get-your-kid-to-act-different-a-complaint-sandvi-1836039508](https://lifehacker.com/get-your-kid-to-act-differently-with-a-complaint-sandwi-1836039508)
+> 原文：<https://lifehacker.com/get-your-kid-to-act-differently-with-a-complaint-sandwi-1836039508>
 
 你很可能听说过给予批评的“赞美三明治”技巧。表扬，接着是批评，接着是更多的表扬。这应该是用来缓和批评的一种方式，尽管如果表达得不好，可能会显得不真诚。不过，它的表亲——一位心理学家称之为“抱怨三明治”——可能是一种很适合孩子的三明治，可以让你听起来不那么唠叨。
 

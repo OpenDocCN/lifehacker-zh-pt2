@@ -1,6 +1,6 @@
 # 用“先吃这个”搁板避免食物浪费
 
-> 原文:[https://life hacker . com/avoid-food-waste-with-an-eat the-first-shelf-1841469901](https://lifehacker.com/avoid-food-waste-with-an-eat-this-first-shelf-1841469901)
+> 原文：<https://lifehacker.com/avoid-food-waste-with-an-eat-this-first-shelf-1841469901>
 
 如果你发现自己买的新鲜农产品比你实际吃的多，或者让你自觉储存的剩菜在冰箱里腐烂，然后最终倒入垃圾桶，那么可能是时候重组你的食物储存系统，让你需要马上吃的东西最容易获得。
 

@@ -1,6 +1,6 @@
 # 当你是自由职业者时，在与国际客户打交道时应该考虑什么
 
-> 原文:[https://life hacker . com/what-to-consider-about-work-with-international-clien-1834553678](https://lifehacker.com/what-to-consider-about-working-with-international-clien-1834553678)
+> 原文：<https://lifehacker.com/what-to-consider-about-working-with-international-clien-1834553678>
 
 如果你是一名美国的自由职业者，与国际客户合作可能是扩大你的投资组合和赚取额外收入的好方法——但这也会带来一些意想不到的成本。
 

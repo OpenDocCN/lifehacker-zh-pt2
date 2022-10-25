@@ -1,6 +1,6 @@
 # 你是怎么买到房子的？
 
-> 原文:[https://life hacker . com/how-do-you-buy-your-house-1832399755](https://lifehacker.com/how-did-you-buy-your-house-1832399755)
+> 原文：<https://lifehacker.com/how-did-you-buy-your-house-1832399755>
 
 今天，对于许多美国人来说，买房似乎是一个遥远的梦想，尤其是对于那些生活在纽约或旧金山等高生活成本地区的人来说。
 

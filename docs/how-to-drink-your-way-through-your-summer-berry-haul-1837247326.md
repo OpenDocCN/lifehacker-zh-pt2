@@ -1,6 +1,6 @@
 # 如何通过你的夏季浆果收获喝你的方式
 
-> 原文:[https://life hacker . com/how-to-drink-your-way-through-your-summer-berry-haul-1837247326](https://lifehacker.com/how-to-drink-your-way-through-your-summer-berry-haul-1837247326)
+> 原文：<https://lifehacker.com/how-to-drink-your-way-through-your-summer-berry-haul-1837247326>
 
 如果你曾经去摘过浆果，你就会知道摘一大堆浆果是多么容易。每一片饱满的水果都渴望被从藤蔓上摘下来，在你意识到之前，你已经有了装满水果的平底鞋和宏伟的计划。但是当你回到家，你意识到你可能有点过分热心了。
 

@@ -1,6 +1,6 @@
 # 何时预订酒店可以获得最优惠的价格
 
-> 原文:[https://life hacker . com/when-to-book-a-hotel-get-the-best-price-1835729684](https://lifehacker.com/when-to-book-a-hotel-to-get-the-best-price-1835729684)
+> 原文：<https://lifehacker.com/when-to-book-a-hotel-to-get-the-best-price-1835729684>
 
 每当我计划去某个地方旅行时，一旦我预订了机票、火车票或租车，就感觉很“正式”，但我从来不确定何时预订酒店[。我是否应该尽可能提前做这件事，以获得最好的交易？或者我应该等到我真正到达目的地后，在今晚的旅馆或另一个临时地点碰碰运气？事实证明，为了获得最优惠的价格，实际上可能有一个预订住宿的“正确”时间。](https://lifehacker.com/tag/hotels) 
 

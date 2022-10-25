@@ -1,6 +1,6 @@
 # 这个椰子蛋糕是纯素的，非常棒
 
-> 原文:[https://life hacker . com/this-coconut-tres-leches-cake-is-vegan-and-it-is-specta-1837277586](https://lifehacker.com/this-coconut-tres-leches-cake-is-vegan-and-it-is-specta-1837277586)
+> 原文：<https://lifehacker.com/this-coconut-tres-leches-cake-is-vegan-and-it-is-specta-1837277586>
 
 每个厨师都需要一份 [的甜品食谱](https://lifehacker.com/make-an-easy-summer-dessert-that-isnt-a-flag-cake-1836081530) 。即使你坚持认为自己更像一个厨师，而不是面包师，即使你被磅秤、立式搅拌机、特制面粉和昂贵的硅胶垫吓住了，我保证总有一个现成的食谱适合你——我认为应该是油饼。
 

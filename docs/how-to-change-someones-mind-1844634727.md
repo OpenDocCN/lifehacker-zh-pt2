@@ -1,6 +1,6 @@
 # 如何改变某人的想法
 
-> 原文:[https://life hacker . com/how-to-change-someones-mind-1844634727](https://lifehacker.com/how-to-change-someones-mind-1844634727)
+> 原文：<https://lifehacker.com/how-to-change-someones-mind-1844634727>
 
 似乎每个人都更喜欢固执己见的 T2(即使他们碰巧是科学上站不住脚的,】,所以改变某人对某事的想法几乎是不可能的。当然，不是每个人都必须在所有事情上同意你，所以试图让他们明白你的观点并不是一个很好的利用你的时间和精力的方法。
 

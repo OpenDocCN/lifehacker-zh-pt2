@@ -1,6 +1,6 @@
 # 在发布日你真的需要 Stadia 创始人包吗？
 
-> 原文:[https://life hacker . com/do-you-really-need-the-stadia-founder-s-pack-on-launch-1839135086](https://lifehacker.com/do-you-really-need-the-stadia-founder-s-pack-on-launch-1839135086)
+> 原文：<https://lifehacker.com/do-you-really-need-the-stadia-founder-s-pack-on-launch-1839135086>
 
 本周，谷歌宣布其游戏流媒体平台 Stadia 将于 11 月 19 日推出 [。因此，是时候坐下来想想你是否真的想在 Stadia 的发布日买入股票了。](https://lifehacker.com/everything-from-todays-google-event-that-actually-matte-1839057732)
 

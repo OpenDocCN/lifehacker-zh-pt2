@@ -1,6 +1,6 @@
 # what we lost when we lost our wedding 1844986166
 
-> 原文:[https://Jezebel . com/what-we-lost-when-we-lost-our-wedding-1844986166](https://jezebel.com/what-we-lost-when-we-lost-our-wedding-1844986166)
+> 原文：<https://jezebel.com/what-we-lost-when-we-lost-our-wedding-1844986166>
 
 当我的伴侣在 2018 年求婚时，我瞬间知道我们的婚礼将在 2020 年 10 月 10 日举行。它绝对必须是那个日期，因为我喜欢数字命理学，十月初将为我希望的户外婚礼提供最可靠的天气选择——不太热，也不太冷——经过两年的祈祷，我确信不会下雨。
 

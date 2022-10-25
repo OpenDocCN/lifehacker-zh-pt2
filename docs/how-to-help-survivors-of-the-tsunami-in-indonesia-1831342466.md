@@ -1,6 +1,6 @@
 # 如何帮助印度尼西亚海啸的幸存者
 
-> 原文:[https://life hacker . com/how-to-help-survivors-of-the-tsunami-in-Indonesia-1831342466](https://lifehacker.com/how-to-help-survivors-of-the-tsunami-in-indonesia-1831342466)
+> 原文：<https://lifehacker.com/how-to-help-survivors-of-the-tsunami-in-indonesia-1831342466>
 
 上周六，印度尼西亚阿纳克喀拉喀托火山爆发引发海啸，造成 400 多人死亡，20，000 多人流离失所。据《卫报》 报道，当局已经改变了火山周围的飞机航线，火山有再次爆发的危险。以下是你能做的来帮助这场自然灾害的受害者。
 

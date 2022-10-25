@@ -1,6 +1,6 @@
 # 如何告诉别人非常非常坏的消息
 
-> 原文:[https://life hacker . com/how-to-give-someone-really-really-bad-news-1832908009](https://lifehacker.com/how-to-give-someone-really-really-bad-news-1832908009)
+> 原文：<https://lifehacker.com/how-to-give-someone-really-really-bad-news-1832908009>
 
 有糟糕的电话，也有真正糟糕的电话，比如你被迫告诉某人你所爱的人出了事故，或者更糟——他们已经死了。
 

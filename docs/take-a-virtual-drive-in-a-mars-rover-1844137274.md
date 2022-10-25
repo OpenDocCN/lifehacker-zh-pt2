@@ -1,6 +1,6 @@
 # 乘坐火星漫游车进行虚拟驾驶
 
-> 原文:[https://life hacker . com/take-a-virtual-drive-in-a-a-mars-rover-1844137274](https://lifehacker.com/take-a-virtual-drive-in-a-mars-rover-1844137274)
+> 原文：<https://lifehacker.com/take-a-virtual-drive-in-a-mars-rover-1844137274>
 
 如果你曾经渴望成为现实生活中的马克·瓦特尼——收集火星上的岩石和泥土样本——现在是你的机会了。借助美国宇航局的 [AI4Mars 项目](https://www.zooniverse.org/projects/hiro-ono/ai4mars) ，你可以乘坐好奇号火星车在红色星球上进行一次虚拟旅行。
 

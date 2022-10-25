@@ -1,6 +1,6 @@
 # 为紧急情况创建一个儿童保育计划
 
-> 原文:[https://life hacker . com/create-a-children-plan-for-emergencies-1841699174](https://lifehacker.com/create-a-childcare-plan-for-emergencies-1841699174)
+> 原文：<https://lifehacker.com/create-a-childcare-plan-for-emergencies-1841699174>
 
 快速:你带着两个孩子，一个伤得很重，不得不去医院，但另一个不允许乘坐救护车。你是做什么的？或者！你在准备晚餐时切伤了手指，你知道缝针是必要的，但孩子们在跑来跑去，而你的伴侣还没有回家(或者你是单亲)。现在怎么办？
 

@@ -1,6 +1,6 @@
 # 用丹麦黄油曲奇制作曲奇黄油
 
-> 原文:[https://life hacker . com/make-cookie-butter-from-Danish-butter-cookies-1840315426](https://lifehacker.com/make-cookie-butter-from-danish-butter-cookies-1840315426)
+> 原文：<https://lifehacker.com/make-cookie-butter-from-danish-butter-cookies-1840315426>
 
 一罐皇家蓝丹麦黄油曲奇总是受欢迎的景象。这些酥脆的黄油朋友是一种简单的节日快乐，不需要装饰(或糖衣),一旦清空，锡就成为刺绣用品的绝佳储存容器。我唯一的批评？你不能*把饼干涂在另一个(不同的)饼干上。*
 

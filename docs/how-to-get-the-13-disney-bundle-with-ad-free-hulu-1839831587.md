@@ -1,6 +1,6 @@
 # 如何通过无广告的 Hulu 获得 Disney+捆绑包
 
-> 原文:[https://life hacker . com/how-to-get-the-13-Disney-bundle-with-ad-free-Hulu-1839831587](https://lifehacker.com/how-to-get-the-13-disney-bundle-with-ad-free-hulu-1839831587)
+> 原文：<https://lifehacker.com/how-to-get-the-13-disney-bundle-with-ad-free-hulu-1839831587>
 
 Disney+已经上市，你可以获得的为数不多的服务之一是一个捆绑包，以每月 13 美元的价格为你提供流媒体服务、ESPN 和 Hulu，比每个人单独购买的价格便宜 5 美元。然而，这里有一个陷阱。你得到的是有广告支持的 Hulu 版本，这可能会让你非常恼火。谢天谢地，有一个解决办法。
 

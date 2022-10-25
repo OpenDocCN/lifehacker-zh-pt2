@@ -1,6 +1,6 @@
 # 如何在您下次购物时赢得更多奖励积分
 
-> 原文:[https://life hacker . com/how-to-earn-more-rewards-points on your next-杂货店-ru-1843201856](https://lifehacker.com/how-to-earn-more-rewards-points-on-your-next-grocery-ru-1843201856)
+> 原文：<https://lifehacker.com/how-to-earn-more-rewards-points-on-your-next-grocery-ru-1843201856>
 
 如果你已经为了冠状病毒时代的购物而放弃了你的奖励信用卡 ，转而使用返现卡，那么可能是时候重新评估了。
 

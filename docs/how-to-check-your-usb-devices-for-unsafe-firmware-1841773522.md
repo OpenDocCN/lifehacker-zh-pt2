@@ -1,6 +1,6 @@
 # 如何检查您的 USB 设备的不安全固件
 
-> 原文:[https://life hacker . com/how-to-check-your-USB-devices-for-unsafe-firmware-1841773522](https://lifehacker.com/how-to-check-your-usb-devices-for-unsafe-firmware-1841773522)
+> 原文：<https://lifehacker.com/how-to-check-your-usb-devices-for-unsafe-firmware-1841773522>
 
 您的 USB 外围设备可能会使您的电脑易受黑客攻击。数据安全公司 Eclypsium 报告称，大多数基于 Windows 和 Linux 的外围设备使用“未签名”的固件 [，这使它们容易受到各种形式的攻击](https://eclypsium.com/2020/2/18/unsigned-peripheral-firmware/)——勒索软件、间谍软件，甚至完全的设备接管。
 

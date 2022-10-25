@@ -1,6 +1,6 @@
 # how to volunteer for a coronavirus vaccine study 1844531828
 
-> 原文:[https://life hacker . com/how-to-volunteer-for-a-coronavirus-vaccine-study-1844531828](https://lifehacker.com/how-to-volunteer-for-a-coronavirus-vaccine-study-1844531828)
+> 原文：<https://lifehacker.com/how-to-volunteer-for-a-coronavirus-vaccine-study-1844531828>
 
 冠状病毒疫苗 的第一个三期试验于本周开始，计划在结束时招募 3 万名志愿者——更多的三期试验可能很快开始。虽然我们都希望尽快找到一种安全有效的疫苗，但要想知道它是否安全有效，唯一的方法就是让志愿者们试一试。
 

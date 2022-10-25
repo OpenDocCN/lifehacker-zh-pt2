@@ -1,6 +1,6 @@
 # 世卫组织称新冠肺炎为疫情意味着什么
 
-> 原文:[https://life hacker . com/what-it-mean-the-who-is-calling-新冠肺炎-疫情-1842269654](https://lifehacker.com/what-it-means-that-who-is-calling-covid-19-a-pandemic-1842269654)
+> 原文：<https://lifehacker.com/what-it-means-that-who-is-calling-covid-19-a-pandemic-1842269654>
 
 直到现在，世界卫生组织还不想称新冠肺炎为疫情。今天他们决定开始使用这个词。
 

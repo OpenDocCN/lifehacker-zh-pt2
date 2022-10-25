@@ -1,6 +1,6 @@
 # 在哪里可以找到您所在州的冠状病毒驱逐和公用事业关闭规则
 
-> 原文:[https://life hacker . com/where-to-find-coronavirus-eviction-and-utility-shut-off-1842470826](https://lifehacker.com/where-to-find-coronavirus-eviction-and-utility-shutoff-1842470826)
+> 原文：<https://lifehacker.com/where-to-find-coronavirus-eviction-and-utility-shutoff-1842470826>
 
 随着冠状病毒 [疫情](https://lifehacker.com/tag/coronavirus) 的发展，许多城市和州已经暂停出租驱逐和公用事业关闭。但是到处都有这么多与流行病相关的新闻，很难不分心地找到这些信息。
 

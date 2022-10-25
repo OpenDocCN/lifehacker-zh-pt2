@@ -1,6 +1,6 @@
 # 如何找到 Chromebook 的报废日期
 
-> 原文:[https://life hacker . com/how-to-find-your-chrome books-end-of-life-date-1839833161](https://lifehacker.com/how-to-find-your-chromebooks-end-of-life-date-1839833161)
+> 原文：<https://lifehacker.com/how-to-find-your-chromebooks-end-of-life-date-1839833161>
 
 在某个时候，我们所有漂亮的新设备都会变得老旧。保修到期，硬件改进，公司只能在有限的时间内通过软件或固件更新来支持他们的产品。为了帮助你确定 Chromebook 何时将达到支持终止日期，谷歌将很快在 Chrome OS 设置菜单中添加这些信息。
 

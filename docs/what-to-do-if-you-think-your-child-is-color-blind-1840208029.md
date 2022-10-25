@@ -1,6 +1,6 @@
 # 如果你认为你的孩子是色盲，该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-you-think-you-child is-color-blind-1840208029](https://lifehacker.com/what-to-do-if-you-think-your-child-is-color-blind-1840208029)
+> 原文：<https://lifehacker.com/what-to-do-if-you-think-your-child-is-color-blind-1840208029>
 
 小孩子在他们最初的几年里学了很多东西。他们正在学习走路、说话和识别各种各样的东西——人、动物、数字、字母和颜色。事实证明，我们在英语中使用颜色的方式——通常是在名词前，或者在名词之前——没有帮助。我们倾向于说，“有一辆蓝色的汽车”，而不是“有一辆蓝色的汽车”，这使得孩子更难辨别汽车的是什么使它成为“蓝色”
 

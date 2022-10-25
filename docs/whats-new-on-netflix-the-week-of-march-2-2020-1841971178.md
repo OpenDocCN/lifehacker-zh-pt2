@@ -1,6 +1,6 @@
 # 2020 年 3 月 2 日这一周网飞有什么新消息
 
-> 原文:[https://life hacker . com/whats-new-on-the-week-of-March-2-2020-1841971178](https://lifehacker.com/whats-new-on-netflix-the-week-of-march-2-2020-1841971178)
+> 原文：<https://lifehacker.com/whats-new-on-netflix-the-week-of-march-2-2020-1841971178>
 
 如果你想在网飞看黑豹，那么你只有几天的时间了。这部电影将于 3 月 3 日离开迪士尼+(它 [于 3 月 4 日](https://lifehacker.com/whats-coming-to-disney-in-march-2020-1841812925) 到达那里)。
 

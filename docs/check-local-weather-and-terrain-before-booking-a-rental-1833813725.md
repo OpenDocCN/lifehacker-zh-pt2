@@ -1,6 +1,6 @@
 # 预订租车前，先查看当地的天气和地形
 
-> 原文:[https://life hacker . com/check-local-weather-and-terrain-before-booking-a-rental-1833813725](https://lifehacker.com/check-local-weather-and-terrain-before-booking-a-rental-1833813725)
+> 原文：<https://lifehacker.com/check-local-weather-and-terrain-before-booking-a-rental-1833813725>
 
 我从来都不是一个租车时很在意车型的人。哦，这款是最便宜的，至少有一个正常工作的 USB 接口，还能把我的手机和扬声器连接起来？很好，我就要那个，谢谢。
 

@@ -1,6 +1,6 @@
 # 如果你签证过期会怎么样？
 
-> 原文:[https://life hacker . com/what-happed-if-you-over-stay you-visa-1844407039](https://lifehacker.com/what-happens-if-you-overstay-your-visa-1844407039)
+> 原文：<https://lifehacker.com/what-happens-if-you-overstay-your-visa-1844407039>
 
 旅行中可能发生的最可怕的事情之一就是签证过期。签证过期意味着你已经超过了你申请的签证上规定的天数，或者超过了你从入境国收到的印章上规定的期限。即使你没有申请签证，如果你只被允许在一个国家停留一定的天数，并且超过了这些天数，那也属于逾期居留——这可能意味着处罚。
 

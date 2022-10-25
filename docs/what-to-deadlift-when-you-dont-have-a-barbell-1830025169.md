@@ -1,6 +1,6 @@
 # 当你没有杠铃时，硬拉什么
 
-> 原文:[https://life hacker . com/what-to-deadlift-when-you-don ' t-have-a-barbell-1830025169](https://lifehacker.com/what-to-deadlift-when-you-dont-have-a-barbell-1830025169)
+> 原文：<https://lifehacker.com/what-to-deadlift-when-you-dont-have-a-barbell-1830025169>
 
 我希望大家在 [硬拉挑战](https://vitals.lifehacker.com/october-is-for-deadlifts-1829438935#_ga=2.4540859.968942123.1540214725-1456718367.1520458611) 中玩得开心，但是如果你不开心，是因为你没有杠铃举吗？上周我们介绍了一些哑铃和体重替代方案(诀窍是单腿硬拉)，但是当你仍然想举起重物，但你没有方便的设备时，这里有更多的选择。
 

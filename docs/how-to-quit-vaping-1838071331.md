@@ -1,6 +1,6 @@
 # 如何戒掉烟瘾
 
-> 原文:[https://lifehacker.com/how-to-quit-vaping-1838071331](https://lifehacker.com/how-to-quit-vaping-1838071331)
+> 原文：<https://lifehacker.com/how-to-quit-vaping-1838071331>
 
 也许你被与 vaping 有关的呼吸系统疾病 爆发的 [吓坏了。也许你只是厌倦了把钱给一种上瘾产品的制造商。不管怎样，让我们看看怎样才能戒掉蒸发。](https://lifehacker.com/what-might-be-causing-the-vaping-illness-1837929828)
 

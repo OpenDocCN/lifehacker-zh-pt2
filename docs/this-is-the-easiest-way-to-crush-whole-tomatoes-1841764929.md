@@ -1,6 +1,6 @@
 # 这是压碎整个西红柿最简单的方法
 
-> 原文:[https://life hacker . com/this-is-the-easy-to-crush 整个西红柿-1841764929](https://lifehacker.com/this-is-the-easiest-way-to-crush-whole-tomatoes-1841764929)
+> 原文：<https://lifehacker.com/this-is-the-easiest-way-to-crush-whole-tomatoes-1841764929>
 
 大多数以罐装西红柿为特色的食谱会让你用木勺在锅边挤压它们。这是一个足够简单的动作，但取决于你的勺子的曲率和你的番茄的顽固程度，它可以将整个水果从酱汁中飞出，从而导致飞溅(这是我试图用红酱最小化的事情)。而且，如果你设法让它不溜走，种子贮藏还是有机会的。
 

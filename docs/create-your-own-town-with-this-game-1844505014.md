@@ -1,6 +1,6 @@
 # 用这个游戏创造你自己的城镇
 
-> 原文:[https://life hacker . com/create-your-own-town-with the-game-1844505014](https://lifehacker.com/create-your-own-town-with-this-game-1844505014)
+> 原文：<https://lifehacker.com/create-your-own-town-with-this-game-1844505014>
 
 一级防范禁闭最奇怪的地方之一是缺乏与你所在城镇或社区的互动。不管你是住在曼哈顿还是俄亥俄州的乡下，当你真的只呆在家里时，我们的家就变成了我们的整个世界。也许你甚至已经开始幻想创建一个理想的城镇，那里有大量的公共厕所和有闪亮和静止选项的喷泉。(就我？)无论如何，你可能有兴趣了解一种新的“游戏”(在引号中，因为设计师不认为它是一种游戏，但稍后会有更多的介绍)，称为“Townscaper】让你实现你的城市规划梦想，没有所有的繁文缛节。
 

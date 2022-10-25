@@ -1,6 +1,6 @@
 # 每月最佳的 2020 年旅游交易
 
-> 原文:[https://life hacker . com/the-best-2020-travel-deals-for-month-1840777434](https://lifehacker.com/the-best-2020-travel-deals-for-every-month-1840777434)
+> 原文：<https://lifehacker.com/the-best-2020-travel-deals-for-every-month-1840777434>
 
 如果你计划在 2020 年旅行，旅行费用可能是一个非常重要的考虑因素。最大的成本之一，当谈到离开是机票。Kayak 最近分析了历史航班价格，得出了 2020 年每个月在节省航班方面的最佳旅游地点。
 

@@ -1,6 +1,6 @@
 # 2019 年最佳健康故事
 
-> 原文:[https://life hacker . com/our-best-health-stories-of-2019-1840617333](https://lifehacker.com/our-best-health-stories-of-2019-1840617333)
+> 原文：<https://lifehacker.com/our-best-health-stories-of-2019-1840617333>
 
 2019 年，我们学到了很多东西，比如吃什么，怀孕是如何进行的，以及一些著名的健康秘诀是否值得你花时间。以下是今年我们最喜欢的一些健康帖子。
 

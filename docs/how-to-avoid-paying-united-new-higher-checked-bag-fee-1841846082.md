@@ -1,6 +1,6 @@
 # 如何避免支付美联航新的更高的托运行李费
 
-> 原文:[https://life hacker . com/how-to-avoid-paying-United-new-higher-checked-bag-fee-1841846082](https://lifehacker.com/how-to-avoid-paying-united-new-higher-checked-bag-fee-1841846082)
+> 原文：<https://lifehacker.com/how-to-avoid-paying-united-new-higher-checked-bag-fee-1841846082>
 
 如果你有一次联合航空的旅行，你可以考虑预付托运行李的费用。该航空公司周五宣布，计划从 3 月 6 日开始将托运行李的费用从 30 美元提高到 35 美元。第二个托运行李的价格也将从 40 美元涨到 45 美元。
 

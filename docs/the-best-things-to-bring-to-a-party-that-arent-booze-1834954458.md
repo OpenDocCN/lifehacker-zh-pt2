@@ -1,6 +1,6 @@
 # 除了酒，参加派对最好的东西是什么
 
-> 原文:[https://life hacker . com/the-best-things-to-bring-a-party-the-parent-booze-1834954458](https://lifehacker.com/the-best-things-to-bring-to-a-party-that-arent-booze-1834954458)
+> 原文：<https://lifehacker.com/the-best-things-to-bring-to-a-party-that-arent-booze-1834954458>
 
 当我还是一个被赋予足够举办派对的面积的人时，我总是感谢任何人带来任何东西。当人们问我可以带些什么时，我总是说“再来点酒”，因为我才 20 出头，没有酒喝就像世界末日一样。但之后我会拿着几瓶劣质啤酒、劣质葡萄酒和(一个命运多舛的夜晚)火龙果伏特加，希望我已经让人们带了热水澡或其他东西。
 

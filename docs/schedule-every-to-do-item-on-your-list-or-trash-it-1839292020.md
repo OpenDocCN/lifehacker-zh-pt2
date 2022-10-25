@@ -1,6 +1,6 @@
 # 安排好你清单上的每一个待办事项——或者扔掉它
 
-> 原文:[https://life hacker . com/schedule-every-to-do-item-on-your-list-or-trash-it-1839292020](https://lifehacker.com/schedule-every-to-do-item-on-your-list-or-trash-it-1839292020)
+> 原文：<https://lifehacker.com/schedule-every-to-do-item-on-your-list-or-trash-it-1839292020>
 
 如果你的待办事项清单上写满了你需要在“某一天”完成的项目，那么是时候把这些项目放到日历上了——或者把它们从清单上去掉。
 

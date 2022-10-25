@@ -1,6 +1,6 @@
 # 扩大播客受众的最佳方式
 
-> 原文:[https://life hacker . com/the-best-ways-grow-your-podcast-audience-1840243950](https://lifehacker.com/the-best-ways-to-grow-your-podcast-audience-1840243950)
+> 原文：<https://lifehacker.com/the-best-ways-to-grow-your-podcast-audience-1840243950>
 
 发布你的播客是成功的一半。现在你必须让人们倾听。在上面的视频中，我和播客专家讨论了你应该做的三件事来获得听众和扩大你的听众。
 

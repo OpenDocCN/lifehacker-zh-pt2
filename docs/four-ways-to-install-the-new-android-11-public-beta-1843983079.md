@@ -1,6 +1,6 @@
 # 安装新 Android 11 公测版的四种方法
 
-> 原文:[https://life hacker . com/four-way-to-install-the-new-Android-11-public-beta-1843983079](https://lifehacker.com/four-ways-to-install-the-new-android-11-public-beta-1843983079)
+> 原文：<https://lifehacker.com/four-ways-to-install-the-new-android-11-public-beta-1843983079>
 
 因为 [我刚刚写了一篇关于如何安装 Android 11 的潜在 buggier 开发者预览版的文章](https://lifehacker.com/try-android-11-today-using-googles-android-flash-tool-1843953684) ，谷歌今天推出 Android 11 公测版是再合适不过了。通过官方途径将这个最新的测试版安装到你的 Pixel 智能手机上——并且只安装*的*Pixel——再简单不过了。
 

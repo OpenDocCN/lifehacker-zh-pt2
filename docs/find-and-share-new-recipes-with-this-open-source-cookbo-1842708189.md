@@ -1,6 +1,6 @@
 # 用这本开源食谱寻找和分享新的食谱
 
-> 原文:[https://life hacker . com/find-and-share-new-recipes-with-this-open-source-cookbo-1842708189](https://lifehacker.com/find-and-share-new-recipes-with-this-open-source-cookbo-1842708189)
+> 原文：<https://lifehacker.com/find-and-share-new-recipes-with-this-open-source-cookbo-1842708189>
 
 在家做饭是大多数人现在可以从事的少数活动之一，这意味着它比平时具有更大的意义。光喂饱你的身体是不够的(所以你继续活着)，你必须*滋养*，你必须*提升*，你必须*连接*。但是所有这些*重要的*烹饪很可能导致食谱疲劳，这就是为什么这本简单的 [开源食谱](https://opensourcecookbook.cargo.site) (至少对我来说)是一股新鲜空气。
 

@@ -1,6 +1,6 @@
 # 把你的旧被子和枕头捐给动物收容所
 
-> 原文:[https://life hacker . com/把你的旧被子和旧枕头捐给动物收容所-1833848182](https://lifehacker.com/donate-your-old-comforter-and-pillows-to-an-animal-shel-1833848182)
+> 原文：<https://lifehacker.com/donate-your-old-comforter-and-pillows-to-an-animal-shel-1833848182>
 
 我在纽约住过六个不同的公寓，在我的几次搬家中，我经常遇到我应该留下的东西，比如旧衣服或不用的电子产品。但是，我该怎么处理那些失去缓冲的枕头，或者那些旧的、破损的、积满灰尘的被子呢？
 

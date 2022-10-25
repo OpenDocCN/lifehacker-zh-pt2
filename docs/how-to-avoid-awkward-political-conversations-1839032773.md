@@ -1,6 +1,6 @@
 # 如何避免尴尬的政治对话
 
-> 原文:[https://life hacker . com/how-to-避免尴尬政治对话-1839032773](https://lifehacker.com/how-to-avoid-awkward-political-conversations-1839032773)
+> 原文：<https://lifehacker.com/how-to-avoid-awkward-political-conversations-1839032773>
 
 我们最近写了如何在没有结束友谊 的情况下 [对政治持不同意见——但是如果你真的想完全避免这个话题，你应该怎么做呢？](https://lifehacker.com/how-to-disagree-on-politics-without-ending-a-friendship-1838187333) 
 

@@ -1,6 +1,6 @@
 # 当你给你的孩子想要的东西时，为什么他们会生气
 
-> 原文:[https://life hacker . com/why-your-culld-gets-mad-why-your-could-when-you-give-they-1836375256](https://lifehacker.com/why-your-toddler-gets-mad-when-you-give-them-what-they-1836375256)
+> 原文：<https://lifehacker.com/why-your-toddler-gets-mad-when-you-give-them-what-they-1836375256>
 
 一旦孩子开始说话——或者甚至非语言地表明一种偏好——我们就开始给他们选择。你想穿红色衬衫还是黄色衬衫？你午餐想要花生酱还是烤奶酪三明治？我们应该读*晚安月亮*还是*饥饿的毛毛虫*？我们试图在他们原本无法控制的世界里给他们一点点控制权。我们正努力避免为一点点细节发脾气。
 

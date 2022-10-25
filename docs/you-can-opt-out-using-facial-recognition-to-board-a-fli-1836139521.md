@@ -1,6 +1,6 @@
 # 你可以选择不使用面部识别登机
 
-> 原文:[https://life hacker . com/you-can-opt-out-using-face-recognition-to-board-a-fli-1836139521](https://lifehacker.com/you-can-opt-out-using-facial-recognition-to-board-a-fli-1836139521)
+> 原文：<https://lifehacker.com/you-can-opt-out-using-facial-recognition-to-board-a-fli-1836139521>
 
 几个月前，在亚特兰大转机时，我看到了不寻常的一幕:面部识别被用于登机程序。
 

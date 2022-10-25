@@ -1,6 +1,6 @@
 # 如何保护你的环形相机免受最新“黑客攻击”
 
-> 原文:[https://life hacker . com/how-to-keep-your-ring-camera-safe-from the-latest-hack-1840373750](https://lifehacker.com/how-to-keep-your-ring-cameras-safe-from-the-latest-hack-1840373750)
+> 原文：<https://lifehacker.com/how-to-keep-your-ring-cameras-safe-from-the-latest-hack-1840373750>
 
 如果你有一台环形摄像机，并且你已经看过 Vice 的“黑客如何侵入环形摄像机”这样的头条新闻，你无疑会有点紧张。有人闯入了你自己的家吗？他们在监视你吗？你的宠物？你的孩子？
 

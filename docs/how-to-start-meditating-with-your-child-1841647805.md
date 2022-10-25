@@ -1,6 +1,6 @@
 # 如何开始和孩子一起冥想
 
-> 原文:[https://life hacker . com/how-to-start-与孩子一起冥想-1841647805](https://lifehacker.com/how-to-start-meditating-with-your-child-1841647805)
+> 原文：<https://lifehacker.com/how-to-start-meditating-with-your-child-1841647805>
 
 如果我们的孩子看起来比以往任何时候都更有计划、更焦虑、更有压力，那是因为他们可能确实如此。这对他们(和我们)来说都很有挑战性！)想办法拔掉插头，放松一下。但是对于学龄前的孩子来说，每天几分钟的冥想可以教会他们如何停下来，集中注意力和呼吸。
 

@@ -1,6 +1,6 @@
 # 家长:你如何处理学校和工作日之间的间隙？
 
-> 原文:[https://life hacker . com/parents-how-do-you-hand-the-gap-the-school-d-1839691991](https://lifehacker.com/parents-how-do-you-handle-the-gap-between-the-school-d-1839691991)
+> 原文：<https://lifehacker.com/parents-how-do-you-handle-the-gap-between-the-school-d-1839691991>
 
 当总统候选人参议员卡玛拉·哈里斯昨天提出一项法案，将每天的上学时间延长三个小时，以更好地与传统的工作日保持一致时，它提出了一个更大的问题:每天的上学时间需要延长还是工作日应该缩短？
 

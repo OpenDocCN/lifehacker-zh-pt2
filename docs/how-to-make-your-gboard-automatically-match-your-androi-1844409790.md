@@ -1,6 +1,6 @@
 # 如何让你的 Gboard 自动匹配你的 Android 的深色或浅色主题
 
-> 原文:[https://life hacker . com/how-to-make-your-gboard-automatically-match-your-androi-1844409790](https://lifehacker.com/how-to-make-your-gboard-automatically-match-your-androi-1844409790)
+> 原文：<https://lifehacker.com/how-to-make-your-gboard-automatically-match-your-androi-1844409790>
 
 在你的 Android 上设置黑暗模式很容易，但是确保 [**Gboard 键盘**](https://play.google.com/store/apps/details?id=com.google.android.inputmethod.latin) 符合你对光明或黑暗面的偏好需要更多的手工。如果你想让你的键盘在你的 Android 主题改变时改变颜色——比如在一天中的某个特定时间——这个过程会有点混乱。
 

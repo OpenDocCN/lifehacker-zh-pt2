@@ -1,6 +1,6 @@
 # 如何检查你的护照申请状态
 
-> 原文:[https://life hacker . com/how-to-check-on-your-passport-application-status-1838119627](https://lifehacker.com/how-to-check-on-your-passport-application-status-1838119627)
+> 原文：<https://lifehacker.com/how-to-check-on-your-passport-application-status-1838119627>
 
 当你申请新护照或护照更新的时候，机会很大，因为你即将有一次旅行。如果你是我，一次即将到来的旅行。
 

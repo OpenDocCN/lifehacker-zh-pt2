@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:我不想违背我的道德准则为政客服务
 
-> 原文:[https://the take out . com/I-don-to-want-to-serve-politics-against-my-moral-code-1836188495](https://thetakeout.com/i-dont-want-to-serve-politicians-against-my-moral-code-1836188495)
+> 原文：<https://thetakeout.com/i-dont-want-to-serve-politicians-against-my-moral-code-1836188495>
 
 > 亲爱的 Salty:我在你的网站上读到过一个芝加哥鸡尾酒吧的服务员向埃里克·川普 吐口水，这让我陷入了思考。我在华盛顿特区杜邦环岛附近的一家餐馆当了几个月的服务员。政界人士经常光顾我们的餐馆(这几乎是不可避免的)，对我来说，谢天谢地，他们大多数都是匿名人士。但我担心，如果我认识的人，对我的事业造成了伤害，走进我们的餐馆，我会有什么反应。
 > 

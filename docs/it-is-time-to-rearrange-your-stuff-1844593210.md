@@ -1,6 +1,6 @@
 # 是时候重新整理你的东西了
 
-> 原文:[https://life hacker . com/it-is-time to-re-arrange-your-stuff-1844593210](https://lifehacker.com/it-is-time-to-rearrange-your-stuff-1844593210)
+> 原文：<https://lifehacker.com/it-is-time-to-rearrange-your-stuff-1844593210>
 
 如果你在 covid 之前没有在家工作过，那么你现在很有可能会这样做，而且你可能已经厌倦了查看你生活空间的内部。我已经在家工作了大约五年，作为一个很容易厌倦的人，陈旧的内部装饰是我非常擅长应对的事情。这可能看起来太明显了，但是给你的住所注入新生命的最简单的方法就是在没有计划或议程的情况下在四处移动你的东西。
 

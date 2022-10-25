@@ -1,6 +1,6 @@
 # 你想让我们测试哪些应用？
 
-> 原文:[https://life hacker . com/what-apps-do-you-want-us-to-test-1831784581](https://lifehacker.com/what-apps-do-you-want-us-to-test-1831784581)
+> 原文：<https://lifehacker.com/what-apps-do-you-want-us-to-test-1831784581>
 
 如果你需要手机做什么，可能会有一个应用程序来完成。事实上，由于 iOS 应用商店和 Google Play 应用商店分别有超过 200 万个的应用，因此可能会有太多的*应用。那么如何选择合适的呢？*
 

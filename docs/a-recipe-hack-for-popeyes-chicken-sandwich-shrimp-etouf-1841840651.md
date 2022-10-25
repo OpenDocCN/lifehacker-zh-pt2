@@ -1,6 +1,6 @@
 # 如何把大力水手鸡肉三明治变成油腻的星期二大餐
 
-> 原文:[https://the take out . com/a-recipe-hack-for-popeyes-鸡肉-三明治-虾-etouf-1841840651](https://thetakeout.com/a-recipe-hack-for-popeyes-chicken-sandwich-shrimp-etouf-1841840651)
+> 原文：<https://thetakeout.com/a-recipe-hack-for-popeyes-chicken-sandwich-shrimp-etouf-1841840651>
 
 周二无疑是一周中最没有节日气氛的一天。周三是驼峰日，周四是周五前夜，周五，当你打卡下班的时候，胸罩和不舒服的鞋子就变成可选的了。周六和周日总是喜庆的，因为即使你选择通过跑腿来负责任地度过它们，你至少知道你可以放下一切去喝含羞草酒。周一，我会庆祝孩子们回到学校，见到我的同事，他们通常是我生活中唯一明智的成人对话来源。但是星期二呢？星期二什么都没有。星期二有玉米卷，但是我们都知道我们可以随时吃玉米卷。我讨厌玉米卷星期二，因为它试图将玉米卷的食用限制在一周的某一天。别告诉我该怎么生活。
 

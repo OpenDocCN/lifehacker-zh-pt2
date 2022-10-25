@@ -1,6 +1,6 @@
 # 把万圣节糖果放在煎饼里
 
-> 原文:[https://life hacker . com/put-万圣节-煎饼里的糖果-1839502091](https://lifehacker.com/put-halloween-candy-in-pancakes-1839502091)
+> 原文：<https://lifehacker.com/put-halloween-candy-in-pancakes-1839502091>
 
 这个特殊的万圣节已经持续了大约 10 天，这意味着你可能已经积攒了一大堆糖果，即使你没有孩子。这种糖果可以原样食用，储藏在冰箱里，或者切碎撒在煎饼上。(你也可以采取所有这三种行动，这取决于你藏钱的多少。)
 

@@ -1,6 +1,6 @@
 # 为什么拖延对你的大脑有害
 
-> 原文:[https://life hacker . com/why-拖延对大脑有害-1830713340](https://lifehacker.com/why-procrastination-is-bad-for-your-brain-1830713340)
+> 原文：<https://lifehacker.com/why-procrastination-is-bad-for-your-brain-1830713340>
 
 拖延是我们许多人沉溺其中的一种恶习，这也是它如此难以戒掉的原因。然而，拖延的长期影响实际上正在伤害你的大脑。
 

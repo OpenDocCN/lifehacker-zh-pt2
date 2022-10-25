@@ -1,6 +1,6 @@
 # 如何用飞机运送尸体
 
-> 原文:[https://life hacker . com/how-to-transport-a-dead-body-by-plane-1836397054](https://lifehacker.com/how-to-transport-a-dead-body-by-plane-1836397054)
+> 原文：<https://lifehacker.com/how-to-transport-a-dead-body-by-plane-1836397054>
 
 每天都有人死亡——是的，这包括他们在旅行的时候。这不是我们大多数人在 [计划旅行](https://lifehacker.com/tag/travel-planning) 时会想到的事情，但对一些人来说，这是一个不幸的现实。但是，如果你和某人一起旅行，而他去世了，你该怎么办？你不可能让他们在伯尼家过周末，然后用他们原来的经济舱机票把他们送回去——所以你有什么选择？
 

@@ -1,6 +1,6 @@
 # how to survive an open office 1834201259
 
-> 原文:[https://life hacker . com/how-to-survive-a-open-office-1834201259](https://lifehacker.com/how-to-survive-an-open-office-1834201259)
+> 原文：<https://lifehacker.com/how-to-survive-an-open-office-1834201259>
 
 ## 亲爱的人力资源，
 

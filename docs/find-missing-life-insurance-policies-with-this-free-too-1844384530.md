@@ -1,6 +1,6 @@
 # 用这个免费工具找到丢失的人寿保险单
 
-> 原文:[https://life hacker . com/find-missing-life-insurance-policies-with-this-free-too-1844384530](https://lifehacker.com/find-missing-life-insurance-policies-with-this-free-too-1844384530)
+> 原文：<https://lifehacker.com/find-missing-life-insurance-policies-with-this-free-too-1844384530>
 
 没有什么比失去亲人更痛苦的了。在最后的仪式之后，可能很难花几个月的时间来理清他们的事务。当你不得不努力应对缺失的财务信息，或者更糟糕的是，在他们的最终愿望上发生冲突时，悲伤的过程只会变得更加艰难。
 

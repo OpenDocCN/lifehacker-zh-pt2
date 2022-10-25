@@ -1,6 +1,6 @@
 # 如何观看今晚的民主党总统候选人辩论
 
-> 原文:[https://life hacker . com/how-to-watch-tonights-democratic-president-debate-1840490748](https://lifehacker.com/how-to-watch-tonights-democratic-presidential-debate-1840490748)
+> 原文：<https://lifehacker.com/how-to-watch-tonights-democratic-presidential-debate-1840490748>
 
 在几名候选人 [因当地劳资纠纷威胁抵制](https://www.vox.com/policy-and-politics/2019/12/17/21025026/democratic-debate-strike-loyola-marymount-tom-perez-unite-here) 今晚的辩论后，官方宣布:2019 年最后一场民主党总统辩论重新开始。迄今为止第一次辩论，我们将在洛杉机的罗耀拉·玛丽蒙特大学见证七位候选人登上舞台*。* 
 

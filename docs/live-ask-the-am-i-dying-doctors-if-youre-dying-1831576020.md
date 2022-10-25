@@ -1,6 +1,6 @@
 # 直播:问“我会死吗”医生你是否会死[更新:完成]
 
-> 原文:[https://life hacker . com/live-ask-the-am-I-dying-doctors-if-you-dying-1831576020](https://lifehacker.com/live-ask-the-am-i-dying-doctors-if-youre-dying-1831576020)
+> 原文：<https://lifehacker.com/live-ask-the-am-i-dying-doctors-if-youre-dying-1831576020>
 
 我们直播到美国东部时间下午 2 点！克里斯托弗·凯利和马克·艾森伯格是心脏病专家，也是《T2:我要死了吗？》一书的作者。！:你的症状的完整指南——以及下一步该做什么 *，*正式待命，讨论你奇怪和令人担忧的症状，或者你有什么一般的健康问题。在评论中发表你的医学疑问吧！
 

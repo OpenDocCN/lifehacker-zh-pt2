@@ -1,6 +1,6 @@
 # 不要在网上要求形式检查
 
-> 原文:[https://life hacker . com/don-quest-the-internet for-form-checks-1836191367](https://lifehacker.com/dont-ask-the-internet-for-form-checks-1836191367)
+> 原文：<https://lifehacker.com/dont-ask-the-internet-for-form-checks-1836191367>
 
 多亏了互联网，你现在可以在没有教练的情况下学习复杂、困难的举重技巧。看一些 y 出的 ube 视频，看一些文章，然后自己尝试一下 [视频](https://lifehacker.com/how-and-why-to-video-your-lifts-1835387315) 。不确定你做得对不对？只需 [在你最喜欢的 reddit](https://www.reddit.com/r/Fitness/wiki/posting_guidelines#wiki_how_to_post_a_form_check) 或你选择的社交网络上发帖，并询问:“我可以对此进行形式检查吗？”
 

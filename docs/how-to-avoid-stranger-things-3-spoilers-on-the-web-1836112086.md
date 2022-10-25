@@ -1,6 +1,6 @@
 # 如何避免网络上的《奇异事物 3》剧透
 
-> 原文:[https://life hacker . com/how-to-avoid-stranger-things-3-spoilers-on-the-web-1836112086](https://lifehacker.com/how-to-avoid-stranger-things-3-spoilers-on-the-web-1836112086)
+> 原文：<https://lifehacker.com/how-to-avoid-stranger-things-3-spoilers-on-the-web-1836112086>
 
 《奇人异事 3》今天正式出。如果你选择在户外和朋友庆祝独立日，而不是粘在电视机前，那么在你沉迷于看电视之前，你很可能会遇到一两个剧透。
 

@@ -1,6 +1,6 @@
 # 如何在网飞上加快播放速度
 
-> 原文:[https://life hacker . com/how-to-speed-up-playback-on-网飞-1844596664](https://lifehacker.com/how-to-speed-up-playback-on-netflix-1844596664)
+> 原文：<https://lifehacker.com/how-to-speed-up-playback-on-netflix-1844596664>
 
 一些人试图告诉其他人不要以 1.5 倍的速度 收听他们的播客，网飞最近宣布 [现在将允许人们控制其内容的播放速度，这一举动注定会引发一场自](https://gizmodo.com/netflix-adds-playback-speed-settings-so-now-i-can-burn-1844583307) [以来我们从未见过的互联网微争议。streamer](https://www.theverge.com/2015/2/17/8043077/stop-listening-to-podcasts-fast-speed) [去年开始测试的新功能](https://www.theverge.com/2019/10/29/20937546/netflix-playback-speed-testing-android-mobile-tv-movies-hollywood-filmmakers) 目前正在向其 Android 应用程序的用户推出，但很快也将适用于 iOS 应用程序和网络浏览器。
 网飞声称已经限制了用户可以使用的控件，以安抚像贾德·阿帕图这样的好莱坞导演，他们在去年年底这部电影的策划阶段就表示强烈抗议；他宁愿你不要像一次往嘴里塞五块奥利奥一样快速浏览他倾注了心血的电影。就我个人而言，我尊重艺术意图，但只要观众没有被*强迫观看加速的电影，我不知道导演在这件事上应该有多少发言权。他们可能更希望我不要暂停他们的电影，走开去做 15 分钟的玉米片。如果我想让劳勃·狄·尼诺和阿尔·帕西诺在《爱尔兰人》[](https://www.netflix.com/title/80175798)*中更有活力一点，并在马丁·斯科塞斯(Martin Scorsese)的直接流媒体史诗电影中删减 70 分钟，那就由我决定。

@@ -1,6 +1,6 @@
 # 如何使用 Face ID 锁定您的 Facebook Messenger 聊天
 
-> 原文:[https://life hacker . com/how-to-lock-your-Facebook-messenger-chats-using-face-id-1844469318](https://lifehacker.com/how-to-lock-your-facebook-messenger-chats-using-face-id-1844469318)
+> 原文：<https://lifehacker.com/how-to-lock-your-facebook-messenger-chats-using-face-id-1844469318>
 
 如果你曾经因为担心朋友会读取你的 DMs 而犹豫不决，现在你至少可以在你的 iPhone 或 iPad 上用一个单独的 Face(或 Touch) ID 来锁定你的 Facebook Messenger 聊天。
 

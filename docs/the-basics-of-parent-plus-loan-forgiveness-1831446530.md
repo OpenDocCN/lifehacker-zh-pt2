@@ -1,6 +1,6 @@
 # 父母加贷款豁免的基础
 
-> 原文:[https://life hacker . com/the-basics-of-parent-plus-loan-religion-1831446530](https://lifehacker.com/the-basics-of-parent-plus-loan-forgiveness-1831446530)
+> 原文：<https://lifehacker.com/the-basics-of-parent-plus-loan-forgiveness-1831446530>
 
 获得 [学生贷款减免](https://twocents.lifehacker.com/how-to-know-if-you-qualify-for-public-student-loan-fori-1825027661) 资格的条款和条件可能会令人困惑。就拿这些数据来说吧:截至 2018 年夏天，在申请公共服务贷款豁免的近 2.9 万人中，只有 289 人获得批准。那可是百分之九十九的拒绝率。
 

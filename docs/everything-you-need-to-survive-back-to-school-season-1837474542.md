@@ -1,6 +1,6 @@
 # 你需要的一切来度过返校季
 
-> 原文:[https://life hacker . com/everything-you-need-to-survive-back-school-season-1837474542](https://lifehacker.com/everything-you-need-to-survive-back-to-school-season-1837474542)
+> 原文：<https://lifehacker.com/everything-you-need-to-survive-back-to-school-season-1837474542>
 
 我的儿子下周开始上三年级，这是他第一年不用说“朋友和学习万岁！”他更像是，“是啊，学校，*太好了*”我能理解他的感受。他还有九个月的工作要做，而杜德宁愿看《神奇宝贝》的重播。
 

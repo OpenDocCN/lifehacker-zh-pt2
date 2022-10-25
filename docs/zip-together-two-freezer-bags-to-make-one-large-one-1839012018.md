@@ -1,6 +1,6 @@
 # 把两个冷冻袋拉上拉链，做成一个大的
 
-> 原文:[https://life hacker . com/zip-together-two-freeze-bags-to-make-one-large-one-1839012018](https://lifehacker.com/zip-together-two-freezer-bags-to-make-one-large-one-1839012018)
+> 原文：<https://lifehacker.com/zip-together-two-freezer-bags-to-make-one-large-one-1839012018>
 
 冷冻袋非常适合储存各种东西。这周我发现了一些关于它们的新东西: ***你可以把它们两个连在一起*** 。
 

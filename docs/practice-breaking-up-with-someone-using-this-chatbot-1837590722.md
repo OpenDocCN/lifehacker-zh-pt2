@@ -1,6 +1,6 @@
 # 用这个聊天机器人练习和某人分手
 
-> 原文:[https://life hacker . com/practice-breaking-with-someone-using-this-chatbot-1837590722](https://lifehacker.com/practice-breaking-up-with-someone-using-this-chatbot-1837590722)
+> 原文：<https://lifehacker.com/practice-breaking-up-with-someone-using-this-chatbot-1837590722>
 
 如果你曾经和某人分手——并且是一系列愤怒短信或电话的接收方——你可能会对结束一段没有结果的关系感到畏缩。为了让自己完全不去谈，你甚至可以用约会来代替。
 

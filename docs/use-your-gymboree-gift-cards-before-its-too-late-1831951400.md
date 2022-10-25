@@ -1,6 +1,6 @@
 # 在为时已晚之前使用您的金宝贝礼品卡
 
-> 原文:[https://life hacker . com/use-your-Gymboree-gift-cards-before-that-tain-late-1831951400](https://lifehacker.com/use-your-gymboree-gift-cards-before-its-too-late-1831951400)
+> 原文：<https://lifehacker.com/use-your-gymboree-gift-cards-before-its-too-late-1831951400>
 
 如果你一直在囤积那些 [金宝贝](https://www.gymboree.com/home?lang=en_US) 礼品卡，等待着为你的孩子挥霍一些新款式的最佳时机，现在是时候使用它们了。
 

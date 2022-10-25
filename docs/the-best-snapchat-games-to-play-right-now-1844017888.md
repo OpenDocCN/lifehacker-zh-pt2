@@ -1,6 +1,6 @@
 # 现在玩的最好的 Snapchat 游戏
 
-> 原文:[https://life hacker . com/the-best-snapchat-games-to-play-right-now-1844017888](https://lifehacker.com/the-best-snapchat-games-to-play-right-now-1844017888)
+> 原文：<https://lifehacker.com/the-best-snapchat-games-to-play-right-now-1844017888>
 
 有些人喜欢对智能手机游戏是否是“真正的”视频游戏吹毛求疵(尤其是 Zynga 的产品)，但我一直认为，无论你在哪里玩，游戏就是游戏。在我看来，在智能手机上玩游戏和在游戏机或个人电脑上玩游戏没什么不同——现在，大约有 1 亿人在 Snapchat 上玩游戏，所有地方。
 

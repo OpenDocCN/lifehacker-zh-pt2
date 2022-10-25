@@ -1,6 +1,6 @@
 # 如何让各种能力的孩子更容易找到复活节彩蛋
 
-> 原文:[https://life hacker . com/how-to-make-your-Easter-egg-hunt-accessible-for-ki-1834148798](https://lifehacker.com/how-to-make-your-easter-egg-hunt-more-accessible-for-ki-1834148798)
+> 原文：<https://lifehacker.com/how-to-make-your-easter-egg-hunt-more-accessible-for-ki-1834148798>
 
 寻找复活节彩蛋是最棒的。起跑线令人眩晕。探索的刺激。狩猎后的满足感(“38 个蛋！*万岁！*”)。这是一个传统，每个孩子都应该能够参加，不管能力如何。
 

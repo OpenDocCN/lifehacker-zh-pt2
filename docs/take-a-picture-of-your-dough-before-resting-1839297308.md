@@ -1,6 +1,6 @@
 # 休息前给你的面团拍张照
 
-> 原文:[https://life hacker . com/take-a-pick-of-your-dough-before-resting-1839297308](https://lifehacker.com/take-a-picture-of-your-dough-before-resting-1839297308)
+> 原文：<https://lifehacker.com/take-a-picture-of-your-dough-before-resting-1839297308>
 
 说到烘焙，一份好的菜谱也只能做到这么多。有一个不可避免的学习曲线，视觉和触觉提示你必须自己去看和感受。这让一些潜在的面包师感到紧张，但快速拍照可以帮助缓解你的焦虑。
 

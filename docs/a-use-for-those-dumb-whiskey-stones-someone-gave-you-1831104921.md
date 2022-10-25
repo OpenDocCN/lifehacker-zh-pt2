@@ -1,6 +1,6 @@
 # 某人给你的那些愚蠢的威士忌石头的用途
 
-> 原文:[https://life hacker . com/a-use-for-that-dumb-whiskey-stones-someone-give-you-1831104921](https://lifehacker.com/a-use-for-those-dumb-whiskey-stones-someone-gave-you-1831104921)
+> 原文：<https://lifehacker.com/a-use-for-those-dumb-whiskey-stones-someone-gave-you-1831104921>
 
 我很少为男人难过。大多数时候，很难对他们感到难过。但是当我看到针对他们的礼物指南时，我为他们感到难过。几乎所有给兄弟、父亲、丈夫和爱人的礼物指南都包含“装钥匙和口袋牛肉干的皮革盒子(如《礼物指南》后面所见)”，“一个看起来一点也不像钱包的米色或灰色周末用袋子”，以及“愚蠢的他妈的威士忌石头”
 

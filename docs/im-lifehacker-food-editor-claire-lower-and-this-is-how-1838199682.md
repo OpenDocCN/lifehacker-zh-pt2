@@ -1,6 +1,6 @@
 # im lifehacker food editor claire lower and this is how 1838199682
 
-> 原文:[https://life hacker . com/im-life hacker-food-editor-claire-lower-and-this-is-how-1838199682](https://lifehacker.com/im-lifehacker-food-editor-claire-lower-and-this-is-how-1838199682)
+> 原文：<https://lifehacker.com/im-lifehacker-food-editor-claire-lower-and-this-is-how-1838199682>
 
 你好。是我，克莱尔。我是 Lifehacker 的美食编辑，我们正在看 Lifehacker 的员工如何工作的，我想我应该向你展示一下我是如何*吃*的。为了保持*我如何吃*的对话流，我让我的男朋友进行了采访。下面你会找到各种有趣问题的答案，比如“你喝多少健怡可乐？，”“玉米热狗是早餐食品吗？、“什么是‘零食盐’？”享受吧。
 

@@ -1,6 +1,6 @@
 # 你应该多久更新一次遗嘱？
 
-> 原文:[https://life hacker . com/how-frequency-you-will-1840324050](https://lifehacker.com/how-often-should-you-update-your-will-1840324050)
+> 原文：<https://lifehacker.com/how-often-should-you-update-your-will-1840324050>
 
 写遗嘱在精神上和情感上都要承担很多。它不仅让你直面自己的死亡，还迫使你做出重大决定，在你死后，你该相信谁来处理你的财务和个人事务。要做的事情很多，但一旦完成，这是一件能让你安心的事情。
 

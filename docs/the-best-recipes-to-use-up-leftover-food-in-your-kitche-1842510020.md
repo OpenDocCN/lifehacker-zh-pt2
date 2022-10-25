@@ -1,6 +1,6 @@
 # 厨师从不浪费美味的食物，相反，他们会发挥创造力
 
-> 原文:[https://the take out . com/the-best-recipes-to-use-up-food-in-your-kitche-1842510020](https://thetakeout.com/the-best-recipes-to-use-up-leftover-food-in-your-kitche-1842510020)
+> 原文：<https://thetakeout.com/the-best-recipes-to-use-up-leftover-food-in-your-kitche-1842510020>
 
 现在是 2010 年夏天，月底，食品价格很高。匹兹堡宾夕法尼亚通心粉公司的一位副厨师告诉我，我需要从厨房里清除掉过多的 giardiniera。你可能知道，Giardiniera 是意大利牛肉三明治中常见的辛辣腌制蔬菜，Penn Mac 做得很好。是的，这里又热又酸，但也充满了石油。每一片胡萝卜、芹菜和胡椒都充满了浓郁的脂肪味道。这款 giardiniera 霸气十足，我正盯着干燥仓库中巨大的油桶般的桶。厨师和我集思广益，决定整个星期都把油浸蔬菜做成烤香肠通心粉——一种香肠和辣椒的 arrabbiata。顾客们很喜欢它，员工们也很喜欢它。见鬼，我仍然渴望每隔一段时间就在我的意大利面里放一点 giardiniera，这都是因为我们已经走投无路，而我们*有*让它发挥作用。
 

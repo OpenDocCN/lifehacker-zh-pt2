@@ -1,6 +1,6 @@
 # how to get more comfortable with your body 1830855485
 
-> 原文:[https://life hacker . com/how-to-get-more-with your body-1830855485](https://lifehacker.com/how-to-get-more-comfortable-with-your-body-1830855485)
+> 原文：<https://lifehacker.com/how-to-get-more-comfortable-with-your-body-1830855485>
 
 几乎每个人都在与身体形象作斗争。不管你的实际尺寸或身材如何，很可能你的身体至少有一个部位让你感到困扰。你和你身体的关系是一个巨大而复杂(也是政治性的)的话题，但是有很多实际可行的方法可以让你开始改善它。
 

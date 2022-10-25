@@ -1,6 +1,6 @@
 # 如何开始锻炼
 
-> 原文:[https://lifehacker.com/how-to-start-exercising-1843466815](https://lifehacker.com/how-to-start-exercising-1843466815)
+> 原文：<https://lifehacker.com/how-to-start-exercising-1843466815>
 
 当你不锻炼的时候，阅读关于锻炼的文章就像在立交桥上仰望飞驰的火车。你想，如果我在上面*那里*，我会做得很好，但是我在下面，我没有动力。
 

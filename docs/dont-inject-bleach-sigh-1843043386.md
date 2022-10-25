@@ -1,6 +1,6 @@
 # 不要注射漂白剂(叹气)
 
-> 原文:[https://lifehacker.com/dont-inject-bleach-sigh-1843043386](https://lifehacker.com/dont-inject-bleach-sigh-1843043386)
+> 原文：<https://lifehacker.com/dont-inject-bleach-sigh-1843043386>
 
 总统刚才是不是告诉人们给自己注射漂白剂？不是*确切的说是*。但他确实大声惊叹——而且是在镜头前！—关于它是否可行。通过这样做，他给我们上了很好的一课，告诉我们为什么不能凭直觉从实验室研究中推断。
 

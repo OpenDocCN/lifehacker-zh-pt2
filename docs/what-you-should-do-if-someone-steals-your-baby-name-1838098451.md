@@ -1,6 +1,6 @@
 # 如果有人“偷”了你的宝宝名字，你该怎么办
 
-> 原文:[https://life hacker . com/what-you-due-do-if someone-stock-your-baby-name-1838098451](https://lifehacker.com/what-you-should-do-if-someone-steals-your-baby-name-1838098451)
+> 原文：<https://lifehacker.com/what-you-should-do-if-someone-steals-your-baby-name-1838098451>
 
 多年来你已经选好了最完美的婴儿名字。从你记事起，你就发誓你的宝贝女儿有一天会被命名为莫莉·伊丽莎白。如果你高中时最好的朋友——谁知道呢——没有宣布她新女儿的名字(令人震惊！)莫莉·伊丽莎白。
 

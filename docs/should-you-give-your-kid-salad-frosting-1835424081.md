@@ -1,6 +1,6 @@
 # 你应该给你的孩子吃“沙拉糖霜”吗？
 
-> 原文:[https://life hacker . com/should-you-give-your-kid-salad-frosting-1835424081](https://lifehacker.com/should-you-give-your-kid-salad-frosting-1835424081)
+> 原文：<https://lifehacker.com/should-you-give-your-kid-salad-frosting-1835424081>
 
 卡夫为孩子们推出了一款新产品: [沙拉“糖霜”](https://www.kraftlielikeaparent.com) 那是装在挤压小袋中的牧场调料。插头(如果不明显的话):孩子们不喜欢沙拉，但他们*喜欢糖，所以用这个特殊的标签欺骗他们吃更多的绿色食品，你这个狡猾的家长，你。* 
 

@@ -1,6 +1,6 @@
 # 大家应该背哪些数字？
 
-> 原文:[https://life hacker . com/what-numbers-should-every one-memory-1838716183](https://lifehacker.com/what-numbers-should-everyone-memorize-1838716183)
+> 原文：<https://lifehacker.com/what-numbers-should-everyone-memorize-1838716183>
 
 美国目前有 3.27 亿人口，约占全球 77 亿人口的 4%。我发现在阅读其他统计数据时，记住这三个数字非常有用。一盎司液体不到 30 毫升，如果我能记住，我会发现它在杂货店很有用。那么大家日常生活还应该背哪些数字呢？
 

@@ -1,6 +1,6 @@
 # 为了打破安抚奶嘴的习惯，在上面戳一个洞
 
-> 原文:[https://life hacker . com/to-break-the-奶嘴习惯戳个洞-1840772379](https://lifehacker.com/to-break-the-pacifier-habit-poke-a-hole-in-it-1840772379)
+> 原文：<https://lifehacker.com/to-break-the-pacifier-habit-poke-a-hole-in-it-1840772379>
 
 奶嘴是一个很棒的东西。它帮助我们最小的孩子安慰自己入睡，而其他任何东西都不能做到这一点。不过，最终你会希望他们能够自我安慰。他们从婴儿成长为蹒跚学步的孩子，你渴望一张没有嘴巴的照片。随着牙齿一颗接一颗地生长，你可能会担心长时间使用安抚奶嘴会开始影响他们的牙齿排列。
 

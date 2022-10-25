@@ -1,6 +1,6 @@
 # 在哪里观看烂番茄“最新”电影
 
-> 原文:[https://life hacker . com/where-to-stream-rotated-tomatos-fresh-movies-1832164165](https://lifehacker.com/where-to-stream-rotten-tomatoes-freshest-movies-1832164165)
+> 原文：<https://lifehacker.com/where-to-stream-rotten-tomatoes-freshest-movies-1832164165>
 
 在你选择要看什么电影之前，你必须选择你要用什么平台来找到它。如果你还没有想法，这可能是一个艰难的决定，但不出所料，事实证明网飞可能是电影之夜临时挑选的最佳选择。
 

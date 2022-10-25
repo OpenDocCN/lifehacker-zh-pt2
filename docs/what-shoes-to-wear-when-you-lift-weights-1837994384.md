@@ -1,6 +1,6 @@
 # 举重时穿什么鞋
 
-> 原文:[https://life hacker . com/what-shoes-to-wear-what-what-when-you-lift-weights-1837994384](https://lifehacker.com/what-shoes-to-wear-when-you-lift-weights-1837994384)
+> 原文：<https://lifehacker.com/what-shoes-to-wear-when-you-lift-weights-1837994384>
 
 我第一次穿上真正的举重鞋，那是一种启示。我的脚在下蹲时非常稳定，就像粘在地上一样。它们太舒适了，以至于我忘了在硬拉的时候脱下来——这是一个新手的错误，因为高跟鞋会让你在举的时候处于劣势。下面是你应该知道的举重时穿的鞋。
 

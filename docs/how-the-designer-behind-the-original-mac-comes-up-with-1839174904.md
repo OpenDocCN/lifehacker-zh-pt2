@@ -1,6 +1,6 @@
 # 青蛙设计公司的创始人哈特穆特·艾斯林格说，如何想出新点子
 
-> 原文:[https://life hacker . com/how-the-designer-behind-the-original-MAC-up-with-1839174904](https://lifehacker.com/how-the-designer-behind-the-original-mac-comes-up-with-1839174904)
+> 原文：<https://lifehacker.com/how-the-designer-behind-the-original-mac-comes-up-with-1839174904>
 
 大多数人无法真正创新， [青蛙设计](https://www.frogdesign.com/) 的创始人哈特穆特·艾斯林格说。他和他的公司(现在庆祝成立 50 周年)帮助设计了苹果的便携式电脑、索尼的随身听和许多 [网站、应用程序、小工具和高端医疗和牙科设备](https://www.frogdesign.com/gallery) 。这些是他的创新原则。
 

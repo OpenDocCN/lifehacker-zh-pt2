@@ -1,6 +1,6 @@
 # 使用这些新的谷歌文档字体提高阅读理解能力
 
-> 原文:[https://life hacker . com/improve-reading-comprehension-with-these-new-Google-doc-1837279660](https://lifehacker.com/improve-reading-comprehension-with-these-new-google-doc-1837279660)
+> 原文：<https://lifehacker.com/improve-reading-comprehension-with-these-new-google-doc-1837279660>
 
 当你在写文档时，要考虑到你的读者可能很难理解你键入的内容——这个问题影响到 70%的普通人群。你不是一个糟糕的作家；这可能只是你的字体选择。
 

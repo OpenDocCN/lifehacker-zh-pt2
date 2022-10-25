@@ -1,6 +1,6 @@
 # 如果您的防病毒应用程序或 Wifi 驱动程序阻止了 Window 10 更新，该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-if-your-anti-virus-apps-or-wifi-drivers-are-b-1840033461](https://lifehacker.com/what-to-do-if-your-antivirus-apps-or-wifi-drivers-are-b-1840033461)
+> 原文：<https://lifehacker.com/what-to-do-if-your-antivirus-apps-or-wifi-drivers-are-b-1840033461>
 
 微软正在阻止某些运行旧版本 AVG 和 Avast 杀毒软件以及过时的高通 WiFi 驱动程序的个人电脑安装 Windows 10 版本 1809、1903 和 1909。原因如下:由于潜在的漏洞和不兼容问题，微软不再允许 Windows 10 在任何和所有系统上自动更新。
 

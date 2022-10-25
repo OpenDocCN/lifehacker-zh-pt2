@@ -1,6 +1,6 @@
 # 如何在 Pixel 2、3、3a 等设备上安装谷歌的记录器应用程序
 
-> 原文:[https://life hacker . com/how-to-install-Google-s-recorder-app-on-the-pixel-2-3-1840241500](https://lifehacker.com/how-to-install-google-s-recorder-app-on-the-pixel-2-3-1840241500)
+> 原文：<https://lifehacker.com/how-to-install-google-s-recorder-app-on-the-pixel-2-3-1840241500>
 
 谷歌录音机 [是你在 Pixel 4 和 Pixel 4 XL 上发现的最好的应用](https://gizmodo.com/the-new-pixel-4-real-time-transcription-app-is-amazing-1839408583) 之一，这要感谢它能够 [自动转录捕获的音频](https://lifehacker.com/use-the-pixel-4s-live-caption-feature-to-transcribe-mut-1839362089) 甚至为静音的视频创建字幕。现在我们有好消息给其他像素的所有者:谷歌终于将这款应用移植到 Pixel 2、Pixel 3 和 Pixel 3a 智能手机上(以及它们更大的 XL 版本)。
 

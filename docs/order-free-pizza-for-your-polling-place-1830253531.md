@@ -1,6 +1,6 @@
 # 为你的投票点订购免费披萨
 
-> 原文:[https://life hacker . com/order-free-pizza-for-your-polling-place-1830253531](https://lifehacker.com/order-free-pizza-for-your-polling-place-1830253531)
+> 原文：<https://lifehacker.com/order-free-pizza-for-your-polling-place-1830253531>
 
 选举日快乐！每个人都渴望民主，这意味着他们可能也渴望真正的食物。今晚的投票队伍会很长，你可能需要食物。为什么不点一些披萨？你甚至不用付钱！
 

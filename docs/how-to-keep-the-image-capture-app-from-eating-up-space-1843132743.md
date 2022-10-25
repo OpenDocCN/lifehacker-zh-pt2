@@ -1,6 +1,6 @@
 # 如何防止图像捕捉应用程序耗尽 Mac 上的空间
 
-> 原文:[https://life hacker . com/how-to-keep-the-image-capture-app-from-eating-up-space-1843132743](https://lifehacker.com/how-to-keep-the-image-capture-app-from-eating-up-space-1843132743)
+> 原文：<https://lifehacker.com/how-to-keep-the-image-capture-app-from-eating-up-space-1843132743>
 
 如果你想知道为什么你的 Mac 上的可用空间越来越小，越来越小——即使你没有经常使用你的 Mac——苹果的图像捕捉应用程序有一个奇怪的错误可能是罪魁祸首。
 

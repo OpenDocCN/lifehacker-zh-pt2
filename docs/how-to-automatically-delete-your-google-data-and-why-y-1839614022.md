@@ -1,6 +1,6 @@
 # 如何自动删除你的谷歌数据，为什么你应该这样做
 
-> 原文:[https://life hacker . com/how-to-automatically-delete-your-Google-data-and-why-y-1839614022](https://lifehacker.com/how-to-automatically-delete-your-google-data-and-why-y-1839614022)
+> 原文：<https://lifehacker.com/how-to-automatically-delete-your-google-data-and-why-y-1839614022>
 
 谷歌收集了大量数据，这些数据被用于在 Google Play 和 YouTube 等服务上策划内容推荐，以及基于你的活动向你投放市场广告。
 

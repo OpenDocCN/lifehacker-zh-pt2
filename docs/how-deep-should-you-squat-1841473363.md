@@ -1,6 +1,6 @@
 # 你应该蹲多深？
 
-> 原文:[https://lifehacker.com/how-deep-should-you-squat-1841473363](https://lifehacker.com/how-deep-should-you-squat-1841473363)
+> 原文：<https://lifehacker.com/how-deep-should-you-squat-1841473363>
 
 我是一个能够欣赏世界上各种各样蹲姿的人。高蹲、低蹲、前蹲、后蹲——都很美。然而，互联网上的人们喜欢争论哪种蹲姿最好。所以这里有一个下蹲深度的小指南，以及如何找到适合你的下蹲姿势。
 

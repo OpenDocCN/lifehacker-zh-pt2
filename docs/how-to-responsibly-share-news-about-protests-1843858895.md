@@ -1,6 +1,6 @@
 # 如何负责任地分享关于抗议的新闻
 
-> 原文:[https://life hacker . com/how-to-responsible-share-news-about-抗议-1843858895](https://lifehacker.com/how-to-responsibly-share-news-about-protests-1843858895)
+> 原文：<https://lifehacker.com/how-to-responsibly-share-news-about-protests-1843858895>
 
 关于全国范围内反对警察暴行的抗议活动，有大量的信息。新闻片段像病毒一样传播，一次一条推文或一个片段:一个抗议者做的事情，一个警察做的事情。在你分享任何东西之前，花一分钟问自己这些问题。
 

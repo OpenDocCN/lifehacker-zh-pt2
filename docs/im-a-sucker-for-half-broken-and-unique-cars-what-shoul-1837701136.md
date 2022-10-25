@@ -1,6 +1,6 @@
 # 我对半坏的和独特的车很着迷！我应该买什么？
 
-> 原文:[https://jalopnik . com/im-a-sucker for half-broken-unique-cars-what-shoul-1837701136](https://jalopnik.com/im-a-sucker-for-half-broken-and-unique-cars-what-shoul-1837701136)
+> 原文：<https://jalopnik.com/im-a-sucker-for-half-broken-and-unique-cars-what-shoul-1837701136>
 
 安东尼有五个孩子，他正在寻找一辆便宜的车，在必要时能让所有的孩子都坐得下。他不介意修理东西，更喜欢有点不同的东西。他应该买什么车？
 

@@ -1,6 +1,6 @@
 # 玩这个免费游戏可能有助于找到冠状病毒疫苗
 
-> 原文:[https://life hacker . com/playing-this-free-game-may-help-find-a-coronavirus-Cu-1842125612](https://lifehacker.com/playing-this-free-game-might-help-find-a-coronavirus-cu-1842125612)
+> 原文：<https://lifehacker.com/playing-this-free-game-might-help-find-a-coronavirus-cu-1842125612>
 
 想帮助研究人员了解并找到冠状病毒的疫苗吗？通过玩 [这个视频游戏](https://fold.it/portal/node/2008926) 来帮助他们。
 

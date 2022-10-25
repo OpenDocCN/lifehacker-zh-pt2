@@ -1,6 +1,6 @@
 # 参加慈善名厨的在线烹饪课程
 
-> 原文:[https://life hacker . com/take-online-cooking-class-with the celebrity-chef-for-ch-1844258572](https://lifehacker.com/take-online-cooking-classes-with-celebrity-chefs-for-ch-1844258572)
+> 原文：<https://lifehacker.com/take-online-cooking-classes-with-celebrity-chefs-for-ch-1844258572>
 
 今年这么长时间呆在家里，很多人都喜欢上了烹饪。而有些人刚刚开始掌握基础知识，如(它们比看起来更难！)，其他更有经验的家庭厨师正在承担新的、更具挑战性的项目。如果你属于第二类——或者只是喜欢观看技艺高超的厨师工作——你可能会对 Airbnb 的最新在线体验感兴趣:名厨参与的小型烹饪课程。不，这些都不是免费的，但它们的价格都在 100 美元或以下，收益将捐给各种慈善机构。以下是可用的课程和上课方法。
 

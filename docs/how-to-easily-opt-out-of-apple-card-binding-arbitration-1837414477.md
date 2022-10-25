@@ -1,6 +1,6 @@
 # 如何轻松选择退出苹果卡绑定仲裁
 
-> 原文:[https://life hacker . com/how-to-easy-opt-out-of-apple-card-binding-arbitration-1837414477](https://lifehacker.com/how-to-easily-opt-out-of-apple-card-binding-arbitration-1837414477)
+> 原文：<https://lifehacker.com/how-to-easily-opt-out-of-apple-card-binding-arbitration-1837414477>
 
 想用你的新苹果卡吗？在你开始花费之前，有一个额外的任务需要考虑:选择退出有约束力的仲裁。
 

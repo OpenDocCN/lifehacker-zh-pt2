@@ -1,6 +1,6 @@
 # 如何立即在 Android 上手动启用 RCS(更新)
 
-> 原文:[https://life hacker . com/how-to-manually-enable-RCS-on-Android-right-now-update-1839416118](https://lifehacker.com/how-to-manually-enable-rcs-on-android-right-now-update-1839416118)
+> 原文：<https://lifehacker.com/how-to-manually-enable-rcs-on-android-right-now-update-1839416118>
 
 谷歌宣布计划推动 RCS 的采用已经有一段时间了，这样 Android 用户就可以最终摆脱过时的短信技术，但大多数用户都在等待他们的移动运营商在 2020 年的某个时候打开开关。碰巧有一种手动打开 RCS 的方法，但是正如许多用户——以及我们的许多读者——已经发现的那样，它充其量是不一致的。
 

@@ -1,6 +1,6 @@
 # 谷歌地图最好的新功能之一终于可以在 iOS 上使用了
 
-> 原文:[https://life hacker . com/one-of-Google-maps-best-new-features-is-finally-available-1839169210](https://lifehacker.com/one-of-google-maps-best-new-features-is-finally-availab-1839169210)
+> 原文：<https://lifehacker.com/one-of-google-maps-best-new-features-is-finally-availab-1839169210>
 
 比起苹果的地图应用程序甚至 Waze，更喜欢谷歌地图的 iOS 用户终于可以使用 Android 版本的一个最好的功能:提交实时交通报告的能力。
 

@@ -1,6 +1,6 @@
 # 2019 年最佳奖励信用卡
 
-> 原文:[https://life hacker . com/the-best-rewards-credit-of-2019-1834991306](https://lifehacker.com/the-best-rewards-credit-cards-of-2019-1834991306)
+> 原文：<https://lifehacker.com/the-best-rewards-credit-cards-of-2019-1834991306>
 
 如果你一直在为是否尝试获得 Chase Sapphire Reserve 卡而苦恼，因为你的朋友们一直在谈论这些好处，请停止担心。它甚至没有在 WalletHub 最新的最佳奖励信用卡名单中名列前茅。信用卡对比网站分析了 20 家最大的信用卡发行商提供的 65 种积分卡，不包括联名卡(航空公司、酒店、优步那家)。
 

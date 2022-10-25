@@ -1,6 +1,6 @@
 # 你需要租房保险
 
-> 原文:[https://life hacker . com/how-to-choose-the-best-renters-insurance-1838855068](https://lifehacker.com/how-to-choose-the-best-renters-insurance-1838855068)
+> 原文：<https://lifehacker.com/how-to-choose-the-best-renters-insurance-1838855068>
 
 所以你决定搬到一个新公寓。你已经给交了押金，第一个月和最后一个月的房租。你的银行账户可能会因为前期支出而尖叫，但是你还没有消费完。是时候调查租房者保险了。
 

@@ -1,6 +1,6 @@
 # 了解扁虱如何捕食，保护自己免受扁虱侵害
 
-> 原文:[https://life hacker . com/protect-you-from-ticks-by-understanding-how-they-h-1835812914](https://lifehacker.com/protect-yourself-from-ticks-by-understanding-how-they-h-1835812914)
+> 原文：<https://lifehacker.com/protect-yourself-from-ticks-by-understanding-how-they-h-1835812914>
 
 即使只是阅读有关蜱的文章，也会让我立即检查我的四肢，并开始感到发痒。(提前为这个故事会给你带来的影响道歉。)但与此同时，我对扁虱如此偏执，以至于我忍不住点击任何可能提高我避开那些小吸盘的机会的东西，哪怕只是一点点。
 

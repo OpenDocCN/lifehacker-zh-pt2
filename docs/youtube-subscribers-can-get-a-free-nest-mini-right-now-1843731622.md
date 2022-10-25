@@ -1,6 +1,6 @@
 # YouTube 用户现在可以获得一个免费的 Nest Mini
 
-> 原文:[https://life hacker . com/YouTube-subscribers-can-get-a-free-nest-mini-right-now-1843731622](https://lifehacker.com/youtube-subscribers-can-get-a-free-nest-mini-right-now-1843731622)
+> 原文：<https://lifehacker.com/youtube-subscribers-can-get-a-free-nest-mini-right-now-1843731622>
 
 谷歌将在下个月向所有 YouTube Premium 和 Google Play 用户免费赠送一个 Nest 迷你智能扬声器。
 

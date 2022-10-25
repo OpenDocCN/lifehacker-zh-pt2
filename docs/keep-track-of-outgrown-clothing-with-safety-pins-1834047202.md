@@ -1,6 +1,6 @@
 # 用安全别针跟踪不合身的衣服
 
-> 原文:[https://life hacker . com/keep-track-of-grown-cloth-with-safe-pin-1834047202](https://lifehacker.com/keep-track-of-outgrown-clothing-with-safety-pins-1834047202)
+> 原文：<https://lifehacker.com/keep-track-of-outgrown-clothing-with-safety-pins-1834047202>
 
 每个月至少有一两次，我会注意到我儿子的一件 t 恤变得太小了，或者一条裤子的下摆太长了，我会对自己说，“是时候把它放进‘捐赠’堆里了。”每一次，我确信我会记得哪件物品已经准备好出门。
 

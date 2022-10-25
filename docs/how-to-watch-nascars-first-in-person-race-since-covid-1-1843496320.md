@@ -1,6 +1,6 @@
 # 如何观看纳斯卡自新冠肺炎以来的首次个人赛
 
-> 原文:[https://life hacker . com/how-to-watch-nascars-first-in-person-race-since-covid-1-1843496320](https://lifehacker.com/how-to-watch-nascars-first-in-person-race-since-covid-1-1843496320)
+> 原文：<https://lifehacker.com/how-to-watch-nascars-first-in-person-race-since-covid-1-1843496320>
 
 像其他运动一样，亲身参加的纳斯卡比赛已经被取消了几个月。取而代之的是， [组织一直在进行虚拟比赛，车手们通过模拟比赛，而不是驾驶的真实赛车](https://lifehacker.com/how-to-watch-nascars-iracing-pro-invitational-series-su-1843204785) 。今天；然而，纳斯卡带着自新冠肺炎疫情以来的第一次个人比赛回来了。
 

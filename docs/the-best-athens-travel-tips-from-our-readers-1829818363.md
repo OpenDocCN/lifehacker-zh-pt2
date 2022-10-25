@@ -1,6 +1,6 @@
 # 来自我们读者的最佳雅典旅行建议
 
-> 原文:[https://life hacker . com/the-best-Athens-travel-tips-from-our-readers-1829818363](https://lifehacker.com/the-best-athens-travel-tips-from-our-readers-1829818363)
+> 原文：<https://lifehacker.com/the-best-athens-travel-tips-from-our-readers-1829818363>
 
 像古代斯巴达人一样，我们呼吁雅典旅游提示的评论者很少，但很强大。capbrad 6 光是他的推荐就能填满一次周末旅行。请看下面的亮点，以及更多游览雅典的好建议。
 

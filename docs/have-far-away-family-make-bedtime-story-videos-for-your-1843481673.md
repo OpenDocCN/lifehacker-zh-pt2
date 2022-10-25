@@ -1,6 +1,6 @@
 # 让远方的家庭为你的孩子制作睡前故事视频
 
-> 原文:[https://life hacker . com/have-far-away-family-make-睡前故事视频-for-your-1843481673](https://lifehacker.com/have-far-away-family-make-bedtime-story-videos-for-your-1843481673)
+> 原文：<https://lifehacker.com/have-far-away-family-make-bedtime-story-videos-for-your-1843481673>
 
 我们现在都在通过 FaceTime 和 Zoom 等工具与朋友和家人联系。对一些孩子来说，尤其是大一点的孩子，这是抑制我们都感觉到的孤立感的好方法。但是，对于年龄可能还不够大，无法真正理解发生了什么或能够调节自己巨大情绪的更年轻的孩子来说，呆在家里，远离他们的祖父母、堂兄弟、学龄前伙伴、老师和朋友可能会特别困难。
 

@@ -1,6 +1,6 @@
 # 如何像最好的音乐家一样练习
 
-> 原文:[https://life hacker . com/how-to-practice-like-the-best-音乐家-1837614892](https://lifehacker.com/how-to-practice-like-the-best-musicians-1837614892)
+> 原文：<https://lifehacker.com/how-to-practice-like-the-best-musicians-1837614892>
 
 你如何练习你的音乐？你会坐下来一遍又一遍地演奏一首特定的曲子吗？你会从一首曲子的开头开始，一直弹到出错，重复那一部分直到弹得完美，然后继续弹下去——结果在下一次练习中犯了完全相同的错误吗？
 

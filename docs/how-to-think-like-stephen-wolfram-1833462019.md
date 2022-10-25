@@ -1,6 +1,6 @@
 # 如何像史蒂夫·沃尔夫勒姆一样思考
 
-> 原文:[https://life hacker . com/how-to-think-like-Stephen-wolfram-1833462019](https://lifehacker.com/how-to-think-like-stephen-wolfram-1833462019)
+> 原文：<https://lifehacker.com/how-to-think-like-stephen-wolfram-1833462019>
 
 史蒂夫·沃尔夫勒姆致力于让人们变聪明。他的创作，包括 [Mathematica](https://www.wolfram.com/mathematica/) 、 [Wolfram Alpha](https://www.wolframalpha.com/) 和[Wolfram Language](http://wolframlanguage.org/)，帮助人们进行计算性思考，当他将它们比作数学符号的发明时，他并没有自大。作为 [Wolfram](http://wolfram.com/) 的创始人兼首席执行官，他监管着一个 800 人的团队，但他高度重视学习每一个技术细节，并将自己的投入最大化。
 

@@ -1,6 +1,6 @@
 # 使用 Pixel 4 的“实时字幕”功能转录静音视频
 
-> 原文:[https://life hacker . com/use-the-pixel-4s-live-caption-feature-to-transcripte-mut-1839362089](https://lifehacker.com/use-the-pixel-4s-live-caption-feature-to-transcribe-mut-1839362089)
+> 原文：<https://lifehacker.com/use-the-pixel-4s-live-caption-feature-to-transcribe-mut-1839362089>
 
 谷歌的 Pixel 4 最酷的部分之一是其人工智能辅助的实时字幕功能，允许你的智能手机自动为你的应用程序中正在播放的任何音频添加字幕。这让你可以阅读 YouTube、Twitter 等媒体资源上播放的内容。
 

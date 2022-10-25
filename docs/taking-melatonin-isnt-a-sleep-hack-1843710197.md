@@ -1,6 +1,6 @@
 # 服用褪黑激素不是睡眠黑客
 
-> 原文:[https://life hacker . com/taking-melatonin-not-a-sleep-hack-1843710197](https://lifehacker.com/taking-melatonin-isnt-a-sleep-hack-1843710197)
+> 原文：<https://lifehacker.com/taking-melatonin-isnt-a-sleep-hack-1843710197>
 
 鉴于我们最近都可能遭受失眠增加的痛苦，你可能会忍不住伸手去拿一瓶褪黑激素——大自然的助眠剂。褪黑素是天然的！它在柜台上可以买到！虽然褪黑激素已经被证明是安全的，不会形成习惯，但经常使用仍然会有副作用。和所有事情一样，适度是关键。
 

@@ -1,6 +1,6 @@
 # 制定一个归还联邦学生贷款的计划
 
-> 原文:[https://life hacker . com/make-a-plan-for-return-of-federal-student-loan-paym-1844537532](https://lifehacker.com/make-a-plan-for-the-return-of-federal-student-loan-paym-1844537532)
+> 原文：<https://lifehacker.com/make-a-plan-for-the-return-of-federal-student-loan-paym-1844537532>
 
 本周，参议院共和党人 [提出了疗愈法案](https://www.mcconnell.senate.gov/public/index.cfm/2020/7/mcconnell-outlines-historic-relief-proposal-for-an-important-crossroads-in-this-battle) ，该党的下一个刺激救济法案。虽然 1 万亿美元的计划需要失业保险、 [直接支付](https://twocents.lifehacker.com/what-can-you-expect-from-a-second-stimulus-check-1844497280) 、可原谅的 [薪水保障计划(PPP)](https://twocents.lifehacker.com/automate-ppp-loan-forgiveness-with-this-free-tool-1844444391) 贷款等等——但对学生贷款借款人来说却没有多少。据美国消费者新闻与商业频道报道,《治愈法案》要求简化还款计划或延长联邦付款暂停期——但跳过了新的学生贷款豁免项目。
 

@@ -1,6 +1,6 @@
 # 向有需要的收容所捐赠用过的蜡笔
 
-> 原文:[https://life hacker . com/把用过的蜡笔捐给需要帮助的收容所-1835844429](https://lifehacker.com/donate-used-crayons-to-shelters-in-need-1835844429)
+> 原文：<https://lifehacker.com/donate-used-crayons-to-shelters-in-need-1835844429>
 
 去任何一家有儿童菜单的餐馆，你很可能会看到蜡笔散落在桌子上，一天用完就扔掉。
 

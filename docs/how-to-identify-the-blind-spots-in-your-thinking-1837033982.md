@@ -1,6 +1,6 @@
 # 如何识别自己思维中的盲点
 
-> 原文:[https://life hacker . com/how-to-identify-the-blind-spots-in-your-thinking-1837033982](https://lifehacker.com/how-to-identify-the-blind-spots-in-your-thinking-1837033982)
+> 原文：<https://lifehacker.com/how-to-identify-the-blind-spots-in-your-thinking-1837033982>
 
 我们所有人都带着一些关于世界的默认假设——以及一些希望和信念，通过它们我们过滤当前的经历。
 

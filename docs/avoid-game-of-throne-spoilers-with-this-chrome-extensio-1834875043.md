@@ -1,6 +1,6 @@
 # 使用这个 Chrome 扩展来避免《权力的游戏》剧透
 
-> 原文:[https://life hacker . com/avoid-game-of-the-chrome-extensio-1834875043](https://lifehacker.com/avoid-game-of-throne-spoilers-with-this-chrome-extensio-1834875043)
+> 原文：<https://lifehacker.com/avoid-game-of-throne-spoilers-with-this-chrome-extensio-1834875043>
 
 如果你是《权力的游戏》的粉丝，今晚看不到最后一集，那么明天早上，避免剧透的斗争将不可避免地变得非常艰难。
 

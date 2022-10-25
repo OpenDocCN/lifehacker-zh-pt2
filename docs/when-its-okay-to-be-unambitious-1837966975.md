@@ -1,6 +1,6 @@
 # when its okay to be unambitious 1837966975
 
-> 原文:[https://life hacker . com/when-it-okay-to-be-misambitious-1837966975](https://lifehacker.com/when-its-okay-to-be-unambitious-1837966975)
+> 原文：<https://lifehacker.com/when-its-okay-to-be-unambitious-1837966975>
 
 你是幸运儿之一:你喜欢你的工作！问题是，你太喜欢它了，你真的没有太大的野心。你担心在工作主义的时代，你会后悔没有更加努力地“出人头地”满足是个问题吗？
 

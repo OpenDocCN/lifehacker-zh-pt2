@@ -1,6 +1,6 @@
 # 为什么你应该预先粉碎你的汉堡
 
-> 原文:[https://life hacker . com/why-you-should-pre-smash-your-burgers-1832966230](https://lifehacker.com/why-you-should-pre-smash-your-burgers-1832966230)
+> 原文：<https://lifehacker.com/why-you-should-pre-smash-your-burgers-1832966230>
 
 众所周知，像 Shake Shack、In-N-Out 和 Smashburger 这样的汉堡连锁店正在经历这样的时刻。他们薄薄的中等大小的汉堡肉饼显示了对如何制作一个好的芝士汉堡的深刻而持久的理解:合理的份量，与小面包和配料的无缝融合，当然还有很多很多咸脆脆的汉堡皮。我并不是说，厚厚的、酒吧式的汉堡，最少的外壳和最多的未调味的牛肉酱没有它们的位置；只不过他们的地方是大不列颠某个孤独(但迷人)的酒吧，喝着一品脱过热的啤酒。
 

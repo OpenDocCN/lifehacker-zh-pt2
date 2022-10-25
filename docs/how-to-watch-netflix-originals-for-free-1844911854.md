@@ -1,6 +1,6 @@
 # 如何免费观看网飞原著
 
-> 原文:[https://life hacker . com/how-to-watch-网飞-originals-for-free-1844911854](https://lifehacker.com/how-to-watch-netflix-originals-for-free-1844911854)
+> 原文：<https://lifehacker.com/how-to-watch-netflix-originals-for-free-1844911854>
 
 我们知道，无论是通过你自己的帐户，还是通过你的室友、朋友或家人的帐户，你都不可能无法访问网飞。
 

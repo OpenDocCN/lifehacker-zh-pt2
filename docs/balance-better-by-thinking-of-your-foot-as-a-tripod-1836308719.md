@@ -1,6 +1,6 @@
 # 把你的脚想象成三脚架可以更好地保持平衡
 
-> 原文:[https://life hacker . com/balance-better-thinking-of-your ' s foot as-a-tripod-1836308719](https://lifehacker.com/balance-better-by-thinking-of-your-foot-as-a-tripod-1836308719)
+> 原文：<https://lifehacker.com/balance-better-by-thinking-of-your-foot-as-a-tripod-1836308719>
 
 你是如何设法让 [单脚平衡](https://lifehacker.com/this-july-were-working-on-balance-1836017358) 的？良好的平衡为你做任何事情打下基础，从瑜伽动作到滑冰，再到像手枪式深蹲这样的练习。一开始很难，但是很容易学会。
 

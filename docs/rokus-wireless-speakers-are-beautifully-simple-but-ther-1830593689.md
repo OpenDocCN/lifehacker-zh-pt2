@@ -1,6 +1,6 @@
 # Roku 的无线扬声器非常简单，但是有一个问题
 
-> 原文:[https://gizmodo . com/rokus-wireless-speakers-is-beautiful-simple-but-ther-1830593689](https://gizmodo.com/rokus-wireless-speakers-are-beautifully-simple-but-ther-1830593689)
+> 原文：<https://gizmodo.com/rokus-wireless-speakers-are-beautifully-simple-but-ther-1830593689>
 
 今年早些时候，当 Roku [宣布将出售无线扬声器](https://gizmodo.com/roku-made-speakers-1827582409) 时，有点令人惊讶。这家受欢迎的平台无关机顶盒制造商对家庭娱乐肯定不陌生，但它很快就会开始与 Sonos 竞争的想法，嗯，似乎很疯狂。在新的条形音箱上花了一些时间，我可以说 Roku 正在用 Roku 电视无线扬声器做一些更有趣的事情。它建立了一个定制的声音系统，与 Roku 电视配合得非常好。唯一的缺点是，扬声器根本无法与任何其他电视或无线音频系统配合使用。我想，创新是一种奇怪的动物。
 

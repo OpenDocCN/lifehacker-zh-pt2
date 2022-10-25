@@ -1,6 +1,6 @@
 # im staple founder jeffstaple and this is how i work 1837107216
 
-> 原文:[https://life hacker . com/im-staple-founder-jeffstaple-and-this-is-how-I-work-1837107216](https://lifehacker.com/im-staple-founder-jeffstaple-and-this-is-how-i-work-1837107216)
+> 原文：<https://lifehacker.com/im-staple-founder-jeffstaple-and-this-is-how-i-work-1837107216>
 
 在他们称之为球鞋头之前，杰夫·吴是个球鞋头。更广为人知的是他的名字[@ jeffstaple](https://www.instagram.com/jeffstaple/)——以他的创意机构和服装系列命名——杰夫设计了一些最著名的街头服饰收藏品，并与 HBO、Kangol、Converse、Kid Robot、Cole Haan、谷歌、索尼和 Housing Works 等客户合作。我们和他谈了他如何在经营三家企业的同时腾出时间进行设计，他如何用 Reminders 和 Evernote 经营自己的生活，以及如何经营一家基于炒作的企业超过 20 年。
 

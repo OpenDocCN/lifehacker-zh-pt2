@@ -1,6 +1,6 @@
 # 超级碗在假 4K 播出是有原因的
 
-> 原文:[https://gizmodo . com/there-a-reason-the-super bowl-in-fa-1841384640](https://gizmodo.com/theres-a-reason-the-super-bowl-is-being-broadcast-in-fa-1841384640)
+> 原文：<https://gizmodo.com/theres-a-reason-the-super-bowl-is-being-broadcast-in-fa-1841384640>
 
 超级碗就在这个周日，虽然我会在比赛期间忙着给我爱的人打电话，深深激怒他们，但你可能真的在看，或许你会对比赛将在 4K 和 HDR 直播感到兴奋(取决于你的电视提供商)。但是 4K 是假的 4K，根据数字趋势对生产碗 的人之一的采访，有一个很好的理由。
 

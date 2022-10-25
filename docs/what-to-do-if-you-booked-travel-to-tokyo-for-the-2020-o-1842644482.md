@@ -1,6 +1,6 @@
 # 如果你预订了 2020 年东京奥运会的旅行，该怎么办
 
-> 原文:[https://life hacker . com/1842644482](https://lifehacker.com/what-to-do-if-you-booked-travel-to-tokyo-for-the-2020-o-1842644482)
+> 原文：<https://lifehacker.com/what-to-do-if-you-booked-travel-to-tokyo-for-the-2020-o-1842644482>
 
 夏季奥运会原定于 7 月 24 日在日本东京举行。3 月 24 日， [国际奥委会宣布](https://www.olympic.org/news/ioc-ipc-tokyo-2020-organising-committee-and-tokyo-metropolitan-government-announce-new-dates-for-the-olympic-and-paralympic-games-tokyo-2020) 东京奥运会将延期至 2021 年 7 月 23 日。残奥会也将延期，于 2021 年 8 月 24 日开始。这让那些为 2020 年东京奥运会提供航班和/或住宿的人感到疑惑:他们现在在做什么？
 

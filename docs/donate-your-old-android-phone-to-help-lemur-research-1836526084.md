@@ -1,6 +1,6 @@
 # 捐赠你的旧安卓手机来帮助狐猴研究
 
-> 原文:[https://life hacker . com/donate-your-old-Android-phone-to-help-lemur-research-1836526084](https://lifehacker.com/donate-your-old-android-phone-to-help-lemur-research-1836526084)
+> 原文：<https://lifehacker.com/donate-your-old-android-phone-to-help-lemur-research-1836526084>
 
 如果你有一部不再使用的安卓手机，不要让它在抽屉里积灰。将其捐赠给杜克狐猴中心，该中心将非常乐意使用它来了解更多关于狐猴感知颜色的能力。
 

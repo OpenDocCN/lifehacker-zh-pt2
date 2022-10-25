@@ -1,6 +1,6 @@
 # 要在公共 Wifi 上保持安全，你需要的不只是 HTTPS
 
-> 原文:[https://life hacker . com/you-need-than-than-https-to-stay-safe-on-public-wifi-1841831844](https://lifehacker.com/you-need-more-than-https-to-stay-safe-on-public-wifi-1841831844)
+> 原文：<https://lifehacker.com/you-need-more-than-https-to-stay-safe-on-public-wifi-1841831844>
 
 你不应该再害怕使用公共 wifi 了。或者，至少现在你不用那么害怕了。虽然这并不意味着你应该盲目地连接到“免费互联网”、“xfinity”或其他随机、开放的热点，而没有一点常识——和一些软件备份——我们已经从人们使用 Firesheep 等软件工具来嗅你在公共 wifi 上做的一切的时代走了很长一段路。
 

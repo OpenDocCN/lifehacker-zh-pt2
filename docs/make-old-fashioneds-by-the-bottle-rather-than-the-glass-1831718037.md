@@ -1,6 +1,6 @@
 # 用瓶子而不是用玻璃杯制造老式酒
 
-> 原文:[https://life hacker . com/make-old-fashion eds by-bottle 而不是 the-glass-1831718037](https://lifehacker.com/make-old-fashioneds-by-the-bottle-rather-than-the-glass-1831718037)
+> 原文：<https://lifehacker.com/make-old-fashioneds-by-the-bottle-rather-than-the-glass-1831718037>
 
 我非常喜欢混合鸡尾酒。每当我有朋友过来时，我通常会在他们到来之前做一些鸡尾酒选择。毕竟，喝一大杯玛格丽塔酒要比一杯一杯地调容易得多，而且没有喝完的东西可以放在冰箱里，供我下周下班后自己喝。
 

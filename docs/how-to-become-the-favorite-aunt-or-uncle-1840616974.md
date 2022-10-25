@@ -1,6 +1,6 @@
 # 如何成为最喜欢的阿姨或叔叔
 
-> 原文:[https://life hacker . com/how-to-be-favorite-姑姑或姑父-1840616974](https://lifehacker.com/how-to-become-the-favorite-aunt-or-uncle-1840616974)
+> 原文：<https://lifehacker.com/how-to-become-the-favorite-aunt-or-uncle-1840616974>
 
 我很幸运:小时候，我就有做一个有趣的阿姨的极好例子，甚至在十几岁的时候，我就知道这是我成年后想扮演的角色。因为我弟弟患有自闭症——严重到不可能有自己的家庭——这意味着我需要嫁给一个有想要孩子的兄弟姐妹的人。
 

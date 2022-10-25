@@ -1,6 +1,6 @@
 # Reddit 有史以来最令人兴奋的事实，经过事实检验
 
-> 原文:[https://life hacker . com/Reddit-s-favorite-mind blowing-facts-of-all-time-fact-c-1840398431](https://lifehacker.com/reddit-s-favorite-mindblowing-facts-of-all-time-fact-c-1840398431)
+> 原文：<https://lifehacker.com/reddit-s-favorite-mindblowing-facts-of-all-time-fact-c-1840398431>
 
 Redditors 喜欢互相询问他们最喜欢的有趣的、令人兴奋的、违反直觉的或令人不安的事实。每隔几个月，一个新的“有趣的事实”主题就会出现在 Reddit 的首页，成千上万的人会加入他们最喜欢的话题。我查看了多年的线索，收集了最好的事实，并验证了它们。
 

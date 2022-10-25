@@ -1,6 +1,6 @@
 # 如何教育你的孩子，他们不必事事完美
 
-> 原文:[https://life hacker . com/how-to-teach-your-kid-they-don ' t-to-be-perfect-at-e 1834568248](https://lifehacker.com/how-to-teach-your-kid-they-dont-have-to-be-perfect-at-e-1834568248)
+> 原文：<https://lifehacker.com/how-to-teach-your-kid-they-dont-have-to-be-perfect-at-e-1834568248>
 
 一个星期六的早上，我 6 岁的女儿正在为一个朋友制作生日贺卡。她坐在一张小桌旁，旁边的地板上放着大约十张皱巴巴的纸。她不停地写字母“H”表示“生日快乐”，然后决定她不喜欢它的样子。她越来越沮丧，我想让她停止用光所有的纸。
 

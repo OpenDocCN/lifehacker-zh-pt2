@@ -1,6 +1,6 @@
 # 通过在线提交真实的身份证件，减少在车管所的时间
 
-> 原文:[https://life hacker . com/spend-less-time-at-dmv-by-submissing-your-real-id-p-1841860583](https://lifehacker.com/spend-less-time-at-the-dmv-by-submitting-your-real-id-p-1841860583)
+> 原文：<https://lifehacker.com/spend-less-time-at-the-dmv-by-submitting-your-real-id-p-1841860583>
 
 从 2020 年 10 月 1 日开始，你需要一个真实的身份证或护照才能登上美国国内航班。如果你还没有身份证(一个真正的身份证的右上角会有一个金色或黑色的星星)，那么获得一个身份证可能是一个漫长而痛苦的过程。
 

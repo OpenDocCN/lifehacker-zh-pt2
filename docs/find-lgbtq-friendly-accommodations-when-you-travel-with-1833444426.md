@@ -1,6 +1,6 @@
 # 当你和 B&B 先生一起旅行时，寻找对 LGBTQ 友好的住宿
 
-> 原文:[https://life hacker . com/find-lgbtq-friendly-accommodations-when-you-travel-with-1833444426](https://lifehacker.com/find-lgbtq-friendly-accommodations-when-you-travel-with-1833444426)
+> 原文：<https://lifehacker.com/find-lgbtq-friendly-accommodations-when-you-travel-with-1833444426>
 
 当你在网上搜索住宿的时候，你经常可以找到关于这个地方有多大，你睡在什么样的床上，附近有什么样的餐馆的信息。然而，您可能无法在列表中找到您的主机是否是 LGBTQ 友好的。
 

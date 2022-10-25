@@ -1,6 +1,6 @@
 # 你的咒语是什么？
 
-> 原文:[https://lifehacker.com/whats-your-mantra-1830266883](https://lifehacker.com/whats-your-mantra-1830266883)
+> 原文：<https://lifehacker.com/whats-your-mantra-1830266883>
 
 最近( [正如我提到的](https://lifehacker.com/ask-yourself-this-before-you-react-to-anything-on-the-i-1829851864#_ga=2.107658434.1139157899.1541557696-2127637903.1532515930) )我的口头禅是，“这是战略性的，还是仅仅是宣泄？”我正在训练自己，当我在紧张的讨论中或者基本上在 Twitter 上的任何互动中想说一些非常愚蠢的话时，我会重复这句话。到目前为止，我主要是在*要说蠢话的时候对我的朋友说这句话。在读完 M.J. Ryan 的这篇文章后，我意识到我已经有了很多咒语。*
 

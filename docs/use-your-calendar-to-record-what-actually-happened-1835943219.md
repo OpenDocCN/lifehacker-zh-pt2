@@ -1,6 +1,6 @@
 # 用你的日历记录下实际发生的事情
 
-> 原文:[https://life hacker . com/use-your-calendar-to-record-what-actually-after-1835943219](https://lifehacker.com/use-your-calendar-to-record-what-actually-happened-1835943219)
+> 原文：<https://lifehacker.com/use-your-calendar-to-record-what-actually-happened-1835943219>
 
 我做了四年的行政助理，我的职责之一就是确保我老板的日程表百分之百准确。这意味着要确保新的会议、截止日期和任务按计划添加到日历中。这也意味着确保*没有*发生的任何会议或行动项目被重新安排或从日历中删除。
 

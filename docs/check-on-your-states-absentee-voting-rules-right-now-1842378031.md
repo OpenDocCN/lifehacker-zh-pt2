@@ -1,6 +1,6 @@
 # 现在就检查一下你所在州的缺席投票规则
 
-> 原文:[https://life hacker . com/check-on-your-States-absent-voting-rules-right-now-1842378031](https://lifehacker.com/check-on-your-states-absentee-voting-rules-right-now-1842378031)
+> 原文：<https://lifehacker.com/check-on-your-states-absentee-voting-rules-right-now-1842378031>
 
 冠状病毒已经影响了许多州的初选，并可能影响今年晚些时候的整体选举。现在是你开始研究你所在州如何处理缺席投票的好时机，并且注册一个，这样你就可以通过邮件投票，如果你需要的话。
 

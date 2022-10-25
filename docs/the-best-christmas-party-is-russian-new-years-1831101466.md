@@ -1,6 +1,6 @@
 # 最好的圣诞聚会是俄罗斯新年
 
-> 原文:[https://life hacker . com/the-best-Christmas-party-is-Russian-new-years-1831101466](https://lifehacker.com/the-best-christmas-party-is-russian-new-years-1831101466)
+> 原文：<https://lifehacker.com/the-best-christmas-party-is-russian-new-years-1831101466>
 
 假日聚会往往比它们本身更麻烦。十二月已经过去一半，你已经熬过了一三个邋遢的露天酒吧，再一次离开家的想法可能会相当令人倒胃口。今年，学学俄罗斯人:呆在家里，给 [举办一场盛大的晚宴](https://lifehacker.com/elevate-your-dinner-party-with-these-fancy-details-1826494234) 。
 

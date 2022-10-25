@@ -1,6 +1,6 @@
 # 使用这些古怪的闹钟应用程序帮助你醒来
 
-> 原文:[https://life hacker . com/get-help-wake-up-with-thinky-alarm-clock-apps-1832014140](https://lifehacker.com/get-help-waking-up-with-these-quirky-alarm-clock-apps-1832014140)
+> 原文：<https://lifehacker.com/get-help-waking-up-with-these-quirky-alarm-clock-apps-1832014140>
 
 你智能手机的闹钟没有任何问题。只要他们在早上叫醒你，他们就已经完成了他们的主要任务，你应该赞扬他们没有强迫你诉诸 [更极端的措施](https://www.youtube.com/watch?v=8zEH5GxPNO8) 起床。
 

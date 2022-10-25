@@ -1,6 +1,6 @@
 # 如何防止谷歌保存你的录音
 
-> 原文:[https://life hacker . com/how-to-prevent-Google-save-your-voice-recordings-1834414389](https://lifehacker.com/how-to-prevent-google-from-saving-your-voice-recordings-1834414389)
+> 原文：<https://lifehacker.com/how-to-prevent-google-from-saving-your-voice-recordings-1834414389>
 
 智能扬声器的不幸权衡是显而易见的:为了方便有东西可以告诉你天气如何，交通状况如何，以及你的前门是否上锁(仅举几个例子)，你必须将你的隐私交给一个巨大的企业实体。
 

@@ -1,6 +1,6 @@
 # 把你的豆子浸泡在冰箱里，这样可以更快地准备食物
 
-> 原文:[https://life hacker . com/soak-your-beans-in-the-crystal-fast-mean-prep-1832374408](https://lifehacker.com/soak-your-beans-in-the-fridge-for-faster-meal-prep-1832374408)
+> 原文：<https://lifehacker.com/soak-your-beans-in-the-fridge-for-faster-meal-prep-1832374408>
 
 泡豆干是 [一个有点争议的话题](https://lifehacker.com/you-dont-have-to-soak-dried-beans-overnight-1818565255) 。有些人对它深信不疑，坚持认为它减少了气体(嗯，也许)并去除了毒素(它肯定没有)，但唯一保证的好处是烹饪时间更短。尽管如此，这也不是一无是处，尤其是如果你需要尽快把晚餐端上桌的话。
 

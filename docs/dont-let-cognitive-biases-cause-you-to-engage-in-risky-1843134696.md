@@ -1,6 +1,6 @@
 # 不要让认知偏见导致你从事危险的公共健康行为
 
-> 原文:[https://life hacker . com/don ' t-let-cognitive-bias-cause-you-engage-risky-1843134696](https://lifehacker.com/dont-let-cognitive-biases-cause-you-to-engage-in-risky-1843134696)
+> 原文：<https://lifehacker.com/dont-let-cognitive-biases-cause-you-to-engage-in-risky-1843134696>
 
 既然“新常态”已经开始让人感觉，嗯，*正常*，我们如何确保我们仍然对我们至关重要的公共卫生行为保持警惕？ H 和-清洗，身体距离感和戴面具不会在短时间内变得不那么重要，但熟悉会滋生懒惰，当谈到疫情时，那就是...相当糟糕。
 

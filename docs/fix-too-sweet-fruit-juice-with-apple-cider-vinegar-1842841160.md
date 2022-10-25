@@ -1,6 +1,6 @@
 # 用苹果醋调太甜的果汁
 
-> 原文:[https://life hacker . com/fix-too-sweet-fruit-juice-with-苹果醋-1842841160](https://lifehacker.com/fix-too-sweet-fruit-juice-with-apple-cider-vinegar-1842841160)
+> 原文：<https://lifehacker.com/fix-too-sweet-fruit-juice-with-apple-cider-vinegar-1842841160>
 
 我不太喜欢喝果汁，除非是掺了杜松子酒的，但我的伙伴(他不喝杜松子酒或类似的东西)是我的粉丝。他经常给我家买果汁，喝一部分，剩下的让我喝或者不理，直到他回来。这就是为什么一盒 [POG](https://en.wikipedia.org/wiki/Pog_(drink)) 会出现在我的冰箱里。
 

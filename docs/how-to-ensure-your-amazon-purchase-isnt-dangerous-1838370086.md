@@ -1,6 +1,6 @@
 # 如何确保你在亚马逊购物没有危险
 
-> 原文:[https://life hacker . com/how-to-confirm-your-Amazon-purchase-not-dangerous-1838370086](https://lifehacker.com/how-to-ensure-your-amazon-purchase-isnt-dangerous-1838370086)
+> 原文：<https://lifehacker.com/how-to-ensure-your-amazon-purchase-isnt-dangerous-1838370086>
 
 你可以在亚马逊上买到任何东西。但是，仅仅因为你可以通过电子商务零售商快速获得产品，并不意味着该产品是安全的。
 

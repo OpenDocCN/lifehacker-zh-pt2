@@ -1,6 +1,6 @@
 # 我如何启动汽车？
 
-> 原文:[https://lifehacker.com/how-do-i-jump-start-a-car-5820407](https://lifehacker.com/how-do-i-jump-start-a-car-5820407)
+> 原文：<https://lifehacker.com/how-do-i-jump-start-a-car-5820407>
 
 如果你开车，你应该知道如何在电池没电的情况下启动它。但这是每个人都有不同做法的事情之一，所以你怎么知道哪种做法是正确的呢？毕竟，你要处理的是电池和引擎——你要确保一切都是正确的。
 

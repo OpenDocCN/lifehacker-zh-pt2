@@ -1,6 +1,6 @@
 # 你想从白人盟友那里听到什么？
 
-> 原文:[https://life hacker . com/what-do-you-want-to-heard-white-alliances-1843905014](https://lifehacker.com/what-do-you-want-to-hear-from-white-allies-1843905014)
+> 原文：<https://lifehacker.com/what-do-you-want-to-hear-from-white-allies-1843905014>
 
 现在是我们国家和全世界难以置信的困难和情绪化的时刻。无数黑人死于警察和其他人之手，这不断提醒我们，作为一个社会，在将每个人视为平等并值得拥有生活中同样的东西——包括生存权——方面，我们还有多远。
 

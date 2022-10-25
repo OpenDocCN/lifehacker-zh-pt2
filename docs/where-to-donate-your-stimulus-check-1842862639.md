@@ -1,6 +1,6 @@
 # 向哪里捐赠你的刺激支票
 
-> 原文:[https://life hacker . com/where-to-duate-your-stimulus-check-1842862639](https://lifehacker.com/where-to-donate-your-stimulus-check-1842862639)
+> 原文：<https://lifehacker.com/where-to-donate-your-stimulus-check-1842862639>
 
 我还没有收到我的刺激支票，但我已经决定，我将捐出我收到的任何金额的钱。为什么？因为我一直在疫情工作，这意味着我不需要弥补任何收入损失。我也不需要把支票放入应急基金(我的已经准备好了)或偿还债务(我从 2016 年起就没有债务了)。从我的角度来看，我能用这笔钱做的最好的事情就是用它来帮助别人。
 

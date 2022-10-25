@@ -1,6 +1,6 @@
 # 关于俄国所谓的新冠肺炎疫苗，我们知道(和不知道)什么
 
-> 原文:[https://life hacker . com/what-we-know-don-t-about-russias-possible-新冠肺炎-vac-1844700593](https://lifehacker.com/what-we-know-dont-about-russias-supposed-covid-19-vac-1844700593)
+> 原文：<https://lifehacker.com/what-we-know-dont-about-russias-supposed-covid-19-vac-1844700593>
 
 自新冠肺炎疫情开始以来，人们对“我们会度过难关”并很快“恢复正常”的乐观情绪一直寄托在针对新型冠状病毒的有效疫苗的开发和批准上。几个月来，辉瑞和 Moderna 等主要制药公司一直在全球各地的试验点进行多种 COVID 疫苗配方的临床试验。虽然一些三期试验 正在进行中，我们也越来越接近了，但在 COVID 疫苗被证明安全有效之前，仍有许多工作要做，更不用说公开提供了。
 

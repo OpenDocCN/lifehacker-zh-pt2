@@ -1,6 +1,6 @@
 # 当你在社交上保持距离时，跟随烹饪 Twitter 账户的乐趣来获取提示
 
-> 原文:[https://life hacker . com/follow-the-joy-of-cooking-Twitter-account-for-tips-whil-1842359343](https://lifehacker.com/follow-the-joy-of-cooking-twitter-account-for-tips-whil-1842359343)
+> 原文：<https://lifehacker.com/follow-the-joy-of-cooking-twitter-account-for-tips-whil-1842359343>
 
 除了健康和安全问题，现在人们焦虑的最大来源之一是让自己和家人吃饱。虽然投资一大堆干意大利面和豆类很容易，但购买蔬菜、储存易腐食品和计划膳食会让人感到有点困惑。幸运的是，《烹饪杂志》的编辑们正在通过他们的推特账户发布一些真正有用的食物小贴士。
 

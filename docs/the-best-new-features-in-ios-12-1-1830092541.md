@@ -1,6 +1,6 @@
 # iOS 12.1 中最好的新功能
 
-> 原文:[https://life hacker . com/the-best-new-features-in-IOs-12-1-1830092541](https://lifehacker.com/the-best-new-features-in-ios-12-1-1830092541)
+> 原文：<https://lifehacker.com/the-best-new-features-in-ios-12-1-1830092541>
 
 iOS 12.1 正式面向 iPhones 和 iPads 推出。下一代操作系统为你的 iPhones 和 iPads 带来了许多新功能。以下是最新更新中值得查看的内容，以及如何立即获取。
 

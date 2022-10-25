@@ -1,6 +1,6 @@
 # 现在是献血的好时机
 
-> 原文:[https://life hacker . com/now-is-a-good-time-to-dance-blood-1844120751](https://lifehacker.com/now-is-a-good-time-to-donate-blood-1844120751)
+> 原文：<https://lifehacker.com/now-is-a-good-time-to-donate-blood-1844120751>
 
 美国目前正面临严重的血液短缺。由于对冠状病毒的担忧，许多献血活动被取消，也许是因为献血者 T2 感觉 T3 对报名尤为犹豫。虽然在封锁期间对血液的需求有所减少，因为许多选择性手术被推迟，对血液的需求已经恢复，但是献血还没有回到疫情之前的水平。
 

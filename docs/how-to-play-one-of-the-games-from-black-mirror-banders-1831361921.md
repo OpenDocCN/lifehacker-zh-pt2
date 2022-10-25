@@ -1,6 +1,6 @@
 # 如何玩黑镜中的一个游戏:Bandersnatch
 
-> 原文:[https://gizmodo . com/how-to-play-one-the-games-from-black-mirror-banders-1831361921](https://gizmodo.com/how-to-play-one-of-the-games-from-black-mirror-banders-1831361921)
+> 原文：<https://gizmodo.com/how-to-play-one-of-the-games-from-black-mirror-banders-1831361921>
 
 *Bandersnatch* ，新的*选择你自己的冒险*风格的*黑镜* [今天上映](https://io9.gizmodo.com/black-mirror-is-heading-back-to-the-1980s-with-a-chilli-1830570365) ，是(如你所料)一部曲折的互动小说。网飞通过为这一集的虚拟游戏工作室 Tuckersoft 建立一个真实的网站，进一步绑上了元文本结，该公司的几个标题(如 *Metl Hedd* )直接引用了该剧的前几集。
 

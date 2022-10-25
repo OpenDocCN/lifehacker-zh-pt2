@@ -1,6 +1,6 @@
 # 如果停车场损坏了你的车，该怎么办
 
-> 原文:[https://jalopnik . com/what-do-if-a-parking-garage-damages-your car-1829394275](https://jalopnik.com/what-to-do-if-a-parking-garage-damages-your-car-1829394275)
+> 原文：<https://jalopnik.com/what-to-do-if-a-parking-garage-damages-your-car-1829394275>
 
 这是我最害怕的噩梦，它终于发生了:车库服务员刮坏了我的车。该死的。气死我了。如果这种情况发生在你身上，你会怎么做？
 

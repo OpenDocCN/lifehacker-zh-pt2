@@ -1,6 +1,6 @@
 # 如何自动向 YouTube 视频添加章节
 
-> 原文:[https://life hacker . com/how-to-automatically-add-chapters-to-YouTube-videos-1843758072](https://lifehacker.com/how-to-automatically-add-chapters-to-youtube-videos-1843758072)
+> 原文：<https://lifehacker.com/how-to-automatically-add-chapters-to-youtube-videos-1843758072>
 
 YouTube 有一个新的“章节”功能，允许创建者在他们的视频中的特定位置标记时间戳，允许用户跳到最重要的部分，而不必先看某人喋喋不休十分钟。(尽管 YouTubers 上的人可能不会这么说。)
 

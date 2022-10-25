@@ -1,6 +1,6 @@
 # 农家干酪是最好的免煮早餐
 
-> 原文:[https://life hacker . com/cottage-cheese-is-the-best-no-cook-breakfast-1831588670](https://lifehacker.com/cottage-cheese-is-the-best-no-cook-breakfast-1831588670)
+> 原文：<https://lifehacker.com/cottage-cheese-is-the-best-no-cook-breakfast-1831588670>
 
 我喜欢用凝乳和乳清开始我的一天；它们很饱满，中性，足以与各种植物部分搭配美味，而且(最重要的是)速度快。一碗农家干酪和一碗谷类食品需要同样多的时间来准备，但是会让你在更长的时间内保持饱腹感。(另外，如果你在上面放一份蔬菜，你会觉得很有道德。)
 

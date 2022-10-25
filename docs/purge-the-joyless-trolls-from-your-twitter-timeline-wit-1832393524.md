@@ -1,6 +1,6 @@
 # 使用这个玛丽·近藤启发的应用程序，从你的 Twitter 时间表中清除不快乐的巨魔
 
-> 原文:[https://www . av club . com/purge-the-joyless-trolls-from-your-Twitter-timeline-wit-1832393524](https://www.avclub.com/purge-the-joyless-trolls-from-your-twitter-timeline-wit-1832393524)
+> 原文：<https://www.avclub.com/purge-the-joyless-trolls-from-your-twitter-timeline-wit-1832393524>
 
 任何在 Twitter 上关注超过 500 人的人都很清楚，大多数社交媒体时间线在数字上相当于被污水堵塞的河流。虽然到目前为止，完全疏通这些恶臭的水域几乎是不可能的，但一个受 [玛丽·近藤](https://news.avclub.com/marie-kondo-doesnt-actually-want-you-to-throw-out-your-1831854905) 的组织方法启发的 Twitter 插件现在至少可以帮助执行分流。
 

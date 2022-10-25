@@ -1,6 +1,6 @@
 # 现在为你的抵押贷款再融资，以避免新的费用
 
-> 原文:[https://life hacker . com/refinance-your-mortgage-now-to-avoid-a-new-fee-1844904486](https://lifehacker.com/refinance-your-mortgage-now-to-avoid-a-new-fee-1844904486)
+> 原文：<https://lifehacker.com/refinance-your-mortgage-now-to-avoid-a-new-fee-1844904486>
 
 在过去的几个月里，我们已经写了几次关于抵押贷款再融资的文章——理由很充分: [新的房地美数据](http://www.freddiemac.com/pmms) 显示 30 年期固定利率抵押贷款再次跌破 3%。这些 [最低的抵押贷款利率](https://www.washingtonpost.com/business/2020/08/27/mortgage-rates-drop-once-again-remaining-below-3-percent) 已经激励了一群人考虑在他们现有的抵押贷款上获得更低的利率。
 

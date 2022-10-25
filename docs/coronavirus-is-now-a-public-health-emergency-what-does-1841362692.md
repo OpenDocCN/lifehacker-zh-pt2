@@ -1,6 +1,6 @@
 # 冠状病毒现在是一种公共卫生突发事件——这意味着什么？
 
-> 原文:[https://life hacker . com/coronavirus-is-now-a-public-health-emergency-what-does-1841362692](https://lifehacker.com/coronavirus-is-now-a-public-health-emergency-what-does-1841362692)
+> 原文：<https://lifehacker.com/coronavirus-is-now-a-public-health-emergency-what-does-1841362692>
 
 世界卫生组织今天召开会议， [宣布](https://www.who.int/dg/speeches/detail/ihr-emergency-committee-on-novel-coronavirus-(2019-ncov)) 来自武汉的冠状病毒(2019-nCoV)为国际关注的突发公共卫生事件，简称 PHEIC。
 

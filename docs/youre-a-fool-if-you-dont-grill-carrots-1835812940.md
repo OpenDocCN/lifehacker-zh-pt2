@@ -1,6 +1,6 @@
 # 如果你不烤胡萝卜，你就是个傻瓜
 
-> 原文:[https://life hacker . com/you-a-fool-if-you-don-grill-胡萝卜-1835812940](https://lifehacker.com/youre-a-fool-if-you-dont-grill-carrots-1835812940)
+> 原文：<https://lifehacker.com/youre-a-fool-if-you-dont-grill-carrots-1835812940>
 
 我不知道胡萝卜(作为一个整体)是被低估了还是被高估了，但是我知道*烤*胡萝卜几乎被忽视了。是的，很难与烤玉米竞争，但烤胡萝卜是一个烟熏，甜蜜，烧焦的奇迹，我在这里要求你注意它们。
 

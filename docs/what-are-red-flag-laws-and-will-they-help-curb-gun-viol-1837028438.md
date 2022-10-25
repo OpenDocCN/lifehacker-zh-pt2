@@ -1,6 +1,6 @@
 # 什么是红旗法律，它们有助于遏制枪支暴力吗？
 
-> 原文:[https://life hacker . com/what-are-red-flag-laws-and-will-help-curb-gun-viol-1837028438](https://lifehacker.com/what-are-red-flag-laws-and-will-they-help-curb-gun-viol-1837028438)
+> 原文：<https://lifehacker.com/what-are-red-flag-laws-and-will-they-help-curb-gun-viol-1837028438>
 
 上周末，在德克萨斯州埃尔帕索和俄亥俄州代顿发生的大规模枪击事件中，至少有 31 人丧生，就在几天前，加利福尼亚州吉尔罗伊和布鲁克林布朗斯维尔也发生了类似的枪支暴力事件。
 

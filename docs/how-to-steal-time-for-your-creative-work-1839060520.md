@@ -1,6 +1,6 @@
 # 如何为你的创造性工作挤出时间
 
-> 原文:[https://life hacker . com/how-to-steak-time for your ' s creative-work-1839060520](https://lifehacker.com/how-to-steal-time-for-your-creative-work-1839060520)
+> 原文：<https://lifehacker.com/how-to-steal-time-for-your-creative-work-1839060520>
 
 创造性类型的工作-生活平衡更像是工作-工作-生活。你必须为你的工作职责和非工作职责找时间，为你关心的人和你支持的社区找时间，为休息和恢复找时间，为你正在做的大创意项目找时间。
 

@@ -1,6 +1,6 @@
 # 如何避开旅游景点恼人的人群和队伍
 
-> 原文:[https://life hacker . com/how-to-avoid-three-crowd-and-line-at-tourist-attra-1835093034](https://lifehacker.com/how-to-avoid-annoying-crowds-and-lines-at-tourist-attra-1835093034)
+> 原文：<https://lifehacker.com/how-to-avoid-annoying-crowds-and-lines-at-tourist-attra-1835093034>
 
 如果你曾经想去参观艾菲尔铁塔、古罗马斗兽场或自由女神像，你现在应该知道了:在任何一个受欢迎的旅游景点，你都有可能遇到成群缓慢移动、手持自拍杆的游客。
 

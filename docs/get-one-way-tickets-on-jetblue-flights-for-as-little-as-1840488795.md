@@ -1,6 +1,6 @@
 # 以低至 44 美元的价格购买捷蓝航空的单程机票
 
-> 原文:[https://life hacker . com/get-one-way-tickets-on-JetBlue-flights-for-little-as-1840488795](https://lifehacker.com/get-one-way-tickets-on-jetblue-flights-for-as-little-as-1840488795)
+> 原文：<https://lifehacker.com/get-one-way-tickets-on-jetblue-flights-for-as-little-as-1840488795>
 
 如果你要回家度假，你可能会考虑一个不在童年卧室睡觉的假期。开始计划的时间: U 直到今晚午夜，捷蓝航空正在进行单程票的大甩卖。
 

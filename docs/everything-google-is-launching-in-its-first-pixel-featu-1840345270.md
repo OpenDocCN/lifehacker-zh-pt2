@@ -1,6 +1,6 @@
 # 谷歌在其第一个 Pixel“功能下降”中推出的一切
 
-> 原文:[https://life hacker . com/everything-Google-is-launch-in-its-first-pixel-featu-1840345270](https://lifehacker.com/everything-google-is-launching-in-its-first-pixel-featu-1840345270)
+> 原文：<https://lifehacker.com/everything-google-is-launching-in-its-first-pixel-featu-1840345270>
 
 谷歌新的“ [功能下降](https://www.blog.google/products/pixel/more-helpful-pixel-features/) ”计划于本月启动，适用于 Pixel 2、3、3a 和 4 智能手机(包括 XL 型号)。在这个首次功能发布中，你会发现很多功能——尽管并非所有功能都适用于所有 Pixel 手机——所以这里有一个完整功能的快速列表，以及哪些手机正在获得这些功能:
 

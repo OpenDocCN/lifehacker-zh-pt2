@@ -1,6 +1,6 @@
 # 用这个工具找到完美的学校或学院
 
-> 原文:[https://life hacker . com/find-the-perfect-school-or-college-with this-tool-1838440365](https://lifehacker.com/find-the-perfect-school-or-college-with-this-tool-1838440365)
+> 原文：<https://lifehacker.com/find-the-perfect-school-or-college-with-this-tool-1838440365>
 
 为你的孩子选择合适的学校是一个重大的决定。从第一个幼儿园班开始，直到他们进入大学，我们希望他们在一个学术健全的环境中，有高质量的老师。提供参加俱乐部、运动和其他活动的机会。一个多样化的、安全的、有良好设施的学校，为他们的大学生活或大学毕业后的生活做准备。
 

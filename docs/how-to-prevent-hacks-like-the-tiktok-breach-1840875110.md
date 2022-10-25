@@ -1,6 +1,6 @@
 # 如何防止像抖音事件这样的黑客攻击
 
-> 原文:[https://life hacker . com/how-to-prevent-hacks-like-the-tiktok-breach-1840875110](https://lifehacker.com/how-to-prevent-hacks-like-the-tiktok-breach-1840875110)
+> 原文：<https://lifehacker.com/how-to-prevent-hacks-like-the-tiktok-breach-1840875110>
 
 网络安全公司 Check Point Research 最近发表了一篇关于抖音漏洞的文章，这些漏洞给了黑客一个渗透用户账户的好方法。抖音已经修补了这些问题，所以你是安全的，但这些攻击产生的创造性方式提供了一个很好的学习机会。即使消息看起来是直接来自某个服务，你也必须时刻保持警惕，考虑为什么*你会*收到那个消息*。*
 

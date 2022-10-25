@@ -1,6 +1,6 @@
 # 如何判断自己是否无聊
 
-> 原文:[https://life hacker . com/how-to-tell-if-you-boring-1835650232](https://lifehacker.com/how-to-tell-if-youre-boring-1835650232)
+> 原文：<https://lifehacker.com/how-to-tell-if-youre-boring-1835650232>
 
 无聊的人无处不在——在工作中，在你孩子的学校，甚至可能在家里。但也许唯一比被困在与单调先生的无聊对话中更糟糕的事情是发现，实际上，无聊的人是*你*。
 

@@ -1,6 +1,6 @@
 # 通过玩视频游戏来帮助美国宇航局拯救世界的珊瑚
 
-> 原文:[https://gizmodo . com/help-NASA-save-the-worlds-oceans-by-playing-a-video-gam-1842919299](https://gizmodo.com/help-nasa-save-the-worlds-oceans-by-playing-a-video-gam-1842919299)
+> 原文：<https://gizmodo.com/help-nasa-save-the-worlds-oceans-by-playing-a-video-gam-1842919299>
 
 美国国家航空航天局创造了一个有目的的新视频游戏。
 

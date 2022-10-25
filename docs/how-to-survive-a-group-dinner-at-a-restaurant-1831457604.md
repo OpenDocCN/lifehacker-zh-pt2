@@ -1,6 +1,6 @@
 # 如何在餐厅的集体聚餐中生存
 
-> 原文:[https://life hacker . com/how-to-survive-a-group-dinner-a-restaurant-1831457604](https://lifehacker.com/how-to-survive-a-group-dinner-at-a-restaurant-1831457604)
+> 原文：<https://lifehacker.com/how-to-survive-a-group-dinner-at-a-restaurant-1831457604>
 
 想象一下，在一个派对上，每个人都必须同时到达和离开，有些客人整晚只允许与两三个人交谈，最后每个客人都要支付一个神秘的价格(从 20 美元到 80 美元不等)。你刚刚在一家餐馆发明了一顿集体晚餐！
 

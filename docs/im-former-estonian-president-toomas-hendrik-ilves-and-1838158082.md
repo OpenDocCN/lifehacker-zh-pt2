@@ -1,6 +1,6 @@
 # im former estonian president toomas hendrik ilves and 1838158082
 
-> 原文:[https://life hacker . com/im-former-estonian-president-toomas-hendrik-il ves-and-1838158082](https://lifehacker.com/im-former-estonian-president-toomas-hendrik-ilves-and-1838158082)
+> 原文：<https://lifehacker.com/im-former-estonian-president-toomas-hendrik-ilves-and-1838158082>
 
 托马斯·亨德里克·伊尔韦斯是爱沙尼亚难民的儿子，他们在 1944 年苏联接管时逃离了这个国家，他目睹了自己的国家在 1991 年重获独立。2006 年，他成为爱沙尼亚的第四任总统。我们就他作为总统的成就进行了长时间的交谈，这个职位没有行政权力，因此依赖于说服和建立共识。我们讨论了爱沙尼亚的快速数字化，这使一个贫穷的国家发生了革命性的变化，并使其成为世界各国政府羡慕的对象。我们谈到了他传播公民数字化福音的工作。
 

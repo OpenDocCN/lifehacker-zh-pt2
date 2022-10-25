@@ -1,6 +1,6 @@
 # 喝汤时加点肥肉
 
-> 原文:[https://life hacker . com/finish-your-soup with a little-bit-of-fat-1844767997](https://lifehacker.com/finish-your-soup-with-a-little-bit-of-fat-1844767997)
+> 原文：<https://lifehacker.com/finish-your-soup-with-a-little-bit-of-fat-1844767997>
 
 所有的饭菜都配有点睛之笔*点什么*，汤也不例外。咸盐、柠檬汁或少量新鲜香草都是受欢迎的第一道菜，但其中最奢侈的是一点脂肪，特别是黄油或橄榄油。当加入一碗汤中时，它特别特别。
 

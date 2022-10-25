@@ -1,6 +1,6 @@
 # 感恩节所有你能做和不能做的事情
 
-> 原文:[https://life hacker . com/everything-you-can-and-cannot-microwave-on-thanksgiving-1830572421](https://lifehacker.com/everything-you-can-and-cannot-microwave-on-thanksgiving-1830572421)
+> 原文：<https://lifehacker.com/everything-you-can-and-cannot-microwave-on-thanksgiving-1830572421>
 
 至少可以说，设计一顿丰盛的大餐是一项高压工程，当你要做十几道菜时，炉子和烤箱的每一平方英寸都是宝贵的不动产。只要你做出正确的选择，一台微波炉 甚至可以简化最雄心勃勃的准备计划——有些食物就是不能被加热。
 

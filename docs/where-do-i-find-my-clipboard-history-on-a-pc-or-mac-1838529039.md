@@ -1,6 +1,6 @@
 # 在 PC 或 Mac 上哪里可以找到我的剪贴板历史记录？
 
-> 原文:[https://life hacker . com/where-do-I-find-my-clipboard-history-on-a-PC-or-MAC-1838529039](https://lifehacker.com/where-do-i-find-my-clipboard-history-on-a-pc-or-mac-1838529039)
+> 原文：<https://lifehacker.com/where-do-i-find-my-clipboard-history-on-a-pc-or-mac-1838529039>
 
 欢迎回到 Lifehacker 的技术建议系列的另一部分， [**技术 911**](https://lifehacker.com/c/tech-911) 。如果你有一个特别令人困惑的问题，你可以写信提出你的棘手问题，我们会给你一些难回答的问题、一点幽默和一点挠头。
 

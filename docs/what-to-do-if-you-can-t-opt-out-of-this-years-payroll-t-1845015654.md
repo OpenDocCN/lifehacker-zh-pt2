@@ -1,6 +1,6 @@
 # 如果你不能选择退出今年的工资税延期，该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-if-you-can-t-opt-out-of-this-years-payroll-t-1845015654](https://lifehacker.com/what-to-do-if-you-can-t-opt-out-of-this-years-payroll-t-1845015654)
+> 原文：<https://lifehacker.com/what-to-do-if-you-can-t-opt-out-of-this-years-payroll-t-1845015654>
 
 上个月，川普宣布了一项新的 [工资税延期](https://twocents.lifehacker.com/how-the-new-payroll-tax-deferral-will-affect-you-1844688678) ，暂停员工缴纳的部分税款。9 月 1 日开始的 [有争议的命令](https://thehill.com/policy/finance/515548-senators-urge-administration-to-make-payroll-tax-deferral-optional-for-federal) 称公司可能停止收取员工缴纳的 6.2%的社会保障税。虽然许多公司已经选择退出，但一些员工没有选择不参加。
 

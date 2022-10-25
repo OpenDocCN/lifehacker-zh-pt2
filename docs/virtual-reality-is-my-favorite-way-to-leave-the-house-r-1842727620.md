@@ -1,6 +1,6 @@
 # 虚拟现实是我现在最喜欢的出门方式
 
-> 原文:[https://kotaku . com/virtual-reality-is-my-favorite-way-to-leave-the-house-r-1842727620](https://kotaku.com/virtual-reality-is-my-favorite-way-to-leave-the-house-r-1842727620)
+> 原文：<https://kotaku.com/virtual-reality-is-my-favorite-way-to-leave-the-house-r-1842727620>
 
 在这一点上，我们已经听说了虚拟现实对于在想象的环境中行走和与世界近距离互动有多么好。但我从未预见到的是，在世界各地的疫情中，我那无聊、酷的科技消遣方式会成为我离开公寓的新宠。
 

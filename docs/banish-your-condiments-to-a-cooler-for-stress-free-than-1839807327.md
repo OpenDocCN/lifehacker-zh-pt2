@@ -1,6 +1,6 @@
 # 将你的调味品放入冷藏箱中，进行无压力的感恩节准备
 
-> 原文:[https://life hacker . com/exhibit-your-conditions-to-a-cooler for-stress-free-than 1839807327](https://lifehacker.com/banish-your-condiments-to-a-cooler-for-stress-free-than-1839807327)
+> 原文：<https://lifehacker.com/banish-your-condiments-to-a-cooler-for-stress-free-than-1839807327>
 
 将整个感恩节的食材塞进一个已经满满的冰箱可能是一项物理上不可能完成的任务。如果你今年在一个小厨房里烹饪一顿大餐，暂时驱逐不必要的东西会给你所有的冰箱空间，你需要留在 [prep](https://lifehacker.com/what-you-should-be-doing-right-now-to-prep-for-thanksgi-1820087362) 上面。
 

@@ -1,6 +1,6 @@
 # 为了避免安全漏洞，请确保您运行的是 LastPass 扩展的最新版本
 
-> 原文:[https://life hacker . com/to-avoid-a-security-bug-make-you-run-the-la-1838157503](https://lifehacker.com/to-avoid-a-security-bug-make-sure-youre-running-the-la-1838157503)
+> 原文：<https://lifehacker.com/to-avoid-a-security-bug-make-sure-youre-running-the-la-1838157503>
 
 如果您是 LastPass 用户，您应该确保您当前运行的是最新版本的浏览器扩展。
 

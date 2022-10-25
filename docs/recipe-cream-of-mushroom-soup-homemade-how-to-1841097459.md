@@ -1,6 +1,6 @@
 # 这种配料会给你的蘑菇汤带来惊人的深度
 
-> 原文:[https://the take out . com/recipe-cream-of-mushroom-soup-how-to-1841097459](https://thetakeout.com/recipe-cream-of-mushroom-soup-homemade-how-to-1841097459)
+> 原文：<https://thetakeout.com/recipe-cream-of-mushroom-soup-homemade-how-to-1841097459>
 
 从小到大，我唯一喝过的奶油蘑菇汤是罐装的咸味牛奶汤。直到成年后，我才意识到这种汤的潜力。我现在制作的版本具有难以置信的深度，几乎有肉，同时感觉不太丰富。
 

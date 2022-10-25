@@ -1,6 +1,6 @@
 # 如果你在公共场合戴着布口罩，应该知道什么
 
-> 原文:[https://life hacker . com/what-to-know-if-you-being-a-cloth-mask-in-public-1842706701](https://lifehacker.com/what-to-know-if-youre-wearing-a-cloth-mask-in-public-1842706701)
+> 原文：<https://lifehacker.com/what-to-know-if-youre-wearing-a-cloth-mask-in-public-1842706701>
 
 CDC [现在推荐“布面套”](https://www.cdc.gov/coronavirus/2019-ncov/prevent-getting-sick/diy-cloth-face-coverings.html) 来减缓新冠肺炎的传播。正如我们之前讨论过的，布质面具 [有利有弊](https://lifehacker.com/do-homemade-face-masks-help-stop-the-spread-of-the-coro-1842514179) ，一些组织仍然在犹豫是否值得说服每个人都戴上它们。例如，世卫组织还没有提供布面具的官方意见，但是在周三暗示这可能会改变。
 

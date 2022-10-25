@@ -1,6 +1,6 @@
 # 标签组是 Chrome 多年来最好的新功能，以下是使用方法
 
-> 原文:[https://gizmodo . com/tab-groups-is-chromes-best-new-feature-in-years-and-he-1842944249](https://gizmodo.com/tab-groups-is-chromes-best-new-feature-in-years-and-he-1842944249)
+> 原文：<https://gizmodo.com/tab-groups-is-chromes-best-new-feature-in-years-and-he-1842944249>
 
 在经历了浏览器的开发版和测试版之后，一个重要的新功能即将出现在我们大多数人都在使用的谷歌 Chrome 稳定版中:标签组。它可能会永远改变你浏览网页的方式。
 

@@ -1,6 +1,6 @@
 # 美国电话电报公司的 3G 网络关闭后，你的手机还能用吗？
 
-> 原文:[https://life hacker . com/will-your-phone-still-work-after-at-ts-3g-network-shuts-1844610010](https://lifehacker.com/will-your-phone-still-work-after-at-ts-3g-network-shuts-1844610010)
+> 原文：<https://lifehacker.com/will-your-phone-still-work-after-at-ts-3g-network-shuts-1844610010>
 
 许多美国电话电报公司用户收到了该公司发来的令人困惑的电子邮件，称 3G 服务即将结束，如果他们想继续使用网络，就需要升级到新手机。当然，这在网上遭到了审查。许多用户认为这是一个骗局，而其他人则对这一通知感到不安。
 

@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:我的顾客不停地叫我“宝贝”
 
-> 原文:[https://the take out . com/my-customer-won-t-stop-calling-me-baby-1832764554](https://thetakeout.com/my-customer-won-t-stop-calling-me-baby-1832764554)
+> 原文：<https://thetakeout.com/my-customer-won-t-stop-calling-me-baby-1832764554>
 
 > 嗨，咸味，我在田纳西州查塔努加的一家大酒吧工作。最近有个客人叫我“宝贝”我告诉他我的名字。他不停地叫我宝贝，一遍又一遍，并会立即“道歉”，然后说他打算叫我的名字。和他在一起的女人甚至多次提醒他我的名字。此外，坐在他旁边的两名男子听到了我们的互动，并开始就此开玩笑。
 > 

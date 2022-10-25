@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:我有一个秘密的超级英雄角色是不是很奇怪？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-is-it-verged-I-have-a-secret-super hero-1837470231](https://kotaku.com/ask-dr-nerdlove-is-it-weird-i-have-a-secret-superhero-1837470231)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-is-it-weird-i-have-a-secret-superhero-1837470231>
 
 你好，你这个燃烧的性感野兽，欢迎来到 [问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是一个约会建议专栏，身体从牢房的地狱之巅抨击你的关系问题。
 

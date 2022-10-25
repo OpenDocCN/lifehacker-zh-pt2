@@ -1,6 +1,6 @@
 # 关于强生诉讼和阿片类药物危机你应该知道什么
 
-> 原文:[https://life hacker . com/what-you-should-know-the-Johnson-Johnson-lawsui-1837638321](https://lifehacker.com/what-you-should-know-about-the-johnson-johnson-lawsui-1837638321)
+> 原文：<https://lifehacker.com/what-you-should-know-about-the-johnson-johnson-lawsui-1837638321>
 
 周一，俄克拉荷马州的一名法官下令制药商强生公司支付 5.72 亿美元，用于参与正在进行的阿片类药物危机——这一审判被称为具有里程碑意义的“”案件。由于这起诉讼，我们很可能会看到其他制药公司、分销商，甚至主要零售商为疫情承担责任。
 

@@ -1,6 +1,6 @@
 # 你现在可以在多林哥上学习阿拉伯语
 
-> 原文:[https://life hacker . com/you-can-now-learn-Arabic-on-duo lingo-1835845469](https://lifehacker.com/you-can-now-learn-arabic-on-duolingo-1835845469)
+> 原文：<https://lifehacker.com/you-can-now-learn-arabic-on-duolingo-1835845469>
 
 从今天开始，你可以使用 [多林戈](https://www.duolingo.com/) 学习阿拉伯语。
 

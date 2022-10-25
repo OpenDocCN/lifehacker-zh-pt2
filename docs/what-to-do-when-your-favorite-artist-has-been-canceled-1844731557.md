@@ -1,6 +1,6 @@
 # what to do when your favorite artist has been canceled 1844731557
 
-> 原文:[https://life hacker . com/what-to-do what-when-your favorite-artist-hacker-1844731557](https://lifehacker.com/what-to-do-when-your-favorite-artist-has-been-canceled-1844731557)
+> 原文：<https://lifehacker.com/what-to-do-when-your-favorite-artist-has-been-canceled-1844731557>
 
 像许多千禧一代的孩子一样，Caleb LoSchiavo 从小就喜欢哈利波特系列。“作为一个孩子，我总是觉得我不适合，好像我不属于，好像我身上有什么东西丢失了，但我没有语言来描述，”LoSchiavo 说。“*《哈利·波特》*对我来说是一个可以逃避的外部世界，作为一个孩子，这是一个我之外的世界，一个不同的人可以被接受的地方。”
 

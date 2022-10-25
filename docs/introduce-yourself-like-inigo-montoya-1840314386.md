@@ -1,6 +1,6 @@
 # 像伊尼戈·蒙托亚一样介绍自己
 
-> 原文:[https://life hacker . com/introduce-yourself-like-inigo-Montoya-1840314386](https://lifehacker.com/introduce-yourself-like-inigo-montoya-1840314386)
+> 原文：<https://lifehacker.com/introduce-yourself-like-inigo-montoya-1840314386>
 
 你好，我叫伊尼戈·蒙托亚。我在楼下的业务发展部工作。我能在午餐时给你一些建议吗？
 

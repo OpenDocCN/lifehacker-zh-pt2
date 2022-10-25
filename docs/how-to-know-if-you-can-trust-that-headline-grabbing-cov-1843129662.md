@@ -1,6 +1,6 @@
 # 为什么专家怀疑最近新冠肺炎研究中的死亡率
 
-> 原文:[https://life hacker . com/how-to-know-if-you-can-trust-that-headline-grabbing-cov-1843129662](https://lifehacker.com/how-to-know-if-you-can-trust-that-headline-grabbing-cov-1843129662)
+> 原文：<https://lifehacker.com/how-to-know-if-you-can-trust-that-headline-grabbing-cov-1843129662>
 
 最近有很多关于一些新冠肺炎研究的谈论，这些研究使用抗体检测来估计人群中的感染流行率。从理论上讲，抗体测试可以检测到一个 [人已经患有新冠肺炎](https://vitals.lifehacker.com/what-a-covid-19-antibody-test-can-and-cannot-tell-you-1842953516) 并已康复的证据，鉴于人们仍在经历症状(或者如果他们不是完全无症状，可能只是经历轻微症状)时缺乏可用的测试，这可以成为一个有用的工具来估计疫情的全部范围。
 

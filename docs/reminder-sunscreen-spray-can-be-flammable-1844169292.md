@@ -1,6 +1,6 @@
 # 提醒:防晒喷雾可能易燃
 
-> 原文:[https://life hacker . com/reminder-防晒-喷雾-可易燃-1844169292](https://lifehacker.com/reminder-sunscreen-spray-can-be-flammable-1844169292)
+> 原文：<https://lifehacker.com/reminder-sunscreen-spray-can-be-flammable-1844169292>
 
 气溶胶喷雾通常是易燃的，包括许多防晒霜和杀虫剂。标签上用小字写着，我猜你一般不会看，因为你在烤架或 tiki 电筒旁防晒。
 

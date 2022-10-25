@@ -1,6 +1,6 @@
 # 如何判断自己的学区做得够不够
 
-> 原文:[https://life hacker . com/how-to-assessment-your ' s school-district-being-eno-1844379276](https://lifehacker.com/how-to-assess-whether-your-school-district-is-doing-eno-1844379276)
+> 原文：<https://lifehacker.com/how-to-assess-whether-your-school-district-is-doing-eno-1844379276>
 
 我一直在等待着那个时刻，这个秋天学校的形象会从阴暗到至少是可见的。面对面教育伴随着巨大的社区健康风险。全数字化学习对一些学生来说很难，对另一些学生来说不可能。而这两者的某种结合对在职父母来说是一场逻辑噩梦。这就像从一箱碰伤的苹果中选择一个碰伤的苹果——哪个里面最烂？
 

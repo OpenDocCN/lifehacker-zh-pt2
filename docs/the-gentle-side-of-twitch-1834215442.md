@@ -1,6 +1,6 @@
 # the gentle side of twitch 1834215442
 
-> 原文:[https://gizmodo.com/the-gentle-side-of-twitch-1834215442](https://gizmodo.com/the-gentle-side-of-twitch-1834215442)
+> 原文：<https://gizmodo.com/the-gentle-side-of-twitch-1834215442>
 
 “嗨！我看到你了，但我现在正专注于阅读。下次休息的时候我可以聊天！”这条消息来自 Ryan Blake Hall，他在 Twitch 上以讲故事者 Mars 而闻名。
 

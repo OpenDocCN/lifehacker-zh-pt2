@@ -1,6 +1,6 @@
 # 在炉子上蒸和在速溶锅里蒸是不同的
 
-> 原文:[https://life hacker . com/steaming-on-the-stock-is-different-in-the-steaming 1833643484](https://lifehacker.com/steaming-on-the-stove-is-different-from-steaming-in-the-1833643484)
+> 原文：<https://lifehacker.com/steaming-on-the-stove-is-different-from-steaming-in-the-1833643484>
 
 在炉子上蒸是一种温和的传热方法，可以让你的食物进入煮熟的状态，非常适合蔬菜或蛋白质，如果你不小心的话，它们可能会煮过头。如果你有一个速溶壶，你可能会想把它的“蒸汽”功能当成一个放在炉子上的蒸锅，但是，我的朋友，那是愚蠢的。
 

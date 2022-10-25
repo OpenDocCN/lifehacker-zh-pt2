@@ -1,6 +1,6 @@
 # 告诉我们你最好的坎昆旅行建议
 
-> 原文:[https://life hacker . com/tell-us-your-best-Cancun-travel-tips-1831347165](https://lifehacker.com/tell-us-your-best-cancun-travel-tips-1831347165)
+> 原文：<https://lifehacker.com/tell-us-your-best-cancun-travel-tips-1831347165>
 
 坎昆已经为游客做了很好的包装。所以本周的黑客城市是一个挑战:在这个年轻的城市里有什么未被发现的？拥挤的海滩度假胜地之外涌现出了什么？在这个以游客为主的小镇上，有什么诀窍可以帮助当地人度过难关呢？
 

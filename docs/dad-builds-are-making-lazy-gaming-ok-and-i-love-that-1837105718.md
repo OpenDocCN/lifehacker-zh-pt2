@@ -1,6 +1,6 @@
 # “爸爸制造”让懒人游戏变得可以了，我喜欢这样
 
-> 原文:[https://kotaku . com/dad-builds-are-making-lazy-gaming-ok-and-I-love-that-1837105718](https://kotaku.com/dad-builds-are-making-lazy-gaming-ok-and-i-love-that-1837105718)
+> 原文：<https://kotaku.com/dad-builds-are-making-lazy-gaming-ok-and-i-love-that-1837105718>
 
 我注意到，你们中的一些人在视频游戏词典中引入了一个新术语，这个术语描述了我和广大公众非常感兴趣的一种现象。当然，我说的是爸爸的身材。
 

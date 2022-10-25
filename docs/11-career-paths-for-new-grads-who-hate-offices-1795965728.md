@@ -1,6 +1,6 @@
 # 讨厌办公室的新毕业生的最佳职业道路
 
-> 原文:[https://life hacker . com/11-讨厌办公室的新毕业生的职业道路-1795965728](https://lifehacker.com/11-career-paths-for-new-grads-who-hate-offices-1795965728)
+> 原文：<https://lifehacker.com/11-career-paths-for-new-grads-who-hate-offices-1795965728>
 
 当我们描绘“工作”或“得到一份工作”时，许多人会立即联想到坐在办公桌前，在电脑前打字的画面。是的，很多人都是这样度过他们的日子的，但不是唯一的方式。实际上有很多其他的选择完全不涉及办公室，或者至少比大多数工作少得多。
 

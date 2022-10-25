@@ -1,6 +1,6 @@
 # 不想过节怎么装修
 
-> 原文:[https://life hacker . com/how-to-decoration-the-holiday-when-you-want-to-1839948809](https://lifehacker.com/how-to-decorate-for-the-holidays-when-you-dont-want-to-1839948809)
+> 原文：<https://lifehacker.com/how-to-decorate-for-the-holidays-when-you-dont-want-to-1839948809>
 
 一些人在今秋第一缕微风吹起时挂上了节日彩灯，急切地想要开始享受这个季节带给他们的快乐。对于其他人来说，现在一想到要把房子改造成一个红色和绿色的冬季仙境——甚至挂一件装饰品——就会觉得难以忍受。
 

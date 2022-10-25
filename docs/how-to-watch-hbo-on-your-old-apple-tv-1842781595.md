@@ -1,6 +1,6 @@
 # 如何在你的旧苹果电视上观看 HBO
 
-> 原文:[https://life hacker . com/how-to-watch-HBO-on-your-old-apple-TV-1842781595](https://lifehacker.com/how-to-watch-hbo-on-your-old-apple-tv-1842781595)
+> 原文：<https://lifehacker.com/how-to-watch-hbo-on-your-old-apple-tv-1842781595>
 
 如果你最近一直在关注 HBO 的电视剧——我不是在谈论*west world*——你可能已经听说过旧款苹果电视的所有者将很快失去播放 HBO 节目的能力。虽然过时是科技生活中的一个事实，但这看起来像是一个愚蠢的举动，因为*为什么一个相当强大的硬件不能处理更新的编码方法？*但事实就是如此。如果你有第二代或第三代苹果电视——分别于 2010 年和 2012 年推出的型号——你很快就会失去 HBO 应用。
 

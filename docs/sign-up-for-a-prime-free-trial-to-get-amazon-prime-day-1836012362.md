@@ -1,6 +1,6 @@
 # 获得免费试用的亚马逊优惠日优惠
 
-> 原文:[https://life hacker . com/sign-up-for-a prime-free-trial-to-get-Amazon-prime-day-1836012362](https://lifehacker.com/sign-up-for-a-prime-free-trial-to-get-amazon-prime-day-1836012362)
+> 原文：<https://lifehacker.com/sign-up-for-a-prime-free-trial-to-get-amazon-prime-day-1836012362>
 
 如果你是亚马逊 Prime 会员，你可以对亚马逊 Prime 日不置可否。你已经支付了 119 美元的年费或月费，所以浏览超市两天来的打折活动又有什么坏处呢...那之前的两周呢。但如果你不是一个主要成员，你可能会对所有的热闹感到好奇，感受一些网上购物 FOMO。
 

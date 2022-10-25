@@ -1,6 +1,6 @@
 # 亚马逊 Prime Day Glitch 让人们以 94 美元的价格购买了价值 13000 美元的相机
 
-> 原文:[https://gizmodo . com/Amazon-prime-day-glitch-let-people-buy-13-000-camera-g-1836487919](https://gizmodo.com/amazon-prime-day-glitch-let-people-buy-13-000-camera-g-1836487919)
+> 原文：<https://gizmodo.com/amazon-prime-day-glitch-let-people-buy-13-000-camera-g-1836487919>
 
 如果你一直在向你的朋友吹嘘你在亚马逊的 Prime Day 噱头中达成的出色交易，不要这样做。你不太可能像 [Slickdeals 论坛](https://slickdeals.net/f/13219096-prime-members-sony-alpha-a6000-mirrorless-digital-camera-94-50-free-shipping#commentsBox) 的许多成员那样做。由于亚马逊网站上的一个错误，他们中的几个人能够 [买到一些非常昂贵的摄影器材](https://slickdeals.net/f/13219096-prime-members-sony-alpha-a6000-mirrorless-digital-camera-94-50-free-shipping#commentsBox)——包括镜头和相机套件——每个仅售 94.48 美元。
 

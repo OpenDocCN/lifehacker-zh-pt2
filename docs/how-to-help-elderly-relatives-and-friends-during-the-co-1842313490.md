@@ -1,6 +1,6 @@
 # 冠状病毒爆发期间如何帮助老年亲友
 
-> 原文:[https://life hacker . com/how-to-help-older-亲戚朋友-in-the-co-1842313490](https://lifehacker.com/how-to-help-elderly-relatives-and-friends-during-the-co-1842313490)
+> 原文：<https://lifehacker.com/how-to-help-elderly-relatives-and-friends-during-the-co-1842313490>
 
 这些天我们都应该练习“社会距离”——如果你经常拜访、查看或照顾一位年长的亲戚，你可能会想这是否意味着你应该停止拜访他们。
 

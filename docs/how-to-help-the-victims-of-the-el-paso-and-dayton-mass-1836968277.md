@@ -1,6 +1,6 @@
 # 如何帮助埃尔帕索和代顿枪击事件的受害者
 
-> 原文:[https://life hacker . com/how-to-help-the-victims-of-the-El-paso-and-dayton-mass-1836968277](https://lifehacker.com/how-to-help-the-victims-of-the-el-paso-and-dayton-mass-1836968277)
+> 原文：<https://lifehacker.com/how-to-help-the-victims-of-the-el-paso-and-dayton-mass-1836968277>
 
 周末，在得克萨斯州埃尔帕索和俄亥俄州代顿的大规模枪击事件中，共有 29 人 丧生，数十人受伤。包括纽约州众议员 [亚历山大·奥卡西奥-科尔特斯](https://twitter.com/AOC/status/1158043756819623937) 和总统候选人、前埃尔帕索众议员贝托·奥罗克在内的一些政治家呼吁制定更严格的枪支法律。“我的心碎了，”他在 [推特](https://twitter.com/BetoORourke/status/1157988671502503936) 上说。“为了埃尔帕索。为了代顿。对于每一个受到我国每年 4 万起枪杀案影响的人来说。结束这场危机是我们每一个人的责任——我仍然相信我们会一起结束这场危机。”
 

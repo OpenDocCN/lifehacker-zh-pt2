@@ -1,6 +1,6 @@
 # 2018 年你可以获得的所有税收抵免
 
-> 原文:[https://life hacker . com/all-the-tax-credits-you-can-take-for-2018-1831811601](https://lifehacker.com/all-the-tax-credits-you-can-take-for-2018-1831811601)
+> 原文：<https://lifehacker.com/all-the-tax-credits-you-can-take-for-2018-1831811601>
 
 你能在空气中闻到它吗？现在是纳税季节，我们都在努力争取尽可能多的退税。这意味着利用税收减免和信用来降低我们的账单。查看 [这篇文章，了解你在 2018 年](https://twocents.lifehacker.com/all-the-tax-deductions-you-can-take-for-2018-1831808127?rev=1547664826900) 可以获得的扣除，并继续阅读信贷信息。
 

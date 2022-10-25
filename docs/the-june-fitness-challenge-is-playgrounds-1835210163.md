@@ -1,6 +1,6 @@
 # 六月的健身挑战是:操场
 
-> 原文:[https://life hacker . com/the-June-fitness-challenge-is-playgrounds-1835210163](https://lifehacker.com/the-june-fitness-challenge-is-playgrounds-1835210163)
+> 原文：<https://lifehacker.com/the-june-fitness-challenge-is-playgrounds-1835210163>
 
 这个月我们要出去在操场上锻炼！秋千、滑梯和猴架都是很好的锻炼设备，另外，你通常被公园长椅、树和其他可以创造性使用的建筑所包围。这会很有趣的。
 

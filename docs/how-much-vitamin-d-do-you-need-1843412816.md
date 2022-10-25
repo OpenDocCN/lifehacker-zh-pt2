@@ -1,6 +1,6 @@
 # 你需要多少维生素 D？
 
-> 原文:[https://life hacker . com/how-mud-vitamin-d-do-you-need-1843412816](https://lifehacker.com/how-much-vitamin-d-do-you-need-1843412816)
+> 原文：<https://lifehacker.com/how-much-vitamin-d-do-you-need-1843412816>
 
 维生素 D 很重要。它帮助你的身体吸收 [钙，促进骨骼生长](https://www.webmd.com/osteoporosis/features/the-truth-about-vitamin-d-why-you-need-vitamin-d) 和 [在你的免疫系统](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC3166406/) 中扮演的角色。它通常被称为“阳光维生素”，因为我们的身体利用阳光的能量来制造维生素 D，根据定义，维生素 D 是一种激素原。考虑到突然发生的、由 pa ndemic- 诱发的生活变化，这些变化导致我们中的许多人减少了外出旅行，许多人一直在想他们是否摄入了足够的维生素 D，以及他们是否应该为此做些什么。
 

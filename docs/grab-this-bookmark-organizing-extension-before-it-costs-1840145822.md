@@ -1,6 +1,6 @@
 # 在花钱之前，抓住这个书签组织扩展
 
-> 原文:[https://life hacker . com/grab-this-bookmark-organizing-extension-before-it-costs-1840145822](https://lifehacker.com/grab-this-bookmark-organizing-extension-before-it-costs-1840145822)
+> 原文：<https://lifehacker.com/grab-this-bookmark-organizing-extension-before-it-costs-1840145822>
 
 Chrome: 我们最喜欢的 Chrome 扩展之一 Sprucemarks，正在转向订阅模式——它的创造者， [Kai Nightmode](https://twitter.com/kai_nightmode) 在本周末宣布了这一消息。然而，这里有一线希望:只需花费 7 美元就可以获得 Sprucemarks 未来版本的终身访问权，这是一个非常强大的工具，可以自动整理你浏览器中杂乱的书签。最棒的是，如果你现在行动，你可以永远使用免费版的 Sprucemarks。
 

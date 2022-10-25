@@ -1,6 +1,6 @@
 # 如何获得你 2018 年 instagram 照片的“前 9 名”
 
-> 原文:[https://life hacker . com/how-to-get-a-collage-of-your-top-9-insta gram-photos-of-1830961252](https://lifehacker.com/how-to-get-a-collage-of-your-top-9-instagram-photos-of-1830961252)
+> 原文：<https://lifehacker.com/how-to-get-a-collage-of-your-top-9-instagram-photos-of-1830961252>
 
 如果你使用 Instagram，很可能你已经开始看到你的朋友上传他们今年的“9 大”照片。
 

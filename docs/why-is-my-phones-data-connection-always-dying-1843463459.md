@@ -1,6 +1,6 @@
 # 为什么我的手机数据连接总是没电？
 
-> 原文:[https://life hacker . com/why-is-my-phones-data-connection-always-dying-1843463459](https://lifehacker.com/why-is-my-phones-data-connection-always-dying-1843463459)
+> 原文：<https://lifehacker.com/why-is-my-phones-data-connection-always-dying-1843463459>
 
 我喜欢时不时地为周刊[**Tech 911**](https://lifehacker.com/c/tech-911)Q&A 得到一个真正的难题；它让我保持警觉。这一次，读者很难通过威瑞森获得任何数据。奇怪的是，数据连接只在工作时间中断。
 

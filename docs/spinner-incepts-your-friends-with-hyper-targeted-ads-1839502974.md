@@ -1,6 +1,6 @@
 # Spinner 用超定向广告吸引你的朋友
 
-> 原文:[https://life hacker . com/spinner-incepts-your-friends-with-hyper-targeted-ads-1839502974](https://lifehacker.com/spinner-incepts-your-friends-with-hyper-targeted-ads-1839502974)
+> 原文：<https://lifehacker.com/spinner-incepts-your-friends-with-hyper-targeted-ads-1839502974>
 
 广告业是一个 [粪坑](https://www.thedrum.com/news/2019/06/06/cost-global-ad-fraud-could-top-30bn)[操纵](https://abcnews.go.com/Business/facebook-criminal-investigation-data-sharing-deals-tech-firms/story?id=61672356)[误传](https://earther.gizmodo.com/this-fake-green-new-deal-ad-perfectly-illustrates-faceb-1839364467) 。现在你可以用它来说服你的伴侣让你养狗。或者说服他们庭外解决你的离婚，因为他们发现你使用超针对性的互联网广告说服他们让你养一只狗。
 

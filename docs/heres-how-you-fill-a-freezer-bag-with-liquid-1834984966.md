@@ -1,6 +1,6 @@
 # 以下是如何将液体装入冷冻袋的方法
 
-> 原文:[https://life hacker . com/heres-how-you-fill-a-freeze-bag-liquid-1834984966](https://lifehacker.com/heres-how-you-fill-a-freezer-bag-with-liquid-1834984966)
+> 原文：<https://lifehacker.com/heres-how-you-fill-a-freezer-bag-with-liquid-1834984966>
 
 将食物平放在冷冻袋中是一个很好的方法，可以确保食物均匀冷冻，并且损失最小。另一方面，提出了一个相当大的挑战。
 

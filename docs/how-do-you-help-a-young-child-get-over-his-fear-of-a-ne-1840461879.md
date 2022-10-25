@@ -1,6 +1,6 @@
 # 你如何帮助一个小孩克服对邻居的恐惧？
 
-> 原文:[https://life hacker . com/how-do-you-help-a young-child-get-over-his-fear-a-ne-1840461879](https://lifehacker.com/how-do-you-help-a-young-child-get-over-his-fear-of-a-ne-1840461879)
+> 原文：<https://lifehacker.com/how-do-you-help-a-young-child-get-over-his-fear-of-a-ne-1840461879>
 
 我们都有关于那个邻居的故事。从不割草的那个。那个从来不清理他们的狗的人。那个在午夜玩电子游戏的人——声音被低音炮增强了——就在你卧室的墙上。
 

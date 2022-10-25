@@ -1,6 +1,6 @@
 # Safari 现在是阻止第三方追踪的最佳浏览器
 
-> 原文:[https://life hacker . com/safari-is-now-the-best-browser-for-blocking-third-party-1842489581](https://lifehacker.com/safari-is-now-the-best-browser-for-blocking-third-party-1842489581)
+> 原文：<https://lifehacker.com/safari-is-now-the-best-browser-for-blocking-third-party-1842489581>
 
 昨天发布的 Safari 13.1 引入了更严格的第三方 cookie 阻止功能，防止网站识别 Safari 用户并跟踪他们的网络活动。这意味着 [苹果的默认网络浏览器](https://www.apple.com/safari/) 现在是阻止第三方追踪器的最佳选择，也是第一个彻底阻止第三方 cookies 的浏览器——击败了 Chrome。
 

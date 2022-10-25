@@ -1,6 +1,6 @@
 # 什么都放味精，你们这些懦夫
 
-> 原文:[https://life hacker . com/put-msg-in-everything-you-cavities-1831721707](https://lifehacker.com/put-msg-in-everything-you-cowards-1831721707)
+> 原文：<https://lifehacker.com/put-msg-in-everything-you-cowards-1831721707>
 
 现在，我们都应该完全不怕味精 ，这种增加鲜味的分子通常被称为“味精”它不会让你头痛，不会让你的手臂麻木，但它会让你一口气吃掉一整头烤西兰花。
 

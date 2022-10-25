@@ -1,6 +1,6 @@
 # 梅丽莎·克拉克厨房之旅的最佳黑客
 
-> 原文:[https://life hacker . com/the-best-hacks-from-Melissa-clarks-kitchen-tour-1840069473](https://lifehacker.com/the-best-hacks-from-melissa-clarks-kitchen-tour-1840069473)
+> 原文：<https://lifehacker.com/the-best-hacks-from-melissa-clarks-kitchen-tour-1840069473>
 
 梅丽莎·克拉克的厨房 的 NYT 烹饪之旅是一次有趣而温暖的旅程。克拉克的香料抽屉是一个现代奇迹，就像她令人印象深刻的盐的收藏，她自制香草精的大罐子，和她的两(2) spaetzle 制造商。但是这个视频不仅仅是 11 分 14 秒的“看看我的东西！”克拉克还为摄制组制作了点心*和*提供了两种非常好的厨房小窍门。
 

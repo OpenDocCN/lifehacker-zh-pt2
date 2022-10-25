@@ -1,6 +1,6 @@
 # 如何为你的朋友选择最好的礼物
 
-> 原文:[https://life hacker . com/how-to-choose-the-best-gifts-your-friends-1838848566](https://lifehacker.com/how-to-choose-the-best-gifts-for-your-friends-1838848566)
+> 原文：<https://lifehacker.com/how-to-choose-the-best-gifts-for-your-friends-1838848566>
 
 给某人买一些他们特别想要的东西，同时还能保持惊喜，这种感觉棒极了。如果你想给朋友或同事找一份完美的礼物，答案就在你的聊天记录、电子邮件和社交媒体中:在他们的信息中搜索短语“我想要”
 

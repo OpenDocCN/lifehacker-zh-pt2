@@ -1,6 +1,6 @@
 # 瞬间玉米砂锅颂歌
 
-> 原文:[https://life hacker . com/an-ode-to-jiffy-corn-砂锅-1830231857](https://lifehacker.com/an-ode-to-jiffy-corn-casserole-1830231857)
+> 原文：<https://lifehacker.com/an-ode-to-jiffy-corn-casserole-1830231857>
 
 在任何一个家庭，都有一道菜是*做的*感恩节大餐。我不是在说火鸡——那太明显了。我说的是一道菜——通常是一道配菜——总是在你的餐桌上，尽管它的地位可能不太规范。这是你参加第一次朋友聚会或在姻亲家过感恩节时错过的一道菜。你没有意识到它并不是每个家庭都有的。对我来说，就是不起眼的玉米砂锅。
 

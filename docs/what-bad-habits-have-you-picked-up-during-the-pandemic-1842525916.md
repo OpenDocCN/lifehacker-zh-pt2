@@ -1,6 +1,6 @@
 # 在疫情期间，你染上了哪些坏习惯？
 
-> 原文:[https://life hacker . com/what-bad-habits-have-pick-up-in-the-疫情-1842525916](https://lifehacker.com/what-bad-habits-have-you-picked-up-during-the-pandemic-1842525916)
+> 原文：<https://lifehacker.com/what-bad-habits-have-you-picked-up-during-the-pandemic-1842525916>
 
 我们即将迎来又一周的身体距离和原地庇护——对我们中的一些人来说，这意味着又一周的高度焦虑、不明确的日常事务和新的坏习惯。
 

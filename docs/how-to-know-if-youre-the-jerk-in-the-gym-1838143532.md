@@ -1,6 +1,6 @@
 # 如何辨别你是健身房里的混蛋
 
-> 原文:[https://life hacker . com/how-to-know-if you-the-jerk-in-the-gym-1838143532](https://lifehacker.com/how-to-know-if-youre-the-jerk-in-the-gym-1838143532)
+> 原文：<https://lifehacker.com/how-to-know-if-youre-the-jerk-in-the-gym-1838143532>
 
 我喜欢在非高峰时间去不太受欢迎的健身房。我会在深蹲架上露营锻炼，没人会在意。但是由于蹲起是一个经典的挺举动作，这让我想到:也许我是当地健身房里的那个挺举。
 

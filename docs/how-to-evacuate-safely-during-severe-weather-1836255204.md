@@ -1,6 +1,6 @@
 # 恶劣天气下如何安全撤离
 
-> 原文:[https://life hacker . com/how-to-疏散-安全-在恶劣天气期间-1836255204](https://lifehacker.com/how-to-evacuate-safely-during-severe-weather-1836255204)
+> 原文：<https://lifehacker.com/how-to-evacuate-safely-during-severe-weather-1836255204>
 
 墨西哥湾沿岸正在为明天可能的热带风暴巴里做准备，它可能在周六变成飓风。路易斯安那州已经宣布进入紧急状态，这种天气是你不想惹的。如果有必要的话，现在是时候计划如何、何时以及向哪里撤离了。
 

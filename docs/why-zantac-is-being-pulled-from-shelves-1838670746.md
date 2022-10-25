@@ -1,6 +1,6 @@
 # 为什么 Zantac 被下架了
 
-> 原文:[https://life hacker . com/why-zantac-is-been-draw-from-shelf-1838670746](https://lifehacker.com/why-zantac-is-being-pulled-from-shelves-1838670746)
+> 原文：<https://lifehacker.com/why-zantac-is-being-pulled-from-shelves-1838670746>
 
 CVS 最近宣布将胃灼热药物 Zantac 与其商店品牌仿制药一同下架。生产雷尼替丁的公司之一，包括 Rite-Aid、沃尔玛和沃尔格林的商店品牌，是 [召回其版本](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/apotex-corp-issues-voluntary-nationwide-recall-ranitidine-tablets-75mg-and-150mg-all-pack-sizes-and) 。但是美国食品和药物管理局说，这种药物仍然是安全的，现在——这是怎么回事？
 

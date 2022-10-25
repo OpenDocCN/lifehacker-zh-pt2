@@ -1,6 +1,6 @@
 # 假肉汉堡终于和牛肉一样好了吗？
 
-> 原文:[https://life hacker . com/are-fake-meat-burgers-finally-as-good as-beef-1836815995](https://lifehacker.com/are-fake-meat-burgers-finally-as-good-as-beef-1836815995)
+> 原文：<https://lifehacker.com/are-fake-meat-burgers-finally-as-good-as-beef-1836815995>
 
 在过去的几年里，不起眼的素食汉堡有了长足的进步。
 

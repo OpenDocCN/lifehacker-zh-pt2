@@ -1,6 +1,6 @@
 # 你可能错过的 iOS 键盘功能
 
-> 原文:[https://life hacker . com/the-IOs-keyboard-features-you-may-has-miss-1842759395](https://lifehacker.com/the-ios-keyboard-features-you-might-have-missed-1842759395)
+> 原文：<https://lifehacker.com/the-ios-keyboard-features-you-might-have-missed-1842759395>
 
 iOS 13 中的默认 iOS 键盘充满了你可能会错过 T2 d 的有用功能。在上面的视频中，我分享了我一直使用的三个功能。
 

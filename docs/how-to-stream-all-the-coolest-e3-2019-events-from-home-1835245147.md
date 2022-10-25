@@ -1,6 +1,6 @@
 # 如何在家直播所有最酷的 E3 2019 活动
 
-> 原文:[https://life hacker . com/how-to-stream-all-the-cool-E3-2019-events-from-home-1835245147](https://lifehacker.com/how-to-stream-all-the-coolest-e3-2019-events-from-home-1835245147)
+> 原文：<https://lifehacker.com/how-to-stream-all-the-coolest-e3-2019-events-from-home-1835245147>
 
 如果你喜欢电子游戏，下周将会非常令人兴奋。今年的电子娱乐博览会，通常被称为 E3，从 6 月 11 日星期二到 6 月 13 日星期四返回洛杉矶。在展会期间，以及之前的新闻发布会上，游戏玩家将首次看到今年年底、明年甚至更久以后推出的大型游戏。
 

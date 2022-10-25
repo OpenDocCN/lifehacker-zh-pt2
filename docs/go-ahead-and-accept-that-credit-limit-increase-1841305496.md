@@ -1,6 +1,6 @@
 # 继续并接受信用额度增加
 
-> 原文:[https://life hacker . com/go-ahead-and-accept-the-credit-limit-increase-1841305496](https://lifehacker.com/go-ahead-and-accept-that-credit-limit-increase-1841305496)
+> 原文：<https://lifehacker.com/go-ahead-and-accept-that-credit-limit-increase-1841305496>
 
 下一次你的信用卡公司提供无附加条件的信用额度增加时，就答应吧。为什么？因为这是提高你信用评分的最快最简单的方法之一。你只需要确保你不会仅仅因为信用额度增加了就真的去使用*了*。
 

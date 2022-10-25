@@ -1,6 +1,6 @@
 # 当你的孩子心情不好时，如何倾听
 
-> 原文:[https://life hacker . com/how-to-listen-when your ' s kid-a-day-1837577345](https://lifehacker.com/how-to-listen-when-your-kid-has-a-bad-day-1837577345)
+> 原文：<https://lifehacker.com/how-to-listen-when-your-kid-has-a-bad-day-1837577345>
 
 我们的孩子正在——或者很快就会——回到学校，这意味着下午晚些时候的暴躁即将到来。他们(大部分)一整天都在为他们的老师保持一致，我们是他们安全的地方，所以一旦他们看到我们，他们可能会觉得必须释放一天的沮丧。
 

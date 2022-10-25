@@ -1,6 +1,6 @@
 # 小心这个礼品卡骗局
 
-> 原文:[https://life hacker . com/watch-out-for-this-gift-card-scam-1840458432](https://lifehacker.com/watch-out-for-this-gift-card-scam-1840458432)
+> 原文：<https://lifehacker.com/watch-out-for-this-gift-card-scam-1840458432>
 
 如果你还在寻找礼物，这就是为什么你可能要避免那些杂货店礼品卡，因为它们在你绝望的时候很诱人。科罗拉多泉报 的 [结束时，几名消费者报告说他们从沃尔玛和当地杂货店购买了礼品卡——却发现在离开商店后不久余额就被清空了。](https://gazette.com/news/voice-of-the-consumer-gift-cards-can-be-drained-in/article_08a241f2-1dfe-11ea-b593-e3ae61f6c0d2.html) 
 

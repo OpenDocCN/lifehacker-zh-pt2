@@ -1,6 +1,6 @@
 # 什么时候续费高的信用卡
 
-> 原文:[https://life hacker . com/when-to-renew-a-a-card-a-high-feed-1830226246](https://lifehacker.com/when-to-renew-a-credit-card-with-a-high-fee-1830226246)
+> 原文：<https://lifehacker.com/when-to-renew-a-credit-card-with-a-high-fee-1830226246>
 
 在某些情况下，高收费的优质信用卡给持卡人带来了很多好处，包括休息室使用权、旅行津贴以及机票和酒店优惠。但是你怎么知道 500 多美元的年费值不值呢？
 

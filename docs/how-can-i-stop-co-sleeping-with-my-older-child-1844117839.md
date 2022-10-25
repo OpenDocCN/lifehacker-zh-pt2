@@ -1,6 +1,6 @@
 # how can i stop co sleeping with my older child 1844117839
 
-> 原文:[https://life hacker . com/how-can-stop-co-sleeping-with-my-large-child-1844117839](https://lifehacker.com/how-can-i-stop-co-sleeping-with-my-older-child-1844117839)
+> 原文：<https://lifehacker.com/how-can-i-stop-co-sleeping-with-my-older-child-1844117839>
 
 睡眠问题在为人父母的某个阶段是很常见的——你的，他们的，或者最常见的，你们两个的。猜猜什么没用？这个疫情，*非常感谢*。孩子们比以往更加封闭。他们正在处理被压抑的精力和奇怪的新日程，外加一些额外的焦虑。如果孩子们发现现在很难在自己的床上入睡，这是可以理解的。尽管如此，这并不意味着父母想无限期地分享他们的床。在 e 日，父母给我们写了:
 

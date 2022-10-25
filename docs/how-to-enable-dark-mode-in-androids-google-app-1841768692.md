@@ -1,6 +1,6 @@
 # 如何在安卓的谷歌应用中启用黑暗模式
 
-> 原文:[https://life hacker . com/how-to-enable-dark-mode-in-androids-Google-app-1841768692](https://lifehacker.com/how-to-enable-dark-mode-in-androids-google-app-1841768692)
+> 原文：<https://lifehacker.com/how-to-enable-dark-mode-in-androids-google-app-1841768692>
 
 很快，每个应用程序都将有一个黑暗的模式，因为它看起来比明亮的白色背景更酷。谷歌对其 Android 官方应用程序的最新调整应该会给所有 Android 智能手机上的应用程序带来黑暗模式。但由于我们讨论的是 Android，而且是谷歌的另一次展示，你的结果可能会有所不同。
 

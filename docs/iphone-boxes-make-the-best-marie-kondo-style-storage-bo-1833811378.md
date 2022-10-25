@@ -1,6 +1,6 @@
 # iPhone 盒子是最好的玛丽·近藤风格的收纳盒
 
-> 原文:[https://life hacker . com/iphone-boxes-make-the-best-Marie-kondo-style-storage-bo-1833811378](https://lifehacker.com/iphone-boxes-make-the-best-marie-kondo-style-storage-bo-1833811378)
+> 原文：<https://lifehacker.com/iphone-boxes-make-the-best-marie-kondo-style-storage-bo-1833811378>
 
 今年早些时候，我看了整整一季《玛丽·近藤 和其他爱乱七八糟的美国人一起打扫卫生》之后，我有了一个充满激情的 外卖 : 盒子。我需要那些储物盒。
 

@@ -1,6 +1,6 @@
 # 如何加快或减慢任何 HTML5 视频
 
-> 原文:[https://life hacker . com/how-to-speed-or-slow-down-any-html 5-video-1835004931](https://lifehacker.com/how-to-speed-up-or-slow-down-any-html5-video-1835004931)
+> 原文：<https://lifehacker.com/how-to-speed-up-or-slow-down-any-html5-video-1835004931>
 
 我从来不知道为什么人们喜欢看加速视频，直到我得到一个有趣的问题。然后我试了一下，现在完全理解了；你在质量上失去的(和在花栗鼠的声音中遭受的)，你在时间上得到——甜蜜的，甜蜜的时间。
 

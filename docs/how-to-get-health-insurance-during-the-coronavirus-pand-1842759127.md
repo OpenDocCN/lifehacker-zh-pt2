@@ -1,6 +1,6 @@
 # 冠状病毒疫情期间如何获得健康保险
 
-> 原文:[https://life hacker . com/how-to-get-health-insurance-in-the-coronavirus-pand-1842759127](https://lifehacker.com/how-to-get-health-insurance-during-the-coronavirus-pand-1842759127)
+> 原文：<https://lifehacker.com/how-to-get-health-insurance-during-the-coronavirus-pand-1842759127>
 
 最近的世界大事可能会让你认为现在不是买健康保险的好时机。虽然我们无法判断你个人对保险的需求，但我们可以说，总的来说，你应该考虑购买保险。
 

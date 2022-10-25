@@ -1,6 +1,6 @@
 # 把饼干倒着吃
 
-> 原文:[https://life hacker . com/eat-your-cracker-倒立-1844984922](https://lifehacker.com/eat-your-crackers-upside-down-1844984922)
+> 原文：<https://lifehacker.com/eat-your-crackers-upside-down-1844984922>
 
 我认为自己是一个“注意饮食者”例如:吃多力多滋时，我总是检查薯片的每一面，以确保调料多的一面朝下，朝向我的舌头。这就产生了一种更美味、更令人满意的吃玉米饼的体验。同样的原理也适用于饼干。
 

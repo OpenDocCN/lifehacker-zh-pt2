@@ -1,6 +1,6 @@
 # 用适当的赌注为你的超级碗派对增添趣味
 
-> 原文:[https://life hacker . com/spice-up-your ' s super bowl-party with prop-bets-1832305336](https://lifehacker.com/spice-up-your-super-bowl-party-with-prop-bets-1832305336)
+> 原文：<https://lifehacker.com/spice-up-your-super-bowl-party-with-prop-bets-1832305336>
 
 无可否认，足球不是我的运动。我喜欢篮球和曲棍球，可以热情地支持一场精彩的棒球比赛，但足球从来没有真正为我做过。然而，我确实喜欢一个好的派对，尤其是鼓励人们做出疯狂食品的派对。因此，我发现自己每年都参加超级碗派对，有时甚至是作为主持人。我是“为广告而来”(还有啤酒和食物，如果我们诚实的话)的定义。
 

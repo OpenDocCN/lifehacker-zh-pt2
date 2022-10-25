@@ -1,6 +1,6 @@
 # 如何从航空公司获得退款
 
-> 原文:[https://life hacker . com/how-to-get-what-you-want-from-airlines-1836319654](https://lifehacker.com/how-to-get-what-you-want-from-airlines-1836319654)
+> 原文：<https://lifehacker.com/how-to-get-what-you-want-from-airlines-1836319654>
 
 每个人都至少有一次不太好的飞行经历。你在停机坪上坐了几个小时才回到航站楼。你的航班突然莫名其妙地取消了。你的飞机又延迟了一个小时，每小时一个小时，这导致了登机口和最近的哈德逊新闻的骚乱。
 

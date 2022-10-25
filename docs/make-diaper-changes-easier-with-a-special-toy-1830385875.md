@@ -1,6 +1,6 @@
 # 用特殊的玩具让换尿布变得更容易
 
-> 原文:[https://life hacker . com/make-diaper-changes-easy-with-a-special-toy-1830385875](https://lifehacker.com/make-diaper-changes-easier-with-a-special-toy-1830385875)
+> 原文：<https://lifehacker.com/make-diaper-changes-easier-with-a-special-toy-1830385875>
 
 我的儿子刚刚庆祝了他的第一个生日，从他出生的第二天起，他就是一个真正的活跃分子。(医院在他出生时的阿普加分数旁边写着:“神经过敏。”)
 

@@ -1,6 +1,6 @@
 # 新款 Mac Pro 值苹果税吗？
 
-> 原文:[https://gizmodo . com/is-the-new-MAC-pro-worth-the-apple-tax-1835216170](https://gizmodo.com/is-the-new-mac-pro-worth-the-apple-tax-1835216170)
+> 原文：<https://gizmodo.com/is-the-new-mac-pro-worth-the-apple-tax-1835216170>
 
 Mac Pro 是一个声明。它的透气外壳让人想起厨房工具，是对 Power Mac G5 的致敬和进步，粉丝们亲切地将它比作奶酪刨丝器。这是一款配备了新一代至强处理器的苹果设备，似乎终于按时推出，并与其竞争对手步调一致。尽管如此，6000 美元基本款配备的微不足道的 GPU 和 SSD 似乎与其行业领先的设计不协调。当我走过苹果公司为展示这款设备而设立的展厅时，我不停地问自己，它值不值这么高的苹果产品价格？
 

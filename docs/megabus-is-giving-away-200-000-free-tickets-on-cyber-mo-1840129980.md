@@ -1,6 +1,6 @@
 # Megabus 在网络星期一发放了 20 万张免费票
 
-> 原文:[https://life hacker . com/megabus-is-giving-away-200-000-free-tickets-on-cyber-mo-1840129980](https://lifehacker.com/megabus-is-giving-away-200-000-free-tickets-on-cyber-mo-1840129980)
+> 原文：<https://lifehacker.com/megabus-is-giving-away-200-000-free-tickets-on-cyber-mo-1840129980>
 
 如果你一直在考虑明年乘公共汽车旅行，Megabus 可能会免费给你一张票。
 

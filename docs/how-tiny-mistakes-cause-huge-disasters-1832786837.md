@@ -1,6 +1,6 @@
 # 微小的错误如何造成巨大的灾难
 
-> 原文:[https://life hacker . com/how-微小的错误-导致巨大的灾难-1832786837](https://lifehacker.com/how-tiny-mistakes-cause-huge-disasters-1832786837)
+> 原文：<https://lifehacker.com/how-tiny-mistakes-cause-huge-disasters-1832786837>
 
 “如果我在一所大学设置课程，”工程师丰·图灵 说，“我会开一整学期的挑战者号灾难课，并让它成为任何远程 STEM 专业的必修课。”Foone 说，因为这场灾难远没有人们想象的那么随机或简单。在 102 条推文中， [，你可以在这里以散文形式阅读](https://threadreaderapp.com/thread/1095550629919961088.html) ，Foone 解释了挑战者号灾难、2003 年哥伦比亚号灾难、泰坦尼克号沉没以及上次你因焦虑而融化背后的真正原因。
 

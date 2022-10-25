@@ -1,6 +1,6 @@
 # 使用这个应用程序找到购买杂货最便宜的地方
 
-> 原文:[https://life hacker . com/find-the-chief-place-to-buy-your-stacks-this-1831717105](https://lifehacker.com/find-the-cheapest-place-to-buy-your-groceries-with-this-1831717105)
+> 原文：<https://lifehacker.com/find-the-cheapest-place-to-buy-your-groceries-with-this-1831717105>
 
 当你试图在食品杂货上省钱时，你在哪里购物有时比你买什么更重要。
 

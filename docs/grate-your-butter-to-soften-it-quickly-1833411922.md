@@ -1,6 +1,6 @@
 # 磨碎你的黄油，让它快速变软
 
-> 原文:[https://life hacker . com/grate-your-butter-to-软化水-1833411922](https://lifehacker.com/grate-your-butter-to-soften-it-quickly-1833411922)
+> 原文：<https://lifehacker.com/grate-your-butter-to-soften-it-quickly-1833411922>
 
 “我在厨房里需要一些新的捷径，”我最近告诉我的婆婆。“这些天我时间很紧，我必须加快步伐。
 

@@ -1,6 +1,6 @@
 # 2019 年最佳健身贴
 
-> 原文:[https://life hacker . com/our-best-fitness-posts-of-2019-1840611982](https://lifehacker.com/our-best-fitness-posts-of-2019-1840611982)
+> 原文：<https://lifehacker.com/our-best-fitness-posts-of-2019-1840611982>
 
 今年我们在健身方面经历了很多，讨论了健身房礼仪、身体形象、远大目标等等。以下是我们年度最佳健身贴。
 

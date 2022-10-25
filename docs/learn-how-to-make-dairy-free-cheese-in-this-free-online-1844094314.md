@@ -1,6 +1,6 @@
 # 了解如何在这个免费的在线课程不含乳制品的奶酪
 
-> 原文:[https://life hacker . com/learn-how-to-make-dairy-free-cheese-in-this-free-online-1844094314](https://lifehacker.com/learn-how-to-make-dairy-free-cheese-in-this-free-online-1844094314)
+> 原文：<https://lifehacker.com/learn-how-to-make-dairy-free-cheese-in-this-free-online-1844094314>
 
 喜欢奶酪，但不能处理乳制品？你的身体背叛了你吗？虽然有很多人会忍受乳糖不耐症引起的疼痛来吃奶酪，但还有其他选择可以考虑——比如不含乳制品的奶酪。如果这听起来像是你有兴趣亲手制作的东西，你很幸运:6 月 20 日星期六，有一个关于制作无奶奶酪 的免费在线课程。
 

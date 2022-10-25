@@ -1,6 +1,6 @@
 # 用几乎所有的果汁制作一种石榴糖浆
 
-> 原文:[https://life hacker . com/make-a-grenadine-like-thread-from the almost-any-fruit-juice-1844607653](https://lifehacker.com/make-a-grenadine-like-syrup-from-almost-any-fruit-juice-1844607653)
+> 原文：<https://lifehacker.com/make-a-grenadine-like-syrup-from-almost-any-fruit-juice-1844607653>
 
 作为一个孩子，石榴糖浆似乎是最复杂的，主要是因为我不知道它是什么。我所知道的是它在雪莉·坦普尔，它有一种吸引人的、感性的勃艮第色调，并且它可以在小瓶装的苏打水和玛格丽塔鸡尾酒旁边找到。如果我知道这只是石榴味的糖浆，我仍然会印象深刻，因为我还是个孩子，只读过希腊神话中的石榴。
 

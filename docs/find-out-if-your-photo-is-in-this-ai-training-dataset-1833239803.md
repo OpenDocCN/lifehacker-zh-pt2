@@ -1,6 +1,6 @@
 # 找出你的照片是否在这个人工智能训练数据集中
 
-> 原文:[https://life hacker . com/find-out-if-your-photo-is-in-this-ai-training-dataset-1833239803](https://lifehacker.com/find-out-if-your-photo-is-in-this-ai-training-dataset-1833239803)
+> 原文：<https://lifehacker.com/find-out-if-your-photo-is-in-this-ai-training-dataset-1833239803>
 
 面部识别系统无处不在，从试图发现罪犯的安全摄像头到 Snapchat 找到你的脸并把兔子耳朵放在上面的方式。计算机需要大量数据才能学习如何识别人脸，其中一些数据来自 Flickr。
 

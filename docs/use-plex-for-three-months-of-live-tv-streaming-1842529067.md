@@ -1,6 +1,6 @@
 # 使用 Plex 进行三个月的电视直播
 
-> 原文:[https://life hacker . com/use-plex-for-three-months-live-TV-streaming-1842529067](https://lifehacker.com/use-plex-for-three-months-of-live-tv-streaming-1842529067)
+> 原文：<https://lifehacker.com/use-plex-for-three-months-of-live-tv-streaming-1842529067>
 
 现在，所有 Plex 用户都有资格在等待新冠肺炎 的同时，获得 [三个月的免费电视直播。对于免费用户来说，这是一个非常甜蜜的升级，因为直播电视通常被锁定在 premium Plex Pass 后面。但是有一些问题。](https://www.plex.tv/blog/okay-so-here-we-are/) 
 

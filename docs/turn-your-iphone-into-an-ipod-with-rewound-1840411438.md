@@ -1,6 +1,6 @@
 # 把你的 iPhone 变成一个带倒带的 iPod 更新]
 
-> 原文:[https://life hacker . com/turn-your-iphone to-a-ipod with-rewound-1840411438](https://lifehacker.com/turn-your-iphone-into-an-ipod-with-rewound-1840411438)
+> 原文：<https://lifehacker.com/turn-your-iphone-into-an-ipod-with-rewound-1840411438>
 
 **更新时间:2019 年 12 月 16 日上午 10 点 50 分美国东部时间:**在 Rewound 应用成为风靡一时之后， [苹果将其从 iOS 应用商店](https://medium.com/@RewoundApp/apple-killed-rewound-http-rewound-fund-will-bring-it-back-c39a89aeceac) 下架。该应用程序的创建者正在引导粉丝前往 [Rewound.app](http://rewound.app/) 进行未来更新，但截至发稿时，该网站显然已经超载。
 

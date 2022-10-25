@@ -1,6 +1,6 @@
 # 如何使用社交媒体注册投票
 
-> 原文:[https://life hacker . com/how-to-use-social-media-to-register-to-vote-1845067258](https://lifehacker.com/how-to-use-social-media-to-register-to-vote-1845067258)
+> 原文：<https://lifehacker.com/how-to-use-social-media-to-register-to-vote-1845067258>
 
 2020 年总统选举 [是 11 月 3 日](https://lifehacker.com/everything-you-need-to-know-to-vote-in-2020-1844873184) ，这意味着需要完成或更新注册的选民时间紧迫。好消息是有很多服务可以让你注册在线投票。(你真的没有借口。)
 

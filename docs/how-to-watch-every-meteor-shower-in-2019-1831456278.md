@@ -1,6 +1,6 @@
 # 如何观看 2019 年的每一场流星雨
 
-> 原文:[https://life hacker . com/how-to-watch-every-meteor-shower-in-2019-1831456278](https://lifehacker.com/how-to-watch-every-meteor-shower-in-2019-1831456278)
+> 原文：<https://lifehacker.com/how-to-watch-every-meteor-shower-in-2019-1831456278>
 
 如果 12 月的多次流星雨让你渴望更多，你很幸运！今晚是象限流星雨的高峰期，我们已经将你所有主要流星雨的列表放在了你 2019 年的日历上。
 

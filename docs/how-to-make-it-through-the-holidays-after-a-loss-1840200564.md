@@ -1,6 +1,6 @@
 # 损失之后如何度过假期
 
-> 原文:[https://life hacker . com/how-to-make-through-the-holidays-after-a-loss-1840200564](https://lifehacker.com/how-to-make-it-through-the-holidays-after-a-loss-1840200564)
+> 原文：<https://lifehacker.com/how-to-make-it-through-the-holidays-after-a-loss-1840200564>
 
 当你在处理一个重大损失时，它往往会影响到你生活的大部分方面，不管你是否意识到这一点。当然，你会在他们去世后第一次去他们家时感到悲伤，或者当你对某事感到兴奋并拿起电话打给他们时，却想起他们不再接电话了——但其他时候，悲伤可能是偷偷摸摸的。
 

@@ -1,6 +1,6 @@
 # 用这个免费的 Windows 应用程序替换文件资源管理器
 
-> 原文:[https://life hacker . com/replace-file-explorer-with-this-free-windows-app-1844168762](https://lifehacker.com/replace-file-explorer-with-this-free-windows-app-1844168762)
+> 原文：<https://lifehacker.com/replace-file-explorer-with-this-free-windows-app-1844168762>
 
 这些年来，Windows 的文件资源管理器得到了发展和扩展，但核心功能基本保持不变。它还是和以前一样又笨又丑。
 

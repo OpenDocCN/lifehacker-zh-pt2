@@ -1,6 +1,6 @@
 # 如何带着宠物出国旅游
 
-> 原文:[https://life hacker . com/how-to-travel-your-pet-1836388871](https://lifehacker.com/how-to-travel-abroad-with-your-pet-1836388871)
+> 原文：<https://lifehacker.com/how-to-travel-abroad-with-your-pet-1836388871>
 
 旅行是有趣和令人兴奋的，但是和我 40 磅重的澳洲混血一起旅行不是我的好时光。
 

@@ -1,6 +1,6 @@
 # 在市场下跌时，你应该转换为罗斯吗？
 
-> 原文:[https://life hacker . com/should-you-convert-to-a-Roth-due-a-down-market-1831872208](https://lifehacker.com/should-you-convert-to-a-roth-during-a-down-market-1831872208)
+> 原文：<https://lifehacker.com/should-you-convert-to-a-roth-during-a-down-market-1831872208>
 
 如果你是高收入者或投资于传统的个人退休账户，你可能会计划将你的 [账户转换为罗斯](https://lifehacker.com/why-you-need-a-roth-ira-1823805955) 账户，这样可以节省一些税收，也便于你根据自己的情况提取存款。然而，何时转换是一个有一百万种不同考虑的问题。当然，没有完美的时机，但金融专家认为下跌的市场可能很有吸引力。
 

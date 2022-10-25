@@ -1,6 +1,6 @@
 # 如何直播超级碗
 
-> 原文:[https://life hacker . com/how-to-live stream-the-super-bowl-1832250245](https://lifehacker.com/how-to-livestream-the-super-bowl-1832250245)
+> 原文：<https://lifehacker.com/how-to-livestream-the-super-bowl-1832250245>
 
 周日，洛杉矶公羊队将在 LIII 超级碗比赛中迎战新英格兰爱国者队。这场比赛标志着公羊队 17 年来首次进入超级碗。当然，爱国者队似乎经常参加大型比赛。他们去年输给了费城老鹰队。
 

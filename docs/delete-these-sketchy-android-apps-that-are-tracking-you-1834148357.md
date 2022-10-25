@@ -1,6 +1,6 @@
 # 删除这些未经允许跟踪你的粗略的安卓应用程序
 
-> 原文:[https://life hacker . com/delete-these-sketchy-Android-apps-is-tracking-you-1834148357](https://lifehacker.com/delete-these-sketchy-android-apps-that-are-tracking-you-1834148357)
+> 原文：<https://lifehacker.com/delete-these-sketchy-android-apps-that-are-tracking-you-1834148357>
 
 最近 Buzzfeed 的一篇文章 指出，谷歌 Play 商店上的几个流行的 Android 应用程序一直在收集和存储敏感的用户数据，而没有加密或许可。
 

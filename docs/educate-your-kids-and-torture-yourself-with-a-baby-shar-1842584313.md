@@ -1,6 +1,6 @@
 # 用小鲨鱼洗手视频教育你的孩子和折磨你自己
 
-> 原文:[https://life hacker . com/educate-your-kids-and-cross-your-a baby-shar-1842584313](https://lifehacker.com/educate-your-kids-and-torture-yourself-with-a-baby-shar-1842584313)
+> 原文：<https://lifehacker.com/educate-your-kids-and-torture-yourself-with-a-baby-shar-1842584313>
 
 我先说:对不起。如果你是一个小孩的父母，而你现在被困在家里，你最不需要的就是小鲨鱼开始在你的脑海中重复播放。我知道仅仅看到这个画面就足以让我按下精神播放键。*但是*，如果你正在努力让你的小孩马上洗手，[pink fong](https://www.youtube.com/watch?time_continue=106&v=L89nN03pBzI&feature=emb_logo)的这个新视频可能会有所帮助。
 

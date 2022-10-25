@@ -1,6 +1,6 @@
 # 以下是您可以用来流化 Disney+的所有设备
 
-> 原文:[https://life hacker . com/heres-every-device-you-use-to-stream-Disney-1837378152](https://lifehacker.com/heres-every-device-you-can-use-to-stream-disney-1837378152)
+> 原文：<https://lifehacker.com/heres-every-device-you-can-use-to-stream-disney-1837378152>
 
 迪士尼+快到了。我们知道许多关于迪士尼独立流媒体服务的重要细节——包括 [价格](https://lifehacker.com/how-disney-compares-to-netflix-hulu-and-amazon-prime-1837042032) 和 [你将能够观看的内容](https://lifehacker.com/these-movies-and-shows-are-arriving-on-disney-plus-on-l-1836660561)——谜题的最后一块刚刚揭晓:所有你可以用来在发布时播放迪士尼+的设备。
 

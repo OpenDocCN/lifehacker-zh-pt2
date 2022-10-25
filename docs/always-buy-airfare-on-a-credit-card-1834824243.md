@@ -1,6 +1,6 @@
 # 总是用信用卡买机票
 
-> 原文:[https://life hacker . com/always-buy-on-a-credit-card-1834824243](https://lifehacker.com/always-buy-airfare-on-a-credit-card-1834824243)
+> 原文：<https://lifehacker.com/always-buy-airfare-on-a-credit-card-1834824243>
 
 为了安全起见，我们当中厌恶负债的人可能想把所有东西都放在借记卡上——甚至是像机票这样的大额旅游购物。
 

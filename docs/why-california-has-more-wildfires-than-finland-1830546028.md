@@ -1,6 +1,6 @@
 # 为什么加州的野火比芬兰多
 
-> 原文:[https://life hacker . com/why-California-has-more-than-Finland-1830546028](https://lifehacker.com/why-california-has-more-wildfires-than-finland-1830546028)
+> 原文：<https://lifehacker.com/why-california-has-more-wildfires-than-finland-1830546028>
 
 我们的总统 [断章取义芬兰总统](https://www.nytimes.com/2018/11/18/world/europe/finland-california-wildfires-trump-raking.html?emc=edit_nn_20181119&amp;nl=morning-briefing&amp;nlid=4498585820181119&amp;te=1) 说的关于森林管理的话，认为雪国比加州的野火少，因为他们 [在荒野中耙树叶](https://gizmodo.com/finns-mock-president-trump-by-posting-forest-raking-pho-1830532120) 。令人震惊的是，这不是真的。
 

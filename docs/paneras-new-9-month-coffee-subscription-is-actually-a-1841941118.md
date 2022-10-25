@@ -1,6 +1,6 @@
 # Panera 新推出的每月 9 美元的咖啡订阅实际上是一笔不错的交易
 
-> 原文:[https://life hacker . com/paneras-new-9-month-coffee-subscription-is-a-actually-a-1841941118](https://lifehacker.com/paneras-new-9-month-coffee-subscription-is-actually-a-1841941118)
+> 原文：<https://lifehacker.com/paneras-new-9-month-coffee-subscription-is-actually-a-1841941118>
 
 如果你经常去同一家咖啡店喝一杯，而那家咖啡店恰好是 Panera，你可能需要订阅。
 

@@ -1,6 +1,6 @@
 # are dropboxs paid plans worth it 1837403497
 
-> 原文:[https://life hacker . com/are-Dropbox s-payed-plans-worth-it-1837403497](https://lifehacker.com/are-dropboxs-paid-plans-worth-it-1837403497)
+> 原文：<https://lifehacker.com/are-dropboxs-paid-plans-worth-it-1837403497>
 
 应该为 Dropbox 付费还是使用其免费版本？如果流行的云存储服务的免费和付费版本之间的存储差异还不能让你下定决心，那么有很多有用的功能——有些是最近在 6 月添加的——可能会达成协议。
 

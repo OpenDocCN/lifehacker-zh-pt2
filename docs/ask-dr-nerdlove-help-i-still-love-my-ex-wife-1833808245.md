@@ -1,6 +1,6 @@
 # 求 NerdLove 博士:救命，我还爱着前妻！
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-help-I-still-love-my-前妻-1833808245](https://kotaku.com/ask-dr-nerdlove-help-i-still-love-my-ex-wife-1833808245)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-help-i-still-love-my-ex-wife-1833808245>
 
 大家好，欢迎来到 [问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是唯一一个完全以*堡垒之夜*为轴心的约会建议专栏。
 

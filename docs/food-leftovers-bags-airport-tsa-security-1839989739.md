@@ -1,6 +1,6 @@
 # 哪些剩菜可以带上飞机？
 
-> 原文:[https://the take out . com/food-remains-bags-airport-TSA-security-1839989739](https://thetakeout.com/food-leftovers-bags-airport-tsa-security-1839989739)
+> 原文：<https://thetakeout.com/food-leftovers-bags-airport-tsa-security-1839989739>
 
 在每一顿假日餐后，这是不可避免的:一旦盘子被清理干净，盘子被叠好，洗碗机被装上，出来的是 Ziploc 袋，特百惠塑料制品，以及用于剩菜的庄严分割的塑料包装。每个人都必须参加这个餐后仪式，即使只是象征性的一勺土豆泥。这是对主人的一种礼貌:没有人能独自吃完所有的剩菜。
 

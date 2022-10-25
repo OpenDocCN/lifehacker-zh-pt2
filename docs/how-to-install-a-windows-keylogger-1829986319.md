@@ -1,6 +1,6 @@
 # 如何安装 Windows 键盘记录程序
 
-> 原文:[https://life hacker . com/how-to-install-a-windows-key logger-1829986319](https://lifehacker.com/how-to-install-a-windows-keylogger-1829986319)
+> 原文：<https://lifehacker.com/how-to-install-a-windows-keylogger-1829986319>
 
 我不会问你为什么需要一个键盘记录器。只要知道在别人的系统上安装一个是让自己被甩、被解雇或者被 [起诉](https://blogs.findlaw.com/blotter/2017/07/can-i-be-arrested-for-installing-keylogging-software.html) 的好方法，这取决于你的情况。如果你下载的小工具*和*在你或你的目标不知情的情况下为你捕捉击键，这也是一个让某人陷入痛苦世界的好方法。
 

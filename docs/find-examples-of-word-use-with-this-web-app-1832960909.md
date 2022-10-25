@@ -1,6 +1,6 @@
 # 查找此 Web 应用程序的单词用法示例
 
-> 原文:[https://life hacker . com/find-examples-of-word-use-with-this-web-app-1832960909](https://lifehacker.com/find-examples-of-word-use-with-this-web-app-1832960909)
+> 原文：<https://lifehacker.com/find-examples-of-word-use-with-this-web-app-1832960909>
 
 当你恰当地使用词典时，它是一个有用的工具。如果你明白自己在做什么，一本词典会帮助你找到适合你特定球类运动的词汇。但是如果你连用同义词而不理解它们的意思，你会看起来很无语。你需要理解你使用的每一个字，否则人们会嘲笑你的书法。
 

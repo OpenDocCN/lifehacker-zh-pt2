@@ -1,6 +1,6 @@
 # 如何在苹果商店以旧换新你的 MacBook
 
-> 原文:[https://life hacker . com/how-to-trade-in-your-a-apple-store-1844082200](https://lifehacker.com/how-to-trade-in-your-macbook-at-an-apple-store-1844082200)
+> 原文：<https://lifehacker.com/how-to-trade-in-your-macbook-at-an-apple-store-1844082200>
 
 苹果接受 MacBook 以旧换新已经很多年了，但只是通过邮件。该公司最终取消了这一限制，美国和加拿大的客户可以在当地的苹果商店交出他们的旧 MacBooks，以换取可以立即用于新购买的积分(或应用于苹果商店礼品卡)。
 

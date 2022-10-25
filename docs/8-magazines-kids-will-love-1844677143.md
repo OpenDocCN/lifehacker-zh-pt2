@@ -1,6 +1,6 @@
 # 孩子们会喜欢的 8 本杂志
 
-> 原文:[https://life hacker . com/8-magazines-kids-will-love-1844677143](https://lifehacker.com/8-magazines-kids-will-love-1844677143)
+> 原文：<https://lifehacker.com/8-magazines-kids-will-love-1844677143>
 
 当然，印刷正在慢慢消亡 ，但是印刷杂志仍然是一个人可以在邮箱中找到的最好的东西之一——对孩子来说尤其如此(对寻找任何途径来限制屏幕时间的父母来说也是如此)。
 

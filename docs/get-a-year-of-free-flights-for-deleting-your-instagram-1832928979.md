@@ -1,6 +1,6 @@
 # 删除 Instagram 照片可获得一年的免费飞行
 
-> 原文:[https://life hacker . com/get-a-year-of-free-flights-for-deleting-your-insta gram-1832928979](https://lifehacker.com/get-a-year-of-free-flights-for-deleting-your-instagram-1832928979)
+> 原文：<https://lifehacker.com/get-a-year-of-free-flights-for-deleting-your-instagram-1832928979>
 
 社交媒体最糟糕的部分是什么？看到朋友们在热带度假，在阳光下烘烤，而你却坐在一个小隔间里，在刺目的荧光灯下沸腾。
 

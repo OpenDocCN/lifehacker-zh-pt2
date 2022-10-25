@@ -1,6 +1,6 @@
 # 如何跟踪当地学校的新冠肺炎疫情
 
-> 原文:[https://life hacker . com/how-to-track-新冠肺炎疫情在当地学校-1844917259](https://lifehacker.com/how-to-track-covid-19-outbreaks-in-local-schools-1844917259)
+> 原文：<https://lifehacker.com/how-to-track-covid-19-outbreaks-in-local-schools-1844917259>
 
 学校正在开学，随着新冠肺炎疫情在学生和员工中被发现， [不可避免地至少一些学校会再次关闭](https://offspring.lifehacker.com/schools-will-close-again-1844604561) 。没有联邦系统来追踪学校疫情，但是 [国家教育协会一直在编辑新闻故事](https://app.smartsheet.com/b/publish?EQBCT=00a2d3fbe4184e75b06f392fc66dca13) 并按学区列出。
 

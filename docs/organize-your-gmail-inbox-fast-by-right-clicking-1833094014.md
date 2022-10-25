@@ -1,6 +1,6 @@
 # 右键单击，快速整理您的 Gmail 收件箱
 
-> 原文:[https://life hacker . com/organize-your-Gmail-inbox-fast-by-right-clicking-1833094014](https://lifehacker.com/organize-your-gmail-inbox-fast-by-right-clicking-1833094014)
+> 原文：<https://lifehacker.com/organize-your-gmail-inbox-fast-by-right-clicking-1833094014>
 
 我惭愧地低下了我的极客头，因为我以前从来没有尝试过，但是我前几天注意到，你可以在 Gmail 中右键单击，弹出一个有用的 Gmail 主题的上下文菜单。事实上，用这种方式组织你的邮件可能比选择一封邮件，然后使用 Gmail 用户界面顶部的小按钮来存档、移动或做其他事情更快。
 

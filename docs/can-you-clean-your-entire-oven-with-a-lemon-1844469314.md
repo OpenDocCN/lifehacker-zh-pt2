@@ -1,6 +1,6 @@
 # 你能用一个柠檬清洁整个烤箱吗？
 
-> 原文:[https://life hacker . com/can-you-clean-you-when-a lemon-1844469314](https://lifehacker.com/can-you-clean-your-entire-oven-with-a-lemon-1844469314)
+> 原文：<https://lifehacker.com/can-you-clean-your-entire-oven-with-a-lemon-1844469314>
 
 还记得检疫开始的时候，我们每天晚上都在烤面包，做晚餐的大烹饪项目吗？现在是夏天，太热了，不能让你的烤箱长时间开着。
 

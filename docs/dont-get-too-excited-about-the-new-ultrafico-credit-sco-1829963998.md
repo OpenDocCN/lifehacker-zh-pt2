@@ -1,6 +1,6 @@
 # 不要对新的 UltraFICO 信用评分过于兴奋
 
-> 原文:[https://life hacker . com/don ' t-get-too-excited-on-the-new-ultra Fico-credit-SCO-1829963998](https://lifehacker.com/dont-get-too-excited-about-the-new-ultrafico-credit-sco-1829963998)
+> 原文：<https://lifehacker.com/dont-get-too-excited-about-the-new-ultrafico-credit-sco-1829963998>
 
 该展会是一个 ac 公司(FICO)承诺，其新的 ultra FICO 评分将于 2019 年首次亮相，对一些没有长期信用历史的消费者来说是一个福音。虽然这可能是真的，但其他人应该对选择新的评分模式保持警惕。
 

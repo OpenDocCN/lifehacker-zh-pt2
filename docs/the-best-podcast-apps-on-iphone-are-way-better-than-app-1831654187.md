@@ -1,6 +1,6 @@
 # iPhone 上最好的播客应用比苹果的默认应用好得多
 
-> 原文:[https://life hacker . com/the-best-podcast-apps-on-iphone-1831654187](https://lifehacker.com/the-best-podcast-apps-on-iphone-are-way-better-than-app-1831654187)
+> 原文：<https://lifehacker.com/the-best-podcast-apps-on-iphone-are-way-better-than-app-1831654187>
 
 是时候从苹果播客应用升级了。
 

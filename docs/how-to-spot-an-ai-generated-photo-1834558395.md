@@ -1,6 +1,6 @@
 # 如何识别人工智能生成的照片
 
-> 原文:[https://life hacker . com/how-to-spot-an-ai-generated-photo-1834558395](https://lifehacker.com/how-to-spot-an-ai-generated-photo-1834558395)
+> 原文：<https://lifehacker.com/how-to-spot-an-ai-generated-photo-1834558395>
 
 我第一次向还是学龄前儿童的儿子解释说，卡通人物并不是真正的卡通人物，而是在电脑上绘制和制作的，这让他大吃一惊。看起来如此真实的东西怎么可能是假的？我想我现在知道他的感受了；最近，我对人工智能生成的照片了解得越多，我的大脑就越想反抗整个观念。
 

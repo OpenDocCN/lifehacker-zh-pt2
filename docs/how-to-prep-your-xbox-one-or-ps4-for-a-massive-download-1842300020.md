@@ -1,6 +1,6 @@
 # 如何准备 Xbox One 或 PS4 进行大规模下载
 
-> 原文:[https://kotaku . com/how-to-prep-your-Xbox-one-or-ps4-for-a-massive-download-1842300020](https://kotaku.com/how-to-prep-your-xbox-one-or-ps4-for-a-massive-download-1842300020)
+> 原文：<https://kotaku.com/how-to-prep-your-xbox-one-or-ps4-for-a-massive-download-1842300020>
 
 如果你今天玩视频游戏，你对大量下载并不陌生。*红色死亡救赎 2* 是 [90 GB](https://store.playstation.com/en-us/product/UP1004-CUSA03041_00-REDEMPTION000002) ，更新和附加组件之前。*光环:主总集*目前时钟为 [115 GB](https://www.microsoft.com/en-us/p/halo-the-master-chief-collection/9mt8ptgvhx2p?activetab=pivot:overviewtab) 。当然，*命运 2* 的基本游戏可能只有 31 GB，但是如果你想要所有的资料片——这是最大限度地玩游戏所必需的——你需要为射击和抢劫的 105 GB 腾出空间。
 

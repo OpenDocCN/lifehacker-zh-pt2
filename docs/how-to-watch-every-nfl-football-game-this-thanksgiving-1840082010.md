@@ -1,6 +1,6 @@
 # 如何在这个感恩节观看每一场 NFL 橄榄球赛
 
-> 原文:[https://life hacker . com/how-to-watch-every-NFL-football-game-this-thanksgiving-1840082010](https://lifehacker.com/how-to-watch-every-nfl-football-game-this-thanksgiving-1840082010)
+> 原文：<https://lifehacker.com/how-to-watch-every-nfl-football-game-this-thanksgiving-1840082010>
 
 如果你今年在奶奶家庆祝感恩节，那么你可能忽略了一个重要的细节:你将如何观看足球比赛。
 

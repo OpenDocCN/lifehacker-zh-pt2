@@ -1,6 +1,6 @@
 # 来自我们读者的最鼓舞人心的 2018 年健身成就
 
-> 原文:[https://life hacker . com/the-most-inspired-2018-fitness-achievements-from-ou-1831242234](https://lifehacker.com/the-most-inspiring-2018-fitness-accomplishments-from-ou-1831242234)
+> 原文：<https://lifehacker.com/the-most-inspiring-2018-fitness-accomplishments-from-ou-1831242234>
 
 我们问 [你在 2018 年](https://vitals.lifehacker.com/lets-talk-about-our-2018-fitness-accomplishments-1831037986) 完成了什么，我们印象深刻。
 

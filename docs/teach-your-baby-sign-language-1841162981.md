@@ -1,6 +1,6 @@
 # 教你的宝宝手语
 
-> 原文:[https://life hacker . com/teach-your-baby-sign-language-1841162981](https://lifehacker.com/teach-your-baby-sign-language-1841162981)
+> 原文：<https://lifehacker.com/teach-your-baby-sign-language-1841162981>
 
 你的宝宝会比他们实际上能够用语言表达更早地理解并想要与你交流想法和要求。婴儿和蹒跚学步的幼儿知道他们想要什么，但却无法有效地与你沟通，这种差距让每个人都感到沮丧。
 

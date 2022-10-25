@@ -1,6 +1,6 @@
 # 使用火狐的“选举捆绑”扩展来管理脸书的政治权力
 
-> 原文:[https://life hacker . com/use-Firefox s-election-bundle-extensions-to-manage-faceb-1829840432](https://lifehacker.com/use-firefoxs-election-bundle-extensions-to-manage-faceb-1829840432)
+> 原文：<https://lifehacker.com/use-firefoxs-election-bundle-extensions-to-manage-faceb-1829840432>
 
 这是脸书的政治季。距离中期选举只有几个星期了，你很有可能在 [【脸书](https://lifehacker.com/tag/facebook) 上看到基于你在平台和网络上的活动的定向广告。对于我们这些正在寻找方法 [限制脸书影响我们在网上的言行的能力](https://gizmodo.com/all-of-the-creepy-things-facebook-knows-about-you-1785510980#_ga=2.249171463.1845102908.1539609987-3846207152.1521480874) 的人来说，Mozilla 最近推出了一个 [【选举捆绑】](https://www.mozilla.org/en-US/firefox/election/) 对 [Firefox](https://lifehacker.com/tag/firefox#_ga=2.249171463.1845102908.1539609987-3846207152.1521480874) 的扩展，旨在遏制脸书影响你的政治决策的能力。
 

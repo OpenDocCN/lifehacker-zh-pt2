@@ -1,6 +1,6 @@
 # 如何退回那些不想要的礼物
 
-> 原文:[https://life hacker . com/how-to-return-that-wanted-gifts-1831321848](https://lifehacker.com/how-to-return-those-unwanted-gifts-1831321848)
+> 原文：<https://lifehacker.com/how-to-return-those-unwanted-gifts-1831321848>
 
 圣诞节可能结束了，但节日仪式还没有完成:你打开所有礼物的第二天，就是你必须把坏礼物退回去的第一天。让一年一度的礼物返还开始吧！
 

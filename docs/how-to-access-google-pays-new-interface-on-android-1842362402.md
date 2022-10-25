@@ -1,6 +1,6 @@
 # 如何在 Android 上访问 Google Pay 的新界面
 
-> 原文:[https://life hacker . com/how-to-access-Google-pays-new-interface-on-Android-1842362402](https://lifehacker.com/how-to-access-google-pays-new-interface-on-android-1842362402)
+> 原文：<https://lifehacker.com/how-to-access-google-pays-new-interface-on-android-1842362402>
 
 如今有许多理由使用数字支付选项而不是现金或信用卡，而 [谷歌最新的 Pixel 功能 Drop](https://lifehacker.com/heres-everything-new-in-googles-second-pixel-feature-dr-1842064316) 只是给了 Google Pay 用户一种更漂亮的方式让 Pixel 用户管理他们的钱。
 

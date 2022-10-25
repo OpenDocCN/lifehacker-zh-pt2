@@ -1,6 +1,6 @@
 # 6 个旅游节目帮助你保持旅行的热情
 
-> 原文:[https://life hacker . com/6-travel-shows-to-help-keep-your-wanderlust-alive-1844134233](https://lifehacker.com/6-travel-shows-to-help-keep-your-wanderlust-alive-1844134233)
+> 原文：<https://lifehacker.com/6-travel-shows-to-help-keep-your-wanderlust-alive-1844134233>
 
 你是一个探险旅行者、美食旅行者，还是一个无所事事的旅行者，想着“好吧，我再也不去旅行了”？由于旅行限制仍然存在，似乎需要几个月的时间旅行才能恢复到正常的日程安排。
 

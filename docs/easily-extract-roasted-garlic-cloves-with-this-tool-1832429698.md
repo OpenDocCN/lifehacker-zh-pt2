@@ -1,6 +1,6 @@
 # 用这个工具很容易提取烤蒜瓣
 
-> 原文:[https://life hacker . com/easy-extract-baked-蒜瓣-with this-tool-1832429698](https://lifehacker.com/easily-extract-roasted-garlic-cloves-with-this-tool-1832429698)
+> 原文：<https://lifehacker.com/easily-extract-roasted-garlic-cloves-with-this-tool-1832429698>
 
 我烤了很多大蒜。味道浓郁，略带焦糖味的丁香可以做成番茄酱，涂在牛排上，或者直接涂在一片上好的面包上。然而，要从他们的论文中提取出来有点麻烦。
 

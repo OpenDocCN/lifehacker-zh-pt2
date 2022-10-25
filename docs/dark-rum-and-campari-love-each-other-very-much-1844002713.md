@@ -1,6 +1,6 @@
 # 黑朗姆酒和金巴利非常相爱
 
-> 原文:[https://life hacker . com/dark-rum-and-campari-love-other-very-much-1844002713](https://lifehacker.com/dark-rum-and-campari-love-each-other-very-much-1844002713)
+> 原文：<https://lifehacker.com/dark-rum-and-campari-love-each-other-very-much-1844002713>
 
 几年前，我听到有人称圣杰曼为“调酒师的番茄酱”那真的让我难以忘怀。接骨木花利口酒在 2000 年代后期几乎无处不在，出现在各地时髦的鸡尾酒菜单上，几乎主宰了它所带来的每一种饮料。我从来没有疯狂地迷上圣杰曼，但我喜欢每个鸡尾酒饮用者都有一种烈酒或利口酒的想法，他们有点太依赖了，就像一种最喜欢的调味品。*我的*鸡尾酒番茄酱是金巴利——毕竟它是红色的！—我总是寻找任何借口来使用它。
 

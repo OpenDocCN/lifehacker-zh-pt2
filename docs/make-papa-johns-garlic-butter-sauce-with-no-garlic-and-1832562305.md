@@ -1,6 +1,6 @@
 # 做棒约翰的大蒜黄油酱，不加大蒜和黄油
 
-> 原文:[https://life hacker . com/make-papa-Johns-garlic-butter-sauce-with-no-garlic-and-1832562305](https://lifehacker.com/make-papa-johns-garlic-butter-sauce-with-no-garlic-and-1832562305)
+> 原文：<https://lifehacker.com/make-papa-johns-garlic-butter-sauce-with-no-garlic-and-1832562305>
 
 很难把一个有问题的人物和他的艺术分开。
 

@@ -1,6 +1,6 @@
 # 通过这个测验来看看你是否很富有
 
-> 原文:[https://life hacker . com/find-out-if-you-rich with this-quick-1836882987](https://lifehacker.com/find-out-if-youre-rich-with-this-quiz-1836882987)
+> 原文：<https://lifehacker.com/find-out-if-youre-rich-with-this-quiz-1836882987>
 
 “富有”对你意味着什么？(金融意义上的，不是那种“有钱有爱的”意义上的。《纽约时报》设计了一个测试来帮助你确定你自己对财富的定义是否意味着你很富有——正如他们所说，结果可能会让你大吃一惊。
 

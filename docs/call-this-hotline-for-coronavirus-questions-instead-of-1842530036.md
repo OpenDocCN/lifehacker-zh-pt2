@@ -1,6 +1,6 @@
 # 拨打冠状病毒问题热线，而不是 911
 
-> 原文:[https://life hacker . com/call-this-hotline-for-coronavirus-questions-而不是-1842530036](https://lifehacker.com/call-this-hotline-for-coronavirus-questions-instead-of-1842530036)
+> 原文：<https://lifehacker.com/call-this-hotline-for-coronavirus-questions-instead-of-1842530036>
 
 紧急调度员现在应接不暇。在冠状病毒患者和各种“常规”紧急情况之间，呼叫量正在打破记录。例如，纽约市报告说，一天之内接到了 6500 个医疗急救电话——这是自 2001 年以来的最高值。
 

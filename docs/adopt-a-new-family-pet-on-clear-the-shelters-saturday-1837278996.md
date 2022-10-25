@@ -1,6 +1,6 @@
 # 在周六的“清理庇护所”中领养一只新的家庭宠物
 
-> 原文:[https://life hacker . com/adopt-a-new-family-pet-on-clear-the-shelters-Saturday-1837278996](https://lifehacker.com/adopt-a-new-family-pet-on-clear-the-shelters-saturday-1837278996)
+> 原文：<https://lifehacker.com/adopt-a-new-family-pet-on-clear-the-shelters-saturday-1837278996>
 
 如果你一直在考虑给你的家庭增加一个毛茸茸的朋友，周六可能是找到他们的最佳时间。
 

@@ -1,6 +1,6 @@
 # 玩纸马里奥的技巧:折纸之王
 
-> 原文:[https://kotaku . com/tips-for-playing-paper-Mario-the-origami-king-1844408657](https://kotaku.com/tips-for-playing-paper-mario-the-origami-king-1844408657)
+> 原文：<https://kotaku.com/tips-for-playing-paper-mario-the-origami-king-1844408657>
 
 世界上最著名的水管工( [或者不是](https://kotaku.com/mario-is-officially-no-longer-a-plumber-1799118840) )在 [*纸马里奥:折纸之王*](https://kotaku.com/paper-mario-the-origami-king-the-kotaku-review-1844379684) 中回归二维状态，今天为任天堂 Switch 出。这是任天堂长期运营的前 RPG 系列的最新作品，既坚持公式(桃子需要再次保存)又反对它(战斗系统是独一无二的)。
 

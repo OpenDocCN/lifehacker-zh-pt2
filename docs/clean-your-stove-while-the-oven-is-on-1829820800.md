@@ -1,6 +1,6 @@
 # 烤箱开着的时候，清洁你的炉子
 
-> 原文:[https://life hacker . com/1829820800](https://lifehacker.com/clean-your-stove-while-the-oven-is-on-1829820800)
+> 原文：<https://lifehacker.com/clean-your-stove-while-the-oven-is-on-1829820800>
 
 我以开发食谱为生，这意味着我的炉灶基本上总是一场灾难。打扫很糟糕，尽管我知道从长远来看这会带来更多的工作，但我会找任何借口来避免擦炉子上溅出来的油。
 

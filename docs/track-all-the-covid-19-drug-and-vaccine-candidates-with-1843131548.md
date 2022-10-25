@@ -1,6 +1,6 @@
 # 使用此图表跟踪所有新冠肺炎候选药物和疫苗
 
-> 原文:[https://life hacker . com/track-all-the-the-新冠肺炎-药品和疫苗候选人-with-1843131548](https://lifehacker.com/track-all-the-covid-19-drug-and-vaccine-candidates-with-1843131548)
+> 原文：<https://lifehacker.com/track-all-the-covid-19-drug-and-vaccine-candidates-with-1843131548>
 
 你听说过 [羟氯喹](https://lifehacker.com/chloroquine-is-not-a-ready-to-go-wonder-drug-for-covid-1842471341) ，但你知道 Remdesivir、Roivant、Athersys 吗？如果你在关注一种可能的疫苗，你知道有超过 12 种候选疫苗正在进行试验或者希望很快开始吗？ [这个来自医疗保健新闻网站 STAT](https://www.statnews.com/feature/coronavirus/drugs-vaccines-tracker/) 的追踪器已经覆盖了你。
 

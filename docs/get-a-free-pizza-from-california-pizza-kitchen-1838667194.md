@@ -1,6 +1,6 @@
 # 从加州披萨厨房获得免费披萨
 
-> 原文:[https://life hacker . com/get-a-free-pizza-from-California-pizza-kitchen-1838667194](https://lifehacker.com/get-a-free-pizza-from-california-pizza-kitchen-1838667194)
+> 原文：<https://lifehacker.com/get-a-free-pizza-from-california-pizza-kitchen-1838667194>
 
 加州披萨厨房今天在 Grubhub 提供免费的生披萨， [在每个时区](https://twitter.com/calpizzakitchen/status/1179048451620790272) 的上午 11 点开始。在 Grubhub 应用程序上找到加州披萨厨房，点一份“带烤”披萨，Grubhub 会在结账时自动应用折扣。
 

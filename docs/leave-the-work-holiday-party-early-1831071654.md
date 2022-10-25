@@ -1,6 +1,6 @@
 # 早点离开工作假期派对
 
-> 原文:[https://life hacker . com/leave-the-work-holiday-party-early-1831071654](https://lifehacker.com/leave-the-work-holiday-party-early-1831071654)
+> 原文：<https://lifehacker.com/leave-the-work-holiday-party-early-1831071654>
 
 今晚是公司的节日聚会。别搞砸了。
 

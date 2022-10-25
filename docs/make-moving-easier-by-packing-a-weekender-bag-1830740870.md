@@ -1,6 +1,6 @@
 # 打包一个周末包，让搬家变得更容易
 
-> 原文:[https://life hacker . com/make-moveing-easy-by-packing-a weekender-bag-1830740870](https://lifehacker.com/make-moving-easier-by-packing-a-weekender-bag-1830740870)
+> 原文：<https://lifehacker.com/make-moving-easier-by-packing-a-weekender-bag-1830740870>
 
 无论你认为自己做了多么充分的准备，搬家从来不会完全按照计划进行。搬家工人来晚了，你的包装带用完了，或者像我一样，你掉下摔坏了你的笔记本电脑，因为你没有意识到它就在你匆忙扔进箱子的一堆衣服下面。不可避免地，你会忘记*的一些东西*。
 

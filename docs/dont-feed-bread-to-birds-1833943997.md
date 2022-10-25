@@ -1,6 +1,6 @@
 # 不要用面包喂鸟
 
-> 原文:[https://lifehacker.com/dont-feed-bread-to-birds-1833943997](https://lifehacker.com/dont-feed-bread-to-birds-1833943997)
+> 原文：<https://lifehacker.com/dont-feed-bread-to-birds-1833943997>
 
 用面包喂鸟和额外面包一样古老。但是，尽管鸟儿很乐意叼走你不新鲜的食物(T4 ),有很多理由说明这是个坏主意。
 

@@ -1,6 +1,6 @@
 # 关于青少年和社交媒体名气，父母应该知道什么
 
-> 原文:[https://life hacker . com/what-parents-should-know-about-tens-and-social-media-f-1842457127](https://lifehacker.com/what-parents-should-know-about-teens-and-social-media-f-1842457127)
+> 原文：<https://lifehacker.com/what-parents-should-know-about-teens-and-social-media-f-1842457127>
 
 Rhiannon Ragland 从未对建立自己的社交媒体特别感兴趣。但作为一个十几岁孩子的母亲，她坚持父母的最佳做法——她关注女儿布伦纳的账户，关注她发布的内容，并与她谈论负责任地分享信息。
 

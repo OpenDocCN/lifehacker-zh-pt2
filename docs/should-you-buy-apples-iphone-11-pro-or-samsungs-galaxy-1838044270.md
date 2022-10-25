@@ -1,6 +1,6 @@
 # 应该买苹果的 iPhone 11 Pro 还是三星的 Galaxy Note 10？
 
-> 原文:[https://life hacker . com/should-you-buy-apple-iphone-11-pro-or-samsungs-galaxy-1838044270](https://lifehacker.com/should-you-buy-apples-iphone-11-pro-or-samsungs-galaxy-1838044270)
+> 原文：<https://lifehacker.com/should-you-buy-apples-iphone-11-pro-or-samsungs-galaxy-1838044270>
 
 如果你和我一样，也是苹果迷，现在是时候开始考虑你打算购买的下一部手机了，苹果已经推出了 [iPhone 11 和 iPhone 11 Pro](https://lifehacker.com/everything-from-todays-apple-event-that-actually-matter-1838013573) 。但是也有很多很棒的手机不是以“I”开头的。
 

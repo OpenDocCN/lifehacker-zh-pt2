@@ -1,6 +1,6 @@
 # 你应该现在买一台新的 Mac 还是等 ARM？
 
-> 原文:[https://life hacker . com/should-you-buy-a-new-MAC-right-now-or-wait-for-arm-1844396518](https://lifehacker.com/should-you-buy-a-new-mac-right-now-or-wait-for-arm-1844396518)
+> 原文：<https://lifehacker.com/should-you-buy-a-new-mac-right-now-or-wait-for-arm-1844396518>
 
 苹果最近宣布计划将其 MAC 电脑从英特尔硬件转向该公司将自行开发的基于 ARM 的芯片。然而，向 ARM 的转变不会一蹴而就，这意味着英特尔和基于 ARM 的 Mac 机型将同时上市。如果你正在考虑一台新的个人电脑，你应该现在就购买基于英特尔的 Mac 电脑，还是等到 ARM 机型？
 

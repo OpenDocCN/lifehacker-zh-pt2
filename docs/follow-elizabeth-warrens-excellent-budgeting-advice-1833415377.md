@@ -1,6 +1,6 @@
 # 遵循伊丽莎白·沃伦出色的预算建议
 
-> 原文:[https://life hacker . com/follow-Elizabeth-warrens-excellent-budgeting-advice-1833415377](https://lifehacker.com/follow-elizabeth-warrens-excellent-budgeting-advice-1833415377)
+> 原文：<https://lifehacker.com/follow-elizabeth-warrens-excellent-budgeting-advice-1833415377>
 
 在她成为参议员和 2020 年总统候选人之前，伊丽莎白·沃伦是哈佛大学的教授，她还写了几本关于美国个人金融和经济不稳定的非常好的书
 

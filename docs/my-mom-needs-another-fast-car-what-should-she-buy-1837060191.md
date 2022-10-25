@@ -1,6 +1,6 @@
 # 我妈妈需要另一辆快车！她应该买什么？
 
-> 原文:[https://jalopnik . com/my-mom-needs-another-fast-car-what-should-that-buy-1837060191](https://jalopnik.com/my-mom-needs-another-fast-car-what-should-she-buy-1837060191)
+> 原文：<https://jalopnik.com/my-mom-needs-another-fast-car-what-should-she-buy-1837060191>
 
 斯宾塞有一个非常酷的妈妈，她喜欢一些非常酷的车。不幸的是，她的奥迪 S8 配备了令人敬畏的 V10 发动机，遇到了大多数奥迪车在达到一定年龄时都会遇到的命运，所以是时候换一辆新的了。他很难给她指出正确的方向，需要我们的帮助。她应该买什么车？
 

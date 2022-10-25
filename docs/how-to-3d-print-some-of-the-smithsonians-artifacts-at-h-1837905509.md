@@ -1,6 +1,6 @@
 # 如何在家 3D 打印一些史密森尼博物馆的艺术品
 
-> 原文:[https://life hacker . com/how-to-3d-print-some-of-the-smithsonians-artifacts-at-h-1837905509](https://lifehacker.com/how-to-3d-print-some-of-the-smithsonians-artifacts-at-h-1837905509)
+> 原文：<https://lifehacker.com/how-to-3d-print-some-of-the-smithsonians-artifacts-at-h-1837905509>
 
 如果你一直想拥有一件历史文物，现在你可以拥有一件最好的东西:一件 3D 打印的复制品。
 

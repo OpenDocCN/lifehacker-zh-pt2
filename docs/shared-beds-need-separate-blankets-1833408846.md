@@ -1,6 +1,6 @@
 # 共享床需要单独的毯子
 
-> 原文:[https://life hacker . com/shared-beds-need-separate-blanket-1833408846](https://lifehacker.com/shared-beds-need-separate-blankets-1833408846)
+> 原文：<https://lifehacker.com/shared-beds-need-separate-blankets-1833408846>
 
 一个又大又漂亮的被子，整齐地铺在你和伴侣共用的床上，在白天可能看起来很漂亮。但是到了晚上，就会出现混乱。一个人会太热，一个人会太冷。更糟糕的是，他们中的一个可能会在晚上翻来覆去，拉着冷空气钻进被窝。简单的解决办法是:分开毯子。
 

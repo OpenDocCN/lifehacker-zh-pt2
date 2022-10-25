@@ -1,6 +1,6 @@
 # 为什么你应该停止在星巴克的抽奖活动上花钱
 
-> 原文:[https://life hacker . com/why-you-should-stop-spending-money-on-Starbucks-sweeps-1840449060](https://lifehacker.com/why-you-should-stop-spending-money-on-starbucks-sweepst-1840449060)
+> 原文：<https://lifehacker.com/why-you-should-stop-spending-money-on-starbucks-sweepst-1840449060>
 
 我曾经是星巴克古怪竞赛的忠实粉丝——那些奖励你在数字游戏场上完成各种“从星巴克买东西”挑战的随机贴纸、代币或其他小饰品。在这么说的时候，我还不如说，“我是个笨蛋。”短了很多。
 

@@ -1,6 +1,6 @@
 # 马上把你的刀磨快
 
-> 原文:[https://life hacker . com/get-your-knifes-sharpened-right-now-1839785233](https://lifehacker.com/get-your-knives-sharpened-right-now-1839785233)
+> 原文：<https://lifehacker.com/get-your-knives-sharpened-right-now-1839785233>
 
 锋利的菜刀一年四季都很重要，但在感恩节绝对必不可少。你不仅会比平时切更多的蔬菜和香草，你还会切一只鸟，这只鸟有骨头。
 

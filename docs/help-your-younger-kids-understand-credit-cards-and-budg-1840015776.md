@@ -1,6 +1,6 @@
 # 使用此应用程序帮助您的小孩理解信用卡和预算
 
-> 原文:[https://life hacker . com/help-your-young-kids-understand-credit-cards-and-budg-1840015776](https://lifehacker.com/help-your-younger-kids-understand-credit-cards-and-budg-1840015776)
+> 原文：<https://lifehacker.com/help-your-younger-kids-understand-credit-cards-and-budg-1840015776>
 
 我希望我在孩提时代，甚至是高中生时就已经学会的一件事，就是基本的资金管理。我现在做得很好，但当我 18 岁，终于到了申请信用卡的年龄时，我让自己陷入了多年的失败，因为我根本没有完全理解它们，或者像实际预算这样的东西，是如何真正运作的。是的，理论是有的，但我没有现实世界的经验。
 

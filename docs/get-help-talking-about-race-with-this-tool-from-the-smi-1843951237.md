@@ -1,6 +1,6 @@
 # 使用史密森尼学会的这个工具来帮助谈论种族
 
-> 原文:[https://life hacker . com/get-help-talking-about-the-tool-from-the-SMI-1843951237](https://lifehacker.com/get-help-talking-about-race-with-this-tool-from-the-smi-1843951237)
+> 原文：<https://lifehacker.com/get-help-talking-about-race-with-this-tool-from-the-smi-1843951237>
 
 当然，到现在为止，我们都看到了谈论种族的迫切需要——与我们的孩子，与我们的父母，与我们的朋友，甚至与我们自己。如果唯一阻碍你的是你根本不知道从哪里开始，史密森尼国家非裔美国人历史和文化博物馆已经推出了一个新的在线门户网站，这将有所帮助。
 

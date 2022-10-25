@@ -1,6 +1,6 @@
 # 如何在紧急情况下拨打 911
 
-> 原文:[https://life hacker . com/how-to-text-911-in-a-emergency-1836879514](https://lifehacker.com/how-to-text-911-in-an-emergency-1836879514)
+> 原文：<https://lifehacker.com/how-to-text-911-in-an-emergency-1836879514>
 
 在某些时候，你可能会发现自己处于紧急情况中，尽管你带着手机，但你可能无法拨打电话或与 911 接线员交谈。你可能想保持安静，因为你在躲藏；你可能会因受伤而无法说话；或者您的接收效果不佳，无法进行语音通话。在这种情况下，你可以发短信给 911。
 

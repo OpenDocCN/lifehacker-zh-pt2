@@ -1,6 +1,6 @@
 # 在您的育碧“俱乐部单位”于本月到期前使用它们
 
-> 原文:[https://life hacker . com/spend-your-ubisoft-club-units-before-they-expire-this-m-1833492924](https://lifehacker.com/spend-your-ubisoft-club-units-before-they-expire-this-m-1833492924)
+> 原文：<https://lifehacker.com/spend-your-ubisoft-club-units-before-they-expire-this-m-1833492924>
 
 有如此多的数字货币和奖励系统，很难记住你在哪里存了多少钱，特别是如果你像我一样，你喜欢把你的虚拟点数/硬币/小玩意存起来买些好东西。(总有一天我会用我的信用卡积分，我保证。)
 

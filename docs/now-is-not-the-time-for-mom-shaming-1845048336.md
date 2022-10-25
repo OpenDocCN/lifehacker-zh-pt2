@@ -1,6 +1,6 @@
 # 现在不是“让妈妈蒙羞”的时候
 
-> 原文:[https://life hacker . com/now-is-not-the-time for the-mom shaming-1845048336](https://lifehacker.com/now-is-not-the-time-for-mom-shaming-1845048336)
+> 原文：<https://lifehacker.com/now-is-not-the-time-for-mom-shaming-1845048336>
 
 大约十年前，在所谓的“妈妈战争”期间，我成为了一名妈妈，当时育儿博客——其中绝大多数是女性——经常使用他们的社交媒体平台来推广他们的育儿方式。在此期间，妇女们感到迫切需要找到她们的“部落”他们的专属母乳喂养部落，他们的职业妈妈部落，他们的依恋育儿部落，他们的尿布部落。
 

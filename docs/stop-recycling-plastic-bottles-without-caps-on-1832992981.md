@@ -1,6 +1,6 @@
 # 停止回收没有盖子的塑料瓶
 
-> 原文:[https://life hacker . com/stop-recycling-塑料瓶-无盖-on-1832992981](https://lifehacker.com/stop-recycling-plastic-bottles-without-caps-on-1832992981)
+> 原文：<https://lifehacker.com/stop-recycling-plastic-bottles-without-caps-on-1832992981>
 
 随着 [回收行业](https://www.wired.com/story/since-chinas-ban-recycling-in-the-us-has-gone-up-in-flames/) 的不断变化，围绕回收塑料的规则并不总是一成不变的(至少在美国是这样)。首先，你不能回收塑料袋或吸管，现在 [黑色塑料](https://lifehacker.com/think-twice-before-recycling-black-plastic-1832868090) 甚至成为一个问题。我们怎么知道回收的正确方法呢？
 

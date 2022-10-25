@@ -1,6 +1,6 @@
 # 如何修复你突然蹩脚的谷歌巢视频
 
-> 原文:[https://life hacker . com/how-to-fix-your ' s burn-Google-nest-videos-1842883269](https://lifehacker.com/how-to-fix-your-suddenly-crappy-google-nest-videos-1842883269)
+> 原文：<https://lifehacker.com/how-to-fix-your-suddenly-crappy-google-nest-videos-1842883269>
 
 现在，我们大多数人都整天呆在家里，我们正在消耗大量的数据，虽然康卡斯特的互联网管道还没有破裂，但它们肯定比以往任何时候都更满。为了提前应对潜在的灾难，一些公司正在采取措施减轻其服务的数据负担，包括谷歌。
 

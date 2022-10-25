@@ -1,6 +1,6 @@
 # 腌制你的西红柿以获得额外的美味
 
-> 原文:[https://life hacker . com/腌制你的西红柿以获得额外的美味 blts-1837717762](https://lifehacker.com/marinate-your-tomatoes-for-extra-flavorful-blts-1837717762)
+> 原文：<https://lifehacker.com/marinate-your-tomatoes-for-extra-flavorful-blts-1837717762>
 
 BLT 是一个简单的三明治，但简单需要卓越。每种成分都起着重要的作用，最大限度地增加培根的脆咸味、生菜的松脆和西红柿的多汁甜味是让三明治真正华丽的原因。
 

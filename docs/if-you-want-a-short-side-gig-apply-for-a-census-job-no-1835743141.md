@@ -1,6 +1,6 @@
 # 如果你想兼职，现在就申请人口普查工作
 
-> 原文:[https://life hacker . com/if-you-want-a-short-side-gig-apply-for-a-census-job-no-1835743141](https://lifehacker.com/if-you-want-a-short-side-gig-apply-for-a-census-job-no-1835743141)
+> 原文：<https://lifehacker.com/if-you-want-a-short-side-gig-apply-for-a-census-job-no-1835743141>
 
 2020 年人口普查要来了，你听说了吗？虽然十年一次的调查是 [而不是没有问题](https://lifehacker.com/why-the-2020-u-s-census-could-change-everything-accor-1834246379) ，但这是一项巨大的事业，需要许多许多人来实现:实际上是 50 万人。大规模的招聘工作是 [现在发生](https://2020census.gov/en/jobs) ，因为人口普查在八月开始。
 

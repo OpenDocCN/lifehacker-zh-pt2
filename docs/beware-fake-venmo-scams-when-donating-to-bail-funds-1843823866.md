@@ -1,6 +1,6 @@
 # 向保释基金捐款时要小心虚假的 Venmo 骗局
 
-> 原文:[https://life hacker . com/feel-fake-venmo-scams-when-during-to-bail-funds-1843823866](https://lifehacker.com/beware-fake-venmo-scams-when-donating-to-bail-funds-1843823866)
+> 原文：<https://lifehacker.com/beware-fake-venmo-scams-when-donating-to-bail-funds-1843823866>
 
 明尼苏达自由基金，一直在救助明尼阿波利斯的抗议者，已经成为本周捐赠的热门事业。太好了！但是一定要去他们真正的网站——不要向以他们的名义流传的 [假网站](https://twitter.com/MNFreedomFund/status/1266550293157892100) 捐款。
 

@@ -1,6 +1,6 @@
 # 建造这些由宜家设计的堡垒
 
-> 原文:[https://life hacker . com/build-these-forts-designed-by-IKEA-1843520252](https://lifehacker.com/build-these-forts-designed-by-ikea-1843520252)
+> 原文：<https://lifehacker.com/build-these-forts-designed-by-ikea-1843520252>
 
 这些时代是建造堡垒的时代。这是蹲下，蜷缩，让我一个人呆着的时代。但是也许到现在，在疫情的第 10 周，你已经没有新的方法把毯子盖在几把椅子上，称之为堡垒。我当然有。但是宜家俄罗斯公司在这里帮助激发我们的堡垒工程想象力。
 

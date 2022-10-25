@@ -1,6 +1,6 @@
 # 企业关于警察暴行的声明如何与其政治捐款相匹配？
 
-> 原文:[https://life hacker . com/how-do-corporations-statements-on-police-ruptity-matc-1843858314](https://lifehacker.com/how-do-corporations-statements-on-police-brutality-matc-1843858314)
+> 原文：<https://lifehacker.com/how-do-corporations-statements-on-police-brutality-matc-1843858314>
 
 我们永远无法真正知道 公司和他们的首席执行官心里在想什么。当他们对多样性和包容性以及对乔治·弗洛伊德之死的悲痛发表非常漂亮的声明时，他们是认真的吗？还是空洞的说辞？我们如何辨别这两者的区别？
 

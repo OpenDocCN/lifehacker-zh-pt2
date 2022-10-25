@@ -1,6 +1,6 @@
 # 用俯卧撑打断跑步，获得额外的乐趣和痛苦
 
-> 原文:[https://life hacker . com/break-up-your-run-with-extra-fun-and-experience-1845105210](https://lifehacker.com/break-up-your-run-with-pushups-for-extra-fun-and-suffer-1845105210)
+> 原文：<https://lifehacker.com/break-up-your-run-with-pushups-for-extra-fun-and-suffer-1845105210>
 
 跑步中做过俯卧撑或打嗝吗？和我待在这里。我们会让我们的跑步变得更难，但我向你保证这会让它们更有趣。
 

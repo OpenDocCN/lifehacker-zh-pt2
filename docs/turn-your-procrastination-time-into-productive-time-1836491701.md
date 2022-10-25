@@ -1,6 +1,6 @@
 # 把你的拖延时间变成有成效的时间
 
-> 原文:[https://life hacker . com/turn-your-delayatory-time-into-productive-time-1836491701](https://lifehacker.com/turn-your-procrastination-time-into-productive-time-1836491701)
+> 原文：<https://lifehacker.com/turn-your-procrastination-time-into-productive-time-1836491701>
 
 不管我们愿不愿意承认，每个人都会拖延。诀窍是通过做别的事情来拖延。
 

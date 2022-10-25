@@ -1,6 +1,6 @@
 # 非接触式支付的工作原理
 
-> 原文:[https://life hacker . com/how-contacted-payments-work-1843266723](https://lifehacker.com/how-contactless-payments-work-1843266723)
+> 原文：<https://lifehacker.com/how-contactless-payments-work-1843266723>
 
 随着我们习惯了冠状病毒爆发期间购物的新“常态”，你可能已经看到商家宣传非接触式交易。
 

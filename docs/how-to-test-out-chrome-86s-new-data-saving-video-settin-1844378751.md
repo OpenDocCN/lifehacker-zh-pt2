@@ -1,6 +1,6 @@
 # 如何测试 Chrome 86 新的数据保存视频设置
 
-> 原文:[https://life hacker . com/how-to-test-out-chrome-86s-new-data-saving-video-setting-1844378751](https://lifehacker.com/how-to-test-out-chrome-86s-new-data-saving-video-settin-1844378751)
+> 原文：<https://lifehacker.com/how-to-test-out-chrome-86s-new-data-saving-video-settin-1844378751>
 
 如果即将到来的 Chrome 86 更新有一个主题，那似乎就是“效率”。我们已经看到了 [节省内存的变化，这应该使 Chrome 不那么耗电](https://lifehacker.com/preview/switch-to-chrome-canary-for-now-to-get-chrome-86s-batte-1844283047?rev=1594064460353) ，但用户也有一个新的节省数据的“LiteVideo”模式值得期待。
 

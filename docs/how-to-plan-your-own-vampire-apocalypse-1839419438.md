@@ -1,6 +1,6 @@
 # 如何规划自己的吸血鬼天启
 
-> 原文:[https://life hacker . com/how-to-plan-your-own-vampire-启示录-1839419438](https://lifehacker.com/how-to-plan-your-own-vampire-apocalypse-1839419438)
+> 原文：<https://lifehacker.com/how-to-plan-your-own-vampire-apocalypse-1839419438>
 
 吸血鬼能多快接管整个人类？Omni Calculator 给你的不是一个答案，而是六个，基于吸血鬼的神话，从*德拉库拉*、*塞勒姆的命运*、*采访吸血鬼*、*暮光之城*和*真爱如血*，加上一些自定义场景。你可以看到整个世界的转变，或者人类如何与杀戮者进行反击。你也可以改变所有的变量来做出你自己的答案。
 

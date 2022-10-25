@@ -1,6 +1,6 @@
 # 在“专业工具”子编辑栏里有一个小工具
 
-> 原文:[https://life hacker . com/theres-a-gadget-on-the-specialized-tools-subre-1835458391](https://lifehacker.com/theres-a-gadget-for-that-on-the-specialized-tools-subre-1835458391)
+> 原文：<https://lifehacker.com/theres-a-gadget-for-that-on-the-specialized-tools-subre-1835458391>
 
 为了纪念 Lifehacker 的模拟周，让我们来探索一个子编辑器，它的功能是做非常特殊的事情的设备:[r/specialized tools](https://www.reddit.com/r/specializedtools/)。其中的工具会让你想从事一项爱好或整个职业，这样你就有借口购买它们，比如驾驶一辆半挂卡车，这样你就可以 [清扫顶部的积雪](https://www.reddit.com/r/specializedtools/comments/b1c2ze/snow_clearing_machine_for_trucks/) ，或者用这种 [高效的 b 完全撒布机](https://www.reddit.com/r/specializedtools/comments/8oqtfv/butter_spreader/) 制作一大堆烤面包。而其中的一些，像这个 [半自动锤子](https://www.reddit.com/r/specializedtools/comments/bhnugo/semiautomatic_hammer/) 和这个 [摩托车盖](https://www.reddit.com/r/specializedtools/comments/bclvud/bike_storage/) ，其实对于日常任务都很有用。在你浪费了一整天时间查看这些 monotaskers 的所有 gif 和视频之后，你需要这些来节省一些时间。以下是我们的最爱。
 

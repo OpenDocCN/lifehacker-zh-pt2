@@ -1,6 +1,6 @@
 # 如何让你的猫晚上不在你家门口喵喵叫
 
-> 原文:[https://life hacker . com/how-to-get-your-cat-stop-meow ing-in-your-door-nig-1796296076](https://lifehacker.com/how-to-get-your-cat-to-stop-meowing-at-your-door-at-nig-1796296076)
+> 原文：<https://lifehacker.com/how-to-get-your-cat-to-stop-meowing-at-your-door-at-nig-1796296076>
 
 当然，猫是伟大的，但它们也可能是混蛋。就像当它们在半夜从你的脸上踩过去——所以你关上卧室的门，它们喵喵叫，抓来抓去，直到你让它们回来。以下是如何让他们停下来，这样你就可以睡一觉了。
 

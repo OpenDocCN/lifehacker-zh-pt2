@@ -1,6 +1,6 @@
 # 用这个工资计算器比较多个工作机会
 
-> 原文:[https://life hacker . com/compare-multiple-job-offers-with-this-salary-calculator-1844284444](https://lifehacker.com/compare-multiple-job-offers-with-this-salary-calculator-1844284444)
+> 原文：<https://lifehacker.com/compare-multiple-job-offers-with-this-salary-calculator-1844284444>
 
 找工作很难，但是一旦你最终得到了一份工作，压力不会停止。对你得到的第一份工作说“是”可能很有诱惑力，尤其是在就业市场似乎枯竭的这些天，但你仍然需要确保你对提供给你的工作感到满意——甚至你最初申请的工作确实值得你花时间。这就是为什么你可能想要使用这样一个来自 [级别的薪资计算器。参考消息](https://www.levels.fyi/calculator) ，它可以让你比较多个报价，或者看看一份工作四年的总薪酬预期是多少。
 

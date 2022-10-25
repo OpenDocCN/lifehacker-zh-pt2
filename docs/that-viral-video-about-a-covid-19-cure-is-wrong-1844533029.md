@@ -1,6 +1,6 @@
 # 关于新冠肺炎“治愈”的病毒视频是错误的
 
-> 原文:[https://life hacker . com/that-viral-video-about-a-新冠肺炎-治愈-是错误的-1844533029](https://lifehacker.com/that-viral-video-about-a-covid-19-cure-is-wrong-1844533029)
+> 原文：<https://lifehacker.com/that-viral-video-about-a-covid-19-cure-is-wrong-1844533029>
 
 有一个病毒式的视频——已经从许多平台上删除，但如果你还没有看到它，你很有可能很快就会看到它——一名医生站在最高法院门前的台阶上，声称“你不需要口罩”,因为冠状病毒“有治愈方法”。这是错误和危险的。
 

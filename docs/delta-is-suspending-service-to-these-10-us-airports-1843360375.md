@@ -1,6 +1,6 @@
 # 达美航空暂停了对这 10 个美国机场的服务
 
-> 原文:[https://life hacker . com/delta-is-suspending-service-to-this-10-us-airports-1843360375](https://lifehacker.com/delta-is-suspending-service-to-these-10-us-airports-1843360375)
+> 原文：<https://lifehacker.com/delta-is-suspending-service-to-these-10-us-airports-1843360375>
 
 我们大多数人可能近期都没有坐飞机的计划。如果您确实有这样的计划，并且这些计划涉及到 Delta，那么您可能需要做一些调整。
 

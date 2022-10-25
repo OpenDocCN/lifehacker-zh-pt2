@@ -1,6 +1,6 @@
 # 如何做出你真正想吃的素食烤肉
 
-> 原文:[https://life hacker . com/how-to-make-a-vegan-bake-you-really-want-to-eat-eat-1830335306](https://lifehacker.com/how-to-make-a-vegan-roast-youll-actually-want-to-eat-1830335306)
+> 原文：<https://lifehacker.com/how-to-make-a-vegan-roast-youll-actually-want-to-eat-1830335306>
 
 买一份素食假日烤肉非常像玩 Seitan 轮盘赌。一个经典的 Tofurky 日志充其量是无害的，但每年这个时候全食超市里出现的各种竞争对手在“合法美味”和“带有一股鼠尾草气味的旧靴子”之间打乒乓球。如果你厌倦了通常的人造肉选择，我有个好消息:你完全可以自己做。
 

@@ -1,6 +1,6 @@
 # 如何恢复您意外删除的任何 Google 相册“作品”
 
-> 原文:[https://life hacker . com/how-to-restore-any-Google-photo-creations-you-incidenca-1840416047](https://lifehacker.com/how-to-restore-any-google-photo-creations-you-accidenta-1840416047)
+> 原文：<https://lifehacker.com/how-to-restore-any-google-photo-creations-you-accidenta-1840416047>
 
 Google Photos 有一些人工智能驱动的功能，可以增强你的照片，并代表你建立“自动创作”——例如幻灯片视频、拼贴画和照片动画。例如，谷歌照片人工智能可能会根据你上周末的徒步旅行冒险创建一个幻灯片，让你以一种简洁的方式查看你的旅行 ，而不需要你做任何工作。
 

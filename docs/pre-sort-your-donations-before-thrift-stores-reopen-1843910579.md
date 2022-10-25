@@ -1,6 +1,6 @@
 # 在旧货店重新开张之前，对你的捐赠进行预分类
 
-> 原文:[https://life hacker . com/pre-sort-your-contributions-before-three-stores-reopen-1843910579](https://lifehacker.com/pre-sort-your-donations-before-thrift-stores-reopen-1843910579)
+> 原文：<https://lifehacker.com/pre-sort-your-donations-before-thrift-stores-reopen-1843910579>
 
 如果你在最初几周躲避的无聊活动包括主要的清理工作，你知道接下来的几周意味着什么:不得不看着你房子周围成堆的准备清理的捐赠，等待旧货店和捐赠中心重新开门。
 

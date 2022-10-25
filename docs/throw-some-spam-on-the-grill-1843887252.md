@@ -1,6 +1,6 @@
 # 往烤架上扔些垃圾
 
-> 原文:[https://life hacker . com/throw-some-spam-on-grill-1843887252](https://lifehacker.com/throw-some-spam-on-the-grill-1843887252)
+> 原文：<https://lifehacker.com/throw-some-spam-on-the-grill-1843887252>
 
 烧烤是一种相当简单的烹饪方法——你把食物放在热煤或真火上，然后把它留在那里烹饪——然而人们仍然会想方设法把它变得非常复杂(尽管，不可否认，很好吃)。但是你知道什么不复杂还很好吃吗？垃圾邮件。
 

@@ -1,6 +1,6 @@
 # 问咸味女服务员:在餐厅求婚前应该考虑什么？
 
-> 原文:[https://the take out . com/what-I-should-been-proposing-in-restaurant-1831883060](https://thetakeout.com/what-should-i-consider-before-proposing-in-restaurant-1831883060)
+> 原文：<https://thetakeout.com/what-should-i-consider-before-proposing-in-restaurant-1831883060>
 
 > 亲爱的咸:随着情人节的临近，我正准备向我交往已久的女友求婚。但是我一直在想该在哪里求婚。我们都是美食家，我为我们的第一次约会挥霍了一笔，地点是一家很好的餐厅，从那以后它就成了我们生日晚餐的必去之地。这将是完美的位置，所以我倾向于这样。
 > 

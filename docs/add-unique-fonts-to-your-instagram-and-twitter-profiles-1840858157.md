@@ -1,6 +1,6 @@
 # 用这个字体生成器给你的 Instagram 和 Twitter 档案添加独特的字体
 
-> 原文:[https://life hacker . com/add-unique-fonts-to-your-insta gram-and-Twitter-profiles-1840858157](https://lifehacker.com/add-unique-fonts-to-your-instagram-and-twitter-profiles-1840858157)
+> 原文：<https://lifehacker.com/add-unique-fonts-to-your-instagram-and-twitter-profiles-1840858157>
 
 当在 Twitter 和 Instagram 等网站上创建个人资料时，很容易最终看起来和其他人一模一样。
 

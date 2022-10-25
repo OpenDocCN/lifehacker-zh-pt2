@@ -1,6 +1,6 @@
 # 用烘干机去除织物上的宠物毛发
 
-> 原文:[https://life hacker . com/remove-pet-hair-from-fabrics-using-your-dryer-1833065716](https://lifehacker.com/remove-pet-hair-from-fabrics-using-your-dryer-1833065716)
+> 原文：<https://lifehacker.com/remove-pet-hair-from-fabrics-using-your-dryer-1833065716>
 
 清理任何表面上的宠物毛发都是一件苦差事，但织物是最糟糕的。尽管这很诱人，但是放弃并把头发覆盖的毯子和其他衣物一起扔进去只会把头发转移到衣物的其他部分——并把其他部分直接送进你的水管。有一个更好的方法:J 只要在洗之前把超级多毛的布料扔进烘干机*就行了。*
 

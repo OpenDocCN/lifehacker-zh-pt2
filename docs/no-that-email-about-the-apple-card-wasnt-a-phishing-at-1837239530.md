@@ -1,6 +1,6 @@
 # 不，那封关于苹果卡的邮件不是网络钓鱼
 
-> 原文:[https://life hacker . com/no-that-the-email-about-the-apple-card-was-at-1837239530](https://lifehacker.com/no-that-email-about-the-apple-card-wasnt-a-phishing-at-1837239530)
+> 原文：<https://lifehacker.com/no-that-email-about-the-apple-card-wasnt-a-phishing-at-1837239530>
 
 每当你收到一封据称来自一家公司的电子邮件，但它要求你点击一个链接并确认一些该公司应该已经非常熟悉的信息，你完全有权利持怀疑态度。其实你应该很怀疑；常识是防范网络钓鱼企图的最佳第一道防线。
 

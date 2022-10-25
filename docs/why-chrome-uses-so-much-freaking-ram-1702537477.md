@@ -1,6 +1,6 @@
 # 为什么 Chrome 使用这么多该死的内存
 
-> 原文:[https://life hacker . com/why-chrome-uses-so-much-freaking-ram-1702537477](https://lifehacker.com/why-chrome-uses-so-much-freaking-ram-1702537477)
+> 原文：<https://lifehacker.com/why-chrome-uses-so-much-freaking-ram-1702537477>
 
 谷歌 Chrome 是围绕 的最受欢迎的 [网络浏览器之一，但它占用了你电脑过多的内存。快速浏览一下你的任务管理器，就会发现数量惊人的占用内存的 Chrome 进程。这就是为什么 Chrome 使用这么多内存的原因——以及你可以采取哪些措施来抑制它的贪吃。](https://www.digitaltrends.com/computing/best-browser-chrome-vs-firefox-vs-safari-vs-edge/)
 

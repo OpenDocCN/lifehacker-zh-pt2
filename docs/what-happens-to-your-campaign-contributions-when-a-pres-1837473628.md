@@ -1,6 +1,6 @@
 # 当一位总统候选人退出时，你的竞选捐款会怎么样？
 
-> 原文:[https://life hacker . com/what-happens-to-your ' s campaign-contributions-when-a-pres-1837473628](https://lifehacker.com/what-happens-to-your-campaign-contributions-when-a-pres-1837473628)
+> 原文：<https://lifehacker.com/what-happens-to-your-campaign-contributions-when-a-pres-1837473628>
 
 周三，华盛顿州州长杰伊·英斯利正式退出总统竞选，就在几天前，约翰·希肯卢珀也宣布退出(并宣布竞选参议员)。截至 6 月，两位前候选人从个人捐助者和政治行动委员会筹集了近 850 万美元的竞选捐款。
 

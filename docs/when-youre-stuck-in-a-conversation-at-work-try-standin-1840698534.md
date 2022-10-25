@@ -1,6 +1,6 @@
 # 当你在工作中陷入谈话时，试着站起来
 
-> 原文:[https://life hacker . com/when-you-stick-in-a-conversation-in-work-try-standin-1840698534](https://lifehacker.com/when-youre-stuck-in-a-conversation-at-work-try-standin-1840698534)
+> 原文：<https://lifehacker.com/when-youre-stuck-in-a-conversation-at-work-try-standin-1840698534>
 
 我现在一个人在家工作，很光荣。在我之前；然而，我和大多数人一样在办公室工作，也和大多数人一样，我不喜欢和同事进行冗长的谈话。
 

@@ -1,6 +1,6 @@
 # 这些狗粮含有潜在的有毒维生素 D
 
-> 原文:[https://life hacker . com/these-dog-foods-have-potentially-toxic-levels of-vitamii-1830852544](https://lifehacker.com/these-dog-foods-have-potentially-toxic-levels-of-vitami-1830852544)
+> 原文：<https://lifehacker.com/these-dog-foods-have-potentially-toxic-levels-of-vitami-1830852544>
 
 FDA 已经宣布在全国范围内召回几个品牌的干狗粮，因为它们含有高达 70 倍的维生素 D。过多会导致器官衰竭和死亡，所以检查标签并留意维生素 D 中毒的迹象。
 

@@ -1,6 +1,6 @@
 # 2020 年元旦有哪些餐厅和商店营业
 
-> 原文:[https://life hacker . com/what-restaurants-and-stores-on-new-years-day-2-1840752835](https://lifehacker.com/what-restaurants-and-stores-are-open-on-new-years-day-2-1840752835)
+> 原文：<https://lifehacker.com/what-restaurants-and-stores-are-open-on-new-years-day-2-1840752835>
 
 今天是元旦，这意味着许多你平时经常去的商店、餐馆和商店都将关门。
 

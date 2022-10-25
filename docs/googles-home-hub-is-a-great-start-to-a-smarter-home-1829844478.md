@@ -1,6 +1,6 @@
 # 谷歌的 Home Hub 是智能家居的一个良好开端
 
-> 原文:[https://gizmodo . com/Google s-home-hub-is-a-great-start-to-a-smarter-home-1829844478](https://gizmodo.com/googles-home-hub-is-a-great-start-to-a-smarter-home-1829844478)
+> 原文：<https://gizmodo.com/googles-home-hub-is-a-great-start-to-a-smarter-home-1829844478>
 
 智能家用控制台的想法令人兴奋。一个小屏幕，你可以打开和关闭所有的灯，打开电视，看看谁在门口，把烤箱调到 500 度，烤大蒜和西兰花当晚餐？太酷了！这也是谷歌用 [承诺的新家庭枢纽](https://store.google.com/us/product/google_home_hub?&43700037560773767&gclid=EAIaIQobChMIl6zEmvCS3gIVj0wNCh3Z8Q0HEAAYASAAEgKH9vD_BwE&gclsrc=aw.ds&dclid=CJWkyJvwkt4CFdAONwoddx8Mjg) 。谷歌不*不*送货上门。但是新的家庭集线器也没有达到我所希望的神奇小工具。至少现在不是。
 

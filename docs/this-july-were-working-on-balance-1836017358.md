@@ -1,6 +1,6 @@
 # 今年七月，我们致力于平衡
 
-> 原文:[https://life hacker . com/this-July-were-working-on-balance-1836017358](https://lifehacker.com/this-july-were-working-on-balance-1836017358)
+> 原文：<https://lifehacker.com/this-july-were-working-on-balance-1836017358>
 
 是时候从操场 进来 [开始](https://vitals.lifehacker.com/the-june-fitness-challenge-is-playgrounds-1835210163) [Lifehacker 健身挑战赛](https://lifehacker.com/c/lifehacker-fitness-challenge) 的新篇章了。七月，我们回到了你可以在阴凉处，在任何空闲时间做的事情:平衡练习。
 

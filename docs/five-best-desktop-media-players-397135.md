@@ -1,6 +1,6 @@
 # Windows 和 Mac 的最佳媒体播放器
 
-> 原文:[https://life hacker . com/five-best-desktop-media-players-397135](https://lifehacker.com/five-best-desktop-media-players-397135)
+> 原文：<https://lifehacker.com/five-best-desktop-media-players-397135>
 
 每个人的电脑上都有一些值得观看的东西——你刚刚在度假时拍摄的有趣视频，你下载的一些你可能不应该看的电影，你最喜欢的音乐会的精彩片段，等等。虽然你可以*可能*在你的操作系统的默认播放器中打开它，但你没有理由把自己局限于无聊的 ol '[**Windows Media Player**](https://support.microsoft.com/en-us/help/14209)或[**Quicktime**](https://support.apple.com/quicktime)。
 

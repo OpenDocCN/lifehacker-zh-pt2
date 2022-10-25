@@ -1,6 +1,6 @@
 # how to host a socially distanced playdate 1843968368
 
-> 原文:[https://life hacker . com/how-to-host-a-social-distance-playdate-1843968368](https://lifehacker.com/how-to-host-a-socially-distanced-playdate-1843968368)
+> 原文：<https://lifehacker.com/how-to-host-a-socially-distanced-playdate-1843968368>
 
 暑假来了。对于我们许多人来说，我们将 2019-20 学年踢到路边，进入一个似乎在面前无限延伸的夏天，这是一种解脱和恐惧的混合。嘿，还记得以前孩子们一起玩的时候吗？就像，面对面？
 

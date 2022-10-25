@@ -1,6 +1,6 @@
 # 如何检查你的孩子是否在使用脸书“被禁”的研究应用
 
-> 原文:[https://life hacker . com/how-to-check-if-your-kid-use-Facebook-banned-rese-1832195011](https://lifehacker.com/how-to-check-if-your-kid-is-using-facebooks-banned-rese-1832195011)
+> 原文：<https://lifehacker.com/how-to-check-if-your-kid-is-using-facebooks-banned-rese-1832195011>
 
 你现在可能已经听说了，脸书——以其无限的智慧——一直在运行一个项目，每月向你的孩子(13 岁至 35 岁)支付价值 20 美元的巨额礼品卡，以换取对其苹果或安卓设备上数据的近乎无限制的访问。通过安装一个自定义的根证书，脸书可以看到他们浏览了什么网站，他们对朋友说了什么，他们在电子邮件中写了什么，这只是几个破坏隐私的例子。
 

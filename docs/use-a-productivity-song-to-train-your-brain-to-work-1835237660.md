@@ -1,6 +1,6 @@
 # 用一首“生产力之歌”来训练你的大脑工作
 
-> 原文:[https://life hacker . com/use-a-productivity-song-to-train-your-brain-to-work-1835237660](https://lifehacker.com/use-a-productivity-song-to-train-your-brain-to-work-1835237660)
+> 原文：<https://lifehacker.com/use-a-productivity-song-to-train-your-brain-to-work-1835237660>
 
 看过电影蒙太奇的人都知道激励人心的配乐的重要性。我们可能没有专业编辑来拼接我们为拳击比赛训练或为律师考试学习的镜头，但我们可以选择自己的音乐来帮助我们提高工作效率。
 

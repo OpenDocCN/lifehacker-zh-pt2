@@ -1,6 +1,6 @@
 # 你不需要把用过的衣架扔进垃圾桶
 
-> 原文:[https://life hacker . com/you-dont-need-to-throw-used-hangers-in-trash-1837169719](https://lifehacker.com/you-dont-need-to-throw-used-hangers-in-the-trash-1837169719)
+> 原文：<https://lifehacker.com/you-dont-need-to-throw-used-hangers-in-the-trash-1837169719>
 
 有了所有的塑料薄膜和有毒化学物质，干洗衣服可以成为一个的浪费过程。你很可能会在一天的使用后将剩余的铁丝衣架扔进垃圾桶。
 

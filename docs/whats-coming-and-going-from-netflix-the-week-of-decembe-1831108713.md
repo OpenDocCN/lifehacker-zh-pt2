@@ -1,6 +1,6 @@
 # 2018 年 12 月 31 日这一周，网飞有哪些活动
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of decembe-1831108713](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-decembe-1831108713)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-decembe-1831108713>
 
 来自网飞 的 [年终献礼令人沮丧，所以我很高兴地欢迎本周娱乐节目的大丰收。我们有完整的印第安纳·琼斯系列电影，将于周二上映(我知道我们现在称第一部为“印第安纳·琼斯和夺宝奇兵”，我猜这有助于按字母顺序归档？)](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-decembe-1831107846?rev=1544820158303)
 

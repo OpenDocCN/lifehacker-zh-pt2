@@ -1,6 +1,6 @@
 # 一起看“美国最有趣的视频”,给你的孩子上生活课
 
-> 原文:[https://life hacker . com/teach-your-kid-life-lessons-by-watching-Americas-funnie-1833128181](https://lifehacker.com/teach-your-kid-life-lessons-by-watching-americas-funnie-1833128181)
+> 原文：<https://lifehacker.com/teach-your-kid-life-lessons-by-watching-americas-funnie-1833128181>
 
 你还记得 [*全美最好笑的视频*](https://abc.go.com/shows/americas-funniest-home-videos) 吧？那个由鲍勃·萨吉特主持的 90 年代自制视频剪辑节目，主要是人摔倒和宠物做奇怪的事情？
 

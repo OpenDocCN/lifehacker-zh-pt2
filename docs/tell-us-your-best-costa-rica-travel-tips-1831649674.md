@@ -1,6 +1,6 @@
 # 告诉我们你最好的哥斯达黎加旅行建议
 
-> 原文:[https://life hacker . com/tell-us-your-best-Costa-Rica-travel-tips-1831649674](https://lifehacker.com/tell-us-your-best-costa-rica-travel-tips-1831649674)
+> 原文：<https://lifehacker.com/tell-us-your-best-costa-rica-travel-tips-1831649674>
 
 本周，在名不副实的专栏“黑掉你的城市”中，我们将为整个中美洲国家哥斯达黎加提供一些建议。直到最近，一位不愿透露姓名但写了这篇文章的 Lifehacker 作者认为这是一个岛。我们可以假设比这多一点点的基础知识，但是告诉我们:H 你怎样才能更好地进行一次伟大的哥斯达黎加之旅？
 

@@ -1,6 +1,6 @@
 # 这里有一种方法可以检查你的 Chrome 扩展是否安全
 
-> 原文:[https://life hacker . com/heres-one-way-to-check-the-your-chrome-extensions-are-1836630986](https://lifehacker.com/heres-one-way-to-check-that-your-chrome-extensions-are-1836630986)
+> 原文：<https://lifehacker.com/heres-one-way-to-check-that-your-chrome-extensions-are-1836630986>
 
 鉴于最近的 DataSpii 浏览器扩展泄漏，数百万用户的数据被跟踪，并通过看似良性的浏览器扩展出售给 ，值得检查一下你可能已经安装或正在考虑安装的其他 Chrome 插件，以 [嗅出任何不良行为者](https://www.ghacks.net/2019/07/22/how-to-search-all-chrome-extensions-for-the-dangerous-unsafe-eval/) 。
 

@@ -1,6 +1,6 @@
 # 如果您仍在使用 Windows 7，则需要此安全更新
 
-> 原文:[https://life hacker . com/if-you-still-use-windows-7-you-need-this-security-1839612838](https://lifehacker.com/if-youre-still-using-windows-7-you-need-this-security-1839612838)
+> 原文：<https://lifehacker.com/if-youre-still-using-windows-7-you-need-this-security-1839612838>
 
 黑客正在使用 BlueKeep 侵入 Windows 电脑，安装一个加密货币挖掘器。该漏洞只会影响运行 Windows 7、Windows Server 2008 R2 和 Windows Server 2008 的系统。
 

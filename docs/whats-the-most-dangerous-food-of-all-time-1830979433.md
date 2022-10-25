@@ -1,6 +1,6 @@
 # 有史以来最危险的食物是什么？
 
-> 原文:[https://gizmodo . com/what-the-most-dangerous-food-of-time-1830979433](https://gizmodo.com/whats-the-most-dangerous-food-of-all-time-1830979433)
+> 原文：<https://gizmodo.com/whats-the-most-dangerous-food-of-all-time-1830979433>
 
 纵观人类历史与食物的关系，有几个主题浮现出来。一是人类喜欢他们的食物味道好。另一个原因是他们喜欢不杀他们。这两种品质经常在同一种食物中结合在一起——例如，苹果味道很好，据我所知是无毒的——但不可避免的是，味道好/不会杀死你的比例有时并不理想。对于一些食物来说，这是一个卖点——比如河豚，这种有毒的鱼你需要一个证书才能正确准备。对其他人来说，致命只是一个不幸的副产品——就像早期锡罐中的合金，有时会导致人们铅中毒。
 

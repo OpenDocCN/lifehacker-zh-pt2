@@ -1,6 +1,6 @@
 # 用苏格兰威士忌冲洗你的脏马提尼酒
 
-> 原文:[https://life hacker . com/rinse-your-dirty-martini-with-scotch-1841306652](https://lifehacker.com/rinse-your-dirty-martini-with-scotch-1841306652)
+> 原文：<https://lifehacker.com/rinse-your-dirty-martini-with-scotch-1841306652>
 
 烟和盐搭配得非常好——只要问问任何一个有绿色大鸡蛋的爸爸就知道了。虽然你通常会在某种烤肉中找到这种风味组合，但它在马提尼中同样出色。
 

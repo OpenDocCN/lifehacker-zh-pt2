@@ -1,6 +1,6 @@
 # 如何识别社交媒体上的假新闻
 
-> 原文:[https://life hacker . com/how-to-spot-fake-news-on-social-media-1840877686](https://lifehacker.com/how-to-spot-fake-news-on-social-media-1840877686)
+> 原文：<https://lifehacker.com/how-to-spot-fake-news-on-social-media-1840877686>
 
 新闻变得越来越令人不安:澳大利亚有 [森林大火](https://lifehacker.com/how-to-help-those-affected-by-the-australian-wildfires-1840776297)[波多黎各有](https://earther.gizmodo.com/a-magnitude-6-4-earthquake-has-knocked-out-power-for-al-1840850931) 地震 [伊朗有](https://www.cnn.com/middleeast/live-news/us-iran-news-01-08-2020/index.html)火药库，这还只是过去几天的事。随着可怕的世界事件的泛滥，你很容易发现自己在浏览社交媒体并感到恐慌。像“BREAKING”(尤其是全部大写)和令人不安的图片这样的词可以抓住我们的注意力，但是现在理解我们正在阅读的信息来自哪里比以往任何时候都更重要。在把一些事情当成事实或者自己分享之前，以下是如何辨别社交媒体上的假消息和合法消息。
 

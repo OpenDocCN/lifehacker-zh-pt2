@@ -1,6 +1,6 @@
 # 为什么没做完的工作能让你成为更好的员工
 
-> 原文:[https://life hacker . com/why-leaving-work-undone-can-make-you-a-better-employee-1835652698](https://lifehacker.com/why-leaving-work-undone-can-make-you-a-better-employee-1835652698)
+> 原文：<https://lifehacker.com/why-leaving-work-undone-can-make-you-a-better-employee-1835652698>
 
 你如何知道你在工作中是否做对了事情？你可能想问问自己还有什么没做。
 

@@ -1,6 +1,6 @@
 # 这些冰淇淋三明治既不含冰淇淋也不含饼干，它们是你做过的最好的
 
-> 原文:[https://the take out . com/recipe-how-to-make-angel-饼干-冰淇淋-三明治-s-1841794789](https://thetakeout.com/recipe-how-to-make-angel-biscuit-ice-cream-sandwiches-s-1841794789)
+> 原文：<https://thetakeout.com/recipe-how-to-make-angel-biscuit-ice-cream-sandwiches-s-1841794789>
 
 *欢迎来到* [***饼干周***](https://thetakeout.com/tag/biscuit-week) *，这是一个特别的时刻，为了珍惜所有快速面包中最黄油和最心爱的。*
 

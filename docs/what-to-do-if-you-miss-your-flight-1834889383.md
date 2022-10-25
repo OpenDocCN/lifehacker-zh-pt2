@@ -1,6 +1,6 @@
 # 如果你错过了航班该怎么办
 
-> 原文:[https://life hacker . com/1834889383](https://lifehacker.com/what-to-do-if-you-miss-your-flight-1834889383)
+> 原文：<https://lifehacker.com/what-to-do-if-you-miss-your-flight-1834889383>
 
 没有比被困在缓慢的安检通道里更让人恐慌的时刻了，因为你知道离你的航班起飞还有几分钟(甚至几秒钟)的时间。如果你一想到要错过航班就吓出一身冷汗，我们希望能给你一些安慰:许多航空公司都有确保你不会被滞留的规定。虽然你是否需要付费通常取决于你多晚到达机场，以及你是否努力通知航空公司你的迟到。
 

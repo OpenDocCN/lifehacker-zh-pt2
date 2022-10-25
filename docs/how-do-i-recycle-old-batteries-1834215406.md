@@ -1,6 +1,6 @@
 # 我如何回收旧电池？
 
-> 原文:[https://life hacker . com/how-do-I-recycle-old-batteries-1834215406](https://lifehacker.com/how-do-i-recycle-old-batteries-1834215406)
+> 原文：<https://lifehacker.com/how-do-i-recycle-old-batteries-1834215406>
 
 当我把可能不应该扔进垃圾桶的东西扔进垃圾桶时，一种强烈的负罪感涌上心头——尤其是电子垃圾。坏掉的耳机可以回收吗？旧笔记本充电器该怎么办？我该怎么处理公寓里堆积的这些废电池呢？
 

@@ -1,6 +1,6 @@
 # 用寿司姜汁盐水来活跃你的柠檬水
 
-> 原文:[https://life hacker . com/liven-up-your ' s 柠檬水配寿司生姜盐水-1836017448](https://lifehacker.com/liven-up-your-lemonade-with-sushi-ginger-brine-1836017448)
+> 原文：<https://lifehacker.com/liven-up-your-lemonade-with-sushi-ginger-brine-1836017448>
 
 买一罐腌寿司姜会改变你的生活。是的，它缓解了我对外卖寿司的焦虑，但我也喜欢在沙拉、 [调料、](https://skillet.lifehacker.com/this-ginger-dressing-tastes-exactly-like-it-came-from-a-1827997044) 和*饮料*中加入生姜及其盐水。(它也是一种精致的小吃，直接从罐子里拿出来。)
 

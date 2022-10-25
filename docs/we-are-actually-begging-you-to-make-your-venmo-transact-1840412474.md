@@ -1,6 +1,6 @@
 # 我们实际上是在恳求你让你的 Venmo 交易保密
 
-> 原文:[https://life hacker . com/we-been-being-you-make-your-venmo-transact-1840412474](https://lifehacker.com/we-are-actually-begging-you-to-make-your-venmo-transact-1840412474)
+> 原文：<https://lifehacker.com/we-are-actually-begging-you-to-make-your-venmo-transact-1840412474>
 
 我们明白，在 Venmo 上向朋友发送或请求金钱时，选择完美的表情符号很有趣。它不应该这么有趣，但不知何故，它是。但每个人都需要找到一种新的方式来获得三秒钟的快乐，因为如果你没有将 Venmo 帐户设置为“私人”，你就会将自己置于危险之中
 

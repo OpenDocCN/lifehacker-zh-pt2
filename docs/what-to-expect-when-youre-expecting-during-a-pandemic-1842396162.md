@@ -1,6 +1,6 @@
 # what to expect when youre expecting during a pandemic 1842396162
 
-> 原文:[https://Jezebel . com/what-to-expect-when-you-expect-in-a-a-疫情-1842396162](https://jezebel.com/what-to-expect-when-youre-expecting-during-a-pandemic-1842396162)
+> 原文：<https://jezebel.com/what-to-expect-when-youre-expecting-during-a-pandemic-1842396162>
 
 经典的怀孕书籍*列出了一些女性在孩子预产期前问自己的常见问题，包括“我能工作到分娩吗？”以及“当我感觉到劳动时，我会知道劳动吗？”(回答:有，也有可能。)书中没有提到的一些问题*“如果我的产科医生被叫去照顾新冠肺炎病人怎么办？”“我应该在家分娩以避免去医院吗？”或者“婴儿会感染冠状病毒吗？”** 
 

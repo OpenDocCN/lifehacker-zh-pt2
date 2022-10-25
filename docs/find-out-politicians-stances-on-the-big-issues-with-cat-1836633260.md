@@ -1,6 +1,6 @@
 # 用“分类推文”找出政治家在重大问题上的立场
 
-> 原文:[https://life hacker . com/find-out-politics-stances-on-the-big-issues-with-cat-1836633260](https://lifehacker.com/find-out-politicians-stances-on-the-big-issues-with-cat-1836633260)
+> 原文：<https://lifehacker.com/find-out-politicians-stances-on-the-big-issues-with-cat-1836633260>
 
 不是每个人都有时间像其他人一样密切关注政治。这并不意味着你应该忽视 2020 年大选前夕发生的事情，因为要处理的事情太多了。相反，让分类推文这样的网站助你一臂之力。
 

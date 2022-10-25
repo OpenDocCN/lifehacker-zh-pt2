@@ -1,6 +1,6 @@
 # 不要再问‘你长大后想做什么？’
 
-> 原文:[https://life hacker . com/stop-quest-what-you-want-to-be-when-you-grow-1833741627](https://lifehacker.com/stop-asking-what-do-you-want-to-be-when-you-grow-up-1833741627)
+> 原文：<https://lifehacker.com/stop-asking-what-do-you-want-to-be-when-you-grow-up-1833741627>
 
 如果你还没有问过你的孩子——或者任何一个孩子——他们长大后想做什么，我推荐你。这是成年人问孩子的默认问题之一，是我们童年时被问及是否想成为医生、宇航员或教师时留下的反射。
 

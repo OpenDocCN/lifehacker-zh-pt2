@@ -1,6 +1,6 @@
 # 是时候设定你的 2019 年金钱目标了
 
-> 原文:[https://life hacker . com/its-time-to-set-your-2019-money-goals-1830990890](https://lifehacker.com/its-time-to-set-your-2019-money-goals-1830990890)
+> 原文：<https://lifehacker.com/its-time-to-set-your-2019-money-goals-1830990890>
 
 既然我们已经谈论了设定目标， [回顾了我们今年的表现](https://twocents.lifehacker.com/did-you-accomplish-your-2018-money-goals-1830981445) ，是时候谈谈明年了。为此，我 2019 年的金钱目标是...
 

@@ -1,6 +1,6 @@
 # 用谷歌助手听安卓上的文章
 
-> 原文:[https://life hacker . com/use-Google-assistant-to-listen-to-articles-on-Android-1844135149](https://lifehacker.com/use-google-assistant-to-listen-to-articles-on-android-1844135149)
+> 原文：<https://lifehacker.com/use-google-assistant-to-listen-to-articles-on-android-1844135149>
 
 这些天来，我的大部分阅读都转向了有声读物——它更容易适应我的时间表，有时也更有趣。我经常发现自己希望能像听有声读物一样听文章。事实证明，通过谷歌助手，Android 可以做这件事。以下是如何做到这一点:
 

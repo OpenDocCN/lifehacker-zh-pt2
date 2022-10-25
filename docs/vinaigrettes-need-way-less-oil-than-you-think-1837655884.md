@@ -1,6 +1,6 @@
 # 醋油沙司需要的油比你想象的要少
 
-> 原文:[https://life hacker . com/vinaigrettes-need-way-less-oil than-you-think-1837655884](https://lifehacker.com/vinaigrettes-need-way-less-oil-than-you-think-1837655884)
+> 原文：<https://lifehacker.com/vinaigrettes-need-way-less-oil-than-you-think-1837655884>
 
 在 [沙拉](https://lifehacker.com/how-to-build-your-perfect-salad-1814206454) 历史的某个点上，大家一致认为正确的调料比例是一份醋三份油。他们都错了。如果你总是对油醋汁配方感到失望，照我做的做:用一半的油，然后从这里开始。就这样，就是这样。
 

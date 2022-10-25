@@ -1,6 +1,6 @@
 # 使用 Alexa 来升级你的万圣节游戏，加入怪异的音乐、尖叫声等等
 
-> 原文:[https://life hacker . com/use-Alexa-to-up-your-Halloween-game-with-ghost-tunes-1839382246](https://lifehacker.com/use-alexa-to-up-your-halloween-game-with-spooky-tunes-1839382246)
+> 原文：<https://lifehacker.com/use-alexa-to-up-your-halloween-game-with-spooky-tunes-1839382246>
 
 再过几天就是万圣节了。取决于你住在哪里，今晚你所在的城市可能会庆祝这个节日。
 

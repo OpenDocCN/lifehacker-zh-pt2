@@ -1,6 +1,6 @@
 # 在脸书直播节目中学习如何制作安妮阿姨亲手做的椒盐卷饼
 
-> 原文:[https://life hacker . com/1843780529](https://lifehacker.com/learn-how-to-make-pretzels-from-auntie-anne-herself-on-1843780529)
+> 原文：<https://lifehacker.com/learn-how-to-make-pretzels-from-auntie-anne-herself-on-1843780529>
 
 无论你是在商场还是在机场买到安妮阿姨的椒盐卷饼(它们还存在于其他地方吗？)，你可能会想念那些咸咸的黄油点心，因为我们在这两个地方都没有花太多时间。如果是这样的话，请在你的日历上标记美国东部时间 5 月 31 日周日下午 4 点，安妮阿姨本人(该连锁店的创始人安妮·贝勒)将在 [脸书现场制作椒盐卷饼教程](https://www.facebook.com/events/464564754407750/) 。虚拟课堂将在该公司现任员工希瑟·尼瑞(Heather Neary)的家中进行，但别担心:安妮阿姨会亲自到场指导。
 

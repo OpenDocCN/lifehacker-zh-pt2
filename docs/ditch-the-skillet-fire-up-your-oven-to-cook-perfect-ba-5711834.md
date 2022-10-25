@@ -1,6 +1,6 @@
 # 用你的烤箱代替煎锅来烹饪完美的培根
 
-> 原文:[https://life hacker . com/ditch-the-skillet-fire-up-your-oven-to-cook-perfect-ba-5711834](https://lifehacker.com/ditch-the-skillet-fire-up-your-oven-to-cook-perfect-ba-5711834)
+> 原文：<https://lifehacker.com/ditch-the-skillet-fire-up-your-oven-to-cook-perfect-ba-5711834>
 
 熏肉的烹饪方法不止一种——所有的方法都很好——但是在烤箱里烘烤就容易程度而言是无与伦比的。没有飞溅的油脂，不需要密切关注，烤箱的低慢均匀加热意味着每一条都非常脆到咸。你甚至不用预热你的烤箱；其实不要更好。
 

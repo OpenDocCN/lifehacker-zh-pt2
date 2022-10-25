@@ -1,6 +1,6 @@
 # 不用拖着孩子去商店就能知道他们的鞋码
 
-> 原文:[https://life hacker . com/get-your-kids-shoe-size-without-drawing-the-ST-1830437088](https://lifehacker.com/get-your-kids-shoe-size-without-dragging-them-to-the-st-1830437088)
+> 原文：<https://lifehacker.com/get-your-kids-shoe-size-without-dragging-them-to-the-st-1830437088>
 
 关于孩子的事情是，他们的小脚不断成长为稍大的脚，不断需要新鞋。
 

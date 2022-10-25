@@ -1,6 +1,6 @@
 # 如何用彩票刮奖器轻松增加赢得“头奖”的机会
 
-> 原文:[https://life hacker . com/how-to-easy-increase-your-the-top-p-1834358376](https://lifehacker.com/how-to-easily-increase-your-chance-of-winning-the-top-p-1834358376)
+> 原文：<https://lifehacker.com/how-to-easily-increase-your-chance-of-winning-the-top-p-1834358376>
 
 刮刮卡一直是我喜欢买的东西。我偶尔会在出门的时候从杂货店的自动售货机里拿一张看起来很有趣的 1 美元或 2 美元的刮刮卡，或者在酒吧的时候买一张填字游戏或宾果游戏卡来打发时间。总而言之，我可能一个月买两三个个，有时候更少，但是我一直有中奖的梦想。
 

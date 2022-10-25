@@ -1,6 +1,6 @@
 # 如何关闭我不再使用的旧服务的帐户？
 
-> 原文:[https://life hacker . com/how-can-I-close-accounts-for-old-services-I-don-use-an-5961930](https://lifehacker.com/how-can-i-close-accounts-for-old-services-i-dont-use-an-5961930)
+> 原文：<https://lifehacker.com/how-can-i-close-accounts-for-old-services-i-dont-use-an-5961930>
 
 在你使用互联网的十年中，你可能已经为在线零售商、游戏网站、信息服务、社交媒体应用等创建了几十个甚至几百个用户账户。如果你不再想或需要访问这些账户，花一个下午的时间去追踪并删除那些过时的。
 

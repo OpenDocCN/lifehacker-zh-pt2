@@ -1,6 +1,6 @@
 # 根据蒙特梭利老师的说法，让你的孩子独立的最好玩具
 
-> 原文:[https://life hacker . com/the-best-toys-to-make-your-kid-independent-依 t-1836319074](https://lifehacker.com/the-best-toys-to-make-your-kid-independent-according-t-1836319074)
+> 原文：<https://lifehacker.com/the-best-toys-to-make-your-kid-independent-according-t-1836319074>
 
 蒙特梭利方法的特点之一是强调独立性。我亲眼目睹了这一点——我不骗你——我七个月大的婴儿在蒙特梭利的第一周回家，学会了如何像斯坦利杯冠军那样用双手拿着自己的瓶子。西蒙·戴维斯(Simone Davies)是一位蒙特梭利教师，也是《蒙特梭利幼儿 》一书的作者，她告诉我，作为父母，我们可以鼓励孩子在家掌握任务，为他们提供建立自主能力的玩具和活动。为了做到这一点，她建议遵循他们的自然兴趣，为他们容易拿到的物品创造特殊的空间(“用托盘或篮子做一些活动的低架子，”她分享了一个例子)，并在附近放上扫帚和布，以便他们可以清理自己的溢出物。这是关于准备一个满足孩子内心需求的环境，玛利亚·蒙台梭利博士曾经用 四个字 [总结道:“帮我一个人做。”](https://www.amazon.com/Childhood-Adolescence-Clio-Montessori/dp/1851091858?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-best-toys-to-make-your-kid-independent-according-t-1836319074&asc_source=&tag=kinjalifehackerlink-20) 
 

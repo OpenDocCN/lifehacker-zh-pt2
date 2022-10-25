@@ -1,6 +1,6 @@
 # 如何在 Gmail 中以附件形式发送多封电子邮件
 
-> 原文:[https://life hacker . com/how-to-send-multiple-email-in-Gmail-1840340511](https://lifehacker.com/how-to-send-multiple-emails-as-attachments-in-gmail-1840340511)
+> 原文：<https://lifehacker.com/how-to-send-multiple-emails-as-attachments-in-gmail-1840340511>
 
 转发电子邮件是让多方参与重要对话的一种简单方式，但您过去在 Gmail 中一次只能转发一封邮件。现在这一切都在改变——不管是好是坏，如果你的朋友和爱人喜欢用烦人的连锁邮件来轰炸你——因为 Gmail 现在允许你将多封邮件作为电子邮件附件附加到其他邮件中。
 

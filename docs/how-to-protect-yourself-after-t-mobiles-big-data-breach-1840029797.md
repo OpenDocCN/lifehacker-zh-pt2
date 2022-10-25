@@ -1,6 +1,6 @@
 # T-Mobile 大数据泄露后如何保护自己
 
-> 原文:[https://life hacker . com/how-to-protect-yourself-after-t-mobiles-big-data-breach-1840029797](https://lifehacker.com/how-to-protect-yourself-after-t-mobiles-big-data-breach-1840029797)
+> 原文：<https://lifehacker.com/how-to-protect-yourself-after-t-mobiles-big-data-breach-1840029797>
 
 T-Mobile 已经证实，一次数据泄露 影响了其部分客户，来自 [TechCrunch](https://techcrunch.com/2019/11/22/more-than-1-million-t-mobile-customers-exposed-by-breach/) 的补充报道称，该数字估计为 100 多万个账户(左右)。换句话说，这是一个很大的突破，但你不应该大惊小怪。不要忽视，但也不要紧张。
 

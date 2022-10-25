@@ -1,6 +1,6 @@
 # 如何帮助你的朋友更好地穿越动物
 
-> 原文:[https://kotaku . com/how-to-help-your-friends-get-better-in-animal-crossing-1842475578](https://kotaku.com/how-to-help-your-friends-get-better-at-animal-crossing-1842475578)
+> 原文：<https://kotaku.com/how-to-help-your-friends-get-better-at-animal-crossing-1842475578>
 
 *动物穿越:新视野*可以有点孤独，但你总能和朋友聚在一起。如果你的朋友不像你一样在游戏中走得那么远，有很多方法可以帮助他们还清房屋贷款，并开始设计他们梦想中的岛屿。
 

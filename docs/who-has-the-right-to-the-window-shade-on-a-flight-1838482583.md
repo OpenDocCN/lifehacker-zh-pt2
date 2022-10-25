@@ -1,6 +1,6 @@
 # 谁有权在飞机上遮阳？
 
-> 原文:[https://life hacker . com/who-has-the-right to the-window-shade-on-a-flight-1838482583](https://lifehacker.com/who-has-the-right-to-the-window-shade-on-a-flight-1838482583)
+> 原文：<https://lifehacker.com/who-has-the-right-to-the-window-shade-on-a-flight-1838482583>
 
 当你在飞机上时，你会失去所有的物理界限感。你和你旁边的乘客共用扶手，而乘客斜靠在你的膝盖上，你的腿部空间又有多小。很自然，你会从小事中寻找安慰——比如从过道的窗户往外看的能力。
 

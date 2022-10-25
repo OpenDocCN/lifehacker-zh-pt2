@@ -1,6 +1,6 @@
 # 如何使用干芥末
 
-> 原文:[https://lifehacker.com/how-to-use-dried-mustard-1845017031](https://lifehacker.com/how-to-use-dried-mustard-1845017031)
+> 原文：<https://lifehacker.com/how-to-use-dried-mustard-1845017031>
 
 如果你问某人芥末“尝起来像什么”，他们可能会告诉你它既是“辛辣的”又是“酸性的”，这是不太正确的。这种半真半假的说法有时会被善意的美食作家 延续下去，他们吹捧芥末是“秘密成分”，可以通过它的“酸度”穿透丰富性，同时声称“黄色、第戎、粒状和粉状芥末都有同样的作用”。
 

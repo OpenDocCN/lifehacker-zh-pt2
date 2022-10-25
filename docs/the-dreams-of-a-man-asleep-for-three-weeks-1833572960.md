@@ -1,6 +1,6 @@
 # the dreams of a man asleep for three weeks 1833572960
 
-> 原文:[https://kotaku . com/the-dreams of-a-man-sleep-three-weeks-1833572960](https://kotaku.com/the-dreams-of-a-man-asleep-for-three-weeks-1833572960)
+> 原文：<https://kotaku.com/the-dreams-of-a-man-asleep-for-three-weeks-1833572960>
 
 2018 年 3 月 22 日，我被紧急送往医院做了救命手术。由于手术的复杂性，直到四月的第二周，我才完全恢复了意识。三个星期以来，我被困在自己的头脑里，受制于一系列似乎永无止境的梦。涵盖各种主题的梦，有些光明而充满希望，有些黑暗而令人沮丧。我一遍又一遍地梦见我生命的终结。我是一个英雄，也是一个恶棍。有时，但不是经常，我是迈克尔法赫。
 

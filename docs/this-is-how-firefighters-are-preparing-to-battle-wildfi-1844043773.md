@@ -1,6 +1,6 @@
 # this is how firefighters are preparing to battle wildfi 1844043773
 
-> 原文:[https://gizmodo . com/this-is-how-that-that-that-that-that-that-that-that-that-that-that-that-that-that-that-that-that-that-that-that-that-that-that-that-that-that-that-that-that-that-that-that-that-would-being-battle-wild fi-1844043773](https://gizmodo.com/this-is-how-firefighters-are-preparing-to-battle-wildfi-1844043773)
+> 原文：<https://gizmodo.com/this-is-how-firefighters-are-preparing-to-battle-wildfi-1844043773>
 
 消防员迈克·费森特到达时，五英里沼泽大火已经在佛罗里达州圣罗莎县的泥泞沼泽中燃烧了近三天。春天的空气中弥漫着刺鼻的浓烟。大风和低湿度帮助火势蔓延到 2000 英亩，是前一天的 10 倍。
 

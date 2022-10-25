@@ -1,6 +1,6 @@
 # 你需要每天出去走走
 
-> 原文:[https://life hacker . com/you-need-to-walk-outside-every-day-1843260445](https://lifehacker.com/you-need-to-walk-outside-every-day-1843260445)
+> 原文：<https://lifehacker.com/you-need-to-walk-outside-every-day-1843260445>
 
 当我们的健身选择有限时，不要忽视步行的好处。散步是免费的。行走不需要任何花哨的设备，也不需要专业知识。走路是最基本的运动，是我们年轻时最先学会做的事情之一。
 

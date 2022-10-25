@@ -1,6 +1,6 @@
 # 了解你的权利:公共场合的摄影
 
-> 原文:[https://life hacker . com/know-your-rights-photography-in-public-5912250](https://lifehacker.com/know-your-rights-photography-in-public-5912250)
+> 原文：<https://lifehacker.com/know-your-rights-photography-in-public-5912250>
 
 拍照手机的无处不在让每个外行人都变成了半专业摄影师，社交媒体让照片和视频更容易像野火一样在互联网上传播。有时候，那些照片和视频甚至最终改变了历史的进程，或者 [点燃了](https://www.nbcnewyork.com/news/local/Eric-Garner-Death-Chokehold-Investigation-272043511.html) 一场运动。不过，无论你是拿着价值 5000 美元的徕卡还是 iPhone，公共场所的摄影规则都是适用的。
 

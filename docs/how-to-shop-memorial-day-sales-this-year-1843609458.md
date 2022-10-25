@@ -1,6 +1,6 @@
 # 今年阵亡将士纪念日如何购物
 
-> 原文:[https://life hacker . com/how-to-shop-memorial-day-sales-this-year-1843609458](https://lifehacker.com/how-to-shop-memorial-day-sales-this-year-1843609458)
+> 原文：<https://lifehacker.com/how-to-shop-memorial-day-sales-this-year-1843609458>
 
 如果你正盯着阵亡将士纪念日或黑色星期五这样的重大购物节日，仍然不清楚你想买什么，想在哪里买，以及如何知道你是否买到了一笔好交易，我有四条建议给你:
 

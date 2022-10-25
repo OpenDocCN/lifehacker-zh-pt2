@@ -1,6 +1,6 @@
 # 如何在 Alexa 上屏蔽一首你讨厌的歌
 
-> 原文:[https://life hacker . com/how-to-block-a-song-you-hate-on-Alexa-1844484077](https://lifehacker.com/how-to-block-a-song-you-hate-on-alexa-1844484077)
+> 原文：<https://lifehacker.com/how-to-block-a-song-you-hate-on-alexa-1844484077>
 
 摘自我的疫情日记，第 132 天:“孩子们今天让 Alexa 玩了 53 次‘咆哮’。我能感觉到我的理智在下滑。如果我不能让凯蒂·佩里停下来，我担心我会做什么。”
 

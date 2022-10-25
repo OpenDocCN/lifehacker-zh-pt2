@@ -1,6 +1,6 @@
 # 如何防止你的信用卡发行人取消你的卡
 
-> 原文:[https://life hacker . com/how-to-prevent-your-card-issuer-canceling-y-1831730435](https://lifehacker.com/how-to-prevent-your-credit-card-issuer-from-canceling-y-1831730435)
+> 原文：<https://lifehacker.com/how-to-prevent-your-credit-card-issuer-from-canceling-y-1831730435>
 
 如果你过去有过信用卡债务，或者你有一张真的不再使用的旧卡，你可能已经读过这样的建议，你不应该实际上 [取消你的卡](https://lifehacker.com/when-should-you-close-an-old-credit-card-1826428736) ，而是保持它开放以提高你的信用评分(更多关于 [如何工作在这里](https://lifehacker.com/the-5-factors-behind-your-credit-score-1797277397) )。理论上，这是个不错的计划。但是如果你不经常使用你的卡，你的发卡机构可能会帮你取消它。
 

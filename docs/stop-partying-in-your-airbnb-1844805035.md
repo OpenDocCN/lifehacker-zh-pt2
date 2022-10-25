@@ -1,6 +1,6 @@
 # 停止在你的 Airbnb 上开派对
 
-> 原文:[https://life hacker . com/stop-party-in-your-Airbnb-1844805035](https://lifehacker.com/stop-partying-in-your-airbnb-1844805035)
+> 原文：<https://lifehacker.com/stop-partying-in-your-airbnb-1844805035>
 
 我们进入全球疫情已经好几个月了(你听说了吗？)看不到尽头，虽然不需要说，*请:*停止举办面对面的聚会。绝对不要在你租的 Airbnb 上开派对——如果你这样做，你可能会被禁止在该服务上预订。
 

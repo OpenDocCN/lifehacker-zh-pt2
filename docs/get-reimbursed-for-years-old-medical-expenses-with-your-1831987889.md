@@ -1,6 +1,6 @@
 # 用你的 HSA 报销多年的医疗费用
 
-> 原文:[https://life hacker . com/get-报销 1831987889](https://lifehacker.com/get-reimbursed-for-years-old-medical-expenses-with-your-1831987889)
+> 原文：<https://lifehacker.com/get-reimbursed-for-years-old-medical-expenses-with-your-1831987889>
 
 如果你有一个 [健康储蓄账户](https://lifehacker.com/what-is-a-health-savings-account-and-should-i-use-one-5860805) 附属于你的高免赔额健康计划，你很可能知道你可以用它来报销全年的医疗费用。但是 HSA 还有另一个好处:报销没有时间限制。只要你在积累医疗账单时有 HSA 开放，你就可以得到费用的补偿——即使是在事情发生多年后。
 

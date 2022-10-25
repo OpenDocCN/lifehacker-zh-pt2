@@ -1,6 +1,6 @@
 # 从这本终极指南开始学习 HTML 和 CSS
 
-> 原文:[https://life hacker . com/start-learning-html-and-CSS-with-this-ultimate-guide-1832590949](https://lifehacker.com/start-learning-html-and-css-with-this-ultimate-guide-1832590949)
+> 原文：<https://lifehacker.com/start-learning-html-and-css-with-this-ultimate-guide-1832590949>
 
 学习 web 开发有很多方法，你的问题可能是如何选择一个起点。CSS-Tricks 设计网站有自己的学习 HTML 和 CSS 的指南—[将大量的选择汇集成一个范围广泛但易于理解的列表](https://css-tricks.com/where-do-you-learn-html-css-in-2019/) 。
 

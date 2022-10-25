@@ -1,6 +1,6 @@
 # 如何在 Android 上恢复 Gmail 缺失的黑暗模式
 
-> 原文:[https://life hacker . com/how-to-restore-gmails-missing-dark-mode-on-Android-1841426472](https://lifehacker.com/how-to-restore-gmails-missing-dark-mode-on-android-1841426472)
+> 原文：<https://lifehacker.com/how-to-restore-gmails-missing-dark-mode-on-android-1841426472>
 
 作为一个拥有 Gmail 地址的 iPhone 用户，我很羡慕所有能够在 Gmail 应用程序中使用黑暗模式的 Android 用户。虽然谷歌*声称*这样神奇的 [可以在 iOS 上使用](https://support.google.com/mail/answer/9460619?co=GENIE.Platform%3DiOS&hl=en-GB) ，但我从未见过这个选项——而且我并不孤单。因此，最近有报道称，Android 上的 Gmail 应用程序在某些情况下出现并消失了黑暗模式，这让我有点幸灾乐祸。
 

@@ -1,6 +1,6 @@
 # 如何修复影响 Windows 7 电脑的“关机”错误
 
-> 原文:[https://life hacker . com/how-to-fix-the-shut-down-bug-affecting-windows-7-PCs-1841581231](https://lifehacker.com/how-to-fix-the-shut-down-bug-affecting-windows-7-pcs-1841581231)
+> 原文：<https://lifehacker.com/how-to-fix-the-shut-down-bug-affecting-windows-7-pcs-1841581231>
 
 2020 年 1 月 14 日，本应是*标志着正式 Windows 7 支持的结束，但新的 bug 不断出现，需要微软的关注。最新的一个阻止用户关闭或重启他们的电脑，操作系统声称你没有“权限”这样做，即使你使用的是管理员帐户。*
 

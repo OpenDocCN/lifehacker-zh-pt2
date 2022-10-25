@@ -1,6 +1,6 @@
 # 如何测试 Twitter 的新功能(并帮助修复它)
 
-> 原文:[https://life hacker . com/how-to-test-twitters-new-features-and-help-fix-it-for-1832785823](https://lifehacker.com/how-to-test-twitters-new-features-and-help-fix-it-for-1832785823)
+> 原文：<https://lifehacker.com/how-to-test-twitters-new-features-and-help-fix-it-for-1832785823>
 
 讨厌推特？看腻了推文乱序？对它的界面有长期的抱怨。对特朗普的荒谬推文感到恼火？
 

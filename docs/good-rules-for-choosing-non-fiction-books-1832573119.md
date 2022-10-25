@@ -1,6 +1,6 @@
 # 选择非小说类书籍的好规则
 
-> 原文:[https://life hacker . com/good-rules-for-choice-non-fiction-books-1832573119](https://lifehacker.com/good-rules-for-choosing-non-fiction-books-1832573119)
+> 原文：<https://lifehacker.com/good-rules-for-choosing-non-fiction-books-1832573119>
 
 我有几个选择非小说类书籍的规则:我不会读一本承诺揭露一个组织或领域的“内幕秘密”的书。(作者只知道 1%的秘密，他们会过分吹捧。)如果我发现一本书太宽泛或者太有挑战性，我会降低阅读级别——或者甚至找一本有可靠合著者的 [漫画版](https://www.amazon.com/Logicomix-search-truth-Apostolos-Doxiadis/dp/1596914521?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/good-rules-for-choosing-non-fiction-books-1832573119&asc_source=&tag=kinjalifehackerlink-20) 。我不会像看小说那样沉迷于此——有时我只需要读一章。
 

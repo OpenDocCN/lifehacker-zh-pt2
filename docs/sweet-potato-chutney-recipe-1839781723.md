@@ -1,6 +1,6 @@
 # 你可以用山药做红薯酸辣酱
 
-> 原文:[https://the take out . com/sweet-potato-chutney-recipe-1839781723](https://thetakeout.com/sweet-potato-chutney-recipe-1839781723)
+> 原文：<https://thetakeout.com/sweet-potato-chutney-recipe-1839781723>
 
 如果每个人都像他们说的那样喜欢红莓酱，他们会一年吃不止一次。我敢说有些人根本不喜欢红莓酱！现在，我并不是建议我们在感恩节餐桌上取消蔓越莓酱，哦不。我是建议我们扩大调味品的选择，提供各种口味和质地。就像你永远不应该强迫别人在 [热狗](https://thetakeout.com/in-praise-of-the-plain-hot-dog-1827179524) 上涂番茄酱一样，你也不应该强迫他们在火鸡上涂红莓酱。
 

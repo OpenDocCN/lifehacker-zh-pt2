@@ -1,6 +1,6 @@
 # 谷歌 Pixel 3 评论:制造黑仔手机的另一种方式
 
-> 原文:[https://gizmodo . com/Google-pixel-3-review-the-other-way-to-make-a-killer-p-1829749807](https://gizmodo.com/google-pixel-3-review-the-other-way-to-make-a-killer-p-1829749807)
+> 原文：<https://gizmodo.com/google-pixel-3-review-the-other-way-to-make-a-killer-p-1829749807>
 
 智能手机改进的历史很大程度上依赖于公司将更快或更强大的组件塞进我们随身携带的无处不在的玻璃板中。但是像素 3 是另一回事。Pixel 3 的优势几乎都来自软件优先的思维，而不是专注于更亮的屏幕、大量内存或多个后置摄像头。这导致了更智能、更直观的体验，感觉与谷歌的许多竞争对手采用的硬件驱动的方法非常不同。虽然这不是谷歌第一次尝试这样的东西，但这第三个 Pixel(我们对它和 Pixel 3 XL 都进行了评估)是真正汇集了谷歌所有努力的设备，让它感觉很特别。
 

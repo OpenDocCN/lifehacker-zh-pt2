@@ -1,6 +1,6 @@
 # 如何在不恶化环境的情况下洗衣服
 
-> 原文:[https://life hacker . com/how-to-do-doing-doing-not-make-the-environment-worse-1833881820](https://lifehacker.com/how-to-do-laundry-without-making-the-environment-worse-1833881820)
+> 原文：<https://lifehacker.com/how-to-do-laundry-without-making-the-environment-worse-1833881820>
 
 当我洗一两次衣服时，我经常对自己说:在化学清洁剂、巨大的用水量和有棘手污渍的干洗店的帮助之间，我是一个差劲的环保主义者吗？
 

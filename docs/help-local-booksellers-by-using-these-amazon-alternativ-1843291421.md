@@ -1,6 +1,6 @@
 # 通过使用这些亚马逊替代品来帮助当地书商
 
-> 原文:[https://life hacker . com/help-local-booksellers-by-using-these-Amazon-alternativ-1843291421](https://lifehacker.com/help-local-booksellers-by-using-these-amazon-alternativ-1843291421)
+> 原文：<https://lifehacker.com/help-local-booksellers-by-using-these-amazon-alternativ-1843291421>
 
 你是爱还是恨亚马逊并不重要。现在，有两个事实是清楚的:从零售巨头那里收到非必需品可能要花更长一点的时间，这取决于你点了什么和你什么时候点的；因为一切与冠状病毒有关的事情，现在有一大堆小企业正在停业。
 

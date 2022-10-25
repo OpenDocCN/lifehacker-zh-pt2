@@ -1,6 +1,6 @@
 # here are all the ways you can dispose of a dead body 1836055910
 
-> 原文:[https://life hacker . com/here-are-all-the-way-you-can-dispose-a-dead-body-1836055910](https://lifehacker.com/here-are-all-the-ways-you-can-dispose-of-a-dead-body-1836055910)
+> 原文：<https://lifehacker.com/here-are-all-the-ways-you-can-dispose-of-a-dead-body-1836055910>
 
 死亡在很大程度上是一个谜，在我们将如何以及何时离开人世之间，在坟墓之外是否有任何东西——你知道，所有令人愉快的东西。虽然很多事情都不在我们的控制之内，但我们通常可以选择即将到来的死亡的一个方面:我们的身体会发生什么。
 

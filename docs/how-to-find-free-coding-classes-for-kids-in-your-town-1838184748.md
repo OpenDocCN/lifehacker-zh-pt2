@@ -1,6 +1,6 @@
 # 如何为你所在的城市的孩子找到免费的编码课程
 
-> 原文:[https://life hacker . com/how-to-find-free-coding-classes-for-kids-in-your-town-1838184748](https://lifehacker.com/how-to-find-free-coding-classes-for-kids-in-your-town-1838184748)
+> 原文：<https://lifehacker.com/how-to-find-free-coding-classes-for-kids-in-your-town-1838184748>
 
 当我还是个孩子的时候，我无法想象学习编码、建立网站或创建应用程序或游戏。(好吧，我仍然无法想象做那些事情，但我甚至无法正常工作我儿子的 Kindle Fire，所以在技术方面我有点混乱。)然而，我们的数字原生儿童却对此津津乐道。
 

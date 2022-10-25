@@ -1,6 +1,6 @@
 # 感恩节周末旅行的最佳和最差时机
 
-> 原文:[https://life hacker . com/the-best-and-worst-times to travel-this-thanksgiving-we-1830474878](https://lifehacker.com/the-best-and-worst-times-to-travel-this-thanksgiving-we-1830474878)
+> 原文：<https://lifehacker.com/the-best-and-worst-times-to-travel-this-thanksgiving-we-1830474878>
 
 如果你计划今年感恩节上路，开车有正确和错误的时机。查看谷歌地图的历史数据，谷歌刚刚发布了美国 25 个城市感恩节期间最佳和最差出行时间的建议。今年，该公司还进一步研究了人们通常在一周中去酒店或电影院等场所的时间，以防你父母的房子不是你唯一的周末目的地。
 

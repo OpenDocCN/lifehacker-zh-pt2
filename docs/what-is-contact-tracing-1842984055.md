@@ -1,6 +1,6 @@
 # 什么是联系追踪？
 
-> 原文:[https://lifehacker.com/what-is-contact-tracing-1842984055](https://lifehacker.com/what-is-contact-tracing-1842984055)
+> 原文：<https://lifehacker.com/what-is-contact-tracing-1842984055>
 
 接触者追踪是遏制疾病爆发的关键工具。对新冠肺炎来说，这也是世界卫生组织放松距离限制的指导方针等计划的关键部分。那么什么是接触追踪，它是如何工作的？
 

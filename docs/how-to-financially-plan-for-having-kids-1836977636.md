@@ -1,6 +1,6 @@
 # 如何为生孩子做财务规划
 
-> 原文:[https://life hacker . com/how-to-financial-plan-1836977636](https://lifehacker.com/how-to-financially-plan-for-having-kids-1836977636)
+> 原文：<https://lifehacker.com/how-to-financially-plan-for-having-kids-1836977636>
 
 你可能听说过“孩子不便宜”这句话，但准确地说，根据政府数据，将一个孩子抚养到 17 岁将花费大约 233，610 美元(T2)。
 

@@ -1,6 +1,6 @@
 # 谷歌如何在地图中识别交通堵塞
 
-> 原文:[https://life hacker . com/how-Google-recognizes-traffic-jams-in-maps-1841455880](https://lifehacker.com/how-google-recognizes-traffic-jams-in-maps-1841455880)
+> 原文：<https://lifehacker.com/how-google-recognizes-traffic-jams-in-maps-1841455880>
 
 柏林艺术家西蒙·韦克特(Simon Weckert)最近“黑”了谷歌地图，他在一辆红色货车上装满了 99 部运行谷歌地图的 iPhone，并在城市里拖到 [欺骗服务，让它认为有交通堵塞](https://www.cnn.com/style/article/artist-google-traffic-jam-alert-trick-scli-intl/index.html) ，而实际上并没有。
 

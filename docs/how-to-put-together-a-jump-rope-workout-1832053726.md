@@ -1,6 +1,6 @@
 # 如何进行跳绳锻炼
 
-> 原文:[https://life hacker . com/how-to-put-together-a-jump-rope-workout-1832053726](https://lifehacker.com/how-to-put-together-a-jump-rope-workout-1832053726)
+> 原文：<https://lifehacker.com/how-to-put-together-a-jump-rope-workout-1832053726>
 
 如果你整个月都在和我们一起跳绳，你可能已经掌握了基本的跳跃，甚至一些花式动作。那么，如何在一次完整的锻炼中运用你的新技能呢？这里有一些想法。
 

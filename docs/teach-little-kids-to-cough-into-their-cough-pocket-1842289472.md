@@ -1,6 +1,6 @@
 # 教小孩子对着他们的“咳嗽袋”咳嗽
 
-> 原文:[https://life hacker . com/teach-little-kids-to-咳嗽到他们的咳嗽口袋-1842289472](https://lifehacker.com/teach-little-kids-to-cough-into-their-cough-pocket-1842289472)
+> 原文：<https://lifehacker.com/teach-little-kids-to-cough-into-their-cough-pocket-1842289472>
 
 随着冠状病毒进入我们的社区，我们储备了消毒剂和洗手液(如果我们能找到的话)，我们终于学会了如何正确洗手在一生的肥皂泡沫不足之后，现在我们必须让我们的孩子停止到处咳嗽。
 

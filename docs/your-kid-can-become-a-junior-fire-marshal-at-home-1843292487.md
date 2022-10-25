@@ -1,6 +1,6 @@
 # 你的孩子可以在家里成为初级消防队长
 
-> 原文:[https://life hacker . com/your-kid-can-be-a-junior-fire-marshal-in-home-1843292487](https://lifehacker.com/your-kid-can-become-a-junior-fire-marshal-at-home-1843292487)
+> 原文：<https://lifehacker.com/your-kid-can-become-a-junior-fire-marshal-at-home-1843292487>
 
 70 多年来，哈特福德保险集团一直在培训孩子们成为" [初级消防队长](https://www.juniorfiremarshal.com/)"——现在，随着许多孩子在疫情期间辍学，该公司已经创建了一个在线培训学院，这样孩子们就可以继续在自己的家中安全地学习防火知识。
 

@@ -1,6 +1,6 @@
 # 如何烹饪鸡脖子
 
-> 原文:[https://lifehacker.com/how-to-cook-chicken-necks-1833545742](https://lifehacker.com/how-to-cook-chicken-necks-1833545742)
+> 原文：<https://lifehacker.com/how-to-cook-chicken-necks-1833545742>
 
 吃动物的时候，尽可能多的吃那种动物是很重要的，而且通常不是那些“不寻常”的部分是最美味的。 [猪脸](https://skillet.lifehacker.com/will-it-sous-vide-the-head-of-a-pig-1797683697) 如此，鸡脖子也是如此。
 

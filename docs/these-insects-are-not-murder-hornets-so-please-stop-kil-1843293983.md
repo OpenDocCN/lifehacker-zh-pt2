@@ -1,6 +1,6 @@
 # 这些昆虫不是“谋杀黄蜂”,所以请停止杀害它们
 
-> 原文:[https://life hacker . com/these-昆虫-不是-谋杀-黄蜂-所以请-停止-杀死-1843293983](https://lifehacker.com/these-insects-are-not-murder-hornets-so-please-stop-kil-1843293983)
+> 原文：<https://lifehacker.com/these-insects-are-not-murder-hornets-so-please-stop-kil-1843293983>
 
 是的，亚洲大黄蜂体型大，而且有条纹。但其他几种昆虫也是如此。如果你看到一些看起来有点像 [的东西，这些你听说过太多关于](https://vitals.lifehacker.com/murder-hornets-are-unlikely-to-murder-you-personally-1843264533) 的“谋杀大黄蜂”，你可能会忍不住杀死它和/或说服自己末日真的到来了。但是请不要。这几乎可以肯定是认错人了。
 

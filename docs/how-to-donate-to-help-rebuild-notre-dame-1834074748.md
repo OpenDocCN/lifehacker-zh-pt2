@@ -1,6 +1,6 @@
 # 如何捐款帮助重建巴黎圣母院
 
-> 原文:[https://life hacker . com/how-to-donate-to-help-rebuild-notre-dame-1834074748](https://lifehacker.com/how-to-donate-to-help-rebuild-notre-dame-1834074748)
+> 原文：<https://lifehacker.com/how-to-donate-to-help-rebuild-notre-dame-1834074748>
 
 昨天，全世界都目睹了法国和天主教的象征——巴黎圣母院在一场毁灭性的大火中燃烧，大火掀翻了教堂的尖顶，并摧毁了大部分木质屋顶。这座大教堂正处于大规模修复过程中。
 

@@ -1,6 +1,6 @@
 # 带着苦涩的吊索融入节日气氛
 
-> 原文:[https://life hacker . com/get-into-the-holiday-spirit with-a-bittered-sling-1831101230](https://lifehacker.com/get-into-the-holiday-spirit-with-a-bittered-sling-1831101230)
+> 原文：<https://lifehacker.com/get-into-the-holiday-spirit-with-a-bittered-sling-1831101230>
 
 各位周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周，我们将制作一款提神饮料，让你融入节日精神——苦啤酒。
 

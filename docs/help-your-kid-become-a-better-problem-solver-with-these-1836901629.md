@@ -1,6 +1,6 @@
 # 用这些视频游戏帮助你的孩子成为一个更好的问题解决者
 
-> 原文:[https://life hacker . com/help-your-kid-be-a-better-solver-with things-1836901629](https://lifehacker.com/help-your-kid-become-a-better-problem-solver-with-these-1836901629)
+> 原文：<https://lifehacker.com/help-your-kid-become-a-better-problem-solver-with-these-1836901629>
 
 如果你有一段时间没有拿起控制器，你可能会把你的孩子的视频游戏视为无意识的乐趣，或者作为他们打扫房间的奖励。但是视频游戏可不止这些。当沉浸在虚拟世界中时，孩子们可以学习如何解决复杂的问题——，这是他们在屏幕上的生活结束后很久还需要的技能。
 

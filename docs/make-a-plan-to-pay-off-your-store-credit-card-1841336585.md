@@ -1,6 +1,6 @@
 # 制定一个偿还你商店信用卡的计划
 
-> 原文:[https://life hacker . com/make-a-plan-to-pay-off-your-store-信用卡-1841336585](https://lifehacker.com/make-a-plan-to-pay-off-your-store-credit-card-1841336585)
+> 原文：<https://lifehacker.com/make-a-plan-to-pay-off-your-store-credit-card-1841336585>
 
 还记得那次我们告诉你 [不要在收银台注册商店信用卡](https://lifehacker.com/never-sign-up-for-store-cards-at-the-register-1838921912) 吗？根据上周 [对比卡](https://www.comparecards.com/blog/fewer-americans-pay-store-cards-quickly-post-holiday/) 发布的数据，你们很多人没有听进去。根据 12 月下旬进行的一项调查，在刚刚过去的假日季节，37%的美国人申请了商店信用卡。
 

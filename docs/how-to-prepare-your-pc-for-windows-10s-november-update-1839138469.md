@@ -1,6 +1,6 @@
 # 如何为 Windows 10 的 11 月更新准备您的电脑
 
-> 原文:[https://life hacker . com/how-to-prepare-your-PC-for-windows-10s-November-update-1839138469](https://lifehacker.com/how-to-prepare-your-pc-for-windows-10s-november-update-1839138469)
+> 原文：<https://lifehacker.com/how-to-prepare-your-pc-for-windows-10s-november-update-1839138469>
 
 微软正在准备其下一个主要的 Windows 10 更新版本 1909 的公开发布。这些主要版本一年出现两次，第一次在春季，第二次在秋季，通常包括许多新特性、更新和补丁。然而，它们也会带来一些主要的错误和烦恼，所以在你投入 Windows 10 版本 1909 之前，花一些时间准备你的电脑是值得的。
 

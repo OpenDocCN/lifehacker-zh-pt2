@@ -1,6 +1,6 @@
 # 今天如何试用 Chrome 86 的大电池节省修复
 
-> 原文:[https://life hacker . com/how-to-try-out-chrome-86s-big-battery-saving-fix-today-1844283047](https://lifehacker.com/how-to-try-out-chrome-86s-big-battery-saving-fix-today-1844283047)
+> 原文：<https://lifehacker.com/how-to-try-out-chrome-86s-big-battery-saving-fix-today-1844283047>
 
 谷歌 Chrome 令人难以置信的拖慢系统的能力可能很快就会成为过去。最新的 Chrome Canary 版本包括 Chrome 处理后台网站的方式的重大变化，这可能会减少 Chrome 对设备电池寿命的压力。这些变化应该有望成为 Windows、Mac、Android、Linux 和 Chrome OS 的 Chrome 86 更新的一部分，成为稳定版本。
 

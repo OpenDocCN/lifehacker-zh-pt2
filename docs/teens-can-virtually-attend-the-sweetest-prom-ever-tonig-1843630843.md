@@ -1,6 +1,6 @@
 # 青少年今晚几乎可以参加“史上最甜蜜的舞会”
 
-> 原文:[https://life hacker . com/tenes-can-virtual-accept-the-sweet-prom-ever-tonig-1843630843](https://lifehacker.com/teens-can-virtually-attend-the-sweetest-prom-ever-tonig-1843630843)
+> 原文：<https://lifehacker.com/teens-can-virtually-attend-the-sweetest-prom-ever-tonig-1843630843>
 
 奇普斯嗨！酸补丁孩子们今晚将举办“有史以来最甜蜜的舞会”，这是一场由史蒂夫·青木主办的虚拟舞会体验。
 

@@ -1,6 +1,6 @@
 # 在机场购买机票可以节省机票预订费用
 
-> 原文:[https://life hacker . com/通过在 t-1836182915 购买机票节省航空订票费用](https://lifehacker.com/save-on-airline-booking-fees-by-buying-your-ticket-at-t-1836182915)
+> 原文：<https://lifehacker.com/save-on-airline-booking-fees-by-buying-your-ticket-at-t-1836182915>
 
 在机场购买机票充其量只是我们过去的遗物，就像在飞行时盛装打扮或在巡航高度吸烟一样。最糟糕的是，这是一个让你进入安检处特别安检通道的好方法。但是 [亚利桑那州](https://www.azcentral.com/story/travel/airlines/2019/07/02/cheap-allegiant-frontier-spirit-plane-tickets-buy-at-the-airport-save-money/1553334001/) 的梅丽莎·耶格尔发现，如果你有耐心并且喜欢去机场，这可以为你节省预订费用。
 

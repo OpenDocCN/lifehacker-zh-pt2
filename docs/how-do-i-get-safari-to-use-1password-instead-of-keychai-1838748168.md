@@ -1,6 +1,6 @@
 # 如何让 Safari 使用^ 1 密码而不是钥匙串？
 
-> 原文:[https://life hacker . com/how-do-I-get-safari-to-use-1 password-inst-of-key chai-1838748168](https://lifehacker.com/how-do-i-get-safari-to-use-1password-instead-of-keychai-1838748168)
+> 原文：<https://lifehacker.com/how-do-i-get-safari-to-use-1password-instead-of-keychai-1838748168>
 
 欢迎回到 Tech 911，Lifehacker 的 [每周技术建议专栏](https://lifehacker.com/c/tech-911) 。本周，我们要解决一位读者的问题，他发现当他的浏览器提示他保存一项他不愿意使用的服务的密码时，这很烦人。这听起来像你吗？请继续阅读。
 

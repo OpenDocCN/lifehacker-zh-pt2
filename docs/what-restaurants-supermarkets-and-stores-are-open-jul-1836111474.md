@@ -1,6 +1,6 @@
 # 2019 年 7 月 4 日有哪些餐馆、超市和商店开门营业
 
-> 原文:[https://life hacker . com/what-restaurants-supermarks-and-stores-open-jul-1836111474](https://lifehacker.com/what-restaurants-supermarkets-and-stores-are-open-jul-1836111474)
+> 原文：<https://lifehacker.com/what-restaurants-supermarkets-and-stores-are-open-jul-1836111474>
 
 独立日是大多数美国人的节日，这意味着你的许多朋友和家人可能会放假一天，就像许多在你经常去的地方工作的人一样，比如餐馆、超市或商店。这很好，因为你的大多数朋友可能会参加你的假日烧烤，但如果你没有派对计划，只想出去买个三明治当晚餐，那就不太好了。
 

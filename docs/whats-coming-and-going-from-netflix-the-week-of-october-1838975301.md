@@ -1,6 +1,6 @@
 # 2019 年 10 月 14 日这一周，网飞有哪些来往
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of the-October-1838975301](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-october-1838975301)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-october-1838975301>
 
 凯罗·路德没有衰老。周五，当不太有前途的连续剧《与自己一起生活》首播时，你自己看吧。在这部新角色中，陆克文是一个接受温泉治疗的男人，而*的字面意思是*用一个更好的自己代替了他。我担心这部电影，就像我担心(有充分的理由)不值得一看的弗莱德·阿米森-玛娅·鲁道夫飞行器 *Forever* 一样，它有着同样牵强的假设前提和同样受人喜爱的明星。但我只是一个普通人——凯罗·路德的魅力并没有失去我，所以尽管我有很大的保留，我还是会尝试这个节目。
 

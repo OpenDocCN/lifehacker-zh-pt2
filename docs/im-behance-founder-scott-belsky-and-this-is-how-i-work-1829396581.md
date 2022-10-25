@@ -1,6 +1,6 @@
 # im behance founder scott belsky and this is how i work 1829396581
 
-> 原文:[https://life hacker . com/im-behance-founder-Scott-belsky-and-this-is-how-I-work-1829396581](https://lifehacker.com/im-behance-founder-scott-belsky-and-this-is-how-i-work-1829396581)
+> 原文：<https://lifehacker.com/im-behance-founder-scott-belsky-and-this-is-how-i-work-1829396581>
 
 如果你是一个视觉创意者，你需要表现得。专业的社交平台让艺术家、设计师和其他创作者以高分辨率分享他们的作品，并建立一个可共享的作品集。我们采访了 Behance 创始人 Scott Belsky，他现在是 Adobe 的首席产品官，谈到了他的工作，他的个人捷径，以及他关于企业家精神和创造力的书籍。
 

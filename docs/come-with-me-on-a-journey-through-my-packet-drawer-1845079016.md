@@ -1,6 +1,6 @@
 # 和我一起踏上我的包抽屉之旅
 
-> 原文:[https://life hacker . com/come-with-me-on-a-journey-through-my-packet-drawer-1845079016](https://lifehacker.com/come-with-me-on-a-journey-through-my-packet-drawer-1845079016)
+> 原文：<https://lifehacker.com/come-with-me-on-a-journey-through-my-packet-drawer-1845079016>
 
 除了少量的动物标本，我不是一个真正的大收藏家。不过，我确实会囤积一些消费品，包括盐和酱包。我已经把我的盐 的 [都告诉你了，所以我们来讨论一下酱料。
 

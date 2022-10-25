@@ -1,6 +1,6 @@
 # 不要等着在机场购买升级
 
-> 原文:[https://life hacker . com/don-t-wait-to-buying-a-upgrade-at-airport-1840464313](https://lifehacker.com/dont-wait-to-purchase-an-upgrade-at-the-airport-1840464313)
+> 原文：<https://lifehacker.com/dont-wait-to-purchase-an-upgrade-at-the-airport-1840464313>
 
 我们都知道何时购买机票的诀窍，比如在计划出发日期前 65 天预订，或者在周二早上预订，因为出于某种原因，那是航班最便宜的时候。但是什么时候是购买升级的最佳时机呢？
 

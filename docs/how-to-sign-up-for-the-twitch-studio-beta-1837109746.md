@@ -1,6 +1,6 @@
 # 如何注册 Twitch Studio 测试版
 
-> 原文:[https://life hacker . com/how-to-sign-up-for-the-twitch-studio-beta-1837109746](https://lifehacker.com/how-to-sign-up-for-the-twitch-studio-beta-1837109746)
+> 原文：<https://lifehacker.com/how-to-sign-up-for-the-twitch-studio-beta-1837109746>
 
 本周早些时候，Twitch 宣布计划为游戏玩家开发一款新的一体化流媒体应用程序，名为 Twitch Studio，是该公司的第一款广播软件。
 

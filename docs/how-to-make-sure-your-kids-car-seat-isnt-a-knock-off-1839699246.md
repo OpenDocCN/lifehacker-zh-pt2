@@ -1,6 +1,6 @@
 # 如何确保你孩子的汽车座椅不是山寨的
 
-> 原文:[https://life hacker . com/how-to-assure-your-kids-car-seat-not-a-knock-off-1839699246](https://lifehacker.com/how-to-make-sure-your-kids-car-seat-isnt-a-knock-off-1839699246)
+> 原文：<https://lifehacker.com/how-to-make-sure-your-kids-car-seat-isnt-a-knock-off-1839699246>
 
 在更多的'第三方卖家正在破坏网上购物，并将我们的安全置于危险之中'新闻中，你孩子的汽车座椅可能是假的。
 

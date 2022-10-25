@@ -1,6 +1,6 @@
 # 如果你不想让威瑞森让你的日子不好过，就直接从谷歌购买 Pixel 3 吧
 
-> 原文:[https://life hacker . com/buy-a-pixel-3-from-Google-directly-if-do-want-ver-1829870837](https://lifehacker.com/buy-a-pixel-3-from-google-directly-if-you-dont-want-ver-1829870837)
+> 原文：<https://lifehacker.com/buy-a-pixel-3-from-google-directly-if-you-dont-want-ver-1829870837>
 
 谷歌本周推出了新的 Pixel 3 和 Pixel 3 XL 智能手机，但购买方式很少。虽然许多用户可能从谷歌或威瑞森预购，但百思买和塔吉特是目前销售智能手机的另外两家知名零售商。
 

@@ -1,6 +1,6 @@
 # 如何免费携带额外物品上飞机
 
-> 原文:[https://life hacker . com/how-to-bring extra-stuff-on the plane-but-1844163740](https://lifehacker.com/how-to-bring-extra-stuff-on-the-plane-without-paying-1844163740)
+> 原文：<https://lifehacker.com/how-to-bring-extra-stuff-on-the-plane-without-paying-1844163740>
 
 托运行李自动包含在国内航班经济舱机票中的日子已经一去不复返了。或者没有任何航空公司对随身行李收费，因为，嗯，*这是一件随身行李*。航空公司已经花时间把你的必需品(和非必需品)带上飞机的价格提高了很多，更不用说任何有能力超额包装的乘客了——就像我们中的一些人有这样的倾向。(我是我们中的一部分。)然而，有两种简单的方法可以让你在飞机上得到更多的东西——无需额外付费。
 

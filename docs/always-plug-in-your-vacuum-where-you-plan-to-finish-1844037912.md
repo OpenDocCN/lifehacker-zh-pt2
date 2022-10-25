@@ -1,6 +1,6 @@
 # 总是在你计划结束的地方插上你的吸尘器
 
-> 原文:[https://life hacker . com/always-plug-in-your-vacuum-where-you-plan-to-finish-1844037912](https://lifehacker.com/always-plug-in-your-vacuum-where-you-plan-to-finish-1844037912)
+> 原文：<https://lifehacker.com/always-plug-in-your-vacuum-where-you-plan-to-finish-1844037912>
 
 无线真空吸尘器可能是未来的潮流，但并不是所有人都升级到了似乎所有 Lifehacker 员工都信誓旦旦的这种花哨的无线型号。对于我们这些用插在墙上的机器吸尘的平民来说，一个不变的缺点就是电线本身。
 

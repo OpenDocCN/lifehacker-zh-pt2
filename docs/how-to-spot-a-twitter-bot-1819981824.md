@@ -1,6 +1,6 @@
 # 如何识别推特机器人
 
-> 原文:[https://lifehacker.com/how-to-spot-a-twitter-bot-1819981824](https://lifehacker.com/how-to-spot-a-twitter-bot-1819981824)
+> 原文：<https://lifehacker.com/how-to-spot-a-twitter-bot-1819981824>
 
 我喜欢用我的 [一个狂野而宝贵的生命](https://www.loc.gov/poetry/180/133.html) 在推特回复帖中与陌生人争论。但是我希望他们是真正的 T4 陌生人，而不是机器人、垃圾邮件发送者或假身份。我不想在一个假账户上浪费我的任何过度侮辱和自鸣得意的扣篮。由于机器人占据了 15%的推特用户——[和四分之一的推特气候否定信息账户](https://www.theguardian.com/technology/2020/feb/21/climate-tweets-twitter-bots-analysis) — ，这可以进行一些研究。
 

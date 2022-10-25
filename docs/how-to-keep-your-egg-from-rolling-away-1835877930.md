@@ -1,6 +1,6 @@
 # 如何防止你的鸡蛋滚走
 
-> 原文:[https://life hacker . com/how-to-keep your egg-from-rolling-away 1835877930](https://lifehacker.com/how-to-keep-your-egg-from-rolling-away-1835877930)
+> 原文：<https://lifehacker.com/how-to-keep-your-egg-from-rolling-away-1835877930>
 
 鸡蛋爱做两件事:打滚和打碎。这在最好的情况下是不方便的，在最坏的情况下是混乱的，但是所有的翻滚和脱壳都可以在一个旧塑料饮料盖的帮助下避免。
 

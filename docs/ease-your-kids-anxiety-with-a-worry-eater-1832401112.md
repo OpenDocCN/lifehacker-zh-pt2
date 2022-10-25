@@ -1,6 +1,6 @@
 # 用“担心进食者”缓解孩子的焦虑
 
-> 原文:[https://life hacker . com/ease-your-kids-anxiety-with-a-worry-eater-1832401112](https://lifehacker.com/ease-your-kids-anxiety-with-a-worry-eater-1832401112)
+> 原文：<https://lifehacker.com/ease-your-kids-anxiety-with-a-worry-eater-1832401112>
 
 如果你有一个在焦虑中挣扎的孩子，考虑给他们一个填充动物玩具，它会消除他们的担忧。
 

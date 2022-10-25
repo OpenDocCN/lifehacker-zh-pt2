@@ -1,6 +1,6 @@
 # 玩神奇宝贝的小技巧走吧！Eevee 和皮卡丘
 
-> 原文:[https://kotaku . com/tips-for-playing-pokemon-let-go-eevee-and-pikachu-1830498823](https://kotaku.com/tips-for-playing-pokemon-lets-go-eevee-and-pikachu-1830498823)
+> 原文：<https://kotaku.com/tips-for-playing-pokemon-lets-go-eevee-and-pikachu-1830498823>
 
 神奇宝贝我们走吧！Eevee 和*皮卡丘*并不是最具挑战性的游戏，但是为了充分利用它，我们有一些建议。以下是你成为神奇宝贝冠军之旅的一些小贴士。
 

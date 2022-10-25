@@ -1,6 +1,6 @@
 # 用棉签清理你的开罐器
 
-> 原文:[https://life hacker . com/clean-your-gross-can-opener-with-q-tips-1844957324](https://lifehacker.com/clean-your-gross-can-opener-with-q-tips-1844957324)
+> 原文：<https://lifehacker.com/clean-your-gross-can-opener-with-q-tips-1844957324>
 
 我认为自己是一个干净的人，但我有一个真正的“该死的婊子，你这样生活？”当我被迫检查我的开罐器的状态时。我一直在浏览网页，寻找灵感，这时我偶然发现了一篇来自 KitchnT5】的文章，文章吹嘘了一个“一分钟的小窍门”来清理你恶心、可耻的开罐器。
 

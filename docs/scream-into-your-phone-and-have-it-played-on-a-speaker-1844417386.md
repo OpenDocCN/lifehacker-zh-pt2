@@ -1,6 +1,6 @@
 # 对着你的手机尖叫，让它在冰岛的扬声器里播放
 
-> 原文:[https://life hacker . com/scream-into-your phone-and-has-it-played-on-a-speaker-1844417386](https://lifehacker.com/scream-into-your-phone-and-have-it-played-on-a-speaker-1844417386)
+> 原文：<https://lifehacker.com/scream-into-your-phone-and-have-it-played-on-a-speaker-1844417386>
 
 你最近是不是非常愤怒、沮丧和/或有压力，以至于你只想尽可能长时间地尖叫？我们也是。但事实证明，我们现在可以选择让我们令人毛骨悚然的哀嚎响彻整个国家——确切地说，是冰岛 。这个小岛国，这个你多年来一直想去的地方，却总是有事情发生，为了更大的利益牺牲了它的声音景观。
 

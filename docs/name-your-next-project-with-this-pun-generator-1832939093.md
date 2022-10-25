@@ -1,6 +1,6 @@
 # 用这个双关语生成器命名你的下一个项目
 
-> 原文:[https://life hacker . com/name-your-next-project-with this-pun-generator-1832939093](https://lifehacker.com/name-your-next-project-with-this-pun-generator-1832939093)
+> 原文：<https://lifehacker.com/name-your-next-project-with-this-pun-generator-1832939093>
 
 在 Lifehacker 的母公司 Gizmodo Media，我们喜欢公文包。我们的很多姐妹网站，以及它们的子域名，都是现有单词的组合:Deadspin 让人想起 *backspin* 以及*ESPN*；Gizmodo 包含 *gizmo* 和 *mod* 。Lifehacker 的子网站在一个单词或短语中找到第二个意思: *Skillet* 包含 *skill* ， *Two Cents* 是金钱建议。我们之前已经介绍过一些发明双关语的好工具。现在有了[Entendrepreneur](https://www.punchlinedesign.net/pun_generator)，这是一个强大的工具，可以将任何两个概念组合成一个组合词或一首押韵诗。
 

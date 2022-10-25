@@ -1,6 +1,6 @@
 # 如何帮助波多黎各地震救援工作
 
-> 原文:[https://life hacker . com/how-to-help-Puerto-Rico-震灾救援-努力-1840898288](https://lifehacker.com/how-to-help-puerto-rico-earthquake-relief-efforts-1840898288)
+> 原文：<https://lifehacker.com/how-to-help-puerto-rico-earthquake-relief-efforts-1840898288>
 
 周二，一场 6.4 级的地震袭击了波多黎各岛，引发了一系列余震，夷平了岛上的房屋和建筑；这次地震紧随周一早上同样袭击该岛的 5.8 级 地震之后。
 

@@ -1,6 +1,6 @@
 # 如何阻止机器人向您发送脸书好友请求
 
-> 原文:[https://life hacker . com/how-to-stop-bots-from-sending-you-Facebook-friend-reque-1841166369](https://lifehacker.com/how-to-stop-bots-from-sending-you-facebook-friend-reque-1841166369)
+> 原文：<https://lifehacker.com/how-to-stop-bots-from-sending-you-facebook-friend-reque-1841166369>
 
 自 1 月 1 日起，我每天早上都要清理十几个来自脸书的好友请求，都是我不认识的人发来的。
 

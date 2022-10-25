@@ -1,6 +1,6 @@
 # 最佳网飞纪录片...那不是虎王也不是杀人凶手
 
-> 原文:[https://www . av club . com/the-best-网飞-documentations-that-parent-tiger-king-1843327311](https://www.avclub.com/the-best-netflix-documentaries-that-arent-tiger-king-1843327311)
+> 原文：<https://www.avclub.com/the-best-netflix-documentaries-that-arent-tiger-king-1843327311>
 
 喜欢纪录片的人喜欢网飞，因为流媒体服务提供了如此多引人注目的长篇非小说内容。我们知道你已经读了足够多的关于 [*制造杀人犯*](https://tv.avclub.com/netflix-joins-the-crime-doc-parade-with-the-gripping-ma-1798186062?_ga=2.267732230.922195164.1587918943-1828403206.1576518540) 和 [*虎王*](https://www.avclub.com/tag/tiger-king) (不，你不会在这个列表中找到*虎王 2* )，所以我们已经超越了这些头衔。这个广泛的列表包括其他在影音俱乐部被吹捧的优秀纪录片，目前在网飞也可以看到。
 

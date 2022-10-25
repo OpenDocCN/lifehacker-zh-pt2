@@ -1,6 +1,6 @@
 # 如何防止 Ring 与营销公司共享您的数据
 
-> 原文:[https://life hacker . com/how-to-prevent-ring-shared-your-data-with-market I-1841768023](https://lifehacker.com/how-to-prevent-ring-from-sharing-your-data-with-marketi-1841768023)
+> 原文：<https://lifehacker.com/how-to-prevent-ring-from-sharing-your-data-with-marketi-1841768023>
 
 Ring home 安全设备应该有助于保护您的家人和家庭安全，但事实证明该公司使用其产品向第三方广告商和营销人员出售您的个人数据。电子前沿基金会(EFF)最近 [发表了一份报告](https://www.eff.org/deeplinks/2020/01/ring-doorbell-app-packed-third-party-trackers) 显示 the Ring app 包含未披露的第三方追踪器来收集用户数据，然后出售给其他公司。Ring 追踪并出售用户数据并不令人惊讶——毕竟 Ring 是亚马逊旗下的公司——但它仍然具有侵入性。
 

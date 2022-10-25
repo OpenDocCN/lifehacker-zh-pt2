@@ -1,6 +1,6 @@
 # 这是 2020 年民主党总统候选人的大麻合法化计划
 
-> 原文:[https://life hacker . com/heres-every-2020-民主党-总统候选人-pla-1837070633](https://lifehacker.com/heres-every-2020-democratic-presidential-candidates-pla-1837070633)
+> 原文：<https://lifehacker.com/heres-every-2020-democratic-presidential-candidates-pla-1837070633>
 
 周三，参议员伯尼·桑德斯宣布，如果他当选总统，他将通过行政命令使大麻合法化。就像其他几位民主党候选人(或者所有人——除了一个人)打算让大麻合法化一样，许多总统候选人都有广泛的计划来清除那些被判犯有与大麻相关罪行的人的记录，或者投资大麻研究。
 

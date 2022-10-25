@@ -1,6 +1,6 @@
 # 如何处理从你的车里流出的有毒液体
 
-> 原文:[https://jalopnik . com/how-to-deal-the-gross-toxic-fluids-that-from-1838459578](https://jalopnik.com/how-to-deal-with-the-gross-toxic-fluids-that-come-from-1838459578)
+> 原文：<https://jalopnik.com/how-to-deal-with-the-gross-toxic-fluids-that-come-from-1838459578>
 
 作为自己的机械师，处理汽车液体可能是最痛苦的不方便的事情之一。即使你花钱请人来保养你的车，了解你的车的各种血液的年龄和状况也很重要。
 

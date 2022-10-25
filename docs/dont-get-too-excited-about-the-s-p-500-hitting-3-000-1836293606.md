@@ -1,6 +1,6 @@
 # 不要对标准普尔 500 达到 3000 感到太兴奋
 
-> 原文:[https://life hacker . com/don ' t-get-too-excited-on-the-s-p-500-hitting-3-000-1836293606](https://lifehacker.com/dont-get-too-excited-about-the-s-p-500-hitting-3-000-1836293606)
+> 原文：<https://lifehacker.com/dont-get-too-excited-about-the-s-p-500-hitting-3-000-1836293606>
 
 7 月 10 日，标准普尔 500 首次突破 3000 点大关。虽然这只是几个小时的短暂上涨，但对该指数的观察者来说，这是一个重要的时刻。这一时刻对投资者来说是个好消息，但原因可能不是你想的那样。
 

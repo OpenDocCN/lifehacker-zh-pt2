@@ -1,6 +1,6 @@
 # 关于我们使用加密通信的说明
 
-> 原文:[https://gizmodo . com/a-note-on-our-use-of-encrypted-communication-1837876448](https://gizmodo.com/a-note-on-our-use-of-encrypted-communication-1837876448)
+> 原文：<https://gizmodo.com/a-note-on-our-use-of-encrypted-communication-1837876448>
 
 G/O Media 员工手册的早期草案错误地描述了我们关于加密通信的政策，这造成了一些混乱。需要明确的是:G/O Media 仍然致力于使用可信的报道工具，使我们的记者能够安全、保密地与消息来源沟通。
 

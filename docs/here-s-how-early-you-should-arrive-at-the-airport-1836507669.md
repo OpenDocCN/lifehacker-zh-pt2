@@ -1,6 +1,6 @@
 # 以下是你应该多早到达机场
 
-> 原文:[https://life hacker . com/here-s-how-early-you-should-to-arrive-the-airport-1836507669](https://lifehacker.com/here-s-how-early-you-should-arrive-at-the-airport-1836507669)
+> 原文：<https://lifehacker.com/here-s-how-early-you-should-arrive-at-the-airport-1836507669>
 
 你是否曾经错过航班，不得不像 T1 那样穿过航站楼独自回家？没有吗？你真幸运。不过，如果你有过这样的经历，你就会知道，没有什么比在飞机起飞前几分钟出现更能增加旅行压力的了。
 

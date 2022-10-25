@@ -1,6 +1,6 @@
 # 用新鲜的黑眼豌豆做你最喜欢的豆酱
 
-> 原文:[https://life hacker . com/make-your-new-favorite-bean-dip-with-refried-black-eyed-1834451068](https://lifehacker.com/make-your-new-favorite-bean-dip-with-refried-black-eyed-1834451068)
+> 原文：<https://lifehacker.com/make-your-new-favorite-bean-dip-with-refried-black-eyed-1834451068>
 
 黑眼豆罐头正迅速成为我最喜欢的食品柜主食之一。他们做了一道、一道 [令人惊讶的鹰嘴豆泥](https://skillet.lifehacker.com/black-eyed-pea-hummus-will-make-your-new-year-better-1831468123) ，而且——正如我曾经怀疑的那样——冷冻后非常美味。
 

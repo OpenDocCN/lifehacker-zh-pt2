@@ -1,6 +1,6 @@
 # 如何制作沙拉吧式柠檬芝麻酱
 
-> 原文:[https://life hacker . com/how-to-make-salad-bar-style-lemon-tahini-dressing-1834505604](https://lifehacker.com/how-to-make-salad-bar-style-lemon-tahini-dressing-1834505604)
+> 原文：<https://lifehacker.com/how-to-make-salad-bar-style-lemon-tahini-dressing-1834505604>
 
 我喜欢当地布格杂货店沙拉吧的许多东西，但我最喜欢他们的柠檬芝麻酱。它味道浓郁，有坚果味，有一点扑鼻的甜味，让它接触到的任何蔬菜——甚至是最干的西兰花沙拉——都更加美味。
 

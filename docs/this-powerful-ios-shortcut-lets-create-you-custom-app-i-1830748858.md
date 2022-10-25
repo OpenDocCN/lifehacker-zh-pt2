@@ -1,6 +1,6 @@
 # 这个强大的 iOS 快捷方式可以让你创建自定义的应用程序图标
 
-> 原文:[https://life hacker . com/this-powerful-IOs-shortcut-let-create-you-custom-app-I-1830748858](https://lifehacker.com/this-powerful-ios-shortcut-lets-create-you-custom-app-i-1830748858)
+> 原文：<https://lifehacker.com/this-powerful-ios-shortcut-lets-create-you-custom-app-i-1830748858>
 
 [MacStories](https://www.macstories.net/ios/home-screen-icon-creator-a-shortcut-to-create-custom-icons-for-apps-contacts-solid-colors-and-more/) 博主 Frederico Vitticci 创建了一个非常强大的 iOS 快捷方式，名为 [主屏幕图标创建器](https://www.icloud.com/shortcuts/c205225621f14baca558f13ab2ae734a) ，它允许你创建看起来不同的自定义按钮，如果你想变得有趣，还可以微调当你打开应用程序时会发生什么。它还可以让您为 iOS 快捷方式创建可自定义的图标，以及从您的通讯录中呼叫联系人的图标。
 

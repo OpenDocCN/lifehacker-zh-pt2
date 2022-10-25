@@ -1,6 +1,6 @@
 # 买个喂鸟器，别想太多
 
-> 原文:[https://life hacker . com/get-a-bird-feeder-and-don-t-over-think-it-1844596947](https://lifehacker.com/get-a-bird-feeder-and-dont-overthink-it-1844596947)
+> 原文：<https://lifehacker.com/get-a-bird-feeder-and-dont-overthink-it-1844596947>
 
 观赏鸟类既漂亮又有趣——如果你很懒，你甚至不需要离开房子去看它们。想象一下，当你某天晚上点外卖时，你可以点 *nature* 出现在你家门口。你可以的。挂一个喂鸟器。
 

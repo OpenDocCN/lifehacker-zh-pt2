@@ -1,6 +1,6 @@
 # 与工作相关的倦怠有了新的官方定义
 
-> 原文:[https://life hacker . com/work-related-burnout-now-has-an-official-definition-1835123949](https://lifehacker.com/work-related-burnout-now-has-an-official-definition-1835123949)
+> 原文：<https://lifehacker.com/work-related-burnout-now-has-an-official-definition-1835123949>
 
 我们大多数人都经历过一种模糊的被工作“耗尽”的感觉，但是现在对于这种感觉的真正含义有了一个具体的定义。世界卫生组织最近更新了他们的 [国际疾病分类编码](https://www.who.int/health-topics/international-classification-of-diseases) (ICD-11)，将倦怠定义为一种具有三个维度的综合征。
 

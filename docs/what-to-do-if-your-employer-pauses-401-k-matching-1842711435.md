@@ -1,6 +1,6 @@
 # 如果你的雇主暂停 401(k)匹配怎么办
 
-> 原文:[https://life hacker . com/what-to-do-if-your-employer-pauses-401-k-matching-1842711435](https://lifehacker.com/what-to-do-if-your-employer-pauses-401-k-matching-1842711435)
+> 原文：<https://lifehacker.com/what-to-do-if-your-employer-pauses-401-k-matching-1842711435>
 
 我们已经到达了冠状病毒疫情的一个点，如果你能够在家里安全舒适地保持你的工作和工作，你可能会感到非常幸运。
 

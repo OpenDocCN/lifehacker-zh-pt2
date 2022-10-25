@@ -1,6 +1,6 @@
 # 如何从 Mac 的菜单栏查看您所在位置的空气质量指数
 
-> 原文:[https://life hacker . com/how-to-view-your-locations-air-quality-index-from-your-1830590900](https://lifehacker.com/how-to-view-your-locations-air-quality-index-from-your-1830590900)
+> 原文：<https://lifehacker.com/how-to-view-your-locations-air-quality-index-from-your-1830590900>
 
 除非有问题，否则你真的没有理由考虑空气质量。当有问题的时候，就有一个*问题。*我住在北加州，这场悲剧性的营地火灾给整个地区带来了令人难以置信的不愉快——如果不是不安全的话。由于过去几天糟糕的室外空气质量，学校已经关闭，通常处于官方空气质量指数的“不健康/非常不健康/危险”范围。
 

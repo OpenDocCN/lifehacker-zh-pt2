@@ -1,6 +1,6 @@
 # 据 Reddit 报道，这些事实可以拯救你的生命
 
-> 原文:[https://life hacker . com/these-facts-could-save-your-life-据 reddit-1829973165](https://lifehacker.com/these-facts-could-save-your-life-according-to-reddit-1829973165)
+> 原文：<https://lifehacker.com/these-facts-could-save-your-life-according-to-reddit-1829973165>
 
 生活是不稳定的，没有什么比 Reddit 生成的潜在死亡陷阱列表更能让你欣赏这个事实了。从好的方面来看，一个人的焦虑提示可能是另一个人的生活- 保存知识。
 

@@ -1,6 +1,6 @@
 # 如何支付在线证书课程
 
-> 原文:[https://life hacker . com/how-to-pay-a-online-certificate-program-1845011119](https://lifehacker.com/how-to-pay-for-an-online-certificate-program-1845011119)
+> 原文：<https://lifehacker.com/how-to-pay-for-an-online-certificate-program-1845011119>
 
 对于许多美国人来说，疫情激发了他们对职业发展的兴趣，尤其是他们可能提高未来工作稳定性的方式。 [财经报道](https://money.com/certificate-programs-online-courses-scholarships-loans) 自 3 月份以来，Coursera 等在线学习平台的注册人数大幅上升，许多人希望通过证书课程来提升自己的技能。
 

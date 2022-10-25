@@ -1,6 +1,6 @@
 # 使用此快捷键在 Mac 上的暗模式和亮模式之间切换
 
-> 原文:[https://life hacker . com/switch-with-thi-1838488087](https://lifehacker.com/switch-between-dark-and-light-mode-on-your-mac-with-thi-1838488087)
+> 原文：<https://lifehacker.com/switch-between-dark-and-light-mode-on-your-mac-with-thi-1838488087>
 
 [Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)) : title[![](../Images/80a55aae3a4e6ac59b23fae8fccddf22.png)](https://applemacos.kinja.com)[Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)Many people turn to Macs because they're incredibly easy to operate. That's true, but there's still plenty worth knowing before you can truly master your Mac.
 

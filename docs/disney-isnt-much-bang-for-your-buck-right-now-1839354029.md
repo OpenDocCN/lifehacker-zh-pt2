@@ -1,6 +1,6 @@
 # 迪士尼+现在对你来说没什么好处
 
-> 原文:[https://life hacker . com/Disney-not-more-bang-for your-buck-now-1839354029](https://lifehacker.com/disney-isnt-much-bang-for-your-buck-right-now-1839354029)
+> 原文：<https://lifehacker.com/disney-isnt-much-bang-for-your-buck-right-now-1839354029>
 
 最新最便宜的主流流媒体服务 Disney+给你的回报比网飞、Hulu 和 Prime Video 要少。在提供给 Lifehacker 的一份报告中，对所有流媒体服务进行分类的网站 Reelgood 计算了每项服务提供的节目和电影数量。
 

@@ -1,6 +1,6 @@
 # 如何应对职业生涯的下滑
 
-> 原文:[https://life hacker . com/how-to-cope-a-decline-a-career-1836079630](https://lifehacker.com/how-to-cope-with-a-declining-career-1836079630)
+> 原文：<https://lifehacker.com/how-to-cope-with-a-declining-career-1836079630>
 
 你的职业生涯很可能会在退休前 10-20 年达到巅峰 [。](https://www.theatlantic.com/magazine/archive/2019/07/work-peak-professional-decline/590650/) 之后，你很可能会到达 [你成年后最不开心的时刻](https://lifehacker.com/your-50s-will-probably-be-the-most-unhappy-time-of-your-1821196778) 。如果你没有准备好，职业生涯后期的衰退会让你不安，让你更难过渡到退休，甚至在你计划的年龄退休。为了应对这种转变，你需要改变你的优先事项，让它们在以后的生活中更好地实现。
 

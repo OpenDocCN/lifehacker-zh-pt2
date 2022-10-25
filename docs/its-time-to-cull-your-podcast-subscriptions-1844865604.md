@@ -1,6 +1,6 @@
 # its time to cull your podcast subscriptions 1844865604
 
-> 原文:[https://life hacker . com/its-time-to-cull-your-podcast-subscriptions-1844865604](https://lifehacker.com/its-time-to-cull-your-podcast-subscriptions-1844865604)
+> 原文：<https://lifehacker.com/its-time-to-cull-your-podcast-subscriptions-1844865604>
 
 播客革命让我们中的许多人订阅了几十个播客——如果你和我一样，你会发现自己有一个自助餐的问题:你已经吃了太多了。比你能消耗的还要多。我们的信息来源被我们不再听的剧集塞满了，接下来的剧集增加了一种不断增长的恐惧感。NBC 电视台的*《好地方》* 中非常准确地描述了这种感觉，当时邪恶的恶魔肖恩惩罚了一些人，把他们放在一个空房间里，订阅了《纽约客》杂志，这份杂志将永远堆积如山。受害者永远不会读它们，“但是它们只会...保持...来了。”
 

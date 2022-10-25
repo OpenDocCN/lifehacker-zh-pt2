@@ -1,6 +1,6 @@
 # 下次度假时带上 Chromecast
 
-> 原文:[https://life hacker . com/bring-a-chrome cast-on-your next-vacation-1844997651](https://lifehacker.com/bring-a-chromecast-on-your-next-vacation-1844997651)
+> 原文：<https://lifehacker.com/bring-a-chromecast-on-your-next-vacation-1844997651>
 
 虽然你现在可能不会经常旅行，但每次旅行都有一个热门的新旅行配件:谷歌 Chromecast。
 

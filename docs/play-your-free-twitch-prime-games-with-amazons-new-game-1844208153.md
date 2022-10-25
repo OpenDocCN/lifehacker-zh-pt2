@@ -1,6 +1,6 @@
 # 使用亚马逊的新游戏启动器玩免费的 Twitch Prime 游戏
 
-> 原文:[https://life hacker . com/play-your-free-twitch-prime-games-with-amazons-new-game-1844208153](https://lifehacker.com/play-your-free-twitch-prime-games-with-amazons-new-game-1844208153)
+> 原文：<https://lifehacker.com/play-your-free-twitch-prime-games-with-amazons-new-game-1844208153>
 
 亚马逊 Prime 的最佳福利之一是每月通过 Twitch . TVTwitch Prime "服务轮流选择免费游戏。更好的是， Amazon now 有一个新的 Amazon Games launcher，这使得在 PC 上申请、下载和玩这些游戏变得更加容易，但是如果你不知道去哪里找，首先安装应用程序是一件麻烦的事情。
 

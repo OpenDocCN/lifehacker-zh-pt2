@@ -1,6 +1,6 @@
 # 美联储降息对你来说意味着什么
 
-> 原文:[https://life hacker . com/what-the-federal-reserve-降息可能意味着什么-f-1836790877](https://lifehacker.com/what-the-federal-reserve-interest-rate-cut-might-mean-f-1836790877)
+> 原文：<https://lifehacker.com/what-the-federal-reserve-interest-rate-cut-might-mean-f-1836790877>
 
 美联储再次降息，这是 2019 年第二次降息。这意味着什么，它会如何影响你的消费决策？
 

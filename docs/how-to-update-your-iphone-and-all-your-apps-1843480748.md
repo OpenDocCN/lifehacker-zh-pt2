@@ -1,6 +1,6 @@
 # 如何更新您的 iPhone 和所有应用程序
 
-> 原文:[https://life hacker . com/how-to-update-your-iphone-and-all-your-apps-1843480748](https://lifehacker.com/how-to-update-your-iphone-and-all-your-apps-1843480748)
+> 原文：<https://lifehacker.com/how-to-update-your-iphone-and-all-your-apps-1843480748>
 
 Android 设备的主要更新会在不同的设备、运营商和制造商之间缓慢推出，与此不同，所有苹果设备都会在完全相同的时间获得新的更新。更新你的 iPhone 或 iPad 很容易，但关于操作系统和应用程序的更新，有很多细节你应该知道——包括如何安装测试版更新 ，如果你想生活在狂野的一面。
 

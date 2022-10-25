@@ -1,6 +1,6 @@
 # 这是喂猫的最好方法
 
-> 原文:[https://life hacker . com/heres-the-best-way-to-feed a-a-cat-1830128315](https://lifehacker.com/heres-the-best-way-to-feed-a-cat-1830128315)
+> 原文：<https://lifehacker.com/heres-the-best-way-to-feed-a-cat-1830128315>
 
 我们大多数人在猫在门上划了一个洞后，在黎明用模糊的眼睛喂猫，但是有另一种方法。事实证明，如何喂养一只猫可以改变它的行为。
 

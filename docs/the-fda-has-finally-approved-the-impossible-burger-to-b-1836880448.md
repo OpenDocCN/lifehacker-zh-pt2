@@ -1,6 +1,6 @@
 # 美国食品和药物管理局终于批准了在杂货店出售这种不可能的汉堡
 
-> 原文:[https://gizmodo . com/the-FDA-has-finally-approved-the-impossible-burger-to-b-1836880448](https://gizmodo.com/the-fda-has-finally-approved-the-impossible-burger-to-b-1836880448)
+> 原文：<https://gizmodo.com/the-fda-has-finally-approved-the-impossible-burger-to-b-1836880448>
 
 尽管 Impossible Foods 的 2.0 版本在 CES 2019 上首次亮相，但它只能向餐馆和快餐连锁店出售其植物性假肉饼。但是，美国食品和药物管理局终于批准了一种关键的模拟血液成分，这种成分使不可能的汉堡看起来、摸起来和尝起来都像牛肉，从 9 月 4 日开始， [公司终于可以直接向消费者销售](https://www.bloomberg.com/news/articles/2019-07-31/impossible-burger-s-color-gets-fda-nod-clearing-retail-hurdle) 。
 

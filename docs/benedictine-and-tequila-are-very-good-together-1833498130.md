@@ -1,6 +1,6 @@
 # 本尼迪特酒和龙舌兰酒搭配非常好
 
-> 原文:[https://life hacker . com/Benedict ine-and-tequila-is-very-good-together-1833498130](https://lifehacker.com/benedictine-and-tequila-are-very-good-together-1833498130)
+> 原文：<https://lifehacker.com/benedictine-and-tequila-are-very-good-together-1833498130>
 
 虽然我喜欢向大家介绍新的令人兴奋的瓶子，但我的酒吧推车很快就装满了，所以我一直在努力寻找新的令人兴奋的方法来用完我已经有的酒。我这样做的过程相当先进:我从我拥有的的乙醇中寻找随机组合，直到我找到听起来不错的东西。
 

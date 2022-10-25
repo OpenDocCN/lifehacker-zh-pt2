@@ -1,6 +1,6 @@
 # 你可以选择不在机场接受面部识别筛查
 
-> 原文:[https://life hacker . com/you-can-opt-out-of-face-recognition-screening-at-a-1834222718](https://lifehacker.com/you-can-opt-out-of-facial-recognition-screening-at-an-a-1834222718)
+> 原文：<https://lifehacker.com/you-can-opt-out-of-facial-recognition-screening-at-an-a-1834222718>
 
 上周，作家麦肯齐·费根 登上了一架捷蓝航空公司的国际航班，甚至没有交出登机牌或护照。“在被允许下飞机桥之前，我看着摄像机，”她在推特 [上写道。“面部识别是否在我不知情的情况下取代了登机牌？我同意了吗？”](https://twitter.com/mackenzief/status/1118509708673998848) 
 

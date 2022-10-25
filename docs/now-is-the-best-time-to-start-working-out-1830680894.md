@@ -1,6 +1,6 @@
 # 现在是开始健身的最佳时机
 
-> 原文:[https://life hacker . com/now-is-best-time to-start-work-out-1830680894](https://lifehacker.com/now-is-the-best-time-to-start-working-out-1830680894)
+> 原文：<https://lifehacker.com/now-is-the-best-time-to-start-working-out-1830680894>
 
 如果你有哪怕是最微小的暗示，你可能想在新的一年里——或者任何时候——保持身材，不要等到一月。养成健身习惯的最佳时间就是现在，那时你将拥有属于自己的地方。
 

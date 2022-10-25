@@ -1,6 +1,6 @@
 # 如何缓解肌肉酸痛
 
-> 原文:[https://life hacker . com/what-to-do-about-your-sore-muscles-1832462699](https://lifehacker.com/what-to-do-about-your-sore-muscles-1832462699)
+> 原文：<https://lifehacker.com/what-to-do-about-your-sore-muscles-1832462699>
 
 所以你昨天在健身房很努力，现在感觉到了。你得了 DOMS 症(延迟性肌肉酸痛)，你只想让它停止。以下是如何应对，更重要的是，如何不应对。
 

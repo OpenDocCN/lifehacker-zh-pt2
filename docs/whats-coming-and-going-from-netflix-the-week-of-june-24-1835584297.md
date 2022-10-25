@@ -1,6 +1,6 @@
 # 2019 年 6 月 24 日这一周，网飞有哪些活动
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of-June-24-1835584297](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-june-24-1835584297)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-june-24-1835584297>
 
 等不及 7 月 5 日上映的《蜘蛛侠:远离家乡》？本周与 2018 年广受好评的动画长片*蜘蛛侠：平行宇宙*(周三)一起度过你的夏天。它获得了奥斯卡最佳动画长片奖，评论家们也很喜欢它。当然，我没有看过，也不会看，但我很了解你，足以挑选出你将要谈论的电影，所以当我为*花木兰 2* (周一)的离去而哭泣和咬牙切齿时，请尽情享受吧。
 

@@ -1,6 +1,6 @@
 # 为什么你不能坐在头等舱，即使它是空的
 
-> 原文:[https://life hacker . com/why-you-can-sit-in-头等舱-even-when-when-its-empty-1840773129](https://lifehacker.com/why-you-cant-sit-in-first-class-even-when-its-empty-1840773129)
+> 原文：<https://lifehacker.com/why-you-cant-sit-in-first-class-even-when-its-empty-1840773129>
 
 如果你预定了一张普通经济舱机票，你只能选择航空公司想给你的任何劣质座位，无论是在飞机的后部还是一排中间不可倾斜的座位。当你登机时，看到一排又一排头等舱或商务舱的空座位，你可能会想:为什么不换个座位呢？你默默地拿起自己的行李，走向空荡荡的头等舱，希望空乘人员会看过去。
 

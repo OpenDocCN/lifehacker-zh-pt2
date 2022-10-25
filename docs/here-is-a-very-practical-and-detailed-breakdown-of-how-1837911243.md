@@ -1,6 +1,6 @@
 # here is a very practical and detailed breakdown of how 1837911243
 
-> 原文:[https://jalopnik . com/here-is-a-very-practical-and-detailed-of-how-1837911243](https://jalopnik.com/here-is-a-very-practical-and-detailed-breakdown-of-how-1837911243)
+> 原文：<https://jalopnik.com/here-is-a-very-practical-and-detailed-breakdown-of-how-1837911243>
 
 当你听到“[【van life】](https://jalopnik.com/vanlife-can-be-cheaper-weirder-and-more-accessible-th-1836822787)”这个词时，通常会想到一对年轻迷人的夫妇在一辆内部定制得像小木屋一样的一尘不染的短跑车前做瑜伽。日落时分。在海滩上。信不信由你，你不一定需要成为 [一个 Instagram 明星和一辆昂贵的时髦面包车](https://jalopnik.com/even-hippies-living-in-vans-are-shilling-for-brands-on-1794423354) 在这个国家旅行，过你最好的生活。你可以在一辆有 20 年历史的破旧小货车里完成，预算不多，木屋碎片也少。
 

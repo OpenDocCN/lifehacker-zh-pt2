@@ -1,6 +1,6 @@
 # 生二胎之前，先考虑一下自己的心理健康
 
-> 原文:[https://life hacker . com/before-you-have-two-child-consider-your-mental-he-1831202442](https://lifehacker.com/before-you-have-a-second-child-consider-your-mental-he-1831202442)
+> 原文：<https://lifehacker.com/before-you-have-a-second-child-consider-your-mental-he-1831202442>
 
 有许多因素会影响到是否——或者何时或如何——尝试生第二个孩子的决定。你希望你的家庭有多大，你的年龄，你的生育能力，你和家庭的亲密程度，你生活中其他需求的数量。
 

@@ -1,6 +1,6 @@
 # 以下是目前最好和最差的二手认证交易
 
-> 原文:[https://jalopnik . com/here-are-the-cars with-high-and-low-CPO-premi-1830280470](https://jalopnik.com/here-are-the-cars-with-the-highest-and-lowest-cpo-premi-1830280470)
+> 原文：<https://jalopnik.com/here-are-the-cars-with-the-highest-and-lowest-cpo-premi-1830280470>
 
 购车时，你会受到各种选择的轰炸。比如选择买新的还是二手的。如果买二手的，怎么用？ [认证二手车](https://jalopnik.com/what-is-a-certified-pre-owned-car-1595837186) 的东西值得研究吗？iSeeCars 的这篇 [新报道可能会让你的决定变得更容易一些。](https://www.iseecars.com/cars-with-lowest-cpo-premiums-study) 
 

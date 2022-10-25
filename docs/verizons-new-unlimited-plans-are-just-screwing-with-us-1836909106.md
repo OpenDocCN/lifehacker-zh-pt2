@@ -1,6 +1,6 @@
 # 威瑞森的新“无限制”计划现在正在搞乱我们
 
-> 原文:[https://gizmodo . com/Verizon s-new-unlimited-plans-is-just-screw-with-us-1836909106](https://gizmodo.com/verizons-new-unlimited-plans-are-just-screwing-with-us-1836909106)
+> 原文：<https://gizmodo.com/verizons-new-unlimited-plans-are-just-screwing-with-us-1836909106>
 
 从 8 月 5 日开始，威瑞森正在 [推出新一批“不限量”计划。](https://www.verizon.com/about/news/verizon-customers-get-more-plans) 但是在看到公司新品的名字和它们所包含的内容后，我感觉就像《公主新娘》 中的 [伊尼戈·蒙托亚:“你一直在用那个词。我不认为它意味着你认为它意味着什么。”](https://youtu.be/dTRKCXC0JFg?t=8)
 

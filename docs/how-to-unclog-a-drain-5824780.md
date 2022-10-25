@@ -1,6 +1,6 @@
 # 如何疏通下水道
 
-> 原文:[https://lifehacker.com/how-to-unclog-a-drain-5824780](https://lifehacker.com/how-to-unclog-a-drain-5824780)
+> 原文：<https://lifehacker.com/how-to-unclog-a-drain-5824780>
 
 无论是在厨房还是浴室，堵塞的下水道都是令人讨厌的。这真的不是你可以忽视的事情——至少在很长时间内——因为你可能不想无意中淹没你的地板，或者失去你的水槽、浴缸或马桶的使用。那么，房主或租房者该怎么办呢？
 

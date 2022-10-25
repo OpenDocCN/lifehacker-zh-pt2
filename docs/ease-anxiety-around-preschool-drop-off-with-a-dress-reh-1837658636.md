@@ -1,6 +1,6 @@
 # 用彩排缓解学前班学生的焦虑
 
-> 原文:[https://life hacker . com/ease-anxiety-around-foreign-drop-off-a-dreh-1837658636](https://lifehacker.com/ease-anxiety-around-preschool-drop-off-with-a-dress-reh-1837658636)
+> 原文：<https://lifehacker.com/ease-anxiety-around-preschool-drop-off-with-a-dress-reh-1837658636>
 
 我们知道在幼儿园我们应该做什么。把它们留在门口(不要进教室！)，快速愉快地道别(“祝你玩得愉快！过几个小时我回来接你！”)，然后离开。即使他们在哭，每个幼儿园老师都会告诉你，如果你徘徊不去，只会让事情变得更糟。
 

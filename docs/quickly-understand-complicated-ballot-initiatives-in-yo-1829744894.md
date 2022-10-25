@@ -1,6 +1,6 @@
 # 使用本网站快速了解您所在州复杂的投票提案
 
-> 原文:[https://life hacker . com/quick-understand-complex-ballot-initiatives-in-yo-1829744894](https://lifehacker.com/quickly-understand-complicated-ballot-initiatives-in-yo-1829744894)
+> 原文：<https://lifehacker.com/quickly-understand-complicated-ballot-initiatives-in-yo-1829744894>
 
 出于某种原因，今年加州的政治团体认为给人们发短信让他们投票是个好主意。这意味着，每天我的手机都会收到至少两条(但更有可能是十条)来自我不认识的人的短信，要求我支持一项投票措施或候选人，每条短信都提供了足够的细节，让他们认为我会站在他们一边，而不会指出某项倡议中可能会让我考虑反对的一些棘手部分。
 

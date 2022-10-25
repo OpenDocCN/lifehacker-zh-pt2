@@ -1,6 +1,6 @@
 # 2020 年 5 月迪士尼+会有什么
 
-> 原文:[https://life hacker . com/whats-coming-to-Disney-in-may-2020-1843009795](https://lifehacker.com/whats-coming-to-disney-in-may-2020-1843009795)
+> 原文：<https://lifehacker.com/whats-coming-to-disney-in-may-2020-1843009795>
 
 快到五月了，也就是说差不多是时候在 Disney+上放一整月的内容了。
 

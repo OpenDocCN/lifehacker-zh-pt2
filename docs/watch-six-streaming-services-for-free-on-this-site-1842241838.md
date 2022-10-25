@@ -1,6 +1,6 @@
 # 在这个网站上免费观看六个流媒体服务
 
-> 原文:[https://life hacker . com/watch-six-streaming-services-on-this-site-1842241838](https://lifehacker.com/watch-six-streaming-services-for-free-on-this-site-1842241838)
+> 原文：<https://lifehacker.com/watch-six-streaming-services-for-free-on-this-site-1842241838>
 
 既然你现在可能正在家里工作——如果你幸运，你的公司正常——为什么不给自己一个急需的休息时间，来点网飞呢？还是 Hulu？或者一些 HBO？见鬼，为什么不把三部都看完呢？当然不是立刻；你没有注意到这一点，也没有支付那么多每月订阅费(我希望)。
 

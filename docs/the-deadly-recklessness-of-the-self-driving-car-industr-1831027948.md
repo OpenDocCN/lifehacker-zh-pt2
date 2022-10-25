@@ -1,6 +1,6 @@
 # the deadly recklessness of the self driving car industr 1831027948
 
-> 原文:[https://gizmodo . com/the-致命鲁莽的自动驾驶汽车-industr-1831027948](https://gizmodo.com/the-deadly-recklessness-of-the-self-driving-car-industr-1831027948)
+> 原文：<https://gizmodo.com/the-deadly-recklessness-of-the-self-driving-car-industr-1831027948>
 
 自动驾驶汽车本应使驾驶更加安全，但它们仍有可能——一些更乐观的研究表明 自动驾驶汽车仅在美国一年就可以挽救数万人的生命。但到目前为止，鲁莽已经定义了追求这项技术的最大公司的文化——优步、谷歌，甚至可以说是特斯拉——并直接导致了不必要的撞车、受伤甚至死亡。
 

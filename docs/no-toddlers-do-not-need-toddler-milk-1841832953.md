@@ -1,6 +1,6 @@
 # 不，幼儿不需要“幼儿奶”
 
-> 原文:[https://life hacker . com/no-tuddles-do-need-tuddles-milk-1841832953](https://lifehacker.com/no-toddlers-do-not-need-toddler-milk-1841832953)
+> 原文：<https://lifehacker.com/no-toddlers-do-not-need-toddler-milk-1841832953>
 
 你的宝宝可能正准备从母乳和/或婴儿配方奶粉中毕业。你可能想知道如何过渡到牛奶— [或其他种类的“牛奶”](https://lifehacker.com/what-is-pea-milk-and-could-it-be-a-good-dairy-alternati-1818850749) 你可能会突然注意到配方奶粉通道上的罐头贴着“有机幼儿奶粉”或“幼儿营养饮料”的标签，还承诺它会支持你的小家伙的大脑发育，因为它“营养均衡”你可能会想，“嗯，我的孩子需要这种学步的牛奶吗？”答案是:不会。
 

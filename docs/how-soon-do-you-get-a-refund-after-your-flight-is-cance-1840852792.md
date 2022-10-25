@@ -1,6 +1,6 @@
 # 你的航班被取消后多久能拿到退款？
 
-> 原文:[https://life hacker . com/how-soon-do-you-get-a-receive-after-you ' s flight-cancel-1840852792](https://lifehacker.com/how-soon-do-you-get-a-refund-after-your-flight-is-cance-1840852792)
+> 原文：<https://lifehacker.com/how-soon-do-you-get-a-refund-after-your-flight-is-cance-1840852792>
 
 所以你的航班取消了。在最初的愤怒和泪水平息后，你意识到重新预订该航空公司的晚些时候的航班并不理想，可能是因为你在别处找到了更好的选择。但是，尽管事实上航空公司在法律上有义务在航班取消的情况下向你提供退款，但你应该知道钱可能不会来得这么容易
 

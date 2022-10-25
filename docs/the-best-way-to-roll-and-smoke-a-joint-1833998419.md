@@ -1,6 +1,6 @@
 # 卷烟的最好方法
 
-> 原文:[https://life hacker . com/the-best-way-to-roll-and-smoke-a-joint-1833998419](https://lifehacker.com/the-best-way-to-roll-and-smoke-a-joint-1833998419)
+> 原文：<https://lifehacker.com/the-best-way-to-roll-and-smoke-a-joint-1833998419>
 
 随着每次选举，合法的、娱乐性的大麻会进入更多的州，这意味着会有更多的人想要尝试。为了帮助这些杂草新手(包括许多 Lifehacker 的工作人员)，我们涵盖了初学者的所有基础知识。
 

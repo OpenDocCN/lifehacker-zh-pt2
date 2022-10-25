@@ -1,6 +1,6 @@
 # im teresa younger president of the ms foundation for 1835417630
 
-> 原文:[https://life hacker . com/im-Teresa-younger-president-of-the-ms-foundation-for-1835417630](https://lifehacker.com/im-teresa-younger-president-of-the-ms-foundation-for-1835417630)
+> 原文：<https://lifehacker.com/im-teresa-younger-president-of-the-ms-foundation-for-1835417630>
 
 “在 [妇女基金会](https://forwomen.org/) 女士，我们相信一个公正和安全的世界，在这个世界里，权力和可能性不受性别、种族、阶级、性取向、性别认同、残疾或年龄的限制，”基金会主席兼首席执行官特蕾莎·杨格引用女权基金会的愿景声明说。我们采访了她在慈善事业和政府政策方面的职业生涯，以及她如何指导 Ms 基金会实现其整个愿景。
 

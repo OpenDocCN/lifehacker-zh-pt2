@@ -1,6 +1,6 @@
 # 如果没有第二次刺激检查，哪里可以得到缓解
 
-> 原文:[https://life hacker . com/where-to-get-relief-if-there-t-a-second-stimulus-ch-1845048041](https://lifehacker.com/where-to-get-relief-if-there-isn-t-a-second-stimulus-ch-1845048041)
+> 原文：<https://lifehacker.com/where-to-get-relief-if-there-isn-t-a-second-stimulus-ch-1845048041>
 
 上周， [参议院未能通过](https://www.cnn.com/2020/09/10/politics/stimulus-package-vote-republican-senators/index.html)共和党刺激法案的最新版本，这使得我们在选举前不太可能看到另一个救助方案。据美国有线电视新闻网报道，国会现在可能会专注于通过一项短期法案，以在 9 月 30 日截止日期前保持政府资金。
 

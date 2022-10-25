@@ -1,6 +1,6 @@
 # 通过 Chrome 扩展识别伪装成真实标题的广告
 
-> 原文:[https://life hacker . com/identify-ads-masquerading-as-real-headlines-with-this-c-1838149949](https://lifehacker.com/identify-ads-masquerading-as-real-headlines-with-this-c-1838149949)
+> 原文：<https://lifehacker.com/identify-ads-masquerading-as-real-headlines-with-this-c-1838149949>
 
 任何在互联网上花了足够时间的人都知道不要相信你读到的一切。但是浏览谷歌搜索结果，你会发现自己面对伪装成新闻文章或其他官方内容的广告。这些结果通常标有一个大多数用户很容易发现的“广告”图标，但是我们都知道有人可能需要更多的帮助来从真实内容中分类广告(甚至可能是 [真实新闻和假新闻，而我们正在做](https://lifehacker.com/how-to-stop-your-parents-from-sharing-fake-news-online-1836667313))。对于我们生活中那些需要帮助识别广告的人，我们建议像 NoDisguisedAdsAnymore 这样的浏览器扩展。
 

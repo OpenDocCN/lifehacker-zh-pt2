@@ -1,6 +1,6 @@
 # 在多力多滋上做你的玉米片
 
-> 原文:[https://life hacker . com/build-your-nachos-on-Doritos-1832164510](https://lifehacker.com/build-your-nachos-on-doritos-1832164510)
+> 原文：<https://lifehacker.com/build-your-nachos-on-doritos-1832164510>
 
 本周日，Bündchen 先生将继续他的恐怖统治，所有正派的人都将采取压力饮食(或分心饮食，如果你不关心足球)。往嘴里塞食物是最有效的方法，没有什么比玉米片更好的了。所有的玉米片都很好，但是用玉米片奶酪做的玉米片更好。
 

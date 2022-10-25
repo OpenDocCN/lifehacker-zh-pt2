@@ -1,6 +1,6 @@
 # 这个免费的 macOS 8 模拟器可以让你玩“俄勒冈小径”
 
-> 原文:[https://life hacker . com/this-free-MAC OS-8-emulator-let-you-play-Oregon-trail-1844547631](https://lifehacker.com/this-free-macos-8-emulator-lets-you-play-oregon-trail-1844547631)
+> 原文：<https://lifehacker.com/this-free-macos-8-emulator-lets-you-play-oregon-trail-1844547631>
 
 不要把 macOS 8 和你可能更熟悉的 OS X 10.8 弄混了，它是一个上世纪 90 年代的操作系统，是在苹果系统的基础上发展起来的，这些系统的名字显然很老派，比如“Power Macintosh”和“PowerBook”但是现在，你可以在任何现代的 Mac 或 Windows PC 上免费使用,或者至少直到苹果生气并追求使成为可能的项目。
 

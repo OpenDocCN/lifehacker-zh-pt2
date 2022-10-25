@@ -1,6 +1,6 @@
 # 你能在不丢失邮箱地址的情况下更换 ISP 吗？
 
-> 原文:[https://life hacker . com/can-you-switch-ISP-without-lost-your-email-address-1836075089](https://lifehacker.com/can-you-switch-isps-without-losing-your-email-address-1836075089)
+> 原文：<https://lifehacker.com/can-you-switch-isps-without-losing-your-email-address-1836075089>
 
 欢迎回到 Lifehacker 每周技术建议专栏 [**Tech 911**](https://lifehacker.com/c/tech-911) 。在我开始本周的问题之前，一个简短的夏季提醒:邮件看起来有点少，因为你们可能都出去晒太阳了，而不是为一些复杂的电脑问题而紧张。请 [给我](mailto:david.murphy@lifehacker.com?subject=Tech%20911) 发送你所有与技术相关的问题，这样我们就可以在周五为你提供大量答案，让你的夏天继续摇滚。
 

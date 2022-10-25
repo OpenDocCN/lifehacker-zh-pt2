@@ -1,6 +1,6 @@
 # 家庭性传播感染检测的前景和陷阱
 
-> 原文:[https://gizmodo . com/the-promise-and-recipes-of-home-STI-tests-1839298624](https://gizmodo.com/the-promise-and-pitfalls-of-at-home-sti-tests-1839298624)
+> 原文：<https://gizmodo.com/the-promise-and-pitfalls-of-at-home-sti-tests-1839298624>
 
 近年来，美国的性传播感染呈上升趋势，许多处于最危险的边缘人群没有得到检测和治疗。但远程医疗保健也在增加——我们正在走向这样一个未来，即家庭性健康筛查服务可以让没有得到所需护理的患者更容易获得诊断和治疗。
 

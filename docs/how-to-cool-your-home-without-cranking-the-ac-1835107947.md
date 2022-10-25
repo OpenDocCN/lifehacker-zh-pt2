@@ -1,6 +1,6 @@
 # 如何让你的家变得更自然
 
-> 原文:[https://life hacker . com/how-to-cool your home-without-cranking-the-AC-1835107947](https://lifehacker.com/how-to-cool-your-home-without-cranking-the-ac-1835107947)
+> 原文：<https://lifehacker.com/how-to-cool-your-home-without-cranking-the-ac-1835107947>
 
 在某些方面，疫情迫使我们减少浪费，更加环保。我们更少开车，更少使用公共交通，我们支持更多的本地商业。但是现在我们身处炎炎夏日，整天呆在家里，忍受最令人窒息的温度，还试图在电话会议上看起来像模像样，我们使用空调可能对环境(或我们的银行账户)没有任何好处。
 

@@ -1,6 +1,6 @@
 # 威胁取消你的信用卡以获得留任奖金
 
-> 原文:[https://life hacker . com/threat-to-cancel-your-card-to-get-a-retention-1839440642](https://lifehacker.com/threaten-to-cancel-your-credit-card-to-get-a-retention-1839440642)
+> 原文：<https://lifehacker.com/threaten-to-cancel-your-credit-card-to-get-a-retention-1839440642>
 
 如果你想在你的信用卡上赚取额外的积分或者放弃卡的年费，打电话给信用卡公司威胁取消可能是值得的。
 

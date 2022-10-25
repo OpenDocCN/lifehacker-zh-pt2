@@ -1,6 +1,6 @@
 # 如何在没有 Chrome 扩展的情况下截屏整个网页
 
-> 原文:[https://life hacker . com/how-to-screen-whole-web-pages-without-a-chrome-ext-1834380686](https://lifehacker.com/how-to-screenshot-entire-web-pages-without-a-chrome-ext-1834380686)
+> 原文：<https://lifehacker.com/how-to-screenshot-entire-web-pages-without-a-chrome-ext-1834380686>
 
 无论你是在 [Windows](https://support.office.com/en-us/article/copy-the-window-or-screen-contents-98c41969-51e5-45e1-be36-fb9381b32bb7?ocmsassetID=HP001038284&CorrelationId=74acf2a3-0c32-44e1-9463-746b15eab356&ui=en-US&rs=en-US&ad=US) (点击键盘上的打印屏幕按钮)还是[Mac](https://support.apple.com/en-us/HT201361)(Shift-Command-5)，捕捉屏幕截图都很容易。虽然你可以使用各种键盘命令或屏幕选项将活动窗口隔离开来，这样可以更容易地拍摄你正在做的事情，但如果你试图拍摄整个网站的照片，这仍然不是理想的——当然，不是你屏幕上的任何内容。
 

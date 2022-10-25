@@ -1,6 +1,6 @@
 # 今年夏天如何安全地分享后院游泳池
 
-> 原文:[https://life hacker . com/how-to-safely-share-a-后院泳池-this-summer-1844119466](https://lifehacker.com/how-to-safely-share-a-backyard-pool-this-summer-1844119466)
+> 原文：<https://lifehacker.com/how-to-safely-share-a-backyard-pool-this-summer-1844119466>
 
 现在已经正式进入夏季，美国许多地方的气温都上升到了令人无法忍受的程度，我们中的许多人都梦想着去游泳池里凉快一下。我们已经讨论了 [在去公共泳池或海滩](https://lifehacker.com/what-you-need-to-know-about-swimming-during-the-pandemi-1843584311) 游泳之前你需要知道的事情，但是在别人的后院游泳呢？(当然是在你被邀请之后。或者，如果你足够幸运，有自己的后院游泳池，你如何邀请朋友来使用它，并确保每个人在这个过程中的安全？
 

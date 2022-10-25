@@ -1,6 +1,6 @@
 # 使用 CC 搜索查找免费图片
 
-> 原文:[https://life hacker . com/find-free-images-with-cc-search-1834442069](https://lifehacker.com/find-free-images-with-cc-search-1834442069)
+> 原文：<https://lifehacker.com/find-free-images-with-cc-search-1834442069>
 
 为你的下一篇博客文章或 meme 寻找伟大的艺术作品可能是一个挑战。虽然有很多网站可以让你找到你被法律允许复制和/或修改的图片，但我的列表中最新增加的是 [CC Search](https://search.creativecommons.org/) ，这是一个创作共用工具，现已正式退出测试。
 

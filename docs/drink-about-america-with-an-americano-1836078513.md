@@ -1,6 +1,6 @@
 # 和美国人一起畅饮美国
 
-> 原文:[https://life hacker . com/drink-about-American-with an-Americano-1836078513](https://lifehacker.com/drink-about-america-with-an-americano-1836078513)
+> 原文：<https://lifehacker.com/drink-about-america-with-an-americano-1836078513>
 
 很少有事情，尤其是此时此刻的，让我为自己是美国人而自豪，但肯定有很多值得喝的东西。鸡尾酒*是*美国人的发明，所以我想我们可以庆祝一下，我们也可以用*美式*来庆祝一下，这是一种意大利饮料，因其在美国侨民(移民)中很受欢迎而得名！)禁酒令期间。
 

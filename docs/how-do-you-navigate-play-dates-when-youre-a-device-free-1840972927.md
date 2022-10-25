@@ -1,6 +1,6 @@
 # 当你是一个“没有设备”的家庭时，你如何安排玩耍的时间？
 
-> 原文:[https://life hacker . com/how-do-you-navigate-play-dates-when-you-a-device-free-1840972927](https://lifehacker.com/how-do-you-navigate-play-dates-when-youre-a-device-free-1840972927)
+> 原文：<https://lifehacker.com/how-do-you-navigate-play-dates-when-youre-a-device-free-1840972927>
 
 尽管你和你的孩子可能没有屏幕(或者你可能希望他们有)，但总有一天，甚至其他人的设备也变得不可避免。你可能不希望你的孩子有平板电脑，但他们所有的堂兄妹都有。你的孩子想和他们在街上的朋友一起玩，但朋友总是粘在他们的任天堂 Switch 上。
 

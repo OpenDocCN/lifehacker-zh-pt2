@@ -1,6 +1,6 @@
 # 如何练习日本通过觉知接受的艺术
 
-> 原文:[https://life hacker . com/how-to-practice-ukeireru-the-Japanese-art-of-acceptant NC-1844581505](https://lifehacker.com/how-to-practice-ukeireru-the-japanese-art-of-acceptanc-1844581505)
+> 原文：<https://lifehacker.com/how-to-practice-ukeireru-the-japanese-art-of-acceptanc-1844581505>
 
 承认某事已经发生(或正在发生)可能相对简单，但接受它完全是另一回事。例如，大多数人可以(很可能)同意我们正处于一场全球性的疫情，但并不是每个人都接受这一点，同意所有建议的公共卫生措施。无论如何，我们大多数人在接受的时候可能会需要一点帮助，日本的“ukeireru”概念可能会有所帮助。以下是你应该知道的。
 

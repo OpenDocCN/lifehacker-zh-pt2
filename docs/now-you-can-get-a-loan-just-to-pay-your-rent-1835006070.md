@@ -1,6 +1,6 @@
 # 现在你可以贷款来支付房租
 
-> 原文:[https://life hacker . com/now-you-can-get-a-loan-just-pay-your-rent-1835006070](https://lifehacker.com/now-you-can-get-a-loan-just-to-pay-your-rent-1835006070)
+> 原文：<https://lifehacker.com/now-you-can-get-a-loan-just-to-pay-your-rent-1835006070>
 
 《房租太高》来自《华尔街日报》的报道:贷款公司现在专门向需要帮助才能维持生活的租房者推销贷款。
 

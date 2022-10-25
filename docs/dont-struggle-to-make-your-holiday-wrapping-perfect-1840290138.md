@@ -1,6 +1,6 @@
 # 不要努力让你的节日包装完美
 
-> 原文:[https://life hacker . com/don-twist-to-make-your-holiday-wrapping-perfect-1840290138](https://lifehacker.com/dont-struggle-to-make-your-holiday-wrapping-perfect-1840290138)
+> 原文：<https://lifehacker.com/dont-struggle-to-make-your-holiday-wrapping-perfect-1840290138>
 
 我和男朋友在一起的第一个圣诞节，我们去参加了他的一些朋友举办的节日聚会。礼物被交换，既有给个人的，也有通过秘密圣诞老人交换的。我的男朋友选择把他的礼物完全包在袋子里，这些袋子布满了皱纹，看起来就像是以前被扔掉过的一样，旧报纸随意地贴在鞋盒上，还有一份礼物只是装在一个旧的购物袋里，上面有一个蝴蝶结。
 

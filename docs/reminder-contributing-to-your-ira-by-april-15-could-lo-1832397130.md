@@ -1,6 +1,6 @@
 # 提醒:在 4 月 15 日前向你的个人退休账户缴款可以降低你 2018 年的税单
 
-> 原文:[https://life hacker . com/reminder-contributed-to-your ' s IRA-April-15-couble-lo-1832397130](https://lifehacker.com/reminder-contributing-to-your-ira-by-april-15-could-lo-1832397130)
+> 原文：<https://lifehacker.com/reminder-contributing-to-your-ira-by-april-15-could-lo-1832397130>
 
 这是你的年度提醒，你必须在 4 月 15 日之前向个人退休账户缴款，以潜在地降低你 2018 年的税单。
 

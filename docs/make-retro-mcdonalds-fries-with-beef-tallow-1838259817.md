@@ -1,5 +1,5 @@
 # 用牛油做复古麦当劳薯条
 
-> 原文:[https://life hacker . com/make-retro-麦当劳-牛油薯条-1838259817](https://lifehacker.com/make-retro-mcdonalds-fries-with-beef-tallow-1838259817)
+> 原文：<https://lifehacker.com/make-retro-mcdonalds-fries-with-beef-tallow-1838259817>
 
 麦当劳可能是一家汉堡店，但它的薯条让他们不断回来。奇怪的是，使麦当劳出名的薯条——真正使他们区别于快餐竞争对手的薯条——并不是他们今天供应的薯条。来自金色拱门的最初的金黄色油炸食品是用牛油烹制的，这使它们具有美味、酥脆的外表和蓬松的内部。来，让我们告诉你怎么做。

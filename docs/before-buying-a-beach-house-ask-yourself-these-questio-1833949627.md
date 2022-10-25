@@ -1,6 +1,6 @@
 # 在购买海滨别墅之前，问自己这些问题
 
-> 原文:[https://life hacker . com/before-buying-a-beach-house-question-1833949627](https://lifehacker.com/before-buying-a-beach-house-ask-yourself-these-questio-1833949627)
+> 原文：<https://lifehacker.com/before-buying-a-beach-house-ask-yourself-these-questio-1833949627>
 
 我上小学的时候，有个朋友几乎每个周末都会去她奶奶在海边的度假屋看看。我觉得她和她的家人在周五下午收拾行装，在海边嬉戏度过周末是多么的美妙。我很小的时候就决定，有一天我也要拥有一个远离家乡的家，最好是能看到海景的。
 

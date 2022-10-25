@@ -1,6 +1,6 @@
 # 如果你是全职工作，计算你的“时薪”
 
-> 原文:[https://life hacker . com/if-you-work-full-time-calculate-your-hour-wage-1833259406](https://lifehacker.com/if-you-work-full-time-calculate-your-hourly-wage-1833259406)
+> 原文：<https://lifehacker.com/if-you-work-full-time-calculate-your-hourly-wage-1833259406>
 
 当你全职工作时，你可以跟踪你的支出，用你收入的百分比做一个预算，试着了解你真正能负担得起的。但是考虑每月甚至每周的资金分配并不一定是考虑你的钱的最有效的方式。
 

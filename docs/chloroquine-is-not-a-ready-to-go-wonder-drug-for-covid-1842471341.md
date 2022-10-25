@@ -1,6 +1,6 @@
 # 对新冠肺炎来说，氯喹不是现成的特效药
 
-> 原文:[https://life hacker . com/chloro Quine-is-not-a-ready-to-go-covid-1842471341](https://lifehacker.com/chloroquine-is-not-a-ready-to-go-wonder-drug-for-covid-1842471341)
+> 原文：<https://lifehacker.com/chloroquine-is-not-a-ready-to-go-wonder-drug-for-covid-1842471341>
 
 氯喹是一种用于治疗疟疾和其他疾病的药物，总统最近在推特上表示，应该“立即投入使用”来治疗新冠肺炎。不幸的是，专家们并不这么认为，所以看在上帝的份上，请不要让你的医生朋友偷偷给你开处方。
 

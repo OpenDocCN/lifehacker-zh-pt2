@@ -1,6 +1,6 @@
 # 如何阻止 FBI 访问你的家庭 TreeDNA 结果
 
-> 原文:[https://life hacker . com/how-to-keep-the-FBI-access-your-family treedna-r-1832263630](https://lifehacker.com/how-to-keep-the-fbi-from-accessing-your-familytreedna-r-1832263630)
+> 原文：<https://lifehacker.com/how-to-keep-the-fbi-from-accessing-your-familytreedna-r-1832263630>
 
 如果您想让您的 DNA 数据不落入执法部门的手中，避免 GEDmatch 是不够的。家谱 DNA 最近承认它允许执法部门使用他们的服务，并且 [正在积极地与联邦调查局](https://www.buzzfeednews.com/article/salvadorhernandez/family-tree-dna-fbi-investigative-genealogy-privacy) 合作，至少在一些案件上。
 

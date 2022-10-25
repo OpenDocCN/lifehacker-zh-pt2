@@ -1,6 +1,6 @@
 # 如何玩谷歌的温布尔登网球复活节彩蛋
 
-> 原文:[https://life hacker . com/how-to-play-Google-Wimbledon-inspired-tennis-Easter-eg-1836287562](https://lifehacker.com/how-to-play-googles-wimbledon-inspired-tennis-easter-eg-1836287562)
+> 原文：<https://lifehacker.com/how-to-play-googles-wimbledon-inspired-tennis-easter-eg-1836287562>
 
 温布尔登网球公开赛本周末正式结束。为了庆祝比赛，谷歌创造了一个有趣的复活节彩蛋，让你可以在手机或电脑上参加自己的网球比赛——你只需要知道在哪里可以找到它。
 

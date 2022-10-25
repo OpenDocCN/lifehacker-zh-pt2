@@ -1,6 +1,6 @@
 # 当涉及到你的钱的时候，多任务处理
 
-> 原文:[https://life hacker . com/multistask-when-to-your money-1830910858](https://lifehacker.com/multitask-when-it-comes-to-your-money-1830910858)
+> 原文：<https://lifehacker.com/multitask-when-it-comes-to-your-money-1830910858>
 
 多任务处理不利于工作效率:如果你在开会时一边听发言人讲话一边试图发送电子邮件，很可能其中一项任务会受到影响。你需要 [全神贯注于一项任务](https://lifehacker.com/a-case-for-singletasking-the-one-task-at-a-time-method-5646560) 。但是当涉及到你的钱的时候，多重任务是必须的。
 

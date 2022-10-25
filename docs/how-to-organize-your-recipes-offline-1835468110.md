@@ -1,6 +1,6 @@
 # 如何组织你的离线食谱
 
-> 原文:[https://life hacker . com/how-to-organize-your-recipes-offline-1835468110](https://lifehacker.com/how-to-organize-your-recipes-offline-1835468110)
+> 原文：<https://lifehacker.com/how-to-organize-your-recipes-offline-1835468110>
 
 世界上流传着许多——有些人可能会说“太多”——食谱。书籍和杂志上充斥着这些，但是，多亏了互联网，你可以一天做一个新的食谱，而不用打开烹饪书。有很多应用程序可以记录你的网上最爱，但是真正特别的食谱值得一份硬拷贝。
 

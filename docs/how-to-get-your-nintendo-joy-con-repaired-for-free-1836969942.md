@@ -1,6 +1,6 @@
 # 如何免费修理你的任天堂游戏机
 
-> 原文:[https://life hacker . com/how-to-get-your ' s Nintendo-joy-con-repair-for-free-1836969942](https://lifehacker.com/how-to-get-your-nintendo-joy-con-repaired-for-free-1836969942)
+> 原文：<https://lifehacker.com/how-to-get-your-nintendo-joy-con-repaired-for-free-1836969942>
 
 如果你的任天堂 Switch 正在经历 Joy-Con 漂移，你可能可以免费修理你的开关——如果你已经支付了修理开关的费用，你可能有资格获得退款。
 

@@ -1,6 +1,6 @@
 # 像上镜一样辩论
 
-> 原文:[https://life hacker . com/argue-like-you-on-camera-1837708034](https://lifehacker.com/argue-like-youre-on-camera-1837708034)
+> 原文：<https://lifehacker.com/argue-like-youre-on-camera-1837708034>
 
 争吵和打架的区别在于，在打架时，你会说一些你会后悔的话。伤害他人的事情，会一直留在你们的脑海中，直到在以后的战斗中再次出现。Reddit 用户 [有价值 _ 犰狳](https://www.reddit.com/r/LifeProTips/comments/cu7g7q/lpt_if_youre_ever_in_the_heat_of_an_argument/) 有一个诀窍来避免这种情况:每当你在激烈的争论中，想象你正在被记录。
 

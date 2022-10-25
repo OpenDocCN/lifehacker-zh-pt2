@@ -1,6 +1,6 @@
 # 我哥哥需要一辆 5000 美元以下的防白痴车！他应该买什么？
 
-> 原文:[https://jalopnik . com/my-brother-needs-a-didn-5-000-w-1839496820](https://jalopnik.com/my-brother-needs-an-idiot-proof-car-for-under-5-000-w-1839496820)
+> 原文：<https://jalopnik.com/my-brother-needs-an-idiot-proof-car-for-under-5-000-w-1839496820>
 
 Mayuck 正在帮助他刚上大学的弟弟买车。很自然，他认为他的兄弟姐妹在汽车方面并不聪明，他想给他找一辆简单、便宜、可靠的车，用他的话说就是“防白痴的”他应该买什么车？
 

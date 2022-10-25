@@ -1,6 +1,6 @@
 # will only children have a tougher time during the pande 1843020487
 
-> 原文:[https://life hacker . com/will-only-children-have-a-toughter-time-in-the-潘德-1843020487](https://lifehacker.com/will-only-children-have-a-tougher-time-during-the-pande-1843020487)
+> 原文：<https://lifehacker.com/will-only-children-have-a-tougher-time-during-the-pande-1843020487>
 
 如果你是许多孩子的父母，你很可能会担心这段时间的隔离对他们的影响。有特殊需求的孩子的父母正在努力获得他们的孩子通常依赖的服务 。多个孩子的父母想知道什么时候 [无休止的兄弟姐妹争吵](https://offspring.lifehacker.com/how-to-manage-sibling-arguments-while-youre-stuck-at-ho-1842625422) 会正式让整个家庭彻底发疯。独生子女的父母可能会担心孩子生活中缺少一个固定的玩伴。
 

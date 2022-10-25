@@ -1,6 +1,6 @@
 # 奶酪馅的橄榄非常好吃
 
-> 原文:[https://life hacker . com/cheese-stopped-waffled-olives-are-awfully-good-1843139579](https://lifehacker.com/cheese-stuffed-waffled-olives-are-awfully-good-1843139579)
+> 原文：<https://lifehacker.com/cheese-stuffed-waffled-olives-are-awfully-good-1843139579>
 
 最近我不得不在零食上有点创意。每当想吃东西的时候，我就不得不用家里所有的东西来凑合，而不是去商店。昨晚，我不得不用六颗橄榄和一些奶酪凑合着吃。
 

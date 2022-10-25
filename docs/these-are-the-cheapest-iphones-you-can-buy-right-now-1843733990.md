@@ -1,6 +1,6 @@
 # 这些是你现在能买到的最便宜的 iPhones
 
-> 原文:[https://life hacker . com/these-is-the-chief-you-can-buy-now-1843733990](https://lifehacker.com/these-are-the-cheapest-iphones-you-can-buy-right-now-1843733990)
+> 原文：<https://lifehacker.com/these-are-the-cheapest-iphones-you-can-buy-right-now-1843733990>
 
 购买新 iPhone 不一定意味着倾家荡产，我坚信大多数人不需要花 1000 美元或更多的钱购买最新最棒的机型。在上面的视频中，我对比了苹果目前销售的三款最便宜的 iPhones。
 

@@ -1,6 +1,6 @@
 # 如何流小狗碗和小猫碗
 
-> 原文:[https://life hacker . com/how-to-stream-小狗碗和小猫碗-1832299914](https://lifehacker.com/how-to-stream-the-puppy-bowl-and-kitten-bowl-1832299914)
+> 原文：<https://lifehacker.com/how-to-stream-the-puppy-bowl-and-kitten-bowl-1832299914>
 
 当然，今天很多人都在谈论这个“超级碗”的事情，但是我们都知道每个人真正感兴趣的游戏是小狗碗。
 

@@ -1,6 +1,6 @@
 # 如何为强制 2FA 准备 Blink 和 Arlo 网络摄像头
 
-> 原文:[https://life hacker . com/how-to-prepare-blink-and-arlo-webcams-for-mandatory-2fa-1842246601](https://lifehacker.com/how-to-prepare-blink-and-arlo-webcams-for-mandatory-2fa-1842246601)
+> 原文：<https://lifehacker.com/how-to-prepare-blink-and-arlo-webcams-for-mandatory-2fa-1842246601>
 
 继 Nest 和 [Ring 和](https://lifehacker.com/how-to-get-the-most-out-of-rings-new-privacy-features-1840832191) 之后，智能家居安全摄像头公司 Arlo 和 Blink 宣布，他们将在 2020 年底前强制所有用户使用双因素认证(2FA)。
 

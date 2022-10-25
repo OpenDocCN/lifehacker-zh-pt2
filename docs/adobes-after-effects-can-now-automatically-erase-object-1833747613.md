@@ -1,6 +1,6 @@
 # Adobe 的 After Effects 现在可以自动擦除视频剪辑中的对象
 
-> 原文:[https://gizmodo . com/adobes-after-effects-can-now-automatically-erase-object-1833747613](https://gizmodo.com/adobes-after-effects-can-now-automatically-erase-object-1833747613)
+> 原文：<https://gizmodo.com/adobes-after-effects-can-now-automatically-erase-object-1833747613>
 
 2010 年，Adobe 推出了 Photoshop 首批真正的“智能”功能之一:一款名为 Content-Aware Fill 的工具，可以智能地移除和替换场景中的对象。今天，Adobe 正在将该工具的一个版本引入其合成软件 After Effects，该软件基本上做同样的事情，但在移动视频剪辑上，却更具挑战性。
 

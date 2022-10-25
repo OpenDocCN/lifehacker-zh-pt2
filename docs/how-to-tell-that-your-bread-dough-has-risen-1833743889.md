@@ -1,6 +1,6 @@
 # 如何判断你的面包面团已经涨了
 
-> 原文:[https://life hacker . com/how-to-tell-the-your ' s bread-dough-rised-1833743889](https://lifehacker.com/how-to-tell-that-your-bread-dough-has-risen-1833743889)
+> 原文：<https://lifehacker.com/how-to-tell-that-your-bread-dough-has-risen-1833743889>
 
 太多的家庭厨师对自制面包有心理障碍。这是一个巨大的败笔: [面包是你能学会制作](https://lifehacker.com/zen-and-the-art-of-making-bread-1789065514) 的最令人满意和最有收获的东西之一，但是复杂的食谱和不必要的看门人吓跑了所有人，除了最顽固的新手面包师。
 

@@ -1,6 +1,6 @@
 # 床下怪物的终极解药:放屁
 
-> 原文:[https://life hacker . com/the-ultimate-detect-to-monsters-under-the-bed-under-bed-farts-1831101567](https://lifehacker.com/the-ultimate-antidote-to-monsters-under-the-bed-farts-1831101567)
+> 原文：<https://lifehacker.com/the-ultimate-antidote-to-monsters-under-the-bed-farts-1831101567>
 
 只要孩子们害怕躲在床底下或晚上在壁橱里迂回等待的怪物，父母就一直试图驱逐它。
 

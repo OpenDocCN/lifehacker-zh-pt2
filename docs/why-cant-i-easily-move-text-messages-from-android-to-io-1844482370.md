@@ -1,6 +1,6 @@
 # 为什么我不能轻松地将短信从 Android 移动到 iOS？
 
-> 原文:[https://life hacker . com/why-cant-I-easy-move-text-messages-from-Android-to-io-1844482370](https://lifehacker.com/why-cant-i-easily-move-text-messages-from-android-to-io-1844482370)
+> 原文：<https://lifehacker.com/why-cant-i-easily-move-text-messages-from-android-to-io-1844482370>
 
 我不记得上一次我在 Android 和 iOS 之间切换我的日常驱动程序是什么时候了——我用手机处理我所有的个人物品，而不仅仅是我用手机处理各种与 Lifehacker 相关的事情。虽然技术已经取得了长足的进步，但我的假设是，将一个手机的*全部*内容转移到另一个基于竞争平台的仍然是一场噩梦。
 

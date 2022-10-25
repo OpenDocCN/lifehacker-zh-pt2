@@ -1,6 +1,6 @@
 # 如何减少你每天忘记事情的次数
 
-> 原文:[https://life hacker . com/how-to-reduce-the-number-of-times-you-forgot-EAC-1832621933](https://lifehacker.com/how-to-reduce-the-number-of-times-you-forget-things-eac-1832621933)
+> 原文：<https://lifehacker.com/how-to-reduce-the-number-of-times-you-forget-things-eac-1832621933>
 
 当你考虑你的日常生活时，毫无疑问，有些事情你可以改变，让事情变得更容易。例如，重新排列手机上的应用程序，使你最容易使用的程序可用，或者指定一个地方在你回家时存放你的钥匙和钱包，这样你就不会乱放它们了。
 

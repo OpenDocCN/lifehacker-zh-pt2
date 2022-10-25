@@ -1,6 +1,6 @@
 # 如何照顾你的肠道健康
 
-> 原文:[https://life hacker . com/how-to-care-of-your-gut-health-1838875310](https://lifehacker.com/how-to-take-care-of-your-gut-health-1838875310)
+> 原文：<https://lifehacker.com/how-to-take-care-of-your-gut-health-1838875310>
 
 本周我们将讨论粪便移植、益生菌、肠道菌群等等。你胃肠道里的细菌会影响你的情绪吗？你的微生物群如何影响你的整体健康？我们访问了计算生物学家 Jose Clemente 博士的实验室，他和他的团队在那里研究肠易激疾病患者粪便移植的疗效。
 

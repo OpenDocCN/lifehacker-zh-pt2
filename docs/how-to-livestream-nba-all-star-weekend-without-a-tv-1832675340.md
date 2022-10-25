@@ -1,6 +1,6 @@
 # 没有电视如何直播 NBA 全明星周末
 
-> 原文:[https://life hacker . com/how-to-live stream-NBA-全明星-没有电视的周末-1832675340](https://lifehacker.com/how-to-livestream-nba-all-star-weekend-without-a-tv-1832675340)
+> 原文：<https://lifehacker.com/how-to-livestream-nba-all-star-weekend-without-a-tv-1832675340>
 
 这是 NBA 全明星周末。周六你可以在技能挑战、三分赛和灌篮大赛中看到一些 NBA 最好的球员。周日队勒布朗将在 2019 年全明星赛中迎战 10 名巨人。
 

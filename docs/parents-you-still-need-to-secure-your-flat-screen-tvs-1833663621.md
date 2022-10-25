@@ -1,6 +1,6 @@
 # 父母们，你们仍然需要保护好你们的平板电视
 
-> 原文:[https://life hacker . com/parents-you-still-need-secure-your-flat-screen-TVs-1833663621](https://lifehacker.com/parents-you-still-need-to-secure-your-flat-screen-tvs-1833663621)
+> 原文：<https://lifehacker.com/parents-you-still-need-to-secure-your-flat-screen-tvs-1833663621>
 
 到现在为止，我们都知道那些老旧、笨重、重得离谱的显像管电视对孩子们构成了多大的威胁。近年来，我们大多数人已经升级到更时尚、更轻便的平板电脑，如果它们倒在一个孩子身上，可能不会那么致命。
 

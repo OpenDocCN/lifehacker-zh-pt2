@@ -1,6 +1,6 @@
 # 如何在选举日免费乘车去投票站
 
-> 原文:[https://life hacker . com/how-to-get-a-free-election-day-ride-to-polls-1830098233](https://lifehacker.com/how-to-get-a-free-election-day-ride-to-the-polls-1830098233)
+> 原文：<https://lifehacker.com/how-to-get-a-free-election-day-ride-to-the-polls-1830098233>
 
 如果你还没听说，中期选举将在下周二，11 月 6 日举行，每个有能力投票的人都必须投票。T3】
 

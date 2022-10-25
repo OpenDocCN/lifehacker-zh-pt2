@@ -1,6 +1,6 @@
 # 如何在电子邮件中给人加标签
 
-> 原文:[https://life hacker . com/how-to-tag-people-in-a-email-1840180330](https://lifehacker.com/how-to-tag-people-in-an-email-1840180330)
+> 原文：<https://lifehacker.com/how-to-tag-people-in-an-email-1840180330>
 
 如果你同时给多个人发邮件，并且你需要不同的人关注不同的部分，你应该给他们每个人做标记。为每个人或团队写“@name”，并将他们的名字用粗体显示。理想情况下，将所有这些请求放在一个列表中，这样人们就可以在左边搜索他们的名字。
 

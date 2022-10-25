@@ -1,6 +1,6 @@
 # 一些经纪公司正在取消交易费——这是怎么回事？
 
-> 原文:[https://life hacker . com/some-brokers-is-eliming-trading-fees-what-the-1838781715](https://lifehacker.com/some-brokerages-are-eliminating-trading-fees-whats-the-1838781715)
+> 原文：<https://lifehacker.com/some-brokerages-are-eliminating-trading-fees-whats-the-1838781715>
 
 本周，查尔斯·施瓦布和道明美国证券公司(TD Ameritrade 等几家知名券商宣布，他们将把网上股票和交易所交易基金(ETF)交易的佣金降至零。
 

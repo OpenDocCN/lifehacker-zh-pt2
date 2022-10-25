@@ -1,6 +1,6 @@
 # 如何以最小的成本和牺牲来降低您的能源账单
 
-> 原文:[https://life hacker . com/how-to-reduce-your ' s energy-bill with-no-cost or-sacrifice-5953039](https://lifehacker.com/how-to-reduce-your-energy-bill-with-no-cost-or-sacrific-5953039)
+> 原文：<https://lifehacker.com/how-to-reduce-your-energy-bill-with-no-cost-or-sacrific-5953039>
 
 一旦你自己搬出去，开始支付自己的水电费，你可能会对能源的成本有一个粗鲁的觉醒。如果你以前从未考虑过像用电这样的事情，你可以花一分钟时间养成这样的习惯，不仅在离开房间时关灯，还要考虑家里的其他电器。
 

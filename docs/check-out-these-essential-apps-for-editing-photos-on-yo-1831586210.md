@@ -1,6 +1,6 @@
 # 看看这些在手机上编辑照片的重要应用程序
 
-> 原文:[https://life hacker . com/check-out-these-essential-apps-for-editing-photos-on-yo-1831586210](https://lifehacker.com/check-out-these-essential-apps-for-editing-photos-on-yo-1831586210)
+> 原文：<https://lifehacker.com/check-out-these-essential-apps-for-editing-photos-on-yo-1831586210>
 
 “这可能是摄影师最有趣的时光...在摄影史上。”
 

@@ -1,6 +1,6 @@
 # 这就是你不做爱的原因
 
-> 原文:[https://life hacker . com/this-is-why-you-not-have-sex-1830030508](https://lifehacker.com/this-is-why-youre-not-having-sex-1830030508)
+> 原文：<https://lifehacker.com/this-is-why-youre-not-having-sex-1830030508>
 
 根据 时间 [，作为一个社会，我们的性生活比过去少了很多。记者贝琳达·勒斯科姆深入研究表明，各地的人们不再通过通奸来自娱自乐。例如，芝加哥大学的全国意见研究委员会声称，每周至少恐惧一次的人数从 2000 年的 45%上升到 2016 年的 36%。](http://time.com/5297145/is-sex-dead/) 
 

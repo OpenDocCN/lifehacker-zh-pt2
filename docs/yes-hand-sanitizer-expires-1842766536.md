@@ -1,6 +1,6 @@
 # 是的，洗手液过期了
 
-> 原文:[https://life hacker . com/yes-hand-sanitizer-expires-1842766536](https://lifehacker.com/yes-hand-sanitizer-expires-1842766536)
+> 原文：<https://lifehacker.com/yes-hand-sanitizer-expires-1842766536>
 
 现在，我们大多数人已经翻遍了家里的角落和缝隙，寻找被遗忘的洗手液。我们发现了一些样品瓶，这些样品瓶是从谁知道什么事件中拿出来的，我们从汽车后备箱的急救箱里取出了一个迷你瓶子，并掸掉了占了水槽下空间的半空瓶子。但是这些古老的消毒剂真的有效吗？洗手液会变质吗？不幸的是...
 

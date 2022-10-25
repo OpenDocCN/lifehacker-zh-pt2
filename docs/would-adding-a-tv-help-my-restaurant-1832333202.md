@@ -1,6 +1,6 @@
 # 问那个刻薄的女服务员:增加一台电视会对我的餐馆有帮助吗？
 
-> 原文:[https://the take out . com/would-adding-a-TV-help-my-restaurant-1832333202](https://thetakeout.com/would-adding-a-tv-help-my-restaurant-1832333202)
+> 原文：<https://thetakeout.com/would-adding-a-tv-help-my-restaurant-1832333202>
 
 > 亲爱的 Salty，我是一家小型那不勒斯披萨店/意大利餐厅的经理。我们在星期五和星期六晚上生意很好，那时人们来约会或和他们的家人在一起，但我们一直在努力保持忙碌。我在考虑让老板在吧台上加一台电视，这样我们就可以在下赛季的周日播放足球比赛，或者人们可能会来观看的其他大型体育比赛。我在想我们可以在那晚做饮料和披萨特餐。但我担心这会打扰我们的一些常客，我知道他们喜欢这种安静的氛围。餐馆很小，所以酒吧没有和房间的其他部分分开。值得一试吗？
 > 

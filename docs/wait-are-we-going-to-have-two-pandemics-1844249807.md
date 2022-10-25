@@ -1,6 +1,6 @@
 # 等等，我们会有两次大流行吗？
 
-> 原文:[https://life hacker . com/wait-are-we-going-have-two-pandicis-1844249807](https://lifehacker.com/wait-are-we-going-to-have-two-pandemics-1844249807)
+> 原文：<https://lifehacker.com/wait-are-we-going-to-have-two-pandemics-1844249807>
 
 最近，头条新闻警告了一种具有“疫情潜力”的新流感病毒，这是基于对中国养猪场病毒的研究。没有必要让立即开始惊慌失措，然而:虽然总有一天会有另一个疫情*出现，但这一次还不值得担心。*
 

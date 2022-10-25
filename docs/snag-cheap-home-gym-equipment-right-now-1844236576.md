@@ -1,6 +1,6 @@
 # 抓取廉价的家庭健身器材现在
 
-> 原文:[https://life hacker . com/snag-cheap-home-gym-equipment-right-now-1844236576](https://lifehacker.com/snag-cheap-home-gym-equipment-right-now-1844236576)
+> 原文：<https://lifehacker.com/snag-cheap-home-gym-equipment-right-now-1844236576>
 
 我想今年我对时机的直觉很好。三月份，我订购了一个杠铃和一些缓冲板，就在我的县宣布健身房将关闭的前一天。我在三月底告诉过你 [这整件事不会很快结束](https://vitals.lifehacker.com/this-isnt-going-to-end-soon-1842585548) 。两周前，就在病例开始真正激增之前，我指出 [会变得更糟](https://lifehacker.com/its-gonna-get-worse-1844002403) 。
 

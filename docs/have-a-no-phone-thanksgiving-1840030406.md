@@ -1,6 +1,6 @@
 # 过一个没有电话的感恩节
 
-> 原文:[https://life hacker . com/have-a-no-phone-thanksgiving-1840030406](https://lifehacker.com/have-a-no-phone-thanksgiving-1840030406)
+> 原文：<https://lifehacker.com/have-a-no-phone-thanksgiving-1840030406>
 
 这个感恩节，给自己多一件值得感恩的事:没有智能手机的一天。
 

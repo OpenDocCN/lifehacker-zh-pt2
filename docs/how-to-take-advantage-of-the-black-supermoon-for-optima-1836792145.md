@@ -1,6 +1,6 @@
 # 如何利用黑色的超级月亮进行最佳观星
 
-> 原文:[https://life hacker . com/how-to-take-advantage of the black-super moon-for-optima-1836792145](https://lifehacker.com/how-to-take-advantage-of-the-black-supermoon-for-optima-1836792145)
+> 原文：<https://lifehacker.com/how-to-take-advantage-of-the-black-supermoon-for-optima-1836792145>
 
 如果你的夏季日程中有观星，那么掸掉你望远镜上的灰尘:感谢黑色超级月亮，接下来的两个周末将是理想的。这意味着什么，以及如何充分利用这些特别黑暗的夜晚。
 

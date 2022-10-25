@@ -1,6 +1,6 @@
 # 今年夏天该不该买房？
 
-> 原文:[https://life hacker . com/should-you-buy-a-home-this-summer-1844012151](https://lifehacker.com/should-you-buy-a-home-this-summer-1844012151)
+> 原文：<https://lifehacker.com/should-you-buy-a-home-this-summer-1844012151>
 
 如果你的脑海中闪过如此多的想法，也许，可能，你今年想买房子，你肯定会发现自己处于情绪的过山车上。
 

@@ -1,6 +1,6 @@
 # 现在在杂货店购买 WIC 商品时要小心
 
-> 原文:[https://life hacker . com/be-minoring-about-purchasing-wic-items-at-the-杂货店-st-1842439799](https://lifehacker.com/be-mindful-about-purchasing-wic-items-at-the-grocery-st-1842439799)
+> 原文：<https://lifehacker.com/be-mindful-about-purchasing-wic-items-at-the-grocery-st-1842439799>
 
 当你现在去杂货店购物的时候，你可能没有太多的选择去发现和购买什么。如果你碰巧是一个在 WIC 为家庭购物的人，这种选择就更加有限了。
 

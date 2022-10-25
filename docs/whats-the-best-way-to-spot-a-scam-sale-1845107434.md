@@ -1,6 +1,6 @@
 # 识别欺诈销售的最佳方法是什么？
 
-> 原文:[https://jalopnik . com/whats-the-best-way-to-spot-a-scam-sale-1845107434](https://jalopnik.com/whats-the-best-way-to-spot-a-scam-sale-1845107434)
+> 原文：<https://jalopnik.com/whats-the-best-way-to-spot-a-scam-sale-1845107434>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。我决定挑几个问题，试着帮帮大家。本周，我们将讨论如何发现网上汽车诈骗，以及如何在租期结束时买车。
 

@@ -1,6 +1,6 @@
 # 一边用“Scener”看网飞和 HBO，一边视频聊天
 
-> 原文:[https://life hacker . com/video-chat-while-watch-with-scener-1843483388](https://lifehacker.com/video-chat-while-watching-netflix-and-hbo-with-scener-1843483388)
+> 原文：<https://lifehacker.com/video-chat-while-watching-netflix-and-hbo-with-scener-1843483388>
 
 前几天，我在想“G 奥什，自从我看了《创:遗产》后，它肯定已经永远消失了。“然后一个朋友在*动物穿越:新视野*里发现 [赛博服](https://villagerdb.com/item/cyber-suit) 在卖，她在我们岛聊里说了*同样的事情*。我们的解决方案？让我们一起看 *Tron: Legacy* ，用一个 **Chrome** 浏览器扩展来模拟我们实际上同时处于同一个空间的效果。
 

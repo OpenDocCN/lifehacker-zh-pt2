@@ -1,6 +1,6 @@
 # 既然如此多的看房都是虚拟的，如何避免租房诈骗
 
-> 原文:[https://life hacker . com/how-to-avoid-rent-so-much-viewings-is-1844813577](https://lifehacker.com/how-to-avoid-rental-scams-now-that-so-many-viewings-are-1844813577)
+> 原文：<https://lifehacker.com/how-to-avoid-rental-scams-now-that-so-many-viewings-are-1844813577>
 
 无论你是否喜欢参加虚拟医生就诊或婚礼，在疫情期间获得这些服务和活动已经改变了游戏规则。虽然使用房地产网站和应用程序来查看一处房产并不新鲜，但过去需要亲自完成的许多过程现在都在虚拟环境中进行。这当然很方便，但也为骗子提供了更多的机会——尤其是在 [租赁市场](https://lifehacker.com/tag/renting) 。以下是如何识别和避免他们的骗局。
 

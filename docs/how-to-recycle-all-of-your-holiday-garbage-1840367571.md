@@ -1,6 +1,6 @@
 # 如何回收你所有的假日垃圾
 
-> 原文:[https://life hacker . com/how-to-recycle-all-of-your-holiday-garbage-1840367571](https://lifehacker.com/how-to-recycle-all-of-your-holiday-garbage-1840367571)
+> 原文：<https://lifehacker.com/how-to-recycle-all-of-your-holiday-garbage-1840367571>
 
 啊，假期——庆祝、家庭和垃圾的时刻。很多垃圾。大量的装饰性垃圾会持续长达一个月或一天，然后在垃圾桶里终结。根据美国农业部的数据，美国人仅在 2017 年就在制作了超过 500 万棵圣诞树。地球 911 估计每年生产 460 万磅包装纸，其中大约一半最终被填埋。
 

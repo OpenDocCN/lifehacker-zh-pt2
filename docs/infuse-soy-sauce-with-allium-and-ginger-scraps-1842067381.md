@@ -1,6 +1,6 @@
 # 用葱姜末浸泡酱油
 
-> 原文:[https://life hacker . com/infuse-酱油-葱姜末-1842067381](https://lifehacker.com/infuse-soy-sauce-with-allium-and-ginger-scraps-1842067381)
+> 原文：<https://lifehacker.com/infuse-soy-sauce-with-allium-and-ginger-scraps-1842067381>
 
 像地球上的其他美食作家一样，我的冰箱里堆满了一罐罐神秘的泡菜、浸剂和腌泡汁。我(大部分)都喜欢，但我不会厚此薄彼，现在，一罐酱油、[葱头](https://lifehacker.com/this-dip-uses-every-part-of-the-green-onion-even-the-r-1828055849) 和姜皮就是我的生命之光。
 

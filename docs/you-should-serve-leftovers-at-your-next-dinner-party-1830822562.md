@@ -1,6 +1,6 @@
 # 你应该在下次宴会上提供剩菜
 
-> 原文:[https://life hacker . com/you-should-serve-lefts-in-your next-dinner-party-1830822562](https://lifehacker.com/you-should-serve-leftovers-at-your-next-dinner-party-1830822562)
+> 原文：<https://lifehacker.com/you-should-serve-leftovers-at-your-next-dinner-party-1830822562>
 
 提前制作的主菜是假日娱乐季节的天赐之物，但出于某种原因，它不是特殊场合用餐的默认技巧。的确应该是这样:不仅一天的丰盛炖肉对主人来说更容易，而且它实际上比刚出炉的味道更好。
 

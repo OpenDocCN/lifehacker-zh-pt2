@@ -1,6 +1,6 @@
 # 如何下载你的整个亚马逊购买历史
 
-> 原文:[https://life hacker . com/how-to-download-your-whole-Amazon-purchase-history-1834353979](https://lifehacker.com/how-to-download-your-entire-amazon-purchase-history-1834353979)
+> 原文：<https://lifehacker.com/how-to-download-your-entire-amazon-purchase-history-1834353979>
 
 这些年来，我在亚马逊买过不少东西。我一直知道，我可以进入网站，看看我最近的订单历史。我不知道的一件事是，你可以从网站上下载电子表格形式的整个订单历史。 [美国消费者新闻与商业频道本周早些时候详细介绍了如何做](https://www.cnbc.com/2019/04/26/how-to-see-everything-youve-ever-bought-from-amazon.html) 。
 

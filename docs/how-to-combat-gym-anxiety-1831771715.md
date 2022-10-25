@@ -1,6 +1,6 @@
 # 如何战胜健身房焦虑
 
-> 原文:[https://lifehacker.com/how-to-combat-gym-anxiety-1831771715](https://lifehacker.com/how-to-combat-gym-anxiety-1831771715)
+> 原文：<https://lifehacker.com/how-to-combat-gym-anxiety-1831771715>
 
 我过去讨厌健身房——不是因为实际锻炼本身，而是纯粹因为我太自我意识了。我一直有这样的想法，我会因为我低劣的深蹲姿势或者在跑步机上短暂的五分钟而受到批评——然后被永远驱逐出我的健身房，被驱逐到运动贱民的岛上。我非常讨厌它，我会避免在高峰时间使用健身房，只是为了避免别人的评判，即使这意味着在凌晨 4 点让我肾上腺素激增。
 

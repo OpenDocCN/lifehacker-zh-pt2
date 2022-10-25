@@ -1,6 +1,6 @@
 # 如何把一只苍蝇抓在手里
 
-> 原文:[https://life hacker . com/how-to-catch a fly-in-your-hand-1844847458](https://lifehacker.com/how-to-catch-a-fly-in-your-hand-1844847458)
+> 原文：<https://lifehacker.com/how-to-catch-a-fly-in-your-hand-1844847458>
 
 生活在沙漠气候中的好处之一是，你不一定需要空调——在许多情况下，蒸发冷却就可以了。由于所谓的沼泽冷却器在空气流通良好的情况下工作得最好，我们可以让我们的窗户(有时我们的门)整个夏天都裂着。坏处呢？嗡嗡飞来飞去的苍蝇。整天，每天。
 

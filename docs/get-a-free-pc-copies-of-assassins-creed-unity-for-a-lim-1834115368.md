@@ -1,6 +1,6 @@
 # 如何获得免费的个人电脑版《刺客信条:团结》
 
-> 原文:[https://life hacker . com/get-a-free-PC-copies-of-assigners-creed-unity-for-a-lim-1834115368](https://lifehacker.com/get-a-free-pc-copies-of-assassins-creed-unity-for-a-lim-1834115368)
+> 原文：<https://lifehacker.com/get-a-free-pc-copies-of-assassins-creed-unity-for-a-lim-1834115368>
 
 巴黎圣母院是世界上最古老和最具标志性的大教堂之一，也是法国国家历史的标志性部分。为了应对最近烧毁巴黎圣母院的火灾，法国视频游戏发行商育碧软件有限时间内提供免费的《刺客信条:团结》PC 版(通常 30 美元)。优惠活动将从 4 月 17 日持续到 4 月 25 日午夜。
 

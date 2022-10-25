@@ -1,6 +1,6 @@
 # 买房需要多少钱？
 
-> 原文:[https://life hacker . com/how-more-money-do-number-you-need-to-buy-a house-1835422567](https://lifehacker.com/how-much-money-do-you-need-to-buy-a-house-1835422567)
+> 原文：<https://lifehacker.com/how-much-money-do-you-need-to-buy-a-house-1835422567>
 
 当你考虑买房的成本时，你通常会考虑首付和每月的抵押贷款成本。但是，虽然首付金额比以往任何时候都更灵活，但隐藏的费用正等着你在每个角落。那么:你到底需要多少钱才能买一套房子？
 

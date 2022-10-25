@@ -1,6 +1,6 @@
 # 用这个鸟鸣测验来辨别你所在地区的鸟鸣
 
-> 原文:[https://life hacker . com/identify-chimps-in-your-area-with this-bird song-quiz-1843288985](https://lifehacker.com/identify-chirps-in-your-area-with-this-birdsong-quiz-1843288985)
+> 原文：<https://lifehacker.com/identify-chirps-in-your-area-with-this-birdsong-quiz-1843288985>
 
 你是否比以前更注意窗外的鸟了？无论你住在哪里，都可能有一些欢快的事情在附近游荡。如果你想测试你的知识——或者只是想倾听你周围的世界——试试这个简单的测验。
 

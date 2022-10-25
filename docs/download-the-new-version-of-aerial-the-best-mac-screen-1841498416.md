@@ -1,6 +1,6 @@
 # 下载新版的苹果电脑屏保“天线”
 
-> 原文:[https://life hacker . com/download-the-new-version-of-aerial-the-best-MAC-screen-1841498416](https://lifehacker.com/download-the-new-version-of-aerial-the-best-mac-screen-1841498416)
+> 原文：<https://lifehacker.com/download-the-new-version-of-aerial-the-best-mac-screen-1841498416>
 
 我不能更兴奋地看到有一个新版本的 Aerial out，因为它真的是你能得到的最伟大的 macOS 屏幕保护程序——与 [ScreenMazer](https://github.com/dado3212/screenmazer) 紧随其后。这是因为 Aerial 允许你通过显示苹果流媒体盒子用作*屏幕保护程序的精彩视频，将你的 Mac 或 MacBook 变成某种苹果电视。*
 

@@ -1,6 +1,6 @@
 # 所以你想自己做辣酱
 
-> 原文:[https://the take out . com/tips-on-how-to-make-your-own-hot-sauce-1833783650](https://thetakeout.com/tips-on-how-to-make-your-own-hot-sauce-1833783650)
+> 原文：<https://thetakeout.com/tips-on-how-to-make-your-own-hot-sauce-1833783650>
 
 [我爱辣酱](https://thetakeout.com/r-hotsauce-reddit-sweetest-spiciest-corner-hot-sauce-1832732480) 。我几乎每餐都用它:河粉、三明治、披萨、玉米片。正如埃塞尔在《T4》[弗兰克的红热广告](https://www.youtube.com/watch?v=pOXOb52dFXI) 中亲切地说的那样，“我把那玩意儿抹在所有东西上。”我冰箱里有十几瓶，每一瓶都有自己独特的味道和热量。
 

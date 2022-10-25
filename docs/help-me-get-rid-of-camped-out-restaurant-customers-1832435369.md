@@ -1,6 +1,6 @@
 # 问刻薄的女服务员:帮我漂亮地赶走这些露宿的顾客
 
-> 原文:[https://the take out . com/help-me-get-out-of-camped-restaurant-customers-1832435369](https://thetakeout.com/help-me-get-rid-of-camped-out-restaurant-customers-1832435369)
+> 原文：<https://thetakeout.com/help-me-get-rid-of-camped-out-restaurant-customers-1832435369>
 
 > *亲爱的咸:这里的服务伙伴。我需要你的建议来解决每隔几周就会出现的一个恼人的问题:桌子就是不离开。在我确定没有更多的饮料来了，也没人想要甜点菜单后，我离开了，有人付了款，然后…什么都没有。*
 > 

@@ -1,6 +1,6 @@
 # 这种苏格兰鸡尾酒是用玻璃杯装苹果调味的
 
-> 原文:[https://life hacker . com/this-scotch-cocktail-is-apple-season-in-a-glass-1838977456](https://lifehacker.com/this-scotch-cocktail-is-apple-season-in-a-glass-1838977456)
+> 原文：<https://lifehacker.com/this-scotch-cocktail-is-apple-season-in-a-glass-1838977456>
 
 我们稳稳地处于 [苹果季](https://lifehacker.com/enjoy-these-heirloom-apple-reviews-by-author-chuck-wend-1837278182) 当中，我非常享受。除了只吃苹果片(和非常好的奶酪)之外，我还把秋天的水果加入沙拉、甜点和鸡尾酒中。
 

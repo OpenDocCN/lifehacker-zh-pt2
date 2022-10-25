@@ -1,6 +1,6 @@
 # 在两次会议之间，把你的吸奶器零件放在冰箱里
 
-> 原文:[https://life hacker . com/store-your-breast-pump-parts-in-the-冰箱-sess-1840874381](https://lifehacker.com/store-your-breast-pump-parts-in-the-fridge-between-sess-1840874381)
+> 原文：<https://lifehacker.com/store-your-breast-pump-parts-in-the-fridge-between-sess-1840874381>
 
 母乳喂养和哺乳涉及到很多后勤工作。你需要时间，需要空间，需要设备。有时候，在一次抽水后，你就是不想再清洗所有这些部件。有时候，你没有时间，因为你还有三分钟就要开会了，或者有人敲门，或者婴儿在哭。在这种情况下，您可以将零件暂时存放在冰箱中。
 

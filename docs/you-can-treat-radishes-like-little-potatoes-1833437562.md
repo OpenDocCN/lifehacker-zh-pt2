@@ -1,6 +1,6 @@
 # 你可以像对待小土豆一样对待萝卜
 
-> 原文:[https://life hacker . com/you-can-treat-萝卜小土豆-1833437562](https://lifehacker.com/you-can-treat-radishes-like-little-potatoes-1833437562)
+> 原文：<https://lifehacker.com/you-can-treat-radishes-like-little-potatoes-1833437562>
 
 对大多数人来说，萝卜是一种沙拉蔬菜，而且是一种很好的蔬菜。我真的很喜欢生萝卜——特别是蘸了少许盐的黄油——但是煮熟的萝卜令人惊讶地令人愉快。
 

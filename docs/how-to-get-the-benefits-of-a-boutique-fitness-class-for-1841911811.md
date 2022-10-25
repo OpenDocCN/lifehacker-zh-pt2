@@ -1,6 +1,6 @@
 # 如何免费获得精品健身课的好处
 
-> 原文:[https://life hacker . com/how-to-get-the-benefits-of-a-boutique-fitness-class for-1841911811](https://lifehacker.com/how-to-get-the-benefits-of-a-boutique-fitness-class-for-1841911811)
+> 原文：<https://lifehacker.com/how-to-get-the-benefits-of-a-boutique-fitness-class-for-1841911811>
 
 健身班的广告做了很多承诺。你和你超级有魅力的同学会成为很好的朋友，他们会在清晨进行强度惊人但有趣的锻炼。你的运动休闲将会非常适合。灯光会很好。
 

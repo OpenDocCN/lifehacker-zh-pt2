@@ -1,6 +1,6 @@
 # 用这些书让你的孩子进入诗歌世界
 
-> 原文:[https://life hacker . com/get-your-kid-into-poeting with these-books-1842514016](https://lifehacker.com/get-your-kid-into-poetry-with-these-books-1842514016)
+> 原文：<https://lifehacker.com/get-your-kid-into-poetry-with-these-books-1842514016>
 
 我们童年时反复阅读的诗歌会伴随我们一生。四月是 [国家诗歌月](https://poets.org/national-poetry-month) ，这让它成为向你的孩子介绍诗歌奇迹的好时机。但是事实上，我们很多人现在都在原地躲避——孩子们已经阅读了他们的个人图书馆五次——这使得这个四月成为一个特别好的时光。
 

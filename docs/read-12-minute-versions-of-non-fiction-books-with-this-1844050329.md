@@ -1,6 +1,6 @@
 # 用这个应用程序阅读 12 分钟版本的非小说类书籍
 
-> 原文:[https://life hacker . com/read-12-minute-versions-of-non-fiction-books-with-this-1844050329](https://lifehacker.com/read-12-minute-versions-of-non-fiction-books-with-this-1844050329)
+> 原文：<https://lifehacker.com/read-12-minute-versions-of-non-fiction-books-with-this-1844050329>
 
 你有没有走过图书馆或书店，被外面的书的数量压得喘不过气来，你知道你永远没有时间去读？我们也是。虽然小说作品总有可能被改编成容易理解的电影或电视剧(这并不是说改编一定会很好)，但非小说读物通常不会这样(尽管有《隐藏的人物》)。如果你希望有更多的时间阅读和学习非小说类书籍， [看看 12 分钟](https://12min.com/) ，这是一项订阅服务，可以将它们压缩成 12 分钟的有声读物，并附有书面摘要，你可以一次阅读。
 

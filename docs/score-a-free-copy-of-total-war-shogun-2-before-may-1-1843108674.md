@@ -1,6 +1,6 @@
 # 在 5 月 1 日前免费获得一份《全面战争:幕府将军 2》
 
-> 原文:[https://life hacker . com/score-a-free-copy-of-town-2-before-may-1-1843108674](https://lifehacker.com/score-a-free-copy-of-total-war-shogun-2-before-may-1-1843108674)
+> 原文：<https://lifehacker.com/score-a-free-copy-of-total-war-shogun-2-before-may-1-1843108674>
 
 **Windows & Mac:** 人生最美好的东西都是免费的吧？虽然得到 [一些额外的温迪鸡块](https://lifehacker.com/its-free-nug-friday-at-the-wendys-drive-thru-1843041310) 很有趣，但我更喜欢能给我 100 多个小时娱乐的免费东西。这就是为什么我很高兴看到每个人都可以免费获得广受好评(并令人上瘾)的*全面战争:幕府将军 2，*这款游戏结合了超级有趣的自上而下的世界管理和令人难以置信的实时军队战斗。
 

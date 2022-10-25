@@ -1,6 +1,6 @@
 # 这种病毒攻击真的能让干涸的标记复活吗？
 
-> 原文:[https://life hacker . com/does-this-viral-hack-actually-revive-dry-out-markers-1842239879](https://lifehacker.com/does-this-viral-hack-actually-revive-dried-out-markers-1842239879)
+> 原文：<https://lifehacker.com/does-this-viral-hack-actually-revive-dried-out-markers-1842239879>
 
 现在的孩子喜欢两样东西:抖音和学习用品。
 

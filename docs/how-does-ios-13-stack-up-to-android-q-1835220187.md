@@ -1,6 +1,6 @@
 # how does ios 13 stack up to android q 1835220187
 
-> 原文:[https://life hacker . com/how-does-IOs-13-stack-up-to-Android-q-1835220187](https://lifehacker.com/how-does-ios-13-stack-up-to-android-q-1835220187)
+> 原文：<https://lifehacker.com/how-does-ios-13-stack-up-to-android-q-1835220187>
 
 [Lifehacker's Complete Guide to Android](https://androidos.kinja.com)) : title[![](../Images/e2dcc498f7314a475ad7b9879a9d5584.png)](https://androidos.kinja.com)[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)Don't get overwhelmed by Android's many (many!) settings and apps. Master your Android phone or tablet with our ample collection of guides, tips, and tricks.
 

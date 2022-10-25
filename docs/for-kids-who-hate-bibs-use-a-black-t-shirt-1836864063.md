@@ -1,6 +1,6 @@
 # 对于讨厌围嘴的孩子，可以穿黑色 t 恤
 
-> 原文:[https://life hacker . com/for-kids-who-hate-bibs-use-a-black-t-shirt-1836864063](https://lifehacker.com/for-kids-who-hate-bibs-use-a-black-t-shirt-1836864063)
+> 原文：<https://lifehacker.com/for-kids-who-hate-bibs-use-a-black-t-shirt-1836864063>
 
 我的女儿穿围兜从来没有问题——事实上，我一直认为有食物收集袋的围兜是本世纪的突破性发明。(我从“一个朋友”那里听到的一个苦恼的家长的建议:早上当你跑出门时，往口袋里倒一些麦片，让你的孩子在车里吃早餐。)
 

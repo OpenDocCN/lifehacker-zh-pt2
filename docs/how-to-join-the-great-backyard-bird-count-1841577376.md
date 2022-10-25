@@ -1,6 +1,6 @@
 # 如何加入伟大的后院鸟类计数
 
-> 原文:[https://life hacker . com/how-to-join-the great-后院观鸟-count-1841577376](https://lifehacker.com/how-to-join-the-great-backyard-bird-count-1841577376)
+> 原文：<https://lifehacker.com/how-to-join-the-great-backyard-bird-count-1841577376>
 
 准备好数数鸟吧，因为奥杜邦的 [大后院鸟类计数](https://www.audubon.org/conservation/about-great-backyard-bird-count) 从今天 2 月 12 日开始，一直持续到 15 日星期一。这是一个初学者友好的活动，甚至比 [圣诞鸟计数](https://lifehacker.com/theres-still-time-to-join-the-christmas-bird-count-1840416104) 更容易加入。
 

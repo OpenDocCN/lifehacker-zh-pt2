@@ -1,6 +1,6 @@
 # 通过关闭 iPhone 上的“唤醒”来减少分心
 
-> 原文:[https://life hacker . com/reduce-distraction-by-turning-off-raise-to-wake-on-iph-1829937469](https://lifehacker.com/reduce-distractions-by-turning-off-raise-to-wake-on-iph-1829937469)
+> 原文：<https://lifehacker.com/reduce-distractions-by-turning-off-raise-to-wake-on-iph-1829937469>
 
 在我们永无止境的追求中，减少我们周围的技术工具和玩具对我们的干扰，减少使用手机是最重要的事情之一。
 

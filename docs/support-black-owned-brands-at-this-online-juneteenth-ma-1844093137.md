@@ -1,6 +1,6 @@
 # 在 6 月 10 日的在线市场上支持黑人自有品牌
 
-> 原文:[https://life hacker . com/support-black-owned-brands-at-this-online-June teenth-ma-1844093137](https://lifehacker.com/support-black-owned-brands-at-this-online-juneteenth-ma-1844093137)
+> 原文：<https://lifehacker.com/support-black-owned-brands-at-this-online-juneteenth-ma-1844093137>
 
 小企业在新冠肺炎疫情期间受到了的重创，包括一家 [辛西娅丹尼尔斯](http://www.cdcoevents.com) 的挤兑。作为孟菲斯的一名活动策划人，丹尼尔斯的工作很快就枯竭了。然后在五月，当她不能去亚特兰大看望她的母亲时，她决定寄一个包裹，里面装满了她喜欢的当地黑人企业的产品。在那之后，丹尼尔斯开始在社交媒体上为其他黑人所有的企业提供建议，变成了在 6 月 19 日组织一个在线市场。
 

@@ -1,6 +1,6 @@
 # 2020 年 4 月 Prime Video 将迎来什么
 
-> 原文:[https://life hacker . com/whats-coming-to-prime-video-in-four-2020-1842528741](https://lifehacker.com/whats-coming-to-prime-video-in-april-2020-1842528741)
+> 原文：<https://lifehacker.com/whats-coming-to-prime-video-in-april-2020-1842528741>
 
 四月即将来临，随之而来的是几十部新电影和电视节目将在 Prime Video 上播出。
 

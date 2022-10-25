@@ -1,6 +1,6 @@
 # how to select the right therapist for you 1833246447
 
-> 原文:[https://life hacker . com/how-to-select-the-right-for-you-1833246447](https://lifehacker.com/how-to-select-the-right-therapist-for-you-1833246447)
+> 原文：<https://lifehacker.com/how-to-select-the-right-therapist-for-you-1833246447>
 
 找一个好的治疗师不容易。首先，取决于保险覆盖范围，治疗费用可能高得令人难以置信。然后，还有时间安排的限制(如果你是传统的朝九晚五的工作方式，很难找到有开放时间的治疗师)，地点限制，一般时间限制，*和*试图搞清楚你要向其倾诉的人是否是帮助你打开和重新打包的正确人选。
 

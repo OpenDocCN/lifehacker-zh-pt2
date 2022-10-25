@@ -1,6 +1,6 @@
 # 该不该删除自己的炒股 App？
 
-> 原文:[https://life hacker . com/should-you-delete-your-stock-trading-app-1844748240](https://lifehacker.com/should-you-delete-your-stock-trading-app-1844748240)
+> 原文：<https://lifehacker.com/should-you-delete-your-stock-trading-app-1844748240>
 
 随着疫情吞噬了整个国家，数百万足不出户的美国人沉浸在一个新的爱好中:炒股。受免佣金交易能力的吸引，在线经纪公司——如查尔斯·施瓦布、富达和 TD Ameritrade——今年的用户数量有所上升。
 

@@ -1,6 +1,6 @@
 # 冷冻酸奶是一种早餐食品
 
-> 原文:[https://life hacker . com/frozen-酸奶是早餐食品-1835007383](https://lifehacker.com/frozen-yogurt-is-a-breakfast-food-1835007383)
+> 原文：<https://lifehacker.com/frozen-yogurt-is-a-breakfast-food-1835007383>
 
 早餐吃冷冻甜点似乎是早晨的终极叛逆。这不仅是一天中的“错误”时间，而且用所有的糖开始你的一天是一个大胆的选择，尽管如果你仔细想想，并不比用肉桂卷开始你的早晨大胆多少。
 

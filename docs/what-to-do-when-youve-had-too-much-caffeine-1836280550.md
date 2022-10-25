@@ -1,6 +1,6 @@
 # 当你摄入过多咖啡因时该怎么办
 
-> 原文:[https://life hacker . com/1836280550](https://lifehacker.com/what-to-do-when-youve-had-too-much-caffeine-1836280550)当你喝太多咖啡因时该做什么
+> 原文：<https://lifehacker.com/what-to-do-when-youve-had-too-much-caffeine-1836280550>当你喝太多咖啡因时该做什么
 
 所以你早上喝咖啡喝多了，现在你在座位上发抖。你会被咖啡因的神经过敏困扰一段时间，但以下是如何充分利用这种情况的方法。
 

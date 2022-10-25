@@ -1,6 +1,6 @@
 # 和孩子一起玩的最佳多人游戏
 
-> 原文:[https://life hacker . com/the-best-multiplayer-games-to-play-with-your-kid-1838542388](https://lifehacker.com/the-best-multiplayer-games-to-play-with-your-kid-1838542388)
+> 原文：<https://lifehacker.com/the-best-multiplayer-games-to-play-with-your-kid-1838542388>
 
 和你的孩子玩游戏很有趣，但最终你不得不面对他们有多差劲。儿童发育中的大脑无法处理复杂的问题，他们不成熟的神经系统反应不够快，无法避免被僵尸涂抹，他们精细的运动技能也是纯粹的垃圾。
 

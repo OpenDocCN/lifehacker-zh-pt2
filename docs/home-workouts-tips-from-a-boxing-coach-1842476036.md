@@ -1,6 +1,6 @@
 # 家庭训练:来自拳击蔻驰的提示
 
-> 原文:[https://life hacker . com/home-workouts-tips-from-a-boxing-coach-1842476036](https://lifehacker.com/home-workouts-tips-from-a-boxing-coach-1842476036)
+> 原文：<https://lifehacker.com/home-workouts-tips-from-a-boxing-coach-1842476036>
 
 既然健身房已经关门了，我们都需要和其他人保持 6 英尺的距离，我们需要调整我们的锻炼计划。事实证明，许多有用的技巧可以从拳击训练中借鉴。
 

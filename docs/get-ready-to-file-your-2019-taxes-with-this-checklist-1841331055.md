@@ -1,6 +1,6 @@
 # 准备好用这份清单提交你的 2019 年税收吧
 
-> 原文:[https://life hacker . com/get-ready-to-file-your-2019-taxes-with this-check list-1841331055](https://lifehacker.com/get-ready-to-file-your-2019-taxes-with-this-checklist-1841331055)
+> 原文：<https://lifehacker.com/get-ready-to-file-your-2019-taxes-with-this-checklist-1841331055>
 
 现在纳税季正式开始了，你可能认为你已经准备好坐下来完成任务了。但是很有可能你会发现你错过了一条重要的信息，这将让你在屋子里四处寻找那张你很漂亮的表格。
 

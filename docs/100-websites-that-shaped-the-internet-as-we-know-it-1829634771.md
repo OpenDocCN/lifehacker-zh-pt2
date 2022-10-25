@@ -1,6 +1,6 @@
 # 100 websites that shaped the internet as we know it 1829634771
 
-> 原文:[https://gizmodo . com/100-websites-that-shaping-the-internet-as-we-know-it-1829634771](https://gizmodo.com/100-websites-that-shaped-the-internet-as-we-know-it-1829634771)
+> 原文：<https://gizmodo.com/100-websites-that-shaped-the-internet-as-we-know-it-1829634771>
 
 万维网正式成熟到我们可以判断它生产了什么。没错，是时候让世界开始建立一个有史以来最重要的网站的佳能了，Gizmodo 的工作人员有意见。
 

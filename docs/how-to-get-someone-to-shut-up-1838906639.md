@@ -1,6 +1,6 @@
 # 如何让某人闭嘴
 
-> 原文:[https://life hacker . com/how-to-get-someone-shut-up-1838906639](https://lifehacker.com/how-to-get-someone-to-shut-up-1838906639)
+> 原文：<https://lifehacker.com/how-to-get-someone-to-shut-up-1838906639>
 
 我们都知道有些人在讲故事的时候，倾向于 [不停地漫谈](https://lifehacker.com/how-to-deal-with-someone-who-constantly-rambles-1677630626) 。有时候，是因为他们在发泄，只是需要一个出口。其他时候，这是他们已经养成的习惯，甚至没有意识到。与此同时，你是一个沉默的旁观者，关注着他们故事中每一个不必要的细节。
 

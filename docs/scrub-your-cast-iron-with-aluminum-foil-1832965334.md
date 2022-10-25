@@ -1,6 +1,6 @@
 # 用铝箔擦洗你的铸铁
 
-> 原文:[https://life hacker . com/scrub-your-cast-iron-with-铝箔-1832965334](https://lifehacker.com/scrub-your-cast-iron-with-aluminum-foil-1832965334)
+> 原文：<https://lifehacker.com/scrub-your-cast-iron-with-aluminum-foil-1832965334>
 
 现在，我们都很清楚，用肥皂 和水清洗你的铸铁锅是很好的，只要你及时擦干并重新调味。但是肥皂和水并不总是管用，有时你需要一点额外的帮助来去除你的锅上的粘糊糊的东西，这就是我转向普通铝箔的时候。
 

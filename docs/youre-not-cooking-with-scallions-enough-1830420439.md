@@ -1,6 +1,6 @@
 # 你做菜用的葱不够多
 
-> 原文:[https://life hacker . com/you-not-cooking-with-葱花-1830420439](https://lifehacker.com/youre-not-cooking-with-scallions-enough-1830420439)
+> 原文：<https://lifehacker.com/youre-not-cooking-with-scallions-enough-1830420439>
 
 我喜欢大葱。懒人和智者的洋葱，大葱用途广泛，非常便宜，易于处理，除了作为配菜的典型用途外，它们应该是每个人厨房里的主食。
 

@@ -1,6 +1,6 @@
 # 如果网飞无法连接到您的电视，该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-网飞-wont-connect-on-your-TV-1843677939](https://lifehacker.com/what-to-do-if-netflix-wont-connect-on-your-tv-1843677939)
+> 原文：<https://lifehacker.com/what-to-do-if-netflix-wont-connect-on-your-tv-1843677939>
 
 这个周末，我的一个室友问了我一个奇怪的问题:网飞之前在他的电视上工作得很好，现在不再加载了。电视的其他一切都正常，但网飞只是不停地尝试连接，不时出现无休止的“tvq-rnd-100”错误。
 

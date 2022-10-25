@@ -1,6 +1,6 @@
 # USB 线可以延伸多远？
 
-> 原文:[https://life hacker . com/how-far-I-can-extend-a-USB-cable-1843998200](https://lifehacker.com/how-far-can-i-extend-a-usb-cable-1843998200)
+> 原文：<https://lifehacker.com/how-far-can-i-extend-a-usb-cable-1843998200>
 
 我数不清有多少次我的朋友问我为什么他们拥有的东西不能正常工作或充电，我调查了这个问题，却发现他们正在使用一种大杂烩般的延长线——或者世界上最长的延长线——来给所述设备供电或传输数据。
 

@@ -1,6 +1,6 @@
 # 教你的孩子“性能力”
 
-> 原文:[https://life hacker . com/teach-your-kids-sexual-competence-1832016565](https://lifehacker.com/teach-your-kids-sexual-competence-1832016565)
+> 原文：<https://lifehacker.com/teach-your-kids-sexual-competence-1832016565>
 
 我们想和我们的孩子谈论性吗？编号
 

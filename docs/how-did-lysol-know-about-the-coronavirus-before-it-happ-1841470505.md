@@ -1,6 +1,6 @@
 # 在冠状病毒发生之前，来苏是如何‘知道’它的？
 
-> 原文:[https://life hacker . com/how-DOD-lysol-know-on-the-coronavirus-before-it-happ-1841470505](https://lifehacker.com/how-did-lysol-know-about-the-coronavirus-before-it-happ-1841470505)
+> 原文：<https://lifehacker.com/how-did-lysol-know-about-the-coronavirus-before-it-happ-1841470505>
 
 一直成为头条新闻的冠状病毒在 2019 年末之前并不为科学界所知。然而，人们正在张贴旧瓶装来苏消毒剂和 Clorox 湿巾的照片，声称其内容物可以杀死冠状病毒。怎么回事？
 

@@ -1,6 +1,6 @@
 # 如何让 iOS 13 告诉你耳机声音太大
 
-> 原文:[https://life hacker . com/how-to-get-IOs-13-to-tell-you-if-your-headphones-to-1838368979](https://lifehacker.com/how-to-get-ios-13-to-tell-you-if-your-headphones-are-to-1838368979)
+> 原文：<https://lifehacker.com/how-to-get-ios-13-to-tell-you-if-your-headphones-are-to-1838368979>
 
 有了 [最新的 iOS 更新](https://lifehacker.com/all-the-big-ios-13-changes-apple-announced-at-wwdc-19-1835216984) ，苹果健康应用现在可以告诉你你所暴露的噪音水平——既来自你周围的环境，也来自你的耳机。下面是如何设置它，以及一旦你有了这些信息该怎么做。
 

@@ -1,6 +1,6 @@
 # 我需要一辆买得起的车来打破我糟糕乘坐的坏运气！我应该买什么？
 
-> 原文:[https://jalopnik . com/我需要一辆买得起的车来打破我的厄运-1834135738](https://jalopnik.com/i-need-an-affordable-car-to-break-my-streak-of-bad-luck-1834135738)
+> 原文：<https://jalopnik.com/i-need-an-affordable-car-to-break-my-streak-of-bad-luck-1834135738>
 
 拉泉一直在一成不变地购买不耐用的汽车。他不太挑剔，只是想为他的狗买一些舒适、可靠、全轮驱动和加热座椅的东西，但他的价格让这有点挑战性。他应该买什么车？
 

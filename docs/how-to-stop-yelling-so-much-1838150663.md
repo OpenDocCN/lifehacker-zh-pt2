@@ -1,6 +1,6 @@
 # 如何停止大喊大叫
 
-> 原文:[https://life hacker . com/how-to-stop-shopping-so-much-1838150663](https://lifehacker.com/how-to-stop-yelling-so-much-1838150663)
+> 原文：<https://lifehacker.com/how-to-stop-yelling-so-much-1838150663>
 
 这个建议只是给你的，不是给我的，因为我绝对不会对我的宝贝孩子大声嚷嚷，什么样的人会做这种事？？
 

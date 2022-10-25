@@ -1,6 +1,6 @@
 # 购买西南航空公司的秋季航班只需 49 美元
 
-> 原文:[https://life hacker . com/buy-fall-south west-flights-for-little-as-49-1836418770](https://lifehacker.com/buy-fall-southwest-flights-for-as-little-as-49-1836418770)
+> 原文：<https://lifehacker.com/buy-fall-southwest-flights-for-as-little-as-49-1836418770>
 
 如果你还没有预订今年秋天的度假，这就是你的机会——西南航空公司将在明天晚上 11:59 PT 结束的精选航班上进行*另一场*促销。
 

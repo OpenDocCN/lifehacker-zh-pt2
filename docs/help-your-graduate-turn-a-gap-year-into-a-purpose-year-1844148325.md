@@ -1,6 +1,6 @@
 # help your graduate turn a gap year into a purpose year 1844148325
 
-> 原文:[https://life hacker . com/help-your-graduate-turn-a-gap-year-a-purpose-a-purpose-purpose-a-purpose-a-purpose-a-purpose-a-purpose-purpose-a-purpose-a-purpose-a-purpose-a-purpose-year-a-a-purpose-a-purpose-purpose-a-a-purpose-a-a-a-a-purpose-a-a-a-a-a-purpose-a-a-a-purpose-year-a-purpose-a](https://lifehacker.com/help-your-graduate-turn-a-gap-year-into-a-purpose-year-1844148325)
+> 原文：<https://lifehacker.com/help-your-graduate-turn-a-gap-year-into-a-purpose-year-1844148325>
 
 今年的高中毕业生今年没有获得完整的毕业经历。在许多情况下，他们错过了学校的最后几个月，随之而来的还有毕业舞会、春季运动会、学年结束庆典，甚至是他们自己的毕业典礼。随着秋季不确定性的逼近，毕业生们可能会考虑一些即使在非疫情时代也经常做的事情:他们可能想度过一个“间隔年”
 

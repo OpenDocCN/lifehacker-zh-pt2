@@ -1,6 +1,6 @@
 # 什么时候孩子可以坐在汽车的前座？
 
-> 原文:[https://life hacker . com/when-can-kids-ride-in-the-front-seat-the-car-1838975741](https://lifehacker.com/when-can-kids-ride-in-the-front-seat-of-the-car-1838975741)
+> 原文：<https://lifehacker.com/when-can-kids-ride-in-the-front-seat-of-the-car-1838975741>
 
 如果你想快速简单地回答每个孩子心中的一个问题——我什么时候可以坐在前排？—是这个:13 岁。这是美国儿科学会推荐的，并且在汽车座椅安全专家中被广泛接受为最安全的年龄。
 

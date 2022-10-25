@@ -1,6 +1,6 @@
 # 十月更新后如何回收 Windows 10 硬盘空间
 
-> 原文:[https://life hacker . com/how-to-reclaim-space-on-your-windows-10-hard-drive-afte-1829729468](https://lifehacker.com/how-to-reclaim-space-on-your-windows-10-hard-drive-afte-1829729468)
+> 原文：<https://lifehacker.com/how-to-reclaim-space-on-your-windows-10-hard-drive-afte-1829729468>
 
 感觉微软正在加大对 Windows 的主要系统更新，现在大约每六个月就会有一次。但问题是，除了雷德蒙吃掉你的文件 之外，Windows 更新总是在你的电脑上留下许多临时文件和其他占用空间的垃圾。这可能会随着时间的推移而累积，并吃掉许多浪费的千兆字节，您可能无法节省，也不应该有。
 

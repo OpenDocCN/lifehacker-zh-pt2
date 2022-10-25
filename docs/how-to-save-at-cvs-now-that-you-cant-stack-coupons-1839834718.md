@@ -1,6 +1,6 @@
 # 既然不能叠优惠券，如何在 CVS 省钱
 
-> 原文:[https://life hacker . com/how-to-save-at-CVS-now-than-you-can-stack-coupons-1839834718](https://lifehacker.com/how-to-save-at-cvs-now-that-you-cant-stack-coupons-1839834718)
+> 原文：<https://lifehacker.com/how-to-save-at-cvs-now-that-you-cant-stack-coupons-1839834718>
 
 我们大多数人都在某个时候使用过优惠券，无论你是从报纸插页上撕下来的还是通过应用程序获取的。但高级 couponers 知道，使用一个优惠券只是门户；节省的真正途径是通过*堆积*它们。通过结合制造商和商店优惠券和其他优惠(如)你可以将你的储蓄从适度增加到几乎免费。
 

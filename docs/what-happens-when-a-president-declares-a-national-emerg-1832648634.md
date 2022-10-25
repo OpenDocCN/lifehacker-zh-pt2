@@ -1,6 +1,6 @@
 # 当总统宣布国家进入紧急状态时会发生什么？
 
-> 原文:[https://life hacker . com/what-happens-when-a-president-declarate-a-national-emerg-1832648634](https://lifehacker.com/what-happens-when-a-president-declares-a-national-emerg-1832648634)
+> 原文：<https://lifehacker.com/what-happens-when-a-president-declares-a-national-emerg-1832648634>
 
 今日颠倒， [特朗普总统宣布全国进入紧急状态，以努力为美墨边境提供资金。通过这样做，他将有效地绕过国会，获得数十亿美元的资金，以及其他能力，包括宣布宵禁的能力，甚至限制我们的实际行动(是的)。对任何一位总统来说，这都是一个可怕的权力，b 但是这份声明到底声明了什么呢？下面是你需要知道的:](https://splinternews.com/idiot-emergency-1832648217) 
 

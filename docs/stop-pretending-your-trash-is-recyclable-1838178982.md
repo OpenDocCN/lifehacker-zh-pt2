@@ -1,6 +1,6 @@
 # 不要假装你的垃圾是可回收的
 
-> 原文:[https://life hacker . com/stop-假装你的垃圾是可回收的-1838178982](https://lifehacker.com/stop-pretending-your-trash-is-recyclable-1838178982)
+> 原文：<https://lifehacker.com/stop-pretending-your-trash-is-recyclable-1838178982>
 
 如果你曾经站在你的回收箱前——不确定你手中的垃圾是否可回收——然后把它扔了进去，这篇文章是给你的。
 

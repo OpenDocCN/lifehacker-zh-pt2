@@ -1,6 +1,6 @@
 # 不要害怕味精
 
-> 原文:[https://lifehacker.com/stop-being-afraid-of-msg-1831011967](https://lifehacker.com/stop-being-afraid-of-msg-1831011967)
+> 原文：<https://lifehacker.com/stop-being-afraid-of-msg-1831011967>
 
 如果你仍然害怕调味味精让你头疼，你应该知道你已经相信了一个几十年的神话。不要绝望！现在你知道了真相，你可以去你最喜欢的使用味精的餐馆吃一顿庆祝，或者犒劳自己一瓶可爱的熊猫形状的 。
 

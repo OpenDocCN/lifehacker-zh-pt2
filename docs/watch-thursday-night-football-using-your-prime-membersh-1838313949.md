@@ -1,6 +1,6 @@
 # 从本周开始，使用您的 Prime 会员资格观看周四晚间足球赛
 
-> 原文:[https://life hacker . com/watch-Thursday-night-football-using-your-prime-members h-1838313949](https://lifehacker.com/watch-thursday-night-football-using-your-prime-membersh-1838313949)
+> 原文：<https://lifehacker.com/watch-thursday-night-football-using-your-prime-membersh-1838313949>
 
 今年，亚马逊再次为 Prime 会员提供一些周四晚上的足球比赛，通过 Prime 视频播放，除了拥有 Prime 会员资格之外，不需要额外费用。
 

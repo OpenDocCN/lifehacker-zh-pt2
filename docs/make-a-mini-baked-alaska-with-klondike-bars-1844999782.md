@@ -1,6 +1,6 @@
 # make a mini baked alaska with klondike bars 1844999782
 
-> 原文:[https://life hacker . com/make-a-mini-baked-Alaska-with-Klondike-bars-1844999782](https://lifehacker.com/make-a-mini-baked-alaska-with-klondike-bars-1844999782)
+> 原文：<https://lifehacker.com/make-a-mini-baked-alaska-with-klondike-bars-1844999782>
 
 烤阿拉斯加是牛排餐厅的餐后甜点。这绝对是复古的，有点俗气，而且——虽然完全可以在家里烹饪——比你想象的稍微复杂一点。
 

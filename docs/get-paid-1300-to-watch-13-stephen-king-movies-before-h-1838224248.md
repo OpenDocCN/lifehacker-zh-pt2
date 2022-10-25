@@ -1,6 +1,6 @@
 # 在万圣节前观看 13 部斯蒂芬·金的电影，可获得 1300 美元的报酬
 
-> 原文:[https://life hacker . com/get-payed-1300-to-watch-13-Stephen-king-movies-before-h-1838224248](https://lifehacker.com/get-paid-1300-to-watch-13-stephen-king-movies-before-h-1838224248)
+> 原文：<https://lifehacker.com/get-paid-1300-to-watch-13-stephen-king-movies-before-h-1838224248>
 
 喜欢恐怖电影？迪什可能有最适合你的工作。该公司是 T2 的一家公司，希望雇人在万圣节前观看 13 部根据斯蒂芬·金小说《T4》改编的电影。工资呢？$1300.
 

@@ -1,6 +1,6 @@
 # 如何在你的第一场 24 小时比赛中幸存下来
 
-> 原文:[https://jalopnik . com/how-to-survive-your ' s first-24 小时赛跑-1832358678](https://jalopnik.com/how-to-survive-your-first-24-hour-race-1832358678)
+> 原文：<https://jalopnik.com/how-to-survive-your-first-24-hour-race-1832358678>
 
 我参加了相当多的比赛，感觉自己已经为几乎每一个突发事件制定了一个合理的比赛计划。但是今年的 [劳力士 24 小时](https://jalopnik.com/why-you-need-to-go-to-the-rolex-24-before-you-die-1832159521)——我第一次参加 24 小时耐力赛——对我来说是一个全新的挑战。我成功地在现场观看了整个过程，你也可以。
 

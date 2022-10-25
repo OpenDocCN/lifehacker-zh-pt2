@@ -1,6 +1,6 @@
 # 确保你的紫外线账户现在已经链接到其他零售商了
 
-> 原文:[https://life hacker . com/确保你的紫外线帐户已链接至其他帐户-r-1832270454](https://lifehacker.com/make-sure-your-ultraviolet-account-is-linked-to-other-r-1832270454)
+> 原文：<https://lifehacker.com/make-sure-your-ultraviolet-account-is-linked-to-other-r-1832270454>
 
 如果你有一个紫外线账户，你应该继续操作 [链接你的图书馆](https://www.myuv.com) 到一些零售商。紫外线计划于 7 月 31 日正式关闭。
 

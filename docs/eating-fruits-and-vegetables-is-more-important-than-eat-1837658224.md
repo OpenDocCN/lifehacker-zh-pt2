@@ -1,6 +1,6 @@
 # 吃水果和蔬菜比吃有机食品更重要
 
-> 原文:[https://life hacker . com/吃水果蔬菜比吃更重要 1837658224](https://lifehacker.com/eating-fruits-and-vegetables-is-more-important-than-eat-1837658224)
+> 原文：<https://lifehacker.com/eating-fruits-and-vegetables-is-more-important-than-eat-1837658224>
 
 所有的水果和蔬菜都对你有好处，但当人们开始谈论如何健康饮食时，“有机”这个词往往会太频繁地出现。
 

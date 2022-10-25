@@ -1,6 +1,6 @@
 # 使用西南航空公司的这款飞机，换一个不那么痛苦的航班
 
-> 原文:[https://life hacker . com/use-this-south west-hack-to-switch-to-a less-friendly-f-1841693673](https://lifehacker.com/use-this-southwest-hack-to-switch-to-a-less-miserable-f-1841693673)
+> 原文：<https://lifehacker.com/use-this-southwest-hack-to-switch-to-a-less-miserable-f-1841693673>
 
 每一个预算旅行者都知道后悔的特殊滋味:当你早上 5 点站在安检处，诅咒自己选择了时刻表上最便宜的航班。
 

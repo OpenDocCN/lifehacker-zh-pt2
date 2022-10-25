@@ -1,6 +1,6 @@
 # 如何撤消和阻止 Windows 更新
 
-> 原文:[https://life hacker . com/how-to-undo-and-prevent-windows-updates-1836420965](https://lifehacker.com/how-to-undo-and-prevent-windows-updates-1836420965)
+> 原文：<https://lifehacker.com/how-to-undo-and-prevent-windows-updates-1836420965>
 
 Windows 10 重大更新 [并非一帆风顺](https://lifehacker.com/back-up-windows-10-before-installing-the-october-update-1829556930) 。如果你拥有微软的 Surface Book 2，你可能会有点恼火地知道 [不能更新](https://docs.microsoft.com/en-us/windows/release-information/status-windows-10-1903#536msgdesc) 到微软操作系统的最新迭代 Windows 10 版本 1903，这要感谢英伟达 GPU 的一个错误。
 

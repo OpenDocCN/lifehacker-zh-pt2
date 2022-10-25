@@ -1,6 +1,6 @@
 # 去问那个刻薄的女服务员:免下车餐馆把我点的菜弄乱了，并且拒绝改正
 
-> 原文:[https://the take out . com/drive-thru-missed-my-order-reject-make-it-right-1833624622](https://thetakeout.com/drive-thru-messed-up-my-order-refused-to-make-it-right-1833624622)
+> 原文：<https://thetakeout.com/drive-thru-messed-up-my-order-refused-to-make-it-right-1833624622>
 
 > *亲爱的咸:上周，我和家人有心情吃快餐炸鸡，决定提一桶。我们得到了一个 8 块和两个面，它花了很长时间订单到达。我气呼呼地走了，只想回家。*
 > 

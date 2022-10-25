@@ -1,6 +1,6 @@
 # 通过记忆小东西来提高你的记忆力
 
-> 原文:[https://life hacker . com/improve-your memory by-memoring-small-stuff-1842057726](https://lifehacker.com/improve-your-memory-by-memorizing-small-stuff-1842057726)
+> 原文：<https://lifehacker.com/improve-your-memory-by-memorizing-small-stuff-1842057726>
 
 我至少有 15 年没有背过电话号码了——但是根据记忆改善专家吉姆·奎克 的说法，花些时间练习 10 位数记忆可能是训练我们大脑的最好方法之一。
 

@@ -1,6 +1,6 @@
 # 如何添加 Chrome 新的黑暗模式和多彩主题
 
-> 原文:[https://life hacker . com/how-to-add-chrome-s-new-dark-mode-and-colorful-themes-1832570928](https://lifehacker.com/how-to-add-chrome-s-new-dark-mode-and-colorful-themes-1832570928)
+> 原文：<https://lifehacker.com/how-to-add-chrome-s-new-dark-mode-and-colorful-themes-1832570928>
 
 每个人都喜欢黑暗模式。增加一个高对比度的“反转类型”版本的网站和应用程序似乎总是在高级用户中大受欢迎，大概是因为当在弱光下盯着明亮的屏幕时，他们的深色调色板对眼睛更容易。如果你是黑暗模式的忠实用户，或者只是一个重新设计应用程序的粉丝，今天是一个令人兴奋的日子:谷歌发布了一套 14 种可供 Chrome 选择的调色板，包括经典的黑暗模式“黑色”。
 

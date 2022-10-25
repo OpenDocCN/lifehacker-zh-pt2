@@ -1,6 +1,6 @@
 # 用一点葡萄酒清洗你的番茄酱罐子
 
-> 原文:[https://life hacker . com/rinse-your-marinara-jars-with a little-wine-1845044211](https://lifehacker.com/rinse-your-marinara-jars-with-a-little-wine-1845044211)
+> 原文：<https://lifehacker.com/rinse-your-marinara-jars-with-a-little-wine-1845044211>
 
 无论你是用一罐事先准备好的番茄酱，还是用罐装的李子西红柿从头开始做你的调味酱，容器底部和侧面总会有一点红色的残渣，不管容器是塑料、玻璃还是铝制的。
 

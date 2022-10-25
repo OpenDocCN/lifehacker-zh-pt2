@@ -1,6 +1,6 @@
 # YouTube 电视用户可以免费获得一个月的 EPIX，没有任何附加条件
 
-> 原文:[https://life hacker . com/YouTube-TV-subscribers-get-a-a-free-month-of-epix-with-no-1842561096](https://lifehacker.com/youtube-tv-subscribers-get-a-free-month-of-epix-with-no-1842561096)
+> 原文：<https://lifehacker.com/youtube-tv-subscribers-get-a-free-month-of-epix-with-no-1842561096>
 
 YouTube TV 将在 4 月 25 日之前向订户提供免费访问 EPIX 频道的机会，这为那些在自我隔离积压中没有东西可看的用户抛出了一条救生索。
 

@@ -1,6 +1,6 @@
 # 工资差距的真实成本
 
-> 原文:[https://life hacker . com/the-real-cost-of-the-wage-gap-1830905111](https://lifehacker.com/the-real-cost-of-the-wage-gap-1830905111)
+> 原文：<https://lifehacker.com/the-real-cost-of-the-wage-gap-1830905111>
 
 每个人都熟悉这样一个统计数据:在美国，女性的平均收入是 79 比 T1，80 美分比一个白人男子的 1 美元 T2 T3，但是工资差距的真实成本要比这微妙得多。
 

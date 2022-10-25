@@ -1,6 +1,6 @@
 # 通过创造一个想象的世界来教育你的孩子关于金钱的知识
 
-> 原文:[https://life hacker . com/teach-your-kid-on-money by-creating a-imaginary-wor-1835254310](https://lifehacker.com/teach-your-kid-about-money-by-creating-an-imaginary-wor-1835254310)
+> 原文：<https://lifehacker.com/teach-your-kid-about-money-by-creating-an-imaginary-wor-1835254310>
 
 几十年前，当我蹒跚着步入成年时，钱对我来说是一个绝对的谜——或者至少，对它的管理是。像汽车保养、水、垃圾、健康保险和税收这样的开支是一个巨大的冲击，让我震惊的是它们可以如此迅速地消耗我的薪水。谁知道食物这么贵？
 

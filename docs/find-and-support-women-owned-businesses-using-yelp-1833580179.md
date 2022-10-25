@@ -1,6 +1,6 @@
 # 使用 Yelp 找到并支持女性所有的企业
 
-> 原文:[https://life hacker . com/find-and-support-women-owned-business-using-yelp-1833580179](https://lifehacker.com/find-and-support-women-owned-businesses-using-yelp-1833580179)
+> 原文：<https://lifehacker.com/find-and-support-women-owned-businesses-using-yelp-1833580179>
 
 Yelp 让寻找和支持女性拥有的企业变得更加容易。为了庆祝本月的女性历史月，网站 l [推出了一个“女性所有的企业”属性](https://www.yelpblog.com/2019/03/yelp-celebrates-womens-history-month) ，突出了企业何时为女性所有。
 

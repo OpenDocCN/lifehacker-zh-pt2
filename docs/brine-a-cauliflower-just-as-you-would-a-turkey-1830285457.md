@@ -1,6 +1,6 @@
 # 像腌制火鸡一样腌制花椰菜
 
-> 原文:[https://life hacker . com/brine-a-flower-just-as-you-would-a-a-turkey-1830285457](https://lifehacker.com/brine-a-cauliflower-just-as-you-would-a-turkey-1830285457)
+> 原文：<https://lifehacker.com/brine-a-cauliflower-just-as-you-would-a-turkey-1830285457>
 
 因为他们不吃巨大的整只鸟，素食者经常被剥夺肉食者喜欢的特别的、吸引人的主菜，因为肉食者可能是自私的，尤其是在一天围绕着隆重地吃掉一只活恐龙，然后对着它的一根(且只有一根)断骨许愿。
 

@@ -1,6 +1,6 @@
 # 这本免费的涂色书帮助孩子们学习他们身体部位的正确名称
 
-> 原文:[https://life hacker . com/this-free-coloring-book-helps-the-learn-the-correct-na-1833891599](https://lifehacker.com/this-free-coloring-book-helps-kids-learn-the-correct-na-1833891599)
+> 原文：<https://lifehacker.com/this-free-coloring-book-helps-kids-learn-the-correct-na-1833891599>
 
 尽早教你的孩子正确的身体部位名称 是很重要的。你儿子有阴茎，不是“小鸡鸡”你女儿有阴户，不是“小淑女”
 

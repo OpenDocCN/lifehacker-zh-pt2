@@ -1,6 +1,6 @@
 # 关于我们飞涨的国家赤字，你应该知道些什么
 
-> 原文:[https://life hacker . com/what-you-should-known-you-know-about-our-skyringd-national-de-1837585497](https://lifehacker.com/what-you-should-know-about-our-skyrocketing-national-de-1837585497)
+> 原文：<https://lifehacker.com/what-you-should-know-about-our-skyrocketing-national-de-1837585497>
 
 美国联邦赤字的增长速度超过了最初的预期。国会预算办公室上周表示，从 10 月份开始的下一个财政年度，年度赤字将超过 1 万亿美元(T2)。CBO 指出，未来十年，联邦赤字将比先前预测的多增加约 8000 亿美元。
 

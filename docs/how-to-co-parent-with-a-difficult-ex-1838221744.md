@@ -1,6 +1,6 @@
 # 如何与难相处的前任共同养育子女
 
-> 原文:[https://life hacker . com/how-to-co-parent-with-a-different-ex-1838221744](https://lifehacker.com/how-to-co-parent-with-a-difficult-ex-1838221744)
+> 原文：<https://lifehacker.com/how-to-co-parent-with-a-difficult-ex-1838221744>
 
 所以，你和一个混蛋有了孩子。你可能不是故意的。也许在孩子出生之前，他们并不那么混蛋——或者也许当你不试图让渺小的人类生存下去时，他们的混蛋倾向更容易处理。无论如何，你现在在这里，既期待又害怕共同抚养孩子的漫长旅程。
 

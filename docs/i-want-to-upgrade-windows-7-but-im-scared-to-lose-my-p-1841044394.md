@@ -1,6 +1,6 @@
 # 我想升级 Windows 7，但我害怕丢失我的程序
 
-> 原文:[https://life hacker . com/I-want-to-upgrade-windows-7-but-im-scatter-to-lost-my-p-1841044394](https://lifehacker.com/i-want-to-upgrade-windows-7-but-im-scared-to-lose-my-p-1841044394)
+> 原文：<https://lifehacker.com/i-want-to-upgrade-windows-7-but-im-scared-to-lose-my-p-1841044394>
 
 本周每个人都在谈论 Windows 7。即使你对个人电脑操作系统的内部运作完全不感兴趣，你的注意力无疑已经被微软的转变所吸引:该公司 [不再支持带有安全更新](https://lifehacker.com/am-i-screwed-if-i-dont-upgrade-windows-7-by-january-15-1840903120) 的 Windows 7。
 

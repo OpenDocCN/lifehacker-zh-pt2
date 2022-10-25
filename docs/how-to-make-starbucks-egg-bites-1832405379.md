@@ -1,6 +1,6 @@
 # 如何制作星巴克鸡蛋咬
 
-> 原文:[https://life hacker . com/how-to-make-Starbucks-egg-bites-1832405379](https://lifehacker.com/how-to-make-starbucks-egg-bites-1832405379)
+> 原文：<https://lifehacker.com/how-to-make-starbucks-egg-bites-1832405379>
 
 如果你曾经买过——或者试图买过——星巴克经常售罄的，你就会理解它们的吸引力。它们有着天鹅绒般的、几乎像奶油一样的内部，至少在培根& gruyère 品种的情况下，一种独特的奶酪风味融入其中。它们是颓废的，如果你在新的一年开始任何旧石器或酮型饮食，你可能已经确定它们是一个可靠的选择。
 

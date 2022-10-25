@@ -1,6 +1,6 @@
 # 用保鲜膜给你的孩子做一个快速围兜
 
-> 原文:[https://life hacker . com/make-a-quick-bib-for-your-kid-with-press-n-seal-plastic-1834619931](https://lifehacker.com/make-a-quick-bib-for-your-kid-with-press-n-seal-plastic-1834619931)
+> 原文：<https://lifehacker.com/make-a-quick-bib-for-your-kid-with-press-n-seal-plastic-1834619931>
 
 快到你孩子的大日子了——棒球肖像日，一年一度的学校长笛音乐会，他在你堂兄的婚礼上作为戒指携带者的首次亮相——他的装备看起来很原始。哦，是的，他准备好了。然后你记得:*妈的，这孩子得吃饭。*
 

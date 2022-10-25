@@ -1,6 +1,6 @@
 # 如何在 7 月 5 日前获得免费的温蒂早餐三明治
 
-> 原文:[https://life hacker . com/how-to-get-free-breakfast-sandwich-at-wendys-through-1844253271](https://lifehacker.com/how-to-get-free-breakfast-sandwiches-at-wendys-through-1844253271)
+> 原文：<https://lifehacker.com/how-to-get-free-breakfast-sandwiches-at-wendys-through-1844253271>
 
 如果你错过了，温迪早在三月份就开始供应早餐了。(你可能已经被全球疫情的开始分散了注意力)。从表面上看，这似乎不像是会成功的事情——毕竟，有这么多的人在家工作，这可能意味着更少的免下车早餐。事实证明，温蒂汉堡已经打破了 T2 T3 的记录，到五月中旬，早餐已经占到了连锁店总销售额的 8%。
 

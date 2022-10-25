@@ -1,6 +1,6 @@
 # 在填充蛋挞之前，先把它们放进烤箱
 
-> 原文:[https://life hacker . com/put-gasts-tarts-before-filling-them-1838942502](https://lifehacker.com/put-custard-tarts-in-the-oven-before-filling-them-1838942502)
+> 原文：<https://lifehacker.com/put-custard-tarts-in-the-oven-before-filling-them-1838942502>
 
 不管是填满水果还是不加装饰的，我最喜欢蛋挞的一点是它们整洁迷人的外观。与乡村的美国风格的馅饼不同，这些整洁的小甜点在被稳定、细致的手填满时看起来是最好的。为了让你的蛋挞看起来整洁得体，在馅料之前把它们放在烤箱里。
 

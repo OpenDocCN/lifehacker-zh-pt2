@@ -1,6 +1,6 @@
 # 如何有一个成功的缩放日期
 
-> 原文:[https://life hacker . com/how-to-have-a-successful-zoom-date-1842885540](https://lifehacker.com/how-to-have-a-successful-zoom-date-1842885540)
+> 原文：<https://lifehacker.com/how-to-have-a-successful-zoom-date-1842885540>
 
 此时在 [冠状病毒【疫情】](https://lifehacker.com/tag/coronavirus) 中，我们的生活已经几乎完全转移到了网上——而 [约会也不例外](https://lifehacker.com/dating-apps-are-for-scheduling-dates-people-1824294863) 。如果你正在积极地约会(或者至少在这次爆发之前)，你可能习惯于投入大量的时间和精力去会见一个潜在的浪漫或性伴侣。而不能因为一时见不到人，就一定要停止约会。
 

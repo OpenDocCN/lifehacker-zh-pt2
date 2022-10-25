@@ -1,6 +1,6 @@
 # 如何购买真正有助于环境的碳抵消
 
-> 原文:[https://life hacker . com/how-to-buy-carbon-offsets-that-help-the-enviro-1841576903](https://lifehacker.com/how-to-buy-carbon-offsets-that-actually-help-the-enviro-1841576903)
+> 原文：<https://lifehacker.com/how-to-buy-carbon-offsets-that-actually-help-the-enviro-1841576903>
 
 碳补偿看起来好得难以置信。理论上，补偿就像一块大海绵，吸收了你坐飞机或开车时排放到环境中的所有。这一切的成本也相对较低:你可以用机场鸡尾酒的价格抵消 12 小时飞行的排放量。
 

@@ -1,6 +1,6 @@
 # 为什么你需要形式检查视频
 
-> 原文:[https://life hacker . com/why-you-need-form-check-videos-1841430951](https://lifehacker.com/why-you-need-form-check-videos-1841430951)
+> 原文：<https://lifehacker.com/why-you-need-form-check-videos-1841430951>
 
 学习举重需要时间。无论你是在完善你的硬拉，还是试图学习如何抓举，视频都可以帮助你了解你在这个旅程中的位置。几周或几个月后，你会希望你有更好的学习记录，所以拿出三脚架吧。
 

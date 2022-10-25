@@ -1,6 +1,6 @@
 # 这里有一个新的新冠肺炎数据网站，令人着迷地刷新
 
-> 原文:[https://life hacker . com/heres-a-new-新冠肺炎-data-site-to-forcefully-refresh-1842489889](https://lifehacker.com/heres-a-new-covid-19-data-site-to-obsessively-refresh-1842489889)
+> 原文：<https://lifehacker.com/heres-a-new-covid-19-data-site-to-obsessively-refresh-1842489889>
 
 如果你不能把目光从攀爬案例上移开，看这里。一个名为 [91-DIVOC](http://91-divoc.com/pages/covid-visualization/) 的可视化网站提供了疫情曲线图，比较各国，并允许您在线性或对数标度上查看它们。
 

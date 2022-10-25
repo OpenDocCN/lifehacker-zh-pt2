@@ -1,6 +1,6 @@
 # 如何让某人挂断电话
 
-> 原文:[https://life hacker . com/how-to-tell-someone-get-off-phone-1838249555](https://lifehacker.com/how-to-tell-someone-to-get-off-their-phone-1838249555)
+> 原文：<https://lifehacker.com/how-to-tell-someone-to-get-off-their-phone-1838249555>
 
 智能手机上瘾是真实存在的。根据我的屏幕时间日志，在过去的七天里，我每天花 3 小时 15 分钟在我的 iPhone 上(上周总共超过 22 小时——几乎是一整天*)。我并不孤单。我们的社交媒体制作人蒂姆上周一天花了 3 小时 36 分钟打电话。乔尔，我们的高级视频制作人，每天依赖手机的时间不到两个小时。(“我还有很多日子要过，”他声称。)我们的另一位视频制作人阿布(Abu)目前每天工作时间刚刚超过 4 小时，超过了我们所有人。* 
 

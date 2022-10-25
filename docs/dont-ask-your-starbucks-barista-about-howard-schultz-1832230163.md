@@ -1,6 +1,6 @@
 # 不要问你的星巴克咖啡师关于霍华德·舒尔茨的事情
 
-> 原文:[https://life hacker . com/dont-ask-your-Starbucks-barista-about-Howard-Schultz-1832230163](https://lifehacker.com/dont-ask-your-starbucks-barista-about-howard-schultz-1832230163)
+> 原文：<https://lifehacker.com/dont-ask-your-starbucks-barista-about-howard-schultz-1832230163>
 
 上周，我们学习了如何从星巴克的咖啡师那里点餐，这样他们就不会对我们品头论足了。本周，事情变得有点复杂。
 

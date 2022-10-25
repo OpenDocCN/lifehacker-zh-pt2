@@ -1,6 +1,6 @@
 # 在骗子之前，注册您的地址以获得 USPS 通知递送
 
-> 原文:[https://life hacker . com/sign-your-address-up-for-usps-informed-delivery-before-1830389625](https://lifehacker.com/sign-your-address-up-for-usps-informed-delivery-before-1830389625)
+> 原文：<https://lifehacker.com/sign-your-address-up-for-usps-informed-delivery-before-1830389625>
 
 如果你还没有注册美国邮政服务 [的通知投递服务](https://informeddelivery.usps.com/box/pages/intro/start.action) ，你可能想现在就注册。
 

@@ -1,6 +1,6 @@
 # 成为一个真正的人所需要的基本生活技能
 
-> 原文:[https://life hacker . com/the-essential-life-skills-you-need-to-be-a-real-person-1844484670](https://lifehacker.com/the-essential-life-skills-you-need-to-be-a-real-person-1844484670)
+> 原文：<https://lifehacker.com/the-essential-life-skills-you-need-to-be-a-real-person-1844484670>
 
 很多人现在在家教育他们的孩子，或者在大部分时间呆在家里的时候尝试学习一项新技能，或者两者兼而有之。然而，你在生活中可以学到的最重要的技能并不是从书本或在线认证课程中获得的。
 

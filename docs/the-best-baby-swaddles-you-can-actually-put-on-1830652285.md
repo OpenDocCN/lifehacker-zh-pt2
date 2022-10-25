@@ -1,6 +1,6 @@
 # 你能穿上的最好的婴儿襁褓
 
-> 原文:[https://life hacker . com/the-best-baby-swaddles-you-can-actual-put-on-1830652285](https://lifehacker.com/the-best-baby-swaddles-you-can-actually-put-on-1830652285)
+> 原文：<https://lifehacker.com/the-best-baby-swaddles-you-can-actually-put-on-1830652285>
 
 我女儿爱哭。从她从我身体里出来的那一秒开始，直到她六个月大的时候，她经常哭。(你可能在想，“所有的婴儿都会哭！”这是真的，但是我的第二个孩子哭的次数可能只有我女儿的四分之一。就这样。)她哭是因为她饿了。她哭了，因为她是一个“充气婴儿。”我发誓有时候她哭只是为了捉弄我！(开玩笑的。)
 

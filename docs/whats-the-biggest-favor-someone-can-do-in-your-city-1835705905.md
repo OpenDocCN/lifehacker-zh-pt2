@@ -1,6 +1,6 @@
 # 在你的城市里，一个人能帮的最大的忙是什么？
 
-> 原文:[https://life hacker . com/what-big-faw-someone-can-do-in-your city-1835705905](https://lifehacker.com/whats-the-biggest-favor-someone-can-do-in-your-city-1835705905)
+> 原文：<https://lifehacker.com/whats-the-biggest-favor-someone-can-do-in-your-city-1835705905>
 
 在一些城市，你能做的最好的事情就是铲别人的车道。在某些情况下，是为了给它们遮荫。在某些情况下，这是为了让他们在高速公路上通过，或者把他们的停车计时器加满。在你的城市，一个人能为别人做的最好的事情是什么？
 

@@ -1,6 +1,6 @@
 # 如何成为美国的数字游牧者
 
-> 原文:[https://life hacker . com/how-to-be-a-u-s-based-digital-nomad-1845079300](https://lifehacker.com/how-to-become-a-u-s-based-digital-nomad-1845079300)
+> 原文：<https://lifehacker.com/how-to-become-a-u-s-based-digital-nomad-1845079300>
 
 疫情影响了我们生活的许多方面，包括我们的工作方式。一些[5 月份](https://www.dallasfed.org/-/media/documents/research/papers/2020/wp2017.pdf)35.2%的员工远程工作，相比之下 4 月份只有 8.2%，这可能是好事也可能是坏事，看你的角度了。但是远程工作的一个积极方面是有可能在 T4 以外的地方工作。
 

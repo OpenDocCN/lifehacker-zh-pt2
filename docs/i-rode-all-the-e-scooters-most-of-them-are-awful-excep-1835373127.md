@@ -1,6 +1,6 @@
 # i rode all the e scooters most of them are awful excep 1835373127
 
-> 原文:[https://jalopnik . com/I-rode-all-the-e-scooters-most-them-worthy-excep-1835373127](https://jalopnik.com/i-rode-all-the-e-scooters-most-of-them-are-awful-excep-1835373127)
+> 原文：<https://jalopnik.com/i-rode-all-the-e-scooters-most-of-them-are-awful-excep-1835373127>
 
 2017 年底的一个周末早晨，我在加州威尼斯的家中醒来，走了一圈，却看到了全新的景象:人们骑着电动滑板车。我指的是*许多*骑电动滑板车的人。一夜之间，一家名为 Bird 的新公司在距离圣莫尼卡仅两英里的地方成立，推出了一款应用程序，并将数千辆无码头滑板车扔得到处都是。之后很快发生了几件事:
 

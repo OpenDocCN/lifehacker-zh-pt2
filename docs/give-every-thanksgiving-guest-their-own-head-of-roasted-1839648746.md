@@ -1,6 +1,6 @@
 # 给每个感恩节的客人他们自己的烤大蒜头
 
-> 原文:[https://life hacker . com/give-every-thanksgiving-guest-own-the-head-of-baked-1839648746](https://lifehacker.com/give-every-thanksgiving-guest-their-own-head-of-roasted-1839648746)
+> 原文：<https://lifehacker.com/give-every-thanksgiving-guest-their-own-head-of-roasted-1839648746>
 
 一瓣或五瓣烤大蒜几乎可以改善感恩节大餐的所有成分。虽然它不是通常的鼠尾草/迷迭香/百里香风味的一部分，但你不可能告诉我它不受欢迎(除非你是个骗子)。你可以将烤好的大蒜捣碎放入土豆中，涂在面包卷上，然后涂在火鸡上。你可以把丁香切碎，加到肉汁里。有很多选择。
 

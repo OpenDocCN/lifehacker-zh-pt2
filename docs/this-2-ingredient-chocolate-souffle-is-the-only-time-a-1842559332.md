@@ -1,6 +1,6 @@
 # 这种两种成分的巧克力蛋奶酥是唯一一次 YouTube 黑客没有让我失望
 
-> 原文:[https://Jezebel . com/this-2-ingredient-chocolate-souffle-is-the-only-time-a-1842559332](https://jezebel.com/this-2-ingredient-chocolate-souffle-is-the-only-time-a-1842559332)
+> 原文：<https://jezebel.com/this-2-ingredient-chocolate-souffle-is-the-only-time-a-1842559332>
 
 *欢迎来到*[](https://jezebel.com/tag/in-poor-taste)**，这是一个关于颓废食物趋势的专栏，以一个米其林评论家的求知欲和一个 mukbang 爱好者的关心发表。在今天的版本中，我们将测试一种两种成分的巧克力蛋奶酥配方，这是我在抖音上看到的，丢失了，然后在 YouTube 上重新发现的。** 
 

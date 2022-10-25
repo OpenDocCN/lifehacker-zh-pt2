@@ -1,6 +1,6 @@
 # 和你的孩子一起制作一个愿景板
 
-> 原文:[https://life hacker . com/make-a-vision-board-with-your-kids-1834618382](https://lifehacker.com/make-a-vision-board-with-your-kids-1834618382)
+> 原文：<https://lifehacker.com/make-a-vision-board-with-your-kids-1834618382>
 
 想象可以是一种强大的精神训练，帮助你定义你想要什么，感知它，并相信你可以实现它。有这样大规模运作的故事(听说过金·凯利在成名前给自己开了一张 1000 万美元的演出支票 吗？)，但是你也可以用这个技巧来帮助你的孩子想象他们的梦想和目标。
 

@@ -1,6 +1,6 @@
 # 小心这次火鸡沙门氏菌爆发
 
-> 原文:[https://life hacker . com/watch-out-for-this-turkey-salmonella-outbreak-1830508313](https://lifehacker.com/watch-out-for-this-turkey-salmonella-outbreak-1830508313)
+> 原文：<https://lifehacker.com/watch-out-for-this-turkey-salmonella-outbreak-1830508313>
 
 你永远不希望看到因沙门氏菌导致的大规模食品召回，但你尤其不希望看到感恩节前一周 火鸡 ***因沙门氏菌导致的大规模食品召回。*** 
 

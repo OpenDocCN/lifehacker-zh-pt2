@@ -1,6 +1,6 @@
 # “夏季滑梯”会让孩子们忘记他们学过的东西吗？
 
-> 原文:[https://life hacker . com/does-a-summer-slide-cause-kids-to-forget-what-they ve-le-1835810138](https://lifehacker.com/does-a-summer-slide-cause-kids-to-forget-what-theyve-le-1835810138)
+> 原文：<https://lifehacker.com/does-a-summer-slide-cause-kids-to-forget-what-theyve-le-1835810138>
 
 这种想法如此根深蒂固，我们甚至几乎不再质疑它——当我们的孩子在夏令营睡懒觉、看电视、游泳和玩冷冻标签时，他们在整个学年中学到的所有宝贵知识都在融化。
 

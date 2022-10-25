@@ -1,6 +1,6 @@
 # 如果你的孩子讨厌面包皮该怎么办
 
-> 原文:[https://life hacker . com/1841355459](https://lifehacker.com/what-to-do-if-your-kid-hates-crust-1841355459)
+> 原文：<https://lifehacker.com/what-to-do-if-your-kid-hates-crust-1841355459>
 
 像许多孩子一样，我的儿子对面包皮又爱又恨。更强调仇恨，尤其是最近。当他蹒跚学步的时候，我完全避开了他们，用“ [三明治薄](https://arnoldbread.com/sandwich-thins-rolls) 给他做三明治。”但这只有在我能够找到没有任何可见谷粒或种子的品种时才有效，这些谷粒或种子也是令人讨厌的。
 

@@ -1,6 +1,6 @@
 # 在这个网站上找出你的卫生纸能保存多久
 
-> 原文:[https://life hacker . com/find-out-how-long-when-your ' s toilet-stash-last-wit-1842396535](https://lifehacker.com/find-out-how-long-your-toilet-paper-stash-will-last-wit-1842396535)
+> 原文：<https://lifehacker.com/find-out-how-long-your-toilet-paper-stash-will-last-wit-1842396535>
 
 卫生纸现在是比黄金更珍贵的商品——或者至少，当我的一个朋友告诉我，有一天有人出价 40 美元买一卷卫生纸时，我是这么想的。！！)一离开售罄的超市。
 

@@ -1,6 +1,6 @@
 # 使用这些应用程序整理您的交易卡游戏收藏
 
-> 原文:[https://life hacker . com/organize-your-trading-card-game-collections-with things-1832407217](https://lifehacker.com/organize-your-trading-card-game-collections-with-these-1832407217)
+> 原文：<https://lifehacker.com/organize-your-trading-card-game-collections-with-these-1832407217>
 
 交易和收藏卡牌游戏(简称 tcg 和 ccg)可能需要大量的工作，尤其是当你开始积累一盒又一盒的实体卡牌时。
 

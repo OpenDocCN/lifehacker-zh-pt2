@@ -1,6 +1,6 @@
 # 防止换尿布弄糟了一首歌
 
-> 原文:[https://life hacker . com/prevent-diaper-change-messes-with-a-song-1836661265](https://lifehacker.com/prevent-diaper-change-messes-with-a-song-1836661265)
+> 原文：<https://lifehacker.com/prevent-diaper-change-messes-with-a-song-1836661265>
 
 这是不可避免的。在某些时候，当你给你的孩子换尿布的时候，他会开始抓他们的尿布区，而他们最终会得到一把体液(或固体)，这将是令人沮丧的。有时候你可以用一个玩具、一片干净的尿布或者一管兴奋剂来分散他们的注意力。有时，你递给他们什么，他们就扔什么，然后继续抓。
 

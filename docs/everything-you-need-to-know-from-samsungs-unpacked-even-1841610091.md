@@ -1,6 +1,6 @@
 # 从三星今天的 Unpacked 活动中你需要知道的一切
 
-> 原文:[https://life hacker . com/even-1841610091](https://lifehacker.com/everything-you-need-to-know-from-samsungs-unpacked-even-1841610091)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-from-samsungs-unpacked-even-1841610091>
 
 三星今天早上举行了年度发布会，宣布了一大批新产品，包括其新旗舰设备 Galaxy S20 的三个版本，以及其可折叠手机的新版本，这款手机名为 Galaxy Z Flip。
 

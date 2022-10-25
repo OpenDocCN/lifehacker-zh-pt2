@@ -1,6 +1,6 @@
 # 父母需要了解冠状病毒的哪些知识
 
-> 原文:[https://life hacker . com/what-parents-need-to-know-on-the-coronavirus-1841954385](https://lifehacker.com/what-parents-need-to-know-about-the-coronavirus-1841954385)
+> 原文：<https://lifehacker.com/what-parents-need-to-know-about-the-coronavirus-1841954385>
 
 当孩子们整个冬天都把细菌带回家时，常规的感冒和流感季节就已经够糟糕的了。但今年，我们也将一种听起来不祥的冠状病毒疾病纳入其中。这种冠状病毒， [被称为新冠肺炎](https://vitals.lifehacker.com/the-coronavirus-has-an-official-name-covid-19-1841601530) ，在过去的一个月里一直充斥着新闻；作为父母，我们需要知道关于病毒的什么，我们如何准备和保护我们自己和我们的孩子？
 

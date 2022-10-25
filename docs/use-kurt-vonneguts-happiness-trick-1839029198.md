@@ -1,6 +1,6 @@
 # 使用库尔特·冯内古特的快乐魔术
 
-> 原文:[https://life hacker . com/use-Kurt-vonneguts-happy-trick-1839029198](https://lifehacker.com/use-kurt-vonneguts-happiness-trick-1839029198)
+> 原文：<https://lifehacker.com/use-kurt-vonneguts-happiness-trick-1839029198>
 
 英语中没有“抱怨”的精确反义词所有最接近的动词都需要一个宾语:你可以称赞一件事或恭维一件事，但你可以抱怨，句号。不管相反的是什么，库尔特·冯内古特说你应该去做。这会让你更快乐。
 

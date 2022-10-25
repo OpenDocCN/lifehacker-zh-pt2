@@ -1,6 +1,6 @@
 # 启用 Project Fi 的新 VPN 来隐藏您的移动浏览
 
-> 原文:[https://life hacker . com/enable-project-fis-new-VPN-to-hide-your-mobile-browsing-1830441006](https://lifehacker.com/enable-project-fis-new-vpn-to-hide-your-mobile-browsing-1830441006)
+> 原文：<https://lifehacker.com/enable-project-fis-new-vpn-to-hide-your-mobile-browsing-1830441006>
 
 谷歌最近为 Project Fi 客户升级了虚拟专用网(VPN)功能，允许用户选择使用 VPN 做他们在 Project Fi 上做的一切事情——wifi 和蜂窝连接。
 

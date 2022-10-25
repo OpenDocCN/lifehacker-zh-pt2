@@ -1,6 +1,6 @@
 # 今天谷歌事件中真正重要的一切
 
-> 原文:[https://life hacker . com/everything-from-todays-Google-event-that-actually-matte-1839057732](https://lifehacker.com/everything-from-todays-google-event-that-actually-matte-1839057732)
+> 原文：<https://lifehacker.com/everything-from-todays-google-event-that-actually-matte-1839057732>
 
 谷歌日快乐！这家搜索巨头宣布了一些新设备，包括全新的 Pixel Buds、强大的 Pixel 4 智能手机和更新的 Nest Mini。
 

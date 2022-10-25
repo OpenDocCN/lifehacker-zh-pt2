@@ -1,6 +1,6 @@
 # 如何选择美国电话电报公司的免费自动呼叫屏蔽服务
 
-> 原文:[https://life hacker . com/how-to-opt-in-or-out-of-at-ts-free-robo call-blocking-1836252166](https://lifehacker.com/how-to-opt-in-or-out-of-at-ts-free-robocall-blocking-1836252166)
+> 原文：<https://lifehacker.com/how-to-opt-in-or-out-of-at-ts-free-robocall-blocking-1836252166>
 
 机器人电话令人讨厌，但与它们斗争是混乱和不均衡的。在你的 [Android](https://lifehacker.com/how-to-block-annoying-spam-calls-and-texts-in-android-n-1785691168) 或 [iOS](https://lifehacker.com/the-best-ios-13-tricks-you-havent-tried-yet-1835838149) 设备上，你有一些弹药来对抗这种烦恼，但那是一种反动战术，而不是主动战术。
 

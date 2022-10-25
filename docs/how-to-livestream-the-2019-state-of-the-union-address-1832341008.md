@@ -1,6 +1,6 @@
 # 如何直播 2019 年国情咨文
 
-> 原文:[https://life hacker . com/how-to-live stream-the-2019-state-of-the-union-address-1832341008](https://lifehacker.com/how-to-livestream-the-2019-state-of-the-union-address-1832341008)
+> 原文：<https://lifehacker.com/how-to-livestream-the-2019-state-of-the-union-address-1832341008>
 
 在经历了这个国家历史上最长的政府停摆，以及多了一个 [一点点的戏剧性](https://www.cnn.com/2019/01/23/politics/white-house-state-of-the-union-off-guard/index.html) 之后，国情咨文将于今晚，2 月 5 日正式落下帷幕。
 

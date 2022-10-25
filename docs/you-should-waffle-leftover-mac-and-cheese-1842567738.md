@@ -1,6 +1,6 @@
 # 你应该把剩下的通心粉和奶酪做成华夫饼
 
-> 原文:[https://life hacker . com/you-should-waffle-left-MAC-and-cheese-1842567738](https://lifehacker.com/you-should-waffle-leftover-mac-and-cheese-1842567738)
+> 原文：<https://lifehacker.com/you-should-waffle-leftover-mac-and-cheese-1842567738>
 
 Waffling carbs 几乎总是一个伟大的想法。毕竟，最初的华夫饼——你知道，用面糊制成的基于面粉的东西——是有史以来发明的最伟大的碳水化合物之一，所以毫不奇怪，其他基于小麦的食物会很好地适应这种烹饪方法。
 

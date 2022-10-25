@@ -1,6 +1,6 @@
 # 超爽的时候可以放心做的零食
 
-> 原文:[https://life hacker . com/snacks-you-can-safely-make-while-super-high-1834082630](https://lifehacker.com/snacks-you-can-safely-make-while-super-high-1834082630)
+> 原文：<https://lifehacker.com/snacks-you-can-safely-make-while-super-high-1834082630>
 
 一边吃一边嗨很有趣，但是一边做饭却恰恰相反。根据你想要到达的高度，远离明火、你可能忘记关掉的热源和锋利的片状物体通常是一个好的计划。(虽然鳄梨色拉酱可能听起来非常美味，但去急诊室治疗鳄梨手将是真正的噩梦。)
 

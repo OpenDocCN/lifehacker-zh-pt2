@@ -1,6 +1,6 @@
 # 如何制作出色的皮影木偶
 
-> 原文:[https://life hacker . com/how-to-make-great-shadow-puppets-1836043810](https://lifehacker.com/how-to-make-great-shadow-puppets-1836043810)
+> 原文：<https://lifehacker.com/how-to-make-great-shadow-puppets-1836043810>
 
 我爸爸是第一个向我介绍皮影的人。当我和妹妹还是小孩子的时候，他会把我们掖到床上，关掉灯，然后在墙上投下一只狗的图像。它会蜷起食指，举起大拇指，在吠叫时开合小指。有时，他会画一只兔子或一只鹰或不同类型的狗。我们总是被迷住。
 

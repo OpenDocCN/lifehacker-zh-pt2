@@ -1,6 +1,6 @@
 # 重要员工的最佳旅行优惠
 
-> 原文:[https://life hacker . com/the-best-travel-deals-for-essential-workers-1843524806](https://lifehacker.com/the-best-travel-deals-for-essential-workers-1843524806)
+> 原文：<https://lifehacker.com/the-best-travel-deals-for-essential-workers-1843524806>
 
 核心员工应该得到所有可能的额外津贴，看到旅游业通过向他们提供免费和打折的旅行选择来尊重他们，这是令人鼓舞的。
 

@@ -1,6 +1,6 @@
 # 还有可能拿到便宜的车贷吗？
 
-> 原文:[https://jalopnik . com/is-it-尚能得到一笔便宜的汽车贷款吗-1831865533](https://jalopnik.com/is-it-still-possible-to-get-a-cheap-car-loan-1831865533)
+> 原文：<https://jalopnik.com/is-it-still-possible-to-get-a-cheap-car-loan-1831865533>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。我决定挑几个问题，试着帮帮大家。这个星期，我们正在讨论，消失廉价汽车贷款，现金购买的最佳策略，找到一个廉价的家庭汽车。
 

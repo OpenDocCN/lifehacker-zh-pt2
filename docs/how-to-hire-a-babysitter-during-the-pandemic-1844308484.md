@@ -1,6 +1,6 @@
 # how to hire a babysitter during the pandemic 1844308484
 
-> 原文:[https://life hacker . com/how-to-hire-a-butterfly-1844308484](https://lifehacker.com/how-to-hire-a-babysitter-during-the-pandemic-1844308484)
+> 原文：<https://lifehacker.com/how-to-hire-a-babysitter-during-the-pandemic-1844308484>
 
 现在很难决定让谁进入你家的小小物理距离空间，但随着企业重新开业，越来越多的父母回到自己的工作岗位(或实际尝试在家完成工作)，有人必须照看孩子。在平时找到合适的保姆可能是一个挑战；在疫情寻找合适的保姆完全是另一个层面。但是你可以问一些问题，也可以制定一些程序来尽可能保证每个人的安全。
 

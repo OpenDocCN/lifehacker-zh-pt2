@@ -1,6 +1,6 @@
 # 你图书馆的免费数字杂志是苹果 News+的一个很好的替代品
 
-> 原文:[https://life hacker . com/your-libraries-free-digital-magazine-are-a-great-altern-1833574601](https://lifehacker.com/your-librarys-free-digital-magazines-are-a-great-altern-1833574601)
+> 原文：<https://lifehacker.com/your-librarys-free-digital-magazines-are-a-great-altern-1833574601>
 
 我知道。我也不记得上一次踏进公共图书馆是什么时候了——不管我多么喜欢那种“成堆的书”的味道。但是如果你没有借书证，你甚至不知道离你最近的当地公共图书馆在哪里，或者你正在考虑每月向苹果支付 10 美元 来阅读杂志，你欠你自己一份消息。
 

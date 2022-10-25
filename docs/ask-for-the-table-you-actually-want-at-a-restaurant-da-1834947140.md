@@ -1,6 +1,6 @@
 # 在餐馆问你真正想要的桌子，该死的
 
-> 原文:[https://life hacker . com/ask-for-table-you-actually-want-a-restaurant-da-1834947140](https://lifehacker.com/ask-for-the-table-you-actually-want-at-a-restaurant-da-1834947140)
+> 原文：<https://lifehacker.com/ask-for-the-table-you-actually-want-at-a-restaurant-da-1834947140>
 
 如果你曾经在餐厅坐在一张不喜欢的桌子上——比如紧挨着浴室的桌子，或者坐在两个几乎没有足够空间挤过去的桌子中间——是时候要求你真正想要的桌子了。
 

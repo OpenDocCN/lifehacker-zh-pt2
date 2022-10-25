@@ -1,6 +1,6 @@
 # 为什么你应该戴口罩去参加下一次工作面试
 
-> 原文:[https://life hacker . com/why-you-should-wear a-mask-to-you ' s next-job 面试-1843905596](https://lifehacker.com/why-you-should-wear-a-mask-to-your-next-job-interview-1843905596)
+> 原文：<https://lifehacker.com/why-you-should-wear-a-mask-to-your-next-job-interview-1843905596>
 
 现在越来越多的州重新开放，求职者可能会发现自己不得不决定如何进行面对面的工作面试。你应该戴口罩吗？你应该避免握手吗？你应该尝试与面试官保持至少 6 英尺的距离吗？
 

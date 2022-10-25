@@ -1,6 +1,6 @@
 # 如何帮助你的女儿在学校管理经期
 
-> 原文:[https://life hacker . com/how-to-help-your ' s laugh-manage-in-school-1832047510](https://lifehacker.com/how-to-help-your-daughter-manage-her-period-at-school-1832047510)
+> 原文：<https://lifehacker.com/how-to-help-your-daughter-manage-her-period-at-school-1832047510>
 
 我仍然记得我第一次来月经的那一天。我 12 岁，在一月的一个寒冷的日子里，我放学回家。虽然有人给了我关于我身体变化的书籍和“讲座”,但当我看到我内裤上的那块污渍时，我真的以为我可能要死了。虽然我很快意识到发生了什么，但直到今天，我仍然清楚地记得我青春期前的恐慌。
 

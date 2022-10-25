@@ -1,6 +1,6 @@
 # 如何观看民主党总统候选人辩论
 
-> 原文:[https://life hacker . com/how-to-watch-the-democratic-president-defenses-1835839918](https://lifehacker.com/how-to-watch-the-democratic-presidential-debates-1835839918)
+> 原文：<https://lifehacker.com/how-to-watch-the-democratic-presidential-debates-1835839918>
 
 今晚，2020 年民主党总统候选人辩论的后半部分在迈阿密拉开帷幕——包括佛蒙特州参议员伯尼·桑德斯、前副总统乔·拜登和南本德市长皮特·布蒂吉格在内的 10 名候选人将于美国东部时间晚上 9 点登台。
 

@@ -1,6 +1,6 @@
 # 本月免费注册 20 门最受欢迎的 LinkedIn 课程
 
-> 原文:[https://life hacker . com/enroll-in-the-20-most-popular-LinkedIn-courses-for-free-1844950112](https://lifehacker.com/enroll-in-the-20-most-popular-linkedin-courses-for-free-1844950112)
+> 原文：<https://lifehacker.com/enroll-in-the-20-most-popular-linkedin-courses-for-free-1844950112>
 
 过去几个月在疫情的生活改变了我们工作的方式和地点——包括我们是否还有工作。如果你足够幸运，仍然有工作，这段时间可能会让你反思你目前的职位或整个职业生涯，以及这是否是对你的时间和才能的最佳利用。这并不一定意味着现在是时候(或者是明智的)给出你的通知并尝试寻找新的东西了。
 

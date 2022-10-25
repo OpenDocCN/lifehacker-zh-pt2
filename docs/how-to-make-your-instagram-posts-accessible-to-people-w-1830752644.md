@@ -1,6 +1,6 @@
 # 如何让有视觉障碍的人也能看到你的 Instagram 帖子
 
-> 原文:[https://life hacker . com/how-to-make-your-insta gram-posts-accessible-to-people-w-1830752644](https://lifehacker.com/how-to-make-your-instagram-posts-accessible-to-people-w-1830752644)
+> 原文：<https://lifehacker.com/how-to-make-your-instagram-posts-accessible-to-people-w-1830752644>
 
 Instagram 让有视觉障碍的人更容易体验它的网站。
 

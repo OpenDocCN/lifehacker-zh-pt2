@@ -1,6 +1,6 @@
 # 如何摆脱涡轮税
 
-> 原文:[https://lifehacker.com/how-to-ditch-turbotax-1832155535](https://lifehacker.com/how-to-ditch-turbotax-1832155535)
+> 原文：<https://lifehacker.com/how-to-ditch-turbotax-1832155535>
 
 当你准备报税时，你可能想知道哪个软件最适合你。有很多选择，包括像 Credit Karma 这样的新玩家，但许多报税者的首选是 TurboTax。然而，税务软件之王也有一些问题。
 

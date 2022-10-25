@@ -1,6 +1,6 @@
 # 如何让 Ab 滚筒更有趣
 
-> 原文:[https://life hacker . com/how-to-make-a b-roller-more-interest-1841205075](https://lifehacker.com/how-to-make-the-ab-roller-more-interesting-1841205075)
+> 原文：<https://lifehacker.com/how-to-make-the-ab-roller-more-interesting-1841205075>
 
 上周我们谈到了如何使 ab 轮推出少吸，但也许这不是你的风格。也许你想看看这个练习能糟糕到什么程度。或者至少有所向往。
 

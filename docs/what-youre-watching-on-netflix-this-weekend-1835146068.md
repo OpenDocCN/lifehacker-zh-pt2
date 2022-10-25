@@ -1,6 +1,6 @@
 # 你这个周末在网飞看什么
 
-> 原文:[https://life hacker . com/what-you-watching-on-this-weekend-1835146068](https://lifehacker.com/what-youre-watching-on-netflix-this-weekend-1835146068)
+> 原文：<https://lifehacker.com/what-youre-watching-on-netflix-this-weekend-1835146068>
 
 我们正式进入夏季大片季，这意味着许多超级英雄和续集将在影院上映。你可以看马或者的火箭人，或者你也可以按照我们的室内指导周末看什么。
 

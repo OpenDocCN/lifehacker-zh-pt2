@@ -1,6 +1,6 @@
 # 这些古怪的老花镜能治好你的颈痛吗？
 
-> 原文:[https://life hacker . com/can-this-wacky-reading-glasses-fix-your-neck-pain-1843547473](https://lifehacker.com/can-these-wacky-reading-glasses-fix-your-neck-pain-1843547473)
+> 原文：<https://lifehacker.com/can-these-wacky-reading-glasses-fix-your-neck-pain-1843547473>
 
 我们知道你最近读了多少书(或者更诚实地说，在你的 iPad 上看了多少视频)。无论哪种方式，你的脖子可能会感到紧张，这就是为什么我们决定测试一下的懒惰读者。
 

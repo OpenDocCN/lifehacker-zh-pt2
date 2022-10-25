@@ -1,6 +1,6 @@
 # 为什么 FDA 要打击 CBD
 
-> 原文:[https://life hacker . com/why-the-FDA-is-cracking-on-CBD-1840055156](https://lifehacker.com/why-the-fda-is-cracking-down-on-cbd-1840055156)
+> 原文：<https://lifehacker.com/why-the-fda-is-cracking-down-on-cbd-1840055156>
 
 从 CBD 商店和注入 CBD 的产品的扩散来看，你会认为 CBD 是合法的，要么得到了 FDA 的批准，要么找到了一个该机构无法触及的小漏洞。但这不是真的，FDA 今天给销售 CBD 产品的公司发了一堆警告信 。
 

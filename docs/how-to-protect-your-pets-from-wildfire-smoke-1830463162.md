@@ -1,6 +1,6 @@
 # 如何保护你的宠物免受野火烟雾的伤害
 
-> 原文:[https://life hacker . com/how-to-protect-your-pet-from wild fire-smoke-1830463162](https://lifehacker.com/how-to-protect-your-pets-from-wildfire-smoke-1830463162)
+> 原文：<https://lifehacker.com/how-to-protect-your-pets-from-wildfire-smoke-1830463162>
 
 你的宠物呼吸和你一样的空气。如果你戴上了口罩，并对野火烟雾采取了预防措施，你也应该对你的宠物采取预防措施。
 

@@ -1,6 +1,6 @@
 # 如何观看苹果周一的新闻和媒体活动
 
-> 原文:[https://life hacker . com/how-to-watch-apple-news-and-media-event-Monday-1833528168](https://lifehacker.com/how-to-watch-apples-news-and-media-event-monday-1833528168)
+> 原文：<https://lifehacker.com/how-to-watch-apples-news-and-media-event-monday-1833528168>
 
 苹果公司将于周一在库比蒂诺的史蒂夫·乔布斯剧院举行媒体活动。预计苹果将在美国东部时间上午 10 点/下午 1 点开始，利用该活动宣布一项新的视频流媒体服务和一项新的新闻订阅服务，该服务基于苹果去年收购的新闻订阅应用 bones of Texture。还有关于新游戏订阅服务的传言。
 

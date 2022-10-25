@@ -1,6 +1,6 @@
 # 使用空气油炸锅获得最佳零食
 
-> 原文:[https://life hacker . com/use-an-air-fryer-for-optimal-snacking-1841613513](https://lifehacker.com/use-an-air-fryer-for-optimal-snacking-1841613513)
+> 原文：<https://lifehacker.com/use-an-air-fryer-for-optimal-snacking-1841613513>
 
 如果你放弃了宝贵的柜台空间来购买空气油炸锅，那么从你打开包装的那一刻起，最大限度地利用你的大而方的设备就成了优先考虑的事情。幸运的是，它有许多用途，从恢复剩菜的昔日荣耀，到制作美味而营养的素食小吃。
 

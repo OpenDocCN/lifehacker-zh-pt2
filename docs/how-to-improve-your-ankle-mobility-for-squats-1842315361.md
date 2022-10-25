@@ -1,6 +1,6 @@
 # 如何提高下蹲时脚踝的灵活性
 
-> 原文:[https://life hacker . com/how-to-improve-your-ankle-mobility for squats-1842315361](https://lifehacker.com/how-to-improve-your-ankle-mobility-for-squats-1842315361)
+> 原文：<https://lifehacker.com/how-to-improve-your-ankle-mobility-for-squats-1842315361>
 
 在这些艰难的时刻，知道有些问题有简单的答案是件好事。如果你在深蹲时有困难，有时你只需要一点脚踝灵活性。即使你不在健身房，这也是你可以努力的。
 

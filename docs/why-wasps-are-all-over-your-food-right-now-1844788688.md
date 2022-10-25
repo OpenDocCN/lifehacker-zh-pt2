@@ -1,6 +1,6 @@
 # 为什么现在你的食物里到处都是黄蜂
 
-> 原文:[https://life hacker . com/why-wasses-are-all-over-your-food-right-now-1844788688](https://lifehacker.com/why-wasps-are-all-over-your-food-right-now-1844788688)
+> 原文：<https://lifehacker.com/why-wasps-are-all-over-your-food-right-now-1844788688>
 
 现在是夏末，这意味着黄蜂的季节。从某种意义上说，这些刺人的朋友和我们很像:他们喜欢烧烤和柠檬水，喜欢在后院野餐。但是为什么是现在？
 

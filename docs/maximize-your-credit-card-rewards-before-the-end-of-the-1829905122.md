@@ -1,6 +1,6 @@
 # 在年底前最大化您的信用卡奖励
 
-> 原文:[https://life hacker . com/maximize-your-credit-card-rewards-before-the end-of-the-1829905122](https://lifehacker.com/maximize-your-credit-card-rewards-before-the-end-of-the-1829905122)
+> 原文：<https://lifehacker.com/maximize-your-credit-card-rewards-before-the-end-of-the-1829905122>
 
 随着年底的临近，你正在计划假期旅行，给一年才见一次的表妹买什么礼物，以及你是否能逃脱传递海伦阿姨的绿豆砂锅。所有的任务都很重要，但是你的清单上还有一项:最大化你的信用卡奖励。
 

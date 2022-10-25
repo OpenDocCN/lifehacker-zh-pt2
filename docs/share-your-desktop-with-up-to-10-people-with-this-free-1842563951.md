@@ -1,6 +1,6 @@
 # 使用这款免费应用程序，最多可与 10 个人共享您的桌面
 
-> 原文:[https://life hacker . com/share-your-desktop-with-up-to-10 people with this-free-1842563951](https://lifehacker.com/share-your-desktop-with-up-to-10-people-with-this-free-1842563951)
+> 原文：<https://lifehacker.com/share-your-desktop-with-up-to-10-people-with-this-free-1842563951>
 
 在家工作需要可靠的通信工具，尽管我们中的许多人最近可能会参加更多的 Zoom 电话会议，但对于小公司或自由职业者来说，支付高级或企业级视频会议应用程序可能会很困难。有几个不错的视频聊天应用 可用，但许多缺乏基本的视频会议功能，如屏幕共享。
 

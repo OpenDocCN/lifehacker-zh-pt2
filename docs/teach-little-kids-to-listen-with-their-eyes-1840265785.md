@@ -1,6 +1,6 @@
 # 教小孩子“用眼睛听”
 
-> 原文:[https://life hacker . com/teach-little-kids-to-listen-with-these-eyes-1840265785](https://lifehacker.com/teach-little-kids-to-listen-with-their-eyes-1840265785)
+> 原文：<https://lifehacker.com/teach-little-kids-to-listen-with-their-eyes-1840265785>
 
 在我的育儿之旅中，我说过很多很多次“我不知道你是否在听我说话，因为你没有看着我/回应我”(最常见的是当我告诉我的儿子关掉电视并收拾好他的玩具时)。目光接触是认可他人话语的一个重要部分，这种想法对孩子来说并不总是自然而然的，尤其是如果你说的是他们不想听的话。
 

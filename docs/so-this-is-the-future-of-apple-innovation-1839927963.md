@@ -1,6 +1,6 @@
 # 苹果创新的未来是倒退的
 
-> 原文:[https://gizmodo . com/so-这是苹果创新的未来-1839927963](https://gizmodo.com/so-this-is-the-future-of-apple-innovation-1839927963)
+> 原文：<https://gizmodo.com/so-this-is-the-future-of-apple-innovation-1839927963>
 
 大 iFixit 拆机完成， [结果在](https://www.ifixit.com/Teardown/MacBook+Pro+16-Inch+2019+Teardown/128106) 。新的 16 英寸 MacBook Pro 与旧的 15 英寸 MacBook Pro 非常相似，除了一些有意义的复古功能。是的，我指的是 retro 中的 retro back——就像苹果实际上从旧的 MacBooks 中取出退役的功能，然后作为新功能重新引入。在总部位于库比蒂诺的计算机公司，创新的未来似乎是我称之为倒带设计。
 

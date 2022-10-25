@@ -1,6 +1,6 @@
 # 如何制作最脆的玉米片
 
-> 原文:[https://life hacker . com/how-to-make the crispiest-tortilla-chips-1835915012](https://lifehacker.com/how-to-make-the-crispiest-tortilla-chips-1835915012)
+> 原文：<https://lifehacker.com/how-to-make-the-crispiest-tortilla-chips-1835915012>
 
 我从未遇到过一个不喜欢新鲜玉米片的人，如果这样的人存在，我很确定我不想认识他们。但出于某种原因，我从来没有想到自己做，即使它们是最简单、最少飞溅的食物之一，你可以在家里自己煎。然而，这是一个分两步走的过程。对于最脆的薯片，你需要*烘干*，然后油炸。
 

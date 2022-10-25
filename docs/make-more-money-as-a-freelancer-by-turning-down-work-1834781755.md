@@ -1,6 +1,6 @@
 # 作为自由职业者，通过拒绝工作赚更多的钱
 
-> 原文:[https://life hacker . com/make-more-money-by-turning-down-work-1834781755](https://lifehacker.com/make-more-money-as-a-freelancer-by-turning-down-work-1834781755)
+> 原文：<https://lifehacker.com/make-more-money-as-a-freelancer-by-turning-down-work-1834781755>
 
 受欢迎的自由职业者:如果你让你的客户知道你已经预约满了，你可能最终会赚更多的钱。
 

@@ -1,6 +1,6 @@
 # 如何观看今晚的民主党总统候选人辩论
 
-> 原文:[https://life hacker . com/how-to-watch-tonights-democratic-president-debate-1838045667](https://lifehacker.com/how-to-watch-tonights-democratic-presidential-debate-1838045667)
+> 原文：<https://lifehacker.com/how-to-watch-tonights-democratic-presidential-debate-1838045667>
 
 今晚，10 名民主党总统候选人——仅仅 10 名——将登上休斯顿的舞台进行第三轮辩论。考虑到人数少得多，今晚的辩论将是第一次所有民调最高的候选人一起出现在舞台上，整整三个小时。
 

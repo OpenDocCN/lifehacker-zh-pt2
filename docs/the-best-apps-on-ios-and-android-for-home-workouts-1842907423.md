@@ -1,6 +1,6 @@
 # iOS 和 Android 上用于家庭训练的最佳应用
 
-> 原文:[https://life hacker . com/the-best-apps-on-IOs-and-Android-for-home-workouts-1842907423](https://lifehacker.com/the-best-apps-on-ios-and-android-for-home-workouts-1842907423)
+> 原文：<https://lifehacker.com/the-best-apps-on-ios-and-android-for-home-workouts-1842907423>
 
 健身房关门了，城市封锁了，我没有养狗。所有这些因素导致我每天的步数急剧下降，我迫切需要一个家庭锻炼解决方案。在上面的视频中，我测试了五个应用程序，以找出哪一个最适合我们生活的这个隔离时代。
 

@@ -1,6 +1,6 @@
 # 当你赚到额外的钱时，不要全部存起来
 
-> 原文:[https://life hacker . com/when-you-earn-extra-money-don-save-it-all-1835840002](https://lifehacker.com/when-you-earn-extra-money-dont-save-it-all-1835840002)
+> 原文：<https://lifehacker.com/when-you-earn-extra-money-dont-save-it-all-1835840002>
 
 这个月，我请了两周的假，连续两周。
 

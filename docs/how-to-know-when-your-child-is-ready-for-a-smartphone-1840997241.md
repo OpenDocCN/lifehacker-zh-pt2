@@ -1,6 +1,6 @@
 # 如何知道您的孩子何时准备好使用智能手机
 
-> 原文:[https://life hacker . com/how-to-know-when your child ' s ready-a smart phone-1840997241](https://lifehacker.com/how-to-know-when-your-child-is-ready-for-a-smartphone-1840997241)
+> 原文：<https://lifehacker.com/how-to-know-when-your-child-is-ready-for-a-smartphone-1840997241>
 
 这是在上个学年快结束时在我家开始的。我知道它要来了，但我仍然很惊讶在二年级和八岁时有这样的对话。我什么时候能有自己的手机？今年，在三年级和九岁的时候，这个问题出现得更频繁了，现在伴随着一份拥有自己手机的同学名单(或者*声称*拥有自己的手机，我更愿意相信这是事实)。
 

@@ -1,6 +1,6 @@
 # 如何自动关闭 iPhone 上的 Safari 标签页
 
-> 原文:[https://life hacker . com/how-to-automatically-close-safari-tabs-on-your-iphone-1836347028](https://lifehacker.com/how-to-automatically-close-safari-tabs-on-your-iphone-1836347028)
+> 原文：<https://lifehacker.com/how-to-automatically-close-safari-tabs-on-your-iphone-1836347028>
 
 我可能每天都会用手机在网上搜索至少一打东西，甚至更多。每次搜索或访问喜欢的网站，我都会本能地打开一个新标签。最终，这意味着我在手机上打开了相当多的标签页。
 

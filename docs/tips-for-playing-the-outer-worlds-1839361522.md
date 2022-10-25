@@ -1,6 +1,6 @@
 # 玩外部世界的小贴士
 
-> 原文:[https://kotaku . com/tips-for-play-the-outer-worlds-1839361522](https://kotaku.com/tips-for-playing-the-outer-worlds-1839361522)
+> 原文：<https://kotaku.com/tips-for-playing-the-outer-worlds-1839361522>
 
 《外部世界》今天上映，虽然很容易被《宁静》惊艳到，但你可能需要一些建议来充分利用你在那里的时间。
 

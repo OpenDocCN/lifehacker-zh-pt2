@@ -1,6 +1,6 @@
 # 为了纪念马丁·路德·金，国家公园今天免费开放
 
-> 原文:[https://life hacker . com/national-parks-is-free-today-in-honor-of-the-Martin-Luther-1841115719](https://lifehacker.com/national-parks-are-free-today-in-honor-of-martin-luther-1841115719)
+> 原文：<https://lifehacker.com/national-parks-are-free-today-in-honor-of-martin-luther-1841115719>
 
 如果你正在寻找度过马丁·路德·金日的方法，你可能会想把参观国家公园列在清单上。为了纪念马丁·路德·金，美国的国家公园今天免费开放。
 

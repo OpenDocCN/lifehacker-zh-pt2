@@ -1,6 +1,6 @@
 # 为什么越来越多的视频显示器依赖 USB-C
 
-> 原文:[https://gizmodo . com/why-more-and-more-video-monitors-is-relying-USB-c-1844110486](https://gizmodo.com/why-more-and-more-video-monitors-are-relying-usb-c-1844110486)
+> 原文：<https://gizmodo.com/why-more-and-more-video-monitors-are-relying-usb-c-1844110486>
 
 就在我们似乎都已经决定使用一种行业标准的视频输入/输出时，又出现了另一种让事情变得复杂的标准——现在你会发现 USB-C 正在与现代计算和游戏显示器上的 HDMI 和其他端口竞争。在这里，我们将解释为什么会发生这种情况，以及从长远来看对消费者的利弊。
 

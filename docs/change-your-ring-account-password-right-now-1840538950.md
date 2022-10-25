@@ -1,6 +1,6 @@
 # 立即更改您的 Ring 帐户密码
 
-> 原文:[https://life hacker . com/change-your-ring-account-password-right-now-1840538950](https://lifehacker.com/change-your-ring-account-password-right-now-1840538950)
+> 原文：<https://lifehacker.com/change-your-ring-account-password-right-now-1840538950>
 
 如果你家里有门铃或摄像头，你应该立即更改密码并在帐户上设置双因素身份验证。
 

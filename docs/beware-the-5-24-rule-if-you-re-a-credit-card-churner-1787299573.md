@@ -1,6 +1,6 @@
 # 5/24 规则如何影响你的下一次信用卡申请
 
-> 原文:[https://life hacker . com/deep-the-5-24-rule-if-re-a-credit-card-churner-1787299573](https://lifehacker.com/beware-the-5-24-rule-if-you-re-a-credit-card-churner-1787299573)
+> 原文：<https://lifehacker.com/beware-the-5-24-rule-if-you-re-a-credit-card-churner-1787299573>
 
 当大通在 2016 年推出蓝宝石储备信用卡时，旅行奖励黑客抓住机会利用其积分赚取潜力和丰厚的津贴。
 

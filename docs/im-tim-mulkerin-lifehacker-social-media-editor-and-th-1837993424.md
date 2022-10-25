@@ -1,6 +1,6 @@
 # im tim mulkerin lifehacker social media editor and th 1837993424
 
-> 原文:[https://life hacker . com/im-Tim-mulkerin-life hacker-social-media-editor-and-th-1837993424](https://lifehacker.com/im-tim-mulkerin-lifehacker-social-media-editor-and-th-1837993424)
+> 原文：<https://lifehacker.com/im-tim-mulkerin-lifehacker-social-media-editor-and-th-1837993424>
 
 每周，我们都会分享我们最喜欢的专家的快捷方式、工作空间和生产力提示。本周，我们将来到 Lifehacker 的幕后。我是蒂姆·穆克林，这是我的工作方式。
 

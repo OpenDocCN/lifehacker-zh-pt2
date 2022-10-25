@@ -1,6 +1,6 @@
 # 当你的应用程序给出相互矛盾的预测时，如何预测天气
 
-> 原文:[https://life hacker . com/how-to-predict-the-weather-when-you-apps-give-you-conf-1835421802](https://lifehacker.com/how-to-predict-the-weather-when-your-apps-give-you-conf-1835421802)
+> 原文：<https://lifehacker.com/how-to-predict-the-weather-when-your-apps-give-you-conf-1835421802>
 
 天气真怪，对吧？我不知道你住在哪里，但我假设它和我在同一个星球上，在美国东北部，一个“典型”的一天包括早上的大雨，中午的炎热和潮湿，然后寒冷，晚上通勤时可能会下冰雹。天气的不可预测性迫使我在决定骑自行车上班是否安全之前，至少查阅两个天气应用程序。但是，通常情况下，一个应用程序会告诉我整天都会是晴天，而另一个应用程序会预测有 30%的可能性会下雨。怎么办？
 

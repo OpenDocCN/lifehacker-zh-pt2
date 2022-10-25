@@ -1,6 +1,6 @@
 # 教孩子如何在没有智能手机的情况下出行
 
-> 原文:[https://life hacker . com/teach-kids-how-to-around-without-a-smart phone-1841327479](https://lifehacker.com/teach-kids-how-to-get-around-without-a-smartphone-1841327479)
+> 原文：<https://lifehacker.com/teach-kids-how-to-get-around-without-a-smartphone-1841327479>
 
 最近的一个下午，当我的全球定位系统正在努力加载到我计划与我丈夫共进午餐的餐馆时，我的儿子开始担心我们永远也到不了那里。那是一家我们从未去过的餐馆，位于我最不熟悉的邻近城市的一个区域。“但是如果 GPS 不加载，我们就到不了那里，”我 9 岁的孩子大声说道。
 

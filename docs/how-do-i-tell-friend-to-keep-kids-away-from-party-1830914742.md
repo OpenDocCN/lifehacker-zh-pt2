@@ -1,6 +1,6 @@
 # 问那个刻薄的女服务员:我如何告诉一个朋友让他们的孩子远离我的派对？
 
-> 原文:[https://the take out . com/how-do-I-tell-friend-keep-kids-from-party-1830914742](https://thetakeout.com/how-do-i-tell-friend-to-keep-kids-away-from-party-1830914742)
+> 原文：<https://thetakeout.com/how-do-i-tell-friend-to-keep-kids-away-from-party-1830914742>
 
 > 亲爱的咸: *我不怎么开派对，但今年，为了庆祝我的新公寓，我决定咬紧牙关，和我的 20 个左右的朋友开一个不错的成人节日鸡尾酒会。尽管如此，我还是收到了一个朋友的短信，他热情地说，“孩子们，我等不及要加入你们了！周六见！”*
 > 

@@ -1,6 +1,6 @@
 # 如果您的登机牌上没有美国运输安全管理局的预检，该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-if-your-TSA-pre check-not-on-your-boarding-p-1828701108](https://lifehacker.com/what-to-do-if-your-tsa-precheck-isnt-on-your-boarding-p-1828701108)
+> 原文：<https://lifehacker.com/what-to-do-if-your-tsa-precheck-isnt-on-your-boarding-p-1828701108>
 
 如果你是一个经常旅行的人，还没有得到 TSA 的预检，你还在等什么？TSA PreCheck，特别是 TSA PreCheck 的全球准入，一直是我做过的最好的投资之一。即使预检队伍越来越长，我还是很感激能排在(大部分)理解机场安检程序的队伍中，不用脱鞋或从包里拿出电子产品。
 

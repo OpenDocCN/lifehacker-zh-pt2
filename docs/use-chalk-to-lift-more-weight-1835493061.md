@@ -1,6 +1,6 @@
 # 用粉笔举起更多的重量
 
-> 原文:[https://life hacker . com/use-chalk-to-lift-more-weight-1835493061](https://lifehacker.com/use-chalk-to-lift-more-weight-1835493061)
+> 原文：<https://lifehacker.com/use-chalk-to-lift-more-weight-1835493061>
 
 几个月来，我在举的时候都在和抓地力做斗争；在硬拉过程中，我会发现杠铃从我手中滑落，尽管我经常*觉得自己能举起更多。当我开始使用粉笔，健身房工具的救星时，很多事情都改变了。*
 

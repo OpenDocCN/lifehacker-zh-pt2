@@ -1,6 +1,6 @@
 # 冠状病毒疫情期间，你还能得到人寿保险吗？
 
-> 原文:[https://life hacker . com/can-you-still-get-life-insurance-in-the-coronavirus-1842783590](https://lifehacker.com/can-you-still-get-life-insurance-during-the-coronavirus-1842783590)
+> 原文：<https://lifehacker.com/can-you-still-get-life-insurance-during-the-coronavirus-1842783590>
 
 在数周疫情引发的隔离所带来的许多沉思时刻中，你可能会问自己是否应该购买人寿保险——或者你现有的保单是否涵盖因冠状病毒导致的死亡。
 

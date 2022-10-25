@@ -1,6 +1,6 @@
 # 洗钱是如何运作的？
 
-> 原文:[https://life hacker . com/how-do-洗钱-工作-1829760343](https://lifehacker.com/how-does-money-laundering-work-1829760343)
+> 原文：<https://lifehacker.com/how-does-money-laundering-work-1829760343>
 
 您可能在最喜爱的电视节目或新闻中熟悉洗钱这个概念。无论是沃尔特·怀特通过洗车使冰毒合法化，还是艾尔·卡朋使用真正的自助洗衣店清洗现金(据报道，这是这个术语的起源)，这都是流行文化和犯罪传说的内容。
 

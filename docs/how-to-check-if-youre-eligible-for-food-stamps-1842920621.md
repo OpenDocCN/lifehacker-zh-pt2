@@ -1,6 +1,6 @@
 # 如何检查你是否有资格领取食品券
 
-> 原文:[https://life hacker . com/how-to-check-if-you-eligible-food-stamps-1842920621](https://lifehacker.com/how-to-check-if-youre-eligible-for-food-stamps-1842920621)
+> 原文：<https://lifehacker.com/how-to-check-if-youre-eligible-for-food-stamps-1842920621>
 
 如果你因疫情冠状病毒而被解雇、休假或失去收入，你可能已经申请失业或通过工资保障计划申请经济援助。但是你可能还没有考虑申请【补充营养援助计划】，又名“SNAP——根据你的收入、家庭和资产，你可能有资格申请。
 

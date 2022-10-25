@@ -1,6 +1,6 @@
 # 用整个金橘做这道阳光沙拉酱
 
-> 原文:[https://life hacker . com/make-this-sunny-salad-dressing-out-of-whole-kumquats-1831258589](https://lifehacker.com/make-this-sunny-salad-dressing-out-of-whole-kumquats-1831258589)
+> 原文：<https://lifehacker.com/make-this-sunny-salad-dressing-out-of-whole-kumquats-1831258589>
 
 在这个糖果和舒适食品的季节，吃蔬菜几乎就像是一种享受，尤其是如果是生蔬菜的话。但是，除非打扮得很好，否则食用一堆植物部分(也称为“沙拉”)可能是一件平淡无奇的事情，这就是为什么我很兴奋地告诉你关于这种全金橘酱的好消息——一种阳光、清爽的沙拉伴侣，有助于恢复你的味觉和抚慰你的内脏器官(让你回到吃饼干的状态)。
 

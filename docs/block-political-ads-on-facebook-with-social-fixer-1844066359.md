@@ -1,6 +1,6 @@
 # 用“社会修复者”屏蔽脸书的政治广告
 
-> 原文:[https://life hacker . com/block-political-ads-on-Facebook-with-social-fixer-1844066359](https://lifehacker.com/block-political-ads-on-facebook-with-social-fixer-1844066359)
+> 原文：<https://lifehacker.com/block-political-ads-on-facebook-with-social-fixer-1844066359>
 
 对于那些还在 Facebooking 上订票的人来说，请准备好接受这个平台已经过时的最好消息吧。如果你还没有厌倦所有的政治广告，你很快就会厌倦了——除非你利用一个新功能，现在点击几下鼠标就可以隐藏社交网络上的所有政治广告。
 

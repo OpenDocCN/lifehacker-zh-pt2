@@ -1,6 +1,6 @@
 # 如何修复蓝牙音频口吃
 
-> 原文:[https://life hacker . com/how-to-fix-蓝牙-音频-口吃-1806113443](https://lifehacker.com/how-to-fix-bluetooth-audio-stuttering-1806113443)
+> 原文：<https://lifehacker.com/how-to-fix-bluetooth-audio-stuttering-1806113443>
 
 蓝牙技术是我们生活中无处不在的一部分，也是对抗线缆混乱的重要工具。它也是出了名的挑剔。当你的笔记本电脑、手机或其他设备通过蓝牙连接到无线扬声器或耳机时，音频播放开始断断续续，这简直令人愤怒。
 

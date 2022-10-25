@@ -1,6 +1,6 @@
 # 父母应该像幼儿园小朋友一样学习普通核心数学
 
-> 原文:[https://life hacker . com/parents-should-learn-common-core-math-like-a-kindergart-1835525547](https://lifehacker.com/parents-should-learn-common-core-math-like-a-kindergart-1835525547)
+> 原文：<https://lifehacker.com/parents-should-learn-common-core-math-like-a-kindergart-1835525547>
 
 如果你有一个孩子在上学，你可能已经注意到他们的数学作业看起来和你几年前不一样了。你可能抱怨过——“这些疯狂的舞步是怎么回事？在温克曼夫人四年级的课堂上，这些方程花了我几秒钟才解答出来！”嘿，我在这里不是要争论当前教学方法“共同核心”的价值(尽管根据我从数学教育者那里读到和听到的，这很大程度上是 [朝着正确方向迈出的一大步](https://hechingerreport.org/memorizers-are-the-lowest-achievers-and-other-common-core-math-surprises/) )。但我可以帮你接受改变。
 

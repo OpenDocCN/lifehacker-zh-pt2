@@ -1,6 +1,6 @@
 # 忘掉你自己，和你的孩子一起玩电子游戏
 
-> 原文:[https://life hacker . com/get-over-your-your-kid-play-video-games-1835336813](https://lifehacker.com/get-over-yourself-and-play-video-games-with-your-kid-1835336813)
+> 原文：<https://lifehacker.com/get-over-yourself-and-play-video-games-with-your-kid-1835336813>
 
 你必须和你的孩子一起玩电子游戏。它不再是可选的了。这是你作为父母的责任。你的孩子成长在一个以电子为媒介的世界里，在这个世界里，“虚拟”和“真实”生活之间的界限变得越来越模糊。
 

@@ -1,6 +1,6 @@
 # 如何征服红龙虾的无尽虾
 
-> 原文:[https://the take out . com/how-to-conquer-red-lobster-endless-虾米-1830236090](https://thetakeout.com/how-to-conquer-red-lobster-endless-shrimp-1830236090)
+> 原文：<https://thetakeout.com/how-to-conquer-red-lobster-endless-shrimp-1830236090>
 
 [吃不完的虾吃不完的红龙虾](https://www.redlobster.com/menu/specials/now-serving) 应该算是国定假日。如果你从未参加过这场甲壳类动物盛宴，你最好现在就去参加。*的价格是 15.99 美元*。没有附加条件。一个或 100 个。11 月 18 号就结束了，剩下的时间不多了。尽情享受你的生活。
 

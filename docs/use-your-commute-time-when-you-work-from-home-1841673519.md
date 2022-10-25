@@ -1,6 +1,6 @@
 # 当你在家工作时，利用你的“通勤时间”
 
-> 原文:[https://life hacker . com/use-your-commute-time-when-you-work-from-home-1841673519](https://lifehacker.com/use-your-commute-time-when-you-work-from-home-1841673519)
+> 原文：<https://lifehacker.com/use-your-commute-time-when-you-work-from-home-1841673519>
 
 如果你在家工作，你可能已经阅读了你能得到的优化你工作日的每一个建议。而且我相信你知道所有的大事: [制定时间表](https://lifehacker.com/how-to-schedule-your-day-when-you-freelance-or-work-fro-1833242226) ，洗澡穿衣服，不要伏案吃饭， [做点运动](https://lifehacker.com/how-to-avoid-becoming-a-hermit-when-you-work-from-home-1792406033) 。
 

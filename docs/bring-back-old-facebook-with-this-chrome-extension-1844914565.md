@@ -1,6 +1,6 @@
 # 用这款 Chrome 扩展带回“老脸书”
 
-> 原文:[https://life hacker . com/bring-back-old-Facebook-with-this-chrome-extension-1844914565](https://lifehacker.com/bring-back-old-facebook-with-this-chrome-extension-1844914565)
+> 原文：<https://lifehacker.com/bring-back-old-facebook-with-this-chrome-extension-1844914565>
 
 如果你是脸书的粉丝，但讨厌其最近的改版，还有希望。你不能再简单地通过点击设置菜单中的按钮就让回到“老脸书”，但是你*可以*安装一个 Chrome 扩展，它会神奇地改变网站，恢复你以前喜欢的外观和感觉。
 

@@ -1,6 +1,6 @@
 # 通过 Lifehacker 拒绝播放列表来克服它
 
-> 原文:[https://life hacker . com/get-over-it with-the-life hacker-rejection-playlist-1832473016](https://lifehacker.com/get-over-it-with-the-lifehacker-rejection-playlist-1832473016)
+> 原文：<https://lifehacker.com/get-over-it-with-the-lifehacker-rejection-playlist-1832473016>
 
 你好吗？哦不！我以为会永远持续下去！但我一直知道你配不上那个。抱歉伙计。听起来很粗暴。我们去借酒消愁吧。我正好有合适的音乐。
 

@@ -1,6 +1,6 @@
 # this town didnt want to be a radioactive waste dump th 1834789264
 
-> 原文:[https://gizmodo . com/this-town-not-want-to-be-a-radiative-waste-dump-th-1834789264](https://gizmodo.com/this-town-didnt-want-to-be-a-radioactive-waste-dump-th-1834789264)
+> 原文：<https://gizmodo.com/this-town-didnt-want-to-be-a-radioactive-waste-dump-th-1834789264>
 
 俄亥俄州皮克顿——大卫和帕姆·米尔斯在他们与世隔绝的阿巴拉契亚庄园里种植西红柿、辣椒、黄瓜和秋葵已经有 18 年了。这将是这对退休夫妇不结婚的第一年。他们再也不能相信他们的土地了。离这里只有五分钟的步行路程。
 

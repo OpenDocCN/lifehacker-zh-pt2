@@ -1,6 +1,6 @@
 # 如何制作彩色玻璃饼干
 
-> 原文:[https://life hacker . com/how-to-make-staged-glass-cookies-1840559391](https://lifehacker.com/how-to-make-stained-glass-cookies-1840559391)
+> 原文：<https://lifehacker.com/how-to-make-stained-glass-cookies-1840559391>
 
 在糖饼干出炉后装饰它们可能是一项有趣的节日活动，但我更喜欢烤得非常漂亮并随时可以供应给 T2 的饼干。虽然我相信没有什么比简单的巧克力片或神奇的饼干棒更令人愉快的了，但 12 月的后半部分需要一定的天赋，彩色玻璃饼干正好带来了这种。
 

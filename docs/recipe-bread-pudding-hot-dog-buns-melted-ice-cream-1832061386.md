@@ -1,6 +1,6 @@
 # 剩余的热狗面包+融化的冰淇淋+鸡蛋=合法的面包布丁
 
-> 原文:[https://the take out . com/recipe-面包-布丁-热狗-小圆面包-融化的冰淇淋-1832061386](https://thetakeout.com/recipe-bread-pudding-hot-dog-buns-melted-ice-cream-1832061386)
+> 原文：<https://thetakeout.com/recipe-bread-pudding-hot-dog-buns-melted-ice-cream-1832061386>
 
 派对上吃冰淇淋似乎总是个好主意。除了冰淇淋需要注意和温度管理，这两件事在你主持时会自动放弃。如果你和你的朋友在沙发上对着裁判大喊糟糕的传球干扰，没有人会回到厨房去做冰淇淋管理。结果往往是一桶悲伤的融化的冰淇淋。这似乎非常浪费。你知道 [你不能冷藏它](https://thetakeout.com/how-do-you-stop-the-scourge-of-freezer-burned-ice-cream-1826908079) ，你知道你不应该只是喝它，然而，把它倒入水槽有点令人心碎。
 

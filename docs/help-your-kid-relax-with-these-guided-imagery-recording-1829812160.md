@@ -1,6 +1,6 @@
 # 使用这些引导图像记录帮助您的孩子放松
 
-> 原文:[https://life hacker . com/help-your-kid-relax-with these-guided-imagery-recording-1829812160](https://lifehacker.com/help-your-kid-relax-with-these-guided-imagery-recording-1829812160)
+> 原文：<https://lifehacker.com/help-your-kid-relax-with-these-guided-imagery-recording-1829812160>
 
 如果你的孩子对某件事感到焦虑——也许是一次考试或一个生病的亲戚或即将到来的拍摄——引导图像会有所帮助。这是一种技术，使用精神可视化来给人更多的控制和更大的安宁感。
 

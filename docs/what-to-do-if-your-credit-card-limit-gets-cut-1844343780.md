@@ -1,6 +1,6 @@
 # 如果你的信用卡额度被削减，该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-your-credit-limit-gets-cut-1844343780](https://lifehacker.com/what-to-do-if-your-credit-card-limit-gets-cut-1844343780)
+> 原文：<https://lifehacker.com/what-to-do-if-your-credit-card-limit-gets-cut-1844343780>
 
 新冠肺炎疫情对美国经济造成了毁灭性的影响。尽管上个月雇主增加了数量可观的新工作岗位，失业率仍保持在两位数。尽管国会已经通过了三个 [经济刺激方案](https://home.treasury.gov/policy-issues/cares)——总计近 3 万亿美元——许多人仍然勉强度日。
 

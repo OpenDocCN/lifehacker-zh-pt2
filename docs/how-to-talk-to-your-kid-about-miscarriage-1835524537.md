@@ -1,6 +1,6 @@
 # 如何和你的孩子谈论流产
 
-> 原文:[https://life hacker . com/how-to-talk to-your kid about-流产-1835524537](https://lifehacker.com/how-to-talk-to-your-kid-about-miscarriage-1835524537)
+> 原文：<https://lifehacker.com/how-to-talk-to-your-kid-about-miscarriage-1835524537>
 
 尽管流产很常见，但经历过流产的人往往会发现这是一种痛苦的孤立体验。这经常发生在准妈妈或夫妇告诉朋友或家人，甚至他们的其他孩子之前。
 

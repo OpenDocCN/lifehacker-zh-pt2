@@ -1,6 +1,6 @@
 # 本周末在 Petco 获得免费的不含人工的宠物食品
 
-> 原文:[https://life hacker . com/get-free-artificial-free-pet-food-at-petco-this-weekend-1834844058](https://lifehacker.com/get-free-artificial-free-pet-food-at-petco-this-weekend-1834844058)
+> 原文：<https://lifehacker.com/get-free-artificial-free-pet-food-at-petco-this-weekend-1834844058>
 
 如果你一直想升级你的狗或猫的饮食，但正在等待一个完美的机会，这个周末可能是你的机会。Petco 将从你手中拿走充满人工成分的食物，以换取一袋免费的不含人工成分的食物。
 

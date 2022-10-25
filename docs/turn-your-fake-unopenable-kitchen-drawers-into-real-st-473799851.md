@@ -1,6 +1,6 @@
 # 如何将假抽屉变成真正的储物空间
 
-> 原文:[https://life hacker . com/turn-your-fake-un open-kitchen-drawers-into-real-ST-473799851](https://lifehacker.com/turn-your-fake-unopenable-kitchen-drawers-into-real-st-473799851)
+> 原文：<https://lifehacker.com/turn-your-fake-unopenable-kitchen-drawers-into-real-st-473799851>
 
 [没有所谓的太多存储](https://lifehacker.com/top-10-diy-projects-that-simplify-your-kitchen-1538640661) ，但只有当它实际上是*功能性*存储。如果你有几个厨房或浴室的“抽屉”打不开，因为它们只是用来“装饰”的，你可以通过一点点努力把它们变成有用的东西。
 

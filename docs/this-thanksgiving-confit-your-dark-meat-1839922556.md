@@ -1,6 +1,6 @@
 # 这个感恩节，不要吃你的黑肉
 
-> 原文:[https://life hacker . com/this-thanksgiving-confit-your-dark-meat-1839922556](https://lifehacker.com/this-thanksgiving-confit-your-dark-meat-1839922556)
+> 原文：<https://lifehacker.com/this-thanksgiving-confit-your-dark-meat-1839922556>
 
 我有很多火鸡，但我最坚定的信念是，当这只大鸟被分解成浅色和深色，然后分开烹饪时，它是最好的。是的，你牺牲了 [全鸟视觉](https://lifehacker.com/choose-taste-over-looks-when-cooking-your-turkey-1820444769) ，但说实话谁在乎呢？我宁愿它尝起来味道好。
 

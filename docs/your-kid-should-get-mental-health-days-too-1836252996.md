@@ -1,6 +1,6 @@
 # 你的孩子也应该有心理健康日
 
-> 原文:[https://life hacker . com/your-kid-should-get-mental-health-days-too-1836252996](https://lifehacker.com/your-kid-should-get-mental-health-days-too-1836252996)
+> 原文：<https://lifehacker.com/your-kid-should-get-mental-health-days-too-1836252996>
 
 《生活黑客》的撰稿人斯塔瑞·茱莉亚·瓦坦写了关于从你的工作中抽出精神健康假的重要性的文章 。心理健康就是健康，照顾好自己应该是重中之重。但是我们的孩子怎么办？我听到一些家长承认，他们让孩子偶尔缺课是为了充电，人们的反应就像是让他们的孩子从街上的酒店偷一包 M & Ms。一个因为有支气管炎而呆在家里的学生被鼓励(甚至被要求)；在紧张的一周 AP 考试后，放松下来看《T4》和《河谷镇》是“逃学”
 

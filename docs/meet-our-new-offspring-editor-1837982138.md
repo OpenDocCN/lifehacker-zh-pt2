@@ -1,6 +1,6 @@
 # 见见我们新的后代编辑
 
-> 原文:[https://life hacker . com/meet-our-new-professional-editor-1837982138](https://lifehacker.com/meet-our-new-offspring-editor-1837982138)
+> 原文：<https://lifehacker.com/meet-our-new-offspring-editor-1837982138>
 
 好吧，所以我不是全新的。如果你是 Lifehacker 的育儿杂志《T2》《T3》《后代》《T4》《T5》的忠实读者，你可能已经看到我在过去一年的大部分时间里潜伏在角落里。
 

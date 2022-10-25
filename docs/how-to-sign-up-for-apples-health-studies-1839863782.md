@@ -1,6 +1,6 @@
 # 如何报名参加苹果健康研究
 
-> 原文:[https://life hacker . com/how-to-sign-up-for-apple-health-studies-1839863782](https://lifehacker.com/how-to-sign-up-for-apples-health-studies-1839863782)
+> 原文：<https://lifehacker.com/how-to-sign-up-for-apples-health-studies-1839863782>
 
 今年秋天早些时候，苹果公司宣布，他们将与大学合作，推出关于听力、心脏健康和生殖健康的三项新研究。现在， [有一个应用程序可以让你注册](https://apps.apple.com/us/app/id1463884356) 。
 

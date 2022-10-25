@@ -1,6 +1,6 @@
 # 使用谷歌关于阿片成瘾的资源寻找康复工具
 
-> 原文:[https://life hacker . com/find-recovery-tools-using-Google-resources-on-opoid-a-1838071064](https://lifehacker.com/find-recovery-tools-using-googles-resources-on-opioid-a-1838071064)
+> 原文：<https://lifehacker.com/find-recovery-tools-using-googles-resources-on-opioid-a-1838071064>
 
 本周，赛克勒家族和奥施康定的制造商普渡制药公司同意支付至少 120 亿美元来解决该公司在阿片类药物危机中的角色，尽管没有承认任何实际责任。尽管有一半的州和地方政府同意这项协议，但至少有 20 个州拒绝了和解提议。
 

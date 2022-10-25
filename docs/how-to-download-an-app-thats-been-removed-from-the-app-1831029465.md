@@ -1,6 +1,6 @@
 # 如何下载已从 App Store 移除的应用程序
 
-> 原文:[https://life hacker . com/how-to-download-a-app-that-be-from-the-app-1831029465](https://lifehacker.com/how-to-download-an-app-thats-been-removed-from-the-app-1831029465)
+> 原文：<https://lifehacker.com/how-to-download-an-app-thats-been-removed-from-the-app-1831029465>
 
 本周， Epic Games 决定从苹果应用商店撤出其所有的 Infinity Blade 游戏。对于该系列的粉丝来说，这是一个巨大的失望。更糟糕的是:如果你暂时从手机上移除了应用程序，现在你无法从应用商店取回它。
 

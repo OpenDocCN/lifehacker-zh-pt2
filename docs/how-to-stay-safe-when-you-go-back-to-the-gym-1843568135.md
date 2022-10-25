@@ -1,6 +1,6 @@
 # 当你回到健身房时如何保持安全
 
-> 原文:[https://life hacker . com/how-to-stay-safe-when-you-go-the-gym-1843568135](https://lifehacker.com/how-to-stay-safe-when-you-go-back-to-the-gym-1843568135)
+> 原文：<https://lifehacker.com/how-to-stay-safe-when-you-go-back-to-the-gym-1843568135>
 
 现在健身房开始重新开放，回去很有诱惑力。然而，仅仅因为你*能*做某事并不一定意味着你*应该*。所以，在做出决定之前，考虑一下这个决定所带来的相对风险是很重要的。
 

@@ -1,6 +1,6 @@
 # 直到你打破了你的习惯，你才真正建立了一个习惯
 
-> 原文:[https://life hacker . com/you-don-t-truly-build-a-habit-until-after-you-break-you-1844686414](https://lifehacker.com/you-dont-truly-build-a-habit-until-after-you-break-your-1844686414)
+> 原文：<https://lifehacker.com/you-dont-truly-build-a-habit-until-after-you-break-your-1844686414>
 
 每天保持一个习惯是一个经典的诀窍。无论你是在日历上用一排红色的 X 来跟踪，还是让应用程序给你一个一致性的徽章，streak 都可以帮助你开始一个习惯。但这只是第一步。在打破你的连胜纪录后，你会发现你真正是谁。
 

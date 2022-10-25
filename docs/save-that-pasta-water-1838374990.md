@@ -1,6 +1,6 @@
 # 省下意大利面的水
 
-> 原文:[https://lifehacker.com/save-that-pasta-water-1838374990](https://lifehacker.com/save-that-pasta-water-1838374990)
+> 原文：<https://lifehacker.com/save-that-pasta-water-1838374990>
 
 重新加热剩余的意大利面可能会很棘手。用一点水泼它可以帮助放松，但是如果你真的想让一团僵硬、干燥的面条复活，你需要节省一点煮面条的水。
 

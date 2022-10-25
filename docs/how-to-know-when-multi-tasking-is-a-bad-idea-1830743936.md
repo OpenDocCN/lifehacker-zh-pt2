@@ -1,6 +1,6 @@
 # 当多重任务不是一个好主意的时候
 
-> 原文:[https://life hacker . com/how-to-know-when-multi-tasking-a bad-idea-1830743936](https://lifehacker.com/how-to-know-when-multi-tasking-is-a-bad-idea-1830743936)
+> 原文：<https://lifehacker.com/how-to-know-when-multi-tasking-is-a-bad-idea-1830743936>
 
 很难让你所有的球都在空中，但一点点多任务处理会有所帮助——直到你把它们扔得满地都是，因为你还试图回复一条短信或什么的。有时候，同时做两件事会比专注于一件事更没效率。以下是判断这种情况何时发生的方法。
 

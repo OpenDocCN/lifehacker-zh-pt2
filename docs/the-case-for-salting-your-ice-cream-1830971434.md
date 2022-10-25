@@ -1,6 +1,6 @@
 # 给你的冰淇淋加盐的情况
 
-> 原文:[https://life hacker . com/the-case for-salting-your-ice-cream-1830971434](https://lifehacker.com/the-case-for-salting-your-ice-cream-1830971434)
+> 原文：<https://lifehacker.com/the-case-for-salting-your-ice-cream-1830971434>
 
 我生长在一个冰淇淋爱好者的家庭。我爸爸一直是本杰里的坚定支持者，也是胖乎乎的丈夫名副其实的超级粉丝——你知道，就是那个有花生酱，更重要的是有咸椒盐卷饼的人。
 

@@ -1,6 +1,6 @@
 # 为什么鱼酱不仅仅用于炒菜
 
-> 原文:[https://the take out . com/unexpected-ways-to-use-fish-sauce-cooking-1833471750](https://thetakeout.com/unexpected-ways-to-use-fish-sauce-cooking-1833471750)
+> 原文：<https://thetakeout.com/unexpected-ways-to-use-fish-sauce-cooking-1833471750>
 
 除了烤芝麻油、gochujang 和 mirin，我的餐具室多年来一直放着一瓶鱼露。当我做一些东南亚炒菜食谱时，它出现了，但后来我几乎忘记了瓶子，因为它被拖进了餐具室的深处。我可以承认我犯了错误，忘记鱼酱确实是一个严重的烹饪错误。
 

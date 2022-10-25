@@ -1,6 +1,6 @@
 # 使用这个黑客在 Android 10 中创建“黑暗模式”计时器
 
-> 原文:[https://life hacker . com/use-this-hack-to-create-dark-mode-timers-in-Android-10-1838101522](https://lifehacker.com/use-this-hack-to-create-dark-mode-timers-in-android-10-1838101522)
+> 原文：<https://lifehacker.com/use-this-hack-to-create-dark-mode-timers-in-android-10-1838101522>
 
 我可以在任何操作系统、应用程序或网站上启用深色主题，升级到 Android 10 意味着我现在可以 [将深色主题设置为系统级所有支持的应用程序和菜单的默认外观](https://lifehacker.com/how-to-find-gmails-new-dark-mode-setting-1838066217)。
 

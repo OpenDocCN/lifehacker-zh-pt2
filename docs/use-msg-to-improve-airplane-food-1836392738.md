@@ -1,6 +1,6 @@
 # 用味精改善飞机餐
 
-> 原文:[https://life hacker . com/use-msg-to-improve-airplane-food-1836392738](https://lifehacker.com/use-msg-to-improve-airplane-food-1836392738)
+> 原文：<https://lifehacker.com/use-msg-to-improve-airplane-food-1836392738>
 
 精神上，飞行对我来说不是问题。让我感到不安的是以每小时数英里的速度被抛向空中的身体状况。即使你没有经历鼻窦压力或晕车，坐在嘈杂的飞机上也可以改变你对周围世界的看法。事实上，它可以改变你品尝 T2 食物的方式，老实说，这是很难接受的。
 

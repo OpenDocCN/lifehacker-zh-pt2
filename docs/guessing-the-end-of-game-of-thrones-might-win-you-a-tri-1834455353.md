@@ -1,6 +1,6 @@
 # 猜测《权力的游戏》的结局可能会赢得去克罗地亚旅行的机会
 
-> 原文:[https://life hacker . com/guessing-the-end-of-game-of-thrones-may-win-you-a-tri-1834455353](https://lifehacker.com/guessing-the-end-of-game-of-thrones-might-win-you-a-tri-1834455353)
+> 原文：<https://lifehacker.com/guessing-the-end-of-game-of-thrones-might-win-you-a-tri-1834455353>
 
 你知道谁会赢得铁王座吗？猜对了就有可能赢得去克罗地亚旅行的机会， [阿法尔报道](https://www.afar.com/magazine/you-could-win-a-trip-to-croatia-if-you-can-guess-how-game-of-thrones-ends) 。
 

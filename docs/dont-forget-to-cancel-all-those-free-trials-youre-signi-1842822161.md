@@ -1,6 +1,6 @@
 # 别忘了取消你报名参加的所有免费试用
 
-> 原文:[https://life hacker . com/don-forget-to-cancel-all-that-you-signi-1842822161](https://lifehacker.com/dont-forget-to-cancel-all-those-free-trials-youre-signi-1842822161)
+> 原文：<https://lifehacker.com/dont-forget-to-cancel-all-those-free-trials-youre-signi-1842822161>
 
 既然我们在家的时间越来越多，从在线流媒体服务到数字学校，每个人都在提供比正常时间更长的免费试用，让人们在家时有事可做。
 

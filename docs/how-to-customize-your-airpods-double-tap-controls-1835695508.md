@@ -1,6 +1,6 @@
 # 如何自定 AirPods 的双击控制
 
-> 原文:[https://life hacker . com/how-to-customize-your-ai rpods-double-tap-controls-1835695508](https://lifehacker.com/how-to-customize-your-airpods-double-tap-controls-1835695508)
+> 原文：<https://lifehacker.com/how-to-customize-your-airpods-double-tap-controls-1835695508>
 
 这里有一个隐藏的小秘密，你可能不知道，或者早已忘记。每个苹果 AirPod 的侧面都有一个双击控制，可以切换几个操作中的一个，包括在 iPhone 上调用 Siri，暂停或恢复音频，以及在曲目之间跳转。
 

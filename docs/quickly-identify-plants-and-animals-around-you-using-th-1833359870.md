@@ -1,6 +1,6 @@
 # 使用此应用程序快速识别您周围的植物和动物
 
-> 原文:[https://life hacker . com/quick-identify-plant-and-animals-around-you-using-th-1833359870](https://lifehacker.com/quickly-identify-plants-and-animals-around-you-using-th-1833359870)
+> 原文：<https://lifehacker.com/quickly-identify-plants-and-animals-around-you-using-th-1833359870>
 
 天气慢慢变暖，这意味着我们都要多出去走走。如果你的户外探险带你在大自然中徒步旅行一两次，那么你很有可能会遇到一种你不能完全识别的植物或动物。iNaturalist 是一款可以提供帮助的应用。
 

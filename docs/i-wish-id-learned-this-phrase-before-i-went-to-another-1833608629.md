@@ -1,6 +1,6 @@
 # 我希望我在去另一个国家之前学会了这个短语
 
-> 原文:[https://life hacker . com/I-wish-id-learned-this-phrase-before-I-go-to-another-1833608629](https://lifehacker.com/i-wish-id-learned-this-phrase-before-i-went-to-another-1833608629)
+> 原文：<https://lifehacker.com/i-wish-id-learned-this-phrase-before-i-went-to-another-1833608629>
 
 为一次旅行而学习一门语言和大规模学习是不同的；Duolingo 太全面了，任何试图建立在语法基础上的东西都是如此。你需要一些短语，比如“请”和“谢谢”，“这是什么意思？”以及“洗手间在哪里？”但大多数时候，我只需要一个词就能让自己不那么像一个丑陋的美国人。我需要说对不起。这比听起来要复杂得多。
 

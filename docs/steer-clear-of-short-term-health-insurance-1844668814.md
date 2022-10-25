@@ -1,6 +1,6 @@
 # 避开短期健康保险
 
-> 原文:[https://life hacker . com/steer-clear-of-short-term-health-insurance-1844668814](https://lifehacker.com/steer-clear-of-short-term-health-insurance-1844668814)
+> 原文：<https://lifehacker.com/steer-clear-of-short-term-health-insurance-1844668814>
 
 随着冠状病毒的持续爆发，一些公司预测 2021 年的健康保险费会更高。无论你最近是否失业，或者你已经在考虑秋季开放注册，都有一些类型的保险要远离。短期健康保险可能看起来不那么昂贵，但这些计划可能会让你在未来付出代价。原因如下。
 

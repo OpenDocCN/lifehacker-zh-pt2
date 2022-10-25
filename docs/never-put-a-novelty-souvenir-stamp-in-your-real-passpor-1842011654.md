@@ -1,6 +1,6 @@
 # 永远不要在你真正的护照上贴上新奇的纪念邮票
 
-> 原文:[https://life hacker . com/never-put-a-novely-纪念品-stamp-in-your-real-passpor-1842011654](https://lifehacker.com/never-put-a-novelty-souvenir-stamp-in-your-real-passpor-1842011654)
+> 原文：<https://lifehacker.com/never-put-a-novelty-souvenir-stamp-in-your-real-passpor-1842011654>
 
 如果你是一个经常旅行的人，那么有一天你可能会遇到一个提供护照纪念邮票的机会。南极洲的一些科考站提供邮票，马丘比丘 [在印加遗址](https://treehouselodge.com/where-to-get-your-passport-stamped-in-machu-picchu/) 的入口处提供邮票，威尔士的 llanfairpwllgwyngyllgolgogerychyrndrobwllllantysiliogogogogoch 镇提供一种特殊的邮票，你可以在它的一家商店把它放在你的护照上。除了你不应该。至少你的护照上没有。
 

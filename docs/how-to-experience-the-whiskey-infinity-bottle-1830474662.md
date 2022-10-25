@@ -1,6 +1,6 @@
 # 如何体验威士忌无限瓶的荣耀
 
-> 原文:[https://the take out . com/how-to-experience-the-whiskey-infinity-bottle-1830474662](https://thetakeout.com/how-to-experience-the-whiskey-infinity-bottle-1830474662)
+> 原文：<https://thetakeout.com/how-to-experience-the-whiskey-infinity-bottle-1830474662>
 
 我们在*外卖*这里做了一个小专题，我们称之为“今天我学会了”在里面，我们分享今天学到的东西。(最近的一些例子:A[Chick-Fil-A nugs hack](https://thetakeout.com/chick-fil-a-nugget-box-straw-hack-1830383302#_ga=2.197868655.1997257230.1541971964-633124151.1529105379)T5】； [霜降 5K](https://thetakeout.com/til-there-s-a-frosty-5k-1829374133)； [德语单词为香槟醉](https://thetakeout.com/til-german-word-champagne-drunk-sektlaune-1828394277) 。)2018 年 6 月 26 日，我了解到的事情是这样的:我可以 [马上开始自己的威士忌勾兑](https://thetakeout.com/til-i-could-start-my-own-whiskey-blend-right-now-1827135719) ，*。* 
 

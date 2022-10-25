@@ -1,6 +1,6 @@
 # 如何从人体工程学角度优化你的桌子，避免疼痛
 
-> 原文:[https://life hacker . com/how-to-herometric-optimize-your-desk-to-avoid-aches-1841814945](https://lifehacker.com/how-to-ergonomically-optimize-your-desk-to-avoid-aches-1841814945)
+> 原文：<https://lifehacker.com/how-to-ergonomically-optimize-your-desk-to-avoid-aches-1841814945>
 
 你可能坐错了。或者，至少，你可以坐得更好。在上面的视频中，人体工程学顾问和职业治疗师 Ellen Kolber 向我展示了如何改善我的办公桌，以避免持续的颈部和背部疼痛。
 

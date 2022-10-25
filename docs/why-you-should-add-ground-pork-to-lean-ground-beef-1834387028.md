@@ -1,6 +1,6 @@
 # 为什么你应该在瘦牛肉中加入碎猪肉
 
-> 原文:[https://life hacker . com/why-you-should-add-ground-猪肉-瘦肉-牛肉-1834387028](https://lifehacker.com/why-you-should-add-ground-pork-to-lean-ground-beef-1834387028)
+> 原文：<https://lifehacker.com/why-you-should-add-ground-pork-to-lean-ground-beef-1834387028>
 
 除了绊倒我的脚趾，没有什么比意外购买我喜欢的低脂产品更让我愤怒的了。我仍然没有原谅自己 2016 年的低脂酸奶油事件，我不知道我会不会原谅自己。最近，当我抓起一包额外的瘦肉碎牛肉而不是我通常的 80/20 时，类似的愤怒几乎笼罩了我，但后来我想起了猪肉碎的魔力。
 

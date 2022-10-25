@@ -1,6 +1,6 @@
 # 如何应对蛋黄酱短缺
 
-> 原文:[https://life hacker . com/how-to-cope-a-mayo-short-1842564006](https://lifehacker.com/how-to-cope-with-a-mayo-shortage-1842564006)
+> 原文：<https://lifehacker.com/how-to-cope-with-a-mayo-shortage-1842564006>
 
 今天早上，我听到了一个可怕的消息。显然，现在蛋黄酱短缺，全国许多商店的货架上都找不到一罐蛋黄酱。幸运的是，有很多方法可以自己制作蛋黄酱，我冒昧地为你收集了这些方法。
 

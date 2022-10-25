@@ -1,6 +1,6 @@
 # 如何将智能手机变成网络摄像头
 
-> 原文:[https://gizmodo . com/how-to-turn-your-smart phone-a-web cam-1842783844](https://gizmodo.com/how-to-turn-your-smartphone-into-a-webcam-1842783844)
+> 原文：<https://gizmodo.com/how-to-turn-your-smartphone-into-a-webcam-1842783844>
 
 你使用视频通话软件的次数可能比一个月前多得多，而且你也不想成为唯一一个没有视频源的远程工作者。如果你的家用电脑没有内置摄像头，那么你可以用智能手机上的摄像头来填补这个空白。
 

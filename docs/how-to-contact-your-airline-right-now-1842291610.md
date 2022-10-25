@@ -1,6 +1,6 @@
 # 现在如何联系你的航空公司
 
-> 原文:[https://life hacker . com/how-to-contact-your-airline-right-now-1842291610](https://lifehacker.com/how-to-contact-your-airline-right-now-1842291610)
+> 原文：<https://lifehacker.com/how-to-contact-your-airline-right-now-1842291610>
 
 如果你计划今年夏天去欧洲旅行，尤其是下个月，那么特朗普的最新旅行禁令可能会引起你的注意。
 

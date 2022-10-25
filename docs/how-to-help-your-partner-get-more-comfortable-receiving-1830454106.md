@@ -1,6 +1,6 @@
 # 如何帮助你的伴侣更舒适地接受
 
-> 原文:[https://life hacker . com/how-to-help-your-partner-get-more-coming-1830454106](https://lifehacker.com/how-to-help-your-partner-get-more-comfortable-receiving-1830454106)
+> 原文：<https://lifehacker.com/how-to-help-your-partner-get-more-comfortable-receiving-1830454106>
 
 许多人在卧室里很难获得时间、注意力或刺激。对许多人来说，给予比接受更容易。如果你的伴侣在卧室里努力吸引你的注意力，有一些方法可以帮助他们放松，明白他们值得你关注。
 

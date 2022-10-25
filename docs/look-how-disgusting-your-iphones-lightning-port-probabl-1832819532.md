@@ -1,6 +1,6 @@
 # 看看你的 iPhone 的闪电接口有多恶心
 
-> 原文:[https://gizmodo . com/look-how-恶心-你的 iphone-lightning-port-probabel-1832819532](https://gizmodo.com/look-how-disgusting-your-iphones-lightning-port-probabl-1832819532)
+> 原文：<https://gizmodo.com/look-how-disgusting-your-iphones-lightning-port-probabl-1832819532>
 
 大约六个月前，我真的开始害怕我会很快买一部新手机。过去三年我一直放在口袋里和手上的 [iPhone](https://gizmodo.com/its-2018-and-the-iphone-is-still-super-annoying-1831096584) 7 开始出现充电问题，我再也不能使用我的[Lightning connector](https://gizmodo.com/apples-lightning-port-kingdom-is-crumbling-1830101905)耳机了。这真的让我很生气。
 

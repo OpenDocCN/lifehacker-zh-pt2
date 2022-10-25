@@ -1,6 +1,6 @@
 # 如何在不打碎盘子的情况下清洗你的好盘子
 
-> 原文:[https://life hacker . com/how-to-wash your-nice-district-1830081590](https://lifehacker.com/how-to-wash-your-nice-dishes-without-breaking-them-1830081590)
+> 原文：<https://lifehacker.com/how-to-wash-your-nice-dishes-without-breaking-them-1830081590>
 
 假期很快就要到了，对一些人来说，这意味着拿出“好吃的”菜肴。每个家庭的“好”盘子都是不同的，但有一点是不变的:你不想打破“好”盘子，因为这样做会引起很多大叫和不快，最好在假期限制这些事情。
 

@@ -1,6 +1,6 @@
 # 在 Ori 和小精灵的意志中少死一点的提示
 
-> 原文:[https://kotaku . com/tips-for-die-less-in-ori-and-the-will-of-wisps-1842271151](https://kotaku.com/tips-for-dying-less-in-ori-and-the-will-of-the-wisps-1842271151)
+> 原文：<https://kotaku.com/tips-for-dying-less-in-ori-and-the-will-of-the-wisps-1842271151>
 
 Ori 和小精灵的意志是 2020 年最漂亮的平台之一，但是不要让它的外表欺骗了你。这个游戏会毁了你。无论是超精确的平台化还是无情的战斗，Ori 都有很多机会死亡。这里有一些提示，应该会使游戏少一点挑战。
 

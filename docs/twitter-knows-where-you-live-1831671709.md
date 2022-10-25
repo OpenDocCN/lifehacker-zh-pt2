@@ -1,6 +1,6 @@
 # 推特知道你住在哪里
 
-> 原文:[https://life hacker . com/Twitter-know-where-you-live-1831671709](https://lifehacker.com/twitter-knows-where-you-live-1831671709)
+> 原文：<https://lifehacker.com/twitter-knows-where-you-live-1831671709>
 
 全世界真的需要看到你发微博的地方吗？我通常不会考虑我在 Twitter 上分享了多少位置数据，因为我认为没有人会关心我的推文和我在哪里推文。然而,《连线》杂志的一份新报告让我重新思考我的方法。事实证明，通过你的推文准确定位*你住在*并不困难。
 

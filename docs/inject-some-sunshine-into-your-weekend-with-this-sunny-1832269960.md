@@ -1,6 +1,6 @@
 # 用这款阳光朗姆酒为你的周末注入一些阳光
 
-> 原文:[https://life hacker . com/inject-some-sunny-1832269960](https://lifehacker.com/inject-some-sunshine-into-your-weekend-with-this-sunny-1832269960)
+> 原文：<https://lifehacker.com/inject-some-sunshine-into-your-weekend-with-this-sunny-1832269960>
 
 二月的第一个周末快乐，如果你参加了，祝贺你熬过了干燥的一月。我听说外面很冷，根据我的经验，抵御寒冷的最好方法是呆在室内喝一杯，最好是朗姆酒。
 

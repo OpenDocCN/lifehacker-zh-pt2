@@ -1,6 +1,6 @@
 # 疫情期间如何获得生殖保健
 
-> 原文:[https://life hacker . com/how-to-access-reproductive-health-in-a-a-疫情-1842550634](https://lifehacker.com/how-to-access-reproductive-healthcare-during-a-pandemic-1842550634)
+> 原文：<https://lifehacker.com/how-to-access-reproductive-healthcare-during-a-pandemic-1842550634>
 
 在疫情期间保持安全引发了许多问题，如是否以及何时有必要去看医生——如果有必要，患者需要采取哪些额外措施来保护自己。由于暴露于新冠肺炎病毒的风险以及我们必须平衡负担过重的医疗系统的需求，现在去诊所看病变得很复杂。
 

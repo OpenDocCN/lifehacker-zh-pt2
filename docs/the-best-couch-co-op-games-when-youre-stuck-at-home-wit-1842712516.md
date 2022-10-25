@@ -1,6 +1,6 @@
 # 当你和别人困在家里时，最好的沙发合作游戏
 
-> 原文:[https://kotaku . com/the-best-couch-co-op-games-when-you-stick-in-home-wit-1842712516](https://kotaku.com/the-best-couch-co-op-games-when-youre-stuck-at-home-wit-1842712516)
+> 原文：<https://kotaku.com/the-best-couch-co-op-games-when-youre-stuck-at-home-wit-1842712516>
 
 到目前为止，你可能已经知道如何与你的社会距离较远的朋友保持联系。你已经设置了不和谐服务器。你已经知道哪些游戏有很棒的在线多人游戏。你已经确定了一个适合每个人进行大规模*动物穿越*的周时间(并不是说这些天每个人的时间表都排得满满的)。但是，如果你足够幸运或不幸与他人——室友、伴侣、家庭成员、*极度*聪明的宠物——关在一起，有一个更简单的方法来找到一些联系: [沙发合作社](https://kotaku.com/the-best-couch-co-op-games-1822149661) 。
 

@@ -1,6 +1,6 @@
 # 获得法国女孩公寓的 5 个简单技巧
 
-> 原文:[https://Jezebel . com/5-easy-tips-to-get-a-French-girl-apartment-1835409083](https://jezebel.com/5-easy-tips-to-get-a-french-girl-apartment-1835409083)
+> 原文：<https://jezebel.com/5-easy-tips-to-get-a-french-girl-apartment-1835409083>
 
 在 Jezebel，我们总是对法国女孩的所作所为感兴趣——无论她们是在 Instagram 上分享可爱的服装图片，还是用她们完美的刘海来激励我们。但是为什么就此打住呢？法国女孩也有很棒的公寓。所有人！我们来学习一下他们的内饰风格。
 

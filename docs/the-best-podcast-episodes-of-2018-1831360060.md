@@ -1,6 +1,6 @@
 # 2018 年最佳播客剧集
 
-> 原文:[https://life hacker . com/the-best-podcast-eptions-of-2018-1831360060](https://lifehacker.com/the-best-podcast-episodes-of-2018-1831360060)
+> 原文：<https://lifehacker.com/the-best-podcast-episodes-of-2018-1831360060>
 
 经过删减后，我现在有 470 集播客。有太多好听的东西了:小说、聊天节目、历史课、采访、报道纪录片、怪异的半小说。在我今年听的数百集播客中，这 15 集对我的教育和娱乐最大。
 

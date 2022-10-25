@@ -1,6 +1,6 @@
 # 《财富之轮》的万娜·怀特是如何在工作 36 年后仍保持微笑的
 
-> 原文:[https://life hacker . com/how-wheel-of-fortune-vanna-white-keep-smiling at-her-1833436318](https://lifehacker.com/how-wheel-of-fortunes-vanna-white-keeps-smiling-at-her-1833436318)
+> 原文：<https://lifehacker.com/how-wheel-of-fortunes-vanna-white-keeps-smiling-at-her-1833436318>
 
 自 1982 年以来，Vanna White 一直在幸运之轮上转动字母，她有一些小技巧可以让每个工作日都感觉焕然一新。
 

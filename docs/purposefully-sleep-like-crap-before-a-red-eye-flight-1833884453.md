@@ -1,6 +1,6 @@
 # 在红眼航班前故意睡得像屎一样
 
-> 原文:[https://life hacker . com/purposed-sleep-like-crap-before-a 红眼航班-1833884453](https://lifehacker.com/purposefully-sleep-like-crap-before-a-red-eye-flight-1833884453)
+> 原文：<https://lifehacker.com/purposefully-sleep-like-crap-before-a-red-eye-flight-1833884453>
 
 我刚从哥本哈根飞来(作为我们 [黑客世界](https://lifehacker.com/c/hack-the-world) 系列的一部分)，我的胳膊(还有眼睛，腿，还有整个人)都累了。随着年龄的增长，国际航班——甚至是跨国航班——开始感觉更像是对我身体的暴力犯罪，但我已经开发了一个系统，让我在红眼后到达一个令人兴奋的目的地时有点神清气爽:前一天晚上不要睡好。
 

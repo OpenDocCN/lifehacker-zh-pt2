@@ -1,6 +1,6 @@
 # how to prepare for cold and flu season during a pandemi 1844749240
 
-> 原文:[https://life hacker . com/how-to-prepare for-a-a-pandemi-1844749240](https://lifehacker.com/how-to-prepare-for-cold-and-flu-season-during-a-pandemi-1844749240)
+> 原文：<https://lifehacker.com/how-to-prepare-for-cold-and-flu-season-during-a-pandemi-1844749240>
 
 新冠肺炎并没有像我们希望的那样在的夏天结束消失——远非如此 。但是，尽管冠状病毒似乎不是季节性的，但许多其他传染病却是季节性的。感冒和流感每年冬天都会流行，今年冬天它们会和 COVID 一起流行。那么我们该如何准备呢？
 

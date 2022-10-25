@@ -1,6 +1,6 @@
 # 用黄油涂抹整只火鸡
 
-> 原文:[https://life hacker . com/smear-your-whole-turkey-with butter-1830494664](https://lifehacker.com/smear-your-entire-turkey-with-butter-1830494664)
+> 原文：<https://lifehacker.com/smear-your-entire-turkey-with-butter-1830494664>
 
 大多数火鸡配料都是为了弥补脂肪的不足，从而增加味道。干腌是从里到外给你的鸟调味的最好方法，但是对于最多汁、最美味的肉[，你必须添加一些脂肪——没有比黄油更好的脂肪了。](https://lifehacker.com/how-to-make-a-delicious-thanksgiving-turkey-1830465631) 
 

@@ -1,6 +1,6 @@
 # 为你的孩子开一个罗斯个人退休帐户
 
-> 原文:[https://life hacker . com/open-a-Roth-IRA-for-your-kid-1830936025](https://lifehacker.com/open-a-roth-ira-for-your-kid-1830936025)
+> 原文：<https://lifehacker.com/open-a-roth-ira-for-your-kid-1830936025>
 
 对大多数青少年来说，找到第一份工作是一个重要的里程碑。收入意味着他们可以升级他们的手机，购买他们渴望已久的贵得离谱的运动鞋，或者开始为他们的第一辆车攒钱。
 

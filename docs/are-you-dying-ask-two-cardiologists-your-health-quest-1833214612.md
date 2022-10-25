@@ -1,6 +1,6 @@
 # 你要死了吗？！美国东部时间下午 1 点向两位心脏病专家询问你的健康问题[更新:结束]
 
-> 原文:[https://life hacker . com/are-you-dye-ask-two-cardiologists-your-health-quest-1833214612](https://lifehacker.com/are-you-dying-ask-two-cardiologists-your-health-quest-1833214612)
+> 原文：<https://lifehacker.com/are-you-dying-ask-two-cardiologists-your-health-quest-1833214612>
 
 啊哦。你头疼。你感冒了吗，或者这只是讨厌的春季过敏的开始？你今天也会头痛，但是是在你头骨的后部，而不是前部，这是你通常会头痛的地方。我们知道你在想什么:我要死了吗？
 

@@ -1,6 +1,6 @@
 # how i increased my net worth by 27 000 in six months 1834725744
 
-> 原文:[https://life hacker . com/how-I-added-my-net-worth-in-seven-1834725744](https://lifehacker.com/how-i-increased-my-net-worth-by-27-000-in-six-months-1834725744)
+> 原文：<https://lifehacker.com/how-i-increased-my-net-worth-by-27-000-in-six-months-1834725744>
 
 根据 [你需要一份预算](https://www.youneedabudget.com/) (YNAB)，我的总净资产目前是 108940.66 美元。
 

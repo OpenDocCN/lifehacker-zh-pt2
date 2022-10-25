@@ -1,6 +1,6 @@
 # 为什么你应该让今年成为你的“深度年”
 
-> 原文:[https://life hacker . com/why-you-should-make this-your-depth-year-1833233445](https://lifehacker.com/why-you-should-make-this-your-depth-year-1833233445)
+> 原文：<https://lifehacker.com/why-you-should-make-this-your-depth-year-1833233445>
 
 当你寻求自我提升时，有数不清的书籍、应用程序、方法等。承诺“修复”你，或帮助你成为最好的自己。子弹杂志、冥想应用、瑜伽工作室、承诺帮助你“整理好你的大便”的书籍——在我们的文化中，不缺乏产品、服务和体验。
 

@@ -1,6 +1,6 @@
 # this isnt going to end soon 1842585548
 
-> 原文:[https://life hacker . com/this-not-going-to-end-soon-1842585548](https://lifehacker.com/this-isnt-going-to-end-soon-1842585548)
+> 原文：<https://lifehacker.com/this-isnt-going-to-end-soon-1842585548>
 
 我不想过分严肃，但是让我们现实一点。如果一个地方说他们关闭两周，或者如果一个四月的活动被推迟到五月，这里是我的建议:不要指望它。
 

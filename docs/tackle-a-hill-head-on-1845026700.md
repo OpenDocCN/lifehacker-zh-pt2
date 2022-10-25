@@ -1,6 +1,6 @@
 # 迎头赶上一座小山
 
-> 原文:[https://lifehacker.com/tackle-a-hill-head-on-1845026700](https://lifehacker.com/tackle-a-hill-head-on-1845026700)
+> 原文：<https://lifehacker.com/tackle-a-hill-head-on-1845026700>
 
 上周的 挑战，你有没有找到新的 [跑步或徒步的路径？本周是另一个适合远足的一周，我鼓励你找个有趣的地方去做这件事。但是我们要更进一步，因为我要你特别找一个可怕的山丘。爬上去。](https://vitals.lifehacker.com/go-somewhere-new-for-a-run-or-hike-1844954732)
 

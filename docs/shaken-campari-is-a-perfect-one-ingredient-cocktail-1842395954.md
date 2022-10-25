@@ -1,6 +1,6 @@
 # 摇过的金巴利是一种完美的单一成分鸡尾酒
 
-> 原文:[https://life hacker . com/shake-campari-is-a-perfect-one-ingredient-cocktail-1842395954](https://lifehacker.com/shaken-campari-is-a-perfect-one-ingredient-cocktail-1842395954)
+> 原文：<https://lifehacker.com/shaken-campari-is-a-perfect-one-ingredient-cocktail-1842395954>
 
 有很多种方式来享受坎帕瑞酒——在 [尼格罗尼](https://lifehacker.com/indulge-your-inner-bitter-betty-with-a-classic-negroni-1829824702) 酒里，配着 Fernet 酒、苏打水和一条柠檬皮——但是没有一种能像坎帕瑞酒本身那样令人神清气爽，前提是你得抖擞精神。
 

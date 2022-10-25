@@ -1,6 +1,6 @@
 # Twitter 用你的电话号码给你发广告。现在怎么办？
 
-> 原文:[https://life hacker . com/Twitter-used-your-phone-number-to-send-you-ads-now-wha-1838906777](https://lifehacker.com/twitter-used-your-phone-number-to-send-you-ads-now-wha-1838906777)
+> 原文：<https://lifehacker.com/twitter-used-your-phone-number-to-send-you-ads-now-wha-1838906777>
 
 谈谈被夹在推特和困境之间。拥有无限智慧的 Twitter 最近承认，出于广告目的，它篡改并使用了用户提供的电子邮件地址和电话号码——作为其账户安全措施的一部分。
 

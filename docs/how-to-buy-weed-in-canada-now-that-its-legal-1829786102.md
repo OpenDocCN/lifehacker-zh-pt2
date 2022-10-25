@@ -1,6 +1,6 @@
 # 如何在加拿大买到合法的大麻
 
-> 原文:[https://life hacker . com/how-to-buy-weed-in-Canada-now-that-the-that-that-the-its-legal-1829786102](https://lifehacker.com/how-to-buy-weed-in-canada-now-that-its-legal-1829786102)
+> 原文：<https://lifehacker.com/how-to-buy-weed-in-canada-now-that-its-legal-1829786102>
 
 加拿大刚刚成为世界上第二个在联邦层面将休闲大麻 合法化的国家。在一个省级政府各不相同的大国实施全国性的大麻系统，充其量是一个错综复杂、令人担忧、高风险的项目——最终的推广和你想象的一样复杂。
 

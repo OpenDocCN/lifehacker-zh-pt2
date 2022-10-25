@@ -1,6 +1,6 @@
 # 制作冰冻鸡尾酒时，用冰冻草莓代替冰块
 
-> 原文:[https://life hacker . com/use-frozen-草莓-而不是冰-当制作-froz-1844207146](https://lifehacker.com/use-frozen-strawberries-instead-of-ice-when-making-froz-1844207146)
+> 原文：<https://lifehacker.com/use-frozen-strawberries-instead-of-ice-when-making-froz-1844207146>
 
 最近，我看到一些冰冻草莓鸡尾酒(代基里酒和玛格丽塔酒)的配方，不知何故，它们不需要任何种类的糖浆或甜味剂。“好草莓这么甜，不需要加糖！”他们说。
 

@@ -1,6 +1,6 @@
 # 如何修复 Windows 7“最终”更新中的显示错误
 
-> 原文:[https://life hacker . com/how-to-fix-the-display-bug-in-windows-7s-final-update-1841274851](https://lifehacker.com/how-to-fix-the-display-bug-in-windows-7s-final-update-1841274851)
+> 原文：<https://lifehacker.com/how-to-fix-the-display-bug-in-windows-7s-final-update-1841274851>
 
 Windows 7 的“最终”更新， [版本 KB4534310](https://support.microsoft.com/en-us/help/4534310/windows-7-update-kb4534310?ranMID=43674&ranEAID=je6NUbpObpQ&ranSiteID=je6NUbpObpQ-m.IQX_F6XBCQ2DAoMNnnVA&epi=je6NUbpObpQ-m.IQX_F6XBCQ2DAoMNnnVA&irgwc=1&OCID=AID2000142_aff_7795_1243925&tduid=(ir__rqecia0stkkftwf2kk0sohzg2n2xllytu1wegusv00)(7795)(1243925)(je6NUbpObpQ-m.IQX_F6XBCQ2DAoMNnnVA)()&irclickid=_rqecia0stkkftwf2kk0sohzg2n2xllytu1wegusv00) ，显然引入了一个新的错误，需要至少再打一个补丁才能消除。这个 bug 是良性的——它所做的只是在你设置为“拉伸”时导致你的桌面壁纸变黑——但它仍然很烦人。
 

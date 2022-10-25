@@ -1,6 +1,6 @@
 # 教师可以免费订阅 Calm 的冥想应用程序
 
-> 原文:[https://life hacker . com/teachers-can-get-a-free-a-premium-subscription-to-calms-m-1837334510](https://lifehacker.com/teachers-can-get-a-free-premium-subscription-to-calms-m-1837334510)
+> 原文：<https://lifehacker.com/teachers-can-get-a-free-premium-subscription-to-calms-m-1837334510>
 
 每个人都知道当老师是一个压力很大的职业选择。应用程序 Calm 旨在通过向教师提供免费的冥想应用程序 的高级订阅来稍微减少这种情况。
 

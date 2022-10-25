@@ -1,6 +1,6 @@
 # 用观察笔记本提高你的写作水平
 
-> 原文:[https://life hacker . com/improve-your-writing with-a-observatory-notebook-1839921441](https://lifehacker.com/improve-your-writing-with-an-observational-notebook-1839921441)
+> 原文：<https://lifehacker.com/improve-your-writing-with-an-observational-notebook-1839921441>
 
 如果你正在起草 NaNoWriMo，你觉得你的小说缺乏其他作者似乎自然包含的那种感官细节——这种写作让你感觉你就在故事里面，与人物在一起，感受他们的感受——可能是时候开始携带观察笔记本了。
 

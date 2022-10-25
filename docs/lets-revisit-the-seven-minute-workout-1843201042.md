@@ -1,6 +1,6 @@
 # 让我们重温一下七分钟锻炼
 
-> 原文:[https://life hacker . com/let-review-the-seven-minute-workout-1843201042](https://lifehacker.com/lets-revisit-the-seven-minute-workout-1843201042)
+> 原文：<https://lifehacker.com/lets-revisit-the-seven-minute-workout-1843201042>
 
 我第一次听说七分钟锻炼，我认为这是一个伟大的想法。但后来我做到了，不能挂。从纸面上看，这太容易了，然而最后的侧板却是致命的。我没有跟上它，尽管它旨在让你在短短几分钟内完成一天的锻炼，使每个人都能通过简单的例行公事保持健康。
 

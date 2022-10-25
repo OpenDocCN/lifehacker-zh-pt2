@@ -1,6 +1,6 @@
 # 检查您的 Google Play 音乐订阅是否获得了额外点数
 
-> 原文:[https://life hacker . com/check-if-you-received-extra-credit-for-you-Google-pl-1844778437](https://lifehacker.com/check-if-youve-received-extra-credit-for-your-google-pl-1844778437)
+> 原文：<https://lifehacker.com/check-if-youve-received-extra-credit-for-your-google-pl-1844778437>
 
 Google Play 音乐即将被淘汰，未来几周将在 T2 被 YouTube 音乐取代。谷歌为曾经使用过谷歌播放音乐(由 [制作)的人提供了多种工具](https://lifehacker.com/save-your-google-play-music-library-before-it-disappear-1844624691) 来迁移你的曲库、播放列表和其他数据，从而使迁移变得容易。但是你的*订阅*呢？
 

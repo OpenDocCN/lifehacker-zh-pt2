@@ -1,6 +1,6 @@
 # 10 款可以替代传统夏季活动的电子游戏
 
-> 原文:[https://life hacker . com/10-video-games-that-can-replace-traditional-summer-acti-1844226405](https://lifehacker.com/10-video-games-that-can-replace-traditional-summer-acti-1844226405)
+> 原文：<https://lifehacker.com/10-video-games-that-can-replace-traditional-summer-acti-1844226405>
 
 这将是一个无止境的夏天，而且不是以一种很酷的“60 年代冲浪电影”的方式。你和你的孩子将面临两个多月很少的社交接触和大量的室内时间。幸运的是，整天玩电子游戏和正常的夏季活动一样有趣，比如野营、旅行和与有血有肉的人互动。
 

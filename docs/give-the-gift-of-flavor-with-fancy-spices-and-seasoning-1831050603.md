@@ -1,6 +1,6 @@
 # 用奇特的香料和调味料给礼物调味
 
-> 原文:[https://life hacker . com/give-the-give-give-gift-of-flavor-with-fancy-spices and-sorting-1831050603](https://lifehacker.com/give-the-gift-of-flavor-with-fancy-spices-and-seasoning-1831050603)
+> 原文：<https://lifehacker.com/give-the-gift-of-flavor-with-fancy-spices-and-seasoning-1831050603>
 
 有你应该 [一直放在你的食品柜](https://skillet.lifehacker.com/how-to-stock-a-spice-cabinet-1798314958) 里的香料和调味料，然后是特殊的 bois。这些混合物闻起来很好，看起来也很漂亮，但对于日常使用来说可能有点太珍贵了。*这些*是你应该作为礼物送出的混合物。
 

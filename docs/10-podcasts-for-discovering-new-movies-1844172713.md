@@ -1,6 +1,6 @@
 # 发现新电影的 10 个播客
 
-> 原文:[https://life hacker . com/10-podcast-for-discovery-new-movies-1844172713](https://lifehacker.com/10-podcasts-for-discovering-new-movies-1844172713)
+> 原文：<https://lifehacker.com/10-podcasts-for-discovering-new-movies-1844172713>
 
 如果在无数个夜晚中的另一个夜晚，当你翻阅网飞的最新作品时，你觉得你已经看完了现存的每一部有价值的电影，那么，你可能是错的，但你也可能是对的。我可以有把握地说，你永远不会真的看不完好电影——但前提是你知道如何找到好电影。
 

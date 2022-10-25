@@ -1,6 +1,6 @@
 # 不要落入“预判”的陷阱
 
-> 原文:[https://life hacker . com/dont-fall-in-the-trap-of-pre-rastruction-1844580800](https://lifehacker.com/dont-fall-into-the-trap-of-precrastination-1844580800)
+> 原文：<https://lifehacker.com/dont-fall-into-the-trap-of-precrastination-1844580800>
 
 我们生活和工作在一种重视生产力(进而重视利润)高于一切的文化中。但我们也是即时满足的忠实粉丝。(制作清单最好的部分难道不是增加一些你已经做过的事情，这样你就可以马上把它们勾掉吗？)事实证明，当你把对生产力的追求和我们对即时满足的热爱混为一谈时，你可能最终会陷入“预先认知”的陷阱。以下是这个概念的含义以及如何避免它。
 

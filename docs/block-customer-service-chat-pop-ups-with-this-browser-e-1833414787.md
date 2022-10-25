@@ -1,6 +1,6 @@
 # 使用此浏览器扩展阻止客户服务聊天弹出窗口
 
-> 原文:[https://life hacker . com/block-customer-service-chat-pops-with-this-browser-e-1833414787](https://lifehacker.com/block-customer-service-chat-pop-ups-with-this-browser-e-1833414787)
+> 原文：<https://lifehacker.com/block-customer-service-chat-pop-ups-with-this-browser-e-1833414787>
 
 Chrome 和 Firefox: 弹出窗口又回来了，宝贝！他们提供 10%的折扣，他们要求你订阅时事通讯(抱歉)，他们弹出一个聊天窗口，这样客户服务可以帮助你花钱。如果那些聊天弹出窗口吓到你了，试着用 [你好，再见](https://hellogoodbye.app/) 分机屏蔽它们。
 

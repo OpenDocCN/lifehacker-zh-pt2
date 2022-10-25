@@ -1,6 +1,6 @@
 # 我是 Erica Galos Alioto，Opendoor 的人事主管，这就是我的为人父母方式
 
-> 原文:[https://life hacker . com/im-Erica-galos-a lioto-head-of-people-at-open door-and-1832262153](https://lifehacker.com/im-erica-galos-alioto-head-of-people-at-opendoor-and-1832262153)
+> 原文：<https://lifehacker.com/im-erica-galos-alioto-head-of-people-at-opendoor-and-1832262153>
 
 Erica Galos Alioto 曾是一名律师，她转行开始为 Yelp 工作，当时 Yelp 只有 15 名员工。十年间，她帮助销售团队发展到 2200 多名员工。现在，她在房地产初创公司 Opendoor 工作，负责监管人力资源、人才、学习和发展。她就是这样为人父母的。
 

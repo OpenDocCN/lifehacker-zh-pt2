@@ -1,6 +1,6 @@
 # 哪里可以找到新款 Pixel 3a 和 3a XL 的最优惠价格
 
-> 原文:[https://life hacker . com/where-to-find-the-best-deals-on-the-new-pixel-3a-and-3a-1834616446](https://lifehacker.com/where-to-find-the-best-deals-on-the-new-pixel-3a-and-3a-1834616446)
+> 原文：<https://lifehacker.com/where-to-find-the-best-deals-on-the-new-pixel-3a-and-3a-1834616446>
 
 在过去，Pixel 手机并不总是最容易获得的，尤其是在发布时，因为零售商支持有限，而且众所周知的预购供应短缺。然而，新发布的 Pixel 3a 和 3a XL 几乎可以在美国的所有主要运营商和商店买到，并且它们都提供额外的补贴或额外的节省。下面是 Pixel 智能手机系列最新产品的概述，以及所有可以买到它们的地方。
 

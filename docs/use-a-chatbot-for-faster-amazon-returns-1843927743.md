@@ -1,6 +1,6 @@
 # 使用聊天机器人加快亚马逊的回报
 
-> 原文:[https://life hacker . com/use-a-chatbot-for-faster-Amazon-returns-1843927743](https://lifehacker.com/use-a-chatbot-for-faster-amazon-returns-1843927743)
+> 原文：<https://lifehacker.com/use-a-chatbot-for-faster-amazon-returns-1843927743>
 
 当你在亚马逊的订单上遇到问题，需要退货或要求退款时，你可能会向该网站的实时客户支持代表寻求帮助。不要。相反，点击亚马逊的自动聊天机器人，它可以让你几乎即时退款或安排退货，而不会浪费你的任何时间。
 

@@ -1,6 +1,6 @@
 # 我怎样才能给我枯竭的动力充电？
 
-> 原文:[https://life hacker . com/how-can-I-charge-my-depleted-motivation-5904712](https://lifehacker.com/how-can-i-recharge-my-depleted-motivation-5904712)
+> 原文：<https://lifehacker.com/how-can-i-recharge-my-depleted-motivation-5904712>
 
 即使是最积极的人有时也会失去动力。也许你已经筋疲力尽，或者感觉你的创造力已经耗尽，但是不管是什么原因，你都不能集中精力。这里有一些重新激发你动力的策略。
 

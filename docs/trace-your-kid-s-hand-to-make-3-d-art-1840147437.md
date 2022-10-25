@@ -1,6 +1,6 @@
 # 追踪孩子的手来制作三维艺术
 
-> 原文:[https://life hacker . com/trace-your-kid-s-hand-to-make-3d-art-1840147437](https://lifehacker.com/trace-your-kid-s-hand-to-make-3-d-art-1840147437)
+> 原文：<https://lifehacker.com/trace-your-kid-s-hand-to-make-3-d-art-1840147437>
 
 大约在一年中的这个时候，小孩子们学会了如何描绘自己的手，并把这种描绘变成一只火鸡的图片。但是现在感恩节已经过去了，如果他们还在追踪那些手指，有另一种(可以说是更酷的)方法将它们变成艺术:画一只看起来立体的手。
 

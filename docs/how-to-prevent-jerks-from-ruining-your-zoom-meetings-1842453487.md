@@ -1,6 +1,6 @@
 # 如何防止混蛋操纵你的缩放会议
 
-> 原文:[https://life hacker . com/how-to-prevent-from-breaking-your-zoom-meetings-1842453487](https://lifehacker.com/how-to-prevent-jerks-from-ruining-your-zoom-meetings-1842453487)
+> 原文：<https://lifehacker.com/how-to-prevent-jerks-from-ruining-your-zoom-meetings-1842453487>
 
 我认为每个人现在都转向虚拟聊天服务来与他们的朋友和爱人保持联系是件好事——从常规的聊天，到尴尬的晚餐聚会，到*地下城&龙*游戏。不那么有趣的是，当有人突然加入一个公开或不公开的电话会议，并开始向所有与会者分享色情内容。
 

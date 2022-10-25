@@ -1,6 +1,6 @@
 # 你应该让你的孩子等到高中才有手机吗？
 
-> 原文:[https://life hacker . com/should-you-make-your-kids-wait-until-to-high-school for-a-1830817651](https://lifehacker.com/should-you-make-your-kids-wait-until-high-school-for-a-1830817651)
+> 原文：<https://lifehacker.com/should-you-make-your-kids-wait-until-high-school-for-a-1830817651>
 
 拥有一部手机已经成为童年时代的一种仪式。父母们经常纠结于*多快*快，现在 [普通孩子在 10 岁](http://influence-central.com/kids-tech-the-evolution-of-todays-digital-natives/) 收到第一部手机，12 岁就有了第一个社交媒体账户。
 

@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:我如何离开一段虐待关系？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-how-do-I-leave-a-abuse-relationshi-1842639391](https://kotaku.com/ask-dr-nerdlove-how-do-i-leave-an-abusive-relationshi-1842639391)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-how-do-i-leave-an-abusive-relationshi-1842639391>
 
 你好，所有你周末释放信息素的人，欢迎来到 [问问 NerdLove](http://kotaku.com/askdrnerdlove)T3【博士】，你唯一比 Mario 博士更需要的医生。 
 

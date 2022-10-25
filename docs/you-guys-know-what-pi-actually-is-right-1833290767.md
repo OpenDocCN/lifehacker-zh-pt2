@@ -1,6 +1,6 @@
 # 你们知道圆周率实际上是什么，对吧？
 
-> 原文:[https://life hacker . com/you-guys-know-what-pi-actually-is-right-1833290767](https://lifehacker.com/you-guys-know-what-pi-actually-is-right-1833290767)
+> 原文：<https://lifehacker.com/you-guys-know-what-pi-actually-is-right-1833290767>
 
 祝你快乐！圆周率是什么？如果你在挖掘几何课的旧记忆，就此打住。圆周率在现实生活中是真实存在的。这意味着**围绕一个圆形物体的距离是左右距离的三倍多一点**。
 

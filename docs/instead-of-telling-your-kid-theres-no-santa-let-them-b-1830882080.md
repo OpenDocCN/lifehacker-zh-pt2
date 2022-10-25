@@ -1,6 +1,6 @@
 # 与其告诉你的孩子没有圣诞老人，不如让他们成为圣诞老人
 
-> 原文:[https://life hacker . com/而不是告诉你的孩子没有圣诞老人](https://lifehacker.com/instead-of-telling-your-kid-theres-no-santa-let-them-b-1830882080)
+> 原文：<https://lifehacker.com/instead-of-telling-your-kid-theres-no-santa-let-them-b-1830882080>
 
 我不记得从什么时候开始我不再相信圣诞老人了，但是我记得当我最后问的时候，我妈妈处理的非常完美。
 

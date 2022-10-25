@@ -1,6 +1,6 @@
 # 如何从 Target 和亚马逊为你的新宝宝获得免费的东西
 
-> 原文:[https://life hacker . com/how-to-get-from-target-and-1829930536](https://lifehacker.com/how-to-get-free-stuff-for-your-new-baby-from-target-and-1829930536)
+> 原文：<https://lifehacker.com/how-to-get-free-stuff-for-your-new-baby-from-target-and-1829930536>
 
 当你想要一个孩子时，你可以从那些想让你的孩子成为[在此插入品牌名称]婴儿的公司那里得到很多免费的东西。尿布、湿巾、配方奶粉、奶瓶、连体衣，甚至儿童书籍。嘿，随它去吧。
 

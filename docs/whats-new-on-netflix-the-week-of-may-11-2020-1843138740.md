@@ -1,6 +1,6 @@
 # 2020 年 5 月 11 日这一周网飞有什么新消息
 
-> 原文:[https://life hacker . com/whats-new-on-the-week-of-may-11-2020-1843138740](https://lifehacker.com/whats-new-on-netflix-the-week-of-may-11-2020-1843138740)
+> 原文：<https://lifehacker.com/whats-new-on-netflix-the-week-of-may-11-2020-1843138740>
 
 牢不可破的童菲·施密特今天在新的互动特别节目中回到网飞，*牢不可破的童菲·施密特:童菲对牧师*。
 

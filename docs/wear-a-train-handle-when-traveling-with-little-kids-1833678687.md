@@ -1,6 +1,6 @@
 # 带着小孩旅行时，戴上“火车把手”
 
-> 原文:[https://life hacker . com/wear-a-train-handle-when-travel-with little-kids-1833678687](https://lifehacker.com/wear-a-train-handle-when-traveling-with-little-kids-1833678687)
+> 原文：<https://lifehacker.com/wear-a-train-handle-when-traveling-with-little-kids-1833678687>
 
 我住在郊区，所以我不知道经常带着小孩在人群中穿梭是什么感觉。但似乎压力很大。你只有两只手！你告诉我你应该至少奉献其中一个来防止你的小孩整天被卷入巨人的海洋？一位名叫健太郎·森田的日本爸爸结束了这种生活，他发明了一个聪明的配件，让从 A 点到 B 点变得更容易一些。
 

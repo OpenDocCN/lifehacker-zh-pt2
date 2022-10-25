@@ -1,6 +1,6 @@
 # 如何算出孩子的鞋码
 
-> 原文:[https://life hacker . com/how-to-figure-out-of-your-kids-shoe-size-1843464064](https://lifehacker.com/how-to-figure-out-your-kids-shoe-size-1843464064)
+> 原文：<https://lifehacker.com/how-to-figure-out-your-kids-shoe-size-1843464064>
 
 儿童鞋码似乎应该是一件相当容易的事情。然而他们的脚长得如此之快，就好像一开始他们是 4 码，然后他们是 8 码(当*我是 8 码*时，一个蹒跚学步的孩子怎么会是 8 码呢？？)然后一个 12，现在，等等，一个 1.5？刚刚发生了什么？
 

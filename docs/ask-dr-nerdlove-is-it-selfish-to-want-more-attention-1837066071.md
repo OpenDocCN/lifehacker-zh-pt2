@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:想得到女朋友更多的关注是自私的吗？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-is-自私-想要更多关注-1837066071](https://kotaku.com/ask-dr-nerdlove-is-it-selfish-to-want-more-attention-1837066071)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-is-it-selfish-to-want-more-attention-1837066071>
 
 你好，你这个可怕的 noosphere 的皮囊们，欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是一个约会建议专栏，像 30-50 头野猪一样向你的爱情问题收费。
 

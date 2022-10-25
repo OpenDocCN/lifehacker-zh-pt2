@@ -1,6 +1,6 @@
 # 用这个计算器选择一个学生贷款偿还计划
 
-> 原文:[https://life hacker . com/choose-a-student-loan-return-plan-with this-calculat-1843008494](https://lifehacker.com/choose-a-student-loan-repayment-plan-with-this-calculat-1843008494)
+> 原文：<https://lifehacker.com/choose-a-student-loan-repayment-plan-with-this-calculat-1843008494>
 
 IBR，PAYE，returne——如果偿还学生贷款的选项看起来像字母汤，有一种新的计算器可以简化决策过程。
 

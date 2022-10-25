@@ -1,6 +1,6 @@
 # how to figure out if youre dating a narcissist 1844390450
 
-> 原文:[https://life hacker . com/how-to-figure-if-you-dating-a-selcist-1844390450](https://lifehacker.com/how-to-figure-out-if-youre-dating-a-narcissist-1844390450)
+> 原文：<https://lifehacker.com/how-to-figure-out-if-youre-dating-a-narcissist-1844390450>
 
 当丽莎在研究生院遇到亚当时，她以为自己中了约会大奖。“他非常富有，非常有魅力，起初他非常迷人，”她说。“他不断地给我送来礼物、精美的晚餐和浪漫的夜晚。他一直在遵循这本 20 世纪 50 年代的求爱规则。”但是随着时间的推移，丽莎说，亚当变得居高临下，控制欲强，而且残忍。他批评她的工人阶级背景，并试图按照他的形象塑造她。他了解了她的不安全感和触发点，并用它们来对付她。每次他们发生争执，他都让她给他写一封道歉信。最终，他变得身体虐待和性虐待。丽莎花了好几年才摆脱他。
 

@@ -1,6 +1,6 @@
 # 任何新冠肺炎的“治疗”都是骗局
 
-> 原文:[https://life hacker . com/any-新冠肺炎-cure-is-a-scam-1844325517](https://lifehacker.com/any-covid-19-cure-is-a-scam-1844325517)
+> 原文：<https://lifehacker.com/any-covid-19-cure-is-a-scam-1844325517>
 
 这是你的定期提醒，仍然没有已知的治愈，也没有具体的药物预防或治疗，为新冠肺炎。所以如果有人在卖，那就是骗局。
 

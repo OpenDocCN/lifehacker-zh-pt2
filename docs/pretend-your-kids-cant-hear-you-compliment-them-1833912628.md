@@ -1,6 +1,6 @@
 # 假装你的孩子听不见你赞美他们
 
-> 原文:[https://life hacker . com/假装你的孩子听不到你的赞美 1833912628](https://lifehacker.com/pretend-your-kids-cant-hear-you-compliment-them-1833912628)
+> 原文：<https://lifehacker.com/pretend-your-kids-cant-hear-you-compliment-them-1833912628>
 
 想一想，当你的老板称赞你在一个项目上的工作时，你是什么感觉。现在想一想当你无意中听到你的老板对另一位经理称赞你时是什么感觉。
 

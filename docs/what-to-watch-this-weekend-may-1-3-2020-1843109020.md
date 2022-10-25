@@ -1,6 +1,6 @@
 # 2020 年 5 月 1-3 日这个周末看什么
 
-> 原文:[https://life hacker . com/本周末看什么-2020 年 5 月 1 日-3 日-1843109020](https://lifehacker.com/what-to-watch-this-weekend-may-1-3-2020-1843109020)
+> 原文：<https://lifehacker.com/what-to-watch-this-weekend-may-1-3-2020-1843109020>
 
 今天是星期五！如果你正在寻找今晚和这个周末可以看的东西来祝贺自己又熬过了一周，我们已经找到了一些选择。
 

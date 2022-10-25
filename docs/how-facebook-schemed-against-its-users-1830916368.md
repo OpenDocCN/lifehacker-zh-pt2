@@ -1,6 +1,6 @@
 # 脸书是如何阴谋反对它的用户的
 
-> 原文:[https://gizmodo . com/how-Facebook-schemed-against-its-users-1830916368](https://gizmodo.com/how-facebook-schemed-against-its-users-1830916368)
+> 原文：<https://gizmodo.com/how-facebook-schemed-against-its-users-1830916368>
 
 去年，我在 [试图解开一个谜](https://gizmodo.com/how-facebook-outs-sex-workers-1818861596#_ga=2.138909946.873203251.1544462330-708909045.1543944002) 。脸书的“你可能认识的人”工具将性工作者的真实身份暴露给他们的客户，反之亦然，我试图找出如何做到这一点。一位化名为莱拉的性工作者告诉我，她已经竭尽全力向客户隐瞒自己的身份，使用了化名、备用电子邮件地址和一次性电话号码——她*没有向脸书*提供这些联系信息——但脸书仍然将她和她的客户联系在一起，建议他们到她的实名账户上，成为她可能想交的朋友。
 

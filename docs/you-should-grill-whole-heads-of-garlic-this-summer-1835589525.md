@@ -1,6 +1,6 @@
 # 今年夏天你应该烤整头大蒜
 
-> 原文:[https://life hacker . com/you-should-grill-whole-heads-of-garlic-this-summer-1835589525](https://lifehacker.com/you-should-grill-whole-heads-of-garlic-this-summer-1835589525)
+> 原文：<https://lifehacker.com/you-should-grill-whole-heads-of-garlic-this-summer-1835589525>
 
 烤大蒜是最后的点睛之笔。把它涂在牛排上，拌在蘸酱里，或者和某种烤蔬菜沙拉一起搅拌，它会让味道更好。但是，在夏季的几个月里，烧烤的行为会让你的厨房变成一个充满汗水、令人不愉快的地方。好消息是，你不必在潮湿的厨房和美味的烤大蒜之间做出选择——你只需要把它扔到烤架上。
 

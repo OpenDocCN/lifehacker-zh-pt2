@@ -1,6 +1,6 @@
 # 如何为你的孩子建立一个社区包
 
-> 原文:[https://life hacker . com/how-to-start-a-neighborhood-pack-for-your-kids-1834213951](https://lifehacker.com/how-to-start-a-neighborhood-pack-for-your-kids-1834213951)
+> 原文：<https://lifehacker.com/how-to-start-a-neighborhood-pack-for-your-kids-1834213951>
 
 我差一点就要让我的儿子独自带着我们的狗在街区里散步了。在不久的将来的某一天，我会让他在车里等着，而我去商店买一条面包。今年夏天他可能会被允许独自骑自行车到街角。我正慢慢地让他走向户外独立，但我还是希望他能有更多。我想让他漫游，但我也不想让他太遥不可及，独自一人。
 

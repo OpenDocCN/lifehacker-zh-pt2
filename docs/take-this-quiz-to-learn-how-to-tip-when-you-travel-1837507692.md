@@ -1,6 +1,6 @@
 # 做一下这个测试，学习一下旅行时如何给小费
 
-> 原文:[https://life hacker . com/take-this-quiz-to-learn-how-to-tip-when-you travel-1837507692](https://lifehacker.com/take-this-quiz-to-learn-how-to-tip-when-you-travel-1837507692)
+> 原文：<https://lifehacker.com/take-this-quiz-to-learn-how-to-tip-when-you-travel-1837507692>
 
 当我们在餐馆、咖啡店或发廊时，许多人都知道如何给小费。我们旅行的时候呢？除了出租车和拼车司机，还有谁能得到小费？我们是否在不经意间忽略了让我们的旅行平稳舒适的服务人员？
 

@@ -1,6 +1,6 @@
 # 如何在不发现线索的情况下打开《最后的我们 2》中的所有保险柜
 
-> 原文:[https://life hacker . com/how-to-unlock-the-all-the-the-last-of-the-us-2-without-1844607909](https://lifehacker.com/how-to-unlock-all-the-safes-in-the-last-of-us-2-without-1844607909)
+> 原文：<https://lifehacker.com/how-to-unlock-all-the-safes-in-the-last-of-us-2-without-1844607909>
 
 对于《最后的我们 2》(T1)的粉丝来说，这是顽皮狗继 2013 年年度游戏冠军*《最后的我们 2》(T3)之后的又一部作品，部分乐趣在于其世界的深度。这种感觉通常仅限于开放世界游戏，那些允许你自由探索和与几乎任何东西互动的游戏；但是《T4》中《最后的我们 2》主要是线性的，它通过生活在表面之下和人迹罕至的叙述和收藏品来弥补。* 
 

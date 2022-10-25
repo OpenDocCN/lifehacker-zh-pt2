@@ -1,6 +1,6 @@
 # 如何进行网上眼科检查
 
-> 原文:[https://life hacker . com/how-to-take-a-online-eye-exam-1843155646](https://lifehacker.com/how-to-take-an-online-eye-exam-1843155646)
+> 原文：<https://lifehacker.com/how-to-take-an-online-eye-exam-1843155646>
 
 在疫情期间保持安全意味着必须权衡每次外出，以及评估任何可能的紧急情况是否值得冒险暴露。如果你需要一副新眼镜或额外的隐形眼镜，但你的处方已经过期，在线眼科检查是一个可能的权宜之计，直到可以安全地再次去看眼科医生。
 

@@ -1,6 +1,6 @@
 # 这个南瓜冰箱蛋糕对懒人来说是完美的感恩节大餐
 
-> 原文:[https://life hacker . com/this-pumpkin-ice box-cake-is-the-perfect-thanksgiving-tr-1830468906](https://lifehacker.com/this-pumpkin-icebox-cake-is-the-perfect-thanksgiving-tr-1830468906)
+> 原文：<https://lifehacker.com/this-pumpkin-icebox-cake-is-the-perfect-thanksgiving-tr-1830468906>
 
 我可以坦白一件事吗？我不喜欢烘焙。也许是因为我已经变得不喜欢任何甚至模糊地让我想起我以前作为化学家的生活的东西，或者也许是因为我很懒，但烘焙对我来说并不有趣，我尽可能地避免它(并让 [A.A .牛顿](https://kinja.com/aanewton) 来代替)。然而，我确实喜欢*吃*甜食，一个冰箱蛋糕让我把我对吃美味甜点的热爱和我不做太多事情的热爱结合起来。
 

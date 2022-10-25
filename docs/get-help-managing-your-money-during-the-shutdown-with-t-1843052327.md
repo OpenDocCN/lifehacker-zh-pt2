@@ -1,6 +1,6 @@
 # 通过这个测验获得在关闭期间管理您的资金的帮助
 
-> 原文:[https://life hacker . com/get-help-managing-your money-with-t-1843052327](https://lifehacker.com/get-help-managing-your-money-during-the-shutdown-with-t-1843052327)
+> 原文：<https://lifehacker.com/get-help-managing-your-money-during-the-shutdown-with-t-1843052327>
 
 有没有因为压力太大，以至于做一个最小的决定都感觉筋疲力尽？在这种情况下，一想到 [做出重大决定](https://lifehacker.com/what-is-decision-fatigue-and-how-does-it-affect-you-1842851099) 就会让你觉得僵在原地，根本无法行动。
 

@@ -1,6 +1,6 @@
 # 用垃圾包装你的礼物来省钱(和保护地球)
 
-> 原文:[https://life hacker . com/1831084382](https://lifehacker.com/save-money-and-the-planet-by-wrapping-your-gifts-with-1831084382)
+> 原文：<https://lifehacker.com/save-money-and-the-planet-by-wrapping-your-gifts-with-1831084382>
 
 礼品包装既昂贵又浪费——你花了这么长时间把东西包装得漂漂亮亮的，结果却马上被撕掉扔掉。
 

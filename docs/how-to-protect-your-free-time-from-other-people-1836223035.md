@@ -1,6 +1,6 @@
 # 如何保护你的空闲时间不受他人影响
 
-> 原文:[https://life hacker . com/how-to-protect-your ' s free-time from-other-people-1836223035](https://lifehacker.com/how-to-protect-your-free-time-from-other-people-1836223035)
+> 原文：<https://lifehacker.com/how-to-protect-your-free-time-from-other-people-1836223035>
 
 我们大多数人每天都很少有计划外的时间——很难让这些时间不在计划内。对于我们希望最终读完那本书、打扫壁橱或只是坐在沙发上无所事事的每个宝贵的空闲夜晚，总有一个朋友、父母、伴侣、孩子或同事希望我们把这些时间花在做其他事情上。
 

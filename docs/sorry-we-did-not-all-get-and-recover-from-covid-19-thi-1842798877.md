@@ -1,6 +1,6 @@
 # sorry we did not all get and recover from covid 19 thi 1842798877
 
-> 原文:[https://life hacker . com/sorry-we-do-not-all-get-and-recover-from-新冠肺炎-thi-1842798877](https://lifehacker.com/sorry-we-did-not-all-get-and-recover-from-covid-19-thi-1842798877)
+> 原文：<https://lifehacker.com/sorry-we-did-not-all-get-and-recover-from-covid-19-thi-1842798877>
 
 我第一次听到这个理论是在二月份，来自一个家庭成员:“如果我今年冬天得的重感冒实际上是新冠肺炎呢？”当然，不太可能，但是一个有趣的*如果*会怎样。但后来我开始从越来越多的人那里听到这个消息，现在似乎脸书的每个人都确信他们已经感染了冠状病毒，他们是免疫的，出门没问题，见鬼，我们现在可能都已经感染了。
 

@@ -1,6 +1,6 @@
 # 乔·比夫的“全包”薯片黄油是一个如此古怪的想法，它可能会奏效
 
-> 原文:[https://the take out . com/recipe-Joe-beef-all-dressed-薯片-黄油-1831470679](https://thetakeout.com/recipe-joe-beef-all-dressed-potato-chips-butter-1831470679)
+> 原文：<https://thetakeout.com/recipe-joe-beef-all-dressed-potato-chips-butter-1831470679>
 
 蒙特利尔的乔牛肉 餐厅是几年前推出 [鹅肝双份](https://www.youtube.com/watch?v=V0fhgQXzChA) 的餐厅。他们想出这道菜不是为了讽刺或者作为某种美食的声明。他们这么做是因为他们认为那会很美味。
 

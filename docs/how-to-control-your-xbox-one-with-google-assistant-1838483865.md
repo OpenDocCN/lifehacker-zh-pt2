@@ -1,6 +1,6 @@
 # 如何用谷歌助手控制你的 Xbox One
 
-> 原文:[https://life hacker . com/how-to-control-your-Xbox-one with-Google-assistant-1838483865](https://lifehacker.com/how-to-control-your-xbox-one-with-google-assistant-1838483865)
+> 原文：<https://lifehacker.com/how-to-control-your-xbox-one-with-google-assistant-1838483865>
 
 现在有更多的方法让你不用控制器就能操作你的 Xbox One。微软宣布，它在谷歌助手上推出了一项技能，允许你使用 iOS 和 Android 上的谷歌助手应用程序控制控制台上的基本导航和系统级命令。这听起来像是没人需要的东西，但在你尝试之前不要吹毛求疵——事实证明，免提浏览你的 Xbox One 实际上很有帮助。
 

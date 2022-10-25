@@ -1,6 +1,6 @@
 # 是时候为假期做好财务准备了
 
-> 原文:[https://life hacker . com/its-time-to-prepare-your finance-for the holiday-1838457854](https://lifehacker.com/its-time-to-prepare-your-finances-for-the-holidays-1838457854)
+> 原文：<https://lifehacker.com/its-time-to-prepare-your-finances-for-the-holidays-1838457854>
 
 我讨厌打破你的南瓜香料白日梦，但惊喜！假期即将来临。如果你计划在接下来的几个月里参加任何级别的节日庆祝活动，你需要准备好你的钱。所以放下那杯拿铁，马上采取三个步骤来增强你的财务状况。我保证，你马上就可以拿回你的南瓜香料了。
 

@@ -1,6 +1,6 @@
 # 现在就为你的黑色星期五购物检查价格
 
-> 原文:[https://life hacker . com/check-the-prices-for-your-black-Friday-buying-now-1830338477](https://lifehacker.com/check-the-prices-for-your-black-friday-buying-now-1830338477)
+> 原文：<https://lifehacker.com/check-the-prices-for-your-black-friday-buying-now-1830338477>
 
 找到一笔真正划算的交易，看到你排队几个小时或在恰当的时候点击“购买”而获得的巨大节省，这种感觉非常令人满意。不幸的是，企业知道这一点，他们正在操纵你。
 

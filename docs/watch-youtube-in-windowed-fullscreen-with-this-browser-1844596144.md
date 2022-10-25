@@ -1,6 +1,6 @@
 # 使用此浏览器扩展以窗口全屏观看 YouTube
 
-> 原文:[https://life hacker . com/watch-YouTube-in-windowed-full screen-with this-browser-1844596144](https://lifehacker.com/watch-youtube-in-windowed-fullscreen-with-this-browser-1844596144)
+> 原文：<https://lifehacker.com/watch-youtube-in-windowed-fullscreen-with-this-browser-1844596144>
 
 有时你想要一个电影般的 YouTube 体验，但网站的默认播放器尺寸在桌面上还有待改进。
 

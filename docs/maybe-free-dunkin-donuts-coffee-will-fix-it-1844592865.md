@@ -1,6 +1,6 @@
 # 也许免费的邓肯甜甜圈咖啡可以解决这个问题
 
-> 原文:[https://life hacker . com/maybe-free-dunkin-donuts-coffee-will-fix-it-1844592865](https://lifehacker.com/maybe-free-dunkin-donuts-coffee-will-fix-it-1844592865)
+> 原文：<https://lifehacker.com/maybe-free-dunkin-donuts-coffee-will-fix-it-1844592865>
 
 广告告诉我们，美国靠灌篮为生。我不知道那是不是真的；市场份额表明，在美国 [逛星巴克](https://dailycoffeenews.com/2019/10/25/nearly-four-of-every-five-us-coffee-shops-are-now-starbucks-dunkin-or-jab-brands) 的比例更高。然而，可以肯定的是，正是由于咖啡因的作用，美国人避免了在早晨通勤期间睡着(即使现在只是走到餐桌旁)。八月的周一——嘿，*今天是八月的周一——*你可以庆祝 2020 年的又一个小时保持清醒，我们国家最普遍的合法兴奋剂经销商提供免费冰咖啡，还有甜甜圈。
 

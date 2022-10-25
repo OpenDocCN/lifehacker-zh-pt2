@@ -1,6 +1,6 @@
 # 把蔬菜放在架子上烤，以获得最大的松脆度
 
-> 原文:[https://life hacker . com/bake-vegetables-on-a-rack-for-maximum-crispy-1839330580](https://lifehacker.com/roast-vegetables-on-a-rack-for-maximum-crispiness-1839330580)
+> 原文：<https://lifehacker.com/roast-vegetables-on-a-rack-for-maximum-crispiness-1839330580>
 
 水是酥脆的敌人，完美的金黄色烤蔬菜——这很糟糕，因为蔬菜中含有大量的水。如果你只喜欢那些脆脆的边缘，试着去拿一个冷却架。更多的空气流通意味着所有的水分都会蒸发掉，所以你的蔬菜每次都会变得香脆。
 

@@ -1,6 +1,6 @@
 # 如果你使用 Poshmark，现在是时候改变你的密码了
 
-> 原文:[https://life hacker . com/if-you-use-posh mark-now-is-the-time-to-change-you-pas-1836937825](https://lifehacker.com/if-you-use-poshmark-now-is-the-time-to-change-your-pas-1836937825)
+> 原文：<https://lifehacker.com/if-you-use-poshmark-now-is-the-time-to-change-your-pas-1836937825>
 
 如果你使用 Poshmark，那么是时候改变你的密码了。
 

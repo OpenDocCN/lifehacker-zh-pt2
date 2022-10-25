@@ -1,6 +1,6 @@
 # 菊苣是完美的派对绿
 
-> 原文:[https://life hacker . com/endive-is-the-perfect-party-green-1834474694](https://lifehacker.com/endive-is-the-perfect-party-green-1834474694)
+> 原文：<https://lifehacker.com/endive-is-the-perfect-party-green-1834474694>
 
 好的聚会食物可以不用盘子或餐具来吃。这意味着它应该是可刺的、可舀的，或者预先装载到可食用的输送系统上。你不能用菊苣叶刺任何东西，但它是一个很好的勺子，一个真正优雅的传输系统。
 

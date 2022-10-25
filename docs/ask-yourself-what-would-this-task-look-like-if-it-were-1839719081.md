@@ -1,6 +1,6 @@
 # 问问你自己“如果这项任务有趣的话，它会是什么样的？”
 
-> 原文:[https://life hacker . com/ask-yourself-what-this-task-like-if-that-1839719081](https://lifehacker.com/ask-yourself-what-would-this-task-look-like-if-it-were-1839719081)
+> 原文：<https://lifehacker.com/ask-yourself-what-would-this-task-look-like-if-it-were-1839719081>
 
 如果你关注生产率大师 Tim Ferriss，你可能会熟悉他提出的改变思维模式的问题“如果这很容易，会是什么样子？”
 

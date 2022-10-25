@@ -1,6 +1,6 @@
 # 2019 年 9 月网飞有什么来往
 
-> 原文:[https://life hacker . com/whats-coming-and-going-in-2019-9-1837440601](https://lifehacker.com/whats-coming-and-going-from-netflix-in-september-2019-1837440601)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-in-september-2019-1837440601>
 
 这个月，网飞得到了电影*《美国惊魂记》**【神秘河】**【超级坏蛋】**300**佩勒姆 123* 的拍摄，以及第二部和第三部*指环王*电影。(你不能在网飞获得*奖学金*。奇怪！)电视里有*行尸走肉*第九季、*无耻之徒*第九季、*神盾局特工*第六季、*第八季呼叫助产士*、*美国恐怖故事:天启*。
 

@@ -1,6 +1,6 @@
 # 为什么您应该将通用礼品卡换成亚马逊礼品卡
 
-> 原文:[https://life hacker . com/why-you-should-exchange-universal-gift-cards-for-Amazon-1836827179](https://lifehacker.com/why-you-should-exchange-universal-gift-cards-for-amazon-1836827179)
+> 原文：<https://lifehacker.com/why-you-should-exchange-universal-gift-cards-for-amazon-1836827179>
 
 前几天我收到了一张礼品卡——一张 100 美元的 Visa 卡。不到一个小时，我就已经用完了。我没有买新玩意，也没有买一堆*看守*战利品箱；我用它买了另一张礼品卡。
 

@@ -1,6 +1,6 @@
 # 我们回答了 2018 年谷歌搜索最多的“如何做”问题
 
-> 原文:[https://life hacker . com/we-answered-the-most-Google-to-questions-2018-1831025985](https://lifehacker.com/we-answered-the-most-googled-how-to-questions-of-2018-1831025985)
+> 原文：<https://lifehacker.com/we-answered-the-most-googled-how-to-questions-of-2018-1831025985>
 
 根据谷歌年度回顾 中的 [,“如何投票”正式成为 2018 年最热门的搜索词。Lifehacker 有了答案。事实上，今年谷歌十大搜索中有九个我们都有了答案。(而我们的姐妹站点回答了第十个。)](http://google.com/2018) 
 

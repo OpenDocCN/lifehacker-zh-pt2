@@ -1,6 +1,6 @@
 # 不，你不能“只是拜访”朋友
 
-> 原文:[https://life hacker . com/no-you-can-just-visit-a-friend-1842518655](https://lifehacker.com/no-you-cant-just-visit-a-friend-1842518655)
+> 原文：<https://lifehacker.com/no-you-cant-just-visit-a-friend-1842518655>
 
 本周不要去你朋友家。求你了。即使你和你的朋友都年轻健康，即使“只是一个朋友”，即使“如果我生病了也没关系，这是一个我愿意冒的风险”，即使“我们会小心，洗手，保证！”
 

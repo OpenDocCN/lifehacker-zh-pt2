@@ -1,6 +1,6 @@
 # 这些免费书籍可以帮助自闭症儿童了解疫情
 
-> 原文:[https://life hacker . com/these-free-books-can-help-kids-with-autism-understand-t-1844165222](https://lifehacker.com/these-free-books-can-help-kids-with-autism-understand-t-1844165222)
+> 原文：<https://lifehacker.com/these-free-books-can-help-kids-with-autism-understand-t-1844165222>
 
 因为冠状病毒疫情，任何孩子(或成人，老实说)都很难理解今年我们生活中发生的所有变化。但是患有自闭症的儿童通常需要一点额外的帮助来理解为什么生活现在看起来如此不同，特别是当我们接近另一个不确定的学年的开始时。这就是为什么一位言语/语言病理学家创建了一个免费图书集，供父母下载并与他们的孩子分享。
 

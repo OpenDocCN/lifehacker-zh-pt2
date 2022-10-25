@@ -1,6 +1,6 @@
 # 在一天中分散做更多的引体向上或俯卧撑
 
-> 原文:[https://life hacker . com/do-more-pull-ups-or-push-ups-by-spread-out-thro-1831586177](https://lifehacker.com/do-more-pull-ups-or-push-ups-by-spreading-them-out-thro-1831586177)
+> 原文：<https://lifehacker.com/do-more-pull-ups-or-push-ups-by-spreading-them-out-thro-1831586177>
 
 你有没有一个简单的运动，你很想做更多，但你总是在挣扎？全天进行迷你锻炼可以帮助你最终做更多的重复。每小时做五个俯卧撑，或者每次走过挂引体向上的门时做一个引体向上。
 

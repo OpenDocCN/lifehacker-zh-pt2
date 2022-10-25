@@ -1,6 +1,6 @@
 # 问那个刻薄的女服务员:我没钱享受办公室快乐时光了
 
-> 原文:[https://the take out . com/im-too-broke-for-office-happy-hour-1834846390](https://thetakeout.com/im-too-broke-for-office-happy-hour-1834846390)
+> 原文：<https://thetakeout.com/im-too-broke-for-office-happy-hour-1834846390>
 
 > 亲爱的 Salty，我是一名大学生，在旧金山的一家营销公司实习。总的来说，我喜欢这份工作——这里的人很好，我学到了很多东西，而且我可以做真正的工作。虽然这是一份带薪实习，但我挣的钱几乎不够支付我那份昂贵的房租。问题是在周五，当我们完成工作后，我的很多同事都去了欢乐时光。
 > 

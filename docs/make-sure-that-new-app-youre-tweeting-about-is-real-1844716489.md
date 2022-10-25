@@ -1,6 +1,6 @@
 # 确保你在推特上发布的新应用是真实的
 
-> 原文:[https://life hacker . com/确保-new-app-you-tweet-about-is-real-1844716489](https://lifehacker.com/make-sure-that-new-app-youre-tweeting-about-is-real-1844716489)
+> 原文：<https://lifehacker.com/make-sure-that-new-app-youre-tweeting-about-is-real-1844716489>
 
 我们的时间线过渡到了一集*黑镜*所以渐渐地，我们甚至没有注意到(嗯， [也许我们中的一些人注意到了](https://www.fastcompany.com/40530106/this-is-literally-the-black-mirror-robot-dog) )。但当公司开始直接抄袭那部黑暗讽刺、五分钟后的网飞系列剧集时，新的现实将变得越来越难以否认。典型的例子: [《永远的社交](https://theforeversocial.com) 》，一种新服务，承诺在你死后使用先进的人工智能来维持你在社交媒体上的存在。(好像推特还没被诅咒够似的。)
 

@@ -1,6 +1,6 @@
 # 关于流行病，电影《传染病》能教给我们什么，不能教给我们什么
 
-> 原文:[https://life hacker . com/what-the-movie-contagion-can-cant-teach-us-about-EP-1841433460](https://lifehacker.com/what-the-movie-contagion-can-and-cant-teach-us-about-ep-1841433460)
+> 原文：<https://lifehacker.com/what-the-movie-contagion-can-and-cant-teach-us-about-ep-1841433460>
 
 很多人都看过 2011 年的电影《传染病》。我知道这一点，因为当某个现已被删除的关于新型冠状病毒[R<sub>0</sub>](https://vitals.lifehacker.com/what-is-the-coronaviruss-r0-and-why-does-it-matter-1841264885)的 twitter 帖子在网上疯传时，人们不停地问我是否看过电影中凯特·温斯莱特(Kate Winslet)饰演的角色向一屋子持怀疑态度的政府官员解释这个术语的场景。
 

@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:恶，父母正在餐厅里给婴儿换尿布
 
-> 原文:[https://the take out . com/parents-changing-baby-diaphragm-in-the-饭厅-1830157955](https://thetakeout.com/parents-changing-baby-diapers-in-the-dining-room-1830157955)
+> 原文：<https://thetakeout.com/parents-changing-baby-diapers-in-the-dining-room-1830157955>
 
 > 亲爱的咸小姐，我拥有一家餐厅，并已超过 35 年。我对人们认为他们可以在任何他们觉得方便的地方改变完美小姐或完美先生的方式感到困惑。今天，在我们的一位顾客在壁炉前的一把扶手椅上换了一片脏尿布后，我觉得有必要给你写一封短信，这样我就能从不同的角度来看待这种糟糕的情况。父母似乎认为这没什么——我该如何防止这种情况？他们在想什么？
 > 

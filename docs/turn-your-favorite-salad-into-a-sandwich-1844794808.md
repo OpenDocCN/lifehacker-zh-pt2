@@ -1,6 +1,6 @@
 # turn your favorite salad into a sandwich 1844794808
 
-> 原文:[https://life hacker . com/turn-your-favorite-salad-into-a-sandwich-1844794808](https://lifehacker.com/turn-your-favorite-salad-into-a-sandwich-1844794808)
+> 原文：<https://lifehacker.com/turn-your-favorite-salad-into-a-sandwich-1844794808>
 
 至少 20 年来，无碳水化合物热已经采取了多种形式——阿特金斯饮食法、古饮食法、食肉减肥法，总共 30 种——都有自己独特的方式，但与 T2 有着共同的不信任和对面包的厌恶。为了跟上时代，三明治店通常以沙拉的形式提供他们的产品，馅料从小面包和小面包上撕下来，切碎并分布在一层叶子上。
 

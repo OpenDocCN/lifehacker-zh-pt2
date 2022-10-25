@@ -1,6 +1,6 @@
 # 你现在可以免费获得两个月的 Stadia Pro
 
-> 原文:[https://life hacker . com/you-can-get-two-months of-stadia-pro-for-free-now-1842803077](https://lifehacker.com/you-can-get-two-months-of-stadia-pro-for-free-right-now-1842803077)
+> 原文：<https://lifehacker.com/you-can-get-two-months-of-stadia-pro-for-free-right-now-1842803077>
 
 新冠肺炎疫情酒店让我们中的许多人有更多的时间呆在家里，许多公司为你在那里的时候提供各种选择。
 

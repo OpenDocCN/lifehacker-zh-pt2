@@ -1,6 +1,6 @@
 # 用“刷牙时间”家务图表保持孩子的浴室干净
 
-> 原文:[https://life hacker . com/keep-your-kids-tailor-clean-with a-when-a-when-you-brush-CHO-1836014165](https://lifehacker.com/keep-your-kids-bathroom-clean-with-a-when-you-brush-cho-1836014165)
+> 原文：<https://lifehacker.com/keep-your-kids-bathroom-clean-with-a-when-you-brush-cho-1836014165>
 
 在我家，儿童浴室也是客房浴室。一直是最脏的，因为孩子们。无论我如何努力让它看起来像样，它并不罕见，那里的水槽被涂上一层多层的牙膏，唾液和请不要让我想它。我们甚至不会提到厕所。糟糕。
 

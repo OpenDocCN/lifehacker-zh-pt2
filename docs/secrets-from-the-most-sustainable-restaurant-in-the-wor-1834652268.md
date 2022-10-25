@@ -1,6 +1,6 @@
 # 世界上最可持续餐厅的秘密
 
-> 原文:[https://life hacker . com/secrets-from-the-most-sustainable-restaurant-in-the-world-1834652268](https://lifehacker.com/secrets-from-the-most-sustainable-restaurant-in-the-wor-1834652268)
+> 原文：<https://lifehacker.com/secrets-from-the-most-sustainable-restaurant-in-the-wor-1834652268>
 
 “从农场到餐桌”似乎是一个被过度使用的营销短语，主要用于吸引潮人进入爱迪生灯泡照明的餐馆，在很大程度上确实如此。但是对于哥本哈根 [餐厅 Relae](http://www.restaurant-relae.dk/en/baeredygtighed/) 的创始人，厨师克里斯蒂安·f·帕格里西来说，这意味着非常认真地对待第一个词。
 

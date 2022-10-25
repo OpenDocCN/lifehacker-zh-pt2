@@ -1,6 +1,6 @@
 # 使用 Razer 的新应用程序获得出色的假环绕声
 
-> 原文:[https://life hacker . com/get-a-surround-sound-gaming-experience-from-your-head ph-1844071943](https://lifehacker.com/get-a-surround-sound-gaming-experience-from-your-headph-1844071943)
+> 原文：<https://lifehacker.com/get-a-surround-sound-gaming-experience-from-your-headph-1844071943>
 
 环绕声可以让任何视频游戏变得更好，但获得正确的设置需要昂贵的扬声器或高端游戏耳机——至少过去是这样。Razer 的一款新 Windows 10 应用程序可以为你在 PC 上使用的任何一对有线或无线游戏耳机添加 THX 空间环绕声——包括自 2013 年以来就没有更换过的蹩脚耳机。
 

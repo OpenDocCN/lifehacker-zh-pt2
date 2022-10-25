@@ -1,6 +1,6 @@
 # 如果可以支付现金，你应该为二手车融资吗？
 
-> 原文:[https://jalopnik . com/should-you-finance-a-used-car-if-you-can-pay-cash-1836723867](https://jalopnik.com/should-you-finance-a-used-car-if-you-can-pay-cash-1836723867)
+> 原文：<https://jalopnik.com/should-you-finance-a-used-car-if-you-can-pay-cash-1836723867>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。我决定挑几个问题，试着帮帮大家。本周，我们正在讨论何时能买到新款 [2020 款雪佛兰科尔维特](https://jalopnik.com/2020-chevrolet-c8-mid-engine-corvette-everything-we-kn-1836485708) ，节省目的地费用，以及是否值得购买一辆二手车。
 

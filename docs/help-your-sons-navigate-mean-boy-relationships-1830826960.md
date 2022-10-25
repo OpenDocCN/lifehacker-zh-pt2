@@ -1,6 +1,6 @@
 # 帮助你的儿子驾驭“刻薄男孩”关系
 
-> 原文:[https://life hacker . com/help-yours-sons-navigate-mean-boy-relationships-1830826960](https://lifehacker.com/help-your-sons-navigate-mean-boy-relationships-1830826960)
+> 原文：<https://lifehacker.com/help-your-sons-navigate-mean-boy-relationships-1830826960>
 
 当我们想到我们的孩子可能会面临与同龄人的冲突时，我们可能会倾向于认为我们儿子的冲突可能是身体上的，而我们女儿的冲突更多的是精神和情感上的。
 

@@ -1,6 +1,6 @@
 # 使用此设置在 Android 上启用 Google 的“已验证呼叫”
 
-> 原文:[https://life hacker . com/enable-Google-verified-calls-on-Android-with-this-sett-1845001119](https://lifehacker.com/enable-googles-verified-calls-on-android-with-this-sett-1845001119)
+> 原文：<https://lifehacker.com/enable-googles-verified-calls-on-android-with-this-sett-1845001119>
 
 谷歌正在慢慢推出其新的“验证呼叫”服务，这是一种超级来电显示，至少应该让 Android 用户知道破坏你手机的号码是否是合法的。作为额外的奖励，使用这项服务的商家甚至可以列出打电话的理由，这些理由会直接出现在你的手机屏幕上。
 

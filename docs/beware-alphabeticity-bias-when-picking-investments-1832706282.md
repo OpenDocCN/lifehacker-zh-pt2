@@ -1,6 +1,6 @@
 # 选择投资时要小心“字母顺序偏差”
 
-> 原文:[https://life hacker . com/feel-alphabetical-bias-when-picking-investments-1832706282](https://lifehacker.com/beware-alphabeticity-bias-when-picking-investments-1832706282)
+> 原文：<https://lifehacker.com/beware-alphabeticity-bias-when-picking-investments-1832706282>
 
 你已经知道 [你的许多财务决策](https://twocents.lifehacker.com/how-your-psychology-affects-your-finances-1821986465) 都不是理性做出的: [近期偏差](https://lifehacker.com/seven-mental-biases-that-can-impact-how-you-invest-1651324703)[沉没成本谬误](https://lifehacker.com/the-cognitive-biases-that-lead-to-bad-money-decisions-1777406419) 和 [心理会计](https://twocents.lifehacker.com/how-your-psychology-affects-your-finances-1821986465) 都在我们如何花钱、存钱和思考我们的钱方面发挥着重要作用。一份新的报告增加了一种新的偏见，当你选择投资时要注意。
 

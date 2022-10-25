@@ -1,6 +1,6 @@
 # 如何解决使您的 pin 码失效的 android 错误
 
-> 原文:[https://life hacker . com/how-to-work-around-the-disabled-your-p-1840418183](https://lifehacker.com/how-to-work-around-the-android-bug-that-disables-your-p-1840418183)
+> 原文：<https://lifehacker.com/how-to-work-around-the-android-bug-that-disables-your-p-1840418183>
 
 一个恼人的锁屏错误已经困扰了一些不幸的 Android 用户几个月了，通过一种奇怪的认证循环将他们锁定在设备之外。这个错误早在 9 月份就出现了，当时它最初是在 Pixel XL 设备上发现的。它仍未修复，更糟糕的是，它似乎突然出现在更多的 Android 用户面前。
 

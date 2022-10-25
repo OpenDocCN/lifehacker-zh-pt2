@@ -1,6 +1,6 @@
 # 支付信用卡最低还款额是如何让你陷入债务螺旋的
 
-> 原文:[https://life hacker . com/how-paying-your-credit-card-minimum-puts-you-a-debt-1833300697](https://lifehacker.com/how-paying-your-credit-card-minimum-puts-you-in-a-debt-1833300697)
+> 原文：<https://lifehacker.com/how-paying-your-credit-card-minimum-puts-you-in-a-debt-1833300697>
 
 如果你有一张信用卡，理论上，你应该知道错过还款或每月还款少于总余额会导致债务螺旋上升。与其他金融产品相比，信用卡的利率非常高，并且当你每月没有全部付清余额时，它 [会产生复利](https://lifehacker.com/the-fastest-way-to-save-1-million-1829372702) 。
 

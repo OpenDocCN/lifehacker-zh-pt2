@@ -1,6 +1,6 @@
 # 如何预防和管理老茧起皮
 
-> 原文:[https://life hacker . com/how-to-prevent-and-manage-callus-from-lifting-1836082994](https://lifehacker.com/how-to-prevent-and-manage-calluses-from-lifting-1836082994)
+> 原文：<https://lifehacker.com/how-to-prevent-and-manage-calluses-from-lifting-1836082994>
 
 我们可能都习惯了脚上长老茧，但如果你经常举重，或者如果你用吊环和引体向上杆等体操器械做了很多工作，那么细小的老茧就会在你的手和手指上形成。管理它们的方法与我们对一般老茧的建议有很多共同之处，但它们的体积小，位置微妙，需要额外的照顾。
 

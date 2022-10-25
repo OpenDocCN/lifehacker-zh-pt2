@@ -1,6 +1,6 @@
 # 问咸味女服务员:我怎么纠正一个发错音的服务员？
 
-> 原文:[https://the take out . com/how-can-I-correct-a-server-who-mispronounctions-a-dish-1830446565](https://thetakeout.com/how-can-i-correct-a-server-who-mispronounces-a-dish-1830446565)
+> 原文：<https://thetakeout.com/how-can-i-correct-a-server-who-mispronounces-a-dish-1830446565>
 
 > 亲爱的 Salty:上周我和我的家人第一次尝试了一家新的意大利餐厅。一位年轻的女士为我们服务，她什么都做得很好——对她的服务没有任何抱怨。但当她在背诵特色菜时，她在谈论意大利面食时念错了“guanciale”这个词。她说的好像是“格温-切尔-李”？这与正确的发音相差甚远，但我没有说什么，因为这似乎是居高临下。但是那天晚上晚些时候，我们一回到家，我就和我的孩子们争论我是否应该纠正她，以免她将来说错了而尴尬(我们对半分)。这是一个意大利的地方，所以我认为 guanciale 可能出现在未来的菜单上并不牵强。你怎么说？
 > 

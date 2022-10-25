@@ -1,6 +1,6 @@
 # 你要死了吗？美国东部时间下午 1 点问两位医生你的健康问题[更新:结束]
 
-> 原文:[https://life hacker . com/1834787276](https://lifehacker.com/are-you-dying-ask-two-doctors-your-health-questions-at-1834787276)
+> 原文：<https://lifehacker.com/are-you-dying-ask-two-doctors-your-health-questions-at-1834787276>
 
 又到时间了:我们最喜欢的医生回来了，和你讨论任何困扰你的健康问题，不管你认为它有多小或多奇怪。毕竟，你手臂上奇怪的疼痛可能是你走向死亡的信号，对吗？
 

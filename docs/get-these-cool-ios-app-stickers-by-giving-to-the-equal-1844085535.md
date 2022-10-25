@@ -1,6 +1,6 @@
 # 通过向平等正义倡议组织捐赠获得这些酷酷的 iOS 应用程序贴纸
 
-> 原文:[https://life hacker . com/get-these-cool-IOs-app-sticker-by-giving-to-the-equal-1844085535](https://lifehacker.com/get-these-cool-ios-app-stickers-by-giving-to-the-equal-1844085535)
+> 原文：<https://lifehacker.com/get-these-cool-ios-app-stickers-by-giving-to-the-equal-1844085535>
 
 由于新冠肺炎疫情，苹果的 WWDC 2020 大会将是一个远程、仅在线的活动。这个决定保证了参与者的安全，但它也有不利的一面——即 WWDC 的社交方面，开发者们聚在一起谈论商店，交换礼物，包括应用程序贴纸和别针。
 

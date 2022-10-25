@@ -1,6 +1,6 @@
 # Android 上最好的消息应用仍然比 iMessage 差
 
-> 原文:[https://life hacker . com/the-best-messaging-apps-on-Android-is-than-bad-than-1832234073](https://lifehacker.com/the-best-messaging-apps-on-android-are-still-worse-than-1832234073)
+> 原文：<https://lifehacker.com/the-best-messaging-apps-on-android-are-still-worse-than-1832234073>
 
 Android 上的消息传递一塌糊涂。
 

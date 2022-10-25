@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:我应该告诉我的女朋友她实际上没有夺走我的童贞吗？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-should-I-tell-my-friend-she-not-1835912572](https://kotaku.com/ask-dr-nerdlove-should-i-tell-my-girlfriend-she-didnt-1835912572)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-should-i-tell-my-girlfriend-she-didnt-1835912572>
 
 你好，放射性高潮的水獭们，欢迎来到 [向 NerdLove](http://kotaku.com/askdrnerdlove) 博士提问，这是唯一一个在第二次撞击中幸存下来的约会建议专栏。
 

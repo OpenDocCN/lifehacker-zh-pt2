@@ -1,6 +1,6 @@
 # 在冠状病毒关闭期间，哪里可以找到免费电子书
 
-> 原文:[https://life hacker . com/where-to-find-free-ebooks-due-the-coronavirus-shut do-1842456736](https://lifehacker.com/where-to-find-free-ebooks-during-the-coronavirus-shutdo-1842456736)
+> 原文：<https://lifehacker.com/where-to-find-free-ebooks-during-the-coronavirus-shutdo-1842456736>
 
 阅读是一种很好的方式来混合你的社交距离，此外，它帮助你放慢速度，完全融入新的想法和世界。B uying 实体书可能会被搁置一段时间(尽管你仍然可以订购，而且最好是从独立书商)那里订购)。幸运的是，电子书是安全的，而且是真正的替代品。
 

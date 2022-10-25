@@ -1,6 +1,6 @@
 # 使用 Mozilla 提供的列表诊断您设备的隐私问题
 
-> 原文:[https://life hacker . com/diagnose-your-devices-privacy-problems-with-this-list-f-1840030924](https://lifehacker.com/diagnose-your-devices-privacy-problems-with-this-list-f-1840030924)
+> 原文：<https://lifehacker.com/diagnose-your-devices-privacy-problems-with-this-list-f-1840030924>
 
 如果你需要一点帮助来弄清楚如何锁定你的智能家居设备(或那些你正在考虑购买的设备)，Mozilla 可以帮助你。我建议花些时间浏览一下它的“”不包括隐私列表，并为你拥有的任何设备添加书签。该网站不仅收集了你自己的电子产品的所有关键隐私信息，还让你知道哪些设备可能会让人觉得有点毛骨悚然，可以作为节日礼物购买。
 

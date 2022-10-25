@@ -1,6 +1,6 @@
 # 如何抬起飞机上的过道扶手
 
-> 原文:[https://life hacker . com/how-to-life-life-life-passport-on-a-plane-1835562994](https://lifehacker.com/how-to-lift-the-aisle-armrest-on-an-airplane-1835562994)
+> 原文：<https://lifehacker.com/how-to-lift-the-aisle-armrest-on-an-airplane-1835562994>
 
 飞机座位很小，有时进出座位会有点困难。如果你坐在爱管闲事的靠窗座位上，收起扶手可以让你的进出更加顺畅。如果你坐在过道里，你可能会认为你不得不爬过过道扶手；然而，那一个实际上也可以被解除。
 

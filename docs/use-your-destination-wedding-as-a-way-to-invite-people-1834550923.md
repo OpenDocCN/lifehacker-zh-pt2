@@ -1,6 +1,6 @@
 # 用你的目的地婚礼来邀请那些不会来的人
 
-> 原文:[https://life hacker . com/use-your-destination-wedding-as-a-way-to-invite-people-1834550923](https://lifehacker.com/use-your-destination-wedding-as-a-way-to-invite-people-1834550923)
+> 原文：<https://lifehacker.com/use-your-destination-wedding-as-a-way-to-invite-people-1834550923>
 
 如果你觉得有义务邀请一群人参加你的婚礼，同时又暗暗希望他们中的大多数人表达他们的歉意，那么目的地婚礼就是你要去的地方。
 

@@ -1,6 +1,6 @@
 # 如何应对孤独，根据一名宇航员的说法
 
-> 原文:[https://life hacker . com/how-to-应付隔离-根据一个宇航员-1842549279](https://lifehacker.com/how-to-cope-with-isolation-according-to-an-astronaut-1842549279)
+> 原文：<https://lifehacker.com/how-to-cope-with-isolation-according-to-an-astronaut-1842549279>
 
 感到压力和孤独？你当然是。现在想象一下，在离地球 250 英里的狭小空间里生活六个月到一年，这个空间不比你的普通公寓大。
 

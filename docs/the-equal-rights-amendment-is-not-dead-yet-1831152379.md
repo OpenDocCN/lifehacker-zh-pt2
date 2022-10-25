@@ -1,6 +1,6 @@
 # the equal rights amendment is not dead yet 1831152379
 
-> 原文:[https://splitter news . com/the-equal-rights-amend ment-is-not-dead-yet-1831152379](https://splinternews.com/the-equal-rights-amendment-is-not-dead-yet-1831152379)
+> 原文：<https://splinternews.com/the-equal-rights-amendment-is-not-dead-yet-1831152379>
 
 1972 年 3 月 22 日，在一次[84–8 的投票](https://www.politico.com/story/2016/03/equal-rights-amendment-clears-congress-march-22-1972-220981) 中，美国参议院通过了平等权利修正案。
 

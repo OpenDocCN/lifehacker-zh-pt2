@@ -1,6 +1,6 @@
 # 劳动节周末最实惠的度假去处
 
-> 原文:[https://life hacker . com/the-most-buffered-places to-vacation-on-labour-day-wee-1837619700](https://lifehacker.com/the-most-affordable-places-to-vacation-on-labor-day-wee-1837619700)
+> 原文：<https://lifehacker.com/the-most-affordable-places-to-vacation-on-labor-day-wee-1837619700>
 
 劳动节周末 抢打折机票的 [时间已过；然而，仍然有时间在周末的酒店房间上得到很大的折扣。](https://lifehacker.com/book-your-labor-day-flights-this-week-for-the-best-deal-1837387860) 
 

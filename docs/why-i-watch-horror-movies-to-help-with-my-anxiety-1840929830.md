@@ -1,6 +1,6 @@
 # 为什么我看恐怖电影来缓解焦虑
 
-> 原文:[https://life hacker . com/why-I-watch-horror-movies-to-help-with-my-anxiety-1840929830](https://lifehacker.com/why-i-watch-horror-movies-to-help-with-my-anxiety-1840929830)
+> 原文：<https://lifehacker.com/why-i-watch-horror-movies-to-help-with-my-anxiety-1840929830>
 
 你感到胸口发紧，呼吸变得不稳定，手开始出汗。对于大多数人来说，这可能描述了观看一部令人毛骨悚然的恐怖电影的身体体验。然而，对于一些焦虑症患者来说，这些症状只需要一个良好的跳跃恐惧就可以解决——这是我多年来通过恐怖电影自我治疗后才意识到的。
 

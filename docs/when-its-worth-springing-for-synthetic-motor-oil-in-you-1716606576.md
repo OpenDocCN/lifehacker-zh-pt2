@@ -1,6 +1,6 @@
 # 当你的汽车值得购买合成机油时
 
-> 原文:[https://life hacker . com/when-its-worth-spring-for-synthetic-motor-oil-in-you-1716606576](https://lifehacker.com/when-its-worth-springing-for-synthetic-motor-oil-in-you-1716606576)
+> 原文：<https://lifehacker.com/when-its-worth-springing-for-synthetic-motor-oil-in-you-1716606576>
 
 如果你关注汽车保养，比如机油，你可能知道它有合成和标准两种。合成油成本更高，但与传统油相比有很多优势。问题是，不是每辆车都需要它，所以用它可能是浪费钱。这里有一些指导方针可以帮助你确定它是否最适合你的车。
 

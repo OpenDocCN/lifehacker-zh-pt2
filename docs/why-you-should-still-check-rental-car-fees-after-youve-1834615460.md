@@ -1,6 +1,6 @@
 # 预订后查看租车费用
 
-> 原文:[https://life hacker . com/why-you-should-still-check-rental-car-fees-after-youve-1834615460](https://lifehacker.com/why-you-should-still-check-rental-car-fees-after-youve-1834615460)
+> 原文：<https://lifehacker.com/why-you-should-still-check-rental-car-fees-after-youve-1834615460>
 
 该不该买保险？我应该买一辆跑车吗？我真的得到了最好的价格吗？如果你曾经问过自己这些问题，很可能是因为你已经处理了租车网站带来的生存危机。
 

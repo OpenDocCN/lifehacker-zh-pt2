@@ -1,6 +1,6 @@
 # 使用 Alexa 作为这个技能的翻译
 
-> 原文:[https://life hacker . com/use-Alexa-as-a-a-translator-with the-skill-1832311168](https://lifehacker.com/use-alexa-as-a-translator-with-this-skill-1832311168)
+> 原文：<https://lifehacker.com/use-alexa-as-a-translator-with-this-skill-1832311168>
 
 在过去的几年里，我开始在世界各地旅行，这意味着学习新的语言。
 

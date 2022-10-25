@@ -1,6 +1,6 @@
 # 给孩子们最好的赛后小吃
 
-> 原文:[https://life hacker . com/the-best-pose-game-sports-for-kids-1841575758](https://lifehacker.com/the-best-post-game-snacks-for-kids-1841575758)
+> 原文：<https://lifehacker.com/the-best-post-game-snacks-for-kids-1841575758>
 
 去年秋天末，我儿子参加了为期两天的赛季末足球锦标赛。那是漫长、寒冷、忙碌的日子，他的一个队友的父母答应在他们周末的最后一场比赛后给他们一杯特色小吃。事实证明，那份点心是一大袋要在团队中分享的彩虹糖。“嗯，”我心想。“这似乎不是我见过的最好的赛后零食选择。”(孩子们当然很兴奋。)
 

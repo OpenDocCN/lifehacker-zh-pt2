@@ -1,6 +1,6 @@
 # 如何避免在飞行中被撞
 
-> 原文:[https://life hacker . com/how-to-avoid-getting-from a-flight-1834502588](https://lifehacker.com/how-to-avoid-getting-bumped-from-a-flight-1834502588)
+> 原文：<https://lifehacker.com/how-to-avoid-getting-bumped-from-a-flight-1834502588>
 
 还有什么比蜿蜒的安检线、拥挤的机场、三个小时的延误更糟糕的呢？在经历了这一切之后，你发现你仍然不能登机，因为你被取消了行程。
 

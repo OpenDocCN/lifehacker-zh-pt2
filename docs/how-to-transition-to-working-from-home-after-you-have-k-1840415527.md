@@ -1,6 +1,6 @@
 # 有了孩子后，如何过渡到在家工作
 
-> 原文:[https://life hacker . com/how-to-transition-to-work-home-after-you-have-k-1840415527](https://lifehacker.com/how-to-transition-to-working-from-home-after-you-have-k-1840415527)
+> 原文：<https://lifehacker.com/how-to-transition-to-working-from-home-after-you-have-k-1840415527>
 
 当你成为父母后，有很多原因让你想在家工作。通勤占据了你一天中太多的时间；你想搬到离大家庭更近的地方，但你想带着你的工作；或者你只是渴望在家工作可以提供额外的灵活性。
 

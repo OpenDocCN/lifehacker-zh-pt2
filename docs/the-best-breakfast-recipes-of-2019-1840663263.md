@@ -1,6 +1,6 @@
 # 2019 年最佳早餐食谱
 
-> 原文:[https://life hacker . com/the-best-breakfast-recipes-of-2019-1840663263](https://lifehacker.com/the-best-breakfast-recipes-of-2019-1840663263)
+> 原文：<https://lifehacker.com/the-best-breakfast-recipes-of-2019-1840663263>
 
 这是一天中最重要的一餐，但很容易陷入早餐的窠臼。幸运的是，2019 年是我们在早餐三明治中添加泡菜、在炒菜中添加玉米淀粉、在早餐碳水化合物中添加鱼子酱的一年。这些是我们今年做的最好的早餐，你应该都试试。
 

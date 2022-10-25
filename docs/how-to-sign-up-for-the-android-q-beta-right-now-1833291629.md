@@ -1,6 +1,6 @@
 # 如何立即注册 Android Q 测试版
 
-> 原文:[https://life hacker . com/how-to-sign-up-for-the-Android-q-beta-right-now-1833291629](https://lifehacker.com/how-to-sign-up-for-the-android-q-beta-right-now-1833291629)
+> 原文：<https://lifehacker.com/how-to-sign-up-for-the-android-q-beta-right-now-1833291629>
 
 [Lifehacker's Complete Guide to Android](https://androidos.kinja.com)) : title[![](../Images/e2dcc498f7314a475ad7b9879a9d5584.png)](https://androidos.kinja.com)[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)Don't get overwhelmed by Android's many (many!) settings and apps. Master your Android phone or tablet with our ample collection of guides, tips, and tricks.
 

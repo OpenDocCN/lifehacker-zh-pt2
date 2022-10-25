@@ -1,6 +1,6 @@
 # 6 月 10 日前购买自己定制的邮票
 
-> 原文:[https://life hacker . com/buy-your-own-customized-stamps-before-June-10-1843950575](https://lifehacker.com/buy-your-own-customized-stamps-before-june-10-1843950575)
+> 原文：<https://lifehacker.com/buy-your-own-customized-stamps-before-june-10-1843950575>
 
 美国邮政署​(USPS)陷入了困境。现在，公司和其他所有人都在依赖电子邮件而不是纸质邮件，他们的邮件量 [已经下降了大约三分之一](https://lifehacker.com/how-you-can-support-the-usps-1842858486) 。最重要的是， [总统已经威胁要否决](https://www.reuters.com/article/us-health-coronavirus-trump-postalservic/trump-threatens-to-block-aid-for-us-postal-service-if-it-does-not-raise-prices-for-amazon-idUSKCN226367) 任何包含对美国邮政的救助资金的刺激方案。
 

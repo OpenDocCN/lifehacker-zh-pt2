@@ -1,6 +1,6 @@
 # 如何制作贯穿甜点的鲜奶油
 
-> 原文:[https://life hacker . com/how-to-make-whited-last-through-dessert-1839773097](https://lifehacker.com/how-to-make-whipped-cream-that-lasts-through-dessert-1839773097)
+> 原文：<https://lifehacker.com/how-to-make-whipped-cream-that-lasts-through-dessert-1839773097>
 
 如果说新鲜鲜奶油有一个缺点的话——这是一种完美的 [和令人惊讶的多功能](https://lifehacker.com/the-case-for-savory-whipped-cream-1837069612) 食物——那就是你必须在上菜前搅拌它。除了感恩节之外的任何一天，这都没什么大不了的，但是当人们在四处打听馅饼的时候，试图追踪搅拌器会给已经混乱的局面增加额外的混乱。
 

@@ -1,6 +1,6 @@
 # 玉米煎饼 Bisquick Bake 甚至战胜砂锅怀疑论者
 
-> 原文:[https://the take out . com/recipe-卷饼-bis quick-bake-ground-牛肉-taco-调料-1833197798](https://thetakeout.com/recipe-burrito-bisquick-bake-ground-beef-taco-seasoning-1833197798)
+> 原文：<https://thetakeout.com/recipe-burrito-bisquick-bake-ground-beef-taco-seasoning-1833197798>
 
 *在* [***一口锅的奇迹***](https://thetakeout.com/tag/one-pan-wonders) ***，**我们寻找用一口锅就能做好的简单美味的工作日晚餐。*
 

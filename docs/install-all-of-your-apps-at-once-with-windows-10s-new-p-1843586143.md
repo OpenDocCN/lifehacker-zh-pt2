@@ -1,6 +1,6 @@
 # 使用 Windows 10 的新软件包管理器一次性安装所有应用
 
-> 原文:[https://life hacker . com/install-all-of-your-apps-once-with-windows-10s-new-p-1843586143](https://lifehacker.com/install-all-of-your-apps-at-once-with-windows-10s-new-p-1843586143)
+> 原文：<https://lifehacker.com/install-all-of-your-apps-at-once-with-windows-10s-new-p-1843586143>
 
 没有什么比*更性感的了，我使用包管理器来安装应用程序，而不是双击无聊的可执行文件*。它只是脱口而出。但是*使用命令行工具——技术上来说是 PowerShell——安装和更新你的应用程序是一件有趣的事情。一旦你掌握了它的窍门，这种体验甚至比使用普通的 Windows 应用商店更好(我听说是)。*
 

@@ -1,6 +1,6 @@
 # 如何应对你的面具焦虑
 
-> 原文:[https://life hacker . com/how-to-deal-your-mask-anxiety-1844928945](https://lifehacker.com/how-to-deal-with-your-mask-anxiety-1844928945)
+> 原文：<https://lifehacker.com/how-to-deal-with-your-mask-anxiety-1844928945>
 
 当我第一次看到克里夫兰诊所 关于口罩焦虑症的 [这个帖子时，我以为这和*其他人*拒绝戴口罩引起的焦虑有关。虽然这肯定是我们许多人在过去几个月里一直在挣扎的事情，但这篇文章指的是另一种与面具有关的焦虑——对戴面具的焦虑。以下是你需要知道的，以及一些帮助你处理这种特殊压力源的建议。](https://health.clevelandclinic.org/how-to-overcome-mask-anxiety) 
 

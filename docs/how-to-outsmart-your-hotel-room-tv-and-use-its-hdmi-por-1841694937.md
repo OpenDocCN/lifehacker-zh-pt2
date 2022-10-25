@@ -1,6 +1,6 @@
 # 如何智胜酒店房间的电视，并使用其 HDMI 端口做任何你想做的事情
 
-> 原文:[https://life hacker . com/how-to-smart-your-hotel-room-TV-and-use-its-HDMI-por-1841694937](https://lifehacker.com/how-to-outsmart-your-hotel-room-tv-and-use-its-hdmi-por-1841694937)
+> 原文：<https://lifehacker.com/how-to-outsmart-your-hotel-room-tv-and-use-its-hdmi-por-1841694937>
 
 酒店对于允许客人如何处理他们的电视可能会很吝啬。例如，如果你试图将自己的设备插入房间的电视来观看自己的内容，很可能不会发生任何事情。酒店电视通常插在外部盒子上，这些盒子可以跟踪酒店房间的电视活动，并控制客人可以使用的频道、应用程序和电视功能。这些盒子是阻止您使用 HDMI 端口的原因，但它们很容易被绕过。
 

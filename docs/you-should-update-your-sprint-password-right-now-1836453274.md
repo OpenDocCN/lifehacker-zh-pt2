@@ -1,6 +1,6 @@
 # 你应该马上更新你的 Sprint 密码
 
-> 原文:[https://life hacker . com/you-should-update-your-sprint-password-right-now-1836453274](https://lifehacker.com/you-should-update-your-sprint-password-right-now-1836453274)
+> 原文：<https://lifehacker.com/you-should-update-your-sprint-password-right-now-1836453274>
 
 Sprint 客户，立即更改您的账户密码——尤其是如果您拥有一部三星设备的话。
 

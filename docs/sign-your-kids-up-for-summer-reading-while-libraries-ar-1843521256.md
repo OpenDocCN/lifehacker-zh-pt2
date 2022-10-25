@@ -1,6 +1,6 @@
 # 当图书馆关闭时，给你的孩子报名参加暑期阅读
 
-> 原文:[https://life hacker . com/sign-your-kids-up-for-summer-reading-while-libraries-ar-1843521256](https://lifehacker.com/sign-your-kids-up-for-summer-reading-while-libraries-ar-1843521256)
+> 原文：<https://lifehacker.com/sign-your-kids-up-for-summer-reading-while-libraries-ar-1843521256>
 
 在我成长的过程中，参加当地图书馆的暑期阅读项目一直是一件大事。我会骑自行车去图书馆(这是我们可以做的事！提交我的作品列表，作为回报，我会收到一张奖券，可能会为我赢得一件免费 t 恤。或者飞盘！或者，如果我真的幸运的话，一张免费冰淇淋蛋卷或比萨饼的优惠券。
 

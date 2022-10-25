@@ -1,6 +1,6 @@
 # 当温彻斯特神秘屋因新冠肺炎而关闭时，你可以免费参观它
 
-> 原文:[https://life hacker . com/you-can-virtual-tour-the-winchester-mystery-house-for-1842446238](https://lifehacker.com/you-can-virtually-tour-the-winchester-mystery-house-for-1842446238)
+> 原文：<https://lifehacker.com/you-can-virtually-tour-the-winchester-mystery-house-for-1842446238>
 
 像全国其他许多地方一样，温彻斯特神秘屋的 [因为新冠肺炎疫情而关闭。除了实物参观，这栋房子还在](https://winchestermysteryhouse.com/) [为任何感兴趣的人提供 40 分钟的视频参观。](https://winchestermysteryhouse.com/video-tour/) 
 

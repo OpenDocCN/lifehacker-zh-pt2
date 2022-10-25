@@ -1,6 +1,6 @@
 # how scammers can use your old credit card numbers 1840513053
 
-> 原文:[https://life hacker . com/how-scammers-can-use-your-old-credit-numbers-1840513053](https://lifehacker.com/how-scammers-can-use-your-old-credit-card-numbers-1840513053)
+> 原文：<https://lifehacker.com/how-scammers-can-use-your-old-credit-card-numbers-1840513053>
 
 去年秋天，当亚马逊包裹开始出现在克里斯的康涅狄格州门口时，他和妻子都以为对方是在给对方买圣诞礼物。但是包裹里的东西看起来一点也不像他们中任何一个想要收到的礼物。“我打开了几个寄给我的盒子，发现了一些我简直无法辨认的东西，”他说。“我甚至还不知道它们是什么。”
 

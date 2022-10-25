@@ -1,6 +1,6 @@
 # 如何让网络不那么压抑
 
-> 原文:[https://life hacker . com/how-to-make-the-internet-less-depressing-1839166454](https://lifehacker.com/how-to-make-the-internet-less-depressing-1839166454)
+> 原文：<https://lifehacker.com/how-to-make-the-internet-less-depressing-1839166454>
 
 喜欢按钮毁了互联网。社交媒体和评论区训练我们将负面情绪转化为文字，将正面情绪转化为喜欢。所以消极性在评论和回复中被详细地铺陈出来，而积极性被压缩成一个数字。从头到尾滚动一遍，或者让它发生在你发布的东西上，是令人疲惫的。解决办法很简单。
 

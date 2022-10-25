@@ -1,6 +1,6 @@
 # 2019 年最佳鸡尾酒会
 
-> 原文:[https://life hacker . com/the-best-cocktail-hacks-of-2019-1840612776](https://lifehacker.com/the-best-cocktail-hacks-of-2019-1840612776)
+> 原文：<https://lifehacker.com/the-best-cocktail-hacks-of-2019-1840612776>
 
 我不知道我是否能代表所有人，但 2019 年是要求——不，是要求——我喝更多鸡尾酒的一年。这对我的肝脏来说是个坏消息，但对我的读者来说是个好消息，因为所有的饮酒导致了许多与鸡尾酒相关的思考和测试，以及一些真正伟大的鸡尾酒黑客。
 

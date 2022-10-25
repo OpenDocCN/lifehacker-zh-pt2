@@ -1,6 +1,6 @@
 # 如何笼络别人的猫
 
-> 原文:[https://life hacker . com/how-to-win-over-someone-elses-cat-1830434400](https://lifehacker.com/how-to-win-over-someone-elses-cat-1830434400)
+> 原文：<https://lifehacker.com/how-to-win-over-someone-elses-cat-1830434400>
 
 猫不是狗。如果你想和一只新的猫交朋友，你不要把它当成一只狗。你耐心地找出对这只猫有效的方法，但你并不指望每次都有效。但是当你最终赢得一只猫的芳心时，和它成为朋友的缓慢过程会让你受益匪浅。
 

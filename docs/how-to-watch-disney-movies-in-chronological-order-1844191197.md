@@ -1,6 +1,6 @@
 # 如何按时间顺序看迪士尼+电影
 
-> 原文:[https://life hacker . com/how-to-watch-Disney-movies-in-time-order-1844191197](https://lifehacker.com/how-to-watch-disney-movies-in-chronological-order-1844191197)
+> 原文：<https://lifehacker.com/how-to-watch-disney-movies-in-chronological-order-1844191197>
 
 自从该公司的流媒体服务于 2019 年 11 月推出以来，它迅速成为*家庭的最爱(*包括一个人的家庭)。虽然在最初几周出现了一些小故障，但这些问题似乎已经得到了解决，用户从此可以专注于推荐列表等功能。但是假设你想按时间顺序看完所有的迪士尼电影？最近， [演艺圈的好人们向我们展示了如何做。](https://www.cheatsheet.com/entertainment/how-to-watch-disney-movies-in-chronological-order-on-disney.html/) 
 

@@ -1,6 +1,6 @@
 # 检查你的信用报告，即使你的信用被冻结
 
-> 原文:[https://life hacker . com/check-your-credit-report-even-if-your-credit-freeze-1833153456](https://lifehacker.com/check-your-credit-report-even-if-your-credit-is-frozen-1833153456)
+> 原文：<https://lifehacker.com/check-your-credit-report-even-if-your-credit-is-frozen-1833153456>
 
 这里有一个提醒:即使你已经先发制人地冻结了你的信用报告，你也应该每隔几个月检查一次可疑活动。
 

@@ -1,6 +1,6 @@
 # 如何在自己家里观看 3D 恐龙
 
-> 原文:[https://life hacker . com/how-to-view-3d-恐龙在自己家里-1844245800](https://lifehacker.com/how-to-view-3d-dinosaurs-in-your-own-home-1844245800)
+> 原文：<https://lifehacker.com/how-to-view-3d-dinosaurs-in-your-own-home-1844245800>
 
 还记得我们告诉过你，你可以在自己家里使用谷歌和智能手机观看 3D 动物吗？好吧，现在你可以对你最喜欢的*侏罗纪世界*恐龙做同样的事情，比如上面那只今天造访我家阳光门廊的迅猛龙。
 

@@ -1,6 +1,6 @@
 # 买熟食没问题
 
-> 原文:[https://life hacker . com/its-okay-to-buy-pre-foods-1834422853](https://lifehacker.com/its-okay-to-buy-prepared-foods-1834422853)
+> 原文：<https://lifehacker.com/its-okay-to-buy-prepared-foods-1834422853>
 
 我完全有能力做扁豆，但我从来不做扁豆。相反，我买了乔氏蒸扁豆，它比干扁豆要贵，并为此感到奇怪的内疚。当然，这种内疚是愚蠢的。尽管预煮的扁豆是干扁豆的两倍，但它们仍然只有整整三美元。但是问题不在于价格，问题在于——不像干扁豆——我最终会吃这些扁豆。
 

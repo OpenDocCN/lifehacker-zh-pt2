@@ -1,6 +1,6 @@
 # 像为客人做饭一样为自己做饭
 
-> 原文:[https://life hacker . com/cook-for-you-like-you-would-for-a-guest-1841577625](https://lifehacker.com/cook-for-yourself-like-you-would-for-a-guest-1841577625)
+> 原文：<https://lifehacker.com/cook-for-yourself-like-you-would-for-a-guest-1841577625>
 
 一个人生活的奢侈之一是，我可以自由地吃一堆碎奶酪和泡菜作为晚餐，而我的耳朵不会被烹饪懦夫的观点所拖累。然而，当你只养活自己的时候，你很容易变得懒惰。为了让自己对为一个人做饭保持兴趣，把自己想象成“那个人”，也就是说，你深爱的人，或者试图给人留下深刻印象的人(出于性感的原因)。
 

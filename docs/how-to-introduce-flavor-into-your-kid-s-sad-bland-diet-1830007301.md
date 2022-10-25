@@ -1,6 +1,6 @@
 # 如何给你的孩子悲伤、平淡的饮食添加味道
 
-> 原文:[https://life hacker . com/how-to-introduce-flavor-into-your-kid-s-sad-bland-diet-1830007301](https://lifehacker.com/how-to-introduce-flavor-into-your-kid-s-sad-bland-diet-1830007301)
+> 原文：<https://lifehacker.com/how-to-introduce-flavor-into-your-kid-s-sad-bland-diet-1830007301>
 
 Watch
 

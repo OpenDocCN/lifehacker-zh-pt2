@@ -1,6 +1,6 @@
 # 当你怀孕时，要你真正需要的礼物
 
-> 原文:[https://life hacker . com/ask-for the gifts-you-really-need-when-you-seeking-1840833437](https://lifehacker.com/ask-for-the-gifts-you-really-need-when-youre-expecting-1840833437)
+> 原文：<https://lifehacker.com/ask-for-the-gifts-you-really-need-when-youre-expecting-1840833437>
 
 一个婴儿真的只需要这么多连体衣。有几个不同的接收毯挺好的；但是 12 条毯子太多了。婴儿在穿够或用够之前，就已经不再需要买给他们的东西了，甚至让它看起来像二手货。但你知道什么永远不会浪费吗？时间。方便。回忆。
 

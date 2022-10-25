@@ -1,6 +1,6 @@
 # 翻录电影通行证
 
-> 原文:[https://lifehacker.com/rip-moviepass-1838106387](https://lifehacker.com/rip-moviepass-1838106387)
+> 原文：<https://lifehacker.com/rip-moviepass-1838106387>
 
 截至 2019 年 9 月 14 日星期六， [MoviePass 已在](https://www.cnbc.com/2019/09/13/moviepass-will-shut-down-for-good-on-sept-14.html) 完成 MoviePass。在与连锁影院、竞争对手、客户和自身进行了长期斗争后，这个“不能看完”的电影放映订阅服务在 8 岁时关闭了。
 

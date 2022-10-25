@@ -1,6 +1,6 @@
 # 我是如何征服自制的吉巴里托的
 
-> 原文:[https://the take out . com/recipe-jiba rito-Chicago-Puerto-Rican-sandwich-1830588605](https://thetakeout.com/recipe-jibarito-chicago-puerto-rican-sandwich-1830588605)
+> 原文：<https://thetakeout.com/recipe-jibarito-chicago-puerto-rican-sandwich-1830588605>
 
 *欢迎来到* [***美国三明治周***](https://thetakeout.com/tag/american-sandwiches-week#_ga=2.109630086.243596376.1543267852-1235910833.1537835469) *，一场通过美国人的镜头来庆祝强大的三明治。*
 

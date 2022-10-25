@@ -1,6 +1,6 @@
 # 用这个磁铁追踪你的 AirPods
 
-> 原文:[https://life hacker . com/keep-track-of-your-ai rpods-with this-magnet-hack-1835489471](https://lifehacker.com/keep-track-of-your-airpods-with-this-magnet-hack-1835489471)
+> 原文：<https://lifehacker.com/keep-track-of-your-airpods-with-this-magnet-hack-1835489471>
 
 你有没有把一个气垫放下很短的时间，却突然忘记把它放在哪里了？我善良而出色的编辑爱丽丝最近就遇到了这种情况，我也是。(结果，她的气垫被扔进了垃圾桶。)
 

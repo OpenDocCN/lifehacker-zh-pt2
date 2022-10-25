@@ -1,6 +1,6 @@
 # delete never the digital hoarders who collect tumblrs 1832900423
 
-> 原文:[https://gizmodo . com/delete-never-the-digital-deporters-who-collect-tumblrs-1832900423](https://gizmodo.com/delete-never-the-digital-hoarders-who-collect-tumblrs-1832900423)
+> 原文：<https://gizmodo.com/delete-never-the-digital-hoarders-who-collect-tumblrs-1832900423>
 
 当涉及到他们的东西时，人们通常很难释怀。当他们痴迷的对象是堆满旧衣服或报纸的房间时，这可能是不健康的——甚至是危险的。但是能装下 10 个 5 英寸硬盘的东西呢？
 

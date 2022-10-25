@@ -1,6 +1,6 @@
 # 如何将 Google Authenticator 转移到另一个 Android 上
 
-> 原文:[https://life hacker . com/how-to-transfer-Google-authenticator-to-another-Android-1843313800](https://lifehacker.com/how-to-transfer-google-authenticator-to-another-android-1843313800)
+> 原文：<https://lifehacker.com/how-to-transfer-google-authenticator-to-another-android-1843313800>
 
 谷歌认证器正在进行自 2017 年 9 月以来的第一次重大更新，一旦更新后的应用程序在你的安卓系统上推出，你将享受到不仅仅是一些表面上的升级(最终，我们希望，你的 iPhone/iPad )。
 

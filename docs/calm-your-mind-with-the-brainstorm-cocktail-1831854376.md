@@ -1,6 +1,6 @@
 # 用头脑风暴鸡尾酒来平静你的头脑
 
-> 原文:[https://life hacker . com/calm-your mind-with-the-brainstorm-cocktail-1831854376](https://lifehacker.com/calm-your-mind-with-the-brainstorm-cocktail-1831854376)
+> 原文：<https://lifehacker.com/calm-your-mind-with-the-brainstorm-cocktail-1831854376>
 
 各位周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周我们将制作一部经典作品——我说的是 20 世纪 30 年代的——鸡尾酒:头脑风暴。
 

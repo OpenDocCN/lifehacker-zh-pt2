@@ -1,6 +1,6 @@
 # 用什么代替“你不明白”
 
-> 原文:[https://life hacker . com/what-to-say-not-you-dont-understand-1836242644](https://lifehacker.com/what-to-say-instead-of-you-dont-understand-1836242644)
+> 原文：<https://lifehacker.com/what-to-say-instead-of-you-dont-understand-1836242644>
 
 你已经解释了十几次了——用非常清楚的语言——但是他们还是没有听清楚。你的搭档，你最好的朋友，你 10 岁的孩子，不管是谁。你知道你是对的；他们只需要听得更好一点，不是吗？当他们绕了一圈又一圈又一圈之后，仍然没有抓住似乎很明显的一点，很容易打断他们说:“你不明白我在说什么。”或者更糟，“你没听我说。”
 

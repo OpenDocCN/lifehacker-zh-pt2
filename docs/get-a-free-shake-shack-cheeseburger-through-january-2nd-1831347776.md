@@ -1,6 +1,6 @@
 # 1 月 2 日之前免费获得一份 Shake Shack 芝士汉堡
 
-> 原文:[https://life hacker . com/get-a-free-shake-shack-芝士汉堡-1 月 2 日-1831347776](https://lifehacker.com/get-a-free-shake-shack-cheeseburger-through-january-2nd-1831347776)
+> 原文：<https://lifehacker.com/get-a-free-shake-shack-cheeseburger-through-january-2nd-1831347776>
 
 只有一样东西比美味的芝士汉堡更好:免费的美味芝士汉堡。
 

@@ -1,6 +1,6 @@
 # 为什么我的 Android 手机没有收到任何更新？
 
-> 原文:[https://life hacker . com/why-not-my-Android-phone-receiving-any-updates-1839864463](https://lifehacker.com/why-isnt-my-android-phone-receiving-any-updates-1839864463)
+> 原文：<https://lifehacker.com/why-isnt-my-android-phone-receiving-any-updates-1839864463>
 
 我总是建议人们用他们能得到的任何东西的最新版本来更新他们最喜欢的设备:操作系统、固件、安全更新等等。这是确保您使用最新功能并最大限度减少漏洞的最佳方式。那么当你的设备根本不让你更新的时候会发生什么呢？
 

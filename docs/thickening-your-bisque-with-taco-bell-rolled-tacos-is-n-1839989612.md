@@ -1,6 +1,6 @@
 # thickening your bisque with taco bell rolled tacos is n 1839989612
 
-> 原文:[https://life hacker . com/thicking-your-bisque-with-taco-bell-rolled-tacos-is-n-1839989612](https://lifehacker.com/thickening-your-bisque-with-taco-bell-rolled-tacos-is-n-1839989612)
+> 原文：<https://lifehacker.com/thickening-your-bisque-with-taco-bell-rolled-tacos-is-n-1839989612>
 
 当我开始打这个的时候，我被一个老评论困扰着——一个我在 xoJane 时代的评论。我不记得那条评论是关于哪篇文章的，但我记得那条信息:“耶稣基督克莱尔，有点该死的自尊吧。”这是一个很好的评论，这个评论和当时一样适用于今天，因为我吃过塔可钟卷鸡肉塔可钟浓汤 ，我发现它很美味。
 

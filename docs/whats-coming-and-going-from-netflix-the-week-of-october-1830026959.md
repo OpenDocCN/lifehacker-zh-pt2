@@ -1,6 +1,6 @@
 # 2018 年 10 月 29 日这一周，网飞有哪些来往
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of the-October-1830026959](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-october-1830026959)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-october-1830026959>
 
 不要让周三的万圣节阻挡了你的恐怖电影之旅——网飞将于 11 月 1 日周四放弃布拉姆·斯托克的《德拉库拉》、《恐怖角》、恐怖电影《T2 2》、《T7 3》和真正恐怖的《T4 杜斯·比加罗:欧洲舞男》T5。
 

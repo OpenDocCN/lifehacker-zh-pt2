@@ -1,6 +1,6 @@
 # 如何用化学物质阻止你对糖的渴望
 
-> 原文:[https://life hacker . com/how-to-block your ' s sugar-cravings-with chemistry-1829699059](https://lifehacker.com/how-to-block-your-sugar-cravings-with-chemistry-1829699059)
+> 原文：<https://lifehacker.com/how-to-block-your-sugar-cravings-with-chemistry-1829699059>
 
 显然糖对我们没有好处。但是太好吃了！正如任何曾经坐下来吃一个 Twizzler 并意外吃完袋子的人(即每个人)可以告诉你的，一旦你开始，就很难停下来。要是有什么东西能打断这致命又美味的循环就好了...
 

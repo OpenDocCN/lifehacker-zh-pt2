@@ -1,6 +1,6 @@
 # 这里是今天获得“冰淇淋三明治日”优惠的地方
 
-> 原文:[https://life hacker . com/heres-where-to-get-your ' s ice-cream-sandwich-day-deals-to-1836909177](https://lifehacker.com/heres-where-to-get-your-ice-cream-sandwich-day-deals-to-1836909177)
+> 原文：<https://lifehacker.com/heres-where-to-get-your-ice-cream-sandwich-day-deals-to-1836909177>
 
 今天是全国冰淇淋三明治日，是的，这很傻，但我们不会为得到免费或便宜的款待找任何借口。无论你喜欢盒装的冰淇淋三明治(两片软巧克力薄饼夹着香草冰淇淋)，还是自制的饼干和美味的冰淇淋，今天总有适合你的东西。
 

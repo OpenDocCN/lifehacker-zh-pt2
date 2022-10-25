@@ -1,6 +1,6 @@
 # homemade breakfast sausage is completely worth the effo 1844166843
 
-> 原文:[https://life hacker . com/自制早餐香肠是完全值得的-effo-1844166843](https://lifehacker.com/homemade-breakfast-sausage-is-completely-worth-the-effo-1844166843)
+> 原文：<https://lifehacker.com/homemade-breakfast-sausage-is-completely-worth-the-effo-1844166843>
 
 我买凯膳怡搅拌机已经有 13 年了——足够长的时间让新鲜感慢慢消失。这些年来，我们的关系变得不新鲜了。累了。甚至无爱。我认为我的搅拌器是理所当然的...但是所有这些隔离重新点燃了浪漫。我还是不怎么烘焙(而且我*永远不会*！).相反，我一直在用我的凯膳怡磨出一批批定制的早餐香肠，这让我的早晨更加愉快。
 

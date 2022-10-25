@@ -1,6 +1,6 @@
 # 飓风过后该做什么
 
-> 原文:[https://life hacker . com/what-to-do-after-a hurricane-1837928087](https://lifehacker.com/what-to-do-after-a-hurricane-1837928087)
+> 原文：<https://lifehacker.com/what-to-do-after-a-hurricane-1837928087>
 
 截至周五上午，飓风道林已经在北卡罗来纳的 [哈特拉斯角](https://www.cbsnews.com/live-news/hurricane-dorian-track-path-models-latest-forecast-today-2019-09-06/)登陆，那里已经先发制人地发布了的[紧急状态](https://files.nc.gov/ncdps/documents/files/CooperEO101-Declaration-of-SOE_Hurricane-Dorian.pdf)的。在即将到来的周末，飓风道林预计将穿过加拿大新斯科舍省，然后接近格陵兰岛南部的水域。
 

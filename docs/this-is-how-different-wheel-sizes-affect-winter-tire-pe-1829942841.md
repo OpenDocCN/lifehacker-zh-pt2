@@ -1,6 +1,6 @@
 # 这就是不同车轮尺寸对冬季轮胎性能的影响
 
-> 原文:[https://jalopnik . com/this-is-how-different-what-affect-winter-tire-PE-1829942841](https://jalopnik.com/this-is-how-different-wheel-sizes-affect-winter-tire-pe-1829942841)
+> 原文：<https://jalopnik.com/this-is-how-different-wheel-sizes-affect-winter-tire-pe-1829942841>
 
 大约是一年中的这个时候，大多数人开始考虑购买冬季轮胎，为寒冷多雪的月份做准备。我们以前写过关于 [冬季轮胎](https://jalopnik.com/a-guide-to-how-you-should-buy-winter-tires-1821780963) 的重要性，但是这里告诉你如何决定买什么尺寸的轮胎。
 

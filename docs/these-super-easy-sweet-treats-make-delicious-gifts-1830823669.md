@@ -1,6 +1,6 @@
 # 这些超级简单的甜食是美味的礼物
 
-> 原文:[https://life hacker . com/these-super-easy-sweet-treats-make-delicious-gifts-1830823669](https://lifehacker.com/these-super-easy-sweet-treats-make-delicious-gifts-1830823669)
+> 原文：<https://lifehacker.com/these-super-easy-sweet-treats-make-delicious-gifts-1830823669>
 
 关于节日的一些事情让人们想要互赠自制的甜蜜礼物。即使是我们当中最不喜欢去厨房的人，也会蜂拥到他们那里去做时令甜点。如果你有这样的冲动，但像我一样非常懒惰，我有好消息:我们有许多可以自己动手做的美食，需要付出的努力从“从木头上掉下来”到“哇，我一定很喜欢这个人。”
 

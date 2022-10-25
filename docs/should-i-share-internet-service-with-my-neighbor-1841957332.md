@@ -1,6 +1,6 @@
 # 我应该与邻居共享互联网服务吗？
 
-> 原文:[https://life hacker . com/should-I-share-internet-service-with-my-neighbor-1841957332](https://lifehacker.com/should-i-share-internet-service-with-my-neighbor-1841957332)
+> 原文：<https://lifehacker.com/should-i-share-internet-service-with-my-neighbor-1841957332>
 
 伟大的宽带互联网花费一笔小钱，除非你有幸住在一个地方，有一个体面的价格低于 100 美元的光纤服务。(如果是，需要室友吗？)
 

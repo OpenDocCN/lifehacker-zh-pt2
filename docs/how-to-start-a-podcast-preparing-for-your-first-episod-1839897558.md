@@ -1,6 +1,6 @@
 # 如何开始播客:为你的第一集做准备
 
-> 原文:[https://life hacker . com/how-to-start-a-podcast-preparating-for your ' s first-episod-1839897558](https://lifehacker.com/how-to-start-a-podcast-preparing-for-your-first-episod-1839897558)
+> 原文：<https://lifehacker.com/how-to-start-a-podcast-preparing-for-your-first-episod-1839897558>
 
 考虑到大量的坏建议，开始一个播客听起来很容易。你会经常听到“低门槛”或“做你自己”这样的话。事实上，播客(像任何创造性的东西一样)是一项繁重的工作。
 

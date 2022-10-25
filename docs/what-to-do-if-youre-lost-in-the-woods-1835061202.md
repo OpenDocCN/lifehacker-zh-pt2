@@ -1,6 +1,6 @@
 # 如果你在森林里迷路了该怎么办
 
-> 原文:[https://life hacker . com/what-do-if you-lost-in-the-Woods-1835061202](https://lifehacker.com/what-to-do-if-youre-lost-in-the-woods-1835061202)
+> 原文：<https://lifehacker.com/what-to-do-if-youre-lost-in-the-woods-1835061202>
 
 随着 [夏威夷徒步旅行者阿曼达·埃勒(Amanda Eller)在迷失了 17 天](https://www.cnn.com/2019/05/26/us/hawaii-hiker-survived-17-days-in-forest/index.html) 后被活着找到的消息，值得考虑一下如果你发现自己独自一人迷失在荒野中该怎么办。根据早期的新闻报道，埃勒做了很多正确的事情。美国有线电视新闻网(CNN)称，“她在能找到浆果和番石榴的时候摘下来吃。她只在水足够清澈，看起来不会让她病情加重时才喝水。她照顾受伤的膝盖，并护理严重晒伤的膝盖，使它感染了。”
 

@@ -1,6 +1,6 @@
 # 我从 iOS 相册中删除了照片，现在它们永远消失了？
 
-> 原文:[https://life hacker . com/I-removed-photos-from-an-IOs-album-and-now-they ' e-gone-1843908428](https://lifehacker.com/i-removed-photos-from-an-ios-album-and-now-theyre-gone-1843908428)
+> 原文：<https://lifehacker.com/i-removed-photos-from-an-ios-album-and-now-theyre-gone-1843908428>
 
 我喜欢玩寻宝游戏——只是不是当搜索的对象是“我想永远保存在我的设备上，但我现在找不到的照片”虽然当你从文件夹中删除照片或者删除文件夹或成批照片时，你的手机应该非常智能，但有时整个过程可能会有点混乱。
 

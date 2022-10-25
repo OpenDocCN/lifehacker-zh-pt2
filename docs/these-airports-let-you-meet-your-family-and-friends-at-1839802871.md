@@ -1,6 +1,6 @@
 # 这些机场让你在登机口遇见你的家人和朋友
 
-> 原文:[https://life hacker . com/these-airports-let-you-meet-you-family-and-friends-at-1839802871](https://lifehacker.com/these-airports-let-you-meet-your-family-and-friends-at-1839802871)
+> 原文：<https://lifehacker.com/these-airports-let-you-meet-your-family-and-friends-at-1839802871>
 
 我已经长大，足以记得和家人一起通过机场安检的感觉，这样我们就可以在门口迎接奶奶了——现在，由于美国运输安全管理局批准的新旅游通行证，一些机场允许乘客重现这种体验。
 

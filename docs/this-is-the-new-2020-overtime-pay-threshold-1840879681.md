@@ -1,6 +1,6 @@
 # 这是新的 2020 年加班费门槛[更新]
 
-> 原文:[https://life hacker . com/this-is-the-new-2020-加班费-阈值-1840879681](https://lifehacker.com/this-is-the-new-2020-overtime-pay-threshold-1840879681)
+> 原文：<https://lifehacker.com/this-is-the-new-2020-overtime-pay-threshold-1840879681>
 
 如果你长时间工作，你应该得到报酬，对吗？为他们争取一倍半的时间怎么样？好消息:根据劳工部新的加班规定，你可能有资格。
 

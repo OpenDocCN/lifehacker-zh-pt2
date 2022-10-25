@@ -1,6 +1,6 @@
 # 如何通过邮件获得安全堕胎
 
-> 原文:[https://life hacker . com/how-to-get-a-safe-that-mail-1829868242](https://lifehacker.com/how-to-get-a-safe-abortion-by-mail-1829868242)
+> 原文：<https://lifehacker.com/how-to-get-a-safe-abortion-by-mail-1829868242>
 
 堕胎药丸是安全、有效、合法的 ，但是在美国的许多地方，实际上很难得到它们。有史以来第一次，一家在线服务公司通过一个他们声称在美国合法的漏洞，直接在网上提供这些药物。
 

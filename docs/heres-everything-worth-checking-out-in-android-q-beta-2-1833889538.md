@@ -1,6 +1,6 @@
 # 以下是 Android Q Beta 2 中值得一试的一切
 
-> 原文:[https://life hacker . com/heres-everything-value-check-out-in-Android-q-beta-2-1833889538](https://lifehacker.com/heres-everything-worth-checking-out-in-android-q-beta-2-1833889538)
+> 原文：<https://lifehacker.com/heres-everything-worth-checking-out-in-android-q-beta-2-1833889538>
 
 Android Q Beta 2 [现已推出](https://android-developers.googleblog.com/2019/04/android-q-beta-2-update.html) ，并增加了一批新功能供 Beta 测试人员试用。
 

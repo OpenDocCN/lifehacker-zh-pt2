@@ -1,6 +1,6 @@
 # 通过这个网站探索网飞的“秘密”子类别
 
-> 原文:[https://life hacker . com/explore-netflixs-secret-sub-categories-with-this-site-1831706945](https://lifehacker.com/explore-netflixs-secret-sub-categories-with-this-site-1831706945)
+> 原文：<https://lifehacker.com/explore-netflixs-secret-sub-categories-with-this-site-1831706945>
 
 如果你想在网飞上寻找新的东西看，通常流媒体服务的内置类别可以很好地帮助你整理选项。
 

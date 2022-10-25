@@ -1,6 +1,6 @@
 # Lifehacker 新年前夜庆祝指南
 
-> 原文:[https://life hacker . com/the-life hacker-guide-to-consuming-new-years-eve-1831340168](https://lifehacker.com/the-lifehacker-guide-to-celebrating-new-years-eve-1831340168)
+> 原文：<https://lifehacker.com/the-lifehacker-guide-to-celebrating-new-years-eve-1831340168>
 
 新年前夕即将来临和你可能还不确定你要做什么。出门？呆在家里？一个人？和朋友一起？不要烦恼！让 Lifehacker 的员工让你相信*他们的*方式庆祝这个(通常令人恐惧的)节日是最好的方式。
 

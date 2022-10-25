@@ -1,6 +1,6 @@
 # 单亲父母:你最好的单亲育儿技巧是什么？
 
-> 原文:[https://life hacker . com/single-parents-what ' s-you ' s best-solo-parenting-tips-1839034268](https://lifehacker.com/single-parents-what-are-your-best-solo-parenting-tips-1839034268)
+> 原文：<https://lifehacker.com/single-parents-what-are-your-best-solo-parenting-tips-1839034268>
 
 任何父母都很难控制自己的脾气和挑食，很难限制看电视的时间，很难在睡觉时保持清醒，同时也很难培养出有望成长为好人的孩子。但是对于单亲父母来说，每天都有额外的挑战:四个人的时候两只手会更有帮助。有一种观点认为向伴侣征求意见是件好事。不可能同时出现在两个地方的人。
 

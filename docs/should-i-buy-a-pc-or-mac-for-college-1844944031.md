@@ -1,6 +1,6 @@
 # 大学该买 PC 还是 Mac？
 
-> 原文:[https://life hacker . com/should-I-buy-a-PC-or-MAC-for-college-1844944031](https://lifehacker.com/should-i-buy-a-pc-or-mac-for-college-1844944031)
+> 原文：<https://lifehacker.com/should-i-buy-a-pc-or-mac-for-college-1844944031>
 
 是的，我们本周正在涉入这些水域:十多年前，经典的 PC 或 Mac 辩论催生了无数来自苹果和约翰·霍吉曼的搞笑广告。(我肯定微软会乞求不同意苹果的解释，但我认为整个 T4 会同意 Zune 根本不应该存在。)
 

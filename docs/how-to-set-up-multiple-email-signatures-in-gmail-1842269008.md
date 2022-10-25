@@ -1,6 +1,6 @@
 # 如何在 Gmail 中设置多个电子邮件签名
 
-> 原文:[https://life hacker . com/how-to-set-up-multiple-email-signatures-in-Gmail-1842269008](https://lifehacker.com/how-to-set-up-multiple-email-signatures-in-gmail-1842269008)
+> 原文：<https://lifehacker.com/how-to-set-up-multiple-email-signatures-in-gmail-1842269008>
 
 无论你是否有多重人格，或者你不喜欢在回复的每封邮件中都写上你的个人电话号码，在每封邮件的基础上编辑你的签名会很烦人。虽然许多第三方应用程序允许你在撰写或回复电子邮件时从多个签名中选择，但谷歌终于在 Gmail 本身中释放了这一功能 。下面是如何设置它。
 

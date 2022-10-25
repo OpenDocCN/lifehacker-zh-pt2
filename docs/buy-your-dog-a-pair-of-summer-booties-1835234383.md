@@ -1,6 +1,6 @@
 # 给你的狗买一套夏季短靴
 
-> 原文:[https://life hacker . com/buy-your-dog-a-pair-of-summer-booties-1835234383](https://lifehacker.com/buy-your-dog-a-pair-of-summer-booties-1835234383)
+> 原文：<https://lifehacker.com/buy-your-dog-a-pair-of-summer-booties-1835234383>
 
 如果你是一个冬天寒冷或多雪的地方的狗主人，你可能习惯于让你的小狗穿上一双狗靴来保护它们的爪子免受寒冷、冰和盐的伤害。但是这些爪子也需要保护，以免被炎热的夏季路面灼伤。
 

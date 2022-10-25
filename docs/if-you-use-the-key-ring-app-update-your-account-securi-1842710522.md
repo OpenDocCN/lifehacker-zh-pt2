@@ -1,6 +1,6 @@
 # 如果您使用 Key Ring 应用程序，请立即更新您的帐户安全性
 
-> 原文:[https://life hacker . com/if-you-use-the-key-ring-app-update-your-account-securi-1842710522](https://lifehacker.com/if-you-use-the-key-ring-app-update-your-account-securi-1842710522)
+> 原文：<https://lifehacker.com/if-you-use-the-key-ring-app-update-your-account-securi-1842710522>
 
 如果你使用流行的数字钱包应用钥匙圈，安全升级是当务之急。由于亚马逊网络服务(AWS)云服务器的错误配置，该应用程序最近意外暴露了超过 4400 万用户的个人信息。
 

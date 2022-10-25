@@ -1,6 +1,6 @@
 # 请立即更新 Firefox 来修补这个零日漏洞
 
-> 原文:[https://life hacker . com/update-Firefox-right-now-to-patch-this-zero-day-vulneraa-1840901792](https://lifehacker.com/update-firefox-right-now-to-patch-this-zero-day-vulnera-1840901792)
+> 原文：<https://lifehacker.com/update-firefox-right-now-to-patch-this-zero-day-vulnera-1840901792>
 
 即使你可能刚刚将你的 Firefox 桌面浏览器更新到 72 版(周二发布)，也要确保你运行了一个新的更新来获得 Mozilla 昨天发布的一个特殊补丁。将更新到版本 72.0.1 修复了一个零日漏洞，如果被利用，可能允许攻击者“控制受影响的系统”，正如美国网络安全和基础设施安全局 [描述的](https://www.us-cert.gov/ncas/current-activity/2020/01/08/mozilla-patches-critical-vulnerability) 。(“零日漏洞”是指攻击者发现了这个问题，并利用它来制造麻烦，Mozilla 就是这样发现这个漏洞的。)
 

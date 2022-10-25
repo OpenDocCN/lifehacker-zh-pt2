@@ -1,6 +1,6 @@
 # 为什么值得花钱存更多的钱
 
-> 原文:[https://life hacker . com/why-its-value-spending money-to-save-more-of-it-1836021754](https://lifehacker.com/why-its-worth-spending-money-to-save-more-of-it-1836021754)
+> 原文：<https://lifehacker.com/why-its-worth-spending-money-to-save-more-of-it-1836021754>
 
 许多个人理财建议都被小事所困扰——你早上花 3 美元买的一杯咖啡。每月 9.99 美元的流媒体音乐订阅。省掉这些小开支，拿起那些美元钞票，你每年就能省下几千美元。但是当然没那么容易。
 

@@ -1,6 +1,6 @@
 # 这些是 2019 年新的 401(k)和 IRA 缴费限额
 
-> 原文:[https://life hacker . com/these-is-the-new-401-k-and-IRA-contribution-limits-fo-1830175445](https://lifehacker.com/these-are-the-new-401-k-and-ira-contribution-limits-fo-1830175445)
+> 原文：<https://lifehacker.com/these-are-the-new-401-k-and-ira-contribution-limits-fo-1830175445>
 
 退休储蓄者可以在他们的 401(k)和个人退休账户中再存 500 美元，因为美国国税局会根据 2019 年的年度生活成本调整 T2。
 

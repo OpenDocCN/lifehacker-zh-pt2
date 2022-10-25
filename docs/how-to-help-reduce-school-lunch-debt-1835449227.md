@@ -1,6 +1,6 @@
 # 如何帮助减少学校午餐债务
 
-> 原文:[https://life hacker . com/how-to-help-reduce-school-lunch-debt-1835449227](https://lifehacker.com/how-to-help-reduce-school-lunch-debt-1835449227)
+> 原文：<https://lifehacker.com/how-to-help-reduce-school-lunch-debt-1835449227>
 
 本月早些时候，罗德岛的一个学区给一些学生——那些没有支付学校餐费的学生——冷黄油和果冻三明治(以及牛奶和蔬菜),而不是其他所有学生都可以获得的热餐，这成为了头条新闻。
 

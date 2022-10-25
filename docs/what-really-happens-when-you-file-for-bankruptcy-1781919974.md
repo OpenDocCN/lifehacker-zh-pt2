@@ -1,6 +1,6 @@
 # 当你申请破产时会发生什么
 
-> 原文:[https://life hacker . com/what-really-occurs-when-you-file-for-破产法-1781919974](https://lifehacker.com/what-really-happens-when-you-file-for-bankruptcy-1781919974)
+> 原文：<https://lifehacker.com/what-really-happens-when-you-file-for-bankruptcy-1781919974>
 
 破产听起来像是世界末日，但许多申请破产的公司能够继续经营，一切如常。鲜为人知的事实是，个人也可以从破产中幸存下来，并且安然无恙。由于人们对此知之甚少，让我们来看看每种类型的破产申请如何不同地影响你的财务状况。
 

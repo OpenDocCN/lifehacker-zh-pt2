@@ -1,6 +1,6 @@
 # how to skim a privacy policy 1839488010
 
-> 原文:[https://life hacker . com/how-to-skim-a-privacy-policy-1839488010](https://lifehacker.com/how-to-skim-a-privacy-policy-1839488010)
+> 原文：<https://lifehacker.com/how-to-skim-a-privacy-policy-1839488010>
 
 你刚刚下载了最热门的新应用程序，现在你必须在使用它之前点击通过样本文本页面。谁有时间做这些？即使是注重隐私和安全的人也经常浏览应用程序的服务条款，而且理由充分。卡耐基梅隆大学 [的研究人员估计](https://kb.osu.edu/bitstream/handle/1811/72839/ISJLP_V4N3_543.pdf?sequence=1&isAllowed=y) 要通读一年中遇到的所有隐私政策需要花费多达 [76 个工作日](https://www.theatlantic.com/technology/archive/2012/03/reading-the-privacy-policies-you-encounter-in-a-year-would-take-76-work-days/253851/) ，那还是在 2008 年！
 

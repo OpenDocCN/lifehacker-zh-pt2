@@ -1,6 +1,6 @@
 # 脸书的 Messenger Kids 应用程序现在有了更多的家长控制
 
-> 原文:[https://life hacker . com/face books-messenger-kids-app-now-has-more-parental-cont-1841455108](https://lifehacker.com/facebooks-messenger-kids-app-now-has-more-parental-cont-1841455108)
+> 原文：<https://lifehacker.com/facebooks-messenger-kids-app-now-has-more-parental-cont-1841455108>
 
 出于这样或那样的隐私考虑，脸书基本上总是出现在新闻中。其中一个例子是，去年夏天，当 Messenger Kids 应用程序无意中允许孩子加入他们父母没有批准的用户的群聊时，他们理所当然地受到了很多批评。当时，脸书称这是为 13 岁以下儿童设计的应用程序的“技术错误”。
 

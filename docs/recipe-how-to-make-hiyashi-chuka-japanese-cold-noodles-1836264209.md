@@ -1,6 +1,6 @@
 # 向 Hiyashi Chuka 问好，这是为夏季制作的日本冷面
 
-> 原文:[https://the take out . com/recipe-how-to-make-hiya Shi-chuka-Japanese-cold-noodles-1836264209](https://thetakeout.com/recipe-how-to-make-hiyashi-chuka-japanese-cold-noodles-1836264209)
+> 原文：<https://thetakeout.com/recipe-how-to-make-hiyashi-chuka-japanese-cold-noodles-1836264209>
 
 让我们宣布 hiyashi chuka *为 2019 年的*夏季菜肴。把它想象成一碗解构了的拉面，没有热汤，有各种蛋白质和切成薄片的蔬菜。一小碟鲜亮可口的沙司放在旁边，用来浇汁或蘸汁。
 

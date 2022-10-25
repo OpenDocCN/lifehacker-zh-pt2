@@ -1,6 +1,6 @@
 # 2019 年 7 月 HBO 有什么来往
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-HBO-in-July-2019-1835820319](https://lifehacker.com/whats-coming-and-going-from-hbo-in-july-2019-1835820319)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-hbo-in-july-2019-1835820319>
 
 哈利波特迷们可以在本月 [暂停播放*《哈利波特:魔法师联合起来*](https://lifehacker.com/make-harry-potter-wizards-unite-run-faster-with-this-h-1835714647) 来观看*神奇:野兽:格林德沃的罪行*，该片将于 7 月 13 日在 HBO 正式上映。
 

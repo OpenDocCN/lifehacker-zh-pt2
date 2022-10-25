@@ -1,6 +1,6 @@
 # 旅行前你需要了解的免疫知识
 
-> 原文:[https://life hacker . com/heres-what-you-needs-know-on-needs-needs-1844295783](https://lifehacker.com/heres-what-you-need-to-know-about-immunizations-needed-1844295783)
+> 原文：<https://lifehacker.com/heres-what-you-need-to-know-about-immunizations-needed-1844295783>
 
 随着疫情病毒在旅游业内造成巨大混乱，一些人设想未来你需要证明你已经接种了新冠肺炎疫苗才能旅行。当然，这样的疫苗还不存在，更不用说任何要求你接种的法规了。但对于真正的世界旅行者来说，在出发去一个新的目的地之前进行免疫接种应该是足够熟悉的——如果你没有及时注射疫苗，那么世界上有很多地方最好不要去。
 

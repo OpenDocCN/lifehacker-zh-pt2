@@ -1,6 +1,6 @@
 # 请你所有的病假
 
-> 原文:[https://life hacker . com/take-all-of-your-sick-days-1831582555](https://lifehacker.com/take-all-of-your-sick-days-1831582555)
+> 原文：<https://lifehacker.com/take-all-of-your-sick-days-1831582555>
 
 现在是流感和感冒的季节，这意味着你们中的一些人会咳嗽和打喷嚏。如果你的工作场所没有给你足够的带薪病假，那是很糟糕的，我们同情你。如果真的发生了，那么你欠我们所有人一个假期——尤其是那些不能请病假的人。这就是为什么你今年的目标应该是用完你所有的病假。
 

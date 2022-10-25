@@ -1,6 +1,6 @@
 # 如何找出你真正燃烧了多少卡路里
 
-> 原文:[https://life hacker . com/how-to-find-how-number-calories-you-really-burn-1834752318](https://lifehacker.com/how-to-find-out-how-many-calories-you-really-burn-1834752318)
+> 原文：<https://lifehacker.com/how-to-find-out-how-many-calories-you-really-burn-1834752318>
 
 你可以将你的统计数据输入在线计算器，调整你的 Fitbit 设置，并一丝不苟地跟踪你燃烧的每一卡路里，但没有任何数学可以告诉你你的身体一天真正燃烧了多少卡路里。要得到一个真正的答案，你需要做一点自我实验。
 

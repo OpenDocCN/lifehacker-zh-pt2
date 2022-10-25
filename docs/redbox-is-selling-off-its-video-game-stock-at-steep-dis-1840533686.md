@@ -1,6 +1,6 @@
 # Redbox 正在以大幅折扣出售其视频游戏股票
 
-> 原文:[https://life hacker . com/red box-is-selling-off-its-video-game-stock-at-steep-dis-1840533686](https://lifehacker.com/redbox-is-selling-off-its-video-game-stock-at-steep-dis-1840533686)
+> 原文：<https://lifehacker.com/redbox-is-selling-off-its-video-game-stock-at-steep-dis-1840533686>
 
 Redbox 正在退出游戏租赁业务，并通过清仓甩卖出售 PlayStation 4、Xbox One 和少量 Switch 游戏的库存。你会在红盒子的网站 上找到许多交易 [，但一些值得注意的折扣包括:](https://www.redbox.com/games) 
 

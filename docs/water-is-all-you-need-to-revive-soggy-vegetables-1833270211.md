@@ -1,6 +1,6 @@
 # 你只需要水就能让湿漉漉的蔬菜苏醒
 
-> 原文:[https://life hacker . com/water-is-all-you-need to-revival-soggy-vegetables-1833270211](https://lifehacker.com/water-is-all-you-need-to-revive-soggy-vegetables-1833270211)
+> 原文：<https://lifehacker.com/water-is-all-you-need-to-revive-soggy-vegetables-1833270211>
 
 生活中的许多东西在潮湿时会变湿，比如纸，或者昂贵的吹干的头发。但是植物不是这样工作的。水让它们更饱满、更脆、更脆。明白了这个事实，你就再也不会吃湿生菜了。
 

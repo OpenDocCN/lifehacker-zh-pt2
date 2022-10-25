@@ -1,6 +1,6 @@
 # 如何在寒冷的天气里给手机保暖
 
-> 原文:[https://life hacker . com/how-to-keep-your-phone-warm-in-diplomat temps-1832392099](https://lifehacker.com/how-to-keep-your-cell-phone-warm-in-frigid-temps-1832392099)
+> 原文：<https://lifehacker.com/how-to-keep-your-cell-phone-warm-in-frigid-temps-1832392099>
 
 当空气变冷，开始下雪时，我和我的孩子会去滑雪坡享受几个小时的滑雪乐趣。当它们小的时候，很容易跟踪它们的位置，因为它们大部分时间都和我一起在比较容易的果岭坡上度过。
 

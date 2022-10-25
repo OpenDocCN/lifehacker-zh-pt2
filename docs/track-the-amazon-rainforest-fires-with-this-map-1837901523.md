@@ -1,6 +1,6 @@
 # 使用此地图追踪亚马逊雨林火灾
 
-> 原文:[https://life hacker . com/track-the-Amazon-雨林-fires-with the-map-1837901523](https://lifehacker.com/track-the-amazon-rainforest-fires-with-this-map-1837901523)
+> 原文：<https://lifehacker.com/track-the-amazon-rainforest-fires-with-this-map-1837901523>
 
 八月份，大约有 66，000 起大火肆虐亚马逊雨林，其中大部分是人为砍伐的结果。在 [最初拒绝](https://www.nytimes.com/2019/08/27/world/americashttps://www.nytimes.com/2019/08/27/world/americas/brazil-amazon-aid.html/brazil-amazon-aid.html) 数百万的对外援助后，巴西总统雅伊尔·博索纳罗最近 [禁止](https://www.cnn.com/2019/08/29/americas/brazil-amazon-bolsonaro-fire-ban-intl/index.html) 使用火来清理土地，包括雨林中的土地，为期非常保守的 60 天。
 

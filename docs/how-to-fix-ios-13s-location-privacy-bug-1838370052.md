@@ -1,6 +1,6 @@
 # 如何修复 iOS 13 的位置隐私 Bug
 
-> 原文:[https://life hacker . com/how-to-fix-IOs-13s-location-privacy-bug-1838370052](https://lifehacker.com/how-to-fix-ios-13s-location-privacy-bug-1838370052)
+> 原文：<https://lifehacker.com/how-to-fix-ios-13s-location-privacy-bug-1838370052>
 
 好吧，似乎还有另一个原因 [推迟更新到 iOS 13](https://lifehacker.com/you-should-wait-to-upgrade-to-ios-13-1838280789) :用户发现“位置”隐私设置——请求访问你设备的地理位置数据——在某些应用程序中被自动从“从不”重置为“下次询问”。
 

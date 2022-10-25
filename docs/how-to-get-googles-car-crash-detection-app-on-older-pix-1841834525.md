@@ -1,6 +1,6 @@
 # 如何在较旧的 Pixel 手机上获得谷歌的汽车碰撞检测应用程序
 
-> 原文:[https://life hacker . com/how-to-get-Google-car-crash-detection-app-on-older-pix-1841834525](https://lifehacker.com/how-to-get-googles-car-crash-detection-app-on-older-pix-1841834525)
+> 原文：<https://lifehacker.com/how-to-get-googles-car-crash-detection-app-on-older-pix-1841834525>
 
 根据即将到来的 Android 11 的早期开发人员构建，Pixel 4 专属的 [车祸检测应用](https://lifehacker.com/how-the-pixel-4-will-detect-car-crashes-and-help-you-re-1838679721) 将在 2020 年晚些时候 Android 大更新发布时进入旧的 Pixel 设备——但如果你不想等待，你可以提前试用。该应用的早期版本是从 Android 11 的开发者版本中提取出来的，并移植到了旧的 Pixel 手机上，你现在就可以将它下载到你的设备上。
 

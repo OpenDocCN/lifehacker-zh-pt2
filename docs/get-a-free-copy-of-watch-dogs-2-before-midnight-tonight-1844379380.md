@@ -1,6 +1,6 @@
 # 今晚午夜前免费获得一份《看门狗 2》
 
-> 原文:[https://life hacker . com/get-a-free-copy-of-watch-dogs-2-before-midnight-1844379380](https://lifehacker.com/get-a-free-copy-of-watch-dogs-2-before-midnight-tonight-1844379380)
+> 原文：<https://lifehacker.com/get-a-free-copy-of-watch-dogs-2-before-midnight-tonight-1844379380>
 
 你是否关注育碧最新的大型新闻发布会无关紧要；你仍然可以以低廉的免费价格获得一个开发者相当喜欢的、以黑客为中心的 PC 游戏 *Watch Dogs 2* 的免费副本。有什么问题吗？你必须在今晚午夜(PT)之前申请你的免费游戏，否则这项交易——就像最近几天育碧的几位高管一样——将会消失。
 

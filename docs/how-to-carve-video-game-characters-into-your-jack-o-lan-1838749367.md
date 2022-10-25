@@ -1,6 +1,6 @@
 # 如何在你的南瓜灯上雕刻电子游戏角色
 
-> 原文:[https://life hacker . com/how-to-carve-video-game-characters-into-your-jack-o-LAN-1838749367](https://lifehacker.com/how-to-carve-video-game-characters-into-your-jack-o-lan-1838749367)
+> 原文：<https://lifehacker.com/how-to-carve-video-game-characters-into-your-jack-o-lan-1838749367>
 
 我们已经在我家做了很多次三角形眼睛和露齿露齿的南瓜灯。我们雕刻过南瓜，我们画过南瓜，我们甚至有一年出于某种原因做了这个:
 

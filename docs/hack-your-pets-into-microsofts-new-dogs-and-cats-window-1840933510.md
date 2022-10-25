@@ -1,6 +1,6 @@
 # 将你的宠物植入微软新的“猫狗”视窗主题
 
-> 原文:[https://life hacker . com/hack-your-pets-into-Microsoft-new-dogs-and-cats-window-1840933510](https://lifehacker.com/hack-your-pets-into-microsofts-new-dogs-and-cats-window-1840933510)
+> 原文：<https://lifehacker.com/hack-your-pets-into-microsofts-new-dogs-and-cats-window-1840933510>
 
 微软刚刚发布了一个可爱的“狗和猫”桌面背景包，如果你一直在寻找一种方法来让你的 Windows 10 电脑的壁纸看起来更可爱一点。共有十五张图片，均可从微软商店 下载 [。](https://www.microsoft.com/en-us/p/dogs-and-cats/9pfhf0wtsq72?activetab=pivot:overviewtab) 
 

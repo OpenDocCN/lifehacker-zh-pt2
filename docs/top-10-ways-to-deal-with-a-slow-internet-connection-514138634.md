@@ -1,6 +1,6 @@
 # 应对慢速互联网连接的 10 大方法
 
-> 原文:[https://life hacker . com/top-10-ways-to-deal-a-slow-internet-connection-514138634](https://lifehacker.com/top-10-ways-to-deal-with-a-slow-internet-connection-514138634)
+> 原文：<https://lifehacker.com/top-10-ways-to-deal-with-a-slow-internet-connection-514138634>
 
 有什么比有很好的 wifi 或以太网连接，但网速慢更烦人的？没什么。没有什么比这更烦人的了。当这种情况发生在你身上时——它会发生的，尤其是如果你在你最喜欢的当地企业跳上 wifi 接入点——你会希望你能做任何事情来加快你的连接。
 

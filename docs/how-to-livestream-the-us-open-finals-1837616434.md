@@ -1,6 +1,6 @@
 # 如何直播美国公开赛决赛
 
-> 原文:[https://life hacker . com/how-to-live stream-the-us-open-finals-1837616434](https://lifehacker.com/how-to-livestream-the-us-open-finals-1837616434)
+> 原文：<https://lifehacker.com/how-to-livestream-the-us-open-finals-1837616434>
 
 美国网球公开赛开始进入尾声，最后几轮比赛将于周一结束，男子和女子四分之一决赛将于周二和周三播出，接下来是半决赛，然后是接下来的周末，9 月 7 日至 8 日的男子和女子单打和双打决赛。
 

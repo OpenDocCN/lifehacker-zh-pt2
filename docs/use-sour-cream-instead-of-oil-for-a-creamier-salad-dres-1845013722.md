@@ -1,6 +1,6 @@
 # 用酸奶油代替油做更浓的沙拉酱
 
-> 原文:[https://life hacker . com/use-sour-cream-to-a-creamier-salad-dres-1845013722](https://lifehacker.com/use-sour-cream-instead-of-oil-for-a-creamier-salad-dres-1845013722)
+> 原文：<https://lifehacker.com/use-sour-cream-instead-of-oil-for-a-creamier-salad-dres-1845013722>
 
 自制沙拉酱的配方很简单:你需要某种油、 [比你可能想象的更酸的](http://more%20acid) 、甜味剂和一些芥末(用于乳化)。加入一撮盐，以及你想要的任何其他调料，你就有了一个可爱的、有冲击力的调味汁。
 

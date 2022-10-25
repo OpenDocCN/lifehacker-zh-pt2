@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:我嫉妒我搭档死去的朋友
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-im-giused-of-my-partners-dead-friend-1841808800](https://kotaku.com/ask-dr-nerdlove-im-jealous-of-my-partners-dead-friend-1841808800)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-im-jealous-of-my-partners-dead-friend-1841808800>
 
 你好，所有网上贪吃的食人鱼们，欢迎来到 [向 NerdLove](http://kotaku.com/askdrnerdlove) 博士提问，这是唯一一个为爱情游戏提供额外生活的约会建议专栏。
 

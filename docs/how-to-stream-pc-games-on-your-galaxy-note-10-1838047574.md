@@ -1,6 +1,6 @@
 # 如何在 Galaxy Note 10 上播放电脑游戏
 
-> 原文:[https://life hacker . com/how-to-stream-PC-games-on-your-galaxy-note-10-1838047574](https://lifehacker.com/how-to-stream-pc-games-on-your-galaxy-note-10-1838047574)
+> 原文：<https://lifehacker.com/how-to-stream-pc-games-on-your-galaxy-note-10-1838047574>
 
 Galaxy Note 10 是三星 [大型触控笔智能手机](https://lifehacker.com/we-looked-at-every-setting-on-the-galaxy-note-10-and-he-1837450445) 系列的最新产品，它有一个新功能，但没有像其他产品一样受到关注。Note 10 是第一款支持 [PlayGalaxy Link](https://www.playgalaxy.com/) 的手机，这是一项三星服务，允许玩家将游戏从 Windows PC 传输到手机。
 

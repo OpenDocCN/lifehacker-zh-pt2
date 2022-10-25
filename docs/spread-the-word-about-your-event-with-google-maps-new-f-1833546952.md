@@ -1,6 +1,6 @@
 # 使用谷歌地图的新功能传播您的活动
 
-> 原文:[https://life hacker . com/spread-the-word-about-your-event with-Google-maps-new-f-1833546952](https://lifehacker.com/spread-the-word-about-your-event-with-google-maps-new-f-1833546952)
+> 原文：<https://lifehacker.com/spread-the-word-about-your-event-with-google-maps-new-f-1833546952>
 
 依靠脸书 为你的活动做广告的日子可能很快就要结束了，因为谷歌已经开始推出一项新功能，允许用户在谷歌地图上添加他们自己的公共活动。你将能够广播大型社区活动、餐馆开业、美术馆首次亮相或其他重要聚会，而不必 [发送垃圾邮件邀请或发布社交媒体帖子](https://lifehacker.com/the-secret-to-getting-people-to-actually-come-to-your-p-1820053791#_ga=2.249646607.844574024.1553530995-1864099547.1536779123) 。
 

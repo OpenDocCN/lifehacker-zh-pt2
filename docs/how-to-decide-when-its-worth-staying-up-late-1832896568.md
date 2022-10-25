@@ -1,6 +1,6 @@
 # 如何决定什么时候值得熬夜
 
-> 原文:[https://life hacker . com/how-to-decision-when-it ' s value-living-late-1832896568](https://lifehacker.com/how-to-decide-when-its-worth-staying-up-late-1832896568)
+> 原文：<https://lifehacker.com/how-to-decide-when-its-worth-staying-up-late-1832896568>
 
 我熬夜做了很多蠢事。有时是失算，就像试图完成一项我太累而无法集中注意力的作业。但通常情况是这样的:我已经在看网飞了，所以我继续看网飞。今天晚上我想看一本书，直到现在我才有机会。
 

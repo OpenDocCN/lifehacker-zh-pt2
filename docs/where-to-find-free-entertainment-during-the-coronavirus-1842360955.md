@@ -1,6 +1,6 @@
 # 在冠状病毒关闭期间，哪里可以找到免费的娱乐
 
-> 原文:[https://life hacker . com/where-to-find-free-entertainment-in-the-corona virus-1842360955](https://lifehacker.com/where-to-find-free-entertainment-during-the-coronavirus-1842360955)
+> 原文：<https://lifehacker.com/where-to-find-free-entertainment-during-the-coronavirus-1842360955>
 
 坐在阳光不太充足的加州，冠状病毒的封锁让我无聊到流泪。虽然我有视频游戏来娱乐我，有无尽的工作要做(当然是在家)，但我一直在寻找更好的方式来处理我和许多其他人将在未来几周内处理的孤独状况。
 

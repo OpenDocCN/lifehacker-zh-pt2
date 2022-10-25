@@ -1,6 +1,6 @@
 # 补充剂不会保护你远离新冠肺炎
 
-> 原文:[https://life hacker . com/supplements-wont-protect-you-from-新冠肺炎-1842245758](https://lifehacker.com/supplements-wont-protect-you-from-covid-19-1842245758)
+> 原文：<https://lifehacker.com/supplements-wont-protect-you-from-covid-19-1842245758>
 
 接骨木糖浆？维生素 C？如果你正在寻找冠状病毒的额外保护，请把它们放回药店的货架上，回家洗手。是的，即使奥兹医生只是告诉你买他们。
 

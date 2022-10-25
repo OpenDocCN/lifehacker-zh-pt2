@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:餐厅员工可以免费吃饭吗？
 
-> 原文:[https://the take out . com/do-restaurant-employees-get-to-eat-free-1837584742](https://thetakeout.com/do-restaurant-employees-get-to-eat-for-free-1837584742)
+> 原文：<https://thetakeout.com/do-restaurant-employees-get-to-eat-for-free-1837584742>
 
 > 亲爱的咸味:这其实一点也不影响我在餐厅的体验，只是我很好奇而已。服务员和厨师在工作日什么时候吃什么？我想你们在换班前都会吃东西，但是菜单上有没有给你们点什么？还是在不同的时间吃饭？只是一直想知道这个。
 > 

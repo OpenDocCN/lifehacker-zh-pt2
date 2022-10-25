@@ -1,6 +1,6 @@
 # 以下是观看 2018 年最后一场流星雨的方法
 
-> 原文:[https://life hacker . com/heres-how-to-see-the-last-of-2018-1830537111](https://lifehacker.com/heres-how-to-see-the-last-meteor-showers-of-2018-1830537111)
+> 原文：<https://lifehacker.com/heres-how-to-see-the-last-meteor-showers-of-2018-1830537111>
 
 偶然观看流星雨往往会让人们联想到夏天；放下毯子，享受你的夜晚。但在 2018 年底之前，还有一堆阵雨要赶。这里是何时何地期待全家人观看一场精彩的流星雨。
 

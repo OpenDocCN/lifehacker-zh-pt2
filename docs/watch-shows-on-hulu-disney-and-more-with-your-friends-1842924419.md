@@ -1,6 +1,6 @@
 # 使用这个 Chrome 扩展，您可以和朋友一起观看 Hulu、Disney+等网站上的节目
 
-> 原文:[https://life hacker . com/watch-shows-on-Hulu-Disney-more-with-your-friends-1842924419](https://lifehacker.com/watch-shows-on-hulu-disney-and-more-with-your-friends-1842924419)
+> 原文：<https://lifehacker.com/watch-shows-on-hulu-disney-and-more-with-your-friends-1842924419>
 
 现在你可能已经听说过 [网飞派对](https://lifehacker.com/sync-netflix-streams-with-far-away-friends-using-this-c-1824048081) ，这个 Chrome 扩展可以让你和朋友同时观看网飞的节目。对于与朋友的虚拟电影之夜来说，这很棒，但也有一点限制，因为它只适用于网飞。
 

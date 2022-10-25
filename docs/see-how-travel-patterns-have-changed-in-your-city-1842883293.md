@@ -1,6 +1,6 @@
 # 了解您所在城市的出行模式发生了怎样的变化
 
-> 原文:[https://life hacker . com/see-how-travel-patterns-have-changed-in-your-city-1842883293](https://lifehacker.com/see-how-travel-patterns-have-changed-in-your-city-1842883293)
+> 原文：<https://lifehacker.com/see-how-travel-patterns-have-changed-in-your-city-1842883293>
 
 人们听从建议呆在家里而不是通勤、跑腿和旅行吗？一些项目试图收集这些数据，包括最近苹果的 [移动趋势](https://www.apple.com/covid19/mobility) 。
 

@@ -1,6 +1,6 @@
 # 问问 NerdLove 博士:我结婚是不是错了？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-did-I-make-a-mistake-marriage-1837900750](https://kotaku.com/ask-dr-nerdlove-did-i-make-a-mistake-getting-married-1837900750)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-did-i-make-a-mistake-getting-married-1837900750>
 
 你好，你这邪恶的骨机，欢迎来到 [问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，唯一帮你重塑爱情生活的约会建议专栏。
 

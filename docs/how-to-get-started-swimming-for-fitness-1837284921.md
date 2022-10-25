@@ -1,6 +1,6 @@
 # 如何开始游泳健身
 
-> 原文:[https://life hacker . com/how-to-started-swimming-for-fitness-1837284921](https://lifehacker.com/how-to-get-started-swimming-for-fitness-1837284921)
+> 原文：<https://lifehacker.com/how-to-get-started-swimming-for-fitness-1837284921>
 
 为了这个月的游泳挑战，你在游泳池里泡过泳吗？如果没有，可能是因为你还没有完全想好从哪里开始。
 

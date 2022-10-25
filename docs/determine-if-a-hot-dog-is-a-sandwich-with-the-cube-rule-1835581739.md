@@ -1,6 +1,6 @@
 # 用立方体法则判断热狗是否是三明治
 
-> 原文:[https://life hacker . com/determine-if-a-hot-dog-is-a-sandwich-the-cube-rule-1835581739](https://lifehacker.com/determine-if-a-hot-dog-is-a-sandwich-with-the-cube-rule-1835581739)
+> 原文：<https://lifehacker.com/determine-if-a-hot-dog-is-a-sandwich-with-the-cube-rule-1835581739>
 
 我喜欢热狗，但我从来不太关心它们的分类。事实上，我已经完全置身于“热狗是三明治吗？”话语，坚决拒绝形成意见。但是语言是有意义的，我理解以任何方式给这个混乱的世界带来意义和秩序的强烈愿望。
 

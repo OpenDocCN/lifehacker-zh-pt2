@@ -1,6 +1,6 @@
 # 阻止一些网站上的 JavaScript，以防止恼人的电子邮件跟踪
 
-> 原文:[https://life hacker . com/block-JavaScript-in-your-browser-to-prevent-noised-em-1843186321](https://lifehacker.com/block-javascript-in-your-browser-to-prevent-annoying-em-1843186321)
+> 原文：<https://lifehacker.com/block-javascript-in-your-browser-to-prevent-annoying-em-1843186321>
 
 JavaScript 是大多数网站和网络应用在 上运行的关键元素之一，但也是最容易被利用的元素之一。它不仅用在 [分析工具、广告、浏览跟踪器](https://lifehacker.com/the-best-browsers-for-ad-blocking-that-arent-chrome-1835130559) 中，黑客还经常使用 JavaScript[部署恶意软件](https://lifehacker.com/how-to-avoid-the-new-astaroth-malware-thats-hitting-win-1842509944) ，它让你 [在某些情况下很容易被跟踪](https://lifehacker.com/dont-use-tor-right-now-if-youre-working-from-home-1842318515) ，它甚至可以意外泄露重要数据。
 

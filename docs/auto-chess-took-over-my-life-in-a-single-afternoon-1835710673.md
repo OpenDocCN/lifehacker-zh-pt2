@@ -1,6 +1,6 @@
 # 一个下午，自动象棋就占据了我的生活
 
-> 原文:[https://kotaku . com/auto-chess-take-over-my life-one-午-1835710673](https://kotaku.com/auto-chess-took-over-my-life-in-a-single-afternoon-1835710673)
+> 原文：<https://kotaku.com/auto-chess-took-over-my-life-in-a-single-afternoon-1835710673>
 
 我有计划了，该死。宏伟的计划。我可能会去外面。我可能摘了一朵花。也许它会从我的指缝间溜走，只是为了让我弯下腰找到三只迷路的小猫，我最终会收养它们，并像那些破坏沙发的毛茸茸的小外星人一样爱上它们。这将带我踏上自我发现和责任的旅程，那种改变一切的旅程。相反，我在手机上连续玩了七个小时的自动象棋。
 

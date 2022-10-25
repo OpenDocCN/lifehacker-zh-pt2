@@ -1,6 +1,6 @@
 # 更新 WhatsApp 的桌面客户端以阻止远程访问漏洞
 
-> 原文:[https://life hacker . com/update-whatsapp-desktop-client-to-block-a-remote-acces-1841494848](https://lifehacker.com/update-whatsapps-desktop-client-to-block-a-remote-acces-1841494848)
+> 原文：<https://lifehacker.com/update-whatsapps-desktop-client-to-block-a-remote-acces-1841494848>
 
 WhatsApp 通常被认为是一个安全的消息应用程序，但尽管你的消息可能会被安全加密，但该服务的应用程序和其他任何应用程序一样容易出现安全漏洞。最新的 WhatsApp bug 是个大问题。
 

@@ -1,6 +1,6 @@
 # 下载 Pantone 的免费新应用程序来创建完美的调色板
 
-> 原文:[https://life hacker . com/download-pantones-free-new-app-to-create-perfect-color-1844266014](https://lifehacker.com/download-pantones-free-new-app-to-create-perfect-color-1844266014)
+> 原文：<https://lifehacker.com/download-pantones-free-new-app-to-create-perfect-color-1844266014>
 
 你是那种欣赏两种相似红色之间细微差别的人吗？你是否焦急地等待着潘通年度色彩的宣布？你是否经常在心里计划重新装修你家的各个房间，尽管实际上没有时间、金钱或精力去做这件事？如果是这样的话，你可能会喜欢 Pantone 的一个免费的新应用程序，它可以让你快速轻松地组合调色板。下面是它的功能和下载方法。
 

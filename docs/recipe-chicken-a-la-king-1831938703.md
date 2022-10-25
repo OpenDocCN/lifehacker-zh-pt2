@@ -1,6 +1,6 @@
 # 敬国王鸡
 
-> 原文:[https://thetakeout.com/recipe-chicken-a-la-king-1831938703](https://thetakeout.com/recipe-chicken-a-la-king-1831938703)
+> 原文：<https://thetakeout.com/recipe-chicken-a-la-king-1831938703>
 
 烤面包上的炖鸡，无论多么美味，都不够精致。现在把炖肉倒进一个雅致的可食用器皿里？惊心动魄。脆脆的。就像奶油沙司金杯。这才是真正的淑女。好消息是，即使你不觉得自己特别淑女，这道菜对任何人来说都是美味的。遇见国王鸡肉——一道如此古老的菜肴，又是一道新菜。
 

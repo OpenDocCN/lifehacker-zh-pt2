@@ -1,6 +1,6 @@
 # do homemade face masks help stop the spread of the coro 1842514179
 
-> 原文:[https://life hacker . com/do-manufacture-face-masks-help-stop-the-spread-of-the-the-the-coro-1842514179](https://lifehacker.com/do-homemade-face-masks-help-stop-the-spread-of-the-coro-1842514179)
+> 原文：<https://lifehacker.com/do-homemade-face-masks-help-stop-the-spread-of-the-coro-1842514179>
 
 最近几周，你可能已经看到了医院和护理机构要求 DIY 面料口罩的呼声，如果你有一台缝纫机，也许你已经自己做了一些。现在有建议说 [也许我们所有人都应该戴上口罩](https://www.wired.com/story/its-time-to-face-facts-america-masks-work/) 。如果我们这样做了，自制织物口罩可能是一个负责任的选择，为医疗专业人员保留医用级别的口罩。
 

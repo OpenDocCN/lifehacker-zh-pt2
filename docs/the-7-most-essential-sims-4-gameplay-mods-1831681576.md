@@ -1,6 +1,6 @@
 # 7 个最重要的模拟人生 4 游戏模式
 
-> 原文:[https://kotaku . com/the-7-most-essential-sims-4-gameplay-MODS-1831681576](https://kotaku.com/the-7-most-essential-sims-4-gameplay-mods-1831681576)
+> 原文：<https://kotaku.com/the-7-most-essential-sims-4-gameplay-mods-1831681576>
 
 模拟人生 4 是一款很棒的游戏，部分原因是因为它蓬勃发展的 mod 社区。你可以使用 mods 给你的模拟市民睫毛，扩大你的化妆选择，或者得到豪华的新家具。你甚至可以改变基本的游戏玩法，这里有 7 个基本的模式可以让你做到这一点。
 

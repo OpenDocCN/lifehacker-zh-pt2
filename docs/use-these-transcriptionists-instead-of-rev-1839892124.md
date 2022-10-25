@@ -1,6 +1,6 @@
 # 使用这些转录员，而不是 Rev
 
-> 原文:[https://life hacker . com/use-these-transcriptionists-代替-rev-1839892124](https://lifehacker.com/use-these-transcriptionists-instead-of-rev-1839892124)
+> 原文：<https://lifehacker.com/use-these-transcriptionists-instead-of-rev-1839892124>
 
 就像[we work](https://gizmodo.com/wework-reportedly-knew-about-its-toxic-phone-booths-for-1839805434)[优步](https://jalopnik.com/uber-employees-use-secret-tools-to-target-drivers-and-u-1793495814)[亚马逊](https://gizmodo.com/a-worrying-number-of-amazon-s-warehouse-workers-are-rep-1825387691)[YouTube](https://gizmodo.com/youtube-faces-angry-mob-again-ceo-promises-to-rethink-1838298383)[door dash](https://lifehacker.com/these-food-delivery-services-keep-their-employees-tips-1836601037)以及你赖以生存在 21 世纪的每一个科技平台，转录服务 Rev 最近拧了做实际工作的人。他们 [将签约转录员的最低工资](https://gizmodo.com/transcription-platform-rev-slashes-minimum-pay-for-work-1839784941) 降低了 33%，实际上 [每小时不到 5 美元](https://gizmodo.com/there-is-a-point-where-a-person-cant-do-anymore-1839808189) 。幸运的是，有很多方法可以直接找到并雇佣一名人类转录员，而不需要支付更多的钱。
 

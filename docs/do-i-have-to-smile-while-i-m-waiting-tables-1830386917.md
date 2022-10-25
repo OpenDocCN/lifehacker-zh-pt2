@@ -1,6 +1,6 @@
 # 问刻薄的女服务员:我在侍候客人的时候必须微笑吗？
 
-> 原文:[https://the take out . com/do-I-have-to-smile-while-I-m-waiting-tables-1830386917](https://thetakeout.com/do-i-have-to-smile-while-i-m-waiting-tables-1830386917)
+> 原文：<https://thetakeout.com/do-i-have-to-smile-while-i-m-waiting-tables-1830386917>
 
 > 亲爱的咸味女服务员:好吧，我知道当一个男人对一位女士说“多笑笑”是令人毛骨悚然的，但我是一个男人，当我为顾客服务时，我经常从他们那里听到这句话。有时候我只是累了或者宿醉了或者真的不喜欢。我真的要为这些人做全职表演吗？我只是给他们提供服务还不够吗？我的意思是，我知道我想赚小费，当我想或需要卖小费时，我可以，但主要是我觉得我在提供服务，基本上这就足够了，我的情绪状态不关他们的事。想法？
 > 

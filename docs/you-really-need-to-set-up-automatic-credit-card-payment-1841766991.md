@@ -1,6 +1,6 @@
 # 你真的需要设置自动信用卡支付
 
-> 原文:[https://life hacker . com/you-really-need-to-set-up-automatic-credit-payment-1841766991](https://lifehacker.com/you-really-need-to-set-up-automatic-credit-card-payment-1841766991)
+> 原文：<https://lifehacker.com/you-really-need-to-set-up-automatic-credit-card-payment-1841766991>
 
 嘿，你付了这个月的信用卡账单，对吧？
 

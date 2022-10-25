@@ -1,6 +1,6 @@
 # 今天只在边疆航空公司购买 25 美元的夏季单程航班
 
-> 原文:[https://life hacker . com/get-25-one-way-summer-flights-today-only-on-frontier-a-1835871355](https://lifehacker.com/get-25-one-way-summer-flights-today-only-on-frontier-a-1835871355)
+> 原文：<https://lifehacker.com/get-25-one-way-summer-flights-today-only-on-frontier-a-1835871355>
 
 如果你还没有预订你的暑假，你很幸运: [边疆航空公司有一个闪购](https://www.flyfrontier.com/deals/flight-sales/) ，票价从 25 美元单程到 8 月底。打折活动今晚结束，所以你最好现在就开始。
 

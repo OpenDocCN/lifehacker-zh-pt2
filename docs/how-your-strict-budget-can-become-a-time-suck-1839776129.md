@@ -1,6 +1,6 @@
 # 你严格的预算是如何变成时间浪费的
 
-> 原文:[https://life hacker . com/how-your ' s strict-budget-can-a-time-suck-1839776129](https://lifehacker.com/how-your-strict-budget-can-become-a-time-suck-1839776129)
+> 原文：<https://lifehacker.com/how-your-strict-budget-can-become-a-time-suck-1839776129>
 
 如果你想实现你的财务目标，你需要留出一些现金以备不时之需。
 

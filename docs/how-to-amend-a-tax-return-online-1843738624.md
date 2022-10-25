@@ -1,6 +1,6 @@
 # 如何在网上修改报税表
 
-> 原文:[https://life hacker . com/how-to-amend-a-tax-return-online-1843738624](https://lifehacker.com/how-to-amend-a-tax-return-online-1843738624)
+> 原文：<https://lifehacker.com/how-to-amend-a-tax-return-online-1843738624>
 
 如果你曾经需要修改你的税收，你知道这个过程会以传统的方式进行:通过邮件提交你的表格。但是今年夏天晚些时候，当国税局发布 1040X 表格的电子版本时，这种情况将最终改变。
 

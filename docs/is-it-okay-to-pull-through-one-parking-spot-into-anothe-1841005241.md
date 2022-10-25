@@ -1,6 +1,6 @@
 # 把车从一个停车位开到另一个空车位可以吗？
 
-> 原文:[https://jalopnik . com/is-it-okay-to-pull-through-one-parking-spot-into-anothe-1841005241](https://jalopnik.com/is-it-okay-to-pull-through-one-parking-spot-into-anothe-1841005241)
+> 原文：<https://jalopnik.com/is-it-okay-to-pull-through-one-parking-spot-into-anothe-1841005241>
 
 我不确定我是否完全意识到这个概念有多么有争议，或者人们对这个相对简单的概念有多么分歧:当你在一个停车场，有背靠背的停车位，开车穿过一个空位，直接进入与它的尽头相连的空位可以吗？一个孩子可能会问的问题，但不是幼稚的问题。还有，你为什么让那个孩子开车？这是严肃的事情。
 

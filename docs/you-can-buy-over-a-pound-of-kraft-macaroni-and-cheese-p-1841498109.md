@@ -1,6 +1,6 @@
 # 你可以买到超过一磅的卡夫通心粉和奶酪粉
 
-> 原文:[https://life hacker . com/you-can-buy-over-a-磅卡夫通心粉和奶酪-p-1841498109](https://lifehacker.com/you-can-buy-over-a-pound-of-kraft-macaroni-and-cheese-p-1841498109)
+> 原文：<https://lifehacker.com/you-can-buy-over-a-pound-of-kraft-macaroni-and-cheese-p-1841498109>
 
 欢呼吧，我的小垃圾桶朋友们，因为你们的时刻到了。卡夫通心粉和奶酪混合酱现在可以在一个大罐子里买到，这样你就可以尽情地调味或喷洒。(是的，这和你在蓝盒子里得到的东西是一样的。
 

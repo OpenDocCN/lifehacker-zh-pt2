@@ -1,6 +1,6 @@
 # 如何以苹果有史以来最低的价格买到最好最便宜的 MacBook Pros
 
-> 原文:[https://life hacker . com/how-to-get-apple-best-and-cheap-macbook-pros-at-the-1836881509](https://lifehacker.com/how-to-get-apples-best-and-cheapest-macbook-pros-at-the-1836881509)
+> 原文：<https://lifehacker.com/how-to-get-apples-best-and-cheapest-macbook-pros-at-the-1836881509>
 
 如果你想买最新的 MacBook Pro，那就暂时避开苹果。前往亚马逊或百思买，你将能够在苹果最新笔记本电脑的准系统 13 英寸 MacBook Pro 和两个 15 英寸版本上获得巨大的折扣。我们还没有看到这些笔记本电脑的价格拍得这么低，我们怀疑你会很快找到更好的交易。
 

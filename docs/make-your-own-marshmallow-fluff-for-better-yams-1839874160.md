@@ -1,6 +1,6 @@
 # 为更好的山药制作你自己的棉花糖绒毛
 
-> 原文:[https://life hacker . com/make-your-own-your-own-marshmallow-fluff-for-better-yamanas-1839874160](https://lifehacker.com/make-your-own-marshmallow-fluff-for-better-yams-1839874160)
+> 原文：<https://lifehacker.com/make-your-own-marshmallow-fluff-for-better-yams-1839874160>
 
 我从来不需要在我的山药(或者红薯，取决于你抓的是哪种块茎)上放棉花糖。甘薯之类的东西足够甜——这是它的名字——在它们上面浇上一层烤糖和明胶似乎总是有点多余(尽管不是不受欢迎)。
 

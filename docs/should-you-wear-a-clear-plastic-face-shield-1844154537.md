@@ -1,6 +1,6 @@
 # 你应该戴一个透明的塑料面罩吗？
 
-> 原文:[https://life hacker . com/should-you-wear-a-clear-plastic-face-shield-1844154537](https://lifehacker.com/should-you-wear-a-clear-plastic-face-shield-1844154537)
+> 原文：<https://lifehacker.com/should-you-wear-a-clear-plastic-face-shield-1844154537>
 
 当事情重新开始时，口罩是我们用来保护彼此安全的重要工具之一。但是面罩呢？这些是透明塑料，为你的脸提供一个防溅屏障。它们可以很好地补充口罩，但不能替代口罩。
 

@@ -1,6 +1,6 @@
 # 当孩子们整天在家时，如何管理零食
 
-> 原文:[https://life hacker . com/how-to-manage-零食-当孩子们整天在家时-1842458580](https://lifehacker.com/how-to-manage-snacks-while-the-kids-are-home-all-day-1842458580)
+> 原文：<https://lifehacker.com/how-to-manage-snacks-while-the-kids-are-home-all-day-1842458580>
 
 他们认为他们饿了；*你*知道他们很无聊。这是一个由来已久的孩子对父母的争论，随着我们生活中的其他一切都在冠状病毒疫情中走向地狱，我们中没有人真的想进入一场意志的零食之战。但是最近几天，两位非常聪明的父母可能想出了一些创造性的解决方案，我们其他人都可以从中受益。
 

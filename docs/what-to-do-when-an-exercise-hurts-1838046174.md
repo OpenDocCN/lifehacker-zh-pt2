@@ -1,6 +1,6 @@
 # 当运动疼痛时该怎么办
 
-> 原文:[https://life hacker . com/1838046174](https://lifehacker.com/what-to-do-when-an-exercise-hurts-1838046174)
+> 原文：<https://lifehacker.com/what-to-do-when-an-exercise-hurts-1838046174>
 
 休息不是一切。虽然你可能会忍不住在第一次疼痛时停止锻炼，但小伤通常可以在你坚持训练时痊愈。你也可以感到酸痛或受伤，但没有任何明显的伤害。那么，当你在健身时，有些东西开始疼了，你该怎么办呢？
 

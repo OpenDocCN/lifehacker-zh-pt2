@@ -1,6 +1,6 @@
 # 用玉米棒和外壳制作玉米味黄油
 
-> 原文:[https://life hacker . com/make-corn-flavored-butter-with-cobs-and-skins-1836819931](https://lifehacker.com/make-corn-flavored-butter-with-cobs-and-husks-1836819931)
+> 原文：<https://lifehacker.com/make-corn-flavored-butter-with-cobs-and-husks-1836819931>
 
 说到夏季农产品，没有什么比玉米更让我兴奋的了(除了一个非常好的西红柿)。我要烤着吃。我会蒸着吃。 [我要生吃](https://skillet.lifehacker.com/you-know-you-dont-have-to-cook-corn-right-1797841831) 。但是当我看到人们在商店里剥玉米，留下外壳和丝绸时，我流泪了，因为他们留下了 T4 风味。
 

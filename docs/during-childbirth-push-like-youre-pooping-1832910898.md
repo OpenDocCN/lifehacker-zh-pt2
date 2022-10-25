@@ -1,6 +1,6 @@
 # 分娩时，像拉屎一样用力
 
-> 原文:[https://life hacker . com/during-delivery-push-like-you-pooping-1832910898](https://lifehacker.com/during-childbirth-push-like-youre-pooping-1832910898)
+> 原文：<https://lifehacker.com/during-childbirth-push-like-youre-pooping-1832910898>
 
 你好，后代！我休完产假回来了。我们有了第二个孩子，一个叫马克斯的男孩。这是最棒的！这是最糟糕的一次！我的大脑不断地在“没有这个孩子，我怎么活在这个世界上？”的想法之间摇摆不定“*谁*又觉得这是个好主意？!"(不过，主要是前者。我被这孩子迷住了。)
 

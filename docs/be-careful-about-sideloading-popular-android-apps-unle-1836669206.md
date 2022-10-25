@@ -1,6 +1,6 @@
 # 除非你喜欢恶意软件，否则不要下载流行的安卓应用
 
-> 原文:[https://life hacker . com/be-circuit-about-side loading-popular-Android-apps-unle-1836669206](https://lifehacker.com/be-careful-about-sideloading-popular-android-apps-unle-1836669206)
+> 原文：<https://lifehacker.com/be-careful-about-sideloading-popular-android-apps-unle-1836669206>
 
 你确定你使用的是安装在手机上的流行应用的真实版本吗？《福布斯》最近报道称，伪装成流行安卓应用的 [间谍软件正在网上流传](https://www.forbes.com/sites/thomasbrewster/2019/07/24/warning-android-malware-masquerading-as-pornhub-google-and-evernote-is-actually-a-russian-spy-operation/#441a92b95a3a) ，黑客可能正在用它们来跟踪你。
 

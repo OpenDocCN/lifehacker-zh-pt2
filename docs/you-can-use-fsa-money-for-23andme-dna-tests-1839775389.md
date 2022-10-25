@@ -1,6 +1,6 @@
 # 你可以用 FSA 的钱做 23andme 的 DNA 测试
 
-> 原文:[https://life hacker . com/you-can-use-FSA-money-for-23andme-DNA-tests-1839775389](https://lifehacker.com/you-can-use-fsa-money-for-23andme-dna-tests-1839775389)
+> 原文：<https://lifehacker.com/you-can-use-fsa-money-for-23andme-dna-tests-1839775389>
 
 如果你一直在考虑进行 DNA 测试，为你提供健康报告，好消息是:美国国税局已经裁定，你可以用你的 FSA 资金支付部分费用。
 

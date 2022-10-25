@@ -1,6 +1,6 @@
 # 你是如何临时搭建一个家庭健身房的？
 
-> 原文:[https://life hacker . com/how-are-you-即兴家庭健身房-1842867200](https://lifehacker.com/how-are-you-improvising-a-home-gym-1842867200)
+> 原文：<https://lifehacker.com/how-are-you-improvising-a-home-gym-1842867200>
 
 如果你错过了健身房，现在的生活很艰难，我们都在寻找创造性的解决方法。就在我的朋友和我在 Insta 上关注的人当中，我看到人们蹲着他们的宠物、孩子、一袋袋猫砂和更奇怪的东西。我看过在奇怪的设备上做的引体向上和即兴制作的哑铃。亲爱的读者们，现在我要向你们提出一个问题:你们过得怎么样？
 

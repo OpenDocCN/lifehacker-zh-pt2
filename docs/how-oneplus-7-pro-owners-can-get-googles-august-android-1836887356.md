@@ -1,6 +1,6 @@
 # 一加 7 Pro 用户如何提前获得谷歌 8 月安卓安全更新
 
-> 原文:[https://life hacker . com/how-oneplus-7-pro-owners-can-get-Google-August-Android-1836887356](https://lifehacker.com/how-oneplus-7-pro-owners-can-get-googles-august-android-1836887356)
+> 原文：<https://lifehacker.com/how-oneplus-7-pro-owners-can-get-googles-august-android-1836887356>
 
 大多数时候，谷歌的 Pixel 设备都是最先获得最新操作系统更新的，无论大小。然而，一加 7 Pro 的用户本月有机会击败谷歌，因为一加昨天开始推出 2019 年 8 月的安卓安全更新。
 

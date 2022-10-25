@@ -1,6 +1,6 @@
 # 推出“家长咨询”建议专栏
 
-> 原文:[https://life hacker . com/introducing-the-parental-advisory-advice-column-1838976475](https://lifehacker.com/introducing-the-parental-advisory-advice-column-1838976475)
+> 原文：<https://lifehacker.com/introducing-the-parental-advisory-advice-column-1838976475>
 
 在养育孩子的过程中，我们都需要一些帮助。初为人父母的人，已经做了一段时间的父母——我们所有人都会在某个时候发现自己处于十字路口，不知道该如何前进。正是在这个十字路口，我们希望后代的新父母咨询专栏能有所帮助。
 

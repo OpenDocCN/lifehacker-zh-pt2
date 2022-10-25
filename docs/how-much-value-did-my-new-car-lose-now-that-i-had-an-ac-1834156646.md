@@ -1,6 +1,6 @@
 # 现在我的新车出了事故，损失了多少价值？
 
-> 原文:[https://jalopnik . com/how-mud-value-do-my-new-car-lost-now-that-I-had-a-AC-1834156646](https://jalopnik.com/how-much-value-did-my-new-car-lose-now-that-i-had-an-ac-1834156646)
+> 原文：<https://jalopnik.com/how-much-value-did-my-new-car-lose-now-that-i-had-an-ac-1834156646>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。我决定挑几个问题，试着帮帮大家。本周，我们将讨论最近一次事故的折价损失，何时修理一辆高里程汽车或将其报废，以及新马自达 3 的昂贵租赁费用。
 

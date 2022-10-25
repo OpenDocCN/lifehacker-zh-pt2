@@ -1,6 +1,6 @@
 # 这是在旅馆给多少小费
 
-> 原文:[https://life hacker . com/heres-how-more-to-tip-to-a-hotel-1830534639](https://lifehacker.com/heres-how-much-to-tip-at-a-hotel-1830534639)
+> 原文：<https://lifehacker.com/heres-how-much-to-tip-at-a-hotel-1830534639>
 
 对于这样一个小小的举动，给小费似乎让人不知所措。我们知道给那些帮助我们更好地度假和旅行的人一些东西是一种习惯，但是多少才够呢？你应该给服务员和管家一样多的小费吗？门房呢？住在一个全包式的度假胜地就意味着你解脱了吗？
 

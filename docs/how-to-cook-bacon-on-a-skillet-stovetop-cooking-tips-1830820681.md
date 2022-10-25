@@ -1,6 +1,6 @@
 # 要烹饪最好的熏肉，从一个冷锅开始(和其他煎锅熏肉技巧)
 
-> 原文:[https://the take out . com/how-to-cook-bacon-on-a-skillet-stovetop-cooking-tips-1830820681](https://thetakeout.com/how-to-cook-bacon-on-a-skillet-stovetop-cooking-tips-1830820681)
+> 原文：<https://thetakeout.com/how-to-cook-bacon-on-a-skillet-stovetop-cooking-tips-1830820681>
 
 我在芝加哥经营一家名为 [屠夫&](http://localfoods.com/butcher/)的肉店。你可以想象，在我待在肉店柜台后的八年里，培根在我的日常工作中扮演了重要角色。屠宰团队每周切割、腌制、烟熏、切片、包装数百磅熏肉，大众乐此不疲。
 

@@ -1,6 +1,6 @@
 # 如何在 iPadOS 13 中更改应用程序图标的大小
 
-> 原文:[https://life hacker . com/how-to-change-the-size-of-your-app-icons-in-ipados-13-1836823061](https://lifehacker.com/how-to-change-the-size-of-your-app-icons-in-ipados-13-1836823061)
+> 原文：<https://lifehacker.com/how-to-change-the-size-of-your-app-icons-in-ipados-13-1836823061>
 
 今年秋天，当你把你的 iPad 升级到苹果的 iPadOS 13 时，你会遇到一个更不和谐的体验——包括从现在开始不得不这样称呼它——就是现在稍微小一点的图标点缀着你的 iPad 的主屏幕和页面。
 

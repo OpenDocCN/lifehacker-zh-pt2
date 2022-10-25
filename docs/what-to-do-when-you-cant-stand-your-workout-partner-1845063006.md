@@ -1,6 +1,6 @@
 # 当你无法忍受你的健身伙伴时该怎么办
 
-> 原文:[https://life hacker . com/what-to-do what-what-what-do what-you-stand-of-workout-partner-1845063006](https://lifehacker.com/what-to-do-when-you-cant-stand-your-workout-partner-1845063006)
+> 原文：<https://lifehacker.com/what-to-do-when-you-cant-stand-your-workout-partner-1845063006>
 
 健身房的一个功能是成为一个社交场所，在那里我们可以在锻炼时与他人互动，但有时在蹲起时你不想与某个人聊天。无论你的朋友总是出现在健身房，还是你被迫与他们共用一个家庭健身房(嗨，亲爱的)，这里有一个小贴士可以在你独自锻炼时保持友谊。
 

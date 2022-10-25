@@ -1,6 +1,6 @@
 # how to train like a superhero according to brie larson 1833761316
 
-> 原文:[https://life hacker . com/how-to-train-like-a-super hero-by-brie-Larson-1833761316](https://lifehacker.com/how-to-train-like-a-superhero-according-to-brie-larson-1833761316)
+> 原文：<https://lifehacker.com/how-to-train-like-a-superhero-according-to-brie-larson-1833761316>
 
 在成为惊奇队长的训练中，布丽·拉尔森努力从一个普通但健康的人成长为一个能 [做引体向上](https://www.instagram.com/p/BgyRPq7g2oA/) 做带锁链的 [俯卧撑](https://www.instagram.com/p/Bg1FwZLA6Sg/?hl=en) 和 [推着教练的车上山](https://www.instagram.com/p/Btwrxa0D3BX/) 的人。我们采访了她的教练杰森·沃尔什，了解如何训练成为超级英雄。
 

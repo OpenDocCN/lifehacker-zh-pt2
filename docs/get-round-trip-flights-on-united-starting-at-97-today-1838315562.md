@@ -1,6 +1,6 @@
 # 今天乘坐联合航空公司的往返航班，起价 97 美元
 
-> 原文:[https://life hacker . com/get-round-trip-flights-on-United-starting-at-97-today-1838315562](https://lifehacker.com/get-round-trip-flights-on-united-starting-at-97-today-1838315562)
+> 原文：<https://lifehacker.com/get-round-trip-flights-on-united-starting-at-97-today-1838315562>
 
 如果你打算在接下来的几个月里飞往某个地方，这个周末可能是买机票的最佳时机。
 

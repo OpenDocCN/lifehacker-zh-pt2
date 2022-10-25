@@ -1,6 +1,6 @@
 # 你可以在 YouTube 上找到你最喜欢的复古运动视频
 
-> 原文:[https://life hacker . com/you-can-find-you-favorite-retro-exercise-videos-on-you-1832899775](https://lifehacker.com/you-can-find-your-favorite-retro-exercise-videos-on-you-1832899775)
+> 原文：<https://lifehacker.com/you-can-find-your-favorite-retro-exercise-videos-on-you-1832899775>
 
 几周前，当我的跑步机坏了的时候，我想知道冬天我该如何在家进行一些有规律的锻炼。我给一个朋友发短信寻求建议，她给我发了一堆 YouTube 上的(旧的)普拉提练习，并附上了这样一条信息:“很抱歉缺乏现代的建议。显然，当我找到我喜欢的东西时，我会坚持看录像带。”
 

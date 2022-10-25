@@ -1,6 +1,6 @@
 # 当你放弃你的动物穿越:新地平线岛时会发生什么
 
-> 原文:[https://kotaku . com/what-happens-when-you-about-you-animal-crossing-new-1844574997](https://kotaku.com/what-happens-when-you-abandon-your-animal-crossing-new-1844574997)
+> 原文：<https://kotaku.com/what-happens-when-you-abandon-your-animal-crossing-new-1844574997>
 
 *动物穿越:新视野*是一款需要关注的游戏。它的结构是，你应该每天都玩，或者至少检查一下发生了什么。就像刷牙或倒垃圾一样，*动物穿越*本质上是一件苦差事。那么，如果你两个月都忘了做家务，会发生什么呢？
 

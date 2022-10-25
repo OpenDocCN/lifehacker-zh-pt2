@@ -1,6 +1,6 @@
 # 使用此应用程序获取购买快过期食品的现金
 
-> 原文:[https://life hacker . com/use-this-app-to-get-cash-back-for-pure-expired-1839191024](https://lifehacker.com/use-this-app-to-get-cash-back-for-buying-almost-expired-1839191024)
+> 原文：<https://lifehacker.com/use-this-app-to-get-cash-back-for-buying-almost-expired-1839191024>
 
 在旧金山，我最喜欢的杂货店之一就是卖快过期食品的那家。这是一个仓库式的杂货店，商店里的所有东西都比普通杂货店便宜得多。你只需要做好准备，很快就可以吃或者冷冻你要买的东西。
 

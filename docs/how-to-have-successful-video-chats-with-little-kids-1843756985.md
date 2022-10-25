@@ -1,6 +1,6 @@
 # how to have successful video chats with little kids 1843756985
 
-> 原文:[https://life hacker . com/how-to-have-successful-video-chats-with-little-kids-1843756985](https://lifehacker.com/how-to-have-successful-video-chats-with-little-kids-1843756985)
+> 原文：<https://lifehacker.com/how-to-have-successful-video-chats-with-little-kids-1843756985>
 
 上周，我为父母 写了一篇关于如何帮助他们的小孩更好地参与和所爱的人的视频聊天的文章(因为他们不擅长)。但问题是，孩子只是等式的一半:电话另一端的人有事情——也许那就是你！—也可以帮助聊天进行得更顺利一些。
 

@@ -1,6 +1,6 @@
 # 玩王国之心 3 的提示
 
-> 原文:[https://kotaku . com/tips-for-playing-kingdom-hearts-iii-1832170401](https://kotaku.com/tips-for-playing-kingdom-hearts-iii-1832170401)
+> 原文：<https://kotaku.com/tips-for-playing-kingdom-hearts-iii-1832170401>
 
 我一直玩到*王国之心 III* 。我演奏得非常糟糕。我这样做是因为我喜欢挑战，也因为我赶时间。我这么做也是为了你:我的挣扎迫使我把游戏玩好。这意味着，伙计，我有小费。
 

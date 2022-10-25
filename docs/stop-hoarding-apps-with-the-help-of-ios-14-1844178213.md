@@ -1,6 +1,6 @@
 # 借助 iOS 14 停止囤积应用
 
-> 原文:[https://life hacker . com/stop-囤积应用-借助 ios-14-1844178213](https://lifehacker.com/stop-hoarding-apps-with-the-help-of-ios-14-1844178213)
+> 原文：<https://lifehacker.com/stop-hoarding-apps-with-the-help-of-ios-14-1844178213>
 
 我的 iPhone 上有很多应用程序。你的 iPhone 上有很多应用程序。这就是数字世界的生活方式。情况变得如此糟糕，以至于有一次，我手机上的应用程序甚至与我的 iPhone X 的超薄边框布局不兼容。我手机上的应用程序太旧了，当我*终于*抽出时间整理我的设备时，它们甚至都不能运行了。
 

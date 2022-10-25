@@ -1,6 +1,6 @@
 # 当你在为飓风做准备时，去自动取款机吧
 
-> 原文:[https://life hacker . com/when-you-being-for-a-hurricane-go-the-ATM-1837704659](https://lifehacker.com/when-youre-preparing-for-a-hurricane-go-to-the-atm-1837704659)
+> 原文：<https://lifehacker.com/when-youre-preparing-for-a-hurricane-go-to-the-atm-1837704659>
 
 你在用木板封住窗户。你在储备水。你在挖沙袋。但是等等:你有现金吗？如果你正在为飓风、热带风暴或其他提前通知的天气事件做准备，你应该把去银行或自动取款机列入你的任务清单。
 

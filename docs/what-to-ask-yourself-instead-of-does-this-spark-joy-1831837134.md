@@ -1,6 +1,6 @@
 # 问自己什么而不是“这能激发快乐吗？”
 
-> 原文:[https://life hacker . com/what-to-quest-yourself-inst-does-this-spark-joy-1831837134](https://lifehacker.com/what-to-ask-yourself-instead-of-does-this-spark-joy-1831837134)
+> 原文：<https://lifehacker.com/what-to-ask-yourself-instead-of-does-this-spark-joy-1831837134>
 
 我们都有我们生活中需要、想要和喜爱的东西，也有挂在家里的东西，因为它们是垃圾，我们还没有意识到它们是垃圾。对于玛丽·近藤来说，问“这能激发快乐吗？”是区别的方式。如果这对你不起作用，试试这些问题:
 

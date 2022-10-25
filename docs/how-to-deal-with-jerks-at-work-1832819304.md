@@ -1,6 +1,6 @@
 # how to deal with jerks at work 1832819304
 
-> 原文:[https://life hacker . com/how-to-deal-with-jerks-in-work-1832819304](https://lifehacker.com/how-to-deal-with-jerks-at-work-1832819304)
+> 原文：<https://lifehacker.com/how-to-deal-with-jerks-at-work-1832819304>
 
 本周我们有两个半相关的问题是关于讨厌的同事的——一个常见的职场主题！感谢各位提问，请继续提问:[](mailto:humanresource@lifehacker.com)**。** 
 

@@ -1,6 +1,6 @@
 # 在太阳眩光不会退出的情况下如何继续玩
 
-> 原文:[https://kotaku . com/how-to-keep-play-when-sun-glare-wot-quit-1843485398](https://kotaku.com/how-to-keep-playing-when-sun-glare-wont-quit-1843485398)
+> 原文：<https://kotaku.com/how-to-keep-playing-when-sun-glare-wont-quit-1843485398>
 
 有没有试过在晴天玩*控*？虽然 Remedy Entertainment 的第三人称射击游戏是一款非常棒的游戏，但它也是一款黑暗的游戏，无论是从字面上还是主题上都是如此。试图在阳光充足的窗外压制嘶嘶声就像试图不戴护目镜看日食一样。没用的，你可能会造成永久性伤害，所有人，包括 [CNN](https://www.cnn.com/2017/08/21/politics/trump-solar-eclipse/index.html) ，都会取笑你。
 

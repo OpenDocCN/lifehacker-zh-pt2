@@ -1,6 +1,6 @@
 # 如何获得每周一次的免费信用报告
 
-> 原文:[https://life hacker . com/how-to-get-your-free-credit-report-每周一次-1842984075](https://lifehacker.com/how-to-get-your-free-credit-report-once-a-week-1842984075)
+> 原文：<https://lifehacker.com/how-to-get-your-free-credit-report-once-a-week-1842984075>
 
 与其花钱做每月信用监测，为什么不自己做呢？通常情况下，三家信用机构—[【Equifax】](https://investor.equifax.com/news-and-events/news/2020/04-20-2020-130210295)[【Experian】](https://www.experianplc.com/media/news/2020/equifax-experian-and-transunion-announce-free-weekly-credit-reports-to-help-americans-in-response-to-covid-19/)[TransUnion](https://newsroom.transunion.com/equifax-experian-and-transunion-announce-free-weekly-credit-reports-to-help-americans-in-response-to-covid-19/)—每年只提供一份免费的信用报告，但因为疫情，这些相同的报告每周 [免费提供，直到 2022 年 4 月](https://www.usatoday.com/story/money/2021/03/11/free-credit-reports-extended-through-april-2022-experian-equifax-transunion/6953186002/) 。
 

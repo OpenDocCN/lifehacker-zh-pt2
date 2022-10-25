@@ -1,6 +1,6 @@
 # 为什么伊丽莎白·沃伦的学生债务计划没有那么激进
 
-> 原文:[https://life hacker . com/why-Elizabeth-warrens-student-debt-plan-not-that-radic-1834240902](https://lifehacker.com/why-elizabeth-warrens-student-debt-plan-isnt-that-radic-1834240902)
+> 原文：<https://lifehacker.com/why-elizabeth-warrens-student-debt-plan-isnt-that-radic-1834240902>
 
 你可能听说过伊丽莎白·沃伦提出的计划 取消现有学生债务，给新生免费大学教育的机会，并通过“超级百万富翁税”(对财富超过 5000 万美元的家庭每年征收 2%的税)资助这一切。
 

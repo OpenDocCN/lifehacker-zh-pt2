@@ -1,6 +1,6 @@
 # 脸书-联邦贸易委员会协议将如何影响你和你的数据
 
-> 原文:[https://life hacker . com/how-the-Facebook-FTC-agreement-will-affect-you-and-your-1836704917](https://lifehacker.com/how-the-facebook-ftc-agreement-will-affect-you-and-your-1836704917)
+> 原文：<https://lifehacker.com/how-the-facebook-ftc-agreement-will-affect-you-and-your-1836704917>
 
 美国联邦贸易委员会(FTC)和美国司法部(DOJ)一直在指责脸书最近的隐私失误，包括该公司未能遵守 2012 年 FTC 关于脸书如何处理其用户数据的裁决。
 

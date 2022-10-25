@@ -1,6 +1,6 @@
 # 在 15 号买你的情人节糖果
 
-> 原文:[https://life hacker . com/buy-your-valentines-day-candy-151841675548](https://lifehacker.com/buy-your-valentines-day-candy-on-the-15th-1841675548)
+> 原文：<https://lifehacker.com/buy-your-valentines-day-candy-on-the-15th-1841675548>
 
 今天是情人节，你们中的一些人可能正在争先恐后地购买一盒心形巧克力。不要这样做。再等 24 小时，你就能以非常优惠的价格买到同样的糖果。
 

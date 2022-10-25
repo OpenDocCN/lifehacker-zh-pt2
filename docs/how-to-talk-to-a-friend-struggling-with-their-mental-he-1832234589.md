@@ -1,6 +1,6 @@
 # 如何与一个正在为心理健康而挣扎的朋友交谈
 
-> 原文:[https://life hacker . com/how-to-talk to-a-friend-fighting-they-them-1832234589](https://lifehacker.com/how-to-talk-to-a-friend-struggling-with-their-mental-he-1832234589)
+> 原文：<https://lifehacker.com/how-to-talk-to-a-friend-struggling-with-their-mental-he-1832234589>
 
 当一个朋友试图向你倾诉他们的抑郁、焦虑或其他心理健康问题时，很难知道如何回应。我们已经走了很长一段路，但是承认你正在应对心理健康问题仍然是一个很大的耻辱。如果你的朋友和你说话了，那他们就迈出了一大步。
 

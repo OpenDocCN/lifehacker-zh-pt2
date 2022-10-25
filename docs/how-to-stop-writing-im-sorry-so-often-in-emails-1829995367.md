@@ -1,6 +1,6 @@
 # 如何停止在电子邮件中频繁写“对不起”
 
-> 原文:[https://life hacker . com/how-to-stop-writing-im-sorry-so-frequency-in-emails-1829995367](https://lifehacker.com/how-to-stop-writing-im-sorry-so-often-in-emails-1829995367)
+> 原文：<https://lifehacker.com/how-to-stop-writing-im-sorry-so-often-in-emails-1829995367>
 
 上周，我发了一封电子邮件，其中写道“对此我很抱歉！”这是我的自动回复——我忘了什么东西，这个人简短的信息表明他们对我不太满意。但是经过一分钟的考虑，我说出了“对不起”,并告诉他们我会尽快按照他们的要求去做。我做到了，任务完成了，每个人都很好。没有伤害，就没有犯规。
 

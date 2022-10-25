@@ -1,6 +1,6 @@
 # 帮助拯救帝王蝶
 
-> 原文:[https://life hacker . com/help-save-the-monarch-butterfly-1844531151](https://lifehacker.com/help-save-the-monarch-butterfly-1844531151)
+> 原文：<https://lifehacker.com/help-save-the-monarch-butterfly-1844531151>
 
 帝王蝶正处于危险之中——以至于它们可能很快就会被正式列为 T2 濒危物种。由于森林砍伐，气候变化和相关的栖息地丧失， [帝王蝶数量急剧下降](https://www.nps.gov/articles/monarch-butterfly.htm#:~:text=Monarch%20butterflies%20need%20milkweed%20plants%20to%20lay%20their%20eggs.&text=NPS-,More%20than%20beautiful%2C%20monarch%20butterflies%20contribute%20to%20the%20health%20of,pollinate%20many%20types%20of%20wildflowers.&text=Monarch%20butterflies%20are%20also%20an,small%20animals%2C%20and%20other%20insects.) ，美国鱼类和野生动物服务局预计将在今年晚些时候决定 [是否将帝王蝶加入濒危物种名单](https://www.reconnectwithnature.org/news-events/the-buzz/monarchs-disappearing-illinois-how-you-can-help) 。
 

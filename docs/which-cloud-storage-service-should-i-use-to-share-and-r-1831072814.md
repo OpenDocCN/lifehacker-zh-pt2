@@ -1,6 +1,6 @@
 # 我应该使用哪种云存储服务对外共享和接收文件？
 
-> 原文:[https://life hacker . com/which-cloud-storage-service-should-I-use-to-share-and-r-1831072814](https://lifehacker.com/which-cloud-storage-service-should-i-use-to-share-and-r-1831072814)
+> 原文：<https://lifehacker.com/which-cloud-storage-service-should-i-use-to-share-and-r-1831072814>
 
 本周生活黑客的技术建议专栏 的问题来自**内特**。虽然他的问题有点商业主题，但它仍然适用于任何不喜欢为云存储支付大量资金的人——所以，每个人。
 

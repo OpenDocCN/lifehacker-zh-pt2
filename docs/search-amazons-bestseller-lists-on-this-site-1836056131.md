@@ -1,6 +1,6 @@
 # 在这个网站上搜索亚马逊的畅销书排行榜
 
-> 原文:[https://life hacker . com/search-amazons-best seller-lists-on-this-site-1836056131](https://lifehacker.com/search-amazons-bestseller-lists-on-this-site-1836056131)
+> 原文：<https://lifehacker.com/search-amazons-bestseller-lists-on-this-site-1836056131>
 
 [【搜索畅销书】](https://www.searchbestsellers.com/) 是一个购物网站，帮助你在亚马逊上找到每个产品类别的畅销书排行榜。正如该网站解释的那样，虽然亚马逊保留了数百个类别中最受欢迎产品的列表，但它不允许你搜索这些列表。搜索畅销书可以。
 

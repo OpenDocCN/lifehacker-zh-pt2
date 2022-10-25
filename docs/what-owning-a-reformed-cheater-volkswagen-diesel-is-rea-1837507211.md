@@ -1,6 +1,6 @@
 # 拥有一辆改造过的作弊大众柴油到底是什么样的
 
-> 原文:[https://jalopnik . com/what-owning-a-reformed-checker-Volkswagen-diesel-is-rea-1837507211](https://jalopnik.com/what-owning-a-reformed-cheater-volkswagen-diesel-is-rea-1837507211)
+> 原文：<https://jalopnik.com/what-owning-a-reformed-cheater-volkswagen-diesel-is-rea-1837507211>
 
 "你什么时候会再有新闻车？"我妈问。我低头看着我的右脚，在脚踝折断两根骨头一个月后，我的右脚仍然穿着支撑靴。她并不关心，或者只是漫不经心地询问我的驾驶时间表。在我受伤前几个月，当我骑自行车通过新闻汽车贷款时，我让她借了我的 [2015 大众 TDI SportWagen](https://jalopnik.com/i-bought-a-volkswagen-diesel-that-cheated-and-maybe-you-1795920529) ，她想要回来。
 

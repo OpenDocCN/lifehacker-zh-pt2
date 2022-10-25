@@ -1,6 +1,6 @@
 # 如何在没有有线电视的情况下观看今晚的美国演员工会奖
 
-> 原文:[https://life hacker . com/how-to-watch-tonights-sag-awards-without-cable-1841099830](https://lifehacker.com/how-to-watch-tonights-sag-awards-without-cable-1841099830)
+> 原文：<https://lifehacker.com/how-to-watch-tonights-sag-awards-without-cable-1841099830>
 
 2020 年美国演员工会奖就在今晚。今年的颁奖典礼标志着第 26 届美国演员工会奖，也是迄今为止 2020 年的第三届颁奖典礼。
 

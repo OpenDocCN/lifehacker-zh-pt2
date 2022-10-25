@@ -1,6 +1,6 @@
 # 从威瑞森免费获得一年的 Disney+
 
-> 原文:[https://life hacker . com/get-a-free-a-year-of-Disney-from-Verizon-1839263546](https://lifehacker.com/get-a-free-year-of-disney-from-verizon-1839263546)
+> 原文：<https://lifehacker.com/get-a-free-year-of-disney-from-verizon-1839263546>
 
 如果你和我一样是迪士尼的超级粉丝，你会倒数着 11 月 12 日推出、流媒体服务*【星球大战】*、迪士尼经典动画和*鸭子传说*。威瑞森的订阅者还有一个在日历上标记日期的理由:届时他们将能够免费注册一年的 Disney+。
 

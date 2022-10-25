@@ -1,6 +1,6 @@
 # 如果你是自由职业者或零工经济工作者，如何申请 1000 美元的资助
 
-> 原文:[https://life hacker . com/how-to-apply-for-a-a-1000-grant-if-you-a-a-you-a-a-1844308392](https://lifehacker.com/how-to-apply-for-a-1-000-grant-if-youre-a-freelancer-o-1844308392)
+> 原文：<https://lifehacker.com/how-to-apply-for-a-1-000-grant-if-youre-a-freelancer-o-1844308392>
 
 今年 3 月，国会通过了刺激方案，关爱法案，以应对新冠肺炎疫情。具有里程碑意义的法案有条款，包括薪资保护计划(PPP)和经济伤害灾难贷款(EIDL)，为在强制关闭中努力应对收入损失的小企业提供了一条生命线。由小企业管理局管理的 EIDL 项目 为受影响的公司提供支持，但许多人没有意识到个人——自由职业者、零工经济工作者和独立承包商——也有资格获得贷款。
 

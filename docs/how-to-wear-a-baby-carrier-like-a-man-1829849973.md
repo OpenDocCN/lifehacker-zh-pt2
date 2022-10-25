@@ -1,6 +1,6 @@
 # 如何像男人一样穿婴儿背带
 
-> 原文:[https://life hacker . com/how-to-wear-a baby-carrier-like-a-man-1829849973](https://lifehacker.com/how-to-wear-a-baby-carrier-like-a-man-1829849973)
+> 原文：<https://lifehacker.com/how-to-wear-a-baby-carrier-like-a-man-1829849973>
 
 如何像真正的男人一样穿婴儿背带？很简单:
 

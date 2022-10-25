@@ -1,6 +1,6 @@
 # 如果你的暑期实习被取消了，该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-your ' s summer-injury-hacker-1843325589](https://lifehacker.com/what-to-do-if-your-summer-internship-has-been-canceled-1843325589)
+> 原文：<https://lifehacker.com/what-to-do-if-your-summer-internship-has-been-canceled-1843325589>
 
 暑期实习可以帮助大学生或初级员工开始职业生涯。但冠状病毒的爆发已经搁置了许多夏季计划。那么你能做些什么呢？
 

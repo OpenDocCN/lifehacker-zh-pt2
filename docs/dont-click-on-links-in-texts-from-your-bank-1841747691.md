@@ -1,6 +1,6 @@
 # 不要点击来自“你的银行”的链接
 
-> 原文:[https://life hacker . com/don-t-click-on-links-in-texts-from-your-bank-1841747691](https://lifehacker.com/dont-click-on-links-in-texts-from-your-bank-1841747691)
+> 原文：<https://lifehacker.com/dont-click-on-links-in-texts-from-your-bank-1841747691>
 
 如果你收到自称是你银行的人发来的短信，不要点击链接。一种新的手机网络钓鱼诈骗正在向美国和加拿大的人发送短信，声称是您的银行。当您点击包含的链接时，您将被带到一个网站，该网站可能看起来像您的银行网站，但实际上是窃取您的登录凭据的一种方式。
 

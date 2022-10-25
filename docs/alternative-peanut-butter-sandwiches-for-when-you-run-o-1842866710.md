@@ -1,6 +1,6 @@
 # 果冻用完时的替代花生酱三明治
 
-> 原文:[https://life hacker . com/alternative-peanut-butter-sandwich-for-when-you-run-o-1842866710](https://lifehacker.com/alternative-peanut-butter-sandwiches-for-when-you-run-o-1842866710)
+> 原文：<https://lifehacker.com/alternative-peanut-butter-sandwiches-for-when-you-run-o-1842866710>
 
 花生酱和果冻是这些时候的三明治，但味觉疲劳是真实的，吃新的和不同的东西是我们可以改变事物的一个小方法。(还有，你可能会用完果冻和果酱。我听说过，确实如此。)尽管我最喜欢的组合——JIF 和草莓口味的三明治——完美无瑕，但还有其他花生酱三明治也同样令人愉快*和*更具冒险精神。
 

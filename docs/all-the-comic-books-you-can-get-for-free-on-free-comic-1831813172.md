@@ -1,6 +1,6 @@
 # 在‘免费漫画书日’你可以免费得到的所有漫画书
 
-> 原文:[https://life hacker . com/all-the-comic-books-you-can-get-for-free-on-free-comic-1831813172](https://lifehacker.com/all-the-comic-books-you-can-get-for-free-on-free-comic-1831813172)
+> 原文：<https://lifehacker.com/all-the-comic-books-you-can-get-for-free-on-free-comic-1831813172>
 
 今年的免费漫画书日要到 5 月份才开始，但我们已经对 5 月 4 日会有什么有了一点想法。
 

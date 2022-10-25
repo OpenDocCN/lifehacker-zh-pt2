@@ -1,6 +1,6 @@
 # 谷歌翻译的相机模式现在适用于更多语言
 
-> 原文:[https://life hacker . com/Google-translates-camera-mode-now-works-for-a-lot-more-1829733118](https://lifehacker.com/google-translates-camera-mode-now-works-for-a-lot-more-1829733118)
+> 原文：<https://lifehacker.com/google-translates-camera-mode-now-works-for-a-lot-more-1829733118>
 
 每当我出国旅行时，我总是尽力表现得像个当地人，包括尽可能地说当地语言。在一些国家，这很好，在其他国家，我真的无法避免成为一个装模作样的烂摊子。
 

@@ -1,6 +1,6 @@
 # 查看你的下一个 Chrome 扩展在这个网站上是否安全
 
-> 原文:[https://life hacker . com/check-to-see-if-your ' s next-chrome-extension-with-1832818910](https://lifehacker.com/check-to-see-if-your-next-chrome-extension-is-safe-with-1832818910)
+> 原文：<https://lifehacker.com/check-to-see-if-your-next-chrome-extension-is-safe-with-1832818910>
 
 说到安全性，Chrome 扩展是最棒的。他们中的许多人要求广泛的权限，如果你选择了错误的权限，你最终会与一个神秘的互联网陌生人分享更多的个人数据。
 

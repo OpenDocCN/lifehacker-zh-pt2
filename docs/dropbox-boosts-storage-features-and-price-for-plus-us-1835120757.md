@@ -1,6 +1,6 @@
 # Dropbox 为“Plus”用户提升了存储、功能和价格
 
-> 原文:[https://life hacker . com/Dropbox-boosts-storage-features-and-price-for-plus us-1835120757](https://lifehacker.com/dropbox-boosts-storage-features-and-price-for-plus-us-1835120757)
+> 原文：<https://lifehacker.com/dropbox-boosts-storage-features-and-price-for-plus-us-1835120757>
 
 我们从半坏消息开始:Dropbox 将其 **Plus** 计划的价格从每月 10 美元上调至 12 美元。如果你想把你疯狂的云存储支出控制在预算之内，你就必须少喝一杯咖啡。
 

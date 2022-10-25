@@ -1,6 +1,6 @@
 # 锻炼不应该让人觉得可怕
 
-> 原文:[https://life hacker . com/exercise-should nt-feel-terrible-1844763622](https://lifehacker.com/exercise-shouldnt-feel-horrible-1844763622)
+> 原文：<https://lifehacker.com/exercise-shouldnt-feel-horrible-1844763622>
 
 痛苦并不是锻炼的必要部分，还是锻炼的一个衡量标准。
 

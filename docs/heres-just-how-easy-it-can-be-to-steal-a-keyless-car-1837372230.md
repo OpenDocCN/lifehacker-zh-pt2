@@ -1,6 +1,6 @@
 # 这就是用无钥匙进入偷车有多容易
 
-> 原文:[https://jalopnik . com/heres-just-how-it-easy-can-be-to-lease-a keyless-car-1837372230](https://jalopnik.com/heres-just-how-easy-it-can-be-to-steal-a-keyless-car-1837372230)
+> 原文：<https://jalopnik.com/heres-just-how-easy-it-can-be-to-steal-a-keyless-car-1837372230>
 
 众所周知，无钥匙进入系统 [不能完全保护你免受汽车盗窃](https://jalopnik.com/thieves-steal-a-car-in-20-seconds-by-remotely-cloning-t-1826451687) 。这并没有阻止汽车制造商制造这种汽车，或者阻止消费者购买这种汽车，但是这段视频展示了偷窃几种不同的无钥匙汽车是多么容易，这可能会改变一些人的想法。
 

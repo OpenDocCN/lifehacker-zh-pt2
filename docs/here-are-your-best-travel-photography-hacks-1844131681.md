@@ -1,6 +1,6 @@
 # 以下是你最好的旅行摄影技巧
 
-> 原文:[https://life hacker . com/here-are-your-best-travel-photography-hacks-1844131681](https://lifehacker.com/here-are-your-best-travel-photography-hacks-1844131681)
+> 原文：<https://lifehacker.com/here-are-your-best-travel-photography-hacks-1844131681>
 
 你可能和我一样，怀念在度假时欣赏风景，并想出如何用相机最好地捕捉风景的日子。但现在你被困在家里，你的 DSLR 落满灰尘；你手机的照片档案里都是你的猫的照片。我们知道这是怎么回事。但是，嘿，这是一个完美的时间来提高你的摄影技巧。也许你家后院杜鹃花的照片不会像那次你在日落时拍摄泰姬陵那样令人兴奋，但一旦旅行重新全面展开，你现在学到的东西可以帮助你。(如果你提高最新的猫肖像的对比度？*高剧*。)
 

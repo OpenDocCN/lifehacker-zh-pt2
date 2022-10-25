@@ -1,6 +1,6 @@
 # 你的孩子可能用了太多的牙膏
 
-> 原文:[https://life hacker . com/your-kid-is-maybe-use-way-over-mufty-1833130163](https://lifehacker.com/your-kid-is-probably-using-way-too-much-toothpaste-1833130163)
+> 原文：<https://lifehacker.com/your-kid-is-probably-using-way-too-much-toothpaste-1833130163>
 
 当我的女儿蹒跚学步时，她讨厌刷牙，但一旦我们发现她喜欢的牙膏味道(当然是粉红色的泡泡糖)，她的视角立即转移到“OOOH 糖果！”每次我挤一些到她的牙刷上，她都抱怨，“太少了！”她想要一整口的东西，虽然我知道我不能让她吃，但我只是模糊地知道为什么。
 

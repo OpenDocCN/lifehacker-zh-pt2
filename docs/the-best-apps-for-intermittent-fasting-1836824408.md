@@ -1,6 +1,6 @@
 # 间歇性禁食的最佳应用
 
-> 原文:[https://life hacker . com/the-best-apps-for-intermittent-fasting-1836824408](https://lifehacker.com/the-best-apps-for-intermittent-fasting-1836824408)
+> 原文：<https://lifehacker.com/the-best-apps-for-intermittent-fasting-1836824408>
 
 间歇性禁食并不神奇，但对于那些设法坚持的人来说，它 [是一种很好的减肥工具](https://vitals.lifehacker.com/we-finally-have-long-term-data-on-an-intermittent-fasti-1794877196) 。如果是你，考虑使用这些禁食追踪器来提醒你开始和结束时间，并记录你过去坚持计划的情况。
 

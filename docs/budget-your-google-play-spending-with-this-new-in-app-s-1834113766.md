@@ -1,6 +1,6 @@
 # 使用这一新的应用内设置来预算您的 Google Play 支出
 
-> 原文:[https://life hacker . com/budget-your-Google-play-spending-with this-new-in-app-s-1834113766](https://lifehacker.com/budget-your-google-play-spending-with-this-new-in-app-s-1834113766)
+> 原文：<https://lifehacker.com/budget-your-google-play-spending-with-this-new-in-app-s-1834113766>
 
 [Lifehacker's Complete Guide to Android](https://androidos.kinja.com)) : title[![](../Images/e2dcc498f7314a475ad7b9879a9d5584.png)](https://androidos.kinja.com)[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)Don't get overwhelmed by Android's many (many!) settings and apps. Master your Android phone or tablet with our ample collection of guides, tips, and tricks.
 

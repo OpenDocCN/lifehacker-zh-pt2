@@ -1,6 +1,6 @@
 # 这是正常费用比率费用的样子
 
-> 原文:[https://life hacker . com/this-is-a-a-normal-expense-ratio-fee-like-1837579055](https://lifehacker.com/this-is-what-a-normal-expense-ratio-fee-looks-like-1837579055)
+> 原文：<https://lifehacker.com/this-is-what-a-normal-expense-ratio-fee-looks-like-1837579055>
 
 你为你的投资组合支付什么样的费用比率？你知不知道为了把你辛苦赚来的钱存在某个特定的基金里，你应该付出多少？
 

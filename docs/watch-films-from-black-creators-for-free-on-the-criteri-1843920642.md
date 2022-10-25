@@ -1,6 +1,6 @@
 # 在标准频道免费观看黑人创作者的电影
 
-> 原文:[https://life hacker . com/watch-films-from-black-creators-for-free-on-the-criteri-1843920642](https://lifehacker.com/watch-films-from-black-creators-for-free-on-the-criteri-1843920642)
+> 原文：<https://lifehacker.com/watch-films-from-black-creators-for-free-on-the-criteri-1843920642>
 
 随着对警察暴力对待美国黑人的持续抗议，人们重新关注提升黑人作家、艺术家、思想家和创作者声音的重要性，标准频道正在免费观看黑人创作者的大量电影，并以黑人生活为中心。
 几十年来，Criterion 系列一直是宣布电影经典的响亮声音，并被电影爱好者广泛认为是电影标签的黄金标准。Criterion— [该公司](https://www.criterion.com/)—长期以来一直通过其家庭媒体发布支持“来自世界各地的重要经典和当代电影”，自 2019 年以来，t [he Criterion Channel 流媒体服务](https://www.criterionchannel.com/) 。

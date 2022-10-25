@@ -1,6 +1,6 @@
 # 当每个人都在做家务时，拿起你的旧书
 
-> 原文:[https://life hacker . com/get-your-used-books-while-everyones-kondo-ing-their-hom-1831838036](https://lifehacker.com/get-your-used-books-while-everyones-kondo-ing-their-hom-1831838036)
+> 原文：<https://lifehacker.com/get-your-used-books-while-everyones-kondo-ing-their-hom-1831838036>
 
 很抱歉，但我们还在谈论玛丽·近藤。据 [【美国有线电视新闻网】](https://www.cnn.com/2019/01/12/entertainment/marie-kondo-konmari-tidying-up-netflix-trnd/index.html)[【纽约客】](https://www.newyorker.com/culture/on-and-off-the-avenue/the-marie-kondo-effect-reaches-beacons-closet) 和西雅图的 [陌生人](https://www.thestranger.com/slog/2019/01/14/37974426/i-marie-kondod-my-life-and-so-did-everyone-else-in-seattle-apparently) 报道，她的网飞秀*大受欢迎，导致对旧货店和二手书店的捐赠增加。并不是每个书店都有更多的新书，但是很多书店都有，包括纽约的 [房屋工程书店咖啡馆](https://www.housingworks.org/locations/bookstore-cafe) ，这是一个两层楼的书店，里面全是捐赠的书籍。现在是时候拿着你的“想读”清单去二手书店进货了，而其他人都在打扫房子。* 
 

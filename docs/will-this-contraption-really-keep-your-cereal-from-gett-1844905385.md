@@ -1,6 +1,6 @@
 # 这个装置真的能防止你的麦片变湿吗？
 
-> 原文:[https://life hacker . com/will-this-paraffin-really-keep-your-麦片 from-gett-1844905385](https://lifehacker.com/will-this-contraption-really-keep-your-cereal-from-gett-1844905385)
+> 原文：<https://lifehacker.com/will-this-contraption-really-keep-your-cereal-from-gett-1844905385>
 
 [谷](https://lifehacker.com/will-this-tiktok-cereal-box-hack-solve-all-your-breakfa-1844544160) 现在是我们的 [官方在 Hack 或者 Wack 这里打](https://lifehacker.com/add-structure-to-your-day-with-the-perfect-morning-rout-1844606619) 。就在你以为我们不可能再测试任何方法来改进盒装干货的时候，Lifehacker 找到了一个方法。
 

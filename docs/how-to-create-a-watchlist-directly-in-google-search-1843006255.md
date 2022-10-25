@@ -1,6 +1,6 @@
 # 如何在谷歌搜索中直接创建观察列表
 
-> 原文:[https://life hacker . com/how-to-create-a-watch list-directly-in-Google-search-1843006255](https://lifehacker.com/how-to-create-a-watchlist-directly-in-google-search-1843006255)
+> 原文：<https://lifehacker.com/how-to-create-a-watchlist-directly-in-google-search-1843006255>
 
 既然我们都在家里花了更多的时间观看电视节目和电影，保持一个强大的“看什么”队列比以往任何时候都更重要。如果你已经注册了几个新的流媒体服务来让你在隔离区娱乐，这可能也更难管理——但是谷歌移动搜索的一个新功能可以帮助简化这个过程。
 

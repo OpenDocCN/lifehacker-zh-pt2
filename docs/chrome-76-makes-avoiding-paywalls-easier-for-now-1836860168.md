@@ -1,6 +1,6 @@
 # Chrome 76 让避免付费墙变得更容易——目前如此
 
-> 原文:[https://life hacker . com/chrome-76-makes-avoiding-pay walls-easy-for-now-1836860168](https://lifehacker.com/chrome-76-makes-avoiding-paywalls-easier-for-now-1836860168)
+> 原文：<https://lifehacker.com/chrome-76-makes-avoiding-paywalls-easier-for-now-1836860168>
 
 谷歌最新版本的 Chrome 浏览器终于发布了，第 76 版浏览器拥有大量的小功能来改善你的浏览体验:一个新的安装按钮出现在你的渐进网络应用程序的地址栏中，一种新的方式来偏好网站的“黑暗模式”风格，如果你喜欢你的浏览体验，以及浏览器中默认阻止的 Flash。
 

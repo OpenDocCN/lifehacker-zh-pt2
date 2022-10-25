@@ -1,6 +1,6 @@
 # 迪士尼正在发行一系列冷冻短片
 
-> 原文:[https://life hacker . com/Disney-is-release-a-series-of-freeze-short-films-1842750850](https://lifehacker.com/disney-is-releasing-a-series-of-frozen-short-films-1842750850)
+> 原文：<https://lifehacker.com/disney-is-releasing-a-series-of-frozen-short-films-1842750850>
 
 三月份，当迪士尼提前三个月向迪士尼+发布《冰雪奇缘 2》时，迪士尼听到并回应了各地父母的祈祷。这是一个 1 小时 43 分钟的亮点，我们现在知道这只是一个非常漫长，非常孤立的疫情的开始。但是迪士尼的动画师和演员现在都在家，就像其他人一样，所以他们决定聚在一起(象征性地)给我们带来一点额外的快乐。
 

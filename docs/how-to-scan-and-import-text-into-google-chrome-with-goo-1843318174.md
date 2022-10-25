@@ -1,6 +1,6 @@
 # 如何用谷歌镜头扫描文本并导入谷歌 Chrome
 
-> 原文:[https://life hacker . com/how-to-scan-and-import-text-into-Google-chrome-with-goo-1843318174](https://lifehacker.com/how-to-scan-and-import-text-into-google-chrome-with-goo-1843318174)
+> 原文：<https://lifehacker.com/how-to-scan-and-import-text-into-google-chrome-with-goo-1843318174>
 
 Google Lens 多年来一直允许用户使用智能手机摄像头扫描、保存和翻译文本，但最近的更新增加了新功能，如文本到语音的叙述、条形码扫描，以及最近的更新，可以拍摄文本照片——包括*手写文本—* ,并将翻译结果直接发送到您的 PC。
 

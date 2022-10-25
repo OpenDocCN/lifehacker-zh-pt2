@@ -1,6 +1,6 @@
 # 奥林巴斯和徕卡现在正在提供免费的摄影课程
 
-> 原文:[https://life hacker . com/Olympus-and-Leica-正在提供免费摄影课程-1842823727](https://lifehacker.com/olympus-and-leica-are-offering-free-photography-courses-1842823727)
+> 原文：<https://lifehacker.com/olympus-and-leica-are-offering-free-photography-courses-1842823727>
 
 如果你一直在利用你的社交距离来提高你的摄影技巧，那么现在你有更多的方法来做到这一点。
 

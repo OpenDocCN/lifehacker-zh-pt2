@@ -1,6 +1,6 @@
 # 如何卸载 Windows 10 不必要的“KB4532441”更新
 
-> 原文:[https://life hacker . com/how-to-uninstall-windows-10s-不必要-kb4532441-upda-1840390785](https://lifehacker.com/how-to-uninstall-windows-10s-unnecessary-kb4532441-upda-1840390785)
+> 原文：<https://lifehacker.com/how-to-uninstall-windows-10s-unnecessary-kb4532441-upda-1840390785>
 
 微软不小心又推了一个不必要的 Windows 10 更新。本周的“ [KB4532441](https://support.microsoft.com/en-us/help/4532441/cumulative-update-for-autopilot-in-windows-10-versions-1903-1909) ”更新面向 Windows 10 的普通用户，尽管该更新是针对那些使用 Windows Autopilot 的用户——这是 IT 部门设置和管理新电脑的一种方式。微软甚至向非自动驾驶用户发布了一些安装更新的提醒，尽管这是不必要的。
 

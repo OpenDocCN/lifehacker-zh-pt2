@@ -1,6 +1,6 @@
 # 不要让你的孩子欺负他们的兄弟姐妹
 
-> 原文:[https://life hacker . com/don ' t-let-your-kid-bully-their-sibling-1838661797](https://lifehacker.com/dont-let-your-kid-bully-their-sibling-1838661797)
+> 原文：<https://lifehacker.com/dont-let-your-kid-bully-their-sibling-1838661797>
 
 姐弟要打架了。他们将在长途(或短途)汽车旅行中互相戳戳。他们会努力成为第一个出门的人。他们将争夺电视遥控器的控制权。过一会儿，它会开始听起来像有多个孩子的家庭的常规背景噪音。但是，典型的兄弟姐妹竞争或争吵可能演变成全面的欺凌——这是不正常的*或*好吧。
 

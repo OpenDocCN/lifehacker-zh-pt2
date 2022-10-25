@@ -1,6 +1,6 @@
 # 如何设置不会吵醒室友的闹钟
 
-> 原文:[https://life hacker . com/how-to-set-a-alarm-that-won-wake-your-roommate-up-1831966078](https://lifehacker.com/how-to-set-an-alarm-that-wont-wake-your-roommate-up-1831966078)
+> 原文：<https://lifehacker.com/how-to-set-an-alarm-that-wont-wake-your-roommate-up-1831966078>
 
 我和另外四个人住在一起，其中三个是脾气暴躁的孩子。如果我需要早起，我想偷偷溜出家门，不让别人醒来。但是如果我设置了一个安静的，微妙的警报，那么我也会忽略它。
 

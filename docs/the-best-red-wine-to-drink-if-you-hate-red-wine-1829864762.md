@@ -1,6 +1,6 @@
 # 如果你讨厌红酒，最好喝红酒
 
-> 原文:[https://life hacker . com/the-best-red-wine-to-drink-if-you-hate-red-wine-1829864762](https://lifehacker.com/the-best-red-wine-to-drink-if-you-hate-red-wine-1829864762)
+> 原文：<https://lifehacker.com/the-best-red-wine-to-drink-if-you-hate-red-wine-1829864762>
 
 有些人喜欢红色，有些人喜欢白色。
 

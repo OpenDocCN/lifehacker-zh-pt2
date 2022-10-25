@@ -1,6 +1,6 @@
 # 如何在没有厨房麻线的情况下烹饪皇冠烤肉
 
-> 原文:[https://life hacker . com/how-to-cook-a-crown-bake-within-1830682748](https://lifehacker.com/how-to-cook-a-crown-roast-without-kitchen-twine-1830682748)
+> 原文：<https://lifehacker.com/how-to-cook-a-crown-roast-without-kitchen-twine-1830682748>
 
 假期是展示令人叫绝的主菜的时候，没有什么比完全由肉做成的皇冠更能阻止表演了。大多数皇冠烤肉都是用一些厨房麻线做成的，但是如果你没有，阿尔顿·布朗(非常聪明地)建议使用 bundt 烤盘。
 

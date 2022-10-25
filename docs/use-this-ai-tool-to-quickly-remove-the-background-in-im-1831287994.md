@@ -1,6 +1,6 @@
 # 使用这个人工智能工具，不用 Photoshop 就可以快速去除图像中的背景
 
-> 原文:[https://life hacker . com/use-this-ai-tool-to-quick-remove-the-background-in-im-1831287994](https://lifehacker.com/use-this-ai-tool-to-quickly-remove-the-background-in-im-1831287994)
+> 原文：<https://lifehacker.com/use-this-ai-tool-to-quickly-remove-the-background-in-im-1831287994>
 
 去除图像中的背景通常需要知道如何使用照片编辑软件，或者寻求其他人的帮助。现在有了另一种解决方案:使用 AI。
 

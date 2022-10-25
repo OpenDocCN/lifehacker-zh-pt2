@@ -1,6 +1,6 @@
 # 如何修复随机关机的 MacBook
 
-> 原文:[https://life hacker . com/how-to-fix-your-macbook-the-random-shut-down-1840207295](https://lifehacker.com/how-to-fix-your-macbook-that-randomly-shuts-down-1840207295)
+> 原文：<https://lifehacker.com/how-to-fix-your-macbook-that-randomly-shuts-down-1840207295>
 
 你的 MacBook Pro 是否会随机关机，即使电池续航时间很长？你并不孤单；MacBook Pros 过早关机的报告出现在各种 [论坛和支持线程](https://forums.macrumors.com/threads/macbook-pro-2019-entry-level-battery-issues.2192339/) 上。到目前为止，苹果公司已经证实了 2019 年 13 英寸 MacBook Pro 的随机关机行为，尽管 [Mashable 报告了](https://mashable.com/article/macbook-pro-random-shutdown-fix/)2017 年的 13 英寸 MacBook Pro 型号也出现了类似的问题，因此该漏洞可能比苹果公司迄今为止承认的更广泛。
 

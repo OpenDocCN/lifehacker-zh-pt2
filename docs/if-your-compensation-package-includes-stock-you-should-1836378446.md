@@ -1,6 +1,6 @@
 # 如果你的薪酬包包括股票，你应该知道这个税收规则
 
-> 原文:[https://life hacker . com/if-your-compensation-package-includes-stock-you-should-1836378446](https://lifehacker.com/if-your-compensation-package-includes-stock-you-should-1836378446)
+> 原文：<https://lifehacker.com/if-your-compensation-package-includes-stock-you-should-1836378446>
 
 如果你为一个小企业或初创公司工作，并收到股票作为你的员工薪酬的一部分，请向你的会计师询问合格的小企业股票免税。
 

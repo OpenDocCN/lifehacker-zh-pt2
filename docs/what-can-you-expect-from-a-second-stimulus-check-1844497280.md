@@ -1,6 +1,6 @@
 # 你能从第二轮刺激计划中期待什么？
 
-> 原文:[https://life hacker . com/what-can-expect-from-a second-stimulus-check-1844497280](https://lifehacker.com/what-can-you-expect-from-a-second-stimulus-check-1844497280)
+> 原文：<https://lifehacker.com/what-can-you-expect-from-a-second-stimulus-check-1844497280>
 
 随着国会为下一个刺激方案制定细节，有一点已经得到了确认——另一轮刺激检查。正如 [华尔街日报](https://www.wsj.com/articles/second-stimulus-payment-could-deliver-cash-even-faster-11595522449) 报道的那样，国会仍然需要批准第二笔付款，决定细节，并获得特朗普总统的签署——这可能需要几周时间。但一旦发生这种情况，第二张支票可能会更快到达，因为 IRS 系统已经在第一张支票上就位。
 

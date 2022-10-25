@@ -1,6 +1,6 @@
 # 在蹩脚的机场酒吧点的最好的饮料
 
-> 原文:[https://life hacker . com/the-best-drink-to-order-at-a-lappy-airport-bar-1836423617](https://lifehacker.com/the-best-drink-to-order-at-a-crappy-airport-bar-1836423617)
+> 原文：<https://lifehacker.com/the-best-drink-to-order-at-a-crappy-airport-bar-1836423617>
 
 有时，虽然不是你自己的错，你发现自己在机场要消磨几个小时。你真的只有三个选择:读书，花钱买你不需要(甚至不想要)的东西，或者喝酒。我通常至少喝两杯，如果不是全部三杯的话，但是如果只有一杯酒是辣椒酒的话，那就很难从中得到快乐。
 

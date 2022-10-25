@@ -1,6 +1,6 @@
 # 如果你想回收食物容器，它应该有多干净？
 
-> 原文:[https://the take out . com/how-clean-do-recyclables-have-to-food-1839236927](https://thetakeout.com/how-clean-do-recyclables-have-to-be-food-1839236927)
+> 原文：<https://thetakeout.com/how-clean-do-recyclables-have-to-be-food-1839236927>
 
 在做好晚餐，收拾好剩菜，清理好炉子，洗好我的盘子后，你盯着玻璃罐口的意大利面酱。在把罐子扔进回收箱之前，你真的需要额外的努力去清洗它吗？一点点额外的食物真的会让一件物品变得不适合回收吗？
 

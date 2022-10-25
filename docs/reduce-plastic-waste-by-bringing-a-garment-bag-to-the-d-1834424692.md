@@ -1,6 +1,6 @@
 # 把服装袋拿到干洗店，减少塑料垃圾
 
-> 原文:[https://life hacker . com/reduce-plastic-waste by-bring-a-a-cloth-bag-to-d-1834424692](https://lifehacker.com/reduce-plastic-waste-by-bringing-a-garment-bag-to-the-d-1834424692)
+> 原文：<https://lifehacker.com/reduce-plastic-waste-by-bringing-a-garment-bag-to-the-d-1834424692>
 
 每年春天，我都会干洗十几件冬季大衣。等我把它们放回壁橱时，我已经有足够的几乎没用过的塑料材料来包装我的整个公寓了。
 

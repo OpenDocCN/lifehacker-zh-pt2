@@ -1,6 +1,6 @@
 # 今天就在塔可钟餐厅免费获得一份“偷垒”塔可饼
 
-> 原文:[https://life hacker . com/get-a-free-steal-a-base-taco-at-taco-bell-today-1839469662](https://lifehacker.com/get-a-free-steal-a-base-taco-at-taco-bell-today-1839469662)
+> 原文：<https://lifehacker.com/get-a-free-steal-a-base-taco-at-taco-bell-today-1839469662>
 
 这一天已经到来，塔可钟的粉丝们。又到了这个棒球季后赛的庆祝活动 [偷一个垒，偷一个玉米卷](https://www.tacobell.com/stealataco/) 的时候了。塔可钟的年度传统规定，如果一名球员在世界职业棒球大赛期间的任何时候偷了一个垒，美国就会得到塔可钟。嗯，就一个玉米卷。请排好队。
 

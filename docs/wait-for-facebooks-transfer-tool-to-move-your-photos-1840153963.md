@@ -1,6 +1,6 @@
 # 等待脸书的传输工具来移动您的照片
 
-> 原文:[https://life hacker . com/wait-for-face books-transfer-tool-to-move-your-photos-1840153963](https://lifehacker.com/wait-for-facebooks-transfer-tool-to-move-your-photos-1840153963)
+> 原文：<https://lifehacker.com/wait-for-facebooks-transfer-tool-to-move-your-photos-1840153963>
 
 如果你一直梦想将你在脸书的照片和视频转移到另一个服务上，你可能需要再等一段时间。脸书将使这一过程比今天的技术简单得多: [下载你所有的数据](https://www.facebook.com/dyi/?x=AdkHEsKAriLKv7Lm) ，整理你的媒体，然后坐在那里，而你的电脑永远需要把它上传到 [另一个云存储服务](https://lifehacker.com/google-one-is-now-open-for-everyone-but-is-it-a-good-d-1826049257) 。
 

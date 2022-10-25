@@ -1,6 +1,6 @@
 # 如何参加这个周末的名人“家庭聚会”
 
-> 原文:[https://life hacker . com/how-to-accept-a-celebrity-house party-this-weekend-1843462892](https://lifehacker.com/how-to-attend-a-celebrity-houseparty-this-weekend-1843462892)
+> 原文：<https://lifehacker.com/how-to-attend-a-celebrity-houseparty-this-weekend-1843462892>
 
 Houseparty 是我最喜欢的视频聊天应用之一。几年前我曾在这里写过这个话题 ，但在过去的几个月里，我们都在寻找与朋友虚拟联系的新方式，所以这个话题变得有些冷清。该应用通常用于与你已经认识的人互动，但本周末它将举办一个新的“室内”派对系列——由名人主持！(我想你不认识这些名人。)
 

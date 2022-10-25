@@ -1,6 +1,6 @@
 # 用这个应用程序为你的日常生活检查天气
 
-> 原文:[https://life hacker . com/check-the-weather for the-your ' s daily-routine-this-app-1831947991](https://lifehacker.com/check-the-weather-for-your-daily-routine-with-this-app-1831947991)
+> 原文：<https://lifehacker.com/check-the-weather-for-your-daily-routine-with-this-app-1831947991>
 
 iOS: 有很多应用程序可以用来查看早上的天气，包括任何默认情况下已经内置在智能手机中的工具。如果你用的是 iPhone，我推荐你看一下[](http://www.aweatherway.com/)**，这是一个可爱的小应用程序，可以让你看到天气对你日常生活的影响。** 
 

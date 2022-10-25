@@ -1,6 +1,6 @@
 # 使用该网站预订后，可以获得更便宜的酒店价格
 
-> 原文:[https://life hacker . com/get-price-hotel-prices-after-you-book-use-this-site-1831909284](https://lifehacker.com/get-cheaper-hotel-prices-after-you-book-using-this-site-1831909284)
+> 原文：<https://lifehacker.com/get-cheaper-hotel-prices-after-you-book-using-this-site-1831909284>
 
 在你预订之后，你的酒店房间的价格很有可能会下降。当预订情况不尽如人意，或者很明显他们会有很多空房时，酒店通常会降低价格。
 

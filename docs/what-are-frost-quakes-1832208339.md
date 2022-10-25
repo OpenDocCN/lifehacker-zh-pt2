@@ -1,6 +1,6 @@
 # 什么是“霜冻地震”？
 
-> 原文:[https://lifehacker.com/what-are-frost-quakes-1832208339](https://lifehacker.com/what-are-frost-quakes-1832208339)
+> 原文：<https://lifehacker.com/what-are-frost-quakes-1832208339>
 
 今天美国各地气温骤降，中西部部分地区遭遇零下 40 度、50 度甚至 60 度的寒风——这是华氏*度*的。似乎冰冻的管道和冻伤还不够危险，一些人正在了解超冷天气更罕见、更可怕的副作用之一:冰冻地震，或“霜冻地震”
 

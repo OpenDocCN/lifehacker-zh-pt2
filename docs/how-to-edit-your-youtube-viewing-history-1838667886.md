@@ -1,6 +1,6 @@
 # 如何编辑您的 YouTube 观看历史
 
-> 原文:[https://life hacker . com/how-to-edit-your-YouTube-viewing-history-1838667886](https://lifehacker.com/how-to-edit-your-youtube-viewing-history-1838667886)
+> 原文：<https://lifehacker.com/how-to-edit-your-youtube-viewing-history-1838667886>
 
 我们都可能出于病态的好奇点击了一个视频——也许是为了“讨厌地观看”一个特定的音乐视频，或者捕捉一个你特别不喜欢的公众人物值得畏缩的时刻。看够了这些视频，YouTube 就会自动播放并推荐你不喜欢的视频，甚至有可能取代你喜欢看的话题和频道。
 

@@ -1,6 +1,6 @@
 # 捣碎的橄榄是很好的腌泡汁
 
-> 原文:[https://life hacker . com/pureed-olives-make-a-great-marinade-1831491886](https://lifehacker.com/pureed-olives-make-a-great-marinade-1831491886)
+> 原文：<https://lifehacker.com/pureed-olives-make-a-great-marinade-1831491886>
 
 也许是因为我喜欢牛排晚餐配马丁尼酒，但咸咸的、咸咸的、略带水果味的橄榄似乎一直是黄油牛肉的天然风味伴侣。用酱料浇头是非常好的，但是用橄榄酱做卤汁就更上一层楼了。
 

@@ -1,6 +1,6 @@
 # 分部 Kotaku 评论
 
-> 原文:[https://kotaku . com/the-division-2-the-kotaku-review-1834087193](https://kotaku.com/the-division-2-the-kotaku-review-1834087193)
+> 原文：<https://kotaku.com/the-division-2-the-kotaku-review-1834087193>
 
 在*第二代*首次发售的几天后，在第一波积极反应之后，游戏玩家发现了一个大问题。
 

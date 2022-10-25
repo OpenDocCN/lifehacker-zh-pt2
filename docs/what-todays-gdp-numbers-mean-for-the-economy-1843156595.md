@@ -1,6 +1,6 @@
 # 今天的 GDP 数字对经济意味着什么
 
-> 原文:[https://life hacker . com/what-todays-GDP-numbers-mean-for-the-economy-1843156595](https://lifehacker.com/what-todays-gdp-numbers-mean-for-the-economy-1843156595)
+> 原文：<https://lifehacker.com/what-todays-gdp-numbers-mean-for-the-economy-1843156595>
 
 关于经济状况的最新报告再次出现了那个可怕的词:衰退。
 

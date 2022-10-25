@@ -1,6 +1,6 @@
 # 你剩下的火腿骨头注定是红豆和米饭
 
-> 原文:[https://life hacker . com/your-left-ham-bone-is-destined to-红豆-ri-1831345476](https://lifehacker.com/your-leftover-ham-bone-is-destined-for-red-beans-and-ri-1831345476)
+> 原文：<https://lifehacker.com/your-leftover-ham-bone-is-destined-for-red-beans-and-ri-1831345476>
 
 圣诞节和新年之间的时间很奇怪。事情感觉奇怪的节日，同时有点沮丧，我从来不知道今天是什么日子，我非常，非常厌倦食物。我不仅厌倦了冰箱里的节日剩菜，我还厌倦了思考一般的食物。显然，解决我与食物相关的问题的方法是更多的食物，而这些食物就是红豆和米饭。
 

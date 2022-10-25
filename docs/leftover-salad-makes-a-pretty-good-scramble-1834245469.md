@@ -1,6 +1,6 @@
 # 将剩下的沙拉加入你的炒鸡蛋中
 
-> 原文:[https://life hacker . com/left-salad-makes-a-pretty-good-scramble-1834245469](https://lifehacker.com/leftover-salad-makes-a-pretty-good-scramble-1834245469)
+> 原文：<https://lifehacker.com/leftover-salad-makes-a-pretty-good-scramble-1834245469>
 
 在沙拉吧很容易变得过于热情。我倾向于高估我的食欲，低估纤维的填充性质，因此通常会以至少半杯沙拉结束，这些沙拉都是无处可去的。除非它是由坚固的材料制成，否则第二天的沙拉是一件悲伤的事情，但只有当你试图把它当作沙拉来吃的时候。然而，把它炒一炒，你就能以一种良性的方式开始你的一天。
 

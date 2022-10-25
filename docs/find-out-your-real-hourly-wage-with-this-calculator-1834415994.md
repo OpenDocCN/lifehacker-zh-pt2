@@ -1,6 +1,6 @@
 # 用这个计算器算出你的实际时薪
 
-> 原文:[https://life hacker . com/find-out-your ' s real-hour-wage with this calculator-1834415994](https://lifehacker.com/find-out-your-real-hourly-wage-with-this-calculator-1834415994)
+> 原文：<https://lifehacker.com/find-out-your-real-hourly-wage-with-this-calculator-1834415994>
 
 当我试图决定是否接受一个新的自由职业项目时，我会寻找至少每小时 100 美元的工作
 

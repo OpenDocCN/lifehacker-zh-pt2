@@ -1,6 +1,6 @@
 # 关于你大学账单上的冠状病毒费用，你该知道些什么
 
-> 原文:[https://life hacker . com/what-to-know-about-coronavirus-charges-on-your-college-1844752829](https://lifehacker.com/what-to-know-about-coronavirus-charges-on-your-college-1844752829)
+> 原文：<https://lifehacker.com/what-to-know-about-coronavirus-charges-on-your-college-1844752829>
 
 随着大学生返校，一些人已经注意到他们账单上的一个新项目:冠状病毒费。《纽约时报》报道 一些学院和大学将部分费用转嫁给学生。虽然学校希望联邦资金可以支付一些新的大流行相关的费用，但不能保证这是否或何时会发生。与此同时，学校要求学生和家长帮助他们买单。
 

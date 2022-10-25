@@ -1,6 +1,6 @@
 # 如何度过自由职业者的干旱期
 
-> 原文:[https://life hacker . com/how-to-survive-a-freelance-dry-spell-1834640324](https://lifehacker.com/how-to-survive-a-freelance-dry-spell-1834640324)
+> 原文：<https://lifehacker.com/how-to-survive-a-freelance-dry-spell-1834640324>
 
 如果你没有以前那么多自由职业者的工作，是时候重新开始了。
 

@@ -1,6 +1,6 @@
 # 为什么聪明人会犯愚蠢的错误
 
-> 原文:[https://life hacker . com/why-smart-people-make-愚蠢-错误-1831503216](https://lifehacker.com/why-smart-people-make-stupid-mistakes-1831503216)
+> 原文：<https://lifehacker.com/why-smart-people-make-stupid-mistakes-1831503216>
 
 如你所知，当其他人犯愚蠢的错误时，那是因为他们根本就不可救药。当*你*犯了一个愚蠢的错误时，那是因为特定的情况，或者因为其他人根本不称职。国际象棋大师、《普林斯顿评论》创始人亚当·罗宾逊(Adam Robinson)指出了让聪明人做出愚蠢行为的七个因素。你会认识到其中的一些——例如，在匆忙中——并且了解其他的会帮助你避免更多愚蠢的错误。
 

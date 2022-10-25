@@ -1,6 +1,6 @@
 # 如何坚持你的创作目标
 
-> 原文:[https://life hacker . com/stick-to-your-creative-goals-by-use the-theory-1839031832](https://lifehacker.com/stick-to-your-creative-goals-by-using-this-theory-1839031832)
+> 原文：<https://lifehacker.com/stick-to-your-creative-goals-by-using-this-theory-1839031832>
 
 下一次，当你担心你想创造性地做的事情已经被别人做了，或者对你需要多少时间才能变得像你希望的那样擅长你的创造性工作感到焦虑时，告诉你自己你在一辆公共汽车上。在芬兰的赫尔辛基。你能为你的职业生涯做的最重要的事情是*不要太早下车*。
 

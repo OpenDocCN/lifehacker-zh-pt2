@@ -1,6 +1,6 @@
 # 为什么你应该每天喂你的猫 5 次
 
-> 原文:[https://life hacker . com/why-you-should-feed-your-cat-a-time-1844307115](https://lifehacker.com/why-you-should-feed-your-cat-5-times-a-day-1844307115)
+> 原文：<https://lifehacker.com/why-you-should-feed-your-cat-5-times-a-day-1844307115>
 
 你有没有那种猫，它会在早上不吉利的时候抓你的脸，直到你最终心软起来？然后她/他会继续喵喵叫，直到你填满他们的食物碗吗？并不是说你的猫异常贪吃；可能是它们在告诉你，这是它们的自然进食时间。
 

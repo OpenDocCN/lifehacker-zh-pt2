@@ -1,6 +1,6 @@
 # 是否应该因为冠状病毒而取消行程？
 
-> 原文:[https://life hacker . com/should-you-cancel-you-you-course-for-the-coronavirus-1842121371](https://lifehacker.com/should-you-cancel-your-trip-because-of-the-coronavirus-1842121371)
+> 原文：<https://lifehacker.com/should-you-cancel-your-trip-because-of-the-coronavirus-1842121371>
 
 如果您因为冠状病毒的传播而考虑取消您的旅行计划，值得问自己三个问题:
 

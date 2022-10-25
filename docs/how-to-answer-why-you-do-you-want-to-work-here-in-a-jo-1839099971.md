@@ -1,6 +1,6 @@
 # 如何回答“你为什么想在这里工作？”在求职面试中
 
-> 原文:[https://life hacker . com/how-to-answer-why-you-do-you-want-to-work-here-in-a-jo-1839099971](https://lifehacker.com/how-to-answer-why-you-do-you-want-to-work-here-in-a-jo-1839099971)
+> 原文：<https://lifehacker.com/how-to-answer-why-you-do-you-want-to-work-here-in-a-jo-1839099971>
 
 所以你已经顺利完成了一场漫长的工作面试。但是就在你可以自信地出门之前，招聘经理又问了你一个小问题:“你为什么想在这里工作？”
 

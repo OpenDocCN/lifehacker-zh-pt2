@@ -1,6 +1,6 @@
 # 如何应对长期压力的影响
 
-> 原文:[https://life hacker . com/how-to-deal-the-effects of-the-long-term-stress-1843178914](https://lifehacker.com/how-to-deal-with-the-effects-of-long-term-stress-1843178914)
+> 原文：<https://lifehacker.com/how-to-deal-with-the-effects-of-long-term-stress-1843178914>
 
 在疫情呆了两个月，很难记起以前的生活是什么样子。真的有那么一段时间，我们觉得去杂货店买些东西做晚餐没什么大不了的吗？我们真的曾经遇见过朋友，在餐馆里坐在他们旁边，拥抱他们道别吗？还记得拥挤的火车只是一个小问题，而不是噩梦吗？记忆变得模糊，现实变得扭曲，因为生活已经变得模糊，充满了无尽的忧虑。压力正在改变我们思考和体验世界的方式，它也可能对我们的身体造成伤害。
 

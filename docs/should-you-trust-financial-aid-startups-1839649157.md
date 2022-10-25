@@ -1,6 +1,6 @@
 # 你应该相信财政援助创业公司吗？
 
-> 原文:[https://life hacker . com/should-you-trust-financial-aid-startups-1839649157](https://lifehacker.com/should-you-trust-financial-aid-startups-1839649157)
+> 原文：<https://lifehacker.com/should-you-trust-financial-aid-startups-1839649157>
 
 随着美国学生贷款债务加起来超过 1.5 万亿美元，难怪很多人想让支付大学费用更容易——也许还能更便宜一点。但随着科技领域涌现出一些雄心勃勃的初创公司，打算彻底改变我们支付大学学费的方式，普通借款人可能会怀疑它们是否合法。
 

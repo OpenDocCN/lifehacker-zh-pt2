@@ -1,6 +1,6 @@
 # 在开立新的信用额度之前，请检查此限制
 
-> 原文:[https://life hacker . com/before-open-a-new-credit-line-check-for-this-restri-1842966094](https://lifehacker.com/before-opening-a-new-credit-line-check-for-this-restri-1842966094)
+> 原文：<https://lifehacker.com/before-opening-a-new-credit-line-check-for-this-restri-1842966094>
 
 当你申请一张新的信用卡或决定贷款时，你会阅读细则——或者至少，你应该阅读细则。你可能会检查利率和收费表，然后让你的眼睛呆滞其余。
 

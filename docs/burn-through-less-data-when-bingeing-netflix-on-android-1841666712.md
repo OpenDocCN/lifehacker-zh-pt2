@@ -1,6 +1,6 @@
 # 在安卓系统上狂玩网飞时，烧穿的数据更少
 
-> 原文:[https://life hacker . com/burn-through-less-data-when-biging-on-Android-1841666712](https://lifehacker.com/burn-through-less-data-when-bingeing-netflix-on-android-1841666712)
+> 原文：<https://lifehacker.com/burn-through-less-data-when-bingeing-netflix-on-android-1841666712>
 
 很少有什么事情能像你最喜欢的网飞秀的新一季那样迅速地吞噬数据上限，但 Android 用户现在可以在不降低视频质量的情况下，减少该应用对他们每月数据限制的影响。这都要归功于开源的 AV1 视频编解码器，网飞现在支持 Android 流媒体。
 

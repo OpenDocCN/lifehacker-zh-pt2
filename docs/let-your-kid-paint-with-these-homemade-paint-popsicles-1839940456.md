@@ -1,6 +1,6 @@
 # 让你的孩子用这些自制的颜料冰棒画画吧
 
-> 原文:[https://life hacker . com/let-your-kid-paint-these-manufactured-paint-冰棍-1839940456](https://lifehacker.com/let-your-kid-paint-with-these-homemade-paint-popsicles-1839940456)
+> 原文：<https://lifehacker.com/let-your-kid-paint-with-these-homemade-paint-popsicles-1839940456>
 
 当我的儿子是一个学龄前儿童时，我一直在寻找新的艺术活动和他一起做。我特别喜欢那些将布置作为活动本身一部分的活动——你可以从中获得更多的收益。我们会一起自制的橡皮泥，或将玉米淀粉、水和食用色素混合在一起，制成人行道漆。
 

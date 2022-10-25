@@ -1,6 +1,6 @@
 # 通过约翰霍普金斯大学注册免费的在线联系追踪课程
 
-> 原文:[https://life hacker . com/enroll-in-a-free-online-course-on-contact-tracing-throu-1844024639](https://lifehacker.com/enroll-in-a-free-online-course-on-contact-tracing-throu-1844024639)
+> 原文：<https://lifehacker.com/enroll-in-a-free-online-course-on-contact-tracing-throu-1844024639>
 
 如果你是数百万在疫情期间失去工作，或者工作时间或工作量减少的人中的一员，你可能会考虑申请成为。如果是这样的话——或者你只是好奇这个过程是如何运作的——你现在可以通过 J [ohns Hopkins 大学的彭博公共卫生学院](https://hub.jhu.edu/2020/05/11/free-contact-tracing-course-johns-hopkins/) 注册一个关于接触者追踪的免费在线课程。以下是你需要知道的。
 

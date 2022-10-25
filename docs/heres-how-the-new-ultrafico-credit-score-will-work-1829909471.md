@@ -1,6 +1,6 @@
 # 以下是新的 UltraFICO 信用评分将如何工作
 
-> 原文:[https://life hacker . com/heres-how-the-new-ultra Fico-credit-score-will-work-1829909471](https://lifehacker.com/heres-how-the-new-ultrafico-credit-score-will-work-1829909471)
+> 原文：<https://lifehacker.com/heres-how-the-new-ultrafico-credit-score-will-work-1829909471>
 
 30 年来最大的转变是明年 FICO 信用评分的计算方式。
 

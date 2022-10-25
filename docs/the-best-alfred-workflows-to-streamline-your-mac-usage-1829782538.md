@@ -1,6 +1,6 @@
 # 简化 Mac 使用的最佳 Alfred 工作流程
 
-> 原文:[https://life hacker . com/the-best-Alfred-workflows-to-streamline-your-MAC-usage-1829782538](https://lifehacker.com/the-best-alfred-workflows-to-streamline-your-mac-usage-1829782538)
+> 原文：<https://lifehacker.com/the-best-alfred-workflows-to-streamline-your-mac-usage-1829782538>
 
 如果你是那种从不喜欢把手从键盘上拿开的 Mac 用户，像 [阿尔弗雷德](https://www.alfredapp.com) 这样的应用程序启动工具可以成为你最好的朋友。
 

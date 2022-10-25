@@ -1,6 +1,6 @@
 # 如何让你的孩子开始学钢琴
 
-> 原文:[https://life hacker . com/how-to-get-your kid-start-on-the-piano-1838012222](https://lifehacker.com/how-to-get-your-kid-started-on-the-piano-1838012222)
+> 原文：<https://lifehacker.com/how-to-get-your-kid-started-on-the-piano-1838012222>
 
 小时候，汉娜·巴特克的就寝时间和美国其他孩子一样，但有所不同:每天晚上，她都会刷牙、洗脸、穿上睡衣，然后一屁股坐在钢琴前练习。
 

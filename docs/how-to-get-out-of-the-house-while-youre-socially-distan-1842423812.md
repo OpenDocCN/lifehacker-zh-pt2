@@ -1,6 +1,6 @@
 # 如何在社交疏远时走出家门
 
-> 原文:[https://life hacker . com/how-to-get-out-the-house-while you-social-distan-1842423812](https://lifehacker.com/how-to-get-out-of-the-house-while-youre-socially-distan-1842423812)
+> 原文：<https://lifehacker.com/how-to-get-out-of-the-house-while-youre-socially-distan-1842423812>
 
 现在一切都关闭了，我们都在练习社交距离，剩下的大问题是如何安全地走出家门。在保证其他人安全的同时，保持健康的重要部分是保持至少 6 英尺的距离，同时避免接触任何可能被污染或您可能无意中污染的表面。虽然这排除了许多活动，但仍有一些选择。
 

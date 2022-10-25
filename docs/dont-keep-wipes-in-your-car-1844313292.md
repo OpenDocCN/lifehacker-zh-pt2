@@ -1,6 +1,6 @@
 # 不要在你的车里放湿巾
 
-> 原文:[https://life hacker . com/don-keep-wipes-in-your-car-1844313292](https://lifehacker.com/dont-keep-wipes-in-your-car-1844313292)
+> 原文：<https://lifehacker.com/dont-keep-wipes-in-your-car-1844313292>
 
 作为一个郊区妈妈，我的车就是我的家。(或者至少是在疫情时代之前。)如果我出门在外的某一天有一点点可能需要某样东西，它就在车里。 [防晒霜？检查。](https://lifehacker.com/keep-extra-bottles-of-sunscreen-anywhere-you-might-need-1844291001) 尿布？一整箱，在后备箱里。湿巾？可能有几个包裹。不过，最后一个有问题。
 

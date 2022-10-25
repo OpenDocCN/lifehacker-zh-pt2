@@ -1,6 +1,6 @@
 # 在紧要关头，卷起你的衣服打包背包
 
-> 原文:[https://life hacker . com/pack-a-backpack-in-a-pinch-by-rolling-your-clothing-1836500648](https://lifehacker.com/pack-a-backpack-in-a-pinch-by-rolling-your-clothes-1836500648)
+> 原文：<https://lifehacker.com/pack-a-backpack-in-a-pinch-by-rolling-your-clothes-1836500648>
 
 偶尔，我们都会发现自己需要把一堆东西——包括衣服——装进背包。这可能就像去朋友家度周末一样简单。或者带着你的孩子去外婆家过周末。或者——也许你的生活更刺激一点——你要赶早班飞机去拉斯维加斯参加通宵单身派对。
 

@@ -1,6 +1,6 @@
 # 如何为你的孩子创建一个大学储蓄礼物登记
 
-> 原文:[https://life hacker . com/how-to-create-a-college-savings-gift-registry-for-your-1834109448](https://lifehacker.com/how-to-create-a-college-savings-gift-registry-for-your-1834109448)
+> 原文：<https://lifehacker.com/how-to-create-a-college-savings-gift-registry-for-your-1834109448>
 
 10 年前我结婚时，蜜月登记风靡一时，让一些人高兴，也让另一些人恐惧。问题是这样的登记——邀请客人支付浪漫晚餐或滑索旅行的费用——是明智还是俗气。
 

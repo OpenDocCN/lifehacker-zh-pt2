@@ -1,6 +1,6 @@
 # 如何看到一颗 6000 年后才能看到的彗星
 
-> 原文:[https://life hacker . com/how-to-see-a-comet-that-won-be-visible-for-other-6-0-1844345120](https://lifehacker.com/how-to-see-a-comet-that-wont-be-visible-for-another-6-0-1844345120)
+> 原文：<https://lifehacker.com/how-to-see-a-comet-that-wont-be-visible-for-another-6-0-1844345120>
 
 多亏了新冠肺炎，你可能很快就不能带你的孩子去天文馆了。但是如果他们对天文学感兴趣，你会很幸运，因为我们应该能从今晚开始看到一颗彗星。由于科学原因，这颗彗星被称为 C/2020 F3 (NEOWISE) 彗星，本月有几次在黎明时可见，但本周将切换到黄昏。下面是怎么看的。
 

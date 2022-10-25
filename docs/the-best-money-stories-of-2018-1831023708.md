@@ -1,6 +1,6 @@
 # 2018 年最赚钱的故事
 
-> 原文:[https://life hacker . com/the-best-money-stories-of-2018-1831023708](https://lifehacker.com/the-best-money-stories-of-2018-1831023708)
+> 原文：<https://lifehacker.com/the-best-money-stories-of-2018-1831023708>
 
 朋友们，又一年过去了。在那段时间里，我们曾经 [谈论过目标](https://twocents.lifehacker.com/aim-to-get-to-10-000-1827509198) ，想象过一百万和十亿之间的，发现过 [新的旅行技巧](https://twocents.lifehacker.com/find-cheaper-international-travel-fares-using-this-deca-1830152019) 并且被反复提醒，我们需要削减我们都在支付的所有 [费用](https://twocents.lifehacker.com/401-k-fees-you-need-to-know-1825819800) 。
 

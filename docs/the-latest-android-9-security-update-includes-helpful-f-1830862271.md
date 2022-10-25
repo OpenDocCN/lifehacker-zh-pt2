@@ -1,6 +1,6 @@
 # 最新的 Android 9 安全更新包括对 Pixel 手机有用的功能补丁
 
-> 原文:[https://life hacker . com/the-latest-Android-9-security-update-includes-helical-f-1830862271](https://lifehacker.com/the-latest-android-9-security-update-includes-helpful-f-1830862271)
+> 原文：<https://lifehacker.com/the-latest-android-9-security-update-includes-helpful-f-1830862271>
 
 周二， [谷歌为即将到来的 12 月、安卓安全更新发布了补丁说明](https://source.android.com/security/bulletin/pixel/2018-12-01) ，该更新将于今日开始向所有安卓设备推出。这些每月更新通常会修复运行 Android 9 的设备的潜在漏洞，但本月的更新除了正常的安全更新外，还包括 Pixel 手机的特定补丁。这些补丁包括提高相机性能，修复屏幕闪烁错误和应用程序在后台运行时意外关闭等几个问题。
 

@@ -1,6 +1,6 @@
 # 用“贴纸魔术”帮助孩子把鞋子穿在正确的脚上
 
-> 原文:[https://life hacker . com/help-kids-put-they-shoes-on-the-right-foot-the-ST-1834777298](https://lifehacker.com/help-kids-put-their-shoes-on-the-right-feet-with-the-st-1834777298)
+> 原文：<https://lifehacker.com/help-kids-put-their-shoes-on-the-right-feet-with-the-st-1834777298>
 
 你有没有一个孩子搞不清哪只鞋穿在哪只脚上？你有贴纸吗？那就试试这个经典的家长黑吧。
 

@@ -1,6 +1,6 @@
 # 有了这个计算器，你的饮料就可以完全冷却了
 
-> 原文:[https://life hacker . com/chill-your-beverages-perfectly-with this-calculator-1837277548](https://lifehacker.com/chill-your-beverages-perfectly-with-this-calculator-1837277548)
+> 原文：<https://lifehacker.com/chill-your-beverages-perfectly-with-this-calculator-1837277548>
 
 我永远不会忘记我在一家蛋糕店要冰块的那次，瓦莱丽。那是牛津一个特别热的日子，我从一个看起来像冰箱的东西里拿了一杯可乐，却发现它不温不火。在咖啡馆工作的女人走到小冰箱前，拿出一个冰袋(就像你在午餐盒里找到的那种)，然后伸手去拿剪刀。
 

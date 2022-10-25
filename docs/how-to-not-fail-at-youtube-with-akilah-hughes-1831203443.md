@@ -1,6 +1,6 @@
 # 阿基拉·休斯的《如何在 YouTube 上不失败》
 
-> 原文:[https://life hacker . com/how-to-not-fail-at-YouTube-with-akilah-Hughes-1831203443](https://lifehacker.com/how-to-not-fail-at-youtube-with-akilah-hughes-1831203443)
+> 原文：<https://lifehacker.com/how-to-not-fail-at-youtube-with-akilah-hughes-1831203443>
 
 喜剧演员兼 YouTuber Akilah Hughes 在我们最近的直播播客中加入了关于“如何失败”的对话。
 

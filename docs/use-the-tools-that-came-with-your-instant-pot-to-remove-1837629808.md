@@ -1,6 +1,6 @@
 # 使用您的速溶壶附带的工具来移除插件
 
-> 原文:[https://life hacker . com/use-the-tools-that-come-with-with-your-instant-pot-to-remove-1837629808](https://lifehacker.com/use-the-tools-that-came-with-your-instant-pot-to-remove-1837629808)
+> 原文：<https://lifehacker.com/use-the-tools-that-came-with-your-instant-pot-to-remove-1837629808>
 
 即使速溶壶和我在一起已经有一段时间了，它仍然会时不时地给我带来惊喜。就像当 A.A .牛顿发现盖子侧面的小拉环是为了 [拿着它离开柜台](https://lifehacker.com/your-instant-pot-lid-can-do-this-1823551260) 一样。
 

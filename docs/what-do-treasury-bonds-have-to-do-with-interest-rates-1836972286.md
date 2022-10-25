@@ -1,6 +1,6 @@
 # 国债和利率有什么关系？
 
-> 原文:[https://life hacker . com/what-do-treasury-bonds-have-do-with-利率-1836972286](https://lifehacker.com/what-do-treasury-bonds-have-to-do-with-interest-rates-1836972286)
+> 原文：<https://lifehacker.com/what-do-treasury-bonds-have-to-do-with-interest-rates-1836972286>
 
 在过去几年加息后，美联储上周下调了联邦基金利率，这是自 2008 年以来的首次。这一举动让金融分析师感到困惑，但这对你来说意味着什么呢？
 

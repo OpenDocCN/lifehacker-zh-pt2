@@ -1,6 +1,6 @@
 # 现在就拿你的真实身份证驾照
 
-> 原文:[https://life hacker . com/get-your-real-id-drivers-license-now-1841767789](https://lifehacker.com/get-your-real-id-drivers-license-now-1841767789)
+> 原文：<https://lifehacker.com/get-your-real-id-drivers-license-now-1841767789>
 
 你的驾照在附近吗？查看它的右上角是金色还是黑色的星星(如果你在加利福尼亚，你的星星会在一只熊的轮廓内)。我的有，因为我最近的驾照是 2017 年拿到的；如果你的没有，尽快去办一张新的驾照。
 

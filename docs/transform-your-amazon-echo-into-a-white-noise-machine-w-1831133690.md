@@ -1,6 +1,6 @@
 # 用这个技能把你的亚马逊回声变成一个白噪音机器
 
-> 原文:[https://life hacker . com/transform-your-Amazon-echo-into-a-white-noise-machine-w-1831133690](https://lifehacker.com/transform-your-amazon-echo-into-a-white-noise-machine-w-1831133690)
+> 原文：<https://lifehacker.com/transform-your-amazon-echo-into-a-white-noise-machine-w-1831133690>
 
 每天晚上大约凌晨 2 点左右，住在我楼上的那位先生决定移动一件家具，然后向它扔大约 7000 便士——或者至少我已经说服自己他正在这么做。不管它是什么，它令人吃惊，并不断唤醒我，但还不足以让他有“任何想法”我指的是什么。
 

@@ -1,6 +1,6 @@
 # 亚马逊如何哄骗你在黄金日购买更多
 
-> 原文:[https://life hacker . com/how-Amazon-will-trick-you-to-buy-more-on-prime-day-1836291632](https://lifehacker.com/how-amazon-will-trick-you-into-buying-more-on-prime-day-1836291632)
+> 原文：<https://lifehacker.com/how-amazon-will-trick-you-into-buying-more-on-prime-day-1836291632>
 
 如果你想在黄金日省钱，亚马逊会提供很多优惠。事实上，太多了，以至于你可能最终会比你计划的花费更多。
 

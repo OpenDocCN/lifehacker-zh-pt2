@@ -1,6 +1,6 @@
 # 放映时间最好的电影
 
-> 原文:[https://www . av club . com/the-best-movies-on-show time-1844721370](https://www.avclub.com/the-best-movies-on-showtime-1844721370)
+> 原文：<https://www.avclub.com/the-best-movies-on-showtime-1844721370>
 
 流式库扩展和收缩。算法是不完美的。那些该死的缩略图总是在变。但你知道你能永远依靠什么吗？影音俱乐部的专家意见和真知灼见。这就是为什么我们搜索最受欢迎服务的菜单和我们自己的档案，为您提供最佳观看选项的指南，这些指南按流媒体、媒体和流派细分。想知道为什么我们如此热衷于某个特定的标题吗？点击每个条目末尾的作者姓名，深入了解来自*影音俱乐部*过去的电影。
 

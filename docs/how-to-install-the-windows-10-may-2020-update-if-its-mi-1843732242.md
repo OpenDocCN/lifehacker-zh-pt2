@@ -1,6 +1,6 @@
 # 如果缺少 Windows 10 2020 年 5 月更新，如何安装
 
-> 原文:[https://life hacker . com/how-to-install-the-windows-10-may-2020-update-if-its-mi-1843732242](https://lifehacker.com/how-to-install-the-windows-10-may-2020-update-if-its-mi-1843732242)
+> 原文：<https://lifehacker.com/how-to-install-the-windows-10-may-2020-update-if-its-mi-1843732242>
 
 Windows 10 2020 年 5 月更新已经到来，但它可能不会为 *you* 而到来。是的，这是另一次展示。是的，我们通常建议你推迟安装主要的 Windows 10 更新，直到许多其他人已经“测试”过它们，以确保你不会受到可怕的、消耗性能的错误的影响——但我们理解你们中的许多人想要那些新功能*stat*。
 

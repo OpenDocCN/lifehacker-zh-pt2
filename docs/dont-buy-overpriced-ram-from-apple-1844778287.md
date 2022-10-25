@@ -1,6 +1,6 @@
 # 停止支付苹果税
 
-> 原文:[https://life hacker . com/don-buy-super priced-ram-from-apple-1844778287](https://lifehacker.com/dont-buy-overpriced-ram-from-apple-1844778287)
+> 原文：<https://lifehacker.com/dont-buy-overpriced-ram-from-apple-1844778287>
 
 苹果税可不是闹着玩的，但一个典型的苹果用户也不会害怕打开他们的系统，给他们的 Mac 电脑提供额外的美味低价内存。但问题是:如果你向苹果公司购买可以自己安装的内存，那你就是在浪费钱。句号。
 

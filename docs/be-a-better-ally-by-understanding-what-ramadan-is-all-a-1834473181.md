@@ -1,6 +1,6 @@
 # 通过了解斋月是怎么回事，成为一个更好的盟友
 
-> 原文:[https://life hacker . com/be-a-better-a-ally-by-understanding-what-Ramadan-a-all-1834473181](https://lifehacker.com/be-a-better-ally-by-understanding-what-ramadan-is-all-a-1834473181)
+> 原文：<https://lifehacker.com/be-a-better-ally-by-understanding-what-ramadan-is-all-a-1834473181>
 
 伊斯兰斋月从今晚开始。作为一名美国穆斯林，我发现我的许多非穆斯林朋友和同事仍然不太了解它。
 

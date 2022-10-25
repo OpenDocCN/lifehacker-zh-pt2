@@ -1,6 +1,6 @@
 # 使用这个免费工具自动免除 PPP 贷款
 
-> 原文:[https://life hacker . com/automate-PPP-loan-religion-with-this-free-tool-184444391](https://lifehacker.com/automate-ppp-loan-forgiveness-with-this-free-tool-1844444391)
+> 原文：<https://lifehacker.com/automate-ppp-loan-forgiveness-with-this-free-tool-1844444391>
 
 如果你通过 [薪水保障计划](https://www.sba.gov/funding-programs/loans/coronavirus-relief-options/paycheck-protection-program) (PPP)申请了贷款，你可能急于看看你的小企业是否有资格获得 [贷款豁免](https://www.sba.gov/funding-programs/loans/coronavirus-relief-options/paycheck-protection-program#section-header-5) 。该计划鼓励公司继续雇佣员工，提供了高达 1000 万美元的可减免贷款。
 

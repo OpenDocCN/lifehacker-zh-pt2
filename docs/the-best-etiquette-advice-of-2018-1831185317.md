@@ -1,6 +1,6 @@
 # 2018 年最佳礼仪建议
 
-> 原文:[https://life hacker . com/the-best-礼仪建议 2018-1831185317](https://lifehacker.com/the-best-etiquette-advice-of-2018-1831185317)
+> 原文：<https://lifehacker.com/the-best-etiquette-advice-of-2018-1831185317>
 
 我们在 Lifehacker 投入了无穷无尽的精力来思考适当的礼仪。如何分摊费用，如何与同事聊天而不显得过分，如何与粗鲁的朋友相处，如何与粗鲁的陌生人相处，所有通过电子邮件或社交媒体发生的令人担忧的互动...这样的例子不胜枚举。
 

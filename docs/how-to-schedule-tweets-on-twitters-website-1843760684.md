@@ -1,6 +1,6 @@
 # 如何在 Twitter 网站上安排推文
 
-> 原文:[https://life hacker . com/how-to-schedule-tweets-on-twitters-website-1843760684](https://lifehacker.com/how-to-schedule-tweets-on-twitters-website-1843760684)
+> 原文：<https://lifehacker.com/how-to-schedule-tweets-on-twitters-website-1843760684>
 
 Twitter *终于*增加了从其网站上安排 t weets 的功能。人们要求这个功能已经有十年了，现在你可以把你所有的精彩想法和妙语安排在一天中，而不是在晚上奇怪的时间发布。
 

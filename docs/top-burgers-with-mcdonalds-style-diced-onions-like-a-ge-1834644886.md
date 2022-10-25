@@ -1,6 +1,6 @@
 # 像天才一样用麦当劳式洋葱丁做的顶级汉堡
 
-> 原文:[https://life hacker . com/top-burgers-with-McDonalds-style-dicted-on-like-a-ge-1834644886](https://lifehacker.com/top-burgers-with-mcdonalds-style-diced-onions-like-a-ge-1834644886)
+> 原文：<https://lifehacker.com/top-burgers-with-mcdonalds-style-diced-onions-like-a-ge-1834644886>
 
 虽然我喜欢麦当劳，但我绝不会推荐它们为“你应该去享受美味汉堡的地方”麦当劳本身是一种东西，一种不完全是食物的东西。(你不是在吃鸡肉，你是在吃麦乐鸡。)但有几件事他们做对了，其中一件事就是在他们的芝士汉堡上切洋葱。
 

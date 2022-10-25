@@ -1,6 +1,6 @@
 # 你可以在你的速食锅里做的每一道感恩节菜肴
 
-> 原文:[https://life hacker . com/every-thanksgiving-dish-you-can-make-in-your-instant-po-1839983543](https://lifehacker.com/every-thanksgiving-dish-you-can-make-in-your-instant-po-1839983543)
+> 原文：<https://lifehacker.com/every-thanksgiving-dish-you-can-make-in-your-instant-po-1839983543>
 
 虽然最初围绕速溶锅的狂热已经平息，但粉丝们仍然很忠诚，食谱不断出现(尽管速度稍慢)。大多数对即食锅的赞美都集中在你烹饪食物的速度上，但它的速度并不是它成为感恩节英雄的原因。在速溶锅里烹饪的真正好处是你可以在不占用烤箱或炉子空间的情况下烹饪——这两者在火鸡日都会变得稀缺。(见鬼，需要的话可以去地下室做饭；你需要的只是一个出口。)
 

@@ -1,6 +1,6 @@
 # 如果你的孩子吸毒，你该如何应对
 
-> 原文:[https://life hacker . com/how-to-react-if-your-kid-is-use-drugs-1839858392](https://lifehacker.com/how-to-react-if-your-kid-is-using-drugs-1839858392)
+> 原文：<https://lifehacker.com/how-to-react-if-your-kid-is-using-drugs-1839858392>
 
 当涉及到我们的孩子和毒品时，我们倾向于把重点放在预防上——这是理所当然的。当涉及到物质使用时，我们考虑如何成为好的榜样；我们很早就告诉他们，并且经常告诉他们毒品、同辈人的压力以及与不良人群交往的危险。但是，当我们做了所有这些，他们仍然使用？
 

@@ -1,6 +1,6 @@
 # 如何避免新的“网络支持经理”网络钓鱼骗局
 
-> 原文:[https://life hacker . com/how-to-avoid-the-new-net support-manager-phishing-scam-1842060688](https://lifehacker.com/how-to-avoid-the-new-netsupport-manager-phishing-scam-1842060688)
+> 原文：<https://lifehacker.com/how-to-avoid-the-new-netsupport-manager-phishing-scam-1842060688>
 
 自从电子邮件出现以来，网络钓鱼诈骗就一直存在，但是 [的基本策略是一样的](https://lifehacker.com/modern-phishing-attempts-look-more-legit-but-the-metho-1794914817) : H 黑客向你发送虚假链接或文件，欺骗你说出个人信息或在你的设备上安装恶意软件。如果你采用 [基本的互联网安全实践](https://lifehacker.com/the-complete-guide-to-avoiding-online-scams-for-your-l-5420356) ，这些虚假链接很容易被识破，但最新的网络钓鱼欺诈在隐藏其意图方面更加老练。
 

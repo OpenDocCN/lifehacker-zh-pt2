@@ -1,6 +1,6 @@
 # 用这个应用程序让你的读书俱乐部井井有条
 
-> 原文:[https://life hacker . com/keep-your-book-club-organized-with this-app-1840022536](https://lifehacker.com/keep-your-book-club-organized-with-this-app-1840022536)
+> 原文：<https://lifehacker.com/keep-your-book-club-organized-with-this-app-1840022536>
 
 众所周知，读书俱乐部很难管理。
 

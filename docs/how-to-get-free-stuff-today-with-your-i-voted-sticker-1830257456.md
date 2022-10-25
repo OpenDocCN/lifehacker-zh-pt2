@@ -1,6 +1,6 @@
 # 如何用你的“我投票了”贴纸获得免费的东西
 
-> 原文:[https://life hacker . com/how-to-get-free-stuff-today with your-I-voted-sticker-1830257456](https://lifehacker.com/how-to-get-free-stuff-today-with-your-i-voted-sticker-1830257456)
+> 原文：<https://lifehacker.com/how-to-get-free-stuff-today-with-your-i-voted-sticker-1830257456>
 
 今天在镇上到处炫耀你的“我投票了”贴纸可能会让你从其他投票者那里获得比击掌更多的东西——它可以让你得到免费的东西。
 

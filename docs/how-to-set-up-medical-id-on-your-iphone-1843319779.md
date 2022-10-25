@@ -1,6 +1,6 @@
 # 如何在 iPhone 上设置医疗 ID
 
-> 原文:[https://life hacker . com/how-to-set-up-medical-id-on-your-iphone-1843319779](https://lifehacker.com/how-to-set-up-medical-id-on-your-iphone-1843319779)
+> 原文：<https://lifehacker.com/how-to-set-up-medical-id-on-your-iphone-1843319779>
 
 即将到来的 iOS 13.5 更新包括一个可以救你一命的新功能。一旦更新停止，你将能够选择自动与 911 调度员和急救人员共享你的医疗 ID，这将为你提供最好的护理。
 

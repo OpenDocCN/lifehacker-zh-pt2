@@ -1,6 +1,6 @@
 # 如何搞定你的第一次情人节晚餐
 
-> 原文:[https://life hacker . com/how-to-nail-your ' s first-valentine-day-dinner-1832464508](https://lifehacker.com/how-to-nail-your-first-valentines-day-dinner-1832464508)
+> 原文：<https://lifehacker.com/how-to-nail-your-first-valentines-day-dinner-1832464508>
 
 所以你决定今年留在家里，为你的爱人做一顿美味的情人节晚餐 。只有一个问题:你绝对不知道你在做什么。没关系！我们是来帮忙的。
 

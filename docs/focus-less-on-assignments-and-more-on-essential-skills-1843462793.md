@@ -1,6 +1,6 @@
 # 少关注任务，多关注“基本技能”
 
-> 原文:[https://life hacker . com/focus-less-on-assignments-and-more-on-essential-skills-1843462793](https://lifehacker.com/focus-less-on-assignments-and-more-on-essential-skills-1843462793)
+> 原文：<https://lifehacker.com/focus-less-on-assignments-and-more-on-essential-skills-1843462793>
 
 随着学年即将结束，漫长的夏季即将来临，我经常被两个问题所困扰:我的儿子是否已经学会了他应该在三年级学的所有东西？在本该是他快乐的暑假期间，如果不制定一个持续的学习计划，我该如何阻止他进一步落后呢？
 

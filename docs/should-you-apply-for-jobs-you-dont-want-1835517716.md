@@ -1,6 +1,6 @@
 # 你应该申请你不想要的工作吗？
 
-> 原文:[https://life hacker . com/should-you-apply-on-you-dont-want-1835517716](https://lifehacker.com/should-you-apply-for-jobs-you-dont-want-1835517716)
+> 原文：<https://lifehacker.com/should-you-apply-for-jobs-you-dont-want-1835517716>
 
 Reddit 用户 MrNumber28 [问](https://old.reddit.com/r/personalfinance/comments/bznn9z/is_it_wrong_to_apply_for_other_jobs_to_see_what/) “有时候我想知道在另一家公司工作会不会得到更多报酬。我对自己的工作很满意，但显然我更希望得到更多的报酬。我不应该货比三家，看看还能买到什么，这有错吗/有什么理由吗？”
 

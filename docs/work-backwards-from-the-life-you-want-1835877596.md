@@ -1,6 +1,6 @@
 # 从你想要的生活倒退回去
 
-> 原文:[https://life hacker . com/work-backed-from-the-life-you-want-1835877596](https://lifehacker.com/work-backwards-from-the-life-you-want-1835877596)
+> 原文：<https://lifehacker.com/work-backwards-from-the-life-you-want-1835877596>
 
 我们中的很多人都幻想过在我们达到某个里程碑后，我们的生活会是什么样子。在我们得到工作、遇到合适的人、存了钱等等之后。
 

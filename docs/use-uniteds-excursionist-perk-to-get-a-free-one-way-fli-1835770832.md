@@ -1,6 +1,6 @@
 # 使用里程时，使用美联航的“短途旅行者优惠”获得免费单程航班
 
-> 原文:[https://life hacker . com/use-uniteds-短途旅行者-perk-to-get-a-free-one-way-fli-1835770832](https://lifehacker.com/use-uniteds-excursionist-perk-to-get-a-free-one-way-fli-1835770832)
+> 原文：<https://lifehacker.com/use-uniteds-excursionist-perk-to-get-a-free-one-way-fli-1835770832>
 
 如果你在用奖励里数兑换联航的国际旅行，有一个简单的方法让你的虚拟货币更有价值:计划一次至少三条腿的旅行。
 

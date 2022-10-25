@@ -1,6 +1,6 @@
 # 不要再把蔬菜板叫做“牛排”
 
-> 原文:[https://life hacker . com/stop-calling-蔬菜-木板-牛排-1833205620](https://lifehacker.com/stop-calling-vegetable-planks-steaks-1833205620)
+> 原文：<https://lifehacker.com/stop-calling-vegetable-planks-steaks-1833205620>
 
 我没有最喜欢的食物。事实上，我甚至不确定如何对这种东西进行分类，因为我想吃的东西会根据我所处的情况而有很大的不同。但是有一种食物，从我长牙齿的那一刻起直到现在，我一直都充满热情地吃着，那就是牛排。
 

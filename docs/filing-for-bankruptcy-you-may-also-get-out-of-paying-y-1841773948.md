@@ -1,6 +1,6 @@
 # 申请破产？你也可以不用支付你的学生贷款
 
-> 原文:[https://life hacker . com/filling-for-banking-you-may-get-out-of-paying-y-1841773948](https://lifehacker.com/filing-for-bankruptcy-you-may-also-get-out-of-paying-y-1841773948)
+> 原文：<https://lifehacker.com/filing-for-bankruptcy-you-may-also-get-out-of-paying-y-1841773948>
 
 曾经和负债累累的人聊过天吗？“也许我会申请破产，”他们可能会说。但接下来，不可避免的警告是:“尽管如此，我仍然有我的学生贷款。”
 

@@ -1,6 +1,6 @@
 # 如果你没有时间锻炼，试着用运动“零食”来代替
 
-> 原文:[https://life hacker . com/if-you ' s not-time for-workout-try-exercise-snack-1839892614](https://lifehacker.com/if-you-dont-have-time-for-a-workout-try-exercise-snack-1839892614)
+> 原文：<https://lifehacker.com/if-you-dont-have-time-for-a-workout-try-exercise-snack-1839892614>
 
 如果你没有时间锻炼，欢迎加入俱乐部。(我经常锻炼，但有时我会被在特定的地点和时间穿着运动服完成整个锻炼所花费的时间和精力所淹没。)一个办法:运动零食。
 

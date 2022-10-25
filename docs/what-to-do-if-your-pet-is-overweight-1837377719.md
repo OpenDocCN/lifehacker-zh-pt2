@@ -1,6 +1,6 @@
 # 如何让你的狗以正确的方式节食
 
-> 原文:[https://life hacker . com/如果你的宠物超重该怎么办-1837377719](https://lifehacker.com/what-to-do-if-your-pet-is-overweight-1837377719)
+> 原文：<https://lifehacker.com/what-to-do-if-your-pet-is-overweight-1837377719>
 
 一只矮胖的小狗可能是一只可爱的小公鸡，但是如果你的宠物大到兽医说是时候减肥了，那就很难弄清楚如何让它们节食了。这里有一些建议，可以让你按照计划行事，而不会在他们每晚开始对你的披萨抛媚眼的时候破坏他们的饮食。
 

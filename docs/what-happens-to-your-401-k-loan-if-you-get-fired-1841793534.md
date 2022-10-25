@@ -1,6 +1,6 @@
 # 如果你被解雇了，你的 401(k)贷款会怎么样？
 
-> 原文:[https://life hacker . com/what-happens-to-your-401-k-loan-if-you-get-fired-1841793534](https://lifehacker.com/what-happens-to-your-401-k-loan-if-you-get-fired-1841793534)
+> 原文：<https://lifehacker.com/what-happens-to-your-401-k-loan-if-you-get-fired-1841793534>
 
 从你的 401(k)计划中贷款是我们 Lifehacker 只在你绝望的时候推荐的金融救生筏之一。但是如果你已经在考虑申请这些贷款中的一种，你可能会认为你已经处于最糟糕的财务状况了。你可能没有想到事情会变得更糟:如果你失业了。
 

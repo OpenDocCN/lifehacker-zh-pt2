@@ -1,6 +1,6 @@
 # 在工作场所坦率地说出你的育儿责任
 
-> 原文:[https://life hacker . com/be-front-about-your-parenting-the-in-the-the-1834948235](https://lifehacker.com/be-upfront-about-your-parenting-responsibilities-in-the-1834948235)
+> 原文：<https://lifehacker.com/be-upfront-about-your-parenting-responsibilities-in-the-1834948235>
 
 当我 23 岁的时候，我在一家报社工作。几乎每天，我的老板都会说她需要在特定的时间去接她的女儿。当时，我没怎么考虑这个声明——她抚养孩子的世界似乎离我很遥远。但 14 年后的今天，我确信她对自己育儿责任的透明性影响了我的想法。现在我有两个年幼的孩子，他们的需求会时不时地限制我的工作。因为我的一个孩子发烧了，我必须早点离开，或者说我的儿童保育计划泡汤了，这一点都不好玩——但这就是生活。
 

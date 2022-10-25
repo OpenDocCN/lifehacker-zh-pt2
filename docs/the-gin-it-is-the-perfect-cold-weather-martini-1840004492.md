@@ -1,6 +1,6 @@
 # 杜松子酒&这是最适合寒冷天气的‘马提尼’
 
-> 原文:[https://life hacker . com/the-gin-it-the-perfect-cold-weather-martini-1840004492](https://lifehacker.com/the-gin-it-is-the-perfect-cold-weather-martini-1840004492)
+> 原文：<https://lifehacker.com/the-gin-it-is-the-perfect-cold-weather-martini-1840004492>
 
 我曾经调过很多鸡尾酒，但是在记忆比率方面我是个垃圾。出于这个原因，我真的很欣赏要求等量配料的食谱——即使是我，我的大脑非常分散，也能记住这样的东西。
 

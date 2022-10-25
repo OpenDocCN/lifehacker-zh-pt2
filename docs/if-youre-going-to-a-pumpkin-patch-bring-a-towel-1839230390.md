@@ -1,6 +1,6 @@
 # 如果你要去南瓜地里，带上一条毛巾
 
-> 原文:[https://life hacker . com/if-you-to-a-pumpkin-patch-bring-a-毛巾-1839230390](https://lifehacker.com/if-youre-going-to-a-pumpkin-patch-bring-a-towel-1839230390)
+> 原文：<https://lifehacker.com/if-youre-going-to-a-pumpkin-patch-bring-a-towel-1839230390>
 
 我是众所周知的“室内儿童”，这意味着我经常对任何类型的户外活动准备不足，即使是那些面向儿童的活动。这周末的情况就是如此，我去了一块南瓜地，结果浑身都是泥。你*无法*阻止泥浆，但你可以减轻它，而最好的办法就是多带一条或条毛巾。
 

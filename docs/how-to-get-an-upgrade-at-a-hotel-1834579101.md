@@ -1,6 +1,6 @@
 # 如何在酒店获得升级
 
-> 原文:[https://life hacker . com/how-to-get-a-upgrade-at-a-hotel-1834579101](https://lifehacker.com/how-to-get-an-upgrade-at-a-hotel-1834579101)
+> 原文：<https://lifehacker.com/how-to-get-an-upgrade-at-a-hotel-1834579101>
 
 我会向任何人要求升级，无论是餐馆里更好的桌子还是飞机上的头等舱座位。然而，获得酒店升级也有其自身的困难。你无法准确评估在你逗留期间有哪些空房或哪些房间会开放。
 

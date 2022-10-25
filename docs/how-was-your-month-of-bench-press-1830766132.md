@@ -1,6 +1,6 @@
 # 你的卧推月过得怎么样？
 
-> 原文:[https://life hacker . com/how-are-you-month-of-bench-press-1830766132](https://lifehacker.com/how-was-your-month-of-bench-press-1830766132)
+> 原文：<https://lifehacker.com/how-was-your-month-of-bench-press-1830766132>
 
 你享受了我们整整一个月专注于卧推 的 [了吗？我们学习了如何入门，如何在没有观测员的情况下坐，如何在没有板凳的情况下坐，以及一些](https://lifehacker.com/novembers-challenge-is-bench-press-1830153476) [趣味变奏](https://vitals.lifehacker.com/try-these-bench-press-variations-1830588845#_ga=2.202153553.1752404564.1543421739-1456718367.1520458611) 。但愿你学到了新东西！
 

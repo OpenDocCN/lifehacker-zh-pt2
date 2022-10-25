@@ -1,6 +1,6 @@
 # how to get into the witcher in 2019 1838980585
 
-> 原文:[https://kotaku . com/how-to-get-in-2019-1838980585](https://kotaku.com/how-to-get-into-the-witcher-in-2019-1838980585)
+> 原文：<https://kotaku.com/how-to-get-into-the-witcher-in-2019-1838980585>
 
 也许你听说过这个叫做*巫师*的东西。这是一个系列丛书，三个视频游戏，即将成为网飞展，是波兰文化的标志。也许你听说过它，但从来没有真正试图找出大惊小怪的是什么。现在*《巫师 3:疯狂猎杀*即将切换，你说:“嗯，我希望我知道发生了什么。”别担心，朋友们，我是来帮助你们的。
 

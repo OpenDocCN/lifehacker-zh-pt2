@@ -1,6 +1,6 @@
 # 用这种面罩可以防止眼镜起雾
 
-> 原文:[https://life hacker . com/stop-your-glasses-from-fogging with the-same-a-class-mask-1844038701](https://lifehacker.com/stop-your-glasses-from-fogging-with-this-kind-of-mask-1844038701)
+> 原文：<https://lifehacker.com/stop-your-glasses-from-fogging-with-this-kind-of-mask-1844038701>
 
 戴防护面罩是现在生活中一个蹩脚但必要的部分——对于戴眼镜的人来说，这种烦恼可能是最强烈的。仅仅是呼吸的动作(大多数专家认为这是非常重要的)，就会将湿热的空气直接从面罩中喷出，吹到眼镜上，使它们完全失去作用。
 

@@ -1,6 +1,6 @@
 # 你应该担心防晒霜渗入你的血液吗？
 
-> 原文:[https://life hacker . com/should-you-worry-you-breaking-into-your-bloo-1834679080](https://lifehacker.com/should-you-worry-about-sunscreen-seeping-into-your-bloo-1834679080)
+> 原文：<https://lifehacker.com/should-you-worry-about-sunscreen-seeping-into-your-bloo-1834679080>
 
 [最近的一项研究发现](https://jamanetwork.com/journals/jama/fullarticle/2733085) 大量涂抹一天后，你的血液中会发现防晒霜中的一些化学物质，但不要惊慌——防晒霜仍然被认为是安全的，你甚至不需要更换品牌。
 

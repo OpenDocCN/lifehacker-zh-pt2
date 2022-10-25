@@ -1,6 +1,6 @@
 # 为什么你现在可能想停止支付你的学生贷款
 
-> 原文:[https://life hacker . com/why-you-may-want-to-stop-pay-your student-loans-ri-1843288836](https://lifehacker.com/why-you-might-want-to-stop-paying-your-student-loans-ri-1843288836)
+> 原文：<https://lifehacker.com/why-you-might-want-to-stop-paying-your-student-loans-ri-1843288836>
 
 《关爱法案》允许联邦学生贷款借款人将贷款支付推迟到 2020 年 10 月——在宽限期内，这些贷款中的许多将被设定为零利率。这不同于其他类型的延期偿付项目(比如信用卡、抵押贷款)，在这些项目中，还款被免除，但未偿债务的利息继续收取。
 

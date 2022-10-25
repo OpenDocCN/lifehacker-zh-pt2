@@ -1,6 +1,6 @@
 # 你在旧款 Mac 上的 macOS Catalina 体验如何？
 
-> 原文:[https://life hacker . com/how-is-your-MAC OS-mojave-experience-on-your-older-MAC-1829333329](https://lifehacker.com/how-is-your-macos-mojave-experience-on-your-older-mac-1829333329)
+> 原文：<https://lifehacker.com/how-is-your-macos-mojave-experience-on-your-older-mac-1829333329>
 
 新版本的 macOS 通常意味着在苹果最新的硬件上有更好的性能，但你在旧 MAC 上的体验——特别是如果你在不受支持的型号 上安装了最新的 MAC OS[——可能会有所不同。](http://dosdude1.com/catalina/)
 

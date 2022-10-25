@@ -1,6 +1,6 @@
 # 这些是最好的机场
 
-> 原文:[https://life hacker . com/thes-is-the-best-to-stick-in-1838630521](https://lifehacker.com/these-are-the-best-airports-to-get-stuck-in-1838630521)
+> 原文：<https://lifehacker.com/these-are-the-best-airports-to-get-stuck-in-1838630521>
 
 2019 年北美机场满意度研究 于上周发布，同时发布的还有美国机场排名。
 

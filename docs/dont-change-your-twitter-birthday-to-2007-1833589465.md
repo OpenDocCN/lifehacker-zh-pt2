@@ -1,6 +1,6 @@
 # 不要把你的推特生日改成 2007 年
 
-> 原文:[https://life hacker . com/don-change-your-Twitter-birthday-to-2007-1833589465](https://lifehacker.com/dont-change-your-twitter-birthday-to-2007-1833589465)
+> 原文：<https://lifehacker.com/dont-change-your-twitter-birthday-to-2007-1833589465>
 
 有一个新的 Twitter 恶作剧正在流传，它表明如果你把你的生日改为 2007 年，Twitter 推出的那一年，你将能够解锁一个新的配色方案，获得平台的管理权限，获得现金，甚至给自己一个令人垂涎的蓝色验证复选标记。只有一个问题:这样做实际上会让你因为未成年而被 Twitter 解雇。
 

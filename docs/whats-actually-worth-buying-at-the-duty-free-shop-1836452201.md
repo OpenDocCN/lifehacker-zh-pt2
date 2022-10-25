@@ -1,6 +1,6 @@
 # 免税商店有什么值得买的
 
-> 原文:[https://life hacker . com/what-actual-value-to-buying-the-duty-shop-1836452201](https://lifehacker.com/whats-actually-worth-buying-at-the-duty-free-shop-1836452201)
+> 原文：<https://lifehacker.com/whats-actually-worth-buying-at-the-duty-free-shop-1836452201>
 
 好像你的假期需要更多花钱的机会，你发现自己在考虑机场的免税商店。当然，你可以走过他们中的一些，当你寻找开胃的飞行前小吃时，把你的钱放在你的口袋里。但有时，你会情不自禁地被带入免税通道，被迫戴上眼罩或被奢侈品诱惑。四处看看也无妨，对吧？
 

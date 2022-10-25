@@ -1,6 +1,6 @@
 # 如何让你的车防狗
 
-> 原文:[https://lifehacker.com/how-to-dog-proof-your-car-1833924995](https://lifehacker.com/how-to-dog-proof-your-car-1833924995)
+> 原文：<https://lifehacker.com/how-to-dog-proof-your-car-1833924995>
 
 我几乎每天都要把我的狗放在车里。在日托、去公园和偶尔的差事之间，他经常旅行。他不是最喜欢坐车的人 — ，我也不是最喜欢他粘在所有东西上的毛 — ，所以我们不得不付出一些努力 [让汽车对我们大家来说更舒适](https://www.cnet.com/roadshow/news/car-dog-proofing/) 。
 

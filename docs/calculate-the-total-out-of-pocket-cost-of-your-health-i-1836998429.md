@@ -1,6 +1,6 @@
 # 计算健康保险计划的总自付费用
 
-> 原文:[https://life hacker . com/calculate-the-total-out-of-pocket-of-your-health-I-1836998429](https://lifehacker.com/calculate-the-total-out-of-pocket-cost-of-your-health-i-1836998429)
+> 原文：<https://lifehacker.com/calculate-the-total-out-of-pocket-cost-of-your-health-i-1836998429>
 
 你为你的健康保险支付多少？如果你只从每月保费的角度考虑你的健康保险费用，你就忽略了很多潜在的费用。
 

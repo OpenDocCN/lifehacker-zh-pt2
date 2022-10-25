@@ -1,6 +1,6 @@
 # 将你最近的 VPN 问题归咎于这个 Windows 10 的错误
 
-> 原文:[https://life hacker . com/kill-this-windows-10-bug-for-your-recent-VPN-issues-1842587669](https://lifehacker.com/blame-this-windows-10-bug-for-your-recent-vpn-issues-1842587669)
+> 原文：<https://lifehacker.com/blame-this-windows-10-bug-for-your-recent-vpn-issues-1842587669>
 
 如果你的 Windows 台式机或笔记本电脑出现了网络连接问题——你已经排除了用户错误或 [糟糕的无线连接](https://lifehacker.com/why-does-my-work-laptop-have-slower-wifi-than-my-other-1842489912)——微软可能是罪魁祸首的可能性很小。有一个影响用户使用代理或 VPN 连接的错误，它严重到足以保证微软发布一个非计划更新来修补这个问题。
 

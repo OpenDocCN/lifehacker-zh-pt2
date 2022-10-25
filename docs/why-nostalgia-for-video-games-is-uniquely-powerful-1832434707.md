@@ -1,6 +1,6 @@
 # 为什么对电子游戏的怀旧是独一无二的
 
-> 原文:[https://kotaku . com/why-怀旧电子游戏是唯一强大的-1832434707](https://kotaku.com/why-nostalgia-for-video-games-is-uniquely-powerful-1832434707)
+> 原文：<https://kotaku.com/why-nostalgia-for-video-games-is-uniquely-powerful-1832434707>
 
 今年，网飞将首播其热门纪录片系列[](https://www.netflix.com/title/80161497)*的第三季。这一系列 45 分钟的深入探究我们最怀念的玩具涵盖了 He-Man，Barbie，Hello Kitty 等等。但是到目前为止，视频游戏在该剧的所有剧集中都明显缺席。这是一个奇怪的遗漏，因为研究表明，电子游戏怀旧是所有怀旧中最强大的。* 
 

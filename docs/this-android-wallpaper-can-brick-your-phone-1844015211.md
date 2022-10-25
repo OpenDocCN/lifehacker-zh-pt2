@@ -1,6 +1,6 @@
 # 这款安卓壁纸可以给你的手机砌砖
 
-> 原文:[https://life hacker . com/this-Android-wallpaper-can-brick-your-phone-1844015211](https://lifehacker.com/this-android-wallpaper-can-brick-your-phone-1844015211)
+> 原文：<https://lifehacker.com/this-android-wallpaper-can-brick-your-phone-1844015211>
 
 有一种华丽的 Android 壁纸正在流传，你应该*绝对不要*把它设置为你手机的背景。是的，看起来很棒，但它也可以在安装时软砖你的手机——特别是如果你在 Pixel 或三星设备上运行 Android 10。原因如下。
 

@@ -1,6 +1,6 @@
 # 如何像一个奇特的混蛋一样做虾鸡尾酒
 
-> 原文:[https://the take out . com/how-to-make-shrimp-cocktail-like-a-fancy-私生子-1836534535](https://thetakeout.com/how-to-make-shrimp-cocktail-like-a-fancy-bastard-1836534535)
+> 原文：<https://thetakeout.com/how-to-make-shrimp-cocktail-like-a-fancy-bastard-1836534535>
 
 当我在家做虾鸡尾酒的时候，我觉得...混蛋？这不像是我应该在我的公寓里吃的一道菜。虾鸡尾酒是为婚礼、牛排店和家庭聚会准备的。除非你有男管家，否则你会开着车去某个地方吃虾鸡尾酒。我总是想象有一个戴着白手套，姿势完美的人在为它服务。
 

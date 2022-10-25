@@ -1,6 +1,6 @@
 # Amazon Fresh 现在对 Prime 会员是免费的，但是你应该使用它吗？
 
-> 原文:[https://life hacker . com/Amazon-fresh-is-now-free-for-prime-members-but-should-1839468128](https://lifehacker.com/amazon-fresh-is-now-free-for-prime-members-but-should-1839468128)
+> 原文：<https://lifehacker.com/amazon-fresh-is-now-free-for-prime-members-but-should-1839468128>
 
 周二，亚马逊正式取消了 Prime 会员亚马逊生鲜杂货配送计划的所有配送费用，这项服务传统上每月收费 14.99 美元；这一消息是在亚马逊向其主要客户提供一日送达服务后仅*个月*发布的。根据 [Vox](https://www.vox.com/2019/10/29/20936984/amazon-prime-grocery-delivery-fresh-fee-whole-foods-instacart) 消息，对于使用全食超市两小时 Prime Now 配送的顾客，配送费用也将被免除。(用户还需要花费至少 35 美元才有资格享受免费送货服务，尽管也有例外；在纽约市，需要 50 美元。)
 

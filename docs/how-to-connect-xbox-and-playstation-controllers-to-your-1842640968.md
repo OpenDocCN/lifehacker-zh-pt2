@@ -1,6 +1,6 @@
 # 如何将 Xbox 和 PlayStation 控制器连接到您的 Apple 设备
 
-> 原文:[https://life hacker . com/how-to-connect-Xbox-and-PlayStation-controllers-to-your-1842640968](https://lifehacker.com/how-to-connect-xbox-and-playstation-controllers-to-your-1842640968)
+> 原文：<https://lifehacker.com/how-to-connect-xbox-and-playstation-controllers-to-your-1842640968>
 
 去年的 iOS 13、iPadOS 13、macOS Catalina 和 tvOS 13 更新中添加的一个鲜为人知的功能是将 Xbox One 和 PlayStation 4 控制器连接到苹果设备的能力。在上面的视频中，我向你展示了如何将这些控制器与 iPad 配对来玩堡垒之夜和《我的世界》这样的游戏。
 

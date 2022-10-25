@@ -1,6 +1,6 @@
 # 如何在吃零食的情况下生存
 
-> 原文:[https://life hacker . com/how-to-survive-a-case-of-the-munchies-1834079928](https://lifehacker.com/how-to-survive-a-case-of-the-munchies-1834079928)
+> 原文：<https://lifehacker.com/how-to-survive-a-case-of-the-munchies-1834079928>
 
 我曾经在雨中在阿姆斯特丹的街角吃了半根法棍和几片火腿。
 

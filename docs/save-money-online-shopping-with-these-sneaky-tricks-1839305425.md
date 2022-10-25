@@ -1,6 +1,6 @@
 # 用这些偷偷摸摸的招数省钱网购
 
-> 原文:[https://life hacker . com/save-money-online-shopping-with these-sneaky-tricks-1839305425](https://lifehacker.com/save-money-online-shopping-with-these-sneaky-tricks-1839305425)
+> 原文：<https://lifehacker.com/save-money-online-shopping-with-these-sneaky-tricks-1839305425>
 
 当你在网上购物时，每个人都喜欢使用优惠券代码。但是当你准备花一些钱在必需品(或非常不必要的物品)上时，并不总是有一个现成的。当然，你可以谷歌周围的促销代码可能会或可能会工作。或者你可以使用这些聪明的策略来锁定一些储蓄。
 

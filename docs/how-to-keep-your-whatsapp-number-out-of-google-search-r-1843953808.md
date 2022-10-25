@@ -1,6 +1,6 @@
 # 如何让你的 WhatsApp 号码不出现在谷歌搜索结果中
 
-> 原文:[https://life hacker . com/how-to-keep-your-whatsapp-number-out-of-Google-search-r-1843953808](https://lifehacker.com/how-to-keep-your-whatsapp-number-out-of-google-search-r-1843953808)
+> 原文：<https://lifehacker.com/how-to-keep-your-whatsapp-number-out-of-google-search-r-1843953808>
 
 如果你使用 WhatsApp 的点击聊天功能，你的电话号码可能会显示在谷歌搜索结果中。
 

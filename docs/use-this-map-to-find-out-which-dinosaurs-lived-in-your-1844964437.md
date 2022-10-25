@@ -1,6 +1,6 @@
 # 使用这张地图找出哪些恐龙生活在你的地区
 
-> 原文:[https://life hacker . com/use-this-map-to-find-out-the-恐龙生活在你的-1844964437](https://lifehacker.com/use-this-map-to-find-out-which-dinosaurs-lived-in-your-1844964437)
+> 原文：<https://lifehacker.com/use-this-map-to-find-out-which-dinosaurs-lived-in-your-1844964437>
 
 像许多孩子一样，我也经历了恐龙阶段。这些巨型蜥蜴怪物代替人类在地球上游荡的想法让我既害怕又好奇。所以当我的老师告诉我们恐龙也生活在我们的区域时，我需要了解更多。这主要包括在森林里挖洞寻找恐龙骨头，然后几周后找到所说的洞，并试图说服自己它们实际上是恐龙脚印。(在我内心深处，我知道真相。)
 

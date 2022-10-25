@@ -1,6 +1,6 @@
 # 足不出户就可以玩的游戏
 
-> 原文:[https://kotaku . com/games-to-play-while you-not-left-the-house-1842359517](https://kotaku.com/games-to-play-while-youre-not-leaving-the-house-1842359517)
+> 原文：<https://kotaku.com/games-to-play-while-youre-not-leaving-the-house-1842359517>
 
 随着新冠肺炎，冠状病毒引起的疾病蔓延，取消不必要的外出 和使用社交距离措施来尝试和限制 [多少人被感染](https://gizmodo.com/how-deadly-is-covid-19-1842059407) 比以往任何时候都更重要。换句话说，你会在里面呆很长时间。这里有一些最好的电子游戏可以帮你打发时间。
 

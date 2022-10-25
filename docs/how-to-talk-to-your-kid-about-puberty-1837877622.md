@@ -1,6 +1,6 @@
 # 如何和你的孩子谈论青春期
 
-> 原文:[https://life hacker . com/how-to-talk to-your kid-about-your-drug-1837877622](https://lifehacker.com/how-to-talk-to-your-kid-about-puberty-1837877622)
+> 原文：<https://lifehacker.com/how-to-talk-to-your-kid-about-puberty-1837877622>
 
 不管一个孩子什么时候经历青春期，那都可能是充满疑问、担忧和比较的时期:“伊森的声音已经下降了，为什么我还在吱吱叫？”"我什么时候来例假？"“我什么时候可以开始刮胡子？”
 

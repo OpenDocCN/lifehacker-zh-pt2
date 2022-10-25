@@ -1,6 +1,6 @@
 # 用这个免费工具改善你的学生贷款策略
 
-> 原文:[https://life hacker . com/improve-your-student-loan-strategy-with this-free-tool-1844299139](https://lifehacker.com/improve-your-student-loan-strategy-with-this-free-tool-1844299139)
+> 原文：<https://lifehacker.com/improve-your-student-loan-strategy-with-this-free-tool-1844299139>
 
 我们国家的学生贷款债务是惊人的。随着联邦贷款余额超过 1.5 万亿美元，各个年龄段的借款人都在苦苦挣扎。幸运的是，政府已经采取措施简化还款程序。
 二月，教育部[宣布为 StudentAid.gov 新升级](https://www.ed.gov/news/press-releases/federal-student-aid-delivers-secretary-devos-promise-modernize-personalize-customer-experience) 。这些更新是总统 2021 财年 [预算提案](https://www.ed.gov/news/press-releases/president-trump-proposes-transformative-student-first-budget-return-power-states-limit-federal-control-education) 的一部分，以简化学生贷款和还款选择。

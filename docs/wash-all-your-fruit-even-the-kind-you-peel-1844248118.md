@@ -1,6 +1,6 @@
 # 清洗你所有的水果，即使是你去皮的那种
 
-> 原文:[https://life hacker . com/wash-all-your-fruit-even-the-kind-you-peel-1844248118](https://lifehacker.com/wash-all-your-fruit-even-the-kind-you-peel-1844248118)
+> 原文：<https://lifehacker.com/wash-all-your-fruit-even-the-kind-you-peel-1844248118>
 
 你应该清洗你所有的水果和蔬菜，甚至是那些你打算在吃之前去皮的。除了田地里的泥土，还有细菌、杀虫剂或其他化学残留物。所以当你打包你的野餐篮子时，冲洗一下你的产品。
 

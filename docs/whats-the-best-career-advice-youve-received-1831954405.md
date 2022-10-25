@@ -1,6 +1,6 @@
 # 你收到的最好的职业建议是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-career-advice-you-received-1831954405](https://lifehacker.com/whats-the-best-career-advice-youve-received-1831954405)
+> 原文：<https://lifehacker.com/whats-the-best-career-advice-youve-received-1831954405>
 
 通常最好的建议是最简单的建议。无论是关于 [金钱](https://twocents.lifehacker.com/your-finances-should-be-boring-1823831040) 还是 [生产力](https://lifehacker.com/ease-up-on-your-morning-routine-1831875238#_ga=2.129016005.810605957.1548165195-594046802.1524762060) ，看似微不足道的小事却能产生最大的差异。
 

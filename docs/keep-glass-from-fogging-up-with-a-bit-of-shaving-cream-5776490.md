@@ -1,6 +1,6 @@
 # 用一点剃须膏防止你的眼镜起雾
 
-> 原文:[https://life hacker . com/keep-glass-from-folling-up with a bit-of-shaving-cream-5776490](https://lifehacker.com/keep-glass-from-fogging-up-with-a-bit-of-shaving-cream-5776490)
+> 原文：<https://lifehacker.com/keep-glass-from-fogging-up-with-a-bit-of-shaving-cream-5776490>
 
 几年前，我们分享了一个来自我们的读者 CraXyOW3 的提示，他提供了一个有效的方法，通过使用一点剃须膏来防止玻璃起雾。当然，那时我们担心浴室的镜子，担心在寒冷的日子走进温暖的建筑时会被蒙住眼睛。2020 年，当我们每次去任何地方都戴着口罩 时，雾化问题是一个全年的斗争，这使得这个简单的黑客变得更加重要。
 

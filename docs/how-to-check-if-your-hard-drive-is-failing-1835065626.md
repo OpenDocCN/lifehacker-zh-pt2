@@ -1,6 +1,6 @@
 # 如何检查你的硬盘是否有故障
 
-> 原文:[https://life hacker . com/how-to-check-if-your ' s hard-drive-failed-1835065626](https://lifehacker.com/how-to-check-if-your-hard-drive-is-failing-1835065626)
+> 原文：<https://lifehacker.com/how-to-check-if-your-hard-drive-is-failing-1835065626>
 
 最近，我怀疑我的硬盘出了问题。花一点时间弄清楚发生了什么——并确认没有任何*坏*实际发生——为我节省了 200 多美元，或者说我正在考虑从亚马逊订购的闪亮的新 6TB 硬盘(或更快的 2TB 固态硬盘)的成本。
 

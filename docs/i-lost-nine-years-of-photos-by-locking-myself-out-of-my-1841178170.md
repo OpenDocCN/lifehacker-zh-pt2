@@ -1,6 +1,6 @@
 # 我把自己锁在谷歌账户之外，丢失了九年的照片
 
-> 原文:[https://life hacker . com/I-lost-nine-years-of-photos-by-locking-my-out-of-my 1841178170](https://lifehacker.com/i-lost-nine-years-of-photos-by-locking-myself-out-of-my-1841178170)
+> 原文：<https://lifehacker.com/i-lost-nine-years-of-photos-by-locking-myself-out-of-my-1841178170>
 
 我一般用 [这个每周专栏](https://lifehacker.com/c/tech-911) 来回答大家的科技主题问题。本周，我稍微有点偏离，因为我认为分享一个读者的故事很重要——尽管我和谷歌对她被锁定的谷歌账户都无能为力。我们可以从她的例子中学到很多，你应该检查一些项目，以确保这种令人沮丧的问题永远不会发生在你身上。
 

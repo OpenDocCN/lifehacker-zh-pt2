@@ -1,6 +1,6 @@
 # 你现在可以免费获得 3 个月的亚马逊音乐
 
-> 原文:[https://life hacker . com/you-can-get-Amazon-prime-music-unlimited-for-free-3-1834701236](https://lifehacker.com/you-can-get-amazon-prime-music-unlimited-for-free-for-3-1834701236)
+> 原文：<https://lifehacker.com/you-can-get-amazon-prime-music-unlimited-for-free-for-3-1834701236>
 
 如果你一直想尝试亚马逊 Prime Music，现在可能是注册的最佳时机之一。
 

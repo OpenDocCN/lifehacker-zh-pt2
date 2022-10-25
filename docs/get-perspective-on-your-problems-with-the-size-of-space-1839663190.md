@@ -1,6 +1,6 @@
 # 从空间大小的角度看待你的问题
 
-> 原文:[https://life hacker . com/get-perspective-on-the-size-of-space-1839663190](https://lifehacker.com/get-perspective-on-your-problems-with-the-size-of-space-1839663190)
+> 原文：<https://lifehacker.com/get-perspective-on-your-problems-with-the-size-of-space-1839663190>
 
 如果你需要从你的推特时间表或脸书新闻订阅中休息一下——或者不断更新我们国家不断变化的政治格局的状态的——这里有一些东西可能会让你*和*你的问题立即感到无关紧要: [空间的大小](https://neal.fun/size-of-space/) 。由 Neal Agarwal 设计，这是一个将你的身体大小与我们宇宙中的小行星、行星和黑洞进行比较的网站。向右滚动，你会感觉到你的问题有多小；如果不是的话，研究太空和星系有多他妈的巨大很有趣。
 

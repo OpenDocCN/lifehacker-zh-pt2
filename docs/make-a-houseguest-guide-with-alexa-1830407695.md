@@ -1,6 +1,6 @@
 # 用 Alexa 做一个房客指南
 
-> 原文:[https://life hacker . com/make-a-house guest-guide-with-Alexa-1830407695](https://lifehacker.com/make-a-houseguest-guide-with-alexa-1830407695)
+> 原文：<https://lifehacker.com/make-a-houseguest-guide-with-alexa-1830407695>
 
 Alexa Skill Blueprints 上的 [房客指南](https://blueprints.amazon.com/bp/amzn.ask.bp.dc73216e-ab8e-45bb-9552-38a013d38515?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/make-a-houseguest-guide-with-alexa-1830407695&asc_source=&tag=kinjalifehackerlink-20) 可以让你对 Alexa 进行编程，以回答保姆、临时保姆和其他客人的问题。你可以解释电视遥控器，垃圾程序，以及让淋浴工作的技巧，Alexa 会把这些都包含在一个房客指南技能中。
 

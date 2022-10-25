@@ -1,6 +1,6 @@
 # 你所在的州可能会允许你扣除疫情期间在家工作的费用
 
-> 原文:[https://life hacker . com/your-state-may-let-you-conduct-of-1844001058](https://lifehacker.com/your-state-may-let-you-deduct-the-costs-of-working-from-1844001058)
+> 原文：<https://lifehacker.com/your-state-may-let-you-deduct-the-costs-of-working-from-1844001058>
 
 当全国各地的工作场所因冠状病毒爆发而突然关闭时，许多人不得不习惯在家里快速工作。在最好的情况下，你的雇主自愿承担更快的互联网连接费用，或者为你的临时家庭办公室提供一把办公椅。
 

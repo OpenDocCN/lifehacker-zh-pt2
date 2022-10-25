@@ -1,6 +1,6 @@
 # 意外退出 Chrome 后如何恢复关闭的标签页？
 
-> 原文:[https://life hacker . com/how-can-I-restore-closed-tabs-after-accidently-quitti-1452314285](https://lifehacker.com/how-can-i-restore-closed-tabs-after-accidentally-quitti-1452314285)
+> 原文：<https://lifehacker.com/how-can-i-restore-closed-tabs-after-accidentally-quitti-1452314285>
 
 你知道我们在说什么:当你意识到桌面版 Chrome 已经退出或崩溃，并打开了 42 个标签时，你会有一种沮丧的感觉。当您尝试使用“恢复”选项时，您会收到...没什么。再见，工作；你好内部尖叫。
 

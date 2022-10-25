@@ -1,6 +1,6 @@
 # 使用 Alexa 向需要帮助的儿童捐赠背包
 
-> 原文:[https://life hacker . com/use-Alexa-to-duate-a-a-backpack-to-a-a-child-need-1836974475](https://lifehacker.com/use-alexa-to-donate-a-backpack-to-a-child-in-need-1836974475)
+> 原文：<https://lifehacker.com/use-alexa-to-donate-a-backpack-to-a-child-in-need-1836974475>
 
 亚马逊、Alexa 和沙奎尔·奥尼尔本月联手向有需要的孩子捐赠装满学习用品的背包。如果你家里有一台 Alexa，你可以说“Alexa，捐到 [快乐学年](https://www.amazon.com/b?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/use-alexa-to-donate-a-backpack-to-a-child-in-need-1836974475&asc_source=&node=19337760011&tag=kinjalifehackerlink-20) ”来参与。
 

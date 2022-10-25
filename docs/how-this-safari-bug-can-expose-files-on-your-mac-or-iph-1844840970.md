@@ -1,6 +1,6 @@
 # 这个 Safari 漏洞如何暴露你的 Mac 或 iPhone 上的文件
 
-> 原文:[https://life hacker . com/how-this-safari-bug-can-expose-files-on-your-MAC-or-iph-1844840970](https://lifehacker.com/how-this-safari-bug-can-expose-files-on-your-mac-or-iph-1844840970)
+> 原文：<https://lifehacker.com/how-this-safari-bug-can-expose-files-on-your-mac-or-iph-1844840970>
 
 安全研究员 [Pawel Wylecial](https://blog.redteam.pl/2020/08/stealing-local-files-using-safari-web.html) 昨天公开披露了 Safari 的一个漏洞，*可以*说服用户将他们系统上的任何文件秘密发送给接收者。
 

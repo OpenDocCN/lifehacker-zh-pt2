@@ -1,6 +1,6 @@
 # 如何使用脸书的新“传达室”
 
-> 原文:[https://life hacker . com/how-to-use-face books-new-messenger-rooms-1843482245](https://lifehacker.com/how-to-use-facebooks-new-messenger-rooms-1843482245)
+> 原文：<https://lifehacker.com/how-to-use-facebooks-new-messenger-rooms-1843482245>
 
 如果你使用脸书或 Facebook Messenger，你可能会看到提示你试用 [新的“消息室”功能](https://about.fb.com/news/2020/04/introducing-messenger-rooms/) 的通知。Messenger Rooms 基本上是 Zoom、Teams 或 Google Meet 等视频聊天应用的免费且更简单的替代品。它们不是一个独立的产品，而是直接集成到 Facebook Messenger 中。每个房间同时支持多达 50 个用户。
 

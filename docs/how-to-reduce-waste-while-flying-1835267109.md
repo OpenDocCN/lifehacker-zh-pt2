@@ -1,6 +1,6 @@
 # 如何在飞行中减少浪费
 
-> 原文:[https://life hacker . com/how-to-reduce-waste-while flying-1835267109](https://lifehacker.com/how-to-reduce-waste-while-flying-1835267109)
+> 原文：<https://lifehacker.com/how-to-reduce-waste-while-flying-1835267109>
 
 航空公司产生大量垃圾。想想包裹你的食物的塑料包装，你的耳机和毯子，还有扔在过道里的吸管、餐巾和糖包。 [美国大陆控股公司](https://www.bloomberg.com/news/articles/2019-06-05/united-s-planet-flight-takes-a-step-toward-garbage-free-skies) 。联合航空公司的所有者说，他们平均一次飞行产生 65 磅的垃圾，而且大部分垃圾不太可能被回收。
 

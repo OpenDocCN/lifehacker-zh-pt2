@@ -1,6 +1,6 @@
 # 提交给土豆大锅，最中西部的节日配菜
 
-> 原文:[https://the take out . com/recipe-土豆泥-大锅-奶酪-黄油-培根-1829899688](https://thetakeout.com/recipe-mashed-potato-cauldron-cheese-butter-bacon-1829899688)
+> 原文：<https://thetakeout.com/recipe-mashed-potato-cauldron-cheese-butter-bacon-1829899688>
 
 我们全家每年都会去威斯康辛州参加我父亲和继母的感恩节后周六晚餐。他们的大多数继子女周四和周五都在家庭之间，所以周六的活动参加人数很多。食物也很好，所以这可能是另一个原因。
 

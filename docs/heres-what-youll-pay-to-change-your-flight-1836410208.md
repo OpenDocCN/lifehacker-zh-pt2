@@ -1,6 +1,6 @@
 # 这是您改签航班需要支付的费用
 
-> 原文:[https://life hacker . com/heres-what-you-pay-to-change-your-flight-1836410208](https://lifehacker.com/heres-what-youll-pay-to-change-your-flight-1836410208)
+> 原文：<https://lifehacker.com/heres-what-youll-pay-to-change-your-flight-1836410208>
 
 更改航班的过程很简单；变成麻烦的是费用。像联合航空、达美航空和美国航空这样的航空公司改签票价从 200 美元到 750 美元不等，甚至可能比你原来的票价还要高。幸运的是，如果你行动迅速(我们指的是现在)，你并不总是对主要费用负责。
 

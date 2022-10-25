@@ -1,6 +1,6 @@
 # 看《网飞》的时候学一门新语言
 
-> 原文:[https://life hacker . com/learn-a-new-language-while-watch-网飞-1832564649](https://lifehacker.com/learn-a-new-language-while-watching-netflix-1832564649)
+> 原文：<https://lifehacker.com/learn-a-new-language-while-watching-netflix-1832564649>
 
 试图学习一门新的语言，但找不到时间？给你的疯狂观看一个全新的目的，在马拉松式地观看网飞表演或电影时，学习日语、西班牙语或德语的基础知识。谁说网飞的时间必须是无产出的？
 

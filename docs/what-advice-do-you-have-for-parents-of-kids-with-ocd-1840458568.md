@@ -1,6 +1,6 @@
 # 你对患有强迫症的孩子的父母有什么建议？
 
-> 原文:[https://life hacker . com/what-advice-do-you-do-what-do-advice-doing-of-parents of-kids with-OCD-1840458568](https://lifehacker.com/what-advice-do-you-have-for-parents-of-kids-with-ocd-1840458568)
+> 原文：<https://lifehacker.com/what-advice-do-you-have-for-parents-of-kids-with-ocd-1840458568>
 
 上周，我写了一篇关于 [自闭症儿童](https://lifehacker.com/advice-for-parents-of-kids-with-autism-from-adults-on-1840411700) 父母资源的文章——这本书概述了同样患有自闭症的成年人的育儿建议。我觉得这是一个非常重要的概念，当我们的孩子以一种我们不熟悉的方式接受诊断或挣扎时，我们经常会忽略这个概念；我们只征求专家的意见。我们询问医生和治疗师，并从在该特定主题方面具有专业知识的组织中找到资源。但是我们可能会忽略向那些实际经历过的人寻求建议。
 

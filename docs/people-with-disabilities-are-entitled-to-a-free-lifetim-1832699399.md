@@ -1,6 +1,6 @@
 # 残疾人有权获得国家公园的终身免费通行证
 
-> 原文:[https://life hacker . com/残疾人有权享受免费生活 tim-1832699399](https://lifehacker.com/people-with-disabilities-are-entitled-to-a-free-lifetim-1832699399)
+> 原文：<https://lifehacker.com/people-with-disabilities-are-entitled-to-a-free-lifetim-1832699399>
 
 如果你或你的孩子有永久性残疾，你可能有权获得免费的终身通行证去参观国家公园和联邦娱乐场所。
 

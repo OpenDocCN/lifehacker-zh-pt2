@@ -1,6 +1,6 @@
 # 大企业是如何如此迅速地攫取工资保护基金的
 
-> 原文:[https://life hacker . com/how-big-business-grapped-payroll-protection-funds-so-fa-1843132320](https://lifehacker.com/how-big-business-grabbed-payroll-protection-funds-so-fa-1843132320)
+> 原文：<https://lifehacker.com/how-big-business-grabbed-payroll-protection-funds-so-fa-1843132320>
 
 你是否觉得你现在应该对 Shake Shack 或 Potbelly 三明治店感到愤怒，但你无法解释他们到底做错了什么？
 

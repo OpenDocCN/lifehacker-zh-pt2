@@ -1,6 +1,6 @@
 # 通过这个 Z 世代词汇表学习新的青少年俚语
 
-> 原文:[https://life hacker . com/learn-new-teen-slang-through-this-gen-z-glossary-1834496709](https://lifehacker.com/learn-new-teen-slang-through-this-gen-z-glossary-1834496709)
+> 原文：<https://lifehacker.com/learn-new-teen-slang-through-this-gen-z-glossary-1834496709>
 
 我不是一个试图了解俚语的人。我在杀人吗？
 

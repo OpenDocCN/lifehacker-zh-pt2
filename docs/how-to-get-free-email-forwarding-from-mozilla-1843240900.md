@@ -1,6 +1,6 @@
 # 如何从 Mozilla 获得免费邮件转发
 
-> 原文:[https://life hacker . com/how-to-get-free-email-forwarding-from-Mozilla-1843240900](https://lifehacker.com/how-to-get-free-email-forwarding-from-mozilla-1843240900)
+> 原文：<https://lifehacker.com/how-to-get-free-email-forwarding-from-mozilla-1843240900>
 
 一次性电子邮件是自 Hotmail 以来最好的发明。永久一次性电子邮件——你在注册转发到你实际电子邮件地址的服务时给出的假地址——甚至更好，因为它们给了你一个小小的水龙头，让你关掉收件箱中的大量垃圾邮件和其他营销废话。
 

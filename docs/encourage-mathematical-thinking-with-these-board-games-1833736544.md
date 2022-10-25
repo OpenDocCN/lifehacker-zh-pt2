@@ -1,6 +1,6 @@
 # 用这些适合小孩子的棋盘游戏来鼓励数学思维
 
-> 原文:[https://life hacker . com/comfort-mathematical-thinking-with thes-board-games-1833736544](https://lifehacker.com/encourage-mathematical-thinking-with-these-board-games-1833736544)
+> 原文：<https://lifehacker.com/encourage-mathematical-thinking-with-these-board-games-1833736544>
 
 帮助孩子理解数学概念的最好方法不是站在白板前背诵乘法口诀。相反，这是通过让他们看到数学在行动。棋盘游戏是小学员掌握诸如模式识别、空间推理、解决问题和视觉感知等技能的好方法。根据数学教育工作者和家长的说法，这里有一些适合 8 岁以下儿童的最好的棋盘游戏，它们鼓励数学思维。
 

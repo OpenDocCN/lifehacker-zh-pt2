@@ -1,6 +1,6 @@
 # Allrecipes 没有任何问题
 
-> 原文:[https://life hacker . com/review-these-classic-untrendy-recipe-sources-1843417673](https://lifehacker.com/revisit-these-classic-untrendy-recipe-sources-1843417673)
+> 原文：<https://lifehacker.com/revisit-these-classic-untrendy-recipe-sources-1843417673>
 
 美食写作是一种非常受个性驱动的体裁，已经有一段时间了。菜谱开发者、作家和电视主持人发展出狂热的追随者和粉丝并不罕见，谁写的菜谱会成为你选择晚餐做什么的一个重要因素。
 

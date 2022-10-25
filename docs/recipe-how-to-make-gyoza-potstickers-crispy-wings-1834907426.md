@@ -1,6 +1,6 @@
 # 给你的锅贴脆脆的“翅膀”
 
-> 原文:[https://the take out . com/recipe-how-to-make-gyoza-potsticks-crisp-wings-1834907426](https://thetakeout.com/recipe-how-to-make-gyoza-potstickers-crispy-wings-1834907426)
+> 原文：<https://thetakeout.com/recipe-how-to-make-gyoza-potstickers-crispy-wings-1834907426>
 
 几年前，我开始自制猪肉和卷心菜炒面，这是一项艰苦但值得的努力。制作和折叠自制 gyoza 是我家最喜欢的“让我们一起度过不看电视的时光”活动。一点音乐，一点朝日啤酒，看着圆圆胖胖的小月牙饺子堆起来。
 

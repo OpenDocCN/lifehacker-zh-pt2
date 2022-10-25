@@ -1,6 +1,6 @@
 # 当你可以用奶酪碗时，为什么要用普通的碗呢？
 
-> 原文:[https://life hacker . com/why-use-a-regular-bowl-when-you-could-use-a-cheese-bowl-1844122499](https://lifehacker.com/why-use-a-regular-bowl-when-you-could-use-a-cheese-bowl-1844122499)
+> 原文：<https://lifehacker.com/why-use-a-regular-bowl-when-you-could-use-a-cheese-bowl-1844122499>
 
 我喜欢一种食物输送系统，它本身是可以食用的，比如 T2 和 T3。通常所说的传送系统被用在甜食和经常冰淇淋相关的场景(甜筒，华夫饼碗)，尽管有人可能会说，如果使用正确，号角就有资格。但是在我看来，最好的美味可食用容器是完全由奶酪制成的。
 

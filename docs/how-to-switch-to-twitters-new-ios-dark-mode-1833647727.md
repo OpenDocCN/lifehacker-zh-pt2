@@ -1,6 +1,6 @@
 # 如何切换到 Twitter 的新 iOS“黑暗模式”
 
-> 原文:[https://life hacker . com/how-to-switch-to-twitters-new-IOs-dark-mode-1833647727](https://lifehacker.com/how-to-switch-to-twitters-new-ios-dark-mode-1833647727)
+> 原文：<https://lifehacker.com/how-to-switch-to-twitters-new-ios-dark-mode-1833647727>
 
 Twitter 今天宣布，其 iOS 应用程序有几个黑暗模式的扩展选项，如果你不想整天盯着应用程序的常规白色背景而失明的话。你现在有两个选项可供选择——结合了黑色和深灰色的**“暗淡”**模式，以及将背景设置为黑色的**“熄灯”**模式、。
 

@@ -1,6 +1,6 @@
 # 为什么您应该使用 Windows Defender 的勒索软件预防
 
-> 原文:[https://life hacker . com/why-you-should-use-windows-defenders-ransomware-prevent-1837311176](https://lifehacker.com/why-you-should-use-windows-defenders-ransomware-prevent-1837311176)
+> 原文：<https://lifehacker.com/why-you-should-use-windows-defenders-ransomware-prevent-1837311176>
 
 默认情况下，Windows Defender 中的一个重要安全功能被禁用:勒索病毒防护。这令人惊讶，因为 [勒索软件是一个严重的威胁](https://lifehacker.com/a-crash-course-in-ransomware-and-how-to-protect-yoursel-1783372708) 它锁定你的设备，阻止你访问你的数据，直到你付钱给攻击者。当你考虑到勒索软件保护早在 2017 年 10 月的 Windows 10 更新中就已添加，这就更令人惊讶了。
 

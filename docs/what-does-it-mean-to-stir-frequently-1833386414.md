@@ -1,6 +1,6 @@
 # ‘经常搅拌’是什么意思？
 
-> 原文:[https://life hacker . com/what-it-mean-to-stir-frequency-1833386414](https://lifehacker.com/what-does-it-mean-to-stir-frequently-1833386414)
+> 原文：<https://lifehacker.com/what-does-it-mean-to-stir-frequently-1833386414>
 
 如果你是一个沉迷于细节和定义的人，根据食谱烹饪会让你大脑中迂腐的部分超负荷运转。对经验丰富的家庭厨师来说很直观的单词和短语对新手来说可能是完全神秘的，尤其是那些与时间相关的概念。
 

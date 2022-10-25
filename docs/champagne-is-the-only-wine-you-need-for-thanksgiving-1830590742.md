@@ -1,6 +1,6 @@
 # 香槟是感恩节唯一需要的酒
 
-> 原文:[https://life hacker . com/champagne-is the only-wine-you-need for the 感恩节-1830590742](https://lifehacker.com/champagne-is-the-only-wine-you-need-for-thanksgiving-1830590742)
+> 原文：<https://lifehacker.com/champagne-is-the-only-wine-you-need-for-thanksgiving-1830590742>
 
 在大多数家庭里，感恩节的饭菜一年比一年没有太大变化，但总会有人为用什么酒来配火鸡和配菜而苦恼。答案很简单:香槟。
 

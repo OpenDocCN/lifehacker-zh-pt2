@@ -1,6 +1,6 @@
 # 你应该给一个未经请求的形式检查吗？
 
-> 原文:[https://life hacker . com/should-you-give-a-unsolicited-form-check-1844390401](https://lifehacker.com/should-you-give-an-unsolicited-form-check-1844390401)
+> 原文：<https://lifehacker.com/should-you-give-an-unsolicited-form-check-1844390401>
 
 不久前，我在 Instagram 上发布了一对视频。一张是我在隔离开始时摇晃壶铃的照片；另一组是最近的。随着时间的推移，我看到了进步，这就是我在标题中谈到的。我的挥杆更加敏捷，重量的路径更加可控。
 

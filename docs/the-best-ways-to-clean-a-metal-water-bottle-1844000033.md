@@ -1,6 +1,6 @@
 # 清洗金属水瓶的最佳方法
 
-> 原文:[https://life hacker . com/the-best-ways-to-clean-a-metal-water-bottle-1844000033](https://lifehacker.com/the-best-ways-to-clean-a-metal-water-bottle-1844000033)
+> 原文：<https://lifehacker.com/the-best-ways-to-clean-a-metal-water-bottle-1844000033>
 
 这是我最喜欢的季节:冰咖啡季节。嗯，从技术上来说，夏天是我最不喜欢的季节——但是冰咖啡季节是心灵的季节。冰咖啡季节一切都更好。除了从我的金属饮料瓶飘来的味道。
 

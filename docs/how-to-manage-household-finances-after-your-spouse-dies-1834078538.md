@@ -1,6 +1,6 @@
 # 配偶去世后如何管理家庭财务
 
-> 原文:[https://life hacker . com/how-to-manage-household-finance-after-your-配偶去世-1834078538](https://lifehacker.com/how-to-manage-household-finances-after-your-spouse-dies-1834078538)
+> 原文：<https://lifehacker.com/how-to-manage-household-finances-after-your-spouse-dies-1834078538>
 
 很少有人愿意考虑配偶去世后会发生什么，但这是我们许多人不得不做好准备的不可避免的事情——对于没有做好准备的寡妇或鳏夫来说，配偶去世后的那段时间可能是一场财务噩梦。
 

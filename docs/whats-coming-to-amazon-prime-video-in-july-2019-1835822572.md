@@ -1,6 +1,6 @@
 # 2019 年 7 月亚马逊 Prime 视频将会有什么
 
-> 原文:[https://life hacker . com/whats-coming-to-Amazon-prime-video-in-July-2019-1835822572](https://lifehacker.com/whats-coming-to-amazon-prime-video-in-july-2019-1835822572)
+> 原文：<https://lifehacker.com/whats-coming-to-amazon-prime-video-in-july-2019-1835822572>
 
 亚马逊将于 7 月推出五部亚马逊原创系列电影和一部亚马逊原创电影，包括聚焦于卡罗莱纳黑豹队四分卫卡姆·牛顿的第四季*和第一季*男孩*，这是一部亚马逊原创系列电影，它描述为“一个有趣而不敬的故事，讲述了超级英雄——他们像名人一样受欢迎，像政治家一样有影响力，像上帝一样受尊敬——滥用他们的超能力，而不是将他们用于正义。”* 
 

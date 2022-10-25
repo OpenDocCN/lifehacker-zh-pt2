@@ -1,6 +1,6 @@
 # can your employer fire you after you quit 1834123872
 
-> 原文:[https://life hacker . com/can-your-employee-fire-after-you-quit-1834123872](https://lifehacker.com/can-your-employer-fire-you-after-you-quit-1834123872)
+> 原文：<https://lifehacker.com/can-your-employer-fire-you-after-you-quit-1834123872>
 
 你发出了通知，但你的雇主拒绝了你的辞呈，并当场解雇了你。你的失业救济金怎么办？人力资源调查。
 

@@ -1,6 +1,6 @@
 # 我们早餐吃蛋卷，为什么不呢
 
-> 原文:[https://life hacker . com/we-re-waffling-egg-rolls-for-breakfast-why-not-1844667126](https://lifehacker.com/we-re-waffling-egg-rolls-for-breakfast-because-why-not-1844667126)
+> 原文：<https://lifehacker.com/we-re-waffling-egg-rolls-for-breakfast-because-why-not-1844667126>
 
 对我来说，“早餐”、“午餐”和“晚餐”之间的界限总是很模糊。毕竟，用餐时间是为了满足人们的需求而创造的，而且在不同的文化中差异很大。罗马人 [不吃早餐](https://www.bbc.com/news/magazine-20243692) ，而英国人有一套精心制作的“茶点”系统我还没有完全掌握。(基于社交媒体，我认为“茶”是他们对“晚餐”的说法，但也指配有小三明治和花式蛋糕的茶。很混乱！)
 

@@ -1,6 +1,6 @@
 # 如果你想停止服用抗抑郁药，应该知道什么[更新]
 
-> 原文:[https://life hacker . com/how-to-quit-your-抗抑郁药-1834249880](https://lifehacker.com/how-to-quit-your-antidepressants-1834249880)
+> 原文：<https://lifehacker.com/how-to-quit-your-antidepressants-1834249880>
 
 抗抑郁药对许多人来说效果很好，是名副其实的救星。由于你的身体习惯于它们的方式，开始和停止药物并不简单:如果你已经开始开处方，你知道 [它们可能需要几周才能开始发挥作用](https://www.psychologytoday.com/us/blog/the-superhuman-mind/201702/number-one-reason-ssris-take-four-six-weeks-work) 。如果你和你的医生决定是时候停止服用它们，抗抑郁药也很难停止。
 

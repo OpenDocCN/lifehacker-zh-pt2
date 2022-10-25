@@ -1,6 +1,6 @@
 # 不要被这些冠状病毒网络钓鱼诈骗所迷惑
 
-> 原文:[https://life hacker . com/don ' t-get-sucked-by-these-coronavirus-phishing-scams-1842967378](https://lifehacker.com/dont-get-suckered-by-these-coronavirus-phishing-scams-1842967378)
+> 原文：<https://lifehacker.com/dont-get-suckered-by-these-coronavirus-phishing-scams-1842967378>
 
 新冠肺炎疫情的严重性是骗子试图用骗局欺骗你的完美背景。我们已经看到假冒的 [冠状病毒追踪器应用](https://lifehacker.com/these-bogus-coronavirus-trackers-could-infect-your-comp-1842293731) 和 [假冒慈善机构](https://lifehacker.com/how-to-avoid-coronavirus-scams-1842268661) ，现在与冠状病毒相关的网络钓鱼诈骗也在增加。
 

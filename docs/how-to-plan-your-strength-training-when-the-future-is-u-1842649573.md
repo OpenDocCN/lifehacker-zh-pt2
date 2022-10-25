@@ -1,6 +1,6 @@
 # 在未来不确定的情况下，如何规划自己的力量训练
 
-> 原文:[https://life hacker . com/how-to-plan-your ' s strength-training-when the future-is-u-1842649573](https://lifehacker.com/how-to-plan-your-strength-training-when-the-future-is-u-1842649573)
+> 原文：<https://lifehacker.com/how-to-plan-your-strength-training-when-the-future-is-u-1842649573>
 
 每个人都有在家锻炼的想法( [美国](https://vitals.lifehacker.com/do-this-workout-at-home-no-equipment-needed-1842425497) [包括](https://vitals.lifehacker.com/do-this-dumbbell-workout-from-home-1842490289) )，但是当你知道你将在未来几周在家训练时，你不仅仅需要想法；你需要一个计划。
 

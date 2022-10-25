@@ -1,6 +1,6 @@
 # 难看的农产品箱真的能减少食物浪费吗？
 
-> 原文:[https://life hacker . com/do-ugly-produce-box-really-reduce-food-waste-1833783401](https://lifehacker.com/do-ugly-produce-boxes-really-reduce-food-waste-1833783401)
+> 原文：<https://lifehacker.com/do-ugly-produce-boxes-really-reduce-food-waste-1833783401>
 
 作为一个社会，我们浪费了一吨的食物，根据一些统计，40%的食物来自我们生产的 。种植我们扔掉的水果和蔬菜需要大量的金钱、时间、精力、水和肥料。一些公司试图通过出售装满畸形农产品的箱子来提供帮助，他们说否则这些农产品就会被浪费掉——但情况并没有那么简单。
 

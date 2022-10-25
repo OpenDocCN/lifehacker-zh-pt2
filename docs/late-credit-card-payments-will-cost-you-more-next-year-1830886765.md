@@ -1,6 +1,6 @@
 # 信用卡逾期付款明年会让你花费更多
 
-> 原文:[https://life hacker . com/late-credit-card-payments-will-cost-you-more-next-year-1830886765](https://lifehacker.com/late-credit-card-payments-will-cost-you-more-next-year-1830886765)
+> 原文：<https://lifehacker.com/late-credit-card-payments-will-cost-you-more-next-year-1830886765>
 
 错过信用卡付款可能会在明年对你的钱包造成更大的打击。
 

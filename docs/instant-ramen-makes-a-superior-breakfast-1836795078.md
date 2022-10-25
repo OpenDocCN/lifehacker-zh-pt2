@@ -1,6 +1,6 @@
 # 速食拉面是上好的早餐
 
-> 原文:[https://life hacker . com/instant-ramen-makes-a-superior-breakfast-1836795078](https://lifehacker.com/instant-ramen-makes-a-superior-breakfast-1836795078)
+> 原文：<https://lifehacker.com/instant-ramen-makes-a-superior-breakfast-1836795078>
 
 旅行可以开阔你的眼界，让你看到很多东西。就在最近，在我去参加一个视频会议的路上，我看到一个女人在早上 5 点 10 分吃了一大杯面条。显然，这个女人是一个英雄，应该受到英雄般的尊敬。
 

@@ -1,6 +1,6 @@
 # 用你的空气油炸锅制作超脆的土豆
 
-> 原文:[https://life hacker . com/use-your-air-fryer-to-make-extra-crunchy-potatos-1842910110](https://lifehacker.com/use-your-air-fryer-to-make-extra-crunchy-potatoes-1842910110)
+> 原文：<https://lifehacker.com/use-your-air-fryer-to-make-extra-crunchy-potatoes-1842910110>
 
 现在，做饭是必不可少的家务，许多餐馆关门了，三餐都有更多的人要吃饭。我不知道你们是怎么想的，但是当我在二月底慢慢进货时，冷冻食品是我当地杂货店里第一个被清空的东西。在过去的一个月里，我喜欢用空气油炸锅烹饪的非常受欢迎的土豆泥、土豆煎饼和袋装薯条已经卖完了。
 

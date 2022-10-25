@@ -1,6 +1,6 @@
 # 教育你的孩子，人际网络其实很重要
 
-> 原文:[https://life hacker . com/teach-your-teen-that networking-is-actually-important-1834580782](https://lifehacker.com/teach-your-teen-that-networking-is-actually-important-1834580782)
+> 原文：<https://lifehacker.com/teach-your-teen-that-networking-is-actually-important-1834580782>
 
 在成长过程中，我不确定我是否听过“网络”这个词。当我终于在大学听到它时，它听起来像是一个只有商科专业人才会使用的时髦词汇。这让我想到了公文包和厚厚的名片夹——绝对不是任何与我相关的东西。我是音乐表演专业的学生，我认为我成功所需要的唯一技能就是完美的表演。
 

@@ -1,6 +1,6 @@
 # 在“净化”或“排毒”期间，你的身体会发生什么
 
-> 原文:[https://life hacker . com/what-happens-in-your body-in-a-clean-or-detox-1669540259](https://lifehacker.com/what-happens-in-your-body-during-a-cleanse-or-detox-1669540259)
+> 原文：<https://lifehacker.com/what-happens-in-your-body-during-a-cleanse-or-detox-1669540259>
 
 清洁和排毒是流行的，受欢迎的，并承诺清除你体内的有害毒素，让你更健康。这是一个很高的承诺，尤其是因为他们通常无法指出他们试图清除的任何特定毒素。
 

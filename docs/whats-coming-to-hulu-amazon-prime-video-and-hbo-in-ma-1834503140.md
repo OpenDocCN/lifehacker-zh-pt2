@@ -1,6 +1,6 @@
 # 2019 年 5 月，Hulu、亚马逊 Prime Video 和 HBO 将迎来什么
 
-> 原文:[https://life hacker . com/whats-coming-to-Hulu-Amazon-prime-video-and-HBO-in-ma-1834503140](https://lifehacker.com/whats-coming-to-hulu-amazon-prime-video-and-hbo-in-ma-1834503140)
+> 原文：<https://lifehacker.com/whats-coming-to-hulu-amazon-prime-video-and-hbo-in-ma-1834503140>
 
 如果你一直梦想有一架*飞机！*马拉松或者一直希望赶上《简·处女》、《丑闻》或《实习医生格蕾》的季末，那么五月是你在 Hulu 上的月份。
 

@@ -1,6 +1,6 @@
 # 是时候停止在工作中使用迈尔斯-布里格斯法案了
 
-> 原文:[https://life hacker . com/its-time-to-stop-use-Myers-Briggs-at-work-1830232770](https://lifehacker.com/its-time-to-stop-using-myers-briggs-at-work-1830232770)
+> 原文：<https://lifehacker.com/its-time-to-stop-using-myers-briggs-at-work-1830232770>
 
 根据我今天早上的测试，我是一个 ISFP 人。或者我几年前拍的那张，一个“动荡”的 INFP，每次都可能得到不同的结果。迈尔斯-布里格斯测试是花一个小时自我专注的有趣方式，但却是做出影响某人生计的决策的糟糕方式。
 

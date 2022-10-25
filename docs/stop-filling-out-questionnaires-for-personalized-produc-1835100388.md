@@ -1,6 +1,6 @@
 # 停止填写“个性化”产品的调查问卷
 
-> 原文:[https://life hacker . com/stop-filling-filling-questionnals-for-personalized-product-1835100388](https://lifehacker.com/stop-filling-out-questionnaires-for-personalized-produc-1835100388)
+> 原文：<https://lifehacker.com/stop-filling-out-questionnaires-for-personalized-produc-1835100388>
 
 很少有什么事情比讲述一个关于你自己的故事，然后听到别人带着肯定和赞许的口吻讲述给你听更令人满足的了。这就是为什么占星术和霍格沃茨魔法学校的智力竞赛如此受欢迎。当你购买一家公司推销的“个性化”健康或美容产品时，这通常就是所发生的一切。
 

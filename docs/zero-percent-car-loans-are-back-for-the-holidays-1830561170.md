@@ -1,6 +1,6 @@
 # 零利率汽车贷款在假期又回来了
 
-> 原文:[https://jalopnik . com/zero-percent-car-loan-is-back-for-the-holidays-1830561170](https://jalopnik.com/zero-percent-car-loans-are-back-for-the-holidays-1830561170)
+> 原文：<https://jalopnik.com/zero-percent-car-loans-are-back-for-the-holidays-1830561170>
 
 汽车行业人士几个月前提出理论，认为的零利率贷款将会半途而废，原因是 [利率上升](https://jalopnik.com/interest-rates-are-getting-too-high-for-new-car-buyers-1829648498) 以及如今提供零利率贷款的成本更高。据彭博 报道，这种情况在假期会有所改变，至少暂时如此。
 

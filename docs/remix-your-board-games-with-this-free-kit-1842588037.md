@@ -1,6 +1,6 @@
 # 用这个免费工具包混音你的桌游
 
-> 原文:[https://life hacker . com/remix-your-board-games-with this-free-kit-1842588037](https://lifehacker.com/remix-your-board-games-with-this-free-kit-1842588037)
+> 原文：<https://lifehacker.com/remix-your-board-games-with-this-free-kit-1842588037>
 
 如果你对你的桌游感到有点厌倦(抱歉，我不得不这样做)，桌游混音套件背后的团队——顾名思义，它为新游戏提供指导，这些新游戏是由你可能已经拥有的其他游戏片段拼接而成的——刚刚提供了所有的混音资源供免费下载。
 

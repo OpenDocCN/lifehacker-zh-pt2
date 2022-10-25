@@ -1,6 +1,6 @@
 # 在你的预算中为“无聊”留出空间
 
-> 原文:[https://life hacker . com/make-room for-night-in-your-budget-1840835319](https://lifehacker.com/make-room-for-nonsense-in-your-budget-1840835319)
+> 原文：<https://lifehacker.com/make-room-for-nonsense-in-your-budget-1840835319>
 
 也许你带着精心准备的完美的新预算进入 2020 年，为你的财务成功做准备。你想出了一些方法来节省你每月的账单，或者可能如何储存一点额外的现金以备不时之需。
 

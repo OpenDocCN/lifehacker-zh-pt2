@@ -1,6 +1,6 @@
 # 我的 Google One 存储计划是在敲诈我吗？
 
-> 原文:[https://life hacker . com/is-my-Google-one-storage-plan-ripping-me-off-1840245128](https://lifehacker.com/is-my-google-one-storage-plan-ripping-me-off-1840245128)
+> 原文：<https://lifehacker.com/is-my-google-one-storage-plan-ripping-me-off-1840245128>
 
 谷歌的 Google One 云存储服务是在欺骗所有人吗？我承认，这不是我想得太多的事情，但是一位 Lifehacker 的读者最近给我们的 [技术建议专栏](https://lifehacker.com/c/tech-911) 写了一封信，问了这个问题。
 

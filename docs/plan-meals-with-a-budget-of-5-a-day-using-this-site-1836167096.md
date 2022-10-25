@@ -1,6 +1,6 @@
 # 使用这个网站，用每天 5 美元的预算来计划膳食
 
-> 原文:[https://life hacker . com/plan-meals-with-a-budget-of-5-a-day-using-this-site-1836167096](https://lifehacker.com/plan-meals-with-a-budget-of-5-a-day-using-this-site-1836167096)
+> 原文：<https://lifehacker.com/plan-meals-with-a-budget-of-5-a-day-using-this-site-1836167096>
 
 几乎一半的美国家庭挣不到足够的钱来支付房租和食物等基本开支 。几年前，符晓薇·布朗因她的书《好的【】】[便宜的【](https://amzn.to/2LFtAKL)】而成为头条新闻，这本书帮助你计划一周的食谱，每天的预算是 5 美元，这是美国人的平均粮票配额。
 

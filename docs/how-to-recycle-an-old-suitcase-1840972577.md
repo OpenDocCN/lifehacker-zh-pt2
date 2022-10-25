@@ -1,6 +1,6 @@
 # 如何回收旧行李箱
 
-> 原文:[https://life hacker . com/how-to-recycle-a-old-suitcase-1840972577](https://lifehacker.com/how-to-recycle-an-old-suitcase-1840972577)
+> 原文：<https://lifehacker.com/how-to-recycle-an-old-suitcase-1840972577>
 
 你终于决定与你的旧新秀丽分道扬镳了。经年累月，它积累了各种污渍、磨损痕迹和泪水；早该升级了。但是在你把行李扔进垃圾箱之前，你应该知道即使是一个用过的行李箱也有很多可回收的价值。
 

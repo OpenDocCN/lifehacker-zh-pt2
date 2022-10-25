@@ -1,6 +1,6 @@
 # 我反复购买的 9 种方便食品
 
-> 原文:[https://life hacker . com/the-9-conveniency-foods-I-buy-over-and-over-1844776941](https://lifehacker.com/the-9-convenience-foods-i-buy-over-and-over-1844776941)
+> 原文：<https://lifehacker.com/the-9-convenience-foods-i-buy-over-and-over-1844776941>
 
 仅仅因为我能够从零开始烹饪大多数东西，并不意味着我总是想这样做。我也不能对盒装、罐装、冷冻或其他加工和准备的方便食品的魅力免疫，特别是当它们拥有某些在工业厨房之外无法复制的品质时。这些是我拒绝离开的方便食品——杂货店的珍宝，我不情愿享受的资本主义的果实。
 

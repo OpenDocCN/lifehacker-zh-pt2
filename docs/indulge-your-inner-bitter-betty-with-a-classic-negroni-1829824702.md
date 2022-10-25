@@ -1,6 +1,6 @@
 # 用经典的尼格罗尼舞曲放纵你内心苦涩的贝蒂
 
-> 原文:[https://life hacker . com/lize-your-inner-bitter-Betty-with-a classic-negro ni-1829824702](https://lifehacker.com/indulge-your-inner-bitter-betty-with-a-classic-negroni-1829824702)
+> 原文：<https://lifehacker.com/indulge-your-inner-bitter-betty-with-a-classic-negroni-1829824702>
 
 各位周末快乐，欢迎回到 [三种配料的欢乐时光](https://lifehacker.com/leave-the-workweek-behind-with-an-irish-goodbye-1829716083) ，每周一次的饮品专栏，提供超级简单又美味的酒水。克莱尔正忙着拍摄令人兴奋的感恩节视频内容，所以本周是一个客座博文——由我写， [A.A .牛顿](https://kinja.com/aanewton)——献给一个真正的经典:尼格罗尼。
 

@@ -1,6 +1,6 @@
 # 你绝对应该烤腌蔬菜
 
-> 原文:[https://life hacker . com/you-should-very-should-brake-vegetables-1831432959](https://lifehacker.com/you-should-definitely-roast-pickled-vegetables-1831432959)
+> 原文：<https://lifehacker.com/you-should-definitely-roast-pickled-vegetables-1831432959>
 
 我喜欢烤蔬菜，也喜欢泡菜。但是拿个泡菜烤着吃？我的朋友们，那是一道美味的小吃，非常适合搭配奶酪、熟食或烈性鸡尾酒。
 

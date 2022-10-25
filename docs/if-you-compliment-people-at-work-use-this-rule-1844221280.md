@@ -1,6 +1,6 @@
 # 如果你赞美工作中的人，使用这条规则
 
-> 原文:[https://life hacker . com/if-you-compliment-people-in-work-use-this-rule-1844221280](https://lifehacker.com/if-you-compliment-people-at-work-use-this-rule-1844221280)
+> 原文：<https://lifehacker.com/if-you-compliment-people-at-work-use-this-rule-1844221280>
 
 如果你是其中一个哀叹“现在你甚至不能称赞工作中的某人而不被他们误解”的人，请注意:聪明的推特用户 [玛丽莎·林根](https://twitter.com/MarissaLingen) 找到了一个解决办法。她建议在评论你同事的服装时使用“时髦”这个词——也就是说，这种你的姑婆会用的词，这种词*不会*被误解。以下是她要说的话。
 

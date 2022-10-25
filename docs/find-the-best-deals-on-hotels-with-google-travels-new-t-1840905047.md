@@ -1,6 +1,6 @@
 # 使用 Google Travel 的新工具找到最优惠的酒店价格
 
-> 原文:[https://life hacker . com/find-the-best-deals-on-hotels-with-Google-travels-new-t-1840905047](https://lifehacker.com/find-the-best-deals-on-hotels-with-google-travels-new-t-1840905047)
+> 原文：<https://lifehacker.com/find-the-best-deals-on-hotels-with-google-travels-new-t-1840905047>
 
 尽管假期很有趣，但实际上计划你的旅行会很乏味(T2 和 T4)。当然，全包套餐或旅行社可能会让这个过程变得更容易，但那会变得很昂贵，而且不管怎样，我们中的一些人更喜欢自己做所有的安排——即使我们不得不 [依靠一个单片技术公司来帮助我们](https://lifehacker.com/how-and-when-you-can-access-the-biggest-upcoming-google-1831792988) 预订一切。如果这听起来更符合你的速度，谷歌最近更新了它的旅行工具，增加了更好的搜索过滤器，使计划你的旅行更加容易。
 

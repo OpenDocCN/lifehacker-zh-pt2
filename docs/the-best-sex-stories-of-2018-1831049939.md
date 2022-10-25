@@ -1,6 +1,6 @@
 # 2018 年最佳性爱故事
 
-> 原文:[https://life hacker . com/the-best-sex-stories-of-2018-1831049939](https://lifehacker.com/the-best-sex-stories-of-2018-1831049939)
+> 原文：<https://lifehacker.com/the-best-sex-stories-of-2018-1831049939>
 
 我们受人尊敬的性专栏作家瓦妮莎·马林 总是愿意深入我们要求她的任何话题。我们的意思是*钻研。*以下是我们 2018 年的一些最爱。
 

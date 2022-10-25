@@ -1,6 +1,6 @@
 # 我想要一辆能传给我未来孩子的车！我应该买什么？
 
-> 原文:[https://jalopnik . com/I-want-a-car-I-can-pass-down-to-my-future-children-wha-1830904223](https://jalopnik.com/i-want-a-car-i-can-pass-down-to-my-future-children-wha-1830904223)
+> 原文：<https://jalopnik.com/i-want-a-car-i-can-pass-down-to-my-future-children-wha-1830904223>
 
 丹尼斯很快就会从纽约搬到北加州。他期待着买一辆车，不仅能让他欣赏风景，还能让他未来的孩子继承遗产。他应该买什么车？
 

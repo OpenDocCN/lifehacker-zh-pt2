@@ -1,6 +1,6 @@
 # 如果你的 iPhone 在苹果商店关门的时候坏了怎么办
 
-> 原文:[https://life hacker . com/1842378766](https://lifehacker.com/what-to-do-if-your-iphone-breaks-while-apple-stores-are-1842378766)
+> 原文：<https://lifehacker.com/what-to-do-if-your-iphone-breaks-while-apple-stores-are-1842378766>
 
 为了帮助减少冠状病毒的传播，苹果公司上周宣布，将在 3 月 27 日之前关闭中国以外的所有商店。由于没有苹果商店可去，如果你的 iPhone 坏了，或者如果你的手机(或其他苹果设备)在宣布之前已经由苹果公司维修，这可能会造成问题。
 

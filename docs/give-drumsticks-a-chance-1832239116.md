@@ -1,6 +1,6 @@
 # 给鼓槌一个机会
 
-> 原文:[https://lifehacker.com/give-drumsticks-a-chance-1832239116](https://lifehacker.com/give-drumsticks-a-chance-1832239116)
+> 原文：<https://lifehacker.com/give-drumsticks-a-chance-1832239116>
 
 说到鸡肉，足球迷们似乎只关心鸡翅。我明白这一点，因为毫无疑问，鸡翅非常美味，我不是来阻止你吃或端上鸡翅的。然而，我在这里鼓励你考虑鸡腿。
 

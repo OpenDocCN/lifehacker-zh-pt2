@@ -1,6 +1,6 @@
 # 收养一只狗，而不是一个品种
 
-> 原文:[https://lifehacker.com/adopt-a-dog-not-a-breed-1834415902](https://lifehacker.com/adopt-a-dog-not-a-breed-1834415902)
+> 原文：<https://lifehacker.com/adopt-a-dog-not-a-breed-1834415902>
 
 我周末看狗的照片。
 

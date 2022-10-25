@@ -1,6 +1,6 @@
 # im franki chan founder of iheartcomix and this is how 1830433767
 
-> 原文:[https://life hacker . com/im-franki-chan-of-iheartcomix-and-this-is-how-1830433767](https://lifehacker.com/im-franki-chan-founder-of-iheartcomix-and-this-is-how-1830433767)
+> 原文：<https://lifehacker.com/im-franki-chan-founder-of-iheartcomix-and-this-is-how-1830433767>
 
 如果你试图将创意工作与“支付账单”工作结合起来，那么看看 IHEARTCOMIX，这是一家创意机构，它将客户工作(最近的项目包括为 *黑豹*和 *玛丽·波平斯回归*的营销)与内部项目相结合，如音乐厂牌[【IHC 1 无限](http://iheartcomix.com/1nfinity/) ，该公司将其所有音乐视频置于一个共享的世界中。我们与 IHC 的创始人 Franki Chan 讨论了如何将一个以派对系列开始的品牌发展成为一个完整的业务，同时保持趣味性和创造性。
 

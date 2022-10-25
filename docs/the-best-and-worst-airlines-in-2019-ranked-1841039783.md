@@ -1,6 +1,6 @@
 # 2019 年最佳和最差航空公司，排名
 
-> 原文:[https://life hacker . com/2019 年最佳和最差航空公司排名 1841039783](https://lifehacker.com/the-best-and-worst-airlines-in-2019-ranked-1841039783)
+> 原文：<https://lifehacker.com/the-best-and-worst-airlines-in-2019-ranked-1841039783>
 
 今天早上， [《华尔街日报》](https://www.wsj.com/articles/the-best-and-worst-u-s-airlines-of-2019-11579097301) 发布了美国主要航空公司的年度排名，其决定基于准时到达、取消航班和延误的数量等因素(并使用运输部提供的 2019 年航班数据)。不知何故，排名甚至低于 Frontier 和 Spirit 等低成本航空公司,《华尔街日报》将美国航空公司评为 2019 年最差的航空公司——这可能会也可能不会令人惊讶。在最近五年的三年中，AA 也排在最后。
 

@@ -1,6 +1,6 @@
 # 如何在 Android 上取回您的 Spotify 主屏幕小部件
 
-> 原文:[https://life hacker . com/how-to-get-back-your-Spotify-home-screen-widget-on-andr-1837208873](https://lifehacker.com/how-to-get-back-your-spotify-home-screen-widget-on-andr-1837208873)
+> 原文：<https://lifehacker.com/how-to-get-back-your-spotify-home-screen-widget-on-andr-1837208873>
 
 作为 Spotify 的长期用户，我拿起我的数字干草叉，加入了对最新 Spotify 更新 的 [感到恼火的 Android 用户的行列，该更新删除了 Android 主屏幕小工具，该小工具使播放和暂停智能手机屏幕上的歌曲变得非常有用。](https://community.spotify.com/t5/Android/Android-Widget-Removal/td-p/4800301)
 

@@ -1,6 +1,6 @@
 # 你应该随身携带多少现金
 
-> 原文:[https://life hacker . com/how-much-cash-you-should-carry-on-you-you-carry-on-you 1832259466](https://lifehacker.com/how-much-cash-you-should-carry-on-you-1832259466)
+> 原文：<https://lifehacker.com/how-much-cash-you-should-carry-on-you-1832259466>
 
 我们越来越多的人依靠借记卡和信用卡来度过日常生活。美国银行 2017 年调查发现，50%的受访者随身携带现金的时间不到一半。在那些携带现金的人中，76%的人携带的现金少于 50 美元。
 

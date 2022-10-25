@@ -1,6 +1,6 @@
 # 你真的需要吃早餐吗？
 
-> 原文:[https://life hacker . com/do-you-really-need-to-eat-breakfast-1831948560](https://lifehacker.com/do-you-really-need-to-eat-breakfast-1831948560)
+> 原文：<https://lifehacker.com/do-you-really-need-to-eat-breakfast-1831948560>
 
 营养中最重要的是你吃(1)所有的东西，(2)合理的数量，和(3)至少是健康的食物。你吃饭的准确时间并不是什么大不了的事情，也没有银河记分牌让你计算你错过早餐的次数。
 

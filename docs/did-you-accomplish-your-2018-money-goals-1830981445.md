@@ -1,6 +1,6 @@
 # 你完成了 2018 年的金钱目标了吗？
 
-> 原文:[https://life hacker . com/did-you-complete-your-2018-money-goals-1830981445](https://lifehacker.com/did-you-accomplish-your-2018-money-goals-1830981445)
+> 原文：<https://lifehacker.com/did-you-accomplish-your-2018-money-goals-1830981445>
 
 Lifehacker 的读者知道，目标设定和新年决心并不总是奏效(具体来说，决心有很高的失败可能性)。但是如果你有你想实现的目标，不可否认的是，命名它，制定一个计划，并采取具体和一致的步骤是实现它的最好方法。新的一年是开始这样做的最佳时机，假设你对自己宽容，并且明白每个人在某个时候都会面临挫折。尤其是用钱。
 

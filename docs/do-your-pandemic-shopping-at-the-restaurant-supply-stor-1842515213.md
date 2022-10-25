@@ -1,6 +1,6 @@
 # 在餐馆用品店做疫情购物
 
-> 原文:[https://life hacker . com/do-your-疫情-shopping-at-the-restaurant-supply-stor-1842515213](https://lifehacker.com/do-your-pandemic-shopping-at-the-restaurant-supply-stor-1842515213)
+> 原文：<https://lifehacker.com/do-your-pandemic-shopping-at-the-restaurant-supply-stor-1842515213>
 
 在冠状病毒关闭期间，餐馆和酒吧不是唯一遭受严重后果的以食品为中心的企业——他们赖以获得原料和供应的所有供应商也受到了伤害。如果可以的话，现在是去当地餐馆用品店的理想时间。
 

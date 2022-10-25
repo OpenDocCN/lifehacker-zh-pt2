@@ -1,6 +1,6 @@
 # 2019 年最具争议的金钱故事
 
-> 原文:[https://life hacker . com/the-most-contracted-money-stories-of-2019-1840541124](https://lifehacker.com/the-most-controversial-money-stories-of-2019-1840541124)
+> 原文：<https://lifehacker.com/the-most-controversial-money-stories-of-2019-1840541124>
 
 没有健康的辩论，生活会变得很无聊，但是我的天啊:这个网站的评论区不适合胆小的人。今年评论最多的帖子揭示了某些金钱话题是如何两极分化的。从给你的油箱加油这个简单的任务到思考税收和总统选举，以下是今年引起最多讨论的两美分帖子。
 

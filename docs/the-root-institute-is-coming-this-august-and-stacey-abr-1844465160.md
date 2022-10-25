@@ -1,6 +1,6 @@
 # 鲁特学院将于今年 8 月成立，斯泰西·艾布拉姆斯、艾娃·德约列、李·丹尼尔斯、塔拉纳·伯克和艾安娜·普莱斯利都将出席
 
-> 原文:[https://www . the root . com/the-root-institute-is-coming-this-August-and-Stacey-ABR-1844465160](https://www.theroot.com/the-root-institute-is-coming-this-august-and-stacey-abr-1844465160)
+> 原文：<https://www.theroot.com/the-root-institute-is-coming-this-august-and-stacey-abr-1844465160>
 
 黑人让事情发生。
 

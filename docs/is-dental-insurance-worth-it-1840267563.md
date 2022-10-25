@@ -1,6 +1,6 @@
 # 牙科保险值得吗？
 
-> 原文:[https://life hacker . com/is-dental-insurance-worth-it-1840267563](https://lifehacker.com/is-dental-insurance-worth-it-1840267563)
+> 原文：<https://lifehacker.com/is-dental-insurance-worth-it-1840267563>
 
 对大多数人来说，拥有健康保险是显而易见的。即使你非常健康，你也希望得到保证，如果发生严重的事情，你的保险将支付医疗保健的大部分 [惊人费用](https://twocents.lifehacker.com/assume-your-medical-bills-are-wrong-1839981669) 。
 

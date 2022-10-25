@@ -1,6 +1,6 @@
 # 你应该让你的孩子寄感谢信吗？
 
-> 原文:[https://life hacker . com/should-you-make-your-kids-send-thank-you-notes-1841136076](https://lifehacker.com/should-you-make-your-kids-send-thank-you-notes-1841136076)
+> 原文：<https://lifehacker.com/should-you-make-your-kids-send-thank-you-notes-1841136076>
 
 如果让我猜的话，我会在成为母亲之前告诉你，我是那种坚持让孩子在收到生日或节日礼物后寄感谢卡的父母。你大概能感觉到这将走向何方。
 

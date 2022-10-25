@@ -1,6 +1,6 @@
 # 最佳智能家居产品
 
-> 原文:[https://gizmodo . com/the-very-best-smart-home-gadgets-1830453706](https://gizmodo.com/the-very-best-smart-home-gadgets-1830453706)
+> 原文：<https://gizmodo.com/the-very-best-smart-home-gadgets-1830453706>
 
 近年来，由于更好的 wifi 连接、能效甚至交叉兼容性，智能家居设备变得越来越好。简而言之:现在越来越多的设备知道如何友好相处，因此比以往任何时候都更容易采用和配置您自己的智能家居。
 

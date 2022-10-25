@@ -1,6 +1,6 @@
 # 这种古怪的缩放设置会让你的隐私公开化
 
-> 原文:[https://life hacker . com/this-quirky-zoom-setting-can-make-your-private-snarks-p-1842553134](https://lifehacker.com/this-quirky-zoom-setting-can-make-your-private-snarks-p-1842553134)
+> 原文：<https://lifehacker.com/this-quirky-zoom-setting-can-make-your-private-snarks-p-1842553134>
 
 如今每个人都在放大——除非你更喜欢中的一个，而不是那些虚拟背景的会议解决方案。虽然你可能听说过一些关于缩放会议主持人如何在他们共享屏幕时判断缩放窗口是否不在你的电脑上，但在你下次虚拟工作会议之前，你可能应该了解一个与缩放和隐私有关的“功能”。
 

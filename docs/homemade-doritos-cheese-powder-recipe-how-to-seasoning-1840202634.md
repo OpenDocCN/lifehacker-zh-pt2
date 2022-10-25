@@ -1,6 +1,6 @@
 # 多力多滋粉是可以撒在任何东西上的混合香料
 
-> 原文:[https://the take out . com/manufactured-Doritos-cheese-powder-recipe-how-to-调料-1840202634](https://thetakeout.com/homemade-doritos-cheese-powder-recipe-how-to-seasoning-1840202634)
+> 原文：<https://thetakeout.com/homemade-doritos-cheese-powder-recipe-how-to-seasoning-1840202634>
 
 让我们从一个欣赏 Dorito 奇迹的地方开始:脆脆的，松脆的，咸咸的玉米片，散发出强烈的味道。就我个人而言，我仍然对他们将形状改为圆角感到生气。我想念那些尖锐的三角形，但这是一件小事。
 

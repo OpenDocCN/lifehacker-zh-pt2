@@ -1,6 +1,6 @@
 # 大卫·艾伦为“把事情做完”的粉丝们准备的最受欢迎的生产力书籍
 
-> 原文:[https://life hacker . com/David-allens-favorite-productivity-books-for-fans-of-ge-1837507625](https://lifehacker.com/david-allens-favorite-productivity-books-for-fans-of-ge-1837507625)
+> 原文：<https://lifehacker.com/david-allens-favorite-productivity-books-for-fans-of-ge-1837507625>
 
 《生产力圣经》 [*成事*](https://www.amazon.com/Getting-Things-Done-Stress-Free-Productivity/dp/0143126563?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/david-allens-favorite-productivity-books-for-fans-of-ge-1837507625&asc_source=&psc=1&tag=kinjalifehackerlink-20) 的作者大卫·艾伦在 [网站五本书](https://fivebooks.com/best-books/productivity-david-allen/) 的新访谈中分享了他最喜欢的五本关于生产力的书。GTD 的粉丝会认出像阿图尔·加万德的 [*清单宣言*](https://www.amazon.com/Checklist-Manifesto-How-Things-Right-dp-0312430000/dp/0312430000?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/david-allens-favorite-productivity-books-for-fans-of-ge-1837507625&asc_source=&me=&tag=kinjalifehackerlink-20) 和丹尼尔·J·列维京的 [*有条理的头脑*](https://www.amazon.com/Organized-Mind-Thinking-Straight-Information/dp/0147516315?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/david-allens-favorite-productivity-books-for-fans-of-ge-1837507625&asc_source=&tag=kinjalifehackerlink-20) 这样的标题。他指出了每本书的重要性，并讨论了他自己的影响。部分亮点:
 

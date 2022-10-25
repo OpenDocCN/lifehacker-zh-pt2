@@ -1,6 +1,6 @@
 # 使用硅胶包来保护香料、剃刀和旧书
 
-> 原文:[https://life hacker . com/use-silica-gel-packets-to-protect-spices-razors-and-o-1842219106](https://lifehacker.com/use-silica-gel-packets-to-protect-spices-razors-and-o-1842219106)
+> 原文：<https://lifehacker.com/use-silica-gel-packets-to-protect-spices-razors-and-o-1842219106>
 
 硅胶包在我们拆箱的大部分物品中都很常见，但是它们*做什么*？它说得很清楚不要吃它们，那么它们怎么能在房子里重复使用呢？
 

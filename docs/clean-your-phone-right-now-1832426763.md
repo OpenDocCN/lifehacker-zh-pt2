@@ -1,6 +1,6 @@
 # 马上清理你的手机
 
-> 原文:[https://life hacker . com/clean-your-phone-right-now-1832426763](https://lifehacker.com/clean-your-phone-right-now-1832426763)
+> 原文：<https://lifehacker.com/clean-your-phone-right-now-1832426763>
 
 我们每天触摸手机大约 2617 次(是的，这包括了每一次点击)。我们去哪里都带着它们:浴室、健身房、地铁和公交车。他们就像一个额外的肢体或附属物。虽然我们大多数人都想清洁门把手、水龙头或其他与手接触的东西，但我们很少想到我们的 iPhones 和 Androids。
 

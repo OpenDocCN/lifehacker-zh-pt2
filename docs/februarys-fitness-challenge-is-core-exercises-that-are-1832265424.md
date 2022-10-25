@@ -1,6 +1,6 @@
 # 二月份的健身挑战是:不是木板的核心练习
 
-> 原文:[https://life hacker . com/februarys-fitness-challenge-is-core-exercises-that-is-is-1832265424](https://lifehacker.com/februarys-fitness-challenge-is-core-exercises-that-are-1832265424)
+> 原文：<https://lifehacker.com/februarys-fitness-challenge-is-core-exercises-that-are-1832265424>
 
 也许我在 [Lifehacker 健身挑战赛](https://lifehacker.com/c/lifehacker-fitness-challenge) 中最喜欢的时刻是我们完成木板挑战赛 的 [那天。我讨厌木板。幸运的是，不用做一个单板就能锻炼出你的核心*。*](https://vitals.lifehacker.com/were-finally-done-with-the-plank-challenge-1825651117)
 

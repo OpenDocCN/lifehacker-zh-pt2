@@ -1,6 +1,6 @@
 # 如何获得乘坐 Lyft 的希尔顿奖励积分
 
-> 原文:[https://life hacker . com/how-to-earn-hilton-reward-points-for-take-lyft-rides-1834876667](https://lifehacker.com/how-to-earn-hilton-reward-points-for-taking-lyft-rides-1834876667)
+> 原文：<https://lifehacker.com/how-to-earn-hilton-reward-points-for-taking-lyft-rides-1834876667>
 
 Lyft 已经提供了在达美航空公司乘坐该服务一段时间来赚取里程的能力。现在它提供了一项新的旅行福利:希尔顿积分奖励。该计划于本周正式启动。
 

@@ -1,6 +1,6 @@
 # 在承担新的时间承诺之前，问问自己这个问题
 
-> 原文:[https://life hacker . com/ask-yourself-this-question-before-taking-on-a-new-time-1841811679](https://lifehacker.com/ask-yourself-this-question-before-taking-on-a-new-time-1841811679)
+> 原文：<https://lifehacker.com/ask-yourself-this-question-before-taking-on-a-new-time-1841811679>
 
 下一次有人问你是否想去上课或加入一个委员会或成为他们新的读书俱乐部的一员时，不要以为你会在未来找到一种方法为这种时间承诺腾出空间。
 

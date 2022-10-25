@@ -1,6 +1,6 @@
 # 如何不被机械师要价过高
 
-> 原文:[https://life hacker . com/how-to-not-get-over-charged by-a-mechanical-1836308578](https://lifehacker.com/how-to-not-get-overcharged-by-a-mechanic-1836308578)
+> 原文：<https://lifehacker.com/how-to-not-get-overcharged-by-a-mechanic-1836308578>
 
 今天早上，我丈夫把他的车开到了我们的机械师那里，为了完成足够的工作，他今天需要一辆租来的车，估计需要 1000 多美元。“我会告诉他们不要更换机舱空气过滤器，”他让我放心。“我可以自己做那个。”现在，如果他能安装和调整自己的轮胎，更换蛇形皮带，并执行我们州的排放测试，我们真的可以节省一些钱。
 

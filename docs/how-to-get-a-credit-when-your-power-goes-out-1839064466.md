@@ -1,6 +1,6 @@
 # 停电时如何获得电费、有线电视费和互联网费的补偿
 
-> 原文:[https://life hacker . com/how-to-get-a credit-when your power-out-1839064466](https://lifehacker.com/how-to-get-a-credit-when-your-power-goes-out-1839064466)
+> 原文：<https://lifehacker.com/how-to-get-a-credit-when-your-power-goes-out-1839064466>
 
 即使你离开房间时小心地关灯或支付最低等级的互联网计划，也可以说这些每月的费用是一种痛苦。你为你的服务付出了很多，当服务没有达到预期时，你可能会被蒙在鼓里，不知道你到底在为什么付钱。
 

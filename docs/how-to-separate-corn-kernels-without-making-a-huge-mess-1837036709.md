@@ -1,6 +1,6 @@
 # 如何在不造成巨大混乱的情况下分离玉米粒
 
-> 原文:[https://life hacker . com/how-to-separate-玉米粒-不要搞得一团糟-1837036709](https://lifehacker.com/how-to-separate-corn-kernels-without-making-a-huge-mess-1837036709)
+> 原文：<https://lifehacker.com/how-to-separate-corn-kernels-without-making-a-huge-mess-1837036709>
 
 [拿掉玉米粒](https://lifehacker.com/make-a-golden-stock-out-of-corn-cobs-1827181520) 似乎没有什么好办法。大多数“技巧”包括不稳定地平衡碗里的玉米穗，切掉它们，并希望你不会滑倒并切到手指。有时碗会抓住最后一粒果仁，但更多的时候，你会追逐所有没有成功的果仁——如果你还没有在去急诊室的路上。
 

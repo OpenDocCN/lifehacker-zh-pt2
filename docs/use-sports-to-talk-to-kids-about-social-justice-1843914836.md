@@ -1,6 +1,6 @@
 # use sports to talk to kids about social justice 1843914836
 
-> 原文:[https://life hacker . com/use-sports-to-talk-to-kids-on-social-justice-1843914836](https://lifehacker.com/use-sports-to-talk-to-kids-about-social-justice-1843914836)
+> 原文：<https://lifehacker.com/use-sports-to-talk-to-kids-about-social-justice-1843914836>
 
 作为一个痴迷于体育的 10 岁孩子的母亲，我很高兴能通过观看 ESPN 记录芝加哥公牛队 1997-98 冠军赛季的系列片《最后的舞蹈》,与儿子一起重温迈克尔·乔丹时代。更令我高兴的是，它让我们就杰西·赫尔姆斯的种族主义历史、体育经济学以及黑人明星运动员在社会问题上发表权威言论的期望进行了深入的对话。
 

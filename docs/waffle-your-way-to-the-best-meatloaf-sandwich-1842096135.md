@@ -1,6 +1,6 @@
 # 用你的方式做最好的烘肉卷三明治
 
-> 原文:[https://life hacker . com/waffle-your-way-to-the-best meat loaf-sandwich-1842096135](https://lifehacker.com/waffle-your-way-to-the-best-meatloaf-sandwich-1842096135)
+> 原文：<https://lifehacker.com/waffle-your-way-to-the-best-meatloaf-sandwich-1842096135>
 
 烘肉卷可能是我最喜欢的面包。显然，刚出炉的时候味道很好，但我总是对第二天做的烘肉卷*三明治*更感兴趣。我吃过夹有冷烘肉卷、煎 T4 烘肉卷和用微波炉加热过的烘肉卷的三明治，但夹有华夫饼干的三明治是我目前的最爱。
 

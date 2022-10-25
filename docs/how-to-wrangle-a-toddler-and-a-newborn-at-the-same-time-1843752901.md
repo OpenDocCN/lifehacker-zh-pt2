@@ -1,6 +1,6 @@
 # 如何同时与一个蹒跚学步的孩子和一个新生儿争吵
 
-> 原文:[https://life hacker . com/how-to-wrangle 一个蹒跚学步的孩子和一个同时出生的新生儿-1843752901](https://lifehacker.com/how-to-wrangle-a-toddler-and-a-newborn-at-the-same-time-1843752901)
+> 原文：<https://lifehacker.com/how-to-wrangle-a-toddler-and-a-newborn-at-the-same-time-1843752901>
 
 除了作为养父母的一个(非常)长的周末，我从未同时养育过一个蹒跚学步的孩子和一个新生儿。但那个漫长的周末确实让我(相对)短暂地看到了那将是多么的疯狂和疲惫。作为一个社会，我们非常重视为第一个孩子做准备。但是第二个孩子呢？那是狗屎变得真实的时候。
 

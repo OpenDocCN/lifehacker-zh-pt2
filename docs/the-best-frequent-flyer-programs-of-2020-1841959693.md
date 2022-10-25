@@ -1,6 +1,6 @@
 # 2020 年最佳常旅客计划[更新]
 
-> 原文:[https://life hacker . com/the-best-frequent-flyer-programs-of-2020-1841959693](https://lifehacker.com/the-best-frequent-flyer-programs-of-2020-1841959693)
+> 原文：<https://lifehacker.com/the-best-frequent-flyer-programs-of-2020-1841959693>
 
 挣扎着决定哪家航空公司的忠诚俱乐部能给你带来最大的好处？现在有一个计算器可以帮你决定。
 

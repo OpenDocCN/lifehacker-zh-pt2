@@ -1,6 +1,6 @@
 # 是时候检查哪些应用程序正在跟踪你的位置了
 
-> 原文:[https://life hacker . com/its-time-to-check-the-app-is-tracking-your-location-1830979707](https://lifehacker.com/its-time-to-check-which-apps-are-tracking-your-location-1830979707)
+> 原文：<https://lifehacker.com/its-time-to-check-which-apps-are-tracking-your-location-1830979707>
 
 你猜怎么着？一些应用程序喜欢知道你在哪里，这样他们的开发者就可以获取这些数据，为各种广告公司打包，并从你的精确位置中快速获利——包括你去了哪里，在那里呆了多长时间。
 

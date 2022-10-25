@@ -1,6 +1,6 @@
 # 如何在真正偏远的地区交流
 
-> 原文:[https://life hacker . com/how-to-communication-in-a-true-remote-area-1833321816](https://lifehacker.com/how-to-communicate-in-a-truly-remote-area-1833321816)
+> 原文：<https://lifehacker.com/how-to-communicate-in-a-truly-remote-area-1833321816>
 
 如今，我们几乎可以在任何地方依靠手机进行交流。但是如果你在一个真正偏远的地方徒步旅行，你可能会在离有信号的地方几英里的地方结束。下面是准备的方法。
 

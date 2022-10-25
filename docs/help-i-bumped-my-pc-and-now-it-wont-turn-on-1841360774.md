@@ -1,6 +1,6 @@
 # 救命啊！我撞了一下我的电脑，现在它打不开了
 
-> 原文:[https://life hacker . com/help-I-bumped-my-PC-and-now-it-wot-on-1841360774](https://lifehacker.com/help-i-bumped-my-pc-and-now-it-wont-turn-on-1841360774)
+> 原文：<https://lifehacker.com/help-i-bumped-my-pc-and-now-it-wont-turn-on-1841360774>
 
 你的笔记本电脑是一个微妙的野兽。在某一点上，它可能会受到重击，甚至可能是跌落。它可能从桌子上摔下来毫发无伤，但在正确的时间以正确的方式用重物撞击它可能会结束这一切。
 

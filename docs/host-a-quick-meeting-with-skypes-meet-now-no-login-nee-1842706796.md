@@ -1,6 +1,6 @@
 # 使用 Skype 的“立即开会”功能主持一个快速会议，无需登录
 
-> 原文:[https://life hacker . com/host-a-quick-meeting-with-Skype-meet-now-no-log in-nee-1842706796](https://lifehacker.com/host-a-quick-meeting-with-skypes-meet-now-no-login-nee-1842706796)
+> 原文：<https://lifehacker.com/host-a-quick-meeting-with-skypes-meet-now-no-login-nee-1842706796>
 
 我的新*地下城&龙*游戏团队在过去几周几乎一直在开会，但我们仍然无法决定哪种服务提供最好的质量和用户界面——并且对我们所有人来说最容易访问。我们一直在 Zooms、Facebooks、FaceTimes 甚至一两个家庭聚会之间跳来跳去，还没有做出决定——但是 Skype 的一个新功能可能会让这个决定变得更容易。
 

@@ -1,6 +1,6 @@
 # 额外的 600 美元失业救济金可能会延长
 
-> 原文:[https://life hacker . com/that-extra-600-失业救济金-可获得-延长-1844247564](https://lifehacker.com/that-extra-600-unemployment-benefit-could-get-extended-1844247564)
+> 原文：<https://lifehacker.com/that-extra-600-unemployment-benefit-could-get-extended-1844247564>
 
 随着美国大流行后的重新开放计划在许多州越来越像是一种糟糕的分分合合的关系，许多工人担心失去他们的失业福利。
 

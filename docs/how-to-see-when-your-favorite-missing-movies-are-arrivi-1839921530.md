@@ -1,6 +1,6 @@
 # 如何查看您最喜爱的缺失电影何时到达 Disney+
 
-> 原文:[https://life hacker . com/how-to-see-when-your favor-missing-movie-arrivi-1839921530](https://lifehacker.com/how-to-see-when-your-favorite-missing-movies-are-arrivi-1839921530)
+> 原文：<https://lifehacker.com/how-to-see-when-your-favorite-missing-movies-are-arrivi-1839921530>
 
 我花了相当多的时间在我的 Disney+排队上——谢谢，4K·杜比 Atmos *星球大战*电影——但我对迪士尼廉价流媒体服务的享受因仍与网飞绑定的各种电影而略有下降。然而，你现在就可以开始为《T2》、《黑豹》等游戏排队，Disney+甚至会给你一个它们预定到达的确切日期。
 

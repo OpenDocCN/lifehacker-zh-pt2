@@ -1,6 +1,6 @@
 # 如何在 iOS 和 Android 上访问 Slack 的秘密黑暗模式
 
-> 原文:[https://life hacker . com/how-to-access-slacks-secret-dark-mode-on-IOs-and-androi-1833186068](https://lifehacker.com/how-to-access-slacks-secret-dark-mode-on-ios-and-androi-1833186068)
+> 原文：<https://lifehacker.com/how-to-access-slacks-secret-dark-mode-on-ios-and-androi-1833186068>
 
 如果可以的话，我会在黑暗或夜晚模式下使用我手机上的所有应用程序。夜间模式对你的眼睛更好看，对你的设备电池也更好用。现在 Slack 终于开始为其 iOS 和 Android 应用测试黑暗模式了。
 

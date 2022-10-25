@@ -1,6 +1,6 @@
 # 当你换工作时，如何自动转移你的 401(k)资金
 
-> 原文:[https://life hacker . com/how-to-automatically-transfer-your-401-k-money-when-yo-1844393729](https://lifehacker.com/how-to-automatically-transfer-your-401-k-money-when-yo-1844393729)
+> 原文：<https://lifehacker.com/how-to-automatically-transfer-your-401-k-money-when-yo-1844393729>
 
 换工作通常需要一系列步骤来缓解这种转变。一个经常被忽视的步骤是从你原来公司的 401(k)账户中转移资金。当你为你的新工作做准备时，你可能会把这个任务搁置起来——直到几年后再去想它。或者更糟的是，你可能会选择兑现你的 401(k)余额。
 

@@ -1,6 +1,6 @@
 # 每 2020 年民主党人解决住房危机的计划
 
-> 原文:[https://life hacker . com/every-2020-Democrats-plan-to-fix-the-housing-crisis-1838144931](https://lifehacker.com/every-2020-democrats-plan-to-fix-the-housing-crisis-1838144931)
+> 原文：<https://lifehacker.com/every-2020-democrats-plan-to-fix-the-housing-crisis-1838144931>
 
 上周末，伯尼·桑德斯提出了一项 2.5 万亿美元的住房计划，其中承诺建立全国租金控制标准，并对经济适用房进行大量投资。像桑德斯一样，其他几位民主党候选人也提出了解决美国住房不平等的建议。不出所料，前住房和城市发展部长朱利安·卡斯特罗有一个最详细的计划，他说政策将解决无家可归危机。与此同时，前德克萨斯州众议员贝托·奥罗克(Beto O'Rourke)尚未公布任何形式的住房计划(或回应对他在这个问题上有争议的记录的批评)。
 

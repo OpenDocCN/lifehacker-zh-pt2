@@ -1,6 +1,6 @@
 # 用“睡前通行证”让你的孩子呆在床上
 
-> 原文:[https://life hacker . com/get-your-kid-to-stay-in-bed-with the-bed-pass-1830021878](https://lifehacker.com/get-your-kid-to-stay-in-bed-with-the-bedtime-pass-1830021878)
+> 原文：<https://lifehacker.com/get-your-kid-to-stay-in-bed-with-the-bedtime-pass-1830021878>
 
 除非你是那些幸运的父母中的一员，他们的孩子是为了睡觉而活着的，否则你可能和我们其他人一样——在疲惫的迷雾中蹒跚地度过每一天，但当时钟开始越来越接近[*暗示不祥的音乐*就寝时间*时，又害怕日落。*即使你的孩子没有入睡困难，他们的挑战也可能是保持睡眠。你已经开始期待你会在夜里多次见到一张模糊的小脸。
 

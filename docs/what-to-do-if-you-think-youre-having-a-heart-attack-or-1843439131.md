@@ -1,6 +1,6 @@
 # 如果你认为自己心脏病发作或中风了，该怎么办
 
-> 原文:[https://life hacker . com/1843439131](https://lifehacker.com/what-to-do-if-you-think-youre-having-a-heart-attack-or-1843439131)
+> 原文：<https://lifehacker.com/what-to-do-if-you-think-youre-having-a-heart-attack-or-1843439131>
 
 在过去的几个月里，急诊室的接诊人数下降了 40-50%，这一事实让医生们担心，心脏病和中风患者因为害怕感染新冠肺炎病毒而推迟去急诊室。**如果你认为自己可能中风或心脏病发作，现在就拨打 911。**
 

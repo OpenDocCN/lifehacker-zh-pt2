@@ -1,6 +1,6 @@
 # 用这些变化之一来庆祝尼格罗尼周
 
-> 原文:[https://life hacker . com/practice-negro ni-week-with-one-of-these-variations-1835947569](https://lifehacker.com/celebrate-negroni-week-with-one-of-these-variations-1835947569)
+> 原文：<https://lifehacker.com/celebrate-negroni-week-with-one-of-these-variations-1835947569>
 
 现在是 [尼格罗尼周](https://negroniweek.com/about/)——至少还有几天。如果你不熟悉这个星期，一群不同酒吧的不同调酒师将他们的“旋转”放在经典鸡尾酒上，为世界各地的慈善机构筹集资金。挺好的。
 

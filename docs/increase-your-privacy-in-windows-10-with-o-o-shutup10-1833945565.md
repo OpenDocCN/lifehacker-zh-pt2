@@ -1,6 +1,6 @@
 # 使用“O&O 关闭 10”在 Windows 10 中增加您的隐私
 
-> 原文:[https://life hacker . com/increase-your-privacy-in-windows-10-with-o-o-shut up 10-1833945565](https://lifehacker.com/increase-your-privacy-in-windows-10-with-o-o-shutup10-1833945565)
+> 原文：<https://lifehacker.com/increase-your-privacy-in-windows-10-with-o-o-shutup10-1833945565>
 
 **Windows:** 虽然一个普通的 Windows 10 安装通常并不那么难管理，但你的操作系统下可能会有很多让你恼火的东西。也许这是你希望关闭的一两个功能，或者也许你关心微软在你的电脑上收集什么样的数据——或者它在哪里。
 

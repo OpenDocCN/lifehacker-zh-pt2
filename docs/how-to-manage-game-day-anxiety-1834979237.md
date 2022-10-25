@@ -1,6 +1,6 @@
 # 如何管理比赛日焦虑
 
-> 原文:[https://life hacker . com/how-to-manage-game-day-anxiety-1834979237](https://lifehacker.com/how-to-manage-game-day-anxiety-1834979237)
+> 原文：<https://lifehacker.com/how-to-manage-game-day-anxiety-1834979237>
 
 无论你是在进行一项运动，准备一场演讲，还是准备在观众面前唱歌，控制赛前的紧张几乎是不可能的。
 

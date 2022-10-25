@@ -1,6 +1,6 @@
 # 像 Siri 一样快地在你的 iPhone 上启动谷歌助手
 
-> 原文:[https://life hacker . com/launch-Google-assistant-on-your-iphone-as-fast-as-si-1844152322](https://lifehacker.com/launch-google-assistant-on-your-iphone-as-quickly-as-si-1844152322)
+> 原文：<https://lifehacker.com/launch-google-assistant-on-your-iphone-as-quickly-as-si-1844152322>
 
 如果你是一个谷歌的忠实用户，并且碰巧 也是一个 iPhone 的拥有者，你现在可以像召唤苹果的数字助手一样简单地召唤谷歌助手。只需要一点创意、一个快捷方式和一根手指——这几乎和拥有一个实体按钮一样好。
 

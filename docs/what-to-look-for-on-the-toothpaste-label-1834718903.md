@@ -1,6 +1,6 @@
 # 在牙膏标签上寻找什么
 
-> 原文:[https://life hacker . com/what-to-look-on-the-study-label-1834718903](https://lifehacker.com/what-to-look-for-on-the-toothpaste-label-1834718903)
+> 原文：<https://lifehacker.com/what-to-look-for-on-the-toothpaste-label-1834718903>
 
 花哨的牙膏可能有不同的颜色，并拥有不同寻常的成分，但它们可能不会比普通的药店牙膏提供更好的牙齿健康 。如果你尝试一个新品牌，以下是你需要注意的:
 

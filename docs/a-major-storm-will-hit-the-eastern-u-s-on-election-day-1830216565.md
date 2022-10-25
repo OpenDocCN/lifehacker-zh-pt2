@@ -1,6 +1,6 @@
 # 一场大风暴将在选举日袭击美国东部(但请无论如何去投票)
 
-> 原文:[https://gizmodo . com/a-major-storm-will-hit-the-eastern-u-s-on-election-day-1830216565](https://gizmodo.com/a-major-storm-will-hit-the-eastern-u-s-on-election-day-1830216565)
+> 原文：<https://gizmodo.com/a-major-storm-will-hit-the-eastern-u-s-on-election-day-1830216565>
 
 天气不会因为任何人而停止，包括选民。对于本周前往投票站的许多人来说，从周一开始到周二，一场雨、雪和可能的恶劣天气的大混乱即将到来。但是这种影响预计不会持续一整天，所以你应该可以找到一个窗口去投票。
 

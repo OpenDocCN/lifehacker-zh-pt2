@@ -1,6 +1,6 @@
 # 如何衡量你的儿童保育选择的风险
 
-> 原文:[https://life hacker . com/how-to-weigh-the-risks-of-your child-care-options-1843608103](https://lifehacker.com/how-to-weigh-the-risks-of-your-child-care-options-1843608103)
+> 原文：<https://lifehacker.com/how-to-weigh-the-risks-of-your-child-care-options-1843608103>
 
 雇主开始要求员工回去工作，迫使他们考虑如何在学校关闭期间安全地为他们的孩子安排托儿服务的紧迫问题。这个决定需要权衡多种风险，以衡量哪种选择对你的特定情况最安全。
 

@@ -1,6 +1,6 @@
 # 如何使用漂白剂而不损坏你的衣服
 
-> 原文:[https://life hacker . com/how-to-use-bleach-without-wraith-1843470786](https://lifehacker.com/how-to-use-bleach-without-ruining-your-clothes-1843470786)
+> 原文：<https://lifehacker.com/how-to-use-bleach-without-ruining-your-clothes-1843470786>
 
 漂白剂有助于让你的衣服看起来清新亮丽。如果你不知道自己在做什么，这对你最喜欢的衬衫来说也是个坏消息。如果你不习惯它，使用漂白剂可能会 有点吓人——所以下面是如何自信地这样做同时做(不毁坏)你的衣物。
 

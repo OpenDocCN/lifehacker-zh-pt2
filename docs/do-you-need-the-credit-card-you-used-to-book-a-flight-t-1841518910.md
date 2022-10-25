@@ -1,6 +1,6 @@
 # 你需要你用来预订航班的信用卡来办理登机手续吗？
 
-> 原文:[https://life hacker . com/do-you-need-the-credit-card-you-used-to-book-a flight-t-1841518910](https://lifehacker.com/do-you-need-the-credit-card-you-used-to-book-a-flight-t-1841518910)
+> 原文：<https://lifehacker.com/do-you-need-the-credit-card-you-used-to-book-a-flight-t-1841518910>
 
 你在机场准备办理登机手续，这时你意识到找不到你的信用卡了——你在精神上折回你的脚步，希望它在家里在你打包行李时做的那堆衣服下面。幸运的是，你*至少*做好了足够的准备，带着你的借记卡度过接下来的几天。
 

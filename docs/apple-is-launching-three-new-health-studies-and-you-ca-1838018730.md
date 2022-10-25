@@ -1,6 +1,6 @@
 # 苹果公司正在推出三项新的健康研究，你可以参加
 
-> 原文:[https://life hacker . com/apple-is-launch-three-new-health-studies-and-you-ca-1838018730](https://lifehacker.com/apple-is-launching-three-new-health-studies-and-you-ca-1838018730)
+> 原文：<https://lifehacker.com/apple-is-launching-three-new-health-studies-and-you-ca-1838018730>
 
 今天，苹果 [宣布](https://lifehacker.com/everything-from-todays-apple-event-that-actually-matter-1838013573) 他们推出了三项新的健康研究，你可以通过即将推出的研究应用程序注册。
 

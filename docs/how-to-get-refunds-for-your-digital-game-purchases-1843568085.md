@@ -1,6 +1,6 @@
 # 如何在 Steam、Epic Games 和 GOG 上退款
 
-> 原文:[https://life hacker . com/how-to-get-return-for-your-digital-game-purchases-1843568085](https://lifehacker.com/how-to-get-refunds-for-your-digital-game-purchases-1843568085)
+> 原文：<https://lifehacker.com/how-to-get-refunds-for-your-digital-game-purchases-1843568085>
 
 有时你买了一个新的电脑游戏，但它并不是你所期望的。也许这个游戏和你的硬件不兼容，或者这个游戏不适合你。不管是哪种情况，如果你对你刚买的电脑游戏感到后悔，你可能有资格获得退款。
 

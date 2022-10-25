@@ -1,6 +1,6 @@
 # 如何做一场精彩的演讲
 
-> 原文:[https://life hacker . com/how-to-give-a-great-speech-1835908227](https://lifehacker.com/how-to-give-a-great-speech-1835908227)
+> 原文：<https://lifehacker.com/how-to-give-a-great-speech-1835908227>
 
 当你准备演讲时，营销人员塞斯·戈丁 说:“不要死记硬背你的演讲。记住你的故事。十个故事组成一个谈话。”
 

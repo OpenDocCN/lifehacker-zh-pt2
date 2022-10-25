@@ -1,6 +1,6 @@
 # 如何克服对飞行的恐惧
 
-> 原文:[https://life hacker . com/how-to-克服你对飞行的恐惧-1843593112](https://lifehacker.com/how-to-overcome-your-fear-of-flying-1843593112)
+> 原文：<https://lifehacker.com/how-to-overcome-your-fear-of-flying-1843593112>
 
 从我记事起，我对飞行的恐惧总是伴随着荒谬的“如果”。场景。如果紧急舱门打开，把所有人都吸出飞机怎么办？如果飞行员休息去睡觉呢？如果一只鸟飞进飞机，然后迅速被吸进发动机里怎么办？ [(哦，等等。)](https://en.wikipedia.org/wiki/US_Airways_Flight_1549)
 

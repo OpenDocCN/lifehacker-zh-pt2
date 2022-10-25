@@ -1,6 +1,6 @@
 # 在家做这种锻炼，不需要任何设备
 
-> 原文:[https://life hacker . com/do-this-workout-in-home-no-equipment-need-1842425497](https://lifehacker.com/do-this-workout-at-home-no-equipment-needed-1842425497)
+> 原文：<https://lifehacker.com/do-this-workout-at-home-no-equipment-needed-1842425497>
 
 是啊，我的健身房也关门了。因此，这里有一个全新的锻炼，你可以不需要任何健身器材。我们这里有五个基于力量的动作，它们一起将有助于增强你身体每个部位的力量:
 

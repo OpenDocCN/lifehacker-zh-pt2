@@ -1,6 +1,6 @@
 # 用真正的主题曲给谷歌的卡门·桑迪戈游戏增添趣味
 
-> 原文:[https://life hacker . com/spice-up-Google-Carmen-sandiego-game-with-the-real-the-1833271689](https://lifehacker.com/spice-up-googles-carmen-sandiego-game-with-the-real-the-1833271689)
+> 原文：<https://lifehacker.com/spice-up-googles-carmen-sandiego-game-with-the-real-the-1833271689>
 
 我心里一直有一个老派的“寓教于乐”游戏卡门·桑迪戈，因为小时候它们教了我一些像样的地理知识。我也喜欢这部很棒的电视节目(有很棒的主题曲 )，尽管我很确定我做了噩梦，梦见自己出现在节目中，并且在大结局中被一个难以置信的困难的大陆卡住，就像 [非洲](https://youtu.be/GsSCNjbNy4I?t=1423) 。
 

@@ -1,6 +1,6 @@
 # 美国银行持卡人本周末可免费进入博物馆
 
-> 原文:[https://life hacker . com/bank-of-America-cards-get-free-museum-admission-t-1837836267](https://lifehacker.com/bank-of-america-cardholders-get-free-museum-admission-t-1837836267)
+> 原文：<https://lifehacker.com/bank-of-america-cardholders-get-free-museum-admission-t-1837836267>
 
 既然漫长的劳动节周末已经过去，夏天可能已经“结束”了，但这并不意味着你必须将有趣的周末远足推迟到春天。如果你想在这个周末找点事做，你可以免费参观附近的博物馆。美国银行持卡人可在每月 的第一个完整周末 [免费进入博物馆和文化场所。](https://about.bankofamerica.com/en-us/what-guides-us/arts-and-culture.html#fbid=ydjK9kViJTD)
 

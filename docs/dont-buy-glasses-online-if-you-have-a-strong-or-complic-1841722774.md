@@ -1,6 +1,6 @@
 # 如果你有强烈或复杂的处方，不要在网上购买眼镜
 
-> 原文:[https://life hacker . com/don-buy-glasses-online-if you-have-a-strong-or-complic-1841722774](https://lifehacker.com/dont-buy-glasses-online-if-you-have-a-strong-or-complic-1841722774)
+> 原文：<https://lifehacker.com/dont-buy-glasses-online-if-you-have-a-strong-or-complic-1841722774>
 
 当你买新眼镜时，网上购物比去传统眼镜店更容易，而且通常更便宜。事实证明，根据你的处方，这也意味着你买的眼镜可能不太有用。
 

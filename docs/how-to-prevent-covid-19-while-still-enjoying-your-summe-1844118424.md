@@ -1,6 +1,6 @@
 # 如何在享受夏日时光的同时预防新冠肺炎
 
-> 原文:[https://life hacker . com/how-to-prevent-while-years-your-samme-1844118424](https://lifehacker.com/how-to-prevent-covid-19-while-still-enjoying-your-summe-1844118424)
+> 原文：<https://lifehacker.com/how-to-prevent-covid-19-while-still-enjoying-your-summe-1844118424>
 
 你还记得今年早些时候，当天气变暖时，人们确信疫情会结束吗？
 

@@ -1,6 +1,6 @@
 # 如何新的 ultrafino 评分可以帮助您获得更好的汽车贷款
 
-> 原文:[https://jalopnik . com/how-the-new-ultra Fico-score-can-help-you-get-a-better-1829931916](https://jalopnik.com/how-the-new-ultrafico-score-could-help-you-get-a-better-1829931916)
+> 原文：<https://jalopnik.com/how-the-new-ultrafico-score-could-help-you-get-a-better-1829931916>
 
 除非你用现金在 Craigslist 上购买一辆好车，否则你的 FICO 信用评分是决定你能否获得汽车贷款以及你将支付多少利息的关键因素。现在，一个新的评分标准 [UltraFICO](https://lifehacker.com/heres-how-the-new-ultrafico-credit-score-will-work-1829909471) 即将到来，这可能有助于许多人以更高的费率获得批准。
 

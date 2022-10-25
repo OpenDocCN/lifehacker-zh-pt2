@@ -1,6 +1,6 @@
 # 带你的孩子去投票是可以的
 
-> 原文:[https://life hacker . com/bring-your-kids-to-the-polls-1830189844](https://lifehacker.com/bring-your-kids-to-the-polls-1830189844)
+> 原文：<https://lifehacker.com/bring-your-kids-to-the-polls-1830189844>
 
 几周前我投了票——我 10 岁的儿子今天早上兴致勃勃地去投票站时，觉得这个事实非常令人恼火。我今年早些时候投票有我的理由，其中大部分应该是显而易见的，但我确实感到一丝遗憾，因为他无法亲自体验这场肯定会是一生一次的选举。
 

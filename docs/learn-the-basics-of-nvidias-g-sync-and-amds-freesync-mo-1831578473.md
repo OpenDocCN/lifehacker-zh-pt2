@@ -1,6 +1,6 @@
 # 了解 Nvidia 的“G-Sync”和 AMD 的“FreeSync”显示器技术的基础知识
 
-> 原文:[https://life hacker . com/learn-the-basics-of-nvidias-g-sync-and-amds-free sync-mo-1831578473](https://lifehacker.com/learn-the-basics-of-nvidias-g-sync-and-amds-freesync-mo-1831578473)
+> 原文：<https://lifehacker.com/learn-the-basics-of-nvidias-g-sync-and-amds-freesync-mo-1831578473>
 
 Nvidia 是 PC 显卡和所有与游戏好看相关的东西的主要供应商，最近宣布计划开放其专有的显示渲染技术，“”用于支持*其他*可变刷新率技术的少数显示器，AMD 的 FreeSync。
 

@@ -1,6 +1,6 @@
 # 使用 CoPilot GPS 获取适合房车的驾驶路线
 
-> 原文:[https://life hacker . com/get-RV-friendly-driving-directions-with-copilot-GPS-1835037546](https://lifehacker.com/get-rv-friendly-driving-directions-with-copilot-gps-1835037546)
+> 原文：<https://lifehacker.com/get-rv-friendly-driving-directions-with-copilot-gps-1835037546>
 
 当你开着普通汽车或 SUV 上路时，任何导航应用都可以。如果你租了一辆房车。然而，有时这些传统的导航应用程序忽略了一个重要因素:你的房车的高度。
 

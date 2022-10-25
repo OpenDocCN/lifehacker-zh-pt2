@@ -1,6 +1,6 @@
 # 找到最近和最安全的急诊室与急诊室督察
 
-> 原文:[https://life hacker . com/find-the-close-and-safe-急诊室-er-insp-1838360623](https://lifehacker.com/find-the-closest-and-safest-emergency-room-with-er-insp-1838360623)
+> 原文：<https://lifehacker.com/find-the-closest-and-safest-emergency-room-with-er-insp-1838360623>
 
 急诊室并不总是为了生死攸关的紧急情况:有时你有足够的时间来选择去哪里。(例如，如果你的孩子需要照顾，你应该知道在哪里可以找到最近的 [儿科急诊](https://lifehacker.com/pediatric-emergency-rooms-really-are-better-for-kids-1837909704) 。)
 

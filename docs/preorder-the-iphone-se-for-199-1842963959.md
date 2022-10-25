@@ -1,6 +1,6 @@
 # 如何以 200 美元的价格预订 iPhone SE
 
-> 原文:[https://life hacker . com/preorder-the-iphone-se-for-199-1842963959](https://lifehacker.com/preorder-the-iphone-se-for-199-1842963959)
+> 原文：<https://lifehacker.com/preorder-the-iphone-se-for-199-1842963959>
 
 苹果即将推出的第二代 iPhone SE 可以从几家在线零售商处预订，但如果你是威瑞森或 AT & T 的客户，并且你的账户有资格升级，沃尔玛的预订交易可以为你节省一半的设备价格。
 

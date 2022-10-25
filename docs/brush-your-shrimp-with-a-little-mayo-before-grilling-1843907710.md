@@ -1,6 +1,6 @@
 # 烧烤前在虾上刷一点蛋黄酱
 
-> 原文:[https://life hacker . com/brush-your shrimp with a little-mayo-before-1843907710](https://lifehacker.com/brush-your-shrimp-with-a-little-mayo-before-grilling-1843907710)
+> 原文：<https://lifehacker.com/brush-your-shrimp-with-a-little-mayo-before-grilling-1843907710>
 
 如果你想防止食物粘在烤架上，食物上和食物周围的一层脂肪是关键，特别是如果食物是瘦肉和精致的东西，如 [鱼](https://lifehacker.com/the-secret-to-perfectly-grilled-fish-mayonnaise-1709142603) 或虾。我*猜测，石油是这个问题的一个很好的解决方案。但是我认为蛋黄酱是最重要的。*
 

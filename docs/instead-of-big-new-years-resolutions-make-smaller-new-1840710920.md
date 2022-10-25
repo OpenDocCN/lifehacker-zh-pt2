@@ -1,6 +1,6 @@
 # 与其制定大的新年计划，不如制定小的新年目标
 
-> 原文:[https://life hacker . com/instead-of-big-new-years-resolutions-make-small-new-1840710920](https://lifehacker.com/instead-of-big-new-years-resolutions-make-smaller-new-1840710920)
+> 原文：<https://lifehacker.com/instead-of-big-new-years-resolutions-make-smaller-new-1840710920>
 
 一年中的这个时候，我们所有人都开始思考如何在接下来的一年里改善我们的生活。也许我们会开始跑步或者花更多的时间和朋友或家人在一起。无论你对 2020 年的希望和梦想是什么，如果你把它们设定为更小的目标，你可能会更成功。
 

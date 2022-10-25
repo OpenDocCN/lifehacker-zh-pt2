@@ -1,6 +1,6 @@
 # 如何用自由软件恢复被删除的文件
 
-> 原文:[https://life hacker . com/how-to-recover-deleted-files-with-free-software-33293302](https://lifehacker.com/how-to-recover-deleted-files-with-free-software-33293302)
+> 原文：<https://lifehacker.com/how-to-recover-deleted-files-with-free-software-33293302>
 
 电脑吃了我的学期论文！我们都去过 T2。你删除了一个重要的文件——甚至可能是不小心按 shift 键删除了它(在 Windows 上)——或者你在清理回收站或垃圾箱后的那一瞬间忘记了它。一去不复返了，对吧？
 

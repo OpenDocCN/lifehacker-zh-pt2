@@ -1,6 +1,6 @@
 # 本周看流星雨和其他夜空事件
 
-> 原文:[https://life hacker . com/see-meteor-shower-and-other-night-sky-events-this-week-1844904745](https://lifehacker.com/see-meteor-shower-and-other-night-sky-events-this-week-1844904745)
+> 原文：<https://lifehacker.com/see-meteor-shower-and-other-night-sky-events-this-week-1844904745>
 
 生活在北半球的人们即将迎来一个相当激动人心的天文周。在满月、流星雨和瞥见火星的机会之间，接下来的几天里，夜空中有很多可看的东西。如果学校已经开学了——尤其是在家里——去外面看看这些现象可能是一堂有趣的科学课，不涉及变焦。以下是本周 夜空中发生的 [事件的相关信息。](https://www.forbes.com/sites/jamiecartereurope/2020/08/30/a-corn-moon-rising-and-a-mars-moon-match-up-what-to-watch-for-in-the-night-sky-this-week/#68ec953a73da)
 

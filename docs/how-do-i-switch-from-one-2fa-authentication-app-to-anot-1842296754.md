@@ -1,6 +1,6 @@
 # 如何从一个 2FA 认证应用程序切换到另一个？
 
-> 原文:[https://life hacker . com/how-do-I-switch-from-one-2fa-authentic ation-app-to-anot-1842296754](https://lifehacker.com/how-do-i-switch-from-one-2fa-authentication-app-to-anot-1842296754)
+> 原文：<https://lifehacker.com/how-do-i-switch-from-one-2fa-authentication-app-to-anot-1842296754>
 
 本周，当我建议人们应该从谷歌认证器 切换到 Android 上的另一个双因素认证应用时，我捅了一个马蜂窝。我推荐了 Authy，但那只是因为我使用它并且发现它非常方便。它不仅禁止你(和其他应用程序)对它进行截图，而且我很欣赏 Authy 内置的额外验证安全性(以及即使在使用更有争议的功能时，你也可以保持 2FA 密钥的安全性的选项，比如它可以快速将你的 2FA 密钥同步到你拥有的其他设备)。
 

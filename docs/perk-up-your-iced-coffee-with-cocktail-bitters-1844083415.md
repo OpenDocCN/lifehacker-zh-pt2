@@ -1,6 +1,6 @@
 # 用鸡尾酒苦味剂提振你的冰咖啡
 
-> 原文:[https://life hacker . com/perk-up-your ' s ice-coffee with cocktail-bitters-1844083415](https://lifehacker.com/perk-up-your-iced-coffee-with-cocktail-bitters-1844083415)
+> 原文：<https://lifehacker.com/perk-up-your-iced-coffee-with-cocktail-bitters-1844083415>
 
 我们已经确定鸡尾酒苦味超越了鸡尾酒。他们给 [柠檬水](http:// https://skillet.lifehacker.com/make-better-lemonade-with-cocktail-bitters-1844039249) ，给 [皇家糖衣](https://skillet.lifehacker.com/add-bitters-to-royal-icing-for-better-christmas-cookies-1840266164) ，给 [土豆沙拉](https://skillet.lifehacker.com/1835843272#!) 带来深度。因此，它们在冰咖啡中的表现也很好也就不足为奇了。
 

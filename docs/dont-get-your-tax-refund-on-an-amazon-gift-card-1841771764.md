@@ -1,6 +1,6 @@
 # 不要用亚马逊礼品卡退税
 
-> 原文:[https://life hacker . com/don-t-get-your-tax-return-on-an-Amazon-gift-card-1841771764](https://lifehacker.com/dont-get-your-tax-refund-on-an-amazon-gift-card-1841771764)
+> 原文：<https://lifehacker.com/dont-get-your-tax-refund-on-an-amazon-gift-card-1841771764>
 
 如果你的税务提供者提议把你的退税放在亚马逊礼品卡上——或者任何其他种类的礼品卡上——说不。
 

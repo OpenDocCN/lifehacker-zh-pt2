@@ -1,6 +1,6 @@
 # 2019 年秋季推出的每一款大型游戏
 
-> 原文:[https://kotaku . com/every-big-game-out-in-fall-2019-1838357224](https://kotaku.com/every-big-game-coming-out-in-fall-2019-1838357224)
+> 原文：<https://kotaku.com/every-big-game-coming-out-in-fall-2019-1838357224>
 
 现在是秋天，这个季节白天变得更冷，夜晚变得更长，电子游戏成熟了，可以收获了。变化的叶子很漂亮，但它们也死了。当你可以呆在室内玩游戏的时候，为什么要出去狂欢呢？
 

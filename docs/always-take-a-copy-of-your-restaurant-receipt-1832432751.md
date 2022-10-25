@@ -1,6 +1,6 @@
 # 永远带一份你的餐馆收据
 
-> 原文:[https://life hacker . com/always-take-a-copy-of-your-restaurant-receipt-1832432751](https://lifehacker.com/always-take-a-copy-of-your-restaurant-receipt-1832432751)
+> 原文：<https://lifehacker.com/always-take-a-copy-of-your-restaurant-receipt-1832432751>
 
 吃完饭后，我们都会把收据的“顾客副本”放在餐厅的桌子上。这里有一个很好的理由来解释你为什么想把它带在身边(并把它放在安全的地方)。
 

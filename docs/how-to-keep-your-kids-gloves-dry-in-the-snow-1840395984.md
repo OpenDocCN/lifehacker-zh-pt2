@@ -1,6 +1,6 @@
 # 如何在雪地里保持孩子的手套干燥
 
-> 原文:[https://life hacker . com/how-to-keep-your-kids-gloves-dry-in-the-snow-1840395984](https://lifehacker.com/how-to-keep-your-kids-gloves-dry-in-the-snow-1840395984)
+> 原文：<https://lifehacker.com/how-to-keep-your-kids-gloves-dry-in-the-snow-1840395984>
 
 本周早些时候，宾夕法尼亚州东部迎来了第一场降雪，这提醒我，今年的第一场大雪即将来临。那场雪之后还会有几天下雪，我儿子渴望在雪地里玩耍，堆雪人，不让手套变得又湿又冷，然后他就可以进屋了。
 

@@ -1,6 +1,6 @@
 # 问专家你的新冠肺炎测试问题[更新:已结束]
 
-> 原文:[https://life hacker . com/ask-an-expert-your-新冠肺炎测试问题-1843439306](https://lifehacker.com/ask-an-expert-your-covid-19-testing-questions-1843439306)
+> 原文：<https://lifehacker.com/ask-an-expert-your-covid-19-testing-questions-1843439306>
 
 **更新:我们完成了！**东部时间下午 1 点，加入我们与康斯坦丁·卡纳基斯的现场问答环节&，他将回答您关于各种新冠肺炎病毒检测的问题。
 

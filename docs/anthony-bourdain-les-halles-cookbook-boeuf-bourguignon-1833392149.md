@@ -1,6 +1,6 @@
 # 烹饪来自安东尼·鲍代恩的 Les Halles 食谱:在 Bourguignon 牛肉中寻找乐趣
 
-> 原文:[https://the take out . com/Anthony-bourdain-les-halles-cookbook-boeuf-Bourguignon-1833392149](https://thetakeout.com/anthony-bourdain-les-halles-cookbook-boeuf-bourguignon-1833392149)
+> 原文：<https://thetakeout.com/anthony-bourdain-les-halles-cookbook-boeuf-bourguignon-1833392149>
 
 *这一周，*外卖的*彭凯将会从安东尼·鲍代恩的* [的](https://thetakeout.com/anthony-bourdain-les-halles-cookbook-french-onion-soup-1833361381) [*烹饪以及 Les Halles 的*](https://thetakeout.com/anthony-bourdain-les-halles-cookbook-french-onion-soup-1833361381) *烹饪书中写写他的经历。*
 

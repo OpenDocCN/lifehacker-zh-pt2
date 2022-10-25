@@ -1,6 +1,6 @@
 # 不要打开那封“眨眼脸”邮件
 
-> 原文:[https://life hacker . com/don-open-that-winky-face-email-1844367905](https://lifehacker.com/dont-open-that-winky-face-email-1844367905)
+> 原文：<https://lifehacker.com/dont-open-that-winky-face-email-1844367905>
 
 一个非常成功的垃圾邮件活动正在用勒索软件和其他恶意软件感染计算机，如加密货币矿工和僵尸网络软件，它们可以在您不注意的情况下从您的帐户发送垃圾邮件。
 

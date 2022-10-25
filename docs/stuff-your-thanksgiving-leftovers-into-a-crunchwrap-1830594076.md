@@ -1,6 +1,6 @@
 # 把你的感恩节剩菜塞进一个松脆包装里
 
-> 原文:[https://life hacker . com/stuff-your-thanksgiving-remains-into-a crunchbrap-1830594076](https://lifehacker.com/stuff-your-thanksgiving-leftovers-into-a-crunchwrap-1830594076)
+> 原文：<https://lifehacker.com/stuff-your-thanksgiving-leftovers-into-a-crunchwrap-1830594076>
 
 围过来，我的小垃圾熊猫，我有好吃的给你们。我有一个剩菜运送系统，它会让你成为剩菜土地的中性君主。当你家里的伪书呆子用无聊乏味的火鸡三明治填饱他们的脸时，你将会过着剩菜至上的圣诞节。 ***【编者注:这也可以称为嘎吱骇客至尊。】***
 

@@ -1,6 +1,6 @@
 # 如何检查你的 Thunderbolt 端口是否可以被黑客攻击
 
-> 原文:[https://life hacker . com/how-to-check-if-your-thunderbolt-ports-can-hacked-1843397675](https://lifehacker.com/how-to-check-if-your-thunderbolt-ports-can-be-hacked-1843397675)
+> 原文：<https://lifehacker.com/how-to-check-if-your-thunderbolt-ports-can-be-hacked-1843397675>
 
 如果你有一台带有 Thunderbolt 端口的电脑，你可能会面临被称为“Thunderspy”的严重固件缺陷的风险。安全研究员比约恩·鲁滕伯格 发现的 [漏洞，影响所有支持 Thunderbolt 线缆的 Thunderbolt 端口和 USB-C 或 DisplayPort 端口。它让黑客可以完全访问您计算机上的所有内容，即使存储在加密的硬件上。有人不仅可以在几分钟内窃取你的所有数据，而且执行的 Thunderspy 攻击也是不可追踪的。你甚至不会知道黑客攻击发生了。](https://thunderspy.io/#intro)
 

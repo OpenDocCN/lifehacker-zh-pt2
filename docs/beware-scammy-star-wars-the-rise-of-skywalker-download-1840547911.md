@@ -1,6 +1,6 @@
 # 当心诈骗“星球大战：天行者崛起”下载网站
 
-> 原文:[https://life hacker . com/当心-scammy-star-wars-the-rise-of-Skywalker-download-1840547911](https://lifehacker.com/beware-scammy-star-wars-the-rise-of-skywalker-download-1840547911)
+> 原文：<https://lifehacker.com/beware-scammy-star-wars-the-rise-of-skywalker-download-1840547911>
 
 你没看错。Rey 和 Kylo 没有使用原力窥视你的大脑，读取你的用户名和登录信息，但许多黑客——实际上是骗子——正在建立虚假的网站和下载，以利用今天《星球大战：天行者崛起》的首映。你应该 [避开它们](https://lifehacker.com/modern-phishing-attempts-look-more-legit-but-the-metho-1794914817) ，就像小行星地里的千年隼一样精准。
 

@@ -1,6 +1,6 @@
 # 为什么我们不再用地点来命名疾病
 
-> 原文:[https://life hacker . com/why-we-don-name-diseases-after-places-more-1842414221](https://lifehacker.com/why-we-dont-name-diseases-after-places-anymore-1842414221)
+> 原文：<https://lifehacker.com/why-we-dont-name-diseases-after-places-anymore-1842414221>
 
 所有合法的健康和政策组织(包括世卫组织和疾病预防控制中心)都用约定的名字、新冠肺炎来称呼冠状病毒疾病。但是一些人固执地认为我们应该称它为“中国”病毒，或者把它的名字与一个地点联系起来。胡说八道，原因如下。
 

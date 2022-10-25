@@ -1,6 +1,6 @@
 # 如何在谷歌地图的街景中模糊你的房子
 
-> 原文:[https://life hacker . com/how-to-blur-your house-in-Google-street-view-1845050158](https://lifehacker.com/how-to-blur-your-house-in-googles-street-view-1845050158)
+> 原文：<https://lifehacker.com/how-to-blur-your-house-in-googles-street-view-1845050158>
 
 当然，任何人都可以开车经过你的房子，看看它是什么样子——世界上所有的锡箔都不能保护你免受隐私“侵犯”,尽管栅栏可能会有所帮助——你可以让人们更难在谷歌地图上看到你的家。
 

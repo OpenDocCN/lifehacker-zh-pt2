@@ -1,6 +1,6 @@
 # PlayStation Plus 用户明天可以免费获得《使命召唤:二战》
 
-> 原文:[https://life hacker . com/PlayStation-plus-users-can-get-call-of-duty-WWII-for-f-1843658358](https://lifehacker.com/playstation-plus-users-can-get-call-of-duty-wwii-for-f-1843658358)
+> 原文：<https://lifehacker.com/playstation-plus-users-can-get-call-of-duty-wwii-for-f-1843658358>
 
 PlayStation 宣布将提前推出下一轮 PlayStation Plus 免费游戏。
 

@@ -1,6 +1,6 @@
 # 不要让你的宝宝睡在车外的车座上
 
-> 原文:[https://life hacker . com/stop-let-your-baby-sleep-in-a-car-seat-out-of-the-1834911572](https://lifehacker.com/stop-letting-your-baby-sleep-in-a-car-seat-outside-the-1834911572)
+> 原文：<https://lifehacker.com/stop-letting-your-baby-sleep-in-a-car-seat-outside-the-1834911572>
 
 在你到达目的地后，让你熟睡的宝宝继续在他们的车座上打盹似乎很方便，但这可能会将他们置于危险之中，发表在《美国儿科学会杂志》上的一项新研究 称。
 

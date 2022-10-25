@@ -1,6 +1,6 @@
 # 通过这些应用为您的 Windows 桌面获取 Bing 壁纸
 
-> 原文:[https://life hacker . com/get-bing-wallpapers-for-your-windows-desktop-with the-1842963251](https://lifehacker.com/get-bing-wallpapers-for-your-windows-desktop-with-these-1842963251)
+> 原文：<https://lifehacker.com/get-bing-wallpapers-for-your-windows-desktop-with-these-1842963251>
 
 不管你怎么说必应作为一个搜索引擎，但它确实有一些华丽的壁纸，让整个体验*几乎*物有所值。有很多 [网站](https://bing.gifposter.com/) 可以让你看到微软发布到 Bing daily 上的漂亮图片，微软甚至提供了自己的工具让 Bing 壁纸成为你旋转的 Windows 背景。然而，还有一个更好的实用程序 [可以使用。](#better)
 

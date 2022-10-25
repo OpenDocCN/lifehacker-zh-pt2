@@ -1,6 +1,6 @@
 # 花式豆值得买吗？
 
-> 原文:[https://the take out . com/canned-vs-bumping-dry-beans-the-better-rancho-gord-1841421154](https://thetakeout.com/canned-vs-soaking-dried-beans-which-better-rancho-gord-1841421154)
+> 原文：<https://thetakeout.com/canned-vs-soaking-dried-beans-which-better-rancho-gord-1841421154>
 
 在过去的十年里，厨师和美食作家一直是花式豆教会的热情传播者，这是一个迅速发展的教派，其梵蒂冈城是加利福尼亚州一个名叫兰乔戈多的小地方。正是在这块石头上，教皇史蒂夫·桑多一世建立了一家公司，致力于传播纯种好豆的福音，这些好豆是由对其作物极为尊重的小农场主组成的网络从祖传种子中培育出来的。我，像许多人一样，从来没有听说过兰乔·戈多兜售的这些豆子(Rebosero？马约柯巴？好妈妈斯塔拉德？)，而且，尽管我毫不怀疑它们很棒，但我发现花 6 美元一磅的价格购买邮购咖啡豆是不合理的。我，一个养活五口之家的职业母亲，无法想象自己会为这样的奢侈品买单。花式豆是给花式人吃的。正确
 

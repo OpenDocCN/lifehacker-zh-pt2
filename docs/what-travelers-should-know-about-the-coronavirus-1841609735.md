@@ -1,6 +1,6 @@
 # 旅行者应该了解冠状病毒的哪些知识
 
-> 原文:[https://life hacker . com/what-travelers-should-know-on-the-coronavirus-1841609735](https://lifehacker.com/what-travelers-should-know-about-the-coronavirus-1841609735)
+> 原文：<https://lifehacker.com/what-travelers-should-know-about-the-coronavirus-1841609735>
 
 导致新冠肺炎(我们现在称之为)的冠状病毒仍然主要在中国传播，在其他国家只有大约 2%的病例。尽管如此，如果你正在旅行，你可能会对接触到病毒的可能性感到紧张。以下是世界卫生组织对旅行者的建议，他们在最近的 [在线 Q & A](https://twitter.com/WHO/status/1226810780323958784) 中讨论了这些建议。
 

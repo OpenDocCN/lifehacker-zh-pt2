@@ -1,6 +1,6 @@
 # 今天在哪里可以买到全国披萨日的打折披萨
 
-> 原文:[https://life hacker . com/where-to-get-of-free-and-discount-today-for-nation-1832492015](https://lifehacker.com/where-to-get-free-and-discounted-pizza-today-for-nation-1832492015)
+> 原文：<https://lifehacker.com/where-to-get-free-and-discounted-pizza-today-for-nation-1832492015>
 
 现在好像什么都有一天，今天是全国披萨日。虽然我想说比萨饼不需要专门庆祝它的一天，但我总是准备好交易，特别是在食物上，今天每个人最喜欢的一餐都有大量的比萨饼。
 

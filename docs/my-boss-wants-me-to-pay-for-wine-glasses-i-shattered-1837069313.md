@@ -1,6 +1,6 @@
 # 问那个刻薄的女服务员:我的老板要我赔偿我打碎的酒杯
 
-> 原文:[https://the take out . com/my-boss-wants-me-pay-for-wine-glasses-I-smashed-1837069313](https://thetakeout.com/my-boss-wants-me-to-pay-for-wine-glasses-i-shattered-1837069313)
+> 原文：<https://thetakeout.com/my-boss-wants-me-to-pay-for-wine-glasses-i-shattered-1837069313>
 
 > 亲爱的咸味，昨晚当我从厨房拿着一些干净的酒杯到餐厅时，我在厨房的一个小溢出物上滑了一下，掉进了一些金属架子上。我打碎了我随身携带的所有漂亮的玻璃杯，有几个小伤口，但其他方面都很好。餐馆的厨师/老板看到了这一幕，在问我是否还好之前，他说的第一句话是“这是从你的薪水里扣的。”他真的能让我付钱吗？我觉得没有清理溢出物是餐馆的错，但我不知道我有什么法律依据。
 > 

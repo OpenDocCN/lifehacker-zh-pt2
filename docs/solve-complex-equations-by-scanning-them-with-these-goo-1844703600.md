@@ -1,6 +1,6 @@
 # 用这些谷歌应用程序扫描复杂的方程来解决它们
 
-> 原文:[https://life hacker . com/solve-complex-equations-by-scanning-them-with-these-goo-1844703600](https://lifehacker.com/solve-complex-equations-by-scanning-them-with-these-goo-1844703600)
+> 原文：<https://lifehacker.com/solve-complex-equations-by-scanning-them-with-these-goo-1844703600>
 
 Google Lens 的一项新功能即将推出，它可以帮助学生学习数学和 STEM 相关的主题。 要使用 t he 新的“作业”搜索模式，你所要做的就是扫描你需要帮助求解的方程。它将在谷歌镜头 Android 应用程序中提供，并通过 [谷歌视觉搜索](https://lens.google.com/) 在谷歌照片、谷歌助手和谷歌 iOS 应用程序中提供。它现在也可以在谷歌拥有的 Android 和 iOS 上的苏格拉底教育应用程序中获得。
 

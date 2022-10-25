@@ -1,6 +1,6 @@
 # 马上给你的新订婚戒指上保险
 
-> 原文:[https://life hacker . com/insure-your-new-engagement-ring-right-now-1840928611](https://lifehacker.com/insure-your-new-engagement-ring-right-now-1840928611)
+> 原文：<https://lifehacker.com/insure-your-new-engagement-ring-right-now-1840928611>
 
 我曾经帮助一个人在漆黑的夜晚，在冰岛一个偏僻的地方，在齐膝深的雪中寻找一枚订婚戒指。当我们戴着手套在雪地里筛选的时候，一个人分散了他女朋友的注意力，我们搜索队(我们的旅游团)中的另一个人笑着说，“嗯，你有保险吧？”
 

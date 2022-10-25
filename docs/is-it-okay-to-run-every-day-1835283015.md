@@ -1,6 +1,6 @@
 # 每天跑步可以吗？
 
-> 原文:[https://life hacker . com/is-it-okay-to-run-every-day-1835283015](https://lifehacker.com/is-it-okay-to-run-every-day-1835283015)
+> 原文：<https://lifehacker.com/is-it-okay-to-run-every-day-1835283015>
 
 休息日很重要，但是对于跑步来说有多重要呢？像 [couch to 5K](https://vitals.lifehacker.com/all-the-questions-youll-have-when-you-start-couch-to-5k-1830857969) 这样的初学者项目通常会让你每周跑三天。如果你在两者之间的日子里坐立不安:是，多跑点没关系。有一些警告。
 

@@ -1,6 +1,6 @@
 # 确保你的生菜没有被召回
 
-> 原文:[https://life hacker . com/确保你的生菜没有被召回-1840021491](https://lifehacker.com/make-sure-your-romaine-lettuce-hasnt-been-recalled-1840021491)
+> 原文：<https://lifehacker.com/make-sure-your-romaine-lettuce-hasnt-been-recalled-1840021491>
 
 还记得去年 召回的那些长叶莴苣吗？这是再次发生。疾病控制中心建议消费者不要再吃任何长叶莴苣，特别是生长在加利福尼亚萨利纳斯的莴苣。
 

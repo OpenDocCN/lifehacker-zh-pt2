@@ -1,6 +1,6 @@
 # 什么是鼻烟，它比其他形式的烟草更安全吗？
 
-> 原文:[https://life hacker . com/what-is-snus-and-is-it-safe-than-other-forms-of-tobac-1839291275](https://lifehacker.com/what-is-snus-and-is-it-safer-than-other-forms-of-tobacc-1839291275)
+> 原文：<https://lifehacker.com/what-is-snus-and-is-it-safer-than-other-forms-of-tobacc-1839291275>
 
 FDA [最近授予一个品牌的鼻烟](https://www.fda.gov/news-events/press-announcements/fda-grants-first-ever-modified-risk-orders-eight-smokeless-tobacco-products?utm_source=CTPTwitter&utm_medium=social&utm_campaign=ctp-mrtp) “改良风险”地位，这种烟草产品在瑞典很受欢迎，在美国也开始流行。虽然它可能比其他烟草产品风险小，但它仍然不完全安全。
 

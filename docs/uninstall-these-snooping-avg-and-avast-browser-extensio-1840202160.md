@@ -1,6 +1,6 @@
 # 卸载这些窥探 AVG 和 Avast 浏览器扩展
 
-> 原文:[https://life hacker . com/uninstall-these-snooping-avg-and-avast-browser-extensio-1840202160](https://lifehacker.com/uninstall-these-snooping-avg-and-avast-browser-extensio-1840202160)
+> 原文：<https://lifehacker.com/uninstall-these-snooping-avg-and-avast-browser-extensio-1840202160>
 
 我们总是建议尽量简化您的扩展列表，因为您永远不知道什么时候会有东西试图从您的浏览器中吸走数据——尤其是超过它应该能够访问的数据。这正是 Mozilla 用四个看起来“不错”的扩展提出的问题——Avast 在线安全、 **AVG 在线安全**、 **Avast 安全价格**、和 **AVG 安全价格**——你应该从你的浏览器中卸载它们，直到它们被修复，至少是这样。
 

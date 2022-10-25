@@ -1,6 +1,6 @@
 # 存放孩子洗澡玩具的最佳方式
 
-> 原文:[https://life hacker . com/the-best-way-store-your-kids-bath-toys-1840829972](https://lifehacker.com/the-best-way-to-store-your-kids-bath-toys-1840829972)
+> 原文：<https://lifehacker.com/the-best-way-to-store-your-kids-bath-toys-1840829972>
 
 机会是，如果你有小孩，你也有各种各样的橡胶沐浴玩具，处于不同的霉菌感染状态。我们已经告诉你 [如何清理](https://vitals.lifehacker.com/how-to-stop-mold-from-building-up-inside-baby-and-bath-1791344058) (甚至 [如何首先防止发霉](https://lifehacker.com/ask-a-clean-person-rubber-duckies-and-other-bath-toys-1798150090) )，但是一旦它们清理干净了，你把它们存放在哪里呢？
 

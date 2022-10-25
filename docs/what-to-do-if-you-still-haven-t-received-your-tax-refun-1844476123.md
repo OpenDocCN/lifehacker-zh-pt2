@@ -1,6 +1,6 @@
 # 如果你还没有收到退税，该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-if you ' s have-not-receive-your tax-refun-1844476123](https://lifehacker.com/what-to-do-if-you-still-haven-t-received-your-tax-refun-1844476123)
+> 原文：<https://lifehacker.com/what-to-do-if-you-still-haven-t-received-your-tax-refun-1844476123>
 
 随着三月份全国范围的停工开始，美国国税局关闭了他们在 T2 的许多办公室。虽然员工在 7 月 15 日纳税截止日期 T5】前返回，但由于人员有限，已经出现了的处理延迟，尤其是纸质申报表。
 

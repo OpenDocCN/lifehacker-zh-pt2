@@ -1,6 +1,6 @@
 # 如何用手动剃须刀刮胡子
 
-> 原文:[https://life hacker . com/how-to-shaw-with a manual-razor-1838707812](https://lifehacker.com/how-to-shave-with-a-manual-razor-1838707812)
+> 原文：<https://lifehacker.com/how-to-shave-with-a-manual-razor-1838707812>
 
 我们都会错过一两节人生课。 [Lifehacker 读者 lllcoco](https://lifehacker.com/1836996976) 从没学过用手动剃须刀刮胡子。因此，我们为 lllcoco 和其他只依赖电动剃须刀的人制作了一个循序渐进的视频指南。
 

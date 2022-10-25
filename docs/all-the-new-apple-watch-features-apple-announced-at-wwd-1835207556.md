@@ -1,6 +1,6 @@
 # WWDC 2019 上宣布的所有 Apple Watch 新功能
 
-> 原文:[https://life hacker . com/all-the-new-apple-watch-features-apple-announced-at-wwd-1835207556](https://lifehacker.com/all-the-new-apple-watch-features-apple-announced-at-wwd-1835207556)
+> 原文：<https://lifehacker.com/all-the-new-apple-watch-features-apple-announced-at-wwd-1835207556>
 
 苹果的 WWDC 新闻发布会上挤满了其众多操作系统的新功能，Apple Watch 的 watchOS 6 有一些最有趣的功能，包括新的应用商店、各种改进、健康跟踪功能的增加，甚至还有一些新的美学选项。以下是苹果在 WWDC 2019 上展示的所有 watchOS 6 功能。
 

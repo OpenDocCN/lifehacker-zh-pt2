@@ -1,6 +1,6 @@
 # Blackmagic 的口袋影院摄像机 4K 拍摄难以置信的美丽，难以置信的多功能视频
 
-> 原文:[https://gizmodo . com/black magics-pocket-cinema-camera-4k-shots-exceibly-b-1831755303](https://gizmodo.com/blackmagics-pocket-cinema-camera-4k-shoots-incredibly-b-1831755303)
+> 原文：<https://gizmodo.com/blackmagics-pocket-cinema-camera-4k-shoots-incredibly-b-1831755303>
 
 Blackmagic 不像佳能或索尼那样家喻户晓，但它在电影界已经很有名气了。长期以来，该公司一直以制造电影摄像机而闻名，这种摄像机能以更亲民的价格与数万美元的摄像机竞争。它的最新产品，4K 袖珍影院相机，瞄准了预算有限的独立电影制作人，最终它的镜头真的传递了——但前提是你知道你在做什么。
 

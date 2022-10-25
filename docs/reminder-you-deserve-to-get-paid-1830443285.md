@@ -1,6 +1,6 @@
 # 提醒:你应该得到报酬
 
-> 原文:[https://life hacker . com/reminder-you worth-to-get-payed-1830443285](https://lifehacker.com/reminder-you-deserve-to-get-paid-1830443285)
+> 原文：<https://lifehacker.com/reminder-you-deserve-to-get-paid-1830443285>
 
 我们在 Deadspin 的朋友写了一篇有针对性但相当无关痛痒的文章，是关于 NJ.com 为一份“听起来确实像是最好的写作工作”的招聘广告，但严格来说是兼职的，给记者挣的是津贴，而不是薪水。
 

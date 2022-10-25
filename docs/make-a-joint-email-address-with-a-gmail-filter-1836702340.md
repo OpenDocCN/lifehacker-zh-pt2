@@ -1,6 +1,6 @@
 # 用 Gmail 过滤器创建一个联合电子邮件地址
 
-> 原文:[https://life hacker . com/make-a-joint-email-address-with-a-Gmail-filter-1836702340](https://lifehacker.com/make-a-joint-email-address-with-a-gmail-filter-1836702340)
+> 原文：<https://lifehacker.com/make-a-joint-email-address-with-a-gmail-filter-1836702340>
 
 当你有一个伴侣时，你不可避免地要注册会员资格和账户，这对你们两个都有影响:双影院订阅，或者涵盖你们两个的健康保险。令人恼火的是，许多会员资格只允许你用一个电子邮件地址注册。这里有一个 Gmail 小技巧，你可以设置后就忘记了，而不是设置第三个电子邮件帐户，或者为每次注册制定一个新的转发规则。
 

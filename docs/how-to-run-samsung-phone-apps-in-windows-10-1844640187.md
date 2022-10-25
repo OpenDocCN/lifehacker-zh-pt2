@@ -1,6 +1,6 @@
 # 如何在 Windows 10 中运行 Android 应用[更新]
 
-> 原文:[https://life hacker . com/how-to-run-Samsung-phone-apps-in-windows-10-1844640187](https://lifehacker.com/how-to-run-samsung-phone-apps-in-windows-10-1844640187)
+> 原文：<https://lifehacker.com/how-to-run-samsung-phone-apps-in-windows-10-1844640187>
 
 **2020 年 8 月 24 日更新:** *经过几周的测试后，Windows 10 的新应用更新即将公开发布，看起来微软正在扩展该功能，以包括非三星设备。本文已经过更新，以反映这些变化。*
 

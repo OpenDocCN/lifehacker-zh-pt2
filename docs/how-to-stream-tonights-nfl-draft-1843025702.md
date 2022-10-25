@@ -1,6 +1,6 @@
 # 如何直播今晚的 NFL 选秀
 
-> 原文:[https://life hacker . com/how-to-stream-tonights-NFL-draft-1843025702](https://lifehacker.com/how-to-stream-tonights-nfl-draft-1843025702)
+> 原文：<https://lifehacker.com/how-to-stream-tonights-nfl-draft-1843025702>
 
 2020 年 NFL 选秀今晚正式开始。第一轮比赛在美国东部时间晚上 8 点开始，第 2-3 轮比赛将在明天下午 7 点下午下午开始，第 4-7 轮比赛将在周六中午开始
 

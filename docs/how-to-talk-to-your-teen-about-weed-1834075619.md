@@ -1,6 +1,6 @@
 # 如何和你的孩子谈论大麻
 
-> 原文:[https://life hacker . com/how-to-talk-to-your-teen-weed-1834075619](https://lifehacker.com/how-to-talk-to-your-teen-about-weed-1834075619)
+> 原文：<https://lifehacker.com/how-to-talk-to-your-teen-about-weed-1834075619>
 
 每一代人似乎都更加接受大麻的使用，毫不奇怪 [趋势显示](https://stayhipp.com/news/how-different-generations-view-marijuana/) 。对于出生于 1993 年至 2007 年间的 Z 世代，大麻被视为比酒精更健康的 [。孩子们正在步入成年，大麻不像毒品那样会让他们疯狂地寻找普通的汉堡，而更像是一种帮助他们在紧张的一天后冷静下来的工具。根据彭博的一项调查，这一代年轻人吸食大麻的可能性是全国平均水平的两倍，无论是通过吸食、蒸发还是食用。](https://www.bloomberg.com/news/articles/2019-04-05/what-s-gen-z-and-how-can-you-invest-cannabis-influencers-key)
 

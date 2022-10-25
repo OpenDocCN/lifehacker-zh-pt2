@@ -1,6 +1,6 @@
 # 在你到达之前检查一下无线网络是不是很糟糕
 
-> 原文:[https://life hacker . com/check-if-the-wifi-to-suck-before-you-arrival-1845063646](https://lifehacker.com/check-if-the-wifi-is-going-to-suck-before-you-arrive-1845063646)
+> 原文：<https://lifehacker.com/check-if-the-wifi-is-going-to-suck-before-you-arrive-1845063646>
 
 尽管我们生活在隔离时代，没有人会去任何地方——至少没有人会去任何地方——你可能仍然需要偶尔走出家门。不管你家里的网络连接是不是给你带来了麻烦，或者你只是想远离家人，你最不想做的事情就是打破隔离，去一个有糟糕网络的地方。
 

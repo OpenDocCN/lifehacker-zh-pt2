@@ -1,6 +1,6 @@
 # 使用此应用程序获取您的 Apple Music“年度回顾”
 
-> 原文:[https://life hacker . com/get-your-apple-music-year-in-review-with this-app-1831379859](https://lifehacker.com/get-your-apple-music-year-in-review-with-this-app-1831379859)
+> 原文：<https://lifehacker.com/get-your-apple-music-year-in-review-with-this-app-1831379859>
 
 如果你是苹果音乐用户，几周前当人们开始分享他们在 Spotify 上的“包装”年度回顾时，你可能会觉得有点被忽略了。现在，一个新的应用程序也可以帮助你创造奇迹。
 

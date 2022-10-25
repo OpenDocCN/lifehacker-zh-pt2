@@ -1,6 +1,6 @@
 # 如何在工作中重新获得灵感
 
-> 原文:[https://life hacker . com/how-to-get-re-inspired-in-work-1836019705](https://lifehacker.com/how-to-get-re-inspired-at-work-1836019705)
+> 原文：<https://lifehacker.com/how-to-get-re-inspired-at-work-1836019705>
 
 我们当中有谁没有在某一天醒来时发现自己深深地陷入了一个老式的工作场所的窠臼？这当然会发生在你从第一天开始就有点犹豫不决的工作上，但是你四年前得到的理想工作也不能幸免。无论我们开始时有多积极，总有一些事情会让我们陷入“平静”，那就是年复一年的例行公事、重复和熟悉。
 

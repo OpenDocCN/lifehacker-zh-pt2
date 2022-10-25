@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:一个餐馆老板让我把我的网上评论撤下来
 
-> 原文:[https://the take out . com/restaurant-owner-asked-to-take-down-online-yelp-review-1833549266](https://thetakeout.com/restaurant-owner-asked-to-take-down-online-yelp-review-1833549266)
+> 原文：<https://thetakeout.com/restaurant-owner-asked-to-take-down-online-yelp-review-1833549266>
 
 > 亲爱的 Salty:我和一个朋友最近决定去一家我们过去都有过奇怪或糟糕经历的餐厅。这地方有了新主人。我们觉得新主人和新厨师可能会改善这个地方。我们错了。
 > 

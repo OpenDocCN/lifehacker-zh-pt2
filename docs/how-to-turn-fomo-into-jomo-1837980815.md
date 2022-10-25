@@ -1,6 +1,6 @@
 # 如何把 FOMO 变成 JOMO
 
-> 原文:[https://life hacker . com/how-to-turn-fomo-into-jomo-1837980815](https://lifehacker.com/how-to-turn-fomo-into-jomo-1837980815)
+> 原文：<https://lifehacker.com/how-to-turn-fomo-into-jomo-1837980815>
 
 FOMO——害怕错过 的——不仅仅是害怕没有经历某些事情。是害怕不被邀请。为了对抗 FOMO， [一些作家说](https://nesslabs.com/jomo) ，你需要“脱离”，改变你的态度，享受简单的快乐。恭喜那些有如此意志力的人。我们其余的人必须更努力地欺骗我们的动物大脑。要发现错过的乐趣——JOMO——我们必须做出三个改变。 
 

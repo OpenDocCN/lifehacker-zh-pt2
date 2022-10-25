@@ -1,6 +1,6 @@
 # 想想粉红色搭配金巴利酒的颜培珊
 
-> 原文:[https://life hacker . com/think-pink-with-a-campari-spiked-shandy-1837287188](https://lifehacker.com/think-pink-with-a-campari-spiked-shandy-1837287188)
+> 原文：<https://lifehacker.com/think-pink-with-a-campari-spiked-shandy-1837287188>
 
 *各位周末快乐，欢迎回到* [*三种配料的欢乐时光*](https://skillet.lifehacker.com/leave-the-workweek-behind-with-an-irish-goodbye-1829716083) *，每周饮品专栏，提供超级简单又美味的酒水。克莱尔在洛杉矶拍摄新的食物内容，这意味着是时候发表另一篇客座博文了。本周，我们正在制作有史以来最棒的牛顿鸡尾酒:一种既含有* [*廉价啤酒*](https://lifehacker.com/you-should-be-cooking-with-cheap-beer-1822914299) *又含有* [*金巴利*](https://skillet.lifehacker.com/indulge-your-inner-bitter-betty-with-a-classic-negroni-1829824702) *的鸡尾酒。*
 

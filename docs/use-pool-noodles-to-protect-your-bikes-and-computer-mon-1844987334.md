@@ -1,6 +1,6 @@
 # 用泳池面条来保护你的自行车和电脑显示器
 
-> 原文:[https://life hacker . com/use-pool-noodles-to-protect-your-bikes-and-computer-mon-1844987334](https://lifehacker.com/use-pool-noodles-to-protect-your-bikes-and-computer-mon-1844987334)
+> 原文：<https://lifehacker.com/use-pool-noodles-to-protect-your-bikes-and-computer-mon-1844987334>
 
 夏天已经结束，这意味着我们都有多余的泳池和沙滩玩具躺在那里等待被使用。当然，你可以把这些东西储存起来，直到下一个温暖的季节，但是把它们切碎，以独特的方式在家里使用会更有趣。
 

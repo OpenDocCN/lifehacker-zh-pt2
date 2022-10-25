@@ -1,6 +1,6 @@
 # 如果你现在不能支付抵押贷款，该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-you can-pay-your mortgage-right-now-1842736929](https://lifehacker.com/what-to-do-if-you-cant-pay-your-mortgage-right-now-1842736929)
+> 原文：<https://lifehacker.com/what-to-do-if-you-cant-pay-your-mortgage-right-now-1842736929>
 
 你的住房是你每月最大的支出之一。如果你有一笔未来 10 年、15 年或 30 年的抵押贷款，疫情冠状病毒的不确定性可能会让你担心如何继续支付这笔账单。
 

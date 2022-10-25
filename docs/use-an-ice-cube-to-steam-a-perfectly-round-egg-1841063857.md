@@ -1,6 +1,6 @@
 # 用艾斯·库伯蒸一个非常圆的鸡蛋
 
-> 原文:[https://life hacker . com/use-an-ice-cube-to-steam-a-perfect-round-egg-1841063857](https://lifehacker.com/use-an-ice-cube-to-steam-a-perfectly-round-egg-1841063857)
+> 原文：<https://lifehacker.com/use-an-ice-cube-to-steam-a-perfectly-round-egg-1841063857>
 
 我对麦克芬和麦克芬式早餐三明治的喜爱不是秘密。嫩嫩的英式松饼、咸咸的肉、融化的奶酪和完美的圆形鸡蛋构成了一顿美味的早餐。在家里制作自己的版本并不是一件非常困难的事情，但是圆形的蒸鸡蛋是至关重要的。
 

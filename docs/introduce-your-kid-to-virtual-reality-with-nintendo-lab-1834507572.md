@@ -1,6 +1,6 @@
 # 用任天堂 Labo VR 向您的孩子介绍虚拟现实
 
-> 原文:[https://life hacker . com/introduce-your-kid-to-virtual-reality-with-Nintendo-lab-1834507572](https://lifehacker.com/introduce-your-kid-to-virtual-reality-with-nintendo-lab-1834507572)
+> 原文：<https://lifehacker.com/introduce-your-kid-to-virtual-reality-with-nintendo-lab-1834507572>
 
 任天堂进军虚拟现实的 Labo VR Kit 应该没什么用。与其他虚拟现实系统相比，帧率很慢，图形也很糟糕。它建造得如此便宜，简直是用硬纸板做的。没有巨大的、沉浸式的世界让你迷失。甚至没有一条带子把它系在脸上。但是任天堂挑战了视频游戏的传统逻辑，创造了我见过的最有趣、最有用、最有趣的虚拟现实应用。
 

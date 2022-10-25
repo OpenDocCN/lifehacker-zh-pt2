@@ -1,6 +1,6 @@
 # 将樱桃可乐和雪利酒混合制成樱桃可乐
 
-> 原文:[https://life hacker . com/combine-cherry-coke-and-sherry-to-make-a-scherry-coke-1845027651](https://lifehacker.com/combine-cherry-coke-and-sherry-to-make-a-scherry-coke-1845027651)
+> 原文：<https://lifehacker.com/combine-cherry-coke-and-sherry-to-make-a-scherry-coke-1845027651>
 
 这不是我今天早上打算做的鸡尾酒，但它最终成了我需要的鸡尾酒。最初，我计划做一个雪利酒馅饼，但是我没有橙子了，我不能去买更多的橙子，因为所有的 [新闻报道](https://www.oregonlive.com/news/2020/09/portland-now-has-the-worst-air-quality-in-the-world-due-to-oregon-and-washington-wildfires.html) 都建议我呆在室内。(还有 [直到这一切结束我才出来](https://www.youtube.com/watch?v=0rKC7ElkTUQ) ！)
 

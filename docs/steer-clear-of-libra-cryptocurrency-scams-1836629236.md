@@ -1,6 +1,6 @@
 # 避开天秤座加密货币骗局
 
-> 原文:[https://life hacker . com/steer-clear-of-Libra-crypto currency-scams-1836629236](https://lifehacker.com/steer-clear-of-libra-cryptocurrency-scams-1836629236)
+> 原文：<https://lifehacker.com/steer-clear-of-libra-cryptocurrency-scams-1836629236>
 
 Libra 甚至还没有在脸书正式亮相，但备受期待的加密货币已经引起了骗子们的极大兴趣。事实上，在这一点上，很难说谁对天秤座更感兴趣:那些希望通过哄骗你早早加入来快速赚钱的人，这样你就可以成为 B itc oin 式的亿万富翁，或者对脸书的一切记录都充满担忧的联邦监管者。
 

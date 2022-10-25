@@ -1,6 +1,6 @@
 # 三星 Galaxy Unpacked 2019 活动的最大更新
 
-> 原文:[https://life hacker . com/the-biggest-updates-from-samsungs-galaxy-unpacked-2019-1837041751](https://lifehacker.com/the-biggest-updates-from-samsungs-galaxy-unpacked-2019-1837041751)
+> 原文：<https://lifehacker.com/the-biggest-updates-from-samsungs-galaxy-unpacked-2019-1837041751>
 
 让秋季智能手机大战开始吧。三星在今天纽约市举行的 Galaxy Unpacked 2019 活动上大放异彩。我们看了整个主题演讲，所以你不必看，这里是该公司最大的公告的快速回顾。
 

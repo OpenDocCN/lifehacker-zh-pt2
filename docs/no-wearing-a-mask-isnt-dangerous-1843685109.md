@@ -1,6 +1,6 @@
 # 不，戴口罩并不危险
 
-> 原文:[https://life hacker . com/no-戴口罩-不危险-1843685109](https://lifehacker.com/no-wearing-a-mask-isnt-dangerous-1843685109)
+> 原文：<https://lifehacker.com/no-wearing-a-mask-isnt-dangerous-1843685109>
 
 关于口罩的神话正在蔓延，混杂在我们都需要知道的戴口罩的关键建议和事实中，分散了我们的注意力。许多这些神话与阴谋论直接相关，当你花一分钟思考它们 时 [就会分崩离析，但它们仍然流传，因为它们看起来像是*可能是真的。因此，让我们来看看几个神话和一个事实。*](https://vitals.lifehacker.com/how-to-spot-a-conspiracy-theory-1843463080)
 

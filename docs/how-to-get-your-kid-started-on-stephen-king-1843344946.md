@@ -1,6 +1,6 @@
 # 如何让你的孩子开始学习斯蒂芬·金
 
-> 原文:[https://life hacker . com/how-to-get-your-kid-started-on-Stephen-king-1843344946](https://lifehacker.com/how-to-get-your-kid-started-on-stephen-king-1843344946)
+> 原文：<https://lifehacker.com/how-to-get-your-kid-started-on-stephen-king-1843344946>
 
 我认识的大多数斯蒂芬·金的读者都是在年轻时发现这个人的。他们在图书馆的售书活动中偶然发现了一本《Cujo》或《T2》的书，并把它运回家，然后他们就爱不释手了，然后他们热爱故事的小脑袋就爆炸了。以最好的方式。
 

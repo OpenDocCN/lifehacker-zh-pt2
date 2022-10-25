@@ -1,6 +1,6 @@
 # 观看简·古道尔和尼尔·德格拉斯·泰森现场直播的《科学对话》
 
-> 原文:[https://life hacker . com/see-Jane-Goodall-and-Neil-de grasse-Tyson-talk-science-1843338861](https://lifehacker.com/see-jane-goodall-and-neil-degrasse-tyson-talk-science-1843338861)
+> 原文：<https://lifehacker.com/see-jane-goodall-and-neil-degrasse-tyson-talk-science-1843338861>
 
 这几年对科学界来说很奇怪。尽管关于气候变化的争论已经变得越来越政治化，许多当选官员已经煽动 T4 公众不信任科学数据，现在我们正处于全球疫情之中，人们期待重大科学突破以闪电般的速度出现。然后我们中的一些人继续相信科学、研究和对经验证据的需求。无论你在哪里，你都可能(希望)在这个周末呆在家里，所以你可能会对即将到来的名为 LIVEMEDAID 的科学节和筹款活动感兴趣。
 

@@ -1,6 +1,6 @@
 # 在哪里播放 2019 年奥斯卡提名
 
-> 原文:[https://life hacker . com/where-to-stream-the-2019-奥斯卡提名-1831960189](https://lifehacker.com/where-to-stream-the-2019-oscar-nominees-1831960189)
+> 原文：<https://lifehacker.com/where-to-stream-the-2019-oscar-nominees-1831960189>
 
 奥斯卡季正式来临，像《黑豹》和《一个明星的诞生·T2》这样的电影正在角逐代表大银幕的奖项。
 

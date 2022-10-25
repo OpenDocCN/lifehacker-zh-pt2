@@ -1,6 +1,6 @@
 # 土豆泥是新的油炸面包丁
 
-> 原文:[https://life hacker . com/tater-tots-are-the-new-croutons-1839332942](https://lifehacker.com/tater-tots-are-the-new-croutons-1839332942)
+> 原文：<https://lifehacker.com/tater-tots-are-the-new-croutons-1839332942>
 
 如果你熟悉我的作品，你就会知道，当谈到用土豆代替面包时，我不会感到不安。我喜欢经典的面包丁，但我认为没有必要将这种类型局限于一种碳水化合物。
 

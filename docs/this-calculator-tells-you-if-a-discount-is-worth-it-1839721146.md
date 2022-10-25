@@ -1,6 +1,6 @@
 # 这个计算器告诉你一个“折扣”是否值得
 
-> 原文:[https://life hacker . com/this-calculator-tell-you-if-a-discount-worth-it-1839721146](https://lifehacker.com/this-calculator-tells-you-if-a-discount-is-worth-it-1839721146)
+> 原文：<https://lifehacker.com/this-calculator-tells-you-if-a-discount-is-worth-it-1839721146>
 
 这几天感觉好像所有的东西都在打折。但是并不是所有的销售都是平等的。在假日期间，认识到这一点尤其重要，因为购物假日的特点是复杂的折扣方案，有时也会带来同样复杂的限制。
 

@@ -1,6 +1,6 @@
 # 通过《残疾类型指南》学习正确的术语
 
-> 原文:[https://life hacker . com/learn-correct-terminals-with-disability-style-GUI-1838449345](https://lifehacker.com/learn-correct-terminology-with-the-disability-style-gui-1838449345)
+> 原文：<https://lifehacker.com/learn-correct-terminology-with-the-disability-style-gui-1838449345>
 
 在我的一生中，我经常自由地使用“特殊需求”这个词。我有一个患有自闭症的哥哥，这个短语非常通用，而且我认为它没有恶意。
 

@@ -1,6 +1,6 @@
 # 2020 年 1 月亚马逊 Prime 视频会有什么
 
-> 原文:[https://life hacker . com/whats-coming-to-Amazon-prime-video-in-January-2020-1840615181](https://lifehacker.com/whats-coming-to-amazon-prime-video-in-january-2020-1840615181)
+> 原文：<https://lifehacker.com/whats-coming-to-amazon-prime-video-in-january-2020-1840615181>
 
 亚马逊在 2020 年为 Prime Video 增加了许多非常可靠的内容。
 

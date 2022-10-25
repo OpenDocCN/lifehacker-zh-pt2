@@ -1,6 +1,6 @@
 # 你真的需要立式搅拌机吗？
 
-> 原文:[https://life hacker . com/do-you-really-need-a-stand-mixer-1832783506](https://lifehacker.com/do-you-really-need-a-stand-mixer-1832783506)
+> 原文：<https://lifehacker.com/do-you-really-need-a-stand-mixer-1832783506>
 
 我深爱着我的凯膳怡，但如果我说这是因为我不能没有它，那我是在撒谎。这是一件传家宝，从我的曾祖母传到我的母亲，再到我；根据型号，它今年 50 岁了。我把它搬过两次大陆——从纽约北部到俄勒冈州，再回到宾夕法尼亚州——在波特兰市内至少搬了六次。但是我一年最多用三次，通常是当我某天醒来突然迷上了千层饼。
 

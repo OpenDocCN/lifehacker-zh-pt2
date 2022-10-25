@@ -1,6 +1,6 @@
 # Pixel 4 将如何检测车祸并帮助您拨打 911
 
-> 原文:[https://life hacker . com/how-the-pixel-4-will-detect-car-crashes-and-help-you-re-1838679721](https://lifehacker.com/how-the-pixel-4-will-detect-car-crashes-and-help-you-re-1838679721)
+> 原文：<https://lifehacker.com/how-the-pixel-4-will-detect-car-crashes-and-help-you-re-1838679721>
 
 如果最近泄露的谷歌 Play 商店信息 可信的话，即将到来的 Pixel 4——以及潜在的其他 Pixel 设备——可能能够在发生车祸时帮助你。该信息由 XDA- 开发者米莎尔·拉赫曼提供，详细描述了 Pixel 4 的紧急信息应用即将发生的变化。
 

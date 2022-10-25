@@ -1,6 +1,6 @@
 # 如何弥补肉类最大的贪睡，无骨去皮鸡胸肉
 
-> 原文:[https://the take out . com/how-redempt-cook-bone-skin-chicken-breast-1834642127](https://thetakeout.com/how-to-redeem-cook-boneless-skinless-chicken-breast-1834642127)
+> 原文：<https://thetakeout.com/how-to-redeem-cook-boneless-skinless-chicken-breast-1834642127>
 
 如果米色是一种动物，我怀疑它尝起来会很像去骨去皮的鸡胸肉。美国人每人每年吃 90 多磅鸡肉，其中大部分是最清淡的。吸引力是显而易见的:无骨无皮的乳房功能多样，易于处理。像你们中的许多人一样，我是在妈妈烘烤各种组合的鸡胸肉的环境中长大的——在我小时候，鸡胸肉上覆盖着果酱对我来说是一种令人难以置信的组合——在我吃了第 9883 份*后，我发誓几乎完全戒掉它，说真的，我为什么要吃这个？砂锅。*
 

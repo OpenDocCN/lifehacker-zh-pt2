@@ -1,6 +1,6 @@
 # 方便面和汤应该分开煮吗？
 
-> 原文:[https://the take out . com/should-you-cook-instant-ramen-noodles-soup-separately-1834765171](https://thetakeout.com/should-you-cook-instant-ramen-noodles-soup-separately-1834765171)
+> 原文：<https://thetakeout.com/should-you-cook-instant-ramen-noodles-soup-separately-1834765171>
 
 *欢迎来到*的外卖*的* [***亚洲面条周***](https://thetakeout.com/tag/asian-noodles-week) *，向 O.G .的面食碗致敬。*
 

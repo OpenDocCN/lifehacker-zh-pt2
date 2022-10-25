@@ -1,6 +1,6 @@
 # 你应该把你的财务和你伴侣的合并吗？
 
-> 原文:[https://life hacker . com/should-you-merge-you-finance-with-your-partner-1839111659](https://lifehacker.com/should-you-merge-your-finances-with-your-partner-1839111659)
+> 原文：<https://lifehacker.com/should-you-merge-your-finances-with-your-partner-1839111659>
 
 你终于找到了*那个*，现在你必须弄清楚如何处理你的财务。如果 Instagram 上的幸福情侣有任何迹象，那么你只是将生活的每一部分融合在一起，从此幸福地生活。这种糖化包括你的钱。【T2
 

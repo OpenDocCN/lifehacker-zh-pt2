@@ -1,6 +1,6 @@
 # 在去外国之前学习这两个单词
 
-> 原文:[https://life hacker . com/learn-this-two-words-before-visiting-a-foreign-country-1831543906](https://lifehacker.com/learn-these-two-words-before-visiting-a-foreign-country-1831543906)
+> 原文：<https://lifehacker.com/learn-these-two-words-before-visiting-a-foreign-country-1831543906>
 
 在你下一次大型国际旅行之前，你可能已经下载了，但是在去任何一个说外语的地方之前，有两个重要的词需要知道。
 

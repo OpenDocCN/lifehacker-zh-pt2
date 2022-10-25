@@ -1,6 +1,6 @@
 # 如何取消您的 Quibi 套餐
 
-> 原文:[https://life hacker . com/how-to-cancel-your-quibi-subscription-1843419130](https://lifehacker.com/how-to-cancel-your-quibi-subscription-1843419130)
+> 原文：<https://lifehacker.com/how-to-cancel-your-quibi-subscription-1843419130>
 
 Quibi 的 [对短格式内容](https://lifehacker.com/everything-you-need-to-know-about-quibi-1842710665) 的新颖方法旨在将与网飞、YouTube 和 Hulu 等区别开来，但它的开始有点艰难；事实证明，没有人通勤的时候是 [*而不是*推出适合通勤的移动流媒体平台](https://www.nytimes.com/2020/05/11/business/media/jeffrey-katzenberg-quibi-coronavirus.html) 的时候。即使你被这个概念和内容深深吸引，然而知道如何取消你的 Quibi 订阅也许有一天会派上用场。
 

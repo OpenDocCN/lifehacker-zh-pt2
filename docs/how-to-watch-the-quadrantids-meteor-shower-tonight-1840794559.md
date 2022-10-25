@@ -1,6 +1,6 @@
 # 今晚如何观看象限仪流星雨
 
-> 原文:[https://life hacker . com/how-to-watch-the-quadrantitids-meteor-shower-tonight-1840794559](https://lifehacker.com/how-to-watch-the-quadrantids-meteor-shower-tonight-1840794559)
+> 原文：<https://lifehacker.com/how-to-watch-the-quadrantids-meteor-shower-tonight-1840794559>
 
 象限仪流星雨，2020 年的第一场流星雨，在今晚到本周末达到高峰。
 

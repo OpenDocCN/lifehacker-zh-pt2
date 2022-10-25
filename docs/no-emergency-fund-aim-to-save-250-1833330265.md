@@ -1,6 +1,6 @@
 # 没有应急基金？目标是节省 250 美元
 
-> 原文:[https://life hacker . com/no-emergency-fund-aim-to-save-250-1833330265](https://lifehacker.com/no-emergency-fund-aim-to-save-250-1833330265)
+> 原文：<https://lifehacker.com/no-emergency-fund-aim-to-save-250-1833330265>
 
 如果你像大多数美国人一样，你可能没有很多钱可以储蓄或投资。阅读你应该或应该存多少钱——比方说，每次薪水存 20 %,或者在你 30 岁 时把你的 [年薪存起来——会让人不知所措。以至于你可能不会开始。](https://twocents.lifehacker.com/how-much-should-you-have-saved-at-every-age-1821498621#_ga=2.63901999.1836666110.1552309704-1020883953.1548705071) 
 

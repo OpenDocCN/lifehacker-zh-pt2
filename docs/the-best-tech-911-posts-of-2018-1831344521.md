@@ -1,6 +1,6 @@
 # 2018 年最佳技术 911 帖子
 
-> 原文:[https://life hacker . com/the-best-tech-911-posts-of-2018-1831344521](https://lifehacker.com/the-best-tech-911-posts-of-2018-1831344521)
+> 原文：<https://lifehacker.com/the-best-tech-911-posts-of-2018-1831344521>
 
 在我加入 Lifehacker 的第一个月，我就开始了这个 [**科技 911**](https://lifehacker.com/c/tech-911) 专栏，对于你的许多科技问题，我得到了很多答案——偶尔猜测，但大多是经过充分研究的观点。
 

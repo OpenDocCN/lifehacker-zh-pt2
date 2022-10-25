@@ -1,6 +1,6 @@
 # 看看当人们在飞机紧急情况下无视安全指示会发生什么
 
-> 原文:[https://life hacker . com/see-what-happens-when-when-people-ignore-safety-instruct I-1837704697](https://lifehacker.com/see-what-happens-when-people-disregard-safety-instructi-1837704697)
+> 原文：<https://lifehacker.com/see-what-happens-when-people-disregard-safety-instructi-1837704697>
 
 如果你乘飞机的次数足够多，你可能已经记住了安全信息:“如果发生疏散，请冷静地前往最近的紧急出口”，等等。
 

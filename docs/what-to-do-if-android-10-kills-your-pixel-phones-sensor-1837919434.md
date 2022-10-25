@@ -1,6 +1,6 @@
 # 如果 Android 10 杀死了你的 Pixel 手机的传感器该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-if-Android-10-kills-your-pixel-phones-sensor-1837919434](https://lifehacker.com/what-to-do-if-android-10-kills-your-pixel-phones-sensor-1837919434)
+> 原文：<https://lifehacker.com/what-to-do-if-android-10-kills-your-pixel-phones-sensor-1837919434>
 
 一些早期采用者在他们的像素上遇到了 Android 10 的一个相当有问题的错误。目前还不清楚是什么具体触发了这个错误，但对于一些用户来说，升级到 Android 10 已经杀死了他们 Pixel 设备中的传感器。截至本文发布之时，似乎没有办法在 Android 10 上解决这个问题。
 

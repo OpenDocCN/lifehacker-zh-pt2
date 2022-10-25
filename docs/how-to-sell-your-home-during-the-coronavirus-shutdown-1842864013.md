@@ -1,6 +1,6 @@
 # 如何在冠状病毒关闭期间卖掉你的房子
 
-> 原文:[https://life hacker . com/how-to-sell-your-home-in-the-coronavirus-shut down-1842864013](https://lifehacker.com/how-to-sell-your-home-during-the-coronavirus-shutdown-1842864013)
+> 原文：<https://lifehacker.com/how-to-sell-your-home-during-the-coronavirus-shutdown-1842864013>
 
 如果你想在今年卖掉你的房子，你可能会认为冠状病毒已经无限期地暂停了这个计划。但是房地产是 [停工期间](https://www.cisa.gov/publication/guidance-essential-critical-infrastructure-workforce) 必不可少的服务。这段时间完成卖房的过程可能比较困难，但肯定不是不可能。以下是房地产专家关于如何适应的建议。
 

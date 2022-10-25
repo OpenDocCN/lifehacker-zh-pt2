@@ -1,6 +1,6 @@
 # 更新这些 TP-Link 路由器以修复一个关键的密码漏洞
 
-> 原文:[https://life hacker . com/update-these-TP-link-routers-to-fix-a-critical-password-1840531919](https://lifehacker.com/update-these-tp-link-routers-to-fix-a-critical-password-1840531919)
+> 原文：<https://lifehacker.com/update-these-tp-link-routers-to-fix-a-critical-password-1840531919>
 
 如果您拥有四个 TP-Link 路由器中的一个，包括 TP-Link Archer C5 (v4)，您将需要立即找到并安装其最新的固件更新。该补丁修复了一个严重的漏洞，否则攻击者将能够完全控制您的路由器-管理员访问和所有-并将您锁定在外。
 

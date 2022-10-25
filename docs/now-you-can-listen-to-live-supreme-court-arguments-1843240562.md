@@ -1,6 +1,6 @@
 # 现在你可以听最高法院的现场辩论了
 
-> 原文:[https://life hacker . com/now-you-can-listen-to-live-supreme-court-arguments-1843240562](https://lifehacker.com/now-you-can-listen-to-live-supreme-court-arguments-1843240562)
+> 原文：<https://lifehacker.com/now-you-can-listen-to-live-supreme-court-arguments-1843240562>
 
 如果你已经到了隔离阶段，看完了"《法律与秩序》、、、【犯罪现场调查】、、【海军罪案调查处】、的每一集和每一季，你可能正在寻找下一部法庭剧。嗯，看看美国最高法院就知道了:多亏了新冠肺炎疫情，美国最高法院将有史以来第一次通过电话会议审理 10 起案件——公众可以使用现场音频。
 

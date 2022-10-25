@@ -1,6 +1,6 @@
 # 离婚后如何约会
 
-> 原文:[https://life hacker . com/离婚后如何约会-1832478568](https://lifehacker.com/how-to-date-after-a-divorce-1832478568)
+> 原文：<https://lifehacker.com/how-to-date-after-a-divorce-1832478568>
 
 在以前的生活中，我是那些喜欢尝试的女人之一，她们会用“哇”来评论关于网上约会的文章。那听起来很可怕。真高兴我 19 岁就找到了另一半，25 岁就结婚了！”这些评论伴随着一种疯狂的沾沾自喜的神情，这种神情通常出现在刚开始怀疑自己犯了错误的年轻女性身上。
 

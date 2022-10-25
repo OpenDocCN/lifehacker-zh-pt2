@@ -1,6 +1,6 @@
 # 家里有什么用品以防生病
 
-> 原文:[https://life hacker . com/what-supplies to-have-to-case-you-case-you-sick-1842582934](https://lifehacker.com/what-supplies-to-have-at-home-in-case-you-get-sick-1842582934)
+> 原文：<https://lifehacker.com/what-supplies-to-have-at-home-in-case-you-get-sick-1842582934>
 
 在疫情中部，没有时间去药店买最后一分钟的药品，所以在生病前储备一些是有意义的。这是你需要用来抵御轻度新冠肺炎或者普通感冒或流感的东西。
 

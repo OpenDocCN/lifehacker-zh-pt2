@@ -1,6 +1,6 @@
 # 这个免费的 Disney+ Mac 应用程序会在您启动后立即恢复您的节目
 
-> 原文:[https://life hacker . com/this-free-Disney-MAC-app-resumes-your-shows-as-soon-as-1840206512](https://lifehacker.com/this-free-disney-mac-app-resumes-your-shows-as-soon-as-1840206512)
+> 原文：<https://lifehacker.com/this-free-disney-mac-app-resumes-your-shows-as-soon-as-1840206512>
 
 许多人喜欢尤达宝宝和 T4 的迪士尼乐园。那么，你为什么要经历加载浏览器、调出服务、点击观看《曼达洛人》最新一集的艰巨任务呢？多亏了 DBK 实验室的一个有趣的小技巧，我们可以在 macOS 上缩短这个步骤。如果你在完成你的节目或电影之前不得不乘飞机，这个应用程序非常适合直接跳回到你原来的地方——不需要额外的点击。
 

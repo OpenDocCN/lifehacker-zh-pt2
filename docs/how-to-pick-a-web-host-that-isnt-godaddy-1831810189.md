@@ -1,6 +1,6 @@
 # 如何挑选一个不是 GoDaddy 的虚拟主机
 
-> 原文:[https://life hacker . com/how-to-pick-a-web-host-that-not-godaddy-1831810189](https://lifehacker.com/how-to-pick-a-web-host-that-isnt-godaddy-1831810189)
+> 原文：<https://lifehacker.com/how-to-pick-a-web-host-that-isnt-godaddy-1831810189>
 
 我不确定有多少人喜欢 GoDaddy，但有很多人仍然使用 web 注册器和主机，因为他们不知道任何更好的东西。我不能指责他们。我非常确定我用 GoDaddy 注册了我的第一个域名，要么是因为我在一个商业广告上听到了该公司的名字，并在脑海中将其与“如何获得域名”联系起来，要么是我在网上看到了一些交易。(大概就是那个。)
 

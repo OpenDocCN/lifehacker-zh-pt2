@@ -1,6 +1,6 @@
 # 你应该为你的新家节省 4%的维修费用
 
-> 原文:[https://life hacker . com/you-should-save-4-of-your-new-homes-cost-for-repair-1832984542](https://lifehacker.com/you-should-save-4-of-your-new-homes-cost-for-repairs-1832984542)
+> 原文：<https://lifehacker.com/you-should-save-4-of-your-new-homes-cost-for-repairs-1832984542>
 
 据个人理财网站 Bankrate 对 1500 名房主进行的新调查报道，数量惊人的新房主在购房后感到后悔，主要是因为与购房相关的意外费用。
 

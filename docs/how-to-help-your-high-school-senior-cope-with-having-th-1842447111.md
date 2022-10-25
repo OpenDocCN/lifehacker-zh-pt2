@@ -1,6 +1,6 @@
 # 如何帮助你的高中毕业生应对学年缩短
 
-> 原文:[https://life hacker . com/how-to-help-your-high-school-senior-cope-having-th-1842447111](https://lifehacker.com/how-to-help-your-high-school-senior-cope-with-having-th-1842447111)
+> 原文：<https://lifehacker.com/how-to-help-your-high-school-senior-cope-with-having-th-1842447111>
 
 回想一下你高中的最后一年。一旦春天来临，你基本上就可以自由自在了，终于可以体验“老年人”的快乐了:去上学，去看朋友，同时享受较低的学业期望。再加上有那么多 [重大事件](https://twocents.lifehacker.com/would-you-tell-your-kids-that-college-is-worth-the-mone-1837000013) 期待像毕业舞会、 [还有其他任何传统](https://offspring.lifehacker.com/start-your-kids-high-school-graduation-gift-in-kinderga-1833940742) 你的学校可能都有。但是现在，由于冠状病毒的爆发，许多高中(和大学)高年级学生不得不接受不得不错过这一切的事实。
 

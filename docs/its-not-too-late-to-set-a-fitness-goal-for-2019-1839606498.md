@@ -1,6 +1,6 @@
 # 为 2019 年设定健身目标还不算晚
 
-> 原文:[https://life hacker . com/its-not-late-to-set a-fitness-goal-for-2019-1839606498](https://lifehacker.com/its-not-too-late-to-set-a-fitness-goal-for-2019-1839606498)
+> 原文：<https://lifehacker.com/its-not-too-late-to-set-a-fitness-goal-for-2019-1839606498>
 
 嘿，还记得一月吗？这是很久以前的事了，但是你可能为你今年想要实现的目标设定了一些目标。(记性不好？也许你促成了 [我们这里的健身目标讨论](https://lifehacker.com/what-are-your-fitness-and-health-goals-for-2019-1831359369) 。)
 

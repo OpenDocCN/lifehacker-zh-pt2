@@ -1,6 +1,6 @@
 # 使用此浏览器扩展，您已经看到的模糊推文
 
-> 原文:[https://life hacker . com/dim-tweets-you ve-has-seen-with this-browser-extensi-1844858898](https://lifehacker.com/dim-tweets-youve-already-seen-with-this-browser-extensi-1844858898)
+> 原文：<https://lifehacker.com/dim-tweets-youve-already-seen-with-this-browser-extensi-1844858898>
 
 Twitter 坚持不按顺序显示推文是一个长期的抱怨。当然，有一个设置是*要求*按时间顺序显示你的订阅，但如果你不留意的话，它几乎总是会重置回“热门推文”视图。
 

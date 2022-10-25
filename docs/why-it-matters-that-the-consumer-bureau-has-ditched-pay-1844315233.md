@@ -1,6 +1,6 @@
 # 消费者局取消发薪日贷款限制的重要性
 
-> 原文:[https://life hacker . com/why-it-matters-the-consumer-bureau-pay-1844315233](https://lifehacker.com/why-it-matters-that-the-consumer-bureau-has-ditched-pay-1844315233)
+> 原文：<https://lifehacker.com/why-it-matters-that-the-consumer-bureau-has-ditched-pay-1844315233>
 
 周二，金融监管机构消费者金融保护局(CFPB)因取消发薪日贷款人的规定而成为头条新闻。修订后的规则 T5T7】称贷款人不再需要评估借款人是否有能力偿还短期贷款。 
 

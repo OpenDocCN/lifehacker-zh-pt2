@@ -1,6 +1,6 @@
 # 随着时间的推移，维护成本最高的汽车品牌
 
-> 原文:[https://life hacker . com/the-car-brands-with-the-most-maintenance-costs-over-1781639773](https://lifehacker.com/the-car-brands-with-the-highest-maintenance-costs-over-1781639773)
+> 原文：<https://lifehacker.com/the-car-brands-with-the-highest-maintenance-costs-over-1781639773>
 
 拥有一辆汽车的真正成本远远超过标价 ，超过每年的注册费和每月的汽车保险等固定成本，甚至超过偶尔的停车罚单带来的痛苦。虽然你可能会认为这只不过是定期更换机油和每隔几年更换一套新轮胎,但随着时间的推移，维护是一项可以累积相当多的费用。然而，你的里程会根据你买的车的类型而有所不同。
 

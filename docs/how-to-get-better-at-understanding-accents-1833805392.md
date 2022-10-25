@@ -1,6 +1,6 @@
 # 如何更好地理解口音
 
-> 原文:[https://life hacker . com/how-to-get-better-in-understanding-accents-1833805392](https://lifehacker.com/how-to-get-better-at-understanding-accents-1833805392)
+> 原文：<https://lifehacker.com/how-to-get-better-at-understanding-accents-1833805392>
 
 一个说本族语的人和一个说非本族语的人走进一家酒吧。
 

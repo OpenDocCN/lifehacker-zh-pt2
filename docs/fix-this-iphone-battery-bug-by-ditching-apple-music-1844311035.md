@@ -1,6 +1,6 @@
 # 通过抛弃苹果音乐来修复这个 iPhone 电池问题
 
-> 原文:[https://life hacker . com/fix-this-iphone-battery-bug-by-ditching-apple-music-1844311035](https://lifehacker.com/fix-this-iphone-battery-bug-by-ditching-apple-music-1844311035)
+> 原文：<https://lifehacker.com/fix-this-iphone-battery-bug-by-ditching-apple-music-1844311035>
 
 奇怪的消耗电池的 iOS 错误案例正在增加，苹果音乐应用程序似乎是罪魁祸首，有报告显示，该应用程序可以无缘无故地快速消耗设备 95%的电池。该问题影响了各种各样的 iOS 设备，但最近的大多数案例似乎都运行着 iOS 版本 13.5.1(尽管早期版本也有案例报告)。
 

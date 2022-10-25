@@ -1,6 +1,6 @@
 # 为永无止境的冠状病毒高原做好准备
 
-> 原文:[https://gizmodo . com/prepare-for-the-never-ending-coronavirus-plateau-1843999422](https://gizmodo.com/prepare-for-the-never-ending-coronavirus-plateau-1843999422)
+> 原文：<https://gizmodo.com/prepare-for-the-never-ending-coronavirus-plateau-1843999422>
 
 本周早些时候，美国 [到达](https://www.worldometers.info/coronavirus/) 新冠肺炎疫情的又一个悲伤的里程碑，该国现在报告了超过 200 万例病毒性疾病的确诊病例，至少有 11.5 万人死亡。
 

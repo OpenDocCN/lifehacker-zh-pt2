@@ -1,6 +1,6 @@
 # 如果你被解雇了，用这些美国总统办公室的信件样本联系你的债权人
 
-> 原文:[https://life hacker . com/use-these-sample-letters-from-the-usopm-to-contact-your-1831390582](https://lifehacker.com/use-these-sample-letters-from-the-usopm-to-contact-your-1831390582)
+> 原文：<https://lifehacker.com/use-these-sample-letters-from-the-usopm-to-contact-your-1831390582>
 
 随着政府关门进入又一周，许多休假的政府雇员可能正在为如何支付账单而挣扎。
 

@@ -1,6 +1,6 @@
 # 如何支持黑人记者
 
-> 原文:[https://life hacker . com/how-to-support-black-journalists-1843907476](https://lifehacker.com/how-to-support-black-journalists-1843907476)
+> 原文：<https://lifehacker.com/how-to-support-black-journalists-1843907476>
 
 本周,《纽约时报》选择发表阿肯色州参议员汤姆·科顿的一篇极具争议且危险的专栏文章，他在文章中主张对抗议者使用军事力量。正如许多记者所注意到的，在没有背景、没有 [对科顿的许多不准确的说法](https://twitter.com/jenvalentino/status/1268543700789014534) 进行事实核查，并且没有对危险、非法的立场提供任何反驳的论据的情况下，决定刊登这篇文章，将 b 缺乏记者置于危险之中。
 

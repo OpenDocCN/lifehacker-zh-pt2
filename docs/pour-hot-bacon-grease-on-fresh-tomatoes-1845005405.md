@@ -1,6 +1,6 @@
 # 将热培根油倒在新鲜番茄上
 
-> 原文:[https://life hacker . com/pour-hot-bacon-grease-on-fresh-tomatos-1845005405](https://lifehacker.com/pour-hot-bacon-grease-on-fresh-tomatoes-1845005405)
+> 原文：<https://lifehacker.com/pour-hot-bacon-grease-on-fresh-tomatoes-1845005405>
 
 夏天的西红柿很容易变得过于珍贵。毕竟，它们是最具季节性的美味之一，混淆它们夏天的新鲜味道会让人感觉不对。
 

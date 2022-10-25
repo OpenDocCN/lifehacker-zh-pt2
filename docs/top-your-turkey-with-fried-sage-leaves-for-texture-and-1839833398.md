@@ -1,6 +1,6 @@
 # 在你的火鸡上放上炸过的鼠尾草叶，以增加口感和味道
 
-> 原文:[https://life hacker . com/top-your-turkey-with-fried-sage-leaves-for-texture-and-1839833398](https://lifehacker.com/top-your-turkey-with-fried-sage-leaves-for-texture-and-1839833398)
+> 原文：<https://lifehacker.com/top-your-turkey-with-fried-sage-leaves-for-texture-and-1839833398>
 
 细节往往让一顿饭变得特别。一些额外的小东西，比如漂亮的餐巾，南瓜饼上脆皮的，或者你自己的 [烤大蒜头](https://skillet.lifehacker.com/give-every-thanksgiving-guest-their-own-head-of-roasted-1839648746) 都可以在未来的几年里让年度大餐脱颖而出。香脆的油炸鼠尾草叶也能做到这一点。
 

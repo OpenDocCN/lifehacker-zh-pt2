@@ -1,6 +1,6 @@
 # 用“心理距离”来处理你的愤怒
 
-> 原文:[https://life hacker . com/use-psychological-distanding-to-process-your-anger-1844496546](https://lifehacker.com/use-psychological-distancing-to-process-your-anger-1844496546)
+> 原文：<https://lifehacker.com/use-psychological-distancing-to-process-your-anger-1844496546>
 
 除了对我们的现代社会基本上被一种病毒拖垮感到难以置信的沮丧之外，人们现在还有很多其他理由感到愤怒。无论是因为他们觉得由于口罩的要求，他们的个人自由受到了威胁，还是他们无法接受这样一个事实，即人们不会做像戴口罩这样简单的事情来拯救生命——大多数人都很恼火。如果对着你的手机大喊也没用的话，那么这里有另一个值得一试的技巧:用心理距离来处理你的愤怒。
 

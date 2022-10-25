@@ -1,6 +1,6 @@
 # 如果你刚找到一卷旧胶卷，你仍然可以冲洗胶卷
 
-> 原文:[https://life hacker . com/where-you-can-still-get-film-developed-if-you-just-unea-1835388670](https://lifehacker.com/where-you-can-still-get-film-developed-if-you-just-unea-1835388670)
+> 原文：<https://lifehacker.com/where-you-can-still-get-film-developed-if-you-just-unea-1835388670>
 
 我记得我用过的第一台数码相机。它的大小相当于一个沙拉碗，存储在一个 3.5 英寸的磁盘上。是的，和我们以前塞进电脑的一样大。每张照片——一张磁盘可以存储大约 20 张照片——是 30 万像素。(那是一台索尼 Mavica，OK 书呆子？)
 

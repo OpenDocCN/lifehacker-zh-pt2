@@ -1,6 +1,6 @@
 # 今天就免费获得“巫师:增强版”电脑游戏
 
-> 原文:[https://life hacker . com/get-the-witcher-enhanced-edition-PC-game-for-free-toda-1844634607](https://lifehacker.com/get-the-witcher-enhanced-edition-pc-game-for-free-toda-1844634607)
+> 原文：<https://lifehacker.com/get-the-witcher-enhanced-edition-pc-game-for-free-toda-1844634607>
 
 我就不跟你开玩笑了，把硬币扔给里维埃拉的杰拉尔特，因为就在今天，你可以和每个人都喜欢的自由怪物猎人出去玩，而不用花一分钱。开启这一切的电脑游戏——带我们走上一条不可思议的奇幻之路，让我们找到了那首热门歌曲——是免费的。
 

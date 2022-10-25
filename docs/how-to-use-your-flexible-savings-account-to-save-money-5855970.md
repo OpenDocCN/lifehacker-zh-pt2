@@ -1,6 +1,6 @@
 # 如何使用灵活的储蓄账户来省钱，避免浪费福利
 
-> 原文:[https://life hacker . com/how-to-use-your-flexible-saving-money-5855970](https://lifehacker.com/how-to-use-your-flexible-savings-account-to-save-money-5855970)
+> 原文：<https://lifehacker.com/how-to-use-your-flexible-savings-account-to-save-money-5855970>
 
 又到了一年中的这个时候:雇主福利的开放注册季节，如果你幸运的话，这包括弹性支出账户(FSA)。如果这段时间你总是告诉自己“我真的应该好好利用我的金融服务管理局”，但从来没有这样做，现在是时候纠正这个财务错误了。有一个 FSA 就像在医疗保健和依赖护理费用上获得 30%的折扣(免费的钱，人们！).需要注意一些大的“陷阱”，但是不要担心，我们会帮助您避免它们。
 

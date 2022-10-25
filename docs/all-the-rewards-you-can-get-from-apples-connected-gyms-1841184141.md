@@ -1,6 +1,6 @@
 # 你可以从苹果的“互联健身房”计划中获得的所有奖励
 
-> 原文:[https://life hacker . com/all-the-rewards-you-can-get-from-apple-connected-gyms-1841184141](https://lifehacker.com/all-the-rewards-you-can-get-from-apples-connected-gyms-1841184141)
+> 原文：<https://lifehacker.com/all-the-rewards-you-can-get-from-apples-connected-gyms-1841184141>
 
 健身追踪是苹果手表的最大的好处之一。一旦你进入健身房，这些额外的数据可能会帮助你专注于一次伟大的锻炼，但有时我们需要更多一点的动力来真正开始*——没有比金钱更好的动力了。* 
 

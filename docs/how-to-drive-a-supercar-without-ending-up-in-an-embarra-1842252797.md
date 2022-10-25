@@ -1,6 +1,6 @@
 # 如何驾驶超级跑车而不出现在令人尴尬的 YouTube 视频中
 
-> 原文:[https://jalopnik . com/how-to-drive-a-super car-without-end-up-in-an-embara-1842252797](https://jalopnik.com/how-to-drive-a-supercar-without-ending-up-in-an-embarra-1842252797)
+> 原文：<https://jalopnik.com/how-to-drive-a-supercar-without-ending-up-in-an-embarra-1842252797>
 
 在我照看一辆兰博基尼·阿文塔多·SVJ 的短暂时间里，我尽可能多地开车兜风。“我希望有一天能租到这样的东西，”一名乘客透露道。“但我害怕撞毁它。”一个有效的关注，我很高兴尝试和减轻非专业人士可能会发现自己背后的超级跑车。
 

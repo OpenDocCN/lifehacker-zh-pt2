@@ -1,6 +1,6 @@
 # 如何选购智能家庭安全摄像头
 
-> 原文:[https://life hacker . com/how-to-shop for-a-smart-home-security-camera-1841163475](https://lifehacker.com/how-to-shop-for-a-smart-home-security-camera-1841163475)
+> 原文：<https://lifehacker.com/how-to-shop-for-a-smart-home-security-camera-1841163475>
 
 智能安防摄像头似乎无处不在，我们不仅仅是指监视你的一举一动。随着廉价组件和云存储的普及，安装家庭或企业监控系统比以往任何时候都更容易。但是有这么多的品牌和类型，很难找出哪个平台值得你花费时间和金钱。
 

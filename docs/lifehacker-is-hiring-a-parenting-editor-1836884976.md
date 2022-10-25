@@ -1,6 +1,6 @@
 # Lifehacker 正在招聘一名育儿编辑
 
-> 原文:[https://life hacker . com/life hacker-is-hiring-a-parenting-editor-1836884976](https://lifehacker.com/lifehacker-is-hiring-a-parenting-editor-1836884976)
+> 原文：<https://lifehacker.com/lifehacker-is-hiring-a-parenting-editor-1836884976>
 
 从收集任性的乐高玩具的最佳方法到如何包裹新生儿，你对任何事情都有强烈的看法吗？你有没有革命性的想法让挑食的人咬一口？你的 rad 公路旅行播放列表能保证让整个家庭享受到“小鲨鱼”的零再现吗？那么我们想见见你。
 

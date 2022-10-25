@@ -1,6 +1,6 @@
 # what to do if you think youre having a stroke 1831107642
 
-> 原文:[https://life hacker . com/what-do-if-you-think-you-have-a-stroke-1831107642](https://lifehacker.com/what-to-do-if-you-think-youre-having-a-stroke-1831107642)
+> 原文：<https://lifehacker.com/what-to-do-if-you-think-youre-having-a-stroke-1831107642>
 
 首先，如果你现在谷歌这个是因为你认为你或和你在一起的人可能会中风，**马上打 911，告诉接线员派辆救护车来。告诉接线员你认为你中风了。现在就做。不要等待。不要读下去。**
 

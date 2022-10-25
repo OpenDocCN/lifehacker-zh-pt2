@@ -1,6 +1,6 @@
 # 如何观看印第安纳今晚的约翰·普莱恩，比尔·威瑟斯和亚当·施莱辛格的音乐庆典
 
-> 原文:[https://life hacker . com/how-to-watch-indianas-celebration-of-the-music-of-John-1843504066](https://lifehacker.com/how-to-watch-indianas-celebration-of-the-music-of-john-1843504066)
+> 原文：<https://lifehacker.com/how-to-watch-indianas-celebration-of-the-music-of-john-1843504066>
 
 音乐家约翰·普莱恩、亚当·施莱辛格和比尔·威瑟斯都在最近几周去世了。今晚印第安纳独立场地联盟 [将举办一场](https://www.indianavenuealliance.org/twma) 音乐会，向印第安纳州的音乐家和音乐场地致敬，同时庆祝这三个人的音乐。
 

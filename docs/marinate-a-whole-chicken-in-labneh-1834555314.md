@@ -1,6 +1,6 @@
 # 将整只鸡放入腌料中腌制
 
-> 原文:[https://life hacker . com/腌制整只鸡-in-labneh-1834555314](https://lifehacker.com/marinate-a-whole-chicken-in-labneh-1834555314)
+> 原文：<https://lifehacker.com/marinate-a-whole-chicken-in-labneh-1834555314>
 
 烤鸡有很多种方法，其中很多都很好。事实上，烤鸡的种类太多了，以至于我很少用同样的方式烤一只鸡两次，尽管我认为这一切都将改变，因为我现在痴迷于用被称为“labneh”的过滤奶油奶酪状酸奶涂抹整只鸡。
 

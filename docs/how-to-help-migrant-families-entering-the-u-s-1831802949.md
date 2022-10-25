@@ -1,6 +1,6 @@
 # 如何帮助进入美国的移民家庭
 
-> 原文:[https://life hacker . com/how-to-help-migrant-families-into-the-u-s-1831802949](https://lifehacker.com/how-to-help-migrant-families-entering-the-u-s-1831802949)
+> 原文：<https://lifehacker.com/how-to-help-migrant-families-entering-the-u-s-1831802949>
 
 去年 12 月，美国移民和海关执法局在德克萨斯州埃尔帕索和加利福尼亚州圣地亚哥的灰狗巴士站释放了数百名移民。其中许多人来自美墨边境，获释后可以选择寻找一个可用的避难所。
 

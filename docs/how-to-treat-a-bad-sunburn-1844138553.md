@@ -1,6 +1,6 @@
 # 如何治疗严重晒伤
 
-> 原文:[https://life hacker . com/how-to-treat-a-bad-turbing-1844138553](https://lifehacker.com/how-to-treat-a-bad-sunburn-1844138553)
+> 原文：<https://lifehacker.com/how-to-treat-a-bad-sunburn-1844138553>
 
 如果你每天 [涂防晒霜](https://vitals.lifehacker.com/all-your-sunscreen-questions-answered-1827579794) ，适当地涂防晒霜，每隔几个小时再涂一次(或者每当你出汗、游泳或擦毛巾的时候)，那么你就不需要这篇文章。但是我们在这里。你被烧伤了，你很受伤。现在怎么办？
 

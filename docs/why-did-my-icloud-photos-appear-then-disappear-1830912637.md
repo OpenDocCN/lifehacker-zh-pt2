@@ -1,6 +1,6 @@
 # 为什么我的 iCloud 照片会出现...然后消失？
 
-> 原文:[https://life hacker . com/why-did-my-I cloud-photos-出现-然后消失-1830912637](https://lifehacker.com/why-did-my-icloud-photos-appear-then-disappear-1830912637)
+> 原文：<https://lifehacker.com/why-did-my-icloud-photos-appear-then-disappear-1830912637>
 
 正如我之前写过的一样，iCloud 可能有点混乱。这不是故意的——至少，我不认为苹果有意如此——但许多人似乎被 iCloud 的同步设置迷住了。虽然让相同的照片出现在所有使用 iCloud 的苹果设备上非常方便，但移除一台设备上的照片会移除其他设备上的照片。
 

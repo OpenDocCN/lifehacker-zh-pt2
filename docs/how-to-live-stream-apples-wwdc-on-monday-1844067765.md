@@ -1,6 +1,6 @@
 # 如何在周一直播苹果的 WWDC
 
-> 原文:[https://life hacker . com/how-to-live-stream-apple-wwdc-on-Monday-1844067765](https://lifehacker.com/how-to-live-stream-apples-wwdc-on-monday-1844067765)
+> 原文：<https://lifehacker.com/how-to-live-stream-apples-wwdc-on-monday-1844067765>
 
 像今年的其他大型会议一样，苹果的 WWDC 2020 将是一个完全基于网络的活动，以确保与会者的安全。虽然这改变了亲自参加会议的人的活动性质，但您仍然可以通过各种平台观看 6 月 22 日星期一下午 1 点/太平洋时间上午 10 点的大型新闻发布会直播。
 

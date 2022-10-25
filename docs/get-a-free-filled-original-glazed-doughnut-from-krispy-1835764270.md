@@ -1,6 +1,6 @@
 # 今天就从 Krispy Kreme 获得一个免费的原始釉面甜甜圈
 
-> 原文:[https://life hacker . com/get-a-free-filled-original-glassed-甜甜圈-from-krispy-1835764270](https://lifehacker.com/get-a-free-filled-original-glazed-doughnut-from-krispy-1835764270)
+> 原文：<https://lifehacker.com/get-a-free-filled-original-glazed-doughnut-from-krispy-1835764270>
 
 几周后就是登月 50 周年纪念日了，但 Krispy Kreme 今天通过分发免费的甜甜圈来庆祝，这是该连锁店的原始釉面甜甜圈之一，里面有奶油。
 

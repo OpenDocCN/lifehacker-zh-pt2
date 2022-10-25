@@ -1,6 +1,6 @@
 # 今晚的民主党总统候选人辩论有什么值得期待的
 
-> 原文:[https://life hacker . com/what-to-expect-from-tonights-democratic-presidential-de-1838065439](https://lifehacker.com/what-to-expect-from-tonights-democratic-presidential-de-1838065439)
+> 原文：<https://lifehacker.com/what-to-expect-from-tonights-democratic-presidential-de-1838065439>
 
 2020 年民主党总统竞选即将迎来一个突然而急需的转折。我们将第一次见证 10 名民主党候选人——包括所有民调最高的候选人——在同一个晚上一起出现在舞台上。你能从今晚的辩论中期待什么？对于每一个与拜登竞争的候选人来说，和将会围绕弹劾调查对今天的新闻进行更大的讨论。
 

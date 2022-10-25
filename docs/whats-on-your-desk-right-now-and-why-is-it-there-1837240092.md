@@ -1,6 +1,6 @@
 # 你桌上现在有什么，为什么会在那里？
 
-> 原文:[https://life hacker . com/what ' s-on-right-now-and-why-it-there-1837240092](https://lifehacker.com/whats-on-your-desk-right-now-and-why-is-it-there-1837240092)
+> 原文：<https://lifehacker.com/whats-on-your-desk-right-now-and-why-is-it-there-1837240092>
 
 这是我桌上的东西，从左到右:一台笔记本电脑，一杯茶(在三脚架上)，一个笔记本和一支笔，一部智能手机(静音，面朝下)，两个需要充电的自行车灯，和一个花盆。
 

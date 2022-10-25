@@ -1,6 +1,6 @@
 # 一定要拍下你的酒店房间号
 
-> 原文:[https://life hacker . com/always-take-a-photo-of-your-hotel-room-number-1834720793](https://lifehacker.com/always-take-a-photo-of-your-hotel-room-number-1834720793)
+> 原文：<https://lifehacker.com/always-take-a-photo-of-your-hotel-room-number-1834720793>
 
 你在酒店的地板上走来走去，拼命想找到你的房间。你确定是 201 或者 210？但是两个房间都不能用钥匙打开。
 

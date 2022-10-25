@@ -1,6 +1,6 @@
 # 加里波第是完美的冬季早午餐鸡尾酒
 
-> 原文:[https://life hacker . com/the-garibaldi-is-the-perfect-winter-brunch-cocktail-1841067728](https://lifehacker.com/the-garibaldi-is-the-perfect-winter-brunch-cocktail-1841067728)
+> 原文：<https://lifehacker.com/the-garibaldi-is-the-perfect-winter-brunch-cocktail-1841067728>
 
 好消息，朋友们:现在是柑橘季，我最喜欢的水果季。有些人为了浆果而去吃香蕉，但每年冬天我都把吞食我能得到的每一颗金柑、温州蜜柑、金橘和酸橙作为我的使命，同时也探索柑橘杂交的野生世界。这是一个特别有趣的时间来玩鸡尾酒，尤其是那些传统上用橙汁制成的鸡尾酒。
 

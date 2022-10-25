@@ -1,6 +1,6 @@
 # 血腥玛丽是很好的腌泡汁
 
-> 原文:[https://life hacker . com/a-bloody-Mary-makes-an-excellent-marinade-1844382581](https://lifehacker.com/a-bloody-mary-makes-an-excellent-marinade-1844382581)
+> 原文：<https://lifehacker.com/a-bloody-mary-makes-an-excellent-marinade-1844382581>
 
 血腥玛丽、凯撒和蜜饯都很美味，但它们可能会令人难以下咽。“这是饮料吗？或是冷汤吗？和“其中*是*两个之间的线？”只是我有时在喝这种系列饮料时问自己的几个问题。没什么不愉快的——我喜欢能让我保持警觉的饮料。 I t 也就是说血腥玛丽之类的东西可以作为美味的卤汁来执行双重任务。
 

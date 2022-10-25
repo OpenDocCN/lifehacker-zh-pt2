@@ -1,6 +1,6 @@
 # 您的 Samsung 设备现在的软件更新频率可能会降低
 
-> 原文:[https://life hacker . com/your-Samsung-device-may-now-being-less-frequency-so-1838878277](https://lifehacker.com/your-samsung-device-may-now-be-getting-less-frequent-so-1838878277)
+> 原文：<https://lifehacker.com/your-samsung-device-may-now-be-getting-less-frequent-so-1838878277>
 
 Android 用户可以 [放心地期待谷歌定期推出新的安全补丁](https://lifehacker.com/why-you-should-install-the-october-2019-android-securit-1838848808) ，但具体时间取决于你的设备。谷歌产品，如 Pixel line，通常每个月都会获得新的补丁，而其他制造商的 Android 手机可能会有所不同。
 

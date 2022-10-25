@@ -1,6 +1,6 @@
 # 放松你早晨的例行公事
 
-> 原文:[https://life hacker . com/ease-up-on-your morning-routine-1831875238](https://lifehacker.com/ease-up-on-your-morning-routine-1831875238)
+> 原文：<https://lifehacker.com/ease-up-on-your-morning-routine-1831875238>
 
 直到大约几个月前，我还是那种早上四处奔波的人，试图尽快做好准备，以确保我能早点到达工作地点。一旦到了那里，在开始真正的一天工作之前，我就会开始新的一天，因为太紧张而不能停下来喝杯咖啡。
 

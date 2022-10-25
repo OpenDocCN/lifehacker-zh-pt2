@@ -1,6 +1,6 @@
 # 考虑转投先锋的低价 Admiral 股票
 
-> 原文:[https://life hacker . com/consider-switching-to-vanguards-low-fee-admiral-shares-1830589365](https://lifehacker.com/consider-switching-to-vanguards-low-fee-admiral-shares-1830589365)
+> 原文：<https://lifehacker.com/consider-switching-to-vanguards-low-fee-admiral-shares-1830589365>
 
 Vanguard 通过降低其低费用的“海军上将股票” 类别的准入门槛，进一步升级了指数基金价格战。
 

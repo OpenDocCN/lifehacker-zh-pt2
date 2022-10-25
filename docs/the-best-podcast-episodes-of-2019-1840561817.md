@@ -1,6 +1,6 @@
 # 2019 年最佳播客剧集
 
-> 原文:[https://life hacker . com/the-best-podcast-eptions-of-2019-1840561817](https://lifehacker.com/the-best-podcast-episodes-of-2019-1840561817)
+> 原文：<https://lifehacker.com/the-best-podcast-episodes-of-2019-1840561817>
 
 今年，Lifehacker 的工作人员收听了新闻、真实犯罪、小说、脱口秀、喜剧和音乐欣赏。以下是 2019 年我们听到的最好的播客剧集。
 

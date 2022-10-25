@@ -1,6 +1,6 @@
 # 不要在加油站使用借记卡
 
-> 原文:[https://life hacker . com/don-to-use-a-debit-card-at-gas-pump-1832796443](https://lifehacker.com/dont-use-a-debit-card-at-the-gas-pump-1832796443)
+> 原文：<https://lifehacker.com/dont-use-a-debit-card-at-the-gas-pump-1832796443>
 
 不要被浏览。
 

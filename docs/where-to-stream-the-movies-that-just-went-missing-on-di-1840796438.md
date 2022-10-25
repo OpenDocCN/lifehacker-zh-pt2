@@ -1,6 +1,6 @@
 # 在哪里流式播放刚刚在 Disney+上丢失的电影
 
-> 原文:[https://life hacker . com/where-to-stream-the-movies-the-just-go-missing-on-di-1840796438](https://lifehacker.com/where-to-stream-the-movies-that-just-went-missing-on-di-1840796438)
+> 原文：<https://lifehacker.com/where-to-stream-the-movies-that-just-went-missing-on-di-1840796438>
 
 我不知道你如何度过一个没有独自在家的假期，但这就是我。还有*沙地？*我会让我的孩子一天看六次，让他们重温小时候父母让我去当地棒球联盟打球的时光。还有*加勒比海盗:在陌生的潮汐上？让我们都花点时间来哼一下这首歌。你知道 [这首歌](https://www.youtube.com/watch?v=nbiKV4prSqI) 。*
 

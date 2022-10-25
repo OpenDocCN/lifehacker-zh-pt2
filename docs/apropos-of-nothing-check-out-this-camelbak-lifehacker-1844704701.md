@@ -1,6 +1,6 @@
 # 顺便说一下，看看这个 Camelbak/Lifehacker 的合作
 
-> 原文:[https://life hacker . com/apropos-of-nothing-check-out-this-camel bak-life hacker-1844704701](https://lifehacker.com/apropos-of-nothing-check-out-this-camelbak-lifehacker-1844704701)
+> 原文：<https://lifehacker.com/apropos-of-nothing-check-out-this-camelbak-lifehacker-1844704701>
 
 啊，夏天。没有什么比在热天喝一杯冷饮更好的了。*购买这款* [*Lifehacker 驼鹿酒不倒翁*](https://www.kqzyfj.com/ao104mu2-u1HQLLNKRJHJMIRQINN) 真是太好了。这个微妙而复杂的不倒翁就像文章建议的一样经典——一个真正的服务新闻，知道你的饮料可以升级。
 

@@ -1,6 +1,6 @@
 # 做这件事，而不是总是说“对不起”
 
-> 原文:[https://life hacker . com/do-this-not-say-sorry-all-the-time-1834035312](https://lifehacker.com/do-this-instead-of-saying-sorry-all-the-time-1834035312)
+> 原文：<https://lifehacker.com/do-this-instead-of-saying-sorry-all-the-time-1834035312>
 
 平均每天，我可能会对至少二十个人说“对不起”。很抱歉我决定和你同时下楼，很抱歉你忘了给我发邮件，现在这份报告迟了，很抱歉发生了另一件完全超出我控制的事情，现在计划已经改变了。
 

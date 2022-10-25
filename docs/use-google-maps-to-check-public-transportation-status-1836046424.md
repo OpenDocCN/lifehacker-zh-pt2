@@ -1,6 +1,6 @@
 # 使用谷歌地图查看公共交通状况
 
-> 原文:[https://life hacker . com/use-Google-maps-to-check-public-transportation-status-1836046424](https://lifehacker.com/use-google-maps-to-check-public-transportation-status-1836046424)
+> 原文：<https://lifehacker.com/use-google-maps-to-check-public-transportation-status-1836046424>
 
 我们很多人依赖公共交通，但有时你当地的交通系统一点也不可靠。我们这些使用它上下班的人已经习惯了挤在公交车和地铁车厢里，但有时乘客太多，你无法上车——或者更糟的是，你的公交车从你身边疾驰而过，因为它无法容纳更多的人。其他时候，由于交通事故、建筑或机械问题造成的延误会让你的通勤慢得近乎爬行。
 

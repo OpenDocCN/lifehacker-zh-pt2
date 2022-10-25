@@ -1,6 +1,6 @@
 # 什么可能导致这种疾病[更新]
 
-> 原文:[https://life hacker . com/what-may-be-cause-the-vaping-disease-1837929828](https://lifehacker.com/what-might-be-causing-the-vaping-illness-1837929828)
+> 原文：<https://lifehacker.com/what-might-be-causing-the-vaping-illness-1837929828>
 
 超过 450 人，其中许多是十几岁的青少年，患上了呼吸道疾病，这似乎与 vaping 有关。六个人已经死了。最近， [《华盛顿邮报》报道称，卫生官员正在调查大麻样本中的一种特殊化学物质:醋酸维生素 E。](https://www.washingtonpost.com/health/2019/09/05/contaminant-found-vaping-products-linked-deadly-lung-illnesses-state-federal-labs-show/?arc404=true)
 

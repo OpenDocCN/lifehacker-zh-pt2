@@ -1,6 +1,6 @@
 # 如何在谷歌上找到“绿野仙踪”红宝石拖鞋复活节彩蛋
 
-> 原文:[https://life hacker . com/how-to-find-the-wizard-of-oz-ruby-slides-Easter-egg-o-1837540217](https://lifehacker.com/how-to-find-the-wizard-of-oz-ruby-slippers-easter-egg-o-1837540217)
+> 原文：<https://lifehacker.com/how-to-find-the-wizard-of-oz-ruby-slippers-easter-egg-o-1837540217>
 
 《绿野仙踪》80 周年纪念日是周日。为了庆祝，谷歌在谷歌搜索中添加了一个有趣的复活节彩蛋，它会在龙卷风中把你卷起来，送你去奥兹国。
 

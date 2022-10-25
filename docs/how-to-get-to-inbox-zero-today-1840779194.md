@@ -1,6 +1,6 @@
 # 今天如何到达零收件箱
 
-> 原文:[https://life hacker . com/how-to-get-to-inbox-zero-today-1840779194](https://lifehacker.com/how-to-get-to-inbox-zero-today-1840779194)
+> 原文：<https://lifehacker.com/how-to-get-to-inbox-zero-today-1840779194>
 
 从你的许多电子设备中抽出一些时间可以提供一个非常需要的重置。但是有时候回来会比根本没有休息更糟糕。特别是，我说的是你的收件箱。
 

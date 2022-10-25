@@ -1,6 +1,6 @@
 # 在这个网飞的复制品上观看经典的公共领域电影
 
-> 原文:[https://life hacker . com/watch-classic-public-domain-movies-on-this-网飞-clon-1842709466](https://lifehacker.com/watch-classic-public-domain-movies-on-this-netflix-clon-1842709466)
+> 原文：<https://lifehacker.com/watch-classic-public-domain-movies-on-this-netflix-clon-1842709466>
 
 我喜欢良好的社区努力，并给予元过滤用户所有可以给予的“支持”，他们花时间浏览公共领域电影的列表，并设计了一个网飞克隆来呈现它们。
 

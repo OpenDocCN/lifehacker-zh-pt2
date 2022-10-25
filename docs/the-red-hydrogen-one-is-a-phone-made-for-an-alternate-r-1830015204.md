@@ -1,6 +1,6 @@
 # 红氢手机是为另一个现实制造的手机
 
-> 原文:[https://gizmodo . com/the-red-hydrogen-one-a-phone-made-for-a-alternate-r-1830015204](https://gizmodo.com/the-red-hydrogen-one-is-a-phone-made-for-an-alternate-r-1830015204)
+> 原文：<https://gizmodo.com/the-red-hydrogen-one-is-a-phone-made-for-an-alternate-r-1830015204>
 
 吉姆·詹纳德是个有趣的家伙。在开始销售摩托车零件的单人生意后，他决定转向护目镜和眼镜。一晃 25 年过去了，奥克利已经成为世界上最大的太阳镜品牌之一。2007 年，在以 21 亿美元出售 Oakley 后，Jannard 转向了他的另一家公司，同年，Red 推出了第一台 4K [影院级数码相机](https://www.red.com/shot-on-red) 。从任何角度来看，这两家公司都是非常成功的企业，所以对于他的第三个支点，Jannard 认为他会把目光放得更高，制造一款与市场上任何其他产品都不同的智能手机。但这一次，我认为吉姆可能有点走得太远了，因为红氢 one 不是制造你可能想买的东西，而是具有雄心勃勃的 3D 显示屏，感觉像是一部从不同维度传送过来的手机。
 

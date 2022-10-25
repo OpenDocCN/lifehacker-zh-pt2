@@ -1,6 +1,6 @@
 # 如何与你不同意的人交谈，社会心理学家乔纳森·海特
 
-> 原文:[https://life hacker . com/how-to-talk-to-people-you-not-agree-with-social-1830546943](https://lifehacker.com/how-to-talk-to-people-you-don-t-agree-with-with-social-1830546943)
+> 原文：<https://lifehacker.com/how-to-talk-to-people-you-don-t-agree-with-with-social-1830546943>
 
 快到感恩节了，这意味着我们中的许多人会发现自己和家人在一起，其中一些人可能会对一些话题有很大的不同意见，比如蔓越莓酱应该是自制的还是罐装的，以及谁应该成为总统。在事情变得过于激烈之前，我们建议听听这一集。社会心理学家 [Jonathan Haidt](https://twitter.com/JonHaidt) 将解释为什么接受不同的观点是有价值的，博客作者兼企业家 [Anil Dash](https://anildash.com/) 将告诉我们，尽管存在差异，我们应该如何对待彼此。另外，作家兼理论家安德拉·美狄亚给了我们五个步骤来化解感恩节的争斗。
 

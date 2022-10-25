@@ -1,6 +1,6 @@
 # 教你的孩子更多“悲伤”和“疯狂”的词语
 
-> 原文:[https://life hacker . com/teach-your-kid-more-sad-and-mad-words-1835579884](https://lifehacker.com/teach-your-kid-more-sad-and-mad-words-1835579884)
+> 原文：<https://lifehacker.com/teach-your-kid-more-sad-and-mad-words-1835579884>
 
 作为成年人，我们经常告诉明显不安的孩子“使用你的语言”，但如果他们没有足够的语言可供选择呢？
 

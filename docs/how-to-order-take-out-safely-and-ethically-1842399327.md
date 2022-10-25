@@ -1,6 +1,6 @@
 # 如何安全、道德地点外卖
 
-> 原文:[https://life hacker . com/how-to-order-take-out-safety-and-ethically-1842399327](https://lifehacker.com/how-to-order-take-out-safely-and-ethically-1842399327)
+> 原文：<https://lifehacker.com/how-to-order-take-out-safely-and-ethically-1842399327>
 
 无论他们是自愿这样做，还是因为国家的命令，全国各地的餐馆都在关闭餐厅，转向外卖或外卖，这引发了人们对在疫情期间请别人去取食物并带给你的安全性和道德的担忧。没有完美的解决方案，但是你可以采取一些措施来确保尽可能安全和道德地饮食。
 

@@ -1,6 +1,6 @@
 # 使用像面包屑一样的法式炸洋葱做更好的肉丸
 
-> 原文:[https://life hacker . com/use-French-油炸洋葱状面包屑-for-better-me-1840243830](https://lifehacker.com/use-french-fried-onions-like-bread-crumbs-for-better-me-1840243830)
+> 原文：<https://lifehacker.com/use-french-fried-onions-like-bread-crumbs-for-better-me-1840243830>
 
 面包屑很好——高贵，甚至。没有它们，肉丸将会是密集的小圆球，而肉面包将会是一块块的肉。不会有酥脆的裹着面包屑的煎鱼，也不会有烤鸡肉。我不想生活在一个没有面包屑的世界，但这并不意味着我不想有时改变它，用法式炸洋葱——你可以在 [*那*砂锅](https://lifehacker.com/how-to-make-the-creamiest-vegan-green-bean-casserole-1840029669) 上找到的那种——来代替它们。
 

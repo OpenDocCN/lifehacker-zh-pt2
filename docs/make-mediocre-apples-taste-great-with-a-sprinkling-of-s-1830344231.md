@@ -1,6 +1,6 @@
 # 撒一点盐，让平庸的苹果变得美味
 
-> 原文:[https://life hacker . com/make-medium-apple-taste-great-with-spray-of-s-1830344231](https://lifehacker.com/make-mediocre-apples-taste-great-with-a-sprinkling-of-s-1830344231)
+> 原文：<https://lifehacker.com/make-mediocre-apples-taste-great-with-a-sprinkling-of-s-1830344231>
 
 你现在可以买到一些非常好的苹果，但有时即使是最漂亮、看起来最有希望的秋季水果也可能有点太酸或有点太淡。毫无疑问，这非常令人失望，但是不要让它毁了你的一天。你的苹果只需要撒一点盐。
 

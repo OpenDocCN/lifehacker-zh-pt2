@@ -1,6 +1,6 @@
 # 如何在安卓和苹果 iOS 上启用 Chrome 的黑暗模式
 
-> 原文:[https://life hacker . com/how-to-enable-chromes-new-dark-mode-on-Android-1834339091](https://lifehacker.com/how-to-enable-chromes-new-dark-mode-on-android-1834339091)
+> 原文：<https://lifehacker.com/how-to-enable-chromes-new-dark-mode-on-android-1834339091>
 
 黑暗模式可以让我们更舒适地盯着手机看，尤其是在晚上——它对你的设备的电池寿命 也有好处。因此，去年世界上最流行的网络浏览器谷歌 Chrome 的黑暗模式功能的到来，是一个受欢迎的网站(也许是字面上的意思)。Android 和 iOS 都可以使用 Chrome 的黑暗模式。以下是如何在您的设备上启用它。
 

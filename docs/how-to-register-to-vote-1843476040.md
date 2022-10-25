@@ -1,6 +1,6 @@
 # 如何登记投票
 
-> 原文:[https://lifehacker.com/how-to-register-to-vote-1843476040](https://lifehacker.com/how-to-register-to-vote-1843476040)
+> 原文：<https://lifehacker.com/how-to-register-to-vote-1843476040>
 
 如果你还没有登记投票，现在绝对是时候了。是的，11 月份将有一场大型的总统选举，但是在你的地方选举中有机会每年至少投票一次，你也不应该错过这些机会。但是，一个人到底该如何登记投票呢？好消息:它实际上比大多数政府相关的表格要快得多，也容易得多(我们看的是你，税)。下面是你需要做的:
 

@@ -1,6 +1,6 @@
 # 弄清楚你所在的医院感染率是否很高
 
-> 原文:[https://life hacker . com/check-if-your-hospital-a-high-rate-1833060747](https://lifehacker.com/check-if-your-hospital-has-a-high-rate-of-infection-1833060747)
+> 原文：<https://lifehacker.com/check-if-your-hospital-has-a-high-rate-of-infection-1833060747>
 
 为了鼓励医院提供更好的护理，联邦政府惩罚了那些感染率、再入院率和病人受伤率最高的机构。在患者保护与平价医疗法案治下，政府根据惩罚的类型，将支付给这些医院的每个病人的医疗保险费用减少了 3%。
 

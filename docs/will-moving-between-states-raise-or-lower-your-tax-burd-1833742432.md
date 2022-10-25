@@ -1,6 +1,6 @@
 # 在各州之间迁移会增加还是减少你的税收负担？
 
-> 原文:[https://life hacker . com/will-moving-inter-States-raise-or-low-your-tax-burd-1833742432](https://lifehacker.com/will-moving-between-states-raise-or-lower-your-tax-burd-1833742432)
+> 原文：<https://lifehacker.com/will-moving-between-states-raise-or-lower-your-tax-burd-1833742432>
 
 2017 年末，我从华盛顿州搬到了爱荷华州。移动本身 [花费 me $ 5929.10](https://www.vox.com/the-goods/2019/3/26/18255131/moving-midwest-cedar-rapids)。
 

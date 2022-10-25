@@ -1,6 +1,6 @@
 # 在游戏中何时放弃并再试一次
 
-> 原文:[https://kotaku . com/when-to-give-and-try-in-a-game-1843447355](https://kotaku.com/when-to-give-up-and-try-again-in-a-game-1843447355)
+> 原文：<https://kotaku.com/when-to-give-up-and-try-again-in-a-game-1843447355>
 
 放弃是人类状态的一部分，但更多时候我们的自然冲动是在面对不可克服的逆境时勇往直前。但是，任何在现实世界中生活了大约 0.6 秒的人都会告诉你，事情并不总是顺利的。
 

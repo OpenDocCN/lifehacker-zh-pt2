@@ -1,6 +1,6 @@
 # 如何阻止父母在网上分享假新闻
 
-> 原文:[https://life hacker . com/how-to-stop-your-parents-from-sharing-fake-news-online-1836667313](https://lifehacker.com/how-to-stop-your-parents-from-sharing-fake-news-online-1836667313)
+> 原文：<https://lifehacker.com/how-to-stop-your-parents-from-sharing-fake-news-online-1836667313>
 
 本周，川普总统提出了几项不实指控，其中一项是关于向 [波多黎各](https://lifehacker.com/why-you-need-to-know-about-puerto-ricos-protests-and-go-1836638939) 提供 920 亿美元的飓风玛利亚救援工作，另一项是关于他在昨天的司法听证会上被罗伯特·穆勒假定 [免除](https://www.apnews.com/130932b573664ea5a4d186f752bb8d50https://www.apnews.com/130932b573664ea5a4d186f752bb8d50)的指控。
 

@@ -1,6 +1,6 @@
 # 预订不止一次中途停留的旅程之前需要了解什么
 
-> 原文:[https://life hacker . com/what-to-know-before-booking-a-than-one-l-1839921303](https://lifehacker.com/what-to-know-before-booking-a-trip-with-more-than-one-l-1839921303)
+> 原文：<https://lifehacker.com/what-to-know-before-booking-a-trip-with-more-than-one-l-1839921303>
 
 如果你曾经在恐慌中最后一刻搜索航班，不知何故偶然发现了一笔好交易，几乎总会有一个陷阱。有可能的是，这个问题可能涉及两次(或更多次)中途停留和三次飞行，只是为了让你在几个小时之外到达最终目的地。
 

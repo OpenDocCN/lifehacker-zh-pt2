@@ -1,6 +1,6 @@
 # 看看你即将乘坐的航班是否因为冠状病毒而变得更便宜了
 
-> 原文:[https://life hacker . com/check-to-see-if-you ' s coming-flight-now-due-1842194295](https://lifehacker.com/check-to-see-if-your-upcoming-flight-is-cheaper-now-due-1842194295)
+> 原文：<https://lifehacker.com/check-to-see-if-your-upcoming-flight-is-cheaper-now-due-1842194295>
 
 如果你的航班即将起飞，那么你可能会考虑重新预订。鉴于冠状病毒的担忧，飞机显然不是现在最理想的地方。虽然重新预订您的航班可能会让您安心，但它也可以帮助您节省一些现金。
 

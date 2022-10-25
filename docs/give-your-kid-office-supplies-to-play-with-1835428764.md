@@ -1,6 +1,6 @@
 # 给你的孩子玩办公用品
 
-> 原文:[https://life hacker . com/give-your-kid-office-supplies-to-play-with-1835428764](https://lifehacker.com/give-your-kid-office-supplies-to-play-with-1835428764)
+> 原文：<https://lifehacker.com/give-your-kid-office-supplies-to-play-with-1835428764>
 
 我丈夫从事蒸汽加工设备的工作，经常把这些大的产品目录带回家。我们家只有一个人对里面的东西感兴趣(那个人就是他)——直到我们有了孩子。我们的女儿每当看到“爸爸的工作书籍”时都会很兴奋，要求拥有他不再需要的书籍，这样她就可以圈出各种物品，就像她是一个真正的买家一样。
 

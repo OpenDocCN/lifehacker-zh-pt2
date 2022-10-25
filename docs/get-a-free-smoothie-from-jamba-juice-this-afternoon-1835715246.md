@@ -1,6 +1,6 @@
 # 今天下午从 Jamba Juice 获得免费的思慕雪
 
-> 原文:[https://life hacker . com/get-a-free-smoothie-from-jamba-juice-this-午-1835715246](https://lifehacker.com/get-a-free-smoothie-from-jamba-juice-this-afternoon-1835715246)
+> 原文：<https://lifehacker.com/get-a-free-smoothie-from-jamba-juice-this-afternoon-1835715246>
 
 今天正式成为夏天的第一天。为了庆祝这一天，也正好是“国家冰沙日”，Jamba Juice 今天下午 2 点到 5 点向顾客提供免费的小冰沙。
 

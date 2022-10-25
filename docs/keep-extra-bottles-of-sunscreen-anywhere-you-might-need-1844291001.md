@@ -1,6 +1,6 @@
 # 在任何你可能需要的地方多放几瓶防晒霜
 
-> 原文:[https://life hacker . com/keep-extra-bottles-of-sunscreen-anywhere-you may-need-1844291001](https://lifehacker.com/keep-extra-bottles-of-sunscreen-anywhere-you-might-need-1844291001)
+> 原文：<https://lifehacker.com/keep-extra-bottles-of-sunscreen-anywhere-you-might-need-1844291001>
 
 我们很多人几乎没有像应该涂防晒霜 那样经常涂防晒霜 [。有时这是因为我们没有足够经常地重新涂抹(你应该每两个小时在阳光下多涂一点，如果你在游泳，应该多涂一点)或者我们没有首先涂抹我们真正需要的量(如果你从头到脚都是沙滩装，你应该使用超过一盎司)。](https://lifehacker.com/all-your-sunscreen-questions-answered-1827579794)
 

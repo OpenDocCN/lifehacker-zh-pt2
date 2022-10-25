@@ -1,6 +1,6 @@
 # 总是检查你的自动账单支付
 
-> 原文:[https://life hacker . com/always-check-your-automatic-bill-payments-1835690747](https://lifehacker.com/always-check-your-automatic-bill-payments-1835690747)
+> 原文：<https://lifehacker.com/always-check-your-automatic-bill-payments-1835690747>
 
 财务自动化可以解决一切问题，对吗？事实证明，只有当你还在定期监控你的钱的时候。华尔街日报就人们浪费金钱的最大方式采访了一些理财专家。我们不会谈论他们说了什么，因为这个 Lifehacker 垂直是一个无羞耻区。
 

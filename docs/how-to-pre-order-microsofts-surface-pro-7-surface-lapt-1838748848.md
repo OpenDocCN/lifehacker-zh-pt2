@@ -1,6 +1,6 @@
 # 如何预购微软的 Surface Pro 7、Surface Laptop 3 和 Surface Pro X
 
-> 原文:[https://life hacker . com/how-to-pre-order-Microsoft-surface-pro-7-surface-lapt-1838748848](https://lifehacker.com/how-to-pre-order-microsofts-surface-pro-7-surface-lapt-1838748848)
+> 原文：<https://lifehacker.com/how-to-pre-order-microsofts-surface-pro-7-surface-lapt-1838748848>
 
 微软将在未来几周推出一系列新的 Surface 产品:Surface Pro X、Surface Pro 7 和新的 Surface Laptop 3。每种设备都有多种型号，规格、价格和发布日期各不相同，但现在都可以预订。
 

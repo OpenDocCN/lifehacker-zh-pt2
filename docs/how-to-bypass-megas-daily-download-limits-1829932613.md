@@ -1,6 +1,6 @@
 # 如何绕过 Mega 的每日下载限制
 
-> 原文:[https://life hacker . com/how-to-bypass-megas-daily-download-limits-1829932613](https://lifehacker.com/how-to-bypass-megas-daily-download-limits-1829932613)
+> 原文：<https://lifehacker.com/how-to-bypass-megas-daily-download-limits-1829932613>
 
 文件存储服务 [Mega](https://mega.co.nz/) 通常会在免费用户下载了大约 5GB 的文件后将其切断，迫使你等待数小时才能恢复正在传输的文件。感觉现在 Mega 更大方了(前几天撞墙下载了 18.75GB 的数据)，但还是有*某种*的下载额度。如果你想不等待就过去，你的武器库中只剩下一个窍门了。
 

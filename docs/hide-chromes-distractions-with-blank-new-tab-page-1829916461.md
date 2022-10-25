@@ -1,6 +1,6 @@
 # 用“空白新标签页”隐藏 Chrome 的干扰
 
-> 原文:[https://life hacker . com/hide-chromes-distraction-with-blank-new-tab-page-1829916461](https://lifehacker.com/hide-chromes-distractions-with-blank-new-tab-page-1829916461)
+> 原文：<https://lifehacker.com/hide-chromes-distractions-with-blank-new-tab-page-1829916461>
 
 当我努力工作时，每一件小事都会让我分心。谷歌自动完成；T1】我的收件箱 T3】；甚至是我打开新标签页时 Chrome 加载的页面。嗯，有用的页面 Chrome *曾经*加载。因为在过去的几年里，我运行了 Chrome 扩展 [空白的新标签页](https://chrome.google.com/webstore/detail/blank-new-tab-page/jaadjnlkjnhohljficgoddcjmndjfdmi) 。当我在 Chrome 中打开一个新的标签页或窗口时，我得到了一个真正的空白页。没有什么能让我分心。 
 

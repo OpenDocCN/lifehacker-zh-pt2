@@ -1,6 +1,6 @@
 # 是伸展肩膀的时候了
 
-> 原文:[https://life hacker . com/its-time-for-shoulder-stretches-1842528066](https://lifehacker.com/its-time-for-shoulder-stretches-1842528066)
+> 原文：<https://lifehacker.com/its-time-for-shoulder-stretches-1842528066>
 
 我很难坐下来写这篇文章，因为当新冠肺炎的报道围绕着我时，我在想:谁有时间做肩膀伸展运动？但是话说回来，也许这是我们最需要伸展肩膀的时候。你在伏案工作吗？我是。
 

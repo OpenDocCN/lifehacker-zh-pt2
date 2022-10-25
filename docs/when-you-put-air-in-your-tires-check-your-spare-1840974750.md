@@ -1,6 +1,6 @@
 # 当你给轮胎打气时，检查一下你的备胎
 
-> 原文:[https://life hacker . com/when-you-put-air-in-your-tires-check-your-spare-1840974750](https://lifehacker.com/when-you-put-air-in-your-tires-check-your-spare-1840974750)
+> 原文：<https://lifehacker.com/when-you-put-air-in-your-tires-check-your-spare-1840974750>
 
 如果你有车或者开着车，你可能(希望)会定期检查轮胎气压。轮胎充气不足可能是一个巨大的问题，从引发事故到 [加速轮胎的磨损](https://lifehacker.com/use-your-tire-wear-to-improve-your-driving-5873277) ，到浪费汽油。换句话说，你要让它们保持适当的膨胀。当你把胎压计拿出来的时候，你也应该检查一下备用轮胎的压力。
 

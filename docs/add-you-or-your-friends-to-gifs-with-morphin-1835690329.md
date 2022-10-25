@@ -1,6 +1,6 @@
 # 使用 Android 的“Morphin”应用程序将人物添加到 gif 中
 
-> 原文:[https://life hacker . com/add-you-or-your-friends-to-gifs-with-morphin-1835690329](https://lifehacker.com/add-you-or-your-friends-to-gifs-with-morphin-1835690329)
+> 原文：<https://lifehacker.com/add-you-or-your-friends-to-gifs-with-morphin-1835690329>
 
 如果你想在下一个大的迷因上叠加你的脸(或你朋友的脸)，你有几个选择。你可以去*南方公园*治疗，在那里你把一个你自己的超大头像放在 GIF 中任何你想捣乱的人的头上。 [那就简单了](http://www.gifjifapp.com/#/ph) ，虽然看起来有点简陋。
 

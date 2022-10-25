@@ -1,6 +1,6 @@
 # 为什么民主党没有在网络中立上做更多的宣传
 
-> 原文:[https://gizmodo . com/why-Democrats-not-campaign-more-on-net-neutral-1830253760](https://gizmodo.com/why-democrats-didnt-campaign-more-on-net-neutrality-1830253760)
+> 原文：<https://gizmodo.com/why-democrats-didnt-campaign-more-on-net-neutrality-1830253760>
 
 随着美国人周二排队投票，一些网络中立的最直言不讳的捍卫者仍然相信，这个问题将成为 2018 年中期选举的决定性因素。然而，私下里，一些民主党人表示怀疑围绕“网络”的斗争是重新控制国会的关键——尽管民调一直显示，大多数美国人赞成控制美国电话电报公司和康卡斯特等提供商对在线服务的控制。
 

@@ -1,6 +1,6 @@
 # 如何在飞机上睡着
 
-> 原文:[https://life hacker . com/how-to-launch-on-a-plane-1836357483](https://lifehacker.com/how-to-fall-asleep-on-a-plane-1836357483)
+> 原文：<https://lifehacker.com/how-to-fall-asleep-on-a-plane-1836357483>
 
 无论你是商务飞行、休闲飞行还是公务飞行，你都不会介意多睡一会儿。旅行会让你脱离你通常的环境和时间表，并且经常意味着额外的清晨或深夜。如果你红眼了，这会严重影响你的睡眠时间表。鉴于 [即使是短暂的睡眠](https://lifehacker.com/how-long-to-nap-for-the-biggest-brain-benefits-1251546669) 也能帮助你更加专注、机敏和充分休息，我们向睡眠和旅游行业的专家寻求在飞机上睡觉的建议。以下是我们的最爱。
 

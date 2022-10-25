@@ -1,6 +1,6 @@
 # 永远用信用卡支付租车费用
 
-> 原文:[https://life hacker . com/always-pay-for-a-rental-car-with-a-credit-car-1836736562](https://lifehacker.com/always-pay-for-a-rental-car-with-a-credit-card-1836736562)
+> 原文：<https://lifehacker.com/always-pay-for-a-rental-car-with-a-credit-card-1836736562>
 
 即使你很少租车，你也可能知道这样做的通常限制:你需要有效的驾照，你必须至少 25 岁，你需要一张信用卡。但第三条规则正在改变，至少在某些地方是这样。
 

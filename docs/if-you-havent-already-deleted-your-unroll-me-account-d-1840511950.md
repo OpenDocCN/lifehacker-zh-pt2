@@ -1,6 +1,6 @@
 # 如果你还没有删除你的展开。我的帐户，现在就做
 
-> 原文:[https://life hacker . com/if-you-have-have-have-have-have-have-have-have-have-have-have-have-have-have-have-have-have-have-have-have-have-have-have-have-have-have-have-have-have-have-have-deleted-your-unroll-me-account-d-1840511950](https://lifehacker.com/if-you-havent-already-deleted-your-unroll-me-account-d-1840511950)
+> 原文：<https://lifehacker.com/if-you-havent-already-deleted-your-unroll-me-account-d-1840511950>
 
 早在 2017 年，unroll . me——试图让你退订不想要的电子邮件和时事通讯的第三方服务——因收集用户信息、将其出售给优步，并在未通知用户的情况下保存电子邮件和其他数据的副本而受到批评。
 

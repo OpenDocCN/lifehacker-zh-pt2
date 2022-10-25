@@ -1,6 +1,6 @@
 # 如何让旧的多功能一体电脑快速高效地运行？
 
-> 原文:[https://life hacker . com/how-can-I-keep-a-old-all-in-one-PC-running-fast-and-ef-1839699455](https://lifehacker.com/how-can-i-keep-an-old-all-in-one-pc-running-fast-and-ef-1839699455)
+> 原文：<https://lifehacker.com/how-can-i-keep-an-old-all-in-one-pc-running-fast-and-ef-1839699455>
 
 我总是很高兴在我的收件箱里收到“帮我解决一个技术问题”的信件，最近我收到了不少与 PC 维护有关的信件——可能是由我上个月回答的 [这个技术 911 问题](https://lifehacker.com/how-can-you-keep-your-old-desktop-pc-running-well-1839141116) 引发的。今天我又带来了另一个，它扭转了任何想要升级的人都面临的“如何让旧的东西感觉新鲜”的困境。
 

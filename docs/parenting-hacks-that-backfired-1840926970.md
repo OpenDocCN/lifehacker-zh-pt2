@@ -1,6 +1,6 @@
 # 适得其反的育儿技巧
 
-> 原文:[https://life hacker . com/parenting-hacks-that-back fired-1840926970](https://lifehacker.com/parenting-hacks-that-backfired-1840926970)
+> 原文：<https://lifehacker.com/parenting-hacks-that-backfired-1840926970>
 
 作为一个每天都在积极寻找和撰写育儿技巧的人，我总是在寻找捷径和窍门，让你(和我自己)的生活稍微轻松一点。但并不是所有的黑客都是平等的，对一位家长来说非常有效的黑客对另一位家长来说可能完全是浪费时间。正如他们所说，你的里程可能会有所不同。
 

@@ -1,6 +1,6 @@
 # 如何收看今晚的爱荷华州党团会议报道
 
-> 原文:[https://life hacker . com/how-to-watch-tonights-Iowa-caucus-coverage-1841426789](https://lifehacker.com/how-to-watch-tonights-iowa-caucus-coverage-1841426789)
+> 原文：<https://lifehacker.com/how-to-watch-tonights-iowa-caucus-coverage-1841426789>
 
 今晚在爱荷华州，几十万人将聚集在图书馆、社区中心，甚至是 [酒吧](https://www.youtube.com/watch?v=HE9-ysxU2EE) 辩论并选出他们的民主党总统候选人，作为该州党团会议的一部分。
 

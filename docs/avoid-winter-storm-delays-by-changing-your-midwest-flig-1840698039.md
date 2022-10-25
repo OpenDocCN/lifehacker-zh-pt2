@@ -1,6 +1,6 @@
 # 免费改签您的中西部航班，避免冬季风暴延误
 
-> 原文:[https://life hacker . com/avoid-winter-storm-delays-by-changing-your-midwest-flig-1840698039](https://lifehacker.com/avoid-winter-storm-delays-by-changing-your-midwest-flig-1840698039)
+> 原文：<https://lifehacker.com/avoid-winter-storm-delays-by-changing-your-midwest-flig-1840698039>
 
 一场严重的冬季风暴正向中西部袭来。如果你碰巧在那里或在那里旅行，那么这可能会影响你这个周末的旅行计划。
 

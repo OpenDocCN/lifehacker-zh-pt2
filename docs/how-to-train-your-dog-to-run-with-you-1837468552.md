@@ -1,6 +1,6 @@
 # how to train your dog to run with you 1837468552
 
-> 原文:[https://life hacker . com/how-to-training your-dog-to-run-with-you-1837468552](https://lifehacker.com/how-to-train-your-dog-to-run-with-you-1837468552)
+> 原文：<https://lifehacker.com/how-to-train-your-dog-to-run-with-you-1837468552>
 
 如果你是一个狂热的跑步者和养狗者，把你的四条腿的朋友拴在皮带上一起在人行道上奔跑的想法听起来可能会很有趣。而且可以！此外，这是一种锻炼身体和保持健康的好方法——这很重要，考虑到美国大约 55%的宠物狗都有一点点宠物狗(如果这个 [2019 年对宠物主人和兽医](https://www.usatoday.com/story/news/nation/2019/03/12/pet-obesity-majority-us-cats-and-dogs-obese-overweight/3129342002/) 的调查可信的话)。
 

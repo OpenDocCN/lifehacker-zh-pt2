@@ -1,6 +1,6 @@
 # 我从十年的邻里辣椒烹饪比赛中学到的经验
 
-> 原文:[https://the take out . com/how-to-win-your-neighborhood-Chili-cook off-contest-1832941259](https://thetakeout.com/how-to-win-your-neighborhood-chili-cookoff-contest-1832941259)
+> 原文：<https://thetakeout.com/how-to-win-your-neighborhood-chili-cookoff-contest-1832941259>
 
 我不认为自己是一个争强好胜的人，但我的朋友们可能会要求 [你最大的浴单](https://thetakeout.com/last-call-how-many-towels-do-you-have-1832733229) 擦去笑出的眼泪，如果他们听到我这么说的话。的确，有些事情会让我血压升高，肾上腺素增加，比如名人度假游。我的 [丈夫布莱恩](https://thetakeout.com/recipe-how-to-make-scotch-eggs-1832907217) 和我现在不知何故地拥有一些基于学校或酒吧的琐事锦标赛。每年，我们全家都会为我的朋友利亚的辣椒烹饪大赛而大放异彩。
 

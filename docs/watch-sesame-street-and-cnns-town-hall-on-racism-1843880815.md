@@ -1,6 +1,6 @@
 # 观看芝麻街和 CNN 关于种族主义的市政厅
 
-> 原文:[https://life hacker . com/watch-sesame-street-and-CNN-town-hall-on-racism-1843880815](https://lifehacker.com/watch-sesame-street-and-cnns-town-hall-on-racism-1843880815)
+> 原文：<https://lifehacker.com/watch-sesame-street-and-cnns-town-hall-on-racism-1843880815>
 
 如果你一直在寻找一种方式与你的孩子谈论美国各地正在发生的种族主义和抗议活动，但不知该说些什么，大鸟、Elmo 和其他芝麻街的最爱可以帮到你。CNN 和芝麻街将合作举办另一场市政厅活动——这次是关于反对种族主义。
 

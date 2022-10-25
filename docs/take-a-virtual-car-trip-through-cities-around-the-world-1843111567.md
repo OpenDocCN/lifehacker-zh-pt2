@@ -1,6 +1,6 @@
 # 在世界各地的城市中进行一次虚拟的汽车旅行
 
-> 原文:[https://life hacker . com/take-a-virtual-car-trip-through-city-around-the-world-1843111567](https://lifehacker.com/take-a-virtual-car-trip-through-cities-around-the-world-1843111567)
+> 原文：<https://lifehacker.com/take-a-virtual-car-trip-through-cities-around-the-world-1843111567>
 
 现实是，我们大多数人都是在屏幕后面度过 2020 年的，不管是手机还是笔记本电脑。我们的工作是虚拟的。我们孩子的教育是在线的。甚至 [生日](https://lifehacker.com/tell-us-how-youre-celebrating-special-occasions-right-n-1843108483)[约会](https://lifehacker.com/how-to-have-a-successful-zoom-date-1842885540) 现在都是开机视频聊天的事情。这只能说明我们的爱好也是如此——当然，也是必然的，旅行。我们都被驱使去寻找有趣的旅行方式，而不必真正离开家。由于公路旅行不太可取，航班停飞，你的屏幕已经成为 2020 年疫情最热门的目的地。
 

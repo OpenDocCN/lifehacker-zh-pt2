@@ -1,6 +1,6 @@
 # 疾控中心关于重新开放学校的“指导方针”实际上说了什么
 
-> 原文:[https://life hacker . com/what-the-CDCs-guidelines-for-restore-schools-actually-1843607157](https://lifehacker.com/what-the-cdcs-guidelines-for-reopening-schools-actually-1843607157)
+> 原文：<https://lifehacker.com/what-the-cdcs-guidelines-for-reopening-schools-actually-1843607157>
 
 当我们以虚拟毕业和驾车庆祝结束这个学年时，各地的家长都在问:学校在秋天会是什么样子？本周， [疾病控制和预防中心](https://www.cdc.gov/coronavirus/2019-ncov/community/schools-childcare/schools.html?fbclid=IwAR232_oGZWCRYLliuI9C2ICR-X_f0seQdWnW4XI8-7UIbr6wx0-0OGN40YE) (CDC)提出了一份建议清单，学校领导在疫情开学时应该考虑——但它的建议读起来更像是“尽力而为”，而不是“这是你*要做的事情*
 

@@ -1,6 +1,6 @@
 # 如果你遇到安卓电池问题，请更新网飞应用
 
-> 原文:[https://life hacker . com/update-the-网飞-app-if-you-having-Android-battery-1834867972](https://lifehacker.com/update-the-netflix-app-if-youre-having-android-battery-1834867972)
+> 原文：<https://lifehacker.com/update-the-netflix-app-if-youre-having-android-battery-1834867972>
 
 如果你的安卓设备在过去几周电池续航时间不佳，罪魁祸首可能是网飞。
 

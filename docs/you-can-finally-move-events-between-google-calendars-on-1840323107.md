@@ -1,6 +1,6 @@
 # 你终于可以在 Android 上的谷歌日历之间移动事件了
 
-> 原文:[https://life hacker . com/you-can-finally-move-events-between-Google-calendars-on-1840323107](https://lifehacker.com/you-can-finally-move-events-between-google-calendars-on-1840323107)
+> 原文：<https://lifehacker.com/you-can-finally-move-events-between-google-calendars-on-1840323107>
 
 尽管我很想有一个单一的谷歌日历来跟踪我所有的东西，但我没有。我打赌你也不知道。从工作，到排练，到分享室友的日历，到你志愿服务的非营利组织的日历，我们都必须在我们复杂的生活中管理许多事件。谷歌通过允许你(最终)在不同的谷歌日历之间移动事件，让安卓上的 T2 变得稍微容易了一些。
 

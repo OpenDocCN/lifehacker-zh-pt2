@@ -1,6 +1,6 @@
 # 扔掉孩子多余玩具的最好方法
 
-> 原文:[https://life hacker . com/the-best-way to-get-out-of-your-kids-excess-toys-1839469003](https://lifehacker.com/the-best-way-to-get-rid-of-your-kids-excess-toys-1839469003)
+> 原文：<https://lifehacker.com/the-best-way-to-get-rid-of-your-kids-excess-toys-1839469003>
 
 有很多理由去暴跳如雷，摆脱你家所有的塑料玩具胡说八道。你厌倦了踩硬尖的东西。你知道你的孩子实际上只玩他们 20%的玩具。你终于用尽了每一寸空间。
 

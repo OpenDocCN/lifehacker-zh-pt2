@@ -1,6 +1,6 @@
 # 从头重新安装 Windows 的终极指南
 
-> 原文:[https://life hacker . com/the-ultimate-guide-to-重装 windows-从头开始-1832897572](https://lifehacker.com/the-ultimate-guide-to-reinstalling-windows-from-scratch-1832897572)
+> 原文：<https://lifehacker.com/the-ultimate-guide-to-reinstalling-windows-from-scratch-1832897572>
 
 在每个 Windows 用户的生活中，都会有一段时间感觉速度变慢。也许你一直在安装和卸载大量的应用程序，或者你一直在摆弄模糊的 Windows 设置(或者更糟，注册表)。也许你甚至像我一样决定过狂野的生活，并注册了微软的 Windows Insider 程序，该程序最近导致我的桌面系统嘎然而止。*呜呜。*
 

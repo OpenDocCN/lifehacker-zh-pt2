@@ -1,6 +1,6 @@
 # 你可以用各种方法让脸书的蠢人闭嘴
 
-> 原文:[https://life hacker . com/all-the-different-the-way-you-can-silent-pisty-people-on-1839415313](https://lifehacker.com/all-the-different-ways-you-can-silence-stupid-people-on-1839415313)
+> 原文：<https://lifehacker.com/all-the-different-ways-you-can-silence-stupid-people-on-1839415313>
 
 当有人在脸书问题上惹恼了你，合乎逻辑的、自然的反应是扔出核武器——阻止他们，这样你就再也不用处理他们在社交网络上说的任何事情了。这是一种令人耳目一新的感觉，但对于轻微的违规行为来说，这也是一种小小的极端。
 

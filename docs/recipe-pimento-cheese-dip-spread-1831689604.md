@@ -1,6 +1,6 @@
 # 我对甜椒奶酪的热爱要归功于一个叫莱克的人
 
-> 原文:[https://the take out . com/recipe-pimento-cheese-dip-spread-1831689604](https://thetakeout.com/recipe-pimento-cheese-dip-spread-1831689604)
+> 原文：<https://thetakeout.com/recipe-pimento-cheese-dip-spread-1831689604>
 
 *欢迎来到* [***奶酪周***](https://thetakeout.com/tag/cheese-week)*外卖的*为期一周的奶酪好评。** 
 

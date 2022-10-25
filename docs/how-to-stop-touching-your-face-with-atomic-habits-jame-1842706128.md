@@ -1,6 +1,6 @@
 # 如何停止触摸你的脸，与“原子习惯”
 
-> 原文:[https://life hacker . com/how-to-stop-touching-your face with-atomic-habits-Jame-1842706128](https://lifehacker.com/how-to-stop-touching-your-face-with-atomic-habits-jame-1842706128)
+> 原文：<https://lifehacker.com/how-to-stop-touching-your-face-with-atomic-habits-jame-1842706128>
 
 《纽约时报》畅销书作家 James Clear 本周加入了我们的升级活动，帮助我们在这个恐慌时期养成重要的新习惯——从基础日常习惯到最终抛弃在疫情期间让我们不安全的习惯。詹姆斯是 2018 年《原子习惯:建立好习惯的简单方法》一书的作者。T15】
 

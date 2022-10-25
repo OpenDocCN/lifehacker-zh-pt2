@@ -1,6 +1,6 @@
 # 感恩节什么时候开门和关门
 
-> 原文:[https://life hacker . com/whats-open-and-closed-for-thanksgiving-1830610528](https://lifehacker.com/whats-open-and-closed-for-thanksgiving-1830610528)
+> 原文：<https://lifehacker.com/whats-open-and-closed-for-thanksgiving-1830610528>
 
 对许多人来说，感恩节是充满食物和电视的一天。如果你一天没有计划，或者即使有，那些计划只涉及午餐或晚餐，那么你可能会发现自己想知道这一天可能是开放的。
 

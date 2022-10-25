@@ -1,6 +1,6 @@
 # 如何为残疾儿童找到完美的万圣节服装
 
-> 原文:[https://life hacker . com/how-to-find-the-perfect-Halloween-costume-for-kids-with-1839053475](https://lifehacker.com/how-to-find-the-perfect-halloween-costume-for-kids-with-1839053475)
+> 原文：<https://lifehacker.com/how-to-find-the-perfect-halloween-costume-for-kids-with-1839053475>
 
 对于有残疾、自闭症谱系障碍或感官问题的孩子的父母来说，万圣节可能不仅会遇到噪音、特效和不寻常的灯光等常见障碍，还会面临寻找一套实用、舒适和有趣的服装的真正挑战。但是现在有了比以往更多的选择和灵感，我们收集了一些我们最喜欢的。
 

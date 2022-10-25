@@ -1,6 +1,6 @@
 # 为什么蚊子这么喜欢你
 
-> 原文:[https://life hacker . com/why-蚊子喜欢你-1835875675](https://lifehacker.com/why-mosquitoes-like-you-so-much-1835875675)
+> 原文：<https://lifehacker.com/why-mosquitoes-like-you-so-much-1835875675>
 
 蚊子爱我们中的一些人胜过其他人。我想我是更有食欲的人类之一；如果我不喷杀虫剂，我会被咬很多口，当我怀孕的时候，我会被咬成吨。事实证明有几个原因。
 

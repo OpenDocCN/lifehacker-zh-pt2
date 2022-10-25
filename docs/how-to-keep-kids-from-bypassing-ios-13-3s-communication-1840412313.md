@@ -1,6 +1,6 @@
 # 如何让孩子绕过 iOS 13.3 的交流限制
 
-> 原文:[https://life hacker . com/how-to-keep-kids-from-bypassing-IOs-13-3s-communication-1840412313](https://lifehacker.com/how-to-keep-kids-from-bypassing-ios-13-3s-communication-1840412313)
+> 原文：<https://lifehacker.com/how-to-keep-kids-from-bypassing-ios-13-3s-communication-1840412313>
 
 当我们对苹果新的通信限制感到兴奋时，允许你限制你的孩子可以与谁(以及何时)交谈，我们没有意识到苹果留下了一个很大的漏洞，让你狡猾的孩子可以非常容易地绕过这些限制。
 

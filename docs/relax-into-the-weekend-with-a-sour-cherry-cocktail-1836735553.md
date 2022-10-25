@@ -1,6 +1,6 @@
 # 喝一杯酸樱桃鸡尾酒放松到周末
 
-> 原文:[https://life hacker . com/relax-into the weekend with a acid-cherry-cocktail-1836735553](https://lifehacker.com/relax-into-the-weekend-with-a-sour-cherry-cocktail-1836735553)
+> 原文：<https://lifehacker.com/relax-into-the-weekend-with-a-sour-cherry-cocktail-1836735553>
 
 酒精并不以促进睡眠著称。事实上，没有什么比一场高浓度鸡尾酒游行更能确保我度过一个糟糕、不安的夜晚了。但是一点点酒精——scoach——可以使头脑冷静，放松肌肉。再配上富含褪黑激素的酸樱桃汁 (也许还有一两杯水)，你就有了一杯帮助你放松的鸡尾酒。
 

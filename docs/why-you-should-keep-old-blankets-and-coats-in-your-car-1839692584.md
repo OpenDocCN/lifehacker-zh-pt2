@@ -1,6 +1,6 @@
 # 为什么你应该把旧毯子和外套放在车里
 
-> 原文:[https://life hacker . com/why-you-should-keep-old-blanks and-coats-in-your car-1839692584](https://lifehacker.com/why-you-should-keep-old-blankets-and-coats-in-your-car-1839692584)
+> 原文：<https://lifehacker.com/why-you-should-keep-old-blankets-and-coats-in-your-car-1839692584>
 
 我曾经在周末花三个小时从大学开车回家，穿着一套不实用的制服:牛仔裤，一件连帽衫，如果地上已经有雪的话，可能还会带一顶冬天的帽子。我到了，父亲总是骂我没准备好。“你的外套呢？”他会要求。“你需要一件外套。万一你在什么地方抛锚了呢？”我对他不屑一顾，直到有一天晚上，我的车在一场暴风雪中失控，撞上了 95 号州际公路的护栏。“你有外套吗？”拖车司机问，嘘我进了他的卡车驾驶室，在那里他用曲柄加热，然后准备把我的车拖出高速公路旁的危险位置。
 

@@ -1,6 +1,6 @@
 # 你可以用阻力带做的最好的拉伸
 
-> 原文:[https://life hacker . com/the-best-stretchs-you-can-do-a-resistance-band-1833328260](https://lifehacker.com/the-best-stretches-you-can-do-with-a-resistance-band-1833328260)
+> 原文：<https://lifehacker.com/the-best-stretches-you-can-do-with-a-resistance-band-1833328260>
 
 我们的 [阻力乐队挑战](https://lifehacker.com/the-march-fitness-challenge-is-the-resistance-band-wor-1832996075) 让你汗流浃背吗？很好，因为是时候休息一下，做些伸展运动凉快一下了。
 

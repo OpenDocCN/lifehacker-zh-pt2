@@ -1,6 +1,6 @@
 # 如何使用 Instagram 的“你的活动”功能来抑制你的应用程序使用
 
-> 原文:[https://life hacker . com/how-to-use-instagrams-you-activity-feature-to-curb-you-1830467825](https://lifehacker.com/how-to-use-instagrams-your-activity-feature-to-curb-you-1830467825)
+> 原文：<https://lifehacker.com/how-to-use-instagrams-your-activity-feature-to-curb-you-1830467825>
 
 今年早些时候，我终于掉进了 Instagram Stories 的兔子洞，现在我在 Instagram 上花了太多时间。本周，该应用开始推出一项新功能来对抗 Insta-addiction，这是一个“你的活动”追踪器，它可以显示你在应用上花了多少时间，，并让你设置限制，以帮助减少你每天滚动订阅的时间。
 

@@ -1,6 +1,6 @@
 # 这是你拿到冠状病毒救济支票的时候
 
-> 原文:[https://life hacker . com/heres-when-you-get-your-when-you-coronavirus-relief-check-1842652396](https://lifehacker.com/heres-when-youll-get-your-coronavirus-relief-check-1842652396)
+> 原文：<https://lifehacker.com/heres-when-youll-get-your-coronavirus-relief-check-1842652396>
 
 我们现在知道了你的冠状病毒救济金什么时候能到账。
 

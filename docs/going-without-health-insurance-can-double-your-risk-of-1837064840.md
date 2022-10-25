@@ -1,6 +1,6 @@
 # 没有健康保险会使你破产的风险加倍
 
-> 原文:[https://life hacker . com/going-without-health-insurance-can-double-your-risk of-1837064840](https://lifehacker.com/going-without-health-insurance-can-double-your-risk-of-1837064840)
+> 原文：<https://lifehacker.com/going-without-health-insurance-can-double-your-risk-of-1837064840>
 
 当我本周早些时候写了关于 [计算你的健康保险计划](https://twocents.lifehacker.com/calculate-the-total-out-of-pocket-cost-of-your-health-i-1836998429) 的总自付费用时，你们中的一些人问我们为什么首先要为健康保险费心。
 

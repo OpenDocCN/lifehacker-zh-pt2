@@ -1,6 +1,6 @@
 # 你一直听到的最糟糕的建议是什么？
 
-> 原文:[https://life hacker . com/what-the-worst-advice-you-heard-the-time-1831073020](https://lifehacker.com/whats-the-worst-advice-you-hear-all-the-time-1831073020)
+> 原文：<https://lifehacker.com/whats-the-worst-advice-you-hear-all-the-time-1831073020>
 
 "你能想到的最糟糕的建议是什么？" [乔西](https://twitter.com/jduffyrice/status/1069253972920336384)杜菲莱斯在推特上问道。对她来说，是这样的:
 

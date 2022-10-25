@@ -1,6 +1,6 @@
 # 你可以通过你的电话公司默认屏蔽自动电话，但这需要你付费
 
-> 原文:[https://life hacker . com/you-can-block-robo calls-by-default-with-your-phone-comp-1835324828](https://lifehacker.com/you-can-block-robocalls-by-default-with-your-phone-comp-1835324828)
+> 原文：<https://lifehacker.com/you-can-block-robocalls-by-default-with-your-phone-comp-1835324828>
 
 如果你接到的机器人电话比真实电话多，你可能会感谢联邦通信委员会周四通过的新规定。立即生效，电话公司将被允许(并被鼓励)自动屏蔽自动电话。
 

@@ -1,6 +1,6 @@
 # 如果你想要联邦学生资助，现在就填写你的 FAFSA
 
-> 原文:[https://life hacker . com/if-you-want-federal-student-aid-fill-out-your-fafsa-no-1838749614](https://lifehacker.com/if-you-want-federal-student-aid-fill-out-your-fafsa-no-1838749614)
+> 原文：<https://lifehacker.com/if-you-want-federal-student-aid-fill-out-your-fafsa-no-1838749614>
 
 如果你计划明年上大学，不管是作为新生还是返校生，你都应该马上申请联邦财政援助。
 

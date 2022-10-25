@@ -1,6 +1,6 @@
 # 如何把你的手机变成夏日求生包
 
-> 原文:[https://life hacker . com/how-to-turn-your-phone-to-a-summer time-survival-kit-1835887165](https://lifehacker.com/how-to-turn-your-phone-into-a-summertime-survival-kit-1835887165)
+> 原文：<https://lifehacker.com/how-to-turn-your-phone-into-a-summertime-survival-kit-1835887165>
 
 夏天可能是一年中最危险的时候。衣服脱了，阳光灿烂，蜜蜂和蚊子出来了。我们更加活跃，这意味着发生事故的机会更多，比如脚踝扭伤和擦伤。当你勇敢地走向户外时，这里有一个 Android 和 iOS 应用工具包，你可以用它来处理晒伤、冲浪、刺痛、扭伤等等。
 

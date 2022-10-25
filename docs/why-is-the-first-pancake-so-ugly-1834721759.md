@@ -1,6 +1,6 @@
 # 为什么第一个煎饼这么丑？
 
-> 原文:[https://life hacker . com/why-the-first-pancake-so ugly-1834721759](https://lifehacker.com/why-is-the-first-pancake-so-ugly-1834721759)
+> 原文：<https://lifehacker.com/why-is-the-first-pancake-so-ugly-1834721759>
 
 我做了很多煎饼，但我从来不擅长做漂亮的、均匀的、金黄色的煎饼。尤其是第一个煎饼一直是美学垃圾，有斑驳，污点的外观。但是为什么呢？
 

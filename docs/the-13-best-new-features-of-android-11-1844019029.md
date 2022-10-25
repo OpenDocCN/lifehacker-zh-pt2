@@ -1,6 +1,6 @@
 # Android 11 的 13 个最佳新功能
 
-> 原文:[https://life hacker . com/the-13-best-new-features-of-Android-11-1844019029](https://lifehacker.com/the-13-best-new-features-of-android-11-1844019029)
+> 原文：<https://lifehacker.com/the-13-best-new-features-of-android-11-1844019029>
 
 Android 11 测试版最初计划与谷歌的年度开发者大会同时推出，但世界对今年的软件更新有不同的计划。尽管没有大张旗鼓，谷歌现在已经为 Pixel 用户发布了第一个公共测试版，在今年晚些时候为其他 Android 设备推出之前，留下了足够的时间来解决这些问题。
 

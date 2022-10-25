@@ -1,6 +1,6 @@
 # 使用指令钩制作毯子城堡
 
-> 原文:[https://life hacker . com/make-a-blanket-fort-using-command-hooks-1834899851](https://lifehacker.com/make-a-blanket-fort-using-command-hooks-1834899851)
+> 原文：<https://lifehacker.com/make-a-blanket-fort-using-command-hooks-1834899851>
 
 我 6 岁的女儿第一次尝试做一个毯子城堡时，她有着孩子般快乐的雄心。不幸的是，她没有工程师的结构专业知识，因为整个建筑在三分钟内倒塌，她哭了。
 

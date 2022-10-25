@@ -1,6 +1,6 @@
 # 将真正的椰子味注入任何烈酒的最简单方法
 
-> 原文:[https://life hacker . com/the-easy-way-infuse-any-spirit with-real-coconut-1830882717](https://lifehacker.com/the-easiest-way-to-infuse-any-spirit-with-real-coconut-1830882717)
+> 原文：<https://lifehacker.com/the-easiest-way-to-infuse-any-spirit-with-real-coconut-1830882717>
 
 如果“椰子朗姆酒”这个词引起了一阵恶心，很可能你对椰子味烈酒的体验仅限于马里布(或其他同样令人作呕的东西)。但是真正的、美味的椰子味是一种享受，它可以被添加到任何烈酒中——不仅仅是朗姆酒——通过用一点椰子油“清洗”酒。
 

@@ -1,6 +1,6 @@
 # 现在不是出城的好时机
 
-> 原文:[https://life hacker . com/its-not-a-good-time-skip-town-1842509685](https://lifehacker.com/its-not-a-good-time-to-skip-town-1842509685)
+> 原文：<https://lifehacker.com/its-not-a-good-time-to-skip-town-1842509685>
 
 如果你所在的城市有很多新冠肺炎病例——目前几乎是每个人的城市——你可能会想去拜访农村亲戚或去某个僻静的地方临时度假。这实际上是一个糟糕的想法，原因如下。
 

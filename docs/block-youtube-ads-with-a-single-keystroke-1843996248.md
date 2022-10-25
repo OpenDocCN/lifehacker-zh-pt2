@@ -1,6 +1,6 @@
 # 一键拦截 YouTube 广告
 
-> 原文:[https://life hacker . com/block-YouTube-ads-with-a-single-key-1843996248](https://lifehacker.com/block-youtube-ads-with-a-single-keystroke-1843996248)
+> 原文：<https://lifehacker.com/block-youtube-ads-with-a-single-keystroke-1843996248>
 
 在网络上，最令人沮丧的事情之一是在你试图狂欢的 YouTube 视频之前弹出的小视频广告。尽管大多数广告会让你在几秒钟后跳到你的视频，但这段充满广告的插曲会让你感觉漫长。我们有办法解决这个问题，而且很巧妙。
 

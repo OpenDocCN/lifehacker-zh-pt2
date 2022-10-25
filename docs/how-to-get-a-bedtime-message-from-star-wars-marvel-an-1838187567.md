@@ -1,6 +1,6 @@
 # 如何从星球大战、漫威和迪斯尼人物那里得到睡前信息
 
-> 原文:[https://life hacker . com/how-to-get-a-bedrome-message-from-star-wars-marvel-an-1838187567](https://lifehacker.com/how-to-get-a-bedtime-message-from-star-wars-marvel-an-1838187567)
+> 原文：<https://lifehacker.com/how-to-get-a-bedtime-message-from-star-wars-marvel-an-1838187567>
 
 只有你现在睡觉，原力才会与你同在。
 

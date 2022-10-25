@@ -1,6 +1,6 @@
 # 黑脸不应该成为你万圣节服装的一部分
 
-> 原文:[https://life hacker . com/black face-should-not-be-part-of-your ' s Halloween-costume-1839438961](https://lifehacker.com/blackface-should-not-be-part-of-your-halloween-costume-1839438961)
+> 原文：<https://lifehacker.com/blackface-should-not-be-part-of-your-halloween-costume-1839438961>
 
 当你开始帮助你的孩子计划他们的万圣节服装( [无论今年的万圣节是什么样子](https://offspring.lifehacker.com/this-map-can-help-you-decide-whether-to-go-trick-or-tre-1845128409) )，当你开始为你参加的任何成人节日计划你自己的服装时，这里是我们一年一度的提醒:黑脸永远都不是好东西。你和你的孩子可以打扮成勒布朗·詹姆斯、巴拉克·奥巴马或碧昂斯，而不会以一种历史上令人反感的方式使你的肤色变黑。
 

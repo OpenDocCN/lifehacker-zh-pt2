@@ -1,6 +1,6 @@
 # 中国关税的提高可能会让你损失多少钱
 
-> 原文:[https://life hacker . com/how-increated-China-tariffs-may-cost-you-money-1834670162](https://lifehacker.com/how-increased-china-tariffs-might-cost-you-money-1834670162)
+> 原文：<https://lifehacker.com/how-increased-china-tariffs-might-cost-you-money-1834670162>
 
 你可能已经听说，特朗普总统刚刚提高了价值 2000 亿美元的中国商品的关税，从 10%提高到 25%。
 

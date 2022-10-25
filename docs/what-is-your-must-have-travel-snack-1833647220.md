@@ -1,6 +1,6 @@
 # 你的旅行必备零食是什么？
 
-> 原文:[https://life hacker . com/what ' s you ' s must-have-a travel-snack-1833647220](https://lifehacker.com/what-is-your-must-have-travel-snack-1833647220)
+> 原文：<https://lifehacker.com/what-is-your-must-have-travel-snack-1833647220>
 
 没有克里夫酒吧我是不会离开的。我无法告诉你有多少次他们在紧要关头填饱了我的肚子:当我的转接航班晚点时，我所有的冲刺都经过机场餐厅，联合国承办的会议让我不得不在参加会议和在美食广场排队之间做出选择。那次我在晚上 10 点意识到我饿了，但我住在一个共享的 AirBnB 里，主人已经上床睡觉了，我不知道厨房的政策。
 

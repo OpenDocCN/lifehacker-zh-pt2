@@ -1,6 +1,6 @@
 # 如何为您的亚马逊包裹安排准确的递送日期
 
-> 原文:[https://life hacker . com/how-to-schedule-a-exact-day for your-Amazon-p-1832965958](https://lifehacker.com/how-to-schedule-an-exact-delivery-day-for-your-amazon-p-1832965958)
+> 原文：<https://lifehacker.com/how-to-schedule-an-exact-delivery-day-for-your-amazon-p-1832965958>
 
 有什么比等待亚马逊包裹更糟糕的？发现它会在明天到一周后的某个时间到达，没有保证。
 

@@ -1,6 +1,6 @@
 # 2018 年最佳健身贴
 
-> 原文:[https://life hacker . com/the-best-fitness-posts-of-2018-1831207359](https://lifehacker.com/the-best-fitness-posts-of-2018-1831207359)
+> 原文：<https://lifehacker.com/the-best-fitness-posts-of-2018-1831207359>
 
 今年，我们 [挑战我们自己](https://lifehacker.com/c/lifehacker-fitness-challenge) 在举重、有氧运动、瑜伽等方面开拓创新。一路走来，我们提升了我们健身的方方面面，从在跑道上实现近乎超越，到在健身房里绕开那个混蛋。以下是我们 2018 年最佳健身贴。
 

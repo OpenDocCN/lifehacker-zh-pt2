@@ -1,6 +1,6 @@
 # 为什么你应该跳过 PayPal，直接向组织捐款
 
-> 原文:[https://life hacker . com/why-you-should-skip-paypal-and-dance-direct-to-organ-1843885716](https://lifehacker.com/why-you-should-skip-paypal-and-donate-directly-to-organ-1843885716)
+> 原文：<https://lifehacker.com/why-you-should-skip-paypal-and-donate-directly-to-organ-1843885716>
 
 现在有很多组织需要资金来对抗警察暴行和种族不公正。 [我们整理了一个选项列表](https://lifehacker.com/where-to-donate-to-help-people-fighting-for-racial-just-1843852418) ，你肯定已经在你的社交媒体订阅上看到了向各种团体捐款的呼吁。但是一旦你选择了一个你愿意捐赠的有价值的组织，还有一个额外的步骤可以帮助他们:不要使用 PayPal。
 

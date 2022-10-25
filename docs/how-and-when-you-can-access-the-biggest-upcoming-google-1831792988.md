@@ -1,6 +1,6 @@
 # 如何以及何时可以访问即将推出的最大的谷歌助手功能
 
-> 原文:[https://life hacker . com/how-and-when-you-can-access-the-big-coming-Google-1831792988](https://lifehacker.com/how-and-when-you-can-access-the-biggest-upcoming-google-1831792988)
+> 原文：<https://lifehacker.com/how-and-when-you-can-access-the-biggest-upcoming-google-1831792988>
 
 谷歌的人工智能助手谷歌助手(Google Assistant)将在 2019 年迎来伟大的一年。不仅数字助理将扩展到众多新旧设备，而且还将有大量新功能推出，其中几项已在上周的 CES 2019 上展示。
 

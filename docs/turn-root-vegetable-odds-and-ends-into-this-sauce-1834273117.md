@@ -1,6 +1,6 @@
 # 把块根蔬菜碎末变成这种调味汁
 
-> 原文:[https://life hacker . com/turn-root-vegetable-odds-ends-into-this-sauce-1834273117](https://lifehacker.com/turn-root-vegetable-odds-and-ends-into-this-sauce-1834273117)
+> 原文：<https://lifehacker.com/turn-root-vegetable-odds-and-ends-into-this-sauce-1834273117>
 
 我的哥本哈根之行最大的亮点是在农场和 [餐厅 Relae](http://www.restaurant-relae.dk/en/manifest/) 的厨房里拍摄视频，这是一个非常注重 [可持续性](http://www.restaurant-relae.dk/en/baeredygtighed/) 的场所。我学到了很多东西(在接下来的视频中你也会学到)，包括如何用块根蔬菜和醋制作一种丝滑、美味的素食酱。
 

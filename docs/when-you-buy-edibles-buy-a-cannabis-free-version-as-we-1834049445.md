@@ -1,6 +1,6 @@
 # 当你买食物时，也买一个不含大麻的版本
 
-> 原文:[https://life hacker . com/when-you-buy-edibles-buy-a-大麻-free-version-as-we-1834049445](https://lifehacker.com/when-you-buy-edibles-buy-a-cannabis-free-version-as-we-1834049445)
+> 原文：<https://lifehacker.com/when-you-buy-edibles-buy-a-cannabis-free-version-as-we-1834049445>
 
 我们已经进入了一个可食用的新时代。即使你没有生活在一个拥有高档药房的完全合法化的国家，也有足够的 [食谱](https://skillet.lifehacker.com/make-this-cannabis-infused-cannoli-cream-1821473613) 和 [资源](https://skillet.lifehacker.com/5-ways-to-disguise-the-taste-of-weed-in-edibles-1819787585) 来确保你制作和/或食用的食物尝起来像食物而不是杂草。这是好的，因为吃味道好的东西更有趣，但这是不好的，因为吃太多更容易。
 

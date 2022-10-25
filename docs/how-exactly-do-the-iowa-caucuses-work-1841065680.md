@@ -1,6 +1,6 @@
 # 爱荷华州党团会议到底是如何运作的？
 
-> 原文:[https://life hacker . com/how-exact-do-the-Iowa-cauces-work-1841065680](https://lifehacker.com/how-exactly-do-the-iowa-caucuses-work-1841065680)
+> 原文：<https://lifehacker.com/how-exactly-do-the-iowa-caucuses-work-1841065680>
 
 今晚，爱荷华州将举行党团会议，这对民主党人来说是一个关键时刻，很可能会影响 2020 年选举的其余部分。但是什么是核心会议呢？这和初选有什么不同？好吧，如果你想知道为什么爱荷华州的党团会议对总统选举有如此巨大的影响，或者实际过程是如何运作的，下面，你会找到你迫切问题的所有答案。
 

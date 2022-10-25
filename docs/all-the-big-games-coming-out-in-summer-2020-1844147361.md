@@ -1,6 +1,6 @@
 # all the big games coming out in summer 2020 1844147361
 
-> 原文:[https://kotaku . com/all-the-big-games-out-in-summer-2020-1844147361](https://kotaku.com/all-the-big-games-coming-out-in-summer-2020-1844147361)
+> 原文：<https://kotaku.com/all-the-big-games-coming-out-in-summer-2020-1844147361>
 
 夏天和生活是...在目前情况下我们能做到的最好的。2020 年继续令人惊讶、惊叹和恐怖，但至少我们有一批视频游戏问世。
 

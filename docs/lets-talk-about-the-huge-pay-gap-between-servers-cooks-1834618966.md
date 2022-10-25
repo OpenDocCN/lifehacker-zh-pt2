@@ -1,6 +1,6 @@
 # 问咸味女服务员:我们来谈谈服务员和厨师之间巨大的薪酬差距
 
-> 原文:[https://the take out . com/let-talk-the-giant-pay-gap-servers-cooks-1834618966](https://thetakeout.com/lets-talk-about-the-huge-pay-gap-between-servers-cooks-1834618966)
+> 原文：<https://thetakeout.com/lets-talk-about-the-huge-pay-gap-between-servers-cooks-1834618966>
 
 > 亲爱的 Salty:对于房子前后的收入差距，你有什么评论或想法想要分享吗？还是这种情况只在我所在的地区流行？
 > 

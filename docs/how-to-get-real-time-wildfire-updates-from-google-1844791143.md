@@ -1,6 +1,6 @@
 # 如何从谷歌获得实时野火更新
 
-> 原文:[https://life hacker . com/how-to-get-real-time-wild fire-updates-from-Google-1844791143](https://lifehacker.com/how-to-get-real-time-wildfire-updates-from-google-1844791143)
+> 原文：<https://lifehacker.com/how-to-get-real-time-wildfire-updates-from-google-1844791143>
 
 森林火灾是森林生命周期中必要且自然的一部分，但近年来，在夏季的几个月里，不受控制的野火的数量和严重程度都急剧增加——问问任何一个加利福尼亚人就知道了。谢天谢地，谷歌搜索和谷歌地图的新工具 [和](https://www.blog.google/products/search/mapping-wildfires-with-satellite-data/) 可以让你了解附近火灾的最新情况，帮助你保持安全。有一个如何使用它们的快速指南。
 

@@ -1,6 +1,6 @@
 # 如果你有耐心，三星新推出的 Galaxy S20 回购计划并不是一笔坏交易
 
-> 原文:[https://life hacker . com/samsungs-new-galaxy-s20-buy back-offer-not-a-bad-deal-I-1842648774](https://lifehacker.com/samsungs-new-galaxy-s20-buyback-offer-isnt-a-bad-deal-i-1842648774)
+> 原文：<https://lifehacker.com/samsungs-new-galaxy-s20-buyback-offer-isnt-a-bad-deal-i-1842648774>
 
 尽管 Galaxy S20 [是一款很棒的手机，但目前它的销量并不那么好](https://gizmodo.com/samsung-blames-the-coronavirus-for-the-galaxy-s20-s-hor-1841998615) 。三星试图通过一项新的回购政策来提高对其最新智能手机的热情，该政策确保客户未来将获得大量的退款。虽然保底钱听起来很划算，但真的是这样吗？
 

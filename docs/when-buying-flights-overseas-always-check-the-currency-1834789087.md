@@ -1,6 +1,6 @@
 # 购买海外机票时，一定要查看货币
 
-> 原文:[https://life hacker . com/when-buying-flights-overseas-always-check-the-currency-1834789087](https://lifehacker.com/when-buying-flights-overseas-always-check-the-currency-1834789087)
+> 原文：<https://lifehacker.com/when-buying-flights-overseas-always-check-the-currency-1834789087>
 
 当你在海外时，用当地货币付款通常是你钱包里最划算的选择——T4，除非是在航班上。
 

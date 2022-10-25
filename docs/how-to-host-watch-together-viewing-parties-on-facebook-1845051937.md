@@ -1,6 +1,6 @@
 # 如何在 Facebook Messenger 上举办“一起观看”观看聚会
 
-> 原文:[https://life hacker . com/how-to-host-together-watch-viewing-parties-on-Facebook-1845051937](https://lifehacker.com/how-to-host-watch-together-viewing-parties-on-facebook-1845051937)
+> 原文：<https://lifehacker.com/how-to-host-watch-together-viewing-parties-on-facebook-1845051937>
 
 脸书新推出的“ [一起看](https://about.fb.com/news/2020/09/introducing-watch-together-on-messenger) ”功能支持最多 8 个人在 Facebook Messenger，或者最多 50 个人使用 [Messenger Rooms](https://about.fb.com/news/2020/04/introducing-messenger-rooms) 。无论你决定如何组织你的数字派对，这都是让每个人同时观看(和评论)相同视频的便捷方式。
 

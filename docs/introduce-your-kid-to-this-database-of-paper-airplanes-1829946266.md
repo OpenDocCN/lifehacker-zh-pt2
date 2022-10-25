@@ -1,6 +1,6 @@
 # 向你的孩子介绍这个纸飞机数据库
 
-> 原文:[https://life hacker . com/introduce-your-kid-to-this-database of the paper-planes-1829946266](https://lifehacker.com/introduce-your-kid-to-this-database-of-paper-airplanes-1829946266)
+> 原文：<https://lifehacker.com/introduce-your-kid-to-this-database-of-paper-airplanes-1829946266>
 
 制作纸飞机不仅仅是一个伟大的低技术无聊杀手——它还具有很高的教育意义。是的，在 11 年级经济学课上，你花了那么多时间把螺旋笔记本纸折成很酷的滑翔机，实际上你是在学习设计工程。很整洁，是吧？
 

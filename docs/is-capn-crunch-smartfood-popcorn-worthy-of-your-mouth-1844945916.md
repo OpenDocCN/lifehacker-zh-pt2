@@ -1,6 +1,6 @@
 # Cap'n Crunch Smartfood 爆米花配得上你的嘴吗？
 
-> 原文:[https://life hacker . com/is-capn-crunch-smart food-popcorn-worthy-your-mouth-1844945916](https://lifehacker.com/is-capn-crunch-smartfood-popcorn-worthy-of-your-mouth-1844945916)
+> 原文：<https://lifehacker.com/is-capn-crunch-smartfood-popcorn-worthy-of-your-mouth-1844945916>
 
 我吃很多爆米花。有时候我吃在炉子上爆的爆米花，有时候我吃微波炉爆米花。有时候我会吃已经在袋子里爆开的爆米花。如果我走袋装路线，通常是智能食品，因为他们的奶酪粉非常棒。
 

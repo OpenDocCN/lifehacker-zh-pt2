@@ -1,6 +1,6 @@
 # 如何选购合适的无线充电板(或支架)
 
-> 原文:[https://life hacker . com/how-to-buy-the-right-wireless-charging-pad-or-stand-1829849643](https://lifehacker.com/how-to-buy-the-right-wireless-charging-pad-or-stand-1829849643)
+> 原文：<https://lifehacker.com/how-to-buy-the-right-wireless-charging-pad-or-stand-1829849643>
 
 如果你的智能手机可以无线充电，那么恭喜你。你已经来到了未来，在这个时代，摸索着一根电缆，把它插入你的设备底部，然后等待令人满意的声音，这种艰难的过程感觉既古老又愚蠢。有了一个方便、价格合理的电源垫，你现在可以放下你的智能手机，等待铃声，开始你的快乐之旅。电缆是给笨蛋用的。
 

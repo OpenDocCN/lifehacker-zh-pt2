@@ -1,6 +1,6 @@
 # 用这个工具发现谁在为你所在地区的政治广告付费(以及多少)
 
-> 原文:[https://life hacker . com/discover-who ' s payed-for-political-ads-in-your-area-1833219053](https://lifehacker.com/discover-who-is-paying-for-political-ads-in-your-area-1833219053)
+> 原文：<https://lifehacker.com/discover-who-is-paying-for-political-ads-in-your-area-1833219053>
 
 如果你看电视，那么你很可能也会看一些政治广告。当大多数广播、电视、卫星和有线电视提供商播放政治广告时，他们被要求向 FCC 提交一份政治文件。这些表格背后的想法是让公众有机会跟踪一家电视台的交易和信件，因为它们与的政治广告有关。也就是说，你上一次查看你最喜欢的电视台正在播放什么广告是什么时候？没错。
 

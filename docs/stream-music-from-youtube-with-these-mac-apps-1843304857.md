@@ -1,6 +1,6 @@
 # 使用这些 Mac 应用程序从 YouTube 流式播放音乐
 
-> 原文:[https://life hacker . com/stream-music-from-YouTube-with the-MAC-apps-1843304857](https://lifehacker.com/stream-music-from-youtube-with-these-mac-apps-1843304857)
+> 原文：<https://lifehacker.com/stream-music-from-youtube-with-these-mac-apps-1843304857>
 
 在过去的几年里，谷歌让 YouTube 更难用作音乐播放器，原因显而易见。一些允许你在不看视频的情况下从 YouTube 上播放音乐的扩展和应用程序 [慢慢消失在以太](https://lifehacker.com/how-to-turn-youtube-into-the-ultimate-streaming-music-s-1624383344) 中。与此同时，谷歌开始推其 [YouTube 音乐](https://music.youtube.com/) 服务——类似的功能，只是不免费。
 

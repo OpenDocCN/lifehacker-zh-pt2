@@ -1,6 +1,6 @@
 # 如何平衡养育子女和照顾老人
 
-> 原文:[https://life hacker . com/how-to-balance-育儿-养老-1841731049](https://lifehacker.com/how-to-balance-parenting-and-elderly-caregiving-1841731049)
+> 原文：<https://lifehacker.com/how-to-balance-parenting-and-elderly-caregiving-1841731049>
 
 我的手机放在厨房里，紧挨着我妻子的，我和我两岁的女儿埃拉在地板上玩。我妻子在楼上监督我们 9 岁的孩子蕾拉洗澡的时间。我没有注意到石英台面上的手机在震动，但在 25 分钟的时间里，它已经响了 13 次。
 

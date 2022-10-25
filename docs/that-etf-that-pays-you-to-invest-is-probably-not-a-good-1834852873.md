@@ -1,6 +1,6 @@
 # 付钱让你投资的 ETF 可能不是一个好主意
 
-> 原文:[https://life hacker . com/that-ETF-that-pay-you-to-invest-is-possible-not-a-good-1834852873](https://lifehacker.com/that-etf-that-pays-you-to-invest-is-probably-not-a-good-1834852873)
+> 原文：<https://lifehacker.com/that-etf-that-pays-you-to-invest-is-probably-not-a-good-1834852873>
 
 你听说过免费的 ETF。但是，如果一只 ETF*付钱给你*去投资它呢？听起来好得难以置信，对吧？但这正是上周 [盐财](https://www.prnewswire.com/news-releases/salt-financial-completes-regulatory-process-for-pricing-incentive-structure-for-low-volatility-etf-powered-by-trubeta-300848449.html) 推出的。
 

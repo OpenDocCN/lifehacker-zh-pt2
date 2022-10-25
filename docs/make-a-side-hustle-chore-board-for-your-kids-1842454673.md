@@ -1,6 +1,6 @@
 # 为你的孩子做一个侧推家务板
 
-> 原文:[https://life hacker . com/make-a-side-hustle-Jerry-board-for-your-kids-1842454673](https://lifehacker.com/make-a-side-hustle-chore-board-for-your-kids-1842454673)
+> 原文：<https://lifehacker.com/make-a-side-hustle-chore-board-for-your-kids-1842454673>
 
 我的儿子已经决定，在疫情冠状病毒期间离开学校——我不知道，可能很长时间——实际上是一个赚点外快的机会。在我们的新现实的第一天结束时，他已经通过叠一大堆毛巾在他的正常津贴之外多赚了一美元。“我还能做些什么家务来挣些钱，”他问道，为了获得额外的效果，他扭动着眉毛。
 

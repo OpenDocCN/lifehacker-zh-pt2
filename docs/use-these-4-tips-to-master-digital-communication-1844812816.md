@@ -1,6 +1,6 @@
 # 使用这 4 个技巧来掌握数字通信
 
-> 原文:[https://life hacker . com/use-this-4-tips-to-master-digital-communication-1844812816](https://lifehacker.com/use-these-4-tips-to-master-digital-communication-1844812816)
+> 原文：<https://lifehacker.com/use-these-4-tips-to-master-digital-communication-1844812816>
 
 我们都曾收到过同事发来的短信、电子邮件或即时消息，让我们质疑一切。即使我们知道在写作中很难传达语气，我们仍然会分析每个单词和标点符号，试图找到线索。与此同时，我们可能会发现自己在数字通信中难以传达我们想要传达的信息。
 

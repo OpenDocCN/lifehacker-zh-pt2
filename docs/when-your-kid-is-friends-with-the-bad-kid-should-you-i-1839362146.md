@@ -1,6 +1,6 @@
 # 当你的孩子和“坏孩子”成为朋友时，你应该干预吗？
 
-> 原文:[https://life hacker . com/when-your-kid-is-friends-the-bad-kid-should-you-I-1839362146](https://lifehacker.com/when-your-kid-is-friends-with-the-bad-kid-should-you-i-1839362146)
+> 原文：<https://lifehacker.com/when-your-kid-is-friends-with-the-bad-kid-should-you-i-1839362146>
 
 本周的家长咨询问题来自地球上最令人情绪激动的地方之一:一年级休息操场。
 

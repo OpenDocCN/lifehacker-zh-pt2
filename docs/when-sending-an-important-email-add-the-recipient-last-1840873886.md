@@ -1,6 +1,6 @@
 # 发送重要邮件时，最后添加收件人
 
-> 原文:[https://life hacker . com/when-sending-an-important-email-add-the-recipient-last-1840873886](https://lifehacker.com/when-sending-an-important-email-add-the-recipient-last-1840873886)
+> 原文：<https://lifehacker.com/when-sending-an-important-email-add-the-recipient-last-1840873886>
 
 当你正忙着起草一封重要的电子邮件时，也许是发给未来的招聘经理，不小心在之前*发送出去是搞砸最简单的方法。也许有一个明显的拼写错误——你可以发誓之前没有——或者你忘记附上你的简历。现在，疯狂的后续邮件流程开始了，而不是以你快乐的方式离开。“非常抱歉，”你写道，然后以书面形式解决问题。* 
 

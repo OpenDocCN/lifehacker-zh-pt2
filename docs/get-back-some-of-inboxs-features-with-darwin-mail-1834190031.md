@@ -1,6 +1,6 @@
 # 用达尔文邮件取回收件箱的一些功能
 
-> 原文:[https://life hacker . com/get-back-some-of-inboxs-features-with-Darwin-mail-1834190031](https://lifehacker.com/get-back-some-of-inboxs-features-with-darwin-mail-1834190031)
+> 原文：<https://lifehacker.com/get-back-some-of-inboxs-features-with-darwin-mail-1834190031>
 
 如果你的 [不见了谷歌的收件箱](https://gadgets.ndtv.com/apps/news/google-inbox-by-gmail-older-android-apks-stop-functioning-users-2026005) ， [达尔文邮件](https://www.darwinmail.app/) 可能是个不错的替代。该服务与您的 Gmail 帐户配合使用，将收件箱的许多最佳功能带回您的收件箱。
 

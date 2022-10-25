@@ -1,6 +1,6 @@
 # 获得真实身份证的截止日期已经推迟了
 
-> 原文:[https://life hacker . com/the-deadline-for-get-your-real-id-has-default-1842472784](https://lifehacker.com/the-deadline-for-getting-your-real-id-has-been-postpone-1842472784)
+> 原文：<https://lifehacker.com/the-deadline-for-getting-your-real-id-has-been-postpone-1842472784>
 
 周一，美国总统唐纳德·川普 [表示](https://www.bloomberg.com/news/articles/2020-03-23/trump-postpones-real-id-requirements-due-to-virus-concerns) 获得真实身份证的截止日期将会推迟，以防止人们聚集在机动车办公室周围。
 

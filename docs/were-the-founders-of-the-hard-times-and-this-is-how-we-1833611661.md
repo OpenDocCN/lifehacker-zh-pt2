@@ -1,6 +1,6 @@
 # were the founders of the hard times and this is how we 1833611661
 
-> 原文:[https://life hacker . com/were-the-founders-the-hard-times and the-how-we-1833611661](https://lifehacker.com/were-the-founders-of-the-hard-times-and-this-is-how-we-1833611661)
+> 原文：<https://lifehacker.com/were-the-founders-of-the-hard-times-and-this-is-how-we-1833611661>
 
 多年来，互联网上有一个很好的讽刺新闻网站。洋葱 (现在是 Lifehacker 的姐妹博客)有很多模仿者，但没有一个成功的。然后领域就开了:[reducress](http://reductress.com/)戏仿女性媒体； [巴比伦蜂](https://babylonbee.com/) 和 [兰多弗浸礼会](http://www.landoverbaptist.org/) 取笑基督教文化；洋葱推出了一个更奇怪的网站，名为 [Clickhole](https://www.clickhole.com/) 。而 [那个艰难的时代](https://thehardtimes.net/) ，一个看似小众的讽刺朋克文化的网站，炸了。《艰难时世》及其游戏衍生产品 [硬盘](https://thehardtimes.net/harddrive/) 最近吸引了 230 万每月读者。
 

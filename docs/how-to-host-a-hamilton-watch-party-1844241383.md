@@ -1,6 +1,6 @@
 # 如何举办“汉密尔顿”手表派对
 
-> 原文:[https://life hacker . com/how-to-host-a-Hamilton-watch-party-1844241383](https://lifehacker.com/how-to-host-a-hamilton-watch-party-1844241383)
+> 原文：<https://lifehacker.com/how-to-host-a-hamilton-watch-party-1844241383>
 
 无论你是 [愿意等待](https://www.youtube.com/watch?v=ulsLI029rH0) 还是不愿意，你将不再需要在今天之后:7 月 3 日，林·曼努尔·米兰达革命性的、托尼奖获奖的百老汇音乐大片*汉密尔顿*是 [来到迪士尼+](https://lifehacker.com/whats-coming-to-disney-in-july-2020-1844158394) 。我想不出比举办虚拟的汉密尔顿观看派对更好的方式来开始 7 月 4 日的周末，所以这里是你需要做的一切，以确保你的#Ham4Ham 粉丝们感到满意，从选择正确的共同观看浏览器扩展到分享一些有趣的奖金材料。
 

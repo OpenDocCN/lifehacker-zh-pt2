@@ -1,6 +1,6 @@
 # 如何写一封出色的求职信
 
-> 原文:[https://life hacker . com/how-to-write-a-great-cover-letter-1836000052](https://lifehacker.com/how-to-write-a-great-cover-letter-1836000052)
+> 原文：<https://lifehacker.com/how-to-write-a-great-cover-letter-1836000052>
 
 几周前，我的一个密友在脸书上发布了一份工作，她的办公室正好有一份工作，恰好与我另一个正在找新工作的朋友完全匹配。我把信息传递给第二个朋友，并把他们联系在一起。
 

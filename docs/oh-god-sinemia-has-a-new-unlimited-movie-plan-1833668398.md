@@ -1,6 +1,6 @@
 # 哦上帝，Sinemia 有一个新的“无限”电影计划[更新]
 
-> 原文:[https://life hacker . com/oh-god-sinemia-has-a-new-unlimited-movie-plan-1833668398](https://lifehacker.com/oh-god-sinemia-has-a-new-unlimited-movie-plan-1833668398)
+> 原文：<https://lifehacker.com/oh-god-sinemia-has-a-new-unlimited-movie-plan-1833668398>
 
 电影院订阅服务 Sinemia 刚刚宣布了一项新的“无限”计划，每月 15 美元。你一天只能看一部电影，但你可以在任何时间任何影院看。 ***更新 2019 年 3 月 29 日下午 4 点 25 分:** Sinemia 告诉 life hacker 没有对特定电影进行封锁——这是竞争对手 MoviePass 的常见问题。就其本身而言，这听起来很划算——一个月看两部电影，你就已经领先了。但还是有一个问题。* 
 

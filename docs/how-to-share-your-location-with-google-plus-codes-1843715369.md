@@ -1,6 +1,6 @@
 # 如何使用 Google Plus 代码共享您的位置
 
-> 原文:[https://life hacker . com/how-to-share-your-location-with-Google-plus-codes-1843715369](https://lifehacker.com/how-to-share-your-location-with-google-plus-codes-1843715369)
+> 原文：<https://lifehacker.com/how-to-share-your-location-with-google-plus-codes-1843715369>
 
 当你需要递送东西或需要寻求帮助时，你可能会给电话另一端的人你的街道地址。如果你在一个你不知道地址的地方，或者一个没有地址的地方，你会怎么做？谷歌目前正在推出名为“Plus Codes”的新谷歌地图功能，这使得与地球上的任何人分享你的位置数据变得更加容易，即使你的位置恰好是森林中的一个小屋。
 

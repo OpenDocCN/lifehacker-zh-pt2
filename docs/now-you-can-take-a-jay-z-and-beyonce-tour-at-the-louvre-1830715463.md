@@ -1,6 +1,6 @@
 # 现在你可以参加 Jay-Z 和碧昂斯在卢浮宫的巡演了
 
-> 原文:[https://life hacker . com/now-you-can-take-a-Jay-z-and-Beyonce-tour-at-Louvre-1830715463](https://lifehacker.com/now-you-can-take-a-jay-z-and-beyonce-tour-at-the-louvre-1830715463)
+> 原文：<https://lifehacker.com/now-you-can-take-a-jay-z-and-beyonce-tour-at-the-louvre-1830715463>
 
 几周前，我在巴黎参观了卢浮宫。在四个小时的过程中，一个叫杰里米的家伙，他拥有某所名牌大学的艺术史硕士学位，带着我们一小群人参观了博物馆的一些亮点。我没有意识到的是，如果我们推迟几周旅行，我们就能看到 JAY-Z 和碧昂斯的博物馆亮点。
 

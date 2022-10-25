@@ -1,6 +1,6 @@
 # 如何安装苹果的第一个 watchOS 公测版
 
-> 原文:[https://life hacker . com/how-to-install-apple-first-ever-ever-watch OS-public-beta-1844676432](https://lifehacker.com/how-to-install-apples-first-ever-watchos-public-beta-1844676432)
+> 原文：<https://lifehacker.com/how-to-install-apples-first-ever-watchos-public-beta-1844676432>
 
 在所有测试新操作系统的设备中，我最不喜欢的就是我的苹果手表。我喜欢新功能，不要误会我的意思，但是一个漏洞百出的操作系统可以把你的智能手表 变成砖块。既然你不能降级 Apple Watch，你要么必须等待后续更新来解决你的问题，要么把你的 Apple Watch 送到 Genius Bar 休假。
 

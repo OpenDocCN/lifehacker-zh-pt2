@@ -1,6 +1,6 @@
 # 用一点小苏打做特别嫩的豆子
 
-> 原文:[https://life hacker . com/make-extra-tender-beans-with a little-soda-1842156539](https://lifehacker.com/make-extra-tender-beans-with-a-little-baking-soda-1842156539)
+> 原文：<https://lifehacker.com/make-extra-tender-beans-with-a-little-baking-soda-1842156539>
 
 请一群豆子爱好者告诉你煮一锅豆子的正确方法，你会从每个人那里得到不同的答案。但是在关于浸泡 的好处以及何时加盐或酸的健康辩论中，每个人都可以得到一个普遍的真理:当谈到豆子时，粘土罐占主导地位。
 

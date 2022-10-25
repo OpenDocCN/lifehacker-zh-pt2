@@ -1,6 +1,6 @@
 # 抓住这些希尔顿信用卡注册奖金之前，他们消失了
 
-> 原文:[https://life hacker . com/grab-these-hilton-credit-card-sign-up-bonus-before-the-1837441408](https://lifehacker.com/grab-these-hilton-credit-card-signup-bonuses-before-the-1837441408)
+> 原文：<https://lifehacker.com/grab-these-hilton-credit-card-signup-bonuses-before-the-1837441408>
 
 如果你是一个经常旅行的人，想要获得大量的希尔顿荣誉积分，现在你的机会来了。
 

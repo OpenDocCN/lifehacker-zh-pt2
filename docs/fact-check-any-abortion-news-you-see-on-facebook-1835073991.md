@@ -1,6 +1,6 @@
 # 事实检查任何你在脸书看到的堕胎新闻
 
-> 原文:[https://life hacker . com/fact-check-any-about-news-you-see-on-Facebook-1835073991](https://lifehacker.com/fact-check-any-abortion-news-you-see-on-facebook-1835073991)
+> 原文：<https://lifehacker.com/fact-check-any-abortion-news-you-see-on-facebook-1835073991>
 
 随着越来越多的州签署堕胎禁令成为法律，难怪脸书充斥着与堕胎相关的错误信息。然而，这一次，传播的不仅仅是一些病毒链接；这是脸书分享的绝大多数堕胎新闻。
 

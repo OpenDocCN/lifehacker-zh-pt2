@@ -1,6 +1,6 @@
 # 今晚如何观看金牛座流星雨
 
-> 原文:[https://life hacker . com/how-to-watch-the-taurid-meteor-shower-tonight-1839635434](https://lifehacker.com/how-to-watch-the-taurid-meteor-shower-tonight-1839635434)
+> 原文：<https://lifehacker.com/how-to-watch-the-taurid-meteor-shower-tonight-1839635434>
 
 这个月我们特别幸运有流星:猎户座仍在上演他们的灯光秀，今晚还有另一个更小的流星雨高峰:金牛座。
 

@@ -1,6 +1,6 @@
 # 给你的孩子讲一个关于他们一天的睡前故事
 
-> 原文:[https://life hacker . com/tell-your-kid-a-letter-story-about-the-day-1835077546](https://lifehacker.com/tell-your-kid-a-bedtime-story-about-their-day-1835077546)
+> 原文：<https://lifehacker.com/tell-your-kid-a-bedtime-story-about-their-day-1835077546>
 
 在 Instagram 上，家庭学校社区的 Erin loe chner[其他鹅](https://othergoose.com/welcome/) 写了关于 [一个育儿实践](https://www.instagram.com/p/BvTuSyDpvDJ/) 我爱:
 

@@ -1,6 +1,6 @@
 # 如何知道是否需要呼叫毒物控制
 
-> 原文:[https://life hacker . com/how-to-know-you-need-to-call-poison-control-1829814230](https://lifehacker.com/how-to-know-whether-you-need-to-call-poison-control-1829814230)
+> 原文：<https://lifehacker.com/how-to-know-whether-you-need-to-call-poison-control-1829814230>
 
 如果你吞咽、吸入或接触了你不应该接触的东西，毒物控制中心会一直在你身边。如果你的症状很严重，你应该直接拨打 911。但是，如果你不确定你(或你的孩子)是否接触了一定量的毒药，该怎么办呢？该中心有一个 [网络工具](https://triage.webpoisoncontrol.org/) 帮你决定是否需要打电话。
 

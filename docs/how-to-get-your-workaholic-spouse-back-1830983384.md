@@ -1,6 +1,6 @@
 # 如何挽回你的工作狂配偶
 
-> 原文:[https://life hacker . com/how-to-get-your-工作狂-配偶回来-1830983384](https://lifehacker.com/how-to-get-your-workaholic-spouse-back-1830983384)
+> 原文：<https://lifehacker.com/how-to-get-your-workaholic-spouse-back-1830983384>
 
 我们有很多时间需求，尤其是在我们有了伴侣、有了孩子或其他家庭义务之后。在一个完美的世界里，我们很容易区分关系的优先次序。对许多人来说，离开工作和家人在一起不仅仅是困难；工作是一种瘾。
 

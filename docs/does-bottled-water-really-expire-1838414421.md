@@ -1,6 +1,6 @@
 # 瓶装水真的会过期吗？
 
-> 原文:[https://life hacker . com/does-buttered-water-really-expire-1838414421](https://lifehacker.com/does-bottled-water-really-expire-1838414421)
+> 原文：<https://lifehacker.com/does-bottled-water-really-expire-1838414421>
 
 水 [不可能完全变坏](https://lifehacker.com/water-doesnt-go-bad-1826120883) ，如果你所拥有的真的只是水，而且是在一个密封的瓶子里。没有任何营养物质可供细菌食用，所以不会导致食物中毒。那么，为什么瓶装水有一个“最佳”日期呢？
 

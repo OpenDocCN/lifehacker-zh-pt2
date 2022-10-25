@@ -1,6 +1,6 @@
 # 在飞机上睡觉最好的方法是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-way to-sleep on-a-flight-1841041987](https://lifehacker.com/whats-the-best-way-to-sleep-on-a-flight-1841041987)
+> 原文：<https://lifehacker.com/whats-the-best-way-to-sleep-on-a-flight-1841041987>
 
 作家娜塔莉·b·康普顿详细描述了为什么在飞机上睡觉如此困难。也许是被打喷嚏、咳嗽和其他不安的乘客包围让你很难睡得安稳。或者，正如康普顿所写的，这只是飞机本身的恶劣环境。“唯一比那些陌生人更具破坏性的可能是震耳欲聋的飞机噪音和头顶上的灯光，似乎是为了打击任何试图睡觉的行为，”她说。
 

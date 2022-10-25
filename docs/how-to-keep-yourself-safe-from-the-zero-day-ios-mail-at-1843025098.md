@@ -1,6 +1,6 @@
 # 如何保护自己免受零日 iOS 邮件攻击
 
-> 原文:[https://life hacker . com/how-to-keep-yourself-from the zero-day-IOs-mail-at-1843025098](https://lifehacker.com/how-to-keep-yourself-safe-from-the-zero-day-ios-mail-at-1843025098)
+> 原文：<https://lifehacker.com/how-to-keep-yourself-safe-from-the-zero-day-ios-mail-at-1843025098>
 
 安全研究人员最近披露了 iPhone 和 iPad 股票邮件应用程序中存在多年的两个零日漏洞。这两个漏洞都允许黑客使用带有恶意代码的电子邮件来执行远程攻击——你可能甚至不需要做任何事情就会受到影响。
 

@@ -1,6 +1,6 @@
 # 今天起飞前检查航班延误情况
 
-> 原文:[https://life hacker . com/check-for-flight-delays-before-flight-today-1833714457](https://lifehacker.com/check-for-flight-delays-before-flying-today-1833714457)
+> 原文：<https://lifehacker.com/check-for-flight-delays-before-flying-today-1833714457>
 
 今早去机场吗？在登机口安顿下来之前，你可能需要再次确认(甚至三次确认)你的航班起飞时间。
 

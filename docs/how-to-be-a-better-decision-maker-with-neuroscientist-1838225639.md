@@ -1,6 +1,6 @@
 # 如何成为更好的决策者，神经科学家大卫·雷迪什
 
-> 原文:[https://life hacker . com/how-to-be-a-better-决策者与神经科学家-1838225639](https://lifehacker.com/how-to-be-a-better-decision-maker-with-neuroscientist-1838225639)
+> 原文：<https://lifehacker.com/how-to-be-a-better-decision-maker-with-neuroscientist-1838225639>
 
 你有没有发现自己在面对一个决定时完全动弹不得？为什么做出选择如此困难，无论是决定晚餐吃什么还是我们是否应该搬到另一个国家？本周，我们采访了神经科学家大卫·雷迪什，他是《大脑中的思维:我们如何做决定以及那些决定如何出错 的作者，他谈到了在决策过程中我们大脑中实际发生的事情。Lifehacker 的执行主编弗吉尼亚·史密斯和我们一起探讨了电车问题和其他经典的道德难题。
 

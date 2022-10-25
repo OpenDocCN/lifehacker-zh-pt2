@@ -1,6 +1,6 @@
 # 我想找一辆拉德伍德风格的车，价格在 10，000 美元以下，偶尔在赛道上开。我应该买什么？
 
-> 原文:[https://jalopnik . com/im-looking-a-radwood-style-car-for-occasually-t-1838936622](https://jalopnik.com/im-looking-for-a-radwood-style-car-for-the-occasional-t-1838936622)
+> 原文：<https://jalopnik.com/im-looking-for-a-radwood-style-car-for-the-occasional-t-1838936622>
 
 迈克正在寻找一辆便宜的车，可以应付一些赛道日，但他想要一辆 80 年代或 90 年代的酷骑。理想情况下，它应该是手动和后轮驱动的，但他并不太挑剔。然而，他没有很多现金可以花，而且#拉德伍德牌汽车越来越贵。他应该买什么？
 

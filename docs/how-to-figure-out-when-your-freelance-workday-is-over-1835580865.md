@@ -1,6 +1,6 @@
 # 如何确定你的自由职业工作日何时结束
 
-> 原文:[https://life hacker . com/how-to-figure-when your-freelance-work day is over-the-1835580865](https://lifehacker.com/how-to-figure-out-when-your-freelance-workday-is-over-1835580865)
+> 原文：<https://lifehacker.com/how-to-figure-out-when-your-freelance-workday-is-over-1835580865>
 
 如果你的工作量只受到你愿意投入的小时数的限制，你如何决定什么时候你已经“足够”工作了？
 

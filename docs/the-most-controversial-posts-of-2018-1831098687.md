@@ -1,6 +1,6 @@
 # 2018 年最具争议的帖子
 
-> 原文:[https://life hacker . com/the-most-contractive-posts-of-2018-1831098687](https://lifehacker.com/the-most-controversial-posts-of-2018-1831098687)
+> 原文：<https://lifehacker.com/the-most-controversial-posts-of-2018-1831098687>
 
 在网上疯狂是互联网文化的一个重要组成部分，但是很难准确预测什么会让大众疯狂。(今年，是凉拌卷心菜，尼克写的关于电影通行证、流感疫苗和许多其他有趣话题的任何东西。)以下是 2018 年以来我们最愤怒的邮件诱导帖。
 

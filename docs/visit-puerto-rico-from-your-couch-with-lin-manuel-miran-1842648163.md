@@ -1,6 +1,6 @@
 # 和林·曼努尔·米兰达一起坐在沙发上游览波多黎各
 
-> 原文:[https://life hacker . com/visit-Puerto-Rico-from-your-couch-with-Lin-manuel-miran-1842648163](https://lifehacker.com/visit-puerto-rico-from-your-couch-with-lin-manuel-miran-1842648163)
+> 原文：<https://lifehacker.com/visit-puerto-rico-from-your-couch-with-lin-manuel-miran-1842648163>
 
 虽然旅行现在是不可能的，但波多黎各正在向潜在的旅行者提供一种方式，在名人导游林·曼努尔·米兰达的带领下进行虚拟旅行。
 

@@ -1,6 +1,6 @@
 # 当孩子问“为什么”时，他们真正的意思是什么
 
-> 原文:[https://life hacker . com/what-a-kid-really-mean-what-when-they-ask-why-a-kid-when-what-a-quest-why-1836415448](https://lifehacker.com/what-a-kid-really-means-when-they-ask-why-1836415448)
+> 原文：<https://lifehacker.com/what-a-kid-really-means-when-they-ask-why-1836415448>
 
 小孩子因不停地问问题而臭名昭著，最常见的是没完没了的“为什么？”我们试着回答他们——我们总是发誓要成为鼓励他们好奇心的父母——但在第五个和第十个“为什么”之间的某个时候你要么已经忘了，要么已经没有答案了。
 

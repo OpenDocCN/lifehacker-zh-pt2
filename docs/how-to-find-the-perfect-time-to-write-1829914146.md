@@ -1,6 +1,6 @@
 # 如何找到写作的最佳时间
 
-> 原文:[https://life hacker . com/how-to-find the perfect-time-to-write-1829914146](https://lifehacker.com/how-to-find-the-perfect-time-to-write-1829914146)
+> 原文：<https://lifehacker.com/how-to-find-the-perfect-time-to-write-1829914146>
 
 如果你梦想成为一名作家，你最终必须坐下来写作。无论你是在做 11 月的全国小说写作月 ，还是梦想“有一天”成为一名作家，不可避免的第一步就是腾出时间去做。这里有一个你今天可以做 15 分钟的练习。
 

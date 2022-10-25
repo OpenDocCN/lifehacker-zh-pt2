@@ -1,6 +1,6 @@
 # 使用此应用程序，根据目的地的天气快速创建定制装箱单
 
-> 原文:[https://life hacker . com/quick-create-custom-packing-lists-based-on-the-wethe-1840819130](https://lifehacker.com/quickly-create-custom-packing-lists-based-on-the-weathe-1840819130)
+> 原文：<https://lifehacker.com/quickly-create-custom-packing-lists-based-on-the-weathe-1840819130>
 
 去年，我乘飞机旅行了 15 万多英里。我还准备了很多行李箱、手提行李和旅行包，为那些旅行做准备，有时是在我去机场前几个小时或几分钟。
 

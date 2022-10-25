@@ -1,6 +1,6 @@
 # 加入谷歌，从你的安卓系统中删除猎豹移动的垃圾应用
 
-> 原文:[https://life hacker . com/join-Google-and-delete-cheetah-mobiles-spammy-apps-from-1841838243](https://lifehacker.com/join-google-and-delete-cheetah-mobiles-spammy-apps-from-1841838243)
+> 原文：<https://lifehacker.com/join-google-and-delete-cheetah-mobiles-spammy-apps-from-1841838243>
 
 谷歌最近宣布禁止 Play Store 的 600 多个应用程序使用激进的广告手法。 [Buzzfeed 报道](https://www.buzzfeednews.com/article/craigsilverman/google-bans-android-apps-disruptive-ads) 许多应用是由猎豹移动等相对受欢迎的开发者发布的，在被禁之前，猎豹移动在 Play Store 上有 45 款应用——有些下载量高达*十亿*。
 

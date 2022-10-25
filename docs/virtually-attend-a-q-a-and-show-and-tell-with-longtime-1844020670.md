@@ -1,6 +1,6 @@
 # 虚拟参加问答和展示，并告诉长期布偶工作人员
 
-> 原文:[https://life hacker . com/virtually-attend-a-q-a-and-show-and-tell-with-long time-1844020670](https://lifehacker.com/virtually-attend-a-q-a-and-show-and-tell-with-longtime-1844020670)
+> 原文：<https://lifehacker.com/virtually-attend-a-q-a-and-show-and-tell-with-longtime-1844020670>
 
 该放音乐了，该点灯了。今晚是时候和三个长期员工布偶员工一起参加现场问答了。没错:美国东部时间今晚 7 点，位于纽约皇后区的 [移动影像博物馆](http://movingimage.us/visit/calendar/2020/06/13/detail/jim-hensons-world-qa-with-craig-shemin-and-friends) 正在直播一场活动，吉姆·汉森公司的长期员工、现任 [吉姆·汉森遗产](https://www.jimhensonlegacy.org/) 非营利组织主席克雷格·谢明(Craig Shemin)将参加此次活动。
 

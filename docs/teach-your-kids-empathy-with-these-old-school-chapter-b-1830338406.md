@@ -1,6 +1,6 @@
 # 用这些老派的章节书教你的孩子换位思考
 
-> 原文:[https://life hacker . com/teach-your-kids-empathy-with-these-old-school-chapter-b-1830338406](https://lifehacker.com/teach-your-kids-empathy-with-these-old-school-chapter-b-1830338406)
+> 原文：<https://lifehacker.com/teach-your-kids-empathy-with-these-old-school-chapter-b-1830338406>
 
 我几乎一读就会开始翻看章节书，我清楚地记得沉浸在这些小说中的一些“啊哈”时刻。当我读到我从未有过的经历和我从未认识的人时，这些时刻就发生了(我在一个非常同质的泡沫中长大——很多白人和基督徒)。
 

@@ -1,6 +1,6 @@
 # 如何防止苹果员工监听你的 Siri 命令
 
-> 原文:[https://life hacker . com/how-to-prevent-apple-employees-to-listening-your-s-1838972786](https://lifehacker.com/how-to-prevent-apple-employees-from-listening-to-your-s-1838972786)
+> 原文：<https://lifehacker.com/how-to-prevent-apple-employees-from-listening-to-your-s-1838972786>
 
 苹果已经开始推出管理 Siri 数据的新选项——最重要的是可以选择不让苹果员工查看 Siri 音频剪辑。在不久的将来，用户也可以提交 Siri 数据删除请求。这些新功能已经出现在苹果设备的最新一轮操作系统更新中，应该很快就会面向公众。
 

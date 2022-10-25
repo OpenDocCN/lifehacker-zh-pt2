@@ -1,6 +1,6 @@
 # 自由职业者年终税务准备指南
 
-> 原文:[https://life hacker . com/the-freelancers-guide-to-end-of-year-end-tax-prep-1840339474](https://lifehacker.com/the-freelancers-guide-to-end-of-year-tax-prep-1840339474)
+> 原文：<https://lifehacker.com/the-freelancers-guide-to-end-of-year-tax-prep-1840339474>
 
 今年 10 月份开始准备明年的税。到了 11 月的第一周，我给我的注册会计师发了一份准备好的文件，列出了我目前的业务收入和支出(也称为“损益表”)，以及我今年剩余两个月的预期收入和支出。
 

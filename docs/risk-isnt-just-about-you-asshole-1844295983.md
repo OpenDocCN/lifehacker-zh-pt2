@@ -1,6 +1,6 @@
 # 风险不仅仅与你有关
 
-> 原文:[https://life hacker . com/risk-not-just-about-you-屁眼-1844295983](https://lifehacker.com/risk-isnt-just-about-you-asshole-1844295983)
+> 原文：<https://lifehacker.com/risk-isnt-just-about-you-asshole-1844295983>
 
 在伟大的美国独立精神下，一些人对疫情的安全预防措施提出了极其低劣的观点。大概是这样的:“*我*觉得这样做很安全。如果*你*不，你应该呆在家里。”
 

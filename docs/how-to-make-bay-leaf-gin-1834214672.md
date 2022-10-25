@@ -1,6 +1,6 @@
 # 如何制作月桂叶杜松子酒
 
-> 原文:[https://lifehacker.com/how-to-make-bay-leaf-gin-1834214672](https://lifehacker.com/how-to-make-bay-leaf-gin-1834214672)
+> 原文：<https://lifehacker.com/how-to-make-bay-leaf-gin-1834214672>
 
 我以前不相信月桂叶。虽然我觉得有合同义务把它们放在所有的炖菜、汤和(大部分)米饭中，但直到我进行了这个 [非常重要的新闻调查](https://lifehacker.com/do-bay-leaves-even-do-anything-1793275685) 之后，我才开始真正重视和珍惜它们。当我在巴尔看到鸡尾酒菜单上的“月桂叶马提尼”——你知道， [有鱼子酱华夫饼](https://skillet.lifehacker.com/put-caviar-on-your-breakfast-carbs-1833892652) 的地方——我知道我必须拥有它，我知道我会在家里制作月桂叶杜松子酒。
 

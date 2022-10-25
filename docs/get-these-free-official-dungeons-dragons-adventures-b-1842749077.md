@@ -1,6 +1,6 @@
 # 在这些免费的官方“龙与地下城”冒险消失之前获得它们
 
-> 原文:[https://life hacker . com/get-these-free-official-地下城-龙-历险记-b-1842749077](https://lifehacker.com/get-these-free-official-dungeons-dragons-adventures-b-1842749077)
+> 原文：<https://lifehacker.com/get-these-free-official-dungeons-dragons-adventures-b-1842749077>
 
 当日子变得艰难时，与你的朋友一起冒险，在危险的遭遇中滚动自然 20 是一种逃离现实世界的令人兴奋和乏味的方式。至少，这是我的新团队*地下城&龙*冒险者对我们新生嬉戏的感觉...不管我们在哪里。(我本来应该一直记笔记的。)
 

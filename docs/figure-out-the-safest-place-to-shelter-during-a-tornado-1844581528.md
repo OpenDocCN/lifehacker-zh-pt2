@@ -1,6 +1,6 @@
 # 用这幅图找出龙卷风来袭时最安全的避难所
 
-> 原文:[https://life hacker . com/figure-out-the-safe-place-to-shelter-in-a tornado-1844581528](https://lifehacker.com/figure-out-the-safest-place-to-shelter-during-a-tornado-1844581528)
+> 原文：<https://lifehacker.com/figure-out-the-safest-place-to-shelter-during-a-tornado-1844581528>
 
 虽然在美国，龙卷风的高峰期严格来说是四月到六月的，但是龙卷风也可能在一年中的其他时间发生。如果你在一个容易遭受龙卷风袭击的地方长大，你可能在学校里除了消防演习之外还有龙卷风演习，并且学会了 [如何在恶劣的暴风雨中找到并躲避](https://lifehacker.com/how-to-stay-safe-during-a-tornado-1825832242) 。但是学校是很久以前的事了，也许你在别的地方长大，然后搬到了龙卷风区。
 

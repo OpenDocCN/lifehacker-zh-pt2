@@ -1,6 +1,6 @@
 # 有一种更聪明的方法来组织你的购物清单
 
-> 原文:[https://the take out . com/there-s-a-smarter-way-organize-your-杂货清单-1831989926](https://thetakeout.com/there-s-a-smarter-way-to-organize-your-grocery-list-1831989926)
+> 原文：<https://thetakeout.com/there-s-a-smarter-way-to-organize-your-grocery-list-1831989926>
 
 我母亲是一个购物迷。当我和哥哥还住在家里的时候，她每周都会列一份购物清单——这意味着为全家人准备一周的饭菜——然后剪下她的优惠券，在不到一个小时的时间里进出杂货店。她拥有超能力是因为她母亲在超市当了几十年收银员吗？谁知道呢。不管怎样，我每个月都会看四次杂货店购物效率的大师课。
 

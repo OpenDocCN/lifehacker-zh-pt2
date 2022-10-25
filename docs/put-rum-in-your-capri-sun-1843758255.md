@@ -1,6 +1,6 @@
 # 把朗姆酒放在你的卡普里阳光下
 
-> 原文:[https://lifehacker.com/put-rum-in-your-capri-sun-1843758255](https://lifehacker.com/put-rum-in-your-capri-sun-1843758255)
+> 原文：<https://lifehacker.com/put-rum-in-your-capri-sun-1843758255>
 
 你们好，90 年代的孩子们。昨晚，当我在进行每周一次的食品杂货采购时，我听到了一盒亮蓝色的 Capri Sun 果汁袋发出的甜美、怀旧、迷人的歌声。后来，当我通过小小的亮橙色吸管啜饮着甜美的花蜜时，我被穿越时空带到了加利福尼亚州圣迪马斯的汹涌水域停车场。当我回来时，我知道一件事:这个卡普里太阳需要一些朗姆酒。
 

@@ -1,6 +1,6 @@
 # 如何从你的网飞账户启动免费软件
 
-> 原文:[https://life hacker . com/how-to-boot-free loaders-from your-网飞-account-1832025374](https://lifehacker.com/how-to-boot-freeloaders-from-your-netflix-account-1832025374)
+> 原文：<https://lifehacker.com/how-to-boot-freeloaders-from-your-netflix-account-1832025374>
 
 最糟糕的事情莫过于打开你的网飞账户，发现一个黑屏，上面写着:“太多人在使用这个账户。”
 

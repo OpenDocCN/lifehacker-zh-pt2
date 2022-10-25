@@ -1,6 +1,6 @@
 # 和你的孩子一起做“泡泡蛇”
 
-> 原文:[https://life hacker . com/make-bubble-snakes-with-your-kid-1834755473](https://lifehacker.com/make-bubble-snakes-with-your-kid-1834755473)
+> 原文：<https://lifehacker.com/make-bubble-snakes-with-your-kid-1834755473>
 
 如果你想和你的孩子一起寻找简单的科学实验和创意项目，谢尔盖·厄本的任何东西都不会错，又名 [、达德实验室](https://thedadlab.com) 。这位做实验的父亲开始上传他和两个小儿子一起做的活动的片段，父母们一直想要更多。现在，他的视频——包括如何在 [孵化你自己的恐龙冰蛋](https://www.youtube.com/watch?v=YHhgN31nOkk)[制作熔岩灯](https://www.youtube.com/watch?v=mXKLIWmdFAY) 和 [组装空气炮](https://www.youtube.com/watch?v=jK5vHHHcHNI)——有近 6000 万的点击量。厄本的新书 [*【爸爸实验室:父母和孩子的 50 个了不起的科学项目*](https://www.amazon.com/TheDadLab-Awesome-Science-Projects-Parents/dp/0525542698?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/make-bubble-snakes-with-your-kid-1834755473&asc_source=&tag=kinjalifehackerlink-20) 今天出版了，他和我们分享了他最受欢迎的实验之一:泡泡蛇。以下是和你的孩子一起做的方法。
 

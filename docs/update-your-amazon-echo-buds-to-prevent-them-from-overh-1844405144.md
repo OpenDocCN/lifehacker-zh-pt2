@@ -1,6 +1,6 @@
 # 更新你的亚马逊 Echo Buds，防止它们过热
 
-> 原文:[https://life hacker . com/update-your-Amazon-echo-buds-to-prevent-them-overh-1844405144](https://lifehacker.com/update-your-amazon-echo-buds-to-prevent-them-from-overh-1844405144)
+> 原文：<https://lifehacker.com/update-your-amazon-echo-buds-to-prevent-them-from-overh-1844405144>
 
 亚马逊的 Echo Buds 刚刚获得了一个重要的软件更新，可以防止过热问题，并延长电池寿命。然而，你必须鼓起一点勇气在第一时间安装更新，因为在这个过程中你的 Echo Buds 可能会过热。
 

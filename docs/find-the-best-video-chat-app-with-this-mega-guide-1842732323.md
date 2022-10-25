@@ -1,6 +1,6 @@
 # 使用这份大型指南寻找最佳视频聊天应用程序
 
-> 原文:[https://life hacker . com/find-the-best-video-chat-app-with this-mega-guide-1842732323](https://lifehacker.com/find-the-best-video-chat-app-with-this-mega-guide-1842732323)
+> 原文：<https://lifehacker.com/find-the-best-video-chat-app-with-this-mega-guide-1842732323>
 
 我厌倦了回答“我应该使用哪种视频聊天服务？”我不知道哪一个是最好的，因为我不知道你的具体需求是什么，也不知道你愿意忍受多少烦恼——看看你，Zoom 的 40 分钟截止时间——来为你和你的 97 个朋友实现画面完美的视频会议。哦，还有也是免费的。
 

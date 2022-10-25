@@ -1,6 +1,6 @@
 # 了解你的收入和税收负担与其他人相比如何
 
-> 原文:[https://life hacker . com/learn-how-your-income-and-your-tax-burden-comparison-to-o-1833969138](https://lifehacker.com/learn-how-your-income-and-your-tax-burden-compares-to-o-1833969138)
+> 原文：<https://lifehacker.com/learn-how-your-income-and-your-tax-burden-compares-to-o-1833969138>
 
 今年早些时候，Kiplinger 发布了一个税收负担计算器，旨在向我们每个人展示我们与其他美国人相比，在调整后的总收入和纳税额方面如何。
 

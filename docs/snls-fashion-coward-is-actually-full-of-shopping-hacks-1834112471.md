@@ -1,6 +1,6 @@
 # SNL 的“时尚懦夫”实际上充满了购物技巧
 
-> 原文:[https://life hacker . com/snls-fashion-coward-is-full-of-shopping-hacks-1834112471](https://lifehacker.com/snls-fashion-coward-is-actually-full-of-shopping-hacks-1834112471)
+> 原文：<https://lifehacker.com/snls-fashion-coward-is-actually-full-of-shopping-hacks-1834112471>
 
 因为附近没有人劝我不要这么做，上周我走进了一家人类学诊所。我从来没有在那里找到一件适合我的衣服，但今年夏天我有很多婚礼要参加，而且，它就在我们办公室的街对面。
 

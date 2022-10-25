@@ -1,6 +1,6 @@
 # 通过培养正确的习惯变得更快乐
 
-> 原文:[https://life hacker . com/通过培养正确的习惯变得更快乐-1838874942](https://lifehacker.com/become-happier-by-building-the-right-habits-1838874942)
+> 原文：<https://lifehacker.com/become-happier-by-building-the-right-habits-1838874942>
 
 有两种快乐——一种是短暂的，另一种是贯穿一生的。
 

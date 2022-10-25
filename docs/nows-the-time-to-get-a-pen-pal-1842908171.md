@@ -1,6 +1,6 @@
 # 现在是时候找个笔友了
 
-> 原文:[https://life hacker . com/nows-the-time-to-get-a-pen-pal-1842908171](https://lifehacker.com/nows-the-time-to-get-a-pen-pal-1842908171)
+> 原文：<https://lifehacker.com/nows-the-time-to-get-a-pen-pal-1842908171>
 
 随着幽居病的出现和睡衣成为我们的日常穿着，每个人都在试图找到保持距离的社交方式。对于我们中的一些人来说，Zoom 通话、FaceTime 会话和社交媒体让我们与最亲近的人保持足够的联系，这就是最重要的。但对于我们这些喜欢通过旅行与外界保持联系的人来说，结识新朋友和了解不同文化的兴奋似乎遥不可及。
 

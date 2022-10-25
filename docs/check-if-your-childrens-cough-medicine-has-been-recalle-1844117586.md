@@ -1,6 +1,6 @@
 # 检查你的孩子的咳嗽药是否已经被召回
 
-> 原文:[https://life hacker . com/check-if-your-children-咳嗽药已召回-1844117586](https://lifehacker.com/check-if-your-childrens-cough-medicine-has-been-recalle-1844117586)
+> 原文：<https://lifehacker.com/check-if-your-childrens-cough-medicine-has-been-recalle-1844117586>
 
 两名儿童的非处方咳嗽和感冒药被召回，原因是不正确的剂量杯可能会造成意外过量的风险。GSK Consumer Healthcare 主动召回了两种药物:儿童 Robitussin Honey 咳嗽和胸部充血 DM 和儿童 Dimetapp 感冒和咳嗽。
 

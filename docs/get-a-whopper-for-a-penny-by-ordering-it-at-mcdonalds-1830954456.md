@@ -1,6 +1,6 @@
 # 在麦当劳用一便士买一个巨无霸
 
-> 原文:[https://life hacker . com/get-a-whopper-for-a-penny-ordering-it-1830954456](https://lifehacker.com/get-a-whopper-for-a-penny-by-ordering-it-at-mcdonalds-1830954456)
+> 原文：<https://lifehacker.com/get-a-whopper-for-a-penny-by-ordering-it-at-mcdonalds-1830954456>
 
 汉堡王正在对其标志性的巨无霸三明治 进行一项有趣的交易。只要你愿意从麦当劳订购，你就可以花一便士买到一份。
 

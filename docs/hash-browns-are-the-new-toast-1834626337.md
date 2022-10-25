@@ -1,6 +1,6 @@
 # hash browns are the new toast 1834626337
 
-> 原文:[https://life hacker . com/hash-browns-are-the-new-toast-1834626337](https://lifehacker.com/hash-browns-are-the-new-toast-1834626337)
+> 原文：<https://lifehacker.com/hash-browns-are-the-new-toast-1834626337>
 
 说到早餐土豆，我有很多想法和感受。说到薯饼，只有两种可以接受的形式。我的意思是，我不相信有“坏”土豆这种东西，但如果你要声称你的菜单上有“土豆煎饼”，它们最好是切碎的、金黄色的，或者是像快餐一样的肉饼。这些是薯饼的规则，而且很死板。
 

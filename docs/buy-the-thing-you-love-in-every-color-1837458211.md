@@ -1,6 +1,6 @@
 # 购买你喜欢的各种颜色的东西
 
-> 原文:[https://life hacker . com/buy-the-this-you-love-in-every-color-1837458211](https://lifehacker.com/buy-the-thing-you-love-in-every-color-1837458211)
+> 原文：<https://lifehacker.com/buy-the-thing-you-love-in-every-color-1837458211>
 
 夏初，我做了一件大胆的事。我开车去了塔吉特百货，试穿了几件不同的衣服，最后选定了一条舒适的短裤和一件棉质背心，我宣布这是我的“夏季居家办公装”。然后我买了灰色和黑色的短裤，红色、橙色、栗色和白色黄色印花的背心。
 

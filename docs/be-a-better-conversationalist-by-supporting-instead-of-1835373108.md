@@ -1,6 +1,6 @@
 # 通过“支持”而不是“转移”成为一个更好的健谈者
 
-> 原文:[https://life hacker . com/be-a-better-conversatile-by-supporting-to-1835373108](https://lifehacker.com/be-a-better-conversationalist-by-supporting-instead-of-1835373108)
+> 原文：<https://lifehacker.com/be-a-better-conversationalist-by-supporting-instead-of-1835373108>
 
 上一次一个朋友告诉你他们有多忙，你回答说“Omg，一样”了吗？如果你这样做了，你可能就是一位社会学家所说的“ [”会话自恋者](https://www.amazon.com/Pursuit-Attention-Power-Everyday-Life/dp/0195135490/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/be-a-better-conversationalist-by-supporting-instead-of-1835373108&asc_source=&tag=kinjalifehackerlink-20) ，”这可能会破坏你的人际关系。
 

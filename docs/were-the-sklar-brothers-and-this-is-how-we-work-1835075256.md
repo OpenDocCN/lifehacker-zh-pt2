@@ -1,6 +1,6 @@
 # were the sklar brothers and this is how we work 1835075256
 
-> 原文:[https://life hacker . com/were-the-Sklar-brothers-and-this-how-we-work-1835075256](https://lifehacker.com/were-the-sklar-brothers-and-this-is-how-we-work-1835075256)
+> 原文：<https://lifehacker.com/were-the-sklar-brothers-and-this-is-how-we-work-1835075256>
 
 Sklar 兄弟是当今喜剧界最著名的兄弟表演，他们以在各种媒体上的工作而闻名:单口喜剧(包括六张专辑)；像*廉价座位*这样的电视节目以及在*体育中心*和*的亮相最好给索尔*打电话；还有他们的播客 [*Sklarbro 乡村*](https://www.earwolf.com/show/sklarbro-country/)[*观自便宜席*](https://starburns.audio/podcasts/view-from-the-cheap-seats/) ，还有 [*哑民镇*](https://starburns.audio/podcasts/dumb-people-town/) 。我们和他们谈论了他们如何创作一集，他们如何写作和磨练他们的单口相声，以及他们在现场表演中打出其他喜剧演员的笑话。
 

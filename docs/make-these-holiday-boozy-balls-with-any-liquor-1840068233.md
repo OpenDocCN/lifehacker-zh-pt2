@@ -1,6 +1,6 @@
 # 用任何酒做这些节日酒球
 
-> 原文:[https://life hacker . com/make-these-holiday-boozy-balls-with any-liquid-1840068233](https://lifehacker.com/make-these-holiday-boozy-balls-with-any-liquor-1840068233)
+> 原文：<https://lifehacker.com/make-these-holiday-boozy-balls-with-any-liquor-1840068233>
 
 节日需要一定量的过量，无论是糖还是酒精。对一些人来说，这意味着像蛋酒果冻一样的东西，但我们不是某些人。相反，我喜欢把碎饼干、碎坚果和任何我喜欢的酒混合在一起，做一种被称为“的复古甜点。”
 

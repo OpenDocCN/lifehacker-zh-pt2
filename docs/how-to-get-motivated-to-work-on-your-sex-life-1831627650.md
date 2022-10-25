@@ -1,6 +1,6 @@
 # 如何激发你的性生活
 
-> 原文:[https://life hacker . com/how-to-get-motive-to-work-on-your-sex-life-1831627650](https://lifehacker.com/how-to-get-motivated-to-work-on-your-sex-life-1831627650)
+> 原文：<https://lifehacker.com/how-to-get-motivated-to-work-on-your-sex-life-1831627650>
 
 你知道你的性生活并不好。你和你的伴侣因为性生活不和谐而大吵了一架。你读过网上的杂志和文章，告诉你“多做爱”和“增加情趣”然而，你就是不能让自己做出任何改变。请继续阅读，了解如何才能最终找到自己的动力。
 

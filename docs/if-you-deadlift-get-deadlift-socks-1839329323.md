@@ -1,6 +1,6 @@
 # 如果你硬拉，买硬拉袜
 
-> 原文:[https://life hacker . com/if-you-dy lift-get-dy lift-socks-1839329323](https://lifehacker.com/if-you-deadlift-get-deadlift-socks-1839329323)
+> 原文：<https://lifehacker.com/if-you-deadlift-get-deadlift-socks-1839329323>
 
 你不需要特殊的袜子就能 [拿起一个杠铃然后再放下](https://lifehacker.com/why-deadlifts-are-worth-the-hype-and-how-to-do-them-sa-1756526319) 。它们无论如何都不是必需的。但是我发现在我开始穿齐膝袜后，我的硬拉训练进行得更好了，我想如果你还没有试过这种袜子，也许你应该试试。
 

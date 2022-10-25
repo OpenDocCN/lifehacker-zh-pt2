@@ -1,6 +1,6 @@
 # 这些压力对你有什么影响
 
-> 原文:[https://life hacker . com/what-all-this-stress-is-do-to-you 1842834514](https://lifehacker.com/what-all-this-stress-is-doing-to-you-1842834514)
+> 原文：<https://lifehacker.com/what-all-this-stress-is-doing-to-you-1842834514>
 
 进入疫情已经几周了，我们中的许多人都处于生存状态。像去杂货店或与陌生人面对面交谈这样简单的行为已经有了新的不祥的意义。我们的焦虑程度达到了顶点。这为未来提出了一个令人担忧的问题:是的，这一切总有一天会结束，但与此同时，经历这段长期的高压力会有什么持久的影响？
 

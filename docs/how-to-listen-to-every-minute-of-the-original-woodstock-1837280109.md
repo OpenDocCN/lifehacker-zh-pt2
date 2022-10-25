@@ -1,6 +1,6 @@
 # 如何聆听伍德斯托克音乐节的每一分钟
 
-> 原文:[https://life hacker . com/how-to-listen-the-original-Woodstock-1837280109](https://lifehacker.com/how-to-listen-to-every-minute-of-the-original-woodstock-1837280109)
+> 原文：<https://lifehacker.com/how-to-listen-to-every-minute-of-the-original-woodstock-1837280109>
 
 [50 周年伍德斯托克音乐会](https://www.nytimes.com/2019/07/25/arts/music/woodstock-50-maryland.html) 可能不会按原计划进行，但如果你不能参加马里兰州的活动，这里有一些你仍然可以做的事情来庆祝:完整地听 1969 年最初的音乐节。
 

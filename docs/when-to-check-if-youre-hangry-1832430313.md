@@ -1,6 +1,6 @@
 # 何时检查自己是否饥饿
 
-> 原文:[https://life hacker . com/when-to-check-if-you-hangry-1832430313](https://lifehacker.com/when-to-check-if-youre-hangry-1832430313)
+> 原文：<https://lifehacker.com/when-to-check-if-youre-hangry-1832430313>
 
 我一天中最关键的时刻是到家后的前三分钟。我正处于人生的最低点。如果我被要求做决定或解决问题，我会回答无用或急躁。我消除不了那个小蠢期。但是我已经找到了解决办法，通过关注我的身体。
 

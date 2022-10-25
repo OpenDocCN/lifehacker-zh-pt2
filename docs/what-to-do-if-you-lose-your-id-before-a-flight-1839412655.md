@@ -1,6 +1,6 @@
 # 如果您在登机前丢失了身份证，该怎么办
 
-> 原文:[https://life hacker . com/1839412655](https://lifehacker.com/what-to-do-if-you-lose-your-id-before-a-flight-1839412655)
+> 原文：<https://lifehacker.com/what-to-do-if-you-lose-your-id-before-a-flight-1839412655>
 
 你准备去机场，确信你已经按照你的 [装箱单](https://lifehacker.com/heres-your-digital-packing-list-for-your-next-trip-1833526629) 走完了，当你进入你的随身行李时，恐慌开始了——不知怎么的，你的驾照不见了。你翻遍了你的行李箱，追溯了你的每一步，但没有运气。
 

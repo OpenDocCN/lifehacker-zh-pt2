@@ -1,6 +1,6 @@
 # 操场健身挑战赛怎么样？
 
-> 原文:[https://life hacker . com/how-was-the-playground-fitness-challenge-1835946824](https://lifehacker.com/how-was-the-playground-fitness-challenge-1835946824)
+> 原文：<https://lifehacker.com/how-was-the-playground-fitness-challenge-1835946824>
 
 好了，我们已经来到了 [游乐场健身挑战赛](https://lifehacker.com/the-june-fitness-challenge-is-playgrounds-1835210163) 的尾声，虽然如果你玩得开心，你肯定不必停下来。
 

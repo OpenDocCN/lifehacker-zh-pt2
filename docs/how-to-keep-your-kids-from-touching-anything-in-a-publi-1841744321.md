@@ -1,6 +1,6 @@
 # 如何让你的孩子在公共浴室里不碰任何东西
 
-> 原文:[https://life hacker . com/how-to-keep your-kids-from-touching-a-a-publi-1841744321](https://lifehacker.com/how-to-keep-your-kids-from-touching-anything-in-a-publi-1841744321)
+> 原文：<https://lifehacker.com/how-to-keep-your-kids-from-touching-anything-in-a-publi-1841744321>
 
 事情发生在我帮助女儿上厕所的时候，我儿子站在我身后。当我转身面对他时，我刚好捕捉到他决定舔三明治店浴室内扶手的瞬间。这是我唯一一次考虑用肥皂洗他的嘴。然后用同样的肥皂洗我的眼睛。
 

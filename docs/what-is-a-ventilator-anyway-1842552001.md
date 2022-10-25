@@ -1,6 +1,6 @@
 # 到底什么是呼吸机？
 
-> 原文:[https://life hacker . com/what-is-a-ventilator-anyway-1842552001](https://lifehacker.com/what-is-a-ventilator-anyway-1842552001)
+> 原文：<https://lifehacker.com/what-is-a-ventilator-anyway-1842552001>
 
 众所周知，世界各地的医院都缺乏呼吸机——由于冠状病毒而导致呼吸衰竭的患者可能无法获得呼吸所需的帮助。
 

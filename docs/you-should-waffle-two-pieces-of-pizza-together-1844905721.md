@@ -1,6 +1,6 @@
 # 你应该把两片比萨饼放在一起烤
 
-> 原文:[https://life hacker . com/you-should-waffle-two-pizza-pizza-pizza-piece-together-1844905721](https://lifehacker.com/you-should-waffle-two-pieces-of-pizza-together-1844905721)
+> 原文：<https://lifehacker.com/you-should-waffle-two-pieces-of-pizza-together-1844905721>
 
 我很少加热剩下的披萨，只是因为我太喜欢冷披萨了。但是今天早上我醒来的时候还有点宿醉，那一对放了两天的冷多米诺骨牌切片看起来并不那么吸引人。它们是干的，有点硬(我没有把它们包好)，很明显它们需要一点热量(和橄榄油)来使它们令人满意。
 

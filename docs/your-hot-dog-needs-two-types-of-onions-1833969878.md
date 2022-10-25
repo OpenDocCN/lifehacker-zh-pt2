@@ -1,6 +1,6 @@
 # 你的热狗需要两种洋葱
 
-> 原文:[https://life hacker . com/your-hot-dog-needs-two-type-of-onions-1833969878](https://lifehacker.com/your-hot-dog-needs-two-types-of-onions-1833969878)
+> 原文：<https://lifehacker.com/your-hot-dog-needs-two-types-of-onions-1833969878>
 
 很少有什么比调味品监管更无聊迂腐的了。给你的孩子涂番茄酱，我不在乎。我不知道你是否了解食物，但是来自不同地方的不同的人会用不同的方法调味、着装和调味，实际上这很好。
 

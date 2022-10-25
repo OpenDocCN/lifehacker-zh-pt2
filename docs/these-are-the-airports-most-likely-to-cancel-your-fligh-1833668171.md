@@ -1,6 +1,6 @@
 # 这些机场最有可能取消你的航班
 
-> 原文:[https://life hacker . com/这些是最有可能取消您的航班的机场-1833668171](https://lifehacker.com/these-are-the-airports-most-likely-to-cancel-your-fligh-1833668171)
+> 原文：<https://lifehacker.com/these-are-the-airports-most-likely-to-cancel-your-fligh-1833668171>
 
 我们都有一个不惜一切代价试图避开的机场——我的机场是拉瓜迪亚机场。在纽约生活了十年，我知道如果我在 LGA 飞行，我可能会遇到一些旅行中的不幸，无论是航班延误、取消，还是因为腹痛而吃干羊角面包。
 

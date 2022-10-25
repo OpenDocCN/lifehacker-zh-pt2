@@ -1,6 +1,6 @@
 # 有一个早父母和一个晚父母
 
-> 原文:[https://life hacker . com/have-a-morning-parent-and-a-evening-parent-1829770107](https://lifehacker.com/have-a-morning-parent-and-an-evening-parent-1829770107)
+> 原文：<https://lifehacker.com/have-a-morning-parent-and-an-evening-parent-1829770107>
 
 Watch
 

@@ -1,6 +1,6 @@
 # 2018 年写的关于钱的最好的东西
 
-> 原文:[https://life hacker . com/the-best-stuff-written-on-money-2018-1831341700](https://lifehacker.com/the-best-stuff-written-about-money-in-2018-1831341700)
+> 原文：<https://lifehacker.com/the-best-stuff-written-about-money-in-2018-1831341700>
 
 我们有我们最喜欢的[2018](https://twocents.lifehacker.com/the-best-money-stories-of-2018-1831023708)的两美分文章的综述，但当涉及到金钱时，除了实用的“如何做”，还有很多东西需要了解掠夺性贷款者的来龙去脉以及他们如何掠夺人们，学生贷款债务的重量会给一个家庭带来什么，以及关于为什么美国梦不再真正存在的坦率对话，都是值得参与的话题。
 

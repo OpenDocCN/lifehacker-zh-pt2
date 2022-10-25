@@ -1,6 +1,6 @@
 # 在你的下一份汽车保险账单上寻找贷款
 
-> 原文:[https://life hacker . com/look-for-a credit-on-your next-car-insurance-bill-1842797568](https://lifehacker.com/look-for-a-credit-on-your-next-car-insurance-bill-1842797568)
+> 原文：<https://lifehacker.com/look-for-a-credit-on-your-next-car-insurance-bill-1842797568>
 
 最近没走远，是吧？如果你觉得你的车停在外面烧钱，至少你会得到保险公司的折扣。
 

@@ -1,6 +1,6 @@
 # 如何善意地和一个人分手
 
-> 原文:[https://life hacker . com/how-to-break-up-with-someone-kindly-1832651955](https://lifehacker.com/how-to-break-up-with-someone-kindly-1832651955)
+> 原文：<https://lifehacker.com/how-to-break-up-with-someone-kindly-1832651955>
 
 有时候，在一段关系结束的时候，我们非常确定我们不想和对方有任何关系，所以我们很乐意用分手对话来烧焦地球。但是带着一些同情心和同理心去做可能更好。
 

@@ -1,6 +1,6 @@
 # 以下是 2020 年民主党总统候选人结束枪支暴力的计划
 
-> 原文:[https://life hacker . com/heres-every-2020-democratic-candidates-plan-to-end-gun-1836917130](https://lifehacker.com/heres-every-2020-democratic-candidates-plan-to-end-gun-1836917130)
+> 原文：<https://lifehacker.com/heres-every-2020-democratic-candidates-plan-to-end-gun-1836917130>
 
 上周，在底特律辩论中，以及在加利福尼亚州吉尔罗伊和布鲁克林布朗斯维尔枪击案(以及上周末在德克萨斯州埃尔帕索和俄亥俄州代顿发生的枪击案)发生后，枪支管制问题成为民主党候选人的中心议题。枪支暴力——以及不完善的枪支法律——影响了太多美国人的生活，而现任总统政府可以说几乎没有采取任何措施来改变这一事实。(在[2 月](https://www.cnbc.com/2019/02/28/house-passes-gun-control-background-check-bill-trump-pledges-to-veto.html) ，川普承诺否决两项众议院批准的措施，这两项措施将延长背景调查审查期限，并要求对所有枪支销售进行背景调查，包括枪支展览或在线销售。截至周一早上，总统已经 [发推文](https://twitter.com/realDonaldTrump/status/1158330512341164032) 表示支持“强有力的”背景调查，以及令人困惑的“移民改革”)
 

@@ -1,6 +1,6 @@
 # 如何修复最常见的 iMessage 问题
 
-> 原文:[https://life hacker . com/how-to-fix-the-most-common-imessage-problems-1577447675](https://lifehacker.com/how-to-fix-the-most-common-imessage-problems-1577447675)
+> 原文：<https://lifehacker.com/how-to-fix-the-most-common-imessage-problems-1577447675>
 
 iMessage 是进入苹果世界的好处之一:这项服务免除了短信费用，因此你可以免费向其他苹果用户发送信息，它可以在 wifi 上工作，因此你可以在没有手机连接的任何地方发送信息——例如在飞机上，或者在没有数据套餐的情况下出国旅行——即使你的信息历史记录会在登录到 iCloud 的所有设备上同步。
 

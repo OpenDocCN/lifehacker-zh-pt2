@@ -1,6 +1,6 @@
 # 如何确保你的密码没有被盗
 
-> 原文:[https://life hacker . com/how-to-confirm-your-passwords-not-been-they-been-to-beed-1837305758](https://lifehacker.com/how-to-make-sure-your-passwords-havent-been-stolen-1837305758)
+> 原文：<https://lifehacker.com/how-to-make-sure-your-passwords-havent-been-stolen-1837305758>
 
 拥有一个可靠的密码的最大好处之一就是 [你不必更改它](https://lifehacker.com/instead-of-changing-your-passwords-upgrade-them-1836182279) 。如果它是强大的、独一无二的，并且没有被攻击者破坏，那么根据某个任意的时间表对它进行修改不会带来任何安全好处。就这样吧。
 

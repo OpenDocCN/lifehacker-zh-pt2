@@ -1,6 +1,6 @@
 # 我需要一辆有责任心的手动挡家用车！我应该买什么？
 
-> 原文:[https://jalopnik . com/I-need-a-responsible-family-car-with-a-manual-transmission-1840234099](https://jalopnik.com/i-need-a-responsible-family-car-with-a-manual-transmiss-1840234099)
+> 原文：<https://jalopnik.com/i-need-a-responsible-family-car-with-a-manual-transmiss-1840234099>
 
 丹妮尔开的是手动本田飞度——一辆好车！但它越来越破旧，不再适合拖着两个孩子到处跑。她感到了一些压力，想找一份“更有责任感”的工作，但她不想放弃换班的生活。她应该买什么车？
 

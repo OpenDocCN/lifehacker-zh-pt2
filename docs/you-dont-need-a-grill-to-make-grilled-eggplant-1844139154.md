@@ -1,6 +1,6 @@
 # 做烤茄子不需要烤架
 
-> 原文:[https://life hacker . com/you-dont-need-a-grill-to-make-cracked-guillenge-1844139154](https://lifehacker.com/you-dont-need-a-grill-to-make-grilled-eggplant-1844139154)
+> 原文：<https://lifehacker.com/you-dont-need-a-grill-to-make-grilled-eggplant-1844139154>
 
 众所周知，我喜欢茄子 ，多年来，我在烈日下做了所有的准备——只有一个明显的例外。由于家里没有空间放烧烤架，而且强烈厌恶在夏天打开我的烤箱，烤茄子一直是我的烹饪大白鲸。直到现在。
 

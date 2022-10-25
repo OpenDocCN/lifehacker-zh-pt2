@@ -1,6 +1,6 @@
 # 你信用评分的“历史”部分真正衡量的是什么
 
-> 原文:[https://life hacker . com/what-the-history-part-of-your-credit-score-really-measu-1842272878](https://lifehacker.com/what-the-history-part-of-your-credit-score-really-measu-1842272878)
+> 原文：<https://lifehacker.com/what-the-history-part-of-your-credit-score-really-measu-1842272878>
 
 你的信用记录可能是信用评分 中较为混乱的 [部分之一。即使你有良好的信用习惯，你的年龄似乎也会对你不利。但是除了耐心等待毕业到专家水平，你还能做些什么来提高你的分数吗？](https://twocents.lifehacker.com/the-5-factors-behind-your-credit-score-1797277397) 
 

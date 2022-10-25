@@ -1,6 +1,6 @@
 # 让$10K 搬到俄克拉荷马州的塔尔萨
 
-> 原文:[https://life hacker . com/get-10k-to-move-to-Tulsa-Oklahoma-1839507542](https://lifehacker.com/get-10k-to-move-to-tulsa-oklahoma-1839507542)
+> 原文：<https://lifehacker.com/get-10k-to-move-to-tulsa-oklahoma-1839507542>
 
 如果你一直在考虑搬迁，你可能会考虑塔尔萨。
 

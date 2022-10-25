@@ -1,6 +1,6 @@
 # 如果你捡垃圾，你可以在欧洲免费划独木舟
 
-> 原文:[https://life hacker . com/you-can-kayak-in-Europe-for-free-if-you-pick-up-trash-1834918394](https://lifehacker.com/you-can-kayak-in-europe-for-free-if-you-pick-up-trash-1834918394)
+> 原文：<https://lifehacker.com/you-can-kayak-in-europe-for-free-if-you-pick-up-trash-1834918394>
 
 在世界各地，我们的海洋、湖泊和河流充满了垃圾。现在有一堆塑料垃圾在太平洋打转，其中大部分是我们自己乱丢垃圾和不当处理垃圾的结果。在 [欧洲](https://www.theguardian.com/environment/2018/jul/03/most-of-europes-rivers-and-lakes-fail-water-quality-tests-report) 的一些水道遭受同样的乱扔垃圾问题，这导致欧盟禁止 [一次性塑料](https://www.cnn.com/2019/03/28/europe/eu-single-use-plastics-ban-intl-scli/index.html) ，像餐具和袋子，在三月份彻底收回。
 

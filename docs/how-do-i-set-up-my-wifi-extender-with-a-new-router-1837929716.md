@@ -1,6 +1,6 @@
 # 如何使用新路由器设置我的 Wifi 扩展器？
 
-> 原文:[https://life hacker . com/how-do-I-set-up-my-wifi-extender-with-a-new-router-1837929716](https://lifehacker.com/how-do-i-set-up-my-wifi-extender-with-a-new-router-1837929716)
+> 原文：<https://lifehacker.com/how-do-i-set-up-my-wifi-extender-with-a-new-router-1837929716>
 
 在本周 Lifehacker 的 [技术建议专栏](https://lifehacker.com/c/tech-911) 中，我们将回到我们最喜欢的话题:无线网络。这一次，读者在让一个重要的旧设备与一个重要的新设备一起工作时遇到了一些问题。如果你曾经升级过你的路由器，或者打算升级，这种情况应该再熟悉不过了。
 

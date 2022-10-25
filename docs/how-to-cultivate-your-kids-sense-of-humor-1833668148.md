@@ -1,6 +1,6 @@
 # 如何培养孩子的幽默感
 
-> 原文:[https://life hacker . com/how-to-culture-your-kids-幽默感-1833668148](https://lifehacker.com/how-to-cultivate-your-kids-sense-of-humor-1833668148)
+> 原文：<https://lifehacker.com/how-to-cultivate-your-kids-sense-of-humor-1833668148>
 
 "为什么三明治会从浴缸里出来？"我儿子五岁的时候曾经问过我。
 

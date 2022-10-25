@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:我把我带到晚宴上的那瓶未开封的酒带回家了
 
-> 原文:[https://the take out . com/take-home-the-未开封的葡萄酒-我带来参加晚宴-1833850723](https://thetakeout.com/took-home-the-unopened-wine-i-brought-to-dinner-party-1833850723)
+> 原文：<https://thetakeout.com/took-home-the-unopened-wine-i-brought-to-dinner-party-1833850723>
 
 > 亲爱的 Salty:几周前，我被邀请参加一个晚宴。我带了两瓶酒去朋友家，一瓶 T2 起泡酒和一瓶维欧尼。晚餐很有趣，但在晚上结束时，我们仍然没有把 Viognier 从冰箱里拿出来。主人不好意思的说:“要不要把这个带回家？”我认为她并不完全同意那个提议，也许她这样说是出于礼貌。
 > 

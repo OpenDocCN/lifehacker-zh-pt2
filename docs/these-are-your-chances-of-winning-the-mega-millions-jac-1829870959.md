@@ -1,6 +1,6 @@
 # 这是你赢得百万大奖的机会
 
-> 原文:[https://life hacker . com/these-is-your ' s-chance-winning the mega-millions-JAC-1829870959](https://lifehacker.com/these-are-your-chances-of-winning-the-mega-millions-jac-1829870959)
+> 原文：<https://lifehacker.com/these-are-your-chances-of-winning-the-mega-millions-jac-1829870959>
 
 今天早些时候，超级百万头奖 [达到了 10 亿美元](https://abcnews.go.com/US/mega-millions-powerball-lotteries-now-billion-combined-jackpot/story?id=58505714) ，各种因素的综合推动其达到创纪录的水平。
 

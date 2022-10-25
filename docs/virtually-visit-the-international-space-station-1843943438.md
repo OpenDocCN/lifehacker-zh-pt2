@@ -1,6 +1,6 @@
 # 虚拟参观国际空间站
 
-> 原文:[https://life hacker . com/virtually-visit-the-international-space-station-1843943438](https://lifehacker.com/virtually-visit-the-international-space-station-1843943438)
+> 原文：<https://lifehacker.com/virtually-visit-the-international-space-station-1843943438>
 
 经过几个月的社交疏远和呆在家里，许多人都经历了严重的旅游癖。考虑到我们仍处于全球疫情中，离开地球休息一会儿似乎特别有诱惑力。虽然说到太空旅游，我们还不太了解，但由于国际空间站(ISS)的虚拟旅行，我们至少可以一瞥轨道上的生活。
 

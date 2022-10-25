@@ -1,6 +1,6 @@
 # 如何制作吉贝肉丸，一种食肉动物的吉百利蛋
 
-> 原文:[https://the take out . com/recipe-how-to-make-kibbeh-mealls-1834502442](https://thetakeout.com/recipe-how-to-make-kibbeh-meatballs-1834502442)
+> 原文：<https://thetakeout.com/recipe-how-to-make-kibbeh-meatballs-1834502442>
 
 我的家乡， [新城](https://en.wikipedia.org/wiki/New_Castle,_Pennsylvania) ，是宾夕法尼亚州农村的一个铁锈地带移民小镇。那里的酒吧，虽然有时是噩梦般的倒退，但确实提供令人惊讶的美味的 kibbeh，dolmas 和羊肉三明治。叙利亚人、黎巴嫩人、意大利人、希腊人、斯洛伐克人——他们都是在 20 世纪末来到这里，在蓬勃发展的钢铁和锡业中谋生。
 

@@ -1,6 +1,6 @@
 # 修改您的 2018 年纳税申报表，以申请恢复税收抵免和扣除
 
-> 原文:[https://life hacker . com/amend-your-2018-tax-return-to-claim-restored-tax-cred-1841428296](https://lifehacker.com/amend-your-2018-tax-return-to-claim-reinstated-tax-cred-1841428296)
+> 原文：<https://lifehacker.com/amend-your-2018-tax-return-to-claim-reinstated-tax-cred-1841428296>
 
 由于减税和就业法案，2018 年的纳税年度是近代史上最复杂的一年，而 2019 年 12 月通过的税收延期法案将使一切变得更加复杂。有利的一面是，你可能有资格提交修订后的 2018 年纳税申报表，并申请额外的抵免和扣除。
 

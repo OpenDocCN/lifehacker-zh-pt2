@@ -1,6 +1,6 @@
 # 教育你的孩子危险和风险的区别
 
-> 原文:[https://life hacker . com/teach-your-kids-the-difference-danger-and-risk-1833069026](https://lifehacker.com/teach-your-kids-the-difference-between-danger-and-risk-1833069026)
+> 原文：<https://lifehacker.com/teach-your-kids-the-difference-between-danger-and-risk-1833069026>
 
 从 9 岁到 13 岁，在我童年的一段时间里，我住在一所房子里，房子的后院就有一条小溪。我会去街角我朋友的家，我们沿着街道和我们的社区“散步”。
 

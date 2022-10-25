@@ -1,6 +1,6 @@
 # 你并不总是知道谁是高危人群
 
-> 原文:[https://life hacker . com/you-dont-always-know-who is-high-risk-1843730677](https://lifehacker.com/you-dont-always-know-who-is-high-risk-1843730677)
+> 原文：<https://lifehacker.com/you-dont-always-know-who-is-high-risk-1843730677>
 
 美国正朝着重新开放的方向努力，我们中的更多人正计划回去工作，恢复我们的一些正常活动，但冠状病毒本身实际上没有任何变化。它的毒性和致命性一如既往，即使医院挤满高风险患者的风险降低了，这些患者受到感染的风险也不会降低——而且没有办法一眼看出谁是高风险，谁不是。你在杂货店遇到的人，街尾的邻居，你合作过无数次的同事:他们都有可能在你不知情的情况下患上新冠肺炎综合症。
 

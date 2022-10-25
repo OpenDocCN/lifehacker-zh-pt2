@@ -1,6 +1,6 @@
 # 为什么你不应该在脸书玩“有趣的隔离游戏”
 
-> 原文:[https://life hacker . com/why-you-should-not-play-the-fun-quarantine-game-on-face b-1842905586](https://lifehacker.com/why-you-shouldnt-play-that-fun-quarantine-game-on-faceb-1842905586)
+> 原文：<https://lifehacker.com/why-you-shouldnt-play-that-fun-quarantine-game-on-faceb-1842905586>
 
 如果你最近在脸书，你可能会看到大量的【有趣】游戏，建议你告诉每个人你住过的所有街道的名字，或者你拥有的所有汽车的名字，或者你出生那年流行的歌曲。或者建议你上传高中照片的那个怎么样？
 

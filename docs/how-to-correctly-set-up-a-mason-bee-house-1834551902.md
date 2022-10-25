@@ -1,6 +1,6 @@
 # 如何正确设置泥瓦匠蜂房
 
-> 原文:[https://life hacker . com/how-to-right-set-a-mason-bee-house-1834551902](https://lifehacker.com/how-to-correctly-set-up-a-mason-bee-house-1834551902)
+> 原文：<https://lifehacker.com/how-to-correctly-set-up-a-mason-bee-house-1834551902>
 
 梅森蜜蜂非常棒:它们温顺，容易饲养，是春天开花的水果和坚果树的神奇授粉者。这些蜜蜂不像蜜蜂那样使用蜂巢 ，而是喜欢把它们的卵放在狭窄的洞里，用泥堵住(因此得名“泥瓦匠”)。
 

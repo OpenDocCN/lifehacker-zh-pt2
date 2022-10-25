@@ -1,6 +1,6 @@
 # 2019 年比新车最省钱的二手车
 
-> 原文:[https://jalopnik . com/the-used-cars-the-will-save-you-most-over-new-cars-1832587817](https://jalopnik.com/the-used-cars-that-will-save-you-the-most-over-new-cars-1832587817)
+> 原文：<https://jalopnik.com/the-used-cars-that-will-save-you-the-most-over-new-cars-1832587817>
 
 二手车往往比新车更有价值，因为它已经经历了折旧和。虽然一些汽车不会像其他汽车一样遭受同样的下降，但来自 iSeeCars.com 的一项新的研究揭示了与 2019 年的新同行相比节省最多的汽车。
 

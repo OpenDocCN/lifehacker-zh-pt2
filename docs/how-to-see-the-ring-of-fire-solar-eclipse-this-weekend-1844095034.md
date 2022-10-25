@@ -1,6 +1,6 @@
 # 如何在本周末看到“火环”日食
 
-> 原文:[https://life hacker . com/how-to-see-the-ring-of-fire-solar-eclipse-this-weekend-1844095034](https://lifehacker.com/how-to-see-the-ring-of-fire-solar-eclipse-this-weekend-1844095034)
+> 原文：<https://lifehacker.com/how-to-see-the-ring-of-fire-solar-eclipse-this-weekend-1844095034>
 
 你是 2017 年日食的粉丝吗？这是一个我们都在一起的时刻，办公大楼空无一人，人们涌上街头几分钟(现在这看起来很陌生)。大多数人使用护眼，不直视太阳，现在可能正在寻找他们的下一次日食修复。虽然它不会像 2017 年的那次那么大，但本周末世界上一些地方的人们有机会看到一次非常惊人的日食。以下是你需要知道的。
 

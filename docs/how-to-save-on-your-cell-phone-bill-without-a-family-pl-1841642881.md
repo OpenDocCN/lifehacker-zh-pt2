@@ -1,6 +1,6 @@
 # 如何在没有家庭计划的情况下节省手机费用
 
-> 原文:[https://life hacker . com/how-to-save-on-your-phone-bill-without-a family-pl-1841642881](https://lifehacker.com/how-to-save-on-your-cell-phone-bill-without-a-family-pl-1841642881)
+> 原文：<https://lifehacker.com/how-to-save-on-your-cell-phone-bill-without-a-family-pl-1841642881>
 
 人们喜欢吹嘘他们为手机套餐支付的费用有多少。但如果你问他们怎么会有这么低的费率，他们肯定会告诉你两件事中的一件:要么他们参加了家庭计划，要么他们已经参加了相同的计划 14 年，享受了某种令人惊叹的无限服务。
 

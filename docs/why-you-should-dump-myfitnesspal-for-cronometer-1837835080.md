@@ -1,6 +1,6 @@
 # 为什么你应该把我的手表换成计时器
 
-> 原文:[https://life hacker . com/why-you-should-dump-myfitnesspal-for-cronometer-1837835080](https://lifehacker.com/why-you-should-dump-myfitnesspal-for-cronometer-1837835080)
+> 原文：<https://lifehacker.com/why-you-should-dump-myfitnesspal-for-cronometer-1837835080>
 
 Myfitnesspal 似乎是健身界默认的卡路里计数器，我想不出任何好的理由来解释为什么。当你试图记录你的食物时，它试图向你显示广告和文章，将你的运动卡路里放入屏幕顶部的一个等式中( [不是一个很好的跟踪方式，老实说](https://lifehacker.com/for-accurate-calorie-counts-don-t-track-your-activitie-1769445569) )，它的食物数据库是一个不准确列表的雷区。还有更好的应用程序，我最喜欢的是一个不太为人所知的: [Cronometer](https://cronometer.com) 。
 

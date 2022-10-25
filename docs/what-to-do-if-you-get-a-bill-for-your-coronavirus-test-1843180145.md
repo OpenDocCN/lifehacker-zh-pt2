@@ -1,6 +1,6 @@
 # 如果你收到冠状病毒检测的账单，该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-you-get-a-bill-for-you-coronavirus-test-1843180145](https://lifehacker.com/what-to-do-if-you-get-a-bill-for-your-coronavirus-test-1843180145)
+> 原文：<https://lifehacker.com/what-to-do-if-you-get-a-bill-for-your-coronavirus-test-1843180145>
 
 你不应该收到冠状病毒测试的账单。但是任何一个曾经收到过意外医疗账单的人都会告诉你，仅仅因为你不希望被起诉并不意味着你不会被起诉。
 

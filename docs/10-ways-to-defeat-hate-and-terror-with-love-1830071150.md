@@ -1,6 +1,6 @@
 # 用爱战胜仇恨和恐怖的 10 种方法
 
-> 原文:[https://www . the root . com/10-用爱战胜仇恨和恐怖的方法-1830071150](https://www.theroot.com/10-ways-to-defeat-hate-and-terror-with-love-1830071150)
+> 原文：<https://www.theroot.com/10-ways-to-defeat-hate-and-terror-with-love-1830071150>
 
 即使对于一个充满悲剧和恐怖的 2018 年来说，上周也是特别残酷的。有针对著名民主党人和总统批评者的暗杀企图。一名白人开枪 [在肯塔基州一家杂货店](https://www.theroot.com/whites-don-t-shoot-whites-said-alleged-kroger-shoote-1830003860) 打死两名黑人。那个人试图先进入一个黑人教堂，但幸运的是，门是锁着的。然后，当然，在我的家乡匹兹堡的生命之树犹太教堂发生了恐怖袭击。
 

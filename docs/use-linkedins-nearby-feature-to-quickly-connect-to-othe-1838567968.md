@@ -1,6 +1,6 @@
 # 使用 LinkedIn 的“附近”功能快速联系其他活动参与者
 
-> 原文:[https://life hacker . com/use-linkedins-nearly-feature-to-quick-connect-to-othe-1838567968](https://lifehacker.com/use-linkedins-nearby-feature-to-quickly-connect-to-othe-1838567968)
+> 原文：<https://lifehacker.com/use-linkedins-nearby-feature-to-quickly-connect-to-othe-1838567968>
 
 每当你去参加一个会议或社交活动时，总会有一个时间点，在所有事情结束后，你试图找出如何与你见过的人保持联系，至少是其中的一些人。
 

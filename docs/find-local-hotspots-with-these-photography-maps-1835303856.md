@@ -1,6 +1,6 @@
 # 使用这些摄影地图查找当地热点
 
-> 原文:[https://life hacker . com/find-local-hotspots-with these-photography-maps-1835303856](https://lifehacker.com/find-local-hotspots-with-these-photography-maps-1835303856)
+> 原文：<https://lifehacker.com/find-local-hotspots-with-these-photography-maps-1835303856>
 
 Lifehacker 刚搬到时代广场，在一个为游客服务的社区工作感觉怪怪的。我想对他们吼，“我*有*在这里，但是你们可以离开！救救你自己！” [没人应该去时代广场](https://lifehacker.com/where-to-go-instead-of-times-square-when-visiting-nyc-1818842099) 。作为一个旅行者，如果你想避开一个城市最大的游客拥挤，但你仍然想看到一些有趣的东西，看看这些 [的热图，那里的游客和当地人在世界各地拍了最多的照片](https://labs.mapbox.com/labs/twitter-gnip/locals/#) 。
 

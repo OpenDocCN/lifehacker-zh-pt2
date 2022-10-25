@@ -1,6 +1,6 @@
 # 用烧焦的洋葱改变任何奶油调料
 
-> 原文:[https://life hacker . com/transform-any-creamy-dressing-with-burned-onion-1837851760](https://lifehacker.com/transform-any-creamy-dressing-with-burnt-onion-1837851760)
+> 原文：<https://lifehacker.com/transform-any-creamy-dressing-with-burnt-onion-1837851760>
 
 当你第一次开始烹饪时，你被告知烧焦的食物不好。如果情景喜剧作家希望向观众传达一个家庭主妇不称职的信息，他们通常会让她烧晚餐，并可能触发烟雾报警器，这样就能引起笑声。但是有些东西真的很好烧。洋葱是其中之一。
 

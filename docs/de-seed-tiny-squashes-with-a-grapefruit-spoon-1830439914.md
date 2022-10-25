@@ -1,6 +1,6 @@
 # 用葡萄柚勺给小南瓜去籽
 
-> 原文:[https://life hacker . com/de-seed-tiny-squasions-with a-葡萄柚勺-1830439914](https://lifehacker.com/de-seed-tiny-squashes-with-a-grapefruit-spoon-1830439914)
+> 原文：<https://lifehacker.com/de-seed-tiny-squashes-with-a-grapefruit-spoon-1830439914>
 
 我喜欢小南瓜。它们具有装饰性葫芦的视觉吸引力，但你可以吃它们，这是一种进步。但是它们的小尺寸会使它们去籽有点困难，并且普通勺子的光滑边缘没有有效去除粘糊糊的绳子和种子所需的刮力。这就是我转向葡萄柚勺的原因。
 

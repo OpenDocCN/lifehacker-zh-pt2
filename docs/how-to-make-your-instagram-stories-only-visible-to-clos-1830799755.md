@@ -1,6 +1,6 @@
 # 如何让你的 Instagram 故事只对“密友”可见
 
-> 原文:[https://life hacker . com/how-to-make-your-insta gram-stories-only-visible-to-clos-1830799755](https://lifehacker.com/how-to-make-your-instagram-stories-only-visible-to-clos-1830799755)
+> 原文：<https://lifehacker.com/how-to-make-your-instagram-stories-only-visible-to-clos-1830799755>
 
 Instagram 是像 Twitter 一样的平台之一，我一直认为我发布的内容对大众是可见的。是的，我知道两者都有一个“私人”账户选项，但我一直认为两者的价值在于与你圈子之外的人互动。
 

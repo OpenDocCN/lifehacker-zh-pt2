@@ -1,6 +1,6 @@
 # 2019 年全国饼干日在哪里可以获得免费饼干
 
-> 原文:[https://life hacker . com/where-to-get-free-cookies-on-national-cookie-day-2019-1840171602](https://lifehacker.com/where-to-get-free-cookies-on-national-cookie-day-2019-1840171602)
+> 原文：<https://lifehacker.com/where-to-get-free-cookies-on-national-cookie-day-2019-1840171602>
 
 12 月 4 日星期三是全国饼干日，公司向公众发放免费饼干，这听起来像是脸书婴儿潮一代说的话。以下连锁店提供免费饼干，无需购买。
 

@@ -1,6 +1,6 @@
 # 使用 OneTab 组织您的浏览器选项卡，但也要备份它们
 
-> 原文:[https://life hacker . com/organize-your-browser-tabs-with-one tab-but-back-them-u-1837740779](https://lifehacker.com/organize-your-browser-tabs-with-onetab-but-back-them-u-1837740779)
+> 原文：<https://lifehacker.com/organize-your-browser-tabs-with-onetab-but-back-them-u-1837740779>
 
 我喜欢 [OneTab](https://lifehacker.com/speed-up-google-chrome-with-this-tab-reducing-extension-1831909030) ，你也应该喜欢。这是一个非常简单的方法，可以把你一直保存在浏览器窗口中的标签页浓缩成一个单一的、易于浏览的网页。我经常使用这个扩展，它帮助我把过多的标签问题变得更容易处理。
 

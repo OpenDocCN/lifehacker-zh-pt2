@@ -1,6 +1,6 @@
 # 今天让你沾满酱汁的手尝尝免费的鸡翅吧
 
-> 原文:[https://life hacker . com/get-your-sauce-covered-hands-on-some-free-chicken-wings-1844534012](https://lifehacker.com/get-your-sauce-covered-hands-on-some-free-chicken-wings-1844534012)
+> 原文：<https://lifehacker.com/get-your-sauce-covered-hands-on-some-free-chicken-wings-1844534012>
 
 这是全国鸡翅日——是庆祝美国传统的时候了，人们将之前丢弃的鸡翅部分油炸，涂上黄油和辣酱，然后高价出售。嗯，技术上来说，那些是(起源于 1964 年纽约州布法罗的锚吧)。鸡翅本身——油炸的或其他形式的——已经存在 [很久了](https://www.nationalchickencouncil.org/chicken-wing-history/#:~:text=Deep%2Dfried%20chicken%20wings%20have,her%20son%20and%20his%20friends.) 。
 

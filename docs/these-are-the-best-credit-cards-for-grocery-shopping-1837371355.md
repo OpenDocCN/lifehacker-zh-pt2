@@ -1,6 +1,6 @@
 # 这些是购物的最佳信用卡
 
-> 原文:[https://life hacker . com/thes-is-the-best-the-credit-cards-for-杂货购物-1837371355](https://lifehacker.com/these-are-the-best-credit-cards-for-grocery-shopping-1837371355)
+> 原文：<https://lifehacker.com/these-are-the-best-credit-cards-for-grocery-shopping-1837371355>
 
 旅行奖励信用卡用户似乎拥有所有的乐趣，不是吗？但对于所有试图获得升级的飞机乘客来说，有很多人更喜欢返现信用卡的简单性。为什么不把重点放在一个能给你额外津贴，让你把钱花在一个非常真实的必需品上:食品杂货？
 

@@ -1,6 +1,6 @@
 # 谷歌新的“一键式”安卓登录是如何工作的
 
-> 原文:[https://life hacker . com/how-Google-new-one-tap-Android-sign-ins-work-1844056789](https://lifehacker.com/how-googles-new-one-tap-android-sign-ins-work-1844056789)
+> 原文：<https://lifehacker.com/how-googles-new-one-tap-android-sign-ins-work-1844056789>
 
 使用你的谷歌账户注册一个网站或应用程序比每次创建一个新的账户和密码要容易得多，但也有风险。一个很好的选择是使用 [一个加密的密码管理器](https://lifehacker.com/the-five-best-password-managers-5529133) 来跟踪你的账户(和唯一的密码)，但是你仍然必须首先*让*所有那些账户。
 

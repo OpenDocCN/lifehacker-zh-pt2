@@ -1,6 +1,6 @@
 # 在哪里租借、购买或播放今年奥斯卡提名的电影
 
-> 原文:[https://life hacker . com/where-to-rent-buy-or-stream-this-years 奥斯卡提名-1840995571](https://lifehacker.com/where-to-rent-buy-or-stream-this-years-oscar-nominated-1840995571)
+> 原文：<https://lifehacker.com/where-to-rent-buy-or-stream-this-years-oscar-nominated-1840995571>
 
 本周，今年奥斯卡金像奖的提名揭晓。凭借 11 项提名，*小丑*显然是投票者的最爱，同时获得最佳影片和乔阿金·菲尼克斯最佳男主角提名。紧随小丑之后的是《1917 年》和昆汀·塔伦蒂诺的《好莱坞往事》，这两部电影都获得了 10 项提名。小妇人也获得了六项提名，尽管投票者冷落了最佳导演格蕾塔·葛韦格。(尽管早期奥斯卡呼声很高，詹妮弗·洛佩兹也因在《好色客》中的角色而受到冷落，这导致了对奥斯卡缺乏多样性的批评。)
 

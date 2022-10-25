@@ -1,6 +1,6 @@
 # 如何在年轻时不搞砸买车
 
-> 原文:[https://jalopnik . com/how-to-not-mess-up-you-young-1835646606](https://jalopnik.com/how-to-not-mess-up-buying-a-car-when-youre-young-1835646606)
+> 原文：<https://jalopnik.com/how-to-not-mess-up-buying-a-car-when-youre-young-1835646606>
 
 我是一名专业的汽车购买者，已经帮助数百人找到了合适的汽车并获得了有竞争力的交易，在这一过程中，我与许多第一次进入汽车购买市场的年轻人交谈过。我也和那些在早期做出一些错误举动并让自己陷入困境的人有过太多的交谈。以下是避免这种情况的方法。
 

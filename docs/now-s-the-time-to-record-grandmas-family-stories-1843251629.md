@@ -1,6 +1,6 @@
 # 现在是时候记录奶奶的家庭故事了
 
-> 原文:[https://life hacker . com/now-s-the-time-to-record-grandmas-family-stories-1843251629](https://lifehacker.com/now-s-the-time-to-record-grandmas-family-stories-1843251629)
+> 原文：<https://lifehacker.com/now-s-the-time-to-record-grandmas-family-stories-1843251629>
 
 如果你足够幸运，在你的生活中有一个年长的人——无论是父母、祖父母、姑姑、叔叔，甚至是家人的朋友——要知道你基本上可以接触到历史的一个活生生的部分。作为一个孩子，你可能对听他们过去的故事不感兴趣，但作为一个成年人，你更容易看到从他们的经历中学习的价值。也许你甚至谈论过坐下来，记录他们讲述自己的故事，或者回答关于他们成长过程中的生活的问题。在可预见的未来，我们都被困在家里，所以现在是时候了。
 

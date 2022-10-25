@@ -1,6 +1,6 @@
 # 最后，我心爱的舒尔耳塞实现了出色的蓝牙升级
 
-> 原文:[https://gizmodo . com/finally-the-slick-bluetooth-upgrade-my-loved-shure-e-1831477091](https://gizmodo.com/finally-the-slick-bluetooth-upgrade-my-beloved-shure-e-1831477091)
+> 原文：<https://gizmodo.com/finally-the-slick-bluetooth-upgrade-my-beloved-shure-e-1831477091>
 
 Gizmodo 的高级编辑 Adam Clark Estes 每年都会告诉我，他的 [发现了一副真正与众不同的](https://gizmodo.com/the-best-wireless-headphones-you-can-buy-right-now-1830336665#_ga=2.238254917.49310993.1546382402-422248777.1525353160) 耳机，所以作为一名耳机收藏者，我有义务尝试一下。通常，他是对的！但当谈到入耳式耳机时，他的建议让我充满遗憾，我的钱包空得可怜。你不能只是借用你朋友的入耳式耳机或耳塞——这太恶心了。所以亚当推荐了一副耳塞，告诉我它们非常合适，我买了之后立刻就讨厌上了，谢天谢地，我的室友和我爸爸没有因为共用耳塞而有同样的困扰，你知道吗？
 

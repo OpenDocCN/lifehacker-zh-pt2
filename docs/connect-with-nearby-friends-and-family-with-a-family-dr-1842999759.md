@@ -1,6 +1,6 @@
 # 通过“家庭投件箱”与附近的朋友和家人联系
 
-> 原文:[https://life hacker . com/connect-with-near-friends-and-family-with-a-family-dr-1842999759](https://lifehacker.com/connect-with-nearby-friends-and-family-with-a-family-dr-1842999759)
+> 原文：<https://lifehacker.com/connect-with-nearby-friends-and-family-with-a-family-dr-1842999759>
 
 三月初，当我丈夫的父母从佛罗里达旅行回来时，我去机场接他们，我和儿子用肘碰了碰他们，以示问候，取代了我们通常的拥抱。从那天晚上开始，我们就再也没有靠近过他们六英尺以内的地方，尽管他们住的地方离我们家只有七分钟的车程，我们也习惯了在特殊场合定期聚在一起，烧烤、家庭聚餐，还有我儿子的足球和篮球比赛。
 

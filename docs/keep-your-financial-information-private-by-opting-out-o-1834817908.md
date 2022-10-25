@@ -1,6 +1,6 @@
 # 立即更新您的 Google Pay 隐私设置
 
-> 原文:[https://life hacker . com/keep-your-financial-information-private-by-option-out-o-1834817908](https://lifehacker.com/keep-your-financial-information-private-by-opting-out-o-1834817908)
+> 原文：<https://lifehacker.com/keep-your-financial-information-private-by-opting-out-o-1834817908>
 
 [Google Pay 是一种便捷的方式](https://lifehacker.com/how-to-use-google-pay-1823164280) 将您的各种支付方式整合在一个账户下，使网上购物更加简化。然而，如果你担心谷歌有能力与他人分享多少你的个人数据和信用信息，你可能会考虑退出几个默认的谷歌支付选项。
 

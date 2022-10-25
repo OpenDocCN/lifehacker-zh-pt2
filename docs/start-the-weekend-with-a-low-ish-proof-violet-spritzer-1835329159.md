@@ -1,6 +1,6 @@
 # 用一杯低度紫罗兰汽酒开始周末
 
-> 原文:[https://life hacker . com/start-of-a-low-ish-proof-violet-spritzer-1835329159](https://lifehacker.com/start-the-weekend-with-a-low-ish-proof-violet-spritzer-1835329159)
+> 原文：<https://lifehacker.com/start-the-weekend-with-a-low-ish-proof-violet-spritzer-1835329159>
 
 葡萄酒烈酒有一个做作的名声，但就像大多数被视为“娘娘腔”的东西一样，它们非常美味。当你想啜饮一口而不想在第二天毁掉自己时，它们也是一种很好的低酒精饮料。
 

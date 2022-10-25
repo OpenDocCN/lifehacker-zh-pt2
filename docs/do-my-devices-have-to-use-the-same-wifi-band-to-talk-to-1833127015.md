@@ -1,6 +1,6 @@
 # 我的设备必须使用相同的 Wifi 频段才能相互通话吗？
 
-> 原文:[https://life hacker . com/do-my-devices-have-to-use-the-same-wifi-band-to-talk-to-1833127015](https://lifehacker.com/do-my-devices-have-to-use-the-same-wifi-band-to-talk-to-1833127015)
+> 原文：<https://lifehacker.com/do-my-devices-have-to-use-the-same-wifi-band-to-talk-to-1833127015>
 
 [Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)) : title[![](../Images/be764d30b532adad70daeee8be76d9d7.png)](https://wifiguide.kinja.com)[Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)Wireless networking is complicated, but it doesn't have to be. Let us help you out.
 

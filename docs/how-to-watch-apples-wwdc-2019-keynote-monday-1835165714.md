@@ -1,6 +1,6 @@
 # 如何观看苹果周一的 WWDC 2019 主题演讲
 
-> 原文:[https://life hacker . com/how-to-watch-apple-wwdc-2019-keynote-Monday-1835165714](https://lifehacker.com/how-to-watch-apples-wwdc-2019-keynote-monday-1835165714)
+> 原文：<https://lifehacker.com/how-to-watch-apples-wwdc-2019-keynote-monday-1835165714>
 
 苹果全球开发者大会于周一在加州圣何塞正式开幕。如果你没能抢到今年会议的门票(或者你只是对软件发布感兴趣)，你可以在网上看到很多活动。
 

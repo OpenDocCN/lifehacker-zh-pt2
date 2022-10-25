@@ -1,6 +1,6 @@
 # 如何以及为什么开始写日记
 
-> 原文:[https://life hacker . com/why-you-should-keep-a-journal-and-how-start-yours-1547057185](https://lifehacker.com/why-you-should-keep-a-journal-and-how-to-start-yours-1547057185)
+> 原文：<https://lifehacker.com/why-you-should-keep-a-journal-and-how-to-start-yours-1547057185>
 
 一些历史上最有影响力的人详细记录了他们的生活，包括查尔斯·达尔文、玛丽·居里、托马斯·爱迪生和弗里达·卡罗。这些日记有两个目的:为后代留下永久的记录，并且，对于写日记的人来说，可能是一种宣泄。
 

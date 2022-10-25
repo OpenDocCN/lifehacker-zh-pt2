@@ -1,6 +1,6 @@
 # 抱歉，冬天的早晨直到一月才会变亮
 
-> 原文:[https://life hacker . com/sorry-winter-mornings-wont-get-brighter-unt-to-January-1840510029](https://lifehacker.com/sorry-winter-mornings-wont-get-brighter-until-january-1840510029)
+> 原文：<https://lifehacker.com/sorry-winter-mornings-wont-get-brighter-until-january-1840510029>
 
 如果你急切地等待这个周末的冬至，因为这是一年中最短的一天——因此此后的每一天都会稍微长一点——我有一些坏消息:虽然总的白天长度会变长，但日出实际上会持续推迟一段时间，这意味着我们会有更黑暗的早晨。
 

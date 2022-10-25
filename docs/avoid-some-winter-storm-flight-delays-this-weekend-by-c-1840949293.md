@@ -1,6 +1,6 @@
 # 免费改签您的航班，避免本周末的冬季暴风雪航班延误
 
-> 原文:[https://life hacker . com/avoid-some-winter-storm-flight-delays-this-weekend-by-c-1840949293](https://lifehacker.com/avoid-some-winter-storm-flight-delays-this-weekend-by-c-1840949293)
+> 原文：<https://lifehacker.com/avoid-some-winter-storm-flight-delays-this-weekend-by-c-1840949293>
 
 如果你这个周末要去新英格兰、五大湖或平原地区，或者途经这些地方，那么你可能要考虑改签机票了。
 

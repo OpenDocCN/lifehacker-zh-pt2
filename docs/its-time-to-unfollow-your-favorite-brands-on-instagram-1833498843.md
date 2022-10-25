@@ -1,6 +1,6 @@
 # 是时候在 Instagram 上取消关注你最喜欢的品牌了
 
-> 原文:[https://life hacker . com/its-time-to-un follow-your favorite-brands-on-insta gram-1833498843](https://lifehacker.com/its-time-to-unfollow-your-favorite-brands-on-instagram-1833498843)
+> 原文：<https://lifehacker.com/its-time-to-unfollow-your-favorite-brands-on-instagram-1833498843>
 
 Instagram 本周在 Instagram 上推出了 [Checkout，这使得用户无需离开应用程序就可以购买产品(之前，用户可以点击一个产品，然后会被引导到零售商的网站上完成购买)。换句话说，从 Instagram 上购买一件新毛衣或一双高跟鞋的冲动太容易了。所以，如果你想削减可自由支配的开支，你应该采取以下几个步骤。](https://instagram-press.com/blog/2019/03/19/instagram-checkout/) 
 

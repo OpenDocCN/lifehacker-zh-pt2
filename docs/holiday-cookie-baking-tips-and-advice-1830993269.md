@@ -1,6 +1,6 @@
 # 烘烤 5000 块节日饼干的经验教训
 
-> 原文:[https://the take out . com/holiday-cookie-baking-tips-and-advice-1830993269](https://thetakeout.com/holiday-cookie-baking-tips-and-advice-1830993269)
+> 原文：<https://thetakeout.com/holiday-cookie-baking-tips-and-advice-1830993269>
 
 感恩节后的一周应该是一个休息和恢复的时间，在第二波假日狂热崩溃之前的几天短暂休息。在我家不是这样的。每年，我和妈妈都要承担一项极其艰巨的任务:烘烤、装箱和递送几十个圣诞饼干护理包。今年，我们做了 40 个。
 

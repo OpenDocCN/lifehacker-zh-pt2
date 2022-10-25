@@ -1,6 +1,6 @@
 # 你的择期手术会推迟多久？
 
-> 原文:[https://life hacker . com/your-selective-surgery-be-delay-1842459948](https://lifehacker.com/how-long-will-your-elective-surgery-be-delayed-1842459948)
+> 原文：<https://lifehacker.com/how-long-will-your-elective-surgery-be-delayed-1842459948>
 
 在全国各地，随着新冠肺炎病例的增加，医护人员正在做出艰难的决定，哪些程序需要优先处理，哪些需要推迟。这包括选择性手术——事先安排好的程序，不构成医疗紧急情况。
 

@@ -1,6 +1,6 @@
 # 偷车贼喜欢在万圣节作案
 
-> 原文:[https://jalopnik . com/car-snowers-love-to-strike-on-Halloween-1830137568](https://jalopnik.com/car-thieves-love-to-strike-on-halloween-1830137568)
+> 原文：<https://jalopnik.com/car-thieves-love-to-strike-on-halloween-1830137568>
 
 当你还是个孩子的时候，万圣节就是扔掉你妈妈坚持让你穿在戏服外面的冬衣，并尽可能多地得到糖果。作为一个成年人，万圣节通常意味着喝醉，花 11 月 1 日试图记住你把车停在哪里。要特别注意最后一点，因为万圣节显然是偷车贼最喜欢的节日之一。
 

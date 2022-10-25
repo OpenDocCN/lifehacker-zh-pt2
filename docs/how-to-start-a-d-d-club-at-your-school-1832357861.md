@@ -1,6 +1,6 @@
 # 如何在你的学校成立一个 D&D 俱乐部
 
-> 原文:[https://life hacker . com/how-to-start-a-d-d-club-at-your-school-1832357861](https://lifehacker.com/how-to-start-a-d-d-club-at-your-school-1832357861)
+> 原文：<https://lifehacker.com/how-to-start-a-d-d-club-at-your-school-1832357861>
 
 Ethan Schoonover ( [在西雅图被他的学生称为 e 先生](https://twitter.com/ethanschoonover) )最近在推特上描述了他如何在他的女子中学创办了一个龙与地下城俱乐部——你也可以这样做。
 

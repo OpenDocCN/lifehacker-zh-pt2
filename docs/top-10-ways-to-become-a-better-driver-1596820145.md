@@ -1,6 +1,6 @@
 # 如何成为一名更好的司机
 
-> 原文:[https://life hacker . com/top-10-ways-to-be-a-better-driver-1596820145](https://lifehacker.com/top-10-ways-to-become-a-better-driver-1596820145)
+> 原文：<https://lifehacker.com/top-10-ways-to-become-a-better-driver-1596820145>
 
 回想一下你第一次学开车的时候。你生活中的一个成年人可能会告诉你，开车是一种责任和特权，尽管你每天的通勤听起来不完全像是一种特权，但你仍然有责任在路上保持安全。无论你是一名经验丰富的司机，还是刚刚完成驾驶课程，在驾驶方面总有改进的空间。这里有 10 件你可以做的事情来磨练你的安全，聪明的驾驶技能。
 

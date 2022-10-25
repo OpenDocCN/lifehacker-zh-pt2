@@ -1,6 +1,6 @@
 # 这奶酪玉米片怎么样？
 
-> 原文:[https://thetakeout.com/will-this-cheese-nacho-1833651436](https://thetakeout.com/will-this-cheese-nacho-1833651436)
+> 原文：<https://thetakeout.com/will-this-cheese-nacho-1833651436>
 
 “上帝做了什么？！?"当我在隔壁房间疯狂地搅拌着一罐冒泡的奶酪时，我的一位客人惊呼道。在那个时候，我知道今晚一切都很顺利。
 

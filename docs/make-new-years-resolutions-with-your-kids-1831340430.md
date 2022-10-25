@@ -1,6 +1,6 @@
 # 和你的孩子一起制定新年计划
 
-> 原文:[https://life hacker . com/make-new-years-resolutions-with-your-kids-1831340430](https://lifehacker.com/make-new-years-resolutions-with-your-kids-1831340430)
+> 原文：<https://lifehacker.com/make-new-years-resolutions-with-your-kids-1831340430>
 
 我知道，我知道。在我们刚刚度过的一年之后，你不想为自己制定计划，更别说和你的孩子了。但是，如果你以正确的方式对待它，当你的孩子处于最佳年龄时(5-12 岁是开始这个的最佳年龄)，你可以让他们在未来养成良好的目标设定习惯。另外，为你的孩子树立榜样可能会成为你最终坚定自己决心的动力。
 

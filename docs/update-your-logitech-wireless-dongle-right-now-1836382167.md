@@ -1,6 +1,6 @@
 # 立即更新您的罗技无线加密狗
 
-> 原文:[https://life hacker . com/update-your-Logitech-wireless-dongle-right-now-1836382167](https://lifehacker.com/update-your-logitech-wireless-dongle-right-now-1836382167)
+> 原文：<https://lifehacker.com/update-your-logitech-wireless-dongle-right-now-1836382167>
 
 几年前，黑客 [发现](https://www.bastille.net/research/vulnerabilities/mousejack) 可以利用罗技无线加密狗的漏洞远程控制一台电脑。据 [The Verge](https://www.theverge.com/2019/7/14/20692471/logitech-mousejack-wireless-usb-receiver-vulnerable-hack-hijack) 报道，罗技今天*推出的加密狗仍然容易受到同样的远程访问攻击——被称为“鼠标劫持”—包括制造商的统一接收器和 G900 无线游戏鼠标的列表。*
 

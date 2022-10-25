@@ -1,6 +1,6 @@
 # 如何防止市场下跌影响你的退休生活
 
-> 原文:[https://life hacker . com/how-to-prevent-market-dips-tanking-your-retirement-1831617500](https://lifehacker.com/how-to-prevent-market-dips-from-tanking-your-retirement-1831617500)
+> 原文：<https://lifehacker.com/how-to-prevent-market-dips-from-tanking-your-retirement-1831617500>
 
 对于那些还有几十年才退休的人来说，市场波动只是投资过程的一部分。只要你的资产配置符合你的风险承受能力，你或多或少可以高枕无忧，忽略日常走势，当事情变得艰难时，关掉 CNN 和。但是对于新退休的人和几年后即将退休的人来说，一个暴跌的市场是一个更可怕的前景。
 

@@ -1,6 +1,6 @@
 # 如何在鸡尾酒中使用 Aquavit
 
-> 原文:[https://life hacker . com/how-to-use-aqua vit-in-cocktails-1834089133](https://lifehacker.com/how-to-use-aquavit-in-cocktails-1834089133)
+> 原文：<https://lifehacker.com/how-to-use-aquavit-in-cocktails-1834089133>
 
 如果我的丹麦之旅教会了我任何关于酒精的事情，那就是我没有喝足够的杜松子酒。如果说它教会了我第二件事，那就是我绝对没有喝足够的水。如果它(不知何故)设法教会了我另一件事，那就是我早就应该把这两种饮料混合在一起了。
 

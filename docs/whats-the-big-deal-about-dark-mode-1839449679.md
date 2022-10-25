@@ -1,6 +1,6 @@
 # 黑暗模式有什么大不了的？
 
-> 原文:[https://life hacker . com/what-the-big-deal-about-dark-mode-1839449679](https://lifehacker.com/whats-the-big-deal-about-dark-mode-1839449679)
+> 原文：<https://lifehacker.com/whats-the-big-deal-about-dark-mode-1839449679>
 
 拥抱你的阴暗面。
 

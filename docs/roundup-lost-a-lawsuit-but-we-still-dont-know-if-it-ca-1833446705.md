@@ -1,6 +1,6 @@
 # Roundup 输掉了一场官司，但我们仍然不知道它是否会导致癌症
 
-> 原文:[https://life hacker . com/round up-lost-a-court-but-we-don ' t-know-if-it-ca-1833446705](https://lifehacker.com/roundup-lost-a-lawsuit-but-we-still-dont-know-if-it-ca-1833446705)
+> 原文：<https://lifehacker.com/roundup-lost-a-lawsuit-but-we-still-dont-know-if-it-ca-1833446705>
 
 本周 [陪审团发现](https://www.wsj.com/articles/jury-finds-bayers-roundup-weedkiller-caused-mans-cancer-11553030151) 一名男子在自家院子里使用草甘膦除草剂农达是导致他多年后患上癌症的“重要因素”。但是法庭案例不是科学研究，科学家们在草甘膦是否真的应该被认为是致癌物的问题上仍然存在分歧。
 

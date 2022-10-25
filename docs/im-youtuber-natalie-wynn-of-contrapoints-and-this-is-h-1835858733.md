@@ -1,6 +1,6 @@
 # im youtuber natalie wynn of contrapoints and this is h 1835858733
 
-> 原文:[https://life hacker . com/im-youtuber-Natalie-Wynn-of-对位点-这是-h-1835858733](https://lifehacker.com/im-youtuber-natalie-wynn-of-contrapoints-and-this-is-h-1835858733)
+> 原文：<https://lifehacker.com/im-youtuber-natalie-wynn-of-contrapoints-and-this-is-h-1835858733>
 
 娜塔莉·韦恩(Natalie Wynn)被称为“YouTube 的奥斯卡·王尔德”(Oscar Wilde)，因为她为自己的频道制作了性感、颓废、娱乐性极强的视频，。在这些视频中，Wynn 讨论了各种各样的热点话题，包括 alt-right、气候变化、incels 和 trans 问题，但人们并没有感到受到挑战，而是经常发现自己受到诱惑。因此，毫不奇怪，这种享乐主义的情感渗透进了永利的日常生活，影响了她的生活方式，当然也影响了她的饮食方式。不惧争议，Wynn 很友好地分享了她对麦当劳早餐、比萨饼上的菠萝以及怎样做一口完美的冰淇淋的看法。
 

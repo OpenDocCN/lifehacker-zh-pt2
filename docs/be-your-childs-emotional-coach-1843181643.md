@@ -1,6 +1,6 @@
 # 做孩子的情感蔻驰
 
-> 原文:[https://life hacker . com/be-your-childs-emotional-coach-1843181643](https://lifehacker.com/be-your-childs-emotional-coach-1843181643)
+> 原文：<https://lifehacker.com/be-your-childs-emotional-coach-1843181643>
 
 情绪，他们现在正在高涨。我们生活在一个充满恐惧、悲伤和愤怒的时代，为日常生活失去常态而悲伤，因为疫情重新定义了常态。对于我们当中最冷静、最有韧性的人来说，这种环境是具有挑战性的，更不用说我们的孩子了，他们仍在学习如何识别和管理自己的情绪反应。但是我们正在经历的这段经历实际上可能是帮助我们的孩子发展更高水平的情商的黄金时间。
 

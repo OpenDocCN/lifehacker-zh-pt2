@@ -1,6 +1,6 @@
 # 如何在 iOS 中使用快捷键
 
-> 原文:[https://life hacker . com/how-to-use-shortcut s-in-IOs-1844080624](https://lifehacker.com/how-to-use-shortcuts-in-ios-1844080624)
+> 原文：<https://lifehacker.com/how-to-use-shortcuts-in-ios-1844080624>
 
 快捷方式应用程序是一个强大的自动化工具，可以帮助你优化生活，节省大量的日常任务时间。在上面的视频中，我分享了一些我使用快捷方式的方法，以及我用来了解它们的资源。
 

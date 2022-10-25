@@ -1,6 +1,6 @@
 # 何时飞行以避免航班延误
 
-> 原文:[https://life hacker . com/when-to-fly 避免航班延误-1834979476](https://lifehacker.com/when-to-fly-to-avoid-flight-delays-1834979476)
+> 原文：<https://lifehacker.com/when-to-fly-to-avoid-flight-delays-1834979476>
 
 周末，我从芝加哥起飞的晚上 8 点的航班总共延误了 4 次；我的飞机晚点了，紧接着我们的机组人员也从延误的航班抵达登机口。为什么夜间飞行如此痛苦？
 

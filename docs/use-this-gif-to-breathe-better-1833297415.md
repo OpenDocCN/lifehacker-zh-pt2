@@ -1,6 +1,6 @@
 # 用这张 GIF 更好的呼吸
 
-> 原文:[https://life hacker . com/use-this-gif-to-breathe-better-1833297415](https://lifehacker.com/use-this-gif-to-breathe-better-1833297415)
+> 原文：<https://lifehacker.com/use-this-gif-to-breathe-better-1833297415>
 
 凯蒂·霍金斯-加尔在她的简讯 [《我可爱的笨脑袋](https://mailchi.mp/848017378986/dont-forget-to-breathe?e=0cc9645d81) 中写到花时间让*呼吸*的重要性。你知道，不是那种为了生存而进行的无意识呼吸，而是深思熟虑的缓慢呼吸，帮助你脚踏实地，感受你在这个世界上的位置。
 

@@ -1,6 +1,6 @@
 # 亿万富翁不能把我们从学生贷款中拯救出来
 
-> 原文:[https://life hacker . com/billionaires-cant-save-us-from-student-loans-1834929715](https://lifehacker.com/billionaires-cant-save-us-from-student-loans-1834929715)
+> 原文：<https://lifehacker.com/billionaires-cant-save-us-from-student-loans-1834929715>
 
 到现在为止，我相信你至少已经看到了一个关于 2019 年迄今为止最好的毕业演讲的标题:罗伯特·f·史密斯上周末震惊了 396 名新毕业生，当时他通知莫尔豪斯学院 2019 届学生，他计划支付他们的学生贷款。全部都是。
 

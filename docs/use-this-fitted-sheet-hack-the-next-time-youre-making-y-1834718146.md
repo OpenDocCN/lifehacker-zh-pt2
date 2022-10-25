@@ -1,6 +1,6 @@
 # 下次你铺床的时候，用这个合适的床单吧
 
-> 原文:[https://life hacker . com/use-this-fitted-sheet-hack-the-next-time-you-making-y-1834718146](https://lifehacker.com/use-this-fitted-sheet-hack-the-next-time-youre-making-y-1834718146)
+> 原文：<https://lifehacker.com/use-this-fitted-sheet-hack-the-next-time-youre-making-y-1834718146>
 
 每个星期天，当我试图把它放在我的床垫上时，我都会对我的床单发起一场战争，努力把它放在一个角落，因为它会从另一个角落弹出来。
 

@@ -1,6 +1,6 @@
 # 我的老 MG 跑车对婴儿来说不是最好的车！应该买什么车？
 
-> 原文:[https://jalopnik . com/my-old-mg-roadster-not ' s-best-car for a baby-what-c-1834294807](https://jalopnik.com/my-old-mg-roadster-isnt-the-best-car-for-a-baby-what-c-1834294807)
+> 原文：<https://jalopnik.com/my-old-mg-roadster-isnt-the-best-car-for-a-baby-what-c-1834294807>
 
 罗伯特喜欢他的 MG，但现在一个孩子也在照片中，英国跑车并不是最理想的儿童交通工具——尽管汽车座椅在技术上是合适的。他需要一些负担得起的，安全的，合理的燃油效率和手动变速器。他应该买什么车？
 

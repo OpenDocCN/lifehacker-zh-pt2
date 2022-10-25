@@ -1,6 +1,6 @@
 # Nvidia 和 AMD 之间最无聊的斗争才是最重要的
 
-> 原文:[https://gizmodo . com/NVIDIA-and-amds-nerdiest-fight-the-one-the-matter-1831784022](https://gizmodo.com/nvidia-and-amds-nerdiest-fight-is-the-one-that-matters-1831784022)
+> 原文：<https://gizmodo.com/nvidia-and-amds-nerdiest-fight-is-the-one-that-matters-1831784022>
 
 在本月早些时候的 CES 上，Nvidia 和 AMD [交换了话语](https://gizmodo.com/nvidia-ceo-trashes-amds-new-gpu-the-performance-is-lou-1831621038#_ga=2.8601077.1721906064.1547472999-1595880060.1539636540) ，Nvidia 首席执行官黄仁勋表示，他的 GPU 将“碾压”AMD 新宣布的镭龙 VII。AMD 首席执行官苏姿丰在她的回应中显得更加，但她没有错过挖苦英伟达的机会，并指出当她的公司最终采用 [【光线追踪](https://gizmodo.com/why-ray-tracing-on-nvidias-new-gpus-is-so-exciting-1828964418) 时，人们实际上就会知道它是什么了。但是，让我们抛开他们在光线跟踪和 GPU 上的争论，专注于两家公司之间的另一场争吵——这一场是关于显示器的，如果你在未来几个月内购买一台游戏显示器，你需要注意。
 

@@ -1,6 +1,6 @@
 # 如何在 iOS 14 中通过点击背面来启动操作
 
-> 原文:[https://life hacker . com/how-to-launch-iphone-actions-with-a-tap-on-back-1844127710](https://lifehacker.com/how-to-launch-iphone-actions-with-a-tap-on-the-back-1844127710)
+> 原文：<https://lifehacker.com/how-to-launch-iphone-actions-with-a-tap-on-the-back-1844127710>
 
 你的 iPhone 背面没有传感器可供你的手指摆弄——不像谷歌像素(Google Pixel)那样，它的背面有指纹传感器——但 iOS 14 中首次推出的新功能允许你点击 iPhone 的背面来启动不同的 iOS 操作。这种“数字打嗝”的手势看起来很神奇，因为你需要一个水晶球(或者这篇文章)来知道这个功能在哪里。
 

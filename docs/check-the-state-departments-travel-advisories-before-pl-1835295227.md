@@ -1,6 +1,6 @@
 # 在计划一次旅行之前，查看一下国务院的旅行建议
 
-> 原文:[https://life hacker . com/check-the-state-departments-travel-advisories-before-pl-1835295227](https://lifehacker.com/check-the-state-departments-travel-advisories-before-pl-1835295227)
+> 原文：<https://lifehacker.com/check-the-state-departments-travel-advisories-before-pl-1835295227>
 
 计划今年夏天来一次的单人旅行？在你独自去之前，为了你自己的安全，做好你的功课，尽你所能去研究。最近，正好赶上繁忙的夏季旅游季节，美国国务院在其 [网站](https://travel.state.gov/content/travel/en/traveladvisories/traveladvisories.html/) 上更新了一些旅游建议。
 

@@ -1,6 +1,6 @@
 # 我必须坚持你腌制一些大黄
 
-> 原文:[https://life hacker . com/I-must-sustain-your-pickle-some-大黄-1843956852](https://lifehacker.com/i-must-insist-your-pickle-some-rhubarb-1843956852)
+> 原文：<https://lifehacker.com/i-must-insist-your-pickle-some-rhubarb-1843956852>
 
 有许多水果和蔬菜能让人想到春天、阳光的想法，但没有一种能像红宝石色、超级酸的大黄那样。它在馅饼、果酱和 [中很棒，甚至在伏特加](https://skillet.lifehacker.com/rhubarb-vodka-is-the-best-thing-you-can-make-with-your-1836196220) 中也很棒，但是快速腌制可以让你给几乎每一种菜肴都带来一点酸甜亮度。
 

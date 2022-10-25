@@ -1,6 +1,6 @@
 # 如何追踪所有航班的碳足迹
 
-> 原文:[https://life hacker . com/how-to-track-the-carbon-footprint of-all-your-flights-1841162774](https://lifehacker.com/how-to-track-the-carbon-footprint-of-all-your-flights-1841162774)
+> 原文：<https://lifehacker.com/how-to-track-the-carbon-footprint-of-all-your-flights-1841162774>
 
 近年来，我们许多人开始更加关注自己的碳足迹，而对碳足迹影响最大的个人行为之一就是航空旅行。
 

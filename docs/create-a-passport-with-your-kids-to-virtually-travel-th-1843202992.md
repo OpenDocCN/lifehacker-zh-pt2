@@ -1,6 +1,6 @@
 # 与您的孩子一起创建一个虚拟“旅行”世界的护照
 
-> 原文:[https://life hacker . com/create-a-passport-with-your-kids-to-virtual-travel-th-1843202992](https://lifehacker.com/create-a-passport-with-your-kids-to-virtually-travel-th-1843202992)
+> 原文：<https://lifehacker.com/create-a-passport-with-your-kids-to-virtually-travel-th-1843202992>
 
 作为一个习惯旅行的人，我发现现在很难呆在家里，没有任何实际的地方可去，也没有近期的旅行计划。尽管如此，我是一个成年人，理解我们不去旅行的原因；我的儿子，他只是想“去”——某个地方，任何地方。喜欢旅行或习惯出去看看世界的孩子可能会很难适应我们目前呆在家里的做法。你是如何让他们的旅游癖保持下去，同时又能维持一个忙碌而有趣的家庭环境的？
 

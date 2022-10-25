@@ -1,6 +1,6 @@
 # 你应该买房还是继续租房？
 
-> 原文:[https://life hacker . com/should-I-buy-a-home-or-just-keep-renting-1699277766](https://lifehacker.com/should-i-buy-a-home-or-just-keep-renting-1699277766)
+> 原文：<https://lifehacker.com/should-i-buy-a-home-or-just-keep-renting-1699277766>
 
 你摆脱了债务，你开始把钱投入到你的下一个大的财务目标:买房子。
 

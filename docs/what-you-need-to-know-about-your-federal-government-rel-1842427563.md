@@ -1,6 +1,6 @@
 # 关于你的联邦政府救济支票，你需要知道什么[更新]
 
-> 原文:[https://life hacker . com/what-you-need-to-know-on-your-federal-government-rel-1842427563](https://lifehacker.com/what-you-need-to-know-about-your-federal-government-rel-1842427563)
+> 原文：<https://lifehacker.com/what-you-need-to-know-about-your-federal-government-rel-1842427563>
 
 经过多次辩论后，参议院通过了 T2 的一项法案，该法案将给大多数美国人送去救济支票。这些支票是旨在通过冠状病毒疫情提振经济的 2 万亿美元救助计划的一部分。
 

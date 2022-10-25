@@ -1,6 +1,6 @@
 # 使用这个应用程序，你可以在沙发上试运动鞋
 
-> 原文:[https://life hacker . com/virtually-try-on-spooles-from your-couch-with this-app-1832291452](https://lifehacker.com/virtually-try-on-sneakers-from-your-couch-with-this-app-1832291452)
+> 原文：<https://lifehacker.com/virtually-try-on-sneakers-from-your-couch-with-this-app-1832291452>
 
 有没有想过你穿上牛仔裤会是什么样子？现在你不用离开舒适的沙发就能找到答案。
 

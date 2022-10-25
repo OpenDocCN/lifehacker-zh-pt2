@@ -1,6 +1,6 @@
 # 让你的孩子看到你账单的纸质版本
 
-> 原文:[https://life hacker . com/let-your-kid-see-paper-versions-of-your-bills-1836509614](https://lifehacker.com/let-your-kid-see-paper-versions-of-your-bills-1836509614)
+> 原文：<https://lifehacker.com/let-your-kid-see-paper-versions-of-your-bills-1836509614>
 
 ——一款新版本的桌游有一个管理买卖的语音助手。这太奇怪了。就像你是史高治·麦克老鸭一样沉浸在你收集的所有纸币中，这种快乐难道不是来自于此吗？但这种变化也可能是一个更大问题的标志。如果孩子们不再接触金钱这个有形的元素，他们还能完全理解它的价值吗？
 

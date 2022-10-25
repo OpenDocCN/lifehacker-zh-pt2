@@ -1,6 +1,6 @@
 # 通过这个网站训练自己读得更快(并理解你所读的内容)
 
-> 原文:[https://life hacker . com/train-you-train-you-what-you-1836134420](https://lifehacker.com/train-yourself-to-read-faster-and-comprehend-what-you-1836134420)
+> 原文：<https://lifehacker.com/train-yourself-to-read-faster-and-comprehend-what-you-1836134420>
 
 能够快速阅读很好，但前提是你能够理解你正在阅读的内容。在一两个小时内通读 200 页当然令人印象深刻，但如果你不记得你读过的任何东西，那也是毫无意义的。
 

@@ -1,6 +1,6 @@
 # 如何在 Waze 中让圣诞老人成为你的导航语音
 
-> 原文:[https://life hacker . com/how-to-make-Santa-your-navigation-voice-in-waze-1830795432](https://lifehacker.com/how-to-make-santa-your-navigation-voice-in-waze-1830795432)
+> 原文：<https://lifehacker.com/how-to-make-santa-your-navigation-voice-in-waze-1830795432>
 
 这是一年中的特殊时刻。你知道，在那宝贵的一个半月里，你可以让圣诞老人为你的雪橇指路。
 

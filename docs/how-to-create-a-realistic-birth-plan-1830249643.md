@@ -1,6 +1,6 @@
 # 如何创建一个现实的生育计划
 
-> 原文:[https://life hacker . com/how-to-create-a-realistic-birth-plan-1830249643](https://lifehacker.com/how-to-create-a-realistic-birth-plan-1830249643)
+> 原文：<https://lifehacker.com/how-to-create-a-realistic-birth-plan-1830249643>
 
 莎拉·奥斯汀想要一个不用药物的阴道分娩，所以她和她的伴侣在助产士护士的敦促下写了一份两页的分娩计划。其中包括她剖腹产的可能性，以及如果剖腹产，她希望如何处理。“我认为剖腹产不是我们想要的结果，”奥斯汀说，“而是一种可能的结果。”
 

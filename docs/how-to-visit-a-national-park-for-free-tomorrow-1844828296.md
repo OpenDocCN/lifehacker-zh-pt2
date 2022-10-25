@@ -1,6 +1,6 @@
 # 明天如何免费参观国家公园
 
-> 原文:[https://life hacker . com/how-to-visit-a-national-park-for-free-tomorrow-1844828296](https://lifehacker.com/how-to-visit-a-national-park-for-free-tomorrow-1844828296)
+> 原文：<https://lifehacker.com/how-to-visit-a-national-park-for-free-tomorrow-1844828296>
 
 在过去的六个月里，公园——无论是地方的、州的还是国家的——为新冠肺炎疫情单调的生活提供了一个急需的喘息机会。尽管我们都应该继续 [遵守所有公共卫生准则，以防止新型冠状病毒](https://www.nps.gov/aboutus/news/public-health-update.htm) 的传播，但在公园里这样做的时间让我们有机会穿上自己的运动裤或短裤，走出家门，在大自然中度过时光。
 

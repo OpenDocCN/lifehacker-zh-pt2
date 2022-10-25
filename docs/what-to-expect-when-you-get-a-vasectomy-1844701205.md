@@ -1,6 +1,6 @@
 # what to expect when you get a vasectomy 1844701205
 
-> 原文:[https://life hacker . com/what-to-expect-when-when-when-you-get-a-vasculation-1844701205](https://lifehacker.com/what-to-expect-when-you-get-a-vasectomy-1844701205)
+> 原文：<https://lifehacker.com/what-to-expect-when-you-get-a-vasectomy-1844701205>
 
 现在比以往任何时候都更需要做输精管切除术。很多人都这么说——或者谷歌一下； [在最高法院关于 *Roe 诉 Wade*一案命运的意见草案于 5 月泄露之后，网上搜索“输精管结扎术”的人数急剧增加](https://time.com/6178287/vasectomy-sterilization-roe-v-wade/) 。这一趋势似乎还将继续，因为 [堕胎护理的宪法权利已经成为过去](https://jezebel.com/roe-v-wade-dead-supreme-court-decision-dobbs-abortion-r-1849062441) 。一些男性似乎也认识到，他们在试图规定一个人可以对自己的身体做出的决定的法律中有既得利益。(有些甚至 [已经飞跃](https://www.buzzfeednews.com/article/katienotopoulos/roe-wade-supreme-court-decision-vasectomy) )。)
 

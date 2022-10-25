@@ -1,6 +1,6 @@
 # 你如何为经济衰退做好财务准备？
 
-> 原文:[https://life hacker . com/how-are-how-you-preparing-you-finance-for-a economic-Dow-1838293509](https://lifehacker.com/how-are-you-preparing-your-finances-for-an-economic-dow-1838293509)
+> 原文：<https://lifehacker.com/how-are-you-preparing-your-finances-for-an-economic-dow-1838293509>
 
 几个月来，我们一直在谈论我们混乱的经济，以及如果我们经历衰退，这对你们的财政意味着什么。虽然从表面上看，经济衰退的发生并不值得大惊小怪，但大衰退的问题仍然困扰着我们许多人。
 

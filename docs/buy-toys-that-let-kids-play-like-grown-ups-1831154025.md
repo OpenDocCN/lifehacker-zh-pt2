@@ -1,6 +1,6 @@
 # 购买让孩子像大人一样“玩耍”的玩具
 
-> 原文:[https://life hacker . com/buy-toys-the-let-kids-play-like-the-greater-1831154025](https://lifehacker.com/buy-toys-that-let-kids-play-like-grown-ups-1831154025)
+> 原文：<https://lifehacker.com/buy-toys-that-let-kids-play-like-grown-ups-1831154025>
 
 两年前是。在那之前几十年，是 [Tickle-Me Elmo](https://en.wikipedia.org/wiki/Tickle_Me_Elmo) 。还记得 [电子宠物](http://www.bandai.com/tamagotchi/) 吗？ [白菜帮的娃儿](https://cabbagepatchkids.com/) 和风靡一时的 [活蹦乱跳的宝宝](https://babyalive.hasbro.com/en-us) ？所有这些由玩具变成的游戏都有一个共同点:它们允许孩子们练习养育。
 

@@ -1,6 +1,6 @@
 # 如何确保你的朋友不会成为反吸血鬼者
 
-> 原文:[https://life hacker . com/how-to-make-than-your-friends-don ' t-been-anti-VAX xers-1832815146](https://lifehacker.com/how-to-make-sure-your-friends-dont-become-anti-vaxxers-1832815146)
+> 原文：<https://lifehacker.com/how-to-make-sure-your-friends-dont-become-anti-vaxxers-1832815146>
 
 当涉及到错误信息时，一个人所相信的与其说是他们所读到的，不如说是他们信任的人。如果你生命中的某个人正准备成为父母，你可以帮助阻止他们掉进反 vaxxer 兔子洞。
 

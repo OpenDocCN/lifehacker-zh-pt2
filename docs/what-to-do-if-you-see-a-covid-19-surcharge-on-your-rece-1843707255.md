@@ -1,6 +1,6 @@
 # 如果您在收据上看到“新冠肺炎附加费”，该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-you-see-a-新冠肺炎-附加费-on-you-rece-1843707255](https://lifehacker.com/what-to-do-if-you-see-a-covid-19-surcharge-on-your-rece-1843707255)
+> 原文：<https://lifehacker.com/what-to-do-if-you-see-a-covid-19-surcharge-on-your-rece-1843707255>
 
 如果你开始冒险回到社会中购买任何种类的商品和服务，看看你的收据:你可能会发现你被征收了与正在进行的疫情相关的附加费。
 

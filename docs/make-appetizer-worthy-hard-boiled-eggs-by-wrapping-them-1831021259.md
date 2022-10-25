@@ -1,6 +1,6 @@
 # 用味噌包住鸡蛋，做成开胃的煮鸡蛋
 
-> 原文:[https://life hacker . com/make-开胃菜-有价值的煮鸡蛋-1831021259](https://lifehacker.com/make-appetizer-worthy-hard-boiled-eggs-by-wrapping-them-1831021259)
+> 原文：<https://lifehacker.com/make-appetizer-worthy-hard-boiled-eggs-by-wrapping-them-1831021259>
 
 对于煮熟的鸡蛋，蛋黄提供了所有的味道。尽管这是一种可靠且容易获取的蛋白质来源，但白葡萄酒味道太淡，没有调味就一点也不好玩。盐(显然)效果很好，但是如果你想让鸡蛋白充满坚果的鲜味，你应该用味噌。
 

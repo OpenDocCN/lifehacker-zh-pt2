@@ -1,6 +1,6 @@
 # 电影明星和多产发明家海迪·拉马尔的惊人故事
 
-> 原文:[https://life hacker . com/the-amazing-story-of-hedy-lamarr-movie-star-and-prolif-1830747355](https://lifehacker.com/the-amazing-story-of-hedy-lamarr-movie-star-and-prolif-1830747355)
+> 原文：<https://lifehacker.com/the-amazing-story-of-hedy-lamarr-movie-star-and-prolif-1830747355>
 
 海迪·拉马尔在好莱坞的黄金时代成为家喻户晓的明星，但在幕后，她也是 20 世纪最伟大的人物之一。
 

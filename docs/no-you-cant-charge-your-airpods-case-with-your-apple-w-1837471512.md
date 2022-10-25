@@ -1,6 +1,6 @@
 # 不，你不能用你的 Apple Watch 充电器给你的 AirPods 外壳充电
 
-> 原文:[https://life hacker . com/no-you-can-charge-your-ai rpods-case-with-your-apple-w-1837471512](https://lifehacker.com/no-you-cant-charge-your-airpods-case-with-your-apple-w-1837471512)
+> 原文：<https://lifehacker.com/no-you-cant-charge-your-airpods-case-with-your-apple-w-1837471512>
 
 理论上，这个小技巧*应该*是可以的。Apple Watch 使用基于 Qi 的充电器，和您的 [AirPod 无线充电外壳](https://www.apple.com/shop/product/MR8U2AM/A/wireless-charging-case-for-airpods) *也支持 Qi 充电。不用插上你的无线充电盒，你应该能够把它放在你的 Apple Watch 充电器上给它充电。正确*
 

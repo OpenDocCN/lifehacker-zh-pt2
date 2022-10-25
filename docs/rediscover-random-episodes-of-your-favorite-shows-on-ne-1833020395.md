@@ -1,6 +1,6 @@
 # 使用此网络应用程序重新发现网飞上您最喜欢的节目的随机剧集
 
-> 原文:[https://life hacker . com/re discover-random-episodes-of-your favorite-shows-on-ne-1833020395](https://lifehacker.com/rediscover-random-episodes-of-your-favorite-shows-on-ne-1833020395)
+> 原文：<https://lifehacker.com/rediscover-random-episodes-of-your-favorite-shows-on-ne-1833020395>
 
 我们都有一些自己喜欢的节目。如果一部剧有七八季，那么选择在周六下午重播哪一集可能会有点困难。对我来说，这通常意味着一遍又一遍地看同样的五六集，但是给那些你真的不记得的剧集一次机会还是有好处的。
 

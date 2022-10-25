@@ -1,6 +1,6 @@
 # 如何让你的自行车运动更上一层楼
 
-> 原文:[https://life hacker . com/how-to-take-your-cycling-to-the-next-level-1838521649](https://lifehacker.com/how-to-take-your-cycling-to-the-next-level-1838521649)
+> 原文：<https://lifehacker.com/how-to-take-your-cycling-to-the-next-level-1838521649>
 
 我希望你喜欢今年九月我们的骑行月，我们 [跳上我们的自行车](https://vitals.lifehacker.com/this-september-lets-ride-our-bikes-1837912381)(也许)进行户外冒险，并且 [看了看一些训练计划](https://vitals.lifehacker.com/get-serious-about-cycling-with-these-beginner-training-1838282976) 专门为更长更快的骑行建立体能。为了结束这个月，我想强调一下读者们关于如何从休闲骑手转变为自行车爱好者的一些建议。
 

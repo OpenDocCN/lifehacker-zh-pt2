@@ -1,6 +1,6 @@
 # 总是仔细检查你的机票，看是否有代价高昂的错误
 
-> 原文:[https://life hacker . com/always-double-check-your-airline-tickets-for-cost-mis-1830339966](https://lifehacker.com/always-double-check-your-airline-tickets-for-costly-mis-1830339966)
+> 原文：<https://lifehacker.com/always-double-check-your-airline-tickets-for-costly-mis-1830339966>
 
 一个旅行者在通过大通的在线门户网站预订机票时遇到的问题说明了为什么你应该总是在预订机票时一出错就反复检查。
 

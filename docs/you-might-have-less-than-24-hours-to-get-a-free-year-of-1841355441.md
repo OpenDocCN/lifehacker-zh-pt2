@@ -1,6 +1,6 @@
 # 您可能只有不到 24 小时的时间来获得一年的免费 Apple TV+
 
-> 原文:[https://life hacker . com/you-may-has-less-to-get-a-free-year of-1841355441](https://lifehacker.com/you-might-have-less-than-24-hours-to-get-a-free-year-of-1841355441)
+> 原文：<https://lifehacker.com/you-might-have-less-than-24-hours-to-get-a-free-year-of-1841355441>
 
 如果你在 9 月 10 日至 11 月 1 日期间购买了 iPhone 11 或任何其他新的苹果硬件，1 月 31 日是获得 Apple TV+一年免费试用的最后一天。这是一个简单的过程，但不是你想忘记去做的事情。
 

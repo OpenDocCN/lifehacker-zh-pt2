@@ -1,6 +1,6 @@
 # 出行前检查机场出租车和拼车费用估计
 
-> 原文:[https://life hacker . com/check-airport-taxi-and-ride-share-cost-estimates-before-1840829279](https://lifehacker.com/check-airport-taxi-and-ride-share-cost-estimates-before-1840829279)
+> 原文：<https://lifehacker.com/check-airport-taxi-and-ride-share-cost-estimates-before-1840829279>
 
 虽然你可能知道从你家到当地机场乘坐出租车或优步或 Lyft 等应用程序大概需要多少钱，但当你前往一个新的城市或国家时，所有的赌注都是不确定的。住在纽约市，我经常会惊讶于在其他城市使用拼车应用程序的旅行有多便宜，但我敢肯定，有很多人在意识到从 JFK 机场到市中心的费用时，就没有这么惊喜了。
 

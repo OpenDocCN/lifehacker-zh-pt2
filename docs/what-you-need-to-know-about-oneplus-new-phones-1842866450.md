@@ -1,6 +1,6 @@
 # 关于一加的新手机，你需要知道什么
 
-> 原文:[https://life hacker . com/what-you-needle-to-know-on-oneplus-new-phones-1842866450](https://lifehacker.com/what-you-need-to-know-about-oneplus-new-phones-1842866450)
+> 原文：<https://lifehacker.com/what-you-need-to-know-about-oneplus-new-phones-1842866450>
 
 一加今天发布了两款新手机，一加 8 和一加 8 Pro。这里是你需要知道的一切——包括如何得到一个。
 

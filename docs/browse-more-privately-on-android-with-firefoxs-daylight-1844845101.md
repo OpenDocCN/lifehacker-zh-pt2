@@ -1,6 +1,6 @@
 # 通过 Firefox 的“日光”更新，在 Android 上进行更私密的浏览
 
-> 原文:[https://life hacker . com/browse-more-private-on-Android-Firefox-daylight-1844845101](https://lifehacker.com/browse-more-privately-on-android-with-firefoxs-daylight-1844845101)
+> 原文：<https://lifehacker.com/browse-more-privately-on-android-with-firefoxs-daylight-1844845101>
 
 这是一个缓慢的过程，但是新的 [Firefox Android 浏览器已经最终登陆](https://play.google.com/store/apps/details?id=org.mozilla.firefox&referrer=adjust_reftag%3Dcn9q1UyeeP9fy%26utm_source%3DProduct%2BMarketing%2B%2528Owned%2Bmedia%2529%26utm_campaign%3Dblog%26utm_content%3Den%26utm_term%3Dandroid-mobile1)——至少在欧洲。美国的 sers 将不得不等到 8 月 27 日(或者安装测试版)才能访问，但是如果预览版有任何暗示的话，这个新的手机浏览器将会比 Mozilla 的上一次尝试有更好的体验。
 

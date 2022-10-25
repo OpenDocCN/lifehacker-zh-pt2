@@ -1,6 +1,6 @@
 # 继续偿还你的贷款，直到学生债务被取消
 
-> 原文:[https://life hacker . com/keep-pay-your-loans-while Bernie-trys-to-cancel-stu-1835817118](https://lifehacker.com/keep-paying-your-loans-while-bernie-tries-to-cancel-stu-1835817118)
+> 原文：<https://lifehacker.com/keep-paying-your-loans-while-bernie-tries-to-cancel-stu-1835817118>
 
 对于想要成为总统的民主党人来说，这是一个令人兴奋的时刻，他们中的许多人都在早期阶段参加竞选，以至于我们本周将举行两场辩论，以容纳 20 名领先的候选人。二十！
 

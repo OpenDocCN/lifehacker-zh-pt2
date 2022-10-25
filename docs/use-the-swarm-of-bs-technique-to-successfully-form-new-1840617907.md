@@ -1,6 +1,6 @@
 # 使用“一大堆废话”技巧来成功养成新习惯
 
-> 原文:[https://life hacker . com/use-the-swarm-of-bs-technique-to-successfully-form-new-1840617907](https://lifehacker.com/use-the-swarm-of-bs-technique-to-successfully-form-new-1840617907)
+> 原文：<https://lifehacker.com/use-the-swarm-of-bs-technique-to-successfully-form-new-1840617907>
 
 如果你想坚持你的新年决心或任何新习惯，不要把它建立在一个单一的行为上。相反，想出你能想到的尽可能多的不同行为——或者斯坦福大学社会行为科学家 BJ·福格所说的“一大堆废话”
 

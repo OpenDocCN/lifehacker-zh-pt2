@@ -1,6 +1,6 @@
 # 如何使用最好的新 Google Home 应用功能
 
-> 原文:[https://life hacker . com/how-to-use-the-best-new-Google-home-app-features-1844855921](https://lifehacker.com/how-to-use-the-best-new-google-home-app-features-1844855921)
+> 原文：<https://lifehacker.com/how-to-use-the-best-new-google-home-app-features-1844855921>
 
 Google Home 版本为该应用增加了一系列新功能，包括在 [iOS](https://apps.apple.com/us/app/google-home/id680819774) 和 [Android](https://play.google.com/store/apps/details?id=com.google.android.apps.chromecast.app) 上对 Nest home 安全产品的新应用内控制，以及对 Android 11 的电源菜单快捷方式的扩展设备支持。哦，安卓终于有了黑暗模式——尽管可能很难打开。以下是使用所有新功能的方法。
 

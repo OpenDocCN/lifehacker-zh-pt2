@@ -1,6 +1,6 @@
 # 一项新的破产裁决可能会影响你的私人学生贷款
 
-> 原文:[https://life hacker . com/a-new-banking-ruding-can-impact-your-private-stude-1844956195](https://lifehacker.com/a-new-bankruptcy-ruling-could-impact-your-private-stude-1844956195)
+> 原文：<https://lifehacker.com/a-new-bankruptcy-ruling-could-impact-your-private-stude-1844956195>
 
 私人学生贷款的最大缺点之一是借款人保护较少。例如，联邦学生贷款提供更多的还款计划、延期还款、利息补贴和贷款减免。
 

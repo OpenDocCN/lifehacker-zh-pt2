@@ -1,6 +1,6 @@
 # 你如何移动你的台式电脑而不损坏它？
 
-> 原文:[https://life hacker . com/how-do-you-move-your-desktop-computer-with-breaking-1844249012](https://lifehacker.com/how-do-you-move-your-desktop-computer-without-breaking-1844249012)
+> 原文：<https://lifehacker.com/how-do-you-move-your-desktop-computer-without-breaking-1844249012>
 
 如果可以的话，我尽量不搬家，这就是为什么我一直呆在超级昂贵的硅谷——同时为 Lifehacker 远程工作——而不是在某个负担得起的较小城镇像国王一样生活。当我搬家的时候，我会特别小心我的台式电脑，因为我有很多昂贵的东西，我不想弄坏或泄露。当我到达我的最终目的地时，我绝对不希望因为任何原因而发现我无法打开我的电脑。
 

@@ -1,6 +1,6 @@
 # 阅读并还书到机场书店
 
-> 原文:[https://life hacker . com/read-and-return-books-to-the-airport-books-1836413519](https://lifehacker.com/read-and-return-books-to-the-airport-bookstore-1836413519)
+> 原文：<https://lifehacker.com/read-and-return-books-to-the-airport-bookstore-1836413519>
 
 你在等你的航班登机。也许你在中途停留，或者你的航班延误了，或者你只是想消磨一些时间，所以你走进一家无论你在哪个城市看起来感觉都一样的机场书店。最近出版的精装书的桌子在呼唤你的名字，但你知道你可以一回家就从图书馆预订其中一本，所以你不能证明全价购买的冲动是正当的。或者可以吗？
 

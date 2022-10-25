@@ -1,6 +1,6 @@
 # 与感恩节无关的最佳感恩节电影
 
-> 原文:[https://life hacker . com/the-best-thanksgiviv-1840001175](https://lifehacker.com/the-best-thanksgiving-movies-that-arent-about-thanksgiv-1840001175)
+> 原文：<https://lifehacker.com/the-best-thanksgiving-movies-that-arent-about-thanksgiv-1840001175>
 
 感恩节就要到了，对于我们这些在节日期间避开家人的人来说，这意味着这是一个专门盯着你的电视或笔记本电脑屏幕几个小时的日子。如果你没有节日的精神，也许因为你是一个人度过的， [我们得到了](https://lifehacker.com/how-to-cope-with-spending-the-holidays-alone-1742026483) 。尽管如此，你还是不想完全忘记*那一天，对吗？* 
 

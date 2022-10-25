@@ -1,6 +1,6 @@
 # 用 FoxClocks 给你的浏览器添加一个世界时钟
 
-> 原文:[https://life hacker . com/add-a-world-clock-to-your-web-browser-with-fox clocks-1830632583](https://lifehacker.com/add-a-world-clock-to-your-web-browser-with-foxclocks-1830632583)
+> 原文：<https://lifehacker.com/add-a-world-clock-to-your-web-browser-with-foxclocks-1830632583>
 
 试图与世界各地的人一起工作的最糟糕的事情之一是弄清楚他们在哪里，现在是什么时间。
 

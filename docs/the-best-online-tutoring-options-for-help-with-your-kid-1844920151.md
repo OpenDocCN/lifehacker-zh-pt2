@@ -1,6 +1,6 @@
 # 孩子的最佳在线辅导选择
 
-> 原文:[https://life hacker . com/the-best-online-tutoring-options-for-help-with-your-kid-1844920151](https://lifehacker.com/the-best-online-tutoring-options-for-help-with-your-kid-1844920151)
+> 原文：<https://lifehacker.com/the-best-online-tutoring-options-for-help-with-your-kid-1844920151>
 
 今年秋天，家长们再次肩负起额外的责任，许多学龄学生的时间表是部分或完全远程的。无论你是为了帮助孩子而重新学习八年级的历史，还是在大学水平的微积分方面需要一些额外的帮助，都有很多应用程序和网站可以给你帮助，因为教育技术公司试图满足对社会距离遥远的学生支持的不断增长的需求。这里有几个要考虑的。
 

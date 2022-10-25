@@ -1,6 +1,6 @@
 # 离开你的椅子，做一些向下的狗
 
-> 原文:[https://life hacker . com/get-out-of-your-chair-and-do-some-down-dogs-1844493696](https://lifehacker.com/get-out-of-your-chair-and-do-some-downward-dogs-1844493696)
+> 原文：<https://lifehacker.com/get-out-of-your-chair-and-do-some-downward-dogs-1844493696>
 
 我一直认为，被称为下犬式的瑜伽姿势是最奇怪的动作之一，被认为对初学者来说相对容易。任何瑜伽入门课程都会有很多这样的课程。但是你是上下颠倒的，你在拉伸你不经常拉伸的部分，你的肩膀必须支撑你的大部分重量，否则他们很少需要这样做。
 

@@ -1,6 +1,6 @@
 # 初学跑步如何避免受伤
 
-> 原文:[https://life hacker . com/how-to-avoid-injury-as-a-beginning-runner-1833906254](https://lifehacker.com/how-to-avoid-injuries-as-a-beginning-runner-1833906254)
+> 原文：<https://lifehacker.com/how-to-avoid-injuries-as-a-beginning-runner-1833906254>
 
 跑步可能是最简单的健身活动之一——你只需要一双鞋和开阔的道路——但如果你不习惯，这对你的身体也很难。
 

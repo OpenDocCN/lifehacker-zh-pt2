@@ -1,6 +1,6 @@
 # 你一天可以看三本小说
 
-> 原文:[https://www . av club . com/three-novels-you-can-read-in-a-day-1832398176](https://www.avclub.com/three-novels-you-can-read-in-a-day-1832398176)
+> 原文：<https://www.avclub.com/three-novels-you-can-read-in-a-day-1832398176>
 
 ## [](https://www.ndbooks.com/book/mrs-caliban/)*作者雷切尔·英格尔斯(《新方向》，128 页)*
 

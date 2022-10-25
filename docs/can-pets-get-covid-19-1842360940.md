@@ -1,6 +1,6 @@
 # 宠物会得新冠肺炎吗？
 
-> 原文:[https://lifehacker.com/can-pets-get-covid-19-1842360940](https://lifehacker.com/can-pets-get-covid-19-1842360940)
+> 原文：<https://lifehacker.com/can-pets-get-covid-19-1842360940>
 
 虽然宠物似乎不会在人与人之间传播新冠肺炎病毒，但据报道，本月早些时候，香港的一只狗检测出阳性的 。专家们仍然困惑于这到底意味着什么。
 

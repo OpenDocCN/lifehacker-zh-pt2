@@ -1,6 +1,6 @@
 # 如何停止成为推动者
 
-> 原文:[https://life hacker . com/how-to-stop-be-an-enabler-1844428337](https://lifehacker.com/how-to-stop-being-an-enabler-1844428337)
+> 原文：<https://lifehacker.com/how-to-stop-being-an-enabler-1844428337>
 
 作为孩子，我们被教导要成为帮手。除了学习如何分享，关于帮助他人的课程在学前或更早就开始了。但是我们大多数人都没有被教导过健康的界限，或者什么时候识别“帮助”别人变成了授权。
 

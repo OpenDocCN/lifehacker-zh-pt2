@@ -1,6 +1,6 @@
 # 了解脸书如何跟踪你，即使你不使用它
 
-> 原文:[https://life hacker . com/find-out-how-Facebook-tracks-you-even-when-you-not-us-1841306557](https://lifehacker.com/find-out-how-facebook-tracks-you-even-when-youre-not-us-1841306557)
+> 原文：<https://lifehacker.com/find-out-how-facebook-tracks-you-even-when-youre-not-us-1841306557>
 
 我们都知道脸书会追踪你在使用其应用和网站时做了什么，但这家社交媒体巨头*也会从第三方应用、服务和网站收集数据，即使你没有使用脸书。这是脸书定向广告变得异常具体的方式之一，它似乎知道你在其他网站上查找了什么。*
 

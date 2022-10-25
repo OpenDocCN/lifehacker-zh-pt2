@@ -1,6 +1,6 @@
 # 拿着钱搬到这些州
 
-> 原文:[https://life hacker . com/get-payed-to-move-to-these-States-1837283070](https://lifehacker.com/get-paid-to-move-to-these-states-1837283070)
+> 原文：<https://lifehacker.com/get-paid-to-move-to-these-states-1837283070>
 
 如果你在远程工作，并梦想着一个不同的环境来放置你的笔记本电脑，也许是时候采取行动了:各州和城市开始向搬到他们所在地区的人提供现金奖励。
 

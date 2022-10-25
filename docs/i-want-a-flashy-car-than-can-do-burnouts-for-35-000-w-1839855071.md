@@ -1,6 +1,6 @@
 # 我想要一辆 35，000 美元的能烧完的豪华车！应该买什么车？
 
-> 原文:[https://jalopnik . com/I-want-a-flash-car-than-can-do-burn outs-for-35000-w-1839855071](https://jalopnik.com/i-want-a-flashy-car-than-can-do-burnouts-for-35-000-w-1839855071)
+> 原文：<https://jalopnik.com/i-want-a-flashy-car-than-can-do-burnouts-for-35-000-w-1839855071>
 
 弗拉德刚刚找到一份成人工作，所以他打算花成人的钱买辆车。但是他是个年轻人，他不想在这个问题上太成熟。他正在寻找一些漂亮但华而不实的东西，有足够的力量在一条直线上放下一些橡胶。他应该买什么车？
 

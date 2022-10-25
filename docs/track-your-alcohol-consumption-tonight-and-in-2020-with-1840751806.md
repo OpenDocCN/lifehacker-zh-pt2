@@ -1,6 +1,6 @@
 # 用这个应用程序跟踪你今晚和 2020 年的饮酒量
 
-> 原文:[https://life hacker . com/track-your-alcohol-consumption-tonight-and-in-2020-with-1840751806](https://lifehacker.com/track-your-alcohol-consumption-tonight-and-in-2020-with-1840751806)
+> 原文：<https://lifehacker.com/track-your-alcohol-consumption-tonight-and-in-2020-with-1840751806>
 
 今天是除夕，这意味着我们很多人都会喝酒。根据 2019 年你的情况，你可能会喝很多酒。我的极限是一个免费的应用程序，可以帮助你监控消费，让你保持在安全的范围内。
 

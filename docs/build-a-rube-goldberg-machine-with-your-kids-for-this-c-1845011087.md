@@ -1,6 +1,6 @@
 # 和你的孩子一起为这个比赛建造一个 Rube Goldberg 机器
 
-> 原文:[https://life hacker . com/build-a-rube-Goldberg-machine-with-your-kids-for-this-c-1845011087](https://lifehacker.com/build-a-rube-goldberg-machine-with-your-kids-for-this-c-1845011087)
+> 原文：<https://lifehacker.com/build-a-rube-goldberg-machine-with-your-kids-for-this-c-1845011087>
 
 当你可以制造一个复杂的装置来帮助你完成任务时，为什么还要去完成简单的日常任务呢？这是由 [鲁比·戈德堡公司](https://www.rubegoldberg.com) 主办的年度比赛背后的想法，以纪念漫画家 [鲁比·戈德堡](https://www.rubegoldberg.com/rube-the-artist) 他的漫画经常描绘以令人费解的方式执行日常任务的设备。在今年的比赛中，学生们被要求创造一种设备，最终将震动并倾倒一箱书呆子。
 

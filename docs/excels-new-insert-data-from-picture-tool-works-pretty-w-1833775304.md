@@ -1,6 +1,6 @@
 # Excel 新的“从图片中插入数据”工具在《龙与地下城》中运行良好
 
-> 原文:[https://life hacker . com/excel-new-insert-data-from-picture-tool-works-pretty-w-1833775304](https://lifehacker.com/excels-new-insert-data-from-picture-tool-works-pretty-w-1833775304)
+> 原文：<https://lifehacker.com/excels-new-insert-data-from-picture-tool-works-pretty-w-1833775304>
 
 Android: 微软目前正在测试一个有趣的新功能，可以让你通过给数据拍照将数据导入 Excel 最好是数据表，而不是你的猫。那不会做任何事情。
 

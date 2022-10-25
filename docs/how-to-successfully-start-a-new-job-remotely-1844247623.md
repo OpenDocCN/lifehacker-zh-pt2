@@ -1,6 +1,6 @@
 # how to successfully start a new job remotely 1844247623
 
-> 原文:[https://life hacker . com/how-to-successfully-start-a-new-job-1844247623](https://lifehacker.com/how-to-successfully-start-a-new-job-remotely-1844247623)
+> 原文：<https://lifehacker.com/how-to-successfully-start-a-new-job-remotely-1844247623>
 
 很难想象有哪个职业没有受到新冠肺炎全球疫情的影响。无论你是丢掉了工作，转变为在家工作，还是作为一名重要员工不得不遵循新的协议，大多数人在过去的几个月里都经历了工作生活的重大变化。尽管由于新型冠状病毒的爆发，失业率飙升，信不信由你，一些公司仍在招聘新员工。
 

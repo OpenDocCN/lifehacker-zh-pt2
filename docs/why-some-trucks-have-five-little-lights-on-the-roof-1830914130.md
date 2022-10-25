@@ -1,6 +1,6 @@
 # 为什么有些卡车车顶有五盏小灯
 
-> 原文:[https://jalopnik . com/why-some-trucks-have-five-little-lights-on-the-roof-1830914130](https://jalopnik.com/why-some-trucks-have-five-little-lights-on-the-roof-1830914130)
+> 原文：<https://jalopnik.com/why-some-trucks-have-five-little-lights-on-the-roof-1830914130>
 
 如果你和我一样，从上周开始，你就一直目瞪口呆地盯着 2020 款雪佛兰 Silverado HD 那张不祥的复仇脸。你可能也注意到了卡车车顶上有五盏小灯。这些灯有一个特定的用途:它们是政府强制规定的巨型车辆的耻辱标记。
 

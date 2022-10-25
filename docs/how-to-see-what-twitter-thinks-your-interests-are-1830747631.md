@@ -1,6 +1,6 @@
 # 如何查看 Twitter 认为你的兴趣是什么
 
-> 原文:[https://life hacker . com/how-to-see-what-Twitter-thought-your-interests-are-1830747631](https://lifehacker.com/how-to-see-what-twitter-thinks-your-interests-are-1830747631)
+> 原文：<https://lifehacker.com/how-to-see-what-twitter-thinks-your-interests-are-1830747631>
 
 今天我得知 Twitter 认为我对文学、啤酒、嘻哈感兴趣，而且我真的很喜欢我的朋友 s Ina 和 Harry(出于某种原因，我对他们两个都有双重兴趣)。当谈到我时，Twitter 认为我是一名技术记者，以及“其他人”我从未如此骄傲过！
 

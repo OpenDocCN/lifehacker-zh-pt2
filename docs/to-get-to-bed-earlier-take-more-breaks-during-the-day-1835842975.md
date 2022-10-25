@@ -1,6 +1,6 @@
 # 为了早点睡觉，白天多休息
 
-> 原文:[https://life hacker . com/to-get-bed-early-take-more-breaks-in-day-1835842975](https://lifehacker.com/to-get-to-bed-earlier-take-more-breaks-during-the-day-1835842975)
+> 原文：<https://lifehacker.com/to-get-to-bed-earlier-take-more-breaks-during-the-day-1835842975>
 
 这似乎有点违反直觉。当然，你希望早点睡觉，这样你早上会感觉神清气爽。也许你已经打算提前几个月(几年)睡觉了！)但是你总是一天到晚从这个奔到那个奔到这个。如果你一天中休息的时间比平时多，你就需要熬夜来完成所有需要完成的事情，对吗？
 

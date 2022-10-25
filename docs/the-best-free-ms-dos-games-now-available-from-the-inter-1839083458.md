@@ -1,6 +1,6 @@
 # 最好的免费 MS-DOS 游戏现在可以从互联网档案馆
 
-> 原文:[https://life hacker . com/the-best-free-ms-dos-games-now-available-from-the-inter-1839083458](https://lifehacker.com/the-best-free-ms-dos-games-now-available-from-the-inter-1839083458)
+> 原文：<https://lifehacker.com/the-best-free-ms-dos-games-now-available-from-the-inter-1839083458>
 
 我之前说过互联网档案馆是如何在你的浏览器中玩几十年前你最喜欢的废弃软件的好地方，现在甚至更好。档案馆增加了[2500 个新的 MS-DOS 标题](https://blog.archive.org/2019/10/13/2500-more-ms-dos-games-playable-at-the-archive/) 供你试用，而且都是免费的。
 

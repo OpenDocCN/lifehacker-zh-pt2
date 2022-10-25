@@ -1,6 +1,6 @@
 # 如果你没有发酵粉或小苏打，试试这些替代品
 
-> 原文:[https://life hacker . com/if-you-out-of-baking-powder-or-soda-try-these-1843314311](https://lifehacker.com/if-youre-out-of-baking-powder-or-baking-soda-try-these-1843314311)
+> 原文：<https://lifehacker.com/if-youre-out-of-baking-powder-or-baking-soda-try-these-1843314311>
 
 如果菜谱要求用小苏打，但你只有发酵粉，或者你有小苏打但没有发酵粉，你该怎么办？事实证明，是有选择的。你可以做快餐面包、饼干或曲奇。你甚至可以把它们都做出来，这在压力大的时候总是一个可以接受的选择。
 

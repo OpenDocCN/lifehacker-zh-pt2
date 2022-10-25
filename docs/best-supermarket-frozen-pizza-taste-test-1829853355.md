@@ -1,6 +1,6 @@
 # 一个口味测试，以确定最好的超市冷冻比萨饼
 
-> 原文:[https://the take out . com/best-supermarket-frozen-pizza-taste-test-1829853355](https://thetakeout.com/best-supermarket-frozen-pizza-taste-test-1829853355)
+> 原文：<https://thetakeout.com/best-supermarket-frozen-pizza-taste-test-1829853355>
 
 冷冻披萨是那些没有其他选择的人的堡垒:太穷或太饿而无法咳出面团，或等待 30 分钟才能送到，缺乏自己制作的原料或资金。对我来说，冷冻披萨让我想起了小时候的保姆之夜；因为我的父母要出去，这是我妈妈不做饭的一个罕见的夜晚，所以我们用塑料包装比萨饼。我猜它足够新奇，令人兴奋，以至于我在 20 多岁时在自己的单身女孩冰箱里放了单份版本，在新婚时放了豪华版本。
 

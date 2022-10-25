@@ -1,6 +1,6 @@
 # 关于新的 Chase Freedom Flex 卡，您需要了解什么
 
-> 原文:[https://life hacker . com/what-to-know-the-new-chase-freedom-flex-card-1844986827](https://lifehacker.com/what-to-know-about-the-new-chase-freedom-flex-card-1844986827)
+> 原文：<https://lifehacker.com/what-to-know-about-the-new-chase-freedom-flex-card-1844986827>
 
 上周， [大通推出了](https://media.chase.com/news/new-chase-freedom-flex-credit-Card-and-more-cash-back-Opportunities-for-freedom-unlimited-cardmembers) 新的奖励信用卡产品——包括新的 [大通自由灵活](https://creditcards.chase.com/a1/freedom/comingsoon?jp_cmp=cc/freedom-teaser-vanity/ext/CID/PID)——以及现有大通自由无限的新返现奖励。两者都将于 2020 年 9 月 15 日上市。
 

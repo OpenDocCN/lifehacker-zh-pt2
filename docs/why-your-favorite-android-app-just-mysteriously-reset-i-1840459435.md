@@ -1,6 +1,6 @@
 # 为什么你最喜欢的安卓应用程序会神秘地自动重置
 
-> 原文:[https://life hacker . com/why-your-favorite-Android-app-just-mysely-reset-I-1840459435](https://lifehacker.com/why-your-favorite-android-app-just-mysteriously-reset-i-1840459435)
+> 原文：<https://lifehacker.com/why-your-favorite-android-app-just-mysteriously-reset-i-1840459435>
 
 如果你的安卓应用有健忘症，你自己可能也有点困惑。你的数据去哪了？为什么这个应用(或你的一些应用)表现得好像你是第一次打开它一样？你的安卓是不是被附身了？
 

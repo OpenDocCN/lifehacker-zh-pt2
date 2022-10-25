@@ -1,6 +1,6 @@
 # 如何在 Android 上设置 Opera 的移动 VPN 进行安全浏览
 
-> 原文:[https://life hacker . com/how-to-set-up-opera-s-mobile-VPN-for-secure-browsing-on-1832436689](https://lifehacker.com/how-to-set-up-opera-s-mobile-vpn-for-secure-browsing-on-1832436689)
+> 原文：<https://lifehacker.com/how-to-set-up-opera-s-mobile-vpn-for-secure-browsing-on-1832436689>
 
 **2019 年 3 月 20 日更新:** *Opera 为 Android 用户提供的免费 VPN(内置于 Opera 应用中)现已停止测试，并将于今天开始向所有用户推出，通过* [*【谷歌 Play 商店】*](https://play.google.com/store/apps/details?id=com.opera.browser) *。立即更新您的应用！*
 

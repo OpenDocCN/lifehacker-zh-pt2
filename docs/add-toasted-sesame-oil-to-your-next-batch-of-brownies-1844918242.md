@@ -1,6 +1,6 @@
 # 在下一批核仁巧克力饼中加入烤芝麻油
 
-> 原文:[https://life hacker . com/add-toast-芝麻油到你的下一批布朗尼-1844918242](https://lifehacker.com/add-toasted-sesame-oil-to-your-next-batch-of-brownies-1844918242)
+> 原文：<https://lifehacker.com/add-toasted-sesame-oil-to-your-next-batch-of-brownies-1844918242>
 
 我做过很多 [盒装混合布朗尼](https://skillet.lifehacker.com/an-ode-to-boxed-mix-brownies-1828685632) 。有时候我会按照包装上的说明来做，但我通常会在一些地方做一些调整，比如用 [替换植物油](https://skillet.lifehacker.com/how-to-make-boxed-brownie-mix-taste-homemade-1829269063?rev=1598977351576) 来做一些更美味的东西，或者用 [咖啡](https://skillet.lifehacker.com/use-coffee-instead-of-water-in-chocolate-baking-mixes-1828744499) 来代替水。
 

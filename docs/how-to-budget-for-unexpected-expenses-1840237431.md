@@ -1,6 +1,6 @@
 # 如何为意外开支做预算
 
-> 原文:[https://life hacker . com/how-to-budget-for-unexpected-expense-1840237431](https://lifehacker.com/how-to-budget-for-unexpected-expenses-1840237431)
+> 原文：<https://lifehacker.com/how-to-budget-for-unexpected-expenses-1840237431>
 
 我们都有过这样的经历:你做一个预算，你开始根据你的预算进行购买，然后你被一些不在你预算内的费用所困。
 

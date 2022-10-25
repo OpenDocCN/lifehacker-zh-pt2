@@ -1,6 +1,6 @@
 # 今天从盒子里的杰克那里得到一个免费的奶酪汉堡
 
-> 原文:[https://life hacker . com/get-a-free-a-cheese burg-from-jack-in-the-box-today-1835206903](https://lifehacker.com/get-a-free-cheeseburger-from-jack-in-the-box-today-1835206903)
+> 原文：<https://lifehacker.com/get-a-free-cheeseburger-from-jack-in-the-box-today-1835206903>
 
 很明显，今天是全国奶酪日。在令人自豪的传统节日中，如[国家墨西哥卷饼日](https://lifehacker.com/where-to-score-deals-today-for-national-burrito-day-1833816979) ，盒子里的杰克选择用每个人最喜欢的礼物来庆祝这一天:免费食物。
 

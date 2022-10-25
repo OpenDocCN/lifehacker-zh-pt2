@@ -1,6 +1,6 @@
 # 现在不是买曼陀林切片机的时候
 
-> 原文:[https://life hacker . com/now-is-time-to-buy-a-mandoline-slicer-1843132799](https://lifehacker.com/now-is-not-the-time-to-buy-a-mandoline-slicer-1843132799)
+> 原文：<https://lifehacker.com/now-is-not-the-time-to-buy-a-mandoline-slicer-1843132799>
 
 如果你在 Twitter 上搜索“mandoline slicer”这个词，你会看到大量的广告，一些称赞它是“游戏改变者”的推文，以及许多悲伤和肢解的故事。曼陀林不是厨房玩具，你看，它们是厨房武器。
 

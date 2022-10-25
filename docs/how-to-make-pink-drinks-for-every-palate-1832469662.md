@@ -1,6 +1,6 @@
 # 如何制作适合各种口味的粉色饮料
 
-> 原文:[https://life hacker . com/how-to-make-pink-drinks-1832469662](https://lifehacker.com/how-to-make-pink-drinks-for-every-palate-1832469662)
+> 原文：<https://lifehacker.com/how-to-make-pink-drinks-for-every-palate-1832469662>
 
 没有“少女”饮料这种东西。有甜饮料、苦饮料、果味饮料和烈性饮料，但饮料的性别永远是可变的。即使是粉红色的饮料(缺乏想象力的人很快就会给它贴上“娘娘腔”的标签)也只是粉红色的。就像颜色不能表明性别一样，它也与味道完全脱离。
 

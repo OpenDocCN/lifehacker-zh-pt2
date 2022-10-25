@@ -1,6 +1,6 @@
 # 菊苣做了一道上好的感恩节沙拉
 
-> 原文:[https://life hacker . com/radic chio-makes-a-superior-感恩节沙拉-1839866691](https://lifehacker.com/radicchio-makes-a-superior-thanksgiving-salad-1839866691)
+> 原文：<https://lifehacker.com/radicchio-makes-a-superior-thanksgiving-salad-1839866691>
 
 我是感恩节晚餐提供沙拉的的坚定拥护者。尽管我完全是为了砂锅菜而来，但一堆生树叶可以净化味觉，振奋精神，让人们继续津津有味地把土豆和肉汁往脸上推。任何沙拉都可以胜任这一角色，但菊苣沙拉在这方面更胜一筹。
 

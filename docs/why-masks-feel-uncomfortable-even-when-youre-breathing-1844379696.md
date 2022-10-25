@@ -1,6 +1,6 @@
 # 为什么即使你呼吸顺畅，戴口罩也会感觉不舒服
 
-> 原文:[https://life hacker . com/why-masks-feel-uncome-even-when-you-breathing-1844379696](https://lifehacker.com/why-masks-feel-uncomfortable-even-when-youre-breathing-1844379696)
+> 原文：<https://lifehacker.com/why-masks-feel-uncomfortable-even-when-youre-breathing-1844379696>
 
 光着脸去比戴着面具舒服。而且我们很多人都不习惯戴口罩，所以第一次戴口罩的时候——也许是在夏天，在疫情的中央——可能会感到窒息。但是请放松:面罩实际上并没有限制你的呼吸。保证。
 

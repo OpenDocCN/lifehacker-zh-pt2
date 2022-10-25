@@ -1,6 +1,6 @@
 # 使用这个免费的美国汽车协会地图来获取每个州的最新旅行限制
 
-> 原文:[https://life hacker . com/use-this-free-AAA-map-to-get-updated-travel-restriction-1844191630](https://lifehacker.com/use-this-free-aaa-map-to-get-updated-travel-restriction-1844191630)
+> 原文：<https://lifehacker.com/use-this-free-aaa-map-to-get-updated-travel-restriction-1844191630>
 
 在 GPS 和智能手机出现之前，美国汽车协会(AAA)的 TripTik 是规划和导航公路旅行的*方式。事实上，一个多世纪以来，它一直是旅行的主要内容。通过他们的应用程序 可以获得更新的数字版本的 TripTiks，但是这些资源只对他们的成员开放。幸运的是，AAA 确实在他们的网站上免费提供了一些 TripTik 功能，包括一张提供当前新冠肺炎旅行限制最新信息的地图。以下是如何找到并使用它。*
 

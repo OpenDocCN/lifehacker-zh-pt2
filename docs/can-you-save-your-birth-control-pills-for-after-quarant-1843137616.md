@@ -1,6 +1,6 @@
 # 你能把避孕药留到隔离后再吃吗？
 
-> 原文:[https://life hacker . com/can-you-save-you-避孕药-for-quarant-1843137616](https://lifehacker.com/can-you-save-your-birth-control-pills-for-after-quarant-1843137616)
+> 原文：<https://lifehacker.com/can-you-save-your-birth-control-pills-for-after-quarant-1843137616>
 
 如果你现在没有使用避孕药，你可以把不用的药片包留着以后用。你需要知道的是:
 

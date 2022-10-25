@@ -1,6 +1,6 @@
 # 为什么你应该参加首次购房者班
 
-> 原文:[https://life hacker . com/why-you-should-take-a-first-time buyer-class-1837067606](https://lifehacker.com/why-you-should-take-a-first-time-homebuyer-class-1837067606)
+> 原文：<https://lifehacker.com/why-you-should-take-a-first-time-homebuyer-class-1837067606>
 
 在网上浏览房屋清单或者看像《寻房者》这样的节目很有趣。但是如果你不是房主，你可能会对如何开始实现你的美国梦感到迷茫。
 

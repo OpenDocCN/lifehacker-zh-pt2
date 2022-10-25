@@ -1,6 +1,6 @@
 # 新冠肺炎如何影响申请经济资助
 
-> 原文:[https://life hacker . com/how-新冠肺炎-may-impact-申请助学金-1844982448](https://lifehacker.com/how-covid-19-may-impact-applying-for-financial-aid-1844982448)
+> 原文：<https://lifehacker.com/how-covid-19-may-impact-applying-for-financial-aid-1844982448>
 
 如果你今年秋天申请经济资助，过程可能会有所不同。原因如下:你 2021 至 2022 学年的助学金表格会考虑你家庭从 2019 年开始的收入。如果你的收入在 2020 年受到疫情冠状病毒的影响，你可能需要要求调整奖励。
 

@@ -1,6 +1,6 @@
 # iOS 13 中如何强制所有 app 使用黑暗模式
 
-> 原文:[https://life hacker . com/how-to-force-all-apps-to-use-dark-mode-in-IOs-13-1838406273](https://lifehacker.com/how-to-force-all-apps-to-use-dark-mode-in-ios-13-1838406273)
+> 原文：<https://lifehacker.com/how-to-force-all-apps-to-use-dark-mode-in-ios-13-1838406273>
 
 自从 iOS 13 发布并为 iphone 带来其 [全系统黑暗主题已经有几天了，支持新黑暗 UI 的应用程序列表已经超出了最初的一批。虽然越来越多的应用程序被更新以支持 iOS 13 的全系统黑暗模式，但仍有许多人坚持己见。没有人喜欢在使用黑暗模式时被具有明亮 UI 元素的应用程序所蒙蔽——但幸运的是，你可以通过使用 iOS 13 的“智能反转”设置，强制所有应用程序使用替代的“黑暗模式”,即使它们没有正式拥有。](https://lifehacker.com/the-best-apps-that-now-support-dark-mode-in-ios-13-1838290978) 
 

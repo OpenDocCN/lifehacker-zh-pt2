@@ -1,6 +1,6 @@
 # 你可能把大蒜煮过头了
 
-> 原文:[https://life hacker . com/you-probably-over cooked-your-大蒜-1834395013](https://lifehacker.com/youre-probably-overcooking-your-garlic-1834395013)
+> 原文：<https://lifehacker.com/youre-probably-overcooking-your-garlic-1834395013>
 
 从前，在热锅里同时加入洋葱和大蒜已经成为一种普遍的做法。我认为这与“让味道混合”有关，但我不确定。尽管它们都是蒜，但两者的烹饪速度却大相径庭，将它们放在一起会导致苦味的蒜味散落在一堆未煮熟的洋葱中。
 

@@ -1,6 +1,6 @@
 # 如何长寿，从两个人过百
 
-> 原文:[https://life hacker . com/how-people-live-to-be-over-100-in-Costa-Rica-1833819173](https://lifehacker.com/how-people-live-to-be-over-100-in-costa-rica-1833819173)
+> 原文：<https://lifehacker.com/how-people-live-to-be-over-100-in-costa-rica-1833819173>
 
 为了会见一些世界上最著名的老人，我飞到了哥斯达黎加。我乘坐的飞机上的大多数人可能会直奔海滩，而 Lifehacker 的机组人员和我 [驾驶](https://lifehacker.com/how-to-drive-on-rough-roads-1833741594) 进入尼科亚半岛炎热干燥的山区。
 

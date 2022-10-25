@@ -1,6 +1,6 @@
 # 如何在不等待推出的情况下访问 Chrome 85 的新功能
 
-> 原文:[https://life hacker . com/how-to-access-chrome-85s-new-features-without-waiting-f-1844843807](https://lifehacker.com/how-to-access-chrome-85s-new-features-without-waiting-f-1844843807)
+> 原文：<https://lifehacker.com/how-to-access-chrome-85s-new-features-without-waiting-f-1844843807>
 
 就像一个孩子在[你选择的假期]一样，Chrome 85 昨天来到了大众面前。或者至少理论上是这样。昨天下午，当我打开浏览器，像往常一样导航到“关于谷歌浏览器”来发布更新时，什么也没发生。
 

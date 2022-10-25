@@ -1,6 +1,6 @@
 # 让你的孩子在睡觉前给米奇打电话
 
-> 原文:[https://life hacker . com/Disney s-就寝时间-热线-优惠-儿童-免费-就寝时间-messag-1842946998](https://lifehacker.com/disneys-bedtime-hotline-offers-kids-free-bedtime-messag-1842946998)
+> 原文：<https://lifehacker.com/disneys-bedtime-hotline-offers-kids-free-bedtime-messag-1842946998>
 
 去年 9 月，迪士尼提供了为期两周的“睡前热线”，年轻人和年轻的心可以打电话听他们最喜欢的迪士尼、漫威、星球大战或皮克斯角色的睡前信息。
 

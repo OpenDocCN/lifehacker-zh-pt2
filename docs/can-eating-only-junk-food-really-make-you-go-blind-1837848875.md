@@ -1,6 +1,6 @@
 # 只吃垃圾食品真的会让你变瞎吗？
 
-> 原文:[https://life hacker . com/can-eating-only-junk-food-true-make-you-go-blind-1837848875](https://lifehacker.com/can-eating-only-junk-food-really-make-you-go-blind-1837848875)
+> 原文：<https://lifehacker.com/can-eating-only-junk-food-really-make-you-go-blind-1837848875>
 
 一名少年 [在多年吃极其有限的饮食后，失去了视力](https://gizmodo.com/a-boys-extreme-picky-eating-left-him-with-permanent-bli-1837839609) 。这个故事被耸人听闻地登上了关于垃圾食品让你失明的头条，这个男孩肯定会成为未来几年父母警示故事的笑点。但这实际上是一个非常特殊的饮食失调的故事。
 

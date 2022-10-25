@@ -1,6 +1,6 @@
 # 2019 款 MacBook Pro 机型最高可优惠 300 美元
 
-> 原文:[https://life hacker . com/get-up-to-300-off-2019-macbook-pro-models-1839804474](https://lifehacker.com/get-up-to-300-off-2019-macbook-pro-models-1839804474)
+> 原文：<https://lifehacker.com/get-up-to-300-off-2019-macbook-pro-models-1839804474>
 
 随着年底的临近，苹果产品已经看到了一些不错的交易，包括 15 英寸和 13 英寸的 MacBook Pro，目前通过亚马逊和 B & H Photo 在限定时间内降价高达 300 美元。
 

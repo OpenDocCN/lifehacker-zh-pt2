@@ -1,6 +1,6 @@
 # 如何在乘坐蔻驰航班时获得头等舱额外待遇
 
-> 原文:[https://life hacker . com/how-to-get-头等舱津贴-飞行教练-1831444474](https://lifehacker.com/how-to-get-first-class-perks-while-flying-coach-1831444474)
+> 原文：<https://lifehacker.com/how-to-get-first-class-perks-while-flying-coach-1831444474>
 
 Watch
 

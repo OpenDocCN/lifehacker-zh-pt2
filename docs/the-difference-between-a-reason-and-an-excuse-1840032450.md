@@ -1,6 +1,6 @@
 # 理由和借口的区别
 
-> 原文:[https://life hacker . com/the-difference-a-reason-a-a-a-借口-1840032450](https://lifehacker.com/the-difference-between-a-reason-and-an-excuse-1840032450)
+> 原文：<https://lifehacker.com/the-difference-between-a-reason-and-an-excuse-1840032450>
 
 “我他妈的受不了那些不知道‘理由’和‘借口’区别的人，”[redditor raspberrykoolaed](https://www.reddit.com/r/AskReddit/comments/e18g6m/if_ok_boomer_was_a_digital_assistant_like_ok/f8or8ci/)说的是那些令人反感的人，他们不能同情任何他们自己没有面对过的问题，认为其他人都只是在提供借口。你不会想成为那种人的。但你也不想成为一个哭哭啼啼的失望者。当你能从借口中分辨出原因时，你的整个生活将会改善。
 

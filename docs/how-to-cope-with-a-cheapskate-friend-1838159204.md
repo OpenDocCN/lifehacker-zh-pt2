@@ -1,6 +1,6 @@
 # 如何对付一个廉价的朋友
 
-> 原文:[https://life hacker . com/how-to-应付一个小气鬼朋友-1838159204](https://lifehacker.com/how-to-cope-with-a-cheapskate-friend-1838159204)
+> 原文：<https://lifehacker.com/how-to-cope-with-a-cheapskate-friend-1838159204>
 
 节俭是一回事。你知道你想把钱花在什么地方，你会优先考虑它。你知道你不想在哪里花钱，你 [最大限度地减少那笔支出](https://twocents.lifehacker.com/our-readers-share-their-best-frugal-hacks-1838094787) 。但你远非好战之人，在旅行或特殊场合，你会时不时地挥霍金钱。节俭是好的。
 

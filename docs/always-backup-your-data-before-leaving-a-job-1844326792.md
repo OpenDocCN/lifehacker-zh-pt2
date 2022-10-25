@@ -1,6 +1,6 @@
 # 离职前一定要备份你的数据
 
-> 原文:[https://life hacker . com/always-backup-your-data-before-leaving-a-job-1844326792](https://lifehacker.com/always-backup-your-data-before-leaving-a-job-1844326792)
+> 原文：<https://lifehacker.com/always-backup-your-data-before-leaving-a-job-1844326792>
 
 在你向老板递交辞职信之前，先处理一些数据管理是很重要的。在上面的视频中，我讲述了备份数据和删除工作设备上的任何个人信息的步骤。
 

@@ -1,6 +1,6 @@
 # 如何购买动物穿越开关零件分开，从日本
 
-> 原文:[https://kotaku . com/how-to-buy-the-animal-crossing-switch-parts-separately-1841476810](https://kotaku.com/how-to-buy-the-animal-crossing-switch-parts-separately-1841476810)
+> 原文：<https://kotaku.com/how-to-buy-the-animal-crossing-switch-parts-separately-1841476810>
 
 每个人都在为任天堂新的*动物穿越*风格的开关硬件 T5 而失去理智。汤姆·诺克主题码头！彩色欢乐合唱团。不管它后面是什么！数百万已经拥有一台交换机的用户中，许多人都想升级只是为了新的外观，但希望他们可以单独购买配件。嗯，你可以——从任天堂的日本商店。 
 

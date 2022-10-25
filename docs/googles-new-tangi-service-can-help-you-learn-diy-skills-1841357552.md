@@ -1,6 +1,6 @@
 # 谷歌新的“Tangi”服务可以帮助你学习 DIY 技能
 
-> 原文:[https://life hacker . com/Google s-new-tangi-service-can-help-you-learn-DIY-skills-1841357552](https://lifehacker.com/googles-new-tangi-service-can-help-you-learn-diy-skills-1841357552)
+> 原文：<https://lifehacker.com/googles-new-tangi-service-can-help-you-learn-diy-skills-1841357552>
 
 谷歌的最新服务 Tangi 是一个简短的视频平台，它可以帮助你学习和分享新的创造技能 。它目前有 [、一个网站](https://tangi.co/) 和一个 [iOS 应用](https://apps.apple.com/us/app/tangi-quick-videos/id1489238860)——不，它还没有为 Android 做好准备，这很奇怪，因为它是谷歌的服务，但你去吧。
 

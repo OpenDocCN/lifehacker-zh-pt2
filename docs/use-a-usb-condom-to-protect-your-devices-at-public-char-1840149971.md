@@ -1,6 +1,6 @@
 # 在公共充电器上使用“USB 避孕套”来保护你的设备
 
-> 原文:[https://life hacker . com/use-a-USB-company-to-protect-your-devices-at-public-char-1840149971](https://lifehacker.com/use-a-usb-condom-to-protect-your-devices-at-public-char-1840149971)
+> 原文：<https://lifehacker.com/use-a-usb-condom-to-protect-your-devices-at-public-char-1840149971>
 
 是的，这是一个可怕的短语，但“USB 避孕套”是一个很好的小工具，你可以购买它来防止未知的攻击者在你为设备充电时做一些他们不应该做的事情。换句话说，一个 USB“数据拦截器”，如果你更喜欢这个说法，将允许你 [使用公共 USB 端口给你的手机](https://lifehacker.com/stop-using-public-usb-ports-to-charge-your-phone-1839906505) 充电而不用担心。
 

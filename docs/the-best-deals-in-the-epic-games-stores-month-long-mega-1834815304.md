@@ -1,6 +1,6 @@
 # Epic Games 商店为期一个月的“大减价”中最划算的交易
 
-> 原文:[https://life hacker . com/the-best-deals-in-the-epic-games-stores-month-long-mega-1834815304](https://lifehacker.com/the-best-deals-in-the-epic-games-stores-month-long-mega-1834815304)
+> 原文：<https://lifehacker.com/the-best-deals-in-the-epic-games-stores-month-long-mega-1834815304>
 
 Epic 真的希望你开始从它的在线商店购买游戏。*堡垒之夜*(以及广泛使用的虚幻游戏设计引擎)背后的公司宣布，将于 2019 年 5 月 16 日至 6 月 13 日在其平台 [Epic Games Store](https://www.epicgames.com/store/en-US/) 举行全店销售。这意味着电脑游戏的大量折扣，无论大小，新旧(甚至还没有推出)。
 

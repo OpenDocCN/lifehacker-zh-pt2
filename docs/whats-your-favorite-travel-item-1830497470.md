@@ -1,6 +1,6 @@
 # 你最喜欢的旅行项目是什么？
 
-> 原文:[https://life hacker . com/whats-your favorite-travel-item-1830497470](https://lifehacker.com/whats-your-favorite-travel-item-1830497470)
+> 原文：<https://lifehacker.com/whats-your-favorite-travel-item-1830497470>
 
 有些人喜欢他们的特殊行李。有的信誓旦旦某个零食；有些人甚至每次旅行都带上自己的咖啡研磨机。我必须带的东西是我的 [BeatsX 无线耳机](https://www.amazon.com/gp/product/B01MUXQ7SP/ref=oh_aui_search_detailpage?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/whats-your-favorite-travel-item-1830497470&asc_source=&ie=UTF8&psc=1&tag=kinjalifehackerlink-20) ，它把我与哭泣的婴儿、地铁上的谈话者以及告诉整架飞机我们行驶速度的飞行员隔离开来，好像我们可能会有反馈。耳机、我的手机和一本平装书将让我度过任何飞行。VC Hunter Walk 在 Twitter 上询问他们喜欢在旅行中携带的物品:
 

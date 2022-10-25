@@ -1,6 +1,6 @@
 # Hopper 的新“价格冻结”功能将让您为以后节省低价机票
 
-> 原文:[https://life hacker . com/hoppers-new-price-freeze-feature-will-let-you-save-low-1840015595](https://lifehacker.com/hoppers-new-price-freeze-feature-will-let-you-save-low-1840015595)
+> 原文：<https://lifehacker.com/hoppers-new-price-freeze-feature-will-let-you-save-low-1840015595>
 
 买机票是一门学问。如果你提前太久买机票，你可能会比等到接近旅行日期时买票多付很多钱。另一方面，如果你等到旅行日期的前一刻，那么你最终也可能得到一张昂贵的机票。
 

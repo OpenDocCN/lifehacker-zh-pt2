@@ -1,6 +1,6 @@
 # 如何将你的 iPhone 设置为谷歌 2FA 的安全密钥
 
-> 原文:[https://life hacker . com/how-to-set-up-your-iphone-as-a-security-key-for-Google-1841024739](https://lifehacker.com/how-to-set-up-your-iphone-as-a-security-key-for-googles-1841024739)
+> 原文：<https://lifehacker.com/how-to-set-up-your-iphone-as-a-security-key-for-googles-1841024739>
 
 如果你是一个优秀的谷歌用户，你可能已经习惯了每当你登录你的账户时(或者当别人试图以你的身份登录时，你的设备会收到各种各样的提示)。Android 用户已经能够使用他们的设备作为安全密钥有一段时间了，iPhone 用户现在终于也有机会了。
 

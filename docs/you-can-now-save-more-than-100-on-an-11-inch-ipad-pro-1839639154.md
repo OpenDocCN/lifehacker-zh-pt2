@@ -1,6 +1,6 @@
 # 现在，购买 11 英寸的 iPad Pro 可以节省 100 多美元
 
-> 原文:[https://life hacker . com/you-can-now-save-than-100 on-a-11 英寸 ipad-pro-1839639154](https://lifehacker.com/you-can-now-save-more-than-100-on-an-11-inch-ipad-pro-1839639154)
+> 原文：<https://lifehacker.com/you-can-now-save-more-than-100-on-an-11-inch-ipad-pro-1839639154>
 
 尽管已经一岁了，2018 年的 iPad Pro 仍然是苹果平板电脑产品线中的一个坚实的选择。正因为如此，很少看到 iPad Pro 的价格比 800 美元的正常价格低得多，但你现在可以通过亚马逊 以 674 美元的价格在 [买到一台 11 英寸、只有 wifi 功能、64GB 内存的 iPad Pro。(其他型号也有折扣，但远不及 64GB 的 wifi iPad Pro。)](https://www.amazon.com/Apple-iPad-11-inch-Wi-Fi-64GB/dp/B07K344J3N?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/you-can-now-save-more-than-100-on-an-11-inch-ipad-pro-1839639154&asc_source=&tag=kinjalifehackerlink-20) 
 

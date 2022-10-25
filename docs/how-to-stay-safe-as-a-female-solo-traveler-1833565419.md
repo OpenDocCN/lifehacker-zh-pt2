@@ -1,6 +1,6 @@
 # 如何作为一名女性独自旅行者保持安全
 
-> 原文:[https://life hacker . com/how-to-stay-safe-as-female-solo-traveler-1833565419](https://lifehacker.com/how-to-stay-safe-as-a-female-solo-traveler-1833565419)
+> 原文：<https://lifehacker.com/how-to-stay-safe-as-a-female-solo-traveler-1833565419>
 
 独自旅行是一种令人难以置信的有益体验，但也有其危险性。近年来，独自旅行的女性人数一直在上升，在旅途中保持安全的策略也变得越来越复杂和重要。
 

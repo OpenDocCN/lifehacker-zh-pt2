@@ -1,6 +1,6 @@
 # 15 podcasts to listen to while youre waiting in line to 1830009552
 
-> 原文:[https://www . av club . com/15-podcast-to-listen-to-while-you-waiting-to-1830009552](https://www.avclub.com/15-podcasts-to-listen-to-while-youre-waiting-in-line-to-1830009552)
+> 原文：<https://www.avclub.com/15-podcasts-to-listen-to-while-youre-waiting-in-line-to-1830009552>
 
 本周我们做了一些稍微不同的事情:因为明天是美国的选举日，而且因为我们在的影音俱乐部*认为投票很重要，我们推荐 15 集播客供你在等待明天投票时收听。它们是按照从短到长的顺序排列的，所以不管队伍有多长或多短，我们都有一些东西可以推荐。投票站见。*
 

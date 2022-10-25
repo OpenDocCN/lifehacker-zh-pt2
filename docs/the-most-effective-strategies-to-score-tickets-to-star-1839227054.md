@@ -1,6 +1,6 @@
 # 获得今晚《星球大战：天行者崛起》门票的最佳秘诀
 
-> 原文:[https://life hacker . com/the-most-effective-strategies-to-score-tickets-to-star-1839227054](https://lifehacker.com/the-most-effective-strategies-to-score-tickets-to-star-1839227054)
+> 原文：<https://lifehacker.com/the-most-effective-strategies-to-score-tickets-to-star-1839227054>
 
 我迫不及待地想看《星球大战:天行者的崛起》，但我对今天的《T2》既兴奋又恐惧。原因如下:史诗般的天行者传奇最后一部电影的门票将于今晚晚些时候发售，对于数百万寻找电影首映周末座位的粉丝来说，这将是一场彻底的混乱。
 

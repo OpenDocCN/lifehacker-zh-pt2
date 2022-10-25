@@ -1,6 +1,6 @@
 # 2019 年最佳常旅客计划
 
-> 原文:[https://life hacker . com/the-best-frequent-flyer-programs-of-2019-1832927763](https://lifehacker.com/the-best-frequent-flyer-programs-of-2019-1832927763)
+> 原文：<https://lifehacker.com/the-best-frequent-flyer-programs-of-2019-1832927763>
 
 无论你是每年旅行一次还是每月旅行一次，加入航空公司的常旅客计划都是有价值的。然而，选择哪一个将取决于你的需求:在一天内有多个航班对你来说是最重要的，还是你是一个积分价值纯粹主义者？
 

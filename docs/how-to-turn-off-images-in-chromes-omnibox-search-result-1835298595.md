@@ -1,6 +1,6 @@
 # 如何关闭 Chrome 地址栏搜索结果中的图片
 
-> 原文:[https://life hacker . com/how-to-off-images-in-chromes-omni box-search-result-1835298595](https://lifehacker.com/how-to-turn-off-images-in-chromes-omnibox-search-result-1835298595)
+> 原文：<https://lifehacker.com/how-to-turn-off-images-in-chromes-omnibox-search-result-1835298595>
 
 最新最棒的谷歌 Chrome 版本对 [做出了大多数人不会注意到的](https://developers.google.com/web/updates/2019/06/nic75) 改变，比如对浏览器加载页面和图像的方式进行了调整。然而，大多数人*会*注意到的一个特点是，当你在 Chrome 的地址栏或“Omnibox”中搜索时，会弹出一些图像
 

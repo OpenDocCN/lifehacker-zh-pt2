@@ -1,6 +1,6 @@
 # 查看 Robinhood 是否暴露了您的密码
 
-> 原文:[https://life hacker . com/check-to-see-if-robin hood-exposed-your-password-1836709434](https://lifehacker.com/check-to-see-if-robinhood-exposed-your-password-1836709434)
+> 原文：<https://lifehacker.com/check-to-see-if-robinhood-exposed-your-password-1836709434>
 
 坏消息，赚钱的人。流行的股票交易应用程序 [Robinhood](https://robinhood.com/) 最近向数量不详的用户发送了电子邮件，让他们知道该公司犯了一个小小的错误，以明文形式将他们的密码存储在服务器上。
 

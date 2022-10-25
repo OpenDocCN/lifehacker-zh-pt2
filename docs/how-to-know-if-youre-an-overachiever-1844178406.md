@@ -1,6 +1,6 @@
 # how to know if youre an overachiever 1844178406
 
-> 原文:[https://life hacker . com/how-to-know-if-you-a-over achieve-1844178406](https://lifehacker.com/how-to-know-if-youre-an-overachiever-1844178406)
+> 原文：<https://lifehacker.com/how-to-know-if-youre-an-overachiever-1844178406>
 
 当我们还是孩子的时候，在学校里，我们经常被贴上别人如何看待我们的“成就”的标签如果父母或教育者不相信他们“发挥了全部潜力”(不管这意味着什么)，一些孩子就会被称为“后进生”。另一方面，如果父母和教育工作者认为他们“承担了太多”，可能会过度扩张自己，或者担心孩子为了完成他们认为成年人对他们的期望而给自己施加太多压力，那么其他人就会被视为“超额完成者”。我们很少听说一般的“成功者”，甚至不知道如何准确地衡量一个人的成就(除了在学校的成绩)。然而，这些概念会伴随我们一生。
 

@@ -1,6 +1,6 @@
 # 如何创建跳转到网站上特定文本的书签
 
-> 原文:[https://life hacker . com/how-to-create-a-bookmark-that-jumps-to-specific-text-on-1844113624](https://lifehacker.com/how-to-create-a-bookmark-that-jumps-to-specific-text-on-1844113624)
+> 原文：<https://lifehacker.com/how-to-create-a-bookmark-that-jumps-to-specific-text-on-1844113624>
 
 Chrome: 我一直很欣赏一个好的锚链接——你可以点击它，把你带到你正在浏览的网页的另一部分。然而，谷歌现在在这个经典导航元素的基础上增加了一个新的扩展，让你可以在网站内创建指向特定 T4 文本的超链接。
 

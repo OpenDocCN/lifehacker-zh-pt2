@@ -1,6 +1,6 @@
 # 检查您的 Android VPN 是否正在收集个人数据[更新]
 
-> 原文:[https://life hacker . com/check-if-your-Android-VPN-is-collecting-personal-data-1833108243](https://lifehacker.com/check-if-your-android-vpn-is-collecting-personal-data-1833108243)
+> 原文：<https://lifehacker.com/check-if-your-android-vpn-is-collecting-personal-data-1833108243>
 
 如果你像大多数人一样，你可能会找到一个你想放在智能手机上的应用程序，下载并安装它，甚至不会考虑它需要你的设备提供什么权限。我们打赌，这对于 [VPN 应用](https://lifehacker.com/how-to-find-a-trustworthy-vpn-1833045522#_ga=2.129657676.150304311.1551911206-1864099547.1536779123) 来说尤其如此，因为你可能已经假设其他服务会看到你来回发送的所有未加密数据。这并不意味着你不应该在意这些应用程序还想要什么*；你最不需要的是一个应用程序，它应该保护你的身份，泄露重要信息。*
 

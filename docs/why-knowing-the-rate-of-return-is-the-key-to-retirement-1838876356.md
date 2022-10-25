@@ -1,6 +1,6 @@
 # 为什么知道“回报率”是退休规划的关键
 
-> 原文:[https://life hacker . com/why-known-the-rate of-retirement-1838876356](https://lifehacker.com/why-knowing-the-rate-of-return-is-the-key-to-retirement-1838876356)
+> 原文：<https://lifehacker.com/why-knowing-the-rate-of-return-is-the-key-to-retirement-1838876356>
 
 你还记得那次 [苏茜·欧曼说](https://www.cnbc.com/2019/03/28/suze-orman-spending-money-on-coffee-is-like-throwing-1-million-down-the-drain.html) 我们应该把所有在咖啡上“撒尿”的钱拿来投资吗？你可以把每月花在咖啡上的 100 美元拿走，她说？我想她吼道)最后为你的退休准备一百万美元。
 

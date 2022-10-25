@@ -1,6 +1,6 @@
 # 如何免费获得 30 天的 Scribd，没有任何附加条件
 
-> 原文:[https://life hacker . com/how-to-get-30-days-of-free-no-strings-attac-1842412292](https://lifehacker.com/how-to-get-30-days-of-scribd-for-free-no-strings-attac-1842412292)
+> 原文：<https://lifehacker.com/how-to-get-30-days-of-scribd-for-free-no-strings-attac-1842412292>
 
 我是 [Scribd](https://www.scribd.com/) 的忠实粉丝，主要是因为我喜欢在网站上浏览各种有趣的 pdf 和其他我通常无法阅读的书籍。因为我和我在加州的朋友们正在创办一个检疫读书俱乐部，免费获得这项服务——这是*实际上是*免费获得，而不是免费试用——不可能有更好的时机了。
 

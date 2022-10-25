@@ -1,6 +1,6 @@
 # 用“餐桌销售”来整理你的家
 
-> 原文:[https://life hacker . com/de clutter-your-home-with-a table-sale-1837311254](https://lifehacker.com/declutter-your-home-with-a-table-sale-1837311254)
+> 原文：<https://lifehacker.com/declutter-your-home-with-a-table-sale-1837311254>
 
 如果你正在寻找庭院旧货出售的满足感，同时避免实际举办旧货出售的麻烦，我发现了一个完美的中间活动:邀请你的朋友来参加餐桌旧货出售。
 

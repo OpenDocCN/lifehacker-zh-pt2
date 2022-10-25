@@ -1,6 +1,6 @@
 # 问咸味女服务员:我点的“经销商之选”鸡尾酒可以退吗？
 
-> 原文:[https://the take out . com/send-back-the-dealer-s-choice-cocktail-I-ordered-1829660071](https://thetakeout.com/send-back-the-dealer-s-choice-cocktail-i-ordered-1829660071)
+> 原文：<https://thetakeout.com/send-back-the-dealer-s-choice-cocktail-i-ordered-1829660071>
 
 > 亲爱的咸味:最近在一家不错的鸡尾酒吧，我让酒保给我做了一份菜单外的饮料，以波旁酒为基酒。我最后喝了一杯对我来说太甜的鸡尾酒。在这种情况下，我只是完成了一半并支付了费用，但我想知道——我会不会因为对它不满意而要求其他东西，或者我实际上是因为点了“经销商的选择”而坚持要它？
 > 

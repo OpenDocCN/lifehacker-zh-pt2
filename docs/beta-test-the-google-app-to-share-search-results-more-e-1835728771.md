@@ -1,6 +1,6 @@
 # 如何分享谷歌应用程序的搜索结果
 
-> 原文:[https://life hacker . com/beta-test-the-Google-app-to-share-search-results-more-e-1835728771](https://lifehacker.com/beta-test-the-google-app-to-share-search-results-more-e-1835728771)
+> 原文：<https://lifehacker.com/beta-test-the-google-app-to-share-search-results-more-e-1835728771>
 
 Android: 你通常如何与朋友分享谷歌的搜索结果？我承认，我从来没有把搜索结果页面的巨大网址复制粘贴给任何人；我通常只是用美味被动攻击的“[”](https://lmgtfy.com/)”来帮助他们摆脱困境。也许我是个混蛋。
 

@@ -1,6 +1,6 @@
 # 如何判断你的孩子是否准备好上幼儿园
 
-> 原文:[https://life hacker . com/how-to-tell-if your ' s kid ' s ready-for-学龄前-1833236774](https://lifehacker.com/how-to-tell-if-your-kid-is-ready-for-preschool-1833236774)
+> 原文：<https://lifehacker.com/how-to-tell-if-your-kid-is-ready-for-preschool-1833236774>
 
 从我儿子是个婴儿到他 2 岁半，他每周有 45 个小时在日托所。他长期受到过度刺激，而他不能/不愿在日托所小睡的事实加剧了这种情况。
 

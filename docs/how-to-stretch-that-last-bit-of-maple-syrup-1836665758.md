@@ -1,6 +1,6 @@
 # 如何拉伸最后一点枫糖浆
 
-> 原文:[https://life hacker . com/how-to-stretch the last-bit of-maple-糖浆-1836665758](https://lifehacker.com/how-to-stretch-that-last-bit-of-maple-syrup-1836665758)
+> 原文：<https://lifehacker.com/how-to-stretch-that-last-bit-of-maple-syrup-1836665758>
 
 想象一下，如果你愿意，一个噩梦般的场景:你做了一堆美味的早餐碳水化合物。它们可能是松软的煎饼。它们可能是松软的法式吐司。他们是热的，涂上黄油，准备行动。但是当你打开冰箱，发现枫糖浆快用完了。
 

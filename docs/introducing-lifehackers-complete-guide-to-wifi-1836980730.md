@@ -1,6 +1,6 @@
 # 简介:Lifehacker 的 Wifi 完全指南
 
-> 原文:[https://life hacker . com/introducing-life hacker-complete-guide-to-wifi-1836980730](https://lifehacker.com/introducing-lifehackers-complete-guide-to-wifi-1836980730)
+> 原文：<https://lifehacker.com/introducing-lifehackers-complete-guide-to-wifi-1836980730>
 
 当你的无线网络不好的时候，你知道的——哦，你知道吗。让它再次正常工作并不总是像拔掉和重新插上路由器那么简单，这是我们最喜欢的技术故障排除技术之一。
 

@@ -1,6 +1,6 @@
 # 绿茶提取物对你的肝脏有害
 
-> 原文:[https://life hacker . com/green-tea-extract-can-worst-for-your-live-1830028314](https://lifehacker.com/green-tea-extract-can-be-terrible-for-your-liver-1830028314)
+> 原文：<https://lifehacker.com/green-tea-extract-can-be-terrible-for-your-liver-1830028314>
 
 一名得克萨斯州男子 [在服用绿茶提取物](https://www.bbc.com/news/stories-45971416) 后需要进行肝脏移植，而他的案例并非首例。绿茶补充剂(但*不是*真正的绿茶)在过去也与肝损伤有关。
 

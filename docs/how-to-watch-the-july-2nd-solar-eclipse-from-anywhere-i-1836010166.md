@@ -1,6 +1,6 @@
 # 如何在世界任何地方观看 7 月 2 日的日食
 
-> 原文:[https://life hacker . com/how-to-watch-the-July-2-日食-从任何地方-i-1836010166](https://lifehacker.com/how-to-watch-the-july-2nd-solar-eclipse-from-anywhere-i-1836010166)
+> 原文：<https://lifehacker.com/how-to-watch-the-july-2nd-solar-eclipse-from-anywhere-i-1836010166>
 
 如果你不在智利或阿根廷观看明天的日全食，旧金山的探索博物馆将为你带来现场直播，因为月亮在南美洲和南太平洋的部分地区投下了阴影。
 

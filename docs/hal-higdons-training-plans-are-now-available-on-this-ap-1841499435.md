@@ -1,6 +1,6 @@
 # Hal Higdon 的比赛训练计划现在可以在这个应用程序上获得
 
-> 原文:[https://life hacker . com/Hal-hig dons-training-plans-on-this-AP-1841499435](https://lifehacker.com/hal-higdons-training-plans-are-now-available-on-this-ap-1841499435)
+> 原文：<https://lifehacker.com/hal-higdons-training-plans-are-now-available-on-this-ap-1841499435>
 
 当我第一次跑马拉松时，我从当地跑步商店的教练那里得到了我的训练计划。但当我准备好迎接下一个挑战时——我想那是第二年的半程马拉松——一位跑步朋友向我透露了训练计划的经典在线来源:[【halhigdon.com】](https://www.halhigdon.com/)。
 

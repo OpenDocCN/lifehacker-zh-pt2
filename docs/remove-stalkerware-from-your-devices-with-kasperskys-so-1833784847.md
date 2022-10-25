@@ -1,6 +1,6 @@
 # 使用卡巴斯基的软件从您的设备中删除 Stalkerware
 
-> 原文:[https://life hacker . com/remove-stalker ware-from-your-devices-with-kasperskys-so-1833784847](https://lifehacker.com/remove-stalkerware-from-your-devices-with-kasperskys-so-1833784847)
+> 原文：<https://lifehacker.com/remove-stalkerware-from-your-devices-with-kasperskys-so-1833784847>
 
 我们经常把间谍软件攻击的实施者想象成拥有匿名身份的远程黑客，通过数字手段闯入我们的网络、账户甚至设备。然而，近年来，间谍软件最常见的 [用途之一是在国内滥用](https://www.researchgate.net/publication/326646794_The_Spyware_Used_in_Intimate_Partner_Violence) 的情况下。通常，施虐的伴侣会使用 [或者“合法”形式的间谍软件](https://usa.kaspersky.com/blog/stalkerware-spouseware/17477/) 跟踪受害者，并利用他们设备上的敏感信息作为操纵手段。
 

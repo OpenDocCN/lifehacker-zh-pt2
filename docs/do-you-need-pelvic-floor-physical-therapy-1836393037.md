@@ -1,6 +1,6 @@
 # do you need pelvic floor physical therapy 1836393037
 
-> 原文:[https://life hacker . com/do-you-need-盆底-理疗-1836393037](https://lifehacker.com/do-you-need-pelvic-floor-physical-therapy-1836393037)
+> 原文：<https://lifehacker.com/do-you-need-pelvic-floor-physical-therapy-1836393037>
 
 你可能从来没有听说过盆底物理疗法，这是一个遗憾:这是一个对各种困难的医疗条件非常有帮助的治疗选择。你的盆底像吊床一样覆盖在骨盆区域，支撑着骨盆器官(子宫、膀胱和直肠)。它也有助于排尿和肛门节制，并在核心力量和高潮中发挥作用。所有性别的人都有盆底。
 

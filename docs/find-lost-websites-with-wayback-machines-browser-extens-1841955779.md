@@ -1,6 +1,6 @@
 # 使用 Wayback Machine 的浏览器扩展查找丢失的网站
 
-> 原文:[https://life hacker . com/find-lost-websites-with-way back-machines-browser-extens-1841955779](https://lifehacker.com/find-lost-websites-with-wayback-machines-browser-extens-1841955779)
+> 原文：<https://lifehacker.com/find-lost-websites-with-wayback-machines-browser-extens-1841955779>
 
 打开一个网站，只看到可怕的“404”，可能会很烦人。但是，如果你真的需要网站消亡前的任何内容，你可以选择。 [互联网档案馆的 Wayback Machine](https://archive.org/web/) 是访问已死亡网站的保存缓存的最佳和最知名的方式之一，但遇到 [404](https://www.romainbrasier.fr/404/) ，在另一个标签中调出 Wayback Machine，输入 URL，搜索其档案等会变得繁琐。
 

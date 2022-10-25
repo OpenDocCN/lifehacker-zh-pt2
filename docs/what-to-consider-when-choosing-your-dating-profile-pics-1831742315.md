@@ -1,6 +1,6 @@
 # 如何选择完美的约会档案图片
 
-> 原文:[https://life hacker . com/what-to-consider-when-choose-your-dating-profile-pics-1831742315](https://lifehacker.com/what-to-consider-when-choosing-your-dating-profile-pics-1831742315)
+> 原文：<https://lifehacker.com/what-to-consider-when-choosing-your-dating-profile-pics-1831742315>
 
 人们开玩笑说，所有人在约会应用上关心的都是照片，这是真的。但是你不仅仅是根据性感程度来评判的——人们还试图在不看你简历的情况下了解你这个人。一张照片比你意识到的更能说明你的品味、社交生活和世界观。当你选择最完美的照片时，以下是你需要考虑的问题。
 

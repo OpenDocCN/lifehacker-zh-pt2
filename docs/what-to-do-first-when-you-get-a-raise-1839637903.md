@@ -1,6 +1,6 @@
 # 当你加薪时，首先要做什么
 
-> 原文:[https://life hacker . com/what-to-do-first-when-you-get-a-raise-1839637903](https://lifehacker.com/what-to-do-first-when-you-get-a-raise-1839637903)
+> 原文：<https://lifehacker.com/what-to-do-first-when-you-get-a-raise-1839637903>
 
 你为此努力工作，这一天终于到来了:你得到了第一份薪水，这是你成功谈判 获得的加薪 [。但是正如任何一个得到过意外之财的人会告诉你的那样，金钱有消失的趋势。前一天，你还在看着自己刚刚富裕起来的银行账户，第二天，你又在看着自己已经习惯的低余额。钱去哪了？！](https://twocents.lifehacker.com/use-this-formula-to-ask-for-a-raise-1823616050) 
 

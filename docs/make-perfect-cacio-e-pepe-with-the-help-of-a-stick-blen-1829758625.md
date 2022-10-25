@@ -1,6 +1,6 @@
 # 在棒式搅拌机的帮助下制作完美的仙人掌
 
-> 原文:[https://life hacker . com/make-perfect-cacio-e-Pepe-with-the-help-of-a-stick-blen-1829758625](https://lifehacker.com/make-perfect-cacio-e-pepe-with-the-help-of-a-stick-blen-1829758625)
+> 原文：<https://lifehacker.com/make-perfect-cacio-e-pepe-with-the-help-of-a-stick-blen-1829758625>
 
 如果我只能拥有一个电动厨房用具，那将是一个浸入式搅拌机。我的经历是几乎不间断的使用，很快就完成了从蛋黄酱到 [柠檬酱](https://skillet.lifehacker.com/how-to-make-perfect-lemon-curd-in-the-microwave-1826812427#_ga=2.48375590.1441534506.1539606830-144977662.1506607947) 的所有东西；它从来没有遇到过无法消除的肿块。尽管如此，我从来没有想到这个可靠的机器会永远解决我的困难。
 

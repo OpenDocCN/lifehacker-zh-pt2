@@ -1,6 +1,6 @@
 # 用维基百科上最好的助记法多记忆
 
-> 原文:[https://life hacker . com/memory-more-with-the-best-mnemonics-from-Wikipedia-1838262718](https://lifehacker.com/memorize-more-with-the-best-mnemonics-from-wikipedia-1838262718)
+> 原文：<https://lifehacker.com/memorize-more-with-the-best-mnemonics-from-wikipedia-1838262718>
 
 对于记忆术来说，没有太聪明或太愚蠢的事情。他们可以教你特定神经紊乱的特征，或者他们可以教你如何打开一个罐子。这里有一些你可能还不知道的最聪明的记忆辅助工具，维基百科 中的 [。](https://en.wikipedia.org/wiki/List_of_mnemonics) 
 

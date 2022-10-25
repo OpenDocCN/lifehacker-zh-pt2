@@ -1,6 +1,6 @@
 # 如何在 Windows 或 macOS 中显示您保存的 Wifi 密码
 
-> 原文:[https://life hacker . com/how-to-reveal-your-saved-wifi-passwords-in-windows-or-m-1838220756](https://lifehacker.com/how-to-reveal-your-saved-wifi-passwords-in-windows-or-m-1838220756)
+> 原文：<https://lifehacker.com/how-to-reveal-your-saved-wifi-passwords-in-windows-or-m-1838220756>
 
 给我出个谜语:你在某个地方，你需要用一个新设备连接到 wifi 网络。您意识到您的笔记本电脑上保存了 wifi 密码，但您想要连接的任何设备上都没有。而你要么是懒得再问密码，要么是以你现在的条件根本没办法获取。
 

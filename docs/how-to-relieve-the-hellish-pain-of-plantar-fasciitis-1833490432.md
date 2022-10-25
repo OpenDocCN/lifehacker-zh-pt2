@@ -1,6 +1,6 @@
 # 如何缓解足底筋膜炎地狱般的疼痛
 
-> 原文:[https://life hacker . com/how-to-release-the hellish-pain-of-plantar-筋膜炎-1833490432](https://lifehacker.com/how-to-relieve-the-hellish-pain-of-plantar-fasciitis-1833490432)
+> 原文：<https://lifehacker.com/how-to-relieve-the-hellish-pain-of-plantar-fasciitis-1833490432>
 
 我在晚年开始从事跑步运动，主要是因为接连生两个孩子的压力对我的身心健康造成了损害。在参加了当地的“沙发到 5K”项目后，我很快就和妈妈成为了朋友，她们和我一样痴迷于在马路上行走，以保持头脑清醒。
 

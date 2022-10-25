@@ -1,6 +1,6 @@
 # 2020 年 2 月在 Tubi 上免费看这些电影
 
-> 原文:[https://life hacker . com/watch-these-movies-on-tubi-in-two-2020-1841392523](https://lifehacker.com/watch-these-movies-for-free-on-tubi-in-february-2020-1841392523)
+> 原文：<https://lifehacker.com/watch-these-movies-for-free-on-tubi-in-february-2020-1841392523>
 
 现在有大量的流媒体服务，每月收费很高，与订阅传统有线电视不相上下。还有几个其他的；然而，这也会让你免费观看视频内容，只要你愿意看一些广告。
 

@@ -1,6 +1,6 @@
 # 如何在 Android 上使用谷歌助手的环境模式
 
-> 原文:[https://life hacker . com/how-to-use-Google-assistants-ambient-mode-on-Android-1841604179](https://lifehacker.com/how-to-use-google-assistants-ambient-mode-on-android-1841604179)
+> 原文：<https://lifehacker.com/how-to-use-google-assistants-ambient-mode-on-android-1841604179>
 
 我们的智能手机可以显示大量信息，甚至在锁定时也能提供有用的快捷方式，谷歌助手的环境模式值得一试。它允许你使用手机的几个最好的功能，而不必解锁，节省了你的宝贵时间和用手指摸索着验证你的设备的烦恼。
 

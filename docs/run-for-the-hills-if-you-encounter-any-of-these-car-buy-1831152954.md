@@ -1,6 +1,6 @@
 # 如果你遇到这些买车的危险信号，赶紧逃之夭夭吧
 
-> 原文:[https://jalopnik . com/run-for-the-hills-if-you-conference-the-any-these-car-buy-1831152954](https://jalopnik.com/run-for-the-hills-if-you-encounter-any-of-these-car-buy-1831152954)
+> 原文：<https://jalopnik.com/run-for-the-hills-if-you-encounter-any-of-these-car-buy-1831152954>
 
 买车，尤其是二手车，可能是一件棘手的事情。有许多事情要考虑，其中最主要的是你将如何维护它。如果前任车主在保养汽车方面很糟糕，你会遇到什么样的头疼事？以下是如何避开前面的子弹。
 

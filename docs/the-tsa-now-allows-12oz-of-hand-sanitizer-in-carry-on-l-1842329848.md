@@ -1,6 +1,6 @@
 # 美国运输安全管理局现在允许 12 盎司。手提行李中的洗手液
 
-> 原文:[https://life hacker . com/the-TSA-now-allows-12oz-of-hand-sanitizer-in-carry-on-l-1842329848](https://lifehacker.com/the-tsa-now-allows-12oz-of-hand-sanitizer-in-carry-on-l-1842329848)
+> 原文：<https://lifehacker.com/the-tsa-now-allows-12oz-of-hand-sanitizer-in-carry-on-l-1842329848>
 
 如果你有一个航班即将起飞，担心把洗手液带上飞机，我们有一些好消息给你:现在你可以在你的随身行李里装更大的瓶子了。
 

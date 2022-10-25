@@ -1,6 +1,6 @@
 # 计算大学的总成本——不仅仅是学费
 
-> 原文:[https://life hacker . com/calculate-the-total-cost-of-college-not-just-tufty-1837102849](https://lifehacker.com/calculate-the-total-cost-of-college-not-just-tuition-1837102849)
+> 原文：<https://lifehacker.com/calculate-the-total-cost-of-college-not-just-tuition-1837102849>
 
 学费并不是影响大学费用的唯一因素——如果你不花时间计算所有的潜在费用，你最终可能会选择一所比你意识到的更便宜的大学。
 

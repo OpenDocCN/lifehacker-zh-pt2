@@ -1,6 +1,6 @@
 # 使用谷歌为你最喜欢的桌面 RPG 掷骰子
 
-> 原文:[https://life hacker . com/use-Google-to-roll-dice-for-your favorite-desktop-RPG-1837367877](https://lifehacker.com/use-google-to-roll-dice-for-your-favorite-tabletop-rpg-1837367877)
+> 原文：<https://lifehacker.com/use-google-to-roll-dice-for-your-favorite-tabletop-rpg-1837367877>
 
 如果你发现自己没有带骰子袋，或者你觉得很懒，不要担心。你可以通过谷歌掷骰子来完成你的*地下城&龙*游戏——或者任何你玩的游戏。是的，甚至那些古怪的骰子比普通人习惯看到的有更多的面。
 

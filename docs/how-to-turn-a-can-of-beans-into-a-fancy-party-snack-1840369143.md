@@ -1,6 +1,6 @@
 # 如何把一罐豆子变成一种别致的派对点心
 
-> 原文:[https://life hacker . com/how-to-turn-a-can-of-beans-to-a-fancy-party-snack-1840369143](https://lifehacker.com/how-to-turn-a-can-of-beans-into-a-fancy-party-snack-1840369143)
+> 原文：<https://lifehacker.com/how-to-turn-a-can-of-beans-into-a-fancy-party-snack-1840369143>
 
 豆罐头很少被认为是奢侈品。经济实惠？当然可以。方便吗？绝对的。但是，当你计划一个华丽的假日晚会时，它们并不是那种突然出现在你脑海中的东西。它们应该是，特别是如果那个晚会是在今晚，而你忘记了你应该为它做点什么。只需几样厨房主食和一把新鲜香草，你就可以把几罐无聊的豆子变成值得聚会的开胃菜。
 

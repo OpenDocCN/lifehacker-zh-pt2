@@ -1,6 +1,6 @@
 # 预订 2020 年航班的最佳时间
 
-> 原文:[https://life hacker . com/the-best-times-to-book-flights-in-2020-1840902936](https://lifehacker.com/the-best-times-to-book-flights-in-2020-1840902936)
+> 原文：<https://lifehacker.com/the-best-times-to-book-flights-in-2020-1840902936>
 
 如果你在寻找一个好的航班，考虑到预订网站上每天甚至每小时的价格变化，关于什么时候扣动扳机是一个很糟糕的猜谜游戏。幸运的是，旅游应用程序 [Hopper](https://media.hopper.com/research/hoppers-2020-travel-cheat-sheet) 的数据分析师最近审查了 2019 年几个*亿*的航班价格，以帮助你找到一些在今年主要假期之前预订航班的最佳时间。
 

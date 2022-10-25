@@ -1,6 +1,6 @@
 # were the welcome to night vale team and this is how we 1830783978
 
-> 原文:[https://life hacker . com/were-the-welcome-to-night-vale-team-and this-how-we-1830783978](https://lifehacker.com/were-the-welcome-to-night-vale-team-and-this-is-how-we-1830783978)
+> 原文：<https://lifehacker.com/were-the-welcome-to-night-vale-team-and-this-is-how-we-1830783978>
 
 [*欢迎来到夜谷*](http://www.welcometonightvale.com/) 是一个社区电台广播，来自一个虚构的美国沙漠小镇，在这里所有灵异事件同时发生。这个深受人们喜爱的恐怖喜剧播客每年都会在美国、欧洲和世界各地巡回演出几次。我们采访了《夜谷》剧组的四名成员——巡演经理兼主持人梅格·巴什维纳、主持人塞西尔·鲍德温、联合创作人杰弗里·克兰诺和作曲家/音乐家/制作经理乔恩·伯恩斯坦(又名 Disparition)——关于如何在旅途中拍摄小说播客。
 

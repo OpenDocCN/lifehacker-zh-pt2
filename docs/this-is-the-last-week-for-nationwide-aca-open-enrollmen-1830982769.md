@@ -1,6 +1,6 @@
 # 这是全国 ACA 公开报名的最后一周
 
-> 原文:[https://life hacker . com/this-is-the-last-week for-nationwide-ACA-open-enrollmen-1830982769](https://lifehacker.com/this-is-the-last-week-for-nationwide-aca-open-enrollmen-1830982769)
+> 原文：<https://lifehacker.com/this-is-the-last-week-for-nationwide-aca-open-enrollmen-1830982769>
 
 ACA 市场仍然存在，如果你的收入低于联邦贫困线的 400%，你仍然可以 [获得补贴保险](https://lifehacker.com/how-to-sign-up-for-aca-health-insurance-for-2019-1829559334) ，而且货比三家总比让系统自动为你登记要好。这里有个问题:在大多数州，你只有到周六的时间。
 

@@ -1,6 +1,6 @@
 # 免费下载国家公园的字体
 
-> 原文:[https://life hacker . com/download-the-national-parks-typeface-for-free-1832359415](https://lifehacker.com/download-the-national-parks-typeface-for-free-1832359415)
+> 原文：<https://lifehacker.com/download-the-national-parks-typeface-for-free-1832359415>
 
 如果你喜欢字体或者国家公园(或者两者都喜欢)，那你就走运了——你可以免费下载公园招牌上的字体。
 

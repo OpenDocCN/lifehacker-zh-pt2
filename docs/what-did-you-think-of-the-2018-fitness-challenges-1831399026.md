@@ -1,6 +1,6 @@
 # 你对 2018 年的健身挑战有什么看法？
 
-> 原文:[https://life hacker . com/what-do-you-think-of-the-the-2018-fitness-challenges-1831399026](https://lifehacker.com/what-did-you-think-of-the-2018-fitness-challenges-1831399026)
+> 原文：<https://lifehacker.com/what-did-you-think-of-the-2018-fitness-challenges-1831399026>
 
 在我们前往 2019 年的希望和美好之地之前，我们还有几个小时来评估我们在过去的一年里走了多远。我正在准备明年的健身挑战，想听听大家对我们刚刚做的那些的看法。你喜欢什么？是什么激励你坚持下去？
 

@@ -1,6 +1,6 @@
 # 如果你投资组合中的一只 ETF 平仓了，该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-if-an-ETF-in-your-portfolio-closes-1830986015](https://lifehacker.com/what-to-do-if-an-etf-in-your-portfolio-closes-1830986015)
+> 原文：<https://lifehacker.com/what-to-do-if-an-etf-in-your-portfolio-closes-1830986015>
 
 据美联社 记者 Anna-Louise Jackson 报道，过去几年 ETF 的激增已经转化为创纪录数量的低成本基金关闭，因为不是所有的基金都能吸引足够多的投资者来维持运营。事实上，美联社报告称，截至 9 月，今年已有 132 只 ETF 停止交易，而 2017 年全年只有 138 只。
 

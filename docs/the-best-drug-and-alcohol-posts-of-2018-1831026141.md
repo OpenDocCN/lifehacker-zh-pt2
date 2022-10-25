@@ -1,6 +1,6 @@
 # 2018 年最佳药物和酒精帖子
 
-> 原文:[https://life hacker . com/the-best-drug-and-alcohol-posts-of-2018-1831026141](https://lifehacker.com/the-best-drug-and-alcohol-posts-of-2018-1831026141)
+> 原文：<https://lifehacker.com/the-best-drug-and-alcohol-posts-of-2018-1831026141>
 
 随着这一年接近尾声，是时候回顾和反思 2018 年最棒和最亮的帖子了，还有什么比毒品和酒精燃烧得更亮？以下是今年我们最喜欢的与酒精和违禁药物相关的帖子。
 

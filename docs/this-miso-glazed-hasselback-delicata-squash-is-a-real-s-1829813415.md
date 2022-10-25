@@ -1,6 +1,6 @@
 # 这种味噌釉的哈塞尔贝克美味南瓜是真正的尤物
 
-> 原文:[https://life hacker . com/this-miso-glazed-hasselback-delicata-squash-is-a-real-s-1829813415](https://lifehacker.com/this-miso-glazed-hasselback-delicata-squash-is-a-real-s-1829813415)
+> 原文：<https://lifehacker.com/this-miso-glazed-hasselback-delicata-squash-is-a-real-s-1829813415>
 
 在我看来，没有食物是真正丑陋的。华丽的杂志传播的现成食物摄影和玛莎·斯图尔特对这种类型的尝试之间的区别是食物造型师和专业照明。尽管如此，即使是我也不得不承认有些菜是天生的。
 

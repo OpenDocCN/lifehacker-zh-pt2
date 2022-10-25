@@ -1,6 +1,6 @@
 # “最大”和“最高”是有区别的
 
-> 原文:[https://life hacker . com/there-a-difference-in-ultimate-up-1840387221](https://lifehacker.com/there-is-a-difference-between-utmost-and-upmost-1840387221)
+> 原文：<https://lifehacker.com/there-is-a-difference-between-utmost-and-upmost-1840387221>
 
 前几天，我写了一个句子，其中包含了这样一种情绪，即某事是“最重要的”。我停顿了一下。是最大限度的吗？还是最上面的*？我很确定这是“极限”，但我也很确定我在生活中的某个时刻见过/听过“最高”。有什么区别？*
 

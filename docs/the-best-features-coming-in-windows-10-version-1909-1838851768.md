@@ -1,6 +1,6 @@
 # Windows 10 版本 1909 中的最佳功能
 
-> 原文:[https://life hacker . com/the-best-features-coming-in-windows-10-version-1909-1838851768](https://lifehacker.com/the-best-features-coming-in-windows-10-version-1909-1838851768)
+> 原文：<https://lifehacker.com/the-best-features-coming-in-windows-10-version-1909-1838851768>
 
 与 Windows 10 全年较小的例行更新不同，微软在添加新功能时，会对该操作系统进行两次重大年度检修——一次在春季，另一次在秋季。在测试阶段度过了最后几周之后，2019 年秋季更新，又称 Windows 10 1909(之前是 Windows Insiders 的 19H2)，终于向公众开放。
 

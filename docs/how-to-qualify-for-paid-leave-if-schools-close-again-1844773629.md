@@ -1,6 +1,6 @@
 # 如果学校再次关闭，如何获得带薪休假的资格
 
-> 原文:[https://life hacker . com/how-to-qualify-for-payed-leave-if-schools-close-again-1844773629](https://lifehacker.com/how-to-qualify-for-paid-leave-if-schools-close-again-1844773629)
+> 原文：<https://lifehacker.com/how-to-qualify-for-paid-leave-if-schools-close-again-1844773629>
 
 随着学生们准备回归面对面的课堂——或者面对面和远程学习的混合选择——一个问题萦绕在几乎每个家长的脑海中:如果学校和日托所关闭，会发生什么？许多家长担心，如果学校只转向网络，如何平衡他们的工作和育儿。
 

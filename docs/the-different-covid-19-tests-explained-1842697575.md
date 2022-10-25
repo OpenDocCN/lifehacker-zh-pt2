@@ -1,6 +1,6 @@
 # 不同的新冠肺炎测试，解释说
 
-> 原文:[https://life hacker . com/the-different-新冠肺炎-tests-explained-1842697575](https://lifehacker.com/the-different-covid-19-tests-explained-1842697575)
+> 原文：<https://lifehacker.com/the-different-covid-19-tests-explained-1842697575>
 
 有很多关于新冠肺炎测试的讨论，也有很多关于结果可能意味着什么的困惑。如果有人新冠肺炎病毒检测呈阴性，这是否意味着他们没有生病？如果有人的新冠肺炎抗体检测呈阳性，这是否意味着他们有免疫力？
 

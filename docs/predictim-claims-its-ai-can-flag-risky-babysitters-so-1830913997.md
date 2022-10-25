@@ -1,6 +1,6 @@
 # predictim claims its ai can flag risky babysitters so 1830913997
 
-> 原文:[https://gizmodo . com/predict im-claims-its-ai-can-flag-risky-保姆-so-1830913997](https://gizmodo.com/predictim-claims-its-ai-can-flag-risky-babysitters-so-1830913997)
+> 原文：<https://gizmodo.com/predictim-claims-its-ai-can-flag-risky-babysitters-so-1830913997>
 
 Predictim 的创始人想跟我说清楚:他们的产品——一种扫描潜在保姆的在线足迹以确定他们对父母的“风险”水平的算法——不是种族主义。不偏不倚。
 

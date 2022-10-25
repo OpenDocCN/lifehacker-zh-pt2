@@ -1,6 +1,6 @@
 # 三星 Galaxy S10 的指纹锁不再安全了
 
-> 原文:[https://life hacker . com/the-Samsung-galaxy-s10s-fingerprint-lock-not-very-safe-1839133478](https://lifehacker.com/the-samsung-galaxy-s10s-fingerprint-lock-isnt-very-safe-1839133478)
+> 原文：<https://lifehacker.com/the-samsung-galaxy-s10s-fingerprint-lock-isnt-very-safe-1839133478>
 
 最近 [发现](https://www.bbc.com/news/technology-50080586) 三星 Galaxy S10 和 S10+有一个重大安全漏洞，可以轻松绕过他们的指纹锁。在“1”到“不好”的范围内，我们在这一点上肯定是偏向右边的。
 

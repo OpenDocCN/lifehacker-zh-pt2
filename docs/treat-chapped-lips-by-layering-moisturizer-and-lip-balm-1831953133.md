@@ -1,6 +1,6 @@
 # 通过涂抹保湿霜和润唇膏来治疗嘴唇干裂
 
-> 原文:[https://life hacker . com/treat-chapped-lips-by-layering-moister-and-lip-balm-1831953133](https://lifehacker.com/treat-chapped-lips-by-layering-moisturizer-and-lip-balm-1831953133)
+> 原文：<https://lifehacker.com/treat-chapped-lips-by-layering-moisturizer-and-lip-balm-1831953133>
 
 完美的 [润唇膏](https://lifehacker.com/know-which-ingredients-in-lip-balm-actually-cause-dry-l-30762383) 既要薄到能渗入你的嘴唇，又要厚到能在嘴唇上形成一层防水保护层。换句话说，它并不存在——但是你可以用一点点巧妙的分层来伪造它。
 

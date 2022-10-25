@@ -1,6 +1,6 @@
 # what are we going to do about this disaster of a school 1844322940
 
-> 原文:[https://life hacker . com/1844322940](https://lifehacker.com/what-are-we-going-to-do-about-this-disaster-of-a-school-1844322940)
+> 原文：<https://lifehacker.com/what-are-we-going-to-do-about-this-disaster-of-a-school-1844322940>
 
 尽管春天很难熬，但我们自己努力工作，让孩子们整天和我们呆在一起，这种感觉确实有限。这种情况最多只能持续到学年的剩余时间，对我来说还不到三个月。虽然他们确实每周有几次网上作业和班级视频会议，但我们都知道这与他们通常在一天、一周、一个月内学到的东西相去甚远。我们并不是真的想教他们什么新东西；我们试图阻止他们倒退，阻止他们失去已经获得的东西。我们在努力生存。
 

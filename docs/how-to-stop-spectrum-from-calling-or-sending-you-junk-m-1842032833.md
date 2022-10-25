@@ -1,6 +1,6 @@
 # 如何阻止 Spectrum 向您发送垃圾邮件
 
-> 原文:[https://life hacker . com/how-to-stop-spectrum-from-calling-or-sending-you-junk-m-1842032833](https://lifehacker.com/how-to-stop-spectrum-from-calling-or-sending-you-junk-m-1842032833)
+> 原文：<https://lifehacker.com/how-to-stop-spectrum-from-calling-or-sending-you-junk-m-1842032833>
 
 垃圾邮件是我们每天打开邮箱时都要面对的问题。尤其是现在，在选举季节，我知道我的个人邮箱几乎总是塞满了充满希望的政治候选人的邮件，还有我不想要的信用卡的标准报价以及来自航空公司、酒店和有线电视公司的请求。
 

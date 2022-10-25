@@ -1,6 +1,6 @@
 # 为什么“兼职”可能是一个陷阱
 
-> 原文:[https://life hacker . com/why-going-part-time-can-a-trap-1833451864](https://lifehacker.com/why-going-part-time-can-be-a-trap-1833451864)
+> 原文：<https://lifehacker.com/why-going-part-time-can-be-a-trap-1833451864>
 
 这是一个诱人的选择，尤其是在抚养孩子的最初几年，当一切都感觉离灾难性的崩溃只有一步之遥时:“我会去做兼职，”你告诉自己。你决定和你的经理谈一谈，协商一个计划来缩减你全职工作的范围——以及你的工资。你相信，这种设置会让你有更多的时间与家人在一起，并让你在事业中扎根。似乎是双赢。
 

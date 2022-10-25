@@ -1,6 +1,6 @@
 # 如何预订谷歌的 Pixel 4 和 4 XL、Pixelbook Go、Nest Mini 和 Nest Wifi
 
-> 原文:[https://life hacker . com/how-to-preorder-Google-pixel-4-and-4-XL-pixel book-go-1839068320](https://lifehacker.com/how-to-preorder-googles-pixel-4-and-4-xl-pixelbook-go-1839068320)
+> 原文：<https://lifehacker.com/how-to-preorder-googles-pixel-4-and-4-xl-pixelbook-go-1839068320>
 
 Watch
 

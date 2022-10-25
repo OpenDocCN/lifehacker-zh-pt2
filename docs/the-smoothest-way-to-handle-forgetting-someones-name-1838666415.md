@@ -1,6 +1,6 @@
 # 处理忘记某人名字的最顺畅的方法
 
-> 原文:[https://life hacker . com/the-smooth-way-to-handle-forgot-someones-name-1838666415](https://lifehacker.com/the-smoothest-way-to-handle-forgetting-someones-name-1838666415)
+> 原文：<https://lifehacker.com/the-smoothest-way-to-handle-forgetting-someones-name-1838666415>
 
 有没有遇到过你见过几次的熟人，然后意识到你忘记了他们的名字？你站在那里，讨论你们的生活、家庭或办公室的八卦，同时你偷偷试着记起他的名字是史蒂夫还是保罗(或者戴夫？)并希望他能给点提示。
 

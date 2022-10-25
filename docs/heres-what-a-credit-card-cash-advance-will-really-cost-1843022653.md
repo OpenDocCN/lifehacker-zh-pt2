@@ -1,6 +1,6 @@
 # 以下是信用卡预支现金的真实成本
 
-> 原文:[https://life hacker . com/heres-what-a-credit-card-cash-advance-will-really-cost-1843022653](https://lifehacker.com/heres-what-a-credit-card-cash-advance-will-really-cost-1843022653)
+> 原文：<https://lifehacker.com/heres-what-a-credit-card-cash-advance-will-really-cost-1843022653>
 
 在艰难时期，信用卡可以是保持你财务运转的工具。但是并不是所有的花费都可以用信用卡支付。例如，你可能无法用信用卡支付房租，所以你会考虑从信用卡中预支现金来支付账单。这是一个合乎逻辑的选择，但对你的长期财务健康来说可能不是最好的主意。
 

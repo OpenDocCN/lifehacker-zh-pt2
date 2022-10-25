@@ -1,6 +1,6 @@
 # 孩子们不是种族“色盲”
 
-> 原文:[https://life hacker . com/kids-is-not-racical-color blind-1843855936](https://lifehacker.com/kids-are-not-racially-colorblind-1843855936)
+> 原文：<https://lifehacker.com/kids-are-not-racially-colorblind-1843855936>
 
 当涉及到种族问题时,“色盲”的想法当然不是一个新的想法。你肯定听过；你可能已经想到了；也许你甚至说过:“哦，我看不到颜色；我只看到人。”特别是当涉及到孩子的时候，我们希望看到他们是无辜的——他们确实是——这种无辜，这种纯洁意味着他们也是色盲。但事实并非如此。这不是一件坏事。
 

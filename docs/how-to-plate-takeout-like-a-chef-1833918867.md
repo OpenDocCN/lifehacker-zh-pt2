@@ -1,6 +1,6 @@
 # 如何像厨师一样端外卖
 
-> 原文:[https://life hacker . com/how-to-plate-take out-like-a-chef-1833918867](https://lifehacker.com/how-to-plate-takeout-like-a-chef-1833918867)
+> 原文：<https://lifehacker.com/how-to-plate-takeout-like-a-chef-1833918867>
 
 你知道*中的 [场景吗？在这部电影中，名义上的角色从一家高档餐厅点外卖，然后装盘，这样这家人就认为他们新的神秘保姆是一个很棒的厨师？](https://www.youtube.com/watch?v=9RSoXAQcups)*
 

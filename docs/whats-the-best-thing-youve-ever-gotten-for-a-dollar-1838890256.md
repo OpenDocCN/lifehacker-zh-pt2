@@ -1,6 +1,6 @@
 # 你花一美元得到过的最好的东西是什么？
 
-> 原文:[https://life hacker . com/whats-you-even-get-for-a-dollar-1838890256](https://lifehacker.com/whats-the-best-thing-youve-ever-gotten-for-a-dollar-1838890256)
+> 原文：<https://lifehacker.com/whats-the-best-thing-youve-ever-gotten-for-a-dollar-1838890256>
 
 “那个和一美元”不会给你一杯咖啡，除非“那个”是另外两美元。在大多数酒吧，它仍然可以支付你的小费，这对调酒师来说很糟糕。但是你曾经得到的一美元的最好回报是什么呢？Redditors 用一些伟大的故事和一些伟大的交易回答了这个问题 。
 

@@ -1,6 +1,6 @@
 # 用一本书代替儿童生日卡
 
-> 原文:[https://life hacker . com/use-a book-in-place-of-a-children-birthday-card-1835148930](https://lifehacker.com/use-a-book-in-place-of-a-childrens-birthday-card-1835148930)
+> 原文：<https://lifehacker.com/use-a-book-in-place-of-a-childrens-birthday-card-1835148930>
 
 当到了打开生日礼物的时候，孩子们关心卡片的程度就像他们关心他们的 Cap'n Crunch 包装盒上的营养价值一样。它通常被扔在一边，信息消失在堆积如山的废弃包装纸中。
 

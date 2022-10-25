@@ -1,6 +1,6 @@
 # 让狗舔你安全吗？
 
-> 原文:[https://life hacker . com/is-it-safe-to-let-a-dog-lick-you-1837000241](https://lifehacker.com/is-it-safe-to-let-a-dog-lick-you-1837000241)
+> 原文：<https://lifehacker.com/is-it-safe-to-let-a-dog-lick-you-1837000241>
 
 关于狗的最好的部分之一是他们可以多么深情。当我们受伤或情绪低落时，它们几乎能感觉到，然后试图用额外的拥抱或亲吻来帮助我们。尽管出于好意，那些吻——嗯，舔——可能并不总是对你的健康有益。
 

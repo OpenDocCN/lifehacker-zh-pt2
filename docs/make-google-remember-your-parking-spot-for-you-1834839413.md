@@ -1,6 +1,6 @@
 # 让谷歌为你记住你的停车位
 
-> 原文:[https://life hacker . com/make-Google-记住你的停车位 1834839413](https://lifehacker.com/make-google-remember-your-parking-spot-for-you-1834839413)
+> 原文：<https://lifehacker.com/make-google-remember-your-parking-spot-for-you-1834839413>
 
 如果你曾经在停车场徘徊，钥匙悬在空中，反复按下锁定/解锁按钮，甚至不确定你是否在正确的楼层，是时候开始保存你的停车位置了。
 

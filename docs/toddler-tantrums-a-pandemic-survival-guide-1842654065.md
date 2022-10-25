@@ -1,6 +1,6 @@
 # 幼儿发脾气:疫情生存指南
 
-> 原文:[https://life hacker . com/culled-tantrums-a-疫情-生存指南-1842654065](https://lifehacker.com/toddler-tantrums-a-pandemic-survival-guide-1842654065)
+> 原文：<https://lifehacker.com/toddler-tantrums-a-pandemic-survival-guide-1842654065>
 
 养育年幼的孩子已经够难了。在这个疫情时期，养育年幼的孩子是一个全新层次的困难。在工作、照顾孩子和疾病快速传播和经济快速崩溃带来的担忧之间，父母们已经到了崩溃的边缘。没有人会责怪他们为了自己的孩子 努力保持一点理智。
 

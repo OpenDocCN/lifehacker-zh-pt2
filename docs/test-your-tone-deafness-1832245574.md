@@ -1,6 +1,6 @@
 # 测试你的音调-耳聋
 
-> 原文:[https://lifehacker.com/test-your-tone-deafness-1832245574](https://lifehacker.com/test-your-tone-deafness-1832245574)
+> 原文：<https://lifehacker.com/test-your-tone-deafness-1832245574>
 
 [这款令人惊讶的网页游戏](https://beta.themusiclab.org/quizzes/td) ，来自哈佛大学心理学系音乐实验室，测试你通过音高区分音调的能力。戴上耳机，尽可能快地判断某些音调是高于还是低于其他音调。
 

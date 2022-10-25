@@ -1,6 +1,6 @@
 # 不要让网上退休计算器吓得你不敢投资
 
-> 原文:[https://life hacker . com/don ' t-let-the-online-retirement-calculators-scare-you-aw-1835093204](https://lifehacker.com/dont-let-the-online-retirement-calculators-scare-you-aw-1835093204)
+> 原文：<https://lifehacker.com/dont-let-the-online-retirement-calculators-scare-you-aw-1835093204>
 
 我清楚地记得当我意识到攒够一年的收入需要多长时间时，我在哪里。
 

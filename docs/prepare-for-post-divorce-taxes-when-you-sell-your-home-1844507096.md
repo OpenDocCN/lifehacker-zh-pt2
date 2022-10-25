@@ -1,6 +1,6 @@
 # 当你卖掉房子时，为离婚后的税收做好准备
 
-> 原文:[https://life hacker . com/prepare-for-post-diffuse-taxes-when-you-sell-you-home-1844507096](https://lifehacker.com/prepare-for-post-divorce-taxes-when-you-sell-your-home-1844507096)
+> 原文：<https://lifehacker.com/prepare-for-post-divorce-taxes-when-you-sell-your-home-1844507096>
 
 毫无疑问，漫长的疫情给婚姻带来了压力。当一些人正在努力应对失业和收支平衡时，另一些人正在努力平衡在家工作、照顾孩子和在家上学的需求——通常是在紧张的地方。对于不稳定的夫妇来说，关机可能是 [使紧张局势恶化](https://www.latimes.com/lifestyle/story/2020-04-15/how-to-help-your-marriage-survive-coronavirus) 。一些人甚至可能走向大流行后的。
 

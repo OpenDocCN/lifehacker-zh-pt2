@@ -1,6 +1,6 @@
 # 你应该忽视的可怕的理财建议
 
-> 原文:[https://life hacker . com/the-terrible-money-advice-you-should-ignore-1838249179](https://lifehacker.com/the-terrible-money-advice-you-should-ignore-1838249179)
+> 原文：<https://lifehacker.com/the-terrible-money-advice-you-should-ignore-1838249179>
 
 尽管我们中的许多人从小就被教导谈论金钱是不礼貌的，但这个世界上到处都是想告诉你应该如何使用自己的钱的人。从那些似乎认为咖啡是所有金钱问题的根源的权威人士，到你的邻居，他们只是喜欢给你“智慧”的珍珠，我们被建议轰炸。有些建议很糟糕。
 

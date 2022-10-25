@@ -1,6 +1,6 @@
 # 如果你是一名教师、医生或护士，将你的美国电话电报公司无线账单削减 25%
 
-> 原文:[https://life hacker . com/cut-25-from-your-at-t-wireless-bill-if-you-a-teacher-1844339903](https://lifehacker.com/cut-25-from-your-at-t-wireless-bill-if-youre-a-teacher-1844339903)
+> 原文：<https://lifehacker.com/cut-25-from-your-at-t-wireless-bill-if-youre-a-teacher-1844339903>
 
 在疫情早期，许多公司 [做了一场秀](https://lifehacker.com/first-responders-can-get-their-google-pixels-repaired-f-1843184644) 延长 [特殊福利](https://lifehacker.com/how-to-get-free-t-mobile-service-if-youre-a-first-respo-1843590856) 和 [折扣](https://lifehacker.com/how-to-get-free-t-mobile-service-if-youre-a-first-respo-1843590856) 给那些在各州发布居家命令时不能呆在室内尽情狂欢的“关键工人”。现在，随着各州重新开放，通信巨头 AT & T 正在向教师、护士和医生提供慷慨的无线计划折扣——高达 25%。
 

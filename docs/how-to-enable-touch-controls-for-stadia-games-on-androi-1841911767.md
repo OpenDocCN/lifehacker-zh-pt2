@@ -1,6 +1,6 @@
 # 如何在 Android 上启用 Stadia 游戏的触摸控制
 
-> 原文:[https://life hacker . com/how-to-enable-touch-controls-for-stadia-games-on-androi-1841911767](https://lifehacker.com/how-to-enable-touch-controls-for-stadia-games-on-androi-1841911767)
+> 原文：<https://lifehacker.com/how-to-enable-touch-controls-for-stadia-games-on-androi-1841911767>
 
 谷歌游戏流媒体服务 Stadia 最令人困惑的挫折之一是其严格的控制器要求。Stadia 游戏只能用官方 Stadia 控制器玩，必须通过 USB 连接才能工作——即使是在像 Android 手机这样的便携式设备上。这削弱了这项服务作为便携式游戏服务的生存能力。
 

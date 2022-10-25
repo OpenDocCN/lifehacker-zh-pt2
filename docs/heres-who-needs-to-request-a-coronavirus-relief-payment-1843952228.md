@@ -1,6 +1,6 @@
 # 以下是需要在 10 月 15 日之前申请冠状病毒救济金的人
 
-> 原文:[https://life hacker . com/heres-who-need-to-request-a-coronavirus-relief-payment-1843952228](https://lifehacker.com/heres-who-needs-to-request-a-coronavirus-relief-payment-1843952228)
+> 原文：<https://lifehacker.com/heres-who-needs-to-request-a-coronavirus-relief-payment-1843952228>
 
 自从美国政府 4 月份开始发放冠状病毒经济影响付款以来，数百万人一直在焦虑地检查自己的付款状况。但对于那些仍在等待的人，你可能需要采取行动，以获得你的付款。这样做是有期限的。
 

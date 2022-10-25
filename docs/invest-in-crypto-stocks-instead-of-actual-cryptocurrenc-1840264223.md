@@ -1,6 +1,6 @@
 # 投资加密股票，而不是真正的加密货币
 
-> 原文:[https://life hacker . com/invest-in-crypto-stocks-not-actual-cryptocurrenc-1840264223](https://lifehacker.com/invest-in-crypto-stocks-instead-of-actual-cryptocurrenc-1840264223)
+> 原文：<https://lifehacker.com/invest-in-crypto-stocks-instead-of-actual-cryptocurrenc-1840264223>
 
 就在短短几年前，购买加密货币风靡一时。理论上，你可以在比特币或其他流行的加密货币上花一点钱，然后以惊人的回报率套现。
 

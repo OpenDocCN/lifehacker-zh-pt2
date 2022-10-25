@@ -1,6 +1,6 @@
 # 为什么《纽约时报》的鹰嘴豆炖肉食谱会疯传，我们该如何改变它
 
-> 原文:[https://www . av club . com/why-a-ny-times-recipe-for-chickbean-stew-want-viral-and-1832059271](https://www.avclub.com/why-a-ny-times-recipe-for-chickpea-stew-went-viral-and-1832059271)
+> 原文：<https://www.avclub.com/why-a-ny-times-recipe-for-chickpea-stew-went-viral-and-1832059271>
 
 菜肴从在人们的厨房里烹制，到被拍照、发布并在网上分享足够多的时间，成为互联网现象，这通常涉及某种噱头。这些食谱如此简单，以至于制作它们感觉就像是参与了一场骗局。几年前有过 [单一成分的香蕉“冰淇淋”](https://cooking.nytimes.com/recipes/3038-one-ingredient-banana-ice-cream) ，或者玛塞拉·哈赞不插手的 [番茄黄油意粉酱](https://food52.com/recipes/13722-marcella-hazan-s-tomato-sauce-with-onion-butter) 。这样的菜肴美味可口，但同时也有一种可疑的感觉，即有人在某种程度上规避了烹饪过程。
 

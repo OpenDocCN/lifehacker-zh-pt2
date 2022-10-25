@@ -1,6 +1,6 @@
 # 彩票中奖能让你快乐吗？
 
-> 原文:[https://life hacker . com/can-winning-the-lottery-ever-make-you-happy-1835706785](https://lifehacker.com/can-winning-the-lottery-ever-make-you-happy-1835706785)
+> 原文：<https://lifehacker.com/can-winning-the-lottery-ever-make-you-happy-1835706785>
 
 你听说过彩票中奖者会后悔的。赢得 1620 万美元但后来 [宣布](http://www.washingtonpost.com/wp-dyn/content/article/2006/01/19/AR2006011903124.html) 他破产时更快乐。这位 3 . 15 亿美元的强力球赢家后来 [希望](https://abcnews.go.com/2020/powerball-winner-cursed/story?id=3012631) 他撕掉了他的彩票。这名女子在与同事和 [分享奖金后获得了 600 万美元，她说](https://www.usatoday.com/story/news/nation/2012/11/28/winner-lottery-bankrupt/1731367/) 她爱的人“正在变成吸血鬼，试图吸走我的生命。”
 

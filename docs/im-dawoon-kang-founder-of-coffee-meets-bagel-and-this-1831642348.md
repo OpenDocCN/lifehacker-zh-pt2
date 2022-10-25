@@ -1,6 +1,6 @@
 # im dawoon kang founder of coffee meets bagel and this 1831642348
 
-> 原文:[https://life hacker . com/im-dawoon-kang-the-coffee-meets-bagel-and-this-1831642348](https://lifehacker.com/im-dawoon-kang-founder-of-coffee-meets-bagel-and-this-1831642348)
+> 原文：<https://lifehacker.com/im-dawoon-kang-founder-of-coffee-meets-bagel-and-this-1831642348>
 
 在看到其他约会服务的毒性后，Dawoon Kang 创造了咖啡遇上百吉饼作为更安全、更友好的选择。我们与她讨论了如何解决许多直男约会服务的根本问题，以及她如何以符合招商银行价值观的方式管理自己的公司。Dawoon 还分享了一个任何 app 都教不了你的约会小技巧。
 

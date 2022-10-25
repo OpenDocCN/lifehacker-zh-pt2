@@ -1,6 +1,6 @@
 # 应该考虑信用卡隐忍吗？
 
-> 原文:[https://life hacker . com/should-you-consider-信用卡-隐忍-1842751441](https://lifehacker.com/should-you-consider-credit-card-forbearance-1842751441)
+> 原文：<https://lifehacker.com/should-you-consider-credit-card-forbearance-1842751441>
 
 如果你担心由于失业、休假或收入减少而无法按时支付信用卡，你可能会问自己，在冠状病毒疫情期间，你是否应该利用许多贷款人提供的信用卡延期支付计划。
 

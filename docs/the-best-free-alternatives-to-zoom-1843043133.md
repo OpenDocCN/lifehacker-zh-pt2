@@ -1,6 +1,6 @@
 # 变焦的最佳免费替代品
 
-> 原文:[https://life hacker . com/the-best-free-alternatives-to-zoom-1843043133](https://lifehacker.com/the-best-free-alternatives-to-zoom-1843043133)
+> 原文：<https://lifehacker.com/the-best-free-alternatives-to-zoom-1843043133>
 
 虽然自冠状病毒爆发以来，视频会议服务 Zoom 的受欢迎程度已经飙升，但最近关于其许多 [安全](https://gizmodo.com/zoom-accused-of-misrepresenting-security-measures-in-ne-1842756394) 和 [隐私](https://gizmodo.com/zoom-bombings-started-off-as-pranks-now-someone-could-1842644645) 问题的新闻可能会让你对使用它感到紧张。在上面的视频中，我分享了三个你应该尝试的免费选择。
 

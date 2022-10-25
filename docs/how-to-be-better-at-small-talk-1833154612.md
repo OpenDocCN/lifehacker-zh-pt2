@@ -1,6 +1,6 @@
 # 如何更擅长闲聊
 
-> 原文:[https://life hacker . com/how-to-be-better-at-small-talk-1833154612](https://lifehacker.com/how-to-be-better-at-small-talk-1833154612)
+> 原文：<https://lifehacker.com/how-to-be-better-at-small-talk-1833154612>
 
 我试着不再说“我知道”当我的朋友或妻子只是想帮忙时，我对他们说得太多了。但是，除非有人真的是一个家伙或假设我是一个白痴，我不需要那么努力地保护我的自我。如果我说“谢谢”，我会赢得更多的分数或者“确实如此！”让对话继续下去。艺术家 Austin Kleon [列出了更多的对话快捷方式](https://austinkleon.com/2019/02/19/what-to-say-when-you-dont-know-what-to-say/) ，你可能想用它们来代替你当前的默认设置。
 

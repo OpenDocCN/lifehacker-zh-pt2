@@ -1,6 +1,6 @@
 # 如何在家手洗衣服
 
-> 原文:[https://life hacker . com/how-to-hand-wash-cloth-in-home-1842662769](https://lifehacker.com/how-to-hand-wash-clothes-at-home-1842662769)
+> 原文：<https://lifehacker.com/how-to-hand-wash-clothes-at-home-1842662769>
 
 如果冠状病毒的爆发让你对去自助洗衣店——甚至是使用大楼的共享洗衣设施——感到不那么热情，我在这里告诉你，你确实可以在家手洗几乎所有需要洗的东西；我以前也这样做过，经常持续很长时间。
 

@@ -1,6 +1,6 @@
 # 如何像即兴演员一样为人父母
 
-> 原文:[https://life hacker . com/how-to-parent-like-an-improv-actor-1835249792](https://lifehacker.com/how-to-parent-like-an-improv-actor-1835249792)
+> 原文：<https://lifehacker.com/how-to-parent-like-an-improv-actor-1835249792>
 
 即兴表演技巧能让你成为更好的父母吗？凑巧抚养孩子的即兴演员说是的。
 

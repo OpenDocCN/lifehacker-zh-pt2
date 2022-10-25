@@ -1,6 +1,6 @@
 # 如果你认为你在和一个精神病患者一起工作，该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-you-think-you-be-do-with-a-psychiatre-1838065064](https://lifehacker.com/what-to-do-if-you-think-youre-working-with-a-psychopath-1838065064)
+> 原文：<https://lifehacker.com/what-to-do-if-you-think-youre-working-with-a-psychopath-1838065064>
 
 我们都有过不正常的同事，但是如果你怀疑和你一起工作的人实际上是一个精神病患者呢？那你会怎么做？
 

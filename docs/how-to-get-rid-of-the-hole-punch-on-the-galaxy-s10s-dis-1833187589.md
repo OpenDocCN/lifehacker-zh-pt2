@@ -1,6 +1,6 @@
 # 如何消除 Galaxy S10 显示屏上的“穿孔”
 
-> 原文:[https://life hacker . com/how-to-get-off-the-hole-punch-on-the-galaxy-s10s-dis-1833187589](https://lifehacker.com/how-to-get-rid-of-the-hole-punch-on-the-galaxy-s10s-dis-1833187589)
+> 原文：<https://lifehacker.com/how-to-get-rid-of-the-hole-punch-on-the-galaxy-s10s-dis-1833187589>
 
 三星的新 Galaxy S10 可能没有凹口，但它在前面有一个打孔摄像头。
 

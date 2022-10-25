@@ -1,6 +1,6 @@
 # 如何观看《指环王》重聚
 
-> 原文:[https://life hacker . com/how-to-watch-the-Lord-of-rings-reunion-1843768181](https://lifehacker.com/how-to-watch-the-lord-of-the-rings-reunion-1843768181)
+> 原文：<https://lifehacker.com/how-to-watch-the-lord-of-the-rings-reunion-1843768181>
 
 这将是一个美丽的夏日周末。(也许——我们不知道你住在哪里。)我们都知道出去见见其他人是多么诱人，但是乔什·加德在周日为你安排了其他的计划。这时候，他把即将到来的一集他的隔离 YouTube 系列，*团聚成一个“指环王”团聚和筹款活动。* 
 

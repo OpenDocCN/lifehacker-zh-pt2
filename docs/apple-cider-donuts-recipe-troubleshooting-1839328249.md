@@ -1,6 +1,6 @@
 # 苹果酒甜甜圈将治愈你对油炸的恐惧
 
-> 原文:[https://the take out . com/apple-cider-donuts-recipe-trouble shooting-1839328249](https://thetakeout.com/apple-cider-donuts-recipe-troubleshooting-1839328249)
+> 原文：<https://thetakeout.com/apple-cider-donuts-recipe-troubleshooting-1839328249>
 
 你不需要等到 [苹果采摘季节](https://thetakeout.com/apple-picking-recipes-ideas-1838264746)——甚至是秋天——来做苹果酒甜甜圈。你也不需要害怕在自己的厨房里油炸它们。甜甜圈是你能做的最简单的糕点之一——不需要特殊的设备。你甚至不需要搅拌机。
 

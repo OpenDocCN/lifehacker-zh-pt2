@@ -1,6 +1,6 @@
 # 我如何恢复旧的(或丢失的)电子邮件？
 
-> 原文:[https://life hacker . com/how-do-I-recover-old-or-lost-emails-1830465262](https://lifehacker.com/how-do-i-recover-old-or-lost-emails-1830465262)
+> 原文：<https://lifehacker.com/how-do-i-recover-old-or-lost-emails-1830465262>
 
 我是那种讨厌丢失旧的数码物品的人——照片、信息、电子邮件、视频等。虽然我怀疑自己是否会漫步回忆往事，回忆我在 2007 年随意发送的电子邮件，但我不喜欢这样的感觉，即如果我想或需要，我就不能(T2)那样做。
 

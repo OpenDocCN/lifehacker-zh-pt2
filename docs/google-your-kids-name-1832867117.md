@@ -1,6 +1,6 @@
 # 谷歌一下你孩子的名字
 
-> 原文:[https://lifehacker.com/google-your-kids-name-1832867117](https://lifehacker.com/google-your-kids-name-1832867117)
+> 原文：<https://lifehacker.com/google-your-kids-name-1832867117>
 
 最近有很多关于父母在网上分享他们孩子的图片、趣闻和信息的程度的说法，这种做法被称为“分享”
 

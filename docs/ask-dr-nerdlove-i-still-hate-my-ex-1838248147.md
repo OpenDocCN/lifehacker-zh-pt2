@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:我仍然讨厌我的前任
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-I-still-hate-my-ex-1838248147](https://kotaku.com/ask-dr-nerdlove-i-still-hate-my-ex-1838248147)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-i-still-hate-my-ex-1838248147>
 
 你好，你们这些丑陋又闪亮的性感尤物，欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是唯一的约会建议专栏，引导你穿越爱情的都市。
 

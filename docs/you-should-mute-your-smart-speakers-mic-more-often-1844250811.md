@@ -1,6 +1,6 @@
 # 你应该经常将智能音箱的麦克风静音
 
-> 原文:[https://life hacker . com/you-should-mute-your-smart-speakers-mic-more-frequency-1844250811](https://lifehacker.com/you-should-mute-your-smart-speakers-mic-more-often-1844250811)
+> 原文：<https://lifehacker.com/you-should-mute-your-smart-speakers-mic-more-often-1844250811>
 
 你的语音助手是不是经常显得 [有点*太*急于附和](https://lifehacker.com/how-to-keep-commercials-from-activating-your-smart-spea-1831437974) ？鲁尔大学波鸿分校和马克斯·普朗克安全与隐私研究所最近的一项研究发现，Alexa、Siri 和谷歌助手经常误认为激活命令的单词和短语超过 1000 个(也称为“唤醒单词”)。以下是 Ars Technica 关于这项研究的报道中的几个例子:
 

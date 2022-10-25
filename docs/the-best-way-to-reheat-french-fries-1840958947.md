@@ -1,6 +1,6 @@
 # 重新加热炸薯条的最好方法
 
-> 原文:[https://life hacker . com/the-best-way-to-re-heating-French-fries-1840958947](https://lifehacker.com/the-best-way-to-reheat-french-fries-1840958947)
+> 原文：<https://lifehacker.com/the-best-way-to-reheat-french-fries-1840958947>
 
 冷薯条似乎是为数不多的不可回收的剩菜之一。一旦油炸食品开始冷却，蓬松的淀粉颗粒中的水分就会向外壳移动，使油炸食品内部呈颗粒状，外部呈糊状。这真是一个可怕的情况。
 

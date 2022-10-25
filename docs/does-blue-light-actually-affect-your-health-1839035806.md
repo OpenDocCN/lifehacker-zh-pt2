@@ -1,6 +1,6 @@
 # 蓝光真的会影响健康吗？
 
-> 原文:[https://life hacker . com/does-blue-light-actually-impact-your-health-1839035806](https://lifehacker.com/does-blue-light-actually-affect-your-health-1839035806)
+> 原文：<https://lifehacker.com/does-blue-light-actually-affect-your-health-1839035806>
 
 睡觉前的蓝光会让你更难入睡，手机、电脑和电视的屏幕会发出大量蓝光。这都是真的。但是如果你认为蓝光是影响你睡眠或眼睛健康的主要问题，那么是时候退一步，换个角度看问题了。
 

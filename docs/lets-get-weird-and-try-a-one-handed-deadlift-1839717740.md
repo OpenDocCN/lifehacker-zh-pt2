@@ -1,6 +1,6 @@
 # 让我们变得怪异一点，试试单手硬拉
 
-> 原文:[https://life hacker . com/let-get-verged-and-try-a 单手硬拉-1839717740](https://lifehacker.com/lets-get-weird-and-try-a-one-handed-deadlift-1839717740)
+> 原文：<https://lifehacker.com/lets-get-weird-and-try-a-one-handed-deadlift-1839717740>
 
 我们在 Lifehacker 健身挑战赛中做了很多不同的练习，从 [杠铃举](https://vitals.lifehacker.com/how-was-your-month-of-bench-press-1830766132) 到 [耐力运动](https://vitals.lifehacker.com/how-to-add-a-long-run-to-your-running-routine-1834309307) 到 [瑜伽](https://vitals.lifehacker.com/decembers-fitness-challenge-is-yoga-1830827794) 等等。不过，这个月将会很特别:我们将进行一些你可能从未尝试过的托举。
 

@@ -1,6 +1,6 @@
 # 如何制作最好的蔬菜汤
 
-> 原文:[https://life hacker . com/how-to-make-the-best 蔬菜汤-1839235612](https://lifehacker.com/how-to-make-the-best-pureed-vegetable-soup-1839235612)
+> 原文：<https://lifehacker.com/how-to-make-the-best-pureed-vegetable-soup-1839235612>
 
 据说，做一锅菜汤没有错。但是我不知道——你有没有做过*非常差的*批次？在最糟糕的情况下，它确实是不可救药的；这是一场平淡无味的灾难，再多巧妙的调味和全脂乳制品也无济于事。
 

@@ -1,6 +1,6 @@
 # 喝一杯“老朋友”鸡尾酒
 
-> 原文:[https://life hacker . com/get-熟人鸡尾酒-1841072109](https://lifehacker.com/get-acquainted-with-an-old-pal-cocktail-1841072109)
+> 原文：<https://lifehacker.com/get-acquainted-with-an-old-pal-cocktail-1841072109>
 
 尼格罗尼家没有一个成员是我不喜欢的。等量的烈酒、苦艾酒和苦艾酒的组合总能创造出一种平衡的饮料，非常适合以优雅的方式从跑车中啜饮。它也能让你很快喝醉。
 

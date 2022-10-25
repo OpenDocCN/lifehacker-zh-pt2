@@ -1,6 +1,6 @@
 # 不要被骗去支付这额外的 40 美元报税费
 
-> 原文:[https://life hacker . com/don-get-dricked-to-paying-this-extra-40-tax-return-1832227421](https://lifehacker.com/dont-get-tricked-into-paying-this-extra-40-tax-return-1832227421)
+> 原文：<https://lifehacker.com/dont-get-tricked-into-paying-this-extra-40-tax-return-1832227421>
 
 当你在网上或通过代理报税时，如果你不能免费报税，你通常可以选择从联邦退税中扣除报税费用。
 

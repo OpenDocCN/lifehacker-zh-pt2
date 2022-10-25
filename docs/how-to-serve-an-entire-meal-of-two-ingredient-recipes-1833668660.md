@@ -1,6 +1,6 @@
 # 如何提供两种配料的一餐
 
-> 原文:[https://life hacker . com/how-to-serve-a-whole-meal-of-two-ingredient-recipes-1833668660](https://lifehacker.com/how-to-serve-an-entire-meal-of-two-ingredient-recipes-1833668660)
+> 原文：<https://lifehacker.com/how-to-serve-an-entire-meal-of-two-ingredient-recipes-1833668660>
 
 现在已经是春天了，我们有充足的、不间断的日照，在室内烹饪似乎没有寒冷时期那么有趣了。在春天和夏天，不需要太多烹饪的平静、低强度的膳食很重要，因为温暖的白天和夜晚意味着在户外和你喜欢的人一起度过。
 

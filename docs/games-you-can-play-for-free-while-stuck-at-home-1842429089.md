@@ -1,6 +1,6 @@
 # 困在家里也可以免费玩的游戏
 
-> 原文:[https://kotaku . com/games-you-can-play-free-while-stuck-in-home-1842429089](https://kotaku.com/games-you-can-play-for-free-while-stuck-at-home-1842429089)
+> 原文：<https://kotaku.com/games-you-can-play-for-free-while-stuck-at-home-1842429089>
 
 现在，你已经满怀希望地跳上了社交距离列车。正如许多专家建议的那样，这是减缓新冠肺炎病毒传播的最佳策略之一。社交距离的一个可能的副作用是，你可能会发现自己有一种无法控制的冲动去玩很多视频游戏。问题是，玩一大堆新游戏会花掉一大笔钱。这里一个新书 60 美元，那里一个年度在线服务 60 美元——很快就加起来了。
 

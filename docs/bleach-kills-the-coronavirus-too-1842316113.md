@@ -1,6 +1,6 @@
 # 漂白剂也能杀死冠状病毒
 
-> 原文:[https://life hacker . com/bleach-kills-the-coronavirus-too-1842316113](https://lifehacker.com/bleach-kills-the-coronavirus-too-1842316113)
+> 原文：<https://lifehacker.com/bleach-kills-the-coronavirus-too-1842316113>
 
 如果你勇敢地面对当地商店的人群，却发现消毒剂通道被挑得干干净净，你现在可能绝对会抓狂。不要失去所有的希望:冠状病毒恐慌可能已经摧毁了全国供应的洗手液和 Clorox 湿巾，但我敢打赌你的商店仍然有足够的漂白剂。
 

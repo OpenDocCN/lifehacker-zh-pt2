@@ -1,6 +1,6 @@
 # 为什么橄榄油不总是制作调味汁的最佳油
 
-> 原文:[https://life hacker . com/why-olive-oil-not-always-the best-oil for the vinaggregate-1834552898](https://lifehacker.com/why-olive-oil-isnt-always-the-best-oil-for-vinaigrette-1834552898)
+> 原文：<https://lifehacker.com/why-olive-oil-isnt-always-the-best-oil-for-vinaigrette-1834552898>
 
 如果你养成了阅读商店购买的沙拉酱瓶子上的标签的习惯——包括那些奇特的——你不太可能在大多数成分表上找到橄榄油。这部分是成本问题，但也是口味问题。
 

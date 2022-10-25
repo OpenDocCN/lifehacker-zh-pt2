@@ -1,6 +1,6 @@
 # 如何看图书馆的特色馆藏
 
-> 原文:[https://life hacker . com/how-to-see-libraries-special-collections-1835387379](https://lifehacker.com/how-to-see-libraries-special-collections-1835387379)
+> 原文：<https://lifehacker.com/how-to-see-libraries-special-collections-1835387379>
 
 “这就像一个博物馆，但没有人，你必须在那里做所有的工作。”开发者兼互联网艺术家达利斯·卡泽米 (你可能从 [他的推特机器人](http://tinysubversions.com/projects/) 中知道他)有一个真正书呆子般的旅行习惯:他喜欢去他酒店附近的图书馆，浏览他们的档案和特殊收藏。他解释了如何在图书馆档案中寻找、访问和找到最好的内容。如果你有特殊的学术兴趣，而这些兴趣并不总是被博物馆所涵盖，那么当你旅行或在你自己的区域，你可能会喜欢图书馆档案旅游。
 

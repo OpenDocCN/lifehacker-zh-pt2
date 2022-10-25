@@ -1,6 +1,6 @@
 # how to decide whether to accept a job offer 1837798956
 
-> 原文:[https://life hacker . com/how-to-decision-when-to-accept-a-job offer-1837798956](https://lifehacker.com/how-to-decide-whether-to-accept-a-job-offer-1837798956)
+> 原文：<https://lifehacker.com/how-to-decide-whether-to-accept-a-job-offer-1837798956>
 
 有人找你谈了一份新工作，但这很复杂。 *你很乐意和你长期工作的雇主呆在一起，但你不确定这是否现实，而且你的配偶也不想让你搬家。以下是如何把这个决定看作一个机会，而不是一件苦差事。*
 

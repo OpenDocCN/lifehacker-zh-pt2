@@ -1,6 +1,6 @@
 # 没有信用评分如何申请信用卡
 
-> 原文:[https://life hacker . com/how-to-apply-a-now-credit-score-1827446657](https://lifehacker.com/how-to-apply-for-a-credit-card-with-no-credit-score-1827446657)
+> 原文：<https://lifehacker.com/how-to-apply-for-a-credit-card-with-no-credit-score-1827446657>
 
 假设你开始了你的第一份工作，你想 [开一张信用卡](https://lifehacker.com/open-a-credit-card-account-as-soon-as-you-graduate-from-1827361861) ，但是你还没有信用评分——或者你有，但是很低。你是做什么的？幸运的是，有几种选择。
 

@@ -1,6 +1,6 @@
 # 让我们努力提高灵活性
 
-> 原文:[https://life hacker . com/let-work-on-our-flexibility-1842104101](https://lifehacker.com/lets-work-on-our-flexibility-1842104101)
+> 原文：<https://lifehacker.com/lets-work-on-our-flexibility-1842104101>
 
 我在灵活性方面做得不够。我的意思是，我可以移动得足够好，做所有对我来说重要的托举和锻炼，我告诉自己这才是真正重要的。但后来我看到那些明显在灵活性上做了努力的人，他们能做的事情让我吃惊。也许这个月我们可以从他们的书里借鉴一页？
 

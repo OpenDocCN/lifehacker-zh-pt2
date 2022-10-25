@@ -1,6 +1,6 @@
 # 你有没有通过威胁取消来减少你的有线电视账单？
 
-> 原文:[https://life hacker . com/have-you-reduced-you-cable-bill by-threating-to-canc-1835267644](https://lifehacker.com/have-you-reduced-your-cable-bill-by-threatening-to-canc-1835267644)
+> 原文：<https://lifehacker.com/have-you-reduced-your-cable-bill-by-threatening-to-canc-1835267644>
 
 这么多年来，我们有一种方法可以做到这一点。大家都知道方法。(如果你已经阅读 Lifehacker 有一段时间了，你就*真的*知道了。)如果你觉得有线电视的价格太高，你就打电话给他们，要求更低的价格，并威胁他们如果不让步，就换一家提供有吸引力的新客户价格的公司。
 

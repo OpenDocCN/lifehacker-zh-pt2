@@ -1,6 +1,6 @@
 # 在周三之前免费获得一本《严肃的山姆:第一次相遇》
 
-> 原文:[https://life hacker . com/get-a-free-copy-of-serious-Sam-the-first-conference-by-1844842047](https://lifehacker.com/get-a-free-copy-of-serious-sam-the-first-encounter-by-1844842047)
+> 原文：<https://lifehacker.com/get-a-free-copy-of-serious-sam-the-first-encounter-by-1844842047>
 
 似乎总有一些新的免费游戏等着你去玩。虽然你可能不会对 2001 年的古怪的第一人称射击游戏超级感兴趣——那是*严肃的山姆:第一次遭遇*——但我不会剥夺你的怀旧之情，尤其是在疫情期间没有什么其他事情可做的时候，这是浪费一个下午的一种很好的免费方式。
 

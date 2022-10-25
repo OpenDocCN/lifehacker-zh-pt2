@@ -1,6 +1,6 @@
 # Doordash 的最新数据泄露:如何保护自己
 
-> 原文:[https://life hacker . com/door dashs-latest-data-breach-how-to-protect-yoursely-1838523733](https://lifehacker.com/doordashs-latest-data-breach-how-to-protect-yourself-1838523733)
+> 原文：<https://lifehacker.com/doordashs-latest-data-breach-how-to-protect-yourself-1838523733>
 
 Doordash 是最新的“你可能使用的服务，或者至少有一个帐户”公司遭受大规模数据泄露。虽然你的密码可能还没有被泄露，但你的物理地址很可能就在互联网的某个地方，和其他识别信息一起漂浮着。
 

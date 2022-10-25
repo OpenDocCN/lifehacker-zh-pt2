@@ -1,6 +1,6 @@
 # 当 WhatsApp 的“消失信息”功能终于到来时，该如何尝试
 
-> 原文:[https://life hacker . com/how-to-try-whatsapp-invising-messages-feature-when-1842381540](https://lifehacker.com/how-to-try-whatsapps-disappearing-messages-feature-when-1842381540)
+> 原文：<https://lifehacker.com/how-to-try-whatsapps-disappearing-messages-feature-when-1842381540>
 
 对 WhatsApp 粉丝来说，有好消息也有坏消息。我们先从前者开始:这款应用很可能很快就会有一个奇特的小功能，让你在一段时间后自动删除群发和私人信息。有趣的是:*你*决定这段时间有多长。
 

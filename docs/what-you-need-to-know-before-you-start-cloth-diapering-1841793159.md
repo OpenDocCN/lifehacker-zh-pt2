@@ -1,6 +1,6 @@
 # 开始换尿布前你需要知道的
 
-> 原文:[https://life hacker . com/what-you-need-to-know-before-you-start-cloth-diapersing-1841793159](https://lifehacker.com/what-you-need-to-know-before-you-start-cloth-diapering-1841793159)
+> 原文：<https://lifehacker.com/what-you-need-to-know-before-you-start-cloth-diapering-1841793159>
 
 当我怀上我儿子的时候，我和我丈夫开始致力于用布换尿布。事实上，我太投入了，以至于在孩子出生前很久，我就买了价值几百美元的一大笔东西(一笔*投资*)洗干净并挂起来晾干。如此投入，以至于我们告诉每个人我们有多投入。
 

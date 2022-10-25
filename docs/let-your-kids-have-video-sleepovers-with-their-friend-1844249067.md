@@ -1,6 +1,6 @@
 # 让你的孩子和他们的朋友一起“视频过夜”
 
-> 原文:[https://life hacker . com/let-your-kids-have-video-over-s-friend-1844249067](https://lifehacker.com/let-your-kids-have-video-sleepovers-with-their-friend-1844249067)
+> 原文：<https://lifehacker.com/let-your-kids-have-video-sleepovers-with-their-friend-1844249067>
 
 孩子们现在错过了很多与朋友的传统社交活动，但我们也越来越擅长找出经典作品的疫情变体。“聊胜于无”现在应该是每个人的口头禅，这就是为什么我要建议你让你的孩子和他们的朋友视频过夜。
 

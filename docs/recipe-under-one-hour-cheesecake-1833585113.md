@@ -1,6 +1,6 @@
 # 是的，你可以在一个小时内做好芝士蛋糕
 
-> 原文:[https://the take out . com/recipe-under-one-hour-cheese cake-1833585113](https://thetakeout.com/recipe-under-one-hour-cheesecake-1833585113)
+> 原文：<https://thetakeout.com/recipe-under-one-hour-cheesecake-1833585113>
 
 在办公室，我们经常进行“馅饼人对蛋糕人”的辩论，但说实话，我两者都不是。我喜欢吃芝士蛋糕。这绝对是我最喜欢的甜点(也是我最喜欢的 Ben & Jerry 的口味，以草莓芝士蛋糕的形式)。含糖奶油奶酪扑鼻的甜味以及的高脂肪奶油真的让我着迷。当我渴望奶酪蛋糕时，我想要它，我现在就想要它*。* 
 

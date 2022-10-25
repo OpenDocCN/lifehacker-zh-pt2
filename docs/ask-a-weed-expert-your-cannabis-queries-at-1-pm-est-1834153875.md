@@ -1,6 +1,6 @@
 # 在美国东部时间下午 1 点向杂草专家询问你的大麻问题[更新:结束]
 
-> 原文:[https://life hacker . com/ask-a-weed-expert-your-cannabis-queries-at-1-pm-est-1834153875](https://lifehacker.com/ask-a-weed-expert-your-cannabis-queries-at-1-pm-est-1834153875)
+> 原文：<https://lifehacker.com/ask-a-weed-expert-your-cannabis-queries-at-1-pm-est-1834153875>
 
 我最近第一次尝试了大麻(对不起，妈妈)，递给我大麻的人指导我——一个实际上从未吸烟并对此非常紧张的人——因此:“好的，确保你吸入足够多的烟到你的肺里，但不要吸入太多的烟，否则你会吸得太高。”太好了！没有压力。
 

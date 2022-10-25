@@ -1,6 +1,6 @@
 # 用干苦艾酒做你的尼格罗尼
 
-> 原文:[https://life hacker . com/make-your-negro ni-with-dry-苦艾酒-1841676330](https://lifehacker.com/make-your-negroni-with-dry-vermouth-1841676330)
+> 原文：<https://lifehacker.com/make-your-negroni-with-dry-vermouth-1841676330>
 
 我在鸡尾酒吧点的 90%的饮料都是尼格罗尼酒。杜松子酒、金巴利酒和甜苦艾酒的神圣三位一体拥有近乎宇宙般的花生酱和果冻般的相互亲和力，这使得它们的组合几乎是防错的。喝多了杜松子酒？还是挺好的。超级劣质冰？随便啦。完全无能的执行？没人在乎。在一个不错的酒吧里，最差的尼格罗尼也比外面 90%的马提尼酒好。除非苦艾酒疏忽，尼格罗尼基本上不可能搞砸。
 

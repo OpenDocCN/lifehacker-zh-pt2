@@ -1,6 +1,6 @@
 # 你应该预订苹果的 AirPods Pro 吗？
 
-> 原文:[https://life hacker . com/should-you-preorder-apple-ai rpods-pro-1839416219](https://lifehacker.com/should-you-preorder-apples-airpods-pro-1839416219)
+> 原文：<https://lifehacker.com/should-you-preorder-apples-airpods-pro-1839416219>
 
 嗯，这是意料之外的。完全没有任何宣传——甚至没有在上个月的大型新闻发布会上取笑——苹果今天在 的新闻稿中正式宣布了其全新的 AirPods Pro。你在蒂姆·库克耳朵里塞小喇叭所缺少的，是你在功能上的收获。特别是降噪功能，经过近三年的等待，这一功能终于登陆苹果的无线耳机。
 

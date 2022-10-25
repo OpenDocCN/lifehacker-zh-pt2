@@ -1,6 +1,6 @@
 # how to learn to ride a bike as an adult 1843421488
 
-> 原文:[https://life hacker . com/how-to-learn-to-ride-a-bike-as a-adult-1843421488](https://lifehacker.com/how-to-learn-to-ride-a-bike-as-an-adult-1843421488)
+> 原文：<https://lifehacker.com/how-to-learn-to-ride-a-bike-as-an-adult-1843421488>
 
 也许在你六岁的时候，你的父母试图教你一次，但是你撞到了一棵树上，并且拒绝再骑上自行车。或者也许从来没有人试图教你——或者你从来不想学。但是现在，在疫情的几个星期后，事情变得很无聊。你的伴侣、你的朋友、你的邻居或你的孩子正拉着他们的自行车在附近进行大冒险，你已经决定:是时候学习如何骑自行车了。
 

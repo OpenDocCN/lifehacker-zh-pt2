@@ -1,6 +1,6 @@
 # 如何观看今晚的 Eta 宝瓶座流星雨
 
-> 原文:[https://life hacker . com/how-to-watch-tonights-eta-aquarid-meteor-shower-1843240984](https://lifehacker.com/how-to-watch-tonights-eta-aquarid-meteor-shower-1843240984)
+> 原文：<https://lifehacker.com/how-to-watch-tonights-eta-aquarid-meteor-shower-1843240984>
 
 本周的 Eta 宝瓶座流星雨是 7 月前最后一场好的了， [根据美国流星协会](https://www.amsmeteors.org/2020/05/viewing-the-eta-aquariid-meteor-shower-in-2020/) ，所以如果可以的话尽量赶上。
 

@@ -1,6 +1,6 @@
 # 如何强制谷歌的 Pixel 4 一直使用 90Hz 刷新率
 
-> 原文:[https://life hacker . com/how-to-force-Google s-pixel-4-to-always-use-a-90hz-refre-1839332271](https://lifehacker.com/how-to-force-googles-pixel-4-to-always-use-a-90hz-refre-1839332271)
+> 原文：<https://lifehacker.com/how-to-force-googles-pixel-4-to-always-use-a-90hz-refre-1839332271>
 
 谷歌的 Pixel 4 和 4 XL 是加入高刷新率热潮的最新智能手机，但当你新的闪亮 Pixel 最终出现在你手中时，你可能会发现它的 90Hz 屏幕并不总是像你预期的那样平滑。
 

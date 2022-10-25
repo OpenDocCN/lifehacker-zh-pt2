@@ -1,6 +1,6 @@
 # 你是怎么学会打字的？
 
-> 原文:[https://lifehacker.com/how-did-you-learn-to-type-1835380447](https://lifehacker.com/how-did-you-learn-to-type-1835380447)
+> 原文：<https://lifehacker.com/how-did-you-learn-to-type-1835380447>
 
 在我学会打字很久以后，我在高中上了第一堂正式的打字课。没有足够的电脑给每个人，所以我们中的一些人被分流到一个满是灰尘的房间，那里有真正的打字机。当其他孩子练习“键盘输入”技能时，我们不停地敲击键盘，在句号后加上两个空格，并学习如何正确设置制表位的神秘程序。
 

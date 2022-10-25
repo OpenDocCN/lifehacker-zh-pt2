@@ -1,6 +1,6 @@
 # 在申请退税前，先问这些问题
 
-> 原文:[https://life hacker . com/before-take-a-tax-refund-advance-ask-these-questions-1831868188](https://lifehacker.com/before-taking-a-tax-refund-advance-ask-these-questions-1831868188)
+> 原文：<https://lifehacker.com/before-taking-a-tax-refund-advance-ask-these-questions-1831868188>
 
 许多美国人依靠退税来支付账单，为更大的目标提供资金，或者在今年，在他们等待政府重新开放以获得工作报酬的时候，让他们保持运转。虽然提前退税可能很诱人，尤其是在今年，但消费者权益倡导者警告不要这么做。
 

@@ -1,6 +1,6 @@
 # 和你的孩子一起创造“无聊罐子”
 
-> 原文:[https://life hacker . com/create-tyre-jars-with-your-kid-1834547469](https://lifehacker.com/create-boredom-jars-with-your-kid-1834547469)
+> 原文：<https://lifehacker.com/create-boredom-jars-with-your-kid-1834547469>
 
 如果你有孩子，你知道孩子会感到无聊。我坚信孩子有时感到无聊是有好处的，但也有你想改变一些事情，但又缺乏灵感的时候。当连续下了三天雨，你又会说“我不知道，读本书吧”，这时候，能从帽子里挑出一个新点子真好。或者一个罐子。
 

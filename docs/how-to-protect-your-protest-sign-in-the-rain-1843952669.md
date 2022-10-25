@@ -1,6 +1,6 @@
 # 如何在雨中保护你的抗议标志
 
-> 原文:[https://life hacker . com/how-to-protect-your-抗议信在雨中-1843952669](https://lifehacker.com/how-to-protect-your-protest-sign-in-the-rain-1843952669)
+> 原文：<https://lifehacker.com/how-to-protect-your-protest-sign-in-the-rain-1843952669>
 
 经过近两周的示威游行，人们仍然成群结队地出来抗议乔治·弗洛伊德和布里奥纳·泰勒被杀，并支持黑人的生活。大多数聚会的天气都很好，但有些城市(如我居住的波特兰)却下了相当多的雨。即使从天而降的水没有挫伤你的热情，它也会对你的标志造成严重破坏，使它变得潮湿和难以辨认。
 

@@ -1,6 +1,6 @@
 # 对你自己进行全面的背景调查
 
-> 原文:[https://life hacker . com/run-a-comprehensive-background-check-on-yourself-1832233602](https://lifehacker.com/run-a-comprehensive-background-check-on-yourself-1832233602)
+> 原文：<https://lifehacker.com/run-a-comprehensive-background-check-on-yourself-1832233602>
 
 你知道谁在收集你的信息吗？如果你申请了一份工作、一套公寓或一份保险，很有可能你已经接受了背景调查。这些报告可以包括你的收入、贷款偿还、债务等信息，消费者报告公司甚至可以为你提供“风险评分”。
 

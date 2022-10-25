@@ -1,6 +1,6 @@
 # 如何清理最常见的智能手机垃圾
 
-> 原文:[https://life hacker . com/how-to-clean-the-most-common-smart phone-messes-1834927079](https://lifehacker.com/how-to-clean-the-most-common-smartphone-messes-1834927079)
+> 原文：<https://lifehacker.com/how-to-clean-the-most-common-smartphone-messes-1834927079>
 
 我们把手机带到任何地方，所以不可避免的是，它们最终会感受到我们生活的冲击。就像我们在漫长的周末露营后第一件事就是冲淋浴一样，我们的智能手机也需要偶尔进行一次深度清洁。
 

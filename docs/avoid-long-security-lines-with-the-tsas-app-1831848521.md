@@ -1,6 +1,6 @@
 # 使用美国运输安全管理局的应用程序避免长时间的安检
 
-> 原文:[https://life hacker . com/avoid-long-security-lines-with-the-tsas-app-1831848521](https://lifehacker.com/avoid-long-security-lines-with-the-tsas-app-1831848521)
+> 原文：<https://lifehacker.com/avoid-long-security-lines-with-the-tsas-app-1831848521>
 
 没有人想在长达一小时的安检线上等待，但这总是有可能的——现在比以往任何时候都更有可能。一款旨在显示等待时间的应用程序可能有助于将你从人群中解救出来。
 

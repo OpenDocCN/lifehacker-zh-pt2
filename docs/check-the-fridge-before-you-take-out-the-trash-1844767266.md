@@ -1,6 +1,6 @@
 # 在你倒垃圾之前，检查一下冰箱
 
-> 原文:[https://life hacker . com/在你倒垃圾之前检查一下冰箱-1844767266](https://lifehacker.com/check-the-fridge-before-you-take-out-the-trash-1844767266)
+> 原文：<https://lifehacker.com/check-the-fridge-before-you-take-out-the-trash-1844767266>
 
 垃圾之夜有套路吗？我丈夫喜欢四处走动，收集家里的每一点垃圾；我只是把垃圾桶推到路边，然后叫家务结束。无论你采用哪种方法，我都希望你增加一个步骤:当你在冰箱里的时候，偷看一眼。
 

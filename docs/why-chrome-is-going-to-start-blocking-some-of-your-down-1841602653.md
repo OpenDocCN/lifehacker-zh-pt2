@@ -1,6 +1,6 @@
 # 为什么 Chrome 会开始阻止你的一些下载
 
-> 原文:[https://life hacker . com/why-chrome-is-go-to-start-blocking-some-of-your-down-1841602653](https://lifehacker.com/why-chrome-is-going-to-start-blocking-some-of-your-down-1841602653)
+> 原文：<https://lifehacker.com/why-chrome-is-going-to-start-blocking-some-of-your-down-1841602653>
 
 当谷歌 Chrome 在几个月后开始阻止你的下载时，要知道这不是针对你个人的；浏览器只是尽力保护你的安全。你应该*也*知道 Chrome 并不是完美无缺的，你仍然应该运行定期的防病毒和反恶意软件扫描——避免劣质网站和它们的恶意软件。
 

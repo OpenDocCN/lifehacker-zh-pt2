@@ -1,6 +1,6 @@
 # 本周给自己一份时间的礼物
 
-> 原文:[https://life hacker . com/give-yourself-the-time-this-week-1833372698](https://lifehacker.com/give-yourself-the-gift-of-time-this-week-1833372698)
+> 原文：<https://lifehacker.com/give-yourself-the-gift-of-time-this-week-1833372698>
 
 我的 [新的早晨惯例](https://lifehacker.com/ease-up-on-your-morning-routine-1831875238) 中最大的乐趣之一就是我每天都是从无所事事开始的。在准备好之前，我躺了一会儿，然后端着一杯咖啡坐了几分钟。
 

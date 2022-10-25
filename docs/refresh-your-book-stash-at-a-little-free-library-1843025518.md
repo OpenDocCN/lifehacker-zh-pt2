@@ -1,6 +1,6 @@
 # 在一个小小的免费图书馆刷新你的藏书
 
-> 原文:[https://life hacker . com/refresh-your-book-stash-at-a-little-free-library-1843025518](https://lifehacker.com/refresh-your-book-stash-at-a-little-free-library-1843025518)
+> 原文：<https://lifehacker.com/refresh-your-book-stash-at-a-little-free-library-1843025518>
 
 我们不存在的社交时间表激发了我们中的许多人去阅读书籍，寻找逃离的更安全的在家的方法。无论你是通过购买一本书(或 10 本)来支持你当地的书商，还是快速浏览你图书馆的电子书收藏清单，有一件事对我们大多数人来说可能都是真的:我们的书架上有几本书此时正好占据了空间。
 

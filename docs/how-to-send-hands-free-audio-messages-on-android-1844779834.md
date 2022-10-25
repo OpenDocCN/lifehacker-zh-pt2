@@ -1,6 +1,6 @@
 # 如何在 Android 上发送免提音频消息
 
-> 原文:[https://life hacker . com/how-to-send-hands-free-audio-messages-on-Android-1844779834](https://lifehacker.com/how-to-send-hands-free-audio-messages-on-android-1844779834)
+> 原文：<https://lifehacker.com/how-to-send-hands-free-audio-messages-on-android-1844779834>
 
 谷歌助手 [可以让你在你的安卓手机](https://lifehacker.com/use-google-assistant-to-listen-to-articles-on-android-1844135149) [上做大量的事情](https://lifehacker.com/how-to-connect-your-favorite-streaming-services-to-goog-1844053932)，完全免提 ，最近的更新增加了录音和发送文本语音信息。
 

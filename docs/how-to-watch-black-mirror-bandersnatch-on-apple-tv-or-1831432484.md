@@ -1,6 +1,6 @@
 # 如何在苹果电视或 Chromecast 上观看《黑镜:Bandersnatch》
 
-> 原文:[https://life hacker . com/how-to-watch-black-mirror-banders natch-on-apple-TV-or-1831432484](https://lifehacker.com/how-to-watch-black-mirror-bandersnatch-on-apple-tv-or-1831432484)
+> 原文：<https://lifehacker.com/how-to-watch-black-mirror-bandersnatch-on-apple-tv-or-1831432484>
 
 每个人都在看网飞的*黑镜:Bandersnatch* ，这要感谢它古怪的前提 [一个完全互动的故事](https://lifehacker.com/how-to-watch-every-ending-of-black-mirror-bandersnatc-1831380467) 让你选择它如何展开。
 

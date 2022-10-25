@@ -1,6 +1,6 @@
 # how to ask for enthusiastic consent 1834048510
 
-> 原文:[https://life hacker . com/how-to-ask-for-热心同意-1834048510](https://lifehacker.com/how-to-ask-for-enthusiastic-consent-1834048510)
+> 原文：<https://lifehacker.com/how-to-ask-for-enthusiastic-consent-1834048510>
 
 “热情的同意”这个短语终于进入了主流词汇。同意意味着你愿意在特定的环境下，与特定的人参与特定的性活动。热情同意背后的想法是，嗯，你对此很热情。你不仅仅是因为在某种程度上感到有压力而同意做这件事；你真的很兴奋。人们越来越意识到，热情的同意是幸福健康性生活的重要组成部分。以下是你需要知道的，以获得(并给予)热情的同意。
 

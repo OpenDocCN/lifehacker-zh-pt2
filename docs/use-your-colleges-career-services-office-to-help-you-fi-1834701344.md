@@ -1,6 +1,6 @@
 # 利用你大学的职业服务办公室帮助你找到下一份工作，即使你几年前就毕业了
 
-> 原文:[https://life hacker . com/use-your-colleges-career-services-office-to-help-you-fi-1834701344](https://lifehacker.com/use-your-colleges-career-services-office-to-help-you-fi-1834701344)
+> 原文：<https://lifehacker.com/use-your-colleges-career-services-office-to-help-you-fi-1834701344>
 
 在我大学毕业前不久，我去了学校的就业中心，在制作我的第一份“真正的”简历方面得到了帮助，并得到了一些关于如何在我第一份成人工作的面试过程中不崩溃的建议。
 

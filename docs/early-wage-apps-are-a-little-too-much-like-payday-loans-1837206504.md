@@ -1,6 +1,6 @@
 # 早期的工资应用有点太像发薪日贷款了
 
-> 原文:[https://life hacker . com/early-wage-apps-is-a-little-too-like-payday-loans-1837206504](https://lifehacker.com/early-wage-apps-are-a-little-too-much-like-payday-loans-1837206504)
+> 原文：<https://lifehacker.com/early-wage-apps-are-a-little-too-much-like-payday-loans-1837206504>
 
 每当我坐下来看一三个小时的电视点播时，我就会看到 Earnin 的广告。 [在其中一部](https://www.ispot.tv/ad/IP2c/earnin-cash-out-instantly) 中，一个精明的哥哥类型的人告诉相机后面的人，他需要停止借钱，而是获得 Earnin 应用程序。“你可以获得你赚的钱，没有任何费用或利息，”这个精明的家伙说。"你只要给你认为公平的小费就行了。"
 

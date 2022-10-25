@@ -1,6 +1,6 @@
 # 知道什么时候太热而不能遛狗
 
-> 原文:[https://life hacker . com/know-when-it-too-hot-to-walk-your dog-1835785473](https://lifehacker.com/know-when-its-too-hot-to-walk-your-dog-1835785473)
+> 原文：<https://lifehacker.com/know-when-its-too-hot-to-walk-your-dog-1835785473>
 
 我们最近在旧金山遇到一点热浪。温度超过 80 度的情况非常罕见(尽管近年来越来越少)，这意味着大多数人没有空调，更不知道如何应对高温。
 

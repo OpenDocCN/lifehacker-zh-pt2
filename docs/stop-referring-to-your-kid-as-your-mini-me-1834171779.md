@@ -1,6 +1,6 @@
 # 不要把你的孩子称为你的“迷你我”
 
-> 原文:[https://life hacker . com/stop-reference-to-your-kid-as-your-mini-me-1834171779](https://lifehacker.com/stop-referring-to-your-kid-as-your-mini-me-1834171779)
+> 原文：<https://lifehacker.com/stop-referring-to-your-kid-as-your-mini-me-1834171779>
 
 也许你的女儿有着和你一样的深棕色头发或者锐利的蓝眼睛。你控制不住自己，真的；时不时地，你会穿上相配的衣服，在后院拍些照片，然后把照片发布给全世界的人看。谁能责怪你呢？这孩子完全是你的翻版。
 

@@ -1,6 +1,6 @@
 # 什么时候用 Who 和 Who
 
-> 原文:[https://lifehacker.com/when-to-use-who-vs-whom-1820014633](https://lifehacker.com/when-to-use-who-vs-whom-1820014633)
+> 原文：<https://lifehacker.com/when-to-use-who-vs-whom-1820014633>
 
 在所有复杂的语法规则中，知道何时使用谁是 T2，谁是 T4。如果做错了，你可能会看起来像个乡巴佬。做对了，你就有看起来自命不凡的风险。以不同的方式犯错，你可能看起来像个自命不凡的乡巴佬。所以，我们这些生活骇客，想要既正确又不自命不凡(但有时会成功)的人，认为我们应该做一点研究，一劳永逸地解决“谁/谁”的问题。
 

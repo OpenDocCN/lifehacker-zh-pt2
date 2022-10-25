@@ -1,6 +1,6 @@
 # 今天从 Krispy Kreme 免费获得一打甜甜圈
 
-> 原文:[https://life hacker . com/get-a-free-a-十二个甜甜圈-from-krispy-kreme-today-1836112665](https://lifehacker.com/get-a-free-dozen-doughnuts-from-krispy-kreme-today-1836112665)
+> 原文：<https://lifehacker.com/get-a-free-dozen-doughnuts-from-krispy-kreme-today-1836112665>
 
 如果你今天想找些小甜点带去朋友的野炊，你可能会想到 Krispy Kreme。
 

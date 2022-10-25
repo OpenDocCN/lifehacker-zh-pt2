@@ -1,6 +1,6 @@
 # 给你的宝宝买一些不可毁灭的书
 
-> 原文:[https://life hacker . com/buy-your-baby-infantible-books-1830944169](https://lifehacker.com/buy-your-baby-indestructible-books-1830944169)
+> 原文：<https://lifehacker.com/buy-your-baby-indestructible-books-1830944169>
 
 我承认，当我们的 [后代脸书集团](https://www.facebook.com/groups/2018785615043946/) 中的一位家长建议我为我 9 个月大的侄子买一本《坚不可摧》作为圣诞礼物时，我有点怀疑。
 

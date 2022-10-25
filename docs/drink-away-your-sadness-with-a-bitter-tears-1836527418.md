@@ -1,6 +1,6 @@
 # 用“苦涩的眼泪”喝掉你的悲伤
 
-> 原文:[https://life hacker . com/drink-away-your ' s sadness with-a-bitter-tears-1836527418](https://lifehacker.com/drink-away-your-sadness-with-a-bitter-tears-1836527418)
+> 原文：<https://lifehacker.com/drink-away-your-sadness-with-a-bitter-tears-1836527418>
 
 我最喜欢的睡前饮料是一盎司左右的 Fernet，加冰，加少许盐，但这种饮料标志着一个美好夜晚的结束，而不是一个美好夜晚的开始(甚至是中间)。但是我想整晚都是咸的——从开始到结束——所以我决定采用这种风味，把它做成马提尼。
 

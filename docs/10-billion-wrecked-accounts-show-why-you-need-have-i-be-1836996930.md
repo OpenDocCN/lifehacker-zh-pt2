@@ -1,6 +1,6 @@
 # 100 亿个被破坏的账户说明了为什么你需要“我被 pwn 了吗”
 
-> 原文:[https://life hacker . com/100 亿被摧毁的账户-显示你为什么需要我-1836996930](https://lifehacker.com/10-billion-wrecked-accounts-show-why-you-need-have-i-be-1836996930)
+> 原文：<https://lifehacker.com/10-billion-wrecked-accounts-show-why-you-need-have-i-be-1836996930>
 
 流行的数据泄露追踪器正在逼近 100 亿被泄露的账户。请想一想:*十。十亿。账目*。为了客观地看待这个数字，地球上大约有 77 亿人。这就好像地球上的每个人都有一个受损的脸书账户——甚至更多。
 

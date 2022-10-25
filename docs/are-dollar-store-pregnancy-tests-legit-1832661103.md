@@ -1,6 +1,6 @@
 # 一元店验孕合法吗？
 
-> 原文:[https://life hacker . com/are-dollar-store-妊娠检测-legit-1832661103](https://lifehacker.com/are-dollar-store-pregnancy-tests-legit-1832661103)
+> 原文：<https://lifehacker.com/are-dollar-store-pregnancy-tests-legit-1832661103>
 
 一元店购买的商品通常不是最坚固或最高质量的商品。因此，当你看到货架上廉价的验孕棒时，有理由怀疑你是否会认真对待它的结果。惊喜！它是肯定的。
 

@@ -1,6 +1,6 @@
 # 斜面包裹的扇贝比培根包裹的扇贝好吃
 
-> 原文:[https://life hacker . com/ramp-wrapped-扇贝比培根卷好 sca-1834227569](https://lifehacker.com/ramp-wrapped-scallops-are-better-than-bacon-wrapped-sca-1834227569)
+> 原文：<https://lifehacker.com/ramp-wrapped-scallops-are-better-than-bacon-wrapped-sca-1834227569>
 
 我从来没有完全理解培根卷扇贝的吸引力。虽然我喜欢这两种美食，但对于美味的甜扇贝来说，腌制的培根实在是太诱人了。简直是弄巧成拙百合镀金，我不喜欢。另外，除非 [预煮](https://skillet.lifehacker.com/will-it-sous-vide-perfectly-adequate-bacon-1789891175) ，否则培根没有足够的时间变脆。但是一个用斜坡叶子包裹的烤焦的扇贝(基本上是卷起来的大蒜)？我的朋友们，这就是这种疯狂的堕落。
 

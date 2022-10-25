@@ -1,6 +1,6 @@
 # 吸尘如何影响你家的空气质量
 
-> 原文:[https://life hacker . com/how-vacuuming-affects-your-home-air-quality-1845093487](https://lifehacker.com/how-vacuuming-affects-your-home-air-quality-1845093487)
+> 原文：<https://lifehacker.com/how-vacuuming-affects-your-home-air-quality-1845093487>
 
 如果你所在的地区现在空气质量很差，你可能听说过用吸尘器打扫房子不是一个好主意。话又说回来，吸尘也是一种工具，可以帮助你将灰尘和过敏原带出房间，这表明有时它是一件好事情。两者都有道理，所以这里是你需要知道的。
 

@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:一个派对客人正在拿我的冰箱
 
-> 原文:[https://the take out . com/my-party-guest-is-self-to-my-冰箱-1837374504](https://thetakeout.com/my-party-guest-is-helping-himself-to-my-fridge-1837374504)
+> 原文：<https://thetakeout.com/my-party-guest-is-helping-himself-to-my-fridge-1837374504>
 
 > 亲爱的 Salty:上周末，我在家里举办了一次非正式聚会。每个人都玩得很开心，但我忍不住注意到其中一个客人(我认为他是熟人而不是密友)在翻我的冰箱！他不仅拿走了我藏在后面的一瓶昂贵的啤酒，我还看到他偷看了一些特百惠剩菜和我们存放熟食的托盘。感觉很奇怪。我有这种感觉是错的吗？
 > 

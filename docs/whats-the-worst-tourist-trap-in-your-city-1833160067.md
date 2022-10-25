@@ -1,6 +1,6 @@
 # 你所在的城市最糟糕的旅游陷阱是什么？
 
-> 原文:[https://life hacker . com/whats-the-worst-tourism-in-you-city-1833160067](https://lifehacker.com/whats-the-worst-tourist-trap-in-your-city-1833160067)
+> 原文：<https://lifehacker.com/whats-the-worst-tourist-trap-in-your-city-1833160067>
 
 在纽约，跳过自由女神像，乘坐斯塔滕岛渡轮；走曼哈顿大桥，而不是布鲁克林大桥。在波特兰，不要去伏都教甜甜圈，去蓝星。在旧金山，不要在发臭的玫瑰餐厅吃饭；看看附近较小的意大利餐馆。每个城市( [)每个州](https://www.thisisinsider.com/biggest-tourist-traps-usa-overrated-attractions-2017-5) ) 都有旅游陷阱和更好的选择。你呢？
 

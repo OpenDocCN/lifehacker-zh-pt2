@@ -1,6 +1,6 @@
 # 这个蛋糕有一个可怕的秘密
 
-> 原文:[https://life hacker . com/this-cake-has-a-terrible-secret-1839471013](https://lifehacker.com/this-cake-has-a-terrible-secret-1839471013)
+> 原文：<https://lifehacker.com/this-cake-has-a-terrible-secret-1839471013>
 
 我不太喜欢以食物为基础的恶作剧。未经人们同意就喂他们东西是不可爱也不好笑的，但是只要发生在任何人违背他们的意愿摄入任何东西之前，扣动鱼饵和开关(对你来说)是很有趣的。
 

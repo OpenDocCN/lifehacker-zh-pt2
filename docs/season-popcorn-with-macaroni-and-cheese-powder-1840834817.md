@@ -1,6 +1,6 @@
 # 用通心粉和奶酪粉给爆米花调味
 
-> 原文:[https://life hacker . com/season-爆米花配通心粉和奶酪粉-1840834817](https://lifehacker.com/season-popcorn-with-macaroni-and-cheese-powder-1840834817)
+> 原文：<https://lifehacker.com/season-popcorn-with-macaroni-and-cheese-powder-1840834817>
 
 奶酪爆米花是一种非常特色小吃的食物。通常可以在充气袋或季节性罐头中找到，(理想的)亮橙色爆玉米粒是咸和辣的完美结合。自制奶酪爆米花的食谱通常包括从网上订购奶酪粉或购买特殊(通常价格过高)的爆米花专用调料，但这比所有这些都简单得多。想要完美的奶酪爆米花，你只需要一盒通心粉(和奶酪)。
 

@@ -1,6 +1,6 @@
 # 为了更有创意，设立一个“模拟桌”
 
-> 原文:[https://life hacker . com/to-be-more-creative-set-a-analog-desk-1835372964](https://lifehacker.com/to-be-more-creative-set-up-an-analog-desk-1835372964)
+> 原文：<https://lifehacker.com/to-be-more-creative-set-up-an-analog-desk-1835372964>
 
 当我写作困难的时候，当我感觉被卡住或分心的时候，或者好像我是世界上最大的骗子的时候，我会强迫自己离开屏幕。我在家工作，所以我会拿一个迷你笔记本和一支笔，重新定位我的身体——我可能会在地板上伸展四肢，或者出去坐在我的摇椅上，或者绕着房子转圈。我以前写过运动 [如何打开我的大脑](https://lifehacker.com/im-michelle-woo-lifehacker-parenting-editor-and-this-1829059861) 。
 

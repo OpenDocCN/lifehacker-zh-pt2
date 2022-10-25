@@ -1,6 +1,6 @@
 # 2019 年 12 月 16 日这一周网飞有什么新消息
 
-> 原文:[https://life hacker . com/whats-new-on-the-week-of-12-16-2019-1840409997](https://lifehacker.com/whats-new-on-netflix-the-week-of-december-16-2019-1840409997)
+> 原文：<https://lifehacker.com/whats-new-on-netflix-the-week-of-december-16-2019-1840409997>
 
 现在是颁奖季节，网飞已经有了几个确定的获奖者。如果你已经看过《婚姻故事》和《T2》【爱尔兰人】，你会想把周五定为《T4》【教宗的承继】、的首映日，由安东尼·霍普金斯和乔纳森·普赖斯饰演本尼迪克特和弗朗西斯，基本上和*的《康明斯基法》一模一样，*除了用正式礼服而不是毛巾布浴袍。如果你更喜欢半身人和侏儒而不是主教和红衣主教，你会选择*巫师*(也是星期五)。
 

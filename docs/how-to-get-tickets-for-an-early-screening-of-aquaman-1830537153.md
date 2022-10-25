@@ -1,6 +1,6 @@
 # 如何买到《潜水侠》的提前放映票
 
-> 原文:[https://life hacker . com/how-to-get-a-early-screening-of-aquaman-1830537153](https://lifehacker.com/how-to-get-tickets-for-an-early-screening-of-aquaman-1830537153)
+> 原文：<https://lifehacker.com/how-to-get-tickets-for-an-early-screening-of-aquaman-1830537153>
 
 亚马逊本周宣布，将在电影正式上映前六天为亚马逊 Prime 会员举行一系列《水行侠》的早期放映。根据[《The Verge】](https://www.theverge.com/2018/11/19/18102455/amazon-prime-early-aquaman-screenings-december-15)的消息，这部电影将于 12 月 15 日晚 7 点在美国 1000 家影院上映。
 

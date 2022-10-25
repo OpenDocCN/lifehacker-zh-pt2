@@ -1,6 +1,6 @@
 # 你如何帮助拯救濒临灭绝的虫子
 
-> 原文:[https://life hacker . com/how-you-can-help-save-bugs-from-extinction-1832624241](https://lifehacker.com/how-you-can-help-save-bugs-from-extinction-1832624241)
+> 原文：<https://lifehacker.com/how-you-can-help-save-bugs-from-extinction-1832624241>
 
 昆虫无处不在，人类经常被抓到试图根除它们。虫子会让生活变得非常不方便，甚至有点恶心——但它们是我们生态系统中最重要的部分之一。它们正在消失。你可以做些什么来阻止它们危险的下降。
 

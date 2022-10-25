@@ -1,6 +1,6 @@
 # 提前计划你的心理健康日
 
-> 原文:[https://life hacker . com/plan-your-mental-health-days-advance-1841957838](https://lifehacker.com/plan-your-mental-health-days-in-advance-1841957838)
+> 原文：<https://lifehacker.com/plan-your-mental-health-days-in-advance-1841957838>
 
 每个月，我都会试着把至少一个周末定为无计划日。在那一天，我做了可能会被认为是“无所事事”的事情；我阅读，我小睡，也许我会重新看一部最喜欢的电影或电视节目，我会花很多时间盯着天空，就像，思考。
 

@@ -1,6 +1,6 @@
 # 用日本乘法可视化数学问题
 
-> 原文:[https://life hacker . com/visualize-math-problems-with-the-Japanese-multiplicio-1844688802](https://lifehacker.com/visualize-math-problems-with-the-japanese-multiplicatio-1844688802)
+> 原文：<https://lifehacker.com/visualize-math-problems-with-the-japanese-multiplicatio-1844688802>
 
 在智能手机计算器和语音助手的时代，用手将大量数字相乘似乎是一种古怪的、完全没有必要的技能。然而，你永远不知道什么时候你会需要做快速数学运算，而 [日本乘法](https://digg.com/2020/japanese-multiplication) (也称为逐行乘法)可以帮助你简单地通过计算得出答案。你只需要一张纸和一支笔。(有三种不同颜色的墨水会有所帮助，但这不是必需的。)
 

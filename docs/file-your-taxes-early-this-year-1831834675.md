@@ -1,6 +1,6 @@
 # 今年早些时候申报你的税收
 
-> 原文:[https://life hacker . com/file-your-taxes-年初-1831834675](https://lifehacker.com/file-your-taxes-early-this-year-1831834675)
+> 原文：<https://lifehacker.com/file-your-taxes-early-this-year-1831834675>
 
 纳税季于 1 月 28 日正式开始，专家建议人们如果不想推迟退税，就在今年年初开始申报。
 

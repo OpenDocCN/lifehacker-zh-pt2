@@ -1,6 +1,6 @@
 # 我尝试了所有能想到的谷类和液体的组合
 
-> 原文:[https://the take out . com/I-tryed-every-wanted-every-everything-fluid-combination-1834625076](https://thetakeout.com/i-tried-every-conceivable-cereal-liquid-combination-1834625076)
+> 原文：<https://thetakeout.com/i-tried-every-conceivable-cereal-liquid-combination-1834625076>
 
 亲爱的读者，几周前，我问了你一个问题。
 

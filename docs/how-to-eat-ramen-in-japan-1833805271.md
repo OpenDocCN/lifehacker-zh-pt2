@@ -1,6 +1,6 @@
 # 在日本如何吃拉面
 
-> 原文:[https://lifehacker.com/how-to-eat-ramen-in-japan-1833805271](https://lifehacker.com/how-to-eat-ramen-in-japan-1833805271)
+> 原文：<https://lifehacker.com/how-to-eat-ramen-in-japan-1833805271>
 
 在日本，吃拉面是一种近乎该死的宗教体验。
 

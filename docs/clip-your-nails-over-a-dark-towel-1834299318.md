@@ -1,6 +1,6 @@
 # 用深色毛巾夹住你的指甲
 
-> 原文:[https://life hacker . com/clip-your-nails-over-a dark-towel-1834299318](https://lifehacker.com/clip-your-nails-over-a-dark-towel-1834299318)
+> 原文：<https://lifehacker.com/clip-your-nails-over-a-dark-towel-1834299318>
 
 无论你有多小心，剪下你身体上的 20 个指甲都会导致至少一个碎片飞出，伪装在你白色的浴室地板上。然后你踩上去，想死。
 

@@ -1,6 +1,6 @@
 # BitTorrent 初学者指南
 
-> 原文:[https://life hacker . com/a-初学者-bittorrent 指南-285489](https://lifehacker.com/a-beginners-guide-to-bittorrent-285489)
+> 原文：<https://lifehacker.com/a-beginners-guide-to-bittorrent-285489>
 
 从你的极客室友(他们在晚上的所有时间都在占用你的互联网连接)到你的勒德派家庭成员，几乎每个人都知道现在的 BitTorrent 是什么。他们可能无法描述它是如何工作的，甚至无法合法地使用它，但他们知道它的存在。(如果你是一个有点极客的人，你可能也知道对等网络甚至可以驱动像 [Windows 操作系统更新](https://lifehacker.com/windows-10-uses-your-bandwidth-to-distribute-updates-d-1721091469) 、、 [Chromebook 更新](https://support.google.com/chrome/a/answer/3168106?hl=en) 和 [Android 应用](https://www.androidpolice.com/2018/10/24/hands-google-play-peer-peer-app-sharing-files-go/) 安装这样的过程。)
 

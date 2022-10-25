@@ -1,6 +1,6 @@
 # 警惕提高信用评分的新“花招”
 
-> 原文:[https://life hacker . com/be-warn-the-new-tricks for-raising-your-credit-score-1831839587](https://lifehacker.com/be-wary-of-new-tricks-for-raising-your-credit-score-1831839587)
+> 原文：<https://lifehacker.com/be-wary-of-new-tricks-for-raising-your-credit-score-1831839587>
 
 在过去的几个月里，信贷公司发布了一些新的“技巧”,消费者很快就可以使用这些技巧来提高他们的信用评分。这些变化在理论上听起来不错，但就像所有与金融相关的产品一样，你可以打赌，这些公司不是出于好心才推出这些产品的。
 

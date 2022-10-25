@@ -1,6 +1,6 @@
 # im sirita wright cannabis media entrepreneur and this 1833969958
 
-> 原文:[https://life hacker . com/im-sirita-Wright-大麻-media-entrepreneur-and-this-1833969958](https://lifehacker.com/im-sirita-wright-cannabis-media-entrepreneur-and-this-1833969958)
+> 原文：<https://lifehacker.com/im-sirita-wright-cannabis-media-entrepreneur-and-this-1833969958>
 
 西里塔·赖特在执行一项任务。大麻法律正在迅速变化，这意味着企业家正在将注意力转向蓬勃发展的行业。然而，目前大多数大麻企业主都是白人——这是西里塔想要帮助改变的一个事实。通过她的媒体公司 [EstroHaze](https://estrohaze.com/) ，西里塔和她的联合创始人为有色人种妇女提供了一个空间，让她们了解大麻产业提供的众多生活方式和商业机会。正如她在 NBC 采访中所说的，“我不会道歉。大麻拯救生命，创造就业机会，是有色人种获得世代财富的巨大机会。”这是她工作的方式。
 

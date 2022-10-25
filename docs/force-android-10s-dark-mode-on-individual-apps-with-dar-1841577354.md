@@ -1,6 +1,6 @@
 # 用 DarQ 在个别应用上强制安卓 10 的黑暗模式
 
-> 原文:[https://life hacker . com/force-Android-10s-dark-mode-on-individual-apps-with-Dar-1841577354](https://lifehacker.com/force-android-10s-dark-mode-on-individual-apps-with-dar-1841577354)
+> 原文：<https://lifehacker.com/force-android-10s-dark-mode-on-individual-apps-with-dar-1841577354>
 
 Android 10 的系统级黑暗主题相当不错，但第三方 DarQ 应用可以解锁隐藏设置，使其更加出色。DarQ 可以让你强制应用程序使用黑暗模式，如果它们没有黑暗模式，你可以使用 DarQ 来指定哪些应用程序获得它， [设置黑暗模式计时器](https://lifehacker.com/use-this-hack-to-create-dark-mode-timers-in-android-10-1838101522) ，等等。谷歌将该应用程序从 Play Store 中移除，因为它可以与 Android 软件中通常禁止使用的部分一起使用，所以你需要从第三方 [XDA 实验室应用程序商店](https://labs.xda-developers.com/store/app/com.kieronquinn.app.darq) 安装它。
 

@@ -1,6 +1,6 @@
 # 如何在网上找到公证员
 
-> 原文:[https://life hacker . com/how-to-find-a-公证人在线-1842902292](https://lifehacker.com/how-to-find-a-notary-online-1842902292)
+> 原文：<https://lifehacker.com/how-to-find-a-notary-online-1842902292>
 
 某些类型的文件需要经过公证才具有法律效力，比如遗嘱、结婚证和委托书。公证人由国家任命，作为“正直的官员”，负责确认签名人的身份，确保签名人没有受到胁迫，并见证签名。一旦公证人确信文件的完整性得到了维护，公证人就会在文件上加盖印章。
 

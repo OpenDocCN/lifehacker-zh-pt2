@@ -1,6 +1,6 @@
 # 存放围兜的最佳地点
 
-> 原文:[https://life hacker . com/the-best-place-to-store-bibs-1840850900](https://lifehacker.com/the-best-place-to-store-bibs-1840850900)
+> 原文：<https://lifehacker.com/the-best-place-to-store-bibs-1840850900>
 
 和蹒跚学步的孩子一起吃饭已经够疯狂的了。有饥饿的崩溃，有混乱，甚至可能有一个整体的不满被限制在高椅子上，而他们吃饭。那些围兜到底在哪里？
 

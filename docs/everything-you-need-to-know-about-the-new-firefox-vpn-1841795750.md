@@ -1,6 +1,6 @@
 # 关于新 Firefox VPN 你需要知道的一切
 
-> 原文:[https://life hacker . com/everything-you-need-know-on-the-new-Firefox-VPN-1841795750](https://lifehacker.com/everything-you-need-to-know-about-the-new-firefox-vpn-1841795750)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-about-the-new-firefox-vpn-1841795750>
 
 Mozilla 为其计划已久的虚拟专用网 [、火狐专用网](https://fpn.firefox.com/) 推出了测试版，为移动和桌面用户增加了又一项虚拟专用网服务。目前有一个 [等待测试访问](https://fpn.firefox.com/vpn/invite) ，所以我们还没有机会测试新服务，但有一些显著的功能帮助 Firefox Private Browsing 在已经 [拥挤的 VPN 市场](https://lifehacker.com/how-to-find-a-trustworthy-vpn-1833045522) 中脱颖而出。
 

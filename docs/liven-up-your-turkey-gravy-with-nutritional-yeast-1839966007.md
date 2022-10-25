@@ -1,6 +1,6 @@
 # 用营养酵母让你的火鸡肉汁变得更有生气
 
-> 原文:[https://life hacker . com/liven-up-your ' s turkey-gravy-with-nutritive-yeast-1839966007](https://lifehacker.com/liven-up-your-turkey-gravy-with-nutritional-yeast-1839966007)
+> 原文：<https://lifehacker.com/liven-up-your-turkey-gravy-with-nutritional-yeast-1839966007>
 
 营养酵母——在我的工作室公寓里被称为“nooch”——最出名的是它给素食和纯素食菜肴以及爆米花带来的美味、奶酪味。但是黄色薄片除了嬉皮士的起源之外还有其他应用，特别是在处理酱汁和肉汁的时候。
 

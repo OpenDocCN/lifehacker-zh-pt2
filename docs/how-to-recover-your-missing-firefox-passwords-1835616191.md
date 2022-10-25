@@ -1,6 +1,6 @@
 # 如何找回你丢失的火狐密码
 
-> 原文:[https://life hacker . com/how-to-recover-your-missing-Firefox-passwords-1835616191](https://lifehacker.com/how-to-recover-your-missing-firefox-passwords-1835616191)
+> 原文：<https://lifehacker.com/how-to-recover-your-missing-firefox-passwords-1835616191>
 
 火狐用户最近打开浏览器，发现他们所有保存的密码都不见了。如果这发生在你身上，不要担心:你的密码没有去任何地方，尽管看起来是这样。
 

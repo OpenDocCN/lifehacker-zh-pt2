@@ -1,6 +1,6 @@
 # “玛丽·近藤”不是动词
 
-> 原文:[https://lifehacker.com/marie-kondo-is-not-a-verb-1833373654](https://lifehacker.com/marie-kondo-is-not-a-verb-1833373654)
+> 原文：<https://lifehacker.com/marie-kondo-is-not-a-verb-1833373654>
 
 伙计，我们真的知道如何毁掉一件好事。日本给我们送来了他们有魅力的组织专家而我们美国人做了什么？我们把她变成了一个动词，毁了她。
 

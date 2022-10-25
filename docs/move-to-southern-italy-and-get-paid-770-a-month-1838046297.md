@@ -1,6 +1,6 @@
 # 搬到意大利南部，月薪 770 美元
 
-> 原文:[https://life hacker . com/move-to-southern-Italy-and-get-payed-每月 770-1838046297](https://lifehacker.com/move-to-southern-italy-and-get-paid-770-a-month-1838046297)
+> 原文：<https://lifehacker.com/move-to-southern-italy-and-get-paid-770-a-month-1838046297>
 
 如果你曾经想住在意大利，现在可能是搬家的最佳时机。莫利塞是该国人口稀少的地区，它向新居民€每月提供 700 英镑(约合 770 美元)的安置费。在你搬家后的三年里，他们会继续支付你。
 

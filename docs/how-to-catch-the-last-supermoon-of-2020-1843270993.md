@@ -1,6 +1,6 @@
 # 如何赶上 2020 年的最后一个超级月亮
 
-> 原文:[https://life hacker . com/how-to-catch the last-super moon of-2020-1843270993](https://lifehacker.com/how-to-catch-the-last-supermoon-of-2020-1843270993)
+> 原文：<https://lifehacker.com/how-to-catch-the-last-supermoon-of-2020-1843270993>
 
 如果你周四早上醒着，出去抬头看看:这将是你今年最后一次观看超级月亮的机会。这个月的满月被称为 [【满月】](https://www.prevention.com/life/a32355721/super-flower-moon-may-2020/) 之所以这样命名，是指现在附近所有即将盛开的花朵。下一次超级月亮要到 2021 年 4 月才会出现，按照疫情时间，也可能是下一个世纪，所以值得花时间去喝一杯。
 

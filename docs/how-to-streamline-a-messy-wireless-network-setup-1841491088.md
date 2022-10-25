@@ -1,6 +1,6 @@
 # 如何简化混乱的无线网络设置
 
-> 原文:[https://life hacker . com/how-to-streamline-a-dirty-wireless-network-setup-1841491088](https://lifehacker.com/how-to-streamline-a-messy-wireless-network-setup-1841491088)
+> 原文：<https://lifehacker.com/how-to-streamline-a-messy-wireless-network-setup-1841491088>
 
 毫无疑问，无线网络很复杂。对于一些人来说，他们很容易发现自己的家庭设置像个科学怪人，因为他们一直在添加设备、接入点、路由器和交换机，谁知道还有什么东西在努力让他们的家周围有一个像样的连接。突然，他们发现自己有很多设备都可以很好地运行，但他们的无线体验仍然有问题。
 

@@ -1,6 +1,6 @@
 # 让忍者神龟叫醒你的孩子
 
-> 原文:[https://life hacker . com/let-the-tend-mutant-ninja-turned-turned-turbina-turked-your-kid-up-1834894946](https://lifehacker.com/let-the-teenage-mutant-ninja-turtles-wake-your-kid-up-1834894946)
+> 原文：<https://lifehacker.com/let-the-teenage-mutant-ninja-turtles-wake-your-kid-up-1834894946>
 
 如果你在激励你的孩子早上起床方面有困难，你可以考虑使用一些动画角色的帮助。谷歌助手 tant 的角色警报使用热门动画系列的画外音和音乐，如 [Nickelodeon 的*忍者神龟的崛起*、乐高和 Hatchimals](http://nickalive.blogspot.com/2018/11/google-assistant-adds-rise-of-tmnt.html) 。这些选项可能对你这个成年人来说听起来有点难，但这比把你的孩子喊醒要愉快得多。
 

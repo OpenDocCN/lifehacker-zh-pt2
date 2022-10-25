@@ -1,6 +1,6 @@
 # 这个月怎么钉 NaNoWriMo
 
-> 原文:[https://life hacker . com/how-to-rock-nanowrimo-this-month-1830157582](https://lifehacker.com/how-to-rock-nanowrimo-this-month-1830157582)
+> 原文：<https://lifehacker.com/how-to-rock-nanowrimo-this-month-1830157582>
 
 你是否开始了为期一个月的写作梦寐以求的小说初稿的任务？或者也许你只是想吸取 40 万名 的 [人的能量。以下是我们给有抱负的小说家的最佳建议。](https://nanowrimo.org/) 
 

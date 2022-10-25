@@ -1,6 +1,6 @@
 # 从哪里获得 NaNoWriMo 项目的想法
 
-> 原文:[https://life hacker . com/where-to-get-ideas-for-your-nanowrimo-project-1839531849](https://lifehacker.com/where-to-get-ideas-for-your-nanowrimo-project-1839531849)
+> 原文：<https://lifehacker.com/where-to-get-ideas-for-your-nanowrimo-project-1839531849>
 
 随着冬天慢慢降临，又到了一年一度的传统时间了，我们会感到绝望，自我厌恶，也许——只是也许——在 30 天内写完一部小说。 [全国小说写作月](https://nanowrimo.org/) 已经成为每年 11 月的希望灯塔，对于许多有成就的人来说，他们不仅希望开始，而且希望在一个月内完成一部小说的草稿。
 

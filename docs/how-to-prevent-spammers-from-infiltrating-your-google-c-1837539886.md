@@ -1,6 +1,6 @@
 # 如何防止垃圾邮件发送者渗透到您的 Google 日历中
 
-> 原文:[https://life hacker . com/how-to-prevent-spammers-through-your-Google-c-1837539886](https://lifehacker.com/how-to-prevent-spammers-from-infiltrating-your-google-c-1837539886)
+> 原文：<https://lifehacker.com/how-to-prevent-spammers-from-infiltrating-your-google-c-1837539886>
 
 我和我的男朋友有一个共享的谷歌日历，这样我们就可以跟踪彼此的各种活动和承诺，以及我们计划一起参加的音乐会和派对。对我们来说，这是一个很棒的系统，但本周我们在日历上发现了一点奇怪的东西:“你赢得了苹果商店的 iPhone X s。”
 

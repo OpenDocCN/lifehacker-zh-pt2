@@ -1,6 +1,6 @@
 # 2020 年 3 月 17 日这一周网飞有什么新消息
 
-> 原文:[https://life hacker . com/whats-new-on-the-week-of-March-17-2020-1842311283](https://lifehacker.com/whats-new-on-netflix-the-week-of-march-17-2020-1842311283)
+> 原文：<https://lifehacker.com/whats-new-on-netflix-the-week-of-march-17-2020-1842311283>
 
 如果社交距离已经让你看完了你排队等候的所有电影和电视节目，网飞本周将推出一批新东西来帮助你重新建立社交距离。
 

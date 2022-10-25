@@ -1,6 +1,6 @@
 # 为什么你不应该通过第三方旅游网站预订机票
 
-> 原文:[https://life hacker . com/why-you-possible-should-not-book-a flight-through-third-1837272409](https://lifehacker.com/why-you-probably-shouldnt-book-a-flight-through-a-third-1837272409)
+> 原文：<https://lifehacker.com/why-you-probably-shouldnt-book-a-flight-through-a-third-1837272409>
 
 上个月，冒充 ExpediaT3[的骗子从希望通过电话确认或更改预订的旅行者那里窃取了数千美元。但是在真正的 Expedia 上预订机票——以及像 Travelocity 这样的第三方网站——也有一定的(法律)风险。](https://www.digitaltrends.com/news/expedia-warns-travelers-of-scam/) 
 

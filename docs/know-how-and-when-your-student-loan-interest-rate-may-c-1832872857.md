@@ -1,6 +1,6 @@
 # 知道你的学生贷款利率何时会改变
 
-> 原文:[https://life hacker . com/know-how-and-when-your student-loan-rate-may-c-1832872857](https://lifehacker.com/know-how-and-when-your-student-loan-interest-rate-may-c-1832872857)
+> 原文：<https://lifehacker.com/know-how-and-when-your-student-loan-interest-rate-may-c-1832872857>
 
 如果你有学生贷款，还清余额的关键之一是了解你的利率和它是如何工作的。
 

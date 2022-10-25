@@ -1,6 +1,6 @@
 # 如何管理 Cloudflare 的新 DNS 应用程序
 
-> 原文:[https://life hacker . com/how-to-management-cloud flares-new-DNS-app-1830435734](https://lifehacker.com/how-to-manage-cloudflares-new-dns-app-1830435734)
+> 原文：<https://lifehacker.com/how-to-manage-cloudflares-new-dns-app-1830435734>
 
 [Lifehacker's Complete Guide to Android](https://androidos.kinja.com)) : title[![](../Images/e2dcc498f7314a475ad7b9879a9d5584.png)](https://androidos.kinja.com)[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)Don't get overwhelmed by Android's many (many!) settings and apps. Master your Android phone or tablet with our ample collection of guides, tips, and tricks.
 

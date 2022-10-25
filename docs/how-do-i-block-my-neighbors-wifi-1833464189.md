@@ -1,6 +1,6 @@
 # 我怎么屏蔽邻居的 Wifi？
 
-> 原文:[https://life hacker . com/how-do-I-block-my-neighbors-wifi-1833464189](https://lifehacker.com/how-do-i-block-my-neighbors-wifi-1833464189)
+> 原文：<https://lifehacker.com/how-do-i-block-my-neighbors-wifi-1833464189>
 
 就像万圣节电影中的麦克尔·麦尔斯一样，生活中有些事情(看起来)是不可避免的。税收。政治。无论你在哪里，你邻居的 wifi 网络都强到足以在你的家里或公寓里给你一个不可用的信号。
 

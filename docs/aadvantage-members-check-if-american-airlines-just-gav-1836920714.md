@@ -1,6 +1,6 @@
 # AAdvantage 会员:查看美国航空公司是否刚刚给了你免费的精英会员身份
 
-> 原文:[https://life hacker . com/aaadvantage-members-check-if-American-airlines-just-gav-1836920714](https://lifehacker.com/aadvantage-members-check-if-american-airlines-just-gav-1836920714)
+> 原文：<https://lifehacker.com/aadvantage-members-check-if-american-airlines-just-gav-1836920714>
 
 AAdvantage 会员，查看您的电子邮件。
 

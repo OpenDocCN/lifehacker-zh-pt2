@@ -1,6 +1,6 @@
 # 为什么你不能总是相信亚马逊的选择
 
-> 原文:[https://life hacker . com/why-you-cant-always-trust-amazons-choices-1835582959](https://lifehacker.com/why-you-cant-always-trust-amazons-choices-1835582959)
+> 原文：<https://lifehacker.com/why-you-cant-always-trust-amazons-choices-1835582959>
 
 网购时见过标有“亚马逊的选择”的商品吗？事实证明，这个徽章可能没有任何意义。
 

@@ -1,6 +1,6 @@
 # 苹果的周期追踪器对你的隐私保护相对较好
 
-> 原文:[https://life hacker . com/why-apple-period-tracker-data-to-oth-1835248220](https://lifehacker.com/why-apples-period-tracker-data-is-more-private-than-oth-1835248220)
+> 原文：<https://lifehacker.com/why-apples-period-tracker-data-is-more-private-than-oth-1835248220>
 
 当苹果 [本周宣布他们将在苹果手表](https://gizmodo.com/why-apple-might-soon-be-the-best-choice-for-tracking-yo-1835161704) 中添加月经周期跟踪器时，他们非常谨慎地强调你输入的数据将在你的设备上加密，以更好地保护你的个人信息隐私。
 

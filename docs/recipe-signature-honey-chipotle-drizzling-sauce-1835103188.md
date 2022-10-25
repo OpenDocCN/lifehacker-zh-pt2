@@ -1,6 +1,6 @@
 # 将所有油炸食品浸泡在凯特标志性的蜂蜜墨西哥辣椒酱的甜味中
 
-> 原文:[https://thetakeout . com/recipe-signature-honey-chipotle-trimming-酱料-1835103188](https://thetakeout.com/recipe-signature-honey-chipotle-drizzling-sauce-1835103188)
+> 原文：<https://thetakeout.com/recipe-signature-honey-chipotle-drizzling-sauce-1835103188>
 
 几周前，我在镇上一家名为 [Biga](https://www.bigapizza.com/) 的披萨店参加集体晚餐，结果迟到了，于是我给朋友们发短信，让他们先点菜，不要等我。当我到达时，他们告诉我他们有一个套餐，一个上面有培根、红薯、枫糖酱和夏威夷果的披萨。我绝不会点这个。澳洲坚果？枫糖墨西哥卷？披萨上的红薯？我发誓再也不会迟到了。仅仅几分钟后，我正在吃我的话，连同第二片和第三片比萨饼。培根和枫叶酱是一个神圣的组合，脂肪多，咸而甜，让人想起枫糖浆冲破堤坝，淹没了你的早餐肉。我特别喜欢这种酱，它结合了一点烟熏味和琥珀色的浓郁度，以及一种缓慢的甜味。
 

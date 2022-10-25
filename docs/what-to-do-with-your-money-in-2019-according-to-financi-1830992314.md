@@ -1,6 +1,6 @@
 # 根据财务顾问的说法，2019 年如何处理你的钱
 
-> 原文:[https://life hacker . com/what-to-do-with your money-in-2019-by-financi-1830992314](https://lifehacker.com/what-to-do-with-your-money-in-2019-according-to-financi-1830992314)
+> 原文：<https://lifehacker.com/what-to-do-with-your-money-in-2019-according-to-financi-1830992314>
 
 金钱错误多如牛毛。除了，你知道，他们最终花了我们更多的钱。
 

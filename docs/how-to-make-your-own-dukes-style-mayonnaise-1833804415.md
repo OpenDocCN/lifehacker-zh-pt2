@@ -1,6 +1,6 @@
 # 如何制作自己的杜克式蛋黄酱
 
-> 原文:[https://life hacker . com/how-to-make-your-own-dukes-style-蛋黄酱-1833804415](https://lifehacker.com/how-to-make-your-own-dukes-style-mayonnaise-1833804415)
+> 原文：<https://lifehacker.com/how-to-make-your-own-dukes-style-mayonnaise-1833804415>
 
 Watch
 

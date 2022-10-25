@@ -1,6 +1,6 @@
 # Panzerotto 是 O.G .的热口袋
 
-> 原文:[https://the take out . com/panzerotto-panzerotti-is-o-g-hot-pocket-1837053416](https://thetakeout.com/panzerotto-panzerotti-is-the-o-g-hot-pocket-1837053416)
+> 原文：<https://thetakeout.com/panzerotto-panzerotti-is-the-o-g-hot-pocket-1837053416>
 
 每个人都听说过馅饼，但我敢打赌你没见过它油炸的、黏糊糊的表亲:panzerotto。这种手持小吃是大多数美国人所知的热口袋的前身——没有纸板烹饪套、滚烫的内部和必备的微波炉。
 

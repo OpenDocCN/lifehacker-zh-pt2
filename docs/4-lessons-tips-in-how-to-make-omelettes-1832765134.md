@@ -1,6 +1,6 @@
 # 煎蛋卷研究生课程的四课
 
-> 原文:[https://the take out . com/4-lessons-tips-in-how-to-make-煎蛋卷-1832765134](https://thetakeout.com/4-lessons-tips-in-how-to-make-omelettes-1832765134)
+> 原文：<https://thetakeout.com/4-lessons-tips-in-how-to-make-omelettes-1832765134>
 
 有明显的早餐食品；有明显的午餐食品；还有明显的晚餐食物。你想想超过两秒就有点奇怪了。为什么麦片要在上午 10 点前托运？为什么上午 11 点和下午 2 点在窗外吃三明治感觉不太合适？为什么早餐吃熏肉和香肠是可以接受的，但是早上要吃排骨，人们会认为你是个疯子？
 

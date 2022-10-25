@@ -1,6 +1,6 @@
 # 2019 年 4 月 15 日这一周，网飞有哪些活动
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week-of-April-1-1833964937](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-april-1-1833964937)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-april-1-1833964937>
 
 《伴娘》的执行制片人本周末将为我们带来浪漫喜剧《T2》中某个伟大的人物《T3》，最好是《T4》中的某个伟大人物《T5》，因为我不看《权力的游戏》。简·处女的《吉娜·罗德里格兹》饰演一名音乐记者，她在离开纽约前与她的闺蜜们进行了最后一次狂欢。这看起来很滑稽，很讽刺，每个人都在发傻。
 

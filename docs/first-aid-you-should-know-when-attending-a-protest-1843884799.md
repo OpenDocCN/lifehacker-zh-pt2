@@ -1,6 +1,6 @@
 # 抗议时你可能需要知道的急救方法
 
-> 原文:[https://life hacker . com/急救-你应该知道什么时候参加抗议-1843884799](https://lifehacker.com/first-aid-you-should-know-when-attending-a-protest-1843884799)
+> 原文：<https://lifehacker.com/first-aid-you-should-know-when-attending-a-protest-1843884799>
 
 过去的一周向我们表明，你永远无法预测和平抗议何时会升级为暴力事件。(虽然这几天确实发生了很多， [主要是由于警方](https://www.themarshallproject.org/2020/06/01/why-so-many-police-are-handling-the-protests-wrong) 的不当反应。)如果你要去参加抗议活动，温习一下急救基础知识会有所帮助——并了解一下你的团队中是否有人接受过进一步的培训。
 

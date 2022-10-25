@@ -1,6 +1,6 @@
 # 去吧，在飞机上用头等舱的洗手间
 
-> 原文:[https://life hacker . com/go-ahead-and-use-the-头等舱洗手间-1838743415](https://lifehacker.com/go-ahead-and-use-the-first-class-bathroom-on-flights-1838743415)
+> 原文：<https://lifehacker.com/go-ahead-and-use-the-first-class-bathroom-on-flights-1838743415>
 
 上周，阿拉斯加航空公司的一架 [航班](https://newyork.cbslocal.com/2019/09/27/jfk-flight-emergency-landing-unruly-passenger-upset-over-bathroom/) 因为一名乘客的威胁而紧急着陆，显然是因为对厕所特别长的队伍感到失望。“让七个人在这里等着使用洗手间，而上面的整个洗手间都是空的，这是不对的，”这名乘客在拍摄的视频中说，他指的是头等舱里空着的洗手间。
 

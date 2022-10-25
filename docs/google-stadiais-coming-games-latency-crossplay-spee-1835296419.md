@@ -1,6 +1,6 @@
 # Google Stadia 即将到来:游戏、延迟、交叉播放、速度要求等等
 
-> 原文:[https://gizmodo . com/Google-stadiais-coming-games-latency-cross play-spee-1835296419](https://gizmodo.com/google-stadiais-coming-games-latency-crossplay-spee-1835296419)
+> 原文：<https://gizmodo.com/google-stadiais-coming-games-latency-crossplay-spee-1835296419>
 
 YouTube 本周理所当然地受到了的抨击，但这并没有阻止谷歌最终向我们提供其下一个大型流媒体服务的所有细节。Stadia，谷歌定义下一个游戏纪元的大戏，被正式 [宣布](https://gizmodo.com/all-the-detail-about-stadia-googles-huge-bet-on-the-fu-1833410886) 回归三月，但三月事件却令人沮丧地全无细节。现在我们有了。
 

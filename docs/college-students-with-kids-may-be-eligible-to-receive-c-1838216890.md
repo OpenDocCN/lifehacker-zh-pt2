@@ -1,6 +1,6 @@
 # 有孩子的大学生可能有资格获得儿童保育补贴
 
-> 原文:[https://life hacker . com/college-students-with-kids-may-eligible-to-receive-c-1838216890](https://lifehacker.com/college-students-with-kids-may-be-eligible-to-receive-c-1838216890)
+> 原文：<https://lifehacker.com/college-students-with-kids-may-be-eligible-to-receive-c-1838216890>
 
 如果你是一名大学生，同时也是一名家长，你可能不知道有联邦补助金来帮助你支付育儿费用。
 

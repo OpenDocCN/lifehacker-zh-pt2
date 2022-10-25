@@ -1,6 +1,6 @@
 # 使用这个网站制作你自己的表情符号
 
-> 原文:[https://life hacker . com/make-your-own-custom-e moji-using-this-site-1830634983](https://lifehacker.com/make-your-own-custom-emoji-using-this-site-1830634983)
+> 原文：<https://lifehacker.com/make-your-own-custom-emoji-using-this-site-1830634983>
 
 有时候，智能手机上的表情键盘并没有你想要的东西。
 

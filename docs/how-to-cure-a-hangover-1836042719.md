@@ -1,6 +1,6 @@
 # 如何治疗宿醉
 
-> 原文:[https://lifehacker.com/how-to-cure-a-hangover-1836042719](https://lifehacker.com/how-to-cure-a-hangover-1836042719)
+> 原文：<https://lifehacker.com/how-to-cure-a-hangover-1836042719>
 
 如果你曾经在家庭聚会上喝了太多的白葡萄酒，你就会知道第二天早上醒来时宿醉的后果。
 

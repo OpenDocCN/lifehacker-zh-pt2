@@ -1,6 +1,6 @@
 # 如何减少你的亚马逊包装浪费
 
-> 原文:[https://life hacker . com/how-to-reduce-your-Amazon-packaging-waste-1837036164](https://lifehacker.com/how-to-reduce-your-amazon-packaging-waste-1837036164)
+> 原文：<https://lifehacker.com/how-to-reduce-your-amazon-packaging-waste-1837036164>
 
 2013 年， [一家公司的分析师](https://www.wsj.com/articles/amazon-tests-its-own-delivery-network-1398360018) 估计，亚马逊仅在美国就发送了 6.08 亿个包裹，这意味着该零售商每天发送超过 150 万个包裹。当然，这是一种方便快捷的购物方式，但也是一种资源消耗。想想你可能在一个订单中收到的纸板盒或塑料邮件，然后乘以 6.08 亿——如果不适当回收或再利用，所有这些材料都可能最终被填埋(除了你收到的气垫或其他包装材料)。
 

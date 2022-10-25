@@ -1,6 +1,6 @@
 # 如何不让洗漱用品毁了你的行李
 
-> 原文:[https://life hacker . com/how-to-keep-tow-to-keep-to-ruling-your-行李箱-1843320887](https://lifehacker.com/how-to-keep-toiletries-from-ruining-your-luggage-1843320887)
+> 原文：<https://lifehacker.com/how-to-keep-toiletries-from-ruining-your-luggage-1843320887>
 
 你有没有过打开行李箱却发现你最喜欢的护发产品漏得满衣服都是？如果你曾经把你的洗漱用品弄得乱七八糟，以下是防止这种事情再次发生的方法。
 

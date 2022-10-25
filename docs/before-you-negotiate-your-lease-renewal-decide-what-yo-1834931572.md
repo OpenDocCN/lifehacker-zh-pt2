@@ -1,6 +1,6 @@
 # 在你协商续约之前，决定你真正想要的是什么
 
-> 原文:[https://life hacker . com/before-you-negotiate-you-lease-renewal-decision-what-yo-1834931572](https://lifehacker.com/before-you-negotiate-your-lease-renewal-decide-what-yo-1834931572)
+> 原文：<https://lifehacker.com/before-you-negotiate-your-lease-renewal-decide-what-yo-1834931572>
 
 在你的公寓租约实际到期前的许多个月，这是一个可怕的日子:当续约通知到来时，你必须以超出你想象的速度决定是留还是走。
 

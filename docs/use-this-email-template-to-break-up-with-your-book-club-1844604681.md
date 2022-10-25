@@ -1,6 +1,6 @@
 # 用这个邮件模板和你的读书俱乐部分手
 
-> 原文:[https://life hacker . com/use-this-email-template-to-break-up-your-book-club-1844604681](https://lifehacker.com/use-this-email-template-to-break-up-with-your-book-club-1844604681)
+> 原文：<https://lifehacker.com/use-this-email-template-to-break-up-with-your-book-club-1844604681>
 
 加入一个新的团体或活动会让人耳目一新。这是我们作为成年人为数不多的机会之一，有机会结交新朋友，扩大我们的社交和/或知识界；T2 把我们推出舒适区，让我们接触新的人和经历。简而言之，它很棒——直到它不再棒。过一段时间后，新的读书俱乐部、唱诗班、或踢球队可能会觉得更像是一件苦差事，而不是一种有趣的爱好。你发现自己不断地找借口逃避活动和会议，诱惑就在那里，让整个团队都见鬼去吧。
 

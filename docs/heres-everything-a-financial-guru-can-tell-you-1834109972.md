@@ -1,6 +1,6 @@
 # 以下是金融大师能告诉你的一切
 
-> 原文:[https://life hacker . com/heres-everything-a-financial-guru-can-tell-you-1834109972](https://lifehacker.com/heres-everything-a-financial-guru-can-tell-you-1834109972)
+> 原文：<https://lifehacker.com/heres-everything-a-financial-guru-can-tell-you-1834109972>
 
 你有最喜欢的金融大师吗？你是戴夫·拉姆齐的狂热爱好者还是苏茜·欧曼的狂热爱好者？你更有可能推荐*你的钱或你的生活*还是*隔壁的百万富翁*？
 

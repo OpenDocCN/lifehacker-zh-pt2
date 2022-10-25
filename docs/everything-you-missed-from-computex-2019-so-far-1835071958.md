@@ -1,6 +1,6 @@
 # Computex 2019 上你错过的一切(迄今为止)
 
-> 原文:[https://life hacker . com/everything-you-missing-from-computex-2019-迄今为止-1835071958](https://lifehacker.com/everything-you-missed-from-computex-2019-so-far-1835071958)
+> 原文：<https://lifehacker.com/everything-you-missed-from-computex-2019-so-far-1835071958>
 
 Computex 是世界上最大的计算技术贸易展之一，于周二上午在台湾台北拉开了 2019 年会议的序幕，目前已经有大量重大宣布。如果你想在接下来的几个月内升级你的系统(或者买些新的)，你肯定会想浏览一下我们从第一天开始的最值得关注的公告综述:
 

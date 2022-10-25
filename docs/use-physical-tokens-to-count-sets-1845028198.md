@@ -1,6 +1,6 @@
 # 使用物理令牌来计算器械包
 
-> 原文:[https://life hacker . com/use-physical-tokens-to-count-sets-1845028198](https://lifehacker.com/use-physical-tokens-to-count-sets-1845028198)
+> 原文：<https://lifehacker.com/use-physical-tokens-to-count-sets-1845028198>
 
 运动让你的大脑有点混乱。我知道我不是唯一一个在大约 30 分钟后不能准确计数的人...第二组。因此，如果你有多组练习，或者多圈循环，试着给自己一些物理标记来帮助计数。
 

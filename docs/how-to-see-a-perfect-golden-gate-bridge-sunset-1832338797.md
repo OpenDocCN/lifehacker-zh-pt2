@@ -1,6 +1,6 @@
 # 如何看到完美的金门大桥日落
 
-> 原文:[https://life hacker . com/how-to-see-a-perfect-golden-gate-bridge-sunset-1832338797](https://lifehacker.com/how-to-see-a-perfect-golden-gate-bridge-sunset-1832338797)
+> 原文：<https://lifehacker.com/how-to-see-a-perfect-golden-gate-bridge-sunset-1832338797>
 
 日落时，金门大桥就像一种日晷——或太阳历。如果你想在桥的中心，在两座塔之间的主跨的拐角处看日落，你每天晚上必须站在不同的地方。一年中，你可以从整个东湾和旧金山东北海岸看到完美的日落。一些网站告诉你去哪里露营。
 

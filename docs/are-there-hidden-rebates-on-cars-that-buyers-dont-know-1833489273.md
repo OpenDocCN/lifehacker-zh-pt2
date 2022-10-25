@@ -1,6 +1,6 @@
 # 汽车上是否存在买家不知道的隐性回扣？
 
-> 原文:[https://jalopnik . com/1833489273](https://jalopnik.com/are-there-hidden-rebates-on-cars-that-buyers-dont-know-1833489273)
+> 原文：<https://jalopnik.com/are-there-hidden-rebates-on-cars-that-buyers-dont-know-1833489273>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。我决定挑几个问题，试着帮帮大家。本周，我们将讨论隐性回扣、淘汰一辆有天赋的汽车，以及为老年人租赁汽车。
 

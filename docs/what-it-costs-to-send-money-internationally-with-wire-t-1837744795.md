@@ -1,6 +1,6 @@
 # 使用电汇应用程序进行国际汇款的费用
 
-> 原文:[https://life hacker . com/what-it-cost-to-send-money-with-wire-t-1837744795](https://lifehacker.com/what-it-costs-to-send-money-internationally-with-wire-t-1837744795)
+> 原文：<https://lifehacker.com/what-it-costs-to-send-money-internationally-with-wire-t-1837744795>
 
 长久以来，国际汇款似乎有两种选择:在西联汇款柜台排队，或者在速汇金柜台排队。但是 P2P 支付应用的兴起意味着有更多的选择可以直接从你的手机向世界各地汇款。
 

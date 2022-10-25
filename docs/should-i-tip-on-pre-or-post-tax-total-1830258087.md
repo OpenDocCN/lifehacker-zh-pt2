@@ -1,6 +1,6 @@
 # 问那个刻薄的女服务员:我应该付税前还是税后的小费？
 
-> 原文:[https://the take out . com/should-I-tip-on-pre-or-post-tax-total-1830258087](https://thetakeout.com/should-i-tip-on-pre-or-post-tax-total-1830258087)
+> 原文：<https://thetakeout.com/should-i-tip-on-pre-or-post-tax-total-1830258087>
 
 > 亲爱的 Salty，当我们在酒吧或餐馆买单时，我总是给税前金额的 20%作为小费，而我妻子总是给税后金额的 20%作为小费。一种比另一种更常见吗？哪个是对的？
 > 

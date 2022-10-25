@@ -1,6 +1,6 @@
 # 将你的菜园盈余捐献给你当地的食物储藏室
 
-> 原文:[https://life hacker . com/duate-your-garden-surplus-to-your-local-food-pantry-1844754858](https://lifehacker.com/donate-your-garden-surplus-to-your-local-food-pantry-1844754858)
+> 原文：<https://lifehacker.com/donate-your-garden-surplus-to-your-local-food-pantry-1844754858>
 
 差不多是一年中的这个时候:花园变得疯狂，如果你幸运的话，你会有比你可能烹饪、保存或冷冻的更多的西葫芦、黄瓜和西红柿。如果你的朋友是同一个园丁，你甚至可能找不到人愿意拿走你辛苦挣来的手工种植的农产品。
 

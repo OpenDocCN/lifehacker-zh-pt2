@@ -1,6 +1,6 @@
 # 把凤尾鱼融化成黄油，然后把黄油放在任何东西里
 
-> 原文:[https://life hacker . com/将凤尾鱼融化成黄油，然后放入黄油中 1842561137](https://lifehacker.com/melt-anchovies-into-butter-and-put-that-butter-in-every-1842561137)
+> 原文：<https://lifehacker.com/melt-anchovies-into-butter-and-put-that-butter-in-every-1842561137>
 
 既然罐头食品正迎来一个重要时刻，我想说现在是时候重新考虑这种不起眼的凤尾鱼罐头了。它们以绝对的鱼腥味和咸味而闻名——这些传言并非完全不真实——但它们也含有丰富的矿物质和大量的鲜味。当融化成黄油(或橄榄油)时，你可以利用小鱼强烈的本性给任何美味的菜肴带来强烈的味道。
 

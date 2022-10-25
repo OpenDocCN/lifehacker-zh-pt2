@@ -1,6 +1,6 @@
 # 我们应该全年都吃蔓越莓酱
 
-> 原文:[https://life hacker . com/we-should-eat-cranberry-sauce-all-year-1840055543](https://lifehacker.com/we-should-eat-cranberry-sauce-all-year-1840055543)
+> 原文：<https://lifehacker.com/we-should-eat-cranberry-sauce-all-year-1840055543>
 
 蔓越莓酱在感恩节起着至关重要的作用。没有它，盐和脂肪会主宰你的味觉，你的嘴会很快因丰富的美味而过饱和。蔓越莓酱解决了所有这些问题，因此我们的食物更好。但是为什么要把香甜扑鼻的调味品局限在一天呢？它能提供更多的东西。
 

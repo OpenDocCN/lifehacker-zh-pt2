@@ -1,6 +1,6 @@
 # 风、雨夹雪和死区:我对芝加哥参差不齐的 5G 地图的探索
 
-> 原文:[https://gizmodo . com/wind-sleet-and-dead-zones-my-quest-to-map-chicagos-s-1834012422](https://gizmodo.com/wind-sleet-and-dead-zones-my-quest-to-map-chicagos-s-1834012422)
+> 原文：<https://gizmodo.com/wind-sleet-and-dead-zones-my-quest-to-map-chicagos-s-1834012422>
 
 天气潮湿，刮风，在不到三个小时的时间里，我想我已经经历了芝加哥刺骨寒冷的全部天气:雨、冰雹和雪。我所做的一切都是为了最终在一个真实的，实时运行的网络上体验那些甜蜜的超快的 5G 速度。虽然我在风城测试下一代移动通信的短暂时间并不完全是在千禧公园散步，但我带走了一些关于 5G 初期状态的重要信息。
 

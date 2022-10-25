@@ -1,6 +1,6 @@
 # 我们测试了一个可以用声音控制的提词器
 
-> 原文:[https://life hacker . com/we-tested-a-tele prompter-that-you-control with-you-voi-1832207625](https://lifehacker.com/we-tested-a-teleprompter-that-you-control-with-your-voi-1832207625)
+> 原文：<https://lifehacker.com/we-tested-a-teleprompter-that-you-control-with-your-voi-1832207625>
 
 用提词器拍视频，一般有三种选择:找人坐，手动滚动文字；设置一个 app 自动滚动，希望你能跟上；或者拿着遥控器，这很费钱，而且会让你在分娩过程中分心。我们很兴奋地发现 [提词器。me](https://teleprompt.me/) ，这个声控提词器真的有用。之前我们 [简单介绍过](https://lifehacker.com/make-public-speaking-easier-with-this-free-voice-contro-1831702450) ，但是现在我们已经在摄像机上测试过了，向你展示它是多么的无缝。这个视频里没有人在控制提词器！
 

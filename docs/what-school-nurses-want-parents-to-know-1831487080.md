@@ -1,6 +1,6 @@
 # 学校护士想让家长知道什么
 
-> 原文:[https://life hacker . com/what-school-nurses-want-parents-to-know 1831487080](https://lifehacker.com/what-school-nurses-want-parents-to-know-1831487080)
+> 原文：<https://lifehacker.com/what-school-nurses-want-parents-to-know-1831487080>
 
 在大城市的急诊室和重症监护室工作了十年后，我放弃了夜班和快节奏的强度，开始了新的挑战:学校护理。因为我的孩子在读小学，夜班不再为我们家工作，我想分发创可贴和冰袋将是繁忙的创伤病房混乱中一个受欢迎的变化。
 

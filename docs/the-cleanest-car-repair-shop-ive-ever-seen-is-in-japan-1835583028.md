@@ -1,6 +1,6 @@
 # 我见过的最干净的汽车修理店是在日本
 
-> 原文:[https://jalopnik . com/the-clean-of-car-repair-shop-ive-even-seen-is-in-Japan-1835583028](https://jalopnik.com/the-cleanest-car-repair-shop-ive-ever-seen-is-in-japan-1835583028)
+> 原文：<https://jalopnik.com/the-cleanest-car-repair-shop-ive-ever-seen-is-in-japan-1835583028>
 
 看到其他国家的人们如何处理他们的日常事务总是既整洁又有趣。瞥一眼一家日本汽车修理店，你会发现它比我见过的几乎任何一家办公室都干净(更别说是 T2 的汽车修理店了)。
 

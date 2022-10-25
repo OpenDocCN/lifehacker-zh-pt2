@@ -1,6 +1,6 @@
 # 今年是否有注射流感疫苗的最佳时间？
 
-> 原文:[https://life hacker . com/今年有没有一个注射流感疫苗的最佳时间-1844907774](https://lifehacker.com/is-there-an-optimal-time-to-get-your-flu-shot-this-year-1844907774)
+> 原文：<https://lifehacker.com/is-there-an-optimal-time-to-get-your-flu-shot-this-year-1844907774>
 
 流感疫苗在许多地方已经可以得到，正如我们已经注意到的， [今年接种流感疫苗尤为重要](https://vitals.lifehacker.com/its-even-more-important-to-get-your-flu-shot-this-year-1844481707) 。(你不会想感染*和*流感，也不会想染上流感并寻求检测和护理，因为你不知道它是否会感染。)那么是时候了吗？如果你喜欢，现在就去做吧——尽管如果你想等，那也没问题，但要在十月前完成。
 

@@ -1,6 +1,6 @@
 # 即使不在度假，也要使用外出信息
 
-> 原文:[https://life hacker . com/use-out-of-office-messages-even-when-you-not-on-vacat-1841997428](https://lifehacker.com/use-out-of-office-messages-even-when-youre-not-on-vacat-1841997428)
+> 原文：<https://lifehacker.com/use-out-of-office-messages-even-when-youre-not-on-vacat-1841997428>
 
 电子邮件总是占据我一天中的大量时间。我开始每天查看和回复电子邮件，但是随着时间的推移，我发现自己经常用手机和电脑查看收件箱。
 

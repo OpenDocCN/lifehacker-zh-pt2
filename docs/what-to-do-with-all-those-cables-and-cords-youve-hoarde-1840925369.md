@@ -1,6 +1,6 @@
 # 如何处理你囤积的那些电缆和电线
 
-> 原文:[https://life hacker . com/what-to-do-what-do-what-what-do-what-what-do-what-what-do-what-what-what-do-what-what-what-what-all 那些电缆和电线-you ve-Hodge-1840925369](https://lifehacker.com/what-to-do-with-all-those-cables-and-cords-youve-hoarde-1840925369)
+> 原文：<https://lifehacker.com/what-to-do-with-all-those-cables-and-cords-youve-hoarde-1840925369>
 
 在 [《华尔街日报》](https://www.wsj.com/articles/admit-it-you-have-a-box-of-cords-youll-never-ever-use-again-11578590154) ，作家凯瑟琳·宾德利让我们对自己承认一件事:在壁橱或阁楼的某个角落，我们都有一盒没用过的电线电缆。收集了一辈子，它们各自的用途仍然不清楚——然而你抓着它们，担心有一天你可能需要那根神秘的白色电缆来修复你的互联网连接，或者连接你的电视，或者，呃，解决家里其他一些非常重要的不可预见的技术问题。
 

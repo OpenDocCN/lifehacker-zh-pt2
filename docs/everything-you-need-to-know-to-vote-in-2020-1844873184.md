@@ -1,6 +1,6 @@
 # everything you need to know to vote in 2020 1844873184
 
-> 原文:[https://life hacker . com/everything-you-need-to-know-to-vote-in-2020-1844873184](https://lifehacker.com/everything-you-need-to-know-to-vote-in-2020-1844873184)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-to-vote-in-2020-1844873184>
 
 离选举只有短短的几周了，我知道我们每次都这么说，但在 11 月 3 日投票比以往任何时候都更重要。我们不仅要选举在未来四年领导我们的总统，还要处理疫情接下来发生的任何事情，同时我们还要对其他职位进行投票。这些取决于你当地的投票区，但美国众议院的所有 435 个席位都是可以争夺的，美国参议院的 35 个席位也是如此。以下是你需要了解的各州登记截止日期，以及如何提前投票。
 

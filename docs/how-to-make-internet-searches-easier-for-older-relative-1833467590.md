@@ -1,6 +1,6 @@
 # 如何让年长的亲戚更容易在网上搜索
 
-> 原文:[https://life hacker . com/how-to-make-internet-searches-easy-for-older-relative-1833467590](https://lifehacker.com/how-to-make-internet-searches-easier-for-older-relative-1833467590)
+> 原文：<https://lifehacker.com/how-to-make-internet-searches-easier-for-older-relative-1833467590>
 
 为你的祖父母或父母安装一台电脑可能会令人沮丧，尤其是当你试图通过电话与他们沟通时。如果你真的能接触到电脑，你就有机会让他们的互联网体验变得更好。
 

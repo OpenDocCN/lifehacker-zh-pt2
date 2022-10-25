@@ -1,6 +1,6 @@
 # 在美国运输安全管理局预检会员资格到期前的六个月内，在线更新您的会员资格
 
-> 原文:[https://life hacker . com/renew-your-TSA-pre check-membership-online-up-to-six-mon-1831448787](https://lifehacker.com/renew-your-tsa-precheck-membership-online-up-to-six-mon-1831448787)
+> 原文：<https://lifehacker.com/renew-your-tsa-precheck-membership-online-up-to-six-mon-1831448787>
 
 如果你的 TSA 预检即将到期，续签可能比你想象的要容易一些。美国运输安全管理局现在允许飞行员在线 更新他们在 [计划中的注册，并且在他们当前的注册到期之前最多六个月。如果一切按计划进行，更新过程应该只需要大约五分钟。](http://www.identogo.com/services/tsa-pre-check) 
 

@@ -1,6 +1,6 @@
 # 买一张西南航空公司的单程票只要 49 美元
 
-> 原文:[https://life hacker . com/get-a-one-way-ticket-on-south west-for-little-as-49-1841154777](https://lifehacker.com/get-a-one-way-ticket-on-southwest-for-as-little-as-49-1841154777)
+> 原文：<https://lifehacker.com/get-a-one-way-ticket-on-southwest-for-as-little-as-49-1841154777>
 
 如果你最近很难保持动力，你可能只是感觉到了节后低迷的症状。幸运的是，我们有一个想法可以帮助你度过这个困难时期。
 

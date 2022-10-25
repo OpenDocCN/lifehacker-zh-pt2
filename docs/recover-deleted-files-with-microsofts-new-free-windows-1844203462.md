@@ -1,6 +1,6 @@
 # 使用微软新的免费 Windows 应用程序恢复删除的文件
 
-> 原文:[https://life hacker . com/recover-deleted-files-with-Microsoft-new-free-windows-1844203462](https://lifehacker.com/recover-deleted-files-with-microsofts-new-free-windows-1844203462)
+> 原文：<https://lifehacker.com/recover-deleted-files-with-microsofts-new-free-windows-1844203462>
 
 如果你不小心删除了一个文件，所有的希望都不会落空。然而，假设你不能直接把它从 Windows 回收站中拖出来——尤其是如果你像我一样，倾向于默认使用更持久的 *Shift + Delete* 而不仅仅是“删除”——你将不得不卷起袖子，尝试稍微复杂一点的技术。
 

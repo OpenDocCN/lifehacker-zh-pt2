@@ -1,6 +1,6 @@
 # 为什么你应该写一份恐吓清单
 
-> 原文:[https://life hacker . com/why-you-should-write-an-arrestation-list-1833204602](https://lifehacker.com/why-you-should-write-an-intimidation-list-1833204602)
+> 原文：<https://lifehacker.com/why-you-should-write-an-intimidation-list-1833204602>
 
 我年轻的时候几乎没有什么不令我害怕的。独自在黑暗中睡觉，在我的舒适区之外上课，告诉我爱的人我爱他们，在啦啦队比赛中做后手翻——所有这些事情都给我带来巨大的压力，以至于我干脆避开它们。我睡在姐姐的房间里，上了很多我知道我会学得很好的课，而且从来没有在没有观察员的情况下表演过后手翻。
 

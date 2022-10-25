@@ -1,6 +1,6 @@
 # 微软最新的 Windows PowerToys 太棒了
 
-> 原文:[https://life hacker . com/Microsoft-latest-windows-powertoys-are-awesome-1842642389](https://lifehacker.com/microsofts-latest-windows-powertoys-are-awesome-1842642389)
+> 原文：<https://lifehacker.com/microsofts-latest-windows-powertoys-are-awesome-1842642389>
 
 微软忙碌的开发人员已经逐渐发布了有趣的新工具供 Windows 用户使用。这些 [PowerToys](https://github.com/microsoft/PowerToys/) 往往会给你的操作系统增加一点古怪但实用的功能，而且你完全可以免费试用。我们已经介绍了他们以前的[产品](https://lifehacker.com/bookmark-this-site-to-try-microsofts-new-windows-powert-1834749716) 中的一些，但是最新增加的两个是最好的。
 

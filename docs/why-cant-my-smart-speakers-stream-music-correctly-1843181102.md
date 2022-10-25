@@ -1,6 +1,6 @@
 # 为什么我的智能音箱不能正确播放音乐？
 
-> 原文:[https://life hacker . com/why-cant-my-smart-speakers-stream-music-correctly-1843181102](https://lifehacker.com/why-cant-my-smart-speakers-stream-music-correctly-1843181102)
+> 原文：<https://lifehacker.com/why-cant-my-smart-speakers-stream-music-correctly-1843181102>
 
 这是一个常见的问题:你或你认识的人已经花钱购买了惊人的高速互联网连接，但他们仍然无法让他们的有线和无线设备在家里或公寓里正常运行。这总是导致这样一个问题，“为什么我要为这些我看不到的疯狂网速支付这么多钱？”
 

@@ -1,6 +1,6 @@
 # 清洁烤箱每个部分的最佳方法
 
-> 原文:[https://life hacker . com/the-best-ways-to-clean-every-part of your-oven-1844867942](https://lifehacker.com/the-best-ways-to-clean-every-part-of-your-oven-1844867942)
+> 原文：<https://lifehacker.com/the-best-ways-to-clean-every-part-of-your-oven-1844867942>
 
 现在是时候处理你烤箱里堆积的污垢和烧焦的油脂了。你在家的次数更多了，所以你有额外的时间来好好打扫。答第二，因为你在家做饭，你可以从不燃烧多余油脂的节能中获益更多。
 

@@ -1,6 +1,6 @@
 # 什么时候降薪可以帮助你提升职业
 
-> 原文:[https://life hacker . com/when-a-pay-cut-can-help-up-the-career-ladder-1838941333](https://lifehacker.com/when-a-pay-cut-can-help-you-up-the-career-ladder-1838941333)
+> 原文：<https://lifehacker.com/when-a-pay-cut-can-help-you-up-the-career-ladder-1838941333>
 
 五年后你想在哪里？你有达到目标所需的技能吗？如果你不这样做，你可能不得不从职业阶梯上爬下来，然后才能重新爬上去——是的，这可能意味着减薪。
 

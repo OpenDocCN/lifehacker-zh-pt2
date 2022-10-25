@@ -1,6 +1,6 @@
 # 不要在社交媒体上发布你孩子的脾气
 
-> 原文:[https://life hacker . com/don-post-your-tuckles-tantrum-on-social-media-1837512158](https://lifehacker.com/dont-post-your-toddlers-tantrum-on-social-media-1837512158)
+> 原文：<https://lifehacker.com/dont-post-your-toddlers-tantrum-on-social-media-1837512158>
 
 社交媒体时代为人父母的伟大之处在于，在那些孤立的早年，我们有一种与他人联系的简单方式。在白天很长但夜晚更长的这些年里，总有人在身体上挂着你，甚至像出门这样简单的事情似乎都不可能。
 

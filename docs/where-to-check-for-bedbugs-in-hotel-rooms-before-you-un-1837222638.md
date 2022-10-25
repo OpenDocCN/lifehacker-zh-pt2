@@ -1,6 +1,6 @@
 # 在你打开行李之前，去哪里检查酒店房间里的臭虫
 
-> 原文:[https://life hacker . com/where-to-check-for-before-you-un-1837222638](https://lifehacker.com/where-to-check-for-bedbugs-in-hotel-rooms-before-you-un-1837222638)
+> 原文：<https://lifehacker.com/where-to-check-for-bedbugs-in-hotel-rooms-before-you-un-1837222638>
 
 在漫长的一天旅行后，没有什么比终于到达你的酒店，刷卡，进入你的房间更好的感觉了。但是在你摊开手脚躺在床上或者打开行李箱之前，你可能想快速地打扫一下房间，看看有没有不速之客。是的， [我们说的是臭虫](https://lifehacker.com/everyones-afraid-of-bed-bugs-but-nobody-knows-what-they-1796331483) 。
 

@@ -1,6 +1,6 @@
 # 如何独自参加集体健身班
 
-> 原文:[https://life hacker . com/how-to-join-a-group-fitness-class-alone-1841581847](https://lifehacker.com/how-to-join-a-group-fitness-class-alone-1841581847)
+> 原文：<https://lifehacker.com/how-to-join-a-group-fitness-class-alone-1841581847>
 
 当你患有社交焦虑症或者只是通常不喜欢和人在一起的时候，去健身房会感觉很不舒服。你可能在镜子里与陌生人进行偶然的眼神交流，或者与几个月前在卧推上发现你的那个人交换点头示意。有点奇怪和尴尬。
 

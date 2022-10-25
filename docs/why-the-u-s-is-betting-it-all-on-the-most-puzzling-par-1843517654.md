@@ -1,6 +1,6 @@
 # why the u s is betting it all on the most puzzling par 1843517654
 
-> 原文:[https://gizmodo . com/why-the-u-s-is-bet-it-all-on-the-most fabbled-par-1843517654](https://gizmodo.com/why-the-u-s-is-betting-it-all-on-the-most-puzzling-par-1843517654)
+> 原文：<https://gizmodo.com/why-the-u-s-is-betting-it-all-on-the-most-puzzling-par-1843517654>
 
 将近 140 亿年前，一个宇宙出现在一次不可思议的高能爆炸中。粒子开始从那种能量中具体化，它们的反粒子也是如此，反粒子有点像邪恶的双胞胎，是带有相反电荷的镜像。科学家认为，每一个粒子都有一个反粒子，它们会在一次能量爆发中相互湮灭。在早期，大多数粒子都在它们的反粒子手里走到了尽头。
 

@@ -1,6 +1,6 @@
 # 如何安全地包装你的旅行珠宝
 
-> 原文:[https://life hacker . com/how-to-safe-pack your-jewelry-for-travel-1844390639](https://lifehacker.com/how-to-safely-pack-your-jewelry-for-travel-1844390639)
+> 原文：<https://lifehacker.com/how-to-safely-pack-your-jewelry-for-travel-1844390639>
 
 我过去常常把我所有的珠宝都放进一个袋子里，然后塞进我的行李箱，但是毫无疑问，这是存放我的项链和手镯的最糟糕的方法。我会带着一个纠结的结出现在我的目的地，没有足够的耐心或时间去解开它们。这里有一些建议可以帮助你避免我多次陷入的困境。
 

@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:当我看不到我的伴侣时，我如何保持我的关系？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-how-do-I-keep-my-relationship-alive-w-1843993702](https://kotaku.com/ask-dr-nerdlove-how-do-i-keep-my-relationship-alive-w-1843993702)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-how-do-i-keep-my-relationship-alive-w-1843993702>
 
 你好，所有你涂脂抹粉的色情水果，欢迎来到 [问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，唯一一个太热而不能处理又太冷而不能保持的建议专栏。
 

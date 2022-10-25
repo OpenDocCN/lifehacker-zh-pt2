@@ -1,6 +1,6 @@
 # 根据一份新的报告，这些美国航空公司收取的行李费最高
 
-> 原文:[https://life hacker . com/here-are-the-u-s-airlines-the-charge-the-most-in-bag-1834608278](https://lifehacker.com/here-are-the-u-s-airlines-that-charge-the-most-in-bag-1834608278)
+> 原文：<https://lifehacker.com/here-are-the-u-s-airlines-that-charge-the-most-in-bag-1834608278>
 
 根据运输统计局的新报告，美国航空公司去年带来了大约 49 亿美元——是的，10 亿美元——的行李费。这高于 2017 年的 46 亿美元。
 

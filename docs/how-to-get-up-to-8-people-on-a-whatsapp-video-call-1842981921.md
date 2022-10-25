@@ -1,6 +1,6 @@
 # 如何与多达 8 个人进行 WhatsApp 视频通话
 
-> 原文:[https://life hacker . com/how-to-up-to-8-people-on-a-whatsapp-video-call-1842981921](https://lifehacker.com/how-to-get-up-to-8-people-on-a-whatsapp-video-call-1842981921)
+> 原文：<https://lifehacker.com/how-to-get-up-to-8-people-on-a-whatsapp-video-call-1842981921>
 
 在这些疯狂的、检疫混乱的日子里，我对那些重新审视他们的通讯软件和得出结论“这还不够”的公司给予额外的信任这就是为什么微软团队现在支持多达 9 人的视频通话，也是为什么 WhatsApp 目前正在测试支持多达 8 人而不是只有 4 人的群组语音和视频通话。事实上，您现在就可以尝试这个功能。
 

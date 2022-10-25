@@ -1,6 +1,6 @@
 # 如何从 YouTube 的建议中删除频道
 
-> 原文:[https://life hacker . com/how-to-remove-channels-from-YouTube-suggestions-1835915738](https://lifehacker.com/how-to-remove-channels-from-youtubes-suggestions-1835915738)
+> 原文：<https://lifehacker.com/how-to-remove-channels-from-youtubes-suggestions-1835915738>
 
 我每天看相当多的 YouTube，但我通常会在网站或应用程序上看到各种推荐时翻白眼。无论我看多少个 vloggers，我都不会关心 Steam 上那些怪异的动漫游戏的“让我们玩吧”视频，任何涉及蜘蛛或 TanaCon 的视频。
 

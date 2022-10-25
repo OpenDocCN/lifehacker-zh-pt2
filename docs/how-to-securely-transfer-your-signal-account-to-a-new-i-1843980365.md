@@ -1,6 +1,6 @@
 # 如何安全地将您的 Signal 帐户转移到新 iPhone
 
-> 原文:[https://life hacker . com/how-to-securely-transfer-your-signal-account-to-a-new-I-1843980365](https://lifehacker.com/how-to-securely-transfer-your-signal-account-to-a-new-i-1843980365)
+> 原文：<https://lifehacker.com/how-to-securely-transfer-your-signal-account-to-a-new-i-1843980365>
 
 Signal 保护你的数据的许多方法之一是将所有东西保存到你的手机或平板电脑上，而不是外部服务器上。这对隐私来说很好，但将你的帐户迁移到新设备会很麻烦。谢天谢地，Signal 现在可以让 iOS 和 iPadOS 用户 [在设备间无线传输他们的账户数据](https://signal.org/blog/ios-device-transfer/) 。
 

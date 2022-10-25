@@ -1,6 +1,6 @@
 # 利用你的孩子来达到你的目的
 
-> 原文:[https://life hacker . com/use-your-kids-to-get-your-way-1839505965](https://lifehacker.com/use-your-kids-to-get-your-way-1839505965)
+> 原文：<https://lifehacker.com/use-your-kids-to-get-your-way-1839505965>
 
 在你的孩子面前，有策略地对你的伴侣说些什么是非常重要的。这种策略的大部分包括你不要说的话。大约在我们意识到我们的孩子实际上开始理解我们的话的时候，我们不得不(主要)相信在咒骂中，我们不得不真正考虑我们的用词会给他们带来怎样的感受，我们很快学会不要大声思考他们可能喜欢做的任何我们还没有完全承诺的事情。
 

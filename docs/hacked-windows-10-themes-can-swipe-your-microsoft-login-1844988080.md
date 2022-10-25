@@ -1,6 +1,6 @@
 # 被黑的 Windows 10 主题可以刷你的微软登录
 
-> 原文:[https://life hacker . com/hacked-windows-10-themes-can-swipe-your-Microsoft-log in-1844988080](https://lifehacker.com/hacked-windows-10-themes-can-swipe-your-microsoft-login-1844988080)
+> 原文：<https://lifehacker.com/hacked-windows-10-themes-can-swipe-your-microsoft-login-1844988080>
 
 Windows 10 用户可以用独特的主题定制他们的桌面，并且能够创建和与他人分享这些主题。黑客也可以用它们来窃取你的凭证。
 

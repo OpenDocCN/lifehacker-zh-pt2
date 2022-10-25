@@ -1,6 +1,6 @@
 # 教孩子什么而不是“积极创造完美”
 
-> 原文:[https://life hacker . com/what-to-teach-kids-not-the-practice-makes-perfect-1839260441](https://lifehacker.com/what-to-teach-kids-instead-of-practice-makes-perfect-1839260441)
+> 原文：<https://lifehacker.com/what-to-teach-kids-instead-of-practice-makes-perfect-1839260441>
 
 “熟能生巧”从来都不是一句很好的谚语。让我告诉你——我小时候练习过很多次单簧管，十几岁时练习得更多，但我从未达到完美。然而，我们只有通过实践才能在一件事情上做得更好的观点仍然是非常正确的。只是有一种更好的方式来解释:想象你正在建立一个“大脑链”。
 

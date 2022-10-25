@@ -1,6 +1,6 @@
 # 我应该因为经济衰退可能来临而推迟买车吗？
 
-> 原文:[https://jalopnik . com/should-I-hold-off-on-buying-a-a-recession-m-1841829472](https://jalopnik.com/should-i-hold-off-on-buying-a-car-because-a-recession-m-1841829472)
+> 原文：<https://jalopnik.com/should-i-hold-off-on-buying-a-car-because-a-recession-m-1841829472>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。我决定挑几个问题，试着帮帮大家。本周我们讨论基于全球经济因素的汽车购买，为什么新的一些汽车有大量的折扣，以及废车场的汽车可以是未经雕琢的钻石吗？
 

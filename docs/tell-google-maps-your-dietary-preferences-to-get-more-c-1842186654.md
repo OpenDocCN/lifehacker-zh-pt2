@@ -1,6 +1,6 @@
 # 告诉谷歌地图你的饮食偏好，以获得更多定制的搜索结果
 
-> 原文:[https://life hacker . com/tell-Google-maps-your-dietary-preferences-to-get-more-c-1842186654](https://lifehacker.com/tell-google-maps-your-dietary-preferences-to-get-more-c-1842186654)
+> 原文：<https://lifehacker.com/tell-google-maps-your-dietary-preferences-to-get-more-c-1842186654>
 
 我们都有某种食物偏好。也许你是个素食主义者或者对贝类过敏，或者你真的不喜欢披萨。当你使用谷歌地图寻找食物推荐时；然而，默认情况下，它会向你展示所有的选择，而不仅仅是你可能想吃的。也就是说，除非你告诉谷歌地图这些偏好是什么。
 

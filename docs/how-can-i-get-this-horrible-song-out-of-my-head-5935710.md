@@ -1,6 +1,6 @@
 # 如何把一首歌从你的脑海中抹去
 
-> 原文:[https://life hacker . com/how-can-I-get-the-how-my-get-out-this-drugly-song-my-head-5935710](https://lifehacker.com/how-can-i-get-this-horrible-song-out-of-my-head-5935710)
+> 原文：<https://lifehacker.com/how-can-i-get-this-horrible-song-out-of-my-head-5935710>
 
 说到音乐，朗朗上口和惹人厌之间只有一线之隔。有时候，一个钩子，一个舔痕，甚至一句歌词都会在你的大脑中停留几天，并且拒绝离开。事实上，科学给这种现象起了个名字，你可能很熟悉——有点恶心但非常能引起共鸣的“耳虫”那么，他们能告诉我们为什么歌曲会停留在你的脑海中——更重要的是，你能做些什么来将它们驱逐到它们所属的大脑深处呢？
 

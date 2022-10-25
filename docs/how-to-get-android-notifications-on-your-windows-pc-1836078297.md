@@ -1,6 +1,6 @@
 # 如何在 Windows PC 上获得 Android 通知
 
-> 原文:[https://life hacker . com/how-to-get-Android-notifications-on-your-windows-PC-1836078297](https://lifehacker.com/how-to-get-android-notifications-on-your-windows-pc-1836078297)
+> 原文：<https://lifehacker.com/how-to-get-android-notifications-on-your-windows-pc-1836078297>
 
 [Lifehacker's Complete Guide to Android](https://androidos.kinja.com)) : title[![](../Images/e2dcc498f7314a475ad7b9879a9d5584.png)](https://androidos.kinja.com)[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)Don't get overwhelmed by Android's many (many!) settings and apps. Master your Android phone or tablet with our ample collection of guides, tips, and tricks.
 

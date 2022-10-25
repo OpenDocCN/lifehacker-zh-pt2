@@ -1,6 +1,6 @@
 # 是时候解决 Ab 轮了
 
-> 原文:[https://life hacker . com/its-time-to-charge-the-ab-wheel-1840929234](https://lifehacker.com/its-time-to-tackle-the-ab-wheel-1840929234)
+> 原文：<https://lifehacker.com/its-time-to-tackle-the-ab-wheel-1840929234>
 
 准备好迎接 2020 年的首次健身挑战了吗？我们将认识臭名昭著的 ab 轮，更好的说法是“嘿，这是什么？我打赌我能。(而你在这里摔了个嘴啃泥。)我们今天从一些初学者技巧开始。
 

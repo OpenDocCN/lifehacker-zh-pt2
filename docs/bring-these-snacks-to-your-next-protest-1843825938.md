@@ -1,6 +1,6 @@
 # 下次抗议时带上这些零食
 
-> 原文:[https://life hacker . com/bring-these-snacks-to-your ' s next-declaration-1843825938](https://lifehacker.com/bring-these-snacks-to-your-next-protest-1843825938)
+> 原文：<https://lifehacker.com/bring-these-snacks-to-your-next-protest-1843825938>
 
 抗议和示威可以是充满奔跑和喊叫的活动，但你在其中一个活动中的大部分时间将用于行走、站立和呼喊。这些活动可以持续几个小时，而几个小时的行走、站立、吟诵和(偶尔)跑步会让人感到非常饥饿。这就是抗议小吃必不可少的原因。
 

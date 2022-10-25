@@ -1,6 +1,6 @@
 # 你们当地图书馆最酷的是什么？
 
-> 原文:[https://life hacker . com/what-the-cool-this-about-your-local-library-1835335051](https://lifehacker.com/whats-the-coolest-thing-about-your-local-library-1835335051)
+> 原文：<https://lifehacker.com/whats-the-coolest-thing-about-your-local-library-1835335051>
 
 这里有图书馆，你可以借到木偶、仪器、望远镜、装裱好的艺术品、求职面试用的领带，甚至是种植 T4 的种子。L 图书馆主持讲座，音乐会故事时间，工作坊，学习班；他们分发书籍、杂志、报纸、DVD，甚至电子游戏。他们可能主持护照申请办公室或其他政府服务。他们可能会让你免费进入博物馆，或者进入像 Kanopy 或 Hoopla 这样的数字电影图书馆。但是每个图书馆系统的服务都是不同的。你在当地图书馆能得到或做的最特别的事情是什么？
 

@@ -1,6 +1,6 @@
 # 这周你听说了冠状病毒的什么？
 
-> 原文:[https://life hacker . com/what-had-you-heard-the-course-the-week-1842567263](https://lifehacker.com/what-have-you-heard-about-the-coronavirus-this-week-1842567263)
+> 原文：<https://lifehacker.com/what-have-you-heard-about-the-coronavirus-this-week-1842567263>
 
 新冠肺炎的科学进展比以往任何一次爆发都要快:科学界在短短三个月内从发现病毒到开始疫苗试验。但是尽管有这样的速度，我们仍然不知道我们想知道的一切。无论科学家们在实验室里多么努力地研究一种病毒，我们都不可能预测它在世界范围内传播时会发生的一切。从来没有过这样的病毒，只有一种方法可以了解新疫情是什么样的。
 

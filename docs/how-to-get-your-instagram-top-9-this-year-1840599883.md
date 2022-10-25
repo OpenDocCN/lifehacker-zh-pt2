@@ -1,6 +1,6 @@
 # 如何让你的 Instagram 成为今年的“9 大热门”
 
-> 原文:[https://life hacker . com/how-to-get-your-insta gram-top-9-this-year-1840599883](https://lifehacker.com/how-to-get-your-instagram-top-9-this-year-1840599883)
+> 原文：<https://lifehacker.com/how-to-get-your-instagram-top-9-this-year-1840599883>
 
 每年的这个时候，每个人都开始发布他们今年的“最佳”清单。虽然大多数网站会以你可以与大众分享的形式直接向你提供这些信息，但 Instagram 不会直接提供一个“热门”列表。
 

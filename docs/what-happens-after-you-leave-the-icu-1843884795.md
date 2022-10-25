@@ -1,6 +1,6 @@
 # 离开重症监护室后会发生什么？
 
-> 原文:[https://life hacker . com/what-happens-after-you-leave-the-ICU-1843884795](https://lifehacker.com/what-happens-after-you-leave-the-icu-1843884795)
+> 原文：<https://lifehacker.com/what-happens-after-you-leave-the-icu-1843884795>
 
 如果你从未住过院，你可能会认为病人离开医院的那一天是他们康复过程中的一个特殊事件:标志着他们要么从疾病、病痛或伤害中完全康复，要么非常接近康复。但是在医院里呆的时间太长也要付出代价，通常会导致所谓的“重症监护后综合症”或 PICS。
 

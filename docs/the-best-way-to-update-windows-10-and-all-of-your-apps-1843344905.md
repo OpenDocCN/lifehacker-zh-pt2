@@ -1,6 +1,6 @@
 # 更新 Windows 10 和您所有应用的最佳方式
 
-> 原文:[https://life hacker . com/the-best-way-to-update-windows-10-and-all-of-your-apps-1843344905](https://lifehacker.com/the-best-way-to-update-windows-10-and-all-of-your-apps-1843344905)
+> 原文：<https://lifehacker.com/the-best-way-to-update-windows-10-and-all-of-your-apps-1843344905>
 
 更新你的电脑和上面的应用程序，是每个人都应该知道如何做的最基本的维护工作之一。虽然你的操作系统应该通过代表你运行大多数更新来让你轻松做到这一点，但没有理由让它享受所有的乐趣。掌控您自己的命运:安装您自己的更新，并在您的操作系统决定之前获得最新的功能(和安全补丁)。
 

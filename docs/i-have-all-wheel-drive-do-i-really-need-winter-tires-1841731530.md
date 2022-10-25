@@ -1,6 +1,6 @@
 # 我有全轮驱动。我真的需要冬季轮胎吗？
 
-> 原文:[https://jalopnik . com/I-have-all-wheel-drive-do-I-really-need-winter-tires-1841731530](https://jalopnik.com/i-have-all-wheel-drive-do-i-really-need-winter-tires-1841731530)
+> 原文：<https://jalopnik.com/i-have-all-wheel-drive-do-i-really-need-winter-tires-1841731530>
 
 每当雪季来临的时候，我都会被大量的问题所淹没，比如冬季轮胎与标准的普通轮胎相比，到底有多有效。这些天来，你买的几乎每辆车上都有标准的冬季轮胎。具有讽刺意味的是，我从拥有全轮驱动汽车的人那里得到的关于这个话题的问题最多。目前的误解是，如果你有 AWD，你不需要升级到冬季轮胎。
 

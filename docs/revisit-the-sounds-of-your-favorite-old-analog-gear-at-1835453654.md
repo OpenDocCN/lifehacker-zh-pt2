@@ -1,6 +1,6 @@
 # 在“保存声音”中重温您最喜欢的老式模拟设备的声音
 
-> 原文:[https://life hacker . com/review-the-sounds-of-you-favorite-old-analog-gear-at-1835453654](https://lifehacker.com/revisit-the-sounds-of-your-favorite-old-analog-gear-at-1835453654)
+> 原文：<https://lifehacker.com/revisit-the-sounds-of-your-favorite-old-analog-gear-at-1835453654>
 
 我很高兴生活在一个我可以随时上网的时代，而不是不得不拨一个号码，等待调制解调器做它的小连接协奏曲，这需要很长时间，你可以开始拨号，去做其他事情，并在快完成时走回来。
 

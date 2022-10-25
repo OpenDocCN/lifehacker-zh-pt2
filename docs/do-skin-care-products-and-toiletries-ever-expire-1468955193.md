@@ -1,6 +1,6 @@
 # 护肤品和洗漱用品会过期吗？
 
-> 原文:[https://life hacker . com/do-skin-care-products-and-toiletries-ever-expire-1468955193](https://lifehacker.com/do-skin-care-products-and-toiletries-ever-expire-1468955193)
+> 原文：<https://lifehacker.com/do-skin-care-products-and-toiletries-ever-expire-1468955193>
 
 我们知道食物会变坏，但是像乳液、护发素和睫毛膏这样的东西呢？尽管化妆品看起来可能会持续很长时间——而且经常会在货架上放上好几年——但实际上它们都有保质期。以下是你需要知道的。
 

@@ -1,6 +1,6 @@
 # 如何在 Instagram 上组织一场募捐活动
 
-> 原文:[https://life hacker . com/how-to-organize-a-fund raiser-on-insta gram-1844469060](https://lifehacker.com/how-to-organize-a-fundraiser-on-instagram-1844469060)
+> 原文：<https://lifehacker.com/how-to-organize-a-fundraiser-on-instagram-1844469060>
 
 社交媒体是为慈善事业筹集资金的一个很好的工具——甚至只是帮助你度过一个不可预见的紧急时刻。我在 2020 年采取了一个非常品牌化的举措， Instagram 现在允许用户 [为更小的事业](https://about.fb.com/news/2020/07/a-new-way-to-fundraise-for-personal-causes-on-instagram/) 设立个人筹款人，比如帮助生病的家人或者帮助当地企业保持营业。这项新功能正在美国、英国和爱尔兰的部分 Android 和 iOS 用户中缓慢推出，但在未来几周内将扩展到更多人。
 

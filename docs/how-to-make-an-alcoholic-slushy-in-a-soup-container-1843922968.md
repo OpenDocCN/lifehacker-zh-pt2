@@ -1,6 +1,6 @@
 # 如何在盛汤的容器中制作酒精饮料
 
-> 原文:[https://life hacker . com/how-to-make-a alcohol-slushy-in-a-soup-container-1843922968](https://lifehacker.com/how-to-make-an-alcoholic-slushy-in-a-soup-container-1843922968)
+> 原文：<https://lifehacker.com/how-to-make-an-alcoholic-slushy-in-a-soup-container-1843922968>
 
 我每周五早上都会做一杯鸡尾酒，不是因为我需要，而是因为我的工作需要。(我住在你看到的西海岸；在纽约，下午 3 点前要有一个鸡尾酒专栏，这意味着照片拍摄必须在太平洋时间中午之前进行。)我总是喝一小口(或三小口)来证明我喜欢这种饮料，然后把剩下的放在冰箱里，在一天工作结束后食用。
 

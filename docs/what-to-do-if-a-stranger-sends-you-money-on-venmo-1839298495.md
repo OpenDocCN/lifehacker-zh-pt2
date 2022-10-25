@@ -1,6 +1,6 @@
 # 如果陌生人在 Venmo 上给你汇钱，该怎么办
 
-> 原文:[https://life hacker . com/1839298495](https://lifehacker.com/what-to-do-if-a-stranger-sends-you-money-on-venmo-1839298495)
+> 原文：<https://lifehacker.com/what-to-do-if-a-stranger-sends-you-money-on-venmo-1839298495>
 
 点对点支付应用程序使得与朋友分摊账单变得很容易。但是，如果事情没有按计划进行，通过触摸屏按钮发送和请求资金的简单性可能会变得复杂。
 

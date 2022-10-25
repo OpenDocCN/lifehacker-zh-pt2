@@ -1,6 +1,6 @@
 # 你应该知道你孩子的顺尔宁处方
 
-> 原文:[https://life hacker . com/what-you-should-know-on-your-kids-singulair-pres rip-1842238562](https://lifehacker.com/what-you-should-know-about-your-kids-singulair-prescrip-1842238562)
+> 原文：<https://lifehacker.com/what-you-should-know-about-your-kids-singulair-prescrip-1842238562>
 
 如果您的孩子使用顺尔宁(或仿制药)来控制他们的哮喘或过敏，美国美国食品药品监督管理局希望您知道，他们可能面临更高的精神健康副作用风险，包括焦虑、抑郁、睡眠问题和自杀想法和行为。出于对患者、护理人员和卫生专业人员没有充分意识到风险的担忧，FDA 已经将其警告提高到“黑盒警告”。
 

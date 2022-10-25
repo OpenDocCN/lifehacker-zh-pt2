@@ -1,6 +1,6 @@
 # 如何在 Spotify 上获得更好听的音频
 
-> 原文:[https://life hacker . com/how-to-get-better-sounding-audio-on-Spotify-1831319548](https://lifehacker.com/how-to-get-better-sounding-audio-on-spotify-1831319548)
+> 原文：<https://lifehacker.com/how-to-get-better-sounding-audio-on-spotify-1831319548>
 
 无论你是一个刚刚从朋友或家人那里获得这项服务的 Spotify 新用户，还是一个长期用户，当你 [获得年度总结](https://spotifywrapped.com/) 时，你总是会对你听了多少感到震惊，在 Spotify 桌面和移动应用程序中有一个小设置似乎不能达成一致。
 

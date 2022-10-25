@@ -1,6 +1,6 @@
 # 快速腌制苹果，让它们变得格外甜脆
 
-> 原文:[https://life hacker . com/quick-pickle-apple-to-make-them-extra-sweet-and-crunch-1831553603](https://lifehacker.com/quick-pickle-apples-to-make-them-extra-sweet-and-crunch-1831553603)
+> 原文：<https://lifehacker.com/quick-pickle-apples-to-make-them-extra-sweet-and-crunch-1831553603>
 
 在我当地的杂货店里仍然有许多种类的美味苹果，但是比前一周少了，甚至比一个月前还少。朋友们，苹果季节即将结束，但你可以让它持续更长一点——或者用快速泡菜让 [成为味道出众的普通过季苹果](https://skillet.lifehacker.com/make-mediocre-apples-taste-great-with-a-sprinkling-of-s-1830344231#_ga=2.120094926.754411599.1546877951-1157707288.1539189461) 。
 

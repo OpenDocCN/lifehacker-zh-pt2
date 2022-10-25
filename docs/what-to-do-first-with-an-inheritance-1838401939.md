@@ -1,6 +1,6 @@
 # 继承遗产首先要做什么
 
-> 原文:[https://life hacker . com/what-to-do-first-with a inheritance-1838401939](https://lifehacker.com/what-to-do-first-with-an-inheritance-1838401939)
+> 原文：<https://lifehacker.com/what-to-do-first-with-an-inheritance-1838401939>
 
 如果你收到一大笔遗产，你会怎么做？如果你想在财务上谨慎一点，答案是什么也不做，至少一年内不做，T2。
 

@@ -1,6 +1,6 @@
 # 想更多地享受锻炼，加入一个团队
 
-> 原文:[https://life hacker . com/to-enjoy-exercise-more-join-a-team-1830472566](https://lifehacker.com/to-enjoy-exercise-more-join-a-team-1830472566)
+> 原文：<https://lifehacker.com/to-enjoy-exercise-more-join-a-team-1830472566>
 
 我们已经知道，锻炼有益于你的心理健康，包括减少抑郁的症状。但是如果你想要一个让你感觉非常棒的锻炼，也许你需要的是加入一个团队。
 

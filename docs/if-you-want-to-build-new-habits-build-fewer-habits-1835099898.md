@@ -1,6 +1,6 @@
 # 如果你想养成新习惯，那就少养成一些习惯
 
-> 原文:[https://life hacker . com/if-you-want-to-build-new-habits-build-less-habits-1835099898](https://lifehacker.com/if-you-want-to-build-new-habits-build-fewer-habits-1835099898)
+> 原文：<https://lifehacker.com/if-you-want-to-build-new-habits-build-fewer-habits-1835099898>
 
 你试图创造的习惯越多，就越难保持下去。
 

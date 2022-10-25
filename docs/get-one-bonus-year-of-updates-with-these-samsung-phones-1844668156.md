@@ -1,6 +1,6 @@
 # 在这些三星手机和平板电脑上获得额外一年的 Android 更新[更新]
 
-> 原文:[https://life hacker . com/get-one-bonus-year-of-updates-with-these-Samsung-phones-1844668156](https://lifehacker.com/get-one-bonus-year-of-updates-with-these-samsung-phones-1844668156)
+> 原文：<https://lifehacker.com/get-one-bonus-year-of-updates-with-these-samsung-phones-1844668156>
 
 Y 你过去可以从三星手机和平板电脑上获得大约两个主要的 Android 更新——基本上是两年。在那之后，三星不能保证你的设备会在未来得到安卓系统的更新，但是该公司现在对安卓系统的支持更加慷慨了。
 

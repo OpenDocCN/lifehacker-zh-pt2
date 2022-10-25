@@ -1,6 +1,6 @@
 # 当你做饭时，用木勺品尝食物
 
-> 原文:[https://life hacker . com/when-you-cooking-use-a-wood-勺子-to-taste-food-1834900099](https://lifehacker.com/when-youre-cooking-use-a-wooden-spoon-to-taste-food-1834900099)
+> 原文：<https://lifehacker.com/when-youre-cooking-use-a-wooden-spoon-to-taste-food-1834900099>
 
 即使你在遵循一个经过检验的真正的食谱，你仍然应该在烹饪时品尝你的食物。在烹饪过程中会出现一系列的其他变量，你需要知道锅里发生了什么。你的嘴会告诉你什么是什么。然而，金属勺子是一个潜在的危险。
 

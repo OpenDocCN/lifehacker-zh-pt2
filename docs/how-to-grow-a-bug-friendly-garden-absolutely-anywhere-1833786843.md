@@ -1,6 +1,6 @@
 # 如何在任何地方种植一个适合昆虫生长的花园
 
-> 原文:[https://life hacker . com/how-to-grow-a-bug-friendly-garden-absolute-anywhere-1833786843](https://lifehacker.com/how-to-grow-a-bug-friendly-garden-absolutely-anywhere-1833786843)
+> 原文：<https://lifehacker.com/how-to-grow-a-bug-friendly-garden-absolutely-anywhere-1833786843>
 
 栖息地的丧失是世界各地昆虫数量下降的主要因素，一组研究人员 [警告](https://www.theguardian.com/environment/2019/feb/10/plummeting-insect-numbers-threaten-collapse-of-nature) 这一趋势可能会导致“自然生态系统的灾难性崩溃”例如，帝王蝶 [的数量自 20 世纪 80 年代](https://www.sfchronicle.com/news/article/California-s-most-famous-butterfly-nearing-13539657.php) 以来下降了 99.4%——这种急剧的下降让野生动物保护主义者呼吁将它们列为官方濒危物种。虽然帝王蝶可能是昆虫世界中魅力非凡的巨型动物，但其他不太上镜的物种被认为面临着同样的命运。
 

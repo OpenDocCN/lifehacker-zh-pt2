@@ -1,6 +1,6 @@
 # 把这些假的恶作剧号码发给那些讨厌的人
 
-> 原文:[https://life hacker . com/give-out-these-fake-prank-numbers-to-creeping-1826672360](https://lifehacker.com/give-out-these-fake-prank-numbers-to-creeps-1826672360)
+> 原文：<https://lifehacker.com/give-out-these-fake-prank-numbers-to-creeps-1826672360>
 
 比方说，你和你的朋友在镇上闲逛，这时某个陌生人把谈话从随意变成了令人毛骨悚然，然后问你要电话号码。给他们一个然后离开。
 

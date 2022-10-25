@@ -1,6 +1,6 @@
 # T-Mobile 用户可以免费获得两个月的 YouTube Premium
 
-> 原文:[https://life hacker . com/t-mobile-users-can-get-two-months-YouTube-premium-fo-1842473227](https://lifehacker.com/t-mobile-users-can-get-two-months-of-youtube-premium-fo-1842473227)
+> 原文：<https://lifehacker.com/t-mobile-users-can-get-two-months-of-youtube-premium-fo-1842473227>
 
 T-Mobile 向客户提供了为期两个月的 YouTube Premium 试用。这笔交易是 T-Mobile 的“ [T-Mobile 周二](https://www.t-mobiletuesdays.com/) ”计划的一部分。从今天开始，您可以在 4 月 21 日之前将优惠存入您的帐户。必须在 5 月 1 日前赎回。
 

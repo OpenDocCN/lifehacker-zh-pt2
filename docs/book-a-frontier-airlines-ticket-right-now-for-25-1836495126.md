@@ -1,6 +1,6 @@
 # 现在就以 25 美元的价格预订边疆航空公司的机票
 
-> 原文:[https://life hacker . com/book-a-frontier-airlines-ticket-right-now-for-25-1836495126](https://lifehacker.com/book-a-frontier-airlines-ticket-right-now-for-25-1836495126)
+> 原文：<https://lifehacker.com/book-a-frontier-airlines-ticket-right-now-for-25-1836495126>
 
 如果你住在俄克拉荷马州和马萨诸塞州之间的任何地方，本周你可能会在 [100 度的高温](https://www.nytimes.com/2019/07/17/us/weather-heat-wave.html) 中汗流浃背。幸运的是，Frontier 在本周末对最早从出发的航班进行大减价，单程机票起价仅为 25 美元。
 

@@ -1,6 +1,6 @@
 # 将视频游戏角色去人格化会创造出怪物
 
-> 原文:[https://kotaku . com/de pixelizing-video-game-characters-creates-monsters-1844105193](https://kotaku.com/depixelizing-video-game-characters-creates-monsters-1844105193)
+> 原文：<https://kotaku.com/depixelizing-video-game-characters-creates-monsters-1844105193>
 
 一种新的数码工具被用来去除照片的像素，这听起来很可怕，也很糟糕。另一种消除世界隐私的方法。但是这个工具还被用于一个更愚蠢且不可怕的目的:去除旧游戏角色的像素。结果是...不要紧，这也是这个工具的一个可怕的用法。
 

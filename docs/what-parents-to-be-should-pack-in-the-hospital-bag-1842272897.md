@@ -1,6 +1,6 @@
 # 准父母应该在医院的袋子里装些什么
 
-> 原文:[https://life hacker . com/what-to-be-parents-be-should-pack-in-the-hospital-bag-1842272897](https://lifehacker.com/what-parents-to-be-should-pack-in-the-hospital-bag-1842272897)
+> 原文：<https://lifehacker.com/what-parents-to-be-should-pack-in-the-hospital-bag-1842272897>
 
 在全球健康危机中分娩可能不是你怀孕时所想象的。现在有很多事情你无法控制，因为从产前预约的频率到你可以带谁去分娩室都在变化。但是你*会*生孩子，你*能*控制的一件事就是当你生孩子的时候你要带什么东西。
 

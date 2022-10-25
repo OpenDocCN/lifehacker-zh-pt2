@@ -1,6 +1,6 @@
 # 如何删除您的在线帐户，但保留您的数据
 
-> 原文:[https://life hacker . com/how-to-delete-your-online-accounts-but-keep-your-data-1831498965](https://lifehacker.com/how-to-delete-your-online-accounts-but-keep-your-data-1831498965)
+> 原文：<https://lifehacker.com/how-to-delete-your-online-accounts-but-keep-your-data-1831498965>
 
 [Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)) : title[![](../Images/ce8fdf9d40d4898cdc1fe3570dd2a22f.png)](https://dataprivacy.kinja.com)[Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)We'll walk you through everything you should do to live the most secure, private life in the digital era.
 

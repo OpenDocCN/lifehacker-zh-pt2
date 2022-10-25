@@ -1,6 +1,6 @@
 # 如何和你的孩子谈论气候变化
 
-> 原文:[https://life hacker . com/how-to-talk to-your-kids-on-climate-change-1832935630](https://lifehacker.com/how-to-talk-to-your-kids-about-climate-change-1832935630)
+> 原文：<https://lifehacker.com/how-to-talk-to-your-kids-about-climate-change-1832935630>
 
 在我们的孩子成长过程中，我们应该与他们进行的所有艰难的对话中，我承认教育我的儿子关于气候变化并不是一个优先事项。我们谈论过死亡、残疾、精神疾病、种族主义、性别歧视、贫困和枪支暴力。所有这些都是他已经看到或经历过或随时可能接触到的重要而紧迫的事情。
 

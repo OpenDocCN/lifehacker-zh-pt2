@@ -1,6 +1,6 @@
 # 廉价购买万圣节糖果的最佳地点
 
-> 原文:[https://life hacker . com/the-best-place-to-buy-Halloween-candy-for-cheap-1839030544](https://lifehacker.com/the-best-place-to-buy-halloween-candy-for-cheap-1839030544)
+> 原文：<https://lifehacker.com/the-best-place-to-buy-halloween-candy-for-cheap-1839030544>
 
 如果你打算在今年的万圣节分发糖果，你可能应该全力以赴，分发全尺寸的名牌糖果。你不仅会成为你所在街区的英雄，还会让你其他更廉价的邻居感到力不从心，这是一个有趣的奖励。为了买到最便宜的万圣节糖果——和每个孩子最多的笑容——去你当地的餐馆用品店。
 

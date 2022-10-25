@@ -1,6 +1,6 @@
 # 如何改变自己的性格
 
-> 原文:[https://life hacker . com/how-to-change-your-personality-1830317055](https://lifehacker.com/how-to-change-your-personality-1830317055)
+> 原文：<https://lifehacker.com/how-to-change-your-personality-1830317055>
 
 我们都听说过人们不会真的改变。你的妈妈永远是小心眼的；你的前任永远是自私的；你将永远是一个*一点点*神经质。
 

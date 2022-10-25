@@ -1,6 +1,6 @@
 # 盯着一个陌生人看 60 秒钟让我对隔离生活感觉更好
 
-> 原文:[https://life hacker . com/盯着一个陌生人看 60 秒帮助我感觉更好-1843137874](https://lifehacker.com/staring-at-a-stranger-for-60-seconds-helped-me-feel-bet-1843137874)
+> 原文：<https://lifehacker.com/staring-at-a-stranger-for-60-seconds-helped-me-feel-bet-1843137874>
 
 物理距离对于保持我们社区的安全和健康是必要的，是的，但它肯定会让我们更加孤独。是的，我们正在拉平曲线——这是至关重要的——但是*很难*一次与朋友和家人隔绝几个星期。缩放呼叫根本无法取代真实的人际联系。
 

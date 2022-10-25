@@ -1,6 +1,6 @@
 # 3 岁其实是最好的年龄
 
-> 原文:[https://life hacker . com/age-3-is-actually-the-best-age-1840901074](https://lifehacker.com/age-3-is-actually-the-best-age-1840901074)
+> 原文：<https://lifehacker.com/age-3-is-actually-the-best-age-1840901074>
 
 有小孩的父母经常说，可怕的两岁孩子在三岁时什么都没有。当他们长到三岁时，我们开始称他们为“三个管理者”，这是对他们日益不满的性格的一种肯定。但是这个词远远不足以描述每天家里有一个三岁的孩子是什么样的。他们不能像自己希望的那样交流，这让他们很恼火。他们不断试图做可能杀死他们的事，而你阻止了他们的死亡，这让*非常*恼火。
 

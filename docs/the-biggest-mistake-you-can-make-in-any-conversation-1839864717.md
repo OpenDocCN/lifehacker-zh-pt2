@@ -1,6 +1,6 @@
 # 你在任何谈话中可能犯的最大错误
 
-> 原文:[https://life hacker . com/the-maximum-mission-you-can-make-in-any-conversation-1839864717](https://lifehacker.com/the-biggest-mistake-you-can-make-in-any-conversation-1839864717)
+> 原文：<https://lifehacker.com/the-biggest-mistake-you-can-make-in-any-conversation-1839864717>
 
 你有没有尝试过解决朋友的问题，而他们真正想要的是发泄和获得一些同情？你有没有寻求建议，只得到同情的时候？当你的伴侣还在不断提出新的指控和抱怨时，你有没有尝试去解决一场争论？在所有这些情况下，问题是你们还没有就对话的*框架*达成一致。
 

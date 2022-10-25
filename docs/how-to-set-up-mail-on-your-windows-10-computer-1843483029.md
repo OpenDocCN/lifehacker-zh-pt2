@@ -1,6 +1,6 @@
 # 如何在 Windows 10 电脑上设置邮件
 
-> 原文:[https://life hacker . com/how-to-set-up-mail-on-your-windows-10-computer-1843483029](https://lifehacker.com/how-to-set-up-mail-on-your-windows-10-computer-1843483029)
+> 原文：<https://lifehacker.com/how-to-set-up-mail-on-your-windows-10-computer-1843483029>
 
 在电脑上使用邮件应用程序比登录 Gmail 等网站要方便得多。这有很多好处——包括最大的好处，当你没有互联网连接时，你可以随时访问你下载的电子邮件。
 

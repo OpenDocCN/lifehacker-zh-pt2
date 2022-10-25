@@ -1,6 +1,6 @@
 # 什么时候拼车比买车更划算？
 
-> 原文:[https://life hacker . com/when-rides sharing-a-better-deal-own-a-car-1841164975](https://lifehacker.com/when-is-ridesharing-a-better-deal-than-owning-a-car-1841164975)
+> 原文：<https://lifehacker.com/when-is-ridesharing-a-better-deal-than-owning-a-car-1841164975>
 
 今年秋天，我突然发现自己没有了轮子，因为我以为这只是一场小车祸，我花了几周时间犹豫是否要再买一辆车。
 

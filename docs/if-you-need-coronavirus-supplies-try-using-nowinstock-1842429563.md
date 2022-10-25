@@ -1,6 +1,6 @@
 # 如果你需要冠状病毒用品，尝试使用 NowInStock
 
-> 原文:[https://life hacker . com/if-you-need-coronavirus-supplies-try-using-nowinstock-1842429563](https://lifehacker.com/if-you-need-coronavirus-supplies-try-using-nowinstock-1842429563)
+> 原文：<https://lifehacker.com/if-you-need-coronavirus-supplies-try-using-nowinstock-1842429563>
 
 请不要恐慌购买。我们知道这说起来容易做起来难。我们 [没有卫生纸短缺](https://www.jsonline.com/story/money/2020/03/18/toilet-paper-shortage-wisconsin-paper-mills-busy-during-coronavirus/2864290001/)*就其本身而言，这是很难得到的，当然，因为每个人都出去买，就好像我们在世界末日一样。甚至不要让我开始用洗手液——这很重要，绝对重要，但是现在很难找到，取决于你住在哪里。*
 

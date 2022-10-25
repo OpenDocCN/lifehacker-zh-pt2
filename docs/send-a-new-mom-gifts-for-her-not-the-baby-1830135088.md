@@ -1,6 +1,6 @@
 # 送新妈妈礼物给她，而不是宝宝
 
-> 原文:[https://life hacker . com/send-a-new-mom-gifts-for-her-not-the-baby-1830135088](https://lifehacker.com/send-a-new-mom-gifts-for-her-not-the-baby-1830135088)
+> 原文：<https://lifehacker.com/send-a-new-mom-gifts-for-her-not-the-baby-1830135088>
 
 今年早些时候，当我的嫂子怀上我的侄子时，我看着他被宠坏了——持续地、彻底地——尽管他还没有开始呼吸。
 

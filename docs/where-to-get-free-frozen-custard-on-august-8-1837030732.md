@@ -1,6 +1,6 @@
 # 8 月 8 日在哪里可以得到免费的冰冻蛋羹
 
-> 原文:[https://life hacker . com/where-to-get-free-free-frozen-dash-on-August-8-1837030732](https://lifehacker.com/where-to-get-free-frozen-custard-on-august-8-1837030732)
+> 原文：<https://lifehacker.com/where-to-get-free-frozen-custard-on-august-8-1837030732>
 
 8 月 8 日星期四是全国冷冻蛋羹日，几家连锁店正在提供优惠来庆祝。(冷冻蛋羹是一种密度更大、口味更丰富的冰淇淋，除了奶油和糖之外，还用鸡蛋制成。)这里有免费或打折的蛋羹。
 

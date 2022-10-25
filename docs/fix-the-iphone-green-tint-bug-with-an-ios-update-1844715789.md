@@ -1,6 +1,6 @@
 # 使用 iOS 更新修复 iPhone 的“绿色色调”错误
 
-> 原文:[https://life hacker . com/fix-the-iphone-green-tint-bug-with-an-IOs-update-1844715789](https://lifehacker.com/fix-the-iphone-green-tint-bug-with-an-ios-update-1844715789)
+> 原文：<https://lifehacker.com/fix-the-iphone-green-tint-bug-with-an-ios-update-1844715789>
 
 你的 iPhone 屏幕最近看起来有点病态吗？软件更新可能正是它需要的良药。
 

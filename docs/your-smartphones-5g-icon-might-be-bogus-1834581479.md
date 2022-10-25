@@ -1,6 +1,6 @@
 # 你智能手机的 5G 图标可能是假的
 
-> 原文:[https://life hacker . com/your-smart phones-5g-icon-pous-1834581479](https://lifehacker.com/your-smartphones-5g-icon-might-be-bogus-1834581479)
+> 原文：<https://lifehacker.com/your-smartphones-5g-icon-might-be-bogus-1834581479>
 
 如果你是 5G 智能手机的第一批早期采用者，我们有一些坏消息要告诉你:你网络信号旁边显示的 5G 图标可能是在骗你，但很难说它在任何特定时间有多不诚实。
 

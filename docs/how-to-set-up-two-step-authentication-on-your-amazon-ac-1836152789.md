@@ -1,6 +1,6 @@
 # 如何在你的亚马逊账户上设置两步认证
 
-> 原文:[https://life hacker . com/how-to-set-up-two-step-authentic ation-on-your-Amazon-AC-1836152789](https://lifehacker.com/how-to-set-up-two-step-authentication-on-your-amazon-ac-1836152789)
+> 原文：<https://lifehacker.com/how-to-set-up-two-step-authentication-on-your-amazon-ac-1836152789>
 
 双因素身份认证是允许您在几乎任何地方设置的好主意之一。
 

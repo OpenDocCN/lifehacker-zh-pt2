@@ -1,6 +1,6 @@
 # 根据 Reddit 的说法，最奇怪的 Subreddits
 
-> 原文:[https://life hacker . com/the-vergeest-subred dits-遵 reddit-1838952415](https://lifehacker.com/the-weirdest-subreddits-according-to-reddit-1838952415)
+> 原文：<https://lifehacker.com/the-weirdest-subreddits-according-to-reddit-1838952415>
 
 有人要求 Reddit 列出 [“非常非常奇怪的子编辑”](https://old.reddit.com/r/AskReddit/comments/dd49gw/what_are_some_really_really_weird_subreddits/) 他们做到了。他们还列出了许多可爱但实际上并不怪异的子漩涡。我收集了实际上很奇怪的，加上一些可爱的。NSFW 子街道就是这样标注的。
 

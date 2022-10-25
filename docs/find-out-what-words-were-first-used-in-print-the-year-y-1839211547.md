@@ -1,6 +1,6 @@
 # 找出在你出生的那一年，印刷中首次使用的单词
 
-> 原文:[https://life hacker . com/find-out-what-words-is-first-used-in-print-the-year-1839211547](https://lifehacker.com/find-out-what-words-were-first-used-in-print-the-year-y-1839211547)
+> 原文：<https://lifehacker.com/find-out-what-words-were-first-used-in-print-the-year-y-1839211547>
 
 我出生的那一年是《撞拳》第一次被用在印刷品上的那一年。
 

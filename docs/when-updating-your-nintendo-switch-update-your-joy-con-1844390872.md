@@ -1,6 +1,6 @@
 # 当更新你的任天堂 Switch 时，也更新你的快乐缺点
 
-> 原文:[https://life hacker . com/when-updating-your-Nintendo-switch-update-your-joy-con-1844390872](https://lifehacker.com/when-updating-your-nintendo-switch-update-your-joy-con-1844390872)
+> 原文：<https://lifehacker.com/when-updating-your-nintendo-switch-update-your-joy-con-1844390872>
 
 任天堂，我爱你，但你是世界上产品更新最差的公司。以任天堂 Switch 为例:它相当定期地接收更新；这不是问题所在。但是当有新版本的操作系统需要下载时，任天堂并不总是清楚地说明它正在更新什么，他们提供的通用语句变得令人讨厌:
 

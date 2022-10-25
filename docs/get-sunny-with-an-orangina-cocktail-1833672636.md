@@ -1,6 +1,6 @@
 # 喝杯橙汁鸡尾酒晒晒太阳
 
-> 原文:[https://life hacker . com/get-sunny-with-an-orangina-cocktail-1833672636](https://lifehacker.com/get-sunny-with-an-orangina-cocktail-1833672636)
+> 原文：<https://lifehacker.com/get-sunny-with-an-orangina-cocktail-1833672636>
 
 如果说太平洋西北部的生活给了我什么，那就是对季节的欣赏。虽然我一直声称讨厌炎热，喜欢寒冷，但生活在一个几乎没有真正冬天的地方和只有一点点雪的地方让我知道我不喜欢任何类型的极端环境，并使春天成为我一年中最喜欢的时间。
 

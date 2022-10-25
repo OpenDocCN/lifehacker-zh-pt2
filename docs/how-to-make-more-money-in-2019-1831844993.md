@@ -1,6 +1,6 @@
 # how to make more money in 2019 1831844993
 
-> 原文:[https://life hacker . com/how-to-make-more-money-in-2019-1831844993](https://lifehacker.com/how-to-make-more-money-in-2019-1831844993)
+> 原文：<https://lifehacker.com/how-to-make-more-money-in-2019-1831844993>
 
 我们都没有足够的钱。
 

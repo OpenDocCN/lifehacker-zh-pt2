@@ -1,6 +1,6 @@
 # 正念冥想并不适合每个人
 
-> 原文:[https://life hacker . com/正念-冥想-不适合所有人-1844751749](https://lifehacker.com/mindfulness-meditation-isnt-for-everyone-1844751749)
+> 原文：<https://lifehacker.com/mindfulness-meditation-isnt-for-everyone-1844751749>
 
 冥想有众所周知的好处，既有研究支持，也有轶事趣闻。但是生活中很少有事情对每个人都有效，而且有理由相信冥想可能会使一些人的心理健康恶化。如果是你，我在此允许你退出。无罪恶感。
 

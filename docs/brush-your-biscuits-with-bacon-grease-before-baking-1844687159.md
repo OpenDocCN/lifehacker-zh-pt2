@@ -1,6 +1,6 @@
 # 烘烤前在饼干上刷上培根油
 
-> 原文:[https://life hacker . com/brush-your-biscuits-with bacon-grease-before-baking-1844687159](https://lifehacker.com/brush-your-biscuits-with-bacon-grease-before-baking-1844687159)
+> 原文：<https://lifehacker.com/brush-your-biscuits-with-bacon-grease-before-baking-1844687159>
 
 在面包和饼干进入烤箱之前涂上某种脂肪(或鸡蛋，或乳制品)是增加颜色和味道的好方法，但是当谈到脂肪时，我们经常似乎默认使用黄油和橄榄油。我并不反对这两种脂肪——它们很可爱——但涂有培根油的面包或饼干是我们都应该经历的事情。
 

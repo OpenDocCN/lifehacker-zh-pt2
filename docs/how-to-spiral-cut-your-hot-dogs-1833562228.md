@@ -1,6 +1,6 @@
 # 如何螺旋切你的热狗(让它看起来像你试过)
 
-> 原文:[https://the take out . com/how-to-spiral-cut-your-热狗-1833562228](https://thetakeout.com/how-to-spiral-cut-your-hot-dogs-1833562228)
+> 原文：<https://thetakeout.com/how-to-spiral-cut-your-hot-dogs-1833562228>
 
 热狗在预煮的罐装肉中享有极高的声誉。维也纳香肠是离婚爸爸的顶级食物，除非它们被裹在面团里或被辣椒酱和 [葡萄果冻](https://thetakeout.com/recipe-grape-jelly-meatballs-1832026014) 混合在一起，否则没有人会对大烟感兴趣。但是热狗，尽管功能相同，却是我们大多数人在野炊和体育赛事中积极期待的东西。
 

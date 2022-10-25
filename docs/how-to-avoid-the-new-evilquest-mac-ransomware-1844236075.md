@@ -1,6 +1,6 @@
 # 如何避免新的“evil quest”Mac 勒索软件
 
-> 原文:[https://life hacker . com/how-to-avoid-the-new-evil quest-MAC-ransomware-1844236075](https://lifehacker.com/how-to-avoid-the-new-evilquest-mac-ransomware-1844236075)
+> 原文：<https://lifehacker.com/how-to-avoid-the-new-evilquest-mac-ransomware-1844236075>
 
 当你开始下载时，最新的 Mac 恶意软件之一是一种破坏性的勒索软件，称为“EvilQuest”。
 

@@ -1,6 +1,6 @@
 # 切片时，用纸巾来稳定光滑的鸡蛋
 
-> 原文:[https://life hacker . com/use-a-paper-wow-to-stabilize-slick-while-slic-1834125357](https://lifehacker.com/use-a-paper-towel-to-stabilize-slippery-eggs-while-slic-1834125357)
+> 原文：<https://lifehacker.com/use-a-paper-towel-to-stabilize-slippery-eggs-while-slic-1834125357>
 
 煮熟的鸡蛋是一种近乎完美的食物，但它们很滑，而且取决于你的砧板有多光滑，当你试图用锋利的物体切片时，它们真的有滑动的危险。
 

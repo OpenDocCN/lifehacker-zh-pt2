@@ -1,6 +1,6 @@
 # 据 Reddit 报道，如何成为抑郁症患者的好朋友
 
-> 原文:[https://life hacker . com/how-to-be-a-good-friend-to-someone-during-Depr-1837621710](https://lifehacker.com/how-to-be-a-good-friend-to-someone-struggling-with-depr-1837621710)
+> 原文：<https://lifehacker.com/how-to-be-a-good-friend-to-someone-struggling-with-depr-1837621710>
 
 和一个正在为自己的心理健康而挣扎的朋友交谈是很棘手的。Y 你可能担心说错话，或者用太多的电话和短信纠缠他们。在 Reddit 上，u/burnie57 询问用户如何帮助一位正在与抑郁症作斗争的朋友——尽管每个人都是不同的，沟通对于了解他们的需求是必要的，但你可以做以下事情，成为可能正在经历困难时期的人的好朋友。
 

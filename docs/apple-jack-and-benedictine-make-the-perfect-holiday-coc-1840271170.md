@@ -1,6 +1,6 @@
 # 苹果杰克和贝内迪克汀是完美的假日鸡尾酒
 
-> 原文:[https://life hacker . com/apple-jack-and-Benedict-make-the-perfect-holiday-COC-1840271170](https://lifehacker.com/apple-jack-and-benedictine-make-the-perfect-holiday-coc-1840271170)
+> 原文：<https://lifehacker.com/apple-jack-and-benedictine-make-the-perfect-holiday-coc-1840271170>
 
 苹果在假期里做了很多繁重的工作。我们把它们烤在馅饼里，喝它们发酵的果汁，啜饮加香料的苹果酒来温暖我们冰冷、嗅着的身体。苹果白兰地是我最喜欢的这种特殊风味的载体，当它与 Bénédictine 利口酒搭配时，喝起来就像你最喜欢的季节性烈性苹果酒的酒精含量更高的版本。
 

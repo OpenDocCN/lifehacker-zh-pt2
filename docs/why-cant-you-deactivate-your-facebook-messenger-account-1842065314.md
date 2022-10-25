@@ -1,6 +1,6 @@
 # 为什么您不能再停用您的 Facebook Messenger 帐户了？
 
-> 原文:[https://life hacker . com/why-cant-you-deactivate-your-Facebook-messenger-account-1842065314](https://lifehacker.com/why-cant-you-deactivate-your-facebook-messenger-account-1842065314)
+> 原文：<https://lifehacker.com/why-cant-you-deactivate-your-facebook-messenger-account-1842065314>
 
 一个全新版本的 Facebook Messenger 已经在 iOS 上推出，虽然我很欣赏脸书对保持应用苗条的新兴趣，但我认为削减太多了。你将不再发现任何与 Messenger 用户界面相关的应用程序或游戏，但现在更难(或不可能)做大多数人可能希望在他们的 Messenger 应用程序上做的事情:摆弄照片、发送投票，哦，对了——退出 Facebook Messenger。
 

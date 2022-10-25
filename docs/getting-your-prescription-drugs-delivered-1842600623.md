@@ -1,6 +1,6 @@
 # 如何让您的处方药送达
 
-> 原文:[https://life hacker . com/getting-your-处方药-delivered-1842600623](https://lifehacker.com/getting-your-prescription-drugs-delivered-1842600623)
+> 原文：<https://lifehacker.com/getting-your-prescription-drugs-delivered-1842600623>
 
 虽然我们都在储备食物、卫生纸和清洁用品，但重要的是要记住我们中的许多人也在服用日常药物，以确保我们在疫情期间能够获得这些药物。根据疾病预防控制中心的数据，在过去的 30 天里，几乎一半的人使用过处方药。这意味着很多人，很多处方，很多去药店的旅行，以及很多暴露于冠状病毒的可能性。
 

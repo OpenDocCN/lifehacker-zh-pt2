@@ -1,6 +1,6 @@
 # 用这款冥想应用的“政治包”更好地应对中期选举焦虑
 
-> 原文:[https://life hacker . com/cope-with-midterm-election-anxiety-better-with the-med-1830211792](https://lifehacker.com/cope-with-midterm-election-anxiety-better-with-this-med-1830211792)
+> 原文：<https://lifehacker.com/cope-with-midterm-election-anxiety-better-with-this-med-1830211792>
 
 不管你的政治倾向是什么，你可能会同意一件事:政治已经变得紧张。
 

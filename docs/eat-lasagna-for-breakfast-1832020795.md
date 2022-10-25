@@ -1,6 +1,6 @@
 # 早餐吃千层面
 
-> 原文:[https://lifehacker.com/eat-lasagna-for-breakfast-1832020795](https://lifehacker.com/eat-lasagna-for-breakfast-1832020795)
+> 原文：<https://lifehacker.com/eat-lasagna-for-breakfast-1832020795>
 
 更多的人应该早餐吃面食。碳水化合物、脂肪和(有时)蛋白质的组合以一种最舒适的方式欢迎人们来到这个世界，而且通常还有奶酪。它还易于再次加热，这意味着你可以做一大堆，并在一周内食用。没有坏处。
 

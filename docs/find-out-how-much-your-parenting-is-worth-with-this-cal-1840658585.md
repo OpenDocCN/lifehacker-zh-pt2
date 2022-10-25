@@ -1,6 +1,6 @@
 # 用这个计算器找出你的教育有多少“价值”
 
-> 原文:[https://life hacker . com/find-out-how-your-parenting-value with this-cal-1840658585](https://lifehacker.com/find-out-how-much-your-parenting-is-worth-with-this-cal-1840658585)
+> 原文：<https://lifehacker.com/find-out-how-much-your-parenting-is-worth-with-this-cal-1840658585>
 
 几年前，当我辞去全职工作在家陪儿子时，我经常思考我的时间对我们家庭的价值。我曾经和我的丈夫开玩笑说，每次我在杂货店多存了一点钱，因为我有时间收集优惠券和购物，他可以把这笔钱加到我的“工资”里。
 

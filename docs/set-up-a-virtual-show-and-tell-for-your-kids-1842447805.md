@@ -1,6 +1,6 @@
 # 为你的孩子建立一个虚拟的展示和讲述
 
-> 原文:[https://life hacker . com/set-up-a-virtual-show-and-tell-for-your-kids-1842447805](https://lifehacker.com/set-up-a-virtual-show-and-tell-for-your-kids-1842447805)
+> 原文：<https://lifehacker.com/set-up-a-virtual-show-and-tell-for-your-kids-1842447805>
 
 一直被关在家里对任何人来说都不容易。父母 [不得不继续工作](https://offspring.lifehacker.com/how-to-get-work-done-when-your-kids-are-home-1839415435) 同时兼任家庭学校的老师。孩子们没有机会和他们的朋友在一起，在这一点上可能会很烦躁。这就是为什么你应该使用 FaceTime、Skype、Google Hangouts 或 Zoom 为他们建立一个虚拟的展示和讲述。
 

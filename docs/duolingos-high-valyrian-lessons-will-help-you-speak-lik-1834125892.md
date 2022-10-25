@@ -1,6 +1,6 @@
 # 通过多林哥的课程学习《权力的游戏》中的高级瓦雷利亚语
 
-> 原文:[https://life hacker . com/duoligos-high-valyrian-lessons-will-help-you-speak-lik-1834125892](https://lifehacker.com/duolingos-high-valyrian-lessons-will-help-you-speak-lik-1834125892)
+> 原文：<https://lifehacker.com/duolingos-high-valyrian-lessons-will-help-you-speak-lik-1834125892>
 
 流行的语言学习应用 Duolingo 正在利用*权力的游戏*第八季的宣传，发布了其高瓦雷利亚语课程 的 [更新版本，使粉丝更容易在最短的时间内学习维斯特洛最古老的语言之一。](https://www.duolingo.com/course/hv/en/Learn-High%20Valyrian) 
 

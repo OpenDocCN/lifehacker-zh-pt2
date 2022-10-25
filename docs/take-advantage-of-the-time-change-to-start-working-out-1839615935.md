@@ -1,6 +1,6 @@
 # 利用时差，早点开始锻炼
 
-> 原文:[https://life hacker . com/take-advantage-the-time-change-to-start-work-out-1839615935](https://lifehacker.com/take-advantage-of-the-time-change-to-start-working-out-1839615935)
+> 原文：<https://lifehacker.com/take-advantage-of-the-time-change-to-start-working-out-1839615935>
 
 我是个不情愿的晨练者。我讨厌在 6 点起床，但是当我早早开始锻炼时，我的一天会过得更好。那么，对于像我这样的人来说，这是特别的一周(还有和我想法一样的评论员水手朱庇特 )。时间的改变给了我们额外的早晨时间。一觉醒来，他一天中最难的任务，变得简单了一些。
 

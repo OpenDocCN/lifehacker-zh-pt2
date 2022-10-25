@@ -1,6 +1,6 @@
 # 如何解释简历中的一段短暂工作
 
-> 原文:[https://life hacker . com/how-to-explain-a-short-stint-on-your resume-1838847996](https://lifehacker.com/how-to-explain-a-short-stint-on-your-resume-1838847996)
+> 原文：<https://lifehacker.com/how-to-explain-a-short-stint-on-your-resume-1838847996>
 
 当一份新工作不尽如人意时，你可能会担心辞职对你的简历和职业生涯意味着什么。你会觉得你在一家公司短暂的六个月可能会掩盖你所有其他的职业成就，并陷入一场身份危机。
 

@@ -1,6 +1,6 @@
 # 当你想去购物时，浏览 Airbnb
 
-> 原文:[https://life hacker . com/browse-Airbnb-when-you-tent-to-stress-shop-1835283168](https://lifehacker.com/browse-airbnb-when-youre-tempted-to-stress-shop-1835283168)
+> 原文：<https://lifehacker.com/browse-airbnb-when-youre-tempted-to-stress-shop-1835283168>
 
 尽管我不愿意承认，但我是一个压力购物者。更确切地说，我是一个网上压力购物者。我从来都不是一个真正的“逛商场的人”——即使在 90 年代，“喜欢购物”被认为是年轻女性的一种性格特征。
 

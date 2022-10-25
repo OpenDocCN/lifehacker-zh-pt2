@@ -1,6 +1,6 @@
 # 如何测试微软新的 Chromium Edge 浏览器
 
-> 原文:[https://life hacker . com/how-to-beta-test-Microsoft-s-new-chromium-based-edge-br-1833889177](https://lifehacker.com/how-to-beta-test-microsoft-s-new-chromium-based-edge-br-1833889177)
+> 原文：<https://lifehacker.com/how-to-beta-test-microsoft-s-new-chromium-based-edge-br-1833889177>
 
 微软已经对其最新版本的 Edge 网络浏览器进行了公开测试，该浏览器建立在谷歌的“Chromium”[开源框架](https://github.com/MicrosoftEdge/MSEdge) 之上。这不仅意味着 Edge 应该(据称) [更好地与按照现代网络标准设计的网站配合使用](https://www.onmsft.com/editorial/a-web-developers-perspective-edges-move-to-chromium-will-increase-productivity-but-raises-long-term-concerns) ，还意味着你将能够在 Edge 中运行 Chrome 扩展——使浏览器比以前的版本更容易忍受。
 

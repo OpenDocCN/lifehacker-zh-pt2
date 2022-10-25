@@ -1,6 +1,6 @@
 # 为现在困在家里的孩子制定一个白天的学习计划
 
-> 原文:[https://life hacker . com/create-a-daytime-academic-schedule-for-kids-stick-at-ho-1842357145](https://lifehacker.com/create-a-daytime-academic-schedule-for-kids-stuck-at-ho-1842357145)
+> 原文：<https://lifehacker.com/create-a-daytime-academic-schedule-for-kids-stuck-at-ho-1842357145>
 
 随着全国各地的学校关闭，家长们争相在家工作或寻找儿童看护，人们很容易将这视为一个漫长的大雪天。用一些小吃把他们撑在电视机前，安然度过。但是专家一致认为，在接下来的几周(或更长时间)里，父母能为孩子做的最好的事情就是让他们马上有一个时间表。
 

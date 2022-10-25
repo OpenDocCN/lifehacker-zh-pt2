@@ -1,6 +1,6 @@
 # 为了让你的浴室焕然一新，改变一下吧
 
-> 原文:[https://life hacker . com/to-refresh-your-battery-make-this-one-change-1830140123](https://lifehacker.com/to-refresh-your-bathroom-make-this-one-change-1830140123)
+> 原文：<https://lifehacker.com/to-refresh-your-bathroom-make-this-one-change-1830140123>
 
 我喜欢整洁的捷径。公司来你乱七八糟的家里？ [打扫你的浴室就好。](https://lifehacker.com/if-you-only-have-time-to-clean-one-room-before-guests-a-1821191162) 今天看起来像屎一样？ [抹上一些红色的口红。我的建议是:换掉你的浴帘，你会觉得你有了一个全新的浴室。](https://www.youtube.com/watch?v=eLu57hplNlo) 
 

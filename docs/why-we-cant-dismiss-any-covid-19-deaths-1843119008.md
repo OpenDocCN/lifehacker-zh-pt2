@@ -1,6 +1,6 @@
 # 为什么我们不能排除任何新冠肺炎的死亡
 
-> 原文:[https://life hacker . com/why-we-cant-discover-any-新冠肺炎-deaths-1843119008](https://lifehacker.com/why-we-cant-dismiss-any-covid-19-deaths-1843119008)
+> 原文：<https://lifehacker.com/why-we-cant-dismiss-any-covid-19-deaths-1843119008>
 
 "他们无论如何都会死的。"过去几周，社交媒体领域流行一种观点，即患有潜在疾病并感染新冠肺炎病毒的 [患者的死亡不应“算作】新冠肺炎](https://www.factcheck.org/2020/04/social-media-posts-make-baseless-claim-on-covid-19-death-toll/) 患者的死亡。是的，新冠肺炎致命病例在患有心脏病、肺病和糖尿病的人群中更常见。但这只是提出了一个问题，即官员们如何确定一个人真的死于新冠肺炎——特别是当疾病的死亡率被用作决定企业何时可以重新开业、人们何时可以重返工作岗位的一个因素时。
 

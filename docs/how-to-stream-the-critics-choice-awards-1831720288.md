@@ -1,6 +1,6 @@
 # 如何获得评论家选择奖
 
-> 原文:[https://life hacker . com/how-to-stream-the-critics-choice-awards-1831720288](https://lifehacker.com/how-to-stream-the-critics-choice-awards-1831720288)
+> 原文：<https://lifehacker.com/how-to-stream-the-critics-choice-awards-1831720288>
 
 评论家选择奖将于今晚 7 点播出。与金球奖一样，颁奖典礼一直是奥斯卡最佳预测者之一。今年的节目由泰雅·迪格斯主持，将于美国东部时间晚上 7 点在 CW 电视台正式开播。
 

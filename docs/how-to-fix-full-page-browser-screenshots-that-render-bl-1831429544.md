@@ -1,6 +1,6 @@
 # 如何修复呈现黑色的整页浏览器截图
 
-> 原文:[https://life hacker . com/how-to-fix-full-page-browser-screen-that-render-bl-1831429544](https://lifehacker.com/how-to-fix-full-page-browser-screenshots-that-render-bl-1831429544)
+> 原文：<https://lifehacker.com/how-to-fix-full-page-browser-screenshots-that-render-bl-1831429544>
 
 有很多不同的扩展可以用来在你的浏览器中抓取整页的屏幕截图，这通常是一种比“打印”成 PDF 或保存到你的电脑上作为一个完整的网站更优雅的保存网站内容的方式。自从我使用 Chrome 以来， [**全页截屏**](https://chrome.google.com/webstore/detail/full-page-screen-capture/fdpohaocaechififmbbbbbknoalclacl) 一直是我的首选，但如果你不想安装新的东西来做这件事，你也可以手动 [截屏](https://developers.google.com/web/updates/2017/04/devtools-release-notes#screenshots) 。( [同火狐](https://stackoverflow.com/questions/13158083/take-a-full-page-screenshot-with-firefox-on-the-command-line) )。)
 

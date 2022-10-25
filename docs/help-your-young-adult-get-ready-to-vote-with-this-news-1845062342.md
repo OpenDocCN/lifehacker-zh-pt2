@@ -1,6 +1,6 @@
 # 用这个新闻指南帮助你的年轻人准备投票
 
-> 原文:[https://life hacker . com/help-your-young-adult-get-ready-to-vote with the-news-1845062342](https://lifehacker.com/help-your-young-adult-get-ready-to-vote-with-this-news-1845062342)
+> 原文：<https://lifehacker.com/help-your-young-adult-get-ready-to-vote-with-this-news-1845062342>
 
 新一代的年轻人将(希望)在今年 11 月集体投票——但在他们投票之前，我们需要确保他们(和我们！)有能力在选举日之前的几周内找到候选人的可靠信息来源。一个好的开始:常识媒体新的 [社交媒体和新闻的年轻选民指南](https://www.commonsensemedia.org/young-voters-guide-to-social-media-and-the-news?j=7983190&sfmc_sub=208012034&l=2048712_HTML&u=153329790&mid=6409703&jb=2475&utm_source=org_young-voters-guide_20200914&utm_medium=email#section-3) 。
 

@@ -1,6 +1,6 @@
 # 停止“新教师挑战”
 
-> 原文:[https://life hacker . com/stop-with-the-new-teacher-challenge-1844916659](https://lifehacker.com/stop-with-the-new-teacher-challenge-1844916659)
+> 原文：<https://lifehacker.com/stop-with-the-new-teacher-challenge-1844916659>
 
 在最新一轮*中，人类到底发生了什么？*、现在抖音上有父母给他们的孩子看残疾人或患有影响他们外貌的疾病的人的照片。然后他们假装这些陌生人是他们孩子的新老师。因为，很明显，如果一个五岁的孩子对一个有伤疤或斗鸡眼的人或一个看起来严重醉酒的人做出恐惧的反应，那就太搞笑了。
 

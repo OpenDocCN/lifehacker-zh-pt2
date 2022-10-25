@@ -1,6 +1,6 @@
 # 必胜客的 Book-It 计划仍然存在
 
-> 原文:[https://life hacker . com/pizza-hut-s-book-it-program-is-still-around-1833131581](https://lifehacker.com/pizza-hut-s-book-it-program-is-still-around-1833131581)
+> 原文：<https://lifehacker.com/pizza-hut-s-book-it-program-is-still-around-1833131581>
 
 作为一个 90 年代在农村工人阶级地区长大的爱读书、好奇的孩子，我的生活围绕着三件事:我的足球队、图书馆和必胜客。后两者有着内在的联系，原因我稍后会解释(第一个肯定有助于燃烧后一个的热量余波)。看，在一年中辉煌的六个月里，我接触到了最精彩的骗局。
 

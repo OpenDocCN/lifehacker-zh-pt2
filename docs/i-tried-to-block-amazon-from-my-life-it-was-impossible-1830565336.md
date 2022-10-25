@@ -1,6 +1,6 @@
 # i tried to block amazon from my life it was impossible 1830565336
 
-> 原文:[https://gizmodo . com/I-tryed-to-block-Amazon-from-my-life-that-is-ability-1830565336](https://gizmodo.com/i-tried-to-block-amazon-from-my-life-it-was-impossible-1830565336)
+> 原文：<https://gizmodo.com/i-tried-to-block-amazon-from-my-life-it-was-impossible-1830565336>
 
 **第一周:亚马逊**
 

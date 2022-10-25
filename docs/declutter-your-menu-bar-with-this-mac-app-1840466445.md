@@ -1,6 +1,6 @@
 # 使用此 Mac 应用程序整理您的菜单栏
 
-> 原文:[https://life hacker . com/de clutter-your-menu-bar-with this-MAC-app-1840466445](https://lifehacker.com/declutter-your-menu-bar-with-this-mac-app-1840466445)
+> 原文：<https://lifehacker.com/declutter-your-menu-bar-with-this-mac-app-1840466445>
 
 随着您在 Mac 上安装越来越多的软件，您的菜单栏可能会开始被无关的图标弄得杂乱无章。这不仅看起来很乱，而且会让访问各种应用程序的设置变得有点麻烦。
 

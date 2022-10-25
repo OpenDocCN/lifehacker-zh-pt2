@@ -1,6 +1,6 @@
 # 当你找到一只丢失的狗或猫时该怎么做
 
-> 原文:[https://life hacker . com/1832937900](https://lifehacker.com/what-to-do-when-youve-found-a-lost-dog-or-cat-1832937900)
+> 原文：<https://lifehacker.com/what-to-do-when-youve-found-a-lost-dog-or-cat-1832937900>
 
 我喜欢 YouTube 上的猫狗变形视频。
 

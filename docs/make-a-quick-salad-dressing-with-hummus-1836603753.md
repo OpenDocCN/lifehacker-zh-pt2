@@ -1,6 +1,6 @@
 # 用鹰嘴豆泥做一道快速沙拉酱
 
-> 原文:[https://life hacker . com/make-a quick-a-salad-dressing-with-hummus-1836603753](https://lifehacker.com/make-a-quick-salad-dressing-with-hummus-1836603753)
+> 原文：<https://lifehacker.com/make-a-quick-salad-dressing-with-hummus-1836603753>
 
 大多数人都知道鹰嘴豆泥是一种很好的三明治酱；它有奶油味、坚果味、咸味，几乎适合各种饮食。这些都是我喜欢的沙拉酱，但是鹰嘴豆泥——直接从浴缸里出来的——对于淋在一堆绿色蔬菜上来说有点太稠了。
 

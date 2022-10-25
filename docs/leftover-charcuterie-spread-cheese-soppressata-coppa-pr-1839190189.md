@@ -1,6 +1,6 @@
 # 给剩余的熟食第二次生命作为传播
 
-> 原文:[https://thetakeout . com/left-charcuterie-spread-cheese-soppressata-coppa-pr-1839190189](https://thetakeout.com/leftover-charcuterie-spread-cheese-soppressata-coppa-pr-1839190189)
+> 原文：<https://thetakeout.com/leftover-charcuterie-spread-cheese-soppressata-coppa-pr-1839190189>
 
 它发生在我们最好的人身上。我们去杂货店的熟食区为聚会做一个拼盘，然后一头扎进美味腌肉的兔子洞里。薄而融化的意大利熏火腿叶、各种风格的腊肠、辛辣的 soppressata 和 coppa，一大块 mortadella。派对结束时呢？通常你会剩下一个盘子，里面每样都剩下一两片。不足以再装一盘，但肯定太多了，不能扔掉。
 

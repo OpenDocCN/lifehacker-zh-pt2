@@ -1,6 +1,6 @@
 # 除了仙人掌，我求你做点别的
 
-> 原文:[https://life hacker . com/I-am-乞求你做点别的什么 cacio-e-pepe-1843268645](https://lifehacker.com/i-am-begging-you-to-make-something-besides-cacio-e-pepe-1843268645)
+> 原文：<https://lifehacker.com/i-am-begging-you-to-make-something-besides-cacio-e-pepe-1843268645>
 
 请允许我，如果你愿意的话，享受一下烹饪上的小细节。虽然我几乎总是一个冠军，烹饪你喜欢的，你有什么，什么是最简单的，我非常厌倦看到 cacio e pepe 一次又一次地被美食媒体推给人们。(如果你有阅读大量美食网站的习惯，你可能已经注意到了这种面食的优势，但也许我对这种东西特别敏感。)我想把我的坏脾气归咎于“事情的现状”，但我从 2 月份开始就对这种意大利面不满，当时我看到一篇文章称它是“你可以为你的情人节做的最性感的菜”
 

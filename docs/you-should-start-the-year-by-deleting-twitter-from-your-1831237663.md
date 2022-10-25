@@ -1,6 +1,6 @@
 # 从手机中删除 Twitter 开始新的一年
 
-> 原文:[https://life hacker . com/you-should-start-by-deleting-Twitter-from-your-1831237663](https://lifehacker.com/you-should-start-the-year-by-deleting-twitter-from-your-1831237663)
+> 原文：<https://lifehacker.com/you-should-start-the-year-by-deleting-twitter-from-your-1831237663>
 
 在我们播客的， [*升级*](https://lifehacker.com/c/the-upgrade) 的现场录制中，我们的嘉宾四处分享他们一周的升级。虽然晚会的主题是“如何失败”，但我们的嘉宾也有一些成功的故事。
 

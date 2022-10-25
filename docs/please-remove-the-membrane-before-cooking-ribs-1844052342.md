@@ -1,6 +1,6 @@
 # 请在烹饪排骨之前去掉薄膜
 
-> 原文:[https://life hacker . com/please-remove-the-membrane-before-cooking-ribs-1844052342](https://lifehacker.com/please-remove-the-membrane-before-cooking-ribs-1844052342)
+> 原文：<https://lifehacker.com/please-remove-the-membrane-before-cooking-ribs-1844052342>
 
 就多肉烹饪 项目而言，排骨是一个相当简单的项目。无论你是吸烟、烧烤、烘烤还是腌制，准备一个令人印象深刻的架子是大多数家庭厨师可以轻松掌握的事情。但是有一件事许多新手排骨厨师忘记做，它可以大大破坏否则愉快的排骨吃的经验。
 

@@ -1,6 +1,6 @@
 # 如何在你称为“咖啡”的甜品饮料上省钱
 
-> 原文:[https://life hacker . com/how-to-save money-the-descent-drink-you-call-coffee-1835092390](https://lifehacker.com/how-to-save-money-on-that-dessert-drink-you-call-coffee-1835092390)
+> 原文：<https://lifehacker.com/how-to-save-money-on-that-dessert-drink-you-call-coffee-1835092390>
 
 我不会因为你点了一杯加少量咖啡的调味糖奶而对你评头论足。你喜欢让你的 [上瘾的豆水](https://lifehacker.com/what-caffeine-actually-does-to-your-brain-5585217) 味道好！但是这些附加的东西加起来，所以这里是如何让你的 6 美元的 frankendrink 降到仍然昂贵但不那么离谱的 3 美元左右。
 

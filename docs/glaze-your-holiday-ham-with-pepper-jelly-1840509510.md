@@ -1,6 +1,6 @@
 # 给你的假日火腿涂上胡椒果冻
 
-> 原文:[https://life hacker . com/glaze-your-holiday-ham-with pepper-jelly-1840509510](https://lifehacker.com/glaze-your-holiday-ham-with-pepper-jelly-1840509510)
+> 原文：<https://lifehacker.com/glaze-your-holiday-ham-with-pepper-jelly-1840509510>
 
 在咸的节日火腿上刷上一层粘稠的糖釉几乎是理所当然的，但是最好的釉料除了甜味之外还需要一种味道来使它们发光。一点醋或橙汁可以增加一些酸味和深度，但真正有趣的人会给他们的腌猪肉涂上胡椒果冻。
 

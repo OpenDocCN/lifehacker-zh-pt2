@@ -1,6 +1,6 @@
 # 三星 Galaxy Z Flip 和摩托罗拉 Razr 哪款翻盖手机更好？
 
-> 原文:[https://life hacker . com/which-flip-phone-better-samsungs-galaxy-z-flip-or-t-1841643968](https://lifehacker.com/which-flip-phone-is-better-samsungs-galaxy-z-flip-or-t-1841643968)
+> 原文：<https://lifehacker.com/which-flip-phone-is-better-samsungs-galaxy-z-flip-or-t-1841643968>
 
 三星 2 月 11 日的“三星拆包”活动 展示了几款新设备，包括其下一款可折叠智能手机:Galaxy Z Flip。与 [Galaxy Fold](https://lifehacker.com/why-you-should-wait-to-buy-the-samsung-galaxy-fold-1836727525) 的垂直折叠屏幕不同，Z Flip 像老式翻盖手机一样水平折叠——更不用说摩托罗拉最近发布的 [Razr](https://lifehacker.com/how-to-pre-order-the-motorola-razr-1841158604) 智能手机了。
 

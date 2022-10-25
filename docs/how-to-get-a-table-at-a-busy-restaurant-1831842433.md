@@ -1,6 +1,6 @@
 # 如何在繁忙的餐厅订到位子
 
-> 原文:[https://life hacker . com/how-to-get-a-table-at-a-busy-restaurant-1831842433](https://lifehacker.com/how-to-get-a-table-at-a-busy-restaurant-1831842433)
+> 原文：<https://lifehacker.com/how-to-get-a-table-at-a-busy-restaurant-1831842433>
 
 这是周六晚上，你和你的朋友想去附近最热门的餐厅。这里有一个小技巧可能会让这成为可能。
 

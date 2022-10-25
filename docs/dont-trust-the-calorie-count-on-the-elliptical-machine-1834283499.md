@@ -1,6 +1,6 @@
 # 不要相信椭圆机上的卡路里计数
 
-> 原文:[https://life hacker . com/don-trust-the-calorie-count-on-the-椭圆机-1834283499](https://lifehacker.com/dont-trust-the-calorie-count-on-the-elliptical-machine-1834283499)
+> 原文：<https://lifehacker.com/dont-trust-the-calorie-count-on-the-elliptical-machine-1834283499>
 
 如果你根据燃烧最多卡路里的东西来选择你的有氧运动，你可能已经注意到赢家似乎是椭圆机。(那是你的腿以跑步的方式运动，但它们始终与机器保持接触。不幸的是，众所周知，机器的卡路里读数是不准确的，包括椭圆值。
 

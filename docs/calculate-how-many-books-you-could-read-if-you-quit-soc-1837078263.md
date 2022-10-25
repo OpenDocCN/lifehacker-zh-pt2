@@ -1,6 +1,6 @@
 # 计算一下如果你退出社交媒体，你能读多少本书
 
-> 原文:[https://life hacker . com/calculate-how-much-books-you-court-SOC-1837078263](https://lifehacker.com/calculate-how-many-books-you-could-read-if-you-quit-soc-1837078263)
+> 原文：<https://lifehacker.com/calculate-how-many-books-you-could-read-if-you-quit-soc-1837078263>
 
 OmniCalculatorT5】的一个新计算器显示你一年能读多少本书，如果你检查它们而不是检查社交媒体的话。输入你查看社交媒体(或你愿意放弃的任何浪费时间的网站)的频率，以及你每次访问在那里花费的时间。Omni C alculator 会根据典型的页数和阅读速度，将其转化为书籍数量。
 

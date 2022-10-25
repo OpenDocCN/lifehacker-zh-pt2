@@ -1,6 +1,6 @@
 # 既然你的办公室关门了，去哪里打印文件
 
-> 原文:[https://life hacker . com/where-to-print-documents-now-the-your ' s office-closed-1844636402](https://lifehacker.com/where-to-print-documents-now-that-your-office-is-closed-1844636402)
+> 原文：<https://lifehacker.com/where-to-print-documents-now-that-your-office-is-closed-1844636402>
 
 我的阅读通勤不见了，我的家庭网络滞后了，没有免费的百吉饼可以囤积，但是在家工作最令人沮丧的小麻烦发生在我需要打印文件的时候。这种情况很少发生，但一旦发生，让我告诉你吧，这是一种痛苦。需要一份实体副本——无论是归档、签署还是扫描并返回——让我想起我是多么理所当然地认为办公室打印机舒适地摆放在我以前工作的每一层，它们的几十令附近的纸张和源源不断的墨水使得打印成为一项几乎不用考虑的任务。
 

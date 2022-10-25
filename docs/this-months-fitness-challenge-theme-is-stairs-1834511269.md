@@ -1,6 +1,6 @@
 # 这个月的健身挑战主题是:楼梯
 
-> 原文:[https://life hacker . com/this-months-fitness-challenge-theme-is-stairs-1834511269](https://lifehacker.com/this-months-fitness-challenge-theme-is-stairs-1834511269)
+> 原文：<https://lifehacker.com/this-months-fitness-challenge-theme-is-stairs-1834511269>
 
 这个月，我们的 [挑战](https://lifehacker.com/c/lifehacker-fitness-challenge) 你走楼梯。整个 5 月，我们将为您提供以楼梯为中心的锻炼和训练，并将其添加到您的日常活动中。第一个，很简单:走或跑上一堆楼梯。
 

@@ -1,6 +1,6 @@
 # 如何在不结束友谊的情况下在政治上有不同意见
 
-> 原文:[https://life hacker . com/how-to-disagree-on-politics-without-end-a-friend-1838187333](https://lifehacker.com/how-to-disagree-on-politics-without-ending-a-friendship-1838187333)
+> 原文：<https://lifehacker.com/how-to-disagree-on-politics-without-ending-a-friendship-1838187333>
 
 在《纽约时报》 的一篇报道中，一名女子称，她在川普当选当晚威胁要结束与丈夫 11 年的婚姻。“第二天早上，我含着眼泪告诉尼辛，我们必须离婚，因为在接下来的四年里，我不能和他一起生活，”当事女子黛布拉·盖纳告诉《NYT》。“他说，‘亲爱的，我们不会离婚的。我们只是不会在未来四年谈论政治。”
 

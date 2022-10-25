@@ -1,6 +1,6 @@
 # 是的，你可以回收聚苯乙烯泡沫塑料
 
-> 原文:[https://life hacker . com/yes-you-can-recycle-styrofoam-1831783128](https://lifehacker.com/yes-you-can-recycle-styrofoam-1831783128)
+> 原文：<https://lifehacker.com/yes-you-can-recycle-styrofoam-1831783128>
 
 随着全球范围内禁止使用一次性塑料袋和吸管的力度加大，人们的注意力又集中在了另一个强大的环保对手身上:泡沫聚苯乙烯。泡沫聚苯乙烯对水生生物和地球的整体健康造成了严重的健康问题，这并不奇怪，因为它是由成千上万块不可生物降解的塑料制成的。
 

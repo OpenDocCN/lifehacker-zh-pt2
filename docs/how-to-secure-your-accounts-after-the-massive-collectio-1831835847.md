@@ -1,6 +1,6 @@
 # 在大规模“集合#1”密码泄露后，如何保护您的帐户
 
-> 原文:[https://life hacker . com/how-to-secure-your accounts-after-the-massive-collectio-1831835847](https://lifehacker.com/how-to-secure-your-accounts-after-the-massive-collectio-1831835847)
+> 原文：<https://lifehacker.com/how-to-secure-your-accounts-after-the-massive-collectio-1831835847>
 
 “又是一天，又是一次偏头痛”是海绵宝宝的 Squidward Q. Tentacles 中的一句美妙的晨间咒语，你也可以几乎每周一次将它应用到你的账户安全中。感觉总是有一些新的数据泄露或不幸的泄漏需要您处理，今天的练习是最重要的。最大的一个，实际上:1，160，253，228 个电子邮件和密码的组合，总共影响了 7.73 亿个唯一的电子邮件地址。
 

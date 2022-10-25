@@ -1,6 +1,6 @@
 # 不要用方便面烫伤你的孩子
 
-> 原文:[https://life hacker . com/don ' t-burn-your-kids with-instant-ramen-1844624742](https://lifehacker.com/dont-burn-your-kids-with-instant-ramen-1844624742)
+> 原文：<https://lifehacker.com/dont-burn-your-kids-with-instant-ramen-1844624742>
 
 一碗热腾腾的拉面让成为儿童或成年人的美味佳肴。但是当我们把它给孩子们时，我们可能没有意识到我们正在做的是给他们一碗接近的开水——特别是如果汤是直接从微波炉里出来的。
 

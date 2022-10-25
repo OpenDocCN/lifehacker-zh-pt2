@@ -1,6 +1,6 @@
 # 购买往返达美机票，今天起价 93 美元
 
-> 原文:[https://life hacker . com/buy-round-trip-delta-tickets-starting-at-93-today-1838255532](https://lifehacker.com/buy-round-trip-delta-tickets-starting-at-93-today-1838255532)
+> 原文：<https://lifehacker.com/buy-round-trip-delta-tickets-starting-at-93-today-1838255532>
 
 达美航空今天在票价上进行闪购，降低了许多往返机票的价格，其中一张低至 93 美元。
 

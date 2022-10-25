@@ -1,6 +1,6 @@
 # 如何看这个月木星、火星、土星天天升起
 
-> 原文:[https://life hacker . com/how-to-see-Jupiter-mars-and-Saturn-rise-every-day-this-1844021311](https://lifehacker.com/how-to-see-jupiter-mars-and-saturn-rise-every-day-this-1844021311)
+> 原文：<https://lifehacker.com/how-to-see-jupiter-mars-and-saturn-rise-every-day-this-1844021311>
 
 现在世界上的一切可能都非常糟糕，但如果没有其他事情，我们将在 2020 年 6 月看到木星、火星和土星每天升起。尽管木星和土星是太阳系中最大的，但它们不是最亮的。但是这个月，这两个气态巨行星将会比平常更容易被看到，而且作为一个额外的收获，你应该能够在另外两个行星的左边发现火星。
 

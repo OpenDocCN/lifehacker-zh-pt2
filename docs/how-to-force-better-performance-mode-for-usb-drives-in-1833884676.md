@@ -1,6 +1,6 @@
 # 如何在 Windows 10 中强制 USB 驱动器进入“更高性能”模式
 
-> 原文:[https://life hacker . com/how-to-force-better-performance-mode-for-USB-drives-in-1833884676](https://lifehacker.com/how-to-force-better-performance-mode-for-usb-drives-in-1833884676)
+> 原文：<https://lifehacker.com/how-to-force-better-performance-mode-for-usb-drives-in-1833884676>
 
 随着最新的 Windows 10 更新， [Windows 10 1809](https://docs.microsoft.com/en-us/windows/whats-new/whats-new-windows-10-version-1809) ，微软已经改变了默认的 USB 驱动器传输设置，以支持快速移除而不是更好的性能。
 

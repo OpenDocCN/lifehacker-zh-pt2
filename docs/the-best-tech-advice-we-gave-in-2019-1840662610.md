@@ -1,6 +1,6 @@
 # 我们在 2019 年给出的最佳技术建议
 
-> 原文:[https://life hacker . com/the-best-tech-advice-we-give-in-2019-1840662610](https://lifehacker.com/the-best-tech-advice-we-gave-in-2019-1840662610)
+> 原文：<https://lifehacker.com/the-best-tech-advice-we-gave-in-2019-1840662610>
 
 52 周，52 [Tech 911](https://lifehacker.com/c/tech-911) 专栏——减去一两周我在度假，根本无法从远处回答你那些狂野疯狂的科技问题。虽然 Lifehacker 完全是关于服务和生产力的，但我在我们每周的 Tech 911 技术建议专栏中发现了一种特殊的快乐。那不是因为我写的。嗯，不是*，只是*，因为是我写的。相反，我喜欢有机会直接和 Lifehacker 的读者交谈。我喜欢听到影响你的硬件和服务的古怪问题，试图解决它们让我觉得自己像是在一个数字版的 Stump the Chumps(对那些过去热衷于汽车话题的人来说)。
 

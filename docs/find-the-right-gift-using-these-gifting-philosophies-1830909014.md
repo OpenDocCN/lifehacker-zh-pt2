@@ -1,6 +1,6 @@
 # 运用这些送礼哲学找到合适的礼物
 
-> 原文:[https://life hacker . com/find-the-right-gift-use-these-gifting-philosophy-1830909014](https://lifehacker.com/find-the-right-gift-using-these-gifting-philosophies-1830909014)
+> 原文：<https://lifehacker.com/find-the-right-gift-using-these-gifting-philosophies-1830909014>
 
 有些人很擅长买到完全合适的东西，而且价格也很便宜；对于那些在最后一刻惊慌失措地购买一瓶葡萄酒的人来说，从不同的角度考虑购买礼物可能会有所帮助。
 

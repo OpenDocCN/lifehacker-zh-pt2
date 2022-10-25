@@ -1,6 +1,6 @@
 # 如何根据订购选项选择最好的家庭安全摄像机
 
-> 原文:[https://gizmodo . com/how-to-choose-the-best-home-security-camera-based-on-su-1843627629](https://gizmodo.com/how-to-choose-the-best-home-security-camera-based-on-su-1843627629)
+> 原文：<https://gizmodo.com/how-to-choose-the-best-home-security-camera-based-on-su-1843627629>
 
 如果你想用智能安全摄像头保护你的财产，选项列表已经 [不再是](https://gizmodo.com/ring-drops-a-major-app-update-putting-privacy-and-secu-1841397104) 。这可能会让你很难选择最适合你的型号，但除了前期成本、夜视、视野和防风雨，还有一个关键的特点需要注意:订阅价格。
 

@@ -1,6 +1,6 @@
 # 我是 Kaeo Milker，《风暴英雄》的制作总监，这就是我的工作方式
 
-> 原文:[https://life hacker . com/im-kaeo-milker-heroes-of-storm-production-director-1830474725](https://lifehacker.com/im-kaeo-milker-heroes-of-the-storm-production-director-1830474725)
+> 原文：<https://lifehacker.com/im-kaeo-milker-heroes-of-the-storm-production-director-1830474725>
 
 Kaeo Milker 在暴雪娱乐享受了漫长而令人大开眼界的职业生涯:QA，设施管理，招聘，现在，领导该公司在 MOBA 的大专营权，*风暴英雄*。不过，你可能更愿意听从他的建议，而不是跟着他走；虽然他是*英雄*船的船长，但他很快承认你不会在游戏排行榜上找到他。我们在今年的暴雪嘉年华上采访了 Kaeo，他就如何管理你*认为你应该作为职业做的事情和你*喜欢作为职业做的事情给出了一些很好的建议。**
 

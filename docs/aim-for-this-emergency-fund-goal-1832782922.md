@@ -1,6 +1,6 @@
 # 瞄准这个应急基金目标
 
-> 原文:[https://life hacker . com/aim-for-this-emergency-fund-goal-1832782922](https://lifehacker.com/aim-for-this-emergency-fund-goal-1832782922)
+> 原文：<https://lifehacker.com/aim-for-this-emergency-fund-goal-1832782922>
 
 说到遵循标准的财务建议，我们中有多少人能说我们实际上在一个应急基金中存了三至六个月的生活费？
 

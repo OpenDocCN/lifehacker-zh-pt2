@@ -1,6 +1,6 @@
 # 和一只肯塔基雄鹿一起喝醉
 
-> 原文:[https://life hacker . com/get-drugh with a-Kentucky-buck-1831497332](https://lifehacker.com/get-drunk-with-a-kentucky-buck-1831497332)
+> 原文：<https://lifehacker.com/get-drunk-with-a-kentucky-buck-1831497332>
 
 各位周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。这个星期我们用大量的烈性波旁酒赚了不少钱。
 

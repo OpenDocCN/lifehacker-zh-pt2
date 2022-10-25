@@ -1,6 +1,6 @@
 # 用魔法摆脱孩子糟糕的一天
 
-> 原文:[https://life hacker . com/get-ride-of-your-kids-bad-day with a magic-spell-1833295489](https://lifehacker.com/get-rid-of-your-kids-bad-day-with-a-magic-spell-1833295489)
+> 原文：<https://lifehacker.com/get-rid-of-your-kids-bad-day-with-a-magic-spell-1833295489>
 
 有时候你早上第一件事就是有这种感觉。你的孩子醒来时心情不好，你想，“嗯，*这*应该是有趣的一天。”或者当你去学校接他们的时候，他们正在抱怨，平息了你在漫长的一天后见到他们时的兴奋。
 

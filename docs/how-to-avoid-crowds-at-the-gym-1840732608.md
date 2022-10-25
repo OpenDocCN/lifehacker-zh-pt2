@@ -1,6 +1,6 @@
 # 如何避开健身房的人群
 
-> 原文:[https://life hacker . com/how-to-避开健身房的人群-1840732608](https://lifehacker.com/how-to-avoid-crowds-at-the-gym-1840732608)
+> 原文：<https://lifehacker.com/how-to-avoid-crowds-at-the-gym-1840732608>
 
 所以你找到了一个新的健身房，我敢说，它很漂亮。有新的设备，一尘不染的更衣室，和真正的空间蔓延，而不会撞到你旁边的升降机。T2:当然，总有一个陷阱。
 

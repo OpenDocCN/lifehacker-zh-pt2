@@ -1,6 +1,6 @@
 # 这段视频将训练你长时间屏住呼吸
 
-> 原文:[https://life hacker . com/this-video-will-train-you-屏息以待 cra-1844793275](https://lifehacker.com/this-video-will-train-you-to-hold-your-breath-for-a-cra-1844793275)
+> 原文：<https://lifehacker.com/this-video-will-train-you-to-hold-your-breath-for-a-cra-1844793275>
 
 作为一个终身哮喘患者，我是最不可能赢得屏住呼吸比赛的人(这很好，因为这意味着我也最有可能赢得“你认识的最酷的人”比赛，因为没有什么比在寒冷的日子里慢跑后气喘吁吁更糟糕的了)。但是由于过去几周我一直在练习一种呼吸冥想的方法，我觉得自己已经准备好迎接所有的挑战了。(除了 [大卫·布赖恩](https://davidblaine.com/world-record/#:~:text=On%20april%2030%2C%202008%2C%20David,for%20oxygen%20assisted%20static%20apnea.)；撇开肺活量不谈，他只是 [看起来像个鸡巴](https://www.vox.com/a/sexual-harassment-assault-allegations-list/david-blaine) 。)
 

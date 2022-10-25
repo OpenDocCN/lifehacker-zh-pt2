@@ -1,6 +1,6 @@
 # 如何捐赠或出售二手乐高玩具
 
-> 原文:[https://life hacker . com/how-to-donate-or-sell-used-Legos-1831173688](https://lifehacker.com/how-to-donate-or-sell-used-legos-1831173688)
+> 原文：<https://lifehacker.com/how-to-donate-or-sell-used-legos-1831173688>
 
 一个儿时的朋友最近在脸书发的帖子引起了我的注意:“有人想扔掉乐高吗？”那天我刚被分配了一个关于如何回收或传递旧乐高玩具的故事，所以我当然马上想到了我最喜欢的一个词，在这种情况下最适用:kismet。但除了巧合之外，这个帖子表明了乐高玩具在许多父母生活中的重要性——无论他们的孩子目前是否喜欢它们，或者他们想得到更多，或者他们想扔掉它们。
 

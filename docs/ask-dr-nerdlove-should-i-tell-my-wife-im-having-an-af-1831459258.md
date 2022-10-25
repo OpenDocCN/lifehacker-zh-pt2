@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:我应该告诉我妻子我有外遇吗？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-should-I-tell-my-wife-im-having-an-af-1831459258](https://kotaku.com/ask-dr-nerdlove-should-i-tell-my-wife-im-having-an-af-1831459258)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-should-i-tell-my-wife-im-having-an-af-1831459258>
 
 大家好，你们这些可怕的后圣诞时代的吝啬鬼们，欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是唯一一个登上年度最佳游戏榜首的约会建议专栏。
 

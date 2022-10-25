@@ -1,6 +1,6 @@
 # 如何在 iOS 13 和 iPadOS 13 中隐藏 Memojis
 
-> 原文:[https://life hacker . com/how-to-hide-memo jis-in-IOs-13-and-ipados-13-1838491628](https://lifehacker.com/how-to-hide-memojis-in-ios-13-and-ipados-13-1838491628)
+> 原文：<https://lifehacker.com/how-to-hide-memojis-in-ios-13-and-ipados-13-1838491628>
 
 在 iPad 和 iOS 13 中，Memojis 已经被添加到 iPad 和 iPhone 键盘上，如果你是一个奇怪的令人毛骨悚然的个性化外观的粉丝，这是一个好消息。如果你不是这些人中的一员，那么你可能会觉得这种包含有点烦人——它们在表情键盘上占据了惊人的空间。
 

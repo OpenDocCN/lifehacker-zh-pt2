@@ -1,6 +1,6 @@
 # 为你的孩子创建一个“生活播放列表”
 
-> 原文:[https://life hacker . com/create-a-living-playlist-for-your-kids-1840776705](https://lifehacker.com/create-a-living-playlist-for-your-kids-1840776705)
+> 原文：<https://lifehacker.com/create-a-living-playlist-for-your-kids-1840776705>
 
 也许从你的孩子出生时播放的那首歌开始。或者总是让他们睡着的那个。他们真正跳舞的第一首歌，他们蹒跚学步的小屁股随着节奏跳跃，以所有蹒跚学步的孩子跳舞的那种不平稳的方式。
 

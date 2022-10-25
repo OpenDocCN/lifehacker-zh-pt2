@@ -1,6 +1,6 @@
 # 今天是吃感恩节剩菜的最后一天
 
-> 原文:[https://life hacker . com/today-is-last-day-to-eat-your-thanksgiving-surplus-1830664640](https://lifehacker.com/today-is-the-last-day-to-eat-your-thanksgiving-leftover-1830664640)
+> 原文：<https://lifehacker.com/today-is-the-last-day-to-eat-your-thanksgiving-leftover-1830664640>
 
 除了少数例外，剩菜可以在冰箱里保存四天。这意味着，如果你有 [火鸡、味噌馅、garsquashrooms](https://skillet.lifehacker.com/how-to-have-a-delicious-thanksgiving-from-potatoes-to-p-1830543983) 等在冰箱里冷藏，今天就是把它们吃光的日子。
 

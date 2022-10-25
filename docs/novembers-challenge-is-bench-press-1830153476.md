@@ -1,6 +1,6 @@
 # 11 月的挑战是:卧推
 
-> 原文:[https://life hacker . com/novembers-challenge-is-bench-press-1830153476](https://lifehacker.com/novembers-challenge-is-bench-press-1830153476)
+> 原文：<https://lifehacker.com/novembers-challenge-is-bench-press-1830153476>
 
 我们已经 [蹲起](https://vitals.lifehacker.com/julys-fitness-challenge-is-squats-1827051624) 和 [硬拉](https://vitals.lifehacker.com/how-was-your-month-of-deadlifts-1830124247) ，所以是时候解决 [卧推](https://lifehacker.com/everything-you-need-to-know-to-master-the-bench-press-s-1769031371) 了。我们为每个人都留有空间:即使你从未尝试过，也许有点害怕把酒吧摔在你的脸上，你仍然可以加入。
 

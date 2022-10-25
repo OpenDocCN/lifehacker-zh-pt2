@@ -1,6 +1,6 @@
 # 如何从国会图书馆下载免费电影
 
-> 原文:[https://life hacker . com/how-to-stream-free-movies-from-the-library-of-congress-1829985655](https://lifehacker.com/how-to-stream-free-movies-from-the-library-of-congress-1829985655)
+> 原文：<https://lifehacker.com/how-to-stream-free-movies-from-the-library-of-congress-1829985655>
 
 下次你发现自己在流媒体队列中滚动，认为没有什么值得看的，试试国会图书馆的国家放映室。
 

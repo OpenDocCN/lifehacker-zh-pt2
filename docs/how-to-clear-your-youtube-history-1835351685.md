@@ -1,6 +1,6 @@
 # 如何清除你的 YouTube 历史记录
 
-> 原文:[https://life hacker . com/how-to-clear-your-YouTube-history-1835351685](https://lifehacker.com/how-to-clear-your-youtube-history-1835351685)
+> 原文：<https://lifehacker.com/how-to-clear-your-youtube-history-1835351685>
 
 每当您在 YouTube 上观看视频时，默认情况下，该视频会被添加到您的 YouTube 历史记录中。
 

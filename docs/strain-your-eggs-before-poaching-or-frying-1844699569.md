@@ -1,6 +1,6 @@
 # 在水煮或煎炸之前过滤你的鸡蛋
 
-> 原文:[https://life hacker . com/strain-your-eggs-before-水煮或油炸-1844699569](https://lifehacker.com/strain-your-eggs-before-poaching-or-frying-1844699569)
+> 原文：<https://lifehacker.com/strain-your-eggs-before-poaching-or-frying-1844699569>
 
 我们通常认为鸡蛋有两个不同的部分:蛋白和蛋黄。(当然)比那要复杂得多。很少需要考虑鸡蛋的所有 15 个部分，但是考虑到鸡蛋的两个部分*——外层蛋白和中间蛋白——可以产生更整洁、更有特色的荷包蛋和煎蛋。*
 

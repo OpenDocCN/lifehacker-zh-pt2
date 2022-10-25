@@ -1,6 +1,6 @@
 # 这个办公室噪音模拟器让在家工作不再那么孤独
 
-> 原文:[https://life hacker . com/this-office-noise-simulator-makes-work-from-home-les-1842892362](https://lifehacker.com/this-office-noise-simulator-makes-working-from-home-les-1842892362)
+> 原文：<https://lifehacker.com/this-office-noise-simulator-makes-working-from-home-les-1842892362>
 
 设计可爱的微型网站[Reichenbergerstr 121](https://imisstheoffice.eu/)模拟办公室噪音——如果你在家工作，并且你想念在办公室、咖啡厅或其他人与你一起工作的任何地方工作的声音，这很方便。
 

@@ -1,6 +1,6 @@
 # 如果你不想你的 Google+帖子被公开存档，那就赶快行动吧
 
-> 原文:[https://life hacker . com/act-fast-if-you-dont-want-your-Google-posts-public-a-1833382165](https://lifehacker.com/act-fast-if-you-dont-want-your-google-posts-publicly-a-1833382165)
+> 原文：<https://lifehacker.com/act-fast-if-you-dont-want-your-google-posts-publicly-a-1833382165>
 
 Google+将于 4 月 2 日 被砍掉，但你的一些旧帖子可能会保留下来——不管你愿不愿意。为了保存互联网内容， [互联网档案馆](https://archive.org/index.php) 和 [档案馆团队](https://www.archiveteam.org/) 创建网站和其他互联网内容的数字备份，否则这些内容会随着时间的推移而丢失，他们的下一个项目是保存 Google+。
 

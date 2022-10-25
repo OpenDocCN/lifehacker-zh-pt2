@@ -1,6 +1,6 @@
 # 把一罐玉米变成奶油意大利面酱
 
-> 原文:[https://life hacker . com/turn-a-can-of-corn-to-a-creamy-pasta-sauce-1843543412](https://lifehacker.com/turn-a-can-of-corn-into-a-creamy-pasta-sauce-1843543412)
+> 原文：<https://lifehacker.com/turn-a-can-of-corn-into-a-creamy-pasta-sauce-1843543412>
 
 玉米罐头没有也永远不会像新鲜的东西一样好——谢天谢地，新鲜的东西刚刚上市——T1，但我还是留了几罐，以防万一我遇到紧急情况需要 [玉米砂锅](https://lifehacker.com/an-ode-to-jiffy-corn-casserole-1830231857) 或 [快速腌制玉米](https://skillet.lifehacker.com/you-should-put-pickled-corn-on-everything-1827544519) 。不可否认，它并不是直接从罐子里拿出来的，但它对一点点可爱的修改反应很好。一只母鸡加上洋葱、大蒜和一点意大利面水，你可以把它变成一种令人惊讶的奢华奶油意大利面酱。
 

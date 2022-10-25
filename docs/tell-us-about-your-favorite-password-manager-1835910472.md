@@ -1,6 +1,6 @@
 # 告诉我们你最喜欢的密码管理器
 
-> 原文:[https://life hacker . com/tell-us-about-your favorite-password-manager-1835910472](https://lifehacker.com/tell-us-about-your-favorite-password-manager-1835910472)
+> 原文：<https://lifehacker.com/tell-us-about-your-favorite-password-manager-1835910472>
 
 又是一个 [蜂巢五个](https://lifehacker.com/tag/hive-five) 的时候了！这一次，我们想听听你最喜欢的私人助理的世界经理人。如果你没有，你还在等什么？不要背同样的几个， [可怕的密码](https://lifehacker.com/donald-was-one-of-the-worst-passwords-you-used-in-201-1831046351)；你比那个好
 

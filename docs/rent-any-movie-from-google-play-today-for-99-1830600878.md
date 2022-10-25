@@ -1,6 +1,6 @@
 # 现在就以 0.99 美元的价格从 Google Play 上租借任何电影
 
-> 原文:[https://life hacker . com/rent-any-movie-from-Google-play-today-for-99-1830600878](https://lifehacker.com/rent-any-movie-from-google-play-today-for-99-1830600878)
+> 原文：<https://lifehacker.com/rent-any-movie-from-google-play-today-for-99-1830600878>
 
 如果你今天下午想找些事情和家人一起做，或者急需一些东西让你所有的房客都有事可做，谷歌提供了一个非常不错的电影租赁服务。仅在今天，Google Play 库中符合租赁条件的每部电影都可以以 0.99 美元的价格租赁。
 

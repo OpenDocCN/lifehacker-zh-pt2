@@ -1,6 +1,6 @@
 # 用慢炖锅或速溶锅制作片状精盐
 
-> 原文:[https://life hacker . com/make-flaggy-finishing-salt in-your-slow-cooker-or-instan-1831643616](https://lifehacker.com/make-flaky-finishing-salt-in-your-slow-cooker-or-instan-1831643616)
+> 原文：<https://lifehacker.com/make-flaky-finishing-salt-in-your-slow-cooker-or-instan-1831643616>
 
 截至两分钟前，我的厨房里有 17 种不同类型的盐，包括一个雅各布森采样器(我正在有条不紊地工作)和一包四氢大麻酚浸泡的东西(我没有试过)。我深爱着我所有的咸味儿子，但钻石水晶犹太和片状马尔东比任何人都有更多的用途——DC 是用来烹饪的；马尔登是为了完成。
 

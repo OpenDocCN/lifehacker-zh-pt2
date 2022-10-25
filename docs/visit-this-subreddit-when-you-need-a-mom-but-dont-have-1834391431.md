@@ -1,6 +1,6 @@
 # 当你需要一个妈妈，却没有一个支持你的妈妈时，来看看这个网站吧
 
-> 原文:[https://life hacker . com/visit-this-subred dit-when you-need-a mom-but-don ' t-have-1834391431](https://lifehacker.com/visit-this-subreddit-when-you-need-a-mom-but-dont-have-1834391431)
+> 原文：<https://lifehacker.com/visit-this-subreddit-when-you-need-a-mom-but-dont-have-1834391431>
 
 对话开始:
 

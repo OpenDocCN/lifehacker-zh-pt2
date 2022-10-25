@@ -1,6 +1,6 @@
 # 薄板锅也是很好的锅底
 
-> 原文:[https://life hacker . com/sheet-pan-make-great-pan-sauce-too-1839071667](https://lifehacker.com/sheet-pans-make-great-pan-sauces-too-1839071667)
+> 原文：<https://lifehacker.com/sheet-pans-make-great-pan-sauces-too-1839071667>
 
 很难比 [单锅饭菜](https://skillet.lifehacker.com/make-two-weeks-worth-of-breakfasts-with-one-sheet-pan-1819690171) 方便。在同一个锅里并排烘烤蛋白质和蔬菜是一顿丰盛大餐的捷径。嗯，*快完成了——调味汁在哪里？单锅还是锅，那我们为什么要给长柄锅预留 [锅酱](https://lifehacker.com/how-to-make-a-freaking-pan-sauce-1795277933) ？* 
 

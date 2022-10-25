@@ -1,6 +1,6 @@
 # 如何玩睾丸
 
-> 原文:[https://life hacker . com/how-to-play-with-睾丸-1818777601](https://lifehacker.com/how-to-play-with-testicles-1818777601)
+> 原文：<https://lifehacker.com/how-to-play-with-testicles-1818777601>
 
 许多人对触摸睾丸感到紧张，因为他们害怕伤害与睾丸相连的人。它们很敏感，这是真的，但这也是双向的——处理它们也会让睾丸组织非常愉快。这是你玩球的指南。
 

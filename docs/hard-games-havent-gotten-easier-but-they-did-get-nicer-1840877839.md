@@ -1,6 +1,6 @@
 # 艰苦的游戏并没有变得更容易，但它们确实变得更好
 
-> 原文:[https://kotaku . com/hard-games-haven-have-get-easy-but-they-done-be-nice-1840877839](https://kotaku.com/hard-games-havent-gotten-easier-but-they-did-get-nicer-1840877839)
+> 原文：<https://kotaku.com/hard-games-havent-gotten-easier-but-they-did-get-nicer-1840877839>
 
 在视频游戏设计的早期，从顾客身上榨取金钱的最有利可图的方式是将他们粉碎成原子尘埃，让他们插入一枚 25 美分的硬币，将自己重新组装成人形。
 

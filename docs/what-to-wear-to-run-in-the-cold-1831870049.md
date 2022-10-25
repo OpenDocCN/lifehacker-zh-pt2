@@ -1,6 +1,6 @@
 # 穿什么在寒冷中跑步
 
-> 原文:[https://life hacker . com/what-to-wear-in-the-cold-1831870049](https://lifehacker.com/what-to-wear-to-run-in-the-cold-1831870049)
+> 原文：<https://lifehacker.com/what-to-wear-to-run-in-the-cold-1831870049>
 
 寒冷的天气不一定会阻止你跑步，但穿衣服是一个难题:一旦你开始出汗，你如何避免屁股被冻僵，又不会过热？在这段视频中，我们将向你展示该穿什么。
 

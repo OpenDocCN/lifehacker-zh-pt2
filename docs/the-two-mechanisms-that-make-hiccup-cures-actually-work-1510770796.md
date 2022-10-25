@@ -1,6 +1,6 @@
 # 治疗呃逆的两种机制实际上是有效的
 
-> 原文:[https://life hacker . com/the-two-mechanisms-that-make-hiccup-cures-actual-work-1510770796](https://lifehacker.com/the-two-mechanisms-that-make-hiccup-cures-actually-work-1510770796)
+> 原文：<https://lifehacker.com/the-two-mechanisms-that-make-hiccup-cures-actually-work-1510770796>
 
 打嗝无疑是令人讨厌的，它真的会扰乱你的一天。你可能有自己的家庭疗法来让他们停止。如果它们有效，那很好，但是你可能会奇怪为什么一种方法比另一种更有效。事实证明， [英国广播公司进行了一项调查](https://www.bbc.com/future/article/20140127-do-hiccup-remedies-work) ，找出需要发生什么才能让你不再打嗝。
 

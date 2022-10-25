@@ -1,6 +1,6 @@
 # 立即以 300 美元的价格购买三星 Galaxy Note 10+
 
-> 原文:[https://life hacker . com/get-a-Samsung-galaxy-note-10-for-300-off-right-now-1839939969](https://lifehacker.com/get-a-samsung-galaxy-note-10-for-300-off-right-now-1839939969)
+> 原文：<https://lifehacker.com/get-a-samsung-galaxy-note-10-for-300-off-right-now-1839939969>
 
 跳到易贝，你就能以仅仅 800 美元的价格买到三星 Galaxy Note 10+,这是我们一段时间以来看到的最低价格(肯定比你将看到的大多数黑色星期五手机交易要好，如果有的话)。
 

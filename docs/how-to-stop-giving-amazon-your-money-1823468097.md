@@ -1,6 +1,6 @@
 # 如何停止给亚马逊你的钱
 
-> 原文:[https://life hacker . com/how-to-stop-giving-Amazon-your-money-1823468097](https://lifehacker.com/how-to-stop-giving-amazon-your-money-1823468097)
+> 原文：<https://lifehacker.com/how-to-stop-giving-amazon-your-money-1823468097>
 
 很难想象没有亚马逊的生活。该公司提供从网上购物到杂货店送货到有声读物到流媒体视频的一切，一切尽在你的指尖，而且价格低廉。这是一个特别方便的地方，当你在家里被隔离时，几乎所有你需要的东西都可以送到你家门口。
 

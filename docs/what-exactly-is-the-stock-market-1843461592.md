@@ -1,6 +1,6 @@
 # 股市到底是什么？
 
-> 原文:[https://life hacker . com/到底什么是股市-1843461592](https://lifehacker.com/what-exactly-is-the-stock-market-1843461592)
+> 原文：<https://lifehacker.com/what-exactly-is-the-stock-market-1843461592>
 
 即使你有一个退休账户或其他投资组合，你也可能对股市实际上是什么感到困惑。所以我们来整理一下。
 

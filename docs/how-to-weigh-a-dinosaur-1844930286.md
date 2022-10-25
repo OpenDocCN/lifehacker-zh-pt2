@@ -1,6 +1,6 @@
 # 如何给恐龙称重
 
-> 原文:[https://lifehacker.com/how-to-weigh-a-dinosaur-1844930286](https://lifehacker.com/how-to-weigh-a-dinosaur-1844930286)
+> 原文：<https://lifehacker.com/how-to-weigh-a-dinosaur-1844930286>
 
 在恐龙阶段中期和一个孩子交谈是非常棒的。他们几乎肯定比你知道更多关于恐龙的事实和数据，但他们也有很多无法回答的关于的问题，这些生物在灭绝前发生了什么。这是有道理的:很难想象这么大的东西会到处跑。
 

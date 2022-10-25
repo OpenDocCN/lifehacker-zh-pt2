@@ -1,6 +1,6 @@
 # 如何将整只火鸡浸泡在腌制液中
 
-> 原文:[https://life hacker . com/how-to-keep-a-whole-turkey-submed-a-sous-vide-bat-1839961205](https://lifehacker.com/how-to-keep-a-whole-turkey-submerged-in-a-sous-vide-bat-1839961205)
+> 原文：<https://lifehacker.com/how-to-keep-a-whole-turkey-submerged-in-a-sous-vide-bat-1839961205>
 
 一个幽灵正在困扰着感恩节——干火鸡的幽灵。防止这种恐怖的最简单的方法之一是将这种大屁股的鸟用水煮，但是，由于它的内脏曾经有一个大洞，所以将整只火鸡浸没在水中通常是相当具有挑战性的。为了克服浮力，你可以把火鸡切成四份，或者你*用高汤填充空腔*。
 

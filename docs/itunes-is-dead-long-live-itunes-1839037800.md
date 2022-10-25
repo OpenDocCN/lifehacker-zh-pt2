@@ -1,6 +1,6 @@
 # iTunes 已死，iTunes 万岁
 
-> 原文:[https://life hacker . com/itunes-is-dead-long-live-itunes-1839037800](https://lifehacker.com/itunes-is-dead-long-live-itunes-1839037800)
+> 原文：<https://lifehacker.com/itunes-is-dead-long-live-itunes-1839037800>
 
 这个彻底改变和颠覆了音乐产业的应用程序存在了足够长的时间，以至于看到自己变成了一个恶棍。多亏了新的 macOS Catalina 更新，iTunes 终于可以安息了。
 

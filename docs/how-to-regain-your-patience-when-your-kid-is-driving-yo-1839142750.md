@@ -1,6 +1,6 @@
 # 当你的孩子快把你逼疯时，如何重拾耐心
 
-> 原文:[https://life hacker . com/how-to-re-get-your-patient-when-you-kid-driving-yo-1839142750](https://lifehacker.com/how-to-regain-your-patience-when-your-kid-is-driving-yo-1839142750)
+> 原文：<https://lifehacker.com/how-to-regain-your-patience-when-your-kid-is-driving-yo-1839142750>
 
 本周早些时候，我向单亲父母询问了他们最好的育儿技巧——因为如果有人在破坏父母身份，那就是那些主要靠自己做的人。这里提供了大量的好建议:安排好你所有的洗牙时间，在孩子们睡觉的时候上床睡觉，首先让自己为一天做好准备，利用健身房的儿童看护设施。
 

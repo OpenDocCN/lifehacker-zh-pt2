@@ -1,6 +1,6 @@
 # 从你的设备上删除这一批新的垃圾安卓广告软件
 
-> 原文:[https://life hacker . com/delete-this-new-batch-of-lappy-Android-adware-apps-fro-1839323645](https://lifehacker.com/delete-this-new-batch-of-crappy-android-adware-apps-fro-1839323645)
+> 原文：<https://lifehacker.com/delete-this-new-batch-of-crappy-android-adware-apps-fro-1839323645>
 
 虽然我敢打赌，你*可能*最近没有从谷歌 Play 商店下载任何广告软件，但 ESET 的一份新报告表明，各种 Android 用户下载了 42 种不同的充满广告软件的 Android 应用程序，总次数超过 800 万次。所以，为了以防万一，下面是正在发生的事情——以及你应该从你的手机中删除的所有 42 个应用程序的列表，如果你被骗安装了一个。
 

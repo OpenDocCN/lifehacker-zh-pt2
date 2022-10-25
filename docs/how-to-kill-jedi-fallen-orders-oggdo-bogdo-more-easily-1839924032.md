@@ -1,6 +1,6 @@
 # 如何更容易地杀死绝地:堕落金刚的奥格多·博格多
 
-> 原文:[https://kotaku . com/how-to-kill-Jedi-fall-orders-ogg do-bogdo-more-easy-1839924032](https://kotaku.com/how-to-kill-jedi-fallen-orders-oggdo-bogdo-more-easily-1839924032)
+> 原文：<https://kotaku.com/how-to-kill-jedi-fallen-orders-oggdo-bogdo-more-easily-1839924032>
 
 击败《星球大战绝地:陨落令》中最早可选的 boss 战之一的关键是以跳跃攻击开始。如果攻击者成功连接，你就安全了。如果没有，你会陷入痛苦的世界。
 

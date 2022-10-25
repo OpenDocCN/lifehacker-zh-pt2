@@ -1,6 +1,6 @@
 # Audm 让你听长篇新闻，而不是阅读它
 
-> 原文:[https://life hacker . com/audm-let-you-listen-to-long-form-journalism-of-1834727297](https://lifehacker.com/audm-lets-you-listen-to-long-form-journalism-instead-of-1834727297)
+> 原文：<https://lifehacker.com/audm-lets-you-listen-to-long-form-journalism-instead-of-1834727297>
 
 iOS: 我喜欢播客。我喜欢他们在我的车里；我健身的时候喜欢它们。我甚至会在洗澡的时候放上播客——主要是为了帮助我穿过太长的队伍。
 

@@ -1,6 +1,6 @@
 # 观看芝麻街和 CNN 的返校市政厅
 
-> 原文:[https://life hacker . com/watch-sesame-street-and-CNN-back-to-school-town-hall-1844997514](https://lifehacker.com/watch-sesame-street-and-cnns-back-to-school-town-hall-1844997514)
+> 原文：<https://lifehacker.com/watch-sesame-street-and-cnns-back-to-school-town-hall-1844997514>
 
 芝麻街和 CNN 今年合作满足我们所有的情感需求，首先是虚拟的新冠肺炎市政厅 ，然后是关于种族主义的[one](https://offspring.lifehacker.com/watch-sesame-street-and-cnns-town-hall-on-racism-1843880815)，现在是一个 [市政厅，我们带着我们的孩子在疫情度过了从到的上学季](https://www.cnn.com/2020/09/02/us/sesame-street-back-to-school-town-hall/index.html) 。
 

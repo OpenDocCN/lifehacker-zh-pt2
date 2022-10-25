@@ -1,6 +1,6 @@
 # 如果你有宠物，清理厨房的这个地方
 
-> 原文:[https://life hacker . com/clean-this-spot-in-your-kitchen-if you-hacket-1830308501](https://lifehacker.com/clean-this-spot-in-your-kitchen-if-you-have-pets-1830308501)
+> 原文：<https://lifehacker.com/clean-this-spot-in-your-kitchen-if-you-have-pets-1830308501>
 
 热心的清洁工们，注意了:你的厨房里有一块区域积满了污垢，你甚至看不到它。
 

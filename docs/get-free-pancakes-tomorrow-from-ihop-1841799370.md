@@ -1,6 +1,6 @@
 # 明天从 IHOP 获得免费煎饼
 
-> 原文:[https://life hacker . com/get-free-pancakes-tomorrow-from-ihop-1841799370](https://lifehacker.com/get-free-pancakes-tomorrow-from-ihop-1841799370)
+> 原文：<https://lifehacker.com/get-free-pancakes-tomorrow-from-ihop-1841799370>
 
 2 月 25 日是全国煎饼日。为了纪念这个虚构的节日，IHOP 向任何到访其任何一个地点 [的人提供一份免费的酪乳煎饼](https://www.ihop.com/en/national-pancake-day) 。
 

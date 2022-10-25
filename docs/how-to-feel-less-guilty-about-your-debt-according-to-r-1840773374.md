@@ -1,6 +1,6 @@
 # 据 Reddit 报道，如何减轻对债务的负罪感
 
-> 原文:[https://life hacker . com/how-to-feel-less-on-r-1840773374](https://lifehacker.com/how-to-feel-less-guilty-about-your-debt-according-to-r-1840773374)
+> 原文：<https://lifehacker.com/how-to-feel-less-guilty-about-your-debt-according-to-r-1840773374>
 
 当你债台高筑时，你会发现自己感到内疚、悲伤或彻底绝望。无论是几百美元还是几千美元，感觉自己无法控制自己的财务状况会让你感到无所作为。但是，晚上趴在沙发上并不能帮你摆脱债务——这似乎只是放大了问题。
 

@@ -1,6 +1,6 @@
 # 我准备在 Bose 框架上扣篮...但是我真的喜欢他们？
 
-> 原文:[https://gizmodo . com/I-was-ready-to-dunk-on-the-bose-frames-but-I-actuall-1833752024](https://gizmodo.com/i-was-ready-to-dunk-on-the-bose-frames-but-i-actuall-1833752024)
+> 原文：<https://gizmodo.com/i-was-ready-to-dunk-on-the-bose-frames-but-i-actuall-1833752024>
 
 智能眼镜有一个坏名声——你可以为此感谢 glassholes。时至今日，只要有人提起智能眼镜这个话题，大多数人还是会情不自禁地想起谷歌眼镜的第一次迭代。这也意味着人们开始考虑违背自己意愿的录音，愚蠢的设计，以及缺乏说服力的技术的荒谬价格。
 

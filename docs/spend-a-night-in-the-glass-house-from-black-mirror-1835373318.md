@@ -1,6 +1,6 @@
 # 在黑镜的玻璃房子里过一夜
 
-> 原文:[https://life hacker . com/speak-a-night-in-the-glass-house-from black-mirror-1835373318](https://lifehacker.com/spend-a-night-in-the-glass-house-from-black-mirror-1835373318)
+> 原文：<https://lifehacker.com/spend-a-night-in-the-glass-house-from-black-mirror-1835373318>
 
 想在沙漠中度过一个夜晚，就像一个需要数码排毒的科技亿万富翁一样？如果你还没有看完新一季的《黑镜》( Black Mirror )( T1 ),先给你个警告:这篇文章包含剧透。
 

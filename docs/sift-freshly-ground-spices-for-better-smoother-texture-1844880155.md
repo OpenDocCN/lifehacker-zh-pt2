@@ -1,6 +1,6 @@
 # 筛选新鲜研磨的香料，以获得更好、更顺滑的质地
 
-> 原文:[https://life hacker . com/sift-fresh-ground-spices-for-better-smooth-texture-1844880155](https://lifehacker.com/sift-freshly-ground-spices-for-better-smoother-texture-1844880155)
+> 原文：<https://lifehacker.com/sift-freshly-ground-spices-for-better-smoother-texture-1844880155>
 
 研磨自己的香料是改善饭菜味道的最简单的方法之一。按需研磨意味着它们能保存更长时间，味道更好，而且整个香料通常比杂货店里预先研磨好的小罐子便宜得多。但是无论你是使用研钵和杵还是改造过的咖啡研磨机，都很难将香料研磨成你想要的那样精细。
 

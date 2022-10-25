@@ -1,6 +1,6 @@
 # 当你目睹了一起肇事逃逸事故时该怎么办
 
-> 原文:[https://life hacker . com/1833038734](https://lifehacker.com/what-to-do-when-youve-witnessed-a-hit-and-run-accident-1833038734)
+> 原文：<https://lifehacker.com/what-to-do-when-youve-witnessed-a-hit-and-run-accident-1833038734>
 
 你在人行道上，突然，一个开特斯拉的司机撞上了一辆停着的车。汽车撞碎了对方的后视镜，留下了碎片。在你有时间处理发生的事情之前，司机已经开走了。回来，你这个肮脏的流氓！你的电荷撑不了多久！
 

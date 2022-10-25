@@ -1,6 +1,6 @@
 # 是恐慌症发作还是冠状病毒？
 
-> 原文:[https://life hacker . com/is-it-a-panic-attack-or-新冠肺炎-1842508376](https://lifehacker.com/is-it-a-panic-attack-or-covid-19-1842508376)
+> 原文：<https://lifehacker.com/is-it-a-panic-attack-or-covid-19-1842508376>
 
 在过去的几天里，我一直感到气短、疲劳和全身酸痛。在任何正常的场合，我都会把这当成我的广泛性焦虑症的一部分。但是现在，在 [我们当前的地狱场景](https://lifehacker.com/tag/coronavirus) ，新冠肺炎 的 [症状——特别是呼吸急促——已经钻入我们的脑海，很难不下结论。如果你自己处理过焦虑，那么你就会知道这是导致螺旋式上升的原因:对某件事念念不忘，并变得越来越焦虑，同时假设最糟糕的结果即将发生。](https://vitals.lifehacker.com/do-you-have-covid-19-or-something-else-1842382063) 
 

@@ -1,6 +1,6 @@
 # 什么是土著人民运动？
 
-> 原文:[https://life hacker . com/what-is-the-indigenous-peoples-movement-1831965372](https://lifehacker.com/what-is-the-indigenous-peoples-movement-1831965372)
+> 原文：<https://lifehacker.com/what-is-the-indigenous-peoples-movement-1831965372>
 
 本周，社交媒体因一系列视频和图像而被点燃，这些视频和图像捕捉到一群高中青少年嘲笑一名美国土著男子在华盛顿特区为土著权利游行。如果你想知道土著运动是怎么回事，以下是你需要知道的。
 

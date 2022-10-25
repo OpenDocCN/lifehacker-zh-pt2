@@ -1,6 +1,6 @@
 # 使用 Goo Gone 清洁污渍、口香糖和几乎所有东西
 
-> 原文:[https://life hacker . com/use-goo-go-to-clean-stains-gum-and-pretty-much-ever-1835006511](https://lifehacker.com/use-goo-gone-to-clean-stains-gum-and-pretty-much-ever-1835006511)
+> 原文：<https://lifehacker.com/use-goo-gone-to-clean-stains-gum-and-pretty-much-ever-1835006511>
 
 Goo Gone 是一种神奇的粘合剂去除剂。我们许多戏剧和视频从业者都知道这是去除舞台和道具上的胶带和价格标签残留物的最好方法。
 

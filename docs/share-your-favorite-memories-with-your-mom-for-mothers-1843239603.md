@@ -1,6 +1,6 @@
 # 母亲节给你妈妈贴上便利贴
 
-> 原文:[https://life hacker . com/share-your-favorite-memories-with-your-mom for-moments-1843239603](https://lifehacker.com/share-your-favorite-memories-with-your-mom-for-mothers-1843239603)
+> 原文：<https://lifehacker.com/share-your-favorite-memories-with-your-mom-for-mothers-1843239603>
 
 就像现在的其他事情一样，今年的母亲节看起来可能与往年不太一样。没有大家庭聚会，没有你最喜欢的当地餐馆的早午餐，没有放松的按摩或足疗。可能会有比平时更多的压力，要么来自财务或工作压力，要么，你知道，连续两个月 24 小时在家陪孩子。但是有一种甜蜜(而且免费！让今年的母亲节对你的伴侣或你自己的母亲来说很特别的方法:用便利贴来纪念。
 

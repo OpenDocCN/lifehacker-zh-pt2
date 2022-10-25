@@ -1,6 +1,6 @@
 # 这是扔掉脏纸巾的唯一方法
 
-> 原文:[https://life hacker . com/这是扔掉脏纸巾的唯一方法-1838249787](https://lifehacker.com/this-is-the-only-way-to-throw-away-dirty-tissues-1838249787)
+> 原文：<https://lifehacker.com/this-is-the-only-way-to-throw-away-dirty-tissues-1838249787>
 
 坏消息是，在我儿子的整个前半生，我一直在错误地处理他的脏的、有细菌的纸巾。好消息是，这里的一些事情即将改变。
 

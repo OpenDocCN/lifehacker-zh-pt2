@@ -1,6 +1,6 @@
 # 什么是排名投票？
 
-> 原文:[https://lifehacker.com/what-is-ranked-voting-1835729647](https://lifehacker.com/what-is-ranked-voting-1835729647)
+> 原文：<https://lifehacker.com/what-is-ranked-voting-1835729647>
 
 周三，立法者通过了缅因州总统选举的排名选择投票——这实际上意味着 [根据选民的偏好放弃](https://www.apnews.com/a0e1a46daa86474ea48c8172947a53bb) 的总统初选党团会议。排名选择投票顾名思义；选民有机会对许多候选人进行排名，而不是投票给任何一个候选人。
 

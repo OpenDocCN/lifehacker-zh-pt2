@@ -1,6 +1,6 @@
 # 尝试“湿猫”技巧来缓解孩子的焦虑
 
-> 原文:[https://life hacker . com/try-the-wet-cat-technique-to-ease-your-childs-anxiety-1843044670](https://lifehacker.com/try-the-wet-cat-technique-to-ease-your-childs-anxiety-1843044670)
+> 原文：<https://lifehacker.com/try-the-wet-cat-technique-to-ease-your-childs-anxiety-1843044670>
 
 这些天到处都有焦虑，不幸的是，这不仅仅是家里成年人的专利。即使在最好的时候，孩子们也会变得焦虑，更不用说当他们被困在疫情的家中，远离他们的朋友，并试图跟上他们的虚拟学校作业。这是令人焦虑的时代。
 

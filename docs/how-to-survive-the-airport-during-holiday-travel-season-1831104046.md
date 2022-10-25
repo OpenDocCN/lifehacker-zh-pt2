@@ -1,6 +1,6 @@
 # 假期旅游旺季如何在机场生存
 
-> 原文:[https://life hacker . com/how-to-survive-the-airport-during-holiday-travel-season-1831104046](https://lifehacker.com/how-to-survive-the-airport-during-holiday-travel-season-1831104046)
+> 原文：<https://lifehacker.com/how-to-survive-the-airport-during-holiday-travel-season-1831104046>
 
 现在是假期，这意味着我们中的许多人将在接下来的一周前往机场。据《今日美国》 报道，美国航空公司预计今年圣诞节和新年期间的航空旅行将增长 5.2%，相当于每天大约 250 万人。所以，如果你去年飞到某个地方，今年的情况会糟糕 5.2%。最忙的一天:圣诞节前的星期五。
 

@@ -1,6 +1,6 @@
 # 这些小标题将帮助你回忆起舌尖上的那个单词
 
-> 原文:[https://life hacker . com/these-subred dits-will-help-you-recall-on-the-the-1839108330](https://lifehacker.com/these-subreddits-will-help-you-recall-that-word-on-the-1839108330)
+> 原文：<https://lifehacker.com/these-subreddits-will-help-you-recall-that-word-on-the-1839108330>
 
 十年来，我想不起的 subred dit 一直在帮助人们记起事情。下次你可能记不起一部电影、一首歌、一张 GIF 图片、一本书的名字， [一段定格视频把 20 世纪的战争变成了一场食物大战](https://www.reddit.com/r/tipofmytongue/comments/dir9o9/tomtyoutube_video2010ish_history_explained_with/) ...不管是什么，过来问。
 

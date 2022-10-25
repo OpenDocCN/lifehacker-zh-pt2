@@ -1,6 +1,6 @@
 # 新的交换机折扣计划过于复杂
 
-> 原文:[https://kotaku . com/new-switch-discount-program-is-needly-complexing-1834818311](https://kotaku.com/new-switch-discount-program-is-unnecessarily-complicate-1834818311)
+> 原文：<https://kotaku.com/new-switch-discount-program-is-unnecessarily-complicate-1834818311>
 
 任天堂并没有像其他视频游戏平台一样简单地对其数字游戏打折，而是推出了一项新的 Sw itch 促销活动，玩家可以购买特殊的代金券，然后用这些代金券换取新游戏，将整个过程变成了一个复杂的迷你游戏。
 

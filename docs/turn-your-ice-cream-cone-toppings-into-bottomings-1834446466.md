@@ -1,6 +1,6 @@
 # 把你的冰淇淋蛋卷配料变成“底料”
 
-> 原文:[https://life hacker . com/turn-your ' s ice-cream-cone-toppings-into-bottomings-1834446466](https://lifehacker.com/turn-your-ice-cream-cone-toppings-into-bottomings-1834446466)
+> 原文：<https://lifehacker.com/turn-your-ice-cream-cone-toppings-into-bottomings-1834446466>
 
 冰淇淋蛋卷配料。谁认为给一个已经有建筑缺陷的设计增加重量是个好主意？这些附加物仅仅由融化的、即将变成液体的物质支撑，你注定会陷入混乱。
 

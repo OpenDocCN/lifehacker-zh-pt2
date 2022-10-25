@@ -1,6 +1,6 @@
 # 不要忽视这些非传统的育儿里程碑
 
-> 原文:[https://life hacker . com/don-ignore-these-non-traditional-parenting-milestones-1837069602](https://lifehacker.com/dont-ignore-these-non-traditional-parenting-milestones-1837069602)
+> 原文：<https://lifehacker.com/dont-ignore-these-non-traditional-parenting-milestones-1837069602>
 
 作为父母，我们在某种程度上习惯于把很多重量放在传统的里程碑上:第一颗牙齿和第一口固体食物。第一句话，第一步，开学第一天。是的，这些都很棒(尽管在长出第一颗牙齿之前的一周并不特别愉快)。但在我为人父母的近九年里，我发现为人父母的乐趣大多来自那些不太为人知的里程碑。
 

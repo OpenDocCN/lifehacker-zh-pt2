@@ -1,6 +1,6 @@
 # 如何在任何设备上恢复已删除的文件
 
-> 原文:[https://gizmodo . com/how-to-restore-deleted-files-on-any-device-1781873208](https://gizmodo.com/how-to-restore-deleted-files-on-any-device-1781873208)
+> 原文：<https://gizmodo.com/how-to-restore-deleted-files-on-any-device-1781873208>
 
 很少有技术灾难能让你的胃像自由落体一样自由落体，就像意识到你从笔记本电脑或手机上删除了一些重要的东西，却没有明显的方法把它找回来。幸运的是，如果你发现自己在努力恢复被删除的文件，还是有希望的。无论你使用什么平台，免费的工具和应用程序都可以帮助你恢复被删除的数据，以下是你需要知道的。
 

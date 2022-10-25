@@ -1,6 +1,6 @@
 # 热浪来袭时不用做饭
 
-> 原文:[https://life hacker . com/no-cook-meals-to-make-in-a-heat-wave-1844532945](https://lifehacker.com/no-cook-meals-to-make-during-a-heat-wave-1844532945)
+> 原文：<https://lifehacker.com/no-cook-meals-to-make-during-a-heat-wave-1844532945>
 
 我不喜欢在室外很热的时候给室内供暖。在热浪期间，即使是*吃*热食物的行为也会感觉像是一种惩罚。那就是为什么准备好一大堆不用做饭的食物是有帮助的。
 

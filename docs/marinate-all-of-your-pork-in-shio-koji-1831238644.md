@@ -1,6 +1,6 @@
 # 用盐曲腌制你所有的猪肉
 
-> 原文:[https://life hacker . com/腌制你所有的腌猪肉-1831238644](https://lifehacker.com/marinate-all-of-your-pork-in-shio-koji-1831238644)
+> 原文：<https://lifehacker.com/marinate-all-of-your-pork-in-shio-koji-1831238644>
 
 如果让我挑选 2018 年我最喜欢的食材，那会是 [盐尾浩二](https://lifehacker.com/shio-koji-helps-your-food-be-its-best-self-1826640401) 。这种传统的日本酱——由毛茸茸的接种大米、盐和水制成——给你涂抹的任何东西增加了美味的深度和味噌般的鲜味，在里面过夜会对你的(未腌制的)猪肉产生奇迹。
 

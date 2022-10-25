@@ -1,6 +1,6 @@
 # 别忘了今晚按夏令时“向前跳”
 
-> 原文:[https://life hacker . com/don-to-forward-spring-tonight-for-daylight-savi-1842168642](https://lifehacker.com/dont-forget-to-spring-forward-tonight-for-daylight-savi-1842168642)
+> 原文：<https://lifehacker.com/dont-forget-to-spring-forward-tonight-for-daylight-savi-1842168642>
 
 本周末，美国大部分地区将“向前跃进”一小时。周日凌晨 2 点，几乎每个州的时钟都会立即跳到凌晨 3 点。这意味着你可能会失去一个小时的睡眠。
 

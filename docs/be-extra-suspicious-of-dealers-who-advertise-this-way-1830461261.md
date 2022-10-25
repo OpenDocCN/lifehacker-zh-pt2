@@ -1,6 +1,6 @@
 # 对以这种方式做广告的经销商要格外警惕
 
-> 原文:[https://jalopnik . com/be-extra-suspect-of-dealers-who-advertise-this-way-1830461261](https://jalopnik.com/be-extra-suspicious-of-dealers-who-advertise-this-way-1830461261)
+> 原文：<https://jalopnik.com/be-extra-suspicious-of-dealers-who-advertise-this-way-1830461261>
 
 说到买车，在与经销商合作时，你应该时刻保持警惕。但是信不信由你，他们并不都是来敲你竹杠的。根据他们的广告，你可以很好地了解他们的经营方式。
 

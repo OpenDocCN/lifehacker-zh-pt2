@@ -1,6 +1,6 @@
 # 少说话，多提问，培养孩子解决问题的能力
 
-> 原文:[https://life hacker . com/raise-a-a-problem-solver-by-talk-less-and-question-1834810987](https://lifehacker.com/raise-a-problem-solver-by-talking-less-and-questioning-1834810987)
+> 原文：<https://lifehacker.com/raise-a-problem-solver-by-talking-less-and-questioning-1834810987>
 
 我必须学会的最难的育儿课程是停止告诉我的孩子该做什么。对我来说，大声发号施令比让他们自己想办法要容易得多。这样做需要时间和耐心，当我的女儿和儿子还小的时候，这两样我都没有。最终的结果是两个孩子非常依赖我来告诉他们需要做什么，什么时候需要做，以及他们需要去哪里。他们已经成为专业的方向追随者。
 

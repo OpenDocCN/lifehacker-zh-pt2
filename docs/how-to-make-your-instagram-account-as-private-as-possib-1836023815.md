@@ -1,6 +1,6 @@
 # 如何让你的 Instagram 账号尽可能私密
 
-> 原文:[https://life hacker . com/how-to-make-your-insta gram-account-as private-as-possible-1836023815](https://lifehacker.com/how-to-make-your-instagram-account-as-private-as-possib-1836023815)
+> 原文：<https://lifehacker.com/how-to-make-your-instagram-account-as-private-as-possib-1836023815>
 
 [Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)) : title[![](../Images/ce8fdf9d40d4898cdc1fe3570dd2a22f.png)](https://dataprivacy.kinja.com)[Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)We'll walk you through everything you should do to live the most secure, private life in the digital era.
 

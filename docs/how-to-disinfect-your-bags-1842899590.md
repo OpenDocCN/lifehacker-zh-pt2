@@ -1,6 +1,6 @@
 # 如何给你的包消毒
 
-> 原文:[https://life hacker . com/how-to-sanctize-your-bags-1842899590](https://lifehacker.com/how-to-disinfect-your-bags-1842899590)
+> 原文：<https://lifehacker.com/how-to-disinfect-your-bags-1842899590>
 
 在这一点上，我们都在规定的 20 秒内洗手(对吗？)和清洁我们家的表面——但是我们的袋子呢？虽然休闲旅游可能会停止，但我们中的许多人仍然会去上班或去杂货店。CDC [不认为像袋子](https://www.cdc.gov/coronavirus/2019-ncov/prevent-getting-sick/index.html) 这样的物体是新冠肺炎病毒传播的主要来源，所以你可以不消毒它们。但是让我们面对现实吧，我们手头有点时间——所以如果你用怀疑的眼光看着你的包，以下是如何清理它们的方法。
 

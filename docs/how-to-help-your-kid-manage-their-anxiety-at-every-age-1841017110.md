@@ -1,6 +1,6 @@
 # 如何帮助你的孩子管理每个年龄段的焦虑
 
-> 原文:[https://life hacker . com/how-to-help-your-kid-manage-they-anxiety-1841017110](https://lifehacker.com/how-to-help-your-kid-manage-their-anxiety-at-every-age-1841017110)
+> 原文：<https://lifehacker.com/how-to-help-your-kid-manage-their-anxiety-at-every-age-1841017110>
 
 当我问我们的脸书育儿小组 今年他们想从后代身上读到什么时，我注意到建议中不断出现的一个主题——焦虑。你有，我有，我们的孩子要么已经有了，要么我们担心他们在某个时候会有。想到他们的焦虑会让你焦虑，你想在适当的时候准备一些应对策略。
 

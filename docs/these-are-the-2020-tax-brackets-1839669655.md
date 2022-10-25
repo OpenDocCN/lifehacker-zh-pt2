@@ -1,6 +1,6 @@
 # 这些是 2020 年的税收等级
 
-> 原文:[https://life hacker . com/these-the-the-2020-tax-brackets-1839669655](https://lifehacker.com/these-are-the-2020-tax-brackets-1839669655)
+> 原文：<https://lifehacker.com/these-are-the-2020-tax-brackets-1839669655>
 
 美国国税局 [今天](https://www.irs.gov/pub/irs-drop/rp-19-44.pdf) 发布了 2020 年的联邦税率和收入等级。七个税率本身与 2019 年保持不变；然而，每个人的收入限额已根据这一年的通货膨胀率进行了调整。
 

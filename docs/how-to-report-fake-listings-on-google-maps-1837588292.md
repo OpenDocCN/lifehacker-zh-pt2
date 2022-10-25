@@ -1,6 +1,6 @@
 # 如何举报谷歌地图上的虚假房源
 
-> 原文:[https://life hacker . com/how-to-report-fake-listings-on-Google-maps-1837588292](https://lifehacker.com/how-to-report-fake-listings-on-google-maps-1837588292)
+> 原文：<https://lifehacker.com/how-to-report-fake-listings-on-google-maps-1837588292>
 
 你的邻居在谷歌地图上有奇怪的笑话列表吗？你住在霍格沃茨魔法学校旁边吗？虚假的谷歌地图位置出奇地常见，这些虚构的位置和流行文化参考甚至可能带有非常详细的(虚假)信息，如描述、照片、评论和联系信息。
 

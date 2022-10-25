@@ -1,6 +1,6 @@
 # 在假期用完你的信用卡奖励
 
-> 原文:[https://life hacker . com/use-up-your-credit-card-rewards-in-the-holidays-1840001829](https://lifehacker.com/use-up-your-credit-card-rewards-during-the-holidays-1840001829)
+> 原文：<https://lifehacker.com/use-up-your-credit-card-rewards-during-the-holidays-1840001829>
 
 信用卡奖励可以兑换各种东西:账单积分、机票、酒店、礼品卡、慈善捐款、商品等等。
 

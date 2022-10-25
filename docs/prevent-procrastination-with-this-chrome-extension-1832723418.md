@@ -1,6 +1,6 @@
 # 使用这个 Chrome 扩展防止拖延
 
-> 原文:[https://life hacker . com/prevent-delayatory-with-this-chrome-extension-1832723418](https://lifehacker.com/prevent-procrastination-with-this-chrome-extension-1832723418)
+> 原文：<https://lifehacker.com/prevent-procrastination-with-this-chrome-extension-1832723418>
 
 我发现自己最近陷入了恶性循环。每当我有空闲时间时，我通常会浏览相同的、陈旧的网站列表，吸收任何新内容来缓解我的无聊。我会在脸书、Twitter、YouTube、Reddit 和 Gmail(偶尔还有 Slickdeals)之间来回切换，直到我最终提醒自己这很愚蠢，也许我应该出去走走，或者做一些更有成效的事情。
 

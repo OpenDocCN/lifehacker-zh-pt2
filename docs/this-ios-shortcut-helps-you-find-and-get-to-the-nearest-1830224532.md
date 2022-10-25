@@ -1,6 +1,6 @@
 # 使用此 iOS 快捷方式找到并到达最近的急诊室
 
-> 原文:[https://life hacker . com/this-IOs-shortcut-helps-you-find-and-get-the-nearest-1830224532](https://lifehacker.com/this-ios-shortcut-helps-you-find-and-get-to-the-nearest-1830224532)
+> 原文：<https://lifehacker.com/this-ios-shortcut-helps-you-find-and-get-to-the-nearest-1830224532>
 
 通常，在医疗急救的早期，你知道事情不对劲，但不确定是否要拨打 911。今年早些时候，当我对一些抗生素产生反应，出现荨麻疹时，我盯着手机看了大约 15 分钟，然后拨打了 911——我知道出事了，但我不知道该怎么办，我也不确定问题是否紧急到需要救护车，即使你有保险，这也是一笔真正的费用。
 

@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:我最喜欢的餐馆下午 5 点以后不允许小孩进去。
 
-> 原文:[https://the take out . com/my-favorite-restaurant-won-t-allow-kids-after-pm-1831437360](https://thetakeout.com/my-favorite-restaurant-won-t-allow-kids-after-5-pm-1831437360)
+> 原文：<https://thetakeout.com/my-favorite-restaurant-won-t-allow-kids-after-5-pm-1831437360>
 
 > 亲爱的 Salty:我是一个健康男婴的骄傲的新父母。我也是我家附近一家精酿啤酒俱乐部的长期粉丝。最近，我和妻子收拾好尿布袋，把小儿子放在婴儿车里，准备去我们最喜欢的餐馆，在那里我们注意到一个新的(在我看来，很粗鲁的)标志:“下午 5 点后禁止儿童入内。”询问女主人后，我们被告知这确实是新的房子政策。
 > 

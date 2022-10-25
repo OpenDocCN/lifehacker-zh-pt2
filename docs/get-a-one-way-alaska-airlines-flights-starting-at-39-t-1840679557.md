@@ -1,6 +1,6 @@
 # 今天买一张 39 美元起的阿拉斯加航空公司的单程机票
 
-> 原文:[https://life hacker . com/get-a-one-way-Alaska-airlines-flights-starting-at-39-t-1840679557](https://lifehacker.com/get-a-one-way-alaska-airlines-flights-starting-at-39-t-1840679557)
+> 原文：<https://lifehacker.com/get-a-one-way-alaska-airlines-flights-starting-at-39-t-1840679557>
 
 如果旅行是你 2020 年的计划之一，阿拉斯加航空公司今天提供了一项交易，可能会使其中至少一次旅行变得更加实惠。
 

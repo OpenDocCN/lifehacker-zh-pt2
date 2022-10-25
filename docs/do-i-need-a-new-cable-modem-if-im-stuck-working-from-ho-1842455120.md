@@ -1,6 +1,6 @@
 # 如果我被困在家工作，我需要一个新的电缆调制解调器吗？
 
-> 原文:[https://life hacker . com/do-I-need-a-new-cable-modem-if-im-stuck-working-from-ho-1842455120](https://lifehacker.com/do-i-need-a-new-cable-modem-if-im-stuck-working-from-ho-1842455120)
+> 原文：<https://lifehacker.com/do-i-need-a-new-cable-modem-if-im-stuck-working-from-ho-1842455120>
 
 欢迎来到 [**理工 911 周**](https://lifehacker.com/c/tech-911) 。由于我们中的许多人被困在自己的家里或公寓里，我正在回答*至少*一个关于每天在家工作的问题。(如果你继续在我的收件箱 或评论中向我发送 [，我甚至可能会做一个大的快速总结。)](mailto:david.murphy@lifehacker.com?subject=Tech%20911)
 

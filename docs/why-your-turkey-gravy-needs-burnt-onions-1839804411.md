@@ -1,6 +1,6 @@
 # 为什么你的火鸡肉汤需要洋葱
 
-> 原文:[https://life hacker . com/why-your-turkey-gravy-needs-burned-onions-1839804411](https://lifehacker.com/why-your-turkey-gravy-needs-burnt-onions-1839804411)
+> 原文：<https://lifehacker.com/why-your-turkey-gravy-needs-burnt-onions-1839804411>
 
 火鸡肉汁引起的厨房焦虑几乎和火鸡本身一样多。虽然这是一种由脂肪、面粉和高汤组成的简单酱，但确定粘度和风味可能需要一些忙乱和摆弄。通过燃烧洋葱，这两个目标更容易实现。
 

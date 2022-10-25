@@ -1,6 +1,6 @@
 # 你现在需要的馅饼
 
-> 原文:[https://life hacker . com/the-pie-you-need-now-1842471141](https://lifehacker.com/the-pie-you-need-right-now-1842471141)
+> 原文：<https://lifehacker.com/the-pie-you-need-right-now-1842471141>
 
 除非你是南方人、阿巴拉契亚人、阿米什人，或者是真正喜欢烘焙的 T2 人，否则你可能没听说过醋馅饼，这种馅饼听起来并不好吃。不要让这个名字让你分心:这是一种甜甜的、奶油色的馅饼，上面有精致的焦糖皮，而且——因为它完全是由厨房主食制成的——你可能拥有制作它所需的一切。事实上，我认为现在是醋派让 T4 发光的时候了。
 

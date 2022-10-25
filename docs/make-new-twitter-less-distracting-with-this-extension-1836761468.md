@@ -1,6 +1,6 @@
 # 使用这个扩展使“新推特”不那么令人分心
 
-> 原文:[https://life hacker . com/make-new-Twitter-less-distracting-with this-extension-1836761468](https://lifehacker.com/make-new-twitter-less-distracting-with-this-extension-1836761468)
+> 原文：<https://lifehacker.com/make-new-twitter-less-distracting-with-this-extension-1836761468>
 
 如果你发现“新推特”令人分心，现在有一个扩展可以帮助你——简化的推特。
 

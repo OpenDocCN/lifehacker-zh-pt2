@@ -1,6 +1,6 @@
 # 试试这个小技巧，让你的 Twitter 个人资料看起来更干净
 
-> 原文:[https://life hacker . com/try-this-trick-to-make-your-Twitter-profile-look-a-loat-1837899526](https://lifehacker.com/try-this-trick-to-make-your-twitter-profile-look-a-lot-1837899526)
+> 原文：<https://lifehacker.com/try-this-trick-to-make-your-twitter-profile-look-a-lot-1837899526>
 
 这是一个最小的小黑客，但如果你曾经被你的 Twitter 个人资料的连续文本流所困扰，该公司已经实现了一个小小的未经宣布的变化，你可以用它来使它变得更漂亮。
 

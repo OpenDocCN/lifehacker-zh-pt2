@@ -1,6 +1,6 @@
 # 如何在 Chuck E. Cheese 这样的地方找到感官友好的活动
 
-> 原文:[https://life hacker . com/how-to-find-sensory-friendly-events-in-places-like-chuc-1840369497](https://lifehacker.com/how-to-find-sensory-friendly-events-at-places-like-chuc-1840369497)
+> 原文：<https://lifehacker.com/how-to-find-sensory-friendly-events-at-places-like-chuc-1840369497>
 
 查克·e·奶酪对感官来说是一种不和谐的声音——嗡嗡声、钟声和尖叫声、人群和音乐、过度刺激的孩子(和父母)、各种颜色和灯光。这对那些没有感觉处理挑战的人来说是很大的挑战。但是对于感觉敏感的人来说，这可能是一种方式。也是。很多。
 

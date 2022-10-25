@@ -1,6 +1,6 @@
 # 在新的 Windows 电脑上快速安装应用程序的最佳方式
 
-> 原文:[https://life hacker . com/the-best-way-to-quick-install-apps-on-a-new-windows-p-1836244140](https://lifehacker.com/the-best-way-to-quickly-install-apps-on-a-new-windows-p-1836244140)
+> 原文：<https://lifehacker.com/the-best-way-to-quickly-install-apps-on-a-new-windows-p-1836244140>
 
 当我面对一个全新的操作系统时，我做的第一件事就是启动它的默认浏览器——即 *meh* Edge 或 Safari——然后直奔到 [Ninite](https://ninite.com/) (Windows)或[Mac apps . link](https://macapps.link/en/)(Mac)。这两个网站都允许你挑选你想安装在新系统上的应用。一旦你最终确定了你的列表，你就可以得到一个定制的安装程序(Ninite)或者一个终端命令(macapps.link ),你可以运行它来快速地把一堆应用程序转储到你的新系统上。
 

@@ -1,6 +1,6 @@
 # 不要在海滩(或任何地方)燃烧浮木
 
-> 原文:[https://life hacker . com/don-burn-drift wood-at-beach-or-anywhere-1834549510](https://lifehacker.com/dont-burn-driftwood-at-the-beach-or-anywhere-1834549510)
+> 原文：<https://lifehacker.com/dont-burn-driftwood-at-the-beach-or-anywhere-1834549510>
 
 现在是五月，这意味着夏天即将来临，你的冬装终于可以放下了。但在你前往海滩点燃本季第一堆篝火之前，如果你想避免吸入有毒化学物质，这里有一个重要的建议:不要燃烧任何你可能在海滩上找到的浮木。
 

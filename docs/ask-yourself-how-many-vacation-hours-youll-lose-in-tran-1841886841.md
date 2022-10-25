@@ -1,6 +1,6 @@
 # 问问你自己，你会在途中损失多少休假时间
 
-> 原文:[https://life hacker . com/ask-you-you-lose-in-tran-1841886841](https://lifehacker.com/ask-yourself-how-many-vacation-hours-youll-lose-in-tran-1841886841)
+> 原文：<https://lifehacker.com/ask-yourself-how-many-vacation-hours-youll-lose-in-tran-1841886841>
 
 在你开始为你的下一个长假预订机票和酒店之前，问自己一个问题:*这些旅行和住宿选择会占我总假期的百分之几？*
 

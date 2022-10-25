@@ -1,6 +1,6 @@
 # 教你的孩子在游泳时如果有人抓住他们该怎么办
 
-> 原文:[https://life hacker . com/teach-your-kid-what-if someone-grabbed-while-s-1836780418](https://lifehacker.com/teach-your-kid-what-to-do-if-someone-grabs-them-while-s-1836780418)
+> 原文：<https://lifehacker.com/teach-your-kid-what-to-do-if-someone-grabs-them-while-s-1836780418>
 
 经过多次训练，我六岁的女儿正在成为一名熟练的游泳运动员。她可以踩水，取回池底的玩具，跳进深水区后找到去池壁的路。但是有一项技能她仍然需要学习，而且我认为她的老师不会教这项技能。那就是:如果一个挣扎的游泳者抓住她该怎么办。
 

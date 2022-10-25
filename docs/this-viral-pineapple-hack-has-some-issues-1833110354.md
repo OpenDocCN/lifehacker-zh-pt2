@@ -1,6 +1,6 @@
 # 这个病毒菠萝黑客有一些问题
 
-> 原文:[https://life hacker . com/this-viral-菠萝-hack-has-some-issues-1833110354](https://lifehacker.com/this-viral-pineapple-hack-has-some-issues-1833110354)
+> 原文：<https://lifehacker.com/this-viral-pineapple-hack-has-some-issues-1833110354>
 
 在我的生活和职业生涯的这个阶段，我觉得我已经掌握了如何削水果和吃水果的方法，但每隔一段时间，我就会对我以前没有考虑过的方法感到惊讶(比如用一品脱玻璃杯 削芒果)，这种方法非常有效。然而，我对这条病毒式推文中展示的技术并不感冒。
 

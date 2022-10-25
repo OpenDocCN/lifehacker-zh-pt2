@@ -1,6 +1,6 @@
 # 如何发现有人在偷我的 Wifi？
 
-> 原文:[https://life hacker . com/how-can-I-find-out-if-someone-s-switching-my-wi-fi-5738123](https://lifehacker.com/how-can-i-find-out-if-someone-s-stealing-my-wi-fi-5738123)
+> 原文：<https://lifehacker.com/how-can-i-find-out-if-someone-s-stealing-my-wi-fi-5738123>
 
 如果你注意到你的网飞流媒体或网页浏览速度变慢了，那么很有可能是有人从你的互联网上偷走了你的东西。虽然可能只是一个太小气而不愿购买自己的计划的邻居，但你会想确定是否有人在偷你的 wifi，并相应地升级你的安全性。以下是方法。
 

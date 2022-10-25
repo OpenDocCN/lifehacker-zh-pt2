@@ -1,6 +1,6 @@
 # 当你举杠铃时，如何计算重量
 
-> 原文:[https://life hacker . com/how-to-add-the-weights-when you-life-a-bar-1837876765](https://lifehacker.com/how-to-add-up-the-weights-when-youre-lifting-with-a-bar-1837876765)
+> 原文：<https://lifehacker.com/how-to-add-up-the-weights-when-youre-lifting-with-a-bar-1837876765>
 
 突击测验:你想举起 185 磅。你在杠铃的两边各放几个盘子，尺寸是多少？如果你没有立即回答“当然是 45 和 25”，那么你可能想要一本关于盘子数学的初级读本。
 

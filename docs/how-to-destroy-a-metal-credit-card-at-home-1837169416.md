@@ -1,6 +1,6 @@
 # 如何在家中销毁金属信用卡
 
-> 原文:[https://life hacker . com/how-to-destroy-a-metal-credit-card-in-home-1837169416](https://lifehacker.com/how-to-destroy-a-metal-credit-card-at-home-1837169416)
+> 原文：<https://lifehacker.com/how-to-destroy-a-metal-credit-card-at-home-1837169416>
 
 我的主信用卡 [上周](https://lifehacker.com/make-fraud-alert-emails-from-your-bank-impossible-to-mi-1836999600) 被盗。如果我有一个“正常”的，我会把它扔进碎纸机或者消磁，切碎，然后收工。更花哨的金属信用卡带来了一点挑战，你的碎纸机可能无法胜任这项任务(你也不应该测试它)。
 

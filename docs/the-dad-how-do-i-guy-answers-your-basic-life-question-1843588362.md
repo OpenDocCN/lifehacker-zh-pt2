@@ -1,6 +1,6 @@
 # “爸爸，我怎么了？”盖伊回答你的基本生活问题
 
-> 原文:[https://life hacker . com/the-dad-how-do-I-guy-answers-your-basic-life-question-1843588362](https://lifehacker.com/the-dad-how-do-i-guy-answers-your-basic-life-question-1843588362)
+> 原文：<https://lifehacker.com/the-dad-how-do-i-guy-answers-your-basic-life-question-1843588362>
 
 我们家有一个笑话，说的是有一次我——19 岁或 20 岁，第一次住在有自己厨房的公寓里——给我爸爸发电子邮件问他，“什么是腌泡汁？”这一天，我还有一份他寄给我的关于如何制作土豆泥的非常友好、非常详细的说明。。
 

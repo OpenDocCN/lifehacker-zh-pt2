@@ -1,6 +1,6 @@
 # 把你的面具放在你该死的鼻子上
 
-> 原文:[https://life hacker . com/put-your-mask-over-your-damn-nose-1844132568](https://lifehacker.com/put-your-mask-over-your-damn-nose-1844132568)
+> 原文：<https://lifehacker.com/put-your-mask-over-your-damn-nose-1844132568>
 
 我们知道你应该戴上某种形式的面罩来防止冠状病毒的传播。你应该这么做。不要在这个问题上和我争论。
 

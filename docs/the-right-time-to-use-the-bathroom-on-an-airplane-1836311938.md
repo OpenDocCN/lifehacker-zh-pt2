@@ -1,6 +1,6 @@
 # 在飞机上使用洗手间的正确时间
 
-> 原文:[https://life hacker . com/the-right-time-to-use the-way-on-a-plane-1836311938](https://lifehacker.com/the-right-time-to-use-the-bathroom-on-an-airplane-1836311938)
+> 原文：<https://lifehacker.com/the-right-time-to-use-the-bathroom-on-an-airplane-1836311938>
 
 在 35，000 英尺的高空开展业务不仅仅是一种狭窄、不舒服的体验。整个过程——我什么时候可以去，我怎样才能到达目的地——充满了需要考虑的规则、规定和礼仪原则。
 

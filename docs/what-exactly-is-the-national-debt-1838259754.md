@@ -1,6 +1,6 @@
 # 国债到底是什么？
 
-> 原文:[https://life hacker . com/1838259754](https://lifehacker.com/what-exactly-is-the-national-debt-1838259754)
+> 原文：<https://lifehacker.com/what-exactly-is-the-national-debt-1838259754>
 
 在关于即将到来的经济衰退的近乎持续的讨论中，你可能已经注意到了一些关于我们日益恶化的国家赤字的抱怨。但你可能会对国债是如何发生的，以及它对国家财政的运行方式意味着什么感到困惑。
 

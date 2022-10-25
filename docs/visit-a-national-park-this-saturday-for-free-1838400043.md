@@ -1,6 +1,6 @@
 # 本周六免费参观国家公园
 
-> 原文:[https://life hacker . com/visit-a-national-park-this-Saturday-free-1838400043](https://lifehacker.com/visit-a-national-park-this-saturday-for-free-1838400043)
+> 原文：<https://lifehacker.com/visit-a-national-park-this-saturday-for-free-1838400043>
 
 由于现任总统政府继续威胁 我们公共土地的完整性，保护我们的国家公园比以往任何时候都重要。
 

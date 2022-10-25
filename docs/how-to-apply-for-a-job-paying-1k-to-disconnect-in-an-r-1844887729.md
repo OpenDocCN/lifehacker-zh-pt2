@@ -1,6 +1,6 @@
 # 如何申请一份支付 1000 美元在房车里过周末的“工作”
 
-> 原文:[https://life hacker . com/how-to-apply-a-job-payed-1k-to-disconnect-in-an-r-1844887729](https://lifehacker.com/how-to-apply-for-a-job-paying-1k-to-disconnect-in-an-r-1844887729)
+> 原文：<https://lifehacker.com/how-to-apply-for-a-job-paying-1k-to-disconnect-in-an-r-1844887729>
 
 说我们现在可以休息一下是一种保守的说法。当然，不用像往常一样通勤也挺好的，整天只在网上和别人交流也有令人难以置信的疲惫。如果你一直梦想打包一辆房车，在国家公园露营一个周末，同时进行数码排毒，那么你可能想申请这个。
 

@@ -1,6 +1,6 @@
 # 不要忘记小额投资收益税
 
-> 原文:[https://life hacker . com/don-t-forget-about-taxes-on-micro investing-income-1837008725](https://lifehacker.com/dont-forget-about-taxes-on-microinvesting-earnings-1837008725)
+> 原文：<https://lifehacker.com/dont-forget-about-taxes-on-microinvesting-earnings-1837008725>
 
 Stash、Acorns 和 Robinhood 等应用的广告让投资看起来很容易，只需几美元。但是 [小额投资](https://lifehacker.com/does-microinvesting-add-up-1821911322) 的新手应该知道，使用这些应用程序来赚取一些额外的钱可能会给你带来税收季节的额外文书工作。
 

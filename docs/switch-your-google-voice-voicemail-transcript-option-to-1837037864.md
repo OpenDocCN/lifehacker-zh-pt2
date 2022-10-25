@@ -1,6 +1,6 @@
 # 将您的 Google Voice mail 文本发送至电子邮件
 
-> 原文:[https://life hacker . com/switch-your-Google-voice-voice mail-transcript-option-to-1837037864](https://lifehacker.com/switch-your-google-voice-voicemail-transcript-option-to-1837037864)
+> 原文：<https://lifehacker.com/switch-your-google-voice-voicemail-transcript-option-to-1837037864>
 
 如果你有手机，那么很有可能你已经被至少几个垃圾电话和短信所困扰——可能不止几个。为了解决这个问题，运营商已经开始默认屏蔽一些垃圾电话和短信。不幸的是，这种屏蔽也开始影响一些谷歌语音转录本，[*【The Verge】*报道](https://www.theverge.com/2019/8/6/20757119/google-voice-sms-voicemail-forwarding-feature-carriers-fight-spam-calls) 。
 

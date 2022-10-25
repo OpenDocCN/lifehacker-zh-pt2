@@ -1,6 +1,6 @@
 # 4 月 2 日 Google+关闭前做什么
 
-> 原文:[https://life hacker . com/what-to-do-before-Google-shut-down-on-April-2-1832298293](https://lifehacker.com/what-to-do-before-google-shuts-down-on-april-2-1832298293)
+> 原文：<https://lifehacker.com/what-to-do-before-google-shuts-down-on-april-2-1832298293>
 
 Google+将于 4 月 2 日消失，这意味着你所有的 Google+内容——包括页面、照片和视频——都将随之消失。
 

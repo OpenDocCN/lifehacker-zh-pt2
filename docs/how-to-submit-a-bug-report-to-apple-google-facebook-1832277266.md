@@ -1,6 +1,6 @@
 # 如何向苹果、谷歌、脸书、推特、微软等提交错误报告
 
-> 原文:[https://life hacker . com/how-to-submit-a-bug-report-to-apple-Google-Facebook-1832277266](https://lifehacker.com/how-to-submit-a-bug-report-to-apple-google-facebook-1832277266)
+> 原文：<https://lifehacker.com/how-to-submit-a-bug-report-to-apple-google-facebook-1832277266>
 
 安全漏洞、硬件漏洞、系统崩溃、功能受损——每一个硬件或软件都容易出现错误和漏洞，很可能你在科技生涯中的某个时候不幸遇到过这些问题。当大多数人苦笑、忍受并等待问题自行解决时，您也可以通过报告您的发现来采取更积极的方法来处理 bug 和其他安全灾难。
 

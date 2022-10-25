@@ -1,6 +1,6 @@
 # 让你的孩子在感恩节除了面包卷什么都不吃
 
-> 原文:[https://life hacker . com/let-your-kids-not-eat-but-rolls-on-thanksgiving-1840002589](https://lifehacker.com/let-your-kids-eat-nothing-but-rolls-on-thanksgiving-1840002589)
+> 原文：<https://lifehacker.com/let-your-kids-eat-nothing-but-rolls-on-thanksgiving-1840002589>
 
 感恩节就要到了，这意味着这是我们一年一次的机会让自己吃到一个荒谬的程度，同时说我们以后会后悔，因为我们同时坚持让小比利尝尝奶奶的绿豆砂锅。
 

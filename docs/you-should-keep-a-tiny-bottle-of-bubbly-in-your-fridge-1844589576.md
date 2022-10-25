@@ -1,6 +1,6 @@
 # 你应该在冰箱里放一小瓶香槟酒
 
-> 原文:[https://life hacker . com/您应该在冰箱里放一小瓶起泡葡萄酒-1844589576](https://lifehacker.com/you-should-keep-a-tiny-bottle-of-bubbly-in-your-fridge-1844589576)
+> 原文：<https://lifehacker.com/you-should-keep-a-tiny-bottle-of-bubbly-in-your-fridge-1844589576>
 
 现在世界上有很多可怕的事情正在发生，但是——尽管对可怕的事情感到悲伤或愤怒是完全好的，也是合理的——但这并不意味着当好事发生时，你不能享受，甚至庆祝。即使是很小的事情。鉴于没有什么比香槟(或者普罗塞克，如果你不太富裕的话)更值得庆祝，所以在身边放一小瓶香槟酒来点缀那些转瞬即逝的快乐时光是个好主意。
 

@@ -1,6 +1,6 @@
 # 这些是 2019 年的税级
 
-> 原文:[https://life hacker . com/these-the-the-2019-tax-brackets-1831021335](https://lifehacker.com/these-are-the-2019-tax-brackets-1831021335)
+> 原文：<https://lifehacker.com/these-are-the-2019-tax-brackets-1831021335>
 
 美国国税局宣布了 2019 年的税率和收入等级，除了因通货膨胀而对收入范围进行小幅调整外，它们看起来与去年相同。
 

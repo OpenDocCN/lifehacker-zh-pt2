@@ -1,6 +1,6 @@
 # 问问 NerdLove 博士:我的前任是在骗我吗？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-is-my-ex-leading-me-on-1836258044](https://kotaku.com/ask-dr-nerdlove-is-my-ex-leading-me-on-1836258044)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-is-my-ex-leading-me-on-1836258044>
 
 你好，美丽又可怕的食人鱼爱好者，欢迎来到 [向 NerdLove](http://kotaku.com/askdrnerdlove) 博士提问，这是一个为从马里奥博士那里获得推荐的人开设的约会建议专栏。
 

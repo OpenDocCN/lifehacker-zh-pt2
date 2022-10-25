@@ -1,6 +1,6 @@
 # 让“冰雪奇缘”中的角色用谷歌助手给你的孩子讲故事
 
-> 原文:[https://life hacker . com/ask-the-frozen-characters-to-tell-your-kids-stories-usi-1840128630](https://lifehacker.com/ask-the-frozen-characters-to-tell-your-kids-stories-usi-1840128630)
+> 原文：<https://lifehacker.com/ask-the-frozen-characters-to-tell-your-kids-stories-usi-1840128630>
 
 如果你家里有一些铁杆粉丝，谷歌助手的一项新技能 可能会大受欢迎:你可以让电影中的人物给你读故事。
 

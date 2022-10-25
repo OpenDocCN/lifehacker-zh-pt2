@@ -1,6 +1,6 @@
 # 为什么 Windows 不能识别我的 Android 手机？
 
-> 原文:[https://life hacker . com/why-wont-windows-recognize-my-Android-phone-1844869321](https://lifehacker.com/why-wont-windows-recognize-my-android-phone-1844869321)
+> 原文：<https://lifehacker.com/why-wont-windows-recognize-my-android-phone-1844869321>
 
 你有机器人。*检查。*你有一台电脑。*止，止。*你想把你的安卓系统连接到你的电脑上，从电脑上抓取文件(或者添加文件，就像你花了几个小时设计的那些铃声一样)。*检查三次。*将手机插入台式机或笔记本电脑的 USB 端口，然后...什么都没发生。
 

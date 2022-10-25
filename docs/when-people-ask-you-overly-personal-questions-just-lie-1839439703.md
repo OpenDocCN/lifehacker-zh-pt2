@@ -1,6 +1,6 @@
 # 当人们问你过于私人的问题时，就撒谎
 
-> 原文:[https://life hacker . com/when-people-ask-you-over-private-questions-just-lie-1839439703](https://lifehacker.com/when-people-ask-you-overly-personal-questions-just-lie-1839439703)
+> 原文：<https://lifehacker.com/when-people-ask-you-overly-personal-questions-just-lie-1839439703>
 
 带着一副怀孕的样子出现在公众面前，突然间所有人都在问"你的预产期是什么时候？"以及“你知道你在吃什么吗？”好像你子宫里的东西是他们的事。你可能会觉得有压力，需要礼貌地回答，但这里有另一个选择:撒谎。
 

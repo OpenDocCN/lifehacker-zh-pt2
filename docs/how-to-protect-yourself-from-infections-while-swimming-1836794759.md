@@ -1,6 +1,6 @@
 # 游泳时如何保护自己免受感染
 
-> 原文:[https://life hacker . com/how-to-protect-yoursely-from-infection-while swimming-1836794759](https://lifehacker.com/how-to-protect-yourself-from-infections-while-swimming-1836794759)
+> 原文：<https://lifehacker.com/how-to-protect-yourself-from-infections-while-swimming-1836794759>
 
 每年夏天，都有关于人们因水中的细菌而感染——有时甚至死亡——的可怕新闻报道。下面是你应该知道的一些高调(但很少！)最近出现在新闻中的传染病。
 

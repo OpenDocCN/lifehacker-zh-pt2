@@ -1,6 +1,6 @@
 # 在周一的“国家鸡蛋松饼日”获得一份免费松饼
 
-> 原文:[https://life hacker . com/get-a-free-mcmuffin-on-Monday-for-national-egg-mcmuffin-1841996086](https://lifehacker.com/get-a-free-mcmuffin-on-monday-for-national-egg-mcmuffin-1841996086)
+> 原文：<https://lifehacker.com/get-a-free-mcmuffin-on-monday-for-national-egg-mcmuffin-1841996086>
 
 周一是“全国鸡蛋松饼日”，这绝对是麦当劳虚构的节日，有机会获得免费的鸡蛋松饼。
 

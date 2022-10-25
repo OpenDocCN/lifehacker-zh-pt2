@@ -1,6 +1,6 @@
 # 苹果 AirPower 从未出现过，但这个充电垫是一个可靠的替代品
 
-> 原文:[https://gizmodo . com/apple-air power-never-show-up-but-this-charging-mat-I-1831267842](https://gizmodo.com/apple-airpower-never-showed-up-but-this-charging-mat-i-1831267842)
+> 原文：<https://gizmodo.com/apple-airpower-never-showed-up-but-this-charging-mat-i-1831267842>
 
 很久以前，传说中有一种神奇的充电板，可以同时给智能手机、手表和无线耳塞充电。声称见过它的当地人甚至提到，它有一个看起来像吃了一半的水果的标记。然而，尽管有各种预言和谣言，没有人能够证明这种装置确实存在。因此，带着梦想和一些小工具，我开始寻找神秘的无线充电板。
 

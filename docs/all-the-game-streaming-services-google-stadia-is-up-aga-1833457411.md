@@ -1,6 +1,6 @@
 # 谷歌 Stadia 面临的所有游戏流媒体服务
 
-> 原文:[https://gizmodo . com/all-the-game-streaming-services-Google-stadia-is-up-aga-1833457411](https://gizmodo.com/all-the-game-streaming-services-google-stadia-is-up-aga-1833457411)
+> 原文：<https://gizmodo.com/all-the-game-streaming-services-google-stadia-is-up-aga-1833457411>
 
 本周，谷歌 [宣布推出 Stadia](https://gizmodo.com/all-the-detail-about-stadia-googles-huge-bet-on-the-fu-1833410886) ，这是一项从云端运行的游戏服务，而不是你客厅里的游戏机或你书房里的加大马力的游戏装备。不过，网络流媒体游戏的概念并不新鲜 Stadia 要对抗的是其他服务，以及它们提供的服务。
 

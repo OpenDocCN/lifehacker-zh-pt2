@@ -1,6 +1,6 @@
 # 如何让分娩(稍微)不那么恐怖
 
-> 原文:[https://life hacker . com/how-to-make-delivery-little-less-terrorist-1836631887](https://lifehacker.com/how-to-make-childbirth-slightly-less-terrifying-1836631887)
+> 原文：<https://lifehacker.com/how-to-make-childbirth-slightly-less-terrifying-1836631887>
 
 九年前怀上儿子的时候，我记得对真正分娩的过程有点紧张。哈哈哈哈哈，开个玩笑，我被石化了。当我的“新妈妈小组”中的所有其他孕妇都在滔滔不绝地谈论她们梦想的“自然、无药物分娩”时，我就像是，“天哪，伙计们，这太糟糕了。”
 

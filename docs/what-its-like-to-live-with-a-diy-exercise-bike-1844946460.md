@@ -1,6 +1,6 @@
 # 和 DIY 健身车一起生活是什么感觉
 
-> 原文:[https://life hacker . com/what-its-like-to-live with-a-DIY-exercise-bike-1844946460](https://lifehacker.com/what-its-like-to-live-with-a-diy-exercise-bike-1844946460)
+> 原文：<https://lifehacker.com/what-its-like-to-live-with-a-diy-exercise-bike-1844946460>
 
 早在 7 月，我们的阿布·扎法尔就向你展示了如何用一个 100 美元左右的自行车训练器和你手机上的一个应用程序来制作一个 DIY Peloton 。一个月来，我一直在断断续续地使用相同的设置，我在这里报告:它保持住了。虽然它不像 Peloton 那样多功能，但它满足了我通常会在健身房的有氧设备中使用的需求。
 

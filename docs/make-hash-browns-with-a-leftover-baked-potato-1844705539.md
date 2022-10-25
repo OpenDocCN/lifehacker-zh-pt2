@@ -1,6 +1,6 @@
 # 用剩下的烤土豆做土豆煎饼
 
-> 原文:[https://life hacker . com/make-hash-browns-with-a-left-baked-potato-1844705539](https://lifehacker.com/make-hash-browns-with-a-leftover-baked-potato-1844705539)
+> 原文：<https://lifehacker.com/make-hash-browns-with-a-leftover-baked-potato-1844705539>
 
 我知道大多数读到这里的人从未听说过“剩下的烤土豆”，老实说，我很喜欢你这么说。但我是一个意志薄弱的人，她的眼睛远远大于她不小的肚子，我已经知道过度订购，过度购买，过度准备，特别是如果我订购，购买，或准备牛排晚餐。
 

@@ -1,6 +1,6 @@
 # 如何启用谷歌 6 月像素功能更新中的所有功能，除了坏掉的部分
 
-> 原文:[https://life hacker . com/how-to-enable-everything-in-Google-June-pixel-feature-1843882306](https://lifehacker.com/how-to-enable-everything-in-googles-june-pixel-feature-1843882306)
+> 原文：<https://lifehacker.com/how-to-enable-everything-in-googles-june-pixel-feature-1843882306>
 
 谷歌 Pixel Androids 的用户将获得一些新功能，包括更新你设备的个人安全应用程序 [和更多的](#otherfeatures) 。此外，从 Pixel 2 开始，所有 Pixel 智能手机都支持个人安全，而不仅仅是 Pixel 4。问题？谷歌让个人安全变得一团糟。
 

@@ -1,6 +1,6 @@
 # 你需要给你的假肉调味
 
-> 原文:[https://life hacker . com/you-need-to-调味你的假肉-1844891573](https://lifehacker.com/you-need-to-season-your-fake-meat-1844891573)
+> 原文：<https://lifehacker.com/you-need-to-season-your-fake-meat-1844891573>
 
 当谈到肉类替代品，如 Beyond Meat 和 Impossible Foods 生产的替代品时，我注意到人们倾向于将它们视为包装好的完整产品，就像冷冻披萨卷或鸡块一样。只是烹饪，吃，然后*瞧*，即使是最挑剔的肉食者也看不出他们在吃——*喘息——*一个骗子！
 

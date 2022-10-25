@@ -1,6 +1,6 @@
 # 回收罐头之前不要压碎它们
 
-> 原文:[https://life hacker . com/don-crush-cans-before-recycling-them-1833374490](https://lifehacker.com/dont-crush-cans-before-recycling-them-1833374490)
+> 原文：<https://lifehacker.com/dont-crush-cans-before-recycling-them-1833374490>
 
 你有没有感觉到在回收之前需要粉碎东西？好吧，这通常是正确的本能，因为它节省空间，并且对于回收者来说更有效。例如，塑料瓶在扔进回收站时通常最好被压碎(并在 上留下 [盖子)。](https://lifehacker.com/stop-recycling-plastic-bottles-without-caps-on-1832992981) 
 

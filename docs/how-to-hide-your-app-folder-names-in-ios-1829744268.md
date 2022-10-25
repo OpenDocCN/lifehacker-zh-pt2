@@ -1,6 +1,6 @@
 # 如何在 iOS 中隐藏您的应用程序文件夹名称
 
-> 原文:[https://life hacker . com/how-to-hide-your-app-folder-names-in-IOs-1829744268](https://lifehacker.com/how-to-hide-your-app-folder-names-in-ios-1829744268)
+> 原文：<https://lifehacker.com/how-to-hide-your-app-folder-names-in-ios-1829744268>
 
 如果你是那种在整理你的 iPhone 或 iPad 上的应用程序时使用一点创造力的人——例如，通过图标颜色——可能是时候将你的设备的外观提升到一个新的水平了。当然，你可以给你的文件夹起一个描述性和/或机智的名字，比如“黄色”而不是里面的应用程序类别，但是这里有一个技巧可以让你完全不用文件夹的名字。
 

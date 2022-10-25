@@ -1,6 +1,6 @@
 # 你孩子的零花钱是多少？
 
-> 原文:[https://life hacker . com/你的孩子津贴是多少-1838772878](https://lifehacker.com/how-much-is-your-kids-allowance-1838772878)
+> 原文：<https://lifehacker.com/how-much-is-your-kids-allowance-1838772878>
 
 如果你和我一样，你会记得小时候每周都会得到几块钱作为零用钱。你可以用它来买街角商店的冰淇淋，或者把它存起来，直到你有足够的钱去商场买一本新书。快进到今天，我们的孩子似乎得到了比冰淇淋和书本更多的东西，平均每周高达 30 美元。
 

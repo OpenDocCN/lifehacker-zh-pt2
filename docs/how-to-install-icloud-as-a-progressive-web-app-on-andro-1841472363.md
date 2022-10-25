@@ -1,6 +1,6 @@
 # 如何在 Android 上安装 iCloud 作为渐进式网络应用
 
-> 原文:[https://life hacker . com/how-to-install-I cloud-as-a-progressive-web-app-on-andro-1841472363](https://lifehacker.com/how-to-install-icloud-as-a-progressive-web-app-on-andro-1841472363)
+> 原文：<https://lifehacker.com/how-to-install-icloud-as-a-progressive-web-app-on-andro-1841472363>
 
 苹果公司重新设计了 iCloud 的移动版本，如果你住在一个分裂的房子里——Android 和 iOS/iPadOS 设备完美和谐地生活——你应该看看这个新网站，特别是如果你在 Android 智能手机或平板电脑上。事实上，你甚至可以把它作为一个渐进式网络应用程序(PWA)安装在你的设备上，以便于访问。
 

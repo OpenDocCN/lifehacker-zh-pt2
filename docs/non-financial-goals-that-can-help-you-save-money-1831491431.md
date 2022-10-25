@@ -1,6 +1,6 @@
 # 可以帮你省钱的非财务目标
 
-> 原文:[https://life hacker . com/non-financial-goals-that-can-help-you-save-money-1831491431](https://lifehacker.com/non-financial-goals-that-can-help-you-save-money-1831491431)
+> 原文：<https://lifehacker.com/non-financial-goals-that-can-help-you-save-money-1831491431>
 
 在 401(k)计划、529 计划、个人退休账户、高收益账户和为你工作的应用程序之间，不缺少省钱的方法。有效使用这些账户和应用是长期财务健康的关键。
 

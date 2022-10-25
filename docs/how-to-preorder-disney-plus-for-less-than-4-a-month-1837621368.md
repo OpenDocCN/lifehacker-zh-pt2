@@ -1,6 +1,6 @@
 # 如何以每月不到 4 美元的价格预订迪士尼 Plus
 
-> 原文:[https://life hacker . com/how-to-preorder-Disney-plus-for-less-a-month-1837621368](https://lifehacker.com/how-to-preorder-disney-plus-for-less-than-4-a-month-1837621368)
+> 原文：<https://lifehacker.com/how-to-preorder-disney-plus-for-less-than-4-a-month-1837621368>
 
 迪士尼 Plus 将于 11 月 12 日在美国、加拿大和荷兰正式推出；然而，该公司目前允许其 D23 粉丝俱乐部的成员，任何人都可以免费成为普通成员， [以相当大的折扣](https://d23.com/disney-plus-exclusive-offer/) 预订服务。
 

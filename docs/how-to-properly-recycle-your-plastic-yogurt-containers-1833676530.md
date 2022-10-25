@@ -1,6 +1,6 @@
 # 如何正确回收你的塑料酸奶容器
 
-> 原文:[https://life hacker . com/how-to-rightly-recycle-your-plastic-酸奶容器-1833676530](https://lifehacker.com/how-to-properly-recycle-your-plastic-yogurt-containers-1833676530)
+> 原文：<https://lifehacker.com/how-to-properly-recycle-your-plastic-yogurt-containers-1833676530>
 
 说到回收，我们都会犯错。
 

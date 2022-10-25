@@ -1,6 +1,6 @@
 # 今年 1 月 1 日免费参加一次有导游的徒步旅行
 
-> 原文:[https://life hacker . com/take-a-guided-hike-free-this-January-1-1840727050](https://lifehacker.com/take-a-guided-hike-for-free-this-january-1-1840727050)
+> 原文：<https://lifehacker.com/take-a-guided-hike-for-free-this-january-1-1840727050>
 
 准备好与旧的一年彻底决裂，享受新鲜空气、锻炼和冒险了吗？全国各地的州立公园都在举办免费的第一天徒步旅行，你可以在这里 找到一个离你最近的。
 

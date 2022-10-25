@@ -1,6 +1,6 @@
 # 在 11 月购买感恩节机票可以省钱
 
-> 原文:[https://life hacker . com/省钱买感恩节机票-i-1839043700](https://lifehacker.com/save-money-by-buying-your-thanksgiving-flight-tickets-i-1839043700)
+> 原文：<https://lifehacker.com/save-money-by-buying-your-thanksgiving-flight-tickets-i-1839043700>
 
 如果你还没有预订感恩节的机票，你最好等到 11 月份。
 

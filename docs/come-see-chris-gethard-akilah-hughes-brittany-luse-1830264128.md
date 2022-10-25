@@ -1,6 +1,6 @@
 # 来布鲁克林看克里斯·杰哈德、阿基拉·休斯、布列塔尼·卢瑟和埃里克·艾丁斯吧
 
-> 原文:[https://life hacker . com/come-see-Chris-get hard-akilah-Hughes-Brittany-卢瑟-1830264128](https://lifehacker.com/come-see-chris-gethard-akilah-hughes-brittany-luse-1830264128)
+> 原文：<https://lifehacker.com/come-see-chris-gethard-akilah-hughes-brittany-luse-1830264128>
 
 你知道感恩节是如何结束的吗？你发现自己在简历的过道里徘徊，而“在圣诞树周围摇摆”的声音在 PA 上响起，你充满了压倒性的恐惧，又一年来了又走了，你的生活都做了些什么？你当然知道。嗯，今年不一样。今年，你会为节日的喧嚣而兴奋，因为你被邀请参加城里最好的聚会。今年你将和我们以及名人嘉宾一起享受一杯三种成分的鸡尾酒，这是 [Lifehacker 播客的首次现场录制，升级版](http://lifehacker.com/theshow) 。
 

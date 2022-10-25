@@ -1,6 +1,6 @@
 # 苹果的 AirPower 无线充电器正式死亡
 
-> 原文:[https://gizmodo . com/apple-air power-wireless-charger-is-official-dead-1833675476](https://gizmodo.com/apples-airpower-wireless-charger-is-officially-dead-1833675476)
+> 原文：<https://gizmodo.com/apples-airpower-wireless-charger-is-officially-dead-1833675476>
 
 苹果已经完全取消了其大肆宣传的 AirPower 项目。无线充电垫本来可以同时为一部 iPhone、一对 AirPods 和一只 Apple Watch 充电，但现在它什么也充不了。周五，苹果做出了令人尴尬的决定，承认失败。
 

@@ -1,6 +1,6 @@
 # 保证你的超胆侠小孩的安全
 
-> 原文:[https://life hacker . com/keep-your-daredev-幼儿安全-1834630071](https://lifehacker.com/keep-your-daredevil-toddler-safe-1834630071)
+> 原文：<https://lifehacker.com/keep-your-daredevil-toddler-safe-1834630071>
 
 蹒跚学步的几年是目标冲突的时期:一方面，这些年幼的孩子想看、做、爬所有的东西；另一方面，父母希望这些孩子活下来。
 

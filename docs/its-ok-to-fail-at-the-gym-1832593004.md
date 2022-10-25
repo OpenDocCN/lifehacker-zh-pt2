@@ -1,6 +1,6 @@
 # 在健身房失败也没关系
 
-> 原文:[https://lifehacker.com/its-ok-to-fail-at-the-gym-1832593004](https://lifehacker.com/its-ok-to-fail-at-the-gym-1832593004)
+> 原文：<https://lifehacker.com/its-ok-to-fail-at-the-gym-1832593004>
 
 三年前，我在举重时伤了下背部(之后又伤了两次)。至少可以说，这是一个令人扫兴的激励。我一直在努力减肥，有时甚至完全不去健身房，感觉自己好像让自己失望了。
 

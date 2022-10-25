@@ -1,6 +1,6 @@
 # 你需要跑慢一点
 
-> 原文:[https://lifehacker.com/you-need-to-run-slower-1844984642](https://lifehacker.com/you-need-to-run-slower-1844984642)
+> 原文：<https://lifehacker.com/you-need-to-run-slower-1844984642>
 
 如果跑步很难，这是给你的——特别是如果你是一个跑步新手，或者如果你已经跑了一段时间，但你似乎不能跑得更快。你需要学习的最重要的事情是:你跑得越多越快，你跑得越慢越多。
 

@@ -1,6 +1,6 @@
 # 现在不是给前任发短信的时候
 
-> 原文:[https://life hacker . com/now-is-the-time to-text-your-ex-1842696567](https://lifehacker.com/now-is-not-the-time-to-text-your-ex-1842696567)
+> 原文：<https://lifehacker.com/now-is-not-the-time-to-text-your-ex-1842696567>
 
 这些漫长的隔离日日夜夜让我们开始做一些在正常情况下可能不会做的事情。无论你已经花了几个小时在烤完美的酸面团上，还是把 1000 块拼图拼在一起，你可能比一个月前有了全新的爱好。如果你喜欢启动谷歌，看看过去的人现在在做什么，你可能已经做过几次了。
 

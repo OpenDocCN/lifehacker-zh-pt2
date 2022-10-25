@@ -1,6 +1,6 @@
 # 如何停止和你的朋友竞争
 
-> 原文:[https://life hacker . com/how-to-stop-feel-competitive-with-your-friends-1836857735](https://lifehacker.com/how-to-stop-feeling-competitive-with-your-friends-1836857735)
+> 原文：<https://lifehacker.com/how-to-stop-feeling-competitive-with-your-friends-1836857735>
 
 你从未想过它会发生，它通常会悄悄靠近你:感觉好像你在和朋友竞争。你当然知道你不是(除非这是 1992 年的奥运会，你要么是 [丹，要么是](https://www.youtube.com/watch?v=yKJkfE1M9wA) 戴夫)，但你真的很难不把自己和同龄人相比，尤其是当他们是朋友的时候。
 

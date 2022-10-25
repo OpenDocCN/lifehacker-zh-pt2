@@ -1,6 +1,6 @@
 # 制作自己的幼儿乐器
 
-> 原文:[https://life hacker . com/make-your-own-buddle-musical-instruments-1841265541](https://lifehacker.com/make-your-own-toddler-musical-instruments-1841265541)
+> 原文：<https://lifehacker.com/make-your-own-toddler-musical-instruments-1841265541>
 
 我想我的儿子在婴儿和蹒跚学步的时候，一定有过几次摇铃或摇晃的噪音发生器。不过，我不太记得他们了。我记得的是我们为他创造的东西很快成为他有史以来最喜欢的噪音制造者。这是一个药瓶(有一个防止儿童打开的盖子),部分装有干的、未煮过的蒸粗麦粉。
 

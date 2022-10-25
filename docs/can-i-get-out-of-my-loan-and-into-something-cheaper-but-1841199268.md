@@ -1,6 +1,6 @@
 # 我能从我的贷款中取出一些更便宜但同样好的东西吗？
 
-> 原文:[https://jalopnik . com/can-I-get-out-of-my-loan-and-into-something-but-1841199268](https://jalopnik.com/can-i-get-out-of-my-loan-and-into-something-cheaper-but-1841199268)
+> 原文：<https://jalopnik.com/can-i-get-out-of-my-loan-and-into-something-cheaper-but-1841199268>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。我决定挑几个问题，试着帮帮大家。本周，我们将讨论以车换车，换成类似但更便宜的东西，日产 Juke 造型，以及是否要带着你的旧车进行长途搬迁。
 

@@ -1,6 +1,6 @@
 # if we cant open sports what hope is there for opening 1844521031
 
-> 原文:[https://life hacker . com/if-we-cant-open-sports-what-hope-there-for-opening-1844521031](https://lifehacker.com/if-we-cant-open-sports-what-hope-is-there-for-opening-1844521031)
+> 原文：<https://lifehacker.com/if-we-cant-open-sports-what-hope-is-there-for-opening-1844521031>
 
 当我阅读我们学区的返校计划时，我心中只有两个问题:*你如何知道某人是否感染了冠状病毒？*和*假设病毒进入了学校，因为它会，你如何确保它不会传染给其他人？*该计划没有回答这些问题。
 

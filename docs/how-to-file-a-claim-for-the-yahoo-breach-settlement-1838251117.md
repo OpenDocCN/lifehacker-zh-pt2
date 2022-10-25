@@ -1,6 +1,6 @@
 # 如何为雅虎违约和解提出索赔
 
-> 原文:[https://life hacker . com/how-to-file-a-claim-for-the-Yahoo-breach-settlement-1838251117](https://lifehacker.com/how-to-file-a-claim-for-the-yahoo-breach-settlement-1838251117)
+> 原文：<https://lifehacker.com/how-to-file-a-claim-for-the-yahoo-breach-settlement-1838251117>
 
 随着过去几年中发现的所有大型企业数据泄露事件，你可能已经忘记了雅虎在 2016 年曝光了 [5 亿账户密码](https://lifehacker.com/500-million-yahoo-accounts-hacked-change-your-password-1786958537) 的事件。
 

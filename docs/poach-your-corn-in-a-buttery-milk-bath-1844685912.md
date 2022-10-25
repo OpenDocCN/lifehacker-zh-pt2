@@ -1,6 +1,6 @@
 # 在电池牛奶浴中煮玉米
 
-> 原文:[https://life hacker . com/水煮你的玉米-奶油牛奶浴-1844685912](https://lifehacker.com/poach-your-corn-in-a-buttery-milk-bath-1844685912)
+> 原文：<https://lifehacker.com/poach-your-corn-in-a-buttery-milk-bath-1844685912>
 
 每年夏天，我都会在社交媒体上大喊 [你不必煮玉米](https://lifehacker.com/you-know-you-dont-have-to-cook-corn-right-1797841831) ，然后我会吃很多生玉米(大多是在“沙拉”里，实际上只是几碗加了调料的玉米)。但我并不比一只或七只熟耳朵高。我喜欢烤着吃，我喜欢蒸着吃，我喜欢把它从玉米棒上剥下来，用熏肉油煎。但是，最简单、最美味的确保玉米粒饱满、多汁、涂有少量黄油的方法是让你的玉米在黄油和牛奶浴中度过一段时间。
 

@@ -1,6 +1,6 @@
 # 如何处理你所有不能“激发快乐”的东西
 
-> 原文:[https://life hacker . com/what-to-do-with-all-your ' s-stuff-joy-1831639046](https://lifehacker.com/what-to-do-with-all-your-stuff-that-doesnt-spark-joy-1831639046)
+> 原文：<https://lifehacker.com/what-to-do-with-all-your-stuff-that-doesnt-spark-joy-1831639046>
 
 现在是玛丽·近藤的世界了，我们都想摆脱它。
 

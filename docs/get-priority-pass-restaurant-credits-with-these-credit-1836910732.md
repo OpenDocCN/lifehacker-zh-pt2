@@ -1,6 +1,6 @@
 # 用这些信用卡获得优先通行餐厅积分
 
-> 原文:[https://life hacker . com/get-priority-pass-restaurant-credits-with the-credit-1836910732](https://lifehacker.com/get-priority-pass-restaurant-credits-with-these-credit-1836910732)
+> 原文：<https://lifehacker.com/get-priority-pass-restaurant-credits-with-these-credit-1836910732>
 
 如果你有美国运通旅行信用卡，其中包括优先通行会员，请注意，美国运通刚刚削减了你在机场用餐的节省能力。
 

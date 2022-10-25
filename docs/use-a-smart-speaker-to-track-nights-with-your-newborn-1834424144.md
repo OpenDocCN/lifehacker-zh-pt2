@@ -1,6 +1,6 @@
 # 使用智能扬声器记录新生儿的夜晚
 
-> 原文:[https://life hacker . com/use-a-smart-speaker-to-track-nights-with-your-新生儿-1834424144](https://lifehacker.com/use-a-smart-speaker-to-track-nights-with-your-newborn-1834424144)
+> 原文：<https://lifehacker.com/use-a-smart-speaker-to-track-nights-with-your-newborn-1834424144>
 
 我讨厌在半夜被我的新生儿叫醒——除了，你知道，在半夜被我的新生儿叫醒。自从把它放下后，我第三次或第四次听到它的哭声，然后摇摇晃晃地睁开眼睛，发现现在是*晚上 11 点*，这让我感到悲伤和沮丧，难以入睡。我想我不需要知道时间，但我喜欢知道他的睡眠时间是变长了还是变短了(哦，请不要变短)，我需要一个时钟来收集这些信息。那时我意识到我的谷歌主页可以帮上忙。
 

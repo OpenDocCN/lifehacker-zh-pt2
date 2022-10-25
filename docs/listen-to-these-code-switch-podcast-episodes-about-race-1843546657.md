@@ -1,6 +1,6 @@
 # 和你的孩子一起听这些关于种族的“代码转换”播客片段
 
-> 原文:[https://life hacker . com/listen-to-these-code-switch-podcast-episodes-about-race-1843546657](https://lifehacker.com/listen-to-these-code-switch-podcast-episodes-about-race-1843546657)
+> 原文：<https://lifehacker.com/listen-to-these-code-switch-podcast-episodes-about-race-1843546657>
 
 随着这个奇怪的学年慢慢接近尾声，我们都在深入挖掘对我们的孩子有教育意义和吸引力的内容——但我们不必亲自策划，因为现在没有时间做这些。没有盯着屏幕看的教育内容会得到加分，如果它解决了一个重要的社会问题，如美国的种族和种族主义，会得到额外的加分。
 

@@ -1,6 +1,6 @@
 # 如何在视频聊天中与朋友“共同观看”Instagram
 
-> 原文:[https://life hacker . com/how-to-co-watch-insta gram-with-your-friends-a-video-1842493619](https://lifehacker.com/how-to-co-watch-instagram-with-your-friends-in-a-video-1842493619)
+> 原文：<https://lifehacker.com/how-to-co-watch-instagram-with-your-friends-in-a-video-1842493619>
 
 由于我们如今都生活在一个视频聊天的世界里， [Instagram](https://www.instagram.com/) 推出了一项新功能，让你、和你在服务上与之进行会议的人可以轻松地一起享受这个社交网站的精彩和糟糕。在不中断视频通话的情况下，你们可以同时观看相同的视频——或者在一起观看时评论你最喜欢的图片。
 

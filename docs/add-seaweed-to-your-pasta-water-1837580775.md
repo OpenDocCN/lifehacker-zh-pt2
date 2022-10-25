@@ -1,6 +1,6 @@
 # 在你的面食水中加入海藻
 
-> 原文:[https://life hacker . com/add-seaweed-to-your-pasta-water-1837580775](https://lifehacker.com/add-seaweed-to-your-pasta-water-1837580775)
+> 原文：<https://lifehacker.com/add-seaweed-to-your-pasta-water-1837580775>
 
 加盐直到你的意大利面水“像海水一样咸”是一种常见的做法，但没有人谈论这一大片水域必须提供的其他咸的海洋风味。我不会在真正的海水中煮意大利面，但你可以在海藻的帮助下加入一点矿物质和蘑菇般的鲜味。
 

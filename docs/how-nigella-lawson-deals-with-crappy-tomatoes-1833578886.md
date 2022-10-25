@@ -1,6 +1,6 @@
 # 奈杰尔·劳森如何处理劣质西红柿
 
-> 原文:[https://life hacker . com/how-nigella-Lawson-deals-with-蹩脚番茄-1833578886](https://lifehacker.com/how-nigella-lawson-deals-with-crappy-tomatoes-1833578886)
+> 原文：<https://lifehacker.com/how-nigella-lawson-deals-with-crappy-tomatoes-1833578886>
 
 我们正处于我称之为“番茄挑逗季节”的中期，我的话已经被证实了。它们看起来都很好，但即使是圣女果——我通常认为至少有点味道——似乎也暗淡无光。幸运的是，奈杰尔·劳森(自从我十几岁的时候收到一本《如何成为家庭女神》的圣诞礼物后，我就一直爱着她，珍惜着她)有一个解决这个极其令人烦恼的问题的办法。
 

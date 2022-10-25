@@ -1,6 +1,6 @@
 # 如何跟踪你的体重减轻而不纠结于数字
 
-> 原文:[https://life hacker . com/how-to-track-your weight-losing-over-nu-1832393722](https://lifehacker.com/how-to-track-your-weight-loss-without-obsessing-over-nu-1832393722)
+> 原文：<https://lifehacker.com/how-to-track-your-weight-loss-without-obsessing-over-nu-1832393722>
 
 如果你试图改变你的体重，有时你需要站在磅秤上看看情况如何。但是早上第一件事就是评判自己，如果你减了一磅就庆祝，如果你胖了就觉得自己一直在做错事，这让人沮丧。
 

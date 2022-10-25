@@ -1,6 +1,6 @@
 # 如果你被关在国外该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-you-lock-up-foreign-1843905990](https://lifehacker.com/what-to-do-if-youre-locked-up-abroad-1843905990)
+> 原文：<https://lifehacker.com/what-to-do-if-youre-locked-up-abroad-1843905990>
 
 随着疫情席卷全球，许多美国游客在国外生活或旅行时被困。随着世界范围的抗议爆发，那些被困的美国人可能会感到被召唤去参加当地的示威活动——这可能会导致他们被逮捕。如果你发现自己在外国身陷囹圄，你可以这么做。
 

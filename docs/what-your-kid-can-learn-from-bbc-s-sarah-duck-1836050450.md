@@ -1,6 +1,6 @@
 # 你的孩子能从 BBC 的《莎拉和鸭子》中学到什么
 
-> 原文:[https://life hacker . com/what-your-kid-can-learn-from-BBC-s-Sarah-duck-1836050450](https://lifehacker.com/what-your-kid-can-learn-from-bbc-s-sarah-duck-1836050450)
+> 原文：<https://lifehacker.com/what-your-kid-can-learn-from-bbc-s-sarah-duck-1836050450>
 
 在英国漫画 [*莎拉&鸭子*](https://www.sarahandduck.com)T5】中，莎拉是一个和自己最好的朋友——一只名叫鸭子的绿头鸭住在一起的女孩。除了无处不在的叙述者/可能的父亲，他们的家里没有成年人。每一集都跟随这对搭档经历平凡的活动(比如做蛋糕)和幻想的场景(比如蛋糕面糊活过来指导他们烘焙)。 
 

@@ -1,6 +1,6 @@
 # 让小孩子成为“家庭面具监控者”
 
-> 原文:[https://life hacker . com/make-little-kids-the-family-mask-monitor-1844146905](https://lifehacker.com/make-little-kids-the-family-mask-monitor-1844146905)
+> 原文：<https://lifehacker.com/make-little-kids-the-family-mask-monitor-1844146905>
 
 我不知道你们其他人怎么样，但是戴面具的新鲜感已经在我的家庭里消失了。我九岁的儿子起初认为它们很酷——他甚至想找理由穿它们——但现在他看到它们带来的不舒服和不便。不幸的是，他(和我，和你，还有你的孩子)还有几个月要戴面具。
 

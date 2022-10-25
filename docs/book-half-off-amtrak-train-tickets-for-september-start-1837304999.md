@@ -1,6 +1,6 @@
 # 从今天开始，预订九月份美国国家铁路客运公司火车票半价
 
-> 原文:[https://life hacker . com/book-half-off-Amtrak-train-tickets-for-September-start-1837304999](https://lifehacker.com/book-half-off-amtrak-train-tickets-for-september-start-1837304999)
+> 原文：<https://lifehacker.com/book-half-off-amtrak-train-tickets-for-september-start-1837304999>
 
 如果你正考虑在九月乘火车旅行，你会想现在就订票。从今天(8 月 16 日)开始到明天结束， [在 2019 年 9 月 1 日至 9 月 30 日期间，美国国家铁路客运公司的精选路线为全国旅行的](https://media.amtrak.com/2019/08/amtrak-offers-50-off-national-travel-with-september-sale/) 提供五折优惠，没有限制日期。
 

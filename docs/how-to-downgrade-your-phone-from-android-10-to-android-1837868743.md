@@ -1,6 +1,6 @@
 # 如何将手机从 Android 10 降级到 Android 9
 
-> 原文:[https://life hacker . com/how-to-degrade-your-phone-from-Android-10 to-Android-1837868743](https://lifehacker.com/how-to-downgrade-your-phone-from-android-10-to-android-1837868743)
+> 原文：<https://lifehacker.com/how-to-downgrade-your-phone-from-android-10-to-android-1837868743>
 
 Android 10 来了——至少对 Pixel 设备来说是这样。我们通常建议每个人都升级到最新最好的操作系统版本，以享受其功能、安全补丁和错误修复，但这并不意味着你能保证在新操作系统上有完美的体验。
 

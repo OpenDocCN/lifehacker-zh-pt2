@@ -1,6 +1,6 @@
 # 我是火星秀主持人迪·约翰逊，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-mars-show runner-dee-Johnson-and-this-is-how-I-work-1830082959](https://lifehacker.com/im-mars-showrunner-dee-johnson-and-this-is-how-i-work-1830082959)
+> 原文：<https://lifehacker.com/im-mars-showrunner-dee-johnson-and-this-is-how-i-work-1830082959>
 
 在埃隆·马斯克将他的下一辆汽车发射出大气层之前，迪·约翰逊将带你去火星。约翰逊主持过《傲骨贤妻》和《纳什维尔 T2》等节目，参与过《T4》和《梅尔罗斯广场》等节目，现在她是国家地理频道《火星》第二季的主持人，这是一部关于我们梦寐以求的大漠星球的混合脚本/纪录片系列片。新一季于本周一首播；我们采访了约翰逊，让她谈谈她的职业道路、她在读什么书，以及似乎是播出一部新电视剧的唯一途径。
 

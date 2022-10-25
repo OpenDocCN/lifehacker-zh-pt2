@@ -1,6 +1,6 @@
 # 如何摆脱 Spotify 循环播放的“画布”视频
 
-> 原文:[https://life hacker . com/how-to-get-ride-of-Spotify-s-looping-canvas-videos-1832291287](https://lifehacker.com/how-to-get-rid-of-spotify-s-looping-canvas-videos-1832291287)
+> 原文：<https://lifehacker.com/how-to-get-rid-of-spotify-s-looping-canvas-videos-1832291287>
 
 你有没有在手机上用 Spotify 选了一首歌，然后发现自己在看一个 5-10 秒的循环视频？这是“画布”，Spotify 去年添加的一种新型免费内容，类似于 Genius 的“歌词背后”注释。他们目前喜欢爱莉安娜·格兰德、罗辑和黛米·洛瓦托等艺术家的新歌。如果你听过 Spotify 的任何一个热门播放列表，你可能已经看过了。
 

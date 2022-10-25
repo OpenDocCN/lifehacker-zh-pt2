@@ -1,6 +1,6 @@
 # 黑客如何在机场窃取你的数据
 
-> 原文:[https://life hacker . com/how-hacker-can-steak-your-data-in-airports-1834976072](https://lifehacker.com/how-hackers-can-steal-your-data-at-airports-1834976072)
+> 原文：<https://lifehacker.com/how-hackers-can-steal-your-data-at-airports-1834976072>
 
 有没有想过在机场使用流量很大的公共 wifi 网络上网是不是一个坏主意？多半是 [安全](https://www.wired.com/story/hotel-airport-wifi-safe/)；只要您连接到正确的网络，您的信息可能不会有风险。另一方面，你*可能*想重新考虑把你的手机插到门口的 USB 充电站。
 

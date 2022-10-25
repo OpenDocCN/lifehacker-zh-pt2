@@ -1,6 +1,6 @@
 # 用这个子编辑学习“无用的天赋”
 
-> 原文:[https://life hacker . com/learn-used-talents-with this-subred dit-1840147686](https://lifehacker.com/learn-useless-talents-with-this-subreddit-1840147686)
+> 原文：<https://lifehacker.com/learn-useless-talents-with-this-subreddit-1840147686>
 
 你可能已经知道我喜欢学习新技能，无论是 [在衣服上缝补丁](https://vitals.lifehacker.com/to-feel-better-about-yourself-learn-a-small-new-skill-1838530362) 还是 [徒手将苹果撕成两半](https://vitals.lifehacker.com/how-to-split-an-apple-in-half-with-your-bare-hands-1839415314) 。这就是我喜欢[r/learnuselestalents](https://www.reddit.com/r/LearnUselessTalents/)子编辑的原因。
 

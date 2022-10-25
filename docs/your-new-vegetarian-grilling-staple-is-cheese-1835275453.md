@@ -1,6 +1,6 @@
 # 你新的素食烧烤主食是奶酪
 
-> 原文:[https://life hacker . com/your-new-素食-烧烤-主食-奶酪-1835275453](https://lifehacker.com/your-new-vegetarian-grilling-staple-is-cheese-1835275453)
+> 原文：<https://lifehacker.com/your-new-vegetarian-grilling-staple-is-cheese-1835275453>
 
 近年来，假肉制品 已经有了长足的进步，但素食者的烧烤选择数量仍远不及他们的肉食朋友。烤蔬菜很有趣，但对我来说，它们更像是一道小菜，尤其是和排骨之类的东西放在一起的时候。想要饱腹、满足、放纵的素食烧烤餐，就去拿奶酪吧。
 

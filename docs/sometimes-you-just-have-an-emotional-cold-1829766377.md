@@ -1,6 +1,6 @@
 # 有时候你只是情绪感冒
 
-> 原文:[https://life hacker . com/something-you-just-have-an-emotional-cold-1829766377](https://lifehacker.com/sometimes-you-just-have-an-emotional-cold-1829766377)
+> 原文：<https://lifehacker.com/sometimes-you-just-have-an-emotional-cold-1829766377>
 
 如果我和某人发生争执，尤其是那些不应该以任何方式影响我生活的争论，我知道我会有一段时间感觉很糟糕，我需要保持低调，否则我会让事情变得更糟。现在我有合适的词来形容这种感觉:情感上的冷淡。
 

@@ -1,6 +1,6 @@
 # 为什么前重罪犯现在可以在佛罗里达州投票是一件大事
 
-> 原文:[https://life hacker . com/why-its-that-so-a-deal-that-former-deals-can-now-vote-1830286403](https://lifehacker.com/why-its-such-a-big-deal-that-former-felons-can-now-vote-1830286403)
+> 原文：<https://lifehacker.com/why-its-such-a-big-deal-that-former-felons-can-now-vote-1830286403>
 
 由于昨晚的投票，佛罗里达州将成为第 48 个因重罪服刑期满的人有资格投票的州。(肯塔基州和爱荷华州是抵制者。)这意味着可能有超过 100 万人同时被赋予投票权——这是自第 19 修正案以来最大的一次。
 

@@ -1,6 +1,6 @@
 # 在哪里可以找到 Google Play Pass 附带的应用程序和游戏的完整列表
 
-> 原文:[https://life hacker . com/where-to-find-the-full-list-apps-and-games-included-wit-1840269041](https://lifehacker.com/where-to-find-the-full-list-apps-and-games-included-wit-1840269041)
+> 原文：<https://lifehacker.com/where-to-find-the-full-list-apps-and-games-included-wit-1840269041>
 
 在 [苹果宣布其基于订阅的游戏服务 Apple Arcade](https://lifehacker.com/google-play-pass-or-apple-arcade-which-app-subscriptio-1836890417) 后不久，谷歌以自己类似的订阅计划进行反击: [Google Play Pass](https://play.google.com/about/play-pass/) 。与 Apple Arcade 不同，Google Play Pass 包括通过 Google Play 访问优质游戏和非游戏应用程序，通常每个月只需支付 5 美元，而 Apple Arcade 则完全专注于游戏。Google Play Pass 库中的每个应用程序都是完整版本，没有任何广告或无关的应用内购买，但迄今为止，谷歌忽略了一个非常重要的细节:该程序中包含的应用程序的完整列表。
 

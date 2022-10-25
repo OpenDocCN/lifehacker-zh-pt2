@@ -1,6 +1,6 @@
 # 打印您自己的空白日历
 
-> 原文:[https://life hacker . com/print-your-own-blank-calendars-1843394269](https://lifehacker.com/print-your-own-blank-calendars-1843394269)
+> 原文：<https://lifehacker.com/print-your-own-blank-calendars-1843394269>
 
 所有的技术都在我的指尖，我仍然喜欢在我办公桌前的墙上挂一个纸质日历。很方便的一瞥，就能看到下周一是几号，或者离某个截止日期还有几周。我过去常常去书店购买出版的日历，但后来我发现了一个更直接的解决方案:我打印从开始的日历页，然后想贴多少就贴多少。
 

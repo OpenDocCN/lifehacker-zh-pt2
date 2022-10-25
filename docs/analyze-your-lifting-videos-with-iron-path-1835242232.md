@@ -1,6 +1,6 @@
 # 用“铁之路”分析你的举重视频
 
-> 原文:[https://life hacker . com/analyze-your-lifting-videos-with-iron-path-1835242232](https://lifehacker.com/analyze-your-lifting-videos-with-iron-path-1835242232)
+> 原文：<https://lifehacker.com/analyze-your-lifting-videos-with-iron-path-1835242232>
 
 举起重物最有效的方法是拿起它，然后放下它。听起来很简单，对吧？但是有时我们努力以正确的方式移动我们的身体来达到这个目的。如果你的教练一直在谈论你的“酒吧之路”是如何到处走的，现在有一个应用程序向你展示这到底是什么意思。
 

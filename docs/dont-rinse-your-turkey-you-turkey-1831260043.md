@@ -1,6 +1,6 @@
 # 不要冲洗你的火鸡，你这只火鸡
 
-> 原文:[https://life hacker . com/don-rinse-your-turkey-you-turkey-1831260043](https://lifehacker.com/dont-rinse-your-turkey-you-turkey-1831260043)
+> 原文：<https://lifehacker.com/dont-rinse-your-turkey-you-turkey-1831260043>
 
 生禽肉有点恶心，但是冲洗一下也不会让它变得更恶心。虽然给你的假日火鸡洗一洗是许多食谱的第一步，但这样做实际上弊大于利。
 

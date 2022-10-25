@@ -1,6 +1,6 @@
 # 操场太安全了
 
-> 原文:[https://lifehacker.com/playgrounds-are-too-safe-1839828384](https://lifehacker.com/playgrounds-are-too-safe-1839828384)
+> 原文：<https://lifehacker.com/playgrounds-are-too-safe-1839828384>
 
 在许多其他国家，尤其是整个欧洲，孩子们在字面上的垃圾中玩耍:废弃的木头和旧轮胎、绳子、杆子和可以攀爬的建筑。他们可以自己建造或操作的物体，有时是用实际的工具。
 

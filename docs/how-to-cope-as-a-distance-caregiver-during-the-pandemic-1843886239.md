@@ -1,6 +1,6 @@
 # 如何应对疫情期间的“远程看护”
 
-> 原文:[https://life hacker . com/how-to-cope-as-a-distance-career-in-the-疫情-1843886239](https://lifehacker.com/how-to-cope-as-a-distance-caregiver-during-the-pandemic-1843886239)
+> 原文：<https://lifehacker.com/how-to-cope-as-a-distance-caregiver-during-the-pandemic-1843886239>
 
 新冠肺炎·疫情意味着应对大多数人从未想过他们会面临的挑战:卫生纸短缺、普遍的家庭学校教育和一种新型病毒，这种病毒在不到三个月的时间里已经导致超过 10 万美国人死亡。它也极大地改变了护理领域。 [在美国，大约有 3980 万人](https://www.caregiver.org/caregiver-statistics-demographics) 为成年残疾人或疾病患者(18 岁以上)提供护理，而疫情的发作——尤其是身体距离——使本已困难的工作变得更加困难。
 

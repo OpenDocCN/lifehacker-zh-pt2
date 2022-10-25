@@ -1,6 +1,6 @@
 # T-Mobile 现在向用户提供免费升级
 
-> 原文:[https://life hacker . com/t-mobile-is-provide-free-upgrades-to-subscribers-righ-1842360449](https://lifehacker.com/t-mobile-is-providing-free-upgrades-to-subscribers-righ-1842360449)
+> 原文：<https://lifehacker.com/t-mobile-is-providing-free-upgrades-to-subscribers-righ-1842360449>
 
 冠状病毒的传播不仅仅影响公共健康和全球经济；它还会影响互联网和蜂窝网络。如此多的人被困在家里，其他人因旅行禁令而流离失所，数据使用量上升，带宽堵塞，服务在世界各地中断。
 

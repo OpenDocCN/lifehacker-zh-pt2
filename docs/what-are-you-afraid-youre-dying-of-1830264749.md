@@ -1,6 +1,6 @@
 # 你害怕你会死于什么？
 
-> 原文:[https://life hacker . com/1830264749](https://lifehacker.com/what-are-you-afraid-youre-dying-of-1830264749)
+> 原文：<https://lifehacker.com/what-are-you-afraid-youre-dying-of-1830264749>
 
 你脸颊上反复出现的抽搐是比疲劳更严重的症状吗？为什么一天下来你的视力会变得模糊？你脚上的那个东西是什么？这些问题我们回答不了，但我们认识能回答的人，也许！
 

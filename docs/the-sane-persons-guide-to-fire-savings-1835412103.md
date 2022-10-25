@@ -1,6 +1,6 @@
 # 理智的人的消防储蓄指南
 
-> 原文:[https://life hacker . com/the-sane-persons-guide-to-fire-savings-1835412103](https://lifehacker.com/the-sane-persons-guide-to-fire-savings-1835412103)
+> 原文：<https://lifehacker.com/the-sane-persons-guide-to-fire-savings-1835412103>
 
 火的概念——经济独立，提前退休——非常简单。如果你年轻时能存下足够的钱，你在以后的生活中会有更多的灵活性。你可能会选择辞职创业，或者卸下房子去环游世界。如果你能储蓄，你就能创造一个适合你的未来，而不是等待那神奇的一天，那时你可以开始从你的退休账户中提款或开始获得社会保障福利。
 

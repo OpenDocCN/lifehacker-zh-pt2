@@ -1,6 +1,6 @@
 # 我需要一辆小巧、有趣、至少能用十年的车！我应该买什么？
 
-> 原文:[https://jalopnik . com/I-need-a-small-fun-car-the-last-at-ten-yea-1830737984](https://jalopnik.com/i-need-a-small-fun-car-that-will-last-at-least-ten-yea-1830737984)
+> 原文：<https://jalopnik.com/i-need-a-small-fun-car-that-will-last-at-least-ten-yea-1830737984>
 
 来自新英格兰的肯喜欢小巧、有趣、轻快的汽车。他保存了很长时间，但是他现在的车已经快报废了。肯准备好了一辆新车，但他想要一辆能开一阵子的车。他应该买什么车？
 

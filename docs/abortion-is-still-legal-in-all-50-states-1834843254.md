@@ -1,6 +1,6 @@
 # 堕胎在所有 50 个州仍然合法
 
-> 原文:[https://life hacker . com/堕胎在全美 50 个州仍然合法-1834843254](https://lifehacker.com/abortion-is-still-legal-in-all-50-states-1834843254)
+> 原文：<https://lifehacker.com/abortion-is-still-legal-in-all-50-states-1834843254>
 
 如果最近一波为期六周的堕胎禁令让你感到极度恐惧和愤怒，你并不孤单。但是重要的是要记住，到目前为止，没有任何法律发生变化；尽管许多州的限制越来越严格，堕胎仍然是一项宪法权利。
 

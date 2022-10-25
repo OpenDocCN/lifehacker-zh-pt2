@@ -1,6 +1,6 @@
 # 如何租私人飞机
 
-> 原文:[https://lifehacker.com/how-to-rent-a-private-jet-1830679995](https://lifehacker.com/how-to-rent-a-private-jet-1830679995)
+> 原文：<https://lifehacker.com/how-to-rent-a-private-jet-1830679995>
 
 当决定一种运输方式时，有很多要考虑的，包括成本、便利性和环境影响。对我们中的许多人来说，这排除了我们下次旅行租用私人飞机的可能性——至少在价格和环境方面。但是私人飞机旅行并不像你想象的那样遥不可及，尤其是如果你有一个坚实的团队来庆祝一个重大的生活事件，或者不顾一切地去一个温暖的地方度一个长周末。
 

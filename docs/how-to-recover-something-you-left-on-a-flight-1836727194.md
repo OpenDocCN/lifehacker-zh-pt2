@@ -1,6 +1,6 @@
 # 如何找回落在飞机上的东西
 
-> 原文:[https://life hacker . com/how-to-recover-something-you-left-on-a-flight-1836727194](https://lifehacker.com/how-to-recover-something-you-left-on-a-flight-1836727194)
+> 原文：<https://lifehacker.com/how-to-recover-something-you-left-on-a-flight-1836727194>
 
 在阿拉巴马州的斯科茨伯勒，有一家“无人认领行李中心”商店，里面堆满了貂皮大衣和 ipad——这些物品被遗留在飞机上，从未有人认领，现在正在出售。正如《纽约时报》的所写的，这些物品可能是被故意丢弃、遗忘或者只是...失落。
 

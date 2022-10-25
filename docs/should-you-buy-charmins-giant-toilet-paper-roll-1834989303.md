@@ -1,6 +1,6 @@
 # 该不该买 Charmin 的巨型卫生纸卷筒？
 
-> 原文:[https://life hacker . com/should-you-buy-charmins-giant-toilet-paper-roll-1834989303](https://lifehacker.com/should-you-buy-charmins-giant-toilet-paper-roll-1834989303)
+> 原文：<https://lifehacker.com/should-you-buy-charmins-giant-toilet-paper-roll-1834989303>
 
 某人，某地，需要 Charmin 的 [【永远的一卷】卫生纸。它有一种“幸运符，但只是棉花糖”的吸引力，特别是如果你是那种经常用完 TP 的人。但是在 Lifehacker 办公室，我们试图证明存在的合理性，相反，我们找到了太多的理由证明这是行不通的。](https://shop.charmin.com/starter-kits/)
 

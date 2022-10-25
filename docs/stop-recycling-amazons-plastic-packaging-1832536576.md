@@ -1,6 +1,6 @@
 # 停止回收亚马逊的塑料包装
 
-> 原文:[https://life hacker . com/stop-recycling-amazons-plastic-packaging-1832536576](https://lifehacker.com/stop-recycling-amazons-plastic-packaging-1832536576)
+> 原文：<https://lifehacker.com/stop-recycling-amazons-plastic-packaging-1832536576>
 
 回收实际上有点复杂——绝不像把塑料扔进塑料回收箱那么简单。例如，大多数路边回收项目不接受塑料袋。
 

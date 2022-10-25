@@ -1,6 +1,6 @@
 # 当一个三年级学生威胁要射杀他的朋友时，你会怎么做？
 
-> 原文:[https://life hacker . com/when-a 三年级学生威胁要射杀他的朋友 wha-1839172429](https://lifehacker.com/when-a-third-grader-threatens-to-shoot-his-friends-wha-1839172429)
+> 原文：<https://lifehacker.com/when-a-third-grader-threatens-to-shoot-his-friends-wha-1839172429>
 
 在 Lifehacker 有史以来的第一个家长咨询专栏中，我直接切入了一个孩子和家长永远都不应该处理的话题——然而，我们在这里。当一个三年级学生告诉一群其他三年级学生(包括你自己的孩子)他要拿起他爸爸的枪“杀死所有人”时，你会怎么做？
 

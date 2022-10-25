@@ -1,6 +1,6 @@
 # 最好的廉价蓝牙音箱
 
-> 原文:[https://gizmodo . com/the-best-cheap-bluetooth-speaker-1830186582](https://gizmodo.com/the-best-cheap-bluetooth-speaker-1830186582)
+> 原文：<https://gizmodo.com/the-best-cheap-bluetooth-speaker-1830186582>
 
 近年来，便携式蓝牙扬声器已经成为现代生活的必备小工具。走进森林，想听一些费西合唱团？找个扬声器。想在洗澡的时候听播客？使用蓝牙解决方案。但除了如此有用之外，如今蓝牙扬声器令人兴奋的是，你可以廉价获得一个优秀的蓝牙扬声器。见鬼，也给朋友买一个吧！
 

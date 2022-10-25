@@ -1,6 +1,6 @@
 # 看 AI 怎么给你定型
 
-> 原文:[https://life hacker . com/see-how-ai-stereotypes-you-1838157127](https://lifehacker.com/see-how-ai-stereotypes-you-1838157127)
+> 原文：<https://lifehacker.com/see-how-ai-stereotypes-you-1838157127>
 
 电脑认为它们知道你是谁。人工智能算法可以从图像中识别物体，甚至是人脸。但我们很少能看到面部识别算法的内幕。现在，有了 [ImageNet 轮盘](https://imagenet-roulette.paglen.com) ，我们可以看着一个 AI 妄下结论。它的一些猜测很搞笑，其他的……种族歧视。
 

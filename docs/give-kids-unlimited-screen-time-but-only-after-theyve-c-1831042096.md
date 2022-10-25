@@ -1,6 +1,6 @@
 # 给孩子无限的屏幕时间——但只能在他们完成日常活动之后
 
-> 原文:[https://life hacker . com/give-kids-unlimited-screen-time-but-only-after-they ve-c-1831042096](https://lifehacker.com/give-kids-unlimited-screen-time-but-only-after-theyve-c-1831042096)
+> 原文：<https://lifehacker.com/give-kids-unlimited-screen-time-but-only-after-theyve-c-1831042096>
 
 作为一个在家工作的父母，屏幕时间总是我们家庭讨论的话题，尤其是在寒暑假期间。因为我的工作要求我在没有孩子们要零食和为谁控制了网飞队列而争吵的声音的情况下真正集中注意力，所以我必须想出一个对每个人都有效的策略。几年前的夏天，我灵光一现。
 

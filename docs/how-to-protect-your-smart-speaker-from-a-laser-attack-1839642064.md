@@ -1,6 +1,6 @@
 # 如何保护你的智能音箱免受激光攻击
 
-> 原文:[https://life hacker . com/how-to-protect-your-smart-speaker-a-laser-attack-1839642064](https://lifehacker.com/how-to-protect-your-smart-speaker-from-a-laser-attack-1839642064)
+> 原文：<https://lifehacker.com/how-to-protect-your-smart-speaker-from-a-laser-attack-1839642064>
 
 我喜欢好的科学谜团——比如量子怪异、暗物质和暗能量、奇怪的引力行为，甚至为什么智能扬声器对光波的反应就像是声音一样。最后一个是 [最近发表的一篇论文](https://lightcommands.com/) 的主题，来自东京电子通信大学和密歇根大学的研究人员，他们使用激光从数百英尺外使用“光命令”远程控制智能扬声器、手机和平板电脑虽然这是一个迷人的发现，目前还没有机械的解释，但这也是使用智能设备的另一个漏洞。
 

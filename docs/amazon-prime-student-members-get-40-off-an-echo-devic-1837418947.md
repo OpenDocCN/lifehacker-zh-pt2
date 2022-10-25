@@ -1,6 +1,6 @@
 # 亚马逊 Prime 学生会员:立即获得 Echo 设备 40%的优惠
 
-> 原文:[https://life hacker . com/Amazon-prime-student-members-get-40-off-an-echo-devic-1837418947](https://lifehacker.com/amazon-prime-student-members-get-40-off-an-echo-devic-1837418947)
+> 原文：<https://lifehacker.com/amazon-prime-student-members-get-40-off-an-echo-devic-1837418947>
 
 如果你是亚马逊 Prime 学生会员，亚马逊现在正在 Echo 设备上开展一项非常稳定的返校交易，允许你在宿舍使用设备时获得 40%的折扣。
 

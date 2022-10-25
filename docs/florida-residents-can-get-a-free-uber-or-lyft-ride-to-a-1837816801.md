@@ -1,6 +1,6 @@
 # 佛罗里达州居民可以免费乘坐优步或 Lyft 前往道林收容所
 
-> 原文:[https://life hacker . com/Florida-residents-can-get-a-free-Uber-or-lyft-ride-to-a-1837816801](https://lifehacker.com/florida-residents-can-get-a-free-uber-or-lyft-ride-to-a-1837816801)
+> 原文：<https://lifehacker.com/florida-residents-can-get-a-free-uber-or-lyft-ride-to-a-1837816801>
 
 如果你位于受到飓风道林影响的佛罗里达州，Lyft 和优步都提供往返当地避难所的免费乘车服务。
 

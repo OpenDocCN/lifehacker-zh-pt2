@@ -1,6 +1,6 @@
 # 为什么你的浏览器向 Cookies 宣战，它们将如何被取代
 
-> 原文:[https://gizmodo . com/why-your-web-browser-is-war-on-cookies-and-ho-1844792609](https://gizmodo.com/why-your-web-browser-is-declaring-war-on-cookies-and-ho-1844792609)
+> 原文：<https://gizmodo.com/why-your-web-browser-is-declaring-war-on-cookies-and-ho-1844792609>
 
 对网站和广告商如何在网络上跟踪我们的限制即将到来，因为网络浏览器——默认情况下已经阻止了最具侵入性的 cookies 类型——正在受到打击。
 

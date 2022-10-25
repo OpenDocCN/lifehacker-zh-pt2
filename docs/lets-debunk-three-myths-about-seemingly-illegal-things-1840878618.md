@@ -1,6 +1,6 @@
 # 让我们揭穿三个关于开车时可以做的看似非法的事情的神话
 
-> 原文:[https://jalopnik . com/let-拆穿三个关于看似违法的事情的神话-1840878618](https://jalopnik.com/lets-debunk-three-myths-about-seemingly-illegal-things-1840878618)
+> 原文：<https://jalopnik.com/lets-debunk-three-myths-about-seemingly-illegal-things-1840878618>
 
 作为一名汽车运营商，有许多法律必须得到承认和尊重:车内不得有明火，开车时尽量保护好猛禽或其他猛禽，开车前取下你的大纸板遮阳棚，诸如此类。虽然我不确定这些法律是否真实存在，但我知道三种通常被认为违法的驾驶情况实际上并不违法。不管你喜不喜欢，我都要告诉你，所以要做好相应的准备。
 

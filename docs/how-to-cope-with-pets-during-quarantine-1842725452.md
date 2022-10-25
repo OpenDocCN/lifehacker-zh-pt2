@@ -1,6 +1,6 @@
 # 检疫期间如何应对宠物
 
-> 原文:[https://life hacker . com/how-to-应付隔离期间的宠物-1842725452](https://lifehacker.com/how-to-cope-with-pets-during-quarantine-1842725452)
+> 原文：<https://lifehacker.com/how-to-cope-with-pets-during-quarantine-1842725452>
 
 我们已经熬过了数周，弄明白了如何与我们本该爱的人共度太多时光，但那些我们*实际上*爱的*非*人呢？
 

@@ -1,6 +1,6 @@
 # how to talk to teens about weight loss 1844827538
 
-> 原文:[https://life hacker . com/how-to-talk-to-青少年减肥-1844827538](https://lifehacker.com/how-to-talk-to-teens-about-weight-loss-1844827538)
+> 原文：<https://lifehacker.com/how-to-talk-to-teens-about-weight-loss-1844827538>
 
 你可能听说过成年人抱怨“quaran-ten”甚至“quarant 15”——这是一种诙谐的方式，承认我们在疫情期间与外界隔绝时体重增加了。我从我的朋友和家人那里听到了类似的情绪，并在我的社交媒体订阅中看到了它们。但是，不仅仅是成年人会注意到他们身体在这段时间里的变化——青少年现在可能也在经历体重增加和一些相关的自我意识。
 

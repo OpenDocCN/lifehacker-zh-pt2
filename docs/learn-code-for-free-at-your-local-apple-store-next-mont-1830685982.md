@@ -1,6 +1,6 @@
 # 下个月在你当地的苹果商店免费学习代码
 
-> 原文:[https://life hacker . com/learn-code-for-free-in-your-local-apple-store-next-mont-1830685982](https://lifehacker.com/learn-code-for-free-at-your-local-apple-store-next-mont-1830685982)
+> 原文：<https://lifehacker.com/learn-code-for-free-at-your-local-apple-store-next-mont-1830685982>
 
 从 12 月 1 日开始，你可以在当地的苹果商店免费学习一些代码。该零售商的 [年度“代码小时”](https://www.apple.com/newsroom/2018/11/apple-brings-coding-education-to-more-students-for-computer-science-education-week/) 活动将于 12 月 1 日至 14 日举行。
 

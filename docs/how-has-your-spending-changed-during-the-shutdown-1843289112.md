@@ -1,6 +1,6 @@
 # 政府关闭期间，你的支出有什么变化？
 
-> 原文:[https://life hacker . com/how-has-your-spending-changed-in-the-shut-down-1843289112](https://lifehacker.com/how-has-your-spending-changed-during-the-shutdown-1843289112)
+> 原文：<https://lifehacker.com/how-has-your-spending-changed-during-the-shutdown-1843289112>
 
 我的预算现在完全没有意义。
 

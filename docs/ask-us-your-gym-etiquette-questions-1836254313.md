@@ -1,6 +1,6 @@
 # 问我们你的健身房礼仪问题
 
-> 原文:[https://life hacker . com/ask-us-your-gym-礼仪-问题-1836254313](https://lifehacker.com/ask-us-your-gym-etiquette-questions-1836254313)
+> 原文：<https://lifehacker.com/ask-us-your-gym-etiquette-questions-1836254313>
 
 我们之前已经介绍过 [健身房礼仪](https://lifehacker.com/get-ripped-not-rude-ten-rules-for-proper-gym-etiquett-1733907609) 的基础知识，其中很多都是基本常识。把东西放回原处，友好地分享，有礼貌。但是我知道你们中的很多人有更多的问题——也许你甚至在逃避健身房(或者它的一部分，比如举重房),因为你不确定什么是好的。
 

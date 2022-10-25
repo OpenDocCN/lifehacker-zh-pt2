@@ -1,6 +1,6 @@
 # 这个周末如何在美国看到北极光
 
-> 原文:[https://life hacker . com/how-to-see-the-northern-lights-in-the-us-this-weekend-1833514596](https://lifehacker.com/how-to-see-the-northern-lights-in-the-us-this-weekend-1833514596)
+> 原文：<https://lifehacker.com/how-to-see-the-northern-lights-in-the-us-this-weekend-1833514596>
 
 如果你这个周末在芝加哥的纽约市，你可能会瞥见北极光。
 

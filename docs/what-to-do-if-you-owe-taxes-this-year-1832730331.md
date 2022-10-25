@@ -1,6 +1,6 @@
 # 今年欠税怎么办
 
-> 原文:[https://life hacker . com/what-do-if-you-own-taxes-this-year-1832730331](https://lifehacker.com/what-to-do-if-you-owe-taxes-this-year-1832730331)
+> 原文：<https://lifehacker.com/what-to-do-if-you-owe-taxes-this-year-1832730331>
 
 所以，你接受了我们的建议，今年年初申报了你的税款，却发现，你瞧，你 [实际上欠了政府的钱](https://twocents.lifehacker.com/why-you-might-owe-taxes-this-year-1832260271) (那些在纳税季第一周申报的[的退税比去年低了百分之八)。如果在你报税时，税单超出了你的支付能力，你有几种不同的还款选择。](https://www.cnbc.com/2019/02/11/tax-refunds-down-8point4percent-heres-how-experts-say-to-react.html) 
 

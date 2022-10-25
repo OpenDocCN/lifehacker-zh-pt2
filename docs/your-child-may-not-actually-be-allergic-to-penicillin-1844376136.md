@@ -1,6 +1,6 @@
 # your child may not actually be allergic to penicillin 1844376136
 
-> 原文:[https://life hacker . com/your-child-may-not be really-过敏青霉素-1844376136](https://lifehacker.com/your-child-may-not-actually-be-allergic-to-penicillin-1844376136)
+> 原文：<https://lifehacker.com/your-child-may-not-actually-be-allergic-to-penicillin-1844376136>
 
 这是一种相当常见的情况——婴儿或幼儿出现耳部感染或链球菌性咽喉炎。他们的儿科医生开了青霉素抗生素。这个孩子后来出现了一种症状——皮疹、胃部不适或头痛——一名医生宣布他们“对青霉素过敏”。从那以后，那个孩子只会被开出效果更差(也更贵)的抗生素替代品。但是许多被诊断为过敏的孩子实际上并不过敏。
 

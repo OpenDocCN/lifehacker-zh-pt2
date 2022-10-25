@@ -1,6 +1,6 @@
 # Todoist 最新“基础”更新中的最佳功能
 
-> 原文:[https://life hacker . com/the-best-features-in-todoists-new-foundations-update-1839232738](https://lifehacker.com/the-best-features-in-todoists-new-foundations-update-1839232738)
+> 原文：<https://lifehacker.com/the-best-features-in-todoists-new-foundations-update-1839232738>
 
 我们最喜欢的 [待办应用](https://lifehacker.com/five-best-to-do-list-managers-5924093)——恰当地命名为 [待办](https://todoist.com)——今天进行了一次大升级。你将看到它在未来 24 小时左右开始推出，所有使 Todoist 更容易使用的新功能都值得等待尝试。
 

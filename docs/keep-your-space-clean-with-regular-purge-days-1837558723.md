@@ -1,6 +1,6 @@
 # 定期“清理”一天，保持你的空间干净
 
-> 原文:[https://life hacker . com/keep-your-space-clean-with-regular-purge-days-1837558723](https://lifehacker.com/keep-your-space-clean-with-regular-purge-days-1837558723)
+> 原文：<https://lifehacker.com/keep-your-space-clean-with-regular-purge-days-1837558723>
 
 无可否认，我是一个相当邋遢的人。我坚持在我的办公室周围堆放物品，有时我计划“以后”去我的家；然而，正如我的男朋友可以告诉你的，以后往往不会来了。所以我建议你安排一下。
 

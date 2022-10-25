@@ -1,6 +1,6 @@
 # 你买过最好的东西是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-purchase-you ve-made-1833096691](https://lifehacker.com/whats-the-best-purchase-youve-ever-made-1833096691)
+> 原文：<https://lifehacker.com/whats-the-best-purchase-youve-ever-made-1833096691>
 
 在亚马逊、Yelp 和无数其他依靠客户信息来做出购买决定的评论网站中，我们能真正信任谁呢？
 

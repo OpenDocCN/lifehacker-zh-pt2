@@ -1,6 +1,6 @@
 # 花 19 美元和一封信买下这栋价值 170 万美元的房子
 
-> 原文:[https://life hacker . com/buy-this-1700 万-19-a-letter-1832050572](https://lifehacker.com/buy-this-1-7-million-home-for-19-and-a-letter-1832050572)
+> 原文：<https://lifehacker.com/buy-this-1-7-million-home-for-19-and-a-letter-1832050572>
 
 想买新房子吗？这个有很大的折扣。
 

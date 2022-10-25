@@ -1,6 +1,6 @@
 # 你应该通过寄养收养来壮大你的家庭吗？
 
-> 原文:[https://life hacker . com/should-you-grow-you-family-through-foster-care-adoption io-1839898062](https://lifehacker.com/should-you-grow-your-family-through-foster-care-adoptio-1839898062)
+> 原文：<https://lifehacker.com/should-you-grow-your-family-through-foster-care-adoptio-1839898062>
 
 对于许多父母来说，决定是否、何时或如何组建家庭是很困难的。当其他因素——如不孕或其他孩子的需求增加——开始起作用时，决策会变得更加困难。这是本周的家长咨询问题:
 

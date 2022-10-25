@@ -1,6 +1,6 @@
 # 帮助你的幼儿园小朋友为学校午餐高峰做准备
 
-> 原文:[https://life hacker . com/help-your-kindergardener-prepare-for-the-school-lunch-r-1837699997](https://lifehacker.com/help-your-kindergartener-prepare-for-the-school-lunch-r-1837699997)
+> 原文：<https://lifehacker.com/help-your-kindergartener-prepare-for-the-school-lunch-r-1837699997>
 
 学校开学了，对于许多幼儿园的孩子来说，他们面临的主要变化之一就是午餐时间。幼儿园的午餐程序与家里、日托所或幼儿园完全不同:他们打开包装吃东西的时间更少，在开学时，许多孩子会感到困惑，不吃东西，一整天都饿着肚子，烦躁不安。解决办法？在家练习学校午餐时间。
 

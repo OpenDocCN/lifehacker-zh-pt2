@@ -1,6 +1,6 @@
 # 让你成为不和谐大师的 10 个技巧和诀窍
 
-> 原文:[https://gizmodo . com/10-制造不和大师的窍门-1844215372](https://gizmodo.com/10-tips-and-tricks-to-make-you-a-discord-master-1844215372)
+> 原文：<https://gizmodo.com/10-tips-and-tricks-to-make-you-a-discord-master-1844215372>
 
 Discord 基于各种形式的数字聊天，虽然它可能在游戏玩家中最为人所知，但它可以为各种目的的群聊提供动力——比如更酷、更不正式的休闲。无论你已经在 Discord 上呆了多年，还是刚刚第一次打开这个应用程序，这些提示都可以帮助你从这个平台上获得更多。
 

@@ -1,6 +1,6 @@
 # 营地辅导员激励孩子的诀窍
 
-> 原文:[https://life hacker . com/a-camp-consultants-tricks-for-motivating-kids-1835865610](https://lifehacker.com/a-camp-counselors-tricks-for-motivating-kids-1835865610)
+> 原文：<https://lifehacker.com/a-camp-counselors-tricks-for-motivating-kids-1835865610>
 
 夏令营:你可能会记得它是一个交朋友、编挂绳、吃点心、在湖里跳跃和用炉甘石洗液浸泡蚊虫叮咬的地方。但是对于杰米·李·拉德纳来说，她在纽约的庞蒂亚克营做了几年的露营者和顾问，这也是她未来作为母亲角色的最终训练场。
 

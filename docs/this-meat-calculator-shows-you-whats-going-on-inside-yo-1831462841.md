@@ -1,6 +1,6 @@
 # 用这个肉计算器找出你的牛排里面发生了什么
 
-> 原文:[https://life hacker . com/this-meat-calculator-shows-you-what-going-in-yo-1831462841](https://lifehacker.com/this-meat-calculator-shows-you-whats-going-on-inside-yo-1831462841)
+> 原文：<https://lifehacker.com/this-meat-calculator-shows-you-whats-going-on-inside-yo-1831462841>
 
 对一些人来说，肉是神秘的。如果你没有大量的烹饪实践，你可能很难准确地感觉到你应该烤多长时间，烤焦，腌制，或者用其他方式加热食物来使它变得安全和美味。得到一个数字温度计很有帮助，但是麻省理工学院的 [这个工具也可以给你一点指导。](http://up.csail.mit.edu/science-of-cooking/)
 

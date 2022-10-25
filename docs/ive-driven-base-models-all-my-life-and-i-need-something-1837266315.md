@@ -1,6 +1,6 @@
 # 我一生都在开基本款，我需要更好的车！应该买什么车？
 
-> 原文:[https://jalopnik . com/ive-driven-base-models-all-my-life-and-I-need-something-1837266315](https://jalopnik.com/ive-driven-base-models-all-my-life-and-i-need-something-1837266315)
+> 原文：<https://jalopnik.com/ive-driven-base-models-all-my-life-and-i-need-something-1837266315>
 
 布兰登住在印第安纳州，只拥有基本模型汽车。他想吃点更好的东西。他需要积累高里程数，并有高达 2 万美元的资金用于购买一辆经过升级的高质量二手通勤车。他应该买什么车？
 

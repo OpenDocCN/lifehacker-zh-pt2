@@ -1,6 +1,6 @@
 # 立即更新您的 WhatsApp
 
-> 原文:[https://life hacker . com/update-your-whatsapp-account-right-now-1834748143](https://lifehacker.com/update-your-whatsapp-account-right-now-1834748143)
+> 原文：<https://lifehacker.com/update-your-whatsapp-account-right-now-1834748143>
 
 各地的 WhatsApp 用户:现在就更新你的 app*。该应用程序中的一个漏洞允许一家公司通过在该应用程序上呼叫用户，不管他们是否接听，来在 iPhones 和 Android 手机上安装监控软件。更糟糕的是，在打完电话并安装了软件之后，这个电话也可能会从日志中删除，不会留下任何曾经打过电话的证据。* 
 

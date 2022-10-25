@@ -1,6 +1,6 @@
 # 如何充分利用有限的健身时间
 
-> 原文:[https://life hacker . com/how-to-make-the-most-the-limited-gym-time-1844921174](https://lifehacker.com/how-to-make-the-most-of-limited-gym-time-1844921174)
+> 原文：<https://lifehacker.com/how-to-make-the-most-of-limited-gym-time-1844921174>
 
 也许你必须在你的健身房注册一个时间段，当你过去可以在任何你喜欢的时候漫步。也许一小时后他们会把你踢出去，这样他们就可以打扫卫生了。或者，也许你的健身房照常营业，但你会 [而不是限制你与呼吸沉重的陌生人](https://lifehacker.com/how-to-stay-safe-when-you-go-back-to-the-gym-1843568135) 在一起的时间。你如何充分利用你所拥有的时间？我们为你准备了一些策略。
 

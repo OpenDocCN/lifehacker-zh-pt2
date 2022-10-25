@@ -1,6 +1,6 @@
 # 我是如何从我的泽西大家庭学会做周日酱的
 
-> 原文:[https://the take out . com/recipe-Sunday-sauce-pasta-jersey-family-1831469548](https://thetakeout.com/recipe-sunday-sauce-pasta-jersey-family-1831469548)
+> 原文：<https://thetakeout.com/recipe-sunday-sauce-pasta-jersey-family-1831469548>
 
 我要追溯到我年轻时最早的记忆，追溯到我所知道并喜爱的第一道意大利面:周日酱。那时候我们不这么叫它，至少在我家是这样。它只是调味汁。我的直系亲属不在“肉汁”列车上——这很奇怪，因为这是我的外祖母所说的(把我 4 岁的自己搞糊涂了)。我的父母结婚很早，当我的父亲在越南时，我的母亲搬到了我的祖父母家，所以我的母亲最终采用了我父亲家的意大利-美国烹饪术语。人们经常声称肉汁对调味汁的事情是地区性的，但我的家庭证明它不是。我的祖父母和外祖父母都在新泽西州的帕特森长大。
 

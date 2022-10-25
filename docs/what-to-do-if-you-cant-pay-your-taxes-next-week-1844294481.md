@@ -1,6 +1,6 @@
 # 如果你下周交不了税该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-you can-pay-you-taxes-next-week-1844294481](https://lifehacker.com/what-to-do-if-you-cant-pay-your-taxes-next-week-1844294481)
+> 原文：<https://lifehacker.com/what-to-do-if-you-cant-pay-your-taxes-next-week-1844294481>
 
 这是官方消息:下周就要交税了。回到三月份，政府 [将申报截止日期](https://twocents.lifehacker.com/tax-day-is-now-july-15-1842425809) 推到 7 月 15 日，财政部 [最近确认](https://www.irs.gov/newsroom/taxpayers-should-file-by-july-15-tax-deadline-automatic-extension-to-oct-15-available) 他们不会再动它了。如果你一直在拖延，现在是时候提交你的纳税申报表并支付你所欠的。
 

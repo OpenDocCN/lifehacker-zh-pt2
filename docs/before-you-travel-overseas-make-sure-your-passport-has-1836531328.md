@@ -1,6 +1,6 @@
 # 在你出国旅行之前，确保你的护照有空白页
 
-> 原文:[https://life hacker . com/before-you-travel-overseas-make-your-passport-has-1836531328](https://lifehacker.com/before-you-travel-overseas-make-sure-your-passport-has-1836531328)
+> 原文：<https://lifehacker.com/before-you-travel-overseas-make-sure-your-passport-has-1836531328>
 
 在你出国旅行之前，不要忘记打包一些必需品，比如一份合适的签证，如果有必要的话，还有你的护照。虽然这个建议看起来很明显，你也应该和确保你的护照在国际旅行时有空白页，因为有些国家*要求*你入境时要有空白页。
 

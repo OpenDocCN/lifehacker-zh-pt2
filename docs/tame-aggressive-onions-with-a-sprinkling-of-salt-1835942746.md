@@ -1,6 +1,6 @@
 # 撒一点盐来驯服好斗的洋葱
 
-> 原文:[https://life hacker . com/tame-aggressive-on-a-sprayed-a-salt-1835942746](https://lifehacker.com/tame-aggressive-onions-with-a-sprinkling-of-salt-1835942746)
+> 原文：<https://lifehacker.com/tame-aggressive-onions-with-a-sprinkling-of-salt-1835942746>
 
 生洋葱给三明治和沙拉带来了很多必要的辣味，但有时它们的工作做得太好了，它们强烈的味道会淹没剩下的食物。如果你发现自己有一个特别强烈的洋葱，你只需要一点盐来驯服它。
 

@@ -1,6 +1,6 @@
 # 为什么只有一些航班因为天气不好而被取消
 
-> 原文:[https://life hacker . com/why-only-some-flights-get-cancel-for-bad-weather-1841353240](https://lifehacker.com/why-only-some-flights-get-canceled-for-bad-weather-1841353240)
+> 原文：<https://lifehacker.com/why-only-some-flights-get-canceled-for-bad-weather-1841353240>
 
 当天气离世界末日还差一场风暴时，一旦你意识到它可能会影响你的即时旅行计划，你的喉咙里可能会形成一个肿块。不能在预定的时间登机，你只能想象一次又一次的延误，以及在机场的星巴克或安妮阿姨的椒盐卷饼店等待更长的时间。
 

@@ -1,6 +1,6 @@
 # 如何在不崩溃的情况下结束孩子的屏幕时间
 
-> 原文:[https://life hacker . com/how-to-end-your-kids-screen-time-with-a-meltdown-1834160813](https://lifehacker.com/how-to-end-your-kids-screen-time-without-a-meltdown-1834160813)
+> 原文：<https://lifehacker.com/how-to-end-your-kids-screen-time-without-a-meltdown-1834160813>
 
 让我女儿看几个节目最糟糕的事情就是不得不关掉那些节目。现在她 6 岁了，情况还不算太糟，但在 3 岁左右，情况变得很紧张。每次我进入她的眼球和电视之间的区域时，我都会打起精神。站在她能看到我的地方，我会警告她:“再等五分钟，好吗？”她会点点头，然后示意我让开。时间到了，我会抓起遥控器。“好吧，就这样！”我会说，然后关掉电视。然后，就像时钟一样，她的身体会从沙发上融化掉，她会哭，*，*“whyyyyyyyyyyyyy”，即使节目已经结束。
 

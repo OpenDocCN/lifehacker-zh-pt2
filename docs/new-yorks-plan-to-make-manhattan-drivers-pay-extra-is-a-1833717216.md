@@ -1,6 +1,6 @@
 # 纽约让曼哈顿司机支付额外费用的计划对人类和地球来说都是一件大事
 
-> 原文:[https://gizmodo . com/new-yorks-plan-to-make-Manhattan-drivers-pay-extra-is-a-1833717216](https://gizmodo.com/new-yorks-plan-to-make-manhattan-drivers-pay-extra-is-a-1833717216)
+> 原文：<https://gizmodo.com/new-yorks-plan-to-make-manhattan-drivers-pay-extra-is-a-1833717216>
 
 除了禁止汽车之外，下一个最好的办法是制定政策，将汽车对社会造成的影响考虑在内。这正是纽约现在所做的。在考虑了十多年后，周日州议会通过了一项实施拥堵费的预算，使纽约成为美国第一个这样做的城市。
 

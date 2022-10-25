@@ -1,6 +1,6 @@
 # 根据 Reddit 的说法，告诉孩子坏消息的最好方式
 
-> 原文:[https://life hacker . com/the-best-way-to-break-a-kid-by-1839980192](https://lifehacker.com/the-best-way-to-break-awful-news-to-a-kid-according-to-1839980192)
+> 原文：<https://lifehacker.com/the-best-way-to-break-awful-news-to-a-kid-according-to-1839980192>
 
 把坏消息告诉我们的孩子是很糟糕的。离婚，重病，宠物的死亡，家庭成员的死亡...他们在生活中会经历各种各样的困难，我们无法完全保护他们。我们必须告诉他们，因为如果我们不告诉他们，其他人就会告诉他们；由我们来说总是更好。但是告诉孩子坏消息的最好方式是什么呢？
 

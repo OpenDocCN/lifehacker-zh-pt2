@@ -1,6 +1,6 @@
 # 你最好的黄油技巧和窍门是什么？
 
-> 原文:[https://life hacker . com/what-are-you ' s best-butter-tips-and-tricks-1830827846](https://lifehacker.com/what-are-your-best-butter-tips-and-tricks-1830827846)
+> 原文：<https://lifehacker.com/what-are-your-best-butter-tips-and-tricks-1830827846>
 
 昨晚，当我看着我的继母准备晚餐时，我发现了一个盘子——不是盘子也不是碗——而是一盘融化的黄油。然后，她将法国面包片浸入黄油中，从边缘到边缘完全涂上一层，然后放入烤箱烘烤。
 

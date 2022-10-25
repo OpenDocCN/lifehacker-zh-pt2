@@ -1,6 +1,6 @@
 # 携带 CBD 石油出行会被抓吗？
 
-> 原文:[https://life hacker . com/will-you-get-arrested-with-CBD-oil-1834641338](https://lifehacker.com/will-you-get-arrested-for-traveling-with-cbd-oil-1834641338)
+> 原文：<https://lifehacker.com/will-you-get-arrested-for-traveling-with-cbd-oil-1834641338>
 
 一名女子最近因携带违禁物质在迪士尼世界被捕:CBD 油，据报道是用来帮助她缓解关节炎疼痛的。
 

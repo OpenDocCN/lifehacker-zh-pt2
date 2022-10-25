@@ -1,6 +1,6 @@
 # 让你的孩子阅读一本带有 Instagram 故事的经典小说
 
-> 原文:[https://life hacker . com/get-your-teen-to-read-a-classic-novel-with-insta gram-ST-1829973548](https://lifehacker.com/get-your-teen-to-read-a-classic-novel-with-instagram-st-1829973548)
+> 原文：<https://lifehacker.com/get-your-teen-to-read-a-classic-novel-with-instagram-st-1829973548>
 
 美国心理协会的一项调查报告称，今天三分之一的青少年不是为了快乐而读书。这几乎是 20 世纪 70 年代报道数量的三倍。然而青少年*正在阅读——也许比以往任何时候都多。他们粘在屏幕上，贪婪地以文本、照片说明、标签、通知和新闻片段的形式在社交媒体上消费文字。*
 

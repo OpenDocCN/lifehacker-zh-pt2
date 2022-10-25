@@ -1,6 +1,6 @@
 # 申报 2018 年税收所需的一切
 
-> 原文:[https://life hacker . com/everything-your-2018-taxes-1832057732](https://lifehacker.com/everything-you-need-to-know-to-file-your-2018-taxes-1832057732)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-to-file-your-2018-taxes-1832057732>
 
 今天标志着税收季的开始，在持续的政府关闭和 2017 年税法的实施之间，这将是一个有趣的季节(嗯...就像税收季一样有趣)。
 

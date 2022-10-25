@@ -1,6 +1,6 @@
 # 如何不用复杂的仪器使牛奶起泡沫
 
-> 原文:[https://life hacker . com/how-to-foam-milk-without-a fancy-instrument-1843240793](https://lifehacker.com/how-to-froth-milk-without-a-fancy-instrument-1843240793)
+> 原文：<https://lifehacker.com/how-to-froth-milk-without-a-fancy-instrument-1843240793>
 
 如果你有一根发泡棒，或者——更好的是——一台配有蒸汽棒的精致咖啡机，你可能已经在享受每天早上浇上奢华奶泡的热饮了。但是，如果你像我一样，习惯于从当地的咖啡店里买些别致的咖啡饮料，你可能两样都没有，这没关系。你可以用你的搅拌机或法式榨汁机做出一大堆稳定的微小奶泡。
 

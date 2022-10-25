@@ -1,6 +1,6 @@
 # 火狐新的语音控制让它像智能音箱一样好用
 
-> 原文:[https://life hacker . com/Firefox s-new-voice-controls-make-it-as-good-as-a-smart-1841066550](https://lifehacker.com/firefoxs-new-voice-controls-make-it-as-good-as-a-smart-1841066550)
+> 原文：<https://lifehacker.com/firefoxs-new-voice-controls-make-it-as-good-as-a-smart-1841066550>
 
 我习惯对着我的谷歌主页和亚马逊 Echo 大喊大叫，而不是我的网络浏览器。然而，Mozilla 现在正在测试其 Firefox 浏览器的语音控制功能，你可以和我一起对着你的屏幕尖叫——这实际上比乍看起来更有趣和有用。
 

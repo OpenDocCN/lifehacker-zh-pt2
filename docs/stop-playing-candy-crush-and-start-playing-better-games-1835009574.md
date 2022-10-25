@@ -1,6 +1,6 @@
 # 停止玩糖果粉碎，开始玩更好的游戏
 
-> 原文:[https://life hacker . com/stop-playing-candy-crush-and-start-playing-better-games-1835009574](https://lifehacker.com/stop-playing-candy-crush-and-start-playing-better-games-1835009574)
+> 原文：<https://lifehacker.com/stop-playing-candy-crush-and-start-playing-better-games-1835009574>
 
 多亏了智能手机和平板电脑，我们现在都是游戏玩家。我是游戏玩家，你是游戏玩家，我们的妈妈也是游戏玩家，他们的妈妈也可能是游戏玩家。所以是时候我们开始好好利用这些游戏了。
 

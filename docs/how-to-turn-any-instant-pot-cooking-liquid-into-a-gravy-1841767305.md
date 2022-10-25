@@ -1,6 +1,6 @@
 # 如何把任何即时锅煮液体变成肉汁
 
-> 原文:[https://life hacker . com/how-to-turn-any-instant-pot-cooking-liquid-to-a-gravy-1841767305](https://lifehacker.com/how-to-turn-any-instant-pot-cooking-liquid-into-a-gravy-1841767305)
+> 原文：<https://lifehacker.com/how-to-turn-any-instant-pot-cooking-liquid-into-a-gravy-1841767305>
 
 速食锅对很多东西都有好处，但我主要用我的来煮大块的有很多结缔组织的硬肉。该设备使它们从骨头上脱落，但是，由于它是密封的烹饪环境，这不可避免地在插入物的底部产生大量美味但非常稀薄的液体。
 

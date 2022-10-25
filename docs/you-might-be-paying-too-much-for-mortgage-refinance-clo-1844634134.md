@@ -1,6 +1,6 @@
 # 你可能为抵押贷款再融资支付了过多的成本
 
-> 原文:[https://life hacker . com/you-may-be-pay-over-that-for mortgage-refinance-clo-1844634134](https://lifehacker.com/you-might-be-paying-too-much-for-mortgage-refinance-clo-1844634134)
+> 原文：<https://lifehacker.com/you-might-be-paying-too-much-for-mortgage-refinance-clo-1844634134>
 
 随着低抵押贷款利率 [继续打破记录](https://finance.yahoo.com/news/mortgage-rates-hit-record-low-224200152.html) ，你可能会感受到 [转贷款的压力](https://twocents.lifehacker.com/how-to-know-if-you-should-refinance-your-mortgage-1844406684) 。本周，30 年期固定利率抵押贷款的平均利率为 2.88%，根据房地美 的说法，这不包括起点 [。虽然你可能会获得较低的利率，但专家警告说，由于交易成本高，再融资并不总是你所期望的交易。](http://www.freddiemac.com/pmms/#)
 

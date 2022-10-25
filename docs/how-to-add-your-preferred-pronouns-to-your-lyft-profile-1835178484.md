@@ -1,6 +1,6 @@
 # 如何将您喜欢的代词添加到您的 Lyft 个人资料中
 
-> 原文:[https://life hacker . com/how-to-add-your-preferred-代词-to-your-lyft-profile-1835178484](https://lifehacker.com/how-to-add-your-preferred-pronouns-to-your-lyft-profile-1835178484)
+> 原文：<https://lifehacker.com/how-to-add-your-preferred-pronouns-to-your-lyft-profile-1835178484>
 
 现在，你可以在 Lyft 应用程序中添加你喜欢的代词。
 

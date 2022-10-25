@@ -1,6 +1,6 @@
 # 谷歌在 2019 年 I/O 大会上宣布的一切都很重要
 
-> 原文:[https://life hacker . com/everything-Google-announced-at-I-o-2019-that-matters-1834582453](https://lifehacker.com/everything-google-announced-at-i-o-2019-that-matters-1834582453)
+> 原文：<https://lifehacker.com/everything-google-announced-at-i-o-2019-that-matters-1834582453>
 
 加州山景城——现在是谷歌 I/O 时间，一年一度的 Android 大杂烩。这包括移动操作系统的更新，更新的(更便宜的)智能手机，各种有用的智能家居小工具( [和一些警告](https://lifehacker.com/how-to-prevent-google-from-saving-your-voice-recordings-1834414389) )，以及关于谷歌板块最新成员的新闻——包括其备受期待的 Stadia 游戏流媒体平台和 Android Auto 的首次亮相，这是一辆真正的，你可以买到的汽车中最重要的！
 

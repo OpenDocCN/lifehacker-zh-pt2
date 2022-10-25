@@ -1,6 +1,6 @@
 # 如何在没有化学药品的情况下阻止杂草生长
 
-> 原文:[https://life hacker . com/the-easy-way-to-get-off-weeds-with-harsh-synt-5920582](https://lifehacker.com/the-easiest-way-to-get-rid-of-weeds-without-harsh-synt-5920582)
+> 原文：<https://lifehacker.com/the-easiest-way-to-get-rid-of-weeds-without-harsh-synt-5920582>
 
 在你花了时间、金钱和精力创造了一个花园、花坛或院子之后，你最不希望的事情就是你所有的辛苦工作被杂草毁掉。除了使用商业除草剂来消灭那些讨厌的豆芽，还有很多更环保的解决方案。这里有几个选择。
 

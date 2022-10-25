@@ -1,6 +1,6 @@
 # 举办救生衣派对，确保孩子们在泳池中的安全
 
-> 原文:[https://life hacker . com/keep-kids-safe-in-pool-a-life-jacket-party-1836214268](https://lifehacker.com/keep-kids-safe-in-the-pool-with-a-life-jacket-party-1836214268)
+> 原文：<https://lifehacker.com/keep-kids-safe-in-the-pool-with-a-life-jacket-party-1836214268>
 
 我讨厌成为一个夏天守财奴，但现在是时候宣布有很多孩子的泳池派对通常是不安全的。父母可能会分心(毕竟这是一个派对)或 [误判孩子的游泳能力](https://offspring.lifehacker.com/swimming-lessons-can-t-drown-proof-your-toddler-1796262192) 或感到虚假的安全感，因为，*看，这里有这么多成年人*。事实是，溺水仍然是 1 至 4 岁儿童意外死亡的主要原因，根据 CDC 的说法，溺水是 5 至 14 岁儿童第二大常见死亡原因。
 

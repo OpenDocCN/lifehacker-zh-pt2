@@ -1,6 +1,6 @@
 # 这种酪乳盐水会让你变成一个火鸡胸肉爱好者
 
-> 原文:[https://life hacker . com/this-buttermilk-brine-will-turn-you-a-turkey-breas-1830318684](https://lifehacker.com/this-buttermilk-brine-will-turn-you-into-a-turkey-breas-1830318684)
+> 原文：<https://lifehacker.com/this-buttermilk-brine-will-turn-you-into-a-turkey-breas-1830318684>
 
 这些年来，我并不避讳自己对土耳其的冷漠。我把它叫做 [有点热力学噩梦](https://skillet.lifehacker.com/choose-taste-over-looks-when-cooking-your-turkey-1820444769) “与 [最笨的肉](https://skillet.lifehacker.com/supplement-your-thanksgiving-turkey-with-a-ham-1830282591) ”我也很清楚自己对大腿的偏好——因为深色肉天生就有更多的脂肪和味道——但这种酪乳腌胸让我向内看，质疑一切，吃那么多火鸡，连同我的话。(在这个月的这个时候，这是非常令人印象深刻的，因为在过去的三周里，我已经做了大约 40 磅的火鸡。)
 

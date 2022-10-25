@@ -1,6 +1,6 @@
 # 收拾之前，先清理一下你的节日装饰品
 
-> 原文:[https://life hacker . com/clean-your-holiday-decorations-before-you-pack-up-1831381037](https://lifehacker.com/clean-your-holiday-decorations-before-you-pack-them-up-1831381037)
+> 原文：<https://lifehacker.com/clean-your-holiday-decorations-before-you-pack-them-up-1831381037>
 
 在你收拾所有这些节日装饰品之前，帮你一个忙:把它们擦干净。
 

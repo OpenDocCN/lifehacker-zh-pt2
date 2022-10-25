@@ -1,6 +1,6 @@
 # 以下是 Google 相册最新改版的所有新内容
 
-> 原文:[https://life hacker . com/everything-new-in-the-2020-Google-photos-design-on-io-1844180146](https://lifehacker.com/everything-new-in-the-2020-google-photos-redesign-on-io-1844180146)
+> 原文：<https://lifehacker.com/everything-new-in-the-2020-google-photos-redesign-on-io-1844180146>
 
 谷歌最近宣布了谷歌照片应用 的 [新设计，充满了全新的功能和流线型的外观。重新设计现在正在 Android 和 iOS 上慢慢推出，一些用户可能已经有了新的布局和功能——包括一个可以帮助你跟踪你丰富的宠物照片的功能。](https://www.blog.google/products/photos/redesigned-google-photos/) 
 

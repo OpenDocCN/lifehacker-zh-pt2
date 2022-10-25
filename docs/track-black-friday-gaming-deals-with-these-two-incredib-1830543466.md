@@ -1,6 +1,6 @@
 # 使用这两个难以置信的电子表格跟踪黑色星期五游戏交易
 
-> 原文:[https://life hacker . com/track-black-Friday-gaming-deals-with the-two-incredib-1830543466](https://lifehacker.com/track-black-friday-gaming-deals-with-these-two-incredib-1830543466)
+> 原文：<https://lifehacker.com/track-black-friday-gaming-deals-with-these-two-incredib-1830543466>
 
 又到那个时候了。掸掉信用卡上的灰尘，砸碎那个存钱罐，准备好拿起你能拿到的每一个游戏机、全新的游戏或者奇怪的小配件。黑色星期五快到了。与其花上几个小时在网上漫无目的地寻找最划算的交易，不如今年用两个来自 [廉价游戏玩家](https://www.cheapassgamer.com/) 论坛成员的惊人交易跟踪电子表格来简化你的生活。
 

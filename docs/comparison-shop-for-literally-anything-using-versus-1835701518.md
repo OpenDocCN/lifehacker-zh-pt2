@@ -1,6 +1,6 @@
 # 使用“对比”对任何东西进行比较
 
-> 原文:[https://life hacker . com/comparison-shop-for-literal-any-use-vs-1835701518](https://lifehacker.com/comparison-shop-for-literally-anything-using-versus-1835701518)
+> 原文：<https://lifehacker.com/comparison-shop-for-literally-anything-using-versus-1835701518>
 
 [对](http://versusutil.com/) 是一个微小的网站，做微小的事情，而且做得很好。输入一种产品或服务——或者任何东西——vs 会告诉你其他选择。 [搜索 Photoshop](http://versusutil.com/?seed=photoshop) ，你会得到可比的 Adobe 产品 Lightroom 和 Illustrator，以及竞争对手 Gimp、Affinity、Procreate、Krita 和 Pixlr。如果你经常想要昂贵产品或服务的替代品，这是很有用的——尤其是当你把 vs 变成你浏览器的内置搜索引擎时。
 

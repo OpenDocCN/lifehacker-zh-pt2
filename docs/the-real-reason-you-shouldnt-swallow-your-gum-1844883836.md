@@ -1,6 +1,6 @@
 # 你不应该吞下口香糖的真正原因
 
-> 原文:[https://life hacker . com/the-real-real-reason-you-should-through-your-gum-1844883836](https://lifehacker.com/the-real-reason-you-shouldnt-swallow-your-gum-1844883836)
+> 原文：<https://lifehacker.com/the-real-reason-you-shouldnt-swallow-your-gum-1844883836>
 
 有传言说，如果你吞下口香糖，它会在你的肠道里停留七年——这是一种减去了 [神奇解毒属性](https://harrypotter.fandom.com/wiki/Bezoar#:~:text=Severus%20Snape,the%20Antidote%20to%20Common%20Poisons.) 的牛黄。当然，正如我们之前告诉过你的，T5T7】不是这样的。但这并不意味着你有权利随意吞下口香糖，或者把它吐在地上。口香糖唯一应该去的地方是垃圾桶，因为它对环境绝对有害。我之所以想到这个话题，是因为最近一篇帖子的评论中出现了一个关于如何知道自己是不是混蛋的问题。 [一位读者想知道](https://lifehacker.com/1844879465) 他们的配偶取笑他们随地吐痰是否正确，因为这有什么害处？毕竟，它是可生物降解的。但事实并非如此。 
 

@@ -1,6 +1,6 @@
 # 联邦选举委员会几近关闭将如何影响 2020 年大选
 
-> 原文:[https://life hacker . com/how-the-fecs-near-shut down-could-the-2020-electi-1837843388](https://lifehacker.com/how-the-fecs-near-shutdown-could-affect-the-2020-electi-1837843388)
+> 原文：<https://lifehacker.com/how-the-fecs-near-shutdown-could-affect-the-2020-electi-1837843388>
 
 8 月底，共和党专员马修·彼得森(Matthew Petersen)辞去了联邦选举委员会(Federal Election Commission)的职务，使该监督组织接近关闭。根据一位前委员 的说法，在没有法定人数(或董事会中必要委员的人数)的情况下，彼得森的辞职绝对应该引起美国选民的关注。但是外汇券到底是什么？这将如何影响即将到来的 2020 年大选？
 

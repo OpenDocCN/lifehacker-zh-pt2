@@ -1,6 +1,6 @@
 # 你的 ISP 的隔离启发的“无限数据”计划明天结束
 
-> 原文:[https://life hacker . com/your-ISPs-quarantine-inspired-unlimited-data-plan-ends-1844118736](https://lifehacker.com/your-isps-quarantine-inspired-unlimited-data-plan-ends-1844118736)
+> 原文：<https://lifehacker.com/your-isps-quarantine-inspired-unlimited-data-plan-ends-1844118736>
 
 还记得当新冠肺炎真正开始兴风作浪时，我们都被送回家隔离，所有这些互联网服务提供商突然冒出来慷慨地向每个人提供无限数据吗？我和你一样震惊；谁会想到他们神奇的互联网管道有这么大的空间给每个人他们想要的“无限”服务，而不是他们可能得到的数据上限服务。
 

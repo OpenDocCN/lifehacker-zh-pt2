@@ -1,6 +1,6 @@
 # 何时在工作中分享个人问题
 
-> 原文:[https://life hacker . com/when-to-share-personal-issues-in-work-1837981934](https://lifehacker.com/when-to-share-personal-issues-at-work-1837981934)
+> 原文：<https://lifehacker.com/when-to-share-personal-issues-at-work-1837981934>
 
 如果你正在经历个人生活中的压力时期，你应该在工作中提出来吗？你应该在什么时候告诉你的主管一个可能影响你工作表现的个人问题？有没有这样的情况，在工作中分享你个人生活的细节可能被认为是一个坏主意？
 

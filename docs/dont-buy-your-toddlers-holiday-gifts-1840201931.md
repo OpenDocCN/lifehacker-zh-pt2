@@ -1,6 +1,6 @@
 # 不要给你刚学会走路的孩子买节日礼物
 
-> 原文:[https://life hacker . com/don-buy-your-toddle-holiday-gifts-1840201931](https://lifehacker.com/dont-buy-your-toddlers-holiday-gifts-1840201931)
+> 原文：<https://lifehacker.com/dont-buy-your-toddlers-holiday-gifts-1840201931>
 
 当你有小孩的时候，在创造家庭回忆的幌子下(他们不太可能记得),全力以赴过节，尽可能多的在圣诞树下塞满礼物是很有诱惑力的。但是钱也是有限的；事实上，你可能还在试图从去年 T2 的庆祝活动中摆脱信用卡债务。幸运的是，小孩子的一个优点是他们不会注意到——也不会在意——他们收到了多少。
 

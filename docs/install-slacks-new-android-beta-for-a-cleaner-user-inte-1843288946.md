@@ -1,6 +1,6 @@
 # 安装 Slack 的新 Android 测试版，获得更干净的用户界面
 
-> 原文:[https://life hacker . com/install-slacks-new-Android-beta-for-a-cleaner-user-inte-1843288946](https://lifehacker.com/install-slacks-new-android-beta-for-a-cleaner-user-inte-1843288946)
+> 原文：<https://lifehacker.com/install-slacks-new-android-beta-for-a-cleaner-user-inte-1843288946>
 
 如果可以的话，我会尽量不在手机上懈怠——通知会变得有点多——但如果我这样做了，我肯定会在 Android 上这样做。我还会确保我注册了 Slack 的 Android 应用程序的测试版，因为 Slack 正在测试的新 UI 增强功能使应用程序更容易导航。
 

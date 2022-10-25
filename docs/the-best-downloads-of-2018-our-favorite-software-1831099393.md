@@ -1,6 +1,6 @@
 # 2018 年最佳软件下载
 
-> 原文:[https://life hacker . com/the-best-downloads-of-2018-our-favorite-software-1831099393](https://lifehacker.com/the-best-downloads-of-2018-our-favorite-software-1831099393)
+> 原文：<https://lifehacker.com/the-best-downloads-of-2018-our-favorite-software-1831099393>
 
 我们覆盖了 Lifehacker 的许多应用程序，并且总是感觉我们落后了——这是每周到达(或更新)的新东西的数量。
 

@@ -1,6 +1,6 @@
 # 如何像人质谈判专家一样倾听
 
-> 原文:[https://life hacker . com/how-to-listen-like-a-personal-negotiator-1831640795](https://lifehacker.com/how-to-listen-like-a-hostage-negotiator-1831640795)
+> 原文：<https://lifehacker.com/how-to-listen-like-a-hostage-negotiator-1831640795>
 
 人质谈判通常是生死攸关的事情，所以训练有素的专家真的知道如何倾听。虽然你不太可能需要说服某人举手发言，但有时我们需要迫使自己成为更好的倾听者，这是人质谈判者工作的一大部分。
 

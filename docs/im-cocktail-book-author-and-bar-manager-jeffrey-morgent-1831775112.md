@@ -1,6 +1,6 @@
 # im cocktail book author and bar manager jeffrey morgent 1831775112
 
-> 原文:[https://life hacker . com/im-cocktail-book-author-and-bar-manager-Jeffrey-morgent-1831775112](https://lifehacker.com/im-cocktail-book-author-and-bar-manager-jeffrey-morgent-1831775112)
+> 原文：<https://lifehacker.com/im-cocktail-book-author-and-bar-manager-jeffrey-morgent-1831775112>
 
 杰弗里·摩根塔勒做过很多饮料。虽然我肯定他讨厌“名人调酒师”这个词，但不可否认的是，他的方法和鸡尾酒很有名，你也不能否认他们真的真的很好。除了非常擅长喝酒，杰夫还非常擅长美食，他很友好地和我坐下来谈论蛋黄酱、快餐，以及为什么即食鸡蛋很难吃。
 

@@ -1,6 +1,6 @@
 # 我可以回收我的旧的，布满灰尘的吸入器吗？
 
-> 原文:[https://life hacker . com/can-I-recycle-my-old-dusty-inhalers-1835120234](https://lifehacker.com/can-i-recycle-my-old-dusty-inhalers-1835120234)
+> 原文：<https://lifehacker.com/can-i-recycle-my-old-dusty-inhalers-1835120234>
 
 如果你是一个哮喘患者，你可能会有一堆用过的吸入器。你可能也不清楚到底如何处理它们——它们毕竟含有药物，当被扔进垃圾填埋场时，通常被视为危险废物。
 

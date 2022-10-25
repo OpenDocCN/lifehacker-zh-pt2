@@ -1,6 +1,6 @@
 # 将你的学步孩子换成带大号护垫的儿童内衣
 
-> 原文:[https://life hacker . com/transition-your-tuckly-to-big-kid-内裤与 maxi-1834453392](https://lifehacker.com/transition-your-toddler-to-big-kid-underwear-with-maxi-1834453392)
+> 原文：<https://lifehacker.com/transition-your-toddler-to-big-kid-underwear-with-maxi-1834453392>
 
 在如厕训练的最后阶段，当你的孩子差不多明白了，你开始幻想没有尿布的自由生活时，你可能会想去做引体向上。这些一次性“训练裤”应该看起来和感觉起来更像内衣，理论上让穿着它们的幼儿认为，“嘿，也许我现在不应该撒尿。”
 

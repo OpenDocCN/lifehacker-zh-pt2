@@ -1,6 +1,6 @@
 # 2019 年 1 月网飞有什么来往
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-网飞-in-january-2019-1831043643](https://lifehacker.com/whats-coming-and-going-from-netflix-in-january-2019-1831043643)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-in-january-2019-1831043643>
 
 网飞在一月失去了很多头衔，包括*教父*、*绿茵里程*、*钢铁巨人*、*百万美元宝贝*、*接踵而至*、*变脸/掉脸*、*星球大战外传：侠盗一号*、*爱情其实*、*功夫熊猫*、五个*沙恩卡多*、*闪灵【T21 所以，在你的圣诞假期中划出几个下午。并为一些新的和回归的标题做好准备。*
 

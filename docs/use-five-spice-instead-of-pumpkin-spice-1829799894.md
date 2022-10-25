@@ -1,6 +1,6 @@
 # 用五种香料代替南瓜香料
 
-> 原文:[https://life hacker . com/use-five-spice-of-pumpkin-spice-1829799894](https://lifehacker.com/use-five-spice-instead-of-pumpkin-spice-1829799894)
+> 原文：<https://lifehacker.com/use-five-spice-instead-of-pumpkin-spice-1829799894>
 
 虽然我并不完全反对南瓜香料，但我承认我对它有点厌倦。我并不反对肉桂、丁香、姜和其他任何 PSL 拿铁咖啡的配料，但我也想活得开心一点，我说的“开心一点”是指“用五香粉给我的馅饼调味”
 

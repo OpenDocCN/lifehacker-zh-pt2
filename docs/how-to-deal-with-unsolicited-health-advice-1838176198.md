@@ -1,6 +1,6 @@
 # 如何处理不请自来的健康建议
 
-> 原文:[https://life hacker . com/how-to-deal-officed-health-advice-1838176198](https://lifehacker.com/how-to-deal-with-unsolicited-health-advice-1838176198)
+> 原文：<https://lifehacker.com/how-to-deal-with-unsolicited-health-advice-1838176198>
 
 每个人都认为自己是健康专家。慢性病社区的人对此心知肚明；公开承认自己怀孕或抑郁的人也是如此。一个人能听到多少次“你试过瑜伽吗？”
 

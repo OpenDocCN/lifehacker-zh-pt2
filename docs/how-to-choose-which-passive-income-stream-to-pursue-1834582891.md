@@ -1,6 +1,6 @@
 # 如何选择追求哪种被动收入流
 
-> 原文:[https://life hacker . com/how-to-choose-which-passive-income-stream-to-purchase-1834582891](https://lifehacker.com/how-to-choose-which-passive-income-stream-to-pursue-1834582891)
+> 原文：<https://lifehacker.com/how-to-choose-which-passive-income-stream-to-pursue-1834582891>
 
 如果你想赚更多的钱，被动收入是最好的方法之一。通过工作或副业赚钱很好，但如果你能建立一个被动的收入流，即使在你不积极工作的时候也能赚钱——嗯，那是一种梦想，不是吗？
 

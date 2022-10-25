@@ -1,6 +1,6 @@
 # 这是 2019 年最划算的流媒体视频服务
 
-> 原文:[https://life hacker . com/heres-the-streaming-video-service-thas-the-best-bar Gai-1838050860](https://lifehacker.com/heres-the-streaming-video-service-thats-the-best-bargai-1838050860)
+> 原文：<https://lifehacker.com/heres-the-streaming-video-service-thats-the-best-bargai-1838050860>
 
 告诉你哪些节目和电影在哪些流媒体服务上的网站[【reel good】](https://reelgood.com)，有了一份新的 [年度报告](https://lifehacker.com/heres-the-streaming-video-service-thats-the-best-bargai-1829370696) 关于哪个是最划算的:Hulu、网飞或 Prime Video。今年，网飞正在节节败退。
 

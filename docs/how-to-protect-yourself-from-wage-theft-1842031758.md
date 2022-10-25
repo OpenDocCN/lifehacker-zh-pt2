@@ -1,6 +1,6 @@
 # 如何保护自己免受工资盗窃
 
-> 原文:[https://life hacker . com/how-to-protect-yourself from-wage-theft-1842031758](https://lifehacker.com/how-to-protect-yourself-from-wage-theft-1842031758)
+> 原文：<https://lifehacker.com/how-to-protect-yourself-from-wage-theft-1842031758>
 
 在 Lifehacker，我们是查看每一份工资单的忠实粉丝，即使你有直接存款。尽管仔细检查这句话的每一行似乎有点偏执，但不管你工作的公司规模有多大，犯错是很常见的。
 

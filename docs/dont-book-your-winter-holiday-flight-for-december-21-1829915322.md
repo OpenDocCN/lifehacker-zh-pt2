@@ -1,6 +1,6 @@
 # 不要预订 12 月 21 日的寒假航班
 
-> 原文:[https://life hacker . com/don-to-book-your ' s winter-holiday-flight-12 月 21 日-1829915322](https://lifehacker.com/dont-book-your-winter-holiday-flight-for-december-21-1829915322)
+> 原文：<https://lifehacker.com/dont-book-your-winter-holiday-flight-for-december-21-1829915322>
 
 根据旅游应用程序 [Hopper](https://www.hopper.com/) 的说法，如果你在圣诞节前后旅行，还没有预订机票，你还有几周时间来争取最划算的价格。
 

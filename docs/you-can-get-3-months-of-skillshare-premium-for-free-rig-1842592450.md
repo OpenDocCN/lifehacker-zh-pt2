@@ -1,6 +1,6 @@
 # 您现在可以免费获得 3 个月的 Skillshare Premium
 
-> 原文:[https://life hacker . com/you-can-get-3-months-of-skill share-premium-for-free-rig-1842592450](https://lifehacker.com/you-can-get-3-months-of-skillshare-premium-for-free-rig-1842592450)
+> 原文：<https://lifehacker.com/you-can-get-3-months-of-skillshare-premium-for-free-rig-1842592450>
 
 如果你希望利用你的物理距离时间来学习一项新技能，Skillshare 在其服务上提供了一个为期三个月的免费高级账户来帮助你实现这一目标。
 

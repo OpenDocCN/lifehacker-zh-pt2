@@ -1,6 +1,6 @@
 # 让我们做一些沙袋搬运
 
-> 原文:[https://life hacker . com/let-do-some-sand bag-carries-1844793629](https://lifehacker.com/lets-do-some-sandbag-carries-1844793629)
+> 原文：<https://lifehacker.com/lets-do-some-sandbag-carries-1844793629>
 
 老实说，我不做核心练习。没有仰卧起坐，没有木板；我确信我的腹肌可以应付它们，但我的大脑就是不感兴趣。(如你所知，我是 [的忠实信徒，不做任何你真正讨厌](https://vitals.lifehacker.com/exercise-shouldnt-feel-horrible-1844763622) 的运动。)而是让你的核心努力工作的事情*同时*你在做别的事情？当我做这些的时候，我感觉很糟糕。
 

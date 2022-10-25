@@ -1,6 +1,6 @@
 # 阻止旅行记忆出现在你的社交媒体上
 
-> 原文:[https://life hacker . com/stop-travel-memories-from-appearing-in-your-social-medi-1843049034](https://lifehacker.com/stop-travel-memories-from-appearing-in-your-social-medi-1843049034)
+> 原文：<https://lifehacker.com/stop-travel-memories-from-appearing-in-your-social-medi-1843049034>
 
 我们的压力水平现在处于历史最高水平，这意味着我们也应该注意自己的自我保健——尤其是那些有旅行癖的人。从客厅到厨房来回旅行并不是一个人理想中的假期，然而我们还是来了。最重要的是，我们的社交媒体平台似乎决心提醒我们更好的日子:“嘿，看看一年前的今天你在哪里！”脸书大声说，提供一张美丽的海滩或其他度假胜地的照片，这比你在沙发上形成的永久屁股沟更有吸引力。
 

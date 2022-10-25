@@ -1,6 +1,6 @@
 # 尽快安装 2019 年 10 月的 Android 安全更新
 
-> 原文:[https://life hacker . com/why-you-should-install-the-December-2019-Android-securit-1838848808](https://lifehacker.com/why-you-should-install-the-october-2019-android-securit-1838848808)
+> 原文：<https://lifehacker.com/why-you-should-install-the-october-2019-android-securit-1838848808>
 
 谷歌每月的安卓安全补丁通常只针对谷歌设备，但三星、摩托罗拉、LG、Oppo、华为和小米都在推出自己版本的 2019 年 10 月安全更新，以修补几款安卓智能手机上存在的重大零日安全漏洞。那些有易受攻击的手机的人应该确保他们在未来几天的某个时候一有补丁就下载。
 

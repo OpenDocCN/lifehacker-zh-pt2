@@ -1,6 +1,6 @@
 # 用这个网站创建你自己的可共享的机械音乐盒曲调
 
-> 原文:[https://life hacker . com/create-your-own-shared-mechanical-music-box-tunes-wit-1839583697](https://lifehacker.com/create-your-own-sharable-mechanical-music-box-tunes-wit-1839583697)
+> 原文：<https://lifehacker.com/create-your-own-sharable-mechanical-music-box-tunes-wit-1839583697>
 
 当我上小学的时候，我曾一度对机械音乐盒着迷。你知道，就是那种你必须上紧发条才能让他们玩的那种。它们简单又好用，现在你可以为自己制作一个数码版的。
 

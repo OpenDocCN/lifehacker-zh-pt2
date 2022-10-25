@@ -1,6 +1,6 @@
 # 你最好的黑客体验是什么？
 
-> 原文:[https://life hacker . com/what-was-your ' s best-hackintosh-experience-1834388817](https://lifehacker.com/what-was-your-best-hackintosh-experience-1834388817)
+> 原文：<https://lifehacker.com/what-was-your-best-hackintosh-experience-1834388817>
 
 Lifehacker 最受欢迎的帖子之一，我们的 [黑客指南](https://lifehacker.com/the-always-up-to-date-guide-to-building-a-hackintosh-o-5841604?_ga=2.245553159.2031387578.1556546056-1723114163.1524514905) ，开始显示出它的年龄。是时候给这篇文章涂上一层新的油漆了，但在改造工作开始之前，我想听听你对每个极客的大梦想的体验:在非苹果设备上运行 macOS 的能力。
 

@@ -1,6 +1,6 @@
 # 如果你出国，你的信用卡会怎么样？
 
-> 原文:[https://life hacker . com/what-happens-to-your ' s credit-card-if-you-move-internatio-1842036978](https://lifehacker.com/what-happens-to-your-credit-card-if-you-move-internatio-1842036978)
+> 原文：<https://lifehacker.com/what-happens-to-your-credit-card-if-you-move-internatio-1842036978>
 
 建立和维护一个健康的信用记录可能会非常困难。但是如果你在 [建立了你的信用档案](https://twocents.lifehacker.com/everything-you-need-to-know-about-credit-how-to-check-1797093506) 之后搬到美国以外的地方，保持你的良好状态会更加困难。
 

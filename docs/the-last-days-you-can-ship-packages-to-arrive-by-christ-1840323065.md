@@ -1,6 +1,6 @@
 # 圣诞节前可以运送包裹的最后几天
 
-> 原文:[https://life hacker . com/the-last-days-you-can-ship-packages-to-arrive-by-Christ-1840323065](https://lifehacker.com/the-last-days-you-can-ship-packages-to-arrive-by-christ-1840323065)
+> 原文：<https://lifehacker.com/the-last-days-you-can-ship-packages-to-arrive-by-christ-1840323065>
 
 在黑色星期五之前的日子里， [联邦快递估计](https://about.van.fedex.com/newsroom/fedex-expects-record-volume-cyber-monday/) 他们仅一天就要运送 3300 万个包裹。虽然黑色星期五和网络星期一的交易大多来了又走，但对于联邦快递或 UPS 这样的公司来说，运输疯狂并没有结束。 [UPS 预计](https://www.cnbc.com/2017/10/26/ups-expects-to-ship-750-million-packages-this-holiday-season.html) 将在这个假期运送 7.5 亿个包裹，或者在圣诞节前几周每天运送 3000 多万个包裹。(根据美国邮政的网站 显示，圣诞节前两周是邮政服务最繁忙的时候，所以明天。)
 

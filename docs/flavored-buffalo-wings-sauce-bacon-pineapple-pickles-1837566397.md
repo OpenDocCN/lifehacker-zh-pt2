@@ -1,6 +1,6 @@
 # 不要太胆小，不敢把这些配料加到布法罗鸡翅里
 
-> 原文:[https://the take out . com/调味-布法罗-鸡翅-酱-培根-菠萝-泡菜-1837566397](https://thetakeout.com/flavored-buffalo-wings-sauce-bacon-pineapple-pickles-1837566397)
+> 原文：<https://thetakeout.com/flavored-buffalo-wings-sauce-bacon-pineapple-pickles-1837566397>
 
 BYFO 代表“烧掉你的脸”，这是密苏里州哥伦比亚 CJ's Wings 最受欢迎的机翼选择。具有讽刺意味的是，我在大学期间曾在 CJ 餐厅做过洗碗工和厨师长，因为在我开始工作之前，我从未吃过水牛酱。你看，从小我就是一个极其 [挑食](https://thetakeout.com/australian-vegan-sues-neighbor-meat-smell-1837875772) 。对我来说，只有面包、奶制品和肉——不要太辣也不要太辣。但当我开始在 CJ 工作时，一切都变了。
 

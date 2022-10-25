@@ -1,6 +1,6 @@
 # 用超大充气骰子让你的孩子在室内保持活跃
 
-> 原文:[https://life hacker . com/keep-your-kids-active-室内超大充气-1839984672](https://lifehacker.com/keep-your-kids-active-indoors-with-oversized-inflatable-1839984672)
+> 原文：<https://lifehacker.com/keep-your-kids-active-indoors-with-oversized-inflatable-1839984672>
 
 我的儿子从他的武术老师那里学到了很多——很多关于尊重、纪律、决心和信心的精彩课程。但我最喜欢从他过去两年的训练中得到的启示是:如果你让孩子们先在地板上滚动巨大的骰子，他们不介意做一系列俯卧撑、仰卧起坐和跳跃运动。
 

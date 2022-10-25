@@ -1,6 +1,6 @@
 # 如何在日常跑步中加入长跑
 
-> 原文:[https://life hacker . com/how-to-add-a-long-run-to-your running-routine-1834309307](https://lifehacker.com/how-to-add-a-long-run-to-your-running-routine-1834309307)
+> 原文：<https://lifehacker.com/how-to-add-a-long-run-to-your-running-routine-1834309307>
 
 欢迎回来！ [我们跑步挑战](https://lifehacker.com/happy-spring-were-running-again-1833723734) 的最后一项是长距离慢跑。(如果你在一个跑步伙伴的日历上看到“迷幻药”，他们是在谈论迷幻药*而不是*。大概吧。)
 

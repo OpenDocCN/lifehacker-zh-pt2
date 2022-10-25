@@ -1,6 +1,6 @@
 # 只用四种原料制作釉面腌羊腿
 
-> 原文:[https://life hacker . com/make-glazed-sous-vide-lamb-shanks-with-only-four-ingred-1833985618](https://lifehacker.com/make-glazed-sous-vide-lamb-shanks-with-only-four-ingred-1833985618)
+> 原文：<https://lifehacker.com/make-glazed-sous-vide-lamb-shanks-with-only-four-ingred-1833985618>
 
 吃骨头上的肉是一种感官享受，非常令人满足的体验。我不知道你是否想在你的复活节餐桌上(或任何一餐)有这样的氛围，但如果你想，这道羊腿肉正是你想要的。
 

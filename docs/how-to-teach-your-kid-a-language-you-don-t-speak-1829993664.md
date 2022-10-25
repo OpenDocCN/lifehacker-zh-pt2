@@ -1,6 +1,6 @@
 # 如何教孩子一门你不会说的语言
 
-> 原文:[https://life hacker . com/how-to-teach-your-kid-a-language-you-don-t-speak-1829993664](https://lifehacker.com/how-to-teach-your-kid-a-language-you-don-t-speak-1829993664)
+> 原文：<https://lifehacker.com/how-to-teach-your-kid-a-language-you-don-t-speak-1829993664>
 
 如果你精通第二种语言，培养你的孩子掌握双语是很容易的。对于只会说英语的父母来说，这需要更加认真的努力——尽管这并不是不可能的。
 

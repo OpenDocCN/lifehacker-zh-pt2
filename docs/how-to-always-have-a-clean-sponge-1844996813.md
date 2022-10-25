@@ -1,6 +1,6 @@
 # 如何一直拥有一块干净的海绵
 
-> 原文:[https://life hacker . com/how-to-always-have-a-clean-sponge-1844996813](https://lifehacker.com/how-to-always-have-a-clean-sponge-1844996813)
+> 原文：<https://lifehacker.com/how-to-always-have-a-clean-sponge-1844996813>
 
 正如前生活黑客作家尼克·道格拉斯曾经宣称的那样: [每块海绵都是坏的](https://lifehacker.com/every-sponge-is-bad-1832899231) 。他当时没有错，现在也没有错。但他充满激情的姿态让我比以往任何时候都更深入地思考我的厨房海绵，我有了一个有点令人不安的认识。我的海绵？基本上总是肮脏的。
 

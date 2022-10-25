@@ -1,6 +1,6 @@
 # 通过哄骗你的大脑冷静下来来增强你的自信
 
-> 原文:[https://life hacker . com/boost-your-confidence by-tricking-your-brain-calmi-1836167636](https://lifehacker.com/boost-your-confidence-by-tricking-your-brain-into-calmi-1836167636)
+> 原文：<https://lifehacker.com/boost-your-confidence-by-tricking-your-brain-into-calmi-1836167636>
 
 我们都有不像自己希望的那样自信的时候。你知道，就在一个重要的演讲之前，或者当你在老板办公室外面等着向她要求加薪的时候。
 

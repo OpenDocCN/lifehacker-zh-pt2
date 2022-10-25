@@ -1,6 +1,6 @@
 # 这些商店和餐馆在圣诞节开门营业
 
-> 原文:[https://life hacker . com/these-stores-and-restaurant-on-Christmas-1840645423](https://lifehacker.com/these-stores-and-restaurants-are-open-on-christmas-1840645423)
+> 原文：<https://lifehacker.com/these-stores-and-restaurants-are-open-on-christmas-1840645423>
 
 今天是圣诞节，这意味着大多数商店、商店和餐馆都关门了。如果你需要挑选最后一分钟的超级礼物或者需要吃点东西，那么你确实有很多选择。
 

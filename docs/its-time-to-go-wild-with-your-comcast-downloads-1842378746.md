@@ -1,6 +1,6 @@
 # 是时候尽情下载 Comcast 了
 
-> 原文:[https://life hacker . com/its-time-to-go-wild-with-your-Comcast-downloads-1842378746](https://lifehacker.com/its-time-to-go-wild-with-your-comcast-downloads-1842378746)
+> 原文：<https://lifehacker.com/its-time-to-go-wild-with-your-comcast-downloads-1842378746>
 
 来自冠状病毒的唯一好消息是，康卡斯特终于证明，它的网络可能能够处理你通常会做的所有下载。除非你有一个水晶球，并且一直在市场上小赚一笔。换句话说，数据上限是扯淡。
 

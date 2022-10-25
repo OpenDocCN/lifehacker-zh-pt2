@@ -1,6 +1,6 @@
 # 2019 年 9 月 3 日这一周，网飞有哪些活动
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of-septemb-1837448156](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-septemb-1837448156)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-septemb-1837448156>
 
 网飞！不要搞砸了！《间谍》(周五)是一部限量版剧集，由萨莎·拜伦·科恩(是的，你没看错)主演，饰演一名摩萨德特工，在 20 世纪 60 年代秘密潜入叙利亚。SBC 有能力在吉迪恩·拉夫的一部连续剧中扮演一个传奇间谍吗?《T2》和《国土安全 3》就是基于他写的这部连续剧？这将是又一次令人失望的拒绝，再次粉碎我们对网飞热门工厂的信心吗？让我们希望如此，也不要希望如此。
 

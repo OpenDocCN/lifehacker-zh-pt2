@@ -1,6 +1,6 @@
 # 如何礼貌地让一个蹒跚学步的孩子离开你
 
-> 原文:[https://life hacker . com/how-to-queely-get-a-leave-you-alone-1841518643](https://lifehacker.com/how-to-politely-get-a-toddler-to-leave-you-alone-1841518643)
+> 原文：<https://lifehacker.com/how-to-politely-get-a-toddler-to-leave-you-alone-1841518643>
 
 我们的小孩很可爱！我们爱我们的孩子！我们有时甚至会喜欢别人的小孩。但即便如此，它们也可能是令人精疲力尽的小动物，它们需要从字面上理解你，并询问你不可能知道答案的详细问题。有时候，你需要休息。有时候，你只是需要他们让你单独呆一会儿。
 

@@ -1,6 +1,6 @@
 # 在拼图下面放一个公告板，这样更容易移动
 
-> 原文:[https://life hacker . com/put-a-bulletin-board-under-a-puzzle-to-make-it-easy-t-1844024901](https://lifehacker.com/put-a-bulletin-board-under-a-puzzle-to-make-it-easier-t-1844024901)
+> 原文：<https://lifehacker.com/put-a-bulletin-board-under-a-puzzle-to-make-it-easier-t-1844024901>
 
 除了生产洗手液和卫生纸的公司，字谜制造商和销售商最近生意兴隆。在过去的几个月里，由于新冠肺炎疫情，每个人都被限制在家里，我们有更多的时间进行慢节奏的活动。如果你的家人已经跳上了拼图潮流，或者订购了一些新的，或者打开了藏在壁橱后面的拼图，我们有没有为你准备的小黑客。以下是你需要知道的。
 

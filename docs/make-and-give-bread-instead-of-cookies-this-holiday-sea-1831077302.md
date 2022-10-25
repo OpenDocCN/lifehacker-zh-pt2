@@ -1,6 +1,6 @@
 # 在这个假期，制作并分发面包，而不是饼干
 
-> 原文:[https://life hacker . com/make-and-give-bread-to-cookie-this-holiday-sea-1831077302](https://lifehacker.com/make-and-give-bread-instead-of-cookies-this-holiday-sea-1831077302)
+> 原文：<https://lifehacker.com/make-and-give-bread-instead-of-cookies-this-holiday-sea-1831077302>
 
 即使你非常喜欢吃甜食，也很容易被每年这个时候分发的大量含糖零食淹没。如果饼干疲劳已经开始，有一个更好的方法:人们为自制面包而失去理智，这比你想象的要容易得多。
 

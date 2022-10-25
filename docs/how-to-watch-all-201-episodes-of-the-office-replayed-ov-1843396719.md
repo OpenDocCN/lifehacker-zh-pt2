@@ -1,6 +1,6 @@
 # 如何观看《办公室》在 Slack 上重播的每一集
 
-> 原文:[https://life hacker . com/how-to-watch-all-201-episodes-of-the-office-replayed-ov-1843396719](https://lifehacker.com/how-to-watch-all-201-episodes-of-the-office-replayed-ov-1843396719)
+> 原文：<https://lifehacker.com/how-to-watch-all-201-episodes-of-the-office-replayed-ov-1843396719>
 
 《办公室》于 2013 年停播，同年 Slack 向公众推出。这意味着，可悲的是，我们在 Dunder-Mifflin 的英雄们无法体验服役的快乐和痛苦。但是如果他们做了呢？
 

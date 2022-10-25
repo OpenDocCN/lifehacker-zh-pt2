@@ -1,6 +1,6 @@
 # HBO Now 用户如果想要 HBO Max，应该转而选择 HBO 付费的计划
 
-> 原文:[https://life hacker . com/HBO-now-users-should-switch-to-an-HBO-billed-plan-if-th-1839591900](https://lifehacker.com/hbo-now-users-should-switch-to-an-hbo-billed-plan-if-th-1839591900)
+> 原文：<https://lifehacker.com/hbo-now-users-should-switch-to-an-hbo-billed-plan-if-th-1839591900>
 
 如果你是 HBO Now 的客户，一直在关注 HBO Max，你可能想确保你现在直接为这项服务向 HBO 付费，如果你不是，考虑现在将你的帐户转移到直接由 HBO 付费的服务。
 

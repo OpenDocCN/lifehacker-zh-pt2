@@ -1,6 +1,6 @@
 # 为什么你的 USB 线不能给你的安卓智能手机充电
 
-> 原文:[https://life hacker . com/why-your-USB-cable-may-not-charge-your-Android-smartp-1840462438](https://lifehacker.com/why-your-usb-cable-might-not-charge-your-android-smartp-1840462438)
+> 原文：<https://lifehacker.com/why-your-usb-cable-might-not-charge-your-android-smartp-1840462438>
 
 电缆是电缆是电缆，对吗？不完全是。虽然一根 USB 线和另一根 USB 线之间不应该有任何差异——主要是电缆周围的保护套和一系列营销——但一些人发现，他们的 Pixel 4 智能手机变得很挑剔，取决于你使用哪根 USB 线充电。选择错误的电缆，当你醒来开始新的一天时，你可能会发现自己带着一个镇纸，而不是一个充满电的设备。
 

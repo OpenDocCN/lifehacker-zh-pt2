@@ -1,6 +1,6 @@
 # 昨晚民主党辩论中最重要的时刻
 
-> 原文:[https://life hacker . com/the-most-important-moments-from-last-nights-democratic-1841017367](https://lifehacker.com/the-most-important-moments-from-last-nights-democratic-1841017367)
+> 原文：<https://lifehacker.com/the-most-important-moments-from-last-nights-democratic-1841017367>
 
 昨晚，六名总统候选人在爱荷华州的得梅因为 2020 年 race⁠—and 的第七场民主党辩论登台，事情变得尴尬起来。在辩论中，两位候选人讨论了与伊朗日益紧张的关系、气候变化和医疗保健等问题。然而，任何人都可以谈论辩论后伊丽莎白·沃伦和伯尼·桑德斯在当晚快结束时的交流(以及汤姆·斯泰尔，他在辩论后成为了 [迷因](https://twitter.com/oneunderscore__/status/1217300549151920130) )。以下是昨晚民主党总统候选人辩论中一些最精彩和最糟糕的时刻，以防你错过了所有(令人不快的)行动。
 

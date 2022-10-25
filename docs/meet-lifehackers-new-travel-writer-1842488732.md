@@ -1,6 +1,6 @@
 # 见见 Lifehacker 的新旅行作家
 
-> 原文:[https://life hacker . com/meet-life hacker-new-travel-writer-1842488732](https://lifehacker.com/meet-lifehackers-new-travel-writer-1842488732)
+> 原文：<https://lifehacker.com/meet-lifehackers-new-travel-writer-1842488732>
 
 嘿生活黑客们！我是 Lifehacker 的最新特约撰稿人，我将报道旅游。我迫不及待地想给你带来我能保证有用的提示，因为，嗯，我已经*使用过*它们了。
 

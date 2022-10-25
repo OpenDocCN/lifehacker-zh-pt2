@@ -1,6 +1,6 @@
 # 尝试在没有许可证的情况下在“免费钓鱼日”钓鱼
 
-> 原文:[https://life hacker . com/try-fishing-on-free-fishing-days-without-a-license-1835157680](https://lifehacker.com/try-fishing-on-free-fishing-days-without-a-license-1835157680)
+> 原文：<https://lifehacker.com/try-fishing-on-free-fishing-days-without-a-license-1835157680>
 
 我清晰地记得童年时和家人在某个码头钓鱼的情景。我决定在某个时候尝试一些我在电视上看到的飞蝇钓鱼动作，结果是我哥哥的耳朵被钩了一下，我放弃了钓鱼。
 

@@ -1,6 +1,6 @@
 # 如果洗手液用完了该用什么
 
-> 原文:[https://life hacker . com/what-to-use-if-you-run-out-of-hand-soap-1844205916](https://lifehacker.com/what-to-use-if-you-run-out-of-hand-soap-1844205916)
+> 原文：<https://lifehacker.com/what-to-use-if-you-run-out-of-hand-soap-1844205916>
 
 因此，在全球疫情期间，你的洗手液已经快用完了，而且由于供应链问题和持续的抢购，很难再补充洗手液。或者也许你不能冒险去商店买更多，直到你用完了。还是要勤洗手——怎么办？
 

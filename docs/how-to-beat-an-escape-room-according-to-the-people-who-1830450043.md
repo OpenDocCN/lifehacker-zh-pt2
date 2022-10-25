@@ -1,6 +1,6 @@
 # 如何打败一个逃生室，根据制造他们的人
 
-> 原文:[https://life hacker . com/how-to-beat-a-escape-room-by-the-people-who-1830450043](https://lifehacker.com/how-to-beat-an-escape-room-according-to-the-people-who-1830450043)
+> 原文：<https://lifehacker.com/how-to-beat-an-escape-room-according-to-the-people-who-1830450043>
 
 一个逃避游戏可以是紧张的、令人沮丧的、困难的，也可以是有趣的、充满力量的...还是难。这些建议不会因为让逃生室变得太容易而毁掉它们。但它们可能会让你的下一次团队建设活动免于变成徒劳和失败的一个小时。
 

@@ -1,6 +1,6 @@
 # 知道什么时候停止在工作中过度表达
 
-> 原文:[https://life hacker . com/know-when-stop-over delivery-in-work-1842060789](https://lifehacker.com/know-when-to-stop-overdelivering-at-work-1842060789)
+> 原文：<https://lifehacker.com/know-when-to-stop-overdelivering-at-work-1842060789>
 
 当我处于各种职业生涯的早期阶段时——无论是作为行政助理，还是后来，当我重新成为自由作家时——我都是关于超额交付的。我在一些商业书籍中读到，成为一名有价值的员工的秘诀是总是比预期的更快更好地扭转局面。更进一步，如果你不介意这些陈词滥调的话。
 

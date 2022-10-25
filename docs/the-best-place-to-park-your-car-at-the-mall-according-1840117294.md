@@ -1,6 +1,6 @@
 # 根据数学，商场里停车的最佳位置
 
-> 原文:[https://life hacker . com/the-best-place-to-park your-car-in-the-mall-only 1840117294](https://lifehacker.com/the-best-place-to-park-your-car-at-the-mall-according-1840117294)
+> 原文：<https://lifehacker.com/the-best-place-to-park-your-car-at-the-mall-according-1840117294>
 
 如果今年你的假日购物冒险将你带到当地的购物中心，当你到达那里时，你在哪里停车是有一些策略的。
 

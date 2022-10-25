@@ -1,6 +1,6 @@
 # 如何免费阅读 J.K .罗琳的新章节书
 
-> 原文:[https://life hacker . com/how-to-read-j-k-rowlings-new-chapter-book-for-free-1843703510](https://lifehacker.com/how-to-read-j-k-rowlings-new-chapter-book-for-free-1843703510)
+> 原文：<https://lifehacker.com/how-to-read-j-k-rowlings-new-chapter-book-for-free-1843703510>
 
 几周前，J.K .罗琳从她的文学阁楼里拿出一个文学盒子，以便从字面上拂去她多年前写的一本书的草稿，当时她还在写哈利波特系列。现在，作为冠状病毒时代给各地儿童(和成年人)的礼物，她正在发行这本书，书名为[*【Ickabog】*](https://www.theickabog.com/en-us/home/)*，在网上免费逐章阅读。*
 

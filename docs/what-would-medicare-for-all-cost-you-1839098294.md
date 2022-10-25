@@ -1,6 +1,6 @@
 # 全民医疗保险会让您付出什么代价？
 
-> 原文:[https://life hacker . com/what-would-medicare-for-all-cost-you-1839098294](https://lifehacker.com/what-would-medicare-for-all-cost-you-1839098294)
+> 原文：<https://lifehacker.com/what-would-medicare-for-all-cost-you-1839098294>
 
 民主党总统候选人希望彻底改革医疗保健。但是谁来买单呢？这是昨晚第四场初选辩论 中的问题，12 名候选人在一个舞台上争夺关注。但是围绕医疗保健的讨论可能导致了更多的问题而不是答案。很多细节还不清楚，但现在看来，政府资助的医疗保健不会大幅增加你的自付费用——它实际上会降低你支付的医疗费用。
 

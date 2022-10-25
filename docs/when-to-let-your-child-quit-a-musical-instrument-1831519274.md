@@ -1,6 +1,6 @@
 # 什么时候让你的孩子放弃乐器
 
-> 原文:[https://life hacker . com/when-to-let-your-child-quit-a-musical-instrument-1831519274](https://lifehacker.com/when-to-let-your-child-quit-a-musical-instrument-1831519274)
+> 原文：<https://lifehacker.com/when-to-let-your-child-quit-a-musical-instrument-1831519274>
 
 对于许多父母来说，下面的场景是痛苦而熟悉的:孩子在目睹了某件乐器的演奏后，对该乐器产生了兴趣。孩子乞求一个属于自己的孩子。还求教训。承诺他们会“每天”练习。三个月后，花了几百美元，每次练习都是一场争论，孩子说他们“讨厌”以前喜欢的乐器。他们想退出。
 

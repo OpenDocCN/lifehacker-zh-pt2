@@ -1,6 +1,6 @@
 # 汽水罐或塑料瓶对环境更有害吗？
 
-> 原文:[https://life hacker . com/are-soda-can-or-塑料瓶-bad-for-the-environment 1834445388](https://lifehacker.com/are-soda-cans-or-plastic-bottles-worse-for-the-environm-1834445388)
+> 原文：<https://lifehacker.com/are-soda-cans-or-plastic-bottles-worse-for-the-environm-1834445388>
 
 我们都知道垃圾对我们的环境有着可怕的影响——看看那些冲上我们 [海滩](https://www.theguardian.com/us-news/2019/feb/08/seal-beach-california-trash-litter) 和水道的塑料瓶。但是当谈到 瓶和铝罐的问题时，一个容器是否比另一个容器对环境的影响更大？
 

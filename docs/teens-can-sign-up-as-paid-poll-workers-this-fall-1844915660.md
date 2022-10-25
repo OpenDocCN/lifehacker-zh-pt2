@@ -1,6 +1,6 @@
 # 今年秋天，青少年可以注册成为有偿投票工作人员
 
-> 原文:[https://life hacker . com/teens-can-sign-up-as-payed-poll-workers-this-fall-1844915660](https://lifehacker.com/teens-can-sign-up-as-paid-poll-workers-this-fall-1844915660)
+> 原文：<https://lifehacker.com/teens-can-sign-up-as-paid-poll-workers-this-fall-1844915660>
 
 在选举日，投票工作人员负责全国各地投票站的有序投票过程。然而，今年 11 月带来了一个特别困难的人员配备挑战，因为老年人因新冠肺炎而死亡的风险相对较高:[近 60%的民意调查人员年龄超过 60 岁](https://www.pewresearch.org/fact-tank/2020/04/06/older-people-account-for-large-shares-of-poll-workers-and-voters-in-u-s-general-elections) 。为了弥补这一点，青少年今年可以报名成为投票站工作人员，以取代那些可能需要避免公共场合的更有经验的投票站工作人员。投票英雄组织成立了一个主要由大学生管理的组织，正在招募数千名符合条件的高中生和大学生在今年秋天成为有偿投票员。
 

@@ -1,6 +1,6 @@
 # 让你所有有烦人决心的朋友静音
 
-> 原文:[https://life hacker . com/mute-all-your-friends-who-waste-resolutions-1840829735](https://lifehacker.com/mute-all-your-friends-who-have-annoying-resolutions-1840829735)
+> 原文：<https://lifehacker.com/mute-all-your-friends-who-have-annoying-resolutions-1840829735>
 
 我们进入一月还不到一周，但是很有可能在你的时间表上有人有一个新年决心，他们就是不会闭嘴。不要解除他们的好友关系——他们将在一个月左右恢复正常。30 天静音就是为此而生的。
 

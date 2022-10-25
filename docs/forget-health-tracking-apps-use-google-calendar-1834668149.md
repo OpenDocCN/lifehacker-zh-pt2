@@ -1,6 +1,6 @@
 # 忘记健康追踪应用——使用谷歌日历
 
-> 原文:[https://life hacker . com/forget-health-tracking-apps-use-Google-calendar-1834668149](https://lifehacker.com/forget-health-tracking-apps-use-google-calendar-1834668149)
+> 原文：<https://lifehacker.com/forget-health-tracking-apps-use-google-calendar-1834668149>
 
 有很多应用程序可以跟踪你的经期，你的心理健康状况，等等。但是追踪你身体状况的最简单的方法就是创建一个名为“健康”的日历(在谷歌日历或任何你能预约的地方)
 

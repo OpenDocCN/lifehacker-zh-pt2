@@ -1,6 +1,6 @@
 # 如何阻止你的智能手机跟踪你的健身
 
-> 原文:[https://life hacker . com/how-to-stop-your-smart phone-tracking-your-fitness-1840775890](https://lifehacker.com/how-to-stop-your-smartphone-from-tracking-your-fitness-1840775890)
+> 原文：<https://lifehacker.com/how-to-stop-your-smartphone-from-tracking-your-fitness-1840775890>
 
 你可以从所有的健身房自拍、健身追踪器截图和充满社交媒体的无碳水化合物餐的过度热情的照片中看出这是一月。虽然你可能已经决定把注意力放在其他地方，而不是每天的步数，但你的手机有不同的想法。
 

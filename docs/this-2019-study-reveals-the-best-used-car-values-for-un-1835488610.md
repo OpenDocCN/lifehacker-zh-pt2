@@ -1,6 +1,6 @@
 # 这项 2019 年的研究揭示了 2 万美元以下的最佳二手车价值
 
-> 原文:[https://jalopnik . com/this-2019-study-reveals-the-best-二手车-values-for-un-1835488610](https://jalopnik.com/this-2019-study-reveals-the-best-used-car-values-for-un-1835488610)
+> 原文：<https://jalopnik.com/this-2019-study-reveals-the-best-used-car-values-for-un-1835488610>
 
 新 [汽车销售放缓](https://jalopnik.com/car-sales-are-slipping-into-recession-level-decline-1835480712) 由于一款全新车型的平均成本上升，更多的买家转向二手车市场。众所周知，让别人来承担贬值会让你的钱花得更值，但是来自 [*iSeeCars*](https://www.iseecars.com/best-used-car-bargains-2019-study) 的一项新研究调查了哪些型号可以让你的钱花得最值。
 

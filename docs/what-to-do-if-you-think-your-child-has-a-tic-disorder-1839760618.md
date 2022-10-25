@@ -1,6 +1,6 @@
 # 如果你认为你的孩子有抽动障碍，该怎么办
 
-> 原文:[https://life hacker . com/1839760618](https://lifehacker.com/what-to-do-if-you-think-your-child-has-a-tic-disorder-1839760618)
+> 原文：<https://lifehacker.com/what-to-do-if-you-think-your-child-has-a-tic-disorder-1839760618>
 
 我九岁女儿的清嗓子记录是一分钟 33 次。我数过了。这是一种让人分心的噪音，有时你除了数它发生了多少次之外，真的什么也做不了。
 

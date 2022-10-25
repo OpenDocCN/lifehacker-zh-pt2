@@ -1,6 +1,6 @@
 # 为了提高记忆力，整理你的照片
 
-> 原文:[https://life hacker . com/to-improve-memory-recall-curate-your-photos-1841334875](https://lifehacker.com/to-improve-memory-recall-curate-your-photos-1841334875)
+> 原文：<https://lifehacker.com/to-improve-memory-recall-curate-your-photos-1841334875>
 
 这几天拍照片的时候，都没怎么想。我知道会自动保存到云端；我知道它会自动保存一个时间戳。这不像过去，拍照的目的是把照片打印出来，然后把照片塞进相册的袖子里。
 

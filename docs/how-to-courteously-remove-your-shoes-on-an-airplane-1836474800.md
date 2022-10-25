@@ -1,6 +1,6 @@
 # 如何礼貌地在飞机上脱鞋
 
-> 原文:[https://life hacker . com/how-to-culturely-remove-your-shoes-on-a-plant-1836474800](https://lifehacker.com/how-to-courteously-remove-your-shoes-on-an-airplane-1836474800)
+> 原文：<https://lifehacker.com/how-to-courteously-remove-your-shoes-on-an-airplane-1836474800>
 
 关于在飞机上如何让自己“在家”这个话题，有很多问题。有些答案很简单。可以穿瑜伽裤吗？当然可以(听说， [美联航？](https://www.nytimes.com/2017/03/26/us/united-airlines-leggings.html) )。你能狼吞虎咽地吃下沾满山核桃酱的烤肋排吗？ [咱们不要](https://thetakeout.com/the-following-foods-are-unacceptable-on-an-airplane-1827142994) 。然而，你是否能脱掉鞋子，仍然是一个复杂的问题。有许多旅行者坚定地站在“从不”的阵营，我能理解为什么。我们都见过社交媒体上的 [照片](https://www.reddit.com/r/trashy/comments/7r6rv1/this_girl_who_put_her_feet_up_on_an_airplane/) 和 [视频](https://twitter.com/usatoday/status/1136755141858738176?lang=en) 流氓的腿和脚出界戳到扶手和(哦，主啊)同车乘客身上。这一周，我们看到了这个可爱的画面。
 

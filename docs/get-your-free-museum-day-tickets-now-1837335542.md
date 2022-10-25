@@ -1,6 +1,6 @@
 # 立即获得免费的博物馆日门票
 
-> 原文:[https://life hacker . com/get-your-free-museum-day-tickets-now-1837335542](https://lifehacker.com/get-your-free-museum-day-tickets-now-1837335542)
+> 原文：<https://lifehacker.com/get-your-free-museum-day-tickets-now-1837335542>
 
 史密森尼博物馆的免费博物馆日将于今年 9 月 21 日举行，但你现在就可以买到当天的门票。
 

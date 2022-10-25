@@ -1,6 +1,6 @@
 # 您的西南航空里程不再过期
 
-> 原文:[https://life hacker . com/your-south west-airlines-miles-don-expire-more-1839138844](https://lifehacker.com/your-southwest-airlines-miles-dont-expire-anymore-1839138844)
+> 原文：<https://lifehacker.com/your-southwest-airlines-miles-dont-expire-anymore-1839138844>
 
 如果你曾经在航空里程到期前拼命存钱，你就会知道看着那些来之不易的奖励慢慢消失的心痛。为了在竞争中脱颖而出，西南航空公司今天宣布，快速奖励积分将立即生效，永不过期。
 

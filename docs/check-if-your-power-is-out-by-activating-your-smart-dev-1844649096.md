@@ -1,6 +1,6 @@
 # 通过激活您的智能设备来检查您是否断电
 
-> 原文:[https://life hacker . com/check-if-your-power ' s-out-by-activating-your-smart-dev-1844649096](https://lifehacker.com/check-if-your-power-is-out-by-activating-your-smart-dev-1844649096)
+> 原文：<https://lifehacker.com/check-if-your-power-is-out-by-activating-your-smart-dev-1844649096>
 
 做好准备:飓风季节到了，气象学家 [预计将会是繁忙的一年](https://www.nationalgeographic.com/science/2020/07/conditions-ripe-for-major-atlantic-hurricane-season/#close) 。东海岸已经受到上周登陆的热带风暴 Isias 的袭击，引发洪水、火灾、[和龙卷风，造成至少 9 人死亡](https://www.kansascity.com/news/business/national-international/article244737982.html) 。除了这些更严重事件的恐怖，大范围停电是这些大规模夏末风暴的常见副作用——Isias 使东北部约 140 万人断电，即使几天后，一些地区仍未恢复供电。你永远不知道你是否会成为断电的不幸者之一，但如果暴风雨来袭时你不在家，有一种简单的方法可以检查你是否仍然与远方保持联系——前提是你拥有一台与手机上的应用程序相连的智能设备。
 

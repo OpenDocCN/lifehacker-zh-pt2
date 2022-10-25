@@ -1,6 +1,6 @@
 # 让电脑屏幕出现在电视上的 7 种方法
 
-> 原文:[https://gizmodo . com/7-ways-to-get-your-computer-screen-up-on-your-TV-1828515942](https://gizmodo.com/7-ways-to-get-your-computer-screen-up-on-your-tv-1828515942)
+> 原文：<https://gizmodo.com/7-ways-to-get-your-computer-screen-up-on-your-tv-1828515942>
 
 也许你有朋友要来看电影，或者你需要你的家人来看这个非常棒的 YouTube 视频。或者，也许你只是得到了一张照片幻灯片，根本没有人可以炫耀，因为我们中的一些人仍然被困在疫情的家中。不管是什么原因，你宁愿把电脑屏幕放在电视上，也不愿在更小的笔记本电脑上看东西。
 

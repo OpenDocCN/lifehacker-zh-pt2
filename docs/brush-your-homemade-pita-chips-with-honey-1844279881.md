@@ -1,6 +1,6 @@
 # 在你自制的皮塔饼上刷上蜂蜜
 
-> 原文:[https://life hacker . com/brush-your-manufactured-pita-chips with honey-1844279881](https://lifehacker.com/brush-your-homemade-pita-chips-with-honey-1844279881)
+> 原文：<https://lifehacker.com/brush-your-homemade-pita-chips-with-honey-1844279881>
 
 即使是从你最喜欢的餐馆拿食物，也和在那家餐馆吃饭是不同的体验。例如，我最喜欢的黎巴嫩餐馆()总是为餐桌送上一个巨大的皮塔饼，放在它自己的底座上。我不仅没有皮塔饼底座(悲哀)，我的胃里也没有空间在它新鲜的时候把它吃完(可悲)。这很悲哀，因为皮塔饼新鲜的时候最好吃，但这只是*种*悲哀，因为剩下的皮塔饼意味着皮塔薯片，而我已经非常擅长做皮塔薯片了。
 

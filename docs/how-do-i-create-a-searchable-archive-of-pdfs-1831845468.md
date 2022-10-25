@@ -1,6 +1,6 @@
 # 如何创建可搜索的 pdf 文档？
 
-> 原文:[https://life hacker . com/how-do-I-create-a-searchable-archive-of-pdf-1831845468](https://lifehacker.com/how-do-i-create-a-searchable-archive-of-pdfs-1831845468)
+> 原文：<https://lifehacker.com/how-do-i-create-a-searchable-archive-of-pdfs-1831845468>
 
 在 Lifehacker 本周的 [技术建议专栏](https://lifehacker.com/c/tech-911) 中，各位，继续提问吧！—我们正在帮助一位读者，他有太多的重要文件需要神奇地过渡到数字领域。至少，这听起来比“光学字符识别”要令人兴奋得多，因为“光学字符识别”并没有真正脱口而出。
 

@@ -1,6 +1,6 @@
 # 我在食谱中使用哪种盐有关系吗？
 
-> 原文:[https://the take out . com/which-type-of-salt-to-use-kosher-table-sea-1839063480](https://thetakeout.com/which-types-of-salt-to-use-kosher-table-sea-1839063480)
+> 原文：<https://thetakeout.com/which-types-of-salt-to-use-kosher-table-sea-1839063480>
 
 一些食谱在配料表中指定了犹太盐、罐装盐或海盐。但是，当你一边搅拌热锅，一边试图在手机上阅读食谱，并在厨房里与朋友进行半连贯的对话时，你很容易抓起最近的一瓶食盐。你可能会想，它仍然是盐，我用什么类型真的重要吗？
 

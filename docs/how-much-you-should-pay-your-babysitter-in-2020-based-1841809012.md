@@ -1,6 +1,6 @@
 # 根据你的居住地，2020 年你应该付给你的保姆多少钱
 
-> 原文:[https://life hacker . com/how-much-you-should-pay-much-you-butter-in-2020-based-1841809012](https://lifehacker.com/how-much-you-should-pay-your-babysitter-in-2020-based-1841809012)
+> 原文：<https://lifehacker.com/how-much-you-should-pay-your-babysitter-in-2020-based-1841809012>
 
 每年， [UrbanSitter](https://blog.urbansitter.com/2020-babysitting-rates-childcare-costs-study/) 都会发布对全美 25000 多个家庭的研究结果，帮助确定平均每小时的保姆率(按主要城市)。每年，平均每小时的费用都在增加，家长们对此感到畏缩，但是我们必须承认我们的保姆应得的。
 

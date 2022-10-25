@@ -1,6 +1,6 @@
 # 如何避免优步和 Lyft 的价格飙升
 
-> 原文:[https://life hacker . com/how-to-avoid-surge-pricing-on-Uber-and-lyft-1840180340](https://lifehacker.com/how-to-avoid-surge-pricing-on-uber-and-lyft-1840180340)
+> 原文：<https://lifehacker.com/how-to-avoid-surge-pricing-on-uber-and-lyft-1840180340>
 
 如果下着倾盆大雨或者你在高峰时间出行，你通常可以指望过高的价格，同时使用流行的乘车共享应用程序，如优步或 Lyft。如果你不知道激增定价是如何运作的，这里有一个长话短说:如果有很高的乘车需求，在特定区域的乘车会以“激增”费用的形式收取额外费用。
 

@@ -1,6 +1,6 @@
 # 2019 年 12 月 2 日这一周，网飞有哪些活动
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of decembe-1840006093](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-decembe-1840006093)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-decembe-1840006093>
 
 你熬过了假期！你回来工作了！现在除了迷失在掺入苹果酒和饼干的迷雾中，在 2020 年的时候叫醒你，别无选择！如果你在本周的任何时候动起来，网飞会有很多乐趣在等着你。让我们开始吧。
 

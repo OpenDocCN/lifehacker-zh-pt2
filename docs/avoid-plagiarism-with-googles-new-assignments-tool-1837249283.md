@@ -1,6 +1,6 @@
 # 使用谷歌新的作业工具避免抄袭
 
-> 原文:[https://life hacker . com/avoid-piece-with-Google-new-assignments-tool-1837249283](https://lifehacker.com/avoid-plagiarism-with-googles-new-assignments-tool-1837249283)
+> 原文：<https://lifehacker.com/avoid-plagiarism-with-googles-new-assignments-tool-1837249283>
 
 今年，谷歌让老师们更容易打击作弊，也让学生们更容易确保他们不会无意中抄袭他人的作品。
 

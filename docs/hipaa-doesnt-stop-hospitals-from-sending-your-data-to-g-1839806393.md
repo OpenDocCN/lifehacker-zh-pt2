@@ -1,6 +1,6 @@
 # HIPAA 不会阻止医院将你的数据发送到谷歌
 
-> 原文:[https://life hacker . com/hipaa-donts-stop-hospitals-from-sending-your-data-to-g-1839806393](https://lifehacker.com/hipaa-doesnt-stop-hospitals-from-sending-your-data-to-g-1839806393)
+> 原文：<https://lifehacker.com/hipaa-doesnt-stop-hospitals-from-sending-your-data-to-g-1839806393>
 
 对卫生系统的任何访问——包括医院，但也包括许多医生办公室——都涉及大量数据。你可能认为你的数据只是存在于那个健康系统中，但事实上他们可以与其他公司共享，你几乎无法阻止它。
 

@@ -1,6 +1,6 @@
 # 教你的孩子用这些日常任务来保护自己
 
-> 原文:[https://life hacker . com/teach-your-kids-with the-every-1834051175](https://lifehacker.com/teach-your-kids-to-fend-for-themselves-with-these-every-1834051175)
+> 原文：<https://lifehacker.com/teach-your-kids-to-fend-for-themselves-with-these-every-1834051175>
 
 那是 1997 年，几天前我刚搬进宿舍。课程甚至还没有开始。我在注册时遇到了问题，因为我遗漏了一些重要的信息。我打电话给我妈妈。“妈妈，你能打电话问一下我需要做些什么来修改我的注册吗？”
 

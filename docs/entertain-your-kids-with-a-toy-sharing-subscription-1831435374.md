@@ -1,6 +1,6 @@
 # 通过玩具共享订阅来娱乐您的孩子
 
-> 原文:[https://life hacker . com/entertain-your-kids-with-a-toy-sharing-subscription-1831435374](https://lifehacker.com/entertain-your-kids-with-a-toy-sharing-subscription-1831435374)
+> 原文：<https://lifehacker.com/entertain-your-kids-with-a-toy-sharing-subscription-1831435374>
 
 我们正在进入无聊的季节。假期结束了，我们中的许多人都面临着至少几个月不太理想的天气，这意味着我们的孩子更多地呆在家里，这意味着他们很无聊。
 

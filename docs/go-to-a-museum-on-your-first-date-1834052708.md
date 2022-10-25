@@ -1,6 +1,6 @@
 # 第一次约会去博物馆
 
-> 原文:[https://life hacker . com/go-to-a-museum-on-your ' s first-date 1834052708](https://lifehacker.com/go-to-a-museum-on-your-first-date-1834052708)
+> 原文：<https://lifehacker.com/go-to-a-museum-on-your-first-date-1834052708>
 
 每个人都有去博物馆的风格。也许你是那种需要时间站在每件艺术品前，欣赏它，阅读描述，再欣赏一些，与你周围的博物馆参观者讨论你的想法和感受，后退一点，喃喃自语“嗯，是的。”
 

@@ -1,6 +1,6 @@
 # 如何强制新的 Android 自动更新
 
-> 原文:[https://life hacker . com/how-to-force-the-new-Android-auto-update-1837371752](https://lifehacker.com/how-to-force-the-new-android-auto-update-1837371752)
+> 原文：<https://lifehacker.com/how-to-force-the-new-android-auto-update-1837371752>
 
 Android Auto 的新版本终于来了——算是。上个月末，谷歌开始推出一款漂亮的新版 Android Auto，当你将设备*插入汽车时，你的设备*会提示你切换到新的外观和感觉。如果没有，你需要检查一个隐藏的设置来强制手动更新。
 

@@ -1,6 +1,6 @@
 # 分手后如何重置你的财务
 
-> 原文:[https://life hacker . com/how-to-reset-your-finance-after-breaking-1841574555](https://lifehacker.com/how-to-reset-your-finances-after-a-breakup-1841574555)
+> 原文：<https://lifehacker.com/how-to-reset-your-finances-after-a-breakup-1841574555>
 
 有什么比你和你的另一半第一次关于钱的谈话更有压力的呢？当你意识到事情并不顺利的时候。
 

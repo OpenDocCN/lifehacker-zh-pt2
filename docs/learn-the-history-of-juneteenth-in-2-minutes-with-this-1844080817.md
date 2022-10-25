@@ -1,6 +1,6 @@
 # 观看此视频，在两分钟内了解 Juneteenth 的历史
 
-> 原文:[https://life hacker . com/learn-the-history-of-June tenth-with-this-1844080817](https://lifehacker.com/learn-the-history-of-juneteenth-in-2-minutes-with-this-1844080817)
+> 原文：<https://lifehacker.com/learn-the-history-of-juneteenth-in-2-minutes-with-this-1844080817>
 
 虽然六月十日在今年的公众意识中非常突出，但它并不是一个新概念。这一天是为了纪念 T2 内战的结束和南方联盟中被奴役的 T4 黑人的解放，这一天已经庆祝了好几代。六月十一日也不是假日，而是美国的节日。越来越多的公司现在承认 6 月 14 日为法定假日，并给员工放假一天。将它宣布为联邦法定假日的努力也在进行中。
 

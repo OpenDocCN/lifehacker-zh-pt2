@@ -1,6 +1,6 @@
 # 如何流式传输 2020 年国情咨文
 
-> 原文:[https://life hacker . com/how-to-stream-the-2020-state-of-the-union-address-1841436361](https://lifehacker.com/how-to-stream-the-2020-state-of-the-union-address-1841436361)
+> 原文：<https://lifehacker.com/how-to-stream-the-2020-state-of-the-union-address-1841436361>
 
 特朗普总统将于周二晚上在国会联席会议上发表国情咨文。
 

@@ -1,6 +1,6 @@
 # 2019 年关于孩子和游戏的最佳故事
 
-> 原文:[https://life hacker . com/the-best-2019-stories-about-kids-and-gaming-1840677806](https://lifehacker.com/the-best-2019-stories-about-kids-and-gaming-1840677806)
+> 原文：<https://lifehacker.com/the-best-2019-stories-about-kids-and-gaming-1840677806>
 
 谈到孩子和游戏，有很多可以谈论的。我们希望鼓励他们热爱游戏，因为我们也热爱游戏。但我们不想在他们准备好之前向他们介绍一些东西，我们希望利用游戏可以提供的联系体验——我们希望记住，并非所有的游戏都必须是电子的。
 

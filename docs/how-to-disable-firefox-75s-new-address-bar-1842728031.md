@@ -1,6 +1,6 @@
 # 如何禁用火狐 75 的新地址栏
 
-> 原文:[https://life hacker . com/how-to-disable-Firefox-75s-new-address-bar-1842728031](https://lifehacker.com/how-to-disable-firefox-75s-new-address-bar-1842728031)
+> 原文：<https://lifehacker.com/how-to-disable-firefox-75s-new-address-bar-1842728031>
 
 对于那些今天已经更新了 Firefox 的人，以及那些还没有更新的人——通过**汉堡图标>帮助>关于 Firefox**——知道今天发布的 Firefox 75 给浏览器的地址栏带来了一些有趣的变化。火狐现在每当你点击地址栏时，它就会自动打开，你可能喜欢也可能不喜欢。
 

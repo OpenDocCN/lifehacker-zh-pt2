@@ -1,6 +1,6 @@
 # 总是把这些便宜的装饰品放在你的冰箱里
 
-> 原文:[https://life hacker . com/always-keep-these-cheese-1836453833](https://lifehacker.com/always-keep-these-cheap-garnishes-in-your-fridge-1836453833)
+> 原文：<https://lifehacker.com/always-keep-these-cheap-garnishes-in-your-fridge-1836453833>
 
 我不反对难看的食物。其实有些丑的食物才是最美味的。但是，如果你是在吃大麻、参加晚宴聚会或分享照片，有时把东西做得稍微漂亮一点(顺便提一下，更美味)会很好，最好的装饰品是那些可以持续几周而不会变坏、有多种用途、并且不会对你的钱包要求太多的装饰品。
 

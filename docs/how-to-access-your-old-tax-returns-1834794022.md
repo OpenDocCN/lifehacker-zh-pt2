@@ -1,6 +1,6 @@
 # 如何获取旧的纳税申报表
 
-> 原文:[https://life hacker . com/how-to-access-your-old-tax-returns-1834794022](https://lifehacker.com/how-to-access-your-old-tax-returns-1834794022)
+> 原文：<https://lifehacker.com/how-to-access-your-old-tax-returns-1834794022>
 
 旧的纳税申报单应该保留多长时间还有待讨论，但一个普遍的不便之处仍然存在:当你需要某个纳税年度的文件时，你可能会丢掉、丢失或无法访问。
 

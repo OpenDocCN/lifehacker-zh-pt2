@@ -1,6 +1,6 @@
 # 如何修复 Pokemon Go 在部分安卓手机上的最新帧率故障
 
-> 原文:[https://life hacker . com/how-to-fix-pokemon-gos-latest-frame-rate-glitch-on-some-1837668255](https://lifehacker.com/how-to-fix-pokemon-gos-latest-frame-rate-glitch-on-some-1837668255)
+> 原文：<https://lifehacker.com/how-to-fix-pokemon-gos-latest-frame-rate-glitch-on-some-1837668255>
 
 根据大量 Reddit 帖子和 Twitter 帖子，最近的 Pokemon Go 更新(版本 0.151.0)据报道引入了一个影响高刷新率手机的错误。根据你的喜好，这可能会导致你的口袋妖怪狩猎体验质量明显下降。
 

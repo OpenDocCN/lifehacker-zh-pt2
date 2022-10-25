@@ -1,6 +1,6 @@
 # 马上安装苹果新的 iOS 13 和 Catalina 更新
 
-> 原文:[https://life hacker . com/install-apple-new-IOs-and-MAC OS-catalina-updates-right-1839096126](https://lifehacker.com/install-apples-new-ios-and-macos-catalina-updates-right-1839096126)
+> 原文：<https://lifehacker.com/install-apples-new-ios-and-macos-catalina-updates-right-1839096126>
 
 苹果今天发布了 iOS 13 和 macOS Catalina 的新更新。如果你不喜欢那些阻止你做你想做的事情的错误或其他问题，比如完成 macOS Catalina 安装而不出错，你会想尽快更新你的 iPhone 和/或 Mac。
 

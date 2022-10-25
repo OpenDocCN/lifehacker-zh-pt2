@@ -1,6 +1,6 @@
 # 如果你不报税，如何获得儿童冠状病毒救济金
 
-> 原文:[https://life hacker . com/how-to-get-coronavirus-relief-payments-for-kids-if-you-1842755431](https://lifehacker.com/how-to-get-coronavirus-relief-payments-for-kids-if-you-1842755431)
+> 原文：<https://lifehacker.com/how-to-get-coronavirus-relief-payments-for-kids-if-you-1842755431>
 
 耐心等待政府给你的 [冠状病毒救济金](https://lifehacker.com/all-your-coronavirus-relief-check-questions-answered-1842526582) ？即使你知道付款将很快发出，你可能仍然会对如何获得你的钱有疑问——特别是如果你通常不报税，特别是如果你通常不报税，但你家里有孩子。如果你是一个 16 岁或 16 岁以下孩子的监护人，那么在这个动荡时期，每个孩子 500 美元的费用足以支付照顾他们的费用。
 

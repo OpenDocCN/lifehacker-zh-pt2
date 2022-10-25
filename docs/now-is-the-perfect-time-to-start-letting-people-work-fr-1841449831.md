@@ -1,6 +1,6 @@
 # 现在是让人们在家工作的最佳时机
 
-> 原文:[https://gizmodo . com/now-is-the-perfect-time-to-start-let-people-work-fr-1841449831](https://gizmodo.com/now-is-the-perfect-time-to-start-letting-people-work-fr-1841449831)
+> 原文：<https://gizmodo.com/now-is-the-perfect-time-to-start-letting-people-work-fr-1841449831>
 
 虽然在家工作对一些人来说是一种奢侈，但对另一些人来说却是必须的。全球目前正在见证其“最大规模的在家工作实验”，正如彭博所说的，由于武汉冠状病毒的快速传播，武汉 T5 比 2002-03 年非典爆发时杀死的人还多。中国各地的许多企业正迫使员工呆在家里，以保护他们的健康，防止病毒传播。对于习惯于面对面集思广益会议的团队来说，这可能是一个挑战，但远程工作有可能通过不仅仅是遏制武汉病毒来保护公众健康。
 

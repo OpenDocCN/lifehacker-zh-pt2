@@ -1,6 +1,6 @@
 # 问咸味女服务员:多少免费啤酒样品才算多？
 
-> 原文:[https://the take out . com/how-much-free-beer-samples-is-too-many-1835098591](https://thetakeout.com/how-many-free-beer-samples-is-too-many-1835098591)
+> 原文：<https://thetakeout.com/how-many-free-beer-samples-is-too-many-1835098591>
 
 > 嘿，咸味儿，我经常去一家精酿啤酒吧，那里提供免费的一盎司左右的样品，人们可以在点满满一杯之前尝试一下。我很果断，但有时我会在点菜前先尝一口啤酒，尤其是如果我不确定我会喜欢哪种口味。但是我看到有些人在订购前会要求两个、三个甚至一次四个样品。调酒师非常好，非常有耐心，似乎从不介意，但我认为这是过度的想法是错的吗？我觉得你在做决定前先要一个样本。台词是什么？
 > 

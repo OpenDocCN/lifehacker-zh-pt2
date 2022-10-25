@@ -1,6 +1,6 @@
 # 对孩子来说最好的非食物“款待”
 
-> 原文:[https://life hacker . com/the-best-non-food-treats-for-kids-1841066631](https://lifehacker.com/the-best-non-food-treats-for-kids-1841066631)
+> 原文：<https://lifehacker.com/the-best-non-food-treats-for-kids-1841066631>
 
 每个人都喜欢偶尔吃点小点心。但是我最近了解到一个令人震惊的事实:并不是所有的孩子都喜欢甜食。此外(这一点没那么令人震惊)不是所有的父母都希望他们的孩子定期吃糖果或其他垃圾食品。归根结底，教育我们的孩子“零食”并不总是消费品，这是个好主意。
 

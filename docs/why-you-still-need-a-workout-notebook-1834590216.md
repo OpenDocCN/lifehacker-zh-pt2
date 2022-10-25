@@ -1,6 +1,6 @@
 # 为什么你仍然需要一个锻炼笔记本
 
-> 原文:[https://life hacker . com/why-you-still-need-a-workout-notebook-1834590216](https://lifehacker.com/why-you-still-need-a-workout-notebook-1834590216)
+> 原文：<https://lifehacker.com/why-you-still-need-a-workout-notebook-1834590216>
 
 使用锻炼应用足够长的时间，你会意识到你不能相信任何一个。有时它们会失效，或者你在跑步的间隙忘记了密码，或者你的手机没电了，带走了你的数据。即使一切顺利，应用程序也不能总是跟踪你应该跟踪的指标。
 

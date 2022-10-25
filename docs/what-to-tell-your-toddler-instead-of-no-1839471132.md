@@ -1,6 +1,6 @@
 # 除了说“不”,还应该告诉你的孩子什么
 
-> 原文:[https://life hacker . com/what-to-tell-your ' s-doll-of-no-1839471132](https://lifehacker.com/what-to-tell-your-toddler-instead-of-no-1839471132)
+> 原文：<https://lifehacker.com/what-to-tell-your-toddler-instead-of-no-1839471132>
 
 如果你有一个蹒跚学步的孩子，你可能会说很多“不”字。它伴随着照顾一个不断做不安全的事情，同时也不断重复提出不合理要求的人的领域。我并不主张我们永远不要对我们的孩子说“不”，学步儿童的养育经常需要一些大的“不”。但是，当他们要求我们知道是*不*的东西时，我们可以尝试另一种策略，以避免随之而来的典型崩溃。
 

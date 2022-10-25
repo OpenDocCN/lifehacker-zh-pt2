@@ -1,6 +1,6 @@
 # 当世界分崩离析时，如何入睡
 
-> 原文:[https://life hacker . com/how-to-sleep-when-the-world ' s-taking-apart-1842712221](https://lifehacker.com/how-to-sleep-when-the-world-is-falling-apart-1842712221)
+> 原文：<https://lifehacker.com/how-to-sleep-when-the-world-is-falling-apart-1842712221>
 
 由于担心保护我们自己和我们所爱的人的安全，以及经济崩溃的连锁反应，我们大多数人都难以入睡。我们求助于档案馆，寻找一些在无休止的担忧中拯救你睡眠的最佳技巧。以下是我们的一些发现:
 

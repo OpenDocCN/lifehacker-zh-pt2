@@ -1,6 +1,6 @@
 # 消除“零时差”来更接近你的目标
 
-> 原文:[https://life hacker . com/eliminate-zero-days-to-get-closer-your-goals-1831845200](https://lifehacker.com/eliminate-zero-days-to-get-closer-to-your-goals-1831845200)
+> 原文：<https://lifehacker.com/eliminate-zero-days-to-get-closer-to-your-goals-1831845200>
 
 很难每一天都让人惊喜。尤其是如果你今年一开始就有远大的目标，如果你似乎跟不上，你可能会气馁。与其放弃，不如尝试“没有零天”的宽恕哲学
 

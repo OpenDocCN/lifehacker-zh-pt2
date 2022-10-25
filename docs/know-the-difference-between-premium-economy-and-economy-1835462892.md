@@ -1,6 +1,6 @@
 # 知道“高级经济”和“超级经济”的区别
 
-> 原文:[https://life hacker . com/know-the-difference of-premium-economy-1835462892](https://lifehacker.com/know-the-difference-between-premium-economy-and-economy-1835462892)
+> 原文：<https://lifehacker.com/know-the-difference-between-premium-economy-and-economy-1835462892>
 
 如果你不是经常乘坐飞机的人，飞机上的座位选择会让你很困惑。
 

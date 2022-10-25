@@ -1,6 +1,6 @@
 # 如何在谷歌删除之前保存你的 Jump VR 内容
 
-> 原文:[https://life hacker . com/how-to-save-your-jump-VR-content-before-Google-deletes-1834922600](https://lifehacker.com/how-to-save-your-jump-vr-content-before-google-deletes-1834922600)
+> 原文：<https://lifehacker.com/how-to-save-your-jump-vr-content-before-google-deletes-1834922600>
 
 谷歌的 giving [又一项服务被砍掉](https://lifehacker.com/how-to-track-every-google-service-and-app-thats-shut-do-1833553690?_ga=2.169668258.2008167612.1558447521-2127637903.1532515930)——这次是该公司的虚拟现实内容编辑服务 [Jump VR](https://vr.google.com/jump/) 。谷歌刚刚宣布这项服务将于 6 月 28 日关闭。
 

@@ -1,6 +1,6 @@
 # 如果你的面罩有阀门，那它就没用了一半
 
-> 原文:[https://life hacker . com/if-your-mask-has-a-valve-the-half-used-1843182019](https://lifehacker.com/if-your-mask-has-a-valve-its-half-useless-1843182019)
+> 原文：<https://lifehacker.com/if-your-mask-has-a-valve-its-half-useless-1843182019>
 
 如果你戴着一个嵌有小塑料阀的面罩，你应该知道阀会损害面罩的有效性——无论你的面罩是五金店 N95 还是名牌布料面罩，这都是事实。
 

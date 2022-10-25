@@ -1,6 +1,6 @@
 # 参加 Chipotle 的新奖励计划，赢取高达 500 美元的奖金
 
-> 原文:[https://life hacker . com/enter-to-win-up-to-500-with-chipotles-new-rewards-Prog-1833230736](https://lifehacker.com/enter-to-win-up-to-500-with-chipotles-new-rewards-prog-1833230736)
+> 原文：<https://lifehacker.com/enter-to-win-up-to-500-with-chipotles-new-rewards-prog-1833230736>
 
 吃一个小猫大小的玉米煎饼的满足感本身就很棒，但是你现在可以通过 Chipotle 的奖励计划获得额外的好处，包括实际的现金。
 

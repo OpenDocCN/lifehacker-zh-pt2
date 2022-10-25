@@ -1,6 +1,6 @@
 # 这泡菜烤猪肉会让你暖和到骨子里
 
-> 原文:[https://life hacker . com/this-泡菜-猪肉-烤肉-会暖到骨子里-1829755972](https://lifehacker.com/this-kimchi-pork-roast-will-warm-you-to-your-bones-1829755972)
+> 原文：<https://lifehacker.com/this-kimchi-pork-roast-will-warm-you-to-your-bones-1829755972>
 
 凉爽的秋季天气有许多名称。对一些人来说，这就是所谓的“戴手铐的季节”对其他人来说，这是“南瓜香料时间”对我来说，这是“感恩节恐慌时刻”，但也是“烧烤季节”——我一年中最喜欢的时间。
 

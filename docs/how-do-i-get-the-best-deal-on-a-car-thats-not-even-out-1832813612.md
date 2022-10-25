@@ -1,6 +1,6 @@
 # 我怎样才能买到一辆还没上市的车的最优惠价格？
 
-> 原文:[https://jalopnik . com/how-do-I-get-the-best-deal-on-a-car-than-even-out-1832813612](https://jalopnik.com/how-do-i-get-the-best-deal-on-a-car-thats-not-even-out-1832813612)
+> 原文：<https://jalopnik.com/how-do-i-get-the-best-deal-on-a-car-thats-not-even-out-1832813612>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。我决定挑几个问题，试着帮帮大家。本周，我们将讨论一辆尚未上市的汽车的最佳价格，购买一辆价格合理且会升值的汽车，以及购买一辆老式沃尔沃 1800 是否疯狂
 

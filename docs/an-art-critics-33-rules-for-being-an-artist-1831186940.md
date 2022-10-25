@@ -1,6 +1,6 @@
 # 艺术评论家成为艺术家的 33 条规则
 
-> 原文:[https://life hacker . com/an-art-critics-33-rules-for-be-a-artist-1831186940](https://lifehacker.com/an-art-critics-33-rules-for-being-an-artist-1831186940)
+> 原文：<https://lifehacker.com/an-art-critics-33-rules-for-being-an-artist-1831186940>
 
 众所周知，艺术就是遵循他人交给你的一系列规则。在最新的《纽约杂志》封面故事中， [艺术评论家杰里·萨尔茨列出了成为伟大艺术家](https://www.vulture.com/2018/11/jerry-saltz-how-to-be-an-artist.html) 的 33 个步骤，有趣的是他愿意给出多少*不*。他令人耳目一新的具体建议在某种程度上都是可选的。这就是为什么它们很有用，如果你想更有创造力的话。
 

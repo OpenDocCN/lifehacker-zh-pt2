@@ -1,6 +1,6 @@
 # 想要很棒的蔬菜？把它们放在肉里煮
 
-> 原文:[https://the take out . com/how-to-cook-to-vegetables-in-meat-primaver-1841809532](https://thetakeout.com/how-to-cook-vegetables-in-meat-broth-for-pasta-primaver-1841809532)
+> 原文：<https://thetakeout.com/how-to-cook-vegetables-in-meat-broth-for-pasta-primaver-1841809532>
 
 在洛杉机有一家韩国餐馆，，那里的土豆和胡萝卜炖菜是我吃过的最好吃的。蔬菜通常是猪肉 bulgogi 盘中的后一道菜，但在 Ham Hung，它们与正餐在同一个体育场进行。每次我吃它们的时候，我都会想到，这些无聊的，基本的蔬菜看起来像是属于一个饥饿的男人炖肉的，却是如此美味。它们和蛋白质一样好。
 

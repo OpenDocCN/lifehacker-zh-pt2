@@ -1,6 +1,6 @@
 # 作为有色人种如何应对微侵犯
 
-> 原文:[https://life hacker . com/how-to-response-to-micro agressions-as-a-person-of-color-1832531920](https://lifehacker.com/how-to-respond-to-microaggressions-as-a-person-of-color-1832531920)
+> 原文：<https://lifehacker.com/how-to-respond-to-microaggressions-as-a-person-of-color-1832531920>
 
 在任何第一次约会、优步骑行或任何需要会见完全陌生人的社交聚会的几分钟内，通常第一件事就是提出我的种族问题。人们喜欢猜测。
 

@@ -1,6 +1,6 @@
 # 2018 年 11 月 26 日这一周，网飞有哪些来往
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of novembe-1830078283](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-novembe-1830078283)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-novembe-1830078283>
 
 无论如何，我都不会看杰夫·罗斯和戴夫·阿特尔的《麦克风碰撞》，但是我知道《T2》和《T3》是两位“喜剧演员的喜剧演员”，很多人并不觉得他们乏味和自我放纵。所以，请随意观看这两个家伙从周二开始“烤彼此，烤观众，烤特别嘉宾”。
 

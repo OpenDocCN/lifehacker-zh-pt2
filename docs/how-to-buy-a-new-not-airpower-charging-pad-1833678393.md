@@ -1,6 +1,6 @@
 # 如何购买新的(非 AirPower)充电板
 
-> 原文:[https://life hacker . com/how-to-buy-a-new-not-air power-charging-pad-1833678393](https://lifehacker.com/how-to-buy-a-new-not-airpower-charging-pad-1833678393)
+> 原文：<https://lifehacker.com/how-to-buy-a-new-not-airpower-charging-pad-1833678393>
 
 对苹果粉丝来说，坏消息是:AirPower 已经过时了。至少，苹果公司在周末之前偷偷发布了这个小公告，以确保没有人会认为的大取消是一个骗局。
 

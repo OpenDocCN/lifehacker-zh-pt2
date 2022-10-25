@@ -1,6 +1,6 @@
 # 当你的抵押贷款期限结束时该怎么办
 
-> 原文:[https://life hacker . com/what-to-do when-your ' s mortgage-entrance-ends-1844458256](https://lifehacker.com/what-to-do-when-your-mortgage-forbearance-ends-1844458256)
+> 原文：<https://lifehacker.com/what-to-do-when-your-mortgage-forbearance-ends-1844458256>
 
 随着疫情的持续，美国人继续受到国家经济危机的影响。自三月以来，随着许多公司适应“新常态”，失业人数屡创新高
 

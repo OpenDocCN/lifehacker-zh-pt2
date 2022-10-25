@@ -1,6 +1,6 @@
 # 我是如何在我的小厨房里学会做饺子的
 
-> 原文:[https://the take out . com/recipe-tips-for-how-to-make-ravioli-1832375982](https://thetakeout.com/recipe-tips-for-how-to-make-ravioli-1832375982)
+> 原文：<https://thetakeout.com/recipe-tips-for-how-to-make-ravioli-1832375982>
 
 我的城市厨房很小，所以 prime counter real estate 只用于像烤面包机和小型食品加工机这样的日常必需品。任何看起来又大又有点多余的电器——华夫饼干机、立式搅拌机——在我家都没有位置。
 

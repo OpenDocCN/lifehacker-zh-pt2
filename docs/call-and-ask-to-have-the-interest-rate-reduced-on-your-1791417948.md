@@ -1,6 +1,6 @@
 # 降低信用卡利率的最简单方法
 
-> 原文:[https://life hacker . com/call-and-ask-on-your-1791417948](https://lifehacker.com/call-and-ask-to-have-the-interest-rate-reduced-on-your-1791417948)
+> 原文：<https://lifehacker.com/call-and-ask-to-have-the-interest-rate-reduced-on-your-1791417948>
 
 降低信用卡年利息并节省数百美元的最简单方法是什么？由*问*。做起来很简单，然而人们把钱留在桌子上——只有一半的持卡人曾经要求他们的贷款人降低利率或免除费用，尽管 84%的时间都是有效的，根据 CreditCards.com 的一项调查。 
 

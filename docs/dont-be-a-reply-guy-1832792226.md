@@ -1,6 +1,6 @@
 # 不要做一个“回复者”
 
-> 原文:[https://lifehacker.com/dont-be-a-reply-guy-1832792226](https://lifehacker.com/dont-be-a-reply-guy-1832792226)
+> 原文：<https://lifehacker.com/dont-be-a-reply-guy-1832792226>
 
 当我第一次开始在网上写作时(现在已经倒闭的 xoJane ),我的评论区和推特上的内容大多是优秀的、支持我的女性和非二进制人士。我的收件箱里偶尔会有愤怒的男人，但为一个以女性为主的网站写食物意味着我不会在网上大规模地与男人打交道，因为他们不会读我写的东西。
 

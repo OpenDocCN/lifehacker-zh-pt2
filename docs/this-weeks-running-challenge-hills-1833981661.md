@@ -1,6 +1,6 @@
 # 本周跑步挑战:丘陵
 
-> 原文:[https://life hacker . com/this-weeks-running-challenge-hills-1833981661](https://lifehacker.com/this-weeks-running-challenge-hills-1833981661)
+> 原文：<https://lifehacker.com/this-weeks-running-challenge-hills-1833981661>
 
 即使你住在多山的地方，你可能会发现自己在跑步时会避开山丘。根据运行的应用程序报告，它们会降低你的速度。他们也只是觉得很难。
 

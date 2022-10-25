@@ -1,6 +1,6 @@
 # 用调味米醋制作双组分快速泡菜
 
-> 原文:[https://life hacker . com/make-two-component-quick-pickles-with-调味饭-vi-1844408921](https://lifehacker.com/make-two-ingredient-quick-pickles-with-seasoned-rice-vi-1844408921)
+> 原文：<https://lifehacker.com/make-two-ingredient-quick-pickles-with-seasoned-rice-vi-1844408921>
 
 虽然我尊重那些渴望完全控制自己调料的人，但我也喜欢预先调味的食材带给我的快捷生活方式。不出所料，这包括 [调味米醋](https://lifehacker.com/rice-wine-rice-wine-vinegar-rice-vinegar-whats-the-1686638051) ，我最喜欢的食品柜秘密武器之一。
 

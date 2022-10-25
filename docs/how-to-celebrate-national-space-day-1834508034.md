@@ -1,6 +1,6 @@
 # 如何庆祝国家太空日
 
-> 原文:[https://life hacker . com/how-to-庆祝会-国家太空日-1834508034](https://lifehacker.com/how-to-celebrate-national-space-day-1834508034)
+> 原文：<https://lifehacker.com/how-to-celebrate-national-space-day-1834508034>
 
 今晚，走出户外，仰望天空——假设你在一个光污染少的地方——欣赏星空。因为伙计们，现在是 [国家航天日](https://nationaldaycalendar.com/national-space-day-first-friday-in-may/) 。
 

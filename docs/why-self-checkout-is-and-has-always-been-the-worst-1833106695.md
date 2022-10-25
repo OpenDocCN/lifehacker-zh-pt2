@@ -1,6 +1,6 @@
 # why self checkout is and has always been the worst 1833106695
 
-> 原文:[https://gizmodo . com/why-self-check out-is-and-always-be-the-worst-1833106695](https://gizmodo.com/why-self-checkout-is-and-has-always-been-the-worst-1833106695)
+> 原文：<https://gizmodo.com/why-self-checkout-is-and-has-always-been-the-worst-1833106695>
 
 自动化经常被描述为一种不可阻挡的前进力量，无论它是对就业的威胁，还是增加休闲或更大利润的承诺。我们被要求去想象机器人的崛起，日益机械化的生产系统，更加简化的日常生活模式。但事实是自动化技术和自动化系统经常失败。即使他们这样做了，他们仍然经常被困在我们的生活中。
 

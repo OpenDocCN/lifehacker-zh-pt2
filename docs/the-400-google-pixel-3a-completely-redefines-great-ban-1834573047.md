@@ -1,6 +1,6 @@
 # 售价 400 美元的谷歌 Pixel 3a 完全重新定义了物有所值
 
-> 原文:[https://gizmodo . com/the-400-Google-pixel-3a-completely-redefines-great-ban-1834573047](https://gizmodo.com/the-400-google-pixel-3a-completely-redefines-great-ban-1834573047)
+> 原文：<https://gizmodo.com/the-400-google-pixel-3a-completely-redefines-great-ban-1834573047>
 
 去年， [Pixel 3 向](https://gizmodo.com/google-pixel-3-review-the-other-way-to-make-a-killer-p-1829749807) 证明了使用软件来制造一款功能强大、有思想的手机是可能的，有时甚至比那些塞满了最新高端组件的竞争对手更容易使用。但对于一部起价 800 美元的手机来说，如果能有一些额外的额外功能就好了，比如反向无线充电或背面多一两个摄像头。通过 Pixel 3a，谷歌将所有漂亮的 Pixel 软件和人工智能增强功能都塞进了一部价格只有一半的手机。在这个过程中，谷歌做出了市场上最超值的手机。
 

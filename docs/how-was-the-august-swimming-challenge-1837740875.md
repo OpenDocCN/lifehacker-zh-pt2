@@ -1,6 +1,6 @@
 # 八月游泳挑战赛怎么样？
 
-> 原文:[https://life hacker . com/how-was-the-August-swimming-challenge-1837740875](https://lifehacker.com/how-was-the-august-swimming-challenge-1837740875)
+> 原文：<https://lifehacker.com/how-was-the-august-swimming-challenge-1837740875>
 
 今年八月你经常游泳吗？我自己的夏天已经够混乱的了，我承认我大部分时间都坚持在我熟悉的健身房锻炼，但我希望你们中的一部分人能利用这个机会游几圈泳，做一些泳池锻炼。
 

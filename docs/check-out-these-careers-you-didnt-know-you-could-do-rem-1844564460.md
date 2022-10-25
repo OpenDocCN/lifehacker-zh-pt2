@@ -1,6 +1,6 @@
 # 看看这些你不知道可以远程从事的职业
 
-> 原文:[https://life hacker . com/check-out-these-careers-you-not-know-you-can-do-rem-1844564460](https://lifehacker.com/check-out-these-careers-you-didnt-know-you-could-do-rem-1844564460)
+> 原文：<https://lifehacker.com/check-out-these-careers-you-didnt-know-you-could-do-rem-1844564460>
 
 几个月前，当整个疫情一级防范禁闭的事情开始的时候，很多人都在家里呆了几个星期，甚至一个月。那些有幸拥有一份可以远程工作的工作的人建立了他们认为是临时的家庭办公室。
 

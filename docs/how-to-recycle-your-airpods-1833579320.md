@@ -1,6 +1,6 @@
 # 如何回收你的 Airpods
 
-> 原文:[https://life hacker . com/how-to-recycle-your-ai rpods-1833579320](https://lifehacker.com/how-to-recycle-your-airpods-1833579320)
+> 原文：<https://lifehacker.com/how-to-recycle-your-airpods-1833579320>
 
 在一系列关于新的 [信用卡](https://twocents.lifehacker.com/the-apple-card-is-an-average-rewards-card-1833550903#_ga=2.88751133.725380737.1553520334-1166140590.1547667345) 、订阅服务以及与 [奥普拉](https://www.theroot.com/oprah-came-through-apple-s-press-event-and-crushed-the-1833558149) 有关的声明中，苹果终于推出了 AirPods 的第二次到来。
 

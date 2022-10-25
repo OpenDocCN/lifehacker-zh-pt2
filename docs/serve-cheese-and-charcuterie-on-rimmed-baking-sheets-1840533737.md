@@ -1,6 +1,6 @@
 # 将奶酪和熟食放在有边框的烤盘上
 
-> 原文:[https://life hacker . com/serve-cheese-and-charcuterie-on-rim-baking-sheets-1840533737](https://lifehacker.com/serve-cheese-and-charcuterie-on-rimmed-baking-sheets-1840533737)
+> 原文：<https://lifehacker.com/serve-cheese-and-charcuterie-on-rimmed-baking-sheets-1840533737>
 
 奶酪、熟食，甚至 [夜宵板](https://skillet.lifehacker.com/how-to-build-a-perfect-snack-board-1829690692) 都可以作为小吃、正餐或鸡尾酒会的食物。板子上的内容显然是最重要的部分，但是板子本身也能极大地影响你吃零食的体验。为了轻松享受吃零食的乐趣，拿一个有边框的烤盘。
 

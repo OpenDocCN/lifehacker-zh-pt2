@@ -1,6 +1,6 @@
 # 用芥末粉给清淡的调味品增加味道
 
-> 原文:[https://life hacker . com/spice-up-bland-conditions-with-wasabi-powder-1835241587](https://lifehacker.com/spice-up-bland-condiments-with-wasabi-powder-1835241587)
+> 原文：<https://lifehacker.com/spice-up-bland-condiments-with-wasabi-powder-1835241587>
 
 当谈到基于胡椒的辛辣“红色”热量时，我是一个懦夫，但我对芥末和辣根的清窦“绿色”热量有很高的阈值。除了在寿司上抹一点绿色酱，我还喜欢在身边放一罐这种粉末，用来蘸酱、调料和蛋黄酱。
 

@@ -1,6 +1,6 @@
 # 使用谷歌助手提醒的最佳方式
 
-> 原文:[https://life hacker . com/the-best-ways-to-use-Google-assistant-s-reminders-1838294120](https://lifehacker.com/the-best-ways-to-use-google-assistant-s-reminders-1838294120)
+> 原文：<https://lifehacker.com/the-best-ways-to-use-google-assistant-s-reminders-1838294120>
 
 不管怎样，这些数字助理有什么意义呢？当然是为了让生活更简单。特别是谷歌助手，它不仅可以帮助回答生活中的紧迫问题和控制智能设备，还可以充当你自己的个人提醒机器人。
 

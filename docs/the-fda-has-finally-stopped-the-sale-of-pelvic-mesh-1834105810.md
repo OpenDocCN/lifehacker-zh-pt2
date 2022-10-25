@@ -1,6 +1,6 @@
 # FDA 最终停止了骨盆网的销售
 
-> 原文:[https://Jezebel . com/the-FDA-已经最终停止销售骨盆网-1834105810](https://jezebel.com/the-fda-has-finally-stopped-the-sale-of-pelvic-mesh-1834105810)
+> 原文：<https://jezebel.com/the-fda-has-finally-stopped-the-sale-of-pelvic-mesh-1834105810>
 
 在多年来对阴道网片安全性的担忧和几次警告后，美国食品和药物管理局(T2)已经叫停了它的销售，这种网片经常被用来支撑可能导致脱垂的虚弱的骨盆肌肉。
 

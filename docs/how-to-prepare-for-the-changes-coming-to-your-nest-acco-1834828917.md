@@ -1,6 +1,6 @@
 # 如何为你的新账户的变化做准备
 
-> 原文:[https://life hacker . com/how-to-prepare-for-the-changes-coming-to-you-nest-acco-1834828917](https://lifehacker.com/how-to-prepare-for-the-changes-coming-to-your-nest-acco-1834828917)
+> 原文：<https://lifehacker.com/how-to-prepare-for-the-changes-coming-to-your-nest-acco-1834828917>
 
 在最近的开发者大会上，谷歌 [宣布](https://nest.com/whats-happening/#is-nest-going-away) 将重塑其 Nest 系列产品，最终导致其与 Nest 程序的合作发生一些变化。该计划最初是为了帮助 Nest 设备和经过审查的第三方应用程序和服务之间建立联系。但 8 月份就要过去了，一些 Nest 用户想知道这将如何影响他们现有的恒温器、安全摄像头以及他们多年来收集和集成的其他 Nest 品牌设备。
 

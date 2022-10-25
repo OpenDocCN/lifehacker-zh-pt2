@@ -1,6 +1,6 @@
 # “接近零”的利率如何影响你的资金
 
-> 原文:[https://life hacker . com/how-a-near-zero-interest-your money-1842365139](https://lifehacker.com/how-a-near-zero-interest-rate-affects-your-money-1842365139)
+> 原文：<https://lifehacker.com/how-a-near-zero-interest-rate-affects-your-money-1842365139>
 
 美联储周日宣布将利率降至接近零的水平，消费者利率基准将降至 0%至 0.25%之间。
 

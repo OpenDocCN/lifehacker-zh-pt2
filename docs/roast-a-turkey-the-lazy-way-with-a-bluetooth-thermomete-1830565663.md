@@ -1,6 +1,6 @@
 # 用蓝牙温度计懒洋洋地烤火鸡
 
-> 原文:[https://life hacker . com/bake-a-turkey-the-lazy-way-with-a-bluetooth-therme te-1830565663](https://lifehacker.com/roast-a-turkey-the-lazy-way-with-a-bluetooth-thermomete-1830565663)
+> 原文：<https://lifehacker.com/roast-a-turkey-the-lazy-way-with-a-bluetooth-thermomete-1830565663>
 
 想要一个真正轻松的感恩节吗？试试这个:把火鸡放进烤箱，然后看几个小时的电视。当人们开始说“你不应该检查一下火鸡吗？”把你的手机从口袋里拿出来，告诉他们确切的温度。
 

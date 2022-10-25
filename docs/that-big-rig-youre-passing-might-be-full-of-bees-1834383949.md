@@ -1,6 +1,6 @@
 # that big rig youre passing might be full of bees 1834383949
 
-> 原文:[https://jalopnik . com/that-big-rig-you-passing-may-be-full-of-bees-1834383949](https://jalopnik.com/that-big-rig-youre-passing-might-be-full-of-bees-1834383949)
+> 原文：<https://jalopnik.com/that-big-rig-youre-passing-might-be-full-of-bees-1834383949>
 
 2019 年仍有牛仔赶着牲畜穿越美国。当我们大多数人都在打盹的时候，他们正开着装满对我们国家的农业至关重要的生物的卡车驶向黑暗的田野:成千上万的蜜蜂。
 

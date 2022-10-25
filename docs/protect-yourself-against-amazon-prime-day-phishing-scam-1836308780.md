@@ -1,6 +1,6 @@
 # 保护自己免受亚马逊黄金日网络钓鱼诈骗
 
-> 原文:[https://life hacker . com/protect-yourself-against-Amazon-prime-day-phishing-scam-1836308780](https://lifehacker.com/protect-yourself-against-amazon-prime-day-phishing-scam-1836308780)
+> 原文：<https://lifehacker.com/protect-yourself-against-amazon-prime-day-phishing-scam-1836308780>
 
 伟大的亚马逊黄金日 [近在眼前](https://twocents.lifehacker.com/how-amazon-will-trick-you-into-buying-more-on-prime-day-1836291632)(7 月 15 日星期一，午夜 PT)。自然，亚马逊希望你尽可能多地放弃你的钱，但它不是唯一的一个。根据来自 [Wired](https://www.wired.com/story/amazon-prime-day-phishing-campaign/) 的报道，一个名为 16Shop 的大型网络钓鱼骗局正试图诱使粗心的消费者提供关键信息——他们的姓名、生日、信用卡信息和社会安全号码——以获得所谓的黄金日交易。
 

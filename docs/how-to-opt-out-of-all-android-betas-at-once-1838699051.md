@@ -1,6 +1,6 @@
 # 如何一次性退出所有 Android 测试版
 
-> 原文:[https://life hacker . com/how-to-opt-out-of-all-Android-beta-at-once-1838699051](https://lifehacker.com/how-to-opt-out-of-all-android-betas-at-once-1838699051)
+> 原文：<https://lifehacker.com/how-to-opt-out-of-all-android-betas-at-once-1838699051>
 
 如果你是一个超级安卓粉丝，你很可能已经选择了几个应用测试版，预先注册了几个即将推出的游戏或应用，并建立了一个你想在某个时候下载或购买的应用的庞大愿望列表。如果你准备好稍微驯服你的执念，谷歌会让你很容易地挑选出一些列表，并一次退出一堆测试版。
 

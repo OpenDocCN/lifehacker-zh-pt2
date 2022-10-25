@@ -1,6 +1,6 @@
 # 在更换手机运营商之前，请查看 OpenSignal 的移动宽带报告
 
-> 原文:[https://life hacker . com/before-changing-phone-carriers-check-open signal-s-mobi-1832021862](https://lifehacker.com/before-changing-phone-carriers-check-opensignal-s-mobi-1832021862)
+> 原文：<https://lifehacker.com/before-changing-phone-carriers-check-opensignal-s-mobi-1832021862>
 
 挑选“最好的”手机运营商从来都不是一件容易的事，因为你永远不知道你会得到什么样的服务，直到你已经被一个新的运营商(和/或手机)困住。值得庆幸的是，移动宽带行业分析师 [OpenSignal](https://opensignal.com/) 还有一些数据点可以利用——事实上，每天超过 30 亿——他们发布了一份新报告，比较了“四大”无线运营商的覆盖范围、下载和上传速度以及延迟。
 

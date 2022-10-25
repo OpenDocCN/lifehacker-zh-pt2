@@ -1,6 +1,6 @@
 # 用一罐几乎空了的花生酱来做蘸酱
 
-> 原文:[https://life hacker . com/use-a 几乎空的花生酱罐制作 dipp-1841891764](https://lifehacker.com/use-an-almost-empty-jar-of-peanut-butter-to-make-a-dipp-1841891764)
+> 原文：<https://lifehacker.com/use-an-almost-empty-jar-of-peanut-butter-to-make-a-dipp-1841891764>
 
 我男朋友有一个非常奇怪的习惯，就是在睡梦中做(和吃)花生酱和果冻三明治。起初这有点令人担忧，但我已经习惯了，特别是自从他开始为我做睡眠三明治之后。这就是说我们很快就吃完了花生酱，我最近打开我的食品储藏室发现不是一个，而是两个几乎空了的 JIF 罐子。
 

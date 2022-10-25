@@ -1,6 +1,6 @@
 # 创建一个期待的小事情的时间表
 
-> 原文:[https://life hacker . com/create-a-schedule-of-little-things-to-look-forward-1845076000](https://lifehacker.com/create-a-schedule-of-little-things-to-look-forward-1845076000)
+> 原文：<https://lifehacker.com/create-a-schedule-of-little-things-to-look-forward-1845076000>
 
 许多家庭现在需要的是混合了一些灵活性的结构——再加上一点点洒在上面的快乐。这就是促使脸书集团 的 [后代中的一员创建一个小家庭的时间表的原因。这是我们都可以轻易复制的东西。](https://www.facebook.com/groups/2018785615043946)
 

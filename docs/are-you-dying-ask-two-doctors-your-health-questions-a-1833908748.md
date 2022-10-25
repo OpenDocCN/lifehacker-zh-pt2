@@ -1,6 +1,6 @@
 # 你要死了吗？！美国东部时间下午 1 点问两位医生你的健康问题[更新:结束]
 
-> 原文:[https://life hacker . com/are-you-dye-ask-two-doctors-your-health-questions-a-1833908748](https://lifehacker.com/are-you-dying-ask-two-doctors-your-health-questions-a-1833908748)
+> 原文：<https://lifehacker.com/are-you-dying-ask-two-doctors-your-health-questions-a-1833908748>
 
 我们最终都会死，但你现在就要死了吗？问问专业人士也无妨。
 

@@ -1,6 +1,6 @@
 # 在你旅行之前，确保你的机票已经预订好了
 
-> 原文:[https://life hacker . com/1836791737](https://lifehacker.com/make-sure-your-flight-reservation-is-ticketed-before-yo-1836791737)
+> 原文：<https://lifehacker.com/make-sure-your-flight-reservation-is-ticketed-before-yo-1836791737>
 
 在你前往机场之前，一定要检查你的预订是否有实际的机票号码，否则你可能会为当天的航班支付 1200 美元。
 

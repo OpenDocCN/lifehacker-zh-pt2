@@ -1,6 +1,6 @@
 # 如何和孩子谈论学校重新开放(或不开放)
 
-> 原文:[https://life hacker . com/how-to-talk-to-kids-about-schools-restore-or-not-1844483946](https://lifehacker.com/how-to-talk-to-kids-about-schools-reopening-or-not-1844483946)
+> 原文：<https://lifehacker.com/how-to-talk-to-kids-about-schools-reopening-or-not-1844483946>
 
 不知何故，现在已经是 7 月底了，这意味着我们的一些孩子再过*周*就要回到教室了——或者不会。全国各地的学区都在宣布返校计划，要么完全面对面，要么完全在线，要么两者兼而有之。你的孩子想知道 T4 会是什么样子。所以即使你和我一样，还不知道孩子的学年会如何架构，也是时候和他们谈一谈了。
 

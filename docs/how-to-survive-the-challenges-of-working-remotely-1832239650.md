@@ -1,6 +1,6 @@
 # 如何应对远程工作的挑战
 
-> 原文:[https://life hacker . com/how-to-survive-the-challenges-of-work-remote-1832239650](https://lifehacker.com/how-to-survive-the-challenges-of-working-remotely-1832239650)
+> 原文：<https://lifehacker.com/how-to-survive-the-challenges-of-working-remotely-1832239650>
 
 当我告诉别人我在家工作时，他们经常会嫉妒。在办公室工作多年后，我明白了。但是远程工作确实有一些不好的地方。
 

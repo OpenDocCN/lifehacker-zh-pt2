@@ -1,6 +1,6 @@
 # 如何改变坏习惯，与詹姆斯清楚
 
-> 原文:[https://life hacker . com/how-to-change-bad-habits-with-James-clear-1835085987](https://lifehacker.com/how-to-change-bad-habits-with-james-clear-1835085987)
+> 原文：<https://lifehacker.com/how-to-change-bad-habits-with-james-clear-1835085987>
 
 你会听到很多关于如何改变习惯的事情——这将花费你 21 天的时间！在你能做出大的改变之前，你必须做出小的改变！奖励自己！否定自己！咬紧牙关！去做吧！
 

@@ -1,6 +1,6 @@
 # 如何充分利用 Ring 的新隐私功能
 
-> 原文:[https://life hacker . com/how-to-get-the-most-out-of-ring-new-privacy-features-1840832191](https://lifehacker.com/how-to-get-the-most-out-of-rings-new-privacy-features-1840832191)
+> 原文：<https://lifehacker.com/how-to-get-the-most-out-of-rings-new-privacy-features-1840832191>
 
 最近，似乎每隔几天就有一场围绕 [戒指的智能家庭安全](https://lifehacker.com/if-you-use-amazons-ring-doorbell-devices-change-your-w-1839721221) 产品。
 

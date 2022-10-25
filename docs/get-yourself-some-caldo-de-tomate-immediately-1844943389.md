@@ -1,6 +1,6 @@
 # 马上给你自己弄点番茄酱
 
-> 原文:[https://life hacker . com/get-yourself-some-caldo-de-to mate-immediately-1844943389](https://lifehacker.com/get-yourself-some-caldo-de-tomate-immediately-1844943389)
+> 原文：<https://lifehacker.com/get-yourself-some-caldo-de-tomate-immediately-1844943389>
 
 糟糕的是，我已经收集了我一直放在炉子 旁的 [调味料，因为家乐的 Caldo de Tomate(鸡肉风味的番茄肉汤)理应在那份清单上(用一颗子弹)。](https://lifehacker.com/12-seasonings-i-keep-by-my-stove-at-all-times-1844313629)
 

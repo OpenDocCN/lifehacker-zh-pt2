@@ -1,6 +1,6 @@
 # 如何使用 Google Home 应用程序创建情调照明
 
-> 原文:[https://life hacker . com/how-to-create-mood-lighting-with-the-Google-home-app-1832934652](https://lifehacker.com/how-to-create-mood-lighting-with-the-google-home-app-1832934652)
+> 原文：<https://lifehacker.com/how-to-create-mood-lighting-with-the-google-home-app-1832934652>
 
 谷歌一直在缓慢但稳步地将谷歌 Home 应用程序转变为一个集中的控制中心。如果你最近没有打开这个应用，你可能没有注意到 [的新功能和设置](https://www.blog.google/products/home/new-home-app/) 。这些新功能中最近的一项是在 Google Home 应用程序中原生改变智能家居灯泡颜色的能力——尽管该应用程序有亮度调节设置和其他智能灯光功能，但这一点显然没有。
 

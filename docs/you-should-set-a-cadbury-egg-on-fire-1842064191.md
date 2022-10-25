@@ -1,6 +1,6 @@
 # 你应该放一个吉百利鸡蛋在火上
 
-> 原文:[https://life hacker . com/you-should-set-a-Cadbury-egg-on-fire-1842064191](https://lifehacker.com/you-should-set-a-cadbury-egg-on-fire-1842064191)
+> 原文：<https://lifehacker.com/you-should-set-a-cadbury-egg-on-fire-1842064191>
 
 复活节糖果是最好的糖果。没有其他糖果有这个范围！复活节糖果不仅包含巧克力和水果口味的糖果，你也不能否认蛋形糖果客观上是有趣和美味的。(里斯的鸡蛋花生酱和巧克力的比例最好；树和心可以咬我的屁股。南瓜很好。)
 

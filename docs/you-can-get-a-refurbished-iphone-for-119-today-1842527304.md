@@ -1,6 +1,6 @@
 # 今天你可以花 119 美元买到一部翻新的 iPhone
 
-> 原文:[https://life hacker . com/you-can-get-a-refined-iphone-for-119-today-1842527304](https://lifehacker.com/you-can-get-a-refurbished-iphone-for-119-today-1842527304)
+> 原文：<https://lifehacker.com/you-can-get-a-refurbished-iphone-for-119-today-1842527304>
 
 在线经销商 Woot 倾向于保持翻新苹果设备的大量销售，但今天在翻新 iPhone 7、8、XR、SX 和 XS Max 设备上的交易可能是你在一段时间内看到的最好的交易之一。几乎所有可用的设备都在打折，比你从苹果的翻新商店购买便宜数百美元，也比你购买全新型号的便宜得多。销售将于今天太平洋时间晚上 10 点/美国东部时间凌晨 3 点结束。
 

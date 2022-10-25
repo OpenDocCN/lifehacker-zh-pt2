@@ -1,6 +1,6 @@
 # 卸载这些窥探你的 iPhone 或 Android 的 VPN 和广告拦截应用
 
-> 原文:[https://life hacker . com/uninstall-these-VPN-and-ad-blocking-apps-the-spied-on-1842274746](https://lifehacker.com/uninstall-these-vpn-and-ad-blocking-apps-that-spied-on-1842274746)
+> 原文：<https://lifehacker.com/uninstall-these-vpn-and-ad-blocking-apps-that-spied-on-1842274746>
 
 最近的一项 [Buzzfeed 调查](https://www.buzzfeednews.com/article/craigsilverman/vpn-and-ad-blocking-apps-sensor-tower) 发现，几个流行的 Android 和 iOS VPN 和广告拦截应用程序秘密收集用户数据，并将其发送到 Sensor Tower，这是一个为应用程序开发者提供的跨平台数据分析服务。窥探应用包括:
 

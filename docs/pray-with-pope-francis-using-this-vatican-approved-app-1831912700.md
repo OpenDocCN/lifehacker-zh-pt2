@@ -1,6 +1,6 @@
 # 使用这款梵蒂冈认可的应用程序与教皇弗朗西斯一起祈祷
 
-> 原文:[https://life hacker . com/pray-with-pope-Francis-using-this-Vatican-app-1831912700](https://lifehacker.com/pray-with-pope-francis-using-this-vatican-approved-app-1831912700)
+> 原文：<https://lifehacker.com/pray-with-pope-francis-using-this-vatican-approved-app-1831912700>
 
 如果你一直想和教皇一起祈祷，现在有一个应用程序可以实现这一点。
 

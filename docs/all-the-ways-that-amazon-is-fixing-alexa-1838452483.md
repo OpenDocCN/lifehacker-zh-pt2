@@ -1,6 +1,6 @@
 # 亚马逊修复 Alexa 的所有方法
 
-> 原文:[https://gizmodo . com/all-the-way-the-Amazon-is-fixing-Alexa-1838452483](https://gizmodo.com/all-the-ways-that-amazon-is-fixing-alexa-1838452483)
+> 原文：<https://gizmodo.com/all-the-ways-that-amazon-is-fixing-alexa-1838452483>
 
 亚马逊今天在西雅图的一个大型活动上宣布了一系列新产品。其中最主要的是 Alexa 的一系列新功能和改进功能。其中一些相当不错。其中之一涉及塞缪尔·L·杰克逊。
 

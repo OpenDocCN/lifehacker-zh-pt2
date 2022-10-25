@@ -1,6 +1,6 @@
 # 播客《反叛的脚步》中的最佳政治行动建议
 
-> 原文:[https://life hacker . com/the-best-political-action-tips-from-the-podcast-rebel-s-1830239367](https://lifehacker.com/the-best-political-action-tips-from-the-podcast-rebel-s-1830239367)
+> 原文：<https://lifehacker.com/the-best-political-action-tips-from-the-podcast-rebel-s-1830239367>
 
 你投票了。太好了！这几乎是参与民主的基本水平！这可能是你仍然感到焦虑和相对无力的原因。你下一步做什么？你如何更多地参与政治，尤其是在你没有很多时间或金钱的情况下？
 

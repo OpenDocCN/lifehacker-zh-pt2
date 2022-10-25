@@ -1,6 +1,6 @@
 # 如何摆脱与孩子的意志之战
 
-> 原文:[https://life hacker . com/how-to-get-out-of-battle-of-wills-your-kid-1833890480](https://lifehacker.com/how-to-get-out-of-a-battle-of-wills-with-your-kid-1833890480)
+> 原文：<https://lifehacker.com/how-to-get-out-of-a-battle-of-wills-with-your-kid-1833890480>
 
 时不时地，我感觉到它发生了。我觉得自己被卷入了一场与八岁儿子的争论，争论的焦点是最简单的事情。也许是某一天需要的外套类型，或者某个玩具应该存放在哪里。因为他和我非常相似(姑且称我们为*顽强*)，我们都有固执己见的倾向。
 

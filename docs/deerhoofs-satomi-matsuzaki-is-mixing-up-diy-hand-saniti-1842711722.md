@@ -1,6 +1,6 @@
 # 鹿蹄公司的松崎聪美正在混合 DIY 洗手液
 
-> 原文:[https://Jezebel . com/deer hoofs-satomi-matsuzaki-is-mixing-up-DIY-hand-saniti-1842711722](https://jezebel.com/deerhoofs-satomi-matsuzaki-is-mixing-up-diy-hand-saniti-1842711722)
+> 原文：<https://jezebel.com/deerhoofs-satomi-matsuzaki-is-mixing-up-diy-hand-saniti-1842711722>
 
 《Down Time》是一个 Jezebel 系列，在这个系列中，我们询问我们最喜爱的艺术家和作家，在这个孤立和不确定的时刻，他们会转向什么艺术、书籍和活动。鹿蹄乐队的主唱 Satomi Matsuzaki 描述了她如何提高自己的日常生活和生存技能，包括制作自己的洗手液。
 

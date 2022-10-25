@@ -1,6 +1,6 @@
 # 给你的西式早餐来一份韩国风味的辣酱煎培根
 
-> 原文:[https://the take out . com/recipe-Korean-gochujang-bacon-1834095013](https://thetakeout.com/recipe-korean-gochujang-bacon-1834095013)
+> 原文：<https://thetakeout.com/recipe-korean-gochujang-bacon-1834095013>
 
 在郊区买房子时，我担心的是我外出就餐的雄心会变成连锁家庭餐馆 。令我欣慰的是，在我新家以西 4 英里的地方，是芝加哥最热闹的韩国餐馆之一。在大多数周末，如果我们不去手抓面店，那就是卖辣豆腐炖肉的妈妈-n-pop，或者是 200 人专做的 samgyupsal，炭火烤五花肉。
 

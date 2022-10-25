@@ -1,6 +1,6 @@
 # 更新您的旧 iOS 设备以避免这些错误
 
-> 原文:[https://life hacker . com/update-your-older-IOs-devices-to-avoid-these-bugs-1836634908](https://lifehacker.com/update-your-older-ios-devices-to-avoid-these-bugs-1836634908)
+> 原文：<https://lifehacker.com/update-your-older-ios-devices-to-avoid-these-bugs-1836634908>
 
 保持你的 iPhone 和 iPad 的软件更新至至日期是很重要的——即使你仍然使用的旧设备不符合即将到来的 [iOS/iPadOS 13](https://lifehacker.com/how-to-enroll-in-the-ios-13-macos-catalina-and-ipados-1835814672) 的条件。事实上，有时是苹果硬件产品线中的老款手机和平板电脑看到了最关键的更新。
 

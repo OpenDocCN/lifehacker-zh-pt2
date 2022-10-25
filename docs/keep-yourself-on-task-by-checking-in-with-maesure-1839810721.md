@@ -1,6 +1,6 @@
 # 通过有限度的检查来保持自己的工作状态
 
-> 原文:[https://life hacker . com/keep-yourself-on-check-in-with-Mae sure-1839810721](https://lifehacker.com/keep-yourself-on-task-by-checking-in-with-maesure-1839810721)
+> 原文：<https://lifehacker.com/keep-yourself-on-task-by-checking-in-with-maesure-1839810721>
 
 [maesture](https://maesure.com/)是一款免费的、基于网络的微型时间追踪器。每十分钟，Maesure 问你在做什么，你告诉它。这是像 [RescueTime](https://www.rescuetime.com/) 这样复杂的时间追踪器的一个简单的替代品。但我喜欢它作为一种保持专注的方式。
 

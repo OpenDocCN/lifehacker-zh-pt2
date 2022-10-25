@@ -1,6 +1,6 @@
 # 如何阻止 GrubHub 扼杀你最喜欢的餐馆
 
-> 原文:[https://life hacker . com/how-to-stop-grubhub-from-stiff ing-your-favorite-restaur-1837075025](https://lifehacker.com/how-to-stop-grubhub-from-stiffing-your-favorite-restaur-1837075025)
+> 原文：<https://lifehacker.com/how-to-stop-grubhub-from-stiffing-your-favorite-restaur-1837075025>
 
 一般来说，你在 Yelp 上找到的餐馆电话号码是这个实体的真实电话号码。但是也有一种拨错餐馆号码的方法，它通过 Grubhub 连接你，并允许该公司为你可能点的任何东西收取介绍费。
 

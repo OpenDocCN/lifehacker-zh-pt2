@@ -1,6 +1,6 @@
 # 用“请勿触摸”的标志保护你的宝宝免受陌生人细菌的侵害
 
-> 原文:[https://life hacker . com/protect-your-baby with-a-no-touch-1840898473](https://lifehacker.com/protect-your-baby-from-strangers-germs-with-a-no-touch-1840898473)
+> 原文：<https://lifehacker.com/protect-your-baby-from-strangers-germs-with-a-no-touch-1840898473>
 
 当一个人看到一个全新的人时会发生这样的事情。他们的手，就在他们完全控制之前的瞬间，变成了巨大的磁铁，直接拉起，带着触摸婴儿的原始需求。忍受几个月的随机摩擦你怀孕的肚子已经够糟了；现在全世界都认为触摸你的婴儿是好的和公平的。他们不只是稍微拉一下被遮住的脚趾。不，他们直接攻击脸和手，以确保他们身上的任何细菌都能最有效地通过。
 

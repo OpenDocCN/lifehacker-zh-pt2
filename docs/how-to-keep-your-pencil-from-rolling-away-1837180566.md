@@ -1,6 +1,6 @@
 # 如何让你的铅笔不滚落
 
-> 原文:[https://life hacker . com/how-to-keep your pencil-from-rolling-away-1837180566](https://lifehacker.com/how-to-keep-your-pencil-from-rolling-away-1837180566)
+> 原文：<https://lifehacker.com/how-to-keep-your-pencil-from-rolling-away-1837180566>
 
 如果你了解我，你就会知道 [我讨厌事情滚远](https://lifehacker.com/how-to-keep-your-egg-from-rolling-away-1835877930) 。滚走的东西让我慢下来，*和*它们迫使我拾起它们。不方便，我习惯了安逸的生活。
 

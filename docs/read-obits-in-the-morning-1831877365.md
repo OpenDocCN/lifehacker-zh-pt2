@@ -1,6 +1,6 @@
 # 早上读讣告
 
-> 原文:[https://lifehacker.com/read-obits-in-the-morning-1831877365](https://lifehacker.com/read-obits-in-the-morning-1831877365)
+> 原文：<https://lifehacker.com/read-obits-in-the-morning-1831877365>
 
 Lifehacker 的读者喜欢好的待办事项列表。我们以目标为导向，我们喜欢感受一种的成就感。
 

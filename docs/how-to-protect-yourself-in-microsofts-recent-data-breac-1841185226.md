@@ -1,6 +1,6 @@
 # 如何在微软最近的数据泄露事件中保护自己
 
-> 原文:[https://life hacker . com/how-to-protect-yoursely-in-Microsoft-recent-data-breac-1841185226](https://lifehacker.com/how-to-protect-yourself-in-microsofts-recent-data-breac-1841185226)
+> 原文：<https://lifehacker.com/how-to-protect-yourself-in-microsofts-recent-data-breac-1841185226>
 
 你可能已经看过一些看起来很吓人的头条新闻，关于 2.5 亿微软用户 在最近的一次数据泄露中受到威胁。虽然这些数字是准确的，但它们并不能说明全部——T4 并不像听起来那么危险。让我们快速回顾一下违规的细节，以及您可以帮助保护您的数据免遭进一步滥用的方法。
 

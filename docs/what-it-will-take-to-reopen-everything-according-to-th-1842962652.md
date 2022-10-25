@@ -1,6 +1,6 @@
 # what it will take to reopen everything according to th 1842962652
 
-> 原文:[https://life hacker . com/what-it-will-take-to-reopen-everything-by-th-1842962652](https://lifehacker.com/what-it-will-take-to-reopen-everything-according-to-th-1842962652)
+> 原文：<https://lifehacker.com/what-it-will-take-to-reopen-everything-according-to-th-1842962652>
 
 同样，我的小女儿一整年都在期待圣诞节，我们所有人都在期待“事情重新开始”。重新开放与其说是一个计划，不如说是一个愿望，因为我们很可能会面临数月的调整限制。我们只想一切恢复正常，对吗？嗯，世界卫生组织已经 [列出了放宽限制](https://twitter.com/WHO/status/1249722217644113923) 的六个先决条件。让我们来看看它们是什么。
 

@@ -1,6 +1,6 @@
 # 如何让一包酵母保鲜
 
-> 原文:[https://life hacker . com/how-to-make-a-single-packet-of-yeast-last-1842923653](https://lifehacker.com/how-to-make-a-single-packet-of-yeast-last-1842923653)
+> 原文：<https://lifehacker.com/how-to-make-a-single-packet-of-yeast-last-1842923653>
 
 被困在家里激发了我们许多人尝试烘焙。结果，现在有 [酵母短缺](https://slate.com/business/2020/04/yeast-shortage-supermarkets-coronavirus.html) 的广泛报道，因为疫情毁掉了一切美好而纯粹的东西。如果你是橱柜后面还有几包酵母的幸运儿之一，这里有一个简单的方法来充分利用有限的供应。
 

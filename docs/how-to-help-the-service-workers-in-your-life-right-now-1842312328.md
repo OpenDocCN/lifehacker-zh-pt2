@@ -1,6 +1,6 @@
 # 现在如何帮助你生活中的服务人员
 
-> 原文:[https://life hacker . com/how-to-help-the-service-workers-in-your life-right-now-1842312328](https://lifehacker.com/how-to-help-the-service-workers-in-your-life-right-now-1842312328)
+> 原文：<https://lifehacker.com/how-to-help-the-service-workers-in-your-life-right-now-1842312328>
 
 随着越来越多的社区关闭非必要的服务，随着越来越多的人开始自我隔离，许多工人将被迫呆在家里，没有工资。如果你是可以在家工作的幸运儿之一(或者你有带薪休假)，而且你还能请得起清洁工或遛狗的人，那就继续付钱给他们。
 

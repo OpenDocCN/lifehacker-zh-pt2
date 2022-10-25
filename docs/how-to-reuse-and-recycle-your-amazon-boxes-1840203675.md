@@ -1,6 +1,6 @@
 # 如何重复使用和回收你的亚马逊盒子
 
-> 原文:[https://life hacker . com/how-to-reuse-and-recycle-your-Amazon-box-1840203675](https://lifehacker.com/how-to-reuse-and-recycle-your-amazon-boxes-1840203675)
+> 原文：<https://lifehacker.com/how-to-reuse-and-recycle-your-amazon-boxes-1840203675>
 
 本周，[《the Verge》](https://www.theverge.com/2019/12/2/20986298/cyber-monday-black-friday-amazon-effect-recycling-cardboard-shopping)报道了亚马逊纸箱在各地回收设施的大规模冲击——也就是众所周知的“亚马逊效应”
 

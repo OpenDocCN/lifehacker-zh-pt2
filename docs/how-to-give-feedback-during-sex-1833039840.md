@@ -1,6 +1,6 @@
 # how to give feedback during sex 1833039840
 
-> 原文:[https://life hacker . com/how-to-give-feedback-in-sex-1833039840](https://lifehacker.com/how-to-give-feedback-during-sex-1833039840)
+> 原文：<https://lifehacker.com/how-to-give-feedback-during-sex-1833039840>
 
 当我提出向我的性治疗客户提供性反馈的想法时，我通常会遇到强烈的白眼或不高兴的叹息。大多数人对这个话题感到不舒服。我听到这样的回答，“难道我的伴侣不应该知道该做什么吗？”或者“他们不可能认为我喜欢那个”
 

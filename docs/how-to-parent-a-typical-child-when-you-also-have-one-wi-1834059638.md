@@ -1,6 +1,6 @@
 # 当你也有一个残疾孩子时，如何养育一个典型的孩子
 
-> 原文:[https://life hacker . com/how-to-parent-a-typical-child-when you-has-one-wi-1834059638](https://lifehacker.com/how-to-parent-a-typical-child-when-you-also-have-one-wi-1834059638)
+> 原文：<https://lifehacker.com/how-to-parent-a-typical-child-when-you-also-have-one-wi-1834059638>
 
 高中时，我经常出差参加各种会议——去纽约市、堪萨斯市、俄亥俄州和华盛顿特区。我想我的父母允许我去是因为他们看到了这些旅行对我的益处。但是几年前，我发现事实并非如此。
 

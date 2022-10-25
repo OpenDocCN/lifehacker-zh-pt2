@@ -1,6 +1,6 @@
 # 如何在“给予星期二”让你的捐款翻倍
 
-> 原文:[https://life hacker . com/how-to-double your ' s contributions-on-giving-Tuesday-1840170198](https://lifehacker.com/how-to-double-your-donations-on-giving-tuesday-1840170198)
+> 原文：<https://lifehacker.com/how-to-double-your-donations-on-giving-tuesday-1840170198>
 
 今天是星期二！这一天，我们都庆祝慈善，而不是这个周末的购物狂欢，通过向与我们的世界观一致的团体和组织捐款。在这一天，你可以让你的钱比平时花得更多，从你支持的组织中获得最大金额的现金。
 

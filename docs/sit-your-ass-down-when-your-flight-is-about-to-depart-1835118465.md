@@ -1,6 +1,6 @@
 # 当你的航班就要起飞的时候，你给我坐下，你这个该死的家伙
 
-> 原文:[https://jalopnik . com/sit-your-ass-down-when your ' s flight-to-away-1835118465](https://jalopnik.com/sit-your-ass-down-when-your-flight-is-about-to-depart-1835118465)
+> 原文：<https://jalopnik.com/sit-your-ass-down-when-your-flight-is-about-to-depart-1835118465>
 
 你们是血肉之躯的悲剧。你真是个白痴。你为人性找的可怕的借口。当你的飞机要起飞的时候，请坐下。
 

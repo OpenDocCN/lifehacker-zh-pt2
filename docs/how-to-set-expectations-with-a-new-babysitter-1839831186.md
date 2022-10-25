@@ -1,6 +1,6 @@
 # 如何设定对新保姆的期望
 
-> 原文:[https://life hacker . com/how-to-set-expectations-with-a-new-保姆-1839831186](https://lifehacker.com/how-to-set-expectations-with-a-new-babysitter-1839831186)
+> 原文：<https://lifehacker.com/how-to-set-expectations-with-a-new-babysitter-1839831186>
 
 和一个新保姆开始一段关系可能有点伤脑筋。你希望你会喜欢他们，你的孩子也会喜欢他们，这种感觉是相互的。你希望这是一段美好友谊的开始，所以你最不想做的事情就是在友谊开始前就制定法律。但是你必须。
 

@@ -1,6 +1,6 @@
 # 如何找到谷歌隐藏的胡里节彩色涂鸦
 
-> 原文:[https://life hacker . com/how-to-find-Google-hidden-holi-color-doodle-1842214733](https://lifehacker.com/how-to-find-googles-hidden-holi-color-doodle-1842214733)
+> 原文：<https://lifehacker.com/how-to-find-googles-hidden-holi-color-doodle-1842214733>
 
 谷歌用丰富多彩的隐藏功能来庆祝印度节日胡里节。胡里节庆祝从 T4 国际米兰到春天的转变。这一天有许多传统活动和仪式来庆祝，但最具代表性的是大群人开玩笑地互相投掷彩色粉末和颜料。
 

@@ -1,6 +1,6 @@
 # 寻找最好的弗兰肯斯坦糖果组合
 
-> 原文:[https://the take out . com/in-search-of-the-best-Frankenstein-d-candy-combos-1829868664](https://thetakeout.com/in-search-of-the-best-frankenstein-d-candy-combos-1829868664)
+> 原文：<https://thetakeout.com/in-search-of-the-best-frankenstein-d-candy-combos-1829868664>
 
 玉米糖和花生的惊人组合把我们被糖弄糊涂的大脑带到了一些奇怪的地方。我们还能想出什么样的万圣节糖果混搭，最终会比它们各部分的总和还要大？我们花了一个下午的时间来测试我们的舌头和胃，以帮助读者充分利用装满糖果的枕头套，尤其是最后被吃掉的残余部分，否则它们可能会被扔掉。
 

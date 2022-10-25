@@ -1,6 +1,6 @@
 # 你的 1040 税单今年有什么变化
 
-> 原文:[https://life hacker . com/how-your-1040-tax-form-is-changing-this-year-1832055703](https://lifehacker.com/how-your-1040-tax-form-is-changing-this-year-1832055703)
+> 原文：<https://lifehacker.com/how-your-1040-tax-form-is-changing-this-year-1832055703>
 
 由于 2017 年减税和就业法案，今年你们的联邦所得税将会有所不同。学分和扣款都变了，你的 1040 也变了。
 

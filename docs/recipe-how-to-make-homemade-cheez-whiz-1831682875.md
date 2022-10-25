@@ -1,6 +1,6 @@
 # 哎呀，你可以自制奶酪
 
-> 原文:[https://the take out . com/recipe-how-to-make-manufacture-cheez-whiz-1831682875](https://thetakeout.com/recipe-how-to-make-homemade-cheez-whiz-1831682875)
+> 原文：<https://thetakeout.com/recipe-how-to-make-homemade-cheez-whiz-1831682875>
 
 *欢迎来到* [***奶酪周***](https://thetakeout.com/tag/cheese-week)*外卖的*为期一周的奶酪好评。** 
 

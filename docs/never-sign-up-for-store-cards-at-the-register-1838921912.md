@@ -1,6 +1,6 @@
 # 千万不要在收银台注册购物卡
 
-> 原文:[https://life hacker . com/never-sign-up-for-store-cards-at-register-1838921912](https://lifehacker.com/never-sign-up-for-store-cards-at-the-register-1838921912)
+> 原文：<https://lifehacker.com/never-sign-up-for-store-cards-at-the-register-1838921912>
 
 “您愿意注册我们的信用卡并在今天的购物中额外节省 10%吗？”我敢肯定，你在为你的新牛仔裤或孩子们最近喜欢的任何新玩具付款时，一定听过这句话。如果你已经有一段时间没去大卖场了，并且计划每年去一次，为你的假日购物做准备，做好商店信用卡强行推销的准备。你可能对额外的一次性储蓄或承诺的现金返还奖励感到好奇。但为了获得这些额外津贴，申请一张新的信用卡可能不值得。
 

@@ -1,6 +1,6 @@
 # 如何使用 Alexa 帮助你准备工作面试
 
-> 原文:[https://life hacker . com/how-to-use-Alexa-to-help-you-prep-for-a-job-interview-1833024806](https://lifehacker.com/how-to-use-alexa-to-help-you-prep-for-a-job-interview-1833024806)
+> 原文：<https://lifehacker.com/how-to-use-alexa-to-help-you-prep-for-a-job-interview-1833024806>
 
 如果你已经很久没有参加过面试了，那么即使是最基本的面试问题也会让你陷入困境。如果你正在经历面试过程，那么一点点的准备可能意味着你是表现得像一个优雅的候选人还是一塌糊涂。
 

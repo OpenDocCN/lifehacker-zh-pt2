@@ -1,6 +1,6 @@
 # 问那个刻薄的女服务员:我该对我那位给小费很糟糕的朋友说什么？
 
-> 原文:[https://the take out . com/advice-for-bad-tippers-salty-waste-1831724105](https://thetakeout.com/advice-for-bad-tippers-salty-waitress-1831724105)
+> 原文：<https://thetakeout.com/advice-for-bad-tippers-salty-waitress-1831724105>
 
 > 亲爱的 Salty:我和我的朋友经常出去，我们中的大多数人都给 20%的小费，如果我们的服务员很有趣或者我们真的喝醉了，往往会更多(我保证，我们总是足够清醒，宁可多给也不要少给)。
 > 

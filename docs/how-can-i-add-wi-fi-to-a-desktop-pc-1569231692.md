@@ -1,6 +1,6 @@
 # 如何为台式电脑添加 Wifi？
 
-> 原文:[https://life hacker . com/how-can-I-add-wi-fi-to-a-desktop-PC-1569231692](https://lifehacker.com/how-can-i-add-wi-fi-to-a-desktop-pc-1569231692)
+> 原文：<https://lifehacker.com/how-can-i-add-wi-fi-to-a-desktop-pc-1569231692>
 
 不是所有的台式电脑都有内置 wifi，这完全有道理——为什么你不为一个主要放在桌子下面(或上面)的系统使用以太网连接呢？有选择还是好的，尤其是如果你的台式电脑恰好位于一个很难(或者很烦人)用电缆接入的区域，给一个没有 wifi 的系统添加 wifi 很容易。
 

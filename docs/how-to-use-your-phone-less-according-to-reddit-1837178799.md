@@ -1,6 +1,6 @@
 # 据 Reddit 报道，如何少用手机
 
-> 原文:[https://life hacker . com/how-to-use-your-phone-less-据 reddit-1837178799](https://lifehacker.com/how-to-use-your-phone-less-according-to-reddit-1837178799)
+> 原文：<https://lifehacker.com/how-to-use-your-phone-less-according-to-reddit-1837178799>
 
 如果你想减少使用手机的次数，redditor[mukalodric](https://www.reddit.com/user/mukalodric/)有 [一些建议](https://lifehacker.com/ten-tricks-for-checking-your-phone-less-1803137141) 。subred dit[r/get disciplified](https://www.reddit.com/r/getdisciplined/)(一个“为有拖延症、动机和纪律问题的人”成立的团体)上的一个名为“我如何减少无意识的手机使用”的帖子提供了来自发帖者和其他成员的建议。以下是一些我们最喜欢的策略:
 

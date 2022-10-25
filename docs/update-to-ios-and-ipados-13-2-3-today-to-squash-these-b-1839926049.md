@@ -1,6 +1,6 @@
 # 今天更新到 iOS 和 iPadOS 13.2.3 来粉碎这些错误
 
-> 原文:[https://life hacker . com/update-to-IOs-and-ipados-13-2-3-today-to-squash-this-b-1839926049](https://lifehacker.com/update-to-ios-and-ipados-13-2-3-today-to-squash-these-b-1839926049)
+> 原文：<https://lifehacker.com/update-to-ios-and-ipados-13-2-3-today-to-squash-these-b-1839926049>
 
 苹果带着 iOS 13 的又一次全新更新回来了。我们假设你已经做了决定，但是如果没有，现在是为你的 iPhone 和 iPad 升级到最新操作系统的最好时机。如果你已经在那里了，那太好了！是时候安装另一个更新来处理一些烦人的，挥之不去的 bug 了。
 

@@ -1,6 +1,6 @@
 # 使用挤压瓶作为 DIY 坐浴盆
 
-> 原文:[https://life hacker . com/use-a-squeeze-bottle-as-a-DIY-bide-1842643743](https://lifehacker.com/use-a-squeeze-bottle-as-a-diy-bidet-1842643743)
+> 原文：<https://lifehacker.com/use-a-squeeze-bottle-as-a-diy-bidet-1842643743>
 
 我不知道你怎么样，但是我的手纸快用完了。我的柜子里只剩下两卷了，我当地的杂货店除了空架子什么都没有。两周前，当我最后一次亲自去杂货店时，没有任何卫生纸——本周，当我在网上订购时，我可以选择在某一类别中订购任何可用的商品，卫生纸类别中没有任何商品。
 

@@ -1,6 +1,6 @@
 # 安装 iOS 12.4.1 更新，修复苹果的安全大错误
 
-> 原文:[https://life hacker . com/install-the-IOs-12-4-1-update-to-fix-apple-big-securit-1837620265](https://lifehacker.com/install-the-ios-12-4-1-update-to-fix-apples-big-securit-1837620265)
+> 原文：<https://lifehacker.com/install-the-ios-12-4-1-update-to-fix-apples-big-securit-1837620265>
 
 给 iOS 12 用户一个快速提示:本周的 iOS 更新， [版本 12.4.1](https://support.apple.com/en-us/HT210549) ，包括对 iOS 12.4 中发现的一个安全漏洞的重要修复。如果你还没有升级系统，我们强烈建议你进行升级——当然，除非你正在尝试 [破解你的手机](https://lifehacker.com/how-to-jailbreak-your-ios-12-4-iphone-1837374022) 。
 

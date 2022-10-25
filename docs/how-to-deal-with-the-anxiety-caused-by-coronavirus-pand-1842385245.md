@@ -1,6 +1,6 @@
 # 如何应对冠状病毒疫情否认者引发的焦虑
 
-> 原文:[https://life hacker . com/how-to-process-the-anxiety-aromatic virus-pand-1842385245](https://lifehacker.com/how-to-deal-with-the-anxiety-caused-by-coronavirus-pand-1842385245)
+> 原文：<https://lifehacker.com/how-to-deal-with-the-anxiety-caused-by-coronavirus-pand-1842385245>
 
 我们生活在一个高度焦虑的时代。我们自身的 [生理](https://vitals.lifehacker.com/yes-you-can-go-for-a-run-1842358121)[心理](https://lifehacker.com/how-to-deal-with-a-quarantine-if-youre-struggling-emoti-1842139296)[财务](https://twocents.lifehacker.com/how-a-near-zero-interest-rate-affects-your-money-1842365139?_ga=2.247968974.855611043.1583611655-954933324.1558747226) 安全方面的担心已经够多了。还有另一个我们许多人都没有预料到的广泛经历的压力源:当你认识的人不了解冠状病毒爆发的严重性时，特别是当他是你的亲密朋友或家人时，就会产生焦虑。
 

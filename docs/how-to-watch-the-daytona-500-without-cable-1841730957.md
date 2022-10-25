@@ -1,6 +1,6 @@
 # 如何在没有有线电视的情况下观看 Daytona 500
 
-> 原文:[https://life hacker . com/how-to-watch-the-Daytona-500-without-cable-1841730957](https://lifehacker.com/how-to-watch-the-daytona-500-without-cable-1841730957)
+> 原文：<https://lifehacker.com/how-to-watch-the-daytona-500-without-cable-1841730957>
 
 今年最重要的 Nascar 比赛之一 Daytona 500 今天举行。今天的比赛将于美国东部时间下午 1 点/太平洋时间上午 10 点正式开始，并将在福克斯电视台播出。
 

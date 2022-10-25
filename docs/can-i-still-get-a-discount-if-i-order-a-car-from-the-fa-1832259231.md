@@ -1,6 +1,6 @@
 # 如果我从工厂订购一辆汽车，我仍然能得到折扣吗？
 
-> 原文:[https://jalopnik . com/can-I-still-get-a-discount-if-I-order-a-car-from-fa-1832259231](https://jalopnik.com/can-i-still-get-a-discount-if-i-order-a-car-from-the-fa-1832259231)
+> 原文：<https://jalopnik.com/can-i-still-get-a-discount-if-i-order-a-car-from-the-fa-1832259231>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。我决定挑几个问题，试着帮帮大家。本周，我们正在讨论一份新的沃尔沃 V60 订单的谈判，对一辆本田思域进行改装，并从加拿大进口一辆小汽车。
 

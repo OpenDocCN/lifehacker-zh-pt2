@@ -1,6 +1,6 @@
 # 一月的健身挑战是:跳绳
 
-> 原文:[https://life hacker . com/januarys-fitness-challenge-is-jump-rope-1831490416](https://lifehacker.com/januarys-fitness-challenge-is-jump-rope-1831490416)
+> 原文：<https://lifehacker.com/januarys-fitness-challenge-is-jump-rope-1831490416>
 
 当我们问 [你喜欢去年的健身挑战](https://vitals.lifehacker.com/what-did-you-think-of-the-2018-fitness-challenges-1831399026) 中的哪些内容时，许多人说你喜欢在日常生活中加入一些新的东西。因此，我们将在 2019 年继续挑战，强调一些你应该知道的不被重视的练习。
 

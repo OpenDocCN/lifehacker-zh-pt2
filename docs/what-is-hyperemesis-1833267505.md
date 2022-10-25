@@ -1,6 +1,6 @@
 # 什么是剧吐？
 
-> 原文:[https://lifehacker.com/what-is-hyperemesis-1833267505](https://lifehacker.com/what-is-hyperemesis-1833267505)
+> 原文：<https://lifehacker.com/what-is-hyperemesis-1833267505>
 
 艾米·舒默告诉《纽约时报》记者 ，自从怀孕以来，她已经呕吐了 980 次。她患有妊娠剧吐，就在几年前，剑桥公爵夫人凯特·米德尔顿 [也患有这种疾病](https://www.today.com/health/prince-williams-reveals-not-much-has-helped-pregnant-duchess-kate-t116827) 。
 

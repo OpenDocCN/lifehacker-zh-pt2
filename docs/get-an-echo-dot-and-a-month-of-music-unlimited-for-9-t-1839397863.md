@@ -1,6 +1,6 @@
 # 今天花 9 美元就可以获得一个回声点和一个月的音乐无限量
 
-> 原文:[https://life hacker . com/get-an-echo-dot-and-a-month-of-music-unlimited-for-9-t-1839397863](https://lifehacker.com/get-an-echo-dot-and-a-month-of-music-unlimited-for-9-t-1839397863)
+> 原文：<https://lifehacker.com/get-an-echo-dot-and-a-month-of-music-unlimited-for-9-t-1839397863>
 
 亚马逊今天正在开展一项促销活动，将允许你以 8.98 美元的价格带走一个 Echo Dot，这比其正常价格优惠了很多。
 

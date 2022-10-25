@@ -1,6 +1,6 @@
 # 使用这些新的快捷键在 Android 上打开和关闭 Chrome 标签页
 
-> 原文:[https://life hacker . com/open-and-close-chrome-tabs-on-Android-with-thes-new-sh-1839924079](https://lifehacker.com/open-and-close-chrome-tabs-on-android-with-these-new-sh-1839924079)
+> 原文：<https://lifehacker.com/open-and-close-chrome-tabs-on-android-with-these-new-sh-1839924079>
 
 移动浏览器比以往任何时候都好，但与桌面版本相比，使用起来仍然很麻烦。例如，在 Chrome 上管理打开的标签页在桌面上很简单，但在移动设备上却很复杂。过去一年，谷歌一直在改变标签在移动设备上的工作方式，但最近的更新增加了一个新功能，使在 Android 设备上打开和关闭浏览器标签变得更加容易。
 

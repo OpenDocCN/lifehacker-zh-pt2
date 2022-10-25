@@ -1,6 +1,6 @@
 # 给摩托车装上汽车轮胎之前要考虑的事情
 
-> 原文:[https://jalopnik . com/things-to-consider-before-you-put-car-tires-on-you-mot-1841453842](https://jalopnik.com/things-to-consider-before-you-put-car-tires-on-your-mot-1841453842)
+> 原文：<https://jalopnik.com/things-to-consider-before-you-put-car-tires-on-your-mot-1841453842>
 
 既然 [我肯定*不是*摩托车骑手](https://jalopnik.com/i-got-my-motorcycle-license-and-i-still-have-zero-desir-1796146436) ，我实际上不知道人们有时会把汽车轮胎换到他们的摩托车上。不过，我对此很好奇。如果你想尝试一下，这里有一些事情需要考虑。
 

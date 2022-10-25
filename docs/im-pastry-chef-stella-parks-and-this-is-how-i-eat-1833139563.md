@@ -1,6 +1,6 @@
 # im pastry chef stella parks and this is how i eat 1833139563
 
-> 原文:[https://life hacker . com/im-pastry-chef-Stella-parks-and-this-is-how-I-eat-1833139563](https://lifehacker.com/im-pastry-chef-stella-parks-and-this-is-how-i-eat-1833139563)
+> 原文：<https://lifehacker.com/im-pastry-chef-stella-parks-and-this-is-how-i-eat-1833139563>
 
 斯特拉·帕克斯——又名“勇敢的馅饼”——对蛋糕的了解超过了大多数人。她受过中情局训练，有餐馆经验，但正是她对细节的关注和对美国甜点的感染热情，使她的食谱不仅在技术上很棒，而且非常令人愉快。虽然烹饪和吃甜食是名副其实的梦想工作，但一个人不能只靠蛋糕活着，这就是为什么我们很高兴与 Stella 谈论她最喜欢的美味菜肴，巧克力草莓的恐怖，以及她必须品尝整个饼干的原因。
 

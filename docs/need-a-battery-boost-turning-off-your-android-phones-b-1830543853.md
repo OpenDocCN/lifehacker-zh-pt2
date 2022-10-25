@@ -1,6 +1,6 @@
 # 需要电池充电吗？关闭你的安卓手机的后台数据可能会有所帮助
 
-> 原文:[https://life hacker . com/need-a-battery-boost-turning-off-your-Android-phones-b-1830543853](https://lifehacker.com/need-a-battery-boost-turning-off-your-android-phones-b-1830543853)
+> 原文：<https://lifehacker.com/need-a-battery-boost-turning-off-your-android-phones-b-1830543853>
 
 很少有智能手机像延长你的设备的电池寿命这样有用，通过用户 u/neq 在 Reddit 上发布的 [，你也许可以通过禁用一个相对未知的功能来给你的安卓手机的电池寿命一个显著的提升。](https://www.reddit.com/r/Android/comments/9ybm9l/psa_disabling_mobile_data_alwayson_while_on_wifi/) 
 

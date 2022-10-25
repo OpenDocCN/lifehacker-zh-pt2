@@ -1,6 +1,6 @@
 # 数字秤比模拟秤更精确吗？
 
-> 原文:[https://life hacker . com/is-a-digital-scale-than-analog-1835377277](https://lifehacker.com/is-a-digital-scale-more-accurate-than-analog-1835377277)
+> 原文：<https://lifehacker.com/is-a-digital-scale-more-accurate-than-analog-1835377277>
 
 我们都踩过老式的模拟秤，并坚持认为数字是错的——一定是秤的问题！但是，购买一台昂贵的新电子秤及其所有额外功能会更准确吗？
 

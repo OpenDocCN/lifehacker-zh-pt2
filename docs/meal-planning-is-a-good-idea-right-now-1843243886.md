@@ -1,6 +1,6 @@
 # 现在计划饮食是个好主意
 
-> 原文:[https://life hacker . com/meal-planning-is-a-good-idea-right-now-1843243886](https://lifehacker.com/meal-planning-is-a-good-idea-right-now-1843243886)
+> 原文：<https://lifehacker.com/meal-planning-is-a-good-idea-right-now-1843243886>
 
 “没有计划”曾经让人感觉奢侈——享乐主义、甚至——但“事情”已经发生了变化，我们现在缺乏结构的生活开始(或继续)让人感到有点压抑，或者至少是极度沉闷。简而言之，这种感觉就像没有什么可期待的，这可能会影响我们与食物的关系。
 

@@ -1,6 +1,6 @@
 # 使用带有 SearchCam 的 iPhone 相机搜索印刷文本
 
-> 原文:[https://life hacker . com/search-printed-text-using-your-iphone-camera-with-sear-1836886554](https://lifehacker.com/search-printed-text-using-your-iphones-camera-with-sear-1836886554)
+> 原文：<https://lifehacker.com/search-printed-text-using-your-iphones-camera-with-sear-1836886554>
 
 **iOS:** 有没有看过纸质书，希望自己能按 ctrl-F？使用免费的 iOS 应用程序 [SearchCam](https://apps.apple.com/us/app/searchcam-ctrl-f-for-life/id1440462575) 使用手机摄像头搜索印刷文本。它适用于文件、书籍、包装，甚至海报。
 

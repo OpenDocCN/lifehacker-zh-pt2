@@ -1,6 +1,6 @@
 # 如何观看本周末的宝瓶座流星雨
 
-> 原文:[https://life hacker . com/how-to-view-the delta-aquarids-meteor-shower-week e-1836696101](https://lifehacker.com/how-to-view-the-delta-aquarids-meteor-shower-this-weeke-1836696101)
+> 原文：<https://lifehacker.com/how-to-view-the-delta-aquarids-meteor-shower-this-weeke-1836696101>
 
 德尔塔宝瓶座流星雨正准备在周日和周一达到高峰，所以如果你想赶上它，现在是你的机会。尽管它偏向于南半球，但在北半球中部仍然可以看到。无论你在哪里，赶上阵雨的最佳时间是在午夜和黎明之间。
 

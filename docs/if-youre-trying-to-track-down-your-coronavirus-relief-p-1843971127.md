@@ -1,6 +1,6 @@
 # 如果你想追踪你的冠状病毒救济款项，请使用美国国税局的电话号码
 
-> 原文:[https://life hacker . com/if-you-try-to-track-down-your-coronavirus-relief-p-1843971127](https://lifehacker.com/if-youre-trying-to-track-down-your-coronavirus-relief-p-1843971127)
+> 原文：<https://lifehacker.com/if-youre-trying-to-track-down-your-coronavirus-relief-p-1843971127>
 
 疫情冠状病毒迫使国税局关闭呼叫中心后，国税局开始重新开通电话线路。但是你可能仍然很难找到一个真正的人打电话。
 

@@ -1,6 +1,6 @@
 # 如果你担心副作用，如何选择避孕方法
 
-> 原文:[https://life hacker . com/how-to-choose-a-birth-control-option-if-you-re-worried-1841912477](https://lifehacker.com/how-to-choose-a-birth-control-option-if-you-re-worried-1841912477)
+> 原文：<https://lifehacker.com/how-to-choose-a-birth-control-option-if-you-re-worried-1841912477>
 
 选择避孕看起来很可怕，尤其是如果你担心更极端的副作用。你可能听说过关于使用宫内节育器的 [器官穿孔](https://www.health.com/condition/birth-control/iud-fell-out) 的风险的恐怖故事，或者声称节育与 [偏头痛](https://americanmigrainefoundation.org/resource-library/spotlight-on-oral-contraceptives-and-migraine/) 有关。然而，极端的副作用是罕见的，通常只有在你已经存在可能引发它们的情况下才会发生。
 

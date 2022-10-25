@@ -1,6 +1,6 @@
 # 请确保您购买的是苹果新款 USB-C AV 适配器，适用于 Mac 和 iPad Pro
 
-> 原文:[https://life hacker . com/make-sure-you-buying-apple-newer-USB-c-av-adapter-fo-1837100694](https://lifehacker.com/make-sure-youre-buying-apples-newer-usb-c-av-adapter-fo-1837100694)
+> 原文：<https://lifehacker.com/make-sure-youre-buying-apples-newer-usb-c-av-adapter-fo-1837100694>
 
 苹果公司更新了其 [USB-C 数字 AV 多端口适配器](https://support.apple.com/en-us/HT207806) ，这是一种可以插入 Mac 或(新款)iPad Pro 的加密狗，因此你可以连接外部显示器或标准 USB 设备。新版多端口适配器增加了对 HDMI 2.0 的支持，包括:
 

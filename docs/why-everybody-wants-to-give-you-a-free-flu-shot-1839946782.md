@@ -1,6 +1,6 @@
 # 为什么每个人都想给你免费注射流感疫苗
 
-> 原文:[https://life hacker . com/why-every one-want-to-give-you-a free-flu-shot-1839946782](https://lifehacker.com/why-everybody-wants-to-give-you-a-free-flu-shot-1839946782)
+> 原文：<https://lifehacker.com/why-everybody-wants-to-give-you-a-free-flu-shot-1839946782>
 
 理论上，当金钱被用来交换商品或服务时，货币数量和所购物品的价值之间应该存在某种关系。但是因为健康保险是一个如此怪异的系统，在实践中这种情况不会发生。
 

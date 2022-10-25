@@ -1,6 +1,6 @@
 # 如何帮助微软 Playtest 新的光环游戏
 
-> 原文:[https://life hacker . com/how-to-help-Microsoft-playtest-new-halo-games-1833409258](https://lifehacker.com/how-to-help-microsoft-playtest-new-halo-games-1833409258)
+> 原文：<https://lifehacker.com/how-to-help-microsoft-playtest-new-halo-games-1833409258>
 
 微软上周宣布*Halo:Master Chief Collection*将于今年晚些时候通过 Steam 和 [Windows Store](https://www.microsoft.com/en-us/p/halo-the-master-chief-collection/bpk4zkfcfl5g?activetab=pivot:overviewtab) 在 [PC 上发售，现在你可以通过该公司新的](https://store.steampowered.com/app/976730/Halo_The_Master_Chief_Collection/)[Halo Insider program](https://www.halowaypoint.com/en-us/community/halo-insider)注册一次提前玩游戏的机会。
 

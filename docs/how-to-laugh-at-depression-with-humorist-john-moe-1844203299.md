@@ -1,6 +1,6 @@
 # 幽默作家约翰·莫伊的《如何笑对抑郁》
 
-> 原文:[https://life hacker . com/how-to-laugh-at-depression-with-幽默家-john-moe-1844203299](https://lifehacker.com/how-to-laugh-at-depression-with-humorist-john-moe-1844203299)
+> 原文：<https://lifehacker.com/how-to-laugh-at-depression-with-humorist-john-moe-1844203299>
 
 本周，我们将在约翰·莫的帮助下，从我们的困境中寻找幽默，他是“快乐的抑郁世界” 播客的主持人。约翰帮助我们了解抑郁症的有趣之处，有时甚至是好的方面，我们如何识别自己和他人的抑郁症，以及当我们发现自己在挣扎时该怎么办。约翰最新著作， [*【抑郁的欢闹世界】*](https://www.amazon.com/Hilarious-World-Depression-John-Moe/dp/1250209285?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-laugh-at-depression-with-humorist-john-moe-1844203299&asc_source=&tag=kinjalifehackerlink-20)*现已问世。* 
 

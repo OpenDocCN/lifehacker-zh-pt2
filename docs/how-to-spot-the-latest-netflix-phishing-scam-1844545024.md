@@ -1,6 +1,6 @@
 # 如何识别最新的网飞网络钓鱼骗局
 
-> 原文:[https://life hacker . com/how-to-spot-the-latest-the-网飞网络钓鱼-诈骗-1844545024](https://lifehacker.com/how-to-spot-the-latest-netflix-phishing-scam-1844545024)
+> 原文：<https://lifehacker.com/how-to-spot-the-latest-netflix-phishing-scam-1844545024>
 
 每个人都喜欢网飞，尤其是当他们不用付钱的时候。这就是你分享别人账户的原因，对吧？嗯，骗子也喜欢免费的网飞，一种新的网络钓鱼攻击可能会让你放弃宝贵的用户名和密码，以及其他你不希望别人拥有的重要信息。
 

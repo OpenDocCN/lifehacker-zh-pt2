@@ -1,6 +1,6 @@
 # 免费下载“儿童时间”
 
-> 原文:[https://life hacker . com/download-time-for-kids-for-free-1842453567](https://lifehacker.com/download-time-for-kids-for-free-1842453567)
+> 原文：<https://lifehacker.com/download-time-for-kids-for-free-1842453567>
 
 因为世界各地的父母都需要我们能得到的所有帮助，让我们的孩子在一定程度上受到学术刺激，所以《时代》是最新一家挺身而出提供帮助的公司——为孩子提供免费的时间数字图书馆。
 

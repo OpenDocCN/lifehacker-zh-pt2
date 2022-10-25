@@ -1,6 +1,6 @@
 # 用让·格雷的这些礼仪歌曲责备某人
 
-> 原文:[https://life hacker . com/tell-someone-off-that-someone-things-pledge-songs-by-jean-gra-1835692176](https://lifehacker.com/tell-someone-off-with-these-etiquette-songs-by-jean-gra-1835692176)
+> 原文：<https://lifehacker.com/tell-someone-off-with-these-etiquette-songs-by-jean-gra-1835692176>
 
 当有人对你无礼或说了一些非常愚蠢的话时，有时你需要的不仅仅是一张 GIF 或一个面部表情来责备他们。给他们发一首由喜剧演员 Jean Grae 演唱的歌曲，来自她的专辑[](https://jeangrae.bandcamp.com/album/thats-not-how-you-do-that-an-instructional-album-for-adults)*和[](https://jeangrae.bandcamp.com/album/thats-not-how-you-do-that-either-yet-another-instructional-album-for-adults)*。两者都充满了短小、有趣、琐碎的歌曲，讲述人们做的烦人的事情。虽然第一个只在 Bandcamp 上可用，但第二个也可以在方便的 YouTube 上获得，你可以复制粘贴到聊天或评论线程 :** 
 

@@ -1,6 +1,6 @@
 # 为什么你的孩子应该做临时的东西
 
-> 原文:[https://life hacker . com/why-your-kid-should-make-things-the-temporary-1836687606](https://lifehacker.com/why-your-kid-should-make-things-that-are-temporary-1836687606)
+> 原文：<https://lifehacker.com/why-your-kid-should-make-things-that-are-temporary-1836687606>
 
 你可能读过关于西藏僧侣 的 [的故事，他们花数小时用细小的沙粒创造出难以想象的复杂曼荼罗，只是在他们完成后马上把它弄乱，作为万物短暂本质的象征。当我得知此事时，我吓得直喘气。所有的工作。不见了。](https://www.huffpost.com/entry/mandala-why-destroy-it_b_970479)
 

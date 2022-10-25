@@ -1,6 +1,6 @@
 # 如何修复耗尽你电池的最新安卓漏洞
 
-> 原文:[https://life hacker . com/how-to-fix-the-latest-Android-bug-that-draining-your-b-1837170436](https://lifehacker.com/how-to-fix-the-latest-android-bug-thats-draining-your-b-1837170436)
+> 原文：<https://lifehacker.com/how-to-fix-the-latest-android-bug-thats-draining-your-b-1837170436>
 
 安卓用户:如果你的手机电池最近感觉没电了，可能是最新的 Google Play 服务更新造成的。
 

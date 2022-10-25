@@ -1,6 +1,6 @@
 # 当你刷牙的时候关掉水
 
-> 原文:[https://life hacker . com/刷牙时关掉水龙头-1838528112](https://lifehacker.com/turn-off-the-water-while-you-brush-your-teeth-1838528112)
+> 原文：<https://lifehacker.com/turn-off-the-water-while-you-brush-your-teeth-1838528112>
 
 如果你是近一半刷牙时让水龙头开着的美国人之一，这里有两个改变习惯的好理由。
 

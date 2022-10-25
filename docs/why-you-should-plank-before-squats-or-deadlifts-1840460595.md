@@ -1,6 +1,6 @@
 # 为什么你应该在深蹲或硬拉前支撑
 
-> 原文:[https://life hacker . com/why-you-should-plank-before-squats-or-deadlifts-1840460595](https://lifehacker.com/why-you-should-plank-before-squats-or-deadlifts-1840460595)
+> 原文：<https://lifehacker.com/why-you-should-plank-before-squats-or-deadlifts-1840460595>
 
 我们都听说过“锻炼你的核心”这句话，因为它与举重有关。你的核心力量是至关重要的————这是糟糕的硬拉和伟大的硬拉之间的区别。或者一个平庸的俯卧撑和一个完美的形式。基本上，如果你在做任何需要某种力量的事情，核心力量可能会让你受益。
 

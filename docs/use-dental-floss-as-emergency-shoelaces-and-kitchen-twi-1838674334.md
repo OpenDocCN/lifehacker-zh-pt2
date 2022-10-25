@@ -1,6 +1,6 @@
 # 使用牙线作为应急鞋带和厨房线
 
-> 原文:[https://life hacker . com/use-牙线-as-emergency-鞋带-厨房-twi-1838674334](https://lifehacker.com/use-dental-floss-as-emergency-shoelaces-and-kitchen-twi-1838674334)
+> 原文：<https://lifehacker.com/use-dental-floss-as-emergency-shoelaces-and-kitchen-twi-1838674334>
 
 你知道“牙线舞”不仅仅是所有孩子都在跳的流行舞蹈吗？
 

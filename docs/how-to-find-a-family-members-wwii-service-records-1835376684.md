@@ -1,6 +1,6 @@
 # 如何找到家庭成员的二战服役记录
 
-> 原文:[https://life hacker . com/how-to-find-a-family-members-WWII-service-records-1835376684](https://lifehacker.com/how-to-find-a-family-members-wwii-service-records-1835376684)
+> 原文：<https://lifehacker.com/how-to-find-a-family-members-wwii-service-records-1835376684>
 
 上周的诺曼底登陆 75 周年纪念提醒了许多二战老兵的孩子和孙子，我们仍然不知道他们许多故事的细节。流传下来的关于他们在战争中的经历的任何描述通常都是实际发生的事情的模糊轮廓——无论是退伍军人还是他们留下的配偶都很难谈论全部真相。
 

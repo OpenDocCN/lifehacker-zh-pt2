@@ -1,6 +1,6 @@
 # 你是如何对抗检疫烹饪疲劳的？
 
-> 原文:[https://life hacker . com/how-you-fighting-quarantine-cooking-fatigue-1844518881](https://lifehacker.com/how-are-you-fighting-quarantine-cooking-fatigue-1844518881)
+> 原文：<https://lifehacker.com/how-are-you-fighting-quarantine-cooking-fatigue-1844518881>
 
 当我的城市在三月份开始关闭时，我去了餐馆用品店买了意大利面、罐装西红柿、鸡蛋、洋葱、几种不易腐烂的主食和许多辣酱。我以为我们要在里呆一个月左右，我完全计划好了在整个时间里不去杂货店。
 

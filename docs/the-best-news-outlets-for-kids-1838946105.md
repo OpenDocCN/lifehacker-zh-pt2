@@ -1,6 +1,6 @@
 # 儿童的最佳新闻渠道
 
-> 原文:[https://life hacker . com/the-best-news-outlets-for-kids-1838946105](https://lifehacker.com/the-best-news-outlets-for-kids-1838946105)
+> 原文：<https://lifehacker.com/the-best-news-outlets-for-kids-1838946105>
 
 当我还是个孩子的时候，我从无意中听到的成人谈话片段中获得了大部分时事知识，外加每天早上在我教室的电视上播放的几分钟 [第一频道新闻](https://www.channelone.com/) (RIP)。
 

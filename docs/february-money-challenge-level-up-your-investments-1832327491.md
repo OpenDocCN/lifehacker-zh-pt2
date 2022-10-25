@@ -1,6 +1,6 @@
 # 二月金钱挑战:提升你的投资水平
 
-> 原文:[https://life hacker . com/junior-money-challenge-level-up-your-investments-1832327491](https://lifehacker.com/february-money-challenge-level-up-your-investments-1832327491)
+> 原文：<https://lifehacker.com/february-money-challenge-level-up-your-investments-1832327491>
 
 随着一月及其复兴和决心的承诺消失在遥远的微光中，我们只能熬过一年中最沉闷的时光。对于美国的大部分地区，户外活动暂停，直到我们远离下一个极地涡旋，而周日的超级碗标志着我们未来几个月的美食假期的结束(至少对许多美国人来说)。
 

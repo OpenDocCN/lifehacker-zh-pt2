@@ -1,6 +1,6 @@
 # 不吃肉烤什么
 
-> 原文:[https://life hacker . com/what-to-grill-if-you-not-eat-meat-1835951361](https://lifehacker.com/what-to-grill-if-you-dont-eat-meat-1835951361)
+> 原文：<https://lifehacker.com/what-to-grill-if-you-dont-eat-meat-1835951361>
 
 美国独立日与被称为“烧烤”的烹饪方法密切相关，而烧烤又与肉类紧密相关。但是有些人不吃肉，他们不应该被剥夺在烈日下在火炭上烹饪的发自内心的快乐。幸运的是，有许多(好的)选择。
 

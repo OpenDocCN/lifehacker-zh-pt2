@@ -1,6 +1,6 @@
 # Gmail 的“固定回复”功能终于好了
 
-> 原文:[https://life hacker . com/Gmail-canned-responses-feature-is-finally-good-1833580956](https://lifehacker.com/gmails-canned-responses-feature-is-finally-good-1833580956)
+> 原文：<https://lifehacker.com/gmails-canned-responses-feature-is-finally-good-1833580956>
 
 Gmail 的模板功能刚刚得到了急需的重新设计。名不副实的“固定回复”，这不是 Gmail 建议用两个词回复邮件的功能。(那就是“聪明回复”)这是一个更有用的功能，隐藏在 Gmail 桌面界面的“高级”设置菜单中，可以让你保存多封邮件，以便在撰写邮件时重复使用。
 

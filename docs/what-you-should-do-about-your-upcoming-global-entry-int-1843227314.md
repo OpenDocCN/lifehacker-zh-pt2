@@ -1,6 +1,6 @@
 # 对于即将到来的全球入学面试，你应该做些什么
 
-> 原文:[https://life hacker . com/what-you-should-do-about-you-coming-global-entry-int-1843227314](https://lifehacker.com/what-you-should-do-about-your-upcoming-global-entry-int-1843227314)
+> 原文：<https://lifehacker.com/what-you-should-do-about-your-upcoming-global-entry-int-1843227314>
 
 很有可能你现在没有任何计划去进行一次国际旅行。然而，如果你想在今年早些时候注册 Global Entry，你至少要等到 6 月份才能完成这个过程。
 

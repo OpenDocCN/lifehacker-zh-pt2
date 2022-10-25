@@ -1,6 +1,6 @@
 # 如何在《复仇者联盟 4：终局之战》上映前狂播每一部漫威电影
 
-> 原文:[https://life hacker . com/how-to-binge-stream-every-marvel-movie-from the Avengers-1832987863](https://lifehacker.com/how-to-binge-stream-every-marvel-movie-before-avengers-1832987863)
+> 原文：<https://lifehacker.com/how-to-binge-stream-every-marvel-movie-before-avengers-1832987863>
 
 如果你从未被漫威电影的世界所吸引，那么你几乎是清白的:这个系列的最后一部电影《复仇者联盟 4：终局之战》将于 4 月 26 日上映。那就全完了！但是为什么要否定自己呢？在这里，你可以观看之前所有的电影，让自己兴奋起来，或者至少看看到底是怎么回事。
 

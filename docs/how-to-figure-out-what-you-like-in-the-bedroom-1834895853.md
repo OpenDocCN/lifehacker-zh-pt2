@@ -1,6 +1,6 @@
 # 如何弄清楚自己在卧室里喜欢什么
 
-> 原文:[https://life hacker . com/how-to-got-out-of-what-you-like-in-the-bedroom-1834895853](https://lifehacker.com/how-to-figure-out-what-you-like-in-the-bedroom-1834895853)
+> 原文：<https://lifehacker.com/how-to-figure-out-what-you-like-in-the-bedroom-1834895853>
 
 想象你正在和你的伴侣做爱，他们问你，“你下一步想做什么？”表面上，这听起来像是一个关心、体贴的问题。但在当下，很多人慌了神，挣扎着想出一个答案。那是因为很多人觉得他们在性方面没有真正“了解自己”。他们不明白自己想要什么，喜欢什么。如果你一直觉得你的性取向是你自己遥远的、隐藏的一部分，这里有一些简单的步骤来发现和理解你喜欢什么样的性。
 

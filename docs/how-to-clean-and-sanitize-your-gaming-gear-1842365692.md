@@ -1,6 +1,6 @@
 # 如何清洁和消毒你的游戏装备
 
-> 原文:[https://kotaku . com/how-to-clean-and-sanitize-your gaming-gear-1842365692](https://kotaku.com/how-to-clean-and-sanitize-your-gaming-gear-1842365692)
+> 原文：<https://kotaku.com/how-to-clean-and-sanitize-your-gaming-gear-1842365692>
 
 随着对由新型冠状病毒引起的新冠肺炎疾病的担忧达到白热化，尽自己的一份力量阻止其传播比以往任何时候都更重要。一个有效的对策是专家所说的——拒绝活动邀请，取消不必要的旅行，如果可行的话，在家工作。
 

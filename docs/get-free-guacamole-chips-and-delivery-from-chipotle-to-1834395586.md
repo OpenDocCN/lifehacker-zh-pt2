@@ -1,6 +1,6 @@
 # 今天就可以从 Chipotle 获得免费的鳄梨酱、薯片和外卖
 
-> 原文:[https://life hacker . com/get-free-guacamole-chips-and-delivery-from-chipotle to-1834395586](https://lifehacker.com/get-free-guacamole-chips-and-delivery-from-chipotle-to-1834395586)
+> 原文：<https://lifehacker.com/get-free-guacamole-chips-and-delivery-from-chipotle-to-1834395586>
 
 4 月 30 日标志着第一年你可以让墨西哥卷饼直接送货上门。为了庆祝，Chipotle 和 Doordash 当天提供了一些相当不错的交易。具体来说，从今天到 5 月 5 日，他们会给你免费送墨西哥卷饼，还会随你的订单附送免费薯条和鳄梨酱。
 

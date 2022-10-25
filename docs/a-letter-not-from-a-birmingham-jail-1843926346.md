@@ -1,6 +1,6 @@
 # 一封不是来自伯明翰监狱的信
 
-> 原文:[https://www . the root . com/a-letter-not-from-a-Birmingham-jail-1843926346](https://www.theroot.com/a-letter-not-from-a-birmingham-jail-1843926346)
+> 原文：<https://www.theroot.com/a-letter-not-from-a-birmingham-jail-1843926346>
 
 Watch
 

@@ -1,6 +1,6 @@
 # 如何查看警察是否使用门铃来监控你的邻居
 
-> 原文:[https://life hacker . com/how-to-see-if-police-is-use-ring-door bells-to-monito-1837797394](https://lifehacker.com/how-to-see-if-police-are-using-ring-doorbells-to-monito-1837797394)
+> 原文：<https://lifehacker.com/how-to-see-if-police-are-using-ring-doorbells-to-monito-1837797394>
 
 本月早些时候 [我们了解到，亚马逊正在与执法机构](https://gizmodo.com/cops-are-giving-amazons-ring-your-real-time-911-data-1836883867) 就可能让他们访问门铃上的视频流进行谈判，这既是一种帮助决定如何部署紧急救援人员的方式，也可能为亚马逊的邻里监督应用程序 Neighbors 创建“犯罪新闻”帖子。
 

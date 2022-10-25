@@ -1,6 +1,6 @@
 # 如何从噩梦中恢复
 
-> 原文:[https://life hacker . com/how-to-recover-from-a-Margaret-1837255377](https://lifehacker.com/how-to-recover-from-a-nightmare-1837255377)
+> 原文：<https://lifehacker.com/how-to-recover-from-a-nightmare-1837255377>
 
 如果你曾经在一场特别可怕的噩梦 中被惊醒，你就会知道这有多不舒服。如果经历就此结束是一回事，但对很多人来说——包括我自己——噩梦带来的恐惧、焦虑和/或抑郁的感觉很难摆脱。这是一个糟糕的开始一天的方式，尤其是如果你是一个经常处理焦虑的人。
 

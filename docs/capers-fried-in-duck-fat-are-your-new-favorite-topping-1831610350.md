@@ -1,6 +1,6 @@
 # 鸭油煎马槟榔是你的新宠
 
-> 原文:[https://life hacker . com/capers-fried-in-duck-fat-are-your ' s new-favorite-topping-1831610350](https://lifehacker.com/capers-fried-in-duck-fat-are-your-new-favorite-topping-1831610350)
+> 原文：<https://lifehacker.com/capers-fried-in-duck-fat-are-your-new-favorite-topping-1831610350>
 
 松脆、咸的东西几乎可以改善任何情况。前几天晚上，我在一家高档鸡尾酒吧像一位高档女士一样享受着高档饮料，想着我度过了一个多么美好的夜晚，这时酒保放了一点爆高粱和炸马槟榔，让气氛更加热烈。高粱很好吃——基本上就是小小的爆米花！——但这些恶作剧是一个启示。
 

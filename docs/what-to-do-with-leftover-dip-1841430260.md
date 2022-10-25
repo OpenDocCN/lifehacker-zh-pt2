@@ -1,6 +1,6 @@
 # 如何处理剩余的蘸酱
 
-> 原文:[https://life hacker . com/what-to-do-with the left-dip-1841430260](https://lifehacker.com/what-to-do-with-leftover-dip-1841430260)
+> 原文：<https://lifehacker.com/what-to-do-with-leftover-dip-1841430260>
 
 除非你为昨天的大型比赛准备了准确的食物，否则你可能会有剩菜，其中一份(或多份)可能是某种蘸酱。去除额外的蘸酱不是一件苦差事，薯条和蘸酱*是一种有效的膳食选择，但如果你正经历蘸酱疲劳，有办法将你的蘸酱重新格式化为新的和诱人的东西。*
 

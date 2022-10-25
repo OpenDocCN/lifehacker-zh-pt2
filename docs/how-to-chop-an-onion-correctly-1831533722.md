@@ -1,6 +1,6 @@
 # 微决心:学习切洋葱的理想方法，一劳永逸
 
-> 原文:[https://the take out . com/how-to-chop-an-onion-right-1831533722](https://thetakeout.com/how-to-chop-an-onion-correctly-1831533722)
+> 原文：<https://thetakeout.com/how-to-chop-an-onion-correctly-1831533722>
 
 人类不擅长遵守自己的决心。我们要求自己改变顽固的习惯，但很少有人能坚持到底。我们这里的*外卖*提议，嗯，把门槛降低到可管理的水平:我们称之为微分辨率。这并不像减肥 30 磅、获得柔术黑带或精通日语那样雄心勃勃。
 

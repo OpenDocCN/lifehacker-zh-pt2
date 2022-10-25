@@ -1,6 +1,6 @@
 # 我摔断了脚踝，需要一辆便宜好玩的自动挡车！我应该买什么？
 
-> 原文:[https://jalopnik . com/I-broke-my-ankle-and-need-a cheap-fun-automatic-car-wh-1833967002](https://jalopnik.com/i-broke-my-ankle-and-need-a-cheap-fun-automatic-car-wh-1833967002)
+> 原文：<https://jalopnik.com/i-broke-my-ankle-and-need-a-cheap-fun-automatic-car-wh-1833967002>
 
 特里斯坦喜欢他的手动挡汽车，但是他在骑山地车时出了点小事故，严重伤了他的左脚踝。这意味着暂时不能转移。他正在寻找一种有两个踏板的实惠的东西，但不想放弃乐趣。
 

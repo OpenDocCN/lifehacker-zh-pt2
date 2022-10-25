@@ -1,6 +1,6 @@
 # 用 CopyChar 复制表情符号和特殊字符
 
-> 原文:[https://life hacker . com/copy-e moji-and-special-characters-with-copy char-1832792618](https://lifehacker.com/copy-emoji-and-special-characters-with-copychar-1832792618)
+> 原文：<https://lifehacker.com/copy-emoji-and-special-characters-with-copychar-1832792618>
 
 我们都有某些我们一直在使用的特殊字符，以及键入这些字符的挑剔的小方法。你可以谷歌一个表情符号的名字，或者 [下载一个菜单栏应用](https://lifehacker.com/characters-gives-you-quick-access-to-special-characters-5992033) 进行复制粘贴，或者 [学习组合键](https://lifehacker.com/how-to-type-accents-and-symbols-on-any-keyboard-1821266814) 为字母添加发音符号。这里还有一个选项:书签 [CopyChar.cc](https://copychar.cc/) 。
 

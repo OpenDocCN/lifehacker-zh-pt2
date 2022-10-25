@@ -1,6 +1,6 @@
 # 如何轻松卸掉万圣节脸部妆容
 
-> 原文:[https://life hacker . com/how-to-easy-remove-Halloween-face-costing-1830071720](https://lifehacker.com/how-to-easily-remove-halloween-face-makeup-1830071720)
+> 原文：<https://lifehacker.com/how-to-easily-remove-halloween-face-makeup-1830071720>
 
 你已经做到了。你已经熬过了所有的万圣节庆祝活动——学校聚会和游行，服装换了又换，不给糖就捣蛋，糖果消费谈判——没有任何重大事故。
 

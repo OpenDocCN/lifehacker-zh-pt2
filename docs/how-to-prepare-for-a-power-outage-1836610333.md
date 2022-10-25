@@ -1,6 +1,6 @@
 # 如何为停电做准备
 
-> 原文:[https://life hacker . com/how-to-prepare-for-a-power-outage-1836610333](https://lifehacker.com/how-to-prepare-for-a-power-outage-1836610333)
+> 原文：<https://lifehacker.com/how-to-prepare-for-a-power-outage-1836610333>
 
 周末，超过 30，000 名纽约居民断电，据报道是由于大范围热浪期间 [用电量过高](https://www.cnn.com/2019/07/22/us/power-outages-continue-in-nyc-and-michigan/index.html) 。这是该市在不到两周的时间里第二次停电。
 

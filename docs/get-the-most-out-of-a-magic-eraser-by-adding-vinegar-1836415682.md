@@ -1,6 +1,6 @@
 # 加入醋，充分利用魔法橡皮擦
 
-> 原文:[https://life hacker . com/get-the-most-out-of-a magic-eraser-by-add-醋-1836415682](https://lifehacker.com/get-the-most-out-of-a-magic-eraser-by-adding-vinegar-1836415682)
+> 原文：<https://lifehacker.com/get-the-most-out-of-a-magic-eraser-by-adding-vinegar-1836415682>
 
 我们之前已经介绍过 如何在整个房子里使用三聚氰胺海绵(或者俗称的“神奇橡皮擦”)。
 

@@ -1,6 +1,6 @@
 # 创建你自己的“育儿团队”
 
-> 原文:[https://life hacker . com/create-your-own-parenting-posse-1842118782](https://lifehacker.com/create-your-own-parenting-posse-1842118782)
+> 原文：<https://lifehacker.com/create-your-own-parenting-posse-1842118782>
 
 我们喜欢说养育一个孩子需要一个村庄，但是有时候这个村庄看起来人口非常稀少。我们经常不住在家乡，周围都是大家庭成员和从小学就认识的朋友。我们的附属车库为我们的邻居提供了额外的隐私，减少了与他们的互动。我们主要依靠自己。
 

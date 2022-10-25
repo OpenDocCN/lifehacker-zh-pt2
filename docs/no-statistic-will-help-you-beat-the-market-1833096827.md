@@ -1,6 +1,6 @@
 # 没有统计数据会帮助你战胜市场
 
-> 原文:[https://life hacker . com/no-statistic-will-help-you-beat-the-market-1833096827](https://lifehacker.com/no-statistic-will-help-you-beat-the-market-1833096827)
+> 原文：<https://lifehacker.com/no-statistic-will-help-you-beat-the-market-1833096827>
 
 凡事都有统计，尤其是在投资方面。作家和金融专家喜欢从市场中挑出细枝末节，并假设它们意味着关于经济状况的重大和爆炸性的事情——现在你也知道了，你就有了某种投资优势。(如果你关注了所有这些帖子，在过去几年里，大约有一百万个不同的指标闪现出衰退“即将来临”的迹象。)如果你愿意，你可以得到精确到第*秒*的市场信息。
 

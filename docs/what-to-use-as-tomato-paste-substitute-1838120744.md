@@ -1,6 +1,6 @@
 # 我可以用什么做番茄酱的替代品？
 
-> 原文:[https://the take out . com/what-to-use-as-tomato-paste-substitute-1838120744](https://thetakeout.com/what-to-use-as-tomato-paste-substitute-1838120744)
+> 原文：<https://thetakeout.com/what-to-use-as-tomato-paste-substitute-1838120744>
 
 几乎没有人记得买番茄酱。这是你认为理所当然的食品柜项目之一，假设总会有几个罐子藏在你橱柜的最深处。你以为你有番茄酱，但是，就在你需要的时候，你发现它不见了。
 

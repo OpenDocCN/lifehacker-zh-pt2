@@ -1,6 +1,6 @@
 # 这个“保持冷静”的视频系列对准妈妈来说很棒
 
-> 原文:[https://life hacker . com/this-stay-calm-video-series-is-great-for-准妈妈们-1844560426](https://lifehacker.com/this-stay-calm-video-series-is-great-for-expectant-moms-1844560426)
+> 原文：<https://lifehacker.com/this-stay-calm-video-series-is-great-for-expectant-moms-1844560426>
 
 怀孕可能是快乐和恐惧、兴奋和压力并存的时期——有时是同时并存。现在网上为孕妇提供的资源比以往任何时候都多，但有时真的看到和听到别人的经历也很好，尤其是在我们身体都如此孤立的时候。这就是为什么非常好家庭的“ [保持冷静妈妈](https://www.verywellfamily.com/stay-calm-mom-series-5070018) ”怀孕视频文件在正确的时间发布。
 

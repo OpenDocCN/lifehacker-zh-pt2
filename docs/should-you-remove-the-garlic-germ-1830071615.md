@@ -1,6 +1,6 @@
 # 应该去掉大蒜胚芽吗？
 
-> 原文:[https://life hacker . com/should-you-remove-the-大蒜胚芽-1830071615](https://lifehacker.com/should-you-remove-the-garlic-germ-1830071615)
+> 原文：<https://lifehacker.com/should-you-remove-the-garlic-germ-1830071615>
 
 如果你切过一些大蒜，你可能会注意到在蒜瓣中间有一个小芽，叫做“胚芽”与其他致病细菌不同，这种细菌不会伤害你，但去除它会让你的菜味道好一点(有时)。
 

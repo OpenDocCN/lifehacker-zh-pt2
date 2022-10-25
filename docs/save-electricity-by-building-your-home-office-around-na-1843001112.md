@@ -1,6 +1,6 @@
 # 将你的家庭办公室建在自然光的周围可以节约用电
 
-> 原文:[https://life hacker . com/save-electric-by-building-your-home-office-around-na-1843001112](https://lifehacker.com/save-electricity-by-building-your-home-office-around-na-1843001112)
+> 原文：<https://lifehacker.com/save-electricity-by-building-your-home-office-around-na-1843001112>
 
 我的家庭办公室藏在我的工作室公寓的角落里，离我朝西的窗户最远——但随着冠状病毒隔离的进展，我发现自己越来越不想坐在我的免税办公桌前，而越来越想站在厨房柜台前完成我的工作。
 

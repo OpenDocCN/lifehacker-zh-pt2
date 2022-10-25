@@ -1,6 +1,6 @@
 # 你应该租哪种婴儿用品而不是买？
 
-> 原文:[https://life hacker . com/which-baby-gear-should-you-rent-to-buy-1840857087](https://lifehacker.com/which-baby-gear-should-you-rent-instead-of-buy-1840857087)
+> 原文：<https://lifehacker.com/which-baby-gear-should-you-rent-instead-of-buy-1840857087>
 
 生孩子是一项昂贵的努力。医疗保健费用和为婴儿第一年的生活做准备的费用占了一大笔钱。随着婴儿的成长，他们的需求也在变化。没有办法预测你的孩子会多快过渡到这些阶段，这可能会带来一大堆不可预见的成本，包括衣柜和汽车座椅的升级。
 

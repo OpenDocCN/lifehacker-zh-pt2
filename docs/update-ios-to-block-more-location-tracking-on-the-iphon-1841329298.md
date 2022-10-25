@@ -1,6 +1,6 @@
 # 更新 iOS 以阻止 iPhone 11 上更多的位置跟踪
 
-> 原文:[https://life hacker . com/update-IOs-to-block-more-location-tracking-on-the-iphon-1841329298](https://lifehacker.com/update-ios-to-block-more-location-tracking-on-the-iphon-1841329298)
+> 原文：<https://lifehacker.com/update-ios-to-block-more-location-tracking-on-the-iphon-1841329298>
 
 iOS 13.3.1 和 iPadOS 13.3.1 昨天都退出了，增加了一些方便的功能，并修复了一些错误(我们在下面列出了这些错误)。iPhone 和 iPad 用户可以通过在他们的设备上进入**设置>通用>软件更新**来开始更新，尽管已经启用自动更新的用户可能已经安装了新版本。
 

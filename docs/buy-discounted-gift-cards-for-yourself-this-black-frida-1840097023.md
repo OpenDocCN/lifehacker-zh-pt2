@@ -1,6 +1,6 @@
 # 在这个黑色星期五和网络星期一为自己购买打折礼品卡
 
-> 原文:[https://life hacker . com/buy-discounted-gift-cards-for-yourself-this-black-Frida-1840097023](https://lifehacker.com/buy-discounted-gift-cards-for-yourself-this-black-frida-1840097023)
+> 原文：<https://lifehacker.com/buy-discounted-gift-cards-for-yourself-this-black-frida-1840097023>
 
 我家乡的一家当地餐馆在每个黑色星期五都会举办促销活动，如果顾客购买价值 20 美元的礼品卡，就可以免费获得价值 5 美元的礼品卡。这个想法是你买了一个 20 美元的作为礼物，在这个过程中你得到了一些东西。我看了几年，想如果把礼品卡送给我名单上的任何人都是有意义的，那将是一次很好的提升。后来有一天，我意识到我可以把所有的 25 美元都给自己。
 

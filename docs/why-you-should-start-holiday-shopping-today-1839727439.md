@@ -1,6 +1,6 @@
 # 为什么你应该从今天开始假日购物
 
-> 原文:[https://life hacker . com/why-you-should-start-holiday-shopping-today-1839727439](https://lifehacker.com/why-you-should-start-holiday-shopping-today-1839727439)
+> 原文：<https://lifehacker.com/why-you-should-start-holiday-shopping-today-1839727439>
 
 黑色星期五可能是传统的假日购物季的开始，但销售每年都开始得更早。这不是因为“圣诞怪癖”(你知道，商店在劳动节前后开始出售圣诞存货的可怕传统)。这是因为光棍节，你可能从未听说过的最大节日。
 

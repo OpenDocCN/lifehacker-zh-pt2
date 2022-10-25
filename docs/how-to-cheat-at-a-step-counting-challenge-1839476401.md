@@ -1,6 +1,6 @@
 # 如何在计步挑战中作弊
 
-> 原文:[https://life hacker . com/how-to-check-at-a-step-counting-challenge-1839476401](https://lifehacker.com/how-to-cheat-at-a-step-counting-challenge-1839476401)
+> 原文：<https://lifehacker.com/how-to-cheat-at-a-step-counting-challenge-1839476401>
 
 Fitbit 或其他计步挑战是激励自己变得活跃的好方法。但是话说回来，坐在沙发上假装你走了很多步更容易。这里有一些欺骗系统的方法，即使最终你只是在欺骗自己。
 

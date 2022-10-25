@@ -1,6 +1,6 @@
 # 用这款黄绿色鸡尾酒庆祝 Lifehacker 的 15 岁生日
 
-> 原文:[https://life hacker . com/practice-life hacker-15 岁生日用这张图表-1841389926](https://lifehacker.com/celebrate-lifehackers-15th-birthday-with-this-chartreus-1841389926)
+> 原文：<https://lifehacker.com/celebrate-lifehackers-15th-birthday-with-this-chartreus-1841389926>
 
 今天是 Lifehacker 的 15 岁生日。如果这个网站是人类的，那就不会老到可以享受鸡尾酒，但是在互联网上的 15 年相当于大约 37 个人类年，所以我认为我们很好。
 

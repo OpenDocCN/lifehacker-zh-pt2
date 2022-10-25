@@ -1,6 +1,6 @@
 # 用 Trebek 肯定音板振作起来
 
-> 原文:[https://life hacker . com/cheer-up-with-the-trebek-assertion-soundboard-1837909164](https://lifehacker.com/cheer-up-with-the-trebek-affirmation-soundboard-1837909164)
+> 原文：<https://lifehacker.com/cheer-up-with-the-trebek-affirmation-soundboard-1837909164>
 
 “没有人能像亚历克斯·崔贝克一样给人鼓励，”设计师和 30 年的《危险边缘》节目主持人说。守望者雷克斯·索加茨。受特雷贝克与胰腺癌斗争的启发，为了打破特雷贝克是一个“自以为是的势利小人”的神话，索加茨建造了 [特雷贝克肯定共鸣板](http://trebek-affirmations.com/) 。
 

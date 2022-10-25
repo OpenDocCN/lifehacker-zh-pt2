@@ -1,6 +1,6 @@
 # 广告拦截的最佳浏览器(非 Chrome)
 
-> 原文:[https://life hacker . com/the-best-browsers-for-ad-blocking-the-parent-chrome-1835130559](https://lifehacker.com/the-best-browsers-for-ad-blocking-that-arent-chrome-1835130559)
+> 原文：<https://lifehacker.com/the-best-browsers-for-ad-blocking-that-arent-chrome-1835130559>
 
 好像我们没有足够的理由让 [远离 Chrome](https://lifehacker.com/why-you-should-switch-from-google-chrome-to-firefox-1821879163) ，谷歌已经加倍努力改变内容屏蔽 [浏览器扩展](https://lifehacker.com/how-to-install-chrome-extensions-on-an-android-browser-1834279173)——包括广告屏蔽——在 Chrome 中的工作方式。
 

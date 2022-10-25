@@ -1,6 +1,6 @@
 # 如果你要求延期纳税，你仍需在 7 月 15 日前付款
 
-> 原文:[https://life hacker . com/if-you-request-a-tax-extension-you-have-to-pay-b-1844055288](https://lifehacker.com/if-you-request-a-tax-extension-you-still-have-to-pay-b-1844055288)
+> 原文：<https://lifehacker.com/if-you-request-a-tax-extension-you-still-have-to-pay-b-1844055288>
 
 由于纳税日已从 4 月 15 日推迟至 7 月 15 日，这意味着申请延期的截止日期也已推迟。这意味着你可以在 2020 年 7 月 15 日之前请求延期提交 2019 年纳税申报表。
 

@@ -1,6 +1,6 @@
 # 何时预订最便宜的阵亡将士纪念日航班
 
-> 原文:[https://life hacker . com/when-to-book-the-chief-memorial-day-flights-1834202477](https://lifehacker.com/when-to-book-the-cheapest-memorial-day-flights-1834202477)
+> 原文：<https://lifehacker.com/when-to-book-the-cheapest-memorial-day-flights-1834202477>
 
 再过几周就是阵亡将士纪念日了。如果你计划周末出游，那么现在是时候开始寻找航班了。
 

@@ -1,6 +1,6 @@
 # Google Play Pass 和 Apple Arcade:哪个应用订阅服务更好？
 
-> 原文:[https://life hacker . com/Google-play-pass-or-apple-arcade-which-app-subscriptio-1836890417](https://lifehacker.com/google-play-pass-or-apple-arcade-which-app-subscriptio-1836890417)
+> 原文：<https://lifehacker.com/google-play-pass-or-apple-arcade-which-app-subscriptio-1836890417>
 
 订阅风靡一时，原因显而易见。每个人都喜欢内容的“自助餐”模式——参见 [网飞](https://lifehacker.com/tag/coming-and-going) 等——在这种模式下，你只需支付合理的月费，就可以无限制地访问你感兴趣的内容，无论是纪录片、90 年代的电视节目，还是(现在的)应用程序。
 

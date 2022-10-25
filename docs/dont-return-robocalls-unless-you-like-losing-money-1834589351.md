@@ -1,6 +1,6 @@
 # 除非你喜欢赔钱，否则不要回自动电话
 
-> 原文:[https://life hacker . com/don-return-robo calls-除非你喜欢赔钱-1834589351](https://lifehacker.com/dont-return-robocalls-unless-you-like-losing-money-1834589351)
+> 原文：<https://lifehacker.com/dont-return-robocalls-unless-you-like-losing-money-1834589351>
 
 我每天至少会接到六个从我从未去过的城市的区号打来的电话——比如说得克萨斯州的圣安杰洛，或者伊利诺伊州的沃伦维尔的 T2。偶尔，我会接到加州老家打来的电话，担心是什么紧急情况。
 

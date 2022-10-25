@@ -1,6 +1,6 @@
 # 当你预算紧张的时候，做这道叙利亚砂锅菜
 
-> 原文:[https://life hacker . com/make-this-Syrian-kibbeh-scarboard-when-your-budget-t-1838262809](https://lifehacker.com/make-this-syrian-kibbeh-casserole-when-your-budget-is-t-1838262809)
+> 原文：<https://lifehacker.com/make-this-syrian-kibbeh-casserole-when-your-budget-is-t-1838262809>
 
 每当我遇到像我一样有中东血统的人，我保证在得知这个事实后的五分钟内，我会把话题转到 kibbeh。从那里，我们将不可避免地绕道进入泪眼模糊的回忆。我们可能还会争论制作这种中东主食的“正确”方法，这种主食通常是用碎肉片(通常是羊肉或牛肉)与保加利亚小麦和调味料捆绑在一起。
 

@@ -1,6 +1,6 @@
 # 如果你乘坐的是美国航空公司的航班，预计会延迟到劳动节之后
 
-> 原文:[https://jalopnik . com/if-you-flying-American-airlines-expect-delays-until-1835371374](https://jalopnik.com/if-youre-flying-american-airlines-expect-delays-until-1835371374)
+> 原文：<https://jalopnik.com/if-youre-flying-american-airlines-expect-delays-until-1835371374>
 
 早在三月， [波音 737 MAX](https://jalopnik.com/tag/boeing-737-max) 飞机 [停飞](https://jalopnik.com/boeing-737-max-jets-in-the-united-states-have-been-grou-1833273495) 在一次悲惨的埃塞俄比亚航空公司航班坠毁后，机上 157 人全部遇难。但是，是的——如果你乘坐的是美国航空**，你的航班仍有可能被推迟到九月初。**
 

@@ -1,6 +1,6 @@
 # 以下是移动轮胎安装的工作原理，以及你为什么想尝试它
 
-> 原文:[https://jalopnik . com/heres-how-mobile-tire-installation-works-and-why-you-mi-1837450361](https://jalopnik.com/heres-how-mobile-tire-installation-works-and-why-you-mi-1837450361)
+> 原文：<https://jalopnik.com/heres-how-mobile-tire-installation-works-and-why-you-mi-1837450361>
 
 移动汽车服务比你想象的更普遍。至少在洛杉矶，无论在哪里，都很容易找到技师、机械师，甚至是钣金喷漆技师来修理你的车。现在，你甚至可以安装和平衡轮胎。下面是它的工作原理，特别是我使用 ZipTire 的体验。
 

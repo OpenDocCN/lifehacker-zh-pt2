@@ -1,6 +1,6 @@
 # 如何在两周内启动你的写作项目
 
-> 原文:[https://life hacker . com/how-to-jump-start-your-writing project-in-two-weeks-1843543057](https://lifehacker.com/how-to-jump-start-your-writing-project-in-two-weeks-1843543057)
+> 原文：<https://lifehacker.com/how-to-jump-start-your-writing-project-in-two-weeks-1843543057>
 
 如果你一直在考虑写一部小说，起草一部戏剧，开始写日记或者只是记录你在这个奇怪的疫情的一年中所经历的事情，你可能想从承诺每天在纸上写下一些话开始。
 

@@ -1,6 +1,6 @@
 # 停产的 12 寸 MacBook 去哪里买
 
-> 原文:[https://life hacker . com/where-to-buy-the-discontinued-12 英寸 macbook-1836220069](https://lifehacker.com/where-to-buy-the-discontinued-12-inch-macbook-1836220069)
+> 原文：<https://lifehacker.com/where-to-buy-the-discontinued-12-inch-macbook-1836220069>
 
 苹果今天对其 MacBook 阵容 做了一些大的改变——包括取消超级便携的 12 英寸 MacBook，许多人选择的入门级 MacBook。虽然你不能再从苹果的官方商店购买苹果的 MacBook，但在它们永远消失之前，你仍然有一些选择可以得到一台。这也适用于苹果的其他削减:非视网膜显示屏 Macbook Air 和入门级 13 英寸 MacBook pro(减去 Touch Bar)。
 

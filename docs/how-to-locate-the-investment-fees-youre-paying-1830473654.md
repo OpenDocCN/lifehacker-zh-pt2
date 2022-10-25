@@ -1,6 +1,6 @@
 # 如何找到你支付的投资费用
 
-> 原文:[https://life hacker . com/how-to-locating-the-investment-fees-you-paying-1830473654](https://lifehacker.com/how-to-locate-the-investment-fees-youre-paying-1830473654)
+> 原文：<https://lifehacker.com/how-to-locate-the-investment-fees-youre-paying-1830473654>
 
 你上一次阅读 401(k)计划提供者发给你的电子邮件，或者下载你所投资的基金的说明书是什么时候？去年？你第一次注册的时候。从来没有？
 

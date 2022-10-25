@@ -1,6 +1,6 @@
 # 使用这个工具，根据气候选择你的下一个度假目的地
 
-> 原文:[https://life hacker . com/pick-your-next-vacation-destination-by-climate-using-th-1841116427](https://lifehacker.com/pick-your-next-vacation-destination-by-climate-using-th-1841116427)
+> 原文：<https://lifehacker.com/pick-your-next-vacation-destination-by-climate-using-th-1841116427>
 
 有时候你只是想去某个地方，任何可能温暖的地方。其他时候你住的地方可能是地狱，你会尽一切努力去一个不太潮湿的地方，那里需要一件夹克。无论你梦想什么样的气候， [Nomad List 的气候探测器](https://nomadlist.com/climate-finder) 都能帮你找到合适的地点，或者至少提供一点灵感。
 

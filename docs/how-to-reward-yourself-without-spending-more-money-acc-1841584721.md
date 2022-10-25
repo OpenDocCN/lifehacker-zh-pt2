@@ -1,6 +1,6 @@
 # 据 Reddit 报道，如何在不花更多钱的情况下奖励自己
 
-> 原文:[https://life hacker . com/how-to-reward yourself without spending-more money-ACC-1841584721](https://lifehacker.com/how-to-reward-yourself-without-spending-more-money-acc-1841584721)
+> 原文：<https://lifehacker.com/how-to-reward-yourself-without-spending-more-money-acc-1841584721>
 
 当你朝着一个主要的财务目标努力时，比如还清债务或存一大笔钱，一般的建议是将这个大的里程碑分解成 [个较小的目标](https://lifehacker.com/how-to-claw-your-way-out-of-a-financial-pit-of-despair-1837482515) 。每当你达成一个较小的目标，你就用一个小奖励来庆祝，以保持你在下一部分工作的动力。
 

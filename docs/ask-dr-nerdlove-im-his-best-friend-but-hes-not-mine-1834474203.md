@@ -1,6 +1,6 @@
 # 问问 NerdLove 博士:我是他最好的朋友，但他不是我的
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-im-his-best-friend-but-hes-not-mine-1834474203](https://kotaku.com/ask-dr-nerdlove-im-his-best-friend-but-hes-not-mine-1834474203)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-im-his-best-friend-but-hes-not-mine-1834474203>
 
 你好，性犯罪推特网上的所有普通人，欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是唯一一个帮助你从热爱游戏到拥有游戏的约会建议专栏。
 

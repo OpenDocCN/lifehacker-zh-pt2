@@ -1,6 +1,6 @@
 # 如何结束令人讨厌的谈话
 
-> 原文:[https://life hacker . com/how-to-get-out-of-unwanted-conversation-1834778598](https://lifehacker.com/how-to-get-out-of-an-unwanted-conversation-1834778598)
+> 原文：<https://lifehacker.com/how-to-get-out-of-an-unwanted-conversation-1834778598>
 
 在飞往内华达州的四小时飞行中，五分钟后，我发现自己坐在一名特朗普支持者的旁边。我知道这一点，因为我们一坐下，她就开始发表政治演说。我试图避开这场谈话，意识到和她辩论没有赢家。她继续说话，甚至在我戴上耳机看完整部电影之后。
 

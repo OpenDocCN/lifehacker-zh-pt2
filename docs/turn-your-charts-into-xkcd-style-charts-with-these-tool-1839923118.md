@@ -1,6 +1,6 @@
 # 使用这些工具将您的图表转换成 xkcd 风格的图表
 
-> 原文:[https://life hacker . com/turn-your-charts-into-xkcd-style-charts-with the-tool-1839923118](https://lifehacker.com/turn-your-charts-into-xkcd-style-charts-with-these-tool-1839923118)
+> 原文：<https://lifehacker.com/turn-your-charts-into-xkcd-style-charts-with-these-tool-1839923118>
 
 我相信图表。一个好的图表可以把一个重要的事实牢牢记在你的脑海里，并一直记在心里。其中一些最好的来自兰道尔·门罗的网络漫画 [xkcd](https://xkcd.com/) 。现在，如果您有数据并知道一点代码，您可以将任何图表转换成 xkcd 图表。
 

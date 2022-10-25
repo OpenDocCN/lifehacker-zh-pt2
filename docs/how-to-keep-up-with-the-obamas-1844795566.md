@@ -1,6 +1,6 @@
 # 如何跟上奥巴马一家
 
-> 原文:[https://life hacker . com/how-to-keep-up-the-Obama-1844795566](https://lifehacker.com/how-to-keep-up-with-the-obamas-1844795566)
+> 原文：<https://lifehacker.com/how-to-keep-up-with-the-obamas-1844795566>
 
 如果看着巴拉克和米歇尔本周在虚拟的民主党全国代表大会上的表现，你会有某种怀旧的感觉，你会很高兴地知道，有很多方法可以让你了解前第一家庭现在在做什么，特别是通过媒体。
 

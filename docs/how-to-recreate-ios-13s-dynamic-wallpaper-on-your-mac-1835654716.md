@@ -1,6 +1,6 @@
 # 如何在 Mac 上重建 iOS 13 的动态壁纸
 
-> 原文:[https://life hacker . com/how-to-recreate-IOs-13s-dynamic-wallpaper-on-your-MAC-1835654716](https://lifehacker.com/how-to-recreate-ios-13s-dynamic-wallpaper-on-your-mac-1835654716)
+> 原文：<https://lifehacker.com/how-to-recreate-ios-13s-dynamic-wallpaper-on-your-mac-1835654716>
 
 [Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)) : title[![](../Images/80a55aae3a4e6ac59b23fae8fccddf22.png)](https://applemacos.kinja.com)[Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)Many people turn to Macs because they're incredibly easy to operate. That's true, but there's still plenty worth knowing before you can truly master your Mac.
 

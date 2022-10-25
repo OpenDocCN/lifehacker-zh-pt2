@@ -1,6 +1,6 @@
 # 不要买罐装的切碎的西红柿
 
-> 原文:[https://life hacker . com/stop-buying-罐头-切碎的西红柿-1832396309](https://lifehacker.com/stop-buying-canned-chopped-tomatoes-1832396309)
+> 原文：<https://lifehacker.com/stop-buying-canned-chopped-tomatoes-1832396309>
 
 我一直不明白罐装切碎的西红柿有什么意义。它们的味道很少像去皮的同胞一样好，而且在烹饪时它们从来没有完全分解，在所有其他成分都变成糊状后很长时间都保持着立方体的形状。罪魁祸首？氯化钙。
 

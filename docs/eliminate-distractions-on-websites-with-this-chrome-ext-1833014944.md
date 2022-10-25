@@ -1,6 +1,6 @@
 # 使用 Chrome 扩展消除网站上的干扰
 
-> 原文:[https://life hacker . com/用这个 chrome-ext-1833014944](https://lifehacker.com/eliminate-distractions-on-websites-with-this-chrome-ext-1833014944)
+> 原文：<https://lifehacker.com/eliminate-distractions-on-websites-with-this-chrome-ext-1833014944>
 
 每当我坐下来完成一项大任务或大量阅读时，我最终变得非常容易分心。
 

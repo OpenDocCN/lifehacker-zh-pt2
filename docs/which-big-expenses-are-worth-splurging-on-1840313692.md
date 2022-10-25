@@ -1,6 +1,6 @@
 # 哪些大额支出值得挥霍？
 
-> 原文:[https://life hacker . com/1840313692](https://lifehacker.com/which-big-expenses-are-worth-splurging-on-1840313692)
+> 原文：<https://lifehacker.com/which-big-expenses-are-worth-splurging-on-1840313692>
 
 我们都被告知要尽可能多存钱。但是，有没有一些东西是值得多花点钱的呢？
 

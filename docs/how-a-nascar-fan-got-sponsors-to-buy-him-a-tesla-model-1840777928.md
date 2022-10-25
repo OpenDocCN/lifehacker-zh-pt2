@@ -1,6 +1,6 @@
 # 一个纳斯卡迷如何让赞助商给他买了一辆带有戴尔·恩哈特献礼的特斯拉 Model 3
 
-> 原文:[https://jalopnik . com/how-a-NASCAR-fan-get-sponsors-to-buy-him-a-Tesla-model-1840777928](https://jalopnik.com/how-a-nascar-fan-got-sponsors-to-buy-him-a-tesla-model-1840777928)
+> 原文：<https://jalopnik.com/how-a-nascar-fan-got-sponsors-to-buy-him-a-tesla-model-1840777928>
 
 自从他在 2001 年代托纳 500 中去世后，戴尔·恩哈特可能已经成为美国赛车界最受尊敬的车手。这位恐吓者激励了一代 [纳斯卡](https://jalopnik.com/c/racing) 车迷，人们继续通过在各种东西上扔他的制服来表达敬意，包括这辆 [特斯拉 Model 3](https://jalopnik.com/tag/tesla-model-3) 。
 

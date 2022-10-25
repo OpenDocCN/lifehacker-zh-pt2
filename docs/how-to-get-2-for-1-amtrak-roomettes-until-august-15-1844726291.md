@@ -1,6 +1,6 @@
 # 如何在 8 月 15 日之前买到买一送一的美国国家铁路客运公司套房
 
-> 原文:[https://life hacker . com/how-to-get-2-for-1-Amtrak-roomettes-to-August-15-1844726291](https://lifehacker.com/how-to-get-2-for-1-amtrak-roomettes-until-august-15-1844726291)
+> 原文：<https://lifehacker.com/how-to-get-2-for-1-amtrak-roomettes-until-august-15-1844726291>
 
 大约在 2020 年 3 月中旬，旅行计划从“也许我们能在阵亡将士纪念日周末去某个地方”变成了 到“也许我们能在 2022 年的假期里见到我们家庭的其他成员！”(太黑？)好吧，所以这还没*到*那么极端——有些人有机会从在自己家里就地躲避到打包汽车，开车去 Airbnb，然后在*不同的*家里就地躲避。鉴于我们的世界现在由生活在“泡泡”中构成，在这个“泡泡”中我们可以控制我们的环境，并感到(至少在某种程度上)更安全，所以 [房车旅行变得异常流行就不足为奇了。](https://www.vacationrenter.com/trends/rise-of-rv-popularity) 
 

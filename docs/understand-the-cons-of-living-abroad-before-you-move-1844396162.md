@@ -1,6 +1,6 @@
 # 搬家前要了解在国外生活的坏处
 
-> 原文:[https://life hacker . com/understand-the-cons-of-living-over-you-move-1844396162](https://lifehacker.com/understand-the-cons-of-living-abroad-before-you-move-1844396162)
+> 原文：<https://lifehacker.com/understand-the-cons-of-living-abroad-before-you-move-1844396162>
 
 我是一名环球旅行家和自豪的外籍人士，我已经在美国境外生活了多年。这意味着人们经常向我寻求关于移居国外的建议。其中最常出现的一个问题非常简单:“有哪些缺点？”我们来复习一下。
 

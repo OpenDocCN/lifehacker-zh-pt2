@@ -1,6 +1,6 @@
 # 将珍珠洋葱变成美味的烧焦的球体
 
-> 原文:[https://life hacker . com/transform-pearl-onions-into-savory-carked-orbs-1845056629](https://lifehacker.com/transform-pearl-onions-into-savory-charred-orbs-1845056629)
+> 原文：<https://lifehacker.com/transform-pearl-onions-into-savory-charred-orbs-1845056629>
 
 你可能知道，也可能不知道，我居住的俄勒冈州波特兰市目前情况很糟糕。我不会在这里列出我们所有的疾病，但此时此刻最紧迫的问题是空气，这是不好的。我一直试图呆在我的公寓里以避免它，这意味着我已经不能去杂货店那么多。(我已经不怎么去了，因为疫情，它仍然非常真实！)
 

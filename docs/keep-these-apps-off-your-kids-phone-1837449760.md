@@ -1,6 +1,6 @@
 # 让这些应用远离你孩子的手机
 
-> 原文:[https://life hacker . com/keep-these-apps-off-your-kids-phone-1837449760](https://lifehacker.com/keep-these-apps-off-your-kids-phone-1837449760)
+> 原文：<https://lifehacker.com/keep-these-apps-off-your-kids-phone-1837449760>
 
 无论你设法拖延他们多久，在某个时候，你的孩子将拥有他们自己的电子设备，他们将使用这些设备与他人交流。首先是朋友和家人，但最终也是陌生人。
 

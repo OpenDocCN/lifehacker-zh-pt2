@@ -1,6 +1,6 @@
 # 来自我们读者的最佳北京旅游建议
 
-> 原文:[https://life hacker . com/the-best-Beijing-travel-tips-from-our-readers-1831056207](https://lifehacker.com/the-best-beijing-travel-tips-from-our-readers-1831056207)
+> 原文：<https://lifehacker.com/the-best-beijing-travel-tips-from-our-readers-1831056207>
 
 直奔北京，[贸易战](https://www.bloomberg.com/news/articles/2018-12-12/trade-war-damage-to-china-s-economy-is-already-done-citi-says) 该死？ [给自己弄个 VPN](https://lifehacker.com/the-beginners-guide-to-vpns-1819912770) 这样你就可以在防火长城之外上网了。《Hack Your City》的读者本周第二次来到中国， [为首都城市提供旅行建议](https://lifehacker.com/tell-us-your-best-beijing-travel-tips-1830982915#_ga=2.137781936.1068153708.1544451824-1297080755.1497980211) 。他们指出哪些著名景点被高估了，哪些街区正在兴起，哪些食物可以吃(全部)。以下是他们最棒的建议。
 

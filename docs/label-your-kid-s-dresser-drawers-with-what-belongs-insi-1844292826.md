@@ -1,6 +1,6 @@
 # 给孩子的梳妆台抽屉贴上标签，标明里面的物品
 
-> 原文:[https://life hacker . com/label-your-kid-s-dresser-drawers-with what-belong-insi-1844292826](https://lifehacker.com/label-your-kid-s-dresser-drawers-with-what-belongs-insi-1844292826)
+> 原文：<https://lifehacker.com/label-your-kid-s-dresser-drawers-with-what-belongs-insi-1844292826>
 
 如果你的孩子不愿意收拾衣服、玩具或其他物品，很有可能他们只是不想收拾。但如果这已经成为一场常规的战斗，他们对要求的反对似乎与要求不相称，那么可能有更深层的原因在起作用。他们可能真的搞不清楚哪些物品该放在哪里。
 

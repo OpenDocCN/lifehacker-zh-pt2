@@ -1,6 +1,6 @@
 # 问问心理学家你是否在美国东部时间下午 1 点打扰了你的孩子
 
-> 原文:[https://life hacker . com/ask-a-psychologist-if-you-messing-up-your-kids-at-1-p-1835804870](https://lifehacker.com/ask-a-psychologist-if-youre-messing-up-your-kids-at-1-p-1835804870)
+> 原文：<https://lifehacker.com/ask-a-psychologist-if-youre-messing-up-your-kids-at-1-p-1835804870>
 
 养育子女(至少我是这么听说的)本质上是一项终生的练习，在这个过程中你会发现很多事情。一路走来，你的孩子几乎肯定遇到过这样的情况，你会想，哦，孩子，他们几年后会和治疗师讨论这个问题吗？
 

@@ -1,6 +1,6 @@
 # 将调味料粉碎，然后撒在爆米花上
 
-> 原文:[https://life hacker . com/粉化-调味料-在将它们洒在爆米花上之前-1831437477](https://lifehacker.com/pulverize-seasonings-before-sprinkling-them-on-popcorn-1831437477)
+> 原文：<https://lifehacker.com/pulverize-seasonings-before-sprinkling-them-on-popcorn-1831437477>
 
 人们低估了爆米花的多功能性。没错，这是一道完美的小吃，但当搭配一杯葡萄酒和一些烤橄榄 时，它也是一顿不错的晚餐。而且，鉴于它是一整粒谷物，我认为没有人会因为你早餐吃它而责备你。(基本都是燕麦片。)这几乎是完美的，让它更完美的最好方法是在你开始洒之前把你的调味料粉碎。
 

@@ -1,6 +1,6 @@
 # 四年级学生可以免费获得一张他们全家的国家公园通行证
 
-> 原文: [https://lifehacker.com/四年级学生可以免费获得国家公园通行证 1841498338](https://lifehacker.com/4th-graders-can-get-a-free-national-parks-pass-good-for-1841498338)
+> 原文：<https://lifehacker.com/4th-graders-can-get-a-free-national-parks-pass-good-for-1841498338>
 
 如果你有一个四年级的孩子，那么你的整个家庭都有资格通过“每个孩子户外活动”计划在本学年免费参观国家公园。
 

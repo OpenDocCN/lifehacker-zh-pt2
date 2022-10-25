@@ -1,6 +1,6 @@
 # 这些电影将帮助你理解刑事司法中的种族差异
 
-> 原文:[https://life hacker . com/these-movies-will-help-you-understand-racial-disparitie-1843862247](https://lifehacker.com/these-movies-will-help-you-understand-racial-disparitie-1843862247)
+> 原文：<https://lifehacker.com/these-movies-will-help-you-understand-racial-disparitie-1843862247>
 
 在美国，刑事司法系统被认为是世界上最公平公正的 T2 之一。然而，在中，谁受到的对待更严厉，谁可以在没有任何承认自己首先犯了罪的情况下离开，这两者之间存在许多差异。
 

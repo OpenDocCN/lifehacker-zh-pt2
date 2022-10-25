@@ -1,6 +1,6 @@
 # 拥有一栋房子的成本远不止是抵押贷款
 
-> 原文:[https://life hacker . com/owning-a-home-costs-way-than-just-the-more-more-more the mortgage-1835120312](https://lifehacker.com/owning-a-home-costs-way-more-than-just-the-mortgage-1835120312)
+> 原文：<https://lifehacker.com/owning-a-home-costs-way-more-than-just-the-mortgage-1835120312>
 
 买房的隐性成本本质上并不是秘密，而是在买房过程中难以预测的费用。
 

@@ -1,6 +1,6 @@
 # 如何从人体工程学角度优化你的工作空间
 
-> 原文:[https://life hacker . com/how-to-herometric-optimize-your-workspace-30833302](https://lifehacker.com/how-to-ergonomically-optimize-your-workspace-30833302)
+> 原文：<https://lifehacker.com/how-to-ergonomically-optimize-your-workspace-30833302>
 
 如果你一天大部分时间都坐在办公桌前，那么你很有可能知道一天结束时这种感觉有多糟糕。以下是如何建立一个符合人体工程学的工作空间，让你舒适和不受伤害。
 

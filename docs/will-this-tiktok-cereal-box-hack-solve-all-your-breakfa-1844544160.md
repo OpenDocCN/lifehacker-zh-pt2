@@ -1,6 +1,6 @@
 # 这个抖音麦片盒子能解决你所有的早餐问题吗？
 
-> 原文:[https://life hacker . com/will-this-tiktok-麦片盒-hack-solve-all-your-break fa-1844544160](https://lifehacker.com/will-this-tiktok-cereal-box-hack-solve-all-your-breakfa-1844544160)
+> 原文：<https://lifehacker.com/will-this-tiktok-cereal-box-hack-solve-all-your-breakfa-1844544160>
 
 一个 [病毒黑客已经在抖音](https://www.buzzfeed.com/kristatorres/a-hack-for-folding-cereal-boxes-on-tiktok) 上流传了一段时间。在#CerealBoxChallenge 的无数视频中(抖音使用标签吗？我老了...)人们展示了如何不用麦片盒子里的标签，而是把盒子的侧面和顶部折叠起来，做成一个可爱的小“礼品盒”,里面装着糖果。
 

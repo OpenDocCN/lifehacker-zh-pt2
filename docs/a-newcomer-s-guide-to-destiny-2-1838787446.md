@@ -1,6 +1,6 @@
 # 新人命运指南 2
 
-> 原文:[https://kotaku . com/a-新人-s-命运指南-2-1838787446](https://kotaku.com/a-newcomer-s-guide-to-destiny-2-1838787446)
+> 原文：<https://kotaku.com/a-newcomer-s-guide-to-destiny-2-1838787446>
 
 本周，Bungie 的长期科幻电影《命运 2》进行了彻底的检修。随着 [*暗影守卫*资料片](https://kotaku.com/destiny-2-shadowkeep-is-full-of-mysteries-that-will-ki-1838678935) 的推出，长期玩家被引入了一些相当广泛的变化。对于其他人来说，*命运 2:新光*将基础游戏免费开放，欢迎大量新玩家加入战斗。
 

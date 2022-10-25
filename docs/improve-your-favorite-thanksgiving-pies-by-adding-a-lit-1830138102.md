@@ -1,6 +1,6 @@
 # 加入一点味噌来改善你最喜欢的感恩节馅饼
 
-> 原文:[https://life hacker . com/improve-your-favorite-thanksgivity-pies-by-add-a-lit-1830138102](https://lifehacker.com/improve-your-favorite-thanksgiving-pies-by-adding-a-lit-1830138102)
+> 原文：<https://lifehacker.com/improve-your-favorite-thanksgiving-pies-by-adding-a-lit-1830138102>
 
 感恩节菜单并不完全是创新的摇篮。有些人拒绝打乱传统，而调整经典可能是一场真正的赌博——尤其是在馅饼方面。但是，如果你厌倦了同样的旧南瓜和山核桃，那就加入一点点味增酱，看着强硬的传统主义者和激进的派无政府主义者争夺最后一片。
 

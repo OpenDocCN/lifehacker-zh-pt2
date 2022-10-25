@@ -1,6 +1,6 @@
 # 伯尼·桑德斯计划如何支付一切
 
-> 原文:[https://life hacker . com/how-Bernie-Sanders-plans-to-pay-of-everything-1841931880](https://lifehacker.com/how-bernie-sanders-plans-to-pay-for-everything-1841931880)
+> 原文：<https://lifehacker.com/how-bernie-sanders-plans-to-pay-for-everything-1841931880>
 
 总统候选人伯尼·桑德斯在过去的几个月里承诺取消学生债务，为每个人提供医疗保险，并阻止气候变化。但专家和其他候选人也花了同样多的时间问桑德斯他将如何支付所有这些费用。本周，桑德斯的竞选团队概述了一项预算 [来资助他的政策计划](https://berniesanders.com/issues/how-does-bernie-pay-his-major-plans/) 。
 

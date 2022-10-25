@@ -1,6 +1,6 @@
 # 停电后，你的冰箱还能冷藏多久？
 
-> 原文:[https://life hacker . com/how-long-when-your ' s lure-stay-cold-after power-go-o-1844689756](https://lifehacker.com/how-long-will-your-freezer-stay-cold-after-power-goes-o-1844689756)
+> 原文：<https://lifehacker.com/how-long-will-your-freezer-stay-cold-after-power-goes-o-1844689756>
 
 我相信反复思考最坏的情况通常是无益的，但我也是一名童子军，座右铭“做好准备”是我心灵中不可磨灭的一部分。为任何紧急情况“做好准备”的最好方法之一就是在冰箱里储存额外的食物。然而，冰箱需要电力，如果你失去电力，你的食物最终会解冻。这就是为什么我们有必要知道在长时间断电的情况下，你的冰箱能保持多长时间的低温。
 

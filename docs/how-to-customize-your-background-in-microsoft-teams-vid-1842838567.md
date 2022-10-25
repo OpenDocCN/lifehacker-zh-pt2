@@ -1,6 +1,6 @@
 # 如何在 Microsoft Teams 视频通话中自定义您的背景
 
-> 原文:[https://life hacker . com/how-to-customize-your-background-in-Microsoft-teams-vid-1842838567](https://lifehacker.com/how-to-customize-your-background-in-microsoft-teams-vid-1842838567)
+> 原文：<https://lifehacker.com/how-to-customize-your-background-in-microsoft-teams-vid-1842838567>
 
 微软的大型办公通讯应用微软团队(Microsoft Teams)正在获得一个有趣的新功能，使其与 Zoom 一样古怪。你现在可以假装自己在沙滩上，在某个遥远的城市，在月球上，或者在视频通话时坐在你最喜欢的 meme 面前——是的，定制背景正在推出，这是所有视频会议应用都应该有的一个愚蠢的功能。
 

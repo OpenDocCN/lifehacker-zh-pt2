@@ -1,6 +1,6 @@
 # 储存剩余罐装西红柿或肉汤的最佳方法
 
-> 原文:[https://life hacker . com/the-best-way-to-store 剩余的罐装西红柿或肉汤-1841907353](https://lifehacker.com/the-best-way-to-store-leftover-canned-tomatoes-or-broth-1841907353)
+> 原文：<https://lifehacker.com/the-best-way-to-store-leftover-canned-tomatoes-or-broth-1841907353>
 
 这个问题从我做菜开始就一直困扰着我。我想在配菜或一锅酱里加一点罐装番茄丁，但我不想加整个该死的罐头。所以我把剩菜倒进一个玻璃容器，冷藏起来以备后用。只是到了“以后”的时候，已经过了 10 天了，那些西红柿看起来很不确定。
 

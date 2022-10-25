@@ -1,6 +1,6 @@
 # 在 Alexa 上创建一个家庭家务图表
 
-> 原文:[https://life hacker . com/create-a-family-Jerry-chart-on-Alexa-1836010549](https://lifehacker.com/create-a-family-chore-chart-on-alexa-1836010549)
+> 原文：<https://lifehacker.com/create-a-family-chore-chart-on-alexa-1836010549>
 
 对于家庭琐事，孩子们经常花更多的时间去抗议，而花更少的时间去做真正的工作。(“轮到斯佳丽卸洗碗机了！”“不，该柳树了！”)一个解决方案:让 Alexa 负责。
 

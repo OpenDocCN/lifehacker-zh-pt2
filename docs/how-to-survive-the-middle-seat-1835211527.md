@@ -1,6 +1,6 @@
 # 如何在中座生存
 
-> 原文:[https://life hacker . com/how-to-survive-the-middle-seat-1835211527](https://lifehacker.com/how-to-survive-the-middle-seat-1835211527)
+> 原文：<https://lifehacker.com/how-to-survive-the-middle-seat-1835211527>
 
 你现在正被决斗中的陌生人用手肘戳中腹部吗？在飞机上，你必须坐在中间的座位。我们很抱歉。
 

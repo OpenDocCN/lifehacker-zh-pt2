@@ -1,6 +1,6 @@
 # 当你被困在家里时如何节约能源
 
-> 原文:[https://life hacker . com/how-to-save-energy-when you-stack-in-home-1842411651](https://lifehacker.com/how-to-save-energy-when-youre-stuck-at-home-1842411651)
+> 原文：<https://lifehacker.com/how-to-save-energy-when-youre-stuck-at-home-1842411651>
 
 你现在在家的时间很有可能比以往任何时候都多。也许你在家工作。你的搭档在家工作。你的孩子不在学校。你的宠物在你身上。这本身就需要处理很多事情。
 

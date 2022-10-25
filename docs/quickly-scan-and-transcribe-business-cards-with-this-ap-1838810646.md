@@ -1,6 +1,6 @@
 # 使用此应用程序快速扫描和转录名片
 
-> 原文:[https://life hacker . com/quick-scan-and-transcripte-business-cards-with this-AP-1838810646](https://lifehacker.com/quickly-scan-and-transcribe-business-cards-with-this-ap-1838810646)
+> 原文：<https://lifehacker.com/quickly-scan-and-transcribe-business-cards-with-this-ap-1838810646>
 
 我讨厌名片。
 

@@ -1,6 +1,6 @@
 # 如何知道你是否应该重新抵押贷款
 
-> 原文:[https://life hacker . com/how-to-know-if-you-should-refinance-your mortgage-1844406684](https://lifehacker.com/how-to-know-if-you-should-refinance-your-mortgage-1844406684)
+> 原文：<https://lifehacker.com/how-to-know-if-you-should-refinance-your-mortgage-1844406684>
 
 今天， [房地美宣布](http://www.freddiemac.com/pmms/#) 抵押贷款利率创下纪录: 30 年期抵押贷款利率近 50 年来首次降至 3%以下。正如华尔街日报 [报道](https://www.wsj.com/articles/30-year-mortgage-rate-reaches-lowest-level-ever-2-98-11594908357) 的那样，在过去的连续三个周里，我国最受欢迎的抵押贷款利率已经达到了历史最低点。
 

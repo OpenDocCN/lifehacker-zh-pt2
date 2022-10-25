@@ -1,6 +1,6 @@
 # 问咸的女服务员:我可以从餐馆拿走多余的调料包吗？
 
-> 原文:[https://the take out . com/can-I-take-调味品包-from-restaurants-1838948215](https://thetakeout.com/can-i-take-condiment-packets-from-restaurants-1838948215)
+> 原文：<https://thetakeout.com/can-i-take-condiment-packets-from-restaurants-1838948215>
 
 > 嗨，咸咸的，这是常见的地方像饼干桶带来的东西到你的餐桌上吃饭。他们会带来成包的黄油、果酱，如果你点煎饼，他们会带来 2-4 小瓶糖浆。我一直想知道，你碰都没碰过的东西会怎么样？出于卫生原因，餐馆被要求扔掉所有东西吗？
 > 

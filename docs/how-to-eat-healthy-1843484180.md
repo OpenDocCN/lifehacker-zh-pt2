@@ -1,6 +1,6 @@
 # 如何健康饮食
 
-> 原文:[https://lifehacker.com/how-to-eat-healthy-1843484180](https://lifehacker.com/how-to-eat-healthy-1843484180)
+> 原文：<https://lifehacker.com/how-to-eat-healthy-1843484180>
 
 健康饮食对你有好处，不管你是谁或你的目标是什么。但是知道从哪里开始可能会很棘手(特别是如果你没有减肥的重点)，所以这里是你健康饮食的基本指南。
 

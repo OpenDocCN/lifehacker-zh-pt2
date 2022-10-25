@@ -1,6 +1,6 @@
 # 如何送一份不带有侮辱性的健身礼物
 
-> 原文:[https://life hacker . com/how-to-give-a-fitness-gift-that-not-侮辱性的 1840318595](https://lifehacker.com/how-to-give-a-fitness-gift-thats-not-insulting-1840318595)
+> 原文：<https://lifehacker.com/how-to-give-a-fitness-gift-thats-not-insulting-1840318595>
 
 健身器材今年比往年更受欢迎。长时间的干旱后，壶铃和杠铃偶尔会重新上市，如果你能买到一个 Peloton ，你就是幸运者之一。如果你爱的人是一个敬业的工作者，一辆室内自行车或一套哑铃可能是今年的绝佳礼物。但是这种送礼方式也有陷阱。
 

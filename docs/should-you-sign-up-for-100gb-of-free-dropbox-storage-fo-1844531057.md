@@ -1,6 +1,6 @@
 # 你应该在 Chromebook 上注册 100GB 的免费 Dropbox 存储空间吗？
 
-> 原文:[https://life hacker . com/should-you-sign-up-for-100 GB-of-free-Dropbox-storage-fo-1844531057](https://lifehacker.com/should-you-sign-up-for-100gb-of-free-dropbox-storage-fo-1844531057)
+> 原文：<https://lifehacker.com/should-you-sign-up-for-100gb-of-free-dropbox-storage-fo-1844531057>
 
 购买 Chromebook 的最大好处之一是仔细阅读谷歌在你购买的基础上提供的所有交易。(你知道这些交易，对吗？诚然，许多这些“额外津贴”实际上是延长或加强的试用优惠，旨在让你迷上你可能不会购买的订阅，但这不是你不利用它们的理由。
 

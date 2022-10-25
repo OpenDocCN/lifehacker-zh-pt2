@@ -1,6 +1,6 @@
 # 在美国境内飞行真的需要真实的身份证吗？
 
-> 原文:[https://life hacker . com/will-you-real-need-a-real-id-in-u-s-1833914044](https://lifehacker.com/will-you-really-need-a-real-id-to-fly-within-the-u-s-1833914044)
+> 原文：<https://lifehacker.com/will-you-really-need-a-real-id-to-fly-within-the-u-s-1833914044>
 
 早在 2018 年 1 月，像 [加州](https://www.dmv.ca.gov/portal/dmv/detail/pubs/newsrel/2018/2018_07) 、 [马萨诸塞州、](https://insights.travelandtransport.com/travel-and-transport/real-id-act-goes-into-effect-for-travelers-january-22-2018) 和罗德岛等州就开始陆续推出“真正的 ID”卡。好奇这是什么，它的各种要求或它可能对您产生的影响？以下是你需要知道的关于真实身份证的真正价值。
 

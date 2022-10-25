@@ -1,6 +1,6 @@
 # 确保您在该系统中始终有一个干净的面罩
 
-> 原文:[https://life hacker . com/assure-you-always-hake-a-clean-mask with this-system-1844717019](https://lifehacker.com/ensure-you-always-have-a-clean-mask-with-this-system-1844717019)
+> 原文：<https://lifehacker.com/ensure-you-always-have-a-clean-mask-with-this-system-1844717019>
 
 我住在纽约市，在那里，我很高兴地报告，绝大多数人外出时都戴着口罩。这很可能与我们为什么设法使新冠肺炎曲线变平并保持平坦有关——将我们的日感染率从疫情早期 71%的可怕高位 [压缩到 6 月初的约 1%](https://www.marketwatch.com/story/once-as-high-as-71-new-york-citys-daily-infection-rate-dwindles-to-1-2020-06-09) ，并将 [保持在那里](https://gothamist.com/news/coronavirus-statistics-tracking-epidemic-new-york) 。这样做的坏处是，我已经开始看到许多丢弃的一次性口罩 [扔在我们的街道和海滩](https://www.nytimes.com/2020/07/25/climate/covid-masks-discarded.html) 上，我觉得这绝对令人厌恶——考虑到纽约街道的通常状态，这就说明了一些问题。我希望更多的人会选择可重复使用的口罩。它们不仅对环境更好，而且如果你有一个适当的系统来管理你的清洁口罩库存，它们也一样方便。
 

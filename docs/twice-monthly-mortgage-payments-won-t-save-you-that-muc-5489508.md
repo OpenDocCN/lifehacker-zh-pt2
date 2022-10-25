@@ -1,6 +1,6 @@
 # 每月两次的抵押贷款不会给你省下那么多钱
 
-> 原文:[https://life hacker . com/twice-monthly-mortgage-payments-won-t-save-you-that-muc-5489508](https://lifehacker.com/twice-monthly-mortgage-payments-won-t-save-you-that-muc-5489508)
+> 原文：<https://lifehacker.com/twice-monthly-mortgage-payments-won-t-save-you-that-muc-5489508>
 
 对于你不得不支付的每一笔大额购买，有一个技巧可以让你试着不那么痛苦。有些人比其他人工作得更好。
 

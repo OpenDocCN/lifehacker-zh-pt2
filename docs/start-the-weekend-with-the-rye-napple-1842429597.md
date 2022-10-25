@@ -1,6 +1,6 @@
 # 以黑麦午睡开始周末
 
-> 原文:[https://life hacker . com/start-the weekend with the rye-napple-1842429597](https://lifehacker.com/start-the-weekend-with-the-rye-napple-1842429597)
+> 原文：<https://lifehacker.com/start-the-weekend-with-the-rye-napple-1842429597>
 
 虽然我有一个强大的酒吧推车的情况下，我很少在家喝酒。至少我*以前*在家很少喝酒。自从我开始在社交上保持距离，我重新发现了一些被遗忘的瓶子，比如我的好朋友:菠萝朗姆酒。
 

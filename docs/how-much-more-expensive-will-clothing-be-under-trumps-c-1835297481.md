@@ -1,6 +1,6 @@
 # 在特朗普的中国进口关税下，服装会贵多少？
 
-> 原文:[https://life hacker . com/how-more-more-biggy-will-clothing-be-under-trumps-c-1835297481](https://lifehacker.com/how-much-more-expensive-will-clothing-be-under-trumps-c-1835297481)
+> 原文：<https://lifehacker.com/how-much-more-expensive-will-clothing-be-under-trumps-c-1835297481>
 
 到现在为止，你可能已经听说，增加从中国进口的关税可能会影响从运动鞋到庭院家具的所有东西的成本，高达 25%。
 

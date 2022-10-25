@@ -1,6 +1,6 @@
 # 你应该现在购买航空里程吗？
 
-> 原文:[https://life hacker . com/should-you-buy-airline-miles-right-now-1843547753](https://lifehacker.com/should-you-buy-airline-miles-right-now-1843547753)
+> 原文：<https://lifehacker.com/should-you-buy-airline-miles-right-now-1843547753>
 
 无论你有多怀念旅行，你可能都不会对即将登上飞机的前景感到兴奋。但是航空公司知道，最终，人们将再次开始飞行——当那个时刻到来时，他们希望座位上有屁股。因此，你可能已经看到促销邮件发送到你的收件箱，为你最喜欢的航空公司提供大折扣的里程。
 

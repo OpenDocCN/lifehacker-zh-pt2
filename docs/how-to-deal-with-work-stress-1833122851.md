@@ -1,6 +1,6 @@
 # 如何应对工作压力
 
-> 原文:[https://life hacker . com/how-to-process-of-work-stress-1833122851](https://lifehacker.com/how-to-deal-with-work-stress-1833122851)
+> 原文：<https://lifehacker.com/how-to-deal-with-work-stress-1833122851>
 
 想想你最近一次尴尬的互动，或者在工作中犯了一个小错误。你的反应是什么？
 

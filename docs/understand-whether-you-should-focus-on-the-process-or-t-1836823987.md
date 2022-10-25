@@ -1,6 +1,6 @@
 # 明白你应该关注过程还是产品
 
-> 原文:[https://life hacker . com/understand-you-just-focus-on-the-process-or-t-1836823987](https://lifehacker.com/understand-whether-you-should-focus-on-the-process-or-t-1836823987)
+> 原文：<https://lifehacker.com/understand-whether-you-should-focus-on-the-process-or-t-1836823987>
 
 当我在大学的时候，我有一个指导老师，他一直告诉我要关注过程，而不是结果。我不太善于遵循这个建议，部分原因是我没有真正理解它的含义。
 

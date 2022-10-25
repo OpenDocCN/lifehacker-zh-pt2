@@ -1,6 +1,6 @@
 # 这是宝宝睡觉最安全的方式
 
-> 原文:[https://life hacker . com/this-is-the-safe-to-your-baby-sleep-1839325875](https://lifehacker.com/this-is-the-safest-way-for-your-baby-to-sleep-1839325875)
+> 原文：<https://lifehacker.com/this-is-the-safest-way-for-your-baby-to-sleep-1839325875>
 
 婴儿的父母既缺乏睡眠，又沉迷于睡眠。婴儿睡觉很重要，这样父母才有希望得到一点他们自己的休息，这就是我们如何能很快达到“尽一切努力”的策略。但是越来越多的报道显示，一些父母使用和喜爱的产品对他们熟睡的婴儿不安全。现在排在首位的是在床上睡觉的人。
 

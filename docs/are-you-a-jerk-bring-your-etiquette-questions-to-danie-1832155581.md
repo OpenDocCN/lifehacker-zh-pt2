@@ -1,6 +1,6 @@
 # 你是个混蛋吗？明天美国东部时间下午 1 点，带着你的礼仪问题去丹尼尔·波斯特·森宁那里寻找答案
 
-> 原文:[https://life hacker . com/are-you-a-jerk-bring-your-礼节问题-to-danie-1832155581](https://lifehacker.com/are-you-a-jerk-bring-your-etiquette-questions-to-danie-1832155581)
+> 原文：<https://lifehacker.com/are-you-a-jerk-bring-your-etiquette-questions-to-danie-1832155581>
 
 也许你在撰写完美的 Tinder 简历方面有困难。比方说，你认为给你的岳母寄一张感谢卡，因为你没有要那件奇怪的毛衣，这可能是个好主意，但可能有点过头了。也许你下周第一次举办晚宴，你想知道该使用什么样的餐具。(小叉子还是个东西吗？)
 

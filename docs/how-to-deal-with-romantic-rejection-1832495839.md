@@ -1,6 +1,6 @@
 # 避免这些对拒绝的不健康反应
 
-> 原文:[https://life hacker . com/how-to-deal-with-romantic-rejection-1832495839](https://lifehacker.com/how-to-deal-with-romantic-rejection-1832495839)
+> 原文：<https://lifehacker.com/how-to-deal-with-romantic-rejection-1832495839>
 
 所以，你被拒绝了。也许有人拒绝了你，也许你被甩了，也许你的伴侣要求“空间”你如何赢回他们？不要。
 

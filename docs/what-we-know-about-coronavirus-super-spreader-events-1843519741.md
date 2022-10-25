@@ -1,6 +1,6 @@
 # 我们对冠状病毒超级传播者事件的了解
 
-> 原文:[https://life hacker . com/what-we-know-about-coronavirus-super-spreader-events-1843519741](https://lifehacker.com/what-we-know-about-coronavirus-super-spreader-events-1843519741)
+> 原文：<https://lifehacker.com/what-we-know-about-coronavirus-super-spreader-events-1843519741>
 
 3 月 10 日，在越来越多的冠状病毒在美国传播的报道中，华盛顿州的一个合唱团决定继续练习。这次排练持续了两个半小时，合唱团通常有 122 名成员，其中有 61 名参加了排练，参加者采取了预防措施，不要过多地交往。最终，据美国疾病控制与预防中心 最近的一份报告显示，估计 87%的与会者后来都生病了。
 

@@ -1,6 +1,6 @@
 # 先买便宜的东西
 
-> 原文:[https://lifehacker.com/buy-the-cheap-thing-first-1832358114](https://lifehacker.com/buy-the-cheap-thing-first-1832358114)
+> 原文：<https://lifehacker.com/buy-the-cheap-thing-first-1832358114>
 
 质量要花钱。任何运动器材、鞋子或装备的廉价版本都不会像好东西 那样好。很快就会分崩离析。而且无论如何你都应该买。
 

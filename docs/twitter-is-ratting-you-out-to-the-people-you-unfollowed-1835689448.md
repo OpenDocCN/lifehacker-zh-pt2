@@ -1,6 +1,6 @@
 # twitter 向你不关注的人大声疾呼
 
-> 原文:[https://life hacker . com/Twitter-is-ratting-out-of-the-people-you-un followed-1835689448](https://lifehacker.com/twitter-is-ratting-you-out-to-the-people-you-unfollowed-1835689448)
+> 原文：<https://lifehacker.com/twitter-is-ratting-you-out-to-the-people-you-unfollowed-1835689448>
 
 如果你现在在 Twitter 上取消关注某人，Twitter 可能会向他们发送通知。多亏了这个已经活跃了一个多星期的 bug，当 Y 实际上*没有关注* X 时，用户 X 可能会收到“Y 关注了你”的通知。Twitter 已经 [告诉多家新闻媒体](https://www.vice.com/en_us/article/mb849v/a-nightmare-twitter-bug-is-sending-users-notifications-when-theyre-unfollowed) 它正在进行修复。同时，如果你不想让任何人知道，就不要取消关注他们。
 

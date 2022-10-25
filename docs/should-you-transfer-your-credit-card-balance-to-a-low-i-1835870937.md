@@ -1,6 +1,6 @@
 # 你应该把你的信用卡余额转到一张低息卡上吗？
 
-> 原文:[https://life hacker . com/should-you-transfer-your-credit-card-balance-to-a-low-I-1835870937](https://lifehacker.com/should-you-transfer-your-credit-card-balance-to-a-low-i-1835870937)
+> 原文：<https://lifehacker.com/should-you-transfer-your-credit-card-balance-to-a-low-i-1835870937>
 
 由于许多信用卡公司 提供长达 18 个月的零利率，你可能正在考虑余额转移——一种将债务从一个账户转移到另一个账户的信用卡交易。如果你持有一张可高达 20%的高息信用卡，在 2022 年前不必支付利息可以帮助你一劳永逸地粉碎信用卡债务。
 

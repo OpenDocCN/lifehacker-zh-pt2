@@ -1,6 +1,6 @@
 # 从下周开始获得免费的在线 SAT 和 ACT 预备班
 
-> 原文:[https://life hacker . com/get-free-online-sat-and-act-prep-classes-starting-next-1838179699](https://lifehacker.com/get-free-online-sat-and-act-prep-classes-starting-next-1838179699)
+> 原文：<https://lifehacker.com/get-free-online-sat-and-act-prep-classes-starting-next-1838179699>
 
 你可能听说过大学很贵。当然，还有学费、食宿费、教科书费和多得离谱的食物消耗量。但是仅仅是为了让 T2 上大学也是很昂贵的。在你去买宿舍装饰之前，junior 已经被他选择的学校录取了。为了被录取，他必须在 SAT 或 ACT 考试中取得不错的成绩。
 

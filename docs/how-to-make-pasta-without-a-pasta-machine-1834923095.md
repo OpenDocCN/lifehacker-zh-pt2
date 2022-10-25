@@ -1,6 +1,6 @@
 # how to make pasta without a pasta machine 1834923095
 
-> 原文:[https://life hacker . com/how-to-make-pasta-no-a-pasta-machine-1834923095](https://lifehacker.com/how-to-make-pasta-without-a-pasta-machine-1834923095)
+> 原文：<https://lifehacker.com/how-to-make-pasta-without-a-pasta-machine-1834923095>
 
 在大多数情况下，新鲜的意大利面比干的要好，但是我没有意大利面加工机，也没有很强的上肢力量。由于这些缺点，我过去做意大利面的大部分努力都以面条太稠、永远煮不完而告终，但一旦我放弃了天使般头发的愿景，决定做床单而不是面条，生活就变得更有意义了(T2)。
 

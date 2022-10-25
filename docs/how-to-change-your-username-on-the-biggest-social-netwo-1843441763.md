@@ -1,6 +1,6 @@
 # 如何在最大的社交网络上更改用户名
 
-> 原文:[https://life hacker . com/how-to-change-your-username-on-the-big-social-net wo-1843441763](https://lifehacker.com/how-to-change-your-username-on-the-biggest-social-netwo-1843441763)
+> 原文：<https://lifehacker.com/how-to-change-your-username-on-the-biggest-social-netwo-1843441763>
 
 你在社交网络上的用户名通常是你个性的反映——但是如果你改变了，你希望你的用户名也跟着改变，你该怎么办？
 

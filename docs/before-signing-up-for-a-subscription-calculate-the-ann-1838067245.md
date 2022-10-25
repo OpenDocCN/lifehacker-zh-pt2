@@ -1,6 +1,6 @@
 # 在注册订阅之前，请计算年费
 
-> 原文:[https://life hacker . com/before-sign-up-for-a-subscription-calculate-the-ann-1838067245](https://lifehacker.com/before-signing-up-for-a-subscription-calculate-the-ann-1838067245)
+> 原文：<https://lifehacker.com/before-signing-up-for-a-subscription-calculate-the-ann-1838067245>
 
 你每月支付多少订阅费？你的钱通过自动转账的方式汇走了，你也渐渐习惯了这种会员资格的好处:试用大小的化妆盒。每月的视频游戏 t 恤订阅。这款应用可以让你定制家庭瑜伽动作。在你每月预算的大计划中，每月 10 美元或 20 美元可能看起来微不足道。但是如果你开始考虑每月花费以外的事情呢？如果你必须预先付费，你还会想要订阅吗？
 

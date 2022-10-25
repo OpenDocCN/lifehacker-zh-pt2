@@ -1,6 +1,6 @@
 # 即使你没有任何长期的财务目标，现在就开始存钱吧
 
-> 原文:[https://life hacker . com/start-saving-now-even-if-you-not-have-any-long-term-f-1833806977](https://lifehacker.com/start-saving-now-even-if-you-dont-have-any-long-term-f-1833806977)
+> 原文：<https://lifehacker.com/start-saving-now-even-if-you-dont-have-any-long-term-f-1833806977>
 
 你认为自己五年后会怎样？
 

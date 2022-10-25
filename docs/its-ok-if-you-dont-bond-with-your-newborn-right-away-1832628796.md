@@ -1,6 +1,6 @@
 # 如果你不能马上和你的新生儿建立感情，那也没关系
 
-> 原文:[https://life hacker . com/its-ok-if-do-not-bond-with-you-新生儿-right-away-1832628796](https://lifehacker.com/its-ok-if-you-dont-bond-with-your-newborn-right-away-1832628796)
+> 原文：<https://lifehacker.com/its-ok-if-you-dont-bond-with-your-newborn-right-away-1832628796>
 
 当我怀上我的儿子时，一位同事警告我，如果我没有马上和他建立感情，不要感到惊讶。
 

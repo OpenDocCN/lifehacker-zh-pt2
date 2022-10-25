@@ -1,6 +1,6 @@
 # 隐藏这个可怕的测试版功能的铬标签组
 
-> 原文:[https://life hacker . com/boost-chrome-tab-groups-with-this-beta-feature-1843542912](https://lifehacker.com/boost-chrome-tab-groups-with-this-beta-feature-1843542912)
+> 原文：<https://lifehacker.com/boost-chrome-tab-groups-with-this-beta-feature-1843542912>
 
 谷歌最近在 Chrome 中推出了 [标签组。正如我在指南中所写的，在它们全面推出之前，它们是一种非常有用的方式，可以让你杂乱的浏览器标签变得更有条理。别的不说，给 Chrome 加一点颜色也无妨；我喜欢标签组的样子。现在，让我们让它们变得更好。](https://lifehacker.com/how-to-enable-group-tabs-on-chrome-right-now-1843461715) 
 

@@ -1,6 +1,6 @@
 # 如何修复最烦人的 Chromebook 问题
 
-> 原文:[https://life hacker . com/how-to-fix-the-most-noise-chrome book-problems-1843174127](https://lifehacker.com/how-to-fix-the-most-annoying-chromebook-problems-1843174127)
+> 原文：<https://lifehacker.com/how-to-fix-the-most-annoying-chromebook-problems-1843174127>
 
 Chrome 操作系统从它卑微的、浏览器驱动的开始已经走过了很长的路。你现在可以使用该操作系统安装 Android 应用程序，点击一个按钮就可以访问 Linux，与谷歌助手交谈等等。但是，仅仅因为 Chrome OS 现在将强大的功能打包到一个简单的设计中，并不意味着事情不会不时出错。
 

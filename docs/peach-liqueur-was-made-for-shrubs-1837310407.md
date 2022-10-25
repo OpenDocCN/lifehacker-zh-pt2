@@ -1,6 +1,6 @@
 # 桃子甜酒是为灌木酿造的
 
-> 原文:[https://life hacker . com/peach-liquic-was-made-for-bushes-1837310407](https://lifehacker.com/peach-liqueur-was-made-for-shrubs-1837310407)
+> 原文：<https://lifehacker.com/peach-liqueur-was-made-for-shrubs-1837310407>
 
 桃子甜酒不好卖。有着令人作呕的陈腐形象和糖果般的味道，它需要一双精致的手。(一种奇思妙想的感觉也无伤大雅。)但是如果你能按下大脑中的重置键，忘记任何与海滩相关的消极性爱噩梦，你会发现它在某些情况下非常有效，尤其是当那些情况涉及到酸腐、恶臭的灌木时。
 

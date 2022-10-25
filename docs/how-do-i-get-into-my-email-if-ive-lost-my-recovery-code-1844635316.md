@@ -1,6 +1,6 @@
 # 如果我丢失了恢复代码，如何进入我的电子邮件？
 
-> 原文:[https://life hacker . com/how-do-I-get-into-my-email-if-ive-lost-my-recovery-code-1844635316](https://lifehacker.com/how-do-i-get-into-my-email-if-ive-lost-my-recovery-code-1844635316)
+> 原文：<https://lifehacker.com/how-do-i-get-into-my-email-if-ive-lost-my-recovery-code-1844635316>
 
 只要有机会，就应该使用双因素身份验证来保护您的各种帐户。那是显而易见的。然而，我也欣赏那些试图为你提高账户安全性的服务——比如，要求你输入特殊的一次性代码来重置密码(阻止任何人访问你的电子邮件)。
 

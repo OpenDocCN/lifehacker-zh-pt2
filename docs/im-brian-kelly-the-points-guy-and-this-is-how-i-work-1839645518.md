@@ -1,6 +1,6 @@
 # im brian kelly the points guy and this is how i work 1839645518
 
-> 原文:[https://life hacker . com/im-Brian-Kelly-the-points-guy-and-this-how-I-work-1839645518](https://lifehacker.com/im-brian-kelly-the-points-guy-and-this-is-how-i-work-1839645518)
+> 原文：<https://lifehacker.com/im-brian-kelly-the-points-guy-and-this-is-how-i-work-1839645518>
 
 你不会想到一个以自己名字命名整个公司的人会这么好。但当布莱恩·凯利开始他的旅游和交易网站 The Points Guy 时，他并不知道他将领导一个庞大的团队，为一个月超过 1000 万读者编写一个多部分的网站。我们和他谈论了公司的运营，他到哪里都带着的小玩意，以及他如何利用自己的旅游知识帮助非营利组织。
 

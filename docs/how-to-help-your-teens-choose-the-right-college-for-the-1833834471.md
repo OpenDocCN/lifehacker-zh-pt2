@@ -1,6 +1,6 @@
 # 如何帮助你的孩子选择适合他们的大学
 
-> 原文:[https://life hacker . com/how-to-help-your-tens-choose-the-right-college for-the-1833834471](https://lifehacker.com/how-to-help-your-teens-choose-the-right-college-for-the-1833834471)
+> 原文：<https://lifehacker.com/how-to-help-your-teens-choose-the-right-college-for-the-1833834471>
 
 那些录取通知书(希望如此)滚滚而来，是时候做最后的决定了:你的孩子将去哪里上大学？
 

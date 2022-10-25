@@ -1,6 +1,6 @@
 # 这款价值 20 美元的温度计甚至不需要接触你就能测量你的体温
 
-> 原文:[https://gizmodo . com/this-20-thermometer-been-need-to-touch-you-to-t-1830181715](https://gizmodo.com/this-20-thermometer-doesnt-even-need-to-touch-you-to-t-1830181715)
+> 原文：<https://gizmodo.com/this-20-thermometer-doesnt-even-need-to-touch-you-to-t-1830181715>
 
 即使你注射了流感疫苗，一个寒冷的冬天躲在室内意味着在某个时候你会生病。但是你病得有多严重？只需 20 美元， [iHealth 新推出的非接触式数字体温计](https://ihealthlabs.com/product/PT3) 就能帮你解决这个问题，而不需要你去探查任何不愉快的地方。
 

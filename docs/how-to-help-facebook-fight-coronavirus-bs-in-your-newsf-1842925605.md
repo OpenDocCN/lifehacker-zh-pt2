@@ -1,6 +1,6 @@
 # 在你的脸书新闻中对抗冠状病毒
 
-> 原文:[https://life hacker . com/how-to-help-Facebook-fight-coronavirus-bs-in-your-newsf-1842925605](https://lifehacker.com/how-to-help-facebook-fight-coronavirus-bs-in-your-newsf-1842925605)
+> 原文：<https://lifehacker.com/how-to-help-facebook-fight-coronavirus-bs-in-your-newsf-1842925605>
 
 如果你从脸书得到消息，这是第一个问题。为什么？嗯，这将需要疫情响应规模的努力，让人们停止在脸书分享废话。你可以看到我们在疫情的反应有多好...
 

@@ -1,6 +1,6 @@
 # 不要仅仅为了返现奖励而支付信用卡费用
 
-> 原文:[https://life hacker . com/dont-pay-信用卡费用-返现奖励-1838628682](https://lifehacker.com/dont-pay-credit-card-fees-just-for-the-cash-back-reward-1838628682)
+> 原文：<https://lifehacker.com/dont-pay-credit-card-fees-just-for-the-cash-back-reward-1838628682>
 
 并非所有的生活窍门都是生而平等的。有些 DIY 比仅仅购买你想再造的物品更昂贵或耗时。有些目标需要太长时间才能实现。有些技巧只对一小部分人有用。
 

@@ -1,6 +1,6 @@
 # 检查您的 iPhone 6s 是否符合 Apple 的新维修计划
 
-> 原文:[https://life hacker . com/check-if-your-iphone-6s-is-eligible-for-apple-new-repa-1838824446](https://lifehacker.com/check-if-your-iphone-6s-is-eligible-for-apples-new-repa-1838824446)
+> 原文：<https://lifehacker.com/check-if-your-iphone-6s-is-eligible-for-apples-new-repa-1838824446>
 
 如果你有一部 iPhone 6s 或 iPhone 6s Plus，尤其是你无法打开的手机，我们可能会给你带来好消息。
 

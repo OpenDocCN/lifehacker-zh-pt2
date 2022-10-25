@@ -1,6 +1,6 @@
 # 所有你怀孕时不能玩的电子游戏
 
-> 原文:[https://kotaku . com/all-the-video-games-you-can-play-when you-treaty-1834924217](https://kotaku.com/all-the-video-games-you-cant-play-when-youre-pregnant-1834924217)
+> 原文：<https://kotaku.com/all-the-video-games-you-cant-play-when-youre-pregnant-1834924217>
 
 怀孕期间，有很多有趣的事情是你不能做的:滑水道、酒精、蹦床、熬夜超过 10 点。你可能会认为电子游戏是一种完全不受影响的追求，但我发现，即使是珍贵的沙发时间也不安全。
 

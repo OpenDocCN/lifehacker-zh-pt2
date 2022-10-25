@@ -1,6 +1,6 @@
 # 通过自动删除信号附件来节省 Android 空间
 
-> 原文:[https://life hacker . com/save-space-on-your-Android-by-automatically-deleting-si-1841002860](https://lifehacker.com/save-space-on-your-android-by-automatically-deleting-si-1841002860)
+> 原文：<https://lifehacker.com/save-space-on-your-android-by-automatically-deleting-si-1841002860>
 
 Signal 刚刚更新了其 Android 应用程序，增加了新功能，使管理文件附件和删除旧对话比以前容易得多。
 

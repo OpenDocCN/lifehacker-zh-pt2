@@ -1,6 +1,6 @@
 # 如何让孩子们保持运动的乐趣
 
-> 原文:[https://life hacker . com/how-to-keep-sports-fun-for-kids-1838852030](https://lifehacker.com/how-to-keep-sports-fun-for-kids-1838852030)
+> 原文：<https://lifehacker.com/how-to-keep-sports-fun-for-kids-1838852030>
 
 你总是在看到他们之前就听到教练的声音。他们在喊什么不在位置上或者跑得不够快。最近的一个周六早上，隔壁场地的教练对着一对跑过的男孩大喊，让他们“踢足球”。他们困惑地盯着他。我队里的女孩咯咯地笑，因为我们都在那里踢足球。
 

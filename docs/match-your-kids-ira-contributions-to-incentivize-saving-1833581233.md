@@ -1,6 +1,6 @@
 # 匹配你孩子的个人退休帐户，激励储蓄
 
-> 原文:[https://life hacker . com/match-your-kids-IRA-contributions-to-incentive-saving-1833581233](https://lifehacker.com/match-your-kids-ira-contributions-to-incentivize-saving-1833581233)
+> 原文：<https://lifehacker.com/match-your-kids-ira-contributions-to-incentivize-saving-1833581233>
 
 我们以前写过为什么你应该鼓励你的 [孩子开一个罗斯个人退休账户](https://offspring.lifehacker.com/open-a-roth-ira-for-your-kid-1830936025)——他们可以从年轻时开始积累储蓄，受益于复利，并在此过程中学习储蓄和投资。
 

@@ -1,6 +1,6 @@
 # 如何在 Twitter 上关闭自动播放 gif 和视频
 
-> 原文:[https://life hacker . com/how-to-turn-off-autoplay-gif-and-videos-on-Twitter-1840510083](https://lifehacker.com/how-to-turn-off-autoplay-gifs-and-videos-on-twitter-1840510083)
+> 原文：<https://lifehacker.com/how-to-turn-off-autoplay-gifs-and-videos-on-twitter-1840510083>
 
 当你被遍布 Twitter 的自动播放视频和 gif 淹没，让这个服务感觉更像时代广场，而不是每个人都在打架的社交网络时，是时候做出改变了。如果一群推特用户——无论是你关注的人，还是你提到的人——用动画图像轰炸你，以加剧你可能患有的实际医疗问题 ，那就更是如此。
 

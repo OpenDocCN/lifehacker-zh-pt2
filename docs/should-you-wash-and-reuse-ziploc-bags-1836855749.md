@@ -1,6 +1,6 @@
 # 你应该清洗和重复使用拉链袋吗？
 
-> 原文:[https://the take out . com/should-you-wash-and-reuse-ziploc-bags-1836855749](https://thetakeout.com/should-you-wash-and-reuse-ziploc-bags-1836855749)
+> 原文：<https://thetakeout.com/should-you-wash-and-reuse-ziploc-bags-1836855749>
 
 我们大多数人都喜欢少扔塑料制品的想法。在我们去商店之前，我们试着记住我们的帆布手提袋，我们用更挑剔的眼光看着我们的塑料食品储存袋。与其在用过一次后扔掉拉链袋或其他拉链袋，我们是否可以清洗并重复使用它们？
 

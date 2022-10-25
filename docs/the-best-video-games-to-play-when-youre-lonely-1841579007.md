@@ -1,6 +1,6 @@
 # 孤独时玩的最好的电子游戏
 
-> 原文:[https://life hacker . com/the-best-video-games-to-play-when-you-alone-1841579007](https://lifehacker.com/the-best-video-games-to-play-when-youre-lonely-1841579007)
+> 原文：<https://lifehacker.com/the-best-video-games-to-play-when-youre-lonely-1841579007>
 
 一个人生活可能会令人愉快、安静、棒极了，但当你有点太习惯自己的陪伴时，它也会给你一点社交恐惧感。谢天谢地，精彩的电子游戏世界可以帮助你从烦恼中转移注意力。
 

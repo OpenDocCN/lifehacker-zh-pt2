@@ -1,6 +1,6 @@
 # 让信用卡积分和航空里程成为你应急计划的一部分
 
-> 原文:[https://life hacker . com/make-credit-card-points-and-airlines-miles-part of your-1844870813](https://lifehacker.com/make-credit-card-points-and-airlines-miles-part-of-your-1844870813)
+> 原文：<https://lifehacker.com/make-credit-card-points-and-airlines-miles-part-of-your-1844870813>
 
 对于美国的自然灾害来说，这是艰难的几周。甚至在疫情肆虐的时候，这个国家也面临着遍及 [【西部】](https://www.denverpost.com/2020/08/26/colorado-wildfires-update-august-26-grizzly-creek-williams-fork)[平原的](https://www.theguardian.com/us-news/2020/aug/10/us-midwest-derecho-storm-widespread-damage)[的野火，以及墨西哥湾沿岸的](https://weather.com/storms/hurricane/news/2020-08-27-hurricane-laura-landfall-forecast-louisiana-inland-flooding-wind) 飓风。如果你已经足够幸运地避免了这些灾难，这可能是一个重新评估你自己的应急准备计划的好时机。如果灾难来了，你的家人需要离开，你可能没有太多的时间来策划一个。
 

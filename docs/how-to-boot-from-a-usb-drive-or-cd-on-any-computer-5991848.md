@@ -1,6 +1,6 @@
 # 如何在任何计算机上从 USB 驱动器或光盘启动
 
-> 原文:[https://life hacker . com/how-to-boot-from-a-USB-drive-or-CD-on-any-computer-5991848](https://lifehacker.com/how-to-boot-from-a-usb-drive-or-cd-on-any-computer-5991848)
+> 原文：<https://lifehacker.com/how-to-boot-from-a-usb-drive-or-cd-on-any-computer-5991848>
 
 当您对电脑进行故障诊断或安装新的操作系统时，您可能需要“从光盘启动”或 USB 设备(如外置硬盘或闪存驱动器)。这意味着什么，以及如何做到这一点。
 

@@ -1,6 +1,6 @@
 # 在哪里在线观看查德维克·博斯曼的顶级电影
 
-> 原文:[https://life hacker . com/where-to-stream-chadwick-bosemans-top-movies-online-1844676693](https://lifehacker.com/where-to-stream-chadwick-bosemans-top-movies-online-1844676693)
+> 原文：<https://lifehacker.com/where-to-stream-chadwick-bosemans-top-movies-online-1844676693>
 
 今年，世界失去了一位伟大的演员，他给众多杰出的黑人人物带来了生命。查德维克·博斯曼于 8 月 28 日星期五去世，此前他与结肠癌进行了长达四年的斗争——这场斗争在他最受欢迎的作品的拍摄过程中一直没有公开。这位霍华德大学的校友激励了许多人，尤其是在黑人社区，因为他塑造了三个标志性的黑人形象:詹姆斯·布朗、杰基·罗宾逊和漫威的黑豹国王 T'Challa。博斯曼本人得到了其他黑人偶像的指导，如菲利西亚·拉斯海德和丹泽尔·华盛顿，他们帮助他铺平了道路。如果你想通过他的作品来纪念他的一生，他的许多最好的电影都可以在各大平台上观看。你可以在这里找到它们。
 

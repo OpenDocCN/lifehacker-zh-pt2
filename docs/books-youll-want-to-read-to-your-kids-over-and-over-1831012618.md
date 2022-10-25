@@ -1,6 +1,6 @@
 # 你想读给孩子听的书(一遍又一遍)
 
-> 原文:[https://life hacker . com/books-youll-want-to-read-to-your-children-over-and-over-1831012618](https://lifehacker.com/books-youll-want-to-read-to-your-kids-over-and-over-1831012618)
+> 原文：<https://lifehacker.com/books-youll-want-to-read-to-your-kids-over-and-over-1831012618>
 
 你可能认为给你的孩子读的最好的书是他们会喜欢的。有一件事，当你合上最后一页时，会让他们大叫:“再来，再来！”在你说“去挑选一本睡前书”之前，一件东西已经在他们手里，在你面前挥舞着，一个熟悉的老朋友。
 

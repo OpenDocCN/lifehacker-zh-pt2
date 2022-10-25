@@ -1,6 +1,6 @@
 # 通过在航班起飞前痴迷地检查座位来获得升级
 
-> 原文:[https://life hacker . com/score-an-upgrade-by-before-a-1836497476](https://lifehacker.com/score-an-upgrade-by-obsessively-checking-seats-before-a-1836497476)
+> 原文：<https://lifehacker.com/score-an-upgrade-by-obsessively-checking-seats-before-a-1836497476>
 
 我能给那些不想为“高级”座位的额外腿部空间支付愚蠢费用的乘客的最好建议之一是:*经常检查你的座位分配*。
 

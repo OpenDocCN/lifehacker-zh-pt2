@@ -1,6 +1,6 @@
 # 如何在 Skype 视频通话中自定义背景
 
-> 原文:[https://life hacker . com/how-to-customize-your-background-in-Skype-video-calls-1843022022](https://lifehacker.com/how-to-customize-your-background-in-skype-video-calls-1843022022)
+> 原文：<https://lifehacker.com/how-to-customize-your-background-in-skype-video-calls-1843022022>
 
 我最喜欢的莫过于在视频聊天中巧妙使用愚蠢的背景。虽然这个古怪的功能过去只属于 Zoom，但越来越多的应用程序正在集成该功能——包括最近的 [微软团队](https://lifehacker.com/how-to-customize-your-background-in-microsoft-teams-vid-1842838567) ，以及现在微软自己的 Skype 应用程序。
 

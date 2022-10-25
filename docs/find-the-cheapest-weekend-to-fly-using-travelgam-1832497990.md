@@ -1,6 +1,6 @@
 # 使用 Travelgam 查找最便宜的周末航班
 
-> 原文:[https://life hacker . com/find-the-chief-the-beautiful-weekend-to-fly-using-travelgam-1832497990](https://lifehacker.com/find-the-cheapest-weekend-to-fly-using-travelgam-1832497990)
+> 原文：<https://lifehacker.com/find-the-cheapest-weekend-to-fly-using-travelgam-1832497990>
 
 在过去的几年里，我的很多假期都变成了“我们去一个周末”的事情，而不是需要让假期适应特定的时间框架。也就是说，我可能会在 10 月或 9 月的任何一个周末进行同样的旅行，而不是在 10 月的某个特定周末寻找航班进行旅行。
 

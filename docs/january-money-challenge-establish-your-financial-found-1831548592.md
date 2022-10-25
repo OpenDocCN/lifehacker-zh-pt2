@@ -1,6 +1,6 @@
 # 一月金钱挑战:建立你的财务基础
 
-> 原文:[https://life hacker . com/January-money-challenge-establish-your-financial-found-1831548592](https://lifehacker.com/january-money-challenge-establish-your-financial-found-1831548592)
+> 原文：<https://lifehacker.com/january-money-challenge-establish-your-financial-found-1831548592>
 
 2019 年，我们将在 Two Cents 上带回每月财务挑战(你可以在这里 看到 [2017 年的版本)。每一个都是为了帮助我们专注于我们金钱的不同方面，理想情况下，将微小的变化发展成我们财务生活中的](https://twocents.lifehacker.com/the-lifehacker-money-challenge-is-back-1790627747) [可衡量的差异](https://twocents.lifehacker.com/its-time-to-set-your-2019-money-goals-1830990890) 。
 

@@ -1,6 +1,6 @@
 # 中间向下滑动:我妈妈自制白色城堡的秘密
 
-> 原文:[https://the take out . com/recipe-自制-白色城堡-滑块-1837674581](https://thetakeout.com/recipe-homemade-white-castle-sliders-1837674581)
+> 原文：<https://thetakeout.com/recipe-homemade-white-castle-sliders-1837674581>
 
 你可能不会从我目前的身份[非凡的](https://thetakeout.com/recipe-homemade-diy-pastrami-1832407782) 中怀疑这一点，但我是那些挑食的孩子之一，直到我大约 20 岁。我甚至不吃意大利面，这看起来像是一个 8 岁孩子吃的药丸。但是有一种食物会让我变成一个贪婪的庞然大物:一大盘我妈妈的人造白色城堡滑块。
 

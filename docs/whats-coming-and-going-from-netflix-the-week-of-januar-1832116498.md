@@ -1,6 +1,6 @@
 # 2019 年 1 月 28 日这一周，网飞有什么动静
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of-January-1832116498](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-januar-1832116498)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-januar-1832116498>
 
 《十七岁的边缘》是一部以约翰·休斯为原型的扎实、迷人、有趣的青少年电影，如果你还没有看过这部电影(周五)，你一定要去看。海莉·斯坦菲尔德是一个有趣的演员！如果你有一个十几岁的孩子，你可以和他们一起看，然后进行富有成效的谈话！或者，你可以看《T2 红粉佳人》和《T3》，这一集将于本周在网飞回归。
 

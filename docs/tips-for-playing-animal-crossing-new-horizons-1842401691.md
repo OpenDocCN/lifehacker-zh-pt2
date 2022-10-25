@@ -1,6 +1,6 @@
 # 玩动物穿越:新视野的小技巧
 
-> 原文:[https://kotaku . com/tips-for-playing-animal-crossing-new-horizons-1842401691](https://kotaku.com/tips-for-playing-animal-crossing-new-horizons-1842401691)
+> 原文：<https://kotaku.com/tips-for-playing-animal-crossing-new-horizons-1842401691>
 
 《动物穿越:新视野》今天上映。在过去的几周里，我在这个大型游戏上花了很多时间，虽然这可能不足以真正掌握它所提供的全部内容，但我确实有一些建议给那些希望充分利用自己个人岛屿早期时光的人。这里有一个指南可以帮助你。
 

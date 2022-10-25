@@ -1,6 +1,6 @@
 # 如何安排您的电脑每天自动开机
 
-> 原文:[https://life hacker . com/how-to-schedule-your-PC-to-on-automatically-each-d-1844306729](https://lifehacker.com/how-to-schedule-your-pc-to-turn-on-automatically-each-d-1844306729)
+> 原文：<https://lifehacker.com/how-to-schedule-your-pc-to-turn-on-automatically-each-d-1844306729>
 
 任何 Windows PC 或 Mac 最有用的功能之一是能够安排它在每天的固定时间开机。这是一种快速开始新一天的方式，即使你正在煮咖啡或在床上多躺几分钟——无论你喜欢做什么，而不是坐在办公桌前，等待你的台式机或笔记本电脑启动。
 

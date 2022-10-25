@@ -1,6 +1,6 @@
 # 使用 Instagram 与你的孩子交流
 
-> 原文:[https://life hacker . com/use-insta gram-to-communicate-with-your-teen-1830403224](https://lifehacker.com/use-instagram-to-communicate-with-your-teen-1830403224)
+> 原文：<https://lifehacker.com/use-instagram-to-communicate-with-your-teen-1830403224>
 
 当我儿子接近十几岁时，我为青少年经常表现出的不可避免的行为做好了准备。我等待着眼睛转动和嘴巴关闭。我准备关门和咕哝。我对一个喜怒无常的少年保持了多年的沉默。我经常听到十几岁孩子的父母开玩笑说，当他们去上大学的时候，“你的孩子回来了”。
 

@@ -1,6 +1,6 @@
 # 更改这些脸书设置以保护您的照片免受面部识别软件的攻击
 
-> 原文:[https://life hacker . com/change-these-Facebook-settings-to-protect-your-photos-f-1841131425](https://lifehacker.com/change-these-facebook-settings-to-protect-your-photos-f-1841131425)
+> 原文：<https://lifehacker.com/change-these-facebook-settings-to-protect-your-photos-f-1841131425>
 
 你提供给网络供公众消费的任何内容都有可能被任何足够聪明的人抓取和滥用，这一点不足为奇。虽然这并没有使本周末来自 [*《纽约时报》*](https://www.nytimes.com/2020/01/18/technology/clearview-privacy-facial-recognition.html) 的报道少一点谴责，但它很好地提醒了人们*真正地*检查你的各种社交网络的设置并限制你的内容如何被任何人访问是多么重要。
 

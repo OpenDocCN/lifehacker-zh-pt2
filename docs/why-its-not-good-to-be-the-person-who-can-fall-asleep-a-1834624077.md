@@ -1,6 +1,6 @@
 # 在任何地方睡着都是不好的征兆
 
-> 原文:[https://life hacker . com/why-it ' s-not-good-to-be-the-person-a-1834624077](https://lifehacker.com/why-its-not-good-to-be-the-person-who-can-fall-asleep-a-1834624077)
+> 原文：<https://lifehacker.com/why-its-not-good-to-be-the-person-who-can-fall-asleep-a-1834624077>
 
 能够随时随地入睡是一项有用的技能，尤其是如果你经常出差或者工作时间安排很奇怪的话。但这不一定是件好事——这也是长期睡眠不足的迹象。
 

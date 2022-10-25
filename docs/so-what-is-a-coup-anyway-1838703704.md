@@ -1,6 +1,6 @@
 # 那么，究竟什么是政变呢？
 
-> 原文:[https://lifehacker.com/so-what-is-a-coup-anyway-1838703704](https://lifehacker.com/so-what-is-a-coup-anyway-1838703704)
+> 原文：<https://lifehacker.com/so-what-is-a-coup-anyway-1838703704>
 
 周二晚上，面对众议院民主党人对弹劾调查越来越大的压力，川普总统在推特上说，对 T2 的调查实际上是一场“政变”
 

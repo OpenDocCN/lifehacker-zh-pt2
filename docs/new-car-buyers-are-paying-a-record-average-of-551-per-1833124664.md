@@ -1,6 +1,6 @@
 # 新车购买者每月平均支付创纪录的 551 美元，但这不是问题
 
-> 原文:[https://jalopnik . com/new-car-buyer-is-pay-a-record-average-of-551 per-1833124664](https://jalopnik.com/new-car-buyers-are-paying-a-record-average-of-551-per-1833124664)
+> 原文：<https://jalopnik.com/new-car-buyers-are-paying-a-record-average-of-551-per-1833124664>
 
 新车的平均支付额为每月 551 美元，与三年前相比增长了 10%。2016 年购买或租赁汽车的购车者正受到一些价格冲击，这导致他们中的一些人陷入危险的财务状况。
 

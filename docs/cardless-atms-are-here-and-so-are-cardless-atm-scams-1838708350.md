@@ -1,6 +1,6 @@
 # 无卡 ATM 在这里，无卡 ATM 骗局也在这里
 
-> 原文:[https://life hacker . com/cardless-ATM-is-here-so-are-cardless-ATM-scams-1838708350](https://lifehacker.com/cardless-atms-are-here-and-so-are-cardless-atm-scams-1838708350)
+> 原文：<https://lifehacker.com/cardless-atms-are-here-and-so-are-cardless-atm-scams-1838708350>
 
 当你离开家的时候想减轻你的负担？把你的大钱包留在家里，用移动技术的力量把你空空的口袋装满现金。
 

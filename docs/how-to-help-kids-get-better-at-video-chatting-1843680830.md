@@ -1,6 +1,6 @@
 # 如何帮助孩子更好地进行视频聊天
 
-> 原文:[https://life hacker . com/how-to-help-kids-get-better-at-video-chatting-1843680830](https://lifehacker.com/how-to-help-kids-get-better-at-video-chatting-1843680830)
+> 原文：<https://lifehacker.com/how-to-help-kids-get-better-at-video-chatting-1843680830>
 
 如果说父母们在疫情中学到了什么的话，那就是 T2:孩子们在视频聊天时太逊了。也许我们已经根据偶尔的、灾难性的 FaceTime 或与外地家人的 Skype 通话怀疑了这一点。但是后来我们被推进到这个一直在线的现实中，在这个现实中 视频聊天感觉更加、重要，然而孩子们在这方面仍然很糟糕，尽管有所有额外的练习。
 

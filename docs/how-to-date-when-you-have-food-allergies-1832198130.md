@@ -1,6 +1,6 @@
 # 食物过敏时如何约会
 
-> 原文:[https://life hacker . com/how-to-date-when-you-hacken-1832198130](https://lifehacker.com/how-to-date-when-you-have-food-allergies-1832198130)
+> 原文：<https://lifehacker.com/how-to-date-when-you-have-food-allergies-1832198130>
 
 约会已经够难了。加上严重的食物过敏和约会中途呼吸道肿胀的可能性，你不仅找到了浪漫灾难的圣杯，而且还在没有降落伞的情况下直接着陆了。
 

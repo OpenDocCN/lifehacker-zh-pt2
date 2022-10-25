@@ -1,6 +1,6 @@
 # 使用/R/stoneren engineering 升级您的除草习惯
 
-> 原文:[https://life hacker . com/upgrade-your-weed-habit-with-r-stoneren engineering-1830189849](https://lifehacker.com/upgrade-your-weed-habit-with-r-stonerengineering-1830189849)
+> 原文：<https://lifehacker.com/upgrade-your-weed-habit-with-r-stonerengineering-1830189849>
 
 精神活性大麻的使用可以追溯到古代美索不达米亚。工具的使用可以追溯到人类出现之前的祖先。这些强大的力量汇聚到[/r/石匠工程](https://www.reddit.com/r/StonerEngineering/top/?sort=top&t=all) ，一个杂草丛生的小区域。
 

@@ -1,6 +1,6 @@
 # 一位禅僧说，如何完整地活着
 
-> 原文:[https://life hacker . com/how-to-a-Zen-monk-1832161702](https://lifehacker.com/how-to-be-fully-alive-according-to-a-zen-monk-1832161702)
+> 原文：<https://lifehacker.com/how-to-be-fully-alive-according-to-a-zen-monk-1832161702>
 
 如果你想知道死亡能教会我们如何好好生活，科信·佩利·埃里森可以告诉你。
 

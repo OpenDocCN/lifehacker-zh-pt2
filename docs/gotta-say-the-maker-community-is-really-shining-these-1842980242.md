@@ -1,6 +1,6 @@
 # 不得不说，创客社区这些天真的很闪亮
 
-> 原文:[https://gizmodo . com/gotta-say-the-maker-community-is-really-shining-things-1842980242](https://gizmodo.com/gotta-say-the-maker-community-is-really-shining-these-1842980242)
+> 原文：<https://gizmodo.com/gotta-say-the-maker-community-is-really-shining-these-1842980242>
 
 随着世界努力应对强制检疫和隔离，创客社区正在蓬勃发展，并做着它最擅长的事情:粗制滥造出[创新](https://gizmodo.com/guy-uses-physics-and-computer-simulations-to-design-a-n-1842968293)[聪明](https://gizmodo.com/man-who-made-a-digital-ai-powered-twin-for-video-calls-1842705724) ，有时 [完全可怕的创作](https://www.instagram.com/p/B-RlLXAl4Hp/) 。
 

@@ -1,6 +1,6 @@
 # 融化的冰淇淋是英国奶酪的绝佳替代品
 
-> 原文:[https://life hacker . com/melted-ice-cream-is-a-great-substitute-to-creme-莱昂-1838669114](https://lifehacker.com/melted-ice-cream-is-a-great-substitute-for-creme-anglai-1838669114)
+> 原文：<https://lifehacker.com/melted-ice-cream-is-a-great-substitute-for-creme-anglai-1838669114>
 
 上周日晚上，我戴着口罩在看《英国烘焙秀》的老节目，对着电视大喊大叫。我的一个朋友是这个节目的新成员，所以我们跟她聊了聊。当一名参赛者正在给他们的雪蛋(一种莫名其妙地被称为 [真正的](https://www.greatbritishchefs.com/recipes/mrs-beeton-snow-eggs-recipe) 的甜点)上菜时，我达到了一种沸点。
 

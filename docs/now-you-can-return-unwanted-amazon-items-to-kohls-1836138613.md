@@ -1,6 +1,6 @@
 # 现在你可以把不想要的亚马逊商品退回给美国柯尔百货公司
 
-> 原文:[https://life hacker . com/now-you-can-return-unwanted-Amazon-items-to-kohls-1836138613](https://lifehacker.com/now-you-can-return-unwanted-amazon-items-to-kohls-1836138613)
+> 原文：<https://lifehacker.com/now-you-can-return-unwanted-amazon-items-to-kohls-1836138613>
 
 下次你想把东西退给亚马逊，你不一定要把所有东西都重新打包，然后去邮局。从本月开始，除了阿拉斯加州安克雷奇的商店之外，亚马逊允许在美国柯尔百货公司的任何地方通过邮寄和当面退货。
 

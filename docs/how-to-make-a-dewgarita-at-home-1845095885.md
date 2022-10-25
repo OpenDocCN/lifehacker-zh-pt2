@@ -1,6 +1,6 @@
 # 如何在家中制作杜加里塔
 
-> 原文:[https://life hacker . com/how-to-make-a-dewgarita-in-home-1845095885](https://lifehacker.com/how-to-make-a-dewgarita-at-home-1845095885)
+> 原文：<https://lifehacker.com/how-to-make-a-dewgarita-at-home-1845095885>
 
 三天前，一大早，我收到一个朋友 发来的 [短信，提醒我有杜加里塔酒的存在，这是一种用激浪制成的玛格丽塔酒。这种饮料在 Red Lobster 有售(显然搭配](https://twitter.com/clairelizzie/status/1305898849274220544) [切达贝饼干](https://lifehacker.com/these-cheddar-biscuits-are-better-than-red-lobsters-1829391921) ) 味道很棒)。
 

@@ -1,6 +1,6 @@
 # 你可能得到了减税，即使感觉不像
 
-> 原文:[https://life hacker . com/you-possible-got-a-tax-cut-even-if-that-not-feel-like-1834046892](https://lifehacker.com/you-probably-got-a-tax-cut-even-if-it-doesnt-feel-like-1834046892)
+> 原文：<https://lifehacker.com/you-probably-got-a-tax-cut-even-if-it-doesnt-feel-like-1834046892>
 
 你今年得到减税了吗？根据税收政策中心的新数据，事实上，大多数美国人在减税和就业法案下缴纳的税更少了——但由于我们许多人获得的退款更少(或根本没有退款)，可能感觉不像。
 

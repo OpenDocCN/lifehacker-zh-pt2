@@ -1,6 +1,6 @@
 # 2019 年 5 月 13 日这一周，网飞有哪些活动
 
-> 原文:[https://life hacker . com/what-coming-and-going-from-the-week of-may-13-1834409415](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-may-13-1834409415)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-may-13-1834409415>
 
 生活是艰难的，因此，你应该得到一些美好的东西，这就是为什么我让你得到它！:第三季(周五)。这一季有一位戴 Iris Apfel 眼镜的女士！
 

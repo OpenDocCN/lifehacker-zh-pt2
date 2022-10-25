@@ -1,6 +1,6 @@
 # 不要依赖谷歌助手来记住你的停车位
 
-> 原文:[https://life hacker . com/don-depend-on-Google-assistant-to-remember-your-parkin-1835585825](https://lifehacker.com/dont-depend-on-google-assistant-to-remember-your-parkin-1835585825)
+> 原文：<https://lifehacker.com/dont-depend-on-google-assistant-to-remember-your-parkin-1835585825>
 
 多亏了谷歌助手，你再也不会在停车场丢失你的车了——但无论如何你都不应该丢失它，因为如果你记得在你离开你的车之前告诉你的智能手机你的停车位在*的位置，你会得到更好的准确性。* 
 

@@ -1,6 +1,6 @@
 # 当你的小孩使用 N 字的时候，你会怎么做？
 
-> 原文:[https://life hacker . com/what-do-you-do-when-young-child-uses-the-n-word-1839894547](https://lifehacker.com/what-do-you-do-when-your-young-child-uses-the-n-word-1839894547)
+> 原文：<https://lifehacker.com/what-do-you-do-when-your-young-child-uses-the-n-word-1839894547>
 
 有时父母希望他们能和孩子重新进行一次对话。“大话”会在我们最意想不到的时候给我们当头一棒。本周的 [家长咨询](https://lifehacker.com/c/parental-advisory) 问题来自一个孩子的家长，他在 6 岁时第一次听到并使用了 N 字。但是，他们是否以最好的方式处理了这件事？
 

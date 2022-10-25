@@ -1,6 +1,6 @@
 # 在你的速溶锅里制作这种对地球友好的黑米粥
 
-> 原文:[https://life hacker . com/make-this-earth-friendly-your-in-1832871805](https://lifehacker.com/make-this-earth-friendly-black-rice-porridge-in-your-in-1832871805)
+> 原文：<https://lifehacker.com/make-this-earth-friendly-black-rice-porridge-in-your-in-1832871805>
 
 某些食物比其他食物更具可持续性，在地球上，我们的朋友 Brian Kahn 一直试图通过坚持相当严格的、主要以植物为基础的饮食来拯救世界。我一直在帮他做一些食谱，因为我就是这样的人。
 

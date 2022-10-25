@@ -1,6 +1,6 @@
 # 没有电视如何直播 2019 年格莱美
 
-> 原文:[https://life hacker . com/how-to-live stream-the-2019-没有电视的格莱美-1832508060](https://lifehacker.com/how-to-livestream-the-2019-grammys-without-a-tv-1832508060)
+> 原文：<https://lifehacker.com/how-to-livestream-the-2019-grammys-without-a-tv-1832508060>
 
 2019 格莱美就在今晚！该节目由艾丽西亚·凯斯主持，于美国东部时间晚上 8 点在哥伦比亚广播公司正式开始。
 

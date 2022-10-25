@@ -1,6 +1,6 @@
 # 如何在没有空调的情况下保持一个小时左右的凉爽
 
-> 原文:[https://life hacker . com/how-to-keep cool for-about-hour with-air condition-1845038209](https://lifehacker.com/how-to-keep-cool-for-about-an-hour-without-air-conditio-1845038209)
+> 原文：<https://lifehacker.com/how-to-keep-cool-for-about-an-hour-without-air-conditio-1845038209>
 
 尽管从技术上来说，夏天还有几个星期，但高温和潮湿并没有消失(至少在纽约是这样)。而那些没有空调的人(或者有非常旧的、蹩脚的窗户单元的人)，通常会在咖啡店或图书馆远程工作，目前没有这种选择。我属于那一类。
 

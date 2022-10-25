@@ -1,6 +1,6 @@
 # 如何在一封“我们去喝咖啡吧”的邮件中显得有趣
 
-> 原文:[https://life hacker . com/how-to-sound-interest-in-a-let-get-coffee-email-1836999118](https://lifehacker.com/how-to-sound-interesting-in-a-lets-get-coffee-email-1836999118)
+> 原文：<https://lifehacker.com/how-to-sound-interesting-in-a-lets-get-coffee-email-1836999118>
 
 给你欣赏其作品的人发电子邮件，寻求建议，或者喝咖啡聊天，或者任何你私下希望能引发终身导师关系的初次见面，都是令人生畏的。这就像在邀请某人约会的同时也要求他们加薪一样。这很难，即使你做得对，也可能行不通！《哈佛商业评论》有一个杀手级策略: [呈现你最有趣、最有价值、最可信的自己](https://hbr.org/2019/07/how-to-reach-out-to-someone-whose-career-you-admire) 。
 

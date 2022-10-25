@@ -1,6 +1,6 @@
 # 有一种更简单的切花椰菜的方法
 
-> 原文:[https://life hacker . com/有一种更简单的切花椰菜的方法-1832228089](https://lifehacker.com/theres-an-easier-way-to-cut-cauliflower-1832228089)
+> 原文：<https://lifehacker.com/theres-an-easier-way-to-cut-cauliflower-1832228089>
 
 如果你像我一样，一生都在从小花上剪花椰菜，你可能会认为那些到处都是令人讨厌的碎屑只是交易的一部分。他们不是。谢天谢地，你可以很容易地永远驱逐他们——只要把皇冠倒过来。
 

@@ -1,6 +1,6 @@
 # 问你自己这 6 个问题来确定你最重要的任务
 
-> 原文:[https://life hacker . com/ask-yourself-this-6-questions-to-identify-your-most-im-1844733009](https://lifehacker.com/ask-yourself-these-6-questions-to-identify-your-most-im-1844733009)
+> 原文：<https://lifehacker.com/ask-yourself-these-6-questions-to-identify-your-most-im-1844733009>
 
 伴随着永无止境的焦虑，不知所措似乎成了这些天的常态。你可能会认为花更多的时间呆在家里会帮助我们掌控一切，但对很多人来说肯定不是这样。(如果你是一个早期夸夸其谈的人，现在拥有 Pinterest 上的衣橱和茶水间，这可能不适用于你——，除非那是你正在做的事情，而不是完成你的其他工作。)
 

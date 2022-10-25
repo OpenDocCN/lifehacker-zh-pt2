@@ -1,6 +1,6 @@
 # 使用花生应用程序查找当地的妈妈朋友
 
-> 原文:[https://life hacker . com/find-local-mom-friends-with-the-peanut-app-1839296377](https://lifehacker.com/find-local-mom-friends-with-the-peanut-app-1839296377)
+> 原文：<https://lifehacker.com/find-local-mom-friends-with-the-peanut-app-1839296377>
 
 用户讽刺地称它为“妈妈的火种”，但它确实是。2017 年推出的 [花生应用](https://www.peanut-app.io/) ，让妈妈们在自己的区域更容易结交朋友和计划见面。
 

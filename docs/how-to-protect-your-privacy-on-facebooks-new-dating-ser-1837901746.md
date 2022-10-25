@@ -1,6 +1,6 @@
 # 如何在脸书新的约会服务上保护你的隐私
 
-> 原文:[https://life hacker . com/how-to-protect-your-privacy-on-face books-new-dating-ser-1837901746](https://lifehacker.com/how-to-protect-your-privacy-on-facebooks-new-dating-ser-1837901746)
+> 原文：<https://lifehacker.com/how-to-protect-your-privacy-on-facebooks-new-dating-ser-1837901746>
 
 现实生活中你想戳的 [戳人脸书](https://www.facebook.com/pokes) 的日子一去不复返了。脸书昨天在美国正式推出其新的约会服务，这句话应该引起隐私倡导者的一点警觉——特别是因为就在几天前，新闻报道了 T5 又一次安全失误 T7】向世界暴露了数百万脸书账户的电话号码。
 

@@ -1,6 +1,6 @@
 # 该不该订没有点评的 Airbnb？
 
-> 原文:[https://life hacker . com/should-you-book-an-Airbnb-that-no-reviews-1835805431](https://lifehacker.com/should-you-book-an-airbnb-that-has-no-reviews-1835805431)
+> 原文：<https://lifehacker.com/should-you-book-an-airbnb-that-has-no-reviews-1835805431>
 
 在浏览一个特别漂亮的 Airbnb 房源时，你可能会对自己说:这个地方好得令人难以置信。你浏览了房源的照片，了解了它的便利设施——包括一个游泳池和一个日光浴平台——大约就在这个时候，你发现房源的评论为零。
 

@@ -1,6 +1,6 @@
 # 如何发现亚马逊上的价格欺诈
 
-> 原文:[https://life hacker . com/how-to-spot-on-Amazon-1845024383](https://lifehacker.com/how-to-spot-price-gouging-on-amazon-1845024383)
+> 原文：<https://lifehacker.com/how-to-spot-price-gouging-on-amazon-1845024383>
 
 亚马逊的便利是难以匹敌的，尤其是在新冠肺炎市中心，但一份新报告显示，这家科技巨头可能对一些疫情必需品要价过高。
 

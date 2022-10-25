@@ -1,6 +1,6 @@
 # 为小事悲伤是可以的
 
-> 原文:[https://life hacker . com/its-ok-to-sade-the-small-things-1842994012](https://lifehacker.com/its-ok-to-grieve-the-small-things-1842994012)
+> 原文：<https://lifehacker.com/its-ok-to-grieve-the-small-things-1842994012>
 
 Watch
 

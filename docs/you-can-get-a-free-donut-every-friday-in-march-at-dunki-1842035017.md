@@ -1,6 +1,6 @@
 # 三月的每个星期五在 Dunkin 你都可以得到一个免费的甜甜圈
 
-> 原文:[https://life hacker . com/you-can-get-a-free-donut-Friday-at-dunki-1842035017](https://lifehacker.com/you-can-get-a-free-donut-every-friday-in-march-at-dunki-1842035017)
+> 原文：<https://lifehacker.com/you-can-get-a-free-donut-every-friday-in-march-at-dunki-1842035017>
 
 Dunkin '为顾客提供了一点激励，让他们在周五早上喝杯咖啡:免费甜甜圈。甜甜圈连锁店将在三月推出“免费星期五甜甜圈”。顾客每周五购买任何饮料，都可以获得一个他们选择的免费甜甜圈，包括“幸运三叶草甜甜圈”。
 

@@ -1,6 +1,6 @@
 # 如何降低 Windows 10 即将推出的预留硬盘存储需求
 
-> 原文:[https://life hacker . com/how-to-reduce-windows-10s-upcoming-reserved-hard-drive-1831791918](https://lifehacker.com/how-to-reduce-windows-10s-upcoming-reserved-hard-drive-1831791918)
+> 原文：<https://lifehacker.com/how-to-reduce-windows-10s-upcoming-reserved-hard-drive-1831791918>
 
 Windows 10 用户可能很快就会注意到他们的硬盘存储有点不同。
 

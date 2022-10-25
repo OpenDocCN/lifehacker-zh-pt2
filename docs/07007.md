@@ -1,6 +1,6 @@
 # 为你的孩子建立一面“注意墙”
 
-> 原文:[https://life hacker . com/create-a-notification-wall-for-your-kid-1834930062](https://lifehacker.com/create-a-noticing-wall-for-your-kid-1834930062)
+> 原文：<https://lifehacker.com/create-a-noticing-wall-for-your-kid-1834930062>
 
 几年前，我婆婆给我六岁的女儿买了一些阅读和数学练习册。当我问我女儿是否想看看它们时，她只是看着那一大堆吓人的东西，说:“不，谢谢。”这很好——她在幼儿园，我不打算推它。
 

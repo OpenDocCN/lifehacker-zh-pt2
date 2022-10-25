@@ -1,6 +1,6 @@
 # 通过想起你的朋友来记住某人的名字
 
-> 原文:[https://life hacker . com/remember-someones-name-by-thinking-of-your-friends-1831951011](https://lifehacker.com/remember-someones-name-by-thinking-of-your-friends-1831951011)
+> 原文：<https://lifehacker.com/remember-someones-name-by-thinking-of-your-friends-1831951011>
 
 我不擅长记名字。你也是。每个人都不擅长记名字。你已经读过一百万个记住别人名字的技巧，但没有一个有用。但也许这个会！这是我听过的最简单、最不花哨的技巧之一，我以前也曾用过，但并没有认真思考过。 [Redditor analogHedgehog 称](https://www.reddit.com/r/AskReddit/comments/aij1ar/compared_to_everyone_else_your_age_what_life/eeo8uj1/) :
 

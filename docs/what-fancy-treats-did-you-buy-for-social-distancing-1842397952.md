@@ -1,6 +1,6 @@
 # 为了保持社交距离，你买了什么新奇的零食？
 
-> 原文:[https://life hacker . com/what-fancy-treats-do-you-buy-for-social-distanding-1842397952](https://lifehacker.com/what-fancy-treats-did-you-buy-for-social-distancing-1842397952)
+> 原文：<https://lifehacker.com/what-fancy-treats-did-you-buy-for-social-distancing-1842397952>
 
 现在，你的食品柜里很可能堆满了豆子和干意大利面，你的冰箱里装满了——我不知道——碎牛肉和黄油？但是在所有这些必需品的储备中，得到一些款待，一些能让你开心的东西是很重要的。
 

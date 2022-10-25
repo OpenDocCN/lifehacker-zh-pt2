@@ -1,6 +1,6 @@
 # 樱桃番茄是目前最完美的番茄
 
-> 原文:[https://life hacker . com/cherry-tomatos-is the perfect-tomatos-for-right-now-1842643271](https://lifehacker.com/cherry-tomatoes-are-the-perfect-tomato-for-right-now-1842643271)
+> 原文：<https://lifehacker.com/cherry-tomatoes-are-the-perfect-tomato-for-right-now-1842643271>
 
 考虑到现在的目标是呆在家里，一些人已经形成了一种碉堡般的心态，将大部分的食品预算花在罐头、冷冻或干燥食品上。由于其有限的保质期，新鲜农产品目前并没有得到太多的喜爱，但下次你去卖这种东西的商店时，我建议你买一两个樱桃番茄。
 

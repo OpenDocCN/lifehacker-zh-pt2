@@ -1,6 +1,6 @@
 # 用农家干酪做值得早午餐吃的薄煎饼
 
-> 原文:[https://life hacker . com/make-brunch-worthy-pages-with-cottage-cheese-1839333835](https://lifehacker.com/make-brunch-worthy-pancakes-with-cottage-cheese-1839333835)
+> 原文：<https://lifehacker.com/make-brunch-worthy-pancakes-with-cottage-cheese-1839333835>
 
 高档早午餐点的高档煎饼(大部分)是一个骗局。煎饼从来都不难做，任何数量的插件都可以让它们看起来比实际更复杂、更精致。(然而，它们仍然是美味的，你应该在自己舒适的家里制作它们。)
 

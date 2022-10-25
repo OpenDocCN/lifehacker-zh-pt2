@@ -1,6 +1,6 @@
 # 找一个让你远离智能手机的爱好
 
-> 原文:[https://life hacker . com/find-a-hobby-that-get-you-off-your-smart phone-1841357254](https://lifehacker.com/find-a-hobby-that-gets-you-off-your-smartphone-1841357254)
+> 原文：<https://lifehacker.com/find-a-hobby-that-gets-you-off-your-smartphone-1841357254>
 
 每天，我都会尝试做至少一件既吸引人又不用智能手机的活动——如果是社交活动，那就是额外收获。有时是基督教青年会的集体健身课。有时候是唱诗班排练。有时候就像花一个小时看实体书一样简单。
 

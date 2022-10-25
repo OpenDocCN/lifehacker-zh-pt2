@@ -1,6 +1,6 @@
 # 如何让你的心安静下来
 
-> 原文:[https://lifehacker.com/how-to-quiet-your-mind-1838622010](https://lifehacker.com/how-to-quiet-your-mind-1838622010)
+> 原文：<https://lifehacker.com/how-to-quiet-your-mind-1838622010>
 
 这不仅仅是因为我们每天在个人生活中有很多事情要思考和处理。我们也几乎每天都被诸如弹劾、气候变化和大规模枪击这样的大话题淹没。此外，我们总是试图在工作中同时处理多项任务——做饭、回复工作邮件*和*吼孩子停止争吵——这太多了。
 

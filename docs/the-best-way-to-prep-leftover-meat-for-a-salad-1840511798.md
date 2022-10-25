@@ -1,6 +1,6 @@
 # 准备吃剩的肉做沙拉的最好方法
 
-> 原文:[https://life hacker . com/the-best-way-to-prep-remain-meat-for-a-salad-1840511798](https://lifehacker.com/the-best-way-to-prep-leftover-meat-for-a-salad-1840511798)
+> 原文：<https://lifehacker.com/the-best-way-to-prep-leftover-meat-for-a-salad-1840511798>
 
 我最喜欢的寒冷天气餐形式之一是一大块烤肉，搭配淀粉和一些绿色或新鲜的植物物质。我通常会吃烤肉的剩菜，我几乎从不重新加热，因为我第一次做得很完美，该死的。(我可以用沉浸式循环器重新加热吗？是的，但是那需要一些时间，而且我很少想到在我非常饿之前开始做饭。)
 

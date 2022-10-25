@@ -1,6 +1,6 @@
 # 2020 年 8 月 9 日这一周网飞有什么新消息
 
-> 原文:[https://life hacker . com/whats-new-on-the-week-of-August-9-2020-1844673078](https://lifehacker.com/whats-new-on-netflix-the-week-of-august-9-2020-1844673078)
+> 原文：<https://lifehacker.com/whats-new-on-netflix-the-week-of-august-9-2020-1844673078>
 
 本周的新网飞原创系列包括一项对比研究:一部探索有争议的健康疗法的医生电影——想想密宗、蜂毒疗法、禁食——以及一部关于赋予人们合法超能力的实验性新药的动作片。
 

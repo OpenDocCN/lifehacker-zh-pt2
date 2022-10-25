@@ -1,6 +1,6 @@
 # 你现在会去电影院吗？
 
-> 原文:[https://life hacker . com/would-you-go-a-movie-theater-right-now-1844118890](https://lifehacker.com/would-you-go-to-a-movie-theater-right-now-1844118890)
+> 原文：<https://lifehacker.com/would-you-go-to-a-movie-theater-right-now-1844118890>
 
 时间，空间，人，地点。随着企业开业，事件开始再次发生，我一直在思考这些因素。在一个封闭的空间里和很多人呆很长时间不是我想呆的地方【新冠肺炎风险谱】。对我来说，这意味着很长一段时间内没有电影院。
 

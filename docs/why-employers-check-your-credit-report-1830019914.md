@@ -1,6 +1,6 @@
 # 为什么雇主检查你的信用报告
 
-> 原文:[https://life hacker . com/why-employees-check-your-credit-report-1830019914](https://lifehacker.com/why-employers-check-your-credit-report-1830019914)
+> 原文：<https://lifehacker.com/why-employers-check-your-credit-report-1830019914>
 
 根据职业规划师的一项调查，在对求职者进行背景调查的雇主中，不到三分之一的人会将信用调查作为调查的一部分。
 

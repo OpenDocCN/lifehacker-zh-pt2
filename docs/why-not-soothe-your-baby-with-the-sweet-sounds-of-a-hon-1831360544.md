@@ -1,6 +1,6 @@
 # 为什么不用本田发动机甜美的声音安抚你的宝宝呢？
 
-> 原文:[https://life hacker . com/why-not-come-the-sweet-sounds-of-a-hon-1831360544](https://lifehacker.com/why-not-soothe-your-baby-with-the-sweet-sounds-of-a-hon-1831360544)
+> 原文：<https://lifehacker.com/why-not-soothe-your-baby-with-the-sweet-sounds-of-a-hon-1831360544>
 
 如果你曾经带着一个婴儿在城里到处跑，仅仅是因为停车意味着吵醒她，那么你就知道汽车撞倒一个孩子的能力。
 

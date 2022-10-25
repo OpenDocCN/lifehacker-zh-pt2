@@ -1,6 +1,6 @@
 # 如何让热巧克力变得如此浓郁，覆盖在你的勺子上
 
-> 原文:[https://the take out . com/city-bakery-hot-chocolate-recipe-1839364984](https://thetakeout.com/city-bakery-hot-chocolate-recipe-1839364984)
+> 原文：<https://thetakeout.com/city-bakery-hot-chocolate-recipe-1839364984>
 
 纽约市宣布了最新的受害者:城市面包店永久关闭。一个小企业的倒闭很少成为 [近乎全国性的新闻](https://www.foodandwine.com/travel/restaurants/city-bakery-new-york-closes) ，可以理解的是，那些从未品尝过神秘的热巧克力的人不明白所有这些大惊小怪是为了什么。回到过去，在 Cronuts 和 Instagram 以及 [这种鸡蛋沙拉三明治](https://www.nytimes.com/2019/01/28/dining/konbi-egg-salad-sandwich-instagram.html) 出现之前，你能吸引纽约人味蕾的唯一方法就是创造出超乎寻常的食物。City Bakery 对纽约人的吸引力是如此之大，以至于在 2 月的严寒中，当街道变成冰冷的灰色泥泞的河流，出租车仍然拒绝减速时，他们会高兴地在门口排起长队购买面包店的热巧克力。就像梅西百货、蒂芙尼和时代广场一样，城市面包店是真正的纽约市标志。
 

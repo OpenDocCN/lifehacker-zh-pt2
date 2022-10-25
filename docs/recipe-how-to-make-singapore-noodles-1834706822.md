@@ -1,6 +1,6 @@
 # 咖喱厨师:如何制作新加坡面条
 
-> 原文:[https://the take out . com/recipe-how-to-make-Singapore-noodles-1834706822](https://thetakeout.com/recipe-how-to-make-singapore-noodles-1834706822)
+> 原文：<https://thetakeout.com/recipe-how-to-make-singapore-noodles-1834706822>
 
 *欢迎来到*的外卖*的* [***亚洲面条周***](https://thetakeout.com/tag/asian-noodles-week) *，向 O.G .的面食碗致敬。*
 

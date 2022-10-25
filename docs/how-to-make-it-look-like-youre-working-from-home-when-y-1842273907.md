@@ -1,6 +1,6 @@
 # 当你不在家时，如何让它看起来像你在家工作
 
-> 原文:[https://life hacker . com/how-to-make it-like-you-when-y-1842273907](https://lifehacker.com/how-to-make-it-look-like-youre-working-from-home-when-y-1842273907)
+> 原文：<https://lifehacker.com/how-to-make-it-look-like-youre-working-from-home-when-y-1842273907>
 
 我已经在家工作了很多年，没有什么比洗衣服和完成工作而不是把宝贵的晚上时间浪费在家务上更令人满意的了。这是冠状病毒的一线希望——希望也许，*只是也许*，一些公司会稍微放松他们的反 WFH 政策，允许员工利用额外的生产力(和世界上最容易的通勤)。
 

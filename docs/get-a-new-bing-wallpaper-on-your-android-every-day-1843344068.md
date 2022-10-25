@@ -1,6 +1,6 @@
 # 每天在你的 Android 上获取一个新的 Bing 壁纸
 
-> 原文:[https://life hacker . com/get-a-new-bing-wallpaper-on-your-Android-every-day-1843344068](https://lifehacker.com/get-a-new-bing-wallpaper-on-your-android-every-day-1843344068)
+> 原文：<https://lifehacker.com/get-a-new-bing-wallpaper-on-your-android-every-day-1843344068>
 
 我可以肯定地说，更多的人喜欢必应的壁纸，而不是它的搜索引擎。以至于，事实上，微软已经发布了 Bing 的壁纸作为 Windows 的 [桌面背景，它甚至最近推出了一个官方的用于 Android 设备的](https://lifehacker.com/get-bing-wallpapers-for-your-windows-desktop-with-these-1842963251) [Bing 壁纸应用](https://play.google.com/store/apps/details?id=com.microsoft.bing.wallpapers) 。
 

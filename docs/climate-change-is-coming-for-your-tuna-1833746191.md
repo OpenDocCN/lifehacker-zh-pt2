@@ -1,6 +1,6 @@
 # 你的金枪鱼将面临气候变化
 
-> 原文:[https://gizmodo . com/climate-change-is-come-for-your-tuna-1833746191](https://gizmodo.com/climate-change-is-coming-for-your-tuna-1833746191)
+> 原文：<https://gizmodo.com/climate-change-is-coming-for-your-tuna-1833746191>
 
 气候变化似乎威胁着我们所珍视的一切，从 [咖啡](https://earther.gizmodo.com/more-than-half-of-wild-coffee-species-could-go-extinct-1831807896) 到 [啤酒](https://earther.gizmodo.com/drink-beer-while-you-can-still-afford-it-1829754901#_ga=2.83325526.1556161580.1554143263-852401423.1546292596) 到 [塔巴斯科酱](https://earther.gizmodo.com/tabasco-sauce-is-in-a-battle-for-its-very-survival-1825510123) 。现在，美国最受欢迎的海鲜之一——金枪鱼——也陷入了困境。
 

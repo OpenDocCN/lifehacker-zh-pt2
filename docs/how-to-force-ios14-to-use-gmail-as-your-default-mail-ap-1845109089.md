@@ -1,6 +1,6 @@
 # 如何在 iOS 14 中将 Gmail 作为你的默认邮件应用
 
-> 原文:[https://life hacker . com/how-to-force-IOs 14-to-use-Gmail-as-your-default-mail-AP-1845109089](https://lifehacker.com/how-to-force-ios14-to-use-gmail-as-your-default-mail-ap-1845109089)
+> 原文：<https://lifehacker.com/how-to-force-ios14-to-use-gmail-as-your-default-mail-ap-1845109089>
 
 ***更新 9/21/20 下午 3 点:**嗯，真快！Gmail iOS 应用程序的更新版本为 6.0.200825，也可以将 Gmail 设置为 iOS 中的默认邮件应用程序。(提醒一下，你可以通过 iOS 设置应用> Gmail 来设置。)*
 

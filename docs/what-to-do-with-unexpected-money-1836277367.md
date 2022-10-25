@@ -1,6 +1,6 @@
 # 如何处理意外之财
 
-> 原文:[https://life hacker . com/what-do-with the-unexpected-money-1836277367](https://lifehacker.com/what-to-do-with-unexpected-money-1836277367)
+> 原文：<https://lifehacker.com/what-to-do-with-unexpected-money-1836277367>
 
 无论你最终得到了那个大客户，还是最终赢得了彩票，大量的意外收入总是一件好事。这也需要一些计划。以下是我对分配额外收入的最佳方式的想法，按顺序排列如下:
 

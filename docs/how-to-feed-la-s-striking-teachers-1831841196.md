@@ -1,6 +1,6 @@
 # 如何养活洛杉矶的罢工教师
 
-> 原文:[https://life hacker . com/how-to-feed-la-s-striking-teachers-1831841196](https://lifehacker.com/how-to-feed-la-s-striking-teachers-1831841196)
+> 原文：<https://lifehacker.com/how-to-feed-la-s-striking-teachers-1831841196>
 
 超过 30，000 名公立学校的教师正在罢工，要求改变，包括大幅减少班级人数和增加工资。
 

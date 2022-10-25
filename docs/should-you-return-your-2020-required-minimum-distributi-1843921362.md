@@ -1,6 +1,6 @@
 # 你应该退回 2020 年要求的最低分配额吗？
 
-> 原文:[https://life hacker . com/should-you-return-your-2020-required-minimum-distributi-1843921362](https://lifehacker.com/should-you-return-your-2020-required-minimum-distributi-1843921362)
+> 原文：<https://lifehacker.com/should-you-return-your-2020-required-minimum-distributi-1843921362>
 
 如果你在 2020 年从你的传统个人退休帐户或 401(k)中提取了所需的最低分配额，你也许可以把它们放回去。CARES Act 允许退休人员免除 2020 年要求的最低分配额(rmd)和 2020 年 4 月 1 日之前到期的 2019 年最低分配额，适用于 2019 年年满 70.5 岁的个人。这意味着，如果你在知道弃权之前就拿走了你的 rmd，有可能把它们退回去。
 

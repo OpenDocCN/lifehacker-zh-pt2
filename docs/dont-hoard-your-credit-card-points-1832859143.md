@@ -1,6 +1,6 @@
 # 不要囤积你的信用卡积分
 
-> 原文:[https://life hacker . com/don ' t-Hodge-your-credit-card-points-1832859143](https://lifehacker.com/dont-hoard-your-credit-card-points-1832859143)
+> 原文：<https://lifehacker.com/dont-hoard-your-credit-card-points-1832859143>
 
 积累信用卡积分和里程似乎是支付梦幻之旅的理想方式。但正如[CreditCards.com](https://www.creditcards.com/credit-card-news/points-hoarding-mistakes-tips.php)指出的那样，你的积分不一定总是和现在一样有价值；把它们花掉比存起来好。
 

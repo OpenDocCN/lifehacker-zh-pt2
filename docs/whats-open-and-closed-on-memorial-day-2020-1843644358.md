@@ -1,6 +1,6 @@
 # 2020 年阵亡将士纪念日开放和关闭的是什么
 
-> 原文:[https://life hacker . com/whats-open-and-closed-on-memorial-day-2020-1843644358](https://lifehacker.com/whats-open-and-closed-on-memorial-day-2020-1843644358)
+> 原文：<https://lifehacker.com/whats-open-and-closed-on-memorial-day-2020-1843644358>
 
 星期一是阵亡将士纪念日。虽然现在所有的日子可能会模糊在一起，但这一天是联邦假日，这意味着一些地方可能不会开放，而这些地方通常是最近才开放的。
 

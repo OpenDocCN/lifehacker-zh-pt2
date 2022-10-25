@@ -1,6 +1,6 @@
 # 为什么你应该等着给你的孩子看他们自己的视频
 
-> 原文:[https://life hacker . com/why-you-should-wait-to-show-your-kids-videos-of-themsel-1834375834](https://lifehacker.com/why-you-should-wait-to-show-your-kids-videos-of-themsel-1834375834)
+> 原文：<https://lifehacker.com/why-you-should-wait-to-show-your-kids-videos-of-themsel-1834375834>
 
 当我还是个孩子的时候，我在各种社区音乐剧中表演。作为一个极度害羞的孩子，我在舞台上感觉很舒服。服装，演出前的紧张，演出后的满足——我全都喜欢。直到我们家有客人时，我爸爸会突然放入我表演的录像带。
 

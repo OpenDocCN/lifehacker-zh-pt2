@@ -1,6 +1,6 @@
 # 在公共场合使用 FaceTime 会被接受吗？
 
-> 原文:[https://life hacker . com/is-it-ever-acceptable-to-face time-in-public-1836978074](https://lifehacker.com/is-it-ever-acceptable-to-facetime-in-public-1836978074)
+> 原文：<https://lifehacker.com/is-it-ever-acceptable-to-facetime-in-public-1836978074>
 
 欢迎来到科技礼仪，这是来自 Lifehacker 的一个新的建议专栏，在这里，我们试图裁定所谓的“数字时代”的无法无天的领域每个人都对其他人糟糕的科技礼仪有自己的看法:你应该如何在网上表现，何时何地可以使用手机，哪些表情符号在工作中是可以接受的，电子邮件是粗鲁还是简洁。技术礼仪试图平息这些分歧，或者至少在一个不合理的世界里提供一个理性的声音。
 

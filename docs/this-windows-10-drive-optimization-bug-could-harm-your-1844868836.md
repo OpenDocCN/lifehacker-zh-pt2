@@ -1,6 +1,6 @@
 # 这个 Windows 10 的“驱动器优化”错误可能会损害您的驱动器
 
-> 原文:[https://life hacker . com/this-windows-10-drive-optimization-bug-could-harm-your-1844868836](https://lifehacker.com/this-windows-10-drive-optimization-bug-could-harm-your-1844868836)
+> 原文：<https://lifehacker.com/this-windows-10-drive-optimization-bug-could-harm-your-1844868836>
 
 最新的 Windows 10 更新似乎比它需要的更频繁地运行自动硬盘优化过程。虽然这是硬盘维护的一个必要部分，让 Windows 在你的 SSD 上运行 [TRIM 命令](https://blog.oo-software.com/en/defragmentation-and-ssds-trim) 也不会有什么坏处，但是过度的*整理硬盘碎片*通常是不必要的，并且会随着时间的推移影响 SSD 的寿命。
 

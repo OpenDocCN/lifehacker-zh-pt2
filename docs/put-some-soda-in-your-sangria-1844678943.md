@@ -1,6 +1,6 @@
 # 在你的桑格利亚汽酒里放些苏打水
 
-> 原文:[https://life hacker . com/put-some-soda in your-sangria-1844678943](https://lifehacker.com/put-some-soda-in-your-sangria-1844678943)
+> 原文：<https://lifehacker.com/put-some-soda-in-your-sangria-1844678943>
 
 桑格利亚是一个取悦人群的地方，但是有一种方式会在所有人都高兴之前消失，即使有一个适合两人的 COVID 人群。缓解这种情况的一种方法是制作比您想象中需要的更多的桑格利亚酒(并用便宜的葡萄酒制作)，但您也可以通过搭配苏打水来进一步扩展桑格利亚酒。
 

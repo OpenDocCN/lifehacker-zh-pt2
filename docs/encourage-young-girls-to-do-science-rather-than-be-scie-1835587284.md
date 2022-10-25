@@ -1,6 +1,6 @@
 # 鼓励年轻女孩“做”科学，而不是“成为”科学家
 
-> 原文:[https://life hacker . com/come-young-girls-to-do-science-than-be-scie-1835587284](https://lifehacker.com/encourage-young-girls-to-do-science-rather-than-be-scie-1835587284)
+> 原文：<https://lifehacker.com/encourage-young-girls-to-do-science-rather-than-be-scie-1835587284>
 
 今天的女孩们看到了更多从事 STEM 职业的女性形象，这很棒。现在，我正在看这些女性创新者的插图海报，她们来自 [你应该认识的女性](https://womenyoushouldknow.net/downloadable-stem-role-models-posters/) :有 Maria da Penha，一位生物药物学家和人权捍卫者；梅·C·杰米森，第一位遨游太空的非洲裔美国女性；罗莎琳德·富兰克林，他在发现 DNA 结构方面起了重要作用。我很想把这些艺术品挂在我女儿的房间里，帮助她看到一切可能。
 

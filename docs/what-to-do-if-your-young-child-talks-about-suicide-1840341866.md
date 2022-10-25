@@ -1,6 +1,6 @@
 # 如果你的小孩谈论自杀该怎么办
 
-> 原文:[https://life hacker . com/1840341866](https://lifehacker.com/what-to-do-if-your-young-child-talks-about-suicide-1840341866)
+> 原文：<https://lifehacker.com/what-to-do-if-your-young-child-talks-about-suicide-1840341866>
 
 我最近在《卫报》 的 [中看到一个建议专栏，这让我很难过。一位母亲写信来寻求建议，因为她 10 岁的儿子一直在说没有人关心他，他希望他从来没有出生过，他的生命不值得活下去。她说，他还提到了“不明确的自杀方式”](https://www.theguardian.com/lifeandstyle/2018/aug/31/my-10-year-old-says-no-one-cares-talks-suicide)
 

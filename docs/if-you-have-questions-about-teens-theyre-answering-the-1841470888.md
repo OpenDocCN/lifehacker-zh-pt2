@@ -1,6 +1,6 @@
 # 如果你有关于青少年的问题，他们会在 Reddit 上为你解答
 
-> 原文:[https://life hacker . com/if-you-hacken-about-they-answering-the-1841470888](https://lifehacker.com/if-you-have-questions-about-teens-theyre-answering-the-1841470888)
+> 原文：<https://lifehacker.com/if-you-have-questions-about-teens-theyre-answering-the-1841470888>
 
 众所周知，青少年时期是许多父母害怕的时期。毕竟，青少年是喜怒无常的。青少年是孤僻的。青少年对我们似乎无法完全理解他们正在经历的事情感到恼火。更不用说我们依稀记得十几岁时*和*如何对待父母的方式之间的脱节，我们无法完全回忆起所有的社会压力和学业压力以及飙升的荷尔蒙让我们感觉如何。
 

@@ -1,6 +1,6 @@
 # 改变美国历史进程的示威游行
 
-> 原文:[https://life hacker . com/examples-that-changed-the-course-of-American-hist-1843824093](https://lifehacker.com/demonstrations-that-changed-the-course-of-american-hist-1843824093)
+> 原文：<https://lifehacker.com/demonstrations-that-changed-the-course-of-american-hist-1843824093>
 
 随着上周至少 140 个城市 发生了抗议活动，起因是警察杀害了 [乔治·弗洛伊德](https://www.nytimes.com/2020/05/29/us/minneapolis-police-george-floyd.html) 和 [布里奥纳·泰勒](https://www.nytimes.com/article/breonna-taylor-police.html) ，我们认为是时候看看美国历史上的其他示威和骚乱了。鉴于个人安全的潜在风险——更不用说在疫情举行的大型集会了——人们可能想知道参加抗议活动是否真的能有所作为。简而言之:他们可以。
 

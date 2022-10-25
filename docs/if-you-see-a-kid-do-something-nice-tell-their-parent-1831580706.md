@@ -1,6 +1,6 @@
 # 如果你看到一个孩子做一些好事，告诉他们的父母
 
-> 原文:[https://life hacker . com/if-you-see-a-kid-do-something-nice-tell-then-parent-1831580706](https://lifehacker.com/if-you-see-a-kid-do-something-nice-tell-their-parent-1831580706)
+> 原文：<https://lifehacker.com/if-you-see-a-kid-do-something-nice-tell-their-parent-1831580706>
 
 你知道当老师挥手让你去学校接机时你会有什么感觉吗？或者当另一位家长在你去取车的路上拦住你说，“嘿，我想你应该知道……”或者，当你抱着一大堆食品走到前门时，一个邻居喊着你的名字说:“我必须告诉你(你的孩子)前几天做的一件事。”
 

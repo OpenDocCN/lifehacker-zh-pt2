@@ -1,6 +1,6 @@
 # 如何注射加强剂
 
-> 原文:[https://life hacker . com/how-to-get-your booster-shots-1833950811](https://lifehacker.com/how-to-get-your-booster-shots-1833950811)
+> 原文：<https://lifehacker.com/how-to-get-your-booster-shots-1833950811>
 
 随着麻疹、腮腺炎和其他以前根除的疾病卷土重来，确保您的疫苗接种是最新的 [比以往任何时候都更重要，尤其是如果您是成年人](https://lifehacker.com/vaccines-you-need-as-an-adult-1720902072) 。群体免疫保护我们当中最脆弱的人；过期的百日咳疫苗可能不会对你造成太大威胁，但它可能会严重伤害免疫功能低下的儿童或老人。
 

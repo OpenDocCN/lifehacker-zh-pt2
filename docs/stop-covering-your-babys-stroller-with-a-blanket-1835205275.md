@@ -1,6 +1,6 @@
 # 不要用毯子盖住你宝宝的婴儿车
 
-> 原文:[https://life hacker . com/stop-covering-your babys-stroller-with a blanket-1835205275](https://lifehacker.com/stop-covering-your-babys-stroller-with-a-blanket-1835205275)
+> 原文：<https://lifehacker.com/stop-covering-your-babys-stroller-with-a-blanket-1835205275>
 
 试图让婴儿远离阳光是很棘手(也很有压力)的。父母通常希望避免给六个月以下的婴儿使用防晒霜，所以当你出去散步时，在开口处扔一条轻薄的毯子来遮挡阳光会很有诱惑力。但是这可能会让事情变得更危险，而不是更危险。
 

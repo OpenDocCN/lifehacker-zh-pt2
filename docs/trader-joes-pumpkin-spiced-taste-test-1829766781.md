@@ -1,6 +1,6 @@
 # 葫芦死:吃遍《乔帮主》2018 南瓜五香狂欢
 
-> 原文:[https://the take out . com/trader-joes-pumpkin-五香-taste-test-1829766781](https://thetakeout.com/trader-joes-pumpkin-spiced-taste-test-1829766781)
+> 原文：<https://thetakeout.com/trader-joes-pumpkin-spiced-taste-test-1829766781>
 
 每个月都有自己的味道。十二月尝起来像棒棒糖和热可可。三月尝起来像三叶草奶昔。七月是热狗和烤肉的季节。然后是十月，所有东西突然都被该死的南瓜香料覆盖。谁能想到南瓜会变成这样一个无处不在的葫芦？这是一种几乎不能食用的水果，只有在绝望的情况下才会吃它的果肉，而且它需要大量的香料才能咽下去。
 

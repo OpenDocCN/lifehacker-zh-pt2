@@ -1,6 +1,6 @@
 # 当面试官要求长期承诺时，该怎么回答
 
-> 原文:[https://life hacker . com/1839666229](https://lifehacker.com/what-to-say-when-a-job-interviewer-asks-for-a-long-term-1839666229)
+> 原文：<https://lifehacker.com/what-to-say-when-a-job-interviewer-asks-for-a-long-term-1839666229>
 
 在一次典型的求职面试中，你通常会被问到一些熟悉的问题，比如“你的优势是什么？”或者“ [到底为什么*要来这里工作？*](https://lifehacker.com/how-to-answer-why-you-do-you-want-to-work-here-in-a-jo-1839099971)*“有时候，你可能还会回答招聘经理提出的不太合法的问题，比如涉及你个人业务或家庭计划的问题。(如果你在这个位置，那就 [完全没问题](https://lifehacker.com/the-most-common-illegal-job-interview-questions-you-sho-1706238105) *不*来回答。)* 
 

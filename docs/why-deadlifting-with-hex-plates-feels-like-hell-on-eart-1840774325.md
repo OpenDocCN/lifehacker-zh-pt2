@@ -1,6 +1,6 @@
 # 为什么用六角板硬拉感觉像在人间地狱
 
-> 原文:[https://life hacker . com/why-dead lifting-with-hex-plates-feel-like-hell-on-eart-1840774325](https://lifehacker.com/why-deadlifting-with-hex-plates-feels-like-hell-on-eart-1840774325)
+> 原文：<https://lifehacker.com/why-deadlifting-with-hex-plates-feels-like-hell-on-eart-1840774325>
 
 如果你回家度假，去当地的健身房锻炼，你现在可能知道，不是所有的健身房都是平等的。有些本质上很差，堆满了老旧生锈的重物和不平的地板。但是，即使是在一个全新的、设备齐全的健身房，事情有时也会让人感觉不一样，因此，难度会成倍增加。杠铃可以感觉掉了。长凳会感觉不舒服。见鬼，即使是跑步机模型也可能不是你已经习惯的那种，跑步会感觉有点奇怪。
 

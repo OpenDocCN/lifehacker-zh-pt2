@@ -1,6 +1,6 @@
 # 把你的早餐香肠做成适合你的面包的形状
 
-> 原文:[https://life hacker . com/shape-your-breakfast-香肠-适合你的面包-1844218949](https://lifehacker.com/shape-your-breakfast-sausage-to-fit-your-bread-1844218949)
+> 原文：<https://lifehacker.com/shape-your-breakfast-sausage-to-fit-your-bread-1844218949>
 
 如果你正在做一个 [麦芬式](https://skillet.lifehacker.com/make-an-even-better-egg-mcmuffin-in-five-minutes-1838218899) 早餐三明治，一个圆形香肠馅饼是有意义的。但是假如你想要吐司三明治——w 然后呢？香肠圈会留下未腌制的角，我想这里没有人想以未腌制的角开始他们的一天。(此外，一些预先成型的圆形馅饼非常小，在你的早餐三明治馅料周围留有未腌制的面包边！)
 

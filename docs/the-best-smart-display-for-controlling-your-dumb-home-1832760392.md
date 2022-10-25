@@ -1,6 +1,6 @@
 # 控制你愚蠢的家的最好的智能显示器
 
-> 原文:[https://gizmodo . com/the-best-smart-display-for-control-your-dumb-home-1832760392](https://gizmodo.com/the-best-smart-display-for-controlling-your-dumb-home-1832760392)
+> 原文：<https://gizmodo.com/the-best-smart-display-for-controlling-your-dumb-home-1832760392>
 
 所以你投资了智能灯，一个联网的安全摄像头，几个智能插头，可能还有一两个智能扬声器在你的房子周围。你可能在考虑加入机器人吸尘器。但是在你已经杂乱的手机上添加另一个应用程序的想法令人疲惫不堪——你会怎么做？
 

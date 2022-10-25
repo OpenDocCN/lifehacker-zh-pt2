@@ -1,6 +1,6 @@
 # 你的孩子现在正在学习大量的“软技能”
 
-> 原文:[https://life hacker . com/your-kids-is-learning-tons-of-soft-skills-right-now-1842730189](https://lifehacker.com/your-kids-are-learning-tons-of-soft-skills-right-now-1842730189)
+> 原文：<https://lifehacker.com/your-kids-are-learning-tons-of-soft-skills-right-now-1842730189>
 
 昨天下午，当我儿子让我帮他补习三年级的数学时，我的第一反应是慢慢退出房间。我和马斯的关系很紧张。但是事实证明他可以做数学运算。是他的 Chromebook 上该死的程序不合作，不允许他选择他知道的正确答案。
 

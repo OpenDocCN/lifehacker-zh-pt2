@@ -1,6 +1,6 @@
 # 停止在飞机上使用毯子和枕头
 
-> 原文:[https://life hacker . com/stop-use-your-flights-blanket-and-pillows-1832391964](https://lifehacker.com/stop-using-your-flights-blankets-and-pillows-1832391964)
+> 原文：<https://lifehacker.com/stop-using-your-flights-blankets-and-pillows-1832391964>
 
 在潮湿的马桶座圈和你座位上那些神秘的碎屑之间，飞机卫生，嗯，还有很多需要改进的地方。
 

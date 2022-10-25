@@ -1,6 +1,6 @@
 # 处理剩余玉米粉的最好办法
 
-> 原文:[https://life hacker . com/the-best-thing-to-do with the-remainder-grits-1844377998](https://lifehacker.com/the-best-thing-to-do-with-leftover-grits-1844377998)
+> 原文：<https://lifehacker.com/the-best-thing-to-do-with-leftover-grits-1844377998>
 
 我从没见过一碗我没有立刻爱上的粗燕麦粉。无论是黄油、奶酪、虾肉还是 [蛋黄](https://lifehacker.com/add-an-egg-yolk-to-your-grits-and-savory-oatmeal-1844322908) ，一碗奶油煮玉米粥对我来说都是完美的早餐。我通常会做一大堆，然后根据一周的需要，用少量牛奶或黄油加热剩菜。但是有时我会剩下一个尴尬的量——不够一整碗的量。B 但它将不再是一个尴尬的数量，因为 t 他的数量*对于砂砾饼来说是足够的*。
 

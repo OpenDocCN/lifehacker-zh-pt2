@@ -1,6 +1,6 @@
 # 这些 Chrome 扩展将清理你泛滥的 Gmail 收件箱
 
-> 原文:[https://life hacker . com/these-chrome-extensions-will-de clutter-your-overflow-1842416460](https://lifehacker.com/these-chrome-extensions-will-declutter-your-overflowing-1842416460)
+> 原文：<https://lifehacker.com/these-chrome-extensions-will-declutter-your-overflowing-1842416460>
 
 泛滥的电子邮件永无止境。即使有充足的隔离时间，整理你的 Gmail 帐户并到达零收件箱感觉像是一个遥不可及的幻想，但它不需要成为一个:有许多优秀的(而且大部分是免费的！)第三方浏览器扩展将帮助您筛选全天候的雪崩。
 

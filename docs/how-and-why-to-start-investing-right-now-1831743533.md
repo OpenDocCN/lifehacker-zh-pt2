@@ -1,6 +1,6 @@
 # 为什么你应该现在就开始投资
 
-> 原文:[https://life hacker . com/how-and-why-to-start-investing-right-now-1831743533](https://lifehacker.com/how-and-why-to-start-investing-right-now-1831743533)
+> 原文：<https://lifehacker.com/how-and-why-to-start-investing-right-now-1831743533>
 
 投资的秘诀是什么？真的没有。投资不需要花费很多时间，而且做起来会有回报( [字面意思](https://twocents.lifehacker.com/a-beginner-s-guide-to-dividend-investing-1822211017) )。
 

@@ -1,6 +1,6 @@
 # 该不该买大学学费保险？
 
-> 原文:[https://life hacker . com/should-you-buy-college-tufty-insurance-1844791790](https://lifehacker.com/should-you-buy-college-tuition-insurance-1844791790)
+> 原文：<https://lifehacker.com/should-you-buy-college-tuition-insurance-1844791790>
 
 随着大学生返校，许多人正准备应对校园关闭的可能性。一些学校——如北卡罗来纳大学教堂山分校 和 [密歇根州立大学](https://www.lansingstatejournal.com/story/news/2020/08/18/michigan-state-moves-undergraduate-classes-online-only-start-new-year/3394257001/)——已经将秋季课程转移到网上。这些变化让学生们想知道如何拿回他们的钱——事实证明，退款可能不容易。
 

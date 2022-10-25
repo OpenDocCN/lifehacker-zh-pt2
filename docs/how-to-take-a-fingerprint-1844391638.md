@@ -1,6 +1,6 @@
 # 如何采集指纹
 
-> 原文:[https://lifehacker.com/how-to-take-a-fingerprint-1844391638](https://lifehacker.com/how-to-take-a-fingerprint-1844391638)
+> 原文：<https://lifehacker.com/how-to-take-a-fingerprint-1844391638>
 
 国际旅行 需要大量的文件和身份证明，这通常包括获取的指纹。我是一个经验丰富的旅行者，我知道我不是唯一一个不得不不止一次采集指纹的人，包括电子指纹和纸张上的墨水指纹。
 

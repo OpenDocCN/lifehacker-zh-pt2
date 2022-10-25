@@ -1,6 +1,6 @@
 # 关于欧盟旅行禁令你需要知道的一切
 
-> 原文:[https://life hacker . com/everything-you-need-know-on-the-eu-travel-ban-1844323586](https://lifehacker.com/everything-you-need-to-know-about-the-eu-travel-ban-1844323586)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-about-the-eu-travel-ban-1844323586>
 
 随着越来越多的国际航班恢复，许多国家已经禁止谁可以进入他们的边境，谁不可以。例如，由于新冠肺炎病例在美国激增，美国被禁止进入欧盟。这里是你需要知道的关于欧盟旅行禁令的一切。
 

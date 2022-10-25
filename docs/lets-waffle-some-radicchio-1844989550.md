@@ -1,6 +1,6 @@
 # 我们来烤点菊苣吧
 
-> 原文:[https://life hacker . com/let-waffle-some-radic hio-1844989550](https://lifehacker.com/lets-waffle-some-radicchio-1844989550)
+> 原文：<https://lifehacker.com/lets-waffle-some-radicchio-1844989550>
 
 许多人震惊地发现，我是一个多产的沙拉制造者和消费者。这是有道理的，因为我在这个世界上扮演的角色有点像浸了杜松子酒、涂了培根油的角色，而絮絮叨叨的和 [吃剩的披萨](https://skillet.lifehacker.com/you-should-waffle-two-pieces-of-pizza-together-1844905721) 并没有帮助。但我确实喜欢美味的沙拉，尤其是含有大量玉米、蓝奶酪或菊苣的沙拉。
 

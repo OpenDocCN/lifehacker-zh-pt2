@@ -1,6 +1,6 @@
 # 将几乎所有的应用程序移出手机主屏幕
 
-> 原文:[https://life hacker . com/move-almost-all-the-apps-off-your phones-home-screen-1837873500](https://lifehacker.com/move-almost-all-the-apps-off-your-phones-home-screen-1837873500)
+> 原文：<https://lifehacker.com/move-almost-all-the-apps-off-your-phones-home-screen-1837873500>
 
 我打手机打得太多了。我知道，这是一个独特的问题，但我已经受够了无意识地浏览社交媒体。每当我不得不等待一两分钟的时候，我就会拿出手机，出于习惯，我会点击-点击-点击，现在正在看每个人 Instagram 帖子的第二张照片，因为我已经滚动过一次了。
 

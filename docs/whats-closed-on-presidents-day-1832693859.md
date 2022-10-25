@@ -1,6 +1,6 @@
 # 总统日那天什么关门
 
-> 原文:[https://life hacker . com/whats-closed-on-presidents-day-1832693859](https://lifehacker.com/whats-closed-on-presidents-day-1832693859)
+> 原文：<https://lifehacker.com/whats-closed-on-presidents-day-1832693859>
 
 今天是总统日！这一天正式纪念美国第一任总统乔治·华盛顿的生日。事实上，这个节日在技术上被称为华盛顿的生日。这是一个联邦假日，这意味着不仅很多人会在周一放假一天(3 天周末 FTW！)，很多商家也会关门。
 

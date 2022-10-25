@@ -1,6 +1,6 @@
 # 2020 年 7 月 26 日这一周网飞有什么新消息
 
-> 原文:[https://life hacker . com/whats-new-on-the-week of July-26-2020-1844516993](https://lifehacker.com/whats-new-on-netflix-the-week-of-july-26-2020-1844516993)
+> 原文：<https://lifehacker.com/whats-new-on-netflix-the-week-of-july-26-2020-1844516993>
 
 本周《网飞》最重要的新增内容让你在一头扎进纷乱的过去和一头扎进现在之间做出选择。很难说哪个提供了更令人不安的世界图景。开玩笑，是后一种选择。
 

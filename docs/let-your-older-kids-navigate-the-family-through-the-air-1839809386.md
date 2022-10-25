@@ -1,6 +1,6 @@
 # 让你大一点的孩子带着你的家人穿过机场
 
-> 原文:[https://life hacker . com/let-your-old-kids-navigate-the-family-through-the-air-1839809386](https://lifehacker.com/let-your-older-kids-navigate-the-family-through-the-air-1839809386)
+> 原文：<https://lifehacker.com/let-your-older-kids-navigate-the-family-through-the-air-1839809386>
 
 在假期(或任何时候)带着孩子去机场可能是旅行经历中最糟糕的部分——嗯，除了真正的飞行本身。如果你有一个稍大一点的孩子，这可能是一个让他们测试导航技能的好机会。
 

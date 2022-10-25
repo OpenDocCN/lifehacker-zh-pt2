@@ -1,6 +1,6 @@
 # 如何帮助金凯德火灾的疏散人员
 
-> 原文:[https://life hacker . com/how-to-help-the-kinkade-fire-1839438952](https://lifehacker.com/how-to-help-evacuees-of-the-kinkade-fire-1839438952)
+> 原文：<https://lifehacker.com/how-to-help-evacuees-of-the-kinkade-fire-1839438952>
 
 截至周二上午，加利福尼亚州索诺马县的金凯德大火 已经蔓延了 74000 英亩，迫使大约 174000 人撤离家园。(到目前为止，在其路径上已经有 49 所房屋被 [摧毁或损坏](https://www.sfchronicle.com/california-wildfires/article/Kincade-Fire-Homes-burning-in-Sonoma-County-as-14559121.php) 。)据《卫报》记者 [Susie Cagle](https://twitter.com/susie_c/status/1188444707635908608) 的推文称，面对火势的增长，一些疏散中心已经被迫自行疏散。
 

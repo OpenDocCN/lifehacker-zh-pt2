@@ -1,6 +1,6 @@
 # 如何结合积分和现金购买捷蓝航空的机票
 
-> 原文:[https://life hacker . com/you-can-now-combine-points-and-cash-to-purchase-fares-o-1844248633](https://lifehacker.com/you-can-now-combine-points-and-cash-to-purchase-fares-o-1844248633)
+> 原文：<https://lifehacker.com/you-can-now-combine-points-and-cash-to-purchase-fares-o-1844248633>
 
 预订旅行最伤脑筋的时刻之一是意识到你已经积累了航空公司的积分，但还不足以带你去你想去的地方。随着旅游开始重新开放，航空公司正在想出不同的方法来鼓励旅客预订旅行。通常情况下，你可以选择用现金购买机票，或者兑换积分或里程，但很少能把两者结合起来——直到现在。
 

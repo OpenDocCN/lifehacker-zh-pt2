@@ -1,6 +1,6 @@
 # 如何学习跳绳双底
 
-> 原文:[https://life hacker . com/how-to-learn-jump-rope-double-unders-1831865080](https://lifehacker.com/how-to-learn-jump-rope-double-unders-1831865080)
+> 原文：<https://lifehacker.com/how-to-learn-jump-rope-double-unders-1831865080>
 
 双 unders 是跳绳，但更难。你的身体还是直上直下，绳子只是一圈一圈的转。但与常规跳跃相比，你有更高的机会打自己的脚踝或后脑勺，这就是为什么当你做对了时会感到如此满意。
 

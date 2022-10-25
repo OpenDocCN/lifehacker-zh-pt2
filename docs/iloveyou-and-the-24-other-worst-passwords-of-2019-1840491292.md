@@ -1,6 +1,6 @@
 # “我爱你”和 2019 年其他 24 个最差密码
 
-> 原文:[https://life hacker . com/ILO veyou-and-the-24-the-other-the-2019-1840491292](https://lifehacker.com/iloveyou-and-the-24-other-worst-passwords-of-2019-1840491292)
+> 原文：<https://lifehacker.com/iloveyou-and-the-24-other-worst-passwords-of-2019-1840491292>
 
 不要使用错误的密码。即使是愚蠢的事情。因为你今天加入的愚蠢的社交网络有一天可能会增加一个钱包或云服务或一个摄像头，在你知道之前，唯一能阻止别人掏空你的银行账户和监视你家的东西就是“龙”这个词。
 

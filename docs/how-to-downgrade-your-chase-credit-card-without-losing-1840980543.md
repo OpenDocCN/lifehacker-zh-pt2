@@ -1,6 +1,6 @@
 # 如何降级你的大通信用卡不失去你的积分
 
-> 原文:[https://life hacker . com/how-to-degrade-you-chase-credit-with-lost-1840980543](https://lifehacker.com/how-to-downgrade-your-chase-credit-card-without-losing-1840980543)
+> 原文：<https://lifehacker.com/how-to-downgrade-your-chase-credit-card-without-losing-1840980543>
 
 当有消息称大通银行将广受欢迎的 Sapphire Reserve 卡的年费从 450 美元提高到 550 美元时，很多读者都想知道保留这张卡是否值得。虽然增加的费用带来了额外的持卡人利益，但当你在账单上看到 550 美元时，这并不是一个轻松愉快的数字。
 

@@ -1,6 +1,6 @@
 # 如何在不关闭 Windows“开始”菜单的情况下打开多个程序
 
-> 原文:[https://life hacker . com/how-to-open-multiple-programs-once-in-windows-start-1833836965](https://lifehacker.com/how-to-open-multiple-programs-at-once-in-windows-start-1833836965)
+> 原文：<https://lifehacker.com/how-to-open-multiple-programs-at-once-in-windows-start-1833836965>
 
 我典型的早晨惯例是打开一些程序——Slack、Steam、我的网络浏览器、Discord、Spotify 等等。虽然我把我最常用的应用程序钉在了我的 Windows 任务栏上，但我仍然有一些应用程序会从我的开始菜单中打开(以帮助减少混乱)。
 

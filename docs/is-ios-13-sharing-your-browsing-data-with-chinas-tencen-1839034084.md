@@ -1,6 +1,6 @@
 # iOS 13 是在和中国的腾讯分享你的浏览数据吗？
 
-> 原文:[https://life hacker . com/is-IOs-13-sharing-your-browsing-data-with-China-tensen-1839034084](https://lifehacker.com/is-ios-13-sharing-your-browsing-data-with-chinas-tencen-1839034084)
+> 原文：<https://lifehacker.com/is-ios-13-sharing-your-browsing-data-with-chinas-tencen-1839034084>
 
 iOS 13 针对 Safari mobile 的“欺诈网站警告”功能会默认分享你的部分浏览数据。这通常是一件好事，因为谷歌会获取这些数据，对你试图访问的内容进行哈希处理，并且只能将你要找的内容与你的 IP 地址进行匹配。然而，在某些情况下，苹果也将这些数据发送给了中国公司 [腾讯](https://gizmodo.com/5-things-to-know-about-tencent-the-chinese-internet-gi-1820767339?utm_campaign=Newsletter&utm_source=hs_email&utm_medium=email&_hsenc=p2ANqtz-9RS-tidZTEPqsuKr4zA0yBHTUdODfQavhqciPellXoXtvpqGW8F7PWogn4X4HMr6Agv_O8#!) ，这是一个额外的担忧——但你仍然没事的可能性很大。
 

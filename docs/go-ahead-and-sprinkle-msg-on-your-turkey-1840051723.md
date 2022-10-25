@@ -1,6 +1,6 @@
 # 继续在你的火鸡上撒味精吧
 
-> 原文:[https://life hacker . com/go-ahead-and-spruce-msg-on-your-turkey-1840051723](https://lifehacker.com/go-ahead-and-sprinkle-msg-on-your-turkey-1840051723)
+> 原文：<https://lifehacker.com/go-ahead-and-sprinkle-msg-on-your-turkey-1840051723>
 
 火鸡是我最不喜欢吃的鸟，但我永远不会过没有火鸡的感恩节，也不会让别人做火鸡。我就是不能放弃这只温和、愚蠢的鸟。我对肉本身的矛盾心理驱使我去做一只美味的鸟，但我的不敬又驱使我去摆弄它。在鸡皮上撒些味精让我颠覆了人们对普通火鸡的期望，同时也让它尝起来更好。
 

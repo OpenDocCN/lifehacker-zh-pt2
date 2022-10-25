@@ -1,6 +1,6 @@
 # 现在，美国公民可以跳过伦敦漫长的海关检查线
 
-> 原文:[https://life hacker . com/now-u-s-citizens-can-jump-the-epic-long-customs-Li-1830091221](https://lifehacker.com/now-u-s-citizens-can-jump-the-epically-long-customs-li-1830091221)
+> 原文：<https://lifehacker.com/now-u-s-citizens-can-jump-the-epically-long-customs-li-1830091221>
 
 前往伦敦的美国游客现在可以跳过希思罗机场的海关检查线，在边境使用电子护照门，就像当地人一样。这些大门以前是专门为欧洲公民保留的。
 

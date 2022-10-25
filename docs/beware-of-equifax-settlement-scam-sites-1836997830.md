@@ -1,6 +1,6 @@
 # 当心 Equifax-结算诈骗网站
 
-> 原文:[https://life hacker . com/当心-equifax-settlement-scam-sites-1836997830](https://lifehacker.com/beware-of-equifax-settlement-scam-sites-1836997830)
+> 原文：<https://lifehacker.com/beware-of-equifax-settlement-scam-sites-1836997830>
 
 一个集体诉讼和解网站永远不会赢得最完美的奖项。与你为一家公司的商品或服务付费时的流畅体验相比，这些网站往往非常简陋，以至于你可能会怀疑自己是否来对了地方。你能用你的个人信息信任它吗？
 

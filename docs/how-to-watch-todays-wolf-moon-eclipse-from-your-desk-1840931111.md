@@ -1,6 +1,6 @@
 # 如何在办公桌上观看今天的狼月食
 
-> 原文:[https://life hacker . com/how-to-watch-todays-wolf-moon-eclipse-from-your-desk-1840931111](https://lifehacker.com/how-to-watch-todays-wolf-moon-eclipse-from-your-desk-1840931111)
+> 原文：<https://lifehacker.com/how-to-watch-todays-wolf-moon-eclipse-from-your-desk-1840931111>
 
 今年的第一次满月于 1 月 10 日升起，这也带来了今年的第一次月食。
 

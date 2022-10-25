@@ -1,6 +1,6 @@
 # 以下是摩托车事故后应该做的事情
 
-> 原文:[https://jalopnik . com/heres-摩托车撞车后该做什么-1838020011](https://jalopnik.com/heres-what-to-do-after-a-motorcycle-crash-1838020011)
+> 原文：<https://jalopnik.com/heres-what-to-do-after-a-motorcycle-crash-1838020011>
 
 当你在蜿蜒的山路上绕过一个死角时，你会在一瞬间看到它——尘土飞扬，你朋友的自行车卡在护栏下，他们仰面躺在路中间，一动不动。你的第一个想法是，“哇，那是一次严重的碰撞。”你的第二个想法是，“我现在到底在做什么？”
 

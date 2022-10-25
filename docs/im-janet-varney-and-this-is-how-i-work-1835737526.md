@@ -1,6 +1,6 @@
 # im janet varney and this is how i work 1835737526
 
-> 原文:[https://life hacker . com/im-Janet-Varney-and-this-is-how-I-work-1835737526](https://lifehacker.com/im-janet-varney-and-this-is-how-i-work-1835737526)
+> 原文：<https://lifehacker.com/im-janet-varney-and-this-is-how-i-work-1835737526>
 
 珍妮特·瓦尼最出名的是——嗯，这取决于你喜欢她什么。她出演了*《科拉传说》*、*《你是最坏的*、*斯坦抗邪*，并创作了 IFC 网络系列 [*财富新秀*](https://www.ifc.com/comedy-crib/fortune-rookie) 。她主演了有声戏剧播客 [*【星际之旅】*](https://www.voyagetothestars.net/) 并主持了聊天播客[*【JV 俱乐部】*](https://www.maximumfun.org/shows/jv-club) 。她也是 SF Sketchfest 的创始人和导演，自 2001 年以来每年举办现场喜剧节。我们和珍妮特谈论了她的复合职业，如何让六个忙碌的演员聚在一起，管理一个小型的一夜喜剧节或一个大型的三周喜剧节的挑战。
 

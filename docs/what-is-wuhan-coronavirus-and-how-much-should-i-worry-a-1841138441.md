@@ -1,6 +1,6 @@
 # 冠状病毒是什么，你应该对它有多担心？
 
-> 原文:[https://life hacker . com/what-is-Wuhan-coronavirus-and-how-do-much-I-should-a-1841138441](https://lifehacker.com/what-is-wuhan-coronavirus-and-how-much-should-i-worry-a-1841138441)
+> 原文：<https://lifehacker.com/what-is-wuhan-coronavirus-and-how-much-should-i-worry-a-1841138441>
 
 最近在中国发现了一种新的病毒性疾病，美国刚刚在一名最近抵达华盛顿州的旅行者中发现了首例病例。这种病毒是一种与 SARS 和 MERS 有关的冠状病毒，有时是致命的。
 

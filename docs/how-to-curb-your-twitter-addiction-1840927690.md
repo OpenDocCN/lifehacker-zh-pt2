@@ -1,6 +1,6 @@
 # 如何抑制你的推特瘾
 
-> 原文:[https://life hacker . com/how-to-curb-your-Twitter-addiction-1840927690](https://lifehacker.com/how-to-curb-your-twitter-addiction-1840927690)
+> 原文：<https://lifehacker.com/how-to-curb-your-twitter-addiction-1840927690>
 
 至少在过去的四年里，我每年都决心少花点时间在 Twitter 上。
 

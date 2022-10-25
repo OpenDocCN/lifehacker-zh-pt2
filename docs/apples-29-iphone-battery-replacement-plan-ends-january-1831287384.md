@@ -1,6 +1,6 @@
 # 苹果 29 美元的 iPhone 电池更换计划将于 1 月 1 日结束
 
-> 原文:[https://life hacker . com/apple-29-iphone-电池-更换-计划-结束-一月-1831287384](https://lifehacker.com/apples-29-iphone-battery-replacement-plan-ends-january-1831287384)
+> 原文：<https://lifehacker.com/apples-29-iphone-battery-replacement-plan-ends-january-1831287384>
 
 大约一年前，苹果承认降低了旧款 iPhone 的电池速度，并提出以 29 美元的价格为所有比 iPhone 6 新的手机更换电池——只要你在 12 月 31 日之前更换电池。这意味着时间不多了。
 

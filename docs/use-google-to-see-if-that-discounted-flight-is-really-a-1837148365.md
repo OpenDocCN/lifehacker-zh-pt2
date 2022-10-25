@@ -1,6 +1,6 @@
 # 用谷歌看看打折航班是否真的划算
 
-> 原文:[https://life hacker . com/use-Google-to-see-if-the-discounted-flight-a-1837148365](https://lifehacker.com/use-google-to-see-if-that-discounted-flight-is-really-a-1837148365)
+> 原文：<https://lifehacker.com/use-google-to-see-if-that-discounted-flight-is-really-a-1837148365>
 
 最近，机票交易和销售开始频繁出现。然而，仅仅因为一个航班在“打折”，并不意味着打折价格实际上是一笔交易。
 

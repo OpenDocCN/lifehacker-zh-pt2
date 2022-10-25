@@ -1,6 +1,6 @@
 # 2020 年国家公园这 5 天免费
 
-> 原文:[https://life hacker . com/national-parks-will-be-free-this-5-days-in-2020-1840633864](https://lifehacker.com/national-parks-will-be-free-these-5-days-in-2020-1840633864)
+> 原文：<https://lifehacker.com/national-parks-will-be-free-these-5-days-in-2020-1840633864>
 
 如果你的 2020 年计划包括去国家公园旅行，国家公园管理局本周宣布了 2020 年的五个日期，你将能够免费参观这些公园。
 

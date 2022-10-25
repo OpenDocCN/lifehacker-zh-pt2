@@ -1,6 +1,6 @@
 # 挪威航空公司飞往欧洲的航班享受九折优惠
 
-> 原文:[https://life hacker . com/get-10-off-Norwegian-air-flights-to-Europe-1836912936](https://lifehacker.com/get-10-off-norwegian-air-flights-to-europe-1836912936)
+> 原文：<https://lifehacker.com/get-10-off-norwegian-air-flights-to-europe-1836912936>
 
 廉价航空公司提供相对便宜的机票，但会因为托运行李或选择座位的特权而收取更高的费用。但是如果你能把这些担忧放在一边，挪威航空公司正在打折出售它的[*廉价*](https://www.smartertravel.com/deals/116-deals-to-europe-from-norwegian-air/)*今秋和冬季去欧洲旅行的机票——你可以用不到 300 美元的价格飞去西班牙，这本身就是一个壮举。*
 

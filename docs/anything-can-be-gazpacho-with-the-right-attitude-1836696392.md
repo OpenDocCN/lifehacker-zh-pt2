@@ -1,6 +1,6 @@
 # 只要态度正确，任何事情都可以成为西班牙凉菜汤
 
-> 原文:[https://life hacker . com/everything-can-be-gazpacho-with the right-attitude-1836696392](https://lifehacker.com/anything-can-be-gazpacho-with-the-right-attitude-1836696392)
+> 原文：<https://lifehacker.com/anything-can-be-gazpacho-with-the-right-attitude-1836696392>
 
 我们已经正式进入夏季生产的高峰期，这意味着我们都渴望在堆积如山的西葫芦和迅速腐烂的西红柿上找到一个新的角度。这就是为什么我认为每个人都应该知道如何做好西班牙凉菜汤。这是一种美味的、不需要加热的方式来消灭一吨农产品，你甚至不需要食谱——只需要几件餐具、某种搅拌器和一点信念。
 

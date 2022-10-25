@@ -1,6 +1,6 @@
 # 在 Disney+上观看这部关于一个不会说话的自闭症女孩的新短片
 
-> 原文:[https://life hacker . com/watch-this-new-short-film-about-non-vocabular-girl-with-1841426926](https://lifehacker.com/watch-this-new-short-film-about-a-non-verbal-girl-with-1841426926)
+> 原文：<https://lifehacker.com/watch-this-new-short-film-about-a-non-verbal-girl-with-1841426926>
 
 作为旨在发现新的故事讲述者和讲故事技巧的计划的一部分，Disney+在 1 月份发布了一部短片，讲述了一个患有自闭症的非语言角色。你应该和你的孩子一起看。
 

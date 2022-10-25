@@ -1,6 +1,6 @@
 # 为你的年终基准尝试这些俯卧撑练习
 
-> 原文:[https://life hacker . com/try-these-push-up-exercises-for your ' s year-end-benchmark-1840555978](https://lifehacker.com/try-these-push-up-exercises-for-your-year-end-benchmark-1840555978)
+> 原文：<https://lifehacker.com/try-these-push-up-exercises-for-your-year-end-benchmark-1840555978>
 
 我们正在向年终基准系列的最后冲刺。你 [测量了你的柔韧性](https://vitals.lifehacker.com/try-these-flexibility-benchmarks-1840265115) 和你的 [向引体向上](https://vitals.lifehacker.com/some-benchmarks-for-your-pull-up-journey-1840412113) 的进步。现在，让我们把注意力集中在俯卧撑上。
 

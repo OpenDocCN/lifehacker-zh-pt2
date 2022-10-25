@@ -1,6 +1,6 @@
 # 你所有的冠状病毒救济检查问题，回答
 
-> 原文:[https://life hacker . com/all-your-coronavirus-relief-check-questions-answered-1842526582](https://lifehacker.com/all-your-coronavirus-relief-check-questions-answered-1842526582)
+> 原文：<https://lifehacker.com/all-your-coronavirus-relief-check-questions-answered-1842526582>
 
 当参议院通过了一项庞大的冠状病毒经济救助法案，其中包括对许多美国人高达 1200 美元的支票时，许多人的反应就像是这是一项板上钉钉的交易。但是即使众议院今天批准了它，这个法案 [还没有成为法律](https://www.washingtonpost.com/us-policy/2020/03/27/congress-coronavirus-house-vote/) ，你可能还要等一段时间才能拿到你的“复苏退税”支票。所以现在还不是像发薪日一样庆祝的时候。
 

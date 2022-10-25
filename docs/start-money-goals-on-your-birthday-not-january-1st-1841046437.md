@@ -1,6 +1,6 @@
 # 在你的生日，而不是 1 月 1 日，开始金钱目标
 
-> 原文:[https://life hacker . com/start-money-goals-on-your-birthday-not-1-1-1-1841046437](https://lifehacker.com/start-money-goals-on-your-birthday-not-january-1st-1841046437)
+> 原文：<https://lifehacker.com/start-money-goals-on-your-birthday-not-january-1st-1841046437>
 
 如果你的新年决心以惊人的方式破灭了，你可能会想，在明年 1 月 1 日之前，你都不会走运了。除非你在一年的第一天开始，否则这不是一个决心，对吗？
 

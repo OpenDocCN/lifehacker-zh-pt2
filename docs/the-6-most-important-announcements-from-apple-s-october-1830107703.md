@@ -1,6 +1,6 @@
 # 苹果 2018 年 10 月发布的 6 个最重要的公告
 
-> 原文:[https://life hacker . com/the-6-most-important-announcements-from-apple-s-December-1830107703](https://lifehacker.com/the-6-most-important-announcements-from-apple-s-october-1830107703)
+> 原文：<https://lifehacker.com/the-6-most-important-announcements-from-apple-s-october-1830107703>
 
 在今天苹果十月的盛大活动上，苹果公司宣布了三款产品的改进版本，其中两款已经很久没有受到这样的待遇了。自 2013 年最后一次重新设计以来，苹果只对 Macbook Air 进行了最轻微的升级，自 2014 年以来就没有新的 Mac Mini。如果你正在寻找一款介于笔记本电脑和平板电脑之间的设备，iPad Pro 也有一个新的有趣的更新。
 

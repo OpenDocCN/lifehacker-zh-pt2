@@ -1,6 +1,6 @@
 # 你的雇主需要报告新冠肺炎的工作场所案例吗？
 
-> 原文:[https://life hacker . com/is-your-employee-required-to-report-workplace-cases-of-1844081062](https://lifehacker.com/is-your-employer-required-to-report-workplace-cases-of-1844081062)
+> 原文：<https://lifehacker.com/is-your-employer-required-to-report-workplace-cases-of-1844081062>
 
 [虽然似乎没有人把告诉冠状病毒](https://www.npr.org/sections/health-shots/2020/06/12/876224115/coronavirus-second-wave-nope-were-still-stuck-in-the-first-one) ，显然疫情已经结束了。毫无疑问，罢工正在缓解，我们中的许多人已经或即将被要求回工作场所报到(如果你还没有一直去那里的话)。随着新的病毒病例的增加和国家对第二次关闭的兴趣不大，你可能想知道你的公司的法律责任 t o 报告其员工中的新冠肺炎病例。
 

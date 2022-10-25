@@ -1,6 +1,6 @@
 # how to get fired 1832440163
 
-> 原文:[https://lifehacker.com/how-to-get-fired-1832440163](https://lifehacker.com/how-to-get-fired-1832440163)
+> 原文：<https://lifehacker.com/how-to-get-fired-1832440163>
 
 被解雇总是很糟糕。但是，作为一名职场建议专栏作家，被解雇是一件非常令人羞愧的事情。
 

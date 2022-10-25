@@ -1,6 +1,6 @@
 # 在家为你的孩子举办“主题周”
 
-> 原文:[https://life hacker . com/host-theme-weeks-for-your-kids-in-home-1843111667](https://lifehacker.com/host-theme-weeks-for-your-kids-at-home-1843111667)
+> 原文：<https://lifehacker.com/host-theme-weeks-for-your-kids-at-home-1843111667>
 
 在疫情的这个时候，你的孩子可能会错过学校，你肯定会错过你的孩子过去上学的时间。现在日子都混在一起了，学校能够以一种我们以前无法完全欣赏的方式改变事情。但是你可以从你学校的“让事情保持有趣”剧本中吸取经验:把经典的学校精神周的想法带进你的家里，稍微改变一下——主题周。
 

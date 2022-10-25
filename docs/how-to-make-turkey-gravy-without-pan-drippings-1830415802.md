@@ -1,6 +1,6 @@
 # 如何做火鸡肉汁而不滴水
 
-> 原文:[https://life hacker . com/how-to-make-turkey-gravy-with-pan-drippings-1830415802](https://lifehacker.com/how-to-make-turkey-gravy-without-pan-drippings-1830415802)
+> 原文：<https://lifehacker.com/how-to-make-turkey-gravy-without-pan-drippings-1830415802>
 
 有一种过于浪漫的期待，认为一份好的火鸡肉汁必须是用锅里的油滴做的，然后在大餐上桌之前搅拌在一起。对此我要说，“谢谢”，特别是当一份非常好的肉汁可以提前几个小时、几天甚至几周做好的时候。
 

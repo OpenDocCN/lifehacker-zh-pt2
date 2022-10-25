@@ -1,6 +1,6 @@
 # 检查您的 Android 设备是否被恶意广告软件感染
 
-> 原文:[https://life hacker . com/check-if-your-Android-device-hacker-1836457809](https://lifehacker.com/check-if-your-android-device-has-been-infected-by-malic-1836457809)
+> 原文：<https://lifehacker.com/check-if-your-android-device-has-been-infected-by-malic-1836457809>
 
 另一波粗略的应用程序已被谷歌 Play 商店禁止。这一次，违规应用都来自一家发行商 CooTek，该公司被安全公司 [Lookout](https://blog.lookout.com/beitaplugin-adware) 指控在其应用中部署了恶意广告软件 BeiTaAd。
 

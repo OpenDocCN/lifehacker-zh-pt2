@@ -1,6 +1,6 @@
 # 在经济衰退期间，你还能解雇员工吗？
 
-> 原文:[https://life hacker . com/can-you-still-fire-in-a recession-1842490866](https://lifehacker.com/can-you-still-fire-during-a-recession-1842490866)
+> 原文：<https://lifehacker.com/can-you-still-fire-during-a-recession-1842490866>
 
 我对财务独立运动感兴趣已经有一段时间了，这个运动经常被称为 FIRE(财务独立，提前退休)。大概从 2004 年开始，当时我在公共图书馆发现了一本维基·罗宾和乔·多明戈斯的《你的钱还是你的生活》的旧版本。正如我以前多次写的那样， *YMOYL* 是那本激励我记录我赚的、花的和存的每一分钱的书——这是我保持了超过 15 年的习惯。
 

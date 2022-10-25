@@ -1,6 +1,6 @@
 # 父亲节的真实历史
 
-> 原文:[https://life hacker . com/the-real-history-of-fathers-day-1835409555](https://lifehacker.com/the-real-history-of-fathers-day-1835409555)
+> 原文：<https://lifehacker.com/the-real-history-of-fathers-day-1835409555>
 
 父亲节是本周日——如果你需要提醒的话——虽然你可能会想到高尔夫、啤酒和烧烤，但这是一个有着复杂的宗教渊源的庆祝活动，甚至可以说是由始于 60 年代的妇女解放运动推动的。
 

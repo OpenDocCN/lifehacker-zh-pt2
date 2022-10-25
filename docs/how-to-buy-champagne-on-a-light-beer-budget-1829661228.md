@@ -1,6 +1,6 @@
 # 如何用少量啤酒买香槟
 
-> 原文:[https://life hacker . com/how-to-budget-1829661228](https://lifehacker.com/how-to-buy-champagne-on-a-light-beer-budget-1829661228)
+> 原文：<https://lifehacker.com/how-to-buy-champagne-on-a-light-beer-budget-1829661228>
 
 当你愤怒的时候，“香槟”不仅仅是你单片眼镜上的东西。虽然它意味着奢侈，但当你试图以便宜的价格买到碳酸饮料时，你可能会有很多不太贵(但质量较低)的选择。
 

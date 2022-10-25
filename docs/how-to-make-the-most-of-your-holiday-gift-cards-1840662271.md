@@ -1,6 +1,6 @@
 # 如何充分利用你的节日礼品卡
 
-> 原文:[https://life hacker . com/how-to-make-the-most-your-holiday-gift-cards-1840662271](https://lifehacker.com/how-to-make-the-most-of-your-holiday-gift-cards-1840662271)
+> 原文：<https://lifehacker.com/how-to-make-the-most-of-your-holiday-gift-cards-1840662271>
 
 既然假期已经结束，我们猜测你现在至少拥有一张新的礼品卡。
 

@@ -1,6 +1,6 @@
 # 没有亚马逊，你如何进行假日购物
 
-> 原文:[https://life hacker . com/how-do-your-holiday-shopping-without-Amazon-1840179642](https://lifehacker.com/how-to-do-your-holiday-shopping-without-amazon-1840179642)
+> 原文：<https://lifehacker.com/how-to-do-your-holiday-shopping-without-amazon-1840179642>
 
 亚马逊以通常优于竞争对手的价格，储存你能想象到的所有商品。但是，如果能在两天内(或更短时间内)拿到 12 包纸巾或任何你想要的东西，那就有些不对劲了。
 

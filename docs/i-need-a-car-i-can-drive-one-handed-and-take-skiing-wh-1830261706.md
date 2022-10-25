@@ -1,6 +1,6 @@
 # 我需要一辆可以单手驾驶和滑雪的车！应该买什么车？
 
-> 原文:[https://jalopnik . com/I-need-a-car-I-can-drive-one-hand-and-take-ski-wh-1830261706](https://jalopnik.com/i-need-a-car-i-can-drive-one-handed-and-take-skiing-wh-1830261706)
+> 原文：<https://jalopnik.com/i-need-a-car-i-can-drive-one-handed-and-take-skiing-wh-1830261706>
 
 在过去的三个月里，我一直在医生之间穿梭，而不是为 Jalopnik 写作，因为我在我的婚礼上撞毁了一辆特立独行的 X3T3，并粉碎了我的左手。不过那是一个 [的故事，另一个时间](https://www.instagram.com/p/BncFtfZHT-W/) 。现在，你能帮我重新上路吗？
 

@@ -1,6 +1,6 @@
 # 你如何让你的孩子停止在学校打人？
 
-> 原文:[https://life hacker . com/how-do-you-get-your-kid-to-stop-hitting-in-school-1839534853](https://lifehacker.com/how-do-you-get-your-kid-to-stop-hitting-in-school-1839534853)
+> 原文：<https://lifehacker.com/how-do-you-get-your-kid-to-stop-hitting-in-school-1839534853>
 
 本周的家长咨询问题是一个我怀疑许多家长都在努力解决的问题:当你的幼儿园或一年级学生正在努力控制冲动，对其他学生有身体攻击性，学校受够了的时候，你会怎么做？
 

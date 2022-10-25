@@ -1,6 +1,6 @@
 # 硬信用查询和软信用查询的区别
 
-> 原文:[https://life hacker . com/the-difference-of-hard-and-soft-credit-inquiries-1833060484](https://lifehacker.com/the-difference-between-hard-and-soft-credit-inquiries-1833060484)
+> 原文：<https://lifehacker.com/the-difference-between-hard-and-soft-credit-inquiries-1833060484>
 
 如果你收到了一个又一个的信用贷款，其中你被“预先批准”购买某种产品，你可能会想知道贷方是如何做出决定的。
 

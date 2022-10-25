@@ -1,6 +1,6 @@
 # 我们拒绝所有的婴儿睡眠技巧
 
-> 原文:[https://life hacker . com/we-reject-all-infant-sleep-hacks-1832535063](https://lifehacker.com/we-reject-all-infant-sleep-hacks-1832535063)
+> 原文：<https://lifehacker.com/we-reject-all-infant-sleep-hacks-1832535063>
 
 在 Lifehacker 的拒绝周 之际，我奉命想出一个为人父母的技巧，我想立即驳回这个技巧。我想到的第一条建议显然毫无用处，以至于我几乎跳过了它:
 

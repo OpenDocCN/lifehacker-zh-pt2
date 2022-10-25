@@ -1,6 +1,6 @@
 # 如何免费访问美国宇航局的视频和图像媒体库
 
-> 原文:[https://life hacker . com/how-to-access-nasas-media-library-of-video-and-images-1835563582](https://lifehacker.com/how-to-access-nasas-media-library-of-videos-and-images-1835563582)
+> 原文：<https://lifehacker.com/how-to-access-nasas-media-library-of-videos-and-images-1835563582>
 
 美国宇航局有一个媒体库，里面装满了图像、声音和视频，你可以随意使用，而且你可以免费访问这个庞大的图书馆。
 

@@ -1,6 +1,6 @@
 # 您现在可以将 Google Home 和 Google Home 迷你扬声器进行“立体声配对”
 
-> 原文:[https://life hacker . com/you-can-now-stereo-pair-Google-home-and-Google-home-min-1839783299](https://lifehacker.com/you-can-now-stereo-pair-google-home-and-google-home-min-1839783299)
+> 原文：<https://lifehacker.com/you-can-now-stereo-pair-google-home-and-google-home-min-1839783299>
 
 如果你有多个胖乎乎的谷歌 Home 扬声器——Max——或者两个该公司全新的 Nest 迷你扬声器，那么你可能已经在玩它们的立体声对功能了。不过，如果你还在用老式的谷歌 Home 或谷歌 Home Mini，也不用担心；你的时间到了。差不多了。
 

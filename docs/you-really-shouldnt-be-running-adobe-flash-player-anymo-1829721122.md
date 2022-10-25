@@ -1,6 +1,6 @@
 # 你真的不应该再运行 Adobe Flash Player 了
 
-> 原文:[https://life hacker . com/you-really-should-not-be-running-adobe-flash-player-any mo-1829721122](https://lifehacker.com/you-really-shouldnt-be-running-adobe-flash-player-anymo-1829721122)
+> 原文：<https://lifehacker.com/you-really-shouldnt-be-running-adobe-flash-player-anymo-1829721122>
 
 我们正处于 2018 年的最后几个月，Adobe Flash 的到期日期感觉就在眼前。这也不仅仅是一厢情愿——Adobe 已经声明它将在 2020 年 正式终止对境况不佳的网络插件的支持。
 

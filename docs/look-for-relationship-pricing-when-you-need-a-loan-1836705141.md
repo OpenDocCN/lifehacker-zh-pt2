@@ -1,6 +1,6 @@
 # 当你需要贷款时，寻找“关系定价”
 
-> 原文:[https://life hacker . com/look-for-relationship-pricing-when-you-need-a-loan-1836705141](https://lifehacker.com/look-for-relationship-pricing-when-you-need-a-loan-1836705141)
+> 原文：<https://lifehacker.com/look-for-relationship-pricing-when-you-need-a-loan-1836705141>
 
 在一个金融机构管理你的钱可以让你的生活更方便。而且，在某些情况下，与在另一家银行开立新账户相比，它能让你获得更好的交易。这是因为“关系定价”，当银行为你的产品提供特别利率时，通常是贷款，因为在某种程度上你已经是客户了。
 

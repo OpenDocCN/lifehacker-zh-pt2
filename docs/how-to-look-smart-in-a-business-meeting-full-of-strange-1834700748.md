@@ -1,6 +1,6 @@
 # 如何在满是陌生人的商务会议上看起来聪明
 
-> 原文:[https://life hacker . com/how-to-look-smart-in-a-business-meeting-full-of-strange-1834700748](https://lifehacker.com/how-to-look-smart-in-a-business-meeting-full-of-strange-1834700748)
+> 原文：<https://lifehacker.com/how-to-look-smart-in-a-business-meeting-full-of-strange-1834700748>
 
 当你会见一群新朋友时，尤其是在商务会议的背景下，你想给他们留下最好的印象。一个让你看起来是房间里最聪明的人的简单方法就是记住每个人的名字。
 

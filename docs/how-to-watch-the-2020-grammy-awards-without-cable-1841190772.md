@@ -1,6 +1,6 @@
 # 如何在没有有线电视的情况下观看 2020 年格莱美颁奖典礼
 
-> 原文:[https://life hacker . com/how-to-watch-the-the-2020-Grammy-awards-without-cable-1841190772](https://lifehacker.com/how-to-watch-the-2020-grammy-awards-without-cable-1841190772)
+> 原文：<https://lifehacker.com/how-to-watch-the-2020-grammy-awards-without-cable-1841190772>
 
 第 62 届格莱美颁奖典礼将于美国东部时间今晚 8 点/太平洋时间下午 5 点播出。今年的颁奖晚会将由艾丽西亚·凯斯主持，预计将包括乔纳斯兄弟、黛米·洛·瓦托、史密斯飞船、比利·埃利什、爱莉安娜·格兰德和利佐等人的表演。
 

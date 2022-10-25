@@ -1,6 +1,6 @@
 # 我一直放在桌子上的 16 件科技产品
 
-> 原文:[https://life hacker . com/16-tech-gadgets-I-keep-in-or-on-my-desk-at-times-1844495681](https://lifehacker.com/16-tech-gadgets-i-keep-in-or-on-my-desk-at-all-times-1844495681)
+> 原文：<https://lifehacker.com/16-tech-gadgets-i-keep-in-or-on-my-desk-at-all-times-1844495681>
 
 一个极客的桌子可能不会像调料架 那样光彩夺目，但我为这些年来我获得的所有技术装备感到骄傲。虽然你的设置无疑与我的不同，但我认为有一些“通用”的东西是值得拥有的。这并不是一份详尽的清单——我最近刚搬家，很快又会搬家，所以我的一些装备仍然装在箱子里——但这是一个开始。
 

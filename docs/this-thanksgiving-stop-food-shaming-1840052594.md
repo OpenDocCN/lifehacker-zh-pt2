@@ -1,6 +1,6 @@
 # 这个感恩节，停止食物羞辱
 
-> 原文:[https://life hacker . com/this-thanksgiving-stop-food-shaming-1840052594](https://lifehacker.com/this-thanksgiving-stop-food-shaming-1840052594)
+> 原文：<https://lifehacker.com/this-thanksgiving-stop-food-shaming-1840052594>
 
 无论你和食物的关系是什么样的，它可能会在感恩节前后加强。如果你坚持一种特殊的饮食，你必须决定是继续下去还是说去他妈的，休息一天放纵一下。如果你家人的饮食习惯惹恼了你，那该多好啊！你会整天看着他们做饭和吃饭。我要提出一些激进的建议:让我们就此休战吧。
 

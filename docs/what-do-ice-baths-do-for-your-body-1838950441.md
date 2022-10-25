@@ -1,6 +1,6 @@
 # 也许你不应该冰敷疼痛的肌肉和关节
 
-> 原文:[https://life hacker . com/what-do-ice-baths-do-for-your-body-1838950441](https://lifehacker.com/what-do-ice-baths-do-for-your-body-1838950441)
+> 原文：<https://lifehacker.com/what-do-ice-baths-do-for-your-body-1838950441>
 
 锻炼后的冰浴可以减少酸痛肌肉的肿胀，这听起来是一个在艰苦锻炼后的好主意。但即使有些运动员信誓旦旦，冰浴也未必对恢复有很大帮助。
 

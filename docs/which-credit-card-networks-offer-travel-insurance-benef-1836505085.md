@@ -1,6 +1,6 @@
 # 哪些信用卡网络提供旅游保险福利？
 
-> 原文:[https://life hacker . com/which-credit-card-networks-offer-travel-insurance-bene-1836505085](https://lifehacker.com/which-credit-card-networks-offer-travel-insurance-benef-1836505085)
+> 原文：<https://lifehacker.com/which-credit-card-networks-offer-travel-insurance-benef-1836505085>
 
 旅游保险是许多信用卡最容易被忽视的好处之一。我们如此专注于赚取奖励和避免国外交易费用(值得的努力，是的)，以至于有时我们甚至没有意识到，当你的旅行出错时，同一张信用卡可以让生活变得更容易。
 

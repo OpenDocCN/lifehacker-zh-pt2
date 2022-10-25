@@ -1,6 +1,6 @@
 # 如何将您喜爱的流媒体服务连接到谷歌地图
 
-> 原文:[https://life hacker . com/how-to-connect-your favorite-streaming-services-to-goog-1844053932](https://lifehacker.com/how-to-connect-your-favorite-streaming-services-to-goog-1844053932)
+> 原文：<https://lifehacker.com/how-to-connect-your-favorite-streaming-services-to-goog-1844053932>
 
 开车时使用手机不仅危险，而且在大多数地方是违法的。然而，我们大多数人都依赖智能手机来指引方向或在车里听音乐和播客。幸运的是，谷歌地图有大量的免提导航控件*和*有用的快捷方式和一些音乐流媒体服务的语音集成——至少在 Android 上是这样。
 

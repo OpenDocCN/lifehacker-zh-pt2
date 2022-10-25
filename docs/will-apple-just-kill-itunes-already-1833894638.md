@@ -1,6 +1,6 @@
 # 苹果会不会已经扼杀了 iTunes？
 
-> 原文:[https://gizmodo . com/will-apple-just-kill-itunes-already-1833894638](https://gizmodo.com/will-apple-just-kill-itunes-already-1833894638)
+> 原文：<https://gizmodo.com/will-apple-just-kill-itunes-already-1833894638>
 
 人们一直在抱怨 iTunes [的](https://www.theatlantic.com/technology/archive/2015/07/why-is-itunes-so-bad/399833/)。在过去的 18 年里，这个臃肿而令人困惑的神秘软件一直在更新、再利用和偷工减料地处理新任务，一名开发者表示，它不会活到 19 岁生日。看起来苹果终于要杀死 iTunes，并为音乐、播客和书籍发布单独的应用程序。安息吧，iTunes，你这数码恐龙。
 

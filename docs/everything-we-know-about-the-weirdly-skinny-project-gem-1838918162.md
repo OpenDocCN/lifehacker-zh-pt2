@@ -1,6 +1,6 @@
 # 我们所知道的关于怪异的超薄“宝石计划”智能手机的一切
 
-> 原文:[https://life hacker . com/everything-we-know-about the vergely-skinny-project-gem-1838918162](https://lifehacker.com/everything-we-know-about-the-weirdly-skinny-project-gem-1838918162)
+> 原文：<https://lifehacker.com/everything-we-know-about-the-weirdly-skinny-project-gem-1838918162>
 
 即将推出的“项目宝石”智能手机的早期细节终于出来了。这是谷歌前高管安迪·鲁宾创办的 [Essential](https://www.essential.com/) 公司的最新产品。这款手机本身看起来与之前的任何产品都不一样，这证实了长期以来的传言，即 Essential 一直在开发一款非正统的智能手机。
 

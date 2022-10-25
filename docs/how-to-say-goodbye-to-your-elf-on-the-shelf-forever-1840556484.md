@@ -1,6 +1,6 @@
 # 如何和架子上的小精灵说再见——永远
 
-> 原文:[https://life hacker . com/how-to-say-bye-your-elf-on-the-shelf-forever-1840556484](https://lifehacker.com/how-to-say-goodbye-to-your-elf-on-the-shelf-forever-1840556484)
+> 原文：<https://lifehacker.com/how-to-say-goodbye-to-your-elf-on-the-shelf-forever-1840556484>
 
 第一年，你觉得这是个好主意。藏起这个小填充动物(小填充人类)你会有很多乐趣？毛绒玩具？)在房子周围。孩子们会非常高兴地发现他们的小精灵一夜之间又搞出了什么新的恶作剧。
 

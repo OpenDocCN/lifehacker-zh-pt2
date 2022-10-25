@@ -1,6 +1,6 @@
 # 在你的笔记应用中记下你的担忧
 
-> 原文:[https://life hacker . com/keep-a-worry-diary-in-your-notes-app-1836013428](https://lifehacker.com/keep-a-worry-diary-in-your-notes-app-1836013428)
+> 原文：<https://lifehacker.com/keep-a-worry-diary-in-your-notes-app-1836013428>
 
 压力和焦虑永远不会从你的生活中完全消失；他们只是从一个目标移动到另一个目标。但是如果你反思过去的烦恼，处理下一个烦恼会更容易。回顾过去的担忧会让你看到远景，让你明白什么才是长远的重点，并提醒你克服或避免的挑战。
 

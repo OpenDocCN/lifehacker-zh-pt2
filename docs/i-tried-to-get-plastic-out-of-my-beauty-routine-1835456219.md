@@ -1,6 +1,6 @@
 # 我试着从我的美容程序中去掉塑料
 
-> 原文:[https://gizmodo . com/I-tryed-to-get-plastic-out-of-my-beauty-routine-1835456219](https://gizmodo.com/i-tried-to-get-plastic-out-of-my-beauty-routine-1835456219)
+> 原文：<https://gizmodo.com/i-tried-to-get-plastic-out-of-my-beauty-routine-1835456219>
 
 我*爱*造就。然而，丑陋的事实是，制造正在帮助毁灭这个星球。看看你制作的背包。你发现了什么？塑料，塑料，更多的塑料。
 

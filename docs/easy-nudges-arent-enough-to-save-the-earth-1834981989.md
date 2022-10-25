@@ -1,6 +1,6 @@
 # 简单的“轻推”不足以拯救地球
 
-> 原文:[https://life hacker . com/easy-nudges-are-not-suffith-to-save-the-earth-1834981989](https://lifehacker.com/easy-nudges-arent-enough-to-save-the-earth-1834981989)
+> 原文：<https://lifehacker.com/easy-nudges-arent-enough-to-save-the-earth-1834981989>
 
 我们都喜欢尽自己的一份力量来解决大问题，尤其是当我们的一份力量很容易并且感觉良好的时候。但是轻推可能会适得其反，让我们相信我们的小行动基本上已经足够好了，而事实并非如此。
 

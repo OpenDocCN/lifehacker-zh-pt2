@@ -1,6 +1,6 @@
 # 如何在 Edge Chromium 中获得菜单栏
 
-> 原文:[https://life hacker . com/how-to-get-a-menu-bar-in-edge-chromium-1841889532](https://lifehacker.com/how-to-get-a-menu-bar-in-edge-chromium-1841889532)
+> 原文：<https://lifehacker.com/how-to-get-a-menu-bar-in-edge-chromium-1841889532>
 
 微软新推出的基于 Chromium 的 Edge 浏览器看起来非常时尚，但 Chromium 为了实现其简洁的界面，在其他按钮后面抛弃了传统的菜单栏。你必须处理一次额外的点击，才能进入你的浏览历史、偏好或书签页面。这不是浏览世界中最大的问题，但如果你真的喜欢你的浏览器在你的书签和地址栏附近有一个小菜单栏，这是你可以改变的。
 

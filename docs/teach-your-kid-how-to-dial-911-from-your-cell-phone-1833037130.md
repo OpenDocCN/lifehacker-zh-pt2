@@ -1,6 +1,6 @@
 # 教你的孩子如何用手机拨打 911
 
-> 原文:[https://life hacker . com/teach-your-kid-how-to-dial-from-your-mobile-phone-1833037130](https://lifehacker.com/teach-your-kid-how-to-dial-911-from-your-cell-phone-1833037130)
+> 原文：<https://lifehacker.com/teach-your-kid-how-to-dial-911-from-your-cell-phone-1833037130>
 
 每隔一段时间，我就会头昏眼花，觉得自己可能会晕倒。(有一次，我真的晕倒了，我丈夫在半空中接住了我，他是个勇敢的家伙。)几周前，当这种情况再次发生时，我和儿子单独在家，我意识到是时候让他知道如果有紧急情况，他需要打电话求助时该怎么办了。
 

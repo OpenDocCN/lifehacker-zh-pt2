@@ -1,6 +1,6 @@
 # 你有更多的时间来偿还你的联邦学生贷款
 
-> 原文:[https://life hacker . com/you ve-got-more-time-to-pay-your-federal-student-loa-1844675419](https://lifehacker.com/youve-got-more-time-to-pay-off-your-federal-student-loa-1844675419)
+> 原文：<https://lifehacker.com/youve-got-more-time-to-pay-off-your-federal-student-loa-1844675419>
 
 为联邦学生贷款项目的结束而紧张的借款人在九月得到了喘息的机会。 周六，唐纳德·川普 [总统签署了一项行政命令](https://www.whitehouse.gov/presidential-actions/memorandum-continued-student-loan-payment-relief-covid-19-pandemic/) 延长联邦学生贷款支付的减免。新的命令——也暂停应计利息——允许借款人在 12 月 31 日之前停止还款。由 2 万亿美元关怀法案创建，目前的学生贷款暂停将于 9 月 30 日到期。
 

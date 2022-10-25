@@ -1,6 +1,6 @@
 # 如何在派对上避开某人而不显得自己是个混蛋
 
-> 原文:[https://life hacker . com/how-to-避免某人在派对上不那么混蛋-1841203151](https://lifehacker.com/how-to-avoid-someone-at-a-party-without-being-a-jerk-1841203151)
+> 原文：<https://lifehacker.com/how-to-avoid-someone-at-a-party-without-being-a-jerk-1841203151>
 
 你正在参加一个聚会，这时一个你无法忍受的熟人走进来。*狗屁*，你以为。我一定要打招呼吗？我能假装没看见他们吗？我在几楼，我能从窗户逃出去吗，毫发无伤？
 

@@ -1,6 +1,6 @@
 # 如何卸下带有剥头的螺钉
 
-> 原文:[https://life hacker . com/how-to-remove-screw-with-stripped-heads-5901738](https://lifehacker.com/how-to-remove-screws-with-stripped-heads-5901738)
+> 原文：<https://lifehacker.com/how-to-remove-screws-with-stripped-heads-5901738>
 
 这是一个木工新手最糟糕的噩梦:你试图拧紧或拧下一颗螺丝，却发现螺丝头被卸了下来。你把螺丝刀或者钻头压进头部，试着转动，但是没有摩擦力。首先，试着在你的螺旋扭转中向后扔一点。如果失败，请尝试一个(或多个)拆卸螺丝的技巧。
 

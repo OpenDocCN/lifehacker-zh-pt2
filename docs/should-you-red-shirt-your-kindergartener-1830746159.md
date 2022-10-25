@@ -1,6 +1,6 @@
 # 你应该给你的幼儿园小朋友穿红衬衫吗？
 
-> 原文:[https://life hacker . com/should-you red-shirt-your ' s kindergardener-1830746159](https://lifehacker.com/should-you-red-shirt-your-kindergartener-1830746159)
+> 原文：<https://lifehacker.com/should-you-red-shirt-your-kindergartener-1830746159>
 
 对于那些生日接近幼儿园注册截止日期的孩子的父母来说，争论几乎从他们一出生就开始了:我们应该给他穿上红色球衣吗？她会那么快准备好去幼儿园吗？
 

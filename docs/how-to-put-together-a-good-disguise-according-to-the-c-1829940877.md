@@ -1,6 +1,6 @@
 # 根据美国中央情报局的说法，如何做好伪装
 
-> 原文:[https://life hacker . com/how-to-put-together-a-good-conversation-on-the-c-1829940877](https://lifehacker.com/how-to-put-together-a-good-disguise-according-to-the-c-1829940877)
+> 原文：<https://lifehacker.com/how-to-put-together-a-good-disguise-according-to-the-c-1829940877>
 
 每个人都在考虑万圣节的服装，但对一些人来说，装扮成别人是一件非常严肃的事情。对于间谍来说，这是生死攸关的事情，他们需要做得完全正确。
 

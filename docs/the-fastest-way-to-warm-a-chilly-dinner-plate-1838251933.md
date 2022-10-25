@@ -1,6 +1,6 @@
 # 加热冰冷餐盘的最快方法
 
-> 原文:[https://life hacker . com/the-fast-way to-warm-a-chill-distal-1838251933](https://lifehacker.com/the-fastest-way-to-warm-a-chilly-dinner-plate-1838251933)
+> 原文：<https://lifehacker.com/the-fastest-way-to-warm-a-chilly-dinner-plate-1838251933>
 
 用冷盘端上热腾腾的食物可能会让人有点难过，尤其是当食物很快就凉了的时候(看着你，鸡蛋)。许多高级餐厅都有高级的暖盘器来帮助提升你的饮食体验，但是你不太可能有足够的柜台空间来放置这些东西。相反，你可以在热水中快速加热盘子。
 

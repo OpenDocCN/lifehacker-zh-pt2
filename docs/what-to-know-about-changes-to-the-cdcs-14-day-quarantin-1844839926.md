@@ -1,6 +1,6 @@
 # 关于疾病预防控制中心 14 天隔离旅行政策的变化，我们应该知道些什么
 
-> 原文:[https://life hacker . com/what-to-know-to-know-about-changes-to-the-CDCs-14-day-quarantine-1844839926](https://lifehacker.com/what-to-know-about-changes-to-the-cdcs-14-day-quarantin-1844839926)
+> 原文：<https://lifehacker.com/what-to-know-about-changes-to-the-cdcs-14-day-quarantin-1844839926>
 
 新冠肺炎期间旅行的最大变化之一是疾病控制中心(CDC)建议在你进行国际旅行或跨州旅行后进行 14 天的隔离。或者是，直到 8 月 21 日周五， [疾病预防控制中心更新了它的旅行指南](https://www.cdc.gov/coronavirus/2019-ncov/travelers/travel-during-covid19.html?_ga=2.19465912.1605904357.1598216093-2113364474.1595905482) ，悄悄地放弃了两周的隔离建议。这是不是意味着我们可以重新开始正常的旅行了？不，不是的。以下是你需要知道的。
 

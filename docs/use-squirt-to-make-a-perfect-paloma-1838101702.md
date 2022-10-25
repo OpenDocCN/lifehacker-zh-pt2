@@ -1,6 +1,6 @@
 # 使用水枪制作完美的帕洛玛
 
-> 原文:[https://life hacker . com/use-squirt-to-make-a-perfect-paloma-1838101702](https://lifehacker.com/use-squirt-to-make-a-perfect-paloma-1838101702)
+> 原文：<https://lifehacker.com/use-squirt-to-make-a-perfect-paloma-1838101702>
 
 帕洛玛是我最喜欢的“一些东西和苏打水”之一，主要是因为这是一个喝一些 Squirt 的好借口，这是我年轻时的葡萄柚苏打水。将它与龙舌兰酒和一点点酸橙混合，你就可以在玻璃杯中调制出一杯阳光明媚、可入口的鸡尾酒。
 

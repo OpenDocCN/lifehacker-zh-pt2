@@ -1,6 +1,6 @@
 # 问流行病学家你的冠状病毒问题[更新:已结束]
 
-> 原文:[https://life hacker . com/ask-an-epidemiologist-your-coronavirus-questions-1842746266](https://lifehacker.com/ask-an-epidemiologist-your-coronavirus-questions-1842746266)
+> 原文：<https://lifehacker.com/ask-an-epidemiologist-your-coronavirus-questions-1842746266>
 
 更新:我们完成了！非常感谢 René F. Najera 博士。他是约翰·霍普金斯大学彭博公共卫生学院的流行病学家，目前在 DC 华盛顿州卫生部的疫情反应小组工作。
 

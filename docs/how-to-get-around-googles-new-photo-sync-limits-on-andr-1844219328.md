@@ -1,6 +1,6 @@
 # 如何绕过谷歌在 Android 上的新照片同步限制
 
-> 原文:[https://life hacker . com/how-to-go-around-Google-new-photo-sync-limits-on-andr-1844219328](https://lifehacker.com/how-to-get-around-googles-new-photo-sync-limits-on-andr-1844219328)
+> 原文：<https://lifehacker.com/how-to-get-around-googles-new-photo-sync-limits-on-andr-1844219328>
 
 几个月来 w 我们都被困在家里给我们的猫、晚餐和其他值得注意的物体拍照，而我们显然在支持它们所有到谷歌照片的时候*使用了*很多*带宽。因此，谷歌今天宣布，它将限制谷歌照片在你的 Android 设备上自动备份的内容。*
 

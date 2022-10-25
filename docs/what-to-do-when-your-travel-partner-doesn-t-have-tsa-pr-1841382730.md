@@ -1,6 +1,6 @@
 # 当你的旅行伙伴没有 TSA 预检时该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-when-your-travel-partner-t-has-TSA-pr-1841382730](https://lifehacker.com/what-to-do-when-your-travel-partner-doesn-t-have-tsa-pr-1841382730)
+> 原文：<https://lifehacker.com/what-to-do-when-your-travel-partner-doesn-t-have-tsa-pr-1841382730>
 
 早在 2018 年， [众议院通过了一项法案](https://thepointsguy.com/news/congress-bans-unenrolled-passengers-precheck-line/) ，该法案将禁止大多数没有注册美国运输安全管理局预检的乘客进入机场的快速安检线——这让那些没有注册预检的乘客集体抱怨不已。
 

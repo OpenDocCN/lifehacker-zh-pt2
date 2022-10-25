@@ -1,6 +1,6 @@
 # 现在需要搬出去的大学生可以免费获得 30 天的 U-Haul 存储
 
-> 原文:[https://life hacker . com/college-students-need-out-now-can-get-30-da-1842316961](https://lifehacker.com/college-students-who-need-to-move-out-now-can-get-30-da-1842316961)
+> 原文：<https://lifehacker.com/college-students-who-need-to-move-out-now-can-get-30-da-1842316961>
 
 U-Haul [向任何因疫情而被迫突然离开宿舍的大学生提供 30 天免费寄存](https://www.uhaul.com/Articles/About/20625/College-Students-U-Haul-Offers-30-Days-Free-Self-Storage-amid-Coronavirus-Outbreak/) 。
 

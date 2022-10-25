@@ -1,6 +1,6 @@
 # 免费改签您 3 月份的西南航空航班，即使票价有差异
 
-> 原文:[https://life hacker . com/change-your-March-south west-flights-even-if-t-1833338919](https://lifehacker.com/change-your-march-southwest-flights-for-free-even-if-t-1833338919)
+> 原文：<https://lifehacker.com/change-your-march-southwest-flights-for-free-even-if-t-1833338919>
 
 联邦航空局可能花了 [的时间说服西南航空取消其 737 Max 8 的](https://lifehacker.com/how-to-find-out-if-youre-booked-on-a-737-max-and-what-t-1833243838) ，但该航空公司正在(某种程度上)通过三月份的促销活动来弥补这一点，即使票价有差异，你也可以免费更改航班。
 

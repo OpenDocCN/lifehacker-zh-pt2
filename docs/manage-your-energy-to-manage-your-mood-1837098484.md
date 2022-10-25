@@ -1,6 +1,6 @@
 # 管理你的能量来管理你的情绪
 
-> 原文:[https://life hacker . com/manage-your-energy-to-manage-your-mood-1837098484](https://lifehacker.com/manage-your-energy-to-manage-your-mood-1837098484)
+> 原文：<https://lifehacker.com/manage-your-energy-to-manage-your-mood-1837098484>
 
 下次你发现自己心情不好时，问问自己这和你周围发生的事情有多大关系——和你的能量水平有多大关系。
 

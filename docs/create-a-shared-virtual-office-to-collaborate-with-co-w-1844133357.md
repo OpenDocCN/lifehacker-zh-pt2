@@ -1,6 +1,6 @@
 # 创建共享虚拟办公室，与同事协作
 
-> 原文:[https://life hacker . com/create-a-shared-virtual-office-to-collaborate-with-co-w-1844133357](https://lifehacker.com/create-a-shared-virtual-office-to-collaborate-with-co-w-1844133357)
+> 原文：<https://lifehacker.com/create-a-shared-virtual-office-to-collaborate-with-co-w-1844133357>
 
 我们中那些足够幸运可以选择在家工作的人已经开始这种新的生活方式几个月了。像很多事情一样，有好的一面(不用通勤！)、不好的(和家里其他人争平面当桌子用)、丑的(当我 [在缩放会议](https://lifehacker.com/make-sure-you-dont-look-like-a-big-weirdo-before-jumpin-1842469549) 中瞥见自己的时候)。如果你是那种 [与他人合作](https://lifehacker.com/improve-your-work-from-home-morale-with-group-slack-bre-1842880766) 时工作表现最佳的人，这种新的安排可能是一个特别困难的调整。幸运的是，有一种方法可以解决这个问题。
 

@@ -1,6 +1,6 @@
 # 用罐装螃蟹烹饪教会了我一个新的意大利面妙招
 
-> 原文:[https://the take out . com/recipe-罐头-螃蟹-意大利面-焦糖化-番茄酱-1831589202](https://thetakeout.com/recipe-canned-crab-pasta-caramelized-tomato-paste-1831589202)
+> 原文：<https://thetakeout.com/recipe-canned-crab-pasta-caramelized-tomato-paste-1831589202>
 
 一天晚上，我非常想吃海鲜意大利面。蛤蜊扁面、虾肉意大利面、——如果它生活在海里，它可以窝在我的碗面里。因此，在寒冷的冬夜，螃蟹加天使头发的主意听起来格外美味。
 

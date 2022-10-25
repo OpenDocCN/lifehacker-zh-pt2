@@ -1,6 +1,6 @@
 # 你可能有权获得美国航空公司的燃油附加费退款
 
-> 原文:[https://life hacker . com/you-may-be-entitled-to-an-American-airlines-fuel-surc-1836851731](https://lifehacker.com/you-might-be-entitled-to-an-american-airlines-fuel-surc-1836851731)
+> 原文：<https://lifehacker.com/you-might-be-entitled-to-an-american-airlines-fuel-surc-1836851731>
 
 如果您最近通过美国航空公司预订了英国航空公司的 SEA-LHR 奖励机票，您可能有资格获得燃油附加费退款。
 

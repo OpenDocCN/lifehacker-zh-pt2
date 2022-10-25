@@ -1,6 +1,6 @@
 # 远离辐射 76 的公共服务器，直到这个黑客被修复
 
-> 原文:[https://life hacker . com/stay-off-public-servers-in-fallout-76-until-this-hack-I-1840613017](https://lifehacker.com/stay-off-public-servers-in-fallout-76-until-this-hack-i-1840613017)
+> 原文：<https://lifehacker.com/stay-off-public-servers-in-fallout-76-until-this-hack-i-1840613017>
 
 对于在 PC 上玩辐射 76 的玩家来说，假期并不快乐。MMORPG 出现了一种新的黑客技术，允许某人窃取另一个玩家库存中的所有东西，似乎只需动动手指。
 

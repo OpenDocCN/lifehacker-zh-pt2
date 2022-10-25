@@ -1,6 +1,6 @@
 # 通过采用 WhatsApp 的政策来阻止不良信息的传播
 
-> 原文:[https://life hacker . com/stop-the-spread-by-adopting-whatsapp-1842729343](https://lifehacker.com/stop-the-spread-of-bad-information-by-adopting-whatsapp-1842729343)
+> 原文：<https://lifehacker.com/stop-the-spread-of-bad-information-by-adopting-whatsapp-1842729343>
 
 说服你的朋友和爱人停止在网上传播废话感觉像是一个西西弗式的任务——你可能在几年前就放弃了，这要感谢一个特别激烈的政治时刻，它让我们所有人都走上了通往社会地狱的道路。在这种情况下，我认为考虑以下几点很重要:“【WhatsApp 会怎么做？”
 

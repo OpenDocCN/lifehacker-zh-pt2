@@ -1,6 +1,6 @@
 # 如何应对这次抖音、Instagram 和 YouTube 数据泄露事件
 
-> 原文:[https://life hacker . com/how-to-deal-this-tiktok-insta gram-and-YouTube-da-1844805272](https://lifehacker.com/how-to-deal-with-this-tiktok-instagram-and-youtube-da-1844805272)
+> 原文：<https://lifehacker.com/how-to-deal-with-this-tiktok-instagram-and-youtube-da-1844805272>
 
 一个安全措施不当的云数据库暴露了超过 2 . 35 亿个抖音、Instagram 和 YouTube 账户的个人信息。总部位于香港的公司 Social Data 在不知情的情况下将数据存储在没有适当密码保护的数据库中，这意味着任何人都可以突然进入并查看这些数据。*呃*。
 

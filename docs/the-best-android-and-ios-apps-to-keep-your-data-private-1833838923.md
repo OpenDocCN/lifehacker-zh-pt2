@@ -1,6 +1,6 @@
 # 最好的 Android 和 iOS 应用程序，保护您的数据隐私和安全
 
-> 原文:[https://life hacker . com/the-best-Android-and-IOs-apps-to-keep-your-data-private-1833838923](https://lifehacker.com/the-best-android-and-ios-apps-to-keep-your-data-private-1833838923)
+> 原文：<https://lifehacker.com/the-best-android-and-ios-apps-to-keep-your-data-private-1833838923>
 
 大公司在每次重大数据泄露后收集我们的数据并重置密码，这似乎是我们在 2019 年不得不接受的不可避免的事情。但是有办法保护你的数据和隐私。
 

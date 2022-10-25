@@ -1,6 +1,6 @@
 # 如何参加世界清洁日
 
-> 原文:[https://life hacker . com/how-to-part-in-world-clean-up-day-1845063709](https://lifehacker.com/how-to-participate-in-world-clean-up-day-1845063709)
+> 原文：<https://lifehacker.com/how-to-participate-in-world-clean-up-day-1845063709>
 
 周六是 [世界清洁日](https://alltogethercleanup.org/#lmIntro) ，虽然我们不应该需要指定一个特定的日子来鼓励我们捡起我们社区的垃圾，但 2020 年赋予了我们*许多其他需要担心的事情*。因此，现在提醒人们去公园捡垃圾不仅很有帮助，而且也是我们可以做的一件非常实际的事情，来改善我们的社区，尤其是当很多事情似乎超出我们的控制时。
 

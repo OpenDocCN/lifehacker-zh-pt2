@@ -1,6 +1,6 @@
 # 2020 年高中毕业生今天可以获得一份免费的必胜客披萨
 
-> 原文:[https://life hacker . com/2020-高中毕业生-可以获得免费的必胜客-piz-1843574009](https://lifehacker.com/2020-high-school-graduates-can-get-a-free-pizza-hut-piz-1843574009)
+> 原文：<https://lifehacker.com/2020-high-school-graduates-can-get-a-free-pizza-hut-piz-1843574009>
 
 2020 届高中毕业生及其家人今天可以从必胜客免费获得一份中号披萨。
 

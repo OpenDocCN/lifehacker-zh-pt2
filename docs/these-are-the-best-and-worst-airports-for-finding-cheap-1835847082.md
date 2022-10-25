@@ -1,6 +1,6 @@
 # 廉价国际航班的最佳和最差机场
 
-> 原文:[https://life hacker . com/这些是最便宜和最差的机场-1835847082](https://lifehacker.com/these-are-the-best-and-worst-airports-for-finding-cheap-1835847082)
+> 原文：<https://lifehacker.com/these-are-the-best-and-worst-airports-for-finding-cheap-1835847082>
 
 住在湾区，我很幸运，在计划旅行时，有三个相对较近的机场可供选择。旧金山和奥克兰机场都离我家大约 20-30 分钟的车程，这取决于一天中的时间，如果我需要，我可以乘坐火车到圣何塞，这将使我在一个小时左右到达机场。这意味着我可以货比三家寻找航班。
 

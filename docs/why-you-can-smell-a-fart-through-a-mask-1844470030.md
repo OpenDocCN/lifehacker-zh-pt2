@@ -1,6 +1,6 @@
 # why you can smell a fart through a mask 1844470030
 
-> 原文:[https://life hacker . com/why-you-can-smooth-a far-through a-mask-1844470030](https://lifehacker.com/why-you-can-smell-a-fart-through-a-mask-1844470030)
+> 原文：<https://lifehacker.com/why-you-can-smell-a-fart-through-a-mask-1844470030>
 
 正如那位 [在 Panera](https://www.rawstory.com/2020/07/watch-woman-rants-in-panera-that-masks-wont-stop-the-because-pants-cant-stop-farts/) 发脾气的反面具者指出的，即使屁穿过你的裤子，你也能闻到。她的观点似乎是织物不能阻挡空气，因此口罩不能阻挡空气中携带的东西。她错了，但是让我们检查为什么。
 

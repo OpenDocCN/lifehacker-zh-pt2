@@ -1,6 +1,6 @@
 # 如何启用 Hulu 的夜间模式
 
-> 原文:[https://life hacker . com/how-to-enable-hulus-night-mode-1830527378](https://lifehacker.com/how-to-enable-hulus-night-mode-1830527378)
+> 原文：<https://lifehacker.com/how-to-enable-hulus-night-mode-1830527378>
 
 只要有可能，我就非常喜欢使用黑暗或夜间模式。使用较暗的主题可以让你的眼睛更容易看到东西(如果你在飞机或床上，你周围人的眼睛也会更容易看到)。它还可以帮助节省电池寿命，因为显示黑色比白色更省电。
 

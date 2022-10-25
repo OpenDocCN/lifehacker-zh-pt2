@@ -1,6 +1,6 @@
 # young mozart composes kid friendly comic strips around 1834066813
 
-> 原文:[https://www . av club . com/young-Mozart-composes-kid-friendly-comic-strips-around-1834066813](https://www.avclub.com/young-mozart-composes-kid-friendly-comic-strips-around-1834066813)
+> 原文：<https://www.avclub.com/young-mozart-composes-kid-friendly-comic-strips-around-1834066813>
 
 漫画是让孩子阅读的一个有价值的工具，连环画是读者发展理解技能的一个理想起点。连环漫画家在包含的序列中呈现文本和视觉信息，在连环漫画中描绘清晰的行动路线，这些路线遵循基本上有规律的节奏，偶尔有变化。威廉·奥吉尔(William Augel)***年轻的莫札特*** (人形/大)把沃尔夫冈·阿马德乌斯·莫扎特想象成沃尔弗尔，一个早熟、顽皮、可爱的刁蛮男孩，具有威胁丹尼斯、卡尔文和查理·布朗的气质。《年轻的莫扎特》是人形机器人大印记中 10 岁以上的书籍之一——其他年龄范围是 6 岁以上和 YA——这是一本关于由无限的青春能量激发的艺术激情的迷人书籍。
 

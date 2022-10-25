@@ -1,6 +1,6 @@
 # 你的孩子可以在网飞选择他们自己的内裤船长冒险
 
-> 原文:[https://life hacker . com/your-kids-can-choose-the-own-captain-dinters-adven-1841517447](https://lifehacker.com/your-kids-can-choose-their-own-captain-underpants-adven-1841517447)
+> 原文：<https://lifehacker.com/your-kids-can-choose-their-own-captain-underpants-adven-1841517447>
 
 裤衩船长——当然还有四年级的乔治和哈洛德——凭借作者 [戴夫·皮尔奇的图文并茂的系列丛书](https://pilkey.com/series/captain-underpants) 首次进入了小学生的心中。接下来是 [电影](https://www.imdb.com/title/tt2091256/) 然后是 [网飞系列](https://www.netflix.com/title/80179782) 。所有这些我自己九岁的儿子已经读过或看过多次。
 

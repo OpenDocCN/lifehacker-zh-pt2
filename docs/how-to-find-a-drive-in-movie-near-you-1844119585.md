@@ -1,6 +1,6 @@
 # 如何找到你附近的免下车电影院
 
-> 原文:[https://life hacker . com/how-to-find-a-drive-in-movie-near-you-1844119585](https://lifehacker.com/how-to-find-a-drive-in-movie-near-you-1844119585)
+> 原文：<https://lifehacker.com/how-to-find-a-drive-in-movie-near-you-1844119585>
 
 “网飞和寒意”是一个伟大的概念，当时世界是开放的，有太多的其他选择，带我们远离生活的某些方面。但现在可以肯定地说，我们已经不再享受家里的舒适，渴望出去看场电影(或任何东西，真的)。
 

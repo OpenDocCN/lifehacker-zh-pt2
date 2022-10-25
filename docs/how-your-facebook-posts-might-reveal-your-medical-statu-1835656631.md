@@ -1,6 +1,6 @@
 # 你在脸书的帖子可能会泄露你的健康状况
 
-> 原文:[https://life hacker . com/how-your-Facebook-posts-may-reveal-your-medical-statu-1835656631](https://lifehacker.com/how-your-facebook-posts-might-reveal-your-medical-statu-1835656631)
+> 原文：<https://lifehacker.com/how-your-facebook-posts-might-reveal-your-medical-statu-1835656631>
 
 根据一项新的研究，研究人员能够通过分析一些人在脸书的帖子来正确猜测他们的健康状况。参与研究的人已经同意了这项研究，研究结果是保密的，但是让这成为一个警告:你可能告诉世界的比你透露的要多得多。
 

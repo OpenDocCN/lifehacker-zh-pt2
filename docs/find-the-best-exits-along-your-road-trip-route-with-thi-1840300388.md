@@ -1,6 +1,6 @@
 # 使用此应用程序找到您公路旅行路线上的最佳出口
 
-> 原文:[https://life hacker . com/find-the-best-exits-along-your-road-trip-route-with-thi-1840300388](https://lifehacker.com/find-the-best-exits-along-your-road-trip-route-with-thi-1840300388)
+> 原文：<https://lifehacker.com/find-the-best-exits-along-your-road-trip-route-with-thi-1840300388>
 
 我非常喜欢公路旅行。我已经在三个不同的场合驾车穿越过这个国家，我喜欢这种沿途领略所有奇特事物和经历的体验。
 

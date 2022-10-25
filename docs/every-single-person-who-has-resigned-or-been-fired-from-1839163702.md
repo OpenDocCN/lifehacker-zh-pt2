@@ -1,6 +1,6 @@
 # 每一个从特朗普政府辞职或被解雇的人
 
-> 原文:[https://life hacker . com/every-single-person-that-1839163702](https://lifehacker.com/every-single-person-who-has-resigned-or-been-fired-from-1839163702)
+> 原文：<https://lifehacker.com/every-single-person-who-has-resigned-or-been-fired-from-1839163702>
 
 周四，能源部长里克·佩里(Rick Perry)宣布他将在今年年底辞职，因为有报道称他参与了 与乌克兰总统的对话；就在*一周前，代理国土安全部部长凯文·麦卡勒南(Kevin McAleenan)也辞职，这让我们不禁思考:许多其他助手和内阁成员是如何在特朗普总统任职期间离开的？*
 

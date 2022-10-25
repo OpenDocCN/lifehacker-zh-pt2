@@ -1,6 +1,6 @@
 # 如何使用 Steam 通过互联网玩本地多人游戏
 
-> 原文:[https://life hacker . com/how-to-play-local-multiplayer-games-over-the-internet-w-1839302981](https://lifehacker.com/how-to-play-local-multiplayer-games-over-the-internet-w-1839302981)
+> 原文：<https://lifehacker.com/how-to-play-local-multiplayer-games-over-the-internet-w-1839302981>
 
 我们生活在一个游戏的黄金时代，在这个时代，我们可以很容易地访问来自每个时代、流派、主机和你可能想到的利基市场的大量游戏。但是，虽然当你坐在沙发上拿着游戏机玩合作或本地竞技游戏相对容易，但本地多人游戏对 PC 游戏玩家来说可能更难，他们选择的平台主要是为单人和在线多人游戏体验量身定制的。
 

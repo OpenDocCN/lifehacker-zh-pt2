@@ -1,6 +1,6 @@
 # 在颠簸中使用放松和冥想应用程序
 
-> 原文:[https://life hacker . com/use-relaxation-and-mostation-apps-during-turbulence-1836411753](https://lifehacker.com/use-relaxation-and-meditation-apps-during-turbulence-1836411753)
+> 原文：<https://lifehacker.com/use-relaxation-and-meditation-apps-during-turbulence-1836411753>
 
 尽管我已经尽职尽责地研究了为什么飞机是最安全的旅行方式的所有理由，但我仍然是一个焦虑的飞行者。
 

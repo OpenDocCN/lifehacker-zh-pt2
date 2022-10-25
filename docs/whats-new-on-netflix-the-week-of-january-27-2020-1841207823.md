@@ -1,6 +1,6 @@
 # 2020 年 1 月 27 日这一周网飞有什么新消息
 
-> 原文:[https://life hacker . com/whats-new-on-the-week-of-January-27-2020-1841207823](https://lifehacker.com/whats-new-on-netflix-the-week-of-january-27-2020-1841207823)
+> 原文：<https://lifehacker.com/whats-new-on-netflix-the-week-of-january-27-2020-1841207823>
 
 《杰克骑士》的最后八集将于周五播出，所以计划邀请人们来观看，因为这是那种更适合人群的节目，而且这是漫长的一周；当你这么累的时候，你不能去别人家。告诉他们给你做晚饭。
 

@@ -1,6 +1,6 @@
 # 如何用一组楼梯锻炼腿部
 
-> 原文:[https://life hacker . com/how-to-get-a-leg-just-set-of-stairs-1835008484](https://lifehacker.com/how-to-get-a-leg-workout-with-just-a-set-of-stairs-1835008484)
+> 原文：<https://lifehacker.com/how-to-get-a-leg-workout-with-just-a-set-of-stairs-1835008484>
 
 朋友们，我们回来了，用 [挑战你们更多的楼梯练习](https://lifehacker.com/this-months-fitness-challenge-theme-is-stairs-1834511269) 。上周我们 [做了楼梯俯卧撑](https://vitals.lifehacker.com/get-better-at-push-ups-by-doing-them-on-stairs-1834847608)；今天的重点是下半身锻炼。
 

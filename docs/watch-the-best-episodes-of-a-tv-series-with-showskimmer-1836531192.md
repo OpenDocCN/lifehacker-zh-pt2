@@ -1,6 +1,6 @@
 # 使用 ShowSkimmer 观看电视连续剧的最佳剧集
 
-> 原文:[https://life hacker . com/watch-the-best-episodes-of-a-show skimmer-1836531192](https://lifehacker.com/watch-the-best-episodes-of-a-tv-series-with-showskimmer-1836531192)
+> 原文：<https://lifehacker.com/watch-the-best-episodes-of-a-tv-series-with-showskimmer-1836531192>
 
 网站 [ShowSkimmer](http://www.showskimmer.com/) 是一个寻找电视节目最佳剧集的新工具。搜索一个剧集，ShowSkimmer 会按时间顺序列出最好的 5 集、10 集、25 集或 50 集。这是一个观看连续剧的好方法，同时跳过所有容易忘记的剧集——这对于情节轻松、有很多时间可以填充的长时间连续剧来说特别好。如果你在看像《T4》和《亚特兰大》这样的短片，你应该看完每一集。如果你正在浏览《老友记》第十季，你可以跳过一些。
 

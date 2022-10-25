@@ -1,6 +1,6 @@
 # 是时候让我们的孩子恢复正常的睡眠时间表了
 
-> 原文:[https://life hacker . com/its-time-to-get-our-kids-back-on-a-regular-sleep-schedu-1844530967](https://lifehacker.com/its-time-to-get-our-kids-back-on-a-regular-sleep-schedu-1844530967)
+> 原文：<https://lifehacker.com/its-time-to-get-our-kids-back-on-a-regular-sleep-schedu-1844530967>
 
 在春天正常生活的减少和我们正在经历的漫长而无聊的夏天之间，父母们可能变得格外松懈的一件事就是坚持就寝时间。有些日子我决定适可而止(现在)，我的儿子需要在一个合适的时间上床睡觉，但大多数时候我只是想，“睡觉时间还有什么关系？”
 

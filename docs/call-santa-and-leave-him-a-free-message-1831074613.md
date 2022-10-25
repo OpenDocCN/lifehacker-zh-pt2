@@ -1,6 +1,6 @@
 # 打电话给圣诞老人，给他留一个(免费的)信息
 
-> 原文:[https://life hacker . com/call-Santa-and-left-him-a-free-message-1831074613](https://lifehacker.com/call-santa-and-leave-him-a-free-message-1831074613)
+> 原文：<https://lifehacker.com/call-santa-and-leave-him-a-free-message-1831074613>
 
 生活在这样一个科技发达的时代，最大的好处之一就是我们的孩子可以方便快捷地联系到圣诞老人。
 

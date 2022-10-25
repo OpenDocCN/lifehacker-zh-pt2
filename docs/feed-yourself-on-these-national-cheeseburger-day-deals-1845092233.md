@@ -1,6 +1,6 @@
 # 用这些全国芝士汉堡日的优惠来养活自己吧
 
-> 原文:[https://life hacker . com/feed-yourself-on-then-national-cheese burg-day-deals-1845092233](https://lifehacker.com/feed-yourself-on-these-national-cheeseburger-day-deals-1845092233)
+> 原文：<https://lifehacker.com/feed-yourself-on-these-national-cheeseburger-day-deals-1845092233>
 
 没有什么比后院烤架上新鲜出炉的热乎乎多汁的芝士汉堡更好的了——除非是别人为你做的免费或打折的芝士汉堡。如果你最近一直想吃一个，你很幸运:今天是全国奶酪汉堡日，这意味着当地和全国的汉堡店都有特价，在 T4，在某些情况下，包括免费的奶酪汉堡。我们将坚持在这里使用更大的连锁店，但是在你住的拐角处有很棒的汉堡的那个地方可能也有一些交易。这里有一些你可以买到的免费和打折的食物来庆祝全国奶酪汉堡日。
 

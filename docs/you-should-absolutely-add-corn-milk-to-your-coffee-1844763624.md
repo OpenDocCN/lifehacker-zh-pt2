@@ -1,6 +1,6 @@
 # 你绝对应该在你的咖啡里加入玉米牛奶
 
-> 原文:[https://life hacker . com/you-should-absolute-add-corn-milk to-your-coffee-1844763624](https://lifehacker.com/you-should-absolutely-add-corn-milk-to-your-coffee-1844763624)
+> 原文：<https://lifehacker.com/you-should-absolutely-add-corn-milk-to-your-coffee-1844763624>
 
 我找到了早上起床的新理由，那个理由就是加糖炼乳。“那他妈的是什么？”你可能会问。这听起来就像是——甜炼乳被注入了玉米的伟大。
 

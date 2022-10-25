@@ -1,6 +1,6 @@
 # 洗手液对冠状病毒真的有效吗？
 
-> 原文:[https://life hacker . com/does-hand-sanitizer-actual-work-against-coronavirus-1842026810](https://lifehacker.com/does-hand-sanitizer-actually-work-against-coronavirus-1842026810)
+> 原文：<https://lifehacker.com/does-hand-sanitizer-actually-work-against-coronavirus-1842026810>
 
 洗手液被抢购一空，糟糕到我这个周末去的两家商店都被抢购一空。还有一条推特流传说不要用这种东西，并错误地声称它不会杀死病毒。所以我们明确一点——是的，洗手液可以杀死冠状病毒。但是没有它你也会很好。
 

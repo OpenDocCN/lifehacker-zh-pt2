@@ -1,6 +1,6 @@
 # 在去人多的地方之前，给你的孩子快速拍一张照片
 
-> 原文:[https://life hacker . com/take-a-quick-photo-before-to-Cr-1842009843](https://lifehacker.com/take-a-quick-photo-of-your-child-before-heading-into-cr-1842009843)
+> 原文：<https://lifehacker.com/take-a-quick-photo-of-your-child-before-heading-into-cr-1842009843>
 
 即使是最勤奋的父母也会出乎意料地跟不上他们的孩子，尤其是在拥挤和引人注目的地方，如游乐园、集市和购物中心。本周，reddit 用户 ChadNFreud 提出了一个很好的建议 在你和一个孩子或有困难的成年人一起进入拥挤的环境之前应该做什么:拍张照。
 

@@ -1,6 +1,6 @@
 # 如何从网上抹去自己的存在
 
-> 原文:[https://life hacker . com/how-to-commit-internet-自杀并从网络上消失-5958801](https://lifehacker.com/how-to-commit-internet-suicide-and-disappear-from-the-w-5958801)
+> 原文：<https://lifehacker.com/how-to-commit-internet-suicide-and-disappear-from-the-w-5958801>
 
 几乎每天都有关于数据泄露、黑客攻击和隐私问题的新闻，想要从互联网上消失并不是没有道理的。也许你已经厌倦了潜在雇主在谷歌上搜索你的名字时出现的令人尴尬的事情。还是厌倦了所有人都知道你住在花园级别的地牢公寓？或者，也许你只是不喜欢这样的事实，即存在于网上让你很容易找到。
 

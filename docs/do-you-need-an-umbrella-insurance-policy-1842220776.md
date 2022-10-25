@@ -1,6 +1,6 @@
 # 你需要一份雨伞保险单吗？
 
-> 原文:[https://life hacker . com/do-you-need-a-雨伞保险政策-1842220776](https://lifehacker.com/do-you-need-an-umbrella-insurance-policy-1842220776)
+> 原文：<https://lifehacker.com/do-you-need-an-umbrella-insurance-policy-1842220776>
 
 一旦你为你的车和房子买了保险，你可能会认为你完成了。如果出了什么问题，你会得到补偿的，对吗？
 

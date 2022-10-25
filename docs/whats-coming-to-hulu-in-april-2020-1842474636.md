@@ -1,6 +1,6 @@
 # 2020 年 4 月，Hulu 将迎来什么
 
-> 原文:[https://life hacker . com/whats-coming-to-Hulu-in-April-2020-1842474636](https://lifehacker.com/whats-coming-to-hulu-in-april-2020-1842474636)
+> 原文：<https://lifehacker.com/whats-coming-to-hulu-in-april-2020-1842474636>
 
 如果你开始缺乏新的流媒体内容，好消息是:4 月份会有更多的新内容出现在 Hulu 上。
 

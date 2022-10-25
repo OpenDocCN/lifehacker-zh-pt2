@@ -1,6 +1,6 @@
 # 这些国家遵循护照“六个月规则”
 
-> 原文:[https://life hacker . com/these-countries-follow-the-six-months-rule-for-pass por-1782577451](https://lifehacker.com/these-countries-follow-the-six-month-rule-for-passpor-1782577451)
+> 原文：<https://lifehacker.com/these-countries-follow-the-six-month-rule-for-passpor-1782577451>
 
 如果你有任何国际旅行计划，你会想要马上检查你的护照的到期日。当然，你知道最好不要试图用过期的护照穿越边境，但是许多国家要求在你的护照到期日有六个月的缓冲期。
 

@@ -1,6 +1,6 @@
 # 保护你的小狗免受这些召回狗粮的伤害
 
-> 原文:[https://life hacker . com/protect-your-pups-from the this-called-dog-food-1845024145](https://lifehacker.com/protect-your-pups-from-this-recalled-dog-food-1845024145)
+> 原文：<https://lifehacker.com/protect-your-pups-from-this-recalled-dog-food-1845024145>
 
 虽然今年大部分时间都呆在家里，但我们中的许多人一直专注于给我们带来舒适的东西，比如食物和狗(或者你选择的宠物)。那会有什么问题呢？嗯，它从洋葱 的召回开始，基本上要求我们扔掉家里所有的洋葱。接下来是桃子——[，在它们的季节高峰期](https://vitals.lifehacker.com/now-throw-out-your-peaches-fda-says-1844827702) 被召回，在它们生命的黄金时期。而现在，是狗粮。好像事情还不够多。以下是你需要了解的最新狗粮召回事件。
 

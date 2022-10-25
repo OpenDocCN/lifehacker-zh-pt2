@@ -1,6 +1,6 @@
 # 为什么我的未婚妻会看到我购物的广告？
 
-> 原文:[https://life hacker . com/why-my-fif-see-ads-for-things-ive-shopped 1831647090](https://lifehacker.com/why-does-my-fiance-see-ads-for-things-ive-shopped-for-1831647090)
+> 原文：<https://lifehacker.com/why-does-my-fiance-see-ads-for-things-ive-shopped-for-1831647090>
 
 在 Lifehacker 本周的 [技术建议专栏](https://lifehacker.com/c/tech-911) 中，我正在解决互联网最大的烦恼。不是尖叫 YouTube 的影响者或在*堡垒之夜*比你强的人——我说的是定向广告。
 

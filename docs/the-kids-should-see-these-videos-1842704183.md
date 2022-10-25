@@ -1,6 +1,6 @@
 # 孩子们应该看看这些视频
 
-> 原文:[https://life hacker . com/the-kids-should-see-these-videos-1842704183](https://lifehacker.com/the-kids-should-see-these-videos-1842704183)
+> 原文：<https://lifehacker.com/the-kids-should-see-these-videos-1842704183>
 
 现在过多的屏幕时间几乎是必然的。我们都在尽最大努力在家工作*和*帮助我们的孩子完成在线学习任务*和*通过我们所有的设备与他们的朋友和家人联系。但是，即使我们做完了所有这些，一天中剩下的所有小时都被游戏日、运动和其他活动消耗掉了。现在，至少有一部分时间可能花在了屏幕上。
 

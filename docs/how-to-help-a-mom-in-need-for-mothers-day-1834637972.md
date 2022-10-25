@@ -1,6 +1,6 @@
 # 如何在母亲节帮助有需要的妈妈
 
-> 原文:[https://life hacker . com/how-to-help-a mom-in-need-mother-day-1834637972](https://lifehacker.com/how-to-help-a-mom-in-need-for-mothers-day-1834637972)
+> 原文：<https://lifehacker.com/how-to-help-a-mom-in-need-for-mothers-day-1834637972>
 
 如果你还不确定母亲节给你的妈妈/妻子/伴侣/最好的朋友买什么，那么以他们的名义帮助一位有需要的新妈妈怎么样？
 

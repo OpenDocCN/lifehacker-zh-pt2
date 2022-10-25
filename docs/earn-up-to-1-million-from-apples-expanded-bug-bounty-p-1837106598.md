@@ -1,6 +1,6 @@
 # 从苹果扩大的 Bug Bounty 计划中赚取高达 100 万美元
 
-> 原文:[https://life hacker . com/earn-up-to-100 万-from-apple-expanded-bug-bounty-p-1837106598](https://lifehacker.com/earn-up-to-1-million-from-apples-expanded-bug-bounty-p-1837106598)
+> 原文：<https://lifehacker.com/earn-up-to-1-million-from-apples-expanded-bug-bounty-p-1837106598>
 
 苹果的产品以相当安全著称，但它们并不完美。现在，如果你是一名出色的安全研究员或白帽黑客——并且你想追求除了 iOS 和 iCloud 之外的其他苹果设备和服务——你可以赚很多钱。
 

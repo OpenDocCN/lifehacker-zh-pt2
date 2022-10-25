@@ -1,6 +1,6 @@
 # 这种南瓜和香料汤很简单，但远远不是最基本的
 
-> 原文:[https://the take out . com/pumpkin-curry-spice-soup-recipe-1838184621](https://thetakeout.com/pumpkin-curry-spice-soup-recipe-1838184621)
+> 原文：<https://thetakeout.com/pumpkin-curry-spice-soup-recipe-1838184621>
 
 我不记得哪一年我妈妈开始为感恩节做南瓜汤，但我也不记得没有南瓜汤的感恩节。当我离开家开始我自己的秋季传统时，这是我要的唯一食谱。第一次买食材自己做的时候，要把食谱卡重读几遍。就这么简单吗？
 

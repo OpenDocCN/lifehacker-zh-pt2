@@ -1,6 +1,6 @@
 # 为今年的最后六周做一个决定
 
-> 原文:[https://life hacker . com/make-a-resolution-for-the last-sive-weeks of the-year-1830555411](https://lifehacker.com/make-a-resolution-for-the-last-six-weeks-of-the-year-1830555411)
+> 原文：<https://lifehacker.com/make-a-resolution-for-the-last-six-weeks-of-the-year-1830555411>
 
 11 月和 12 月的剩余时间里，既有感恩节，又有宗教仪式、疯狂消费和疯狂饮食的泥沼，感觉就像洗了一次澡。新年前夜是一个闪亮的灯塔，这个时候我们将重置我们所有的肮脏习惯——所以，为什么现在要烦恼呢？因为设定一个预先的决心仍然可以改变你生活的某些方面。
 

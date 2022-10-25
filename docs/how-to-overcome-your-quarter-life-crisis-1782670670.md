@@ -1,6 +1,6 @@
 # 如何克服你的四分之一生活危机
 
-> 原文:[https://life hacker . com/how-to-over-the-quarter-life-crisis-1782670670](https://lifehacker.com/how-to-overcome-your-quarter-life-crisis-1782670670)
+> 原文：<https://lifehacker.com/how-to-overcome-your-quarter-life-crisis-1782670670>
 
 我们对于如何处理生活的社会叙事非常清楚。高中毕业后，甚至大学毕业后，你就进入了职场。当然，在你真正开始之前，可能需要一些实习或低级别的工作，但是到你 20 多岁的时候，当然也是 30 多岁的时候，你已经走上了一条非常清晰的职业道路。很好，但那很少发生。它也忽略了你二十多岁和三十多岁之间的那段不确定时期，在这段时间里，你审视自己的生活，不知道自己到底要去哪里。
 

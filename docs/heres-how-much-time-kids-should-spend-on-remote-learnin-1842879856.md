@@ -1,6 +1,6 @@
 # 以下是孩子们应该花在“远程学习”上的时间
 
-> 原文:[https://life hacker . com/heres-how-how-time-dose-spend-learnin-1842879856](https://lifehacker.com/heres-how-much-time-kids-should-spend-on-remote-learnin-1842879856)
+> 原文：<https://lifehacker.com/heres-how-much-time-kids-should-spend-on-remote-learnin-1842879856>
 
 可以理解的是，很多家长对这种在家学习的情况感到沮丧( [我仍然拒绝](https://lifehacker.com/dont-call-this-homeschooling-1842791078) 把我们现在所做的称为“在家上学”)。U p 在我的社交媒体上， [父母担心在疫情期间，他们会让孩子在学业上不及格，因为他们也在家工作，或者他们在外面工作，或者他们只是对此刻的一切感到焦虑。毫无疑问，我们孩子的学业进步是目前被忽视的事情之一。](https://lifehacker.com/if-you-re-struggling-to-parent-right-now-you-re-not-al-1842641280)
 

@@ -1,6 +1,6 @@
 # 如何帮助你的孩子找到他们的家人
 
-> 原文:[https://life hacker . com/how-to-help-your-kid-find-their-people-1835268871](https://lifehacker.com/how-to-help-your-kid-find-their-people-1835268871)
+> 原文：<https://lifehacker.com/how-to-help-your-kid-find-their-people-1835268871>
 
 我 6 岁的女儿一直在抱怨学校里的一个女孩。她经常和她一起玩，但最近，她对打断她说话的方式感到沮丧，并拒绝了她对“空间”的需求。我试图给她一些工具来表达她的感受，但是有一天晚上，当她再次表达同样的担忧时，我告诉她:“你知道，你不必成为她的朋友。”
 

@@ -1,6 +1,6 @@
 # 如何处理出汗过多
 
-> 原文:[https://life hacker . com/how-to-deal-over-sweat-problems-1656780416](https://lifehacker.com/how-to-deal-with-excessive-sweat-problems-1656780416)
+> 原文：<https://lifehacker.com/how-to-deal-with-excessive-sweat-problems-1656780416>
 
 我们所有人都会流汗，但有些人流汗很多。喜欢，说真的，*很多。如果你属于这一类，你就会知道这有多烦人，有时还会很尴尬。但是不要害怕，我出汗的朋友们；我们在这里分享一些小贴士，让你的生活变得更轻松。*
 

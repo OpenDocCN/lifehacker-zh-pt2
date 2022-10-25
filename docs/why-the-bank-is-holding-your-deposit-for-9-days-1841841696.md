@@ -1,6 +1,6 @@
 # 为什么银行会把你的存款扣留 9 天
 
-> 原文:[https://life hacker . com/why-the bank ' s holding your ' s deposit-9 天-1841841696](https://lifehacker.com/why-the-bank-is-holding-your-deposit-for-9-days-1841841696)
+> 原文：<https://lifehacker.com/why-the-bank-is-holding-your-deposit-for-9-days-1841841696>
 
 在那些罕见的情况下，你通过传统的支票收到钱，很容易把钱存入你的银行账户。你可以通过手机存入支票，把它塞进自动取款机，或者——如果你真的想——走进银行。
 

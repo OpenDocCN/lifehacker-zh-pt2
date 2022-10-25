@@ -1,6 +1,6 @@
 # 用 iOS 13 测试版提前两天获得苹果街机
 
-> 原文:[https://life hacker . com/get-apple-arcade-two-days-early-the-IOs-13-beta-1838161752](https://lifehacker.com/get-apple-arcade-two-days-early-with-the-ios-13-beta-1838161752)
+> 原文：<https://lifehacker.com/get-apple-arcade-two-days-early-with-the-ios-13-beta-1838161752>
 
 苹果的高级游戏订阅 Apple Arcade 将于 9 月 19 日周四在 App Store 上市。如果你不能忍受等待，我有好消息。Apple Arcade 于周一登陆 iOS 13 测试版应用商店，所以如果你愿意，现在就可以注册这项服务，提前几天开始玩。
 

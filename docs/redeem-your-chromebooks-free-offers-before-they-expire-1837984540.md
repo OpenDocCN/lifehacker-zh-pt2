@@ -1,6 +1,6 @@
 # 在 Chromebook 的免费优惠过期前兑换
 
-> 原文:[https://life hacker . com/redempt-your-chrome books-free-offers-before-they-expired-1837984540](https://lifehacker.com/redeem-your-chromebooks-free-offers-before-they-expire-1837984540)
+> 原文：<https://lifehacker.com/redeem-your-chromebooks-free-offers-before-they-expire-1837984540>
 
 我没有新的 Chromebook，但我希望我有；不是因为我的笔记本电脑需要升级(没关系)，而是因为这样我就可以利用谷歌提供的更多免费服务，而我目前的 Chromebook 太旧了，无法享受。
 

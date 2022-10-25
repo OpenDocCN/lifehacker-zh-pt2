@@ -1,6 +1,6 @@
 # 这是假期中飞行最繁忙的日子
 
-> 原文:[https://life hacker . com/这是假期里最忙的飞行时间-1840411849](https://lifehacker.com/these-are-the-busiest-days-to-fly-during-the-holidays-1840411849)
+> 原文：<https://lifehacker.com/these-are-the-busiest-days-to-fly-during-the-holidays-1840411849>
 
 如果你要乘飞机回家度假，请准备好各种各样的线路——根据倡导组织 [美国航空](https://www.airlines.org/)的预测，在圣诞节前几天到 2020 年 1 月 5 日，将有超过 4700 万美国人乘坐飞机，相当于每天大约 260 万乘客。
 

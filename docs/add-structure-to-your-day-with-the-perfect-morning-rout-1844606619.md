@@ -1,6 +1,6 @@
 # 用完美的晨间作息给你的一天添加结构
 
-> 原文:[https://life hacker . com/add-structure-to-your-day with the-perfect-morning-rout-1844606619](https://lifehacker.com/add-structure-to-your-day-with-the-perfect-morning-rout-1844606619)
+> 原文：<https://lifehacker.com/add-structure-to-your-day-with-the-perfect-morning-rout-1844606619>
 
 记得闹钟吗？记得起床吗？还记得一天之内必须做多件事情来达到某种目的吗？
 

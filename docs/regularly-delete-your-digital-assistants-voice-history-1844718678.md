@@ -1,6 +1,6 @@
 # 定期删除您的数字助理的语音记录
 
-> 原文:[https://life hacker . com/regularly-delete-your-digital-assistants-voice-history-1844718678](https://lifehacker.com/regularly-delete-your-digital-assistants-voice-history-1844718678)
+> 原文：<https://lifehacker.com/regularly-delete-your-digital-assistants-voice-history-1844718678>
 
 在 Alexa 的网络服务中发现的漏洞可能会让黑客访问存储在亚马逊服务器上的录音和个人数据。一些漏洞甚至可以让黑客在别人不知情的情况下远程安装 Alexa 技能到别人的设备上。尽管这些缺陷很严重，但在这种特殊情况下你是安全的——但这是一个很好的提醒*请删除你的智能扬声器的音频记录*。
 

@@ -1,6 +1,6 @@
 # 你现在还能买到家用健身器材吗？
 
-> 原文:[https://life hacker . com/can-you-still-buy-home-gym-equipment-right-now-1842817956](https://lifehacker.com/can-you-still-buy-home-gym-equipment-right-now-1842817956)
+> 原文：<https://lifehacker.com/can-you-still-buy-home-gym-equipment-right-now-1842817956>
 
 既然健身房都关门了，人们正在寻找在家健身的方法。这包括建立一个家庭健身房。然而，如果你一直在努力寻找家用健身器材，你并不孤单:休斯顿的一家健身商店报告称，仅在一周内就卖出了六到八个月的免费举重器材 ，而其他商店报告称销量有所增加。
 

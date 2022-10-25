@@ -1,6 +1,6 @@
 # im tony wu underwater photographer and this is how i 1830982729
 
-> 原文:[https://life hacker . com/im-Tony-Wu-under water-photomer-and-this-is-how-I-1830982729](https://lifehacker.com/im-tony-wu-underwater-photographer-and-this-is-how-i-1830982729)
+> 原文：<https://lifehacker.com/im-tony-wu-underwater-photographer-and-this-is-how-i-1830982729>
 
 吴伟星的摄影作品赢得了无数奖项，包括日本最大的水下摄影比赛的大奖，昂蒂布海洋影像节的年度最佳图书奖，以及年度野生动物摄影师大赛两个类别的第一名。他花了很多时间捕捉座头鲸、抹香鲸、蓝鲸和其他鲸类动物的图像，“以及记录鱼类产卵集群，这本质上是数千条性疯狂的鱼的狂欢。”
 

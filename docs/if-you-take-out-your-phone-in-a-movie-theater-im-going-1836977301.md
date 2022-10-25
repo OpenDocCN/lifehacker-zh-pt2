@@ -1,6 +1,6 @@
 # 如果你在电影院拿出手机，我会要求使用它
 
-> 原文:[https://gizmodo . com/if-you-take-out-your-phone-in-a-movie-theater-im-going-1836977301](https://gizmodo.com/if-you-take-out-your-phone-in-a-movie-theater-im-going-1836977301)
+> 原文：<https://gizmodo.com/if-you-take-out-your-phone-in-a-movie-theater-im-going-1836977301>
 
 今年几乎每个周末，我都会去看电影。在一个无情的新闻环境中，去当地的多厅影院，扑通一声坐下，几个小时不与外界联系是很好的。可悲的是，我注意到一个令人不安的趋势:即使在那里，在好莱坞能够提供的最大奇观之前，人们也不能离开他们该死的手机。
 

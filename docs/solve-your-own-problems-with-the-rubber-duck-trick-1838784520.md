@@ -1,6 +1,6 @@
 # 用橡皮鸭把戏解决你自己的问题
 
-> 原文:[https://life hacker . com/用橡皮鸭把戏解决自己的问题-1838784520](https://lifehacker.com/solve-your-own-problems-with-the-rubber-duck-trick-1838784520)
+> 原文：<https://lifehacker.com/solve-your-own-problems-with-the-rubber-duck-trick-1838784520>
 
 你有没有开始请人帮你解决问题，到一半的时候，你自己想明白了？感觉棒极了。当你学会有目的地去做的时候，当你学会不浪费别人的时间去做的时候，感觉会更好。
 

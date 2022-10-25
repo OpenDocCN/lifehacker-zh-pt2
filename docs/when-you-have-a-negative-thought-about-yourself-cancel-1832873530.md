@@ -1,6 +1,6 @@
 # 当你对自己有负面想法时，取消它
 
-> 原文:[https://life hacker . com/when-you-hacken-cancel-1832873530](https://lifehacker.com/when-you-have-a-negative-thought-about-yourself-cancel-1832873530)
+> 原文：<https://lifehacker.com/when-you-have-a-negative-thought-about-yourself-cancel-1832873530>
 
 我们对自己有一些负面的想法，我们会一遍又一遍地重复。如果你想改掉想自己糟糕事情的习惯，这里有一个有用的提示:取消这个想法。
 

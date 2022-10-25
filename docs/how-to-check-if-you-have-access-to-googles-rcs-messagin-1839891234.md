@@ -1,6 +1,6 @@
 # 如何检查您是否可以访问 Google 的 RCS 消息
 
-> 原文:[https://life hacker . com/how-to-check-if-you-have-access-Google-RCS-messagin-1839891234](https://lifehacker.com/how-to-check-if-you-have-access-to-googles-rcs-messagin-1839891234)
+> 原文：<https://lifehacker.com/how-to-check-if-you-have-access-to-googles-rcs-messagin-1839891234>
 
 RCS 信息在这里——谢谢，谷歌——但是你仍然有可能不能打开它，因为，还是谷歌。是的，这是另一个功能展示，这意味着你会盯着你的手机看一段未知的时间，希望它能向你展示你可以用来打开某些东西的设置，这些东西 [在纸上听起来真的很棒](https://lifehacker.com/whats-rcs-messaging-and-why-should-you-care-1832235783) 。
 

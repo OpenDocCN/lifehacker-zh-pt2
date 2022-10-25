@@ -1,6 +1,6 @@
 # 抽大麻最好的烟斗是哪种？
 
-> 原文:[https://life hacker . com/whats-the-best-kind of-smoking-weed-1834047702](https://lifehacker.com/whats-the-best-kind-of-pipe-for-smoking-weed-1834047702)
+> 原文：<https://lifehacker.com/whats-the-best-kind-of-pipe-for-smoking-weed-1834047702>
 
 随着每次选举，合法的、娱乐性的大麻将进入更多的州，这意味着更多的人可能想尝试它。为了帮助这些杂草新手(包括许多 Lifehacker 的工作人员)，我们涵盖了初学者的所有基础知识。
 

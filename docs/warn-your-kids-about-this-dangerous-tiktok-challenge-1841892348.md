@@ -1,6 +1,6 @@
 # 警告你的孩子这个危险的抖音挑战
 
-> 原文:[https://life hacker . com/warn-your-kids-about-this-dangerous-tiktok-challenge-1841892348](https://lifehacker.com/warn-your-kids-about-this-dangerous-tiktok-challenge-1841892348)
+> 原文：<https://lifehacker.com/warn-your-kids-about-this-dangerous-tiktok-challenge-1841892348>
 
 不言而喻，所谓的“颅骨粉碎者挑战”不是一个好主意，但显然这些天没有什么是不言而喻的。因此，如果你有十几岁或十几岁的孩子，这是值得一提的，这样他们就不会无意中在可能导致脑震荡或更糟的暴力摔倒中被撞倒在地。
 

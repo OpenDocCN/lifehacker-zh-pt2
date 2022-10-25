@@ -1,6 +1,6 @@
 # 卡蒂卷砂锅是辛辣的杰作
 
-> 原文:[https://life hacker . com/the-kati-roll-砂锅-is-a-spiral-masterpiece-1836647796](https://lifehacker.com/the-kati-roll-casserole-is-a-spicy-masterpiece-1836647796)
+> 原文：<https://lifehacker.com/the-kati-roll-casserole-is-a-spicy-masterpiece-1836647796>
 
 有时，印度食物会与其他文化发生冲突。就像我把一片美国奶酪放在 poori 上，用微波炉加热成美味的多元文化小吃(我童年的主食)，或者吃剩下的外卖 biryani，旁边放着牧场调料，因为我用完了 raita，缺乏自己制作的食材和意愿。(我这样做过几次，但这是我第一次承认。)
 

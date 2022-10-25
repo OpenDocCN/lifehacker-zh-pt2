@@ -1,6 +1,6 @@
 # “怀孕六周”的真正含义是什么
 
-> 原文:[https://life hacker . com/what-six-weaking-really-means-1834617533](https://lifehacker.com/what-six-weeks-pregnant-really-means-1834617533)
+> 原文：<https://lifehacker.com/what-six-weeks-pregnant-really-means-1834617533>
 
 在最高法院 [决定](https://www.nytimes.com/2021/09/01/us/supreme-court-texas-abortion.html) 允许 [得克萨斯州禁止怀孕约六周](https://www.texastribune.org/2021/05/18/texas-heartbeat-bill-abortions-law/) 后堕胎之后，一些人——我不指名道姓——表示他们不知道怀孕周是如何计算的。乡亲们，在第*天你们做爱来生孩子*，你们被认为已经怀孕两周了。直到四到五周，你都不可能知道自己怀孕了。
 

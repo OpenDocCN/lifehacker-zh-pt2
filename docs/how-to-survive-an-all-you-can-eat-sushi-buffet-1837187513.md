@@ -1,6 +1,6 @@
 # 如何在吃到饱的寿司自助餐中生存
 
-> 原文:[https://the take out . com/how-to-survive-an-all-you-can-eat-sushi-buffet-1837187513](https://thetakeout.com/how-to-survive-an-all-you-can-eat-sushi-buffet-1837187513)
+> 原文：<https://thetakeout.com/how-to-survive-an-all-you-can-eat-sushi-buffet-1837187513>
 
 啊，寿司——最精致、最放纵的晚餐(或者，如果你是一个有着死亡愿望的绝对夜魔侠，这是从沃尔格林的帽子里最危险的东西)。自 80 年代以来，寿司店一直是美国的主食；诞生于战后的文化交流和随后的寿司店在洛杉矶 的扩散。现在，你可以在任何一个大城市扔一个 [geta](https://en.wikipedia.org/wiki/Geta_(footwear)) 去十几个有着高质量食物甚至更高价位的时尚寿司店。
 

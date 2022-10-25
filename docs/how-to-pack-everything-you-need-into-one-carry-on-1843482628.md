@@ -1,6 +1,6 @@
 # 如何把你需要的所有东西装进一个手提箱
 
-> 原文:[https://life hacker . com/how-to-pack-everything-you-need-one-carry-on-1843482628](https://lifehacker.com/how-to-pack-everything-you-need-into-one-carry-on-1843482628)
+> 原文：<https://lifehacker.com/how-to-pack-everything-you-need-into-one-carry-on-1843482628>
 
 随着行李成本的增加，行李丢失或损坏的风险，以及托运行李意味着行李会接触许多表面的令人不快的事实(*细菌*表面 *)* ，坚持随身携带是明智的。
 

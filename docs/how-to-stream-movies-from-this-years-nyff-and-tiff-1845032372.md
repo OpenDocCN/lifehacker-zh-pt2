@@ -1,6 +1,6 @@
 # 如何从今年的 NYFF 和 TIFF 流电影
 
-> 原文:[https://life hacker . com/how-to-stream-movies-from this-years-nyff-and-tiff-1845032372](https://lifehacker.com/how-to-stream-movies-from-this-years-nyff-and-tiff-1845032372)
+> 原文：<https://lifehacker.com/how-to-stream-movies-from-this-years-nyff-and-tiff-1845032372>
 
 在经历了六个月的虚拟工作、学校、快乐时光、毕业典礼、婚礼、葬礼和“假期”后，我们中的许多人都渴望体验甚至是 COVID 之前生活中最平凡的部分。因为航班延误，花三个小时被困在无线网络不稳定的机场候机楼，吃着价格过高的湿漉漉的三明治？当然，为什么不呢！在排队等候使用一个总被水覆盖并且没有卫生纸的简陋的浴室时交朋友？是的，请！
 

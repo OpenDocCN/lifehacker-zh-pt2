@@ -1,6 +1,6 @@
 # 不要让你的孩子选择餐馆
 
-> 原文:[https://life hacker . com/stop-let-your-kids-pick-the-restaurant-1841448925](https://lifehacker.com/stop-letting-your-kids-pick-the-restaurant-1841448925)
+> 原文：<https://lifehacker.com/stop-letting-your-kids-pick-the-restaurant-1841448925>
 
 当我不得不告诉我的孩子们，我认为墨西哥卷饼“还可以”时，这很难我女儿掉了她的叉子。我儿子吐了一口唾沫。她真的很震惊。他在故意夸大其词。我很欣赏这两个回答。但是我和妻子最近决定，是时候让我们的孩子不再决定我们在哪里吃饭了。
 

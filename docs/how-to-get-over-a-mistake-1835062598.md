@@ -1,6 +1,6 @@
 # 如何克服错误
 
-> 原文:[https://lifehacker.com/how-to-get-over-a-mistake-1835062598](https://lifehacker.com/how-to-get-over-a-mistake-1835062598)
+> 原文：<https://lifehacker.com/how-to-get-over-a-mistake-1835062598>
 
 我痴迷于一切，但主要是社交失礼。我说错话了吗？我是不是太安静了？我是不是应该拿着一盘食物躲在壁橱里，直到派对上的所有人都离开？
 

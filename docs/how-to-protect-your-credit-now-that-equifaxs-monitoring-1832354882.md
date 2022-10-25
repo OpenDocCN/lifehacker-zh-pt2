@@ -1,6 +1,6 @@
 # 既然 Equifax 的监控服务已经结束，如何保护您的信用
 
-> 原文:[https://life hacker . com/how-to-protect-your-credit-now-the-equifaxs-monitoring-1832354882](https://lifehacker.com/how-to-protect-your-credit-now-that-equifaxs-monitoring-1832354882)
+> 原文：<https://lifehacker.com/how-to-protect-your-credit-now-that-equifaxs-monitoring-1832354882>
 
 《消费者报告》写道，如果你在征信机构 2017 年大规模数据入侵后注册了 Equifax 的 TrustedID Premier，你需要找到一种新的信用监测服务。
 

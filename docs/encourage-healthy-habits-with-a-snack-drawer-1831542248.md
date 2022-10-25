@@ -1,6 +1,6 @@
 # 用零食抽屉鼓励健康习惯
 
-> 原文:[https://life hacker . com/comfort-healthy-habits-with-a-零食抽屉-1831542248](https://lifehacker.com/encourage-healthy-habits-with-a-snack-drawer-1831542248)
+> 原文：<https://lifehacker.com/encourage-healthy-habits-with-a-snack-drawer-1831542248>
 
 每天放学后，我家都是同样的场景:我儿子要零食，我提出一个想法(通常从他昨天或前天选择的开始)，他很快拒绝了。几分钟后，在我尝试了所有其他可能性之后，他可能会回来，但他从来不会对第一个建议说“是”。他坚持到知道他所有的选择为止。
 

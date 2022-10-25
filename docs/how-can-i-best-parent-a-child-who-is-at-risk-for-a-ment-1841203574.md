@@ -1,6 +1,6 @@
 # 我怎样才能最好地养育一个有精神健康障碍风险的孩子？
 
-> 原文:[https://life hacker . com/how-can-I-best-parent-a-child-who-in-a-ment-1841203574](https://lifehacker.com/how-can-i-best-parent-a-child-who-is-at-risk-for-a-ment-1841203574)
+> 原文：<https://lifehacker.com/how-can-i-best-parent-a-child-who-is-at-risk-for-a-ment-1841203574>
 
 读者最常让我写的话题之一是焦虑和心理健康——我们自己的和我们孩子的。本周的家长咨询问题反映了家长们普遍关心的“如果”:
 

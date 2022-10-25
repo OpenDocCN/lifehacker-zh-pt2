@@ -1,6 +1,6 @@
 # 2019 年 8 月网飞有什么来往
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-2019-8-1836662530](https://lifehacker.com/whats-coming-and-going-from-netflix-in-august-2019-1836662530)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-in-august-2019-1836662530>
 
 GLOW 回来了，他们在拉斯维加斯，让我们希望这个节目继续是一个温暖人心的闹剧，没有真正可怕的事情发生。亲爱的白人、*德里女孩*、*希瑞*和*猎头*也回来了。黑暗水晶*又有了新的前传*。以下是八月份网飞还会发生什么。
 

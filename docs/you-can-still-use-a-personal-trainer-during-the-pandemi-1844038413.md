@@ -1,6 +1,6 @@
 # 在疫情期间，你仍然可以使用私人教练
 
-> 原文:[https://life hacker . com/you-can-still-use-a personal-trainer-in-the-pandemi-1844038413](https://lifehacker.com/you-can-still-use-a-personal-trainer-during-the-pandemi-1844038413)
+> 原文：<https://lifehacker.com/you-can-still-use-a-personal-trainer-during-the-pandemi-1844038413>
 
 考虑到物理距离的需要，我们中的许多人还需要一段时间才能对面对面的个人训练感到舒服。但是，鉴于疫情的生活让我们中的许多人比平时更容易久坐，建立一个健身计划就更加重要了——在线个人训练课程可能就是实现这一目标的方法。如果你正在考虑冒险，这里有一些你应该考虑的因素。
 

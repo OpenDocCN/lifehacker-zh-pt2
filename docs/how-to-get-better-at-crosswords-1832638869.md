@@ -1,6 +1,6 @@
 # 如何更好地玩填字游戏
 
-> 原文:[https://life hacker . com/how-to-get-better-at-cross words-1832638869](https://lifehacker.com/how-to-get-better-at-crosswords-1832638869)
+> 原文：<https://lifehacker.com/how-to-get-better-at-crosswords-1832638869>
 
 出于某种原因，许多人认为解决纵横字谜的能力是少数人与生俱来的天赋。这与事实相去甚远。纵横字谜不是对你的词汇或智力的一种不可改变的测试——它们是一种任何人都可以发展的可学习的技能。
 

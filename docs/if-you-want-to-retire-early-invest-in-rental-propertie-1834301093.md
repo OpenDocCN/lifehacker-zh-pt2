@@ -1,6 +1,6 @@
 # 如果你想早点退休，投资出租房产
 
-> 原文:[https://life hacker . com/if-you-want-to-retire-early-invest-in-rental-property-1834301093](https://lifehacker.com/if-you-want-to-retire-early-invest-in-rental-propertie-1834301093)
+> 原文：<https://lifehacker.com/if-you-want-to-retire-early-invest-in-rental-propertie-1834301093>
 
 如果你追求财务独立和提前退休，你可能听说过 4%规则:当你计算你的投资组合是否能支付你的生活费用时，假设 4%的提款率。
 

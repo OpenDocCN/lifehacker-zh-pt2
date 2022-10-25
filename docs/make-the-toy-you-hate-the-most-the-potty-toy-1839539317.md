@@ -1,6 +1,6 @@
 # 让你最讨厌的玩具成为“便盆玩具”
 
-> 原文:[https://life hacker . com/make-the-toy-you-hate-the-potty-toy-1839539317](https://lifehacker.com/make-the-toy-you-hate-the-most-the-potty-toy-1839539317)
+> 原文：<https://lifehacker.com/make-the-toy-you-hate-the-most-the-potty-toy-1839539317>
 
 不可避免的是，你最讨厌的玩具也是你孩子最喜欢的玩具。你讨厌它的所有原因——它是塑料的，只能以很小的音量重复播放某种音乐——也是他们喜欢它的原因。你不能因为他们太喜欢它就把它拿走，但是你*可以*利用它的诱惑力，尤其是如果你正在训练如厕:让成为“如厕玩具”
 

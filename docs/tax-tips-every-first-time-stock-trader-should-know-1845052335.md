@@ -1,6 +1,6 @@
 # 每个首次炒股的人都应该知道的税务提示
 
-> 原文:[https://life hacker . com/tax-tips-every-first-time-stock-trader-should-know-1845052335](https://lifehacker.com/tax-tips-every-first-time-stock-trader-should-know-1845052335)
+> 原文：<https://lifehacker.com/tax-tips-every-first-time-stock-trader-should-know-1845052335>
 
 随着免佣金的经纪公司和 [股票交易应用](https://twocents.lifehacker.com/should-you-delete-your-stock-trading-app-1844748240)——就像流行的罗宾汉平台——继续增长，数百万新的股票交易者可能没有为明年的税收做好准备。
 

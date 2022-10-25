@@ -1,6 +1,6 @@
 # 根据鳄梨的形状选择它
 
-> 原文:[https://life hacker . com/choose-your-avocado-based-on-its-shape-1833154474](https://lifehacker.com/choose-your-avocado-based-on-its-shape-1833154474)
+> 原文：<https://lifehacker.com/choose-your-avocado-based-on-its-shape-1833154474>
 
 作为一个千禧一代，我被鳄梨毁了经济。我忍不住把它们涂在每一个可以吃的表面上——而且它们太贵了！这就是为什么这个关于如何让你的钱得到最多鳄梨肉的小建议如此令人兴奋。
 

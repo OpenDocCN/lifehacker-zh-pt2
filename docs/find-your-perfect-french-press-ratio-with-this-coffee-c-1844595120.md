@@ -1,6 +1,6 @@
 # 用这个咖啡计算器找到你的完美的法式压榨比
 
-> 原文:[https://life hacker . com/find-your-perfect-French-press-ratio-with the-coffee-c-1844595120](https://lifehacker.com/find-your-perfect-french-press-ratio-with-this-coffee-c-1844595120)
+> 原文：<https://lifehacker.com/find-your-perfect-french-press-ratio-with-this-coffee-c-1844595120>
 
 如果你试图用 Keurig 豆荚或自动咖啡机中的几勺咖啡渣之外的方法来调制你的早茶，那么找出咖啡豆与水的准确比例可能是一个挑战。这就是咖啡计算器派上用场的地方，比如来自 Handground 的 [。
 

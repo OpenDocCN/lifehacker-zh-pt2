@@ -1,6 +1,6 @@
 # 通过安排时间和你的伴侣吵架，更容易解决冲突
 
-> 原文:[https://life hacker . com/resolve-conflict-easy-by-scheduling-time-to-fight-wit-1829735303](https://lifehacker.com/resolve-conflict-easier-by-scheduling-time-to-fight-wit-1829735303)
+> 原文：<https://lifehacker.com/resolve-conflict-easier-by-scheduling-time-to-fight-wit-1829735303>
 
 没有人想吵架(或者至少没有人是你想交往的对象)，但是吵架是会发生的，而且吵架是任何关系中健康的一部分。虽然一直吵架不是一件好事，但不吵架也不是一件好事。当你和你的伴侣在影响你们关系的重要问题上进行健康的建设性的争吵时，它甚至可以让你们走得更近，而不是更远。
 

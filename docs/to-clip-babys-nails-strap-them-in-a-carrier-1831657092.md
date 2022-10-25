@@ -1,6 +1,6 @@
 # 要修剪婴儿的指甲，把它们绑在一个托架上
 
-> 原文:[https://life hacker . com/to-clip-babys-nails-strap-them-in-a-carrier-1831657092](https://lifehacker.com/to-clip-babys-nails-strap-them-in-a-carrier-1831657092)
+> 原文：<https://lifehacker.com/to-clip-babys-nails-strap-them-in-a-carrier-1831657092>
 
 如果你在为剪孩子的指甲而挣扎，你并不孤单。这是一项必要的、经常性的任务，令许多父母害怕。我们第一次在控制我们的小女儿锋利的小爪子上失败得如此悲惨，以至于我手里拿着剪刀出现在她一个月大的检查上，请求护士和儿科医生帮助我；他们拒绝了。
 

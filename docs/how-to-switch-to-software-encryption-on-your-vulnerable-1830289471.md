@@ -1,6 +1,6 @@
 # 如何在易受攻击的固态硬盘上切换到软件加密
 
-> 原文:[https://life hacker . com/how-to-switch-to-software-encryption-on-your-vulnerable-1830289471](https://lifehacker.com/how-to-switch-to-software-encryption-on-your-vulnerable-1830289471)
+> 原文：<https://lifehacker.com/how-to-switch-to-software-encryption-on-your-vulnerable-1830289471>
 
 荷兰拉德布大学的研究人员发现了几个使用基于硬件的加密的固态硬盘的严重安全问题——这些漏洞允许攻击者在不需要解密密码的情况下访问硬盘的“加密”内容。
 

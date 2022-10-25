@@ -1,6 +1,6 @@
 # 买一套旧房子可能不会帮你省钱
 
-> 原文:[https://life hacker . com/buying-a-fixer-upper-home-possible-won-save-you money-1835694441](https://lifehacker.com/buying-a-fixer-upper-home-probably-wont-save-you-money-1835694441)
+> 原文：<https://lifehacker.com/buying-a-fixer-upper-home-probably-wont-save-you-money-1835694441>
 
 如果你因为想“省钱”而一直在考虑买一套房子，那就要小心了。
 

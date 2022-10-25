@@ -1,6 +1,6 @@
 # 如何正确清洗你的洗碗机
 
-> 原文:[https://life hacker . com/how-to-right-clean-your-洗碗机-1844633991](https://lifehacker.com/how-to-properly-clean-your-dishwasher-1844633991)
+> 原文：<https://lifehacker.com/how-to-properly-clean-your-dishwasher-1844633991>
 
 最近有很多脏盘子，每次洗碗周期，你的洗碗机都会变得更脏。如果你的盘子和银器没有洗干净，你的杯子有雾，或者你注意到洗碗机里有一股难闻的气味，是时候深度清洗了。
 

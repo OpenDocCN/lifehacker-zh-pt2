@@ -1,6 +1,6 @@
 # 更好的营养标签终于出现了
 
-> 原文:[https://life hacker . com/better-nutrition-labels-are-finally-here-1841644900](https://lifehacker.com/better-nutrition-labels-are-finally-here-1841644900)
+> 原文：<https://lifehacker.com/better-nutrition-labels-are-finally-here-1841644900>
 
 在我们第一次告诉你 将近四年后，营养标签终于改变了。卡路里更突出，“添加糖”是在“来自脂肪的卡路里”是在外，在许多情况下，服务的大小是整个包。欢迎来到未来。
 

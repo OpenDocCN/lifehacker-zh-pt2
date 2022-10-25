@@ -1,6 +1,6 @@
 # 有了合适的餐具室主食，任何人都可以组装一顿快捷的工作日晚餐
 
-> 原文:[https://the take out . com/stock-kitchen-pantry-cabinets-what-staples-to-buy-weekn-1841137420](https://thetakeout.com/stock-kitchen-pantry-cabinets-what-staples-to-buy-weekn-1841137420)
+> 原文：<https://thetakeout.com/stock-kitchen-pantry-cabinets-what-staples-to-buy-weekn-1841137420>
 
 [***组装***](https://thetakeout.com/meals-premade-from-leftovers-vs-cooking-from-scratch-ta-1841067041) *是一种简单而富有创意的烹饪方法，它从杂货店、餐馆或外卖店获取准备好的食物，并将其转化为一系列美味的食物。我们将在接下来的几周向读者展示如何做更多的工作。*
 

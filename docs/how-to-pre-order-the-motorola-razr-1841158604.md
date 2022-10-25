@@ -1,6 +1,6 @@
 # 如何预购摩托罗拉 Razr
 
-> 原文:[https://life hacker . com/how-to-pre-order-the-Motorola-razr-1841158604](https://lifehacker.com/how-to-pre-order-the-motorola-razr-1841158604)
+> 原文：<https://lifehacker.com/how-to-pre-order-the-motorola-razr-1841158604>
 
 我们已经听说了复活的摩托罗拉 Razr 手机很久了，但我们终于在几天后正式开始预订:1 月 26 日。我们会告诉你在哪里预购，但首先，让我们快速回顾一下手机的规格。
 

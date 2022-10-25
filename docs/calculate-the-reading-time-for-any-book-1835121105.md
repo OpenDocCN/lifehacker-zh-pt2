@@ -1,6 +1,6 @@
 # 计算任何一本书的阅读时间
 
-> 原文:[https://life hacker . com/calculate-the-reading-time for-any-book-1835121105](https://lifehacker.com/calculate-the-reading-time-for-any-book-1835121105)
+> 原文：<https://lifehacker.com/calculate-the-reading-time-for-any-book-1835121105>
 
 如果你试图 [读更多的书](https://lifehacker.com/how-to-read-more-books-without-stalling-out-1834902211) ，知道一本书会花你多长时间是很有帮助的——不是多少天，而是实际阅读的时间。站点 [阅读时长](https://www.readinglength.com/) 告诉你阅读任何一本特定的书需要多长时间。输入一个标题，如果亚马逊上有，阅读长度会找到它。(不要太快按 enter 键，否则可能会得到错误的结果；相反，等待下拉菜单出现，然后单击它。)
 

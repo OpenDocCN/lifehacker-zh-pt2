@@ -1,6 +1,6 @@
 # 如何处理您的奖励旅游计划
 
-> 原文:[https://life hacker . com/what-to-do-about-your ' s rewards-travel-plans-1842378654](https://lifehacker.com/what-to-do-about-your-rewards-travel-plans-1842378654)
+> 原文：<https://lifehacker.com/what-to-do-about-your-rewards-travel-plans-1842378654>
 
 虽然大多数航空公司和酒店都宣布了由于冠状病毒如何更改或取消您的预订，但您可能想知道如何处理您通过奖励信用卡制定的旅行计划。如果您使用积分或里程进行预订，接下来会发生什么？
 

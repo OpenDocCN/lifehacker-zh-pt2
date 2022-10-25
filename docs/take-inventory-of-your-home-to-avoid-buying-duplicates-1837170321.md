@@ -1,6 +1,6 @@
 # 盘点你的家，避免重复购买
 
-> 原文:[https://life hacker . com/take-inventory-of-your-home-avoid-buying-duplicates-1837170321](https://lifehacker.com/take-inventory-of-your-home-to-avoid-buying-duplicates-1837170321)
+> 原文：<https://lifehacker.com/take-inventory-of-your-home-to-avoid-buying-duplicates-1837170321>
 
 你有没有做过这样的事情:你买了一包电池，拿出你需要的两节，把剩下的放在抽屉后面，然后忘记它们在那里？
 

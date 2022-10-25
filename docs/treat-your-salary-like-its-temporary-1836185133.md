@@ -1,6 +1,6 @@
 # 把你的薪水当成是暂时的
 
-> 原文:[https://life hacker . com/treat-your salary-like-its-temporary-1836185133](https://lifehacker.com/treat-your-salary-like-its-temporary-1836185133)
+> 原文：<https://lifehacker.com/treat-your-salary-like-its-temporary-1836185133>
 
 如果你最终得到了那份工作(或加薪)，很容易认为你不用再担心钱了。毕竟，你有稳定的收入。
 

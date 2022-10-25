@@ -1,6 +1,6 @@
 # 给你蹒跚学步的孩子买一张狗床
 
-> 原文:[https://life hacker . com/buy-your-lead-a-dog-bed-1831428095](https://lifehacker.com/buy-your-toddler-a-dog-bed-1831428095)
+> 原文：<https://lifehacker.com/buy-your-toddler-a-dog-bed-1831428095>
 
 “我有一个想法；告诉我它是不是一个坏的，”我们的 [后代脸书集团](https://www.facebook.com/groups/2018785615043946/) 的一位家长几周前发帖说。“我正在认真考虑给我蹒跚学步的孩子买一张小狗床。他喜欢抱着枕头，似乎喜欢有什么东西靠在他的背上。我真的认为他会喜欢在客厅里有自己的“沙发”。愚蠢还是天才？”
 

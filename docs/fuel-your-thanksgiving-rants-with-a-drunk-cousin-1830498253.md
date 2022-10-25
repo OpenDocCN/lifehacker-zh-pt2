@@ -1,6 +1,6 @@
 # 和一个喝醉的表兄一起为你的感恩节狂欢加油
 
-> 原文:[https://life hacker . com/fuel-your-thanksgiving-rants-with-a-drinked-cousin-1830498253](https://lifehacker.com/fuel-your-thanksgiving-rants-with-a-drunk-cousin-1830498253)
+> 原文：<https://lifehacker.com/fuel-your-thanksgiving-rants-with-a-drunk-cousin-1830498253>
 
 各位周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周，我们将制作一款鸡尾酒，为即将到来的周四你肯定会遇到的所有有趣的政治辩论火上浇油——我称之为“醉酒表弟”
 

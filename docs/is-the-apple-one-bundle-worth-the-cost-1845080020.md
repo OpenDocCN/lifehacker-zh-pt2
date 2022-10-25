@@ -1,6 +1,6 @@
 # Apple One 捆绑包是否物有所值？
 
-> 原文:[https://life hacker . com/is-the-apple-one-bundle-worth-the-cost-1845080020](https://lifehacker.com/is-the-apple-one-bundle-worth-the-cost-1845080020)
+> 原文：<https://lifehacker.com/is-the-apple-one-bundle-worth-the-cost-1845080020>
 
 期待已久的苹果服务包来了:Apple One。虽然为一些服务支付合理的费用在理论上听起来很划算，尤其是如果你已经是订户，记住以下建议总是好的。如果你买了一包，你可能会支付比你实际需要更多的钱。
 

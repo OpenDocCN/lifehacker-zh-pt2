@@ -1,6 +1,6 @@
 # 如何在 Android 上设置“访客模式”
 
-> 原文:[https://life hacker . com/how-to-set-up-guest-mode-on-your-Android-1835913254](https://lifehacker.com/how-to-set-up-guest-mode-on-your-android-1835913254)
+> 原文：<https://lifehacker.com/how-to-set-up-guest-mode-on-your-android-1835913254>
 
 [Lifehacker's Complete Guide to Android](https://androidos.kinja.com)) : title[![](../Images/e2dcc498f7314a475ad7b9879a9d5584.png)](https://androidos.kinja.com)[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)Don't get overwhelmed by Android's many (many!) settings and apps. Master your Android phone or tablet with our ample collection of guides, tips, and tricks.
 

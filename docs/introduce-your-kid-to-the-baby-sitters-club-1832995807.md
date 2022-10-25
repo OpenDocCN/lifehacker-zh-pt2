@@ -1,6 +1,6 @@
 # 把你的孩子介绍给保姆俱乐部
 
-> 原文:[https://life hacker . com/introduce-your-kid-to-the-baby-保姆俱乐部-1832995807](https://lifehacker.com/introduce-your-kid-to-the-baby-sitters-club-1832995807)
+> 原文：<https://lifehacker.com/introduce-your-kid-to-the-baby-sitters-club-1832995807>
 
 如果你一直在等待一个信号，是时候把你的孩子介绍给 [保姆俱乐部](https://www.amazon.com/s?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/introduce-your-kid-to-the-baby-sitters-club-1832995807&asc_source=&k=baby-sitters club book series&ref=nb_sb_noss_1&tag=kinjalifehackerlink-20) 了，网飞已经慷慨地决定满足你的要求。
 

@@ -1,6 +1,6 @@
 # 为什么神奇宝贝剑与盾会让你的 Roku 崩溃
 
-> 原文:[https://life hacker . com/why-pokemon-sword-shield-may-be-crashing-your-Roku-1839921456](https://lifehacker.com/why-pokemon-sword-shield-may-be-crashing-your-roku-1839921456)
+> 原文：<https://lifehacker.com/why-pokemon-sword-shield-may-be-crashing-your-roku-1839921456>
 
 就科技虫而言，这是一个非常奇怪的问题。新的*神奇宝贝剑*和*神奇宝贝盾*游戏导致一些 Roku 机顶盒和电视崩溃。*神奇宝贝* *剑*和*盾*只在任天堂 Switch 上玩，不应该有任何理由与 Roku 设备接口。(神奇宝贝的力量显然是无限的。)
 

@@ -1,6 +1,6 @@
 # 如何应对等待重要消息的压力
 
-> 原文:[https://life hacker . com/how-to-deal-the-stress of-waiting-for-important-ne-1834107968](https://lifehacker.com/how-to-deal-with-the-stress-of-waiting-for-important-ne-1834107968)
+> 原文：<https://lifehacker.com/how-to-deal-with-the-stress-of-waiting-for-important-ne-1834107968>
 
 是什么让等待接下来的工作面试、第一次约会后的短信，或者有可能让你的总统永远入罪的消息变得如此痛苦？
 

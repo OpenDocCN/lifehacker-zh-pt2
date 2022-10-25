@@ -1,6 +1,6 @@
 # 万一发生紧急情况，在游轮上带些什么
 
-> 原文:[https://life hacker . com/1841765078](https://lifehacker.com/what-to-take-on-a-cruise-in-case-of-emergency-1841765078)
+> 原文：<https://lifehacker.com/what-to-take-on-a-cruise-in-case-of-emergency-1841765078>
 
 在我人生的这个阶段，我已经参加了大约六次航行，其中至少两次包括了你可能称之为“紧急医疗情况”的内容。例如，在一次航行中，船只绕道前往最近的停靠港，让一名需要医疗服务但船上无法提供的乘客下车。如果我没记错的话，还有一次航行，涉及一架医疗后送直升机。
 

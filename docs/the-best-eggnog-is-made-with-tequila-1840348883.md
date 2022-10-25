@@ -1,6 +1,6 @@
 # 最好的蛋奶酒是用龙舌兰酒制成的
 
-> 原文:[https://life hacker . com/the-best-eggnog-is-make-with-tequila-1840348883](https://lifehacker.com/the-best-eggnog-is-made-with-tequila-1840348883)
+> 原文：<https://lifehacker.com/the-best-eggnog-is-made-with-tequila-1840348883>
 
 也许对“我不喜欢那个”最讨厌的回应是“你喜欢我的*”，但这正是当我告诉杰弗里·摩根塔勒 我讨厌蛋奶酒时他对我说的话。更讨厌？他是正确的。杰夫的诺格酒是唯一好的诺格酒，而且是用*龙舌兰酒*调制的。* 
 

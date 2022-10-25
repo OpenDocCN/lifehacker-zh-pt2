@@ -1,6 +1,6 @@
 # 用这些日常家居用品娱乐你的孩子
 
-> 原文:[https://life hacker . com/entertain-your ' s leaddle with this-the-daily-household-it-1829861977](https://lifehacker.com/entertain-your-toddler-with-these-everyday-household-it-1829861977)
+> 原文：<https://lifehacker.com/entertain-your-toddler-with-these-everyday-household-it-1829861977>
 
 这里有一个秘密:孩子们最喜欢的玩具在任何商店的货架上都找不到。相反，你需要用来刺激、吸引和耗尽你年轻后代的所有东西，可能已经藏在你的衣柜、厨柜或车库里了。一旦你开始在你的家周围挖掘(就像我和我丈夫做的那样，最近经常在早上 5 点)，你会发现有无穷无尽的新奇东西可以呈现给你的孩子，而不需要购物、包装或花一毛钱——至少直到他们开始乞求自己的手机。我家的一些获奖者:
 

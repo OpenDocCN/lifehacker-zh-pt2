@@ -1,6 +1,6 @@
 # 拥抱“Friluftsliv”——挪威的户外生活
 
-> 原文:[https://life hacker . com/embrace-friluftsliv-norways-open-air-living-1845051994](https://lifehacker.com/embrace-friluftsliv-norways-open-air-living-1845051994)
+> 原文：<https://lifehacker.com/embrace-friluftsliv-norways-open-air-living-1845051994>
 
 听着，我们会在疫情待很久。尽管我们希望一切都能在假期前恢复“正常”，但我们实际上需要做的是为冬天 做好准备。为了保持我们集体的理智，是时候拥抱一年四季、任何温度下的户外生活了。
 

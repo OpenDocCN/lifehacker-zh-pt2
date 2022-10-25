@@ -1,6 +1,6 @@
 # 如果你是第一响应者，如何获得免费的 T-Mobile 服务
 
-> 原文:[https://life hacker . com/how-to-get-free-t-mobile-service-if-you-a-first-respo-1843590856](https://lifehacker.com/how-to-get-free-t-mobile-service-if-youre-a-first-respo-1843590856)
+> 原文：<https://lifehacker.com/how-to-get-free-t-mobile-service-if-youre-a-first-respo-1843590856>
 
 T-Mobile 目前为急救人员提供未来 10 年免费移动服务的机会。
 

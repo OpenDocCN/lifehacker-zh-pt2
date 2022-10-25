@@ -1,6 +1,6 @@
 # 如何在 Spotify 上举办一场聆听派对
 
-> 原文:[https://life hacker . com/how-to-host-a-listening-party-on-Spotify-1844558727](https://lifehacker.com/how-to-host-a-listening-party-on-spotify-1844558727)
+> 原文：<https://lifehacker.com/how-to-host-a-listening-party-on-spotify-1844558727>
 
 当然，你和你的朋友可能会花时间在每个流媒体服务上检查每个人的队列。这很好，但是如果你没有心情去看电影呢？如果你只是想和你的朋友一起摇滚，同时保持社交距离呢？
 

@@ -1,6 +1,6 @@
 # 为什么“AMP”对您和您的电子邮件来说至关重要
 
-> 原文:[https://life hacker . com/why-amp-is-to-be-a-big-deal for-you-you-email-1833643910](https://lifehacker.com/why-amp-is-going-to-be-a-big-deal-for-you-and-your-emai-1833643910)
+> 原文：<https://lifehacker.com/why-amp-is-going-to-be-a-big-deal-for-you-and-your-emai-1833643910>
 
 自从 [谷歌宣布 AMP 支持](https://www.blog.google/products/g-suite/bringing-power-amp-gmail/) 将进入其电子邮件应用和网络客户端已经过去一年了，而的展示终于开始了。少数其他电子邮件提供商也加入了这项事业。)
 

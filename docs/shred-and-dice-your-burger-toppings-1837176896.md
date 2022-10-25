@@ -1,6 +1,6 @@
 # 将你的汉堡配料切成丝和丁
 
-> 原文:[https://life hacker . com/shred-and-dice-your burger-toppings-1837176896](https://lifehacker.com/shred-and-dice-your-burger-toppings-1837176896)
+> 原文：<https://lifehacker.com/shred-and-dice-your-burger-toppings-1837176896>
 
 我可能是一个邋遢的婊子，但我不是一个邋遢的食客，我绝对讨厌配料——无论是披萨还是汉堡——过早滑落。仅仅为了避免弄脏衬衫而放弃生菜或泡菜有点太珍贵了，但是你可以通过切丁和切碎你最喜欢的汉堡配件来大大降低滑倒的几率。
 

@@ -1,6 +1,6 @@
 # 使用 Windows 新闻栏在桌面上添加新闻栏
 
-> 原文:[https://life hacker . com/add-a-news-ticker-to-your-desktop with-the-windows-news-1842590000](https://lifehacker.com/add-a-news-ticker-to-your-desktop-with-the-windows-news-1842590000)
+> 原文：<https://lifehacker.com/add-a-news-ticker-to-your-desktop-with-the-windows-news-1842590000>
 
 跟上新闻很重要，但是除非你使用新闻聚合应用，否则不通过多个出版物的主页很难了解当天最重要的新闻。幸运的是，Windows 用户可以试用微软为 Windows 10 开发的新新闻栏应用，该应用会不断更新主要在线出版物的最新标题。
 

@@ -1,6 +1,6 @@
 # 如何在提前退休后重回正轨
 
-> 原文:[https://life hacker . com/how-to-get-back-on-track-after-a-early retire-with-1840001718](https://lifehacker.com/how-to-get-back-on-track-after-an-early-retirement-with-1840001718)
+> 原文：<https://lifehacker.com/how-to-get-back-on-track-after-an-early-retirement-with-1840001718>
 
 对自己为退休存了多少钱(或没存多少钱)感到有点内疚？也许在你的黄金岁月到来之前，你已经从你的退休账户中取出了钱。你不是唯一一个做出这种举动的人。
 

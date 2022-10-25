@@ -1,6 +1,6 @@
 # 用悲伤枯萎的香草给你的蛋黄酱调味
 
-> 原文:[https://life hacker . com/flavor-your-mayo-with-sad-wilted-herbers-1844468262](https://lifehacker.com/flavor-your-mayo-with-sad-wilted-herbs-1844468262)
+> 原文：<https://lifehacker.com/flavor-your-mayo-with-sad-wilted-herbs-1844468262>
 
 我的爱好之一是买了太多的草药，然后看着它们在冰箱里枯萎、脱水或变成糊状，这取决于我(错误地)储存它们的方式。把我的芫荽叶放在一罐水里会延长它的寿命吗？是的。我会这么做吗？你知道我不是。(在我又小又笨的冰箱里，根本没有足够的空间放高个子的东西。)
 

@@ -1,6 +1,6 @@
 # 给自己找个假男助理
 
-> 原文:[https://life hacker . com/get-yourself-a-fake-male-assistant-1844558283](https://lifehacker.com/get-yourself-a-fake-male-assistant-1844558283)
+> 原文：<https://lifehacker.com/get-yourself-a-fake-male-assistant-1844558283>
 
 大多数读到这篇文章的女性可能在她们职业生涯的某个阶段(也可能在她们的日常生活中)被称为“难相处”、“专横”或“不可理喻”。当我们做一些完全失控的事情时，比如，哦，以任何方式维护自己——这是男人在社会上被限制和期望去做的事情，这种情况就会发生。对此，有一个人(确切地说，是作家贝丝·卡尔布 的朋友)想出了一个变通办法:她用一个男人的名字创建了一个电子邮件账户，充当她的助手。
 

@@ -1,6 +1,6 @@
 # 作为自由职业者，如何为经济衰退做准备
 
-> 原文:[https://life hacker . com/how-to-prepare for-a-recession-as-a-freelancer-1831103776](https://lifehacker.com/how-to-prepare-for-a-recession-as-a-freelancer-1831103776)
+> 原文：<https://lifehacker.com/how-to-prepare-for-a-recession-as-a-freelancer-1831103776>
 
 对于自由职业者和全职工作各自的好处，有很多争论。似乎每年都有越来越多的自由职业者，越来越少的人可以选择。无论如何，自由职业的一个显著缺点是明显缺乏稳定性。
 

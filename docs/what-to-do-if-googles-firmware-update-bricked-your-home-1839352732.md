@@ -1,6 +1,6 @@
 # 如果谷歌的固件更新阻塞了你的家庭扬声器，该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-if-Google-firmware-update-bricked-your-home-1839352732](https://lifehacker.com/what-to-do-if-googles-firmware-update-bricked-your-home-1839352732)
+> 原文：<https://lifehacker.com/what-to-do-if-googles-firmware-update-bricked-your-home-1839352732>
 
 根据众多报道，最近的固件更新——当然是自动的——已经杀死了许多 Google Home 和 Google Home Mini 扬声器。在固件更新下降之前，没有办法知道你的*是否会受到影响(应该已经受到影响，因为这些报告大约从 9 月份就开始了)。* 
 

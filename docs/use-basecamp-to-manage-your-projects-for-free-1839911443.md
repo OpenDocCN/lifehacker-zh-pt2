@@ -1,6 +1,6 @@
 # 使用 Basecamp 个人版免费管理您的项目
 
-> 原文:[https://life hacker . com/use-base camp-to-manage-your-projects-for-free-1839911443](https://lifehacker.com/use-basecamp-to-manage-your-projects-for-free-1839911443)
+> 原文：<https://lifehacker.com/use-basecamp-to-manage-your-projects-for-free-1839911443>
 
 在 Slack 和 Trello 之前，我工作的在线新闻编辑室使用 Basecamp 和 Campfire 来组织项目。然而，当涉及到个人项目时，base camp 99 美元/月的价格标签使它成为一个禁忌。那是直到现在。本周，该公司推出了一个免费层，为您提供许多与传统 Basecamp 相同的功能，而无需支付昂贵的月费。
 

@@ -1,6 +1,6 @@
 # 这是使用免费 Android VPN 是个糟糕主意的另一个原因
 
-> 原文:[https://life hacker . com/heres-another-reason-using-a-free-Android-VPN-is-a-terr-1842793803](https://lifehacker.com/heres-another-reason-using-a-free-android-vpn-is-a-terr-1842793803)
+> 原文：<https://lifehacker.com/heres-another-reason-using-a-free-android-vpn-is-a-terr-1842793803>
 
 没有什么伟大的免费 VPN。或者说，你应该相信的免费 VPN 只有*一个*，那就是你自己设置的那个。否则，任何向你承诺免费和安全的 VPN 服务的应用程序要么是在跟踪你在做什么，向广告商发送你的活动信息，要么是在安全方面投入很少甚至没有投入。
 

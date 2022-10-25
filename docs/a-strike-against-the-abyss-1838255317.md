@@ -1,6 +1,6 @@
 # a strike against the abyss 1838255317
 
-> 原文:[https://jezebel.com/a-strike-against-the-abyss-1838255317](https://jezebel.com/a-strike-against-the-abyss-1838255317)
+> 原文：<https://jezebel.com/a-strike-against-the-abyss-1838255317>
 
 2019 年 9 月 20 日星期五，150 个国家发生了 3000 多次气候袭击。在伦敦，工会会员和高中生一起游行。在孟买，抗议学生的 [被雨水淋透](https://twitter.com/fffmumbai1/status/1174939429498023937) 。在基里巴斯，这可能是第一个被上升的海平面吞噬的国家之一，学生们 [高呼](https://twitter.com/350Pacific/status/1174849318718558215):*我们不是在下沉，我们是在战斗。在纽约市，面对来自学生们越来越大的压力，教育委员会同意不处罚那些逃课参加罢工的人。* 
 

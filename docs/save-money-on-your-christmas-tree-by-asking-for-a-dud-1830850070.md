@@ -1,6 +1,6 @@
 # 通过要一个哑弹来为你的圣诞树省钱
 
-> 原文:[https://life hacker . com/save-money-on-your ' s tree-asked-1830850070](https://lifehacker.com/save-money-on-your-christmas-tree-by-asking-for-a-dud-1830850070)
+> 原文：<https://lifehacker.com/save-money-on-your-christmas-tree-by-asking-for-a-dud-1830850070>
 
 圣诞树很棒，很舒适，很喜庆，但也很贵，在一年中的这个时候，我们大多数人已经在努力避免超出预算。
 

@@ -1,6 +1,6 @@
 # 将剩余的外币放在星巴克礼品卡上
 
-> 原文:[https://life hacker . com/put-left-外币-on-a-Starbucks-gift-card-1833095163](https://lifehacker.com/put-leftover-foreign-currency-on-a-starbucks-gift-card-1833095163)
+> 原文：<https://lifehacker.com/put-leftover-foreign-currency-on-a-starbucks-gift-card-1833095163>
 
 我的朋友们，像旧时的警长一样在正午时分匆匆穿过机场——口袋里的硬币叮当作响——的日子已经结束了。
 

@@ -1,6 +1,6 @@
 # 哪些调味品需要冷藏？
 
-> 原文:[https://the take out . com/which-调味品-需要冷藏-1832206308](https://thetakeout.com/which-condiments-need-to-be-refrigerated-1832206308)
+> 原文：<https://thetakeout.com/which-condiments-need-to-be-refrigerated-1832206308>
 
 玛丽·近藤整理我的厨房 时最棘手的一件事是在我的厨房里的许多瓶瓶罐罐上找到所有的保质期和安全警告。他们不会让你轻松的。我终于发现了一条信息，上面写着“查看标签上的有效期”，而我实际上是在*盯着标签。*什么？在哪里？
 

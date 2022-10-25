@@ -1,6 +1,6 @@
 # 你孩子的学校可能正在收集大量关于他们的数据
 
-> 原文:[https://life hacker . com/your-kids-school-on-1840235258](https://lifehacker.com/your-kids-school-is-probably-collecting-tons-of-data-on-1840235258)
+> 原文：<https://lifehacker.com/your-kids-school-is-probably-collecting-tons-of-data-on-1840235258>
 
 我们生活在一个网络欺凌、自残、自杀和校园枪击都是家长和教育工作者需要担心的事情的时代。随着技术在课堂上变得越来越普遍，一个显而易见的解决方案诞生了——监控我们的孩子在搜索、阅读、观看和写作什么，以寻找危险信号。
 

@@ -1,6 +1,6 @@
 # 如何使用谷歌 Pixel 的新“规则”来自动化你嘈杂的 Android
 
-> 原文:[https://life hacker . com/how-to-use-Google-pixels-new-rules-to-automate-your-noi-1842034522](https://lifehacker.com/how-to-use-google-pixels-new-rules-to-automate-your-noi-1842034522)
+> 原文：<https://lifehacker.com/how-to-use-google-pixels-new-rules-to-automate-your-noi-1842034522>
 
 谷歌 Pixel 用户将发现一个新的 [【规则】功能从今天](https://www.blog.google/products/pixel/more-pixel-features-dropping) 开始添加到他们的设备中。规则类似于 [iOS 快捷键](https://lifehacker.com/try-out-iphone-automation-with-this-list-of-150-ios-sh-1833153395) ，允许你在特定位置时创建自动设置更改的开关——尽管相比之下，Android 规则更多地局限于快捷键。目前，您只能设置规则:
 

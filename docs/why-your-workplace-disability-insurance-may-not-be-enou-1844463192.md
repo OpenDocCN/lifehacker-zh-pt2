@@ -1,6 +1,6 @@
 # 为什么你的工作场所伤残保险可能不够
 
-> 原文:[https://life hacker . com/why-your-workplace-disability-insurance-may-not-enou-1844463192](https://lifehacker.com/why-your-workplace-disability-insurance-may-not-be-enou-1844463192)
+> 原文：<https://lifehacker.com/why-your-workplace-disability-insurance-may-not-be-enou-1844463192>
 
 当你申请员工福利时，你可能忽略了残疾保险这一部分。如果你身体健康，很难想象不能工作——即使是很短的一段时间。但是残疾是可能发生的，你的工作场所覆盖面可能不够。
 

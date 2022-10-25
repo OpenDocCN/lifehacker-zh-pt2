@@ -1,6 +1,6 @@
 # 东京如何黑掉它的街道和地铁
 
-> 原文:[https://life hacker . com/how-Tokyo-hacks-its-streets-and-subway-1833554510](https://lifehacker.com/how-tokyo-hacks-its-streets-and-subways-1833554510)
+> 原文：<https://lifehacker.com/how-tokyo-hacks-its-streets-and-subways-1833554510>
 
 纽约实际上是一个很适合漫步的城市——纽约非常安全，对行人友好，周围有公共公园和滨水区(T2)。 但是当 Lifehacker 派了一个团队去东京找当地的黑客时，该死的是我嫉妒城市规划。东京有许多让人容易导航和愉快漫步的地方。
 

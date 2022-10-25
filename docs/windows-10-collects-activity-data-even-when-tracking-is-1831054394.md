@@ -1,6 +1,6 @@
 # Windows 10 即使在禁用跟踪的情况下也会收集活动数据，但您可以阻止它[更新]
 
-> 原文:[https://life hacker . com/windows-10-collects-activity-data-even-when-tracking-is-1831054394](https://lifehacker.com/windows-10-collects-activity-data-even-when-tracking-is-1831054394)
+> 原文：<https://lifehacker.com/windows-10-collects-activity-data-even-when-tracking-is-1831054394>
 
 又是一天，另一家科技公司对其隐私做法不诚实。这一次是微软，在它发现 [Windows 10 继续跟踪用户的活动](https://www.ghacks.net/2018/12/12/windows-10-activity-may-be-recorded-even-if-you-disable-it/) 后，即使他们在 Windows 10 设置中禁用了活动跟踪选项。
 

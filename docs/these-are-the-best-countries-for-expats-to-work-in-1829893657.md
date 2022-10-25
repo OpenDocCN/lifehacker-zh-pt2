@@ -1,6 +1,6 @@
 # 这些是外国人工作的最佳国家
 
-> 原文:[https://life hacker . com/1829893657](https://lifehacker.com/these-are-the-best-countries-for-expats-to-work-in-1829893657)
+> 原文：<https://lifehacker.com/these-are-the-best-countries-for-expats-to-work-in-1829893657>
 
 如果你正在考虑去另一个国家工作，有些目的地会比其他地方更好。汇丰银行最近进行了年度外派员工调查，这是一项全球性调查，调查了 163 个不同国家的 22，318 名外派员工。当根据经济、经验和家庭生活对国家进行比较时，这组国家中最大的赢家是新加坡——47%的受访者说他们赚了更多的钱，并发现他们的健康和幸福都得到了改善——T2 在这个国家得到了改善。
 

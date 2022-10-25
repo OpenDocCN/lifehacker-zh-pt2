@@ -1,6 +1,6 @@
 # 一个既能让我们降温又不会烧毁地球的计划
 
-> 原文:[https://gizmodo . com/a-plan-to-cool-us-down-not-burning-up-the-plan-the-plane-1844949946](https://gizmodo.com/a-plan-to-cool-us-down-without-burning-up-the-planet-1844949946)
+> 原文：<https://gizmodo.com/a-plan-to-cool-us-down-without-burning-up-the-planet-1844949946>
 
 本周早些时候，路易斯安那州和得克萨斯州的居民刚刚遭受了劳拉 飓风的袭击，忍受了华氏 109 度(摄氏 42.8 度)的高温。本周末，加州预计将迎来三周内第二次破纪录的热浪。这只是美国本周的情况。随着气候危机导致气温升高，世界几乎每个角落都面临着更危险的热浪。
 

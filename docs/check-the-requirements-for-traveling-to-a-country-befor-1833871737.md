@@ -1,6 +1,6 @@
 # 在你开始你的夏季旅行之前，仔细检查去一个国家旅行的要求
 
-> 原文:[https://life hacker . com/check-the-requirements for-before-1833871737](https://lifehacker.com/check-the-requirements-for-traveling-to-a-country-befor-1833871737)
+> 原文：<https://lifehacker.com/check-the-requirements-for-traveling-to-a-country-befor-1833871737>
 
 去年，当我去机场服务台托运飞往澳大利亚的行李时，我有一个意想不到的惊喜:我需要签证，但我没有。
 

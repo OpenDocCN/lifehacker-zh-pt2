@@ -1,6 +1,6 @@
 # 使用此分机以批发价预订酒店房间
 
-> 原文:[https://life hacker . com/book-hotel-rooms-at-批发价-using-this-extensi-1841392332](https://lifehacker.com/book-hotel-rooms-at-wholesale-prices-using-this-extensi-1841392332)
+> 原文：<https://lifehacker.com/book-hotel-rooms-at-wholesale-prices-using-this-extensi-1841392332>
 
 在预订酒店房间时，你用来预订房间的网站可以在价格上产生与你决定旅行时一样大的差异。有很多很棒的网站可以找到一个房间，现在一个新的 Chrome 扩展可以帮助你找到一个更好的。
 

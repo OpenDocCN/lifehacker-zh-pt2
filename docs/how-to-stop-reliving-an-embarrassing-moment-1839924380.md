@@ -1,6 +1,6 @@
 # 如何停止缓解尴尬时刻
 
-> 原文:[https://life hacker . com/how-to-stop-relieving-an-hanging-moment-1839924380](https://lifehacker.com/how-to-stop-reliving-an-embarrassing-moment-1839924380)
+> 原文：<https://lifehacker.com/how-to-stop-reliving-an-embarrassing-moment-1839924380>
 
 就在你即将入睡并进入幸福的无意识状态时，你突然想到了——在高中时(或在求职面试或任何其他社交场合)你说了或做了绝对错误的事情。不管出于什么原因，那段记忆萦绕着你，不愿意退回到你记忆的深处。
 

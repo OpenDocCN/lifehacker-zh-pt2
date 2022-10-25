@@ -1,6 +1,6 @@
 # 如何进入 DJ D-Nice 的虚拟“隔离俱乐部”舞会
 
-> 原文:[https://life hacker . com/how-to-get-into-DJ-d-nices-virtual-club-quarantine-danc-1842447929](https://lifehacker.com/how-to-get-into-dj-d-nices-virtual-club-quarantine-danc-1842447929)
+> 原文：<https://lifehacker.com/how-to-get-into-dj-d-nices-virtual-club-quarantine-danc-1842447929>
 
 由于冠状病毒，全国各地的夜总会都关门了，但在他们不在的时候，一个新的虚拟俱乐部开门了，它有一个漂亮的 A-List 客人名单。
 

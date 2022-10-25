@@ -1,6 +1,6 @@
 # 凭借 5G 和 120Hz 显示屏，三星 Galaxy S20 是一部完整的手机
 
-> 原文:[https://gizmodo . com/Samsung-galaxy-s20-first-look-120hz-displays-big-cams-1841577254](https://gizmodo.com/samsung-galaxy-s20-first-look-120hz-displays-big-cams-1841577254)
+> 原文：<https://gizmodo.com/samsung-galaxy-s20-first-look-120hz-displays-big-cams-1841577254>
 
 去年的 [Galaxy S10](https://gizmodo.com/samsung-galaxy-s10-review-an-android-champ-to-get-exci-1833080698) 是手机设计的一次胜利，它将显示指纹识别器、反向无线充电和微型打孔自拍相机等创新功能与华丽的几乎无边框的机身相结合。然而，在错过了 S10 的一些最大竞争对手的一些功能后，三星似乎正在努力确保这不会发生在新的 Galaxy S20 上。
 

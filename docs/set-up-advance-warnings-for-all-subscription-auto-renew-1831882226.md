@@ -1,6 +1,6 @@
 # 为所有订阅自动续订设置提前警告
 
-> 原文:[https://life hacker . com/set-up-advance-warnings-for-all-subscription-auto-renew-1831882226](https://lifehacker.com/set-up-advance-warnings-for-all-subscription-auto-renew-1831882226)
+> 原文：<https://lifehacker.com/set-up-advance-warnings-for-all-subscription-auto-renew-1831882226>
 
 这些年来，我不可能是唯一一个因为忘记在免费试用(hello，Skillshare)结束时取消某项服务，或者因为希望使用该产品而推迟订阅的人。
 

@@ -1,6 +1,6 @@
 # 通过倒推来确定你孩子的宵禁时间
 
-> 原文:[https://life hacker . com/to-determine-your-tens-宵禁-向后工作-1830887009](https://lifehacker.com/to-determine-your-teens-curfew-work-backwards-1830887009)
+> 原文：<https://lifehacker.com/to-determine-your-teens-curfew-work-backwards-1830887009>
 
 大约在我儿子 13 岁的时候，他开始花更多的时间离开我们家。放学后，学校的活动让他很忙，周末他和他的伙伴们会轮流在地下室玩电子游戏。在过去的两年里，他离开的大部分时间都是在老师或其他家长的监督下度过的，但当他成为一名成熟的青少年时，他发展了社交生活，同时患有严重的痤疮。
 

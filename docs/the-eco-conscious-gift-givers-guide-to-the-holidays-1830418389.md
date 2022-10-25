@@ -1,6 +1,6 @@
 # 具有环保意识的送礼者假期指南
 
-> 原文:[https://life hacker . com/the-eco-conscious-gifts-guide-to-the-holidays-1830418389](https://lifehacker.com/the-eco-conscious-gift-givers-guide-to-the-holidays-1830418389)
+> 原文：<https://lifehacker.com/the-eco-conscious-gift-givers-guide-to-the-holidays-1830418389>
 
 假期是家人、朋友、慈善机构和大量浪费的时间。
 

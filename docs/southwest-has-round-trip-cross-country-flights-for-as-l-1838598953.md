@@ -1,6 +1,6 @@
 # 今天，西南航空公司的全国往返机票价格低至 164 美元
 
-> 原文:[https://life hacker . com/south west-has-round-trip-cross-country-flights-for-as-l-1838598953](https://lifehacker.com/southwest-has-round-trip-cross-country-flights-for-as-l-1838598953)
+> 原文：<https://lifehacker.com/southwest-has-round-trip-cross-country-flights-for-as-l-1838598953>
 
 如果你计划明年年初进行一次越野旅行，西南航空公司正在进行一次促销活动，你可能想去看看。
 

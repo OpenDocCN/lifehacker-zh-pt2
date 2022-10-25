@@ -1,6 +1,6 @@
 # 如果你的孩子对冠状病毒有疑问，NYT 科学记者会给你答案
 
-> 原文:[https://life hacker . com/if-your-kids-have-the-nyts-scien-1842526297](https://lifehacker.com/if-your-kids-have-coronavirus-questions-the-nyts-scien-1842526297)
+> 原文：<https://lifehacker.com/if-your-kids-have-coronavirus-questions-the-nyts-scien-1842526297>
 
 从很多方面来说，看着我们周围的世界被关闭对每个人来说都很难。但是，年幼儿童的父母面临着额外的挑战，他们试图以小孩子能够理解的方式解释正在发生的事情，同时又不会让他们感到恐惧或焦虑。幸运的是，纽约时报的播客今天可以帮上忙。
 

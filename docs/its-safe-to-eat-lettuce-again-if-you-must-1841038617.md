@@ -1,6 +1,6 @@
 # 如果你一定要吃莴苣的话，可以放心地再吃一次
 
-> 原文:[https://life hacker . com/its-safe-to-eat-莴笋-if-you-must-1841038617](https://lifehacker.com/its-safe-to-eat-lettuce-again-if-you-must-1841038617)
+> 原文：<https://lifehacker.com/its-safe-to-eat-lettuce-again-if-you-must-1841038617>
 
 如果你几个月来一直想吃生菜，我有好消息和坏消息要告诉你。坏消息是，你吃沙拉 的味道很糟糕。好消息是，根据美国疾病预防控制中心的说法， [再吃生菜](https://www.cdc.gov/media/releases/2020/s0115-ecoli-outbreak.html) 是安全的。
 

@@ -1,6 +1,6 @@
 # 本月在 Target 用旧的或过期的汽车座椅进行折价交易
 
-> 原文:[https://life hacker . com/trade-in-your-old-car-seats-this-month-at-target-1833774423](https://lifehacker.com/trade-in-your-old-car-seats-this-month-at-target-1833774423)
+> 原文：<https://lifehacker.com/trade-in-your-old-car-seats-this-month-at-target-1833774423>
 
 如果你有旧的或过期的汽车座椅在地下室积灰，那就留着这个日子吧:Target 广受欢迎的汽车座椅折价项目将于本月晚些时候回归，为期两周。Target 将为您回收旧座位，并为您提供 20%的升级优惠券作为回报。
 

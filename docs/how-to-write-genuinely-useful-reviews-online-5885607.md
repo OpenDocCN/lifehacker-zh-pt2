@@ -1,6 +1,6 @@
 # 如何在网上写真正有用的评论
 
-> 原文:[https://life hacker . com/how-to-write-really-useful-reviews-online-5885607](https://lifehacker.com/how-to-write-genuinely-useful-reviews-online-5885607)
+> 原文：<https://lifehacker.com/how-to-write-genuinely-useful-reviews-online-5885607>
 
 在互联网出现之前，我们阅读餐馆、产品或商业评论的选择非常有限。但是现在，只要在我们的手机上点击几下，我们就可以准确地知道成千上万的人对那家新的百吉饼店的看法。尽管一些评论很有帮助，但它们最终都是废话。有的没用生气，有的发光到不能真实。最好的人走在中间，不管评审者有什么经验，他们提供的信息在做决定时是无价的。以下是你如何写这类评论的方法。
 

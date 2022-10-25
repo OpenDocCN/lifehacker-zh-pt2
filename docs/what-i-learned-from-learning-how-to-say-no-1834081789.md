@@ -1,6 +1,6 @@
 # 我从学习如何说不中学到了什么
 
-> 原文:[https://life hacker . com/what-I-learn-from-learn-how-to-say-no-1834081789](https://lifehacker.com/what-i-learned-from-learning-how-to-say-no-1834081789)
+> 原文：<https://lifehacker.com/what-i-learned-from-learning-how-to-say-no-1834081789>
 
 我以前是个讨人喜欢的人。
 

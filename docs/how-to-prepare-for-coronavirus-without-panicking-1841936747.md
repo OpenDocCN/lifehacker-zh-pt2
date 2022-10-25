@@ -1,6 +1,6 @@
 # 如何做好应对冠状病毒的准备而不恐慌
 
-> 原文:[https://life hacker . com/how-to-prepare-for-coronavirus-without-panic-1841936747](https://lifehacker.com/how-to-prepare-for-coronavirus-without-panicking-1841936747)
+> 原文：<https://lifehacker.com/how-to-prepare-for-coronavirus-without-panicking-1841936747>
 
 新冠肺炎到目前为止已经传播到了 [34 个国家](https://www.who.int/docs/default-source/coronaviruse/situation-reports/20200225-sitrep-36-covid-19.pdf?sfvrsn=2791b4e0_2) 。尽管这种疾病在中国以外仍然很罕见，在美国也只有少数几个病例，但在它被控制之前，有理由预计这种疾病会传播得更广。这并不意味着我们现在(或永远)需要恐慌，但做好准备是明智的。
 

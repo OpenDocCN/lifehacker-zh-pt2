@@ -1,6 +1,6 @@
 # 如何与你的朋友和家人谈论气候危机
 
-> 原文:[https://life hacker . com/how-to-talk to-your friends and family-the-climat-1836314364](https://lifehacker.com/how-to-talk-to-your-friends-and-family-about-the-climat-1836314364)
+> 原文：<https://lifehacker.com/how-to-talk-to-your-friends-and-family-about-the-climat-1836314364>
 
 气候变化是真实的，它正在发生， [大家都知道](https://earther.gizmodo.com/americans-increasingly-aware-of-climate-change-media-c-1827555165) 。但有时很难在谈话中提起，因为我们担心讨论会有政治余味。幸运的是，与朋友和家人聊天是解决这个问题的一个小方法，而且不一定会引起争议。
 

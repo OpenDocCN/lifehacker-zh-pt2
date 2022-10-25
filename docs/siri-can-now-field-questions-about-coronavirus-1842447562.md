@@ -1,6 +1,6 @@
 # Siri 现在可以回答关于冠状病毒的问题
 
-> 原文:[https://life hacker . com/Siri-can-now-field-questions-about-coronavirus-1842447562](https://lifehacker.com/siri-can-now-field-questions-about-coronavirus-1842447562)
+> 原文：<https://lifehacker.com/siri-can-now-field-questions-about-coronavirus-1842447562>
 
 如果你对冠状病毒有疑问，现在你有另一个来源可以得到答案:Siri。
 

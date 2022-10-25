@@ -1,6 +1,6 @@
 # 如何保存和迁移你的雅虎群组数据，以免永远消失
 
-> 原文:[https://life hacker . com/how-to-save-and-migrate-your-Yahoo-groups-data-before-I-1839172243](https://lifehacker.com/how-to-save-and-migrate-your-yahoo-groups-data-before-i-1839172243)
+> 原文：<https://lifehacker.com/how-to-save-and-migrate-your-yahoo-groups-data-before-i-1839172243>
 
 终于发生了: [雅虎集团](https://groups.yahoo.com) 正在关闭。嗯，大部分情况下——它仍将存在，但只是作为它以前的一个外壳，因为雅虎正在把曾经活跃在该平台上的各种团体变成美化的电子邮件列表。那么，你现在做什么？
 

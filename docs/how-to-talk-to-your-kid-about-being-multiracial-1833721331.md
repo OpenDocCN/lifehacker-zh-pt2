@@ -1,6 +1,6 @@
 # 如何和你的孩子谈论多种族问题
 
-> 原文:[https://life hacker . com/how-to-talk to-your kid-about-be multi racial-1833721331](https://lifehacker.com/how-to-talk-to-your-kid-about-being-multiracial-1833721331)
+> 原文：<https://lifehacker.com/how-to-talk-to-your-kid-about-being-multiracial-1833721331>
 
 索尼娅·史密斯·康(Sonia Smith-Kang)在 20 世纪 80 年代搬到加州时，正值“硅谷女孩的巅峰时期”，她说。在她周围，她看到了蓝色的眼睛和羽毛般的金发。
 

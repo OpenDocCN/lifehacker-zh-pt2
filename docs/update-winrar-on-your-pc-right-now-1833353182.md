@@ -1,6 +1,6 @@
 # 立即更新您电脑上的 WinRAR
 
-> 原文:[https://life hacker . com/update-winrar-on-your-PC-right-now-1833353182](https://lifehacker.com/update-winrar-on-your-pc-right-now-1833353182)
+> 原文：<https://lifehacker.com/update-winrar-on-your-pc-right-now-1833353182>
 
 上个月，许多个人电脑用户用来解压的软件 WinRAR 中发现了一个 19 岁的漏洞。zip 和其他文件。虽然该公司很快修补了漏洞，但为了安全起见，这种匹配要求用户更新他们的软件——而许多人还没有。
 

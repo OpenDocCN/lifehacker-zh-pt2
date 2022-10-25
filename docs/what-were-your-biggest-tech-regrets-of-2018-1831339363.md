@@ -1,6 +1,6 @@
 # 2018 年你最大的科技遗憾是什么？
 
-> 原文:[https://life hacker . com/2018-1831339363](https://lifehacker.com/what-were-your-biggest-tech-regrets-of-2018-1831339363)你最大的科技遗憾是什么
+> 原文：<https://lifehacker.com/what-were-your-biggest-tech-regrets-of-2018-1831339363>你最大的科技遗憾是什么
 
 随着这一年接近尾声，是时候回顾一下过去 300 多天里我们与科技相关的所有乐趣了。微笑面对我们购买的新升级！畏缩在所有我们浪费时间和金钱的应用上！不要谈论那些在当时看起来很酷，但是现在却积满灰尘的小玩意。
 

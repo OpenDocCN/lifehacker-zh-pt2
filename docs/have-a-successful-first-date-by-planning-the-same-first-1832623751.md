@@ -1,6 +1,6 @@
 # 通过每次都计划同一个日期来拥有一个成功的第一次约会
 
-> 原文:[https://life hacker . com/have-a-successful-a-first-date-by-planning-the-same-first-1832623751](https://lifehacker.com/have-a-successful-first-date-by-planning-the-same-first-1832623751)
+> 原文：<https://lifehacker.com/have-a-successful-first-date-by-planning-the-same-first-1832623751>
 
 当然，约会是一场微妙的舞蹈，任何时候都有许多未知因素。
 

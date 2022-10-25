@@ -1,6 +1,6 @@
 # 通过这个测试，找出你最同意哪一位 2020 年民主党候选人
 
-> 原文:[https://life hacker . com/find-out-which-2020-democratic-candidate-you-agree-1839928689](https://lifehacker.com/find-out-which-2020-democratic-candidate-you-agree-with-1839928689)
+> 原文：<https://lifehacker.com/find-out-which-2020-democratic-candidate-you-agree-with-1839928689>
 
 随着前马萨诸塞州州长 [德瓦尔·帕特里克](https://lifehacker.com/where-do-deval-patrick-and-michael-bloomberg-stand-on-m-1839857136) 参加 2020 年总统竞选的最新消息——以及迈克尔·彭博参选的真实可能性——跟上候选人提出的所有 18 政策正变得日益困难。(我们试过了。 [这里的](https://lifehacker.com/heres-every-2020-democratic-candidates-plan-to-end-gun-1836917130) [都是](https://twocents.lifehacker.com/how-elizabeth-warren-plans-to-pay-for-medicare-for-all-1839541911) [几个](https://twocents.lifehacker.com/see-how-the-democratic-candidates-tax-plans-would-affec-1839098593) 对考生在重大问题上的立场进行引导。)
 

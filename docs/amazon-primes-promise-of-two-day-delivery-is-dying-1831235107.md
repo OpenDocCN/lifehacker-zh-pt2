@@ -1,6 +1,6 @@
 # 亚马逊 Prime 的两天送达承诺正在消亡
 
-> 原文:[https://life hacker . com/Amazon-primes-promise-of-two-day-delivery-is-dying-1831235107](https://lifehacker.com/amazon-primes-promise-of-two-day-delivery-is-dying-1831235107)
+> 原文：<https://lifehacker.com/amazon-primes-promise-of-two-day-delivery-is-dying-1831235107>
 
 正如我和妻子刚刚做的那样，在 2018 年生孩子意味着成为亚马逊家庭。我们并不以此为荣。我们知道 [亚马逊对待员工非常](https://gawker.com/what-is-life-like-for-an-amazon-worker-949664345) 。我们知道，这家公司 [从我们的家乡纽约市勒索了数十亿纳税人的钱](https://splinternews.com/the-war-against-amazon-is-here-1831227559) 作为交换，他们把我们的邻居变成了待遇极其恶劣的员工。但是婴儿需要很多东西，而且需要得很快。按需尿布是一个非常诱人的前景。所以我们在亚马逊上买了尿布。然后亚马逊说来就没来。
 

@@ -1,6 +1,6 @@
 # 停止过度购买你的汽车
 
-> 原文:[https://jalopnik.com/stop-overbuying-your-cars-1829751357](https://jalopnik.com/stop-overbuying-your-cars-1829751357)
+> 原文：<https://jalopnik.com/stop-overbuying-your-cars-1829751357>
 
 新车 [交易价格上涨](https://jalopnik.com/the-prices-of-pickup-trucks-are-too-damn-high-1829517099)[利率上涨](https://jalopnik.com/interest-rates-are-getting-too-high-for-new-car-buyers-1829648498) ，几乎每一个关注汽车行业的分析师都担心买家被“定价过高”而买不起新车。这个问题有一个简单的解决方案:人们需要停止“过度购买”他们的汽车。
 

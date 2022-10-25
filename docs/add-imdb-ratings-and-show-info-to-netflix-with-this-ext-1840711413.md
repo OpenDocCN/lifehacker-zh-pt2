@@ -1,6 +1,6 @@
 # 添加 IMDB 评级和显示信息，以网飞与此扩展
 
-> 原文:[https://life hacker . com/add-IMDB-ratings-and-show-info-to-网飞-with-this-ext-1840711413](https://lifehacker.com/add-imdb-ratings-and-show-info-to-netflix-with-this-ext-1840711413)
+> 原文：<https://lifehacker.com/add-imdb-ratings-and-show-info-to-netflix-with-this-ext-1840711413>
 
 当你试图在网飞寻找一些可以看的节目时，有时你会想知道网飞以外的其他人对这个节目的看法。这就是 [zRate](https://www.zeeker.com/zRate/netflix) 可以帮忙的地方。[Chrome 扩展](https://chrome.google.com/webstore/detail/zrate-netflix-add-show-ra/eelcmdidihggbganloigjkefaahhhanj) 从 IMDB，偶尔从烂番茄和 Metacritic 带来分级信息，并提供关于节目情节的信息，以及来自同一网站的主要演员阵容。
 

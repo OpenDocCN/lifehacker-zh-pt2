@@ -1,6 +1,6 @@
 # 当你的孩子开始开车时，最好的应用程序
 
-> 原文:[https://life hacker . com/the-best-apps-to-use-when-your-teen-start-driving-1838749887](https://lifehacker.com/the-best-apps-to-use-when-your-teen-starts-driving-1838749887)
+> 原文：<https://lifehacker.com/the-best-apps-to-use-when-your-teen-starts-driving-1838749887>
 
 两个月前，我十几岁的儿子以优异的成绩通过了驾驶考试。虽然看着他开车离开的最初恐惧已经过去，我们的儿子证明了自己是一个称职的司机，但我们仍在解决问题。
 

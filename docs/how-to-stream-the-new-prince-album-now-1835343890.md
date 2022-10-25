@@ -1,6 +1,6 @@
 # 现在如何串流新的王子专辑
 
-> 原文:[https://life hacker . com/how-to-stream-the-new-prince-album-now-1835343890](https://lifehacker.com/how-to-stream-the-new-prince-album-now-1835343890)
+> 原文：<https://lifehacker.com/how-to-stream-the-new-prince-album-now-1835343890>
 
 普林斯的遗产管理公司本周宣布计划发行一个名为 Originals 的艺术家未发行的新专辑。
 

@@ -1,6 +1,6 @@
 # 如何改变缩放反应的肤色
 
-> 原文:[https://life hacker . com/how-to-change-the-skin-tone of-your-zoom-reactions-1843952431](https://lifehacker.com/how-to-change-the-skin-tone-of-your-zoom-reactions-1843952431)
+> 原文：<https://lifehacker.com/how-to-change-the-skin-tone-of-your-zoom-reactions-1843952431>
 
 没人喜欢长得像荷马·辛普森。至少，每当我在智能手机上给朋友发表情符号而忘记改变肤色时，我都会有这种感觉。如果你喜欢黄色，那很好；我觉得在短信里看起来有点怪。
 

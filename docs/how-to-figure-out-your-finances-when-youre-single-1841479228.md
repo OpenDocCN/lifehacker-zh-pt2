@@ -1,6 +1,6 @@
 # 单身时如何弄清楚自己的财务状况
 
-> 原文:[https://life hacker . com/how-to-figure-when-your-single-1841479228](https://lifehacker.com/how-to-figure-out-your-finances-when-youre-single-1841479228)
+> 原文：<https://lifehacker.com/how-to-figure-out-your-finances-when-youre-single-1841479228>
 
 啊，单身生活。当你想做的时候，你可以做你想做的事情——当你要购买大件商品的时候，你不需要和任何人商量。
 

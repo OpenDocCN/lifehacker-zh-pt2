@@ -1,6 +1,6 @@
 # 谷歌 Stadia 的效果如何？我们做了一个速度测试
 
-> 原文:[https://life hacker . com/how-well-do-Google-stadia-work-we-did-a-speed-test-1839870376](https://lifehacker.com/how-well-does-google-stadia-work-we-did-a-speed-test-1839870376)
+> 原文：<https://lifehacker.com/how-well-does-google-stadia-work-we-did-a-speed-test-1839870376>
 
 谷歌 Stadia 终于在本周推出，通过流媒体的魔力将其游戏库——呃， [不断增长的游戏库](https://blog.google/products/stadia/lineup-games-coming-to-stadia/)——传输到电视、个人电脑和手机上。不过，流媒体的一个问题是，它可能需要相当不错的连接。这就是我们在这里要测试的:在你家里可能有的各种无线和有线设置中，体育场的表现如何？
 

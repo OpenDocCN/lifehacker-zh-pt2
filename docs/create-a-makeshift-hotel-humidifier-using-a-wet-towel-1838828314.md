@@ -1,6 +1,6 @@
 # 用湿毛巾制作一个临时的酒店加湿器
 
-> 原文:[https://life hacker . com/create-a-quicky-hotel-加湿器-使用湿毛巾-1838828314](https://lifehacker.com/create-a-makeshift-hotel-humidifier-using-a-wet-towel-1838828314)
+> 原文：<https://lifehacker.com/create-a-makeshift-hotel-humidifier-using-a-wet-towel-1838828314>
 
 去年，杰夫·达西 [分享了他在酒店房间里用衣架遮挡阳光的方法，震惊了互联网的集体思维](https://lifehacker.com/clip-your-hotel-curtains-shut-with-a-closet-hanger-1825597305) 。
 

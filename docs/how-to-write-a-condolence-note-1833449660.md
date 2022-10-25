@@ -1,6 +1,6 @@
 # how to write a condolence note 1833449660
 
-> 原文:[https://life hacker . com/how-to-write-a-comotion-note-1833449660](https://lifehacker.com/how-to-write-a-condolence-note-1833449660)
+> 原文：<https://lifehacker.com/how-to-write-a-condolence-note-1833449660>
 
 当你认识的人失去一个亲近的人时，很难知道该做什么或说什么。悲伤是一种可怕而不确定的东西，如果你没有经历过，伸出手会感觉像是超越了界限或提醒某人他们试图忘记的事情。
 

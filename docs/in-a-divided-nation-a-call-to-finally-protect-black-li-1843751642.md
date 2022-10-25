@@ -1,6 +1,6 @@
 # 在一个分裂的国家，要求最终保护黑人生命的呼声达到了白热化
 
-> 原文:[https://www . the root . com/in-a-divided-nation-a-call-to-finally-protect-black-Li-1843751642](https://www.theroot.com/in-a-divided-nation-a-call-to-finally-protect-black-li-1843751642)
+> 原文：<https://www.theroot.com/in-a-divided-nation-a-call-to-finally-protect-black-li-1843751642>
 
 周四晚上，美国各地成千上万的人游行到他们的州议会大厦、公共广场、警察辖区。在美国各地，他们高呼“我无法呼吸”——一个垂死的请求变成了战斗口号。警察拿起武器对付示威者——穿着防暴服，用橡皮子弹向雇佣他们的市民射击，或者喷射催泪瓦斯来“驱散”人群。美国各地响起了枪声。在美国各地，抗议者高举乔治·弗洛伊德[布里奥纳·泰勒](https://www.theroot.com/as-police-brutality-draws-national-attention-advocates-1843709863)[艾哈迈德·阿贝里](https://www.theroot.com/prosecutors-know-who-killed-this-black-man-in-georgia-b-1843224347)[托尼·麦克达德](http://nbjc.org/media-center/releases/nbjc-mourns-tony-mcdade) 等几十个名字，并在手工标牌上要求伸张正义。他们戴着面具，了解仍然控制着这个国家的疫情，但推动他们采取行动是因为一种更有害、更恐怖的流行病:正在进行的、国家支持的、国家允许的对黑人生命的攻击。
 

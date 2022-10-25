@@ -1,6 +1,6 @@
 # 如何在旅行中不失去你的孩子
 
-> 原文:[https://life hacker . com/how-to-not-lost-your-kids-when-traveling-1844147538](https://lifehacker.com/how-to-not-lose-your-kids-when-traveling-1844147538)
+> 原文：<https://lifehacker.com/how-to-not-lose-your-kids-when-traveling-1844147538>
 
 与孩子们一起旅行的现实是，他们有如此多的精力和兴奋，这让他们不断前进——有时是相反的方向。当你分心半秒钟时，转过头，你的孩子似乎消失了。没有比这更可怕的了。我当然去过那里。
 

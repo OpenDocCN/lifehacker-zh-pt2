@@ -1,6 +1,6 @@
 # 你不必定义你是哪种类型的父母
 
-> 原文:[https://life hacker . com/you-dont-to-define-what-type of-parent-you-are-1833947973](https://lifehacker.com/you-dont-have-to-define-what-type-of-parent-you-are-1833947973)
+> 原文：<https://lifehacker.com/you-dont-have-to-define-what-type-of-parent-you-are-1833947973>
 
 十年前，当妈咪博客越来越受欢迎，我们都应该感到团结在生存的保护伞下时，妈咪战争的现象爆发了。这些所谓的战争，围绕着一个人如何选择父母，在全职妈妈与职业妈妈之间，母乳妈妈与配方奶喂养者之间，穿婴儿装的妈妈与婴儿车爱好者之间，以及同睡父母与婴儿床使用者之间展开了斗争。
 

@@ -1,6 +1,6 @@
 # FDA 说，扔掉你的洋葱
 
-> 原文:[https://life hacker . com/throw-out-your-onions-FDA-says-1844595033](https://lifehacker.com/throw-out-your-onions-fda-says-1844595033)
+> 原文：<https://lifehacker.com/throw-out-your-onions-fda-says-1844595033>
 
 你厨房里有洋葱吗？是的，我也是。突击测验:洋葱来自哪个农场或经销商？如果你不能回答这个问题，你应该扔掉它。
 

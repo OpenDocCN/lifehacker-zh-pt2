@@ -1,6 +1,6 @@
 # 如何用一个单层平底锅做感恩节晚餐
 
-> 原文:[https://life hacker . com/how-to-cook-thanksgiving-dinner-single-a-sheet-pan-1830156144](https://lifehacker.com/how-to-cook-thanksgiving-dinner-in-single-a-sheet-pan-1830156144)
+> 原文：<https://lifehacker.com/how-to-cook-thanksgiving-dinner-in-single-a-sheet-pan-1830156144>
 
 感恩节对我们所有人的要求都很高，但对洗碗工的要求最高。 如果你正在过一个 [smol 感恩节](https://lifehacker.com/how-to-make-thanksgiving-dinner-for-a-very-small-crowd-1820310548) ，把每一个锅和平底锅都拿出来可能没什么意义，但幸运的是你不必这么做。一顿完整的火鸡大餐——配以蔓越莓酱——可以在你的烤箱里用单层平底锅烹制。
 

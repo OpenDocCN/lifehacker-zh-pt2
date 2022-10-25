@@ -1,6 +1,6 @@
 # 是时候问我们你迫切的健康问题了
 
-> 原文:[https://life hacker . com/its-time-to-ask-us-your-burning-health-questions-1844056348](https://lifehacker.com/its-time-to-ask-us-your-burning-health-questions-1844056348)
+> 原文：<https://lifehacker.com/its-time-to-ask-us-your-burning-health-questions-1844056348>
 
 我很高兴地宣布 Lifehacker 的热门问题专栏的回归，在这个专栏中，我回答了人们不能——或者不想——谷歌的健康问题。提醒一下，这是*而不是*的医学建议，我也不是医生。
 

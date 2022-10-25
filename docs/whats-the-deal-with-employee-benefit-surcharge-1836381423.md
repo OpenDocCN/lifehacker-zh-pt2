@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:我账单上的“员工福利”附加费是怎么回事？
 
-> 原文:[https://the take out . com/what-the-deal-with-employee-benefit-附加费-1836381423](https://thetakeout.com/whats-the-deal-with-employee-benefit-surcharge-1836381423)
+> 原文：<https://thetakeout.com/whats-the-deal-with-employee-benefit-surcharge-1836381423>
 
 > 亲爱的咸味女服务员，我最近在美国购物中心的一家餐厅用餐。账单来的时候，总数是 95 美元。这包括 8 美元和税的变化和 2.50 美元的员工福利附加费。我有点挠头。当然，我相信服务器需要员工福利，但为什么要单独列出呢？我怎么算小费呢？我应该把小费算在点的东西的价格上，还是算在点的东西加税上，还是算在点的东西加税加员工福利附加费上？
 > 

@@ -1,6 +1,6 @@
 # 你需要一双厨房鞋
 
-> 原文:[https://life hacker . com/you-need-a-pair-of-kitchen-shoes-1841130435](https://lifehacker.com/you-need-a-pair-of-kitchen-shoes-1841130435)
+> 原文：<https://lifehacker.com/you-need-a-pair-of-kitchen-shoes-1841130435>
 
 我四肢的血液循环非常糟糕，这意味着我从十月到五月一天 24 小时都穿着厚袜子和拖鞋。今年，我得到了极其舒适的圣诞拖鞋——然后在为家人做晚饭时，立刻把各种屁话泼在拖鞋上。悲剧。
 

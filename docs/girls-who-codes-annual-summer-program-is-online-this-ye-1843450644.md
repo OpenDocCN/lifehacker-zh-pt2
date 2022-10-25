@@ -1,6 +1,6 @@
 # 今年,“编程女孩”的年度暑期项目上线了
 
-> 原文:[https://life hacker . com/girls-who-codes-annual-summer-program-is-online-this-ye-1843450644](https://lifehacker.com/girls-who-codes-annual-summer-program-is-online-this-ye-1843450644)
+> 原文：<https://lifehacker.com/girls-who-codes-annual-summer-program-is-online-this-ye-1843450644>
 
 每年夏天，编写 代码的 [女孩组织提供一个夏季沉浸式项目，帮助女孩们学习如何将计算机科学概念应用到个人项目中。虽然这通常是一个为期七周的面对面的活动，但今年这个项目已经变成了两周——而且是在线而不是面对面的。](https://girlswhocode.com/) 
 

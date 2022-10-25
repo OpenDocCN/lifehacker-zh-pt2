@@ -1,6 +1,6 @@
 # 如何控制你的时间表
 
-> 原文:[https://life hacker . com/how-to-take-control-of-your-schedule-1837068139](https://lifehacker.com/how-to-take-control-of-your-schedule-1837068139)
+> 原文：<https://lifehacker.com/how-to-take-control-of-your-schedule-1837068139>
 
 如果你想做某件事，为它划出时间。这包括从你必须完成的工作任务到你想和家人一起散步的所有事情。你想写的小说。每周的游戏之夜或约会之夜。你想优先考虑的睡眠。
 

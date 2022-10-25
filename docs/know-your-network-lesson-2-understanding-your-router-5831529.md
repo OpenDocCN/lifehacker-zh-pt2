@@ -1,6 +1,6 @@
 # 了解您的网络，第 2 课:了解路由器的管理页面
 
-> 原文:[https://life hacker . com/know-your-network-lesson-2-understanding-your-router-5831529](https://lifehacker.com/know-your-network-lesson-2-understanding-your-router-5831529)
+> 原文：<https://lifehacker.com/know-your-network-lesson-2-understanding-your-router-5831529>
 
 大多数路由器都带有某种管理网站，你可以通过在你最喜欢的网络浏览器中键入它们的 IP 地址，并输入你的登录名和密码来访问——你可以从 *admin/admin* 或 *admin/password* 更改登录名和密码，对吗？如果你幸运的话，你有一个“更智能”的路由器，它更容易通过应用程序进行配置，但大多数人(以及他们的旧的非网状 wifi 设备)可能会被网站所困扰。
 

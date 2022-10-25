@@ -1,6 +1,6 @@
 # 如何清理您所有云存储帐户中的空间
 
-> 原文:[https://gizmodo . com/how-to-clear-out-of-all-your-cloud-storage-accoun-1844611066](https://gizmodo.com/how-to-clear-out-space-in-all-your-cloud-storage-accoun-1844611066)
+> 原文：<https://gizmodo.com/how-to-clear-out-space-in-all-your-cloud-storage-accoun-1844611066>
 
 Dropbox 和 iCloud 等云存储服务的出现是为了防止我们的手机和笔记本电脑空间不足，但当你的云存储空间也不足时会发生什么呢？为了让你每个月不必向苹果、谷歌或其他任何公司支付更多的钱，这里有一些快速释放账户空间的小技巧。
 

@@ -1,6 +1,6 @@
 # 如何在没有有线电视的情况下观看今晚的民主党辩论
 
-> 原文:[https://life hacker . com/how-to-watch-tonights-democratic-debate-without-cable-1841891545](https://lifehacker.com/how-to-watch-tonights-democratic-debate-without-cable-1841891545)
+> 原文：<https://lifehacker.com/how-to-watch-tonights-democratic-debate-without-cable-1841891545>
 
 在经历了参议员伊丽莎白·沃伦在他的第一场总统辩论 中的野蛮攻击后，迈克尔彭博今晚将与其他六名民主党总统候选人一起在南卡罗莱纳州的舞台上进行他今年的第二场辩论，也是超级星期二之前的最后一场辩论。
 

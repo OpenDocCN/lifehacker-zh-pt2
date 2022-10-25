@@ -1,6 +1,6 @@
 # 用这个故事解释一个丢失的填充动物玩具的新外观
 
-> 原文:[https://life hacker . com/explain-a-lost-毛绒玩具-new-appearance-with this-1844496354](https://lifehacker.com/explain-a-lost-stuffed-animals-new-appearance-with-this-1844496354)
+> 原文：<https://lifehacker.com/explain-a-lost-stuffed-animals-new-appearance-with-this-1844496354>
 
 每一个有挚爱“爱人”的孩子的父母都生活在恐惧中。心爱的东西——最喜欢的毯子、毛绒动物或其他毛绒玩具——倾向于跟随蹒跚学步的主人去任何地方。这意味着他们有办法在最不方便的地方迷路，比如你在公路旅行中停下来的加油站、露营地、海滩上的 Airbnb，或者干脆消失在空气中。
 

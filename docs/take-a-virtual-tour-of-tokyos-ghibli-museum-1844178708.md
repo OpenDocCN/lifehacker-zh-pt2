@@ -1,6 +1,6 @@
 # 虚拟参观东京的吉卜力博物馆
 
-> 原文:[https://life hacker . com/take-a-virtual-tour-of-tokyos-ghibli-museum-1844178708](https://lifehacker.com/take-a-virtual-tour-of-tokyos-ghibli-museum-1844178708)
+> 原文：<https://lifehacker.com/take-a-virtual-tour-of-tokyos-ghibli-museum-1844178708>
 
 在可预见的未来，你可能无法去日本旅行，但现在你可以在 YouTube 上虚拟游览日本神秘的吉卜力博物馆。
 

@@ -1,6 +1,6 @@
 # 我们真的在为面具而争吵吗？
 
-> 原文:[https://life hacker . com/we-真的在为面具而战吗-1843527506](https://lifehacker.com/are-we-really-fighting-with-each-other-over-masks-1843527506)
+> 原文：<https://lifehacker.com/are-we-really-fighting-with-each-other-over-masks-1843527506>
 
 就我的日常散步而言，在过去的一两个月里，口罩已经悄悄地变得越来越普遍了。有的人穿，有的人不穿，反正我们都是过马路互相避让。但是现在一些地方的规定要求戴口罩，社交媒体似乎已经被人们争论的沸沸扬扬了。现实生活中也是这样吗？
 

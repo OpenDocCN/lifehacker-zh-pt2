@@ -1,6 +1,6 @@
 # 如何帮助受春节影响的餐馆老板
 
-> 原文:[https://life hacker . com/how-to-help-the-restaurant-owner-affected-by-fyre-festi-1831950270](https://lifehacker.com/how-to-help-the-restaurant-owner-affected-by-fyre-festi-1831950270)
+> 原文：<https://lifehacker.com/how-to-help-the-restaurant-owner-affected-by-fyre-festi-1831950270>
 
 臭名昭著的音乐节 Fyre Festival 实际上从未举办过，导致巴哈马当地几个社区受到影响，包括餐馆老板 Maryann Rolle。
 

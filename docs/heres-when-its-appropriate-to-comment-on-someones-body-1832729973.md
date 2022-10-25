@@ -1,6 +1,6 @@
 # 以下是评论某人身体变化的适当时机
 
-> 原文:[https://life hacker . com/heres-when-it-judge-on-someones-body-1832729973](https://lifehacker.com/heres-when-its-appropriate-to-comment-on-someones-body-1832729973)
+> 原文：<https://lifehacker.com/heres-when-its-appropriate-to-comment-on-someones-body-1832729973>
 
 身体会随着时间发生很大的变化，有时这些变化是戏剧性的。当你看到一个朋友突然变了样，你会有一种强烈的冲动去评论他。有时这种评论会非常受欢迎——甚至是意料之中的——而有时它会不受欢迎，甚至是彻头彻尾的伤害。
 

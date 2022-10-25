@@ -1,6 +1,6 @@
 # 这是最好的基于研究的育儿播客
 
-> 原文:[https://life hacker . com/this-is-the-best-research-based-parenting-podcast-1841387502](https://lifehacker.com/this-is-the-best-research-based-parenting-podcast-1841387502)
+> 原文：<https://lifehacker.com/this-is-the-best-research-based-parenting-podcast-1841387502>
 
 我第一次听说 [你的育儿魔咒播客](https://yourparentingmojo.com/) 是在另一个育儿播客上: [一个坏妈妈](https://maximumfun.org/episodes/one-bad-mother/episode-334-its-cutetill-it-isnt-plus-parenting-research-with-jen-lumanlan/) 。《OBM》是我最喜欢的一部电影，因为它基本上是两个妈妈互相倾诉做父母有多难，然后告诉对方(和听众)她们做得有多好。他们还经常采访作家和其他专家，或者解决具体的育儿话题，但总的基调是，“我们都在尽最大努力，”他们并不声称知道所有的答案。
 

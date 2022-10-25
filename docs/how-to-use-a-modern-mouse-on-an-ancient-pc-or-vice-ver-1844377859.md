@@ -1,6 +1,6 @@
 # 如何在老式电脑上使用现代鼠标，反之亦然
 
-> 原文:[https://life hacker . com/how-to-use-a-modern-mouse-on-an-ancient-PC-or-vice-ver-1844377859](https://lifehacker.com/how-to-use-a-modern-mouse-on-an-ancient-pc-or-vice-ver-1844377859)
+> 原文：<https://lifehacker.com/how-to-use-a-modern-mouse-on-an-ancient-pc-or-vice-ver-1844377859>
 
 也许你被科技迷迷上了，成为了一名海军准将收藏家。或者你在清理爱人的房子时，发现了一些古老、笨重、四四方方的个人电脑。或者你有你自己的超级旧系统，你想修补一下。无论如何，复古系统总会带来某种怀旧的快乐。问题？让它们工作，尤其是如果你没有匹配的旧设备，可能会出现问题。
 

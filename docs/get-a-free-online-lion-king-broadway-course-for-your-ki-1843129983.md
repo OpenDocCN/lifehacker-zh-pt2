@@ -1,6 +1,6 @@
 # 为您的孩子获得免费的在线“狮子王”百老汇课程
 
-> 原文:[https://life hacker . com/get-a-free-online-lion-king-Broadway-course-for-your-ki-1843129983](https://lifehacker.com/get-a-free-online-lion-king-broadway-course-for-your-ki-1843129983)
+> 原文：<https://lifehacker.com/get-a-free-online-lion-king-broadway-course-for-your-ki-1843129983>
 
 我们最富戏剧性的孩子可能厌倦了他们一直在客厅里表演的简单的单人戏剧和木偶剧。也许他们在学校的春季音乐剧中扮演了一个角色——包括他们将要进行的排练和表演——被关闭了。或者他们只是觉得无聊，正在寻找新的有趣的事情来解决。如果他们有一些额外的空闲时间(哈),并且喜欢狮子王 T2 或一般的表演艺术，他们可能会喜欢迪士尼提供的免费虚拟戏剧课程 T3 T4 T5 T6。
 

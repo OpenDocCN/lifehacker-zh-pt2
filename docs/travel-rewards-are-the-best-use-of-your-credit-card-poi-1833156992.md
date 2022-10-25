@@ -1,6 +1,6 @@
 # 旅行奖励是您信用卡积分的最佳用途
 
-> 原文:[https://life hacker . com/travel-rewards-is-the-best-use-of-your-card-poi-1833156992](https://lifehacker.com/travel-rewards-are-the-best-use-of-your-credit-card-poi-1833156992)
+> 原文：<https://lifehacker.com/travel-rewards-are-the-best-use-of-your-credit-card-poi-1833156992>
 
 那里不缺少奖励信用卡，随着更多的玩家进入游戏，兑换机会也在扩大。但是正如丹·弗罗默 [为食客](https://www.eater.com/2019/3/7/18246799/best-credit-card-rewards-points-restaurants-dining-out) 指出的，用你的积分兑换旅行奖励可能是最划算的。
 

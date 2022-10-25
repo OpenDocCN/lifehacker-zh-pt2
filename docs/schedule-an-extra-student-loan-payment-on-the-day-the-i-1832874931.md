@@ -1,6 +1,6 @@
 # 在利息最低的那一天安排额外的学生贷款支付
 
-> 原文:[https://life hacker . com/schedule-an-extra-student-loan-payment-on-the-day-I-1832874931](https://lifehacker.com/schedule-an-extra-student-loan-payment-on-the-day-the-i-1832874931)
+> 原文：<https://lifehacker.com/schedule-an-extra-student-loan-payment-on-the-day-the-i-1832874931>
 
 了解你的贷款利息周期是摆脱学生贷款债务的关键之一。假设你的时机正确，每隔一段时间额外支付一两笔钱就能帮你显著降低余额。
 

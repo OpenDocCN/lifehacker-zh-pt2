@@ -1,6 +1,6 @@
 # 出于方便，你对孩子撒过哪些谎？
 
-> 原文:[https://life hacker . com/what-lies-have-you-tell-you-kids-out-of-convenient-1829902088](https://lifehacker.com/what-lies-have-you-told-your-kids-out-of-convenience-1829902088)
+> 原文：<https://lifehacker.com/what-lies-have-you-told-your-kids-out-of-convenience-1829902088>
 
 Lifehacker 创意制作人 Heather Hass 给我讲了一个关于去年圣诞节她五岁的儿子 Theodor 收到的寄居蟹的故事。他的名字叫克拉伯，他活了两个月。但是这种甲壳类动物死亡的消息还没有传到西奥多那里。“我们告诉他克拉布病了，需要去螃蟹医院换一个新壳，”希瑟说。“整个夏天我们都告诉他螃蟹医院在海边，克拉布正在医院度小假，游泳，尝试新的贝壳——你知道，享受生活。克拉布甚至寄了一张明信片。”最近，“克拉布”隆重回归，每个人都很高兴他回来了。希瑟对这个谎言感到平静:“我不会建议对狗或猫这样做，但寄居蟹基本上是虫子。”
 

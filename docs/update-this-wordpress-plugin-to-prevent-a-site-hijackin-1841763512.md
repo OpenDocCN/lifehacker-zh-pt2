@@ -1,6 +1,6 @@
 # 更新这个 WordPress 插件来防止站点劫持攻击
 
-> 原文:[https://life hacker . com/update-this-WordPress-plugin-to-prevent-a-site-hijackin-1841763512](https://lifehacker.com/update-this-wordpress-plugin-to-prevent-a-site-hijackin-1841763512)
+> 原文：<https://lifehacker.com/update-this-wordpress-plugin-to-prevent-a-site-hijackin-1841763512>
 
 我用 WordPress 给我在互联网上强大的小角落提供动力，我承认，我很懒，没有及时更新我的各种插件和主题。y 站点是非常基础的，所以,这个想法从来没有出现过。然而，我强烈建议你现在就访问*你的* WordPress 网站，更新所有需要的东西，尤其是如果你使用的是 ThemeGrill 的某个插件，如果不打补丁的话，这个插件会有很大的漏洞。
 

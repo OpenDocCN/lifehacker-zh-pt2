@@ -1,6 +1,6 @@
 # 使用此扩展按取消政策和登记时间搜索 Airbnbs
 
-> 原文:[https://life hacker . com/search-for-airbnbs-by-cancellation-policy-and-check-in-1840958303](https://lifehacker.com/search-for-airbnbs-by-cancellation-policy-and-check-in-1840958303)
+> 原文：<https://lifehacker.com/search-for-airbnbs-by-cancellation-policy-and-check-in-1840958303>
 
 当你在找 Airbnb 的时候，大多数情况下内置的搜索功能都很好用。有时候；但是，您还有一些标准搜索未涵盖的住宿规定。
 

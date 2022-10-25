@@ -1,6 +1,6 @@
 # 如何在寒冷的天气给婴儿穿衣服
 
-> 原文:[https://life hacker . com/how-to-dress-a baby-in-cold-weather-1832228929](https://lifehacker.com/how-to-dress-a-baby-in-cold-weather-1832228929)
+> 原文：<https://lifehacker.com/how-to-dress-a-baby-in-cold-weather-1832228929>
 
 我住在宾夕法尼亚州东部，现在室外温度是 2 度(零下 12 度的寒风),我刚刚和我 8 岁的孩子争论了戴手套上学的问题。
 

@@ -1,6 +1,6 @@
 # 如何拍出最好的日出日落照片
 
-> 原文:[https://life hacker . com/how-to-take-the-best 日出日落照片-1844964579](https://lifehacker.com/how-to-take-the-best-sunrise-and-sunset-photos-1844964579)
+> 原文：<https://lifehacker.com/how-to-take-the-best-sunrise-and-sunset-photos-1844964579>
 
 关于日出和日落，有些东西是我们无法抗拒的。(是的， [这首歌一直在我脑海里](https://www.youtube.com/watch?v=03rzUoyq9K0) ，现在也是你的。)尽管从技术上来说，它们是每天都会发生的，但还是很难不对日出的第一缕霞光或日落的鲜艳色彩印象深刻。当然，这意味着人们在社交媒体上发布大量日出/日落照片。它们是最原始的照片吗？不完全是。但这不是重点。
 

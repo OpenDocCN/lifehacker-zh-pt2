@@ -1,6 +1,6 @@
 # 不要把钱浪费在“健康”的幼儿食品上
 
-> 原文:[https://life hacker . com/don --不要把钱浪费在健康的幼儿食品上-1839169219](https://lifehacker.com/dont-waste-your-money-on-healthy-toddler-food-1839169219)
+> 原文：<https://lifehacker.com/dont-waste-your-money-on-healthy-toddler-food-1839169219>
 
 幼儿:他们和我们一样。他们喜欢吃饼干和奶酪泡芙，喝含糖的冰沙——嘿，谁不喜欢呢？但是幼儿零食的营销方式让父母认为他们买的是额外有益健康的东西。
 

@@ -1,6 +1,6 @@
 # 如何避免被扒窃
 
-> 原文:[https://life hacker . com/how-to-避免被扒窃-1837402656](https://lifehacker.com/how-to-avoid-getting-pickpocketed-1837402656)
+> 原文：<https://lifehacker.com/how-to-avoid-getting-pickpocketed-1837402656>
 
 去年，几个扒手团体从纽约地铁系统中健忘的通勤者身上获利。一名扒手 [告诉一名侦探](https://www.nytimes.com/2019/01/27/nyregion/pickpockets-nyc-crime.html) ，这名扒手最终被逮捕，并被发现携带三张地铁卡和四部手机。“我挑选注意力分散的人。”
 

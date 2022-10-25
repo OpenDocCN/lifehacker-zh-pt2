@@ -1,6 +1,6 @@
 # 玩红色死亡救赎 2 的小技巧【再次更新！]
 
-> 原文:[https://kotaku . com/tips-for-playing-red-dead-redemption-2-1830016535](https://kotaku.com/tips-for-playing-red-dead-redemption-2-1830016535)
+> 原文：<https://kotaku.com/tips-for-playing-red-dead-redemption-2-1830016535>
 
 红色死亡救赎 2 是一个荒谬的大游戏，充满了秘密，系统和隐藏的惊喜。有可能只是通过玩来了解它是如何工作的，但是它的最初几个小时可能会让人不知所措，有点困惑。我是来帮忙的。
 

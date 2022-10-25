@@ -1,6 +1,6 @@
 # 立即预订 7 月 4 日的旅行，享受最优惠的价格
 
-> 原文:[https://life hacker . com/book-your-July-4-travel-now-for-the-best-deals-1834697315](https://lifehacker.com/book-your-july-4th-travel-now-for-the-best-deals-1834697315)
+> 原文：<https://lifehacker.com/book-your-july-4th-travel-now-for-the-best-deals-1834697315>
 
 如果你计划在 7 月 4 日离开，那么现在是开始寻找机票的时候了。
 

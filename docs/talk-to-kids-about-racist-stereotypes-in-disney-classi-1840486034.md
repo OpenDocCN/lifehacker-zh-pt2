@@ -1,6 +1,6 @@
 # 和孩子们谈论迪士尼+经典电影中的种族主义刻板印象
 
-> 原文:[https://life hacker . com/talk-to-kids-on-Disney-class I-1840486034](https://lifehacker.com/talk-to-kids-about-racist-stereotypes-in-disney-classi-1840486034)
+> 原文：<https://lifehacker.com/talk-to-kids-about-racist-stereotypes-in-disney-classi-1840486034>
 
 当 Disney+在 2019 年推出时，它的一些经典儿童电影附带了一个垒球警告，上面写着:“本节目以原创形式呈现。它可能包含过时的文化描述。”这种语言不仅不足以在迪士尼的许多老电影中对种族主义刻板印象进行分类，还在一定程度上被电影的描述或单独的“细节”标签所掩盖。但是现在，迪士尼将这些警告变得更加详细和突出，使父母能够利用它们作为一个机会，与年幼的孩子谈论种族主义和有问题的故事。
 

@@ -1,6 +1,6 @@
 # 为最后一分钟的旅行找到最便宜的目的地
 
-> 原文:[https://life hacker . com/find-the-checkey-destinations for the-last-minute-tri-1831047448](https://lifehacker.com/find-the-cheapest-destinations-for-that-last-minute-tri-1831047448)
+> 原文：<https://lifehacker.com/find-the-cheapest-destinations-for-that-last-minute-tri-1831047448>
 
 说到度假，我们都有那些我们知道自己想去的旅行目的地。也就是说，有时你也只需要离开一个长周末，几乎任何地方都可以。当然，任何不会让你倾家荡产的地方。
 

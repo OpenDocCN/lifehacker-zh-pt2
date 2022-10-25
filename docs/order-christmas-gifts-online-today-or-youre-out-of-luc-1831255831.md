@@ -1,6 +1,6 @@
 # 今天就在网上订购圣诞礼物，否则你就要倒霉了
 
-> 原文:[https://life hacker . com/order-Christmas-gifts-online-today-or-you-out-of-Luc-1831255831](https://lifehacker.com/order-christmas-gifts-online-today-or-youre-out-of-luc-1831255831)
+> 原文：<https://lifehacker.com/order-christmas-gifts-online-today-or-youre-out-of-luc-1831255831>
 
 如果你仍然需要在网上订购一些圣诞礼物，你可以在明天之前这样做，并在 25 号之前收到它们。
 

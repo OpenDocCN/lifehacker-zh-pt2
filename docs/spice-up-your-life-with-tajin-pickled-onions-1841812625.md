@@ -1,6 +1,6 @@
 # 用 Tajín 腌洋葱为你的生活增添情趣
 
-> 原文:[https://life hacker . com/spice-up-your-life with-tajin-腌渍洋葱-1841812625](https://lifehacker.com/spice-up-your-life-with-tajin-pickled-onions-1841812625)
+> 原文：<https://lifehacker.com/spice-up-your-life-with-tajin-pickled-onions-1841812625>
 
 快速泡菜基本上是调味品阳光:它们明亮、欢快，没有人会疯狂地去看它们。我认为腌制的红洋葱尤其如此，它改善了它们接触到的一切，而且对你的回报要求很少。如果你能把切片洋葱和调味醋混合在一起，你会得到一种多功能调味品，可以在冰箱里保存数周——如果不是数月的话。
 

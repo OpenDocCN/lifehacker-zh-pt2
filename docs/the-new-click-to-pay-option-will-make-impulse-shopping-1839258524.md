@@ -1,6 +1,6 @@
 # 新的“点击支付”选项将使网上冲动购物变得太容易了
 
-> 原文:[https://life hacker . com/the-new-click-to-pay-option-will-make-impulse-shopping-1839258524](https://lifehacker.com/the-new-click-to-pay-option-will-make-impulse-shopping-1839258524)
+> 原文：<https://lifehacker.com/the-new-click-to-pay-option-will-make-impulse-shopping-1839258524>
 
 你是否曾经花了一段时间浏览网站，将商品添加到购物车，但当你最终到达结账页面时，你决定不买了？也许你会重新考虑你是否真的需要这些东西。或者你的信用卡在隔壁房间，而你舒适惬意地躺在沙发上。
 

@@ -1,6 +1,6 @@
 # 确保您的 Google Play 音乐订阅未被取消
 
-> 原文:[https://life hacker . com/make-sure-your-Google-play-music-subscription-wasnt-can-1842860855](https://lifehacker.com/make-sure-your-google-play-music-subscription-wasnt-can-1842860855)
+> 原文：<https://lifehacker.com/make-sure-your-google-play-music-subscription-wasnt-can-1842860855>
 
 这里有一个奇怪的问题:许多人在许多年前注册了 Google Play Music，最初谷歌提供 8 美元/月作为“尽早注册”促销的一部分，他们发现自己的账户 [神秘地取消了](https://news.ycombinator.com/item?id=22864853)。这并不是谷歌据称非常愿意做的事情。
 

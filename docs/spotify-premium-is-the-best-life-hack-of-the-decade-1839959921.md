@@ -1,6 +1,6 @@
 # spotify premium is the best life hack of the decade 1839959921
 
-> 原文:[https://life hacker . com/Spotify-premium-is-the-best life-hack-of-the-decade-1839959921](https://lifehacker.com/spotify-premium-is-the-best-life-hack-of-the-decade-1839959921)
+> 原文：<https://lifehacker.com/spotify-premium-is-the-best-life-hack-of-the-decade-1839959921>
 
 让我们一直回溯到上个十年的末期。2009 年:在流媒体服务统治娱乐业之前，你必须 a)从在线商店(如 iTunes)购买这些产品，b)从实体店购买(还记得那些吗？)或者 c)挖掘你室友的音乐库，希望他们的 mp3 里已经有了*的孩子*。
 

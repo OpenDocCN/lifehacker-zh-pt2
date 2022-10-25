@@ -1,6 +1,6 @@
 # 想想你会存多少钱来偿还债务
 
-> 原文:[https://life hacker . com/think-on-how-amount-money-you-save-to-pay-off-debt-1833432083](https://lifehacker.com/think-about-how-much-money-youll-save-to-pay-off-debt-1833432083)
+> 原文：<https://lifehacker.com/think-about-how-much-money-youll-save-to-pay-off-debt-1833432083>
 
 有很多关于如何省钱和偿还债务的建议:思考你的储蓄将如何有益于你未来的自己，让它自动化，使用应用程序来简化这个过程，等等。但是，一项名为“数量和时间对跨期选择产生独立影响”的新研究——发表在 [*【自然人类行为*](https://www.nature.com/articles/s41562-019-0537-2)*——*上，表明一种简单的存钱方式是简单地关注你手头会有多少钱，而不是花多少时间存钱。
 

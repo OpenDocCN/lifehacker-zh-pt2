@@ -1,6 +1,6 @@
 # 你真的需要初级保健医生吗？
 
-> 原文:[https://life hacker . com/do-you-really-need-a-primary-care-doctor-1830182981](https://lifehacker.com/do-you-really-need-a-primary-care-doctor-1830182981)
+> 原文：<https://lifehacker.com/do-you-really-need-a-primary-care-doctor-1830182981>
 
 如果你年轻、健康且有点笨，你可以暂时不用初级保健医生(PCP)。但是随着时间的推移，你会有足够多的健康担忧，避免 PCP 会让你的生活变得更加复杂。以下是如何知道你什么时候达到了那个点:
 

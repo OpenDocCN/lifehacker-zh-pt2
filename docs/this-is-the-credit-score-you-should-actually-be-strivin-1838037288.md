@@ -1,6 +1,6 @@
 # 这是你应该努力争取的信用评分
 
-> 原文:[https://life hacker . com/this-is-the-credit-score-you-should-be-strivin-1838037288](https://lifehacker.com/this-is-the-credit-score-you-should-actually-be-strivin-1838037288)
+> 原文：<https://lifehacker.com/this-is-the-credit-score-you-should-actually-be-strivin-1838037288>
 
 每个人都想在某方面做到完美。但当涉及到你的信用评分时，那完美的 850 分可能不值得你焦虑。事实上，你的分数只要足够好就能打动贷款人。
 

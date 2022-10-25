@@ -1,6 +1,6 @@
 # 楼梯挑战怎么样？
 
-> 原文:[https://life hacker . com/how-was-the-stairs-challenge-1835156158](https://lifehacker.com/how-was-the-stairs-challenge-1835156158)
+> 原文：<https://lifehacker.com/how-was-the-stairs-challenge-1835156158>
 
 我们的 [楼梯挑战](https://vitals.lifehacker.com/this-months-fitness-challenge-theme-is-stairs-1834511269) 结束了，快告诉我们进展如何吧！你做了 [弓步下半身锻炼](https://vitals.lifehacker.com/how-to-get-a-leg-workout-with-just-a-set-of-stairs-1835008484) 吗？试试我们的 [阶梯难度越来越高的俯卧撑](https://vitals.lifehacker.com/get-better-at-push-ups-by-doing-them-on-stairs-1834847608) ？
 

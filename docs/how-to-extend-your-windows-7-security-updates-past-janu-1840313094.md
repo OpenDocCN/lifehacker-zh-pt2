@@ -1,6 +1,6 @@
 # 如何将您的 Windows 7 安全更新延长至 1 月以后
 
-> 原文:[https://life hacker . com/how-to-extend-your-windows-7-security-updates-past-janu-1840313094](https://lifehacker.com/how-to-extend-your-windows-7-security-updates-past-janu-1840313094)
+> 原文：<https://lifehacker.com/how-to-extend-your-windows-7-security-updates-past-janu-1840313094>
 
 现在还有人用 Windows 7 吗？绝对的。如果他们在来年的 1 月 14 日 之后还坚持使用 [，他们将不得不向微软支付费用以继续获得安全更新。大多数*人*不会(也不能)这样做，因为微软的付费安全更新](https://support.microsoft.com/en-us/help/4467761/windows-what-happens-when-windows-7-support-ends) [只面向企业](https://www.microsoft.com/microsoft-365/partners/news/article/announcing-paid-windows-7-extended-security-updates) ，但是一个聪明的小黑客允许普通人免费利用这项服务。
 

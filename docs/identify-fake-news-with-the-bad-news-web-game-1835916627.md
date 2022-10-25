@@ -1,6 +1,6 @@
 # 用“坏消息”网页游戏识别假新闻
 
-> 原文:[https://life hacker . com/identify-fake-news-with-the-bad-news-web-game-1835916627](https://lifehacker.com/identify-fake-news-with-the-bad-news-web-game-1835916627)
+> 原文：<https://lifehacker.com/identify-fake-news-with-the-bad-news-web-game-1835916627>
 
 去年 [我们告诉你坏消息](https://lifehacker.com/learn-about-fake-news-with-this-web-game-1823229554) ，这是一个网页游戏，通过让你扮演一个拖拖拉拉的媒体大亨来教你如何辨别错误信息。现在，游戏的创作者有证据表明游戏 [可以作为对抗错误信息](https://www.nature.com/articles/s41599-019-0279-9) 的“疫苗”——他们为孩子们创造了一个简化版本。
 

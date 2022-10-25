@@ -1,6 +1,6 @@
 # 使用此搜索工具查找国际航班的大幅折扣
 
-> 原文:[https://life hacker . com/find-deep-discounts-on-international-flights-using-this-1839740293](https://lifehacker.com/find-deep-discounts-on-international-flights-using-this-1839740293)
+> 原文：<https://lifehacker.com/find-deep-discounts-on-international-flights-using-this-1839740293>
 
 虽然旅行通常是我们提前几周或几个月计划好具体的旅行日期，但有时你只是知道你想去哪里，只要有意义，你就愿意去旅行。
 

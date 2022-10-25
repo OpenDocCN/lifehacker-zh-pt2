@@ -1,6 +1,6 @@
 # 馄饨皮是极好的面条
 
-> 原文:[https://life hacker . com/wonton-wrappers-make-excellent-noodles-1844929887](https://lifehacker.com/wonton-wrappers-make-excellent-noodles-1844929887)
+> 原文：<https://lifehacker.com/wonton-wrappers-make-excellent-noodles-1844929887>
 
 你可能知道，馄饨包装纸是薄而精致的面粉、水和鸡蛋，用于制作顶级食品，如油炸馄饨、馄饨汤和仰光螃蟹(仅举几个例子)。但是这些小方块可以很容易地放入煨汤、酱汁或普通的水中，做成一堆堆美味有弹性的小面条。
 

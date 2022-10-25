@@ -1,6 +1,6 @@
 # 使用“双语婴儿名字查找器”来帮你的孩子取名字
 
-> 原文:[https://life hacker . com/use-a-双语婴儿姓名查找工具-帮助-命名-你的-ki-1844955053](https://lifehacker.com/use-a-bilingual-baby-name-finder-to-help-name-your-ki-1844955053)
+> 原文：<https://lifehacker.com/use-a-bilingual-baby-name-finder-to-help-name-your-ki-1844955053>
 
 如果你和你的伴侣来自不同的语言背景，你可能会发现自己很难找到一个兼容两种语言的婴儿名字。Bemmu Sepponen 和他的伙伴发现自己正处于这样的境地，因为他们期待着他们的日裔芬兰儿子，并希望有一个两种语言都适用的名字。
 

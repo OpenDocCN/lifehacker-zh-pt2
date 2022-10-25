@@ -1,6 +1,6 @@
 # 万圣节去哪里买干冰
 
-> 原文:[https://life hacker . com/where-to-buy-the-dry-ice-for-Halloween-1829813359](https://lifehacker.com/where-to-buy-dry-ice-for-halloween-1829813359)
+> 原文：<https://lifehacker.com/where-to-buy-dry-ice-for-halloween-1829813359>
 
 万圣节绝对是我们向您展示的原因！绝对不是我们只是觉得这个单一服务的网站迷人古雅！这完全不是因为我们喜欢在 2018 年仍然有一个简单的、定期更新的网站做一件事情并且做得很好。不，我们贴这个是为了让你可以用干冰给你的鬼屋增加诡异的气氛！
 

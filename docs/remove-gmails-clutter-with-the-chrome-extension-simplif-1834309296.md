@@ -1,6 +1,6 @@
 # 使用 Chrome 扩展“简化”清除 Gmail 的混乱
 
-> 原文:[https://life hacker . com/remove-gmails-clutter-with-the-chrome-extension-simplif-1834309296](https://lifehacker.com/remove-gmails-clutter-with-the-chrome-extension-simplif-1834309296)
+> 原文：<https://lifehacker.com/remove-gmails-clutter-with-the-chrome-extension-simplif-1834309296>
 
 有时，最好的黑客是最简单的。毫不奇怪，Chrome 扩展 [**Simplify**](https://chrome.google.com/webstore/detail/simplify-gmail/pbmlfaiicoikhdbjagjbglnbfcbcojpj) 是我的新宠之一，因为它将所有杂乱的东西都放入了 Gmail 和灭霸，让它们湮没无闻。
 

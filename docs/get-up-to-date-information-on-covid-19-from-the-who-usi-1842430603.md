@@ -1,6 +1,6 @@
 # 使用 WhatsApp 从世卫组织获取新冠肺炎的最新信息
 
-> 原文:[https://life hacker . com/get-up-to-date-on-the-who-usi-1842430603](https://lifehacker.com/get-up-to-date-information-on-covid-19-from-the-who-usi-1842430603)
+> 原文：<https://lifehacker.com/get-up-to-date-information-on-covid-19-from-the-who-usi-1842430603>
 
 随着信息的快速变化，很难找到最新和最新的新冠肺炎信息。今天，世界卫生组织通过 WhatsApp 宣布了一个新的健康警报系统。这项免费服务旨在帮助回答公众可能对冠状病毒的一些疑问。一天 24 小时都有。
 

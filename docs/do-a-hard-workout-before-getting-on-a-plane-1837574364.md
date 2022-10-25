@@ -1,6 +1,6 @@
 # 登机前做一次艰苦的锻炼
 
-> 原文:[https://life hacker . com/do-a-hard-workout before-on-a-get-on-a-plan-1837574364](https://lifehacker.com/do-a-hard-workout-before-getting-on-a-plane-1837574364)
+> 原文：<https://lifehacker.com/do-a-hard-workout-before-getting-on-a-plane-1837574364>
 
 在繁忙的旅行日，我最不想做的事情往往是增加另一项准备任务。但是在一次 采访中，Allbirds 的创始人透露，他最好的旅行建议是在飞行前锻炼。他的逻辑是合理的:
 

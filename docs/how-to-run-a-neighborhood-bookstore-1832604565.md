@@ -1,6 +1,6 @@
 # 如何经营一家邻里书店
 
-> 原文:[https://life hacker . com/how-to-run-a-neighborhood-book store-1832604565](https://lifehacker.com/how-to-run-a-neighborhood-bookstore-1832604565)
+> 原文：<https://lifehacker.com/how-to-run-a-neighborhood-bookstore-1832604565>
 
 即使我们每天花更多的时间盯着屏幕，在亚马逊上买更多的东西，独立书店的 [书籍销量实际上在上升](https://fee.org/articles/as-independent-bookstores-make-a-comeback-e-book-sales-take-a-dive/) 。小说家艾玛·富斯科-施特劳布和她的丈夫迈克在 2017 年开设了鹅卵石山书店 Books is Magic，从那以后每天都吸引着顾客，后面是迷人的儿童房间，前面是整洁时尚的成人收藏，以及每夜的阅读，签名和其他活动。在上面的视频中，我们和 Emma 讨论了如何把当地的书店变成一个社区聚会点。
 

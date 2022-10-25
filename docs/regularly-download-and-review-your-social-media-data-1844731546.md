@@ -1,6 +1,6 @@
 # 定期下载和查看你的社交媒体数据
 
-> 原文:[https://life hacker . com/regularly-download-and-review-your-social-media-data-1844731546](https://lifehacker.com/regularly-download-and-review-your-social-media-data-1844731546)
+> 原文：<https://lifehacker.com/regularly-download-and-review-your-social-media-data-1844731546>
 
 以为那个尴尬的 Instagram 帖子的数据在你删除了、之后就丢了像数字雨里的眼泪？再想想。
 

@@ -1,6 +1,6 @@
 # 如何引起酒保的注意而不显得自己是个混蛋
 
-> 原文:[https://life hacker . com/how-to-get-a-a-调酒师注意-而不是一个混蛋-1838220196](https://lifehacker.com/how-to-get-a-bartenders-attention-without-being-a-jerk-1838220196)
+> 原文：<https://lifehacker.com/how-to-get-a-bartenders-attention-without-being-a-jerk-1838220196>
 
 人们喜欢在酒吧喝酒，因为那里有酒。但是，在好酒吧的情况下，那里也是人多的地方，这意味着你可能不会总是像你认为你应该的那样很快得到你的饮料。
 

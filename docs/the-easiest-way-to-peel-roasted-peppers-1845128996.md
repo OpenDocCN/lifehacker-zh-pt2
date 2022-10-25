@@ -1,6 +1,6 @@
 # 剥烤辣椒最简单的方法
 
-> 原文:[https://life hacker . com/the-easy-way to-peel-baked-peppers-1845128996](https://lifehacker.com/the-easiest-way-to-peel-roasted-peppers-1845128996)
+> 原文：<https://lifehacker.com/the-easiest-way-to-peel-roasted-peppers-1845128996>
 
 烤红辣椒丝滑香甜，但是坚韧、片状、烧焦的果皮，可以说，并没有给餐桌带来多少东西。而且，即使它们没有那么坚韧的薄皮，它们也经常会剥落，碎成烧焦的植物物质的小黑点，你可能不会觉得特别有吸引力。幸运的是，烤辣椒非常容易剥皮——你只需要把它们盖上一会儿。
 

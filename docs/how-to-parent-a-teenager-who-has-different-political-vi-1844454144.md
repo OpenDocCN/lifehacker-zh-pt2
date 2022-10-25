@@ -1,6 +1,6 @@
 # how to parent a teenager who has different political vi 1844454144
 
-> 原文:[https://life hacker . com/how-to-parent-a-青少年谁有不同的政治-vi-1844454144](https://lifehacker.com/how-to-parent-a-teenager-who-has-different-political-vi-1844454144)
+> 原文：<https://lifehacker.com/how-to-parent-a-teenager-who-has-different-political-vi-1844454144>
 
 直到几年前，阿比盖尔·里德的政治观点和她父母的一致。她理解他们的观点，并遵从他们的观点。然后，里德，一个来自印第安纳波利斯的高中毕业生，几周后就要上大学了，开始为自己考虑。她开始与有不同想法的人交谈，并做自己的研究。结果是跳到了意识形态的另一边。她的新政治立场在里德宅院不受欢迎；它造成了摩擦和紧张的沉默时期。
 

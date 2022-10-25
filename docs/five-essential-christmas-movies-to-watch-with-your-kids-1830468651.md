@@ -1,6 +1,6 @@
 # 五部和孩子一起看的重要圣诞电影
 
-> 原文:[https://life hacker . com/five-essential-Christmas-movies-to-watch-with-your-kids-1830468651](https://lifehacker.com/five-essential-christmas-movies-to-watch-with-your-kids-1830468651)
+> 原文：<https://lifehacker.com/five-essential-christmas-movies-to-watch-with-your-kids-1830468651>
 
 假期即将来临，这意味着你有机会围坐在电视机前，和你的孩子一起看圣诞电影！但是外面有太多了。而且大部分都很糟糕。
 

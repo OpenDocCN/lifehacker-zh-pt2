@@ -1,6 +1,6 @@
 # 即使你听不到，免下车服务的工作人员也能听到你的声音
 
-> 原文:[https://life hacker . com/drive-thru-workers-can-head-you-even-when-you-can-can-can-head-when-you-can-can-can-can-can-you-can-can-can-you-can-t-head-1833264877](https://lifehacker.com/drive-thru-workers-can-hear-you-even-when-you-cant-hear-1833264877)
+> 原文：<https://lifehacker.com/drive-thru-workers-can-hear-you-even-when-you-cant-hear-1833264877>
 
 你的车可能看起来像一个私人世界，在那里你可以放屁，与家人争吵，或者抱怨在免下车窗口的等待；实际上，每个戴着耳机的人都能听到你的声音。
 

@@ -1,6 +1,6 @@
 # im abu zafar lifehacker video producer and this is ho 1837869388
 
-> 原文:[https://life hacker . com/im-Abu-Zafar-life hacker-video-producer-and-this-is-ho-1837869388](https://lifehacker.com/im-abu-zafar-lifehacker-video-producer-and-this-is-ho-1837869388)
+> 原文：<https://lifehacker.com/im-abu-zafar-lifehacker-video-producer-and-this-is-ho-1837869388>
 
 每周，我们都会分享我们最喜欢的专家的快捷方式、工作空间和生产力提示。本周，我们将来到 Lifehacker 的幕后。我是阿布·扎法尔，这就是我的工作方式。
 

@@ -1,6 +1,6 @@
 # 跑步时如何携带手机
 
-> 原文:[https://life hacker . com/how-to-carry-your-phone-when-you-run-1835321893](https://lifehacker.com/how-to-carry-your-phone-when-you-run-1835321893)
+> 原文：<https://lifehacker.com/how-to-carry-your-phone-when-you-run-1835321893>
 
 你已经有了一双好鞋，一个有支撑力的运动胸罩(如果需要的话)，和一些舒适的衣服。但是，当你出门跑步时，还有一个与着装相关的问题需要解决:把手机放在哪里。
 

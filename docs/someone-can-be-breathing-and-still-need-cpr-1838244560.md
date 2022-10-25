@@ -1,6 +1,6 @@
 # 有人可以呼吸，但仍然需要心肺复苏术
 
-> 原文:[https://life hacker . com/someone-can-be-breathing and still-need-CPR-1838244560](https://lifehacker.com/someone-can-be-breathing-and-still-need-cpr-1838244560)
+> 原文：<https://lifehacker.com/someone-can-be-breathing-and-still-need-cpr-1838244560>
 
 我上过一些 CPR 课程，我承认我带着一个错误的印象离开了，那就是一个需要 CPR 的人会没有反应，甚至完全不呼吸。但是心脏骤停的一个常见症状是 [濒死呼吸](https://www.medicalnewstoday.com/articles/321974.php) ，这看起来像是人在喘气或打鼾。
 

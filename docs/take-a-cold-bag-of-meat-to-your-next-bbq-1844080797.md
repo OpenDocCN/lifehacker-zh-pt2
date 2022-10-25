@@ -1,6 +1,6 @@
 # 带一袋冷肉去你的下一次烧烤
 
-> 原文:[https://life hacker . com/take-a-a-cold-bag-of-meat-to-your next-BBQ-1844080797](https://lifehacker.com/take-a-cold-bag-of-meat-to-your-next-bbq-1844080797)
+> 原文：<https://lifehacker.com/take-a-cold-bag-of-meat-to-your-next-bbq-1844080797>
 
 几乎不可能在没有人提起“湿包”的情况下谈论真空辅助烹饪“我不喜欢看起来像刚从湿袋子里拿出来的食物，”他们说。"我只是不觉得用湿袋子吃饭的想法有什么吸引力。"这些句子并不荒谬，但它们有点傻，因为任何有一定腌制经验的人都知道，你必须用某种其他热源来完成腌制肉。烤架很好用。
 

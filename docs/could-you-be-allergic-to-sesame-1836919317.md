@@ -1,6 +1,6 @@
 # 你会对芝麻过敏吗？
 
-> 原文:[https://life hacker . com/你会对芝麻过敏吗-1836919317](https://lifehacker.com/could-you-be-allergic-to-sesame-1836919317)
+> 原文：<https://lifehacker.com/could-you-be-allergic-to-sesame-1836919317>
 
 食品标签上必须列出八种过敏原:牛奶、大豆、鸡蛋、坚果、花生、小麦、鱼和贝类。但是新的研究表明，芝麻过敏比某些种类的树坚果过敏更常见。
 

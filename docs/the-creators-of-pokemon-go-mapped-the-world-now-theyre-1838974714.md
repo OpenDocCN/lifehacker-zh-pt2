@@ -1,6 +1,6 @@
 # the creators of pokemon go mapped the world now theyre 1838974714
 
-> 原文:[https://kotaku . com/the-creators-of-pokemon-go-mapped-the-world-now-they re-1838974714](https://kotaku.com/the-creators-of-pokemon-go-mapped-the-world-now-theyre-1838974714)
+> 原文：<https://kotaku.com/the-creators-of-pokemon-go-mapped-the-world-now-theyre-1838974714>
 
 《哈利·波特:巫师团结》是《T2》背后公司的最新游戏，玩家可以利用童年的魔法来对抗怪物，并在当地社区收集闪闪发光的数字物品。Niantic 的应用程序当然鼓励游戏玩家到户外活动，但在幕后，*巫师联合会*正在悄悄地施展另一种法术:收集大量关于你去哪里的数据。
 

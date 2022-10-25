@@ -1,6 +1,6 @@
 # 经销商最新的网上购车策略让“喊价”相形见绌
 
-> 原文:[https://jalopnik . com/dealerships-latest-online-car-shopping-tactic-puts-call-1832390695](https://jalopnik.com/dealerships-latest-online-car-shopping-tactic-puts-call-1832390695)
+> 原文：<https://jalopnik.com/dealerships-latest-online-car-shopping-tactic-puts-call-1832390695>
 
 网上购车应该不难，但一些经销商继续破坏这一过程。更令人沮丧的 [短语之一是当经销商在他们的广告](https://jalopnik.com/heres-what-call-for-price-on-a-dealers-website-really-m-1820001720) 上放“要价”，但我发现了一个新的更糟糕的短语:“要价里程”
 

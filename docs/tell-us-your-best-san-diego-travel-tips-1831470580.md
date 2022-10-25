@@ -1,6 +1,6 @@
 # 告诉我们你最好的圣地亚哥旅行建议
 
-> 原文:[https://life hacker . com/tell-us-your-best-San-Diego-travel-tips-1831470580](https://lifehacker.com/tell-us-your-best-san-diego-travel-tips-1831470580)
+> 原文：<https://lifehacker.com/tell-us-your-best-san-diego-travel-tips-1831470580>
 
 当有人说“在这部电影中，这座城市就像另一个角色”，他们通常不是指*主持人*。本周,《黑客你的城市》来到圣地亚哥，这个城市现在听起来确实很舒服。看看他们的——我的公寓气候更不稳定。好的，你对去圣地亚哥旅游和生活有什么最好的建议？
 

@@ -1,6 +1,6 @@
 # 如果你怀孕了，你需要打这两针
 
-> 原文:[https://life hacker . com/if-you-further-you-need-this-two-shots-1838939067](https://lifehacker.com/if-youre-pregnant-you-need-these-two-shots-1838939067)
+> 原文：<https://lifehacker.com/if-youre-pregnant-you-need-these-two-shots-1838939067>
 
 没有足够多的人知道在每次怀孕期间注射 TDaP 疫苗和流感疫苗的重要性。这些疫苗可以在婴儿出生后的头几个月保护他们免受流感和百日咳的侵害，因为那时他们还太小，不能自己接种这些疫苗。
 

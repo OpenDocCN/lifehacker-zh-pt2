@@ -1,6 +1,6 @@
 # 如何反对对 SNAP 资格的拟议更改
 
-> 原文:[https://life hacker . com/how-to-object-to-proposed-changes-to-snap-eligibility-1836632036](https://lifehacker.com/how-to-object-to-proposed-changes-to-snap-eligibility-1836632036)
+> 原文：<https://lifehacker.com/how-to-object-to-proposed-changes-to-snap-eligibility-1836632036>
 
 像食品券这样的政府福利项目是为了帮助你重新站起来。但是，如果一项新的规则得到批准，从福利到自给自足的转变可能会变得更加困难。
 

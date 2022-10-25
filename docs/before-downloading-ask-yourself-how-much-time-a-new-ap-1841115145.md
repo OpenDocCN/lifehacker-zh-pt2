@@ -1,6 +1,6 @@
 # 在下载之前，问问自己一个新的应用程序会占用你多少时间
 
-> 原文:[https://life hacker . com/before-download-ask-yourself-how-time-a-new-AP-1841115145](https://lifehacker.com/before-downloading-ask-yourself-how-much-time-a-new-ap-1841115145)
+> 原文：<https://lifehacker.com/before-downloading-ask-yourself-how-much-time-a-new-ap-1841115145>
 
 我不在抖音。即使是作为一个不经意的观察者。这些天，我也没有在 Instagram 或脸书上花太多时间。我确实有一个 Twitter 账户，虽然 [现在是只写的](https://lifehacker.com/how-to-curb-your-twitter-addiction-1840927690)；我也是职业和社交松弛的一部分，在后一种情况下，我故意把自己限制在少数可用的渠道。
 

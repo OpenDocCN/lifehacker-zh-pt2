@@ -1,6 +1,6 @@
 # 如果你住的酒店超额预定，该怎么办
 
-> 原文:[https://life hacker . com/1839329839](https://lifehacker.com/what-to-do-if-your-hotel-is-overbooked-1839329839)
+> 原文：<https://lifehacker.com/what-to-do-if-your-hotel-is-overbooked-1839329839>
 
 当一家航空公司超额预订航班时，他们会用金钱、餐饮或过夜酒店住宿来诱惑乘客，以此作为避免非自愿撞击乘客的最后努力。但是超额预订的酒店如何应对同样的问题呢？
 

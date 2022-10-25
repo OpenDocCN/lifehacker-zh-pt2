@@ -1,6 +1,6 @@
 # 如何将任何安卓智能手机变成谷歌 Pixel
 
-> 原文:[https://life hacker . com/how-to-turn-any-Android-smart phone-to-a-Google-pixel-1833921883](https://lifehacker.com/how-to-turn-any-android-smartphone-into-a-google-pixel-1833921883)
+> 原文：<https://lifehacker.com/how-to-turn-any-android-smartphone-into-a-google-pixel-1833921883>
 
 Android 的灵活性意味着制造商可以构建自己的操作系统版本来适应他们的硬件，但谷歌设备上常见的 Android 体验有一种优雅——这是其他 Android 智能手机无法比拟的。
 

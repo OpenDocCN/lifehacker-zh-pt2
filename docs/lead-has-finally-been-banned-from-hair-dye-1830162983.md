@@ -1,6 +1,6 @@
 # 铅最终被禁止用于染发剂
 
-> 原文:[https://life hacker . com/lead-has-finally-be-banted-from-hair-dye-1830162983](https://lifehacker.com/lead-has-finally-been-banned-from-hair-dye-1830162983)
+> 原文：<https://lifehacker.com/lead-has-finally-been-banned-from-hair-dye-1830162983>
 
 你不希望你的水、食物或个人护理产品中含有铅。但直到最近，美国食品和药物管理局才允许在一种这样的产品中使用醋酸铅，一种特定类型的染发剂，因为以前的研究发现醋酸铅不会从头发迁移到血液中。本周，他们改变了主意。
 

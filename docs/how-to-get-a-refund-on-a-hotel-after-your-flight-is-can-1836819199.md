@@ -1,6 +1,6 @@
 # 如何在航班取消或延误后获得酒店退款
 
-> 原文:[https://life hacker . com/how-to-get-a-return-on-a-hotel-after-your-flight-is-can-1836819199](https://lifehacker.com/how-to-get-a-refund-on-a-hotel-after-your-flight-is-can-1836819199)
+> 原文：<https://lifehacker.com/how-to-get-a-refund-on-a-hotel-after-your-flight-is-can-1836819199>
 
 6 月， [美国航空](https://www.businessinsider.com/american-airlines-flight-cancellations-vs-other-airlines-2019-7) 因恶劣天气、机械问题、波音 737 Max 飞机停飞等原因，被迫取消 7500 个航班。这些取消加在一起，占了该航空公司当月全部航班时间表的 4%——可能会让很多旅客对酒店预订等其他安排感到恼火。
 

@@ -1,6 +1,6 @@
 # 使用 Github 的学生开发包，获得高达 45，000 美元的免费开发工具
 
-> 原文:[https://life hacker . com/get-up-to-45-000-in-free-developer-tools-with-githubs-1837411051](https://lifehacker.com/get-up-to-45-000-in-free-developer-tools-with-githubs-1837411051)
+> 原文：<https://lifehacker.com/get-up-to-45-000-in-free-developer-tools-with-githubs-1837411051>
 
 GitHub 刚刚公布了 2019 年的 GitHub 学生开发者包，如果你是一名有兴趣成为开发者的学生，非常值得一看。
 

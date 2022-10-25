@@ -1,6 +1,6 @@
 # 如何回收家庭清洁用品和危险化学品
 
-> 原文:[https://life hacker . com/how-to-recycle-home-cleaning-products-and-hazardou-1837240942](https://lifehacker.com/how-to-recycle-household-cleaning-products-and-hazardou-1837240942)
+> 原文：<https://lifehacker.com/how-to-recycle-household-cleaning-products-and-hazardou-1837240942>
 
 当有害化学物质被倾倒在垃圾填埋场或水道中时，它对环境和我们的健康有很大的危害，这应该是不足为奇的。Ju st 上周，六个州起诉 [环保局](https://thehill.com/policy/energy-environment/456560-epa-sued-over-decision-to-allow-use-of-pesticide-tied-to-brain) 允许继续使用一种杀虫剂，这种杀虫剂会对人类产生严重影响——比如脑损伤。
 

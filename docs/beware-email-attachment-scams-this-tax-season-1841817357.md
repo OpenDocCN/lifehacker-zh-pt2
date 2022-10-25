@@ -1,6 +1,6 @@
 # 警惕电子邮件附件诈骗
 
-> 原文:[https://life hacker . com/feel-email-attachment-scams-this-tax-season-1841817357](https://lifehacker.com/beware-email-attachment-scams-this-tax-season-1841817357)
+> 原文：<https://lifehacker.com/beware-email-attachment-scams-this-tax-season-1841817357>
 
 在家舒舒服服地做税务工作是如此容易。即使你和一个报税员一起工作，而不是使用许多在线选项中的一个，你也几乎不需要再打电话了。当面预约？不会吧。只需在网上快速发送你的表格，你的税务专家会处理剩下的事情。
 

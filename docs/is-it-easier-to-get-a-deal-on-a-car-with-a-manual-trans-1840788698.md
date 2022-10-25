@@ -1,6 +1,6 @@
 # 手动挡的车更容易成交吗？
 
-> 原文:[https://jalopnik . com/is-it-easy-get-a-deal-on-a-manual-trans-1840788698](https://jalopnik.com/is-it-easier-to-get-a-deal-on-a-car-with-a-manual-trans-1840788698)
+> 原文：<https://jalopnik.com/is-it-easier-to-get-a-deal-on-a-car-with-a-manual-trans-1840788698>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。我决定挑几个问题，试着帮帮大家。本周我们讨论手动变速器车型的交易，这是一款新车，有着便宜但快速的宝马的问题和想法。
 

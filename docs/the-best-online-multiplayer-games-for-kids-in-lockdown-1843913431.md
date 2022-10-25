@@ -1,6 +1,6 @@
 # 锁定状态下儿童的最佳在线多人游戏
 
-> 原文:[https://life hacker . com/the-best-online-multiplayer-games-for-kids-in-lockdown-1843913431](https://lifehacker.com/the-best-online-multiplayer-games-for-kids-in-lockdown-1843913431)
+> 原文：<https://lifehacker.com/the-best-online-multiplayer-games-for-kids-in-lockdown-1843913431>
 
 如果您的孩子厌倦了基于锁定的隔离、单人游戏以及不与朋友互动，那么是时候帮助他们上网玩游戏了。为此，我列出了我最喜欢的五个浪费时间的人，你的孩子可以虚拟地和他们的朋友一起玩——外加一个奖励，一个有趣的经典选择。
 

@@ -1,6 +1,6 @@
 # 在全国冰淇淋日去哪里买冰淇淋
 
-> 原文:[https://life hacker . com/where-to-get-ice-cream-deals-on-national-ice cream-day-1844418020](https://lifehacker.com/where-to-get-ice-cream-deals-on-national-ice-cream-day-1844418020)
+> 原文：<https://lifehacker.com/where-to-get-ice-cream-deals-on-national-ice-cream-day-1844418020>
 
 在这一点上，似乎每个人，食物和无生命的物体都有自己的国庆节。虽然这看起来毫无意义，也很难跟踪，但有些日子(比如今天，7 月 19 日)让这些废话变得有价值。因为今天是全国冰淇淋日，我们可以买到今天的美味冰镇食品。这里是找到它们的地方。
 

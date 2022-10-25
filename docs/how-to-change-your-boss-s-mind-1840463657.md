@@ -1,6 +1,6 @@
 # 如何改变老板的想法
 
-> 原文:[https://life hacker . com/how-to-change-your-boss-s-mind-1840463657](https://lifehacker.com/how-to-change-your-boss-s-mind-1840463657)
+> 原文：<https://lifehacker.com/how-to-change-your-boss-s-mind-1840463657>
 
 许多关于说服的建议都假定了一种相对平等的权力动态。但有时你需要说服比你级别高的人:你的老板、他们的老板、项目负责人。为此，你需要四个具体的策略:专注于共同的目标，进入一个中立的空间，让他们与你一起建立你的案例，并知道你的下一步。只要参与者有一些共同的基础，这种方法在工作场所或任何层级组织中都是有效的。
 

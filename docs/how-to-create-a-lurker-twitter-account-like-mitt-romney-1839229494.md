@@ -1,6 +1,6 @@
 # 如何创建一个像米特·罗姆尼一样的潜伏者 Twitter 账户
 
-> 原文:[https://life hacker . com/how-to-create-a-lurker-Twitter-account-like-mitt-Romney-1839229494](https://lifehacker.com/how-to-create-a-lurker-twitter-account-like-mitt-romney-1839229494)
+> 原文：<https://lifehacker.com/how-to-create-a-lurker-twitter-account-like-mitt-romney-1839229494>
 
 如果你在推特上，你可能听说过参议员米特·罗姆尼的秘密推特账户 ，在这个账户中，他称自己为“皮埃尔·德莱克托”，并跟踪他的孩子、记者、政治伙伴和一些名人。
 

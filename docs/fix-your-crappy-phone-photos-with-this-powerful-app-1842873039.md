@@ -1,6 +1,6 @@
 # 用这个强大的应用程序修复你的垃圾手机照片
 
-> 原文:[https://life hacker . com/fix-your ' s lappy-photos-with this-powerful-app-1842873039](https://lifehacker.com/fix-your-crappy-phone-photos-with-this-powerful-app-1842873039)
+> 原文：<https://lifehacker.com/fix-your-crappy-phone-photos-with-this-powerful-app-1842873039>
 
 你手机的摄像头比以往任何时候都更强大，但它远非万无一失。总是令人沮丧的是认为你已经排好了完美的镜头，却发现你的相机胶卷和发现你搞砸了一些东西——你的构图，你的白平衡，或者谁知道什么——你捕捉到了一个不太完美的瞬间，一去不复返了。
 

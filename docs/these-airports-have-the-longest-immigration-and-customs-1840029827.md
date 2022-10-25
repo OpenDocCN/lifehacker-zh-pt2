@@ -1,6 +1,6 @@
 # 这些机场在感恩节期间拥有最长的移民和海关队伍
 
-> 原文:[https://life hacker . com/these-airports-拥有最长的移民和海关-1840029827](https://lifehacker.com/these-airports-have-the-longest-immigration-and-customs-1840029827)
+> 原文：<https://lifehacker.com/these-airports-have-the-longest-immigration-and-customs-1840029827>
 
 如果你在感恩节假期旅行，这里有一个建议:在机场给自己足够的时间。与每年的情况一样，这个感恩节假期将是 2019 年最繁忙的旅行日之一— [AAA](https://newsroom.aaa.com/2019/11/aaa-more-than-55-million-travelers-taking-to-the-roads-and-skies-this-thanksgiving/) 估计，仅本周四就有 445 万美国人将乘坐飞机。根据 [今日美国](https://www.usatoday.com/picture-gallery/travel/airline-news/2019/11/23/thanksgiving-travel-airports-shortest-and-longest-customs-lines/4272718002/) 报道，不出所料，来自海外的入境游客也往往在感恩节前后激增。
 

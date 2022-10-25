@@ -1,6 +1,6 @@
 # 口罩如何保护我们免受冠状病毒的侵害
 
-> 原文:[https://life hacker . com/how-masks-protect-us-from-the-coronavirus-1844220877](https://lifehacker.com/how-masks-protect-us-from-the-coronavirus-1844220877)
+> 原文：<https://lifehacker.com/how-masks-protect-us-from-the-coronavirus-1844220877>
 
 面具保护我们。在这一点上，这不应该是一个惊喜，但是因为关于面具的作用有太多的困惑，而且有 [很多关于它们的神话](https://lifehacker.com/no-wearing-a-mask-isnt-dangerous-1843685109)，是时候复习一下了。
 

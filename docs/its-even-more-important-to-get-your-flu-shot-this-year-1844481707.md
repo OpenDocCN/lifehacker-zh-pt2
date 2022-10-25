@@ -1,6 +1,6 @@
 # 今年接种流感疫苗更为重要
 
-> 原文:[https://life hacker . com/its-更重要的是今年要打流感疫苗-1844481707](https://lifehacker.com/its-even-more-important-to-get-your-flu-shot-this-year-1844481707)
+> 原文：<https://lifehacker.com/its-even-more-important-to-get-your-flu-shot-this-year-1844481707>
 
 我 [在一月份](https://vitals.lifehacker.com/if-youre-worried-about-coronavirus-get-your-flu-shot-1841201798) 告诉过你们:如果你担心冠状病毒——那时它还没有在美国出现，但人们已经吓坏了——利用这种紧张的情绪，离开你的屁股，去注射该死的流感疫苗。既然新冠肺炎已经在这里呆了，我再说一遍:去打你那该死的流感疫苗。现在更重要了。
 

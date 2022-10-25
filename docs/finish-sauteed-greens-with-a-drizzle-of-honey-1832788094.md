@@ -1,6 +1,6 @@
 # 用少量蜂蜜完成炒青菜
 
-> 原文:[https://life hacker . com/finish-sadeed-greens-with a-毛毛雨-of-melt-1832788094](https://lifehacker.com/finish-sauteed-greens-with-a-drizzle-of-honey-1832788094)
+> 原文：<https://lifehacker.com/finish-sauteed-greens-with-a-drizzle-of-honey-1832788094>
 
 苦味通常被认为是不受欢迎的，但一点点苦味可以给原本只有一个音符的盘子带来美味的细微差别。苦涩的青菜在搭配油腻、咸的菜肴时特别受欢迎，让它们爆开的最好方法是淋上一点蜂蜜。
 

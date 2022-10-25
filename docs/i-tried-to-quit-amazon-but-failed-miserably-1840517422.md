@@ -1,6 +1,6 @@
 # i tried to quit amazon but failed miserably 1840517422
 
-> 原文:[https://life hacker . com/I-tryed-to-quit-Amazon-but-failed-惨-1840517422](https://lifehacker.com/i-tried-to-quit-amazon-but-failed-miserably-1840517422)
+> 原文：<https://lifehacker.com/i-tried-to-quit-amazon-but-failed-miserably-1840517422>
 
 当我去年发现亚马逊 Prime 的年费将从 99 美元涨到 119 美元时，我开始思考我是否可以没有这项服务。
 

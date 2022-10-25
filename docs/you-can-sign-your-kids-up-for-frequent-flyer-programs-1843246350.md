@@ -1,6 +1,6 @@
 # 你可以让你的孩子参加飞行常客计划
 
-> 原文:[https://life hacker . com/you-can-sign-your-kids-up-for-frequent flyer-programs-1843246350](https://lifehacker.com/you-can-sign-your-kids-up-for-frequent-flyer-programs-1843246350)
+> 原文：<https://lifehacker.com/you-can-sign-your-kids-up-for-frequent-flyer-programs-1843246350>
 
 常旅客计划提供多种额外待遇，包括优先登机、升级、休息室使用权等。但即使是最经常旅行的人有时也不会意识到这些计划的好处不仅仅是给成年人的——儿童也有资格积累常旅客积分。
 

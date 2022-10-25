@@ -1,6 +1,6 @@
 # 这个假期给孩子们最好的 STEM 礼物
 
-> 原文:[https://life hacker . com/the-best-stem-gifts-for-kids-this-holiday-season-1840239533](https://lifehacker.com/the-best-stem-gifts-for-kids-this-holiday-season-1840239533)
+> 原文：<https://lifehacker.com/the-best-stem-gifts-for-kids-this-holiday-season-1840239533>
 
 每年的这个时候，人们可能会觉得购买节日玩具有点失控。我们希望看到我们的孩子在圣诞节早上脸上放光，但我们不想淹没在塑料的海洋中来实现这一点。这就是为什么在组合中加入一些 STEM 玩具可以成为一个很好的中间地带。孩子们天生好奇，喜欢涉猎科学、技术、工程和数学；父母们喜欢感觉好像他们的玩具中至少有一些具有教育价值。
 

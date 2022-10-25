@@ -1,6 +1,6 @@
 # 这是你下次旅行的电子装箱单
 
-> 原文:[https://life hacker . com/heres-your-digital-packing-list-for-your ' s next trip-1833526629](https://lifehacker.com/heres-your-digital-packing-list-for-your-next-trip-1833526629)
+> 原文：<https://lifehacker.com/heres-your-digital-packing-list-for-your-next-trip-1833526629>
 
 有一份现实世界物品的装箱单是很好的，可以确保你不会忘记你的内衣或牙刷，但是一份数字装箱单怎么样呢？在旅行之前，确保你有这些电子必需品，这样互联网信号就不会让你困惑或束手无策。
 

@@ -1,6 +1,6 @@
 # 如何在 Android 上安装最好的火狐扩展
 
-> 原文:[https://life hacker . com/how-to-install-the-best-Firefox-extensions-on-Android-1842922161](https://lifehacker.com/how-to-install-the-best-firefox-extensions-on-android-1842922161)
+> 原文：<https://lifehacker.com/how-to-install-the-best-firefox-extensions-on-android-1842922161>
 
 “ [火狐预览版](https://lifehacker.com/everything-you-need-to-know-about-firefox-preview-on-an-1835950429) 、“火狐的重建版 Android app、的开发一直在沿着平稳地前进，本周它最好的功能之一得到了的大幅更新。
 

@@ -1,6 +1,6 @@
 # 与闪亮的美男子共度漫长的周末
 
-> 原文:[https://life hacker . com/与闪闪发光的阿多尼斯共度漫长的周末-1844948873](https://lifehacker.com/spend-your-long-weekend-with-a-sparkling-adonis-1844948873)
+> 原文：<https://lifehacker.com/spend-your-long-weekend-with-a-sparkling-adonis-1844948873>
 
 好吧好吧好吧，如果这不是另一个“假日周末”，实际上并不像一个假日，因为我们正处于多重危机之中，烧烤和聚会似乎是一个陈腐的复古习俗，我们可能永远不会再参加。
 

@@ -1,6 +1,6 @@
 # 这个夏天读什么书
 
-> 原文:[https://life hacker . com/what-books-to-read-this-summer-1835127823](https://lifehacker.com/what-books-to-read-this-summer-1835127823)
+> 原文：<https://lifehacker.com/what-books-to-read-this-summer-1835127823>
 
 夏季书籍的最佳形式是平装本:在明亮的阳光下可读，轻到可以放进袋子里，便宜到可以用草、沙子和水毁掉。但无论你以何种形式阅读，以下是 Lifehacker 的工作人员今年夏天推荐的书籍。
 

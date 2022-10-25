@@ -1,6 +1,6 @@
 # 如何在日本不做混蛋
 
-> 原文:[https://life hacker . com/how-not-to-be-a-jerk-in-Japan-1833724453](https://lifehacker.com/how-not-to-be-a-jerk-in-japan-1833724453)
+> 原文：<https://lifehacker.com/how-not-to-be-a-jerk-in-japan-1833724453>
 
 在我最近一次去日本之前，我做了同样的强迫性研究，我总是在看医生或面试之前做。不幸的是，这通常意味着我每次去看医生和参加工作面试时都确信自己患有影响 1%人口的疾病。
 

@@ -1,6 +1,6 @@
 # 如何发现你的谷歌航班是否划算
 
-> 原文:[https://life hacker . com/how-to-find-out-if-your-Google-flight-is-a-good-deal-1833603694](https://lifehacker.com/how-to-find-out-if-your-google-flight-is-a-good-deal-1833603694)
+> 原文：<https://lifehacker.com/how-to-find-out-if-your-google-flight-is-a-good-deal-1833603694>
 
 我有承诺问题——至少在预订航班的时候。
 

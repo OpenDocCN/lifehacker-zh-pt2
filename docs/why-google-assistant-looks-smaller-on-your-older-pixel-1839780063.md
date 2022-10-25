@@ -1,6 +1,6 @@
 # 为什么谷歌助手在你的旧 Pixel 手机上看起来更小
 
-> 原文:[https://life hacker . com/why-Google-assistant-looks-small-on-your-older-pixel-1839780063](https://lifehacker.com/why-google-assistant-looks-smaller-on-your-older-pixel-1839780063)
+> 原文：<https://lifehacker.com/why-google-assistant-looks-smaller-on-your-older-pixel-1839780063>
 
 Pixel 4 用户使用的是谷歌数字助理的最小干扰版本，但谷歌助理 UI 的新设计已经开始出现在旧的 Pixel 设备上。不要对这个更新感到惊慌，它让你的助手看起来更流畅，允许它根据对你的查询的响应来动态调整大小。
 

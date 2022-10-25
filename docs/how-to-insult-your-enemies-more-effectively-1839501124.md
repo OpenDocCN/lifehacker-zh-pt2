@@ -1,6 +1,6 @@
 # 如何更有效地侮辱你的敌人
 
-> 原文:[https://life hacker . com/how-to-侮辱你的敌人-更有效-1839501124](https://lifehacker.com/how-to-insult-your-enemies-more-effectively-1839501124)
+> 原文：<https://lifehacker.com/how-to-insult-your-enemies-more-effectively-1839501124>
 
 善意的侮辱是力量的展示。严重的侮辱是无能为力的表现。无论你是向上出拳还是向下出拳都是如此。(推荐你打卡。)如果你想让你的侮辱伤害到你的敌人而不是你自己，你需要有策略地侮辱。
 

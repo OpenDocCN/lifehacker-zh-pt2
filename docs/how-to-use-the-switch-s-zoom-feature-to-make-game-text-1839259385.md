@@ -1,6 +1,6 @@
 # 如何使用开关的缩放功能使游戏文本变大
 
-> 原文:[https://kotaku . com/how-to-use-the-switch-s-zoom-feature-to-make-game-text-1839259385](https://kotaku.com/how-to-use-the-switch-s-zoom-feature-to-make-game-text-1839259385)
+> 原文：<https://kotaku.com/how-to-use-the-switch-s-zoom-feature-to-make-game-text-1839259385>
 
 任天堂 Switch 可以在旅途中玩这么多优秀的游戏，这很好，但有些游戏的菜单就像食品标签上的小字一样难以阅读。谢天谢地，这个开关有一个设计巧妙的变焦功能。
 

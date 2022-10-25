@@ -1,6 +1,6 @@
 # 如何戒掉你的厄运滚动习惯
 
-> 原文:[https://life hacker . com/how-to-quit-your-doom scrolling-habit-1844351904](https://lifehacker.com/how-to-quit-your-doomscrolling-habit-1844351904)
+> 原文：<https://lifehacker.com/how-to-quit-your-doomscrolling-habit-1844351904>
 
 如果你是那种一醒来就伸手拿手机的人(除了关掉闹钟)，你可能会发现自己习惯性地滚动浏览新闻或社交媒体频道。它可以以足够天真的方式开始:找出你是哪个黄金女孩的测验，你朋友的孩子在墙上画画的照片，以及你想在晚餐时做但永远不会做的一锅饭的食谱。但是在这永无止境的厄运之年，很难避免所有的坏消息——主要是因为坏消息不断出现。
 

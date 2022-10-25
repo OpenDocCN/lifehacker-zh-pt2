@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:我只是希望人们不要在我的烤架上徘徊
 
-> 原文:[https://the take out . com/I-just-want-folk-to-stop-over-my-grill-1834565478](https://thetakeout.com/i-just-want-folks-to-stop-hovering-over-my-grill-1834565478)
+> 原文：<https://thetakeout.com/i-just-want-folks-to-stop-hovering-over-my-grill-1834565478>
 
 > 亲爱的咸味:最近我举办了一个晚宴，觉得天气很好，可以在外面烧烤。我不是最熟练的烧烤师，但我能坚持住。然而，我的兄弟，自认为是烧烤大师，来参加聚会，基本上整个时间都在韦伯上空盘旋。他提供了一些提示和技巧，但不是以打扰的方式，因为有些确实很有帮助。但作为他的妹妹，我不能不感到领土。我内心的声音在尖叫:“这是我的烤架！我的地盘！别管我！”
 > 

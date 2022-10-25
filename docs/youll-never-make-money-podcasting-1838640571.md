@@ -1,6 +1,6 @@
 # 播客永远不会赚钱
 
-> 原文:[https://life hacker . com/youll-never-make-money-podcasting-1838640571](https://lifehacker.com/youll-never-make-money-podcasting-1838640571)
+> 原文：<https://lifehacker.com/youll-never-make-money-podcasting-1838640571>
 
 所以:你要开始播客了。当然，已经有 750，000 个了，但是你的将会是 750，001 个。你选择一个主题领域。拉拢一个朋友。给它起个朗朗上口的名字。你说你会给它一年的时间来看看它是否起飞，因为你知道 [承诺是关键](https://lifehacker.com/how-to-start-your-own-podcast-1709798447) 。
 

@@ -1,6 +1,6 @@
 # 我是个矮个子想找个不烂的小跨界！应该买什么车？
 
-> 原文:[https://jalopnik . com/im-a-short-person-looking-a-small-crossover-the-do-1837469543](https://jalopnik.com/im-a-short-person-looking-for-a-small-crossover-that-do-1837469543)
+> 原文：<https://jalopnik.com/im-a-short-person-looking-for-a-small-crossover-that-do-1837469543>
 
 玛丽的旧本田雅阁刚刚被偷了。现在，她正在寻找一款小型跨界车，但找不到一款非常适合她的——或者说不差的。她身材较矮，想要更高的行驶高度和全轮驱动，但不想要太大或太响的东西。她应该买什么车？
 

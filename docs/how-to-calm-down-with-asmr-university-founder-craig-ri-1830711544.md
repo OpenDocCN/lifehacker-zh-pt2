@@ -1,6 +1,6 @@
 # ASMR 大学创始人 Craig Richard 告诉我们如何冷静下来
 
-> 原文:[https://life hacker . com/how-to-calf-down-with-asmr-university-founder-Craig-ri-1830711544](https://lifehacker.com/how-to-calm-down-with-asmr-university-founder-craig-ri-1830711544)
+> 原文：<https://lifehacker.com/how-to-calm-down-with-asmr-university-founder-craig-ri-1830711544>
 
 不要过于放肆，但如果你是一个生活在 2018 年的人，有时你很有可能需要帮助冷静下来。
 

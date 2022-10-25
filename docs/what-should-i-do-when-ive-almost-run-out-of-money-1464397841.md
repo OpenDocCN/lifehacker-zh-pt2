@@ -1,6 +1,6 @@
 # 当你没钱的时候该怎么办
 
-> 原文:[https://life hacker . com/what-should-I-do-what-if-I-ve-bry-run-out-of-money-1464397841](https://lifehacker.com/what-should-i-do-when-ive-almost-run-out-of-money-1464397841)
+> 原文：<https://lifehacker.com/what-should-i-do-when-ive-almost-run-out-of-money-1464397841>
 
 预算吃紧和现金捉襟见肘是有区别的。如果你经历过后者，你就会知道当你晚上试图闭上眼睛睡觉时，你胃里的坑不会神奇地消失。你能做些什么来快速获得资金并重新振作起来？
 

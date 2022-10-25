@@ -1,6 +1,6 @@
 # 问问你自己你想让人们有什么样的感觉
 
-> 原文:[https://life hacker . com/ask-you-own-how-you-want-make-people-feel-1841450040](https://lifehacker.com/ask-yourself-how-you-want-to-make-people-feel-1841450040)
+> 原文：<https://lifehacker.com/ask-yourself-how-you-want-to-make-people-feel-1841450040>
 
 我们很多人与他人互动的基础是“我希望从这次经历中得到什么？”在工作中，我们参加会议，希望我们能够说一些聪明的话(或者，在某些情况下，静静地坐着，直到会议结束)；在家里，我们和家人聚在一起吃晚饭，希望我们能说服孩子们吃他们的蔬菜，或者说一些除了“很好”之外的关于他们一天的事情
 

@@ -1,6 +1,6 @@
 # 打流感疫苗是否为时过早？
 
-> 原文:[https://life hacker . com/is-it-early-to-get-a-flu-shot-1837287127](https://lifehacker.com/is-it-too-early-to-get-a-flu-shot-1837287127)
+> 原文：<https://lifehacker.com/is-it-too-early-to-get-a-flu-shot-1837287127>
 
 当你沐浴在夏季最后几周的阳光中时，我相信你一定在想一件事:注射流感疫苗。他们已经在这里了——Rite Aid 刚刚宣布季节性流感疫苗在其所有 2466 家药店都有售。
 

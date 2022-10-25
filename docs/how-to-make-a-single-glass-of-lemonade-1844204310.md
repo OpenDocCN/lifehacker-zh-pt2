@@ -1,6 +1,6 @@
 # 如何制作一杯柠檬水
 
-> 原文:[https://life hacker . com/how-to-make-a-single-glass-of-lemonade-1844204310](https://lifehacker.com/how-to-make-a-single-glass-of-lemonade-1844204310)
+> 原文：<https://lifehacker.com/how-to-make-a-single-glass-of-lemonade-1844204310>
 
 当我想到柠檬水时，我总是会想到一个大水罐——这是最容易接受的想象。但是一整罐柠檬水需要 [很多柠檬](https://lifehacker.com/always-buy-lemons-1841789414) ，有时候我只有一个。不过没关系。一杯完美的柠檬水只需要一个柠檬。
 

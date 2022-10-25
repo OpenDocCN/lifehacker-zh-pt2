@@ -1,6 +1,6 @@
 # 如何为你的 G&T 选择优质的滋补水
 
-> 原文:[https://life hacker . com/how-to-choose-quality-tonic-water for-your-g-t-1834287792](https://lifehacker.com/how-to-choose-quality-tonic-water-for-your-g-t-1834287792)
+> 原文：<https://lifehacker.com/how-to-choose-quality-tonic-water-for-your-g-t-1834287792>
 
 杜松子酒是一种优雅简单的东西，但是，由于调酒器构成了这种饮料的大部分，很多东西都取决于奎宁。幸运的是，市面上有许多质量上乘的奎宁味产品——包括糖浆！你只需要知道要寻找什么。
 

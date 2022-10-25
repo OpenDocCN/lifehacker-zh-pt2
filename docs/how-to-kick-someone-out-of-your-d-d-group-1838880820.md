@@ -1,6 +1,6 @@
 # 如何将某人踢出你的 D&D 团队
 
-> 原文:[https://life hacker . com/how-to-kick-someone-out-of-d-d-group-1838880820](https://lifehacker.com/how-to-kick-someone-out-of-your-d-d-group-1838880820)
+> 原文：<https://lifehacker.com/how-to-kick-someone-out-of-your-d-d-group-1838880820>
 
 桌面游戏小组是介于“项目”和“只是闲逛”之间的一种奇怪的社会承诺有的团对待事情很随便，玩家一直来来往往；一些人将他们的常规比赛视为严格的固定任命，将小组的组成视为永久名册。当一个玩家让其他人不高兴时，这就变得特别棘手，当你需要让一个玩家离开团队时，这就变得非常棘手。
 

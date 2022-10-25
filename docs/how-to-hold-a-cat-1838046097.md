@@ -1,6 +1,6 @@
 # how to hold a cat 1838046097
 
-> 原文:[https://lifehacker.com/how-to-hold-a-cat-1838046097](https://lifehacker.com/how-to-hold-a-cat-1838046097)
+> 原文：<https://lifehacker.com/how-to-hold-a-cat-1838046097>
 
 友好的兽医 Uri Burstyn 博士在他最受欢迎的 YouTube 视频 中说，有很多抱猫的好方法，其中一些可能会让你惊讶。但是抱错你的猫会伤害它，让它紧张，即使它没有明显的抱怨。好的持球和不好的持球之间的区别并不总是很明显。我们已经画出了 Burstyn 博士展示的所有姿势，所以你可以正确地抱着你的猫，并向客人和孩子展示如何抱它。
 

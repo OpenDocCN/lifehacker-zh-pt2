@@ -1,6 +1,6 @@
 # 了解乔·拜登的税收政策
 
-> 原文:[https://life hacker . com/what-to-know-to-know-about-Joe-Biden-s-tax-policy-1845103361](https://lifehacker.com/what-to-know-about-joe-biden-s-tax-policy-1845103361)
+> 原文：<https://lifehacker.com/what-to-know-about-joe-biden-s-tax-policy-1845103361>
 
 距离大选还有不到 50 天的时间，没有比这更好的时间来比较候选人了——包括联邦、州和地方各级的候选人——看看每个候选人会如何影响你的钱包。让我们仔细看看乔·拜登的税收政策 以及它可能会让你的家庭付出多少代价。
 

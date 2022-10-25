@@ -1,6 +1,6 @@
 # 如何在 Steam、GOG 和 Epic Games Store 的冬季销售中找到最好的 PC 游戏便宜货
 
-> 原文:[https://life hacker . com/how-to-find-the-best-PC-game-bargains-in-steam-Gog-and-1840562699](https://lifehacker.com/how-to-find-the-best-pc-game-bargains-in-steam-gog-and-1840562699)
+> 原文：<https://lifehacker.com/how-to-find-the-best-pc-game-bargains-in-steam-gog-and-1840562699>
 
 2019 年年底在 Steam、GOG 和 Epic Games Store 等 PC 游戏平台上的大规模冬季销售终于来了。这些销售通常会给你全年的电脑游戏带来最大的折扣，这是你从愿望清单中挑选几款游戏的最佳时机。所有三次冬季销售从现在开始到 2020 年 1 月 2 日。也就是说，你会想在购买之前货比三家，因为一些游戏可能会在多个平台上以略微不同的价格出售，而且一些商店也可能有独家优惠可以考虑。
 

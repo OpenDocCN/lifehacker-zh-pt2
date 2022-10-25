@@ -1,6 +1,6 @@
 # 你仍然可以在网上订购女童子军饼干
 
-> 原文:[https://life hacker . com/you-can-still-order-girl-scout-cookies-online-1842643292](https://lifehacker.com/you-can-still-order-girl-scout-cookies-online-1842643292)
+> 原文：<https://lifehacker.com/you-can-still-order-girl-scout-cookies-online-1842643292>
 
 我们正在进行的隔离的一个不幸的后果是停止了面对面的女童子军饼干销售。你不会发现女童子军在你家附近挨家挨户地敲门，在你的办公室卖东西，或者坐在你当地的杂货店外面。
 

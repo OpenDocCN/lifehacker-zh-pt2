@@ -1,6 +1,6 @@
 # 我们最后的沙袋练习是清理沙袋
 
-> 原文:[https://life hacker . com/our-last-sand bag-exercise-is-the-flippy-sand bag-clean-1844793814](https://lifehacker.com/our-last-sandbag-exercise-is-the-flippy-sandbag-clean-1844793814)
+> 原文：<https://lifehacker.com/our-last-sandbag-exercise-is-the-flippy-sandbag-clean-1844793814>
 
 这只是一个有趣的问题。如果你的沙袋有把手，或者至少有一点松弛，你可以很容易抓住，那会很有帮助。(提醒:修剪指甲。)我们要做沙袋清理。
 

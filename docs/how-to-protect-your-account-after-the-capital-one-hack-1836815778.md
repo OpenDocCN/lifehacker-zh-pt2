@@ -1,6 +1,6 @@
 # 资本一号被黑后如何保护自己的账户
 
-> 原文:[https://life hacker . com/how-to-protect-your-account-after-the-capital-one-hack-1836815778](https://lifehacker.com/how-to-protect-your-account-after-the-capital-one-hack-1836815778)
+> 原文：<https://lifehacker.com/how-to-protect-your-account-after-the-capital-one-hack-1836815778>
 
 周一晚上，Capital One 报道称，一名黑客获得了超过 1 亿名客户的账户和信用卡申请。根据的新闻稿，这次入侵包括访问用户的姓名、地址、电话号码、出生日期和电子邮件地址——此外还有属于加拿大客户的 140，000 个社会安全号码、80，000 个银行账号和 100 万个社会保险号码。
 

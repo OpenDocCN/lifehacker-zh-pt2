@@ -1,6 +1,6 @@
 # 看看民主党候选人的税收计划会如何影响你
 
-> 原文:[https://life hacker . com/see-how-the-democratic-candidates-tax-plans-would-affec-1839098593](https://lifehacker.com/see-how-the-democratic-candidates-tax-plans-would-affec-1839098593)
+> 原文：<https://lifehacker.com/see-how-the-democratic-candidates-tax-plans-would-affec-1839098593>
 
 如果你想知道民主党候选人的税收计划有何不同，以及这些计划可能会如何改变你的纳税额，有一个新的在线工具可以帮助你直观地了解每个候选人的提议。
 

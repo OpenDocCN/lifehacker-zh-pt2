@@ -1,6 +1,6 @@
 # 如何为结婚礼物写一张支票
 
-> 原文:[https://life hacker . com/how-to-write-a check-for-a-wind-gift-1837589712](https://lifehacker.com/how-to-write-a-check-for-a-wedding-gift-1837589712)
+> 原文：<https://lifehacker.com/how-to-write-a-check-for-a-wedding-gift-1837589712>
 
 在庆祝一对幸福夫妇婚姻的众多快乐中，隐藏着无数的失礼，正等着被你发现。其中之一是:写一张对新婚夫妇来说基本上无法使用的支票，这对新婚夫妇真的很想在他们的蜜月计划中增加几次短途旅行。虽然给双方都写一张支票感觉很特别，在中间夹上“和”，但实际上你可能会让他们更难存下这份慷慨的礼物。
 

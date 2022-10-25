@@ -1,6 +1,6 @@
 # 用搅打的菠萝汁给草药利口酒一种热带的感觉
 
-> 原文:[https://life hacker . com/give-herbal-liquieurs-a-tropical-vibe-with-whipped-pinea-1844455735](https://lifehacker.com/give-herbal-liqueurs-a-tropical-vibe-with-whipped-pinea-1844455735)
+> 原文：<https://lifehacker.com/give-herbal-liqueurs-a-tropical-vibe-with-whipped-pinea-1844455735>
 
 我不认为糖浆、草药利口酒是“夏天的”，但这并不妨碍我在夏天喝它们，或者从寻找新的和有趣的喝法。我如果你喝过加里波第，你就会知道这些苦涩、浓厚的药剂*可以*提神——你只需要加入一些蓬松的汁液。
 

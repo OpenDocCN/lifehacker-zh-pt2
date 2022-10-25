@@ -1,6 +1,6 @@
 # 将鸡腿靠在一起，慵懒地变褐
 
-> 原文:[https://life hacker . com/lean-chicken-legs-against-other-for-lazy-brownin-1834271297](https://lifehacker.com/lean-chicken-thighs-against-each-other-for-lazy-brownin-1834271297)
+> 原文：<https://lifehacker.com/lean-chicken-thighs-against-each-other-for-lazy-brownin-1834271297>
 
 鸡腿有很多优点，尤其是它们的肉皮比。但是它们圆圆的、像土墩一样的形状意味着要使所有的皮肤都变成褐色需要一些操作和机动。
 

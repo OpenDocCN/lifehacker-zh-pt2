@@ -1,6 +1,6 @@
 # 通过了解你的时间类型来提高你的生产力
 
-> 原文:[https://life hacker . com/increase-your-know-your-chronotype-1845001184](https://lifehacker.com/increase-your-productivity-by-knowing-your-chronotype-1845001184)
+> 原文：<https://lifehacker.com/increase-your-productivity-by-knowing-your-chronotype-1845001184>
 
 在最近的升级中，我们学习了 [完美安排生活时间的科学](https://lifehacker.com/how-to-time-your-life-perfectly-with-author-daniel-pin-1844963476)——从一天中的哪些时间最适合某些活动，以及人生中的哪些时段最适合重新开始。但是掌握好你的生活时间的核心是了解你的时间类型。也就是说，知道你是一只早起的百灵鸟，还是一只夜猫子，或者像作者丹尼尔·平克所说的那样——一只“第三只鸟”(即处于早起的百灵鸟和夜猫子之间的人)。
 

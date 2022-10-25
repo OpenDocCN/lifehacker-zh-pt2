@@ -1,6 +1,6 @@
 # 医生、疾病和部门
 
-> 原文:[https://kotaku . com/the-doctor-the-disease-and-the-division-1843046712](https://kotaku.com/the-doctor-the-disease-and-the-division-1843046712)
+> 原文：<https://kotaku.com/the-doctor-the-disease-and-the-division-1843046712>
 
 在冠状病毒袭击了我繁忙的布鲁克林医院后不久，我发现自己在照顾一位患有肾病的老先生。让我们称他为约翰逊先生。我是肾脏医学专家，我知道这应该是一次相当常规的访问。
 

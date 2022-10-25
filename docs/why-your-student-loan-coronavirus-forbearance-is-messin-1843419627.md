@@ -1,6 +1,6 @@
 # 为什么你的学生贷款冠状病毒隐忍搞乱你的信用报告
 
-> 原文:[https://life hacker . com/why-your-student-loan-coronavirus-隐忍-is-messin-1843419627](https://lifehacker.com/why-your-student-loan-coronavirus-forbearance-is-messin-1843419627)
+> 原文：<https://lifehacker.com/why-your-student-loan-coronavirus-forbearance-is-messin-1843419627>
 
 如果你有学生贷款，现在你肯定知道一个好消息:大多数联邦贷款自动延期直到秋天。这意味着借款人不必支付，但学生贷款服务机构仍然会将贷款标记为按时支付。这是六个月的免费通行证。
 

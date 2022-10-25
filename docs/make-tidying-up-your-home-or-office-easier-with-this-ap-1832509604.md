@@ -1,6 +1,6 @@
 # 使用这个应用程序，让“整理”你的家或办公室变得更容易
 
-> 原文:[https://life hacker . com/make-cleaning-up-this-AP-1832509604](https://lifehacker.com/make-tidying-up-your-home-or-office-easier-with-this-ap-1832509604)
+> 原文：<https://lifehacker.com/make-tidying-up-your-home-or-office-easier-with-this-ap-1832509604>
 
 玛丽·近藤把整理你的空间变成了一件时髦的事情。
 

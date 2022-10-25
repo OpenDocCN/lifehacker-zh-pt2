@@ -1,6 +1,6 @@
 # 将自我保健添加到你的“待办事项”列表中
 
-> 原文:[https://life hacker . com/add-self-care-to-your-to-do-list-1841039527](https://lifehacker.com/add-self-care-to-your-to-do-list-1841039527)
+> 原文：<https://lifehacker.com/add-self-care-to-your-to-do-list-1841039527>
 
 在过去的几年里，我一直用子弹日记来追踪各种事情。工作任务和约会，我儿子的足球比赛和空手道课，我的锻炼，甚至我做的晚餐。(每当我发现自己又陷入了一成不变的状态——意大利面条*时，晚餐跟踪就特别有用？—* 因为我可以回到几个月前，重新发现我们喜欢但很快就忘记了的食谱。)
 

@@ -1,6 +1,6 @@
 # 下岗前后做什么
 
-> 原文:[https://life hacker . com/1832365683](https://lifehacker.com/what-to-do-before-and-after-being-laid-off-1832365683)
+> 原文：<https://lifehacker.com/what-to-do-before-and-after-being-laid-off-1832365683>
 
 媒体经历了残酷的几周，BuzzFeed、赫芬顿邮报、 [Vice、甘内特和麦克拉奇](https://www.miaminewtimes.com/news/mcclatchy-newspaper-ceo-got-900000-bonus-in-2017-amid-layoffs-11073139) 解雇了数千名员工。但是最近受到伤害的不仅仅是记者:通用汽车 [在接下来的两周内解雇了数千名工人](https://www.freep.com/story/money/cars/general-motors/2019/02/01/gm-layoffs-2019-workers/2743506002/)[西尔斯的破产](https://www.chicagotribune.com/business/ct-biz-bankruptcy-court-weighs-sears-sale-20190131-story.html) 已经危及了数万个工作岗位，政府关闭导致数十万人几周没有工资。
 

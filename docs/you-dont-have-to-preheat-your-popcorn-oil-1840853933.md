@@ -1,6 +1,6 @@
 # 你不必预热你的爆米花油
 
-> 原文:[https://life hacker . com/you-don-t-do-to-preheat-you-popcorn-oil-1840853933](https://lifehacker.com/you-dont-have-to-preheat-your-popcorn-oil-1840853933)
+> 原文：<https://lifehacker.com/you-dont-have-to-preheat-your-popcorn-oil-1840853933>
 
 我总是用同样的方式爆玉米。我会在锅里加入 [大量的油](https://skillet.lifehacker.com/youre-not-using-enough-oil-to-pop-your-popcorn-1827137012) ，撒入三(3)个测试仁，用中高火加热。一旦这些测试玉米粒爆开，我就会把剩下的爆米花倒进去。事实证明那些测试内核完全没有必要。
 

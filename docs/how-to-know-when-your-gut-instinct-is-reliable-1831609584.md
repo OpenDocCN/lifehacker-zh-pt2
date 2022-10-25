@@ -1,6 +1,6 @@
 # 如何知道你的直觉是可靠的
 
-> 原文:[https://life hacker . com/how-to-know-when-your-gut-instinct-is-reliable-1831609584](https://lifehacker.com/how-to-know-when-your-gut-instinct-is-reliable-1831609584)
+> 原文：<https://lifehacker.com/how-to-know-when-your-gut-instinct-is-reliable-1831609584>
 
 有时候，你会有一种强烈的感觉，觉得自己对一个人或一种情况有所了解；这叫直觉，而且往往是错的。
 

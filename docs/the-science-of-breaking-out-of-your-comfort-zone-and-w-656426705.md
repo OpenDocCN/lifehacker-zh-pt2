@@ -1,6 +1,6 @@
 # 打破舒适区的科学(以及为什么你应该这样做)
 
-> 原文:[https://life hacker . com/the-science of-breaking-out of your ' s comfort-zone-and-w-656426705](https://lifehacker.com/the-science-of-breaking-out-of-your-comfort-zone-and-w-656426705)
+> 原文：<https://lifehacker.com/the-science-of-breaking-out-of-your-comfort-zone-and-w-656426705>
 
 常规可以是稳定的和令人欣慰的，但随着时间的推移，它们也会变得陈旧和局限。所有这些鼓舞人心的信息告诉你要打破你的舒适区，并不仅仅是想卖给你蹦极绳索。做一些新的和潜在的可怕的事情有助于避免精疲力竭，对你的大脑有好处。尽管如此，要摆脱常规还是很难的，有大量的科学解释了为什么——以及如何去做。
 

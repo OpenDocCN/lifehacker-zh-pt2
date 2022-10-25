@@ -1,6 +1,6 @@
 # 如果你已经有一辆科尔维特，你可以从一辆新的 C7 科尔维特中获得 9000 多美元
 
-> 原文:[https://jalopnik . com/you-can-get-over-9-000-off-a-new-C7-corvette-if-you-al-1840146888](https://jalopnik.com/you-can-get-over-9-000-off-a-new-c7-corvette-if-you-al-1840146888)
+> 原文：<https://jalopnik.com/you-can-get-over-9-000-off-a-new-c7-corvette-if-you-al-1840146888>
 
 如果你已经是一名 [雪佛兰克尔维特](https://jalopnik.com/tag/corvette) 车主，你可能是“大交易”的超级粉丝嗯，通用汽车正在提供一个“大家伙”，因为它试图出售最后一辆前置引擎的 C7 克尔维特，现在向任何拥有或租赁任何克尔维特的人提供超过 9000 美元。多升级啊！
 

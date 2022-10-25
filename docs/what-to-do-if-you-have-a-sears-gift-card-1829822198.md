@@ -1,6 +1,6 @@
 # 如果你有西尔斯礼品卡该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-you-a-sears-gift-card-1829822198](https://lifehacker.com/what-to-do-if-you-have-a-sears-gift-card-1829822198)
+> 原文：<https://lifehacker.com/what-to-do-if-you-have-a-sears-gift-card-1829822198>
 
 当零售商经历破产程序时，担心他们的西尔斯礼品卡会发生什么的消费者可以松一口气了——至少现在是这样。
 

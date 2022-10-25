@@ -1,6 +1,6 @@
 # 如何制作值得在餐厅享用的薯条
 
-> 原文:[https://life hacker . com/how-to-make-restaurant-worthy-fries-1832361045](https://lifehacker.com/how-to-make-restaurant-worthy-fries-1832361045)
+> 原文：<https://lifehacker.com/how-to-make-restaurant-worthy-fries-1832361045>
 
 说到炸薯条，快餐店做得最好。不是他们用最新鲜的土豆(他们没有)，也不是他们有某种秘密调料(是盐)，甚至不是他们油炸的事实(这是一种很好的战术，但不是必要的)。我的朋友们，秘密在于它们是双熟的。
 

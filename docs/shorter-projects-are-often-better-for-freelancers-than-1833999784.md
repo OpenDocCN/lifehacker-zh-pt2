@@ -1,6 +1,6 @@
 # 对于自由职业者来说，较短的项目通常比较长的项目更好
 
-> 原文:[https://life hacker . com/shorter-projects-only-better-than-1833999784](https://lifehacker.com/shorter-projects-are-often-better-for-freelancers-than-1833999784)
+> 原文：<https://lifehacker.com/shorter-projects-are-often-better-for-freelancers-than-1833999784>
 
 自由撰稿人:你愿意写三篇 500 字的文章，每篇 150 美元，还是一篇 1500 字的文章，每篇 900 美元？
 

@@ -1,6 +1,6 @@
 # 从你的退休账户里取钱变得更加容易了
 
-> 原文:[https://life hacker . com/it-just-get-even-easy to take money from your-retirem-1844134413](https://lifehacker.com/it-just-got-even-easier-to-take-money-from-your-retirem-1844134413)
+> 原文：<https://lifehacker.com/it-just-got-even-easier-to-take-money-from-your-retirem-1844134413>
 
 当 CARES 法案在 3 月份通过时，如果人们因疫情冠状病毒而面临经济困难，他们可以更容易地从退休账户中提取资金。上周，美国国税局(IRS)[宣布](https://www.irs.gov/newsroom/relief-for-taxpayers-affected-by-covid-19-who-take-distributions-or-loans-from-retirement-plans) 扩大规则，规定谁可以从他们享有税收优势的账户中提款而不被罚款。
 

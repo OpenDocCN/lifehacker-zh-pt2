@@ -1,6 +1,6 @@
 # 向感染预防专家询问你关于冠状病毒的问题[更新:已结束]
 
-> 原文:[https://life hacker . com/ask-an-infection-prevention ist-your-questions-about-the-1843020015](https://lifehacker.com/ask-an-infection-preventionist-your-questions-about-the-1843020015)
+> 原文：<https://lifehacker.com/ask-an-infection-preventionist-your-questions-about-the-1843020015>
 
 **更新:我们完成了！**东部时间下午 1 点，加入我们与 [萨斯基亚·波佩斯库](https://svprevention.com/) 医生的现场 Q & A，他是传染病流行病学家，也是感染预防专家。她在医院工作，以确保病人、访客和工作人员免受感染，这意味着她是洗手、口罩和隔离预防措施如何阻止感染传播的专家。
 

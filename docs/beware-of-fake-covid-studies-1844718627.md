@@ -1,6 +1,6 @@
 # 小心虚假的 COVID“研究”
 
-> 原文:[https://life hacker . com/谨防假冒 covid-studies-1844718627](https://lifehacker.com/beware-of-fake-covid-studies-1844718627)
+> 原文：<https://lifehacker.com/beware-of-fake-covid-studies-1844718627>
 
 在网上寻找关于新冠肺炎的信息意味着在真理、猜测和彻头彻尾的谎言的泥沼中游荡。重要的是 [从可靠的来源开始，看看他们在说什么](https://lifehacker.com/how-to-spot-fake-news-on-social-media-1840877686) ，而不是假设你遇到的任何事情都是合法的。有些信息是错误的，是由阴谋论者或受政治议程而非科学驱动的人推动的。有时他们做得很好，让一个拙劣的论点看起来像一个权威的研究。
 

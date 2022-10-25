@@ -1,6 +1,6 @@
 # 成为 Xbox 内部人员以过滤掉 Xbox Live 上的露骨消息
 
-> 原文:[https://life hacker . com/become-an-Xbox-insider-to-filter-out-explicit-messages-1839132799](https://lifehacker.com/become-an-xbox-insider-to-filter-out-explicit-messages-1839132799)
+> 原文：<https://lifehacker.com/become-an-xbox-insider-to-filter-out-explicit-messages-1839132799>
 
 每当你想在 Xbox Live 上玩游戏时，你是否厌倦了被人叫着天底下所有的名字？我知道这种感觉；我贫乏的战争机器技能往往会让我成为全军中 14 岁孩子嘲笑的对象。虽然我不能阻止任何人在你搞砸了赢得比赛的游戏时通过耳机指责你，但微软正在让过滤掉你可能在 Xbox Live 上收到的明确信息变得容易得多。
 

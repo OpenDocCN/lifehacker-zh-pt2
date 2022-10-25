@@ -1,6 +1,6 @@
 # 在您的航空里程到期前，您可以做的一切
 
-> 原文:[https://life hacker . com/everything-you-can-do with your-airline miles-before-th-1836419056](https://lifehacker.com/everything-you-can-do-with-your-airline-miles-before-th-1836419056)
+> 原文：<https://lifehacker.com/everything-you-can-do-with-your-airline-miles-before-th-1836419056>
 
 航空公司积分和里程的截止日期各不相同，就像最初赢取积分和里程的规则一样。许多里程从您赢取里程之日起仅持续 18 个月，有些长达 10 年，有些永不过期。
 

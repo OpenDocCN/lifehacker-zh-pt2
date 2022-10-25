@@ -1,6 +1,6 @@
 # 我们在纽约测试了 T-Mobile 的 5G:一张地图带来了多么大的变化
 
-> 原文:[https://gizmodo . com/we-tested-t-mobiles-5g-in-new-York-what-a-a-1836010563](https://gizmodo.com/we-tested-t-mobiles-5g-in-new-york-what-a-difference-a-1836010563)
+> 原文：<https://gizmodo.com/we-tested-t-mobiles-5g-in-new-york-what-a-difference-a-1836010563>
 
 上周五标志着 5G 发展的一个小但仍然重要的里程碑，因为当 T-Mobile [在全国六个城市](https://www.t-mobile.com/coverage/our-first-5g-coverage-maps?filter=dallas) 开通 5G 网络时，这意味着美国四大运营商终于有了某种形式的公共可用 5G 覆盖并开始运行。
 

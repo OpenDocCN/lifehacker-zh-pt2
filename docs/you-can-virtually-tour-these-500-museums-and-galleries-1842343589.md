@@ -1,6 +1,6 @@
 # 你可以坐在沙发上虚拟地参观这 500 多个博物馆和画廊
 
-> 原文:[https://life hacker . com/you-can-virtual-tour-thes-500-museum-and-galleries-1842343589](https://lifehacker.com/you-can-virtually-tour-these-500-museums-and-galleries-1842343589)
+> 原文：<https://lifehacker.com/you-can-virtually-tour-these-500-museums-and-galleries-1842343589>
 
 社交距离意味着我们都花更多的时间呆在家里，取消或重新安排假期，可能不会去电影院和博物馆。呆在家里并不意味着你不能从你的家用电脑上体验一点旅行，也许还有一点文化。
 

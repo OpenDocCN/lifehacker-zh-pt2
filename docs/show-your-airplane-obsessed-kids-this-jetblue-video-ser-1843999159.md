@@ -1,6 +1,6 @@
 # 给你痴迷飞机的孩子看看这个 JetBlue 视频系列
 
-> 原文:[https://life hacker . com/show-your-airplane-consistent-kids-this-JetBlue-video-ser-1843999159](https://lifehacker.com/show-your-airplane-obsessed-kids-this-jetblue-video-ser-1843999159)
+> 原文：<https://lifehacker.com/show-your-airplane-obsessed-kids-this-jetblue-video-ser-1843999159>
 
 你和你的孩子现在可能不怎么坐飞机旅行，但是尽管我们大部分时间都在地面上，捷蓝航空还是制作了一个新的视频系列，来联系、娱乐和教育那些对飞机和机场感兴趣的孩子。
 

@@ -1,6 +1,6 @@
 # 2019 年 10 月 HBO 有什么来往
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-HBO-in-10-2019-1838679421](https://lifehacker.com/whats-coming-and-going-from-hbo-in-october-2019-1838679421)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-hbo-in-october-2019-1838679421>
 
 随着万圣节的临近，HBO 本月在其流媒体服务中增加了一些可怕的节目，包括今年的*快乐死亡日 2U* 和 2016 年的*召唤 2* 。
 

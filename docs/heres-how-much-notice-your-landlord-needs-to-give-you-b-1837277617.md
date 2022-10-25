@@ -1,6 +1,6 @@
 # 以下是你的房东在出现之前需要给你的通知时间
 
-> 原文:[https://life hacker . com/heres-how-more-notice-your-landlord-need-to-give you-b-1837277617](https://lifehacker.com/heres-how-much-notice-your-landlord-needs-to-give-you-b-1837277617)
+> 原文：<https://lifehacker.com/heres-how-much-notice-your-landlord-needs-to-give-you-b-1837277617>
 
 如果你知道你的房东计划参观你租的房子，你可能至少会考虑收拾一下。你要确保你不需要在他们预计到达的时间内洗澡。你藏了任何违禁品。
 

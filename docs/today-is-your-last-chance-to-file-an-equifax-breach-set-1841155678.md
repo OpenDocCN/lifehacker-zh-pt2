@@ -1,6 +1,6 @@
 # 今天是您提交 Equifax 违约和解索赔的最后机会
 
-> 原文:[https://life hacker . com/today-is your-last-chance-to-file-a-equifax-breach-set-1841155678](https://lifehacker.com/today-is-your-last-chance-to-file-an-equifax-breach-set-1841155678)
+> 原文：<https://lifehacker.com/today-is-your-last-chance-to-file-an-equifax-breach-set-1841155678>
 
 拖延者们，注意了:今天是对 Equifax 数据泄露提起集体诉讼的最后期限。
 

@@ -1,6 +1,6 @@
 # 任天堂的新运动冒险游戏很巧妙，即使它让我看起来很可笑
 
-> 原文:[https://kotaku . com/Nintendo-s-new-exercise-adventure-game-is-intelligent-ev-1839133470](https://kotaku.com/nintendo-s-new-exercise-adventure-game-is-ingenious-ev-1839133470)
+> 原文：<https://kotaku.com/nintendo-s-new-exercise-adventure-game-is-ingenious-ev-1839133470>
 
 任天堂最新的 Switch 游戏 *Ring Fit Adventure* ，是一款有趣的、不寻常的、前所未有的体验生成器。我从来没有在 20 分钟的电子游戏 boss 战中输过，因为我的状态可以在一两次瑜伽伸展中变得更好。我从来没有通过蹲下打开过游戏中的宝箱。我从来没有发现任何东西——不是播放列表，不是私人教练，不是镜子里失望的一瞥——让我真正期待锻炼我的核心。最后一个单独指定*环适合冒险*为天才软件。
 

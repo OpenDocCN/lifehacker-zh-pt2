@@ -1,6 +1,6 @@
 # 如果您现在注册，达美航空里程卡将提供更好的 2020 年优惠
 
-> 原文:[https://life hacker . com/delta-sky miles-cards-is-offing-better-2020-benefits-1838678870](https://lifehacker.com/delta-skymiles-cards-are-offering-better-2020-benefits-1838678870)
+> 原文：<https://lifehacker.com/delta-skymiles-cards-are-offering-better-2020-benefits-1838678870>
 
 如果你一直渴望获得另一张旅行奖励信用卡，以获得甜蜜的注册奖金，那么有一个全新但非常熟悉的选择可以考虑。
 

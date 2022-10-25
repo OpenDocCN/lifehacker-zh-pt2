@@ -1,6 +1,6 @@
 # 旅游时如何避开旅游陷阱
 
-> 原文:[https://life hacker . com/how-to-avoid-tourism-traps-while-1837173085](https://lifehacker.com/how-to-avoid-tourist-traps-while-traveling-1837173085)
+> 原文：<https://lifehacker.com/how-to-avoid-tourist-traps-while-traveling-1837173085>
 
 在最近的一篇文章中，我们请读者告诉我们旅行时要避免的最糟糕的旅游陷阱——我们学到了几件重要的事情。首先，不要参观“被高估”的太空针塔。第二，不要去乔治敦纸杯蛋糕店，因为华盛顿其他地方有更好的甜点选择。最后，不要去美国购物中心，因为它只是一个购物中心。(“你喜欢去你住的商场吗？否则，你不会喜欢去我们这里的购物中心，”塞瑟姆在评论中写道。)
 

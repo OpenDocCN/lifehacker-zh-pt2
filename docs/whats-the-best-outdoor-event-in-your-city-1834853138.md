@@ -1,6 +1,6 @@
 # 你所在的城市最棒的户外活动是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-in-your city-1834853138](https://lifehacker.com/whats-the-best-outdoor-event-in-your-city-1834853138)
+> 原文：<https://lifehacker.com/whats-the-best-outdoor-event-in-your-city-1834853138>
 
 在纽约，我们有公园里的莎士比亚，美人鱼游行，每周一次的 Smorgasburg 美食广场，苏格拉底年度活动，夏日街道，屋顶电影，还有我最喜欢的，在市政厅举行的年度布鲁克林图书节。阿尔伯克基有热气球节。匹兹堡有三河赛船会。纽约的罗切斯特有紫丁香节。德克萨斯州阿兰萨斯港有德州沙场。旧金山有情人节枕头大战和大车轮比赛。新奥尔良*是*户外赛事。
 

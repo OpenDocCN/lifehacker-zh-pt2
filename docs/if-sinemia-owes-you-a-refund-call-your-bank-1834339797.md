@@ -1,6 +1,6 @@
 # 如果 Sinemia 欠你一笔退款，打电话给你的银行
 
-> 原文:[https://life hacker . com/if-sinemia-owes-you-refund-call-your-bank-1834339797](https://lifehacker.com/if-sinemia-owes-you-a-refund-call-your-bank-1834339797)
+> 原文：<https://lifehacker.com/if-sinemia-owes-you-a-refund-call-your-bank-1834339797>
 
 电影票折扣订阅服务公司 Sinemia 是 MoviePass 的主要竞争对手，它今天宣布将停止在美国的运营——这将在今年最大的电影 [之一](https://lifehacker.com/celebrate-avengers-endgame-with-this-google-easter-egg-1834328500) 上映的当天影响各地的电影观众。
 

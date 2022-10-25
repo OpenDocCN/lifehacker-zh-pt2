@@ -1,6 +1,6 @@
 # 用一个旧泡菜坛子来测量盐水的完美数量
 
-> 原文:[https://life hacker . com/use-an-old-pickle-jar-to-measure-the-perfect-amount-of-1837982860](https://lifehacker.com/use-an-old-pickle-jar-to-measure-the-perfect-amount-of-1837982860)
+> 原文：<https://lifehacker.com/use-an-old-pickle-jar-to-measure-the-perfect-amount-of-1837982860>
 
 大多数泡菜食谱——甚至冰箱- 泡菜食谱——都是为了制作许多罐泡菜，但是如果你住在一个很小的空间里，或者想要许多罐几种*不同*类型的泡菜，这些大格式的比例缩小可能有点烦人。但是你真的不需要食谱来制作冰箱泡菜；你只需要一个旧泡菜坛子。
 

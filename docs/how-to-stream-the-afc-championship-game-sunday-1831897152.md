@@ -1,6 +1,6 @@
 # 如何直播周日的亚冠比赛
 
-> 原文:[https://life hacker . com/how-to-stream-the-AFC-championship-game-Sunday-1831897152](https://lifehacker.com/how-to-stream-the-afc-championship-game-sunday-1831897152)
+> 原文：<https://lifehacker.com/how-to-stream-the-afc-championship-game-sunday-1831897152>
 
 新英格兰爱国者队将于本周日东部时间 6:40 在亚足联冠军赛中迎战堪萨斯城酋长队。这场比赛的获胜者将继续参加今年的超级碗比赛。
 

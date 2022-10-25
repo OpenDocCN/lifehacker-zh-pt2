@@ -1,6 +1,6 @@
 # 如何随心所欲地屏蔽 Windows 10 更新
 
-> 原文:[https://life hacker . com/how-to-block-windows-10-updates-as-long-as-you-want-as-long-you-want-1844232973](https://lifehacker.com/how-to-block-windows-10-updates-for-as-long-as-you-want-1844232973)
+> 原文：<https://lifehacker.com/how-to-block-windows-10-updates-for-as-long-as-you-want-1844232973>
 
 我一般不建议推迟太久的系统更新，但是有很好的理由让你对 Windows 10 的主要功能更新保持警惕。微软在提供不会破坏你的系统的完美更新方面的记录是不稳定的(说得好听点是)，给主要的 Windows 更新一点时间是值得的——以防万一微软需要修复一两个关键问题。
 

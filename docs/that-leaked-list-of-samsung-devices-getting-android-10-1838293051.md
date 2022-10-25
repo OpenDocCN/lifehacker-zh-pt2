@@ -1,6 +1,6 @@
 # 泄露的三星设备获得 Android 10 的名单是假的
 
-> 原文:[https://life hacker . com/that-leaved-list-of-Samsung-devices-getting-Android-10-1838293051](https://lifehacker.com/that-leaked-list-of-samsung-devices-getting-android-10-1838293051)
+> 原文：<https://lifehacker.com/that-leaked-list-of-samsung-devices-getting-android-10-1838293051>
 
 不要相信网上看到的一切。本周早些时候发布的一张截图列出了所有将接受 Android 10 的三星设备。这份名单引起了一些三星用户的兴奋，这是可以理解的，他们希望最新版本的 Android 将成为首选设备。
 

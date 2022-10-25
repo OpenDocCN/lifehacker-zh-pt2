@@ -1,6 +1,6 @@
 # finally our kids are bored 1843158755
 
-> 原文:[https://life hacker . com/finally-our-kids-are-bored-1843158755](https://lifehacker.com/finally-our-kids-are-bored-1843158755)
+> 原文：<https://lifehacker.com/finally-our-kids-are-bored-1843158755>
 
 孩子们无聊对他们有好处。我知道这一点，你知道这一点，我们大多数人都知道这一点。我们小时候很无聊，和我们的朋友、我们的想象力以及明显缺乏的电子设备在附近闲逛。我们相信，这种无聊至少是我们小时候发展的创造力和适应力的部分原因。我们必须让我们自己的，明显的*计划外的，*有趣。
 

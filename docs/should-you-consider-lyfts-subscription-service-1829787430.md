@@ -1,6 +1,6 @@
 # 你应该考虑 Lyft 的订阅服务吗？
 
-> 原文:[https://life hacker . com/should-you-consider-lyfts-subscription-service-1829787430](https://lifehacker.com/should-you-consider-lyfts-subscription-service-1829787430)
+> 原文：<https://lifehacker.com/should-you-consider-lyfts-subscription-service-1829787430>
 
 狂热的乘车爱好者有了一个新的订阅选项，可能每月为他们节省 100 多美元:Lyft 新的每月 [所有接入计划](https://blog.lyft.com/posts/subscribe-and-save-with-the-all-access-plan) 。
 

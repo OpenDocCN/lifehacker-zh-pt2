@@ -1,6 +1,6 @@
 # 用字母寻宝游戏为自己赢得 30 分钟的安宁
 
-> 原文:[https://life hacker . com/buy-yourself-30-minutes-with a-alphabet-s cave-1842593033](https://lifehacker.com/buy-yourself-30-minutes-of-peace-with-an-alphabet-scave-1842593033)
+> 原文：<https://lifehacker.com/buy-yourself-30-minutes-of-peace-with-an-alphabet-scave-1842593033>
 
 在过去的几周里，你居住的世界急剧缩小，这意味着任何让你感觉空间更大的东西都可能在帮助你在与孩子关在一起时保持理智方面发挥关键作用。进入字母寻宝游戏。
 

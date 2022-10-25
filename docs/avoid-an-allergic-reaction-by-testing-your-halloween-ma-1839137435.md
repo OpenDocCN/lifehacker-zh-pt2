@@ -1,6 +1,6 @@
 # 现在测试你的万圣节妆容，避免过敏反应
 
-> 原文:[https://life hacker . com/avoid-an-allergic-reaction-by-testing-your-Halloween-ma-1839137435](https://lifehacker.com/avoid-an-allergic-reaction-by-testing-your-halloween-ma-1839137435)
+> 原文：<https://lifehacker.com/avoid-an-allergic-reaction-by-testing-your-halloween-ma-1839137435>
 
 你想出今年万圣节要穿的完美服装了吗？除了早点去商店挑选你的用品，我们还有一个重要的提前通知生活帮:对你打算涂在你或你孩子脸上的任何东西进行斑贴试验。
 

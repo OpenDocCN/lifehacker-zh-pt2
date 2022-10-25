@@ -1,6 +1,6 @@
 # 让你的孩子洗车
 
-> 原文:[https://life hacker . com/make-your-kid-wash-the-car-1844138858](https://lifehacker.com/make-your-kid-wash-the-car-1844138858)
+> 原文：<https://lifehacker.com/make-your-kid-wash-the-car-1844138858>
 
 孩子们很无聊。孩子们很性感。这辆车很脏。我想我们都知道需要做什么。
 

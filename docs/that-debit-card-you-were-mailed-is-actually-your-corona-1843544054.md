@@ -1,6 +1,6 @@
 # 你被邮寄的那张借记卡实际上是你的冠状病毒救济金
 
-> 原文:[https://life hacker . com/that-debit-card-you-mail-is-actually-your-corona-1843544054](https://lifehacker.com/that-debit-card-you-were-mailed-is-actually-your-corona-1843544054)
+> 原文：<https://lifehacker.com/that-debit-card-you-were-mailed-is-actually-your-corona-1843544054>
 
 如果你在邮件中收到一张借记卡，信中声称是你的 [冠状病毒救济付款](https://lifehacker.com/heres-when-youll-get-your-coronavirus-relief-check-1842652396) ，不要扔掉它——它实际上是合法的:美国财政部 [本周宣布](https://home.treasury.gov/news/press-releases/sm1012) 它开始通过预付借记卡而不是纸质支票发送经济影响付款。卡是由 MetaBank 邮寄的。
 

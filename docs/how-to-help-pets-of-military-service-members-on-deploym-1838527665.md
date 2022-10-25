@@ -1,6 +1,6 @@
 # 如何在部署时帮助军人的宠物
 
-> 原文:[https://life hacker . com/how-to-help-pets-of-military-service-members-on-deploy ym-1838527665](https://lifehacker.com/how-to-help-pets-of-military-service-members-on-deploym-1838527665)
+> 原文：<https://lifehacker.com/how-to-help-pets-of-military-service-members-on-deploym-1838527665>
 
 当一名军人被部署时，这通常意味着为他们的宠物找到一个长期的寄宿环境——或者面临交出他们的动物的可能性。如果您想帮助这些服务人员，并在他们离家时为他们提供一些安慰，您可以使用 [Dog on Deployment](https://www.dogsondeployment.org/) 志愿担任他们宠物的临时寄养父母。
 

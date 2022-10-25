@@ -1,6 +1,6 @@
 # 感恩节准备好这些厨房工具
 
-> 原文:[https://life hacker . com/kitchen-tools-you-may-not-realize-you-need-thanksgi-1830135095](https://lifehacker.com/kitchen-tools-you-may-not-realize-you-need-for-thanksgi-1830135095)
+> 原文：<https://lifehacker.com/kitchen-tools-you-may-not-realize-you-need-for-thanksgi-1830135095>
 
 如果你在你可爱的家里举办过很多次感恩节晚餐，那么很有可能你已经准备好了烹饪火鸡所需的所有锅、盘和工具，以及令人印象深刻的一系列配菜和馅饼。但是如果这是你的第一年，你很可能没有准备好，因为感恩节晚餐需要的厨房用品你在这一年的其他时间里根本不需要。
 

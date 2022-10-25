@@ -1,6 +1,6 @@
 # 好的、坏的和创伤的:重新评估在社交媒体上分享黑死病的角色
 
-> 原文:[https://www . the root . com/the-good-the-bad-and-the-traumatic-re-evaluation-the-r-1843951503](https://www.theroot.com/the-good-the-bad-and-the-traumatic-reevaluating-the-r-1843951503)
+> 原文：<https://www.theroot.com/the-good-the-bad-and-the-traumatic-reevaluating-the-r-1843951503>
 
 从美国奴隶制时代到现在，世界已经看到了大量描述黑人创伤的媒体——从死亡到暴力，以及其间的一切。
 

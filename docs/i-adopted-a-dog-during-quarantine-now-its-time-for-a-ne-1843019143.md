@@ -1,6 +1,6 @@
 # 我在隔离期间收养了一只狗，现在是时候开始新的旅程了！应该买什么车？
 
-> 原文:[https://jalopnik . com/I-adopted-a-dog-during-quarantine-now-its-time-for-a-ne-1843019143](https://jalopnik.com/i-adopted-a-dog-during-quarantine-now-its-time-for-a-ne-1843019143)
+> 原文：<https://jalopnik.com/i-adopted-a-dog-during-quarantine-now-its-time-for-a-ne-1843019143>
 
 布莱恩住在华盛顿，在隔离期间收养了一只小狗。现在，他将需要去兽医诊所，最终去狗公园，和小狗一起进行其他冒险，是时候升级他的老福特福克斯了。他想要一辆小巧的车，但对狗来说要足够大，而且开起来要有乐趣。他应该买什么车？
 

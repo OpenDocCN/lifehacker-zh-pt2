@@ -1,6 +1,6 @@
 # 疫情期间如何获得 Airbnb 退款
 
-> 原文:[https://life hacker . com/how-to-get-a-return-from-Airbnb-in-the-疫情-1842837110](https://lifehacker.com/how-to-get-a-refund-from-airbnb-during-the-pandemic-1842837110)
+> 原文：<https://lifehacker.com/how-to-get-a-refund-from-airbnb-during-the-pandemic-1842837110>
 
 所以:你用 Airbnb 预订了一个假期——现在，由于疫情，你被困在家里。你能拿回你的钱吗？你如何去寻找答案？
 

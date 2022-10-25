@@ -1,6 +1,6 @@
 # 分享你的旅行恐怖故事，赢取假期
 
-> 原文:[https://life hacker . com/win-a-vacation-by-sharing-your-travel-terror-story-1835666344](https://lifehacker.com/win-a-vacation-by-sharing-your-travel-horror-story-1835666344)
+> 原文：<https://lifehacker.com/win-a-vacation-by-sharing-your-travel-horror-story-1835666344>
 
 我们中的许多人都经历过灾难性的飞行或令人虚弱的晕船，这使得在 T2 的度假变成了一场噩梦。一家公司想奖励一名旅行者一次重新旅行，并支付高达 10，000 美元的费用——晕船不包括在内。
 

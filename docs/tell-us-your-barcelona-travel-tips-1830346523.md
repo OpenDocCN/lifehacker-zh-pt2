@@ -1,6 +1,6 @@
 # 告诉我们你的巴塞罗那旅行建议
 
-> 原文:[https://life hacker . com/tell-us-your-Barcelona-travel-tips-1830346523](https://lifehacker.com/tell-us-your-barcelona-travel-tips-1830346523)
+> 原文：<https://lifehacker.com/tell-us-your-barcelona-travel-tips-1830346523>
 
 在后夏令时的纽约，这是一个梦想海滩度假的好时机。让我们去西班牙第二大城市巴塞罗那，参观它的中世纪建筑，躺在它的海滩上，穿过它令人惊讶的直网格街道。
 

@@ -1,6 +1,6 @@
 # 如何用完你完全厌恶的产品
 
-> 原文:[https://life hacker . com/how-to-use-up-a-product-you-total-sick-of-1835807319](https://lifehacker.com/how-to-use-up-a-product-youre-totally-sick-of-1835807319)
+> 原文：<https://lifehacker.com/how-to-use-up-a-product-youre-totally-sick-of-1835807319>
 
 我们都知道“吃你食品柜里已经有的东西”的建议，但我们也知道现实:我们先吃我们最喜欢的东西，然后把剩下的食物留在那里，直到我们面临一个选择，要么 A)连续吃 12 罐豆子，要么 B)购买更多的杂货。
 

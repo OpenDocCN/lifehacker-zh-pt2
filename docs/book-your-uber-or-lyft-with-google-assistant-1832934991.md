@@ -1,6 +1,6 @@
 # 使用谷歌助手预订您的优步或 Lyft
 
-> 原文:[https://life hacker . com/book-your-Uber-or-lyft-with-Google-assistant-1832934991](https://lifehacker.com/book-your-uber-or-lyft-with-google-assistant-1832934991)
+> 原文：<https://lifehacker.com/book-your-uber-or-lyft-with-google-assistant-1832934991>
 
 我们都有过晚餐(或机场)迟到的匆忙时刻，出门前仍有半打事情要做——包括预订优步或 Lyft。
 

@@ -1,6 +1,6 @@
 # 使用 DoNotPay 注册免费试用
 
-> 原文:[https://life hacker . com/sign-up-for-free-trials-with do not pay-1836538872](https://lifehacker.com/sign-up-for-free-trials-with-donotpay-1836538872)
+> 原文：<https://lifehacker.com/sign-up-for-free-trials-with-donotpay-1836538872>
 
 当你用信用卡注册免费试用时，你可能会忘记取消，网飞、Spotify、Audible 或 HBO 将开始按月收费。有些服务很难取消，有些 [像 MoviePass](https://lifehacker.com/how-to-stop-moviepass-from-reversing-your-cancellation-1828331003) ，甚至“不可取消”你。对于那些想注册免费试用订阅服务的高级用户来说，现在有了一个新工具。但是每月要花 3 美元。
 

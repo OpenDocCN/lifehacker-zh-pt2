@@ -1,6 +1,6 @@
 # 如何在 Android 上识别 Chrome 浏览器中的假地址栏
 
-> 原文:[https://life hacker . com/how-to-spot-a-fake-address-bar-in-chrome-on-Android-1834388305](https://lifehacker.com/how-to-spot-a-fake-address-bar-in-chrome-on-android-1834388305)
+> 原文：<https://lifehacker.com/how-to-spot-a-fake-address-bar-in-chrome-on-android-1834388305>
 
 虚假登录页面是从用户处骗取登录凭据的一种常见方法。如果一个网站看起来是合法的，你的肌肉记忆很容易被激活，你就开始输入你的用户名和密码，而不检查 URL 是否正确(或者网站是否合法)。让事情变得复杂的是一个新问题，最近由开发者吉姆·费舍尔(Jim Fisher)描述，这表明网站使用虚假地址栏让你认为你在你不在的地方是多么容易。
 

@@ -1,6 +1,6 @@
 # 使用这些扩展欺骗 Google Meet
 
-> 原文:[https://life hacker . com/use-these-extensions-to-trick-out-Google-meet-1843440924](https://lifehacker.com/use-these-extensions-to-trick-out-google-meet-1843440924)
+> 原文：<https://lifehacker.com/use-these-extensions-to-trick-out-google-meet-1843440924>
 
 Google Meet 现已免费供所有人使用。这个搜索巨头已经完成了它的首次展示，任何有电子邮件地址的人——也就是 Gmail 地址——都可以用它来进行免费的视频聊天。Meet 不像其他视频聊天应用那样功能齐全，但一些有用的浏览器扩展可以添加急需的功能。哦，它们也是免费的。
 

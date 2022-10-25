@@ -1,6 +1,6 @@
 # 如何最终解决这些具有挑战性的财务任务
 
-> 原文:[https://life hacker . com/take-a-deep-breath-forget-challenge-financia-1832431548](https://lifehacker.com/take-a-deep-breath-before-tackling-challenging-financia-1832431548)
+> 原文：<https://lifehacker.com/take-a-deep-breath-before-tackling-challenging-financia-1832431548>
 
 想想你上一次坐下来完成一项财务任务是什么时候。在你登录你的账户，或者拿出你的支票簿之前，你是什么感觉？
 

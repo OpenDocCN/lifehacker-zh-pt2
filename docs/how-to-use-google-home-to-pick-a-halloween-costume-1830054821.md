@@ -1,6 +1,6 @@
 # 如何使用 Google Home 挑选万圣节服装
 
-> 原文:[https://life hacker . com/how-to-use-Google-home-to-pick-a-Halloween-costume-1830054821](https://lifehacker.com/how-to-use-google-home-to-pick-a-halloween-costume-1830054821)
+> 原文：<https://lifehacker.com/how-to-use-google-home-to-pick-a-halloween-costume-1830054821>
 
 如果你还在想万圣节要穿什么，谷歌可以帮你。Google Assistant 目前已经加载了一个测试，来帮助你确定最适合你的万圣节服装。要访问它，问一个谷歌助理设备“万圣节我应该是什么？”然后你将参加一个小测验来帮助缩小你的选择范围。
 

@@ -1,6 +1,6 @@
 # 如何在大力水手获得整个月的免费鸡块
 
-> 原文:[https://life hacker . com/how-to-get-free-chicken-tenders-at-popeyes-all-month-1844021013](https://lifehacker.com/how-to-get-free-chicken-tenders-at-popeyes-all-month-1844021013)
+> 原文：<https://lifehacker.com/how-to-get-free-chicken-tenders-at-popeyes-all-month-1844021013>
 
 大力水手路易斯安那厨房仍然在去年发布的令人难以置信的受欢迎的鸡肉三明治的浪潮中设法抓住了我们的注意力。他们最近将 [更名为](https://www.adweek.com/brand-marketing/popeyes-unveils-refreshed-logo-and-new-restaurant-design/) ，并在新冠肺炎疫情爆发之初通过他们的 app 开始提供 [免费送货，包括向](https://www.qsrweb.com/articles/burger-king-popeyes-tim-hortons-company-ceo-lays-out-covid-19-response/) [【无饥饿儿童】](https://www.nokidhungry.org/) 捐款。
 

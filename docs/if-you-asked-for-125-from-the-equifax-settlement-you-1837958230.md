@@ -1,6 +1,6 @@
 # 如果您要求从 Equifax 结算中获得 125 美元，您需要验证您的索赔
 
-> 原文:[https://life hacker . com/if-you-asked-for-the-equifax-settlement-you-1837958230](https://lifehacker.com/if-you-asked-for-125-from-the-equifax-settlement-you-1837958230)
+> 原文：<https://lifehacker.com/if-you-asked-for-125-from-the-equifax-settlement-you-1837958230>
 
 从 Equifax 违约和解中索赔 125 美元的流程现在多了一个步骤。如果您已经提交了索赔，您可能会在周末收到一封电子邮件，要求您提供进一步的信息。一封来自违约结算管理员的电子邮件指出，如果您申请收取 125 美元来代替免费信用监控，您必须验证您已经设置了信用监控，并将至少在接下来的六个月内保留它。你必须在 10 月 15 日之前核实你的说法，或者修改它，改为请求免费信用监测。
 

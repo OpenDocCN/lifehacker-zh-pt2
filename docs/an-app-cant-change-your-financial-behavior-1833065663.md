@@ -1,6 +1,6 @@
 # 一个 App 改变不了你的理财行为
 
-> 原文:[https://life hacker . com/an-app-cant-change-your-financial-behavior-1833065663](https://lifehacker.com/an-app-cant-change-your-financial-behavior-1833065663)
+> 原文：<https://lifehacker.com/an-app-cant-change-your-financial-behavior-1833065663>
 
 什么都有一个应用程序，许多承诺帮助人们“修复”他们生活中的一些东西。例如，生产力应用程序会把你变成超人，金融应用程序会帮助你达到洛克菲勒级别的财富。
 

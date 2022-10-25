@@ -1,6 +1,6 @@
 # 在你的馅料中加入烟熏火鸡
 
-> 原文:[https://life hacker . com/add-smoked-turkey-to-your-馅料-1839698434](https://lifehacker.com/add-smoked-turkey-to-your-stuffing-1839698434)
+> 原文：<https://lifehacker.com/add-smoked-turkey-to-your-stuffing-1839698434>
 
 馅料有两种主要形式:砂锅面包和湿面包。这就是为什么添加了草药、大蒜等。—是如此重要。虽然我喜欢香草填料，但我建议你添加另一种既不是蔬菜也不是香草的配料。我建议你加熏制火鸡。
 

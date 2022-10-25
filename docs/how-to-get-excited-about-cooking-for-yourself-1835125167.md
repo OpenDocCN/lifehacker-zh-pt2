@@ -1,6 +1,6 @@
 # 如何为自己做饭感到兴奋
 
-> 原文:[https://life hacker . com/how-to-get-excite-on-cooking for yourself-1835125167](https://lifehacker.com/how-to-get-excited-about-cooking-for-yourself-1835125167)
+> 原文：<https://lifehacker.com/how-to-get-excited-about-cooking-for-yourself-1835125167>
 
 “一个人做饭”被认为是最悲伤的一种烹饪，但你有没有试过为讨厌西红柿的人做饭？不管你的关系状态如何，你都得吃饭，你如何看待这项活动的一个简单的转变可以把自我保护的行为变成真正有营养和娱乐的事情。
 

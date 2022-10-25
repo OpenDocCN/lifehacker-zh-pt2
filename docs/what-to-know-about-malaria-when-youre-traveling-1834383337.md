@@ -1,6 +1,6 @@
 # 当你在旅行时，应该知道哪些关于疟疾的知识
 
-> 原文:[https://life hacker . com/what-to-know-about-malaria-when-you-traveling-1834383337](https://lifehacker.com/what-to-know-about-malaria-when-youre-traveling-1834383337)
+> 原文：<https://lifehacker.com/what-to-know-about-malaria-when-youre-traveling-1834383337>
 
 疟疾是世界上许多热带地区的地方病，如果你在旅行中感染了这种疾病，它会导致严重的并发症。所以，如果你计划去热带地区旅行，以下是你需要知道的。
 

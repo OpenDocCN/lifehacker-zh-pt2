@@ -1,6 +1,6 @@
 # 2020 年冬季即将推出的每一款大型游戏
 
-> 原文:[https://kotaku . com/every-big-game-out-in-winter-2020-1840611960](https://kotaku.com/every-big-game-coming-out-in-winter-2020-1840611960)
+> 原文：<https://kotaku.com/every-big-game-coming-out-in-winter-2020-1840611960>
 
 冬天来了，寒冷而沉闷的季节，秋天的大型比赛被推迟了。外面的天气可能是可怕的，但是游戏有希望是令人愉快的。让我们把灯光调暗，看看冬天会发生什么。
 

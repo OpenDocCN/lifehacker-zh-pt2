@@ -1,6 +1,6 @@
 # 如何打造最适合力量训练的沙袋
 
-> 原文:[https://life hacker . com/how-to-build-the-best-weighting-sand bag-1830076035](https://lifehacker.com/how-to-build-the-best-weightlifting-sandbag-1830076035)
+> 原文：<https://lifehacker.com/how-to-build-the-best-weightlifting-sandbag-1830076035>
 
 沙袋很容易做，但是很难做对。如果你在商店买的话，沙子甚至是装在袋子里的，但是把袋子丢在地上两三次，沙子和袋子就会分开。
 

@@ -1,6 +1,6 @@
 # 把你的麦片碗放在冰箱里冷藏一夜
 
-> 原文:[https://life hacker . com/chill-your-麦片碗在冰箱里过夜-1844536674](https://lifehacker.com/chill-your-cereal-bowl-in-the-fridge-overnight-1844536674)
+> 原文：<https://lifehacker.com/chill-your-cereal-bowl-in-the-fridge-overnight-1844536674>
 
 老实说，我很难相信那些声称不喜欢早餐麦片的人。这是那些被*设计成让人们吃它的食物之一——它基本上是给人们吃的！——那些坚持认为自己不受味道科学影响的人，对我来说确实非常可疑。*
 

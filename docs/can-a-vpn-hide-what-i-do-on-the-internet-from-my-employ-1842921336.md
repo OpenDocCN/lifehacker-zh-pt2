@@ -1,6 +1,6 @@
 # VPN 可以对我的雇主隐藏我在互联网上做的事情吗？
 
-> 原文:[https://life hacker . com/can-a-VPN-hide-what-I-do-on-the-internet-from-my-employ-1842921336](https://lifehacker.com/can-a-vpn-hide-what-i-do-on-the-internet-from-my-employ-1842921336)
+> 原文：<https://lifehacker.com/can-a-vpn-hide-what-i-do-on-the-internet-from-my-employ-1842921336>
 
 谈到隐私问题，最好的建议也是最简单的建议:不要把工作和娱乐混为一谈。这意味着不要在你的工作笔记本上安装 BitTorrent 当连接到你公司的 wifi(或 VPN)时，不要浏览淘气的事情并且不要使用你的工作电子邮件转发公司机密(或不适当的模因)。*不不不*
 

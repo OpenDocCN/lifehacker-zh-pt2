@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:帮帮忙，我只被 2D 的角色吸引
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-help-I-m-only-attracted-to-2d-charat-1843460045](https://kotaku.com/ask-dr-nerdlove-help-i-m-only-attracted-to-2d-charac-1843460045)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-help-i-m-only-attracted-to-2d-charac-1843460045>
 
 你们好，所有的网恋狂热者，欢迎来到 [问书呆子爱](http://kotaku.com/askdrnerdlove) 博士，这是唯一的建议专栏，它是你所有感情灾难和敌人的爱的隐藏之刃。
 

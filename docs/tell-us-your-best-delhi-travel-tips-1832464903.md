@@ -1,6 +1,6 @@
 # 告诉我们你最好的德里旅行建议
 
-> 原文:[https://life hacker . com/tell-us-your-best-Delhi-travel-tips-1832464903](https://lifehacker.com/tell-us-your-best-delhi-travel-tips-1832464903)
+> 原文：<https://lifehacker.com/tell-us-your-best-delhi-travel-tips-1832464903>
 
 为黑你的城市挑选地点让我眩晕。就是*这么多地方*跟*这么多人*。本周我们谈论的是印度首都德里，拥有超过 2100 万人口，这座城市如此古老，以至于人们都在争论它建于哪个世纪。20 世纪早期，英国人在里面建了另一座城市*并把它叫做新德里，这告诉了你很多关于帝国主义者的事情。现在我们想学习如何在德里度过一周、一个月，甚至一生。* 
 

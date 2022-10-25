@@ -1,6 +1,6 @@
 # 使用此 Mac 键盘快捷键口述您的信息
 
-> 原文:[https://life hacker . com/dictate-your-messages-using-this-MAC-keyboard-shortcut-1843243720](https://lifehacker.com/dictate-your-messages-using-this-mac-keyboard-shortcut-1843243720)
+> 原文：<https://lifehacker.com/dictate-your-messages-using-this-mac-keyboard-shortcut-1843243720>
 
 喜欢多任务处理的 Mac 用户:有一个键盘快捷键可以打开文本听写，这样你就可以说话而不是打字。
 

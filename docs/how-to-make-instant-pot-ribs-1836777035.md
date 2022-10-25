@@ -1,6 +1,6 @@
 # 我怎么变成了一个瞬间锅排骨皈依者
 
-> 原文:[https://the take out . com/how-to-make-instant-pot-ribs-1836777035](https://thetakeout.com/how-to-make-instant-pot-ribs-1836777035)
+> 原文：<https://thetakeout.com/how-to-make-instant-pot-ribs-1836777035>
 
 当我阅读“新发明食谱”时，我降低了我的期望，这些菜肴包括慢炖锅和速溶锅、空气油炸锅等。我总是准备对(在我看来)这道菜真正耗时的替代品感到失望。我不喜欢替换，更不喜欢走捷径——我不喜欢感觉自己被骗走了某样东西的更好版本。所以在阅读我做的许多食谱时，我一直看到——也一直忽略——即食排骨。
 

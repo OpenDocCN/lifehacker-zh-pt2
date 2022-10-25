@@ -1,6 +1,6 @@
 # 这个周末你可以免费得到《文明 6》
 
-> 原文:[https://life hacker . com/you-can-get-civilization-VI-for-free-this-weekend-1843616959](https://lifehacker.com/you-can-get-civilization-vi-for-free-this-weekend-1843616959)
+> 原文：<https://lifehacker.com/you-can-get-civilization-vi-for-free-this-weekend-1843616959>
 
 如果你正在寻找一些新的东西让你在家时也能娱乐，Epic Games 目前正在大规模销售它的一些游戏。这一销售也使得流行游戏《文明 6》的价格从 60 美元降到了 0 美元。
 

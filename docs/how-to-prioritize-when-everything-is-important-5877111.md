@@ -1,6 +1,6 @@
 # 当所有事情都很重要时，如何确定优先顺序
 
-> 原文:[https://life hacker . com/how-to-prioritize-when everything-is-important-5877111](https://lifehacker.com/how-to-prioritize-when-everything-is-important-5877111)
+> 原文：<https://lifehacker.com/how-to-prioritize-when-everything-is-important-5877111>
 
 当然，列一个待办事项清单是很好的，但是你如何区分任务的优先次序呢——尤其是当所有事情看起来都很重要的时候？你需要学会如何分清轻重缓急，而不是不知所措。是的，这是完全可能的，我们将告诉你如何去做。
 

@@ -1,6 +1,6 @@
 # 观看这些棕熊捕捉跳跃的鲑鱼
 
-> 原文:[https://life hacker . com/watch-these-brown-bears-catch-jumping-salmon-1844376500](https://lifehacker.com/watch-these-brown-bears-catch-jumping-salmon-1844376500)
+> 原文：<https://lifehacker.com/watch-these-brown-bears-catch-jumping-salmon-1844376500>
 
 随着疫情继续对人类生活的每一个方面造成严重破坏，提醒我们大自然不顾一切地前进(或践踏，或爬行，或爬行，或游泳),对我们的全球剧变漠不关心是件好事。自然是愈合， [迷因告诉我们](https://www.buzzfeednews.com/article/emmanuelfelton/coronavirus-meme-nature-is-healing-we-are-the-virus) ，但真的，至少*的东西*是。所以，又到了一年中的这个时候，为什么不去看一些阿拉斯加熊捕捉跳跃的鲑鱼呢？这是一个绝对的寿司节——拿着糯米和紫菜。
 

@@ -1,6 +1,6 @@
 # 关于维修的对话
 
-> 原文:[https://jezebel.com/a-conversation-about-repair-1829458908](https://jezebel.com/a-conversation-about-repair-1829458908)
+> 原文：<https://jezebel.com/a-conversation-about-repair-1829458908>
 
 已经过去了一年，或者在某些情况下更短，但 [他们又回来了](https://jezebel.com/here-they-come-again-1828650290#_ga=2.17582266.2027990723.1539147151-291996485.1528834882) :路易·CK、简·古迈什、约翰·霍肯伯里，以及其他因性虐待和性骚扰指控(以及)而离职或退出公众视野的人。
 

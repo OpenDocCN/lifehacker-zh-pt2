@@ -1,6 +1,6 @@
 # Gremolata 不仅仅是香菜酱
 
-> 原文:[https://the take out . com/recipe-how-to-make-gremolata-1835579456](https://thetakeout.com/recipe-how-to-make-gremolata-1835579456)
+> 原文：<https://thetakeout.com/recipe-how-to-make-gremolata-1835579456>
 
 我经常在罗勒上放欧芹做菜。我更喜欢它淡淡的泥土气息，它能与各种大胆的成分融合在一起。欧芹和其他口味搭配得很好，像一个支持的同事一样提升它们。虽然我确实渴望像番茄汤团这样的东西的独特芳香，但我不会用罗勒做太多的菜。
 

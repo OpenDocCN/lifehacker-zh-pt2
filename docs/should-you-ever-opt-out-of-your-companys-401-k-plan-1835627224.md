@@ -1,6 +1,6 @@
 # 你应该选择退出公司的 401(k)计划吗？
 
-> 原文:[https://life hacker . com/should-you-ever-opt-out-of-your-companies-401-k-plan-1835627224](https://lifehacker.com/should-you-ever-opt-out-of-your-companys-401-k-plan-1835627224)
+> 原文：<https://lifehacker.com/should-you-ever-opt-out-of-your-companys-401-k-plan-1835627224>
 
 你已经注意到你的新工作——有着令人敬畏的薪水、梦寐以求的头衔、休息室里有啤酒冰箱和乒乓球桌的工作——没有一个很好的退休计划。没有匹配的。没有足够的投资选择。费用非常高。这很快就会成为你怀念以前工作的地方。不是休息室——那个有空气曲棍球——而是退休计划。
 

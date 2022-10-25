@@ -1,6 +1,6 @@
 # 如果可以的话，现在就领养一只宠物
 
-> 原文:[https://life hacker . com/foster-a-pet-now-if-you-can-1842447852](https://lifehacker.com/foster-a-pet-now-if-you-can-1842447852)
+> 原文：<https://lifehacker.com/foster-a-pet-now-if-you-can-1842447852>
 
 这个世界现在是一个可怕的，充满压力的地方。家长们正在努力应对在家工作的压力和学校关闭带来的额外压力。工人们，尤其是服务行业的工人们，要么面临裁员，要么面临缩减工作时间。与此同时，物理距离意味着放弃许多让我们脚踏实地的惯例。
 

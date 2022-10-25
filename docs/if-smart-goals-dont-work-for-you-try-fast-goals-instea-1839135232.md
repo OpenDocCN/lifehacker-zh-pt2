@@ -1,6 +1,6 @@
 # 如果聪明的目标对你不起作用，试试快速的目标
 
-> 原文:[https://life hacker . com/if-smart-goals-don-t-work-for-you-try-fast-goals-instea-1839135232](https://lifehacker.com/if-smart-goals-dont-work-for-you-try-fast-goals-instea-1839135232)
+> 原文：<https://lifehacker.com/if-smart-goals-dont-work-for-you-try-fast-goals-instea-1839135232>
 
 你可能熟悉 SMART 目标的概念:具体的、可衡量的、可实现的、现实的、及时的。这种目标可以得到结果，但它可能不是让你达到目的地的最佳方式。
 

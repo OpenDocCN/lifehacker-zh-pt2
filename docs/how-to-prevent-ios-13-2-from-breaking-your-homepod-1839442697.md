@@ -1,6 +1,6 @@
 # 如何防止 iOS 13.2 坏了你的 HomePod
 
-> 原文:[https://life hacker . com/how-to-prevent-IOs-13-2-from-breaking-your-homepod-1839442697](https://lifehacker.com/how-to-prevent-ios-13-2-from-breaking-your-homepod-1839442697)
+> 原文：<https://lifehacker.com/how-to-prevent-ios-13-2-from-breaking-your-homepod-1839442697>
 
 苹果前几天发布了 iOS 13.2，为你的 HomePod 增加了一些简洁的功能——包括检测和区分多种声音的能力，以及通过将手机靠近扬声器将音频从 iPhone 传递到 Homepod。坏消息是，这次更新似乎在不分青红皂白地砖化一些 HomePods。
 

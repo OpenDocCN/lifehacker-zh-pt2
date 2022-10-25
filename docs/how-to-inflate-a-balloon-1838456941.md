@@ -1,6 +1,6 @@
 # 如何给气球充气
 
-> 原文:[https://lifehacker.com/how-to-inflate-a-balloon-1838456941](https://lifehacker.com/how-to-inflate-a-balloon-1838456941)
+> 原文：<https://lifehacker.com/how-to-inflate-a-balloon-1838456941>
 
 我们都会错过一两节人生课。有些人，像 life hacker reader[izzysanime](https://lifehacker.com/1837002957)，从来没学过怎么吹气球。在你学会它之前，它实际上有点棘手！所以我们会教你。
 

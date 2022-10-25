@@ -1,6 +1,6 @@
 # 如何为你的锻炼找到完美的操场
 
-> 原文:[https://life hacker . com/how-to-find the perfect-playground for your-workout-1835726820](https://lifehacker.com/how-to-find-the-perfect-playground-for-your-workout-1835726820)
+> 原文：<https://lifehacker.com/how-to-find-the-perfect-playground-for-your-workout-1835726820>
 
 作为一名家长，我对我所在地区的许多游乐场都有一个心理地图。哪些是最近的，哪些是晴天最阴暗的，哪些是最适合小孩子的设备。但是积累这种知识需要时间。
 

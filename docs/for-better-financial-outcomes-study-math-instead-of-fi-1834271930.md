@@ -1,6 +1,6 @@
 # 为了更好的财务结果，学习数学而不是“财务知识”
 
-> 原文:[https://life hacker . com/for-better-financial-outcomes-study-math-of-fi-1834271930](https://lifehacker.com/for-better-financial-outcomes-study-math-instead-of-fi-1834271930)
+> 原文：<https://lifehacker.com/for-better-financial-outcomes-study-math-instead-of-fi-1834271930>
 
 你在高中上过个人理财课程吗？大学怎么样？根据你上课的时间，你可能已经学到了一些现在已经过时的信息，比如“如何平衡支票簿”和“为什么你应该把钱存入高息储蓄账户。”
 

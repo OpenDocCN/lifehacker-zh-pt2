@@ -1,6 +1,6 @@
 # 什么时候搅拌，什么时候摇晃鸡尾酒
 
-> 原文:[https://life hacker . com/when-to-stir-and-when-shake-a-cocktail-1832726183](https://lifehacker.com/when-to-stir-and-when-to-shake-a-cocktail-1832726183)
+> 原文：<https://lifehacker.com/when-to-stir-and-when-to-shake-a-cocktail-1832726183>
 
 你那势利的鸡尾酒朋友可能会在说出“摇晃，而不是搅动”时变得不知所措(或者更糟，一场讲座)，但是，尽管他们对摇晃的*马提尼的感觉*是有效的，实际上摇晃鸡尾酒可能是好的。
 

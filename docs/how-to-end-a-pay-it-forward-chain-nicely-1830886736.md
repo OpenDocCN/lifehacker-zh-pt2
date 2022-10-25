@@ -1,6 +1,6 @@
 # 如何结束支付转发链(漂亮地)
 
-> 原文:[https://life hacker . com/how-to-end-a-pay-it-forward-chain-nicely-1830886736](https://lifehacker.com/how-to-end-a-pay-it-forward-chain-nicely-1830886736)
+> 原文：<https://lifehacker.com/how-to-end-a-pay-it-forward-chain-nicely-1830886736>
 
 这是慈善行为的季节，如果你发现自己在免下车排队，你可能会被卷入“向前支付”的链条。有人告诉你，你前面的人为你点的菜付了钱。如果你感到尴尬或内疚——毕竟，你下了订单，所以你知道你有钱——你可以支付你后面的车，现在是他们的问题了。幸运的是，有一种方法可以打破这个链条，而不成为一个混蛋。
 

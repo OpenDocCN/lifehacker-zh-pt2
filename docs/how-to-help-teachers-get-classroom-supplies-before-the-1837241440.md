@@ -1,6 +1,6 @@
 # 如何在新学年开始前帮助教师获得教室用品
 
-> 原文:[https://life hacker . com/how-to-help-teachers-get-classroom-supplies-before-the-1837241440](https://lifehacker.com/how-to-help-teachers-get-classroom-supplies-before-the-1837241440)
+> 原文：<https://lifehacker.com/how-to-help-teachers-get-classroom-supplies-before-the-1837241440>
 
 这是返校购物季，不仅仅是对父母来说。据《纽约时报》报道，多达 98%的教师负责购买自己的课堂用品。这可不是一笔小数目:根据同一篇文章，那些不得不自己购买教学用品的教师平均要花 479 美元来购置教室用品。
 

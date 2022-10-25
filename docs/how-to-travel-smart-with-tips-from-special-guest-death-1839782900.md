@@ -1,6 +1,6 @@
 # 如何聪明地旅行，特别来宾死亡搁浅的提示
 
-> 原文:[https://kotaku . com/how-to-travel-smart-with-tips-from-special-guest-death-1839782900](https://kotaku.com/how-to-travel-smart-with-tips-from-special-guest-death-1839782900)
+> 原文：<https://kotaku.com/how-to-travel-smart-with-tips-from-special-guest-death-1839782900>
 
 这个世界终于能够深入了解死亡搁浅事件，虽然它可能会得到褒贬不一的评价，但迄今为止我一直很喜欢它。我是一个喜欢提前计划的怪人，而*的死亡搁浅*让我想起了我最喜欢的一种从大量计划中受益的消遣方式:旅行。事实上，这个游戏教会你高效打包，轻松旅行。
 

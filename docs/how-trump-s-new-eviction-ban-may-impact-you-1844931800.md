@@ -1,6 +1,6 @@
 # 特朗普的新驱逐禁令可能会对你产生什么影响
 
-> 原文:[https://life hacker . com/how-trump-s-new-eviction-ban-may-impact-you-1844931800](https://lifehacker.com/how-trump-s-new-eviction-ban-may-impact-you-1844931800)
+> 原文：<https://lifehacker.com/how-trump-s-new-eviction-ban-may-impact-you-1844931800>
 
 昨天，川普政府下令临时驱逐禁令，以应对正在蔓延的冠状病毒疫情。来自疾病控制和预防中心的命令旨在通过让租房者远离避难所或其他拥挤的居住场所来阻止病毒的传播。该命令影响了大多数租房者——具体来说，就是那些收入在 99，000 美元或以下的租房者(联合申报者为 198，000 美元)——直到 2020 年底。
 

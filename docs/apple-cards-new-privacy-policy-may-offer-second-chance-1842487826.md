@@ -1,6 +1,6 @@
 # Apple Card 的新隐私政策可能会给被拒申请人提供第二次机会
 
-> 原文:[https://life hacker . com/apple-cards-new-privacy-policy-may-offer-second-chance-1842487826](https://lifehacker.com/apple-cards-new-privacy-policy-may-offer-second-chance-1842487826)
+> 原文：<https://lifehacker.com/apple-cards-new-privacy-policy-may-offer-second-chance-1842487826>
 
 Apple Card 有一项新的隐私政策，该政策会影响现有客户以及尚未申请信用卡的人。预计这些变化将使苹果的银行合作伙伴高盛(Goldman Sachs)更容易判断哪些潜在客户是有信用的。
 

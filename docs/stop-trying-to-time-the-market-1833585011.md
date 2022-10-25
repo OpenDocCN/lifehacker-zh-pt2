@@ -1,6 +1,6 @@
 # 不要试图把握市场时机
 
-> 原文:[https://life hacker . com/stop-trying-to-time-the-market-1833585011](https://lifehacker.com/stop-trying-to-time-the-market-1833585011)
+> 原文：<https://lifehacker.com/stop-trying-to-time-the-market-1833585011>
 
 欢迎回到声明，Lifehacker 的个人理财简讯。有问题吗？发送电子邮件**给 tips@lifehacker.com**或回复此邮件。
 

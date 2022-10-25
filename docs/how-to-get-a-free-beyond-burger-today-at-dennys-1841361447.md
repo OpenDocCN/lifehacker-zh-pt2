@@ -1,6 +1,6 @@
 # 如何在 Denny's 获得汉堡之外的“免费”
 
-> 原文:[https://life hacker . com/how-to-get-a-free-beyond-burger-today-1841361447](https://lifehacker.com/how-to-get-a-free-beyond-burger-today-at-dennys-1841361447)
+> 原文：<https://lifehacker.com/how-to-get-a-free-beyond-burger-today-at-dennys-1841361447>
 
 如果你一直想尝试肉类以外的植物性汉堡，今天你有机会从丹尼餐厅免费获得一个。这家早餐连锁店最近在其菜单上增加了肉类以外的食物，并通过在周四提供免费汉堡和购买饮料来庆祝这一合作关系。
 

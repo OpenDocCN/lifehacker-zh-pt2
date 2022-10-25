@@ -1,6 +1,6 @@
 # 你的物品被运输安全管理局没收后会怎么样？
 
-> 原文:[https://life hacker . com/what-boards-to-what-what-boards-to-your ' s items-governed-by-TSA-1840931426](https://lifehacker.com/what-happens-to-your-items-that-get-confiscated-by-tsa-1840931426)
+> 原文：<https://lifehacker.com/what-happens-to-your-items-that-get-confiscated-by-tsa-1840931426>
 
 当你通过机场安检处的金属探测器时，一名美国运输安全管理局的工作人员问了一个没人想听的问题，针对你周围的一群旅客:这是谁的包？在你知道之前，代理人从你的随身行李中拿出那超大的液体，送你上路。
 

@@ -1,6 +1,6 @@
 # 玩这个有趣的游戏来了解糟糕的用户界面
 
-> 原文:[https://life hacker . com/play-this-funny-game-to-learn-about-bad-ui-1836859990](https://lifehacker.com/play-this-hilarious-game-to-learn-about-bad-ui-1836859990)
+> 原文：<https://lifehacker.com/play-this-hilarious-game-to-learn-about-bad-ui-1836859990>
 
 如果一个网站曾经因为太多的弹出窗口、设计愚蠢的菜单或无数次证明你是人类的测试而让你烦恼，那么网页游戏 [用户 Inyerface](https://userinyerface.com/game.html) 会在让你发笑的同时让你抓狂。
 

@@ -1,6 +1,6 @@
 # dump your nasty junk drawer in the garbage 1831345877
 
-> 原文:[https://life hacker . com/dump-your-nasty-junk-drawer-in-the-garbage-1831345877](https://lifehacker.com/dump-your-nasty-junk-drawer-in-the-garbage-1831345877)
+> 原文：<https://lifehacker.com/dump-your-nasty-junk-drawer-in-the-garbage-1831345877>
 
 你知道那个恶心的抽屉，里面装满了随机的番茄酱包、收据、橡皮筋和其他在一天结束时从你的口袋或钱包里倒出来的垃圾吗？有人称之为垃圾抽屉。其他人称它为“所有东西的抽屉”，或“零碎东西的抽屉”，或简称为“那个抽屉”我称之为“诡计抽屉”,就像理查德·尼克松和囤积者使用的那种卑鄙伎俩。有些人没有抽屉，他们有一碗魔术或者一个魔术架子或者厨房柜台的一个角落。
 

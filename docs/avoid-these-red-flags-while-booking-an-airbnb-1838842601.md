@@ -1,6 +1,6 @@
 # 如何避免 Airbnb 骗局
 
-> 原文:[https://life hacker . com/avoid-these-red-flags-while-booking-an-Airbnb-1838842601](https://lifehacker.com/avoid-these-red-flags-while-booking-an-airbnb-1838842601)
+> 原文：<https://lifehacker.com/avoid-these-red-flags-while-booking-an-airbnb-1838842601>
 
 上周，一对 [夫妇花了近 11800 美元](https://www.cnn.com/travel/article/airbnb-ibiza-spain-penthouse-scam-trnd/index.html) 在西班牙伊比沙岛的 Airbnb 住了两周——却发现房源是个骗局。办理入住手续时，他们得知这家酒店根本不存在，并发现自己在最后一刻匆忙寻找酒店，同时努力与 Airbnb 沟通。
 

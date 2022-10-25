@@ -1,6 +1,6 @@
 # 加入酒石奶油，让食物变得更蓬松
 
-> 原文:[https://life hacker . com/get-fluffier-scrambles-by-adding-cream-of-tartar-1842128443](https://lifehacker.com/get-fluffier-scrambles-by-adding-cream-of-tartar-1842128443)
+> 原文：<https://lifehacker.com/get-fluffier-scrambles-by-adding-cream-of-tartar-1842128443>
 
 鞑靼奶油最常见的用途之一是稳定高耸蛋白酥皮蛋糕中的蛋白，但蛋白酥皮蛋糕很少是日常用品。这会导致未使用的酒石就挂在你的调料柜里，这太糟糕了，因为那东西相当贵。幸运的是，鞑靼奶油蛋白的稳定特性可以用来制作超级蓬松的炒鸡蛋，我个人吃的东西比蛋白酥皮饼多得多。
 

@@ -1,6 +1,6 @@
 # 如何在 NordVPN、TorGuard 和 VikingVPN 漏洞中保护您的数据
 
-> 原文:[https://life hacker . com/how-to-protect-your-data-in-the-nord VPN-torguard-and-v-1839267373](https://lifehacker.com/how-to-protect-your-data-in-the-nordvpn-torguard-and-v-1839267373)
+> 原文：<https://lifehacker.com/how-to-protect-your-data-in-the-nordvpn-torguard-and-v-1839267373>
 
 在过去的几年里，黑客已经闯入了至少三个受欢迎的 [VPN 服务](https://lifehacker.com/tag/vpn)——nord VPN、VikingVPN 和 TorGuard——的服务器，窃取可能被用于拦截和解密高度敏感的用户数据的密钥，或者绕过浏览器安全功能来部署基于网络的攻击。换句话说，这并不好，尤其是如果你使用三种电子服务中的一种。
 

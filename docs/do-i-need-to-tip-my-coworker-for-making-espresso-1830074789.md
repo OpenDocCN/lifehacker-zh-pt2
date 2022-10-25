@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:我的同事给我做了一杯浓缩咖啡，我需要给她小费吗？
 
-> 原文:[https://the take out . com/do-I-need-to-tip-my-worker-for-making-espresso-1830074789](https://thetakeout.com/do-i-need-to-tip-my-coworker-for-making-espresso-1830074789)
+> 原文：<https://thetakeout.com/do-i-need-to-tip-my-coworker-for-making-espresso-1830074789>
 
 > 亲爱的咸味女服务员，我在一家中型家庭经营的杂货店做收银员。这是我人生中第一次做这种工作，我是在我妻子在美国找到工作后得到这份工作的。(我们来自法国。)
 > 

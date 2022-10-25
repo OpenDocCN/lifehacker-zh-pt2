@@ -1,6 +1,6 @@
 # 使用“经典”食谱作为模板制作更好的沙拉
 
-> 原文:[https://life hacker . com/make-better-salads-by-using-a-classic-recipe-as-a-a-templ-1837986043](https://lifehacker.com/make-better-salads-by-using-a-classic-recipe-as-a-templ-1837986043)
+> 原文：<https://lifehacker.com/make-better-salads-by-using-a-classic-recipe-as-a-templ-1837986043>
 
 对一些人来说，做一道好沙拉是很直观的；对其他人来说，这是一个令人惊讶的挑战。在一堆叶子上混合和搭配各种口味和质地可能看起来不是太令人畏惧的任务，但很容易导致沙拉太辛辣、太咸，或者——绝对最糟糕的——淡而无味。
 

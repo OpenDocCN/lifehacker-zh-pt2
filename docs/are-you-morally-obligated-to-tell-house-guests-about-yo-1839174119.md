@@ -1,6 +1,6 @@
 # 你在道德上有义务告诉房客你的智能设备吗？
 
-> 原文:[https://life hacker . com/1839174119](https://lifehacker.com/are-you-morally-obligated-to-tell-house-guests-about-yo-1839174119)
+> 原文：<https://lifehacker.com/are-you-morally-obligated-to-tell-house-guests-about-yo-1839174119>
 
 你应该告诉别人你在家里的某个地方藏了一个智能音箱、相机或显示器吗？如果那个人和你住在一起，当然可以。如果你有一些朋友过来，这是不是有点过分了？你有责任让人们知道吗，还是小题大做？
 

@@ -1,6 +1,6 @@
 # 2019 年 2 月 25 日这一周，网飞有什么动静
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week-of-februar-1832798238](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-februar-1832798238)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-februar-1832798238>
 
 你看过网飞的《危险边缘》吗？*网飞的《危险边缘》*是没有商业广告的*危险边缘*,这是一个很酷的每集 20 分钟的书呆子琐事，只是那种我们都可以使用的无压力、自我庆祝的狂欢。网飞的《危险边缘》第二集*将于周四播出，正好赶上一些好的周末娱乐节目，如果你认为只有狂看游戏节目的人才会把牙齿放在床头柜上一杯水里，那就没人知道了。我碰巧喜欢网飞的《危险边缘》。我的爱让我读了《谜一样的亚历克斯·崔贝克》的两个简介，发现 [大多数游戏节目主持人都是共和党人](https://www.thedailybeast.com/why-game-show-hosts-vote-republican) ！这是一个有用的小细节，可以让你在下一次聚会上开个头。* 
 

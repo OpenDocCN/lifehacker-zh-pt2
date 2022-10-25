@@ -1,6 +1,6 @@
 # 不要错过今晚的粉红超级月亮
 
-> 原文:[https://life hacker . com/don ' t-miss-tonights-pink-super moon-1842730174](https://lifehacker.com/dont-miss-tonights-pink-supermoon-1842730174)
+> 原文：<https://lifehacker.com/dont-miss-tonights-pink-supermoon-1842730174>
 
 如果你现在正在寻找从你所有的烦恼中转移注意力的方法(如此如此之多)，今晚一定要花些时间凝视天空，因为今晚的满月将是一年中最大最亮的。
 

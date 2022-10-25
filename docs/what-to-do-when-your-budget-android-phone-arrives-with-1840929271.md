@@ -1,6 +1,6 @@
 # 当你的廉价安卓手机带有恶意软件时该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-when-your-budget-Android-phone-arrives-with-1840929271](https://lifehacker.com/what-to-do-when-your-budget-android-phone-arrives-with-1840929271)
+> 原文：<https://lifehacker.com/what-to-do-when-your-budget-android-phone-arrives-with-1840929271>
 
 美国政府的 [生命线援助](https://www.fcc.gov/consumers/guides/lifeline-support-affordable-communications) 计划的前提没有错。它允许那些收入相当低的人——比联邦贫困指导线低 135%或更低，或者一个单人家庭不到 16862 美元——获得折扣或免费的电话和无线服务。
 

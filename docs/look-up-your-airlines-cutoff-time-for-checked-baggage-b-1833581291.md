@@ -1,6 +1,6 @@
 # 在你坐飞机之前，查一下你的航空公司托运行李的截止时间
 
-> 原文:[https://life hacker . com/look-up-your-airlines-b-1833581291](https://lifehacker.com/look-up-your-airlines-cutoff-time-for-checked-baggage-b-1833581291)
+> 原文：<https://lifehacker.com/look-up-your-airlines-cutoff-time-for-checked-baggage-b-1833581291>
 
 我已经至少十年没有在飞机上托运行李了。我从来没有旅行过那么长时间或带那么多东西，而且，我要花钱买带着我已有的东西旅行的特权...已经付钱给自己了吗？不用了，谢谢。
 

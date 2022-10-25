@@ -1,6 +1,6 @@
 # 来自我们读者的最佳首尔旅游建议
 
-> 原文:[https://life hacker . com/the-best-Seoul-travel-tips-from-our-readers-1830130780](https://lifehacker.com/the-best-seoul-travel-tips-from-our-readers-1830130780)
+> 原文：<https://lifehacker.com/the-best-seoul-travel-tips-from-our-readers-1830130780>
 
 本周 Hack Your City [乘坐首尔列车前往韩国](https://lifehacker.com/tell-us-your-seoul-travel-tips-1830032895) 。我们从当地人和常客那里获得了很多关于这座城市的建议，我们在下面列出了一些亮点。首先，这里有一个很棒的地图指南——我喜欢人们在地图上画画——到传统的北村， [这里描绘了](https://unsplash.com/photos/-e6Xu27_T50) 俯瞰城市的现代塔楼。
 

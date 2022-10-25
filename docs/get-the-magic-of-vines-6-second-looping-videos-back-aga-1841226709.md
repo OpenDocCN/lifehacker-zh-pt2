@@ -1,6 +1,6 @@
 # 使用 Byte 再次获得 Vine 的 6 秒循环视频的魔力
 
-> 原文:[https://life hacker . com/get-the-magic-of-vines-6-second-looping-videos-back-aga-1841226709](https://lifehacker.com/get-the-magic-of-vines-6-second-looping-videos-back-aga-1841226709)
+> 原文：<https://lifehacker.com/get-the-magic-of-vines-6-second-looping-videos-back-aga-1841226709>
 
 早在 2016 年，Twitter 就打电话关闭了它购买的专门制作 6 秒循环视频的视频服务 Vine。现在，差不多四年过去了，Vine 的联合创始人之一发布了一个应用程序，可以将那些视频带回来: [字节](https://byte.co/) 。
 

@@ -1,6 +1,6 @@
 # 你可以用肉温度计量体温
 
-> 原文:[https://life hacker . com/you-can-take-you-temperature-1842476053](https://lifehacker.com/you-can-take-your-temperature-with-a-meat-thermometer-1842476053)
+> 原文：<https://lifehacker.com/you-can-take-your-temperature-with-a-meat-thermometer-1842476053>
 
 就像异丙醇和 Clorox 湿巾一样，冠状病毒疫情已经将口腔温度计变成了一种不可能的热门商品。如果你无法找到一个来测量你的体温，解决方案可能已经在你的厨房里了——事实证明，肉类温度计对人类的嘴巴和对烤肉和牛排一样有效。
 

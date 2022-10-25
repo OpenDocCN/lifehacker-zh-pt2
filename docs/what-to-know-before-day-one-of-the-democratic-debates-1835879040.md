@@ -1,6 +1,6 @@
 # 民主党辩论第一天之前要知道什么
 
-> 原文:[https://life hacker . com/1835879040](https://lifehacker.com/what-to-know-before-day-one-of-the-democratic-debates-1835879040)
+> 原文：<https://lifehacker.com/what-to-know-before-day-one-of-the-democratic-debates-1835879040>
 
 如果你没有关注新闻或者你阿姨的脸书状态，这里有一个提醒:今晚，民主党辩论的前半部分将在美国东部时间 T.
 晚上 9 点举行

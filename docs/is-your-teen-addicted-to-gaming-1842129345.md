@@ -1,6 +1,6 @@
 # 你的孩子沉迷于游戏吗？
 
-> 原文:[https://life hacker . com/is-your-teen-additive-to-gaming-1842129345](https://lifehacker.com/is-your-teen-addicted-to-gaming-1842129345)
+> 原文：<https://lifehacker.com/is-your-teen-addicted-to-gaming-1842129345>
 
 这些天，你的青少年想做的似乎就是蹲下，拿着智能手机、平板电脑、笔记本电脑或游戏设备玩上几个小时。青少年和游戏是携手并进的，尤其是当他们能够接触到各种不同的设备和游戏选项时。但是你怎么知道什么时候所有的游戏变成了太多的 T2 游戏呢？
 

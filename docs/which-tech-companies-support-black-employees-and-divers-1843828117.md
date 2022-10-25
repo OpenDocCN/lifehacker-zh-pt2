@@ -1,6 +1,6 @@
 # 哪些科技公司支持黑人员工和多元化？
 
-> 原文:[https://life hacker . com/which-tech-companies-support-black-employees-and-divers-1843828117](https://lifehacker.com/which-tech-companies-support-black-employees-and-divers-1843828117)
+> 原文：<https://lifehacker.com/which-tech-companies-support-black-employees-and-divers-1843828117>
 
 乔治·弗洛伊德(George Floyd)死后，一些科技公司发表声明，谴责种族主义和警察暴行，并表示支持种族正义。但是，虽然声明是很好的，感觉良好的姿态，但更好的是用你的金钱和招聘实践来展示你的承诺。毕竟，在一个财富等于权力的国家，一家公司雇佣谁以及它在财务上支持的事业比一条推特更有说服力。
 

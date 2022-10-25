@@ -1,6 +1,6 @@
 # 退休储蓄将变得更加容易
 
-> 原文:[https://life hacker . com/saving for the retirement-is-going-to-get-easy-1840534374](https://lifehacker.com/saving-for-retirement-is-about-to-get-easier-1840534374)
+> 原文：<https://lifehacker.com/saving-for-retirement-is-about-to-get-easier-1840534374>
 
 对于你最终的退休来说，这里有一些好消息:国会正试图让你更容易存钱，以便有一天你可以最终放下公文包，在海滩上放松一下。
 

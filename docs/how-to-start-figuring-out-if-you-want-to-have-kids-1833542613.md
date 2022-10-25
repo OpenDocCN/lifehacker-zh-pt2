@@ -1,6 +1,6 @@
 # 如何开始决定你是否想要孩子
 
-> 原文:[https://life hacker . com/how-to-start-figuring-if-you-want-to-hacked-1833542613](https://lifehacker.com/how-to-start-figuring-out-if-you-want-to-have-kids-1833542613)
+> 原文：<https://lifehacker.com/how-to-start-figuring-out-if-you-want-to-have-kids-1833542613>
 
 能够主动决定要不要孩子是一种巨大的特权。这也可能是你做出的最困难的决定之一。Ann Davidma n 是一名婚姻和家庭治疗师，她为那些在这一选择中挣扎的人担任“清晰母性导师”,她与 Lifehacker 分享了一些她在这一过程中的建议。
 

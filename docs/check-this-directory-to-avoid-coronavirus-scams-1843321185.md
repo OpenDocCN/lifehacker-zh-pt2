@@ -1,6 +1,6 @@
 # 检查此目录以避免冠状病毒诈骗
 
-> 原文:[https://life hacker . com/check-this-directory-to-avoid-coronavirus-scams-1843321185](https://lifehacker.com/check-this-directory-to-avoid-coronavirus-scams-1843321185)
+> 原文：<https://lifehacker.com/check-this-directory-to-avoid-coronavirus-scams-1843321185>
 
 你已经听到了冠状病毒爆发期间金融诈骗呈上升趋势的警告。但是当你在日常生活中，很难快速判断什么是骗局，什么是真实的。
 

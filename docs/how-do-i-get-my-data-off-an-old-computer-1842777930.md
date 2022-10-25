@@ -1,6 +1,6 @@
 # 我如何从旧电脑上获取数据？
 
-> 原文:[https://life hacker . com/how-do-I-get-my-data-off-a-old-computer-1842777930](https://lifehacker.com/how-do-i-get-my-data-off-an-old-computer-1842777930)
+> 原文：<https://lifehacker.com/how-do-i-get-my-data-off-an-old-computer-1842777930>
 
 无论你是升级还是购买一台全新的台式机或笔记本电脑，总有一天你将不得不与使用多年的电脑说再见。你们中的大多数人会在永远离开退休系统之前尝试从退休系统中提取数据。如果你很匆忙——因为你和我一样对建立更新、更快、更漂亮的东西感到兴奋——你会忘记这样做，你会发现自己被卡住了。
 

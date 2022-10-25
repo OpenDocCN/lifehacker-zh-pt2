@@ -1,6 +1,6 @@
 # 如何从 WWDC 2020 开始测试苹果新的操作系统更新
 
-> 原文:[https://life hacker . com/how-to-beta-test-apple-new-OS-updates-from-wwdc-2020-1844123711](https://lifehacker.com/how-to-beta-test-apples-new-os-updates-from-wwdc-2020-1844123711)
+> 原文：<https://lifehacker.com/how-to-beta-test-apples-new-os-updates-from-wwdc-2020-1844123711>
 
 我喜欢好的测试版。虽然我不建议你在你的主要设备上安装苹果刚刚发布的操作系统的开发者测试版，以防出现灾难性的错误，但尝试新功能的冲动是很难忽视的。
 

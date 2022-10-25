@@ -1,6 +1,6 @@
 # 如何在情感上远离批评
 
-> 原文:[https://life hacker . com/how-to-情感上脱离批评-1830740583](https://lifehacker.com/how-to-emotionally-detach-from-criticism-1830740583)
+> 原文：<https://lifehacker.com/how-to-emotionally-detach-from-criticism-1830740583>
 
 你永远不会让每个人都开心——不开心的人会告诉你为什么。批评是做人的一部分代价。但即使我们知道这一点，当负面的东西开始滚滚而来时，也很难处理。在网上分享一个观点——或者只是报道一些不方便的事实(问我怎么知道的)——你可能会有一大群人告诉你你是一个多么糟糕的人。以下是如何阻止批评毁了你的一天。
 

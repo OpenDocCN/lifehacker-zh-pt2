@@ -1,6 +1,6 @@
 # 黑色星期五呆在家里
 
-> 原文:[https://lifehacker.com/stay-home-on-black-friday-1830564051](https://lifehacker.com/stay-home-on-black-friday-1830564051)
+> 原文：<https://lifehacker.com/stay-home-on-black-friday-1830564051>
 
 黑色星期五的狂欢可能比在消费者“假日”购物更受欢迎。我们现在都知道，砸门广告并不像宣传的那样是真正的大优惠，打折的电视不值得把人踩在脚下(至少，我希望我们都知道这一点)。
 

@@ -1,6 +1,6 @@
 # 当你有孩子时，如何停止丢失遥控器
 
-> 原文:[https://life hacker . com/how-to-stop-lost-remotes-when you-hacked-1838075227](https://lifehacker.com/how-to-stop-losing-remotes-when-you-have-kids-1838075227)
+> 原文：<https://lifehacker.com/how-to-stop-losing-remotes-when-you-have-kids-1838075227>
 
 你看到那个婴儿手里的遥控器了吗？大概 15 秒后就会不见了。因为你会转过身去一会儿，你会把你的咖啡杯放进微波炉里(再一次)，当你回来的时候，它早就不见了。
 

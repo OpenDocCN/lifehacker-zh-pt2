@@ -1,6 +1,6 @@
 # 如果你没有省下每一分钱来买房，不要再难过了
 
-> 原文:[https://life hacker . com/stop-feeling-bad-if-you-not-saving-per-penny-to-buy-1834841162](https://lifehacker.com/stop-feeling-bad-if-youre-not-saving-every-penny-to-buy-1834841162)
+> 原文：<https://lifehacker.com/stop-feeling-bad-if-youre-not-saving-every-penny-to-buy-1834841162>
 
 如果你觉得自己的购房目标有点落后——或者如果你想知道购房是否应该是你的目标之一——不要担心。首先，你不是一个人。第二，现在比以往任何时候都更难攒钱买房了。
 

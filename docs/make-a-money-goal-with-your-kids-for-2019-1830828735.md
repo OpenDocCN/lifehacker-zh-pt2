@@ -1,6 +1,6 @@
 # 与你的孩子一起为 2019 年制定一个金钱目标
 
-> 原文:[https://life hacker . com/make-a-money-goal-with-your-kids-for-2019-1830828735](https://lifehacker.com/make-a-money-goal-with-your-kids-for-2019-1830828735)
+> 原文：<https://lifehacker.com/make-a-money-goal-with-your-kids-for-2019-1830828735>
 
 当你 [反思过去的一年](https://twocents.lifehacker.com/get-your-finances-in-order-before-the-new-year-1830659913) 并制定新的决心时，考虑和你的孩子坐下来，一起为 2019 年制定一个金钱目标。
 

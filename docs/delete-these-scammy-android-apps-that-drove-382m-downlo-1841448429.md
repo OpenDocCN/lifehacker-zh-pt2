@@ -1,6 +1,6 @@
 # 删除这些带来 3.82 亿下载量的流氓安卓应用
 
-> 原文:[https://life hacker . com/delete-these-scammy-Android-apps-the-drive-382m-downlo-1841448429](https://lifehacker.com/delete-these-scammy-android-apps-that-drove-382m-downlo-1841448429)
+> 原文：<https://lifehacker.com/delete-these-scammy-android-apps-that-drove-382m-downlo-1841448429>
 
 每当我们发布“删除这些应用”的故事时，我们总是会看到评论声称，这些恶意软件应用是如此怪异和毫无意义，你必须是地球上最愚蠢的 Android 用户才能下载它们(或类似的东西)。
 

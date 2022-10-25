@@ -1,6 +1,6 @@
 # 午休时查看的最佳博客
 
-> 原文:[https://life hacker . com/the-best-blogs-to-check-in-your 午休-1837884069](https://lifehacker.com/the-best-blogs-to-check-during-your-lunch-break-1837884069)
+> 原文：<https://lifehacker.com/the-best-blogs-to-check-during-your-lunch-break-1837884069>
 
 午餐时间到了。(某处。)你一个人吃饭，有电话或电脑作伴。你不想完全依赖社交媒体。你需要一个经常更新的好博客，最好是一个链接到网上有趣(有时是有教育意义)的东西的博客。这里是最好的。
 

@@ -1,6 +1,6 @@
 # 使用这个免费的 Android 应用程序扫描竞争的 Wifi 网络
 
-> 原文:[https://life hacker . com/scan-for-competing-wifi-networks-with-this-free-Android-1833078315](https://lifehacker.com/scan-for-competing-wifi-networks-with-this-free-android-1833078315)
+> 原文：<https://lifehacker.com/scan-for-competing-wifi-networks-with-this-free-android-1833078315>
 
 **Android / iOS:** 一位生活黑客读者在最近的一篇 Tech 911 帖子中提醒我存在 Ubiquiti 的 WiFiman 应用程序——谢谢， [里克](https://lifehacker.com/1832831554) ！—如果你是一名[**Android**](https://play.google.com/store/apps/details?id=com.ubnt.usurvey&hl=en_US)用户，我全心全意地推荐它。该应用也适用于[**iOS**](https://itunes.apple.com/us/app/ubiquiti-wifiman/id1385561119?mt=8)，它有一些有趣的功能，但对于了解更多关于减缓连接速度的 wifi 拥塞的信息来说，它远没有那么有用。
 

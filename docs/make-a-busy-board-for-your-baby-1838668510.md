@@ -1,6 +1,6 @@
 # 给宝宝做一个忙碌的板子
 
-> 原文:[https://life hacker . com/make-a-busy-board-for-your-baby-1838668510](https://lifehacker.com/make-a-busy-board-for-your-baby-1838668510)
+> 原文：<https://lifehacker.com/make-a-busy-board-for-your-baby-1838668510>
 
 婴儿和幼儿，你知道，有点难以占据。开始的时候，他们大多只是躺在附近。但是一旦它们能够坐起来，爬行，然后蹒跚学步，它们就开始执行任务去做*某事*和触摸*任何东西。*
 

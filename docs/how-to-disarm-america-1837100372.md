@@ -1,6 +1,6 @@
 # how to disarm america 1837100372
 
-> 原文:[https://splinternews.com/how-to-disarm-america-1837100372](https://splinternews.com/how-to-disarm-america-1837100372)
+> 原文：<https://splinternews.com/how-to-disarm-america-1837100372>
 
 美国有超过[3.63 亿支民间拥有的枪支](https://www.washingtonpost.com/news/wonk/wp/2018/06/19/there-are-more-guns-than-people-in-the-united-states-according-to-a-new-study-of-global-firearm-ownership/?utm_term=.9e4149a392c8) 。我们几乎不断地自相残杀，以 [的速度，每天大约有 100 人死亡](https://everytownresearch.org/gun-violence-america/) 。
 

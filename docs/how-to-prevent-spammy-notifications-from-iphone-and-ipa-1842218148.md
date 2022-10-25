@@ -1,6 +1,6 @@
 # 如何防止来自 iPhone 和 iPad 应用程序的垃圾通知
 
-> 原文:[https://life hacker . com/how-to-prevent-spammy-notifications-from-iphone-and-IPA-1842218148](https://lifehacker.com/how-to-prevent-spammy-notifications-from-iphone-and-ipa-1842218148)
+> 原文：<https://lifehacker.com/how-to-prevent-spammy-notifications-from-iphone-and-ipa-1842218148>
 
 苹果最近更新了其应用商店指南，允许应用程序向你发送包含广告、营销或其他促销的推送通知。这一举动并不令人惊讶，因为苹果多年来一直在自己的*应用程序中这样做——每个人都记得你收到的那些恼人的诱惑，要你注册 [Apple TV+](https://www.digitaltveurope.com/2019/11/04/exclusive-apple-accused-of-breaking-own-guidelines-with-apple-tv-push-notifications/) 或 [Apple News+](https://www.cnbc.com/2019/04/02/apple-bends-its-app-store-rules-in-services-push-developers-say.html) ？*嗯嗯*。*
 

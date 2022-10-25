@@ -1,6 +1,6 @@
 # 如何找到并使用谷歌全新的隐私工具(更新)
 
-> 原文:[https://life hacker . com/how-to-find-and-use-Google-brand-new-privacy-tools-1838712525](https://lifehacker.com/how-to-find-and-use-googles-brand-new-privacy-tools-1838712525)
+> 原文：<https://lifehacker.com/how-to-find-and-use-googles-brand-new-privacy-tools-1838712525>
 
 谷歌最近宣布了一些新功能，让用户能够更好地控制自己的数据，包括谷歌地图、YouTube 和谷歌助手的三个新隐私选项，以及一个监控密码安全的新工具。下面是每个新特性的简要介绍，如何找到它们，以及为什么你想尝试它们。
 

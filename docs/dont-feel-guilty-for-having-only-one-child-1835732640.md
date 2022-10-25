@@ -1,6 +1,6 @@
 # 不要因为只有一个孩子而感到内疚
 
-> 原文:[https://life hacker . com/don ' t-feel-from-hacker-1835732640](https://lifehacker.com/dont-feel-guilty-for-having-only-one-child-1835732640)
+> 原文：<https://lifehacker.com/dont-feel-guilty-for-having-only-one-child-1835732640>
 
 我们都知道刻板印象。独生子女不适应。他们自私，被宠坏了。很简单，独生子女很奇怪。不要更多的孩子，*你也是*自私的，剥夺了孩子最重要的兄弟姐妹关系，造成了终生的伤害。
 

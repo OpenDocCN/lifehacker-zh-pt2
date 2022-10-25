@@ -1,6 +1,6 @@
 # 您不必再使用您的旧 Sonos 设备了
 
-> 原文:[https://life hacker . com/you-don-don-t-to-brick-your-old-sonos-devices-more-1842213812](https://lifehacker.com/you-dont-have-to-brick-your-old-sonos-devices-anymore-1842213812)
+> 原文：<https://lifehacker.com/you-dont-have-to-brick-your-old-sonos-devices-anymore-1842213812>
 
 Sonos 最终结束了其有争议的“回收模式”政策，该政策迫使用户手动将他们的旧设备打包，以便通过公司的以旧换新计划在下次购买 Sonos 时获得 30%的折扣。
 

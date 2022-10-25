@@ -1,6 +1,6 @@
 # 开慢点
 
-> 原文:[https://jalopnik.com/drive-slower-1841138113](https://jalopnik.com/drive-slower-1841138113)
+> 原文：<https://jalopnik.com/drive-slower-1841138113>
 
 你好，这是安德鲁的祖母从他的帐户发帖。我要你们这些流氓冷静下来。开玩笑！是我，真的，有一个关于慢驾驶的论文，实际上只是模糊地提倡安全。听我说完。
 

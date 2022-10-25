@@ -1,6 +1,6 @@
 # 和你的孩子一起制作“浮动图片”
 
-> 原文:[https://life hacker . com/make-floating-pictures-with-your-kid-1836684027](https://lifehacker.com/make-floating-pictures-with-your-kid-1836684027)
+> 原文：<https://lifehacker.com/make-floating-pictures-with-your-kid-1836684027>
 
 想看你孩子的画在纸上浮动吗？让他们试试谢尔盖·厄本的这个科学实验，又名 [、达德实验室](https://thedadlab.com/) 。他从他的书 [*爸爸实验室:父母和孩子的 50 个令人敬畏的科学项目*](https://www.amazon.com/TheDadLab-Awesome-Science-Projects-Parents/dp/0525542698?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/make-floating-pictures-with-your-kid-1836684027&asc_source=&tag=kinjalifehackerlink-20) *中与我们分享。*
 

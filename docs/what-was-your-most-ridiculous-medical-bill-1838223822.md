@@ -1,6 +1,6 @@
 # 你最荒唐的医疗账单是什么？
 
-> 原文:[https://life hacker . com/what-was-what-you ' s most-rally-medical-bill-1838223822](https://lifehacker.com/what-was-your-most-ridiculous-medical-bill-1838223822)
+> 原文：<https://lifehacker.com/what-was-your-most-ridiculous-medical-bill-1838223822>
 
 众所周知，美国的医疗系统完全一团糟。我们寻求医疗服务，却不知道要花多少钱；价格由医院和保险公司协商，我们几乎没有选择，只能支付保费、免赔额和任何可能的账单。
 

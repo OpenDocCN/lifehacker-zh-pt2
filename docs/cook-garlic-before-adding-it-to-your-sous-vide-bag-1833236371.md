@@ -1,6 +1,6 @@
 # 将大蒜煮熟，然后加入到你的保鲜袋中
 
-> 原文:[https://life hacker . com/cook-garlic-before-add-it-to-your-sous-vide-bag-1833236371](https://lifehacker.com/cook-garlic-before-adding-it-to-your-sous-vide-bag-1833236371)
+> 原文：<https://lifehacker.com/cook-garlic-before-adding-it-to-your-sous-vide-bag-1833236371>
 
 “蒜太多了”这几个字从没逃过我的嘴。大蒜应该被随意添加到食谱中——如果不是建议量的三倍，也应该是两倍——但是，如果食谱是腌制的，毫无疑问，你应该在大蒜进入袋子之前把它煮熟。
 

@@ -1,6 +1,6 @@
 # 录制健身视频，同时播放音乐
 
-> 原文:[https://life hacker . com/record-gym-videos-and-play-music-at-time-1844638835](https://lifehacker.com/record-gym-videos-and-play-music-at-the-same-time-1844638835)
+> 原文：<https://lifehacker.com/record-gym-videos-and-play-music-at-the-same-time-1844638835>
 
 如果你 [拍摄自己举起](https://lifehacker.com/how-and-why-to-video-your-lifts-1835387315) 的视频——无论是为了形式检查还是仅仅在 Insta 上分享你的一天——你可能已经注意到我们的手机工作方式中一个令人愤怒的缺陷:一旦你开始录音，你耳机中的音乐就会被切断。
 

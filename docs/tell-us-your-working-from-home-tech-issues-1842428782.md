@@ -1,6 +1,6 @@
 # 告诉我们你在家工作的技术问题
 
-> 原文:[https://life hacker . com/tell-us-your-work-from-home-tech-issues-1842428782](https://lifehacker.com/tell-us-your-working-from-home-tech-issues-1842428782)
+> 原文：<https://lifehacker.com/tell-us-your-working-from-home-tech-issues-1842428782>
 
 由于在可预见的未来，我们都被困在——或者很快就会被困在——自己的家和公寓里，我打算将 Lifehacker 的技术建议专栏 [*Tech 911*](https://lifehacker.com/c/tech-911) 延长至下周的整整一周。从 3 月 23 日到 3 月 27 日，我将每天回答一个问题，这个问题与你在家工作的问题有关。
 

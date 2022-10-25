@@ -1,6 +1,6 @@
 # 在一元店找到最好的感官游戏项目
 
-> 原文:[https://life hacker . com/find-the-best-sensory-play-items-in-the-dollar-store-1839670414](https://lifehacker.com/find-the-best-sensory-play-items-at-the-dollar-store-1839670414)
+> 原文：<https://lifehacker.com/find-the-best-sensory-play-items-at-the-dollar-store-1839670414>
 
 感官活动是小孩子探索和学习的一个很好的方式，我非常喜欢寻找用家里已经有的物品来创造这些活动的方法。但是有时候，你需要改变一下或者储备一些新的物品来度过无聊的一天。这时候你当地的一元店(或大盒子零售商的一元店)就能帮上忙了。
 

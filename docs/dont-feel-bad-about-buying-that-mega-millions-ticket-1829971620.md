@@ -1,6 +1,6 @@
 # 不要因为买了那张百万彩票而感到难过
 
-> 原文:[https://life hacker . com/don ' t-feel-bad-on-buying the-mega-million-ticket-1829971620](https://lifehacker.com/dont-feel-bad-about-buying-that-mega-millions-ticket-1829971620)
+> 原文：<https://lifehacker.com/dont-feel-bad-about-buying-that-mega-millions-ticket-1829971620>
 
 如果你是没有赢得昨晚 16 亿美元百万头奖的数百万人中的一员，不要为你花在彩票上的 2 美元感到难过。因为玩彩票有很多好处。
 

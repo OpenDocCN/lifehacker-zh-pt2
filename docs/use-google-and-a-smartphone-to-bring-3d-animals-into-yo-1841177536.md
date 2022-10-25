@@ -1,6 +1,6 @@
 # 使用谷歌和智能手机将 3D 动物带进你的客厅
 
-> 原文:[https://life hacker . com/use-Google-and-a-smart phone-to-bring-3d-animals-into-yo-1841177536](https://lifehacker.com/use-google-and-a-smartphone-to-bring-3d-animals-into-yo-1841177536)
+> 原文：<https://lifehacker.com/use-google-and-a-smartphone-to-bring-3d-animals-into-yo-1841177536>
 
 如果你或者你的孩子想知道野生环境中的狼、鲨鱼或老虎到底有多大，谷歌有办法把它们的 3D 动画图像带进你的家。你所需要的只是一点好奇心，一个浏览器和一个 [ARCore 或 ARKit-ready iPhone 或安卓手机](https://www.howtogeek.com/348445/what-are-the-arcore-and-arkit-augmented-reality-frameworks/) 。
 

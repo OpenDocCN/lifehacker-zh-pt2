@@ -1,6 +1,6 @@
 # 了解 Apple 是否召回了您的 MacBook Pro
 
-> 原文:[https://life hacker . com/find-out-if-apple-recall-your-macbook-pro-1835729373](https://lifehacker.com/find-out-if-apple-recalled-your-macbook-pro-1835729373)
+> 原文：<https://lifehacker.com/find-out-if-apple-recalled-your-macbook-pro-1835729373>
 
 如果你在 2015 年至 2017 年期间的某个时候购买了 MacBook Pro，你可能应该仔细检查它是否会在你身上自燃。
 

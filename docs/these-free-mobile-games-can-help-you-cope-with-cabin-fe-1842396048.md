@@ -1,6 +1,6 @@
 # 这些免费的手机游戏可以帮助你应对幽居症
 
-> 原文:[https://life hacker . com/these-free-mobile-games-can-help-you-cope-cabin-Fe-1842396048](https://lifehacker.com/these-free-mobile-games-can-help-you-cope-with-cabin-fe-1842396048)
+> 原文：<https://lifehacker.com/these-free-mobile-games-can-help-you-cope-with-cabin-fe-1842396048>
 
 每个人现在都需要分散注意力。你知道的。我知道。游戏开发者也知道这一点，他们中的一些人已经慷慨地决定让他们的 iOS 游戏暂时免费，供那些寻求娱乐消遣的人使用，以帮助他们在保持社交距离的同时保持理智。
 

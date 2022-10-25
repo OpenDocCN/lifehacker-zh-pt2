@@ -1,6 +1,6 @@
 # 当你搬到一个新的地方时，需要改变什么
 
-> 原文:[https://life hacker . com/1831959212](https://lifehacker.com/what-to-change-when-you-move-into-a-new-place-1831959212)
+> 原文：<https://lifehacker.com/what-to-change-when-you-move-into-a-new-place-1831959212>
 
 当你搬进一个新的房产时，你可能只是多年来住在那里的许多居民中的一员。这意味着一旦你搬到一个新的地方，就应该解决一些安全(和卫生)隐患。
 

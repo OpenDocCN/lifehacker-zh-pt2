@@ -1,6 +1,6 @@
 # 把你的 HSA 想象成你应急基金的延伸
 
-> 原文:[https://life hacker . com/think-of-your-HSA-as-a-extension-of-your-emergency-fun-1843585893](https://lifehacker.com/think-of-your-hsa-as-an-extension-of-your-emergency-fun-1843585893)
+> 原文：<https://lifehacker.com/think-of-your-hsa-as-an-extension-of-your-emergency-fun-1843585893>
 
 如果你有一个带有健康储蓄账户(HSA)的健康保险计划，或者如果你计划在下一轮开放注册期间注册一个 HSA 计划，这里有一些好消息:美国国税局刚刚宣布，它将在 2021 年增加你可以向 HSA 贡献的金额。
 

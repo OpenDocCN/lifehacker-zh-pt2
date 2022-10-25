@@ -1,6 +1,6 @@
 # 这个应用有点像免费有线电视
 
-> 原文:[https://life hacker . com/this-app-is-kind-like-have-free-cable-1836757471](https://lifehacker.com/this-app-is-kind-of-like-having-free-cable-1836757471)
+> 原文：<https://lifehacker.com/this-app-is-kind-of-like-having-free-cable-1836757471>
 
 本周早些时候，我和朋友吃完晚饭回家，发现我的男朋友像往常一样睡得很晚，被我们新的 Vizio 电视迷住了。
 

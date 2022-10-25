@@ -1,6 +1,6 @@
 # 用 5%原则决定是偿还债务还是投资
 
-> 原文:[https://life hacker . com/decision-when-to-pay-off-debt-or-invest-with-the-5-ru-1841311507](https://lifehacker.com/decide-whether-to-pay-off-debt-or-invest-with-the-5-ru-1841311507)
+> 原文：<https://lifehacker.com/decide-whether-to-pay-off-debt-or-invest-with-the-5-ru-1841311507>
 
 当你正在偿还像学生贷款这样的巨额债务时，很难决定什么时候值得加速努力摆脱这种沉重的平衡。你应该把所有多余的钱都用于贷款，还是应该集中精力存钱？
 

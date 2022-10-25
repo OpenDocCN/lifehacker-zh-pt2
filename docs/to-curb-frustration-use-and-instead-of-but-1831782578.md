@@ -1,6 +1,6 @@
 # 为了抑制挫败感，用 And 代替 But
 
-> 原文:[https://life hacker . com/to-curb-infusion-use-and-instead-of-but 1831782578](https://lifehacker.com/to-curb-frustration-use-and-instead-of-but-1831782578)
+> 原文：<https://lifehacker.com/to-curb-frustration-use-and-instead-of-but-1831782578>
 
 如果你曾经试图和一个 3 岁的孩子(或者 4 岁或 8 岁的孩子，等等)讲道理。)，你知道这往往是挫折中的锻炼。
 

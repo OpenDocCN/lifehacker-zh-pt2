@@ -1,6 +1,6 @@
 # 该不该穿 Blackface？一个向导
 
-> 原文:[https://www . the root . com/should-you-wear-black face-a-guide-1832560052](https://www.theroot.com/should-you-wear-blackface-a-guide-1832560052)
+> 原文：<https://www.theroot.com/should-you-wear-blackface-a-guide-1832560052>
 
 当我意识到白人有多爱黑脸的时候，我已经 20 岁了.
 

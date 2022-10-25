@@ -1,6 +1,6 @@
 # 以下是美国最常被盗的汽车
 
-> 原文:[https://jalopnik . com/here-is-the-most-commently-over-stopped-cars-in-America-1840049348](https://jalopnik.com/here-are-the-most-commonly-stolen-cars-in-america-1840049348)
+> 原文：<https://jalopnik.com/here-are-the-most-commonly-stolen-cars-in-america-1840049348>
 
 你的朋友对你的 2000 本田思域感兴趣吗？当心，那是去年美国最常被偷的车。你现在还确定可以把这个人称为朋友吗？
 

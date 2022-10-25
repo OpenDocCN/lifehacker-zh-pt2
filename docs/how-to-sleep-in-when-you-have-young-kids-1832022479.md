@@ -1,6 +1,6 @@
 # 当你有小孩时，如何睡懒觉
 
-> 原文:[https://life hacker . com/how-to-sleep in-when young-kids-1832022479](https://lifehacker.com/how-to-sleep-in-when-you-have-young-kids-1832022479)
+> 原文：<https://lifehacker.com/how-to-sleep-in-when-you-have-young-kids-1832022479>
 
 本周早些时候，我提供了一些叫醒孩子的建议，这些孩子不是，呃，*的早起者*。不出所料，我从你们中的很多人那里听说了和我一样的相反的问题:孩子们不仅醒着，而且精力充沛地迎接新的一天。在早晨不适宜的时间。
 

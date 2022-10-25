@@ -1,6 +1,6 @@
 # 你应该吃布里干酪皮吗？
 
-> 原文:[https://the take out . com/should-you-eat the brie-rind-cheese-1831767775](https://thetakeout.com/should-you-eat-the-brie-rind-cheese-1831767775)
+> 原文：<https://thetakeout.com/should-you-eat-the-brie-rind-cheese-1831767775>
 
 *欢迎来到* [***奶酪周***](https://thetakeout.com/tag/cheese-week)*外卖的*为期一周的奶酪好评。** 
 

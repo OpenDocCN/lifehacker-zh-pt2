@@ -1,6 +1,6 @@
 # 披萨评论比电子游戏用户评论更刻薄:一个明确的比较
 
-> 原文:[https://kotaku . com/pizza-reviews-is-mean-than-video-game-user-reviews-1834673926](https://kotaku.com/pizza-reviews-are-meaner-than-video-game-user-reviews-1834673926)
+> 原文：<https://kotaku.com/pizza-reviews-are-meaner-than-video-game-user-reviews-1834673926>
 
 电子游戏用户评论比披萨用户评论更友善吗？简短的回答是“是的”长的答案是这个 27 分钟的视频，我在其中交叉分析了纽约著名披萨店的 500 个一星 Yelp 评论和广受好评的 3a 视频游戏的 500 个“零”元评论用户评论的语言模式。
 

@@ -1,6 +1,6 @@
 # 从 100 多家博物馆下载彩色页面
 
-> 原文:[https://life hacker . com/download-coloring-pages-from-over-100-museums-1832753859](https://lifehacker.com/download-coloring-pages-from-over-100-museums-1832753859)
+> 原文：<https://lifehacker.com/download-coloring-pages-from-over-100-museums-1832753859>
 
 *我们第一次分享这个帖子是在 2019 年初，早在* [*成人着色风潮*](https://www.chicagotribune.com/business/ct-adult-coloring-book-fad-20170105-story.html) *的巅峰之后。但绝望的时刻需要绝望的措施，一个没有减弱迹象的全球疫情当然符合条件。如果你已经* [*和平解决了谜题*](https://lifehacker.com/its-time-to-start-a-puzzle-exchange-1843687097) *，也许可以尝试一些着色？而是喜欢，*曲高和寡*着色。T21 由纽约医学院领导的为我们的收藏上色计划，世界上有一百多个博物馆和图书馆根据他们的收藏制作涂色书。除了以前的年度收藏，现在还有 509 本你可以打印出来的 PDF 着色书。这里有一些我们最喜欢的。* 
 

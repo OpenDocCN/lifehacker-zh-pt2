@@ -1,6 +1,6 @@
 # 色情流媒体网站在用你的数据做什么
 
-> 原文:[https://life hacker . com/what-porn-streaming-sites-what-doing-your-data-1831078368](https://lifehacker.com/what-porn-streaming-sites-are-doing-with-your-data-1831078368)
+> 原文：<https://lifehacker.com/what-porn-streaming-sites-are-doing-with-your-data-1831078368>
 
 在 2018 年及以后，可以有把握地假设，至少有一家公司时刻关注着你在互联网上做的一切事情，并准备从这些数据中获利。
 

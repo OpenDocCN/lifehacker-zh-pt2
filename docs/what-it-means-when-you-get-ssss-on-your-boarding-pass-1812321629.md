@@ -1,6 +1,6 @@
 # 当你的登机牌上出现“SSSS”时意味着什么
 
-> 原文:[https://life hacker . com/what-it-mean-when-you-get-SSSS-on-your-登机牌-1812321629](https://lifehacker.com/what-it-means-when-you-get-ssss-on-your-boarding-pass-1812321629)
+> 原文：<https://lifehacker.com/what-it-means-when-you-get-ssss-on-your-boarding-pass-1812321629>
 
 最近，我的一个朋友试图打印他从旧金山回家的登机牌时遇到了一些问题。无论他多少次重新加载达美航空的网站或尝试在他的手机上登记，他总是收到一条消息，他将无法打印他的登机牌。当时我们认为这是一个奇怪的巧合，但当他到达机场时，他发现了原因:他被选中进行二次安检。这就是他的登机牌无法打印的原因，当他真正拿到登机牌时，上面印有“SSSS”字样。
 

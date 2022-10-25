@@ -1,6 +1,6 @@
 # 做饭的真正关键是冷冻一切
 
-> 原文:[https://life hacker . com/the-real-key-to-meal-prep-is-freezing-everything-1830778739](https://lifehacker.com/the-real-key-to-meal-prep-is-freezing-everything-1830778739)
+> 原文：<https://lifehacker.com/the-real-key-to-meal-prep-is-freezing-everything-1830778739>
 
 这是一个老生常谈的建议，让你吃得更健康、花钱更少的最有效的方法之一，就是集中精力，自己准备食物。这很好，因为这是真的！
 

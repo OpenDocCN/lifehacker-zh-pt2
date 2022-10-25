@@ -1,6 +1,6 @@
 # 食物最好和最差的美国机场
 
-> 原文:[https://life hacker . com/the-u-s-airports-with-the-best and-worst-food-1841159077](https://lifehacker.com/the-u-s-airports-with-the-best-and-worst-food-1841159077)
+> 原文：<https://lifehacker.com/the-u-s-airports-with-the-best-and-worst-food-1841159077>
 
 机场酒吧如此普遍是有原因的——因为食物很难吃。毕竟，没有人喜欢早上 6 点的冷鸡蛋三明治和掺水的咖啡，啤酒可能会让一切味道好一点。
 

@@ -1,6 +1,6 @@
 # 立即注册投票
 
-> 原文:[https://lifehacker.com/register-to-vote-now-1838360979](https://lifehacker.com/register-to-vote-now-1838360979)
+> 原文：<https://lifehacker.com/register-to-vote-now-1838360979>
 
 今天是全国选民登记日，如果你以前没有登记过，这是在总统选举前登记投票的绝佳机会。今天，全国各地的志愿者都在协调努力，让人们意识到投票的重要性，以及报名参加投票有多简单*。根据 [NVRD 的网站](https://nationalvoterregistrationday.org) 显示，去年的这一天有超过 80 万选民登记——随着 2020 年的临近，这个数字可能会继续增长。* 
 

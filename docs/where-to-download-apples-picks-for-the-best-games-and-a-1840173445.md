@@ -1,6 +1,6 @@
 # 从哪里下载苹果挑选的 2019 年最佳游戏和应用
 
-> 原文:[https://life hacker . com/where-to-download-apple-picks-for-the-best-games-a-1840173445](https://lifehacker.com/where-to-download-apples-picks-for-the-best-games-and-a-1840173445)
+> 原文：<https://lifehacker.com/where-to-download-apples-picks-for-the-best-games-and-a-1840173445>
 
 苹果发布了 2019 年最佳 iOS 和 iPadOS 应用和游戏 的综述，让我们了解了推动年度最佳应用的趋势。如果你有时间，这是一个很好的阅读，因为它揭示了一些令人惊讶的数字——例如， [马里奥赛车之旅](https://apps.apple.com/us/app/mario-kart-tour/id1293634699) 是 App Store 上下载量最多的游戏，用户在 2019 年被吸引到多媒体创作和自助出版应用程序的数量超过了其他任何类别。
 

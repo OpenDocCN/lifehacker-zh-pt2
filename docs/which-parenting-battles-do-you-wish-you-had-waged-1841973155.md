@@ -1,6 +1,6 @@
 # 你希望自己发起过哪些育儿战？
 
-> 原文:[https://life hacker . com/which-parenting-battles-do-you-wish-you-happed-1841973155](https://lifehacker.com/which-parenting-battles-do-you-wish-you-had-waged-1841973155)
+> 原文：<https://lifehacker.com/which-parenting-battles-do-you-wish-you-had-waged-1841973155>
 
 有人可能会说，养育子女是一场长达数年的“选择你的战斗”的大型游戏有时候，你真的很清楚规则，并与后果保持一致。有时候，你会说，“去他妈的，我只想活过这一天。”
 

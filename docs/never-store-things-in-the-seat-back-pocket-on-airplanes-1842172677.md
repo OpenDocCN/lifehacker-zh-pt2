@@ -1,6 +1,6 @@
 # 千万不要在飞机上把东西放在座椅靠背的口袋里
 
-> 原文:[https://life hacker . com/never-store-things-in-the-seat-back-pocket-on-plants-1842172677](https://lifehacker.com/never-store-things-in-the-seat-back-pocket-on-airplanes-1842172677)
+> 原文：<https://lifehacker.com/never-store-things-in-the-seat-back-pocket-on-airplanes-1842172677>
 
 冠状病毒使得航空旅行成为许多人正在重新考虑的事情。当登上飞机时，越来越多的人也考虑给他们的私人空间一点擦拭，试图抓住任何可能由坐在那里的最后一名乘客留下的细菌。一个你可能不会考虑的地方:座椅靠背的口袋。
 

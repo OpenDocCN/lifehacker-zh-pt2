@@ -1,6 +1,6 @@
 # 苹果可能会免费更换你 iPhone 的电池盒
 
-> 原文:[https://life hacker . com/apple-may-replace-your-iphone-电池盒-免费-1840972328](https://lifehacker.com/apple-might-replace-your-iphones-battery-case-for-free-1840972328)
+> 原文：<https://lifehacker.com/apple-might-replace-your-iphones-battery-case-for-free-1840972328>
 
 如果你已经注意到你 129 美元的智能电池盒很难给你的 iPhone 充电，或者你真的不能给电池盒本身充电(或者根本不能)，那么你手上就有一个有缺陷的产品。苹果意识到了这些问题，并准备好了替代品，你只需要跳过一个环就可以得到一个。
 

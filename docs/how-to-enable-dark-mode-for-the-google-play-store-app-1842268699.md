@@ -1,6 +1,6 @@
 # 如何启用谷歌 Play 商店应用程序的黑暗模式
 
-> 原文:[https://life hacker . com/how-to-enable-dark-mode-for-the-Google-play-store-app-1842268699](https://lifehacker.com/how-to-enable-dark-mode-for-the-google-play-store-app-1842268699)
+> 原文：<https://lifehacker.com/how-to-enable-dark-mode-for-the-google-play-store-app-1842268699>
 
 谷歌本周将为 Play Store 推出一个黑暗主题切换，大多数运行 Android 9 和 10 的设备应该可以使用它。这个新的设置将强制 Play Store 总是使用黑暗主题，不管你设置 Android 默认使用什么主题。这里也有一些选项，可以强制应用程序总是使用灯光主题，或者根据你的系统主题来改变——这是你的选择！
 

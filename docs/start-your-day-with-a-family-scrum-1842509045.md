@@ -1,6 +1,6 @@
 # 以家庭赛跑开始你的一天
 
-> 原文:[https://life hacker . com/start-your ' s day with a family-scrum-1842509045](https://lifehacker.com/start-your-day-with-a-family-scrum-1842509045)
+> 原文：<https://lifehacker.com/start-your-day-with-a-family-scrum-1842509045>
 
 试着和全家人在同一个地方度过一天又一天，并保持积极的态度...一个挑战。可能已经是了。但是保持冷静的一个关键是以正确的方式开始新的一天。而我们的 [后代脸书集团](https://www.facebook.com/groups/2018785615043946/) 中的一员对此颇有心得。
 

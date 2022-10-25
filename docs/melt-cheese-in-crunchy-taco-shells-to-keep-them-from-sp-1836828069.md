@@ -1,6 +1,6 @@
 # 防止玉米饼壳和融化的奶酪一起裂开
 
-> 原文:[https://life hacker . com/melt-cheese-in-crunchy-taco-shell-to-keep-them-from-sp-1836828069](https://lifehacker.com/melt-cheese-in-crunchy-taco-shells-to-keep-them-from-sp-1836828069)
+> 原文：<https://lifehacker.com/melt-cheese-in-crunchy-taco-shells-to-keep-them-from-sp-1836828069>
 
 他们有很多名字。“脆皮玉米卷”、“盎格鲁玉米卷”，甚至还有“妈妈玉米卷”，但不管你怎么称呼它们，脆皮玉米卷提供了一种独特的——有些令人沮丧的——家庭用餐体验。是的，我说的是可怕的壳裂。
 

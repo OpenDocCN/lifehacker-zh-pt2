@@ -1,6 +1,6 @@
 # 以低至 49 美元的价格购买一张西南航空公司的单程机票
 
-> 原文:[https://life hacker . com/grab-a-one-way-ticket-on-a-south west-flight-1839131198](https://lifehacker.com/grab-a-one-way-ticket-on-a-southwest-flight-for-as-litt-1839131198)
+> 原文：<https://lifehacker.com/grab-a-one-way-ticket-on-a-southwest-flight-for-as-litt-1839131198>
 
 如果你还没有预订假期的航班，那就继续等待吧——扣动扳机之前，多等一会儿，你可能会受益。另一方面，如果最后一分钟预订旅行的想法让你心悸，西南航空公司正在进行今秋和冬季航班的促销活动，并将于今晚结束。
 

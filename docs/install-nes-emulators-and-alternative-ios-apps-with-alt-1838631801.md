@@ -1,6 +1,6 @@
 # 使用 AltStore 安装 NES 模拟器和替代 iOS 应用程序
 
-> 原文:[https://life hacker . com/install-nes-emulators-and-alternative-IOs-apps-with-alt-1838631801](https://lifehacker.com/install-nes-emulators-and-alternative-ios-apps-with-alt-1838631801)
+> 原文：<https://lifehacker.com/install-nes-emulators-and-alternative-ios-apps-with-alt-1838631801>
 
 作为一个使用 Android 作为主要移动操作系统的人，我倾向于关注谷歌产品 的 [替代应用/服务，但这并不意味着我不喜欢 iOS 和 iPad 上苹果应用的第三方替代品。不幸的是，苹果对其产品的“围墙花园”方法意味着 iOS](https://lifehacker.com/the-best-competitors-to-every-first-party-google-app-an-1834172092) [上可用的第三方和/或开源应用程序比 Android](https://lifehacker.com/the-comprehensive-guide-to-quitting-google-1830001964) 上的要少得多——而且大多数都需要你破解你的 iPhone，这是一个乏味的、违反保修的项目。
 

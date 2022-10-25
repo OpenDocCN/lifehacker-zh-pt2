@@ -1,6 +1,6 @@
 # “无麸质”餐厅的菜肴有时并非如此
 
-> 原文:[https://life hacker . com/面筋免费-餐厅-菜肴-有时-不是-1834209750](https://lifehacker.com/gluten-free-restaurant-dishes-sometimes-arent-1834209750)
+> 原文：<https://lifehacker.com/gluten-free-restaurant-dishes-sometimes-arent-1834209750>
 
 如果你患有乳糜泻，麸质会导致你的身体攻击自己，损害你的肠道。所以避免这些东西是很重要的——但是一项新的研究表明，餐馆的“无麸质”标签经常是错误的。
 

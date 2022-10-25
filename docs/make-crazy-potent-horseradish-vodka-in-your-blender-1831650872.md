@@ -1,6 +1,6 @@
 # 在你的搅拌机里制作强效辣根伏特加
 
-> 原文:[https://life hacker . com/make-crazy-potential-辣根-伏特加在你的搅拌机里-1831650872](https://lifehacker.com/make-crazy-potent-horseradish-vodka-in-your-blender-1831650872)
+> 原文：<https://lifehacker.com/make-crazy-potent-horseradish-vodka-in-your-blender-1831650872>
 
 辣根伏特加是个鬼祟的野兽(假设你喜欢辣根)。辣根的刺激掩盖了酒精的刺激，这意味着你的大脑并没有真正理解你到底喝了多少。这很危险，也是我最喜欢的事情之一。
 

@@ -1,6 +1,6 @@
 # 你也许不应该吃豆芽
 
-> 原文:[https://life hacker . com/you-should-possible-never-eat-sprouts-1841960543](https://lifehacker.com/you-should-probably-never-eat-sprouts-1841960543)
+> 原文：<https://lifehacker.com/you-should-probably-never-eat-sprouts-1841960543>
 
 苜蓿芽、三叶草芽和豆芽很好吃，以我(也可能是唯一的)拙见。但是， [和生菜](https://vitals.lifehacker.com/lettuce-is-bullshit-1830778975) 一样，它们容易被污染而生吃。现在，我们正处于一场多州爆发的大肠杆菌*与吉米·约翰餐厅供应的三叶草芽有关的事件中。*
 

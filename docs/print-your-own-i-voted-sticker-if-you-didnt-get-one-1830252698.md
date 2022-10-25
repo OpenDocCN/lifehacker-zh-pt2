@@ -1,6 +1,6 @@
 # 如果你没有“我投票了”的贴纸，那就印上自己的吧
 
-> 原文:[https://life hacker . com/print-your-own-I-voted-sticker-if-you-not-get-one-1830252698](https://lifehacker.com/print-your-own-i-voted-sticker-if-you-didnt-get-one-1830252698)
+> 原文：<https://lifehacker.com/print-your-own-i-voted-sticker-if-you-didnt-get-one-1830252698>
 
 在 [可能发生在](https://lifehacker.com/the-most-common-voter-suppression-scams-1830095243?rev=1541007456527#_ga=2.175117154.1552136910.1541451956-3846207152.1521480874) 投票站的最微小的不公正事件中，我所在地区的投票站不会发放那些小小的“我投了票”的贴纸，而今天许多人都自豪地佩戴着这些贴纸。但是没关系——不管你是提前投票、邮寄缺席选票，还是你的社区投票工作人员用完了贴纸，以下是如何打印你自己的。
 

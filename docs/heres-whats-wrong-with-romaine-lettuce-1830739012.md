@@ -1,6 +1,6 @@
 # 长叶莴苣有什么问题
 
-> 原文:[https://life hacker . com/heres-what-错在-romaine-莴苣-1830739012](https://lifehacker.com/heres-whats-wrong-with-romaine-lettuce-1830739012)
+> 原文：<https://lifehacker.com/heres-whats-wrong-with-romaine-lettuce-1830739012>
 
 一些生菜又可以安全食用了。FDA 和 CDCT3 于 11 月 28 日宣布，他们已经将最近爆发的*大肠杆菌*缩小到加州农田(不是温室)种植的莴苣。这意味着来自佛罗里达或大多数当地农场的莴苣可以安全食用。但是罗曼的问题还没有结束。
 

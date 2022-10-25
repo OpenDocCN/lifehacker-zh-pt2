@@ -1,6 +1,6 @@
 # 馅饼面团不需要被黑
 
-> 原文:[https://life hacker . com/pie-dough-dont-need-to-be-hacked-1840002661](https://lifehacker.com/pie-dough-doesnt-need-to-be-hacked-1840002661)
+> 原文：<https://lifehacker.com/pie-dough-doesnt-need-to-be-hacked-1840002661>
 
 出于我永远无法完全理解的原因，馅饼制作中唯一有人试图破解的部分是最容易的。混合面团再简单不过了；你所做的只是用一点水将冷脂肪和面粉粘合在一起。这不是一个需要黑客入侵的过程。
 

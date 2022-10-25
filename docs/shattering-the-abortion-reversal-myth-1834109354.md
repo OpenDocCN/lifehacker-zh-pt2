@@ -1,6 +1,6 @@
 # 打破“堕胎逆转”的神话
 
-> 原文:[https://Jezebel . com/粉碎-堕胎-逆转-神话-1834109354](https://jezebel.com/shattering-the-abortion-reversal-myth-1834109354)
+> 原文：<https://jezebel.com/shattering-the-abortion-reversal-myth-1834109354>
 
 有一天，我的病人问我流产逆转丸是否真的有效。她这样问并不是因为她想自己取消堕胎，而是因为她看到了最近关于堕胎取消和随后立法的新闻报道。2019 年，[**堪萨斯州**](https://www.apnews.com/8e81077f92e14005bbb9db434b3c7973)**[北达科他州](https://apnews.com/a2c3d3b8de01448f9cf863a9db53dada) 和内布拉斯加州的立法者提出了要求医生与患者讨论药物流产逆转的法案。 [四个州](https://www.guttmacher.org/state-policy/explore/counseling-and-waiting-periods-abortion) ，阿肯色州、爱达荷州、南达科他州、犹他州，已经通过法律强制要求堕胎逆转咨询。在联邦层面，政府官员——他们在边境阻止年轻的无证女孩堕胎——已经讨论了建议无证妇女使用所谓的堕胎逆转程序的可能性。** 
 

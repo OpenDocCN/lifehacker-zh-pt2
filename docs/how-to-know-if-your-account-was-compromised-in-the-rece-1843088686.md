@@ -1,6 +1,6 @@
 # 检查一下你的账户是否在最近的任天堂黑客事件中受损
 
-> 原文:[https://life hacker . com/how-to-know-if-your ' s account-in-the-rece-1843088686](https://lifehacker.com/how-to-know-if-your-account-was-compromised-in-the-rece-1843088686)
+> 原文：<https://lifehacker.com/how-to-know-if-your-account-was-compromised-in-the-rece-1843088686>
 
 如果你一直使用任天堂网络 ID (NNID)登录你的任天堂帐户，你可能已经注意到本周登录你的任天堂帐户的一些问题。
 

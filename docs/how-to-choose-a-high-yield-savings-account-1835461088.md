@@ -1,6 +1,6 @@
 # 如何选择高收益储蓄账户
 
-> 原文:[https://life hacker . com/how-to-choose-a-high-yield-saving-account-1835461088](https://lifehacker.com/how-to-choose-a-high-yield-savings-account-1835461088)
+> 原文：<https://lifehacker.com/how-to-choose-a-high-yield-savings-account-1835461088>
 
 Watch
 

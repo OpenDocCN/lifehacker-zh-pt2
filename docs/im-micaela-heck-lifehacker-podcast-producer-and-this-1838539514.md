@@ -1,6 +1,6 @@
 # im micaela heck lifehacker podcast producer and this 1838539514
 
-> 原文:[https://life hacker . com/im-micaela-heck-life hacker-podcast-producer-and-this-1838539514](https://lifehacker.com/im-micaela-heck-lifehacker-podcast-producer-and-this-1838539514)
+> 原文：<https://lifehacker.com/im-micaela-heck-lifehacker-podcast-producer-and-this-1838539514>
 
 每周，我们都会分享我们最喜欢的专家的快捷方式、工作空间和生产力提示。本周，我们将来到 Lifehacker 的幕后。我是米凯拉·海克，这就是我的工作方式。
 

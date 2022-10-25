@@ -1,6 +1,6 @@
 # 使用 Alexa 保持在三月疯狂的顶部
 
-> 原文:[https://life hacker . com/use-Alexa-to-stay-on-top-of-March-madness-1833700518](https://lifehacker.com/use-alexa-to-stay-on-top-of-march-madness-1833700518)
+> 原文：<https://lifehacker.com/use-alexa-to-stay-on-top-of-march-madness-1833700518>
 
 2019 年 NCAA 男子锦标赛周日继续进行。周日，德克萨斯理工大学和弗吉尼亚大学赢得了四强席位，今天奥本将对阵肯塔基州，杜克将对阵密歇根州立大学，以确定同样的结果。
 

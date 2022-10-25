@@ -1,6 +1,6 @@
 # 如何删除旧推文
 
-> 原文:[https://life hacker . com/how-to-delete-your-old-tweets-1844010380](https://lifehacker.com/how-to-delete-your-old-tweets-1844010380)
+> 原文：<https://lifehacker.com/how-to-delete-your-old-tweets-1844010380>
 
 互联网上的一切都是永恒的，但这并不意味着你的推文也需要永恒。几乎没有理由公开你的旧推文，所以在上面的视频中，我分享了一些清理你的 Twitter 时间轴的方法。
 

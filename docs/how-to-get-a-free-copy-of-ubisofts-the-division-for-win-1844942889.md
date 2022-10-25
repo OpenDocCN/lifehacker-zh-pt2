@@ -1,6 +1,6 @@
 # 如何免费获得育碧 Windows 版的“部门”
 
-> 原文:[https://life hacker . com/how-to-get-a-free-copy-of-ubi softs-the-division-for-win-1844942889](https://lifehacker.com/how-to-get-a-free-copy-of-ubisofts-the-division-for-win-1844942889)
+> 原文：<https://lifehacker.com/how-to-get-a-free-copy-of-ubisofts-the-division-for-win-1844942889>
 
 虽然你可能不会在玩游戏的多人游戏方面有很多乐趣，因为现在每个人可能都已经转移到了第二区第一人称射手*的单人战役，育碧 2016 年的第一人称*仍然值得一试——特别是免费的低价。
 

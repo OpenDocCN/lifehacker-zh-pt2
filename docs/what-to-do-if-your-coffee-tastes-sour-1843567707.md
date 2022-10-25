@@ -1,6 +1,6 @@
 # 如果你的咖啡变酸了该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-your ' s coffee-tastes-acid-1843567707](https://lifehacker.com/what-to-do-if-your-coffee-tastes-sour-1843567707)
+> 原文：<https://lifehacker.com/what-to-do-if-your-coffee-tastes-sour-1843567707>
 
 对于我们大多数人每天都需要的东西，咖啡需要一个相当复杂的化学提取过程似乎是不公平的。温度、颗粒大小和提取时间是酿造这种东西时必须记住的主要变量，是的，改变这些变量会影响味道。
 

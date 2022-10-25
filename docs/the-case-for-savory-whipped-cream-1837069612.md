@@ -1,6 +1,6 @@
 # 美味鲜奶油的案例
 
-> 原文:[https://life hacker . com/the-case for-savory-white-cream-1837069612](https://lifehacker.com/the-case-for-savory-whipped-cream-1837069612)
+> 原文：<https://lifehacker.com/the-case-for-savory-whipped-cream-1837069612>
 
 液体形式的重奶油是一种相当中性的成分，可以添加到甜味或咸味菜肴中，带来奢华的质地、丰富的口感和辉煌的脂肪。但出于某种原因，一旦你搅打它，它就被限制在甜点应用上，尽管没有真正的原因。
 

@@ -1,6 +1,6 @@
 # 釉面芜菁是苦根蔬菜的最新甜点
 
-> 原文:[https://the take out . com/recipe-glazed-芜菁-root-vegetable-how-to-cook-1840977634](https://thetakeout.com/recipe-glazed-turnips-root-vegetable-how-to-cook-1840977634)
+> 原文：<https://thetakeout.com/recipe-glazed-turnips-root-vegetable-how-to-cook-1840977634>
 
 就在不久前，仅仅是说出“球芽甘蓝”这个词就会让大多数美国人退缩，扭曲他们的脸，露出厌恶的表情。几代人以来，抱子甘蓝通常是通过煮沸来制作的，这一过程使它们闻起来和尝起来像放屁。毫不奇怪，这种厌恶感经常会延伸到其他蔬菜，如西兰花、卷心菜和羽衣甘蓝——它们都是富含硫的十字花科蔬菜家族的成员，当你在滚动沸腾中烹饪富含硫的蔬菜时，你会产生难闻的水蒸气，无论多少黄油或盐都无法补救。
 

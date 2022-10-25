@@ -1,6 +1,6 @@
 # 为什么芥末辣味和辣椒辣味感觉不一样
 
-> 原文:[https://life hacker . com/why-wasabi-heat-feel-different-from-Chili-pepper-heat-1838044817](https://lifehacker.com/why-wasabi-heat-feels-different-from-chili-pepper-heat-1838044817)
+> 原文：<https://lifehacker.com/why-wasabi-heat-feels-different-from-chili-pepper-heat-1838044817>
 
 我喜欢辣椒，但是我不能忍受芥末。两者都可能被描述为“热”或“辣”，但它们以不同的方式创造这种感觉。以下是方法。
 

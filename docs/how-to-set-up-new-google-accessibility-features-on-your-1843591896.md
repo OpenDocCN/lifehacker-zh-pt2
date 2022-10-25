@@ -1,6 +1,6 @@
 # 如何在 Android 上设置新的谷歌辅助功能
 
-> 原文:[https://life hacker . com/how-to-set-up-new-Google-accessibility-features-on-your-1843591896](https://lifehacker.com/how-to-set-up-new-google-accessibility-features-on-your-1843591896)
+> 原文：<https://lifehacker.com/how-to-set-up-new-google-accessibility-features-on-your-1843591896>
 
 昨天是全球无障碍宣传日。为了庆祝，谷歌宣布了 Android 和谷歌地图的一些新的辅助功能。
 

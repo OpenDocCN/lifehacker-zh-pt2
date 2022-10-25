@@ -1,6 +1,6 @@
 # 当你没有时间的时候，如何去你孩子的学校做志愿者
 
-> 原文:[https://life hacker . com/how-to-volunteer-at-your-childs-school-when you-no-t-1834084555](https://lifehacker.com/how-to-volunteer-at-your-kids-school-when-you-have-no-t-1834084555)
+> 原文：<https://lifehacker.com/how-to-volunteer-at-your-kids-school-when-you-have-no-t-1834084555>
 
 在这一学年的过程中，我儿子的学校需要更多的活动和事件的志愿者，比我可能记得的还要多。他们需要志愿者来管理家长会。在一年一度的“和爸爸一起吃甜甜圈”和“和妈妈一起吃松饼”活动中担任餐桌上的服务员。监督科学中心的一群二年级学生(更不用说来回的公车了)。帮助孩子们在万圣节游行前穿上他们的服装，并计划和组织春季狂欢节。
 

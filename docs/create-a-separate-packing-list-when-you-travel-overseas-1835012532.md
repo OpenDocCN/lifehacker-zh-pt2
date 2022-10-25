@@ -1,6 +1,6 @@
 # 在海外旅行时，创建一份单独的装箱单
 
-> 原文:[https://life hacker . com/create-a-separate-packing-list-when-you-travel-overseas-1835012532](https://lifehacker.com/create-a-separate-packing-list-when-you-travel-overseas-1835012532)
+> 原文：<https://lifehacker.com/create-a-separate-packing-list-when-you-travel-overseas-1835012532>
 
 我在 iPhone 上保存了至少六份不同的打包清单，有些是长周末用的，有些是紧急情况用的，还有一份是专门为长途飞行准备的。
 

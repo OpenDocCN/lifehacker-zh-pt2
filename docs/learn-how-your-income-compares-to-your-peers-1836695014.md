@@ -1,6 +1,6 @@
 # 了解你的收入与你的同龄人相比如何
 
-> 原文:[https://life hacker . com/learn-how-your-income-comparison-1836695014](https://lifehacker.com/learn-how-your-income-compares-to-your-peers-1836695014)
+> 原文：<https://lifehacker.com/learn-how-your-income-compares-to-your-peers-1836695014>
 
 与同年龄组的其他人相比，你的收入如何？你比你的同龄人挣得多还是少——你的性别会影响答案吗？
 

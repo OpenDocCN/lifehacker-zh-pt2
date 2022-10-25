@@ -1,6 +1,6 @@
 # 免费获取数百万份新的数字化大屠杀记录
 
-> 原文:[https://life hacker . com/access-millions-of-new-digitaled-holocaust-records-fo-1836879628](https://lifehacker.com/access-millions-of-newly-digitized-holocaust-records-fo-1836879628)
+> 原文：<https://lifehacker.com/access-millions-of-newly-digitized-holocaust-records-fo-1836879628>
 
 多亏了新的数字化档案 ，大屠杀和纳粹迫害的记录变得更加容易获取。Ancestry.com 和国际纳粹迫害研究中心 [阿罗森档案馆](https://arolsen-archives.org/en/search-explore/search-online-archive/) 的一项联合行动已经将那个时代的数百万份档案数字化。与族谱研究网站的许多其他功能不同， [这个档案将对所有人免费开放](https://www.ancestry.com/alwaysremember) ，无论订阅与否。
 

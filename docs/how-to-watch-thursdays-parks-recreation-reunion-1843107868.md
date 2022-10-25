@@ -1,6 +1,6 @@
 # 如何观看周四的“公园和娱乐”聚会
 
-> 原文:[https://life hacker . com/how-to-watch-Thursdays-parks-recreation-reunion-1843107868](https://lifehacker.com/how-to-watch-thursdays-parks-recreation-reunion-1843107868)
+> 原文：<https://lifehacker.com/how-to-watch-thursdays-parks-recreation-reunion-1843107868>
 
 如果有人在保持社交距离方面做得最好，同时又能让他们所有的朋友保持快乐和联系，那么这个人就是莱斯利·诺普。
 

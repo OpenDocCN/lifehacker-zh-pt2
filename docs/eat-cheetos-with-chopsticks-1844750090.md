@@ -1,6 +1,6 @@
 # 用筷子吃奇多
 
-> 原文:[https://life hacker . com/eat-Cheetos-with-筷子-1844750090](https://lifehacker.com/eat-cheetos-with-chopsticks-1844750090)
+> 原文：<https://lifehacker.com/eat-cheetos-with-chopsticks-1844750090>
 
 我优雅地把手从袋子里抽出来——就是那种你可以在不接触袋子本身或者除了你瞄准的那一个芯片之外的任何芯片的情况下，把手伸进去，然后再抽出来的那种。我喜欢任何微小的成就带来的小小的自豪感，也许这就是促使我更进一步，要求纸巾来擦手，而不是舔手指上的奶酪粉。
 

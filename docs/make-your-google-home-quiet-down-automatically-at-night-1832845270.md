@@ -1,6 +1,6 @@
 # 使用这种模式让你的 Google Home 在晚上自动安静下来
 
-> 原文:[https://life hacker . com/make-your-Google-home-quiet-down-automatically-at-night-1832845270](https://lifehacker.com/make-your-google-home-quiet-down-automatically-at-night-1832845270)
+> 原文：<https://lifehacker.com/make-your-google-home-quiet-down-automatically-at-night-1832845270>
 
 我们客厅里的 Google Home Max 非常适合解决各种争论，从 ciabatta 的正确发音到我们最喜欢的一些节目何时从冬季中断中回归，但它很吵。非常大声。
 

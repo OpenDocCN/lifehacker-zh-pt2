@@ -1,6 +1,6 @@
 # 据 Reddit 报道，如何让猫远离圣诞树
 
-> 原文:[https://life hacker . com/how-to-keep-a-cat-off-a-圣诞树 1840149068](https://lifehacker.com/how-to-keep-a-cat-off-a-christmas-tree-according-to-re-1840149068)
+> 原文：<https://lifehacker.com/how-to-keep-a-cat-off-a-christmas-tree-according-to-re-1840149068>
 
 猫喜欢圣诞树。他们中的许多人喜欢摆弄树，甚至爬上树。他们会打掉饰品，让针落下，甚至 [推倒树](https://www.reddit.com/r/IdiotsFightingThings/comments/8nf6rh/idiot_cat_fighting_a_christmas_tree/) 。我浏览了 Reddit，那里每个用户都拥有 200 只猫，我在多年的帖子中寻找防止猫毁坏圣诞树或伤害自己的最佳建议。
 

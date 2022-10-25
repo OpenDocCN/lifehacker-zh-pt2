@@ -1,6 +1,6 @@
 # 停止通过苹果应用商店为 YouTube 电视付费
 
-> 原文:[https://life hacker . com/stop-payed-for-YouTube-TV-through-apple-app-store-1841706216](https://lifehacker.com/stop-paying-for-youtube-tv-through-apples-app-store-1841706216)
+> 原文：<https://lifehacker.com/stop-paying-for-youtube-tv-through-apples-app-store-1841706216>
 
 如果你通过苹果应用商店支付 YouTube 电视订阅费，现在是时候改变你的支付方式了。
 

@@ -1,6 +1,6 @@
 # 用这个问题让你的孩子谈论他们的一天
 
-> 原文:[https://life hacker . com/get-your-kid-talking-the-day with this-question-1841043577](https://lifehacker.com/get-your-kid-talking-about-their-day-with-this-question-1841043577)
+> 原文：<https://lifehacker.com/get-your-kid-talking-about-their-day-with-this-question-1841043577>
 
 这是每天下午或傍晚全世界都能听到的重复。各地的家长都在问，“学校怎么样？”他们的孩子回答说，“很好”，比起和 T2 聊他们的一天，他们更关心的是吃零食和看一个好的电视节目。
 

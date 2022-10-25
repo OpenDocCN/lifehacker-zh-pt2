@@ -1,6 +1,6 @@
 # 第一次约会如何谈钱
 
-> 原文:[https://life hacker . com/how-to-talk-about the money-on-the-first date-1833997827](https://lifehacker.com/how-to-talk-about-money-on-the-first-date-1833997827)
+> 原文：<https://lifehacker.com/how-to-talk-about-money-on-the-first-date-1833997827>
 
 不管你喜不喜欢，在你邀请某人约会之前，有很多方法可以衡量他们的社会经济地位。你可能还记得安妮·海伦·彼得森对 [的病毒式分析，我们可以从一张火绒照片](https://www.buzzfeednews.com/article/annehelenpetersen/we-are-all-classists) 中获取多少社会和金融信息，例如:
 

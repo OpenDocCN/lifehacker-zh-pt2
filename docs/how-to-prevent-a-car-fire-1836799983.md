@@ -1,6 +1,6 @@
 # 如何预防汽车火灾
 
-> 原文:[https://lifehacker.com/how-to-prevent-a-car-fire-1836799983](https://lifehacker.com/how-to-prevent-a-car-fire-1836799983)
+> 原文：<https://lifehacker.com/how-to-prevent-a-car-fire-1836799983>
 
 12 月，一辆三个月大的特斯拉在修理店爆胎时自燃。六个小时后，大火终于被扑灭，汽车再次燃起*。* 
 

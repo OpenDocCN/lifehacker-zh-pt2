@@ -1,6 +1,6 @@
 # 如何选择下次怀孕的时间来降低健康风险
 
-> 原文:[https://life hacker . com/how-to-time 你的下一次怀孕减少健康风险-1830122890](https://lifehacker.com/how-to-time-your-next-pregnancy-to-reduce-health-risks-1830122890)
+> 原文：<https://lifehacker.com/how-to-time-your-next-pregnancy-to-reduce-health-risks-1830122890>
 
 决定什么时候生第二个(或第三个)孩子通常会比生第一个孩子更复杂。
 

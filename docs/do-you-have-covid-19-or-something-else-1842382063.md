@@ -1,6 +1,6 @@
 # 你有新冠肺炎或者别的什么吗？
 
-> 原文:[https://life hacker . com/do-you-have-that-or-something-else-1842382063](https://lifehacker.com/do-you-have-covid-19-or-something-else-1842382063)
+> 原文：<https://lifehacker.com/do-you-have-covid-19-or-something-else-1842382063>
 
 尽管世界似乎暂停了，但所有的感冒和流感以及其他呼吸系统疾病都没有读过这份备忘录。如果你发现自己生病了，并试图确定自己是否患有冠状病毒或其他呼吸系统疾病，有一些方法可以尝试缩小范围，但有一些警告。
 

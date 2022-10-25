@@ -1,6 +1,6 @@
 # 利用你讨厌的工作来建立你的职业生涯
 
-> 原文:[https://life hacker . com/use-the-jobs-you-hate-to-build-your-career-1837749202](https://lifehacker.com/use-the-jobs-you-hate-to-build-your-career-1837749202)
+> 原文：<https://lifehacker.com/use-the-jobs-you-hate-to-build-your-career-1837749202>
 
 如果你被困在一份你不喜欢的工作中，不要马上辞职。相反，问问你自己如何利用你目前的职位来帮助你建立职业生涯的下一个阶段。
 

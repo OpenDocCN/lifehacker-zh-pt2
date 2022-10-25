@@ -1,6 +1,6 @@
 # WhatsApp 的安全漏洞并没有听起来那么糟糕
 
-> 原文:[https://life hacker . com/that-whatsapp-security-flaw-not-as-bad as-it-sounds-1837107844](https://lifehacker.com/that-whatsapp-security-flaw-isnt-as-bad-as-it-sounds-1837107844)
+> 原文：<https://lifehacker.com/that-whatsapp-security-flaw-isnt-as-bad-as-it-sounds-1837107844>
 
 本周，WhatsApp 用户发出了各种各样的安全警告，称该平台有一个安全漏洞，允许某人“在群组对话中使用' quote' '功能来改变发送者的身份，即使那个人不是该群组的成员”，并“修改其他人的回复文本，实质上是把话放进他们的嘴里。”
 

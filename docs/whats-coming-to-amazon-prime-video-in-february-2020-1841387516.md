@@ -1,6 +1,6 @@
 # 2020 年 2 月亚马逊 Prime 视频会有什么
 
-> 原文:[https://life hacker . com/whats-coming-to-Amazon-prime-video-in-two-2020-1841387516](https://lifehacker.com/whats-coming-to-amazon-prime-video-in-february-2020-1841387516)
+> 原文：<https://lifehacker.com/whats-coming-to-amazon-prime-video-in-february-2020-1841387516>
 
 二月份将为亚马逊 Prime 客户带来大量新的节目。这个月从 2 月 1 日开始，增加了一大堆电影，包括*布丽奇特·琼斯的日记*、*审判日*、*魔法麦克*和*隔壁的间谍*。
 

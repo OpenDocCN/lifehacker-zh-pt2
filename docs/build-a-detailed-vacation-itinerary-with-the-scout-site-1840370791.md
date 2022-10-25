@@ -1,6 +1,6 @@
 # 在“童子军”网站上建立一个详细的度假路线
 
-> 原文:[https://life hacker . com/build-a-detailed-vacation-with-the-scout-site-1840370791](https://lifehacker.com/build-a-detailed-vacation-itinerary-with-the-scout-site-1840370791)
+> 原文：<https://lifehacker.com/build-a-detailed-vacation-itinerary-with-the-scout-site-1840370791>
 
 几个月前，我和我的两个朋友进行了一次从拉斯维加斯到丹佛的公路旅行。我们的任务是沿途参观国家公园，也许还有几个温泉。这是一个最终成功的任务，但在计划阶段涉及到来回传递大量的谷歌文档。
 

@@ -1,6 +1,6 @@
 # 帮助你做出任何艰难决定的诀窍
 
-> 原文:[https://life hacker . com/four-tricks-to-help-you-make-any-different-decision-987762341](https://lifehacker.com/four-tricks-to-help-you-make-any-difficult-decision-987762341)
+> 原文：<https://lifehacker.com/four-tricks-to-help-you-make-any-difficult-decision-987762341>
 
 我们大多数日常决定的风险都很低:早餐吃什么，穿什么去上班，在网飞看什么节目。但是，即使选择一种早餐食品不会改变你的生活，选择也是一个真正的挑战。
 

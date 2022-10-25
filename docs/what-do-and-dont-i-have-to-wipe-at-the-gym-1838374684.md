@@ -1,6 +1,6 @@
 # 去健身房要擦什么器械？
 
-> 原文:[https://life hacker . com/what-do-and-dont-I-had-to-wipe-in-gym-1838374684](https://lifehacker.com/what-do-and-dont-i-have-to-wipe-at-the-gym-1838374684)
+> 原文：<https://lifehacker.com/what-do-and-dont-i-have-to-wipe-at-the-gym-1838374684>
 
 大多数健身房都有小的湿巾分发器，或者抹布和喷雾瓶，这样你就可以自己清理了。有些人虔诚地使用它们，有些人忽视它们。作为健身房的好公民，你应该做些什么？为了不成为一个粗俗的人，你必须做什么？以下是一些经验法则。
 

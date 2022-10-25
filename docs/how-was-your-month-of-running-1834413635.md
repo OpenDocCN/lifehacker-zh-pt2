@@ -1,6 +1,6 @@
 # 你一个月的跑步怎么样？
 
-> 原文:[https://life hacker . com/how-are-you-month-of-running-1834413635](https://lifehacker.com/how-was-your-month-of-running-1834413635)
+> 原文：<https://lifehacker.com/how-was-your-month-of-running-1834413635>
 
 在 [Lifehacker 健身挑战赛](https://lifehacker.com/c/lifehacker-fitness-challenge) 的这个以跑步为重点的章节中，我们尝试了一系列可能对你来说很新鲜的锻炼: [大步跑](https://vitals.lifehacker.com/happy-spring-were-running-again-1833723734) ， [速度跑](https://vitals.lifehacker.com/this-week-challenge-yourself-with-a-tempo-run-1833836670) ， [山坡重复跑](https://vitals.lifehacker.com/this-weeks-running-challenge-hills-1833981661) ， [赛道上的速度跑](https://vitals.lifehacker.com/run-faster-with-track-workouts-1834167188) ，以及 [长跑](https://vitals.lifehacker.com/how-to-add-a-long-run-to-your-running-routine-1834309307) 。你都试过了吗？你最喜欢哪个？
 

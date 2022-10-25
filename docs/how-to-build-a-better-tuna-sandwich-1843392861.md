@@ -1,6 +1,6 @@
 # 如何做出更好的金枪鱼三明治
 
-> 原文:[https://life hacker . com/how-to-build-a-better-tuna-sandwich-1843392861](https://lifehacker.com/how-to-build-a-better-tuna-sandwich-1843392861)
+> 原文：<https://lifehacker.com/how-to-build-a-better-tuna-sandwich-1843392861>
 
 金枪鱼三明治永远不会过时，因为它从一开始就不时尚。这是谦逊的，甚至是家常的，但强烈的安慰和怀旧。金枪鱼沙拉本身由三种主要成分组成——罐装金枪鱼、蛋黄酱和某种旨在产生对比的配料——你的三明治的成功在于你对每一种成分给予了多少关心和关注。
 

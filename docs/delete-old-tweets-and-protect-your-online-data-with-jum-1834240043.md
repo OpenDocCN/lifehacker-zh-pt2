@@ -1,6 +1,6 @@
 # 使用 Jumbo 删除旧推文并保护您的在线数据
 
-> 原文:[https://life hacker . com/delete-old-tweets-and-protect-your-online-data-with-jum-1834240043](https://lifehacker.com/delete-old-tweets-and-protect-your-online-data-with-jum-1834240043)
+> 原文：<https://lifehacker.com/delete-old-tweets-and-protect-your-online-data-with-jum-1834240043>
 
 [Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)) : title[![](../Images/ce8fdf9d40d4898cdc1fe3570dd2a22f.png)](https://dataprivacy.kinja.com)[Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)We'll walk you through everything you should do to live the most secure, private life in the digital era.
 

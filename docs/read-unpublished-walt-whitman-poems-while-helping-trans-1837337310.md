@@ -1,6 +1,6 @@
 # 一边帮国会图书馆抄写东西，一边阅读未出版的沃尔特·惠特曼的诗
 
-> 原文:[https://life hacker . com/read-unpublished-Walt-while-while-help-trans-1837337310](https://lifehacker.com/read-unpublished-walt-whitman-poems-while-helping-trans-1837337310)
+> 原文：<https://lifehacker.com/read-unpublished-walt-whitman-poems-while-helping-trans-1837337310>
 
 国会图书馆是一个寻找一切的好地方，从 [免费电影](https://lifehacker.com/how-to-stream-free-movies-from-the-library-of-congress-1829985655) 和书籍到 [史诗般的猫的公共领域图片](https://lifehacker.com/ogle-these-vintage-public-domain-cat-pictures-from-the-1834779933) 。
 

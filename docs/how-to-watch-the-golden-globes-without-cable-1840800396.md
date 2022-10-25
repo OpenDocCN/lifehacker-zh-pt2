@@ -1,6 +1,6 @@
 # 如何不用有线电视看金球奖
 
-> 原文:[https://life hacker . com/how-to-watch-the golden-globes-with-wireless-1840800396](https://lifehacker.com/how-to-watch-the-golden-globes-without-cable-1840800396)
+> 原文：<https://lifehacker.com/how-to-watch-the-golden-globes-without-cable-1840800396>
 
 金球奖在周日。一年一度的颁奖典礼是今年晚些时候奥斯卡颁奖典礼的预测器，也是一个很好的机会，当你想出一些电影的想法时，可以做一点明星观察，你可能应该在奥斯卡颁奖前加入你的观察名单。
 

@@ -1,6 +1,6 @@
 # 如何在网络和桌面上启用 WhatsApp 新的黑暗模式
 
-> 原文:[https://life hacker . com/how-to-enable-whatsapp-new-dark-mode-on-the-web-and-de-1844252165](https://lifehacker.com/how-to-enable-whatsapps-new-dark-mode-on-the-web-and-de-1844252165)
+> 原文：<https://lifehacker.com/how-to-enable-whatsapps-new-dark-mode-on-the-web-and-de-1844252165>
 
 如果我有选择的话，我会改变我所做的每件事的颜色；黑暗模式对眼睛来说更舒服。虽然 WhatsApp 用户已经能够在他们的应用程序上玩黑暗模式有一段时间了，但直到现在，你才能在 WhatsApp 的基于网络的界面 和 [桌面应用程序](#desktop) 上获得相同的选项。
 

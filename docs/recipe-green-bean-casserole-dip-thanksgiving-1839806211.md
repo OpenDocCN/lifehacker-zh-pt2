@@ -1,6 +1,6 @@
 # 绿豆砂锅蘸酱将感恩节带到你的沙发上
 
-> 原文:[https://the take out . com/recipe-绿豆-砂锅-蘸酱-感恩节-1839806211](https://thetakeout.com/recipe-green-bean-casserole-dip-thanksgiving-1839806211)
+> 原文：<https://thetakeout.com/recipe-green-bean-casserole-dip-thanksgiving-1839806211>
 
 *欢迎来到* [***感恩节***](https://thetakeout.com/tag/snacksgiving) *，在这里我们为您带来美味可口的经典感恩节菜肴。*
 

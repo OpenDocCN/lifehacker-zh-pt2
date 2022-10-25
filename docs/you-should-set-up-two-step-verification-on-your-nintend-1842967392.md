@@ -1,6 +1,6 @@
 # 你应该马上在你的任天堂账户上设置两步验证
 
-> 原文:[https://life hacker . com/you-should-set-up-two-step-verification-on-your-nintend-1842967392](https://lifehacker.com/you-should-set-up-two-step-verification-on-your-nintend-1842967392)
+> 原文：<https://lifehacker.com/you-should-set-up-two-step-verification-on-your-nintend-1842967392>
 
 如果你有一个任天堂帐户，现在是一个很好的时间来确保你在那个帐户上设置了两步验证来保证它的安全。
 

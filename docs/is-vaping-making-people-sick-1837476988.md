@@ -1,6 +1,6 @@
 # Vaping 会让人生病吗？
 
-> 原文:[https://life hacker . com/is-vaping-making-people-sick-1837476988](https://lifehacker.com/is-vaping-making-people-sick-1837476988)
+> 原文：<https://lifehacker.com/is-vaping-making-people-sick-1837476988>
 
 疾控中心最近宣布，发现超过 150 人患有严重的呼吸系统疾病和有 T2 T3 病史。我们还不知道是否 vaping 导致他们生病，但调查正在进行中。以下是你需要知道的。
 

@@ -1,6 +1,6 @@
 # 现在如何获取 Twitch Apple TV 应用程序
 
-> 原文:[https://life hacker . com/how-to-get-the-twitch-apple-TV-app-now-1837952341](https://lifehacker.com/how-to-get-the-twitch-apple-tv-app-now-1837952341)
+> 原文：<https://lifehacker.com/how-to-get-the-twitch-apple-tv-app-now-1837952341>
 
 Twitch 的 Apple TV 应用程序现在处于公开测试阶段，这意味着任何人都可以在他们的 Apple TV 上获得该应用程序的测试版。
 

@@ -1,6 +1,6 @@
 # 什么是哈奇法，凯莉安·康威是如何违反它的？
 
-> 原文:[https://life hacker . com/what-is-the-hatch-act-how-do-Kelly ann-Conway-viola-1835495464](https://lifehacker.com/what-is-the-hatch-act-and-how-did-kellyann-conway-viola-1835495464)
+> 原文：<https://lifehacker.com/what-is-the-hatch-act-and-how-did-kellyann-conway-viola-1835495464>
 
 昨天下午，特别法律顾问办公室建议特朗普总统解雇总统顾问凯莉安妮康威，此前他违反了《哈奇法案》。这项法律限制了任何联邦雇员在任职期间参与政治活动的能力，例如影响选举。
 

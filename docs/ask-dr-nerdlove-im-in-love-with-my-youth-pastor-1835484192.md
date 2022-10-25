@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:我爱上了我年轻的牧师
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-im-in-love-my-youth-pastor-1835484192](https://kotaku.com/ask-dr-nerdlove-im-in-love-with-my-youth-pastor-1835484192)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-im-in-love-with-my-youth-pastor-1835484192>
 
 你好，网络骗子，欢迎来到 [向 NerdLove 博士](http://kotaku.com/askdrnerdlove) 提问，这是唯一一个为改变而重新制作的约会建议专栏。
 

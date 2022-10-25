@@ -1,6 +1,6 @@
 # recycling is broken 1833063010
 
-> 原文:[https://gizmodo.com/recycling-is-broken-1833063010](https://gizmodo.com/recycling-is-broken-1833063010)
+> 原文：<https://gizmodo.com/recycling-is-broken-1833063010>
 
 在费城，人们喜欢回收利用。合在一起，我们 160 万人每天产生约 400 吨可回收材料。但从去年秋天开始，我和我的邻居每周都会尽职尽责地把大约一半的瓶瓶罐罐放在我们的蓝色垃圾箱里，但这些瓶瓶罐罐却没有送到分类设施。他们去了两个垃圾焚烧厂中的一个，在那里他们和垃圾一起被焚烧。
 

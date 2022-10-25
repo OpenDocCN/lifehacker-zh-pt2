@@ -1,6 +1,6 @@
 # 疫情期间的临时搬迁会如何影响你的税收？
 
-> 原文:[https://life hacker . com/how-will-a-temporary-relocation-in-the-疫情-aff-1844012959](https://lifehacker.com/how-will-a-temporary-relocation-during-the-pandemic-aff-1844012959)
+> 原文：<https://lifehacker.com/how-will-a-temporary-relocation-during-the-pandemic-aff-1844012959>
 
 如果你在冠状病毒疫情期间搬到了其他州，无论是和家人住在一起还是在 T2 的度假屋或 Airbnb 呆着，你可能会想知道你的临时改变是否会让你的 2020 年税收变得更复杂。
 

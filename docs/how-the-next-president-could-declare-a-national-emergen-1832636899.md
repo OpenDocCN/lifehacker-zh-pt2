@@ -1,6 +1,6 @@
 # 下一任总统如何宣布气候变化进入国家紧急状态
 
-> 原文:[https://gizmodo . com/how-the-next-president-can-declare-a-national-emergen-1832636899](https://gizmodo.com/how-the-next-president-could-declare-a-national-emergen-1832636899)
+> 原文：<https://gizmodo.com/how-the-next-president-could-declare-a-national-emergen-1832636899>
 
 周五，川普总统抛弃了先例，宣布进入全国紧急状态**，以支付一座不必要的边境墙，他此前承诺墨西哥将支付这笔费用。** 
 

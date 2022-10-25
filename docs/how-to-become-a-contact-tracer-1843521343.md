@@ -1,6 +1,6 @@
 # 如何成为一名联系人追踪员
 
-> 原文:[https://life hacker . com/how-to-be-a-contact-tracer-1843521343](https://lifehacker.com/how-to-become-a-contact-tracer-1843521343)
+> 原文：<https://lifehacker.com/how-to-become-a-contact-tracer-1843521343>
 
 在失业率史无前例的上升期间，有一份工作的需求不断增加: [接触追踪](https://lifehacker.com/what-is-contact-tracing-1842984055) 。疾病控制中心多管齐下的应对措施针对新冠肺炎疫情，接触者追踪包括给疑似和确诊感染者打电话，并记录他们在传染性最强期间可能密切接触过的任何人。
 

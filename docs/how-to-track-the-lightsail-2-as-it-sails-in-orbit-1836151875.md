@@ -1,6 +1,6 @@
 # 当光帆 2 号绕地球“航行”时，如何追踪它
 
-> 原文:[https://life hacker . com/how-to-track-the-light sail-2-as-it-sails-in-orbit-1836151875](https://lifehacker.com/how-to-track-the-lightsail-2-as-it-sails-in-orbit-1836151875)
+> 原文：<https://lifehacker.com/how-to-track-the-lightsail-2-as-it-sails-in-orbit-1836151875>
 
 上周， [光帆 2 号](http://www.planetary.org/explore/projects/lightsail-solar-sailing/#the-spacecraft) 正式与地球进行了第一次接触。太阳能航天器将在明年绕地球轨道航行，这是证明太阳能航行是一种可行的太空探索模式的任务的一部分。
 

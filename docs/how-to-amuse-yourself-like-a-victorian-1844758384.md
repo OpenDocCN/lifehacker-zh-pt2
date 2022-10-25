@@ -1,6 +1,6 @@
 # 如何像维多利亚时代的人一样自娱自乐
 
-> 原文:[https://life hacker . com/how-to-acute-yourself-like-a-Victorian-1844758384](https://lifehacker.com/how-to-amuse-yourself-like-a-victorian-1844758384)
+> 原文：<https://lifehacker.com/how-to-amuse-yourself-like-a-victorian-1844758384>
 
 最近几个月，人们常说，在疫情中被隔离的日子比我们可以简单地 [让一个小机器人给我们唱几乎任何一首有史以来录制的歌曲](https://lifehacker.com/how-to-block-a-song-you-hate-on-alexa-1844484077#:~:text=%20How%20to%20Block%20a%20Song%20You%20Hate,open%20a%20menu%20of%20different%20functions.%20More%20) ，或者用手指轻弹几下 就能调出一个世纪的电影娱乐节目 [还要糟糕。见鬼，在 14 世纪意大利黑死病最严重的时候，你所能做的就是等着看你的皮肤会不会变黑，直到你筋疲力尽而死](https://lifehacker.com/whats-coming-to-netflix-in-august-2020-1844467717) [坐在一起讲笑话和黄色故事](https://en.wikipedia.org/wiki/The_Decameron) 。
 

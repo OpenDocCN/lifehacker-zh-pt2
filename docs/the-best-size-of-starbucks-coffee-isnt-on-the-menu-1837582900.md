@@ -1,6 +1,6 @@
 # 星巴克咖啡的最佳容量不在菜单上
 
-> 原文:[https://life hacker . com/the-best-size-of-Starbucks-coffee-not-on-the-menu-1837582900](https://lifehacker.com/the-best-size-of-starbucks-coffee-isnt-on-the-menu-1837582900)
+> 原文：<https://lifehacker.com/the-best-size-of-starbucks-coffee-isnt-on-the-menu-1837582900>
 
 星巴克的菜单上没有“小份”这种东西。听过糟糕的单口喜剧表演的人都知道，尺码有高、大和大。星巴克不傻。他们做提供一个小；需求很少，所以他们不把它放在菜单上。他们不叫它小。(可能星巴克有点傻。)
 

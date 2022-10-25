@@ -1,6 +1,6 @@
 # 如何在 Linkedin 上保护自己的隐私
 
-> 原文:[https://life hacker . com/how-to-protect-your-privacy-on-LinkedIn-1830566181](https://lifehacker.com/how-to-protect-your-privacy-on-linkedin-1830566181)
+> 原文：<https://lifehacker.com/how-to-protect-your-privacy-on-linkedin-1830566181>
 
 [Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)) : title[![](../Images/ce8fdf9d40d4898cdc1fe3570dd2a22f.png)](https://dataprivacy.kinja.com)[Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)We'll walk you through everything you should do to live the most secure, private life in the digital era.
 

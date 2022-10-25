@@ -1,6 +1,6 @@
 # 你应该通过一家你从未听说过的航空公司预订航班吗？
 
-> 原文:[https://life hacker . com/should-you-you ve-never-1839304520](https://lifehacker.com/should-you-book-a-flight-through-an-airline-youve-never-1839304520)
+> 原文：<https://lifehacker.com/should-you-book-a-flight-through-an-airline-youve-never-1839304520>
 
 在你寻找特别划算的航班的过程中，你可能会遇到看起来像虚构的航空公司——例如，贝尔斯金航空公司(Bearskin Airlines)，它在加拿大安大略省运营，非常真实。或者 [座椅航空](https://www.chair.ch/) ，一家飞遍欧洲的瑞士航空公司，它不是你想象中的虚构。甚至还有 [奥凯航空](https://www.okair.net/#/) ，提供飞往中国和泰国的航班，嘿，至少他们对自己的服务质量很诚实。
 

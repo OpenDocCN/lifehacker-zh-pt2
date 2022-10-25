@@ -1,6 +1,6 @@
 # 为什么你应该知道每样东西中有多少咖啡因
 
-> 原文:[https://life hacker . com/why-you-should-know-how-how-doe-caffeine-in-everything-1830022111](https://lifehacker.com/why-you-should-know-how-much-caffeine-is-in-everything-1830022111)
+> 原文：<https://lifehacker.com/why-you-should-know-how-much-caffeine-is-in-everything-1830022111>
 
 我们大多数人在生活中对我们吃的和喝的东西中含有多少咖啡因只有一个模糊的概念。咖啡会让我们清醒；这种汽水可能不含咖啡因。但是如果你想有效地使用咖啡因，你真的需要知道你最喜欢的来源中的含量。如果你不知道自己到底喝了多少，你就不能正确地控制咖啡因的摄入量，以达到最大限度的警觉 。
 

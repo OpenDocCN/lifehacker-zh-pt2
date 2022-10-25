@@ -1,6 +1,6 @@
 # 填写 W-4 的初学者指南
 
-> 原文:[https://life hacker . com/a-beginner-s-guide-to-filling-out-your-w-4-1792359834](https://lifehacker.com/a-beginner-s-guide-to-filling-out-your-w-4-1792359834)
+> 原文：<https://lifehacker.com/a-beginner-s-guide-to-filling-out-your-w-4-1792359834>
 
 也许你 [开始了你的第一份工作](https://twocents.lifehacker.com/the-money-moves-to-make-after-landing-your-first-job-1601217705) 或者也许你 [为了全职工作放弃了自由职业的生活](https://lifehacker.com/how-to-level-up-your-freelance-income-this-year-1834844906) 。无论您的情况如何，如果您发现自己第一次填写 W-4，您可能会对所有的字段、工作表和表单感到困惑。是的，国税局会让事情变得混乱。让我们一步一步来。
 

@@ -1,6 +1,6 @@
 # 如何骗自己改掉坏习惯
 
-> 原文:[https://life hacker . com/how-to-trick-yourself-out-a bad-habit-1836969254](https://lifehacker.com/how-to-trick-yourself-out-of-a-bad-habit-1836969254)
+> 原文：<https://lifehacker.com/how-to-trick-yourself-out-of-a-bad-habit-1836969254>
 
 今天是周一，这意味着你可能正在思考你希望在这一周做些什么——你想要改变的习惯，你想要避免的诱惑，等等。正确
 

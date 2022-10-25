@@ -1,6 +1,6 @@
 # 用第二人称给自己打气
 
-> 原文:[https://life hacker . com/give-a-pep-talk-in-the-second-person-1837377502](https://lifehacker.com/give-yourself-a-pep-talk-in-the-second-person-1837377502)
+> 原文：<https://lifehacker.com/give-yourself-a-pep-talk-in-the-second-person-1837377502>
 
 我们当中有谁没有经历过那种悲观的、唠叨的内心声音，那种声音告诉我们有些事情太难了。或者，更好的是，你试图完成的任务太无聊了，无法让你的注意力保持足够长的时间。一些旨在帮助孩子克服障碍并坚持完成任务的建议可能是我们一直在寻找的解决方案。
 

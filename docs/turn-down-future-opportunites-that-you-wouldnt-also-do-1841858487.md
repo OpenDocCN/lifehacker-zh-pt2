@@ -1,6 +1,6 @@
 # 拒绝你现在不会做的未来机会
 
-> 原文:[https://life hacker . com/turn-down-future-opportunities-that-you-would-that-do-1841858487](https://lifehacker.com/turn-down-future-opportunites-that-you-wouldnt-also-do-1841858487)
+> 原文：<https://lifehacker.com/turn-down-future-opportunites-that-you-wouldnt-also-do-1841858487>
 
 我们每天都有新的机会。选择这些机会中的哪一个说“是”有时是一项具有挑战性的任务。也就是说，对出现的事情说不是成功的重要组成部分。我们不可能什么都做。
 

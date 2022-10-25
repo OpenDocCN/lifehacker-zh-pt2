@@ -1,6 +1,6 @@
 # iOS 13 中现在支持黑暗模式的最好的应用
 
-> 原文:[https://life hacker . com/the-best-apps-than-now-support-dark-mode-in-IOs-13-1838290978](https://lifehacker.com/the-best-apps-that-now-support-dark-mode-in-ios-13-1838290978)
+> 原文：<https://lifehacker.com/the-best-apps-that-now-support-dark-mode-in-ios-13-1838290978>
 
 iOS 13 在这里是， [和 Android 10](https://lifehacker.com/use-this-hack-to-create-dark-mode-timers-in-android-10-1838101522) 一样，苹果最新的 OS 更新为你的 iPhone 带来了官方的黑暗模式。当你使用黑暗模式时，应用程序也可以有自己的特殊外观，并且 [Gadget Hacks](https://ios.gadgethacks.com/news/all-apps-work-with-ios-13s-dark-mode-0206378/) 的优秀人员已经提供了一长串目前支持该功能的各种应用程序。一些突出的例子包括:
 

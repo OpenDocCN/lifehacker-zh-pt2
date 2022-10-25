@@ -1,6 +1,6 @@
 # 注意:你需要管理生化奇兵系列有限的保存空间
 
-> 原文:[https://kotaku . com/heads-up-you-need-to-manage-the-bioshock-collections-1841576428](https://kotaku.com/heads-up-youll-need-to-manage-the-bioshock-collections-1841576428)
+> 原文：<https://kotaku.com/heads-up-youll-need-to-manage-the-bioshock-collections-1841576428>
 
 如果你在玩*生化奇兵 1* 的时候用尽了*生化奇兵*合集的 l 有限空间来进行保存，那么一旦你开始玩*生化奇兵 2* 你将根本无法保存。
 

@@ -1,6 +1,6 @@
 # 如果你想保持腿毛，就买硬拉护腿
 
-> 原文:[https://life hacker . com/get-deadlift-shinguards-if-you-want-to-keep-your-leg-ha-1840414335](https://lifehacker.com/get-deadlift-shinguards-if-you-want-to-keep-your-leg-ha-1840414335)
+> 原文：<https://lifehacker.com/get-deadlift-shinguards-if-you-want-to-keep-your-leg-ha-1840414335>
 
 八年来，我一直无法沿着小腿长出腿毛。
 

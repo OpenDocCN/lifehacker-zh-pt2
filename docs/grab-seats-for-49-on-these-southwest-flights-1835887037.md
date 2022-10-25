@@ -1,6 +1,6 @@
 # 在这些西南航班上以 49 美元的价格抢到座位
 
-> 原文:[https://life hacker . com/grab-seats-for-49-on-these-south west-flights-1835887037](https://lifehacker.com/grab-seats-for-49-on-these-southwest-flights-1835887037)
+> 原文：<https://lifehacker.com/grab-seats-for-49-on-these-southwest-flights-1835887037>
 
 就在生日特卖一周后，西南航空公司将在 T2 举行另一场今秋航班特卖，将于今晚午夜结束。
 

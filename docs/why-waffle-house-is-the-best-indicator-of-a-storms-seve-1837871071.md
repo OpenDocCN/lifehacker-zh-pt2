@@ -1,6 +1,6 @@
 # 为什么华夫饼屋是风暴强度的最佳指示器
 
-> 原文:[https://life hacker . com/why-waffle-house-is-the-best-indicator-of-a-storms-seve-1837871071](https://lifehacker.com/why-waffle-house-is-the-best-indicator-of-a-storms-seve-1837871071)
+> 原文：<https://lifehacker.com/why-waffle-house-is-the-best-indicator-of-a-storms-seve-1837871071>
 
 截至周四上午，飓风道林继续沿美国东南部行进，其路径上有佐治亚州和卡罗莱纳州，沿海社区的居民将被疏散。实时预警要下载 [FEMA 的 app](https://www.fema.gov/mobile-app)；该应用程序将提供更新和避难所信息。
 

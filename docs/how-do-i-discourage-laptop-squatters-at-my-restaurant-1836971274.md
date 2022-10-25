@@ -1,6 +1,6 @@
 # 问那个刻薄的女服务员:我如何阻止在我的餐馆里擅自使用笔记本电脑的人？
 
-> 原文:[https://the take out . com/how-do-I-discrete-laptop-squatters-at-my-restaurant-1836971274](https://thetakeout.com/how-do-i-discourage-laptop-squatters-at-my-restaurant-1836971274)
+> 原文：<https://thetakeout.com/how-do-i-discourage-laptop-squatters-at-my-restaurant-1836971274>
 
 > 嗨，咸味:我是一家三明治店的老板，午餐生意很好。最近，我注意到人们带着他们的笔记本电脑和外部硬盘露营几个小时，用完了我们的插座，只点了一杯饮料，没有三明治。我们不是一家咖啡店，我们的业务需要大量的营业额，所以我们并不希望成为人们闲逛的公共场所。你有什么建议可以让我在努力保持这种温暖、诱人的氛围的同时阻止这种行为吗？
 > 

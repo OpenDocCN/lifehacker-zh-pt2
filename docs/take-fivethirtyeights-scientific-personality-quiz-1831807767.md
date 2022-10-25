@@ -1,6 +1,6 @@
 # 参加 538 的科学人格测验
 
-> 原文:[https://life hacker . com/take-fivethirtyeghts-scientific-personality-quick-1831807767](https://lifehacker.com/take-fivethirtyeights-scientific-personality-quiz-1831807767)
+> 原文：<https://lifehacker.com/take-fivethirtyeights-scientific-personality-quiz-1831807767>
 
 孪生完成；“十年前的我与现在的我”的迷因将于周五结束；是时候让一种新的自恋时尚充斥我们的社交媒体了。是时候进行 [FiveThirtyEight 的新人格测验](https://projects.fivethirtyeight.com/personality-quiz/) 了，基于大五人格属性。 [与迈尔斯-布里格斯](https://vitals.lifehacker.com/its-time-to-stop-using-myers-briggs-at-work-1830232770#_ga=2.203131411.320302203.1547570792-1222396525.1547242489) 等测试不同，五大的概念是基于数十年的科学研究。
 

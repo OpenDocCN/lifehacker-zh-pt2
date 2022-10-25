@@ -1,6 +1,6 @@
 # 如何辨别 FAA 是否已经禁止你的 MacBook Pro 飞行
 
-> 原文:[https://life hacker . com/how-to-tell-if-the-FAA-has-banned-your-macbook-pro-from-1837236837](https://lifehacker.com/how-to-tell-if-the-faa-has-banned-your-macbook-pro-from-1837236837)
+> 原文：<https://lifehacker.com/how-to-tell-if-the-faa-has-banned-your-macbook-pro-from-1837236837>
 
 周二，美国联邦航空管理局(Federal Aviation Administration)正式禁止部分 MacBook Pros 乘坐美国航班。几个月前，苹果公司主动召回了一些电池过热引发火灾的笔记本电脑。
 

@@ -1,6 +1,6 @@
 # 使用此 iOS 快捷方式滚动一个新的龙与地下城角色
 
-> 原文:[https://life hacker . com/use-this-IOs-shortcut-to-roll-a-new-dungs-dragons-1830290340](https://lifehacker.com/use-this-ios-shortcut-to-roll-a-new-dungeons-dragons-1830290340)
+> 原文：<https://lifehacker.com/use-this-ios-shortcut-to-roll-a-new-dungeons-dragons-1830290340>
 
 一个精神掠夺者刚刚吃掉了你——或者你的团队——而你正在寻找一个全新的*地下城&龙族*角色回到战斗中。或者你有一个新鲜的新游戏即将推出，你需要一点灵感为你的下一个角色的背景和个性。与其花一个小时盯着一张空白的角色表，不如用 iOS 快捷方式“ [WTF 是我的 DnD 角色](https://www.icloud.com/shortcuts/afe1ce9cedb04d948adfe818aa2285f3) ”(由 Reddit 用户“ [mvoviri](https://www.reddit.com/user/mvoviri) ”创建)节省一点时间。
 

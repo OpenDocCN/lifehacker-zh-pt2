@@ -1,6 +1,6 @@
 # 创建一份个人财务资产负债表，看看你的状况
 
-> 原文:[https://life hacker . com/create-a-personal-finance-balance-sheet-to-see-where-yo-1831463386](https://lifehacker.com/create-a-personal-finance-balance-sheet-to-see-where-yo-1831463386)
+> 原文：<https://lifehacker.com/create-a-personal-finance-balance-sheet-to-see-where-yo-1831463386>
 
 如果你计划在 2019 年进行金融改革，你需要做的第一件事就是弄清楚你的立场。正如基普林格 所建议的 [，做这件事最简单的方法之一——并在这个过程中潜在地发现你的基础可能出现的裂缝——就是创建一份资产负债表。](https://www.kiplinger.com/article/retirement/T037-C032-S014-9-steps-to-make-2019-your-best-financial-year-ever.html) 
 

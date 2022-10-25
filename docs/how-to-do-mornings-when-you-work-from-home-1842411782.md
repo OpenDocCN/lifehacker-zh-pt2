@@ -1,6 +1,6 @@
 # 在家工作时如何度过早晨
 
-> 原文:[https://life hacker . com/how-do-morning-when-you-work-from-home-1842411782](https://lifehacker.com/how-to-do-mornings-when-you-work-from-home-1842411782)
+> 原文：<https://lifehacker.com/how-to-do-mornings-when-you-work-from-home-1842411782>
 
 如果你是在家工作的新手，你可能会默认我们许多人第一次发现自己不必再通勤到办公室时所做的事情:躺在床上直到最后一刻，然后在一天的剩余时间里穿着睡衣做远程工作。
 

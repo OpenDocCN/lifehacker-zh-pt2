@@ -1,6 +1,6 @@
 # 哪些公司现在还在招人？
 
-> 原文:[https://life hacker . com/which-companies-is-still-wining-right-now-1842889382](https://lifehacker.com/which-companies-are-still-hiring-right-now-1842889382)
+> 原文：<https://lifehacker.com/which-companies-are-still-hiring-right-now-1842889382>
 
 在大规模裁员和一连串的招聘冻结之间，飙升的失业率让许多人怀疑现在找工作是否值得。如果你正在找工作，你可能会觉得你面对的是数百万人在冠状病毒关闭期间争夺任何微薄的工作。
 

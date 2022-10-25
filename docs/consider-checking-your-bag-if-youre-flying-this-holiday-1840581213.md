@@ -1,6 +1,6 @@
 # 如果你要在这个假期坐飞机，可以考虑托运你的包
 
-> 原文:[https://life hacker . com/consider-check-your-bag-if you-flying-this-holiday-1840581213](https://lifehacker.com/consider-checking-your-bag-if-youre-flying-this-holiday-1840581213)
+> 原文：<https://lifehacker.com/consider-checking-your-bag-if-youre-flying-this-holiday-1840581213>
 
 本周早些时候，我穿越全国来到我的家乡，在那里我将度过假期。此外，有生以来第一次，我托运的不是一个而是两个行李箱，我在这里建议你也这样做。也许不是两个行李箱的部分，而是检查你的行李。
 

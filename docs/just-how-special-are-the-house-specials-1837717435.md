@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:这里的特色菜到底有多特别？
 
-> 原文:[https://the take out . com/just-how-special-is-the-house-specials-1837717435](https://thetakeout.com/just-how-special-are-the-house-specials-1837717435)
+> 原文：<https://thetakeout.com/just-how-special-are-the-house-specials-1837717435>
 
 > 亲爱的 Salty，最近我去度假，在一家餐厅吃午餐，这家餐厅在菜单上大肆吹嘘其樱桃派的名气。这让我开始思考:*樱桃派真的很出名吗，或者是写菜单的人决定它应该出名，而我们都会被愚弄？因为它真的没有*那么好，至少没有我在北密歇根最喜欢的餐馆里供应的樱桃派好，也不配出名。**
 > 

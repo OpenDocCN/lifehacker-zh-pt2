@@ -1,6 +1,6 @@
 # 用蓝奶酪做一道素食友好的凯撒沙拉酱
 
-> 原文:[https://life hacker . com/make-a-素食-友好-凯撒-蓝衣-ch-1829765284](https://lifehacker.com/make-a-vegetarian-friendly-caesar-dressing-with-blue-ch-1829765284)
+> 原文：<https://lifehacker.com/make-a-vegetarian-friendly-caesar-dressing-with-blue-ch-1829765284>
 
 真正的凯撒沙拉酱从凤尾鱼中获得丰富的咸味，但不是每个人都吃鱼。吹毛求疵的人可能会坚持认为那些人根本不配得到凯撒沙拉，但我认为这有点苛刻，特别是当你可以用蓝奶酪做一个非常好的 T4 素食者。
 

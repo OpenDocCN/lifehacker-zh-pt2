@@ -1,6 +1,6 @@
 # 我是理查·盖瑞特，又名英国勋爵，这就是我的工作方式
 
-> 原文:[https://life hacker . com/im-Richard-garriott-aka-Lord-British-and-this-is-how-1831177709](https://lifehacker.com/im-richard-garriott-aka-lord-british-and-this-is-how-1831177709)
+> 原文：<https://lifehacker.com/im-richard-garriott-aka-lord-british-and-this-is-how-1831177709>
 
 理查·盖瑞特是一个机器人。这位 *Ultima* 系列(包括 *Ultima Online* ，首款大型多人在线游戏之一)的创造者在他位于纽约州的家中经营着他的奥斯汀公司 Portalarium。他通过 Beam 远程办公，这是一个类似 Segway 的机器人，有一个视频屏幕，让他比静态视频会议更直接地与团队的其他成员互动。对于创造了梵语单词 *avatar* 来表示一个人的虚拟数字表示的人来说，这是一种合适的工作风格。
 

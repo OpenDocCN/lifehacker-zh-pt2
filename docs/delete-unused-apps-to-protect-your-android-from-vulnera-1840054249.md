@@ -1,6 +1,6 @@
 # 删除未使用的应用程序，保护您的 Android 免受漏洞攻击
 
-> 原文:[https://life hacker . com/delete-unused-apps-to-protect-your-Android-from-vulnerana-1840054249](https://lifehacker.com/delete-unused-apps-to-protect-your-android-from-vulnera-1840054249)
+> 原文：<https://lifehacker.com/delete-unused-apps-to-protect-your-android-from-vulnera-1840054249>
 
 定期从智能手机上卸载未使用的应用程序(并禁用不必要的应用程序权限)不仅可以释放额外的存储空间，还可以帮助保护您的个人数据安全。例证:几个第三方安卓应用程序最近卷入了一次数据泄露事件，影响了数百万脸书和推特用户。
 

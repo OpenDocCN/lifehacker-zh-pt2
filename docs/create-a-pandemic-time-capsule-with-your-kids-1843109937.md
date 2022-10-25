@@ -1,6 +1,6 @@
 # 和你的孩子一起创建一个疫情时间胶囊
 
-> 原文:[https://life hacker . com/create-a-疫情-time-capsule-with-your-kids-1843109937](https://lifehacker.com/create-a-pandemic-time-capsule-with-your-kids-1843109937)
+> 原文：<https://lifehacker.com/create-a-pandemic-time-capsule-with-your-kids-1843109937>
 
 我们家三月份的挂历有点让人难以忘怀。虽然我们每个人都有自己的系统来跟踪个人约会或任务，但挂在厨房的日历是我们记录我们三个人都需要知道的事情的方式。足球练习和篮球比赛。外地工作会议。在学校的早退日。狗需要每月服药的那天。我们甚至买了一个特大日历，因为我们发现普通日历的方格太小，无法记录我们忙碌的生活。或者说，它们曾经太小了——直到三月的到来。
 

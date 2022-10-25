@@ -1,6 +1,6 @@
 # 如何在 Windows 启动时阻止讨厌的应用程序加载
 
-> 原文:[https://life hacker . com/how-to-stop-napps-from-loading-when-windows-boo-1829810394](https://lifehacker.com/how-to-stop-annoying-apps-from-loading-when-windows-boo-1829810394)
+> 原文：<https://lifehacker.com/how-to-stop-annoying-apps-from-loading-when-windows-boo-1829810394>
 
 你最后一次坐下来思考每当你在台式机或笔记本电脑上启动 Windows 10 时会自动启动多少应用是什么时候？你可能不记得了，因为这不是大多数人会做的事情。但是你应该这样做，因为你不需要一堆不必要的应用程序毫无理由地消耗你的系统资源。如果你有一台动力不足的电脑，你只会让你的情况变得更糟。而且，至少，拥有一堆后台应用程序会让 Windows 10 需要更长的加载时间。
 

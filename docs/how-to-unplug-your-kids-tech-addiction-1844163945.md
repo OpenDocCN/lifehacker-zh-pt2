@@ -1,6 +1,6 @@
 # 如何“拔掉”孩子的科技瘾
 
-> 原文:[https://life hacker . com/how-to-unplug-your-kids-tech-addict-1844163945](https://lifehacker.com/how-to-unplug-your-kids-tech-addiction-1844163945)
+> 原文：<https://lifehacker.com/how-to-unplug-your-kids-tech-addiction-1844163945>
 
 全球化的疫情在宏观层面上改变了世界，但它也 [重塑了我们家庭常规](https://lifehacker.com/set-new-family-pandemic-rules-1843242288) 的微观世界。曾经，屏幕时间对我的孩子来说是一种特殊的享受，只留给周末和电影之夜。哦，但是后来所有的学校都关门了。还有托儿所。还有夏令营。突然间，银幕上的*变成了*学校，反之亦然，日子变得漫长得多。
 

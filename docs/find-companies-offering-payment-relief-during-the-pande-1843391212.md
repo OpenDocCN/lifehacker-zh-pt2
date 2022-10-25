@@ -1,6 +1,6 @@
 # 寻找在疫情期间提供付款减免的公司
 
-> 原文:[https://life hacker . com/find-companies-offering-payment-relief-in-the-潘德-1843391212](https://lifehacker.com/find-companies-offering-payment-relief-during-the-pande-1843391212)
+> 原文：<https://lifehacker.com/find-companies-offering-payment-relief-during-the-pande-1843391212>
 
 从有线电视提供商到保险提供商，各种公司都在为受疫情康罗纳病毒影响的人们提供付款救济。但是了解这些项目——以及如何利用它们——可能具有挑战性，尤其是如果你已经对自己的财务状况感到压力的话。每个公司似乎都把他们的客户说明放在不同的地方，每个公司都有一个稍微不同的方法来设置付款延期或其他选项。
 

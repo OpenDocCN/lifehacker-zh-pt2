@@ -1,6 +1,6 @@
 # a medical doctor breaks down cristina cuomos luxury qu 1843069772
 
-> 原文:[https://Jezebel . com/a-medical-doctor-breaks-downs-Cristina-cuomos-luxury-qu-1843069772](https://jezebel.com/a-medical-doctor-breaks-down-cristina-cuomos-luxury-qu-1843069772)
+> 原文：<https://jezebel.com/a-medical-doctor-breaks-down-cristina-cuomos-luxury-qu-1843069772>
 
 克莉丝汀娜·科莫，CNN 的克里斯·科莫的妻子，纽约州州长安德鲁·科莫的嫂子，在经历了的新冠肺炎诊断后，正在康复中，她认为这种稳定的康复不是主流医生或健康英雄的功劳，而是一系列替代健康疗法的功劳。自称“ [”的健康崇拜者](https://www.instagram.com/cristinacuomo/) ”是已经拥挤的健康影响者领域中稳步上升的明星，她甚至有自己的健康期刊，封面上星光熠熠，以证明她的真诚。然而，在她最近的新冠肺炎恐慌中，她向专家寻求建议，其中包括一位首席执行官，他认为癌症是由恶劣的氛围引起的，以及一位 Goop 认可的自然疗法治疗师，他声称在稀释的漂白剂中洗澡可以消除身体的辐射。
 

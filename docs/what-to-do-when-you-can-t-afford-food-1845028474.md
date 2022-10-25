@@ -1,6 +1,6 @@
 # 当你买不起食物时该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-what-what-what-you-can ' t-after-food-1845028474](https://lifehacker.com/what-to-do-when-you-can-t-afford-food-1845028474)
+> 原文：<https://lifehacker.com/what-to-do-when-you-can-t-afford-food-1845028474>
 
 随着疫情继续影响全国，包括近 90 万失业救济金申领人数，家庭继续努力维持生计。对许多美国人来说，这可能包括买不起食物的痛苦挑战。
 

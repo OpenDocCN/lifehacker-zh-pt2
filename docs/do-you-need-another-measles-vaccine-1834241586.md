@@ -1,6 +1,6 @@
 # 需要再打一针麻疹疫苗吗？
 
-> 原文:[https://life hacker . com/do-you-need-another-麻疹疫苗-1834241586](https://lifehacker.com/do-you-need-another-measles-vaccine-1834241586)
+> 原文：<https://lifehacker.com/do-you-need-another-measles-vaccine-1834241586>
 
 我们即将迎来破纪录的麻疹季节。加油美国！
 

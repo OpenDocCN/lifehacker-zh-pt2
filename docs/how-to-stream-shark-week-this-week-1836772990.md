@@ -1,6 +1,6 @@
 # 如何在本周播放“鲨鱼周”
 
-> 原文:[https://life hacker . com/how-to-stream-shark-week-this-week-1836772990](https://lifehacker.com/how-to-stream-shark-week-this-week-1836772990)
+> 原文：<https://lifehacker.com/how-to-stream-shark-week-this-week-1836772990>
 
 《鲨鱼周》于今天，7 月 28 日在探索频道正式开始，一直持续到 8 月 4 日。
 

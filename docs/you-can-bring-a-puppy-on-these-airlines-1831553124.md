@@ -1,6 +1,6 @@
 # 你可以带一只小狗乘坐这些航班
 
-> 原文:[https://life hacker . com/you-can-bring-a-puppy-on-these-airlines-1831553124](https://lifehacker.com/you-can-bring-a-puppy-on-these-airlines-1831553124)
+> 原文：<https://lifehacker.com/you-can-bring-a-puppy-on-these-airlines-1831553124>
 
 如果你有一只新的小狗，正在考虑乘飞机旅行，你可能也想开始寻找宠物保姆。航空公司已经开始禁止幼犬登机。最新做出改变的是:联合航空。从周一开始，美联航将不再允许小于四个月大的宠物进入机舱。
 

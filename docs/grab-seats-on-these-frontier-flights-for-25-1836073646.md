@@ -1,6 +1,6 @@
 # 以 25 美元的价格抢到这些边境航班的座位
 
-> 原文:[https://life hacker . com/grab-seats-on-these-frontier-flights-for-25-1836073646](https://lifehacker.com/grab-seats-on-these-frontier-flights-for-25-1836073646)
+> 原文：<https://lifehacker.com/grab-seats-on-these-frontier-flights-for-25-1836073646>
 
 如果你还没有预订夏季度假，那么你的机会来了:在周四晚上之前，T2 边境航空公司正在进行大减价，推出今夏单程机票，最低只需 25 美元。
 

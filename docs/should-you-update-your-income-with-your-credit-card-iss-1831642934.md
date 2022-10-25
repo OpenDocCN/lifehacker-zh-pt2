@@ -1,6 +1,6 @@
 # 你应该向你的信用卡发行人更新你的收入吗？
 
-> 原文:[https://life hacker . com/should-you-update-you-you-income-with-you-card-ISS-1831642934](https://lifehacker.com/should-you-update-your-income-with-your-credit-card-iss-1831642934)
+> 原文：<https://lifehacker.com/should-you-update-your-income-with-your-credit-card-iss-1831642934>
 
 如果你有一张信用卡，你可能会收到许多电子邮件或信件——或者当你在线登录你的账户时得到提示——要求你每年更新你的工资信息。这可能看起来有点唐突，但是发卡机构会问，因为 2009 年的信用卡法案要求 T2 验证持卡人的支付能力。
 

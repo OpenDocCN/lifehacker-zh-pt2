@@ -1,6 +1,6 @@
 # 当你死后，如何告诉谷歌如何处理你的数据
 
-> 原文:[https://life hacker . com/how-to-tell-Google-what-do-what-you-d-1839213076](https://lifehacker.com/how-to-tell-google-what-to-do-with-your-data-when-you-d-1839213076)
+> 原文：<https://lifehacker.com/how-to-tell-google-what-to-do-with-your-data-when-you-d-1839213076>
 
 不管你有多老或多健康，有一个死亡计划，即使是一个粗略的计划，也是一个非常可靠的主意。你留下的人将不得不考虑如何处理你的宠物，你的东西，甚至你的 Gmail 账户。
 

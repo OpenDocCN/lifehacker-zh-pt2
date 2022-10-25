@@ -1,6 +1,6 @@
 # 如何找到所有从机场出发的航班
 
-> 原文:[https://life hacker . com/how-to-find-all-flight-出港机场-1835811238](https://lifehacker.com/how-to-find-all-flight-departures-from-an-airport-1835811238)
+> 原文：<https://lifehacker.com/how-to-find-all-flight-departures-from-an-airport-1835811238>
 
 当你通过 Vayama 或 Google Flights 等旅游预订网站预订机票时，你希望自己得到的是最划算的价格，但这里有一个问题:M 任何 [廉价航空公司](https://www.nytimes.com/2019/05/24/travel/new-york-to-tahiti-or-laos-or-nairobi-without-spending-a-fortune.html) 航空公司*都不允许*他们的航班出现在这些第三方旅游网站上。
 

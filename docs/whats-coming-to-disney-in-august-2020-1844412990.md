@@ -1,6 +1,6 @@
 # 2020 年 8 月迪士尼+要来什么
 
-> 原文:[https://life hacker . com/whats-coming-to-Disney-in-August-2020-1844412990](https://lifehacker.com/whats-coming-to-disney-in-august-2020-1844412990)
+> 原文：<https://lifehacker.com/whats-coming-to-disney-in-august-2020-1844412990>
 
 2020 年，迪士尼在商业、媒体和文化领域是一股无处不在的力量，很难想象它曾经不是世界上最强大的品牌之一。但是回到 20 世纪 80 年代，华特建造的工作室陷入了困境——尽管迪士尼世界从来就不是地球上最快乐的地方(嗯， [也许除了现在的](https://boingboing.net/2020/07/15/disneys-reopening-video-but.html) )，几十年前，该公司的电影是一场灾难，其曾经传奇的动画部门 [无法制作出一部热门作品](https://www.denofgeek.com/movies/exploring-disneys-fascinating-dark-phase-of-the-70s-and-80s/) ，其不断下跌的股票使其 [成为主要的收购目标](https://www.douglipp.com/blog/when-mickey-mouse-nearly-died-how-it-saved-the-walt-disney-company/) 。
 

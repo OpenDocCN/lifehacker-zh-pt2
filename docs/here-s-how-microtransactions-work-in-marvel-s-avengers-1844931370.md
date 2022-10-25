@@ -1,6 +1,6 @@
 # 以下是微交易在漫威的《复仇者联盟》中的运作方式
 
-> 原文:[https://kotaku . com/here-s-how-micro transactions-work-in-marvel-s-Avengers-1844931370](https://kotaku.com/here-s-how-microtransactions-work-in-marvel-s-avengers-1844931370)
+> 原文：<https://kotaku.com/here-s-how-microtransactions-work-in-marvel-s-avengers-1844931370>
 
 自从漫威的《复仇者联盟》被披露是一款没完没了的在线游戏，一款《T2 的命运》T3，潜在的玩家就一直想知道潜在的微交易，以及它们到底有多糟糕。实话实说:是的，在*漫威的《复仇者联盟》*中有微交易。不，你不能付钱给一个有超能力的角色(或者，嗯，一个更有*超能力的角色)。* 
 

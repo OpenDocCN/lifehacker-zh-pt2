@@ -1,6 +1,6 @@
 # 10 个我喜欢的勺子和铲子
 
-> 原文:[https://life hacker . com/10-spongs-and-spatulas-that-I-love-1844220872](https://lifehacker.com/10-spoons-and-spatulas-that-i-love-1844220872)
+> 原文：<https://lifehacker.com/10-spoons-and-spatulas-that-i-love-1844220872>
 
 我喜欢高科技的厨房玩具，就像喜欢下一个厨房用具一样，但是我更依赖我最喜欢的勺子和刮刀，而不是任何厨房用具。除了功能性，我喜欢勺子和刮刀的外观和感觉。(勺子是我旅行时最喜欢捡的纪念品；我太爱他们了。)跟我来一趟我最喜欢的，好吗？
 

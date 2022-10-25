@@ -1,6 +1,6 @@
 # 当你卖东西换钱的时候，在银行见面
 
-> 原文:[https://life hacker . com/when-you-sell-you-study-for-cash-meet-in-bank-1836055191](https://lifehacker.com/when-you-sell-your-stuff-for-cash-meet-at-the-bank-1836055191)
+> 原文：<https://lifehacker.com/when-you-sell-your-stuff-for-cash-meet-at-the-bank-1836055191>
 
 在我们充满生活的 Craigslist/offer up/Letgo/易贝/Nextdoor- 中，警察局是一个将旧货兑换成现金的热门地点。事实上，许多警察局都推出了 [【安全区】](https://lifehacker.com/kristin-an-extensive-list-of-police-departments-that-1694576467) 专门针对您与当地陌生人的现金交易。
 

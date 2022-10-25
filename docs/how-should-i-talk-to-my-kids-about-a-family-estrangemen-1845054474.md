@@ -1,6 +1,6 @@
 # how should i talk to my kids about a family estrangemen 1845054474
 
-> 原文:[https://life hacker . com/how-should-I-talk to-my-kids-a-family-distant men-1845054474](https://lifehacker.com/how-should-i-talk-to-my-kids-about-a-family-estrangemen-1845054474)
+> 原文：<https://lifehacker.com/how-should-i-talk-to-my-kids-about-a-family-estrangemen-1845054474>
 
 与父母关系不正常——以至于你觉得有必要切断与他们的所有联系——已经够痛苦的了。但是当你也有孩子开始奇怪为什么奶奶很久没来看你时，旧伤会一次又一次地被揭开。
 

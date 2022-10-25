@@ -1,6 +1,6 @@
 # 今年秋天，一些父母是如何照顾孩子的
 
-> 原文:[https://life hacker . com/how-some-parents-are-handling-children-this-fall-1844623218](https://lifehacker.com/how-some-parents-are-handling-childcare-this-fall-1844623218)
+> 原文：<https://lifehacker.com/how-some-parents-are-handling-childcare-this-fall-1844623218>
 
 这将是独一无二的儿童保育解决方案的一年，因为我们的孩子将大部分(或全部)时间花在课外学习上，即使父母继续努力工作，我们都试图保持孤立以保护彼此。父母需要帮助，但有时获得帮助并没有安全感。
 

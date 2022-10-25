@@ -1,6 +1,6 @@
 # 以智能方式结束缩放通话
 
-> 原文:[https://life hacker . com/to-end-a-zoom-call-the-smart-way-1843608993](https://lifehacker.com/how-to-end-a-zoom-call-the-smart-way-1843608993)
+> 原文：<https://lifehacker.com/how-to-end-a-zoom-call-the-smart-way-1843608993>
 
 作为一个持卡内向的人(我自己层压的！)我非常厌恶打电话、开电话会议和在镜头前看着自己的脸，但我们转向 100%在家工作的生活方式真的很令人高兴。我最喜欢每次 Zoom 会议结束时的那一点，在每个人都说再见之后，当我们摸索着触摸板或触摸条试图退出通话时，我们所有人的表情都变得松弛。这是一种完全正常的结束社交活动的方式，一点也不令人不安。但是如果有更好的方法呢？
 

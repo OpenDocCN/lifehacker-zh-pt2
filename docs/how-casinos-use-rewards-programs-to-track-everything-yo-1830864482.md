@@ -1,6 +1,6 @@
 # 赌场如何利用奖励计划来追踪你的一举一动
 
-> 原文:[https://life hacker . com/how-casino-use-rewards-programs-to-track-everything-yo-1830864482](https://lifehacker.com/how-casinos-use-rewards-programs-to-track-everything-yo-1830864482)
+> 原文：<https://lifehacker.com/how-casinos-use-rewards-programs-to-track-everything-yo-1830864482>
 
 还记得那些来自 *21、*、*十一罗汉、*的场景，以及任何关于在赌场作弊或偷窃的电影吗？一个安全小组试图通过摄像头追踪罪犯的活动？
 

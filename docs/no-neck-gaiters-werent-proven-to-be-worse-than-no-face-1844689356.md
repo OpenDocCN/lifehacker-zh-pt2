@@ -1,6 +1,6 @@
 # 不，颈部绑腿并没有被证明比没有面罩更糟糕
 
-> 原文:[https://life hacker . com/no-neck-gaiters-been-proven-be-bad-than-no-face-1844689356](https://lifehacker.com/no-neck-gaiters-werent-proven-to-be-worse-than-no-face-1844689356)
+> 原文：<https://lifehacker.com/no-neck-gaiters-werent-proven-to-be-worse-than-no-face-1844689356>
 
 有一项新的研究声称 [像 buff](https://buffusa.com/how-to-wear)一样的颈部绑腿比根本不戴面具更糟糕。我不认为这项研究应该从表面价值来看，但也有理由怀疑 Buffs、bandanas 和其他不是设计来做面具工作的面部覆盖物。
 

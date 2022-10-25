@@ -1,6 +1,6 @@
 # 玩这个游戏可以和你的孩子进行更好的交流
 
-> 原文:[https://life hacker . com/play-this-game-to-have-better-conversations-with-your-k-1841885977](https://lifehacker.com/play-this-game-to-have-better-conversations-with-your-k-1841885977)
+> 原文：<https://lifehacker.com/play-this-game-to-have-better-conversations-with-your-k-1841885977>
 
 你可能有一些诀窍让你的孩子在放学后或在餐桌上谈论他们的一天。但是有时候，在吃意大利面的时候，谈论你每天的“高潮和低谷”或者“玫瑰、荆棘和花蕾”的时候，你需要休息一下。有时候讨论一些完全随机的事情会更有趣，比如“多大了？”或者“如果你可以自己创业，会是什么样的？”
 

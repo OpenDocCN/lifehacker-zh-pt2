@@ -1,6 +1,6 @@
 # 本周五和周六在 Dunkin 尝试免费的“超越香肠”早餐三明治
 
-> 原文:[https://life hacker . com/get-a-free-beyond-香肠早餐三明治-dunkin-1839272422](https://lifehacker.com/get-a-free-beyond-sausage-breakfast-sandwich-at-dunkin-1839272422)
+> 原文：<https://lifehacker.com/get-a-free-beyond-sausage-breakfast-sandwich-at-dunkin-1839272422>
 
 如果你想尝试超越肉类的香肠，现在是你试驾的机会。
 

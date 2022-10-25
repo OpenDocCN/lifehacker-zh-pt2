@@ -1,6 +1,6 @@
 # 请记住在删除应用程序之前删除并取消链接您的帐户
 
-> 原文:[https://life hacker . com/remember-to-delete-before-1840835887](https://lifehacker.com/remember-to-delete-and-unlink-your-accounts-before-dele-1840835887)
+> 原文：<https://lifehacker.com/remember-to-delete-and-unlink-your-accounts-before-dele-1840835887>
 
 从你的智能手机上删除一个应用程序只需几秒钟，但如果你试图删除你的数据或阻止它访问其他账户，你需要做的不仅仅是卸载应用程序——有些应用程序在离开你的手机很长时间后还会继续这样做。为了防止这种情况，请确保在卸载应用程序之前，删除/取消链接您的帐户和它可能包含的任何数据*。这里有一些建议，可以确保你和你不想再用的应用程序彻底决裂。* 
 

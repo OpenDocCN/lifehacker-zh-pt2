@@ -1,6 +1,6 @@
 # 我是安妮·布洛克，孟买蓝宝石酿酒厂的酿酒大师，这就是我的工作方式
 
-> 原文:[https://life hacker . com/im-Anne-Brock-master-distiller-at-Bombay-sapphire-and-1828591447](https://lifehacker.com/im-anne-brock-master-distiller-at-bombay-sapphire-and-1828591447)
+> 原文：<https://lifehacker.com/im-anne-brock-master-distiller-at-bombay-sapphire-and-1828591447>
 
 你可以说安妮·布洛克医生以喝酒为生。但是请不要在听得见的地方说。布洛克博士是 Bombay Sapphire 的酿酒大师，负责监管英国 Laverstoke 村的杜松子酒生产。我们和她聊了她的化学背景，她的杜松子酒俱乐部，以及她最喜欢的鸡尾酒魔术。
 

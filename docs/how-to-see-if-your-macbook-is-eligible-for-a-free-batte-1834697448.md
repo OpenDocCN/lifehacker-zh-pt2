@@ -1,6 +1,6 @@
 # 如何查看您的 MacBook 是否有资格获得免费电池更换
 
-> 原文:[https://life hacker . com/how-to-see-if-your-macbook-is-eligible-for-a-free-batte-1834697448](https://lifehacker.com/how-to-see-if-your-macbook-is-eligible-for-a-free-batte-1834697448)
+> 原文：<https://lifehacker.com/how-to-see-if-your-macbook-is-eligible-for-a-free-batte-1834697448>
 
 如果你有一台 2016 年 10 月至 2017 年 10 月期间生产的 13 英寸 MacBook Pro，那么你可能有资格免费更换电池。
 

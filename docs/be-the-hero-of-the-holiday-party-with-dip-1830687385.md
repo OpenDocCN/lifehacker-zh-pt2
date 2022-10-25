@@ -1,6 +1,6 @@
 # 和 Dip 一起成为节日派对的主角
 
-> 原文:[https://life hacker . com/be-the-hero-of-the-holiday-party-with-dip-1830687385](https://lifehacker.com/be-the-hero-of-the-holiday-party-with-dip-1830687385)
+> 原文：<https://lifehacker.com/be-the-hero-of-the-holiday-party-with-dip-1830687385>
 
 现在感恩节结束了，每个人都做了必须的火鸡，我们可以把注意力转移到其他更重要的事情上，比如节日聚会和节日聚会小吃。举办一场好的聚会是给人们他们想要的东西，而根据我的经验，人们想要蘸酱。
 

@@ -1,6 +1,6 @@
 # 不要担心整理你的书
 
-> 原文:[https://life hacker . com/dont-warehouse-organizing-your-books-1832736904](https://lifehacker.com/dont-worry-about-organizing-your-books-1832736904)
+> 原文：<https://lifehacker.com/dont-worry-about-organizing-your-books-1832736904>
 
 和大多数书店一样，布鲁克林的书是有魔力的，书被合理地组织起来:小说按作者的名字分类；各种类别下的非小说类，有自己陈列的当地感兴趣的书籍；按年龄组和作者分类的儿童书籍；新书正面朝上放在前面的桌子上；一墙的烹饪书；像 [33 1/3](http://333sound.com/33-13-series/) 这样的平装系列的薄书架。
 

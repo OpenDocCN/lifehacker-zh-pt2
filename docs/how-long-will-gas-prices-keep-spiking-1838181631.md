@@ -1,6 +1,6 @@
 # 汽油价格会持续上涨多久？
 
-> 原文:[https://life hacker . com/how-long-will-gas-prices-keep-spiking-1838181631](https://lifehacker.com/how-long-will-gas-prices-keep-spiking-1838181631)
+> 原文：<https://lifehacker.com/how-long-will-gas-prices-keep-spiking-1838181631>
 
 上周末对两个沙特阿拉伯石油工厂 的袭击可能意味着美国更高的油价。但是能持续多久呢？
 

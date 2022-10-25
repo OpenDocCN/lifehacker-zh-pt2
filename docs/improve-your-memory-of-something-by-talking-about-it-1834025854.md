@@ -1,6 +1,6 @@
 # 通过谈论来提高你对某事的记忆
 
-> 原文:[https://life hacker . com/improve-your-memory of something-by-talking-that-1834025854](https://lifehacker.com/improve-your-memory-of-something-by-talking-about-it-1834025854)
+> 原文：<https://lifehacker.com/improve-your-memory-of-something-by-talking-about-it-1834025854>
 
 记忆力是我们都在不断努力提高的东西之一。随着年龄的增长，这也是那些不断恶化的事情之一。
 

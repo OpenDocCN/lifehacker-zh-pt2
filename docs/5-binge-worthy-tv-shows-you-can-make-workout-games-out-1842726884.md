@@ -1,6 +1,6 @@
 # 5 个值得狂欢的电视节目，你可以把它们做成锻炼游戏
 
-> 原文:[https://gizmodo . com/5-binge-worthy-TV-shows-you-can-make-workout-games-1842726884](https://gizmodo.com/5-binge-worthy-tv-shows-you-can-make-workout-games-out-1842726884)
+> 原文：<https://gizmodo.com/5-binge-worthy-tv-shows-you-can-make-workout-games-out-1842726884>
 
 社交距离 [影响我们的身体](https://gizmodo.com/how-to-stay-fit-while-social-distancing-1842365001) 就像影响我们的思想一样。没有了去健身房或去健身班的能力，我们的日常生活被打乱了。你可能会替换掉你最喜欢的节目的 [额外时段](https://io9.gizmodo.com/11-nerdy-things-you-can-watch-and-read-for-free-while-s-1842507463) ，或者 [尝试一些新的](https://io9.gizmodo.com/watch-these-5-genre-series-you-ve-always-wanted-to-try-1842624360?_ga=2.68286228.421180415.1586177857-1751557175.1567029747) 。为什么不在看的时候做点运动呢？
 

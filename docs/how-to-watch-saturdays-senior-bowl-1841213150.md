@@ -1,6 +1,6 @@
 # 如何观看周六的老年碗
 
-> 原文:[https://life hacker . com/how-to-watch-saturdays-senior-bowl-1841213150](https://lifehacker.com/how-to-watch-saturdays-senior-bowl-1841213150)
+> 原文：<https://lifehacker.com/how-to-watch-saturdays-senior-bowl-1841213150>
 
 今天是 2020 高三碗。来自全国各地球队的大学毕业生和 NFL 选秀前景将在 AL Mobile 的 Ladd-Peebles 体育场相互对抗。这项活动背后的目标是在 NFL 教练面前炫耀，他们可能会决定是否要招募这些球员。
 

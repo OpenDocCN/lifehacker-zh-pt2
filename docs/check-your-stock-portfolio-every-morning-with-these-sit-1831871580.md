@@ -1,6 +1,6 @@
 # 每天早上通过这些网站查看你的股票投资组合
 
-> 原文:[https://life hacker . com/check-your-stock-portfolio-every morning with thes-sit-1831871580](https://lifehacker.com/check-your-stock-portfolio-every-morning-with-these-sit-1831871580)
+> 原文：<https://lifehacker.com/check-your-stock-portfolio-every-morning-with-these-sit-1831871580>
 
 生活黑客金融绝地艾丽西娅·亚当奇克(Alicia Adamczyk)会对这种做法提出警告——这是一个好建议——但抵制每天查看股票市场的诱惑可能很难。你不必*用这些信息做*任何事情；有时候，看着世界燃烧是件好事，因为有人说了或做了什么，整个市场下跌了 1000 点。
 

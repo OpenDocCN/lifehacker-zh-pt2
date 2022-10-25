@@ -1,6 +1,6 @@
 # 如何与你的伴侣在金钱问题上达成一致
 
-> 原文:[https://life hacker . com/get-on-the-page-on-the-partner-about-money-1831042427](https://lifehacker.com/get-on-the-same-page-with-your-partner-about-money-1831042427)
+> 原文：<https://lifehacker.com/get-on-the-same-page-with-your-partner-about-money-1831042427>
 
 和谁结婚是你能做出的最重要的财务决定之一。财务上的不兼容，其实是 [夫妻离婚](https://humbledollar.com/money-guide/getting-divorced/) 的主要原因之一。
 

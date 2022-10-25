@@ -1,6 +1,6 @@
 # what it means when we dream about video games 1832365386
 
-> 原文:[https://kotaku . com/what-it-mean-when-we-dream-about-video-games-1832365386](https://kotaku.com/what-it-means-when-we-dream-about-video-games-1832365386)
+> 原文：<https://kotaku.com/what-it-means-when-we-dream-about-video-games-1832365386>
 
 《烹饪过度 2 中切黄瓜寿司的最佳系统只存在于我的梦中。最近，我经常做这些梦。
 

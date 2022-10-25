@@ -1,6 +1,6 @@
 # 如何在谷歌推出 Android 11 的今天安装它
 
-> 原文:[https://life hacker . com/how-to-install-Android-11-today-尽管-Google-rollout-1844988743](https://lifehacker.com/how-to-install-android-11-today-despite-googles-rollout-1844988743)
+> 原文：<https://lifehacker.com/how-to-install-android-11-today-despite-googles-rollout-1844988743>
 
 Android 11 已经上市——稳定版，也就是说——只有在你运行谷歌的 Pixel 手机(Pixel 2、3、3A、4 或 4A)的情况下才会上市。从今天开始，Android 11 的测试版也可以用于一加 8 和一加 8 Pro，以及 Oppo X2 和雷诺 3。
 

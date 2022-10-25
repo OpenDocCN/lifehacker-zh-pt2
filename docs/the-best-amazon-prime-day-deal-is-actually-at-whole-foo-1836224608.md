@@ -1,6 +1,6 @@
 # 最好的亚马逊优惠日交易实际上是在全食超市
 
-> 原文:[https://life hacker . com/the-best-Amazon-prime-day-deal-at-all-foo-1836224608](https://lifehacker.com/the-best-amazon-prime-day-deal-is-actually-at-whole-foo-1836224608)
+> 原文：<https://lifehacker.com/the-best-amazon-prime-day-deal-is-actually-at-whole-foo-1836224608>
 
 我知道亚马逊优惠日要到下周，但我现在就打电话给它:我已经找到了活动的最佳交易，你甚至不必等到 7 月 15 日和 16 日才能获得它。
 

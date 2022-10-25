@@ -1,6 +1,6 @@
 # 如何跟踪所有潜在的冠状病毒治疗方法
 
-> 原文:[https://life hacker . com/how-to-keep-track-of-all-the-potential-coronavirus-trea-1844419504](https://lifehacker.com/how-to-keep-track-of-all-the-potential-coronavirus-trea-1844419504)
+> 原文：<https://lifehacker.com/how-to-keep-track-of-all-the-potential-coronavirus-trea-1844419504>
 
 目前还没有治愈冠状病毒的方法，但是数十种药物和疗法正在针对冠状病毒进行测试。如果你对哪些仅仅是可能性，哪些被广泛认为是有用的感到困惑，你并不孤单。科学一天比一天变化，有时一种药物会成为头条新闻，因为它的数据并不像最初看起来那么可靠。
 

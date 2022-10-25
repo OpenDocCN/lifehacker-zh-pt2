@@ -1,6 +1,6 @@
 # 假设你的手机在每次讨厌的电话开始时就没电了
 
-> 原文:[https://life hacker . com/say-your phone ' s-dye-in-the-start-of-every-friendly-1839442463](https://lifehacker.com/say-your-phone-is-dying-at-the-start-of-every-annoying-1839442463)
+> 原文：<https://lifehacker.com/say-your-phone-is-dying-at-the-start-of-every-annoying-1839442463>
 
 如果你错过了，这是 Lifehacker 总部的 [邪恶周](https://lifehacker.com/c/evil-week)——这一周致力于以*正确*的方式做道德上有问题的事情。昨天，我们 [分享了](https://offspring.lifehacker.com/use-your-kid-to-get-you-out-of-stuff-you-dont-want-to-d-1839412476) 策略，告诉你如何以孩子为借口，摆脱几乎所有事情。和一个不停说话的人打电话？告诉他们你的孩子有紧急情况，你必须挂断电话！
 

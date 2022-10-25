@@ -1,6 +1,6 @@
 # 如何在 Google 相册中发送、保存、阻止和报告消息
 
-> 原文:[https://life hacker . com/how-to-send-save-block-and-report-messages-in-Google-1840488500](https://lifehacker.com/how-to-send-save-block-and-report-messages-in-google-1840488500)
+> 原文：<https://lifehacker.com/how-to-send-save-block-and-report-messages-in-google-1840488500>
 
 Google Photos 最近进行了几次大的更新，但现在这款应用有了一项全面的信息服务，你可以用它来交换照片，并在你的联系人之间进行对话。
 

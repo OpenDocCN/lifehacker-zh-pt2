@@ -1,6 +1,6 @@
 # “有条件豁免”对警察意味着什么？
 
-> 原文:[https://life hacker . com/what-qualified-immunity-mean-for-police-1844003452](https://lifehacker.com/what-does-qualified-immunity-mean-for-police-1844003452)
+> 原文：<https://lifehacker.com/what-does-qualified-immunity-mean-for-police-1844003452>
 
 最近几周和过去几年，引起全国关注的警察杀人事件中最令人难堪的一件事是，一名警察因结束某人的生命而面临任何后果是多么罕见。其中一个原因是 [限定豁免](https://theappeal.org/qualified-immunity-explained/) ，这保护了政府官员，尤其是警察，免于因一系列违反宪法的行为而被起诉。
 

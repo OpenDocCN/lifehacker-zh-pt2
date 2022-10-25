@@ -1,6 +1,6 @@
 # 如何观看周一 SpaceX 的猎鹰重型发射
 
-> 原文:[https://life hacker . com/how-to-watch-spacex-s-falcon-heavy-launch-Monday-1835785855](https://lifehacker.com/how-to-watch-spacex-s-falcon-heavy-launch-monday-1835785855)
+> 原文：<https://lifehacker.com/how-to-watch-spacex-s-falcon-heavy-launch-monday-1835785855>
 
 周一晚上，SpaceX 将尝试“猎鹰重型”的“有史以来最困难的发射”，这是该船的第一次夜间发射，该船将运送多颗卫星进入轨道。
 

@@ -1,6 +1,6 @@
 # 如何在疫情保持你的跑步习惯
 
-> 原文:[https://life hacker . com/how-to-keep-up-your-running-routine-through-the-pandemi-1842779580](https://lifehacker.com/how-to-keep-up-your-running-routine-through-the-pandemi-1842779580)
+> 原文：<https://lifehacker.com/how-to-keep-up-your-running-routine-through-the-pandemi-1842779580>
 
 如果你习惯于释放压力，跑步是为了娱乐，也许是为了目标比赛而跑步训练，那么现在的疫情可能会破坏所有这些计划。不管怎样，你都可以做些什么来坚持训练。
 

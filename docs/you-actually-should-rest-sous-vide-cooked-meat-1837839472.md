@@ -1,6 +1,6 @@
 # 你实际上应该休息，吃些熟肉
 
-> 原文:[https://life hacker . com/you-actually-should-rest-sous-vide-cooled-meat-1837839472](https://lifehacker.com/you-actually-should-rest-sous-vide-cooked-meat-1837839472)
+> 原文：<https://lifehacker.com/you-actually-should-rest-sous-vide-cooked-meat-1837839472>
 
 大多数腌制肉类食谱遵循一个非常标准的格式:把你的肉放在一个塑料袋里，把塑料袋放在设定好你想要的温度的水浴中，煮大约一个小时，然后在烤架上或超级热锅上完成。这是一个很好的，看起来毫不畏惧的事件序列，但是在洗澡和烤焦之间的一点休息将有助于确保你不会过度烹饪你的牛排(或排骨)。
 

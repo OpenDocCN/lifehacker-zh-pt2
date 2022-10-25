@@ -1,6 +1,6 @@
 # 用这个 CEO 薪酬计算器成为社会主义者
 
-> 原文:[https://life hacker . com/become-a-socialist-with the-CEO-pay-calculator-1844608507](https://lifehacker.com/become-a-socialist-with-this-ceo-pay-calculator-1844608507)
+> 原文：<https://lifehacker.com/become-a-socialist-with-this-ceo-pay-calculator-1844608507>
 
 你可能听说过，杰夫·贝索斯在很短的时间内赚到了你的工资——但是你知道到底有多短吗？好吧，现在有一个来自 SimpleTexting 的 [科技公司 CEO 薪水计算器可以给你极其精确的答案。你也可以用它来计算埃隆·马斯克多快能还清你的抵押贷款，或者马克·扎克伯格能在 8 . 5 分钟内还清普通美国人 35，359 美元的学生债务。杰夫·贝索斯赚的钱够不够支付你的生活费用，比你发誓要把资本主义夷为平地的时间多还是少？(答案是更少的时间——贝佐斯不到 15 秒就赚到了我在布鲁克林两居室公寓的年租金。)
 

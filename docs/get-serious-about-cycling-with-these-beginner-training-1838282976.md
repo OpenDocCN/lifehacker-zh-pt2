@@ -1,6 +1,6 @@
 # 通过这些初学者训练计划，认真对待骑自行车
 
-> 原文:[https://life hacker . com/get-serious-about-cycling with things-beginner-training-1838282976](https://lifehacker.com/get-serious-about-cycling-with-these-beginner-training-1838282976)
+> 原文：<https://lifehacker.com/get-serious-about-cycling-with-these-beginner-training-1838282976>
 
 自行车骑得怎么样了？如果你是第一次参加 [我们的健身挑战赛](https://lifehacker.com/this-september-lets-ride-our-bikes-1837912381) ，今年九月我们一直在骑自行车(室内或室外)进行一些自行车训练。如果你玩得开心，想更上一层楼，这里有一些初学者训练计划可以尝试。
 

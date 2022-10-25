@@ -1,6 +1,6 @@
 # 让孩子们用磁铁和饼干纸练习 ABC
 
-> 原文:[https://life hacker . com/let-kids-practice-ABCs-with-magnets-and-a-cookie-sheet-1842707128](https://lifehacker.com/let-kids-practice-abcs-with-magnets-and-a-cookie-sheet-1842707128)
+> 原文：<https://lifehacker.com/let-kids-practice-abcs-with-magnets-and-a-cookie-sheet-1842707128>
 
 有两样东西是初学走路的孩子普遍喜欢的:玩他们从你厨房橱柜里拿出来的东西，还有磁铁。这就是为什么，如果你有一些字母磁铁和饼干纸(加上记号笔)，你就有了一个新的活动，让你的孩子至少忙碌几分钟。
 

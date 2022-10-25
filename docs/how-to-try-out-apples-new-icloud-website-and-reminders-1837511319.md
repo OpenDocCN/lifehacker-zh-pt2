@@ -1,6 +1,6 @@
 # 如何试用苹果新的 iCloud 网站(和提醒事项)
 
-> 原文:[https://life hacker . com/how-to-try-out-apple-new-I cloud-website-and-reminders-1837511319](https://lifehacker.com/how-to-try-out-apples-new-icloud-website-and-reminders-1837511319)
+> 原文：<https://lifehacker.com/how-to-try-out-apples-new-icloud-website-and-reminders-1837511319>
 
 苹果的 [提醒应用](https://lifehacker.com/turn-apples-reminders-into-a-quality-gtd-app-1464442575)——一种在 iOS 和 macOS 上保持有序的非常有用的方式——再次通过你的网络浏览器可用，这要归功于苹果 iCloud 网站的更新版本。但你不会看到这一点，以及苹果的其他变化，除非你报名参加 iCloud beta 测试。
 

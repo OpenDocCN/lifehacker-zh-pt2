@@ -1,6 +1,6 @@
 # 如何将黑客踢出你的戒指账户
 
-> 原文:[https://life hacker . com/how-to-kick-the-out-of-your-ring-account-1840507643](https://lifehacker.com/how-to-kick-hackers-out-of-your-ring-account-1840507643)
+> 原文：<https://lifehacker.com/how-to-kick-hackers-out-of-your-ring-account-1840507643>
 
 关于亚马逊环形摄像头的安全性，已经有很多报道了。我仍然坚持认为，人们发现的大多数公司安全问题都需要攻击者知道你的用户名和密码——这可以通过为你的帐户使用一个强有力的、唯一的密码来帮助防止。但是不要止步于此。
 

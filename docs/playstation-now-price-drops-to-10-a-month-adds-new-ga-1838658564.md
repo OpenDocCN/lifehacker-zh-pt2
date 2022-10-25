@@ -1,6 +1,6 @@
 # PlayStation 现在价格降至每月 10 美元，增加新游戏
 
-> 原文:[https://kotaku . com/PlayStation-now-price-drops-to-10 a-month-adds-new-ga-1838658564](https://kotaku.com/playstation-now-price-drops-to-10-a-month-adds-new-ga-1838658564)
+> 原文：<https://kotaku.com/playstation-now-price-drops-to-10-a-month-adds-new-ga-1838658564>
 
 索尼的流媒体游戏服务自 2014 年推出以来一直在慢慢改进，从一个定价荒谬的 [老游戏库](https://kotaku.com/playstation-now-prices-are-currently-insane-1594025919) 转变为一个精心挑选的 [新老游戏](https://kotaku.com/playstation-now-is-getting-ps4-games-1793223827) 和 [有问题的定价](https://kotaku.com/playstation-now-is-finally-getting-subscriptions-1677487560) 。今天，索尼将 PlayStation Now 每月 20 美元的订阅费减半，并增加了一些高知名度的游戏，如《战神》。
 

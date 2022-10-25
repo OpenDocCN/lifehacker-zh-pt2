@@ -1,6 +1,6 @@
 # how to break up with your family 1840985271
 
-> 原文:[https://life hacker . com/how-to-break-up-your-family-1840985271](https://lifehacker.com/how-to-break-up-with-your-family-1840985271)
+> 原文：<https://lifehacker.com/how-to-break-up-with-your-family-1840985271>
 
 2012 年，现年 29 岁的 April Siese 结束了与母亲的关系，此前她在一个患有未确诊的精神健康问题和药物使用障碍的家庭中遭受了多年的情感和言语虐待。
 

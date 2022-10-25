@@ -1,6 +1,6 @@
 # 如何阻止亚马逊员工观看你的云摄像头录像
 
-> 原文:[https://life hacker . com/how-to-stop-Amazon-employees-from-watching-your-cloud-c-1838949389](https://lifehacker.com/how-to-stop-amazon-employees-from-watching-your-cloud-c-1838949389)
+> 原文：<https://lifehacker.com/how-to-stop-amazon-employees-from-watching-your-cloud-c-1838949389>
 
 最近来自彭博 的一份 [报告解释说，亚马逊在印度和罗马尼亚的员工使用云摄像头记录来“训练”设备的人工智能，使其能够更准确地从日常活动中识别安全威胁——例如，有人打碎窗户。虽然可能令人毛骨悚然，但也不是闻所未闻；对于我们强加给智能设备和人工智能的所有存在性恐惧，它们仍然需要人类的输入来“学习”。](https://www.bloomberg.com/news/articles/2019-10-10/is-amazon-watching-you-cloud-cam-footage-reviewed-by-humans) 
 

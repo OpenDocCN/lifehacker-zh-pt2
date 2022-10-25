@@ -1,6 +1,6 @@
 # 让你的孩子出现在圣诞老人的短信列表上
 
-> 原文:[https://life hacker . com/get-your-kid-on-Santas-text-list-1840144698](https://lifehacker.com/get-your-kid-on-santas-text-list-1840144698)
+> 原文：<https://lifehacker.com/get-your-kid-on-santas-text-list-1840144698>
 
 圣诞老人可能快 1750 岁了，但他仍能学会一两个新把戏。今年 12 月，除了参观地球上的每一个当地商场，他还将通过短信与孩子们(和成年人)保持联系。
 

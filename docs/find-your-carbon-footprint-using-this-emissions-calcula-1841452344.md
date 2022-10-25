@@ -1,6 +1,6 @@
 # 使用这个排放计算器找到你的碳足迹
 
-> 原文:[https://life hacker . com/find-your-carbon-footprint-using-this-emissions-calcula-1841452344](https://lifehacker.com/find-your-carbon-footprint-using-this-emissions-calcula-1841452344)
+> 原文：<https://lifehacker.com/find-your-carbon-footprint-using-this-emissions-calcula-1841452344>
 
 上个月，捷蓝航空宣布计划在 2020 年在所有国内航班上实现碳中和，抵消高达 170 亿磅的碳排放。在消费者层面，像 [联合](https://www.united.com/ual/en/us/fly/company/global-citizenship/environment/carbon-offset-program.html) 这样的航空公司长期以来一直为有环保意识的旅行者提供碳补偿选择——但是碳补偿到底是如何运作的呢？
 

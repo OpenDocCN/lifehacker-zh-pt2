@@ -1,6 +1,6 @@
 # 每年在你孩子生日的时候给他们写一封信
 
-> 原文:[https://life hacker . com/write-your-kid-a-letter-every-year-on-his-birth-1836488854](https://lifehacker.com/write-your-kid-a-letter-every-year-on-their-birthday-1836488854)
+> 原文：<https://lifehacker.com/write-your-kid-a-letter-every-year-on-their-birthday-1836488854>
 
 我儿子一岁时，我坐下来给他写了封信。我想和他谈谈，告诉他在过去的一年里他成长了多少。我想记起他刚出生时的腿是多么的瘦，我可以用大拇指和小拇指包住它们，还有多余的空间。我想记下他总是微笑的样子，有时会咯咯地笑，但很少笑；他只是很满足。
 

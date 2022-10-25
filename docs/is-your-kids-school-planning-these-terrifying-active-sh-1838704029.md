@@ -1,6 +1,6 @@
 # 你孩子的学校在计划这些可怕的主动射击训练吗？
 
-> 原文:[https://life hacker . com/is-your-kids-school-planning-these-terrorist-active-sh-1838704029](https://lifehacker.com/is-your-kids-school-planning-these-terrifying-active-sh-1838704029)
+> 原文：<https://lifehacker.com/is-your-kids-school-planning-these-terrifying-active-sh-1838704029>
 
 小时候，我记得每年有一两次有秩序地走出学校去参加消防演习。我记得我跪在走廊上，用手捂住脖子，这是为了在龙卷风发生时保护我。婴儿潮时期出生的人进行了躲避核弹碎片的训练。现在我们的孩子，最糟糕的是，正在练习如何躲避那些想要射杀他们和他们同学的人。
 

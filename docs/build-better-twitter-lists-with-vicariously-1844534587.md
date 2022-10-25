@@ -1,6 +1,6 @@
 # 用“替代”建立更好的 Twitter 列表
 
-> 原文:[https://life hacker . com/build-better-Twitter-lists-with-victorially-1844534587](https://lifehacker.com/build-better-twitter-lists-with-vicariously-1844534587)
+> 原文：<https://lifehacker.com/build-better-twitter-lists-with-vicariously-1844534587>
 
 我今天无意中发现了一个名为 [的服务，代之以](https://vicariously.io/) ，它允许你根据其他 Twitter 用户关注的人创建新的 Twitter 列表。我这是一种简单而自动的方式来建立有趣的账户列表，比手动方式节省了你大量的时间——并且列表 [大大改善了你的体验](https://lifehacker.com/twitters-new-pinned-lists-let-you-ditch-promoted-tweets-1842092496) 比你在社交网站上看到的普通愚蠢的消防水管要好。
 

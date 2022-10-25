@@ -1,6 +1,6 @@
 # 如何用你的 Google Home 音箱设置音乐闹钟
 
-> 原文:[https://life hacker . com/how-to-set-a-music-alarm-with your-Google-home-speaker-1822673391](https://lifehacker.com/how-to-set-a-music-alarm-with-your-google-home-speaker-1822673391)
+> 原文：<https://lifehacker.com/how-to-set-a-music-alarm-with-your-google-home-speaker-1822673391>
 
 每天早上醒来，你最喜欢的音乐比刺耳的闹铃更令人愉快。如果你有一个谷歌家庭扬声器，很容易让它播放一首歌曲或艺术家，让你起床。
 

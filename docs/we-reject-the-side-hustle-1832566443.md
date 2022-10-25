@@ -1,6 +1,6 @@
 # 我们拒绝旁敲侧击
 
-> 原文:[https://lifehacker.com/we-reject-the-side-hustle-1832566443](https://lifehacker.com/we-reject-the-side-hustle-1832566443)
+> 原文：<https://lifehacker.com/we-reject-the-side-hustle-1832566443>
 
 读了足够多关于职业和金钱的书，你会开始看到很多相同的建议被一遍又一遍地重复。大多数是明智的和无害的。 [有些简直烂透了。【T2](https://twocents.lifehacker.com/the-worst-stuff-written-about-money-in-2018-1831360785)
 

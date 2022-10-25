@@ -1,6 +1,6 @@
 # the best note taking apps 1837842880
 
-> 原文:[https://lifehacker.com/the-best-note-taking-apps-1837842880](https://lifehacker.com/the-best-note-taking-apps-1837842880)
+> 原文：<https://lifehacker.com/the-best-note-taking-apps-1837842880>
 
 我们最近 [对读者进行了一次投票，向](https://lifehacker.com/what-are-your-favorite-apps-for-taking-notes-1837283478) 推荐最佳笔记应用。你们中的大多数人说，你们仍然用传统的方式用纸和笔做事——这是一种我衷心赞同的技术。
 

@@ -1,6 +1,6 @@
 # 如何在 iPad 上的 Gmail 中进行多任务处理
 
-> 原文:[https://life hacker . com/how-to-multi-task-in-Gmail-on-your-ipad-1844309484](https://lifehacker.com/how-to-multitask-in-gmail-on-your-ipad-1844309484)
+> 原文：<https://lifehacker.com/how-to-multitask-in-gmail-on-your-ipad-1844309484>
 
 在你开始阅读这篇文章之前，拿出你的 iPad，打开应用程序商店，确保你已经更新到最新版本的 [Gmail](https://apps.apple.com/us/app/gmail-email-by-google/id422689480) 应用程序。如果你使用的是 iPadOS 13 或更高版本，你现在将能够进行多任务处理——最终*——这意味着你将能够访问你的许多许多电子邮件，同时加载和显示其他应用程序(比如日历)。)*
 

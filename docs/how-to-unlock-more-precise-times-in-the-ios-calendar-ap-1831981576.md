@@ -1,6 +1,6 @@
 # 如何在 iOS 日历应用中解锁更精确的时间
 
-> 原文:[https://life hacker . com/how-to-unlock-more-precise-times-in-the-IOs-calendar-AP-1831981576](https://lifehacker.com/how-to-unlock-more-precise-times-in-the-ios-calendar-ap-1831981576)
+> 原文：<https://lifehacker.com/how-to-unlock-more-precise-times-in-the-ios-calendar-ap-1831981576>
 
 当日历应用程序让安排事件变得更容易时，我总是很感激。在许多应用程序中，你会发现开发者假设你会在整点计划会议、聚会和其他有趣的聚会，或者如果不是，在某个以“5”或“0”结尾的时间
 

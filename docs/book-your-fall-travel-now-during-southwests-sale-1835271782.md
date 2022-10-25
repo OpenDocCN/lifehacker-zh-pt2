@@ -1,6 +1,6 @@
 # 现在就在西南航空打折期间预订您的秋季旅行吧
 
-> 原文:[https://life hacker . com/book-your-fall-travel-now-during-south west-sale-1835271782](https://lifehacker.com/book-your-fall-travel-now-during-southwests-sale-1835271782)
+> 原文：<https://lifehacker.com/book-your-fall-travel-now-during-southwests-sale-1835271782>
 
 夏天还没有正式开始，但这并不意味着你不能期待秋天的旅行。就我个人而言，9 月和 10 月是我最喜欢的旅行月份——天气(在大多数地方)又变得可以忍受了，你不必应对家庭度假人群或旺季价格。现在 [西南航空公司正在全国范围内开展](https://www.southwest.com/html/promotions/nationwide_sale_NonstopConnect_190604.html) 促销活动，让今年晚些时候的旅行更加实惠。
 

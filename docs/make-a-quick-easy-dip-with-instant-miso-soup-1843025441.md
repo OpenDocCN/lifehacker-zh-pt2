@@ -1,6 +1,6 @@
 # 用速溶味噌汤快速简单地蘸一下
 
-> 原文:[https://life hacker . com/make-a-quick-easy-dip-with-instant-miso-soup-1843025441](https://lifehacker.com/make-a-quick-easy-dip-with-instant-miso-soup-1843025441)
+> 原文：<https://lifehacker.com/make-a-quick-easy-dip-with-instant-miso-soup-1843025441>
 
 我最近一直在吃很多速溶味噌汤——主要是在早餐时——因为它很容易，味道浓郁，而且浓郁的味道是一种令人欣慰的味道(对我来说)。我也发现吃薯条和蘸酱是令人欣慰的；重复的铲动作几乎是冥想。将两者结合显然是下一步。
 

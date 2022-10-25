@@ -1,6 +1,6 @@
 # 单锅汤团是一个惊人的工作日晚餐
 
-> 原文:[https://life hacker . com/sheet-pan-gnocchi-is-a-amazing-weeknight-meal-1842058536](https://lifehacker.com/sheet-pan-gnocchi-is-an-amazing-weeknight-meal-1842058536)
+> 原文：<https://lifehacker.com/sheet-pan-gnocchi-is-an-amazing-weeknight-meal-1842058536>
 
 我可以对流行食品、病毒食谱和任何得到“太多”关注的东西持怀疑态度。(这就是我的注意。我需要它。)突然激增的单锅汤团食谱就是如此。“这是不对的，”我说。"汤团应该是软的，而不是脆的。"但是后来我试了试——读者，效果非常好。
 

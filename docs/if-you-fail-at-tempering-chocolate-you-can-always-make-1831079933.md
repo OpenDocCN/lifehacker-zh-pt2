@@ -1,6 +1,6 @@
 # 如果你不能调和巧克力，你总是可以做松露
 
-> 原文:[https://life hacker . com/if-you-fail-at-tempering-chocolate-you-can-always-make-1831079933](https://lifehacker.com/if-you-fail-at-tempering-chocolate-you-can-always-make-1831079933)
+> 原文：<https://lifehacker.com/if-you-fail-at-tempering-chocolate-you-can-always-make-1831079933>
 
 上周末，我在做薄荷树皮，这个网站称之为“难以置信的简单”， 但是我搞砸了。我在羊皮纸烤盘上倒了一层调和得很好的黑巧克力，然后在白巧克力中加入薄荷油。正当我要把白巧克力倒在黑暗中的时候，我注意到了一些东西:液体。
 

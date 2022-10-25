@@ -1,6 +1,6 @@
 # 制作一个简单的夏季甜点，而不是国旗蛋糕
 
-> 原文:[https://life hacker . com/make-an-easy-a-summer-dessert-that-the-not-a-flag-cake-1836081530](https://lifehacker.com/make-an-easy-summer-dessert-that-isnt-a-flag-cake-1836081530)
+> 原文：<https://lifehacker.com/make-an-easy-summer-dessert-that-isnt-a-flag-cake-1836081530>
 
 由于烧烤受到如此多的关注，独立日甜点往往是事后才想到的，除非它们采取可怕的国旗蛋糕的形式——甜点界的美国国旗比基尼。但是有很多美味、简单、非国旗蛋糕的甜点你可以在今天或夏天剩下的时间里做，因为它们不受今天爱国主题的影响。
 

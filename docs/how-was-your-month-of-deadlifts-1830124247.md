@@ -1,6 +1,6 @@
 # 你的硬拉月过得怎么样？
 
-> 原文:[https://life hacker . com/how-your-month-of-deadlifts-1830124247](https://lifehacker.com/how-was-your-month-of-deadlifts-1830124247)
+> 原文：<https://lifehacker.com/how-was-your-month-of-deadlifts-1830124247>
 
 在我们的十月 [健身挑战赛](https://lifehacker.com/c/lifehacker-fitness-challenge) 中，我们经历了很多。我们致力于 [做一些硬拉](https://vitals.lifehacker.com/october-is-for-deadlifts-1829438935#_ga=2.52844267.279257778.1540835468-1456718367.1520458611) ，我们 [兴奋起来，伸出](https://vitals.lifehacker.com/how-to-psych-yourself-up-for-a-deadlift-workout-1829549989#_ga=2.52844267.279257778.1540835468-1456718367.1520458611) ，我们实验了 [单腿移动](https://vitals.lifehacker.com/why-you-should-try-single-leg-deadlifts-1829863791#_ga=2.52844267.279257778.1540835468-1456718367.1520458611)[不寻常的物体](https://vitals.lifehacker.com/what-to-deadlift-when-you-dont-have-a-barbell-1830025169#_ga=2.44589031.279257778.1540835468-1456718367.1520458611) ，我们学会了 [如何不费力地把盘子拿上和拿下](https://vitals.lifehacker.com/how-to-get-plates-on-and-off-a-deadlift-bar-1829707584#_ga=2.44589031.279257778.1540835468-1456718367.1520458611) 。现在是时候解决问题了:这个月你完成了什么，学到了什么，或者经历了什么？
 

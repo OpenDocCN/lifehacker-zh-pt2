@@ -1,6 +1,6 @@
 # 为什么应该在 Twitter 图片中添加替代文本
 
-> 原文:[https://life hacker . com/why-you-should-add-alt-tags-to-Twitter-images-1843870634](https://lifehacker.com/why-you-should-add-alt-tags-to-twitter-images-1843870634)
+> 原文：<https://lifehacker.com/why-you-should-add-alt-tags-to-twitter-images-1843870634>
 
 我是一个懒惰的推特用户，这是真的。我不怎么使用这项服务，当我使用的时候，我会偶尔上传一张图片和一些精辟的评论，然后就到此为止。但我认为这是错误的。我和你一样，也应该花点时间在我的推文图片上添加替代文字。
 

@@ -1,6 +1,6 @@
 # how to stay for free anywhere in the world 1832965711
 
-> 原文:[https://life hacker . com/how-to-stay-for-free-anywhere-in-the-world-1832965711](https://lifehacker.com/how-to-stay-for-free-anywhere-in-the-world-1832965711)
+> 原文：<https://lifehacker.com/how-to-stay-for-free-anywhere-in-the-world-1832965711>
 
 得益于 [价格暴跌](https://www.cnn.com/travel/article/cheaper-atlantic-flights/index.html) 的长途机票，旅行比以往任何时候都更容易、更便宜。也就是说，前往一个新地方的第二大支出当然是住宿。Airbnb 可能已经彻底改变了我们的旅行方式，以酒店房间的一小部分价格提供舒适的住宿，但这些费用仍然会增加。
 

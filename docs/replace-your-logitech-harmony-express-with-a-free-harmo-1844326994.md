@@ -1,6 +1,6 @@
 # 现在就用免费的 Harmony Elite 遥控器替换您的罗技 Harmony Express 吧
 
-> 原文:[https://life hacker . com/replace-your-Logitech-harmony-express-with-a-free-harmo-1844326994](https://lifehacker.com/replace-your-logitech-harmony-express-with-a-free-harmo-1844326994)
+> 原文：<https://lifehacker.com/replace-your-logitech-harmony-express-with-a-free-harmo-1844326994>
 
 罗技将在短短几周内淘汰其上市不到一年的 Harmony Express 遥控器。不过，不要担心；你将能够免费获得一个更好的智能遥控器。但是你应该尽早提出请求。
 

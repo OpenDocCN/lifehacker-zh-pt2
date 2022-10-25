@@ -1,6 +1,6 @@
 # 打电话给你的市长，告诉他这些具体的警察改革
 
-> 原文:[https://life hacker . com/call-your-mayor-about-this-specific-police-reforms-1843905060](https://lifehacker.com/call-your-mayor-about-these-specific-police-reforms-1843905060)
+> 原文：<https://lifehacker.com/call-your-mayor-about-these-specific-police-reforms-1843905060>
 
 一个警察部门的武力使用政策会对他们最终杀死的人数产生巨大影响。“零运动”的人们已经确定了八项最重要的政策，城市可以立即开始实施这些政策，他们还开发了一个工具，这样你就可以查看你的城市在每项政策上所处的位置。
 

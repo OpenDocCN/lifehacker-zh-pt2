@@ -1,6 +1,6 @@
 # 在 Tinycards 上记住这些又酷又没用的事实
 
-> 原文:[https://life hacker . com/memory-this-cool-and-used-facts-on-tiny cards-1837838547](https://lifehacker.com/memorize-these-cool-and-useless-facts-on-tinycards-1837838547)
+> 原文：<https://lifehacker.com/memorize-these-cool-and-useless-facts-on-tinycards-1837838547>
 
 我学会了北约音标。现在我正在学习如何在地图上指出每个国家。我永远不会*需要*这些信息，但知道这些感觉很酷。我在免费的抽认卡应用 [Tinycards](https://tinycards.duolingo.com/) 上学习，这感觉非常像玩手机游戏，但你会感觉很好。以下是你可以在应用程序上获得的最佳无意义知识。
 

@@ -1,6 +1,6 @@
 # 在一周的足球和旅行中，我遵循了行星健康食谱。这并不容易
 
-> 原文:[https://gizmodo . com/I-follow-the-planet-health-diet-in-a-week-of-f-1832464856](https://gizmodo.com/i-followed-the-planetary-health-diet-during-a-week-of-f-1832464856)
+> 原文：<https://gizmodo.com/i-followed-the-planetary-health-diet-during-a-week-of-f-1832464856>
 
 当我报名参加为期 30 天的行星健康盘饮食时，我忘记了两个小细节:超级碗周日*和*地球人在我的第一周中途将我派往佛罗里达州西北部进行报道。所以我有机会在家里和外面吃东西，你会震惊地发现后者是一个挑战。
 

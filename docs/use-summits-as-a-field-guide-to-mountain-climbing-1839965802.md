@@ -1,6 +1,6 @@
 # 使用“顶峰”作为登山的野外指南
 
-> 原文:[https://life hacker . com/use-summits-as-a-field-guide-to-mountain-1839965802](https://lifehacker.com/use-summits-as-a-field-guide-to-mountain-climbing-1839965802)
+> 原文：<https://lifehacker.com/use-summits-as-a-field-guide-to-mountain-climbing-1839965802>
 
 [峰顶](https://summits.com/) 是一座山一座山的攀登指南。Summits 数据库中的每座山都有自己的页面，上面有详细的定量和定性攀登方向，这使得它成为准备参观某座山甚至选择攀登哪座山的好方法。
 

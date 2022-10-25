@@ -1,6 +1,6 @@
 # 你应该费心回收你的塑料吗？
 
-> 原文:[https://life hacker . com/should-you-even-turn-recycling-your-plastics-1839640349](https://lifehacker.com/should-you-even-bother-recycling-your-plastics-1839640349)
+> 原文：<https://lifehacker.com/should-you-even-bother-recycling-your-plastics-1839640349>
 
 我们 [最近写了](https://lifehacker.com/stop-pretending-your-trash-is-recyclable-1838178982) 关于回收某些*可能*不可回收的产品的危险，但是本周 Quartz 的一份新的(而且大部分是暗淡的) [报告更进一步，表明整个回收系统本身存在严重缺陷——特别是在塑料方面。](https://qz.com/1738706/the-futility-of-recycling-most-plastic/)
 

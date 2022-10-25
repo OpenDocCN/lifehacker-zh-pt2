@@ -1,6 +1,6 @@
 # 启动一个“友好冰箱”来喂饱你的邻居
 
-> 原文:[https://life hacker . com/start-a-friendly-冰箱喂饱你的邻居-1844489776](https://lifehacker.com/start-a-friendly-fridge-to-feed-your-neighbors-1844489776)
+> 原文：<https://lifehacker.com/start-a-friendly-fridge-to-feed-your-neighbors-1844489776>
 
 如果你正在寻找一种方式在这些疫情时代支持你的社区，或者如果你有多余的钱或剩余的水果，蔬菜和其他你不想变坏的食材，在你的社区里启动一个免费的“友好冰箱”，好好利用它们(这个想法的 [h/t 去了 Morning Brew 编辑 Dan McCarthy](https://www.morningbrew.com/daily/stories/2020/07/22/essentials-issue-45-friendly-fridges) )。
 

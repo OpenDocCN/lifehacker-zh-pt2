@@ -1,6 +1,6 @@
 # 最棒的粉丝，带你度过汗流浃背的夏天
 
-> 原文:[https://gizmodo . com/the-best-fan-to-get-you-through-the-sweat-summer-1835498642](https://gizmodo.com/the-best-fan-to-get-you-through-the-sweaty-summer-1835498642)
+> 原文：<https://gizmodo.com/the-best-fan-to-get-you-through-the-sweaty-summer-1835498642>
 
 很难确切知道电风扇是什么时候发明的，但托马斯·爱迪生 [很可能与](https://www.thehenryford.org/collections-and-research/digital-collections/artifact/258726/) 有关。从那以后的一个多世纪里，基本的想法没有改变:快速旋转螺旋桨，产生风，房间变冷。然而，普通球迷的表现已经有了很大的进步。现在，比篮球稍大一点的东西可以让你的夏天不那么糟糕。如果你选择了正确的球迷，那是。
 

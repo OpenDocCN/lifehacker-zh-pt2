@@ -1,6 +1,6 @@
 # 用果酱来制作适合早上喝的酒
 
-> 原文:[https://life hacker . com/use-jam-to-make-any-booze-morning-appropriate-1832060017](https://lifehacker.com/use-jam-to-make-any-booze-morning-appropriate-1832060017)
+> 原文：<https://lifehacker.com/use-jam-to-make-any-booze-morning-appropriate-1832060017>
 
 果酱是大多数早餐桌上的常客，但人们通常会在烤面包上发现它，而不是在鸡尾酒里。除了增加你的面包和黄油，真正好的水果蜜饯可以使几乎任何鸡尾酒变甜变醇，给它一种友好、欢迎的氛围，非常适合早上喝酒。
 

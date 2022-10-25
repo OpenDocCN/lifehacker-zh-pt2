@@ -1,6 +1,6 @@
 # 用微波炉做单面煎或荷包蛋
 
-> 原文:[https://life hacker . com/make-sunny-side-up-or-powdered eggs in the microwave-1454422584](https://lifehacker.com/make-sunny-side-up-or-poached-eggs-in-the-microwave-1454422584)
+> 原文：<https://lifehacker.com/make-sunny-side-up-or-poached-eggs-in-the-microwave-1454422584>
 
 此时，你可能已经掌握了如何在微波炉 中制作 [炒鸡蛋，但可能会认为单面煎的鸡蛋和荷包蛋只能在炉子上做。并非如此。微波炉不仅适用于这些鸡蛋菜肴，而且超级简单。在这段视频中，](http://lifehacker.com/make-breakfast-in-a-mug-in-just-one-minute-5797936) [周](http://chow.com/) 的人们会告诉你怎么做。
 

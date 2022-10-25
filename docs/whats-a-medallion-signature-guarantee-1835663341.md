@@ -1,6 +1,6 @@
 # 什么是大奖章签名保证？
 
-> 原文:[https://life hacker . com/whats-a-medallion-signature-guarantee-1835663341](https://lifehacker.com/whats-a-medallion-signature-guarantee-1835663341)
+> 原文：<https://lifehacker.com/whats-a-medallion-signature-guarantee-1835663341>
 
 今年春天，我正在完成将前雇主的 401(k)计划转入个人退休账户的舒缓而无压力的过程，这时我遇到了一个我从未见过的要求:一份奖章签名保证书。
 

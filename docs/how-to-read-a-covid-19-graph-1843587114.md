@@ -1,6 +1,6 @@
 # 如何阅读新冠肺炎图
 
-> 原文:[https://life hacker . com/how-to-read-a-新冠肺炎-graph-1843587114](https://lifehacker.com/how-to-read-a-covid-19-graph-1843587114)
+> 原文：<https://lifehacker.com/how-to-read-a-covid-19-graph-1843587114>
 
 当你在图表上看到一条平坦的线时，很容易想到，“哦，嘿，至少情况没有变得更糟！”但是我们在新冠肺炎看到的一个常见图表类型是每天新增病例数。在这种情况下，一条平坦的线意味着情况实际上仍在恶化。
 

@@ -1,6 +1,6 @@
 # 如何剥珍珠洋葱并保持完整
 
-> 原文:[https://life hacker . com/how-to-peel-pearl-onions-and-keep-them-whole-1840876538](https://lifehacker.com/how-to-peel-pearl-onions-and-keep-them-whole-1840876538)
+> 原文：<https://lifehacker.com/how-to-peel-pearl-onions-and-keep-them-whole-1840876538>
 
 你可以买到几种形式的珍珠洋葱:生的放在袋子里，去皮冷冻，或者去皮放在罐子里腌制。都有它们的用处。生吃和不去皮给你最大的自由，但你必须去皮，剥一个小洋葱和剥一个大洋葱完全不一样。
 

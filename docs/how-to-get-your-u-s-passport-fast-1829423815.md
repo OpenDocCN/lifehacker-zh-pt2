@@ -1,6 +1,6 @@
 # 如何快速获得美国护照
 
-> 原文:[https://life hacker . com/how-to-get-your-u-s-passport-fast-1829423815](https://lifehacker.com/how-to-get-your-u-s-passport-fast-1829423815)
+> 原文：<https://lifehacker.com/how-to-get-your-u-s-passport-fast-1829423815>
 
 因为它们持续时间长，所以很容易忘记你的护照即将失效。无论你有一次意想不到的国际旅行，还是你精心计划了一次国际旅行 [却没有注意到最重要的细节](https://lifehacker.com/these-countries-follow-the-six-month-rule-for-passpor-1782577451) ，有时你需要一本护照——要快。
 

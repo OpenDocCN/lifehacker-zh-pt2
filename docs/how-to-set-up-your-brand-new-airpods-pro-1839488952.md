@@ -1,6 +1,6 @@
 # 如何设置你的全新 AirPods Pro
 
-> 原文:[https://life hacker . com/how-to-set-up-your-brand-new-ai rpods-pro-1839488952](https://lifehacker.com/how-to-set-up-your-brand-new-airpods-pro-1839488952)
+> 原文：<https://lifehacker.com/how-to-set-up-your-brand-new-airpods-pro-1839488952>
 
 我很虚弱。我花了一大笔钱买了一双全新的 AirPods Pro ,我已经摆弄了一整天了。设置这些第三代无线耳塞并不困难，但如果你自己预订了一副(或计划以后挑选一些)，你肯定会想尝试一些设置。
 

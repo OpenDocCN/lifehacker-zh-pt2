@@ -1,6 +1,6 @@
 # 如何使用 Valve 的新 Steam 聊天应用程序
 
-> 原文:[https://life hacker . com/how-to-use-valves-new-steam-chat-app-1834954691](https://lifehacker.com/how-to-use-valves-new-steam-chat-app-1834954691)
+> 原文：<https://lifehacker.com/how-to-use-valves-new-steam-chat-app-1834954691>
 
 多年来，Steam 主要是一个 PC 游戏的游戏市场，但 Valve 似乎在该平台的社交方面加倍努力，它新推出的 Steam 聊天消息应用程序适用于安卓系统，安卓系统和 iOS 系统。
 

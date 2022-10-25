@@ -1,6 +1,6 @@
 # 休假意味着什么？
 
-> 原文:[https://life hacker . com/what-it-mean-to-be furlough ed-1842706697](https://lifehacker.com/what-does-it-mean-to-be-furloughed-1842706697)
+> 原文：<https://lifehacker.com/what-does-it-mean-to-be-furloughed-1842706697>
 
 我们大多数人都知道被解雇意味着什么:你被解雇了，通常是以一种被认为不是你自己的过错的方式，你可以自由地申请失业救济和寻求新的就业机会。但是当你被休假时会发生什么呢？
 

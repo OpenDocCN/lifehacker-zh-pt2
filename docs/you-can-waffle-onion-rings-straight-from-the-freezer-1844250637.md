@@ -1,6 +1,6 @@
 # 你可以直接从冰箱里烤洋葱圈
 
-> 原文:[https://life hacker . com/you-can-waffle-onion-rings-direct from-the-freeze-1844250637](https://lifehacker.com/you-can-waffle-onion-rings-straight-from-the-freezer-1844250637)
+> 原文：<https://lifehacker.com/you-can-waffle-onion-rings-straight-from-the-freezer-1844250637>
 
 吃洋葱圈的人，在他们生命中的某个时刻，咬了一口洋葱圈，结果洋葱部分从松脆的家中滑了出来。这并不是可能发生的最糟糕的事情，但却相当令人沮丧，因为软洋葱和油炸面糊应该一起享用。晃动你的洋葱圈让这个问题成为过去。
 

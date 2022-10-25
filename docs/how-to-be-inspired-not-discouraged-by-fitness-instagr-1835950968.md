@@ -1,6 +1,6 @@
 # 如何通过健身 Instagram 获得灵感，而不是气馁
 
-> 原文:[https://life hacker . com/how-to-be-inspired-not-distress-by-fitness-instagr-1835950968](https://lifehacker.com/how-to-be-inspired-not-discouraged-by-fitness-instagr-1835950968)
+> 原文：<https://lifehacker.com/how-to-be-inspired-not-discouraged-by-fitness-instagr-1835950968>
 
 健身 Instagram 可以成为强大灵感的来源。这也可能是一个令人窒息的泥沼，到处都是不可思议的健康人，他们做着你做梦也想不到的事情，卖着你突然需要的产品。以下是如何使用它，让你在检查你的订阅后感觉更好，而不是更糟。
 

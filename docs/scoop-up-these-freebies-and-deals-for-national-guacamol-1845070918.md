@@ -1,6 +1,6 @@
 # 为国家鳄梨酱日收集这些免费赠品和优惠
 
-> 原文:[https://life hacker . com/scoop-up-these-freebies-and-deals-for-national-guacamol-1845070918](https://lifehacker.com/scoop-up-these-freebies-and-deals-for-national-guacamol-1845070918)
+> 原文：<https://lifehacker.com/scoop-up-these-freebies-and-deals-for-national-guacamol-1845070918>
 
 又到了一年中的这个时候:全国鳄梨色拉酱日！“但是等等，”你可能会想，“我们不是刚刚有了一个全国鳄梨酱日吗？”从技术上来说，没有。但是我们*在 7 月 31 日 庆祝了 [国家鳄梨日，这确实涉及到一些鳄梨交易。但是鳄梨色拉酱很特别，它有自己的一天，那一天就是今天。这里有一些你应该知道的 guac 赠品和交易。](https://lifehacker.com/get-free-guacamole-on-national-avocado-day-1844563858#:~:text=Get%20Free%20Guacamole%20on%20National%20Avocado%20Day&text=Though%20it's%20been%20a%20few,Friday%2C%20July%2031%2C%202020.)* 
 

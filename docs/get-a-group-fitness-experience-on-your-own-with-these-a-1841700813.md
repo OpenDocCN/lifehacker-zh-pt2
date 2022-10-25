@@ -1,6 +1,6 @@
 # 使用这些应用程序，独自获得团体健身体验
 
-> 原文:[https://life hacker . com/get-a-group-fitness-experience-on-your-with the-a-1841700813](https://lifehacker.com/get-a-group-fitness-experience-on-your-own-with-these-a-1841700813)
+> 原文：<https://lifehacker.com/get-a-group-fitness-experience-on-your-own-with-these-a-1841700813>
 
 健身课可以起到激励作用，而自己锻炼却不能。有人在推动你坚持到底，做下一个报告，如果幸运的话，他们会淹没你大脑中诱惑你回家吃饭的那部分。
 

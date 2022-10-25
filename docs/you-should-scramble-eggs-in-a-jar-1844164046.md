@@ -1,6 +1,6 @@
 # 你应该在罐子里炒鸡蛋
 
-> 原文:[https://life hacker . com/you-should-scramble-eggs-in-a-jar-1844164046](https://lifehacker.com/you-should-scramble-eggs-in-a-jar-1844164046)
+> 原文：<https://lifehacker.com/you-should-scramble-eggs-in-a-jar-1844164046>
 
 我不怎么看以食物为主题的电视节目——因为我喜欢把电视时间花在《星际迷航》上，但我们的视频制作人乔尔·卡恩会，他会经常把他在那里学到的他认为可能会让我感兴趣的小技巧和窍门传给我。最近，他分享了一个我以前从未想过要尝试的炒鸡蛋技巧:
 

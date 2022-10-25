@@ -1,6 +1,6 @@
 # 如何决定是否为你的家安装太阳能电池板
 
-> 原文:[https://life hacker . com/how-to-decision-what-to-your-1719858560](https://lifehacker.com/how-to-decide-whether-to-install-solar-panels-for-your-1719858560)
+> 原文：<https://lifehacker.com/how-to-decide-whether-to-install-solar-panels-for-your-1719858560>
 
 与全新的浴室或厨房改造相比，在你的屋顶上安装太阳能电池板就像给阁楼隔热一样令人兴奋。但是，就像添加绝缘材料一样，使用太阳能可以是一种持续付出的家庭改善——可能会收回成本，甚至更多。以下是如何判断这是否是一项对你有利的投资。
 

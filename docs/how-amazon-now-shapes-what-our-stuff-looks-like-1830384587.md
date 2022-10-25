@@ -1,6 +1,6 @@
 # 亚马逊现在如何塑造我们的商品
 
-> 原文:[https://gizmodo . com/how-Amazon-now-shapes-what-our-stuff-looks-like-1830384587](https://gizmodo.com/how-amazon-now-shapes-what-our-stuff-looks-like-1830384587)
+> 原文：<https://gizmodo.com/how-amazon-now-shapes-what-our-stuff-looks-like-1830384587>
 
 汰渍 [刚刚宣布](https://news.pg.com/press-release/pg-thinks-inside-box-new-tide-eco-box) 一种替代经典瓶装洗衣液的新品。它基本上看起来和工作起来就像一箱酒，这有点滑稽，因为 [关于青少年吃潮荚](https://gizmodo.com/maker-of-tide-pods-its-not-our-fault-that-teens-are-fu-1822325352) 的整个迷因。但是新的 Tide 生态箱可不是闹着玩的。这实际上是对未来的一瞥，亚马逊将决定我们的东西是什么样子。
 

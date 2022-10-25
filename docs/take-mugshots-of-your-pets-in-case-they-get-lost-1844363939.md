@@ -1,6 +1,6 @@
 # 为你的宠物拍照，以防它们走失
 
-> 原文:[https://life hacker . com/take-mug shots-of-your-pet-in-case-they-lost-1844363939](https://lifehacker.com/take-mugshots-of-your-pets-in-case-they-get-lost-1844363939)
+> 原文：<https://lifehacker.com/take-mugshots-of-your-pets-in-case-they-get-lost-1844363939>
 
 在照相手机时代，暗示你没有给你的宠物拍足够多的照片听起来很可笑。因为，好吧，这可能不是真的——我们的猫去年夏天死了，我估计还有好几张它在云中漂浮的照片。然而，你可能没有拍出正确的照片。具体来说，你要确保从几个角度拍下你毛茸茸或长着羽毛的朋友的清晰照片——如果你愿意的话，可以用大头照——以防你珍贵的小狗、小猫、鹦鹉或 T3【丛林宝贝 T5】走失。
 

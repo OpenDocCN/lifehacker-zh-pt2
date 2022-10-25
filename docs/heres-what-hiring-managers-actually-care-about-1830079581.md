@@ -1,6 +1,6 @@
 # 招聘经理真正关心的是
 
-> 原文:[https://life hacker . com/heres-what-employment-managers-really-care-in-1830079581](https://lifehacker.com/heres-what-hiring-managers-actually-care-about-1830079581)
+> 原文：<https://lifehacker.com/heres-what-hiring-managers-actually-care-about-1830079581>
 
 在面试中，你不可能了解坐在你对面的人的想法，并确切知道他们在寻找什么。但幸运的是，大多数招聘经理都认为一些基本素质是非常重要的。
 

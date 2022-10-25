@@ -1,6 +1,6 @@
 # 你应该把你的零花钱存起来还是花掉？
 
-> 原文:[https://life hacker . com/should-you-save-or-spend-you-spare-change-1836661835](https://lifehacker.com/should-you-save-or-spend-your-spare-change-1836661835)
+> 原文：<https://lifehacker.com/should-you-save-or-spend-your-spare-change-1836661835>
 
 你如何追踪、储存或花掉多余的硬币？你把它们存在银行里吗？在 Coinstar 机器上查一下？把它们扔进小费罐？或者你已经不用现金了，而且多年来没有一个油腻腻的硬币被塞进你的皮夹或钱包的底部？
 

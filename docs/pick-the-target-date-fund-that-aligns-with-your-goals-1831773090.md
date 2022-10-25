@@ -1,6 +1,6 @@
 # 选择与你的目标一致的目标日期基金，而不仅仅是你的退休年
 
-> 原文:[https://life hacker . com/pick-the-target-date-fund-aligned-your-goals-1831773090](https://lifehacker.com/pick-the-target-date-fund-that-aligns-with-your-goals-1831773090)
+> 原文：<https://lifehacker.com/pick-the-target-date-fund-that-aligns-with-your-goals-1831773090>
 
 也许是时候用不同的计算方法重新考虑你投资的目标日期基金了。
 

@@ -1,6 +1,6 @@
 # 在发布时使用谷歌视距应该知道的一切
 
-> 原文:[https://life hacker . com/everything-you-should-know-on-using-Google-stadia-at-1839891949](https://lifehacker.com/everything-you-should-know-about-using-google-stadia-at-1839891949)
+> 原文：<https://lifehacker.com/everything-you-should-know-about-using-google-stadia-at-1839891949>
 
 所以你就这么做了:你买了谷歌 Stadia 的股票。本周发布的基于 Chrome 的流媒体平台仍处于起步阶段，在许多方面还处于半功能状态。例如，你只能在少数设备上播放球场比赛；有些应用程序的某些地方有设置，但其他地方没有；而且，一般来说，找路是很难的。
 

@@ -1,6 +1,6 @@
 # Mozilla 的新 Firefox Android 应用目前只支持这些扩展
 
-> 原文:[https://life hacker . com/mozillas-new-Firefox-Android-app-only-supports-these-ex-1841673071](https://lifehacker.com/mozillas-new-firefox-android-app-only-supports-these-ex-1841673071)
+> 原文：<https://lifehacker.com/mozillas-new-firefox-android-app-only-supports-these-ex-1841673071>
 
 Mozilla 即将从谷歌 Play 商店移除其新的 Firefox Android 浏览器的夜间测试版，只留下 [Firefox Preview](https://lifehacker.com/everything-you-need-to-know-about-firefox-preview-on-an-1835950429) 供用户试用。现在从夜间版本切换到这个浏览器是值得的，或者第一次瞥一眼，但有一个小问题:目前只支持一个扩展，你的许多最爱可能不会跳转到这个新版本的 Firefox。
 

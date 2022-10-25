@@ -1,6 +1,6 @@
 # 如何预订 Galaxy S10、Galaxy Fold 和三星昨天发布的所有其他设备
 
-> 原文:[https://life hacker . com/how-to-preorder-the-galaxy-S10-galaxy-fold-and-every-1832792237](https://lifehacker.com/how-to-preorder-the-galaxy-s10-galaxy-fold-and-every-1832792237)
+> 原文：<https://lifehacker.com/how-to-preorder-the-galaxy-s10-galaxy-fold-and-every-1832792237>
 
 昨天，三星宣布了一系列即将推出的新手机和设备，包括其新的旗舰 Galaxy S10 智能手机系列、全无线耳塞、新的可穿戴设备以及世界上第一款可折叠智能手机 Galaxy Fold。
 

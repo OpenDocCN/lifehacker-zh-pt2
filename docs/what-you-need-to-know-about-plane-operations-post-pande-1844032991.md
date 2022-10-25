@@ -1,6 +1,6 @@
 # 关于后疫情时代的飞机运营，你需要知道什么
 
-> 原文:[https://life hacker . com/what-you-need-know-on-plane-operations-post-潘德-1844032991](https://lifehacker.com/what-you-need-to-know-about-plane-operations-post-pande-1844032991)
+> 原文：<https://lifehacker.com/what-you-need-to-know-about-plane-operations-post-pande-1844032991>
 
 在疫情之前，你可能是一个紧张的飞行员，但毫无疑问，随着空中旅行慢慢成为人们再次做的事情，乘坐飞机对每个人来说都将更加紧张。由于过去几个月的健康危机，世界各地的飞机都停飞了，这让我们不禁要问:要怎样才能让飞机重新起飞？
 

@@ -1,6 +1,6 @@
 # 如何使用“终端”下载和安装旧版本的 macOS
 
-> 原文:[https://life hacker . com/how-to-download-and-install-older-MAC OS-versions-with-t-1839671161](https://lifehacker.com/how-to-download-and-install-older-macos-versions-with-t-1839671161)
+> 原文：<https://lifehacker.com/how-to-download-and-install-older-macos-versions-with-t-1839671161>
 
 [Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)) : title[![](../Images/80a55aae3a4e6ac59b23fae8fccddf22.png)](https://applemacos.kinja.com)[Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)Many people turn to Macs because they're incredibly easy to operate. That's true, but there's still plenty worth knowing before you can truly master your Mac.
 

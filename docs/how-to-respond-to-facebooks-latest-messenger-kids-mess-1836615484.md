@@ -1,6 +1,6 @@
 # 如何应对脸书的“信使儿童”乱局
 
-> 原文:[https://life hacker . com/how-to-response-to-face books-latest-messenger-kids-mess-1836615484](https://lifehacker.com/how-to-respond-to-facebooks-latest-messenger-kids-mess-1836615484)
+> 原文：<https://lifehacker.com/how-to-respond-to-facebooks-latest-messenger-kids-mess-1836615484>
 
 脸书的 [Messenger Kids](https://messengerkids.com/) 
 

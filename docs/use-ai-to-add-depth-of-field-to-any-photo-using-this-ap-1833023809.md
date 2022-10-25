@@ -1,6 +1,6 @@
 # 使用人工智能添加景深到任何使用此应用程序的照片
 
-> 原文:[https://life hacker . com/use-ai-to-add-depth-of-field-to-any-photo-using-this-AP-1833023809](https://lifehacker.com/use-ai-to-add-depth-of-field-to-any-photo-using-this-ap-1833023809)
+> 原文：<https://lifehacker.com/use-ai-to-add-depth-of-field-to-any-photo-using-this-ap-1833023809>
 
 如果你有一部较新的智能手机，那么它可能会有拍摄 3D 图像的能力，或者至少有一些景深的图像。
 

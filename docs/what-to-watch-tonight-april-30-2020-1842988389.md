@@ -1,6 +1,6 @@
 # 2020 年 4 月 30 日今晚看什么
 
-> 原文:[https://life hacker . com/今晚看什么-2020 年 4 月 30 日-1842988389](https://lifehacker.com/what-to-watch-tonight-april-30-2020-1842988389)
+> 原文：<https://lifehacker.com/what-to-watch-tonight-april-30-2020-1842988389>
 
 我们几乎熬过了这一周！如果你正在寻找今晚可以观看的东西，以帮助你进入周五，我们做了一些挖掘，以找到今晚的最佳流媒体选项。
 

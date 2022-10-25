@@ -1,6 +1,6 @@
 # 现在就花 200 美元买一块苹果手表
 
-> 原文:[https://life hacker . com/get-an-apple-watch-for-200-right-now-1834847961](https://lifehacker.com/get-an-apple-watch-for-200-right-now-1834847961)
+> 原文：<https://lifehacker.com/get-an-apple-watch-for-200-right-now-1834847961>
 
 亚马逊目前正在进行苹果手表的大减价。此次销售包括 Apple Watch 系列 3 和 4 的众多型号——包括纯 GPS 和蜂窝版本——折扣幅度是我们见过的许多智能手表中最大的。如果你渴望购买你的第一块 Apple watch 或从早期版本升级，现在绝对是正确的时间。
 

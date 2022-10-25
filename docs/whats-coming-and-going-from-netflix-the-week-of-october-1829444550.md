@@ -1,6 +1,6 @@
 # 2018 年 10 月 15 日这一周，网飞有哪些来往
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of the-October-1829444550](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-october-1829444550)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-october-1829444550>
 
 我们即将进入 10 月末，那片沼泽般的死水，网飞在那里卸载剩下的最不知名的“原件”，并期待最好的结果。本周最大的首次亮相是制作一个杀人犯的第二部分，我很难对此感到兴奋。由托里·科莱特扮演一个决定与丈夫保持开放关系的女人的新剧《T2 漫游癖》会体面吗？网飞是否打算每周推出另一部略感兴趣的系列片，讲述中年的苦恼和厌倦？事实上，我们有像*幼虫岛*和*侏儒独自*这样的名字的儿童节目是好笑还是令人生气——或者两者兼而有之？一部名为*七宗罪:戒律复兴*的动作动画电影会成为本周的热门吗？这么多激动人心的问题！
 

@@ -1,6 +1,6 @@
 # PaperKarma 用一张照片的快照阻止垃圾邮件
 
-> 原文:[https://life hacker . com/paper karma-stops-junk-mail-with-a-snap-of-a-a-photo-5883999](https://lifehacker.com/paperkarma-stops-junk-mail-with-a-snap-of-a-photo-5883999)
+> 原文：<https://lifehacker.com/paperkarma-stops-junk-mail-with-a-snap-of-a-photo-5883999>
 
 垃圾邮件是人类的苦难，是资本主义的失败，是在一堆垃圾中丢失重要账单的一种方式。为了不再收到这么多垃圾邮件，使用 [PaperKarma](https://www.paperkarma.com/) 应用程序。拍下违规邮件的照片，PaperKarma 会告诉发件人把你从他们的邮件列表中删除。PaperKarma 适用于杂志、目录、优惠券、传单、信用卡优惠，甚至黄页。要注册这项服务，你需要提供一些你自己的信息，包括你的地址和电子邮件。当你收到一封邮件时，拍下发件人的姓名或地址，PaperKarma 就会查找。(您也可以手动输入发送方。)处理请求需要 12 周时间，PaperKarma 会在请求完成时通知您。
 

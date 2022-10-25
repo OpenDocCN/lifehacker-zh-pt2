@@ -1,6 +1,6 @@
 # Cobra Kai 和其他 YouTube 优质节目将很快在有限的时间内免费
 
-> 原文:[https://life hacker . com/cobra-kai-and-other-YouTube-premium-shows-will-soon-be-1834506541](https://lifehacker.com/cobra-kai-and-other-youtube-premium-shows-will-soon-be-1834506541)
+> 原文：<https://lifehacker.com/cobra-kai-and-other-youtube-premium-shows-will-soon-be-1834506541>
 
 过去几年，YouTube 一直在制作一些优秀的独家内容，但这一切都隐藏在付费墙的背后。对于那些对 YouTube 的优质内容感兴趣，但没有支付 12 美元的月订阅费的人来说，你很幸运:所有用户很快就可以免费观看 YouTube 的优质节目的广告支持版本——但如果你想观看，你需要保持警惕。
 

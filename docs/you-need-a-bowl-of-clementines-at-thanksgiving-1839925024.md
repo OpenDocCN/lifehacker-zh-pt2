@@ -1,6 +1,6 @@
 # 感恩节你需要一碗克莱门汀
 
-> 原文:[https://life hacker . com/you-need-a bow-of-clementines-at-thanksgiving-1839925024](https://lifehacker.com/you-need-a-bowl-of-clementines-at-thanksgiving-1839925024)
+> 原文：<https://lifehacker.com/you-need-a-bowl-of-clementines-at-thanksgiving-1839925024>
 
 我对我不能吃的餐桌摆饰没有耐心。花很漂亮——我一直这么认为——但是在桌子中间放一瓶不可食用的绿色植物只会给自己将来制造麻烦；问题是“我把这个东西放在哪里来给食物腾出空间？”
 

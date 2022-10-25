@@ -1,6 +1,6 @@
 # 用纸和笔记录你的支出
 
-> 原文:[https://life hacker . com/track-your-spending-using-a pen-and-paper-1835310590](https://lifehacker.com/track-your-spending-using-a-pen-and-paper-1835310590)
+> 原文：<https://lifehacker.com/track-your-spending-using-a-pen-and-paper-1835310590>
 
 预算应用程序有很多，但是要找到一个你喜欢的需要一些反复试验。如果你想减少在屏幕前的时间，有时你最不想做的事情就是打开你的预算应用程序进行检查。
 

@@ -1,6 +1,6 @@
 # Quora 近期数据泄露后如何保护自己
 
-> 原文:[https://life hacker . com/how-to-protect-yourself-after-quoras-recent-data-breach-1830849388](https://lifehacker.com/how-to-protect-yourself-after-quoras-recent-data-breach-1830849388)
+> 原文：<https://lifehacker.com/how-to-protect-yourself-after-quoras-recent-data-breach-1830849388>
 
 另一个受欢迎的服务——[【Quora](https://www.quora.com/)——这一次已经开始感觉像是每周的传统，表示它已经成为可能影响其用户的安全漏洞的受害者。和往常一样，你的一些个人信息(或登录凭证)可能会落入不该拥有这些信息的人手中，你需要采取措施来保护你的账户和/或网络生活。
 

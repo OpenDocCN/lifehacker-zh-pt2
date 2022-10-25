@@ -1,6 +1,6 @@
 # 把书切成两半是一种非法行为
 
-> 原文:[https://life hacker . com/cutting-books-in-half-is-a-hack-1841130748](https://lifehacker.com/cutting-books-in-half-is-a-hack-1841130748)
+> 原文：<https://lifehacker.com/cutting-books-in-half-is-a-hack-1841130748>
 
 有些技巧并不适合所有人。如果损坏一本书的想法让你感到头晕，请浏览这篇文章，躺下来，直到你准备好阅读一些不那么可怕的生活窍门。但是如果你不神经质，让我们来谈谈为什么把书切成两半是一个天才的想法。
 

@@ -1,6 +1,6 @@
 # 如何在家中打造咖啡店体验
 
-> 原文:[https://life hacker . com/how-to-create-a-coffee-shop-experience-in-home-1842871907](https://lifehacker.com/how-to-create-a-coffee-shop-experience-at-home-1842871907)
+> 原文：<https://lifehacker.com/how-to-create-a-coffee-shop-experience-at-home-1842871907>
 
 出去喝一杯别致的拿铁咖啡不仅仅是为了喝酒，而是为了走出家门。它是在不同的环境中花一点时间，同时品味一些与众不同的东西。从很多方面来说，它是关于*体验*的。
 

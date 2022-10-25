@@ -1,6 +1,6 @@
 # 获得免费的'侠盗猎车手:圣安地列斯(PC)'现在
 
-> 原文:[https://life hacker . com/get-a-free-copy-of-grand-theft-auto-San-Andreas-PC-r-1838188659](https://lifehacker.com/get-a-free-copy-of-grand-theft-auto-san-andreas-pc-r-1838188659)
+> 原文：<https://lifehacker.com/get-a-free-copy-of-grand-theft-auto-san-andreas-pc-r-1838188659>
 
 PC 游戏玩家有大量的启动器 ，他们可以安装这些启动器来玩他们所有的游戏——包括 Steam、Epic Games、Battle.net 和 GOG 银河，等等。Rockstar Games Launcher 是最新加入该俱乐部的应用程序，今天下载它(无论你是否需要)可以为你赢得一份免费的*侠盗猎车手:圣安地列斯。*
 

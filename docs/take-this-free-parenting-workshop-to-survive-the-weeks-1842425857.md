@@ -1,6 +1,6 @@
 # 参加这个免费的育儿研讨会，在家度过这几周
 
-> 原文:[https://life hacker . com/take-this-free-parenting-workshop-to-survive-the-weeks-1842425857](https://lifehacker.com/take-this-free-parenting-workshop-to-survive-the-weeks-1842425857)
+> 原文：<https://lifehacker.com/take-this-free-parenting-workshop-to-survive-the-weeks-1842425857>
 
 已经过去一周了。为了减缓冠状病毒的传播，全国各地的学校已经关闭，有些学校将关闭到本学年结束。家长们整个星期都在忙着在家工作，或者寻找儿童看护，或者制定类似于学校日的时间表。周五下午，几乎完好无损地抵达，这感觉像是一场胜利。所以我不想这么说，但是...这仅仅是开始。
 

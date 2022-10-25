@@ -1,6 +1,6 @@
 # 这种熏肉是香蕉(也就是香蕉皮)
 
-> 原文:[https://life hacker . com/this-bacon-is-banana-peels-the-is-1833479569](https://lifehacker.com/this-bacon-is-bananas-peels-that-is-1833479569)
+> 原文：<https://lifehacker.com/this-bacon-is-bananas-peels-that-is-1833479569>
 
 在我努力将残羹剩饭转化为美食的过程中，我遇到了一些挑战，但没有一个像可怕的香蕉皮那样具有挑战性。尽管香蕉的水果部分很美味，但它的天然外皮却简单得不容易剥皮。咀嚼生香蕉皮是一种极其不愉快的经历。它们又苦又有弹性，还会在你的舌头上留下奇怪的舌苔。
 

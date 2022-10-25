@@ -1,6 +1,6 @@
 # Kouign amann 是我的家烘焙香格里拉
 
-> 原文:[https://the take out . com/kou ign-amann-recipe-technique-step-by-step-1838024478](https://thetakeout.com/kouign-amann-recipe-technique-step-by-step-1838024478)
+> 原文：<https://thetakeout.com/kouign-amann-recipe-technique-step-by-step-1838024478>
 
 我看的英国烘焙秀第一季是第五季，有南希、切特娜和宾盖特，我的爱在第七周得到了巩固，当时参赛者必须在技术挑战中做出 kouign amann。这是因为 kouign amann 是有史以来发明的最迷人的糕点。它结合了羊角面包的酥皮层，但在烘焙之前，它覆盖了更多的黄油和糖，以便在烤箱中焦糖化。
 

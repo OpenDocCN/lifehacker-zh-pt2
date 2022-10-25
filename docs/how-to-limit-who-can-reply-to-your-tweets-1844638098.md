@@ -1,6 +1,6 @@
 # 如何限制谁可以回复你的推文
 
-> 原文:[https://life hacker . com/how-to-limit-who-can-reply-to-your-tweets-1844638098](https://lifehacker.com/how-to-limit-who-can-reply-to-your-tweets-1844638098)
+> 原文：<https://lifehacker.com/how-to-limit-who-can-reply-to-your-tweets-1844638098>
 
 **iOS:** Twitter 用户现在可以使用 iOS 应用——限制谁可以回复他们的推文，我们希望这一功能在不久的将来推广到 Android 和网络。当谈到限制在那个被诅咒的网站上骚扰的可能性时，这是很有帮助的。
 

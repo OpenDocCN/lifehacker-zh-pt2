@@ -1,6 +1,6 @@
 # 为什么不喝茶也需要电水壶
 
-> 原文:[https://life hacker . com/why-you-never-if-you-not-drink-1840832092](https://lifehacker.com/why-you-need-an-electric-kettle-even-if-you-dont-drink-1840832092)
+> 原文：<https://lifehacker.com/why-you-need-an-electric-kettle-even-if-you-dont-drink-1840832092>
 
 烧水是一项基本的厨房技能，任何人都能够掌握；你只需要一个锅，一些水和一个炉子。不一定是需要被黑的流程，但是是可以更快的流程。
 

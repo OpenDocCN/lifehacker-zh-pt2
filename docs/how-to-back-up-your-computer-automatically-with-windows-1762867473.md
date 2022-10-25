@@ -1,6 +1,6 @@
 # 如何使用 Windows 10 的内置工具自动备份电脑
 
-> 原文:[https://life hacker . com/how-to-back-up-your-computer-with-windows-1762867473](https://lifehacker.com/how-to-back-up-your-computer-automatically-with-windows-1762867473)
+> 原文：<https://lifehacker.com/how-to-back-up-your-computer-automatically-with-windows-1762867473>
 
 如果你没有备份你的电脑，你应该备份。你永远不知道你的硬盘什么时候会出故障，你的文件会被意外删除，或者，但愿不会如此，恶意软件会感染你的机器——你也不想空手而归，没有那些宝贵的数据。
 

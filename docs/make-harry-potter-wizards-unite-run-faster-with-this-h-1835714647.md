@@ -1,6 +1,6 @@
 # 让《哈利·波特:巫师团结》运行得更快
 
-> 原文:[https://life hacker . com/make-Harry-Potter-wizards-unite-run-fast-with-this-h-1835714647](https://lifehacker.com/make-harry-potter-wizards-unite-run-faster-with-this-h-1835714647)
+> 原文：<https://lifehacker.com/make-harry-potter-wizards-unite-run-faster-with-this-h-1835714647>
 
 游戏开发商 Niantic 正式放弃 [*哈利波特:巫师团结*](https://harrypotterwizardsunite.com/) 周四下午对于 iOS 和 Android 来说，这意味着像我(也许还有你)这样的人在午休时间玩巫师，收集分散在城镇各处的魔法生物、事物和人。
 

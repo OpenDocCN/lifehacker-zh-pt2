@@ -1,6 +1,6 @@
 # 如果你想优先考虑某件事，把它放在你能看到的地方
 
-> 原文:[https://life hacker . com/if-you-want-to-prioritize-something-put-it-where-you-c-1841954967](https://lifehacker.com/if-you-want-to-prioritize-something-put-it-where-you-c-1841954967)
+> 原文：<https://lifehacker.com/if-you-want-to-prioritize-something-put-it-where-you-c-1841954967>
 
 有两个非常好的技巧可以帮助你记住每天早上出门时需要携带的东西。其中一个是给自己一个口头禅，比如“电话、钱包、钥匙”，另一个是把你需要随身带的东西放在你的门前。
 

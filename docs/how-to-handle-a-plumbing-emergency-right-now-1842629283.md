@@ -1,6 +1,6 @@
 # 如何处理管道突发事件
 
-> 原文:[https://life hacker . com/how-to-hand-a-plumbing-emergency-now-1842629283](https://lifehacker.com/how-to-handle-a-plumbing-emergency-right-now-1842629283)
+> 原文：<https://lifehacker.com/how-to-handle-a-plumbing-emergency-right-now-1842629283>
 
 管道紧急事件不关心流行病。管道爆裂，厕所堵塞，下水道堵塞，所有这些都按照它们自己的时间表发生，而不考虑我们是多么不顾一切地避免不必要的接触。
 

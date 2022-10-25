@@ -1,6 +1,6 @@
 # 我是作家娜芙蒂蒂·奥斯丁，这就是我为人父母的方式
 
-> 原文:[https://life hacker . com/im-author-nefertiti-Austin-and-this-how-I-parent-1833137050](https://lifehacker.com/im-author-nefertiti-austin-and-this-is-how-i-parent-1833137050)
+> 原文：<https://lifehacker.com/im-author-nefertiti-austin-and-this-is-how-i-parent-1833137050>
 
 [*娜芙蒂蒂·奥斯丁*](https://twitter.com/NefertitiAustin) *是她从寄养系统收养的两个孩子的单亲妈妈。她的回忆录《* [*母性如此之白:美国种族、性别和养育回忆录*](https://www.amazon.com/Motherhood-So-White-Parenting-America/dp/1492679011/ref=sr_1_fkmrnull_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-author-nefertiti-austin-and-this-is-how-i-parent-1833137050&asc_source=&crid=2CAVB1VR33AP5&keywords=nefertiti austin&qid=1551997890&s=gateway&sprefix=nefertiti austin,aps,240&sr=8-1-fkmrnull&tag=kinjalifehackerlink-20) *》将于 9 月出版。*
 

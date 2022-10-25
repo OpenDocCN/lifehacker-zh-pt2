@@ -1,6 +1,6 @@
 # 今天如何在乳品皇后获得免费甜筒
 
-> 原文:[https://life hacker . com/how-to-get-a-free-cone-at-dairy-queen-today-1833439996](https://lifehacker.com/how-to-get-a-free-cone-at-dairy-queen-today-1833439996)
+> 原文：<https://lifehacker.com/how-to-get-a-free-cone-at-dairy-queen-today-1833439996>
 
 奶品皇后 [今天](https://www.dairyqueen.com/us-en/Promotions-US/?localechange=1&)通过发放免费蛋卷冰淇淋来庆祝春天的第一天。要得到你的，你只需要出现在任何一家奶品皇后店并要一个。
 

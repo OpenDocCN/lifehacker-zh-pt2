@@ -1,6 +1,6 @@
 # 2020 年 2 月，HBO 将迎来什么
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-HBO-in-two-2020-1841341509](https://lifehacker.com/whats-coming-and-going-from-hbo-in-february-2020-1841341509)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-hbo-in-february-2020-1841341509>
 
 二月可能是一个较短的月份，但它并不缺少新的 HBO 内容。2 月 1 日，1967 年和 2006 年版本的《皇家赌场》将在网络上发布，然后在 2 月 7 日，《T2》第四季《高维护》首播。*、*、醉醺醺的爱情*、*托马斯·克朗事件*和*最后的探戈在巴黎*也将在二月出现，在一长串其他电影和电视节目中。*
 

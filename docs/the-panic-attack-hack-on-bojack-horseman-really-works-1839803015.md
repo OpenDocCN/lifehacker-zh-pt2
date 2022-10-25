@@ -1,6 +1,6 @@
 # Bojack 骑士的恐慌攻击真的有用
 
-> 原文:[https://life hacker . com/the-panic-attack-hack-on-bojack-horseman-really-works-1839803015](https://lifehacker.com/the-panic-attack-hack-on-bojack-horseman-really-works-1839803015)
+> 原文：<https://lifehacker.com/the-panic-attack-hack-on-bojack-horseman-really-works-1839803015>
 
 *波杰克*恐慌攻击破解一个真实的大头钉！在《T2》的最新一集中，蜀葵(阿帕娜·南切尔拉饰)在一次聚会上惊恐发作。一个叫彼得的家伙教她怎么做。“环顾房间，告诉我你看到了什么，”他说。蜀葵给东西命名——首先是让她焦虑的东西，然后是房间里越来越多平凡的东西。“这是我的心理医生教给我的一个技巧，”彼得说。“这应该有助于你让自己脚踏实地。”
 

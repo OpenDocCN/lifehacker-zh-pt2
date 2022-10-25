@@ -1,6 +1,6 @@
 # im ana humphrey exoplanet researcher and this is how 1834225323
 
-> 原文:[https://life hacker . com/im-ana-Humphrey-exo planet-research-and-this-is-how-1834225323](https://lifehacker.com/im-ana-humphrey-exoplanet-researcher-and-this-is-how-1834225323)
+> 原文：<https://lifehacker.com/im-ana-humphrey-exoplanet-researcher-and-this-is-how-1834225323>
 
 这是我们第一次和学生一起“我是如何工作的”——真是个好学生。安娜·汉弗莱是今年美国历史最悠久、最负盛名的高中生科学和数学竞赛 [Regeneron 科学才艺 Searc](https://www.societyforscience.org/regeneron-science-talent-search) h 的冠军。她被授予 25 万美元的最高奖，因为她开发了一个数学模型“来寻找开普勒太空望远镜遗漏的系外行星的存在和可能位置。”安娜也是一名 [环保主义者](https://naaee.org/about-us/people/ana-humphrey) 和 [分水岭战士倡议](https://vawatershedwarriors.org/) 的创始人和主席——所以当她不在太阳系外寻找行星时，她只是，你知道，拯救地球。这是她工作的方式。
 

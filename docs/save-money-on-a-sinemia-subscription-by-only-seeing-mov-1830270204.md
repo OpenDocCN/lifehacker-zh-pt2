@@ -1,6 +1,6 @@
 # 只在工作日看电影可以节省订购 Sinemia 的费用
 
-> 原文:[https://life hacker . com/save-money-on-a-sinemia-subscription-by-only-seeing-mov-1830270204](https://lifehacker.com/save-money-on-a-sinemia-subscription-by-only-seeing-mov-1830270204)
+> 原文：<https://lifehacker.com/save-money-on-a-sinemia-subscription-by-only-seeing-mov-1830270204>
 
 MoviePass 的竞争对手 [Sinemia](https://www.sinemia.com/) 本周宣布了新的折扣订阅计划，面向那些只愿意在工作日使用该服务看电影的人。工作日套餐比该公司的标准价格低 20%左右，起价为 3.99 美元。他们只能在星期一到星期四使用。
 

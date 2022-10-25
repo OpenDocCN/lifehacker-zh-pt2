@@ -1,6 +1,6 @@
 # 森海塞尔的新动力无线仍然是耳机之王
 
-> 原文:[https://gizmodo . com/sennheisers-momentum-wireless-keep-their-crown-1837746024](https://gizmodo.com/sennheisers-momentum-wireless-keep-their-crown-1837746024)
+> 原文：<https://gizmodo.com/sennheisers-momentum-wireless-keep-their-crown-1837746024>
 
 森海塞尔著名的音响发烧友又一次做到了。该公司刚刚发布了广受赞誉的第三代 Momentum 无线耳机，由于一些有意义的升级，它们仍然是该类别的王者。鞠躬。
 

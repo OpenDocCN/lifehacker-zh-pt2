@@ -1,6 +1,6 @@
 # 如何抓住硬拉杠
 
-> 原文:[https://life hacker . com/how-to-hold-on-a-deadlift-bar-1839783159](https://lifehacker.com/how-to-hold-onto-a-deadlift-bar-1839783159)
+> 原文：<https://lifehacker.com/how-to-hold-onto-a-deadlift-bar-1839783159>
 
 硬拉是锻炼身体几乎一半肌肉的好方法——尤其是腿筋和背部。但如果抓不住杠，就很难受益。这里有一些特别给硬拉新手的建议，关于如何确保你的手不是你最弱的一环。
 

@@ -1,6 +1,6 @@
 # 我得到了我的孩子毛毛虫:来自我充满便便的新生活的问候
 
-> 原文:[https://Jezebel . com/I-get-my-child-caterpillars-greetings-from-my-new-poop-1844233481](https://jezebel.com/i-got-my-child-caterpillars-greetings-from-my-new-poop-1844233481)
+> 原文：<https://jezebel.com/i-got-my-child-caterpillars-greetings-from-my-new-poop-1844233481>
 
 现在，我在桌子上的蝴蝶围栏上，伴随着小毛毛虫便便掉落的声音输入这些文字。叮，叮，叮。这些肿胀蠕动的八角凤尾毛虫，身上有黄色、绿色和黑色的条纹，它们藏着莳萝叶，排便速度几乎一样快。每隔几秒钟，这些虫子就会吐出另一个圆形的便便球。有些便便有罂粟籽那么大，有些像小浆果。每次我瞥一眼网住的毛毛虫笼子，粪便多了，地板少了。围场的墙上现在沾满了毛毛虫的呕吐物(或者是拉肚子？)从所谓的蛹前“净化”刚才，我目睹了一只毛毛虫的屁眼显著扩大，直到滚出一个虫子大小的保龄球大小的便便。*叮铃铃。*
 

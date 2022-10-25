@@ -1,6 +1,6 @@
 # 每位民主党总统候选人对最低工资的立场
 
-> 原文:[https://life hacker . com/every-democratic-president-candidate-s-stance-on-the-the-1837036069](https://lifehacker.com/every-democratic-presidential-candidate-s-stance-on-the-1837036069)
+> 原文：<https://lifehacker.com/every-democratic-presidential-candidate-s-stance-on-the-1837036069>
 
 当你看着你的薪水支票时，你是否希望金额更高？如果是这样，你可能会对我们的许多民主党总统候选人对联邦最低工资的看法以及他们打算对此做些什么感兴趣。
 

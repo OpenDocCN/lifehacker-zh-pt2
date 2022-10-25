@@ -1,6 +1,6 @@
 # 科学家想知道你的酸面团发酵剂
 
-> 原文:[https://life hacker . com/scientists-want-to-know-on-your-sour dough-starter-1843023881](https://lifehacker.com/scientists-want-to-know-about-your-sourdough-starter-1843023881)
+> 原文：<https://lifehacker.com/scientists-want-to-know-about-your-sourdough-starter-1843023881>
 
 如果你曾经尝试过做酸面团发酵剂，你就会知道这有点像实验。你实际上是在捕捉野生酵母，喂养它们，并希望它们创造一个微生物群落，最终闻起来和尝起来都很美味。也许你会成功，也许不会。
 

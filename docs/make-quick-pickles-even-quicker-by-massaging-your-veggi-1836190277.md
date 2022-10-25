@@ -1,6 +1,6 @@
 # 按摩你的蔬菜可以更快地制作泡菜
 
-> 原文:[https://life hacker . com/make-quick-pickles-even-quick-by-messaging-your-veggi-1836190277](https://lifehacker.com/make-quick-pickles-even-quicker-by-massaging-your-veggi-1836190277)
+> 原文：<https://lifehacker.com/make-quick-pickles-even-quicker-by-massaging-your-veggi-1836190277>
 
 [快速咸菜](https://lifehacker.com/quick-pickle-pretty-much-anything-with-one-simple-ratio-1721695458) 是无炉必备夏季配菜的 MVP。尽管名字如此，一些版本在准备吃之前需要浸泡一两个小时。如果你需要一个明亮、松脆的蔬菜面，而且你现在就需要它*，你可以从一个小小的按摩开始。*
 

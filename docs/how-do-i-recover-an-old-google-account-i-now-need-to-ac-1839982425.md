@@ -1,6 +1,6 @@
 # 如何恢复我现在需要访问的旧 Google 帐户？
 
-> 原文:[https://life hacker . com/how-do-I-recover-a-old-Google-account-I-now-need-to-AC-1839982425](https://lifehacker.com/how-do-i-recover-an-old-google-account-i-now-need-to-ac-1839982425)
+> 原文：<https://lifehacker.com/how-do-i-recover-an-old-google-account-i-now-need-to-ac-1839982425>
 
 我们有时都会忘记密码。它发生了。如果你使用密码管理器，这根本不是问题——事实上，我认为你不会记得你的又长又复杂的密码。我当然不知道。但有很多人不使用密码管理器，这意味着如果他们的密码(和备份方法)失败，他们将面临失去旧帐户访问权限的风险。
 

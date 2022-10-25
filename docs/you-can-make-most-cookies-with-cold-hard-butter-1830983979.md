@@ -1,6 +1,6 @@
 # 你可以用又冷又硬的黄油制作大多数饼干
 
-> 原文:[https://life hacker . com/you-can-make-most-cookies-with-cold-hard-butter-1830983979](https://lifehacker.com/you-can-make-most-cookies-with-cold-hard-butter-1830983979)
+> 原文：<https://lifehacker.com/you-can-make-most-cookies-with-cold-hard-butter-1830983979>
 
 此时此刻，世界各地的季节性面包师正在标记饼干食谱，追踪特殊的配料，当他们意识到他们忘记将黄油[留在外面软化时，他们感到恐慌。欢迎来到饼干交换季。](https://lifehacker.com/salted-butter-has-always-been-the-secret-to-better-cook-1822776571)
 

@@ -1,6 +1,6 @@
 # 如何让你的播客听起来像 NPR
 
-> 原文:[https://life hacker . com/how-to-make-your-podcast-sound-like-NPR-1840048544](https://lifehacker.com/how-to-make-your-podcast-sound-like-npr-1840048544)
+> 原文：<https://lifehacker.com/how-to-make-your-podcast-sound-like-npr-1840048544>
 
 听众首先会注意到你的播客的音频质量。糟糕的音频肯定会让你听起来不专业并失去听众，所以你应该优先制作最高质量的音频。
 

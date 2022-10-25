@@ -1,6 +1,6 @@
 # Marmite 让任何蘸酱更好
 
-> 原文:[https://life hacker . com/marmite-makes-any-dip-better-1838741952](https://lifehacker.com/marmite-makes-any-dip-better-1838741952)
+> 原文：<https://lifehacker.com/marmite-makes-any-dip-better-1838741952>
 
 Marmite 是调味品世界的 Fernet-Branca。就像苦味的 amaro 一样，超咸酵母酱也是极端两极化的，人们倾向于要么在发自内心的层面上鄙视它，要么全心全意地爱它。但是，即使你不是一个在烤面包上涂果酱的人，你也可以用它来给奶油涂酱和蘸酱增添魅力。
 

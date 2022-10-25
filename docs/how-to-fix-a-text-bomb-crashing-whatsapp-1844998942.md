@@ -1,6 +1,6 @@
 # 如何修复 WhatsApp 崩溃的“文本炸弹”
 
-> 原文:[https://life hacker . com/how-to-fix-a-text-bomb-crashing-whatsapp-1844998942](https://lifehacker.com/how-to-fix-a-text-bomb-crashing-whatsapp-1844998942)
+> 原文：<https://lifehacker.com/how-to-fix-a-text-bomb-crashing-whatsapp-1844998942>
 
 WhatsApp 最近发现的一个漏洞——我用这个词比平时更宽松，因为这个漏洞本身看起来不像是该应用的错——可能会导致令人难以置信的令人沮丧的崩溃循环，如果一些愚蠢的用户向你发送该应用无法处理的消息。
 

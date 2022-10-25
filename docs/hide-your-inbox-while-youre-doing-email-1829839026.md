@@ -1,6 +1,6 @@
 # 处理电子邮件时隐藏收件箱
 
-> 原文:[https://life hacker . com/hide-your-inbox-while-you-do-email-1829839026](https://lifehacker.com/hide-your-inbox-while-youre-doing-email-1829839026)
+> 原文：<https://lifehacker.com/hide-your-inbox-while-youre-doing-email-1829839026>
 
 每次我去写邮件，都会被收件箱分心。我检查了所有的新邮件，并推迟了打开 Gmail 的实际任务。没有一封新邮件是紧急的，但我不能忽略所有那些粗体字。所以现在我用 [隐藏我的收件箱，准备好了](https://inboxwhenready.org/) 。
 

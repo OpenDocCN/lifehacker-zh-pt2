@@ -1,6 +1,6 @@
 # 如何通过禁用密码恢复问题来保护 Windows 10
 
-> 原文:[https://life hacker . com/how-to-secure-windows-10-by-disable-its-password-reco-1831001538](https://lifehacker.com/how-to-secure-windows-10-by-disabling-its-password-reco-1831001538)
+> 原文：<https://lifehacker.com/how-to-secure-windows-10-by-disabling-its-password-reco-1831001538>
 
 密码恢复问题已经成为 Windows 10 的一部分一年多了，但如果你使用微软账户登录你的操作系统，你永远不会知道它们的存在。但是，当您首次安装 Windows 时，请使用本地帐户，系统会提示您创建三个安全问题，如果您忘记了凭据，您可以使用这些问题来重置密码并登录您的帐户。
 

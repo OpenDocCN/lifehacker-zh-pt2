@@ -1,6 +1,6 @@
 # 在你的速溶锅里制作韩国桑拿鸡蛋
 
-> 原文:[https://life hacker . com/make-Korean-sauna-eggs-in-your-instant-pot-1831208346](https://lifehacker.com/make-korean-sauna-eggs-in-your-instant-pot-1831208346)
+> 原文：<https://lifehacker.com/make-korean-sauna-eggs-in-your-instant-pot-1831208346>
 
 我总是对你烹饪和食用鸡蛋的不同方式感到惊讶。光是炒菜流派*里的*，我就有三个最爱( [超慢，用浸入式搅拌机搅打](https://skillet.lifehacker.com/how-to-make-perfect-scrambled-eggs-no-matter-how-you-l-1819089160) ，用奶酪搅拌)。最近，我真的很喜欢硬博伊斯。我喜欢(显然)，喜欢 [用味噌](https://skillet.lifehacker.com/make-appetizer-worthy-hard-boiled-eggs-by-wrapping-them-1831021259) 把它们包起来，但是我现在完全迷上了这些烤的、坚果味的、非常嫩的七小时鸡蛋。(剧透:它们实际上不需要 7 个小时。)
 

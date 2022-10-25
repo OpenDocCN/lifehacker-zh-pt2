@@ -1,6 +1,6 @@
 # 你有什么学习新语言的窍门？
 
-> 原文:[https://life hacker . com/what-tricks-do-you-have-to-learning-a-new-language-1831736781](https://lifehacker.com/what-tricks-do-you-have-for-learning-a-new-language-1831736781)
+> 原文：<https://lifehacker.com/what-tricks-do-you-have-for-learning-a-new-language-1831736781>
 
 一群 Lifehacker 的员工正在计划今年的国际旅行，我们想知道你如何快速学习一门新语言。有这么多不同的方法，但是除了努力工作和运用自己，没有真正的*诀窍*。
 

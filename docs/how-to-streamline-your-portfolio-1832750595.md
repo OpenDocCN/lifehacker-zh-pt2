@@ -1,6 +1,6 @@
 # 如何简化你的投资组合
 
-> 原文:[https://life hacker . com/how-to-streamline-your portfolio-1832750595](https://lifehacker.com/how-to-streamline-your-portfolio-1832750595)
+> 原文：<https://lifehacker.com/how-to-streamline-your-portfolio-1832750595>
 
 当谈到退休投资时，正如我们多次提到的，越简单越好。更简单、更有效的投资的第一步是简化你的投资组合。
 

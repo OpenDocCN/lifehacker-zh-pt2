@@ -1,6 +1,6 @@
 # 如何获取和使用芬太尼试纸
 
-> 原文:[https://life hacker . com/how-to-get-and-use-fentanyl-test-strips-1832260728](https://lifehacker.com/how-to-get-and-use-fentanyl-testing-strips-1832260728)
+> 原文：<https://lifehacker.com/how-to-get-and-use-fentanyl-testing-strips-1832260728>
 
 根据美国疾病预防控制中心 12 月的一份报告，芬太尼最近成为美国最致命的药物 。芬太尼是一种合成阿片类药物，有时会混入其他非法药物中，但其效力远远超过通常与之混合的药物。这意味着看似安全的剂量可能是致命的，但除非你实际测试过，否则你不会知道。
 

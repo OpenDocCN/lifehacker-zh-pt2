@@ -1,6 +1,6 @@
 # 向不同时区的朋友说“新年快乐”
 
-> 原文:[https://life hacker . com/say-happy-new-year-to-friends-in-different-time zones-1831399687](https://lifehacker.com/say-happy-new-year-to-friends-in-different-time-zones-1831399687)
+> 原文：<https://lifehacker.com/say-happy-new-year-to-friends-in-different-time-zones-1831399687>
 
 现在是新年前夜，如果你是那种喜欢在他们的时区(除了你的时区之外)午夜时分给所有朋友发短信的人，这意味着你今晚要做一些心算了。那些疯狂派对的人，或者像我一样玩 Jackbox Party Pack 的人，可能不会想要手动查找你所关心的每个时区的时差。那太多了。
 

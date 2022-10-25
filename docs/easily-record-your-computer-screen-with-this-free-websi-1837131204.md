@@ -1,6 +1,6 @@
 # 使用这个免费网站轻松录制您的计算机屏幕
 
-> 原文:[https://life hacker . com/easy-record-your-computer-screen with this-free-websi-1837131204](https://lifehacker.com/easily-record-your-computer-screen-with-this-free-websi-1837131204)
+> 原文：<https://lifehacker.com/easily-record-your-computer-screen-with-this-free-websi-1837131204>
 
 我和家人住在全国各地，这让我为父母和各种朋友提供技术支持的能力变得有点复杂。几年前，我开始录制我的屏幕来解释如何做一些更复杂的任务。本周，我偶然发现了一个工具，它可以让录制屏幕变得异常简单:。
 

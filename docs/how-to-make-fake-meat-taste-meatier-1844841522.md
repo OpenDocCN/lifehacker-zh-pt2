@@ -1,6 +1,6 @@
 # 如何让假肉吃起来更肉
 
-> 原文:[https://life hacker . com/how-to-make-fake-meat-taste-meatier-1844841522](https://lifehacker.com/how-to-make-fake-meat-taste-meatier-1844841522)
+> 原文：<https://lifehacker.com/how-to-make-fake-meat-taste-meatier-1844841522>
 
 我的父亲是一个伪素食主义者，尽管他偶尔吃鸟或鱼。他最近迷上了不含动物的肉类产品——这个人喜欢一个不可能的汉堡！—我一直在做他最喜欢的食物(意大利面),用火鸡或某种无肉的碎末代替牛肉或猪肉。
 

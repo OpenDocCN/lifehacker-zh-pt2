@@ -1,6 +1,6 @@
 # 用本笃会创造一个特别的曼哈顿
 
-> 原文:[https://life hacker . com/make-an-extra-fancy-Manhattan-with-Benedict ine-1841978492](https://lifehacker.com/make-an-extra-fancy-manhattan-with-benedictine-1841978492)
+> 原文：<https://lifehacker.com/make-an-extra-fancy-manhattan-with-benedictine-1841978492>
 
 有时我太专注于杜松子酒和阿玛罗酒，以至于忘记了我刚刚坐在那里等着被消费的完美的威士忌。实际上，这有点奇怪，因为我曾经很喜欢曼哈顿和曼哈顿变体。
 

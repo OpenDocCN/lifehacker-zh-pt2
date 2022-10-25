@@ -1,6 +1,6 @@
 # 如何用一对纸盘子进行全身锻炼
 
-> 原文:[https://life hacker . com/how-to-get-a-full-body-workout with-pair-of-paper-PLA-1843923503](https://lifehacker.com/how-to-get-a-full-body-workout-with-a-pair-of-paper-pla-1843923503)
+> 原文：<https://lifehacker.com/how-to-get-a-full-body-workout-with-a-pair-of-paper-pla-1843923503>
 
 即使你的 [健身房重新开放](https://vitals.lifehacker.com/how-to-stay-safe-when-you-go-back-to-the-gym-1843568135) ，当你可以的时候，呆在家里仍然是最安全的，所以我们这个月将致力于 DIY 健身器材。今天:不起眼的纸盘子。
 

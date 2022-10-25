@@ -1,6 +1,6 @@
 # 看看这个免费的音乐和播客制作营
 
-> 原文:[https://life hacker . com/check-out-this-free-music-and-podcast-production-camp-f-1844052206](https://lifehacker.com/check-out-this-free-music-and-podcast-production-camp-f-1844052206)
+> 原文：<https://lifehacker.com/check-out-this-free-music-and-podcast-production-camp-f-1844052206>
 
 如果你的孩子曾经想创作自己的音乐或制作自己的播客，他们今年夏天有机会在自己的家里，按照自己的节奏，免费学习一些基础知识。
 

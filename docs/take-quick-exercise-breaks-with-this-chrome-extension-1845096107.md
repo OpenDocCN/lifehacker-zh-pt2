@@ -1,6 +1,6 @@
 # 使用这款 Chrome 扩展，快速锻炼休息
 
-> 原文:[https://life hacker . com/take-quick-exercise-breaks-with-this-chrome-extension-1845096107](https://lifehacker.com/take-quick-exercise-breaks-with-this-chrome-extension-1845096107)
+> 原文：<https://lifehacker.com/take-quick-exercise-breaks-with-this-chrome-extension-1845096107>
 
 尽管我喜欢从办公桌前站起来做点运动的想法，但我不擅长真正贯彻这些意图。我最近安装了一个名为 [WFH 唤醒](https://www.wfhwakeup.com) 的 Chrome 扩展(也可以作为 Mac 应用程序使用)，让它变得简单。
 

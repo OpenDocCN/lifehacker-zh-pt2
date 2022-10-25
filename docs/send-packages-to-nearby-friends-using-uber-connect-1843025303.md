@@ -1,6 +1,6 @@
 # 使用优步连接向附近的朋友发送包裹
 
-> 原文:[https://life hacker . com/send-packages-to-near-friends-using-Uber-connect-1843025303](https://lifehacker.com/send-packages-to-nearby-friends-using-uber-connect-1843025303)
+> 原文：<https://lifehacker.com/send-packages-to-nearby-friends-using-uber-connect-1843025303>
 
 随着我们继续保持物理距离，我们都在寻找与我们所爱的人和同事保持联系的方法。我们可以在 Zoom 上看到对方，但是送礼物或者爱心包裹呢？现在，试图去邮局或给任何人寄包裹似乎既费时又有潜在的危险。物品到达目的地的时间也越来越长。我在三月底通过美国邮政寄给某人一本儿童书籍，他们上周收到了——一个月后。
 

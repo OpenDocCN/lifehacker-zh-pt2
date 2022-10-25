@@ -1,6 +1,6 @@
 # 要最大化信用卡奖励，请在关闭卡之前转移您的限额
 
-> 原文:[https://life hacker . com/to-maximize-credit-card-rewards-transfer-your-limit-be-1840414150](https://lifehacker.com/to-maximize-credit-card-rewards-transfer-your-limit-be-1840414150)
+> 原文：<https://lifehacker.com/to-maximize-credit-card-rewards-transfer-your-limit-be-1840414150>
 
 关闭信用卡并不总是对你的信用评分有好处。例如，如果你关闭你最老的信用卡，这可能会降低你的整体信用年龄——征信机构通常会给那些保持相同信用账户几十年的人额外的信用评分。
 

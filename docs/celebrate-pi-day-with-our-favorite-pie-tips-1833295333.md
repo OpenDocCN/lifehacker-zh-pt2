@@ -1,6 +1,6 @@
 # 用我们最喜欢的馅饼技巧庆祝圆周率日
 
-> 原文:[https://life hacker . com/professional-pi-day with the our-favorite-pie-tips-1833295333](https://lifehacker.com/celebrate-pi-day-with-our-favorite-pie-tips-1833295333)
+> 原文：<https://lifehacker.com/celebrate-pi-day-with-our-favorite-pie-tips-1833295333>
 
 啊，圆周率日。这一天结合了两件我在理论上喜欢的事情，但我不愿意承认的是有更多的麻烦——烘焙和数学。奇怪的是，我通过烤馅饼来帮助应对大学微积分的压力，显然一个比另一个更容易坚持。(提示:我的生活不再需要微积分。)
 

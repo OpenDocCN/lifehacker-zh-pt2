@@ -1,6 +1,6 @@
 # 如果你倒挂太久，你的身体会怎么样
 
-> 原文:[https://life hacker . com/1793101067](https://lifehacker.com/what-happens-to-your-body-if-you-hang-upside-down-for-t-1793101067)
+> 原文：<https://lifehacker.com/what-happens-to-your-body-if-you-hang-upside-down-for-t-1793101067>
 
 如果你想知道倒挂太久是否会致命，答案是肯定的。如果你不及时直立起来，你的身体会发生什么。
 

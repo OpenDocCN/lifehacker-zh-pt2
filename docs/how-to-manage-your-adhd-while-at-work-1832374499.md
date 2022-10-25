@@ -1,6 +1,6 @@
 # 如何在工作时管理你的多动症
 
-> 原文:[https://life hacker . com/how-to-management-your-ADHD-while-work-1832374499](https://lifehacker.com/how-to-manage-your-adhd-while-at-work-1832374499)
+> 原文：<https://lifehacker.com/how-to-manage-your-adhd-while-at-work-1832374499>
 
 如果你是一个患有注意力缺陷/多动障碍(ADHD)的年轻人，帮助你度过大学时光的东西不一定对你的工作有帮助。
 

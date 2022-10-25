@@ -1,6 +1,6 @@
 # 立即更新您 Android 手机上的 Twitter 应用程序
 
-> 原文:[https://life hacker . com/update-the-Twitter-app-on-your-Android-phone-now-1840577939](https://lifehacker.com/update-the-twitter-app-on-your-android-phone-now-1840577939)
+> 原文：<https://lifehacker.com/update-the-twitter-app-on-your-android-phone-now-1840577939>
 
 如果你在 Android 上使用 Twitter，那么你应该确保你运行的是最新版本的应用。
 

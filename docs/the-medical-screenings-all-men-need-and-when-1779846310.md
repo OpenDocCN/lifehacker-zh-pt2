@@ -1,6 +1,6 @@
 # 所有男人都需要的体检，什么时候
 
-> 原文:[https://life hacker . com/the-medical-screening-all-men-need-when-1779846310](https://lifehacker.com/the-medical-screenings-all-men-need-and-when-1779846310)
+> 原文：<https://lifehacker.com/the-medical-screenings-all-men-need-and-when-1779846310>
 
 无论科学发展新疗法的速度有多快，预防医学将永远是保持健康的最有效和最便宜的方法。在另一篇文章中，我们分享了女性最常见的健康检查；今天我们来看看男性健康筛查:你应该什么时候做，当你做的时候会有什么期待
 

@@ -1,6 +1,6 @@
 # 为什么你应该对你的小孩使用大词
 
-> 原文:[https://life hacker . com/why-you-should-use-big-words-with-your little-kid-1834454510](https://lifehacker.com/why-you-should-use-big-words-with-your-little-kid-1834454510)
+> 原文：<https://lifehacker.com/why-you-should-use-big-words-with-your-little-kid-1834454510>
 
 两周前，当我开车送我五岁的儿子和两岁的女儿从当地游泳池游泳回家时，我的手机响起了坏消息。
 

@@ -1,6 +1,6 @@
 # 只需 59 美元就能买到西南航空公司的单程票
 
-> 原文:[https://life hacker . com/get-a-one-way-ticket-on-south west-for-little-as-59-1841304491](https://lifehacker.com/get-a-one-way-ticket-on-southwest-for-as-little-as-59-1841304491)
+> 原文：<https://lifehacker.com/get-a-one-way-ticket-on-southwest-for-as-little-as-59-1841304491>
 
 在[《纽约时报》](https://www.nytimes.com/2020/01/27/business/cheap-airfare.html) ，记者 Julie Weed 描述了当你与航空公司软件技术相比较时找到廉价机票的困难，软件技术一天内多次改变机票价格以使航空公司受益。最棒的外卖？考虑到价格的波动，没有一个购买航班的“正确时间”。
 

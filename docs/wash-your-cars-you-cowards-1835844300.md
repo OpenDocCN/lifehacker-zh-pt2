@@ -1,6 +1,6 @@
 # 洗你们的车，你们这些懦夫
 
-> 原文:[https://jalopnik.com/wash-your-cars-you-cowards-1835844300](https://jalopnik.com/wash-your-cars-you-cowards-1835844300)
+> 原文：<https://jalopnik.com/wash-your-cars-you-cowards-1835844300>
 
 夏天到了，你有各种借口不洗车(说真的，有任何合理的借口吗？)已经从窗户出去了。太阳出来了，天气很好，每个人的心情都比较好。把你的车开到洗车场去！
 

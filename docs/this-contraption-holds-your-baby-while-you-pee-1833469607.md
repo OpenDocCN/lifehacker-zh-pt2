@@ -1,6 +1,6 @@
 # 当你撒尿的时候，这个装置会抱着你的宝宝
 
-> 原文:[https://life hacker . com/this-prention-hold-you-baby-while-you-pee-1833469607](https://lifehacker.com/this-contraption-holds-your-baby-while-you-pee-1833469607)
+> 原文：<https://lifehacker.com/this-contraption-holds-your-baby-while-you-pee-1833469607>
 
 日本，你怎么这么聪明？上周，当我和 Lifehacker 团队的其他几个成员去东京旅行时，我去了一家购物中心的洗手间。在隔间里有一个奇妙的装置，作为一个婴儿的母亲，它几乎让我哭了(时差和荷尔蒙，伙计)。那是一个用来抱你孩子的座位。嗯，*辉煌*。哪个新父母没有试过把一个大得离谱的婴儿车推进一个小隔间，结果却在做他们的生意时抱起蠕动的孩子并抱着他(或者，上帝禁止，把他放在地上)？这个装置给你自由去*平静地*。
 

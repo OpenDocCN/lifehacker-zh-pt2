@@ -1,6 +1,6 @@
 # 不要让警察偷走你的 DNA
 
-> 原文:[https://life hacker . com/don ' t-let-the-police-steak-your-DNA-1844051310](https://lifehacker.com/dont-let-the-police-steal-your-dna-1844051310)
+> 原文：<https://lifehacker.com/dont-let-the-police-steal-your-dna-1844051310>
 
 在我们最近一集的升级节目 [如何抗议](https://lifehacker.com/how-to-protest-with-activists-l-a-kauffman-and-charle-1844037412) 中，我们了解了很多警察在实施逮捕时可以做什么和无权做什么。我们学到的最重要的事情之一是，警察可能会试图获取你的 DNA 样本，但你不必——也不应该——同意。尽管他们可能会告诉你，但你没有法律义务遵守颊拭子。
 

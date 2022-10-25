@@ -1,6 +1,6 @@
 # 如何在不计算卡路里的情况下追踪你的食物
 
-> 原文:[https://life hacker . com/how-to-track-your food-not counting-calories-1832649187](https://lifehacker.com/how-to-track-your-food-without-counting-calories-1832649187)
+> 原文：<https://lifehacker.com/how-to-track-your-food-without-counting-calories-1832649187>
 
 记录你吃的东西可以帮助你做出更好的选择，因为你知道无论你选择什么，你都必须把它写下来。但这并不意味着你需要纠结于每一卡路里或让应用程序运行减肥计算。如果你只是想在你的饮食中寻找大图模式，那么(在 iOS 和 Android 上免费)是一种低调的方式。
 

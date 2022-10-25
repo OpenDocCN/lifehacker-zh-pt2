@@ -1,6 +1,6 @@
 # 看看克雷奥拉的新的“世界的颜色”蜡笔
 
-> 原文:[https://life hacker . com/check-out-crayolas-new-colors-of-the-world-crayons-1843853446](https://lifehacker.com/check-out-crayolas-new-colors-of-the-world-crayons-1843853446)
+> 原文：<https://lifehacker.com/check-out-crayolas-new-colors-of-the-world-crayons-1843853446>
 
 在种族成为全国话题的时候，克雷奥拉终于为孩子们提供了多种颜色供他们在画自画像、全家福和朋友的照片时选择。克雷奥拉称该套装为“世界的颜色”[，现在已经可以预订了。](https://www.crayola.com/worldcolors)
 

@@ -1,6 +1,6 @@
 # 这些杂货店为老年人提供特别服务
 
-> 原文:[https://life hacker . com/these-杂货店有针对老年人的特殊时段-citi-1842411900](https://lifehacker.com/these-grocery-stores-have-special-hours-for-senior-citi-1842411900)
+> 原文：<https://lifehacker.com/these-grocery-stores-have-special-hours-for-senior-citi-1842411900>
 
 社交上的距离是必要的对我们所有人来说，但是对老年人来说，这是必要的。为了帮助这一弱势群体，许多杂货店已经开始为老年顾客提供专门的服务时间。这是我们目前知道的所有商店的列表。如果你知道一个我们没有提到的，一定要在评论里加上。
 

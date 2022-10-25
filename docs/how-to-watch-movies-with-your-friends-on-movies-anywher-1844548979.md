@@ -1,6 +1,6 @@
 # 如何在“随处看电影”上与朋友一起看电影
 
-> 原文:[https://life hacker . com/how-to-watch-movies-with-your-friends-on-movies-any wher-1844548979](https://lifehacker.com/how-to-watch-movies-with-your-friends-on-movies-anywher-1844548979)
+> 原文：<https://lifehacker.com/how-to-watch-movies-with-your-friends-on-movies-anywher-1844548979>
 
 电影无处不在最近推出了 [新的“一起看”功能](https://moviesanywhere.com/watch-together) ，让多人在互联网上同步观看电影之夜。这项新功能可以在你的桌面上运行，也可以通过 Movies Anywhere 的 iOS、Android 和智能电视应用程序运行，这项服务上的所有电影都可以供团体观看派对观看——只要你自己拥有它们。
 

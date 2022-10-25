@@ -1,6 +1,6 @@
 # 如何提高你获得美国国家铁路客运公司席位的机会
 
-> 原文:[https://life hacker . com/how-to-improve-your-occupation of-getting-a-Amtrak-1836602272](https://lifehacker.com/how-to-improve-your-chances-of-getting-a-seat-on-amtrak-1836602272)
+> 原文：<https://lifehacker.com/how-to-improve-your-chances-of-getting-a-seat-on-amtrak-1836602272>
 
 在最近的一次美国国家铁路客运公司之旅中，我很早就到了，尽可能快地登机，然而，却没有座位。我买了一张“保留座位”票，当我向售票员询问此事时，他告诉我火车上的每个人都有一张“保留座位”票，拥有一张票并不能保证你有座位。
 

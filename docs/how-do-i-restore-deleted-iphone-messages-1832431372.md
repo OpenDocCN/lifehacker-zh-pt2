@@ -1,6 +1,6 @@
 # 如何恢复已删除的 iPhone 信息？
 
-> 原文:[https://life hacker . com/how-do-I-restore-deleted-iphone-messages-1832431372](https://lifehacker.com/how-do-i-restore-deleted-iphone-messages-1832431372)
+> 原文：<https://lifehacker.com/how-do-i-restore-deleted-iphone-messages-1832431372>
 
 它发生在我们最好的人身上。你开始了你的一天，一边在你的小世界里导航，一边敲着你的智能手机。在你知道之前，你意识到你不小心在你的设备上做了一些你不想做的事情——至少，这是我为本周提交给 Lifehacker 的 [**Tech 911**](https://lifehacker.com/c/tech-911) 建议专栏设想的场景。
 

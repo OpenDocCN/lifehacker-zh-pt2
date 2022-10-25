@@ -1,6 +1,6 @@
 # 我们解释了 2019 年谷歌搜索最多的饮食
 
-> 原文:[https://life hacker . com/we-explain-the-most-Google-ed-of-2019-1840485962](https://lifehacker.com/we-explain-the-most-googled-diets-of-2019-1840485962)
+> 原文：<https://lifehacker.com/we-explain-the-most-googled-diets-of-2019-1840485962>
 
 2019 年有很多新潮的饮食，包括一些我在开始研究这个名单之前甚至没有听说过的饮食。谷歌公布了谷歌搜索次数最多的十种饮食 ，我们在这里解释它们是什么，以及如果你正在研究它们，你可能想知道什么。
 

@@ -1,6 +1,6 @@
 # 来自我们读者的最佳圣地亚哥旅行建议
 
-> 原文:[https://life hacker . com/the-best-San-Diego-travel-tips-from-our-readers-1831558468](https://lifehacker.com/the-best-san-diego-travel-tips-from-our-readers-1831558468)
+> 原文：<https://lifehacker.com/the-best-san-diego-travel-tips-from-our-readers-1831558468>
 
 本周，超过 150 名 Lifehacker 读者留下了游览或居住在圣地亚哥的建议。甚至不喜欢这座城市的当地人也提供了一些好的建议。圣迭根人就是这么冷。我们已经在原帖子 下的 [标签中精选了所有最好的评论，并收集了以下几个亮点。](https://lifehacker.com/tell-us-your-best-san-diego-travel-tips-1831470580) 
 

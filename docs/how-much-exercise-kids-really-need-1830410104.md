@@ -1,6 +1,6 @@
 # 孩子们真正需要多少锻炼
 
-> 原文:[https://life hacker . com/how-much-exercise-kids-really-need-1830410104](https://lifehacker.com/how-much-exercise-kids-really-need-1830410104)
+> 原文：<https://lifehacker.com/how-much-exercise-kids-really-need-1830410104>
 
 在 [美国人的新锻炼指南](https://vitals.lifehacker.com/the-new-exercise-guidelines-are-even-easier-to-meet-1830380875) 中，孩子们得到了自己的一节。我们并不总是考虑我们的孩子有多四处走动，但我们可能应该这样做。更多的锻炼意味着更好的睡眠和更好的心情，更不用说为孩子更健康的成年做准备了。
 

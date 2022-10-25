@@ -1,6 +1,6 @@
 # 这是准备甜菜最简单的方法
 
-> 原文:[https://life hacker . com/this-is-the-easy-the-easy-to-prepare-beets-1844336961](https://lifehacker.com/this-is-the-easiest-way-to-prepare-beets-1844336961)
+> 原文：<https://lifehacker.com/this-is-the-easiest-way-to-prepare-beets-1844336961>
 
 我以前讨厌甜菜，但我不能告诉你为什么。“它们尝起来像甜蜜的泥土，”我会说，好像这是一件坏事。事实是，甜菜的泥土甜味令人愉悦，非常适合做夏季沙拉和简单的配菜。然而，甜菜在生的时候是一种痛苦。幸运的是，你只需要一盒犹太盐(和一个烤箱)就能做出美味、易剥、漂亮的甜菜。
 

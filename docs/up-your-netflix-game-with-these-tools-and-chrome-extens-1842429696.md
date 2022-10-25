@@ -1,6 +1,6 @@
 # 使用这些工具和 Chrome 扩展来升级你的网飞游戏
 
-> 原文:[https://life hacker . com/up-your-网飞-game-with this-tools-and-chrome-extens-1842429696](https://lifehacker.com/up-your-netflix-game-with-these-tools-and-chrome-extens-1842429696)
+> 原文：<https://lifehacker.com/up-your-netflix-game-with-these-tools-and-chrome-extens-1842429696>
 
 社交距离意味着我们很多人在网飞上花费了更多的时间。如果你的家用电脑上正在观看网飞，那么你会想要看看这些 Chrome 扩展。
 

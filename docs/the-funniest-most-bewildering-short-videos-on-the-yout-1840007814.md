@@ -1,6 +1,6 @@
 # YouTube 俳句子网站上最有趣、最令人困惑的短视频
 
-> 原文:[https://life hacker . com/the-interest-most-wouldered-short-videos-on-the-yout-1840007814](https://lifehacker.com/the-funniest-most-bewildering-short-videos-on-the-yout-1840007814)
+> 原文：<https://lifehacker.com/the-funniest-most-bewildering-short-videos-on-the-yout-1840007814>
 
 YouTube 的 [俳句子编辑](https://www.reddit.com/r/youtubehaiku/) 收集长达 30 秒的好视频。最好的有时是有趣的，有时是感人的，有时是令人困惑的。七年来，我一直是这种类型的鉴赏家。我在下面收集了我最喜欢的。它们绝对是零食——你以为你只能吃一两个 10 秒钟的，但是当你停下来的时候，你已经吃了半个小时了。但与滚动 Instagram 不同的是，你离开时会被感动、改变、充实，痴迷于那位女士如何念出“手袋”这个词
 

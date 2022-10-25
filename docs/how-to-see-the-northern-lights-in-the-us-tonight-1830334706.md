@@ -1,6 +1,6 @@
 # 今晚如何在美国看到北极光
 
-> 原文:[https://life hacker . com/how-to-see-the-northern-lights-in-the-us-tonight-1830334706](https://lifehacker.com/how-to-see-the-northern-lights-in-the-us-tonight-1830334706)
+> 原文：<https://lifehacker.com/how-to-see-the-northern-lights-in-the-us-tonight-1830334706>
 
 今晚，北极光将在美国大陆(我们嫉妒了)阿拉斯加进行一次不寻常的亮相，好吗？所以，如果你在蒙大拿州、北达科他州、明尼苏达州、华盛顿州，或者密歇根州或缅因州的顶端，你可能会有难得的机会看到它们。
 

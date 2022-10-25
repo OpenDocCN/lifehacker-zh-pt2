@@ -1,6 +1,6 @@
 # 让你的孩子去“YouTube 夏令营”
 
-> 原文:[https://life hacker . com/let-your-kids-go-to-camp-YouTube-1844231783](https://lifehacker.com/let-your-kids-go-to-camp-youtube-1844231783)
+> 原文：<https://lifehacker.com/let-your-kids-go-to-camp-youtube-1844231783>
 
 你希望孩子们能去夏令营。他们只想整天出现在 YouTube 上。事实证明，在疫情时代，这两件事都是可能的。而这一切都要感谢“ [营地 YouTube](https://learnathome.withyoutube.com/camp-youtube) ”
 

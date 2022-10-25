@@ -1,6 +1,6 @@
 # 你如何“捕捉”他人的情绪
 
-> 原文:[https://life hacker . com/how-you-can-catch-other-people-emotions-1836728492](https://lifehacker.com/how-you-can-catch-other-peoples-emotions-1836728492)
+> 原文：<https://lifehacker.com/how-you-can-catch-other-peoples-emotions-1836728492>
 
 情绪可能很难控制。我们花了很多时间试图用瑜伽、冥想、在锁着的浴室里深呼吸，或者和朋友们进行一次老式的婊子会议来调节它们。但是一些新的研究表明，我们的内在动机——我们希望 T1 如何感受——会对我们如何受他人情绪影响产生很大影响。
 

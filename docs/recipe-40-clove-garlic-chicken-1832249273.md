@@ -1,6 +1,6 @@
 # 这是 40...蒜香鸡
 
-> 原文:[https://the take out . com/recipe-40-丁香-大蒜-鸡肉-1832249273](https://thetakeout.com/recipe-40-clove-garlic-chicken-1832249273)
+> 原文：<https://thetakeout.com/recipe-40-clove-garlic-chicken-1832249273>
 
 欢迎来到*外卖的* [**大蒜周**](https://thetakeout.com/tag/garlic-week) ，我们的情人节来了世界上最可爱的臭味。
 

@@ -1,6 +1,6 @@
 # 如果您今天购买首张价值 50 美元的亚马逊礼品卡，就可以免费获得 15 美元
 
-> 原文:[https://life hacker . com/get-15-free-if-you-buy-a-50-Amazon-gift-card-today-1836953324](https://lifehacker.com/get-15-free-if-you-buy-a-50-amazon-gift-card-today-1836953324)
+> 原文：<https://lifehacker.com/get-15-free-if-you-buy-a-50-amazon-gift-card-today-1836953324>
 
 我很喜欢给自己买礼品卡。
 

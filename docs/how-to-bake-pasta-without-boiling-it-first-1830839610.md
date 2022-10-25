@@ -1,6 +1,6 @@
 # 如何不先煮就烤意大利面
 
-> 原文:[https://life hacker . com/how-to-bake-pasta-without-boilet-first-1830839610](https://lifehacker.com/how-to-bake-pasta-without-boiling-it-first-1830839610)
+> 原文：<https://lifehacker.com/how-to-bake-pasta-without-boiling-it-first-1830839610>
 
 当外面的天气恶劣时，没有什么比大量的番茄奶酪烤意大利面更令人愉快的了。你可能认为这需要弄脏很多盘子——一个煮东西的锅，一个做酱汁的锅，然后是一个烤盘——但这是不真实的。你所需要做的就是在牛奶浴中慢烤你的意大利面(在一个盘子里)。
 

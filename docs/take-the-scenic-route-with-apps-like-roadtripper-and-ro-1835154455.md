@@ -1,6 +1,6 @@
 # 使用 Roadtripper 和 Porsche 等应用程序选择风景优美的路线
 
-> 原文:[https://life hacker . com/take-the-scene-route-with-apps-like road tripper-and-ro-1835154455](https://lifehacker.com/take-the-scenic-route-with-apps-like-roadtripper-and-ro-1835154455)
+> 原文：<https://lifehacker.com/take-the-scenic-route-with-apps-like-roadtripper-and-ro-1835154455>
 
 一切又变绿了，我们在外面摇下了车窗，这只能意味着一件事:是时候上路了。
 

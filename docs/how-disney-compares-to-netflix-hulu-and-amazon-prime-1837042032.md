@@ -1,6 +1,6 @@
 # 迪士尼+与网飞、Hulu 和亚马逊 Prime 相比如何
 
-> 原文:[https://life hacker . com/how-Disney-comparates-to-网飞-Hulu-and-Amazon-prime-1837042032](https://lifehacker.com/how-disney-compares-to-netflix-hulu-and-amazon-prime-1837042032)
+> 原文：<https://lifehacker.com/how-disney-compares-to-netflix-hulu-and-amazon-prime-1837042032>
 
 现在，迪士尼期待已久的流媒体服务 [【迪士尼+】](https://preview.disneyplus.com/?cid=DSS-Search-Google-Splash-disney+-exact)终于有了正式发布日期(11 月 12 日)，更多细节也已公布，很明显，这不仅仅是迪士尼粉丝的一项小众补充服务——这家媒体巨头正在努力争夺流媒体市场的主导地位。但是，尽管迪士尼有丰富的内容来填充迪士尼+的图书馆，甚至为一些成员打包了一些令人惊讶的交易和额外服务，但它仍然必须与网飞、亚马逊和 Hulu 等主要参与者竞争，这些公司已经在市场上存在多年，并在用户群中占有各自的份额。
 

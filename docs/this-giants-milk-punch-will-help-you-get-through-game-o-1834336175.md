@@ -1,6 +1,6 @@
 # 这个巨人的牛奶潘趣酒将帮助你通过权力的游戏
 
-> 原文:[https://life hacker . com/this-giants-milk-punch-will-help-you-get-through-game-o-1834336175](https://lifehacker.com/this-giants-milk-punch-will-help-you-get-through-game-o-1834336175)
+> 原文：<https://lifehacker.com/this-giants-milk-punch-will-help-you-get-through-game-o-1834336175>
 
 《权力的游戏》的创伤性和压力性意味着最好是拿着一杯酒“享受”。如果你想走主题路线，你可以选择瑟曦批准的葡萄酒或无数的 GoT 主题饮料——T2，但最近在维斯特洛引起轰动的饮料是巨人的牛奶。(如果你对剧透很敏感，还没有看过上周的剧集，现在就转过身去。)
 

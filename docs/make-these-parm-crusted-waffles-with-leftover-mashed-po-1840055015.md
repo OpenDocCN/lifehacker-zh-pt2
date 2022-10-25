@@ -1,6 +1,6 @@
 # 用剩下的土豆泥做这些烤华夫饼
 
-> 原文:[https://life hacker . com/make-these-parm-crushed-waffles-with the left-massed-po-1840055015](https://lifehacker.com/make-these-parm-crusted-waffles-with-leftover-mashed-po-1840055015)
+> 原文：<https://lifehacker.com/make-these-parm-crusted-waffles-with-leftover-mashed-po-1840055015>
 
 我不知道你能不能看出来，但是我最近买了一个华夫饼干机，并且一直在测试华夫饼干的极限。(火腿事实证明，华夫饼干做得很好。)我已经计划将所有的 [剩余馅料](https://lifehacker.com/turn-leftover-stuffing-into-crispy-cheesy-waffles-1839968945) 烤成华夫饼，土豆泥似乎是合理的下一步。
 

@@ -1,6 +1,6 @@
 # 使用这些设置和应用程序隐藏您的 Pixel 3 XL 的相机凹槽
 
-> 原文:[https://life hacker . com/hide-your-pixel-3-xls-camera-notch-with these-settings-1835417790](https://lifehacker.com/hide-your-pixel-3-xls-camera-notch-with-these-settings-1835417790)
+> 原文：<https://lifehacker.com/hide-your-pixel-3-xls-camera-notch-with-these-settings-1835417790>
 
 从智能手机的设置中隐藏 Pixel 3XL 的摄像头缺口其实很容易——但有一个问题。“关闭”凹口还会禁用凹口周围的屏幕区域，该区域会将屏幕空间最上面的部分变成未使用的黑条——它会将通常显示在凹口左右的系统托盘和通知图标向下推到屏幕的主要部分。幸运的是，你可以安装第三方应用来解决这个问题，但首先，我们会告诉你在哪里可以找到你的 Pixel 3 XL 的屏幕凹槽设置。
 

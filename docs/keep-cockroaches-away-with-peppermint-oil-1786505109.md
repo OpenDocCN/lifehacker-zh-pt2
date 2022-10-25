@@ -1,6 +1,6 @@
 # 用薄荷油赶走蟑螂
 
-> 原文:[https://life hacker . com/keep-蟑螂远离薄荷油-1786505109](https://lifehacker.com/keep-cockroaches-away-with-peppermint-oil-1786505109)
+> 原文：<https://lifehacker.com/keep-cockroaches-away-with-peppermint-oil-1786505109>
 
 没有人希望他们的房子里有恶心的害虫，但是你可能不热衷于在你的房子周围使用刺激性的化学物质来驱赶它们。幸运的是，有各种各样的家庭补救方法可以让你的房子免受害虫的侵害，精油发挥了很大的作用。具体来说，如果想驱除蟑螂，一点薄荷油效果出奇的好。
 

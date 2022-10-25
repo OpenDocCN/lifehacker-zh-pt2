@@ -1,6 +1,6 @@
 # 使用谷歌航班获取附近机场的廉价机票提醒
 
-> 原文:[https://life hacker . com/get-priest-airfare-alerts-for-neighborhood-goo-1839692149](https://lifehacker.com/get-cheaper-airfare-alerts-for-nearby-airports-with-goo-1839692149)
+> 原文：<https://lifehacker.com/get-cheaper-airfare-alerts-for-nearby-airports-with-goo-1839692149>
 
 如果你不确定你是否找到了绝对最好的机票，并且想更好地了解你的所有选择，谷歌航班刚刚推出了一个新的更新，让找到便宜的机票变得更容易。
 

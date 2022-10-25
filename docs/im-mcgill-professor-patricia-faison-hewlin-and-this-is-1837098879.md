@@ -1,6 +1,6 @@
 # im mcgill professor patricia faison hewlin and this is 1837098879
 
-> 原文:[https://life hacker . com/im-mcgill-professor-Patricia-fais on-hew Lin-and-this-is-1837098879](https://lifehacker.com/im-mcgill-professor-patricia-faison-hewlin-and-this-is-1837098879)
+> 原文：<https://lifehacker.com/im-mcgill-professor-patricia-faison-hewlin-and-this-is-1837098879>
 
 帕特里夏·休林博士研究组织多样性和少数民族的组织参与和待遇。正如许多我如何工作的主题一样，她的作品有着个人的共鸣。休林博士在博士项目的鼓励下攻读了组织行为学博士学位，该项目旨在通过增加商学院教师的多样性来增加工作场所的多样性。我们和她谈了她的职业道路和她试图解决的问题。
 

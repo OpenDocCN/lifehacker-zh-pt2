@@ -1,6 +1,6 @@
 # 来自我们读者的最佳棕榈泉旅游建议
 
-> 原文:[https://life hacker . com/the-best-palm-springs-travel-tips-from-our-readers-1832401878](https://lifehacker.com/the-best-palm-springs-travel-tips-from-our-readers-1832401878)
+> 原文：<https://lifehacker.com/the-best-palm-springs-travel-tips-from-our-readers-1832401878>
 
 现在是加州棕榈泉的旺季，这是一个经典的沙漠度假小镇，后院有风车，也是本周黑客城市的主题。阅读我们的读者在周一帖子的评论中给 的所有旅行建议，并在这里看到最好的建议。
 

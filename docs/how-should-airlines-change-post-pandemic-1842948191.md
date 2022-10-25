@@ -1,6 +1,6 @@
 # 后疫情时代，航空公司应该如何改变？
 
-> 原文:[https://life hacker . com/how-should-airlines-change-post-疫情-1842948191](https://lifehacker.com/how-should-airlines-change-post-pandemic-1842948191)
+> 原文：<https://lifehacker.com/how-should-airlines-change-post-pandemic-1842948191>
 
 我们即将迎来又一周的旅行限制、封锁和寻找更有创意的方式来适应全天候呆在家里。然而，尽管很难相信，我们最终会回归正常生活。不管是为了工作还是为了休闲，我们最终都会再次登上飞机。但是在大流行后的世界里，飞行会是什么样子呢？当然，我们都知道航空旅行从来就不是一个无缝的过程，充满了挫折和低效。因此，当这个行业停滞不前的时候，我们在问自己——还有你——我们如何让它变得更好？
 

@@ -1,6 +1,6 @@
 # Reddit 最喜欢的心理把戏
 
-> 原文:[https://life hacker . com/reddits-favorite-psychological-tricks-1831985222](https://lifehacker.com/reddits-favorite-psychological-tricks-1831985222)
+> 原文：<https://lifehacker.com/reddits-favorite-psychological-tricks-1831985222>
 
 [“你用过的最有效的心理‘招数’是什么？”](https://www.reddit.com/r/AskReddit/comments/aiv6l6/what_is_the_most_effective_psychological_trick/)T3 问 redditor PM_ME_UR_PUPPYDOGS。在一个仍然很强的帖子里，人们在回答。这是目前为止我们最喜欢的。我们先从 redditor usrnmtkn1 的一个狡猾的例子开始: 
 

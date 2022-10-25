@@ -1,6 +1,6 @@
 # 你应该用厨房剪刀切意大利面吗？
 
-> 原文:[https://life hacker . com/should-you-should-you-cut-your-following-with kitchen-shears-1834952812](https://lifehacker.com/should-you-cut-your-spaghetti-with-kitchen-shears-1834952812)
+> 原文：<https://lifehacker.com/should-you-cut-your-spaghetti-with-kitchen-shears-1834952812>
 
 有一件事我并不特别引以为豪，那就是:不先切面条，我就不能吃意大利面。嗯，我想我可能会，但我只能说那不会很好。我知道这让我成了所有意大利面爱好者的耻辱。
 

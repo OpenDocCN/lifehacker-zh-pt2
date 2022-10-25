@@ -1,6 +1,6 @@
 # 已经放弃新年决心了吗
 
-> 原文:[https://life hacker . com/give-up-on-new-years-resolutions-always-1840930899](https://lifehacker.com/give-up-on-new-years-resolutions-already-1840930899)
+> 原文：<https://lifehacker.com/give-up-on-new-years-resolutions-already-1840930899>
 
 还记得 1 月 1 日，你准备改过自新的时候吗？
 

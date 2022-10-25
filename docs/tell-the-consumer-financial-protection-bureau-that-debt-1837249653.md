@@ -1,6 +1,6 @@
 # 告诉消费者金融保护局收债人不要给你发短信
 
-> 原文:[https://life hacker . com/tell-the-consumer-financial-protection-bureau-that-debt-1837249653](https://lifehacker.com/tell-the-consumer-financial-protection-bureau-that-debt-1837249653)
+> 原文：<https://lifehacker.com/tell-the-consumer-financial-protection-bureau-that-debt-1837249653>
 
 五月，消费者金融保护局 [提出了讨债人](https://lifehacker.com/why-debt-collectors-may-soon-be-able-to-text-you-1834611554) 的新规则。《公平收债法》自 1977 年制定以来一直没有更新，此次更新将限制收债人每周给你打电话的频率，并为逐项列出的账单提供更大的清晰度。但它也允许讨债人给你发短信和电子邮件。
 

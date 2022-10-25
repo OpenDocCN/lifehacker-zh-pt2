@@ -1,6 +1,6 @@
 # 这种复合黄油基本上是鸭子糖霜
 
-> 原文:[https://life hacker . com/this-compound-butter-is-basic-duck-frosting-1838492514](https://lifehacker.com/this-compound-butter-is-basically-duck-frosting-1838492514)
+> 原文：<https://lifehacker.com/this-compound-butter-is-basically-duck-frosting-1838492514>
 
 鸭油和黄油是我最喜欢的两种脂肪，所以直到今天，我还没有把它们混合成一种美味的酱，这让我非常困惑。当我称之为“宏伟”时，你可能会认为我夸张了，但我向你保证，所有其他的赞美都是不够的。当你把鸭油和黄油混合在一起，搅打它，你会得到一种奶油般光滑的酱料，最好的描述是“鸭子糖霜”
 

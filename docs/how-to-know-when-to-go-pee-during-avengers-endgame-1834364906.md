@@ -1,6 +1,6 @@
 # 看《复仇者联盟 4：终局之战》时什么时候去尿尿
 
-> 原文:[https://life hacker . com/how-to-know-when-go-pee-in-Avengers-end game-1834364906](https://lifehacker.com/how-to-know-when-to-go-pee-during-avengers-endgame-1834364906)
+> 原文：<https://lifehacker.com/how-to-know-when-to-go-pee-during-avengers-endgame-1834364906>
 
 《复仇者联盟:终结游戏》(Endgame)于本周末上映，将创纪录数量的观众送往当地影院，观看他们最喜爱的超级英雄的遭遇。
 

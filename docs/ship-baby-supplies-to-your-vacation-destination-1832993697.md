@@ -1,6 +1,6 @@
 # 运送婴儿用品到你的度假目的地
 
-> 原文:[https://life hacker . com/ship-baby-supplies-to-your-vacation-destination-1832993697](https://lifehacker.com/ship-baby-supplies-to-your-vacation-destination-1832993697)
+> 原文：<https://lifehacker.com/ship-baby-supplies-to-your-vacation-destination-1832993697>
 
 当你有了孩子，打包去度假的感觉有点像搬出一个小公寓。婴儿需要很多东西——尿布、尿布霜、湿巾、配方奶粉和食物。一些父母选择在到达新城市时去塔吉特百货或好市多超市购物，但在带着宝宝旅行了一整天后，我最不想做的事情就是把宝宝运送到另一个地方。我最喜欢的解决方案是:带上你在飞行中需要的必需品(和一些额外的舒适用品)，其余的直接运到你的目的地。
 

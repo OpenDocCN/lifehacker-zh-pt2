@@ -1,6 +1,6 @@
 # 用厨房剪刀让沙拉准备更容易
 
-> 原文:[https://life hacker . com/make-salad-prep-easy-with the kitchen-shears-1834382398](https://lifehacker.com/make-salad-prep-easier-with-kitchen-shears-1834382398)
+> 原文：<https://lifehacker.com/make-salad-prep-easier-with-kitchen-shears-1834382398>
 
 沙拉，在我看来，应该是一个只有叉子的操作。一旦沙拉准备好了——最好是在一个大碗 里准备好[——你应该能够不用刀子就能把蔬菜和各种配料捅进嘴里。事实上，在制作沙拉的过程中，我几乎不用刀*——剪刀是我准备沙拉的首选工具。*](https://skillet.lifehacker.com/you-should-eat-your-salad-from-a-large-mixing-bowl-1826074580)
 

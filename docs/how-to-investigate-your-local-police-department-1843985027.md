@@ -1,6 +1,6 @@
 # 如何调查你当地的警察部门
 
-> 原文:[https://life hacker . com/how-to-investigation-your-local-police-department-1843985027](https://lifehacker.com/how-to-investigate-your-local-police-department-1843985027)
+> 原文：<https://lifehacker.com/how-to-investigate-your-local-police-department-1843985027>
 
 反对种族主义和警察暴力的抗议活动 几乎在美国的每个城市都在发生，但你不必非得在大城市这个问题才会影响到你。无论你在哪里，你都有一个当地警察局，作为一名居民，你可以开始推动你想看到的变化。第一步是让你自己了解警察在你的区域实际上在做什么。
 

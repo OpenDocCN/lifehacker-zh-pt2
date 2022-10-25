@@ -1,6 +1,6 @@
 # 阻止 Twitter 随机刷新你的订阅源
 
-> 原文:[https://life hacker . com/stop-Twitter-from-random-refreshing-your-feed-1839635753](https://lifehacker.com/stop-twitter-from-randomly-refreshing-your-feed-1839635753)
+> 原文：<https://lifehacker.com/stop-twitter-from-randomly-refreshing-your-feed-1839635753>
 
 如果你的 Twitter feed 一直无缘无故地滚动和跳跃，以下是解决方法。 [Comms professional 埃文·萨顿](https://twitter.com/3vanSutton/status/1191181454258135040) 在 Twitter 的设置菜单中指向答案。这在移动和桌面上都有效。
 

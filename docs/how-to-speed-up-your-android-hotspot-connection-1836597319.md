@@ -1,6 +1,6 @@
 # 如何加快你的 Android 热点连接
 
-> 原文:[https://life hacker . com/how-to-speed-your-Android-hotspot-connection-1836597319](https://lifehacker.com/how-to-speed-up-your-android-hotspot-connection-1836597319)
+> 原文：<https://lifehacker.com/how-to-speed-up-your-android-hotspot-connection-1836597319>
 
 能够将您的智能手机变成一个微型接入点，可以为其他设备(如您的笔记本电脑)提供互联网连接，这是有史以来最好的功能之一。它救了我很多次，当我需要使用笔记本电脑做一些事情(比如编辑 Lifehacker 的帖子)，但无法访问任何附近的 wifi 时，这种情况就更少见了。
 

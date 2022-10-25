@@ -1,6 +1,6 @@
 # 一个电话就能让你所有的信用卡付款延期
 
-> 原文:[https://life hacker . com/get-all-your-credit-card-payments-with one-cal-1843137590](https://lifehacker.com/get-all-your-credit-card-payments-deferred-with-one-cal-1843137590)
+> 原文：<https://lifehacker.com/get-all-your-credit-card-payments-deferred-with-one-cal-1843137590>
 
 尽管大多数信用卡发行商都宣布了在冠状病毒疫情期间帮助支付账单有困难的消费者的计划，但这还远远不是一张普遍的免费通行证。客户需要联系他们的发卡机构，解释他们遭遇经济困难的原因；然后，债权人需要根据具体情况提供调整。
 

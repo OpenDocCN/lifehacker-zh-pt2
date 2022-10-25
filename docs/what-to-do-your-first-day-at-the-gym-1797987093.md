@@ -1,6 +1,6 @@
 # what to do your first day at the gym 1797987093
 
-> 原文:[https://life hacker . com/what-do-your ' s first-day in the gym-1797987093](https://lifehacker.com/what-to-do-your-first-day-at-the-gym-1797987093)
+> 原文：<https://lifehacker.com/what-to-do-your-first-day-at-the-gym-1797987093>
 
 所以你最终还是硬着头皮买了你一直在说的健身房会员资格。现在怎么办？你可能有很多问题:你应该穿什么？你应该做什么锻炼？这些机器是怎么工作的？这里有一本关于如何让你的第一次健身房经历变得很棒——或者至少可以忍受——的入门书。
 

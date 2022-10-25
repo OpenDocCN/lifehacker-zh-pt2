@@ -1,6 +1,6 @@
 # 如果你住在食物沙漠，去杂货店可以享受打折的 Lyft 乘车服务
 
-> 原文:[https://life hacker . com/get-discounted-lyft-rides-to-the-杂货店-if-you-l-1834300922](https://lifehacker.com/get-discounted-lyft-rides-to-the-grocery-store-if-you-l-1834300922)
+> 原文：<https://lifehacker.com/get-discounted-lyft-rides-to-the-grocery-store-if-you-l-1834300922>
 
 我们很多人认为在我们的社区里有一家杂货店是理所当然的。然而，对许多美国人来说，去杂货店是一次意义重大的长途跋涉，因为到达那里的相关费用而变得更加重要。现在，Lyft 为生活在食品沙漠的人们提供前往美国和加拿大各城市杂货店的折扣旅行，让这种旅行变得更加可行。
 

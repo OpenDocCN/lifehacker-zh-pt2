@@ -1,6 +1,6 @@
 # 为什么宫外孕不能“再植入”
 
-> 原文:[https://life hacker . com/why-an-异位妊娠不能再植入-1840169746](https://lifehacker.com/why-an-ectopic-pregnancy-cant-be-reimplanted-1840169746)
+> 原文：<https://lifehacker.com/why-an-ectopic-pregnancy-cant-be-reimplanted-1840169746>
 
 在过去的几年里，各州一直在考虑甚至通过旨在禁止堕胎的法案。俄亥俄州最近的一项法案包括一项条款，似乎要求医生“重新植入”一个宫外孕 ，这一程序在医学上并不存在。那么什么是宫外孕，为什么“再次植入”是不可能的呢？让我们来看看。
 

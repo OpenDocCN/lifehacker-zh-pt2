@@ -1,6 +1,6 @@
 # 在焦糖酱中加入酸奶油
 
-> 原文:[https://life hacker . com/add-sour-cream-to-your-caramel-sauce-1841024288](https://lifehacker.com/add-sour-cream-to-your-caramel-sauce-1841024288)
+> 原文：<https://lifehacker.com/add-sour-cream-to-your-caramel-sauce-1841024288>
 
 我总是找借口把酸奶油放在我的嘴里。我用所有常见的方式食用它(墨西哥玉米卷、玉米片、蘸酱)，但我也知道把它加入剩余的意大利面(是的，甚至是番茄酱！)然后用玉米片奶酪多力多滋蘸着舀到我脸上。这就是为什么我从未想过把它添加到焦糖中，这让我感到惊讶。
 

@@ -1,6 +1,6 @@
 # 十年来最令人失望的小玩意
 
-> 原文:[https://gizmodo . com/十年来最令人失望的小玩意-1840457136](https://gizmodo.com/the-most-disappointing-gadgets-of-the-decade-1840457136)
+> 原文：<https://gizmodo.com/the-most-disappointing-gadgets-of-the-decade-1840457136>
 
 对于技术的每一次重大飞跃，都有大量的 face plants，不明智的现金攫取，以及只是规划糟糕的技术。所以，这里有一些小玩意和技术，它们绝对是最糟糕的。
 

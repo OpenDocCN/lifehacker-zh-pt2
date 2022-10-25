@@ -1,6 +1,6 @@
 # 医生现在希望更多的成年人接种 HPV 疫苗
 
-> 原文:[https://life hacker . com/doctors-now-want-more-people-to-get-the-HPV-vaccine-1835910633](https://lifehacker.com/doctors-now-want-more-people-to-get-the-hpv-vaccine-1835910633)
+> 原文：<https://lifehacker.com/doctors-now-want-more-people-to-get-the-hpv-vaccine-1835910633>
 
 如果你是一个还没有接种 HPV 疫苗的成年人，这是一个好消息: [一个政府顾问小组最近投票](https://www.apnews.com/e341072cbfa040369fd157bd255ed40a) 推荐 26 岁以下的男性接种疫苗( [以前的](https://lifehacker.com/why-you-have-to-be-26-or-younger-to-get-the-hpv-vaccine-1820647427) 推荐 26 岁以下的女性和 21 岁以下的男性接种疫苗，45 岁以下的人“微弱支持”接种疫苗。
 

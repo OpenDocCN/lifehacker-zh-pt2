@@ -1,5 +1,5 @@
 # 让速溶壶让你的感恩节更轻松
 
-> 原文:[https://life hacker . com/let-the-instant-pot-make-your-thanksgivity-easy-1830163877](https://lifehacker.com/let-the-instant-pot-make-your-thanksgiving-easier-1830163877)
+> 原文：<https://lifehacker.com/let-the-instant-pot-make-your-thanksgiving-easier-1830163877>
 
 感恩节是与你所爱的人(或至少是深情地容忍的人)共度时光的日子，这就是为什么 Lifehacker 的员工决定聚在一起吃员工火鸡大餐。为了让它更加特别，我帮助每个员工做他们指定的菜，给他们一些小技巧和窍门，让这顿饭变得更美味，更容易，更有一点点。首先，我向我们的高级视频制作人乔尔展示如何在速溶锅里制作最美味的红薯泥和最容易去皮的煮鸡蛋(为了调味，咄)。

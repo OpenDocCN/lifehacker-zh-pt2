@@ -1,6 +1,6 @@
 # 破伤风到底是什么？
 
-> 原文:[https://lifehacker.com/what-is-tetanus-anyway-1833496053](https://lifehacker.com/what-is-tetanus-anyway-1833496053)
+> 原文：<https://lifehacker.com/what-is-tetanus-anyway-1833496053>
 
 众所周知，生锈的指甲与破伤风有关，但这种疾病实际上是由细菌引起的，与铁锈没有任何关系。这是你关于什么是破伤风以及如何避免破伤风的入门书(剧透:有疫苗)。
 

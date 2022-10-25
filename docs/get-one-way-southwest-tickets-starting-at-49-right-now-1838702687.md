@@ -1,6 +1,6 @@
 # 现在就买 49 美元起的西南航空单程机票
 
-> 原文:[https://life hacker . com/get-one-way-south west-tickets-starting-at-49-right-now-1838702687](https://lifehacker.com/get-one-way-southwest-tickets-starting-at-49-right-now-1838702687)
+> 原文：<https://lifehacker.com/get-one-way-southwest-tickets-starting-at-49-right-now-1838702687>
 
 秋天正式到来了，这意味着在年底之前，是时候用完你辛苦挣来的 PTO 了。如果你需要一点灵感，西南航空公司正在进行今冬单程航班的促销活动。只需 49 美元，你就可以乘坐单程机票从圣地亚哥飞往拉斯维加斯或纳什维尔飞往亚特兰大(反之亦然)。
 

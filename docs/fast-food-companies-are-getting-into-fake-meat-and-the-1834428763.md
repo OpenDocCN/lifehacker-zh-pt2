@@ -1,6 +1,6 @@
 # 快餐公司正在涉足假肉，结果实际上相当不错
 
-> 原文:[https://gizmodo . com/fast-food-companies-being-to-fake-meat-and-the-1834428763](https://gizmodo.com/fast-food-companies-are-getting-into-fake-meat-and-the-1834428763)
+> 原文：<https://gizmodo.com/fast-food-companies-are-getting-into-fake-meat-and-the-1834428763>
 
 在未来，我们被许诺会飞的汽车和假肉。虽然飞行汽车部分 [还没有淘出](https://paleofuture.gizmodo.com/i-will-literally-eat-the-sun-if-this-flying-car-is-rele-1691753404) ，但假肉似乎准备侵入美国人的生活，特别是通过快餐。在这个过程中，它可能会成为地球的一件大事。
 

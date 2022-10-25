@@ -1,6 +1,6 @@
 # 当你在社交上疏远时，如何参加恢复会议
 
-> 原文:[https://life hacker . com/how-to-accept-a-recovery-meeting-when-you-social-dist-1842362833](https://lifehacker.com/how-to-attend-a-recovery-meeting-when-youre-social-dist-1842362833)
+> 原文：<https://lifehacker.com/how-to-attend-a-recovery-meeting-when-youre-social-dist-1842362833>
 
 在你们许多城市和城镇，社交距离和封闭的设施可能会让参加康复会议变得更加困难。
 

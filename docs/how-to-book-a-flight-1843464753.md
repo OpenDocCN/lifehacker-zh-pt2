@@ -1,6 +1,6 @@
 # 如何预订航班
 
-> 原文:[https://lifehacker.com/how-to-book-a-flight-1843464753](https://lifehacker.com/how-to-book-a-flight-1843464753)
+> 原文：<https://lifehacker.com/how-to-book-a-flight-1843464753>
 
 以前没订过机票吗？听着，我们经历过。也许别人一直在为你做这件事。也许你刚从大学毕业，你的父母总是安排旅行。或者你只是…从来没有坐过飞机。
 

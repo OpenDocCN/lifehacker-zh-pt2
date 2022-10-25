@@ -1,6 +1,6 @@
 # 创造一年一度的父亲节礼物传统
 
-> 原文:[https://life hacker . com/create-an-annual-father-day-gift-tradition-1835480016](https://lifehacker.com/create-an-annual-fathers-day-gift-tradition-1835480016)
+> 原文：<https://lifehacker.com/create-an-annual-fathers-day-gift-tradition-1835480016>
 
 我认为买父亲节礼物比买母亲节礼物更有挑战性。每年，向妈妈表达感激之情的礼物都很常见，也很受欢迎:珠宝、鲜花、一株植物、足疗或按摩的礼券。但是父亲节又来了，我们被垃圾创意轰炸，比如钢笔或烧烤配件。(一个人需要多少威士忌石头？答案是零。他不需要威士忌。)
 

@@ -1,6 +1,6 @@
 # 2018 年育儿幼儿的最佳秘诀
 
-> 原文:[https://life hacker . com/our-2018-生存指南-幼儿-1830990405](https://lifehacker.com/our-2018-guide-to-surviving-toddlers-1830990405)
+> 原文：<https://lifehacker.com/our-2018-guide-to-surviving-toddlers-1830990405>
 
 在蹒跚学步的岁月里，为人父母有时不像是一次有意义的经历，而更像是每天醒来投入战斗。今年我们已经写了很多关于幼儿的文章，当我们结束 2018 年时，感觉是时候重温并收集所有我们最喜欢的幼儿帖子了。
 

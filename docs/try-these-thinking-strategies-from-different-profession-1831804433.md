@@ -1,6 +1,6 @@
 # 如果你被卡住了，试试这些不同职业的思考策略
 
-> 原文:[https://life hacker . com/try-these-thinking-strategies-from-different-career-1831804433](https://lifehacker.com/try-these-thinking-strategies-from-different-profession-1831804433)
+> 原文：<https://lifehacker.com/try-these-thinking-strategies-from-different-profession-1831804433>
 
 “我对这个案子的想法变得非常紧张，”在《大勒保斯基》中的那个家伙说，他发现另一个勒保斯基持有赎金。如果你发现那条线是“大情绪”，用我们这个时代的说法，那么试试这些从各种职业聚集的 [二十五个有用的思考工具](https://www.scotthyoung.com/blog/2018/12/04/25-thinking-tools/) 。
 

@@ -1,6 +1,6 @@
 # 来自我们读者的最佳哥本哈根旅行建议
 
-> 原文:[https://life hacker . com/the-best-Copenhagen-travel-tips-from-our-readers-1832204866](https://lifehacker.com/the-best-copenhagen-travel-tips-from-our-readers-1832204866)
+> 原文：<https://lifehacker.com/the-best-copenhagen-travel-tips-from-our-readers-1832204866>
 
 抓住海格！有人把它编织进阿富汗人的衣服里了吗？时髦的丹麦单词“舒适”读作“呼呼”,但我们不在乎！本周 [Hack 你的城市报道丹麦海滨首都哥本哈根](https://lifehacker.com/tell-us-your-copenhagen-travel-tips-1832059994#replies&_ga=2.211261201.545077928.1548685557-1222396525.1547242489) 。以下是我们从评论者那里了解到的:
 

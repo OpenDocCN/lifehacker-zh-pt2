@@ -1,6 +1,6 @@
 # 我一直把 12 种调料放在炉子旁边
 
-> 原文:[https://life hacker . com/12-seasonings-I-keep-by-my-stock-at-times-1844313629](https://lifehacker.com/12-seasonings-i-keep-by-my-stove-at-all-times-1844313629)
+> 原文：<https://lifehacker.com/12-seasonings-i-keep-by-my-stove-at-all-times-1844313629>
 
 我相信，在每个人的厨房里，都有一堆人们非常倚重的调味料和调味剂。我说的不是盐——对我来说，这完全是另一个话题。我说的是其他的摇壶和瓶子，那些经常被使用的瓶子，它们永远不会被放回橱柜里。我已经开始把我的放在一个小蓝筐里，就在我的炉子旁边，这样它们就不会离我太远。让我给你看看。
 

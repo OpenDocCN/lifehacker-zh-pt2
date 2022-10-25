@@ -1,6 +1,6 @@
 # 据 Reddit 报道，这些是人们实际使用的生活窍门
 
-> 原文:[https://life hacker . com/these-is-the-life-tips-people-actual-use-against-1832564795](https://lifehacker.com/these-are-the-life-tips-people-actually-use-according-1832564795)
+> 原文：<https://lifehacker.com/these-are-the-life-tips-people-actually-use-according-1832564795>
 
 在 Lifehacker，我们不断收到如何过上更优化生活的建议——但并不是所有的建议都是平等的。最好的是那些坚持下来的；据 Reddit 报道，以下是最长寿的秘诀。
 

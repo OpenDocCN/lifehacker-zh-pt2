@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:恶，我的服务员告诉我她生病了
 
-> 原文:[https://the take out . com/my-server-tell-me-she-s-sick-1834726573](https://thetakeout.com/my-server-told-me-she-s-sick-1834726573)
+> 原文：<https://thetakeout.com/my-server-told-me-she-s-sick-1834726573>
 
 > 亲爱的咸:我们最近参加了一个晚上的毕业典礼。我们在演讲开始前就吃了东西，但在听完没完没了的演讲后，我们需要吃点点心。去当地的小餐馆，那里很拥挤——毕业典礼上的每个人都有同样的想法。很好，我们不着急，我们等 45 分钟然后就坐。
 > 

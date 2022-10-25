@@ -1,6 +1,6 @@
 # 不要把你剩下的香槟储存在冰箱里
 
-> 原文:[https://life hacker . com/don ' t-store-your-remain-champagne-1831405420](https://lifehacker.com/dont-store-your-leftover-champagne-in-the-fridge-1831405420)
+> 原文：<https://lifehacker.com/dont-store-your-leftover-champagne-in-the-fridge-1831405420>
 
 如果你有今晚庆祝活动剩下的香槟，帮你自己一个忙，早上把它从冰箱里拿出来。
 

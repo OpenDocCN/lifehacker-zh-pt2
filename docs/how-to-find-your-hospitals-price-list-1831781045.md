@@ -1,6 +1,6 @@
 # 如何找到自己医院的价目表
 
-> 原文:[https://life hacker . com/how-to-find-your-hospitals-price-list-1831781045](https://lifehacker.com/how-to-find-your-hospitals-price-list-1831781045)
+> 原文：<https://lifehacker.com/how-to-find-your-hospitals-price-list-1831781045>
 
 在医院 [的任何东西的实际费用是一个谜，直到你拿到账单](https://vitals.lifehacker.com/why-health-care-is-so-expensive-1775781692) ，但是从 2019 年 1 月 1 日起，医院必须在网上公布所有价格的清单。它可能令人困惑，几乎不可读，很难找到，但它是*在那里*。某处。
 

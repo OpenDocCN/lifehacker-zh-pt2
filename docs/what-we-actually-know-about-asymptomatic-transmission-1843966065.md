@@ -1,6 +1,6 @@
 # 我们对无症状传播的实际了解
 
-> 原文:[https://life hacker . com/what-we-actual-know-about-missionally-transmission-1843966065](https://lifehacker.com/what-we-actually-know-about-asymptomatic-transmission-1843966065)
+> 原文：<https://lifehacker.com/what-we-actually-know-about-asymptomatic-transmission-1843966065>
 
 你可能已经看过最近的 [头条](https://twitter.com/CNBC/status/1270057840774983683) “无症状患者”并没有推动冠状病毒的传播。这似乎表明我们所有关于面具和距离的措施都是无用的——但这是对证据的误解
 

@@ -1,6 +1,6 @@
 # 三星的 Galaxy ' Lite ' Androids 能超越其旗舰产品吗？
 
-> 原文:[https://life hacker . com/how-do-Samsung-s-galaxy-S10-lite-and-note-10-lite-compa-1840790121](https://lifehacker.com/how-do-samsung-s-galaxy-s10-lite-and-note-10-lite-compa-1840790121)
+> 原文：<https://lifehacker.com/how-do-samsung-s-galaxy-s10-lite-and-note-10-lite-compa-1840790121>
 
 正如预期的那样，三星计划推出其旗舰产品 Galaxy S10 和 Galaxy Note 10 智能手机的经济型版本。这些手机的“精简”版本还没有价格或发布日期，但我们已经知道了相当多的关于它们的规格——并且肯定会在下周的 CES 上听到更多。在那之前，我会推迟购买大型三星安卓系统，因为三星的精简版很有可能比原版更适合你。
 

@@ -1,6 +1,6 @@
 # 如何从 Spotify 获得免费的 Google Home Mini
 
-> 原文:[https://life hacker . com/how-to-get-a-free-Google-home-mini-from-Spotify-1840364688](https://lifehacker.com/how-to-get-a-free-google-home-mini-from-spotify-1840364688)
+> 原文：<https://lifehacker.com/how-to-get-a-free-google-home-mini-from-spotify-1840364688>
 
 如果你无法为你假日购物清单上的人挑选一台谷歌 Home Mini，不要担心——谷歌和 Spotify 正在向所有 Spotify 订户免费赠送。
 

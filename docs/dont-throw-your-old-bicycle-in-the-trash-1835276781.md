@@ -1,6 +1,6 @@
 # 不要把你的旧自行车扔进垃圾桶
 
-> 原文:[https://life hacker . com/don ' t-throw-your-old-bicycle-in-trash-1835276781](https://lifehacker.com/dont-throw-your-old-bicycle-in-the-trash-1835276781)
+> 原文：<https://lifehacker.com/dont-throw-your-old-bicycle-in-the-trash-1835276781>
 
 在中国的各个村庄和大城市的空地上，到处都是报废自行车的墓地。地方政府长期以来一直在纠结如何处理数百万辆被遗弃的自行车——这是支持该国自行车共享计划(后来在相关大公司宣布破产后，该计划土崩瓦解)最初供过于求的结果。)
 

@@ -1,6 +1,6 @@
 # fake meat smackdown impossible burger vs beyond burge 1835060818
 
-> 原文:[https://life hacker . com/fake-meat-smack down-impossible-burger-vs-beyond-burge-1835060818](https://lifehacker.com/fake-meat-smackdown-impossible-burger-vs-beyond-burge-1835060818)
+> 原文：<https://lifehacker.com/fake-meat-smackdown-impossible-burger-vs-beyond-burge-1835060818>
 
 我曾经吃过很多蔬菜汉堡。
 

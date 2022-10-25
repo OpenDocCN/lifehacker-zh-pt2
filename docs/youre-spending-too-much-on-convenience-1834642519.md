@@ -1,6 +1,6 @@
 # 你在“便利”上花费太多了
 
-> 原文:[https://life hacker . com/you-spending-that-buddy-1834642519](https://lifehacker.com/youre-spending-too-much-on-convenience-1834642519)
+> 原文：<https://lifehacker.com/youre-spending-too-much-on-convenience-1834642519>
 
 你每个月浪费多少钱？你有没有算过帐，或者只是在冲动购物时抱怨一下，因为它们会出现在你的银行对账单上？
 

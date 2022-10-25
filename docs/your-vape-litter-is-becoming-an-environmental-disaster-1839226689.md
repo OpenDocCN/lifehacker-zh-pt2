@@ -1,6 +1,6 @@
 # 你的垃圾正在变成一场环境灾难
 
-> 原文:[https://gizmodo . com/your-vape-litter-is-being-a-environmental-disaster-1839226689](https://gizmodo.com/your-vape-litter-is-becoming-an-environmental-disaster-1839226689)
+> 原文：<https://gizmodo.com/your-vape-litter-is-becoming-an-environmental-disaster-1839226689>
 
 任何参加过海滩清理的人都熟悉经典的烟蒂杯。这些肮脏、潮湿、化学成分残留的香烟是最主要的物品——每次清理通常数以千计——在美国许多地方的沙子中发现，还有其他塑料污染。
 

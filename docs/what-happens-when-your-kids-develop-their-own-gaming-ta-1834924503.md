@@ -1,6 +1,6 @@
 # 当你的孩子发展出自己的游戏品味时会发生什么
 
-> 原文:[https://kotaku . com/what-happens-when-when-your-kids-develop-own-gaming-ta-1834924503](https://kotaku.com/what-happens-when-your-kids-develop-their-own-gaming-ta-1834924503)
+> 原文：<https://kotaku.com/what-happens-when-your-kids-develop-their-own-gaming-ta-1834924503>
 
 在美好的几年里，你几乎可以完全控制你的孩子玩什么。你决定什么是允许的，什么时候，一起玩什么，和一个兴奋的五岁孩子分享哪些过去的珍宝。然后再多一点时间过去，突然情况就完全不一样了。
 

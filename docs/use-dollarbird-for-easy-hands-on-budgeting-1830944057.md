@@ -1,6 +1,6 @@
 # 使用 DollarBird 进行简单的实际预算
 
-> 原文:[https://life hacker . com/use-dollar bird-for-easy-hand-on-budgeting-1830944057](https://lifehacker.com/use-dollarbird-for-easy-hands-on-budgeting-1830944057)
+> 原文：<https://lifehacker.com/use-dollarbird-for-easy-hands-on-budgeting-1830944057>
 
 市场上不乏预算应用程序，但有时，与其用类别、图表、图形和每天提醒你超出预设预算或在某个类别(咳咳，薄荷)中有“不规则支出”，不如用一些简单的东西来跟踪你的支出。
 

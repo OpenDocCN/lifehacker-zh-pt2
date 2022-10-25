@@ -1,6 +1,6 @@
 # 为了拯救生命，学习什么是 AED 和如何使用它
 
-> 原文:[https://life hacker . com/to-save-lifes-learn-what-an-aed-is-and-how-to-use-one-1838740113](https://lifehacker.com/to-save-lives-learn-what-an-aed-is-and-how-to-use-one-1838740113)
+> 原文：<https://lifehacker.com/to-save-lives-learn-what-an-aed-is-and-how-to-use-one-1838740113>
 
 如果你在公共场所看到有人晕倒，你可能已经知道应该拨打 911[开始胸部按压](https://cpr.heart.org/en/cpr-courses-and-kits/hands-only-cpr/hands-only-cpr-resources) 。但是还有一个重要的行动可以帮助这个人活下来:派人去抓最近的 AED。
 

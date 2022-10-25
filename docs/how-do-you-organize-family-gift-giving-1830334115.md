@@ -1,6 +1,6 @@
 # 你如何组织家庭送礼？
 
-> 原文:[https://life hacker . com/how-do-you-organize-family-gift-giving-1830334115](https://lifehacker.com/how-do-you-organize-family-gift-giving-1830334115)
+> 原文：<https://lifehacker.com/how-do-you-organize-family-gift-giving-1830334115>
 
 有些人喜欢送节日礼物:对他们来说，这是一门艺术，是需要掌握的东西，是度过一两个下午的有趣方式。其他人害怕每年送礼物，希望家人能说出他们真正想要的，而不是依靠他们最亲近的人在节日袜子或香味乳液之间来回徘徊。
 

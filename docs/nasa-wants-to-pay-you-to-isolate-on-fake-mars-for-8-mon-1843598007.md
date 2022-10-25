@@ -1,6 +1,6 @@
 # NASA 想付钱让你在假火星上隔离 8 个月
 
-> 原文:[https://life hacker . com/NASA-wants-pay-you-to-isolate-on-fake-mars-for-8 mon-1843598007](https://lifehacker.com/nasa-wants-to-pay-you-to-isolate-on-fake-mars-for-8-mon-1843598007)
+> 原文：<https://lifehacker.com/nasa-wants-to-pay-you-to-isolate-on-fake-mars-for-8-mon-1843598007>
 
 如果，在冠状病毒疫情爆发两个多月之后，你对自己说，“嗯，隔离生活对我来说挺管用的，”NASA 可能正好有适合你的工作。太空总署 [正在寻找申请人](https://www.nasa.gov/feature/nasa-seeking-us-citizens-for-social-isolation-study-for-moon-and-mars-missions/) 进行一项社会隔离研究，为未来的火星和月球太空飞行任务开发方法和技术。以下是你需要了解的关于这份工作的一些情况，我们现在突然比几个月前更有资格做这件事。
 

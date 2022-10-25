@@ -1,6 +1,6 @@
 # 每种啤酒都有客观完美的包装
 
-> 原文:[https://the take out . com/the-perfect-package-for-every-style-of-beer-1835948287](https://thetakeout.com/the-perfect-package-for-every-style-of-beer-1835948287)
+> 原文：<https://thetakeout.com/the-perfect-package-for-every-style-of-beer-1835948287>
 
 如果你的室友发短信给你“嘿，请在回家的路上买些啤酒”，你会怎么想？最有可能的是，你想象的是六瓶装的，但是它包含罐头或瓶子吗？或者可能是一个星期五，30 包让你和朋友度过周末更适合你。或者也许你正在寻找一个 [软木塞和笼子](https://upload.wikimedia.org/wikipedia/commons/thumb/3/39/Beer_bottle_sealed_with_a_cork_and_muselet.jpg/220px-Beer_bottle_sealed_with_a_cork_and_muselet.jpg) 专业瓶，你们两个可以在晚餐时分享。
 

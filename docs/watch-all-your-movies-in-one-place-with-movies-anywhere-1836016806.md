@@ -1,6 +1,6 @@
 # 通过“随处看电影”在一个地方观看所有电影
 
-> 原文:[https://life hacker . com/watch-all-your-movies-in-place-with movies-anywhere-1836016806](https://lifehacker.com/watch-all-your-movies-in-one-place-with-movies-anywhere-1836016806)
+> 原文：<https://lifehacker.com/watch-all-your-movies-in-one-place-with-movies-anywhere-1836016806>
 
 尽管每个数字零售商都尽最大努力成为首选的单一平台，但我们大多数人的媒体购买都分散在多个账户中。根据您购买的数量，可能很难记住您的单个电影和电视节目的位置。“我是在亚马逊 Prime 上买的疾速追杀，还是在 YouTube 上买的？也许是 iTunes”却发现其实一直都是 Vudu。这里有一个应用程序，它将减轻你的困惑，让访问和购买数字内容更容易开始。
 

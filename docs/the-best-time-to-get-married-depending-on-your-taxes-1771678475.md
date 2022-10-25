@@ -1,6 +1,6 @@
 # 结婚的最佳时间，取决于你的税收
 
-> 原文:[https://life hacker . com/the-best-time to-marriage-on-your-taxes-1771678475](https://lifehacker.com/the-best-time-to-get-married-depending-on-your-taxes-1771678475)
+> 原文：<https://lifehacker.com/the-best-time-to-get-married-depending-on-your-taxes-1771678475>
 
 你必须是一个非常实际的人才能在税收问题上安排你的婚礼，但是大多数人在结婚前都会考虑婚姻的经济利益。你的时机会影响你向 IRS 支付的金额——了解婚姻对你纳税的影响是有帮助的，这样你就不会对即将到来的纳税季的巨额账单(或退款)感到惊讶。
 

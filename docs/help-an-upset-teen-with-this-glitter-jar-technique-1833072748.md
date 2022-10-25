@@ -1,6 +1,6 @@
 # 用这个闪光罐技术帮助一个沮丧的青少年
 
-> 原文:[https://life hacker . com/help-an-upset-teen-with this-glitter-jar-technique-1833072748](https://lifehacker.com/help-an-upset-teen-with-this-glitter-jar-technique-1833072748)
+> 原文：<https://lifehacker.com/help-an-upset-teen-with-this-glitter-jar-technique-1833072748>
 
 当一个青少年真的心烦的时候，父母经常觉得需要*做*一些事情——收集信息(“谁伤害了你，他们的电话号码是多少？”)，开始一场深刻的讲座，或者尝试一种他们在 TED 演讲中听到的解决问题的技巧。
 

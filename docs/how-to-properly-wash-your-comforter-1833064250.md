@@ -1,6 +1,6 @@
 # 如何正确清洗你的被子
 
-> 原文:[https://life hacker . com/how-to-right-wash-your-comforter-1833064250](https://lifehacker.com/how-to-properly-wash-your-comforter-1833064250)
+> 原文：<https://lifehacker.com/how-to-properly-wash-your-comforter-1833064250>
 
 我们中的一些人现在正蜷缩在被子下诅咒寒冷，所以清洗维持生命层的想法可能看起来令人愤慨。但是你必须——这很脏。
 

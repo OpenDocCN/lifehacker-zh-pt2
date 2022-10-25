@@ -1,6 +1,6 @@
 # 确保你没有购买这些召回的冷冻鸡肉饼
 
-> 原文:[https://life hacker . com/make-sure-you-not-buy-these-recall-frozen-chicken-p-1837350912](https://lifehacker.com/make-sure-you-didnt-buy-these-recalled-frozen-chicken-p-1837350912)
+> 原文：<https://lifehacker.com/make-sure-you-didnt-buy-these-recalled-frozen-chicken-p-1837350912>
 
 泰森公司正在召回超过 39，000 磅冷冻鸡肉饼，原因是担心它们被“外来物质”污染
 

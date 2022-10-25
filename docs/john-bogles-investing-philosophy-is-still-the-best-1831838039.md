@@ -1,6 +1,6 @@
 # 约翰·博格尔的投资哲学仍然是最好的
 
-> 原文:[https://life hacker . com/John-bogles-investing-philosophy-is-still-the-best-1831838039](https://lifehacker.com/john-bogles-investing-philosophy-is-still-the-best-1831838039)
+> 原文：<https://lifehacker.com/john-bogles-investing-philosophy-is-still-the-best-1831838039>
 
 先锋集团(Vanguard Group)创始人、个人投资者指数共同基金(index mutual fund)创始人约翰·c·博格尔(John C. Bogle)于周三去世。 [他 89 岁](https://www.nytimes.com/2019/01/16/obituaries/john-bogle-vanguard-dead.html) 。
 

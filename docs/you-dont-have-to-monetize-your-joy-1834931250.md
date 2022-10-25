@@ -1,6 +1,6 @@
 # 你不必将你的快乐货币化
 
-> 原文:[https://life hacker . com/you-don-to-money-you-joy-1834931250](https://lifehacker.com/you-dont-have-to-monetize-your-joy-1834931250)
+> 原文：<https://lifehacker.com/you-dont-have-to-monetize-your-joy-1834931250>
 
 这就是作家莫莉·康威所说的的绝妙方式，一个值得重复的古老建议:当你擅长某件事时，人们会告诉你把它变成你的工作，但你不必这样做。你可能不想。为钱做事和为乐趣做事是非常不同的。尽管如此，在现代世界，每当我们看到某人的天赋，我们都会鼓励他们用它来赚钱。康威谈到遇到一个自己做衣服的女人:
 

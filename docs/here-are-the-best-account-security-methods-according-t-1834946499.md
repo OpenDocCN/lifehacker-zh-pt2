@@ -1,6 +1,6 @@
 # 根据谷歌的说法，以下是最好的账户安全方法
 
-> 原文:[https://life hacker . com/here-are-the-best-account-security-methods-against-t-1834946499](https://lifehacker.com/here-are-the-best-account-security-methods-according-t-1834946499)
+> 原文：<https://lifehacker.com/here-are-the-best-account-security-methods-according-t-1834946499>
 
 无论你走到哪里，都会有人分发关于账户安全和隐私的建议。虽然提醒你可以保护关键数据的所有方法不会有什么坏处，但是你有没有想过你正在采取的各种安全措施是否真的有效？
 

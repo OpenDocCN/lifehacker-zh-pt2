@@ -1,6 +1,6 @@
 # 10 月 26 日在哪里可以得到免费的南瓜
 
-> 原文:[https://life hacker . com/where-to-get-free-pumpkin-treats-on-10-26-1839362220](https://lifehacker.com/where-to-get-free-pumpkin-treats-on-october-26-1839362220)
+> 原文：<https://lifehacker.com/where-to-get-free-pumpkin-treats-on-october-26-1839362220>
 
 周六是 [国家南瓜日](https://nationaldaycalendar.com/national-pumpkin-day-october-26/) ，一个假装的节日，因为你可以免费吃一些东西。以下是南瓜主题的赠品和折扣，按照物有所值的顺序。
 

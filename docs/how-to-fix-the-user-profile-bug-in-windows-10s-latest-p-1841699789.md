@@ -1,6 +1,6 @@
 # 如何修复 Windows 10 最新补丁中的用户档案漏洞
 
-> 原文:[https://life hacker . com/how-to-fix-the-user-profile-bug-in-windows-10s-latest-p-1841699789](https://lifehacker.com/how-to-fix-the-user-profile-bug-in-windows-10s-latest-p-1841699789)
+> 原文：<https://lifehacker.com/how-to-fix-the-user-profile-bug-in-windows-10s-latest-p-1841699789>
 
 又来了:最新的 Windows 10 补丁 [KB4532693](https://support.microsoft.com/en-us/help/4532693/windows-10-update-kb4532693) 可能会让你陷入一个恼人的 bug。一些安装了它的 Windows 用户报告说，当他们登录时，他们的 Windows 用户档案——以及其中的所有数据和应用程序——无法加载。
 

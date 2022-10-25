@@ -1,6 +1,6 @@
 # 将普通的罐装朝鲜蓟变成多用途的素食酱
 
-> 原文:[https://life hacker . com/turn-平庸-罐装-朝鲜蓟-变成-万能-纯素-1845067547](https://lifehacker.com/turn-mediocre-canned-artichokes-into-a-versatile-vegan-1845067547)
+> 原文：<https://lifehacker.com/turn-mediocre-canned-artichokes-into-a-versatile-vegan-1845067547>
 
 我最喜欢的恐慌餐之一包括 [无论我冰箱里有什么悲伤的产品，都有目的地烧成脆片，并浇上一些脂肪](https://lifehacker.com/how-to-turn-any-vegetable-into-a-delicious-smoky-dip-1831349613) 。这是一个让早已过了黄金期的蔬菜复活的好方法*和*一个晚餐吃薯条和蘸酱的借口——这总是一个优点。
 

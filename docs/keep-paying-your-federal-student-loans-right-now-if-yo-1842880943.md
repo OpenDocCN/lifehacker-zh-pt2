@@ -1,6 +1,6 @@
 # 如果可以的话，现在就继续支付你的联邦学生贷款
 
-> 原文:[https://life hacker . com/keep-pay-your-federal-student-loans-right-now-if-yo-1842880943](https://lifehacker.com/keep-paying-your-federal-student-loans-right-now-if-yo-1842880943)
+> 原文：<https://lifehacker.com/keep-paying-your-federal-student-loans-right-now-if-yo-1842880943>
 
 大多数联邦学生贷款借款人 [直到 2020 年 10 月才需要支付](https://lifehacker.com/heres-the-new-coronavirus-student-loan-plan-1842560767) ，在此期间没有利息累积的风险。
 

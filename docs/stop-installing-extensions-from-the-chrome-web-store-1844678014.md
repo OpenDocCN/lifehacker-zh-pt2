@@ -1,6 +1,6 @@
 # 停止使用 Chrome 网络商店查找扩展
 
-> 原文:[https://life hacker . com/stop-installing-extensions-from-the-chrome-web-store-1844678014](https://lifehacker.com/stop-installing-extensions-from-the-chrome-web-store-1844678014)
+> 原文：<https://lifehacker.com/stop-installing-extensions-from-the-chrome-web-store-1844678014>
 
 这听起来违反直觉，但请听我说完。如果你正在寻找一个新的浏览器扩展来尝试，或者你想下载一个推荐给你的，停止使用 Chrome 网络商店来寻找它。
 

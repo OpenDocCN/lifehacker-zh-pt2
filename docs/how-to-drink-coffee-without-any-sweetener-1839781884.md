@@ -1,6 +1,6 @@
 # 如何喝没有任何甜味剂的咖啡
 
-> 原文:[https://life hacker . com/how-to-drink-coffee-no . 1839781884](https://lifehacker.com/how-to-drink-coffee-without-any-sweetener-1839781884)
+> 原文：<https://lifehacker.com/how-to-drink-coffee-without-any-sweetener-1839781884>
 
 有人想从加糖咖啡转向不加糖咖啡有很多原因。有些与健康有关，有些则无关。一个人如何喝咖啡是非常私人的事情，不应该受到势利或评判的评论。我在这里不是要对动机做出判断，但是如果有人想停止在咖啡里加糖，我有一些建议。
 

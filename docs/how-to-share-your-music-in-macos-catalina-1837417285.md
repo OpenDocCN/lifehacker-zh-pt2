@@ -1,6 +1,6 @@
 # 如何在 macOS Catalina 中分享您的音乐
 
-> 原文:[https://life hacker . com/how-to-share-your-music-in-MAC OS-catalina-1837417285](https://lifehacker.com/how-to-share-your-music-in-macos-catalina-1837417285)
+> 原文：<https://lifehacker.com/how-to-share-your-music-in-macos-catalina-1837417285>
 
 [Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)) : title[![](../Images/80a55aae3a4e6ac59b23fae8fccddf22.png)](https://applemacos.kinja.com)[Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)Many people turn to Macs because they're incredibly easy to operate. That's true, but there's still plenty worth knowing before you can truly master your Mac.
 

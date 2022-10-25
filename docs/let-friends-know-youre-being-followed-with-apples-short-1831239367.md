@@ -1,6 +1,6 @@
 # 让朋友知道你正被苹果的快捷方式功能关注
 
-> 原文:[https://life hacker . com/let-friends-know-you-following-with-apple-short-1831239367](https://lifehacker.com/let-friends-know-youre-being-followed-with-apples-short-1831239367)
+> 原文：<https://lifehacker.com/let-friends-know-youre-being-followed-with-apples-short-1831239367>
 
 一个人走回家或者去酒吧或餐馆有时会很可怕，尤其是如果你是女人的话。 [一位 Reddit 用户](https://www.reddit.com/r/shortcuts/comments/a7qzf4/i_made_a_shortcut_for_addressing_the_issue_of/) 想出了一个有趣的方法来 [使用苹果的快捷方式功能](https://itunes.apple.com/app/shortcuts/id915249334) :让你的朋友知道你认为你被跟踪了。
 

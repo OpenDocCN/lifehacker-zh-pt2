@@ -1,6 +1,6 @@
 # 如何确定健身房适合你
 
-> 原文:[https://life hacker . com/how-to-assure-a-gym-right-for-you-1841330265](https://lifehacker.com/how-to-make-sure-a-gym-is-right-for-you-1841330265)
+> 原文：<https://lifehacker.com/how-to-make-sure-a-gym-is-right-for-you-1841330265>
 
 如果你最近对你的健身房有了新的想法，也许是因为最近的一大群决心爱好者，可能是时候放弃了——去找一个新的健身房。
 

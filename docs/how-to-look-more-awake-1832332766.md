@@ -1,6 +1,6 @@
 # 如何看起来更清醒
 
-> 原文:[https://lifehacker.com/how-to-look-more-awake-1832332766](https://lifehacker.com/how-to-look-more-awake-1832332766)
+> 原文：<https://lifehacker.com/how-to-look-more-awake-1832332766>
 
 我是一个可怕的睡眠者。
 

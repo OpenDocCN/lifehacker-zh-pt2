@@ -1,6 +1,6 @@
 # 如何支持你的气候变化抗议者
 
-> 原文:[https://life hacker . com/how-to-support-your-climate-change-抗议者-1833290679](https://lifehacker.com/how-to-support-your-climate-change-protestor-1833290679)
+> 原文：<https://lifehacker.com/how-to-support-your-climate-change-protestor-1833290679>
 
 一年前，全国的学龄儿童举行了罢课和抗议活动 [向他们的代表施压，要求他们支持有意义的枪支立法](https://lifehacker.com/a-students-guide-to-walkouts-and-protests-1823334274) 。
 

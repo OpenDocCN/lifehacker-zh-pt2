@@ -1,6 +1,6 @@
 # 《权力的游戏》结束后看什么
 
-> 原文:[https://life hacker . com/what-to-watch-after-game-of-thrones-ends-1834783169](https://lifehacker.com/what-to-watch-after-game-of-thrones-ends-1834783169)
+> 原文：<https://lifehacker.com/what-to-watch-after-game-of-thrones-ends-1834783169>
 
 不要问游戏为谁而坐；它为你而坐。本周末，创造了死亡的电视节目《权力的游戏》终于结束了。现在可以继续前进了，至少 T3，直到前传开始 T5。挠痒痒接下来应该看什么？这取决于你会错过什么关于*王座*。 
 

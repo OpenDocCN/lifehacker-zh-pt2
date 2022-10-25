@@ -1,6 +1,6 @@
 # 如何保护你的父母免受网上约会诈骗
 
-> 原文:[https://life hacker . com/how-to-protect-your-parents-online-dating-scams-1837578699](https://lifehacker.com/how-to-protect-your-parents-from-online-dating-scams-1837578699)
+> 原文：<https://lifehacker.com/how-to-protect-your-parents-from-online-dating-scams-1837578699>
 
 四月，采访了 60 岁的王思然·蒙哥马利·约翰逊，她是一场网上约会骗局的受害者，这场骗局让她损失了 100 多万美元。“我们无所不谈，我们谈论孩子……对我来说，现在回想起来，这非常有帮助，因为我可以写得比我在演讲中表达的多得多，”她谈到她与一名“国际承包商”的浪漫史，那是从一个在线约会网站开始的。
 

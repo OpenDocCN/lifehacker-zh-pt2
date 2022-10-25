@@ -1,6 +1,6 @@
 # how to choose a prenatal vitamin 1844409117
 
-> 原文:[https://life hacker . com/how-to-choose-a-产前维生素-1844409117](https://lifehacker.com/how-to-choose-a-prenatal-vitamin-1844409117)
+> 原文：<https://lifehacker.com/how-to-choose-a-prenatal-vitamin-1844409117>
 
 选择产前检查是准妈妈们要做的第一个决定，这并不容易。成分表可能会令人困惑，药片本身很大，而且种类繁多。在亚马逊上搜索“产前维生素”会得到 507 个结果，此外还有直接面向消费者的品牌。尽管所有产前食品都有相同的核心营养成分，但有些含有更多的某些成分，有些含有超出所需的成分，还有许多营养成分的化学结构不同。为了让你的产前维生素选择更容易，这里有一些专家建议考虑的因素。
 

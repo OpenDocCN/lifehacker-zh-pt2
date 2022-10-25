@@ -1,6 +1,6 @@
 # 如何击退饥饿的老鼠
 
-> 原文:[https://life hacker . com/how-to-defend-hangry-rats-1843675519](https://lifehacker.com/how-to-fend-off-hangry-rats-1843675519)
+> 原文：<https://lifehacker.com/how-to-fend-off-hangry-rats-1843675519>
 
 哦，2020 年。就在我们认为你已经把所有可怕、荒谬的场景抛给我们的时候，你又给了我们一个。这次是好斗的老鼠。如果你住在纽约市或其他大都市以外的地方，并认为你是清白的，但这并不适用于你，请三思。根据 [疾病控制中心](https://www.cdc.gov/coronavirus/2019-ncov/community/rodents.html) 的说法，我们*所有人*都需要警惕老鼠和其他表现出“异常或攻击性啮齿动物行为”的啮齿动物
 

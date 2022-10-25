@@ -1,6 +1,6 @@
 # 设置一个 20 分钟的计时器和你的孩子一起玩
 
-> 原文:[https://life hacker . com/set-a-timer-for-20 分钟陪孩子玩-1833744501](https://lifehacker.com/set-a-timer-for-20-minutes-to-play-with-your-kid-1833744501)
+> 原文：<https://lifehacker.com/set-a-timer-for-20-minutes-to-play-with-your-kid-1833744501>
 
 有一个场景是我儿子四岁的时候喜欢和我玩。我们会用乐高积木做房子、火车和售票亭。一个指挥会来到房子里，带上一个家伙和他的 D almatio n，带他们去恐龙博物馆，那里实际上有真正的 T2dinosaurus，看起来有点可怕，除了恐龙总是相当令人放心，它们不会吃那个家伙或他的狗。
 

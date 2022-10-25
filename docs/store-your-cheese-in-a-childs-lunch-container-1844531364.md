@@ -1,6 +1,6 @@
 # 把你的奶酪放在孩子的午餐盒里
 
-> 原文:[https://life hacker . com/store-your-cheese-in-a-childs-lunch-container-1844531364](https://lifehacker.com/store-your-cheese-in-a-childs-lunch-container-1844531364)
+> 原文：<https://lifehacker.com/store-your-cheese-in-a-childs-lunch-container-1844531364>
 
 你可能已经知道 [用紧贴的保鲜膜](https://lifehacker.com/quit-storing-your-cheese-in-plastic-wrap-1820773489) 包装漂亮的小楔形奶酪是一件不好的事情。奶酪是一种需要——也值得 s——一点尊重，一点关怀，一点自己的空间(潮湿，但不潮湿)的美食。奶酪需要*空间*，妈的。一款儿童分段午餐盒正好满足了这一需求。
 

@@ -1,6 +1,6 @@
 # 让这个里兹和肉汁南瓜砂锅成为你感恩节美味的救星
 
-> 原文:[https://the take out . com/recipe-ritz-gravy-南瓜-砂锅-1830415402](https://thetakeout.com/recipe-ritz-gravy-squash-casserole-1830415402)
+> 原文：<https://thetakeout.com/recipe-ritz-gravy-squash-casserole-1830415402>
 
 我来自南方，所以我在成长过程中吃的蔬菜通常都覆盖着奶油——奶酪、黄油、熏肉脂肪——并且通常在某个地方有一个肉卤盘。虽然我现在只在绿色蔬菜上放一点盐，但我会在假期破例——主要是在我的南瓜沙锅里。
 

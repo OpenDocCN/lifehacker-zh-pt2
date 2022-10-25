@@ -1,6 +1,6 @@
 # 借钱给家人或朋友之前要考虑什么
 
-> 原文:[https://life hacker . com/1840564391](https://lifehacker.com/what-to-consider-before-loaning-money-to-family-or-frie-1840564391)
+> 原文：<https://lifehacker.com/what-to-consider-before-loaning-money-to-family-or-frie-1840564391>
 
 没有什么比一个亲戚向你借钱更让人心烦的了。不管你有多爱你的家人，把你的血汗钱借给他们的前景至少会让人不舒服。
 

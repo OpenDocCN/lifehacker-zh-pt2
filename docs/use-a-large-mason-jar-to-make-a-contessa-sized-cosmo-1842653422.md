@@ -1,6 +1,6 @@
 # 用一个大泥瓦罐做一个伯爵夫人大小的 Cosmo
 
-> 原文:[https://life hacker . com/use-a-large-mason-jar-to-make-a-contessa-size-cosmo-1842653422](https://lifehacker.com/use-a-large-mason-jar-to-make-a-contessa-sized-cosmo-1842653422)
+> 原文：<https://lifehacker.com/use-a-large-mason-jar-to-make-a-contessa-sized-cosmo-1842653422>
 
 我通常对富人“处理”被“困”在自己豪宅中的视频(或者更糟，唱歌)并不特别感兴趣，但那是因为大多数这些视频都是音盲、含糊不清的，而且通常毫无帮助。但是这个视频 来自赤脚伯爵夫人艾娜·加滕，她的名字，与所有这些正好相反。
 

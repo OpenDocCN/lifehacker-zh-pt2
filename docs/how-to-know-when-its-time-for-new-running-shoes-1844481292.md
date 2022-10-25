@@ -1,6 +1,6 @@
 # 如何知道什么时候该买新跑鞋
 
-> 原文:[https://life hacker . com/how-to-know-when-it ' s time-1844481292](https://lifehacker.com/how-to-know-when-its-time-for-new-running-shoes-1844481292)
+> 原文：<https://lifehacker.com/how-to-know-when-its-time-for-new-running-shoes-1844481292>
 
 跑鞋公司告诉我们，你应该每 300 到 500 英里更换一次跑鞋。如果你遵循他们的建议，你会扔掉看起来仍然崭新的鞋子。你怎么知道你是否真的需要一双新鞋呢？原来有一个快速的方法可以回答你的问题。
 

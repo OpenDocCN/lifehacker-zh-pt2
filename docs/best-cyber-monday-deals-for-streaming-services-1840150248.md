@@ -1,6 +1,6 @@
 # 流媒体服务的最佳网络星期一交易
 
-> 原文:[https://life hacker . com/best-cyber-Monday-deals-for-streaming-services-1840150248](https://lifehacker.com/best-cyber-monday-deals-for-streaming-services-1840150248)
+> 原文：<https://lifehacker.com/best-cyber-monday-deals-for-streaming-services-1840150248>
 
 几家流媒体服务公司正在提供短期交易，以结束黑色星期五到网络星期一的购物大战。今年没有特别的网飞优惠，但它的几个竞争对手有一些很好的网络星期一促销活动——包括我们迄今为止在 Di sn ey Plus 和 Hulu 上看到的最好的交易，亚马逊 Prime Video 礼品折扣，以及一些用户仍然可以找到的 Apple TV Plus 的延期优惠。
 

@@ -1,6 +1,6 @@
 # 如何观察共和党全国代表大会上发生的事情
 
-> 原文:[https://life hacker . com/how-to-watch-what-occurs-at-the-Republican-national-co-1844831509](https://lifehacker.com/how-to-watch-what-happens-at-the-republican-national-co-1844831509)
+> 原文：<https://lifehacker.com/how-to-watch-what-happens-at-the-republican-national-co-1844831509>
 
 共和党全国代表大会今天开幕，虽然特朗普总统已经被再次提名(显然已经被接受)，但现在你有机会在接下来的四个晚上听几十名支持者解释原因。作为奖励，该活动部分由《学徒》的两位制作人、、策划，川普的真人秀和在电视上的名气，所以你知道这将是完全脚踏实地的。
 

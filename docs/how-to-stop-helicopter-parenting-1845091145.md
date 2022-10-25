@@ -1,6 +1,6 @@
 # how to stop helicopter parenting 1845091145
 
-> 原文:[https://life hacker . com/how-to-stop-helicon-parenting-1845091145](https://lifehacker.com/how-to-stop-helicopter-parenting-1845091145)
+> 原文：<https://lifehacker.com/how-to-stop-helicopter-parenting-1845091145>
 
 如果疫情把你变成了直升机家长，没人会责怪你。除非在 COVID 来袭之前，你是非常年幼的孩子的全职父母，否则你的生活结构很可能是这样的，每个家庭成员都有某种程度上的家庭外生活。但是现在，我们除了有时间在孩子身上盘旋，监视他们的一举一动，从他们吃什么和什么时候吃，到他们和谁交流，到他们在缩放课上的表现。
 

@@ -1,6 +1,6 @@
 # 去餐馆前采取这些预防措施
 
-> 原文:[https://life hacker . com/take-these-pre-to-a-restaurant-1843565306](https://lifehacker.com/take-these-precautions-before-going-to-a-restaurant-1843565306)
+> 原文：<https://lifehacker.com/take-these-precautions-before-going-to-a-restaurant-1843565306>
 
 仅仅因为餐馆再次开门 [并不意味着去](https://lifehacker.com/just-because-you-can-go-out-doesnt-mean-you-should-go-1843523899) 就安全了。关于在疫情期间开餐馆是一种新的情况，正如在新冠肺炎的所有事情中，我们边走边学。在你预订晚餐之前，这里有一些你需要考虑的风险因素和预防措施。
 

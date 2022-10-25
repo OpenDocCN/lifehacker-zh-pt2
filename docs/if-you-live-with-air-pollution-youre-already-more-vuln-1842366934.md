@@ -1,6 +1,6 @@
 # 如果你生活在空气污染中，你就更容易受到新冠肺炎的影响
 
-> 原文:[https://gizmodo . com/if-you-live-with-air-pollution-you-been-more-vuln-1842366934](https://gizmodo.com/if-you-live-with-air-pollution-youre-already-more-vuln-1842366934)
+> 原文：<https://gizmodo.com/if-you-live-with-air-pollution-youre-already-more-vuln-1842366934>
 
 新冠肺炎是一种由冠状病毒引起的疾病，正在全球传播，它的一个显著特点是，它会在一些人身上引发严重和致命的疾病，而另一些人只会轻微患病。到目前为止，我们知道年龄越大或已有健康状况的人出现严重症状的风险越大。不幸的是，对许多人来说，他们每天呼吸的污染空气可能已经损害了他们的肺部，使他们更容易受到新冠状病毒的攻击。
 

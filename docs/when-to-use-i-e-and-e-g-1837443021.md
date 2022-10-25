@@ -1,6 +1,6 @@
 # 什么时候用“即”和“例如”
 
-> 原文:[https://lifehacker.com/when-to-use-i-e-and-e-g-1837443021](https://lifehacker.com/when-to-use-i-e-and-e-g-1837443021)
+> 原文：<https://lifehacker.com/when-to-use-i-e-and-e-g-1837443021>
 
 在 LOL、TLDR 和 STFU 出现之前，我们有了其他的缩写来帮助我们快速方便地表达思想。这些在我们的写作中仍有用武之地，因为它们仍能帮助我们快速、轻松地传达思想。它们是 i.e .和 e.g .，它们不是同一个东西。
 

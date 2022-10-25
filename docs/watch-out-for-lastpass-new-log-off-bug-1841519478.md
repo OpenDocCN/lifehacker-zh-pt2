@@ -1,6 +1,6 @@
 # 注意 Lastpass 新的注销错误
 
-> 原文:[https://life hacker . com/watch-out-for-lastpass-new-log-off-bug-1841519478](https://lifehacker.com/watch-out-for-lastpass-new-log-off-bug-1841519478)
+> 原文：<https://lifehacker.com/watch-out-for-lastpass-new-log-off-bug-1841519478>
 
 许多 LastPass 用户正在该公司的论坛上抱怨一个非常不幸的错误，该错误影响了其扩展的自动注销功能——这是一种你总是想启用的备份安全措施。
 

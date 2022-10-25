@@ -1,6 +1,6 @@
 # 如何开始使用 Tinder
 
-> 原文:[https://life hacker . com/how-to-started-on-dating-apps-1838920199](https://lifehacker.com/how-to-get-started-on-dating-apps-1838920199)
+> 原文：<https://lifehacker.com/how-to-get-started-on-dating-apps-1838920199>
 
 距离你上次单身已经有一段时间了，现在约会的场景已经完全不同了。你往哪个方向刷？你在个人资料上放了多少信息？有鲶鱼、巨魔和鬼魂，这些听起来都很可怕，让人无法应对。
 

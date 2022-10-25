@@ -1,6 +1,6 @@
 # 如何在 iOS 中启用 Gmail 的黑暗模式
 
-> 原文:[https://life hacker . com/how-to-enable-gmails-dark-mode-on-IOs-1839411838](https://lifehacker.com/how-to-enable-gmails-dark-mode-on-ios-1839411838)
+> 原文：<https://lifehacker.com/how-to-enable-gmails-dark-mode-on-ios-1839411838>
 
 最后，我最喜欢的电子邮件应用程序是变暗模式。如果你幸运的话，你已经可以在 iOS 系统的*和安卓系统的*上利用 Gmail 的新功能了。我们已经 [写过关于后者的](https://lifehacker.com/how-to-find-gmails-new-dark-mode-setting-1838066217) 了，现在我们这里有一个在前者上启用黑暗模式的快速指南——如果你可以访问的话。
 

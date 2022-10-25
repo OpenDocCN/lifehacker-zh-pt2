@@ -1,6 +1,6 @@
 # 用这些“时间倍增器”在你的一天中找到额外的时间
 
-> 原文:[https://life hacker . com/find-extra-hours-in-your-day with this-time-multiplier-1839608074](https://lifehacker.com/find-extra-hours-in-your-day-with-these-time-multiplier-1839608074)
+> 原文：<https://lifehacker.com/find-extra-hours-in-your-day-with-these-time-multiplier-1839608074>
 
 不是每一天都有额外的一个小时，所以在今年剩下的时间里，我们必须想办法创造自己的时间。
 

@@ -1,6 +1,6 @@
 # 你可以帮助史密森学会抄写一些萨莉·赖德的笔记
 
-> 原文:[https://life hacker . com/you-can-help-the-Smithsonian-transcripte-some-of-sally-r-1842926929](https://lifehacker.com/you-can-help-the-smithsonian-transcribe-some-of-sally-r-1842926929)
+> 原文：<https://lifehacker.com/you-can-help-the-smithsonian-transcribe-some-of-sally-r-1842926929>
 
 国家航空航天博物馆目前收藏了超过 38，640 页的资料，涵盖了萨莉·赖德作为物理学家、宇航员和教育家的职业生涯。这个庞大的收藏只有一个大问题:大部分是手写或用打字机打的，无法搜索。
 

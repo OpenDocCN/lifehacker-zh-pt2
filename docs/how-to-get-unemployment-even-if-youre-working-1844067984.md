@@ -1,6 +1,6 @@
 # 即使你在工作，如何获得失业
 
-> 原文:[https://life hacker . com/how-to-get-lose-even-if-you-work-1844067984](https://lifehacker.com/how-to-get-unemployment-even-if-youre-working-1844067984)
+> 原文：<https://lifehacker.com/how-to-get-unemployment-even-if-youre-working-1844067984>
 
 如果疫情的经济影响让你在今年春天失业，由于 [关怀法案](https://twocents.lifehacker.com/how-unemployment-benefits-are-changing-with-the-senate-1842494496) ，你很可能只能靠你所在州的失业救济金加上额外的 600 美元周薪勉强度日。但是如果你回去工作，尤其是如果你只能工作一小部分时间，这些福利会怎么样呢？
 

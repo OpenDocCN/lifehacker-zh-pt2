@@ -1,6 +1,6 @@
 # 使用 ForecastAdvisor，无论您身在何处，都能找到最准确的天气服务
 
-> 原文:[https://life hacker . com/find-the-most-accurate-weather-service-anywhere-you-where-1842615181](https://lifehacker.com/find-the-most-accurate-weather-service-wherever-you-are-1842615181)
+> 原文：<https://lifehacker.com/find-the-most-accurate-weather-service-wherever-you-are-1842615181>
 
 对于一些人来说，黑暗的天空正在消失是一件令人失望的事情——无论你是 Android 用户还是依赖该服务的 API 来定制天气设置，比如家庭助理卡。但是也许这一开始就不是最好的天气预报服务？
 

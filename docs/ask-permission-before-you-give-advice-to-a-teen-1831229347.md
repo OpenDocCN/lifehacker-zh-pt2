@@ -1,6 +1,6 @@
 # 在给青少年提建议之前，先征求他们的同意
 
-> 原文:[https://life hacker . com/ask-permission-before-you-give-advice-to-teen-1831229347](https://lifehacker.com/ask-permission-before-you-give-advice-to-a-teen-1831229347)
+> 原文：<https://lifehacker.com/ask-permission-before-you-give-advice-to-a-teen-1831229347>
 
 众所周知，青少年很难交谈。“你今天过得怎么样？”“好吧。”“你今天学到了什么？”“没什么。”“你怎么——”“你还要问我多少问题。”
 

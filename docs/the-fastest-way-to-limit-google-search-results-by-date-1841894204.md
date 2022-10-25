@@ -1,6 +1,6 @@
 # 按日期限制谷歌搜索结果的最快方法
 
-> 原文:[https://life hacker . com/the-fast-way-to-limit-Google-search-results-by-date-1841894204](https://lifehacker.com/the-fastest-way-to-limit-google-search-results-by-date-1841894204)
+> 原文：<https://lifehacker.com/the-fastest-way-to-limit-google-search-results-by-date-1841894204>
 
 一个措辞恰当的谷歌搜索可以在几秒钟内显示出最相关的结果。但是那些被认为最符合你的搜索查询的结果的问题是，它们并不总是那个主题的最新结果。
 

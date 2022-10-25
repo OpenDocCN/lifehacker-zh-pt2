@@ -1,6 +1,6 @@
 # 用这个 Alexa 技能学习关于足球的一切
 
-> 原文:[https://life hacker . com/learn-everything-about-football-with this-Alexa-skill-1831495342](https://lifehacker.com/learn-everything-about-football-with-this-alexa-skill-1831495342)
+> 原文：<https://lifehacker.com/learn-everything-about-football-with-this-alexa-skill-1831495342>
 
 足球是我从未真正喜欢过的一项运动。我是一个典型的朋友，试图召集军队参加棒球和曲棍球比赛，在我的家乡北卡罗来纳州，篮球是一种宗教……但足球总是避开我。我想这不是我的运动。
 

@@ -1,6 +1,6 @@
 # 遵循这些社交规则
 
-> 原文:[https://life hacker . com/follow-these-rules-for-socialization-1843583957](https://lifehacker.com/follow-these-rules-for-socializing-1843583957)
+> 原文：<https://lifehacker.com/follow-these-rules-for-socializing-1843583957>
 
 进入疫情已经两个多月了，我们中的许多人都在努力寻找一种安全、可持续的方式来适应我们的新常态。 [检疫疲劳非常真实](https://www.theatlantic.com/family/archive/2020/05/restaurants-stores-reopen-dos-and-donts/611314/) 。通常谨慎的人正在努力采取适当的预防措施，仅仅是因为这种情况已经持续了多长时间。
 

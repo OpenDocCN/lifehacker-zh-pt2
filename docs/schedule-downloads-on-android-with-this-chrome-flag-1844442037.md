@@ -1,6 +1,6 @@
 # 使用这个 Chrome 标志在 Android 上安排下载
 
-> 原文:[https://life hacker . com/schedule-downloads-on-Android-with-this-chrome-flag-184442037](https://lifehacker.com/schedule-downloads-on-android-with-this-chrome-flag-1844442037)
+> 原文：<https://lifehacker.com/schedule-downloads-on-android-with-this-chrome-flag-1844442037>
 
 每当我不得不使用我的手机下载一些重要的东西的时候——或者，真的，下载任何东西到我的手机——我总是会考虑这样一个问题:这会不会烧光我的数据计划？“反对”我现在有多需要这个 app(或者游戏，或者视频) ？”
 

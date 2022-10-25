@@ -1,6 +1,6 @@
 # 如何在 2019 年让自己的财务提高 1%
 
-> 原文:[https://life hacker . com/how-to-improve-your-financials-by-1-in-2019-1830768294](https://lifehacker.com/how-to-improve-your-finances-by-1-in-2019-1830768294)
+> 原文：<https://lifehacker.com/how-to-improve-your-finances-by-1-in-2019-1830768294>
 
 《时代》杂志的一条经验证的真理是，要想做得更好，你需要从小处着手。无论你的 [目标是节省 10，000 美元](https://twocents.lifehacker.com/aim-to-get-to-10-000-1827509198) 还是跑 5 公里，从小的增量开始是实现它的唯一途径。从每月 0 美元的储蓄到 1000 美元，通过削减你平时做的所有事情是不可持续的；同样，你可能无法从沙发上跳到 5 公里的终点线。但是你可以从第一个月的 100 美元开始，然后在你的社区里跑几圈。
 

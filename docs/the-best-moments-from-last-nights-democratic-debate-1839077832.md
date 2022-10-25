@@ -1,6 +1,6 @@
 # 昨晚民主党辩论中最精彩的时刻
 
-> 原文:[https://life hacker . com/the-best-moments-from-last-nights-democratic-debate-1839077832](https://lifehacker.com/the-best-moments-from-last-nights-democratic-debate-1839077832)
+> 原文：<https://lifehacker.com/the-best-moments-from-last-nights-democratic-debate-1839077832>
 
 周二晚上的民主党辩论标志着几个第一；这是所有初选辩论中候选人数量最多的一次，也是第一次花时间讨论妇女的生殖权利。这也是第一场几乎所有候选人都与伊丽莎白·沃伦对决的辩论，后者显然是竞选中新的领跑者 。
 

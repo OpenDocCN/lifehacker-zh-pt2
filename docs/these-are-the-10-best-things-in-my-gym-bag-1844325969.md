@@ -1,6 +1,6 @@
 # 这是我运动包里最好的 10 样东西
 
-> 原文:[https://life hacker . com/thes-is-the-10-best-things-in-my-gym-bag-1844325969](https://lifehacker.com/these-are-the-10-best-things-in-my-gym-bag-1844325969)
+> 原文：<https://lifehacker.com/these-are-the-10-best-things-in-my-gym-bag-1844325969>
 
 举起一个重量你所需要的只是你自己和重量。但是有很多方便的东西可以帮上忙，我已经在我的运动包里积累了不少。让我们参观一下。
 

@@ -1,6 +1,6 @@
 # 本周我们回到战斗机飞行员训练
 
-> 原文:[https://life hacker . com/this-week-we-return to the fighter-pilot-workout-1843341941](https://lifehacker.com/this-week-we-return-to-the-fighter-pilot-workout-1843341941)
+> 原文：<https://lifehacker.com/this-week-we-return-to-the-fighter-pilot-workout-1843341941>
 
 我们开始了本月的健身挑战——重温经典家庭训练——用 [科学七分钟训练](https://vitals.lifehacker.com/lets-revisit-the-seven-minute-workout-1843201042) 重温。本周，我们将历史追溯到更久远的加拿大机构，该机构最初是为驻扎在没有健身房或锻炼空间的地方的军事飞行员发明的。我打赌我们很多人都有同感。
 

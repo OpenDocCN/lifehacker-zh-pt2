@@ -1,6 +1,6 @@
 # 这是你应该买的 iPhone 11(如果你必须预购的话)
 
-> 原文:[https://gizmodo . com/this-is-the-iphone-11-you-should-buy-if-you-must-pre-o-1838067751](https://gizmodo.com/this-is-the-iphone-11-you-should-buy-if-you-must-pre-o-1838067751)
+> 原文：<https://gizmodo.com/this-is-the-iphone-11-you-should-buy-if-you-must-pre-o-1838067751>
 
 又是一个九月，当我们告别夏天的时候，我们再一次向苹果年度 iPhone 活动之后令人痛苦的升级决定问好。让我们来分析一下哪一款 iPhone 11 可能最适合你，以及是否真的到了升级的时候。
 

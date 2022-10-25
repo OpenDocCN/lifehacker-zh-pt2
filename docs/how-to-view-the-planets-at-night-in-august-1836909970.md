@@ -1,6 +1,6 @@
 # 如何在八月的夜晚观赏行星
 
-> 原文:[https://life hacker . com/how-to-view-the-plants-at-night-in-8-1836909970](https://lifehacker.com/how-to-view-the-planets-at-night-in-august-1836909970)
+> 原文：<https://lifehacker.com/how-to-view-the-planets-at-night-in-august-1836909970>
 
 火星和金星这个月不会在晚上出去玩，但是木星和土星将会闪亮——如果你仔细观察，你也会在黎明前发现一点水星。
 

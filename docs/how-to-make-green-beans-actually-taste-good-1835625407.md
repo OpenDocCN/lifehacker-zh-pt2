@@ -1,6 +1,6 @@
 # 如何让青豆真正好吃起来
 
-> 原文:[https://life hacker . com/how-to-make-green-beans-actually-taste-good-1835625407](https://lifehacker.com/how-to-make-green-beans-actually-taste-good-1835625407)
+> 原文：<https://lifehacker.com/how-to-make-green-beans-actually-taste-good-1835625407>
 
 如果你讨厌青豆，可能有一个很好的理由。你的青豆经历可能包括有人心不在焉地打开一罐青豆，然后把它们扔进炉子上的平底锅里。也许它们是法式切肉(或者不是)，不管是谁做的，都会放几片培根进去(或者不是)。无论哪种方式，你都以伤感(可能是培根味的)结束。
 

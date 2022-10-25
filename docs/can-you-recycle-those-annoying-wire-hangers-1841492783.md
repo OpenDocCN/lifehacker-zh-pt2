@@ -1,6 +1,6 @@
 # 你能回收那些烦人的铁丝衣架吗？
 
-> 原文:[https://life hacker . com/can-you-recycle-than-smoking-wire-hangers-1841492783](https://lifehacker.com/can-you-recycle-those-annoying-wire-hangers-1841492783)
+> 原文：<https://lifehacker.com/can-you-recycle-those-annoying-wire-hangers-1841492783>
 
 这些年来，你可能已经或没有从多年干洗的冬季外套中收集脆弱的金属衣架。事实证明，那些衣架历史悠久。在为 [Vox](https://www.vox.com/the-goods/2020/2/6/21113481/wire-hangers-history-use) 撰写的一篇报道中，作家丹·格林最近深入探究了钢丝衣架的起源——这是一个可以追溯到工业革命时期的故事——从这个故事中最大的收获之一是显而易见的:它们不容易被丢弃。
 

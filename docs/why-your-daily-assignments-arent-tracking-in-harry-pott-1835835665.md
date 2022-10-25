@@ -1,6 +1,6 @@
 # 为什么你的日常作业在《哈利·波特:巫师团结》中没有被跟踪
 
-> 原文:[https://life hacker . com/why-your-daily-assignments-arent-tracking-in-Harry-pott-1835835665](https://lifehacker.com/why-your-daily-assignments-arent-tracking-in-harry-pott-1835835665)
+> 原文：<https://lifehacker.com/why-your-daily-assignments-arent-tracking-in-harry-pott-1835835665>
 
 尽管有点耗时，但我一直在用新的*哈利波特:巫师团结*手机游戏( [iOS](https://apps.apple.com/us/app/harry-potter-wizards-unite/id1452352832) ， [Android](https://play.google.com/store/apps/details?id=com.nianticlabs.hpwu.prod&hl=en_US) )作为多出去走走的绝佳借口。我不得不这样做，因为有一个每日成就，你只有在你的邻居家轻松地走了 0.25 公里后才能解锁。
 

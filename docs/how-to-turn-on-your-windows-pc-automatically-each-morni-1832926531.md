@@ -1,6 +1,6 @@
 # 如何每天早上自动打开 Windows PC
 
-> 原文:[https://life hacker . com/how-to-on-your-windows-PC-automatically-each-morni-1832926531](https://lifehacker.com/how-to-turn-on-your-windows-pc-automatically-each-morni-1832926531)
+> 原文：<https://lifehacker.com/how-to-turn-on-your-windows-pc-automatically-each-morni-1832926531>
 
 我们大多数人都有早晨的习惯，而你可能会在某个时刻使用电脑。虽然按下电源按钮并不难，但等待系统启动，然后输入 Windows 密码登录桌面，这些都是早上必须要做的非常耗时的步骤。如果幸运的话，你可以自动完成整个过程。
 

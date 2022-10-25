@@ -1,6 +1,6 @@
 # 你最喜欢的新闻聚合器或 RSS 阅读器是什么？
 
-> 原文:[https://life hacker . com/whats-your-favorite-news-aggregator-or-RSS-reader-1838782900](https://lifehacker.com/whats-your-favorite-news-aggregator-or-rss-reader-1838782900)
+> 原文：<https://lifehacker.com/whats-your-favorite-news-aggregator-or-rss-reader-1838782900>
 
 你如何找到和阅读你的新闻？似乎大多数人都依赖他们的脸书或推特来获取最新的头条新闻，但我对这种方法持怀疑态度。你不仅要 [与假新闻](https://lifehacker.com/how-to-stop-your-parents-from-sharing-fake-news-online-1836667313) 和 [伪装成头条新闻的黑幕广告](https://lifehacker.com/identify-ads-masquerading-as-real-headlines-with-this-c-1838149949) ，而且还有大量研究告诉我们 [花太多时间在社交媒体上对我们的身心都不好。](https://lifehacker.com/monitor-your-time-spent-on-social-media-with-new-tools-1828029375)
 

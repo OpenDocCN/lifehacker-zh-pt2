@@ -1,6 +1,6 @@
 # 向新冠肺炎救济会捐赠大量的电脑游戏、书籍和漫画
 
-> 原文:[https://life hacker . com/get-a-massive-collection-of-PC-games-book-and-comics-1842615655](https://lifehacker.com/get-a-massive-collection-of-pc-games-books-and-comics-1842615655)
+> 原文：<https://lifehacker.com/get-a-massive-collection-of-pc-games-books-and-comics-1842615655>
 
 如果你需要提高自我隔离/社交距离娱乐积压，同时支持冠状病毒斗争前线的慈善机构，Humble Bundle 有一个令人难以置信的交易。
 

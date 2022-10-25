@@ -1,6 +1,6 @@
 # 立即更改您的忠诚度计划密码
 
-> 原文:[https://life hacker . com/change-your-loyalty-program-passwords-now-1834748255](https://lifehacker.com/change-your-loyalty-program-passwords-now-1834748255)
+> 原文：<https://lifehacker.com/change-your-loyalty-program-passwords-now-1834748255>
 
 如果您不记得上次更改忠诚度计划账户的密码是什么时候了，是时候更新密码了，否则就有被黑的风险。
 

@@ -1,6 +1,6 @@
 # 多样化你的资产意味着什么
 
-> 原文:[https://life hacker . com/what-it-mean-to-diversified-your-assets-1830708509](https://lifehacker.com/what-it-means-to-diversify-your-assets-1830708509)
+> 原文：<https://lifehacker.com/what-it-means-to-diversify-your-assets-1830708509>
 
 对于罗恩·斯旺森来说，分散资产意味着出售一些黄金来购买 Lagavulin 威士忌酒厂的多数股权。对于普通散户投资者来说，情况会有所不同。
 

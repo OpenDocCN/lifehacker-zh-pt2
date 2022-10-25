@@ -1,6 +1,6 @@
 # 如何识别你的智能音箱在偷听
 
-> 原文:[https://life hacker . com/how-to-recognize-when-your-smart-speaker-is-eaged oppi-1840485754](https://lifehacker.com/how-to-recognize-when-your-smart-speaker-is-eavesdroppi-1840485754)
+> 原文：<https://lifehacker.com/how-to-recognize-when-your-smart-speaker-is-eavesdroppi-1840485754>
 
 并非所有东西都必须成为其他东西的平台，在你的智能家居中尤其如此。虽然你可以用技能、动作和应用程序来补充你的智能扬声器——我们主要谈论的是亚马逊的 Echo 和谷歌的家用设备——但你应该三思而后行。任何一家公司尚未纠正的漏洞都可能让你遭受恶意开发者的网络钓鱼或窃听。
 

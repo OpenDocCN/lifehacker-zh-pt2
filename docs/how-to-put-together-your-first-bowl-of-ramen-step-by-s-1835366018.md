@@ -1,6 +1,6 @@
 # 如何一步一步地做好你的第一碗拉面
 
-> 原文:[https://the take out . com/how-to-put-together-your ' s-step-1835366018](https://thetakeout.com/how-to-put-together-your-first-bowl-of-ramen-step-by-s-1835366018)
+> 原文：<https://thetakeout.com/how-to-put-together-your-first-bowl-of-ramen-step-by-s-1835366018>
 
 到目前为止，我已经接触了拉面的每一个主要成分:t [何面](https://thetakeout.com/what-makes-ramen-noodles-so-special-1834701576)[汤](https://thetakeout.com/ramen-lord-perfect-bowl-of-ramen-mike-satinover-1830128673) [皮重](https://thetakeout.com/tare-ramen-secret-sauce-ramen-lord-mike-satinover-1830324052)[典型的叉烧肉](https://thetakeout.com/recipe-how-to-make-ramen-chashu-ramen-lord-1831216636) 和 [鸡蛋配料](https://thetakeout.com/recipe-ramen-egg-ajitama-the-ramen-lord-1832939054) ，甚至 [浮在表面的芳香油](https://thetakeout.com/aroma-oil-101-why-ramen-benefits-when-you-add-more-fat-1830869344) 。
 

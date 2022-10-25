@@ -1,6 +1,6 @@
 # 如果有人用你的名字开了信用卡怎么办
 
-> 原文:[https://life hacker . com/what-do-if-someone-open-a-a-credit-card in your name-1840903515](https://lifehacker.com/what-to-do-if-someone-opens-a-credit-card-in-your-name-1840903515)
+> 原文：<https://lifehacker.com/what-to-do-if-someone-opens-a-credit-card-in-your-name-1840903515>
 
 在邮件中收到一张新的信用卡感觉像是一次重大胜利。你研究了信用卡，选择了一张符合你需求的信用卡，并获得了批准——你的新卡证明了你的经济实力。但是，如果你从来没有要求打开刚刚在邮件中出现的信用卡呢？
 

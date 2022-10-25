@@ -1,6 +1,6 @@
 # 这意味着冠状病毒可以通过空气传播
 
-> 原文:[https://life hacker . com/what-be-mean-if-the-corona virus-is-airborne-1844281525](https://lifehacker.com/what-would-it-mean-if-the-coronavirus-is-airborne-1844281525)
+> 原文：<https://lifehacker.com/what-would-it-mean-if-the-coronavirus-is-airborne-1844281525>
 
 CDC 最近 [更新了](https://www.cdc.gov/media/releases/2020/s1005-how-spread-covd.html) 的冠状病毒信息，以记录冠状病毒“空气传播的可能性”这标志着我们应该采取的预防措施发生了一些微妙的变化。
 

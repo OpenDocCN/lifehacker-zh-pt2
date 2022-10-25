@@ -1,6 +1,6 @@
 # 营销如何创造超级食物
 
-> 原文:[https://life hacker . com/how-marketing-created-super foods-1829942203](https://lifehacker.com/how-marketing-created-superfoods-1829942203)
+> 原文：<https://lifehacker.com/how-marketing-created-superfoods-1829942203>
 
 超级食物到底有什么特别的？即使这个词从营销文案中逐渐消失，我们仍然会关注那些我们听说比其他食物更好的特定食物。红酒。枸杞。甘蓝。
 

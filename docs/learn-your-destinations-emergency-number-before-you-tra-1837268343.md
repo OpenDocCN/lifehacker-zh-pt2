@@ -1,6 +1,6 @@
 # 出行前了解目的地的紧急电话号码
 
-> 原文:[https://life hacker . com/learn-you-destinations-emergency-number-before-you-tra-1837268343](https://lifehacker.com/learn-your-destinations-emergency-number-before-you-tra-1837268343)
+> 原文：<https://lifehacker.com/learn-your-destinations-emergency-number-before-you-tra-1837268343>
 
 在国外拨打 911 会怎么样？根据你在哪里，它要么让你与当地的应急响应小组联系，要么保持无人应答，这是在危机中你最不需要的。
 

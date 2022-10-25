@@ -1,6 +1,6 @@
 # 如果我有收入但没有良好的信用评分，获得汽车贷款的最佳方式是什么？
 
-> 原文:[https://jalopnik . com/whats-the-best-way to-get-a-car-loan-if-I-have-the-inco-1835003025](https://jalopnik.com/whats-the-best-way-to-get-a-car-loan-if-i-have-the-inco-1835003025)
+> 原文：<https://jalopnik.com/whats-the-best-way-to-get-a-car-loan-if-i-have-the-inco-1835003025>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。我决定挑几个问题，试着帮帮大家。本周，我们将讨论低信用评分购买，购买改装车或是否保留或交易停产的汽车。
 

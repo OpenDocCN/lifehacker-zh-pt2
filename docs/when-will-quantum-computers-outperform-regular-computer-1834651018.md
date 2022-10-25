@@ -1,6 +1,6 @@
 # when will quantum computers outperform regular computer 1834651018
 
-> 原文:[https://gizmodo . com/when-will-quantum-computers-perform-regular-computer-1834651018](https://gizmodo.com/when-will-quantum-computers-outperform-regular-computer-1834651018)
+> 原文：<https://gizmodo.com/when-will-quantum-computers-outperform-regular-computer-1834651018>
 
 现在的任何一天，量子计算机都将解决经典计算机难以解决的问题。或者至少，这就是我们一直 [期盼的](https://gizmodo.com/why-google-is-poised-to-hit-the-next-critical-milestone-1821121798) 。科学家和公司正在朝着这个计算里程碑的方向前进，这个里程碑被称为量子霸权，似乎超出了我们的能力范围，如果你一直在关注量子计算的故事，你可能会问，鉴于所有的宣传，我们为什么还没有到达那里。
 

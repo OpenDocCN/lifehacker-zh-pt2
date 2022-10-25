@@ -1,6 +1,6 @@
 # 现在是时候注入一些伏特加了
 
-> 原文:[https://life hacker . com/now-is-the-time-to-infuse-a-bunch-of-vodka-1842838266](https://lifehacker.com/now-is-the-time-to-infuse-a-bunch-of-vodka-1842838266)
+> 原文：<https://lifehacker.com/now-is-the-time-to-infuse-a-bunch-of-vodka-1842838266>
 
 现在我们都在家里喝酒，你可能已经注意到你的酒吧推车并不像你最初认为的那样多样化。出去喝酒的一个主要优势是，他们有制作各种鸡尾酒所需的所有材料，而满足这种多样性通常超出了家庭饮酒者的预算。
 

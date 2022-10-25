@@ -1,6 +1,6 @@
 # 如何在你的速食锅里做意大利面和肉丸
 
-> 原文:[https://life hacker . com/how-to-make-通心粉和肉丸-1831846497](https://lifehacker.com/how-to-make-spaghetti-and-meatballs-in-your-instant-pot-1831846497)
+> 原文：<https://lifehacker.com/how-to-make-spaghetti-and-meatballs-in-your-instant-pot-1831846497>
 
 对我来说，意大利美国菜是最舒适的。即使我最恶劣的情绪也比不上奶酪、 [、红酱、](https://lifehacker.com/make-tomato-sauce-in-your-instant-pot-with-just-two-ing-1828971840) 富含碳水化合物的食物，但我很少有六个小时花在一罐周日肉汤上。值得庆幸的是，我还没有遇到过我的速食锅不能处理的低慢菜——所以当渴望意大利面条和肉丸的时候，我知道该怎么做。
 

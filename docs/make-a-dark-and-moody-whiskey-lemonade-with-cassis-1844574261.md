@@ -1,6 +1,6 @@
 # 用黑醋栗做一杯阴郁的威士忌柠檬水
 
-> 原文:[https://life hacker . com/make-a-dark-and-moody-whiskey-lemonade-with-cassis-1844574261](https://lifehacker.com/make-a-dark-and-moody-whiskey-lemonade-with-cassis-1844574261)
+> 原文：<https://lifehacker.com/make-a-dark-and-moody-whiskey-lemonade-with-cassis-1844574261>
 
 我的酒吧推车是一件拥挤混乱的家具。在前面，我们有我经常使用的东西——杜松子酒、金巴利酒、波旁酒和黑麦酒——但是后面的东西变得有点深奥了。随着你对我收集的乙醇越来越深入，你会发现很多利口酒和甘利酒，包括一瓶黑醋栗利口酒，这是我为了酿造 [Kir Péttilants](https://lifehacker.com/the-kir-pettilant-is-the-perfect-new-years-eve-drink-1831367189) 而购买的，但他们很快就忘记了。
 

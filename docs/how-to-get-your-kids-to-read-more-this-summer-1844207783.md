@@ -1,6 +1,6 @@
 # 如何让你的孩子在这个夏天多读书
 
-> 原文:[https://life hacker . com/how-to-get-your kids-to-read-more-this-summer-1844207783](https://lifehacker.com/how-to-get-your-kids-to-read-more-this-summer-1844207783)
+> 原文：<https://lifehacker.com/how-to-get-your-kids-to-read-more-this-summer-1844207783>
 
 让我们的孩子坚持阅读是一个挑战。但是考虑到刚刚过去的学年，你可能会特别担心你需要帮助他们提高阅读水平，至少这样他们就不会在秋季到来的几个月里退步。这些年来，我们已经写了很多关于阅读的东西，所以我为你们整理了一些我们给小孩子和大孩子的最佳建议，以及一些我们认可的整体技巧。
 

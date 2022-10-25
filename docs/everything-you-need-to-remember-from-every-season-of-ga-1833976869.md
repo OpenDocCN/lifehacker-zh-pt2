@@ -1,6 +1,6 @@
 # 10 分钟内，你需要记住《权力的游戏》每一季的所有内容
 
-> 原文:[https://gizmodo . com/everything-you-need-to-remember from the every-season-of-ga-1833976869](https://gizmodo.com/everything-you-need-to-remember-from-every-season-of-ga-1833976869)
+> 原文：<https://gizmodo.com/everything-you-need-to-remember-from-every-season-of-ga-1833976869>
 
 我们离《权力的游戏》第八季也就是最后一季只有几天了。即使只有六集，但还有很多故事要讲。如果没有复习课程，很容易迷失在那些有望在大结局前解决的细节中。幸运的是，我们已经帮你搞定了。
 

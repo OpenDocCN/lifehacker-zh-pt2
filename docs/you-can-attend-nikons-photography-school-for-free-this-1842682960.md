@@ -1,6 +1,6 @@
 # 这个月你可以免费参加尼康的摄影学校
 
-> 原文:[https://life hacker . com/you-can-attend-nikons-photography-school-free-this-1842682960](https://lifehacker.com/you-can-attend-nikons-photography-school-for-free-this-1842682960)
+> 原文：<https://lifehacker.com/you-can-attend-nikons-photography-school-for-free-this-1842682960>
 
 如果你一直在努力学习如何成为一名更好的摄影师，四月可能是你的月份。
 

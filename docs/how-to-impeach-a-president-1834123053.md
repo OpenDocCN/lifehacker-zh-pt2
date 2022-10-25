@@ -1,6 +1,6 @@
 # 如何弹劾总统
 
-> 原文:[https://life hacker . com/how-to-弹劾总统-1834123053](https://lifehacker.com/how-to-impeach-a-president-1834123053)
+> 原文：<https://lifehacker.com/how-to-impeach-a-president-1834123053>
 
 你永远不知道你什么时候需要弹劾总统。过去两年左右，一些人一直希望弹劾能够进行下去；其他人可能希望将该页面加入书签，以备将来之需。以下是宪法规定我们在面临“ [叛国](https://lifehacker.com/what-is-treason-1827687435) 、贿赂或其他重罪和轻罪时应该做的事情。”
 

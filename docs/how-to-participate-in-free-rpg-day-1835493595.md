@@ -1,6 +1,6 @@
 # 如何参加免费 RPG 日
 
-> 原文:[https://life hacker . com/how-to-party-in-free-RPG-day-1835493595](https://lifehacker.com/how-to-participate-in-free-rpg-day-1835493595)
+> 原文：<https://lifehacker.com/how-to-participate-in-free-rpg-day-1835493595>
 
 本周六是 [免费 RPG 日](https://www.freerpgday.com/) ，这是一年一度的角色扮演游戏庆典，主要在当地的游戏商店举行。参与的商店分发免费的东西，包括游戏模块、骰子和 t 恤，并举办游戏和其他活动。以下是值得期待的。
 

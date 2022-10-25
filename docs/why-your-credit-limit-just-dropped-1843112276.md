@@ -1,6 +1,6 @@
 # 为什么你的信用额度下降了
 
-> 原文:[https://life hacker . com/why-your-credit-limit-just-dropped-1843112276](https://lifehacker.com/why-your-credit-limit-just-dropped-1843112276)
+> 原文：<https://lifehacker.com/why-your-credit-limit-just-dropped-1843112276>
 
 当冠状病毒疫情前往美国时，信用卡发行商的反应是推广他们的客户援助计划，可以推迟你的付款或在这段混乱的时间里提供其他调整。
 

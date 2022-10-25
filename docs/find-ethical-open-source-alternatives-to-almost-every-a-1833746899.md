@@ -1,6 +1,6 @@
 # 如何找到几乎所有应用或服务的道德替代品
 
-> 原文:[https://life hacker . com/find-ethical-open-source-alternatives-to-almost-every-a-1833746899](https://lifehacker.com/find-ethical-open-source-alternatives-to-almost-every-a-1833746899)
+> 原文：<https://lifehacker.com/find-ethical-open-source-alternatives-to-almost-every-a-1833746899>
 
 我们喜欢大公司提供给你的应用程序和产品的便利性和功能丰富性，但我们也支持个人自主权和对你在线体验的控制 。不过，只是 [背对着大财团](https://lifehacker.com/how-to-ditch-apple-completely-1821082984) 是一回事；有意识地、合乎道德地这样做是另一回事。
 

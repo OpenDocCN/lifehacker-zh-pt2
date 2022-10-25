@@ -1,6 +1,6 @@
 # 如何避免冠状病毒骗局
 
-> 原文:[https://life hacker . com/how-to-avoid-coronavirus-scams-1842268661](https://lifehacker.com/how-to-avoid-coronavirus-scams-1842268661)
+> 原文：<https://lifehacker.com/how-to-avoid-coronavirus-scams-1842268661>
 
 现在有很多人试图从冠状病毒焦虑中赚钱，无论是通过 [对一瓶 Purell](https://nypost.com/2020/03/06/liquid-gold-purell-selling-for-79-in-manhattan-hardware-store/)[收费 79 美元，在 Etsy](https://www.msn.com/en-au/health/medical/people-are-turning-to-etsy-for-coronavirus-proof-face-masks-but-it-seems-to-be-full-of-counterfeit-antiviral-gear-that-doesnt-work/ar-BB10rtwl) 上销售假冒口罩，还是 [声称可以用精油](https://www.ocregister.com/2020/03/10/feds-warn-buena-park-firm-warn-about-pitching-coronavirus-cures/) 治愈新冠肺炎。
 

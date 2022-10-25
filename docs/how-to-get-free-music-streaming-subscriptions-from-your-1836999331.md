@@ -1,6 +1,6 @@
 # 如何从您的移动运营商处获得免费音乐流媒体订阅
 
-> 原文:[https://life hacker . com/how-to-get-free-music-streaming-subscriptions-from-your-1836999331](https://lifehacker.com/how-to-get-free-music-streaming-subscriptions-from-your-1836999331)
+> 原文：<https://lifehacker.com/how-to-get-free-music-streaming-subscriptions-from-your-1836999331>
 
 你可以通过手机订阅获得的为数不多的特权之一是免费使用付费版本的 Spotify、Apple Music 和其他服务——通常与运营商的无限数据计划一起提供。当然，这些计划通常是运营商提供的最昂贵的计划，但是免费订阅音乐服务可以减轻痛苦。
 

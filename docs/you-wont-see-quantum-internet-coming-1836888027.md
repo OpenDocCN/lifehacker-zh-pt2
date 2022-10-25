@@ -1,6 +1,6 @@
 # you wont see quantum internet coming 1836888027
 
-> 原文:[https://gizmodo . com/you-wot-see-quantum-internet-coming-1836888027](https://gizmodo.com/you-wont-see-quantum-internet-coming-1836888027)
+> 原文：<https://gizmodo.com/you-wont-see-quantum-internet-coming-1836888027>
 
 量子互联网的到来比你想象的要快——甚至比量子计算本身还要快。当事情发生变化时，你可能甚至不会注意到。但当他们这样做时，新的规则将保护你的数据免受来自尚不存在的计算机的攻击。
 

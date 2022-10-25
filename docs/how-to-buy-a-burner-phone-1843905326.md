@@ -1,6 +1,6 @@
 # 如何购买一次性手机
 
-> 原文:[https://lifehacker.com/how-to-buy-a-burner-phone-1843905326](https://lifehacker.com/how-to-buy-a-burner-phone-1843905326)
+> 原文：<https://lifehacker.com/how-to-buy-a-burner-phone-1843905326>
 
 如果你打算进行一些抗议活动，并且你不想在这个过程中拿你昂贵的智能手机冒险——或者你只是想在外出时尽可能保持匿名——考虑购买一次性手机。是的，这会花一点钱，但现在拿起一部便宜的手机，比之后带着一部被砸碎的智能手机从抗议中回来要好得多。
 

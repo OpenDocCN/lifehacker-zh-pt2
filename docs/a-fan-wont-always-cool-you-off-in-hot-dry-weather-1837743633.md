@@ -1,6 +1,6 @@
 # 在炎热干燥的天气里，风扇并不总是能给你降温
 
-> 原文:[https://life hacker . com/a-fan-wont-always-cool-you-off-in-hot-dry-weather-1837743633](https://lifehacker.com/a-fan-wont-always-cool-you-off-in-hot-dry-weather-1837743633)
+> 原文：<https://lifehacker.com/a-fan-wont-always-cool-you-off-in-hot-dry-weather-1837743633>
 
 如果你没有空调，当炎热来袭时，你的第一反应可能是打开风扇。但是风扇并不总是让你凉快——这取决于你是在潮湿还是干燥的地方。
 

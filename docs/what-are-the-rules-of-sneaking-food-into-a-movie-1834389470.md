@@ -1,6 +1,6 @@
 # 问咸女服务员:把食物偷偷带进电影有什么规矩？
 
-> 原文:[https://the take out . com/把食物偷偷带进电影的规则是什么-1834389470](https://thetakeout.com/what-are-the-rules-of-sneaking-food-into-a-movie-1834389470)
+> 原文：<https://thetakeout.com/what-are-the-rules-of-sneaking-food-into-a-movie-1834389470>
 
 > 亲爱的 Salty:我已成年的女儿和我每个月都会一起去看几场电影。这是我们难得的联络感情的活动之一，我真的很期待。但是哇，剧院的食物很贵！我已经习惯了在包里带我们自己的零食，这似乎很好。但是对于更长的电影或者在吃饭时间开始的电影，我想知道我可以带着带进来的食物走多远。预包装的三明治和饼干太多了吗？我不想让周围的人不高兴，也不想让我们被剧院的工作人员赶出去。
 > 

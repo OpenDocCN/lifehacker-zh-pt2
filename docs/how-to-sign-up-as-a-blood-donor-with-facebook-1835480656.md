@@ -1,6 +1,6 @@
 # 如何在脸书注册成为献血者
 
-> 原文:[https://life hacker . com/how-to-sign-a-a-blood-donor-1835480656](https://lifehacker.com/how-to-sign-up-as-a-blood-donor-with-facebook-1835480656)
+> 原文：<https://lifehacker.com/how-to-sign-up-as-a-blood-donor-with-facebook-1835480656>
 
 当医院的血液越来越少时，没有办法只订购更多的血液——血库必须向像你我这样可能想献血的志愿者发出信息。 [脸书正在向几个美国城市推出献血功能](https://newsroom.fb.com/news/2019/06/us-blood-donations/) ，当你所在的地区需要你的血型时，它会通知你。
 

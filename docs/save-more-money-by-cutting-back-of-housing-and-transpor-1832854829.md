@@ -1,6 +1,6 @@
 # 通过降低住房和交通成本来节省更多的钱
 
-> 原文:[https://life hacker . com/save-more-money by-cut-back-of-housing-and-transport-1832854829](https://lifehacker.com/save-more-money-by-cutting-back-of-housing-and-transpor-1832854829)
+> 原文：<https://lifehacker.com/save-more-money-by-cutting-back-of-housing-and-transpor-1832854829>
 
 我们可能都希望银行里有更多的现金。一个简单的方法是减少住房和交通费用。
 

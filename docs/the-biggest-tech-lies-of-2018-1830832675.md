@@ -1,6 +1,6 @@
 # 2018 年最大的技术谎言
 
-> 原文:[https://gizmodo . com/the-biggest-tech-lies-of-2018-1830832675](https://gizmodo.com/the-biggest-tech-lies-of-2018-1830832675)
+> 原文：<https://gizmodo.com/the-biggest-tech-lies-of-2018-1830832675>
 
 科技界在 2018 年说了很多谎言，并且它以前所未有的速度陷入了这些谎言。一些硅谷玩家甚至开始 [唤醒](https://www.forbes.com/sites/parmyolson/2018/09/26/exclusive-whatsapp-cofounder-brian-acton-gives-the-inside-story-on-deletefacebook-and-why-he-left-850-million-behind/#556a5c2c3f20) 这些年来他们告诉自己的谎言。面对如此多的谎言，我们有必要回顾一下，看看在公众对科技的信任开始下降的这一年，谁变得更强大了。
 

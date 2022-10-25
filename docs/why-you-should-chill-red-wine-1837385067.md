@@ -1,6 +1,6 @@
 # 为什么你应该冷藏红酒
 
-> 原文:[https://life hacker . com/why-you-should-chill-red-wine-1837385067](https://lifehacker.com/why-you-should-chill-red-wine-1837385067)
+> 原文：<https://lifehacker.com/why-you-should-chill-red-wine-1837385067>
 
 很少有人认为红酒是需要冷藏的东西。毕竟，红酒通常是在“室温”下供应的，但这一数值会因房间、房屋和气候的不同而大相径庭。但是大多数红酒都受益于至少在冰箱里的一点时间，尤其是在炎热的月份。
 

@@ -1,6 +1,6 @@
 # 当你被困在里面的时候填写人口普查表格
 
-> 原文:[https://life hacker . com/1842471022](https://lifehacker.com/fill-out-the-census-form-while-youre-stuck-inside-1842471022)
+> 原文：<https://lifehacker.com/fill-out-the-census-form-while-youre-stuck-inside-1842471022>
 
 面对冠状病毒感到无助？你可以迈出重要的一小步:F 我会在网上填写你的人口普查表格。访问 2020census.gov 的来完成你的在线人口普查，这可能会花不到 10 分钟(我的大概花了 3 分钟)，并且会让你觉得你做了一些有成效的事情。
 

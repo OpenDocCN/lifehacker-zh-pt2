@@ -1,6 +1,6 @@
 # 如何制定 50/20/30 的预算
 
-> 原文:[https://life hacker . com/how-to-set-up-a-50-20-30-budget-1843889336](https://lifehacker.com/how-to-set-up-a-50-20-30-budget-1843889336)
+> 原文：<https://lifehacker.com/how-to-set-up-a-50-20-30-budget-1843889336>
 
 有很多不同的预算方法，你可以尝试确定管理你的钱的最佳方式。但是，尽管预算指南可能会提到这些方法或提供需要关注的大类，但它们并不总是能让你很容易看到你的预算实际上会是什么样子。
 

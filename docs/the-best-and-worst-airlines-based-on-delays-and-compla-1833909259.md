@@ -1,6 +1,6 @@
 # 基于延误和投诉的最佳和最差航空公司
 
-> 原文:[https://life hacker . com/the-best and-worst-based-on-delay-and-complave-1833909259](https://lifehacker.com/the-best-and-worst-airlines-based-on-delays-and-compla-1833909259)
+> 原文：<https://lifehacker.com/the-best-and-worst-airlines-based-on-delays-and-compla-1833909259>
 
 有没有经历过长时间的延误，却在错误的州着陆，滞留在没有食物的停机坪上？我有！我不建议这样做。
 

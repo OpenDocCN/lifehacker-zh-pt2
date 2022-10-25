@@ -1,6 +1,6 @@
 # 你可以在任何你喜欢的东西上撒烤棕色黄油魔法
 
-> 原文:[https://the take out . com/brown-butter-solids-recipe-1838524270](https://thetakeout.com/brown-butter-solids-recipe-1838524270)
+> 原文：<https://thetakeout.com/brown-butter-solids-recipe-1838524270>
 
 伙计，我喜欢棕色黄油。我想我们都是，真的。当你在菜单上看到棕色黄油，你就看到了奢华。你甚至不需要知道它是什么味道；你只需知道，这位主厨决定花时间将普通的黄油制作成*特制的*黄油，将黄油的牛奶固体变成了漂亮的烤琥珀色。棕色黄油是那种更加努力的黄油，因为宝贝，你值得拥有。
 

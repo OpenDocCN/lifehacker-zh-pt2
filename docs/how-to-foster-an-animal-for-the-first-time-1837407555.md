@@ -1,6 +1,6 @@
 # 如何第一次寄养动物
 
-> 原文:[https://life hacker . com/how-to-foster-a-animal-first-1837407555](https://lifehacker.com/how-to-foster-an-animal-for-the-first-time-1837407555)
+> 原文：<https://lifehacker.com/how-to-foster-an-animal-for-the-first-time-1837407555>
 
 在纽约市 的 [动物护理中心，收容所每天接收 40 到 60 只动物；在去年的一个假日周末，收容所接收了 300 多只动物，包括流浪狗、猫和兔子或被主人遗弃的动物。](https://www.amny.com/news/homeless-pets-acc-1.18844852) 
 

@@ -1,6 +1,6 @@
 # 当航空公司损坏了你的轮椅或滑板车时该怎么办
 
-> 原文:[https://life hacker . com/1833378977](https://lifehacker.com/what-to-do-when-an-airline-damages-your-wheelchair-or-s-1833378977)
+> 原文：<https://lifehacker.com/what-to-do-when-an-airline-damages-your-wheelchair-or-s-1833378977>
 
 飞行本身就很困难，对于使用轮椅和踏板车的乘客来说更是雪上加霜。
 

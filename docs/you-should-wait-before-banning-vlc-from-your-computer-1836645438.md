@@ -1,6 +1,6 @@
 # 你不需要从你的电脑上卸载 VLC[更新]
 
-> 原文:[https://life hacker . com/you-should-wait-before-banning-VLC-from-your-computer-1836645438](https://lifehacker.com/you-should-wait-before-banning-vlc-from-your-computer-1836645438)
+> 原文：<https://lifehacker.com/you-should-wait-before-banning-vlc-from-your-computer-1836645438>
 
 今天有消息称，VLC 媒体播放器——非常受欢迎，也是 life hacker 推荐的——据称有一个非常严重的漏洞，可能会允许一个“陷阱”视频，正如 [The Register](https://www.theregister.co.uk/2019/07/23/remote_code_flaw_vlc/) 所说，要么让播放器崩溃，要么执行远程代码。前者？一个烦恼。后者？这是一个巨大的安全问题，我们建议卸载 VLC 来解决这个问题，直到它的创建者 VideoLAN 发布补丁。
 

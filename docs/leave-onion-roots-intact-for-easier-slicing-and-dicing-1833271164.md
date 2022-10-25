@@ -1,6 +1,6 @@
 # 保持洋葱根完整，以便于切片和切块
 
-> 原文:[https://life hacker . com/leave-onion-roots-intact-for-easy-slicing-and-dicing-1833271164](https://lifehacker.com/leave-onion-roots-intact-for-easier-slicing-and-dicing-1833271164)
+> 原文：<https://lifehacker.com/leave-onion-roots-intact-for-easier-slicing-and-dicing-1833271164>
 
 现在，我可以在睡梦中切洋葱 了:把它切成两半，去掉茎和根，去皮，切片。在我准备洋葱的这些年里，我从来没有想过要改变一些东西，但是跳过其中的一个步骤——去根——已经改变了我的洋葱口味。
 

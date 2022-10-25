@@ -1,6 +1,6 @@
 # 自来水中有致癌物质，但不要过度恐慌
 
-> 原文:[https://life hacker . com/自来水中有致癌物，但不要大惊小怪-1838258808](https://lifehacker.com/there-are-carcinogens-in-tap-water-but-dont-freak-out-1838258808)
+> 原文：<https://lifehacker.com/there-are-carcinogens-in-tap-water-but-dont-freak-out-1838258808>
 
 一项新的研究发现，自来水污染物可能导致美国每年 10 万例癌症 。虽然这些数字可能是正确的(很难确定)，但这并不意味着你应该太担心你的自来水。
 

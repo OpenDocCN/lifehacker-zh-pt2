@@ -1,6 +1,6 @@
 # 通过“成为互联网达人”计划，向您的孩子传授数字安全知识
 
-> 原文:[https://life hacker . com/teach-your-kid-on-the-be-interne-1835951617](https://lifehacker.com/teach-your-kid-about-digital-safety-with-the-be-interne-1835951617)
+> 原文：<https://lifehacker.com/teach-your-kid-about-digital-safety-with-the-be-interne-1835951617>
 
 作为父母，我们不断被敦促教导我们的孩子有关互联网安全。这是我们必须做的事情——这一点很清楚。但是父母需要更多的指导，因为让我们面对现实:我们自己也在努力在网络的浑水中航行。这就是为什么我喜欢谷歌发布的工具，作为他们针对儿童的[Be Internet Awesome](https://beinternetawesome.withgoogle.com/en_us)计划的一部分。免费的网络游戏[【Interland】](https://beinternetawesome.withgoogle.com/en_us/interland)特别有帮助——我玩了这个游戏，自己也学到了一些关于数字安全和公民身份的东西。
 

@@ -1,6 +1,6 @@
 # 这个聊天机器人帮助你与生活中的疫苗否认者交谈
 
-> 原文:[https://life hacker . com/this-chatbot-help-you-talk-to-the-the-vaccine-deniers-in-y-1834169246](https://lifehacker.com/this-chatbot-helps-you-talk-to-the-vaccine-deniers-in-y-1834169246)
+> 原文：<https://lifehacker.com/this-chatbot-helps-you-talk-to-the-vaccine-deniers-in-y-1834169246>
 
 不想给孩子接种疫苗的父母可能看起来与我们如此疏远，以至于很难理解他们是如何形成自己的观点的。但他们大概都有当时在身边的朋友和家人，却不知道 [说什么](https://lifehacker.com/how-to-make-sure-your-friends-dont-become-anti-vaxxers-1832815146) 。
 

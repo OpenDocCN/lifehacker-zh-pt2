@@ -1,6 +1,6 @@
 # 你应该选择退出不和的新政策变化
 
-> 原文:[https://kotaku . com/you-should-opt-out-of-discords-new-policy-changes-1829867491](https://kotaku.com/you-should-opt-out-of-discords-new-policy-changes-1829867491)
+> 原文：<https://kotaku.com/you-should-opt-out-of-discords-new-policy-changes-1829867491>
 
 Discord 服务条款的一个微小但重要的变化对用户有很大的影响。社交应用的条款现在包括集体弃权，这将防止参与更大的诉讼。这是 [据说是为了防止无意义的诉讼](https://blog.discordapp.com/terms-of-service-feedback-and-changes-c58a530c7693) ，但是如果你想保护你的消费者权利，一封简单的电子邮件就会让你退出该政策。
 

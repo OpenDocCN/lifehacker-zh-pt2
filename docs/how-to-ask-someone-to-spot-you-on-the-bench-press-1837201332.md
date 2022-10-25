@@ -1,6 +1,6 @@
 # 如何让人在卧推上认出你
 
-> 原文:[https://life hacker . com/how-to-quest-someone-spot you-the-bench-press-1837201332](https://lifehacker.com/how-to-ask-someone-to-spot-you-on-the-bench-press-1837201332)
+> 原文：<https://lifehacker.com/how-to-ask-someone-to-spot-you-on-the-bench-press-1837201332>
 
 卧推真他妈的可怕。我仍然会做噩梦，梦见自己被杠铃砸死，在纽约的一家运动俱乐部里死去——但如果你有一个观察员，并与他们充分沟通，你就不应该这么担心。
 

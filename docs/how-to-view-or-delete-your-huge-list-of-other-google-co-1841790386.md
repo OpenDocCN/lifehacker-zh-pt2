@@ -1,6 +1,6 @@
 # 如何查看或删除庞大的“其他”谷歌联系人列表
 
-> 原文:[https://life hacker . com/how-to-view-or-delete-your-big-list-of-other-Google-co-1841790386](https://lifehacker.com/how-to-view-or-delete-your-huge-list-of-other-google-co-1841790386)
+> 原文：<https://lifehacker.com/how-to-view-or-delete-your-huge-list-of-other-google-co-1841790386>
 
 如果你曾经在 Android 上努力寻找一个旧的 Gmail 联系人或未保存的号码，这里有一个有用的技巧:原来谷歌有一个列表，列出了你曾经发送或接收电子邮件的每个 Gmail 帐户，包括那些你没有保存到你的联系人中的帐户，作为“其他联系人”
 

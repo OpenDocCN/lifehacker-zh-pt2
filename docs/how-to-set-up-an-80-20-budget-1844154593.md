@@ -1,6 +1,6 @@
 # 如何建立 80/20 预算
 
-> 原文:[https://life hacker . com/how-to-set-up-an-80-20-budget-1844154593](https://lifehacker.com/how-to-set-up-an-80-20-budget-1844154593)
+> 原文：<https://lifehacker.com/how-to-set-up-an-80-20-budget-1844154593>
 
 当你做预算时，你很可能会得到建议，集中精力尽早、经常存钱。
 

@@ -1,6 +1,6 @@
 # 如何防止你的信用卡奖励过期
 
-> 原文:[https://life hacker . com/how-to-keep-your-credit-rewards-from-expired-1838745027](https://lifehacker.com/how-to-keep-your-credit-card-rewards-from-expiring-1838745027)
+> 原文：<https://lifehacker.com/how-to-keep-your-credit-card-rewards-from-expiring-1838745027>
 
 你总是使用你的航空公司或酒店积分吗？你知道它们有没有有效期吗？
 

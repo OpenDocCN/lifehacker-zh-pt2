@@ -1,6 +1,6 @@
 # 告诉我们你最好的棕榈泉旅游建议
 
-> 原文:[https://life hacker . com/tell-us-your-best-palm-springs-travel-tips-1832265001](https://lifehacker.com/tell-us-your-best-palm-springs-travel-tips-1832265001)
+> 原文：<https://lifehacker.com/tell-us-your-best-palm-springs-travel-tips-1832265001>
 
 棕榈泉只有 48000 名居民，但每年的游客超过 100 万。因此，对于那些在 12 月份在泳池边闲逛几周的人，以及常年忍受恶劣天气的当地人来说，生活是非常不同的:整个夏天的月平均最高气温高达 100 多度。我们想从两者中得到提示。在棕榈泉旅游和生活，你了解到了哪些意想不到的事情？
 

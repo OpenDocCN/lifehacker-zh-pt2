@@ -1,6 +1,6 @@
 # 你可能不需要的 Lifehacker 认可的 Mac 应用程序
 
-> 原文:[https://life hacker . com/the-life hacker-apps-you-may-not-need-1831745295](https://lifehacker.com/the-lifehacker-approved-apps-you-might-not-need-1831745295)
+> 原文：<https://lifehacker.com/the-lifehacker-approved-apps-you-might-not-need-1831745295>
 
 如果我可以在每篇 Lifehacker 文章上加上一个免责声明，那就是:不是每一个黑客、技巧或应用程序都适合所有人。本着这种精神，以下是我已经停止使用的 Lifehacker 批准的应用程序。我没有在我的新 Mac 电脑 上安装它们，我很好奇你们中有多少人也放弃了它们。
 

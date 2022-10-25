@@ -1,6 +1,6 @@
 # 不要让你的“理想工作”影响你的实际职业
 
-> 原文:[https://life hacker . com/不要让你的梦想工作破坏你的实际职业生涯](https://lifehacker.com/dont-let-your-dream-job-derail-your-actual-career-1830323589)
+> 原文：<https://lifehacker.com/dont-let-your-dream-job-derail-your-actual-career-1830323589>
 
 我一直想成为一名作家，至少当我不再想成为一名私家侦探的时候。但从我找到第一份写作工作的那天起，我就已经在计划如何找到其他更好的工作。多年来，我一直梦想着不断变化的理想工作(通常是某种形式的编剧，因为我是那种陈词滥调)，总是将它与我的“真实”工作相比较。
 

@@ -1,6 +1,6 @@
 # 如何从旧手机中保存重要的语音邮件？
 
-> 原文:[https://life hacker . com/how-do-you-save-an-old-phon-1836883299](https://lifehacker.com/how-do-you-save-an-important-voicemail-from-an-old-phon-1836883299)
+> 原文：<https://lifehacker.com/how-do-you-save-an-important-voicemail-from-an-old-phon-1836883299>
 
 欢迎回到 Lifehacker 每周技术建议专栏 [**Tech 911**](https://lifehacker.com/c/tech-911) 。我们有一个稍微新的外观！希望你喜欢，因为我爱它。本周，我们要解决一个更难的读者问题——与其说是难度，不如说是主题。不过，我觉得有必要回答这个问题，因为这是我们所有人在生活中的某个时刻都可能不得不面对的事情。
 

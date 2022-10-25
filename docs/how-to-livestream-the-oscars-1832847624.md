@@ -1,6 +1,6 @@
 # 如何直播奥斯卡颁奖典礼
 
-> 原文:[https://life hacker . com/how-to-live stream-the-Oscars-1832847624](https://lifehacker.com/how-to-livestream-the-oscars-1832847624)
+> 原文：<https://lifehacker.com/how-to-livestream-the-oscars-1832847624>
 
 本周日是奥斯卡颁奖典礼。美国东部时间下午 6:30/太平洋时间下午 3:30 开始红毯报道，实际颁奖典礼在美国东部时间晚上 8 点/太平洋时间下午 5 点开始。
 

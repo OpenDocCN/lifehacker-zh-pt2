@@ -1,6 +1,6 @@
 # 用这个免费的声控提词器让公开演讲变得更容易
 
-> 原文:[https://life hacker . com/make-public-speaking-easy-with this-free-voice-contro-1831702450](https://lifehacker.com/make-public-speaking-easier-with-this-free-voice-contro-1831702450)
+> 原文：<https://lifehacker.com/make-public-speaking-easier-with-this-free-voice-contro-1831702450>
 
 如果你不习惯公开演讲，提词器可能是你武器库中的有用工具。提词器可以帮助你保持演讲在正确的轨道上，让一切进行得更顺利。只有一个问题:大多数免费的网络提词器会自动滚动，这意味着如果你在阅读时出于任何原因暂停，你的提词器就会离开你。
 

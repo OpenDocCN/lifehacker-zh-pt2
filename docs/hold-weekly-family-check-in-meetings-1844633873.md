@@ -1,6 +1,6 @@
 # 举行每周一次的家庭“签到”会议
 
-> 原文:[https://life hacker . com/hold-weekly-family-check-in-meetings-1844633873](https://lifehacker.com/hold-weekly-family-check-in-meetings-1844633873)
+> 原文：<https://lifehacker.com/hold-weekly-family-check-in-meetings-1844633873>
 
 你可能已经在工作中做了类似的事情:每周一次，即使你和你的同事几乎一直在交流，整个团队坐下来(最近可能是通过视频聊天)对事情的进展进行简要概述。这些会议遵循一定的脚本，来自不同部门的更新，或者可能是讨论正在进行的项目的更随意的聚会。这样的会议可能很重要，即使你整天都在用其他方式交流，因为这是一个喘息的时刻，面对面地虚拟地看着对方，谈论事情进展如何。家庭也可以这样做。
 

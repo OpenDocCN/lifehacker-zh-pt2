@@ -1,6 +1,6 @@
 # 2019 年最佳零食黑客
 
-> 原文:[https://life hacker . com/the-best-snack-hacks-of-2019-1840616976](https://lifehacker.com/the-best-snack-hacks-of-2019-1840616976)
+> 原文：<https://lifehacker.com/the-best-snack-hacks-of-2019-1840616976>
 
 零食是一种艺术形式。与正餐不同，正餐应该是丰富而持久的，小吃应该是可食用的娱乐，具有浓郁的风味、不同的质地和意想不到的味道。从巨型泡菜到华夫饼干，这些都是 2019 年我们最喜欢的零食。
 

@@ -1,6 +1,6 @@
 # 如何在 Chrome 中获得真正的谷歌搜索框
 
-> 原文:[https://life hacker . com/how-to-get-a-real-Google-search-box-in-chrome-1840730795](https://lifehacker.com/how-to-get-a-real-google-search-box-in-chrome-1840730795)
+> 原文：<https://lifehacker.com/how-to-get-a-real-google-search-box-in-chrome-1840730795>
 
 你知道当你在谷歌浏览器中打开一个新标签时看到的谷歌搜索栏吗？嗯，这不是一个“真正的”搜索字段。它实际上只是将所有活动重定向到浏览器的地址栏，并不在新的标签页中返回任何搜索结果。坦白地说，它只不过是一个无用的装饰——至少默认情况下是这样。
 

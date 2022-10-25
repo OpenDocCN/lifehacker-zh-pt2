@@ -1,6 +1,6 @@
 # 在 90 天免费试用期结束前取消您的 Quibi 订阅
 
-> 原文:[https://life hacker . com/cancel-your-quibi-subscription-before-your-90-day-free-1844177515](https://lifehacker.com/cancel-your-quibi-subscription-before-your-90-day-free-1844177515)
+> 原文：<https://lifehacker.com/cancel-your-quibi-subscription-before-your-90-day-free-1844177515>
 
 Quibi 是一种为你的移动设备提供的新的(ish)短格式流媒体服务，已经问世近三个月了。这意味着，如果你在 Quibi 90 天免费试用开始时就全力以赴，你的推广期将在下个月的某个时候到期——除非你取消，否则订阅费将开始生效。
 

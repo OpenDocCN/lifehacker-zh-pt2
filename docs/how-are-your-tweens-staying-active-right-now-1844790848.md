@@ -1,6 +1,6 @@
 # how are your tweens staying active right now 1844790848
 
-> 原文:[https://life hacker . com/how-are-your-tweens-stay-active-right-now-1844790848](https://lifehacker.com/how-are-your-tweens-staying-active-right-now-1844790848)
+> 原文：<https://lifehacker.com/how-are-your-tweens-staying-active-right-now-1844790848>
 
 对我们许多人来说，在疫情期间保持体力活动一直是一个难题。健身房关闭，自行车销售一空；有一段时间，甚至在公园里散步都像是一场赌博。但是我看到了那些突然失去了所有团队运动、休息时间的踢球游戏、舞蹈课和上学放学的散步的青少年是多么的艰难。他们不再年轻，他们充满了那种特殊的小孩子的能量，这种能量让他们到处攀爬，但他们可能还没有到想要有意识地进行定期锻炼的年龄。
 

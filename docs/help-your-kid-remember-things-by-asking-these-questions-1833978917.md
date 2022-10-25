@@ -1,6 +1,6 @@
 # 通过问这些问题来帮助你的孩子记住事情
 
-> 原文:[https://life hacker . com/help-your-kid-remember-things-questions-1833978917](https://lifehacker.com/help-your-kid-remember-things-by-asking-these-questions-1833978917)
+> 原文：<https://lifehacker.com/help-your-kid-remember-things-by-asking-these-questions-1833978917>
 
 “别忘了！”这是我对我女儿说的话之一，我的声音充满热情，但内心却充满恐惧。
 

@@ -1,6 +1,6 @@
 # 如何回收你用过的剃须刀
 
-> 原文:[https://life hacker . com/how-to-recycle-your-used-razors-1833372428](https://lifehacker.com/how-to-recycle-your-used-razors-1833372428)
+> 原文：<https://lifehacker.com/how-to-recycle-your-used-razors-1833372428>
 
 你的浴室里有一堆用过的剃须刀吗？好吧，忘记把它们扔进它们通常会掉落的垃圾桶吧——现在，你可以回收你所有的一次性剃须刀、头发等等，只需要在邮件里放一个简单的包裹。
 

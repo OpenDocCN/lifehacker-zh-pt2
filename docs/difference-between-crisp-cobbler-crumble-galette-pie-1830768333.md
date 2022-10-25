@@ -1,6 +1,6 @@
 # 脆皮馅饼、脆皮馅饼、带扣馅饼、galette 馅饼和 pandowdy 馅饼有什么区别？
 
-> 原文:[https://the take out . com/difference-crisp-cobbler-crumble-galette-pie-1830768333](https://thetakeout.com/difference-between-crisp-cobbler-crumble-galette-pie-1830768333)
+> 原文：<https://thetakeout.com/difference-between-crisp-cobbler-crumble-galette-pie-1830768333>
 
 随着假日烘焙达到顶峰，你会发现我有任何借口不做馅饼。我这辈子只做过几个不可思议的馅饼。其余的:很好，但容易忘记。底部潮湿，顶部开裂，黄油切得太小，馅料太稀。有这么多潜在的陷阱，我甚至不能生自己的气。完美的馅饼是一项艰巨的任务。【T2
 

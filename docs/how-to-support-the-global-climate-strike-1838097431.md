@@ -1,6 +1,6 @@
 # 如何支持全球气候罢工
 
-> 原文:[https://life hacker . com/how-to-support-the-global-climate-strike-1838097431](https://lifehacker.com/how-to-support-the-global-climate-strike-1838097431)
+> 原文：<https://lifehacker.com/how-to-support-the-global-climate-strike-1838097431>
 
 上周，16 岁的活动家格里塔·图恩伯格 和数百名其他年轻活动家在白宫前抗议，要求对气候变化采取行动。本周五，9 月 20 日，他们将与世界各地成千上万的其他年轻(和年长)抗议者一起参加全球气候罢工。但是罢工到底是什么？如果你不能加入，你怎么能支持抗议呢？
 

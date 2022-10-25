@@ -1,6 +1,6 @@
 # 通过计时让你的日子更有效率
 
-> 原文:[https://life hacker . com/make-your-days-more-productive by-time boxing-1832508849](https://lifehacker.com/make-your-days-more-productive-by-timeboxing-1832508849)
+> 原文：<https://lifehacker.com/make-your-days-more-productive-by-timeboxing-1832508849>
 
 有很多黑客声称它们会让你更有效率。现在有一个已经被证明是“最好的”:Timeboxing。
 

@@ -1,6 +1,6 @@
 # 股票亏损不算，直到你卖出
 
-> 原文:[https://life hacker . com/stock-losses-don ' t-count-unt-you-sell-1841493530](https://lifehacker.com/stock-losses-dont-count-until-you-sell-1841493530)
+> 原文：<https://lifehacker.com/stock-losses-dont-count-until-you-sell-1841493530>
 
 我的投资最近一直在反弹，尽管它们呈下降趋势；过去一周，我投资组合的总体回报率从 10.3%升至 9.3%。
 

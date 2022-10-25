@@ -1,6 +1,6 @@
 # 为什么又是“给予星期二”
 
-> 原文:[https://life hacker . com/why-its-giving-Tuesday-again-1843263392](https://lifehacker.com/why-its-giving-tuesday-again-1843263392)
+> 原文：<https://lifehacker.com/why-its-giving-tuesday-again-1843263392>
 
 捐赠星期二，人们被邀请向他们支持和重视的组织进行慈善捐赠的日子，通常发生在感恩节后的星期二(黑色星期五、小企业星期六和网络星期一之后)。
 

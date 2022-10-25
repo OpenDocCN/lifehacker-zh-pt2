@@ -1,6 +1,6 @@
 # how to demand action on climate change 1829783214
 
-> 原文:[https://life hacker . com/how-to-demand-action-on-climate-change-1829783214](https://lifehacker.com/how-to-demand-action-on-climate-change-1829783214)
+> 原文：<https://lifehacker.com/how-to-demand-action-on-climate-change-1829783214>
 
 上周，政府间气候变化专门委员会发布了一份报告——一个克拉克森，真的——警告气候变化的灾难性后果，如果全球政治领导人现在不采取行动*。对于几十年来一直在敲响警钟的人来说，这份报告令人沮丧，但并不令人惊讶；对于我们这些没有给予科学应有关注的人来说，这份报告敲响了警钟。然而，无论你属于哪个群体，前进的道路是明确的:我们需要向我们的当选领导人、企业、甚至我们的朋友和邻居施加压力，以改变我们的方式，否则我们将目睹海平面上升、自然灾害、战争、饥荒和世界从未见过的难民危机。正如《纽约时报》[*所写的那样,*](https://www.nytimes.com/2018/10/09/opinion/climate-change-ipcc-report.html) *“世界必须在未来十年彻底改造其能源系统，否则将面临生态和社会灾难的风险。”** 
 

@@ -1,6 +1,6 @@
 # 你绝对应该油炸所有剩下的鸡皮
 
-> 原文:[https://life hacker . com/you-should-very-油炸任何和所有剩余的鸡肉-1842618948](https://lifehacker.com/you-should-definitely-fry-any-and-all-leftover-chicken-1842618948)
+> 原文：<https://lifehacker.com/you-should-definitely-fry-any-and-all-leftover-chicken-1842618948>
 
 我从来没有完全信任过不喜欢吃烤鸡皮的人。(这里面包括我妈。)无论是刚出炉还是从好市多烤肉店(Costco rotisserie)吐出来的脆皮，都是家禽消费的亮点之一。那些留下它的人是*傻瓜*。
 

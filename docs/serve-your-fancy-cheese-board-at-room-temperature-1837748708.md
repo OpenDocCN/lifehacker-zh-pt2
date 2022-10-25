@@ -1,6 +1,6 @@
 # 在室温下端上你的花式奶酪板
 
-> 原文:[https://life hacker . com/serve-your-fancy-cheese-board-in-room-temperature-1837748708](https://lifehacker.com/serve-your-fancy-cheese-board-at-room-temperature-1837748708)
+> 原文：<https://lifehacker.com/serve-your-fancy-cheese-board-at-room-temperature-1837748708>
 
 奶酪最好储存在奶酪洞里或冰箱里(如果你是农民的话)，但是吃冷奶酪——直接从冰箱里拿出来——我今天很难过，这是一个愚蠢的举动。
 

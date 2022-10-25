@@ -1,6 +1,6 @@
 # 问凯特关于啤酒的问题:在空中旅行时，包装啤酒的最好方法是什么？
 
-> 原文:[https://the take out . com/best-way-to-pack-beer-for-plant-1831230837](https://thetakeout.com/best-way-to-pack-beer-for-airplane-1831230837)
+> 原文：<https://thetakeout.com/best-way-to-pack-beer-for-airplane-1831230837>
 
 *欢迎来到* [***向凯特询问啤酒***](https://thetakeout.com/tag/askkateaboutbeer#_ga=2.42154085.151519429.1525036156-308846628.1493669845) *，其中*外卖*的常驻啤酒专家回答了你曾经想知道的关于啤酒却又醉得不敢问的一切。有问题吗？把它拍给 beer@thetakeout.com。*
 

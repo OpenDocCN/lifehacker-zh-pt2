@@ -1,6 +1,6 @@
 # 为什么您总是被“随机选择”进行额外的机场安检
 
-> 原文:[https://life hacker . com/why-you-always-random-selected-for-additional-airpo-1840362690](https://lifehacker.com/why-youre-always-randomly-selected-for-additional-airpo-1840362690)
+> 原文：<https://lifehacker.com/why-youre-always-randomly-selected-for-additional-airpo-1840362690>
 
 无论你准备得多么充分，机场延误都是不可避免的。如果你的包超重了，准备花几分钟打开行李，重新分配你的东西，然后重新打包以安抚航空代理人。如果只是为了登记而排队，那么，你前面的 12 个家庭和几辆婴儿车可能会多花 30 分钟。当然，还有安全线。
 

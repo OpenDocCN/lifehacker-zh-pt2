@@ -1,6 +1,6 @@
 # 调味 Vapes 安全吗？
 
-> 原文:[https://life hacker . com/we-still-not-know-if-flavored-vapes-are-safe-1838227841](https://lifehacker.com/we-still-dont-know-if-flavored-vapes-are-safe-1838227841)
+> 原文：<https://lifehacker.com/we-still-dont-know-if-flavored-vapes-are-safe-1838227841>
 
 仅仅因为一种调味品吃起来是安全的，并不意味着吸入也是安全的。但是由于法规上的漏洞，调味 vapes 已经变得很普遍。
 

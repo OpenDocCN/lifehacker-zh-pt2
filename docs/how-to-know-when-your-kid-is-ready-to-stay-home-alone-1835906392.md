@@ -1,6 +1,6 @@
 # 如何知道你的孩子何时准备好独自呆在家里
 
-> 原文:[https://life hacker . com/how-to-know-when-your kid-ready-to-stay-alone-1835906392](https://lifehacker.com/how-to-know-when-your-kid-is-ready-to-stay-home-alone-1835906392)
+> 原文：<https://lifehacker.com/how-to-know-when-your-kid-is-ready-to-stay-home-alone-1835906392>
 
 没有父母陪伴独自呆在家里是童年的一个重要仪式；但在这个时代，父母甚至不敢让孩子在车里呆一分钟，因为他们从商店里拿东西，弄清楚他们什么时候准备好了可能是一个真正的挑战。
 

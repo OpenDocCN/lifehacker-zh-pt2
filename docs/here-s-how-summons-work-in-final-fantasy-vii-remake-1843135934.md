@@ -1,6 +1,6 @@
 # 这是召唤在最终幻想 7 翻拍版中的工作方式
 
-> 原文:[https://kotaku . com/here-s-how-invoice-work-in-final-fantasy-VII-remake-1843135934](https://kotaku.com/here-s-how-summons-work-in-final-fantasy-vii-remake-1843135934)
+> 原文：<https://kotaku.com/here-s-how-summons-work-in-final-fantasy-vii-remake-1843135934>
 
 *最终幻想*没有召唤就不会是*最终幻想*。自从 [*【最终幻想 III】*](https://kotaku.com/final-fantasy-iii-retrospective-hope-you-like-losing-p-1784147478)以来，你已经能够在战斗中召唤超能力的神兽来帮忙，只需按下按钮，就能有效地扭转局势。*最终幻想 VII 重拍*， [来自 Square Enix](https://kotaku.com/i-need-much-more-of-final-fantasy-vii-remakes-dancing-m-1842979584) 的新舞斗游戏，并无不同。
 

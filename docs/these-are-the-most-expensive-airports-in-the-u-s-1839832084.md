@@ -1,6 +1,6 @@
 # 这些是美国最昂贵的机场
 
-> 原文:[https://life hacker . com/这些是美国最贵的机场-1839832084](https://lifehacker.com/these-are-the-most-expensive-airports-in-the-u-s-1839832084)
+> 原文：<https://lifehacker.com/these-are-the-most-expensive-airports-in-the-u-s-1839832084>
 
 感谢今天由积分盖伊 发表的一项 [研究，我们现在知道了如果你想在去优步的旅途中花费少一点——或者只是在终点站喝杯咖啡——你可能会想避开哪些机场。](https://thepointsguy.com/guide/most-and-least-expensive-us-airports)
 

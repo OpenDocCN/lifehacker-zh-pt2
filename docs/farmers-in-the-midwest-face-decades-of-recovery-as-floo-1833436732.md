@@ -1,6 +1,6 @@
 # 由于洪水冲走了关键的土壤，中西部的农民面临着几十年的恢复
 
-> 原文:[https://gizmodo . com/farmers-in-midwest-face-decades-of-recovery-as-floo-1833436732](https://gizmodo.com/farmers-in-the-midwest-face-decades-of-recovery-as-floo-1833436732)
+> 原文：<https://gizmodo.com/farmers-in-the-midwest-face-decades-of-recovery-as-floo-1833436732>
 
 中西部的洪水继续成为缓慢发展的灾难。内布拉斯加州的城镇、农场和基础设施仍然被淹没在水下，水需要几个月的时间才能通过庞大的河流、小溪和溪流网络，将中西部的上游排入墨西哥湾。
 

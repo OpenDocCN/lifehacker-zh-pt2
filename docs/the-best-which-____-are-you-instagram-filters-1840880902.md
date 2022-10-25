@@ -1,6 +1,6 @@
 # 如何找到最好的“你是谁”Instagram 过滤器
 
-> 原文:[https://life hacker . com/the-best-which-_ _ _ _-is-you-insta gram-filters-1840880902](https://lifehacker.com/the-best-which-____-are-you-instagram-filters-1840880902)
+> 原文：<https://lifehacker.com/the-best-which-____-are-you-instagram-filters-1840880902>
 
 你是哪个迪士尼角色？你是哪种字体？你是哪个办公室角色？我知道，Instagram 上的故事充斥着过滤测试。就像尤达宝宝和《巫师》中的那首歌一样，这些终将消失。在那之前，*是*种乐趣，看看你用 [这些 Instagram 时间浪费者](https://lifehacker.com/how-to-find-the-what-disney-character-are-you-filter-1840747851) 得到什么随机结果，现在似乎有一个“你是哪个 __”的 Instagram 测验，针对每个可能的流行文化角度。
 

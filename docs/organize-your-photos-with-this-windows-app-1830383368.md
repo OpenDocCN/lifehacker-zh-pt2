@@ -1,6 +1,6 @@
 # 使用此 Windows 应用整理您的照片
 
-> 原文:[https://life hacker . com/organize-your-photos-with this-windows-app-1830383368](https://lifehacker.com/organize-your-photos-with-this-windows-app-1830383368)
+> 原文：<https://lifehacker.com/organize-your-photos-with-this-windows-app-1830383368>
 
 Windows:如果你有一个又一个文件夹的照片，你发誓有一天你会整理它们，我不会感到惊讶对我来说，那天是这个周末。不管出于什么原因，我想花几个小时来处理我一生的摄影历史，我已经把它们放入我的网络存储设备上的一个大的“分类”文件夹中。
 

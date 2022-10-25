@@ -1,6 +1,6 @@
 # how to cook a murder hornet 1843298411
 
-> 原文:[https://life hacker . com/how-to-cook-a-murder-hornet-1843298411](https://lifehacker.com/how-to-cook-a-murder-hornet-1843298411)
+> 原文：<https://lifehacker.com/how-to-cook-a-murder-hornet-1843298411>
 
 本周,《纽约时报》向我们许多人介绍了“谋杀大黄蜂”,更准确的说法是亚洲巨型大黄蜂。但是我们中的一小部分人已经熟悉了这个 bug，因为 [我们吃过](https://gizmodo.com/i-just-remembered-that-i-ate-a-murder-hornet-once-1843270746) 。
 

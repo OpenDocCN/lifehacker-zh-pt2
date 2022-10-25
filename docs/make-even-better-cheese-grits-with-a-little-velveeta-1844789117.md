@@ -1,6 +1,6 @@
 # 用一点天鹅绒做更好的奶酪粉
 
-> 原文:[https://life hacker . com/make-even-better-cheese-grits with a little-velveta-1844789117](https://lifehacker.com/make-even-better-cheese-grits-with-a-little-velveeta-1844789117)
+> 原文：<https://lifehacker.com/make-even-better-cheese-grits-with-a-little-velveeta-1844789117>
 
 奶酪粉是一道简单、不起眼的菜——你先做好奶酪粉，然后把奶酪放进去。你吃了它们，然后你就开心了。这一系列的行动永远不会让你失望。但是，如果你想让你的奶酪粉在整碗中都有很浓的奶油味和奶酪味，可以考虑在你的切达干酪(或任何你经常使用的奶酪)中添加一点 Velveeta(或类似的加工过的奶酪产品)。
 

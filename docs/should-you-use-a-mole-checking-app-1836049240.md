@@ -1,6 +1,6 @@
 # 该不该用查痣 App？
 
-> 原文:[https://life hacker . com/should-you-use-a-mole-checking-app-1836049240](https://lifehacker.com/should-you-use-a-mole-checking-app-1836049240)
+> 原文：<https://lifehacker.com/should-you-use-a-mole-checking-app-1836049240>
 
 那颗痣看起来可疑吗？你可以下载一个应用程序来检查单个的痣，或者跟踪你身上的痣，但这些应用程序都不能代替真正的皮肤科医生检查。
 

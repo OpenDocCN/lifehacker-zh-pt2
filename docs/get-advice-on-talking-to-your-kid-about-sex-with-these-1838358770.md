@@ -1,6 +1,6 @@
 # 通过这些视频获得关于和孩子谈论性的建议
 
-> 原文:[https://life hacker . com/get-advice-on-talking-to-your-kid-the-things-1838358770](https://lifehacker.com/get-advice-on-talking-to-your-kid-about-sex-with-these-1838358770)
+> 原文：<https://lifehacker.com/get-advice-on-talking-to-your-kid-about-sex-with-these-1838358770>
 
 我们过去认为“谈话”是一种非常尴尬的谈话，你的父母让你坐下来，告诉你关于性的事情(你已经知道了)，并强烈建议你不要有性(也许你已经有了)。但是现在我们知道这个谈话实际上是一系列的谈话，不仅仅围绕着性——还包括性别、同意、抑郁、欺凌、手淫和色情。
 

@@ -1,6 +1,6 @@
 # 你可以暂停支付两个月的联邦学生贷款
 
-> 原文:[https://life hacker . com/you-can-suspend-your-federal-student-loan-payments-for-1842428578](https://lifehacker.com/you-can-suspend-your-federal-student-loan-payments-for-1842428578)
+> 原文：<https://lifehacker.com/you-can-suspend-your-federal-student-loan-payments-for-1842428578>
 
 特朗普总统今天表示，联邦学生贷款借款人可以 60 天不还款。但不是自动的。
 

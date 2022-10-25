@@ -1,6 +1,6 @@
 # 一加 7 专业评论:令人惊叹的全屏设计，值得每一分钱
 
-> 原文:[https://gizmodo . com/oneplus-7-pro-review-惊艳-全屏-设计-thas-1834738811](https://gizmodo.com/oneplus-7-pro-review-stunning-all-screen-design-thats-1834738811)
+> 原文：<https://gizmodo.com/oneplus-7-pro-review-stunning-all-screen-design-thats-1834738811>
 
 多年来，一加一直紧追三星(Samsung)和华为(Huawei)等智能手机巨头，推出拥有大规格、坚固设计的简约手机。对许多人来说，这完全没问题，因为它让一加以比竞争对手低数百的价格提供顶级的性能。
 

@@ -1,6 +1,6 @@
 # 检查您的华硕电脑是否受到“影子锤子”恶意软件攻击的影响
 
-> 原文:[https://life hacker . com/check-if-your-ASUS-computer-is-the-affected-by-1833580162](https://lifehacker.com/check-if-your-asus-computer-is-among-those-affected-by-1833580162)
+> 原文：<https://lifehacker.com/check-if-your-asus-computer-is-among-those-affected-by-1833580162>
 
 如果你有一台华硕电脑，你会想检查你的设备是否受到最近“影子锤子”恶意软件攻击的影响。
 

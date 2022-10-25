@@ -1,6 +1,6 @@
 # 美国最伟大的作家之一，诺贝尔文学奖得主托尼·莫里森去世，享年 88 岁
 
-> 原文:[https://www . the root . com/nobel-prize-winner-Toni-Morrison-one-of-America-s-grea-1836995611](https://www.theroot.com/nobel-prize-winner-toni-morrison-one-of-america-s-grea-1836995611)
+> 原文：<https://www.theroot.com/nobel-prize-winner-toni-morrison-one-of-america-s-grea-1836995611>
 
 Watch
 

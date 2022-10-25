@@ -1,6 +1,6 @@
 # 如果你的 iPad Air 出现空白，苹果会免费修复
 
-> 原文:[https://life hacker . com/if-your-ipad-air-just-go-blank-apple-will-fix-it-for-1842239745](https://lifehacker.com/if-your-ipad-air-just-went-blank-apple-will-fix-it-for-1842239745)
+> 原文：<https://lifehacker.com/if-your-ipad-air-just-went-blank-apple-will-fix-it-for-1842239745>
 
 一批不幸的第三代 iPad Airs 有一个缺陷，导致显示屏永久空白，不修复就没有办法修复。
 

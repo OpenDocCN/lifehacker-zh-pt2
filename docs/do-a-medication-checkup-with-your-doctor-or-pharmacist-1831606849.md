@@ -1,6 +1,6 @@
 # 和你的医生或药剂师一起做一次药物检查
 
-> 原文:[https://life hacker . com/do-a-medicine-check-with your ' s doctor-or-pharmaceutical-1831606849](https://lifehacker.com/do-a-medication-checkup-with-your-doctor-or-pharmacist-1831606849)
+> 原文：<https://lifehacker.com/do-a-medication-checkup-with-your-doctor-or-pharmacist-1831606849>
 
 如果你开了多种处方，或者已经开始使用非处方药或补充剂，那么可能是时候向你的医生咨询了。
 

@@ -1,6 +1,6 @@
 # 用简单的糖浆使沙拉酱变甜
 
-> 原文:[https://life hacker . com/sweet-salad-dressings-with-simple-糖浆-1832879603](https://lifehacker.com/sweeten-salad-dressings-with-simple-syrup-1832879603)
+> 原文：<https://lifehacker.com/sweeten-salad-dressings-with-simple-syrup-1832879603>
 
 每种沙拉酱都需要一些糖。是的，它增加了甜味，但它也抑制了苦味，缓和了酸味，将你的各种成分结合起来，创造出一种有凝聚力的风味。枫树，蜂蜜，龙舌兰都是很好的添加剂，但它们带来了自己的味道，除了纯粹的甜味。
 

@@ -1,6 +1,6 @@
 # 用 iblacklist 阻止 google 搜索结果中的网站
 
-> 原文:[https://life hacker . com/block-sites-from-Google-results-with-ublacklist-1835590882](https://lifehacker.com/block-sites-from-google-results-with-ublacklist-1835590882)
+> 原文：<https://lifehacker.com/block-sites-from-google-results-with-ublacklist-1835590882>
 
 Chrome: 有时你只是不想在谷歌搜索结果中看到某个网站。也许你想屏蔽一个粗略的新闻来源，或者你不想让 Pinterest 出现在你的图片搜索结果中，或者有一个非常恶心的论坛一直出现在搜索中。一些像雅虎问答和 Quora 这样的网站有办法把大量的搜索搞得乱七八糟。你可以用 [uBlacklist Chrome 扩展](https://chrome.google.com/webstore/detail/ublacklist/pncfbmialoiaghdehhbnbhkkgmjanfhe/related?hl=en) 来阻止一个网站的未来搜索。
 

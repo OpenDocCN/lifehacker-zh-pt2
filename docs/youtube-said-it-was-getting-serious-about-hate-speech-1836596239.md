@@ -1,6 +1,6 @@
 # youtube said it was getting serious about hate speech 1836596239
 
-> 原文:[https://gizmodo . com/YouTube-said-it-being-stay-serious-about-hate-speech-1836596239](https://gizmodo.com/youtube-said-it-was-getting-serious-about-hate-speech-1836596239)
+> 原文：<https://gizmodo.com/youtube-said-it-was-getting-serious-about-hate-speech-1836596239>
 
 上个月，YouTube [宣布](https://youtube.googleblog.com/2019/06/our-ongoing-work-to-tackle-hate.html) 对其仇恨言论政策进行全网站范围的调整，称其将不再容忍宣扬纳粹主义、白人至上主义的视频，或任何其他“声称一个群体是优越的，以证明基于种族、性别或性取向等因素歧视、隔离或排斥”他人的内容。
 

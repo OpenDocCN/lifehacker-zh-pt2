@@ -1,6 +1,6 @@
 # 了解你的信用卡争议政策
 
-> 原文:[https://life hacker . com/know-your-credit-cards-dispute-policy-1832820422](https://lifehacker.com/know-your-credit-cards-dispute-policy-1832820422)
+> 原文：<https://lifehacker.com/know-your-credit-cards-dispute-policy-1832820422>
 
 当欺诈性收费出现在您的信用卡账单上或被您的发卡机构标记时，您知道要取消您的卡并将其报告为欺诈。
 

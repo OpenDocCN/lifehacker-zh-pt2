@@ -1,6 +1,6 @@
 # 不要陷入“秘密姐妹”脸书骗局
 
-> 原文:[https://life hacker . com/don-fall-for-the-secret-sis ter-Facebook-scam-1830513717](https://lifehacker.com/dont-fall-for-that-secret-sister-facebook-scam-1830513717)
+> 原文：<https://lifehacker.com/dont-fall-for-that-secret-sister-facebook-scam-1830513717>
 
 本周，一堆“秘密姐妹”节日礼物交换的邀请再次出现。你可能也看到过同样的或类似的东西出现在你的博客里。以防你还没有意识到:这是一个骗局。美国商业改善局本周早些时候发布了针对交易所的警告 。
 

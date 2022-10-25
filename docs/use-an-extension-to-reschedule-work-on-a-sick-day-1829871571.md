@@ -1,6 +1,6 @@
 # 使用分机在病假中重新安排工作
 
-> 原文:[https://life hacker . com/use-an-extension-to-re schedule-on-a-sick-day-1829871571](https://lifehacker.com/use-an-extension-to-reschedule-work-on-a-sick-day-1829871571)
+> 原文：<https://lifehacker.com/use-an-extension-to-reschedule-work-on-a-sick-day-1829871571>
 
 当你生病不上班时，在你吃点止咳糖浆，躺在沙发上喝一碗汤之前，通常会有很多事情要做。使用 Siri 快捷方式跳过这些工作。
 

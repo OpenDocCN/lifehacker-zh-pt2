@@ -1,6 +1,6 @@
 # 你应该得到一个富豪无限电影订阅？
 
-> 原文:[https://life hacker . com/should-you-get-a-regal-unlimited-movie-subscription-1836730697](https://lifehacker.com/should-you-get-a-regal-unlimited-movie-subscription-1836730697)
+> 原文：<https://lifehacker.com/should-you-get-a-regal-unlimited-movie-subscription-1836730697>
 
 富豪电影院现在随时都在推出无限电影订阅服务，他们已经 [公布了计划](https://www.regmovies.com/static/en/us/unlimited) 的细节，根据你的位置，费用为每月 18-23.50 美元。这里是最重要的部分，要注意的陷阱，以及如何加入。
 

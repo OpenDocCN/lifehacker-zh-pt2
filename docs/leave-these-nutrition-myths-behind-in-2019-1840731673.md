@@ -1,6 +1,6 @@
 # 2019 年，把这些营养神话抛在脑后
 
-> 原文:[https://life hacker . com/leave-these-nutrition-myths-behind-in-2019-1840731673](https://lifehacker.com/leave-these-nutrition-myths-behind-in-2019-1840731673)
+> 原文：<https://lifehacker.com/leave-these-nutrition-myths-behind-in-2019-1840731673>
 
 当我们开始新的一年，也可以说是新的十年时，我认为有几样东西我们可以放心地不要。这是我在本世纪初相信的，或者可能想要相信的三个营养神话——以及我为什么要放弃它们。
 

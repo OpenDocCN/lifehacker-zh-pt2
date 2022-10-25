@@ -1,6 +1,6 @@
 # 一些大通信用卡持卡人现在可以免费送货上门
 
-> 原文:[https://life hacker . com/some-chase-cardboarders-now-get-free-door dash-delivery-1840861678](https://lifehacker.com/some-chase-cardholders-now-get-free-doordash-delivery-1840861678)
+> 原文：<https://lifehacker.com/some-chase-cardholders-now-get-free-doordash-delivery-1840861678>
 
 如果你有一张大通信用卡，你可能可以免费获得 DoorDash 的会员选项 DashPass。
 

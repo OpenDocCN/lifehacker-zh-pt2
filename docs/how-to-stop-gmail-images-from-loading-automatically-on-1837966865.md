@@ -1,6 +1,6 @@
 # 如何阻止 Gmail 图像自动加载到您的 iPhone 上
 
-> 原文:[https://life hacker . com/how-to-stop-Gmail-images-from-loading-automatically-on-1837966865](https://lifehacker.com/how-to-stop-gmail-images-from-loading-automatically-on-1837966865)
+> 原文：<https://lifehacker.com/how-to-stop-gmail-images-from-loading-automatically-on-1837966865>
 
 任何有手机的人都可以告诉你，有时候你有很好的数据连接，有时候你不确定你是否能够加载谷歌搜索页面。
 

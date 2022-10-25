@@ -1,6 +1,6 @@
 # 帮你未来的自己一个忙，停止拖延
 
-> 原文:[https://life hacker . com/ask-how-you-can-make-you-future-self-happy-when-putting-1844196707](https://lifehacker.com/ask-how-you-can-make-your-future-self-happy-when-puttin-1844196707)
+> 原文：<https://lifehacker.com/ask-how-you-can-make-your-future-self-happy-when-puttin-1844196707>
 
 当谈到做我们不想做的事情时，我们处于当前自我和未来自我之间的持续战斗中。我们可以，比方说，做我们很快就要到期的税，或者继续读我们现在真正喜欢的这本书，把税务准备留给我们未来的自己。当然，现在你喜欢这个想法，但是将来你会怎么想？老实说，可能不太好。
 

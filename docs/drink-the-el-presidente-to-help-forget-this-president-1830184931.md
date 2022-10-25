@@ -1,6 +1,6 @@
 # 喝下总统酒来忘记这位总统
 
-> 原文:[https://life hacker . com/drink-the-El-presidente-to-help-forget-this-president-1830184931](https://lifehacker.com/drink-the-el-presidente-to-help-forget-this-president-1830184931)
+> 原文：<https://lifehacker.com/drink-the-el-presidente-to-help-forget-this-president-1830184931>
 
 各位周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周，我们制作了一种经典的(非常浓烈的)禁酒时代朗姆酒，来帮助我们忘记这个世界的一些残酷事实，哪怕只是一瞬间。
 

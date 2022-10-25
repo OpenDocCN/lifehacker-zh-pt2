@@ -1,6 +1,6 @@
 # 用“What3Words”描述您的位置
 
-> 原文:[https://life hacker . com/describe-your-location-anywhere-with what 3 words-1837368636](https://lifehacker.com/describe-your-location-anywhere-with-what3words-1837368636)
+> 原文：<https://lifehacker.com/describe-your-location-anywhere-with-what3words-1837368636>
 
 如果你在家或在公司，交流你在哪里是很容易的:只要给出一个地址或一个谷歌搜索得到的名字。但是如果你想在沙滩上的毯子上遇见某人，或者告诉一个朋友你在森林里迷路了，那是一个更难的问题。
 

@@ -1,6 +1,6 @@
 # 如何在 LastPass 上使用 Pixel 4 面部识别
 
-> 原文:[https://life hacker . com/how-to-use-pixel-4-face-recognition-on-lastpass-1839363733](https://lifehacker.com/how-to-use-pixel-4-facial-recognition-on-lastpass-1839363733)
+> 原文：<https://lifehacker.com/how-to-use-pixel-4-facial-recognition-on-lastpass-1839363733>
 
 尽管如此新，但许多第三方应用程序已经支持 Pixel 4 的一些独特功能。其中一个应用程序恰好是我们最喜欢的密码管理器 之一，LastPass，它支持 Pixel 4 的生物识别解锁功能。
 

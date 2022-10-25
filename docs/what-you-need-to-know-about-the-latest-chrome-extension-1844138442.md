@@ -1,6 +1,6 @@
 # 关于最新的 Chrome 扩展恶意软件活动，你需要知道什么
 
-> 原文:[https://life hacker . com/what-you-need-to-know-the-latest-chrome-extension-1844138442](https://lifehacker.com/what-you-need-to-know-about-the-latest-chrome-extension-1844138442)
+> 原文：<https://lifehacker.com/what-you-need-to-know-about-the-latest-chrome-extension-1844138442>
 
 网络安全公司 Awake Security 最近揭露了一个大规模的秘密监控网络。这已经足够严重了，你应该再一次再三检查你的 Chrome 浏览器中没有使用可疑的扩展。
 

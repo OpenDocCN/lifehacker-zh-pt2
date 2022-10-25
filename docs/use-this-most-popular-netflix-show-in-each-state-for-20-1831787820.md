@@ -1,6 +1,6 @@
 # 通过这份“2018 年各州最受欢迎的网飞节目”列表，寻找新节目
 
-> 原文:[https://life hacker . com/use-this-most-popular-网飞-show-in-each-state-for-20-1831787820](https://lifehacker.com/use-this-most-popular-netflix-show-in-each-state-for-20-1831787820)
+> 原文：<https://lifehacker.com/use-this-most-popular-netflix-show-in-each-state-for-20-1831787820>
 
 如果你有一个网飞账户，那么你很可能至少看了一两个节目。但是你和你的邻居一样疯狂地看着同样的东西吗？
 

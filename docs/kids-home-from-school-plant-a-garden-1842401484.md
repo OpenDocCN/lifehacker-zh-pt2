@@ -1,6 +1,6 @@
 # 现在是时候和你的孩子一起种植一个花园了
 
-> 原文:[https://life hacker . com/kids-home-from-school-plant-a-garden-1842401484](https://lifehacker.com/kids-home-from-school-plant-a-garden-1842401484)
+> 原文：<https://lifehacker.com/kids-home-from-school-plant-a-garden-1842401484>
 
 现在新冠肺炎关闭了一切，我们都需要处理可能发生的压力的方法，而我们通常的应对机制都消失了。对于有孩子的父母来说更是如此，现在学校和托儿所都关门了，操场不再安全，游戏日期也取消了。
 

@@ -1,6 +1,6 @@
 # 如何表扬爸爸而不称他们“乐于助人”
 
-> 原文:[https://life hacker . com/how-to-mass-dads-without-calling-them-help-1833318231](https://lifehacker.com/how-to-praise-dads-without-calling-them-helpful-1833318231)
+> 原文：<https://lifehacker.com/how-to-praise-dads-without-calling-them-helpful-1833318231>
 
 先说这个:爸爸不是保姆。毕竟， [保姆](https://www.dictionary.com/browse/babysitter) 是“在父母暂时离开时照看孩子”的人因此，当一个父亲在照顾他的孩子时，他不是在“照看孩子”他在“育儿”。
 

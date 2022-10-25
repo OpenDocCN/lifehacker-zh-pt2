@@ -1,6 +1,6 @@
 # 不要把性别认同强加给小孩
 
-> 原文:[https://life hacker . com/dont-project-a-sexual-identity-on-little-kids-1829761892](https://lifehacker.com/dont-project-a-sexual-identity-onto-little-kids-1829761892)
+> 原文：<https://lifehacker.com/dont-project-a-sexual-identity-onto-little-kids-1829761892>
 
 一个微笑的男婴不是“少女杀手”一个蹒跚学步的孩子给一个成年人一块饼干不是“调情”实际上，婴儿做的任何事情都不需要变成浪漫的时刻，所以让我们停止说暗示其他事情的话。
 

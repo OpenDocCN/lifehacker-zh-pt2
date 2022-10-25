@@ -1,6 +1,6 @@
 # 如何观看周日晚上埃尔顿·约翰为医务工作者举办的慈善音乐会
 
-> 原文:[https://life hacker . com/how-to-watch-Elton-Johns-benefit-concert-for-medical-wo-1842527257](https://lifehacker.com/how-to-watch-elton-johns-benefit-concert-for-medical-wo-1842527257)
+> 原文：<https://lifehacker.com/how-to-watch-elton-johns-benefit-concert-for-medical-wo-1842527257>
 
 由于新冠肺炎事件，埃尔顿·约翰爵士可能已经暂停了他的告别黄砖之路巡演，但是这个周末你仍然可以在你的起居室里欣赏他的演出。
 

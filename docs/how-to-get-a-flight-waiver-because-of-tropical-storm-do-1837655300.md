@@ -1,6 +1,6 @@
 # 如何获得飞行豁免，因为热带风暴多里安
 
-> 原文:[https://life hacker . com/how-to-get-a-flight-vout-because-of-tropical-storm-do-1837655300](https://lifehacker.com/how-to-get-a-flight-waiver-because-of-tropical-storm-do-1837655300)
+> 原文：<https://lifehacker.com/how-to-get-a-flight-waiver-because-of-tropical-storm-do-1837655300>
 
 截至周三上午，热带风暴多利安正在逼近美属维尔京群岛和波多黎各。据 [美国有线电视新闻网](https://www.cnn.com/us/live-news/tropical-storm-dorian-august-28/index.html) 报道，一些波多黎各居民已经被疏散到避难所，为风暴做准备。
 

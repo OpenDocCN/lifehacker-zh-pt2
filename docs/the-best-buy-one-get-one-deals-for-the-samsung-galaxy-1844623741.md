@@ -1,6 +1,6 @@
 # 三星 Galaxy Note 20 手机的最佳预购交易
 
-> 原文:[https://life hacker . com/the-best-buy-one-get-one-deals-for-the-Samsung-galaxy-1844623741](https://lifehacker.com/the-best-buy-one-get-one-deals-for-the-samsung-galaxy-1844623741)
+> 原文：<https://lifehacker.com/the-best-buy-one-get-one-deals-for-the-samsung-galaxy-1844623741>
 
 新的三星 Galaxy Note 20 和 Galaxy Note 20 Ultra 智能手机的大多数预购将于今晚开始。我不记得上一次从真正的运营商那里购买手机是什么时候了，因为我发现他们各种各样的“交易”令人头疼:这个的积分、那个的折价、几个月内的省钱、额外的线路需求等等。
 

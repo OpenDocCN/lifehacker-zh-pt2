@@ -1,6 +1,6 @@
 # 使用此应用程序跟踪宝宝的心理里程碑
 
-> 原文:[https://life hacker . com/track-your-babys-mental-milestones-with this-app-1830417712](https://lifehacker.com/track-your-babys-mental-milestones-with-this-app-1830417712)
+> 原文：<https://lifehacker.com/track-your-babys-mental-milestones-with-this-app-1830417712>
 
 婴儿可能是神秘的，令人困惑的小家伙。就在他们似乎已经征服了整夜睡觉的艺术时，他们每隔一个小时就起来一次。他们快速而狂热地完成里程碑，直到突然之间，他们倒退了。
 

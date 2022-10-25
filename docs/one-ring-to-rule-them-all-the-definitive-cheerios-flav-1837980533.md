@@ -1,6 +1,6 @@
 # 一枚戒指统治一切:最权威的麦片风味排名
 
-> 原文:[https://the take out . com/one-ring-to-rule-them-all-the-definitive-Cheerios-flav-1837980533](https://thetakeout.com/one-ring-to-rule-them-all-the-definitive-cheerios-flav-1837980533)
+> 原文：<https://thetakeout.com/one-ring-to-rule-them-all-the-definitive-cheerios-flav-1837980533>
 
 我在网上订购了 14 盒麦片，因为我无法说服自己去当地的杂货店购买。我想象着，当我推着购物车走过过道时，我的购物伙伴给了我一个很大的距离，篮子里装满了十几种不同的麦片，看起来好像我在为僵尸末日做准备。
 

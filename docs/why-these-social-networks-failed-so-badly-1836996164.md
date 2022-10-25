@@ -1,6 +1,6 @@
 # why these social networks failed so badly 1836996164
 
-> 原文:[https://gizmodo . com/why-these-social-networks-failed-so-heavy-1836996164](https://gizmodo.com/why-these-social-networks-failed-so-badly-1836996164)
+> 原文：<https://gizmodo.com/why-these-social-networks-failed-so-badly-1836996164>
 
 16 年前，Web 1.0 的太阳落山了，我们借着智能手机的光芒开始了 24/7 的连接，走上了一条充满公司失误的道路，散落着昨天的前 8 位朋友，被擦洗的 n00，被丢弃的 chiptune 曲目，炸弹威胁，以及柔和的 [独角兽服装](https://www.youtube.com/watch?v=6tgsVU-fvO4) 。喜剧宝贝诞生，又被母公司抛弃；尖叫的人群穿过警察释放的滚滚催泪瓦斯，消失在废弃的视频播放器后面。Devs 梦想着爱情，后现代界面的艺术家，娱乐事业的未知数。网友们为了噱头自残，有意外的，也有故意的。我们臣服于我们的霸主马克·扎克伯格和影响者大军。还有那么多 [橡皮鸭哀嚎着](https://www.youtube.com/watch?time_continue=7&v=nHc288IPFzk) 。
 

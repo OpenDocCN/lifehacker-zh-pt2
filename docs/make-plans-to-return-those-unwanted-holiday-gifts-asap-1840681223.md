@@ -1,6 +1,6 @@
 # 制定计划，尽快归还那些不想要的节日礼物
 
-> 原文:[https://life hacker . com/make-plans-to-return-the-wanted-holiday-gifts-asap-1840681223](https://lifehacker.com/make-plans-to-return-those-unwanted-holiday-gifts-asap-1840681223)
+> 原文：<https://lifehacker.com/make-plans-to-return-those-unwanted-holiday-gifts-asap-1840681223>
 
 很有可能你今年已经收到了一份或多份你不想拥有的节日礼物。
 

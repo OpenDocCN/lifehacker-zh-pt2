@@ -1,6 +1,6 @@
 # 如何超越“金钱迷雾”
 
-> 原文:[https://life hacker . com/how-to-see-beyond-the-money-fog-1834443550](https://lifehacker.com/how-to-see-beyond-the-money-fog-1834443550)
+> 原文：<https://lifehacker.com/how-to-see-beyond-the-money-fog-1834443550>
 
 如果你让恐惧、义务或内疚控制了你关于金钱的决定，你就被困在金钱的迷雾中了。
 

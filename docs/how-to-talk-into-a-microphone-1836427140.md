@@ -1,6 +1,6 @@
 # 如何对着麦克风说话
 
-> 原文:[https://life hacker . com/how-to-talk to-a-microphone-1836427140](https://lifehacker.com/how-to-talk-into-a-microphone-1836427140)
+> 原文：<https://lifehacker.com/how-to-talk-into-a-microphone-1836427140>
 
 无论你是在婚礼或活动上讲话，在播客上客串，还是现场报道，对着麦克风说话并不完全像不带麦克风说话。如果你遵循一些简单的规则，你会听起来好很多。
 

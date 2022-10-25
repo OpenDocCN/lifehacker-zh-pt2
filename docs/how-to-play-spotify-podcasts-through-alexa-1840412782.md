@@ -1,6 +1,6 @@
 # 如何通过 Alexa 播放 Spotify 播客
 
-> 原文:[https://life hacker . com/how-to-play-Spotify-podcast-through-Alexa-1840412782](https://lifehacker.com/how-to-play-spotify-podcasts-through-alexa-1840412782)
+> 原文：<https://lifehacker.com/how-to-play-spotify-podcasts-through-alexa-1840412782>
 
 截至今天，所有 Alexa 用户终于可以 [使用他们的 Alexa 通过 Spotify](https://newsroom.spotify.com/2019-12-13/all-spotify-users-in-the-u-s-can-now-play-podcasts-through-amazon-alexa/) 播放播客，只需说“Alexa，播放[*Spotify 上的升级*](https://lifehacker.com/c/the-upgrade) ”如果你在 Spotify 应用程序上播放了一集，Alexa 会从你停止的地方继续播放，反之亦然。不再需要在两个应用程序之间转换进度。
 

@@ -1,6 +1,6 @@
 # 用这个浏览器扩展阻止脸书误导性的政治广告
 
-> 原文:[https://life hacker . com/block-missing-political-ads-on-Facebook-with-this-br-1840909248](https://lifehacker.com/block-misleading-political-ads-on-facebook-with-this-br-1840909248)
+> 原文：<https://lifehacker.com/block-misleading-political-ads-on-facebook-with-this-br-1840909248>
 
 2020 年将是美国政治疯狂的一年，但尽管总统辩论和特朗普总统挥之不去的弹劾可能是最大的话题(到目前为止)，我们都知道真正的政治话语发生在哪里:脸书。
 

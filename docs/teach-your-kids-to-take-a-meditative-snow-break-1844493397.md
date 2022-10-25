@@ -1,6 +1,6 @@
 # 教你的孩子进行一次冥想式的“雪休”
 
-> 原文:[https://life hacker . com/teach-your-kids-to-take-a-stationing-snow-break-1844493397](https://lifehacker.com/teach-your-kids-to-take-a-meditative-snow-break-1844493397)
+> 原文：<https://lifehacker.com/teach-your-kids-to-take-a-meditative-snow-break-1844493397>
 
 我们现在都可以使用更多一点的正念，但是学习如何开始定期冥想 可能会令人生畏，尤其是对孩子来说。但是在他们的日常生活中加入正念并不一定要每次坐下 10 或 15 分钟，并试图清空他们头脑中的所有想法；这些小小的时刻可以让他们放慢脚步，活在当下，让他们的身心平静下来。
 

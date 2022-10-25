@@ -1,6 +1,6 @@
 # 用烤洋葱做素食奶油酱
 
-> 原文:[https://life hacker . com/make-a-vegan-cream-sauce-out-of-baked-onions-1837032934](https://lifehacker.com/make-a-vegan-cream-sauce-out-of-roasted-onions-1837032934)
+> 原文：<https://lifehacker.com/make-a-vegan-cream-sauce-out-of-roasted-onions-1837032934>
 
 众所周知，洋葱不是“奶油状的”光明？是的。尖酸？当然可以。痛苦？有时候。但不是奶油。然而，如果你把它们放在热烤箱里烤不到一个小时，它们就变成了那样——柔软、醇厚、完全像奶油一样。
 

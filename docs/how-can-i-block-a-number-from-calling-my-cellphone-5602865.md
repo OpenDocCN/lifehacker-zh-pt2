@@ -1,6 +1,6 @@
 # 如何阻止一个号码拨打我的手机？
 
-> 原文:[https://life hacker . com/how-can-I-block-a number-from-calling-my-cell-5602865](https://lifehacker.com/how-can-i-block-a-number-from-calling-my-cellphone-5602865)
+> 原文：<https://lifehacker.com/how-can-i-block-a-number-from-calling-my-cellphone-5602865>
 
 不管是你讨厌的前男友、固执的电话推销员还是你不想听到的其他人，可能都有一些你想屏蔽的电话号码。根据你使用的手机类型，你实际上有很多选择。让我们来看看一些更受欢迎的手机内置了什么。
 

@@ -1,6 +1,6 @@
 # 如何尽早获得 Android 的新“聚焦模式”
 
-> 原文:[https://life hacker . com/how-to-get-androids-new-focus-mode-early-1837478735](https://lifehacker.com/how-to-get-androids-new-focus-mode-early-1837478735)
+> 原文：<https://lifehacker.com/how-to-get-androids-new-focus-mode-early-1837478735>
 
 Android 10(née“Android Q”)即将推出的 [将带来许多新的事情，几个内置的 Android 应用程序也在准备一些有趣的功能，你可以现在就尝试一下*——不需要 Android Q。其中包括谷歌自己的*](https://lifehacker.com/the-best-new-features-in-android-q-1834620582) *[Digital Wellbeing](https://lifehacker.com/get-android-qs-digital-wellbeing-features-now-with-this-1835975776)* *应用程序，用户可以监控自己的设备和应用程序的使用情况，设置屏幕定时器，并启用特殊模式来抑制分心。*
 

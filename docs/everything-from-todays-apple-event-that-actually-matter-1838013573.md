@@ -1,6 +1,6 @@
 # 今天苹果发布会上所有真正重要的东西
 
-> 原文:[https://life hacker . com/everything-from-todays-apple-event-that-actually-matter-1838013573](https://lifehacker.com/everything-from-todays-apple-event-that-actually-matter-1838013573)
+> 原文：<https://lifehacker.com/everything-from-todays-apple-event-that-actually-matter-1838013573>
 
 今天是苹果日。我不在~~玻璃甜甜圈~~苹果公园，但我确实从*的两台*设备上同时观看了直播，所以我比其他人多接触了一倍苹果的现实扭曲场。在我变成白色陶瓷色的绿巨人之前，这里有一个快速浏览苹果 2019 年 9 月活动所有最有趣的更新。
 

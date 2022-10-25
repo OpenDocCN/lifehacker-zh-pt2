@@ -1,6 +1,6 @@
 # 如何使用 Alexa 作为降临节日历
 
-> 原文:[https://life hacker . com/how-to-use-Alexa-as-an-advent-calendar-1830808295](https://lifehacker.com/how-to-use-alexa-as-an-advent-calendar-1830808295)
+> 原文：<https://lifehacker.com/how-to-use-alexa-as-an-advent-calendar-1830808295>
 
 如果你是一个庆祝圣诞节的人，那么你可能对降临节日历很熟悉。他们背后的想法是，你每天打开一份小礼物，作为真正圣诞节倒计时的一部分。
 

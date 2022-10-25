@@ -1,6 +1,6 @@
 # 这些是夏季恒温器的“最佳”设置
 
-> 原文:[https://life hacker . com/these-is-the-optimal-summer-恒温器-settings-1837402010](https://lifehacker.com/these-are-the-optimal-summer-thermostat-settings-1837402010)
+> 原文：<https://lifehacker.com/these-are-the-optimal-summer-thermostat-settings-1837402010>
 
 在这个国家的许多地方，今年夏天一直很难保持凉爽。我们的空调房是远离炎热和潮湿的绿洲，但是如果你想优化你的冷却和能源效率，你可能需要提高温度。
 

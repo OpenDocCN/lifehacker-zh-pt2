@@ -1,6 +1,6 @@
 # 当你生病的时候你吃什么喝什么？
 
-> 原文:[https://the take out . com/what-do-you-eat-and-drink-when-you-re-sick-1830288998](https://thetakeout.com/what-do-you-eat-and-drink-when-you-re-sick-1830288998)
+> 原文：<https://thetakeout.com/what-do-you-eat-and-drink-when-you-re-sick-1830288998>
 
 现在是 11 月，公平地说，我们正式进入了毛绒毛衣、新奇糖果棒的季节，任何时候你踏入公共场所，人们都会朝你的大致方向咳嗽和打喷嚏。节日让人们聚在一起！那太好了。但是，嘿，这也把他们的细菌聚集在一起。
 

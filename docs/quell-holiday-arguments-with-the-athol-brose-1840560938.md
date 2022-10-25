@@ -1,6 +1,6 @@
 # 平息与 Athol Brose 的假日争论
 
-> 原文:[https://life hacker . com/quell-holiday-arguments-with-the-athol-brose-1840560938](https://lifehacker.com/quell-holiday-arguments-with-the-athol-brose-1840560938)
+> 原文：<https://lifehacker.com/quell-holiday-arguments-with-the-athol-brose-1840560938>
 
 从工作中解脱出来是一件很困难的事情，主要是因为吃饭是我每天都要做的事情，不管我愿不愿意。甚至在我度假的时候，我吃的饭和喝的饮料都会被分析和评估。我能写下这些吗？”我问。“这是*黑*吗？”有些旅行比其他的更有收获。
 

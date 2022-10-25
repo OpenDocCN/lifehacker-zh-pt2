@@ -1,6 +1,6 @@
 # here are some dad jokes for you 1844015953
 
-> 原文:[https://life hacker . com/here-s-some-dad-joins-for-you 1844015953](https://lifehacker.com/here-are-some-dad-jokes-for-you-1844015953)
+> 原文：<https://lifehacker.com/here-are-some-dad-jokes-for-you-1844015953>
 
 一年中的任何一天，父亲的笑话都值得欣赏，但随着父亲节的临近，尊重这种特殊类型的“幽默”尤为重要。如果我们可以这么说的话。
 

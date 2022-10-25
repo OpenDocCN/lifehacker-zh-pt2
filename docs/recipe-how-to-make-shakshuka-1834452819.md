@@ -1,6 +1,6 @@
 # 如何制作 shakshuka，摩洛哥炖肉，上面写着“放一个鸡蛋在上面！”
 
-> 原文:[https://the take out . com/recipe-how-to-make-shak shuka-1834452819](https://thetakeout.com/recipe-how-to-make-shakshuka-1834452819)
+> 原文：<https://thetakeout.com/recipe-how-to-make-shakshuka-1834452819>
 
 *在* [***一口锅的奇迹***](https://thetakeout.com/tag/one-pan-wonders) ***，**我们寻找用一口锅就能做好的简单美味的工作日晚餐。*
 

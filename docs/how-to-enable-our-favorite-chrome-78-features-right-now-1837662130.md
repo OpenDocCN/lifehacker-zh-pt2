@@ -1,6 +1,6 @@
 # 如何立即启用我们最喜爱的 Chrome 78 功能
 
-> 原文:[https://life hacker . com/how-to-enable-our-favorite-chrome-78-features-right-now-1837662130](https://lifehacker.com/how-to-enable-our-favorite-chrome-78-features-right-now-1837662130)
+> 原文：<https://lifehacker.com/how-to-enable-our-favorite-chrome-78-features-right-now-1837662130>
 
 当前版本的 [Chrome Canary](https://www.google.com/chrome/canary/) (浏览器的 78 版本)有许多有趣的功能值得探索——或者至少了解一下，如果你更愿意在更稳定的浏览器版本中使用它们的话。
 

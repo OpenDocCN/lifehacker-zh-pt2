@@ -1,6 +1,6 @@
 # 你应该比你想象的更快带你的孩子去看眼科医生
 
-> 原文:[https://life hacker . com/you-should-take-your-kid-to-the-eye-doctor-than-1833149801](https://lifehacker.com/you-should-take-your-kid-to-the-eye-doctor-sooner-than-1833149801)
+> 原文：<https://lifehacker.com/you-should-take-your-kid-to-the-eye-doctor-sooner-than-1833149801>
 
 我丈夫和我都是从小戴眼镜/隐形眼镜的人，所以我一直认为对我们的儿子来说，事情变得有点模糊只是时间问题。但他还没有开始眯眼或抱怨头痛，他在学校接受了一年一度的视力筛查，所以我想现在一切都好。没必要带他去看真正的眼科医生，对吧？
 

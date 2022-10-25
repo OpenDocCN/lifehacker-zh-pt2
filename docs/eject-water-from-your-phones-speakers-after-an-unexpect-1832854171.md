@@ -1,6 +1,6 @@
 # 使用这个网络工具，在意外扣篮后从手机扬声器中喷水
 
-> 原文:[https://life hacker . com/eject-water-from-your-phones-speakers-after-an-unexpect-1832854171](https://lifehacker.com/eject-water-from-your-phones-speakers-after-an-unexpect-1832854171)
+> 原文：<https://lifehacker.com/eject-water-from-your-phones-speakers-after-an-unexpect-1832854171>
 
 在某些时候，即使是我们中最细心的人也会因智能手机的意外事故而结束，特别是导致我们价值 1000 多美元的设备掉进水坑、游泳池，或者更有可能是马桶。
 

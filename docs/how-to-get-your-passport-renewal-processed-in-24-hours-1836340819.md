@@ -1,6 +1,6 @@
 # 如何在 24 小时内办理护照更新
 
-> 原文:[https://life hacker . com/how-to-get-your-passport-renewal-processed-in-24-hours-1836340819](https://lifehacker.com/how-to-get-your-passport-renewal-processed-in-24-hours-1836340819)
+> 原文：<https://lifehacker.com/how-to-get-your-passport-renewal-processed-in-24-hours-1836340819>
 
 **更新(2021 年 5 月 31 日):唉，许多黑客改变或到期，鉴于更好的商务局** **的** [**F 评级，你可能要重新考虑我们在这里的建议。**](https://www.bbb.org/us/dc/washington/profile/passports-and-visas/rushmypassportcom-0241-205339187)
 

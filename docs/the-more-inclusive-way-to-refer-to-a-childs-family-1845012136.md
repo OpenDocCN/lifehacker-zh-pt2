@@ -1,6 +1,6 @@
 # 更具包容性的方式来称呼孩子的家庭
 
-> 原文:[https://life hacker . com/the-more-inclusive-way-to-refer-a-childs-family-1845012136](https://lifehacker.com/the-more-inclusive-way-to-refer-to-a-childs-family-1845012136)
+> 原文：<https://lifehacker.com/the-more-inclusive-way-to-refer-to-a-childs-family-1845012136>
 
 我们孩子的缩放课堂可以让你大开眼界，原因有很多，但有一点你可能已经注意到了，自本学年开始以来，一些老师提到他们学生的妈妈和爸爸的例子非常多。一般来说，不是他们的*照顾者*，而是他们的*妈妈*和他们的*爸爸*。比如，确保你让妈妈或爸爸在那张表格上签字。或者，*如果你在提交作业时遇到困难，向爸爸妈妈寻求帮助*。
 

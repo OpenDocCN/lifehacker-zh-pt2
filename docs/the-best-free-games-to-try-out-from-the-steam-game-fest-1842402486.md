@@ -1,6 +1,6 @@
 # Steam 游戏节的最佳免费游戏
 
-> 原文:[https://life hacker . com/the-best-free-games-to-try-out from-the-steam-game-fest-1842402486](https://lifehacker.com/the-best-free-games-to-try-out-from-the-steam-game-fest-1842402486)
+> 原文：<https://lifehacker.com/the-best-free-games-to-try-out-from-the-steam-game-fest-1842402486>
 
 本周，为了纪念技术上“推迟”的 [游戏开发者大会](https://lifehacker.com/how-to-stream-this-weeks-game-developers-conference-tal-1842365971) ，一群计划在大会上展示他们游戏的开发者通过 [Steam 游戏节:春季版](https://store.steampowered.com/sale/SteamGameFestival-Spring) 发布了这些游戏的预览版。
 

@@ -1,6 +1,6 @@
 # 如何让冷冻披萨不那么悲伤
 
-> 原文:[https://life hacker . com/how-to-make-a-free-sad-1843262823](https://lifehacker.com/how-to-make-a-frozen-pizza-less-sad-1843262823)
+> 原文：<https://lifehacker.com/how-to-make-a-frozen-pizza-less-sad-1843262823>
 
 我不喜欢吃任何冷冻食品，更不喜欢吃冷冻披萨，但我忍不住会做些改变。即使是最好的冷冻比萨饼也可以从一些调整或最后的润色中受益。(这并不适用于托蒂诺的派对披萨，它是自己独特的，有些人会说是“完美的”产品。)
 

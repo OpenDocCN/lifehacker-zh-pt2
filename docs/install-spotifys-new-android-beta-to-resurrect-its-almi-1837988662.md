@@ -1,6 +1,6 @@
 # 安装 Spotify 新的 Android 测试版，复活其全能的小工具
 
-> 原文:[https://life hacker . com/install-spotifys-new-Android-beta-to-resurse-its-almi-1837988662](https://lifehacker.com/install-spotifys-new-android-beta-to-resurrect-its-almi-1837988662)
+> 原文：<https://lifehacker.com/install-spotifys-new-android-beta-to-resurrect-its-almi-1837988662>
 
 谁会想到一个小小的插件——更确切地说，是删除它——会激怒这么多 Android Spotify 粉丝？这正是该公司最近决定杀死其 Android widget 后发生的事情，这里有一个好消息:它回来了，你现在就可以下载带有恢复 widget *的 Spotify 版本*。
 

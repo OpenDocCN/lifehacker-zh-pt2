@@ -1,6 +1,6 @@
 # 如何正确地用手在水槽里洗碗
 
-> 原文:[https://life hacker . com/how-to-right-hand-wash-disks-in-sink-1832900812](https://lifehacker.com/how-to-properly-hand-wash-dishes-in-the-sink-1832900812)
+> 原文：<https://lifehacker.com/how-to-properly-hand-wash-dishes-in-the-sink-1832900812>
 
 如果你足够幸运有一台洗碗机的话，有很多东西你不应该放进洗碗机。这意味着戴上手套开始擦洗，是的，但是手洗大多数东西也有正确和错误的方法。
 

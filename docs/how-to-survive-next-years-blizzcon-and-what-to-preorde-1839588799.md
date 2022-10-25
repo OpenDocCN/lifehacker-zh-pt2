@@ -1,6 +1,6 @@
 # 如何在明年的暴雪嘉年华中生存下来，以及从今年的暴雪嘉年华中预订什么
 
-> 原文:[https://life hacker . com/how-to-survive-next-years-blizzcon-and-to-preorde-1839588799](https://lifehacker.com/how-to-survive-next-years-blizzcon-and-what-to-preorde-1839588799)
+> 原文：<https://lifehacker.com/how-to-survive-next-years-blizzcon-and-what-to-preorde-1839588799>
 
 BlizzCon 2019 来了又走了，这是一个相当大的事件:*暗黑破坏神 4*的最终(官方)亮相，*炉石*大师赛全球总决赛的第一位女冠军，以及美国队的一场大规模世界杯胜利——也是他们的第一场胜利。
 

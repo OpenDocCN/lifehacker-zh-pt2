@@ -1,6 +1,6 @@
 # 把剩下的土豆泥变成美味的蘸酱
 
-> 原文:[https://life hacker . com/turn-left-smalled-potato-into-a-delicious-dip-1840997720](https://lifehacker.com/turn-leftover-mashed-potatoes-into-a-delicious-dip-1840997720)
+> 原文：<https://lifehacker.com/turn-leftover-mashed-potatoes-into-a-delicious-dip-1840997720>
 
 热浸和砂锅菜之间只有一线之隔。两者都有金黄色的顶部和奶油色的内部，但不同之处在于你如何将它们送到嘴里。如果你可以使用芯片或饼干作为传输系统，这就是蘸酱——这是规则。
 

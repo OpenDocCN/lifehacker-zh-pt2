@@ -1,6 +1,6 @@
 # 为了防止痔疮，在黑暗中便便
 
-> 原文:[https://life hacker . com/to-prevent-痔疮便便在黑暗中-1835151851](https://lifehacker.com/to-prevent-hemorrhoids-poop-in-the-dark-1835151851)
+> 原文：<https://lifehacker.com/to-prevent-hemorrhoids-poop-in-the-dark-1835151851>
 
 “有些人喜欢独自一人，半裸着坐在宝座上。就我个人而言，那对我没用，因为它闻起来像刚从我身上发出来的便便。当 2006 年 vlogger Ze Frank 唱这首《T2 T3》时，我发现他的论点很有说服力:谁想在厕所上花更多的时间？这是屋子里最不舒服的座位，坐在那里太久会导致痔疮和其他疼痛的臀部问题。我们试图减轻不愉快，这就是问题所在。去便便应该没那么好玩了。
 

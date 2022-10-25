@@ -1,6 +1,6 @@
 # im actress and writer mara wilson and this is how i ea 1834683379
 
-> 原文:[https://life hacker . com/im-女演员兼作家-玛拉-威尔逊-这就是我-ea-1834683379](https://lifehacker.com/im-actress-and-writer-mara-wilson-and-this-is-how-i-ea-1834683379)
+> 原文：<https://lifehacker.com/im-actress-and-writer-mara-wilson-and-this-is-how-i-ea-1834683379>
 
 玛拉·威尔逊已经出名很久了。如果你是一个年轻的千禧女性，你知道她是谁，你小时候可能会对她的一部或多部电影着迷。但是威尔逊似乎并没有受到童年明星或者她疯狂的推特粉丝的影响。她脚踏实地，就像你希望的那样迷人。她也是一个多产的面包师，一个茶服务的爱好者，一个伟大的英国烘焙爱好者，她很友好地和我聊起她如何吃，喝什么，以及为什么咸饼干是最舒适的。
 

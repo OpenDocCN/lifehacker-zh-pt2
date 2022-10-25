@@ -1,6 +1,6 @@
 # 用这些免费的虚拟夏令营吸引你的孩子
 
-> 原文:[https://life hacker . com/occupy-your-kids-with-this-free-virtual-summer-camps-1843984754](https://lifehacker.com/occupy-your-kids-with-these-free-virtual-summer-camps-1843984754)
+> 原文：<https://lifehacker.com/occupy-your-kids-with-these-free-virtual-summer-camps-1843984754>
 
 对许多孩子来说，传统的夏令营今年是不可能了。当我们告别整个春天坚持的在家学习时间表时，我们的孩子环顾四周，说，“太好了....现在怎么办？”嗯，就像今年大部分时间里我们生活的其他方面一样，我们有虚拟的选择。就像我们生活的其他方面一样，它们没有真正的东西好，但它们是 T2 的东西。
 

@@ -1,6 +1,6 @@
 # 如何用 1 美元获得三个月的 Xbox 游戏通行证旗舰版
 
-> 原文:[https://life hacker . com/how-to-get-three-months-of-Xbox-game-pass-ultimate-for-1839858722](https://lifehacker.com/how-to-get-three-months-of-xbox-game-pass-ultimate-for-1839858722)
+> 原文：<https://lifehacker.com/how-to-get-three-months-of-xbox-game-pass-ultimate-for-1839858722>
 
 就像微软知道的那样。我们刚刚讨论了 [几种方法](https://lifehacker.com/how-to-save-big-on-an-xbox-game-pass-subscription-1839695601) 你可以以低得离谱的价格获得 Xbox Game Pass Ultimate 订阅，这里还有一种方法可以添加到你的收藏中。由于微软的一个促销活动，新的 Game Pass Ultimate 用户现在可以花 1 美元 获得 [三个月的服务，而不是通常的一个月。](https://www.microsoft.com/en-us/p/xbox-game-pass-ultimate/CFQ7TTC0KHS0/000F?ranMID=24542&ranEAID=VZfI20jEa0c&ranSiteID=VZfI20jEa0c-HapAcA5jadjaj_YoZBrF9Q&epi=VZfI20jEa0c-HapAcA5jadjaj_YoZBrF9Q&irgwc=1&OCID=AID2000142_aff_7593_1243925&tduid=(ir__6op30pavgckfrkdtkk0sohziz22xgo9r1x11fxhl00)(7593)(1243925)(VZfI20jEa0c-HapAcA5jadjaj_YoZBrF9Q)()&irclickid=_6op30pavgckfrkdtkk0sohziz22xgo9r1x11fxhl00&activetab=pivot:overviewtab)
 

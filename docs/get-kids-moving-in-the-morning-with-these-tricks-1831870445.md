@@ -1,6 +1,6 @@
 # 用这些技巧让孩子们在早上动起来
 
-> 原文:[https://life hacker . com/get-kids-moving-in-the-morning-with the-tricks-1831870445](https://lifehacker.com/get-kids-moving-in-the-morning-with-these-tricks-1831870445)
+> 原文：<https://lifehacker.com/get-kids-moving-in-the-morning-with-these-tricks-1831870445>
 
 任何有经验的父母都知道，早上出门(*准时)*实际上是前一天晚上就开始了。打包午餐，把作业塞进背包，准备好鞋子，等在门边，这些都是大多数父母已经学会的在早上节省时间和减少挫败感的基本方法。
 

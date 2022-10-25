@@ -1,6 +1,6 @@
 # 如何在 Discord 上显示您的 PS4 活动
 
-> 原文:[https://life hacker . com/how-to-show-your-ps4-activity-on-discord-1835069958](https://lifehacker.com/how-to-show-your-ps4-activity-on-discord-1835069958)
+> 原文：<https://lifehacker.com/how-to-show-your-ps4-activity-on-discord-1835069958>
 
 如果你和所有通过不和谐游戏的朋友聊天，炫耀你正在玩的游戏是很有意义的。这是一个对话的开始，它告诉你的朋友你正在使用什么控制台，甚至可能让他们知道你的心情。(每个人都有自己的舒适游戏)。
 

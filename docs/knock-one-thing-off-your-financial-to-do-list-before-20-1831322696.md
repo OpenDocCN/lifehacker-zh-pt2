@@ -1,6 +1,6 @@
 # 在 2019 年之前，从你的财务待办事项清单上去掉一件事
 
-> 原文:[https://life hacker . com/knock-one-thing-off-your ' s financial-to-do-list-before-20-1831322696](https://lifehacker.com/knock-one-thing-off-your-financial-to-do-list-before-20-1831322696)
+> 原文：<https://lifehacker.com/knock-one-thing-off-your-financial-to-do-list-before-20-1831322696>
 
 如果你在反思 2018 年，并为新的一年做准备，制定一两个决心可能是你现在的重点。但是在你从一月份开始考虑如何改善你的生活之前，问问你自己:你现在可以从哪些小事中摆脱出来？
 

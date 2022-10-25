@@ -1,6 +1,6 @@
 # 来自我们读者的最佳堪萨斯城旅行建议
 
-> 原文:[https://life hacker . com/the-best-Kansas-city-travel-tips-from-our-readers-1831211692](https://lifehacker.com/the-best-kansas-city-travel-tips-from-our-readers-1831211692)
+> 原文：<https://lifehacker.com/the-best-kansas-city-travel-tips-from-our-readers-1831211692>
 
 堪萨斯城听起来很有趣，现在我饿了，我真的很想去 TikiCat tiki 酒吧喝一杯。我原本期待本周的《黑客你的城市》会有一些好的回应，但没想到会有 80 条评论，其中很多列出了几十个好去处，以及在那里点什么。你看了下面的集锦后， [看了原帖](https://lifehacker.com/tell-us-your-best-kansas-city-travel-tips-1831075173) 的完整评论，下面的人有办法多提建议。
 

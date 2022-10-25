@@ -1,6 +1,6 @@
 # how are you salvaging this summer for your kids 1844237100
 
-> 原文:[https://life hacker . com/how-are-how-you-salvaging-this summer for your-kids-1844237100](https://lifehacker.com/how-are-you-salvaging-this-summer-for-your-kids-1844237100)
+> 原文：<https://lifehacker.com/how-are-you-salvaging-this-summer-for-your-kids-1844237100>
 
 我要说的是:这个夏天到目前为止一直很糟糕，而且看起来不会有太大好转。随着学年的结束，夏天的临近，我的儿子甚至会说这样的话，“嗯，我很快就要放暑假了，这并不重要，因为我们将不能去任何地方或做任何事情。”他已经九岁了，在这个年龄，他应该有那些典型的夏天经历，他会用余生来回顾这些经历。在游泳池待上一整天，和大家庭一起烧烤，去俄亥俄州看望他的堂兄弟。这一切都是不可能的。
 

@@ -1,6 +1,6 @@
 # 准备好以极低的价格租一辆车吧
 
-> 原文:[https://life hacker . com/get-ready-to-buy-a-drill-buy-a-drill-car for dirt-cheap-1843677823](https://lifehacker.com/get-ready-to-buy-a-rental-car-for-dirt-cheap-1843677823)
+> 原文：<https://lifehacker.com/get-ready-to-buy-a-rental-car-for-dirt-cheap-1843677823>
 
 现在对租车的需求不是很多，对这个行业的影响开始显现:赫兹，也经营 Dollar and Thrifty， [上周申请破产](https://www.nytimes.com/2020/05/22/business/hertz-bankruptcy-coronavirus-car-rental.html) 。
 

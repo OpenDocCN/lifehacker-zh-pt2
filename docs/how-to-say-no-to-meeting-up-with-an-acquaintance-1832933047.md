@@ -1,6 +1,6 @@
 # 如何拒绝与熟人见面
 
-> 原文:[https://life hacker . com/how-to-say-no-up-an-熟人-1832933047](https://lifehacker.com/how-to-say-no-to-meeting-up-with-an-acquaintance-1832933047)
+> 原文：<https://lifehacker.com/how-to-say-no-to-meeting-up-with-an-acquaintance-1832933047>
 
 当你偶遇一个你已经有一段时间没见过的人——大约五分钟，这可能是一个有趣的惊喜。然后它转向了“我们见面喝杯咖啡吧”的领域，这提醒了你为什么你还没有真正和这个人接触过。以下是如何在不把老熟人变成敌人的情况下，拒绝叙旧咖啡的想法。
 

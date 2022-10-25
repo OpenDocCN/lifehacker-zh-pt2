@@ -1,6 +1,6 @@
 # 联邦学生贷款收集将停止 60 天
 
-> 原文:[https://life hacker . com/federal-student-loan-collections-will-stop-60-days-1842490484](https://lifehacker.com/federal-student-loan-collections-will-stop-for-60-days-1842490484)
+> 原文：<https://lifehacker.com/federal-student-loan-collections-will-stop-for-60-days-1842490484>
 
 教育部宣布，由于冠状病毒 [【疫情】](https://lifehacker.com/tag/coronavirus)，将停止拖欠联邦学生贷款的催收过程，包括扣发工资的行动。
 

@@ -1,6 +1,6 @@
 # 如何开始播客，阿布·扎法尔
 
-> 原文:[https://life hacker . com/how-to-start-a-podcast-with-Abu-Zafar-1840459164](https://lifehacker.com/how-to-start-a-podcast-with-abu-zafar-1840459164)
+> 原文：<https://lifehacker.com/how-to-start-a-podcast-with-abu-zafar-1840459164>
 
 有没有梦想过制作自己的播客？成为下一个泰瑞·格罗斯或者乔·罗根？本周我们将在 Lifehacker 自己的视频制作人 Abu Zafar 的帮助下学习如何制作视频。Abu 最近为 Lifehacker 制作了一个名为 [如何开始播客](https://lifehacker.com/how-to-start-a-podcast-preparing-for-your-first-episod-1839897558) 的 3 集视频系列，他本周加入了我们的行列，谈论他从 Josh Clarke(你应该知道的东西)、Misha Euceph(告诉他们我是)和 Roman Mars (99%隐形)等专家那里学到的一些播客基础知识。当阿布不忙着为 Lifehacker 制作时髦的操作视频时，他兼职做自己播客网络 [知识聚会](https://loreparty.com/) 的主持人和制作人。
 

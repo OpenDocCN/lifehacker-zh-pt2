@@ -1,6 +1,6 @@
 # 什么是不公正的选区划分，最高法院的决定将如何影响国会
 
-> 原文:[https://life hacker . com/what-is-gerrymandering-and-how-the-supreme-courts-deci-1836015795](https://lifehacker.com/what-is-gerrymandering-and-how-the-supreme-courts-deci-1836015795)
+> 原文：<https://lifehacker.com/what-is-gerrymandering-and-how-the-supreme-courts-deci-1836015795>
 
 在一项 5 比 4 的裁决中，最高法院上周宣布，当涉及到党派不公正划分选区的行为时，联邦法院不能干预——影响到许多州的广泛的选民操纵。
 

@@ -1,6 +1,6 @@
 # 对同性父母不该说的话
 
-> 原文:[https://life hacker . com/what-not-to-say to-同性父母-1835322334](https://lifehacker.com/what-not-to-say-to-same-sex-parents-1835322334)
+> 原文：<https://lifehacker.com/what-not-to-say-to-same-sex-parents-1835322334>
 
 你上一次问一个泛泛之交——或者更好，一个陌生人——是什么时候！他们的孩子是如何受孕的细节？你可能不会走到杂货店结账队伍中排在你前面的任意一对异性夫妇面前，要求一个完整的构想。但是同性父母发现他们总是被一些不恰当的问题困扰，这些问题涉及到他们非常隐私的事情。不知何故，人们觉得可以满足他们对如何建立家庭的好奇心。
 

@@ -1,6 +1,6 @@
 # 要像成年人一样交朋友，找到一个共同的目标
 
-> 原文:[https://life hacker . com/to-make-friends-as-a-damental-find-a-shared-goal-1841575469](https://lifehacker.com/to-make-friends-as-an-adult-find-a-shared-goal-1841575469)
+> 原文：<https://lifehacker.com/to-make-friends-as-an-adult-find-a-shared-goal-1841575469>
 
 一年多前，我加入了一个 80 人的合唱团。我参加试演的原因之一是因为我在高中和大学都喜欢合唱——但如果你问我为什么要诚实地报名参加所有这些排练和表演，我不得不承认这是因为我想结交 80 个新朋友。
 

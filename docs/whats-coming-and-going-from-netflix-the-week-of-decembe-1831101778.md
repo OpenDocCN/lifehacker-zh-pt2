@@ -1,6 +1,6 @@
 # 2018 年 12 月 17 日这一周，网飞有哪些来往
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of decembe-1831101778](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-decembe-1831101778)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-decembe-1831101778>
 
 你可以说我很普通，但我喜欢艾伦·德杰尼勒斯的脱口秀特辑，这是她 15 年来的第一次(周二)。她在《纽约时报》 上的这张 [简介，听起来好像她正在脱下手套，对我们美国变得真实起来。你知道吗，她不喜欢陌生人走近她，试图让她和他们跳舞。*她和我们一样！*](https://www.nytimes.com/2018/12/12/arts/television/ellen-degeneres.html) 
 

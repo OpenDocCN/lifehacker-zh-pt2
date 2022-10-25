@@ -1,6 +1,6 @@
 # 2018 年你可以享受的所有税收减免
 
-> 原文:[https://life hacker . com/all-the-tax-deductions-you-can-take-for-2018-1831808127](https://lifehacker.com/all-the-tax-deductions-you-can-take-for-2018-1831808127)
+> 原文：<https://lifehacker.com/all-the-tax-deductions-you-can-take-for-2018-1831808127>
 
 这个纳税季将会是一个...有趣的是，随着政府关门和新税法条款的碰撞，产生了一场混乱和低效的完美风暴。
 

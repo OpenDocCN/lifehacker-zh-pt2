@@ -1,6 +1,6 @@
 # 查看人们现在正在听什么播客
 
-> 原文:[https://life hacker . com/see-what-podcast-people-is-listening-right-now-1831466043](https://lifehacker.com/see-what-podcasts-people-are-listening-to-right-now-1831466043)
+> 原文：<https://lifehacker.com/see-what-podcasts-people-are-listening-to-right-now-1831466043>
 
 听笔记， [Lifehacker 最喜欢的播客搜索引擎](https://lifehacker.com/the-best-podcast-search-engine-1818560337#_ga=2.22584507.1439095825.1546465614-1297080755.1497980211) ，有 [一个新的实时 feed](https://www.listennotes.com/realtime/) 显示用户当前正在听什么播客。这些人在网站上播放播客，而不是在他们通常的播放器上，所以这不会告诉你最受欢迎的播客。事实上，虽然你会看到很多受欢迎的节目，但你也会发现一些永远不会出现在谷歌或苹果排行榜上的东西。
 

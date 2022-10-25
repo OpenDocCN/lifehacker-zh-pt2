@@ -1,6 +1,6 @@
 # 这种病毒式抖音真的是最好的快餐黑客吗？
 
-> 原文:[https://life hacker . com/is-this-viral-tiktok-其实是最好的快餐-hack-1841786301](https://lifehacker.com/is-this-viral-tiktok-actually-the-best-fast-food-hack-1841786301)
+> 原文：<https://lifehacker.com/is-this-viral-tiktok-actually-the-best-fast-food-hack-1841786301>
 
 你是否曾经点了一份 10 块的麦乐鸡和一大杯饮料，却发现自己的手太少，无法拿起、啜饮和蘸食？嗯，抖音尔[@ MakeupByPablo](https://www.tiktok.com/@makeupbypablo?u_code=d7mej85ij7dc28&preview_pb=0&language=en&timestamp=1581366520&utm_campaign=client_share&app=musically&utm_medium=ios&user_id=6727451730230952965&tt_from=copy&utm_source=copy&source=h5_m)[最近贴出了一个天才的麦当劳黑客](https://www.tiktok.com/@makeupbypablo/video/6771881823770365189?u_code=d7mej85ij7dc28&preview_pb=0&language=en&timestamp=1581366520&utm_campaign=client_share&app=musically&utm_medium=ios&user_id=6727451730230952965&tt_from=copy&utm_source=copy&source=h5_m) ，我们决定测试一下。
 

@@ -1,6 +1,6 @@
 # 跳过治疗孩子感冒的非处方药
 
-> 原文:[https://life hacker . com/skip-the-counter-of-medicine-for-your children-crafts-1830653253](https://lifehacker.com/skip-the-over-the-counter-meds-for-your-kids-colds-1830653253)
+> 原文：<https://lifehacker.com/skip-the-over-the-counter-meds-for-your-kids-colds-1830653253>
 
 今年感恩节，我们全家去了迪斯尼世界。六个成年人和四个孩子首先徒步穿越几个州到达那里，然后在一周内穿越四个不同的公园。
 

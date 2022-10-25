@@ -1,6 +1,6 @@
 # 阻止网上讨厌的人的最好方法
 
-> 原文:[https://life hacker . com/the-best-ways-to-block-arbiting-people-around-around-the-web-1844606457](https://lifehacker.com/the-best-ways-to-block-annoying-people-around-the-web-1844606457)
+> 原文：<https://lifehacker.com/the-best-ways-to-block-annoying-people-around-the-web-1844606457>
 
 没有一天我看不到朋友们拿起武器互相攻击，愚蠢的亲戚，或者他们认识的人，和我们其他人只能通过社交媒体的力量来享受。似乎每个人的网上争吵都变得更糟了，现在我们的(似乎永无止境的)隔离让我们都变得更强大了——让真正愚蠢的人在互联网上展示他们的整个屁股，正如 [短语](https://idioms.thefreedictionary.com/showing+your+butt#:~:text=showing%20your%20butt)-,show%20(one's)%20butt,foolishly%3B%20to%20make%20a%20scene.) 所说。
 

@@ -1,6 +1,6 @@
 # 用加工过的奶酪制作奶油菠菜
 
-> 原文:[https://life hacker . com/make-lazy-creamed-spinal-with-processed-cheese-1843687153](https://lifehacker.com/make-lazy-creamed-spinach-with-processed-cheese-1843687153)
+> 原文：<https://lifehacker.com/make-lazy-creamed-spinach-with-processed-cheese-1843687153>
 
 牛排店有上好的牛排和数不尽的配菜，对我来说总是感觉很特别。选择你的配菜和沙拉酱和选择你的牛排一样重要，在家里营造一个牛排餐厅的时刻也需要类似的决定。一份 [烤土豆](https://lifehacker.com/how-to-make-a-restaurant-quality-baked-potato-1829011259) 是给定的，但是将这份快速、完全不当奶油菠菜扔在一起会让这顿饭有吃完的感觉。
 

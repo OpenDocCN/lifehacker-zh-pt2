@@ -1,6 +1,6 @@
 # 在你的粗燕麦粉和美味的燕麦片中加入一个蛋黄
 
-> 原文:[https://life hacker . com/add-an-egg-York-to-your-grits-and-salvor-oat-1844322908](https://lifehacker.com/add-an-egg-yolk-to-your-grits-and-savory-oatmeal-1844322908)
+> 原文：<https://lifehacker.com/add-an-egg-yolk-to-your-grits-and-savory-oatmeal-1844322908>
 
 蛋黄是鸡蛋最好的部分。这是不可否认的。蛋黄基本上是富含金黄色酱汁的整齐小球，搭配任何食物都很美味，你应该把它们加入到美味的早餐麦片中，尤其是粗燕麦粉。
 

@@ -1,6 +1,6 @@
 # 这就是为什么我们不用火药来驱动汽车
 
-> 原文:[https://jalopnik . com/heres-why-we-don-use-powder-to-power-cars-1836730539](https://jalopnik.com/heres-why-we-dont-use-gunpowder-to-power-cars-1836730539)
+> 原文：<https://jalopnik.com/heres-why-we-dont-use-gunpowder-to-power-cars-1836730539>
 
 我 100%确定你们都在某个时候考虑过这个想法。枪支利用大爆炸来快速射出子弹，那么我们为什么不利用高速子弹背后的可怕力量来让汽车跑得和高速子弹一样快呢？科学，我的朋友们。科学是答案。
 

@@ -1,6 +1,6 @@
 # 在谷歌上通过搜索商品和“对比”来轻松比较产品
 
-> 原文:[https://life hacker . com/easy-compare-products-on-Google-by-search-the-item-1833605009](https://lifehacker.com/easily-compare-products-on-google-by-searching-the-item-1833605009)
+> 原文：<https://lifehacker.com/easily-compare-products-on-google-by-searching-the-item-1833605009>
 
 当我寻找我感兴趣的产品信息时，我有几个可以去的网站，比如 Wirecutter、Strategist 和 Amazon comments(不过你必须小心 [那里](https://lifehacker.com/how-to-spot-a-fake-five-star-amazon-review-1827907107#_ga=2.170546848.1837296093.1553520176-1723114163.1524514905) )。
 

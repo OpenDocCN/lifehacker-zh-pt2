@@ -1,6 +1,6 @@
 # 根据 AAP 的说法，你为什么不应该打屁股
 
-> 原文:[https://life hacker . com/why-you-should-not-spank-on-the-AAP-1830225434](https://lifehacker.com/why-you-shouldnt-spank-according-to-the-aap-1830225434)
+> 原文：<https://lifehacker.com/why-you-shouldnt-spank-according-to-the-aap-1830225434>
 
 美国儿科学会强烈反对体罚，呼吁禁止体罚。它现在还说，“严厉的口头纪律”，包括羞辱和羞辱，对孩子的大脑发育有害。
 

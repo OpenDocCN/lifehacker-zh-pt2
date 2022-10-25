@@ -1,6 +1,6 @@
 # 如何防止你的汤碗在盘子上滑动
 
-> 原文:[https://life hacker . com/how-to-keep your-soup-bowl-from-sliding-about-the-plat-1841957029](https://lifehacker.com/how-to-keep-your-soup-bowl-from-sliding-around-the-plat-1841957029)
+> 原文：<https://lifehacker.com/how-to-keep-your-soup-bowl-from-sliding-around-the-plat-1841957029>
 
 许多汤最好配上某种勺子。鸡肉面条喜欢咸的，奶油番茄想要烤奶酪三明治。汤放在碗里，碗放在盘子里，紧挨着它的配菜。这是一个简单的配置，但盘子光滑的表面不是特别容易抓握，这可能会导致汤晃动，或者(更可怕的是)整个碗在运输过程中从盘子上滑落。
 

@@ -1,6 +1,6 @@
 # 购买高档调味品的理由
 
-> 原文:[https://life hacker . com/the-case for-buying-fancy-conditions-1834582186](https://lifehacker.com/the-case-for-buying-fancy-condiments-1834582186)
+> 原文：<https://lifehacker.com/the-case-for-buying-fancy-condiments-1834582186>
 
 他们说多样化是生活的调味品，但是我确实过着我的生活，我从实际的调味品、调料和调味品中得到不同的乐趣。这就是为什么各种罐子和挤压瓶占据了我冰箱的一半，但这也是为什么我几乎每天晚上都在家吃饭。
 

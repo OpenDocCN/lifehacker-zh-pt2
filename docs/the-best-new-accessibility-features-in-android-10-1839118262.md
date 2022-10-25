@@ -1,6 +1,6 @@
 # Android 10 中最好的新辅助功能
 
-> 原文:[https://life hacker . com/the-best-new-accessibility-features-in-Android-10-1839118262](https://lifehacker.com/the-best-new-accessibility-features-in-android-10-1839118262)
+> 原文：<https://lifehacker.com/the-best-new-accessibility-features-in-android-10-1839118262>
 
 Android 10 是 Android 的最新版本，它充满了新功能，如改进的安全性，基于手势的导航，更新的家长控制，以及对可折叠屏幕的支持。Android 的每一次更新都为残疾人带来了一些新的和改进的辅助功能。它们的类型多种多样，可以从“辅助功能设置”菜单中轻松启用。最重要的是，他们让任何有视觉、听觉、语言或身体障碍的人使用 Android 更加方便。
 

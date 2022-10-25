@@ -1,6 +1,6 @@
 # 当你旅行时，如何关掉(和储存)你的 SIM 卡
 
-> 原文:[https://life hacker . com/how-to-switch-out-and-store-you-sim-card-when-you-tr-1833493687](https://lifehacker.com/how-to-switch-out-and-store-your-sim-card-when-you-tr-1833493687)
+> 原文：<https://lifehacker.com/how-to-switch-out-and-store-your-sim-card-when-you-tr-1833493687>
 
 拥有一部解锁的 iPhone 的好处之一是，你可以在旅行时关掉你的 SIM 卡。国际电话套餐很贵，购买新卡和本地数据套餐通常比向运营商支付日费、月租费或按次计费要便宜得多。
 

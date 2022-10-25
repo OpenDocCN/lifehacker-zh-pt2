@@ -1,6 +1,6 @@
 # 这些美国航空公司在 2019 年颠簸了最多的乘客
 
-> 原文:[https://life hacker . com/these-u-s-airlines-2019-1839694572](https://lifehacker.com/these-u-s-airlines-bumped-the-most-passengers-in-2019-1839694572)
+> 原文：<https://lifehacker.com/these-u-s-airlines-bumped-the-most-passengers-in-2019-1839694572>
 
 超售航班回来了，宝贝！2017 年春天，在 [之后，一名男子被强行拖下超额预订的联合航空](https://gizmodo.com/united-ceo-doubles-down-blames-passenger-who-got-his-a-1794203925) 航班，联合航空首席执行官*指责该男子*，航空公司在只出售飞机上实际座位数量方面有了显著改善。到 2018 年年中，只有事件发生前的六分之一的“颠簸”乘客。但是，据旅游网站 UpgradedPoints.com 介绍， [的颠簸率又翻了三番](https://upgradedpoints.com/us-airlines-most-likely-to-bump-you-data-study/) 。
 

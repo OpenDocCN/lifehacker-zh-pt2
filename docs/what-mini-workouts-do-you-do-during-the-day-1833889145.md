@@ -1,6 +1,6 @@
 # 你白天做什么小运动？
 
-> 原文:[https://life hacker . com/what-mini-workouts-do-you-do-day-1833889145](https://lifehacker.com/what-mini-workouts-do-you-do-during-the-day-1833889145)
+> 原文：<https://lifehacker.com/what-mini-workouts-do-you-do-during-the-day-1833889145>
 
 如此多的练习只需要几分钟(以及完成它们的信心或隐私，而不用担心看起来很傻)。例如，你可以一边刷牙一边做下蹲动作。
 

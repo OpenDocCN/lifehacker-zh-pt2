@@ -1,6 +1,6 @@
 # 2019 年，5G 将是一个难以置信的艰难销售
 
-> 原文:[https://gizmodo . com/5g-is-to-be-a-establishely-tough-sell-in-2019-1832771232](https://gizmodo.com/5g-is-going-to-be-an-incredibly-tough-sell-in-2019-1832771232)
+> 原文：<https://gizmodo.com/5g-is-going-to-be-an-incredibly-tough-sell-in-2019-1832771232>
 
 虽然雪崩般的公告可能会让它看起来不是这样，但今天正式标志着 2019 年世界移动通信大会的第一天，除了所有在展会上展出的[怪异](https://gizmodo.com/thank-god-phones-are-getting-weird-again-1832766372)新手机，毫无疑问，展会的另一个大主题是 5G。
 

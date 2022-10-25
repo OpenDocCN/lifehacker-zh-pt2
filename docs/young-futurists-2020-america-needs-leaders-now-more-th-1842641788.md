@@ -1,6 +1,6 @@
 # young futurists 2020 america needs leaders now more th 1842641788
 
-> 原文:[https://www . the root . com/young-futurists-2020-America-needs-leaders-now-more-th-1842641788](https://www.theroot.com/young-futurists-2020-america-needs-leaders-now-more-th-1842641788)
+> 原文：<https://www.theroot.com/young-futurists-2020-america-needs-leaders-now-more-th-1842641788>
 
 如果说过去几个月我们学到了什么，那就是领导力很重要。
 

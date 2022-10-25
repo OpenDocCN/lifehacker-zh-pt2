@@ -1,6 +1,6 @@
 # 当在工作中变得脆弱真的值得时
 
-> 原文:[https://life hacker . com/when-it-actual-pay-off-to-be-vulnerable-in-work-1830683219](https://lifehacker.com/when-it-actually-pays-off-to-be-vulnerable-at-work-1830683219)
+> 原文：<https://lifehacker.com/when-it-actually-pays-off-to-be-vulnerable-at-work-1830683219>
 
 不同领域的工作场所文化差异很大，但大多数人都会同意，在大多数办公室里，没有多少人性弱点的空间。然而，对于情商高的人来说，一点点脆弱实际上能给你惊人的力量。
 

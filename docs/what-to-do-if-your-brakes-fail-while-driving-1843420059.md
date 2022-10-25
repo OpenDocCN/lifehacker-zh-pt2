@@ -1,6 +1,6 @@
 # 开车时如果刹车失灵该怎么办
 
-> 原文:[https://life hacker . com/1843420059](https://lifehacker.com/what-to-do-if-your-brakes-fail-while-driving-1843420059)
+> 原文：<https://lifehacker.com/what-to-do-if-your-brakes-fail-while-driving-1843420059>
 
 当我在高中的时候，当我开车下山的时候，我的汽车刹车失灵了。我对这一事件的记忆是模糊的——我记得那是永远延续的几秒钟:疯狂地踩刹车；我的汽车滑行着停了下来；我，过度换气了一段不确定的时间。那次事故只是我现在只在绝对必要时开车的几个原因之一。作为一名新司机，我不知道该怎么办，这很可怕。
 

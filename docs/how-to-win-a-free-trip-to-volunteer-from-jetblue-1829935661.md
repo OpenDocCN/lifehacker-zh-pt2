@@ -1,6 +1,6 @@
 # 如何赢得免费的捷蓝航空志愿者之旅
 
-> 原文:[https://life hacker . com/how-to-win-a-free-trip-to-volunteer-from-JetBlue-1829935661](https://lifehacker.com/how-to-win-a-free-trip-to-volunteer-from-jetblue-1829935661)
+> 原文：<https://lifehacker.com/how-to-win-a-free-trip-to-volunteer-from-jetblue-1829935661>
 
 比如帮助别人？JetBlue 想带你去一个神秘的地方度假，在那里你可以做一些好事。
 

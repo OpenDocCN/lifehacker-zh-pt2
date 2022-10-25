@@ -1,6 +1,6 @@
 # 如何在 Roku 上安装 Apple TV+
 
-> 原文:[https://life hacker . com/how-to-get-the-apple-TV-app-on-your-Roku-1839102237](https://lifehacker.com/how-to-get-the-apple-tv-app-on-your-roku-1839102237)
+> 原文：<https://lifehacker.com/how-to-get-the-apple-tv-app-on-your-roku-1839102237>
 
 自从这项服务推出以来，苹果电视应用程序已经可以在几乎所有苹果设备 上使用 [，并且在过去几年里开始出现在部分三星智能电视上。截至今天，苹果电视(终于)可以在众多 Roku 设备上使用。](https://lifehacker.com/how-to-get-free-apple-tv-with-your-apple-device-1838412966)
 

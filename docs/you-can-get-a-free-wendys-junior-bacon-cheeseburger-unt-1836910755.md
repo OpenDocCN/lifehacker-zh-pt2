@@ -1,6 +1,6 @@
 # 在 8 月 19 日之前，你可以得到一份免费的温蒂少年培根芝士汉堡
 
-> 原文:[https://life hacker . com/you-can-get-a-free-wendys-junior-bacon-芝士汉堡-unt-1836910755](https://lifehacker.com/you-can-get-a-free-wendys-junior-bacon-cheeseburger-unt-1836910755)
+> 原文：<https://lifehacker.com/you-can-get-a-free-wendys-junior-bacon-cheeseburger-unt-1836910755>
 
 如果你是温蒂汉堡 的粉丝，那么你可能已经熟悉他们的初级培根芝士汉堡(或者 JBC，对于那些了解内情的人来说)。这看似简单:一个上面有培根、卷心莴苣、番茄和蛋黄酱的芝士汉堡——但是 T5】人们喜欢它 T7】。 
 

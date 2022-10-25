@@ -1,6 +1,6 @@
 # 从 Google Authenticator 切换到更安全的 2FA 应用
 
-> 原文:[https://life hacker . com/switch-from-Google-authenticator-to-a-a-more-secure-2fa-a-1842212483](https://lifehacker.com/switch-from-google-authenticator-to-a-more-secure-2fa-a-1842212483)
+> 原文：<https://lifehacker.com/switch-from-google-authenticator-to-a-more-secure-2fa-a-1842212483>
 
 根据最近来自 [Nightwatch 网络安全](https://wwws.nightwatchcybersecurity.com/2020/03/03/google-authenticator-for-android-allows-screen-capture/) 的一份报告，谷歌的 Android 认证应用程序存在一个未解决的问题，如果你的设备上安装了任何恶意软件或其他不可靠的应用程序，可能会造成一场巨大的安全噩梦。(安卓系统的 [**微软认证器**](https://play.google.com/store/apps/details?id=com.azure.authenticator&hl=en_US) 应用也存在同样的问题，所以暂时也不要切换到*那个*应用。)
 

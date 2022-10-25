@@ -1,6 +1,6 @@
 # 如何请人做工作推荐人
 
-> 原文:[https://life hacker . com/how-to-ask-someone-to-be-a-job-reference-1844611959](https://lifehacker.com/how-to-ask-someone-to-be-a-job-reference-1844611959)
+> 原文：<https://lifehacker.com/how-to-ask-someone-to-be-a-job-reference-1844611959>
 
 尽管我们找工作的方式发生了很大的变化(我们已经从翻阅当地报纸的分类广告栏走了很长一段路),招聘过程现在基本上是虚拟的，但有一种做法似乎不会有任何进展:提供推荐信。
 

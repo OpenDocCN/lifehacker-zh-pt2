@@ -1,6 +1,6 @@
 # 在你完成活动之前跟踪它们
 
-> 原文:[https://life hacker . com/track-you-habits-before-you-do-them-1834581407](https://lifehacker.com/track-your-habits-before-you-do-them-1834581407)
+> 原文：<https://lifehacker.com/track-your-habits-before-you-do-them-1834581407>
 
 我最近经历了一次“习惯改造”——我仔细审视了自己的习惯，问自己哪些是我想保留的，哪些是我想放弃的，哪些是我想取代的。
 

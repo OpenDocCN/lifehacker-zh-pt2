@@ -1,6 +1,6 @@
 # 如何组织起来还清债务
 
-> 原文:[https://life hacker . com/how-to-get-organized-to-pay-off-your debt-1844083637](https://lifehacker.com/how-to-get-organized-to-pay-off-your-debt-1844083637)
+> 原文：<https://lifehacker.com/how-to-get-organized-to-pay-off-your-debt-1844083637>
 
 所以你有一些债务，你想摆脱它。太好了！但是当涉及到研究还清欠款的策略和技巧时，很容易迷失方向。这个兔子洞会分散你的注意力，让你无法真正有条理地处理债务。
 

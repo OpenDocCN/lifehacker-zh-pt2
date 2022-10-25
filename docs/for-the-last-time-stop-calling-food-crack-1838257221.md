@@ -1,6 +1,6 @@
 # 最后一次，不要再把食物叫做“快克”
 
-> 原文:[https://life hacker . com/for-the-last-time-stop-calling-food-crack-1838257221](https://lifehacker.com/for-the-last-time-stop-calling-food-crack-1838257221)
+> 原文：<https://lifehacker.com/for-the-last-time-stop-calling-food-crack-1838257221>
 
 今年早些时候，克里斯蒂尼·托西将“快克派”的名字改成了“奶吧派”， [解释说](https://milkbarstore.com/blogs/notes-from-tosi/a-note-on-milk-bar-pie) 这个名字“不符合”奶吧“传播快乐，激发庆祝”的使命这算不上道歉，也不清楚托西是否真的明白*为什么*这个名字一开始就是个问题，但至少这个名字——终于在十多年后——被改了。
 

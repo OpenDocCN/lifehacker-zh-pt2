@@ -1,6 +1,6 @@
 # 这些主要的图书馆系统不收滞纳金
 
-> 原文:[https://life hacker . com/these-major-library-systems-don-charge-late-fees-1838703917](https://lifehacker.com/these-major-library-systems-dont-charge-late-fees-1838703917)
+> 原文：<https://lifehacker.com/these-major-library-systems-dont-charge-late-fees-1838703917>
 
 芝加哥公共图书馆系统和 [沃斯堡公共图书馆系统](https://www.star-telegram.com/news/local/fort-worth/article235627107.html) 本周停止对过期图书收取罚款，并免除了所有未付罚款。他们加入了越来越多的图书馆的行列，这些图书馆用更宽松、更灵活的“丢失图书”费用取代了滞纳金。这里是已经做同样事情的主要系统，以及为什么它是一个人道和实际的选择。
 

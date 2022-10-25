@@ -1,6 +1,6 @@
 # 哪种 PC 游戏订阅服务最好？
 
-> 原文:[https://life hacker . com/which-PC-gaming-subscription-service-is-best-1845019353](https://lifehacker.com/which-pc-gaming-subscription-service-is-best-1845019353)
+> 原文：<https://lifehacker.com/which-pc-gaming-subscription-service-is-best-1845019353>
 
 当涉及到视频游戏订阅服务时，主机游戏玩家的日子相当好过——他们大多受困于 PlayStation、任天堂或 Xbox 的第一方服务。另一方面，电脑游戏玩家有很多选择。
 

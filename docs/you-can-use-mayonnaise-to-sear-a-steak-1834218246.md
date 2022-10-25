@@ -1,6 +1,6 @@
 # 你可以用蛋黄酱烤牛排
 
-> 原文:[https://life hacker . com/you-can-use-蛋黄酱-烤焦牛排-1834218246](https://lifehacker.com/you-can-use-mayonnaise-to-sear-a-steak-1834218246)
+> 原文：<https://lifehacker.com/you-can-use-mayonnaise-to-sear-a-steak-1834218246>
 
 我是在密西西比州北部长大的，因此，我非常喜欢被称为“蛋黄酱”的白色乳液。它不仅是三明治中必不可少的，而且它还能让[超级湿润的巧克力蛋糕](https://skillet.lifehacker.com/3-unexpected-things-you-can-do-with-mayo-that-arent-put-1798356585) ，还有——我最近才知道——非常棒的烤牛排。
 

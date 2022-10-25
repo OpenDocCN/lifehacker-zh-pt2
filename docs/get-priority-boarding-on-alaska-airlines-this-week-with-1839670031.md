@@ -1,6 +1,6 @@
 # 用星巴克红杯获得本周阿拉斯加航空公司的优先登机
 
-> 原文:[https://life hacker . com/get-priority-boarding-on-Alaska-airlines-this-week-with-1839670031](https://lifehacker.com/get-priority-boarding-on-alaska-airlines-this-week-with-1839670031)
+> 原文：<https://lifehacker.com/get-priority-boarding-on-alaska-airlines-this-week-with-1839670031>
 
 如果你本周乘坐阿拉斯加航空公司的飞机，你可能想在去机场的路上顺便去一趟星巴克。星巴克红杯将于明天，11 月 7 日推出，为了庆祝这个咖啡连锁店与另一家位于西雅图的公司阿拉斯加航空公司合作，为顾客提供免费优先登机服务。
 

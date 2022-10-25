@@ -1,6 +1,6 @@
 # 何时将您的存款转移到机器人管理员
 
-> 原文:[https://life hacker . com/when-to-transfer-your-savings-a-roboadvisor-1833034570](https://lifehacker.com/when-to-transfer-your-savings-to-a-roboadvisor-1833034570)
+> 原文：<https://lifehacker.com/when-to-transfer-your-savings-to-a-roboadvisor-1833034570>
 
 据《华尔街日报》[](https://www.wsj.com/articles/banks-are-paying-peanuts-on-deposits-robo-advisers-are-offering-higher-rates-11551452400)*报道，经过多年停滞后，利率正在上升，但实体银行仍向客户提供平均 0.10%的存款利率。这使得 Wealthfront 和 Betterment 等公司提供的机器人遮阳板看起来更有吸引力。*
 

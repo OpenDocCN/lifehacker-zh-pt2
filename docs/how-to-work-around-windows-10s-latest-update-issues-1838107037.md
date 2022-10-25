@@ -1,6 +1,6 @@
 # 如何解决 Windows 10 的最新更新问题
 
-> 原文:[https://life hacker . com/how-to-work-around-windows-10s-latest-update-issues-1838107037](https://lifehacker.com/how-to-work-around-windows-10s-latest-update-issues-1838107037)
+> 原文：<https://lifehacker.com/how-to-work-around-windows-10s-latest-update-issues-1838107037>
 
 又来了。时间线有点乱，所以这次尽量和我们在一起。微软上周发布了一个 Windows 更新，修复了之前补丁中的一个错误，该错误导致了意外的 CPU 峰值，降低了用户台式机和笔记本电脑的性能。这个补丁自带了一些烦人的 bug，微软(和其他用户)正在努力解决。
 

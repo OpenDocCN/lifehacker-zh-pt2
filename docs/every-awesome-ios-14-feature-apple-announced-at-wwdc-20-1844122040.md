@@ -1,6 +1,6 @@
 # 苹果在 WWDC 2020 上宣布的每一个令人敬畏的 iOS 14 功能
 
-> 原文:[https://life hacker . com/every-awesome-IOs-14-feature-apple-announced-at-wwdc-20-1844122040](https://lifehacker.com/every-awesome-ios-14-feature-apple-announced-at-wwdc-20-1844122040)
+> 原文：<https://lifehacker.com/every-awesome-ios-14-feature-apple-announced-at-wwdc-20-1844122040>
 
 全球开发者大会日快乐！换句话说，“苹果宣布一系列软件产品的那一天。”在今天的 WWDC 2020 虚拟主题演讲中，苹果公司谈到了其每个平台的改进，在这篇文章中，我们将重点关注最新版本的 iOS——iOS 14。
 

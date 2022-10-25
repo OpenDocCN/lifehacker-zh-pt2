@@ -1,6 +1,6 @@
 # 笔记本电脑玩不了游戏该不该买外接显卡？
 
-> 原文:[https://life hacker . com/should-I-buy-an-external-graphics-card-if-my-laptop-can-1844405307](https://lifehacker.com/should-i-buy-an-external-graphics-card-if-my-laptop-can-1844405307)
+> 原文：<https://lifehacker.com/should-i-buy-an-external-graphics-card-if-my-laptop-can-1844405307>
 
 我喜欢在合理的分辨率和质量设置下玩电脑游戏，而不会让我的腿或桌子着火，这就是为什么我在购买新东西时通常不会考虑笔记本电脑的游戏功能。当我的台式机(及其独立的 Nvidia RTX 卡)可以满足我的一切需求时，为什么还要烦恼呢？
 

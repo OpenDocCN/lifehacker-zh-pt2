@@ -1,6 +1,6 @@
 # 在三星健康健身挑战赛中使用 Galaxy 手机与您的朋友战斗
 
-> 原文:[https://life hacker . com/battle-your-friends-with-galaxy-phones-in-Samsung-healt-1831136089](https://lifehacker.com/battle-your-friends-with-galaxy-phones-in-samsung-healt-1831136089)
+> 原文：<https://lifehacker.com/battle-your-friends-with-galaxy-phones-in-samsung-healt-1831136089>
 
 竞争是让锁定我拥有 FitBit 的原因之一。每周，我和我的三个朋友都会参加一个“工作周挑战”,不知何故，即使过了几年，我们还是会抽出时间来讨论垃圾话题。我喜欢精彩的比赛，FitBit 比赛多年来一直是许多周五额外散步或跑步的灵感来源。
 

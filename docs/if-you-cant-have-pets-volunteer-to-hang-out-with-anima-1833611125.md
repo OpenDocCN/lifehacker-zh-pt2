@@ -1,6 +1,6 @@
 # 如果你不能养宠物，可以自愿和动物一起出去玩
 
-> 原文:[https://life hacker . com/if-you-can-pet-volunteer-hang-out-with-anima-1833611125](https://lifehacker.com/if-you-cant-have-pets-volunteer-to-hang-out-with-anima-1833611125)
+> 原文：<https://lifehacker.com/if-you-cant-have-pets-volunteer-to-hang-out-with-anima-1833611125>
 
 也许你住在一个禁止动物的房子里，也许你有一个过敏的伴侣；这并不意味着猫和狗不能成为你日常生活的一部分。在动物收容所做志愿者对渴望宠物的人来说是一个绝佳的机会。
 

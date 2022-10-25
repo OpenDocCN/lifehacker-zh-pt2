@@ -1,6 +1,6 @@
 # 如何停止在 Instagram 上花钱
 
-> 原文:[https://life hacker . com/how-to-stop-spending-money-on-insta gram-1839960357](https://lifehacker.com/how-to-stop-spending-money-on-instagram-1839960357)
+> 原文：<https://lifehacker.com/how-to-stop-spending-money-on-instagram-1839960357>
 
 Instagram 推出应用内购买功能还不到一年，这一功能让我们可以从喜欢一张图片到购买我们喜欢的任何东西。如果你发现自己买的东西超出了预算，你并不孤单。
 

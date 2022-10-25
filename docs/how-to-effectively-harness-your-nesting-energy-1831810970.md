@@ -1,6 +1,6 @@
 # 如何有效利用你的筑巢能量
 
-> 原文:[https://life hacker . com/how-to-effectively-harness-your-nesting-energy-1831810970](https://lifehacker.com/how-to-effectively-harness-your-nesting-energy-1831810970)
+> 原文：<https://lifehacker.com/how-to-effectively-harness-your-nesting-energy-1831810970>
 
 几天前，Lifehacker 的工作人员在谈论筑巢。你知道，怀孕的妈妈们会经历一种有点狂热的能量爆发，推动她们做好准备。
 

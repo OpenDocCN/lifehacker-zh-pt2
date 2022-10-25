@@ -1,6 +1,6 @@
 # 用室内植物让你的家庭办公室更有生产力
 
-> 原文:[https://life hacker . com/make-your-home-office-a-more-productive-place with houss-1834877927](https://lifehacker.com/make-your-home-office-a-more-productive-place-with-hous-1834877927)
+> 原文：<https://lifehacker.com/make-your-home-office-a-more-productive-place-with-hous-1834877927>
 
 在过去十年的大部分时间里，我都在家工作，这意味着我已经阅读了几乎所有关于如何让你的家庭办公室成为一个更有生产力的空间的文章。见鬼，我甚至写了一本关于如何在工作中更有效率的书。
 

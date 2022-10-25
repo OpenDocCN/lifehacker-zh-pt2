@@ -1,6 +1,6 @@
 # 黑眼豌豆鹰嘴豆泥会让你的新年更美好
 
-> 原文:[https://life hacker . com/black-eyed-pea-hummus-will-make-your-new-year-better-1831468123](https://lifehacker.com/black-eyed-pea-hummus-will-make-your-new-year-better-1831468123)
+> 原文：<https://lifehacker.com/black-eyed-pea-hummus-will-make-your-new-year-better-1831468123>
 
 我一直以为黑眼豆豆比新年大。事实上，在我搬出密西西比之前，我甚至不知道它们是新年的“东西”(我的家人一年到头都吃它们，通常是用一点火腿做的简单配菜。)
 

@@ -1,6 +1,6 @@
 # 在脸书的天秤座加密货币中发现漏洞，赚取数千美元
 
-> 原文:[https://life hacker . com/earn-千千万万美元寻找 facebooks 中的漏洞-1837625147](https://lifehacker.com/earn-thousands-of-dollars-for-finding-bugs-in-facebooks-1837625147)
+> 原文：<https://lifehacker.com/earn-thousands-of-dollars-for-finding-bugs-in-facebooks-1837625147>
 
 虽然我们仍在等待脸书即将推出的加密货币 [【天秤座](https://gizmodo.com/congress-demands-facebook-put-brakes-on-libra-cryptocur-1836073691) 的具体发布日期，但该公司的目标是 2020 年初发布。这给了你足够的时间去发现货币基础设施中的漏洞——一个可以给你丰厚回报的项目。
 

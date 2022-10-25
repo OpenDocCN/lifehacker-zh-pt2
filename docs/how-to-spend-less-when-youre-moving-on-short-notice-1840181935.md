@@ -1,6 +1,6 @@
 # 如何在短时间内搬家时节省开支
 
-> 原文:[https://life hacker . com/how-to-spend-less-when-you-move-on-short-notice-1840181935](https://lifehacker.com/how-to-spend-less-when-youre-moving-on-short-notice-1840181935)
+> 原文：<https://lifehacker.com/how-to-spend-less-when-youre-moving-on-short-notice-1840181935>
 
 你的新公寓会很棒的！也就是说，直到你发现你的新室友是一个噩梦，或者你的房东是一个真正的讨厌鬼。你需要快速离开那里。
 

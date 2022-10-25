@@ -1,6 +1,6 @@
 # 2019 年最佳旅行秘诀
 
-> 原文:[https://life hacker . com/the-best-travel-hacks-of-2019-1840509065](https://lifehacker.com/the-best-travel-hacks-of-2019-1840509065)
+> 原文：<https://lifehacker.com/the-best-travel-hacks-of-2019-1840509065>
 
 如果曾经有过对旅行技巧的需求，那就是在 2019 年——波音 737 MAX[折磨游客的神秘疾病](https://www.cnn.com/2019/06/24/health/dominican-republic-sickness-deaths-invs/index.html)[航空公司通过基本经济舱座位提供更少的腿部空间](https://www.adweek.com/brand-marketing/jetblue-new-basic-economy-class-basic-blue/) 。由于这个假期周可能会成为 2019 年最繁忙的旅行周，是时候有人放你一马了。下面，你会发现一些我们最喜欢和最需要的年度旅行技巧、提示和升级，包括如何通过令人讨厌的长时间海关排队，为什么打包立方体改变了一名 Lifehacker 员工的生活，以及永远不要在飞机上提供交换座位的理由。
 

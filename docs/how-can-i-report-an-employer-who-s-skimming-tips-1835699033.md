@@ -1,6 +1,6 @@
 # 问刻薄的女服务员:我怎么才能举报一个偷小费的雇主？
 
-> 原文:[https://the take out . com/how-can-I-report-a-employee-who-s-skimming-tips-1835699033](https://thetakeout.com/how-can-i-report-an-employer-who-s-skimming-tips-1835699033)
+> 原文：<https://thetakeout.com/how-can-i-report-an-employer-who-s-skimming-tips-1835699033>
 
 > 嗨，咸味，在长岛有一家我朋友工作过的餐馆。服务员在聚会上会收到 90 美元的小费。我的朋友在一个大型派对上工作，有 6000 美元的账单。他注意到经理自动增加了 1200 美元的小费....但在他忙了几个小时后还是只给了他 90 美元小费。他被告知不要问这么多问题，当他注意到管理层从他们的服务器上偷窃时，他被解雇了。这些额外的收入直接进入了餐馆的口袋。我非常怀疑他们报告收入。
 > 

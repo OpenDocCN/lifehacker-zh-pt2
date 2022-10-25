@@ -1,6 +1,6 @@
 # 芯片制造商如何绕过摩尔定律来构建未来的超高速 CPU
 
-> 原文:[https://gizmodo . com/how-chip-makers-are-boxing-Moores-law-to-build-s-1831268322](https://gizmodo.com/how-chip-makers-are-circumventing-moores-law-to-build-s-1831268322)
+> 原文：<https://gizmodo.com/how-chip-makers-are-circumventing-moores-law-to-build-s-1831268322>
 
 很长一段时间以来，房间里的大象一直是摩尔定律——或者说，是它的最终结局。英特尔联合创始人戈登·摩尔在 1965 年的一篇论文 中预测，芯片上的晶体管数量每年将翻一番。更多的晶体管意味着更快的速度，这种稳定的增长推动了计算机几十年的进步。这是 CPU 制造商提高 CPU 速度的传统方式。但是晶体管的这些进步正显示出放缓的迹象。多伦多大学的电子和计算机工程教授娜塔莉·杰格说:“这已经失去了动力。
 

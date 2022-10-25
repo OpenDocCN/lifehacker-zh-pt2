@@ -1,6 +1,6 @@
 # 如何支持一个堕胎或流产的朋友
 
-> 原文:[https://Jezebel . com/how-to-support-a-friend-through-an-a-流产或流产-1834950302](https://jezebel.com/how-to-support-a-friend-through-an-abortion-or-miscarri-1834950302)
+> 原文：<https://jezebel.com/how-to-support-a-friend-through-an-abortion-or-miscarri-1834950302>
 
 堕胎是目前可用的 [最安全和最常见的门诊手术](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5870078/) 之一。尽管四分之一的美国女性选择终止妊娠，但共和党的恐惧和极端主义让堕胎变得越来越难以实现，也越来越难以讨论。
 

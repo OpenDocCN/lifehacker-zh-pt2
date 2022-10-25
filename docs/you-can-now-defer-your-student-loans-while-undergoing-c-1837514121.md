@@ -1,6 +1,6 @@
 # 在接受癌症治疗期间，你现在可以推迟你的学生贷款
 
-> 原文:[https://life hacker . com/you-can-now-defer-your student loans-which-expering-c-1837514121](https://lifehacker.com/you-can-now-defer-your-student-loans-while-undergoing-c-1837514121)
+> 原文：<https://lifehacker.com/you-can-now-defer-your-student-loans-while-undergoing-c-1837514121>
 
 去年，一项法律生效，允许癌症患者在接受治疗期间以及之后的六个月内暂停他们的联邦学生贷款。但是 [没有办法实际请求延期](https://www.cnbc.com/2019/04/09/new-cancer-deferment-for-student-loan-borrowers-has-a-rocky-rollout.html)——直到现在。
 

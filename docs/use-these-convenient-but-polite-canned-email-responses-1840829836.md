@@ -1,6 +1,6 @@
 # 使用这些方便但礼貌的邮件回复来节省时间
 
-> 原文:[https://life hacker . com/use-these-convenient-but-cultured-email-responses-1840829836](https://lifehacker.com/use-these-convenient-but-polite-canned-email-responses-1840829836)
+> 原文：<https://lifehacker.com/use-these-convenient-but-polite-canned-email-responses-1840829836>
 
 不管你认为自己有多忙，总有几封(或很多)邮件在那里，等着回复。你知道你应该回复，否则你会收到可怕的后续邮件，这只会进一步堵塞你的收件箱。即使是发送最基本的、重复的电子邮件也会耗尽宝贵的脑力。要是有办法让这个过程变得简单一点就好了。
 

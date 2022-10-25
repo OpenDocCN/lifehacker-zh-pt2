@@ -1,6 +1,6 @@
 # 你一直想知道的关于‘Omegalul’表情的一切(但是不敢问)
 
-> 原文:[https://kotaku . com/everything-you-always-want-to-know-the-omegalul-1839784840](https://kotaku.com/everything-you-always-wanted-to-know-about-the-omegalul-1839784840)
+> 原文：<https://kotaku.com/everything-you-always-wanted-to-know-about-the-omegalul-1839784840>
 
 一些迷因毫无悔意或遗憾地涌入集体意识，口吐白沫，并鼓动倒霉的旁观者置身事外。不管怎样，你会明白它们的意思，两个星期后你会厌倦它们，就像上帝的意图一样。然而，其他人在他们自己的网络空间里偷偷摸摸，当他们出现在你的场景中时，就好像其他人已经很熟悉他们了。“Omegalul”就是这样一个迷因。
 

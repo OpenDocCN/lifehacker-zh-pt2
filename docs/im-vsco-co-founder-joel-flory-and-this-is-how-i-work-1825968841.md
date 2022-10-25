@@ -1,6 +1,6 @@
 # 我是 VSCO 的联合创始人乔尔·弗洛里，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-vsco-联合创始人-Joel-flory-and-this-is-how-I-work-1825968841](https://lifehacker.com/im-vsco-co-founder-joel-flory-and-this-is-how-i-work-1825968841)
+> 原文：<https://lifehacker.com/im-vsco-co-founder-joel-flory-and-this-is-how-i-work-1825968841>
 
 [【VSCO】](https://vsco.co/)，Lifehacker 的 [最喜欢的相机应用](https://lifehacker.com/the-best-photography-apps-for-iphone-2014-edition-1496689753) 之一，让任何人都可以在没有先进技术知识的情况下改进他们的手机照片。我们与联合创始人乔尔·弗洛里谈论了他的摄影背景、管理风格和喝茶习惯。
 

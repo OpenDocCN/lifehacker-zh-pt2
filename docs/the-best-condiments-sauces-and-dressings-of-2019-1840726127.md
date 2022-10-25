@@ -1,6 +1,6 @@
 # 2019 年最佳调味品、酱料和调料
 
-> 原文:[https://life hacker . com/the-best-conditions-sauce-and-dressing-of-2019-1840726127](https://lifehacker.com/the-best-condiments-sauces-and-dressings-of-2019-1840726127)
+> 原文：<https://lifehacker.com/the-best-condiments-sauces-and-dressings-of-2019-1840726127>
 
 一种好的调味品可以使一顿 meh 饭变得值得一吃。当浇上或蘸上正确的酱料或酱料时，以前不吸引人的食物变得诱人，你的冰箱应该储存一些美味的朋友，让吃起来更有趣。下面你会发现 2019 年我们最喜欢的调料、调味品和酱料(其中很多都是黄油)。
 

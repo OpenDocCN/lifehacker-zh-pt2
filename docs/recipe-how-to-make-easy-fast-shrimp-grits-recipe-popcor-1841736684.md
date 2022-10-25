@@ -1,6 +1,6 @@
 # 你可以在 15 分钟内做好虾和玉米粉——只要用爆米花
 
-> 原文:[https://the take out . com/recipe-how-to-make-easy-fast-shrimp-grits-recipe-popcor-1841736684](https://thetakeout.com/recipe-how-to-make-easy-fast-shrimp-grits-recipe-popcor-1841736684)
+> 原文：<https://thetakeout.com/recipe-how-to-make-easy-fast-shrimp-grits-recipe-popcor-1841736684>
 
 虾和玉米粉可以是一种神奇的体验。奶油，黄油，油滑，奶酪，这是美国南部最伟大的烹饪出口之一。
 

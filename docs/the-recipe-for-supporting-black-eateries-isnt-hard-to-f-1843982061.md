@@ -1,6 +1,6 @@
 # 支持黑人餐馆的方法并不难遵循
 
-> 原文:[https://life hacker . com/the-recipe-for-support-black-eateries-not-hard-to-f-1843982061](https://lifehacker.com/the-recipe-for-supporting-black-eateries-isnt-hard-to-f-1843982061)
+> 原文：<https://lifehacker.com/the-recipe-for-supporting-black-eateries-isnt-hard-to-f-1843982061>
 
 当圣路易斯的美食作家罗宾·考德威尔想从她最喜欢的餐馆点蔬菜时，她会先打电话，然后再上门订购。“我打电话给店主，说，‘如果我给杜达什这些钱，并且告诉你我想要你的猪排晚餐...我要你送我三罐羽衣甘蓝。“你愿意为我这样做吗，””
 

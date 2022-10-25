@@ -1,6 +1,6 @@
 # 你的孩子可以从玩玩具房子中学到什么
 
-> 原文:[https://life hacker . com/what-your-kid-can-learn-by-playing-a-toy-house-1834960414](https://lifehacker.com/what-your-kid-can-learn-by-playing-with-a-toy-house-1834960414)
+> 原文：<https://lifehacker.com/what-your-kid-can-learn-by-playing-with-a-toy-house-1834960414>
 
 在新的学前节目*月亮和我*的每一集开始，一个孩子把她的洋娃娃放在他们的玩具房子里睡觉。“躺下，佩皮娜娜，”孩子说，把小雕像掖在小床的被子里。“闭上眼睛。你不要偷看。这是我们睡觉的方式。”她以*晚安月亮*级别的有条不紊继续着她的夜间仪式，给“百合花”浇水，把小丑科利·摇摆放进他的专用袋子里，让一个名叫小娜娜的蓝头发女孩在她指定的火柴盒里休息。这一套路非常迷人，部分原因是这是一部异想天开的作品(该系列现在在 NBC Universal Kids 上播出，使用木偶戏、定格动画和复杂的自制效果拍摄)，还因为它非常精彩地捕捉了小孩子如何玩玩具房子。
 

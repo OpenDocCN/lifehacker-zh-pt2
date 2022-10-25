@@ -1,6 +1,6 @@
 # 你应该用预付借记卡退税吗？
 
-> 原文:[https://life hacker . com/should-you-get-your-return-on-a-预付费借记卡-1841832556](https://lifehacker.com/should-you-get-your-tax-refund-on-a-prepaid-debit-card-1841832556)
+> 原文：<https://lifehacker.com/should-you-get-your-tax-refund-on-a-prepaid-debit-card-1841832556>
 
 本周早些时候，我们研究了以亚马逊礼品卡 的形式获得退税是否是个好主意(我的判断是*不*)。
 

@@ -1,6 +1,6 @@
 # 现在是你看到水星的机会了
 
-> 原文:[https://life hacker . com/now-is-your-chance-see-mercury-1837037239](https://lifehacker.com/now-is-your-chance-to-see-mercury-1837037239)
+> 原文：<https://lifehacker.com/now-is-your-chance-to-see-mercury-1837037239>
 
 与木星 [和土星](https://lifehacker.com/how-to-view-the-planets-at-night-in-august-1836909970) 不同，水星这个月不会让自己容易被看到，但是明天早上很可能是你最好的机会——当然，如果天气晴朗的话。
 

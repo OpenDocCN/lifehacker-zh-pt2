@@ -1,6 +1,6 @@
 # 你最喜欢的思维导图 App 是什么？
 
-> 原文:[https://life hacker . com/whats-your-favorite-mind-mapping-app-1837260185](https://lifehacker.com/whats-your-favorite-mind-mapping-app-1837260185)
+> 原文：<https://lifehacker.com/whats-your-favorite-mind-mapping-app-1837260185>
 
 对于这个[Hive Five](https://lifehacker.com/tag/hive-five)——一个根据你的推荐和我们的研究建立的最佳应用列表——我们想知道你最喜欢的思维导图工具。你用什么来头脑风暴、组织和收集你的想法？
 

@@ -1,6 +1,6 @@
 # 如何打包你的孩子会吃的学校午餐
 
-> 原文:[https://life hacker . com/how-to-pack a school-lunch-your-kid-will-eat-actually 1837492688](https://lifehacker.com/how-to-pack-a-school-lunch-your-kid-will-actually-eat-1837492688)
+> 原文：<https://lifehacker.com/how-to-pack-a-school-lunch-your-kid-will-actually-eat-1837492688>
 
 孩子们整个夏天都在吃草，也许“午餐”是整个下午的一系列小吃。但是现在是上学的时间了，我们必须把午餐定义得更明确一些——把它装在小的分段容器里，放在一个覆盖着独角兽的隔热袋里。
 

@@ -1,6 +1,6 @@
 # 确保你的手机上没有安装这些安卓应用
 
-> 原文:[https://life hacker . com/make-assure-you-don ' t-have-these-Android-apps-installed-on-1838314740](https://lifehacker.com/make-sure-you-dont-have-these-android-apps-installed-on-1838314740)
+> 原文：<https://lifehacker.com/make-sure-you-dont-have-these-android-apps-installed-on-1838314740>
 
 谷歌本周从谷歌 Play 商店移除了两个应用程序，因为它发现它们向用户提供广告软件。这些应用程序，Sun Pro 美颜相机和滑稽甜美自拍相机，已被下载超过 150 万次， [ZDNet 报道](https://www.zdnet.com/article/two-android-adware-apps-with-1-5-million-downloads-removed-from-google-play-store/) 。
 

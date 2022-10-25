@@ -1,6 +1,6 @@
 # 苹果的新 MAC 电脑使用“100%再生铝”，但这是什么意思呢？
 
-> 原文:[https://gizmodo . com/apple-new-Macs-use-100 %- recycled-aluminum-but-1830109191](https://gizmodo.com/apples-new-macs-use-100-percent-recycled-aluminum-but-1830109191)
+> 原文：<https://gizmodo.com/apples-new-macs-use-100-percent-recycled-aluminum-but-1830109191>
 
 苹果公司秋季的第二次新闻发布会发布了一系列新设备的细节。但该公司也在环境方面做出了一些声明，这些声明引起了热议和质疑，特别是关于其 2018 年产品线将使用的回收材料。
 

@@ -1,6 +1,6 @@
 # 从 TARDIS 内部参加缩放会议
 
-> 原文:[https://life hacker . com/attend-a-zoom-meeting-from-inside-a-tardis-1843326285](https://lifehacker.com/attend-a-zoom-meeting-from-inside-a-tardis-1843326285)
+> 原文：<https://lifehacker.com/attend-a-zoom-meeting-from-inside-a-tardis-1843326285>
 
 定制的缩放背景让你不必在每次会议中炫耀同样无聊的墙、凌乱的公寓或孩子引起的混乱。如果你是在 BBC 的《神秘博士》(Doctor Who)、《伦敦东区》(EastEnders)和《黑爵士》(BlackAdder)等节目中长大的，你现在可以用你最喜欢的电视机背景来给你的电话会议带来怀旧之情。
 

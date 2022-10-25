@@ -1,6 +1,6 @@
 # 如何修复谷歌丑陋、充满标识的搜索结果
 
-> 原文:[https://life hacker . com/how-to-fix-Google-ugly-logo-filled-search-results-1841062453](https://lifehacker.com/how-to-fix-googles-ugly-logo-filled-search-results-1841062453)
+> 原文：<https://lifehacker.com/how-to-fix-googles-ugly-logo-filled-search-results-1841062453>
 
 前几天当我在谷歌上搜索的时候，我感觉有些不对劲。事实证明，谷歌对其搜索结果页面进行了一点重新设计，增加了 favicons，这是一个用于赞助结果的大“广告”图标，并调整了网站 URL 的位置。
 

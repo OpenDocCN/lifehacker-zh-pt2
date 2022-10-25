@@ -1,6 +1,6 @@
 # 一个能真正改善你生活的新年决心
 
-> 原文:[https://life hacker . com/a-new-years-resolution-that-conditional-improve-your-1831321233](https://lifehacker.com/a-new-years-resolution-that-will-actually-improve-your-1831321233)
+> 原文：<https://lifehacker.com/a-new-years-resolution-that-will-actually-improve-your-1831321233>
 
 每个人都想劫持你的一月。大多数人希望你在这个月不喝酒，前提是你在假期喝得太多了，需要戒酒。还有人认为 [是时候吃素了](https://veganuary.com/) 。我敢肯定，你认识的某个人正试图说服你在一月的每一天都去做热瑜伽，以排出“毒素”。我通常反对所有形式的新年决心；Lifehacker 致力于在一年中的每一天做出改变。但是我急切期待的一个决定是我的一月无开销的传统。听我说完。
 

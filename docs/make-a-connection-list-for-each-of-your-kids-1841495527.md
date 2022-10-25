@@ -1,6 +1,6 @@
 # 为你的每个孩子列一份“联系清单”
 
-> 原文:[https://life hacker . com/make-a-connection-list-for-each-your-kids-1841495527](https://lifehacker.com/make-a-connection-list-for-each-of-your-kids-1841495527)
+> 原文：<https://lifehacker.com/make-a-connection-list-for-each-of-your-kids-1841495527>
 
 父母一天要做的事情很多。有地方要去，有饭要准备，有工作要完成，有盘子要洗。在这一切当中，似乎不可能优先考虑与孩子的实际联系和联系时间。我们想和他们联系，我们当然想！但是我们还得做意大利面，在去练曲棍球之前把饭端上桌。
 

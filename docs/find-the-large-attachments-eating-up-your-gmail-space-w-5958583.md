@@ -1,6 +1,6 @@
 # 通过简单的搜索，找到占用您 Gmail 空间的大附件
 
-> 原文:[https://life hacker . com/find-the-large-attachments-eating-up-your-Gmail-space-w-5958583](https://lifehacker.com/find-the-large-attachments-eating-up-your-gmail-space-w-5958583)
+> 原文：<https://lifehacker.com/find-the-large-attachments-eating-up-your-gmail-space-w-5958583>
 
 你是否曾经不得不疯狂地删除手机相机胶卷中的照片，以便为新照片腾出空间？我们也是。如果你在 Gmail 中遇到存储限制，你将无法发送或接收新邮件——这是一个同样令人沮丧的问题。
 

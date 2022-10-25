@@ -1,6 +1,6 @@
 # 只有一种方法可以分离鸡蛋，这就是
 
-> 原文:[https://life hacker . com/the-only-one-way to-separate a egg-and this-it-1837029623](https://lifehacker.com/there-is-only-one-way-to-separate-an-egg-and-this-is-it-1837029623)
+> 原文：<https://lifehacker.com/there-is-only-one-way-to-separate-an-egg-and-this-is-it-1837029623>
 
 这在 Lifehacker 的办公室引发了一场激烈的辩论。
 

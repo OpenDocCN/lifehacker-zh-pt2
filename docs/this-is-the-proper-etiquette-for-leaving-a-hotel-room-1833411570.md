@@ -1,6 +1,6 @@
 # 这是离开旅馆房间的适当礼节
 
-> 原文:[https://life hacker . com/this-is-the-proper-礼仪离开酒店房间-1833411570](https://lifehacker.com/this-is-the-proper-etiquette-for-leaving-a-hotel-room-1833411570)
+> 原文：<https://lifehacker.com/this-is-the-proper-etiquette-for-leaving-a-hotel-room-1833411570>
 
 即使你不喜欢旅行，但为了工作不得不旅行，你可能至少会感谢这样一个事实，那就是你每天晚上都可以睡在干净、新铺的床上。虽然这看起来很神奇(噗！你开完会回来，你的房间干净了！)，整洁的背后是真实的人。以下是如何恰当地感谢、尊重和补偿那些让这一切成为可能的人。
 

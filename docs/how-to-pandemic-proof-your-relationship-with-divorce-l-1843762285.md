@@ -1,6 +1,6 @@
 # 如何证明你和离婚律师詹姆斯·j·塞克斯顿之间的疫情关系
 
-> 原文:[https://life hacker . com/how-to-疫情证明你的离婚关系-l-1843762285](https://lifehacker.com/how-to-pandemic-proof-your-relationship-with-divorce-l-1843762285)
+> 原文：<https://lifehacker.com/how-to-pandemic-proof-your-relationship-with-divorce-l-1843762285>
 
 与你的另一半 24/7 困在一起不是关系成功的秘诀。这就是为什么本周我们与离婚律师詹姆斯·j·塞克斯顿谈论如何拯救我们的婚姻，避免成为后大流行“离婚潮”中的一个统计数据。听詹姆斯讲述情侣们如何提醒自己他们第一次坠入爱河的时间，以及在不失去联系的情况下保持距离的最佳策略。
 

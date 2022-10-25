@@ -1,6 +1,6 @@
 # 调整你的煎饼组合，在家享用更好的早午餐
 
-> 原文:[https://life hacker . com/tweak-your-pancake-mix-for-a better-brunch-in-home-1843110853](https://lifehacker.com/tweak-your-pancake-mix-for-a-better-brunch-at-home-1843110853)
+> 原文：<https://lifehacker.com/tweak-your-pancake-mix-for-a-better-brunch-at-home-1843110853>
 
 我不是一个经常出去吃早午餐的人，但一旦我的东西被拿走，我就会渴望得到它。蹩脚的无底含羞草酒，价格过高的鸡蛋菜，还有排队(和其他人一起！)眼下，所有这些听起来都相当诱人，就像成堆的松饼一样。
 

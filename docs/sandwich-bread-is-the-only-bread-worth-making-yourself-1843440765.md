@@ -1,6 +1,6 @@
 # 三明治面包是唯一值得你自己做的面包
 
-> 原文:[https://life hacker . com/sandwich-bread-the-only-bread-value-make-yourself-1843440765](https://lifehacker.com/sandwich-bread-is-the-only-bread-worth-making-yourself-1843440765)
+> 原文：<https://lifehacker.com/sandwich-bread-is-the-only-bread-worth-making-yourself-1843440765>
 
 在我所在的地方，现在获得新鲜出炉的面包和长棍面包比找到面粉更容易，所以我买长棍面包和面包。我做的法棍面包和 boules 永远不会比我花三四块钱就能买到的好吃，我只是不太享受烘焙的过程。然而，三明治面包是个例外。
 

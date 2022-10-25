@@ -1,6 +1,6 @@
 # 将你的大型活动鲜花捐赠给养老院
 
-> 原文:[https://life hacker . com/duate-your-big-event-flowers to-a retirement-home-1829969153](https://lifehacker.com/donate-your-big-event-flowers-to-a-retirement-home-1829969153)
+> 原文：<https://lifehacker.com/donate-your-big-event-flowers-to-a-retirement-home-1829969153>
 
 聚会可能结束了，但每张桌子上的花看起来仍然新鲜。不要把它们扔进垃圾桶或和喝醉的家人一起送回家，而是把它们全部捐赠给一群需要振作精神的人。
 

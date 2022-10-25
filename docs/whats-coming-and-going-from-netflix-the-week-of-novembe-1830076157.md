@@ -1,6 +1,6 @@
 # 2018 年 11 月 12 日这一周，网飞有哪些活动
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of novembe-1830076157](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-novembe-1830076157)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-novembe-1830076157>
 
 本周有两部网飞原作让我兴奋不已，这是一个不错的改变。两个有前途的流媒体选项，这还没算上希瑞的重启(周五)！
 

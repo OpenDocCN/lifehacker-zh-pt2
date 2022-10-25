@@ -1,6 +1,6 @@
 # 金融成功入门指南
 
-> 原文:[https://life hacker . com/the-beginners-guide-to-financial-success-1843417840](https://lifehacker.com/the-beginners-guide-to-financial-success-1843417840)
+> 原文：<https://lifehacker.com/the-beginners-guide-to-financial-success-1843417840>
 
 理财最难的部分是开始。
 

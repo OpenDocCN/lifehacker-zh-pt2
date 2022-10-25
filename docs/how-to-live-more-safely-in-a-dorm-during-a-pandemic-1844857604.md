@@ -1,6 +1,6 @@
 # how to live more safely in a dorm during a pandemic 1844857604
 
-> 原文:[https://life hacker . com/how-to-live-more-safe-in-a-dorm-a-疫情-1844857604](https://lifehacker.com/how-to-live-more-safely-in-a-dorm-during-a-pandemic-1844857604)
+> 原文：<https://lifehacker.com/how-to-live-more-safely-in-a-dorm-during-a-pandemic-1844857604>
 
 在疫情期间，住在宿舍是不“安全”的。尽管你的大学生可能很小心，但他们无法控制住在大厅的蠢蛋约翰尼是否还会在周末的兄弟会派对上摆酒桶。所有这些年轻人一起生活在一个狭小的空间里，有这么多公共区域，没有什么是可以保证的，但是你可以提醒他们采取一些预防措施，这将使他们更加安全。
 

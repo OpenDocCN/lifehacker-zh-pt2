@@ -1,6 +1,6 @@
 # 空气质量如何影响你的运动能力
 
-> 原文:[https://life hacker . com/how-air-quality-affects-your-ability-of-exercise-1845130708](https://lifehacker.com/how-air-quality-affects-your-ability-to-exercise-1845130708)
+> 原文：<https://lifehacker.com/how-air-quality-affects-your-ability-to-exercise-1845130708>
 
 当空气质量很差的时候——例如，野火的烟雾——我们被建议不要在户外运动。我们来谈谈为什么，以及你能做些什么来代替。
 

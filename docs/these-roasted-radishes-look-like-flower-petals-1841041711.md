@@ -1,6 +1,6 @@
 # 这些烤萝卜看起来像花瓣
 
-> 原文:[https://life hacker . com/these-baked-萝卜-look-like-flower-花瓣-1841041711](https://lifehacker.com/these-roasted-radishes-look-like-flower-petals-1841041711)
+> 原文：<https://lifehacker.com/these-roasted-radishes-look-like-flower-petals-1841041711>
 
 每个人都曾在某个时候被诱惑去吃百花香(被禁止的薯片)。干花瓣和香料的混合物看起来总是很脆，如果有点灰尘的话。你不应该吃百花香，但你应该吃这些烤萝卜片，这肯定会挠痒痒。
 

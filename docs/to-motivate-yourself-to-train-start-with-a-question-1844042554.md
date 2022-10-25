@@ -1,6 +1,6 @@
 # 要激励自己训练，从一个问题开始
 
-> 原文:[https://life hacker . com/to-motivate-yourself-train-start-with a question-1844042554](https://lifehacker.com/to-motivate-yourself-to-train-start-with-a-question-1844042554)
+> 原文：<https://lifehacker.com/to-motivate-yourself-to-train-start-with-a-question-1844042554>
 
 如果没有一个驱动力，也许是强迫性的原因，我就无法坚持一项运动或活动。我经常将这些原因称为“目标”，但我不时会与一些人交谈，他们虽然也有同样的动机，但根本不认为他们的训练是以目标为导向的。我意识到了一些事情。我其实并不是被目标所驱使，而是被好奇心所驱使。
 

@@ -1,6 +1,6 @@
 # 只要在土豆泥中加入商店买的法式洋葱酱
 
-> 原文:[https://life hacker . com/just-add-store-buyed-French-onion-dip-to-mashed-potato-1839621708](https://lifehacker.com/just-add-store-bought-french-onion-dip-to-mashed-potato-1839621708)
+> 原文：<https://lifehacker.com/just-add-store-bought-french-onion-dip-to-mashed-potato-1839621708>
 
 每年，在开发新的令人兴奋的感恩节内容时，我都试图在“哇，这是独一无二的美味”和“她是一个必须被阻止的疯女人”之间游走这导致了赞扬(来自那些已经同意我胡说八道的人)，但也带来了许多节日的欢呼。
 

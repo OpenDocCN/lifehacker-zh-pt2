@@ -1,6 +1,6 @@
 # 你可以用这个应用程序“剪辑”盒子顶部
 
-> 原文:[https://life hacker . com/you-can-clip-box-tops-with this-app-1836997541](https://lifehacker.com/you-can-clip-box-tops-with-this-app-1836997541)
+> 原文：<https://lifehacker.com/you-can-clip-box-tops-with-this-app-1836997541>
 
 自 20 世纪 90 年代中期以来，父母们就开始从我们的麦片、幸运符和拉链盒子的顶部剪下小的矩形“盒子顶部”符号。我们把它们藏在我们的垃圾抽屉里，直到下午 1 点。我们觉得我们终于有足够的东西打包送到我们孩子的学校或 2。几年后，我们清理抽屉，扔掉一堆过期的硬纸板。
 

@@ -1,6 +1,6 @@
 # 坚果没有你想象的那么多卡路里
 
-> 原文:[https://life hacker . com/nuts-don ' t-don ' t-have-as-you-think-1841022319](https://lifehacker.com/nuts-dont-have-as-many-calories-as-you-think-1841022319)
+> 原文：<https://lifehacker.com/nuts-dont-have-as-many-calories-as-you-think-1841022319>
 
 整个坚果的卡路里比之前认为的要少。几年来，研究证实了这一事实，但现在食品标签开始改变。例如， [一种以前是 200 卡路里的酒吧，现在将被标注为含有 180 卡路里的](https://www.prnewswire.com/news-releases/kind-nut-bars-have-nearly-20-less-calories-according-to-new-usda-research-300985956.html?tc=eml_cleartime) 。
 

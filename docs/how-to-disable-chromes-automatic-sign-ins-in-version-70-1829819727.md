@@ -1,6 +1,6 @@
 # 如何在 70 版中禁用 Chrome 的自动登录
 
-> 原文:[https://life hacker . com/how-to-disable-chromes-automatic-sign-in-version-70-1829819727](https://lifehacker.com/how-to-disable-chromes-automatic-sign-ins-in-version-70-1829819727)
+> 原文：<https://lifehacker.com/how-to-disable-chromes-automatic-sign-ins-in-version-70-1829819727>
 
 谷歌肯定得到了这样的消息:用户对之前版本的 Chrome 浏览器中实现的自动登录/退出链接不满意。该公司推出了浏览器的更新版本(版本 70 ),这使得禁用这一恼人的功能变得更加容易——以及其他一些变化。
 

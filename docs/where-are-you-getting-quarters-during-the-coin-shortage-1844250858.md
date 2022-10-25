@@ -1,6 +1,6 @@
 # 在“硬币短缺”期间，你从哪里得到硬币？
 
-> 原文:[https://life hacker . com/where-you-getting-where-during-the-coin-short-1844250858](https://lifehacker.com/where-are-you-getting-quarters-during-the-coin-shortage-1844250858)
+> 原文：<https://lifehacker.com/where-are-you-getting-quarters-during-the-coin-shortage-1844250858>
 
 你知道美国硬币短缺吗？你可能没有注意到，除非你需要他们洗衣服。
 

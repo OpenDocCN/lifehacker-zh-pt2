@@ -1,6 +1,6 @@
 # 如何在线核实冠状病毒(错误)信息
 
-> 原文:[https://life hacker . com/how-to-fact-check-coronavirus-mis-information-online-1842089498](https://lifehacker.com/how-to-fact-check-coronavirus-mis-information-online-1842089498)
+> 原文：<https://lifehacker.com/how-to-fact-check-coronavirus-mis-information-online-1842089498>
 
 不要相信你在社交媒体上看到的一切。这是一个很好的通用规则，但当新闻(和你的新闻源)充斥着关于冠状病毒等容易被误解的话题的误导性或直接的错误信息时，这一点尤为重要。
 

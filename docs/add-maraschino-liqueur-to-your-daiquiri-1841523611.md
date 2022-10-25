@@ -1,6 +1,6 @@
 # 在你的代基里酒中加入马拉希诺利口酒
 
-> 原文:[https://life hacker . com/add-maraschino-liquic-to-your-daiquiri-1841523611](https://lifehacker.com/add-maraschino-liqueur-to-your-daiquiri-1841523611)
+> 原文：<https://lifehacker.com/add-maraschino-liqueur-to-your-daiquiri-1841523611>
 
 不管怎样，现在还是冬天，老实说？我不激动！当然，有迹象表明春天来了——就像藏红花破土而出一样——但是藏红花只能做这么多。为了补充欢快的花朵，我一直在喝热带的东西。
 

@@ -1,6 +1,6 @@
 # 你的瑜伽月过得怎么样？
 
-> 原文:[https://life hacker . com/how-are-you-month-yoga-1831360071](https://lifehacker.com/how-was-your-month-of-yoga-1831360071)
+> 原文：<https://lifehacker.com/how-was-your-month-of-yoga-1831360071>
 
 我们的[2018](https://vitals.lifehacker.com/decembers-fitness-challenge-is-yoga-1830827794#_ga=2.28815668.901225561.1546003294-1456718367.1520458611)最后一次健身挑战接近尾声。在假期混乱期间，你有没有设法坚持练习瑜伽？
 

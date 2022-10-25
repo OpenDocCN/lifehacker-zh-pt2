@@ -1,6 +1,6 @@
 # 从你没有购买的方面来考虑你的财务状况
 
-> 原文:[https://life hacker . com/think-on-your-what-you-not-bu-1837473262](https://lifehacker.com/think-about-your-finances-in-terms-of-what-youre-not-bu-1837473262)
+> 原文：<https://lifehacker.com/think-about-your-finances-in-terms-of-what-youre-not-bu-1837473262>
 
 我们很多人都从金钱能给我们带来什么的角度来考虑我们的金钱。当我们赚到 X 时(或者当我们存了 X 时)，我们可以购买 y。但是如果你在为长期财富而努力——无论是为了财务安全、财务独立还是退休——想想你没有购买的东西也同样重要。
 

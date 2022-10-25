@@ -1,6 +1,6 @@
 # 观看南希·佩洛西宣布对总统的正式弹劾调查
 
-> 原文:[https://life hacker . com/watch-Nancy-Pelosi-announce-a-formal-弹劾-问询-1838415354](https://lifehacker.com/watch-nancy-pelosi-announce-a-formal-impeachment-inquir-1838415354)
+> 原文：<https://lifehacker.com/watch-nancy-pelosi-announce-a-formal-impeachment-inquir-1838415354>
 
 在犹豫了几个月之后，今天下午，众议院议长南希·佩洛西宣布计划对唐纳德·特朗普总统发起正式弹劾调查。
 

@@ -1,6 +1,6 @@
 # 为什么我的下载速度在不同的电脑之间差别如此之大？
 
-> 原文:[https://life hacker . com/why-do-my-download-speeds-different-so-draftly-between-1844324163](https://lifehacker.com/why-do-my-download-speeds-differ-so-drastically-between-1844324163)
+> 原文：<https://lifehacker.com/why-do-my-download-speeds-differ-so-drastically-between-1844324163>
 
 在一个完美的世界里，你会为超高速互联网服务付费，将你的电缆调制解调器连接到一个相当高速的路由器，并为你家中的每一个设备实现令人难以置信的下载速度。不幸的是，我们生活在现实世界中，而现实世界往往描绘出一幅截然不同的画面。
 

@@ -1,6 +1,6 @@
 # 关于迪士尼+的一切
 
-> 原文:[https://gizmodo . com/everything-to-know-on-Disney-1839773095](https://gizmodo.com/everything-to-know-about-disney-1839773095)
+> 原文：<https://gizmodo.com/everything-to-know-about-disney-1839773095>
 
 在第一次宣布后的一年多，Disney+终于来了，充满了卡通、超级英雄和太空巫师，让你呆呆地看着。上周，Gizmodo 有机会检查新的流媒体服务应用程序的最终版本，并与迪士尼+发布背后的团队进行了交谈。
 

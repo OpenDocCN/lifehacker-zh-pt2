@@ -1,6 +1,6 @@
 # 保护你的嘴，不要吃有莫塔德拉切片的热披萨
 
-> 原文:[https://life hacker . com/protect-your-mouth from-hot-pizza with-slices of mortad-1841519562](https://lifehacker.com/protect-your-mouth-from-hot-pizza-with-slices-of-mortad-1841519562)
+> 原文：<https://lifehacker.com/protect-your-mouth-from-hot-pizza-with-slices-of-mortad-1841519562>
 
 作为一个渴望吃东西的人，我经常烫到自己的嘴。披萨尤其危险，因为奶酪永远不会像你希望的那样迅速冷却。(此外，披萨的味道最好是滚烫的！事实不在乎你的感受！)如果你和我一样容易受伤，我有一个解决办法——在你的热披萨上强奸冷的莫塔黛拉。
 

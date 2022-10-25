@@ -1,6 +1,6 @@
 # 早餐前不要查看手机
 
-> 原文:[https://life hacker . com/don ' t-check-your phone-unt-after-breakfast-1832045810](https://lifehacker.com/dont-check-your-phone-until-after-breakfast-1832045810)
+> 原文：<https://lifehacker.com/dont-check-your-phone-until-after-breakfast-1832045810>
 
 我们早上做的事情可以建立我们一天的情绪，所以很多 [我们的起床建议](https://lifehacker.com/c/wake-up-week) 归结为做你实际需要和想做的事情。这意味着是时候面对那个不停打断你告诉你该想什么的小盒子了。你的电话。
 

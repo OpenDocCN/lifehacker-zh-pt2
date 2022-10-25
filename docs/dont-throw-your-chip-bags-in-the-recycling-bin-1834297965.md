@@ -1,6 +1,6 @@
 # 不要把你的薯片袋扔进回收箱
 
-> 原文:[https://life hacker . com/don ' t-throw-your-chip-bags-in-recycling-bin-1834297965](https://lifehacker.com/dont-throw-your-chip-bags-in-the-recycling-bin-1834297965)
+> 原文：<https://lifehacker.com/dont-throw-your-chip-bags-in-the-recycling-bin-1834297965>
 
 还记得那些震耳欲聋的太阳芯片包吗？它们是第一个 100%可堆肥的薯片袋，这是一项大规模的环保努力，但在有人抱怨这种袋子太大声会导致听力损失后，很快就被抛弃了。
 

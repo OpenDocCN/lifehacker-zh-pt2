@@ -1,6 +1,6 @@
 # 永远买柠檬
 
-> 原文:[https://lifehacker.com/always-buy-lemons-1841789414](https://lifehacker.com/always-buy-lemons-1841789414)
+> 原文：<https://lifehacker.com/always-buy-lemons-1841789414>
 
 我经常去杂货店购物。一周至少四次，我会在 Slack 里放一个“去商店 bbiab”(因为我不想让我的同事在找不到我的时候惊慌失措，这显然是 Lifehacker 的李别针)。我知道我在说什么，当谈到买杂货的时候，我就是在说什么，你应该听我说。
 

@@ -1,6 +1,6 @@
 # 今天就买一张 10%折扣的 Target 礼品卡，然后创造你自己的“销售”
 
-> 原文:[https://life hacker . com/get-a-target-gift-card-for-10-off-today-and-create-you-1840298991](https://lifehacker.com/get-a-target-gift-card-for-10-off-today-and-create-you-1840298991)
+> 原文：<https://lifehacker.com/get-a-target-gift-card-for-10-off-today-and-create-you-1840298991>
 
 Target 今天提供 10%的礼品卡，这是一个绝佳的机会再次提出我最棒的节日礼物购物技巧:为自己购买打折礼品卡。
 

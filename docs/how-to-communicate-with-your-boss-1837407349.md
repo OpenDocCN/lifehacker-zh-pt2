@@ -1,6 +1,6 @@
 # 如何与上司沟通
 
-> 原文:[https://life hacker . com/how-to-communicate-your-boss-1837407349](https://lifehacker.com/how-to-communicate-with-your-boss-1837407349)
+> 原文：<https://lifehacker.com/how-to-communicate-with-your-boss-1837407349>
 
 与你的经理建立良好的工作关系就是沟通——但是你如何确保在正确的时间传递正确的信息呢？在最好的情况下，管理者会清楚他们想知道什么，以及他们想什么时候知道。然而，实际上，我们中的许多人最终会率先与我们的经理分享信息，这种做法通常被称为“向上管理”
 

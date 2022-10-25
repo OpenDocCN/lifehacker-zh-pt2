@@ -1,6 +1,6 @@
 # 以下是向信用机构报告已偿还债务所需的时间
 
-> 原文:[https://life hacker . com/heres-how-long-take-for-payed debt-to-1836018898](https://lifehacker.com/heres-how-long-it-takes-for-paid-debt-to-be-reported-to-1836018898)
+> 原文：<https://lifehacker.com/heres-how-long-it-takes-for-paid-debt-to-be-reported-to-1836018898>
 
 你刚刚支付了一大笔采购的最后一笔款项，而你似乎永远都在支付这笔款项。应该庆祝一下，对吧？来吧，当你最后一次按下“现在支付”按钮时，在你的座位上跳舞。开瓶香槟酒。打电话给你妈妈。但是不要指望你的信用报告能马上反映出还清的贷款。
 

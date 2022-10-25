@@ -1,6 +1,6 @@
 # 由于飓风多利安，这些航空公司提供变更豁免
 
-> 原文:[https://life hacker . com/these-airlines-is-offer-due-to-hurricane-do-1837797143](https://lifehacker.com/these-airlines-are-offering-waivers-due-to-hurricane-do-1837797143)
+> 原文：<https://lifehacker.com/these-airlines-are-offering-waivers-due-to-hurricane-do-1837797143>
 
 如果你的劳动节计划包括去美国东南部或加勒比海旅行，那么飓风多里安可能已经引起了你的注意。
 

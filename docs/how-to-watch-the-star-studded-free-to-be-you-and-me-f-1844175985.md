@@ -1,6 +1,6 @@
 # 如何观看众星云集的《自由自在》...你和我的筹款会
 
-> 原文:[https://life hacker . com/how-to-watch-the-star-studled-free-to-be you-me-f-1844175985](https://lifehacker.com/how-to-watch-the-star-studded-free-to-be-you-and-me-f-1844175985)
+> 原文：<https://lifehacker.com/how-to-watch-the-star-studded-free-to-be-you-and-me-f-1844175985>
 
 如果你生长在 70 年代或 80 年代，你的唱片(或磁带)收藏可能会有一个亮粉色的专辑封面，上面有彩色的泡泡字母，提醒你我们都是“自由的”...你和我。” 这张 1972 年的经典专辑收录了马洛·托马斯和他的“朋友”——黛安娜·罗丝、梅尔·布鲁克斯、卡罗尔·钱宁和艾伦·艾尔达——谈论和歌唱宽容、性别和平等等话题。(虽然不是每首歌都经得起推敲，但那是另外一个故事了。)
 

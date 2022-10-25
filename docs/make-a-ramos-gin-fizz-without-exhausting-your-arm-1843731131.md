@@ -1,6 +1,6 @@
 # 制作一杯拉莫斯杜松子汽酒，而不会耗尽你的手臂
 
-> 原文:[https://life hacker . com/make-a-Ramos-gin-fizz-without-exhausting-your-arm-1843731131](https://lifehacker.com/make-a-ramos-gin-fizz-without-exhausting-your-arm-1843731131)
+> 原文：<https://lifehacker.com/make-a-ramos-gin-fizz-without-exhausting-your-arm-1843731131>
 
 似乎有两种相反的隔离状态:极度懒惰和令人讨厌的多产。在大多数情况下，我属于第一类；我喜欢买面包而不是烤面包，喜欢喝酒而不是调马提尼酒。但是最近我决定我想要一个项目，一个挑战，一些让我全身心地投入的事情。这就是为什么我在一个星期三的下午喝了三杯拉莫斯杜松子酒。
 

@@ -1,6 +1,6 @@
 # 迪士尼+推出的最佳电影
 
-> 原文:[https://life hacker . com/the-best-movies-coming-to-Disney-1839058870](https://lifehacker.com/the-best-movies-coming-to-disney-1839058870)
+> 原文：<https://lifehacker.com/the-best-movies-coming-to-disney-1839058870>
 
 11 月 12 日，迪士尼将正式推出其流媒体服务 Disney+，作为网飞和 Hulu 等其他主要平台的竞争对手。
 

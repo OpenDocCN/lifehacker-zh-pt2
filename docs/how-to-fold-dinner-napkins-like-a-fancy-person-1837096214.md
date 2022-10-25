@@ -1,6 +1,6 @@
 # 如何像花式人一样叠餐巾纸
 
-> 原文:[https://life hacker . com/how-to-fold-餐巾纸-like-a-fancy-person-1837096214](https://lifehacker.com/how-to-fold-dinner-napkins-like-a-fancy-person-1837096214)
+> 原文：<https://lifehacker.com/how-to-fold-dinner-napkins-like-a-fancy-person-1837096214>
 
 我个人相信每个人都应该知道三种折纸术:一种 [纸鹤](https://www.origami-fun.com/origami-crane.html) ，一种 [美钞环](http://make-origami.com/money-ring/) ，以及至少一种折叠餐巾纸的奇特方式。教你如何叠餐巾的最好网站是 [动画餐巾](https://www.animatednapkins.com/index.php) 。
 

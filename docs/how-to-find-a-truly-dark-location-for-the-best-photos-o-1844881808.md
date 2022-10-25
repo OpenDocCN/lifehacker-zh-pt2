@@ -1,6 +1,6 @@
 # 如何找到一个真正黑暗的位置拍摄夜空的最佳照片
 
-> 原文:[https://life hacker . com/how-to-find-a-true-dark-location-for-best-photos-o-1844881808](https://lifehacker.com/how-to-find-a-truly-dark-location-for-the-best-photos-o-1844881808)
+> 原文：<https://lifehacker.com/how-to-find-a-truly-dark-location-for-the-best-photos-o-1844881808>
 
 在过去的几个月里，我们晚上花了相当多的时间在户外，欣赏夜空。今年夏天，我们经历了一些令人难忘的与太空相关的时刻——包括每 6000 年一次的彗星 和一系列的 [流星雨](https://lifehacker.com/how-to-watch-the-meteor-shower-happening-now-through-au-1844505160)——在一个难以把握时间的时期，这是一件可以自由做和期待的事情。
 

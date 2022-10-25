@@ -1,6 +1,6 @@
 # 我们对 Xbox 系列和 S 系列的所有了解
 
-> 原文:[https://kotaku . com/everything-we-know-on-the-Xbox-series-x-1844052038](https://kotaku.com/everything-we-know-about-the-xbox-series-x-1844052038)
+> 原文：<https://kotaku.com/everything-we-know-about-the-xbox-series-x-1844052038>
 
 整个夏天，关于微软新一代游戏机的信息发布速度比自助冷冻酸奶还慢。我们知道名字(Xbox 系列)，大概的发布日期(“假日 2020”)，和一些规格。然后劳动节周末到了，闸门打开了。现在，我们有了一个发布日期，一个价格标签，一些关于长期未确认的无盘模型(Xbox 系列 S)的详细信息，以及一个延迟的 *Halo Infinite* 。距离发布只有几个星期了，这里是我们所知道的关于微软下一代产品的一切。
 

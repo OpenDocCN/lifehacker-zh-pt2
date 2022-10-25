@@ -1,6 +1,6 @@
 # 救命啊！我的电脑无法识别我的 USB 驱动器
 
-> 原文:[https://life hacker . com/help-my-computer-wont-recognize-my-USB-drive-1843023584](https://lifehacker.com/help-my-computer-wont-recognize-my-usb-drive-1843023584)
+> 原文：<https://lifehacker.com/help-my-computer-wont-recognize-my-usb-drive-1843023584>
 
 你永远不应该把所有的数字鸡蛋放在一个篮子里，这是 Lifehacker 的读者 Rafik 可能要经历的惨痛教训。他对 Lifehacker 本周的 [技术故障排除专栏](https://lifehacker.com/c/tech-911) 有一个很大的困惑，它涉及到每个人在某个时候都必须处理的经典“我无法访问我的数据”困境。
 

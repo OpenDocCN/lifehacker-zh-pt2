@@ -1,6 +1,6 @@
 # 带着你的孩子去养老院送情人节礼物
 
-> 原文:[https://life hacker . com/take-your-kids-to-deliver-valentines-a-养老院-1841690838](https://lifehacker.com/take-your-kids-to-deliver-valentines-to-a-nursing-home-1841690838)
+> 原文：<https://lifehacker.com/take-your-kids-to-deliver-valentines-to-a-nursing-home-1841690838>
 
 情人节是一个令人困惑的节日。这是一个现代的“标志性节日”，可能起源于一个古老血腥的 [异教祭祀山羊和狗的节日](https://lifehacker.com/the-real-history-of-valentines-day-1822975633) 。但是我们需要和我们的孩子讨论这些吗？我投反对票。在适当的时候，这是他们可以自己解决的事情。现在，我们可以把这一天作为向我们所爱的人展示爱和善意的一天——T5 和 T6 是那些需要的人。
 

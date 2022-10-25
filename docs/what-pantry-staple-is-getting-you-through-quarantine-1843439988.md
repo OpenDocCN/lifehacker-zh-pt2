@@ -1,6 +1,6 @@
 # 什么食物能让你通过检疫？
 
-> 原文:[https://life hacker . com/what-pantry-staple-is-get-you-through-quarantine-1843439988](https://lifehacker.com/what-pantry-staple-is-getting-you-through-quarantine-1843439988)
+> 原文：<https://lifehacker.com/what-pantry-staple-is-getting-you-through-quarantine-1843439988>
 
 隔离生活中最大的挑战之一是弄清楚如何让你的食物感觉*新鲜*和*有趣*，同时还能减少你去杂货店的次数。
 

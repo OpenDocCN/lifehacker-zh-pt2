@@ -1,6 +1,6 @@
 # 儿科急诊室真的更适合孩子
 
-> 原文:[https://life hacker . com/pediatric-emergency-rooms-真的对孩子更好-1837909704](https://lifehacker.com/pediatric-emergency-rooms-really-are-better-for-kids-1837909704)
+> 原文：<https://lifehacker.com/pediatric-emergency-rooms-really-are-better-for-kids-1837909704>
 
 我们住的地方离医院只有几个街区，所以当我们的儿科医生告诉我——坐在办公室里和一个新生儿在一起——如果我们的小宝宝不得不去急诊室，在大多数情况下，我们应该直接跳过它，开车去儿童医院。对于严重的止血类型的紧急情况，他们告诉我们越近越好，但任何时候你都可以选择最好找一个知道如何处理孩子的急诊室。
 

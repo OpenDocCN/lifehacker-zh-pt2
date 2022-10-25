@@ -1,6 +1,6 @@
 # 使用 iPhone 的 Measure 应用程序检查你的停车工作
 
-> 原文:[https://life hacker . com/check-your-parking-job-using-the-iphone-measure-app-1835092781](https://lifehacker.com/check-your-parking-job-using-the-iphones-measure-app-1835092781)
+> 原文：<https://lifehacker.com/check-your-parking-job-using-the-iphones-measure-app-1835092781>
 
 如果你把车停在街上而不是车库里，确保你没有把车停在离消防栓太近的地方可能是你最头疼的事情之一。
 

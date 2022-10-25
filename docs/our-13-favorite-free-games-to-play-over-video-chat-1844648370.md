@@ -1,6 +1,6 @@
 # 我们最喜欢的 13 款(大部分免费)视频聊天游戏
 
-> 原文:[https://life hacker . com/our-13-favorite-free-games-to-play over-video-chat-1844648370](https://lifehacker.com/our-13-favorite-free-games-to-play-over-video-chat-1844648370)
+> 原文：<https://lifehacker.com/our-13-favorite-free-games-to-play-over-video-chat-1844648370>
 
 我今天早上醒来，突然意识到我和我的朋友们还有一个游戏之夜。这就是我们的隔离生活:无尽的游戏之夜，在此期间，我们总是试图找到一些在 Zoom /脸书/谷歌 Meet /你能想到的东西上运行良好的新东西。
 

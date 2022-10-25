@@ -1,6 +1,6 @@
 # 用这个 Markdown 笔记应用程序整理你的想法
 
-> 原文:[https://life hacker . com/organize-your-this-markdown-note-taking-a-1831803591](https://lifehacker.com/organize-your-thoughts-with-this-markdown-note-taking-a-1831803591)
+> 原文：<https://lifehacker.com/organize-your-thoughts-with-this-markdown-note-taking-a-1831803591>
 
 我承认，我并不像应该的那样精通 Markdown，但这个令人敬畏的免费笔记应用程序让我想了解它的复杂性。这款应用同时适用于 Windows 和 Mac，是一款成熟的笔记记录*体验*，比你在系统中找到的任何默认应用都要好得多。你只需要学会降价就能充分利用它，但这听起来比实际情况要糟糕得多。
 

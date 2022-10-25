@@ -1,6 +1,6 @@
 # 用这个工具找出你的社区中有多少邦联纪念碑
 
-> 原文:[https://life hacker . com/find-out-多少-邦联纪念碑在你的 com-1843985692](https://lifehacker.com/find-out-how-many-confederate-monuments-are-in-your-com-1843985692)
+> 原文：<https://lifehacker.com/find-out-how-many-confederate-monuments-are-in-your-com-1843985692>
 
 在最近几周的骚乱和愤怒中，乔治·弗洛伊德被谋杀后，警察与示威要求改革的抗议者发生冲突，仍然矗立在整个南方的邦联纪念碑成为了目标。新闻报道比比皆是，邦联雕像被抗议者损坏或推倒，被当地政府主动移除。这包括肯塔基州路易斯维尔的 [古迹](https://www.cnn.com/2020/06/09/us/confederate-statues-removed-george-floyd-trnd/index.html)；佛罗里达州杰克逊维尔；阿拉巴马州蒙哥马利；田纳西州的纳什维尔和弗吉尼亚州的亚历山大等地。但是除了这些非常明显的纪念碑之外，邦联的遗产还存在于美国各地无数学校、街道和地方的名称中。在南方贫困法律中心(SPLC)编制的地图中，你可以在你自己的社区 中查找邦联 [纪念碑的位置。截至目前，SPLC 列出了美国境内 1747 处纪念碑、地名和其他邦联标志。](https://www.splcenter.org/data-projects/whose-heritage?gclid=Cj0KCQjwiYL3BRDVARIsAF9E4GcFQwQ468LyIk4IjaQxKP5MYDUHoc9B7S7sQQMT8R1DvPvNh4mbGqoaAkywEALw_wcB)
 

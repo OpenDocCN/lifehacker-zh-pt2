@@ -1,6 +1,6 @@
 # 如何在新工作中引起别人的注意
 
-> 原文:[https://life hacker . com/how-to-get-note-in-you-new-job-1841818535](https://lifehacker.com/how-to-get-noticed-at-your-new-job-1841818535)
+> 原文：<https://lifehacker.com/how-to-get-noticed-at-your-new-job-1841818535>
 
 你是否曾认为自己在工作中肯定会获得晋升，但却眼睁睁地看着你的老板宣布这个职位将由别人担任？这是你能经历的最糟糕的感觉之一。
 

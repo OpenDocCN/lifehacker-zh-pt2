@@ -1,6 +1,6 @@
 # 大量的普通食物是一个好礼物
 
-> 原文:[https://life hacker . com/a-large-amount-a-a-family-food-is-a-good-gift-1844119302](https://lifehacker.com/a-large-amount-of-a-mundane-food-is-a-good-gift-1844119302)
+> 原文：<https://lifehacker.com/a-large-amount-of-a-mundane-food-is-a-good-gift-1844119302>
 
 我男朋友是个番茄酱男。就是那种在很多东西上抹番茄酱的人，有些东西感觉有点不合适。(例如，当他把它放在土豆泥上时，我真的很烦。)但是爱意味着接受，甚至是赞美你伴侣的特质，这就是为什么我的厨房里放着一瓶 10 磅重的泵式番茄酱。
 

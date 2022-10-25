@@ -1,6 +1,6 @@
 # 关于取消飞往多米尼加共和国的航班，你应该知道些什么
 
-> 原文:[https://life hacker . com/what-you-should-know-on-the-do-1835851835](https://lifehacker.com/what-you-should-know-about-cancelling-flights-to-the-do-1835851835)
+> 原文：<https://lifehacker.com/what-you-should-know-about-cancelling-flights-to-the-do-1835851835>
 
 纽约餐馆老板维托里奥·卡鲁索 于本周去世，这是今年第八位确认死亡的美国游客。
 

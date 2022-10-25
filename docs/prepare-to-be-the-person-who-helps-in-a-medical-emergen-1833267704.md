@@ -1,6 +1,6 @@
 # 准备成为在医疗紧急情况下提供帮助的人
 
-> 原文:[https://life hacker . com/prepare-to-be-the-person-help-in-a-a-medical-emergen-1833267704](https://lifehacker.com/prepare-to-be-the-person-who-helps-in-a-medical-emergen-1833267704)
+> 原文：<https://lifehacker.com/prepare-to-be-the-person-who-helps-in-a-medical-emergen-1833267704>
 
 最近，当我在当地杂货店排队结账时，一名员工跑步的不寻常景象吸引了我的目光。我几乎立刻意识到他正跑去拿固定在我车道前墙上的自动体外除颤器(AED)。我是一名注册护士，我知道对 AED 的需求意味着店里有人病得很重。果然，我看向我的右边，一个老人昏迷在地上。
 

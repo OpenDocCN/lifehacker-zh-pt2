@@ -1,6 +1,6 @@
 # 把你的感恩节剩菜堆在玉米片上
 
-> 原文:[https://life hacker . com/pile-your-感恩节剩菜玉米片-1840150689](https://lifehacker.com/pile-your-thanksgiving-leftovers-on-nachos-1840150689)
+> 原文：<https://lifehacker.com/pile-your-thanksgiving-leftovers-on-nachos-1840150689>
 
 今天是感恩节后的星期一，这意味着你可能已经厌倦了剩菜——但还没准备好回归正常饮食。朋友们，解决办法是 [玉米片](https://lifehacker.com/this-nacho-stacking-method-ensures-every-bite-is-just-a-1790487084) 。
 

@@ -1,6 +1,6 @@
 # 使用此应用程序通过流行音乐学习西班牙语
 
-> 原文:[https://life hacker . com/learn-Spanish-through-pop-music-using-this-app-1830970716](https://lifehacker.com/learn-spanish-through-pop-music-using-this-app-1830970716)
+> 原文：<https://lifehacker.com/learn-spanish-through-pop-music-using-this-app-1830970716>
 
 我上幼儿园的时候，我们班参加了一场引人入胜的演出《 [50 个俏皮的美国](https://www.youtube.com/watch?v=WhDrGnjacvA) 》，一首关于，你猜对了，50 个州的歌。这首歌的一部分(我指的是 75%)需要按照字母顺序唱出所有 50 个州的名字。现在我快 30 岁了，多年来我一直让酒吧的老主顾们高兴，因为我仍然能够毫无停顿地、完美地背诵全部 50 个州。
 

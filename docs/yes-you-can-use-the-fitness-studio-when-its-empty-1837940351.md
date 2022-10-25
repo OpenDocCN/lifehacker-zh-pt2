@@ -1,6 +1,6 @@
 # 是的，健身室空着的时候你可以用
 
-> 原文:[https://life hacker . com/yes-you-can-use-the-fitness-studio-when-the-empty-1837940351](https://lifehacker.com/yes-you-can-use-the-fitness-studio-when-its-empty-1837940351)
+> 原文：<https://lifehacker.com/yes-you-can-use-the-fitness-studio-when-its-empty-1837940351>
 
 有没有希望你的健身房有一个漂亮安静的空间，你可以在那里做一些伸展或体重练习，而不必把自己夹在机器和哑铃兄弟之间？这里有一个秘密:很可能是这样的。
 

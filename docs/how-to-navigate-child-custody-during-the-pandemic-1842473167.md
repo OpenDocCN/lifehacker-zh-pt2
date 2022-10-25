@@ -1,6 +1,6 @@
 # 如何在疫情期间掌控孩子的监护权
 
-> 原文:[https://life hacker . com/how-to-navigate-child-监护权-在疫情期间-1842473167](https://lifehacker.com/how-to-navigate-child-custody-during-the-pandemic-1842473167)
+> 原文：<https://lifehacker.com/how-to-navigate-child-custody-during-the-pandemic-1842473167>
 
 在最正常的情况下，与前伴侣共同抚养孩子可能是一种尝试；当你的孩子的转移可能意味着他们或你暴露于冠状病毒时，共同养育是一个全新的挑战。
 

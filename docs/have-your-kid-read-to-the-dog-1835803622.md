@@ -1,6 +1,6 @@
 # 让你的孩子给狗读故事
 
-> 原文:[https://life hacker . com/have-your-kid-read-to-the-dog-1835803622](https://lifehacker.com/have-your-kid-read-to-the-dog-1835803622)
+> 原文：<https://lifehacker.com/have-your-kid-read-to-the-dog-1835803622>
 
 他们好奇的眼神里有某种东西。他们有节奏的呼吸。他们温暖舒适的身体。不知何故，给狗读书时，似乎不可能感到焦虑。
 

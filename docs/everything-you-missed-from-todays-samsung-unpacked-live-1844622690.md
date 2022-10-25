@@ -1,6 +1,6 @@
 # 今天三星 Unpacked 直播中你错过的一切
 
-> 原文:[https://life hacker . com/everything-you-missed-from todays-Samsung-unpacked-live-1844622690](https://lifehacker.com/everything-you-missed-from-todays-samsung-unpacked-live-1844622690)
+> 原文：<https://lifehacker.com/everything-you-missed-from-todays-samsung-unpacked-live-1844622690>
 
 三星的[Unpacked 2020 event](https://www.samsung.com/global/galaxy/events/unpacked/)换来了现场观众，换来了有点尴尬的全数字演示，但今年的直播流挤满了大量新设备和功能公告。这里是该公司向那些需要回顾的人展示的一切。
 

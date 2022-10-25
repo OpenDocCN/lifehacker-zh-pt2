@@ -1,6 +1,6 @@
 # 让你的酒由当地的酿酒厂运送
 
-> 原文:[https://life hacker . com/get-your-booze-delivered-by-a-local-brewery-1842925415](https://lifehacker.com/get-your-booze-delivered-by-a-local-brewery-1842925415)
+> 原文：<https://lifehacker.com/get-your-booze-delivered-by-a-local-brewery-1842925415>
 
 取决于你住在哪里，现在你可能比平时更难得到一些酒。没错，【T12 各州，如纽约州、新泽西州和马里兰州有 [被视为酒类商店的“基本”业务](https://thehill.com/business-a-lobbying/business-a-lobbying/490514-coronavirus-brings-quick-changes-to-state-alcohol) ，其他州——包括加利福尼亚州、内布拉斯加州、佛蒙特州、肯塔基州、科罗拉多州和哥伦比亚特区——目前已经放宽了法律，并且允许 [餐馆提供酒类](https://thehill.com/business-a-lobbying/business-a-lobbying/490514-coronavirus-brings-quick-changes-to-state-alcohol) 。但是这忽略了这个国家的很多地方——而且不是每个杂货店都提供酒水外卖。如果说有什么时候我们需要喝酒，那就是在全球疫情期间，对吗？
 

@@ -1,6 +1,6 @@
 # 在航班起飞前更新航空公司的应用程序
 
-> 原文:[https://life hacker . com/update-your-airlines-app-before-a-flight-1841574478](https://lifehacker.com/update-your-airlines-app-before-a-flight-1841574478)
+> 原文：<https://lifehacker.com/update-your-airlines-app-before-a-flight-1841574478>
 
 当你匆匆忙忙，看到一队焦躁不安的乘客站在值机柜台前，下载你所在航空公司的应用程序是关键。
 

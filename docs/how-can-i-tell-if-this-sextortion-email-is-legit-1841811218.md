@@ -1,6 +1,6 @@
 # 我怎样才能知道这封“色情”邮件是否合法？
 
-> 原文:[https://life hacker . com/how-can-I-tell-if-this-sextortion-email-is-legit-1841811218](https://lifehacker.com/how-can-i-tell-if-this-sextortion-email-is-legit-1841811218)
+> 原文：<https://lifehacker.com/how-can-i-tell-if-this-sextortion-email-is-legit-1841811218>
 
 垃圾邮件是令人讨厌的，但是如果你使用一个还算不错的电子邮件提供商，你就不应该在你的收件箱里看到太多垃圾邮件。至少，我发现很少有东西能逃过 Gmail 强大的垃圾邮件拦截器，让我考虑打开它。
 

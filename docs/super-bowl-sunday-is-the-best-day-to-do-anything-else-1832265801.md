@@ -1,6 +1,6 @@
 # 超级碗周日是做其他事情的最好的一天
 
-> 原文:[https://life hacker . com/super-bowl-Sunday-is-the-best-day-to-doing-otherwise-1832265801](https://lifehacker.com/super-bowl-sunday-is-the-best-day-to-do-anything-else-1832265801)
+> 原文：<https://lifehacker.com/super-bowl-sunday-is-the-best-day-to-do-anything-else-1832265801>
 
 最大的大型比赛是这个星期天，人们被锁定在他们的吃翅膀，电视大喊大叫的计划。无论在哪里，庞大的群体将聚集在私人住宅和公共酒吧庆祝他们称之为足球的球类运动。这意味着世界的其他地方对我们来说是免费的！
 

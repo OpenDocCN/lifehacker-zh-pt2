@@ -1,6 +1,6 @@
 # 如何让你的宠物为大搬家做好准备
 
-> 原文:[https://life hacker . com/how-to-prepare-your pets-a-big-move-1769552628](https://lifehacker.com/how-to-prepare-your-pets-for-a-big-move-1769552628)
+> 原文：<https://lifehacker.com/how-to-prepare-your-pets-for-a-big-move-1769552628>
 
 我们的宠物想要一张舒适的床、美味的食物和稳定的作息。但不，它们是我们人生重大决定的突发奇想，有时——尤其是最近，在疫情期间——这意味着搬家。无论你是带着它们穿越城市、国家，甚至是世界，几个简单的步骤就能让它们和你自己的体验变得更轻松。
 

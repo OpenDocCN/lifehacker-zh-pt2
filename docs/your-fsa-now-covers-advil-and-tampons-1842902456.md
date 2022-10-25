@@ -1,6 +1,6 @@
 # 您的 FSA 现在涵盖 Advil 和卫生棉条
 
-> 原文:[https://life hacker . com/your-FSA-now-covers-advil-and-棉塞-1842902456](https://lifehacker.com/your-fsa-now-covers-advil-and-tampons-1842902456)
+> 原文：<https://lifehacker.com/your-fsa-now-covers-advil-and-tampons-1842902456>
 
 给你的钱包一个惊喜:医疗法案，主要被认为是冠状病毒救济立法的主要部分，也加入了一些改变，使支付广泛的医疗项目变得更容易。
 

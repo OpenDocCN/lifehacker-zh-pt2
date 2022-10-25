@@ -1,6 +1,6 @@
 # 当你似乎停滞不前时，如何衡量你在健身房的进步
 
-> 原文:[https://life hacker . com/how-to-measure-progress-in-the-gym-when-it-like-y-1834894495](https://lifehacker.com/how-to-measure-progress-in-the-gym-when-it-seems-like-y-1834894495)
+> 原文：<https://lifehacker.com/how-to-measure-progress-in-the-gym-when-it-seems-like-y-1834894495>
 
 你想快点。你想变得坚强。但是日复一日，你去健身房，感觉虚弱和缓慢，似乎没有什么变化。(我说你了吗？我也是指我。以下是一些坚持你的计划的策略，即使你没有看到你的表现或外表的即时变化，也要确保它是有效的。
 

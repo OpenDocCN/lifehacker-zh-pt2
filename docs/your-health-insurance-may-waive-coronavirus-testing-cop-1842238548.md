@@ -1,6 +1,6 @@
 # 您的健康保险可能会免除冠状病毒检测的共付额
 
-> 原文:[https://life hacker . com/your-health-insurance-may-await-coronavirus-testing-COP-1842238548](https://lifehacker.com/your-health-insurance-may-waive-coronavirus-testing-cop-1842238548)
+> 原文：<https://lifehacker.com/your-health-insurance-may-waive-coronavirus-testing-cop-1842238548>
 
 我们许多人都在问自己，我们能做些什么来防止冠状病毒的传播。我们中的一些人也在问自己，如果我们出现症状，我们是否能负担得起新冠肺炎病毒检测——以及我们需要支付多少治疗费用。
 

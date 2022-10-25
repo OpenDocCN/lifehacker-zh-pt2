@@ -1,6 +1,6 @@
 # 你应该在感恩节大餐的时候喝点 Cardamaro
 
-> 原文:[https://life hacker . com/you-should-drink-cardamaro-with-your ' s thanksgiving-餐-1839693898](https://lifehacker.com/you-should-drink-cardamaro-with-your-thanksgiving-meal-1839693898)
+> 原文：<https://lifehacker.com/you-should-drink-cardamaro-with-your-thanksgiving-meal-1839693898>
 
 这些年来，感恩节大餐的风味并没有太大变化，但这并没有阻止每年 11 月出现的无休止的葡萄酒搭配指南。我不知道为什么我们还在谈论这个问题，因为我去年已经解决了这个谜题——感恩节你需要的唯一的酒是 [香槟](https://lifehacker.com/champagne-is-the-only-wine-you-need-for-thanksgiving-1830590742) (也许给你叔叔一杯黑皮诺，他仍然认为所有的白葡萄酒都是甜的)。既然说定了，那就说说 amaro 吧。
 

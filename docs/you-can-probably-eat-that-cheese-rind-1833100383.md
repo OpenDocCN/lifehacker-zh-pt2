@@ -1,6 +1,6 @@
 # 你也许可以吃奶酪皮
 
-> 原文:[https://life hacker . com/you-can-probably-eat-the-cheese-rind-1833100383](https://lifehacker.com/you-can-probably-eat-that-cheese-rind-1833100383)
+> 原文：<https://lifehacker.com/you-can-probably-eat-that-cheese-rind-1833100383>
 
 我注意到不是每个人都在吃布里干酪皮 。这很傻，因为布里干酪皮很好，而且——如果你在公共奶酪盘上从楔子里刮出黏糊糊的中心——这非常粗鲁。但是，除了布里干酪，许多人都回避完全可食用的，有时甚至是美味的皮，而且根本没有理由。
 

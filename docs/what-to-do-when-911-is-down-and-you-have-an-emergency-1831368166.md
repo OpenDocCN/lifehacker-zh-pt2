@@ -1,6 +1,6 @@
 # 当 911 停机并且您遇到紧急情况时该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-when-911-down-and-you-have-a-emergency-1831368166](https://lifehacker.com/what-to-do-when-911-is-down-and-you-have-an-emergency-1831368166)
+> 原文：<https://lifehacker.com/what-to-do-when-911-is-down-and-you-have-an-emergency-1831368166>
 
 不经常发生，但是 911 服务可以瘫痪。目前，在 CenturyLink 数据中心发生大规模中断后，美国几个州的 911 服务都中断了。虽然一些最初停止服务的城市已经重新开始运行(T2 ),但其他城市仍处于瘫痪状态。
 

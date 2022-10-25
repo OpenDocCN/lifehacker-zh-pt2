@@ -1,6 +1,6 @@
 # 查看美国机场的所有航班延误和取消
 
-> 原文:[https://life hacker . com/see-all-the-flight-delay-and-cancelations-at-u-s-airp-1841516670](https://lifehacker.com/see-all-the-flight-delays-and-cancelations-at-u-s-airp-1841516670)
+> 原文：<https://lifehacker.com/see-all-the-flight-delays-and-cancelations-at-u-s-airp-1841516670>
 
 本周早些时候，一场冬季风暴影响了德克萨斯、俄克拉荷马和科罗拉多等州，这意味着航班大量延误和取消*—*—丹佛国际机场， [周一至少有 600 架航班延误](https://www.usatoday.com/story/travel/airline-news/2020/02/04/winter-weather-storm-kade-airline-travel-waivers-texas-colorado-oklahoma/4653333002/)40 架航班取消。与此同时，由于龙卷风的影响，亚特兰大哈兹菲尔德-杰克逊国际机场超过 1200 个航班被延误，夏洛特道格拉斯国际机场至少有 400 个航班被取消。
 

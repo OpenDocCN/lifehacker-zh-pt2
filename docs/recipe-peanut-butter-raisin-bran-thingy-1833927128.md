@@ -1,6 +1,6 @@
 # 注意:三种成分的“花生酱麸状物”极易吸入
 
-> 原文:[https://the take out . com/recipe-peanut-butter-raisin-bran-thingy-1833927128](https://thetakeout.com/recipe-peanut-butter-raisin-bran-thingy-1833927128)
+> 原文：<https://thetakeout.com/recipe-peanut-butter-raisin-bran-thingy-1833927128>
 
 当谈到自制食谱时，屈服于“就相信我们这一个”的心态是有帮助的。我们久经考验的混合物可能看起来像垃圾 ，缺乏复杂的创造性电镀或吸引人的颜色，但它们从来没有准备好上镜——它们注定要被吓坏。
 

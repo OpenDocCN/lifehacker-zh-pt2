@@ -1,6 +1,6 @@
 # 如何在 Zoom 上屏蔽 Rickrolls
 
-> 原文:[https://life hacker . com/how-to-block-Rick rolls-on-zoom-1844293975](https://lifehacker.com/how-to-block-rickrolls-on-zoom-1844293975)
+> 原文：<https://lifehacker.com/how-to-block-rickrolls-on-zoom-1844293975>
 
 如今，感觉 Zoom 永远不会放弃我们，远程工作永远不会让我们失望，我们永远不会再到处乱跑，因为 [我们又要被困在隔离区](https://vitals.lifehacker.com/your-medical-mask-exemption-card-is-a-lie-1844202524) 一年了。如果这就是你现在生活中所需要的里克·阿斯特利，你会想要确保你的 Zoom 会议不会受到这个神奇迷因的影响——以及其他任何可能想要加入并引发问题的人。
 

@@ -1,6 +1,6 @@
 # 如何安全地从杠铃上悬挂哑铃
 
-> 原文:[https://life hacker . com/how-to-safely-hang 哑铃-从杠铃-1844218557](https://lifehacker.com/how-to-safely-hang-dumbbells-from-a-barbell-1844218557)
+> 原文：<https://lifehacker.com/how-to-safely-hang-dumbbells-from-a-barbell-1844218557>
 
 如果你有一个杠铃，但没有足够的盘子，你可能已经花了这个检疫悬挂的东西非常粗略的方式。在社交媒体上，我看到人们把重物放在手提袋里，把水瓶挂在杠铃上，等等。这些 DIY 的解决方案很多都是 [伤病等待发生](https://vitals.lifehacker.com/how-to-prevent-injuries-when-youre-working-out-at-home-1843106512) ，但是最近我在 Reddit 上看到一个来自 u/nachosun 的巧妙解决方案 [。](https://www.reddit.com/r/powerlifting/comments/hibchv/figure_8_straps_coming_in_clutch/) 
 

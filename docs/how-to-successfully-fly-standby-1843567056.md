@@ -1,6 +1,6 @@
 # 如何成功飞待机
 
-> 原文:[https://life hacker . com/how-to-successful-fly-stand by-1843567056](https://lifehacker.com/how-to-successfully-fly-standby-1843567056)
+> 原文：<https://lifehacker.com/how-to-successfully-fly-standby-1843567056>
 
 回想一下你最后一次在机场等待登机的情形。(还记得机场吗？还记得飞行吗？)你可能已经注意到登机口柜台上方的电视屏幕上满是乘客名单，并听到一名空服员通过对讲机喊着同样的名字。这些是希望搭乘你的航班的候补乘客的名字。
 

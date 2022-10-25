@@ -1,6 +1,6 @@
 # 如果你有一个被取消的活动的票该怎么办
 
-> 原文:[https://life hacker . com/what-to-do if-you-hacked-a-canceled-event-1842313872](https://lifehacker.com/what-to-do-if-you-have-tickets-to-a-canceled-event-1842313872)
+> 原文：<https://lifehacker.com/what-to-do-if-you-have-tickets-to-a-canceled-event-1842313872>
 
 还记得你决定 2020 年将是有史以来最好的一年，并购买节日、音乐会和体育赛事的门票吗？是啊，你会很开心的。直到 [冠状病毒](https://lifehacker.com/tag/coronavirus) 的出现，取消了几乎每一个 100 人以上的社交聚会。
 

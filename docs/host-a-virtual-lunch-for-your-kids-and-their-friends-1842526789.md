@@ -1,6 +1,6 @@
 # 为你的孩子和他们的朋友举办一次虚拟午餐
 
-> 原文:[https://life hacker . com/host-a-virtual-lunch-for-your-kids and ' s-friends-1842526789](https://lifehacker.com/host-a-virtual-lunch-for-your-kids-and-their-friends-1842526789)
+> 原文：<https://lifehacker.com/host-a-virtual-lunch-for-your-kids-and-their-friends-1842526789>
 
 如果你问一个孩子，任何一个孩子，他们在学校里最喜欢的部分是什么，你可能会得到两个答案中的一个:课间休息或午餐。这意味着，虽然许多孩子现在可能并不渴望上一堂传统的数学或社会学课，但他们确实怀念一起在外面跑来跑去，在餐厅聊天的日子。
 

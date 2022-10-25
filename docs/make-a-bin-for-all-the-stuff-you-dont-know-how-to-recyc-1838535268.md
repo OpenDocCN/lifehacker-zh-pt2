@@ -1,6 +1,6 @@
 # 为所有你不知道如何回收的东西做一个垃圾桶
 
-> 原文:[https://life hacker . com/make-a-bin-for-all-the-stuff-you-know-how-to-recyc-1838535268](https://lifehacker.com/make-a-bin-for-all-the-stuff-you-dont-know-how-to-recyc-1838535268)
+> 原文：<https://lifehacker.com/make-a-bin-for-all-the-stuff-you-dont-know-how-to-recyc-1838535268>
 
 上周，我们 [讨论了](https://lifehacker.com/stop-pretending-your-trash-is-recyclable-1838178982) 为什么当你不确定某样东西是否可回收时，把它扔进你的回收箱可能是个坏主意。(有疑问的时候，扔出来！)
 

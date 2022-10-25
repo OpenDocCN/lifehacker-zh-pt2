@@ -1,6 +1,6 @@
 # 志愿在 NICU 拥抱婴儿
 
-> 原文:[https://life hacker . com/volunteer-to-cross-babies in-the-NICU-1833715097](https://lifehacker.com/volunteer-to-cuddle-babies-in-the-nicu-1833715097)
+> 原文：<https://lifehacker.com/volunteer-to-cuddle-babies-in-the-nicu-1833715097>
 
 当卡罗尔·斯克里萨克的女儿 在伊利诺伊州产下早产三胞胎时，她得到了一个月的时间，深入了解早产儿在 NICU 是如何被照顾的。除了她每天目睹的特殊照顾之外，还有一件事让她印象深刻:一些婴儿的父母无法像他们希望的那样花更多的时间来抱他们的婴儿。
 

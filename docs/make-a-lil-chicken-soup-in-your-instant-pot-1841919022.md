@@ -1,6 +1,6 @@
 # 用你的速溶锅做一碗鸡汤
 
-> 原文:[https://life hacker . com/make-a-lil-chicken-soup-in-your-instant-pot-1841919022](https://lifehacker.com/make-a-lil-chicken-soup-in-your-instant-pot-1841919022)
+> 原文：<https://lifehacker.com/make-a-lil-chicken-soup-in-your-instant-pot-1841919022>
 
 我听到的关于速溶锅的主要抱怨之一是它制造了太多的食物。如果你是核心家庭的一员，这从来都不是问题，但是对于我们这些一个人生活的家庭来说，过多的食物会造成焦虑和味觉疲劳。做汤的时候最感受到这一点。
 

@@ -1,6 +1,6 @@
 # 一种形式的网上购物对气候更有利(不是亚马逊)
 
-> 原文:[https://gizmodo . com/one-form-of-online-shopping-better-the-climate-1841930838](https://gizmodo.com/one-form-of-online-shopping-is-better-for-the-climate-1841930838)
+> 原文：<https://gizmodo.com/one-form-of-online-shopping-is-better-for-the-climate-1841930838>
 
 我经常用干红扁豆、黑胡椒粒和马槟榔。现在，我退出了。与其在寒冷中步行去商店，我一直在考虑从卡拉·拉利音乐的食谱中得到建议，在网上订购这些餐具室的主食。这对我来说可能更省时，但对地球来说更节能吗？根据新的研究，答案取决于我在哪里网购。
 

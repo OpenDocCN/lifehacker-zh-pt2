@@ -1,6 +1,6 @@
 # 请不要消毒你的皮肤
 
-> 原文:[https://life hacker . com/please-don-t-discipling-your-skin-1844039795](https://lifehacker.com/please-dont-disinfect-your-skin-1844039795)
+> 原文：<https://lifehacker.com/please-dont-disinfect-your-skin-1844039795>
 
 你不需要 [消毒你的杂货](https://vitals.lifehacker.com/you-dont-need-to-sanitize-your-groceries-1842528397) ，你绝对不应该 [用消毒剂](https://vitals.lifehacker.com/please-dont-try-to-disinfect-your-fruits-and-veggies-1843165213) 清洗你的产品，我真的希望你采纳我们的建议 [不要注射漂白剂](https://vitals.lifehacker.com/dont-inject-bleach-sigh-1843043386) 。现在是时候在我认为不必说的事情清单上增加一件事情了:请不要在你的皮肤或身体的任何其他部位使用清洁产品。
 

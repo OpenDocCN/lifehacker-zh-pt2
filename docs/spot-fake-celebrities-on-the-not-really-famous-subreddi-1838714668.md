@@ -1,6 +1,6 @@
 # 在“不太出名”的子页面上发现虚假的名人
 
-> 原文:[https://life hacker . com/spot-fake-samants-on-the-not-really-monetary-subreddi-1838714668](https://lifehacker.com/spot-fake-celebrities-on-the-not-really-famous-subreddi-1838714668)
+> 原文：<https://lifehacker.com/spot-fake-celebrities-on-the-not-really-famous-subreddi-1838714668>
 
 我和妻子在纽约街头玩一种游戏。我认出了一个名人，她告诉我那绝对不是他们。如果不是因为她，我可能会在[r/not really faminous](https://www.reddit.com/r/notreallyfamous/)上结束，这是一个错误的名人目击的子分类。
 

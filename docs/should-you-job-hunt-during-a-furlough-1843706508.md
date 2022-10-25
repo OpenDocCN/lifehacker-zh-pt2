@@ -1,6 +1,6 @@
 # 你应该在休假期间找工作吗？
 
-> 原文:[https://life hacker . com/should-you-job-hunt-in-a-furlough-1843706508](https://lifehacker.com/should-you-job-hunt-during-a-furlough-1843706508)
+> 原文：<https://lifehacker.com/should-you-job-hunt-during-a-furlough-1843706508>
 
 如果你在疫情冠状病毒期间休假，你可能会问自己是等待它结束更好，还是需要开始寻找另一份工作。
 

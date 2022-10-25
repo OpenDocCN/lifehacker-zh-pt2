@@ -1,6 +1,6 @@
 # 我如何在关机期间修复破裂的 iPhone 屏幕？
 
-> 原文:[https://life hacker . com/how-do-I-get-my-cracked-iphone-screen-fixed-in-the-1843320472](https://lifehacker.com/how-do-i-get-my-cracked-iphone-screen-fixed-during-the-1843320472)
+> 原文：<https://lifehacker.com/how-do-i-get-my-cracked-iphone-screen-fixed-during-the-1843320472>
 
 在疫情有很多事情是你做不到的——至少，如果你够聪明的话。你不应该去购物中心(即使它是开着的)，也不应该考虑在苹果商店闲逛，用他们的演示设备拍愚蠢的照片。
 

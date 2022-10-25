@@ -1,6 +1,6 @@
 # 鹰嘴豆汤是感恩节素食的关键
 
-> 原文:[https://life hacker . com/chickpea-broth-is-the-key to-your ' s vegan-thanksgiving-1839940473](https://lifehacker.com/chickpea-broth-is-the-key-to-your-vegan-thanksgiving-1839940473)
+> 原文：<https://lifehacker.com/chickpea-broth-is-the-key-to-your-vegan-thanksgiving-1839940473>
 
 丰盛的汤料是每一份感恩节大餐的基础。如果你是素食主义者，你不可能比一锅鹰嘴豆熬制的浓郁的金黄色肉汤做得更好。
 

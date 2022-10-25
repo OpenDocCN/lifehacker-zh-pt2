@@ -1,6 +1,6 @@
 # 明天是通过直接存款收到您的冠状病毒付款的最后期限
 
-> 原文:[https://life hacker . com/tomorrow-is-deadline-to-receive-your-coronavirus-pa-1843397327](https://lifehacker.com/tomorrow-is-the-deadline-to-receive-your-coronavirus-pa-1843397327)
+> 原文：<https://lifehacker.com/tomorrow-is-the-deadline-to-receive-your-coronavirus-pa-1843397327>
 
 还在等你的冠状病毒救济检查？你也许可以加快这个过程-b 但是你必须行动迅速:如果你想通过直接存款的方式收到你的付款，你必须在 5 月 13 日星期三中午(当地时间)之前提交你的信息。
 

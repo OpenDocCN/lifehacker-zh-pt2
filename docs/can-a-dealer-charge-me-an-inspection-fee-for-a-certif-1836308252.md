@@ -1,6 +1,6 @@
 # 对于经过认证的二手车，经销商可以向我收取“检测费”吗？
 
-> 原文:[https://jalopnik . com/can-a-dealer-charge-me-an-inspection-fee for-a-certif-1836308252](https://jalopnik.com/can-a-dealer-charge-me-an-inspection-fee-for-a-certif-1836308252)
+> 原文：<https://jalopnik.com/can-a-dealer-charge-me-an-inspection-fee-for-a-certif-1836308252>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。我决定挑几个问题，试着帮帮大家。本周我们讨论了认证车的额外费用，有问题的 CarMax Miata，以及为什么本田不生产更多的 Rs 型车。
 

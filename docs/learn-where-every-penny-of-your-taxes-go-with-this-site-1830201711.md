@@ -1,6 +1,6 @@
 # 通过这个网站了解你缴纳的每一分钱的去向
 
-> 原文:[https://life hacker . com/learn-where-one-penny-your ' s tax-go-this-site-1830201711](https://lifehacker.com/learn-where-every-penny-of-your-taxes-go-with-this-site-1830201711)
+> 原文：<https://lifehacker.com/learn-where-every-penny-of-your-taxes-go-with-this-site-1830201711>
 
 有没有想过你的税金到底去了哪里？虽然我对政府资助的项目有一个大致的概念，但我从来没有看一下我的钱具体是如何被州政府和联邦政府使用的。
 

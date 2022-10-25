@@ -1,6 +1,6 @@
 # 如果你的孩子迷路了，教他们“找父母”
 
-> 原文:[https://life hacker . com/teach-your-kids-to-find-a-parent-if-these-lost-1838253539](https://lifehacker.com/teach-your-kids-to-find-a-parent-if-they-get-lost-1838253539)
+> 原文：<https://lifehacker.com/teach-your-kids-to-find-a-parent-if-they-get-lost-1838253539>
 
 我儿子四岁时，我和丈夫带着他和他当时两岁的妹妹去佛罗里达海滩玩了一天。场景完美无缺:阳光明媚，我们设法记住了防晒霜和沙滩玩具，两个孩子都满足于在我们的沙滩毯前建造沙堡。当我丈夫提出带孩子们去海滩散步时，我很高兴能有一点时间来赶上我的海滩阅读。
 

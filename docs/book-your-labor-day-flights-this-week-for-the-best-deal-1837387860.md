@@ -1,6 +1,6 @@
 # 预订本周劳动节的航班，享受最优惠的价格
 
-> 原文:[https://life hacker . com/book-your-labour-day-flights-the-best-deal-1837387860](https://lifehacker.com/book-your-labor-day-flights-this-week-for-the-best-deal-1837387860)
+> 原文：<https://lifehacker.com/book-your-labor-day-flights-this-week-for-the-best-deal-1837387860>
 
 如果你计划在劳动节的周末去旅行，那么现在就预订机票吧，就在*现在*。来自 [、CheapFlights.com](http://CheapFlights.com)的数据表明，为了获得周末最优惠的机票价格，你需要在 8 月 23 日星期五之前预订那张机票。
 

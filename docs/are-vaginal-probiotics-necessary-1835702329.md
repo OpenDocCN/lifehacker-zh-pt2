@@ -1,6 +1,6 @@
 # 阴道益生菌有必要吗？
 
-> 原文:[https://life hacker . com/are-阴道-益生菌-必备-1835702329](https://lifehacker.com/are-vaginal-probiotics-necessary-1835702329)
+> 原文：<https://lifehacker.com/are-vaginal-probiotics-necessary-1835702329>
 
 益生菌一直是过去十年中最棒的健康趋势之一——尽管它们实际上一直存在于各种发酵食品中——并迅速成为许多人饮食和补充方案中的常规部分。虽然益生菌通常与肠道健康联系在一起，但是益生菌也已经被大量推销给患有阴道疾病的人。这是有意义的，因为这两个领域的联系比你可能想象的更紧密(后面会有更多)。
 

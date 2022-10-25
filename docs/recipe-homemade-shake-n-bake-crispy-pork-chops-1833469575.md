@@ -1,6 +1,6 @@
 # 屠夫制作松脆“摇烤”猪排的方法
 
-> 原文:[https://the take out . com/recipe-manufactured-shake-n-bake-crispy-猪排-1833469575](https://thetakeout.com/recipe-homemade-shake-n-bake-crispy-pork-chops-1833469575)
+> 原文：<https://thetakeout.com/recipe-homemade-shake-n-bake-crispy-pork-chops-1833469575>
 
 在我在 [屠夫柜台](http://www.publicanqualitymeats.com/#about) 后面的时候，我教过*很多*人 [怎么做猪排](https://thetakeout.com/how-to-perfectly-cook-pork-chops-without-drying-out-1832872413) 。厚的，薄的，皮上的，皮下的，你能想象到的猪排的每一次迭代。然而，当我坐下来写下我对烹饪猪排的建议时，一个相当令人羞愧的故事浮现在我的脑海里...
 

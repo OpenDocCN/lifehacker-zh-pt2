@@ -1,6 +1,6 @@
 # 如何确保在关卡时不丢失信用卡奖励
 
-> 原文:[https://life hacker . com/how-to-make-that-to-make-that-to-make-that-you-not-lost your-card-rewards-1836913367](https://lifehacker.com/how-to-make-sure-you-dont-lose-your-credit-card-rewards-1836913367)
+> 原文：<https://lifehacker.com/how-to-make-sure-you-dont-lose-your-credit-card-rewards-1836913367>
 
 如果你正在考虑开立一张奖励信用卡来获取奖金，或者如果你打算快速降级到一张没有年费的信用卡，你可能需要检查一下你信用卡的细则。
 

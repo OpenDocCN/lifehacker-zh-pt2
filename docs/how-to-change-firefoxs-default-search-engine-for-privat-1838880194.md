@@ -1,6 +1,6 @@
 # 如何改变 Firefox 的默认搜索引擎用于私人浏览
 
-> 原文:[https://life hacker . com/how-to-change-Firefox s-default-search-engine-for-privat-1838880194](https://lifehacker.com/how-to-change-firefoxs-default-search-engine-for-privat-1838880194)
+> 原文：<https://lifehacker.com/how-to-change-firefoxs-default-search-engine-for-privat-1838880194>
 
 几乎所有的网络浏览器都允许你指定默认的搜索引擎，有些甚至允许你在多个搜索引擎之间动态切换。在即将到来的 Firefox 71 更新中，你现在可以将浏览器默认设置为独立的搜索引擎，无论你使用的是正常浏览模式还是隐私浏览模式。
 

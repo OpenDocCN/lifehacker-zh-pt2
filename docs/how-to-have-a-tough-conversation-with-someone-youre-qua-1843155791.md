@@ -1,6 +1,6 @@
 # 如何与被隔离的人进行艰难的对话
 
-> 原文:[https://life hacker . com/how-to-have-a-tough-conversation-with-someone-you-qua-1843155791](https://lifehacker.com/how-to-have-a-tough-conversation-with-someone-youre-qua-1843155791)
+> 原文：<https://lifehacker.com/how-to-have-a-tough-conversation-with-someone-youre-qua-1843155791>
 
 虽然我们希望你现在和家里的人相处得很好，但事实是在紧张和艰难的时期，你可能需要提出一个敏感的话题。
 

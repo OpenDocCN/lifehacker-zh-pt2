@@ -1,6 +1,6 @@
 # 和你的伴侣一起做一份情绪劳动清单
 
-> 原文:[https://life hacker . com/make-an-emotional-labour-to-do-list-with your-partner-1841156510](https://lifehacker.com/make-an-emotional-labor-to-do-list-with-your-partner-1841156510)
+> 原文：<https://lifehacker.com/make-an-emotional-labor-to-do-list-with-your-partner-1841156510>
 
 Biz Ellis 在《一个坏母亲》播客上称其为“万物之灵。”在双亲家庭中，一方承担所有日常琐事的责任是很常见的，这些琐事会让你陷入困境。
 

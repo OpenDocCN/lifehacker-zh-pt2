@@ -1,6 +1,6 @@
 # 让你挑食的人假装成烹饪节目评委
 
-> 原文:[https://life hacker . com/let-your-picture-eater-assist-to-be-a-cooking-show-judge-1845000666](https://lifehacker.com/let-your-picky-eater-pretend-to-be-a-cooking-show-judge-1845000666)
+> 原文：<https://lifehacker.com/let-your-picky-eater-pretend-to-be-a-cooking-show-judge-1845000666>
 
 让一个挑食的年轻人尝试不同的食物可能是一场长达数年的战斗。挑食者的父母可能会发现他们自己通过各种各样的提示和技巧来帮助他们的孩子在食物方面变得更有冒险精神。有些战术管用，有些管用一小会儿，有些根本不管用。但是，如果你的孩子喜欢烹饪节目，或者如果他们喜欢时不时地给你一个好的“T1”热菜“T2”，你可以试着让他们成为你晚餐烹饪节目的“T3”评委“T4”。
 

@@ -1,6 +1,6 @@
 # let people take home their methadone 1842557310
 
-> 原文:[https://gizmodo . com/let-people-take-home-thes-美沙酮-1842557310](https://gizmodo.com/let-people-take-home-their-methadone-1842557310)
+> 原文：<https://gizmodo.com/let-people-take-home-their-methadone-1842557310>
 
 新冠肺炎疫情正把日常的接送变成一场严重的公共卫生危机。有更好的方法。
 

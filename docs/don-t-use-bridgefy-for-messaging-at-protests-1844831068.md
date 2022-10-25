@@ -1,6 +1,6 @@
 # 抗议时不要用 Bridgefy 发信息
 
-> 原文:[https://life hacker . com/don-t-use-bridgefy-for-messaging-at-declarations-1844831068](https://lifehacker.com/don-t-use-bridgefy-for-messaging-at-protests-1844831068)
+> 原文：<https://lifehacker.com/don-t-use-bridgefy-for-messaging-at-protests-1844831068>
 
 经常参加抗议活动的读者可能熟悉 Bridgefy 消息应用程序，甚至可能会使用它。该应用最初被设想为一个“离线”通信网络，用于农村社区，在网络高度拥堵的时候(如体育赛事)，甚至在自然灾害期间。该应用程序使用蓝牙和网状路由器网络来创建独立的设备间通信系统，可以在移动和 wifi 网络之外工作。
 

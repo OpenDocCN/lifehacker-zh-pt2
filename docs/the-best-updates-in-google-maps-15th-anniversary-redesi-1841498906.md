@@ -1,6 +1,6 @@
 # 谷歌地图 15 周年改版的最佳更新
 
-> 原文:[https://life hacker . com/the-best-updates-in-Google-maps-15 周年纪念-redesi-1841498906](https://lifehacker.com/the-best-updates-in-google-maps-15th-anniversary-redesi-1841498906)
+> 原文：<https://lifehacker.com/the-best-updates-in-google-maps-15th-anniversary-redesi-1841498906>
 
 为了庆祝谷歌地图 15 岁生日， [谷歌用新的标志和图标更新了服务](https://www.blog.google/products/maps/maps-15th-birthday) ，并为该应用推出了几项新功能。这是大更新中包含的所有内容。
 

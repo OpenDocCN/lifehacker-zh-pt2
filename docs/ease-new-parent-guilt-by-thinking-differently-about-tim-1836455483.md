@@ -1,6 +1,6 @@
 # 从不同的角度思考时间，减轻初为人父母者的负罪感
 
-> 原文:[https://life hacker . com/ease-new-parent-civilization-by-thinking-differently-about-Tim-1836455483](https://lifehacker.com/ease-new-parent-guilt-by-thinking-differently-about-tim-1836455483)
+> 原文：<https://lifehacker.com/ease-new-parent-guilt-by-thinking-differently-about-tim-1836455483>
 
 婴儿时期不同于正常人时期。事情发展得很快。当我女儿还是个婴儿的时候，我丈夫和我几乎每天早上都会瞥她一眼，然后说，“哇，她今天看起来不一样了。”这种类似于动画书的发展速度会让父母难以置信地难以重返工作岗位。你会觉得你错过了它——人生的整个阶段。
 

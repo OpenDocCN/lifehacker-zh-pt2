@@ -1,6 +1,6 @@
 # 在航班上预订舱壁座位之前你应该知道什么
 
-> 原文:[https://life hacker . com/what-you-should-know-before-booking-a-bulkhead-on-1839888964](https://lifehacker.com/what-you-should-know-before-booking-a-bulkhead-seat-on-1839888964)
+> 原文：<https://lifehacker.com/what-you-should-know-before-booking-a-bulkhead-seat-on-1839888964>
 
 在埃利奥特倡导组织的用户论坛 上，一位评论者写道，他们坐在加拿大航空公司承诺“更大的腿部空间”和其他公园的高级优先座位区，每个座位的额外费用为 100 美元。
 

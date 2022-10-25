@@ -1,6 +1,6 @@
 # 2018 年 12 月网飞有哪些来往
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-网飞 2018-12-1830564414](https://lifehacker.com/whats-coming-and-going-from-netflix-in-december-2018-1830564414)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-in-december-2018-1830564414>
 
 这是一个很酷的现象:网飞圣诞特辑。这个月，除了太多的原创节目和电影，网飞还发布了现有节目的圣诞剧集，包括*钉死它！*、*萨布丽娜的惊悚冒险*、以斯拉·柯尼希的*新横尾*，以及奖励诱饵*皮奥里亚王子:一个圣诞驼鹿奇迹*。
 

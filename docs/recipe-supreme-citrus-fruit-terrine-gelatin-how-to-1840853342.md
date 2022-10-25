@@ -1,6 +1,6 @@
 # 用柑橘酱庆祝隆冬
 
-> 原文:[https://the take out . com/recipe-supreme-citrus-fruit-terrine-gelatin-how-to-1840853342](https://thetakeout.com/recipe-supreme-citrus-fruit-terrine-gelatin-how-to-1840853342)
+> 原文：<https://thetakeout.com/recipe-supreme-citrus-fruit-terrine-gelatin-how-to-1840853342>
 
 现在是隆冬，大多数有趣的假期都已经过去了——但是还有几个月的寒冷和泥泞要度过。因此，我们欢迎您参加 [***热带居家度假***](https://thetakeout.com/tag/tropical-staycation) *，这是一周的海岛食谱和其他故事，将带您去更温暖、更阳光的地方。只是看书的时候不要往窗外看。*
 

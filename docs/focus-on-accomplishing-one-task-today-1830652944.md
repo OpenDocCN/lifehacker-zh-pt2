@@ -1,6 +1,6 @@
 # 今天专注于完成一项任务
 
-> 原文:[https://life hacker . com/focus-on-completing-one-task-today-1830652944](https://lifehacker.com/focus-on-accomplishing-one-task-today-1830652944)
+> 原文：<https://lifehacker.com/focus-on-accomplishing-one-task-today-1830652944>
 
 可能是最“星期一”(Mondayiest？)每年的星期一。在一个漫长的、充满火鸡大餐的假日周末之后，你现在发现自己回到了工作岗位，梦见你的睡衣和一碗土豆泥，而不是你的——打折的西装和不新鲜的咖啡。
 

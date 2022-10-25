@@ -1,6 +1,6 @@
 # 当技术支持人员就电脑问题打电话给你时，这很可能是一个骗局
 
-> 原文:[https://life hacker . com/when-tech-support-calls-you-about-a-PC-problem-it-s-pr-1830798500](https://lifehacker.com/when-tech-support-calls-you-about-a-pc-problem-it-s-pr-1830798500)
+> 原文：<https://lifehacker.com/when-tech-support-calls-you-about-a-pc-problem-it-s-pr-1830798500>
 
 现在是技术安全 PSA 时间。《纽约时报》 最近的一篇报道提供了关于虚假技术支持骗局正在演变和扩张的有趣见解。“经典”的例行程序，即在你的电脑屏幕上弹出一个窗口，为你不知道的“病毒”或其他紧急问题提供技术支持，不仅一直在流通——这是一个增长的行业。
 

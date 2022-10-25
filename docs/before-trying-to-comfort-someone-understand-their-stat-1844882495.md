@@ -1,6 +1,6 @@
 # 在试图安慰某人之前，先了解他们的“痛苦状态”
 
-> 原文:[https://life hacker . com/before-try-to-comfort-someone-understand-stat-1844882495](https://lifehacker.com/before-trying-to-comfort-someone-understand-their-stat-1844882495)
+> 原文：<https://lifehacker.com/before-trying-to-comfort-someone-understand-their-stat-1844882495>
 
 当我们认识的人——甚至是我们在杂货店或公交车上遇到的陌生人——明显处于痛苦之中时，我们的第一反应往往是试图安慰这个人。无论是用言语还是提供帮助，我们都不希望看到有人经历一段艰难的时光。此外，悲伤和不安的人让我们不舒服，所以你也可能倾向于伸出手，这样你会觉得好像你至少*尝试过*做一些事情(这不是你可能马上意识到或考虑的事情；你想帮忙的愿望通常不是来自不好的地方。
 

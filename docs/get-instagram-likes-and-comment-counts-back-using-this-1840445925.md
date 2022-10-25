@@ -1,6 +1,6 @@
 # 使用 Chrome 扩展获得 Instagram 赞和评论计数
 
-> 原文:[https://life hacker . com/get-insta gram-likes-and-comment-counts-back-using-this-1840445925](https://lifehacker.com/get-instagram-likes-and-comment-counts-back-using-this-1840445925)
+> 原文：<https://lifehacker.com/get-instagram-likes-and-comment-counts-back-using-this-1840445925>
 
 上个月，Instagram 开始隐藏美国账户的一些帖子上的赞。此举背后的想法是让用户“关注你分享的照片和视频，而不是你获得了多少赞。”
 

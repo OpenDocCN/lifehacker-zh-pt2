@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:对于一家非常冷的餐馆，我能做些什么？
 
-> 原文:[https://the take out . com/what-can-do-about-a true-cold-restaurant-1830230386](https://thetakeout.com/what-can-i-do-about-a-really-cold-restaurant-1830230386)
+> 原文：<https://thetakeout.com/what-can-i-do-about-a-really-cold-restaurant-1830230386>
 
 > 亲爱的 Salty，我是那种对寒冷比其他人更敏感的人，所以如果我的朋友认为一家餐馆有点冷，我就完全冻僵了。现在是 11 月，这标志着寒冷的餐馆季节可怕的开始。不管我穿了多少层，每年冬天我总会遇到至少一家餐馆冷得让我不舒服。一旦我坐下了，除了坐着发抖，我还能做什么？我能合理地期望餐馆做多少？吃晚饭的时候我宁愿不穿羽绒服。
 > 

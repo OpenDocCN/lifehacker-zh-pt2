@@ -1,6 +1,6 @@
 # Zoom 上玩的最好的桌游有哪些？
 
-> 原文:[https://life hacker . com/what-is-the-best-board-games-to-play over-zoom-1842564172](https://lifehacker.com/what-are-the-best-board-games-to-play-over-zoom-1842564172)
+> 原文：<https://lifehacker.com/what-are-the-best-board-games-to-play-over-zoom-1842564172>
 
 屏幕，它们现在是不可避免的。在疫情席卷全球之前，我们的孩子可能已经有足够的时间看屏幕了，但是现在，他们不仅仅是用屏幕来娱乐。他们用手机与老师联系，完成作业，与家人和朋友交谈。
 

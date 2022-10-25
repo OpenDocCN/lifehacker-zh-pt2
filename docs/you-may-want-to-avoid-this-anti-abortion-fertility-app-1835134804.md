@@ -1,6 +1,6 @@
 # 不要接受反堕胎生育应用的医疗建议
 
-> 原文:[https://life hacker . com/you-may-want-to-avoid-this-anti-流产-生育-app-1835134804](https://lifehacker.com/you-may-want-to-avoid-this-anti-abortion-fertility-app-1835134804)
+> 原文：<https://lifehacker.com/you-may-want-to-avoid-this-anti-abortion-fertility-app-1835134804>
 
 FEMM 周期排卵跟踪器看起来像任何其他生育应用程序，要求你记录你的月经数据，并承诺“帮助你跟踪你的健康的尖端科学”但是 [《卫报》发现](https://www.theguardian.com/world/2019/may/30/revealed-womens-fertility-app-is-funded-by-anti-abortion-campaigners) 该应用得到了一个反堕胎激进组织的支持。
 

@@ -1,6 +1,6 @@
 # 今天给你妈妈寄一张母亲节贺卡
 
-> 原文:[https://life hacker . com/send-your-mom-a-mother-day-card-today-1834556076](https://lifehacker.com/send-your-mom-a-mothers-day-card-today-1834556076)
+> 原文：<https://lifehacker.com/send-your-mom-a-mothers-day-card-today-1834556076>
 
 你忘了吗？母亲节就在本周日，这意味着你或许应该马上给你的妈妈寄张卡片——甚至如果你是懒人，也有很多简单的选择。
 

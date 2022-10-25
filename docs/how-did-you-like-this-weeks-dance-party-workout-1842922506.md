@@ -1,6 +1,6 @@
 # 你觉得这周的舞会怎么样？
 
-> 原文:[https://life hacker . com/how-do-you-like-this-weeks-dance-party-workout-1842922506](https://lifehacker.com/how-did-you-like-this-weeks-dance-party-workout-1842922506)
+> 原文：<https://lifehacker.com/how-did-you-like-this-weeks-dance-party-workout-1842922506>
 
 你参加了我们的挑战 并参加了这周的瑞恩·海芬顿舞会吗？如果没有，下面是您错过的内容(以及我们接下来要做的)。
 

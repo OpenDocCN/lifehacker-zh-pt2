@@ -1,6 +1,6 @@
 # 用这个疫情模拟器尝试社交距离场景
 
-> 原文:[https://life hacker . com/try-out-social-distanding-scenarios-with this-疫情-1843565692](https://lifehacker.com/try-out-social-distancing-scenarios-with-this-pandemic-1843565692)
+> 原文：<https://lifehacker.com/try-out-social-distancing-scenarios-with-this-pandemic-1843565692>
 
 如果我们取消物理距离规则，只去拜访我们的邻居，病毒会传播得更慢吗？有多少人需要遵循建议才能工作？与伴侣家庭一起“露营”是保持安全的有效方法吗？你可以用一个叫做 COVID Crush 的小游戏自己模拟这些问题的答案。
 

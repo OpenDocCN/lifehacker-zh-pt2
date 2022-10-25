@@ -1,6 +1,6 @@
 # 使用这个“危险”数据库测试你的琐事知识问题
 
-> 原文:[https://life hacker . com/test-your-trivia-knowledge-using-this-database-of-jeopa-1840876187](https://lifehacker.com/test-your-trivia-knowledge-using-this-database-of-jeopa-1840876187)
+> 原文：<https://lifehacker.com/test-your-trivia-knowledge-using-this-database-of-jeopa-1840876187>
 
 *危险！史无前例的**比武正在如火如荼的进行着。如果你还没有机会参加比赛，现在你可以退而求其次。* 
 

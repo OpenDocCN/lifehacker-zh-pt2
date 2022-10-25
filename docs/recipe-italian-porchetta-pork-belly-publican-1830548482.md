@@ -1,6 +1,6 @@
 # 跳过感恩节火鸡，做感恩节牛肉饼
 
-> 原文:[https://the take out . com/recipe-Italian-porchetta-pork-belly-publican-1830548482](https://thetakeout.com/recipe-italian-porchetta-pork-belly-publican-1830548482)
+> 原文：<https://thetakeout.com/recipe-italian-porchetta-pork-belly-publican-1830548482>
 
 实话实说:感恩节火鸡不全是这样。皮很好(特别是如果你在烤箱里单独烤第二次的话),肉壳是很好的原料。但是主菜肉呢？我从未觉得火鸡令人满意，更不用说它达到令人渴望的高度了。即使你觉得感恩节晚餐的概念很美味，它的美味很少归因于鸟，而是晚餐的总和。
 

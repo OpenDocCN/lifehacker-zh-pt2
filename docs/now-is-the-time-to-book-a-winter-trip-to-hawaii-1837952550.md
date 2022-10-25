@@ -1,6 +1,6 @@
 # 现在是时候预订去夏威夷的冬季旅行了
 
-> 原文:[https://life hacker . com/now-is-time-to-book a winter-travel to-Hawaii-1837952550](https://lifehacker.com/now-is-the-time-to-book-a-winter-trip-to-hawaii-1837952550)
+> 原文：<https://lifehacker.com/now-is-the-time-to-book-a-winter-trip-to-hawaii-1837952550>
 
 如果你正在考虑去夏威夷的冬季旅行，那么现在是时候开始寻找航班了。
 

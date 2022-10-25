@@ -1,6 +1,6 @@
 # 下载所有尺寸的比例图。向导
 
-> 原文:[https://life hacker . com/download-scale-drawings-of-everything-at-dimensions-GUI-1835873063](https://lifehacker.com/download-scale-drawings-of-everything-at-dimensions-gui-1835873063)
+> 原文：<https://lifehacker.com/download-scale-drawings-of-everything-at-dimensions-gui-1835873063>
 
 设计场地尺寸。Guide 是一个剪贴画库，供设计师、建筑师和其他需要精确比例绘图的人使用。数据库中的每一幅比例图都是以同样简洁的艺术线条风格构成的。绘画包括运动器材、汽车、家具、人(各种姿势和大小)、电脑和电话、植物和动物、房间和景观布局，甚至漫威人物。而且在你自己的项目里都是免费使用的。
 

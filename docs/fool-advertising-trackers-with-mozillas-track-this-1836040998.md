@@ -1,6 +1,6 @@
 # 用 Mozilla 的“跟踪这个”愚弄广告追踪者
 
-> 原文:[https://life hacker . com/fool-advertising-trackers-with-mozillas-track-this-1836040998](https://lifehacker.com/fool-advertising-trackers-with-mozillas-track-this-1836040998)
+> 原文：<https://lifehacker.com/fool-advertising-trackers-with-mozillas-track-this-1836040998>
 
 没人喜欢讨厌的网络广告，这是肯定的。更令人毛骨悚然的是，当你访问一个网站，在网上浏览，突然发现这个网站的广告贴满了你正在浏览的所有其他网站。
 

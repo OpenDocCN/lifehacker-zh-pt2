@@ -1,6 +1,6 @@
 # 现在你可以用谷歌找到一个新冠肺炎考试中心
 
-> 原文:[https://life hacker . com/now-you-can-find-a-新冠肺炎测试中心-使用-google-1842946499](https://lifehacker.com/now-you-can-find-a-covid-19-testing-center-using-google-1842946499)
+> 原文：<https://lifehacker.com/now-you-can-find-a-covid-19-testing-center-using-google-1842946499>
 
 现在，当你在谷歌上搜索新冠肺炎时，你可以找到位于你附近的病毒检测站点的信息。
 

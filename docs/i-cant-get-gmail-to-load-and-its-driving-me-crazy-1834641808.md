@@ -1,6 +1,6 @@
 # 我无法加载 Gmail，这快把我逼疯了
 
-> 原文:[https://life hacker . com/I-cant-get-Gmail-to-load-and-its-driving-me-crazy-1834641808](https://lifehacker.com/i-cant-get-gmail-to-load-and-its-driving-me-crazy-1834641808)
+> 原文：<https://lifehacker.com/i-cant-get-gmail-to-load-and-its-driving-me-crazy-1834641808>
 
 当老板说“我有问题”时，我的耳朵会竖起来。Lifehacker 没问题；我们还没有被 [帕姆](https://skillet.lifehacker.com/throw-out-old-canisters-of-pam-immediately-1834614281) 炸飞。然而， [梅丽莎](https://lifehacker.com/im-melissa-kirsch-lifehacker-editor-in-chief-and-this-1829150849) 无论怎么努力都无法加载她的 Gmail 这个问题已经困扰她几个月了。这是一个让我“嗯嗯”的怪癖，因为我从来没有加载 Gmail 的问题。
 

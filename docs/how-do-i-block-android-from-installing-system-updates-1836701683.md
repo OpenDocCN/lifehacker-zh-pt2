@@ -1,6 +1,6 @@
 # 我如何阻止 Android 安装系统更新？
 
-> 原文:[https://life hacker . com/how-do-I-block-Android-from-installing-system-updates-1836701683](https://lifehacker.com/how-do-i-block-android-from-installing-system-updates-1836701683)
+> 原文：<https://lifehacker.com/how-do-i-block-android-from-installing-system-updates-1836701683>
 
 我以前说过，而且我会继续说:让您的设备保持更新很重要。尽管我承认这条规则很少有例外。如果微软刚刚发布了一个巨大的 Windows 更新，你可能想给它几天时间*，以防* [发生灾难性的错误](https://lifehacker.com/back-up-windows-10-before-installing-the-october-update-1829556930) 。如果你有一部超旧的智能手机，并被要求升级到其操作系统的最新版本，考虑做一些研究，以确保它不会削弱你的设备的性能。
 

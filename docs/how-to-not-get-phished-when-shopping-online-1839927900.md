@@ -1,6 +1,6 @@
 # 如何在网上购物时不被钓鱼
 
-> 原文:[https://life hacker . com/how-to-not-get-phished-when-shopping-online-1839927900](https://lifehacker.com/how-to-not-get-phished-when-shopping-online-1839927900)
+> 原文：<https://lifehacker.com/how-to-not-get-phished-when-shopping-online-1839927900>
 
 网上购物让购买节日礼物变得简单得近乎愚蠢，但尽管如此方便，如果你不小心的话，黑客和骗子也更容易窃取你的财务数据。
 

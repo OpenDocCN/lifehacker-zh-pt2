@@ -1,6 +1,6 @@
 # 为与孩子和宠物的“交流时间”设置闹钟
 
-> 原文:[https://life hacker . com/set-an-alarm-for-connection-time-with-your-kids and-pet-1844594470](https://lifehacker.com/set-an-alarm-for-connection-time-with-your-kids-and-pet-1844594470)
+> 原文：<https://lifehacker.com/set-an-alarm-for-connection-time-with-your-kids-and-pet-1844594470>
 
 仅仅因为你现在一直在家和你的伴侣、孩子或宠物在一起，并不意味着你在花时间和对方在一起方面做得更好。事实上，相反的情况可能是真的；你可能会觉得现在有一点点*太多*的时间在一起。但是数量并不等同于质量，由于每个人都躲在家里各自的角落里(或者经常到处乱跑)，留出一些专门的时间来联系——通过设置闹钟——可能是个好主意。
 

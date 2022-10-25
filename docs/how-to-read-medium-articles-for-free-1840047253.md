@@ -1,6 +1,6 @@
 # 如何免费阅读媒体文章
 
-> 原文:[https://life hacker . com/how-to-read-medium-articles-for-free-1840047253](https://lifehacker.com/how-to-read-medium-articles-for-free-1840047253)
+> 原文：<https://lifehacker.com/how-to-read-medium-articles-for-free-1840047253>
 
 Medium 是一家博客平台/出版商，曾经想要彻底改变在线媒体，现在已经将内容置于每月 5 美元的付费墙之后。在每月免费阅读几篇文章后，如果不付费，你就无法阅读其他任何内容。除非你用 Twitter。
 

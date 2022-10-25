@@ -1,6 +1,6 @@
 # 如何调整你的谷歌日历，从周一开始
 
-> 原文:[https://life hacker . com/how-to-adjust-your-Google-calendar-to-start-on-Monday-1833872220](https://lifehacker.com/how-to-adjust-your-google-calendar-to-start-on-monday-1833872220)
+> 原文：<https://lifehacker.com/how-to-adjust-your-google-calendar-to-start-on-monday-1833872220>
 
 如果不是因为我的谷歌日历，我可能会错过每一个重要的会议、截止日期和生日——我肯定不是一个人。
 

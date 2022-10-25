@@ -1,6 +1,6 @@
 # 如何在您的新 Galaxy S10 上启用“开发者选项”
 
-> 原文:[https://life hacker . com/how-to-enable-developer-options-on-your-new-galaxy-S10-1833207398](https://lifehacker.com/how-to-enable-developer-options-on-your-new-galaxy-s10-1833207398)
+> 原文：<https://lifehacker.com/how-to-enable-developer-options-on-your-new-galaxy-s10-1833207398>
 
 三星的全新 Galaxy S10 于周五上市，我毫不怀疑许多首日购买者整个周末都在摆弄一部智能手机，正如我们在 *Gizmodo* 的同事描述 的那样，这部手机“最接近让所有的美元都物有所值”。
 

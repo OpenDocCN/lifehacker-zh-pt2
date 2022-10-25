@@ -1,6 +1,6 @@
 # 到底什么是啤酒肚？
 
-> 原文:[https://life hacker . com/what-a-beer-belly-anyway-1834217196](https://lifehacker.com/what-is-a-beer-belly-anyway-1834217196)
+> 原文：<https://lifehacker.com/what-is-a-beer-belly-anyway-1834217196>
 
 拥有一个大肚子是 [与](https://www.health.harvard.edu/staying-healthy/abdominal-obesity-and-your-health) 有更大的心脏病和死亡风险，但要了解啤酒肚(实际上你不能责怪啤酒)，你必须看看它的内部。
 

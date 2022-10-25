@@ -1,6 +1,6 @@
 # 2019 年 12 月 9 日这一周，网飞有什么动静
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of decembe-1840271057](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-decembe-1840271057)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-decembe-1840271057>
 
 网飞！迪士尼+和 Hulu 还没赢呢！不要停止尝试！这是什么鬼东西？这是失败者的名单，一个虚弱的年终无所事事的节日，上面写着“何必呢？”。如果你一定要看《网飞》，你一定要看《地下 6 号》(周五),这是一部瑞安·雷诺兹和梅拉尼·罗兰合作的电影，在这部电影中，一位科技亿万富翁假死。或者米歇尔·沃尔夫的新单口相声专场(周二)。
 

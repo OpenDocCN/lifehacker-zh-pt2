@@ -1,6 +1,6 @@
 # 使用 Hook 跨应用程序连接您的文件
 
-> 原文:[https://life hacker . com/connect-your-files-cross-applications-with-hook-1832357024](https://lifehacker.com/connect-your-files-across-applications-with-hook-1832357024)
+> 原文：<https://lifehacker.com/connect-your-files-across-applications-with-hook-1832357024>
 
 我开发了许多系统，用来在我的 Mac 上保持文件和项目的联系:将笔记与待办事项联系起来的维基链接服务， [Curio](https://www.zengobi.com/curio/) 项目，将电子邮件与项目联系起来，以及将各种文件放在一起的广泛标记系统。每一个都以这样或那样的方式限制了范围(链接电子邮件是一个永恒的斗争)。这就是我对虎克如此兴奋的原因。
 

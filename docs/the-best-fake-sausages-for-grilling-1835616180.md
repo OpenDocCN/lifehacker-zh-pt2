@@ -1,6 +1,6 @@
 # the best fake sausages for grilling 1835616180
 
-> 原文:[https://life hacker . com/the-best-fake-waste-for-grigging-1835616180](https://lifehacker.com/the-best-fake-sausages-for-grilling-1835616180)
+> 原文：<https://lifehacker.com/the-best-fake-sausages-for-grilling-1835616180>
 
 假肉的话语往往围绕着汉堡，它们看似不可能的肉样质地和粉红色的中心。但是馅饼并不是神秘肉制造商提供的唯一形状——它也有管状，带有香肠状外壳。
 

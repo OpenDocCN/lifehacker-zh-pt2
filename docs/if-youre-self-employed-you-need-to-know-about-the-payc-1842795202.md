@@ -1,6 +1,6 @@
 # 如果你是自由职业者，你需要了解工资保障计划
 
-> 原文:[https://life hacker . com/if-you-self-empowere-you-need-know-on-the-pay c-1842795202](https://lifehacker.com/if-youre-self-employed-you-need-to-know-about-the-payc-1842795202)
+> 原文：<https://lifehacker.com/if-youre-self-employed-you-need-to-know-about-the-payc-1842795202>
 
 本月早些时候，联邦政府推出了 [薪酬保护计划](https://www.sba.gov/funding-programs/loans/coronavirus-relief-options/paycheck-protection-program-ppp) ，该计划让小企业主有机会申请小企业管理局(SBA)贷款，旨在帮助企业在冠状病毒疫情期间发放工资。如果贷款被用于某些指定的费用——工资、抵押贷款利息、租金和公用事业——贷款有可能被部分或全部免除。
 

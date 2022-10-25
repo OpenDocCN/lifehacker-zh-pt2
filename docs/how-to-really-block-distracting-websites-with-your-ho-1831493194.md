@@ -1,6 +1,6 @@
 # 如何用你的主机文件阻止令人分心的网站
 
-> 原文:[https://life hacker . com/how-to-really-block-distracting-websites-with-your-ho-1831493194](https://lifehacker.com/how-to-really-block-distracting-websites-with-your-ho-1831493194)
+> 原文：<https://lifehacker.com/how-to-really-block-distracting-websites-with-your-ho-1831493194>
 
 有很多浏览器扩展可以让你全天屏蔽那些分散注意力的网站，从而保持工作效率。(抱歉，是 Reddit、YouTube 和脸书。)但是它们真的能有效地阻止你完成你需要完成的工作吗？如果你没有太多的自制力，你可以禁用或卸载扩展，或者切换到另一个浏览器来挫败你的良好意图。
 

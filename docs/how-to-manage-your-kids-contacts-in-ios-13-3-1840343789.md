@@ -1,6 +1,6 @@
 # 如何在 iOS 13.3 中管理孩子的联系人
 
-> 原文:[https://life hacker . com/how-to-management-your-kids-contacts-in-IOs-13-3-1840343789](https://lifehacker.com/how-to-manage-your-kids-contacts-in-ios-13-3-1840343789)
+> 原文：<https://lifehacker.com/how-to-manage-your-kids-contacts-in-ios-13-3-1840343789>
 
 iOS 13.3 来了。当您等待它下载并安装到您的设备上时，您有两种选择。你可以浏览一下 [苹果的修复和更改列表](https://support.apple.com/en-us/HT210393#133)——这只占用了*下载* iOS 13.3 的一小部分时间——或者你可以继续关注我们，我们将向你展示如何设置苹果在此次更新中推出的大型家长控制功能。
 

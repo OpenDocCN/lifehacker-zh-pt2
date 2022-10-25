@@ -1,6 +1,6 @@
 # 速溶咖啡更适合烹饪和烘焙，而不是饮用
 
-> 原文:[https://the take out . com/how-to-use-instant-coffee-in-your-cooking-1833394002](https://thetakeout.com/how-to-use-instant-coffee-in-your-cooking-1833394002)
+> 原文：<https://thetakeout.com/how-to-use-instant-coffee-in-your-cooking-1833394002>
 
 加入咖啡后，许多美味的菜肴变得更加美味。从饼干、辣椒到烧烤，咖啡是饮用之外的真正主食。自 17 世纪中叶以来，咖啡一直是欧洲人的一种习俗，但在此之前的几年里，它在中东和土耳其奥斯曼帝国被广泛消费，在此之前，它来自其所谓的发源地埃塞俄比亚。当然，今天，咖啡是全球早晨的饮料。
 

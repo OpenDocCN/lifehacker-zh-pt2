@@ -1,6 +1,6 @@
 # is it an anxiety disorder or just life in 2020 1844829724
 
-> 原文:[https://life hacker . com/is-it-an-anxiety-disorder-or-just-life-in-2020-1844829724](https://lifehacker.com/is-it-an-anxiety-disorder-or-just-life-in-2020-1844829724)
+> 原文：<https://lifehacker.com/is-it-an-anxiety-disorder-or-just-life-in-2020-1844829724>
 
 虽然焦虑和恐惧 [是两码事](https://www.psychologytoday.com/us/blog/science-choice/201812/anxiety-vs-fear#:~:text=In%20general%2C%20fear%20is%20seen,circumstance%20(Horwitiz%2C%202013).) ，但不断应对 对不确定性的恐惧是许多焦虑者经常经历的事情。在过去的六个月里，在全球疫情中，几乎没有什么是确定的。我们担心我们或我们所爱的人是否会生病，这是有道理的，但不确定性远远不止于此，在关于我们的就业，即将到来的学年该怎么办以及我们何时(或是否能够再次见到年长的亲戚。
 

@@ -1,6 +1,6 @@
 # 使用 iOS 12.3 下载 HBO 节目以便离线观看
 
-> 原文:[https://life hacker . com/use-IOs-12-3-to-download-HBO-shows-for-offline-viewing-1834755983](https://lifehacker.com/use-ios-12-3-to-download-hbo-shows-for-offline-viewing-1834755983)
+> 原文：<https://lifehacker.com/use-ios-12-3-to-download-hbo-shows-for-offline-viewing-1834755983>
 
 最新的 iOS 更新在这里，苹果移动操作系统的 12.3 版本介绍了 AirPlay 和 Apple TV 应用程序的几个变化，值得一看。以下是如何充分利用它们的方法:
 

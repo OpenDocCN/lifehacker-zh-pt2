@@ -1,6 +1,6 @@
 # 如何查询各大酒店的度假村费用
 
-> 原文:[https://life hacker . com/how-to-check-resort-fees-at-major-hotels-1835835518](https://lifehacker.com/how-to-check-resort-fees-at-major-hotels-1835835518)
+> 原文：<https://lifehacker.com/how-to-check-resort-fees-at-major-hotels-1835835518>
 
 当你在一个海滩小镇找到一个特别棒的酒店住宿时，当你同意预订时，你可能会看到价格飙升——这些是“度假费用”
 

@@ -1,6 +1,6 @@
 # 2019 年最好的“我的饮食方式”建议
 
-> 原文:[https://life hacker . com/the-best-how-I-eat-advice-from-2019-1840727489](https://lifehacker.com/the-best-how-i-eat-advice-from-2019-1840727489)
+> 原文：<https://lifehacker.com/the-best-how-i-eat-advice-from-2019-1840727489>
 
 在采访人们如何吃 T2 T3 的过程中，我最喜欢的部分是威逼他们向我展示他们冰箱的内部，但我第二喜欢的部分是获得如何吃、喝和住 T4 的美味建议。从每个采访中选择我最喜欢的摘录是一个相当大的挑战，尽管我认为我选择得很好，但你绝对应该完整地阅读每个采访(相信我，它会帮助你正确地开始新的一年)。
 

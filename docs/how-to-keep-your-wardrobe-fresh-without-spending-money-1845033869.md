@@ -1,6 +1,6 @@
 # 如何不花钱让衣柜保持清新
 
-> 原文:[https://life hacker . com/how-to-keep your-crowd-without-spending money-1845033869](https://lifehacker.com/how-to-keep-your-wardrobe-fresh-without-spending-money-1845033869)
+> 原文：<https://lifehacker.com/how-to-keep-your-wardrobe-fresh-without-spending-money-1845033869>
 
 对很多人来说，今年我们与服装的关系发生了很大变化。仅仅几个月前，我们还在整理行头(我不严格地使用这个词)去上班、见朋友或做其他户外活动。现在，我们的日常着装决定可以归结为普通的软裤、考究的软裤，以及整天穿着睡衣。
 

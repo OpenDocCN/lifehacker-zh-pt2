@@ -1,6 +1,6 @@
 # 如果你厌倦了架子上的精灵，看看圣诞老人的懒惰侏儒吧
 
-> 原文:[https://life hacker . com/if-you-sick-of-elf-on-the-shelf-check-out-Santas-laz-1830882709](https://lifehacker.com/if-youre-sick-of-elf-on-the-shelf-check-out-santas-laz-1830882709)
+> 原文：<https://lifehacker.com/if-youre-sick-of-elf-on-the-shelf-check-out-santas-laz-1830882709>
 
 本周早些时候，我八岁的儿子向我吐露了一些事情:几年来，在圣诞节前后，他一直在寻找他的小精灵。
 

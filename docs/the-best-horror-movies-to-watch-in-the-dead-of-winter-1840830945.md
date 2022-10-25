@@ -1,6 +1,6 @@
 # 隆冬时节最值得一看的恐怖电影
 
-> 原文:[https://life hacker . com/the-best-the-fright-to-watch-the-dead-of-the-dead-of-wind-1840830945](https://lifehacker.com/the-best-horror-movies-to-watch-in-the-dead-of-winter-1840830945)
+> 原文：<https://lifehacker.com/the-best-horror-movies-to-watch-in-the-dead-of-winter-1840830945>
 
 他们说复仇是一道最好冷盘——恐怖电影也是如此。是什么让冬天成为恐怖电影的完美背景？好吧，看一看*闪亮*或*悲惨*，冬天的严酷让我们的主角无能为力，无法逃脱他们的杀手。下面，我们挑选了几部在寒冷的冬夜观看的最佳恐怖电影，以防你患了严重的幽居病。
 

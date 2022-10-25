@@ -1,6 +1,6 @@
 # 通过调整对比度，让您的三星 Galaxy 键盘更易于输入
 
-> 原文:[https://life hacker . com/make-your-Samsung-galaxys-keyboard-easy-to-type-on-by-1841875517](https://lifehacker.com/make-your-samsung-galaxys-keyboard-easier-to-type-on-by-1841875517)
+> 原文：<https://lifehacker.com/make-your-samsung-galaxys-keyboard-easier-to-type-on-by-1841875517>
 
 Android 的一大优点是你有大量不同的键盘可供选择。虽然你可能知道如何用新的东西替换默认键盘，但你可能没有意识到，你的三星 Galaxy 手机也附带了一种让默认键盘更容易使用的方法。
 

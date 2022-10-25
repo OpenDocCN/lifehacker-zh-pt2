@@ -1,6 +1,6 @@
 # 你的 MacBook 充电方向不对吗？
 
-> 原文:[https://life hacker . com/are-you-charging-your-macbook-on-the-side-1843045306](https://lifehacker.com/are-you-charging-your-macbook-on-the-wrong-side-1843045306)
+> 原文：<https://lifehacker.com/are-you-charging-your-macbook-on-the-wrong-side-1843045306>
 
 是的，你没看错标题。将设备连接到两侧带有 Thunderbolt/USB-C 端口的 M acBook 显然有种“正确”和“错误”的方式。操作不当会影响计算机的性能。
 

@@ -1,6 +1,6 @@
 # 通过在商店取回现金来避免 ATM 费用
 
-> 原文:[https://life hacker . com/avoid-ATM-fees-by-get-cash-back-in-the-store-1838254492](https://lifehacker.com/avoid-atm-fees-by-getting-cash-back-at-the-store-1838254492)
+> 原文：<https://lifehacker.com/avoid-atm-fees-by-getting-cash-back-at-the-store-1838254492>
 
 避免银行费用是财务健康的支柱之一，但在你需要现金的意外时刻，这可能很难实现。为什么你要付钱在自动取款机上取你自己的钱，仅仅因为这台机器是由另一家银行操作的？如果你曾经在需要一点现金的时候被一台网络外的 ATM 机逼得走投无路，那就看看那台提款机。你看到附近有大型连锁超市或药店吗？如果是这样，你很幸运。你可以在收银台取回现金。
 

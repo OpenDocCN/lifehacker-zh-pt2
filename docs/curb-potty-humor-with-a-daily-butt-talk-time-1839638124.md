@@ -1,6 +1,6 @@
 # 用每天的“屁股谈话时间”来抑制低级幽默
 
-> 原文:[https://life hacker . com/curb-potty-humor-with-a-daily-butt-talk-time-1839638124](https://lifehacker.com/curb-potty-humor-with-a-daily-butt-talk-time-1839638124)
+> 原文：<https://lifehacker.com/curb-potty-humor-with-a-daily-butt-talk-time-1839638124>
 
 五岁的时候便便很有趣。好吧，我知道，所有年龄的人都可能喜欢一个好的屁笑话。但是偶尔，*可能会让*厌倦你孩子的无聊笑话——尤其是在餐桌上——如果你对此反应强烈，你可能只会怂恿他们。他们试图激怒你；这是一次权力之旅。
 

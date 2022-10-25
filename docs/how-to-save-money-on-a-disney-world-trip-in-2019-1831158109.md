@@ -1,6 +1,6 @@
 # 如何在 2019 年的迪士尼世界旅行中省钱
 
-> 原文:[https://life hacker . com/how-to-save-money-on-a-Disney-world-trip-2019-1831158109](https://lifehacker.com/how-to-save-money-on-a-disney-world-trip-in-2019-1831158109)
+> 原文：<https://lifehacker.com/how-to-save-money-on-a-disney-world-trip-in-2019-1831158109>
 
 如果去迪士尼旅行是你 2019 年的计划，提前计划是值得的。迪士尼更新了 2019 年的票务系统，因此多日公园门票现在处于浮动范围内，门票价格由你计划第一次参观公园的日期决定。如果你计划得当，有很多方法可以帮你省下一些钱，同时还能玩得开心。
 

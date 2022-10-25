@@ -1,6 +1,6 @@
 # 你应该暂停找工作吗？
 
-> 原文:[https://life hacker . com/should-you-put-you-you-job-search-on-hold-1842727580](https://lifehacker.com/should-you-put-your-job-search-on-hold-1842727580)
+> 原文：<https://lifehacker.com/should-you-put-your-job-search-on-hold-1842727580>
 
 如果你正在求职，最近的国际事件可能会让你重新审视自己的职业规划。公司 [停止了](https://lifehacker.com/before-you-apply-for-a-job-during-the-pandemic-check-t-1842568418) 的招聘过程，失业申请暴涨，人们在他们的州 [失业](https://twocents.lifehacker.com/how-unemployment-benefits-are-changing-with-the-senate-1842494496) 系统中导航，他们的耐心值得嘉奖。
 

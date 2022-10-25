@@ -1,6 +1,6 @@
 # 农家干酪搅打得更好
 
-> 原文:[https://life hacker . com/cottage-cheese-is-even-better-whipped-1834726636](https://lifehacker.com/cottage-cheese-is-even-better-whipped-1834726636)
+> 原文：<https://lifehacker.com/cottage-cheese-is-even-better-whipped-1834726636>
 
 我全心全意地喜欢农家奶酪，但它并没有最性感的名声，而且对于那些有质地问题的人来说，它可能是一个挑战。但是，即使是最挑剔的乳制品爱好者也可以享受这种咸味、奶油味、扑鼻的乳制品——你只需要先搅拌一下。
 

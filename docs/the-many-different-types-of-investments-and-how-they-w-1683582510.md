@@ -1,6 +1,6 @@
 # 不同类型的投资及其运作方式
 
-> 原文:[https://life hacker . com/the-many-different-type-of-investments-and-how-thew-1683582510](https://lifehacker.com/the-many-different-types-of-investments-and-how-they-w-1683582510)
+> 原文：<https://lifehacker.com/the-many-different-types-of-investments-and-how-they-w-1683582510>
 
 大多数人都听说过股票和债券，但是还有很多其他的投资方式:共同基金、CD、房地产...这个清单似乎是无穷无尽的。这是我们对不同投资类型及其运作方式的参考指南。
 

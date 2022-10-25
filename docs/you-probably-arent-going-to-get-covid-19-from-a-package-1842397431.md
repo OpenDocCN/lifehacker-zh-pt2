@@ -1,6 +1,6 @@
 # 你可能不会从一个包裹里得到新冠肺炎
 
-> 原文:[https://life hacker . com/you-possible-parent-to-get-from-a-package-1842397431](https://lifehacker.com/you-probably-arent-going-to-get-covid-19-from-a-package-1842397431)
+> 原文：<https://lifehacker.com/you-probably-arent-going-to-get-covid-19-from-a-package-1842397431>
 
 社交距离意味着很多人会避开商店。取决于你住在哪里，这些商店甚至可能会暂时关闭。所有这一切都意味着，我们在网上购物的次数会比平时多一些。那些递送的包裹也伴随着一个相当大的问题:它们安全吗？
 

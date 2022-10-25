@@ -1,6 +1,6 @@
 # 为什么我的 Mac 很慢，我该如何解决？
 
-> 原文:[https://life hacker . com/why-is-my-MAC-so-slow-and-how-do-I-fix-it-1837065409](https://lifehacker.com/why-is-my-mac-so-slow-and-how-do-i-fix-it-1837065409)
+> 原文：<https://lifehacker.com/why-is-my-mac-so-slow-and-how-do-i-fix-it-1837065409>
 
 在本周的 [**技术建议专栏**](https://lifehacker.com/c/tech-911) 中，我们正在解决一个最古老也是最常见的问题——我们在网上看到了这个问题，它一次又一次地被朋友和爱人纠缠着:“我的电脑很慢，我不知道如何让它再快一点。”
 

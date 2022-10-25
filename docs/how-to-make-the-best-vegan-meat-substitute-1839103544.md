@@ -1,6 +1,6 @@
 # 如何做出最好的素食肉酱面
 
-> 原文:[https://life hacker . com/how-to-make-the-best-vegan-meat-substitute-1839103544](https://lifehacker.com/how-to-make-the-best-vegan-meat-substitute-1839103544)
+> 原文：<https://lifehacker.com/how-to-make-the-best-vegan-meat-substitute-1839103544>
 
 在所有这些不可思议的近似肉类上市之前，蘑菇是素食和纯素食菜肴中的无肉主力。虽然新的人造动物蛋白已经使蔬菜汉堡超越了两个小面包之间的土豆汉堡，但我敦促你不要忘记蘑菇作为肉类替代品，特别是如果你正在寻找一些东西来代替碎牛肉的话。
 

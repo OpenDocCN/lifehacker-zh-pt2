@@ -1,6 +1,6 @@
 # 如何在脸书找到便宜的家具出售
 
-> 原文:[https://life hacker . com/how-to-find-cheap-furniture-on-Facebook-1838403738](https://lifehacker.com/how-to-find-cheap-furniture-for-sale-on-facebook-1838403738)
+> 原文：<https://lifehacker.com/how-to-find-cheap-furniture-for-sale-on-facebook-1838403738>
 
 如果你想用很少的钱甚至不用钱来装修你的家，你很快就会发现(也许是在用塑料储物盒当茶几的时候)这是一件很麻烦的事情。但是你并不总是有钱来解决这个问题，以便在你的新住处快速买到像样的家具。所以你在 Craigslist 上和某人玩来回的电子邮件谈判游戏，或者祈祷你在邻居加入之前得到了的免费自行车优惠。
 

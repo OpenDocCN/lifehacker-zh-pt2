@@ -1,6 +1,6 @@
 # 如何提前为孩子准备早餐
 
-> 原文:[https://life hacker . com/how-to-prep-your-kids-breakfast-advance-1837714313](https://lifehacker.com/how-to-prep-your-kids-breakfast-in-advance-1837714313)
+> 原文：<https://lifehacker.com/how-to-prep-your-kids-breakfast-in-advance-1837714313>
 
 有孩子的早晨是残酷的。不管你认为自己准备得有多充分，或者你多早就设法把自己(和其他人)从床上拉起来，仍然会有很多事情发生。有那么多要刷的牙，要穿的衣服，要收拾的东西，要忽略的牢骚。
 

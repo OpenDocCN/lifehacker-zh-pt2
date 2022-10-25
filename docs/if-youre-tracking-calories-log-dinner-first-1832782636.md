@@ -1,6 +1,6 @@
 # 如果你在追踪卡路里，首先记录晚餐
 
-> 原文:[https://life hacker . com/if-you-tracking-calories-log-dinner-first-1832782636](https://lifehacker.com/if-youre-tracking-calories-log-dinner-first-1832782636)
+> 原文：<https://lifehacker.com/if-youre-tracking-calories-log-dinner-first-1832782636>
 
 跟踪你吃的东西很像预算:你一整天都有一定量的卡路里或营养物质可以“消耗”。计划是关键，这可能有点伤脑筋:如果我在早餐上消耗了太多卡路里怎么办？晚餐时我会饿吗？
 

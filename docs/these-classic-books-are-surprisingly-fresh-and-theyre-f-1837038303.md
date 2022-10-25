@@ -1,6 +1,6 @@
 # 这些经典书籍出奇的新鲜，而且是免费的
 
-> 原文:[https://life hacker . com/这些经典书籍出奇的新鲜](https://lifehacker.com/these-classic-books-are-surprisingly-fresh-and-theyre-f-1837038303)
+> 原文：<https://lifehacker.com/these-classic-books-are-surprisingly-fresh-and-theyre-f-1837038303>
 
 有些旧书真的有一种发霉的感觉，里面的文字就像古老的精装书一样布满灰尘。但是有些旧书还是感觉很新。我请著名的文学人物和评论家推荐一本令人惊讶的新鲜经典书籍——一本生动活泼、通俗易懂或与今天相关的书。而且因为这些书大部分都在公共领域，你可以免费或便宜地阅读。
 

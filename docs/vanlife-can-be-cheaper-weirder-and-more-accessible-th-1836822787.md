@@ -1,6 +1,6 @@
 # vanlife can be cheaper weirder and more accessible th 1836822787
 
-> 原文:[https://jalopnik . com/van life-can-be-price-vergear-and-accessible-th-1836822787](https://jalopnik.com/vanlife-can-be-cheaper-weirder-and-more-accessible-th-1836822787)
+> 原文：<https://jalopnik.com/vanlife-can-be-cheaper-weirder-and-more-accessible-th-1836822787>
 
 我在凤凰城沃尔玛停车场的一辆货车里醒来，确信自己窒息了。
 

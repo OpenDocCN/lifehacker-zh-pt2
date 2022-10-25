@@ -1,6 +1,6 @@
 # 所以你想成为一名意大利肉球运动员
 
-> 原文:[https://the take out . com/recipe-Italian-猪肉牛肉丸子-1833410642](https://thetakeout.com/recipe-italian-pork-and-beef-meatball-1833410642)
+> 原文：<https://thetakeout.com/recipe-italian-pork-and-beef-meatball-1833410642>
 
 在我的旅行中，我曾在沙拉上咀嚼松脆的死蟋蟀，就像它们是油炸面包丁一样，并锯断橡胶层的皮肤和脂肪，以获得烤豚鼠的肉。但是，尽管我认为自己是一个喜欢冒险的食客，但在意大利餐馆，我可以成为一个可以预测的习惯动物。如果你和我一起吃饭，你可以开始打赌我会花几秒钟问你:“如果我点一些肉丸，你会吃吗？”
 

@@ -1,6 +1,6 @@
 # 如何将谷歌日历变成太空入侵者
 
-> 原文:[https://life hacker . com/how-to-turn-Google-calendar-into-space-invaders-1833721145](https://lifehacker.com/how-to-turn-google-calendar-into-space-invaders-1833721145)
+> 原文：<https://lifehacker.com/how-to-turn-google-calendar-into-space-invaders-1833721145>
 
 谷歌 2019 年的愚人节噱头非常有趣。不仅可以把 [地图变成*蛇*](https://lifehacker.com/how-to-access-the-snake-easter-egg-in-google-maps-1833700845)T5】的游戏，还可以把谷歌日历变成街机经典*太空入侵者*。 
 

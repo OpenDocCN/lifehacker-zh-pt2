@@ -1,6 +1,6 @@
 # 防止您的 Mac 制作加密电子邮件的纯文本副本
 
-> 原文:[https://life hacker . com/prevent-your-MAC-from-make-plain-text-copy-of-your-1839779443](https://lifehacker.com/prevent-your-mac-from-making-plain-text-copies-of-your-1839779443)
+> 原文：<https://lifehacker.com/prevent-your-mac-from-making-plain-text-copies-of-your-1839779443>
 
 IT 大师 Bob Gendler 上周在媒体上分享了一个关于苹果邮件的惊人发现。如果你将应用程序配置为发送和接收加密的电子邮件——没有正确的解密密钥，任何人都无法读取这些信息——苹果的数字助理会将你的电子邮件*以纯文本*的形式存储在你的 Mac 硬盘上。
 

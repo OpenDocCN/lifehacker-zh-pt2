@@ -1,6 +1,6 @@
 # 如何用 Alexa 定制亚马逊音乐
 
-> 原文:[https://life hacker . com/how-to-customize-Amazon-music-with-Alexa-1830944746](https://lifehacker.com/how-to-customize-amazon-music-with-alexa-1830944746)
+> 原文：<https://lifehacker.com/how-to-customize-amazon-music-with-alexa-1830944746>
 
 Alexa 长期以来一直能够响应特定音乐流派、情绪和播放列表的请求。现在，她还可以帮助你管理和个性化播放列表，并记住你未来的偏好。
 

@@ -1,6 +1,6 @@
 # 今年秋天你应该考虑一所认证的在线学校吗？
 
-> 原文:[https://life hacker . com/should-you-this-fa-1844575656](https://lifehacker.com/should-you-consider-an-accredited-online-school-this-fa-1844575656)
+> 原文：<https://lifehacker.com/should-you-consider-an-accredited-online-school-this-fa-1844575656>
 
 这是目前许多家长心中正在进行的辩论，尤其是如果我们的学校领导把决定权留给我们:我们让我们的孩子回到教室吗？如果学校提供全虚拟选项，我们会选择吗？我们 [创办自己的学习合作社](https://offspring.lifehacker.com/how-to-start-your-own-learning-co-op-at-home-1844394666) 吗？在这种令人抓狂的“双输-双输”局面下，经常被忽略的是另一种选择:你也可以把他们送到一所认证的网上学校学习一个学期或一整年。
 

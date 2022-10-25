@@ -1,6 +1,6 @@
 # im paul goodloe meteorologist at the weather channel 1834710496
 
-> 原文:[https://life hacker . com/im-Paul-good loe-气象专家-天气频道-1834710496](https://lifehacker.com/im-paul-goodloe-meteorologist-at-the-weather-channel-1834710496)
+> 原文：<https://lifehacker.com/im-paul-goodloe-meteorologist-at-the-weather-channel-1834710496>
 
 作为一名资深的直播气象学家，保罗·古德洛报道过暴风雪、洪水、火灾和飓风的现场——这里是他在北卡罗莱纳州报道佛罗伦萨飓风时试图保持直立的镜头。今天，他在天气频道联合主持 [*【周末充值】*](http://weathergroup.com/shows/weekend-recharge-show-page) 。这是他为人父母的方式。
 

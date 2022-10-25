@@ -1,6 +1,6 @@
 # 关注孩子的健康，而不是他们的体重
 
-> 原文:[https://life hacker . com/focus-on-your-kids-health-not-their-weight-1837439324](https://lifehacker.com/focus-on-your-kids-health-not-their-weight-1837439324)
+> 原文：<https://lifehacker.com/focus-on-your-kids-health-not-their-weight-1837439324>
 
 最近，WW 公司——前身为 Weight Watchers——推出了一款名为 Kurbo 的儿童“健康指导”应用程序。显然 [意为减肥](https://kurbo.com/success-stories/) ，尽管节食对许多孩子来说并不合适，而且会导致饮食紊乱。管理孩子体重的健康方法应该集中在建立健康的饮食和锻炼习惯， [指南说](https://www.niddk.nih.gov/health-information/weight-management/helping-your-child-who-is-overweight#habits) ，而不是节食。
 

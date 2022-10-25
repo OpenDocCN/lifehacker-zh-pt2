@@ -1,6 +1,6 @@
 # 如何为无消费月做准备
 
-> 原文:[https://life hacker . com/how-to-prepare for a-no-spend-month-1831401525](https://lifehacker.com/how-to-prepare-for-a-no-spend-month-1831401525)
+> 原文：<https://lifehacker.com/how-to-prepare-for-a-no-spend-month-1831401525>
 
 如果你打算跟随少数 Lifehacker 的员工参加一月 的无消费活动，你会想在投入之前做一些准备。
 

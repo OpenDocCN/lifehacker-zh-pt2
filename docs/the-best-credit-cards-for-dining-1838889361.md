@@ -1,6 +1,6 @@
 # 用餐的最佳信用卡
 
-> 原文:[https://life hacker . com/the-best-credit-for-dining-1838889361](https://lifehacker.com/the-best-credit-cards-for-dining-1838889361)
+> 原文：<https://lifehacker.com/the-best-credit-cards-for-dining-1838889361>
 
 奖励信用卡曾经是相当标准的:你可以获得航空里程，你可以获得酒店积分，或者你可以获得现金返还。但随着信用卡开始用基于积分的奖励来奖励各种类型的消费，而不仅仅是简单的现金返还，其中一个突出的类别是餐饮。自从最初的餐馆俱乐部签帐卡以来，我们已经走过了漫长的道路。外出就餐曾经是特殊场合的专属，现在已经成为许多人日常生活的一部分，也是获得信用卡奖励的一种有利可图的方式。
 

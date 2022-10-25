@@ -1,6 +1,6 @@
 # “雪人”是新的“刽子手”
 
-> 原文:[https://life hacker . com/snowman-is-the-new-hangman-1838402655](https://lifehacker.com/snowman-is-the-new-hangman-1838402655)
+> 原文：<https://lifehacker.com/snowman-is-the-new-hangman-1838402655>
 
 过去，当我们发现自己不得不打发时间的时候——这是经常发生的，因为没有手机——我们通过挂简笔画来练习拼写技能。
 

@@ -1,6 +1,6 @@
 # 为什么你总是坐红眼航班
 
-> 原文:[https://life hacker . com/why-you-should-always-fly-the-red-eye-1836316302](https://lifehacker.com/why-you-should-always-fly-the-red-eye-1836316302)
+> 原文：<https://lifehacker.com/why-you-should-always-fly-the-red-eye-1836316302>
 
 每个讨厌坐飞机的人都有自己减轻机场压力的方式，从 [美味小吃](https://skillet.lifehacker.com/why-i-buy-all-of-my-plane-snacks-from-trader-joes-1793461509) 到强效抗焦虑药物，再到在起飞前 8 小时出现。我的情况有点不寻常:作为一个紧张不安的持卡人，如果我*有*时间登机，最好是红眼航班——尤其是当我跨越多个时区的时候。
 

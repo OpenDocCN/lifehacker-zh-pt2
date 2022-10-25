@@ -1,6 +1,6 @@
 # 如何直播周一的英仙座流星雨
 
-> 原文:[https://life hacker . com/how-to-live stream-the-perseid-meteor-shower-on-Monday-1837149834](https://lifehacker.com/how-to-livestream-the-perseid-meteor-shower-on-monday-1837149834)
+> 原文：<https://lifehacker.com/how-to-livestream-the-perseid-meteor-shower-on-monday-1837149834>
 
 英仙座流星雨在周一和周二晚上达到高峰。这被认为是今年最好的流星雨之一，是太空迷们不想错过的。
 

@@ -1,6 +1,6 @@
 # 5 月 15-17 日这个周末看什么
 
-> 原文:[https://life hacker . com/what-to-watch-this-weekend-may-15-17-1843465394](https://lifehacker.com/what-to-watch-this-weekend-may-15-17-1843465394)
+> 原文：<https://lifehacker.com/what-to-watch-this-weekend-may-15-17-1843465394>
 
 你有没有想过谁会做出更好的玉米片:比利·穆雷还是盖伊·菲力？好吧，今晚你就能知道这两个人什么时候在一场“玉米片平均摊牌”中一决雌雄
 

@@ -1,6 +1,6 @@
 # 如何制作 Lumpia Shanghai，这种菲律宾蛋卷会让整个街区的人都喜欢
 
-> 原文:[https://the take out . com/recipe-lumpia-Shanghai-Philippe-egg-rolls-1837563018](https://thetakeout.com/recipe-lumpia-shanghai-filipino-egg-rolls-1837563018)
+> 原文：<https://thetakeout.com/recipe-lumpia-shanghai-filipino-egg-rolls-1837563018>
 
 我岳母最好的朋友是一位菲律宾妇女，她最喜欢的事情是举办精心准备的宴会，这基本上会让邻居关闭几个小时，因为每个人都会过来。
 

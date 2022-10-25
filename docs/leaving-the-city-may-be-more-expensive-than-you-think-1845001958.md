@@ -1,6 +1,6 @@
 # 离开这座城市的代价可能比你想象的要高
 
-> 原文:[https://life hacker . com/leaving-the-city-may-be-Billy-than-you-think-1845001958](https://lifehacker.com/leaving-the-city-may-be-more-expensive-than-you-think-1845001958)
+> 原文：<https://lifehacker.com/leaving-the-city-may-be-more-expensive-than-you-think-1845001958>
 
 3 月以来，不断有[报道](https://www.wsj.com/articles/remote-work-is-reshaping-san-francisco-as-tech-workers-flee-and-rents-fall-11597413602) 的疫情式招式。正如美国消费者新闻与商业频道报道的那样，随着人们从城市搬到有更多隐私和空间在家工作的家中，我们可能正处于“大洗牌”的边缘。虽然搬到郊区可能很有吸引力——尤其是在疫情——但它的成本可能比你想象的要高。
 

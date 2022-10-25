@@ -1,6 +1,6 @@
 # 生病的日子:保持世界运转的人们的故事
 
-> 原文:[https://gizmodo . com/sick-days-stories-from-people-keeping-the-world-running-1842410993](https://gizmodo.com/sick-days-stories-from-people-keeping-the-world-runnin-1842410993)
+> 原文：<https://gizmodo.com/sick-days-stories-from-people-keeping-the-world-runnin-1842410993>
 
 这是《生病的日子》的第一版，这是一个新系列，记录了在冠状病毒疫情期间工作是如何变化的，正如工人们自己所说的那样。本周，我们听到了来自一位医疗工作者、一位小企业主、一位航空工作人员以及更多人的声音。如果你想提交一个故事，使用 [*这个谷歌表单*](https://forms.gle/KRwaNyGKrbmxeqGH7) *，并阅读* [*这个帖子*](https://gizmodo.com/locked-indoors-laid-off-tell-us-how-coronavirus-is-af-1842376959) *来了解更多关于这个项目的信息。提交的内容在长度、语法和清晰度方面都经过了编辑，Gizmodo 已经核实了作者的身份和工作地点。*
 

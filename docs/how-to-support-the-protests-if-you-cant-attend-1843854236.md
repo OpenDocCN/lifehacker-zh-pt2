@@ -1,6 +1,6 @@
 # 如果你不能参加，如何支持抗议活动
 
-> 原文:[https://life hacker . com/how-to-support-the-sports-if you-can-attend-1843854236](https://lifehacker.com/how-to-support-the-protests-if-you-cant-attend-1843854236)
+> 原文：<https://lifehacker.com/how-to-support-the-protests-if-you-cant-attend-1843854236>
 
 乔治·弗洛伊德和无数其他美国黑人被谋杀后，数百(数千？)的抗议活动已经在这个国家的每个角落涌现，要求正义和问责，并对这个国家赖以建立的结构性种族主义进行永久性的系统性变革。在这样一个种族正义和人类尊严的关键时刻，抗议活动的数量之多会让你很难看到和选择如何支持和参与。
 

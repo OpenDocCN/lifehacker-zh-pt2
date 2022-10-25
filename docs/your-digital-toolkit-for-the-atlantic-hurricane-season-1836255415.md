@@ -1,6 +1,6 @@
 # 使用这些应用和网站在飓风季节保持安全
 
-> 原文:[https://life hacker . com/your-digital-toolkit-for-the-Atlantic-hurricane-season-1836255415](https://lifehacker.com/your-digital-toolkit-for-the-atlantic-hurricane-season-1836255415)
+> 原文：<https://lifehacker.com/your-digital-toolkit-for-the-atlantic-hurricane-season-1836255415>
 
 看起来新奥尔良将在周六遭受一场潜在的一级飓风的袭击。我家一半的人来自新奥尔良，我可以自信地说，我们中没有人会对一只猫感到紧张。然而，也许问题不在于风，而在于飓风巴里； [是水](https://earther.gizmodo.com/new-orleans-faces-catastrophic-flooding-ahead-of-possib-1836245310) 。
 

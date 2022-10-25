@@ -1,6 +1,6 @@
 # 使用此应用程序快速查找附近的摩托车
 
-> 原文:[https://life hacker . com/quick-find-a nearly-scooter-using-this-app-1833986341](https://lifehacker.com/quickly-find-a-nearby-scooter-using-this-app-1833986341)
+> 原文：<https://lifehacker.com/quickly-find-a-nearby-scooter-using-this-app-1833986341>
 
 无可否认，我不愿意接受正在渗透我们城市的小型摩托车。在我住的旧金山街区，你必须时刻保持警惕，确保没有经验的骑车人不会在人行道上撞倒你，而且在周末，人行道也经常被成堆的自行车堵塞。我讨厌他们。但是在我的家乡北卡罗莱纳州，那里的人要少得多，我看到了它的吸引力。
 

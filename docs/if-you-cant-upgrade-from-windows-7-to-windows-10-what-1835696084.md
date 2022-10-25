@@ -1,6 +1,6 @@
 # 如果无法从 Windows 7 升级到 Windows 10，该怎么办？
 
-> 原文:[https://life hacker . com/if-you-cant-upgrade-from-windows-7-to-windows-10-what-1835696084](https://lifehacker.com/if-you-cant-upgrade-from-windows-7-to-windows-10-what-1835696084)
+> 原文：<https://lifehacker.com/if-you-cant-upgrade-from-windows-7-to-windows-10-what-1835696084>
 
 虽然我总是建议升级到你正在使用的任何软件的最新和最好的版本，但如果你运行的是已经很难运行的旧设备，这可能不是最好的选择。对于操作系统来说尤其如此——尽管有时甚至你的旧设备 [也能从操作系统升级中获益](http://www.iphonehacks.com/2018/09/ios-12-performance-improvements-tested-iphone-5s-6-ipad-mini-2.html) 。
 

@@ -1,6 +1,6 @@
 # 如何获得取消夏季计划的退款
 
-> 原文:[https://life hacker . com/how-to-get-a-return for-your ' s canceled-summer-plans-1842999604](https://lifehacker.com/how-to-get-a-refund-for-your-canceled-summer-plans-1842999604)
+> 原文：<https://lifehacker.com/how-to-get-a-refund-for-your-canceled-summer-plans-1842999604>
 
 夏天传统上是克服你对过山车的恐惧或者和你的船员在音乐节上挤在草坪上的时候——但今年夏天不是。疫情冠状病毒的传播速度还不够慢，不足以让大规模的夏季聚会看起来是明智的，甚至是可能的，许多重大活动已经被推迟，甚至完全取消。或许是时候让你开始思考在物理距离时代的暑假是什么样子了——并为你可能已经购买的任何门票或季票争取退款。
 

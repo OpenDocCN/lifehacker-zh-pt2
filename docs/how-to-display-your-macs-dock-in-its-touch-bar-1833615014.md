@@ -1,6 +1,6 @@
 # 如何在触摸栏中显示 Mac 的 Dock
 
-> 原文:[https://life hacker . com/how-to-display-your-MAC-dock-in-its-touch-bar-1833615014](https://lifehacker.com/how-to-display-your-macs-dock-in-its-touch-bar-1833615014)
+> 原文：<https://lifehacker.com/how-to-display-your-macs-dock-in-its-touch-bar-1833615014>
 
 不管你怎么说 Touch Bar，但它是 MacBook Pro 的一个固定设备，我们可能需要处理一段时间。老实说，这并不坏——就像不时弹出的梦寐以求的“有机发光二极管键盘”一样，似乎没有人购买，拥有一个单独的微型显示器很有趣，你可以用它来进行各种富有成效或愚蠢的体验。
 

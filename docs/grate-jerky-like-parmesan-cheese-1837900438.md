@@ -1,6 +1,6 @@
 # 磨碎像帕尔马干酪一样的肉干
 
-> 原文:[https://life hacker . com/grate-jerky-like-parmesan-cheese-1837900438](https://lifehacker.com/grate-jerky-like-parmesan-cheese-1837900438)
+> 原文：<https://lifehacker.com/grate-jerky-like-parmesan-cheese-1837900438>
 
 由于上世纪 90 年代对蛋白质的狂热，我的学校午餐盒里经常塞满了奶酪条、牛肉干和(与蛋白质无关的)SnackWell 小吃店(那种有薄薄的起伏状糖衣的小吃)。脱水肉让我有点焦头烂额，但是——多亏了 Paleo，等等。——牛肉干正在复苏，它已经变得*奇特*。
 

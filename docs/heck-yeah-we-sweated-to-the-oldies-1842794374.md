@@ -1,6 +1,6 @@
 # 是的，我们流汗到老
 
-> 原文:[https://life hacker . com/heck-yeah-we-sweat-to-the-oldies-1842794374](https://lifehacker.com/heck-yeah-we-sweated-to-the-oldies-1842794374)
+> 原文：<https://lifehacker.com/heck-yeah-we-sweated-to-the-oldies-1842794374>
 
 本月的主题是做让我们微笑的锻炼，所以本周我请你们所有人 [和我一起观看理查德·西蒙斯的视频](https://vitals.lifehacker.com/for-this-weeks-fitness-challenge-were-sweatin-with-ric-1842729598) 。如果你还没有机会做，只需 [点击这里](https://www.youtube.com/watch?v=2wvV6wdXM_M) ，给它 10 分钟。或者只做前半部分。
 

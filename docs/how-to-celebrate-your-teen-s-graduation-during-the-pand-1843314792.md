@@ -1,6 +1,6 @@
 # 如何在疫情庆祝你孩子的毕业
 
-> 原文:[https://life hacker . com/how-to-庆祝你的青少年毕业日-1843314792](https://lifehacker.com/how-to-celebrate-your-teen-s-graduation-during-the-pand-1843314792)
+> 原文：<https://lifehacker.com/how-to-celebrate-your-teen-s-graduation-during-the-pand-1843314792>
 
 本月，数百万高中毕业生将结束他们的最后一门课，提交他们的最后一份作业，参加他们的期末考试。他们漫长的毕业之旅就要结束了，他们可能不会和所有的同学一起走过讲台、握手或向空中抛帽子。但是他们*做*仍然值得庆祝——还有*做*，他们仍然可以拥有。
 

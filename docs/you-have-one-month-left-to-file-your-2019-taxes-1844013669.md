@@ -1,6 +1,6 @@
 # 你还有一个月的时间来申报 2019 年的税收
 
-> 原文:[https://life hacker . com/you-hacker-your-2019-taxes-1844013669](https://lifehacker.com/you-have-one-month-left-to-file-your-2019-taxes-1844013669)
+> 原文：<https://lifehacker.com/you-have-one-month-left-to-file-your-2019-taxes-1844013669>
 
 纳税日快到了。你忘了吗？我不怪你。美国最糟糕的年度假期早在三月份就从 4 月 15 日挪到了 7 月 15 日，如果你不希望得到退款，你可能会把这个任务放在一边。
 

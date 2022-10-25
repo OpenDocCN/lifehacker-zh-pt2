@@ -1,6 +1,6 @@
 # “神奇矿物溶液”不是一种健康疗法，而是一种漂白剂
 
-> 原文:[https://life hacker . com/miracle-mineral-solution-is-a-not-a-health-treatment-its-1837239135](https://lifehacker.com/miracle-mineral-solution-is-not-a-health-treatment-its-1837239135)
+> 原文：<https://lifehacker.com/miracle-mineral-solution-is-not-a-health-treatment-its-1837239135>
 
 你可能不会认为我们需要食品和药物管理局来告诉我们不要喝漂白剂 ，但这就是我们生活的世界:如果你试图寻找癌症或自闭症的替代疗法，迟早你可能会听说一种“神奇的矿物溶液”
 

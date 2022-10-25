@@ -1,6 +1,6 @@
 # 不要混淆你的清洁产品
 
-> 原文:[https://life hacker . com/dont-mix-your-cleaning-products-1843180430](https://lifehacker.com/dont-mix-your-cleaning-products-1843180430)
+> 原文：<https://lifehacker.com/dont-mix-your-cleaning-products-1843180430>
 
 混合口味和功能是烹饪的一个基本功: A dd 柠檬汁是为了酸，帕尔马干酪是为了鲜味，你懂的。但是对于清洁产品来说，组合不仅仅是各部分的总和。有些对你的健康有害。确保避免混合以下物质:
 

@@ -1,6 +1,6 @@
 # 确保你的决心包括三个 p
 
-> 原文:[https://life hacker . com/make-sure-your-resolutions-include-the-three-PS-1831435936](https://lifehacker.com/make-sure-your-resolutions-include-the-three-ps-1831435936)
+> 原文：<https://lifehacker.com/make-sure-your-resolutions-include-the-three-ps-1831435936>
 
 现在你已经从新年前夜的宿醉中完全恢复了，是时候认真对待这些决心了。如果你还没有设置，那也没关系；这里有一些来自 100 多年前的名人的建议。
 

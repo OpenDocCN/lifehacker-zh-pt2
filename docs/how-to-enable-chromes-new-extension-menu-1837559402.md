@@ -1,6 +1,6 @@
 # 如何启用 Chrome 新的扩展菜单
 
-> 原文:[https://life hacker . com/how-to-enable-chromes-new-extension-menu-1837559402](https://lifehacker.com/how-to-enable-chromes-new-extension-menu-1837559402)
+> 原文：<https://lifehacker.com/how-to-enable-chromes-new-extension-menu-1837559402>
 
 如果你通读了我在 Lifehacker 上的帖子，你会很快发现我是浏览器扩展的粉丝。我为浏览器添加了黑暗模式的扩展，显示网站预览的扩展，这样我就不用打开标签页了，甚至还有一个浏览器扩展来帮助我管理我打开的所有标签页。
 

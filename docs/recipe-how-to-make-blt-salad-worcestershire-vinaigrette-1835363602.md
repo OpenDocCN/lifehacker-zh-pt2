@@ -1,6 +1,6 @@
 # 如何用伍斯特郡油醋汁制作 BLT 沙拉
 
-> 原文:[https://the take out . com/recipe-how-to-make-BLT-salad-Worcester shire-vinaigrette-1835363602](https://thetakeout.com/recipe-how-to-make-blt-salad-worcestershire-vinaigrette-1835363602)
+> 原文：<https://thetakeout.com/recipe-how-to-make-blt-salad-worcestershire-vinaigrette-1835363602>
 
 几年前，我和丈夫是一对精力充沛、热爱旅行的夫妇，而不是像现在这样整天呆在沙发上，我们去佛蒙特州和蒙特利尔进行了一次可爱的秋季旅行。
 

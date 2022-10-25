@@ -1,6 +1,6 @@
 # 你可能不用付医药费了
 
-> 原文:[https://life hacker . com/you-may-not-to-pay the medical-bill-1832618960](https://lifehacker.com/you-might-not-have-to-pay-that-medical-bill-1832618960)
+> 原文：<https://lifehacker.com/you-might-not-have-to-pay-that-medical-bill-1832618960>
 
 下一次你在邮件中收到医疗账单时，打个电话问问你是否真的需要支付，或者账单是否有误是值得的。当涉及到医疗账单时，错误比你想象的更常见。
 

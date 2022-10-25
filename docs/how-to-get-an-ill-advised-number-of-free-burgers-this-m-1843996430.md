@@ -1,6 +1,6 @@
 # 如何在这个月得到一份不明智的免费汉堡
 
-> 原文:[https://life hacker . com/how-to-get-a-ill-advised-number-of-free-burgers-this-m-1843996430](https://lifehacker.com/how-to-get-an-ill-advised-number-of-free-burgers-this-m-1843996430)
+> 原文：<https://lifehacker.com/how-to-get-an-ill-advised-number-of-free-burgers-this-m-1843996430>
 
 如果你是 [免费食物](https://lifehacker.com/tag/free-stuff) 和 [其他交易](https://lifehacker.com/tag/deals) 的粉丝，汉堡王已经为你设置了陷阱，并在整个六月都留下了。快速浏览一下他们网站上的 [【优惠】部分](https://www.bk.com/offers) 就会发现特价商品—包括一些免费汉堡。好奇吗？如果你想整个月都吃免费的快餐来满足你的感情，你需要知道以下几点。
 

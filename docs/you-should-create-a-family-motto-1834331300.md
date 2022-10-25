@@ -1,6 +1,6 @@
 # 你应该创造一个家庭格言
 
-> 原文:[https://life hacker . com/you-should-create-a-family-motto-1834331300](https://lifehacker.com/you-should-create-a-family-motto-1834331300)
+> 原文：<https://lifehacker.com/you-should-create-a-family-motto-1834331300>
 
 几年前，当我们是一个九岁男孩的养父母时，我丈夫和我实施了一条家庭格言。这是在一次寄养父母培训会议上向我们一群人提出的一个建议，这是养育有创伤的孩子时经常使用的一句口头禅:“没有伤害，团结在一起，玩得开心。”
 

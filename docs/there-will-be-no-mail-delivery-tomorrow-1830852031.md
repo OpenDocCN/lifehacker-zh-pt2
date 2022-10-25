@@ -1,6 +1,6 @@
 # 明天将没有邮件递送
 
-> 原文:[https://life hacker . com/they-will-be-no-mail-delivery-tomorrow-1830852031](https://lifehacker.com/there-will-be-no-mail-delivery-tomorrow-1830852031)
+> 原文：<https://lifehacker.com/there-will-be-no-mail-delivery-tomorrow-1830852031>
 
 美国邮政局 [宣布](http://about.usps.com/newsroom/statements/120318-usps-operating-status-national-day-of-mourning.htm) 将在明天为纪念前总统老布什的全国哀悼日暂停邮件递送。全国各地的邮局也将关闭。
 

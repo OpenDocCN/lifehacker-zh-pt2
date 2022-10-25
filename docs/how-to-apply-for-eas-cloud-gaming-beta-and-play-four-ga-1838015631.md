@@ -1,6 +1,6 @@
 # 如何申请 EA 的云游戏测试版，免费玩四款游戏
 
-> 原文:[https://life hacker . com/how-to-apply-for-eas-cloud-gaming-beta-and-play-four-ga-1838015631](https://lifehacker.com/how-to-apply-for-eas-cloud-gaming-beta-and-play-four-ga-1838015631)
+> 原文：<https://lifehacker.com/how-to-apply-for-eas-cloud-gaming-beta-and-play-four-ga-1838015631>
 
 许多最大的游戏公司都认为云游戏 — 从服务器上玩游戏，而不是下载并在个人电脑上运行—是游戏产业的发展方向。电子艺界—Madden、FIFA 和超受欢迎的 battle royale Apex Legends 的制造商— 正在参与即将到来的流媒体技术军备竞赛，它正在寻找帮助该公司测试其 [云游戏功能](https://medium.com/@Electronic_Arts/a-learning-journey-announcing-eas-cloud-gaming-technical-trial-cce0cabf2960) 的人。
 

@@ -1,6 +1,6 @@
 # 最好的酒吧常客是那些安静的人
 
-> 原文:[https://life hacker . com/the-best-bar-regulars-is-the-quiet-one-1835706374](https://lifehacker.com/the-best-bar-regulars-are-the-quiet-ones-1835706374)
+> 原文：<https://lifehacker.com/the-best-bar-regulars-are-the-quiet-ones-1835706374>
 
 成为酒吧的常客很简单——只要经常出现就行。但是成为一个好的常客，一个调酒师真正喜欢的常客，是一门艺术。这是关于克制的。除了知道什么时候应该停止喝酒，以及如何 [不成为一个彻头彻尾的混蛋](https://lifehacker.com/the-best-ways-to-get-a-bartenders-attention-without-be-1745272282) ，在酒吧里享受的秘密包括两件事——从历史上看——我*不*非常擅长:有时保持安静，不要求太多的关注。
 

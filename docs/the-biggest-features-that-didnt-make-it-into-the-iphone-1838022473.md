@@ -1,6 +1,6 @@
 # iPhone 11 中没有的最大功能(哪些手机已经有了)
 
-> 原文:[https://life hacker . com/the-biggest-features-that-make-it-in-the-iphone-1838022473](https://lifehacker.com/the-biggest-features-that-didnt-make-it-into-the-iphone-1838022473)
+> 原文：<https://lifehacker.com/the-biggest-features-that-didnt-make-it-into-the-iphone-1838022473>
 
 苹果刚刚宣布了下一波 iPhone，iPhone 11，iPhone 11 Pro 和 iPhone 11 Pro Max。这三款手机有大量有趣的新功能，其中大部分都围绕着它们花哨、巨大的新相机。虽然有很多令人兴奋的事情，但苹果似乎在剪辑室的地板上留下了一些想法。传闻将出现在新 iPhone 11 上的一些功能最终没有出现在最终产品中，包括双向无线充电，这是一些竞争对手已经有的功能。
 

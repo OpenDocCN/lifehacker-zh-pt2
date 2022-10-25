@@ -1,6 +1,6 @@
 # 如何在谷歌新闻应用中找到恶劣天气警报
 
-> 原文:[https://life hacker . com/how-to-find-hard-weather-alerts-in-the-Google-news-AP-1844728120](https://lifehacker.com/how-to-find-severe-weather-alerts-in-the-google-news-ap-1844728120)
+> 原文：<https://lifehacker.com/how-to-find-severe-weather-alerts-in-the-google-news-ap-1844728120>
 
 你通常会知道坏天气何时向你袭来，无论你是否向天空中看到了夏天雷暴的不祥灰/绿色，你是否有一个花哨的类似黑暗天空的应用程序在气象灾害即将来临时提醒你，或者你一直在阅读新闻——也就是谷歌新闻。
 

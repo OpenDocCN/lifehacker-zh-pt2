@@ -1,6 +1,6 @@
 # 使用 Telegram 免费发送和存储大量文件
 
-> 原文:[https://life hacker . com/send-and-store-high-file-for-free-with telegram-1844522170](https://lifehacker.com/send-and-store-huge-files-for-free-with-telegram-1844522170)
+> 原文：<https://lifehacker.com/send-and-store-huge-files-for-free-with-telegram-1844522170>
 
 是的，电报。你可能知道它是一个聊天应用程序，一些 T2 用它来代替或补充标准的 iOS 或 Android 消息应用程序。我是一个极客，除了典型的之外，我真的不使用任何东西*，但是至少还有一个很好的理由去尝试 Telegram:它为你所有的文件提供免费、无限的存储空间。* 
 

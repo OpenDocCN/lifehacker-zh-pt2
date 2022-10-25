@@ -1,6 +1,6 @@
 # 三星为顾客提供免费的店内设备消毒服务
 
-> 原文:[https://life hacker . com/Samsung-is-offing-free-in-store-device-sanctioning-f-1842315228](https://lifehacker.com/samsung-is-offering-free-in-store-device-disinfection-f-1842315228)
+> 原文：<https://lifehacker.com/samsung-is-offering-free-in-store-device-disinfection-f-1842315228>
 
 紫外线(UV)可能因其对皮肤的伤害强度而闻名，但它也可以用来给你的电子设备消毒，并保护你免受新冠肺炎病毒和其他病毒或细菌的传播。紫外线消毒——特别是使用 UV-C 光——是许多电子维修店的常见做法，因为它避免使用液体或潜在的腐蚀性和有毒化学品。一些公司甚至开始提供 UV-C 清洁服务以应对新冠肺炎的传播，三星用户可以在参与的三星商店免费将他们的设备安全地浸泡在消毒射线中。
 

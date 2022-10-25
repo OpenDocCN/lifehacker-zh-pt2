@@ -1,6 +1,6 @@
 # 如何度过一个负担得起的假期
 
-> 原文:[https://life hacker . com/how-to-take-an-affordable-vacation-1834299635](https://lifehacker.com/how-to-take-an-affordable-vacation-1834299635)
+> 原文：<https://lifehacker.com/how-to-take-an-affordable-vacation-1834299635>
 
 你打算今年度暑假吗？
 

@@ -1,6 +1,6 @@
 # 不能去健身房怎么健身
 
-> 原文:[https://life hacker . com/how-to-work out-when you can-to-the-gym-1842299641](https://lifehacker.com/how-to-work-out-when-you-cant-go-to-the-gym-1842299641)
+> 原文：<https://lifehacker.com/how-to-work-out-when-you-cant-go-to-the-gym-1842299641>
 
 无论你是在 [自我隔离](https://lifehacker.com/what-does-self-quarantine-actually-mean-1842268976) ，你的健身房已经取消了活动作为社交距离的措施，或者你只是想小心谨慎，除了去你通常的健身房或健身班之外，有其他锻炼的选择也是不错的。这里有一些让你自己保持活跃的方法。
 

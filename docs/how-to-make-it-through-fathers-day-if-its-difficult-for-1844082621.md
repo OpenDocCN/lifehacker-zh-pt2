@@ -1,6 +1,6 @@
 # 如果对你来说很难，如何度过父亲节
 
-> 原文:[https://life hacker . com/how-to-make it-through-father-day if-it-did-for-1844082621](https://lifehacker.com/how-to-make-it-through-fathers-day-if-its-difficult-for-1844082621)
+> 原文：<https://lifehacker.com/how-to-make-it-through-fathers-day-if-its-difficult-for-1844082621>
 
 像 [母亲节](https://lifehacker.com/how-to-deal-with-mother-s-day-when-mother-s-day-sucks-f-1795112454)—或者 [大部分节假日](https://lifehacker.com/how-to-make-it-through-the-holidays-after-a-loss-1840200564) ，真的—父亲节可以两极分化。对一些人来说，这是一个有趣的借口，让家人聚在一起(嗯，也许今年不是)吃烧烤，给爸爸送礼。但对其他人来说，它会引发令人不安的记忆。如果你属于第二类，度过六月的第三个星期天会很困难。我们采访了几位心理健康专家，以更好地理解为什么这一天会如此艰难，并获得度过这一天的技巧——无论你是独自一人还是与家人一起度过周日。
 

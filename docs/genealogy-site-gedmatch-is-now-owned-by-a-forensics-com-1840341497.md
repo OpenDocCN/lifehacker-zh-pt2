@@ -1,6 +1,6 @@
 # 家谱网站 GEDMatch 现在归一家法医公司所有
 
-> 原文:[https://life hacker . com/genealogy-site-ged match-is-now-owned-by-a-forensics-com-1840341497](https://lifehacker.com/genealogy-site-gedmatch-is-now-owned-by-a-forensics-com-1840341497)
+> 原文：<https://lifehacker.com/genealogy-site-gedmatch-is-now-owned-by-a-forensics-com-1840341497>
 
 如果你一直在通过[ged match](https://www.gedmatch.com/login1.php)——这曾是一个小众基因谱系网站——探索你的家谱，你应该知道它们已经被法医基因组学公司 、ver ogen[收购。然而，隐私政策并没有改变。](https://verogen.com/gedmatch-partners-with-genomics-firm/)
 

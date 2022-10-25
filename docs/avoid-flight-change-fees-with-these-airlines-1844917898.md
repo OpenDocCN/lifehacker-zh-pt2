@@ -1,6 +1,6 @@
 # 避免这些航空公司的航班变更费用
 
-> 原文:[https://life hacker . com/avoid-flight-change-fees-with-these-airlines-1844917898](https://lifehacker.com/avoid-flight-change-fees-with-these-airlines-1844917898)
+> 原文：<https://lifehacker.com/avoid-flight-change-fees-with-these-airlines-1844917898>
 
 虽然冠状病毒疫情已经暂时停止了大多数美国人的旅行，但主要航空公司的巨大变化可能会使飞行在未来变得更有吸引力。昨天， [达美航空](https://news.delta.com/building-its-demonstrated-commitment-flexibility-customers-delta-eliminates-change-fees) 和 [美国航空](https://news.aa.com/news/news-details/2020/American-Airlines-Improves-the-Travel-Experience-OPS-POL-08/default.aspx) 宣布计划降低国内改签费——这一举措反映了前一天联合航空自己的公告。这些新政策与西南航空公司的现有政策相一致，使免改签费航空公司的数量达到了四家。
 

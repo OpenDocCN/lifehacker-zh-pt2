@@ -1,6 +1,6 @@
 # 在好市多购买环球影城的门票可以享受巨大的折扣
 
-> 原文:[https://life hacker . com/get-a-big-discount-on-universal-studios-tickets-by-pur-1834527183](https://lifehacker.com/get-a-huge-discount-on-universal-studios-tickets-by-pur-1834527183)
+> 原文：<https://lifehacker.com/get-a-huge-discount-on-universal-studios-tickets-by-pur-1834527183>
 
 好市多目前正在进行一项相当大的环球影城门票交易，三场门票价格为 139 美元。从某种角度来看，公园的单日门票通常定价为 109 美元，所以你可以多花 30 美元多待两天。
 

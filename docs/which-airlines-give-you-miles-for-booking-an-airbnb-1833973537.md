@@ -1,6 +1,6 @@
 # 哪个航空公司会给你预订 Airbnb 的里程？
 
-> 原文:[https://life hacker . com/which-airlines-give-you-miles-for-booking-an-Airbnb-1833973537](https://lifehacker.com/which-airlines-give-you-miles-for-booking-an-airbnb-1833973537)
+> 原文：<https://lifehacker.com/which-airlines-give-you-miles-for-booking-an-airbnb-1833973537>
 
 如果你喜欢 Airbnb 和航空里程，一些航空公司已经准备好奖励你通过它们预订 Airbnb 住宿——或者成为 Airbnb 的主人。
 

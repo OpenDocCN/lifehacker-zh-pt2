@@ -1,6 +1,6 @@
 # 这些儿童节目现在可以在亚马逊上免费观看
 
-> 原文:[https://life hacker . com/these-kids-shows-is-free-to-stream-on-Amazon-right-now-1842458931](https://lifehacker.com/these-kids-shows-are-free-to-stream-on-amazon-right-now-1842458931)
+> 原文：<https://lifehacker.com/these-kids-shows-are-free-to-stream-on-amazon-right-now-1842458931>
 
 如果你在家陪着你的孩子，亚马逊会提供一些免费的儿童节目，让他们更容易有事可做。
 

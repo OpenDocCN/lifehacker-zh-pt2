@@ -1,6 +1,6 @@
 # 在周一的“全国鸡翅日”哪里可以买到免费和打折的食物
 
-> 原文:[https://life hacker . com/where-to-get-free-and-discounted-food-on-national-chick-1836773334](https://lifehacker.com/where-to-get-free-and-discounted-food-on-national-chick-1836773334)
+> 原文：<https://lifehacker.com/where-to-get-free-and-discounted-food-on-national-chick-1836773334>
 
 如果你是鸡翅的粉丝，那么这一周对你来说会是个不错的开始。周一是全国鸡翅日，这是一个不必要的节日，导致全国许多餐馆对鸡翅进行一些非常必要的折扣。
 

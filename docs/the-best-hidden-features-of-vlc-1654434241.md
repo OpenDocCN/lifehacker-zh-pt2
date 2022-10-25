@@ -1,6 +1,6 @@
 # 如何启用 VLC 最好的隐藏功能
 
-> 原文:[https://life hacker . com/the-best-hidden-features-of-VLC-1654434241](https://lifehacker.com/the-best-hidden-features-of-vlc-1654434241)
+> 原文：<https://lifehacker.com/the-best-hidden-features-of-vlc-1654434241>
 
 VLC 无疑是我们最喜欢的媒体玩家之一(还有 [也是你的](https://lifehacker.com/five-best-desktop-media-players-397135) )。虽然它可以处理你扔给它的几乎每部电影，但它还可以做更多的*。你不需要成为超级用户来理解它所有不可思议的内置特性；你只需要知道它们的存在。我们很高兴向您展示神奇的 VLC 可以在您的台式电脑上做的一切。*
 

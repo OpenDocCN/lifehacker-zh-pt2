@@ -1,6 +1,6 @@
 # how do i get through to my withdrawn teenager 1844365341
 
-> 原文:[https://life hacker . com/how-do-I-get-through-to-my-retained-青少年-1844365341](https://lifehacker.com/how-do-i-get-through-to-my-withdrawn-teenager-1844365341)
+> 原文：<https://lifehacker.com/how-do-i-get-through-to-my-withdrawn-teenager-1844365341>
 
 众所周知，青少年有点喜怒无常或孤僻，尤其是在父母面前。十几岁的青少年应该对自己无能、烦人的父母翻白眼、摔门。这是一个通过的仪式；因果报应等。但是，当你的孩子似乎完全从家庭中抽离出来，不想和你有任何关系时，你该怎么办呢？
 

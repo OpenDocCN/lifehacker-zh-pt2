@@ -1,6 +1,6 @@
 # 问咸的女服务员:我的朋友坚持问服务员他们的“最爱”
 
-> 原文:[https://the take out . com/my-friend-stings-asked-asked-servers-on-the favorites-1835578307](https://thetakeout.com/my-friend-insists-asking-servers-about-their-favorites-1835578307)
+> 原文：<https://thetakeout.com/my-friend-insists-asking-servers-about-their-favorites-1835578307>
 
 > 亲爱的 Salty，我有一个朋友坚持认为，无论何时你出去吃饭，你都应该向你的服务员征求建议，他每次都这样做。他说这是判断餐馆质量的一种方式——如果服务员没有最喜欢的一两餐，他说这表明他们不吃那里的食物和/或食物不是很好。我觉得这浪费了服务员的时间，尤其是当谈话不可避免地比“鸡肉怎么样了”这样简短的话更长的时候我们谁是对的？虽然我希望是我，这样我就可以在每次我们出去吃饭的时候不再不耐烦地呻吟，但我承认我的朋友说得有道理。
 > 

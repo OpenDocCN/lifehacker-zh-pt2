@@ -1,6 +1,6 @@
 # 如何避免在疫情中筋疲力尽
 
-> 原文:[https://life hacker . com/how-to-avoid-in-a-middle-a-疫情-1843322169](https://lifehacker.com/how-to-avoid-burnout-in-the-middle-of-a-pandemic-1843322169)
+> 原文：<https://lifehacker.com/how-to-avoid-burnout-in-the-middle-of-a-pandemic-1843322169>
 
 倦怠被定义为长时间的压力带来的情绪、精神和身体疲惫的状态。 考虑到过去几个月持续不断的压力，我们中的许多人很可能正在变得精疲力竭，如果我们还没有到那一步的话。
 

@@ -1,6 +1,6 @@
 # 看看这些我们喜欢的黑人主持的播客
 
-> 原文:[https://life hacker . com/check-out-these-black-hosted-podcast-we-love-1843951030](https://lifehacker.com/check-out-these-black-hosted-podcasts-we-love-1843951030)
+> 原文：<https://lifehacker.com/check-out-these-black-hosted-podcasts-we-love-1843951030>
 
 为了尊重和承认全国各地正在发生的抗议活动，并表示对黑人生活运动的支持，我们本周暂停升级。相反，我们想推荐一些我们应该听的声音的播客。这绝不是一个详尽的列表，所以请在评论中添加您自己的最爱。
 

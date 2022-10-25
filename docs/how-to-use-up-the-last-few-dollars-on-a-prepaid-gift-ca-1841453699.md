@@ -1,6 +1,6 @@
 # 如何用完预付礼品卡上的最后几美元
 
-> 原文:[https://life hacker . com/how-to-use-up-the-last-number-on-a-pred-gift-ca-1841453699](https://lifehacker.com/how-to-use-up-the-last-few-dollars-on-a-prepaid-gift-ca-1841453699)
+> 原文：<https://lifehacker.com/how-to-use-up-the-last-few-dollars-on-a-prepaid-gift-ca-1841453699>
 
 去年圣诞节，我收到了一张价值 50 美元的 Visa 礼品卡，我花了整整 48 美元买了四双新袜子(因为我现在是那种圣诞节想要袜子的成年人)。
 

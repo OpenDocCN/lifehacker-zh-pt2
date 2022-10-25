@@ -1,6 +1,6 @@
 # 如何在这个周末获得免费的《杀手:赦免》
 
-> 原文:[https://life hacker . com/how-to-get-a-free-copy-of-hitman-absolution-this-week e-1844015039](https://lifehacker.com/how-to-get-a-free-copy-of-hitman-absolution-this-weeke-1844015039)
+> 原文：<https://lifehacker.com/how-to-get-a-free-copy-of-hitman-absolution-this-weeke-1844015039>
 
 我不在乎 IO Interactive 推出了多少个杀手游戏，我会玩其中的每一个游戏*，尽管它们都涉及到做完全相同的事情:仔细研究广阔的关卡，找到执行秘密暗杀的最佳地点。还有， 对我来说，争先恐后地完成你的目标，而不会在你的计划出问题时看起来像个十足的傻瓜。如果你觉得这是个好时机，那么你很幸运:这个周末你可以免费得到一本 2012 年的《杀手:赦免》。*
 

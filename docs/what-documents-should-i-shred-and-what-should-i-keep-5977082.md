@@ -1,6 +1,6 @@
 # 你应该保留那份文件还是把它撕碎？
 
-> 原文:[https://life hacker . com/what-documents-should-I-shred-and-what-should-I-keep-5977082](https://lifehacker.com/what-documents-should-i-shred-and-what-should-i-keep-5977082)
+> 原文：<https://lifehacker.com/what-documents-should-i-shred-and-what-should-i-keep-5977082>
 
 我们都会在邮件中收到大量的垃圾邮件，无论是信用卡申请、保险包裹，还是你 10 年前工作的 60 页退休基金报告。值得庆幸的是，决定你需要保留什么和可以安全销毁什么是很简单的。根据你正在处理的文件类型，你需要将其中一些文件保存一段时间；其他的你可以数字化，还有一些你可以一起扔掉(但是先把它们撕碎总是个好主意)。
 

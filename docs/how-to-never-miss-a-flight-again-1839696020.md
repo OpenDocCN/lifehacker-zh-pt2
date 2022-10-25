@@ -1,6 +1,6 @@
 # 如何不再错过航班
 
-> 原文:[https://life hacker . com/how-to-never-miss a flight-again-1839696020](https://lifehacker.com/how-to-never-miss-a-flight-again-1839696020)
+> 原文：<https://lifehacker.com/how-to-never-miss-a-flight-again-1839696020>
 
 在最近为《大西洋》 撰写的一篇报道中，职业作家阿曼达·穆尔描述了两种旅行者:一种是提前几个小时到达航班的 T4 旅行者，另一种是积极享受迟到带来的肾上腺素刺激的旅行者。
 

@@ -1,6 +1,6 @@
 # 租车时不要预付油费
 
-> 原文:[https://life hacker . com/never-预付费租车-1840144941](https://lifehacker.com/never-prepay-for-gas-when-renting-a-car-1840144941)
+> 原文：<https://lifehacker.com/never-prepay-for-gas-when-renting-a-car-1840144941>
 
 如果你曾经租过一辆车，你会知道会有一张逐项列出的账单，上面有你不记得选择的各种费用。这些费用可能包括保险费、通行费、GPS 使用费、州或地方政府税，当然还有汽油费。
 

@@ -1,6 +1,6 @@
 # dancing through our bad year 1842274184
 
-> 原文:[https://jezebel.com/dancing-through-our-bad-year-1842274184](https://jezebel.com/dancing-through-our-bad-year-1842274184)
+> 原文：<https://jezebel.com/dancing-through-our-bad-year-1842274184>
 
 那是一个温暖的七月天，特罗菲夫人开始跳舞。她走出家门，来到斯特拉斯堡狭窄的街道上，开始了她疯狂的脚步。她不间断地跳了将近一个星期，她的脚肿了，还在流血。当她厌倦跳舞的时候，她的 34 个邻居已经加入了她的行列；到 8 月底，斯特拉斯堡的 400 名居民在街上狂舞。
 

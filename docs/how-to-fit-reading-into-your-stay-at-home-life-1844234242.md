@@ -1,6 +1,6 @@
 # 如何让阅读融入你的居家生活
 
-> 原文:[https://life hacker . com/how-to-fit-reading-into-your-stay-home-life-1844234242](https://lifehacker.com/how-to-fit-reading-into-your-stay-at-home-life-1844234242)
+> 原文：<https://lifehacker.com/how-to-fit-reading-into-your-stay-at-home-life-1844234242>
 
 经过几个月的隔离，我们都知道，当生活的方方面面——工作、养育子女、上学、做饭、吃饭、睡觉——都发生在你家的四面墙上时，几乎不可能在它们之间划出清晰的界限。在家工作也意味着没有通勤——如果那是你唯一拥有的阅读或听有声读物的时间，你可能会发现很难将阅读纳入你的家庭日程。(给孩子读书很棒，但不算。)
 

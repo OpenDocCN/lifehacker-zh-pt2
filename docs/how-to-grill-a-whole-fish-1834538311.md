@@ -1,6 +1,6 @@
 # 我太害怕了，不敢烤一整条鱼——直到我的导师给我指路
 
-> 原文:[https://thetakeout.com/how-to-grill-a-whole-fish-1834538311](https://thetakeout.com/how-to-grill-a-whole-fish-1834538311)
+> 原文：<https://thetakeout.com/how-to-grill-a-whole-fish-1834538311>
 
 我从事美食写作已经十多年了，直到今天，我仍然对美食一无所知。但这是我职业的终极特权，它让我可以钉上 [一份正宗的法式煎蛋卷](https://thetakeout.com/4-lessons-tips-in-how-to-make-omelettes-1832765134)[精心烹制我的意大利面条](https://thetakeout.com/lessons-from-the-school-of-spaghetti-carbonara-1798259380) ， [对付](https://thetakeout.com/anthony-bourdain-les-halles-cookbook-french-onion-soup-1833361381) [法式](https://thetakeout.com/anthony-bourdain-les-halles-cookbook-boeuf-bourguignon-1833392149) [小酒馆](https://thetakeout.com/anthony-bourdain-les-halles-cookbook-pork-rillette-1833418748) [美食](https://thetakeout.com/anthony-bourdain-les-halles-cookbook-skate-grenobloise-1833453886) ，并在我的工作时间里这样做。
 

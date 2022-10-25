@@ -1,6 +1,6 @@
 # 不要在你的停电星期二帖子上使用黑人的命也是命标签
 
-> 原文:[https://life hacker . com/don-t-use-black-lifes-matter-hashtags-on-your-black-black-black-lifes-matter-1843855882](https://lifehacker.com/don-t-use-black-lives-matter-hashtags-on-your-blackout-1843855882)
+> 原文：<https://lifehacker.com/don-t-use-black-lives-matter-hashtags-on-your-blackout-1843855882>
 
 今天，社交媒体上的用户正在发布黑色方块，作为“黑色星期二”的一部分，这是由音乐行业 的两名黑人高管策划的 [抗议活动。但许多人指出，通过将这些帖子标上#BLM 或#黑色生活事件，人们无意中淹没了用于分享有用信息的在线空间和无用的黑色方块。](https://www.theshowmustbepaused.com/) 
 

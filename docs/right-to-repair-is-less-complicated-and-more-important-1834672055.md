@@ -1,6 +1,6 @@
 # 维修权没有你想象的那么复杂，也比你想象的更重要
 
-> 原文:[https://gizmodo . com/right-to-repair-is-less-complex-and-more-important-1834672055](https://gizmodo.com/right-to-repair-is-less-complicated-and-more-important-1834672055)
+> 原文：<https://gizmodo.com/right-to-repair-is-less-complicated-and-more-important-1834672055>
 
 花一点时间环顾四周，考虑一下视野范围内的各种小玩意。如果有多少坏了，你能马上修好？你能负担得起(甚至知道如何)修理你的手机或电脑吗？你的车？你的咖啡机怎么样？想想看，如果昂贵的修理费仅略低于一件全新产品的成本，你会怎么处理它们。
 

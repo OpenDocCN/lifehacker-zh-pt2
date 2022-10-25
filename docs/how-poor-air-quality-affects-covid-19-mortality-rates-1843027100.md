@@ -1,6 +1,6 @@
 # 空气质量差如何影响新冠肺炎死亡率
 
-> 原文:[https://life hacker . com/how-poor-air-quality-affects-新冠肺炎-死亡率-1843027100](https://lifehacker.com/how-poor-air-quality-affects-covid-19-mortality-rates-1843027100)
+> 原文：<https://lifehacker.com/how-poor-air-quality-affects-covid-19-mortality-rates-1843027100>
 
 空气质量差长期以来一直与健康问题增加以及过早死亡联系在一起。细颗粒物，也称为 PM2.5，是空气中发现的小颗粒的术语。我们早就知道，PM2.5 可以渗透到肺部， [引起许多问题](https://www.edf.org/health/health-impacts-air-pollution) ，如哮喘、支气管炎、心脏病发作、中风，以及过早死于心肺疾病。
 

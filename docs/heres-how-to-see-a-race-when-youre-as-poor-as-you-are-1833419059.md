@@ -1,6 +1,6 @@
 # 这是当你和你一样穷的时候如何看比赛的方法
 
-> 原文:[https://jalopnik . com/heres-how-to-see-a-race-when-you-as-poor-you-as-you-are-1833419059](https://jalopnik.com/heres-how-to-see-a-race-when-youre-as-poor-as-you-are-1833419059)
+> 原文：<https://jalopnik.com/heres-how-to-see-a-race-when-youre-as-poor-as-you-are-1833419059>
 
 你有没有在社交媒体上看到过那些每年都设法去观看大量比赛的人？他们不是有影响力的人或赞助商——他们只是普通的赛车迷，不知何故，他们设法克服了所有的经济挫折，这些挫折让你只能坐在沙发上观看比赛。他们到底是怎么做到的？
 

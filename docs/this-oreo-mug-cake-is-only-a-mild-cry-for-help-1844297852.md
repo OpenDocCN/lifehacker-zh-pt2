@@ -1,6 +1,6 @@
 # 这个奥利奥马克杯蛋糕只是一个温和的求救信号
 
-> 原文:[https://life hacker . com/this-Oreo-mug-cake-only-a-mild-cry-help-1844297852](https://lifehacker.com/this-oreo-mug-cake-is-only-a-mild-cry-for-help-1844297852)
+> 原文：<https://lifehacker.com/this-oreo-mug-cake-is-only-a-mild-cry-for-help-1844297852>
 
 大概一年一次，心情低落就做个马克杯蛋糕。它从来都不令人满意。测量一小勺一小撮的烘焙原料，却得到一大杯潮湿的类似蛋糕的东西，这有一种特别凄凉的感觉。
 

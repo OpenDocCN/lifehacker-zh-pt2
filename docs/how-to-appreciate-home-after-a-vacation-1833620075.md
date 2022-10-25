@@ -1,6 +1,6 @@
 # 度假后如何欣赏家
 
-> 原文:[https://life hacker . com/how-to-aware-after-a-vacation-1833620075](https://lifehacker.com/how-to-appreciate-home-after-a-vacation-1833620075)
+> 原文：<https://lifehacker.com/how-to-appreciate-home-after-a-vacation-1833620075>
 
 在一个美好的假期，我总是发现自己在想，“伙计，住在这里多好啊。”我可能是对的，但只是偶然——当然，当你不必做任何工作时，住在城市里感觉很好。当我回到家时，这种感觉让我很失望，所有正常的责任都在等着我。以下是我如何避免假期忧郁的方法。
 

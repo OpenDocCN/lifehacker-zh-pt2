@@ -1,6 +1,6 @@
 # 如何删除 Windows 10 伪装成“建议”的烦人广告
 
-> 原文:[https://life hacker . com/how-to-remove-windows-10s-angry-ads-masquerading-as-1841573435](https://lifehacker.com/how-to-remove-windows-10s-annoying-ads-masquerading-as-1841573435)
+> 原文：<https://lifehacker.com/how-to-remove-windows-10s-annoying-ads-masquerading-as-1841573435>
 
 在一个完美的世界里，每一台安装了 Windows 10 的新电脑——或者每一次新安装的 Windows 10——都不会出现烦人的应用程序和其他没人需要的臃肿软件。(不好意思，糖果粉碎传奇。)也不会有烦人的广告。虽然这并不是说微软在你的操作系统中放下了可口可乐或其他东西的大横幅，但看到它在你的开始菜单中为 Edge 浏览器摇旗呐喊令人沮丧。
 

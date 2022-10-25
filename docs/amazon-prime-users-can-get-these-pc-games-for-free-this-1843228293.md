@@ -1,6 +1,6 @@
 # 亚马逊 Prime 用户本月可以免费获得这些 PC 游戏
 
-> 原文:[https://life hacker . com/Amazon-prime-users-can-get-this-1843228293](https://lifehacker.com/amazon-prime-users-can-get-these-pc-games-for-free-this-1843228293)
+> 原文：<https://lifehacker.com/amazon-prime-users-can-get-these-pc-games-for-free-this-1843228293>
 
 如果你是亚马逊 Prime 用户，你可能没有意识到的一个额外好处是，你可以每月从 Twitch Prime 获得免费游戏。
 

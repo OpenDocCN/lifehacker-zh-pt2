@@ -1,6 +1,6 @@
 # 如何不用木槌嫩化你的肉
 
-> 原文:[https://life hacker . com/how-to-tended your means-without a-mallet-1844041538](https://lifehacker.com/how-to-tenderize-your-meat-without-a-mallet-1844041538)
+> 原文：<https://lifehacker.com/how-to-tenderize-your-meat-without-a-mallet-1844041538>
 
 我喜欢捣碎的肉。无论是 [被打成嫩滑的鸡胸肉](https://skillet.lifehacker.com/why-you-should-pound-chicken-breasts-before-cooking-the-1797903121) 还是香脆的裹着面包屑的猪肉片，我都很高兴人们通过使用的一点暴力而获得平坦、柔顺的结果。大多数人喜欢用专用的肉槌或嫩化器来捣碎他们的肉，但是专用的硬件不是必需的。你可以用酒瓶。
 

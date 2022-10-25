@@ -1,6 +1,6 @@
 # 如何塞鸡大腿
 
-> 原文:[https://life hacker . com/how-to-stuff-a chicken-thigh-1833612718](https://lifehacker.com/how-to-stuff-a-chicken-thigh-1833612718)
+> 原文：<https://lifehacker.com/how-to-stuff-a-chicken-thigh-1833612718>
 
 这是一个冷酷的事实，喜欢鸡胸肉而不是大腿的人不太性感。就像你会发现的塑料包装的聚苯乙烯泡沫一样，无骨、无皮、无趣的鸡胸肉剥夺了进食的原始乐趣。提醒我们这些肉来自活的、会呼吸的动物的东西——骨头、皮肤、脂肪、胶原蛋白——正是这些东西让大腿变得如此美味，吃它的本能应该被接受。
 

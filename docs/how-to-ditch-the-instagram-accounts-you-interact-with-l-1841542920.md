@@ -1,6 +1,6 @@
 # 如何找到并抛弃你互动最少的 Instagram 账户
 
-> 原文:[https://life hacker . com/how-to-ditch-the-insta gram-accounts-you-interact-l-1841542920](https://lifehacker.com/how-to-ditch-the-instagram-accounts-you-interact-with-l-1841542920)
+> 原文：<https://lifehacker.com/how-to-ditch-the-instagram-accounts-you-interact-with-l-1841542920>
 
 也许一个月一次，当我浏览 Instagram 时，会看到一个人发的帖子，而我一开始并没有意识到自己关注了这个人。
 

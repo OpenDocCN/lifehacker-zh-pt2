@@ -1,6 +1,6 @@
 # 通过把它安排到你的一天中来最小化忧虑
 
-> 原文:[https://life hacker . com/minimize-by-scheduling-it-into-your-day-1830850145](https://lifehacker.com/minimize-worry-by-scheduling-it-into-your-day-1830850145)
+> 原文：<https://lifehacker.com/minimize-worry-by-scheduling-it-into-your-day-1830850145>
 
 担忧很少能解决任何问题，但我们中的许多人在应该做其他事情的时候就是忍不住担忧。不要让担忧分散你对生活的注意力，为它留出一段特殊的时间。
 

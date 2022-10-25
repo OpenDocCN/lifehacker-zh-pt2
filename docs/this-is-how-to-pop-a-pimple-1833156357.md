@@ -1,6 +1,6 @@
 # 如何戳破痘痘
 
-> 原文:[https://life hacker . com/this-is-how-to-pop-a-pimple-1833156357](https://lifehacker.com/this-is-how-to-pop-a-pimple-1833156357)
+> 原文：<https://lifehacker.com/this-is-how-to-pop-a-pimple-1833156357>
 
 拜托，我们都做过。
 

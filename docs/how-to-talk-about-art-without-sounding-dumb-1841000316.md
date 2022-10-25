@@ -1,6 +1,6 @@
 # 如何谈论艺术而不显得愚蠢
 
-> 原文:[https://life hacker . com/how-to-talk-about-art-not-sounding-dumb-1841000316](https://lifehacker.com/how-to-talk-about-art-without-sounding-dumb-1841000316)
+> 原文：<https://lifehacker.com/how-to-talk-about-art-without-sounding-dumb-1841000316>
 
 尽管他是《纽约杂志》的资深艺术评论家，也是《T2 T3 T4 如何成为一名艺术家》的作者，杰瑞萨尔茨在谈论艺术时并不自命不凡
 

@@ -1,6 +1,6 @@
 # 把你剩下的红酒储存在冰箱里
 
-> 原文:[https://life hacker . com/store-your-remain-red-wine-in-冰箱-1840764885](https://lifehacker.com/store-your-leftover-red-wine-in-the-fridge-1840764885)
+> 原文：<https://lifehacker.com/store-your-leftover-red-wine-in-the-fridge-1840764885>
 
 如果你的新年前夜冒险给你留下了几瓶打开的葡萄酒，你可能会想把这些瓶子扔进冰箱——甚至是红色的瓶子。
 

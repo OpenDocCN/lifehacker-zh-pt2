@@ -1,6 +1,6 @@
 # 用你的真空密封器腌制和按摩羽衣甘蓝
 
-> 原文:[https://life hacker . com/用你的真空封口机腌制按摩甘蓝-1836857608](https://lifehacker.com/marinate-and-massage-kale-with-your-vacuum-sealer-1836857608)
+> 原文：<https://lifehacker.com/marinate-and-massage-kale-with-your-vacuum-sealer-1836857608>
 
 羽衣甘蓝不是从地里出来就可以吃的。可能很苦很淡，但也很苦！然而，这些缺点使它成为一种很好的提前制作的午餐沙拉，你只需要施加一些压力。
 

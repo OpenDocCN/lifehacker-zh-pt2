@@ -1,6 +1,6 @@
 # 到目前为止，我们发布的所有技术专题
 
-> 原文:[https://life hacker . com/every-tech-special-section-weve-published-so-far-1839478368](https://lifehacker.com/every-tech-special-section-weve-published-so-far-1839478368)
+> 原文：<https://lifehacker.com/every-tech-special-section-weve-published-so-far-1839478368>
 
 毫无疑问，我们在 Lifehacker 上发表了大量的故事。虽然我总是欣赏那些拥有强大的谷歌游戏 的 [，但你不应该在搜索引擎上用尽你的极客技能来找到关于你最喜欢的科技主题的最重要的文章。](https://lifehacker.com/top-10-clever-google-search-tricks-1450186165) 
 

@@ -1,6 +1,6 @@
 # 如果你想学习如何修理汽车，小型 DIY YouTube 频道是天赐之物
 
-> 原文:[https://jalopnik . com/if-you-want-to-learn-how-to-fix-cars-small-DIY-YouTube-1840896752](https://jalopnik.com/if-you-want-to-learn-how-to-fix-cars-small-diy-youtube-1840896752)
+> 原文：<https://jalopnik.com/if-you-want-to-learn-how-to-fix-cars-small-diy-youtube-1840896752>
 
 我直到大学一年级才开始修车，而那时，互联网上充斥着如何 DIY 的 YouTube 视频，这些视频帮助我在短时间内快速上手。许多[YouTube](https://jalopnik.com/heres-how-you-can-learn-to-fix-cars-1728657805)花费大量时间制作视频，向我们其他人展示如何修理东西，我认为他们值得赞赏。这是其中的一点。
 

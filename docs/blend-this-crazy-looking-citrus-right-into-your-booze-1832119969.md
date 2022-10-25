@@ -1,6 +1,6 @@
 # 把这种看起来很疯狂的柑橘混进你的酒里
 
-> 原文:[https://life hacker . com/blend-this-crazy-looking-citrus-right-into-your booze-1832119969](https://lifehacker.com/blend-this-crazy-looking-citrus-right-into-your-booze-1832119969)
+> 原文：<https://lifehacker.com/blend-this-crazy-looking-citrus-right-into-your-booze-1832119969>
 
 我喜欢柠檬酒，但毫无疑问，它是一种大写的利口酒。像糖果一样的吸管没什么问题，但它并不完全令人耳目一新。奇怪的是，新鲜的柑橘口味的酒的关键不在柠檬中，而是在一种几乎没有肉的，居住在神秘山谷的香橼中。
 

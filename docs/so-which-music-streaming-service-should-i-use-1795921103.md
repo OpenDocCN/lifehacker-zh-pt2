@@ -1,6 +1,6 @@
 # 你应该使用哪种音乐流媒体服务？
 
-> 原文:[https://life hacker . com/so-which-music-streaming-service-should-I-use-1795921103](https://lifehacker.com/so-which-music-streaming-service-should-i-use-1795921103)
+> 原文：<https://lifehacker.com/so-which-music-streaming-service-should-i-use-1795921103>
 
 现在有大量的音乐流媒体服务可供选择(包括亚马逊全新的高清服务)。它们可以在你拥有的任何智能手机上工作，通常支持通过 Airplay 或 Google Cast 向扬声器播放流媒体，并且通常带有高级计划，允许你点播流媒体音乐，无广告，和/或保存音乐供离线收听。
 

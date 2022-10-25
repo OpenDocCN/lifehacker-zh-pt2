@@ -1,6 +1,6 @@
 # 如何在不允许使用粉笔的健身房使用粉笔
 
-> 原文:[https://life hacker . com/how-to-use-chalk-at-a-gym-that-non-allow-chalk-1839480265](https://lifehacker.com/how-to-use-chalk-at-a-gym-that-doesnt-allow-chalk-1839480265)
+> 原文：<https://lifehacker.com/how-to-use-chalk-at-a-gym-that-doesnt-allow-chalk-1839480265>
 
 粉笔对你的握力帮助很大。举重运动员知道这一点，体操运动员知道这一点，奥林匹克举重运动员知道这一点。但是如果你在商业健身房举重，你可能永远也不会知道这种奇妙的物质；它几乎从来没有出现过，而且经常被禁止。好吧，这就是变通规则的方法。
 

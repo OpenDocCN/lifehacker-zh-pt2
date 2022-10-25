@@ -1,6 +1,6 @@
 # 如何足不出户就能穿上跑鞋
 
-> 原文:[https://life hacker . com/how-to-get-fitted-for-running shoes-not-leave you-1843110073](https://lifehacker.com/how-to-get-fitted-for-running-shoes-without-leaving-you-1843110073)
+> 原文：<https://lifehacker.com/how-to-get-fitted-for-running-shoes-without-leaving-you-1843110073>
 
 如果你有跑步机或者住在一个可以跑步而不用担心周围有太多人的地方，那么你可能会考虑在你的疫情锻炼计划中增加[](https://vitals.lifehacker.com/how-to-keep-up-your-running-routine-through-the-pandemi-1842779580)跑步。对我们中的一些人来说，这意味着掸掉旧跑鞋上的灰尘。对于其他人来说，这可能意味着购买他们的第一双鞋。对于每一个跑步者来说，合适的鞋子是最重要的——但是当你不能去商店的时候，你怎样才能穿上合适的鞋子呢？
 

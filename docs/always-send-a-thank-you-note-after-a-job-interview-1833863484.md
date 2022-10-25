@@ -1,6 +1,6 @@
 # 求职面试后，一定要发送一封感谢信
 
-> 原文:[https://life hacker . com/always-send-a-thank-you-note-after-a-job-visit-1833863484](https://lifehacker.com/always-send-a-thank-you-note-after-a-job-interview-1833863484)
+> 原文：<https://lifehacker.com/always-send-a-thank-you-note-after-a-job-interview-1833863484>
 
 几年前，我开始发送“很高兴见到你！”在一次社交活动中，人们给了我一张名片，我就给他们发电子邮件。发送一封短信会把他们的邮件添加到我的收件箱里，这样我可以在几周或几年后找到它，但我也一直认为这也是一个优雅的举动。发一封电子邮件表示你感谢那些花时间和你交谈的人，并且愿意和他们保持联系。
 

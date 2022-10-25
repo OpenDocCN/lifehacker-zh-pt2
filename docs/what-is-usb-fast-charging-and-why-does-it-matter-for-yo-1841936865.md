@@ -1,6 +1,6 @@
 # 什么是“USB 快速充电”,为什么它对您的智能手机很重要？
 
-> 原文:[https://life hacker . com/what-is-USB-fast-charging-and-why-it-matter-for-yo-1841936865](https://lifehacker.com/what-is-usb-fast-charging-and-why-does-it-matter-for-yo-1841936865)
+> 原文：<https://lifehacker.com/what-is-usb-fast-charging-and-why-does-it-matter-for-yo-1841936865>
 
 你可能已经看到，三星即将推出的 Galaxy S20、S20+和 S20 Ultra 是首批获得 USB 实施者论坛(USB-IF)颁发的“快速充电”认证 的 [智能手机。许多智能手机都声称拥有“快速充电”电池，但如果 Galaxy S20 系列率先获得 USB-IF 的官方认证，这对其他设备意味着什么？](https://www.sammobile.com/news/galaxy-s20-first-smartphone-usb-fast-charge-certification/)
 

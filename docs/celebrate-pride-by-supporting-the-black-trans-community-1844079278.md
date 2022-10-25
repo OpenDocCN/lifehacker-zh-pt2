@@ -1,6 +1,6 @@
 # 通过支持黑人跨性别群体来庆祝骄傲
 
-> 原文:[https://life hacker . com/praze-pride-by-support-the-black-trans-community-1844079278](https://lifehacker.com/celebrate-pride-by-supporting-the-black-trans-community-1844079278)
+> 原文：<https://lifehacker.com/celebrate-pride-by-supporting-the-black-trans-community-1844079278>
 
 骄傲是由黑人变性妇女发起的。
 

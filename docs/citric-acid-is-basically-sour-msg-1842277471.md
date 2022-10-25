@@ -1,6 +1,6 @@
 # 柠檬酸基本上是酸味精
 
-> 原文:[https://life hacker . com/citric-acid-is-basic-sour-msg-1842277471](https://lifehacker.com/citric-acid-is-basically-sour-msg-1842277471)
+> 原文：<https://lifehacker.com/citric-acid-is-basically-sour-msg-1842277471>
 
 每当我不太明白一道菜需要什么时，答案通常是酸。它同时强化和平衡了味道，这是其他任何东西都无法比拟的——即使你不能立即分辨出它的存在。对我来说，挤一点柠檬或泼一点醋就像撒上味精一样具有变革性。
 

@@ -1,6 +1,6 @@
 # 空气清新剂和消毒喷雾不是一回事
 
-> 原文:[https://life hacker . com/air-清新剂-和-消毒剂-喷雾剂-不一样-t-1842844857](https://lifehacker.com/air-freshener-and-disinfectant-spray-are-not-the-same-t-1842844857)
+> 原文：<https://lifehacker.com/air-freshener-and-disinfectant-spray-are-not-the-same-t-1842844857>
 
 有一种很棘手的产品:可以喷到房间空气中的罐装产品，标签上写着可以杀菌。这里有一个问题:这是两种不同的功能。
 

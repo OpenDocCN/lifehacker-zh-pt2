@@ -1,6 +1,6 @@
 # 不，酮饮食不会给你特别保护免受新冠肺炎
 
-> 原文:[https://life hacker . com/no-the-keto-diet-wot-give-you-special-protection-from-1842057362](https://lifehacker.com/no-the-keto-diet-wont-give-you-special-protection-from-1842057362)
+> 原文：<https://lifehacker.com/no-the-keto-diet-wont-give-you-special-protection-from-1842057362>
 
 保护自己免受冠状病毒感染的方法既简单又无聊:洗手，避免接触可能生病的人... [你懂的演练](https://vitals.lifehacker.com/how-to-prepare-for-coronavirus-without-panicking-1841936747) 。一些特定饮食的倡导者说，你也需要以某种方式饮食，或服用补充剂，对此我们最了解的是:不。
 

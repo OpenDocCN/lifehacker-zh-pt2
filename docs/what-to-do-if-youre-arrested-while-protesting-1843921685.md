@@ -1,6 +1,6 @@
 # 如果你在抗议时被逮捕，该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-you-arresting-while-抗议-1843921685](https://lifehacker.com/what-to-do-if-youre-arrested-while-protesting-1843921685)
+> 原文：<https://lifehacker.com/what-to-do-if-youre-arrested-while-protesting-1843921685>
 
 参加抗议时了解自己的权利很重要。在上面的视频中，我们采访了律师 Maryanne Kaishian，她是布鲁克林辩护服务公司的一名高级律师，讲述了如果你发现自己在抗议活动中被逮捕，应该采取的正确步骤。
 

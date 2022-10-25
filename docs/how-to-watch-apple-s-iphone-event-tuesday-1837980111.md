@@ -1,6 +1,6 @@
 # 如何观看苹果周二的 iPhone 发布会
 
-> 原文:[https://life hacker . com/how-to-watch-apple-s-iphone-event-Tuesday-1837980111](https://lifehacker.com/how-to-watch-apple-s-iphone-event-tuesday-1837980111)
+> 原文：<https://lifehacker.com/how-to-watch-apple-s-iphone-event-tuesday-1837980111>
 
 苹果公司将于明天举行一场媒体发布会，预计将会发布下一代 iPhone。有传言称，这款手机实际上将有三个新版本:iPhone 11、iPhone 11 Pro 和 iPhone 11 Max。
 

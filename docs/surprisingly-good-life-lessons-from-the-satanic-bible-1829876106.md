@@ -1,6 +1,6 @@
 # 来自撒旦圣经的令人惊讶的好生活课程
 
-> 原文:[https://life hacker . com/surviving-good-life-lessons-from the satanic-bible-1829876106](https://lifehacker.com/surprisingly-good-life-lessons-from-the-satanic-bible-1829876106)
+> 原文：<https://lifehacker.com/surprisingly-good-life-lessons-from-the-satanic-bible-1829876106>
 
 如果说我从安东·桑多·拉维的《撒旦圣经》中学到了什么的话，那就是拉维喜欢和 T2 做爱，但我也学到了很多其他的生活经验，它们非常实用，实际上非常积极。
 

@@ -1,6 +1,6 @@
 # 你会告诉你的孩子大学是物有所值的吗？
 
-> 原文:[https://life hacker . com/would-you-tell-your-kids-the college-worth-the-mone-1837000013](https://lifehacker.com/would-you-tell-your-kids-that-college-is-worth-the-mone-1837000013)
+> 原文：<https://lifehacker.com/would-you-tell-your-kids-that-college-is-worth-the-mone-1837000013>
 
 对许多人来说，高中毕业后上大学是自然而然的下一步，其长期价值毋庸置疑。几十年来，上大学一直是一种文化规范，被广泛接受的开始白领生涯的方法。
 

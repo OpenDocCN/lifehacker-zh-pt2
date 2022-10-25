@@ -1,6 +1,6 @@
 # 给你的宝宝发邮件
 
-> 原文:[https://lifehacker.com/send-emails-to-your-baby-1830388320](https://lifehacker.com/send-emails-to-your-baby-1830388320)
+> 原文：<https://lifehacker.com/send-emails-to-your-baby-1830388320>
 
 婴儿书很棒。所有那些关于他们的第一句话、第一颗牙齿和第一个日托伙伴的手写小纸条。当然还有*你会附上你宝宝第一次吃香蕉时拍的照片。*
 

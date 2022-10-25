@@ -1,6 +1,6 @@
 # 从 AskRose 导师那里获得数学和科学作业的免费帮助
 
-> 原文:[https://life hacker . com/get-free-help-for-math-and-science-job-from-ask ROS-1838711899](https://lifehacker.com/get-free-help-for-math-and-science-homework-from-askros-1838711899)
+> 原文：<https://lifehacker.com/get-free-help-for-math-and-science-homework-from-askros-1838711899>
 
 如果你努力帮助你的孩子做数学和科学作业，并且你不能通过 [在线学习共同核心数学](https://lifehacker.com/parents-should-learn-common-core-math-like-a-kindergart-1835525547) 来解决，那么尝试打电话或发电子邮件 [询问家庭作业帮助](https://askrose.org/) 。每天晚上，他们训练有素的学生导师会帮助学生，指导他们解决数学和科学问题。
 

@@ -1,6 +1,6 @@
 # 关于美国运输安全管理局的新规定，你知道些什么
 
-> 原文:[https://life hacker . com/what-to-know-about-the-new-TSA-rules-1843760540](https://lifehacker.com/what-to-know-about-the-new-tsa-rules-1843760540)
+> 原文：<https://lifehacker.com/what-to-know-about-the-new-tsa-rules-1843760540>
 
 随着旅行开始慢慢重新开放，我们许多人都想知道登机和登机的体验会发生什么变化。上周，运输安全管理局宣布，为了帮助防止冠状病毒的传播，所有通过机场的乘客将有新的规则和指导方针。
 

@@ -1,6 +1,6 @@
 # 如果冠状病毒爆发影响了你的财务状况，该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-if-the-do-the-coronavirus-outbreak-is-affecting-you-1842297383](https://lifehacker.com/what-to-do-if-the-coronavirus-outbreak-is-affecting-you-1842297383)
+> 原文：<https://lifehacker.com/what-to-do-if-the-coronavirus-outbreak-is-affecting-you-1842297383>
 
 抛开所有关于网飞和社交距离的笑话不谈，冠状病毒的爆发给许多人带来了财务不确定性。从 [依赖小费的工人](https://twocents.lifehacker.com/tip-your-service-workers-especially-generously-right-no-1842265325) 到 [现已取消的节日](https://lifehacker.com/this-website-lists-events-canceled-due-to-coronavirus-c-1842086176) 和贸易展的活动工作人员，有很多情况下你通常可以指望的收入可能无法实现。
 

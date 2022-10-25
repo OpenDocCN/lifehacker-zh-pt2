@@ -1,6 +1,6 @@
 # 我经常使用的 15 个食物窍门
 
-> 原文:[https://life hacker . com/15-food-hacks-I-use-constantly-1844847151](https://lifehacker.com/15-food-hacks-i-use-constantly-1844847151)
+> 原文：<https://lifehacker.com/15-food-hacks-i-use-constantly-1844847151>
 
 在我为 Lifehacker 写文章的近五年时间里，我写了、编辑了、测试了并开发了许多美食技巧和食谱。挑一个喜欢的不像挑一个喜欢的孩子，只因为我没有孩子(也从未感受过那些母爱的情感)；挑选一个最喜欢的孩子对我来说很容易。(是那个瞎瓜视频里穿蜜蜂服装的。)
 

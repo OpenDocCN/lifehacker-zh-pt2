@@ -1,6 +1,6 @@
 # when you electronically sign documents always keep a c 1838286630
 
-> 原文:[https://life hacker . com/when-you-electronically-sign-documents-always-keep-a-c-1838286630](https://lifehacker.com/when-you-electronically-sign-documents-always-keep-a-c-1838286630)
+> 原文：<https://lifehacker.com/when-you-electronically-sign-documents-always-keep-a-c-1838286630>
 
 当保罗，一个纽约的自由职业者，无法从一个欠他钱的咨询客户那里得到回复时，他想他可能不得不采取法律行动。*我要下载合同*，他想，一边在收件箱里翻找一个链接，指向他在使用业务自动化供应商 HelloSign 几个月前签署的那份文件。但当他点击打开合同时，他得到的只是一条错误信息。合同不见了。没有办法证明客户欠他钱。
 

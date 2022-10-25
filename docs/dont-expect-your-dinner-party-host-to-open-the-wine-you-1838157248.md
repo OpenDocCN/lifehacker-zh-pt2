@@ -1,6 +1,6 @@
 # 不要指望你的宴会主人会打开你带来的酒
 
-> 原文:[https://life hacker . com/don-expect-your-dinner-party-host-to-open the wine-you-1838157248](https://lifehacker.com/dont-expect-your-dinner-party-host-to-open-the-wine-you-1838157248)
+> 原文：<https://lifehacker.com/dont-expect-your-dinner-party-host-to-open-the-wine-you-1838157248>
 
 参加别人家的晚宴，习惯上要带点东西，对大多数人来说“东西”就是一瓶酒。这完全没问题，只要你明白你不能喝任何东西。
 

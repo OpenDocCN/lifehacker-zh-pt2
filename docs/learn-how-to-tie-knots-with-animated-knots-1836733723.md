@@ -1,6 +1,6 @@
 # 学习如何用“动画结”打结
 
-> 原文:[https://life hacker . com/learn-how-to-tie-knots-with-animated-knots-1836733723](https://lifehacker.com/learn-how-to-tie-knots-with-animated-knots-1836733723)
+> 原文：<https://lifehacker.com/learn-how-to-tie-knots-with-animated-knots-1836733723>
 
 [动画绳结](https://www.animatedknots.com/) 是一个了解绳结一切的完美网站:如何打结，它们的用途，以及如何为特定的工作选择最好的绳结。
 

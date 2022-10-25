@@ -1,6 +1,6 @@
 # 在你的桑格利亚汽酒里用冷冻水果就行了
 
-> 原文:[https://life hacker . com/just-use-frozen-fruit-in-your-sangria-1844750017](https://lifehacker.com/just-use-frozen-fruit-in-your-sangria-1844750017)
+> 原文：<https://lifehacker.com/just-use-frozen-fruit-in-your-sangria-1844750017>
 
 目前时令水果很多，但你在我的桑格利亚汽酒里是找不到的。旺季的产品可能有点贵，但大多数情况下，用“大胆”的红酒掩盖完全成熟、阳光直射(可能)新鲜采摘的黑莓或桃子的味道是不尊重的。这是冷冻食品的工作。
 

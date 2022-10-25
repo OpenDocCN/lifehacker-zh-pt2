@@ -1,6 +1,6 @@
 # 外科口罩能保护你免受冠状病毒的侵害吗？
 
-> 原文:[https://life hacker . com/can-a-surgical-mask-protect-you-from-coronavirus-1841311686](https://lifehacker.com/can-a-surgical-mask-protect-you-from-coronavirus-1841311686)
+> 原文：<https://lifehacker.com/can-a-surgical-mask-protect-you-from-coronavirus-1841311686>
 
 外科手术式口罩可以略微降低传播呼吸道感染的风险，但它们真的是保护自己的好策略吗？是也不是——事情是这样的。
 

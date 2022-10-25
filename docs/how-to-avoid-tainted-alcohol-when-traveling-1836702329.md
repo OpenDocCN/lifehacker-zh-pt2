@@ -1,6 +1,6 @@
 # 旅行时如何避免酒精污染
 
-> 原文:[https://life hacker . com/how-to-avoid-contacted-alcohol-when-traveling-1836702329](https://lifehacker.com/how-to-avoid-tainted-alcohol-when-traveling-1836702329)
+> 原文：<https://lifehacker.com/how-to-avoid-tainted-alcohol-when-traveling-1836702329>
 
 自制和假冒的酒精饮料可能含有甲醇，这种化学物质被认为是今年夏天哥斯达黎加 T3 发生的 19 人死亡的原因。你在度假时可能遇到的大多数酒精可能是安全的，但这里有一些注意事项要记住。
 

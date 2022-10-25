@@ -1,6 +1,6 @@
 # 用婴儿食品袋制作冷冻牙胶
 
-> 原文:[https://life hacker . com/make-frozen-gears-with-baby-food-pockets-1837227595](https://lifehacker.com/make-frozen-teethers-with-baby-food-pouches-1837227595)
+> 原文：<https://lifehacker.com/make-frozen-teethers-with-baby-food-pouches-1837227595>
 
 我们正处于这样一个阶段，我们的小儿子每一次无法解释的不满表达都会被问到:“你认为他在长牙吗？”现在，他很可能是。他流着口水，有点大惊小怪，每当我让他感受一下直接从冰箱里拿出来的罐装饮料的“冰凉”时，他就会抓起它，送到他的小嘴里，看着我说，“谢谢你甜蜜的安慰。”
 

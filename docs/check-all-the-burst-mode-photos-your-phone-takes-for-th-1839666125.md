@@ -1,6 +1,6 @@
 # 检查你的手机拍摄的所有“连拍模式”照片，寻找最佳拍摄效果
 
-> 原文:[https://life hacker . com/check-all-the-burst-mode-photos-your-phone-take-for-th-1839666125](https://lifehacker.com/check-all-the-burst-mode-photos-your-phone-takes-for-th-1839666125)
+> 原文：<https://lifehacker.com/check-all-the-burst-mode-photos-your-phone-takes-for-th-1839666125>
 
 如果你的 iPhone 的连拍模式自动选择了模糊或曝光过度的图像，不要认为连拍中的其他照片一定更差。相反，检查爆裂，看看你是否能找到更好的东西。
 

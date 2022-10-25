@@ -1,6 +1,6 @@
 # 如何在桌面上创建一个浮动的网飞播放器
 
-> 原文:[https://life hacker . com/how-to-create-a-floating-a-网飞-player-on-your-desktop-1835784655](https://lifehacker.com/how-to-create-a-floating-netflix-player-on-your-desktop-1835784655)
+> 原文：<https://lifehacker.com/how-to-create-a-floating-netflix-player-on-your-desktop-1835784655>
 
 据多份报道称，网飞正在测试一款新的弹出式播放器，供那些使用网飞网站来播放他们最喜欢的节目的人使用。虽然我倾向于只使用网飞的应用程序，但这种新方法有一些优雅之处——如果你可以使用该功能，点击网飞播放器上的一个小按钮，就会在一个独立的浮动窗口中启动它。这个窗口位于你正在电脑上做的任何事情之上，这意味着当你在工作中有八个小时快乐的电子表格等着你时，这是分散你注意力的最佳方式。
 

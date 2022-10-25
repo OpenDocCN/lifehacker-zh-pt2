@@ -1,6 +1,6 @@
 # 南瓜冰箱蛋糕是懒人的完美感恩节甜点
 
-> 原文:[https://life hacker . com/pumpkin-ice box-cake-is-a-perfect-感恩节-甜点-f-1839859088](https://lifehacker.com/pumpkin-icebox-cake-is-a-perfect-thanksgiving-dessert-f-1839859088)
+> 原文：<https://lifehacker.com/pumpkin-icebox-cake-is-a-perfect-thanksgiving-dessert-f-1839859088>
 
 冰箱蛋糕不是传统的感恩节甜点，但也许应该是。这些蛋糕本质上是一堆鲜奶油和饼干——这是一件好事——而且根本不需要放在烤箱里，这意味着你有更多的空间放砂锅菜。
 

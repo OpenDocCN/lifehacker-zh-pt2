@@ -1,6 +1,6 @@
 # 用糖压住你的馅饼皮
 
-> 原文:[https://life hacker . com/weigh-down-your ' s pie-crushes-with-sugar-1830228677](https://lifehacker.com/weigh-down-your-pie-crusts-with-sugar-1830228677)
+> 原文：<https://lifehacker.com/weigh-down-your-pie-crusts-with-sugar-1830228677>
 
 盲烤馅饼皮应该很简单:用羊皮纸或箔纸将卷曲的冷冻馅饼皮衬起来，放入干豆使其变重，然后烤至酥脆。这在大多数情况下是可行的，但是要想得到没有浮肿点的真正酥脆的面包皮，就去拿糖。
 

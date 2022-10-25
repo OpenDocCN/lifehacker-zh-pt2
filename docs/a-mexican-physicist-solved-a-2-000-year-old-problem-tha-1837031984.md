@@ -1,6 +1,6 @@
 # 一位墨西哥物理学家解决了一个 2000 年的老问题，这将导致更便宜、更清晰的镜头
 
-> 原文:[https://gizmodo . com/a-Mexican-physician-solved-a-2000 岁问题-tha-1837031984](https://gizmodo.com/a-mexican-physicist-solved-a-2-000-year-old-problem-tha-1837031984)
+> 原文：<https://gizmodo.com/a-mexican-physicist-solved-a-2-000-year-old-problem-tha-1837031984>
 
 这个问题甚至困扰着按照最严格的规格制造的最昂贵的镜头:镜架的中心可能非常锋利，但边角看起来总是有点软。这是一个光学设备存在了几千年的问题，这个问题被认为是无法解决的，直到一位墨西哥物理学家开发出一种令人神魂颠倒的公式，这可能会彻底改变镜头的制造方式。
 

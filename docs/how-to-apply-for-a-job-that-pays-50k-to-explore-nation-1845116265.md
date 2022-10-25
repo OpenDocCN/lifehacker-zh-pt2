@@ -1,6 +1,6 @@
 # 如何申请一份报酬为 5 万美元的国家公园探险工作
 
-> 原文:[https://life hacker . com/how-to-apply-the-pay-50k-to-explore-nation-1845116265](https://lifehacker.com/how-to-apply-for-a-job-that-pays-50k-to-explore-nation-1845116265)
+> 原文：<https://lifehacker.com/how-to-apply-for-a-job-that-pays-50k-to-explore-nation-1845116265>
 
 我们似乎正生活在以“梦想工作”为卖点的竞争的黄金时代，新的机会不断出现。最新的一条来自 Michelob ULTRA Pure Gold，该公司在本周早些时候发布了新首席执行官的名单，即首席勘探官 。但是这一个不仅仅包括带薪去 [乘露营车去一个国家公园过周末](https://lifehacker.com/how-to-apply-for-a-job-paying-1k-to-disconnect-in-an-r-1844887729) :还包括带薪去六个月内的多个国家公园。以下是你需要了解的关于这个职位以及如何申请的信息。
 

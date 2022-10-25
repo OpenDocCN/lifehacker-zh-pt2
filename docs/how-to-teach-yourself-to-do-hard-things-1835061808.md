@@ -1,6 +1,6 @@
 # 如何自学做难的事情
 
-> 原文:[https://life hacker . com/how-to-teach-yourself-do-hard-things-1835061808](https://lifehacker.com/how-to-teach-yourself-to-do-hard-things-1835061808)
+> 原文：<https://lifehacker.com/how-to-teach-yourself-to-do-hard-things-1835061808>
 
 (据说)熟能生巧，但是我们当中有谁从来没有花大量的时间去练习一些他们甚至没有接近完美的东西呢？拿我来说，我十几岁的时候打了很多网球，在很多乐队里用单簧管摔跤了很多年，你猜怎么着？我在这两方面都没有超过平均水平。
 

@@ -1,6 +1,6 @@
 # 如何在 Xbox Game Pass 订阅上节省大笔费用
 
-> 原文:[https://life hacker . com/how-to-save-big-on-an-Xbox-game-pass-subscription-1839695601](https://lifehacker.com/how-to-save-big-on-an-xbox-game-pass-subscription-1839695601)
+> 原文：<https://lifehacker.com/how-to-save-big-on-an-xbox-game-pass-subscription-1839695601>
 
 我不太喜欢游戏流媒体服务，因为我很便宜，但我注意到最近网络上(和现实世界中)有很多微软 Xbox Game Pass 订阅交易。在做了一些调查后，我发现了这个事实:人们有各种疯狂的方法以很少的现金获得几个月的 Xbox 游戏通行证订阅。
 

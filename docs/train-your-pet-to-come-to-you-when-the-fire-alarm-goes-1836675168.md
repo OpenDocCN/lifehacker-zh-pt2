@@ -1,6 +1,6 @@
 # 训练你的宠物在火警响起时向你走来
 
-> 原文:[https://life hacker . com/train-your-pet-to-come-you when the-fire-alarm-goes-1836675168](https://lifehacker.com/train-your-pet-to-come-to-you-when-the-fire-alarm-goes-1836675168)
+> 原文：<https://lifehacker.com/train-your-pet-to-come-to-you-when-the-fire-alarm-goes-1836675168>
 
 下一次你烧了一堆熏肉，让你的厨房充满了烟，触动了你的火警警报，迅速做出反应——移开锅，用厨房毛巾使劲扇着警报周围的空气*和*给你的宠物一个款待。
 

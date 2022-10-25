@@ -1,6 +1,6 @@
 # 当你的孩子交朋友有困难时该怎么办
 
-> 原文:[https://life hacker . com/what-do-what-what-what-your kid-hacken-making-friends-1841669813](https://lifehacker.com/what-to-do-when-your-kid-has-trouble-making-friends-1841669813)
+> 原文：<https://lifehacker.com/what-to-do-when-your-kid-has-trouble-making-friends-1841669813>
 
 交朋友并不是我们所有人的天性，对我们的孩子也是如此。或者有时候，*制造*的部分不如*保持*的部分有挑战性。但是想到我们的孩子可能会孤独或被同龄人排斥，尤其是在学校，这是令人心碎的。但是，父母能在不专横或干涉的情况下提供多少帮助呢？
 

@@ -1,6 +1,6 @@
 # 通过这个为期 52 周的摄影挑战成为一名更好的摄影师
 
-> 原文:[https://life hacker . com/bee-a-better-a-this-52 week-photo-ch-1831420107](https://lifehacker.com/become-a-better-photographer-with-this-52-week-photo-ch-1831420107)
+> 原文：<https://lifehacker.com/become-a-better-photographer-with-this-52-week-photo-ch-1831420107>
 
 “成为一个更好的摄影师”已经在我每年的新年决心清单上列了大概十年了。我想这与其说是一个决心，不如说是一个目标。我已经朝着这个梦想迈进了一大步，但在新的一年里，我从未真正有过如何实现这个梦想的“计划”。现在我有了。
 

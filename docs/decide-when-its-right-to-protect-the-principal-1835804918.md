@@ -1,6 +1,6 @@
 # 碰一笔投资的本金真的不好吗？
 
-> 原文:[https://life hacker . com/decide-when-its-right-to-protect-the-principal-1835804918](https://lifehacker.com/decide-when-its-right-to-protect-the-principal-1835804918)
+> 原文：<https://lifehacker.com/decide-when-its-right-to-protect-the-principal-1835804918>
 
 你对自己投资的资金有多抵触？
 

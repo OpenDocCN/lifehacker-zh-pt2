@@ -1,6 +1,6 @@
 # 不差的最后一刻礼物订阅
 
-> 原文:[https://life hacker . com/last-minute-gift-subscriptions-that-not-suck-1831234523](https://lifehacker.com/last-minute-gift-subscriptions-that-dont-suck-1831234523)
+> 原文：<https://lifehacker.com/last-minute-gift-subscriptions-that-dont-suck-1831234523>
 
 各位，现在是关键时刻。如果你现在还没有给某人的礼物，你就有麻烦了。这里有一些你可以在最后一刻得到的东西，不要尖叫，“我在 CVS 排队的时候得到的！”
 

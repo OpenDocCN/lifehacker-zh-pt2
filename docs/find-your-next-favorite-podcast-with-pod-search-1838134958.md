@@ -1,6 +1,6 @@
 # 使用 Pod 搜索找到您下一个最喜欢的播客
 
-> 原文:[https://life hacker . com/find-your-next-favorite-podcast-with-pod-search-1838134958](https://lifehacker.com/find-your-next-favorite-podcast-with-pod-search-1838134958)
+> 原文：<https://lifehacker.com/find-your-next-favorite-podcast-with-pod-search-1838134958>
 
 我寻找新播客的官方方式一直是简单地问我的朋友。在很大程度上，当我在寻找的时候，一些对话会引导我找到下一个我喜欢的东西。我的大多数朋友似乎都有相同的计划，这意味着最终，我们都会听到并喜欢相同的播客，但完全不知道接下来要听什么。
 

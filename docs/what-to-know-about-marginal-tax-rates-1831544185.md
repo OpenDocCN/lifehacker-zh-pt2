@@ -1,6 +1,6 @@
 # 关于边际税率应该知道什么
 
-> 原文:[https://life hacker . com/what-to-know-about-marginal-tax-rates-1831544185](https://lifehacker.com/what-to-know-about-marginal-tax-rates-1831544185)
+> 原文：<https://lifehacker.com/what-to-know-about-marginal-tax-rates-1831544185>
 
 你可能听说过，上周末，新任国会女议员亚历山大·奥卡西奥-科尔特斯在接受《60 分钟采访时说，有先例表明，美国富人中的“顶层”——在这里指的是收入超过 1000 万美元的人——支付的边际税率“ [高达 60%或 70%](https://www.marketwatch.com/story/ocasio-cortez-suggests-individual-tax-rates-as-high-as-70-2019-01-04)。”
 

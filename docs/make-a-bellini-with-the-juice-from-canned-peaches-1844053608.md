@@ -1,6 +1,6 @@
 # 用罐装桃子汁做贝里尼
 
-> 原文:[https://life hacker . com/make-a-bellini-from-can-the-juice-of-peaches-1844053608](https://lifehacker.com/make-a-bellini-with-the-juice-from-canned-peaches-1844053608)
+> 原文：<https://lifehacker.com/make-a-bellini-with-the-juice-from-canned-peaches-1844053608>
 
 桃子罐头里的桃子从技术上来说和你在杂货店能买到的新鲜的克林斯通样品是一样的，但是它们是非常独特的产品。桃子罐头比它们的绒毛罐头更加柔软易入口，这听起来令人不快，但实际上令人愉快。我可以一整天都吃那些桃子。
 

@@ -1,6 +1,6 @@
 # 如果可以重来，你还会有孩子吗？
 
-> 原文:[https://life hacker . com/if-you-can-do-it-all-over-would-you-have-kids-1838453982](https://lifehacker.com/if-you-could-do-it-all-over-would-you-still-have-kids-1838453982)
+> 原文：<https://lifehacker.com/if-you-could-do-it-all-over-would-you-still-have-kids-1838453982>
 
 前几天在 Reddit 上看到 [这个帖子的时候，我几乎是一扫而过。标题是，“父母:你对生孩子的真实想法是什么？在你经历了这一切之后，你还会拥有它们吗？”但我停顿了一下。我知道会有很多“*为人父母太难了，但我不会拿我的孩子换任何东西！”的回应，但肯定有些人有过遗憾。出于好奇，我点了进去。*](https://www.reddit.com/r/Parenting/comments/d95ga4/parents_what_are_your_real_thoughts_about_having/)
 

@@ -1,6 +1,6 @@
 # 何时对信用卡收费提出异议，何时提出欺诈投诉
 
-> 原文:[https://life hacker . com/when-to-disputed-a-credit-card-charge-vs-filing-a-fraud-1838188820](https://lifehacker.com/when-to-dispute-a-credit-card-charge-vs-filing-a-fraud-1838188820)
+> 原文：<https://lifehacker.com/when-to-dispute-a-credit-card-charge-vs-filing-a-fraud-1838188820>
 
 一旦你发现一笔似乎不属于你的信用卡或借记卡的交易，你的脉搏就开始加快，对吗？你的银行账户余额应该是可预测的，你的信用卡账单波动只是因为你决定刷卡。
 

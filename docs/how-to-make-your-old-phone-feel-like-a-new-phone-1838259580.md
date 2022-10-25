@@ -1,6 +1,6 @@
 # 如何让你的旧手机焕然一新
 
-> 原文:[https://life hacker . com/how-to-make-your-old-phone-feel-like-a-new-phone-1838259580](https://lifehacker.com/how-to-make-your-old-phone-feel-like-a-new-phone-1838259580)
+> 原文：<https://lifehacker.com/how-to-make-your-old-phone-feel-like-a-new-phone-1838259580>
 
 手机像香蕉一样老化，或者关系。我们的文化迫使我们花钱买最新最好的东西(手机，不是香蕉)。但是有很多种方法可以让你的手机焕然一新，便宜的或者免费的。
 

@@ -1,6 +1,6 @@
 # 关于 Spotify 的最新变化，你需要知道的一切
 
-> 原文:[https://life hacker . com/everything-you-need-to-know-about-spotifys-latest-Chang-1832753585](https://lifehacker.com/everything-you-need-to-know-about-spotifys-latest-chang-1832753585)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-about-spotifys-latest-chang-1832753585>
 
 最近，Spotify 更新了它的界面，把它的“重复”按钮埋在它的移动应用程序的子菜单深处——人们很生气。Redditors 和 [Twitter](https://twitter.com/search?q=spotify%20repeat&src=typd) 用户都在互联网上表达他们的不满。
 

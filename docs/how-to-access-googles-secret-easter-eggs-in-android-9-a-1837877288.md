@@ -1,6 +1,6 @@
 # 如何在 Android 9 和 Android 10 中访问谷歌的秘密复活节彩蛋
 
-> 原文:[https://life hacker . com/how-to-access-Google-secret-Easter-eggs-in-Android-9-a-1837877288](https://lifehacker.com/how-to-access-googles-secret-easter-eggs-in-android-9-a-1837877288)
+> 原文：<https://lifehacker.com/how-to-access-googles-secret-easter-eggs-in-android-9-a-1837877288>
 
 谷歌，以其无限的愚蠢能力，在 Android 10 中加入了一个有趣的隐藏功能，你应该花点时间去探索一下。(至少，当你拿出你的更新手机并炫耀你的秘密知识时，你会在你的下一次聚会上成为热门。)
 

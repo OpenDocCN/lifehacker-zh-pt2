@@ -1,6 +1,6 @@
 # 今年参加圣诞老人行动更容易了
 
-> 原文:[https://life hacker . com/its-even-easy-in-participate-operation-Santa-this-1830877406](https://lifehacker.com/its-even-easier-to-participate-in-operation-santa-this-1830877406)
+> 原文：<https://lifehacker.com/its-even-easier-to-participate-in-operation-santa-this-1830877406>
 
 自 1912 年 以来的每一年，美国邮政署​都在尽自己的努力给全国的孩子们一个最美好的圣诞节。2017 年， [圣诞老人](https://lifehacker.com/spread-holiday-cheer-and-do-serious-good-with-operation-1821163891) 行动实现了数字化，在纽约市测试了一个在线系统——它获得了巨大的成功，这一季，他们已经将该计划扩展到了另外五个城市。
 

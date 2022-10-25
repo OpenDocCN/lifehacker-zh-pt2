@@ -1,6 +1,6 @@
 # 这是你真正需要的蛋白质量
 
-> 原文:[https://life hacker . com/heres-how-mud-protein-you-really-need-1830878049](https://lifehacker.com/heres-how-much-protein-you-really-need-1830878049)
+> 原文：<https://lifehacker.com/heres-how-much-protein-you-really-need-1830878049>
 
 你的肌肉是由蛋白质组成的，所以如果你正在锻炼肌肉，你需要吃东西。但是你真正需要多少蛋白质呢？比沙发土豆多，但比疯狂的蛋白质健身房兄弟让你相信的少。下面是如何快速计算出真正的答案。
 

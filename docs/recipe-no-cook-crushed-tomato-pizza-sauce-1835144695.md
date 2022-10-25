@@ -1,6 +1,6 @@
 # 免煮碎番茄酱正是平底锅比萨饼所需要的
 
-> 原文:[https://the take out . com/recipe-no-cook-crushed-tomato-pizza-sauce-1835144695](https://thetakeout.com/recipe-no-cook-crushed-tomato-pizza-sauce-1835144695)
+> 原文：<https://thetakeout.com/recipe-no-cook-crushed-tomato-pizza-sauce-1835144695>
 
 当我开始烤我的第一个底特律风味的烤饼时，我不折不扣地遵循了彼得·莱因哈特的建议。我不想让我自大的即兴表演成为馅饼失败的原因。当莱因哈特指示把奶酪块放到面团里时，我把奶酪块放到了面团里。当他要求面团休息一夜时，我把面团塞进冰箱，让它沉睡 12 个小时。
 

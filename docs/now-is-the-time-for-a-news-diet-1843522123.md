@@ -1,6 +1,6 @@
 # 现在是“新闻饮食”的时候了
 
-> 原文:[https://life hacker . com/now-is-the-time for-a-news-diet-1843522123](https://lifehacker.com/now-is-the-time-for-a-news-diet-1843522123)
+> 原文：<https://lifehacker.com/now-is-the-time-for-a-news-diet-1843522123>
 
 你多久看一次新闻？一次是在你醒来的时候，可能是——另一次是在你开始工作之前，还有一次是在你需要休息的时候，还有一次是在午餐的时候，还有一次是...嗯，你明白了。
 

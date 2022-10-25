@@ -1,6 +1,6 @@
 # 要求免除你的透支费用
 
-> 原文:[https://life hacker . com/ask-to-have-your-overdraft-fees-exempted-1843030047](https://lifehacker.com/ask-to-have-your-overdraft-fees-waived-1843030047)
+> 原文：<https://lifehacker.com/ask-to-have-your-overdraft-fees-waived-1843030047>
 
 几周前，随着疫情冠状病毒的恶化，许多金融机构宣布了帮助面临财务困难的客户的计划。这些计划中的大部分允许您请求延迟付款，并避免向您收取与这些付款相关的滞纳金。但是在这段时间里，你仍然可以在你的账户上看到一笔银行费用？透支费。
 

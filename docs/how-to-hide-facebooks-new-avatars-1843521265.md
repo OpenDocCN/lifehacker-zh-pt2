@@ -1,6 +1,6 @@
 # 如何隐藏脸书的新头像，仇恨者
 
-> 原文:[https://life hacker . com/how-to-hide-face books-new-avatars-1843521265](https://lifehacker.com/how-to-hide-facebooks-new-avatars-1843521265)
+> 原文：<https://lifehacker.com/how-to-hide-facebooks-new-avatars-1843521265>
 
 我没想到会有这么多关于脸书头像的悲伤，但是我最近创作这些新的 Bitmoji 山寨版 指南的评论让我清楚地知道你们中有多少人真的、*真的*讨厌这些可爱的新贴纸。
 

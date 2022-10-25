@@ -1,6 +1,6 @@
 # 每天晚上分享你感激的事情
 
-> 原文:[https://life hacker . com/share-what-you-感恩每晚-1837911905](https://lifehacker.com/share-what-youre-grateful-for-every-night-1837911905)
+> 原文：<https://lifehacker.com/share-what-youre-grateful-for-every-night-1837911905>
 
 写感恩日记不是一个俗气的“笑着爱”的习惯；这是一种经过科学验证的方法，可以改善你的精神、情感甚至身体健康。这也是一种很难养成的习惯，一个人做起来会觉得很傻。如果你和伴侣或其他爱人住在一起，试试博主 Raemon 的 [这个更好的方法。](https://www.lesswrong.com/posts/2x7fwbwb35sG8QmEt/sunset-at-noon) 
 

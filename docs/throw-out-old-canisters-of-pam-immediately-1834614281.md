@@ -1,6 +1,6 @@
 # 立即扔掉旧的 PAM 罐
 
-> 原文:[https://life hacker . com/throw-out-old-cants-of-PAM-immediately-1834614281](https://lifehacker.com/throw-out-old-canisters-of-pam-immediately-1834614281)
+> 原文：<https://lifehacker.com/throw-out-old-canisters-of-pam-immediately-1834614281>
 
 超过六个人正在起诉康尼格拉公司，据称他们因烹饪喷雾爆炸而受伤。据《今日美国》 报道，伤势相当严重——除了烧伤，还有一人一只眼睛失明。根据 [芝加哥论坛报](https://www.chicagotribune.com/business/ct-biz-conagra-cooking-spray-pam-lawsuits-20190506-story.html) 的说法，康尼格拉在“今年早些时候，推出三年后”停止了这种罐头的生产康尼格拉公司没有对旧设计进行召回，并坚持认为“当 Pam 按照指示正确使用时，它是 100%安全有效的产品。”
 

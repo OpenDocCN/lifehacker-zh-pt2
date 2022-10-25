@@ -1,6 +1,6 @@
 # 如何让你的孩子尝试新食物
 
-> 原文:[https://life hacker . com/make-food-fun-for-your-picky-eater-1834749221](https://lifehacker.com/make-food-fun-for-your-picky-eater-1834749221)
+> 原文：<https://lifehacker.com/make-food-fun-for-your-picky-eater-1834749221>
 
 众所周知，小孩子很难喂养。他们用怀疑的眼光盯着他们的食物——“嗯，为什么这个肉丸是块状的？我的意大利面是不是碰到了我的豌豆？什么？一根橙色胡萝卜？就这样，我完了。”
 

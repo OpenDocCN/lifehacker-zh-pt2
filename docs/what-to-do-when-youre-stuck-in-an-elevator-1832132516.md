@@ -1,6 +1,6 @@
 # 当你被困在电梯里时该怎么办
 
-> 原文:[https://life hacker . com/what-to-do what-what-when-you-stick-in-a-elevator-1832132516](https://lifehacker.com/what-to-do-when-youre-stuck-in-an-elevator-1832132516)
+> 原文：<https://lifehacker.com/what-to-do-when-youre-stuck-in-an-elevator-1832132516>
 
 被困在封闭的电梯里是每个人最可怕的噩梦。你悬挂在地面以上的楼层，你唯一的生命线是你面前的紧急呼叫按钮。
 

@@ -1,6 +1,6 @@
 # 锻炼前要做什么
 
-> 原文:[https://life hacker . com/1844297150](https://lifehacker.com/what-to-do-before-a-workout-1844297150)
+> 原文：<https://lifehacker.com/what-to-do-before-a-workout-1844297150>
 
 如果你是刚开始锻炼 的 [，或者如果你只是觉得在一天中锻炼有点尴尬，那么制定一个计划会有所帮助，让你从不锻炼的生活过渡到为一天的运动做准备。](https://lifehacker.com/how-to-start-exercising-1843466815)
 

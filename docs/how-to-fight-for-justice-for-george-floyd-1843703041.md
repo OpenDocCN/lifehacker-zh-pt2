@@ -1,6 +1,6 @@
 # 如何为乔治·弗洛伊德争取正义
 
-> 原文:[https://life hacker . com/how-to-fight-for-Jorge-Floyd-1843703041](https://lifehacker.com/how-to-fight-for-justice-for-george-floyd-1843703041)
+> 原文：<https://lifehacker.com/how-to-fight-for-justice-for-george-floyd-1843703041>
 
 2020 年 5 月 25 日，星期一晚上， [四名明尼阿波利斯警察在给乔治·弗洛伊德](https://www.nytimes.com/2020/05/26/us/george-floyd-minneapolis-police.html?action=click&module=Top%20Stories&pgtype=Homepage) 戴上手铐时将其击毙，然后按在地上，因为他反复说“求你了，我无法呼吸了”46 岁的弗洛伊德是最新一名死于警方拘留的黑人。
 

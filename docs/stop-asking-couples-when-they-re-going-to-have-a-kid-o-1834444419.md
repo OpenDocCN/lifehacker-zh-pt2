@@ -1,6 +1,6 @@
 # 不要再问夫妇他们什么时候会有一个孩子(或另一个孩子)
 
-> 原文:[https://life hacker . com/stop-questing-couples-when-re-to-have-a-kid-o-1834444419](https://lifehacker.com/stop-asking-couples-when-they-re-going-to-have-a-kid-o-1834444419)
+> 原文：<https://lifehacker.com/stop-asking-couples-when-they-re-going-to-have-a-kid-o-1834444419>
 
 也许你迫不及待地想要宠孙子。或者也许你正在考虑要孩子，并想知道其他人的时间表是什么。也许你的同事刚刚结婚，你已经闲聊了他们的全包热带蜜月，你不确定下一个话题是什么，所以你去了*那里*。
 

@@ -1,6 +1,6 @@
 # 《我是混蛋吗？》中最伟大的故事子编辑
 
-> 原文:[https://life hacker . com/the-great-stories-from-am-I-the-屁眼-subredd-1837987235](https://lifehacker.com/the-greatest-stories-from-the-am-i-the-asshole-subredd-1837987235)
+> 原文：<https://lifehacker.com/the-greatest-stories-from-the-am-i-the-asshole-subredd-1837987235>
 
 [“我是混蛋吗？”](https://www.reddit.com/r/AmItheAsshole/) 是一个用户讲述人际冲突的故事，并询问谁是错的子编辑。Redditors 给出他们的意见，投票最多的评论成为裁决。虽然 120 万 redditors 可能不是决定适当社会行为的理想陪审团，但阅读这些故事是一种混乱的乐趣。这里是最好的。
 

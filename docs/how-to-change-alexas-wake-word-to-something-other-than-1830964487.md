@@ -1,6 +1,6 @@
 # 如何把 Alexa 的唤醒词改成' Alexa '以外的
 
-> 原文:[https://life hacker . com/how-to-change-alexas-wake-word-to-something-than-than-1830964487](https://lifehacker.com/how-to-change-alexas-wake-word-to-something-other-than-1830964487)
+> 原文：<https://lifehacker.com/how-to-change-alexas-wake-word-to-something-other-than-1830964487>
 
 如果你有一个亚马逊 Echo 设备，那么你可能已经习惯于在你想让它做什么的时候说“Alexa”。
 

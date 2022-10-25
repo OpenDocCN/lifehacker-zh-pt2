@@ -1,6 +1,6 @@
 # how to make your home as energy efficient as possible 1831263910
 
-> 原文:[https://life hacker . com/how-to-make your home as-energy-efficient-1831263910](https://lifehacker.com/how-to-make-your-home-as-energy-efficient-as-possible-1831263910)
+> 原文：<https://lifehacker.com/how-to-make-your-home-as-energy-efficient-as-possible-1831263910>
 
 如果来自政府间气候变化专门委员会的最新报告敲响了警钟，你可能会想知道你还能做些什么来减缓气候变化。你曾 [投票给你认识的关心气候变化的人](https://lifehacker.com/how-to-demand-action-on-climate-change-1829783214)[从让情况变得更糟的公司中撤资](https://twocents.lifehacker.com/how-to-divest-from-the-companies-killing-the-environmen-1829625706)[几年前，你把所有的白炽灯泡换成了 led](https://lifehacker.com/how-to-pick-the-best-light-bulbs-for-every-room-in-your-1713809049)。
 

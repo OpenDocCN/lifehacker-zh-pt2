@@ -1,6 +1,6 @@
 # 你需要标准化你的 GIF 文件名
 
-> 原文:[https://life hacker . com/you-need-to-standard-your-gif-file-names-1844941343](https://lifehacker.com/you-need-to-standardize-your-gif-file-names-1844941343)
+> 原文：<https://lifehacker.com/you-need-to-standardize-your-gif-file-names-1844941343>
 
 30 岁以上的人，gif 是中年千禧一代的数字等价物:大器晚成的人，现在过度工作并被误解。今天，它们是短信和社交媒体线程中的标准互联网货币，由于它们不再是新奇的事物，我们对它们已经变得有点懒惰了。我在和你说话，那些粒状的、不连贯的、过度使用的反应的发送者们，他们的应用程序集成自动地暗示着这些反应。
 

@@ -1,6 +1,6 @@
 # 如何反击脸书上的数据经纪人广告
 
-> 原文:[https://life hacker . com/how-to-fight-back-against-data-broker-advertising-on-fa-1836319326](https://lifehacker.com/how-to-fight-back-against-data-broker-advertising-on-fa-1836319326)
+> 原文：<https://lifehacker.com/how-to-fight-back-against-data-broker-advertising-on-fa-1836319326>
 
 脸书用户现在对脸书及其广告商 T2 和 T3 如何使用他们的个人数据有了更多的控制权。
 

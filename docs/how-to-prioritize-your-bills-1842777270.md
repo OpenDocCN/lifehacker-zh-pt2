@@ -1,6 +1,6 @@
 # 如何优先处理你的账单
 
-> 原文:[https://life hacker . com/how-to-prioritize-your bill-1842777270](https://lifehacker.com/how-to-prioritize-your-bills-1842777270)
+> 原文：<https://lifehacker.com/how-to-prioritize-your-bills-1842777270>
 
 如果你因为失业、休假或其他冠状病毒相关的财务不确定性而难以维持生计，你可能会问自己这个月可以跳过哪些账单。你应该用信用卡付款，推迟交水费，还是反过来做比较好？
 

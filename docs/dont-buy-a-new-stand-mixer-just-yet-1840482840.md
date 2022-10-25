@@ -1,6 +1,6 @@
 # 暂时不要购买新的立式搅拌机
 
-> 原文:[https://life hacker . com/don-buy-a-new-stand-mixer-just-yet-1840482840](https://lifehacker.com/dont-buy-a-new-stand-mixer-just-yet-1840482840)
+> 原文：<https://lifehacker.com/dont-buy-a-new-stand-mixer-just-yet-1840482840>
 
 每个家庭面包师 [都想要一个立式搅拌机](https://lifehacker.com/do-you-really-need-a-stand-mixer-1832783506) ，它们经常在节日送礼时上市。如果你打算今年给自己或你爱的人买一个，不要默认亚马逊上最便宜的 Kitchenaid。根据你的需要，老式搅拌机可能是一个更好的选择。
 

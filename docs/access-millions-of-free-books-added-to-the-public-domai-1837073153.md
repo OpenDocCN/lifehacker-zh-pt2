@@ -1,6 +1,6 @@
 # 访问添加到公共领域的数百万本免费书籍
 
-> 原文:[https://life hacker . com/access-million-of-free-books-add-to-the-public-domain-1837073153](https://lifehacker.com/access-millions-of-free-books-added-to-the-public-domai-1837073153)
+> 原文：<https://lifehacker.com/access-millions-of-free-books-added-to-the-public-domai-1837073153>
 
 由于纽约公共图书馆资助的一个项目，你的暑期阅读清单变得更加容易获得。1964 年 之前在美国出版的大部分 [书都在公共领域，因为作者没有延长版权。他们对文书工作的厌恶是我们的收获，因为许多文书工作都可以在网上免费获得，而且每天都在增加。](https://www.nypl.org/blog/2019/05/31/us-copyright-history-1923-1964) 
 

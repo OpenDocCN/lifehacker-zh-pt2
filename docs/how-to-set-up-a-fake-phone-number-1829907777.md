@@ -1,6 +1,6 @@
 # 如何设置最好的假电话号码
 
-> 原文:[https://life hacker . com/how-to-set-a-fake-phone-number-1829907777](https://lifehacker.com/how-to-set-up-a-fake-phone-number-1829907777)
+> 原文：<https://lifehacker.com/how-to-set-up-a-fake-phone-number-1829907777>
 
 当你需要摆脱某人的时候，虚假的电话号码是一件美好的事情。无论你是当场编造号码，还是把号码给像拒绝热线 这样的服务机构 [，给一个假号码可以缩短尴尬的社交接触。不过，最棒的是你自己制作的，就像我给汽车经销商的那种，伪造完整的语音邮件。](https://lifehacker.com/give-out-these-fake-prank-numbers-to-creeps-1826672360)
 

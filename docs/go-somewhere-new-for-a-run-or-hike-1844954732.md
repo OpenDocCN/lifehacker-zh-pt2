@@ -1,6 +1,6 @@
 # 去一个新的地方跑步或远足
 
-> 原文:[https://life hacker . com/go-where-new-for-a-run-or-hike-1844954732](https://lifehacker.com/go-somewhere-new-for-a-run-or-hike-1844954732)
+> 原文：<https://lifehacker.com/go-somewhere-new-for-a-run-or-hike-1844954732>
 
 长期读者会知道，对我来说， [九月是运行时间](https://vitals.lifehacker.com/late-summer-is-the-best-time-to-start-running-1785433859) 。天气不再炎热，所以一整天都可以跑步和散步，而不仅仅是在黄昏和黎明的时候。(不好意思，我是热天里的胆小鬼)。因此，这个月我们将进行另一项跑步和步行挑战，但有所改变。
 

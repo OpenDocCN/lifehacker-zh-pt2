@@ -1,6 +1,6 @@
 # 如果你的 MacOS 卡塔利娜安装卡住了，尝试这个修复
 
-> 原文:[https://life hacker . com/if-your-MAC OS-catalina-installation-gets-stick-try-thi-1838980635](https://lifehacker.com/if-your-macos-catalina-installation-gets-stuck-try-thi-1838980635)
+> 原文：<https://lifehacker.com/if-your-macos-catalina-installation-gets-stuck-try-thi-1838980635>
 
 您在安装 macOS Catalina 时遇到过任何问题吗？具体来说，你有没有遇到过任何奇怪的场景，升级——不应该花*那么长的时间——似乎比感觉合理的时间要长得多？*
 

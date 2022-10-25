@@ -1,6 +1,6 @@
 # 在哪里在线备份您的智能手机照片(以及为什么您应该这样做)
 
-> 原文:[https://life hacker . com/where-to-back-up-your-smart photos-online-and-why-1844807383](https://lifehacker.com/where-to-back-up-your-smartphone-photos-online-and-why-1844807383)
+> 原文：<https://lifehacker.com/where-to-back-up-your-smartphone-photos-online-and-why-1844807383>
 
 iOS 上一个拙劣的 Adobe Lightroom 应用程序更新意外删除了用户的照片和编辑预设。Adobe 对广泛传播的错误报告做出了回应，并发布了一个补丁来修复它，这样其他人就不会受到影响，但它无法恢复任何丢失的文件。
 

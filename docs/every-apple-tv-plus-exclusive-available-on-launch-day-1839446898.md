@@ -1,6 +1,6 @@
 # 在发布日提供的所有 Apple TV+独家服务
 
-> 原文:[https://life hacker . com/every-apple-TV-plus-exclusive-available-on-launch-day-1839446898](https://lifehacker.com/every-apple-tv-plus-exclusive-available-on-launch-day-1839446898)
+> 原文：<https://lifehacker.com/every-apple-tv-plus-exclusive-available-on-launch-day-1839446898>
 
 Apple TV Plus 将于 11 月 1 日星期五发布，尽管 5 美元的月价格标签和 [缓慢扩展的设备支持](https://lifehacker.com/how-to-get-the-apple-tv-app-on-your-roku-1839102237) 使其 [对于热情的苹果粉丝来说很容易销售，但那些尚未购买更广泛的苹果生态系统的人可能需要一些说服力，才能支付现金购买另一个月订阅服务。](https://lifehacker.com/how-to-get-free-apple-tv-with-your-apple-device-1838412966) 
 

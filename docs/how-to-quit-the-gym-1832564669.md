@@ -1,6 +1,6 @@
 # 如何戒掉健身房
 
-> 原文:[https://lifehacker.com/how-to-quit-the-gym-1832564669](https://lifehacker.com/how-to-quit-the-gym-1832564669)
+> 原文：<https://lifehacker.com/how-to-quit-the-gym-1832564669>
 
 听着，有时候健身房糟透了。你的健身房可能没有你需要的设备，可能太贵或太远，或者你可能只是讨厌被其他人包围着锻炼。退出健身房没关系。以下是方法。
 

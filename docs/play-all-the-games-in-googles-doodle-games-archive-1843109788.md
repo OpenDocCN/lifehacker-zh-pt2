@@ -1,6 +1,6 @@
 # 玩谷歌涂鸦游戏档案中的所有游戏
 
-> 原文:[https://life hacker . com/play-all-the-games-in-Google-doodle-games-archive-1843109788](https://lifehacker.com/play-all-the-games-in-googles-doodle-games-archive-1843109788)
+> 原文：<https://lifehacker.com/play-all-the-games-in-googles-doodle-games-archive-1843109788>
 
 当我们都被困在室内时，谷歌正在复活旧的谷歌涂鸦游戏来娱乐我们。在接下来的两周里，这个搜索巨头计划将一些老的流行涂鸦作为其每日特色涂鸦。但是如果你不介意做一些挖掘，你也可以在谷歌的档案中找到大量的游戏。
 

@@ -1,6 +1,6 @@
 # 漫威科学:驯化战争犀牛的挑战
 
-> 原文:[https://kotaku . com/marvel-science-the-challenge-of-domestic-war-rhin-1833672708](https://kotaku.com/marvel-science-the-challenge-of-domesticating-war-rhin-1833672708)
+> 原文：<https://kotaku.com/marvel-science-the-challenge-of-domesticating-war-rhin-1833672708>
 
 大约 12000 年前，人类选择驯化我们周围的大部分世界。这种干预引导了我们的进化和许多动植物的进化，将我们的狩猎采集社会转变为定居农业。我们能驯养任何动物吗？驯化是如何进行的？最重要的是，我们能像 2018 年电影*黑豹*中看到的那样，把犀牛驯养成战争坐骑吗？
 

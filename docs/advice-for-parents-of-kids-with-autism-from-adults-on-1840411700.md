@@ -1,6 +1,6 @@
 # 成人对自闭症儿童父母的建议
 
-> 原文:[https://life hacker . com/1840411700](https://lifehacker.com/advice-for-parents-of-kids-with-autism-from-adults-on-1840411700)
+> 原文：<https://lifehacker.com/advice-for-parents-of-kids-with-autism-from-adults-on-1840411700>
 
 当詹娜·根希奇的儿子被诊断出患有自闭症谱系障碍时，她开始进行研究。她从普通的专家——医生和治疗师那里收集建议。但是她觉得她仍然缺少一个重要的视角。
 

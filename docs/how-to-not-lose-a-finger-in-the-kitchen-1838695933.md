@@ -1,6 +1,6 @@
 # 如何在厨房里不失去一根手指
 
-> 原文:[https://life hacker . com/how-to-not-lose a finger-in-the-kitchen-1838695933](https://lifehacker.com/how-to-not-lose-a-finger-in-the-kitchen-1838695933)
+> 原文：<https://lifehacker.com/how-to-not-lose-a-finger-in-the-kitchen-1838695933>
 
 每当我看到熟练的厨师切西红柿、 [切洋葱、](https://lifehacker.com/chop-an-onion-super-finely-and-keep-your-fingers-intac-1668815506?_ga=2.219183577.1971165680.1570015976-328077970.1570015976) 时连一点划痕都没有，我总是害怕在厨房里发生事故。我似乎无法掌握 [那种“熊爪”握法](https://www.cooksillustrated.com/articles/229-how-to-cut-an-onion) ，即你将指尖放在稳定的手上，以防止不小心割伤自己。在一次新厨师刀的不幸事件和一次紧急护理之旅后，我决定吞下我所有的骄傲，投资一副凯夫拉尔手套。
 

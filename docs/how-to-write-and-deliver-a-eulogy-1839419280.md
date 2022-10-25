@@ -1,6 +1,6 @@
 # how to write and deliver a eulogy 1839419280
 
-> 原文:[https://life hacker . com/how-to-write-and-deliver-a-dimension-1839419280](https://lifehacker.com/how-to-write-and-deliver-a-eulogy-1839419280)
+> 原文：<https://lifehacker.com/how-to-write-and-deliver-a-eulogy-1839419280>
 
 处理亲人的死亡从来都不容易。即使他们病入膏肓，你知道他们会在一定时间内离开人世，也没有什么能真正让你准备好应对实际的损失。有时，我们不仅要处理一个死亡——我们可能还要在一群同样在哀悼 的 [人面前公开谈论这个人。](https://lifehacker.com/what-can-i-say-thats-actually-helpful-in-times-of-grief-5941009)
 

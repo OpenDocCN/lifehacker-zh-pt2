@@ -1,6 +1,6 @@
 # 由于冬季风暴伊齐基尔，航空公司为一些航班提供旅行豁免
 
-> 原文:[https://life hacker . com/airlines-are-offering-travel-vacates-for-some-flights-d-1840111453](https://lifehacker.com/airlines-are-offering-travel-waivers-for-some-flights-d-1840111453)
+> 原文：<https://lifehacker.com/airlines-are-offering-travel-waivers-for-some-flights-d-1840111453>
 
 如果你计划在这个周末结束感恩节庆祝活动后回家，如果这些旅行计划让你从东北部来或去，你可能会遇到麻烦。冬季风暴以西结预计将从明天开始造成一些严重的问题，以至于一些航空公司已经对可能受到影响的航线上的乘客发出了豁免。特别是那些 12 月 1-2 日有航班的。
 

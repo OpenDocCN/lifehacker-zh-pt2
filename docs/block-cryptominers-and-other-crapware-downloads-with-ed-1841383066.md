@@ -1,6 +1,6 @@
 # 用 Edge Chromium 阻止密码矿工和其他垃圾软件下载
 
-> 原文:[https://life hacker . com/block-cryptominers-and-other-crapware-downloads-with-ed-1841383066](https://lifehacker.com/block-cryptominers-and-other-crapware-downloads-with-ed-1841383066)
+> 原文：<https://lifehacker.com/block-cryptominers-and-other-crapware-downloads-with-ed-1841383066>
 
 我从没想过我会这么说，但微软的网络浏览器相当不错——也就是 Edge Chromium。如果你是从人人都用的谷歌浏览器跳出来的，Edge Chromium 应该感觉很熟悉。更重要的是，它不像 Chrome 那样占用太多资源，而且它提供了各种有趣的实验性功能，你可以尽情发挥。到目前为止，我最喜欢的是一个新的设置，允许浏览器阻止潜在的有问题的下载。
 

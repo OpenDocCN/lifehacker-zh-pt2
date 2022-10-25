@@ -1,6 +1,6 @@
 # 不要为你孩子的课外活动负债
 
-> 原文:[https://life hacker . com/don ----不要让你自己为你的孩子背上课外债务](https://lifehacker.com/dont-put-yourself-into-debt-for-your-kids-extracurricul-1834381924)
+> 原文：<https://lifehacker.com/dont-put-yourself-into-debt-for-your-kids-extracurricul-1834381924>
 
 一项新的调查表明，超过一半的美国人已经为他们孩子的课外活动负债——这可能不是一个好主意。
 

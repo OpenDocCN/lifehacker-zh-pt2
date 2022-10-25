@@ -1,6 +1,6 @@
 # 使用此扩展功能查看您将要购买的图书在当地图书馆是否有售
 
-> 原文:[https://life hacker . com/see-if-a-book-you-to-buy-at-your-l-1834701572](https://lifehacker.com/see-if-a-book-youre-about-to-buy-is-available-at-your-l-1834701572)
+> 原文：<https://lifehacker.com/see-if-a-book-youre-about-to-buy-is-available-at-your-l-1834701572>
 
 如果你发现自己在浏览亚马逊寻找下一本好书， [图书馆扩展](https://chrome.google.com/webstore/detail/library-extension/chkgcmmjoejpekoegkedcpifgfhpjmec?utm_source=libraryextension-web-download) 可能会让你免费阅读同一本书，从而帮你节省一点钱。
 

@@ -1,6 +1,6 @@
 # 急救人员可以免费修复他们的谷歌像素
 
-> 原文:[https://life hacker . com/first-responders-can-get-they-Google-pixels-repaired-f-1843184644](https://lifehacker.com/first-responders-can-get-their-google-pixels-repaired-f-1843184644)
+> 原文：<https://lifehacker.com/first-responders-can-get-their-google-pixels-repaired-f-1843184644>
 
 谷歌正在与第三方技术维修公司 uBreakiFix 合作，为所有急救人员和医疗保健专业人员提供免费的谷歌批准的像素维修。这包括所有:
 

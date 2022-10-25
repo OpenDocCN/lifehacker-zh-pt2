@@ -1,6 +1,6 @@
 # 吃剩的鸡翅放在冷面碗里再好不过了
 
-> 原文:[https://life hacker . com/剩菜鸡翅冷面碗-1844363584](https://lifehacker.com/leftover-chicken-wings-are-perfect-in-cold-noodle-bowls-1844363584)
+> 原文：<https://lifehacker.com/leftover-chicken-wings-are-perfect-in-cold-noodle-bowls-1844363584>
 
 大约一个月两次，我和我男朋友点了太多的鸡翅。(我们点了很多，他们用餐饮容器给我们送来。我们也有薯条。我们不会感到羞耻。)在处理剩菜时，他和我的策略略有不同。他像野兽一样蜷缩在厨房里睡觉时吃它们；我把冷肉从骨头上拿下来，和一些冷花生面条一起搅拌。
 

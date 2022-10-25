@@ -1,6 +1,6 @@
 # 如何在下一次经济衰退前让你的财务更加灵活
 
-> 原文:[https://life hacker . com/how-to-make-your finance-before-the-next-1833462525](https://lifehacker.com/how-to-make-your-finances-more-flexible-before-the-next-1833462525)
+> 原文：<https://lifehacker.com/how-to-make-your-finances-more-flexible-before-the-next-1833462525>
 
 自 2009 年大衰退以来，美国经济或多或少一直处于扩张模式，但扩张不会永远持续下去。虽然没有人能肯定地说下一次衰退会在什么时候到来，但可以肯定的是它最终会到来。当它来临时，你会想尽可能做好准备。
 

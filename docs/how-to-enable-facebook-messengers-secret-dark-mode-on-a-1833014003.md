@@ -1,6 +1,6 @@
 # 如何在 Android 上启用 Facebook Messenger 的秘密黑暗模式
 
-> 原文:[https://life hacker . com/how-to-enable-Facebook-messengers-secret-dark-mode-on-a-1833014003](https://lifehacker.com/how-to-enable-facebook-messengers-secret-dark-mode-on-a-1833014003)
+> 原文：<https://lifehacker.com/how-to-enable-facebook-messengers-secret-dark-mode-on-a-1833014003>
 
 我非常喜欢尽可能在手机上使用“黑暗模式”或“夜间模式”。除了更容易看之外，黑暗模式使用更少的电池电量，因为你的手机不需要给明亮的白色屏幕供电。
 

@@ -1,6 +1,6 @@
 # 2019 年最佳“我如何工作”访谈
 
-> 原文:[https://life hacker . com/the-best-how-I-work-visitors-of-2019-1840662098](https://lifehacker.com/the-best-how-i-work-interviews-of-2019-1840662098)
+> 原文：<https://lifehacker.com/the-best-how-i-work-interviews-of-2019-1840662098>
 
 今年在 [我如何工作](https://lifehacker.com/c/how-i-work) 中，我们采访了学者、喜剧演员、政治家、活动家、记者、企业家、工程师、高管、作家和艺术家，了解他们的职业和工作习惯。这些是我们的最爱。
 

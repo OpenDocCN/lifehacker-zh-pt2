@@ -1,6 +1,6 @@
 # 该不该买苹果新款 16 寸 MacBook Pro？
 
-> 原文:[https://life hacker . com/should-you-buy-apple-new-16 英寸 macbook-pro-1839827354](https://lifehacker.com/should-you-buy-apples-new-16-inch-macbook-pro-1839827354)
+> 原文：<https://lifehacker.com/should-you-buy-apples-new-16-inch-macbook-pro-1839827354>
 
 即使你不想带着世界上最笨重的笔记本电脑(或者至少比已经笨重的 15 英寸笔记本电脑稍微笨重一点)，16 英寸 MacBook Pro 的唯一可取之处应该足以抓住任何人的兴趣:一个全新的“神奇”键盘。
 

@@ -1,6 +1,6 @@
 # 这个阵亡将士纪念日周末去哪里购物
 
-> 原文:[https://life hacker . com/where-to-shop-this-memorial-day-weekend-1835006678](https://lifehacker.com/where-to-shop-this-memorial-day-weekend-1835006678)
+> 原文：<https://lifehacker.com/where-to-shop-this-memorial-day-weekend-1835006678>
 
 不要在这个阵亡将士纪念日周末再买一件科技产品。花 29.99 美元给自己买一张阿拉丁魔毯的复制品。
 

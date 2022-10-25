@@ -1,6 +1,6 @@
 # 苹果地图重新设计的最佳新功能
 
-> 原文:[https://life hacker . com/the-best-new-features-to-try-in-the-apple-maps-design-1841385665](https://lifehacker.com/the-best-new-features-to-try-in-the-apple-maps-redesign-1841385665)
+> 原文：<https://lifehacker.com/the-best-new-features-to-try-in-the-apple-maps-redesign-1841385665>
 
 苹果地图带着一个全新的版本回来了，该公司希望这个版本比谷歌地图和应用程序世界的 Wazes 更有吸引力(和竞争力)。新的苹果地图不仅看起来更好，这要归功于苹果已经打包的关于建筑物、地标和地形的所有细节，而且苹果还在隐私方面加倍努力为你的地图体验。
 

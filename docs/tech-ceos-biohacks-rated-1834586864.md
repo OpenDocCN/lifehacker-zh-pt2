@@ -1,6 +1,6 @@
 # 科技公司首席执行官的生物黑客，评级
 
-> 原文:[https://lifehacker.com/tech-ceos-biohacks-rated-1834586864](https://lifehacker.com/tech-ceos-biohacks-rated-1834586864)
+> 原文：<https://lifehacker.com/tech-ceos-biohacks-rated-1834586864>
 
 似乎每隔几周就有一个新的关于技术兄弟如何度过早晨的采访。我们完全想从成功人士的习惯中挖掘生活窍门——毕竟，你现在看到的是 [我如何工作](https://lifehacker.com/c/how-i-work) 的家。但是这些生物黑客有多有效呢？这里有一个固执己见的纲要:
 

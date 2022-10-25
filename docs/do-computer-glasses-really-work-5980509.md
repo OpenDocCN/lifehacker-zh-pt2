@@ -1,6 +1,6 @@
 # 需要电脑眼镜吗？
 
-> 原文:[https://life hacker . com/do-computer-glasses-really-work-5980509](https://lifehacker.com/do-computer-glasses-really-work-5980509)
+> 原文：<https://lifehacker.com/do-computer-glasses-really-work-5980509>
 
 过去，配眼镜非常简单:如果你看不到学校的黑板或开车时的路标(或其他同样遥远的东西)，你会去看眼科医生，进行测试，然后在需要的时候配眼镜。但是现在我们花了这么多时间盯着屏幕——不管是我们的手机还是电脑— [我们被告知我们需要其他类型的眼镜](https://vitals.lifehacker.com/smartphones-arent-ruining-your-eyes-1829339597) 来帮助我们的眼睛，即使我们不需要处方眼镜。电脑眼镜是怎么回事？
 

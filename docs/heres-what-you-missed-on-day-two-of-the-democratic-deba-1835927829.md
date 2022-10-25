@@ -1,6 +1,6 @@
 # 以下是民主党辩论第二天你错过的内容
 
-> 原文:[https://life hacker . com/heres-what-you-miss-on-day-two-of-the-democratic-巴德-1835927829](https://lifehacker.com/heres-what-you-missed-on-day-two-of-the-democratic-deba-1835927829)
+> 原文：<https://lifehacker.com/heres-what-you-missed-on-day-two-of-the-democratic-deba-1835927829>
 
 如果你错过了周四两个小时的激烈辩论(以及三个小时的辩论后报道)，这里有一些亮点:南本德市长皮特·布蒂吉格指出了共和党的“虚伪”，作家玛丽安娜·威廉森讨论了“爱”是她竞选中最大的武器，加州参议员卡玛拉·哈里斯在当晚最有争议的辩论中与副总统乔·拜登展开较量。
 

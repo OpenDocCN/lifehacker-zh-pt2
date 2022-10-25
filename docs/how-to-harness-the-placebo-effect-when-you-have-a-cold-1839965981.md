@@ -1,6 +1,6 @@
 # 感冒时如何利用安慰剂效应
 
-> 原文:[https://life hacker . com/how-to-harling-the-placebo-effect-when you-have-a-cold-1839965981](https://lifehacker.com/how-to-harness-the-placebo-effect-when-you-have-a-cold-1839965981)
+> 原文：<https://lifehacker.com/how-to-harness-the-placebo-effect-when-you-have-a-cold-1839965981>
 
 感冒是一种病毒感染，你无法治愈它。这意味着人们所信赖的大多数药物——比如维生素 C、精油、接骨木糖浆——只是让你感觉更好，而不是真正地对抗感冒。但是因为感觉更好是关键，这里告诉你如何在晚上 9 点去或不去药店买一些特殊的，价格过高的安慰剂也能得到同样的好处。
 

@@ -1,6 +1,6 @@
 # 如何成为癌症死亡率下降的一部分
 
-> 原文:[https://life hacker . com/how-to-part of-the-decision-in-cancer-death-rates-1831609001](https://lifehacker.com/how-to-be-part-of-the-decline-in-cancer-death-rates-1831609001)
+> 原文：<https://lifehacker.com/how-to-be-part-of-the-decline-in-cancer-death-rates-1831609001>
 
 根据美国癌症协会 的一份新报告，在过去的 25 年里，癌症死亡率下降了 27%。吸烟是其中很大的一部分(肺癌死亡人数正在*下降*)，而且治疗方法在过去几十年里变得更好了。
 

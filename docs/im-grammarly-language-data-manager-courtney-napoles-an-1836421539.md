@@ -1,6 +1,6 @@
 # im grammarly language data manager courtney napoles an 1836421539
 
-> 原文:[https://life hacker . com/im-grammarly-language-data-manager-Courtney-napoles-an-1836421539](https://lifehacker.com/im-grammarly-language-data-manager-courtney-napoles-an-1836421539)
+> 原文：<https://lifehacker.com/im-grammarly-language-data-manager-courtney-napoles-an-1836421539>
 
 [语法](https://www.grammarly.com/) ，帮助人们正确书写的 Chrome 扩展，其拼写、语法和单词使用建议基于对大量书面单词数据库的深入分析。有图书编辑背景的计算机科学家考特尼·纳波莱斯博士是分析这些数据的人员之一。我们和她谈论了她的工作和专业知识，她作为单身母亲的日常工作，以及她喜欢经典的 Emacs 文本编辑器的地方。
 

@@ -1,6 +1,6 @@
 # 如何记住“谁”和“谁”的区别
 
-> 原文:[https://life hacker . com/how-to-remember-the-who-and-who-1837581203](https://lifehacker.com/how-to-remember-the-difference-between-who-and-whom-1837581203)
+> 原文：<https://lifehacker.com/how-to-remember-the-difference-between-who-and-whom-1837581203>
 
 这里谁知道什么时候用“Who”什么时候用“who”？我为谁写这篇文章？对于我们这些喜欢时不时看到一个好的*who*的人来说，他们知道这不仅仅是一个更花哨的 *who* 版本，这就是 who。
 

@@ -1,6 +1,6 @@
 # 如何检查您的 Windows 7 应用程序是否与 Windows 10 兼容
 
-> 原文:[https://life hacker . com/how-to-check-if-your-windows-7-apps-is-compatible-with-1841027283](https://lifehacker.com/how-to-check-if-your-windows-7-apps-are-compatible-with-1841027283)
+> 原文：<https://lifehacker.com/how-to-check-if-your-windows-7-apps-are-compatible-with-1841027283>
 
 阻碍人们从 [升级他们(真的)过时的 Windows 7](https://lifehacker.com/quickly-upgrade-windows-7-to-windows-10-for-free-with-t-1840843214) 版本的最大问题之一是应用兼容性。如果你有一些超级特定的应用程序不能在 Windows 10 上运行，这是坚持使用不太安全的操作系统的最好理由。这可能不是 T4 正确的举措，但却是必要的举措。
 

@@ -1,6 +1,6 @@
 # 你的草莓里真的有小虫子吗？
 
-> 原文:[https://life hacker . com/你的草莓里真的有小虫子吗-1843607740](https://lifehacker.com/are-there-really-little-bugs-in-your-strawberries-1843607740)
+> 原文：<https://lifehacker.com/are-there-really-little-bugs-in-your-strawberries-1843607740>
 
 互联网上流传着一段抖音的视频(以及伴随而来的 [Buzzfeed 文章](https://www.buzzfeed.com/kristatorres/little-bugs-live-in-strawberries-so-you-should-al) )，视频中显示了一些像小虫一样的虫子从浸泡在盐水中的新鲜草莓中爬出来。这是真的吗？我们是否在不知不觉中享受了三莓冻糕中的幼虫？我们是不是应该*再也不吃水果了*？为了找到答案，我咨询了一些专家。
 

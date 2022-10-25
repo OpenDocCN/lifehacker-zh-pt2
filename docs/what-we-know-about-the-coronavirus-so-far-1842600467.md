@@ -1,6 +1,6 @@
 # 目前我们对冠状病毒的了解
 
-> 原文:[https://life hacker . com/what-we-know-about-the-coronavirus-soon-1842600467](https://lifehacker.com/what-we-know-about-the-coronavirus-so-far-1842600467)
+> 原文：<https://lifehacker.com/what-we-know-about-the-coronavirus-so-far-1842600467>
 
 Watch
 

@@ -1,6 +1,6 @@
 # 大通蓝宝石储备年费正在增加
 
-> 原文:[https://life hacker . com/the-chase-sapphire-reserve-年费递增-1840881817](https://lifehacker.com/the-chase-sapphire-reserve-annual-fee-is-increasing-1840881817)
+> 原文：<https://lifehacker.com/the-chase-sapphire-reserve-annual-fee-is-increasing-1840881817>
 
 有没有想过大通蓝宝石储备信用卡提供的高额奖金和额外津贴听起来好得难以置信？听起来蜜月期即将结束:今年，该卡的年费将从 450 美元升至 550 美元。
 

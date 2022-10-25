@@ -1,6 +1,6 @@
 # 邀请玉米坚果参加感恩节晚餐
 
-> 原文:[https://life hacker . com/invite-corn-nuts-to-感恩节晚餐-1839963713](https://lifehacker.com/invite-corn-nuts-to-thanksgiving-dinner-1839963713)
+> 原文：<https://lifehacker.com/invite-corn-nuts-to-thanksgiving-dinner-1839963713>
 
 通常，在拟定晚宴的宾客名单时，人们会尽量减少怪人和捣乱分子，但感恩节就没有这种奢侈了，因为大多数宾客名单都是由家庭成员组成的。你可能不得不邀请你叔叔的坚果，但你也可以邀请不同种类的坚果——玉米坚果。
 

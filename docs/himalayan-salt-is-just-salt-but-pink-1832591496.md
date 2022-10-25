@@ -1,6 +1,6 @@
 # 喜马拉雅盐只是盐，但是粉红色的
 
-> 原文:[https://life hacker . com/喜马拉雅-salt-is just-salt-but-pink-1832591496](https://lifehacker.com/himalayan-salt-is-just-salt-but-pink-1832591496)
+> 原文：<https://lifehacker.com/himalayan-salt-is-just-salt-but-pink-1832591496>
 
 盐有它的用途:我给食物调味，防止我们死于钠缺乏症(罕见但真实)，还有，嗯，差不多就是这样。不管盐是白色还是粉色都是如此。
 

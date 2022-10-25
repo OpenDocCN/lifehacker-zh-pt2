@@ -1,6 +1,6 @@
 # 没有孩子的允许，不要逗他们
 
-> 原文:[https://life hacker . com/don-tickle-kids-without-without-their-permission-1832956186](https://lifehacker.com/dont-tickle-kids-without-their-permission-1832956186)
+> 原文：<https://lifehacker.com/dont-tickle-kids-without-their-permission-1832956186>
 
 挠痒痒是一种和孩子建立亲密关系的有趣方式——所有的咯咯笑和尖叫都是非常珍贵的。如果孩子喜欢的话。他们肯定喜欢，对吧？毕竟，他们在笑。T3】
 

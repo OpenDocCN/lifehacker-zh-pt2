@@ -1,6 +1,6 @@
 # 用 Youtube 视频帮助你焦虑的孩子准备一个活动
 
-> 原文:[https://life hacker . com/help-your-anxious-kid-prepare-for-a-event-with-YouTube-1836027037](https://lifehacker.com/help-your-anxious-kid-prepare-for-an-event-with-youtube-1836027037)
+> 原文：<https://lifehacker.com/help-your-anxious-kid-prepare-for-an-event-with-youtube-1836027037>
 
 有一次，我看到我丈夫给我们的女儿看了一些当地主题公园的 YouTube 视频。这些不是新的野生游乐设施，而是缓慢的儿童游乐设施。他指出了细节。“看，你开车绕圈，”他说。她目不转睛地盯着屏幕。
 

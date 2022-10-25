@@ -1,6 +1,6 @@
 # 你现在可以购买一个家庭医疗检查包
 
-> 原文:[https://life hacker . com/you-can-now-buy-an-home-medical-exam-kit-1839858327](https://lifehacker.com/you-can-now-buy-an-at-home-medical-exam-kit-1839858327)
+> 原文：<https://lifehacker.com/you-can-now-buy-an-at-home-medical-exam-kit-1839858327>
 
 与医生的视频访问是一种不出家门就能获得医学意见(有时是处方)的廉价而快捷的方式。但是医生不能对你进行身体检查，这就限制了它们的用处。一套价值 300 美元的数字医疗设备似乎可以改变这种情况。
 

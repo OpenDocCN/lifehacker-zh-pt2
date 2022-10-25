@@ -1,6 +1,6 @@
 # 你的孩子可以帮助解决全国硬币短缺的问题
 
-> 原文:[https://life hacker . com/your-kids-can-help-with the nationwide-coin-short-1844529846](https://lifehacker.com/your-kids-can-help-with-the-nationwide-coin-shortage-1844529846)
+> 原文：<https://lifehacker.com/your-kids-can-help-with-the-nationwide-coin-shortage-1844529846>
 
 今年，冠状病毒给我们带来了许多大大小小的悲剧和不便，其中最新的一个是几个月前我们大多数人可能都没有预料到的——全国范围内的硬币短缺。
 

@@ -1,6 +1,6 @@
 # 你的厨房需要两种黄油
 
-> 原文:[https://life hacker . com/you-need-two-type-of-butter-in-your-kitchen-1837837122](https://lifehacker.com/you-need-two-types-of-butter-in-your-kitchen-1837837122)
+> 原文：<https://lifehacker.com/you-need-two-types-of-butter-in-your-kitchen-1837837122>
 
 一个正常运作的厨房是一个储备充足的厨房，一个储备充足的厨房有两种类型的黄油——烹饪用黄油和零食用黄油。
 

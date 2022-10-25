@@ -1,6 +1,6 @@
 # 新 Firefox 70 浏览器中我们最喜欢的功能
 
-> 原文:[https://life hacker . com/our-favorite-features-in-the-new-Firefox-70-browser-1839290547](https://lifehacker.com/our-favorite-features-in-the-new-firefox-70-browser-1839290547)
+> 原文：<https://lifehacker.com/our-favorite-features-in-the-new-firefox-70-browser-1839290547>
 
 是时候更新到全新版本的 Firefox Quantum 了。虽然你的浏览器最终会帮你解决这个问题，但我建议你点击汉堡图标，点击“帮助”，然后点击“关于火狐”。当火狐 70 下载到你的台式机或笔记本电脑时，这里有一个新的快速浏览。
 

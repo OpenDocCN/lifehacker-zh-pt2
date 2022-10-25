@@ -1,6 +1,6 @@
 # 如何阻止录音唤醒 Alexa
 
-> 原文:[https://life hacker . com/how-to-stop-a-recording-from-awake-Alexa-1834413573](https://lifehacker.com/how-to-stop-a-recording-from-waking-alexa-1834413573)
+> 原文：<https://lifehacker.com/how-to-stop-a-recording-from-waking-alexa-1834413573>
 
 Lifehacker 最近 [发布了一个视频](https://lifehacker.com/is-it-faster-to-ask-a-digital-assistant-or-just-do-it-y-1834390220) ，其中两个受试者测试了一个亚马逊 Echo 的功能。不久之后，我们的 [高级技术编辑大卫·墨菲](https://kinja.com/thedavidmurphy) 提醒视频团队，任何通过扬声器在家观看视频的人都会发现，每当视频中有人说出唤醒单词“Alexa”时，他们的回声就会反复激活
 

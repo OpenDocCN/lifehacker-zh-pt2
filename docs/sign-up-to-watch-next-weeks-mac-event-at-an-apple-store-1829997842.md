@@ -1,6 +1,6 @@
 # 注册观看下周在苹果商店举行的 Mac 活动
 
-> 原文:[https://life hacker . com/sign-up-to-watch-next-weeks-MAC-event-at-an-apple-store-1829997842](https://lifehacker.com/sign-up-to-watch-next-weeks-mac-event-at-an-apple-store-1829997842)
+> 原文：<https://lifehacker.com/sign-up-to-watch-next-weeks-mac-event-at-an-apple-store-1829997842>
 
 苹果喜欢将其新闻发布会描述为庆祝活动。诚然，它们吸引的流量可能会引起一些技术网站的欢呼，但它们在普通人的雷达上只是一个光点。
 

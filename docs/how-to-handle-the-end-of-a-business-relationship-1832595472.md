@@ -1,6 +1,6 @@
 # 如何处理商业关系的结束
 
-> 原文:[https://life hacker . com/how-to-handle-the-end-of-a-business-relationship-1832595472](https://lifehacker.com/how-to-handle-the-end-of-a-business-relationship-1832595472)
+> 原文：<https://lifehacker.com/how-to-handle-the-end-of-a-business-relationship-1832595472>
 
 由于新闻行业大约每个月都会经历一次颠覆，我认为自己是商业关系方面的专家——也就是说，当你失去了你的主要职业、副业、利润丰厚的项目、甚至是某个行业或公司的救命稻草时，该怎么办。
 

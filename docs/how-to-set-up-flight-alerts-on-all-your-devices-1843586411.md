@@ -1,6 +1,6 @@
 # 如何在您的所有设备上设置航班提醒
 
-> 原文:[https://life hacker . com/how-to-set-up-flight-alerts-on-all-your-devices-1843586411](https://lifehacker.com/how-to-set-up-flight-alerts-on-all-your-devices-1843586411)
+> 原文：<https://lifehacker.com/how-to-set-up-flight-alerts-on-all-your-devices-1843586411>
 
 即使是我们当中最经常旅行的人也有过错过航班的经历，或者经历过意识到自己走错了门并且有三分钟时间找到正确的门的惊心动魄的感觉。但如果你设置了航班提醒，这种情况就不会发生，这将有助于确保你的旅行尽可能地顺畅。
 

@@ -1,6 +1,6 @@
 # 保持你的 ZigBee 智能家居设备更新，以防止这种黑客攻击
 
-> 原文:[https://life hacker . com/keep-your-ZigBee-smart-home-devices-updated-to-protect-1841476278](https://lifehacker.com/keep-your-zigbee-smart-home-devices-updated-to-protect-1841476278)
+> 原文：<https://lifehacker.com/keep-your-zigbee-smart-home-devices-updated-to-protect-1841476278>
 
 被一个电灯泡黑了？这听起来很傻，但 Check Point Software 的安全研究人员最近证明，如果有人利用灯泡用于与网桥通信的 ZigBee 协议中的漏洞，未经修补的飞利浦 Hue 智能灯将被用作进入您网络的攻击媒介。
 

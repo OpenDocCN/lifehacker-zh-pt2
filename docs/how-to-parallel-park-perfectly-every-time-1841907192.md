@@ -1,6 +1,6 @@
 # 如何每次完美平行泊车
 
-> 原文:[https://life hacker . com/how-to-parallel-park-perfect-every-time-1841907192](https://lifehacker.com/how-to-parallel-park-perfectly-every-time-1841907192)
+> 原文：<https://lifehacker.com/how-to-parallel-park-perfectly-every-time-1841907192>
 
 找停车位总是一件麻烦事，但是完美的平行停车位？这似乎几乎不可能。
 

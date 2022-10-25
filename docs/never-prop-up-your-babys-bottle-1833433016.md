@@ -1,6 +1,6 @@
 # 千万不要支撑宝宝的奶瓶
 
-> 原文:[https://life hacker . com/never-prop-up-your-babys-bottle-1833433016](https://lifehacker.com/never-prop-up-your-babys-bottle-1833433016)
+> 原文：<https://lifehacker.com/never-prop-up-your-babys-bottle-1833433016>
 
 婴儿的父母无论在哪里都需要捷径。毕竟，父母确实偶尔需要吃饭、睡觉或撒尿，而不会让他们的孩子处于严重的危险之中。
 

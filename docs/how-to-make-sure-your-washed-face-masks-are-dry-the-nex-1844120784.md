@@ -1,6 +1,6 @@
 # 如何确保洗完的面膜第二天是干的
 
-> 原文:[https://life hacker . com/how-to-make-that-your-washed-the-NEX-1844120784](https://lifehacker.com/how-to-make-sure-your-washed-face-masks-are-dry-the-nex-1844120784)
+> 原文：<https://lifehacker.com/how-to-make-sure-your-washed-face-masks-are-dry-the-nex-1844120784>
 
 我每晚的新习惯是在水槽里手洗一天的一堆口罩(标签是我们在 2020 年做的正常事情)，但如果我不这样挂它们，它们第二天就不会干了——如果你想稍微有效一点，戴着湿口罩绝对是禁忌 。然后我想起了我们在 [布尿布时代](https://offspring.lifehacker.com/what-you-need-to-know-before-you-start-cloth-diapering-1841793159) 用来晾晒尿布套的奇怪的夹子衣架。
 

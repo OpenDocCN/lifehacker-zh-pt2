@@ -1,6 +1,6 @@
 # 由于新冠肺炎让我们少开车，你可能为汽车保险多付了钱
 
-> 原文:[https://jalopnik . com/you-may-be-over-payed-for-car-insurance-since-covid-1-1842618082](https://jalopnik.com/you-might-be-overpaying-for-car-insurance-since-covid-1-1842618082)
+> 原文：<https://jalopnik.com/you-might-be-overpaying-for-car-insurance-since-covid-1-1842618082>
 
 既然新冠肺炎不让我们开车，而它正在破坏其他一切，你不妨看看你是否能在汽车保险上省钱。如果你今年的里程数减少，你可能会支付更少的费用。或者，也许是时候调整自己的风险评估了。
 

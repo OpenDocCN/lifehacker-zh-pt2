@@ -1,6 +1,6 @@
 # 各位，不要拥抱家禽
 
-> 原文:[https://life hacker . com/don-cudding-poultry-people-1843606375](https://lifehacker.com/dont-cuddle-poultry-people-1843606375)
+> 原文：<https://lifehacker.com/dont-cuddle-poultry-people-1843606375>
 
 听着，我们明白。我们现在都有点孤独。渴望爱。尽管我们已经被隔离了两个多月，我们仍然在适应这种生活方式。像许多其他人一样，你可能会被诱惑去获得——然后亲吻和/或拥抱——一些家禽。但是 [疾病控制中心(CDC)敦促你](https://www.cdc.gov/salmonella/backyardpoultry-05-20/index.html) 不要这样做:它们可能藏有危险的沙门氏菌。
 

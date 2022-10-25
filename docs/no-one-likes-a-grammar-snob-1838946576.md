@@ -1,6 +1,6 @@
 # 没有人喜欢语法势利者
 
-> 原文:[https://life hacker . com/no-one-like-a-grammar-snob-1838946576](https://lifehacker.com/no-one-likes-a-grammar-snob-1838946576)
+> 原文：<https://lifehacker.com/no-one-likes-a-grammar-snob-1838946576>
 
 当你寻求写作建议时要小心。有些人想以正确的方式去做——决定你想对谁说什么，并帮助你这样做。但是有些人只是想让你符合他们“正确”写作的想法。他们是学究，认为表达自己只有一种正确的方式，像所有学究一样，他们宁愿正确也不愿聪明。他们都不是。
 

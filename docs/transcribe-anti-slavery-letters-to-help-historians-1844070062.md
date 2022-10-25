@@ -1,6 +1,6 @@
 # 抄写反奴隶制的信件来帮助历史学家
 
-> 原文:[https://life hacker . com/transcripte-anti-slavery-letters-to-help-histories-1844070062](https://lifehacker.com/transcribe-anti-slavery-letters-to-help-historians-1844070062)
+> 原文：<https://lifehacker.com/transcribe-anti-slavery-letters-to-help-historians-1844070062>
 
 波士顿公共图书馆收藏了 19 世纪反奴隶制积极分子往来的信件。唯一的问题是:它们是手写的，这使得它们难以阅读，也无法搜索。这就是你进来的地方。
 

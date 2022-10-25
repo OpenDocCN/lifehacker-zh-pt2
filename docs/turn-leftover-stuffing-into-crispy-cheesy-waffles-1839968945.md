@@ -1,6 +1,6 @@
 # 把剩下的馅料变成松脆的奶酪华夫饼
 
-> 原文:[https://life hacker . com/turn-left-馅料-入脆-芝士-华夫饼-1839968945](https://lifehacker.com/turn-leftover-stuffing-into-crispy-cheesy-waffles-1839968945)
+> 原文：<https://lifehacker.com/turn-leftover-stuffing-into-crispy-cheesy-waffles-1839968945>
 
 感恩节剩菜本身就是一种食谱类型，尽管我喜欢三明治，但准备一些其他稍微有点创新的剩菜策略也无妨。如果你想把剩菜当早餐吃，这一点尤其正确。
 

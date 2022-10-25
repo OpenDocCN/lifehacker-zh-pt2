@@ -1,6 +1,6 @@
 # 获得联合万里行捐款帮助抗击澳大利亚野火
 
-> 原文:[https://life hacker . com/get-United-miles for-donting-to-help-fight-Australia s-1840935380](https://lifehacker.com/get-united-miles-for-donating-to-help-fight-australias-1840935380)
+> 原文：<https://lifehacker.com/get-united-miles-for-donating-to-help-fight-australias-1840935380>
 
 澳大利亚的大火目前仍在燃烧，威胁着家园、居民和该国独特的野生动物。这是一场巨大的战斗，也是一场昂贵的战斗。美联航正在向 MileagePlus 用户提供一个微小的激励，以航空里程的形式捐款帮助灭火。
 

@@ -1,6 +1,6 @@
 # 开始使用 Accutane 需要知道的一切
 
-> 原文:[https://life hacker . com/everything-you-need-know-on-starting-accutane-1833551837](https://lifehacker.com/everything-you-need-to-know-about-starting-accutane-1833551837)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-about-starting-accutane-1833551837>
 
 你已经尝试了所有的方法——昂贵的清洁剂，过氧化苯甲酰斑点治疗，商业广告批准的 Proactiv——你盯着镜子里的自己，想知道为什么这些都不起作用。你的痤疮已经成为一个顽固的问题，你唯一的安慰是一个光线不足的房间。
 

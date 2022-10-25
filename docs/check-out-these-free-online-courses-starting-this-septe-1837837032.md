@@ -1,6 +1,6 @@
 # 从今年九月开始，查看这些免费的在线课程
 
-> 原文:[https://life hacker . com/check-out-these-free-online-courses-starting-this-sept-1837837032](https://lifehacker.com/check-out-these-free-online-courses-starting-this-septe-1837837032)
+> 原文：<https://lifehacker.com/check-out-these-free-online-courses-starting-this-septe-1837837032>
 
 如果你想温习一项技能，学习一种新的东西，或者给你的知识生活增添一点趣味，本月开始有一大堆免费的 MOOCs(大规模开放在线课程)，你可能想去看看。
 

@@ -1,6 +1,6 @@
 # 为什么国税局希望你早点交税
 
-> 原文:[https://life hacker . com/why-the-IRS-want-you-do-you-tax-early-1841434193](https://lifehacker.com/why-the-irs-wants-you-to-do-your-taxes-early-1841434193)
+> 原文：<https://lifehacker.com/why-the-irs-wants-you-to-do-your-taxes-early-1841434193>
 
 当纳税季节开始时，国税局通常会尽快通知你提交纳税申报单。原因实际上是*而不是*旨在防止拖延，拖延会导致 4 月 15 日未处理的退货积压(尽管压力可能有所帮助)。更保护你的身份，防止退税诈骗。
 

@@ -1,6 +1,6 @@
 # 你现在应该买机票吗？
 
-> 原文:[https://life hacker . com/should-you-buy-plant-tickets-now-1842529900](https://lifehacker.com/should-you-buy-plane-tickets-now-1842529900)
+> 原文：<https://lifehacker.com/should-you-buy-plane-tickets-now-1842529900>
 
 由于冠状病毒疫情，航班价格已经下降——如果你已经看过目前提供的交易，你可能会想现在是不是计划旅行的时候了(同时对最初把我们带到这里的危机感到可怕)。在你了解疫情的范围之前，你可能已经试图获得一笔飞行交易——那些迈阿密和夏威夷的航班也吸引了我。但是现在，随着未来看起来越来越不确定，你可能会问:现在购买这些廉价航班，比如说，圣诞节或其他一些遥远的事件/假期，可以吗？
 

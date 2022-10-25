@@ -1,6 +1,6 @@
 # 玩生化危机 2 的小技巧
 
-> 原文:[https://kotaku . com/tips-for-playing-resident-evil-2-1832052438](https://kotaku.com/tips-for-playing-resident-evil-2-1832052438)
+> 原文：<https://kotaku.com/tips-for-playing-resident-evil-2-1832052438>
 
 无论你是回到浣熊市还是第一次到访，《生化危机 2》的恐怖和动作混合在一起会让人望而生畏。如果你不想让你的脖子肉在新的重拍中被撕掉，这里有一些帮助你生存的建议。
 

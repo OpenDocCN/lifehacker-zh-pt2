@@ -1,6 +1,6 @@
 # 使用此应用程序快速删除图片中的背景
 
-> 原文:[https://life hacker . com/quick-remove-backgrounds-from-your-pictures-with this-1843925087](https://lifehacker.com/quickly-remove-backgrounds-from-your-pictures-with-this-1843925087)
+> 原文：<https://lifehacker.com/quickly-remove-backgrounds-from-your-pictures-with-this-1843925087>
 
 **iOS:** 在网上很容易找到关于虚化或者 [去除照片背景的指南](https://lifehacker.com/use-this-ai-tool-to-quickly-remove-the-background-in-im-1831287994) ，但是几乎所有的都需要一个桌面和图像编辑软件。然而，iOS 用户可以在手机上使用 PhotoRoom 应用程序来做这件事。
 

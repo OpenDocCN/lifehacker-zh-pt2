@@ -1,6 +1,6 @@
 # 如果你没有报税，如何申请冠状病毒救济支票
 
-> 原文:[https://life hacker . com/how-to-request-your-coronavirus-relief-check-if-you-don-1842793951](https://lifehacker.com/how-to-request-your-coronavirus-relief-check-if-you-don-1842793951)
+> 原文：<https://lifehacker.com/how-to-request-your-coronavirus-relief-check-if-you-don-1842793951>
 
 美国国税局推出了一个在线表格，供那些通常不报税的人通过直接存款申请冠状病毒救济支票。
 

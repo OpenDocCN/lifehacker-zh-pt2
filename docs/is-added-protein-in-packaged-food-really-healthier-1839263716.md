@@ -1,6 +1,6 @@
 # 包装食品中的‘添加蛋白质’真的更健康吗？
 
-> 原文:[https://life hacker . com/is-added-protein-in-packed-food-really-healthy-1839263716](https://lifehacker.com/is-added-protein-in-packaged-food-really-healthier-1839263716)
+> 原文：<https://lifehacker.com/is-added-protein-in-packaged-food-really-healthier-1839263716>
 
 在三种常量营养素——蛋白质、碳水化合物和脂肪——中，蛋白质享有最好的声誉，它是当之无愧的。我们的饮食中需要大量的蛋白质，如果摄入过多，也不会有什么特别糟糕的事情发生。膳食蛋白质有助于你建立肌肉，如果你正在减肥，它有助于阻止你失去太多的肌肉和脂肪。这也有助于让饭菜有饱腹感。太好了！酪
 

@@ -1,6 +1,6 @@
 # 当遵循一个食谱时，依靠描述而不是时间
 
-> 原文:[https://life hacker . com/when-following-a-recipe-rely-on-descriptions-instead-o-1838414333](https://lifehacker.com/when-following-a-recipe-rely-on-descriptions-instead-o-1838414333)
+> 原文：<https://lifehacker.com/when-following-a-recipe-rely-on-descriptions-instead-o-1838414333>
 
 当你按照菜谱做的时候，你可能会注意到它提供了两条指导信息:你应该烹饪一种配料多长时间，以及在进入下一步(或上菜)之前，这种配料应该是什么样子。为了品尝最好的食物，你应该(大部分)忽略第一点，而专注于第二点。
 

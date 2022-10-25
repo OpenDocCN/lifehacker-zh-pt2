@@ -1,6 +1,6 @@
 # 让我们来谈谈我们如何思乐冰
 
-> 原文:[https://the take out . com/how-we-slurpee-7-eleven-day-1836257466](https://thetakeout.com/how-we-slurpee-7-eleven-day-1836257466)
+> 原文：<https://thetakeout.com/how-we-slurpee-7-eleven-day-1836257466>
 
 当你读到这篇文章时，取决于你在哪里，它是世界上某个地方的 7 月 11 日，因此某个连锁便利店共享数字相似性是 [赠送免费思乐冰，无条件](https://www.7-eleven.com/slurpee-7-eleven-day) 。这是 [我们在这个闷烧的地狱之景](https://thetakeout.com/free-7-eleven-slurpee-today-is-the-last-nice-thing-we-h-1827511826) 中留下的最后的美好事物之一，所以谢谢你，7-Eleven，品尝一下救赎的滋味。
 

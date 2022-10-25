@@ -1,6 +1,6 @@
 # 如何清理和归档你的 Twitter 账户
 
-> 原文:[https://life hacker . com/how-to-clean-up-and-archive-your-Twitter-account-1836530498](https://lifehacker.com/how-to-clean-up-and-archive-your-twitter-account-1836530498)
+> 原文：<https://lifehacker.com/how-to-clean-up-and-archive-your-twitter-account-1836530498>
 
 我过去常常把我的数据永远保存在服务上——以防我需要去回忆一下——但是最近我发现从我的推特账户中清除旧的推文让我感到轻松和快乐。
 

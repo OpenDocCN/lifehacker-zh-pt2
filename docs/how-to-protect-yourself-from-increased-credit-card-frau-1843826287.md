@@ -1,6 +1,6 @@
 # 如何保护自己免受日益增多的信用卡诈骗
 
-> 原文:[https://life hacker . com/how-to-protect-you-from-increated-credit-Frau-1843826287](https://lifehacker.com/how-to-protect-yourself-from-increased-credit-card-frau-1843826287)
+> 原文：<https://lifehacker.com/how-to-protect-yourself-from-increased-credit-card-frau-1843826287>
 
 鉴于目前世界上正在发生的一切，你可能会认为黑客和其他欺诈者会休息一段时间，对吗？但事实远非如此。
 

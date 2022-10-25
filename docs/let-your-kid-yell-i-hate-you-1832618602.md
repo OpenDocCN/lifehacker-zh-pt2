@@ -1,6 +1,6 @@
 # 让你的孩子大喊，“我恨你”
 
-> 原文:[https://life hacker . com/let-your-kid-yell-I-hate-you-1832618602](https://lifehacker.com/let-your-kid-yell-i-hate-you-1832618602)
+> 原文：<https://lifehacker.com/let-your-kid-yell-i-hate-you-1832618602>
 
 有一次，当我的儿子大约六岁的时候——因为某种原因对我大发雷霆——他跺着脚走上楼梯，大喊:“我不喜欢你！”一边走一边回头张望。
 

@@ -1,6 +1,6 @@
 # 如何摆脱下班后的懈怠
 
-> 原文:[https://life hacker . com/how-to-get-away-from-slack-after-work-1830280671](https://lifehacker.com/how-to-get-away-from-slack-after-work-1830280671)
+> 原文：<https://lifehacker.com/how-to-get-away-from-slack-after-work-1830280671>
 
 如果你的公司通过 Slack 交流，你就会知道一个巨大的工作场所聊天室的迷人魅力，在那里你可以建立整个房间，专门讨论诸如河谷镇和护肤之类的事情。然后是你需要谈论的实际工作内容。它真的可以一天吃光！以下是你如何防止它吞噬你的夜晚。
 

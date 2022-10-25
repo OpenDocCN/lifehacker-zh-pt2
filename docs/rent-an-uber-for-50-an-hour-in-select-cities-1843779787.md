@@ -1,6 +1,6 @@
 # 在特定城市以每小时 50 美元的价格租一辆优步
 
-> 原文:[https://life hacker . com/rent-an-Uber-for-50-hour-in-select-cities-1843779787](https://lifehacker.com/rent-an-uber-for-50-an-hour-in-select-cities-1843779787)
+> 原文：<https://lifehacker.com/rent-an-uber-for-50-an-hour-in-select-cities-1843779787>
 
 新冠肺炎疫情在很多方面改变了我们的生活，包括我们的出行方式。对于没有车，依赖公交的人来说，更是如此。四个月前，我们可能会乘地铁去办事，或者去美国国家铁路客运公司进行一次短途旅行，但由于有限的时间表和传播病毒的可能性，这些不再是许多人的选择。但现在，美国某些城市的人们有了另一种可能:优步每小时一次。
 

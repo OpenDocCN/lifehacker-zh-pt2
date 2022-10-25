@@ -1,6 +1,6 @@
 # 这些是 2018 年年终交易最好的二手车
 
-> 原文:[https://jalopnik . com/these-is-the-used-cars with the-best-end-of-year-d-1830845853](https://jalopnik.com/these-are-the-used-cars-with-the-best-end-of-the-year-d-1830845853)
+> 原文：<https://jalopnik.com/these-are-the-used-cars-with-the-best-end-of-the-year-d-1830845853>
 
 十二月是买车的好时机。虽然传统上交易是在新车型上，但在假期买一辆二手车也能为你节省一些现金。在的人们分析市场，寻找年终最划算的汽车。
 

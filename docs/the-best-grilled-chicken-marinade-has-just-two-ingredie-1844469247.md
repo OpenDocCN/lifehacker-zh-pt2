@@ -1,6 +1,6 @@
 # 最好的烤鸡腌料只有两种成分
 
-> 原文:[https://life hacker . com/the-best-coated-chicken-marinade-has-just-two-ingredie-1844469247](https://lifehacker.com/the-best-grilled-chicken-marinade-has-just-two-ingredie-1844469247)
+> 原文：<https://lifehacker.com/the-best-grilled-chicken-marinade-has-just-two-ingredie-1844469247>
 
 尽管我很喜欢不那么 t 韩- 主流 [切肉](https://skillet.lifehacker.com/theres-no-such-thing-as-weird-meat-1844249803) ，但我无法否认自己享受烤鸡腿的简单乐趣，尤其是如果这些腿已经用酸奶和大蒜盐腌制过——这是一种最完美的家禽腌料。
 

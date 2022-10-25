@@ -1,6 +1,6 @@
 # 什么时候早点走出工作面试
 
-> 原文:[https://life hacker . com/when-to-walk-out-of-a-job-interview-early-1840996045](https://lifehacker.com/when-to-walk-out-of-a-job-interview-early-1840996045)
+> 原文：<https://lifehacker.com/when-to-walk-out-of-a-job-interview-early-1840996045>
 
 假设你已经到了求职的面试阶段，谈话开始五分钟后，你意识到这份特定的工作并不适合你。
 

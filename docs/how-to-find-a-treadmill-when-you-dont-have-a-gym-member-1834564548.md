@@ -1,6 +1,6 @@
 # 没有健身房会员怎么找跑步机
 
-> 原文:[https://life hacker . com/how-to-find-a-跑步机-when you don ' t-have-a-gym-member-1834564548](https://lifehacker.com/how-to-find-a-treadmill-when-you-dont-have-a-gym-member-1834564548)
+> 原文：<https://lifehacker.com/how-to-find-a-treadmill-when-you-dont-have-a-gym-member-1834564548>
 
 跑步似乎总是一种便宜又简单的锻炼方式，除非遇到暴雨、暴风雪或 100 度的高温天。然后你开始嫉妒地下室里有跑步机的人...还有那些有健身房会员资格的人。当天气不好的时候，这里有一些方法可以帮助你完成这一重要的跑步。
 

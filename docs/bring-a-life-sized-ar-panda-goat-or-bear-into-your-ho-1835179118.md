@@ -1,6 +1,6 @@
 # 使用这项新的谷歌搜索功能，将真人大小的 AR 熊猫、山羊或熊带回家
 
-> 原文:[https://life hacker . com/bring-a-life-size-ar-panda-goat-or-bear-into-your-ho-1835179118](https://lifehacker.com/bring-a-life-sized-ar-panda-goat-or-bear-into-your-ho-1835179118)
+> 原文：<https://lifehacker.com/bring-a-life-sized-ar-panda-goat-or-bear-into-your-ho-1835179118>
 
 下次你使用谷歌搜索来搜索一种动物，比如高山山羊、老虎或狮子，你也许可以把这种动物的增强现实版本带进房间。
 

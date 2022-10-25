@@ -1,6 +1,6 @@
 # 我们拒绝所有的饮用水黑客
 
-> 原文:[https://life hacker . com/we-reject-all-water-drinking-hacks-1832586287](https://lifehacker.com/we-reject-all-water-drinking-hacks-1832586287)
+> 原文：<https://lifehacker.com/we-reject-all-water-drinking-hacks-1832586287>
 
 告诉人们多喝水是一种懒惰且无用的健康伎俩。你渴了就会喝水。为什么要把事情复杂化？
 

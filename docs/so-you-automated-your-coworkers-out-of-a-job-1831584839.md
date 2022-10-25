@@ -1,6 +1,6 @@
 # so you automated your coworkers out of a job 1831584839
 
-> 原文:[https://gizmodo . com/so-you-automated-you-Cooper-out-of-job-1831584839](https://gizmodo.com/so-you-automated-your-coworkers-out-of-a-job-1831584839)
+> 原文：<https://gizmodo.com/so-you-automated-your-coworkers-out-of-a-job-1831584839>
 
 在一家小型 3D 建模公司上班的第一天，Griffith 注意到他的新同事的工作站已经过时了。因此，他主动向高层建议一些自动化升级，高层同意了。两年后，20 名员工——其中一些是好朋友——失业了。
 

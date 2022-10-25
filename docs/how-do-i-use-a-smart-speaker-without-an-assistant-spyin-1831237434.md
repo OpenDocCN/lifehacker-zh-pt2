@@ -1,6 +1,6 @@
 # 我如何使用智能音箱而没有助手监视我？
 
-> 原文:[https://life hacker . com/how-do-I-use-a-smart-speaker-without-a-assistant-spyin-1831237434](https://lifehacker.com/how-do-i-use-a-smart-speaker-without-an-assistant-spyin-1831237434)
+> 原文：<https://lifehacker.com/how-do-i-use-a-smart-speaker-without-an-assistant-spyin-1831237434>
 
 由于这是下周大送礼日之前的最后一个生活黑客 [技术建议专栏](https://lifehacker.com/c/tech-911) ，所以本周的问题来自一位需要帮助为自己挑选礼物的读者是再合适不过了。实际上是多份礼物——他不想让任何公司在他安排好之后监视他。
 

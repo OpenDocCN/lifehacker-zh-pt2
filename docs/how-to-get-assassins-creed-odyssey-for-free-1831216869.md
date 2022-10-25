@@ -1,6 +1,6 @@
 # 如何免费获得刺客信条奥德赛
 
-> 原文:[https://life hacker . com/how-to-get-assigners-creed-odyssey-for-free-1831216869](https://lifehacker.com/how-to-get-assassins-creed-odyssey-for-free-1831216869)
+> 原文：<https://lifehacker.com/how-to-get-assassins-creed-odyssey-for-free-1831216869>
 
 视频游戏是一种受欢迎的节日礼物，发行商育碧正在通过 [免费赠送 2018 年最好的发行版之一——《刺客信条奥德赛》](https://news.ubisoft.com/en-us/article/341869/project-stream-participants-to-get-free-pc-copy-of-assassins-creed-odyssey) 作为礼物给那些参加谷歌项目流测试版的人。
 

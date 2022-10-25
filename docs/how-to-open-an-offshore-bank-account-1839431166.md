@@ -1,6 +1,6 @@
 # 如何开立离岸银行账户
 
-> 原文:[https://life hacker . com/how-to-open-a-offshore-bank-account-1839431166](https://lifehacker.com/how-to-open-an-offshore-bank-account-1839431166)
+> 原文：<https://lifehacker.com/how-to-open-an-offshore-bank-account-1839431166>
 
 离岸银行业务是你在日常生活中听都没听说过的事情。这是关于逃税者在 [被](https://www.kxly.com/news/spokane-man-pleads-guilty-to-filing-false-tax-return-concealing-1m-held-in-offshore-account/1134978191) 抓住的新闻报道。这是为了本季*如何逃脱谋杀*的剧情。
 

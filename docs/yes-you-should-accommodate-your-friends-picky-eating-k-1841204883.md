@@ -1,6 +1,6 @@
 # 是的，你应该迁就你朋友挑食的孩子
 
-> 原文:[https://life hacker . com/yes-you-should-accommodate-your-friends-picky-eating-k-1841204883](https://lifehacker.com/yes-you-should-accommodate-your-friends-picky-eating-k-1841204883)
+> 原文：<https://lifehacker.com/yes-you-should-accommodate-your-friends-picky-eating-k-1841204883>
 
 就在感恩节前，我告诉你们所有人，如果你的孩子只想要面包卷，那么在大餐时，你应该让他们除了面包卷什么都不吃 。我不会改变这一立场，它植根于一个每个人都应该采纳的基本的两部分育儿原则:1。不要在别人家挑你的食物大战，还有 2。不要在节假日、特殊活动或大型聚会时选择食物大战。
 

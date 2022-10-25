@@ -1,6 +1,6 @@
 # im victor jeffreys gizmodo media event planner and th 1831082074
 
-> 原文:[https://life hacker . com/im-victor-jeffreys-gizmodo-media-event-planner-and-th-1831082074](https://lifehacker.com/im-victor-jeffreys-gizmodo-media-event-planner-and-th-1831082074)
+> 原文：<https://lifehacker.com/im-victor-jeffreys-gizmodo-media-event-planner-and-th-1831082074>
 
 称维克多·杰弗里斯为“事件协调员”感觉就像称独角兽为“有角的交通工具”他为 Lifehacker 的母公司 Gizmodo Media 举办的活动包括钢管舞龙虾、高级时尚书籍，以及在 24 小时内构思并委托制作的冰雕。我们和维克多聊了聊他为什么总是提前一天到达，他的必备物品(运动皮带和泳裤)，以及他两次认为自己会在机场被捕。
 

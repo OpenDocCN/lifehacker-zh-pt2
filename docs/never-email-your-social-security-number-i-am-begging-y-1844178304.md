@@ -1,6 +1,6 @@
 # never email your social security number i am begging y 1844178304
 
-> 原文:[https://life hacker . com/never-email-your-social-security-number-I-am-乞讨-y-1844178304](https://lifehacker.com/never-email-your-social-security-number-i-am-begging-y-1844178304)
+> 原文：<https://lifehacker.com/never-email-your-social-security-number-i-am-begging-y-1844178304>
 
 大约在 4 月份政府开始发放冠状病毒救济金的同时，电子邮件开始向我涌来。
 

@@ -1,6 +1,6 @@
 # 通过简单的呼吸练习来缓解你的焦虑
 
-> 原文:[https://life hacker . com/tame-your-anxiety with a simple-breathing-exercise-1844518758](https://lifehacker.com/tame-your-anxiety-with-a-simple-breathing-exercise-1844518758)
+> 原文：<https://lifehacker.com/tame-your-anxiety-with-a-simple-breathing-exercise-1844518758>
 
 我们中的许多人——也许特别是最近——都经历过 T2 焦虑的心跳加速的感觉，这种感觉导致我们出汗、颤抖，甚至呼吸困难。但是事实证明我们在压力下喘气的本能有负面影响。
 

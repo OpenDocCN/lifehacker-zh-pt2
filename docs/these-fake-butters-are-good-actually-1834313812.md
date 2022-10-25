@@ -1,6 +1,6 @@
 # 这些假黄油真的很好吃
 
-> 原文:[https://life hacker . com/these-fake-butters-is-good-其实-1834313812](https://lifehacker.com/these-fake-butters-are-good-actually-1834313812)
+> 原文：<https://lifehacker.com/these-fake-butters-are-good-actually-1834313812>
 
 90 年代对脂肪来说是一个黑暗的时代，但我记得对黄油来说尤其暗淡。一瓶邪恶的"我不敢相信这不是黄油"喷雾在我童年的厨房里一直存在，我把这种乳黄色的液体既用作食用油又用作调味剂。我的祖母仍然用熏肉油烹饪，但一桶乡村瓦罐代替了黄油作为配料。这不太好。
 

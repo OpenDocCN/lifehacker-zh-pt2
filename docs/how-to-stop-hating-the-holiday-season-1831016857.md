@@ -1,6 +1,6 @@
 # 如何停止讨厌假期
 
-> 原文:[https://life hacker . com/how-to-stop-hate-the-holiday-season-1831016857](https://lifehacker.com/how-to-stop-hating-the-holiday-season-1831016857)
+> 原文：<https://lifehacker.com/how-to-stop-hating-the-holiday-season-1831016857>
 
 我们正处于一年中最紧张的时期——这是对喜欢假期的人来说。旅行、开销、家庭动态:年终庆祝会让任何人都笑掉大牙。以下是你如何进入节日气氛而不被各种鬼教训的方法。
 

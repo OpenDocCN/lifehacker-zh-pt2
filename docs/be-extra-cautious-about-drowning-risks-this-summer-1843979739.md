@@ -1,6 +1,6 @@
 # be extra cautious about drowning risks this summer 1843979739
 
-> 原文:[https://life hacker . com/be-extra-precious-on-dropping-risks-this-summer-1843979739](https://lifehacker.com/be-extra-cautious-about-drowning-risks-this-summer-1843979739)
+> 原文：<https://lifehacker.com/be-extra-cautious-about-drowning-risks-this-summer-1843979739>
 
 充气泳池现在很难出现。我知道这一点，因为我花了*许多*小时试图找到并购买一台在我自己的院子里使用。似乎我们都在想方设法把夏天的一点乐趣带进我们自己房产的范围，而通常去的营地、游乐场和公共游泳池仍然关闭。在院子里增加一个游泳池当然是一个很好的方法。
 

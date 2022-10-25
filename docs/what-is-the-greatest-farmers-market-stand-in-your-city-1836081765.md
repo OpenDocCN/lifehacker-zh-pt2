@@ -1,6 +1,6 @@
 # 你所在城市最大的农贸市场是哪一个？
 
-> 原文:[https://life hacker . com/你所在城市最大的农贸市场是什么-1836081765](https://lifehacker.com/what-is-the-greatest-farmers-market-stand-in-your-city-1836081765)
+> 原文：<https://lifehacker.com/what-is-the-greatest-farmers-market-stand-in-your-city-1836081765>
 
 这是农贸市场的黄金季节:当地的西红柿、鳄梨、蓝莓、玉米，都是北半球最好的农产品。但是我最喜欢的绿色市场摊位是卖羊肉和羊毛的。(我花了一点时间才联系起来！)是的，我爱上了 [卡茨基尔美利奴羊](https://www.catskillmerino.com/) ，它每周六都会在纽约联合广场开店。
 

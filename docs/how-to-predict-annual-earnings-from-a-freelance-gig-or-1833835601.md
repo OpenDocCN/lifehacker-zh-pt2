@@ -1,6 +1,6 @@
 # 如何预测自由职业或兼职的年收入
 
-> 原文:[https://life hacker . com/how-to-predict-annual-income-from-a-freelance-gig-or-1833835601](https://lifehacker.com/how-to-predict-annual-earnings-from-a-freelance-gig-or-1833835601)
+> 原文：<https://lifehacker.com/how-to-predict-annual-earnings-from-a-freelance-gig-or-1833835601>
 
 自由职业者和兼职骗子:今年你想赚多少钱？
 

@@ -1,6 +1,6 @@
 # 如果你怀孕了，以下是你需要了解的冠状病毒
 
-> 原文:[https://life hacker . com/if-you-further-heres-what-you-need-to-know-on-th-1842363762](https://lifehacker.com/if-youre-pregnant-heres-what-you-need-to-know-about-th-1842363762)
+> 原文：<https://lifehacker.com/if-youre-pregnant-heres-what-you-need-to-know-about-th-1842363762>
 
 去年的这个时候，我怀了我儿子 36 周。那是我第一次怀孕，我是一个极度循规蹈矩的人。不含咖啡因。没有午餐肉。不要在蹦床上跳。怀孕前，我喜欢做所有这些事情，但这不再只是我一个人的事了。我害怕外面的东西可能会伤害到内心可爱的小东西。
 

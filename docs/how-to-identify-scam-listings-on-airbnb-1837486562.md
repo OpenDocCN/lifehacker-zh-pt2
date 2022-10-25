@@ -1,6 +1,6 @@
 # 如何识别 Airbnb 上的诈骗房源
 
-> 原文:[https://life hacker . com/how-to-identify-scam-listings-on-Airbnb-1837486562](https://lifehacker.com/how-to-identify-scam-listings-on-airbnb-1837486562)
+> 原文：<https://lifehacker.com/how-to-identify-scam-listings-on-airbnb-1837486562>
 
 在最近的一篇 Reddit 帖子 中，u/brunoflourenco 分享了他们在伦敦的 Airbnb 房源的经历——结果证明是假的。他们写道:“我们到了那里，敲了敲门，那个人走了出来，看起来真的很困惑。”“我们告诉他我们是 Airbnb 的客人，他叹了口气说，‘伙计们，问题是你们被骗了。你是第三个来这里寻找这家 Airbnb 的人，但它并不存在。"
 

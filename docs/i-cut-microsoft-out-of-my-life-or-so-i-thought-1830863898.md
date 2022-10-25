@@ -1,6 +1,6 @@
 # i cut microsoft out of my life or so i thought 1830863898
 
-> 原文:[https://gizmodo . com/I-cut-Microsoft-out-of-my life-or-so-I-thought-1830863898](https://gizmodo.com/i-cut-microsoft-out-of-my-life-or-so-i-thought-1830863898)
+> 原文：<https://gizmodo.com/i-cut-microsoft-out-of-my-life-or-so-i-thought-1830863898>
 
 第四周:微软
 

@@ -1,6 +1,6 @@
 # 如何在 Plex 上找到免费电影和电视节目
 
-> 原文:[https://life hacker . com/how-to-find-free-movies-and-TV-shows-on-plex-1840200145](https://lifehacker.com/how-to-find-free-movies-and-tv-shows-on-plex-1840200145)
+> 原文：<https://lifehacker.com/how-to-find-free-movies-and-tv-shows-on-plex-1840200145>
 
 Plex 今天为电影和电视节目推出了一项新的免费广告支持的流媒体服务，这里有一个难题:没有办法*不*查看广告。即使你是 Plex 的高级服务 [Plex Pass 用户](https://www.plex.tv/plex-pass/) ，当你在它的流媒体服务上观看任何内容时，你仍然会看到广告。这些小烦恼值得吗？绝对的。
 

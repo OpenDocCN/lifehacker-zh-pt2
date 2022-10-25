@@ -1,6 +1,6 @@
 # 这是 207 名国会议员，他们刚刚要求斯科特考虑驳回罗伊诉韦德案
 
-> 原文:[https://Jezebel . com/here-are-207-members-of-congress-members-who-just-quest-scotus-1840777791](https://jezebel.com/here-are-207-members-of-congress-who-just-asked-scotus-1840777791)
+> 原文：<https://jezebel.com/here-are-207-members-of-congress-who-just-asked-scotus-1840777791>
 
 周四，由 207 名国会议员组成的联盟向最高法院提交了一份的法庭之友简报，要求最高法院“重新考虑”两起具有里程碑意义的堕胎案件——[*罗伊诉韦德*](https://jezebel.com/tag/roe-v-wade) 和*Se 计划生育。PA 诉 Casey—*——这显然是为了在联邦层面上压制生育权。这份摘要是围绕路易斯安那州的一项法律展开的，该法律要求实施堕胎手术的医生在 30 英里范围内的医院拥有入院特权，它试图在范围上足够大，以至于它建议对罗伊和凯西案的重新考虑应该“如果合适的话，被驳回”:
 

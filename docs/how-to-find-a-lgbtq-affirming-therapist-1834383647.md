@@ -1,6 +1,6 @@
 # 如何找到一个 LGBTQ 肯定治疗师
 
-> 原文:[https://life hacker . com/how-to-find-a-lgbtq-asserting-therapy-1834383647](https://lifehacker.com/how-to-find-a-lgbtq-affirming-therapist-1834383647)
+> 原文：<https://lifehacker.com/how-to-find-a-lgbtq-affirming-therapist-1834383647>
 
 找到合适的治疗师——你信任的人，你喜欢的人，和你一见如故的人——对任何人来说都很重要，以确保他们的治疗有效。但是对于那些认为自己是 LGBTQ 的人来说，找到一个 LGBTQ 或 LGBTQ-肯定的治疗师对于创造一个安全、支持的空间是至关重要的。
 

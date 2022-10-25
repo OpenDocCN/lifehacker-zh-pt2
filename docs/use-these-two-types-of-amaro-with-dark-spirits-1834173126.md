@@ -1,6 +1,6 @@
 # 对黑暗精灵使用这两种类型的 Amaro
 
-> 原文:[https://life hacker . com/use-this-two-type-of-amaro-with-dark-spirits-1834173126](https://lifehacker.com/use-these-two-types-of-amaro-with-dark-spirits-1834173126)
+> 原文：<https://lifehacker.com/use-these-two-types-of-amaro-with-dark-spirits-1834173126>
 
 我不反对简单地啜饮一杯 amaro 或五杯，因为它们通常味道很浓，不需要太多。我也喜欢加一点苏打水。但我以阿马罗为中心的世界观有时会让我忘记，这些甜味和草药味的小数字很适合搭配成熟的鸡尾酒，尤其是那些用深色烈酒调制的鸡尾酒。
 

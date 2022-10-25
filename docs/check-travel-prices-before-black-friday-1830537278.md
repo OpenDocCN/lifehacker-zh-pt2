@@ -1,6 +1,6 @@
 # 黑色星期五前查看旅行价格
 
-> 原文:[https://life hacker . com/check-travel-prices-before-black-Friday-1830537278](https://lifehacker.com/check-travel-prices-before-black-friday-1830537278)
+> 原文：<https://lifehacker.com/check-travel-prices-before-black-friday-1830537278>
 
 你可能想不到航空公司会在黑色星期五和网络星期一提供优惠——通常优惠是在电器、服装和科技产品上，对吗？但是，如果你有一个旅行的想法，并希望节省一点机票费用，来自不同旅游公司的研究表明，你可能希望查看下周发生的交易。
 

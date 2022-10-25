@@ -1,6 +1,6 @@
 # 夏季公路旅行的最佳保险
 
-> 原文:[https://life hacker . com/the-best-insurance for your ' s summer ' s road-trip-1844398400](https://lifehacker.com/the-best-insurance-for-your-summer-road-trip-1844398400)
+> 原文：<https://lifehacker.com/the-best-insurance-for-your-summer-road-trip-1844398400>
 
 随着冠状病毒(新冠肺炎)疫情的蔓延，许多美国人已经改变了他们的旅行计划。今年夏天，开车突然成了一种流行的选择——根据 Expedia 最近的民意调查，85%的美国旅行者说他们可能会自驾游。虽然选择汽车意味着你可能不需要为航班取消购买保险，但一份 [资金报告](https://money.com/best-travel-insurance-coronavirus/) 涵盖了一些需要考虑的其他政策。
 

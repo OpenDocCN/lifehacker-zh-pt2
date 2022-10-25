@@ -1,6 +1,6 @@
 # 要改变你的习惯，首先要改变你的常规
 
-> 原文:[https://life hacker . com/to-change-your-habits-first-change-your-routine-1842860611](https://lifehacker.com/to-change-your-habits-first-change-your-routine-1842860611)
+> 原文：<https://lifehacker.com/to-change-your-habits-first-change-your-routine-1842860611>
 
 我们中的许多人不得不整理新的日常事务，因为我们在家工作，在家养育孩子，在家工作和在家养育孩子，或者仅仅是...嗯...*待在家里*。
 

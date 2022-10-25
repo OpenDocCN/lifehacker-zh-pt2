@@ -1,6 +1,6 @@
 # 作为跑步新手，如何设定基准
 
-> 原文:[https://life hacker . com/how-to-set-benchmarks-as-a-beginning-runner-1843738002](https://lifehacker.com/how-to-set-benchmarks-as-a-beginning-runner-1843738002)
+> 原文：<https://lifehacker.com/how-to-set-benchmarks-as-a-beginning-runner-1843738002>
 
 如果你最近开始跑步，你可能会发现了解自己的能力很令人兴奋。但如果你知道的唯一目标是连续跑三英里——著名的“ [沙发到 5K](https://vitals.lifehacker.com/all-the-questions-youll-have-when-you-start-couch-to-5k-1830857969)”——你可能会发现自己在想:*就这些吗？*
 

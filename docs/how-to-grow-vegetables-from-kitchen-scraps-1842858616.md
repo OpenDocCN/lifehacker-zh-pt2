@@ -1,6 +1,6 @@
 # 如何用厨余种植蔬菜
 
-> 原文:[https://life hacker . com/how-to-grow-vegetables-from the kitchen-scrap-1842858616](https://lifehacker.com/how-to-grow-vegetables-from-kitchen-scraps-1842858616)
+> 原文：<https://lifehacker.com/how-to-grow-vegetables-from-kitchen-scraps-1842858616>
 
 在长长的买菜队伍、激烈的送货竞争和春天的到来之间，你可能会想尝试自己种植蔬菜。你和其他人一样: [种子](https://www.cbsnews.com/news/coronavirus-seeds-americans-grow-food/) 也出现了挤兑。幸运的是，许多你从农产品区带回家的蔬菜很容易在家里重新生长，不需要种子。
 

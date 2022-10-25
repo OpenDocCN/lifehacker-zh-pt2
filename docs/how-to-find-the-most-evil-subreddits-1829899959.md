@@ -1,6 +1,6 @@
 # 如何找到最邪恶的子群
 
-> 原文:[https://life hacker . com/how-to-find-the-most-evil-subred dits-1829899959](https://lifehacker.com/how-to-find-the-most-evil-subreddits-1829899959)
+> 原文：<https://lifehacker.com/how-to-find-the-most-evil-subreddits-1829899959>
 
 你可以在 Reddit 上找到任何东西，无论好坏。这也是该网站如此普遍受欢迎的原因之一，因为它是新手几乎不受限制地访问过去很难找到的一切的简单方式:新电影的日下载量、他们最喜欢的体育赛事、免费或修改的 [游戏](https://lifehacker.com/how-to-cheat-in-your-favorite-games-1829939723) 和应用程序，等等。
 

@@ -1,6 +1,6 @@
 # 极地涡旋期间如何帮助无家可归者
 
-> 原文:[https://life hacker . com/how-to-help-the-how-how-to-how-the-household-in-polar-vortex-1832199640](https://lifehacker.com/how-to-help-the-homeless-during-the-polar-vortex-1832199640)
+> 原文：<https://lifehacker.com/how-to-help-the-homeless-during-the-polar-vortex-1832199640>
 
 一个极地涡旋正降临中西部，使得部分地区 [比火星](https://chicago.cbslocal.com/2019/01/30/chicago-deep-freeze-colder-than-arctic-yukon-mars-siberia-mount-everest/) 还要冷。这是一种潜在威胁生命的天气模式，对没有住房的人来说尤其危险。以下是你可以提供帮助的方式。
 

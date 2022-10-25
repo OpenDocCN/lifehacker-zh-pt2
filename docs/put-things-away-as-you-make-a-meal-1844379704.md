@@ -1,6 +1,6 @@
 # 做饭时把东西收拾好
 
-> 原文:[https://life hacker . com/put-things-away-as-you-make-a-meal-a-meal-1844379704](https://lifehacker.com/put-things-away-as-you-make-a-meal-1844379704)
+> 原文：<https://lifehacker.com/put-things-away-as-you-make-a-meal-1844379704>
 
 为自己或家人做一顿饭，往往是它本身的回报；没有什么比把你所有的技能、爱和关心放进一道菜里，然后你可以吃，看着别人享用更好的了。但是做饭也有不好的一面:总是会弄得一团糟。这就是为什么，如果你不想在吃饭的时候被食品组装过程的碎屑弄得满柜台都是，不想被即将到来的烦人任务所奚落，你应该尽最大努力在吃饭的时候清理干净。
 

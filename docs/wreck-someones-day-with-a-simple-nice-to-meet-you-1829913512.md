@@ -1,6 +1,6 @@
 # 用一句简单的“很高兴见到你”来破坏别人的一天
 
-> 原文:[https://life hacker . com/wreck-someones-day-with-a-simple-nice-to-meet-you-1829913512](https://lifehacker.com/wreck-someones-day-with-a-simple-nice-to-meet-you-1829913512)
+> 原文：<https://lifehacker.com/wreck-someones-day-with-a-simple-nice-to-meet-you-1829913512>
 
 我们都想成为值得纪念的人，或者，如果不值得纪念，至少不被完全遗忘。这就是为什么，当你面对一个你已经见过的人时，一句简单、愉快的“很高兴见到你！”或者“嗨，我是克莱尔！”(用你自己的名字)可能是毁灭性的(或者至少是令人失望的)。
 

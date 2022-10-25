@@ -1,6 +1,6 @@
 # 这就是便宜和昂贵刹车片的区别
 
-> 原文:[https://jalopnik . com/heres-the-difference-and-贵-brake-1839775565](https://jalopnik.com/heres-the-difference-between-cheap-and-expensive-brake-1839775565)
+> 原文：<https://jalopnik.com/heres-the-difference-between-cheap-and-expensive-brake-1839775565>
 
 汽车保养的费用范围很广。虽然购买最便宜的产品(例如刹车片)来减轻钱包的负担可能很有诱惑力，但人们总会想，从长远来看，那些更贵的刹车片可能实际上更耐用。但是它们真的值得吗？如果是的话，你是否必须去真正昂贵的地方才能看到对你的车和预算的好处？
 

@@ -1,6 +1,6 @@
 # 不要用硬毛刷清洁你的烤架
 
-> 原文:[https://life hacker . com/don-t-use-a-bristh-brush-to-clean-your-grill-1833265471](https://lifehacker.com/dont-use-a-bristle-brush-to-clean-your-grill-1833265471)
+> 原文：<https://lifehacker.com/dont-use-a-bristle-brush-to-clean-your-grill-1833265471>
 
 汉堡很好，但里面有猪鬃的汉堡绝对不好。事实证明，烧烤刷上细小、粗糙、多刺的刷毛可能会从刷子上脱落，并卡在你的食物中，有可能卡在你的喉咙和舌头里。显然，这并不理想。
 

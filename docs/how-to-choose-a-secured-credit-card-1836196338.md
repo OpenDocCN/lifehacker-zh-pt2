@@ -1,6 +1,6 @@
 # 如何选择安全的信用卡
 
-> 原文:[https://life hacker . com/how-to-choose-a-secured-credit-card-1836196338](https://lifehacker.com/how-to-choose-a-secured-credit-card-1836196338)
+> 原文：<https://lifehacker.com/how-to-choose-a-secured-credit-card-1836196338>
 
 也许你的信用不太好，或者完全在垃圾箱里。或者也许你甚至没有*的信用评分。如果你过去的金融活动没有潜在的债权人排队向你慷慨出价，你该如何证明你可以负责任地使用信贷？安全的信用卡是开始建立信用记录的一种方式。* 
 

@@ -1,6 +1,6 @@
 # 随着一些苹果商店重新开业，这里有什么值得期待的
 
-> 原文:[https://life hacker . com/as-some-apple-stores-reopen-heres-what-to-expect-1843523329](https://lifehacker.com/as-some-apple-stores-reopen-heres-what-to-expect-1843523329)
+> 原文：<https://lifehacker.com/as-some-apple-stores-reopen-heres-what-to-expect-1843523329>
 
 经过几个月的封锁，第一波商业和公共场所正在重新开放。一小批苹果商店 是第一批恢复营业的商店，虽然这意味着你很快就可以更容易地修理坏了的 iPhone 或 MacBook，但在去最近的苹果商店之前，你需要知道一些限制。
 

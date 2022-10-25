@@ -1,6 +1,6 @@
 # 不要把每只棕色蜘蛛都叫做棕色隐士
 
-> 原文:[https://life hacker . com/stop-calling-every-brown-spider-a-brown-recluser-1830097456](https://lifehacker.com/stop-calling-every-brown-spider-a-brown-recluse-1830097456)
+> 原文：<https://lifehacker.com/stop-calling-every-brown-spider-a-brown-recluse-1830097456>
 
 如果你住在东海岸、西海岸，或者任何一个大的方形州，你几乎肯定有一次在你的地下室里看到过一只致命的棕色隐士。如果你认识被 [咬过的人，他们很有可能不是](https://vitals.lifehacker.com/spider-bites-aren-t-always-from-spiders-1763343839#_ga=2.253530954.279257778.1540835468-1456718367.1520458611) 。即使在隐居者的领地内，机会仍然很低。
 

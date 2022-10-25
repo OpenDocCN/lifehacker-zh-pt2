@@ -1,6 +1,6 @@
 # 在你孩子的卧室墙上使用磁性底漆
 
-> 原文:[https://life hacker . com/use-magnetic-primer-on-your-kids-bedroom-wall-1833201766](https://lifehacker.com/use-magnetic-primer-on-your-kids-bedroom-wall-1833201766)
+> 原文：<https://lifehacker.com/use-magnetic-primer-on-your-kids-bedroom-wall-1833201766>
 
 上周，我们建议你把家里的一面隐藏墙(例如地下室或洗衣房)变成一面“”艺术墙，展示你孩子所有的杰作。一位被称为“杰米·兰尼斯特，私立学校弑君者”的评论者提出了另一个我们喜欢的想法:在你孩子的房间里选一面墙或一扇门，用磁性底漆粉刷它:
 

@@ -1,6 +1,6 @@
 # 如何在你的不和谐账户上启用双因素认证
 
-> 原文:[https://life hacker . com/enable-2fa-for-your-discord-account-so-you-don-get-phi-1836540697](https://lifehacker.com/enable-2fa-for-your-discord-account-so-you-dont-get-phi-1836540697)
+> 原文：<https://lifehacker.com/enable-2fa-for-your-discord-account-so-you-dont-get-phi-1836540697>
 
 好消息是什么？最近的一次网络钓鱼尝试击中了 Discord，并且只困住了一小批用户——总共大约 2500 人。坏消息呢？没有简单的工具来判断你是否在那个名单上，所以你最好现在就花点时间在服务上重置你的密码。更重要的是，是时候停止懒惰，启用双因素身份认证，这可以帮助保护您免受未来的网络钓鱼企图。
 

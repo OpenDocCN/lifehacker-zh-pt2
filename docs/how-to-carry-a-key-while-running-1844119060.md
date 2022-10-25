@@ -1,6 +1,6 @@
 # 跑步时如何携带钥匙
 
-> 原文:[https://life hacker . com/how-to-carry-a-key-while-running-1844119060](https://lifehacker.com/how-to-carry-a-key-while-running-1844119060)
+> 原文：<https://lifehacker.com/how-to-carry-a-key-while-running-1844119060>
 
 我以前松开过鞋带。我们都有。因此，如果我需要在身上藏一些有价值的东西——比如汽车钥匙(当我跑步的时候)或结婚戒指(当我举重的时候 ) ，把它放进我的鞋带结里(就像 [这个 Reddit 帖子](https://www.reddit.com/r/lifehacks/comments/hbkv3p/safe_way_to_run_with_keys_thread_the_aglet/) ) 中建议的那样，感觉不是一个非常安全的提议。但是有更好的方法。
 

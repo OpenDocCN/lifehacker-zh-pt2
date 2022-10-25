@@ -1,6 +1,6 @@
 # beyond the hype of lab grown diamonds 1834890351
 
-> 原文:[https://gizmodo . com/beyond-the hype-of-lab-grown-diamonds-1834890351](https://gizmodo.com/beyond-the-hype-of-lab-grown-diamonds-1834890351)
+> 原文：<https://gizmodo.com/beyond-the-hype-of-lab-grown-diamonds-1834890351>
 
 几十亿年前，当世界还年轻的时候，宝藏就开始在地下深处形成了。当地球构造板块的边缘陷入上地幔时，一些可能来自早已死亡的生命形式的碳被熔化并压缩成坚硬的晶格。几百万年后，这些晶格变成了这个星球上最持久、最耀眼的宝石。出于科学家们仍未完全理解的原因，火山爆发经常会将这些石头中隐藏的 [喷射到被称为金伯利岩的泡沫岩浆中的表面](https://www.sciencedaily.com/releases/2012/01/120123094523.htm) 。
 

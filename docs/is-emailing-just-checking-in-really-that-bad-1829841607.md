@@ -1,6 +1,6 @@
 # 发电子邮件“只是打个招呼”真的有那么糟糕吗？
 
-> 原文:[https://life hacker . com/is-email-just-check-in-really-that-bad-1829841607](https://lifehacker.com/is-emailing-just-checking-in-really-that-bad-1829841607)
+> 原文：<https://lifehacker.com/is-emailing-just-checking-in-really-that-bad-1829841607>
 
 在工作和生活中，我喜欢剧本。如果重复类型的互动是你生活的一部分——进行某种闲聊，必须以一定的频率发送相同类型的电子邮件，每天给客户、供应商或消息来源打电话——当你知道有一句妙语可以让一个啰嗦的人挂断电话时，为什么每次都要浪费精力想出新的材料呢？或者在聚会上有效地向人们解释你到底是做什么的？【T2
 

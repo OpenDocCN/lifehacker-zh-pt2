@@ -1,6 +1,6 @@
 # 避免这些常见的简历错误
 
-> 原文:[https://life hacker . com/avoid-these-common-resume-errors-1844380675](https://lifehacker.com/avoid-these-common-resume-mistakes-1844380675)
+> 原文：<https://lifehacker.com/avoid-these-common-resume-mistakes-1844380675>
 
 申请新工作是一个包含多个部分的过程。you can 直接写一份简历和求职信；一切都需要针对具体岗位量身定制。这是有道理的——向未来的雇主展示你最好的一面。
 

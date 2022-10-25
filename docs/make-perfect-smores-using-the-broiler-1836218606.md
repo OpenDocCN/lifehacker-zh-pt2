@@ -1,6 +1,6 @@
 # 用烤鸡做出完美的三明治
 
-> 原文:[https://life hacker . com/make-perfect-s mores-using-the-broiler-1836218606](https://lifehacker.com/make-perfect-smores-using-the-broiler-1836218606)
+> 原文：<https://lifehacker.com/make-perfect-smores-using-the-broiler-1836218606>
 
 在夏天，人们总是试图让其他人在外面吃饭，或者“户外”，如果你愿意的话。虽然我不喜欢在玫瑰园吃塔可钟(我昨晚就是这么做的！)，我确实认为有些“户外食物”在室内准备时，即使不更好，也一样好。其中一种食物是 s'mores。
 

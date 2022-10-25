@@ -1,6 +1,6 @@
 # 德瓦尔·帕特里克和迈克尔·彭博在 2020 年的主要问题上持什么立场？
 
-> 原文:[https://life hacker . com/where-do-deval-Patrick-and-Michael-Bloomberg-stand-on-m-1839857136](https://lifehacker.com/where-do-deval-patrick-and-michael-bloomberg-stand-on-m-1839857136)
+> 原文：<https://lifehacker.com/where-do-deval-patrick-and-michael-bloomberg-stand-on-m-1839857136>
 
 如果我们从本周的新闻中学到了什么，除了特朗普总统据称与乌克兰的关系的更新，那就是参加总统竞选永远不会太晚。周四上午，前马萨诸塞州州长德瓦尔·帕特里克(Deval Patrick)正式宣布参加 2020 年竞选——此前他已经错过了几场辩论和几个月的竞选活动。
 

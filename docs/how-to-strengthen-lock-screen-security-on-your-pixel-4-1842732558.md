@@ -1,6 +1,6 @@
 # 如何加强 Pixel 4 的锁屏安全性
 
-> 原文:[https://life hacker . com/how-to-strength-lock-screen-security-on-your-pixel-4-1842732558](https://lifehacker.com/how-to-strengthen-lock-screen-security-on-your-pixel-4-1842732558)
+> 原文：<https://lifehacker.com/how-to-strengthen-lock-screen-security-on-your-pixel-4-1842732558>
 
 Android 的[2020 年 4 月安全补丁](https://source.android.com/security/bulletin/2020-04-01) 包括对 Pixel 4 的面部识别功能的本质改进。这很简单，但对你的手机的安全性来说是重要的升级:现在一个人必须睁开眼睛才能通过 Pixel 的面部识别技术解锁手机。
 

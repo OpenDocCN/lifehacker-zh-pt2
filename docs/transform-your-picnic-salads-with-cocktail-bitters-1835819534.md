@@ -1,6 +1,6 @@
 # 用鸡尾酒苦味剂改变你的野餐沙拉
 
-> 原文:[https://life hacker . com/transform-your ' s 野餐-沙拉-鸡尾酒-苦酒-1835819534](https://lifehacker.com/transform-your-picnic-salads-with-cocktail-bitters-1835819534)
+> 原文：<https://lifehacker.com/transform-your-picnic-salads-with-cocktail-bitters-1835819534>
 
 苦味剂(几乎完全)被用来补充鸡尾酒的味道，增加微妙但非常必要的苦味和草药味。除非你是苦味酒和苏打水的粉丝，否则你很少品尝苦味酒本身；他们只是让其他东西尝起来更好。
 

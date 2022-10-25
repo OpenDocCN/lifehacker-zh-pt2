@@ -1,6 +1,6 @@
 # 使用智能扬声器组织孩子的家庭学习日
 
-> 原文:[https://life hacker . com/use-a-smart-speaker-to-structure-your-kids-in-home-scho-1844608671](https://lifehacker.com/use-a-smart-speaker-to-structure-your-kids-at-home-scho-1844608671)
+> 原文：<https://lifehacker.com/use-a-smart-speaker-to-structure-your-kids-at-home-scho-1844608671>
 
 面对面学校的好处之一是它给孩子的一天带来的结构:有一个学生要遵守的时间表，每个时间段都有明确的开始和结束时间，可能会有一个铃铛，以及迟到的可能后果。
 

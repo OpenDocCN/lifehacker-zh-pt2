@@ -1,6 +1,6 @@
 # 在此获得所有免费报税选项
 
-> 原文:[https://life hacker . com/get-all-your-free-tax-filing-options-right-here-1844218187](https://lifehacker.com/get-all-your-free-tax-filing-options-right-here-1844218187)
+> 原文：<https://lifehacker.com/get-all-your-free-tax-filing-options-right-here-1844218187>
 
 随着延迟的纳税申报截止日期迅速向我们走来——今天是 7 月 15 日 [，别忘了](https://twocents.lifehacker.com/tax-day-is-now-july-15-1842425809) ！—我们想借此机会提醒你，数字税务准备软件 TurboTax 标榜自己是一种免费而简单的纳税方式，但实际上并不那么免费*或*简单。实际上，它糟透了——以至于它启发了喜剧演员和《爱国者法案》的创造者哈桑·米哈杰，让他创建了 TurboTaxSucksAss.com 的新网站。
 

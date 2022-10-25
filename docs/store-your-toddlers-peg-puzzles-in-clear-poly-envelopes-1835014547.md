@@ -1,6 +1,6 @@
 # 将你的学步儿童的钉子拼图放在透明的聚乙烯信封里
 
-> 原文:[https://life hacker . com/store-your-tuddles-peg-puzzles-in-clear-poly-envelopes-1835014547](https://lifehacker.com/store-your-toddlers-peg-puzzles-in-clear-poly-envelopes-1835014547)
+> 原文：<https://lifehacker.com/store-your-toddlers-peg-puzzles-in-clear-poly-envelopes-1835014547>
 
 为了防止未来幼儿的痛苦，不要让他们失去他们的拼图块。说起来容易做起来难——你怎么能存放那些有多个松散部件的笨重东西呢？你可以买一个 [钢丝拼图架](https://www.target.com/p/melissa-doug-174-puzzle-storage-rack-wire-rack-holds-12-puzzles/-/A-10844608?ref=tgt_adv_XS000000&AFID=google_pla_df&fndsrc=tgtao&CPNG=PLA_Toys%2BShopping&adgroup=SC_Toys&LID=700000001170770pgs&network=g&device=c&location=9031024&ds_rl=1246978&ds_rl=1248099&ds_rl=1246978&gclid=EAIaIQobChMI_uLz0_S04gIVFJ7ACh0hfw6PEAQYASABEgLFmPD_BwE&gclsrc=aw.ds) ，如果你有十几个拼图，这可能是一个不错的选择，但如果你只有几个，想把它们放在架子上或箱子里，一个解决方案是把它们放在透明的聚乙烯信封里。
 

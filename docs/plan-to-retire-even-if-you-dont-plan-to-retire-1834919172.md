@@ -1,6 +1,6 @@
 # 即使你不打算退休，也要计划退休
 
-> 原文:[https://life hacker . com/plan-to-retire-even-if-you-not-plan-to-retire-1834919172](https://lifehacker.com/plan-to-retire-even-if-you-dont-plan-to-retire-1834919172)
+> 原文：<https://lifehacker.com/plan-to-retire-even-if-you-dont-plan-to-retire-1834919172>
 
 如果你是决定通过“尽可能长时间工作”来解决退休问题的人之一，那么是时候问问自己，如果你的工作日比预期提前结束，会发生什么。
 

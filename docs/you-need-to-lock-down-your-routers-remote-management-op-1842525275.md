@@ -1,6 +1,6 @@
 # 您需要锁定路由器的远程管理选项
 
-> 原文:[https://life hacker . com/you-need-lock-down-your-routers-remote-management-op-1842525275](https://lifehacker.com/you-need-to-lock-down-your-routers-remote-management-op-1842525275)
+> 原文：<https://lifehacker.com/you-need-to-lock-down-your-routers-remote-management-op-1842525275>
 
 我们以前说过，但我们要再说一遍:除非你正在使用网状路由器设置，这通常会将其配置与易于使用的应用程序和/或服务联系起来，否则你没有必要在路由器上启用 [远程管理](https://kb.netgear.com/976/Enabling-your-router-s-remote-management) 。这个设置在理论上听起来很棒——谁不想从远处访问他们路由器的配置呢？—但它实际上让你面临更多潜在的伤害，而不是好处。
 

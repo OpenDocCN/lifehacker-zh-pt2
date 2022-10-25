@@ -1,6 +1,6 @@
 # 在沃尔玛清空之前使用你的 JetCash 余额
 
-> 原文:[https://life hacker . com/use-your-jet cash-balance-before-Walmart-clears-it-out-1843550801](https://lifehacker.com/use-your-jetcash-balance-before-walmart-clears-it-out-1843550801)
+> 原文：<https://lifehacker.com/use-your-jetcash-balance-before-walmart-clears-it-out-1843550801>
 
 沃尔玛昨天宣布将关闭电子商务网站。对于那些在过去一年左右时间里一直在跟踪网站发展的人来说，这个消息可能并不令人惊讶，但 Jet 的粉丝应该考虑一个重要因素:用完你的 JetCash。
 

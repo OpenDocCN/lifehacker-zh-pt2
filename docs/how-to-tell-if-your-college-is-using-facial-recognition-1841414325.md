@@ -1,6 +1,6 @@
 # 如何判断你的大学是否在使用面部识别监控校园内的人
 
-> 原文:[https://life hacker . com/how-to-tell-if-your ' s college-is-use-face-recognition-1841414325](https://lifehacker.com/how-to-tell-if-your-college-is-using-facial-recognition-1841414325)
+> 原文：<https://lifehacker.com/how-to-tell-if-your-college-is-using-facial-recognition-1841414325>
 
 越来越多的学院和大学已经开始使用生物识别监控作为一种方法来监控学生，而他们在校园里。问题是，并不是所有人都 100%地了解监控。本周，数字权利组织为未来而战， [发表了一份针对全国近 100 所不同学院和大学的调查报告，](https://www.banfacialrecognition.com/campus/) 披露了这项技术在这些地方的应用情况。
 

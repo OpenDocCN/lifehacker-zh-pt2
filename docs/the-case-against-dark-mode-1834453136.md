@@ -1,6 +1,6 @@
 # 反对黑暗模式的理由
 
-> 原文:[https://life hacker . com/the-case-against-dark-mode-1834453136](https://lifehacker.com/the-case-against-dark-mode-1834453136)
+> 原文：<https://lifehacker.com/the-case-against-dark-mode-1834453136>
 
 采用黑暗模式的应用程序的主要优势是，它们在深夜不会在我们眼中发出如此明亮的光。但也有一个缺点:黑暗模式实际上更难阅读，并可能导致眼睛疲劳。
 

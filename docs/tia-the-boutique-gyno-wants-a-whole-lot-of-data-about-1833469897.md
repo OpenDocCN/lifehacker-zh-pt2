@@ -1,6 +1,6 @@
 # tia the boutique gyno wants a whole lot of data about 1833469897
 
-> 原文:[https://Jezebel . com/TIA-the-boutique-gyno-wants-a-all-lot-of-data-about-1833469897](https://jezebel.com/tia-the-boutique-gyno-wants-a-whole-lot-of-data-about-1833469897)
+> 原文：<https://jezebel.com/tia-the-boutique-gyno-wants-a-whole-lot-of-data-about-1833469897>
 
 Tia 诊所是一家只对会员开放的医生诊所，最近在纽约市开设了第一家诊所，它在 Instagram 上把自己描述为“一部分是妇科诊所”、“一部分是健康中心”和“一部分是女性堡垒”它的办公室位于麦迪逊广场公园附近，玫瑰色，点缀其间。候诊室里有西蒙娜·德·波伏娃和琼·狄迪恩的书，以防有人怀疑它的味道。
 

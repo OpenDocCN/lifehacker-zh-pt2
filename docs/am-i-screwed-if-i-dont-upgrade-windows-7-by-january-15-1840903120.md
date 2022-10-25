@@ -1,6 +1,6 @@
 # 如果我在 1 月 15 日之前不升级 Windows 7，我会完蛋吗？
 
-> 原文:[https://life hacker . com/am-I-screw-if-I-dont-upgrade-windows-7-by-January-15-1840903120](https://lifehacker.com/am-i-screwed-if-i-dont-upgrade-windows-7-by-january-15-1840903120)
+> 原文：<https://lifehacker.com/am-i-screwed-if-i-dont-upgrade-windows-7-by-january-15-1840903120>
 
 截止日期很可怕。*我知道*。微软给 Windows 7 用户抛出了一个大难题:在 2020 年 1 月 15 日之前， [更新到更现代的操作系统](https://lifehacker.com/quickly-upgrade-windows-7-to-windows-10-for-free-with-t-1840843214) ，否则你将永远不会收到安全更新。最终，微软甚至将在全年内开始禁用 Windows 7 的关键服务——比如互联网双陆棋*和*互联网跳棋。
 

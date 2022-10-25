@@ -1,6 +1,6 @@
 # 如何免费去听交响乐
 
-> 原文:[https://life hacker . com/how-to-go-to-the-symphony-free-1836225349](https://lifehacker.com/how-to-go-to-the-symphony-for-free-1836225349)
+> 原文：<https://lifehacker.com/how-to-go-to-the-symphony-for-free-1836225349>
 
 如果你曾经想体验交响乐，但不能——音乐会太贵，你的孩子不能长时间坐着，门票很难买到——这就是你的机会。去参加公开彩排。
 

@@ -1,6 +1,6 @@
 # Quest Diagnostics 违规后如何保护您的数据
 
-> 原文:[https://life hacker . com/how-to-protect-your-data-after-the-quest-diagnostics-br-1835236303](https://lifehacker.com/how-to-protect-your-data-after-the-quest-diagnostics-br-1835236303)
+> 原文：<https://lifehacker.com/how-to-protect-your-data-after-the-quest-diagnostics-br-1835236303>
 
 如果你在 Quest Diagnostics 办公室有过逾期账单，现在是时候对你的财务记录更加警惕了。是的:又有一次数据泄露。
 

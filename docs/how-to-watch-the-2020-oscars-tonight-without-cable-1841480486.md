@@ -1,6 +1,6 @@
 # 如何在没有有线电视的情况下观看今晚的 2020 年奥斯卡颁奖典礼
 
-> 原文:[https://life hacker . com/how-to-watch-the-the-2020-Oscars-tonight-without-cable-1841480486](https://lifehacker.com/how-to-watch-the-2020-oscars-tonight-without-cable-1841480486)
+> 原文：<https://lifehacker.com/how-to-watch-the-2020-oscars-tonight-without-cable-1841480486>
 
 奥斯卡就在今晚！该活动的部提名最多的电影*小丑*将角逐 11 个奖项。它将承担 *1917* 、*爱尔兰人*、*小妇人*、*婚姻故事*、*寄生虫*等更多令人垂涎的最佳影片头衔。
 

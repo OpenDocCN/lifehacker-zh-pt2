@@ -1,6 +1,6 @@
 # 用“空气再循环”按钮让你的车更快地冷却下来
 
-> 原文:[https://life hacker . com/cool-your-car-down-faster-with-the-air-recirculation-bu-1836787774](https://lifehacker.com/cool-your-car-down-faster-with-the-air-recirculation-bu-1836787774)
+> 原文：<https://lifehacker.com/cool-your-car-down-faster-with-the-air-recirculation-bu-1836787774>
 
 你可以将空调对准你的身体、脚或两者。你可以把它从低温调到超低温。但是在炎热的夏天，如果你不使用汽车的“空气再循环”按钮，你就不可能获得最酷的驾驶体验。
 

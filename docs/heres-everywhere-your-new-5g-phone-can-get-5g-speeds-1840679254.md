@@ -1,6 +1,6 @@
 # 这里是你的新 5G 手机可以获得 5G 速度的任何地方
 
-> 原文:[https://life hacker . com/heres-everywhere-your-new-5g-phone-can-get-5g-speeds-1840679254](https://lifehacker.com/heres-everywhere-your-new-5g-phone-can-get-5g-speeds-1840679254)
+> 原文：<https://lifehacker.com/heres-everywhere-your-new-5g-phone-can-get-5g-speeds-1840679254>
 
 尽管 5G 网络传播缓慢，大多数 5G 设备 相对 [表现平平，但大量早期采用者和好奇的客户正在加入 5G 宣传列车。如果你在这个假期获得了一个新的 5G 设备，你可能会想知道你到底可以在哪里使用它。](https://lifehacker.com/5g-phones-are-coming-soon-but-you-should-wait-to-buy-o-1831406561)
 

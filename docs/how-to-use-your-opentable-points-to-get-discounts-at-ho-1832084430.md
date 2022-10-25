@@ -1,6 +1,6 @@
 # 如何使用您的 OpenTable 积分在酒店获得折扣
 
-> 原文:[https://life hacker . com/how-to-use-your-opentable-points-to-get-discounts-at-ho-1832084430](https://lifehacker.com/how-to-use-your-opentable-points-to-get-discounts-at-ho-1832084430)
+> 原文：<https://lifehacker.com/how-to-use-your-opentable-points-to-get-discounts-at-ho-1832084430>
 
 在我们公寓的拐角处有一家很棒的拉面店，我和我男朋友大概每周都会去那里一次。有一段时间，当我们饿了的时候，我们只是走进一张桌子，这实际上在大多数时候是有效的。然后我意识到它们在 OpenTable 上。
 

@@ -1,6 +1,6 @@
 # 离开梅森瓶的带子，做一个低成本的盐窖
 
-> 原文:[https://life hacker . com/make-a-low-budget-salt-cellar-by-leaving-the-band-off-t-1833622631](https://lifehacker.com/make-a-low-budget-salt-cellar-by-leaving-the-band-off-t-1833622631)
+> 原文：<https://lifehacker.com/make-a-low-budget-salt-cellar-by-leaving-the-band-off-t-1833622631>
 
 烹饪时容易拿到盐是很重要的，但是直接从钻石水晶盒里倒一小堆到我手里会导致很多盐溢出。放一点点这种东西可以用一个晚上，但是打开的容器会积灰，没有人喜欢带灰尘的盐。(不，钻石水晶不能和盐瓶一起使用；这些洞太小了。)
 

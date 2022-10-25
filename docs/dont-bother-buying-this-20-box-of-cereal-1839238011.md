@@ -1,6 +1,6 @@
 # 不要费心去买这 20 美元一盒的麦片
 
-> 原文:[https://life hacker . com/don ' t-worth-buying-this-20-box-of-麦片-1839238011](https://lifehacker.com/dont-bother-buying-this-20-box-of-cereal-1839238011)
+> 原文：<https://lifehacker.com/dont-bother-buying-this-20-box-of-cereal-1839238011>
 
 我喜欢含糖的麦片。我母亲不允许在家里吃，所以我在奶奶家度过了许多个夏天，一边看着魅力四射、引人注目的 T4 和 T5 粘粘的 T6 和 T7，一边狼吞虎咽地吃着这些东西。有时我会混合谷物——米饼用可可豆来招待谷物，这是我的最爱。
 

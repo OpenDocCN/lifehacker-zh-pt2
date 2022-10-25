@@ -1,6 +1,6 @@
 # 如何在冠状病毒关闭期间拿回你的健身房会员费
 
-> 原文:[https://life hacker . com/how-to-get-your-gym-fees-back-in-the-cor-1842885943](https://lifehacker.com/how-to-get-your-gym-membership-fees-back-during-the-cor-1842885943)
+> 原文：<https://lifehacker.com/how-to-get-your-gym-membership-fees-back-during-the-cor-1842885943>
 
 在冠状病毒关闭期间，许多健身房已经跟随我们生活中各个领域的公司放松了支付政策。毕竟健身房关门了。如果你不能使用它，你可能不想付钱——或者没有能力支付。
 

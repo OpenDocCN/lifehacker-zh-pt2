@@ -1,6 +1,6 @@
 # 用辣根伏特加做一杯辛辣的血腥玛丽
 
-> 原文:[https://life hacker . com/make-a-辣根血腥玛丽-伏特加-1843344990](https://lifehacker.com/make-a-spicy-bloody-mary-with-horseradish-vodka-1843344990)
+> 原文：<https://lifehacker.com/make-a-spicy-bloody-mary-with-horseradish-vodka-1843344990>
 
 我有两个食品检疫项目，都不涉及烘焙。首先是用我的绞肉机绞肉(主要是为了做香肠)。第二件是 [用我的搅拌机快速调制伏特加](https://lifehacker.com/now-is-the-time-to-infuse-a-bunch-of-vodka-1842838266) 。辣根是清窦的最爱。
 

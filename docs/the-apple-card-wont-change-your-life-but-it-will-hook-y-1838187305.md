@@ -1,6 +1,6 @@
 # 苹果卡不会改变你的生活，但它会让你使用苹果支付
 
-> 原文:[https://gizmodo . com/the-apple-card-wot-change-your-life-but-it-hook-y-1838187305](https://gizmodo.com/the-apple-card-wont-change-your-life-but-it-will-hook-y-1838187305)
+> 原文：<https://gizmodo.com/the-apple-card-wont-change-your-life-but-it-will-hook-y-1838187305>
 
 ,
 

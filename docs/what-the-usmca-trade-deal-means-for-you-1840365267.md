@@ -1,6 +1,6 @@
 # 美国管理认证协会贸易协定对你意味着什么
 
-> 原文:[https://life hacker . com/what-the-usmca-trade-deal-mean-for-you-1840365267](https://lifehacker.com/what-the-usmca-trade-deal-means-for-you-1840365267)
+> 原文：<https://lifehacker.com/what-the-usmca-trade-deal-means-for-you-1840365267>
 
 当你忙着倒数 2020 年的日子，好让我们逃离这令人疲惫的一年时，一项新的贸易协议昨天达成了。
 

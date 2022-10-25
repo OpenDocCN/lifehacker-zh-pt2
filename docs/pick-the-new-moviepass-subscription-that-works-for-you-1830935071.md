@@ -1,6 +1,6 @@
 # 选择适合您的新 MoviePass 订阅
 
-> 原文:[https://life hacker . com/pick-the-new-movie pass-subscription-the-works-for-you-1830935071](https://lifehacker.com/pick-the-new-moviepass-subscription-that-works-for-you-1830935071)
+> 原文：<https://lifehacker.com/pick-the-new-moviepass-subscription-that-works-for-you-1830935071>
 
 在新的一年里，MoviePass 将再次升级其订阅模式，主要市场的用户可以期待为其每月订阅支付更多费用。
 

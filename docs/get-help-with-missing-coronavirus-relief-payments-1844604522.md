@@ -1,6 +1,6 @@
 # 获得关于失踪冠状病毒救济款项的帮助
 
-> 原文:[https://life hacker . com/get-help-with-missing-coronavirus-relief-payments-1844604522](https://lifehacker.com/get-help-with-missing-coronavirus-relief-payments-1844604522)
+> 原文：<https://lifehacker.com/get-help-with-missing-coronavirus-relief-payments-1844604522>
 
 当全国都把注意力转向一个可能的 [第二次刺激检查](https://twocents.lifehacker.com/what-can-you-expect-from-a-second-stimulus-check-1844497280) 的时候，许多美国人还在 [等待第一次](https://news.bloombergtax.com/daily-tax-report/millions-still-waiting-for-virus-payments-as-congress-mulls-more) 。上周，我们介绍了一些方法来 [追回你的欠款](https://twocents.lifehacker.com/what-to-do-if-you-still-haven-t-received-the-first-stim-1844532720)——但是如果你仍然有困难，也许还有另一个选择。
 

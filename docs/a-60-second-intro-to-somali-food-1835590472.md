@@ -1,6 +1,6 @@
 # 60 秒钟的索马里食物介绍
 
-> 原文:[https://the take out . com/a-60-second-intro-to-Somalia-food-1835590472](https://thetakeout.com/a-60-second-intro-to-somali-food-1835590472)
+> 原文：<https://thetakeout.com/a-60-second-intro-to-somali-food-1835590472>
 
 对大多数美国人来说，索马里是一片美食空白。关于这个东非国家的故事往往聚焦于其近三十年的动荡；关于索马里人民的故事聚焦于大约 200 万被迫离开家园的难民的艰难困苦，其中超过 15 万人现在居住在美国。尽管理解困扰索马里人民的长期冲突和危机很有价值，但这种独特的叙事掩盖了丰富的文化——包括索马里人带到美国的令人难以置信的多样化和复杂的烹饪传统。
 

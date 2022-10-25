@@ -1,6 +1,6 @@
 # 在两次飞行之间，飞机实际上被清洁了多少？
 
-> 原文:[https://life hacker . com/how-do-Dow-planes-actually-get-cleaned-in-between-flig-1836455238](https://lifehacker.com/how-much-do-planes-actually-get-cleaned-in-between-flig-1836455238)
+> 原文：<https://lifehacker.com/how-much-do-planes-actually-get-cleaned-in-between-flig-1836455238>
 
 通常最好的办法是，在任何手指碰到眼睛或擦到嘴唇的情况下，不要去想它去过哪里。在乘坐任何形式的公共交通工具时，这种情况会加倍，你的手会接触到那些和你一样恶心的人的所有其他手(放松，这没关系，就像一个纽约人说的:持续暴露在细菌中会让你变得)。
 

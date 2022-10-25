@@ -1,6 +1,6 @@
 # 从您自己的云安全摄像头保护您的隐私
 
-> 原文:[https://life hacker . com/protect-your-privacy-from-your-own-cloud-security-camer-1831684103](https://lifehacker.com/protect-your-privacy-from-your-own-cloud-security-camer-1831684103)
+> 原文：<https://lifehacker.com/protect-your-privacy-from-your-own-cloud-security-camer-1831684103>
 
 有多少人会在笔记本电脑的摄像头上贴上便利贴，因为他们担心有人会监视他们？在当今的技术世界，黑客访问网络摄像头和 USB 麦克风的传言一直存在，但当负责联网摄像头的制造商正是泄露你的视频的制造商时，情况就更糟了。
 

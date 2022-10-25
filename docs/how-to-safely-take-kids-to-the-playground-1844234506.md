@@ -1,6 +1,6 @@
 # 如何安全地带孩子去游乐场
 
-> 原文:[https://life hacker . com/how-to-safe-takes-to-the-playground-1844234506](https://lifehacker.com/how-to-safely-take-kids-to-the-playground-1844234506)
+> 原文：<https://lifehacker.com/how-to-safely-take-kids-to-the-playground-1844234506>
 
 我不能告诉你，现在去游乐场，你或你的孩子不会让自己暴露在感染新冠肺炎病毒的风险中。但我看到你在那里，那些孩子的父母不顾一切地让他们离开家，而 [消耗了他们的一些精力](https://lifehacker.com/6-great-energy-burning-backyard-games-for-little-kids-1844203883) 。如果你一直在争论是否要冒险去游乐场，你可以采取一些预防措施，让外出更加安全。
 

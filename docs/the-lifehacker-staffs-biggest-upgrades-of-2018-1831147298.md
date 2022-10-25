@@ -1,6 +1,6 @@
 # Lifehacker 员工的 2018 年最佳升级
 
-> 原文:[https://life hacker . com/the-life hacker-staff-biggest-upgrades-of-2018-1831147298](https://lifehacker.com/the-lifehacker-staffs-biggest-upgrades-of-2018-1831147298)
+> 原文：<https://lifehacker.com/the-lifehacker-staffs-biggest-upgrades-of-2018-1831147298>
 
 随着 2018 年即将结束，我们询问了 Lifehacker 的员工，哪一项变化对他们这一年的影响最大。
 

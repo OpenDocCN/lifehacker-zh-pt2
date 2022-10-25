@@ -1,6 +1,6 @@
 # 把你孩子的塑料玩具埋在冰里
 
-> 原文:[https://life hacker . com/bury-your-kids-plastic-toys-in-ice-1844040178](https://lifehacker.com/bury-your-kids-plastic-toys-in-ice-1844040178)
+> 原文：<https://lifehacker.com/bury-your-kids-plastic-toys-in-ice-1844040178>
 
 外面越来越热，一些地区该死的病毒率正在下降，但另一些地区的病毒率却在上升，孩子们很无聊，游泳池和自行车都卖光了，生活似乎永远不会恢复正常。是时候把你孩子的玩具埋在冰里了。
 

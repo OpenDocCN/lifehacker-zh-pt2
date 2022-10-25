@@ -1,6 +1,6 @@
 # 如何下载你的整个网飞观看历史
 
-> 原文:[https://life hacker . com/how-to-download-your-whole-网飞观看历史-1841471503](https://lifehacker.com/how-to-download-your-entire-netflix-viewing-history-1841471503)
+> 原文：<https://lifehacker.com/how-to-download-your-entire-netflix-viewing-history-1841471503>
 
 2017 年， [网飞报道](https://media.netflix.com/en/press-releases/2017-on-netflix-a-year-in-bingeing) 其用户每天观看近 1.4 亿小时的内容，平均每个订户不到一小时。总的来说，这意味着你和我以及所有其他狂热的观众在网飞度过了近 13 天的*时光，很可能是为了观看《办公室》的重播。*
 

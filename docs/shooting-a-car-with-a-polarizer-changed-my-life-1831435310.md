@@ -1,6 +1,6 @@
 # 用偏光镜拍汽车改变了我的人生
 
-> 原文:[https://jalopnik . com/shooting-a-car-with-a-polarizer-changed-my life-1831435310](https://jalopnik.com/shooting-a-car-with-a-polarizer-changed-my-life-1831435310)
+> 原文：<https://jalopnik.com/shooting-a-car-with-a-polarizer-changed-my-life-1831435310>
 
 摄影对我来说只不过是一种爱好，所以对我来说，得到最好、最专业的装备从来都不是最重要的。小时候，我用一架旧宝丽来相机和一些傻瓜相机。2011 年圣诞节，我得到了我的第一台 DSLR——佳能 T3i Rebel。几年后，我买了一辆 6D。但是没有一件设备比偏光滤镜对我的拍摄有更大的影响。现在已经没有回头路了。
 

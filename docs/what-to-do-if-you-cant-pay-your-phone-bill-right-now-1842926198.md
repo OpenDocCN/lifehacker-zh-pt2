@@ -1,6 +1,6 @@
 # 如果你现在付不出电话费该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-you-can-pay-your-phone-bill-right-now-1842926198](https://lifehacker.com/what-to-do-if-you-cant-pay-your-phone-bill-right-now-1842926198)
+> 原文：<https://lifehacker.com/what-to-do-if-you-cant-pay-your-phone-bill-right-now-1842926198>
 
 当你大部分时间都呆在家里的时候，你的手机用得太多了吗？你也许能省下每月的账单。
 

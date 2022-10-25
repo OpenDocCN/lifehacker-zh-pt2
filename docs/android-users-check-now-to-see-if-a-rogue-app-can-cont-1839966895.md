@@ -1,6 +1,6 @@
 # Android 用户:现在检查一下，看看流氓应用程序是否能控制你手机的摄像头
 
-> 原文:[https://life hacker . com/Android-users-check-now-to-see-if-a-rogue-app-can-cont-1839966895](https://lifehacker.com/android-users-check-now-to-see-if-a-rogue-app-can-cont-1839966895)
+> 原文：<https://lifehacker.com/android-users-check-now-to-see-if-a-rogue-app-can-cont-1839966895>
 
 根据 Checkmarx 安全研究人员的调查，一些 [Android 设备可能有一个未修补的安全漏洞](https://www.checkmarx.com/blog/how-attackers-could-hijack-your-android-camera) ，一个应用程序可以在你不知情的情况下使用你设备的摄像头和麦克风记录你。
 

@@ -1,6 +1,6 @@
 # 将拉面粉撒在薯条上
 
-> 原文:[https://life hacker . com/spruce-ramen-powder-on-French-fries-1833383886](https://lifehacker.com/sprinkle-ramen-powder-on-french-fries-1833383886)
+> 原文：<https://lifehacker.com/sprinkle-ramen-powder-on-french-fries-1833383886>
 
 我是一个很有品位的世俗女人，这就是为什么我旅行中最喜欢的事情之一是看看国际麦当劳的当地人才能提供什么，特别是在蘸酱和 McFlurry 选项方面。我在英国吃过吉百利麦片粥，在法国吃过蘸 La 酱咖喱的鸡块，但这些来自香港的拉面风味的“摇摇”薯条 确实很特别。
 

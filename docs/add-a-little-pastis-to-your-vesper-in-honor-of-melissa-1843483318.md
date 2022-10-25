@@ -1,6 +1,6 @@
 # 向梅丽莎·基尔希致敬，在你的晚祷中加点茴香酒
 
-> 原文:[https://life hacker . com/add-a-little-pastis-to-your-vesper of-honor-of-Melissa-1843483318](https://lifehacker.com/add-a-little-pastis-to-your-vesper-in-honor-of-melissa-1843483318)
+> 原文：<https://lifehacker.com/add-a-little-pastis-to-your-vesper-in-honor-of-melissa-1843483318>
 
 今天在 Lifehacker 有点扫兴，因为我们要和 [梅丽莎·基尔希](https://kinja.com/melissakirsch?_ga=2.5118897.381487110.1589134441-329965069.1585339145) 说再见了。自从我成为一名职员以来，梅丽莎一直是我们的主编和无畏的领导者，我现在很难想象没有她的网站。
 

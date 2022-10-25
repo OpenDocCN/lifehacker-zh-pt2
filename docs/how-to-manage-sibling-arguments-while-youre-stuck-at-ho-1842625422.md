@@ -1,6 +1,6 @@
 # 当你被困在家里时，如何处理兄弟姐妹间的争吵
 
-> 原文:[https://life hacker . com/how-to-manage-sibling-arguments-while you-stick-at-ho-1842625422](https://lifehacker.com/how-to-manage-sibling-arguments-while-youre-stuck-at-ho-1842625422)
+> 原文：<https://lifehacker.com/how-to-manage-sibling-arguments-while-youre-stuck-at-ho-1842625422>
 
 到目前为止，在我甚至不知道你的孩子在疫情禁闭的第一周，你可能已经接受了自己工作效率下降的事实，因为你正在把精力转移到一个月前你从未听说过的应用程序上，成为一名全职老师。
 

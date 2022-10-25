@@ -1,6 +1,6 @@
 # im san francisco chronicle food critic soleil ho and th 1837912193
 
-> 原文:[https://life hacker . com/im-San-Francisco-chronicle-food-critical-Soleil-ho-and-th-1837912193](https://lifehacker.com/im-san-francisco-chronicle-food-critic-soleil-ho-and-th-1837912193)
+> 原文：<https://lifehacker.com/im-san-francisco-chronicle-food-critic-soleil-ho-and-th-1837912193>
 
 大多数餐馆评论是为富人写的，也是为那些阅读评论来验证他们的餐饮选择和无可挑剔的品味的人写的，但 Soleil Ho 的评论不适合他们。正如她对种族主义三明治播客 (目前正在停播)所做的那样，Soleil 为餐厅评论界带来了急需的深思熟虑，无论这意味着消除笨重的星级体系，重新审视 [奢侈品在现代餐饮中的作用](https://www.sfchronicle.com/restaurants/article/What-does-luxury-mean-for-the-modern-restaurant-14279744.php) ，还是挑战 [全能的餐厅列表](https://www.sfchronicle.com/restaurants/article/The-tyranny-of-the-listicle-On-Top-100-and-those-14059792.php?psid=lxjCu) 。对食物有想法和感觉可能是她的工作，但这并不是她在工作结束时关闭的东西，这是一个好消息，因为她很好地与我分享了一些想法和感觉。
 

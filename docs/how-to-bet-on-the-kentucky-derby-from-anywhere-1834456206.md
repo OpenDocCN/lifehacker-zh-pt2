@@ -1,6 +1,6 @@
 # 如何在任何地方下注肯塔基赛马会
 
-> 原文:[https://life hacker . com/how-to-bet-the-Kentucky-derby-from-anywhere-1834456206](https://lifehacker.com/how-to-bet-on-the-kentucky-derby-from-anywhere-1834456206)
+> 原文：<https://lifehacker.com/how-to-bet-on-the-kentucky-derby-from-anywhere-1834456206>
 
 我喜欢在重大事件上赌博。无论是 [超级碗期间国歌将持续多长时间](https://lifehacker.com/spice-up-your-super-bowl-party-with-prop-bets-1832305336) 还是 [哪个角色将坐上铁王座](https://lifehacker.com/how-to-bet-on-game-of-thrones-with-your-friends-1834035583) ，对我来说有看头一个事件更令人兴奋如果我有机会赢得什么东西，即使那“赢”只是 5 美元。
 

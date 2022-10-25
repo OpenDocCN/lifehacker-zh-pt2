@@ -1,6 +1,6 @@
 # should i intervene in my adult sons relationship 1844042418
 
-> 原文:[https://life hacker . com/should-I-intervent-in-my-adult-sons-relationship-1844042418](https://lifehacker.com/should-i-intervene-in-my-adult-sons-relationship-1844042418)
+> 原文：<https://lifehacker.com/should-i-intervene-in-my-adult-sons-relationship-1844042418>
 
 我们的孩子长大了并不意味着我们不再是他们的父母。我们仍然想保护他们，引导他们，看着他们为幸福、充实的生活做出最好的决定。但当涉及到他们的浪漫关系时，多少干预才算是过多干预呢？一位母亲问:“当你知道你的成年孩子和他们的另一半不合适时，你会怎么做？”
 

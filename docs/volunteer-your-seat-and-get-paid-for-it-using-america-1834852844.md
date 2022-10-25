@@ -1,6 +1,6 @@
 # 使用美国航空公司的应用程序自愿提供座位(并获得报酬)
 
-> 原文:[https://life hacker . com/volunteer-your-seat-and-get-payed-it-use-America-1834852844](https://lifehacker.com/volunteer-your-seat-and-get-paid-for-it-using-america-1834852844)
+> 原文：<https://lifehacker.com/volunteer-your-seat-and-get-paid-for-it-using-america-1834852844>
 
 如果你现在乘坐美国航空公司的航班，提前办理登机手续可能是值得的——真的。
 

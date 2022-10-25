@@ -1,6 +1,6 @@
 # 为什么你应该不平等地对待你的孩子
 
-> 原文:[https://life hacker . com/why-you-should-treat-your-kids-1836704769](https://lifehacker.com/why-you-should-treat-your-kids-unequally-1836704769)
+> 原文：<https://lifehacker.com/why-you-should-treat-your-kids-unequally-1836704769>
 
 我的两个孩子几乎在所有可能的方面都是对立的。我儿子吵闹，冲动，自信，古怪，聪明。女儿中等体积，有思想，犹豫，顺从，有条理。我的儿子需要很多提醒来完成事情，我的女儿甚至不用我提醒就能完成任务。我儿子不在乎因表现好而获得奖励。我女儿独立发明了她自己的奖励系统。
 

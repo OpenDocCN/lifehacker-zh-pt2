@@ -1,6 +1,6 @@
 # 关于万豪最近的数据泄露，你需要知道什么
 
-> 原文:[https://life hacker . com/what-you-need-to-know-about-marriotts-recent-data-breac-1842654474](https://lifehacker.com/what-you-need-to-know-about-marriotts-recent-data-breac-1842654474)
+> 原文：<https://lifehacker.com/what-you-need-to-know-about-marriotts-recent-data-breac-1842654474>
 
 3 月 31 日星期二，万豪国际宣布可能发生了的数据泄露，泄露了超过 520 万名客人的信息。这是该酒店集团在过去两年中第二次遭遇如此大规模的违规事件。
 

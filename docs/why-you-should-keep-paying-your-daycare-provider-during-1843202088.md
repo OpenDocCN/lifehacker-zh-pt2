@@ -1,6 +1,6 @@
 # 为什么你应该在关闭期间继续支付你的日托服务提供商
 
-> 原文:[https://life hacker . com/why-you-should-keep-pay-your day-care-provider-during-1843202088](https://lifehacker.com/why-you-should-keep-paying-your-daycare-provider-during-1843202088)
+> 原文：<https://lifehacker.com/why-you-should-keep-paying-your-daycare-provider-during-1843202088>
 
 鉴于所有的经济担忧，停止支付你的日托服务提供商是很有诱惑力的，其中许多人在 关闭期间 [要求部分学费。如果你能负担得起，继续付钱给他们是个好主意，因为一旦安全了，你会想要回到日托机构。](https://www.marketplace.org/2020/03/30/do-parents-still-pay-when-daycare-is-closed-for-weeks-or-months-because-of-covid-19/)
 

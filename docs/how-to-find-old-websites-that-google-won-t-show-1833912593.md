@@ -1,6 +1,6 @@
 # 如何找到谷歌不会显示的旧网站
 
-> 原文:[https://life hacker . com/how-to-find-old-websites-that-Google-won-t-show-1833912593](https://lifehacker.com/how-to-find-old-websites-that-google-won-t-show-1833912593)
+> 原文：<https://lifehacker.com/how-to-find-old-websites-that-google-won-t-show-1833912593>
 
 互联网作为一个“场所”，在不断成长。我们每天都在创建越来越多的网页——事实上，数量如此之多，以至于感觉好像它的某些角落被时间遗忘了。
 

@@ -1,6 +1,6 @@
 # 如何在应用程序之间移动您的播客
 
-> 原文:[https://life hacker . com/how-to-move-your-podcasts-between-apps-1833034360](https://lifehacker.com/how-to-move-your-podcasts-between-apps-1833034360)
+> 原文：<https://lifehacker.com/how-to-move-your-podcasts-between-apps-1833034360>
 
 我长期以来一直是 Castro podcast 应用程序的粉丝，主要是因为当该应用程序处于第二版本时，我支付了 5 美元 ，这解锁了今天的 Castr o 3 用户没有订阅无法获得的功能子集。(哈！)然而，Pocket Casts——the Shark to Castro ' s Jet——现在支持通过 [在亚马逊 Echo 设备上播放，这是一个有用的小技能](https://support.pocketcasts.com/article/alexa/) ，我想在我的房子周围利用它来开始清理我的 100 多集队列。
 

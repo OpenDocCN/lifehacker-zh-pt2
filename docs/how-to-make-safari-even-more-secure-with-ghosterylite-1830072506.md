@@ -1,6 +1,6 @@
 # 如何用 GhosteryLite 让 Safari 更安全
 
-> 原文:[https://life hacker . com/how-to-make-safari-even-more-secure-with-ghosterylite-1830072506](https://lifehacker.com/how-to-make-safari-even-more-secure-with-ghosterylite-1830072506)
+> 原文：<https://lifehacker.com/how-to-make-safari-even-more-secure-with-ghosterylite-1830072506>
 
 我最喜欢的用于广告拦截和隐私的 Chrome 扩展， [Ghostery](https://www.ghostery.com/) ，在 macOS 上的 Safari 有了新版本: [GhosteryLite](https://www.ghostery.com/blog/product-releases/ghostery-lite-for-safari-is-live/) 。
 

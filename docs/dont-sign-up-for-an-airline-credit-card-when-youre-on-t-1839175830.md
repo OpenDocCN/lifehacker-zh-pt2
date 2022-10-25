@@ -1,6 +1,6 @@
 # 当你在飞机上时，不要注册航空信用卡
 
-> 原文:[https://life hacker . com/don-sign-for-a-airline-信用卡-当你在 t-1839175830](https://lifehacker.com/dont-sign-up-for-an-airline-credit-card-when-youre-on-t-1839175830)
+> 原文：<https://lifehacker.com/dont-sign-up-for-an-airline-credit-card-when-youre-on-t-1839175830>
 
 每次你转身的时候，似乎都有人想让你注册一张信用卡——没有什么地方比飞机更适合推销了。你跑不了，躲不了，而且你可能累了，脱水了。在旅程即将结束的时候，当空乘人员拿着航空公司的信用卡申请表走过过道时，你肯定已经把目光移开了。你不能完全理解这个关于有多少分在这条线上的噼噼啪啪的公告，但是你会有这样的感觉，如果你今天注册，你会得到一大堆。
 

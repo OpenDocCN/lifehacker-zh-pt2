@@ -1,6 +1,6 @@
 # 据 Reddit 报道，这些事实会让你的孩子大吃一惊
 
-> 原文:[https://life hacker . com/these-facts-will-blow-your-kids-to-REDD-1834332823](https://lifehacker.com/these-facts-will-blow-your-kids-mind-according-to-redd-1834332823)
+> 原文：<https://lifehacker.com/these-facts-will-blow-your-kids-mind-according-to-redd-1834332823>
 
 Reddit 用户 ExpiringFrog [需要一些帮助](https://www.reddit.com/r/AskReddit/comments/bekeb1/what_mindblowing_but_simple_facts_would_satisfy_a/) 。“有哪些令人兴奋(但简单)的事实能满足 4 岁女儿每天睡前对一个事实的要求？”他们问。评论者纷至沓来，抛出了一些奇怪、有趣、真正令人吃惊的知识，甚至让这位成年女士都惊呆了(大多数大象的重量还不及一条蓝鲸的舌头？说什么？！).
 

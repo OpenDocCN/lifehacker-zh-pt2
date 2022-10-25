@@ -1,6 +1,6 @@
 # 使用 KeyRocket 获得记忆 Gmail 快捷方式的帮助
 
-> 原文:[https://life hacker . com/get-help-memoring-Gmail-shortcut s-with-key rocket-1839401486](https://lifehacker.com/get-help-remembering-gmail-shortcuts-with-keyrocket-1839401486)
+> 原文：<https://lifehacker.com/get-help-remembering-gmail-shortcuts-with-keyrocket-1839401486>
 
 你知道 Gmail 有很多内置快捷方式吗？默认情况下，它们是关闭的，但如果你是一个重度 Gmail 用户，你可以打开它们，让浏览收件箱更有效率。
 

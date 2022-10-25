@@ -1,6 +1,6 @@
 # 不要在自动扶梯上行走
 
-> 原文:[https://life hacker . com/stop-walk-on-the-ladder-1833435436](https://lifehacker.com/stop-walking-on-the-escalator-1833435436)
+> 原文：<https://lifehacker.com/stop-walking-on-the-escalator-1833435436>
 
 自动扶梯步行者和自动扶梯站立者永远在斗争中被锁定——他们就像卫生纸的卷上安装者和卷下安装者，或 GIF 发音者，或 [单间隔者和双间隔者](https://lifehacker.com/no-you-still-shouldnt-put-two-spaces-after-a-period-1825662114) ，每天只在世界各地的商场、机场、办公室、火车出口和各式各样的移动楼梯中面对面出现。现实世界的证据似乎站在旁观者一边。步行者是一个瓶颈，他们互相拖累，也拖累了站立者。
 

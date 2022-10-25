@@ -1,6 +1,6 @@
 # 如何永远丢弃一次性塑料袋
 
-> 原文:[https://life hacker . com/how-to-沟-一次性塑料袋-永远-1841357077](https://lifehacker.com/how-to-ditch-single-use-plastic-bags-forever-1841357077)
+> 原文：<https://lifehacker.com/how-to-ditch-single-use-plastic-bags-forever-1841357077>
 
 3 月 1 日， [纽约州](https://www.nytimes.com/2019/03/28/nyregion/plastic-bag-ban-.html) 将加入加州等州的行列，通过禁止杂货店和其他零售商出售大部分塑料袋来对抗塑料袋。
 

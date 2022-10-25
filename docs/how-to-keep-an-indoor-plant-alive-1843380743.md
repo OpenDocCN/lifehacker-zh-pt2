@@ -1,6 +1,6 @@
 # 如何让室内植物存活
 
-> 原文:[https://life hacker . com/how-to-keep-an-室内植物存活-1843380743](https://lifehacker.com/how-to-keep-an-indoor-plant-alive-1843380743)
+> 原文：<https://lifehacker.com/how-to-keep-an-indoor-plant-alive-1843380743>
 
 保持室内植物存活意味着长期为其提供所需的 T2。让室内植物存活意味着不要忘记它曾经存在了几个月。保持室内植物存活是一个标志，表明你已经设法跨过门槛进入胜任的 成年期。
 

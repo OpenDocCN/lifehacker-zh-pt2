@@ -1,6 +1,6 @@
 # 当你试图工作时，如何屏蔽外界
 
-> 原文:[https://life hacker . com/how-to-block-out-the-world-when-you-try-to-work-1841635855](https://lifehacker.com/how-to-block-out-the-world-when-youre-trying-to-work-1841635855)
+> 原文：<https://lifehacker.com/how-to-block-out-the-world-when-youre-trying-to-work-1841635855>
 
 有时候，你希望自己一个人呆着，但你的同事、宠物或孩子不会走开。再见，生产力。值得庆幸的是，当你试图完成待办事项清单上的所有项目时，有很多技巧可以用来为自己创造一个舒适的小泡泡。
 

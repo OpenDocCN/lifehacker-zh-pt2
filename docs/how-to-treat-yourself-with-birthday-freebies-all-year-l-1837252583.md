@@ -1,6 +1,6 @@
 # 如何用全年的生日赠品犒劳自己
 
-> 原文:[https://life hacker . com/how-to-treat-yourself-birthday-freebies-all-year-l-1837252583](https://lifehacker.com/how-to-treat-yourself-with-birthday-freebies-all-year-l-1837252583)
+> 原文：<https://lifehacker.com/how-to-treat-yourself-with-birthday-freebies-all-year-l-1837252583>
 
 如今，世界上的每一家零售和快餐连锁店似乎都有一个忠诚度计划，好的连锁店提供的额外津贴之一是你的生日赠品或折扣。这些程序很少验证你的出生日期。
 

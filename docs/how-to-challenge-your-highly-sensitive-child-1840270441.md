@@ -1,6 +1,6 @@
 # 如何挑战你高度敏感的孩子
 
-> 原文:[https://life hacker . com/how-to-challenge-your ' s high-sensitive-child-1840270441](https://lifehacker.com/how-to-challenge-your-highly-sensitive-child-1840270441)
+> 原文：<https://lifehacker.com/how-to-challenge-your-highly-sensitive-child-1840270441>
 
 正如一位儿科医生兼作家 所说，有些孩子就像蒲公英。他们相当有弹性，能够应对压力、变化和逆境。而另一些则更像兰花；他们更敏感，似乎对事物有更深刻的感受，或者在变化或意外中挣扎。如果你是这些兰花中的一种——也被称为高度敏感的儿童——的父母，你就会知道给他们买一件不会感到发痒的衣服，防止他们在喧闹的聚会中受到过度刺激，或者帮助他们重新适应新学年的开始是一个多么大的挑战。
 

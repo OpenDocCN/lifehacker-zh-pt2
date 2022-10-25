@@ -1,6 +1,6 @@
 # 如何在 iOS 14 中添加一个 CarPlay 壁纸
 
-> 原文:[https://life hacker . com/how-to-add-a-carplay-wallpaper-in-IOs-14-1844181585](https://lifehacker.com/how-to-add-a-carplay-wallpaper-in-ios-14-1844181585)
+> 原文：<https://lifehacker.com/how-to-add-a-carplay-wallpaper-in-ios-14-1844181585>
 
 iOS 14 中的一个新功能是可以用几个新壁纸中的一个来定制汽车的 CarPlay 界面。如果你不知道，CarPlay 可以让你通过 Siri 语音命令控制汽车的音响和其他连接的智能汽车配件，这个版本的 iOS 标志着用户将首次能够在很大程度上调整 CarPlay 的外观。
 

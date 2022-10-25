@@ -1,6 +1,6 @@
 # 不要扔掉装满的喷雾罐
 
-> 原文:[https://life hacker . com/don-throw-away-full-aerosol-spray-cans-1837716526](https://lifehacker.com/dont-throw-away-full-aerosol-spray-cans-1837716526)
+> 原文：<https://lifehacker.com/dont-throw-away-full-aerosol-spray-cans-1837716526>
 
 早在 5 月，一项诉讼声称 [老帕姆烹饪喷雾剂](https://skillet.lifehacker.com/throw-out-old-canisters-of-pam-immediately-1834614281) 爆炸，造成至少 8 人烧伤(甚至 [致盲某人](https://www.usatoday.com/story/money/2019/05/07/8-people-allegedly-burned-exploding-cooking-spray-cans-sue-conagra/1127053001/) 一只眼睛)。
 

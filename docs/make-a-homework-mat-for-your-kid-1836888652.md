@@ -1,6 +1,6 @@
 # 为你的孩子做一个“家庭作业垫”
 
-> 原文:[https://life hacker . com/make-a-homework-mat-for-your-kid-1836888652](https://lifehacker.com/make-a-homework-mat-for-your-kid-1836888652)
+> 原文：<https://lifehacker.com/make-a-homework-mat-for-your-kid-1836888652>
 
 我不喜欢小孩子的家庭作业的一点是，当他们在学校坐了一整天后，我们会让他们去家里的另一张桌子。它在抑制。他们的身体扭动着，躁动不安，乞求移动。
 

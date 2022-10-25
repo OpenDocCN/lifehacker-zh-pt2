@@ -1,6 +1,6 @@
 # how to organize your own pokemon hunt 1842858176
 
-> 原文:[https://life hacker . com/how-to-organize-your-own-pokemon-hunt-1842858176](https://lifehacker.com/how-to-organize-your-own-pokemon-hunt-1842858176)
+> 原文：<https://lifehacker.com/how-to-organize-your-own-pokemon-hunt-1842858176>
 
 你不会惊讶地得知，在疫情危机期间，我的儿子消失在了任天堂 Switch 的 [神奇宝贝之剑](https://swordshield.pokemon.com/en-us/) 游戏中。但是，当我们一次又一次地谈论这些生物和战斗时，灵感来了，想出了一种将他在屏幕上的冒险离线的方法——于是 DIY 神奇宝贝狩猎就诞生了。
 

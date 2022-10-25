@@ -1,6 +1,6 @@
 # 如何扔掉你最糟糕的可重复使用的购物袋
 
-> 原文:[https://life hacker . com/how-to-摆脱你最糟糕的可重复使用的购物袋-1835206315](https://lifehacker.com/how-to-get-rid-of-your-worst-reusable-grocery-bags-1835206315)
+> 原文：<https://lifehacker.com/how-to-get-rid-of-your-worst-reusable-grocery-bags-1835206315>
 
 如果你实际上不重复使用一个可重复使用的购物袋，它对环境的危害比塑料袋 还要大。我们已经告诉你 [如何选择一个你实际上会使用的](https://lifehacker.com/how-to-actually-use-your-reusable-grocery-bags-1821390104) 可重复使用的袋子。但是，所有那些看起来神奇地堆积在每个家庭中的丑陋、笨重、不可折叠的袋子呢？把它们变成别人的问题，但要以好的方式:用它们来收集任何会离开你家的东西。
 

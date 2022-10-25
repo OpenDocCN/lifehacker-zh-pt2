@@ -1,6 +1,6 @@
 # 不为警察辩护，就没有气候正义
 
-> 原文:[https://gizmodo . com/there-no-climate-justice-without-defund-the-police-1843833563](https://gizmodo.com/there-is-no-climate-justice-without-defunding-the-polic-1843833563)
+> 原文：<https://gizmodo.com/there-is-no-climate-justice-without-defunding-the-polic-1843833563>
 
 美国爆发抗议警察残忍杀害乔治·弗洛伊德的活动。抗议大体上是和平的。警方没有回应。
 

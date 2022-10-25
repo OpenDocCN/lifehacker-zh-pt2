@@ -1,6 +1,6 @@
 # 使用权限来阻止你的 Android 上的诈骗应用
 
-> 原文:[https://life hacker . com/use-permissions-to-keep-scammy-apps-off-your-Android-1843026818](https://lifehacker.com/use-permissions-to-keep-scammy-apps-off-your-android-1843026818)
+> 原文：<https://lifehacker.com/use-permissions-to-keep-scammy-apps-off-your-android-1843026818>
 
 谷歌从谷歌 Play 商店下架了又一批糟糕的安卓应用，原因是违反了公司的服务条款。该综述包括 101 个应用程序，属于一个名为 2NAD network 的组织，该组织使用 27 个虚假的开发者名称作为幌子，分发其许多有问题的 应用程序。
 

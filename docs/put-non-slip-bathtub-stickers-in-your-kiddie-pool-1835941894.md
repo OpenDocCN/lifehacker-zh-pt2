@@ -1,6 +1,6 @@
 # 在你的儿童泳池里贴上防滑浴缸贴纸
 
-> 原文:[https://life hacker . com/put-non-slip-tubbar-sticker-in-your kiddy-pool-1835941894](https://lifehacker.com/put-non-slip-bathtub-stickers-in-your-kiddie-pool-1835941894)
+> 原文：<https://lifehacker.com/put-non-slip-bathtub-stickers-in-your-kiddie-pool-1835941894>
 
 即使你握着他们的小手或警告他们慢慢站起来，这个夏天，蹒跚学步的孩子仍然会在他们的婴儿池边滑来滑去。
 

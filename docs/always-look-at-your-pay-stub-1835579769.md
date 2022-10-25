@@ -1,6 +1,6 @@
 # 总是看着你的工资单存根
 
-> 原文:[https://life hacker . com/always-look-at-your-pay-stub-1835579769](https://lifehacker.com/always-look-at-your-pay-stub-1835579769)
+> 原文：<https://lifehacker.com/always-look-at-your-pay-stub-1835579769>
 
 在这个方便的直接存款时代，每次发薪日到来时，你会看你的工资单吗？你确信你工作的时间是你实际得到的报酬吗？
 

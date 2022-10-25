@@ -1,6 +1,6 @@
 # 你的 2018-2019 流感疫苗接种指南
 
-> 原文:[https://life hacker . com/your-guide-to-the-2018-2019-flu-shot-1829774005](https://lifehacker.com/your-guide-to-the-2018-2019-flu-shot-1829774005)
+> 原文：<https://lifehacker.com/your-guide-to-the-2018-2019-flu-shot-1829774005>
 
 疾控中心建议从 6 个月大的婴儿开始，每个人都要注射流感疫苗。建议和可用的疫苗每年都会略有变化，所以我们已经拿到了 2018-2019 流感季节的小抄。
 

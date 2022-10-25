@@ -1,6 +1,6 @@
 # 2020 年 9 月，HBO Max 将迎来什么
 
-> 原文:[https://life hacker . com/whats-coming-to-HBO-max-in-September-2020-1844827549](https://lifehacker.com/whats-coming-to-hbo-max-in-september-2020-1844827549)
+> 原文：<https://lifehacker.com/whats-coming-to-hbo-max-in-september-2020-1844827549>
 
 随着疫情进入秋季，我们不得不面对现实；[*尽管*](https://www.theguardian.com/business/2020/aug/21/cinemas-await-tenet-release-to-test-movie-goers-appetite-for-big-screen-christopher-nolan)暂定上映，但 2021 年将会有 tentpole 电影的唯一原因是因为 2020 年的大部分电影首映都被取消了。你最喜欢的节目的新一季的拍摄被推迟，电影制作仍然没有恢复。那么，怎样才能让我们的眼球充满内容，并让我们每月为自己喜欢的流媒体服务支付 15 美元呢？嗯，这个月 HBO Max 将会给我们一部在隔离区构思、编剧和拍摄的新电影。9 月 12 日，该服务将首映*海岸精英，*由纽约剧作家保罗·鲁德尼克(*杰佛里*)编剧，杰伊·罗奇(*奥斯丁力量，游戏改变*)导演。这部电影的演员阵容包括贝特·迈德尔、莎拉·保罗森和伊萨·雷，它讲述了生活在纽约和洛杉矶的五个人试图应对新冠肺炎·疫情对他们舒适生活的影响。在 2020 年这个被诅咒的年份，我们准备好接受一部探索日常生活荒谬性的讽刺作品了吗？我想我们会找到答案的。( [恐怖搭上概念](https://www.engadget.com/host-review-shudder-horror-pandemic-130057058.html#:~:text=Shudder%E2%80%99s%20Host%20follows%20a%20group%20of%20friends%2C%20each,both%20through%20its%20narrative%20and%20its%20very%20existence.) 对我来说似乎更上一层楼，但管它呢。)
 

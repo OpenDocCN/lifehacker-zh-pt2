@@ -1,6 +1,6 @@
 # 如何举办烹饪书交换派对
 
-> 原文:[https://life hacker . com/how-to-host-a-cookbook-swap-party-1834750636](https://lifehacker.com/how-to-host-a-cookbook-swap-party-1834750636)
+> 原文：<https://lifehacker.com/how-to-host-a-cookbook-swap-party-1834750636>
 
 承认吧:你陷入了墨守成规。昨晚是玉米卷星期二，今晚是肉卷，星期四是烤鸡。又来了。
 

@@ -1,6 +1,6 @@
 # 如何将苹果音乐从 Android 传输到您的 Chromecast
 
-> 原文:[https://life hacker . com/how-to-stream-apple-music-to-your-chrome cast-from-andro-1837710336](https://lifehacker.com/how-to-stream-apple-music-to-your-chromecast-from-andro-1837710336)
+> 原文：<https://lifehacker.com/how-to-stream-apple-music-to-your-chromecast-from-andro-1837710336>
 
 这是一个令人兴奋的发展，大多数人(包括我自己)可能从未想过会发生:你现在可以从安卓设备直接将苹果音乐传输到谷歌 Chromecast。
 

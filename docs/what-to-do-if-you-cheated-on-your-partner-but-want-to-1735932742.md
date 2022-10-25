@@ -1,6 +1,6 @@
 # 所以你背叛了你的伴侣，但想继续在一起。现在怎么办？
 
-> 原文:[https://life hacker . com/1735932742](https://lifehacker.com/what-to-do-if-you-cheated-on-your-partner-but-want-to-1735932742)
+> 原文：<https://lifehacker.com/what-to-do-if-you-cheated-on-your-partner-but-want-to-1735932742>
 
 所以你去做了你发誓永远不会做的事:你欺骗了你的伴侣。你可能有很多问题，包括接下来会发生什么。如果你的伴侣决定结束这段关系，你没什么可做的，但是如果他们想继续在一起，你还有一些工作要做。这并不容易，但在有人出轨后，修补一段关系是可能的。如果所有相关方在共同前进的问题上意见一致，我们可以这么做。
 

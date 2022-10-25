@@ -1,6 +1,6 @@
 # 教孩子“打小报告”和“报告”的区别
 
-> 原文:[https://life hacker . com/teach-kids-the-difference-that-talking-and-report in-1830251957](https://lifehacker.com/teach-kids-the-difference-between-tattling-and-reportin-1830251957)
+> 原文：<https://lifehacker.com/teach-kids-the-difference-between-tattling-and-reportin-1830251957>
 
 我从来不喜欢“打小报告”这个词也许是因为我的俄亥俄州东北部口音确实弱化了“a”这个硬音，使得这个词本身听起来几乎和练习一样令人讨厌。**。**
 

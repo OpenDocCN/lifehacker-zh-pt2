@@ -1,6 +1,6 @@
 # 为什么你需要一个药草园
 
-> 原文:[https://life hacker . com/why-you-need-a-herb-garden-1843999388](https://lifehacker.com/why-you-need-an-herb-garden-1843999388)
+> 原文：<https://lifehacker.com/why-you-need-an-herb-garden-1843999388>
 
 有些年，我对我的花园感到兴奋。我写一个计划，我开始播种，我去一个特定的苗圃寻找我最喜欢的祖传番茄品种。但在其他年份，比如今年，我已经筋疲力尽了，只想做点简单的好吃的。不管怎样，我种植草药。
 

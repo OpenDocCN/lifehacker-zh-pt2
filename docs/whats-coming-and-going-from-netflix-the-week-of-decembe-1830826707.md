@@ -1,6 +1,6 @@
 # 2018 年 12 月 10 日这一周，网飞有哪些活动
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of the decembe-1830826707](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-decembe-1830826707)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-decembe-1830826707>
 
 过去一年的每一天，我都参加 [彩票](https://www.luckyseat.com/springsteen-broadway/) 来赢得支付 75 美元买一张票去看*斯普林斯汀在百老汇*、的特权，而过去一年的每一天，我都输了那张该死的彩票。获得座位的另一种方法是从那些被称为 StubHub 的令人厌恶的黄牛手中支付每张 2000 美元。让他们见鬼去吧，让彩票见鬼去吧，让沃尔特·克尔剧院见鬼去吧，还有所有因为看了这部剧而永远改变了生活的人，因为百老汇的斯普林斯汀将在周日晚上的最后一场演出后直接来到网飞。坐在沙发上的斯普林斯汀对此一点也不感到痛苦。
 

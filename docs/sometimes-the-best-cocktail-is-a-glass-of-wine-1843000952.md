@@ -1,6 +1,6 @@
 # 有时候最好的鸡尾酒是一杯葡萄酒
 
-> 原文:[https://life hacker . com/有时最好的鸡尾酒是一杯葡萄酒-1843000952](https://lifehacker.com/sometimes-the-best-cocktail-is-a-glass-of-wine-1843000952)
+> 原文：<https://lifehacker.com/sometimes-the-best-cocktail-is-a-glass-of-wine-1843000952>
 
 “呆在家里”并不像听起来那么轻松。我们中的一些人在沙发和餐桌上完成我们的实际工作，我们中的许多人承担了额外的劳动，比如教育孩子，或者一天做三顿饭。我们还必须成为自己的调酒师，事实证明，这是一份我不喜欢的工作。
 

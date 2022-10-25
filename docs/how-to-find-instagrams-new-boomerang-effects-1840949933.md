@@ -1,6 +1,6 @@
 # 如何找到 Instagram 的新回旋镖效果
 
-> 原文:[https://life hacker . com/how-to-find-insta grams-new-boomerang-effects-1840949933](https://lifehacker.com/how-to-find-instagrams-new-boomerang-effects-1840949933)
+> 原文：<https://lifehacker.com/how-to-find-instagrams-new-boomerang-effects-1840949933>
 
 本周早些时候，Instagram 开始在应用程序中推出一些新的回旋镖效果。
 

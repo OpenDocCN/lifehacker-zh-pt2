@@ -1,6 +1,6 @@
 # 由于冬季风暴泰勒，这些航空公司提供免除重新预订费用
 
-> 原文:[https://life hacker . com/these-airlines-is-offer-to-exempt-re booking-fees-due-1833182813](https://lifehacker.com/these-airlines-are-offering-to-waive-rebooking-fees-due-1833182813)
+> 原文：<https://lifehacker.com/these-airlines-are-offering-to-waive-rebooking-fees-due-1833182813>
 
 一场冬季风暴将于本周末席卷中西部。如果你有一架飞越美国中部的飞机，你很可能是安全的，但如果你的旅行计划涉及离开或前往一些中西部目的地或在这些城市中的任何一个停留，你可能会经历一段相当艰难的时间。
 

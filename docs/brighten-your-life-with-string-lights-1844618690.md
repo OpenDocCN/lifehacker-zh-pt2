@@ -1,6 +1,6 @@
 # 用串灯点亮你的生活
 
-> 原文:[https://life hacker . com/brighten-your-life with string-lights-1844618690](https://lifehacker.com/brighten-your-life-with-string-lights-1844618690)
+> 原文：<https://lifehacker.com/brighten-your-life-with-string-lights-1844618690>
 
 在与世隔绝的几个月后，我开始寻找一些小方法来改善我们的生活空间。如果我不得不一直呆在家里，我想让 T1 呆在这里。我做过的最好的事情之一，一件带给我比我预想的更多快乐的小事，就是在我后院的篱笆周围挂上灯。
 

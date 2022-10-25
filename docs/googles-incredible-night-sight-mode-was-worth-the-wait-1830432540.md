@@ -1,6 +1,6 @@
 # 谷歌令人难以置信的夜视模式值得等待
 
-> 原文:[https://gizmodo . com/Google-incredible-night-sight-mode-was-worth-the-wait-1830432540](https://gizmodo.com/googles-incredible-night-sight-mode-was-worth-the-wait-1830432540)
+> 原文：<https://gizmodo.com/googles-incredible-night-sight-mode-was-worth-the-wait-1830432540>
 
 虽然 [Pixel 3](https://gizmodo.com/google-pixel-3-review-the-other-way-to-make-a-killer-p-1829749807) 不错，但当谷歌上个月发布这款手机时，它有点让人觉得不完整。这种感觉一部分是因为谷歌对智能手机设计的软件第一的方法，这意味着总是有代码被修改，但另一部分只是因为谷歌仍然没有提供该公司在发布前取笑的两个主要的 Pixel 3 功能。
 

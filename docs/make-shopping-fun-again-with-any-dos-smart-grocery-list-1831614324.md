@@ -1,6 +1,6 @@
 # 使用 Any.do 的“智能购物清单”让购物再次充满乐趣
 
-> 原文:[https://life hacker . com/make-shopping-fun-again-any-dos-smart-杂货清单-1831614324](https://lifehacker.com/make-shopping-fun-again-with-any-dos-smart-grocery-list-1831614324)
+> 原文：<https://lifehacker.com/make-shopping-fun-again-with-any-dos-smart-grocery-list-1831614324>
 
 iOS: 现在有如此多的任务管理应用，选择一款最适合你的应用本身就是一项任务——你可能会想在待办事项列表中或者，老实说，在一个巨大的电子表格中跟踪它。然而，如果你是一个总是在家里购买杂货的人，你会在 Any.do 的应用程序中发现的一个全新功能可能会将其提升到你的(应用程序)购物清单的首位。
 

@@ -1,6 +1,6 @@
 # 为什么我的笔记本电脑需要 30 分钟才能启动？
 
-> 原文:[https://life hacker . com/why-my-laptop-take-30 分钟启动-1832958231](https://lifehacker.com/why-does-my-laptop-take-30-minutes-to-start-up-1832958231)
+> 原文：<https://lifehacker.com/why-does-my-laptop-take-30-minutes-to-start-up-1832958231>
 
 你可能会遇到的一个更烦人的情况是台式机或笔记本电脑永远无法加载。它最终会出现，但最确定的迹象之一是，当你的系统启动到 Windows 或 macOS 的时间比以前长得多时，特别是如果你正在等待几分钟而不是几秒钟来开始使用你的电脑。
 

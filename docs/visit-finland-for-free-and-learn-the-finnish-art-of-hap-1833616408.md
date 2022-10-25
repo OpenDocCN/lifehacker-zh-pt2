@@ -1,6 +1,6 @@
 # 免费游览芬兰，学习芬兰的快乐艺术
 
-> 原文:[https://life hacker . com/visit-Finland-for-free-and-learn-the-Finnish-art-of-hap-1833616408](https://lifehacker.com/visit-finland-for-free-and-learn-the-finnish-art-of-hap-1833616408)
+> 原文：<https://lifehacker.com/visit-finland-for-free-and-learn-the-finnish-art-of-hap-1833616408>
 
 芬兰连续第二年被评为世界上最幸福的国家(而美国勉强进入前 20 名，排名第 19)。是什么让芬兰人如此开心？好吧，你可能有机会去芬兰旅行，直接学习快乐的艺术，不管需要什么。
 

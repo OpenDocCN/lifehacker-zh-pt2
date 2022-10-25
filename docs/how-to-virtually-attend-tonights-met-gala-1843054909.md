@@ -1,6 +1,6 @@
 # 如何虚拟地参加今天大都会歌剧院的家庭晚会
 
-> 原文:[https://life hacker . com/how-to-virtually-attend-tonights-met-gala-1843054909](https://lifehacker.com/how-to-virtually-attend-tonights-met-gala-1843054909)
+> 原文：<https://lifehacker.com/how-to-virtually-attend-tonights-met-gala-1843054909>
 
 一年一度的大都会歌剧院晚会今年可能无法亲自参加，但像许多其他大型活动一样，组织者已经决定将活动放到网上——今年你会受到邀请。
 

@@ -1,6 +1,6 @@
 # 在经历了一个糟糕的学年后，为你的孩子举办一个“欢迎来到夏天”的派对
 
-> 原文:[https://life hacker . com/throw-a-welcome-to-summer-party for-your-kids-1843883114](https://lifehacker.com/throw-a-welcome-to-summer-party-for-your-kids-1843883114)
+> 原文：<https://lifehacker.com/throw-a-welcome-to-summer-party-for-your-kids-1843883114>
 
 孩子们总是对学年结束感到兴奋，因为自由的几周就在他们面前。但我认为可以肯定地说，今年，他们特别准备把学校——以及他们的 Chromebooks 和面具——踢到路边。是时候用你举办过的最大的“欢迎来到夏季派对”来庆祝他们在本学年的所有努力了。
 

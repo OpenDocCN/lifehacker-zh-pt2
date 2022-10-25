@@ -1,6 +1,6 @@
 # 如何赢得你的奥斯卡池
 
-> 原文:[https://life hacker . com/how-to-win-your-Oscar-pool-1841493960](https://lifehacker.com/how-to-win-your-oscar-pool-1841493960)
+> 原文：<https://lifehacker.com/how-to-win-your-oscar-pool-1841493960>
 
 现在是颁奖季节，没有比击败你所有的朋友预测奥斯卡获奖者更好的奖励了。因此，以下是如何赢得每年的奥斯卡奖，并让你感觉像一个真正的梅丽尔。
 

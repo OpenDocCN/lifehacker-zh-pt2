@@ -1,6 +1,6 @@
 # 如何在谷歌关闭之前备份你的所有对话
 
-> 原文:[https://life hacker . com/how-to-backup-your-allo-conversations-before-Google-Shu-1830922541](https://lifehacker.com/how-to-backup-your-allo-conversations-before-google-shu-1830922541)
+> 原文：<https://lifehacker.com/how-to-backup-your-allo-conversations-before-google-shu-1830922541>
 
 谷歌短命的消息服务 Allo 正在步谷歌阅读器、谷歌健康和渡渡鸟的后尘。这并不令人惊讶——谷歌今年早些时候开始将 Allo 的一些更有趣的功能(如谷歌助手和网络支持)移植和集成到 Android 的 Messages 应用程序中，这表明 Allo 的时间可能很短。昨天，谷歌证实，它将很快 [完全停止对](https://www.blog.google/products/messages/latest-messages-allo-duo-and-hangouts/) 的支持，转而支持更广泛使用的消息。
 

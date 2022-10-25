@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:我如何对待不给小费的青少年？
 
-> 原文:[https://the take out . com/how-do-I-deal-with-the-done-the-dings-to-1831107240](https://thetakeout.com/how-do-i-deal-with-teens-who-dont-tip-at-restaurants-1831107240)
+> 原文：<https://thetakeout.com/how-do-i-deal-with-teens-who-dont-tip-at-restaurants-1831107240>
 
 > 亲爱的 Salty，我在一个富裕的海滨小镇的一家小咖啡馆工作。一旦到了下午 4 点，客户就会大量转向高中/大学年龄段的人群。这家咖啡馆是当地人开的，每天都有很多顾客光顾。我会很有礼貌，记住他们的名字和点的菜，为他们提供体面的餐桌服务，但他们很少留下小费。我敢肯定，许多人不知道小费的礼仪，但我不知道如何帮助解决这个问题。有什么技巧可以帮助应对年轻客户吗？
 > 

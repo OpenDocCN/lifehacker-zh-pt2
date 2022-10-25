@@ -1,6 +1,6 @@
 # 立即安装 Windows 年 8 月更新
 
-> 原文:[https://life hacker . com/install-the-windows-August-2019-update-right-now-1837247895](https://lifehacker.com/install-the-windows-august-2019-update-right-now-1837247895)
+> 原文：<https://lifehacker.com/install-the-windows-august-2019-update-right-now-1837247895>
 
 Windows 10 用户:花一些时间检查你是否已经在你的电脑上安装了微软 2019 年 8 月的安全更新。虽然你可能已经被提示更新你的系统，但仔细检查一下也无妨。
 

@@ -1,6 +1,6 @@
 # 用微波炉把这个肉丸子的每一种成分都做好
 
-> 原文:[https://life hacker . com/make-every-component-of-this-croquembouche-in-the-micro-1831153734](https://lifehacker.com/make-every-component-of-this-croquembouche-in-the-micro-1831153734)
+> 原文：<https://lifehacker.com/make-every-component-of-this-croquembouche-in-the-micro-1831153734>
 
 假日娱乐就是用最小的努力获得最大的影响。单单是戏剧，很难打败一堆高高的淋上焦糖的利润馅饼，但强大的 croquembouche 不是一个低努力的联合——除非你用你的微波炉。
 

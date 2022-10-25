@@ -1,6 +1,6 @@
 # 不要以为默认的 401(k)缴款就足够了
 
-> 原文:[https://life hacker . com/dont-assume-the-default-401-k-contribution-is-found-1837000738](https://lifehacker.com/dont-assume-the-default-401-k-contribution-is-enough-1837000738)
+> 原文：<https://lifehacker.com/dont-assume-the-default-401-k-contribution-is-enough-1837000738>
 
 当你打开 401(k)时，你可能会看到一些默认选项。例如，也许你的工作场所会自动将你薪水的 3%存入 401(k)账户。也许有人告诉你，公司会将你的出资比例提高到 5%，所以你选择出资 5%来获得公司的匹配。(哎，是闲钱！)
 

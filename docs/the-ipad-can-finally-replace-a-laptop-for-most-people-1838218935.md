@@ -1,6 +1,6 @@
 # 对于大多数人来说，iPad 终于可以取代笔记本电脑了
 
-> 原文:[https://life hacker . com/the-ipad-can-finally-replace-a-laptop-for-most-people-1838218935](https://lifehacker.com/the-ipad-can-finally-replace-a-laptop-for-most-people-1838218935)
+> 原文：<https://lifehacker.com/the-ipad-can-finally-replace-a-laptop-for-most-people-1838218935>
 
 由于即将发布的 [iPadOS](https://www.apple.com/ipados/) ，iPad 离成为大多数人可行的笔记本电脑替代品又近了一步。
 

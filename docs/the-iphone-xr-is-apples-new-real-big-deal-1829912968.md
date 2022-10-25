@@ -1,6 +1,6 @@
 # iPhone XR 评论:价格合理
 
-> 原文:[https://gizmodo . com/the-iphone-xr-is-apple-new-real-big-deal-1829912968](https://gizmodo.com/the-iphone-xr-is-apples-new-real-big-deal-1829912968)
+> 原文：<https://gizmodo.com/the-iphone-xr-is-apples-new-real-big-deal-1829912968>
 
 苹果通常不做廉价设备，但随着它们的发展，iPhone XR 非常接近。虽然不便宜(廉价手机应该低于 400 美元，而不是 750 美元！)，它代表了一种精心设计的尝试，旨在创造一种更实惠的设备，而不是一种巨大的妥协。一些足够强大的东西，你可以享受拥有最新技术的好处，而不必花大价钱。这是一笔非常大的交易，尤其是如果你觉得花 1000 美元买一部手机太贵的话。
 

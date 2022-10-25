@@ -1,6 +1,6 @@
 # 不完美的意大利面是完美意大利面沙拉的秘密
 
-> 原文:[https://life hacker . com/impfected-pasta-is-the secret-to-perfect-pasta-salad-1834981171](https://lifehacker.com/imperfect-pasta-is-the-secret-to-perfect-pasta-salad-1834981171)
+> 原文：<https://lifehacker.com/imperfect-pasta-is-the-secret-to-perfect-pasta-salad-1834981171>
 
 像配菜 “涂有蛋黄酱的碳水化合物”类别中的其他条目一样，意大利面沙拉令人难以置信地两极分化。好吃的时候，吃的停不下来；坏了就不能吃了。我发现真正好吃的意大利面沙拉的秘密不是 [自制蛋黄酱](https://lifehacker.com/how-to-make-your-own-dukes-style-mayonnaise-1833804415) 或一罐好泡菜——而是*真正难吃的*意大利面。特别是煮过头的意大利面。
 

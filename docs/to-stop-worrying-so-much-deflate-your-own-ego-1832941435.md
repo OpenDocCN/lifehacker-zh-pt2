@@ -1,6 +1,6 @@
 # 要停止过多的担心，就要压抑自己的自我
 
-> 原文:[https://life hacker . com/to-stop-warehouse-so-deflate-your-own-ego-1832941435](https://lifehacker.com/to-stop-worrying-so-much-deflate-your-own-ego-1832941435)
+> 原文：<https://lifehacker.com/to-stop-worrying-so-much-deflate-your-own-ego-1832941435>
 
 我从神经症中得知。在写这篇文章的前几秒，我听到“嘿，灵魂姐妹”出现在我们办公室的播放列表中。我看到一个来访者坐在大厅里坐着一个公司外的人，我坏坏的破脑子想，*哦不，万一她是来面试的，认为我们公司是那种大家都喜欢“嘿魂姐”的地方呢？*干得好，大脑。所以我很感激最近哈佛商业评论的这篇文章“如何停止纠结于你的错误”，它为打破过度消极思维的模式提供了强有力的建议。
 

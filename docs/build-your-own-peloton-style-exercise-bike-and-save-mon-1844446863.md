@@ -1,6 +1,6 @@
 # 打造你自己的 Peloton 式健身车，省钱
 
-> 原文:[https://life hacker . com/build-your-own-peloton-style-exercise-bike-and-save-mon-1844446863](https://lifehacker.com/build-your-own-peloton-style-exercise-bike-and-save-mon-1844446863)
+> 原文：<https://lifehacker.com/build-your-own-peloton-style-exercise-bike-and-save-mon-1844446863>
 
 虽然在户外骑自行车是冠状病毒风险谱 低端的 [，但在过去几个月里，获得一辆室内健身车无疑已经成为更具吸引力的前景。在上面的视频中，我决定自己造一辆健身车，而不是花 2000 多美元买一辆 Peloton。](https://vitals.lifehacker.com/think-of-risk-as-a-spectrum-1843543882) 
 

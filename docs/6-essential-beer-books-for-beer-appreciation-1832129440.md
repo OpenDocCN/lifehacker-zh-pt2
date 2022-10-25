@@ -1,6 +1,6 @@
 # 啤酒鉴赏从这 6 本书开始
 
-> 原文:[https://the take out . com/6-essential-beer-books-for-beer-approval-1832129440](https://thetakeout.com/6-essential-beer-books-for-beer-appreciation-1832129440)
+> 原文：<https://thetakeout.com/6-essential-beer-books-for-beer-appreciation-1832129440>
 
 每年都有新的啤酒书籍上架，我尽量多读。它们包罗万象:深入探究特定的啤酒风格、历史调查、严格要求家酿啤酒者的技术手册。如果你把网上看到的每本啤酒书都买了，你就有一个小图书馆的价值了。但是说实话，普通的啤酒迷并不需要所有的啤酒。
 

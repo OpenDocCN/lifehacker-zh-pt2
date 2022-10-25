@@ -1,6 +1,6 @@
 # 用这张图表定制你的瑜伽流程
 
-> 原文:[https://life hacker . com/customize-your-yoga-flow-with this-chart-1840207472](https://lifehacker.com/customize-your-yoga-flows-with-this-chart-1840207472)
+> 原文：<https://lifehacker.com/customize-your-yoga-flows-with-this-chart-1840207472>
 
 如果你习惯了上课，独自做瑜伽可能会令人生畏——你应该选择哪种姿势？或者，如果你正在跟随一个你在网上找到的流程，你如何修改或替换一些不太适合你的东西？ [这张来自 Stack52](http://strength.stack52.com/periodic-table-of-yoga-poses/) 的图表可以帮你找到正确的姿势。
 

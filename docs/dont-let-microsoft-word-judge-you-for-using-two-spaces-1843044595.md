@@ -1,6 +1,6 @@
 # 不要让 Microsoft Word 因为你在句子之间使用了两个空格而对你评头论足
 
-> 原文:[https://life hacker . com/dont-let-Microsoft-word-judge-you-for-use-two-spaces-1843044595](https://lifehacker.com/dont-let-microsoft-word-judge-you-for-using-two-spaces-1843044595)
+> 原文：<https://lifehacker.com/dont-let-microsoft-word-judge-you-for-using-two-spaces-1843044595>
 
 微软已经对互联网上最有争议的问题之一采取了官方立场，在“句子后一个空格还是两个空格”的辩论中坚定地站在极简主义一边。Word 的自动拼写和语法检查器现在会将句点后除了一个空格以外的任何内容标记为错误，那条红色的波浪线表示句子之间的双倍行距在语法上不正确(至少根据 [Clippy](https://lifehacker.com/this-app-resurrects-clippy-on-macos-1838154307) )。
 

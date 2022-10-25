@@ -1,6 +1,6 @@
 # 如何更新您的 Android 设备和应用程序
 
-> 原文:[https://life hacker . com/how-to-update-your-Android-device-and-apps-1843395131](https://lifehacker.com/how-to-update-your-android-device-and-apps-1843395131)
+> 原文：<https://lifehacker.com/how-to-update-your-android-device-and-apps-1843395131>
 
 有很多很好的理由让你的手机或平板电脑上的软件保持最新。运行最新版本的 Android 可确保您获得操作系统*和*的所有最新功能，尽可能保护您的设备免受黑客攻击。
 

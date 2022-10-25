@@ -1,6 +1,6 @@
 # 如何在 Windows 10 的开始菜单中禁用必应搜索
 
-> 原文:[https://life hacker . com/how-to-disable-bing-search-in-windows-10s-start-menu-1720761074](https://lifehacker.com/how-to-disable-bing-search-in-windows-10s-start-menu-1720761074)
+> 原文：<https://lifehacker.com/how-to-disable-bing-search-in-windows-10s-start-menu-1720761074>
 
 我之前使用了一个聪明的黑客技术来阻止 Bing 出现在 Windows 10 的内置搜索结果中，但重新安装该操作系统并用 2020 年 5 月的更新打补丁让 Bing 回来了。我不反对任何人*希望*将这种体验融入他们的操作系统，但对于那些不想这样做的人，你必须尝试一些新的技巧来永远抛弃 Bing。
 

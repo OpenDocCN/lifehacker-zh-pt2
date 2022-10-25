@@ -1,6 +1,6 @@
 # 以下是参议院弹劾审判的运作方式
 
-> 原文:[https://life hacker . com/heres-how-the-Senate-弹劾-审判-工作-1841129991](https://lifehacker.com/heres-how-the-senate-impeachment-trial-will-work-1841129991)
+> 原文：<https://lifehacker.com/heres-how-the-senate-impeachment-trial-will-work-1841129991>
 
 周一，参议院多数党领袖米奇·麦康奈尔(Mitch McConnell)公布了他的决议，该决议为参议院关于川普总统弹劾案的审判确立了的基本规则——尤其是民主党人对此很不高兴。好奇我们在弹劾程序中的位置吗？或者想知道麦康奈尔到底提出了什么？以下是关于特朗普总统弹劾参议院审判的状态，你需要知道的一切。
 

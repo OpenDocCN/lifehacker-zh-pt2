@@ -1,6 +1,6 @@
 # 如果您无法连接，请检查您喜爱的网站的状态页面
 
-> 原文:[https://life hacker . com/check-you-favorite-websites-status-page-if-you-cant-co-1831639624](https://lifehacker.com/check-your-favorite-websites-status-page-if-you-cant-co-1831639624)
+> 原文：<https://lifehacker.com/check-your-favorite-websites-status-page-if-you-cant-co-1831639624>
 
 早上例行公事的典型部分——就在“真的吗？”我翻了翻智能手机的闹钟——看看我关心的几个子网站上有什么新的好的东西。想象一下，今天早上当我试图打开网站时，Reddit 开始发出各种错误信息，我有多惊讶。
 

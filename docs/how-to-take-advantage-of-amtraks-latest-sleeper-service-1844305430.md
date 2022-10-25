@@ -1,6 +1,6 @@
 # 如何利用美国国家铁路客运公司最新的卧铺服务协议
 
-> 原文:[https://life hacker . com/how-to-take-advantage-of-amtraks-latest-sleeper-service-1844305430](https://lifehacker.com/how-to-take-advantage-of-amtraks-latest-sleeper-service-1844305430)
+> 原文：<https://lifehacker.com/how-to-take-advantage-of-amtraks-latest-sleeper-service-1844305430>
 
 考虑到对社交距离和冠状病毒空气传播的担忧，跨国火车旅行似乎比现在坐飞机更糟糕，但有时你不得不在全国范围内移动。美国人普遍不愿意旅行，这无疑影响了铁路巨头美国国家铁路客运公司，该公司在疫情裁员 20%，其中。尽管如此，美国国家铁路客运公司仍希望它能吸引你购买其卧铺服务上的甜蜜 BOGO(买一送一)优惠——鉴于我们国家目前的状况，我很难向任何不是绝对需要旅行的人推荐这个有吸引力的优惠。
 

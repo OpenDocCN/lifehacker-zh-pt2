@@ -1,6 +1,6 @@
 # Alexa 偷偷摸摸的小字可能会阻止你起诉亚马逊
 
-> 原文:[https://gizmodo . com/alexas-sneaky-fine-print-can-prevent-million-from-su-1834930270](https://gizmodo.com/alexas-sneaky-fine-print-could-prevent-millions-from-su-1834930270)
+> 原文：<https://gizmodo.com/alexas-sneaky-fine-print-could-prevent-millions-from-su-1834930270>
 
 假设你在 Amazon.com 为你的孩子买了一个铅笔盒。但是它含有的铅含量 [远远超过了联邦法定限量](https://gizmodo.com/amazon-agrees-to-stop-selling-childrens-products-with-i-1834674259?_ga=2.44971175.2092165228.1558295709-2100675449.1537904885) ，结果你的孩子生病了。你喜欢亚马逊，经常用它来购买产品，甚至拥有一台亚马逊 Echo。但现在你想起诉公司。只有一个问题。
 

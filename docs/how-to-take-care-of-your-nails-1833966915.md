@@ -1,6 +1,6 @@
 # 如何护理指甲
 
-> 原文:[https://life hacker . com/how-to-care-of-your-nails-1833966915](https://lifehacker.com/how-to-take-care-of-your-nails-1833966915)
+> 原文：<https://lifehacker.com/how-to-take-care-of-your-nails-1833966915>
 
 我们都忽略了我们的指甲吗？好吧，也许只是我们中的一些人？这些角质片对我们有很大的帮助，所以下面是如何保持它们清洁和健康的方法。
 

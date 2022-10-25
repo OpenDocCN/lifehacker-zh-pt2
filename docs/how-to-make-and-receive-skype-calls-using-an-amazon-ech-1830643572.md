@@ -1,6 +1,6 @@
 # 如何使用 Amazon Echo 拨打和接听 Skype 电话
 
-> 原文:[https://life hacker . com/how-to-make-and-receive-Skype-calls-using-an-Amazon-ech-1830643572](https://lifehacker.com/how-to-make-and-receive-skype-calls-using-an-amazon-ech-1830643572)
+> 原文：<https://lifehacker.com/how-to-make-and-receive-skype-calls-using-an-amazon-ech-1830643572>
 
 本周，亚马逊开始推出对亚马逊 Echo 设备的 Skype 支持。有了这项功能，你既可以使用 Echo Dot 之类的东西拨打和接听 Skype 语音电话，也可以使用亚马逊的 Echo Show 进行视频通话。
 

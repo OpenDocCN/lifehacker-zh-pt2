@@ -1,6 +1,6 @@
 # 为什么你应该以 1%的信用利用率为目标
 
-> 原文:[https://life hacker . com/why-you-should-aim-for-1-credit-utilization-1844489591](https://lifehacker.com/why-you-should-aim-for-1-credit-utilization-1844489591)
+> 原文：<https://lifehacker.com/why-you-should-aim-for-1-credit-utilization-1844489591>
 
 提高你的信用分数经常感觉像是一场游戏——直到你违反了其中的一条规则，你才知道其中的规则。一个重要的规则——影响你信用评分 30%的规则——是你正在使用的信用的百分比，或者说你的信用利用率。当 [专家说](https://www.experian.com/blogs/ask-experian/what-is-the-best-percentile-for-credit-utilization/) 保持你的信用利用率低于 10%的时候，一份新的 [华尔街报告](https://www.foxbusiness.com/money/why-you-might-not-want-to-zero-out-every-credit-card) 解释了为什么你可能想要剪掉那个零。信用利用背后的概念很简单:当你的银行向你提供信用额度时，你的信用卡余额可以表明你偿还的可能性有多大。如果你只用了 1000 美元信用额度中的 50 美元，那么你比余额为 800 美元的人风险要小。随着你的银行向信用机构——Experian、Equifax 和 TransUnion——报告你的余额，你的信用利用率每个月都会发生变化。
 

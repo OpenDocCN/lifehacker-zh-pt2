@@ -1,6 +1,6 @@
 # 通过与手机对话找到它
 
-> 原文:[https://life hacker . com/find-your phone-by-talking-to-it-1829812404](https://lifehacker.com/find-your-phone-by-talking-to-it-1829812404)
+> 原文：<https://lifehacker.com/find-your-phone-by-talking-to-it-1829812404>
 
 如果我家有一个《权力的游戏》式的家庭格言，那就是“亲爱的，你能打我的电话吗？”这是找到你放错地方的设备的常用方法。但是如果你把手机调成震动，效果就不太好了。
 

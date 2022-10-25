@@ -1,6 +1,6 @@
 # 尝试这些卧推变化
 
-> 原文:[https://life hacker . com/try-these-bench-press-variations-1830588845](https://lifehacker.com/try-these-bench-press-variations-1830588845)
+> 原文：<https://lifehacker.com/try-these-bench-press-variations-1830588845>
 
 厌倦卧推了吗？希望 [我们的挑战](https://lifehacker.com/c/lifehacker-fitness-challenge) 一直让事情保持足够有趣，你不会*梦想*厌倦卧推...但是也许你想在举重的时候锻炼一些其他的肌肉。这里有一些你可能想尝试的新闻变化。
 

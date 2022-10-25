@@ -1,6 +1,6 @@
 # how to make your own stuffed crust pizza 1838263065
 
-> 原文:[https://life hacker . com/how-to-make-your-your-own-馅料饼皮披萨-1838263065](https://lifehacker.com/how-to-make-your-own-stuffed-crust-pizza-1838263065)
+> 原文：<https://lifehacker.com/how-to-make-your-own-stuffed-crust-pizza-1838263065>
 
 家常菜给人的最大礼物是快乐，没有什么比一片比萨饼更让人快乐的了。所以，在这个全国意大利辣香肠披萨日，我想谈谈在家做披萨是多么容易——即使是一个装满东西、塞满皮的庞然大物。
 

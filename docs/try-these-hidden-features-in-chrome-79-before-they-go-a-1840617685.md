@@ -1,6 +1,6 @@
 # 在 Chrome 79 中的这些隐藏功能消失之前，尝试一下吧
 
-> 原文:[https://life hacker . com/try-these-hidden-features-in-chrome-79-before-they-go-a-1840617685](https://lifehacker.com/try-these-hidden-features-in-chrome-79-before-they-go-a-1840617685)
+> 原文：<https://lifehacker.com/try-these-hidden-features-in-chrome-79-before-they-go-a-1840617685>
 
 Chrome 79
 

@@ -1,6 +1,6 @@
 # 如何制作不是 Caipirinha 的 Cachaç鸡尾酒
 
-> 原文:[https://life hacker . com/how-to-make-a-cachaca-cocktail-that-is-a-caipirinha-1833159532](https://lifehacker.com/how-to-make-a-cachaca-cocktail-that-isnt-a-caipirinha-1833159532)
+> 原文：<https://lifehacker.com/how-to-make-a-cachaca-cocktail-that-isnt-a-caipirinha-1833159532>
 
 本周，在重新整理我的酒吧推车时，我重新发现了一瓶 cachaç，我只用过它来制作标志性的 caipirinha[。这是一种很棒的饮料，但我讨厌单调，即使是在我的鸡尾酒中，这导致我在互联网上搜索巴西甘蔗酒的其他非 caipirinha 用途。](https://lifehacker.com/3-ingredient-happy-hour-a-summery-caipirinha-1825608451)
 

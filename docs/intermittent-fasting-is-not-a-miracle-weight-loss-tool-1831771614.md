@@ -1,6 +1,6 @@
 # 间歇性禁食不是一个神奇的减肥工具
 
-> 原文:[https://life hacker . com/intermittent-禁食不是奇迹-减肥工具-1831771614](https://lifehacker.com/intermittent-fasting-is-not-a-miracle-weight-loss-tool-1831771614)
+> 原文：<https://lifehacker.com/intermittent-fasting-is-not-a-miracle-weight-loss-tool-1831771614>
 
 禁食越来越受欢迎，这要归功于声称它能促进减肥的支持者。这些天，似乎每个人都在吃早餐，或者每三天只喝水。但是禁食真的对你有好处吗？更重要的是，它会让你减肥吗？
 

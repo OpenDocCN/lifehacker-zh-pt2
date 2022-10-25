@@ -1,6 +1,6 @@
 # 众议院新冠肺炎法案将使冠状病毒检测对所有人免费
 
-> 原文:[https://life hacker . com/the-house-新冠肺炎-比尔-会制造冠状病毒-测试-1842292608](https://lifehacker.com/the-house-covid-19-bill-would-make-coronavirus-testing-1842292608)
+> 原文：<https://lifehacker.com/the-house-covid-19-bill-would-make-coronavirus-testing-1842292608>
 
 许多健康保险公司已经自愿选择免除新冠肺炎测试的共付额、免赔额、共同保险和其他费用。现在，众议院民主党人正在努力通过家庭第一冠状病毒应对法案 ，该法案将使任何参加医疗保健计划的人，包括医疗保险和医疗补助计划的人，以及未参保的人，都可以免费进行冠状病毒检测。
 

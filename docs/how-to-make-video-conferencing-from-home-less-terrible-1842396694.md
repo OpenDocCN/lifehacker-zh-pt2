@@ -1,6 +1,6 @@
 # 如何让在家开视频会议不那么可怕
 
-> 原文:[https://life hacker . com/how-to-make-video-conferencing-from-home-less-worthy-1842396694](https://lifehacker.com/how-to-make-video-conferencing-from-home-less-terrible-1842396694)
+> 原文：<https://lifehacker.com/how-to-make-video-conferencing-from-home-less-terrible-1842396694>
 
 唯一比会议更糟糕的是虚拟会议。当你在家工作时，穿着你通常不会穿到办公室的衣服，在一个可能不像你希望的那样干净的地方工作，孩子、伴侣、宠物和室友占据了你的部分注意力，这尤其糟糕——更不用说我们现在都在经历的与冠状病毒相关的焦虑了。
 

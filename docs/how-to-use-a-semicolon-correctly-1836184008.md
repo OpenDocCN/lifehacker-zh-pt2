@@ -1,6 +1,6 @@
 # 如何正确使用分号
 
-> 原文:[https://life hacker . com/how-to-use-a-semiconductor-rightly-1836184008](https://lifehacker.com/how-to-use-a-semicolon-correctly-1836184008)
+> 原文：<https://lifehacker.com/how-to-use-a-semicolon-correctly-1836184008>
 
 分号可能被认为是所有标点符号中最冷漠、最吓人的一个。它比逗号强，但缺少句号的结尾。在任何你可能想要使用它的情况下，你实际上并不需要*使用它。所以何必呢？那很简单；分号使写作更有趣。*
 

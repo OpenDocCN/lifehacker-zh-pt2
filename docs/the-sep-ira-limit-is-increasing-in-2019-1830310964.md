@@ -1,6 +1,6 @@
 # SEP 个人退休帐户限额在 2019 年增加
 
-> 原文:[https://life hacker . com/the-sep-IRA-limit-is-increasing-in-2019-1830310964](https://lifehacker.com/the-sep-ira-limit-is-increasing-in-2019-1830310964)
+> 原文：<https://lifehacker.com/the-sep-ira-limit-is-increasing-in-2019-1830310964>
 
 对于那些有闲钱的人来说，2019 年 SEP 个人退休帐户的缴费限额将增加 1000 美元，从 55，000 美元增加到 56，000 美元。
 

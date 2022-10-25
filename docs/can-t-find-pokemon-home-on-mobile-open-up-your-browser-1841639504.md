@@ -1,6 +1,6 @@
 # 手机上找不到神奇宝贝之家？打开你的浏览器
 
-> 原文:[https://kotaku . com/can-t-find-pokemon-home-on-mobile-open-up-your-browser-1841639504](https://kotaku.com/can-t-find-pokemon-home-on-mobile-open-up-your-browser-1841639504)
+> 原文：<https://kotaku.com/can-t-find-pokemon-home-on-mobile-open-up-your-browser-1841639504>
 
 在万众期待之后， *Pokémon Home* 于周二发布——但你不一定会从手机上看到。不管出于什么原因，如果你在移动设备的应用程序商店上搜索，神奇宝贝存储中心就不会出现。
 

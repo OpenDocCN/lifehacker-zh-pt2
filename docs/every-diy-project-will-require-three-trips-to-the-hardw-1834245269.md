@@ -1,6 +1,6 @@
 # 每个 DIY 项目都需要去三趟五金店
 
-> 原文:[https://life hacker . com/every-DIY-project-will-require-three-the-hard-1834245269](https://lifehacker.com/every-diy-project-will-require-three-trips-to-the-hardw-1834245269)
+> 原文：<https://lifehacker.com/every-diy-project-will-require-three-trips-to-the-hardw-1834245269>
 
 你们中的一些人天生擅长自己动手做家居装修项目。你陶醉在混乱中，撕毁地毯、搭建棚子或推倒墙壁，以实现令人垂涎的“开放式概念”布局。
 

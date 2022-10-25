@@ -1,6 +1,6 @@
 # 如何在去抗议前保护你的手机
 
-> 原文:[https://gizmodo . com/how-to-COP-proof-your phone-before-to-a-agreement-1843828887](https://gizmodo.com/how-to-cop-proof-your-phone-before-heading-to-a-protest-1843828887)
+> 原文：<https://gizmodo.com/how-to-cop-proof-your-phone-before-heading-to-a-protest-1843828887>
 
 在某个时候，每个人都会达到一个极限，在这个极限上，他们不能再对世界上的不公正坐视不理。然而，如果你计划参加抗议活动——甚至是和平的抗议活动——在你去之前，你应该用你的手机采取一些重要的预防措施。
 

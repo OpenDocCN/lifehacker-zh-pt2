@@ -1,6 +1,6 @@
 # 问咸的女服务员:餐厅不会把我的咖喱做得够辣
 
-> 原文:[https://the take out . com/restaurant-won-t-make-my-curry-辣味十足-1834218925](https://thetakeout.com/restaurant-won-t-make-my-curry-spicy-enough-1834218925)
+> 原文：<https://thetakeout.com/restaurant-won-t-make-my-curry-spicy-enough-1834218925>
 
 > 亲爱的咸味:在过去的一年里，我去了一家当地的日式咖喱小店，在这里你可以从 1 到 10 的范围内选择你喜欢的辣味。在我早期的访问中，我从 5 或 6 开始，对我的订单非常满意，但我想要更辣的东西。然而，当我走向天平的高端时，我注意到了一些奇怪的事情。我点的菜其实越来越不辣了。
 > 

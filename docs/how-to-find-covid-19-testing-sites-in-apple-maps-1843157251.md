@@ -1,6 +1,6 @@
 # 如何在苹果地图中找到新冠肺炎测试站点
 
-> 原文:[https://life hacker . com/how-to-find-新冠肺炎测试网站在苹果地图上-1843157251](https://lifehacker.com/how-to-find-covid-19-testing-sites-in-apple-maps-1843157251)
+> 原文：<https://lifehacker.com/how-to-find-covid-19-testing-sites-in-apple-maps-1843157251>
 
 我希望你永远不需要寻找一个新冠肺炎测试网站，期间。(保持隔离！注意安全！)但如果你有，而且你用的是 iPhone 或 iPad，你现在可以通过苹果地图轻松找到最近的测试地点。
 

@@ -1,6 +1,6 @@
 # 在飞行中狂欢的最佳播客
 
-> 原文:[https://life hacker . com/the-best-podcast-to-binge-in-a-flight-1836494646](https://lifehacker.com/the-best-podcasts-to-binge-during-a-flight-1836494646)
+> 原文：<https://lifehacker.com/the-best-podcasts-to-binge-during-a-flight-1836494646>
 
 在这个世界上，很少有几个小时属于自己的时间，没有人希望你能连接到互联网，躺在一把几乎舒适的椅子上。所以，利用你的下一个航班放松一下，尽情享受一个真正好的播客吧。以下是我们推荐的最好的播客，在你离开之前可以一起下载:
 

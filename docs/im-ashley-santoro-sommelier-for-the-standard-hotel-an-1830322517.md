@@ -1,6 +1,6 @@
 # 我是阿什利·桑托罗，标准酒店的侍酒师，这就是我的工作方式
 
-> 原文:[https://life hacker . com/im-Ashley-santoro-sommelier-for-the-standard-hotel-an-1830322517](https://lifehacker.com/im-ashley-santoro-sommelier-for-the-standard-hotel-an-1830322517)
+> 原文：<https://lifehacker.com/im-ashley-santoro-sommelier-for-the-standard-hotel-an-1830322517>
 
 作为标准酒店在纽约的两家分店的侍酒师和饮料总监，阿什利·桑托罗负责美国最流行的葡萄酒和烈酒名单。我们和她聊了聊她在办公室、酒吧和酒窖里的工作，以及她最近在喝什么。
 

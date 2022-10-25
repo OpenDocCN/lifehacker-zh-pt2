@@ -1,6 +1,6 @@
 # is your kid acting out or just sad 1842965979
 
-> 原文:[https://life hacker . com/is-your-kid-act-out-or-just-sad-1842965979](https://lifehacker.com/is-your-kid-acting-out-or-just-sad-1842965979)
+> 原文：<https://lifehacker.com/is-your-kid-acting-out-or-just-sad-1842965979>
 
 这听起来像是又一场手足之争。或者跺着脚，然后砰的一声关上门。这听起来像是大嗓门和挑衅，或者是世界各地的父母都喜欢的两个特别爱发牢骚的词:*我很无聊。这听起来像很多不同的事情，但实际上可能是悲伤。*
 

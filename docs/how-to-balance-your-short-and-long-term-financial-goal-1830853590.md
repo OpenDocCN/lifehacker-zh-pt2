@@ -1,6 +1,6 @@
 # 如何平衡你的短期和长期财务目标
 
-> 原文:[https://life hacker . com/how-to-balance-your-short-and-long-term-financial-goal-1830853590](https://lifehacker.com/how-to-balance-your-short-and-long-term-financial-goal-1830853590)
+> 原文：<https://lifehacker.com/how-to-balance-your-short-and-long-term-financial-goal-1830853590>
 
 在理想的金融世界里，我们都应该有充裕的银行账户余额、稳健的投资组合、已经还清贷款的房子，并且没有债务。事实上，很难看到其中任何一个目标实现，更不用说同时实现所有目标了。
 

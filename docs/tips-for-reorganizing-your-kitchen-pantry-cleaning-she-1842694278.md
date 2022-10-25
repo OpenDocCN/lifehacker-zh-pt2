@@ -1,6 +1,6 @@
 # 清理你的储藏室是一个令人惊讶的平静的隔离项目
 
-> 原文:[https://the take out . com/tips-for-organizing-your-kitchen-pantry-cleaning-she-1842694278](https://thetakeout.com/tips-for-reorganizing-your-kitchen-pantry-cleaning-she-1842694278)
+> 原文：<https://thetakeout.com/tips-for-reorganizing-your-kitchen-pantry-cleaning-she-1842694278>
 
 他们说一个杂乱的家意味着一个杂乱的头脑；这是否意味着一个杂乱的餐具室意味着一个杂乱的…胃？我不知道，我们在隔离的第四周，我的大脑就像米饭布丁一样，原谅我。但是，随着我们在家里、生活、工作和烹饪的时间越来越多，让我给你一条重要的建议，帮助你度过这些困难时期。
 

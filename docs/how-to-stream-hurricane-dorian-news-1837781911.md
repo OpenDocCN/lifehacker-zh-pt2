@@ -1,6 +1,6 @@
 # 如何直播飓风道林新闻
 
-> 原文:[https://gizmodo . com/how-to-stream-hurricane-Dorian-news-1837781911](https://gizmodo.com/how-to-stream-hurricane-dorian-news-1837781911)
+> 原文：<https://gizmodo.com/how-to-stream-hurricane-dorian-news-1837781911>
 
 飓风多里安星期六晚上加强为 4 级风暴，继续向美国东南部海岸靠近。风暴将在哪里登陆的问题仍然悬而未决，特别是在今天早些时候它的预测路径向东转移之后。一些气象预报员 甚至说多里安可能完全绕过佛罗里达州，要么整个星期保持在离海岸约 50 英里的地方，要么可能在周三左右在南卡罗来纳州登陆。
 

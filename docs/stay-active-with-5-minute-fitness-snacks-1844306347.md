@@ -1,6 +1,6 @@
 # 用 5 分钟的“健康零食”保持活跃
 
-> 原文:[https://life hacker . com/stay-active-with-5 分钟健身-零食-1844306347](https://lifehacker.com/stay-active-with-5-minute-fitness-snacks-1844306347)
+> 原文：<https://lifehacker.com/stay-active-with-5-minute-fitness-snacks-1844306347>
 
 我们很多人都想更积极，但很难找到时间——尤其是现在，当我们很多人将远程工作与全职育儿相结合时。即使你以前利用春天的天气花更多的时间在户外，夏季的炎热可能也足以阻止你和你的家人呆在室内和沙发上。
 

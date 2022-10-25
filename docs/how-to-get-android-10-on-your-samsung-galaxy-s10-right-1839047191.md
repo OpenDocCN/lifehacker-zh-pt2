@@ -1,6 +1,6 @@
 # 如何立即在您的三星 Galaxy S10 上安装“Android 10”
 
-> 原文:[https://life hacker . com/how-to-get-Android-10-on-your-Samsung-galaxy-S10-right-1839047191](https://lifehacker.com/how-to-get-android-10-on-your-samsung-galaxy-s10-right-1839047191)
+> 原文：<https://lifehacker.com/how-to-get-android-10-on-your-samsung-galaxy-s10-right-1839047191>
 
 购买非像素 Android 智能手机的一个令人不快的地方是，你要感谢制造商提供的 Android 更新。换句话说，谷歌设备通常会先获得像 Android 10 这样的重大升级，如果你花了一大笔钱买了三星或华为的设备，你不得不坐在那里嫉妒，直到你得到机会——可能是在事情发生后的几个月。
 

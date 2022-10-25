@@ -1,6 +1,6 @@
 # 康普茶是这种糖醋虾的秘密
 
-> 原文:[https://life hacker . com/kompucha-is-the secret to this-sweet-and-acid-shrimp-1837711166](https://lifehacker.com/kombucha-is-the-secret-to-this-sweet-and-sour-shrimp-1837711166)
+> 原文：<https://lifehacker.com/kombucha-is-the-secret-to-this-sweet-and-sour-shrimp-1837711166>
 
 虾是一种不需要太多大惊小怪的食物，但有时用它来调味也很有趣，尤其是如果那种酱是又粘又甜又酸的那种。令人惊讶的是，康普茶在这里非常好用，既可以作为腌泡汁，也可以作为调味汁的基础。
 

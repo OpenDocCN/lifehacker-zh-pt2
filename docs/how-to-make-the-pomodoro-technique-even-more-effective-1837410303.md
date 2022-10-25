@@ -1,6 +1,6 @@
 # 如何让番茄工作法更加有效
 
-> 原文:[https://life hacker . com/how-to-make the pomodoro-technique-even-more-effective-1837410303](https://lifehacker.com/how-to-make-the-pomodoro-technique-even-more-effective-1837410303)
+> 原文：<https://lifehacker.com/how-to-make-the-pomodoro-technique-even-more-effective-1837410303>
 
 每隔几个月，我就会尝试一些不同版本的 [、番茄工作法](https://lifehacker.com/productivity-101-a-primer-to-the-pomodoro-technique-1598992730) ，这是一种著名的效率系统，每半小时休息 5 分钟，每两个半小时休息半小时。我紧紧跟随它，然后我松散地跟随它，然后我放弃。如果这种情况发生在你身上，你可能需要遵循这个更简单的版本。
 

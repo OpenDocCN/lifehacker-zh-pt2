@@ -1,6 +1,6 @@
 # 将这个投资原则应用到你的日常生活中
 
-> 原文:[https://life hacker . com/apply-this-investing-principle to your daily life-1833091581](https://lifehacker.com/apply-this-investing-principle-to-your-everyday-life-1833091581)
+> 原文：<https://lifehacker.com/apply-this-investing-principle-to-your-everyday-life-1833091581>
 
 要养成习惯，不管是经济上的还是其他方面的，你必须投入工作。这通常意味着在很长一段时间内持续地做出 [的小改变或](https://twocents.lifehacker.com/how-to-balance-your-short-and-long-term-financial-goal-1830853590) 的微调。几天、几周、几个月、几年——如果你真的想改变你的行为，你必须长期致力于某件事。
 

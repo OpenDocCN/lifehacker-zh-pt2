@@ -1,6 +1,6 @@
 # 通过采取富足的心态来改善你的观点
 
-> 原文:[https://life hacker . com/improve-your-outlook-by-adoption-a-Ontario-mind-1844648231](https://lifehacker.com/improve-your-outlook-by-adopting-an-abundance-mindset-1844648231)
+> 原文：<https://lifehacker.com/improve-your-outlook-by-adopting-an-abundance-mindset-1844648231>
 
 现在不是乐观的时候。回到 3 月和 4 月——当时大多数人刚刚开始了解疫情的规模——仍然有一丝希望——事情可能会在夏天恢复正常。但是随着我们接近赛季结束，而新冠肺炎还看不到尽头，感觉更适合以生存模式运作，并想出我们将如何度过接下来的几个月。尽管倾向于未来将是严峻的这种感觉很诱人，但我们可能会变得更好，采取一种富足的心态。下面是它是什么，以及它如何帮助改善我们的思维。
 

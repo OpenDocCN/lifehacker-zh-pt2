@@ -1,6 +1,6 @@
 # 把你的一天分成 10 块来管理你的任务
 
-> 原文:[https://life hacker . com/manage-your-tasks-by-division-your-day-to-10 chunks-1843480564](https://lifehacker.com/manage-your-tasks-by-dividing-your-day-into-10-chunks-1843480564)
+> 原文：<https://lifehacker.com/manage-your-tasks-by-dividing-your-day-into-10-chunks-1843480564>
 
 如果你觉得没有足够的时间去做你想要(和需要)做的每一件事，一个解决方案——虽然听起来有点违反直觉——可能是减少一天中的小时数。
 

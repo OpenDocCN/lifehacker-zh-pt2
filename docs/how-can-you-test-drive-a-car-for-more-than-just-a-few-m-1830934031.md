@@ -1,6 +1,6 @@
 # 你怎么能试驾一辆车超过几分钟呢？
 
-> 原文:[https://jalopnik . com/how-you-can-test-drive-a car-than-just-几米-1830934031](https://jalopnik.com/how-can-you-test-drive-a-car-for-more-than-just-a-few-m-1830934031)
+> 原文：<https://jalopnik.com/how-can-you-test-drive-a-car-for-more-than-just-a-few-m-1830934031>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。我决定挑几个问题，试着帮帮大家。本周，我们将讨论延长试驾时间、识别网上骗子以及适合高个子青少年的最佳汽车。
 

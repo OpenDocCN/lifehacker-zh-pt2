@@ -1,6 +1,6 @@
 # 如何在疫情抗议
 
-> 原文:[https://life hacker . com/how-to-抗议疫情-1843885100](https://lifehacker.com/how-to-protest-during-a-pandemic-1843885100)
+> 原文：<https://lifehacker.com/how-to-protest-during-a-pandemic-1843885100>
 
 避免大型集会是过去几个月我们试图保持安全的一部分，但抗议活动与医院服务和(显然)外卖玛格丽塔酒有一些共同点:它们对我们作为一个社会的福祉至关重要。
 

@@ -1,6 +1,6 @@
 # 今年夏天你应该做一个康普茶花车
 
-> 原文:[https://life hacker . com/you-should-make-a-kompucha-float-this-summer-1835844010](https://lifehacker.com/you-should-make-a-kombucha-float-this-summer-1835844010)
+> 原文：<https://lifehacker.com/you-should-make-a-kombucha-float-this-summer-1835844010>
 
 尽管在俄勒冈州的波特兰，所有的嬉皮士宣传都被强加给我，我认为康普茶对于经常做瑜伽的人来说是昂贵的苏打水。然而，我确实喜欢很多布丁的味道，当我把冰淇淋放进去的时候，我就更喜欢了。
 

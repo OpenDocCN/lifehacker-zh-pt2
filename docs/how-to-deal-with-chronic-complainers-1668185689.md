@@ -1,6 +1,6 @@
 # 如何处理长期抱怨的人
 
-> 原文:[https://life hacker . com/how-to-deal-front-complainers-1668185689](https://lifehacker.com/how-to-deal-with-chronic-complainers-1668185689)
+> 原文：<https://lifehacker.com/how-to-deal-with-chronic-complainers-1668185689>
 
 我们都知道至少有一个长期抱怨的人:他们真的相信这个世界会得到他们，觉得有必要说出他们生活中的每一次失望。和一个长期抱怨的人相处一段时间后，你可能会想抱怨那个人(这是理所当然的),但可能害怕这样做，因为害怕你会让别人经历那个人让你忍受的事情。
 

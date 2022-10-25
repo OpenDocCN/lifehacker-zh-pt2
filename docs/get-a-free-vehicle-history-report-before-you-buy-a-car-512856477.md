@@ -1,6 +1,6 @@
 # 买车前获得一份免费的车辆历史报告
 
-> 原文:[https://life hacker . com/get-a-free-a-vehicle-history-report-before-you-buy-a-car-512856477](https://lifehacker.com/get-a-free-vehicle-history-report-before-you-buy-a-car-512856477)
+> 原文：<https://lifehacker.com/get-a-free-vehicle-history-report-before-you-buy-a-car-512856477>
 
 在我们不断寻求为您提供已知宇宙中最有用的提示和技巧的过程中，我们经常用更准确的信息更新旧的故事。毕竟，没有什么是永恒的，生活窍门也不例外。
 

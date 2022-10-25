@@ -1,6 +1,6 @@
 # 最好的费用追踪应用是 EveryDollar
 
-> 原文:[https://life hacker . com/the-best-expense-tracking-app-is-every dollar-1836710791](https://lifehacker.com/the-best-expense-tracking-app-is-everydollar-1836710791)
+> 原文：<https://lifehacker.com/the-best-expense-tracking-app-is-everydollar-1836710791>
 
 作为一个通常默认使用 [手动跟踪费用](https://twocents.lifehacker.com/track-your-spending-using-a-pen-and-paper-1835310590) 的人，我这个月挑战自己，决定最好的应用程序来帮助跟踪费用。有很多选择，但是我把每天的预算、Wally、EveryDollar 和 Dollarbird 放在我的日常开支中。
 

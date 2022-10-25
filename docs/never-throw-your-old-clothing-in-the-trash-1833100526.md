@@ -1,6 +1,6 @@
 # 永远不要把你的旧衣服扔进垃圾桶
 
-> 原文:[https://life hacker . com/never-throw-your-old-clothing-in-trash-1833100526](https://lifehacker.com/never-throw-your-old-clothing-in-the-trash-1833100526)
+> 原文：<https://lifehacker.com/never-throw-your-old-clothing-in-the-trash-1833100526>
 
 如果你的衣柜和我的一样，里面都是你应该扔掉的东西。
 

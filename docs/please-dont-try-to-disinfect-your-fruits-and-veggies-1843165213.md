@@ -1,6 +1,6 @@
 # 请不要试图给你的水果和蔬菜消毒
 
-> 原文:[https://life hacker . com/please-don-t-try-to-消毒你的水果蔬菜-1843165213](https://lifehacker.com/please-dont-try-to-disinfect-your-fruits-and-veggies-1843165213)
+> 原文：<https://lifehacker.com/please-dont-try-to-disinfect-your-fruits-and-veggies-1843165213>
 
 来自疾病控制中心的一些令人不安的消息:与去年同期相比，2020 年第一季度 打给毒物控制中心 [的电话明显增加。](https://www.cdc.gov/mmwr/volumes/69/wr/mm6916e1.htm?s_cid=mm6916e1_w&mod=article_inline#suggestedcitation)
 

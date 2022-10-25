@@ -1,6 +1,6 @@
 # 新冠肺炎抗体测试能(和不能)告诉你什么
 
-> 原文:[https://life hacker . com/what-a-新冠肺炎-抗体-测试-能不能告诉你-1842953516](https://lifehacker.com/what-a-covid-19-antibody-test-can-and-cannot-tell-you-1842953516)
+> 原文：<https://lifehacker.com/what-a-covid-19-antibody-test-can-and-cannot-tell-you-1842953516>
 
 抗体测试旨在告诉你过去是否接触过冠状病毒，你是否有新冠肺炎的实际症状。现在，克罗格正在向其所有药店 (费用:25 美元)推广快速抗体检测，记住抗体检测能做什么和不能做什么很重要。
 

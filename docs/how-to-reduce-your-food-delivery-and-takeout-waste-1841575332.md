@@ -1,6 +1,6 @@
 # 如何减少你的送餐和外卖浪费
 
-> 原文:[https://life hacker . com/how-to-reduce-your food-delivery-and-take-out-waste-1841575332](https://lifehacker.com/how-to-reduce-your-food-delivery-and-takeout-waste-1841575332)
+> 原文：<https://lifehacker.com/how-to-reduce-your-food-delivery-and-takeout-waste-1841575332>
 
 根据 [Grubhub 的](https://www.grubhub.com/) 年度“ [年内食品](https://media.grubhub.com/media/press-releases/press-release-details/2019/Grubhub-Launches-Annual-Year-In-Food-Report-Highlighting-The-Top-Trends-In-2019/default.aspx) ”报告，送餐平台平均每天超过 45 万单。莫名其妙的是，菜花披萨也是 2019 年单个点的最多的菜。
 

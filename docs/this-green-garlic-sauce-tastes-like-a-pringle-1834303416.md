@@ -1,6 +1,6 @@
 # 这种绿色大蒜酱尝起来像品客薯片
 
-> 原文:[https://life hacker . com/this-green-garlic-sauce-tastes-like-a-Pringle-1834303416](https://lifehacker.com/this-green-garlic-sauce-tastes-like-a-pringle-1834303416)
+> 原文：<https://lifehacker.com/this-green-garlic-sauce-tastes-like-a-pringle-1834303416>
 
 人们为 [坡道](https://lifehacker.com/ramp-wrapped-scallops-are-better-than-bacon-wrapped-sca-1834227569) 而失去理智，我明白了。它们是一种非常好的蔬菜，而葱属植物的限时特性驱动了它们的吸引力。但是那些东西*贵*。不要误解我的意思:我非常兴奋能吃到我冰箱里的坡道。然而，真正的大蒜，洋葱，鲜艳的，高性价比的早春最有价值的是绿色大蒜。
 

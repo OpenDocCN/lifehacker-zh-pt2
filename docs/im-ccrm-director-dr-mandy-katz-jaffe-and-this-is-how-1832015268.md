@@ -1,6 +1,6 @@
 # im ccrm director dr mandy katz jaffe and this is how 1832015268
 
-> 原文:[https://life hacker . com/im-ccrm-director-dr-Mandy-Katz-jaffe-and-this-is-how-1832015268](https://lifehacker.com/im-ccrm-director-dr-mandy-katz-jaffe-and-this-is-how-1832015268)
+> 原文：<https://lifehacker.com/im-ccrm-director-dr-mandy-katz-jaffe-and-this-is-how-1832015268>
 
 科罗拉多生殖医学中心是一家生育诊所，帮助病人并研究新的基因方法来对抗不孕症和遗传疾病。曼迪·卡茨-贾菲博士从事研究和病人护理工作，开发她和她的团队在实践中使用的基因技术。我们和她谈了她的背景和工作流程。
 

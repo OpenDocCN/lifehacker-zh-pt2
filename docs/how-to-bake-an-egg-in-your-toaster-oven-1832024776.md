@@ -1,6 +1,6 @@
 # 如何在你的烤箱里烤鸡蛋
 
-> 原文:[https://life hacker . com/how-to-bake a 蛋-1832024776](https://lifehacker.com/how-to-bake-an-egg-in-your-toaster-oven-1832024776)
+> 原文：<https://lifehacker.com/how-to-bake-an-egg-in-your-toaster-oven-1832024776>
 
 烤鸡蛋有一种优雅和宽容的味道，上面放一小撮奶酪和少量新鲜香草。烤鸡蛋——烤鸡蛋的别称——看起来非常特别，但它们可以在烤箱中几分钟内烤好，成为一个人(或者两个人，如果你喜欢早上有其他人在身边)的完美早餐。
 

@@ -1,6 +1,6 @@
 # 清醒的人值得比西德利普更好的人
 
-> 原文:[https://life hacker . com/sober-people-值得比 seedlip-1841776075](https://lifehacker.com/sober-people-deserve-better-than-seedlip-1841776075)
+> 原文：<https://lifehacker.com/sober-people-deserve-better-than-seedlip-1841776075>
 
 我喜欢清醒的人。我希望他们快乐，我希望他们在所有的场所都感到受欢迎，包括酒吧。干燥的一月可能早已过去，但“”运动正在赢得标签， [无酒精酒吧](https://www.eater.com/drinks/2019/1/24/18194447/non-alcohol-bars-spirits-free-drinks) 正在各大城市涌现，像 [Seedlip](https://seedlipdrinks.com/uk/) 这样的公司正在推出外观别致的非杜松子酒，供戒酒者在家享用。(Seedlip 太受欢迎了，我爸打电话问我这件事。)这一切都太棒了。
 

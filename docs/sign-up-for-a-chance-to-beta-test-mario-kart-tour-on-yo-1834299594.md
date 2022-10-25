@@ -1,6 +1,6 @@
 # 下个月在你的 Android 手机上注册一个机会来测试马里奥赛车之旅
 
-> 原文:[https://life hacker . com/sign-up-for-a-chance-to-beta-test-Mario-kart-tour-on-yo-1834299594](https://lifehacker.com/sign-up-for-a-chance-to-beta-test-mario-kart-tour-on-yo-1834299594)
+> 原文：<https://lifehacker.com/sign-up-for-a-chance-to-beta-test-mario-kart-tour-on-yo-1834299594>
 
 热切期待的马里奥赛车巡回赛(T2)终于在下个月推出了测试版，这是任天堂广受欢迎的赛车游戏(T3)的手机版。这款游戏已经发布一年多了，所以我们很高兴听到它很快就可以玩了——如果你满足应用程序要求的话。以下是即将到来的测试版的所有细节，如何注册，以及你需要满足的注册要求:
 

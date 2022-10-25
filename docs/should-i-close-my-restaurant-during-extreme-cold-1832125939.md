@@ -1,6 +1,6 @@
 # 问咸的女服务员:我应该在极度寒冷的时候关闭我的餐馆吗？
 
-> 原文:[https://the take out . com/should-I-close-my-restaurant-due-cold-1832125939](https://thetakeout.com/should-i-close-my-restaurant-during-extreme-cold-1832125939)
+> 原文：<https://thetakeout.com/should-i-close-my-restaurant-during-extreme-cold-1832125939>
 
 > 亲爱的咸味:我在中西部拥有一家小餐馆，那里通常我们习惯了寒冷的冬天。但是本周，我们期待看到创纪录的寒冷天气 ，不安全的温度，远低于零度。我有一种感觉，那天生意会很清淡，所以我在考虑保护我的员工的安全，关闭餐馆，这样他们就不用来上班了。但我也知道我的员工欣赏他们的薪水，我担心常客出现并发现我们不营业。我怎么打电话？
 > 

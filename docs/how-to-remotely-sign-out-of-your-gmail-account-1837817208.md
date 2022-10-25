@@ -1,6 +1,6 @@
 # 如何远程注销您的 Gmail 帐户
 
-> 原文:[https://life hacker . com/how-to-remote-sign-out-of-your-Gmail-account-1837817208](https://lifehacker.com/how-to-remotely-sign-out-of-your-gmail-account-1837817208)
+> 原文：<https://lifehacker.com/how-to-remotely-sign-out-of-your-gmail-account-1837817208>
 
 Gmail 很棒，因为你可以从几乎任何联网设备上查看你的邮件。但是，如果那个联网设备恰好是你朋友的电脑，而你在完成后忘记注销，该怎么办呢？
 

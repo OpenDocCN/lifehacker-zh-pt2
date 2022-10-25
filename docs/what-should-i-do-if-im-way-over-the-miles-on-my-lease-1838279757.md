@@ -1,6 +1,6 @@
 # 如果我的租赁里程数远远超过了，我该怎么办？
 
-> 原文:[https://jalopnik . com/what-should-I-do-if-im-way-over-the-miles-on-my-lease-1838279757](https://jalopnik.com/what-should-i-do-if-im-way-over-the-miles-on-my-lease-1838279757)
+> 原文：<https://jalopnik.com/what-should-i-do-if-im-way-over-the-miles-on-my-lease-1838279757>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。我决定挑几个问题，试着帮帮大家。本周，我们将讨论如果你超过了租约上的里程限制该怎么办，如何平衡汽车最大成本和可靠的保修，以及短期拥有汽车的最佳途径。
 

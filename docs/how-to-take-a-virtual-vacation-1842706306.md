@@ -1,6 +1,6 @@
 # how to take a virtual vacation 1842706306
 
-> 原文:[https://life hacker . com/how-to-take-a-virtual-vacation-1842706306](https://lifehacker.com/how-to-take-a-virtual-vacation-1842706306)
+> 原文：<https://lifehacker.com/how-to-take-a-virtual-vacation-1842706306>
 
 在接听电话会议和像跑疫情压力马拉松一样吃隔离零食之间，我们中的许多人可以休息一下。当你被困在家里时，这可不是最容易找到的东西——尤其是如果你喜欢旅行的话。如果你喜欢的自我保健方式是去其他城市、州和国家，被限制在你家的平方英尺内可能会很费力。
 

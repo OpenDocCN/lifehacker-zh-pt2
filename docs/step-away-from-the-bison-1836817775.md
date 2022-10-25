@@ -1,6 +1,6 @@
 # 远离野牛
 
-> 原文:[https://lifehacker.com/step-away-from-the-bison-1836817775](https://lifehacker.com/step-away-from-the-bison-1836817775)
+> 原文：<https://lifehacker.com/step-away-from-the-bison-1836817775>
 
 在过去的一周里，至少有两名年轻人 在国家公园被野牛伤害。 [现在是交配季节](https://www.nps.gov/articles/bison-bellows-7-27-16.htm) ，所以公牛现在更具攻击性，但是如果你看到一群野牛，有一件事你需要知道:*离远点*。
 

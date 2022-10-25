@@ -1,6 +1,6 @@
 # 如果你现在不更新 iOS，你的 iPhone 5 就会变成一个镇纸
 
-> 原文:[https://life hacker . com/your-iphone-5-将成为一个镇纸-如果你不-upd-1839429332](https://lifehacker.com/your-iphone-5-will-become-a-paperweight-if-you-dont-upd-1839429332)
+> 原文：<https://lifehacker.com/your-iphone-5-will-become-a-paperweight-if-you-dont-upd-1839429332>
 
 尽管你可能无法将一部老式智能手机升级到其操作系统的最新版本，但你不应该认为你的设备在剩余的生命周期中不会有任何关键更新。对于现在的 iPhone 5 用户来说，这再正确不过了。
 

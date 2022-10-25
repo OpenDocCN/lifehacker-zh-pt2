@@ -1,6 +1,6 @@
 # 亚马逊会给你 5 美元，因为你通过它的移动应用程序下了第一笔订单
 
-> 原文:[https://life hacker . com/Amazon-will-give-you-5 for-plating-you-first-order th-1834477127](https://lifehacker.com/amazon-will-give-you-5-for-placing-your-first-order-th-1834477127)
+> 原文：<https://lifehacker.com/amazon-will-give-you-5-for-placing-your-first-order-th-1834477127>
 
 如果你是亚马逊 Prime 会员，那么拍下你从该服务收到的下一个包裹可能会让你赚 5 美元。
 

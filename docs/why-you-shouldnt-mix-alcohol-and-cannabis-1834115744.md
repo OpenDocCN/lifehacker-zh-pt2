@@ -1,6 +1,6 @@
 # 为什么你不应该混合酒精和大麻
 
-> 原文:[https://life hacker . com/why-you-should-mix-alcohol-and-大麻-1834115744](https://lifehacker.com/why-you-shouldnt-mix-alcohol-and-cannabis-1834115744)
+> 原文：<https://lifehacker.com/why-you-shouldnt-mix-alcohol-and-cannabis-1834115744>
 
 “先喝啤酒，再喝白酒，从没这么难受过”—到现在(可能是亲身经历)我们都知道这个规律是真的。但是当谈到酒精和大麻时，我们有用的押韵词在哪里呢？
 

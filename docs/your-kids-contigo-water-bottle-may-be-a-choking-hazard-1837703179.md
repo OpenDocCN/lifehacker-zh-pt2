@@ -1,6 +1,6 @@
 # 你孩子的 Contigo 水瓶可能会有窒息的危险
 
-> 原文:[https://life hacker . com/your-kids-contigo-water-bottle-may-a-choking-hazard-1837703179](https://lifehacker.com/your-kids-contigo-water-bottle-may-be-a-choking-hazard-1837703179)
+> 原文：<https://lifehacker.com/your-kids-contigo-water-bottle-may-be-a-choking-hazard-1837703179>
 
 Contigo 已经 [召回](https://recall.gocontigo.com/)570 万个广受欢迎的儿童硅胶嘴水瓶，因为在某些情况下，壶嘴可能会脱落，成为窒息的危险。
 

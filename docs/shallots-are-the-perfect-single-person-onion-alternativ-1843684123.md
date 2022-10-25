@@ -1,6 +1,6 @@
 # 青葱是完美的单人洋葱替代品
 
-> 原文:[https://life hacker . com/shalloots-is-the-perfect-single-person-onion-alternativ-1843684123](https://lifehacker.com/shallots-are-the-perfect-single-person-onion-alternativ-1843684123)
+> 原文：<https://lifehacker.com/shallots-are-the-perfect-single-person-onion-alternativ-1843684123>
 
 作为一个“单身人士”烹饪实际上是掌握份额控制和学习如何缩放。一个洋葱可能看起来不算太多，但一份食谱中的单人份很少需要整个洋葱。进入香葱，它的大小自然是半个洋葱左右(或更小)，更适合单人烹饪。
 

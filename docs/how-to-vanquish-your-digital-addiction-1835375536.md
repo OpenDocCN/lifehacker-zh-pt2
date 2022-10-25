@@ -1,6 +1,6 @@
 # 如何戒掉你的数字瘾
 
-> 原文:[https://life hacker . com/how-to-vanquish-your-digital-addiction-1835375536](https://lifehacker.com/how-to-vanquish-your-digital-addiction-1835375536)
+> 原文：<https://lifehacker.com/how-to-vanquish-your-digital-addiction-1835375536>
 
 [模拟周](https://lifehacker.com/c/analog-week) 对我来说是一个陌生的概念。作为 Lifehacker 的高级技术编辑，我每天大部分时间都粘在屏幕上。我很想把我所有的小玩意都扔进抽屉，锁起来一个星期，但这对我的工作来说不切实际。我也不知道怎么去任何地方(因为没有地图应用程序带路，我很难辨别方向)。
 

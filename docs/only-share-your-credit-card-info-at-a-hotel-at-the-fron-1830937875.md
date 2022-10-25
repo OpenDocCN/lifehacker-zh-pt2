@@ -1,6 +1,6 @@
 # 只在酒店前台分享你的信用卡信息
 
-> 原文:[https://life hacker . com/only-share-your-credit-card-info-at-a-hotel-the-fron-1830937875](https://lifehacker.com/only-share-your-credit-card-info-at-a-hotel-at-the-fron-1830937875)
+> 原文：<https://lifehacker.com/only-share-your-credit-card-info-at-a-hotel-at-the-fron-1830937875>
 
 现在有这么多信用卡诈骗，保护你的信用卡很难。从学习什么时候在电话上分享你的信用卡信息是个坏主意开始。
 

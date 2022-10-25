@@ -1,6 +1,6 @@
 # 如何将你的航空里程捐赠给慈善机构
 
-> 原文:[https://life hacker . com/how-to-duate-your-airline-miles to charity-1843292580](https://lifehacker.com/how-to-donate-your-airline-miles-to-charity-1843292580)
+> 原文：<https://lifehacker.com/how-to-donate-your-airline-miles-to-charity-1843292580>
 
 现在，随着交通的停滞，重要的工作人员夜以继日地保护我们的安全，我们必须想办法尽我们所能做出贡献。如果你想捐赠给有价值的事业，还有另一种方法可以让你参与进来:通过赠送你通过航空公司和酒店积累的里程和积分。
 

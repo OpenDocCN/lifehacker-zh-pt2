@@ -1,6 +1,6 @@
 # 我对攀岩的痴迷意味着我需要一辆买得起的越野车！应该买什么车？
 
-> 原文:[https://jalopnik . com/my-攀岩痴迷-意味着我需要一个负担得起的-o-1834636653](https://jalopnik.com/my-rock-climbing-obsession-means-i-need-an-affordable-o-1834636653)
+> 原文：<https://jalopnik.com/my-rock-climbing-obsession-means-i-need-an-affordable-o-1834636653>
 
 艾琳迷上了攀岩，想要一辆更好的车，在她不在人行道上的时候用，一辆能拖着她的装备帮助她的 T2 在野外度过时光的车。她没有太多的预算，但应该足够给她买一辆漂亮的越野车了。她应该买什么车？
 

@@ -1,6 +1,6 @@
 # 你可以一次点完所有的马丁尼配菜
 
-> 原文:[https://life hacker . com/you-can-all-the-martini-garnies-once-1843982095](https://lifehacker.com/you-can-have-all-the-martini-garnishes-at-once-1843982095)
+> 原文：<https://lifehacker.com/you-can-have-all-the-martini-garnishes-at-once-1843982095>
 
 虽然不像“摇晃或搅拌”那样令人讨厌问题“橄榄还是麻花？”被真诚地询问的次数要多得多，因为大多数调酒师不会让顾客选择摇晃的马提尼。(好。选择装饰看起来像是一种审美——你感觉明亮、阳光还是复古性感？—但橄榄和麻花都以微妙但可感知的方式改变了马提尼的味道。但昨晚在准备我的洗澡时间马提尼时，我选择用另一个问题来回答这个问题:为什么不两者都要呢？
 

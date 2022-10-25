@@ -1,6 +1,6 @@
 # 没有有线电视怎么看新闻
 
-> 原文:[https://life hacker . com/how-to-watch-the-news-when you don ' t-have-cable-1840882032](https://lifehacker.com/how-to-watch-the-news-when-you-dont-have-cable-1840882032)
+> 原文：<https://lifehacker.com/how-to-watch-the-news-when-you-dont-have-cable-1840882032>
 
 2020 年是一个不可思议的糟糕开端——澳大利亚 [毁灭性的森林大火](https://lifehacker.com/how-to-help-those-affected-by-the-australian-wildfires-1840776297) ，美伊紧张局势加剧，波多黎各持续地震。如果你是一个喜欢关注世界大事的人，跟上新闻可能会成为一份全职工作。
 

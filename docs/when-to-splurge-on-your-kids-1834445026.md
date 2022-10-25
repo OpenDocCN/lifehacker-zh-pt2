@@ -1,6 +1,6 @@
 # 何时在孩子身上挥霍
 
-> 原文:[https://life hacker . com/when-to-splude-on-your-kids-1834445026](https://lifehacker.com/when-to-splurge-on-your-kids-1834445026)
+> 原文：<https://lifehacker.com/when-to-splurge-on-your-kids-1834445026>
 
 什么时候你孩子的活动值回他们花的钱？你计划的家庭度假怎么样——是你的孩子会深情地记得，还是他们只会记得那是浪费金钱？
 

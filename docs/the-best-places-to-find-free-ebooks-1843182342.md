@@ -1,6 +1,6 @@
 # 寻找免费电子书的最佳地点
 
-> 原文:[https://life hacker . com/the-best-places-to-find-free-ebooks-1843182342](https://lifehacker.com/the-best-places-to-find-free-ebooks-1843182342)
+> 原文：<https://lifehacker.com/the-best-places-to-find-free-ebooks-1843182342>
 
 我逃避疫情冠状病毒的最常用方法是打开一本好书，沉醉其中。在上面的视频中，我分享了如何不花一分钱就能买到电子书。
 

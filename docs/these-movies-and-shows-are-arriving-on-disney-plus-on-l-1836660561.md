@@ -1,6 +1,6 @@
 # 这些电影和节目将在发布日登陆迪士尼 Plus
 
-> 原文:[https://life hacker . com/these-movies-and-shows-is-arrived-on-Disney-plus-on-l-1836660561](https://lifehacker.com/these-movies-and-shows-are-arriving-on-disney-plus-on-l-1836660561)
+> 原文：<https://lifehacker.com/these-movies-and-shows-are-arriving-on-disney-plus-on-l-1836660561>
 
 内容大战已经开始。迪士尼将于 11 月 12 日推出其 [迪士尼加](https://preview.disneyplus.com/) 流媒体服务，这意味着*你在你最喜欢的流媒体服务上观看迪士尼内容的*体验将会变得一团糟。毕竟，迪士尼不会让内容在网飞上直播，相反，它可以用你最喜欢的动画电影(或*星球大战*)诱使你为其流媒体服务付费。
 

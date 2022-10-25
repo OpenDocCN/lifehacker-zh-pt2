@@ -1,6 +1,6 @@
 # 如何让某人坚持帮忙而不唠叨他们
 
-> 原文:[https://life hacker . com/how-to-get-someone-to-follow-through-on-a-faw-without-1837662065](https://lifehacker.com/how-to-get-someone-to-follow-through-on-a-favor-without-1837662065)
+> 原文：<https://lifehacker.com/how-to-get-someone-to-follow-through-on-a-favor-without-1837662065>
 
 如果你讨厌发那些烦人的“刚刚签到！”电子邮件，你可以检查承诺为你做某事的人是否真的会做，那么这里有一个稍微酷一点的检查方式，不会让任何人感觉不好。
 

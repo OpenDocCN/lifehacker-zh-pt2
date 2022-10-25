@@ -1,6 +1,6 @@
 # 获得这两款(实际上)免费的 PlayStation 4 游戏
 
-> 原文:[https://life hacker . com/get-this-two-actually-free-PlayStation-4-games-1842906262](https://lifehacker.com/get-these-two-actually-free-playstation-4-games-1842906262)
+> 原文：<https://lifehacker.com/get-these-two-actually-free-playstation-4-games-1842906262>
 
 你的隔离游戏怎么样了？如果你过去几周一直呆在家里，它可能需要更新一下，索尼通过其新的 [在家玩程序](https://blog.us.playstation.com/2020/04/14/announcing-the-play-at-home-initiative/) 向所有 PS4 用户提供两款免费的 PlayStation 4 游戏。
 

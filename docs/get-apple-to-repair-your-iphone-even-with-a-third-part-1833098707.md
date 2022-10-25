@@ -1,6 +1,6 @@
 # 让苹果公司修理你的 iPhone，即使是用第三方电池
 
-> 原文:[https://life hacker . com/get-apple-to-repair-your-iphone-even-with a third-part-1833098707](https://lifehacker.com/get-apple-to-repair-your-iphone-even-with-a-third-part-1833098707)
+> 原文：<https://lifehacker.com/get-apple-to-repair-your-iphone-even-with-a-third-part-1833098707>
 
 如果你用第三方替代品更换了你的 iPhone 电池，并需要修理你的设备，你很幸运:苹果现在将使用第三方电池为 iPhone 提供服务， [MacRumors 报道](https://www.macrumors.com/2019/03/05/iphones-third-party-batteries-now-repair-eligible/) 。
 

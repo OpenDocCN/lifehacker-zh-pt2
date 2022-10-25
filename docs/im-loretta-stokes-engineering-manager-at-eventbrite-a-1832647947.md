@@ -1,6 +1,6 @@
 # 我是洛蕾塔·斯托克斯，Eventbrite 的工程经理，这就是我为人父母的方式
 
-> 原文:[https://life hacker . com/im-Loretta-stokes-engineering-manager-at-eventbrite-a-1832647947](https://lifehacker.com/im-loretta-stokes-engineering-manager-at-eventbrite-a-1832647947)
+> 原文：<https://lifehacker.com/im-loretta-stokes-engineering-manager-at-eventbrite-a-1832647947>
 
 Loretta Stokes 是一名高级软件工程经理，也是女性工程师的导师，她在 [*妇女组织工作。她最近被大纳什维尔技术委员会命名为“年度新兴领袖”。*](http://womengetit.net/about-us/)
 

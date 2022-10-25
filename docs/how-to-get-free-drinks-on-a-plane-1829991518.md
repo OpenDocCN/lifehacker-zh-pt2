@@ -1,6 +1,6 @@
 # 如何在飞机上获得免费饮料
 
-> 原文:[https://life hacker . com/how-to-get-free-drinks-on-a-plane-1829991518](https://lifehacker.com/how-to-get-free-drinks-on-a-plane-1829991518)
+> 原文：<https://lifehacker.com/how-to-get-free-drinks-on-a-plane-1829991518>
 
 空中旅行令人紧张，减轻压力最简单的方法之一就是稍微放松一下。然而，飞机上的饮料价格有点高:因此，我们觉得在飞机上提供一些偷偷摸摸的方法来获得免费的酒是没问题的。
 

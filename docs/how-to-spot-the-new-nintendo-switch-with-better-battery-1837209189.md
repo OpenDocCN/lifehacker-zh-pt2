@@ -1,6 +1,6 @@
 # 如何找到电池续航时间更长的新款任天堂 Switch，同时避免意外购买旧款
 
-> 原文:[https://life hacker . com/how-to-spot-the-new-Nintendo-switch-with-better-battery-1837209189](https://lifehacker.com/how-to-spot-the-new-nintendo-switch-with-better-battery-1837209189)
+> 原文：<https://lifehacker.com/how-to-spot-the-new-nintendo-switch-with-better-battery-1837209189>
 
 任天堂新型号的 Switch 控制台现已在特定地区的商店上架，并将很快推广到其他市场。与更小、注重便携性的 Switch Lite 不同，更新的任天堂 Switch 在功能上与自 2016 年 3 月控制台首次亮相以来推出的型号相同；这不是一台新的游戏机。
 

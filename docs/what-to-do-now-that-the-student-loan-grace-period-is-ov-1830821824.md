@@ -1,6 +1,6 @@
 # 学生贷款宽限期已过，现在该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-now-the-student-loan-grace-period-is-ov-1830821824](https://lifehacker.com/what-to-do-now-that-the-student-loan-grace-period-is-ov-1830821824)
+> 原文：<https://lifehacker.com/what-to-do-now-that-the-student-loan-grace-period-is-ov-1830821824>
 
 拥有公共学生贷款的大学毕业生通常会在毕业典礼后获得六个月的宽限期，之后他们必须 [开始支付](https://twocents.lifehacker.com/why-you-should-make-student-loan-payments-during-your-g-1826640345) 。这意味着对于 2018 年春季毕业生来说，可能是时候开始付钱了。
 

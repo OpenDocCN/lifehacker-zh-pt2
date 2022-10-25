@@ -1,6 +1,6 @@
 # 如何真正享受辛辣食物带来的痛苦快感
 
-> 原文:[https://life hacker . com/how-to-really-enjoy-the-pain-joy of-spiral-foo-1794616828](https://lifehacker.com/how-to-actually-enjoy-the-painful-pleasure-of-spicy-foo-1794616828)
+> 原文：<https://lifehacker.com/how-to-actually-enjoy-the-painful-pleasure-of-spicy-foo-1794616828>
 
 如果你认为辛辣的食物 [是最好的食物](http://lifehacker.com/why-spicy-food-makes-you-feel-high-1791090210) ，我们没有必要让你相信它的神奇之处。但并不是所有人都同意。在令人痛苦的辣椒素、因喝水过多而引起的腹胀和不可避免的出汗之间，辛辣食物吃起来也会不舒服。这里有一些小贴士可以让你在享受香料的同时不会胀气、流汗和流泪。
 

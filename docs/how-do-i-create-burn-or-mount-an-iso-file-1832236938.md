@@ -1,6 +1,6 @@
 # 如何创建、刻录或挂载？ISO 文件？
 
-> 原文:[https://life hacker . com/how-do-I-create-burn-or-mount-an-iso-file-1832236938](https://lifehacker.com/how-do-i-create-burn-or-mount-an-iso-file-1832236938)
+> 原文：<https://lifehacker.com/how-do-i-create-burn-or-mount-an-iso-file-1832236938>
 
 几年前，我终于做出决定，在组装新电脑时不再购买光驱，因为我已经不记得上次需要将光盘放入电脑是什么时候了。是的，有一天我可能还是会买一个 4K 播放器——一旦下一个 PlayStation 5 或 Xbox 什么的出现——但是我们现在生活在一个流媒体和可下载的世界里。制作一个可启动的 USB 驱动器很容易，甚至比从光盘安装东西(如 Windows 10)还要快。
 

@@ -1,6 +1,6 @@
 # 如何做出美味的土豆饼
 
-> 原文:[https://lifehacker.com/how-to-make-great-latkes-1830713606](https://lifehacker.com/how-to-make-great-latkes-1830713606)
+> 原文：<https://lifehacker.com/how-to-make-great-latkes-1830713606>
 
 我不喜欢以前被称为我继父的那个人，但至少他把我介绍给了拉特克斯。旁边的土豆菜有点像蛋糕，不太好吃，不像我七岁到 T4 的老味觉所经历的任何事情，它经历了很多土豆。
 

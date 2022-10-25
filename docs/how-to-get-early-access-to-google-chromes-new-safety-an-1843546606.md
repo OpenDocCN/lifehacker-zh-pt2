@@ -1,6 +1,6 @@
 # 如何提前获得谷歌 Chrome 新的安全和设计更新
 
-> 原文:[https://life hacker . com/how-to-get-early-access-to-Google-chromes-new-safety-an-1843546606](https://lifehacker.com/how-to-get-early-access-to-google-chromes-new-safety-an-1843546606)
+> 原文：<https://lifehacker.com/how-to-get-early-access-to-google-chromes-new-safety-an-1843546606>
 
 谷歌昨天宣布了 Chrome 的一些新功能、调整和补充。在典型的谷歌时尚中，有些你现在就可以玩，有些你必须等待。我们已经完成了繁重的工作，并整理出了一份全面的指南来解锁谷歌昨天谈到的每一个功能(以及它们是什么)。
 

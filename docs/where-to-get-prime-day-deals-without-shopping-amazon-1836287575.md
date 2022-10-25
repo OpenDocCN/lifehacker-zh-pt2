@@ -1,6 +1,6 @@
 # 不去亚马逊购物，哪里可以买到黄金日优惠
 
-> 原文:[https://life hacker . com/where-to-get-prime-day-deals-not-shopping-Amazon-1836287575](https://lifehacker.com/where-to-get-prime-day-deals-without-shopping-amazon-1836287575)
+> 原文：<https://lifehacker.com/where-to-get-prime-day-deals-without-shopping-amazon-1836287575>
 
 如果你不是亚马逊的粉丝，或者你只是厌倦了 Prime Day 交易的喧嚣，不要担心:美国其他所有零售商也在 7 月 15 日和 16 日进行促销。在接下来的几天里，你有很多夏季购物的选择——无论是返校、搬家还是夏末烧烤。
 

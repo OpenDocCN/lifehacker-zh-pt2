@@ -1,6 +1,6 @@
 # 为什么你不断听说儿童中有类似脊髓灰质炎的“神秘疾病”
 
-> 原文:[https://life hacker . com/why-you-keep-hearing-on-a-小儿麻痹症似的神秘疾病-1829847126](https://lifehacker.com/why-you-keep-hearing-about-a-polio-like-mystery-illness-1829847126)
+> 原文：<https://lifehacker.com/why-you-keep-hearing-about-a-polio-like-mystery-illness-1829847126>
 
 美国疾病控制和预防中心本周证实，62 人，主要是儿童，患有急性弛缓性脊髓炎(AFM)，这种疾病会削弱他们的胳膊和腿。但是，尽管症状很可怕(它们被描述为“类似脊髓灰质炎”)，但这是一种非常罕见的疾病，我向你保证，没有必要大惊小怪。医生和科学家仍在研究到底发生了什么。以下是我们现在掌握的事实:
 

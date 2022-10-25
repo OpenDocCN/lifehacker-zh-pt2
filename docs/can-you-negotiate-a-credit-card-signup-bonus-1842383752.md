@@ -1,6 +1,6 @@
 # 你能协商信用卡注册奖金吗？
 
-> 原文:[https://life hacker . com/can-you-negotiate-a-credit-card-sign-bonus-1842383752](https://lifehacker.com/can-you-negotiate-a-credit-card-signup-bonus-1842383752)
+> 原文：<https://lifehacker.com/can-you-negotiate-a-credit-card-signup-bonus-1842383752>
 
 去年秋天，Delta Skymiles 美国运通卡宣布了面向持卡人的新外观和新优惠。如果你在变化生效前几个月注册，它会为整套卡提供可观的注册奖金。但是当一月到来时，一些新客户的卡注册价格明显高于秋季。
 

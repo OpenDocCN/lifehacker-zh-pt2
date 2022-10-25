@@ -1,6 +1,6 @@
 # 2018 年最佳三种成分鸡尾酒
 
-> 原文:[https://life hacker . com/the-best-3-ingredient-cocktails-of-2018-1831369062](https://lifehacker.com/the-best-3-ingredient-cocktails-of-2018-1831369062)
+> 原文：<https://lifehacker.com/the-best-3-ingredient-cocktails-of-2018-1831369062>
 
 恭喜每一个坚持到 2018 年底的人，我敢说你值得喝一杯(或者七杯)。如果你还在绞尽脑汁，试图找出如何庆祝今年被遗忘，让自己平静下来，凝视我们今年制作和享用的许多美味的三种成分的鸡尾酒。有很多选择。
 

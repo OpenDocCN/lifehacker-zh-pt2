@@ -1,6 +1,6 @@
 # 通过这个免费的网络研讨会，了解如何教你的孩子生活技能
 
-> 原文:[https://life hacker . com/learn-how-to-teach-your-kids-life-skills-with this-free-1844218742](https://lifehacker.com/learn-how-to-teach-your-kids-life-skills-with-this-free-1844218742)
+> 原文：<https://lifehacker.com/learn-how-to-teach-your-kids-life-skills-with-this-free-1844218742>
 
 大多数家长现在可能已经精疲力尽了，因为他们正在复习数学知识和词汇。就我个人而言，我主要关注的是确保我九岁的孩子继续坚持阅读，并进行足够的户外活动；除此之外，好吧，玩《我的世界》。但是我们可以利用这个夏天的一个方法是集中精力教我们的孩子生活技能。
 

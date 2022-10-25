@@ -1,6 +1,6 @@
 # 继续正确使用撇号，我们恳求你
 
-> 原文:[https://life hacker . com/continue-using-撇号-正确-we-beg-of-you-1840153203](https://lifehacker.com/continue-using-apostrophes-correctly-we-beg-of-you-1840153203)
+> 原文：<https://lifehacker.com/continue-using-apostrophes-correctly-we-beg-of-you-1840153203>
 
 我们这些尊重并欣赏撇号正确用法的人昨天被一些令人沮丧的消息惊醒:约翰·理查兹，正确使用撇号最热心的捍卫者之一，要放弃了。他在他于 2001 年创立的组织 [撇号保护协会](https://www.apostrophe.org.uk/) 的网站上公布了他做出这一决定的原因:
 

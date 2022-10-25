@@ -1,6 +1,6 @@
 # AMC 的新流媒体服务与竞争对手相比如何
 
-> 原文:[https://life hacker . com/how-AMCs-new-streaming-service-comparison-to-the-competit it-1839104784](https://lifehacker.com/how-amcs-new-streaming-service-compares-to-the-competit-1839104784)
+> 原文：<https://lifehacker.com/how-amcs-new-streaming-service-compares-to-the-competit-1839104784>
 
 昨天，连锁影院 AMC 推出了自己的流媒体服务，这是影院运营商的第一项服务，允许该公司的 AMC Stubs 服务的成员通过连锁影院购买或租赁电影。
 

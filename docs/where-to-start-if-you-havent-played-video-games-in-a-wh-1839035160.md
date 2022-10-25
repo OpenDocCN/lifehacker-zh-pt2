@@ -1,6 +1,6 @@
 # 如果你有一段时间没有玩电子游戏了，从哪里开始呢
 
-> 原文:[https://kotaku . com/where-to-start-if-you-have-played-video-games-in-a-wh-1839035160](https://kotaku.com/where-to-start-if-you-havent-played-video-games-in-a-wh-1839035160)
+> 原文：<https://kotaku.com/where-to-start-if-you-havent-played-video-games-in-a-wh-1839035160>
 
 也许你已经离开游戏很长时间了，现在想重新投入游戏。这可能会感觉非常令人生畏:有新的游戏，新的游戏机，新的俚语，很多青少年，Twitch 是怎么回事？这里有一些关于从哪里开始的提示。
 

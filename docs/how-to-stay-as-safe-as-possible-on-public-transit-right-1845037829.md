@@ -1,6 +1,6 @@
 # 如何在公共交通上尽可能保持安全
 
-> 原文:[https://life hacker . com/how-to-stay-as-safe-only-on-public transit-right-1845037829](https://lifehacker.com/how-to-stay-as-safe-as-possible-on-public-transit-right-1845037829)
+> 原文：<https://lifehacker.com/how-to-stay-as-safe-as-possible-on-public-transit-right-1845037829>
 
 对于那些幸运地生活在拥有良好公共交通的地方并依靠它出行的人来说，过去的六个月可能是一个挑战。尽管我们生活中的许多人已经搬进并留在家中，但并不是每个人都可以选择远程工作或学习。当然，自从疫情开始以来，数以千计的重要工人一直在为我们提供我们需要的商品和服务，情况就是如此。(谢谢，必不可少的工作者！)
 

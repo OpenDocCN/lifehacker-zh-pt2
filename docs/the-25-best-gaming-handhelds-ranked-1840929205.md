@@ -1,6 +1,6 @@
 # 25 款最佳游戏手持设备，排名
 
-> 原文:[https://kotaku . com/the-25-best-gaming-handleds-ranked-1840929205](https://kotaku.com/the-25-best-gaming-handhelds-ranked-1840929205)
+> 原文：<https://kotaku.com/the-25-best-gaming-handhelds-ranked-1840929205>
 
 我最近得到了一个任天堂 Switch 建兴，我喜欢它。我想写一写那种即将消亡的设备——专用便携式游戏机——的乐趣。我对自己说，我怎样才能用一种让大多数人讨厌我的方式来写这篇文章呢？而我意识到:一个排名榜！
 

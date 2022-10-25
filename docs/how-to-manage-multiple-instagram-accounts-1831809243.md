@@ -1,6 +1,6 @@
 # 如何管理多个 Instagram 账户
 
-> 原文:[https://life hacker . com/how-to-management-multiple-insta gram-accounts-1831809243](https://lifehacker.com/how-to-manage-multiple-instagram-accounts-1831809243)
+> 原文：<https://lifehacker.com/how-to-manage-multiple-instagram-accounts-1831809243>
 
 本周，Instagram 推出了一项新功能，允许你在多个账户上发布一张图片，甚至可以同时在多个账户上发布一张图片。虽然这听起来像是一个为帮助超级用户而创建的小众功能，但有很多人同时使用多个 Instagram 订阅源:用户保留公共和私人订阅源， [侧账户用于他们的宠物](https://www.instagram.com/stupicklesthedog/) ，以及 [其他摄影侧项目](https://www.instagram.com/adultbathtime/) 。是的，在影响者文化的时代，使用 Instagram 进行商务和娱乐的人数只会增加。
 

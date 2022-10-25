@@ -1,6 +1,6 @@
 # 说真的，永远不要看太阳
 
-> 原文:[https://life hacker . com/seriously-don ' t-look-on-the-ever-1845003036](https://lifehacker.com/seriously-dont-look-at-the-sun-ever-1845003036)
+> 原文：<https://lifehacker.com/seriously-dont-look-at-the-sun-ever-1845003036>
 
 我很惊讶我不得不写这个，但这里去。如果你在西海岸或一些类似的灾难性环境中——我很喜欢我们新的橙色天空——那么你可能已经注意到空气中的所有微粒(或任何降临到你所在地区的东西)可能会让太阳看起来不一样。也许它真的是红色的，就像你最喜欢的《星球大战》的时刻。它甚至可能更容易看。
 

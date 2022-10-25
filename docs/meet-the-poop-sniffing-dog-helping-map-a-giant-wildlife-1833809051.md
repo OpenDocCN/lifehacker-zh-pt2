@@ -1,6 +1,6 @@
 # meet the poop sniffing dog helping map a giant wildlife 1833809051
 
-> 原文:[https://gizmodo . com/meet-the-poop-sniff-dog-help-map-a-giant-wildlife-1833809051](https://gizmodo.com/meet-the-poop-sniffing-dog-helping-map-a-giant-wildlife-1833809051)
+> 原文：<https://gizmodo.com/meet-the-poop-sniffing-dog-helping-map-a-giant-wildlife-1833809051>
 
 当火车漫步进入阿根廷的森林时，他正在执行一项任务。这只 12 岁的切萨皮克湾寻回犬是一名训练有素的侦探，但他并没有在竹子和藤蔓中寻找非法毒品。火车正在用它黑色的大鼻子嗅便便。而且不是普通的粪便，而是该国一些最受威胁的大型猫科动物的粪便。
 

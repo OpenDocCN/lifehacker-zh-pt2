@@ -1,6 +1,6 @@
 # 低维护工厂对新手来说其实很可怕
 
-> 原文:[https://life hacker . com/low-maintenance-plants-beginn-1835496440](https://lifehacker.com/low-maintenance-plants-are-actually-terrible-for-beginn-1835496440)
+> 原文：<https://lifehacker.com/low-maintenance-plants-are-actually-terrible-for-beginn-1835496440>
 
 如果你杀了一个肉质植物，请举手。是啊，我也是。理论上来说，多肉植物和仙人掌是很好的入门植物，因为它们可以在一点点疏忽中存活。但这实际上是让像我和(也许)你这样的棕色拇指变得可怕的原因。
 

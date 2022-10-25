@@ -1,6 +1,6 @@
 # how the stockdale paradox can help you embrace uncertai 1842766780
 
-> 原文:[https://life hacker . com/how-the-stock dale-paradox-can-help-you-embrace-uncertai-1842766780](https://lifehacker.com/how-the-stockdale-paradox-can-help-you-embrace-uncertai-1842766780)
+> 原文：<https://lifehacker.com/how-the-stockdale-paradox-can-help-you-embrace-uncertai-1842766780>
 
 相信一个更好的未来——同时仍然承认我们目前现实的黑暗——现在看起来几乎是不可能的。这样做可能会有很大的不同。
 

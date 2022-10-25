@@ -1,6 +1,6 @@
 # 如何帮助受飓风道林影响的宠物
 
-> 原文:[https://life hacker . com/how-to-help-pets-affected-by-hurricane-Dorian-1837980353](https://lifehacker.com/how-to-help-pets-affected-by-hurricane-dorian-1837980353)
+> 原文：<https://lifehacker.com/how-to-help-pets-affected-by-hurricane-dorian-1837980353>
 
 随着飓风道林继续沿着加拿大东海岸行进，我们才刚刚开始了解它迄今为止造成的破坏，特别是在巴哈马这样的重灾区。
 

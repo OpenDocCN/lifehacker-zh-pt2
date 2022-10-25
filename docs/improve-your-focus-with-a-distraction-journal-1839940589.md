@@ -1,6 +1,6 @@
 # 用分散注意力的日记来提高你的注意力
 
-> 原文:[https://life hacker . com/improve-your-focus with a distraction-journal-1839940589](https://lifehacker.com/improve-your-focus-with-a-distraction-journal-1839940589)
+> 原文：<https://lifehacker.com/improve-your-focus-with-a-distraction-journal-1839940589>
 
 你读这篇文章是为了推迟做别的事情吗？当你写完这篇文章后，你会继续工作吗——还是会找些别的事情来分散你的注意力，哪怕只是一会儿？
 

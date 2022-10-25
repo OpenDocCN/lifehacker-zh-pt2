@@ -1,6 +1,6 @@
 # 用数据转储弥补你们关系的资金缺口
 
-> 原文:[https://life hacker . com/bridge-your-relationships-money-gap-with-a-data-dump-1832898475](https://lifehacker.com/bridge-your-relationships-money-gap-with-a-data-dump-1832898475)
+> 原文：<https://lifehacker.com/bridge-your-relationships-money-gap-with-a-data-dump-1832898475>
 
 和你的伴侣在钱的问题上达成一致的关键之一是开诚布公的交流。正如 Lifehacker 所报道的，安排定期的金钱检查——无论是每周、每月等等。—在任何关系中都很重要。
 

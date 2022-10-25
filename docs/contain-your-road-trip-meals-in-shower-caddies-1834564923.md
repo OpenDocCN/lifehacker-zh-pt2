@@ -1,6 +1,6 @@
 # 把你的公路旅行餐放在淋浴球童里
 
-> 原文:[https://life hacker . com/contain-your-road-trip-means-in-shower-caddies-1834564923](https://lifehacker.com/contain-your-road-trip-meals-in-shower-caddies-1834564923)
+> 原文：<https://lifehacker.com/contain-your-road-trip-meals-in-shower-caddies-1834564923>
 
 如果你有很多家庭自驾游，有时你和你的孩子必须在车里吃东西。所有这些时候，你可以期待一场灾难。外卖是最糟糕的。纸袋子经常滴满油脂，杯子的盖子有缺陷，而且没有一件东西是按照正确的顺序摆放的。流氓薯条将不可避免地卡在后座的缝隙里，你听到这句话只是时间问题，“罗文把他的奶昔*洒得到处都是*！”
 

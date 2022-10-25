@@ -1,6 +1,6 @@
 # 另一个不用在加油站付钱的原因
 
-> 原文:[https://life hacker . com/other-reason-to-not-pay for the gas in the pump-1840458985](https://lifehacker.com/another-reason-to-not-pay-for-gas-at-the-pump-1840458985)
+> 原文：<https://lifehacker.com/another-reason-to-not-pay-for-gas-at-the-pump-1840458985>
 
 你可能已经对那些可能从读卡器中窃取你的支付信息的加油站撇油器心存警惕。现在，Visa 就加油站的新威胁发出了警告:黑客通过加油站的销售系统进行攻击。
 

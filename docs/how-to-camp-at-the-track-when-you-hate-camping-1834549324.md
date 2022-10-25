@@ -1,6 +1,6 @@
 # 当你讨厌露营时，如何在赛道上露营
 
-> 原文:[https://jalopnik . com/how-to-camp-at-track-when-you-hate-camping-1834549324](https://jalopnik.com/how-to-camp-at-the-track-when-you-hate-camping-1834549324)
+> 原文：<https://jalopnik.com/how-to-camp-at-the-track-when-you-hate-camping-1834549324>
 
 在每个赛车迷的一生中，总会有一个时刻，他们必须做出一个至关重要的决定。我是花了一大笔钱住酒店，然后以某种方式通勤去赛道，还是剥夺了现代生活的所有便利和*营地*？不过，有时候，在露营地过艰苦的生活是唯一的办法。如果你一定要这样做，这里是你要做的。
 

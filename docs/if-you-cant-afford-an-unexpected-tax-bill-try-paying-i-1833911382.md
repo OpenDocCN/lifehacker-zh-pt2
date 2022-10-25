@@ -1,6 +1,6 @@
 # 如果你负担不起意外的税单，尝试分期付款
 
-> 原文:[https://life hacker . com/if-you-affordable-an-unexpected-tax-bill-try-paying-I-1833911382](https://lifehacker.com/if-you-cant-afford-an-unexpected-tax-bill-try-paying-i-1833911382)
+> 原文：<https://lifehacker.com/if-you-cant-afford-an-unexpected-tax-bill-try-paying-i-1833911382>
 
 纳税最糟糕的事情之一是，直到截止日期前你都不知道你的税单会是多少。
 

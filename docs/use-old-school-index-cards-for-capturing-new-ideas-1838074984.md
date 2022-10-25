@@ -1,6 +1,6 @@
 # 使用旧的学校索引卡来捕捉新的想法
 
-> 原文:[https://life hacker . com/use-old-school-index-cards-for-capture-new-ideas-1838074984](https://lifehacker.com/use-old-school-index-cards-for-capturing-new-ideas-1838074984)
+> 原文：<https://lifehacker.com/use-old-school-index-cards-for-capturing-new-ideas-1838074984>
 
 我尝试过 Evernote 和 Scrivener、paper planners 和 Moleskines，以及世界上几乎所有的应用程序来捕捉我的想法。但是我不断回到一个简单的、被低估的工具上来捕捉那些似乎不适合其他地方的半生不熟的想法和想法。最完美的地方是不起眼的索引卡。
 

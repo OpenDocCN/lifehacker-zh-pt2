@@ -1,6 +1,6 @@
 # 知道“海滨”房和“海景”房的区别吗
 
-> 原文:[https://life hacker . com/know-the-difference-an-ocean-front-and-ocean-VI-1835359202](https://lifehacker.com/know-the-difference-between-an-ocean-front-and-ocean-vi-1835359202)
+> 原文：<https://lifehacker.com/know-the-difference-between-an-ocean-front-and-ocean-vi-1835359202>
 
 当你预订去海滩度假的房间时，一定要注意你预订的是什么类型的房间。
 

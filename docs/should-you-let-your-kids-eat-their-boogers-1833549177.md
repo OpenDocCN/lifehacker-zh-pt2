@@ -1,6 +1,6 @@
 # 你应该让你的孩子吃他们的布格斯吗？
 
-> 原文:[https://life hacker . com/should-you-let-your-kids-eat-they-boogers-1833549177](https://lifehacker.com/should-you-let-your-kids-eat-their-boogers-1833549177)
+> 原文：<https://lifehacker.com/should-you-let-your-kids-eat-their-boogers-1833549177>
 
 足球妈妈博客 上的一个帖子告诉家长们，孩子们挖鼻孔可能没什么问题。然后吃他们的鼻涕。帖子称，吃鼻屎实际上对孩子有*的好处*，因为挖鼻孔/吃鼻屎会导致 [更快乐、更健康的生活](https://www.telegraph.co.uk/science/2017/05/05/eating-bogies-good-teeth-overall-health-scientists-conclude/) 。
 

@@ -1,6 +1,6 @@
 # 在你的城市里最有趣的酒吧是什么？
 
-> 原文:[https://life hacker . com/whats-the-most-interest-bar-in-you-city-1833651825](https://lifehacker.com/whats-the-most-interesting-bar-in-your-city-1833651825)
+> 原文：<https://lifehacker.com/whats-the-most-interesting-bar-in-your-city-1833651825>
 
 每个酒吧都应该有一个“东西”我非常喜欢的酒吧，曼哈顿东村的打嗝城堡，主题像修道院；酒保穿着僧侣的长袍，轻轻地嘘顾客，以降低噪音。我在布鲁克林的酒吧 High Dive 不是很有特色，但它供应爆米花，后面有弹球，前面有黑板，顾客可以把钱放在彼此的标签上。
 

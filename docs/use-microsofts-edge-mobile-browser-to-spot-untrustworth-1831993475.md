@@ -1,6 +1,6 @@
 # 使用微软的 Edge 移动浏览器发现不可信的新闻来源
 
-> 原文:[https://life hacker . com/use-Microsoft-edge-mobile-browser-to-spot-untrust worth-1831993475](https://lifehacker.com/use-microsofts-edge-mobile-browser-to-spot-untrustworth-1831993475)
+> 原文：<https://lifehacker.com/use-microsofts-edge-mobile-browser-to-spot-untrustworth-1831993475>
 
 微软正在将自己的 [假新闻之战](https://lifehacker.com/learn-about-fake-news-with-this-web-game-1823229554) 扩展到移动战线。其 Edge 浏览器应用程序的最新更新包含了一个新闻标记功能，该功能以前只在桌面版本上作为可选插件提供。
 

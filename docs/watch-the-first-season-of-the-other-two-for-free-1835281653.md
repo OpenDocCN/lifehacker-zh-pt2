@@ -1,6 +1,6 @@
 # 免费观看《另外两个》第一季
 
-> 原文:[https://life hacker . com/watch-the-first-season-of-other-two-free-1835281653](https://lifehacker.com/watch-the-first-season-of-the-other-two-for-free-1835281653)
+> 原文：<https://lifehacker.com/watch-the-first-season-of-the-other-two-for-free-1835281653>
 
 另外两部是一部关于名声和流行文化工业综合体的令人惊讶的聪明和善良的喜剧，或者至少从试播集来看是这样的。现在，你可以在喜剧中心网站、或 Roku/Apple TV/Chromecast 上的应用程序、 中免费观看第一季的全部内容。
 

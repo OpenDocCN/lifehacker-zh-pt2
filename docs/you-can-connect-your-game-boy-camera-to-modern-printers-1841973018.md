@@ -1,6 +1,6 @@
 # 你可以用这个 20 美元的适配器将你的 Game Boy 相机连接到现代打印机上
 
-> 原文:[https://gizmodo . com/you-can-connect-your-game-boy-camera-to-modern-printers-1841973018](https://gizmodo.com/you-can-connect-your-game-boy-camera-to-modern-printers-1841973018)
+> 原文：<https://gizmodo.com/you-can-connect-your-game-boy-camera-to-modern-printers-1841973018>
 
 尽管它的图像质量(最大分辨率仅为 160x144 像素)，Game Boy 相机仍然是一个 [受欢迎的附件](https://gizmodo.com/an-old-school-film-trick-finally-brings-color-to-the-ga-1831339272) ，这在一定程度上要归功于一个可以打印出微小照片的廉价配件。但是，如今为 Game Boy 打印机寻找纸张并不是一件容易的事情，所以 Vaclav Mach 发明了一种[【20 美元】的适配器](https://www.tindie.com/products/xx0x/gbpxl-game-boy-printer-xl-kit/) ，它可以让 Game Boy 相机与现代打印机配合工作。
 

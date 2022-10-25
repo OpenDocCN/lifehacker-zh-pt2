@@ -1,6 +1,6 @@
 # Safari 里的 Siri 建议为什么这么奇怪？
 
-> 原文:[https://life hacker . com/why-are-Siri-suggestions-in-safari-so-strange-1844717165](https://lifehacker.com/why-are-siri-suggestions-in-safari-so-strange-1844717165)
+> 原文：<https://lifehacker.com/why-are-siri-suggestions-in-safari-so-strange-1844717165>
 
 搜索建议可以很棒，很搞笑，也可以很恐怖。这样做的目的是有意义的:在完成这个短语之前，S 给你几个键，让你在*中输入你确实想输入的内容。我想我们都同意节省时间和按键通常是一件好事——除非这个建议是完全错误的。*
 

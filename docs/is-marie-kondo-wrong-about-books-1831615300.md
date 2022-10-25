@@ -1,6 +1,6 @@
 # 玛丽·近藤对书的看法是错误的吗？
 
-> 原文:[https://life hacker . com/is-Marie-kondo-error-about-books-1831615300](https://lifehacker.com/is-marie-kondo-wrong-about-books-1831615300)
+> 原文：<https://lifehacker.com/is-marie-kondo-wrong-about-books-1831615300>
 
 由于玛丽·近藤的新网飞秀 ，她对书籍的态度遭到了很多反对。在她的书*改变生活的整理魔法*中，她鼓励读者扔掉所有未读的书。她说她个人只拥有 30 本书。她的批评者说这太荒谬了，事实上你应该用书盖住你的家。
 

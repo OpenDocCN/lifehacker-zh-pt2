@@ -1,6 +1,6 @@
 # 如何直播今晚的第 71 届艾美奖颁奖典礼
 
-> 原文:[https://life hacker . com/how-to-stream-第 71 届艾美奖-今晚-1838322630](https://lifehacker.com/how-to-stream-the-71st-primetime-emmy-awards-tonight-1838322630)
+> 原文：<https://lifehacker.com/how-to-stream-the-71st-primetime-emmy-awards-tonight-1838322630>
 
 第 71 届黄金时段艾美奖奖今晚揭晓。庆祝活动将于美国东部时间上午 8 点/太平洋时间下午 5 点正式开始，并将在福克斯电视台播出。
 

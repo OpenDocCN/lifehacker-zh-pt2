@@ -1,6 +1,6 @@
 # 捷蓝航空的单程航班正在打折，起价 44 美元
 
-> 原文:[https://life hacker . com/JetBlue-is-have-a-sale-on-one-way-flights-start-at-1836828254](https://lifehacker.com/jetblue-is-having-a-sale-on-one-way-flights-starting-at-1836828254)
+> 原文：<https://lifehacker.com/jetblue-is-having-a-sale-on-one-way-flights-starting-at-1836828254>
 
 我们已经进入夏季一个月了，这意味着如果你想在航班上买到便宜的机票，是时候开始考虑秋天的度假计划了。幸运的是，捷蓝航空在 8 月至 11 月期间推出为期两天的大减价，一些单程机票价格低至 44 美元(T4)。
 

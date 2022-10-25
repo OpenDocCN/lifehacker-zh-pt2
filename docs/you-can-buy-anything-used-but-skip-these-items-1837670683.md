@@ -1,6 +1,6 @@
 # 你可以买任何二手的东西，但是不要买这些东西
 
-> 原文:[https://life hacker . com/you-can-buy-anything-but-skip-these-items-1837670683](https://lifehacker.com/you-can-buy-anything-used-but-skip-these-items-1837670683)
+> 原文：<https://lifehacker.com/you-can-buy-anything-used-but-skip-these-items-1837670683>
 
 每个二手爱好者都有一个可能会严重出错的交易。对我来说，它是我大学期间校园公寓外垃圾箱旁的沙发。在一个工作日的晚上，我出去得太晚了，我和我的朋友被力量和决心所征服，以拯救这张完美的沙发免于突然死亡。
 

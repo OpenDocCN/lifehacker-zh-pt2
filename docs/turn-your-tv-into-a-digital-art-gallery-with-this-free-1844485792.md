@@ -1,6 +1,6 @@
 # 使用这款免费应用程序，将您的电视变成数字艺术画廊
 
-> 原文:[https://life hacker . com/turn-your-TV to-a-digital-art-gallery-with this-free-1844485792](https://lifehacker.com/turn-your-tv-into-a-digital-art-gallery-with-this-free-1844485792)
+> 原文：<https://lifehacker.com/turn-your-tv-into-a-digital-art-gallery-with-this-free-1844485792>
 
 壁挂式电视非常适合看电影，但当你不使用它们时，它们会占用很多空间。与其让那个大、空白的屏幕挂在那里，不如考虑用免费的 Enplug 应用程序把它变成一个数字艺术画廊。
 

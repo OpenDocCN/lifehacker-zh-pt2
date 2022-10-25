@@ -1,6 +1,6 @@
 # 如果你从亚马逊预购 Pixel 4，就可以获得一张价值 100 美元的礼品卡
 
-> 原文:[https://life hacker . com/get-a-100-gift-card-if-you-pre-order-a-pixel-4-from-am-1839102369](https://lifehacker.com/get-a-100-gift-card-if-you-pre-order-a-pixel-4-from-am-1839102369)
+> 原文：<https://lifehacker.com/get-a-100-gift-card-if-you-pre-order-a-pixel-4-from-am-1839102369>
 
 如果你看中了一款全新的谷歌 Pixel 4，你可能会考虑通过亚马逊 预订。
 

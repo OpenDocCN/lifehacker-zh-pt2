@@ -1,6 +1,6 @@
 # 我是“我喜欢做东西”的主持人鲍勃·克拉杰特，这就是我的工作方式
 
-> 原文:[https://life hacker . com/im-I-like-to-make-stuff-host-bob-clagett-and-this-is-h-1826111540](https://lifehacker.com/im-i-like-to-make-stuff-host-bob-clagett-and-this-is-h-1826111540)
+> 原文：<https://lifehacker.com/im-i-like-to-make-stuff-host-bob-clagett-and-this-is-h-1826111540>
 
 鲍勃·克拉杰特打造的东西:一把 [暗门](https://www.youtube.com/watch?v=V3NGBo2M1Ps) ，一把 [后院滑索](https://www.youtube.com/watch?v=h8JqU5Df_aw&t=2s) ，一把 [木制武士刀](https://www.youtube.com/watch?v=2nshBD9EbxE) 。他也向你展示了如何制作它们，在 [我喜欢制作东西](https://www.youtube.com/channel/UC6x7GwJxuoABSosgVXDYtTw) ，一个拥有超过 210 万订户的 YouTube 频道和 [一个有详细说明和计划的博客](https://www.iliketomakestuff.com/) 。我们和他谈论了他最喜欢的工作室工具，他在那里计划所有项目的应用程序，以及与他的家人一起工作。
 

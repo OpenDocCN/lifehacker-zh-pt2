@@ -1,6 +1,6 @@
 # 用这个在线音序器编排一些音乐
 
-> 原文:[https://life hacker . com/program-some-music-with this-online-sequencer-1830098178](https://lifehacker.com/program-some-music-with-this-online-sequencer-1830098178)
+> 原文：<https://lifehacker.com/program-some-music-with-this-online-sequencer-1830098178>
 
 80 年代，一只乌龟教孩子们如何编码，用 [这个教育编程语言标识](https://www.controlaltachieve.com/2017/12/turtle-coding.html) 。现在，基于浏览器的音乐音序器 [turtle.audio](http://turtle.audio/) 将 Logo 和 Mario Paint 结合起来，让你编写 synth 循环程序。
 

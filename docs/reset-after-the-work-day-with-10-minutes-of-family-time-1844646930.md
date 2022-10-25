@@ -1,6 +1,6 @@
 # 工作一天后，用 10 分钟的家庭时间重置
 
-> 原文:[https://life hacker . com/reset-after-the-work-day-with-10-minutes-time-1844646930](https://lifehacker.com/reset-after-the-work-day-with-10-minutes-of-family-time-1844646930)
+> 原文：<https://lifehacker.com/reset-after-the-work-day-with-10-minutes-of-family-time-1844646930>
 
 我一直是一个没有条理的家长。我记得我的第一个孩子，只有几个月大，变得极度暴躁，我不知道为什么。“嗯，是不是已经过了他的午睡时间了？”有人问我，我就像，等等:*午睡*有一个*时间*？
 

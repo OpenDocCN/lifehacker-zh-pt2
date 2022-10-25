@@ -1,6 +1,6 @@
 # 如何观看《黑镜:Bandersnatch》的每一个结局
 
-> 原文:[https://life hacker . com/how-to-watch-every-ending-of-black-mirror-banders natc-1831380467](https://lifehacker.com/how-to-watch-every-ending-of-black-mirror-bandersnatc-1831380467)
+> 原文：<https://lifehacker.com/how-to-watch-every-ending-of-black-mirror-bandersnatc-1831380467>
 
 今天早上，网飞推出了广受欢迎的“黑镜”系列的独立剧集《Bandersnatch》。
 

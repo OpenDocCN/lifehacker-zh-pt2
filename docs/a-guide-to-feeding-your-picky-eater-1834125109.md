@@ -1,6 +1,6 @@
 # a guide to feeding your picky eater 1834125109
 
-> 原文:[https://life hacker . com/a-guide-to-feeding-your-picky-eater-1834125109](https://lifehacker.com/a-guide-to-feeding-your-picky-eater-1834125109)
+> 原文：<https://lifehacker.com/a-guide-to-feeding-your-picky-eater-1834125109>
 
 你的孩子每餐都要同样的东西吗？如果她的水果碰到她的鸡块，她会拒绝吃吗？这些场景对于挑食的父母来说很熟悉，说实话，对于几乎所有蹒跚学步的父母来说也很熟悉。担心你的孩子没有获得良好的营养，或者外人对她每天吃通心粉和奶酪的饮食品头论足，这是很有压力的。
 

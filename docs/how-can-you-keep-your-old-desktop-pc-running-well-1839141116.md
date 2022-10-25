@@ -1,6 +1,6 @@
 # 如何让你的旧台式电脑保持良好运行？
 
-> 原文:[https://life hacker . com/how-can-you-keep-your-old-desktop-PC-running-well-1839141116](https://lifehacker.com/how-can-you-keep-your-old-desktop-pc-running-well-1839141116)
+> 原文：<https://lifehacker.com/how-can-you-keep-your-old-desktop-pc-running-well-1839141116>
 
 当你的台式电脑老化了，但你没有心思(或预算)去更换它，你仍然可以做很多事情来给它一个长时间的，令人满意的生活。在 Lifehacker 本周的 [技术支持专栏](https://lifehacker.com/c/tech-911) 中，我们回答了一位读者的问题，他想知道他们应该在陈旧台式机的维护清单上写些什么。
 

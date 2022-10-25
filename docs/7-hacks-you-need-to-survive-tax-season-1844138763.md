@@ -1,6 +1,6 @@
 # 你需要的 7 个技巧来度过税收季
 
-> 原文:[https://life hacker . com/7-hacks-you-need-to-survive-tax-season-1844138763](https://lifehacker.com/7-hacks-you-need-to-survive-tax-season-1844138763)
+> 原文：<https://lifehacker.com/7-hacks-you-need-to-survive-tax-season-1844138763>
 
 如果你遵循本·富兰克林的老话，你就会知道我们唯一能指望的两件事就是死亡和税收。但是，通过一点规划和组织，您可以使其中一个更容易管理。我说的是税。
 

@@ -1,6 +1,6 @@
 # if you re struggling to parent right now you re not al 1842641280
 
-> 原文:[https://life hacker . com/if-you-re-fighting-to-parent-right-now-you-re-not-al-1842641280](https://lifehacker.com/if-you-re-struggling-to-parent-right-now-you-re-not-al-1842641280)
+> 原文：<https://lifehacker.com/if-you-re-struggling-to-parent-right-now-you-re-not-al-1842641280>
 
 我本来打算写一篇关于如何帮助你的孩子燃烧掉他们身上散发出来的所有压抑的能量的帖子，现在我仍然会这样做，但是我需要暂停一下，告诉你一些重要的事情:如果你在挣扎，没关系。如果你完全完全不知所措，大部分时间都在强忍泪水，那也没关系。如果你没有，我会很惊讶的。因为我们都是。
 

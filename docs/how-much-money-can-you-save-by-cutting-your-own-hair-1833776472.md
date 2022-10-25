@@ -1,6 +1,6 @@
 # 自己剪头发能省多少钱？
 
-> 原文:[https://life hacker . com/剪自己的头发能省多少钱-1833776472](https://lifehacker.com/how-much-money-can-you-save-by-cutting-your-own-hair-1833776472)
+> 原文：<https://lifehacker.com/how-much-money-can-you-save-by-cutting-your-own-hair-1833776472>
 
 从一月份开始我就没去剪过头发。
 

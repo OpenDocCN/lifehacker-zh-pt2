@@ -1,6 +1,6 @@
 # 被嘲笑的政府工作人员可以免费获得大都会歌剧院的门票
 
-> 原文:[https://life hacker . com/furlough ed-government-workers-can-get-free-tickets-to-t-1831895377](https://lifehacker.com/furloughed-government-workers-can-get-free-tickets-to-t-1831895377)
+> 原文：<https://lifehacker.com/furloughed-government-workers-can-get-free-tickets-to-t-1831895377>
 
 随着政府继续关闭，大都会博物馆正在为休假的联邦政府雇员提供一个机会，以 [的形式在大都会博物馆](https://www.metopera.org/user-information/free-tickets-for-furloughed-federal-employees/) 免费展示。
 

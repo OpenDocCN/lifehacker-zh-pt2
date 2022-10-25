@@ -1,6 +1,6 @@
 # 强制网站在 Edge Chromium 中使用深色主题
 
-> 原文:[https://life hacker . com/force-websites-to-have-a-dark-theme-in-edge-chromium-1844420649](https://lifehacker.com/force-websites-to-have-a-dark-theme-in-edge-chromium-1844420649)
+> 原文：<https://lifehacker.com/force-websites-to-have-a-dark-theme-in-edge-chromium-1844420649>
 
 你可能有一个黑暗的系统主题；您可能已经将所有喜爱的应用程序设置为使用深色主题。尽管如此，你通常访问的网站可能不想配合，这在你浏览时可能是一种不和谐的体验——类似于某人在正午打开吸血鬼的棺材 。
 

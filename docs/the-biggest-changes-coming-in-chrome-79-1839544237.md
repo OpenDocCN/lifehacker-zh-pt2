@@ -1,6 +1,6 @@
 # Chrome 79 带来的最大变化
 
-> 原文:[https://life hacker . com/the-maximum-changes-coming-in-chrome-79-1839544237](https://lifehacker.com/the-biggest-changes-coming-in-chrome-79-1839544237)
+> 原文：<https://lifehacker.com/the-biggest-changes-coming-in-chrome-79-1839544237>
 
 谷歌 Chrome 的下一个重大更新 Chrome 79 已经正式进入测试阶段，这意味着官方公开发布将在未来几周内到来——尽管我们大多数人还没有适应 Chrome 78 最近推出的。一旦更新推出，用户可以期待一些很酷的新功能，包括在多个同步设备上共享文本和链接，新的虚拟现实支持，更新的安全性，甚至是一个新的工具，可以抑制 Chrome 对系统内存的贪婪需求。
 

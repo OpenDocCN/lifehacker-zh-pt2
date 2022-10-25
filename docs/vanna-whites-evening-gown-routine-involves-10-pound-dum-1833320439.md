@@ -1,6 +1,6 @@
 # 万纳·怀特的晚礼服包括 10 磅重的哑铃
 
-> 原文:[https://life hacker . com/vanna-whites-晚礼服-常规-涉及-10 磅-达姆-1833320439](https://lifehacker.com/vanna-whites-evening-gown-routine-involves-10-pound-dum-1833320439)
+> 原文：<https://lifehacker.com/vanna-whites-evening-gown-routine-involves-10-pound-dum-1833320439>
 
 36 年来，瓦娜·怀特一直在命运之轮上转动字母，在此过程中她穿了近 7000 件晚礼服。
 

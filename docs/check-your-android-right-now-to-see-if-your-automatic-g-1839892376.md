@@ -1,6 +1,6 @@
 # 现在就检查你的安卓系统，看看你的谷歌自动备份是不是坏了
 
-> 原文:[https://life hacker . com/check-your-Android-right-now-to-see-if-your-automatic-g-1839892376](https://lifehacker.com/check-your-android-right-now-to-see-if-your-automatic-g-1839892376)
+> 原文：<https://lifehacker.com/check-your-android-right-now-to-see-if-your-automatic-g-1839892376>
 
 对于许多 Android 用户来说，Google Drive 的自动设备备份功能显然被破坏了。到目前为止，谷歌 Pixel、三星 Galaxy/Note、摩托罗拉、一加和华为设备以及 Android 9 和 Android 10 都报告了该漏洞。这是 Android 设备的一个很大的横截面，但这个问题可能会更加普遍。
 

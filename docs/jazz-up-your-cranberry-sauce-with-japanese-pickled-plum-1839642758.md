@@ -1,6 +1,6 @@
 # 用日本酸梅调味你的蔓越莓酱
 
-> 原文:[https://life hacker . com/jazz-up-your ' s 蔓越莓酱配日本酸梅-1839642758](https://lifehacker.com/jazz-up-your-cranberry-sauce-with-japanese-pickled-plum-1839642758)
+> 原文：<https://lifehacker.com/jazz-up-your-cranberry-sauce-with-japanese-pickled-plum-1839642758>
 
 在美食写作中，“把它添加到所有食物中”这句话经常被引用，但是真的有很多成分可以立即改变和提升一道菜的品质。配料通常会带来鲜味、酸味或两者的某种结合。通常，它们会“完善”风味特征，或者消除任何令人不快或有攻击性的味道。梅宝——日本腌制的梅子——就是这些成分之一。
 

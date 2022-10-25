@@ -1,6 +1,6 @@
 # 让您的嵌套设备为强制性双因素身份验证做好准备
 
-> 原文:[https://life hacker . com/get-your-nest-devices-ready-for-mandatory-two-factor-au-1843290589](https://lifehacker.com/get-your-nest-devices-ready-for-mandatory-two-factor-au-1843290589)
+> 原文：<https://lifehacker.com/get-your-nest-devices-ready-for-mandatory-two-factor-au-1843290589>
 
 谷歌即将为所有 Nest 用户 开启 [双因素认证(2FA)。这是好事！大多数人应该不会对这种安全增强措施感到任何困难，但是有一些你应该知道的怪癖。](https://support.google.com/googlenest/thread/44445328?hl=en)
 

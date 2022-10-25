@@ -1,6 +1,6 @@
 # 所以，你买了太多鸡蛋
 
-> 原文:[https://life hacker . com/so-you-buy-too-number-eggs-1842454706](https://lifehacker.com/so-you-bought-too-many-eggs-1842454706)
+> 原文：<https://lifehacker.com/so-you-bought-too-many-eggs-1842454706>
 
 有可能，当你为了在家购物的时候，你买了太多的某样东西。我用鸡蛋做了这个。这一切发生得太快了:我在当地的一家餐馆供应店，买了正常数量(四磅)的黄油，突然被精神(还有 T1 牛顿 T2 T3)打动，把五打鸡蛋加到我的购物车里。
 

@@ -1,6 +1,6 @@
 # 如何为学龄前儿童设置 YouTube Kids 的新内容过滤器
 
-> 原文:[https://life hacker . com/how-to-set-YouTube-kids-new-content-filter-for-preschoo-1837655413](https://lifehacker.com/how-to-set-youtube-kids-new-content-filter-for-preschoo-1837655413)
+> 原文：<https://lifehacker.com/how-to-set-youtube-kids-new-content-filter-for-preschoo-1837655413>
 
 YouTube Kids 再次打破其内容过滤器，作为持续努力的一部分，允许父母更恰当地管理他们的小孩在应用程序上观看的内容。
 

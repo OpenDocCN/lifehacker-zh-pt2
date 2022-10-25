@@ -1,6 +1,6 @@
 # 用这个应用程序在 750 个快餐菜单上找到最健康的食物
 
-> 原文:[https://life hacker . com/find-the-healthy-items-on-750-fast-food-menus-with-t-1829732884](https://lifehacker.com/find-the-healthiest-items-on-750-fast-food-menus-with-t-1829732884)
+> 原文：<https://lifehacker.com/find-the-healthiest-items-on-750-fast-food-menus-with-t-1829732884>
 
 总的来说，快餐并不总是最健康的食物，但有时公路旅行或繁忙的夜晚会导致一次免下车旅行。
 

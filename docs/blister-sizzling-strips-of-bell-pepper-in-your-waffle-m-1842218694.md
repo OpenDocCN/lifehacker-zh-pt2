@@ -1,6 +1,6 @@
 # 在你的华夫饼机中起泡咝咝作响的柿子椒条
 
-> 原文:[https://life hacker . com/blister-sizzling-strips-of-bell-pepper-in-your-waffle-m-1842218694](https://lifehacker.com/blister-sizzling-strips-of-bell-pepper-in-your-waffle-m-1842218694)
+> 原文：<https://lifehacker.com/blister-sizzling-strips-of-bell-pepper-in-your-waffle-m-1842218694>
 
 我的华夫饼干制造机是一个制造混乱的好东西的工具，但是我很少用它来制造技术上对我有益的东西。那不是我的审美观。然而，这里有一些罕见的时刻，在这些时刻，我想吃的东西恰好给我提供了某种营养。
 

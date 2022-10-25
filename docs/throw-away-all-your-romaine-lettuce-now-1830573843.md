@@ -1,6 +1,6 @@
 # 现在扔掉你所有的生菜
 
-> 原文:[https://life hacker . com/throw-away-all-your-romaine-莴苣-now-1830573843](https://lifehacker.com/throw-away-all-your-romaine-lettuce-now-1830573843)
+> 原文：<https://lifehacker.com/throw-away-all-your-romaine-lettuce-now-1830573843>
 
 正值感恩节，疾病控制和预防中心建议每个人扔掉他们所有的生菜 ，因为 ***又一次*** *大肠杆菌*爆发。
 

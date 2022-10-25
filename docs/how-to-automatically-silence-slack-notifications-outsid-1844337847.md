@@ -1,6 +1,6 @@
 # 如何在工作时间之外自动取消时差通知
 
-> 原文:[https://life hacker . com/how-to-automatically-silence-slack-notifications-outsidd-1844337847](https://lifehacker.com/how-to-automatically-silence-slack-notifications-outsid-1844337847)
+> 原文：<https://lifehacker.com/how-to-automatically-silence-slack-notifications-outsid-1844337847>
 
 我下班后的时间很宝贵，没有什么比听到斯莱克的 [再熟悉不过的敲门声](https://www.reddit.com/r/Slack/comments/diz6ww/what_is_the_notification_noise/) 打断我的午睡更让我觉得烦的了。(我还没六十岁；我只是为了工作起得特别早。)
 

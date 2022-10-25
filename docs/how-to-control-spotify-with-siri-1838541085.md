@@ -1,6 +1,6 @@
 # 如何用 Siri 控制 Spotify
 
-> 原文:[https://life hacker . com/how-to-control-Spotify-with-Siri-1838541085](https://lifehacker.com/how-to-control-spotify-with-siri-1838541085)
+> 原文：<https://lifehacker.com/how-to-control-spotify-with-siri-1838541085>
 
 Siri 不仅可以用来控制苹果的设备、应用和服务。Spotify iOS 应用程序就是这样的第三方服务之一，它最近刚刚开始为一些用户测试 Siri 支持。
 

@@ -1,6 +1,6 @@
 # 今天就在阿根-戴斯获得一个免费的蛋卷冰淇淋
 
-> 原文:[https://life hacker . com/get-a-free-a-ice-cream-cone-at-haagen-Dazs-today-1834726847](https://lifehacker.com/get-a-free-ice-cream-cone-at-haagen-dazs-today-1834726847)
+> 原文：<https://lifehacker.com/get-a-free-ice-cream-cone-at-haagen-dazs-today-1834726847>
 
 温暖的夏日即将来临，阿根-达斯正在用最好的方式庆祝今天:免费冰淇淋。
 

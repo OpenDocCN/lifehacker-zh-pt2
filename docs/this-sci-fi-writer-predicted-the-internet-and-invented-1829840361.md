@@ -1,6 +1,6 @@
 # 这位科幻作家预言了互联网并发明了水床
 
-> 原文:[https://life hacker . com/this-sci-fi-writer-predicted-the-internet-and-invented-1829840361](https://lifehacker.com/this-sci-fi-writer-predicted-the-internet-and-invented-1829840361)
+> 原文：<https://lifehacker.com/this-sci-fi-writer-predicted-the-internet-and-invented-1829840361>
 
 在我们最新的视频系列*历史上的生活黑客*中，我们审视了过去名人的惊人成就。首先是科幻作家罗伯特·A·海因莱因。
 

@@ -1,6 +1,6 @@
 # 如何在你的 Instagram 帖子上发表评论
 
-> 原文:[https://life hacker . com/how-to-pin-comments-on-your-insta gram-posts-1844308092](https://lifehacker.com/how-to-pin-comments-on-your-instagram-posts-1844308092)
+> 原文：<https://lifehacker.com/how-to-pin-comments-on-your-instagram-posts-1844308092>
 
 评论线程是互联网 的 [Mos Eisleys，社交媒体](https://www.youtube.com/watch?v=Xcb4_QwP6fE) [上的评论部分是最糟糕的](https://lifehacker.com/how-to-report-racist-or-abusive-posts-on-social-media-1843836814) ，尤其是来自热门账户的帖子。为了帮助创造一个更积极的氛围，Instagram 现在允许你在帖子顶部发布最多三条评论——请选择一些好的评论。
 

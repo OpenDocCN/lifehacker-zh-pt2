@@ -1,6 +1,6 @@
 # 你应该让你的孩子不做作业吗？
 
-> 原文:[https://life hacker . com/should-you-opt-your-child-out-of-job-1839781351](https://lifehacker.com/should-you-opt-your-child-out-of-homework-1839781351)
+> 原文：<https://lifehacker.com/should-you-opt-your-child-out-of-homework-1839781351>
 
 我们的孩子有很长的一天。纯粹出于时间安排的需要，他们通常在我们上班前就在学校了 [当我们赶回家接他们的时候他们还在学校](https://offspring.lifehacker.com/parents-how-do-you-handle-the-gap-between-the-school-d-1839691991) 。然后他们有女童子军或篮球练习或钢琴课。他们必须吃饭，他们必须在睡觉前保持至少半干净，他们必须真正睡觉，而且——哦对了——还有家庭作业。
 

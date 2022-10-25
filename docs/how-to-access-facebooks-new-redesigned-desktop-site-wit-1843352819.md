@@ -1,6 +1,6 @@
 # 如何访问脸书的新的重新设计的桌面网站与黑暗模式现在
 
-> 原文:[https://life hacker . com/how-to-access-Facebook-new-designed-desktop-site-wit-1843352819](https://lifehacker.com/how-to-access-facebooks-new-redesigned-desktop-site-wit-1843352819)
+> 原文：<https://lifehacker.com/how-to-access-facebooks-new-redesigned-desktop-site-wit-1843352819>
 
 今年 3 月，脸书开始推出新的重新设计的桌面网站，一旦你可以使用，你可以选择加入。周五，公司 [宣布推出完成](https://about.fb.com/news/2020/05/the-new-facebook-com/) ，新网站面向全球所有人开放。
 

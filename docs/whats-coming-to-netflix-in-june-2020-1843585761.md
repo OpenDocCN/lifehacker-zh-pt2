@@ -1,6 +1,6 @@
 # 2020 年 6 月，网飞将迎来什么
 
-> 原文:[https://life hacker . com/whats-coming-to-2020-6-1843585761](https://lifehacker.com/whats-coming-to-netflix-in-june-2020-1843585761)
+> 原文：<https://lifehacker.com/whats-coming-to-netflix-in-june-2020-1843585761>
 
 六月即将来临。为了帮助大家做好准备，网飞刚刚发布了下个月该平台将要发布和将要发布的内容列表。
 

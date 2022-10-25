@@ -1,6 +1,6 @@
 # 获得 10，000 美元，让你的家人搬到意大利
 
-> 原文:[https://life hacker . com/get-payd-10-000-to-move-your-family-to-Italy-1832193819](https://lifehacker.com/get-paid-10-000-to-move-your-family-to-italy-1832193819)
+> 原文：<https://lifehacker.com/get-paid-10-000-to-move-your-family-to-italy-1832193819>
 
 当你可以在意大利无限期地生活下去(并因此获得几千美元的报酬)时，为什么只在意大利 呆上三个月呢？
 

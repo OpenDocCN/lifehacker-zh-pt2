@@ -1,6 +1,6 @@
 # 如何在工作中寻求帮助
 
-> 原文:[https://life hacker . com/how-to-ask-help-in-work-1830774198](https://lifehacker.com/how-to-ask-for-help-at-work-1830774198)
+> 原文：<https://lifehacker.com/how-to-ask-for-help-at-work-1830774198>
 
 承认你需要帮助可能真的很难，尤其是当你因为你的能力而得到报酬的时候。但现实是，我们都有需要帮助的时候，学会在工作中寻求帮助会让每个人的情况变得更好。
 

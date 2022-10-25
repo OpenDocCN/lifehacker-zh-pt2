@@ -1,6 +1,6 @@
 # 如果我使用双因素身份验证，但丢失了手机，会发生什么情况？
 
-> 原文:[https://life hacker . com/what-do-I-do-if-I-use-two-factor-authentic ation-and-los-1668727532](https://lifehacker.com/what-do-i-do-if-i-use-two-factor-authentication-and-los-1668727532)
+> 原文：<https://lifehacker.com/what-do-i-do-if-i-use-two-factor-authentication-and-los-1668727532>
 
 [双因素认证](https://lifehacker.com/no-one-knows-about-two-factor-authentication-and-privat-1838913065) 是一种 [必要的安全措施](https://lifehacker.com/two-factor-authentication-isnt-enough-to-keep-your-acco-1827867557) 它使用你的手机来帮助防止对你账户的未授权访问。如果你丢了手机，进入你的账户会变得更加困难，但这也是问题的关键。幸运的是，如果你找不到一个设备来验证你是不是真的你，你也不是没有选择。
 

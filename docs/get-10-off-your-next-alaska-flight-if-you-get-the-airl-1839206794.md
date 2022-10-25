@@ -1,6 +1,6 @@
 # 如果你收到航空公司的时事通讯，下次飞往阿拉斯加时可以享受 10%的折扣
 
-> 原文:[https://life hacker . com/get-10-off-your ' s next-Alaska-flight-if-you-get-the-air-1839206794](https://lifehacker.com/get-10-off-your-next-alaska-flight-if-you-get-the-airl-1839206794)
+> 原文：<https://lifehacker.com/get-10-off-your-next-alaska-flight-if-you-get-the-airl-1839206794>
 
 如果你订阅了阿拉斯加航空公司的电子邮件时事通讯，你可能想去看看最近的几期。
 

@@ -1,6 +1,6 @@
 # 今天就从白色城堡获得免费滑梯
 
-> 原文:[https://life hacker . com/get-a-free-slider-from-white-castle-today-1834788663](https://lifehacker.com/get-a-free-slider-from-white-castle-today-1834788663)
+> 原文：<https://lifehacker.com/get-a-free-slider-from-white-castle-today-1834788663>
 
 如果你错过了昨天阿根-达斯 的 [免费蛋卷冰淇淋，现在是你救赎自己的机会——用](https://lifehacker.com/get-a-free-ice-cream-cone-at-haagen-dazs-today-1834726847) [白色城堡](https://www.whitecastle.com/locations) 的免费滑盖和可乐。
 

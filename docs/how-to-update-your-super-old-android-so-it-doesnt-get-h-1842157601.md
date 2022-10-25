@@ -1,6 +1,6 @@
 # 如何更新你的超级旧的安卓系统，使它不被黑客攻击
 
-> 原文:[https://life hacker . com/how-to-update-your-super-old-Android-so-it-sot-get-h-1842157601](https://lifehacker.com/how-to-update-your-super-old-android-so-it-doesnt-get-h-1842157601)
+> 原文：<https://lifehacker.com/how-to-update-your-super-old-android-so-it-doesnt-get-h-1842157601>
 
 如果你有一个不再接收任何更新的旧设备，那么很可能有人会在某个地方发现并利用其中的一个漏洞，而这个漏洞没有人感兴趣或能够修复。这就是为什么我们宣扬你应该总是用最新的固件更新你的 wifi 路由器，这也适用于你的老式 Android 手机——尤其是有消息称超过 10 亿台旧 Android 设备不再接收安全更新。
 

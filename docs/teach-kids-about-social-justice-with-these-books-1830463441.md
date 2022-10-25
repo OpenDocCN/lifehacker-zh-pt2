@@ -1,6 +1,6 @@
 # 用这些书教孩子们社会公正
 
-> 原文:[https://life hacker . com/teach-kids-about-social-justice-with these-books-1830463441](https://lifehacker.com/teach-kids-about-social-justice-with-these-books-1830463441)
+> 原文：<https://lifehacker.com/teach-kids-about-social-justice-with-these-books-1830463441>
 
 作为父母，我们想教给孩子的东西数不胜数。我们希望他们成长为每天刷两次牙和用牙线剔牙的人。我们希望他们自己打扫卫生，在学校尽最大努力(同时也不要对自己太苛刻)。我们希望他们身边都是品格高尚的人，当卫生纸用完时，他们会更换纸卷。
 

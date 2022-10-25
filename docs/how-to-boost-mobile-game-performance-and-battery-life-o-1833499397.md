@@ -1,6 +1,6 @@
 # 如何提高 Android 手机游戏性能和电池寿命
 
-> 原文:[https://life hacker . com/how-to-boost-mobile-game-performance-and-battery-life-o-1833499397](https://lifehacker.com/how-to-boost-mobile-game-performance-and-battery-life-o-1833499397)
+> 原文：<https://lifehacker.com/how-to-boost-mobile-game-performance-and-battery-life-o-1833499397>
 
 随着手机游戏变得越来越复杂，图形变得越来越好，智能手机需要更高的硬件规格才能让这些游戏看起来更棒。无论你的智能手机是全新的还是有点老化，你都可以获得更高的帧速率。调整手机或平板电脑的显示设置，你将能够在游戏和图形密集型应用程序中获得更好的性能，甚至可能节省一些电池寿命。
 

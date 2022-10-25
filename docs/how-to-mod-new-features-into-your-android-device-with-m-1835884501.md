@@ -1,6 +1,6 @@
 # 如何用 Magisk 和 Xposed 框架定制你的 Android 设备
 
-> 原文:[https://life hacker . com/how-to-mod-new-features-into-your-Android-device-with-m-1835884501](https://lifehacker.com/how-to-mod-new-features-into-your-android-device-with-m-1835884501)
+> 原文：<https://lifehacker.com/how-to-mod-new-features-into-your-android-device-with-m-1835884501>
 
 在 Android 与 iOS 的辩论中，Android 通常因其开放性和灵活性而获得主要优势——Android 平台允许用户做很多 iOS 不能做的事情，甚至最基本的开箱即用的 Android 设备也可以根据你的喜好进行调整和定制。然而，发烧友想要的不仅仅是调整系统设置，这也是 Xposed Framework 和 Magisk 等工具发挥作用的地方。
 

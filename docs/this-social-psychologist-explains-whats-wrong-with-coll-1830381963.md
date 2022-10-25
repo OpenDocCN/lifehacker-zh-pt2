@@ -1,6 +1,6 @@
 # 这位社会心理学家解释了当今大学校园的问题
 
-> 原文:[https://life hacker . com/this-social-psychological-explains-what-misd-with-coll-1830381963](https://lifehacker.com/this-social-psychologist-explains-whats-wrong-with-coll-1830381963)
+> 原文：<https://lifehacker.com/this-social-psychologist-explains-whats-wrong-with-coll-1830381963>
 
 每个人都放下你的参与奖杯，因为作家乔纳森·海特有一些消息要告诉你:我们一生都在溺爱 Z 世代。
 

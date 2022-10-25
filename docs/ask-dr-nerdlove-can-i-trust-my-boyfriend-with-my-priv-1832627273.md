@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:我能把我的私人照片托付给我的男朋友吗？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-can-trust-my-boy-my-priv-1832627273](https://kotaku.com/ask-dr-nerdlove-can-i-trust-my-boyfriend-with-my-priv-1832627273)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-can-i-trust-my-boyfriend-with-my-priv-1832627273>
 
 你好，推特网上的所有面孔罪犯，欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是唯一一个帮助你成为心中顶级传奇的约会建议专栏。
 

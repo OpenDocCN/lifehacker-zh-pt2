@@ -1,6 +1,6 @@
 # 我应该修理还是更换我的旧车？
 
-> 原文:[https://life hacker . com/should-I-repair-or-just-replace-my-old-car-484335393](https://lifehacker.com/should-i-repair-or-just-replace-my-old-car-484335393)
+> 原文：<https://lifehacker.com/should-i-repair-or-just-replace-my-old-car-484335393>
 
 生活中最简单的乐趣之一就是不必每月支付汽车贷款。你的信任之旅得到了回报，你只需支付汽油、保险和维修费用。
 

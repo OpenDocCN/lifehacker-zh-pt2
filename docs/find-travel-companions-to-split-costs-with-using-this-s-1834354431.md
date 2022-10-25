@@ -1,6 +1,6 @@
 # 使用这项服务寻找旅伴来分摊费用
 
-> 原文:[https://life hacker . com/find-travel-companies-to-split-cost-with-using-this-s-1834354431](https://lifehacker.com/find-travel-companions-to-split-costs-with-using-this-s-1834354431)
+> 原文：<https://lifehacker.com/find-travel-companions-to-split-costs-with-using-this-s-1834354431>
 
 我非常喜欢独自旅行。虽然和朋友一起旅行有一些好处，但是和你一起旅行的朋友越多，关于你应该如何度过时间的观点就越多。所有这些观点都意味着你可能最终会花一些，如果不是很多的假期去做你不想做的事情。是一个两全其美的网站。
 

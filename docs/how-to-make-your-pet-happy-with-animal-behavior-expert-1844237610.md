@@ -1,6 +1,6 @@
 # 如何让你的宠物开心，动物行为专家扎奇·托德
 
-> 原文:[https://life hacker . com/how-to-make-your-pet-happy-with-animal-behavior-expert-1844237610](https://lifehacker.com/how-to-make-your-pet-happy-with-animal-behavior-expert-1844237610)
+> 原文：<https://lifehacker.com/how-to-make-your-pet-happy-with-animal-behavior-expert-1844237610>
 
 你有没有想过为什么你的猫只养了三只宠物就咬你？如何让你的狗冷静下来并停止吠叫？本周，在动物行为专家扎奇·托德的帮助下，我们将揭开我们四条腿朋友的神秘面纱。在这一集里，你将会听到为什么我们的动物会有这样的行为背后的潜在心理，以及扎奇让你的宠物变得规矩的人性化技巧。
 

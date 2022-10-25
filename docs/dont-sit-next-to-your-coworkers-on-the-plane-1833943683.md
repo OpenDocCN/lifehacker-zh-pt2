@@ -1,6 +1,6 @@
 # 在飞机上不要坐在同事旁边
 
-> 原文:[https://life hacker . com/don-t-在飞机上坐在同事旁边-1833943683](https://lifehacker.com/dont-sit-next-to-your-coworkers-on-the-plane-1833943683)
+> 原文：<https://lifehacker.com/dont-sit-next-to-your-coworkers-on-the-plane-1833943683>
 
 有一次，当我和一个摄制组从东京回来时，柜台人员告诉我唯一的空座位是在我的一个同事旁边。我刚刚和她度过了 8 个不眠之夜。
 

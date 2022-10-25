@@ -1,6 +1,6 @@
 # 如何支持失去孩子的朋友
 
-> 原文:[https://life hacker . com/how-to-support-a-friend-who-lost-a-child-1838848893](https://lifehacker.com/how-to-support-a-friend-who-has-lost-a-child-1838848893)
+> 原文：<https://lifehacker.com/how-to-support-a-friend-who-has-lost-a-child-1838848893>
 
 如果你身边的人曾经失去过一个孩子，你就会知道这种损失是多么的毁灭性——对于那些爱他们却无法减轻他们痛苦的人来说，这是多么的无助。虽然没有“修复”这种深度的损失，但当他们悲伤时，朋友和家人可以做些事情来支持他们。
 

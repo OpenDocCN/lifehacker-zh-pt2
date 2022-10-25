@@ -1,6 +1,6 @@
 # 这些设备将于 12 月 1 日失去网飞支持
 
-> 原文:[https://life hacker . com/these-devices-will-lose-网飞-support-on-December-1-1839667351](https://lifehacker.com/these-devices-will-lose-netflix-support-on-december-1-1839667351)
+> 原文：<https://lifehacker.com/these-devices-will-lose-netflix-support-on-december-1-1839667351>
 
 从 2019 年 12 月 1 日开始，一堆旧的三星和 Roku 设备将不再能够访问网飞。 [网飞引用](https://help.netflix.com/en/node/112424) “技术限制”作为突然失去支持的原因，但尚不清楚这些技术限制首先是什么——尽管自动播放剧集的能力(或缺乏这种能力)似乎至少是问题的一部分。
 

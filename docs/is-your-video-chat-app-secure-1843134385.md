@@ -1,6 +1,6 @@
 # 你的视频聊天应用安全吗？
 
-> 原文:[https://life hacker . com/is-your-video-chat-app-secure-1843134385](https://lifehacker.com/is-your-video-chat-app-secure-1843134385)
+> 原文：<https://lifehacker.com/is-your-video-chat-app-secure-1843134385>
 
 我承认，我对所有隔离的事情都感到很疲惫，我放松了警惕。我发现自己不太关心我用来与朋友保持联系的服务——这并不理想，因为一些视频聊天应用程序比其他应用程序更重视安全和隐私。
 

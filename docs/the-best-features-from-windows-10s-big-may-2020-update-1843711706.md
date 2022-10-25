@@ -1,6 +1,6 @@
 # Windows 10 2020 年 5 月大更新的最佳功能
 
-> 原文:[https://life hacker . com/the-best-features-from-windows-10s-big-may-2020-update-1843711706](https://lifehacker.com/the-best-features-from-windows-10s-big-may-2020-update-1843711706)
+> 原文：<https://lifehacker.com/the-best-features-from-windows-10s-big-may-2020-update-1843711706>
 
 微软将于 2020 年 5 月对 Windows 10 进行重大更新，其中包含一系列新功能和变化。这不是那些微妙的“安全更新”中的一种，它修补了 Windows 中的一些错误*，但并没有改变你的用户界面或你与操作系统的交互方式。这是值得关注的，所以我现在突出了新的最好的部分。*
 

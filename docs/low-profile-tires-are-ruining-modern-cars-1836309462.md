@@ -1,6 +1,6 @@
 # 低轮廓轮胎正在毁掉现代汽车
 
-> 原文:[https://jalopnik . com/低调-轮胎-正在毁灭-现代-汽车-1836309462](https://jalopnik.com/low-profile-tires-are-ruining-modern-cars-1836309462)
+> 原文：<https://jalopnik.com/low-profile-tires-are-ruining-modern-cars-1836309462>
 
 去年夏天我在法国拥有的大众 Up GTI[是一个梦想](https://jalopnik.com/the-2018-volkswagen-up-gti-is-as-fun-as-tiny-cars-get-1826079451) 。它也有 17 英寸的车轮和低轮廓轮胎。在离海岸不远的地方，我碾过了路上一块看似无害的小石头。大约在接下来的 10 秒钟内，我就知道 [出事了](https://jalopnik.com/erik-shilling-is-having-a-very-nice-time-in-france-1825829425) 。
 

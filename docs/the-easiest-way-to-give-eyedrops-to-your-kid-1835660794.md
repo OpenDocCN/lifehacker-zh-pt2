@@ -1,6 +1,6 @@
 # 给孩子滴眼药水最简单的方法
 
-> 原文:[https://life hacker . com/the-easy-way to-give-drops to-your-kid-1835660794](https://lifehacker.com/the-easiest-way-to-give-eyedrops-to-your-kid-1835660794)
+> 原文：<https://lifehacker.com/the-easiest-way-to-give-eyedrops-to-your-kid-1835660794>
 
 我是一名专业人士，我曾多次让孩子们接受不愉快的手术(吸鼻涕、修剪指甲)。但是当医生告诉我需要给我蹒跚学步的孩子滴眼药水时，我认为这是我作为父母的能力极限。不是这样的:有一种简单的方法可以做到。
 

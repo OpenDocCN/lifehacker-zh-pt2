@@ -1,6 +1,6 @@
 # 在购买打折商品之前，想象一下如果你 100%储蓄
 
-> 原文:[https://life hacker . com/before-buying-something-on-sale-imagine-if-you-saved-1-1841955964](https://lifehacker.com/before-buying-something-on-sale-imagine-if-you-saved-1-1841955964)
+> 原文：<https://lifehacker.com/before-buying-something-on-sale-imagine-if-you-saved-1-1841955964>
 
 我去赴约后正走在回家的路上，这时橱窗里的牌子吸引了我:所有葡萄酒打六折。美食杂货店正在进行停业大甩卖，这意味着所有我通常认为对我的日常生活来说太贵的东西突然变得触手可及。包括酒。
 

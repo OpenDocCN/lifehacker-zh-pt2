@@ -1,6 +1,6 @@
 # 学会如何在蹲坑中失败
 
-> 原文:[https://life hacker . com/learn-how-to-fail-at-squadding-1837932229](https://lifehacker.com/learn-how-to-fail-at-squatting-1837932229)
+> 原文：<https://lifehacker.com/learn-how-to-fail-at-squatting-1837932229>
 
 在最近的一个 Reddit 帖子 中，几个用户分享了他们如何通过蹲坐来应对死亡恐惧的建议。据 [报道，一位 Redditor](https://old.reddit.com/r/Fitness/comments/czzqt1/fear_of_squatting/ez5g87i/)——他说他们在蹲着的时候折断了一根肋骨——使用观察员可以有所帮助。但是最简单的方法是*练习*失败，并且在深蹲的架子上这样做，正如其他用户在评论中回应的那样。
 

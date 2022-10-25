@@ -1,6 +1,6 @@
 # 你怎么知道鸡肉是否变质了？
 
-> 原文:[https://the take out . com/how-can-you-tell-if-chicken ' s have-bad-1833209455](https://thetakeout.com/how-can-you-tell-if-chicken-has-gone-bad-1833209455)
+> 原文：<https://thetakeout.com/how-can-you-tell-if-chicken-has-gone-bad-1833209455>
 
 我希望你坐下来是因为这个消息的震惊:我丈夫和我又因为食物发生了争吵。他正要做 [panang 咖喱](https://thetakeout.com/our-weeknight-secret-weapon-a-6-ingredient-panang-curr-1822315779) ，已经把鸡胸肉掏出来了。我的保质期和我们计划吃它的日期是同一天，所以很明显，我生气了。我闻了闻鸡肉，觉得味道怪怪的。他认为它闻起来不错。我说我不吃，我宁愿我们的孩子也不吃。我们最后在一家餐馆点了咖喱。
 

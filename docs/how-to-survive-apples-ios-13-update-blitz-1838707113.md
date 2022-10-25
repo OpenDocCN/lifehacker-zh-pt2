@@ -1,6 +1,6 @@
 # 如何挺过苹果 iOS 13 更新闪电战
 
-> 原文:[https://life hacker . com/how-to-survive-apple-IOs-13-update-blitz-1838707113](https://lifehacker.com/how-to-survive-apples-ios-13-update-blitz-1838707113)
+> 原文：<https://lifehacker.com/how-to-survive-apples-ios-13-update-blitz-1838707113>
 
 我是那些必须总是运行我正在使用的任何东西的最新版本的人之一。应用程序？游戏？硬件？如果一个设备或软件没有自动更新程序(即使有)，我也会不断检查以确保它有最新的补丁、功能和安全补丁。是一种执念。
 

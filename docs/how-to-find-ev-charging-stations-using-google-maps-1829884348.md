@@ -1,6 +1,6 @@
 # 如何使用谷歌地图找到电动汽车充电站
 
-> 原文:[https://life hacker . com/how-to-find-ev-charging-stations-using-Google-maps-1829884348](https://lifehacker.com/how-to-find-ev-charging-stations-using-google-maps-1829884348)
+> 原文：<https://lifehacker.com/how-to-find-ev-charging-stations-using-google-maps-1829884348>
 
 如果你有一辆电动汽车，你公路旅行的最大挑战之一就是找到一个充电站。本周，谷歌 [将电动汽车充电站信息添加到谷歌地图中，让这个过程变得简单了一点](https://www.blog.google/products/maps/get-charged-google-maps/?utm_source=feedburner&utm_medium=feed&utm_campaign=Feed%3A+blogspot%2FMKuf+%28The+Keyword+%) 。
 

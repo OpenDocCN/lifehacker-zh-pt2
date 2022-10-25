@@ -1,6 +1,6 @@
 # 如何找到一份能让你享受 1000 美元虚拟假期的工作
 
-> 原文:[https://life hacker . com/how-to-land a-job-that-pay-you-1000 to-take-virtual-1843997232](https://lifehacker.com/how-to-land-a-job-that-pays-you-1-000-to-take-virtual-1843997232)
+> 原文：<https://lifehacker.com/how-to-land-a-job-that-pays-you-1-000-to-take-virtual-1843997232>
 
 几个月前，你可能不会再考虑 [“虚拟旅行”的概念毕竟，如果你有时间、金钱和旅行的意愿，你基本上可以...去你想去的地方。多亏了新冠肺炎环球疫情，这一切都改变了。就目前而言，大多数旅行——尤其是国际旅行——将不得不等待。或者虚拟地完成。](https://lifehacker.com/tag/virtual-travel) 
 

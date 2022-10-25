@@ -1,6 +1,6 @@
 # 用干冰烹饪是一种气体
 
-> 原文:[https://the take out . com/cooking-meat-with-dry-ice-cryo sear-anti gridle-1839327678](https://thetakeout.com/cooking-meat-with-dry-ice-cryosear-antigriddle-1839327678)
+> 原文：<https://thetakeout.com/cooking-meat-with-dry-ice-cryosear-antigriddle-1839327678>
 
 对我们大多数人来说，干冰只是我们在万圣节派对上看到的一大块奇怪的冒烟的冷冻物质，用来制作大锅或鸡尾酒泡沫。但是干冰不仅仅是一件怪异的秋日装饰品。它实际上可以用作厨房的工具，不仅仅是帮助冷冻食物，而是准备独特而精致的质感菜肴。你不必是一个现代主义厨师来使用它。
 

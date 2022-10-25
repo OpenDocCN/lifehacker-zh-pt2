@@ -1,6 +1,6 @@
 # 你、你妈妈和你的狗应该使用 CBD 吗？
 
-> 原文:[https://gizmodo . com/should-you-your-mom and-your-dog-be-use-CBD-1834092614](https://gizmodo.com/should-you-your-mom-and-your-dog-be-using-cbd-1834092614)
+> 原文：<https://gizmodo.com/should-you-your-mom-and-your-dog-be-using-cbd-1834092614>
 
 它们无处不在——在你的超市里，在连锁药店里，甚至在你当地的宠物店里。大麻二酚 ( CBD) ，大麻的主要成分*不会*让你兴奋的最新非处方健康时尚，催生了看似无穷无尽的新产品和可疑的健康声明。
 

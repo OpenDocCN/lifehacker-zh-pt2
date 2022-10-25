@@ -1,6 +1,6 @@
 # 密码限制如何给你一种虚假的安全感
 
-> 原文:[https://life hacker . com/how-password-constraints-give-you-a-false-sense-secu-1830564360](https://lifehacker.com/how-password-constraints-give-you-a-false-sense-of-secu-1830564360)
+> 原文：<https://lifehacker.com/how-password-constraints-give-you-a-false-sense-of-secu-1830564360>
 
 下一次你被迫设置密码时——尤其是如果一个网站要求你使用大小写字母、数字或符号的疯狂组合——不要认为这些混淆视听的尝试自动意味着你的密码是不可思议的和安全的。
 

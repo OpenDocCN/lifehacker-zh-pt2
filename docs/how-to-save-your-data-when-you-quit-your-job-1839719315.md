@@ -1,6 +1,6 @@
 # 辞职时如何保存数据
 
-> 原文:[https://life hacker . com/how-to-save-your-data-when you-quit-you-job-1839719315](https://lifehacker.com/how-to-save-your-data-when-you-quit-your-job-1839719315)
+> 原文：<https://lifehacker.com/how-to-save-your-data-when-you-quit-your-job-1839719315>
 
 辞掉工作感觉很棒，但是在你责备那个总是让你讨厌的同事，踢踢你的脚，两个星期什么都不做，骑着马走向夕阳之前，你应该花点时间想想你想带走什么。不，可能不是你那令人敬畏的宽屏显示器，而是哪些文件和数据——如果有的话——是法律允许你带出门的。
 

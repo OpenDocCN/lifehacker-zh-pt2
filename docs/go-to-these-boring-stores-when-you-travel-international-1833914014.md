@@ -1,6 +1,6 @@
 # 当你出国旅行时，去这些“无聊”的商店
 
-> 原文:[https://life hacker . com/go-to-these-boring-stores-when-you-travel-international-1833914014](https://lifehacker.com/go-to-these-boring-stores-when-you-travel-international-1833914014)
+> 原文：<https://lifehacker.com/go-to-these-boring-stores-when-you-travel-international-1833914014>
 
 遥远目的地的吸引力在于做一些在家里不能做或不能去的事情和游览一些地方，所以逛杂货店、7-11 便利店和药店似乎是浪费你宝贵的有限时间。我向你们保证，旅伴们，不是的。
 

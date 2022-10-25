@@ -1,6 +1,6 @@
 # 我开私人飞机，我需要一辆 30，000 美元的豪车！我应该买什么？
 
-> 原文:[https://jalopnik . com/I-fly-private-jets-and-I-need-a car-the-blend-in-1837895457](https://jalopnik.com/i-fly-private-jets-and-i-need-a-car-that-blends-in-with-1837895457)
+> 原文：<https://jalopnik.com/i-fly-private-jets-and-i-need-a-car-that-blends-in-with-1837895457>
 
 布拉德为各种各样的客户驾驶私人飞机，但尽管他的工作性质浮华，他有一辆相当普通的车。他正在寻找一些可以更好地“融入”机场出现的一些更花哨的游乐设施的东西。然而，他的预算合理，约为 3 万美元。他应该买什么车？
 

@@ -1,6 +1,6 @@
 # 每块海绵都是坏的
 
-> 原文:[https://lifehacker.com/every-sponge-is-bad-1832899231](https://lifehacker.com/every-sponge-is-bad-1832899231)
+> 原文：<https://lifehacker.com/every-sponge-is-bad-1832899231>
 
 没有海绵正义；没有，一个也没有。
 

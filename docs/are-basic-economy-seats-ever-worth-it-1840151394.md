@@ -1,6 +1,6 @@
 # “基本经济舱”座位值得吗？
 
-> 原文:[https://life hacker . com/are-basic-economy-seats-ever-worth-it-1840151394](https://lifehacker.com/are-basic-economy-seats-ever-worth-it-1840151394)
+> 原文：<https://lifehacker.com/are-basic-economy-seats-ever-worth-it-1840151394>
 
 回到 11 月， [捷蓝航空公司宣布了](https://thepointsguy.com/news/jetblue-rolls-out-blue-basic-fares-as-it-battles-budget-rivals/) 最新的机票等级，为那些希望在预订航班时节省一点现金的人提供:基本蓝——或者换句话说，基本经济舱座位。对于那些不知道的人来说，基本的经济舱座位是飞机上最让人流鼻血的部分。作为支付比普通经济舱座位更少的*费用的交换，你得到的航空公司通常提供的特权也更少。*
 

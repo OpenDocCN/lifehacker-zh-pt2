@@ -1,6 +1,6 @@
 # 如何防止你的联网设备监视你
 
-> 原文:[https://life hacker . com/how-to-keep-your-internet-connected-device-from-spying-1831230689](https://lifehacker.com/how-to-keep-your-internet-connected-device-from-spying-1831230689)
+> 原文：<https://lifehacker.com/how-to-keep-your-internet-connected-device-from-spying-1831230689>
 
 一个典型的极客假期听起来可能是这样的:你在 12 月 25 日早上醒来，跑向你的圣诞树，疯狂地打开所有的东西，把所有期待已久的小工具插上，把它们连接到你的 wifi，快速通过安装屏幕(或手册)开始享受各种乐趣。
 

@@ -1,6 +1,6 @@
 # 你所在的城市最好的业余运动是什么？
 
-> 原文:[https://life hacker . com/whats-whats-the-best-afterior-sport-in-your city-1839162867](https://lifehacker.com/whats-the-best-amateur-sport-in-your-city-1839162867)
+> 原文：<https://lifehacker.com/whats-the-best-amateur-sport-in-your-city-1839162867>
 
 你不仅可以在戈瓦纳斯的布鲁克林区玩沙狐球，你甚至可以加入一个联盟 ，我从一个在其中玩的朋友那里得知，尽管离退休还有整整 35 年。镇上有更明显的业余运动:在东村的一个小公园里踢足球，在格林威治村打篮球，在汤普金斯广场打曲棍球。你所在的城市最好的业余运动是什么？
 

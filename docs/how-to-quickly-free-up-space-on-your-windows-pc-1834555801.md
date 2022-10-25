@@ -1,6 +1,6 @@
 # 如何快速释放 Windows PC 上的空间
 
-> 原文:[https://life hacker . com/how-to-fast-free-up-space on your-windows-PC-1834555801](https://lifehacker.com/how-to-quickly-free-up-space-on-your-windows-pc-1834555801)
+> 原文：<https://lifehacker.com/how-to-quickly-free-up-space-on-your-windows-pc-1834555801>
 
 **[大扫除](https://lifehacker.com/c/spring-cleaning-week?_ga=2.173958499.1940509479.1557157607-1723114163.1524514905) “这个概念让我充满恐惧。O 整理你的材料档案— 物理的或数字的——作为一项全年的活动要容易得多，而不是在一个(或几个)糟糕的日子里，外面天气很好，你宁愿做其他事情。**
 

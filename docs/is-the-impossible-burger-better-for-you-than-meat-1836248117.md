@@ -1,6 +1,6 @@
 # 不可能的汉堡比肉更适合你吗？
 
-> 原文:[https://life hacker . com/is-the impossible-burger-to-you-better-than-meat-1836248117](https://lifehacker.com/is-the-impossible-burger-better-for-you-than-meat-1836248117)
+> 原文：<https://lifehacker.com/is-the-impossible-burger-better-for-you-than-meat-1836248117>
 
 我们生活在一个假汉堡的黄金时代。不可能的汉堡和超越汉堡都承诺并提供不含肉的肉味。但是它们的营养如何与一块真正的死牛相比呢？事实证明，非常接近。
 

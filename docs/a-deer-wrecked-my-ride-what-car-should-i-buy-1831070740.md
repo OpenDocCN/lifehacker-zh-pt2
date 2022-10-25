@@ -1,6 +1,6 @@
 # 一只鹿毁了我的车！应该买什么车？
 
-> 原文:[https://jalopnik . com/a-deer-wrecked-my-ride-what-car-should-I-buy-1831070740](https://jalopnik.com/a-deer-wrecked-my-ride-what-car-should-i-buy-1831070740)
+> 原文：<https://jalopnik.com/a-deer-wrecked-my-ride-what-car-should-i-buy-1831070740>
 
 科里不幸遇到了一只鹿，现在他的车坏了。我们不知道鹿的状况，但他需要一个新的坐骑。它应该是既适合华盛顿特区交通又适合他在户外活动时使用的 T2。他应该买什么车？
 

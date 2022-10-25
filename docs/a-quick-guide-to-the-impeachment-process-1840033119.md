@@ -1,6 +1,6 @@
 # 弹劾程序快速指南
 
-> 原文:[https://life hacker . com/a-quick-guide-to-the-弹劾流程-1840033119](https://lifehacker.com/a-quick-guide-to-the-impeachment-process-1840033119)
+> 原文：<https://lifehacker.com/a-quick-guide-to-the-impeachment-process-1840033119>
 
 [弹劾美国总统](https://lifehacker.com/how-to-impeach-a-president-1834123053) 涉及很多不止一次审判或投票。正如我们之前所写的，这是一个漫长的过程，包括以下步骤:众议院对弹劾条款做出决定，众议院司法委员会对这些条款进行辩论，众议院对弹劾进行表决，其中必须包括至少一项获得批准的条款，参议院对审判程序做出决定，参议院进行审判，然后参议院做出裁决。
 

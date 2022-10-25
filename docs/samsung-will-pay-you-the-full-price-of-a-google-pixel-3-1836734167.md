@@ -1,6 +1,6 @@
 # 如果你以旧换新，三星将支付你一部谷歌 Pixel 3 的全价
 
-> 原文:[https://life hacker . com/Samsung-will-pay-you-the-full-price-of-a-Google-pixel-3-1836734167](https://lifehacker.com/samsung-will-pay-you-the-full-price-of-a-google-pixel-3-1836734167)
+> 原文：<https://lifehacker.com/samsung-will-pay-you-the-full-price-of-a-google-pixel-3-1836734167>
 
 三星正在为最新的三星 Galaxy、谷歌 Pixel 和 iPhone 智能手机提供慷慨的以旧换新优惠，以及大量旧款手机的交易。这包括支付你一部普通谷歌 Pixel 3 的全价——截至发稿时的 600 美元 。
 

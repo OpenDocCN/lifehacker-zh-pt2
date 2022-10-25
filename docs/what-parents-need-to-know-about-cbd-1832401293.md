@@ -1,6 +1,6 @@
 # 父母需要了解的关于 CBD 的知识
 
-> 原文:[https://life hacker . com/what-parents-need-to-know-about-CBD-1832401293](https://lifehacker.com/what-parents-need-to-know-about-cbd-1832401293)
+> 原文：<https://lifehacker.com/what-parents-need-to-know-about-cbd-1832401293>
 
 最近，我十几岁的女儿和我在 Soh o 的一家著名餐厅吃早午餐。当我们等待早餐时，我注意到桌子上有一个标志。“把 CBD 放进你的咖啡里！”是用红色粗体字写的。当我啜饮着咖啡时，我意识到，虽然这些天 CBD 的油和产品似乎无处不在，但我对它们却知之甚少。
 

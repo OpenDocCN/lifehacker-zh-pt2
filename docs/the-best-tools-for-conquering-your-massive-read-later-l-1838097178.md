@@ -1,6 +1,6 @@
 # 征服你庞大的“稍后阅读”清单的最佳工具
 
-> 原文:[https://life hacker . com/the-best-tools-for-converting-your-massive-read-la ter-l-1838097178](https://lifehacker.com/the-best-tools-for-conquering-your-massive-read-later-l-1838097178)
+> 原文：<https://lifehacker.com/the-best-tools-for-conquering-your-massive-read-later-l-1838097178>
 
 “以后再看”清单是一个重要的生产力工具。将文章发送到一个单独的应用程序供以后阅读，可以让你在工作时集中注意力，并让你在停机时可以在手机上做一些有成效的事情。但是保存一篇文章比阅读它更容易，所以“稍后阅读”列表上的故事(就像应用程序 [、Instapaper](https://www.instapaper.com/) 和 [Pocket](https://app.getpocket.com) )往往会堆积起来。这里有三种不同的策略来完成你的阅读清单，以及执行它们的工具。
 

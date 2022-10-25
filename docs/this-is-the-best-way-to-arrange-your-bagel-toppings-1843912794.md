@@ -1,6 +1,6 @@
 # 这是摆放百吉饼配料的最佳方式
 
-> 原文:[https://life hacker . com/this-is-the-best-way to-arranged your ' s bagel-toppings-1843912794](https://lifehacker.com/this-is-the-best-way-to-arrange-your-bagel-toppings-1843912794)
+> 原文：<https://lifehacker.com/this-is-the-best-way-to-arrange-your-bagel-toppings-1843912794>
 
 作为一个终生的纽约人，我知道什么是完美的百吉饼。(这是一个什么都有的百吉饼。)我知道应该怎么准备。(微烤，但不烫；你不想奶油干酪融化，那太恶心了。)而且我知道应该配什么:(原味)奶油奶酪，切成薄片的熏鲑鱼，一片西红柿(如果时令的话)，还有刺山柑。总是雀跃。(如果你喜欢，红洋葱是可以接受的，但我不喜欢。)哦，上面再放一点柠檬。你可以敞着脸吃，配料轻轻地堆在每一半上。我不容许任何争论！
 

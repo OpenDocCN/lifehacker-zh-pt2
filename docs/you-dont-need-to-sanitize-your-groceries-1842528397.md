@@ -1,6 +1,6 @@
 # 你不需要消毒你的杂货
 
-> 原文:[https://life hacker . com/you-don-dont-need-sanitize-you-杂货-1842528397](https://lifehacker.com/you-dont-need-to-sanitize-your-groceries-1842528397)
+> 原文：<https://lifehacker.com/you-dont-need-to-sanitize-your-groceries-1842528397>
 
 即使你按照建议尽可能呆在家里，我们都必须以某种方式获得食物，这意味着定期去杂货店或送货。如果让包装食品从外面进入你家的想法令人紧张，那么重要的是要记住，虽然从你的杂货外表感染冠状病毒的风险不是零，但这种风险非常低。
 

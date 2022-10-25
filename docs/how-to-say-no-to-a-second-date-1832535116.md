@@ -1,6 +1,6 @@
 # 如何拒绝第二次约会
 
-> 原文:[https://life hacker . com/how-to-say-no-a-second-date-1832535116](https://lifehacker.com/how-to-say-no-to-a-second-date-1832535116)
+> 原文：<https://lifehacker.com/how-to-say-no-to-a-second-date-1832535116>
 
 我很擅长拒绝第二次约会，主要是因为我参加了太多的第一次约会。有时候我们都承认没有火花，然后分道扬镳；有时候他们会拒绝我；据统计，有相当多的人想再试一次，即使我们实际上没有化学反应。
 

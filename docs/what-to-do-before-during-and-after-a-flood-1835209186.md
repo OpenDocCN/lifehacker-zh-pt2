@@ -1,6 +1,6 @@
 # 洪水之前、期间和之后应该做什么
 
-> 原文:[https://life hacker . com/1835209186](https://lifehacker.com/what-to-do-before-during-and-after-a-flood-1835209186)
+> 原文：<https://lifehacker.com/what-to-do-before-during-and-after-a-flood-1835209186>
 
 在全国范围内经历了一年破纪录的降水后，中西部的大片地区正在应对极端洪水。随着三条河流的堤坝崩溃，爱荷华州、密苏里州和阿肯色州的数千人已经被疏散 ，而伊利诺伊州、内布拉斯加州和印第安纳州也在与拒绝退去的洪水搏斗。
 

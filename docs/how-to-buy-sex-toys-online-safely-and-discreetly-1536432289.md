@@ -1,6 +1,6 @@
 # 如何安全谨慎地在网上购买情趣用品
 
-> 原文:[https://life hacker . com/how-to-buy-sex-toys-online-safety-and-creet-1536432289](https://lifehacker.com/how-to-buy-sex-toys-online-safely-and-discreetly-1536432289)
+> 原文：<https://lifehacker.com/how-to-buy-sex-toys-online-safely-and-discreetly-1536432289>
 
 在一个后五十度灰的世界里，性玩具已经失去了很多名声，但是那些正在寻找一个好的振动器或鸡鸡环的人可能仍然很难在沃尔玛找到一个。值得庆幸的是，有很多伟大的网站提供各种各样的成人玩具，而且他们倾向于谨慎发货——并不是说购买性玩具有什么可耻的！无论哪种方式，以下是如何购物。
 

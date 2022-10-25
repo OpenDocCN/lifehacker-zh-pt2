@@ -1,6 +1,6 @@
 # 按照安东尼·鲍代恩的 Les Halles 食谱烹饪必须从法式洋葱汤开始
 
-> 原文:[https://the take out . com/Anthony-bourdain-les-halles-cookbook-French-onion-soup-1833361381](https://thetakeout.com/anthony-bourdain-les-halles-cookbook-french-onion-soup-1833361381)
+> 原文：<https://thetakeout.com/anthony-bourdain-les-halles-cookbook-french-onion-soup-1833361381>
 
 *这一周，*外卖员*彭凯文将根据安东尼·鲍代恩* Les Halles 烹饪书*烹饪，并写下他的经历。*
 

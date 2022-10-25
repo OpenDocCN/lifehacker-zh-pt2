@@ -1,6 +1,6 @@
 # 不要为了“低价”而大量购买
 
-> 原文:[https://life hacker . com/stop-buying-bulk-just-for-the-low-price-1841187770](https://lifehacker.com/stop-buying-bulk-just-for-the-lower-price-1841187770)
+> 原文：<https://lifehacker.com/stop-buying-bulk-just-for-the-lower-price-1841187770>
 
 根据你在过去二十年中接触到的每一本个人理财书籍和网站，最基本的省钱方法之一就是批量购买。他们都声称，你不仅可以通过在较大的产品上获得较低的单价来省钱，还可以减少去商店更换或补充的次数。
 

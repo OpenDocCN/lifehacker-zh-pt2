@@ -1,6 +1,6 @@
 # Reddit 上最不道德的生活建议
 
-> 原文:[https://life hacker . com/the-best-of-reddits-ethical-life-pro-tips-1839511965](https://lifehacker.com/the-best-of-reddits-unethical-life-pro-tips-1839511965)
+> 原文：<https://lifehacker.com/the-best-of-reddits-unethical-life-pro-tips-1839511965>
 
 Lifehacker 的 [邪恶周](https://lifehacker.com/c/evil-week) 已经接近尾声，到目前为止，我们已经教会了我们的读者如何 [在最后一刻退出计划](https://lifehacker.com/excuses-to-get-out-of-plans-last-minute-ranked-1839502154) 和 [一个结束烦人电话的策略](https://lifehacker.com/say-your-phone-is-dying-at-the-start-of-every-annoying-1839442463) 而没有任何反响——但是将*而不是*归功于 [不道德的生活专业建议 subreddit](https://old.reddit.com/r/UnethicalLifeProTips) 作为灵感的来源是不对的。
 

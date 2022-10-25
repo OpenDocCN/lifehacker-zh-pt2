@@ -1,6 +1,6 @@
 # 如何上《危险边缘》
 
-> 原文:[https://lifehacker.com/how-to-get-on-jeopardy-1832949569](https://lifehacker.com/how-to-get-on-jeopardy-1832949569)
+> 原文：<https://lifehacker.com/how-to-get-on-jeopardy-1832949569>
 
 你是琐事大师吗？或者亚历克斯·崔贝克超级粉丝？你可能会陷入危险境地！该节目的申请和测试过程对任何愿意将其知识付诸实践的人开放。
 

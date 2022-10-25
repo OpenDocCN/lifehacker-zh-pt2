@@ -1,6 +1,6 @@
 # 用“战争游戏”的方式给你的玉米涂黄油
 
-> 原文:[https://life hacker . com/butter-your-corn-the-war-games-way-1844248176](https://lifehacker.com/butter-your-corn-the-war-games-way-1844248176)
+> 原文：<https://lifehacker.com/butter-your-corn-the-war-games-way-1844248176>
 
 我有一个夏天的传统，包括在互联网上大喊生玉米。生玉米很好而且我认为应该有更多的人吃它，所以每年夏天我就开始大喊并分享我几年前写的这个小博客。这不可避免地导致了很多关于玉米的讨论，今年包括有人给我发来了《战争游戏》(1983)的这个片段，这是我小时候看过的一部很好的电影。
 

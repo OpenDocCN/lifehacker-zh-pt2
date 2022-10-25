@@ -1,6 +1,6 @@
 # 只需一个电话就能帮助拯救美国邮政
 
-> 原文:[https://life hacker . com/help-save-the-usps-with-one-call-1844726967](https://lifehacker.com/help-save-the-usps-with-one-call-1844726967)
+> 原文：<https://lifehacker.com/help-save-the-usps-with-one-call-1844726967>
 
 在 2020 年更离奇的情节转折之一中，美国邮政服务可能因政治利益而遭到破坏。整个故事很复杂，令人困惑，几乎可以肯定是不完整的，但《今日美国》在这里 提供了一个很好的纲要。
 

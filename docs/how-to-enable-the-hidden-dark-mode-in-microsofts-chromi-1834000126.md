@@ -1,6 +1,6 @@
 # 如何在微软的 Chromium Edge 浏览器中启用隐藏黑暗模式
 
-> 原文:[https://life hacker . com/how-to-enable-the-hidden-dark-mode-in-Microsoft-chromi-1834000126](https://lifehacker.com/how-to-enable-the-hidden-dark-mode-in-microsofts-chromi-1834000126)
+> 原文：<https://lifehacker.com/how-to-enable-the-hidden-dark-mode-in-microsofts-chromi-1834000126>
 
 本周早些时候，微软发布了基于 Chromium 的 Edge 浏览器的测试版，尝试一下很有趣——主要是因为它对任何一个 Chrome 粉丝来说都很熟悉。然而，这并不是说 Edge 只是谷歌浏览器的一个翻新版本。有很多调整，包括一种全新的方式来解锁浏览器的隐藏“黑暗模式”，这种模式与 Windows 本身的应用程序偏好很好地匹配。
 

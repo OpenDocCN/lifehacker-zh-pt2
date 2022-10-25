@@ -1,6 +1,6 @@
 # 什么是脸书的新“安静模式”,它是如何工作的？
 
-> 原文:[https://life hacker . com/what-is-face books-new-quiet-mode-and-how-it-work-1842797471](https://lifehacker.com/what-is-facebooks-new-quiet-mode-and-how-does-it-work-1842797471)
+> 原文：<https://lifehacker.com/what-is-facebooks-new-quiet-mode-and-how-does-it-work-1842797471>
 
 脸书正在为其 iOS 和 Android 应用程序推出新的“安静模式”功能，这是一个再好不过的时机了。现在，我们中的很多人比平时更依赖手机——谢谢，隔离！——虽然像脸书这样的应用程序帮助我们保持联系，但有一种东西是*也有*联系。
 

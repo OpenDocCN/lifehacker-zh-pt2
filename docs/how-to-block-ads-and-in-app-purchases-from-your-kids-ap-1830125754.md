@@ -1,6 +1,6 @@
 # 如何阻止您孩子的应用中的广告和应用内购买
 
-> 原文:[https://life hacker . com/how-to-block-ads-and-in-app-purchases-from-your-kids-AP-1830125754](https://lifehacker.com/how-to-block-ads-and-in-app-purchases-from-your-kids-ap-1830125754)
+> 原文：<https://lifehacker.com/how-to-block-ads-and-in-app-purchases-from-your-kids-ap-1830125754>
 
 广告和应用内购买在我们的孩子在平板电脑上玩的游戏中变得如此普遍，以至于专家们称它们不仅仅是分散注意力——他们给它们贴上了“不公平”和“欺骗性”的标签
 

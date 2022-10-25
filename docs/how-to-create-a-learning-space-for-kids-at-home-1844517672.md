@@ -1,6 +1,6 @@
 # 如何在家中为孩子创造学习空间
 
-> 原文:[https://life hacker . com/how-to-create-a-learning-space for-kids-home-1844517672](https://lifehacker.com/how-to-create-a-learning-space-for-kids-at-home-1844517672)
+> 原文：<https://lifehacker.com/how-to-create-a-learning-space-for-kids-at-home-1844517672>
 
 今年秋季开学后，我们的孩子很有可能会花一周的至少一部分(或者大部分，或者全部)时间在家学习。尽管我们设法在临时的学习场所度过了春天，在那里他们完成了零星的任务，并参加了 T2 组织的电话会议，但这是不同的。他们开始了新的年级，有了新的老师和新的课程，我们不再处于只能勉强维持到年底的模式。他们将不得不——咽——合法地从家里学习 T4。所以他们需要一个专门做这些事情的空间。
 

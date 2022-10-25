@@ -1,6 +1,6 @@
 # 制作这些经典电脑的纸艺模型
 
-> 原文:[https://life hacker . com/build-these-paper craft-models-of-classic-computers-1843155398](https://lifehacker.com/build-these-papercraft-models-of-classic-computers-1843155398)
+> 原文：<https://lifehacker.com/build-these-papercraft-models-of-classic-computers-1843155398>
 
 现在有很多打发时间的方法。你可以读更多的书。多看电视。晚饭后进行更长时间的家庭散步。或者— *或者—* 你可以制作和你一起长大的电脑的纸质模型，这样你的孩子就可以看到(并且欣赏，*该死的*！)科技已经走了多远，他们有多幸运，他们的 Chromebooks、ipad 和 Nintendo switch 是什么样的。
 

@@ -1,6 +1,6 @@
 # 非报税者，明天之前为你的孩子申请冠状病毒救济
 
-> 原文:[https://life hacker . com/non-filers-request-coronavirus-relief-payment-for-your-1842981763](https://lifehacker.com/non-filers-request-coronavirus-relief-payment-for-your-1842981763)
+> 原文：<https://lifehacker.com/non-filers-request-coronavirus-relief-payment-for-your-1842981763>
 
 如果你通常不报税，你就没有时间为你的孩子申请每名儿童 500 美元的冠状病毒救济金了。
 

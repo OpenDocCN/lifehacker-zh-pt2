@@ -1,6 +1,6 @@
 # 预订转接航班前需要考虑什么
 
-> 原文:[https://life hacker . com/1837000770](https://lifehacker.com/what-to-consider-before-booking-a-connecting-flight-1837000770)
+> 原文：<https://lifehacker.com/what-to-consider-before-booking-a-connecting-flight-1837000770>
 
 如果你为了节省一点钱而预订了中转航班的行程，像联合航空和美国航空这样的航空公司通常会给你 30 分钟的时间下飞机，拿起你的随身行李，如果需要的话切换航站楼，找到正确的登机口；这是一个特别紧的窗口，但在小机场是可能的。然而，这种风险可能会适得其反，根据《今日美国》的说法，30 分钟的连接对于一个不幸的 passenger⁠人来说是不够的，他最近到达的航班被延迟了 25 分钟。
 

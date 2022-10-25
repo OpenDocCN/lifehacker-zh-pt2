@@ -1,6 +1,6 @@
 # 有毒洗手液名单多达 94 种产品[更新]
 
-> 原文:[https://life hacker . com/don-use-these-toxic-hand-sanitizer-brands-1844133093](https://lifehacker.com/dont-use-these-toxic-hand-sanitizer-brands-1844133093)
+> 原文：<https://lifehacker.com/dont-use-these-toxic-hand-sanitizer-brands-1844133093>
 
 对冠状病毒有效的洗手液包括至少 60%的乙醇或 70%的异丙醇。但是有一些品牌使用甲醇，一种毒性更大的酒精，美国食品和药物管理局已经发出警告不要使用它们。
 

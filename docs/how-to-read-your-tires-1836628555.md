@@ -1,6 +1,6 @@
 # 如何“解读”你的轮胎
 
-> 原文:[https://lifehacker.com/how-to-read-your-tires-1836628555](https://lifehacker.com/how-to-read-your-tires-1836628555)
+> 原文：<https://lifehacker.com/how-to-read-your-tires-1836628555>
 
 你汽车轮胎的品牌名称醒目而自豪地印在侧面，这样每个人都能看出你只信任普利司通、米其林或韩泰。(好吧，公平地说，如果你买的是二手车，这也很有帮助，因为你可以很快看出轮胎是否匹配。)但是如果你靠近一点看，你还会看到一系列数字和字母，它们似乎在告诉你一些事情。如果你知道那是什么就好了。
 

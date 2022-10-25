@@ -1,6 +1,6 @@
 # now is not the time to cut your own hair 1842527926
 
-> 原文:[https://Jezebel . com/现在不是剪自己头发的时候-1842527926](https://jezebel.com/now-is-not-the-time-to-cut-your-own-hair-1842527926)
+> 原文：<https://jezebel.com/now-is-not-the-time-to-cut-your-own-hair-1842527926>
 
 上周末，在无聊、焦虑和大麻的影响下，我从亚马逊订购了一套初学者刺绣套装，屏息等待它的到来。我不擅长手工制作任何复杂的东西。我会织毛衣，但主要是为了在看电视的时候不看手机，我生产过的有价值的东西只有几条婴儿毯和许多围巾，它们放在我床下的篮子里，可能已经被蛀虫蛀了。刺绣似乎是一项更繁琐的任务，需要我全神贯注。我缺乏创作刺绣杰作所必需的对细节的关注，因为创作值得 Etsy 商店购买的样品与手头的任务是相违背的，这是一种分心和*非*生产力。
 

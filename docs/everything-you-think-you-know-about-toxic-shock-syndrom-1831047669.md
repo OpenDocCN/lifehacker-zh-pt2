@@ -1,6 +1,6 @@
 # everything you think you know about toxic shock syndrom 1831047669
 
-> 原文:[https://life hacker . com/everything-you-think-you-know-about-toxic-shock-syndrome-1831047669](https://lifehacker.com/everything-you-think-you-know-about-toxic-shock-syndrom-1831047669)
+> 原文：<https://lifehacker.com/everything-you-think-you-know-about-toxic-shock-syndrom-1831047669>
 
 几年前，我了解到一些女性在阴道里插入化妆海绵，一直到子宫颈，以获得无混乱的经期性爱。在谷歌上搜索了一番，并咨询了做过的女性之后，我决定试一试。这是一个启示——突然之间，口交和干净的床单在我的月经期间成为可能。2017 年 7 月， [我在 Lifehacker 上写了一篇简短的帖子](http://lifehacker.com/use-a-makeup-sponge-for-mess-free-period-sex-1797313388) 推荐这种方法，没有咨询科学家或妇科医生。
 

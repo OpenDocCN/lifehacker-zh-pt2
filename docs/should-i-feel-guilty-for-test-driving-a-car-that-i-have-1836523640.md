@@ -1,6 +1,6 @@
 # 试驾一辆无意购买的车，我应该感到内疚吗？
 
-> 原文:[https://jalopnik . com/should-I-feel-in-test-driving-a car-I-have-1836523640](https://jalopnik.com/should-i-feel-guilty-for-test-driving-a-car-that-i-have-1836523640)
+> 原文：<https://jalopnik.com/should-i-feel-guilty-for-test-driving-a-car-that-i-have-1836523640>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。我决定挑几个问题，试着帮帮大家。本周我们将讨论试驾的免费赠品、双离合变速器的担忧，以及如果你买卖一辆高需求汽车，你会受到多大的打击。
 

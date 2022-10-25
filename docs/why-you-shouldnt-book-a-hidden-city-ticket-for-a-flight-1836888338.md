@@ -1,6 +1,6 @@
 # 为什么你不应该预订“隐藏城市”的机票
 
-> 原文:[https://life hacker . com/why-you-should-not-book-a hidden-city-机票-1836888338](https://lifehacker.com/why-you-shouldnt-book-a-hidden-city-ticket-for-a-flight-1836888338)
+> 原文：<https://lifehacker.com/why-you-shouldnt-book-a-hidden-city-ticket-for-a-flight-1836888338>
 
 今年 2 月，德国汉莎航空公司起诉一名乘客，称他利用了一个广为人知的“隐藏城市”的漏洞，故意错过了他航班的一条腿。
 

@@ -1,6 +1,6 @@
 # 如何阅读路径图
 
-> 原文:[https://lifehacker.com/how-to-read-a-trail-map-1844344804](https://lifehacker.com/how-to-read-a-trail-map-1844344804)
+> 原文：<https://lifehacker.com/how-to-read-a-trail-map-1844344804>
 
 在不拥挤的公园散步和徒步旅行是我们仍然可以做的少数几项活动之一，而不必太担心传播新冠肺炎病毒(假设你要么独自一人，与你一直隔离的人在一起，要么与其他人在物理距离上)。如果你是徒步旅行的新手，你会很快发现，确定自己的位置比看起来要难一些。当然，这里有地图，但是你有没有试过看地图？这么多台词！下面是 [正确阅读](https://bangordailynews.com/2020/07/01/act-out/how-to-read-a-trail-map/) 步道地图的几个小技巧。
 

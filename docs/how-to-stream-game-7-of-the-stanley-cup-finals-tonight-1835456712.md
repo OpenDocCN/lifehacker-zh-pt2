@@ -1,6 +1,6 @@
 # 如何直播今晚斯坦利杯总决赛第七场
 
-> 原文:[https://life hacker . com/how-to-stream-game-7-of-the-Stanley-cup-finals-tonight-1835456712](https://lifehacker.com/how-to-stream-game-7-of-the-stanley-cup-finals-tonight-1835456712)
+> 原文：<https://lifehacker.com/how-to-stream-game-7-of-the-stanley-cup-finals-tonight-1835456712>
 
 圣路易斯蓝调队今晚将在斯坦利杯决赛的第七场比赛中迎战波士顿布鲁因斯队，今晚比赛的获胜者将把奖杯带回家。
 

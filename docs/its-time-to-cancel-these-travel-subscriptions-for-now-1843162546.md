@@ -1,6 +1,6 @@
 # 现在是时候取消这些旅游预订了
 
-> 原文:[https://life hacker . com/its-time-to-cancel-these-travel-subscriptions-for-now-1843162546](https://lifehacker.com/its-time-to-cancel-these-travel-subscriptions-for-now-1843162546)
+> 原文：<https://lifehacker.com/its-time-to-cancel-these-travel-subscriptions-for-now-1843162546>
 
 现在我们都呆在家里，这是为未来的旅行存钱的好时机。取消的航班和旅行给了我们一些人额外的资金，但是如果你仍然在旅游订阅上花钱，现在是时候通过取消或暂停你不使用的东西来节省更多。
 

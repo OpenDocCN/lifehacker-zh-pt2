@@ -1,6 +1,6 @@
 # 自己制作酸奶油是非常值得的
 
-> 原文:[https://life hacker . com/自制酸奶油非常值得-1843444163](https://lifehacker.com/making-your-own-sour-cream-is-extremely-worthwhile-1843444163)
+> 原文：<https://lifehacker.com/making-your-own-sour-cream-is-extremely-worthwhile-1843444163>
 
 我不会无缘无故自己动手做。如果我要制作自己版本的市售产品，它要么需要比商店里买的同类产品味道更好，花费更少，要么符合我特有的懒惰。这就是为什么我不自己做番茄酱——这很费时间，便宜不了多少，最终结果是 [无限不如亨氏](https://lifehacker.com/nobody-wants-your-homemade-ketchup-1827140540) ，这是一种完美的酱料。我原以为自己做酸奶油可能会有类似的感受，但我已经不那么无知了。
 

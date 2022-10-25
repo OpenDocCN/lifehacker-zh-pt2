@@ -1,6 +1,6 @@
 # 什么时候“现在”不是投资的最佳时机
 
-> 原文:[https://life hacker . com/when-now-not ' s-best-time-to-invest-1833092120](https://lifehacker.com/when-now-isnt-the-best-time-to-invest-1833092120)
+> 原文：<https://lifehacker.com/when-now-isnt-the-best-time-to-invest-1833092120>
 
 问一个金融专家投资的“最佳”时间是什么时候，他们会告诉你:昨天。假设你昨天没有开始，下一个最佳答案是*今天*。
 

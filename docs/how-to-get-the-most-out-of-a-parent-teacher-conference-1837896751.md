@@ -1,6 +1,6 @@
 # 如何充分利用家长会
 
-> 原文:[https://life hacker . com/how-to-get-the-most-out-of-a-parent-teacher-conference-1837896751](https://lifehacker.com/how-to-get-the-most-out-of-a-parent-teacher-conference-1837896751)
+> 原文：<https://lifehacker.com/how-to-get-the-most-out-of-a-parent-teacher-conference-1837896751>
 
 家长会是教育界的速配。你注册了 10 分钟的时间(幸运的话 15 分钟)，老师拿出一个计时器，然后你就可以走了。他的阅读技巧进展如何？她适应过渡了吗？你有没有注意到他和布雷登之间的问题？你。好多了。说话。很快。
 

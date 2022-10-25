@@ -1,6 +1,6 @@
 # 没有会员资格也可以在仓储俱乐部买酒
 
-> 原文:[https://life hacker . com/you-can-buy-in-warehouse-clubs-without-a-member-1838452673](https://lifehacker.com/you-can-buy-alcohol-at-warehouse-clubs-without-a-member-1838452673)
+> 原文：<https://lifehacker.com/you-can-buy-alcohol-at-warehouse-clubs-without-a-member-1838452673>
 
 如果你不需要大量购买食品杂货或家庭必需品，你可能会认为在像好市多或山姆会员店这样的仓储俱乐部购物不适合你。如果你是为一个小家庭购物，或者有有限的存储空间，每年的会员费用可能不值得。
 

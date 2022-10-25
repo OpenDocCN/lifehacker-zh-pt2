@@ -1,6 +1,6 @@
 # 为你孩子的学校项目重新设计一套普通的殖民地服装
 
-> 原文:[https://life hacker . com/re purpose-a-generic-colonial-costume-for-all-your-kids-1833475047](https://lifehacker.com/repurpose-a-generic-colonial-costume-for-all-your-kids-1833475047)
+> 原文：<https://lifehacker.com/repurpose-a-generic-colonial-costume-for-all-your-kids-1833475047>
 
 当我儿子上二年级的时候，他的老师喜欢布置作业，让孩子们打扮成历史人物。初入 小学世界，我还没有跟上角色服装给父母带来的压力。那一年，我的儿子不得不装扮成历史上两个不同的名人，我参加了一个速成班，在你的孩子要做演讲的前一天晚上，在一家工艺品商店里是什么感觉。
 

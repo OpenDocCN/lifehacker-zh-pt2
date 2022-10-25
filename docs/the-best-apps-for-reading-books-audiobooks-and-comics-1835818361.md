@@ -1,6 +1,6 @@
 # 2019 年阅读书籍、有声读物和漫画的最佳应用
 
-> 原文:[https://life hacker . com/the-best-apps-for-reading-books-audio-books-and-comics-1835818361](https://lifehacker.com/the-best-apps-for-reading-books-audiobooks-and-comics-1835818361)
+> 原文：<https://lifehacker.com/the-best-apps-for-reading-books-audiobooks-and-comics-1835818361>
 
 多亏了我们的手机，阅读变得前所未有的简单——我们都把整个书店放在口袋里。在上面的视频中，我分享了我们最喜欢的看书、听有声读物、购买漫画的 app。
 

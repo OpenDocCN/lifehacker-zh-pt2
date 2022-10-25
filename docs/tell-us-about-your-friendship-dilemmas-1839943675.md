@@ -1,6 +1,6 @@
 # 告诉我们你的友谊困境
 
-> 原文:[https://life hacker . com/tell-us-about-your-friendship-dilemmas-1839943675](https://lifehacker.com/tell-us-about-your-friendship-dilemmas-1839943675)
+> 原文：<https://lifehacker.com/tell-us-about-your-friendship-dilemmas-1839943675>
 
 有棘手的友谊情况？想知道你是否已经超越了友谊，是时候说再见了？你最好的朋友在跟踪你吗？你在模仿别人吗？
 

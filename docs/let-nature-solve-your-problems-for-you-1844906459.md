@@ -1,6 +1,6 @@
 # 在这个网站上找到大自然对你的问题的解决方案
 
-> 原文:[https://life hacker . com/let-nature-solve-your-problems-for-you 1844906459](https://lifehacker.com/let-nature-solve-your-problems-for-you-1844906459)
+> 原文：<https://lifehacker.com/let-nature-solve-your-problems-for-you-1844906459>
 
 大自然最了解大多数事情。如果你正在寻找如何在炎热中保持凉爽、保护自己免受病原体侵害或建立长期友谊的答案，其他生物可能已经找到了解决方案——而正在为你汇编它们。
 

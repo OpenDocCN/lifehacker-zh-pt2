@@ -1,6 +1,6 @@
 # 为什么水痘疫苗很重要
 
-> 原文:[https://life hacker . com/why-the-水痘-疫苗-事项-1830572468](https://lifehacker.com/why-the-chickenpox-vaccine-matters-1830572468)
+> 原文：<https://lifehacker.com/why-the-chickenpox-vaccine-matters-1830572468>
 
 北卡罗莱纳州一所私立学校的大多数学生没有接种水痘疫苗，现在这所学校是 20 年来最大的水痘爆发的中心。
 

@@ -1,6 +1,6 @@
 # 使用您的 Android 手机作为登录网站的安全密钥
 
-> 原文:[https://life hacker . com/use-your-Android-phone-as-a-security-key-for-signing-in-1833946643](https://lifehacker.com/use-your-android-phone-as-a-security-key-for-signing-in-1833946643)
+> 原文：<https://lifehacker.com/use-your-android-phone-as-a-security-key-for-signing-in-1833946643>
 
 所有运行 Android 7.0 或更高版本的 Android 智能手机 [现在都可以用作安全密钥](https://cloud.google.com/security-key/) 登录网站——只有谷歌的，目前只能通过 Chrome，但希望更多的网站和浏览器很快会支持该功能。这是一种方便的双因素身份认证方法，因为大多数人即使在桌面上浏览时，也将他们的 Android 手机或平板电脑放在手边，并且它减轻了处理其他硬件令牌或身份认证应用程序的需要。
 

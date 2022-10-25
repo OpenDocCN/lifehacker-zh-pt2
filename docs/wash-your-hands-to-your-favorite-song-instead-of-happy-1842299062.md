@@ -1,6 +1,6 @@
 # 听着你最喜欢的歌洗手，而不是“生日快乐”
 
-> 原文:[https://life hacker . com/wash-your-hands-to-your-favorite-song-inst-of-happy-1842299062](https://lifehacker.com/wash-your-hands-to-your-favorite-song-instead-of-happy-1842299062)
+> 原文：<https://lifehacker.com/wash-your-hands-to-your-favorite-song-instead-of-happy-1842299062>
 
 我做不下去了。如果我洗手的时候再对自己唱一遍“生日快乐”，我可能会燃烧起来。今天其实是我的生日，我最不想听到的就是那首歌。在上面的视频中，我找到了解决办法。
 

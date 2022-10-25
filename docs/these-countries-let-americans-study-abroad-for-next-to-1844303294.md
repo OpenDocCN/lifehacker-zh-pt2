@@ -1,6 +1,6 @@
 # 这些国家让美国人几乎免费出国留学
 
-> 原文:[https://life hacker . com/these-countries-let-Americans-study-for-next-to 1844303294](https://lifehacker.com/these-countries-let-americans-study-abroad-for-next-to-1844303294)
+> 原文：<https://lifehacker.com/these-countries-let-americans-study-abroad-for-next-to-1844303294>
 
 据《福布斯》杂志 报道，美国学生贷款债务已跃升至 1.56 万亿美元，分布在 4500 万借款人身上。随着疫情肆虐，超过 1750 万美国人失业，公立大学的平均费用在 2 万美元左右，私立大学超过 4.5 万美元，对许多人来说，上大学更多的是一种特权，而不是一种成年礼。
 

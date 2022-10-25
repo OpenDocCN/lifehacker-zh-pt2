@@ -1,6 +1,6 @@
 # 你可以在索尼克买到几袋上好的冰
 
-> 原文:[https://life hacker . com/you-can-buy-bags-of-the-good-ice-at-sonic-1838147632](https://lifehacker.com/you-can-buy-bags-of-the-good-ice-at-sonic-1838147632)
+> 原文：<https://lifehacker.com/you-can-buy-bags-of-the-good-ice-at-sonic-1838147632>
 
 举办大型聚会的一个关键部分是提供足够的冰。不温不火的饮料一点都不好玩，聚会应该很有趣。最有趣的冰当然是松脆的、可咀嚼的颗粒冰，也被称为“块冰”和“好冰”这种冰可以在 Sonic 的软饮料中找到，而且——在大多数地方——你可以买到整袋整袋的冰。
 

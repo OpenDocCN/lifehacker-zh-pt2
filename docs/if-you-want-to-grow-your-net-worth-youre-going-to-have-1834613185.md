@@ -1,6 +1,6 @@
 # 如果你想增加你的净资产，你就必须投资
 
-> 原文:[https://life hacker . com/if-you-want-to-grow-you-to-have-1834613185](https://lifehacker.com/if-you-want-to-grow-your-net-worth-youre-going-to-have-1834613185)
+> 原文：<https://lifehacker.com/if-you-want-to-grow-your-net-worth-youre-going-to-have-1834613185>
 
 如果你想增加你的净资产，尽可能多的储蓄是一个好的开始——但是这只能让你到此为止。
 

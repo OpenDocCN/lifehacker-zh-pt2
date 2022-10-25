@@ -1,6 +1,6 @@
 # 当航空公司丢失你的包时该怎么办
 
-> 原文:[https://life hacker . com/what-do-what-what-what-a-airlines-lost your bag-1830460934](https://lifehacker.com/what-to-do-when-an-airline-loses-your-bag-1830460934)
+> 原文：<https://lifehacker.com/what-to-do-when-an-airline-loses-your-bag-1830460934>
 
 你到达了目的地，准备在期待已久的假期中放松一下，却发现你的行李箱没有随身携带。
 

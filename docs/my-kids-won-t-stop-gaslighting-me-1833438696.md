@@ -1,6 +1,6 @@
 # 我的孩子不会停止对我发火
 
-> 原文:[https://deadspin . com/my-kids-won-t-stop-gas lighting-me-1833438696](https://deadspin.com/my-kids-won-t-stop-gaslighting-me-1833438696)
+> 原文：<https://deadspin.com/my-kids-won-t-stop-gaslighting-me-1833438696>
 
 如果你在过去几年中接触过这些互联网领域，你就会知道所有关于煤气灯的事情，其中人们如此狂热地站在谎言背后，以至于他们迫使其他人也相信它，让马克斯不确定什么是真的，什么是真正的*苹果首席执行官的名字*T3】蒂姆·苹果 T5】。
 

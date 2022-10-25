@@ -1,6 +1,6 @@
 # 如何让你的孩子戒掉果汁
 
-> 原文:[https://life hacker . com/how-to-waving-your-kids-off-juice-1838262167](https://lifehacker.com/how-to-wean-your-kids-off-juice-1838262167)
+> 原文：<https://lifehacker.com/how-to-wean-your-kids-off-juice-1838262167>
 
 它可能始于生日聚会或外出就餐时的偶尔款待。但是一旦你的孩子尝到了那种甜甜的果汁，淡而无味的牛奶和水就没有同样的吸引力了。而现在，他们只想喝果汁。
 

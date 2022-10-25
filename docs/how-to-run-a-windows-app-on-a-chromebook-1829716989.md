@@ -1,6 +1,6 @@
 # 如何在 Chromebook 上运行 Windows 应用程序
 
-> 原文:[https://life hacker . com/how-to-run-a-windows-app-on-a-chrome book-1829716989](https://lifehacker.com/how-to-run-a-windows-app-on-a-chromebook-1829716989)
+> 原文：<https://lifehacker.com/how-to-run-a-windows-app-on-a-chromebook-1829716989>
 
 谷歌基于云的 Chrome OS 已经演变成一个令人印象深刻的计算平台，现在它兼容 Android 应用程序，最近又兼容 Linux 应用程序。
 

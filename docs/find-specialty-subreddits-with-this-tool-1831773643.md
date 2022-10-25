@@ -1,6 +1,6 @@
 # 使用此工具查找专业子编辑
 
-> 原文:[https://life hacker . com/find-specialty-subred dits-with-this-tool-1831773643](https://lifehacker.com/find-specialty-subreddits-with-this-tool-1831773643)
+> 原文：<https://lifehacker.com/find-specialty-subreddits-with-this-tool-1831773643>
 
 Reddit 很酷的一点是，你可以只订阅你喜欢的子编辑，忽略你不喜欢的所有内容。更小、更专业的子涡旋是最好的，但它们更难找到。新工具 [sayit](https://anvaka.github.io/sayit/) 帮你找到他们。
 

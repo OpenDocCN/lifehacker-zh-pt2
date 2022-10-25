@@ -1,6 +1,6 @@
 # 你会在网上分享太多关于你孩子的事情吗？
 
-> 原文:[https://life hacker . com/do-you-share-too-more-about-your-kids-online-1831622731](https://lifehacker.com/do-you-share-too-much-about-your-kids-online-1831622731)
+> 原文：<https://lifehacker.com/do-you-share-too-much-about-your-kids-online-1831622731>
 
 作为父母，我们做了很多手的事情——担心我们的孩子进入青少年时期后会如何处理社交媒体。我们哀叹道:*我们在他们这个年纪的时候,*没有这种东西。*他们还不够成熟，无法承担责任，他们还不能理解他们发布的东西的长期后果，他们不会明白一旦它出现了，它就永远存在了。*
 

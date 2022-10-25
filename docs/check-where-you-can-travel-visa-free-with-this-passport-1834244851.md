@@ -1,6 +1,6 @@
 # 通过这个护照排名网站查看你可以免签证旅行的地方
 
-> 原文:[https://life hacker . com/check-where-you-can-travel-visa-with this-passport-1834244851](https://lifehacker.com/check-where-you-can-travel-visa-free-with-this-passport-1834244851)
+> 原文：<https://lifehacker.com/check-where-you-can-travel-visa-free-with-this-passport-1834244851>
 
 随着安全问题的增加，出国旅行时签证变得越来越必要。随着规则的变化，知道去哪里旅行需要签证，去哪里不需要签证可能有点困难。 [护照索引](https://www.passportindex.org/) 是一个可以提供帮助的网站。
 

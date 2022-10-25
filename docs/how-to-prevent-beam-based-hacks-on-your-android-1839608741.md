@@ -1,6 +1,6 @@
 # 如何在你的 Android 上防止基于波束的攻击
 
-> 原文:[https://life hacker . com/how-to-prevent-beam-based-hacks-on-your-Android-1839608741](https://lifehacker.com/how-to-prevent-beam-based-hacks-on-your-android-1839608741)
+> 原文：<https://lifehacker.com/how-to-prevent-beam-based-hacks-on-your-android-1839608741>
 
 今天在“更新你的设备总是一个好主意”中，最近发现了 Android 基于 NFC 的文件共享功能的一个漏洞， [Android Beam](https://developer.android.com/training/beam-files) ，使得有人可以在你的设备上安装应用程序。谷歌在上个月发布的 Android 更新中已经发现并修复了这个漏洞，所以勤奋的更新者已经被覆盖了。如果你还没有，现在是时候这么做了。
 

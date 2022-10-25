@@ -1,6 +1,6 @@
 # 如何在 iOS 13.7 中启用“快速”新冠肺炎暴露通知
 
-> 原文:[https://life hacker . com/how-to-enable-express-新冠肺炎-exposure-notifications-I-1844919365](https://lifehacker.com/how-to-enable-express-covid-19-exposure-notifications-i-1844919365)
+> 原文：<https://lifehacker.com/how-to-enable-express-covid-19-exposure-notifications-i-1844919365>
 
 苹果今天推出了 iOS 13.7。更新您的设备，您现在就可以了解您所在的州是否支持新冠肺炎暴露通知快递系统。更重要的是，你将能够选择接收这些提醒，而不必找到并设置一个独立的应用程序。(没人喜欢应用蔓延。)
 

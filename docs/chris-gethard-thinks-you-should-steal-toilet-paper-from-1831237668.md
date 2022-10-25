@@ -1,6 +1,6 @@
 # 克里斯·盖特哈德认为你应该从工作的地方偷卫生纸
 
-> 原文:[https://life hacker . com/Chris-get hard-think-you-should-steak-toilet-paper-from-1831237668](https://lifehacker.com/chris-gethard-thinks-you-should-steal-toilet-paper-from-1831237668)
+> 原文：<https://lifehacker.com/chris-gethard-thinks-you-should-steal-toilet-paper-from-1831237668>
 
 在我们播客的[*【升级*](https://lifehacker.com/c/the-upgrade) 现场录制中，喜剧演员克里斯·盖特哈德承认从前任雇主那里拿了卫生纸(用他的话说是“曼哈顿即兴剧院”——猜猜是哪家)。
 

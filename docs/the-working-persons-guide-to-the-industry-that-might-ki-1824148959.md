@@ -1,6 +1,6 @@
 # 劳动者的行业指南可能会扼杀你的公司
 
-> 原文:[https://splitter news . com/the-working-persons-guide-to-the-industry-that-might-ki-1824148959](https://splinternews.com/the-working-persons-guide-to-the-industry-that-might-ki-1824148959)
+> 原文：<https://splinternews.com/the-working-persons-guide-to-the-industry-that-might-ki-1824148959>
 
 就像全球价值 2.5 万亿美元的公司一样，出版你现在正在阅读的故事的公司是私募股权公司拥有的。大多数人对私募股权行业的实际运作知之甚少。事实很可怕。
 

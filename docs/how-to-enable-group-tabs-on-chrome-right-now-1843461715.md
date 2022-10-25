@@ -1,6 +1,6 @@
 # 如何立即在 Chrome 上启用分组标签
 
-> 原文:[https://life hacker . com/how-to-enable-group-tabs-on-chrome-right-now-1843461715](https://lifehacker.com/how-to-enable-group-tabs-on-chrome-right-now-1843461715)
+> 原文：<https://lifehacker.com/how-to-enable-group-tabs-on-chrome-right-now-1843461715>
 
 我最近看到一些报道，谷歌在 Chrome 中推出了一个新的“分组标签”功能，旨在帮助你将难以控制的数量的打开标签组织成更易于管理、颜色协调的大块。*嗯，咄。*你可以这样做 [几个月](https://lifehacker.com/block-bloated-web-ads-with-these-hidden-chrome-80-flags-1841470223)；你只是不知道而已。
 

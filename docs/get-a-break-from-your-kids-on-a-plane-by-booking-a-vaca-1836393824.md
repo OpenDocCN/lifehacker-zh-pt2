@@ -1,6 +1,6 @@
 # 预订一个“度假座位”,在飞机上与孩子分开一段时间
 
-> 原文:[https://life hacker . com/get-a-break-from-your-kids on-a-booking-a-VacA-1836393824](https://lifehacker.com/get-a-break-from-your-kids-on-a-plane-by-booking-a-vaca-1836393824)
+> 原文：<https://lifehacker.com/get-a-break-from-your-kids-on-a-plane-by-booking-a-vaca-1836393824>
 
 早些时候，我只需做一个决定——靠窗还是靠过道？——然后我会得到一个座位号，然后我会登上飞机，坐在那个座位上，从而结束我在这个问题上的精神努力。唉，那是当时。现在我有了一个伴侣和两个年幼的孩子，选择正确的座位配置感觉像是一场高风险的战略游戏——每个决定都有好处和风险，一个错误的举动可能意味着厄运(或至少几个小时的额外压力)。
 

@@ -1,6 +1,6 @@
 # 如果你吃完饭后马上游泳，就不会有什么坏事发生
 
-> 原文:[https://life hacker . com/nothing-bad-will-happen-if-you-swim-right-after-eating-1835089262](https://lifehacker.com/nothing-bad-will-happen-if-you-swim-right-after-eating-1835089262)
+> 原文：<https://lifehacker.com/nothing-bad-will-happen-if-you-swim-right-after-eating-1835089262>
 
 直到昨天有人问我这件事，我已经完全忘记了小时候饭后坐在泳池边发牢骚的习惯。你真的需要让孩子们远离水整整一个小时吗？半小时可以吗？十分钟？朋友们，想干嘛干嘛。该规则从来没有任何健康或安全相关的理由。
 

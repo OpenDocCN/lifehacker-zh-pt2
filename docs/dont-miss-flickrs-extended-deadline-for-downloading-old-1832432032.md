@@ -1,6 +1,6 @@
 # 不要错过 Flickr 延长下载旧照片的截止日期
 
-> 原文:[https://life hacker . com/don-miss-flickrs-extended-deadline-for-download-old-1832432032](https://lifehacker.com/dont-miss-flickrs-extended-deadline-for-downloading-old-1832432032)
+> 原文：<https://lifehacker.com/dont-miss-flickrs-extended-deadline-for-downloading-old-1832432032>
 
 如果你还没有从 Flickr 下载你的旧图片，现在你可以在 3 月 12 日之前完成。
 

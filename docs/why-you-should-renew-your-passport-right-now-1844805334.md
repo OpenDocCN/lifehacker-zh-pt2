@@ -1,6 +1,6 @@
 # 为什么你应该现在更新你的护照
 
-> 原文:[https://life hacker . com/why-you-should-renew-your-passport-right-now-1844805334](https://lifehacker.com/why-you-should-renew-your-passport-right-now-1844805334)
+> 原文：<https://lifehacker.com/why-you-should-renew-your-passport-right-now-1844805334>
 
 鉴于 [挥之不去的冠状病毒威胁](https://www.cnn.com/2020/08/20/health/us-coronavirus-thursday/index.html) 和 [持续的旅行限制](https://lifehacker.com/this-interactive-map-tells-you-which-countries-are-open-1843935523) ，你的下一次国际旅行可能还需要一段时间。但这并不意味着你应该等待申请或更新你的护照，因为你前面可能会有很长的队伍。
 

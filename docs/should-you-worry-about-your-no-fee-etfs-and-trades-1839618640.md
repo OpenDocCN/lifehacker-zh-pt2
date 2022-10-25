@@ -1,6 +1,6 @@
 # 你应该担心你的免费 ETF 和交易吗？
 
-> 原文:[https://life hacker . com/should-you-worry-you-no-fee-ETFs-and-trades-1839618640](https://lifehacker.com/should-you-worry-about-your-no-fee-etfs-and-trades-1839618640)
+> 原文：<https://lifehacker.com/should-you-worry-about-your-no-fee-etfs-and-trades-1839618640>
 
 我们都听说过生活中最好的东西是免费的，但是当涉及到你的投资时，“免费”是一件好事吗？投资公司最近宣布的变化可能会让你对如何管理自己的储蓄感到困惑。
 

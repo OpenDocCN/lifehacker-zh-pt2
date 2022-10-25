@@ -1,6 +1,6 @@
 # 为什么男人拒绝涂防晒霜？
 
-> 原文:[https://life hacker . com/why-do-men-拒穿防晒霜-1836918763](https://lifehacker.com/why-do-men-refuse-to-wear-sunscreen-1836918763)
+> 原文：<https://lifehacker.com/why-do-men-refuse-to-wear-sunscreen-1836918763>
 
 男女都有皮肤，都生活在同一个地球上，同一个太阳在上面，都容易得皮肤癌。(事实上， [白人男性比白人女性](https://www.aad.org/public/diseases/skin-cancer/melanoma/melanoma-strikes-men-harder) 更有可能*死于皮肤癌。)那么为什么那么多男性拒绝涂防晒霜呢？*
 

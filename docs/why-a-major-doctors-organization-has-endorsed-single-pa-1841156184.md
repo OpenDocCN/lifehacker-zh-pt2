@@ -1,6 +1,6 @@
 # 为什么一个主要的医生组织支持单一付款人医疗保健
 
-> 原文:[https://life hacker . com/why-a-major-doctors-organization-has-approved-single-pa-1841156184](https://lifehacker.com/why-a-major-doctors-organization-has-endorsed-single-pa-1841156184)
+> 原文：<https://lifehacker.com/why-a-major-doctors-organization-has-endorsed-single-pa-1841156184>
 
 越来越多的医生支持政府为许多或所有美国人提供健康保险的计划。美国医师学会刚刚发布了一份立场文件支持单一支付者和公共选择医疗政策，并解释了为什么它认为这种政策将确保“每个人都能以他们和国家能够承受的成本获得他们需要的医疗服务”
 

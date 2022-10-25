@@ -1,6 +1,6 @@
 # 接受债务咨询是什么感觉
 
-> 原文:[https://life hacker . com/what-its-like-to-get-debt-consulting-1842919878](https://lifehacker.com/what-its-like-to-get-debt-counseling-1842919878)
+> 原文：<https://lifehacker.com/what-its-like-to-get-debt-counseling-1842919878>
 
 不久前，我发现自己在 [欠下了](https://twocents.lifehacker.com/how-did-you-pay-off-your-credit-card-debt-1836186030) 太多的债务，我不知道该如何着手处理的债务。向家人或社交圈里的任何人寻求帮助，我都感到不自在，尽管我知道我需要一些支持，让我客观地看待我的处境。所以我打电话给债务顾问。
 

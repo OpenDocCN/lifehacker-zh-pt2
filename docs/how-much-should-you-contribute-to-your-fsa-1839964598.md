@@ -1,6 +1,6 @@
 # 你应该为你的 FSA 贡献多少？
 
-> 原文:[https://life hacker . com/how-do-much-you-done-to-your-FSA-1839964598](https://lifehacker.com/how-much-should-you-contribute-to-your-fsa-1839964598)
+> 原文：<https://lifehacker.com/how-much-should-you-contribute-to-your-fsa-1839964598>
 
 灵活支出账户(FSA)是用税前资金支付自付医疗费用的好方法——这意味着你只需为保险不覆盖的医疗费用留出资金，就可以省钱。但如果你以前从未有过，你可能会对该贡献多少钱感到困惑。
 

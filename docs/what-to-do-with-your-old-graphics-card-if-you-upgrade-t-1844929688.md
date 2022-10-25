@@ -1,6 +1,6 @@
 # 如果升级到 Nvidia GeForce RTX 30 GPU，如何处理旧显卡
 
-> 原文:[https://life hacker . com/what-do-with-your-old-graphics-card-if-you-upgrade-t-1844929688](https://lifehacker.com/what-to-do-with-your-old-graphics-card-if-you-upgrade-t-1844929688)
+> 原文：<https://lifehacker.com/what-to-do-with-your-old-graphics-card-if-you-upgrade-t-1844929688>
 
 现在，我们已经离开了英伟达为桌面游戏玩家发布的的巨大公告一天，我相信你们中的许多人都很想在九月挥霍一次，升级你们的显卡。无论你是想要一个合理的升级(499 美元的 RTX 3070)还是 8K，每秒 60 帧的野兽(1499 美元的 RTX 3090)，仍然有一个如何处理你的*当前*显卡的问题，无论它是一个老化的美人还是像我一样，一个相当原始的 GeF 或 ce RTX 2080。
 

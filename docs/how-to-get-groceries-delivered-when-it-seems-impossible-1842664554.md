@@ -1,6 +1,6 @@
 # 如何在看似不可能的情况下送货上门
 
-> 原文:[https://life hacker . com/how-to-get-skirts-delivered-when it-as-like-impossible-1842664554](https://lifehacker.com/how-to-get-groceries-delivered-when-it-seems-impossible-1842664554)
+> 原文：<https://lifehacker.com/how-to-get-groceries-delivered-when-it-seems-impossible-1842664554>
 
 当你第一次发现你需要在家呆几个星期的时候，不管你准备得有多充分，没有什么合理的食品店会一直藏着。无论你是在避开当地商店，还是发现你通常使用的亚马逊/Fresh Direct/沃尔玛送货方式被无限期延迟，你可能会对其他送货方式感到好奇。
 

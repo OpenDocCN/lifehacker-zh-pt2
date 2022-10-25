@@ -1,6 +1,6 @@
 # 确保您的孩子没有在此网站上赌博
 
-> 原文:[https://life hacker . com/a-争议-在线-赌博-网站正在推广-1831551989](https://lifehacker.com/a-controversial-online-gambling-site-is-being-promoted-1831551989)
+> 原文：<https://lifehacker.com/a-controversial-online-gambling-site-is-being-promoted-1831551989>
 
 一些受欢迎的 YouTubers 用户主要是儿童，他们正受到批评，因为他们与一个网站合作并推广该网站，该网站通过花钱打开一个数字“神秘盒子”来引诱用户赌博。
 

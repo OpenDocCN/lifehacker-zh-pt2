@@ -1,6 +1,6 @@
 # 什么时候可以给小费
 
-> 原文:[https://life hacker . com/when-it-ok-to-leave-a bad-tip-1838100038](https://lifehacker.com/when-its-ok-to-leave-a-bad-tip-1838100038)
+> 原文：<https://lifehacker.com/when-its-ok-to-leave-a-bad-tip-1838100038>
 
 虽然世界各地的风俗各不相同，但在美国，给小费是常态。我们知道这一点。我们接受这一点。我们已经看到小费率随着时间的推移而攀升。曾经被认为是慷慨的，现在 15%被认为是最低限度，而 20%或 25%的小费正在成为标准。
 

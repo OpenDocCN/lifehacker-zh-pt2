@@ -1,6 +1,6 @@
 # 看看黄油烤洋葱带来的简单舒适
 
-> 原文:[https://life hacker . com/see-the-simple-comfort-of-a butter-baked-onion-1842794181](https://lifehacker.com/behold-the-simple-comfort-of-a-butter-baked-onion-1842794181)
+> 原文：<https://lifehacker.com/behold-the-simple-comfort-of-a-butter-baked-onion-1842794181>
 
 洋葱是一种自信的成分，通常用于给菜肴带来强烈的涩味或浓郁的鲜味。然而，烤洋葱两者都没有，它仍然是我最喜欢的洋葱之一。黄油烤洋葱又软又甜，有一种肉汤的味道，读起来几乎像法国洋葱汤。这是一道温馨舒适的配菜，而且只需要三种配料。
 

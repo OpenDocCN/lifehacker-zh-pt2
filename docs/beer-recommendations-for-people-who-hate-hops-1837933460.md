@@ -1,6 +1,6 @@
 # 问凯特关于啤酒的问题:你向讨厌啤酒花的人推荐什么啤酒？
 
-> 原文:[https://the take out . com/beer-recommendations-for-people-hate-hops-1837933460](https://thetakeout.com/beer-recommendations-for-people-who-hate-hops-1837933460)
+> 原文：<https://thetakeout.com/beer-recommendations-for-people-who-hate-hops-1837933460>
 
 *欢迎来到* [*向凯特询问啤酒*](https://thetakeout.com/tag/ask-kate-about-beer) *，其中*外卖*的常驻啤酒专家回答了你曾经想知道的关于啤酒却又醉得不敢问的一切。有问题吗？把它拍给 beer@thetakeout.com。*T12】
 

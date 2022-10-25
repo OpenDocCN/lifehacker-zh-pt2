@@ -1,6 +1,6 @@
 # 用这个免费的安卓游戏把你的手机送回 90 年代
 
-> 原文:[https://life hacker . com/send-your-phone-back-to-the-90-with this-free-Android-1840795140](https://lifehacker.com/send-your-phone-back-to-the-90s-with-this-free-android-1840795140)
+> 原文：<https://lifehacker.com/send-your-phone-back-to-the-90s-with-this-free-android-1840795140>
 
 即使我不太记得 90 年代，但我肯定记得所有 90 年代的老技术，尤其是老 Windows 操作系统的经典外观和感觉。所以当我看到 [Android Central 的](https://www.androidcentral.com/progressbar95-hyper-casual-game-turns-your-phone-90s-era-computer) 关于免费玩的 Android 游戏 [Progressbar95](https://play.google.com/store/apps/details?id=com.spookyhousestudios.progressbar95) 的帖子时，我知道我必须试一试。
 

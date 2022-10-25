@@ -1,6 +1,6 @@
 # 给手机消毒的注意事项
 
-> 原文:[https://life hacker . com/the-dos-and-donts-of-sanitizing-your-phone-1842400895](https://lifehacker.com/the-dos-and-donts-of-disinfecting-your-phone-1842400895)
+> 原文：<https://lifehacker.com/the-dos-and-donts-of-disinfecting-your-phone-1842400895>
 
 在这一点上，我们都很清楚 CDC 建议 [洗手](https://vitals.lifehacker.com/the-cdc-approved-method-to-washing-your-hands-step-by-1842377183) 对抗冠状病毒。然而，我们手机的清洁度却越来越不受重视。在上面的视频中，我讲述了在不损坏智能手机的情况下给手机消毒的基本注意事项。
 

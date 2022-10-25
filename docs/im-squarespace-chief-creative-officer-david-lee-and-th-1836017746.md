@@ -1,6 +1,6 @@
 # im squarespace chief creative officer david lee and th 1836017746
 
-> 原文:[https://life hacker . com/im-squarespace-chief-creative-officer-David-lee-and-th-1836017746](https://lifehacker.com/im-squarespace-chief-creative-officer-david-lee-and-th-1836017746)
+> 原文：<https://lifehacker.com/im-squarespace-chief-creative-officer-david-lee-and-th-1836017746>
 
 [Squarespace](https://www.squarespace.com/) ，除了资助播客行业的半壁江山，更是非专业人士搭建看起来专业的网站的标准首选。我们采访了一位真正的专业人士，该公司的首席创意官，谈论了他的职业生涯，他的摄影工作流程，为什么他会在 5:30 醒来，以及他是如何完成工作的。
 

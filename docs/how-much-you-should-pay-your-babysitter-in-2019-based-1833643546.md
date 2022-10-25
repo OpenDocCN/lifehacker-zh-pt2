@@ -1,6 +1,6 @@
 # 根据你住的地方，2019 年你应该付给你的保姆多少钱
 
-> 原文:[https://life hacker . com/2019-based-1833643546](https://lifehacker.com/how-much-you-should-pay-your-babysitter-in-2019-based-1833643546)
+> 原文：<https://lifehacker.com/how-much-you-should-pay-your-babysitter-in-2019-based-1833643546>
 
 计算出付给保姆多少钱是太多还是太少是一件棘手的事情。你想要公平地付出(毕竟，这个人是在你不在的时候让你的孩子活着的人)，但是如果你在关系开始时就开始得太高，那就真的没有回头路了。
 

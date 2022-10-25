@@ -1,6 +1,6 @@
 # 这种三种成分的香肠肉汁将会改善你的圣诞节早晨
 
-> 原文:[https://life hacker . com/this-three-component-香肠肉汁将改善你的 c-1831176919](https://lifehacker.com/this-three-ingredient-sausage-gravy-will-improve-your-c-1831176919)
+> 原文：<https://lifehacker.com/this-three-ingredient-sausage-gravy-will-improve-your-c-1831176919>
 
 圣诞节早上是忙碌的时候，尤其是如果你有孩子的话，但这也是一个特殊的，放纵的早餐时间，可以悠闲地吃，同时打开许多礼物，啜饮含羞草。一大盘(或一碗)饼干和肉汁正是如此。
 

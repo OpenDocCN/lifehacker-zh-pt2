@@ -1,6 +1,6 @@
 # 如何和小孩一起去露营
 
-> 原文:[https://life hacker . com/how-to-go-camping-with little-kids-1836738069](https://lifehacker.com/how-to-go-camping-with-little-kids-1836738069)
+> 原文：<https://lifehacker.com/how-to-go-camping-with-little-kids-1836738069>
 
 对于门外汉来说，和小孩子一起露营似乎是一个即将发生的戏剧性的晚宴故事。有太多的未知。一团烧焦的棉花糖会粘在你孩子的头发上吗？他会在半夜跋涉去洗手间的路上，脸埋在泥土里吗？她会因为想看*爪子巡逻*而在到达后的前两个小时求着回家吗？很有可能。无论如何你都应该这么做。
 

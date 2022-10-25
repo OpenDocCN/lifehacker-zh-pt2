@@ -1,6 +1,6 @@
 # 使用 Github 的新赞助计划资助您最喜欢的开源项目
 
-> 原文:[https://life hacker . com/fund-your-favorite-open-source-projects-using-githubs-n-1834983571](https://lifehacker.com/fund-your-favorite-open-source-projects-using-githubs-n-1834983571)
+> 原文：<https://lifehacker.com/fund-your-favorite-open-source-projects-using-githubs-n-1834983571>
 
 我们是开源软件的忠实粉丝，也是推动这些项目的自由、安全和透明精神的忠实粉丝。但是软件开发和维护并不便宜，即使是最有能力的开源开发者也不时需要帮助。幸运的是，Github 使得直接支持你关心的项目和程序员变得更加容易。
 

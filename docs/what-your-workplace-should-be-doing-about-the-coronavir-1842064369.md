@@ -1,6 +1,6 @@
 # 你的工作场所应该如何应对冠状病毒
 
-> 原文:[https://life hacker . com/what-your-workplace-should-do-the-the-coronavir-1842064369](https://lifehacker.com/what-your-workplace-should-be-doing-about-the-coronavir-1842064369)
+> 原文：<https://lifehacker.com/what-your-workplace-should-be-doing-about-the-coronavir-1842064369>
 
 我们知道个人应该如何保护自己免受新冠肺炎病毒的侵害:如果生病了，主要是通过洗手和呆在家里。但是工作场所在这方面有更多的责任，因为它们可能是病毒传播的地方。
 

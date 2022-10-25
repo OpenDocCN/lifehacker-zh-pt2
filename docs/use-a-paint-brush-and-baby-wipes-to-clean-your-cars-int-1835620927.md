@@ -1,6 +1,6 @@
 # 像专业人士一样使用油漆刷和婴儿湿巾清洁汽车内部
 
-> 原文:[https://life hacker . com/use-a-paint-brush-and-baby-wipes-to-clean-your-cars-int-1835620927](https://lifehacker.com/use-a-paint-brush-and-baby-wipes-to-clean-your-cars-int-1835620927)
+> 原文：<https://lifehacker.com/use-a-paint-brush-and-baby-wipes-to-clean-your-cars-int-1835620927>
 
 你的车的内部应该和外部一样漂亮。这就是为什么我们收集了一些我们最喜欢的汽车窍门，为你的夏季公路旅行做好准备。
 

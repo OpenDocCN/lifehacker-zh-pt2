@@ -1,6 +1,6 @@
 # 如何快速将你的 Twitter 时间表切换到时间顺序
 
-> 原文:[https://life hacker . com/how-to-fast-switch-your-Twitter-timeline-to-chronolo-1831204218](https://lifehacker.com/how-to-quickly-switch-your-twitter-timeline-to-chronolo-1831204218)
+> 原文：<https://lifehacker.com/how-to-quickly-switch-your-twitter-timeline-to-chronolo-1831204218>
 
 Twitter 只是让你更容易在时间线上的最新推文和热门推文之间切换你的家庭时间线——只要你使用的是 iOS 设备。
 

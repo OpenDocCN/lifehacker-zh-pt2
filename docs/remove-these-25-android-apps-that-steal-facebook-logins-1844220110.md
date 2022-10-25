@@ -1,6 +1,6 @@
 # 删除这 25 个窃取脸书登录信息的安卓应用
 
-> 原文:[https://life hacker . com/remove-these-25-Android-apps-that-steak-Facebook-logins-1844220110](https://lifehacker.com/remove-these-25-android-apps-that-steal-facebook-logins-1844220110)
+> 原文：<https://lifehacker.com/remove-these-25-android-apps-that-steal-facebook-logins-1844220110>
 
 在法国网络安全公司 [Evina](https://www.evina.com/they-steal-your-facebook) 发现其包含脸书黑客恶意软件后，谷歌已经从谷歌 Play 商店移除了 25 款恶意应用。这意味着是时候再次检查你的 Android 设备，以确保你没有愚蠢地(或意外地)安装了一个蹩脚的应用程序。
 

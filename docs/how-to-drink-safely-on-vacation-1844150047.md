@@ -1,6 +1,6 @@
 # 度假如何安全饮酒
 
-> 原文:[https://life hacker . com/how-to-drink-safely-on-vacation-1844150047](https://lifehacker.com/how-to-drink-safely-on-vacation-1844150047)
+> 原文：<https://lifehacker.com/how-to-drink-safely-on-vacation-1844150047>
 
 度假时，没有什么能比得上一杯提神的鸡尾酒、莫吉托或一杯啤酒。在现在的情况下——旅行受到限制，需要社交距离——我们都会在某个时候，如果不是现在，肯定需要某种形式的假期。当那一天到来时，毫无疑问，饮料将会源源不断。
 

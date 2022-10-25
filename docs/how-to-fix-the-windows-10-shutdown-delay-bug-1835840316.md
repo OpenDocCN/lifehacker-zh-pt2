@@ -1,6 +1,6 @@
 # 如何修复 Windows 10 关机延迟 Bug
 
-> 原文:[https://life hacker . com/how-to-fix-the-windows-10-shut down-delay-bug-1835840316](https://lifehacker.com/how-to-fix-the-windows-10-shutdown-delay-bug-1835840316)
+> 原文：<https://lifehacker.com/how-to-fix-the-windows-10-shutdown-delay-bug-1835840316>
 
 尽管最近包含了新的 [自动故障排除和解决问题的工具](https://lifehacker.com/solve-windows-10-issues-automatically-with-the-new-reco-1835377734) ，但 Windows 10 的 [版本 1809 更新](https://lifehacker.com/the-best-new-features-in-windows-10s-may-2019-update-1834927597) 引入了相当多的 bug。一个最新的(也是更烦人的)怪癖是阻止你的电脑及时关机或进入睡眠状态。
 

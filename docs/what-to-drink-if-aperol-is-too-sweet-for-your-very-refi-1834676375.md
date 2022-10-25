@@ -1,6 +1,6 @@
 # 如果开胃酒对你精致的味觉来说太甜了，该喝什么
 
-> 原文:[https://life hacker . com/what-to-drink-if-aperol-is too-sweet for-you-very-refi-1834676375](https://lifehacker.com/what-to-drink-if-aperol-is-too-sweet-for-your-very-refi-1834676375)
+> 原文：<https://lifehacker.com/what-to-drink-if-aperol-is-too-sweet-for-your-very-refi-1834676375>
 
 如果你参与了最近关于某种夏季饮料的讨论——或者我们应该说“[spritz course](https://twitter.com/yatinbrooklyn/status/1126864721918005250)”——你现在知道有些人不喜欢 [这种开胃酒 spritz](https://www.nytimes.com/2019/05/09/dining/drinks/aperol-spritz.html) ，并觉得它“像大热天足球练习后的卡布里太阳”，但“不是以一种好的方式”
 

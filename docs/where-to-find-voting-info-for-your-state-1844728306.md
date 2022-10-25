@@ -1,6 +1,6 @@
 # 在哪里可以找到您所在州的投票信息
 
-> 原文:[https://life hacker . com/where-to-find-voting-info-for-your-state-1844728306](https://lifehacker.com/where-to-find-voting-info-for-your-state-1844728306)
+> 原文：<https://lifehacker.com/where-to-find-voting-info-for-your-state-1844728306>
 
 2020 年大选即将到来，虽然 11 月 3 日是一个很容易记住的日期，但如果你打算提前投票或通过邮件投票，选举日可能会提前几周。由于每个州的投票规则和截止日期都有所不同，现在是时候制定一个计划了。
 

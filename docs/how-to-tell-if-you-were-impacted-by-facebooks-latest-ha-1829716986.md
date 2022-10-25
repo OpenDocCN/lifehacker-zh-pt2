@@ -1,6 +1,6 @@
 # 如何判断你是否受到了脸书最新黑客攻击的影响
 
-> 原文:[https://life hacker . com/how-to-tell-if-you-be-impact-by-face books-latest-ha-1829716986](https://lifehacker.com/how-to-tell-if-you-were-impacted-by-facebooks-latest-ha-1829716986)
+> 原文：<https://lifehacker.com/how-to-tell-if-you-were-impacted-by-facebooks-latest-ha-1829716986>
 
 上个月，脸书透露，其工程团队发现了一个问题，黑客能够利用该网站的“查看为”功能中的漏洞。该功能允许用户看到他们的个人资料对其他人来说是什么样子，但黑客能够利用它来窃取脸书访问令牌并接管人们的账户。访问令牌的工作方式有点像一组数字密钥，它允许你保持登录脸书应用程序，而不是每次想访问网站时都输入密码。
 

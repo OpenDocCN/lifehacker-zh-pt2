@@ -1,6 +1,6 @@
 # 在使用促销的 APR 之前，要深思熟虑
 
-> 原文:[https://life hacker . com/think-long-and-hard-before-use-a-promotive-apr-1835159504](https://lifehacker.com/think-long-and-hard-before-using-a-promotional-apr-1835159504)
+> 原文：<https://lifehacker.com/think-long-and-hard-before-using-a-promotional-apr-1835159504>
 
 信用卡零利率优惠现在如此普遍，以至于我通常会删除或扔掉它们。当然，另一个就在眼前，如果我想要的话，因为我的信用很好。但是它们总是有一点点诱人，这些优惠带来零——零，零！—新购买的 6 个月、12 个月或 18 个月的利息。或者，这些优惠提供了将余额从高息卡转移到他们的卡上的机会，可以享受几个月的无息缓冲期。
 

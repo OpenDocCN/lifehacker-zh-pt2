@@ -1,6 +1,6 @@
 # 尽快使用你的购物卡
 
-> 原文:[https://lifehacker.com/use-your-gift-cards-asap-1837579213](https://lifehacker.com/use-your-gift-cards-asap-1837579213)
+> 原文：<https://lifehacker.com/use-your-gift-cards-asap-1837579213>
 
 下次你收到礼品卡的时候，不要把它留到特殊的场合——也不要把它扔进抽屉里然后忘记它。尽快使用你的信用卡，否则你就是在给公司提供无息贷款。
 

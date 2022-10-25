@@ -1,6 +1,6 @@
 # 用干蘑菇做更好的乔氏‘鲜味粉’
 
-> 原文:[https://life hacker . com/make-a-better-trader-joes-umami-powder-with-dry-mushr-1837621425](https://lifehacker.com/make-a-better-trader-joes-umami-powder-with-dried-mushr-1837621425)
+> 原文：<https://lifehacker.com/make-a-better-trader-joes-umami-powder-with-dried-mushr-1837621425>
 
 当乔氏 [多用途鲜味调味料](https://www.traderjoes.com/digin/post/umami-seasoning-blend) 首次向世界发布时，我收到了许多关于它的文字、DM 和电子邮件，因为 [我的品牌非常强大](https://twitter.com/PenLlawen/status/1166021027492716544) 。作为第五种味道的爱好者，我对这种粉末感到兴奋，特别是因为 TJ's 已经停止了他们的鲜味酱。
 

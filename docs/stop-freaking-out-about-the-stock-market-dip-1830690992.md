@@ -1,6 +1,6 @@
 # 不要为股市下跌而惊慌失措
 
-> 原文:[https://life hacker . com/stop-freaking-out-on-the-stock-market-dip-1830690992](https://lifehacker.com/stop-freaking-out-about-the-stock-market-dip-1830690992)
+> 原文：<https://lifehacker.com/stop-freaking-out-about-the-stock-market-dip-1830690992>
 
 股票市场已经从今年的高点降温。这很好！真的。有 [很多原因](https://www.ellevest.com/magazine/newsletter/2018-11-27) 造成这种情况，但结果是，除非你昨天退休了或者打算马上退休，否则你或多或少可以忽略这种波动。(如果你即将退休， [阅读这篇文章](https://twocents.lifehacker.com/what-to-do-before-the-next-market-crash-1823562387) ，了解如何投资的一些想法。)
 

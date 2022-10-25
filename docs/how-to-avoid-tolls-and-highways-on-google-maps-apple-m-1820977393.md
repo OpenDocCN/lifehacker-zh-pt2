@@ -1,6 +1,6 @@
 # 如何在谷歌地图、苹果地图和 Waze 上避开过路费和高速公路
 
-> 原文:[https://life hacker . com/how-to-avoid-tolls-and-highways-on-Google-maps-apple-m-1820977393](https://lifehacker.com/how-to-avoid-tolls-and-highways-on-google-maps-apple-m-1820977393)
+> 原文：<https://lifehacker.com/how-to-avoid-tolls-and-highways-on-google-maps-apple-m-1820977393>
 
 像 [【谷歌地图】](https://lifehacker.com/how-to-make-the-most-of-google-maps-1793442153)[苹果地图](https://lifehacker.com/set-walking-directions-as-the-default-in-apple-maps-1584806266) 和 [Waze](https://lifehacker.com/waze-adds-hands-free-controls-motorcycle-directions-an-1820846212#_ga=2.264085260.1292262190.1511760428-1167719708.1504278915) 这样的应用程序已经将驾驶中几乎所有的猜测都拿掉了(至少在 [自动驾驶汽车](https://lifehacker.com/what-self-driving-cars-can-teach-us-about-better-drivin-1786843323) 变得更加主流之前)。输入你的目的地，然后按照路线指引直到你到达目的地——就这么简单。
 

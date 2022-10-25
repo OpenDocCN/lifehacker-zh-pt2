@@ -1,6 +1,6 @@
 # 从 Alamo Drafthouse 的“虚拟影院”租借独特的艺术电影
 
-> 原文:[https://life hacker . com/rent-unique-art-films-from-alamo-draft-houses-virtual-c-1843360943](https://lifehacker.com/rent-unique-art-films-from-alamo-draft-houses-virtual-c-1843360943)
+> 原文：<https://lifehacker.com/rent-unique-art-films-from-alamo-draft-houses-virtual-c-1843360943>
 
 全国大部分地区的电影院仍然关闭营业；然而，Alamo Drafth ouse 在某种程度上打开了它的虚拟之门，允许你在它的网站上租赁和购买相当不错的艺术电影。
 

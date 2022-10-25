@@ -1,6 +1,6 @@
 # 父母们，多给自己拍些照片
 
-> 原文:[https://life hacker . com/parents-take-more-photos-of-yourself-1844326074](https://lifehacker.com/parents-take-more-pictures-of-yourself-1844326074)
+> 原文：<https://lifehacker.com/parents-take-more-pictures-of-yourself-1844326074>
 
 父母——是的，尤其是母亲——回避镜头有很多原因。我们已经很多年没有好好睡一觉了，我们眼睛下面的黑眼圈可以证明这一点。或者我们刚刚醒来，睡衣上有洞，头发蓬乱。或者几个月或几年后我们还没有减掉婴儿体重。另外，你可以*告诉*这将是一个不讨好的角度。
 

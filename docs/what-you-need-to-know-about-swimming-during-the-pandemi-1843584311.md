@@ -1,6 +1,6 @@
 # 在疫情游泳你需要知道什么
 
-> 原文:[https://life hacker . com/what-you-need-know-on-the-pandemi-1843584311](https://lifehacker.com/what-you-need-to-know-about-swimming-during-the-pandemi-1843584311)
+> 原文：<https://lifehacker.com/what-you-need-to-know-about-swimming-during-the-pandemi-1843584311>
 
 这可能感觉像是 3 月的第 13 周，但根据日历，这几乎是阵亡将士纪念日周末——夏天的非正式开始。这通常是我们收拾行李前往新开的海滩或的时候，在一个朋友的后院游泳池周围的甲板上野餐，但这是新冠肺炎 的 [夏天，一切都不同。如果你对你是否可以(或应该)在游泳池、海滩或其他水域游泳有疑问，你并不孤单:在这次疫情中，我们都在想办法。](https://lifehacker.com/tag/coronavirus) 
 

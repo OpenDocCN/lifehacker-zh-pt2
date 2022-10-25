@@ -1,6 +1,6 @@
 # 用 Play Points 赢取在 Google Play 上购物的奖励
 
-> 原文:[https://life hacker . com/earn-rewards-for-shopping-on-Google-play-play-poin-1839748280](https://lifehacker.com/earn-rewards-for-shopping-on-google-play-with-play-poin-1839748280)
+> 原文：<https://lifehacker.com/earn-rewards-for-shopping-on-google-play-with-play-poin-1839748280>
 
 现在，从 Google Play 下载东西可以获得奖励。谷歌 [本周在美国推出了 Google Play 积分计划](https://www.blog.google/products/google-play/google-play-points-rewards-program-all-ways-you-play/) ，这是一个免费的计划，允许你通过使用 Google Play 购买商品来赚取积分，然后可以兑换成折扣和特殊物品，如《糖果粉碎传奇》和《精灵宝可梦 GO》等游戏，或者电影、游戏或应用程序的积分。
 

@@ -1,6 +1,6 @@
 # 收到别人的邮件怎么办
 
-> 原文:[https://life hacker . com/what-do-I-do-when-I-receive-someone-elses-mail-1821882594](https://lifehacker.com/what-do-i-do-when-i-receive-someone-elses-mail-1821882594)
+> 原文：<https://lifehacker.com/what-do-i-do-when-i-receive-someone-elses-mail-1821882594>
 
 错误时有发生，尤其是在邮件方面。承运人有时会读错地址，信件可能会在卡车后部移动，人们在没有更新地址的情况下移动——所有这些情况都可能导致您收到本应发给另一个收件人的邮件。如果你收到不属于你的邮件，你应该这么做。
 

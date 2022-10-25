@@ -1,6 +1,6 @@
 # 这款成人电动滑板车可能会取代我对第二辆车的需求
 
-> 原文:[https://gizmodo . com/this-成人电动滑板车-可能取代我的需求-1830226030](https://gizmodo.com/this-electric-scooter-for-adults-might-replace-my-need-1830226030)
+> 原文：<https://gizmodo.com/this-electric-scooter-for-adults-might-replace-my-need-1830226030>
 
 尽管电动滑板车作为汽车的另一种替代品在三藩市 等城市越来越受欢迎，但电动滑板车似乎一直只是我小时候喜欢的一种玩具的更昂贵版本。但是 [Unagi，一款看起来实际上是为成年人设计的电动滑板车](https://unagiscooters.com/) ，让我对它们的潜在实用性有了新的认识。
 

@@ -1,6 +1,6 @@
 # 你需要对你的车做的预防性维护(什么时候)
 
-> 原文:[https://life hacker . com/the-preventive-maintenance-your-car-1394196018](https://lifehacker.com/the-preventative-maintenance-you-need-to-do-on-your-car-1394196018)
+> 原文：<https://lifehacker.com/the-preventative-maintenance-you-need-to-do-on-your-car-1394196018>
 
 如果你有一辆车，除非出了问题，否则忽视任何类型的维护都是很有诱惑力的。我们可能不用告诉你这是个坏主意。然而，并不是每个人都同意什么是预防性维护，你应该做什么，什么时候应该做。让我们澄清这一点，并给你一些适用于任何车辆的提示。
 

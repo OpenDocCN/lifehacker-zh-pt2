@@ -1,6 +1,6 @@
 # 你最喜欢的节俭秘诀是什么？
 
-> 原文:[https://life hacker . com/whats-your-favorite-fruit-hack-1838038359](https://lifehacker.com/whats-your-favorite-frugal-hack-1838038359)
+> 原文：<https://lifehacker.com/whats-your-favorite-frugal-hack-1838038359>
 
 你的节俭秘诀是什么？你是每天打包午餐，还是自己做拿铁？你会提前几个月把自己放在图书馆的预约名单上，这样你就能成为新书发布时第一批阅读的人之一吗？每次发工资的时候，你会自动把钱存入你的储蓄和投资账户，或者把现金塞进信封，给自己每个月在餐馆或服装上的支出设定限额吗？你自己剪头发吗？
 

@@ -1,6 +1,6 @@
 # 如果你今年不能使用你的航空公司精英会员身份，你可以暂时搁置
 
-> 原文:[https://life hacker . com/you-may-able-to-put-your-airline-elite-status-on-h-1841084329](https://lifehacker.com/you-might-be-able-to-put-your-airline-elite-status-on-h-1841084329)
+> 原文：<https://lifehacker.com/you-might-be-able-to-put-your-airline-elite-status-on-h-1841084329>
 
 精英航空公司的地位可以是伟大的。拥有航空公司的地位通常会提供额外的好处，比如升级座位、免费托运行李和更早登机。对于一年前在一家航空公司坐过很多次飞机的人来说，这是一个巨大的福利。但是，如果你今年飞了很多次，但是像家里有了新生儿这样的事情会阻止你在接下来的一年里到达友好的天空呢？事实证明，一些航空公司会让你暂时保留精英会员的身份。
 

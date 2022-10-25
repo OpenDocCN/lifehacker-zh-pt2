@@ -1,6 +1,6 @@
 # 你的孩子假期想要的电子游戏
 
-> 原文:[https://life hacker . com/the-video-games-your-kid-wants-for-the-holiday-1840343657](https://lifehacker.com/the-video-games-your-kid-wants-for-the-holidays-1840343657)
+> 原文：<https://lifehacker.com/the-video-games-your-kid-wants-for-the-holidays-1840343657>
 
 如果你的孩子想在这个假期玩电子游戏，而你不知道该为这个小书呆子或书呆子挑选什么，这里是我的年龄分级游戏指南，你的孩子会很高兴地发现这些游戏被塞在他们的袜子里或 Festivus 杆下。
 

@@ -1,6 +1,6 @@
 # 股市怎么了？
 
-> 原文:[https://life hacker . com/what ' s going-on-the-stock-market-1837270931](https://lifehacker.com/whats-going-on-with-the-stock-market-1837270931)
+> 原文：<https://lifehacker.com/whats-going-on-with-the-stock-market-1837270931>
 
 本周股票市场异常波动——下跌，然后上涨，再下跌。
 

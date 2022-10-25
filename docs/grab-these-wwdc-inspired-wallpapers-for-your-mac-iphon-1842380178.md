@@ -1,6 +1,6 @@
 # 为你的 Mac、iPhone 和 iPad 抓取这些 WWDC 风格的壁纸
 
-> 原文:[https://life hacker . com/grab-these-wwdc-inspired-wallpapers-for-your-MAC-iphon-1842380178](https://lifehacker.com/grab-these-wwdc-inspired-wallpapers-for-your-mac-iphon-1842380178)
+> 原文：<https://lifehacker.com/grab-these-wwdc-inspired-wallpapers-for-your-mac-iphon-1842380178>
 
 消费科技行业因大型会议和现场活动而蓬勃发展，但由于新冠肺炎，许多这些活动在 2020 年被推迟或取消。苹果的 WWDC 事件是受影响的事件之一，但六月的会议并没有被取消，而是被重新制作成一个完全数字化的事件 ，进行现场直播的主题演讲。
 

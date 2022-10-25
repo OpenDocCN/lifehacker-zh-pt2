@@ -1,6 +1,6 @@
 # 我是 Adrienne Willis，木材场的执行和艺术总监，这就是我的工作方式
 
-> 原文:[https://life hacker . com/im-adrienne-Willis-executive-and-art-director-of-1830102216](https://lifehacker.com/im-adrienne-willis-executive-and-artistic-director-of-1830102216)
+> 原文：<https://lifehacker.com/im-adrienne-willis-executive-and-artistic-director-of-1830102216>
 
 [贮木场](https://www.lumberyard.org/) 电影和表演艺术中心过着双重生活。在现场戏剧节目的季节之间，这个哈德逊谷场地出租空间用于电影拍摄、婚礼和会议。租金利润和演出门票资助艺术和社区项目。阿德里安娜·威利斯(Adrienne Willis)作为执行和艺术总监管理着这个非营利场所的两边。我们和她讨论了如何将组织从华盛顿特区转移到其他地方，与演员、赞助商、电视和电影制片厂合作，以及她的队友如何标记紧急邮件。
 

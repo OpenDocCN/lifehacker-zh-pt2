@@ -1,6 +1,6 @@
 # 在你为你的房子重新贷款之前，计算一下潜在的成本
 
-> 原文:[https://life hacker . com/before-you-refinance-your-home-calculate-the potential-1837032473](https://lifehacker.com/before-you-refinance-your-home-calculate-the-potential-1837032473)
+> 原文：<https://lifehacker.com/before-you-refinance-your-home-calculate-the-potential-1837032473>
 
 抵押贷款利率为 [自 2016 年](https://lifehacker.com/what-the-federal-reserve-interest-rate-cut-might-mean-f-1836790877) 以来的最低水平。这是否意味着是时候为你的房子再融资了？良好的...也许吧。
 

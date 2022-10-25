@@ -1,6 +1,6 @@
 # 如何让你的孩子多喝水
 
-> 原文:[https://life hacker . com/how-to-get-your-kids-to-drink-more-water-1844595484](https://lifehacker.com/how-to-get-your-kids-to-drink-more-water-1844595484)
+> 原文：<https://lifehacker.com/how-to-get-your-kids-to-drink-more-water-1844595484>
 
 一些孩子会高兴地喝一整天的水，而另一些孩子宁愿像葡萄干一样枯萎，也不愿放弃他们的牛奶或果汁，屈服于平淡无奇的水的潮湿温和。一旦一个孩子有了果汁，他们往往会更喜欢果汁(谁不会呢？)——但即使是小孩子也需要定期喝水来保持水分，并养成长期健康的习惯。
 

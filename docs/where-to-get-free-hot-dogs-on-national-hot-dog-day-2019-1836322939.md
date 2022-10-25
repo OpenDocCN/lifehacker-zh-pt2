@@ -1,6 +1,6 @@
 # 2019 年全国热狗日在哪里可以获得免费热狗
 
-> 原文:[https://life hacker . com/where-to-get-free-dogs-on-national-dog-day-2019-1836322939](https://lifehacker.com/where-to-get-free-hot-dogs-on-national-hot-dog-day-2019-1836322939)
+> 原文：<https://lifehacker.com/where-to-get-free-hot-dogs-on-national-hot-dog-day-2019-1836322939>
 
 7 月 17 日星期三是全国热狗日，你可以在几家连锁店买到便宜或免费的热狗。庆祝 [热烧烤夏季](https://www.vice.com/en_us/article/43je7w/megan-thee-stallion-fans-what-is-hot-girl-summer-wireless-festival) 与我们发现的最好的热狗交易。
 

@@ -1,6 +1,6 @@
 # 用金钱购买“快乐时光”
 
-> 原文:[https://life hacker . com/use-money-to-buffer-time-1833773568](https://lifehacker.com/use-money-to-buy-happier-time-1833773568)
+> 原文：<https://lifehacker.com/use-money-to-buy-happier-time-1833773568>
 
 你会花 40 美元来节省时间吗？
 

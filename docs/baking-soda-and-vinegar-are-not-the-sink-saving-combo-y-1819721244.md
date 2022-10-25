@@ -1,6 +1,6 @@
 # 小苏打和醋并不是你所认为的可以节省水槽的组合
 
-> 原文:[https://life hacker . com/baking-soda-and-ether-not-the-sink-saving-combo-y-1819721244](https://lifehacker.com/baking-soda-and-vinegar-are-not-the-sink-saving-combo-y-1819721244)
+> 原文：<https://lifehacker.com/baking-soda-and-vinegar-are-not-the-sink-saving-combo-y-1819721244>
 
 尽管尽可能选择天然的家庭清洁解决方案很好，但它们并不总是最有效的选择。以小苏打和醋为例。这些餐具室的主食是天然清洁产品中最常见的两种成分，如果你见过科学博览会火山，你就会知道为什么了。
 

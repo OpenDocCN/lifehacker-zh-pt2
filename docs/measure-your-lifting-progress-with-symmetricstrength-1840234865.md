@@ -1,6 +1,6 @@
 # 用场地对称强度测量你的提升进度
 
-> 原文:[https://life hacker . com/measure-your-lifting-progress-with-symmetric strength-1840234865](https://lifehacker.com/measure-your-lifting-progress-with-symmetricstrength-1840234865)
+> 原文：<https://lifehacker.com/measure-your-lifting-progress-with-symmetricstrength-1840234865>
 
 武断的实力分类是愚蠢的。我知道这一点，但我一直在各种图表和工具上查找我的提升比较。最好玩，也最好玩，其中:。
 

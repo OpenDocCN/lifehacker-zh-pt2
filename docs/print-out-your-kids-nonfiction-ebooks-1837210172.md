@@ -1,6 +1,6 @@
 # 打印出你孩子的非小说类电子书
 
-> 原文:[https://life hacker . com/print-out-your-kids-non fiction-ebooks-1837210172](https://lifehacker.com/print-out-your-kids-nonfiction-ebooks-1837210172)
+> 原文：<https://lifehacker.com/print-out-your-kids-nonfiction-ebooks-1837210172>
 
 我没有和我的孩子一起读很多电子书，但我肯定能体会到它们的便利。它们非常适合旅行(听听刚刚帮我女儿把装满巨型活动书籍的背包搬上飞机的人是怎么说的)。它们每本书的成本也比印刷版低，可能还包括额外的功能，如内置词典、阅读功能以及对冥王星的行星地位等不断发展的主题的更新。在学校里，学生们正在迅速走向无纸化的未来——教科书出版公司培生最近宣布，它将“数字优先”，放弃传统的印刷模式。作为一个关注 [【下降九个】](https://offspring.lifehacker.com/why-kids-stop-reading-for-fun-by-age-9-and-what-to-do-1833554143) 阅读趋势的家长，我完全支持 [鼓励孩子以任何形式阅读](https://offspring.lifehacker.com/get-your-teen-to-read-a-classic-novel-with-instagram-st-1829973548)——如果是在屏幕上，那就这样吧。
 

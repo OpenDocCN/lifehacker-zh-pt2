@@ -1,6 +1,6 @@
 # 你应该申请苹果和高盛的信用卡吗？
 
-> 原文:[https://life hacker . com/should-you-get-the-apple-and-Goldman-Sachs-credit-card-1832792958](https://lifehacker.com/should-you-get-the-apple-and-goldman-sachs-credit-card-1832792958)
+> 原文：<https://lifehacker.com/should-you-get-the-apple-and-goldman-sachs-credit-card-1832792958>
 
 据《华尔街日报》[](https://www.wsj.com/articles/apple-goldman-sachs-team-up-on-credit-card-paired-with-iphone-11550750400)*T5】报道，苹果和高盛将于今年春天推出联合信用卡。该卡预计将与新的苹果钱包功能相结合，允许持卡人“设定消费目标，跟踪他们的奖励和管理他们的余额。”* 
 

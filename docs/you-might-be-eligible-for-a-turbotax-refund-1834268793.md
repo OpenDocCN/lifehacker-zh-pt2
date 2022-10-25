@@ -1,6 +1,6 @@
 # 你可能有资格获得涡轮退税
 
-> 原文:[https://life hacker . com/you-may-be-eligible-for-a-turbotax-refund-1834268793](https://lifehacker.com/you-might-be-eligible-for-a-turbotax-refund-1834268793)
+> 原文：<https://lifehacker.com/you-might-be-eligible-for-a-turbotax-refund-1834268793>
 
 如果你的收入低于 34，000 美元，并向 TurboTax 缴纳了税款，那么是时候打电话要求退款了。
 

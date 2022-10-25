@@ -1,6 +1,6 @@
 # 《点头》的主持人被解雇了，你能从中学到什么
 
-> 原文:[https://life hacker . com/1831040396](https://lifehacker.com/what-to-learn-from-getting-fired-with-the-hosts-of-the-1831040396)
+> 原文：<https://lifehacker.com/what-to-learn-from-getting-fired-with-the-hosts-of-the-1831040396>
 
 在《升级版》关于“如何失败”的一集非常特别的现场直播中，*的布列塔尼·卢瑟和艾瑞克·艾丁斯分享了他们认为对方最大的失败。*
 

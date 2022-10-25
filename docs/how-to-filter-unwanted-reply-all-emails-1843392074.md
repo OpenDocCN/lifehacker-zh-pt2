@@ -1,6 +1,6 @@
 # 如何过滤不想要的“全部回复”邮件
 
-> 原文:[https://life hacker . com/how-to-filter-unwanted-reply-all-emails-1843392074](https://lifehacker.com/how-to-filter-unwanted-reply-all-emails-1843392074)
+> 原文：<https://lifehacker.com/how-to-filter-unwanted-reply-all-emails-1843392074>
 
 如果你曾经在公司工作过，你肯定会遇到“回复所有人”失败的噩梦。这是指有人意外地(或故意地)向*途径*发送了一封电子邮件，发送的人数超过了他们应该发送的人数，甚至有更多的人通过“回复所有人” 请求从对话和/或分发名单中删除。
 

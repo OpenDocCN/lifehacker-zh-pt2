@@ -1,6 +1,6 @@
 # 远离你的朋友，尝试新的配饰
 
-> 原文:[https://life hacker . com/try-out-a-new-accessory-away-from-your-friends-1841576343](https://lifehacker.com/try-out-a-new-accessory-away-from-your-friends-1841576343)
+> 原文：<https://lifehacker.com/try-out-a-new-accessory-away-from-your-friends-1841576343>
 
 好朋友会鼓励你，激励你，督促你做到最好，但是好朋友知道你的弱点，能够像激光一样精确地瞄准你的不安全感。这并不总是一件坏事——因为保持谦逊很重要——但是如果你正在尝试一种新的“造型”,比如一顶活泼的帽子或颜色鲜艳的嘴唇，最好远离你的朋友(他们可能会有意见)。
 

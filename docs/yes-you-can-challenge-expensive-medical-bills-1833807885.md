@@ -1,6 +1,6 @@
 # 是的，你可以挑战昂贵的医疗账单
 
-> 原文:[https://life hacker . com/yes-you-can-challenge-highly-medical-bills-1833807885](https://lifehacker.com/yes-you-can-challenge-expensive-medical-bills-1833807885)
+> 原文：<https://lifehacker.com/yes-you-can-challenge-expensive-medical-bills-1833807885>
 
 下一次，当你收到一份出乎意料的高额医疗账单时，不要以为你必须全额付清。我们以前写过关于 [如果你收到一份意外的医疗账单该怎么办](https://twocents.lifehacker.com/you-might-not-have-to-pay-that-medical-bill-1832618960#_ga=2.209109138.1646398510.1553978330-1746532286.1536679306) 和 [如何对照你对福利的解释核对你的账单](https://twocents.lifehacker.com/check-your-hospital-bill-against-your-explanation-of-be-1833041796#_ga=2.209109138.1646398510.1553978330-1746532286.1536679306)；现在，Vox 的 Sarah Kliff 解释了如何挑战医疗账单并取得胜利。
 

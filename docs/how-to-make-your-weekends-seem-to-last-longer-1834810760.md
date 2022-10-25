@@ -1,6 +1,6 @@
 # 如何让你的周末看起来更长
 
-> 原文:[https://life hacker . com/how-to-make your ' s weekends-see-last-longer-1834810760](https://lifehacker.com/how-to-make-your-weekends-seem-to-last-longer-1834810760)
+> 原文：<https://lifehacker.com/how-to-make-your-weekends-seem-to-last-longer-1834810760>
 
 周末可能有点让人失望。你度过了漫长的一周，所以你想放松一下。但也有衣服要洗，杂货店要买，足球比赛要参加。在你意识到之前，周日的夜晚已经悄然来临，你会为即将到来的下一周感到神清气爽。
 

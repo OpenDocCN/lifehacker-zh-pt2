@@ -1,6 +1,6 @@
 # 只要把你的马提尼酒加冰就行了
 
-> 原文:[https://life hacker . com/just-build-your ' s martini-on-the-rocks-1844338925](https://lifehacker.com/just-build-your-martini-on-the-rocks-1844338925)
+> 原文：<https://lifehacker.com/just-build-your-martini-on-the-rocks-1844338925>
 
 大多数人——甚至对鸡尾酒一无所知的人——都知道马提尼应该是什么样子。它应该装在有斜面的高脚杯里(不加冰)。还应该有一个柠檬捻或一个橄榄在那里。是*已知*。尽管很有代表性，但这种版本的饮料并不提神。一杯冰杜松子酒和苦艾酒？这真的很提神。
 

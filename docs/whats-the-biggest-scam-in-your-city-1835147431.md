@@ -1,6 +1,6 @@
 # 你们城市最大的骗局是什么？
 
-> 原文:[https://life hacker . com/what-the-big-scam in-your city-1835147431](https://lifehacker.com/whats-the-biggest-scam-in-your-city-1835147431)
+> 原文：<https://lifehacker.com/whats-the-biggest-scam-in-your-city-1835147431>
 
 在纽约，有些孩子拿着报名表走来走去，请求捐款为他们的学校篮球队购买队服。 [没有学校篮球队。](https://www.villagevoice.com/2014/11/24/look-out-for-these-eleven-new-york-city-scams/) 在纽约的一家药店里，你可以买到戴安娜城堡的“葡萄酒产品”，但你永远不会沉醉其中。高档餐厅 [塞给你的鱼比你点的多](https://ny.eater.com/2019/5/29/18637338/estiatorio-milos-hudson-yards-nyc-restaurant-review) 以抬高价格。州长把这座城市从长达 15 个月的火车停运中“拯救”了出来，实际上是让它变得更糟。但是你的城市可以战胜它，对吗？
 

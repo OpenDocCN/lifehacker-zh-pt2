@@ -1,6 +1,6 @@
 # 刚刚做了一个巨大的巧克力熔岩蛋糕
 
-> 原文:[https://life hacker . com/just-make-a-giant-chocolate-lava-cake-already-1841385422](https://lifehacker.com/just-make-a-giant-chocolate-lava-cake-already-1841385422)
+> 原文：<https://lifehacker.com/just-make-a-giant-chocolate-lava-cake-already-1841385422>
 
 传统上，熔化的熔岩蛋糕通常装在小模子里。它有一种媚俗的可爱——谁不喜欢个人甜点呢？—但是你的熔岩蛋糕没有理由一定要小。作为奖励，你可以吃一个大巧克力熔岩蛋糕。
 

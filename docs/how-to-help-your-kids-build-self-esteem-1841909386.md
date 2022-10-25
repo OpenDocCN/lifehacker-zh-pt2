@@ -1,6 +1,6 @@
 # 如何帮助你的孩子建立自尊
 
-> 原文:[https://life hacker . com/how-to-help-your-kids-build-自尊-1841909386](https://lifehacker.com/how-to-help-your-kids-build-self-esteem-1841909386)
+> 原文：<https://lifehacker.com/how-to-help-your-kids-build-self-esteem-1841909386>
 
 你的孩子真的是一个特别的，神奇的小人类。他们是一个令人难以置信的泰然自若的舞者或外向的人，这是你在数学上永远也不会有的。你知道你的孩子很棒；你只是想确保*他们*知道他们有多棒。想要赞美他们所做的所有美好的、令人印象深刻的事情是很自然的。但是，如果我们*过度赞扬*，随着时间的推移，我们实际上可能会伤害他们的自尊。
 

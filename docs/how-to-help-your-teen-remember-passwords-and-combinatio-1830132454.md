@@ -1,6 +1,6 @@
 # 如何帮助孩子记住密码和密码组合
 
-> 原文:[https://life hacker . com/how-to-help-your-teen-记住密码和密码组合-1830132454](https://lifehacker.com/how-to-help-your-teen-remember-passwords-and-combinatio-1830132454)
+> 原文：<https://lifehacker.com/how-to-help-your-teen-remember-passwords-and-combinatio-1830132454>
 
 如果你和青少年呆过一段时间，你就会知道他们容易健忘。当然，这并不是说他们不去尝试，但不知何故，他们忘记了更换卫生纸或清空洗碗机。由于繁重的家庭作业和苛刻的课后时间表，青少年就像成年人一样，很难记住让他们生活更轻松的小细节。
 

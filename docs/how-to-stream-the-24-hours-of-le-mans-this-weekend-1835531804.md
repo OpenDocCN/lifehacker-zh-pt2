@@ -1,6 +1,6 @@
 # 如何观看本周末的勒芒 24 小时耐力赛
 
-> 原文:[https://life hacker . com/how-to-stream-the-24 小时勒芒-本周末-1835531804](https://lifehacker.com/how-to-stream-the-24-hours-of-le-mans-this-weekend-1835531804)
+> 原文：<https://lifehacker.com/how-to-stream-the-24-hours-of-le-mans-this-weekend-1835531804>
 
 勒芒 24 小时耐力赛于法国东部时间周六上午 8 点正式开赛。传统上，在美国观看比赛有点挑战性，需要你根据你想观看的时间在几个不同的服务之间跳跃，可能还需要一些花哨的 VPN 工作来访问一些欧洲流媒体服务。
 

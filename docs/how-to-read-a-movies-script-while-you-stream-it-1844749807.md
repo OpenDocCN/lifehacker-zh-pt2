@@ -1,6 +1,6 @@
 # 如何在流化时阅读电影的脚本
 
-> 原文:[https://life hacker . com/how-to-read-a-movies-script-while-you-stream-it-1844749807](https://lifehacker.com/how-to-read-a-movies-script-while-you-stream-it-1844749807)
+> 原文：<https://lifehacker.com/how-to-read-a-movies-script-while-you-stream-it-1844749807>
 
 如果你曾经好奇电影剧本如何翻译成你在屏幕上看到的东西——包括演员的对话有多少是即兴或预先写好的——我有一个浏览器扩展给你。前几天我偶然发现了它，这正是我需要的，为我的隔离生活网飞盛宴增加一点额外的情趣。
 

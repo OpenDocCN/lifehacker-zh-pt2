@@ -1,6 +1,6 @@
 # 如何给你的孩子找一个笔友
 
-> 原文:[https://life hacker . com/how-to-get-your-kid-a-pen-pal-1840932649](https://lifehacker.com/how-to-get-your-kid-a-pen-pal-1840932649)
+> 原文：<https://lifehacker.com/how-to-get-your-kid-a-pen-pal-1840932649>
 
 我五年级的时候，我们家从伊利诺伊州搬到了辛辛那提郊区。我知道我和朋友们保持联系的唯一方式就是给他们写信。我很快发现没有什么比收到邮件更令人兴奋的了，潦草的字迹和所有的，寄给*我*。
 

@@ -1,6 +1,6 @@
 # 过度倾析:马上就有更好的酒了，你这个不耐烦的门外汉
 
-> 原文:[https://life hacker . com/hyper circuiting-better-wine-in-a-minute-you-心急-5895929](https://lifehacker.com/hyperdecanting-better-wine-in-a-minute-you-impatient-5895929)
+> 原文：<https://lifehacker.com/hyperdecanting-better-wine-in-a-minute-you-impatient-5895929>
 
 我只看过 HBO 的《接班人》的一集，但这并不意味着我被排除在周一早上关于接班人的讨论之外，特别是当这一集的特点是一个熟悉得令人毛骨悚然的工作场所场景，或者，就昨晚的这一集而言，是一个食物或饮料黑客。
 

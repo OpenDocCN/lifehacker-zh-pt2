@@ -1,6 +1,6 @@
 # 谷歌地图新的 AR 步行方向非常酷
 
-> 原文:[https://life hacker . com/Google-maps-new-ar-walking-directions-are-pretty-cool-1834640904](https://lifehacker.com/google-maps-new-ar-walking-directions-are-pretty-cool-1834640904)
+> 原文：<https://lifehacker.com/google-maps-new-ar-walking-directions-are-pretty-cool-1834640904>
 
 在昨天的 [I/O 2019 主题演讲](https://lifehacker.com/everything-google-announced-at-i-o-2019-that-matters-1834582453) 中，谷歌展示了其对谷歌地图的增强现实雄心，但我没想到谷歌很快就开始飙升，但我们开始了。从今天开始，数量不详的 Android 爱好者将获得谷歌新“AR 导航体验”的早期预览，该公司称之为“AR 导航体验”。
 

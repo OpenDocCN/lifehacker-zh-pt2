@@ -1,6 +1,6 @@
 # 用一个几乎空了的果酱罐给鸡尾酒调味
 
-> 原文:[https://life hacker . com/use-an-almost-empty-jam-jar-to-flavor-a-cocktail-1834080513](https://lifehacker.com/use-an-almost-empty-jam-jar-to-flavor-a-cocktail-1834080513)
+> 原文：<https://lifehacker.com/use-an-almost-empty-jam-jar-to-flavor-a-cocktail-1834080513>
 
 果酱是极好的鸡尾酒配料。它也非常粘，这意味着从果酱罐中取出那些最后看似无关紧要的部分需要一些创造性的问题解决方案。幸运的是，乙醇是一种很好的溶剂。
 

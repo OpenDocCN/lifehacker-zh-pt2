@@ -1,6 +1,6 @@
 # 如何观看本周末的虚拟肯塔基赛马会
 
-> 原文:[https://life hacker . com/how-to-watch-the-virtual-Kentucky-derby-this-weekend-1843183973](https://lifehacker.com/how-to-watch-the-virtual-kentucky-derby-this-weekend-1843183973)
+> 原文：<https://lifehacker.com/how-to-watch-the-virtual-kentucky-derby-this-weekend-1843183973>
 
 肯塔基赛马会原定于本周末举行，但像大多数其他值得兴奋的事情一样，它被推迟到今年晚些时候。这是该比赛在其传奇的 146 年历史上第二次被推迟。(第一次是在 1945 年，二战的最后一年。)
 

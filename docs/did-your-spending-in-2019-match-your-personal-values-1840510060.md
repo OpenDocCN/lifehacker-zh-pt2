@@ -1,6 +1,6 @@
 # 你在 2019 年的花费是否符合你的个人价值观？
 
-> 原文:[https://life hacker . com/did-your-spending-in-2019-match-your-personal-values-1840510060](https://lifehacker.com/did-your-spending-in-2019-match-your-personal-values-1840510060)
+> 原文：<https://lifehacker.com/did-your-spending-in-2019-match-your-personal-values-1840510060>
 
 本周早些时候，我按类别列出了我迄今为止 2019 年的所有支出。虽然我肯定在年底前我会有更多的支出，但我仍然能够对今年我的钱花在哪里有一个相当准确的了解——以及我是否根据我的价值观分配了我的钱。
 

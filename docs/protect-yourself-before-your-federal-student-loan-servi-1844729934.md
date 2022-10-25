@@ -1,6 +1,6 @@
 # 在你的联邦学生贷款服务商改变之前保护好你自己
 
-> 原文:[https://life hacker . com/protect-your-federal-student-loan-servi-1844729934](https://lifehacker.com/protect-yourself-before-your-federal-student-loan-servi-1844729934)
+> 原文：<https://lifehacker.com/protect-yourself-before-your-federal-student-loan-servi-1844729934>
 
 本月早些时候，教育部发布了关于即将到来的学生贷款服务机构改革的新细节 。教育部在六月的新闻发布会上首次宣布了这些重大的变化，包括与五家新的学生贷款服务机构的合同。
 根据新闻稿，这五家新公司将向超过 6800 万借款人提供“增强的客户支持”。

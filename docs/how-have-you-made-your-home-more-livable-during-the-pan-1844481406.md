@@ -1,6 +1,6 @@
 # 在疫情期间，你是如何让你的家变得更适合居住的？
 
-> 原文:[https://life hacker . com/how-have-you-make-you-home-more-livable-in-pan-1844481406](https://lifehacker.com/how-have-you-made-your-home-more-livable-during-the-pan-1844481406)
+> 原文：<https://lifehacker.com/how-have-you-made-your-home-more-livable-during-the-pan-1844481406>
 
 在后来成为这个疫情的初期，我们都非常幸福地否认我们将永远被困在家里。学校、办公室和其他企业关门，但每次只持续几周。我们认为，最糟糕的情况是，孩子们会在本学年剩下的时间里呆在家里，事情会平静下来，也许我们不得不担心秋天病毒的卷土重来。
 

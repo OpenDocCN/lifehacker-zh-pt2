@@ -1,6 +1,6 @@
 # 这种贸易建议是经销商用来吸引买家购买新车的最糟糕的策略之一
 
-> 原文:[https://jalopnik . com/kicking-the-trade-is-a-the-worst-tactics-dealers-u-1841729449](https://jalopnik.com/kicking-the-trade-is-one-of-the-worst-tactics-dealers-u-1841729449)
+> 原文：<https://jalopnik.com/kicking-the-trade-is-one-of-the-worst-tactics-dealers-u-1841729449>
 
 人们经常会陷入这样的境地:他们的汽车价值远远低于他们的贷款余额。这就是所谓的“水下”，没有简单的解决方法。正如 [【华尔街日报】](https://www.wsj.com/articles/dealerships-give-car-buyers-some-advice-just-stop-paying-your-loan-11581762601)一篇新的深度报道所指出的，一些经销商提供了一种看似快速的解决方法，告诉这些买家干脆停止付款。不出所料，这对经销商来说很好，但对其他人来说却很糟糕。
 

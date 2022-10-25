@@ -1,6 +1,6 @@
 # 如何和你的孩子谈论色情
 
-> 原文:[https://life hacker . com/how-to-talk-to-your-kids-on-porn-1838886045](https://lifehacker.com/how-to-talk-to-your-kids-about-porn-1838886045)
+> 原文：<https://lifehacker.com/how-to-talk-to-your-kids-about-porn-1838886045>
 
 如果你已经不想和你的孩子谈论性，那么很有可能你真的不想和他们谈论色情。但是，随着色情在互联网上如此容易获得，以及电脑、平板电脑和智能手机在我们的孩子(或他们的朋友)手中的普及，他们几乎肯定会在某个时候偶然发现它——而且可能比你想象的要年轻得多。
 

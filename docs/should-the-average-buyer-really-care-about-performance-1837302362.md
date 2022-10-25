@@ -1,6 +1,6 @@
 # 一般买家真的应该在乎性能吗？
 
-> 原文:[https://jalopnik . com/should-the-average-buyer-really-care-performance-1837302362](https://jalopnik.com/should-the-average-buyer-really-care-about-performance-1837302362)
+> 原文：<https://jalopnik.com/should-the-average-buyer-really-care-about-performance-1837302362>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。我决定挑几个问题，试着帮帮大家。本周，我们将讨论买家优先、二手车延期保修谈判以及 trims 之间的性能比率。
 

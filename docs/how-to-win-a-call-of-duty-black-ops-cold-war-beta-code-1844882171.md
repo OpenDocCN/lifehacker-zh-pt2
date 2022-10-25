@@ -1,6 +1,6 @@
 # 如何在本周末赢得“使命召唤:黑色行动冷战”测试代码
 
-> 原文:[https://life hacker . com/how-to-win-a-call-of-duty-ops-cold-war-beta-code-1844882171](https://lifehacker.com/how-to-win-a-call-of-duty-black-ops-cold-war-beta-code-1844882171)
+> 原文：<https://lifehacker.com/how-to-win-a-call-of-duty-black-ops-cold-war-beta-code-1844882171>
 
 本周末是使命召唤联盟(CDL)锦标赛。粉丝们可以收看最精彩的*使命召唤:现代战争*团队于 8 月 29 日和 30 日现场比赛，观众有机会赢得游戏内奖励，并有可能获得即将上映的*使命召唤:黑色行动冷战*测试版的一个名额。
 

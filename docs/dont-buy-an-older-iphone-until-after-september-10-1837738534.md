@@ -1,6 +1,6 @@
 # 9 月 10 日之前不要买老款 iPhone
 
-> 原文:[https://life hacker . com/don-buy-an-older-iphone-unt-after-September-10-1837738534](https://lifehacker.com/dont-buy-an-older-iphone-until-after-september-10-1837738534)
+> 原文：<https://lifehacker.com/dont-buy-an-older-iphone-until-after-september-10-1837738534>
 
 你、你的朋友或你爱的人有祸了，他们一直在为 iPhone 的大升级攒钱，并渴望在接下来的一周半内购买。既然苹果已经正式宣布了下一次重大产品发布的日期——9 月 10 日——现在购买新 iPhone 将是一个非常不明智的决定。
 

@@ -1,6 +1,6 @@
 # 为什么你的替换气垫不能配对
 
-> 原文:[https://life hacker . com/why-your-replacement-air pod-cant-pair-up-1842776078](https://lifehacker.com/why-your-replacement-airpod-cant-pair-up-1842776078)
+> 原文：<https://lifehacker.com/why-your-replacement-airpod-cant-pair-up-1842776078>
 
 AirPods 很容易乱放，我们知道。如果你最近不得不购买一个替代 AirPod 耳塞，你可能会认为现在一切都好了——你孤独的 AirPod 现在又有了一个朋友。然而，许多苹果粉丝 [报告](https://www.imore.com/apple-shipping-single-replacement-airpods-new-unreleased-firmware-and-people-cant-use-them) 他们的替换 AirPod 无法与他们的旧 AirPod 配对，这使得拥有一对功能性的配对失去了意义。
 

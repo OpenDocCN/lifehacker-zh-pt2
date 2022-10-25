@@ -1,6 +1,6 @@
 # facebooks new libra coin how does it work and should 1835633640
 
-> 原文:[https://life hacker . com/face books-new-Libra-coin-how-it-work-and-should-1835633640](https://lifehacker.com/facebooks-new-libra-coin-how-does-it-work-and-should-1835633640)
+> 原文：<https://lifehacker.com/facebooks-new-libra-coin-how-does-it-work-and-should-1835633640>
 
 周二 [脸书宣布天秤座](https://gizmodo.com/facebook-announces-libra-digital-currency-on-the-block-1835606044) ，这是一种加密货币，将于 2020 年推出(与其他 27 家合作伙伴一起)。有点像比特币，又有点像贝宝，Libra 将成为一种新的数字货币，没有银行账户或信用卡的人也可以使用，但这也可能成为我们其他人的主要力量。但首先你必须相信脸书有更多的个人数据。以下是你需要知道的。
 

@@ -1,6 +1,6 @@
 # 户外社交有多安全？
 
-> 原文:[https://life hacker . com/how-safe-it-to-socialize-outdoors-1843339830](https://lifehacker.com/how-safe-is-it-to-socialize-outdoors-1843339830)
+> 原文：<https://lifehacker.com/how-safe-is-it-to-socialize-outdoors-1843339830>
 
 随着疫情的延长和夏季的临近，你可能想知道是否有安全的方法走出去亲自见其他人，而不会有传播的风险。两个朋友在公园见面有多安全*——即使是在观察身体距离的时候？*
 

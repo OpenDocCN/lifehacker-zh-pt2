@@ -1,6 +1,6 @@
 # you can roast tomatoes in the microwave 1844803559
 
-> 原文:[https://life hacker . com/you-can-bake-tomatos-in-the-microwave-1844803559](https://lifehacker.com/you-can-roast-tomatoes-in-the-microwave-1844803559)
+> 原文：<https://lifehacker.com/you-can-roast-tomatoes-in-the-microwave-1844803559>
 
 在所有保存夏季西红柿的方法中，慢烤可能是我最喜欢的。如果你能在你的时间表中挤出足够的时间来做一批，你将会得到甜蜜多汁的美味番茄糖——它们是我们喜欢的旺季番茄的一切，浓缩成完美的一口。
 

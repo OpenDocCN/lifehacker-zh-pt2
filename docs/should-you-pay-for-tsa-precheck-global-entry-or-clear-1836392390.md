@@ -1,6 +1,6 @@
 # 你应该支付美国运输安全管理局预检，全球入境，或清除？
 
-> 原文:[https://life hacker . com/should-you-pay-for-TSA-pre check-global-entry-or-clear-1836392390](https://lifehacker.com/should-you-pay-for-tsa-precheck-global-entry-or-clear-1836392390)
+> 原文：<https://lifehacker.com/should-you-pay-for-tsa-precheck-global-entry-or-clear-1836392390>
 
 你已经看到了机场的特别队伍:当你在一个七口之家、一个八年级班级旅行和至少十几个其他方面都很好的人后面等待时，人们只是轻松地通过例行的安全措施。你很痛苦。你考虑在这个问题上砸钱。
 

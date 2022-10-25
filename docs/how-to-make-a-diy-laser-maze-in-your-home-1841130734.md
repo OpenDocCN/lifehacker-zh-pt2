@@ -1,6 +1,6 @@
 # 如何在家里自制一个激光迷宫
 
-> 原文:[https://life hacker . com/how-to-make-a-DIY-a-laser-maze-in-your-home-1841130734](https://lifehacker.com/how-to-make-a-diy-laser-maze-in-your-home-1841130734)
+> 原文：<https://lifehacker.com/how-to-make-a-diy-laser-maze-in-your-home-1841130734>
 
 我和儿子昨天都不上班也不上学，我们对如何一起度过这一天有各种各样的计划。但首先，我说，我需要他帮我写一篇文章。“我以为你今天不用上班呢？”他带着几分责备的语气问道。“我想让你测试一个假的激光迷宫，我将在走廊上用彩带创建它，”我回应道。“哦，我们一定要这样做，”他说，他的语气明显不那么指责。
 

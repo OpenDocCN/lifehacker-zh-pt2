@@ -1,6 +1,6 @@
 # 如何确保你的海外旅行尽可能安全
 
-> 原文:[https://life hacker . com/how-to-确保你的海外之旅尽可能安全-1834485753](https://lifehacker.com/how-to-ensure-your-overseas-trip-is-as-safe-as-possible-1834485753)
+> 原文：<https://lifehacker.com/how-to-ensure-your-overseas-trip-is-as-safe-as-possible-1834485753>
 
 我差点死在日本。
 

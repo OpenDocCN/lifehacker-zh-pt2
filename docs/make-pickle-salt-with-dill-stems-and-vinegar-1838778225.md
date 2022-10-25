@@ -1,6 +1,6 @@
 # 用莳萝茎和醋制作泡菜盐
 
-> 原文:[https://life hacker . com/make-pickle-salt with-dill-stem-醋-1838778225](https://lifehacker.com/make-pickle-salt-with-dill-stems-and-vinegar-1838778225)
+> 原文：<https://lifehacker.com/make-pickle-salt-with-dill-stems-and-vinegar-1838778225>
 
 人们寻找莳萝是因为它柔软芳香的叶子，而松脆的茎却被忽视了。它们没有绿叶蔬菜那么多味道，但是，当粉碎并与盐混合时，你会得到一种绿色的、植物性的、令人愉快的莳萝香味的盐。再加上一点醋粉( [)醋酸钠](https://lifehacker.com/make-your-own-salt-and-vinegar-chips-with-homemade-sodi-1710220195) )，你就有了一种带有莳萝泡菜味道的辛辣咸味调料。
 

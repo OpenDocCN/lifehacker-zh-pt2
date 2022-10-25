@@ -1,6 +1,6 @@
 # 2020 年 1 月，HBO 将会上演什么
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-HBO-in-January-2020-1840645643](https://lifehacker.com/whats-coming-and-going-from-hbo-in-january-2020-1840645643)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-hbo-in-january-2020-1840645643>
 
 HBO 将在 2020 年推出新一季的《抑制你的热情》(T0)、《T2》、《新教皇》(T3)和《T4 与比尔·马厄实时互动》(T5)。它还为该平台带来了许多受欢迎的电影，包括 2019 年的*约翰威克:第三章*和*哥斯拉:怪兽之王*。
 

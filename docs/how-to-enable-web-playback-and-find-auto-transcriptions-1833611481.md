@@ -1,6 +1,6 @@
 # 如何在谷歌播客中启用网络播放和查找自动转录
 
-> 原文:[https://life hacker . com/how-to-enable-web-playback-and-find-auto-transcriptions-1833611481](https://lifehacker.com/how-to-enable-web-playback-and-find-auto-transcriptions-1833611481)
+> 原文：<https://lifehacker.com/how-to-enable-web-playback-and-find-auto-transcriptions-1833611481>
 
 谷歌播客是一项相对较新的播客服务，虽然它目前的重点是其移动应用程序，但在浏览器版本中隐藏了一些通常无法访问的功能。具体来说，用户可以在他们的浏览器中播放播客，只需稍加调整就可以获得自动生成的剧集转录。
 

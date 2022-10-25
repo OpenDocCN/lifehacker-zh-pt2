@@ -1,6 +1,6 @@
 # 我的未婚夫说，他的电话记录中的这些“令人不安的网站”是“弹出窗口”
 
-> 原文:[https://life hacker . com/my-fif-says-this-phone-hist-1838952329](https://lifehacker.com/my-fiance-says-these-disturbing-sites-in-his-phone-hist-1838952329)
+> 原文：<https://lifehacker.com/my-fiance-says-these-disturbing-sites-in-his-phone-hist-1838952329>
 
 当你在爱人的手机上发现了不该有的东西，会发生什么？如果这与你有关呢？在本周 Lifehacker 的技术支持专栏 [**Tech 911**](https://lifehacker.com/c/tech-911) 中，我们正在解决“为什么它会在你的手机上”这个神秘案件。
 

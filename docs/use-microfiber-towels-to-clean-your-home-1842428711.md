@@ -1,6 +1,6 @@
 # 使用超细纤维毛巾来清洁你的家
 
-> 原文:[https://jalopnik . com/use-micro fiber-towels-to-clean-your-home-1842428711](https://jalopnik.com/use-microfiber-towels-to-clean-your-home-1842428711)
+> 原文：<https://jalopnik.com/use-microfiber-towels-to-clean-your-home-1842428711>
 
 这个博客突然出现在我的脑海中，因为这是我多年来一直在做的事情，我想你们中的一些人可能也会从中受益。朋友们，用超细纤维毛巾来清洁你们的家吧！如果它们足以搭配你珍贵的透明外套，那么它们也足以掸掉你咖啡桌上的灰尘。
 

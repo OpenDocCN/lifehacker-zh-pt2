@@ -1,6 +1,6 @@
 # 创建数字护照，邀请“动物穿越:新视野”中的朋友
 
-> 原文:[https://life hacker . com/create-digital-passports-to-invite-friends-in-animal-Cr-1842414730](https://lifehacker.com/create-digital-passports-to-invite-friends-in-animal-cr-1842414730)
+> 原文：<https://lifehacker.com/create-digital-passports-to-invite-friends-in-animal-cr-1842414730>
 
 快乐的*动物穿越:新视野*日！虽然你可能已经渴望开始偿还又一笔数字抵押贷款和根据你的创意愿景塑造一个岛屿设置的漫长而艰苦的过程，但由于冠状病毒隔离，游戏的部分乐趣——与其他人一起玩——将会有所改变。当然，你可以为任天堂的 Switch 在线订阅服务付费，以访问其他玩家的岛屿(或邀请他们到你的岛屿)，但你们两人需要成为朋友(除非你们分享“渡渡鸟代码”，这是一个临时的“友谊号码”，你可以用它来代替)。
 

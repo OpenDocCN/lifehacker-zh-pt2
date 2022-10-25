@@ -1,6 +1,6 @@
 # 如何运输化妆品而不破损或溢出
 
-> 原文:[https://life hacker . com/how-to-transport-make-up-without-breaking-or-spreading-1844275583](https://lifehacker.com/how-to-transport-makeup-without-breakage-or-spillage-1844275583)
+> 原文：<https://lifehacker.com/how-to-transport-makeup-without-breakage-or-spillage-1844275583>
 
 你下了飞机，去洗手间梳洗一番。你打开化妆包，把手伸进去，最后拿出一只涂有闪亮眼影和某种粘性物质的彩色手。那是...洗面奶？确实是。你没把你的妆装好，这些就是后果。这里有一些方法可以让你的化妆品和面部护理产品安全地放在容器里，而不是放在你的包里。
 

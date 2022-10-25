@@ -1,6 +1,6 @@
 # 冠状病毒的爆发不会毁掉你的投资组合
 
-> 原文:[https://life hacker . com/the-coronavirus-outbreak-不会毁了你的投资-1841429947](https://lifehacker.com/the-coronavirus-outbreak-will-not-ruin-your-investment-1841429947)
+> 原文：<https://lifehacker.com/the-coronavirus-outbreak-will-not-ruin-your-investment-1841429947>
 
 每个人都在谈论起源于中国的冠状病毒爆发，但你有没有考虑过这种病毒可能对你的钱产生的影响？上周晚些时候，全球市场开始出现额外的波动，本周可能会继续如此。
 

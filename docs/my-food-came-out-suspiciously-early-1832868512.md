@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:我的食物可疑地提前出来了
 
-> 原文:[https://the take out . com/my-food-出柜可疑-早-1832868512](https://thetakeout.com/my-food-came-out-suspiciously-early-1832868512)
+> 原文：<https://thetakeout.com/my-food-came-out-suspiciously-early-1832868512>
 
 > 亲爱的咸咸:情人节那天，我带女朋友去一家以招牌炸鸡闻名的餐厅吃饭。我点了这道菜(她点了一道意大利面)，所以当鸡肉提前出现时，我们很惊讶。就像，令人不安的早。甚至在我女朋友的意大利面之前。
 > 

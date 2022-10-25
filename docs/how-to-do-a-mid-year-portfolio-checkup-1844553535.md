@@ -1,6 +1,6 @@
 # 如何进行年中投资组合检查
 
-> 原文:[https://life hacker . com/how-to-do-a-mid-year-portfolio-check-1844553535](https://lifehacker.com/how-to-do-a-mid-year-portfolio-checkup-1844553535)
+> 原文：<https://lifehacker.com/how-to-do-a-mid-year-portfolio-checkup-1844553535>
 
 对投资者来说，这是伤脑筋的一年。差不多四个月前，在经历了一系列下跌后，专家们宣布牛市已经结束。然而，在 T4 股市暴跌近 35%后，投资者看到了快速复苏。T 何第二节 [完成了强](https://www.wsj.com/articles/global-stock-markets-dow-update-6-30-2020-11593508397) ，将近 [抹去了从二月到三月的伤害](https://www.wsj.com/market-data/quotes/index/US/DJIA) 。既然市场保持稳定——至少目前是这样——这可能是一个检查投资组合的好时机。你可以按照晨星 的这些步骤 [自己做。](https://www.morningstar.com/articles/990284/a-midyear-portfolio-checkup-in-7-steps)
 

@@ -1,6 +1,6 @@
 # 通过这项服务向您的孩子介绍各种书籍
 
-> 原文:[https://life hacker . com/introduce-your-kids-to-differential-books-with the-service-1840773083](https://lifehacker.com/introduce-your-kids-to-diverse-books-with-this-service-1840773083)
+> 原文：<https://lifehacker.com/introduce-your-kids-to-diverse-books-with-this-service-1840773083>
 
 在我们孩子的书架上放满各种各样的人物、故事情节和家庭结构是许多父母喜欢做的事情。然而，能够真正地*找到*大量高质量的包容性书籍，说起来容易做起来难。
 

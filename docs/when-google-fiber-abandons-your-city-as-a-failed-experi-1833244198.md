@@ -1,6 +1,6 @@
 # 当谷歌光纤放弃你的城市作为一个失败的实验
 
-> 原文:[https://gizmodo . com/when-Google-fiber-bases-your-city-as-a-failed-experi-1833244198](https://gizmodo.com/when-google-fiber-abandons-your-city-as-a-failed-experi-1833244198)
+> 原文：<https://gizmodo.com/when-google-fiber-abandons-your-city-as-a-failed-experi-1833244198>
 
 在路易斯维尔高地社区的斯比德街和芬伍德街的拐角处，有一团黑色的橡胶散落在街上。在一个街区之外的罗斯代尔，覆盖着城市中大多数谷歌光纤埋线的海绵状物质在沥青中蜿蜒曲折。
 

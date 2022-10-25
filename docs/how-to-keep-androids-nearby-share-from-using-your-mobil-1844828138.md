@@ -1,6 +1,6 @@
 # 如何防止安卓的“附近共享”使用你的手机数据
 
-> 原文:[https://life hacker . com/how-to-keep-androids-nearly-share-from-using-your-Mobil-1844828138](https://lifehacker.com/how-to-keep-androids-nearby-share-from-using-your-mobil-1844828138)
+> 原文：<https://lifehacker.com/how-to-keep-androids-nearby-share-from-using-your-mobil-1844828138>
 
 我喜欢 Android 的 Nearby Share，因为它终于可以让你将文件上传到另一部 Android 手机上，就像 iPhone 用户自 2014 年以来就可以使用隔空投送一样。我一直讨厌不得不求助于第三方应用程序才能在 Android 上实现这一点，所以谷歌终于进入了现代时代(至少是文件共享时代)，这是一个值得欢迎的解脱。
 

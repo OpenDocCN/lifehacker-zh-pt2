@@ -1,6 +1,6 @@
 # 说真的，现在就更新你的旧 Windows 7 电脑和 Windows 服务器
 
-> 原文:[https://life hacker . com/serious-update-your-old-windows-7-PCs-and-windows-se-1839723097](https://lifehacker.com/seriously-update-your-old-windows-7-pcs-and-windows-se-1839723097)
+> 原文：<https://lifehacker.com/seriously-update-your-old-windows-7-pcs-and-windows-se-1839723097>
 
 在过去的一年里，我们发布了几篇关于“BlueKeep”的， [严重利用了 Windows 7 远程桌面协议(RDP)中的](https://lifehacker.com/install-the-windows-august-2019-update-right-now-1837247895) 漏洞，黑客可以控制某人的电脑。见鬼，我们甚至报道了最近关于本周早些时候首次成功利用 BlueKeep 攻击的新闻，其中黑客通过 RDP 在易受攻击的系统上远程安装加密货币挖掘软件。就在昨天，微软的内部安全团队发布了一项新的警告，称他们预计 BlueKeep 攻击不仅会继续，而且会随着时间的推移变得更加复杂(和严重)。
 

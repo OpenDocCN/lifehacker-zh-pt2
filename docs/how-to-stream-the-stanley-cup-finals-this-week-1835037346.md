@@ -1,6 +1,6 @@
 # 如何直播本周的斯坦利杯决赛
 
-> 原文:[https://life hacker . com/how-to-stream-the-Stanley-cup-finals-this-week-1835037346](https://lifehacker.com/how-to-stream-the-stanley-cup-finals-this-week-1835037346)
+> 原文：<https://lifehacker.com/how-to-stream-the-stanley-cup-finals-this-week-1835037346>
 
 波士顿布鲁因斯队将在本周的斯坦利杯决赛中迎战圣路易斯布鲁斯队。这是蓝军 49 年来第一次进入决赛(布鲁因斯在 2011 年获胜，并在 2013 年进入决赛)，这个系列赛将是一个非常伟大的系列赛。
 

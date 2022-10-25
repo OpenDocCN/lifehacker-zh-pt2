@@ -1,6 +1,6 @@
 # 发现新音乐的最佳播客
 
-> 原文:[https://life hacker . com/the-best-podcast-for-discovery-new-music-1839063483](https://lifehacker.com/the-best-podcasts-for-discovering-new-music-1839063483)
+> 原文：<https://lifehacker.com/the-best-podcasts-for-discovering-new-music-1839063483>
 
 除了收音机，我喜欢在任何地方发现我的音乐:播放列表、电视原声音乐、最佳歌曲列表、地铁乐队、TikToks、在酒吧、商店和咖啡店偶然听到的歌曲...和播客。多棒的尝试新音乐的媒介啊。音乐播客就像你最喜欢的广播节目点播——当然，许多最好的只是实际广播节目的重播，有更安静的商业广告，没有古怪的早间 DJ。这些是我最喜欢的节目，用来发现新的和对我来说新的音乐，或者重新发现旧的最爱。
 

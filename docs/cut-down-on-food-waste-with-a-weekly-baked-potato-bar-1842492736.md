@@ -1,6 +1,6 @@
 # 每周一次烤土豆棒，减少食物浪费
 
-> 原文:[https://life hacker . com/cut-down-on-food-waste-with a weekly-baked-potato-bar-1842492736](https://lifehacker.com/cut-down-on-food-waste-with-a-weekly-baked-potato-bar-1842492736)
+> 原文：<https://lifehacker.com/cut-down-on-food-waste-with-a-weekly-baked-potato-bar-1842492736>
 
 我有一种独特的能力，可以对任何问题产生焦虑，现在这个问题就是食物——尤其是我冰箱里的食物。除了买了几个太多的鸡蛋 之外，我认为我做得很好，储存了适量的食物，这些食物是物理距离和隔离所需要的，但是每一件容易腐烂的东西现在都放在我的冰箱里，有变质的危险，现在，扔掉任何东西都感觉像是犯罪。
 

@@ -1,6 +1,6 @@
 # 为什么不在这个假期举办一个小酒吧聚会呢？
 
-> 原文:[https://life hacker . com/why-not-host-a-dips-and-drinks-party-this-holiday-seaso-1840319502](https://lifehacker.com/why-not-host-a-dips-and-drinks-party-this-holiday-seaso-1840319502)
+> 原文：<https://lifehacker.com/why-not-host-a-dips-and-drinks-party-this-holiday-seaso-1840319502>
 
 这是一个聚会的季节，当计划一个节日聚会时，有一个主题、焦点或主旨是有帮助的。我喜欢几乎任何类型的派对，但我目前最喜欢的派对概念是 D&D——比如“浸泡和饮料”
 

@@ -1,6 +1,6 @@
 # 最简单的视频聊天应用，适合与技术斗争的人
 
-> 原文:[https://life hacker . com/the-simple-video-chat-apps-for-people-fighter-wi-1842780065](https://lifehacker.com/the-simplest-video-chat-apps-for-people-who-struggle-wi-1842780065)
+> 原文：<https://lifehacker.com/the-simplest-video-chat-apps-for-people-who-struggle-wi-1842780065>
 
 社交距离对于降低新冠肺炎的感染曲线和保护我们的安全至关重要，但这并不意味着这很容易。当然，我们有社交媒体、视频聊天和一系列随时可用的娱乐选项，但对于缺乏技术技能的人来说，要搞清楚所有这些东西更难。
 

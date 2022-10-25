@@ -1,6 +1,6 @@
 # 用这个免费工具包了解黑人历史
 
-> 原文:[https://life hacker . com/learn-about-black-history-with this-free-toolkit-1844118935](https://lifehacker.com/learn-about-black-history-with-this-free-toolkit-1844118935)
+> 原文：<https://lifehacker.com/learn-about-black-history-with-this-free-toolkit-1844118935>
 
 如果说过去的一个月教会了我们什么，那就是许多美国人在了解这个国家的黑人历史和系统性种族主义方面还有很长的路要走。这可能不是我们的错，我们在学校被教导了一个扯淡的美国历史版本，在这个版本中，我们赞美种族主义的白人历史人物，并假装当马丁·路德·金告诉我们他的梦想时种族主义消失了。但是作为成年人，如果我们现在不教育自己，那绝对是我们的错。
 

@@ -1,6 +1,6 @@
 # 在你还能做的时候，从安卓电视的主屏幕上移除广告
 
-> 原文:[https://life hacker . com/remove-ads-from-Android-TVs-home-screen-while-you-still-1844764587](https://lifehacker.com/remove-ads-from-android-tvs-home-screen-while-you-still-1844764587)
+> 原文：<https://lifehacker.com/remove-ads-from-android-tvs-home-screen-while-you-still-1844764587>
 
 最新的 Android TV Home 更新在 Android TV home 屏幕上增加了一个新的“电影集锦”部分。这个新标签——现在是你在界面上看到的第一个标签之一——自动播放新节目和电影的广告。如果这让你烦恼，你还有机会解决这个问题(目前)。
 

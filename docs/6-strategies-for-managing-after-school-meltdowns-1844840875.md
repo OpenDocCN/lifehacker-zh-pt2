@@ -1,6 +1,6 @@
 # 管理课后情绪崩溃的 6 个策略
 
-> 原文:[https://life hacker . com/6-strategies-for-managing-after-school-meltdowns-1844840875](https://lifehacker.com/6-strategies-for-managing-after-school-meltdowns-1844840875)
+> 原文：<https://lifehacker.com/6-strategies-for-managing-after-school-meltdowns-1844840875>
 
 对于孩子们来说，返校传统上是一段充满压力和考验的时光。他们花了整整一个夏天(加上疫情春天的那些“额外的”月份)玩*【《我的世界》】*，跑过洒水车，熬夜 [接住你从屋顶掉下的所有冰淇淋](https://offspring.lifehacker.com/dropping-ice-cream-onto-your-kids-is-the-weirdest-fun-y-1844278852) 。现在，他们要么整天戴着面具坐在教室里一动不动，要么在家登录，在 Zoom 课上生闷气。如果你处在他们的位置，你也会有点疲倦和暴躁。(很有可能，你已经疲惫不堪，脾气暴躁。)
 

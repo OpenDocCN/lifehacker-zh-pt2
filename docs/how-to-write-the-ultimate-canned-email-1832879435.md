@@ -1,6 +1,6 @@
 # 如何写一封完美的电子邮件
 
-> 原文:[https://life hacker . com/how-to-write-the ultimate-canned-email-1832879435](https://lifehacker.com/how-to-write-the-ultimate-canned-email-1832879435)
+> 原文：<https://lifehacker.com/how-to-write-the-ultimate-canned-email-1832879435>
 
 如果你收到了很多至少应该粗略回复的邮件，你可能会觉得没有一封格式信邮件可以取代所有的邮件。这里有一个聪明的解决办法，借用科幻作家罗伯特·海因莱茵的话。
 

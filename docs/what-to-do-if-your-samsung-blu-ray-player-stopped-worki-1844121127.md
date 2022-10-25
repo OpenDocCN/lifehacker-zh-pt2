@@ -1,6 +1,6 @@
 # 如果您的三星蓝光播放器停止工作，该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-if-your-Samsung-blu-ray-player-stopped-work I-1844121127](https://lifehacker.com/what-to-do-if-your-samsung-blu-ray-player-stopped-worki-1844121127)
+> 原文：<https://lifehacker.com/what-to-do-if-your-samsung-blu-ray-player-stopped-worki-1844121127>
 
 如果你的三星蓝光播放器不能正常启动，你并不孤单。根据世界各地用户的大量错误报告，三星蓝光播放器卡在启动循环中，无法使用。 [这篇来自三星支持论坛](https://eu.community.samsung.com/t5/Audio-Video/HT-J4500-home-cinema-cycling-on-and-off-repeatedly/td-p/1811217) 的帖子说明了大多数用户面临的问题:
 

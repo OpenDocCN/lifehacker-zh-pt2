@@ -1,6 +1,6 @@
 # 如何从我的家用设备上访问我的工作密码？
 
-> 原文:[https://life hacker . com/how-do-I-access-my-work-passwords-from my-home-devices-1842527698](https://lifehacker.com/how-do-i-access-my-work-passwords-from-my-home-devices-1842527698)
+> 原文：<https://lifehacker.com/how-do-i-access-my-work-passwords-from-my-home-devices-1842527698>
 
 我们度过了多么美好的一周啊！感觉还是周一，但也许只是我。我们已经帮助计算出 [电缆调制解调器和 ISP 速度](https://lifehacker.com/do-i-need-a-new-cable-modem-if-im-stuck-working-from-ho-1842455120)；如何 [在家用显示器](https://lifehacker.com/how-do-i-connect-my-work-laptop-to-my-home-monitor-1842471071) 设置你的工作笔记本电脑；谈论为什么你的工作笔记本电脑在无线网络方面表现不佳；并帮助解决了令人烦恼的“ [现在我的主计算机无法启动 Windows](https://lifehacker.com/help-windows-wont-boot-correctly-after-a-recent-os-upd-1842509510) ”的问题。
 

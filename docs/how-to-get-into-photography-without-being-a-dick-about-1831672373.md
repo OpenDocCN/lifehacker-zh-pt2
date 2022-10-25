@@ -1,6 +1,6 @@
 # 如何进入摄影(而不是成为一个鸡巴)
 
-> 原文:[https://life hacker . com/how-to-get-into-how-to-picture-by-dick-about-1831672373](https://lifehacker.com/how-to-get-into-photography-without-being-a-dick-about-1831672373)
+> 原文：<https://lifehacker.com/how-to-get-into-photography-without-being-a-dick-about-1831672373>
 
 所以:你喜欢用手机拍照，想升级到更高级的设备。但是你从哪里开始呢？你怎么知道买一台相机要花多少钱？你会去哪里拍好照片？
 

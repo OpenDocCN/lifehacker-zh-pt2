@@ -1,6 +1,6 @@
 # 不要借任何你输不起的东西
 
-> 原文:[https://life hacker . com/don-pay-debit-on-what-you can ' t-take-off-lost-1833941136](https://lifehacker.com/dont-pay-debit-on-anything-you-cant-afford-to-lose-1833941136)
+> 原文：<https://lifehacker.com/dont-pay-debit-on-anything-you-cant-afford-to-lose-1833941136>
 
 上周，廉价航空公司 Wow Air 倒闭，取消了所有航班，乘客滞留在当时发生的任何地方。
 

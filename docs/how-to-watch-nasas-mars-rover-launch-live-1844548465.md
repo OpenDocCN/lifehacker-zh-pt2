@@ -1,6 +1,6 @@
 # 如何现场观看美国宇航局的火星车发射
 
-> 原文:[https://life hacker . com/how-to-watch-nasas-mars-rover-launch-live-1844548465](https://lifehacker.com/how-to-watch-nasas-mars-rover-launch-live-1844548465)
+> 原文：<https://lifehacker.com/how-to-watch-nasas-mars-rover-launch-live-1844548465>
 
 鉴于最近地球上的事情进展顺利，向太空发射机器人探测火星是一个比以往更有趣的想法。截止到今天下午，看起来明天美国宇航局的 [火星 2020 坚忍号火星车](https://www.nasa.gov/perseverance) 的发射是这个夏天为数不多的没有被取消的旅行之一。如果你想去太空，或者只是想看些新鲜的东西，以下是如何观看现场直播的方法。
 

@@ -1,6 +1,6 @@
 # 在象棋数据库上与模拟大师对弈
 
-> 原文:[https://life hacker . com/play-chess-against-simulated-grand-masters-on-chess-d b-1839988161](https://lifehacker.com/play-chess-against-simulated-grand-masters-on-chess-db-1839988161)
+> 原文：<https://lifehacker.com/play-chess-against-simulated-grand-masters-on-chess-db-1839988161>
 
 我刚刚连续三次输给了鲍比·费舍尔。然后为了改变节奏，我输给了 2013 年以来的世界冠军芒努斯·卡尔森。然后我输给了我能选择的排名最低的选手，15 岁的 Abhishek K .超过 29000 人能比 Abhishek 下得更好。我不能。
 

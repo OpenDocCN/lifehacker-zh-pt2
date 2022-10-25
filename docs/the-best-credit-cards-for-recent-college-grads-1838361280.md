@@ -1,6 +1,6 @@
 # 最近大学毕业生的最佳信用卡
 
-> 原文:[https://life hacker . com/the-best-信用卡-给刚毕业的大学生-1838361280](https://lifehacker.com/the-best-credit-cards-for-recent-college-grads-1838361280)
+> 原文：<https://lifehacker.com/the-best-credit-cards-for-recent-college-grads-1838361280>
 
 大学毕业后的头几年就像被扔进了一个糟糕的游戏节目。你需要平衡新的职业、一系列新的生活费用、最终的退休开始储蓄，以及宽限期太短的学生贷款。别忘了:你需要建立信用，所以当你要花钱买更贵的东西，比如房子或汽车时，你的财务状况看起来很有吸引力。
 

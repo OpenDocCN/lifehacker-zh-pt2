@@ -1,6 +1,6 @@
 # how to be an ethical weed consumer 1833861170
 
-> 原文:[https://life hacker . com/how-to-a-ethical-weed-consumer-1833861170](https://lifehacker.com/how-to-be-an-ethical-weed-consumer-1833861170)
+> 原文：<https://lifehacker.com/how-to-be-an-ethical-weed-consumer-1833861170>
 
 在美国的许多地方，大麻的法律地位近年来发生了巨大的变化。在加州等一些州，富裕的消费者现在可以享受完全合法的药房体验，微笑的销售助理会在旁边指导你找到你梦想中的菌株或橡皮糖口味。但是在巴尼百货闪闪发光的展示柜和叫卖 950 美元一包的的外表下，蓬勃发展的杂草产业再次成为不平等的强大驱动力。
 

@@ -1,6 +1,6 @@
 # 如何观看今晚的民主党辩论
 
-> 原文:[https://life hacker . com/how-to-watch-tonights-democratic-debate-1842319974](https://lifehacker.com/how-to-watch-tonights-democratic-debate-1842319974)
+> 原文：<https://lifehacker.com/how-to-watch-tonights-democratic-debate-1842319974>
 
 美国东部时间今晚 8 点，副总统乔·拜登将在华盛顿特区 CNN 演播室与参议员伯尼·桑德斯展开电视辩论
 

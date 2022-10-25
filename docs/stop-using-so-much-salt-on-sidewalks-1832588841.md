@@ -1,6 +1,6 @@
 # 不要在人行道上用这么多盐
 
-> 原文:[https://life hacker . com/stop-use-so-much-salt-on-sidewalks-1832588841](https://lifehacker.com/stop-using-so-much-salt-on-sidewalks-1832588841)
+> 原文：<https://lifehacker.com/stop-using-so-much-salt-on-sidewalks-1832588841>
 
 冬天已经全面来临，随之而来的是，盐的问题充斥着我们的每一条人行道和街道，当然，除非你生活在一个季节差异几乎不存在的州(我很嫉妒)。
 

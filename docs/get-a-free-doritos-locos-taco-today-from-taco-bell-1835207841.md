@@ -1,6 +1,6 @@
 # 今天从塔可钟获得免费的多力多滋玉米卷
 
-> 原文:[https://life hacker . com/get-a-free-Doritos-locos-taco-today-from-taco-bell-1835207841](https://lifehacker.com/get-a-free-doritos-locos-taco-today-from-taco-bell-1835207841)
+> 原文：<https://lifehacker.com/get-a-free-doritos-locos-taco-today-from-taco-bell-1835207841>
 
 本月早些时候，金州勇士队在 NBA 总决赛第二场比赛中“偷走”了一场客场胜利，这一举动现在让每个美国人都有机会以球队的名义获得一份免费的 Doritos Locos taco。
 

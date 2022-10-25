@@ -1,6 +1,6 @@
 # 你如何在两集之间打发时间？
 
-> 原文:[https://life hacker . com/how-do-you-pass-time-between-sets-1838488836](https://lifehacker.com/how-do-you-pass-time-between-sets-1838488836)
+> 原文：<https://lifehacker.com/how-do-you-pass-time-between-sets-1838488836>
 
 花一个小时在健身房锻炼，你很可能会在锻炼过程中遇到至少一种类型的。一些混蛋不重新负重，其他人不擦拭设备，最糟糕的混蛋占用你健身房唯一的深蹲架来蜷缩一个小时。
 

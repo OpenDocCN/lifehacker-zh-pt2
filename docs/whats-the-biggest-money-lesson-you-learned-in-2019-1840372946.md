@@ -1,6 +1,6 @@
 # 2019 年你学到的最大的金钱教训是什么？
 
-> 原文:[https://life hacker . com/whats-2019-1840372946](https://lifehacker.com/whats-the-biggest-money-lesson-you-learned-in-2019-1840372946)
+> 原文：<https://lifehacker.com/whats-the-biggest-money-lesson-you-learned-in-2019-1840372946>
 
 也许你已经开始反思 2019 带你去了哪里，你想在 2020 年关注什么。你正在计划一次旅行，或者想出如何定期回到健身房，或者考虑开始一项爱好。但是你想过你的钱吗？
 

@@ -1,6 +1,6 @@
 # 使用新的“推荐故障排除”功能自动解决 Windows 10 问题
 
-> 原文:[https://life hacker . com/solve-windows-10-issues-automatically-with-the-new-reco-1835377734](https://lifehacker.com/solve-windows-10-issues-automatically-with-the-new-reco-1835377734)
+> 原文：<https://lifehacker.com/solve-windows-10-issues-automatically-with-the-new-reco-1835377734>
 
 你应该 [安装最近的 Windows 2019 年 5 月 10 日](https://support.microsoft.com/en-us/help/4028685/windows-10-get-the-update) 更新，如果你还没有。该更新有一个很酷的新功能，建议故障排除，使诊断和解决常见的电脑问题更容易。
 

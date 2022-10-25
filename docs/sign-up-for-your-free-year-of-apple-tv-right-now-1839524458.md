@@ -1,6 +1,6 @@
 # 立即注册免费一年的 Apple TV+
 
-> 原文:[https://life hacker . com/sign-up-for-your-free-year-of-apple-TV-right-now-1839524458](https://lifehacker.com/sign-up-for-your-free-year-of-apple-tv-right-now-1839524458)
+> 原文：<https://lifehacker.com/sign-up-for-your-free-year-of-apple-tv-right-now-1839524458>
 
 今天是 11 月 1 日！你知道这意味着什么——如果你在 9 月 10 日或之后的任何时候购买了苹果产品，你就赢得了苹果流媒体服务一年的免费试用。它不会神奇地出现在你面前，然而。你必须先激活它。
 

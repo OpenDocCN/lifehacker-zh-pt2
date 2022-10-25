@@ -1,6 +1,6 @@
 # Apex Legends 的微交易如何工作
 
-> 原文:[https://kotaku . com/how-apex-legends-micro transactions-work-1832467135](https://kotaku.com/how-apex-legends-microtransactions-work-1832467135)
+> 原文：<https://kotaku.com/how-apex-legends-microtransactions-work-1832467135>
 
 重生的新皇家战役游戏 *Apex Legends* 有大量装饰性的可解锁物品，从新角色装备到处决倒下的玩家时的特殊动画。所有这些都可以通过在游戏中进步或在战利品盒中花费真钱来获得。下面是对 *Apex 传奇*微交易工作原理的分析。
 

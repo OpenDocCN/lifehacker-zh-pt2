@@ -1,6 +1,6 @@
 # 如何与 Lifehacker 的员工一起购买完美的礼物
 
-> 原文:[https://life hacker . com/how-to-buy-the-perfect-present with the-life hacker-sta-1831184185](https://lifehacker.com/how-to-buy-the-perfect-present-with-the-lifehacker-sta-1831184185)
+> 原文：<https://lifehacker.com/how-to-buy-the-perfect-present-with-the-lifehacker-sta-1831184185>
 
 买礼物可能会…有压力。经常很难知道给那个电影迷朋友买什么，或者给最近真的很喜欢烹饪的姐夫买什么。幸运的是，升级可以帮助你——就把这一集当作我们送给你的礼物吧。在这里，七名 Lifehacker 员工每人分享三个完美的礼物创意，从巧妙的印刷图案到无线设备到神秘的圣诞老人黑客，帮助你购买完美的礼物。
 

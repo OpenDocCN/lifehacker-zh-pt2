@@ -1,6 +1,6 @@
 # 像保存柠檬一样保存佛手
 
-> 原文:[https://life hacker . com/preserve-buddhas-hand-citron-just-as-you-would-lemon-1832433341](https://lifehacker.com/preserve-buddhas-hand-citron-just-as-you-would-lemon-1832433341)
+> 原文：<https://lifehacker.com/preserve-buddhas-hand-citron-just-as-you-would-lemon-1832433341>
 
 [柠檬脯](https://lifehacker.com/preserved-lemons-are-your-new-favorite-condiment-1796458618) 是很特别的东西。他们设法把所有五种口味都带到了餐桌上。只有两种成分——柠檬和盐——它们的主要味道(显然)是酸和咸的，但在室温下放置一段时间后，柑橘会变得醇厚，产生一种温和的甜味，带有一点苦味和一丝鲜味。但是柠檬不应该拥有所有的乐趣；你可以用佛手佛手达到非常相似的效果。
 

@@ -1,6 +1,6 @@
 # 你现在可以在温蒂餐厅得到一份免费的鸡肉三明治
 
-> 原文:[https://life hacker . com/you-can-get-a-free-chicken-sandwich-at-wendys-right-now-1843583426](https://lifehacker.com/you-can-get-a-free-chicken-sandwich-at-wendys-right-now-1843583426)
+> 原文：<https://lifehacker.com/you-can-get-a-free-chicken-sandwich-at-wendys-right-now-1843583426>
 
 由于牛肉短缺 ，温迪店现在可能不会供应他们标志性的方形汉堡 [，但他们想让你知道他们仍然在营业——他们正在](https://www.squaredealblog.com/homewendys/does-wendys-have-beef-weve-got-answers) [免费赠送鸡肉三明治来做这件事](https://www.wendys.com/offers-coupons) 。具体来说，如果你通过 [Wendy 的 app](https://apps.apple.com/us/app/wendys/id540518599) 点任何一个菜单项，你都可以获得一份 0 美元的辣鸡三明治。
 

@@ -1,6 +1,6 @@
 # 如果你在家工作，现在不要使用 Tor
 
-> 原文:[https://life hacker . com/don-use-tor-right-now-if-you-work-from-home-1842318515](https://lifehacker.com/dont-use-tor-right-now-if-youre-working-from-home-1842318515)
+> 原文：<https://lifehacker.com/dont-use-tor-right-now-if-youre-working-from-home-1842318515>
 
 随着越来越多的人呆在家里， [远程工作以避免新冠肺炎疫情](https://lifehacker.com/be-prepared-to-work-from-home-during-the-coronavirus-ou-1842088431) ，网络安全已经成为更高的优先事项。使用尊重用户隐私并保证数据安全的 web 浏览器是远程办公的必需品，但是你现在应该避免使用 Tor web 浏览器，尽管这是匿名化你的网络活动的最好方法之一。
 

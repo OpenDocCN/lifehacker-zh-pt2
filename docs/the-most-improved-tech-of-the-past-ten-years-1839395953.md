@@ -1,6 +1,6 @@
 # 过去十年中进步最大的技术
 
-> 原文:[https://gizmodo . com/过去十年改进最多的技术-1839395953](https://gizmodo.com/the-most-improved-tech-of-the-past-ten-years-1839395953)
+> 原文：<https://gizmodo.com/the-most-improved-tech-of-the-past-ten-years-1839395953>
 
 从全局来看，十年算不了什么；我们星球漫长时间线上微不足道的一部分。但说到技术创新，十年内很多事情都会发生变化，你在 2010 年依赖的一些小工具、软件和芯片现在似乎已经过时，可以进入古董市场了。
 

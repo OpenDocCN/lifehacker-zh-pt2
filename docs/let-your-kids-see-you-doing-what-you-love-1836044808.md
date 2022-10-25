@@ -1,6 +1,6 @@
 # 让你的孩子看到你在做自己喜欢的事情
 
-> 原文:[https://life hacker . com/let-your-kids-see-you-doing-what-you-love-1836044808](https://lifehacker.com/let-your-kids-see-you-doing-what-you-love-1836044808)
+> 原文：<https://lifehacker.com/let-your-kids-see-you-doing-what-you-love-1836044808>
 
 我有些爱莫能助，所以当莫能助给我育儿建议时，我会采纳莫能助的育儿建议。(如果你不知道莫是谁，请去看看他的奇妙古怪的 [鸽子书系列](http://pigeonpresents.com/books/#pp-series-the-pigeon) 给孩子，加上 [*小兔子*](http://pigeonpresents.com/books/#pp-series-knuffle-bunny) ，这是我家的一个空前的最爱。)
 

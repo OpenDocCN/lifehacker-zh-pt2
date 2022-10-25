@@ -1,6 +1,6 @@
 # 使用共享的谷歌日历来计划与朋友的时间
 
-> 原文:[https://life hacker . com/use-a-shared-Google-calendar-to-plan-time-with-friends-1836665639](https://lifehacker.com/use-a-shared-google-calendar-to-plan-time-with-friends-1836665639)
+> 原文：<https://lifehacker.com/use-a-shared-google-calendar-to-plan-time-with-friends-1836665639>
 
 我们很多人都想和朋友多呆一会儿——但在晚上或周末大家都有空的时候，往往要来回跑好几圈才能到达。
 

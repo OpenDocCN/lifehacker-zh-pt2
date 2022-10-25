@@ -1,6 +1,6 @@
 # 如何向 Instapaper 发送电子邮件简讯
 
-> 原文:[https://life hacker . com/how-to-send-email-newslettes-to-instapaper-1836602754](https://lifehacker.com/how-to-send-email-newsletters-to-instapaper-1836602754)
+> 原文：<https://lifehacker.com/how-to-send-email-newsletters-to-instapaper-1836602754>
 
 电子邮件时事通讯现在很流行，但是它们可能很多。如果时事通讯塞满了你的收件箱，以下是将它们发送到 Instapaper 的方法。(外加一个口袋的变通办法。)
 

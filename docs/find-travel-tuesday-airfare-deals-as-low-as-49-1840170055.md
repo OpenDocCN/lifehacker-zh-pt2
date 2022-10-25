@@ -1,6 +1,6 @@
 # 找到低至 49 美元的“周二旅行”机票
 
-> 原文:[https://life hacker . com/find-travel-Tuesday-airfare-deals-as-low-as-49-1840170055](https://lifehacker.com/find-travel-tuesday-airfare-deals-as-low-as-49-1840170055)
+> 原文：<https://lifehacker.com/find-travel-tuesday-airfare-deals-as-low-as-49-1840170055>
 
 如果你错过了任何好的网络星期一交易，不要担心。一些最优惠的活动在周二仍然有效——这包括航空公司的几项交易，在所谓的“ [周二](https://www.usatoday.com/story/travel/airline-news/2019/12/02/cyber-monday-airfare-deals-southwest-allegiant-jetblue-alaska-frontier/4350800002/) 旅行期间。”
 

@@ -1,6 +1,6 @@
 # 把你孩子的面具挂在挂绳上
 
-> 原文:[https://life hacker . com/keep-your-kids-mask-on-a-lash-1844942938](https://lifehacker.com/keep-your-kids-mask-on-a-lanyard-1844942938)
+> 原文：<https://lifehacker.com/keep-your-kids-mask-on-a-lanyard-1844942938>
 
 挂绳通常用于保护我们最珍贵的物品——比如钥匙，或者是教练或裁判的哨子——安全且容易拿取。现在，我们的孩子最需要的东西就是口罩来保证安全和方便使用(T2)。这就是为什么特别是如果他们很年轻或容易丢东西，面具挂绳可能是我们从未想过会有的问题的解决方案。
 

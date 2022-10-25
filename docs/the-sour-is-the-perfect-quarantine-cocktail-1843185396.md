@@ -1,6 +1,6 @@
 # 酸味是完美的检疫鸡尾酒
 
-> 原文:[https://life hacker . com/the-sour-is-the-perfect-quarantine-cocktail-1843185396](https://lifehacker.com/the-sour-is-the-perfect-quarantine-cocktail-1843185396)
+> 原文：<https://lifehacker.com/the-sour-is-the-perfect-quarantine-cocktail-1843185396>
 
 现在我已经没有了金巴利酒、杜松子酒和我点的所有酒 ，我被迫用“我所拥有的”来混合饮料幸运的是，只要我有柠檬和蔗糖，我就可以把几乎所有的酒(如朗姆酒、龙舌兰酒、威士忌、杜松子酒)搅拌成蓬松清爽的酸味酒(如代基里酒、玛格丽塔酒、威士忌酸味酒和金格利特酒)。
 

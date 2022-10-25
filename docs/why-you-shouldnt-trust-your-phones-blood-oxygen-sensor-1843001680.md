@@ -1,6 +1,6 @@
 # 为什么你不应该相信你手机的血氧传感器
 
-> 原文:[https://life hacker . com/why-you-should-trust-your-phones-blood-oxygen-sensor-1843001680](https://lifehacker.com/why-you-shouldnt-trust-your-phones-blood-oxygen-sensor-1843001680)
+> 原文：<https://lifehacker.com/why-you-shouldnt-trust-your-phones-blood-oxygen-sensor-1843001680>
 
 有一种观点认为，你可以用智能手机精确测量你的 spo 2——即你的血氧水平。虽然现在 [肯定很方便](https://www.nytimes.com/2020/04/20/opinion/coronavirus-testing-pneumonia.html?smid=tw-share) 轻松获取那个数字——当你的医生在检查时把你的手指放在那个小夹子里时你会得到的那个数字——但我不得不悲哀地报告，无论你的智能手机给你提供的数字是多少，都可能不准确。
 

@@ -1,6 +1,6 @@
 # Lyft 的新新冠肺炎规则包括什么
 
-> 原文:[https://life hacker . com/whats-included-in-lyfts-new-新冠肺炎-rules-1843346767](https://lifehacker.com/whats-included-in-lyfts-new-covid-19-rules-1843346767)
+> 原文：<https://lifehacker.com/whats-included-in-lyfts-new-covid-19-rules-1843346767>
 
 继优步将要求乘客和乘客戴口罩 的消息后，Lyft 也改变了其乘车政策，要求乘客和乘客都戴口罩。Lyft 的政策更进了一步，不过，增加了一些额外的要求。
 

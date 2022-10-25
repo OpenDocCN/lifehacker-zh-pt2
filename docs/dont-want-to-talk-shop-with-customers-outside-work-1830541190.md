@@ -1,6 +1,6 @@
 # 问那个刻薄的女服务员:我不想在工作之外和顾客谈论工作
 
-> 原文:[https://the take out . com/don-want-to-talk-shop-with-customers-out-of-work-1830541190](https://thetakeout.com/dont-want-to-talk-shop-with-customers-outside-work-1830541190)
+> 原文：<https://thetakeout.com/dont-want-to-talk-shop-with-customers-outside-work-1830541190>
 
 > 亲爱的咸:对于工作之外偶遇熟客有什么建议？我在一家受欢迎的餐厅/酒吧工作，这家餐厅/酒吧还在一个小镇举办音乐会和活动。因为我的工作，我经常会在工作之外得到认可。我对整个“嗨/再见”的例行公事感到很舒服，但人们试图询问我的工作并不罕见:菜单建议、价格投诉、他们认为我们应该举办的活动的随机想法，或者只是他们听到的八卦和谣言。
 > 

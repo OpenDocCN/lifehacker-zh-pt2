@@ -1,6 +1,6 @@
 # 如何在关机期间节省你的电话费用
 
-> 原文:[https://life hacker . com/how-to-save-money on-your-phone-plan-in-the-shut Dow-1843347930](https://lifehacker.com/how-to-save-money-on-your-phone-plan-during-the-shutdow-1843347930)
+> 原文：<https://lifehacker.com/how-to-save-money-on-your-phone-plan-during-the-shutdow-1843347930>
 
 如果这些天你大部分时间都呆在家里，你可以通过转换到基于使用的计划来节省每月的电话费。
 

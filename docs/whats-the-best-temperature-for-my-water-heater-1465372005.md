@@ -1,6 +1,6 @@
 # 我的热水器的最佳温度是多少？
 
-> 原文:[https://life hacker . com/whats-the-best-temperature for my ' s water-1465372005](https://lifehacker.com/whats-the-best-temperature-for-my-water-heater-1465372005)
+> 原文：<https://lifehacker.com/whats-the-best-temperature-for-my-water-heater-1465372005>
 
 如果你有房子，你可能有某种热水器。但是“热”水没有统一的温度——这是你必须自己设定的。那么理想的热水器温度是多少呢？以下是你需要知道的。
 

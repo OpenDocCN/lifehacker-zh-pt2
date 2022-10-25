@@ -1,6 +1,6 @@
 # 据 Lifehacker 的工作人员说，隔离舒适电视
 
-> 原文:[https://life hacker . com/quarantine-comfort-TV-依生活黑客-staf-1842667167](https://lifehacker.com/quarantine-comfort-tv-according-to-the-lifehacker-staf-1842667167)
+> 原文：<https://lifehacker.com/quarantine-comfort-tv-according-to-the-lifehacker-staf-1842667167>
 
 自从美国许多城市发布就地避难的命令以对抗新冠肺炎病毒的传播以来，已经过了很长的时间，而且李也不打算在短时间内恢复正常。现在是时候逃避到让你感觉良好的电视节目中去了——或者至少让你感觉到某种东西，而不是压倒性的存在恐惧。
 

@@ -1,6 +1,6 @@
 # 如何清洁你的烤箱
 
-> 原文:[https://lifehacker.com/how-to-clean-your-oven-1843381506](https://lifehacker.com/how-to-clean-your-oven-1843381506)
+> 原文：<https://lifehacker.com/how-to-clean-your-oven-1843381506>
 
 我通常不会去清理我的烤箱，除非我需要通过搬出检查，或者潜伏在里面的烧焦的食物开始触发我的烟雾警报。但是你拖得越久，你的烤箱就会变得越恶心，所以现在就开始着手处理吧。
 

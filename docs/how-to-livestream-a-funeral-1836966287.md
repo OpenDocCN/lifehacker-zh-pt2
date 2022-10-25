@@ -1,6 +1,6 @@
 # 如何直播葬礼
 
-> 原文:[https://life hacker . com/how-to-live stream-a-葬礼-1836966287](https://lifehacker.com/how-to-livestream-a-funeral-1836966287)
+> 原文：<https://lifehacker.com/how-to-livestream-a-funeral-1836966287>
 
 如果你明天就死了，有多少人会被迫去参加你的葬礼，他们要走多远？现在，离开你的家乡，搬到全国各地或国外，至少是一段时间，然后发现你的亲人分散在几千英里之外，这是相当平常的事情。
 

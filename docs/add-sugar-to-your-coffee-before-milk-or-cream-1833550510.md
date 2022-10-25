@@ -1,6 +1,6 @@
 # 在喝牛奶或奶油之前，先在咖啡里加糖
 
-> 原文:[https://life hacker . com/add-sugar to your coffee before of milk or cream-1833550510](https://lifehacker.com/add-sugar-to-your-coffee-before-milk-or-cream-1833550510)
+> 原文：<https://lifehacker.com/add-sugar-to-your-coffee-before-milk-or-cream-1833550510>
 
 一个人如何喝咖啡是非常私人的事情，我总是不愿意告诉人们他们“做错了”，特别是因为咖啡学究是最糟糕的学究类型。
 

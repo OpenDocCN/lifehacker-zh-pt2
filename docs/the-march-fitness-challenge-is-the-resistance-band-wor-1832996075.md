@@ -1,6 +1,6 @@
 # 三月健身挑战是:阻力带锻炼
 
-> 原文:[https://life hacker . com/the-March-fitness-challenge-is-the-resistance-band-wor-1832996075](https://lifehacker.com/the-march-fitness-challenge-is-the-resistance-band-wor-1832996075)
+> 原文：<https://lifehacker.com/the-march-fitness-challenge-is-the-resistance-band-wor-1832996075>
 
 在本月的 [健身挑战赛](https://lifehacker.com/c/lifehacker-fitness-challenge) 中，我们将带着旅行和家庭锻炼的主食:多功能阻力带。
 

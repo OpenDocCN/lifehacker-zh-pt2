@@ -1,6 +1,6 @@
 # 如何为孩子的 IEP 会议做准备
 
-> 原文:[https://life hacker . com/how-to-prepare-for-your-childs-IEP-meeting-1841067357](https://lifehacker.com/how-to-prepare-for-your-childs-iep-meeting-1841067357)
+> 原文：<https://lifehacker.com/how-to-prepare-for-your-childs-iep-meeting-1841067357>
 
 养育一个有学习障碍的孩子是一项频繁而持续的倡导活动。也许这些父母必须面对的最令人困惑的事情之一是 IEP——或个性化教育项目——过程。这是父母和学校为确保残疾儿童接受专门指导并取得进步而制定的专门教育任务清单。该计划定义了您孩子的教育需求、目标和目的。创造它可能会让人不知所措、望而生畏。
 

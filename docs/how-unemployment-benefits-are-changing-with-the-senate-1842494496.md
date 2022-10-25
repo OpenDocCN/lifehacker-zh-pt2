@@ -1,6 +1,6 @@
 # 失业救济金如何随着参议院冠状病毒救济法案而改变
 
-> 原文:[https://life hacker . com/how-losis-benefits-are-changing-with-the-Senate-1842494496](https://lifehacker.com/how-unemployment-benefits-are-changing-with-the-senate-1842494496)
+> 原文：<https://lifehacker.com/how-unemployment-benefits-are-changing-with-the-senate-1842494496>
 
 如果你因为冠状病毒而失业，昨晚在参议院通过的救济法案(预计很快将在众议院通过)将提供扩大的失业福利。
 

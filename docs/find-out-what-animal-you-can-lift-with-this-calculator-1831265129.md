@@ -1,6 +1,6 @@
 # 用这个计算器算出你能举起哪种动物
 
-> 原文:[https://life hacker . com/find-out-what-animal-you-can-lift with this-calculator-1831265129](https://lifehacker.com/find-out-what-animal-you-can-lift-with-this-calculator-1831265129)
+> 原文：<https://lifehacker.com/find-out-what-animal-you-can-lift-with-this-calculator-1831265129>
 
 我想我可以卧推一只灰狼。(上次我在健身房的时候，我做了 10 组，所以我变轻了，围着一只成熟的袋熊)。我可以轻松地硬拉一只黑熊，在天气好的时候可能是一只小象，但到了 2019 年底，我的目标至少是一只雄性大熊猫。
 

@@ -1,6 +1,6 @@
 # 亚马逊的新 Echo Studio 与其他智能扬声器相比如何
 
-> 原文:[https://life hacker . com/how-amazons-new-echo-studio-comparates-to-other-smart-SPE-1838497667](https://lifehacker.com/how-amazons-new-echo-studio-compares-to-other-smart-spe-1838497667)
+> 原文：<https://lifehacker.com/how-amazons-new-echo-studio-compares-to-other-smart-spe-1838497667>
 
 Echo 音箱拥有 [出色的功能](https://lifehacker.com/the-seven-best-things-you-can-do-with-an-amazon-echo-1766989219) ，这使得它们非常适合 Alexa 驱动的智能家居设置，但它们不一定以一流的音频质量而闻名，尤其是亚马逊更实惠的选项。
 

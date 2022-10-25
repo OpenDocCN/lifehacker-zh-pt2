@@ -1,6 +1,6 @@
 # 如何越狱你的 iOS 13.5 设备
 
-> 原文:[https://life hacker . com/how-to-jail break-your-IOs-13-5-device-1843683045](https://lifehacker.com/how-to-jailbreak-your-ios-13-5-device-1843683045)
+> 原文：<https://lifehacker.com/how-to-jailbreak-your-ios-13-5-device-1843683045>
 
 在 iOS 的早期，破解你的 iPhone 很流行，但苹果在打击这种做法方面做得更好，iOS 的越狱场景停滞不前。直到现在，那是。iOS 13.5 已经成功越狱，这意味着 mods 和定制主题终于可以安装在更新的 iPhones 和 iPads 上了。我们将向您展示如何越狱，并解释为什么您可能首先想要越狱。我们还将向您展示一些成功越狱 iOS 13.5 设备后可以安装的最佳应用。
 

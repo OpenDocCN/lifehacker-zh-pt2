@@ -1,6 +1,6 @@
 # 要开始早起，承认这很糟糕
 
-> 原文:[https://life hacker . com/to-start-wake-up-early-acknown-that-sucks-1840899880](https://lifehacker.com/to-start-waking-up-early-acknowledge-that-it-sucks-1840899880)
+> 原文：<https://lifehacker.com/to-start-waking-up-early-acknowledge-that-it-sucks-1840899880>
 
 如果你很难早起，接受一个简单的事实可能会有所帮助:在第一个清晨起床就像撕掉创可贴。
 

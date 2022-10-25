@@ -1,6 +1,6 @@
 # 通过直接向餐厅点餐来支持餐厅
 
-> 原文:[https://life hacker . com/support-restaurants-by-ordering-direct-from-them-1842358946](https://lifehacker.com/support-restaurants-by-ordering-directly-from-them-1842358946)
+> 原文：<https://lifehacker.com/support-restaurants-by-ordering-directly-from-them-1842358946>
 
 如果你目前依靠送餐来帮助你和你的家人度过在家工作和上学的情况，或者如果你正在给需要额外关爱和照顾的老年亲戚和朋友送餐，有一个好方法可以确保你尽可能多的钱用于你想支持的企业。
 

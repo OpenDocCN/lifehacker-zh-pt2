@@ -1,6 +1,6 @@
 # 如何获得替换的经济影响支付卡
 
-> 原文:[https://life hacker . com/how-to-get-a-replacement-economic-impact-payment-card-1843882401](https://lifehacker.com/how-to-get-a-replacement-economic-impact-payment-card-1843882401)
+> 原文：<https://lifehacker.com/how-to-get-a-replacement-economic-impact-payment-card-1843882401>
 
 终于扔掉了堆积在你厨房桌子上的一堆垃圾邮件？你一直在等待政府发放的经济影响补偿可能就在那一堆钱里。
 

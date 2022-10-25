@@ -1,6 +1,6 @@
 # 如何停用或隐藏 MacBook 的 Touch Bar
 
-> 原文:[https://life hacker . com/how-to-disable-or-hide-your-macbooks-touch-bar-1843571363](https://lifehacker.com/how-to-disable-or-hide-your-macbooks-touch-bar-1843571363)
+> 原文：<https://lifehacker.com/how-to-disable-or-hide-your-macbooks-touch-bar-1843571363>
 
 Lifehacker 的执行编辑乔尔·坎宁安(Joel Cunningham)前几天提出了一个古怪的隔离问题:他三岁的孩子一直在按他 MacBook Touch Bar 上颜色鲜艳的按钮，提前结束了他在各种视频聊天中的参与。虽然这可能很可爱*【执行编辑注:这并不可爱】，*他想知道是否有任何方法可以让他的儿子停止这样做(任何*科技*方法，就是说)。
 

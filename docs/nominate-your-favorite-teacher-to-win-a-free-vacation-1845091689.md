@@ -1,6 +1,6 @@
 # 提名你最喜欢的老师赢得免费假期
 
-> 原文:[https://life hacker . com/nominate-your favorite-teacher-win-a-free-vacation-1845091689](https://lifehacker.com/nominate-your-favorite-teacher-to-win-a-free-vacation-1845091689)
+> 原文：<https://lifehacker.com/nominate-your-favorite-teacher-to-win-a-free-vacation-1845091689>
 
 孩子们的在线课程在春季开学后，经过几周——或者确切地说是几天——的监督，许多家长发现他们对老师的欣赏达到了一个新的水平。即使在最好的情况下，管理一个(真实的或虚拟的)学生房间也是一件令人筋疲力尽、通常是吃力不讨好的工作。但事实证明，在疫情期间教书会让本已紧张的工作变得更加糟糕。
 

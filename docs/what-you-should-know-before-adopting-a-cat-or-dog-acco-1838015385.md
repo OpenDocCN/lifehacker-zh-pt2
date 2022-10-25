@@ -1,6 +1,6 @@
 # 根据 Reddit，在收养一只猫或狗之前你应该知道什么
 
-> 原文:[https://life hacker . com/what-you-should-know-before-adopting a cat-or-dog-acco-1838015385](https://lifehacker.com/what-you-should-know-before-adopting-a-cat-or-dog-acco-1838015385)
+> 原文：<https://lifehacker.com/what-you-should-know-before-adopting-a-cat-or-dog-acco-1838015385>
 
 在道林飓风过后的几天里，美国的几个庇护所接收了数百只从巴哈马受影响社区疏散的动物。但是，在你决定做一件好事，收养其中一只(或六只)宠物之前，重要的是要明白你到底要做什么，尤其是如果你碰巧是第一次养宠物的话。
 

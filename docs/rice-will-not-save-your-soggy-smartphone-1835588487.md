@@ -1,6 +1,6 @@
 # 大米救不了你湿透的智能手机
 
-> 原文:[https://life hacker . com/rice-will-not-save-your-soggy-smart phone-1835588487](https://lifehacker.com/rice-will-not-save-your-soggy-smartphone-1835588487)
+> 原文：<https://lifehacker.com/rice-will-not-save-your-soggy-smartphone-1835588487>
 
 米饭和这么多东西搭配得很好:一个熊猫快递碗，一个婚礼(不， [小鸟不会爆炸](http://mentalfloss.com/article/31421/does-wedding-rice-really-make-birds-explode) )， [香菜茎](https://skillet.lifehacker.com/make-chipotle-style-rice-with-cilantro-stems-1829820745) 。它不能与你潮湿的智能手机相混合，即使你可能已经被灌输了当你不小心浸泡了你的设备时，你想做的第一件事就是把它放入一大碗生米中。
 

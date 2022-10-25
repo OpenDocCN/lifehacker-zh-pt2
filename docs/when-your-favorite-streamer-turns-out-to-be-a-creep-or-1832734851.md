@@ -1,6 +1,6 @@
 # when your favorite streamer turns out to be a creep or 1832734851
 
-> 原文:[https://kotaku . com/when-your favor-streamer-turn-to-be-a-creep-or-1832734851](https://kotaku.com/when-your-favorite-streamer-turns-out-to-be-a-creep-or-1832734851)
+> 原文：<https://kotaku.com/when-your-favorite-streamer-turns-out-to-be-a-creep-or-1832734851>
 
 两周前，当佐治亚州警方 [逮捕](https://kotaku.com/twitch-streamer-and-game-studio-employee-arrested-in-ch-1832359911) 托马斯·张(Thomas Cheung)时，他的朋友、粉丝和商业伙伴的普遍反应是震惊，托马斯·张是知名的 Twitch streamer 和*魔兽世界*社区人物。
 

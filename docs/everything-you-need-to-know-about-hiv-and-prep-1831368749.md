@@ -1,6 +1,6 @@
 # everything you need to know about hiv and prep 1831368749
 
-> 原文:[https://Jezebel . com/everything-you-need-know-on-HIV-and-prep-1831368749](https://jezebel.com/everything-you-need-to-know-about-hiv-and-prep-1831368749)
+> 原文：<https://jezebel.com/everything-you-need-to-know-about-hiv-and-prep-1831368749>
 
 几周前，我有一个十几岁的病人，我称她为亚历克斯，来我的健康中心做性传播感染(STI)测试。她之前一直去当地的急救中心做常规的性病检测，但是决定去我的健康中心，因为那里离她的新家更近。患者被确认为一名女性，具有牙买加血统，并表示她与男性发生过性行为。
 

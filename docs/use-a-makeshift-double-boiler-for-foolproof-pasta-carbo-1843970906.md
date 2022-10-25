@@ -1,6 +1,6 @@
 # 用一个临时的双层蒸锅来做简单的意大利面
 
-> 原文:[https://life hacker . com/use-a-movacy-double-boiler-for-Stuart-pasta-carbo-1843970906](https://lifehacker.com/use-a-makeshift-double-boiler-for-foolproof-pasta-carbo-1843970906)
+> 原文：<https://lifehacker.com/use-a-makeshift-double-boiler-for-foolproof-pasta-carbo-1843970906>
 
 将硬奶酪和意大利面水乳化成非常光滑的酱基本上是意大利面热力学的研究生课程。平底锅必须足够热，以均匀地融化奶酪，但不要太热，以至于卡住——或者，在意大利面条 carbonara 的情况下，你会得到一大碗炒鸡蛋。
 

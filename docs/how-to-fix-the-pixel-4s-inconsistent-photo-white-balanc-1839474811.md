@@ -1,6 +1,6 @@
 # 如何“修复”Pixel 4 的照片白平衡不一致的错误
 
-> 原文:[https://life hacker . com/how-to-fix-the-pixel-4s-inconsive-photo-white-balanc-1839474811](https://lifehacker.com/how-to-fix-the-pixel-4s-inconsistent-photo-white-balanc-1839474811)
+> 原文：<https://lifehacker.com/how-to-fix-the-pixel-4s-inconsistent-photo-white-balanc-1839474811>
 
 Pixel 4 和 4 XL 拥有任何智能手机上最好的相机硬件，但“最好”并不一定意味着“完美”正如 [Android Police](https://www.androidpolice.com/2019/10/28/pixel-4-white-balance-bad-images/) 、Reddit 海报和谷歌支持用户所报告的，Pixel 4 的白平衡算法似乎导致了一个奇怪的色彩校正错误。Pixel 3 用户过去也出现过类似的问题，但这是一个非常罕见的问题，似乎只影响夜间模式下拍摄的照片。另一方面，在谷歌相机应用程序的各种相机模式下拍摄时，甚至在使用替代应用程序时，Pixel 4 白平衡错误都会发生。
 

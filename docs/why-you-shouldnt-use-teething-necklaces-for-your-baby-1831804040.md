@@ -1,6 +1,6 @@
 # 为什么不应该给宝宝戴出牙项链
 
-> 原文:[https://life hacker . com/why-you-should-use-neutting-项链-for-your-baby-1831804040](https://lifehacker.com/why-you-shouldnt-use-teething-necklaces-for-your-baby-1831804040)
+> 原文：<https://lifehacker.com/why-you-shouldnt-use-teething-necklaces-for-your-baby-1831804040>
 
 如果你依靠出牙项链来缓解宝宝的疼痛，FDA 希望你停止。但是他们不仅仅是大坏蛋——孩子们在长牙项链上被窒息和勒死，琥珀色的孩子总是做出好得令人难以置信的声明。
 

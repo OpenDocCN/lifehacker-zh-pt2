@@ -1,6 +1,6 @@
 # 我需要一辆便宜的 SUV 带我去山里！应该买什么车？
 
-> 原文:[https://jalopnik . com/I-need-a-cheap-SUV-to-get-me-the-mountains-what-car-1840764268](https://jalopnik.com/i-need-a-cheap-suv-to-get-me-to-the-mountains-what-car-1840764268)
+> 原文：<https://jalopnik.com/i-need-a-cheap-suv-to-get-me-to-the-mountains-what-car-1840764268>
 
 瑞安住在洛杉矶，但更喜欢在山上度过时光。他每天都开着一辆思域 Si，但他正在寻找一辆便宜的卡车或 SUV，可以装下他的装备，带他去山上，也可能拖着他的本田。他应该买什么车？
 

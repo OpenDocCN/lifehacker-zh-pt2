@@ -1,6 +1,6 @@
 # 如何在 Android 上首先看到最近的推文
 
-> 原文:[https://life hacker . com/how-to-see-recent-tweets-first-on-Android-1831850131](https://lifehacker.com/how-to-see-recent-tweets-first-on-android-1831850131)
+> 原文：<https://lifehacker.com/how-to-see-recent-tweets-first-on-android-1831850131>
 
 Android 用户，高兴吧:你的 Twitter 应用程序现在可以轻松解决恼人的“最佳推文优先”时间线布局。
 

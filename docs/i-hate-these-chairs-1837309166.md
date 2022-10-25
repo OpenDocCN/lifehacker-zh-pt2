@@ -1,6 +1,6 @@
 # 我讨厌这些椅子
 
-> 原文:[https://jezebel.com/i-hate-these-chairs-1837309166](https://jezebel.com/i-hate-these-chairs-1837309166)
+> 原文：<https://jezebel.com/i-hate-these-chairs-1837309166>
 
 我不知道从什么时候起，这种特殊的椅子成了美国所有休闲餐厅的首选椅子。我不知道他们叫什么，也许是“小酒馆”的椅子？我只知道我恨他们，我害怕看到他们。
 

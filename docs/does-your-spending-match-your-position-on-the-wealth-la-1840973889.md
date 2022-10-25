@@ -1,6 +1,6 @@
 # 你的支出与你在“财富阶梯”上的位置相符吗？
 
-> 原文:[https://life hacker . com/do-your-spending-match-your-position-on-the-wealth-la-1840973889](https://lifehacker.com/does-your-spending-match-your-position-on-the-wealth-la-1840973889)
+> 原文：<https://lifehacker.com/does-your-spending-match-your-position-on-the-wealth-la-1840973889>
 
 上次我去杂货店购物，我买了名牌奶酪，而不是商店品牌的奶酪。2 美元的切达干酪和 6 美元的切达干酪之间的价格差曾经让人觉得大得不可思议；现在已经不重要了。尽管如此，它仍然每次都会被记录下来——提醒我在过去的十年里，我的生活发生了多大的变化。
 

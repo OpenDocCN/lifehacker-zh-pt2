@@ -1,6 +1,6 @@
 # 最好的棕色黄油的秘密
 
-> 原文:[https://life hacker . com/the-secret-to-the-best-browned-butter-1840046998](https://lifehacker.com/the-secret-to-the-best-browned-butter-1840046998)
+> 原文：<https://lifehacker.com/the-secret-to-the-best-browned-butter-1840046998>
 
 棕色黄油 让一切尝起来更好——当然，除非你根本尝不出来。它浓郁的烤味很容易在除了黄油以外的菜肴中消失。解决办法很简单:加牛奶就行了。
 

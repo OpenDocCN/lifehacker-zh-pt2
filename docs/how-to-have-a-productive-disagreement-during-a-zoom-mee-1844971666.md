@@ -1,6 +1,6 @@
 # 如何在 Zoom 会议中产生富有成效的分歧
 
-> 原文:[https://life hacker . com/how-to-have-a-productive-disagreement-in-a-zoom-mee-1844971666](https://lifehacker.com/how-to-have-a-productive-disagreement-during-a-zoom-mee-1844971666)
+> 原文：<https://lifehacker.com/how-to-have-a-productive-disagreement-during-a-zoom-mee-1844971666>
 
 也许你是那种喜欢对抗，喜欢争论的人。或者，也许你是那种不惜一切代价试图避开像 T2 这样的人和情况的人，然后因为你不同意某人的意见时没有说出来而生自己的气。不管怎样，当你在工作中与他人合作时，分歧是必然会发生的。《福布斯》杂志的安妮·休格称，尽管这会儿它们可能有些尴尬，但它们也是有效决策过程的一部分。
 

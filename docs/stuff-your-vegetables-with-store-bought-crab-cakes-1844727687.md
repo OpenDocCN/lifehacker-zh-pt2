@@ -1,6 +1,6 @@
 # 用商店买的蟹肉饼填满你的蔬菜
 
-> 原文:[https://life hacker . com/stuff-your-vegetables with-store-buddy-crab-cakes-1844727687](https://lifehacker.com/stuff-your-vegetables-with-store-bought-crab-cakes-1844727687)
+> 原文：<https://lifehacker.com/stuff-your-vegetables-with-store-bought-crab-cakes-1844727687>
 
 蟹肉蔬菜当然美味，但我总是觉得有点内疚，因为我把昂贵的优质蟹肉与奶酪和面包屑混合在一起，然后塞进蘑菇里。你可以通过购买整只螃蟹并自己分解来降低成本，但我倾向于在蟹肉从壳里出来的那一刻就吃它。然而，商店里买的蟹饼是完全不同的一笔交易，无论是从财政上还是(对我来说)精神上。
 

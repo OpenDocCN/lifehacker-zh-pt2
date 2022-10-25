@@ -1,6 +1,6 @@
 # 如果你想将你的退休金账户展期，可以使用这个图表
 
-> 原文:[https://life hacker . com/use-this-chart-if-you-want-to-rollover-your-retirement-1832156353](https://lifehacker.com/use-this-chart-if-you-want-to-rollover-your-retirement-1832156353)
+> 原文：<https://lifehacker.com/use-this-chart-if-you-want-to-rollover-your-retirement-1832156353>
 
 记录退休账户对于普通美国人来说可能很棘手——根据美国政府问责局的数据，2004 年至 2013 年间，超过 2500 万工人在更换雇主时至少留下了一个账户，这意味着数千亿美元的福利损失 。
 

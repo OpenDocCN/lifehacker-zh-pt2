@@ -1,6 +1,6 @@
 # 如何在人群中穿行
 
-> 原文:[https://life hacker . com/how-to-many-through-a-crowd-1832752904](https://lifehacker.com/how-to-maneuver-through-a-crowd-1832752904)
+> 原文：<https://lifehacker.com/how-to-maneuver-through-a-crowd-1832752904>
 
 我有小便焦虑症。
 

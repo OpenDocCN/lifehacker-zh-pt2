@@ -1,6 +1,6 @@
 # 今年夏天，试试“索尼克”,而不是 G&T 或高杯
 
-> 原文:[https://life hacker . com/try-a-sonic-而不是-a-g-t-or-highball-this-summer-1835026951](https://lifehacker.com/try-a-sonic-instead-of-a-g-t-or-highball-this-summer-1835026951)
+> 原文：<https://lifehacker.com/try-a-sonic-instead-of-a-g-t-or-highball-this-summer-1835026951>
 
 如果你最近在高档杂货店或烈酒商店浏览搅拌器，你一定会发现各种各样的奎宁水。我个人最喜欢的是发烧树的接骨木花补品。试试吧，太棒了。滋补品可以很好地帮助带出你正在喝的酒的味道，但它们有时也可能有点令人无法抗拒，特别是当你真的想品尝你正在混合的鸡尾酒的味道时。
 

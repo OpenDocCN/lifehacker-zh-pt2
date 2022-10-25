@@ -1,6 +1,6 @@
 # 感恩节晚餐如何带着食物飞行
 
-> 原文:[https://life hacker . com/how-to-fly with food-for-感恩节大餐-1830524441](https://lifehacker.com/how-to-fly-with-food-for-thanksgiving-dinner-1830524441)
+> 原文：<https://lifehacker.com/how-to-fly-with-food-for-thanksgiving-dinner-1830524441>
 
 如果你本周晚些时候要去机场庆祝感恩节，你要小心打包你打算带去的任何好吃的东西。同样的 TSA 规则适用于每隔一天的感恩节，这意味着不是每一餐都能随身携带。
 

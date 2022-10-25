@@ -1,6 +1,6 @@
 # 如何充分利用脸书的新设计
 
-> 原文:[https://life hacker . com/how-to-make-the-most-the-face books-new-design-1844802579](https://lifehacker.com/how-to-make-the-most-of-facebooks-new-redesign-1844802579)
+> 原文：<https://lifehacker.com/how-to-make-the-most-of-facebooks-new-redesign-1844802579>
 
 老脸书要走了；新脸书万岁，这一重新设计将很快成为永久性的。脸书在脸书警告用户，老派的外观将在 9 月消失。与目前的“新脸书”测试不同，如果你不是粉丝，将无法切换回来。
 

@@ -1,6 +1,6 @@
 # 品牌如何认为他们可以从气候变化中获利
 
-> 原文:[https://gizmodo . com/how-brands-think-they-can-make-a-buck-off-climate-Chang-1831965107](https://gizmodo.com/how-brands-think-they-can-make-a-buck-off-climate-chang-1831965107)
+> 原文：<https://gizmodo.com/how-brands-think-they-can-make-a-buck-off-climate-chang-1831965107>
 
 气候变化正在把我们的世界变成一场反乌托邦式的噩梦。但至少我们会有品牌，品牌会继续试图卖给我们垃圾来应对我们未来的地狱景象。
 

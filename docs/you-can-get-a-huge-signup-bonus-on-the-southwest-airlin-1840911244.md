@@ -1,6 +1,6 @@
 # 你现在就可以在西南航空大通信用卡上获得一大笔注册奖金
 
-> 原文:[https://life hacker . com/you-can-get-a-big-up-bonus-on-the-south west-airlin-1840911244](https://lifehacker.com/you-can-get-a-huge-signup-bonus-on-the-southwest-airlin-1840911244)
+> 原文：<https://lifehacker.com/you-can-get-a-huge-signup-bonus-on-the-southwest-airlin-1840911244>
 
 西南航空公司最近取消了快速奖励积分计划的有效期。现在，它与大通银行的联名信用卡提供了积累大量永不过期积分的机会。
 

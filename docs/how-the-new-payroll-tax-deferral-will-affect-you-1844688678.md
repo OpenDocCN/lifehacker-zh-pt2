@@ -1,6 +1,6 @@
 # 新的工资税延期将如何影响你
 
-> 原文:[https://life hacker . com/how-the-new-payroll-tax-default-will-affect-you-1844688678](https://lifehacker.com/how-the-new-payroll-tax-deferral-will-affect-you-1844688678)
+> 原文：<https://lifehacker.com/how-the-new-payroll-tax-deferral-will-affect-you-1844688678>
 
 随着国会继续讨论下一个刺激计划，唐纳德·特朗普总统周六签署了四项行政命令 ，成为头条新闻。其中一个命令，一份关于 [工资税延期](https://www.whitehouse.gov/presidential-actions/memorandum-deferring-payroll-tax-obligations-light-ongoing-covid-19-disaster/) 的备忘录，让许多雇主对它将如何运作以及它将对他们的员工产生的影响大惑不解。
 

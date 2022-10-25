@@ -1,6 +1,6 @@
 # 将您的假日电影收藏变成降临节日历
 
-> 原文:[https://life hacker . com/turn-your-holiday-movie-collection-into-an-advent-calen-1839979884](https://lifehacker.com/turn-your-holiday-movie-collection-into-an-advent-calen-1839979884)
+> 原文：<https://lifehacker.com/turn-your-holiday-movie-collection-into-an-advent-calen-1839979884>
 
 家庭电影之夜在理论上是美好的，在实践中通常是美好的——除非厨房里有太多的厨师(或者家庭娱乐室里有太多的人)。这个集会听起来熟悉吗？
 

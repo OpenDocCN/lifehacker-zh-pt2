@@ -1,6 +1,6 @@
 # 用你的搅拌机做一大堆酸奶
 
-> 原文:[https://life hacker . com/make-a-big-batch-of-sours-in-your-blender-1843565201](https://lifehacker.com/make-a-big-batch-of-sours-in-your-blender-1843565201)
+> 原文：<https://lifehacker.com/make-a-big-batch-of-sours-in-your-blender-1843565201>
 
 通常，要在酸奶上获得蓬松稳定的泡沫需要用力摇晃。如果你有一定的上肢力量，这不是问题，但有些人( [像我](https://lifehacker.com/the-sour-is-the-perfect-quarantine-cocktail-1843185396) )不得不“干摇”，这意味着将这个过程分成两部分，首先建立不加冰的蛋清泡沫，然后加入冰并再次摇动以冷却。其他人做的是相反的事情——称为“反向摇动”——我不喜欢这个(泡沫更大，我想要*小*泡沫)。然而，如果你有搅拌机，这种讨论是无效的。
 

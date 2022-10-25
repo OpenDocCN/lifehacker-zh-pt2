@@ -1,6 +1,6 @@
 # 不要等到选举后才做出财务决定
 
-> 原文:[https://life hacker . com/don-t-wait-being-that-after-the-election-make-financial-de-1841362026](https://lifehacker.com/dont-wait-until-after-the-election-to-make-financial-de-1841362026)
+> 原文：<https://lifehacker.com/dont-wait-until-after-the-election-to-make-financial-de-1841362026>
 
 根据来自 finance buzz 的一项新调查，32%的人将“重大财务决策”推迟到总统选举之后。此外，72%的受访者表示，他们认为无论谁当选都将“对他们的个人财务产生直接影响”
 

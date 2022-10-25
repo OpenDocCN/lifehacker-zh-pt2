@@ -1,6 +1,6 @@
 # 你应该转用威瑞森新推出的无限预付费计划吗？
 
-> 原文:[https://life hacker . com/should-you-switch-to-Verizon-new-unlimited-预付费-pla-1844164412](https://lifehacker.com/should-you-switch-to-verizons-new-unlimited-prepaid-pla-1844164412)
+> 原文：<https://lifehacker.com/should-you-switch-to-verizons-new-unlimited-prepaid-pla-1844164412>
 
 我们喜欢预付费电话服务的原因之一是因为你 ( )通常不会被一家运营商的合同束缚住任何时间长度。如果你因为看到一个更好的价格而想跳到一个竞争对手那里，那么你已经全部付清了，可以走了。但是 [威瑞森的新预付费计划](https://www.verizon.com/about/news/new-verizon-prepaid-plans) 想要奖励你逗留一段时间。
 

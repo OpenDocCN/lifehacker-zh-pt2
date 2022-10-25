@@ -1,6 +1,6 @@
 # 现在开着房车去哪里旅行
 
-> 原文:[https://life hacker . com/where-to-travel-in-an-RV-right-now-1843028279](https://lifehacker.com/where-to-travel-in-an-rv-right-now-1843028279)
+> 原文：<https://lifehacker.com/where-to-travel-in-an-rv-right-now-1843028279>
 
 对于全国各地的旅行者来说，跟上最新的限制已经成为一项日常任务。有这么多停飞的航班和警告指示当穿越州界时该做什么，我们中的许多人都梦想着逃离。房车(休闲车)生活是现在寻找房车的方式吗？
 

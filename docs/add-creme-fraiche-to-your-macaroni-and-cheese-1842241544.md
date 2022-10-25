@@ -1,6 +1,6 @@
 # 在你的通心粉和奶酪中加入鲜奶油
 
-> 原文:[https://life hacker . com/add-creme-fraiche-to-your-macaroni-and-cheese-1842241544](https://lifehacker.com/add-creme-fraiche-to-your-macaroni-and-cheese-1842241544)
+> 原文：<https://lifehacker.com/add-creme-fraiche-to-your-macaroni-and-cheese-1842241544>
 
 几周前，为了给一些剩菜注入新的活力，我在一碗猪肉里加入了一团鲜奶油。它融化了，形成了一种奶油状的番茄酱，非常浓郁，非常美味。“我打赌这里面会有一些通心粉和奶酪，”我想。
 

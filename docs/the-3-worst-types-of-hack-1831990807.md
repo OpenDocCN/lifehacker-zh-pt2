@@ -1,6 +1,6 @@
 # 三种最糟糕的黑客类型
 
-> 原文:[https://lifehacker.com/the-3-worst-types-of-hack-1831990807](https://lifehacker.com/the-3-worst-types-of-hack-1831990807)
+> 原文：<https://lifehacker.com/the-3-worst-types-of-hack-1831990807>
 
 我们喜欢测试黑客并报告他们是好是坏。但是有些黑客不值得任何人浪费时间。然而，这些奇怪而愚蠢的黑客行为正在脸书和 YouTube 上传播，获得了数百万的浏览量。在上面的视频中，我们向你展示了最令人发指的黑客行为，这些行为不值得你浪费时间。它们有三种类型:比正常方法更糟糕的黑客，解决不存在的问题的黑客，以及物理上不可能的黑客。
 

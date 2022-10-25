@@ -1,6 +1,6 @@
 # 什么时候用现金代替信用卡
 
-> 原文:[https://life hacker . com/when-to-use-cash-not-of-credit-1835282451](https://lifehacker.com/when-to-use-cash-instead-of-credit-1835282451)
+> 原文：<https://lifehacker.com/when-to-use-cash-instead-of-credit-1835282451>
 
 我知道。现在是 2019 年。我们有非接触式卡、点对点移动支付系统，以及为你提供一条裤子分期贷款的服务。但我在这里不是要谈论任何新奇的计划。不，不。我是来谈现金的。
 

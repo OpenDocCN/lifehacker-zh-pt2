@@ -1,6 +1,6 @@
 # 使用这个小应用程序跟踪菜单栏中的多个时区
 
-> 原文:[https://life hacker . com/track-multi-time-zones-in-your-menu-bar-with this-Li-1833438396](https://lifehacker.com/track-multiple-time-zones-in-your-menu-bar-with-this-li-1833438396)
+> 原文：<https://lifehacker.com/track-multiple-time-zones-in-your-menu-bar-with-this-li-1833438396>
 
 **MacOS:** [我们还是喜欢 Clocker](https://lifehacker.com/clocker-crams-a-world-clock-into-your-menu-bar-1794709422) ，你菜单栏的自由时区时钟。但是，如果你必须跟踪一个时区的 *lot* ，你也应该看看 [菜单世界时间](https://itunes.apple.com/us/app/menu-world-time/id1446377255?utm_source=densediscovery&utm_medium=email&utm_campaign=newsletter-issue-28) ，另一个界面略有不同的免费菜单栏世界时钟。
 

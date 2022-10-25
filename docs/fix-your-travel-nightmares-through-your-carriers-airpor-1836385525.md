@@ -1,6 +1,6 @@
 # 通过承运商的机场候机室解决您的旅行噩梦
 
-> 原文:[https://life hacker . com/fix-your-travel-nights-through-your-carriers-air por-1836385525](https://lifehacker.com/fix-your-travel-nightmares-through-your-carriers-airpor-1836385525)
+> 原文：<https://lifehacker.com/fix-your-travel-nightmares-through-your-carriers-airpor-1836385525>
 
 我有一张可以通过 [优先通行证](https://www.prioritypass.com/) 进入机场候机室的探条信用卡，我一直想知道这有什么意义。当然，你可以得到一些免费的小吃和一个体面的座位，但这并不像休息室正在向所有与会者分发免费的肉桂卷和朗姆酒可乐。
 

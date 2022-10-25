@@ -1,6 +1,6 @@
 # 用户上传 DNA 网站变得更加不私密
 
-> 原文:[https://life hacker . com/user-upload-DNA-sites-just-been-less-private-1839667283](https://lifehacker.com/user-upload-dna-sites-just-became-even-less-private-1839667283)
+> 原文：<https://lifehacker.com/user-upload-dna-sites-just-became-even-less-private-1839667283>
 
 自从警察 [用公共 DNA 数据库追踪到所谓的金州黑仔](https://vitals.lifehacker.com/the-golden-state-killers-dna-was-in-a-publicly-availabl-1825604590) 之后，那些网站就成了那些只想更多了解他们基因的人的隐私雷区。现在，佛罗里达州的一名法官签署了一份授权令 ，允许当局搜查那些选择不参与警方搜查的人的 DNA。
 

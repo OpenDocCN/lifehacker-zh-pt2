@@ -1,6 +1,6 @@
 # 如何与一个和你姓氏不同的孩子一起飞行
 
-> 原文:[https://life hacker . com/how-to-fly with a child-who-a-different-last-name-t-1844053938](https://lifehacker.com/how-to-fly-with-a-child-who-has-a-different-last-name-t-1844053938)
+> 原文：<https://lifehacker.com/how-to-fly-with-a-child-who-has-a-different-last-name-t-1844053938>
 
 和与你姓氏不同的孩子一起旅行会变得复杂。也许你是一个喜欢带你的侄子或侄女去迪斯尼世界的了不起的阿姨或叔叔。或者你和我一样，结婚时没有改变自己的姓，所以你的孩子和你的姓不同。
 

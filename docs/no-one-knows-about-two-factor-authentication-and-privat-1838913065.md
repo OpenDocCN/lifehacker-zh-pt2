@@ -1,6 +1,6 @@
 # 没有人知道双因素身份认证，这将他们的安全置于风险之中
 
-> 原文:[https://life hacker . com/no-one-known-about-two-factor-authentic ation-and-privat-1838913065](https://lifehacker.com/no-one-knows-about-two-factor-authentication-and-privat-1838913065)
+> 原文：<https://lifehacker.com/no-one-knows-about-two-factor-authentication-and-privat-1838913065>
 
 听起来很奇怪，不是吗？尽管我们试图宣传这种安全措施的重要性——这是识别试图登录你账户的人实际上是你的第二种手段——但来自 [皮尤研究中心](https://www.pewinternet.org/2019/10/09/americans-and-digital-knowledge/) 的一项最新调查表明，超过一半的受访者无法说出一个双重身份认证的例子。
 

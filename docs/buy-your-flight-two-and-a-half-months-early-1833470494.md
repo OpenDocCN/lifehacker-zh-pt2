@@ -1,6 +1,6 @@
 # 提前两个半月买机票
 
-> 原文:[https://life hacker . com/buy-your-flight-两个半月前-1833470494](https://lifehacker.com/buy-your-flight-two-and-a-half-months-early-1833470494)
+> 原文：<https://lifehacker.com/buy-your-flight-two-and-a-half-months-early-1833470494>
 
 你都听到了。周二买！凌晨 5 点醒来！买单独的返程航班！但是旅游建议很少是放之四海而皆准的。
 

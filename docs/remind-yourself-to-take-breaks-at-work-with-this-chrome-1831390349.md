@@ -1,6 +1,6 @@
 # 使用这个 Chrome 扩展提醒自己在工作中休息一下
 
-> 原文:[https://life hacker . com/remind-yourself-take-break-in-work-this-chrome-1831390349](https://lifehacker.com/remind-yourself-to-take-breaks-at-work-with-this-chrome-1831390349)
+> 原文：<https://lifehacker.com/remind-yourself-to-take-breaks-at-work-with-this-chrome-1831390349>
 
 我们都知道连续几个小时盯着电脑屏幕不是个好主意，但这并不妨碍我们这样做。
 

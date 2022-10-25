@@ -1,6 +1,6 @@
 # 这些塑料口罩夹会减轻你的耳痛吗？
 
-> 原文:[https://life hacker . com/will-these-plastic-mask-holders-relief-your-ear-pain-1844376457](https://lifehacker.com/will-these-plastic-mask-holders-relieve-your-ear-pain-1844376457)
+> 原文：<https://lifehacker.com/will-these-plastic-mask-holders-relieve-your-ear-pain-1844376457>
 
 你一直戴着面罩，这可能会对你的耳朵造成额外的压力。由于我们致力于寻找让人们长时间佩戴口罩的方法，我们决定测试一下我们在互联网上找到的这些 [口罩支架/延长器](https://www.amazon.com/gp/slredirect/picassoRedirect.html/ref=pa_sp_atf_aps_sr_pg1_1?adId=A0000188ACGPFG7IMKUU&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/will-these-plastic-mask-holders-relieve-your-ear-pain-1844376457&asc_source=&id=3625525073788906&ie=UTF8&qualifier=1594737032&tag=kinjalifehackerlink-20&url=/VANELC-Extender-Anti-Tightening-Protector-Decompression/dp/B089SLJGZH/ref=sr_1_1_sspa?dchild=1&keywords=mask+holder&qid=1594737033&sr=8-1-spons&psc=1&widgetName=sp_atf) 。
 

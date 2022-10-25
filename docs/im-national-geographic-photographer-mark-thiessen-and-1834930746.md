@@ -1,6 +1,6 @@
 # im national geographic photographer mark thiessen and 1834930746
 
-> 原文:[https://life hacker . com/im-国家地理-摄影师-马克-泰森-and-1834930746](https://lifehacker.com/im-national-geographic-photographer-mark-thiessen-and-1834930746)
+> 原文：<https://lifehacker.com/im-national-geographic-photographer-mark-thiessen-and-1834930746>
 
 在最新一期的《国家地理》杂志中，摄影师马克·泰森为读者展示了空降消防员如何在阿拉斯加森林 扑灭野火。消防照片是马克的专长；他已经做了 25 年，为 NatGeo 拍摄了 29 年。我们和他聊起了他第一张发表的新闻照片，他最喜欢的摄影器材，以及他露宿街头的经历。
 

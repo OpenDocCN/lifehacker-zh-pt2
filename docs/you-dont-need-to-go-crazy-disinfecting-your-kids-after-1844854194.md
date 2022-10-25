@@ -1,6 +1,6 @@
 # 你不需要在放学后疯狂地给你的孩子消毒
 
-> 原文:[https://life hacker . com/you-done-need-to-go-crazy-sanction-your-kids-after-1844854194](https://lifehacker.com/you-dont-need-to-go-crazy-disinfecting-your-kids-after-1844854194)
+> 原文：<https://lifehacker.com/you-dont-need-to-go-crazy-disinfecting-your-kids-after-1844854194>
 
 早在三月份，当新冠肺炎几乎完全神秘的时候，我花了大量的时间消毒我所经过的一切。我用来苏消毒剂喷洒邮件。在食品杂货进入我家之前，我把它们擦洗干净。我给我儿子可能沾过口水的所有玩具都消毒了。这是一场耗时耗力的卫生围攻。
 

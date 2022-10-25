@@ -1,6 +1,6 @@
 # 你的智能扬声器的技能可能是一个巨大的隐私问题
 
-> 原文:[https://life hacker . com/your-smart-speakers-skills-may-a-big-privacy-prob-1839257208](https://lifehacker.com/your-smart-speakers-skills-might-be-a-huge-privacy-prob-1839257208)
+> 原文：<https://lifehacker.com/your-smart-speakers-skills-might-be-a-huge-privacy-prob-1839257208>
 
 亚马逊和谷歌的智能音箱都允许你用各种各样的*扩展*来补充它们，就像你安装第三方插件来让你的网络浏览体验更好一样。这里有一个问题:一个有浏览器插件的 s，你完全受开发者的支配。如果他们利用他们的能力作恶，你可能会把你对你的设备所说的一切透露给某个随机的人。
 

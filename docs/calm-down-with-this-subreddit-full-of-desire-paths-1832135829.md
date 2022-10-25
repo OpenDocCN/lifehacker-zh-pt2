@@ -1,6 +1,6 @@
 # 平静下来，在这个充满渴望之路的小圈子里
 
-> 原文:[https://life hacker . com/calm-down-with-this-subred dit-full-of-desire-paths-1832135829](https://lifehacker.com/calm-down-with-this-subreddit-full-of-desire-paths-1832135829)
+> 原文：<https://lifehacker.com/calm-down-with-this-subreddit-full-of-desire-paths-1832135829>
 
 欲望之路是人们一遍又一遍地走在同一条路线上而形成的，偏离了铺好的或“认可的”道路。你们中的一些人会发现它们让人平静，一些人会发现它们让人愤怒。后者现在应该冷静地走开，只在柏油路上。
 

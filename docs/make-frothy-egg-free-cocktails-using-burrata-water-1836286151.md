@@ -1,6 +1,6 @@
 # 使用伯拉塔水制作无蛋泡沫鸡尾酒
 
-> 原文:[https://life hacker . com/make-fobbly-egg-free-cocktails-using-burra ta-water-1836286151](https://lifehacker.com/make-frothy-egg-free-cocktails-using-burrata-water-1836286151)
+> 原文：<https://lifehacker.com/make-frothy-egg-free-cocktails-using-burrata-water-1836286151>
 
 真正的酸味有一层泡沫，有趣的泡沫。这通常是通过添加蛋白来实现的，但有些人会被饮料中的生鸡蛋挤掉(有些人会过敏)。(鹰嘴豆液)是一种受欢迎的替代品，但根据 Alcademics 的 [Camper 英语，burrata water 是一种引蛋的新替代品。](https://www.alcademics.com)
 

@@ -1,6 +1,6 @@
 # 什么时候“小额”购买仍然不值得？
 
-> 原文:[https://life hacker . com/when-a-small-purchase-was-not-worth-it-1831399349](https://lifehacker.com/when-is-a-small-purchase-still-not-worth-it-1831399349)
+> 原文：<https://lifehacker.com/when-is-a-small-purchase-still-not-worth-it-1831399349>
 
 当你阅读大量的个人理财文章时，你不可避免地会到达这样一个地步:你不能在街角的熟食店买一瓶水或买汽油，而不开车四处寻找每加仑便宜两美分的东西，而不感到羞耻。毕竟，这些都是不必要的购买，每个人都知道花 3 美元你不需要的东西会导致人们不满足，不富裕的生活。或者什么的。
 

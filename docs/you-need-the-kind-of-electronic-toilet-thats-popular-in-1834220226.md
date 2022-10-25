@@ -1,6 +1,6 @@
 # 你需要日本流行的那种电子马桶
 
-> 原文:[https://life hacker . com/you-need-the-kind-of-electronic-toilet-that-popular-in-1834220226](https://lifehacker.com/you-need-the-kind-of-electronic-toilet-thats-popular-in-1834220226)
+> 原文：<https://lifehacker.com/you-need-the-kind-of-electronic-toilet-thats-popular-in-1834220226>
 
 每个人都会大便。但不是每个人的大便都一样。
 

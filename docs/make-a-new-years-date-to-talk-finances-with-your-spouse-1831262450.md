@@ -1,6 +1,6 @@
 # 安排一个新年约会，和你的配偶讨论财务问题
 
-> 原文:[https://life hacker . com/make-a-new-years-date-to-talk-financial-your-配偶-1831262450](https://lifehacker.com/make-a-new-years-date-to-talk-finances-with-your-spouse-1831262450)
+> 原文：<https://lifehacker.com/make-a-new-years-date-to-talk-finances-with-your-spouse-1831262450>
 
 2019 年，你可能有自己的财务计划和目标，但如果你已经结婚或有伴侣，与你的另一半达成一致是让你的财务走上你选择的轨道最重要的事情之一。
 

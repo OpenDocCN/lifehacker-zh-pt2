@@ -1,6 +1,6 @@
 # 谷歌 Chrome 粉丝的 15 个最佳“新标签”扩展
 
-> 原文:[https://life hacker . com/the-15-best-new-tab-extensions-for-Google-chrome-fans-1832040696](https://lifehacker.com/the-15-best-new-tab-extensions-for-google-chrome-fans-1832040696)
+> 原文：<https://lifehacker.com/the-15-best-new-tab-extensions-for-google-chrome-fans-1832040696>
 
 你醒了。你摇摇晃晃地打开你的笔记本电脑，或者坐在你的桌面前，身边放着你美味的咖啡。一旦你的系统加载完毕，你加载谷歌浏览器，你会想有一天摆脱所有这些打开的标签该有多好。你还是打开一个新标签，开始你的早晨内容仪式。
 

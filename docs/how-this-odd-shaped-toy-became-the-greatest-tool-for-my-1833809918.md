@@ -1,6 +1,6 @@
 # 这个奇形怪状的玩具是如何成为我烦躁的孩子最大的工具的
 
-> 原文:[https://life hacker . com/how-this-odd-shaped-toy-be-the-great-tool for-my-1833809918](https://lifehacker.com/how-this-odd-shaped-toy-became-the-greatest-tool-for-my-1833809918)
+> 原文：<https://lifehacker.com/how-this-odd-shaped-toy-became-the-greatest-tool-for-my-1833809918>
 
 我儿子 4 岁时，像大多数 4 岁的孩子一样，他需要搬家。很多。此外，他是那种即使在休息时间也能获得额外感官输入的孩子。
 

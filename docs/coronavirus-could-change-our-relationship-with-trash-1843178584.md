@@ -1,6 +1,6 @@
 # 冠状病毒可能改变我们与垃圾的关系
 
-> 原文:[https://gizmodo . com/coronavirus-can-change-our-relationship-with-trash-1843178584](https://gizmodo.com/coronavirus-could-change-our-relationship-with-trash-1843178584)
+> 原文：<https://gizmodo.com/coronavirus-could-change-our-relationship-with-trash-1843178584>
 
 冠状病毒导致劳伦·辛格做了一件她八年都没有做过的事情:她制造了废物。
 

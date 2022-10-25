@@ -1,6 +1,6 @@
 # Powerbeats2 耳塞的拥有者可以填写现金申请表
 
-> 原文:[https://life hacker . com/powerbeats 2-earbuds-owners-can-fill-a-claim-for-cas-1844884086](https://lifehacker.com/powerbeats2-earbuds-owners-can-fill-out-a-claim-for-cas-1844884086)
+> 原文：<https://lifehacker.com/powerbeats2-earbuds-owners-can-fill-out-a-claim-for-cas-1844884086>
 
 苹果公司同意解决一项集体诉讼，指控该公司虚假宣传其 Powerbeats2 耳机具有耐用防汗和防水设计。根据和解条款，苹果公司必须支付 920 万美元来回馈消费者，现在是时候为你的 2014 时代耳塞分一杯羹了。
 

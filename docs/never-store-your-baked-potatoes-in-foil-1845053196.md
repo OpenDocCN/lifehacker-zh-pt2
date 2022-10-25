@@ -1,6 +1,6 @@
 # 千万不要把烤土豆放在锡纸里
 
-> 原文:[https://life hacker . com/never-store-your-baked-potato-in-foil-1845053196](https://lifehacker.com/never-store-your-baked-potatoes-in-foil-1845053196)
+> 原文：<https://lifehacker.com/never-store-your-baked-potatoes-in-foil-1845053196>
 
 作为一个享受丰盛牛排大餐的人，我经常发现自己吃了一半，剩下的烤土豆。也许你也经历过这种情况。这并不是一件坏事——你可以用剩菜来做 [真正好的早餐土豆](https://skillet.lifehacker.com/make-hash-browns-with-a-leftover-baked-potato-1844705539)——但是你应该在储存它们的时候小心一点。
 

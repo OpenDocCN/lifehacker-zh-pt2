@@ -1,6 +1,6 @@
 # 通过馆际互借向世界各地订购图书
 
-> 原文:[https://life hacker . com/order-books-from-round-the-world-with-inter library-loa-1837177971](https://lifehacker.com/order-books-from-around-the-world-with-interlibrary-loa-1837177971)
+> 原文：<https://lifehacker.com/order-books-from-around-the-world-with-interlibrary-loa-1837177971>
 
 在 Lifehacker，众所周知，我们是公共图书馆 的忠实粉丝。他们不仅让你免费(或接近)接触各种媒体，而且住在一个 附近的 [实际上能让你更快乐。做好准备，因为它会变得更好。你知道吗，如果有一本书或其他资料你想获取，但你当地的图书馆没有，你可以从全国各地的其他图书馆申请？你绝对可以，这个神奇的服务叫做](https://lifehacker.com/want-to-be-happier-live-closer-to-the-stuff-you-want-t-1834892230) [馆际互借](https://lithub.com/interlibrary-loan-will-change-your-life/) 。
 

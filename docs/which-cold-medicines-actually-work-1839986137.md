@@ -1,6 +1,6 @@
 # 哪些感冒药真的有效？
 
-> 原文:[https://life hacker . com/which-感冒药-实际工作-1839986137](https://lifehacker.com/which-cold-medicines-actually-work-1839986137)
+> 原文：<https://lifehacker.com/which-cold-medicines-actually-work-1839986137>
 
 当你因为感冒而感觉糟糕的时候，你只是想要一些东西来治愈你——如果不能治愈你，至少可以帮助你暂时感觉好一些。不幸的是 [很多药方都是安慰剂](https://vitals.lifehacker.com/how-to-harness-the-placebo-effect-when-you-have-a-cold-1839965981) ，但是药店里有些东西比其他的更有效。
 

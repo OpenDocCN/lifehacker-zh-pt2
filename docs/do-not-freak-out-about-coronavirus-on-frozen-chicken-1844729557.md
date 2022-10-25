@@ -1,6 +1,6 @@
 # 不要害怕冷冻鸡肉上的冠状病毒
 
-> 原文:[https://life hacker . com/do-not-freak-out-on-frozen-chicken-1844729557](https://lifehacker.com/do-not-freak-out-about-coronavirus-on-frozen-chicken-1844729557)
+> 原文：<https://lifehacker.com/do-not-freak-out-about-coronavirus-on-frozen-chicken-1844729557>
 
 中国当局最近在从巴西进口的冷冻鸡翅上发现了冠状病毒的痕迹。但是专家不认为食物(冷冻或其他)是值得担心的冠状病毒威胁。
 

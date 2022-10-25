@@ -1,6 +1,6 @@
 # 现在就开始用谷歌文档搜索节日礼物创意吧
 
-> 原文:[https://life hacker . com/start-a-Google-doc-of-gift-ideas-for-the-holidays-now-1831435504](https://lifehacker.com/start-a-google-doc-of-gift-ideas-for-the-holidays-now-1831435504)
+> 原文：<https://lifehacker.com/start-a-google-doc-of-gift-ideas-for-the-holidays-now-1831435504>
 
 在最近的所有派对、消极攻击性的家庭评论和香槟宿醉之后，2019 年的假日季可能是你现在最不想考虑的事情。
 

@@ -1,6 +1,6 @@
 # 如何停止对你的债务感到内疚
 
-> 原文:[https://life hacker . com/how-to-stop-feeling-on-your-debt-1844065422](https://lifehacker.com/how-to-stop-feeling-guilty-about-your-debt-1844065422)
+> 原文：<https://lifehacker.com/how-to-stop-feeling-guilty-about-your-debt-1844065422>
 
 当它发生时，它发生得很快:前一天你还觉得你的债务在控制之中，但接下来你知道的是，你会感到不知所措、恐慌和彻头彻尾的内疚。
 

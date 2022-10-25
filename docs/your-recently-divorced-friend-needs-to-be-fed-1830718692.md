@@ -1,6 +1,6 @@
 # 你最近离婚的朋友需要被喂养
 
-> 原文:[https://life hacker . com/your-新近离婚的朋友需要喂养 1830718692](https://lifehacker.com/your-recently-divorced-friend-needs-to-be-fed-1830718692)
+> 原文：<https://lifehacker.com/your-recently-divorced-friend-needs-to-be-fed-1830718692>
 
 虽然离婚可能是一种积极的生活变化，但它是一个人可能经历的最情绪化和最有压力的折磨之一。感觉就像你深爱的人去世了，他们有点琐碎，有点残酷，但有时怀旧的鬼魂正在困扰你，主要是通过随机短信和社交媒体。它彻底失败了，在这个过程中养活自己可能是一场真正的斗争。
 

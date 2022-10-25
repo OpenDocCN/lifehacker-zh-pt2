@@ -1,6 +1,6 @@
 # 在手机上安装 Android 10 之前，请采取以下步骤
 
-> 原文:[https://life hacker . com/do-this-before-installing-Android-10-on-your-phone-1837842182](https://lifehacker.com/do-this-before-installing-android-10-on-your-phone-1837842182)
+> 原文：<https://lifehacker.com/do-this-before-installing-android-10-on-your-phone-1837842182>
 
 Android 10 是为一些人准备的，但可能不是你。如果你拥有谷歌 Pixel(从 OG [Pixel](https://gizmodo.com/if-you-owned-a-first-gen-pixel-phone-google-may-owe-yo-1837191957) 到最新的 Pixel 3a 或 Pixel 3a XL 变种)，你现在就可以下载并安装新版 Android 操作系统。对其他人来说，你可能要等一会儿。
 

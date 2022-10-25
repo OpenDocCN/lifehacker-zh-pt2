@@ -1,6 +1,6 @@
 # 让你的蔬菜在慢炖锅里不要变成糊状
 
-> 原文:[https://life hacker . com/keep-your-vegetables-from-getting-mushy-in-the-slow-COO-1841888117](https://lifehacker.com/keep-your-vegetables-from-getting-mushy-in-the-slow-coo-1841888117)
+> 原文：<https://lifehacker.com/keep-your-vegetables-from-getting-mushy-in-the-slow-coo-1841888117>
 
 “修复并忘记”可能是慢煮的格言，但这并不意味着一个人应该考虑不周。仅仅一点点准备工作和深谋远虑就能区别出美味的炖菜和一堆乏味的糊状物。
 

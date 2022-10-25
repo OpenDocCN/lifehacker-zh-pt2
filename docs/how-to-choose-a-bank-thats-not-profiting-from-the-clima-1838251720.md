@@ -1,6 +1,6 @@
 # 如何选择一家没有从气候危机中获利的银行
 
-> 原文:[https://life hacker . com/how-to-choose-a-bank-that-not-profit-from-the-clima-1838251720](https://lifehacker.com/how-to-choose-a-bank-thats-not-profiting-from-the-clima-1838251720)
+> 原文：<https://lifehacker.com/how-to-choose-a-bank-thats-not-profiting-from-the-clima-1838251720>
 
 如果你试图以一种有助于减轻气候变化影响的方式生活，你可能会下决心少坐飞机或少吃肉。但是换银行呢？
 

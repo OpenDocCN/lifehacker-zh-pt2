@@ -1,6 +1,6 @@
 # 绿色新政到底是什么？
 
-> 原文:[https://life hacker . com/到底什么是绿色新政 1833410236](https://lifehacker.com/what-exactly-is-the-green-new-deal-1833410236)
+> 原文：<https://lifehacker.com/what-exactly-is-the-green-new-deal-1833410236>
 
 在绿色新政进入公众意识的几个月里，它被称为许多东西:。 [不切实际](https://www.wsj.com/articles/an-expensive-divisive-way-to-fight-climate-change-11550055780) 。 [疯狂流行](https://www.jacobinmag.com/2019/02/green-new-deal-climate-change-policy) 。 [一个社会主义者的圣诞清单](https://www.washingtonexaminer.com/opinion/green-new-deal-isnt-a-plan-its-a-socialist-christmas-list) 。这激起了右翼和表面上的左翼的强烈反应，并已被视为民主党争夺 2020 年提名的试金石。下面是你需要知道的一切，以了解在 2020 年选举周期的剩余时间里可能主导头条新闻的政策提案。
 

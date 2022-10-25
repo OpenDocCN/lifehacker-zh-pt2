@@ -1,6 +1,6 @@
 # 如何在 WhatsApp 上使用二维码添加好友
 
-> 原文:[https://life hacker . com/how-to-use-a-QR-code-to-add-friends-on-whatsapp-1843606354](https://lifehacker.com/how-to-use-a-qr-code-to-add-friends-on-whatsapp-1843606354)
+> 原文：<https://lifehacker.com/how-to-use-a-qr-code-to-add-friends-on-whatsapp-1843606354>
 
 二维码可能不是你日常使用的东西，但当你需要它们时，它们非常有用。如果你是 WhatsApp 的忠实粉丝，你现在可以使用二维码将联系人导入该应用程序，或者与他人分享你的联系信息。设置和使用它再容易不过了— 有一个小小的注意事项。
 

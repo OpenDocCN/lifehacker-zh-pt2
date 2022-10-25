@@ -1,6 +1,6 @@
 # 我是《纽约客》漫画家艾米丽·弗雷克，这就是我为人父母的方式
 
-> 原文:[https://life hacker . com/im-new-Yorker-cartoon-Emily-flake-and-this-is-how-I-1832861923](https://lifehacker.com/im-new-yorker-cartoonist-emily-flake-and-this-is-how-i-1832861923)
+> 原文：<https://lifehacker.com/im-new-yorker-cartoonist-emily-flake-and-this-is-how-i-1832861923>
 
 关于从 [胸下汗水](https://www.thecut.com/2018/07/4-solutions-to-under-boob-sweat-illustrated.html) 到 [Mayochup](https://www.newyorker.com/humor/daily-shouts/beyond-mayochup-the-next-generation-of-condiment-mashups) 的话题，Emily Flake 有很多话要说。或者说，画。这位获奖的漫画家从在全国的另类周刊上发表她的连环漫画(她说这些笑话“对于成人出版物来说太粗俗了”)到定期为《纽约客》画图*。她的书 [*【妈妈试过了:来自现代育儿的阴暗面的急件*](https://www.amazon.com/Mama-Tried-Dispatches-Underbelly-Parenting/dp/1455558230?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-new-yorker-cartoonist-emily-flake-and-this-is-how-i-1832861923&asc_source=&tag=kinjalifehackerlink-20) 描绘了与婴儿一起生活的高潮、低谷和荒谬。以下是她为人父母的方式。*
 

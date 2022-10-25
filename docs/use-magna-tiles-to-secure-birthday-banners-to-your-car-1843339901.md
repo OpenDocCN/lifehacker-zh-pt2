@@ -1,6 +1,6 @@
 # 使用 Magna-Tiles 将生日横幅固定在您的车上
 
-> 原文:[https://life hacker . com/use-magna-tiles-to-secure-birthday-banners-to-your-car-1843339901](https://lifehacker.com/use-magna-tiles-to-secure-birthday-banners-to-your-car-1843339901)
+> 原文：<https://lifehacker.com/use-magna-tiles-to-secure-birthday-banners-to-your-car-1843339901>
 
 我们都变得越来越有创意，在庆祝重大里程碑的同时，也在疫情拉开距离。一个流行的策略，尤其是在生日的时候，是驾车派对游行。客人们在街区周围“聚集”,排队上车，然后开车经过过生日的男孩/女孩的家，从装饰着彩带、气球和横幅的车里按喇叭，喊出生日祝福。
 

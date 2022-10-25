@@ -1,6 +1,6 @@
 # 让你的信用卡给你开一张大额退款支票
 
-> 原文:[https://life hacker . com/ask-your-credit-card-to-cut-you-a-check for-big 退款-1843244743](https://lifehacker.com/ask-your-credit-card-to-cut-you-a-check-for-big-refunds-1843244743)
+> 原文：<https://lifehacker.com/ask-your-credit-card-to-cut-you-a-check-for-big-refunds-1843244743>
 
 这是退款的季节。如果你购买了今年旅游或活动的门票，很有可能至少能收回一部分花费。
 

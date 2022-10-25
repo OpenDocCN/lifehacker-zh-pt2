@@ -1,6 +1,6 @@
 # 当压力造成损害时，如何帮助记忆
 
-> 原文:[https://life hacker . com/how-to-help-your memory-when-stress-taking-it-toll-1844069601](https://lifehacker.com/how-to-help-your-memory-when-stress-is-taking-its-toll-1844069601)
+> 原文：<https://lifehacker.com/how-to-help-your-memory-when-stress-is-taking-its-toll-1844069601>
 
 如果你最近格外健忘，你并不孤单。慢性压力，以及焦虑和抑郁， [会引起健忘、精神混乱和难以集中注意力](https://www.mayoclinic.org/diseases-conditions/alzheimers-disease/in-depth/memory-loss/art-20046326) 。但是在你屈从于永远丢失钥匙和忘记名字的命运之前，这里有一些帮助你记忆的策略并且减轻你最糟糕的疫情诱发的健忘。
 

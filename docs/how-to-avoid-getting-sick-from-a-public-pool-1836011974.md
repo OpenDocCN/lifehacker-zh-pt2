@@ -1,6 +1,6 @@
 # 如何避免在公共泳池生病
 
-> 原文:[https://life hacker . com/how-to-避免从公共泳池生病-1836011974](https://lifehacker.com/how-to-avoid-getting-sick-from-a-public-pool-1836011974)
+> 原文：<https://lifehacker.com/how-to-avoid-getting-sick-from-a-public-pool-1836011974>
 
 如果你的假期计划包括去公共游泳池，你可能会对疾病控制中心最近的警告感兴趣。周五， [疾病预防控制中心发布了一份报告](https://www.cdc.gov/mmwr/volumes/68/wr/mm6825a3.htm) 鼓励美国人在利用公共泳池时要小心，因为一种名为 [隐孢子虫](https://www.cdc.gov/parasites/crypto/general.html) 的寄生虫通过 [游泳池](https://lifehacker.com/tag/swimming) 传播。下面是你需要知道的关于这个讨厌的 bug，如何防止它传播，以及如何避免它。
 

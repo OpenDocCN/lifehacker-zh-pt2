@@ -1,6 +1,6 @@
 # lets abolish the police force 1843922788
 
-> 原文:[https://life hacker . com/lets-invasive-the-police-force-1843922788](https://lifehacker.com/lets-abolish-the-police-force-1843922788)
+> 原文：<https://lifehacker.com/lets-abolish-the-police-force-1843922788>
 
 废除警察——或者至少大幅削减他们的经费，以至于他们在我们的社区中只是一个最小的存在——对于系统性的警察暴力来说，听起来可能是一个激进而牵强的解决方案。如果有人偷了你的车或闯入你的房子，你会打电话给谁？如果你是暴力犯罪的受害者，比如强奸或性侵犯，会怎么样？
 

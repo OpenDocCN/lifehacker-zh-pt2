@@ -1,6 +1,6 @@
 # 为什么你需要一个便宜的模拟食物温度计
 
-> 原文:[https://life hacker . com/why-you-need-a-price-analog-thermometer-1831338908](https://lifehacker.com/why-you-need-a-cheap-analog-thermometer-1831338908)
+> 原文：<https://lifehacker.com/why-you-need-a-cheap-analog-thermometer-1831338908>
 
 如今， [一个数字温度计](https://lifehacker.com/you-dont-have-to-spend-big-bucks-to-get-a-good-digital-1767623085) 在必不可少的厨房工具清单上与一把好刀并列，但你从未听到任何人推荐他们的模拟前辈。这太糟糕了:老派的温度计做着完全相同的工作，价格却很低。
 

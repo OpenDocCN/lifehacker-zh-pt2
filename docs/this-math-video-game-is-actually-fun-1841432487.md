@@ -1,6 +1,6 @@
 # 这个数学电子游戏其实很有趣
 
-> 原文:[https://life hacker . com/this-math-video-game-is-actually-fun-1841432487](https://lifehacker.com/this-math-video-game-is-actually-fun-1841432487)
+> 原文：<https://lifehacker.com/this-math-video-game-is-actually-fun-1841432487>
 
 几个月前的一天，我儿子放学回家，问他是否可以玩一个朋友告诉他的新游戏。这种情况一个月会发生几次——经常导致我研究游戏，然后用我的答案让他失望，因为*哇，不适合年龄*——所以我没有马上提交。但事实证明，这个名为 [神童](https://www.prodigygame.com/) 的特殊游戏，既是一个真正有趣的怪物战斗、探索游戏*又是一个数学技能游戏* 。
 

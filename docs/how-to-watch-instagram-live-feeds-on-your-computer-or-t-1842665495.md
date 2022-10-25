@@ -1,6 +1,6 @@
 # 如何在电脑或电视上观看 Instagram 直播
 
-> 原文:[https://life hacker . com/how-to-watch-insta gram-live-feeds-on-your-computer-or-t-1842665495](https://lifehacker.com/how-to-watch-instagram-live-feeds-on-your-computer-or-t-1842665495)
+> 原文：<https://lifehacker.com/how-to-watch-instagram-live-feeds-on-your-computer-or-t-1842665495>
 
 现在我们都在室内花了更多的时间，我们有了更多的时间来观看的直播内容— 突然有了更多的直播内容可以观看，尤其是在 Instagram 上。然而，在手机上看视频并不总是一种理想的体验。如果你有 Instagram Stories Chrome 扩展插件，你可以在你的电脑甚至电视上观看这些 Instagram 视频。
 

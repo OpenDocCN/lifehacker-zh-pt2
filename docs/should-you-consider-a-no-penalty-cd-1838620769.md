@@ -1,6 +1,6 @@
 # 你应该考虑一张无罚 CD 吗？
 
-> 原文:[https://life hacker . com/should-you-consider-a-no-penalty-CD-1838620769](https://lifehacker.com/should-you-consider-a-no-penalty-cd-1838620769)
+> 原文：<https://lifehacker.com/should-you-consider-a-no-penalty-cd-1838620769>
 
 如果你只知道一件关于存单的事情，你大概知道这种投资是有固定期限的。你可以将钱存入一张 CD，期限为九个月、一年、两年或更长，但无论你选择哪一种，在期限结束之前，你都不能存取这笔钱——那是 CD 的到期日。如果你需要你的钱，你会支付费用。
 

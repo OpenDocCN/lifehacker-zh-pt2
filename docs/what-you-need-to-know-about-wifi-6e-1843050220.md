@@ -1,6 +1,6 @@
 # 关于 Wifi 6E 你需要知道什么
 
-> 原文:[https://life hacker . com/what-you-need-to-know-about-wifi-6e-1843050220](https://lifehacker.com/what-you-need-to-know-about-wifi-6e-1843050220)
+> 原文：<https://lifehacker.com/what-you-need-to-know-about-wifi-6e-1843050220>
 
 如果在家工作让你诅咒你的家庭 wifi 网络，这里有一些好消息 : T 美国联邦通信委员会最近批准了一项新的 wifi 连接标准，W ifi 6E，它允许无线路由器访问 6GHz 频段。这对你来说意味着什么？F 更快、更稳定的 wifi 连接— 一旦第一批 Wifi 6E 产品在 2020 年末推出。
 

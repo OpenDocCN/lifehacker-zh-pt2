@@ -1,6 +1,6 @@
 # 使用 ePSS 应用程序了解您需要哪些医疗筛查测试
 
-> 原文:[https://life hacker . com/find-out-the-medical-screening-tests-you-need with-th-1834059260](https://lifehacker.com/find-out-which-medical-screening-tests-you-need-with-th-1834059260)
+> 原文：<https://lifehacker.com/find-out-which-medical-screening-tests-you-need-with-th-1834059260>
 
 如果你有一段时间没有去看你的初级保健医生(或者，嗯， [曾经](https://vitals.lifehacker.com/do-you-really-need-a-primary-care-doctor-1830182981) )，帮自己一个忙，安装美国医疗保健研究和质量机构的 [ePSS 应用](https://epss.ahrq.gov/PDA/index.jsp) 。
 

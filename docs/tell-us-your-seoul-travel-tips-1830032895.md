@@ -1,6 +1,6 @@
 # 告诉我们你的首尔旅行建议
 
-> 原文:[https://life hacker . com/tell-us-your-Seoul-travel-tips-1830032895](https://lifehacker.com/tell-us-your-seoul-travel-tips-1830032895)
+> 原文：<https://lifehacker.com/tell-us-your-seoul-travel-tips-1830032895>
 
 本周,《黑客城市》以江南 style 的方式进行。我们需要你在韩国首都首尔旅游和生活的建议。现在，我们真正知道的是，它是一个特大城市，吞噬了它的郊区和邻近的城镇，它是 K-pop 的发源地。我们还知道有一支舞。让我们从这里开始:富裕的江南区值得去吗，你还会推荐哪里？
 

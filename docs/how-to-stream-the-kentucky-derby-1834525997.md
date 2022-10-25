@@ -1,6 +1,6 @@
 # 如何观看第 145 届肯塔基赛马会
 
-> 原文:[https://life hacker . com/how-to-stream-the-Kentucky-derby-1834525997](https://lifehacker.com/how-to-stream-the-kentucky-derby-1834525997)
+> 原文：<https://lifehacker.com/how-to-stream-the-kentucky-derby-1834525997>
 
 肯塔基赛马会就在今天。被称为“体育运动中最伟大的两分钟”的第 145 届年度赛马于美国东部时间今天下午 6:46 在肯塔基州路易斯维尔正式开始。
 

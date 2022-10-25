@@ -1,6 +1,6 @@
 # 如何与你的健身追踪器保持健康的关系
 
-> 原文:[https://life hacker . com/how-to-have-a-healthy-relationship-your-fitness-tr-1834616117](https://lifehacker.com/how-to-have-a-healthy-relationship-with-your-fitness-tr-1834616117)
+> 原文：<https://lifehacker.com/how-to-have-a-healthy-relationship-with-your-fitness-tr-1834616117>
 
 人们很容易沉迷于数字，健身追踪器给了你很多。当你在手腕上绑上追踪器时，它会判断你的卡路里消耗、步数和睡眠情况。你可能最终会对你的统计数据感到焦虑，或者发现自己过度依赖它们来决定你的生活。
 

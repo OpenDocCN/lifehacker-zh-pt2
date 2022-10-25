@@ -1,6 +1,6 @@
 # 如果你使用亚马逊的门铃设备，请更改你的 Wifi 密码
 
-> 原文:[https://life hacker . com/if-you-use-amazons-ring-门铃-设备-change-your-w-1839721221](https://lifehacker.com/if-you-use-amazons-ring-doorbell-devices-change-your-w-1839721221)
+> 原文：<https://lifehacker.com/if-you-use-amazons-ring-doorbell-devices-change-your-w-1839721221>
 
 如果你正在使用亚马逊的门铃设备，你应该立即更改你的家庭 wifi 网络密码。 [据 Techcrunch](https://techcrunch.com/2019/11/07/amazon-ring-doorbells-wifi-hackers/) 报道，门铃设备在设置期间与用户的智能手机以明文形式共享 wifi 密码——本质上是未加密的文本数据。这使得家庭网络和任何与之相连的设备容易被黑客或附近任何知道如何收集这些数据的人利用。
 

@@ -1,6 +1,6 @@
 # 烹饪从安东尼·鲍代恩的 Les Halles 食谱:一个停止显示猪肉 rillette 食谱
 
-> 原文:[https://the take out . com/Anthony-bourdain-les-halles-cookbook-pork-rillette-1833418748](https://thetakeout.com/anthony-bourdain-les-halles-cookbook-pork-rillette-1833418748)
+> 原文：<https://thetakeout.com/anthony-bourdain-les-halles-cookbook-pork-rillette-1833418748>
 
 *这一周，*外卖的*彭凯将* [*烹饪从安东尼·鲍代恩的*](https://thetakeout.com/anthony-bourdain-les-halles-cookbook-french-onion-soup-1833361381) Les Halles 烹饪书*[*写他的经历*](https://thetakeout.com/anthony-bourdain-les-halles-cookbook-boeuf-bourguignon-1833392149) *。**
 

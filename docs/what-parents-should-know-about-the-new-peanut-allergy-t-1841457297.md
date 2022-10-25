@@ -1,6 +1,6 @@
 # 关于新的花生过敏治疗，父母应该知道什么
 
-> 原文:[https://life hacker . com/what-parents-should-known-the-new-peanut-allergy-t-1841457297](https://lifehacker.com/what-parents-should-know-about-the-new-peanut-allergy-t-1841457297)
+> 原文：<https://lifehacker.com/what-parents-should-know-about-the-new-peanut-allergy-t-1841457297>
 
 Palforzia 最近被 FDA 批准用于治疗花生过敏 ，这是同类药物中的第一种“药物”。(Palforzia 的活性成分实际上是花生过敏原，剂量非常小，但由于它是作为治疗药物上市的，所以必须作为药物进行监管。)
 

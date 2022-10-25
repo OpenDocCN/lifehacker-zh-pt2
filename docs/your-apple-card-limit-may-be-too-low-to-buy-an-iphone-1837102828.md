@@ -1,6 +1,6 @@
 # 您的 Apple 卡限额可能太低，无法购买 iPhone
 
-> 原文:[https://life hacker . com/your-apple-card-limit-may-be-low-to-buy-an-iphone-1837102828](https://lifehacker.com/your-apple-card-limit-may-be-too-low-to-buy-an-iphone-1837102828)
+> 原文：<https://lifehacker.com/your-apple-card-limit-may-be-too-low-to-buy-an-iphone-1837102828>
 
 备受期待的 [苹果卡](https://lifehacker.com/is-apple-card-worth-it-1837042256) 有一个可以在你的 iPhone 上几分钟完成的申请过程。它不仅速度快——一旦本月晚些时候向公众推出，它将向广泛的信用记录开放。
 

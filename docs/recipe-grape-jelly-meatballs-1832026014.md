@@ -1,6 +1,6 @@
 # 有一个葡萄果冻肉丸派对，每个人都被邀请了
 
-> 原文:[https://the take out . com/recipe-葡萄果冻肉丸-1832026014](https://thetakeout.com/recipe-grape-jelly-meatballs-1832026014)
+> 原文：<https://thetakeout.com/recipe-grape-jelly-meatballs-1832026014>
 
 我爱 [瓦罐](https://thetakeout.com/tag/slow-cooker) 。我喜欢开胃菜。我喜欢派对。因此，我对慢炖肉丸并不陌生，这种肉丸经常出现在庆祝从难看的节日毛衣到一年中最大的比赛的聚会上，总是伴随着喜庆、色彩鲜艳的剑形塑料牙签。当思考我自己对今年超级碗聚会的贡献时，我决定解决这道我渴望已久的菜。想象一下，当我发现这种特殊的酱，根据韦尔奇的网站，含有两种成分时，我有多惊讶:葡萄果冻和烧烤酱。
 

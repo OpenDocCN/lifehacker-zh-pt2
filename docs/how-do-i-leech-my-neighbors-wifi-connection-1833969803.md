@@ -1,6 +1,6 @@
 # 如何窃取邻居的 Wifi 连接？
 
-> 原文:[https://life hacker . com/how-do-I-leech-my-neighbors-wifi-connection-1833969803](https://lifehacker.com/how-do-i-leech-my-neighbors-wifi-connection-1833969803)
+> 原文：<https://lifehacker.com/how-do-i-leech-my-neighbors-wifi-connection-1833969803>
 
 考虑到在过去的几个月里有多少人来信询问无线网络问题，我不妨把这个专栏重新命名为“Wifi 向导”。不过，没关系。无线网络离我很近，对我来说很珍贵，因为我有美好的回忆，我花了三年时间为 *Wirecutter* 测试路由器——很多很多的路由器，足够持续一生的吞吐量测试。
 

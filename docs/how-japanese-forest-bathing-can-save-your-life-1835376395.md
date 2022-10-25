@@ -1,6 +1,6 @@
 # 日本森林浴如何拯救你的生命
 
-> 原文:[https://life hacker . com/how-Japanese-forest-bathing-can-save-your-life-1835376395](https://lifehacker.com/how-japanese-forest-bathing-can-save-your-life-1835376395)
+> 原文：<https://lifehacker.com/how-japanese-forest-bathing-can-save-your-life-1835376395>
 
 在森林里散步对健康有明显的好处，长谷川义史·宫崎教授正在研究如何将这些好处传播给尽可能多的人。根据他的研究，花时间在大自然中可以降低你的血压，减少压力荷尔蒙，徒步旅行的效果可以持续几天。你甚至可以在家里或工作场所种一盆植物来减轻压力。宫崎博士甚至在研究虚拟现实模拟森林是否能带来同样的好处。
 

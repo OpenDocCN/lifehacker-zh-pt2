@@ -1,6 +1,6 @@
 # 在做决定之前使用 10/10/10 法则
 
-> 原文:[https://life hacker . com/use-the-10-10-10-rule-before-make-a-decision-1830994525](https://lifehacker.com/use-the-10-10-10-rule-before-making-a-decision-1830994525)
+> 原文：<https://lifehacker.com/use-the-10-10-10-rule-before-making-a-decision-1830994525>
 
 你最喜欢的心里话是什么？你如何哄骗你愚蠢的人类大脑做好它的工作？黑客新闻(Hacker News)，一个为对 Reddit 太书呆子气的人而设的论坛， [在 simonswords82 发起的一个帖子里交易他们最喜欢的把戏](https://news.ycombinator.com/item?id=18588727) 。这里是最好的。
 

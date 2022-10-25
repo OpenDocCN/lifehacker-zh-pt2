@@ -1,6 +1,6 @@
 # 在你的孩子回到大学之前拿到这些健康表格
 
-> 原文:[https://life hacker . com/get-these-health-forms-before-your-kids-return-to-colle-1844866763](https://lifehacker.com/get-these-health-forms-before-your-kids-return-to-colle-1844866763)
+> 原文：<https://lifehacker.com/get-these-health-forms-before-your-kids-return-to-colle-1844866763>
 
 随着学生重返大学校园，许多家庭担心冠状病毒的威胁挥之不去。虽然学校正在采取措施保持人们健康，但家庭应该采取额外的预防措施。如果您的孩子生病并在医院处于危急状态，可能很难获得他们医疗状况的最新信息。原因如下:根据健康保险携带和责任法案，又名 [HIPAA](http://www.hhs.gov/hipaa/for-individuals/guidance-materials-for-consumers/index.html) ，一旦你的孩子年满 18 岁，你可能就无法获得他们的医疗状况。
 

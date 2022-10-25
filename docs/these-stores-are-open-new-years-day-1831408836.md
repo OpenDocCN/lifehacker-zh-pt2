@@ -1,6 +1,6 @@
 # 这些商店在元旦开门营业
 
-> 原文:[https://life hacker . com/these-stores-is-open-new-years-day-1831408836](https://lifehacker.com/these-stores-are-open-new-years-day-1831408836)
+> 原文：<https://lifehacker.com/these-stores-are-open-new-years-day-1831408836>
 
 元旦是一个大节日，事实上它是如此之大，以至于你在拜访一些零售商时可能会遇到问题。
 

@@ -1,6 +1,6 @@
 # 谷歌文档新的“实时字数统计”很奇怪，但确实存在
 
-> 原文:[https://life hacker . com/how-to-enable-Google-docs-new-live-word-count-feature-1838214964](https://lifehacker.com/how-to-enable-google-docs-new-live-word-count-feature-1838214964)
+> 原文：<https://lifehacker.com/how-to-enable-google-docs-new-live-word-count-feature-1838214964>
 
 谷歌正式推出了我们多年来见过的最有用的 Docs 新增功能:字数统计。或者更具体地说，一个允许您获取正在处理的任何文档的实时字数的功能。这比点击菜单一遍又一遍地查看静态字数要方便得多。然而，有一个重要的警告。
 

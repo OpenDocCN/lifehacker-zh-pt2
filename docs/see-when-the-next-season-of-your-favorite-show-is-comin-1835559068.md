@@ -1,6 +1,6 @@
 # 通过这个网站查看你最喜欢的节目的下一季何时来到网飞
 
-> 原文:[https://life hacker . com/see-when-the-next-season-of-your favorite-show-coming-1835559068](https://lifehacker.com/see-when-the-next-season-of-your-favorite-show-is-comin-1835559068)
+> 原文：<https://lifehacker.com/see-when-the-next-season-of-your-favorite-show-is-comin-1835559068>
 
 在某个时候，我们养成了在家里专门狂看电视剧的习惯。虽然我们确实会在一些剧集播出时跟进，但在大多数情况下，我们最终会选择一个已经有四五季的剧集，然后每晚看几集，直到看完为止。
 

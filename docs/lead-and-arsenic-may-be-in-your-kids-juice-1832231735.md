@@ -1,6 +1,6 @@
 # 你孩子的果汁里可能含有铅和砷
 
-> 原文:[https://life hacker . com/lead-and-asonic-may-be-in-your-kids-juice-1832231735](https://lifehacker.com/lead-and-arsenic-may-be-in-your-kids-juice-1832231735)
+> 原文：<https://lifehacker.com/lead-and-arsenic-may-be-in-your-kids-juice-1832231735>
 
 现在我们又多了一个理由 [少喂孩子果汁](https://lifehacker.com/how-to-raise-a-healthy-vegan-kid-1828667417) 。根据一份新的报告 ，消费者报告发现超市货架上许多品牌的铅、砷和镉[。其中一些含量高到足以对每天只喝半杯的孩子造成伤害。](https://www.consumerreports.org/food-safety/arsenic-and-lead-are-in-your-fruit-juice-what-you-need-to-know/)
 

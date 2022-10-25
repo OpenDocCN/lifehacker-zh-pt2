@@ -1,6 +1,6 @@
 # 在仓储俱乐部购物的最简单方式，无需会员
 
-> 原文:[https://life hacker . com/the-easy-way-to-shop-at-warehouse-clubs-without-a-me-1841386723](https://lifehacker.com/the-easiest-way-to-shop-at-warehouse-clubs-without-a-me-1841386723)
+> 原文：<https://lifehacker.com/the-easiest-way-to-shop-at-warehouse-clubs-without-a-me-1841386723>
 
 就在你以为自己知道在好事多购物的所有技巧而没有会员资格的时候，对于那些 45 美元以上的年费，有了一个新的变通办法:送货。取决于你住在哪里，你不仅可以使用 Instacart 从好市多，还可以从山姆会员店和 BJ 的仓库获得订单。
 

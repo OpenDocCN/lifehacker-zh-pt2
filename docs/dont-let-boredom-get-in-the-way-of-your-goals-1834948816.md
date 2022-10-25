@@ -1,6 +1,6 @@
 # 不要让无聊阻碍你实现目标
 
-> 原文:[https://life hacker . com/don-let-tyre-get-way of-your-goals-1834948816](https://lifehacker.com/dont-let-boredom-get-in-the-way-of-your-goals-1834948816)
+> 原文：<https://lifehacker.com/dont-let-boredom-get-in-the-way-of-your-goals-1834948816>
 
 我们都知道开始一个新习惯是多么令人兴奋。今天我们要成为早起的人！上班前打包他们的午餐！去健身房！
 

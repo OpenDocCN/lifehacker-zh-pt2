@@ -1,6 +1,6 @@
 # 租金到自有住房如何工作？
 
-> 原文:[https://life hacker . com/how-do-rent-to-own-homeownership-work-1842293445](https://lifehacker.com/how-does-rent-to-own-homeownership-work-1842293445)
+> 原文：<https://lifehacker.com/how-does-rent-to-own-homeownership-work-1842293445>
 
 有没有看过或听过一个广告，声称你可以通过“先租后买”计划轻松买房？有些人说得好像你只要付几年房租，然后，嘣，你就拥有了房子。
 

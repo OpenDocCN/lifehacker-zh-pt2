@@ -1,6 +1,6 @@
 # 你要死了吗？美国东部时间明天下午 1 点，向两位心脏病专家询问你的健康问题
 
-> 原文:[https://life hacker . com/are-you-dye-ask-two-cardiologists-your-health-questi-1832528740](https://lifehacker.com/are-you-dying-ask-two-cardiologists-your-health-questi-1832528740)
+> 原文：<https://lifehacker.com/are-you-dying-ask-two-cardiologists-your-health-questi-1832528740>
 
 所以: T 你膝盖里那顶奇怪的咔嗒声又回来了。今天，你突然感到恶心有一个小时，但之后就消失了，现在你有点头疼。天啊，你没在哪里读到过这是中风的征兆吗？*还有人闻到烤面包烧焦的味道吗？*
 

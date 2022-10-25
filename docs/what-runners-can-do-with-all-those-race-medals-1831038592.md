@@ -1,6 +1,6 @@
 # 跑步者可以用这些奖牌做什么
 
-> 原文:[https://life hacker . com/what-runners-can-do-what-what-what-what-runners-that-what-what-what-what-what-what-what-what-what-what-than-race-medals-1831038592](https://lifehacker.com/what-runners-can-do-with-all-those-race-medals-1831038592)
+> 原文：<https://lifehacker.com/what-runners-can-do-with-all-those-race-medals-1831038592>
 
 也许你赢了很多。或者你只是跑了很多比赛，这些比赛会给你带来奖牌——马拉松，半程马拉松， [新奇 5k](https://runningintheusa.com/variety/list/Novelty-Run/upcoming)。不管怎样，第一枚珍贵的奖牌最终会变成压在你门把手上或塞满你梳妆台抽屉的几磅重的硬件。这里有一些更有趣的方式来欣赏或处理这些奖牌。
 

@@ -1,6 +1,6 @@
 # 黄瓜沙拉上的“调料”有两种成分
 
-> 原文:[https://life hacker . com/the-dressing-on-this-cumber-salad-has-two-ingredients-1844149910](https://lifehacker.com/the-dressing-on-this-cucumber-salad-has-two-ingredients-1844149910)
+> 原文：<https://lifehacker.com/the-dressing-on-this-cucumber-salad-has-two-ingredients-1844149910>
 
 从我可以吃固体食物的时候起，我就一直在吃黄瓜、西红柿和洋葱沙拉，从我可以挥舞菜刀的时候起，我就一直在做这些东西。自以来的 25 年间，成分没有改变。除了蔬菜(严格来说，还有水果)，你只需要其中两种:蒜盐和蛋黄酱。
 

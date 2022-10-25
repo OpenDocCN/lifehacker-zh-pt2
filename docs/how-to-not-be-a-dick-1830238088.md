@@ -1,6 +1,6 @@
 # 如何不成为一个混蛋
 
-> 原文:[https://lifehacker.com/how-to-not-be-a-dick-1830238088](https://lifehacker.com/how-to-not-be-a-dick-1830238088)
+> 原文：<https://lifehacker.com/how-to-not-be-a-dick-1830238088>
 
 做鸡巴有很多不同的方式:从做校园恶霸，到不修剪你的草坪，到使用塑料吸管，到在路上做鸡巴。在这一集里，我们将谈论一些我们可以善待他人、善待环境，进而善待自己的小方法。
 

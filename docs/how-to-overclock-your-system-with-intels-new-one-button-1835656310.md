@@ -1,6 +1,6 @@
 # 如何使用英特尔全新的一键式实用程序对您的系统进行超频
 
-> 原文:[https://life hacker . com/how-to-over clock-your-system-with-Intel-new-one-button-1835656310](https://lifehacker.com/how-to-overclock-your-system-with-intels-new-one-button-1835656310)
+> 原文：<https://lifehacker.com/how-to-overclock-your-system-with-intels-new-one-button-1835656310>
 
 **Windows:** 英特尔让你的 CPU 超频变得容易多了——把它推到超过它的默认时钟速度，让它甚至更快，冒着潜在烧焦你的芯片的风险。只有一个大警告:你将需要六个受支持的第九代 CPU 中的一个(都在 Coffee Lake 家族中)才能享受其新的简单的超频实用程序。你还需要在你的一个驱动器上有 16GB 的空闲空间，但我怀疑这对大多数寻求超频系统的系统构建者来说是个问题。
 

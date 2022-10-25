@@ -1,6 +1,6 @@
 # 建造不可能的笔记本电脑的探索
 
-> 原文:[https://gizmodo . com/the-quest-to-build-the-impossible-laptop-1830124994](https://gizmodo.com/the-quest-to-build-the-impossible-laptop-1830124994)
+> 原文：<https://gizmodo.com/the-quest-to-build-the-impossible-laptop-1830124994>
 
 在最近的一系列新产品中， [微软](https://gizmodo.com/microsoft-just-announced-great-upgrades-to-a-whole-bunc-1829466520) ， [苹果](https://gizmodo.com/the-ipad-pro-is-finally-making-a-case-for-itself-1830106450) ， [谷歌](https://gizmodo.com/pixel-slate-google-might-have-finally-made-a-near-perf-1829616092) ， [联想](https://gizmodo.com/the-lenovo-yoga-just-keeps-getting-better-1829998930?rev=1540556376981) 和 [惠普](https://gizmodo.com/hp-thinks-it-cracked-the-2-in-1-code-1829401722#_ga=2.173360995.1104928386.1540775852-422248777.1525353160) 都展示了试图解决业界最棘手问题之一的电脑:如何制造一台键盘输入的电脑，同时又是一台伟大的平板电脑？如何在不破坏整个系统的情况下将键盘连接到平板电脑上？每个制造商都试图创造一种设备，可以做到这一切。
 

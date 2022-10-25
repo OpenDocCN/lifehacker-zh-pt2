@@ -1,6 +1,6 @@
 # 为你的情人节准备一些松露吧
 
-> 原文:[https://life hacker . com/sous-vide-some-truffles-for-your-valentine-1832447429](https://lifehacker.com/sous-vide-some-truffles-for-your-valentine-1832447429)
+> 原文：<https://lifehacker.com/sous-vide-some-truffles-for-your-valentine-1832447429>
 
 尽管我可能会表现得好像对 2 月 14 日令人厌恶的本性免疫，但实际上我有点喜欢情人节。也许是因为色彩鲜艳、视觉上统一的杂货店陈列缓解了我特有的焦虑，但这可能是因为我喜欢糖果，尤其是巧克力。
 

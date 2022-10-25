@@ -1,6 +1,6 @@
 # the race to save the most endangered conifer in america 1833785742
 
-> 原文:[https://gizmodo . com/the-race-to-save-the-most-endless-the-针叶树 in-america-1833785742](https://gizmodo.com/the-race-to-save-the-most-endangered-conifer-in-america-1833785742)
+> 原文：<https://gizmodo.com/the-race-to-save-the-most-endangered-conifer-in-america-1833785742>
 
 佛罗里达州托雷亚州立公园— 宗教学者长期以来一直在争论诺亚在哪里建造了他用“地鼠木材”制成的漂浮动物园(创世纪 6:14)，以及方舟的地鼠木材来自哪种树。佛罗里达狭长地带的一些居民给出了一个不太可能的答案。有问题的地方是，嗯，在那里，有问题的树是*榧树*。K 在当地被称为 gopher wood(或者，不太符合圣经的说法，被称为臭雪松，因为当针叶和茎在手指间滚动时，它会释放出涩味)，当地传说这种树及其柔软的黄色木材被用来建造诺亚方舟，诺亚在方舟上度过了 40 天的洪水，最终，动物园在土耳其的阿拉拉特山着陆。
 

@@ -1,6 +1,6 @@
 # 学习你不擅长的事情，找到你真正擅长的事情
 
-> 原文:[https://life hacker . com/learn-what-you-bad-to-find the-thing-you-really-1833779152](https://lifehacker.com/learn-what-youre-bad-at-to-find-the-thing-youre-really-1833779152)
+> 原文：<https://lifehacker.com/learn-what-youre-bad-at-to-find-the-thing-youre-really-1833779152>
 
 丹·莱维现在最为人所知的是他在广受欢迎的热门电影《希特的小溪》中扮演的大卫·罗斯，这部电影讲述了一个曾经富有的家庭住在他们开玩笑买下的小镇上的故事。利维也是该系列的主持人和创作者，他对如何发挥你的创造性天赋提出了一些建议。
 

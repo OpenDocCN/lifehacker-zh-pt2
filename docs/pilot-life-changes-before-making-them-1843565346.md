@@ -1,6 +1,6 @@
 # 在做出改变之前，先改变飞行员的生活
 
-> 原文:[https://life hacker . com/pilot-life-changes-before-make-them-1843565346](https://lifehacker.com/pilot-life-changes-before-making-them-1843565346)
+> 原文：<https://lifehacker.com/pilot-life-changes-before-making-them-1843565346>
 
 在我从西雅图搬到锡达拉皮兹之前，我在锡达拉皮兹的 Airbnb 预订了为期一周的住宿，这样我就可以做一次“实地考察”几年前，当我考虑从西雅图搬到波特兰时，我进行了类似的测试——尽管波特兰的实地考察没有让我相信我需要永久搬家，但我在锡达拉皮兹度过的一周以我签署了一套公寓的一年租约而告终。
 

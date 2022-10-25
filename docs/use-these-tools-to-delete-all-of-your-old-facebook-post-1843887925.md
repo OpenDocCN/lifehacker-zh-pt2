@@ -1,6 +1,6 @@
 # 如何删除你所有的脸书旧帖子
 
-> 原文:[https://life hacker . com/use-this-tools-to-delete-all-of-your-old-Facebook-post-1843887925](https://lifehacker.com/use-these-tools-to-delete-all-of-your-old-facebook-post-1843887925)
+> 原文：<https://lifehacker.com/use-these-tools-to-delete-all-of-your-old-facebook-post-1843887925>
 
 脸书有一个全新的删除旧帖子的工具，但它不是很好。它不仅在脸书的桌面网站上不可用——因为*推出了*——而且即使是这样，现在也有更好的工具可以用来删除你在脸书的旧帖子，而不用删除脸书本身。
 

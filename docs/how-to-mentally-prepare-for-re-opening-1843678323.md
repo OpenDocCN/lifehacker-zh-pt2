@@ -1,6 +1,6 @@
 # 如何做好重开的心理准备
 
-> 原文:[https://life hacker . com/how-to-mental-prepare-for-re-opening-1843678323](https://lifehacker.com/how-to-mentally-prepare-for-re-opening-1843678323)
+> 原文：<https://lifehacker.com/how-to-mentally-prepare-for-re-opening-1843678323>
 
 虽然我们中的许多人在疫情期间可能已经适应了这种“新常态”，但随着一些地区开始重新开放，我们似乎很难回到外面。
 

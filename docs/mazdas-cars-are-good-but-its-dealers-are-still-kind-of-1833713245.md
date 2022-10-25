@@ -1,6 +1,6 @@
 # 马自达的汽车很好，但它的经销商还是有点糟糕
 
-> 原文:[https://jalopnik . com/mazdas-cars-is-good-but-its-dealer-is-still-kind-of-1833713245](https://jalopnik.com/mazdas-cars-are-good-but-its-dealers-are-still-kind-of-1833713245)
+> 原文：<https://jalopnik.com/mazdas-cars-are-good-but-its-dealers-are-still-kind-of-1833713245>
 
 马自达最近拥有一些非常好的汽车——可能是自双涡轮转子发动机仍然存在以来最好的阵容。斗志昂扬的汽车制造商正在寻求更优质的“高端”产品，而不是直接与本田和丰田这样的巨头竞争。在很大程度上，这一策略是有效的，但是一个很大的因素阻碍了品牌的发展:销售人员站在马自达顾客的第一线。
 

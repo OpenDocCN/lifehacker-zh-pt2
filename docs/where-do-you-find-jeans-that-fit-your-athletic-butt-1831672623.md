@@ -1,6 +1,6 @@
 # 你在哪里能找到适合你运动臀部的牛仔裤？
 
-> 原文:[https://life hacker . com/where-do-you-find-the-fit the-athletic-butt-1831672623](https://lifehacker.com/where-do-you-find-jeans-that-fit-your-athletic-butt-1831672623)
+> 原文：<https://lifehacker.com/where-do-you-find-jeans-that-fit-your-athletic-butt-1831672623>
 
 举足够多的重量，或者打足够多的曲棍球，你会发现你的臀部和大腿有更多的肌肉，这是非常棒的。但是，当你脱下自己的衣服，注意到商店里没有一条裤子适合你的时候，这就不那么棒了。
 

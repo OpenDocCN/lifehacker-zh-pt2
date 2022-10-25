@@ -1,6 +1,6 @@
 # 为什么你孩子的卧室需要挂历
 
-> 原文:[https://life hacker . com/why-your-kid-s-bedroom-need-a-wall-calendar-1841384627](https://lifehacker.com/why-your-kid-s-bedroom-needs-a-wall-calendar-1841384627)
+> 原文：<https://lifehacker.com/why-your-kid-s-bedroom-needs-a-wall-calendar-1841384627>
 
 当三岁的孩子在二月份开始问:“离圣诞节还有多久？”你知道你有麻烦了。大约在这个年龄，他们已经到了可以预见和期待假期、生日和假期的年龄。但是他们还不够大，不能理解“10 个月”、“18 天”甚至“一周”有多长。
 

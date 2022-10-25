@@ -1,6 +1,6 @@
 # 用第三人称对自己说话，以提高清晰度
 
-> 原文:[https://life hacker . com/talk-to-yourself-in-the-third-person-for-improved-clari-1837084747](https://lifehacker.com/talk-to-yourself-in-the-third-person-for-improved-clari-1837084747)
+> 原文：<https://lifehacker.com/talk-to-yourself-in-the-third-person-for-improved-clari-1837084747>
 
 唐纳德·特朗普、Flav 和 Elmo 有什么共同点？这个问题可能有多种可接受的答案，但我们今天寻找的答案是，他们都以第三人称谈论自己。现在，这并不完全是赞成以这种方式交流的响亮投票，但听我们说完:有研究表明，以第三人称 说话的 [实际上可以帮助我们思考各种情况，并有助于情绪调节。](https://aeon.co/ideas/why-speaking-to-yourself-in-the-third-person-makes-you-wiser) 
 

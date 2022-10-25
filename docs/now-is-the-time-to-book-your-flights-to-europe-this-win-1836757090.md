@@ -1,6 +1,6 @@
 # 现在是时候预订去欧洲的冬季航班了
 
-> 原文:[https://life hacker . com/now-is-time-to-book your-the-win-1836757090](https://lifehacker.com/now-is-the-time-to-book-your-flights-to-europe-this-win-1836757090)
+> 原文：<https://lifehacker.com/now-is-the-time-to-book-your-flights-to-europe-this-win-1836757090>
 
 如果你想今年冬天去欧洲旅行，现在可能是时候开始考虑买机票了。
 

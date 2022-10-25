@@ -1,6 +1,6 @@
 # 搬家后马上尝试新的厨房用品
 
-> 原文:[https://life hacker . com/try-out-new-kitchen-stuff-right-after-moving-1841611253](https://lifehacker.com/try-out-new-kitchen-stuff-right-after-moving-1841611253)
+> 原文：<https://lifehacker.com/try-out-new-kitchen-stuff-right-after-moving-1841611253>
 
 每一次搬家最糟糕的部分是试图像一个正常人一样生活在之间满是盒子的门槛空间里。但是，事实证明，这段恼人的时间恰恰有一个好处:它提供了投资新炊具的绝佳机会，因为你别无选择，只能每天使用它。
 

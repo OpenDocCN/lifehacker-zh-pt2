@@ -1,6 +1,6 @@
 # 在 Android 上尝试这些特定于 Waze 的谷歌助手命令
 
-> 原文:[https://life hacker . com/try-these-waze-specific-Google-assistant-commands-on-an-1835377373](https://lifehacker.com/try-these-waze-specific-google-assistant-commands-on-an-1835377373)
+> 原文：<https://lifehacker.com/try-these-waze-specific-google-assistant-commands-on-an-1835377373>
 
 自 2013 年谷歌收购 Waze 以来，该公司一直在慢慢地将 Waze 的功能添加到谷歌地图中，包括 Waze 的 [交通报告功能](https://lifehacker.com/how-to-check-for-speed-traps-speed-limits-and-traffic-1835125560) 和实时限速。
 

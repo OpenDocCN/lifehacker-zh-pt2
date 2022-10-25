@@ -1,6 +1,6 @@
 # 无需付费墙，从哪里获取冠状病毒新闻
 
-> 原文:[https://life hacker . com/where-to-access-coronavirus-news-without-a-pay wall-1842300436](https://lifehacker.com/where-to-access-coronavirus-news-without-a-paywall-1842300436)
+> 原文：<https://lifehacker.com/where-to-access-coronavirus-news-without-a-paywall-1842300436>
 
 说到冠状病毒新闻， [不乏误传](https://lifehacker.com/how-to-tell-whos-full-of-shit-when-theyre-talking-about-1842293545) 和不良演员。如果你想从可靠的来源学习，你可能会担心你会很快用完你这个月的免费文章，然后不得不相信一堆推文。
 

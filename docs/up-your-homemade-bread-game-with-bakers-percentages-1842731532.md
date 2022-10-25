@@ -1,6 +1,6 @@
 # 用面包师的百分比提升你的自制面包游戏
 
-> 原文:[https://life hacker . com/up-your-made-bread-game-with bakers-percentages-1842731532](https://lifehacker.com/up-your-homemade-bread-game-with-bakers-percentages-1842731532)
+> 原文：<https://lifehacker.com/up-your-homemade-bread-game-with-bakers-percentages-1842731532>
 
 疫情引发的幽居病已经启动了 Instagram 上似乎每个人的酸面团烘焙爱好。如果你是这些新加入的面包师中的一员，现在你可能已经掌握了 [给开胃菜喂食的窍门，以及一些基本的成型技术](https://lifehacker.com/heres-a-helpful-timer-for-all-that-sourdough-youre-maki-1842713080) ，并且渴望新的挑战。为什么不试着调整食谱来制作定制面包呢？依我拙见，这是熟悉面包师百分比的最佳时机，这是任何有抱负的面包师的必备工具。
 

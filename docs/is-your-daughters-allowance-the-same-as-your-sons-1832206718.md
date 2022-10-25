@@ -1,6 +1,6 @@
 # 你女儿的零花钱和你儿子的一样吗？
 
-> 原文:[https://life hacker . com/is-your-daughters-allow ance-as-your-sons-1832206718](https://lifehacker.com/is-your-daughters-allowance-the-same-as-your-sons-1832206718)
+> 原文：<https://lifehacker.com/is-your-daughters-allowance-the-same-as-your-sons-1832206718>
 
 性别工资差距不仅仅是劳动力正在努力解决的问题；它从你在家如何对待你的孩子开始。
 

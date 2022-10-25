@@ -1,6 +1,6 @@
 # 如何以及为什么将您的 Sonos 设置更新为“S2”
 
-> 原文:[https://life hacker . com/how-and-why-to-update-your-sonos-setup-to-S2-1843956053](https://lifehacker.com/how-and-why-to-update-your-sonos-setup-to-s2-1843956053)
+> 原文：<https://lifehacker.com/how-and-why-to-update-your-sonos-setup-to-s2-1843956053>
 
 Sonos 正在推出一款名为 S2 控制器应用的新控制器应用，虽然许多用户需要它来接收功能更新或将未来的 Sonos 产品集成到他们的设置中，但它还没有完全取代旧的 Sonos 控制器应用。这就是现在的 [S1 控制器应用](https://apps.apple.com/us/app/sonos-s1-controller/id293523031)——仍然有一些情况下你可能需要使用它。
 

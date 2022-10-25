@@ -1,6 +1,6 @@
 # 这个演示解释了个性化化身的物理距离
 
-> 原文:[https://life hacker . com/this-demo-explains-physical-distanding-with-personalize-1842796532](https://lifehacker.com/this-demo-explains-physical-distancing-with-personalize-1842796532)
+> 原文：<https://lifehacker.com/this-demo-explains-physical-distancing-with-personalize-1842796532>
 
 我们希望你呆在家里。但是，当你花这么多时间看着你自己的四面墙时，很难接受这样一个事实:你没有做的事情——把孩子送到日托所，去健身房锻炼——才是真正有所作为的。魁北克拉瓦尔大学的 [这个小演示](http://wlab.fmed.ulaval.ca/projects/socdist/#/) 可能会有所帮助:它说明了物理距离是如何工作的，并在这个过程中添加了一张脸(实际上是九张)。
 

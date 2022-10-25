@@ -1,6 +1,6 @@
 # 如何找到“你是什么迪斯尼人物?”？“在 Instagram 上过滤
 
-> 原文:[https://life hacker . com/how-to-find the what-Disney-character-are-you-filter-1840747851](https://lifehacker.com/how-to-find-the-what-disney-character-are-you-filter-1840747851)
+> 原文：<https://lifehacker.com/how-to-find-the-what-disney-character-are-you-filter-1840747851>
 
 如果你在过去一周左右看了 Instagram 的故事，你可能会注意到至少有一个朋友在炫耀如果他们是卡通人物，他们可能是谁。
 

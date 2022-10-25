@@ -1,6 +1,6 @@
 # 如何活得更长，防弹高管戴夫·阿斯普雷如是说
 
-> 原文:[https://life hacker . com/how-to-live-longer-by-防弹-exec-dave-1840155169](https://lifehacker.com/how-to-live-longer-according-to-bulletproof-exec-dave-1840155169)
+> 原文：<https://lifehacker.com/how-to-live-longer-according-to-bulletproof-exec-dave-1840155169>
 
 想长生不老？以下是防弹创始人兼作家戴夫·阿斯普雷的一些建议。“我们知道我们可以活到 120 岁，因为我们看到过这样的事情发生...在未来的 100 年里，我们很有可能因为刚刚上线的技术而获得 50%的提升。”
 

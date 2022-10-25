@@ -1,6 +1,6 @@
 # 疫情之后信用卡奖励会有什么变化
 
-> 原文:[https://life hacker . com/how-credit-cards-rewards-will-change-after-the-疫情-1843484915](https://lifehacker.com/how-credit-cards-rewards-will-change-after-the-pandemic-1843484915)
+> 原文：<https://lifehacker.com/how-credit-cards-rewards-will-change-after-the-pandemic-1843484915>
 
 通过提供获得签约奖金的延长窗口，以及通过将 [奖励转移到远离旅行的地方](https://twocents.lifehacker.com/how-to-earn-more-rewards-points-on-your-next-grocery-ru-1843201856) ，奖励信用卡正在适应冠状病毒。
 

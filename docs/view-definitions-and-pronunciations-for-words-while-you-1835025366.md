@@ -1,6 +1,6 @@
 # 使用此扩展阅读网站时，查看单词的定义和发音
 
-> 原文:[https://life hacker . com/view-definitions-and-prounctions-for-words-while-you-1835025366](https://lifehacker.com/view-definitions-and-pronunciations-for-words-while-you-1835025366)
+> 原文：<https://lifehacker.com/view-definitions-and-pronunciations-for-words-while-you-1835025366>
 
 即使是我们当中最热心的读者，偶尔也会碰到我们不太知道意思的单词。在这种情况下，我的典型做法是将这个词复制/粘贴到另一个标签页的谷歌中，看看会出现什么。本周，我遇到了一个 Chrome 扩展，它去掉了中间的人(或中间的标签)，而是在同一个页面上处理操作。
 

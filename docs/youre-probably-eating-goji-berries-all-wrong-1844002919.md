@@ -1,6 +1,6 @@
 # 你可能完全吃错了枸杞
 
-> 原文:[https://life hacker . com/you-possible-eating-goji-berries-all-wrong-1844002919](https://lifehacker.com/youre-probably-eating-goji-berries-all-wrong-1844002919)
+> 原文：<https://lifehacker.com/youre-probably-eating-goji-berries-all-wrong-1844002919>
 
 自从进入 21 世纪以来，枸杞才在美国声名鹊起，被吹捧为具有无数健康益处的超级水果。但是中国人已经把枸杞作为茶和滋补品的重要成分享用了几千年。根据中国传统医学哲学，枸杞子滋阴明目，对肝肾有益。现代科学告诉我们，这些浆果含有全部九种必需氨基酸，是维生素 A、维生素 C、铁、锌和纤维的良好来源。
 

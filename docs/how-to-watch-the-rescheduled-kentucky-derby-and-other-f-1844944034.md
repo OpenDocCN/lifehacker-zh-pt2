@@ -1,6 +1,6 @@
 # 如何观看重新安排的肯塔基赛马会和其他庆祝活动
 
-> 原文:[https://life hacker . com/how-to-watch-the-re-scheduled-Kentucky-derby-and-other-f-1844944034](https://lifehacker.com/how-to-watch-the-rescheduled-kentucky-derby-and-other-f-1844944034)
+> 原文：<https://lifehacker.com/how-to-watch-the-rescheduled-kentucky-derby-and-other-f-1844944034>
 
 由于新冠肺炎事件推迟了四个月之后，第 146 场肯塔基赛马会将于本周末，也就是 9 月 5 日，举行。与其他持续数小时的体育赛事不同，真正的德比本身——被称为体育运动中最长的两分钟——相当短。当然，观看身材矮小的人快速骑马几分钟从技术上来说是主要活动，但这只是肯塔基赛马会体验的一个组成部分。
 

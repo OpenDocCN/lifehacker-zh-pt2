@@ -1,6 +1,6 @@
 # 如何让谷歌在你想买的东西价格下降时通知你
 
-> 原文:[https://life hacker . com/how-to-get-Google-to-let-you-know-when-the-price-drops-1838810254](https://lifehacker.com/how-to-get-google-to-let-you-know-when-the-price-drops-1838810254)
+> 原文：<https://lifehacker.com/how-to-get-google-to-let-you-know-when-the-price-drops-1838810254>
 
 谷歌本周推出了一款新的购物工具，可以很容易地在网上跟踪你感兴趣的商品的价格，并发现它何时降价。
 

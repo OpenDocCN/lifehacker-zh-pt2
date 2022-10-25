@@ -1,6 +1,6 @@
 # 在这份 2020 年的汽车清单上，没有一辆美国汽车会被人们保留至少 15 年
 
-> 原文:[https://jalopnik . com/there-not-a-single-a-American-car-on-this-2020-list-of-v-1840994309](https://jalopnik.com/there-isnt-a-single-american-car-on-this-2020-list-of-v-1840994309)
+> 原文：<https://jalopnik.com/there-isnt-a-single-american-car-on-this-2020-list-of-v-1840994309>
 
 我们在 *iSeeCars* 的朋友又一次处理了一些数据，找出哪些汽车可能会保留 15 年或更长时间。今年的榜单看起来与去年没有太大不同，基本上只有两个品牌占据主导地位。
 

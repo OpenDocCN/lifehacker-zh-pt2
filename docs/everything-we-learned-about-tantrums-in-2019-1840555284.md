@@ -1,6 +1,6 @@
 # 我们所学到的关于处理脾气的一切
 
-> 原文:[https://life hacker . com/everything-we-learn-on-tantrums-2019-1840555284](https://lifehacker.com/everything-we-learned-about-tantrums-in-2019-1840555284)
+> 原文：<https://lifehacker.com/everything-we-learned-about-tantrums-in-2019-1840555284>
 
 多年来，我们已经写了很多关于幼儿发脾气的文章。很有可能，在未来的几年里，我们会一直写下去。有很多东西需要剖析:为什么我们的孩子会如此不理智地生气，我们如何才能首先避免这种史诗般的崩溃，以及当他们发脾气时该怎么办，尽管我们有最好的意图、知识和策略。
 

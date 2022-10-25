@@ -1,6 +1,6 @@
 # 这周晚餐吃冰淇淋
 
-> 原文:[https://life hacker . com/have-ice-cream-for-dinner-this-week-1844591767](https://lifehacker.com/have-ice-cream-for-dinner-this-week-1844591767)
+> 原文：<https://lifehacker.com/have-ice-cream-for-dinner-this-week-1844591767>
 
 在刚刚过去的这个周末，我最喜欢的当地冰淇淋店正在促销一年一度的巨型自制苹果冰激凌饺子，以及超大的比利时华夫饼冰激凌三明治。我喜欢吃甜食，但胃口比一般人小，这意味着我通常不得不为了一小杯冰淇淋而不吃太油腻的东西。当然，除非我计划好了。决定把它做成一顿饭。
 

@@ -1,6 +1,6 @@
 # 你能认出假的吗？以下是要寻找的内容
 
-> 原文:[https://life hacker . com/can-you-spot-a-deep fake-heres-what-to-look-1841385555](https://lifehacker.com/can-you-spot-a-deepfake-heres-what-to-look-for-1841385555)
+> 原文：<https://lifehacker.com/can-you-spot-a-deepfake-heres-what-to-look-for-1841385555>
 
 你能认出人工智能制作的假视频吗？在上面的视频中，我分享了一些视频被 deepfake 技术篡改的迹象。
 

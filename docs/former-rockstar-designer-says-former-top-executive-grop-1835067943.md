@@ -1,6 +1,6 @@
 # 前摇滚明星设计师称前高管对他动手动脚
 
-> 原文:[https://kotaku . com/former-rock star-designer-says-former-top-executive-grop-1835067943](https://kotaku.com/former-rockstar-designer-says-former-top-executive-grop-1835067943)
+> 原文：<https://kotaku.com/former-rockstar-designer-says-former-top-executive-grop-1835067943>
 
 2014 年 11 月，当科林·邦斯库第一次在 Rockstar Games 开始工作时，他说他的新同事给了他一个警告:*不要和杰罗尼莫·巴雷拉作对。产品开发副总裁 Barrera 经常从纽约飞到加州 Carlsbad 的 Rockstar 办公室，他们都在那里开发西部游戏*红色死亡救赎 2* 。巴雷拉来到镇上时，Bundschu 被告知要小心。*多位同事和经理说，注意你和他说话的方式。Barrera 是 Rockstar 的高管之一，他以对人大喊大叫而闻名，有传言说他曾对冒犯他的员工大喊大叫，告诉他们他们被解雇了。**
 

@@ -1,6 +1,6 @@
 # 看看这些免费的彩色页面，适合所有年龄的孩子
 
-> 原文:[https://life hacker . com/check-out-these-free-coloring-pages-for-kids-of-all-age-1843002944](https://lifehacker.com/check-out-these-free-coloring-pages-for-kids-of-all-age-1843002944)
+> 原文：<https://lifehacker.com/check-out-these-free-coloring-pages-for-kids-of-all-age-1843002944>
 
 几年前成人涂色书突然流行是有原因的——拿起蜡笔、记号笔或彩色铅笔，简单地在别人已经为你画好的东西上涂上颜色，就能创作出一幅彩色的杰作，这是一件令人宽慰的事情。这是盲目的，但令人满意。T2:这正是我们现在所需要的。
 

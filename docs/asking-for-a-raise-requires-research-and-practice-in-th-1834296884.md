@@ -1,6 +1,6 @@
 # 如何要求加薪并真正得到
 
-> 原文:[https://life hacker . com/questing-for-a-raise-requires-research-and-practice-in-th-1834296884](https://lifehacker.com/asking-for-a-raise-requires-research-and-practice-in-th-1834296884)
+> 原文：<https://lifehacker.com/asking-for-a-raise-requires-research-and-practice-in-th-1834296884>
 
 如果你已经工作了一段时间，觉得是时候赚更多的钱了，那么开始这个对话会很困难。
 

@@ -1,6 +1,6 @@
 # 第一部可弯曲手机是一件令人兴奋的垃圾
 
-> 原文:[https://gizmodo . com/the-first-bend-phone is-a-exciting-piece-junk-1831653195](https://gizmodo.com/the-first-bendable-phone-is-an-exciting-piece-of-junk-1831653195)
+> 原文：<https://gizmodo.com/the-first-bendable-phone-is-an-exciting-piece-of-junk-1831653195>
 
 回到 11 月，就在 [前几天，三星推出了其柔性显示屏](https://gizmodo.com/samsung-s-flexible-display-is-our-best-look-yet-at-its-1830290960#_ga=2.153569468.506668787.1547161364-1595880060.1539636540) 手机， Royole 凭借全球首款柔性手机 [Flexpai](http://www.royole.com/flexpai) 亮相。可悲的是，演示在旧金山举行，而我在纽约。当我发现的时候，我根本没有足够的时间去那里。
 

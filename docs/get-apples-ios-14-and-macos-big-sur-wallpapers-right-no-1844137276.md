@@ -1,6 +1,6 @@
 # 立即获取苹果 iOS 14 和 macOS Big Sur 壁纸
 
-> 原文:[https://life hacker . com/get-apple-IOs-14-and-MAC OS-big-sur-wallpapers-right-no-1844137276](https://lifehacker.com/get-apples-ios-14-and-macos-big-sur-wallpapers-right-no-1844137276)
+> 原文：<https://lifehacker.com/get-apples-ios-14-and-macos-big-sur-wallpapers-right-no-1844137276>
 
 如果你还不想尝试 iOS 14 或 macOS Big Sur，那也没关系。开发者测试版并不适合所有人。然而，这并不意味着你不能享受两个操作系统带来的至少一个更新:闪亮的新壁纸。
 

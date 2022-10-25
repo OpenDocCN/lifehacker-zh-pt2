@@ -1,6 +1,6 @@
 # 将数学融入到与孩子的日常对话中
 
-> 原文:[https://life hacker . com/work-math-into-daily-conversations-with-your-kid-1835200781](https://lifehacker.com/work-math-into-everyday-conversations-with-your-kid-1835200781)
+> 原文：<https://lifehacker.com/work-math-into-everyday-conversations-with-your-kid-1835200781>
 
 大约 93%的美国成年人都有某种程度的数学焦虑。我承认我是这个群体的一部分。到了分摊晚餐账单的时候，我会紧张地避免和它对视，说:“我数学很烂。这就是我成为作家的原因！【*尴尬地笑着，祈祷我不用做除法*】。
 

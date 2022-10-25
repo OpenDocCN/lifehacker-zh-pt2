@@ -1,6 +1,6 @@
 # 如何以低至 44 美元的价格购买捷蓝航空的机票
 
-> 原文:[https://life hacker . com/how-to-buy-a-JetBlue-ticket-for-little-as-44-1834420882](https://lifehacker.com/how-to-buy-a-jetblue-ticket-for-as-little-as-44-1834420882)
+> 原文：<https://lifehacker.com/how-to-buy-a-jetblue-ticket-for-as-little-as-44-1834420882>
 
 急需休假吗？直到美国东部时间明天晚上 11 点 59 分，作为其“尽你所能飞”促销活动的一部分，捷蓝航空正在进行大减价，这意味着你可以买到低至 44 美元的单程机票——最早下周出发。
 

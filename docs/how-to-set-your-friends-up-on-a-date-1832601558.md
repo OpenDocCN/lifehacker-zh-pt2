@@ -1,6 +1,6 @@
 # 如何安排你的朋友约会
 
-> 原文:[https://life hacker . com/how-to-set-your-friends-up-on-date-1832601558](https://lifehacker.com/how-to-set-your-friends-up-on-a-date-1832601558)
+> 原文：<https://lifehacker.com/how-to-set-your-friends-up-on-a-date-1832601558>
 
 所以终于发生了。你遇到了一个很棒的人。他们聪明、有魅力、有工作——而且他们是你那毫无必要的吹毛求疵的朋友的完美伴侣。我们都有过这样的经历，你有一个朋友很适合另一个朋友，你肯定他们会一见如故。但是设置它们说起来容易做起来难，不像在繁忙的地铁站台或婚宴上的浪漫喜剧。
 

@@ -1,6 +1,6 @@
 # 我如何处理州外购车的税务？
 
-> 原文:[https://jalopnik . com/how-do-I-handle-taxes-for-a-out-of-state-car-purchase-1832457352](https://jalopnik.com/how-do-i-handle-taxes-for-an-out-of-state-car-purchase-1832457352)
+> 原文：<https://jalopnik.com/how-do-i-handle-taxes-for-an-out-of-state-car-purchase-1832457352>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。我决定挑几个问题，试着帮帮大家。本周我们将讨论在州外购买汽车时的税费,“经销商准备”是什么意思，以及贷款购买汽车保险的必要性。
 

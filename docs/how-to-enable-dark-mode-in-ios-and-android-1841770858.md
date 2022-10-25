@@ -1,6 +1,6 @@
 # 如何在 iOS 和 Android 中启用黑暗模式
 
-> 原文:[https://life hacker . com/how-to-enable-dark-mode-in-IOs-and-Android-1841770858](https://lifehacker.com/how-to-enable-dark-mode-in-ios-and-android-1841770858)
+> 原文：<https://lifehacker.com/how-to-enable-dark-mode-in-ios-and-android-1841770858>
 
 我们在 Lifehacker 上谈论了很多关于黑暗模式的话题——根据每当一个新的应用程序或服务引入一种黑色背景的新方式时我们得到的反应，很明显许多 Lifehacker 读者更喜欢昏暗的设备而不是明亮的设备。
 

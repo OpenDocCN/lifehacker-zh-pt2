@@ -1,6 +1,6 @@
 # 如何在家中创造一个指定的工作空间
 
-> 原文:[https://life hacker . com/how-to-create-a-designed-work-space in your home-1842453861](https://lifehacker.com/how-to-create-a-designated-work-space-in-your-home-1842453861)
+> 原文：<https://lifehacker.com/how-to-create-a-designated-work-space-in-your-home-1842453861>
 
 我们中的许多人现在开始了在家工作的第二或第三周，是时候认真对待工作与生活的平衡了。
 

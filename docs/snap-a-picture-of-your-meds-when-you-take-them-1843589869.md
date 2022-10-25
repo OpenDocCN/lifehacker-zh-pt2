@@ -1,6 +1,6 @@
 # 吃药的时候拍张照片
 
-> 原文:[https://life hacker . com/snap-a-picture-of-your-medits-when-you-take-them-1843589869](https://lifehacker.com/snap-a-picture-of-your-meds-when-you-take-them-1843589869)
+> 原文：<https://lifehacker.com/snap-a-picture-of-your-meds-when-you-take-them-1843589869>
 
 如果你按照时间表服药，你可能会有一个系统来记住什么时候服用什么，无论你是使用应用程序还是像药片管理器这样的低技术含量的东西。但是对于那些偶尔的剂量——比如我在过敏季节每隔几天服用一次的克拉汀——只需要拍一张药瓶的照片就可以了。
 

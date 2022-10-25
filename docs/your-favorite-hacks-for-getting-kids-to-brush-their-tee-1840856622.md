@@ -1,6 +1,6 @@
 # 你最喜欢的让孩子刷牙的方法
 
-> 原文:[https://life hacker . com/your-favorite-hacks-for-getting-kids-brush-they-tee-1840856622](https://lifehacker.com/your-favorite-hacks-for-getting-kids-to-brush-their-tee-1840856622)
+> 原文：<https://lifehacker.com/your-favorite-hacks-for-getting-kids-to-brush-their-tee-1840856622>
 
 美国牙科协会 告诉我们，我们的孩子应该学会每天刷牙两次，每次两分钟。两分钟听起来是一段相对较短的时间——直到你试图说服一个宁愿永远闭上嘴也不愿让刷子靠近他们的孩子。
 

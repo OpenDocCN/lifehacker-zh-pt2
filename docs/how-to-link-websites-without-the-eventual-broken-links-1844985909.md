@@ -1,6 +1,6 @@
 # 如何链接网站而不会最终断开链接
 
-> 原文:[https://life hacker . com/how-to-link-websites-without-the-finally-breaked-links-1844985909](https://lifehacker.com/how-to-link-websites-without-the-eventual-broken-links-1844985909)
+> 原文：<https://lifehacker.com/how-to-link-websites-without-the-eventual-broken-links-1844985909>
 
 你是否曾经浏览过一个旧的网站，当你点击一个长期废弃网站的链接时，却发现自己面对着一个 404 错误？搜索一篇旧的书签文章，却发现它现在被卡在付费墙后面，该怎么办？
 

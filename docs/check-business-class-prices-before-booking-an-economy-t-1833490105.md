@@ -1,6 +1,6 @@
 # 预订经济舱机票前，请查看商务舱价格
 
-> 原文:[https://life hacker . com/check-business-class-prices-before-booking-a-economy-t-1833490105](https://lifehacker.com/check-business-class-prices-before-booking-an-economy-t-1833490105)
+> 原文：<https://lifehacker.com/check-business-class-prices-before-booking-an-economy-t-1833490105>
 
 我在飞机上乘坐商务舱的典型经历是我在过道里短暂的穿行——我走向后面。很漂亮，不是吗？变成床的座位。充足的腿部空间。还有热坚果！到处都是热坚果。
 

@@ -1,6 +1,6 @@
 # 如何阅读司法部对穆勒报告的总结
 
-> 原文:[https://life hacker . com/how-to-read-the-justice-department-summary-of-the-muell-1833529012](https://lifehacker.com/how-to-read-the-justice-department-summary-of-the-muell-1833529012)
+> 原文：<https://lifehacker.com/how-to-read-the-justice-department-summary-of-the-muell-1833529012>
 
 周日，司法部长威廉·巴尔提交了他对特别顾问罗伯特·穆勒调查 2016 年总统选举的主要结论的总结。如果你想了解整个事情，你可以 [阅读这里](https://judiciary.house.gov/sites/democrats.judiciary.house.gov/files/documents/AG%20March%2024%202019%20Letter%20to%20House%20and%20Senate%20Judiciary%20Committees.pdf) 。
 

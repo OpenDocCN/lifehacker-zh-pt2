@@ -1,6 +1,6 @@
 # 通过检查你的列表来避免 Twitter 骚扰
 
-> 原文:[https://life hacker . com/get-ahead-of-Twitter-骚扰-检查你的名单-1833373649](https://lifehacker.com/get-ahead-of-twitter-harassment-by-checking-your-lists-1833373649)
+> 原文：<https://lifehacker.com/get-ahead-of-twitter-harassment-by-checking-your-lists-1833373649>
 
 在推特上被骚扰一点都不好玩。无论你是一个拥有蓝色真实性复选标记的体面知名人物，还是网络俏皮话世界中的后起之秀，或者如果你想出了一条超出你最大预期的推文，它都可能发生在你身上。或者，当然，如果你是女人。
 

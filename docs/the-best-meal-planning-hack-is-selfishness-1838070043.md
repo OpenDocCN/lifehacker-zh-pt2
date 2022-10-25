@@ -1,6 +1,6 @@
 # 最好的饮食计划是自私
 
-> 原文:[https://life hacker . com/the-best-meal-planning-hack-is-自私-1838070043](https://lifehacker.com/the-best-meal-planning-hack-is-selfishness-1838070043)
+> 原文：<https://lifehacker.com/the-best-meal-planning-hack-is-selfishness-1838070043>
 
 在后即时锅食谱的某些时候，“膳食计划”变成了“打包五或六份相同的午餐，假装很兴奋地把它们都吃光”的代码。当然，如果你真的*想把它们都吃掉，那是一回事——但是看到关于 [如何坚持饮食计划](https://lifehacker.com/create-a-meal-plan-youll-actually-stick-to-1821880607) 的文章几乎和饮食计划本身一样多，那就有问题了。解决方法可能很简单，就是把自己放在第一位。*
 

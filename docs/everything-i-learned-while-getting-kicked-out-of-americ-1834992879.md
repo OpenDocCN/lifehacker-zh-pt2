@@ -1,6 +1,6 @@
 # everything i learned while getting kicked out of americ 1834992879
 
-> 原文:[https://Jezebel . com/everything-I-learn-while-getting-out-of-americ-1834992879](https://jezebel.com/everything-i-learned-while-getting-kicked-out-of-americ-1834992879)
+> 原文：<https://jezebel.com/everything-i-learned-while-getting-kicked-out-of-americ-1834992879>
 
 我似乎不可避免地会被赶出 AutismOne，这是一个被指责为反疫苗情绪、糟糕的科学、危言耸听和毫无价值的产品的年度会议。毕竟，这次会议驱逐了几个以前参加过的科学博客作者，以及一名*芝加哥论坛报*记者、一名电影制片人和一名来自加州公共卫生部的代表。另外，我没有记者证。
 

@@ -1,6 +1,6 @@
 # 如何支持匹兹堡犹太教堂枪击案的受害者
 
-> 原文:[https://life hacker . com/how-to-support-the-affected-by-the-Pittsburgh-syna Gog-1830074674](https://lifehacker.com/how-to-support-those-affected-by-the-pittsburgh-synagog-1830074674)
+> 原文：<https://lifehacker.com/how-to-support-those-affected-by-the-pittsburgh-synagog-1830074674>
 
 周六早上，宾夕法尼亚州匹兹堡生命之树犹太教堂的 11 名成员在一场大规模枪击事件中被杀害，反诽谤联盟称是美国历史上对犹太社区最致命的袭击。这些是你可以捐赠给为社区提供援助的团体。
 

@@ -1,6 +1,6 @@
 # 使用浸泡循环器，轻松制作荷兰酱
 
-> 原文:[https://life hacker . com/make-hollandaise-sauce-the-easy-way-with-a-immersion-c-1836184914](https://lifehacker.com/make-hollandaise-sauce-the-easy-way-with-an-immersion-c-1836184914)
+> 原文：<https://lifehacker.com/make-hollandaise-sauce-the-easy-way-with-an-immersion-c-1836184914>
 
 呆在家里几乎总是比出去好，尤其是在中午之前。出去吃早午餐意味着排队、喝淡含羞草酒，以及(取决于机构)和孩子们在一起。但是如果这个地方有好吃的本尼迪克特鸡蛋，所有这些都是值得的，主要是因为荷兰酱是出了名的挑剔。
 

@@ -1,6 +1,6 @@
 # 当你不应该修理你的 Mac 的时候
 
-> 原文:[https://life hacker . com/when-you-should-not-repair-your-MAC-1845054208](https://lifehacker.com/when-you-shouldnt-repair-your-mac-1845054208)
+> 原文：<https://lifehacker.com/when-you-shouldnt-repair-your-mac-1845054208>
 
 硬件维修的目的是确保您的设备尽可能长时间保持可用和良好状态，这样您就不必花费数百或数千美元购买新产品。花几百美元更换一个严重破裂的 MacBook 屏幕比完全购买一个新的要好得多，尤其是如果你的设备还在保修期内。
 

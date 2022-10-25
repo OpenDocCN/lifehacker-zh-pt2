@@ -1,6 +1,6 @@
 # 你读过你的日记吗？
 
-> 原文:[https://life hacker . com/do-you-ever-read-your-journal-1837308567](https://lifehacker.com/do-you-ever-read-your-journal-1837308567)
+> 原文：<https://lifehacker.com/do-you-ever-read-your-journal-1837308567>
 
 对于准备开始新的一天的[思考你的目标和梦想](https://lifehacker.com/use-these-prompts-if-you-need-help-journaling-1823368749)[利用你的创造力](https://lifehacker.com/why-you-should-keep-a-journal-and-how-to-start-yours-1547057185) 来说，写日志可以是一个很好的练习。但是如果你在写这些东西，你什么时候读你的日记？你有必要吗？
 

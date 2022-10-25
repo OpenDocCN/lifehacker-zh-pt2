@@ -1,6 +1,6 @@
 # 每个第一方谷歌应用和服务的最佳竞争对手
 
-> 原文:[https://life hacker . com/the-best-competitors to-every-first-party-Google-app-an-1834172092](https://lifehacker.com/the-best-competitors-to-every-first-party-google-app-an-1834172092)
+> 原文：<https://lifehacker.com/the-best-competitors-to-every-first-party-google-app-an-1834172092>
 
 由于欧盟新的反垄断法，谷歌在法律上有义务向用户展示其竞争对手的应用和浏览器。 B 但在美国，T5】没有这样的规定 ，谷歌也不必告诉你其他公司可能提供的类似产品。不过，不要担心——我们自己已经找到了这些信息。
 

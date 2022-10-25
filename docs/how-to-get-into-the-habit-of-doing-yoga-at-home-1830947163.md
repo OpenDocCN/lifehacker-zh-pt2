@@ -1,6 +1,6 @@
 # 如何养成在家做瑜伽的习惯
 
-> 原文:[https://life hacker . com/how-to-get-in-habit-of-doing-of-hawking-yoga-1830947163](https://lifehacker.com/how-to-get-into-the-habit-of-doing-yoga-at-home-1830947163)
+> 原文：<https://lifehacker.com/how-to-get-into-the-habit-of-doing-yoga-at-home-1830947163>
 
 我是一个偶尔练习瑜伽的人，但是当我遇到认真练习瑜伽的人时，他们总是谈论他们的“练习”基本上，如果你真的很投入，你不需要等待一个方便的课程或你最喜欢的 YouTube 瑜伽频道的新一集。你按照自己的方式在你想去的地方做你想做的事情。如果你正在参加我们的[12 月瑜伽挑战](https://lifehacker.com/decembers-fitness-challenge-is-yoga-1830827794) ，现在可能是建立你自己家庭练习的好时机。
 

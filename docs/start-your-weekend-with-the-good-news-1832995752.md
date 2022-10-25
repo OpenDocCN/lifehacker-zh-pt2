@@ -1,6 +1,6 @@
 # 从好消息开始你的周末
 
-> 原文:[https://life hacker . com/start-your ' s weekend with the-good-news-1832995752](https://lifehacker.com/start-your-weekend-with-the-good-news-1832995752)
+> 原文：<https://lifehacker.com/start-your-weekend-with-the-good-news-1832995752>
 
 消息通常是坏的，但今天，[的消息是好的](https://twitter.com/gmgunion/status/1101355482562867200) 。事实上，这个消息太好了，以至于我想喝一杯，我想邀请你们所有人和我一起。为了庆祝这种因好消息而传遍全身的好感觉，我调制了一种强烈而奢华的威士忌鸡尾酒，不出所料，我称之为“好消息”
 

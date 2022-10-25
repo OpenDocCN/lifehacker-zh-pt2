@@ -1,6 +1,6 @@
 # 做一个把餐具带到感恩节的英雄
 
-> 原文:[https://life hacker . com/be-the-hero-thanksgow-1839778747](https://lifehacker.com/be-the-hero-who-brings-serving-utensils-to-thanksgiving-1839778747)
+> 原文：<https://lifehacker.com/be-the-hero-who-brings-serving-utensils-to-thanksgiving-1839778747>
 
 除非你要主持感恩节，否则你很可能会去别人家做客，你应该带些东西与主人和其他客人分享。面、派、 [酒精](https://skillet.lifehacker.com/bring-amaro-instead-of-wine-to-your-next-dinner-party-1823473885) 显然都是不错的选择，但是真正的英雄要带上菜用具。
 

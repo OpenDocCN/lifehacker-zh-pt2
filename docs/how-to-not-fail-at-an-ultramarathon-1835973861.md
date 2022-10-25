@@ -1,6 +1,6 @@
 # 如何在超级马拉松中不失败
 
-> 原文:[https://life hacker . com/how-to-not-fail at-an-ultra marathon-1835973861](https://lifehacker.com/how-to-not-fail-at-an-ultramarathon-1835973861)
+> 原文：<https://lifehacker.com/how-to-not-fail-at-an-ultramarathon-1835973861>
 
 我到了晚年才开始跑步这项运动。虽然我在高中的田径队呆了很短一段时间，但直到我有了孩子之后，我才认真努力地定期跑步。在过去的十年里，我在这项运动中取得了长足的进步:我和四个好朋友一起完成了无数次半程马拉松和七次马拉松。
 

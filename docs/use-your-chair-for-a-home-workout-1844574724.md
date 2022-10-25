@@ -1,6 +1,6 @@
 # 使用你的椅子进行家庭锻炼
 
-> 原文:[https://life hacker . com/use-your-chair-for-home-workout-1844574724](https://lifehacker.com/use-your-chair-for-a-home-workout-1844574724)
+> 原文：<https://lifehacker.com/use-your-chair-for-a-home-workout-1844574724>
 
 欢迎来到本月最后一篇健康挑战文章。我希望你已经享受了这些 [迷你](https://vitals.lifehacker.com/get-up-and-do-some-arm-circles-1844420029?_ga=2.107776386.1248358329.1595879433-1985951192.1595879433) [从你的一天中休息](https://vitals.lifehacker.com/get-out-of-your-chair-and-do-some-downward-dogs-1844493696) ，尽管它们有时有点傻。今天，我有一个更愚蠢的挑战:把除了屁股以外的东西放在椅子上。
 

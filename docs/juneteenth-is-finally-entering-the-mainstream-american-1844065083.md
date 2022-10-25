@@ -1,6 +1,6 @@
 # 六月十五日终于进入了美国主流意识。现在让它成为一个正式的联邦假日
 
-> 原文:[https://www . the root . com/June tenth-is-finally-into-the-mainstream-American-1844065083](https://www.theroot.com/juneteenth-is-finally-entering-the-mainstream-american-1844065083)
+> 原文：<https://www.theroot.com/juneteenth-is-finally-entering-the-mainstream-american-1844065083>
 
 忘记 7 月 4 日吧！六月十五日是所有人都应该庆祝的一天，它是美国自由故事中的一个关键点。
 

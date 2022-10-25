@@ -1,6 +1,6 @@
 # 如何免费在意大利度过三个月
 
-> 原文:[https://life hacker . com/how-to-spend-three-months-in-Italy-free-1832019332](https://lifehacker.com/how-to-spend-three-months-in-italy-for-free-1832019332)
+> 原文：<https://lifehacker.com/how-to-spend-three-months-in-italy-for-free-1832019332>
 
 厌倦了你的朝九晚五？你很幸运。
 

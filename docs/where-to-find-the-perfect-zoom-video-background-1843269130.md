@@ -1,6 +1,6 @@
 # 哪里可以找到完美的变焦视频背景
 
-> 原文:[https://life hacker . com/where-to-find-the-perfect-zoom-video-background-1843269130](https://lifehacker.com/where-to-find-the-perfect-zoom-video-background-1843269130)
+> 原文：<https://lifehacker.com/where-to-find-the-perfect-zoom-video-background-1843269130>
 
 忘记寻找完美的桌面壁纸。现在每个人都在使用变焦——或者众多变焦选项中的一种——这一切都是为了挑选正确的虚拟背景。当电话会议还是一个新事物的时候，交换 Zoom 的内置背景可能会引起咯咯的笑声，但现在我们都是在家工作的专业人士，真正强大的举措是上传你自己的定制背景。我们会给你一些提示，告诉你如何找到最好的背景，并突出显示一些你可以免费下载的资源。
 

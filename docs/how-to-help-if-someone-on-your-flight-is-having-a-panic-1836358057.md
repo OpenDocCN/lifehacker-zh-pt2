@@ -1,6 +1,6 @@
 # 如果你的航班上有人惊恐发作，该如何帮助
 
-> 原文:[https://life hacker . com/how-to-help-if 有人在你的航班上惊慌失措-1836358057](https://lifehacker.com/how-to-help-if-someone-on-your-flight-is-having-a-panic-1836358057)
+> 原文：<https://lifehacker.com/how-to-help-if-someone-on-your-flight-is-having-a-panic-1836358057>
 
 对一些人来说，登上飞机飞到某个地方没什么大不了的。也许是度假，也许是工作，但不管你旅行的原因是什么，你都很满意。然而，对其他人来说，事情就没那么简单了。事实上，根据国家心理健康研究所的数据，大约有 6.5%的美国人口患有飞行恐惧症(害怕飞行)，而大约有四分之一的美国人经历着某种与飞行相关的焦虑。还有一些人基本上对飞行没什么意见，但确实有点紧张，尤其是在起飞、降落和颠簸的时候。
 

@@ -1,6 +1,6 @@
 # 如果你达到罗斯个人退休帐户的收入上限会发生什么？
 
-> 原文:[https://life hacker . com/what-happens-if-you-hit-the-Roth-IRA-income-cap-1835279994](https://lifehacker.com/what-happens-if-you-hit-the-roth-ira-income-cap-1835279994)
+> 原文：<https://lifehacker.com/what-happens-if-you-hit-the-roth-ira-income-cap-1835279994>
 
 罗斯个人退休帐户之所以受欢迎，部分原因是它们是为那些希望在退休时挣更多钱的人设计的。由于你是在缴费时纳税，而不是在提取时纳税，所以理论上你现在的税率比你考虑退休时的税率低。
 

@@ -1,6 +1,6 @@
 # how to prevent hearing loss in kids from headphone use 1844470288
 
-> 原文:[https://life hacker . com/how-to-prevent-of-headphone-use-1844470288](https://lifehacker.com/how-to-prevent-hearing-loss-in-kids-from-headphone-use-1844470288)
+> 原文：<https://lifehacker.com/how-to-prevent-hearing-loss-in-kids-from-headphone-use-1844470288>
 
 许多家长在疫情期间对屏幕时间放松了，这是可以理解的。大多数专家都认为，只要我们在正常生活恢复后再减少一些时间，现在多花些时间看电视不会对我们的孩子造成永久性伤害。但是有一件事可能会对他们造成长期伤害，那就是过度使用耳机或耳塞。随着时间的推移，听力损失可能会缓慢而微妙地发生——当你意识到这是一个问题时，为时已晚。
 

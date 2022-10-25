@@ -1,6 +1,6 @@
 # 当您不知道用户名或密码时，如何设置二手 Mac
 
-> 原文:[https://life hacker . com/how-to-set-up-a-used-MAC-when-you-don-know-the-user-na-1838094598](https://lifehacker.com/how-to-set-up-a-used-mac-when-you-dont-know-the-user-na-1838094598)
+> 原文：<https://lifehacker.com/how-to-set-up-a-used-mac-when-you-dont-know-the-user-na-1838094598>
 
 在本周的 [**科技 911**](https://lifehacker.com/c/tech-911) 中，我们正在解决一个有趣的问题。我希望我认识一个比我年长的人——一个父母、一个兄弟、一个很棒的邻居——他们有很多笔记本电脑、智能手机和小玩意，当他们厌倦使用它们时，他们可以从我身边经过。
 

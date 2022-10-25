@@ -1,6 +1,6 @@
 # 一起跑腿，花更多的时间和朋友在一起
 
-> 原文:[https://life hacker . com/spend-more-time-with-friends-by-combining-差事-1838909277](https://lifehacker.com/spend-more-time-with-friends-by-combining-errands-1838909277)
+> 原文：<https://lifehacker.com/spend-more-time-with-friends-by-combining-errands-1838909277>
 
 如果你到了一定的年龄，你可能还记得和朋友逛商场是多么有趣。今天，你的购物之旅可能更多的是食品杂货、家居用品和特价冬装——但这并不意味着你不能邀请你的朋友一起去。
 

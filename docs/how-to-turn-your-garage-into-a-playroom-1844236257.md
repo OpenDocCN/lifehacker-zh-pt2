@@ -1,6 +1,6 @@
 # 如何把你的车库变成游戏室
 
-> 原文:[https://life hacker . com/how-to-turn-your ' s garage-to-a play room-1844236257](https://lifehacker.com/how-to-turn-your-garage-into-a-playroom-1844236257)
+> 原文：<https://lifehacker.com/how-to-turn-your-garage-into-a-playroom-1844236257>
 
 过去的几个月让我们许多人对我们的家[进行了长时间的批判性审视，在某些情况下，我们发现我们的生活空间有所欠缺。公平地说，我们大多数人搬进这些空间时，并没有期望它们成为我们的家、办公室和学校，但我们现在就在这里。我们必须发挥创意，把餐厅变成虚拟教室，把客房变成家庭办公室。但是如果你有小孩，而你的车还停在车库里，他们可能会错过一个最好的游戏室机会。](https://lifehacker.com/how-have-you-made-your-home-more-livable-during-the-pan-1844481406)
 

@@ -1,6 +1,6 @@
 # 每位民主党候选人的 2020 年终结艾滋病流行的计划
 
-> 原文:[https://life hacker . com/every-2020-democratic-candidates-plan-to-end-the-HIV-ai-1838036853](https://lifehacker.com/every-2020-democratic-candidates-plan-to-end-the-hiv-ai-1838036853)
+> 原文：<https://lifehacker.com/every-2020-democratic-candidates-plan-to-end-the-hiv-ai-1838036853>
 
 今年早些时候，在 T2 的一次国情咨文中，川普总统呼吁在十年内结束美国的 T4 艾滋病疫情。但在特朗普大胆承诺几周后发布的一份新报告中，新增艾滋病毒感染人数在 2013 年至 2016 年间首次停滞不前，此前数年呈逐渐下降趋势。根据 NBC 新闻对一位专家的采访，到 2030 年消灭艾滋病病毒的目标是“极不可能的”
 

@@ -1,6 +1,6 @@
 # 在线搜索自由软件的最佳方式
 
-> 原文:[https://life hacker . com/the-best-way-to-search-for-free-software-online-1838929723](https://lifehacker.com/the-best-way-to-search-for-free-software-online-1838929723)
+> 原文：<https://lifehacker.com/the-best-way-to-search-for-free-software-online-1838929723>
 
 感谢 Lifehacker 自己的 Nick Douglas 偶然发现了这个问题——这是我一直都知道的事情，但我没有意识到我应该向全世界公开。正如几天前在 Reddit 上讨论的 [，这里有一个小窍门:当你在网上寻找免费软件时，忍住不去谷歌(或你选择的搜索引擎)搜索“免费”这个词](https://www.reddit.com/r/lifehacks/comments/delfva/want_free_software_never_search_free_you_often/)
 

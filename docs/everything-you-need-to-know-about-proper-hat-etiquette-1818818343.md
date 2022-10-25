@@ -1,6 +1,6 @@
 # 你需要知道的关于正确的帽子礼仪的一切
 
-> 原文:[https://life hacker . com/everything-you-need-known-that-known-about-proper-hat-礼节-1818818343](https://lifehacker.com/everything-you-need-to-know-about-proper-hat-etiquette-1818818343)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-about-proper-hat-etiquette-1818818343>
 
 你想戴顶漂亮的帽子，是吗？好吧。然后你需要学习如何像一个适当的女士或先生穿它。
 

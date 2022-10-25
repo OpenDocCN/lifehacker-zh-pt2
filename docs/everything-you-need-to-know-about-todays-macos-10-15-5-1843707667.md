@@ -1,6 +1,6 @@
 # 关于今天的 macOS 10.15.5 更新，你需要知道的一切
 
-> 原文:[https://life hacker . com/everything-you-need-know-about-todays-MAC OS-10-15-5-1843707667](https://lifehacker.com/everything-you-need-to-know-about-todays-macos-10-15-5-1843707667)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-about-todays-macos-10-15-5-1843707667>
 
 macOS 10.15.5 更新将于本周推出电脑，带来了一些新功能和设置，包括一项期待已久的功能，该功能应该有助于让 MacBook 的电池更长时间地保持健康。
 

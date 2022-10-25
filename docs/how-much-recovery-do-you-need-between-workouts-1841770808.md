@@ -1,6 +1,6 @@
 # 在两次锻炼之间，你需要恢复多少？
 
-> 原文:[https://life hacker . com/how-more-recovery-do-you-needle-1841770808](https://lifehacker.com/how-much-recovery-do-you-need-between-workouts-1841770808)
+> 原文：<https://lifehacker.com/how-much-recovery-do-you-need-between-workouts-1841770808>
 
 如果你在星期一努力锻炼，星期二你会有点疲劳。你仍然可以去健身房，但你的表现可能会受到一点影响。这种前景可能会让你想知道，在你完全康复之前，你是否应该远离健身房，或者职业运动员如何摆脱每天的锻炼。让我们花点时间来谈谈恢复和时机。
 

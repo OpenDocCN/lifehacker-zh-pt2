@@ -1,6 +1,6 @@
 # 不要麻烦回收你的简历收据
 
-> 原文:[https://life hacker . com/dont-worth-recycling-your-CVS-receipts-1841326353](https://lifehacker.com/dont-bother-recycling-your-cvs-receipts-1841326353)
+> 原文：<https://lifehacker.com/dont-bother-recycling-your-cvs-receipts-1841326353>
 
 回到 2018 年， [Vox 记者雷切尔·苏格](https://www.vox.com/the-goods/2018/10/10/17956950/why-are-cvs-pharmacy-receipts-so-long) 调查了你在 CVS 商店收到的那些令人讨厌的长收据背后的原因。事实证明，这不是意外；根据一份声明，药店故意打印出长长的收据，向顾客展示“他们获得的奖励或他们可以利用的储蓄”，这显然需要几英尺长的书面解释。
 

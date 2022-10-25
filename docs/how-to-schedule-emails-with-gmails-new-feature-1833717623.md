@@ -1,6 +1,6 @@
 # 如何使用 Gmail 的新功能安排电子邮件
 
-> 原文:[https://life hacker . com/how-to-schedule-emails-with-Gmail-new-feature-1833717623](https://lifehacker.com/how-to-schedule-emails-with-gmails-new-feature-1833717623)
+> 原文：<https://lifehacker.com/how-to-schedule-emails-with-gmails-new-feature-1833717623>
 
 Gmail 的收件箱可能已经死了 ，但谷歌至少正在努力让核心的 Gmail 体验变得更好，截至 [谷歌对电子邮件服务的最新更新](https://cloud.google.com/blog/products/g-suite/15-years-and-counting-making-gmail-work-faster-and-smarter-for-businesses) ，你将不再需要依赖第三方 Chrome 扩展来安排你的邮件。
 

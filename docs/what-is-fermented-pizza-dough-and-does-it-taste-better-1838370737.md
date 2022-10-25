@@ -1,6 +1,6 @@
 # 什么是发酵披萨面团，味道更好吗？
 
-> 原文:[https://the take out . com/what-is-酵-pizza-dough-and-do-it-taste-better-1838370737](https://thetakeout.com/what-is-fermented-pizza-dough-and-does-it-taste-better-1838370737)
+> 原文：<https://thetakeout.com/what-is-fermented-pizza-dough-and-does-it-taste-better-1838370737>
 
 现代科学终于能够解释专业比萨制作者几十年来一直知道的事情:放在阴凉地方过夜的比萨面团球比当天混合并烘焙的比萨面团味道更好。对发酵现象有了更准确的理解后，比萨店开始宣传他们发酵面团的时间——5 小时、10 小时、72 小时。但是这对比萨饼的味道和质地有什么影响呢？
 

@@ -1,6 +1,6 @@
 # 从现在起两周内记下可以理解的笔记
 
-> 原文:[https://life hacker . com/take-notes-that-can-be-under-week-from now-1841909420](https://lifehacker.com/take-notes-that-can-be-understood-two-weeks-from-now-1841909420)
+> 原文：<https://lifehacker.com/take-notes-that-can-be-understood-two-weeks-from-now-1841909420>
 
 我们很多人都已经知道随身携带某种笔记设备的价值，无论是老式的纸笔还是旨在帮助我们捕捉和组织想法的无数智能手机应用程序之一。
 

@@ -1,6 +1,6 @@
 # 什么是冠状病毒的 R₀，为什么它很重要？
 
-> 原文:[https://life hacker . com/what-is-the-coronavirus s-r0-and-why-it-matter-1841264885](https://lifehacker.com/what-is-the-coronaviruss-r0-and-why-does-it-matter-1841264885)
+> 原文：<https://lifehacker.com/what-is-the-coronaviruss-r0-and-why-does-it-matter-1841264885>
 
 如果你想描述一种传染病是如何传播的，一个方便的数字就是流行病学家所说的 R<sub>0</sub>(“R 零”)，这是这种疾病的基本繁殖数。截至目前，对冠状病毒 R <sub>0</sub> 的估计使其传染性超过流感，但低于许多其他传染病。
 

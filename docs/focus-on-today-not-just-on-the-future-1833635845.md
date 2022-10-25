@@ -1,6 +1,6 @@
 # 关注今天，而不仅仅是未来
 
-> 原文:[https://life hacker . com/focus-on-today-not-just-on-the-future-1833635845](https://lifehacker.com/focus-on-today-not-just-on-the-future-1833635845)
+> 原文：<https://lifehacker.com/focus-on-today-not-just-on-the-future-1833635845>
 
 在过去的几年里，我阅读和撰写了许多关于设定目标的文章，其中有一件事一直困扰着我，并在我的生活中发挥了作用，那就是关注你今天可以完成的小行动。
 

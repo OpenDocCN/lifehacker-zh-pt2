@@ -1,6 +1,6 @@
 # 如何看时间
 
-> 原文:[https://lifehacker.com/how-to-tell-time-1838978001](https://lifehacker.com/how-to-tell-time-1838978001)
+> 原文：<https://lifehacker.com/how-to-tell-time-1838978001>
 
 Lifehacker 的读者 Albert Peters 在评论我们关于基本生活技能 的帖子 [时说:“我花了 20 多岁才学会如何阅读模拟时钟，但这仍然非常困难。其他人同意了。随着数字钟的出现，人们很少练习用模拟钟报时。我们会帮忙的。这里有两种读钟的方法:精确的方法和快速的方法。](https://lifehacker.com/whats-the-most-basic-ass-life-skill-you-never-learned-1836980501)
 

@@ -1,6 +1,6 @@
 # 失业后，你现在有更多的时间来注册 COBRA
 
-> 原文:[https://life hacker . com/you-now-have-more-to-sign-up-for-cobra-after-a-job-1844524889](https://lifehacker.com/you-now-have-more-time-to-sign-up-for-cobra-after-a-job-1844524889)
+> 原文：<https://lifehacker.com/you-now-have-more-time-to-sign-up-for-cobra-after-a-job-1844524889>
 
 随着失业率徘徊在 [两位数](https://fred.stlouisfed.org/series/UNRATE) 的，凯泽家庭基金会估计[2680 万人](https://www.kff.org/coronavirus-covid-19/press-release/as-unemployment-skyrockets-kff-estimates-more-than-20-million-people-losing-job-based-health-coverage-will-become-eligible-for-aca-coverage-through-medicaid-or-marketplace-tax-credits/) 可能很快变得没有保险，如果他们不注册其他健康保险的话。如果你是在疫情经历失业的数百万美国人中的一员，你可能会面临一个艰难的 [健康保险](https://lifehacker.com/how-to-get-health-insurance-during-the-coronavirus-pand-1842759127) 决定——但是 [正如 NPR](https://www.npr.org/sections/health-shots/2020/07/20/892140500/rule-change-gives-laid-off-workers-more-time-to-sign-up-for-cobra-insurance)报道的那样，你现在可能有更多的时间来计划一系列行动。
 

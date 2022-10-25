@@ -1,6 +1,6 @@
 # 如何在假期后征服你的电子邮件
 
-> 原文:[https://life hacker . com/how-to-conquet-your-email-after-a vacation-1836185216](https://lifehacker.com/how-to-conquer-your-email-after-a-vacation-1836185216)
+> 原文：<https://lifehacker.com/how-to-conquer-your-email-after-a-vacation-1836185216>
 
 欢迎回来工作。当你补上所有你不在时没有处理的邮件时，新的邮件会开始进来。根据你的工作，这些邮件可能是你实际的工作职责，也可能是你不得不处理的干扰。以下是如何避免你在翻收件箱时产生“露西在巧克力工厂”的感觉。
 

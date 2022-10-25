@@ -1,6 +1,6 @@
 # 你的种族主义冠状病毒笑话并不好笑
 
-> 原文:[https://life hacker . com/your-种族主义-冠状病毒-笑话-不好笑-1841449955](https://lifehacker.com/your-racist-coronavirus-jokes-arent-funny-1841449955)
+> 原文：<https://lifehacker.com/your-racist-coronavirus-jokes-arent-funny-1841449955>
 
 有一种有害而可怕的东西正在这个国家蔓延，而且它不是一种生理疾病。把冠状病毒称为“巩流感”是一种有趣的想法。
 

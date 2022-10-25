@@ -1,6 +1,6 @@
 # 如何送回食物和饮料
 
-> 原文:[https://life hacker . com/how-to-send-back-food-and-drinks-1832473239](https://lifehacker.com/how-to-send-back-food-and-drinks-1832473239)
+> 原文：<https://lifehacker.com/how-to-send-back-food-and-drinks-1832473239>
 
 外出就餐和饮酒可能是一次昂贵的经历，而作为顾客，你有权享受一次愉快的经历。但是有资格得到某样东西并不意味着你可以成为一个混蛋。毫无理由地把食物或饮料从它们来的地方送回去是最令人难过的事情，没有什么比一个人试图通过对服务员、酒保或服务行业中的任何其他人无礼来建立自己更令人讨厌的了。
 

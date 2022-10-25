@@ -1,6 +1,6 @@
 # 康卡斯特现在为低收入家庭提供 60 天的免费互联网服务
 
-> 原文:[https://life hacker . com/Comcast-is-offer-60-days-for-low-in-1842312439](https://lifehacker.com/comcast-is-offering-60-days-of-free-internet-for-low-in-1842312439)
+> 原文：<https://lifehacker.com/comcast-is-offering-60-days-of-free-internet-for-low-in-1842312439>
 
 低收入家庭有可能从康卡斯特获得两个月的免费互联网，以应对冠状病毒的爆发。
 

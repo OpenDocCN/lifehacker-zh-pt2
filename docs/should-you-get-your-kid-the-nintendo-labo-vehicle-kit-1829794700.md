@@ -1,6 +1,6 @@
 # 你应该给你的孩子买任天堂 Labo 车载套件吗？
 
-> 原文:[https://life hacker . com/should-you-get-you-kid-the-Nintendo-labo-vehicle-kit-1829794700](https://lifehacker.com/should-you-get-your-kid-the-nintendo-labo-vehicle-kit-1829794700)
+> 原文：<https://lifehacker.com/should-you-get-your-kid-the-nintendo-labo-vehicle-kit-1829794700>
 
 我并不是最懂技术的家长，所以当有人给我一个任天堂 Labo 车载套件让我看的时候，我起初想，“等等，Labo 是什么？”
 

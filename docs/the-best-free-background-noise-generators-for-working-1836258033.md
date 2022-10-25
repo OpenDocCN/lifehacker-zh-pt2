@@ -1,6 +1,6 @@
 # 工作、游戏和学习的最佳免费背景噪音发生器
 
-> 原文:[https://life hacker . com/the-best-free-background-noise-generators-for-working-1836258033](https://lifehacker.com/the-best-free-background-noise-generators-for-working-1836258033)
+> 原文：<https://lifehacker.com/the-best-free-background-noise-generators-for-working-1836258033>
 
 有大量的背景声音网站和应用程序，但大多数都做同样的事情。我们已经收集了最好的应用程序，全部免费在线，还收集了一些最好的背景声音移动应用程序。当你工作、阅读、学习、玩桌面 RPG 游戏时，甚至在聚会的背景中，把它们用作背景噪音。
 

@@ -1,6 +1,6 @@
 # 如何找到与你喜欢的电影有相似影响的新电影
 
-> 原文:[https://life hacker . com/how-to-find-new-movies-with-impacts-similar-to-your 1845116442](https://lifehacker.com/how-to-find-new-movies-with-influences-similar-to-your-1845116442)
+> 原文：<https://lifehacker.com/how-to-find-new-movies-with-influences-similar-to-your-1845116442>
 
 如果你曾经看完一部电影，希望接下来有类似的东西，但不确定是什么，有一个网站可以帮助你。它被称为 [Cinetrii](http://click.revue.email/ss/c/ossWhOpCaBRiEAgoDIOxbwmN9pcA4VzF0q-n6mF55DzqHmWubRM6oI-Ul_BzMFE4Rv3CdKN-7LMdmeqJzTVEawxD2yADBlw0N8mIG1xWacnwIgKgdIiWcPEh8eq6iilkSaIhkD1dPSe2d06m0dKwyA/355/dXdy-GnLS9aFzg2LXgVS7w/h8/V7p6Nnd8M2FFbxMMZcVBei-WmfctA5pqlPucgh9-AQ0) ，它比流媒体服务上的普通“接下来看什么”功能做得更多。我们找到了它，就像许多我们喜欢的东西一样，通过 [《重组通讯》](https://www.recomendo.com/posts/discover-the-inspiration-behind-a-movie) 。以下是 Cinetrii 的功能及其工作原理。
 

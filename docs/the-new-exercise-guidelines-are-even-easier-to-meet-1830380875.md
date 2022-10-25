@@ -1,6 +1,6 @@
 # 新的锻炼指南甚至更容易达到
 
-> 原文:[https://life hacker . com/the-new-exercise-guidelines-is-even-easy-meet-1830380875](https://lifehacker.com/the-new-exercise-guidelines-are-even-easier-to-meet-1830380875)
+> 原文：<https://lifehacker.com/the-new-exercise-guidelines-are-even-easier-to-meet-1830380875>
 
 我们大多数人都没有达到政府(或其他任何人)的 [锻炼指南](https://lifehacker.com/how-much-exercise-do-i-really-need-1823708126) ，这是一个耻辱，因为除了减肥，锻炼还有一百万个原因对我们有好处。今天发布的 [新指南](https://health.gov/news/blog/2018/11/updated-physical-activity-guidelines-for-americans-now-available/) 甚至更容易满足，它们包括对 3 岁及以上儿童的建议。
 

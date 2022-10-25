@@ -1,6 +1,6 @@
 # 如何度过恐慌症发作
 
-> 原文:[https://life hacker . com/how-to-get-through-a-panic-attack-1841061270](https://lifehacker.com/how-to-get-through-a-panic-attack-1841061270)
+> 原文：<https://lifehacker.com/how-to-get-through-a-panic-attack-1841061270>
 
 恐慌症发作可能会很可怕，尤其是当你意识到你正在经历一场恐慌症，而且在它好转之前还会变得更糟的时候。好消息是恐慌症会过去。你只要熬过接下来的几分钟。
 

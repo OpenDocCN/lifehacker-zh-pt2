@@ -1,6 +1,6 @@
 # Lifehacker 员工 2019 年最大的升级
 
-> 原文:[https://life hacker . com/the-life hacker-staff-biggest-upgrades-of-2019-1840365136](https://lifehacker.com/the-lifehacker-staffs-biggest-upgrades-of-2019-1840365136)
+> 原文：<https://lifehacker.com/the-lifehacker-staffs-biggest-upgrades-of-2019-1840365136>
 
 对于我们每天测试的所有黑客，很难区分哪些是流行的，哪些是真正的游戏规则改变者。
 

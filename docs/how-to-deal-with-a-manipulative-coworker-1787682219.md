@@ -1,6 +1,6 @@
 # 如何应对控制欲强的同事
 
-> 原文:[https://life hacker . com/how-to-deal-a-manipular-worker-1787682219](https://lifehacker.com/how-to-deal-with-a-manipulative-coworker-1787682219)
+> 原文：<https://lifehacker.com/how-to-deal-with-a-manipulative-coworker-1787682219>
 
 在我第一份“真正的”工作中，我和一群出了名的控制欲强的工人一起做一个项目。不过，我和一个看起来很随和的人成了朋友。
 

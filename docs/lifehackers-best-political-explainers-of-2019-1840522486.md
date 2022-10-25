@@ -1,6 +1,6 @@
 # Lifehacker 评选的 2019 年最佳政治解释者
 
-> 原文:[https://life hacker . com/life hacker-best-political-explainers-of-2019-1840522486](https://lifehacker.com/lifehackers-best-political-explainers-of-2019-1840522486)
+> 原文：<https://lifehacker.com/lifehackers-best-political-explainers-of-2019-1840522486>
 
 从 35 天的政府关门开始，到众议院弹劾唐纳德·特朗普总统结束，2019 年将永远成为美国政治中最糟糕的一年。L 今年发生了很多糟糕的事情，包括 [几个州努力通过反堕胎法](https://www.cnn.com/2019/05/18/politics/abortion-bills-debate/index.html) 和[LGBTQ 员工在工作场所权利的不确定状态](https://lifehacker.com/how-the-new-supreme-court-discrimination-case-could-aff-1834278501) 等等。
 

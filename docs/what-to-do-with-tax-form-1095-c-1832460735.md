@@ -1,6 +1,6 @@
 # 如何处理税务表格 1095-C
 
-> 原文:[https://life hacker . com/what-to-do-with-tax-form-1095-c-1832460735](https://lifehacker.com/what-to-do-with-tax-form-1095-c-1832460735)
+> 原文：<https://lifehacker.com/what-to-do-with-tax-form-1095-c-1832460735>
 
 《平价医疗法案》要求适用的大型雇主——或全职雇佣至少 50 名员工的组织——向员工发送 1095-CT3[“雇主提供的健康保险报价和覆盖范围”。如果你已经为一家公司全职工作了至少一个月，除了 W2 到来的纳税时间(你可能已经有了)之外，你还会收到表格。](https://www.irs.gov/forms-pubs/about-form-1095-c)
 

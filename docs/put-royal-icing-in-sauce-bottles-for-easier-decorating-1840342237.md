@@ -1,6 +1,6 @@
 # 将皇家糖衣放在调味瓶里，这样更容易装饰
 
-> 原文:[https://life hacker . com/put-royal-ice-in-sauce-bottles-for-easy-decorating-1840342237](https://lifehacker.com/put-royal-icing-in-sauce-bottles-for-easier-decorating-1840342237)
+> 原文：<https://lifehacker.com/put-royal-icing-in-sauce-bottles-for-easier-decorating-1840342237>
 
 装饰圣诞饼干是我非常想享受的一项活动，但我缺乏精细运动技能和短暂的注意力持续时间使它变得困难。填充——然后*使用*——裱花袋也相当可怕。没有什么窍门可以把艺术天赋灌输到这些没有天赋的手里，但是一个 [可挤压的调味瓶](https://skillet.lifehacker.com/you-need-to-get-some-squeeze-bottles-in-your-kitchen-1826541753) 比一个糕点袋更容易填充和使用。
 

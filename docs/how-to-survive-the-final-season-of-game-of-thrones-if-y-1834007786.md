@@ -1,6 +1,6 @@
 # 如果你不是《权力的游戏》的粉丝，如何熬过最后一季
 
-> 原文:[https://life hacker . com/how-to-survive the final-season of-thrones-game-if-y-1834007786](https://lifehacker.com/how-to-survive-the-final-season-of-game-of-thrones-if-y-1834007786)
+> 原文：<https://lifehacker.com/how-to-survive-the-final-season-of-game-of-thrones-if-y-1834007786>
 
 根据我的计算(即快速谷歌搜索)，我看到《权力的游戏》第八季将于周日晚上首播。众所周知，幸运的是，这是它的最后一季。
 

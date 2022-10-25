@@ -1,6 +1,6 @@
 # 在 7 月 4 日，通过在合适的时间离开来避免交通堵塞
 
-> 原文:[https://life hacker . com/avoid-traffic-on-July-4-by-leaving-at-right-time-1835990921](https://lifehacker.com/avoid-traffic-on-july-4th-by-leaving-at-the-right-time-1835990921)
+> 原文：<https://lifehacker.com/avoid-traffic-on-july-4th-by-leaving-at-the-right-time-1835990921>
 
 今年独立日，AAA 预计将有创纪录的 4890 万人上路，比去年多 4.1%。这意味着你遇到大塞车的机会比以前更大了。
 

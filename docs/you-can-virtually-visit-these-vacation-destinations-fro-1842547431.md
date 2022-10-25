@@ -1,6 +1,6 @@
 # 你可以在沙发上虚拟地参观这些度假目的地
 
-> 原文:[https://life hacker . com/you-can-virtual-visit-these-vacation-destinations-fro-1842547431](https://lifehacker.com/you-can-virtually-visit-these-vacation-destinations-fro-1842547431)
+> 原文：<https://lifehacker.com/you-can-virtually-visit-these-vacation-destinations-fro-1842547431>
 
 如果最近呆在家里的时间越来越长，让你渴望旅行，你并不孤单。
 

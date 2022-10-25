@@ -1,6 +1,6 @@
 # 利用 3 只基金的投资组合简化您的投资
 
-> 原文:[https://life hacker . com/simplify-your-investments-with-the-3 fund-portfolio-1831746735](https://lifehacker.com/simplify-your-investments-with-the-3-fund-portfolio-1831746735)
+> 原文：<https://lifehacker.com/simplify-your-investments-with-the-3-fund-portfolio-1831746735>
 
 投资的一个关键问题自然是，[](https://lifehacker.com/how-and-why-to-start-investing-right-now-1831743533)*到底要投资什么。你知道它应该是一个共同基金，对不对？你听说过“低成本”和“多样化”是好的。但是那实际上看起来像什么呢？花一点时间在个人理财留言板上寻求帮助，你肯定会遇到有人称赞“三基金投资组合”的实用性* 
 

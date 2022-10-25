@@ -1,6 +1,6 @@
 # 将您的储蓄与奖励挂钩的银行账户“游戏化”
 
-> 原文:[https://life hacker . com/gamify-your-savings-with-a prize-linked-bank-account-1844547658](https://lifehacker.com/gamify-your-savings-with-a-prize-linked-bank-account-1844547658)
+> 原文：<https://lifehacker.com/gamify-your-savings-with-a-prize-linked-bank-account-1844547658>
 
 一个名为 [约塔储蓄](https://www.withyotta.com/) 的新的与奖金挂钩的储蓄账户 [引起了 Redditors](https://www.reddit.com/r/personalfinance/comments/hzsplx/prizelinked_savings_smart_or_dumb/) 和信用博士 博客的兴趣。根据 Yotta 网站的说法，Yotta 希望“通过让存钱变得即时有趣”来帮助美国人变得更加财务安全。该公司表示，这一概念来自溢价债券——英国最大的储蓄产品——它为债券持有人提供每月赢得 100 万英镑的机会。
 

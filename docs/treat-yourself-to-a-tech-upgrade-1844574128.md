@@ -1,6 +1,6 @@
 # 享受一次技术升级吧
 
-> 原文:[https://life hacker . com/treat-yourself-to-a-tech-upgrade-1844574128](https://lifehacker.com/treat-yourself-to-a-tech-upgrade-1844574128)
+> 原文：<https://lifehacker.com/treat-yourself-to-a-tech-upgrade-1844574128>
 
 时局艰难。失业率高得惊人；学校无法决定如何安全开放，或者根本不应该开放；我们在阻止第二波新冠肺炎浪潮方面做得如此糟糕，以至于我们仍然在骑第一波 。我们中的许多人很幸运地仍然被雇用，由于在家工作和凑合使用可能远不理想的技术设备，他们变得非常疯狂。
 

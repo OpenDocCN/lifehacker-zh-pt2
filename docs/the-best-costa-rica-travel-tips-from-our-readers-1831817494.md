@@ -1,6 +1,6 @@
 # 来自我们读者的最佳哥斯达黎加旅游贴士
 
-> 原文:[https://life hacker . com/the-best-Costa-Rica-travel-tips-from-our-readers-1831817494](https://lifehacker.com/the-best-costa-rica-travel-tips-from-our-readers-1831817494)
+> 原文：<https://lifehacker.com/the-best-costa-rica-travel-tips-from-our-readers-1831817494>
 
 本周，我们集体攻击了哥斯达黎加，不仅仅是一个城市，而是整个美丽的民主中美洲国家。我们了解了什么时候去，去哪里，为什么要找导游，以及在洗手间做什么。我们收集了所有有价值的 评论 [在原帖](https://lifehacker.com/tell-us-your-best-costa-rica-travel-tips-1831649674) 下的五线谱标签中，以下是我们的最爱。
 

@@ -1,6 +1,6 @@
 # 根据世界卫生组织的说法，你的宝宝需要少坐多玩
 
-> 原文:[https://life hacker . com/your-baby-needs-to-sit-less-and-play-more-by-1834300382](https://lifehacker.com/your-baby-needs-to-sit-less-and-play-more-according-to-1834300382)
+> 原文：<https://lifehacker.com/your-baby-needs-to-sit-less-and-play-more-according-to-1834300382>
 
 不仅仅是你的大孩子需要整天保持身体活动。世界卫生组织(世卫组织)首次发布了针对 1-2 岁和 3-4 岁婴儿的体育活动和久坐行为的指南 。他们可能需要比你想象的更多的移动。
 

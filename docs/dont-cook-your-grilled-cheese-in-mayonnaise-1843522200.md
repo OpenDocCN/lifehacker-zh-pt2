@@ -1,6 +1,6 @@
 # 不要用蛋黄酱来煮你的烤奶酪
 
-> 原文:[https://life hacker . com/dont-cook-your-carted-cheese-in-蛋黄酱-1843522200](https://lifehacker.com/dont-cook-your-grilled-cheese-in-mayonnaise-1843522200)
+> 原文：<https://lifehacker.com/dont-cook-your-grilled-cheese-in-mayonnaise-1843522200>
 
 我喜欢蛋黄酱。它让 [土豆泥更加滑腻](https://skillet.lifehacker.com/how-to-making-smashing-mashed-potatoes-1820225954) ，它 [烤焦一份很棒的牛排](https://skillet.lifehacker.com/you-can-use-mayonnaise-to-sear-a-steak-1834218246) ，它是几乎每个三明治必不可少的一部分。但是有一个我不能错过的应用是把它涂在烤奶酪三明治的外面。味道没那么好。
 

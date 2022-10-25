@@ -1,6 +1,6 @@
 # 用车蜡和盐水保持淋浴清洁
 
-> 原文:[https://life hacker . com/keep-your-shower-clean-with a car-wax and salt-water-1832435869](https://lifehacker.com/keep-your-shower-clean-with-car-wax-and-salt-water-1832435869)
+> 原文：<https://lifehacker.com/keep-your-shower-clean-with-car-wax-and-salt-water-1832435869>
 
 这看起来很讽刺，但是淋浴很脏。
 

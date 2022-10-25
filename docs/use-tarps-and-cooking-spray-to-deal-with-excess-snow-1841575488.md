@@ -1,6 +1,6 @@
 # 使用防水布和烹饪喷雾来处理多余的雪
 
-> 原文:[https://life hacker . com/use-tarps-and-cooking-spray-to-deal-over-snow-1841575488](https://lifehacker.com/use-tarps-and-cooking-spray-to-deal-with-excess-snow-1841575488)
+> 原文：<https://lifehacker.com/use-tarps-and-cooking-spray-to-deal-with-excess-snow-1841575488>
 
 一年中的这个时候，假日冬季仙境已经被可怕的冰冻泥浆所取代，所以这里有一些今年冬天清除积雪的最佳技巧。
 

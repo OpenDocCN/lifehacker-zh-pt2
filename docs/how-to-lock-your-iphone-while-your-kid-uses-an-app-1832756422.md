@@ -1,6 +1,6 @@
 # 当你的孩子使用应用程序时如何锁定你的 iPhone
 
-> 原文:[https://life hacker . com/how-to-lock-your-iphone-while-your-kid-uses-an-app-1832756422](https://lifehacker.com/how-to-lock-your-iphone-while-your-kid-uses-an-app-1832756422)
+> 原文：<https://lifehacker.com/how-to-lock-your-iphone-while-your-kid-uses-an-app-1832756422>
 
 有时候，当我们在机场或医生办公室等候时，我们的手机就成了孩子们分散注意力的工具。我很少让我的儿子在他更小的时候使用我的手机(现在仍然很少)，但我保留了 PBS Kids 应用程序和一两个游戏，以防万一。
 

@@ -1,6 +1,6 @@
 # 你真的应该自制果酱
 
-> 原文:[https://the take out . com/recipe-how-to-make-made-jam-1833983761](https://thetakeout.com/recipe-how-to-make-homemade-jam-1833983761)
+> 原文：<https://thetakeout.com/recipe-how-to-make-homemade-jam-1833983761>
 
 继续我的探索，做我怀疑自己能做的东西——[披萨面团](https://thetakeout.com/recipe-how-to-make-pizza-dough-1827812406)[泡菜](https://thetakeout.com/recipe-how-to-make-refrigerator-quick-pickles-1833541867)——我最近的想法转向了果酱。我总是被煮沸和密封的过程吓到。但是除非你打算一次保存果酱几个月，否则消毒是没有必要的。如果你像我一样，午餐吃半罐美味的果酱配烤饼，你会毫无问题地很快用完。
 

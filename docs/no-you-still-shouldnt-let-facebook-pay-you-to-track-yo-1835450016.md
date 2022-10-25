@@ -1,6 +1,6 @@
 # 不，你还是不应该让脸书付钱让你跟踪你的电话习惯
 
-> 原文:[https://life hacker . com/no-you-still-should-let-Facebook-pay-you-to-track-yo-1835450016](https://lifehacker.com/no-you-still-shouldnt-let-facebook-pay-you-to-track-yo-1835450016)
+> 原文：<https://lifehacker.com/no-you-still-shouldnt-let-facebook-pay-you-to-track-yo-1835450016>
 
 如果你允许的话，脸书想尽可能多地了解你。本周，这家社交巨头推出了一个新的基于应用程序的市场研究项目，名为来自脸书的 [研究](https://newsroom.fb.com/news/2019/06/study-from-facebook/)。如果你参与，你将获得报酬，在他们的手机上运行一个应用程序，跟踪你安装了哪些其他应用程序以及你如何使用它们。
 

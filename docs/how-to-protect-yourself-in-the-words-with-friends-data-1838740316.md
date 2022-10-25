@@ -1,6 +1,6 @@
 # 如何在“与朋友的话”数据泄露中保护自己
 
-> 原文:[https://life hacker . com/how-to-protect-yourself-the-words-with-friends-data-1838740316](https://lifehacker.com/how-to-protect-yourself-in-the-words-with-friends-data-1838740316)
+> 原文：<https://lifehacker.com/how-to-protect-yourself-in-the-words-with-friends-data-1838740316>
 
 Zynga 的流行游戏“与朋友说些什么”和“画些什么”的大约 2 亿玩家的账户信息被“外部黑客”窃取，正如该公司 [描述的](https://investor.zynga.com/news-releases/news-release-details/player-security-announcement) 。虽然你的关联信用卡和你在 Zynga 游戏中用来购物的任何其他方法目前看来都是安全的，但你的登录可能已经受到威胁。
 

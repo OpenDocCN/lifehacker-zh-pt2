@@ -1,6 +1,6 @@
 # 这些州的商店必须给你现金购买礼品卡
 
-> 原文:[https://life hacker . com/stores-in-these-States-must-give-cash-for-you-gift-1831488224](https://lifehacker.com/stores-in-these-states-must-give-you-cash-for-your-gift-1831488224)
+> 原文：<https://lifehacker.com/stores-in-these-states-must-give-you-cash-for-your-gift-1831488224>
 
 每个人都遇到过这样的情况，他们使用了礼品卡，只剩下很少的钱——不够再买一次，你不会真的想买只有 1.43 美元折扣的其他东西，但你也不想扔掉礼品卡。那就像扔掉钱一样。
 

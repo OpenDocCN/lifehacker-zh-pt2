@@ -1,6 +1,6 @@
 # 如何将旧 Android 手机上的信息转移到新手机上？
 
-> 原文:[https://life hacker . com/how-do-I-move-messages-from-an-old-Android-phone-to-a-n-1834480742](https://lifehacker.com/how-do-i-move-messages-from-an-old-android-phone-to-a-n-1834480742)
+> 原文：<https://lifehacker.com/how-do-i-move-messages-from-an-old-android-phone-to-a-n-1834480742>
 
 欢迎回到 Lifehacker 的每周技术建议专栏，[**Tech 911**](https://lifehacker.com/c/tech-911)**。**一如既往，我希望你给我发电子邮件告诉我你在使用装备时遇到的任何和所有困难——无论是你无法决定买什么，无法将一件东西与另一件东西联系起来，还是不知道为什么你刚买的东西速度这么慢，等等。如果它是好的、有趣的或者古怪的(并且适用于更多的人，而不仅仅是你)，我会在这个专栏中重点介绍它！
 

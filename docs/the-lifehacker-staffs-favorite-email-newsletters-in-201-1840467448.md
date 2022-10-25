@@ -1,6 +1,6 @@
 # 2019 年 Lifehacker 员工最喜欢的电子邮件简讯
 
-> 原文:[https://life hacker . com/the-life hacker-staff-favorite-email-newsletters-in-201-1840467448](https://lifehacker.com/the-lifehacker-staffs-favorite-email-newsletters-in-201-1840467448)
+> 原文：<https://lifehacker.com/the-lifehacker-staffs-favorite-email-newsletters-in-201-1840467448>
 
 电子邮件简讯不断涌现，因此我们正在跟进 Lifehacker 的 [2017 年员工简历](https://lifehacker.com/the-lifehacker-staffs-favorite-email-newsletters-1821200598) ，推出新一批我们最喜欢的简讯。以下是 2019 年让我们保持见识和娱乐的内容。
 

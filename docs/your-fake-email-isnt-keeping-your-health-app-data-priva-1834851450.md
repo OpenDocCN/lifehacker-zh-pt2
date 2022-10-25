@@ -1,6 +1,6 @@
 # 你的假邮件没有保护你的健康应用数据的隐私
 
-> 原文:[https://life hacker . com/your-fake-email-not-keeping-your-health-app-data-priva-1834851450](https://lifehacker.com/your-fake-email-isnt-keeping-your-health-app-data-priva-1834851450)
+> 原文：<https://lifehacker.com/your-fake-email-isnt-keeping-your-health-app-data-priva-1834851450>
 
 存储敏感健康数据的应用程序不再罕见。除了我实际的健康服务提供商提供的应用程序(必须符合 HIPAA 法律)，我还使用了跟踪我的体重、健身习惯、心理健康、月经等的应用程序。在许多情况下，这些应用程序会分享或出售你的数据，这些数据会与你相关联——即使你注册时使用了一个虚假的电子邮件。
 

@@ -1,6 +1,6 @@
 # 伊丽莎白·沃伦计划如何支付全民医疗保险
 
-> 原文:[https://life hacker . com/how-Elizabeth-Warren-plans-to-pay-for-medicare-for-all-1839541911](https://lifehacker.com/how-elizabeth-warren-plans-to-pay-for-medicare-for-all-1839541911)
+> 原文：<https://lifehacker.com/how-elizabeth-warren-plans-to-pay-for-medicare-for-all-1839541911>
 
 今年夏天民主党总统候选人辩论的一个大话题就是医疗改革。几位候选人，包括参议员伊丽莎白·沃伦和伯尼·桑德斯，一直在推动全民医疗保险，通过这一计划，政府将为我们提供医疗保险。
 

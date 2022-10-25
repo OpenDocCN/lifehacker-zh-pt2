@@ -1,6 +1,6 @@
 # 如何在《最终幻想 7》重拍版的第九章中玩这两条主线
 
-> 原文:[https://kotaku . com/how-to-play-both-quest lines-in-final-fantasy-VII-remake-1842984691](https://kotaku.com/how-to-play-both-questlines-in-final-fantasy-vii-remake-1842984691)
+> 原文：<https://kotaku.com/how-to-play-both-questlines-in-final-fantasy-vii-remake-1842984691>
 
 坊间传言，很多人都在玩《最终幻想 7》的翻拍版《T1》，这是 Square Enix 根据《T2》改编的《难以忽视的真相》。如果你是，你知道它主要是线性的。当然，有些部分可以让你引导云和朋友离开主情节，到郊区的支线任务中逗留。但是*最终幻想 7 的翻拍*大部分都在轨道上——也就是说，直到你看到第九章。
 

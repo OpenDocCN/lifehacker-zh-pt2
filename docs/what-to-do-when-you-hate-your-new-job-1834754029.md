@@ -1,6 +1,6 @@
 # 当你讨厌你的新工作时该怎么办
 
-> 原文:[https://life hacker . com/1834754029](https://lifehacker.com/what-to-do-when-you-hate-your-new-job-1834754029)
+> 原文：<https://lifehacker.com/what-to-do-when-you-hate-your-new-job-1834754029>
 
 如果你讨厌你的新工作，你应该马上辞职，还是坚持到底？
 

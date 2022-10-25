@@ -1,6 +1,6 @@
 # 把风险想象成一个光谱
 
-> 原文:[https://life hacker . com/think-of-risk-as-a-spectrum-1843543882](https://lifehacker.com/think-of-risk-as-a-spectrum-1843543882)
+> 原文：<https://lifehacker.com/think-of-risk-as-a-spectrum-1843543882>
 
 随着规则的放松，我们必须问自己一些奇怪的问题:见朋友安全吗？去公园？在餐馆吃饭？不管你问多少专家，都不会有一个明确的是或否的答案。
 

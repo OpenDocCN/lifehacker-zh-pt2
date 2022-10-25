@@ -1,6 +1,6 @@
 # 不要在你的公司 Zoom 帐户上主持欢乐时光
 
-> 原文:[https://life hacker . com/dont-host-happy-hour-on-your-company-zoom-account-1842618831](https://lifehacker.com/dont-host-happy-hour-on-your-company-zoom-account-1842618831)
+> 原文：<https://lifehacker.com/dont-host-happy-hour-on-your-company-zoom-account-1842618831>
 
 在漫长的一天尴尬的虚拟会议和滚动浏览 [越来越多的世界末日标题](https://lifehacker.com/this-isnt-going-to-end-soon-1842585548) 之后，与朋友在 Zoom 电话上闲逛可能是你一周中最接近正常的事情。但是使用你的公司账户来规避免费电话 40 分钟的时间限制是一个非常糟糕的主意——只是不是出于你所想的原因。
 

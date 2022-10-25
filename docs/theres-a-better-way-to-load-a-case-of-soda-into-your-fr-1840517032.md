@@ -1,6 +1,6 @@
 # 有一个更好的方法，往你的冰箱里装一箱苏打水
 
-> 原文:[https://life hacker . com/theres-a-better-way to-load a case of soda to-your-fr-1840517032](https://lifehacker.com/theres-a-better-way-to-load-a-case-of-soda-into-your-fr-1840517032)
+> 原文：<https://lifehacker.com/theres-a-better-way-to-load-a-case-of-soda-into-your-fr-1840517032>
 
 当你在你的冰箱里装满啤酒或苏打水或伤害 的水时，传统的做法是在柜台上支撑盒子打开，一次转移一两罐到架子上，像鸡巴一样站着和蹲着一遍又一遍。 
 

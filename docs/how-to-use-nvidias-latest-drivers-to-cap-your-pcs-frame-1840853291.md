@@ -1,6 +1,6 @@
 # 如何使用 Nvidia 的最新驱动程序来限制您的电脑的帧速率
 
-> 原文:[https://life hacker . com/how-to-use-nvidias-latest-drivers-to-cap-your-PCs-frame-1840853291](https://lifehacker.com/how-to-use-nvidias-latest-drivers-to-cap-your-pcs-frame-1840853291)
+> 原文：<https://lifehacker.com/how-to-use-nvidias-latest-drivers-to-cap-your-pcs-frame-1840853291>
 
 Nvidia 的 GeForce 驱动程序的全新版本解锁了一个有用的小功能:通用帧速率上限。如果你厌倦了在你玩的每一个游戏中设置这个限制，这将为你节省一点时间——由于该功能在某种程度上被隐藏在 Nvidia 的控制面板中，并且没有大张旗鼓地出现，下面是如何找到它(以及它的作用)。
 

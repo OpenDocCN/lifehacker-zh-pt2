@@ -1,6 +1,6 @@
 # 举办一次社交距离的邻里寻宝游戏
 
-> 原文:[https://life hacker . com/host-a-social-distanding-neighborhood-scavenger-hunt-1842427054](https://lifehacker.com/host-a-social-distancing-neighborhood-scavenger-hunt-1842427054)
+> 原文：<https://lifehacker.com/host-a-social-distancing-neighborhood-scavenger-hunt-1842427054>
 
 孩子们，他们很无聊。他们被困在里面，他们想念他们的朋友，他们的父母经常坚持工作一整天。问题是，让一天看起来与前一天有所不同会变得越来越困难。随着与同事、同学、朋友和陌生人的日常互动越来越少，我们现在意识到所有这些都是理所当然的，我们必须找到方法来团结起来，作为一个社区进行互动。从远处看。
 

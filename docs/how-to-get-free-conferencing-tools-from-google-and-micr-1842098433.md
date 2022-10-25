@@ -1,6 +1,6 @@
 # 如何从谷歌和微软获得未来几个月的免费会议工具
 
-> 原文:[https://life hacker . com/how-to-get-free-conferencing-tools-from-Google-and-micr-1842098433](https://lifehacker.com/how-to-get-free-conferencing-tools-from-google-and-micr-1842098433)
+> 原文：<https://lifehacker.com/how-to-get-free-conferencing-tools-from-google-and-micr-1842098433>
 
 委婉地说，冠状病毒是一个令人头疼的问题。我们已经看到大型团体活动和会议的大规模取消，你的雇主可能会鼓励你在家工作，直到一切平息。为了帮助简化这一过程，谷歌和微软正在加紧提供有限时间的免费会议工具。虽然有一点点利他主义和一点点良好的公共关系，自由软件就是自由软件。
 

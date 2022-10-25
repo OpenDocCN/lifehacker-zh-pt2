@@ -1,6 +1,6 @@
 # 退伍军人节免费参观任何国家公园
 
-> 原文:[https://life hacker . com/visit-any-national-park-for-free-this-veterans-day-1839716072](https://lifehacker.com/visit-any-national-park-for-free-this-veterans-day-1839716072)
+> 原文：<https://lifehacker.com/visit-any-national-park-for-free-this-veterans-day-1839716072>
 
 本周一，11 月 11 日，超过 400 个国家公园服务点将提供免费入场，以纪念退伍军人节，并作为每年五个免费入场日之一；这包括免费进入公园，如约塞米蒂、锡安和大峡谷国家公园。
 

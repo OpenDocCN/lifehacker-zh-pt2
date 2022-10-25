@@ -1,6 +1,6 @@
 # 如何在不可退款的航班上获得退款
 
-> 原文:[https://life hacker . com/how-to-get-a-退款不可退款航班-1836540761](https://lifehacker.com/how-to-get-a-refund-on-non-refundable-flights-1836540761)
+> 原文：<https://lifehacker.com/how-to-get-a-refund-on-non-refundable-flights-1836540761>
 
 购买不可退票的机票是一个有风险的提议；如果你的个人情况发生变化，你最终将背负一张无用机票的费用。但是尽管标签上写着“不可退款”票*是可以退款的——在适当的情况下。* 
 

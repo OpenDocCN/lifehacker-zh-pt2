@@ -1,6 +1,6 @@
 # 一位音响工程师称，这是音乐会上最佳的站立位置
 
-> 原文:[https://life hacker . com/the-best-place-to-stand-at-a-so-on-a-so-1834167009](https://lifehacker.com/the-best-place-to-stand-at-a-concert-according-to-a-so-1834167009)
+> 原文：<https://lifehacker.com/the-best-place-to-stand-at-a-concert-according-to-a-so-1834167009>
 
 我讨厌音乐会，但我去过几百场，站在一堆汗流浃背的人中间，吵着要靠近舞台。
 

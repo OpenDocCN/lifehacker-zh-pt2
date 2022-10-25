@@ -1,6 +1,6 @@
 # 如何在不倾家荡产的情况下探索新的爱好
 
-> 原文:[https://life hacker . com/how-can-I-get-into-a-new-hobby-without-break-the-ban-489189582](https://lifehacker.com/how-can-i-get-into-a-new-hobby-without-breaking-the-ban-489189582)
+> 原文：<https://lifehacker.com/how-can-i-get-into-a-new-hobby-without-breaking-the-ban-489189582>
 
 爱好很好玩。它们可以帮助你在漫长的一天工作后放松。他们可以提供一个创造性的出口，新的技能，有时甚至是一个新的朋友网络。但首先，你必须开始。开始可能会很昂贵，这是一个滑坡，你可能甚至不知道你在往下走，直到你发现自己打开了终极鲍勃·罗斯绘画包。( [花费 800 美元](https://www.bobross.com/product-p/rupp.htm) )。但是它附带画架！)
 

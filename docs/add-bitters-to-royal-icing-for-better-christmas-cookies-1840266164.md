@@ -1,6 +1,6 @@
 # 向皇家糖霜中添加苦味剂，制作更好的圣诞饼干
 
-> 原文:[https://life hacker . com/add-bitters-to-royal-ice-for-better-Christmas-cookies-1840266164](https://lifehacker.com/add-bitters-to-royal-icing-for-better-christmas-cookies-1840266164)
+> 原文：<https://lifehacker.com/add-bitters-to-royal-icing-for-better-christmas-cookies-1840266164>
 
 皇家糖衣很漂亮，但味道不怎么样。坚硬、超甜的饼干配料比任何东西都更具装饰性，但是如果你想增加一点味道，可以拿一瓶鸡尾酒。
 

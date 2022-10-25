@@ -1,6 +1,6 @@
 # 使用受 PIN 保护的“安全文件夹”隐藏 Android 上的文件
 
-> 原文:[https://life hacker . com/hide-files-on-your-Android-with-a-pin-protected-safe-fo-1844652676](https://lifehacker.com/hide-files-on-your-android-with-a-pin-protected-safe-fo-1844652676)
+> 原文：<https://lifehacker.com/hide-files-on-your-android-with-a-pin-protected-safe-fo-1844652676>
 
 谷歌的文件是一个方便的应用程序，可以帮助 [管理你的安卓手机的存储](https://lifehacker.com/android-smartphone-running-slow-try-deleting-the-app-c-1833469532) 空间，并安全地将数据传输到云端和其他设备。现在，由于其新的安全文件夹功能，它还可以将您的个人文件锁定在一个加密的受 PIN 保护的文件夹中。
 

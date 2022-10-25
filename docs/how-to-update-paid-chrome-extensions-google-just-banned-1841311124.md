@@ -1,6 +1,6 @@
 # 如何更新谷歌刚刚禁止的付费 Chrome 扩展
 
-> 原文:[https://life hacker . com/how-to-update-payed-chrome-extensions-Google-just-banned-1841311124](https://lifehacker.com/how-to-update-paid-chrome-extensions-google-just-banned-1841311124)
+> 原文：<https://lifehacker.com/how-to-update-paid-chrome-extensions-google-just-banned-1841311124>
 
 我承认，我已经有一段时间没有碰到付费的谷歌扩展了。 [他们](https://chrome.google.com/webstore/detail/open-seo-statsformerly-pa/hbdkkfheckcdppiaiabobmennhijkknn?hl=en)[do](https://chrome.google.com/webstore/detail/timed-test-division-facts/mimjmfnekgfaepenmgcfdekeenpocmcg)[存在](https://chrome.google.com/webstore/detail/amazon-relay-auto-refresh/gooaddljkpdcjbdigogmajlcgifjjhgp) ，然而——还有一些其实是有用的，比如[stop themaness](https://chrome.google.com/webstore/detail/stopthemadness/gfdahjcdgfioalhekjflcpijhngbjgdo)(一个让网站无法禁用键盘快捷键或上下文菜单的扩展)。 如果你碰巧发现(并购买)了付费的 Chrome 扩展，你需要知道他们可能会在一段未知的时间内收不到更新。
 

@@ -1,6 +1,6 @@
 # 为什么你应该写疫情日记
 
-> 原文:[https://life hacker . com/why-you-should-keep-a-疫情日报-1842574149](https://lifehacker.com/why-you-should-keep-a-pandemic-journal-1842574149)
+> 原文：<https://lifehacker.com/why-you-should-keep-a-pandemic-journal-1842574149>
 
 上个月，生活发生了大大小小的变化。过去，一种新病毒感染了地球另一端的人，这只是零星的几则新闻，现在却成了全球性的疫情。像拜访朋友、和我们的孩子一起去游乐场、甚至购买食品杂货这样简单的事情现在都令人担忧——或者是不可能的。每天都带来新的担忧、新的预防措施和新的信息。
 

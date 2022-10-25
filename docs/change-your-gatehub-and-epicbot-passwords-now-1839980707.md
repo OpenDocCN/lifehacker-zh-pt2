@@ -1,6 +1,6 @@
 # 立即更改您的 GateHub 和 EpicBot 密码
 
-> 原文:[https://life hacker . com/change-your-gate hub-and-epic bot-passwords-now-1839980707](https://lifehacker.com/change-your-gatehub-and-epicbot-passwords-now-1839980707)
+> 原文：<https://lifehacker.com/change-your-gatehub-and-epicbot-passwords-now-1839980707>
 
 这是一种随机配对——我明白了——但两个新网站加入了' [我是不是被 pwned 的](https://haveibeenpwned.com/) '被攻破网站的杰出名单。一个是加密货币钱包，一个是江湖机器人。这些听起来微不足道，但这两起违规事件已经潜在地影响了多达 220 万用户，如果你认为你可能属于其中任何一组，你最好做一些检查(和改变)。
 

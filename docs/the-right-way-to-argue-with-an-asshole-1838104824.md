@@ -1,6 +1,6 @@
 # 和混蛋争论的正确方式
 
-> 原文:[https://life hacker . com/the-right-way-to-arbitat-1838104824](https://lifehacker.com/the-right-way-to-argue-with-an-asshole-1838104824)
+> 原文：<https://lifehacker.com/the-right-way-to-argue-with-an-asshole-1838104824>
 
 赢得与混蛋争论的最好方法就是完全忽略他们。但这并不总是可能的。有时你需要说服某人停止争论并离开，或者你需要缓和与你需要共处的人的争论。有时候，你需要在一个非常糟糕的想法流行起来之前就把它扼杀掉。律师 ryanmeer 说，当你真的要和一个混蛋争论时，你必须像争论一个混蛋 T4 T5 那样去争论 T2。
 

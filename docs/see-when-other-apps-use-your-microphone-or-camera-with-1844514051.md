@@ -1,6 +1,6 @@
 # 通过此 Android 应用查看其他应用何时使用您的麦克风或相机
 
-> 原文:[https://life hacker . com/see-when-other-apps-use-your-microphone-or-camera-with-1844514051](https://lifehacker.com/see-when-other-apps-use-your-microphone-or-camera-with-1844514051)
+> 原文：<https://lifehacker.com/see-when-other-apps-use-your-microphone-or-camera-with-1844514051>
 
 苹果即将发布的 iOS 14 操作系统中我最喜欢的小功能之一是隐私*和安全*的大功能——这是一个罕见的二合一功能。每当一个应用程序访问你的摄像头或麦克风时，你会在显示器的右上角看到一个彩色的小点，就在你的条形上方，指示你的 wifi 或蜂窝连接的信号强度。机器人本身没有这个功能，但一个小应用程序可以解决这个问题。
 

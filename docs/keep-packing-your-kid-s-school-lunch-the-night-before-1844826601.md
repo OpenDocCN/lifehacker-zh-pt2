@@ -1,6 +1,6 @@
 # 继续在前一天晚上打包你孩子的学校午餐
 
-> 原文:[https://life hacker . com/keep-packing-your-kid-s-school-午餐前一天晚上 1844826601](https://lifehacker.com/keep-packing-your-kid-s-school-lunch-the-night-before-1844826601)
+> 原文：<https://lifehacker.com/keep-packing-your-kid-s-school-lunch-the-night-before-1844826601>
 
 当我们在这个最不正常的学年中寻找任何正常的表象时，我可以建议保持一个传统上为父母缓解早晨高峰的惯例吗？我说的是前一天晚上给孩子们做学校午餐。
 

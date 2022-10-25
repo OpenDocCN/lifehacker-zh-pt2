@@ -1,6 +1,6 @@
 # 根据老师的建议，如何让吵闹的孩子安静下来
 
-> 原文:[https://life hacker . com/how-to-calm-rowdy-kids-据老师说-1837405258](https://lifehacker.com/how-to-calm-rowdy-kids-according-to-teachers-1837405258)
+> 原文：<https://lifehacker.com/how-to-calm-rowdy-kids-according-to-teachers-1837405258>
 
 理论上，为你孩子的一群朋友举办派对的想法听起来很棒，但是要处理另外五个(六个？八个？一打？)孩子们需要一套特殊的技能——毫无疑问，正是教师所具备的那种技能。
 

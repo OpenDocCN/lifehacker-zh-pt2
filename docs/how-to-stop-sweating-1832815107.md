@@ -1,6 +1,6 @@
 # 如何停止出汗
 
-> 原文:[https://lifehacker.com/how-to-stop-sweating-1832815107](https://lifehacker.com/how-to-stop-sweating-1832815107)
+> 原文：<https://lifehacker.com/how-to-stop-sweating-1832815107>
 
 我出汗很多。
 

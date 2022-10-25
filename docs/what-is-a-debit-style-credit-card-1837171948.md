@@ -1,6 +1,6 @@
 # 什么是借记卡？
 
-> 原文:[https://life hacker . com/what-a-debit-style-credit-card-1837171948](https://lifehacker.com/what-is-a-debit-style-credit-card-1837171948)
+> 原文：<https://lifehacker.com/what-is-a-debit-style-credit-card-1837171948>
 
 有没有希望有一种方法来建立信用，而没有无时不在的入不敷出的诱惑？也许你寻求用信用卡购物的安全，但是喜欢能够看到你的借记卡上可用于购物的实际现金余额。
 

@@ -1,6 +1,6 @@
 # 如何在 iTunes 中观看电影时获得最高分辨率
 
-> 原文:[https://life hacker . com/how-to-get-the-high-resolution-when-watching-movies-1835810041](https://lifehacker.com/how-to-get-the-highest-resolution-when-watching-movies-1835810041)
+> 原文：<https://lifehacker.com/how-to-get-the-highest-resolution-when-watching-movies-1835810041>
 
 我一直希望有一天苹果会看看它的 Windows iTunes 客户端。我意识到苹果可能会优先考虑“在苹果公园擦掉窗户上的虫子”和“ [为披萨设计一个新盒子](https://gizmodo.com/the-most-interesting-part-of-apples-new-5-billion-camp-1795253637) ”之间的事情，但这并不意味着我们 windows 粉丝不能做梦。
 

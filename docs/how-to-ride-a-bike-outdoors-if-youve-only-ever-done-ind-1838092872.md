@@ -1,6 +1,6 @@
 # 如果你只在室内骑过自行车，如何在室外骑自行车
 
-> 原文:[https://life hacker . com/how-to-ride-a-bike-outdoors-if-you-only-ever-done-ind-1838092872](https://lifehacker.com/how-to-ride-a-bike-outdoors-if-youve-only-ever-done-ind-1838092872)
+> 原文：<https://lifehacker.com/how-to-ride-a-bike-outdoors-if-youve-only-ever-done-ind-1838092872>
 
 如果你已经在室内自行车课上杀了它，你可能想知道你是否也有在公路上骑行的能力。或者，你可能会害怕。这是你在户外骑自行车锻炼时需要的东西。
 

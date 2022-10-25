@@ -1,6 +1,6 @@
 # its gonna get worse 1844002403
 
-> 原文:[https://lifehacker.com/its-gonna-get-worse-1844002403](https://lifehacker.com/its-gonna-get-worse-1844002403)
+> 原文：<https://lifehacker.com/its-gonna-get-worse-1844002403>
 
 关于锁定有一个简单而不方便的事实:它们或多或少起了作用。这意味着随着制裁的解除，新冠肺炎病例将会再次增加。重开不是解脱和安全的时刻，而是悬念的时刻。情况会变得多糟？
 

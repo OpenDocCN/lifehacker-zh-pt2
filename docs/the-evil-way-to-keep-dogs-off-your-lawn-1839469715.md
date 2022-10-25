@@ -1,6 +1,6 @@
 # 邪恶的方法让狗远离你的草坪
 
-> 原文:[https://life hacker . com/the-evil-way-keep-dogs-off-your-lawn-1839469715](https://lifehacker.com/the-evil-way-to-keep-dogs-off-your-lawn-1839469715)
+> 原文：<https://lifehacker.com/the-evil-way-to-keep-dogs-off-your-lawn-1839469715>
 
 狗很好。养狗的都是鸡巴。不是全部，但显然很多。因为在我的城市，每一片精心照料的花都有一个标志，恳求人们不要让他们的狗在上面拉屎撒尿。同样的标志也出现在郊区的草坪上。他们也不会阻止狗主人。花儿凋谢了，草变成了褐色，草坪和花园闻起来像尿。Reddit 说，如果你是这些沮丧的海报中的一员，也许你应该贴一个有毒警告。
 

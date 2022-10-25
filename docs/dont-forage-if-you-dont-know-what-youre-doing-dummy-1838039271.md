@@ -1,6 +1,6 @@
 # 如果你不知道你在做什么，就不要去觅食，笨蛋
 
-> 原文:[https://life hacker . com/dont-finger-if-you-dont-know-you-do-dummy-1838039271](https://lifehacker.com/dont-forage-if-you-dont-know-what-youre-doing-dummy-1838039271)
+> 原文：<https://lifehacker.com/dont-forage-if-you-dont-know-what-youre-doing-dummy-1838039271>
 
 我们都听说过徒步旅行者的故事，他们靠浆果或其他野生食物 [存活下来，却在森林里](https://lifehacker.com/what-to-do-if-youre-lost-in-the-woods-1835061202) 迷路了。虽然学习当地的食物是一个很好的学习课题，但是对于过于自信的人来说，还有很多讨厌的甚至是致命的东西在等着他们。
 

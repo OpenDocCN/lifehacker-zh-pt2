@@ -1,6 +1,6 @@
 # Android 键盘应该用 SwiftKey 还是 Gboard？
 
-> 原文:[https://life hacker . com/should-you-use-swift key-or-gboard-for-your-Android-keyb-1844767191](https://lifehacker.com/should-you-use-swiftkey-or-gboard-for-your-android-keyb-1844767191)
+> 原文：<https://lifehacker.com/should-you-use-swiftkey-or-gboard-for-your-android-keyb-1844767191>
 
 一个即将到来的 SwiftKey Android 更新终于添加了一个渴望已久的滑动光标控件，这让我们再次质疑我们对 Gboard 的忠诚。在我们讨论这两种主要 Android 键盘的优缺点之前，让我们快速浏览一下这个新的 SwiftKey 功能。
 

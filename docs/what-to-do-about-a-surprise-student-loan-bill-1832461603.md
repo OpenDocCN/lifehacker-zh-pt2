@@ -1,6 +1,6 @@
 # 如何应对突如其来的学生贷款账单
 
-> 原文:[https://life hacker . com/what-to-do-about-a surprise-student-loan-bill-1832461603](https://lifehacker.com/what-to-do-about-a-surprise-student-loan-bill-1832461603)
+> 原文：<https://lifehacker.com/what-to-do-about-a-surprise-student-loan-bill-1832461603>
 
 如果你已经还清了学生贷款，你就会知道最后一笔还款是多么令人兴奋。你很高兴摆脱了贷款的负担，你可能会 [举办一个派对来庆祝](https://www.wsj.com/articles/SB10001424127887324677204578187401791974018) ，预订你一直想去的假期，当然，还会扔掉所有来自你的服务人员的邮件来消除你的坏情绪。
 

@@ -1,6 +1,6 @@
 # 进入机场候机室最便宜的方法是什么？
 
-> 原文:[https://life hacker . com/whats-the-chief-way-to-get-a-an-airport-lounge-1836731511](https://lifehacker.com/whats-the-cheapest-way-to-get-into-an-airport-lounge-1836731511)
+> 原文：<https://lifehacker.com/whats-the-cheapest-way-to-get-into-an-airport-lounge-1836731511>
 
 我们已经厌倦了预检或优先登机。现在，在机场最热门的新事情就是去休息室。候机室不再是疲惫的商务旅客或长时间停留的国际旅客的天堂，而是许多旅客节省昂贵的机场食品和饮料费用的关键。
 

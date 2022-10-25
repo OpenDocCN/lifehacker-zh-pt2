@@ -1,6 +1,6 @@
 # 用“每天一秒钟”来记录宝宝一岁的生活
 
-> 原文:[https://life hacker . com/document-your-babys-first-year-with-1 second-ev-1841305795](https://lifehacker.com/document-your-babys-first-year-of-life-with-1-second-ev-1841305795)
+> 原文：<https://lifehacker.com/document-your-babys-first-year-of-life-with-1-second-ev-1841305795>
 
 是的，惊呼孩子“长得真快”是老生常谈了但是这已经成了陈词滥调，因为这是事实。尤其是对于婴儿来说，儿童从出生到一岁所经历的发展变化是惊人的，似乎可以在一夜之间奇迹般地发生，即使你刚刚花了整整一年的时间盯着他们。
 

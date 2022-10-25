@@ -1,6 +1,6 @@
 # 用你的速溶锅做火锅
 
-> 原文:[https://life hacker . com/make-hot-pot-in-your-instant-pot-1844066621](https://lifehacker.com/make-hot-pot-in-your-instant-pot-1844066621)
+> 原文：<https://lifehacker.com/make-hot-pot-in-your-instant-pot-1844066621>
 
 不管你叫它“火锅”还是“汽船”，亚洲烹饪方法是在一锅肉汤里煨薄切片肉、海鲜和各种蔬菜，这是一种有趣而美味的家庭饮食体验。字面上的肉汤热锅放在桌子的中央，每个人轮流在肉汤里烹饪食物，然后蘸上各种酱料。如果你是一个经验丰富的火锅家庭厨师，你可能有一个专用的火锅和独立式燃烧器；如果没有，可以用你的速溶壶。
 

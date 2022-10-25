@@ -1,6 +1,6 @@
 # 用 Aquavit 制作令人难忘的马提尼
 
-> 原文:[https://life hacker . com/make-a-remembered-martini-with-aqua vit-1843609848](https://lifehacker.com/make-a-memorable-martini-with-aquavit-1843609848)
+> 原文：<https://lifehacker.com/make-a-memorable-martini-with-aquavit-1843609848>
 
 我想，阵亡将士纪念日周末快乐。老实说，我已经完全忘记了这个节日和它延长的周末，直到我看到一篇关于“阵亡将士纪念日鸡尾酒”的新闻稿，这个短语对我来说基本上没有意义。
 

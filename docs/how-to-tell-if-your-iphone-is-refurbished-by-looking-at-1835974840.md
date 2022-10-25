@@ -1,6 +1,6 @@
 # 如何通过看型号来辨别你的 iPhone 是否翻新
 
-> 原文:[https://life hacker . com/how-to-tell-if-your ' s iphone is-refined-by-looking-1835974840](https://lifehacker.com/how-to-tell-if-your-iphone-is-refurbished-by-looking-at-1835974840)
+> 原文：<https://lifehacker.com/how-to-tell-if-your-iphone-is-refurbished-by-looking-at-1835974840>
 
 当你买一部二手 iPhone 时，总会有一点神秘。卖给你的人买的手机是新的吗？是翻新的吗？
 

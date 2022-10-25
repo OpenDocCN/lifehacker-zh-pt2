@@ -1,6 +1,6 @@
 # 尝试“何时/然后”技巧，让孩子遵循指示
 
-> 原文:[https://life hacker . com/try-the-when-then-trick-to-get-kids-follow-direction-1841599620](https://lifehacker.com/try-the-when-then-trick-to-get-kids-to-follow-direction-1841599620)
+> 原文：<https://lifehacker.com/try-the-when-then-trick-to-get-kids-to-follow-direction-1841599620>
 
 有时候，偶尔，每隔一段时间，一个孩子就是不想顺从。他们需要去拿鞋吗？ *Nah* 。洗澡时间到了？*谢谢但不用谢*。你想让他们把玩具收起来？*不感兴趣*。这就是你使用“何时/然后”技巧的时候。
 

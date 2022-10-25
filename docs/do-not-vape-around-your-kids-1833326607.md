@@ -1,6 +1,6 @@
 # 不要围着你的孩子转
 
-> 原文:[https://life hacker . com/do-not-vape-around-your-kids-1833326607](https://lifehacker.com/do-not-vape-around-your-kids-1833326607)
+> 原文：<https://lifehacker.com/do-not-vape-around-your-kids-1833326607>
 
 麻省儿童总医院 (MGHfC)的研究人员发现，许多父母认为电子烟比普通香烟更安全。他们的结论是，与吸传统香烟的父母相比，吸食 vape 的父母更有可能在他们的家里和车里，在孩子在场的情况下吸食 vape。
 

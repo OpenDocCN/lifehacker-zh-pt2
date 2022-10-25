@@ -1,6 +1,6 @@
 # 关于移居国外，你想知道些什么？
 
-> 原文:[https://life hacker . com/what-do-you-want-to-know-about-move-overseas-1844168458](https://lifehacker.com/what-do-you-want-to-know-about-moving-abroad-1844168458)
+> 原文：<https://lifehacker.com/what-do-you-want-to-know-about-moving-abroad-1844168458>
 
 作为一名外籍人士(在本国以外的国家生活和工作的人)，我在世界上五个不同的国家生活过(埃及、波兰、中国、马来西亚和墨西哥)。我经常被问到各种各样的问题，从是什么让我做出这一决定，到生活成本是什么样的，以及在另一个国家生活是否便宜得多。
 

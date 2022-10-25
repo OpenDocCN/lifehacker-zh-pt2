@@ -1,6 +1,6 @@
 # 2020 年 7 月 5 日这一周网飞有什么新消息
 
-> 原文:[https://life hacker . com/whats-new-on-the-week of July-5-2020-1844275478](https://lifehacker.com/whats-new-on-netflix-the-week-of-july-5-2020-1844275478)
+> 原文：<https://lifehacker.com/whats-new-on-netflix-the-week-of-july-5-2020-1844275478>
 
 网飞夏季最热门的两部电影都将于 7 月 10 日登陆，届时流媒体服务的观众将分为两个阵营:一派支持由查莉兹·塞隆主演并根据一部广受好评的漫画改编的新的高概念动作惊悚片《永生守卫》；而那些迫不及待想弄清楚扎克·埃夫隆为什么会被 [盯着的那些蜜蜂](https://www.vulture.com/2020/06/zac-efron-netflix-show-down-to-earth-photos.html) 。
 

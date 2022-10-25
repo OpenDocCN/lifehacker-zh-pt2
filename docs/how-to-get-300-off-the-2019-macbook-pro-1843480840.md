@@ -1,6 +1,6 @@
 # 如何让 2019 款 MacBook Pro 降价 300 美元
 
-> 原文:[https://life hacker . com/how-to-get-300-off-the-2019-macbook-pro-1843480840](https://lifehacker.com/how-to-get-300-off-the-2019-macbook-pro-1843480840)
+> 原文：<https://lifehacker.com/how-to-get-300-off-the-2019-macbook-pro-1843480840>
 
 如果你正在寻找一款新的 MacBook，B&H 照片和亚马逊正在以低于正常价格 150 至 300 美元的价格出售 2019 款 MacBook Air 和 MacBook Pro。特别是 MacBook Pro，这是我们在 T2 见过的最好的折扣。
 

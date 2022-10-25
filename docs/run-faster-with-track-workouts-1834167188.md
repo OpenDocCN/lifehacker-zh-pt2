@@ -1,6 +1,6 @@
 # 通过径赛训练跑得更快
 
-> 原文:[https://life hacker . com/run-faster-with-track-workouts-1834167188](https://lifehacker.com/run-faster-with-track-workouts-1834167188)
+> 原文：<https://lifehacker.com/run-faster-with-track-workouts-1834167188>
 
 我很少会觉得自己比跑步时更强壮、更快或更糟糕。今天，我想和你分享这种感觉。
 

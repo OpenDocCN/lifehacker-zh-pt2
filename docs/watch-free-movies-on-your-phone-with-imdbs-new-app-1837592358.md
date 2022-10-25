@@ -1,6 +1,6 @@
 # 使用 IMDb 的新应用在手机上观看免费电影
 
-> 原文:[https://life hacker . com/watch-free-movies-on-your-phone-with-imdbs-new-app-1837592358](https://lifehacker.com/watch-free-movies-on-your-phone-with-imdbs-new-app-1837592358)
+> 原文：<https://lifehacker.com/watch-free-movies-on-your-phone-with-imdbs-new-app-1837592358>
 
 IMDb 今年早些时候推出了 IMDb 电视，这是一种流媒体服务，允许你通过 IMDb 的网站免费观看一些节目。今天，该公司宣布，它将把 IMDb 电视台也纳入其移动应用程序，让您能够在您的移动设备上播放所有内容。
 

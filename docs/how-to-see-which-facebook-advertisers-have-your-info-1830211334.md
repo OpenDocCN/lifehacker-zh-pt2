@@ -1,6 +1,6 @@
 # 如何查看哪些脸书广告商有您的信息
 
-> 原文:[https://life hacker . com/how-to-see-which-Facebook-advertisers-have-your-info-1830211334](https://lifehacker.com/how-to-see-which-facebook-advertisers-have-your-info-1830211334)
+> 原文：<https://lifehacker.com/how-to-see-which-facebook-advertisers-have-your-info-1830211334>
 
 如果你使用脸书(或者即使你不使用)，你可能知道广告商有一些关于你的信息。定向广告是脸书的特殊果汁，向下滚动你的时间线可能会证明你看到的广告绝不是随机的。你可能没有意识到的；然而，你也可以看到在脸书哪些广告商的名单上有你的名字。
 

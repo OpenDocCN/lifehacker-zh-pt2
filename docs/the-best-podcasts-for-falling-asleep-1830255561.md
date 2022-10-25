@@ -1,6 +1,6 @@
 # 入睡的最佳播客
 
-> 原文:[https://life hacker . com/the-best-podcast-for-入睡-1830255561](https://lifehacker.com/the-best-podcasts-for-falling-asleep-1830255561)
+> 原文：<https://lifehacker.com/the-best-podcasts-for-falling-asleep-1830255561>
 
 现在地球上每个人都有一个播客，你可以为任何主题或需求找到一个——事实上你可以从整个名单中挑选你最喜欢的。比如说你需要一个足够有趣的播客来阻止你的大脑陷入深夜焦虑；安静到足以让你在床上平静；无聊到你不会再熬夜等一个小时。我们查看了一些最受推荐的入睡播客，选择了最好的，并添加了几个我们自己最喜欢的。我们也
 

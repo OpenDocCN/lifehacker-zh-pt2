@@ -1,6 +1,6 @@
 # 问那个刻薄的女服务员:我喝醉了，少给了我的服务员小费。我如何修理它？
 
-> 原文:[https://the take out . com/I-dunkenly-under-tipped-my-server-how-do-I-fix-it-1831549281](https://thetakeout.com/i-drunkenly-under-tipped-my-server-how-do-i-fix-it-1831549281)
+> 原文：<https://thetakeout.com/i-drunkenly-under-tipped-my-server-how-do-i-fix-it-1831549281>
 
 > 亲爱的 Salty:我和我的妻子以及另一对夫妇最近完成了我们一年一度的圣诞传统，去了一家不错的高端牛排店。长话短说，喝了几杯曼哈顿酒和几杯马尔贝克酒后，账单来了，不幸的是，我不小心少给了小费，多亏了我醉酒的数学。第二天早上醒来，我意识到我的错误，并为扼杀了这位整晚提供出色服务的年轻女士感到难过。
 > 

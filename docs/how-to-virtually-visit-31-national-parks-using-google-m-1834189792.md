@@ -1,6 +1,6 @@
 # 如何使用谷歌地图虚拟参观 31 个国家公园
 
-> 原文:[https://life hacker . com/how-to-virtually-visit-31-national-parks-using-Google-m-1834189792](https://lifehacker.com/how-to-virtually-visit-31-national-parks-using-google-m-1834189792)
+> 原文：<https://lifehacker.com/how-to-virtually-visit-31-national-parks-using-google-m-1834189792>
 
 由于国家公园周的开始，今天美国所有的国家公园都可以免费参观。
 

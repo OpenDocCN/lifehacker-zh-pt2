@@ -1,6 +1,6 @@
 # 如何观看 NCAA 三月疯狂括号揭示从酒吧
 
-> 原文:[https://life hacker . com/how-to-watch-the-NCAA-March-madness-bracket-reveal-from-1833358941](https://lifehacker.com/how-to-watch-the-ncaa-march-madness-bracket-reveal-from-1833358941)
+> 原文：<https://lifehacker.com/how-to-watch-the-ncaa-march-madness-bracket-reveal-from-1833358941>
 
 作为一个来自北卡罗来纳州的女孩，三月疯狂对我来说是一年中最重要的时刻之一。事实证明，住在离经常参加锦标赛的三支球队的大学校园几英里远的地方，会促使你真正融入大学篮球。三月是这种痴迷达到高潮的时候。
 

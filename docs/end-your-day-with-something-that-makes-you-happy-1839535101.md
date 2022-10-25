@@ -1,6 +1,6 @@
 # 用让你开心的事情结束你的一天
 
-> 原文:[https://life hacker . com/end-you ' s day with something-make-you-happy-1839535101](https://lifehacker.com/end-your-day-with-something-that-makes-you-happy-1839535101)
+> 原文：<https://lifehacker.com/end-your-day-with-something-that-makes-you-happy-1839535101>
 
 半年多来，我一直使用 [Exist](https://exist.io/) 应用程序来跟踪我的活动并评估我的情绪，我最大的意外收获之一是*我对一天的感觉往往取决于我如何度过最后一小时。*
 

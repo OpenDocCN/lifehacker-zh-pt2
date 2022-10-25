@@ -1,6 +1,6 @@
 # 哪里可以修复超出保修期的 iOS 设备
 
-> 原文:[https://life hacker . com/where-to-get-your-out-of-warranty-IOs-device-fixed-1837845689](https://lifehacker.com/where-to-get-your-out-of-warranty-ios-device-fixed-1837845689)
+> 原文：<https://lifehacker.com/where-to-get-your-out-of-warranty-ios-device-fixed-1837845689>
 
 拥有过保修期的 iPhones 或 iPads 需要维修的苹果用户现在可以通过该公司最近扩展的独立维修计划获得更多选择。
 

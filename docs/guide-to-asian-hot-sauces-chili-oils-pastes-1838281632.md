@@ -1,6 +1,6 @@
 # 亚洲辣酱入门指南
 
-> 原文:[https://the take out . com/guide-to-Asian-hot-sauce-Chili-oils-pastes-1838281632](https://thetakeout.com/guide-to-asian-hot-sauces-chili-oils-pastes-1838281632)
+> 原文：<https://thetakeout.com/guide-to-asian-hot-sauces-chili-oils-pastes-1838281632>
 
 离我家不远的街上有一家可爱的亚洲杂货店，叫做西贡市场。自从一年前搬到印第安纳州的南本德以来，我已经去过那里几十次了，主要是为了挑选最后一分钟的农产品或配料，我发誓我已经在我的储藏室里了。
 

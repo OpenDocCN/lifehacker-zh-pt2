@@ -1,6 +1,6 @@
 # 为什么我的笔记本电脑会关机而不是进入睡眠状态？
 
-> 原文:[https://life hacker . com/why-my-laptop-shut-down-to-being-to-sleep-1840067515](https://lifehacker.com/why-does-my-laptop-shut-down-instead-of-going-to-sleep-1840067515)
+> 原文：<https://lifehacker.com/why-does-my-laptop-shut-down-instead-of-going-to-sleep-1840067515>
 
 你在使用一个设备(通常是你的电脑)时会遇到的最令人沮丧的问题之一是，当它开始做以前从未做过的事情时。通常，这是你不希望*It 部门做的事情:它需要 15 秒以上的时间来启动，它发出一些奇怪的噪音，或者它无法启动你过去三个月一直在使用的应用程序。诸如此类的怪事。*
 

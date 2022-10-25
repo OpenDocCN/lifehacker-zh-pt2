@@ -1,6 +1,6 @@
 # 如何删除“不可删除”的 Windows 10 膨胀软件
 
-> 原文:[https://life hacker . com/how-to-remove-un deletable-windows-10-bloatware-1844456995](https://lifehacker.com/how-to-remove-undeletable-windows-10-bloatware-1844456995)
+> 原文：<https://lifehacker.com/how-to-remove-undeletable-windows-10-bloatware-1844456995>
 
 感谢上帝，Windows 10 打包了许多烦人的臃肿软件。有些东西你可以卸载；有些你不能*(咳你的电话咳)*。虽然操作系统感觉这些年来在这方面有所改善，但如果你想要更干净的 Windows 10 体验，你仍然需要使用第三方应用程序。
 

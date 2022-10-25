@@ -1,6 +1,6 @@
 # 问那个刻薄的女服务员:把钱放在小费罐里该有多壮观？
 
-> 原文:[https://the take out . com/how-much-glance-should-make-put-money-in-tip-jar-1835212967](https://thetakeout.com/how-much-spectacle-should-make-putting-money-in-tip-jar-1835212967)
+> 原文：<https://thetakeout.com/how-much-spectacle-should-make-putting-money-in-tip-jar-1835212967>
 
 > 嘿咸咸的，我有一个小费的问题。当我在柜台上有小费罐的餐厅点餐时，我会在服务员面对我的时候给小费，而不是在他们背对着我的时候(例如，当他们倒饮料或从箱子里拿东西的时候)。我认为给小费是一种表达感谢的方式，一种感激的姿态，如果我在别人看不见的时候给小费，并不能真正达到这个目的。从自我服务的角度来看，如果我是一个回头客，我想建立一种关系，我是一个感恩和礼貌的顾客，希望他们记住我。
 > 

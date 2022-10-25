@@ -1,6 +1,6 @@
 # 洪水过后如何清理你的厨房
 
-> 原文:[https://life hacker . com/how-to-clean-your kitchen-after-a flood-1835175302](https://lifehacker.com/how-to-clean-your-kitchen-after-a-flood-1835175302)
+> 原文：<https://lifehacker.com/how-to-clean-your-kitchen-after-a-flood-1835175302>
 
 生活在受洪水影响的地区可能是一件令人痛苦的事情，如果你没有准备好，情况会变得更糟。鉴于美国潜在的洪水，本周 FDA 分享了一些洪水后清理工作的技巧，特别是清理工作。
 

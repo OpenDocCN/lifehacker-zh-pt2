@@ -1,6 +1,6 @@
 # 使用这个 Chrome 扩展向谷歌报告可疑网站
 
-> 原文:[https://life hacker . com/report-suspective-sites-to-Google-using-this-chrome-ext-1835650376](https://lifehacker.com/report-suspicious-sites-to-google-using-this-chrome-ext-1835650376)
+> 原文：<https://lifehacker.com/report-suspicious-sites-to-google-using-this-chrome-ext-1835650376>
 
 如果你使用 Chrome 有一段时间了，你可能会偶然发现它可怕的红色间隙——或者被称为谷歌安全浏览警告。如果你试图打开一个看起来有问题的网站， [就像一个恶意软件主机](https://transparencyreport.google.com/safe-browsing/overview) ，Chrome 会阻止你这样做，除非你稍微挖掘一下 [绕过它的警告](https://support.google.com/chrome/answer/99020?co=GENIE.Platform%3DDesktop&hl=en-GB) 。
 

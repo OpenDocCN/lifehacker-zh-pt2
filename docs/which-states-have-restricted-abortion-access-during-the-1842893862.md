@@ -1,6 +1,6 @@
 # 在疫情期间，哪些州限制堕胎？
 
-> 原文:[https://life hacker . com/which-States-has-restricted-流产-访问-期间-1842893862](https://lifehacker.com/which-states-have-restricted-abortion-access-during-the-1842893862)
+> 原文：<https://lifehacker.com/which-states-have-restricted-abortion-access-during-the-1842893862>
 
 与疫情期间的所有医疗服务一样，患者获得堕胎服务的能力每天都在波动，反堕胎活动家 正在进行的努力使这种情况更加令人担忧。多个州 [利用这一疫情作为限制堕胎的正当理由](https://www.vox.com/2020/3/26/21195308/republicans-coronavirus-anti-abortion-trans) ，理由是堕胎是一种选择性医疗程序。
 

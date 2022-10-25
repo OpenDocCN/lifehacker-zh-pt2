@@ -1,6 +1,6 @@
 # 用玻璃杯制作完美的小奶酪杯
 
-> 原文:[https://life hacker . com/make-perfect-little-cheese-cups-with-shot-glass-1843322927](https://lifehacker.com/make-perfect-little-cheese-cups-with-a-shot-glass-1843322927)
+> 原文：<https://lifehacker.com/make-perfect-little-cheese-cups-with-a-shot-glass-1843322927>
 
 大约一年一次，我和妈妈去加州的 Calistoga 旅行，喝葡萄酒，泡在泥巴里，静静地躺在旅馆的床上。在我们开车回我妈妈在萨克拉门托的房子的路上，我们经常会经过扬特维尔，呆呆地看着这一切纯粹的斯戴福式的变化。“那里有法国洗衣店，”我们会说——确切地说，不是渴望，而是敏锐地意识到我们永远不会在那个特定的餐厅吃饭的事实。
 

@@ -1,6 +1,6 @@
 # 用这款鸡尾酒抓住柑橘季节的最后时刻
 
-> 原文:[https://life hacker . com/cliff-to-the-co-1832824656](https://lifehacker.com/cling-to-the-last-moments-of-citrus-season-with-this-co-1832824656)
+> 原文：<https://lifehacker.com/cling-to-the-last-moments-of-citrus-season-with-this-co-1832824656>
 
 杂货店是一个令人振奋的地方，尤其是农产品通道。不管我的清单上有什么，我都会花几分钟时间悠闲地浏览水果、蔬菜和菌类，只是为了看看是否有人会跳出来打招呼。这个星期，我偶然发现了一个大的，阳光充足的，黄色的 boi，简单地命名为“鸡尾酒柑橘”我的任务很明确。
 

@@ -1,6 +1,6 @@
 # 看看你是否在使用这些向脸书过度分享信息的流行安卓应用
 
-> 原文:[https://life hacker . com/see-if-you-use-these-popular-Android-apps-over-the-over-1831405015](https://lifehacker.com/see-if-youre-using-these-popular-android-apps-that-over-1831405015)
+> 原文：<https://lifehacker.com/see-if-youre-using-these-popular-android-apps-that-over-1831405015>
 
 最近的一项隐私国际研究 发现，Google Play 中 42.55%的免费应用程序可以与脸书共享数据，许多热门应用程序在打开的一秒钟就与脸书共享数据。
 

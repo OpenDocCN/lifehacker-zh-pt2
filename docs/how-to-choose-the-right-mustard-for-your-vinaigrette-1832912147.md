@@ -1,6 +1,6 @@
 # 如何选择正确的芥末酱
 
-> 原文:[https://life hacker . com/how-to-choose the right the 芥末酱-1832912147](https://lifehacker.com/how-to-choose-the-right-mustard-for-your-vinaigrette-1832912147)
+> 原文：<https://lifehacker.com/how-to-choose-the-right-mustard-for-your-vinaigrette-1832912147>
 
 任何好的调味汁都含有油基和水基成分，如果我们记得我们的基本化学，它们彼此并不特别喜欢。为了帮助这些截然相反的伙伴和睦相处，齐心协力，你需要一个乳化剂。
 

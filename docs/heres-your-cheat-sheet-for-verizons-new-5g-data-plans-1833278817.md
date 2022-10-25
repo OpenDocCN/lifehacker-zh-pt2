@@ -1,6 +1,6 @@
 # 这是你的威瑞森新 5G 数据计划的备忘单
 
-> 原文:[https://life hacker . com/heres-your-cheat-sheet-for-Verizon-new-5g-data-plans-1833278817](https://lifehacker.com/heres-your-cheat-sheet-for-verizons-new-5g-data-plans-1833278817)
+> 原文：<https://lifehacker.com/heres-your-cheat-sheet-for-verizons-new-5g-data-plans-1833278817>
 
 随着越来越多的公司宣布计划在 2019 年推出 5G 网络，5G 继续在世界各地缓慢推出。最近的是威瑞森，他详细介绍了其即将于 4 月 11 日推出的 5G 服务 。
 

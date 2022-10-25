@@ -1,6 +1,6 @@
 # 你应该担心 Instacart 数据泄露吗？
 
-> 原文:[https://life hacker . com/should-you-worry-the-insta cart-data-leak-1844483375](https://lifehacker.com/should-you-worry-about-the-instacart-data-leak-1844483375)
+> 原文：<https://lifehacker.com/should-you-worry-about-the-instacart-data-leak-1844483375>
 
 如果你是 Instacart 购物者，黑客可能会在网上出售你的数据。根据 Buzzfeed 最近的一份报告，至少有两个黑客社区上有 278，531 个 Instacart 账户以 2 美元一个的价格出售。每个账户包括全名、信用卡号码的最后四位数字和订单历史。这些列表出现在 4 月份,并不断更新新账户，就在昨天。
 

@@ -1,6 +1,6 @@
 # 在你的火鸡汤中加入非火鸡骨头
 
-> 原文:[https://life hacker . com/add-non-turkey-bones-to-your-turkey-stock-1839615518](https://lifehacker.com/add-non-turkey-bones-to-your-turkey-stock-1839615518)
+> 原文：<https://lifehacker.com/add-non-turkey-bones-to-your-turkey-stock-1839615518>
 
 现在是正式开始为感恩节做准备的时候了，除了挑选你的火鸡食谱之外，你可以立即着手做的一件事就是你的存货。这可能看起来很无聊，但原汤是许多感恩节菜肴的主菜，最著名的是馅料和肉汁。
 

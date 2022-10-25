@@ -1,6 +1,6 @@
 # 如果你家里有人患有新冠肺炎，先做这些事情
 
-> 原文:[https://life hacker . com/if-有人在你家里做了新冠肺炎做的这些事情-f-1844072073](https://lifehacker.com/if-someone-in-your-home-has-covid-19-do-these-things-f-1844072073)
+> 原文：<https://lifehacker.com/if-someone-in-your-home-has-covid-19-do-these-things-f-1844072073>
 
 如果和你一起生活的人被诊断出患有新冠肺炎病毒，或者看起来很可能患有这种病毒(例如，如果他们正在等待测试结果)，你突然有了一项重要的工作:照顾这个人，同时降低他们将病毒传播给你或其他任何人的风险。以下是你得到诊断后应该做的事情。
 

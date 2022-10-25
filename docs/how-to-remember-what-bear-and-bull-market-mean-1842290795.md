@@ -1,6 +1,6 @@
 # 如何记住“熊市”和“牛市”的含义
 
-> 原文:[https://life hacker . com/how-to-remember-what-bear-and-bull-market-mean-1842290795](https://lifehacker.com/how-to-remember-what-bear-and-bull-market-mean-1842290795)
+> 原文：<https://lifehacker.com/how-to-remember-what-bear-and-bull-market-mean-1842290795>
 
 我喜欢认为自己对投资相当了解，但每当我听到有人说“熊市”或“牛市”时，我都必须仔细检查他们到底是什么意思。(股票下跌的是熊，还是牛？)
 

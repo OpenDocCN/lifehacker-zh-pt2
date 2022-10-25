@@ -1,6 +1,6 @@
 # 确保你给圣诞树浇了足够的水
 
-> 原文:[https://life hacker . com/确保你给你的圣诞树浇了足够多的水 1830713450](https://lifehacker.com/make-sure-youre-watering-your-christmas-tree-enough-1830713450)
+> 原文：<https://lifehacker.com/make-sure-youre-watering-your-christmas-tree-enough-1830713450>
 
 如果你打算在这个假期种一棵活树，我希望你已经准备好浇水了。那个大男孩每天需要一加仑或更多，任何添加剂或喷雾都不能改变这一点。给你的树浇水。否则，就变成了 [巨大的火灾隐患](https://lifehacker.com/your-neglected-christmas-tree-is-a-huge-fire-hazard-1790551563#_ga=2.265755471.1752404564.1543421739-1456718367.1520458611) 。
 

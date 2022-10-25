@@ -1,6 +1,6 @@
 # 我忘了你的名字，保释我出来
 
-> 原文:[https://life hacker . com/I-forget-your-name-bail-me-out-1830023357](https://lifehacker.com/i-forgot-your-name-bail-me-out-1830023357)
+> 原文：<https://lifehacker.com/i-forgot-your-name-bail-me-out-1830023357>
 
 也许我得了。也许我只是个混蛋。但是我经常碰到熟人，记不起他们的名字。如果我和我的妻子在一起，她知道该怎么做:她会立即介绍自己，这样他们就可以回说他们的名字。我不这么做可能看起来有点粗鲁，但至少我的秘密是安全的。我知道我不是唯一需要帮助的人。超过 14000 人转发了电视作家杜恩·帕金斯的这段自白:
 

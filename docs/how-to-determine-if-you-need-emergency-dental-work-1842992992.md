@@ -1,6 +1,6 @@
 # 如何确定您是否需要紧急牙科治疗
 
-> 原文:[https://life hacker . com/how-to-determine-if-you-needle-dental-work-1842992992](https://lifehacker.com/how-to-determine-if-you-need-emergency-dental-work-1842992992)
+> 原文：<https://lifehacker.com/how-to-determine-if-you-need-emergency-dental-work-1842992992>
 
 我们已经在家里躲了足够长的时间，以至于我们中的许多人开始想知道去牙科诊所该做些什么。我们中的一些人正在处理疼痛的智齿、未完成的牙根管、植入物和蛀牙，以及疼痛的牙齿或牙龈。其他人想知道推迟日常护理的相关风险，如清洁和 x 光检查。
 

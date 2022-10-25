@@ -1,6 +1,6 @@
 # 确保你的竞选捐款不是资助骗局
 
-> 原文:[https://life hacker . com/make-sure-your-campaign-announced-funding-scams-1833440453](https://lifehacker.com/make-sure-your-campaign-donations-arent-funding-scams-1833440453)
+> 原文：<https://lifehacker.com/make-sure-your-campaign-donations-arent-funding-scams-1833440453>
 
 你知道现在是什么时候:政客们向你的收件箱发邮件要钱的时候。天哪，有时候，他们活该！贝托，拿走我的钱！沃伦，这是我的借记卡和银行账户信息！AOC，这是我一生的积蓄！但有时，当涉及到谁接受你的竞选捐款时，多一点点辨别是值得的，正如我们本周所了解到的。
 

@@ -1,6 +1,6 @@
 # 最好的牛排沙拉不需要花哨的调料
 
-> 原文:[https://life hacker . com/the-best-steak-salad-need-a-fancy-dressing-1836883456](https://lifehacker.com/the-best-steak-salad-doesnt-need-a-fancy-dressing-1836883456)
+> 原文：<https://lifehacker.com/the-best-steak-salad-doesnt-need-a-fancy-dressing-1836883456>
 
 一份普通的沙拉可以通过一种极好的调料来制作，但是我最喜欢的沙拉之一——牛排沙拉——几乎没有调料。我喜欢用柠檬汁和——更重要的是——锅里的汁液来完成我的里贝叶状绿叶蔬菜，而不是搅拌油醋汁或奶油芝麻酱。
 

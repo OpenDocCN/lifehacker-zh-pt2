@@ -1,6 +1,6 @@
 # 如何应对你的压力饮食
 
-> 原文:[https://life hacker . com/1842665373](https://lifehacker.com/what-to-do-about-your-stress-eating-1842665373)
+> 原文：<https://lifehacker.com/what-to-do-about-your-stress-eating-1842665373>
 
 我和我的家人已经被隔离了大约 14 天，我们已经开始耗尽我们的应急垃圾食品供应。两个半加仑的死亡巧克力冰淇淋已经被吃掉了，到今天下午 2 点，我们的果酱馅饼储备已经减少到一个卑微的草莓馅饼，没有人想要，但有人最终会吃。这是绝望的时刻。
 

@@ -1,6 +1,6 @@
 # 如何展示收藏品而不显得像囤积者
 
-> 原文:[https://life hacker . com/how-to-display-a-collection-not-looking-like-a-hoar-1844800864](https://lifehacker.com/how-to-display-a-collection-without-looking-like-a-hoar-1844800864)
+> 原文：<https://lifehacker.com/how-to-display-a-collection-without-looking-like-a-hoar-1844800864>
 
 很长一段时间，收集被认为只是另一种爱好。操场上的问题不是*如果*你收集了什么，而是*你收集了什么*。它不仅限于抓嗅贴纸、看起来不寻常的石头和大人们告诉你有一天会值钱的硬币——大人们也参与其中。无论是通过收集娃娃来弥补童年的贫困，还是你曾经在谈话中提到你喜欢猫头鹰，从此每个人都给你以猫头鹰为特色的物品，我们很多人在家里的某个地方都有某种收藏。
 

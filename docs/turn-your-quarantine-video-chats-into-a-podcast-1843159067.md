@@ -1,6 +1,6 @@
 # 将您的隔离视频聊天转换为播客
 
-> 原文:[https://life hacker . com/turn-your-quarantine-video-chats-into-a-podcast-1843159067](https://lifehacker.com/turn-your-quarantine-video-chats-into-a-podcast-1843159067)
+> 原文：<https://lifehacker.com/turn-your-quarantine-video-chats-into-a-podcast-1843159067>
 
 尽管你的大多数冠状病毒隔离视频聊天可能很无聊，但这并不意味着它们毫无意义。事实上，有些可能*如此*有趣，你可能想把它们变成播客(至少，这是我对我的新虚拟*地牢&龙*会话的感觉。)
 

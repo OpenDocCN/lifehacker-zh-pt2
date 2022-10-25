@@ -1,6 +1,6 @@
 # 国内品牌对先进的安全功能收取高额费用
 
-> 原文:[https://jalopnik . com/domestic-brands-charge-a-hefty-premium-for-advanced-SAF-1838035070](https://jalopnik.com/domestic-brands-charge-a-hefty-premium-for-advanced-saf-1838035070)
+> 原文：<https://jalopnik.com/domestic-brands-charge-a-hefty-premium-for-advanced-saf-1838035070>
 
 现在，美国汽车制造商在很大程度上已经将小型车市场让给了进口品牌，你可能会认为他们会试图在跨界车/SUV 细分市场推出有竞争力的产品。然而，当谈到大多数购车者真正想要的家用车时，国产品牌似乎并没有很好地解读市场。
 

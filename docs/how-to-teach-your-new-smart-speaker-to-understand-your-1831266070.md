@@ -1,6 +1,6 @@
 # 如何教你的新智能音箱理解你的声音
 
-> 原文:[https://life hacker . com/how-to-teach-your-new-smart-speaker-to-understand-your-1831266070](https://lifehacker.com/how-to-teach-your-new-smart-speaker-to-understand-your-1831266070)
+> 原文：<https://lifehacker.com/how-to-teach-your-new-smart-speaker-to-understand-your-1831266070>
 
 并非所有的智能音箱都是生而平等的。事实上，有些人根本不具备被称为“聪明”的资格——但他们在回答你的问题方面越来越好，假设他们能理解你在说什么。
 

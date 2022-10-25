@@ -1,6 +1,6 @@
 # 你应该多久检查一次你的信用评分？
 
-> 原文:[https://life hacker . com/你应该多久检查一次你的信用评分-1835242548](https://lifehacker.com/how-often-should-you-check-your-credit-score-1835242548)
+> 原文：<https://lifehacker.com/how-often-should-you-check-your-credit-score-1835242548>
 
 随着免费在线信用评分服务的普及，记录这个神奇的数字变得前所未有的容易。但是，对于那些对自己的信用评分感到好奇或者努力提高信用评分的人来说，这种便利的获取方式产生了新的诱惑。
 

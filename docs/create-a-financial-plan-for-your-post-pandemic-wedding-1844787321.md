@@ -1,6 +1,6 @@
 # 为你的后疫情婚礼制定一个财务计划
 
-> 原文:[https://life hacker . com/create-a-financial-plan-for-your-post-疫情婚礼-1844787321](https://lifehacker.com/create-a-financial-plan-for-your-post-pandemic-wedding-1844787321)
+> 原文：<https://lifehacker.com/create-a-financial-plan-for-your-post-pandemic-wedding-1844787321>
 
 订婚对任何夫妇来说都是一个重大的里程碑。你可能会为你的婚礼设想奢华的计划——和你爱的人一起豪饮庆祝——以及你们未来的共同生活。虽然随着大日子的临近，事情可能会发生变化，但你可能还没有为今年的曲线球做好准备:冠状病毒疫情。
 

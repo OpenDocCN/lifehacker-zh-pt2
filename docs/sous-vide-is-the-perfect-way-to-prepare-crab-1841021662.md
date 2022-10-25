@@ -1,6 +1,6 @@
 # 腌制是烹饪螃蟹的最佳方式
 
-> 原文:[https://life hacker . com/sous-vide-is-the-perfect-way-to-prepare-crab-1841021662](https://lifehacker.com/sous-vide-is-the-perfect-way-to-prepare-crab-1841021662)
+> 原文：<https://lifehacker.com/sous-vide-is-the-perfect-way-to-prepare-crab-1841021662>
 
 几乎所有你在杂货店看到的螃蟹——无论是整只邓杰斯蟹还是阿拉斯加蟹腿——都是经过预煮和冷冻的。这延长了保质期，保存了肉的味道，但也使准备甲壳类动物成为一种简单的加热和服务。为了确保在重新加热时不会将珍贵的螃蟹煮过头，你应该使用浸没式循环器。
 

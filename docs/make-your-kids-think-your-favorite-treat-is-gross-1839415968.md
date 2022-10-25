@@ -1,6 +1,6 @@
 # 让你的孩子认为你最喜欢的零食很恶心
 
-> 原文:[https://life hacker . com/make-your-kids-think-your-favor-treat-is-gross-1839415968](https://lifehacker.com/make-your-kids-think-your-favorite-treat-is-gross-1839415968)
+> 原文：<https://lifehacker.com/make-your-kids-think-your-favorite-treat-is-gross-1839415968>
 
 当然，你可以偷偷摸摸，把你最喜欢的食物藏在食品室里最清淡的麦片盒子里，等孩子们安全入睡后，偷偷地吃掉它们。但是，当你可以在他们面前厚颜无耻地享受它时，为什么要这样做呢？因为他们认为那块巧克力真的很恶心。
 

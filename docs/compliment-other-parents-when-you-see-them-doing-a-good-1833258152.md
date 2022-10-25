@@ -1,6 +1,6 @@
 # 当你看到其他父母做得很好时，赞美他们
 
-> 原文:[https://life hacker . com/compliment-other-parents-when you-see-them-do-a-good-1833258152](https://lifehacker.com/compliment-other-parents-when-you-see-them-doing-a-good-1833258152)
+> 原文：<https://lifehacker.com/compliment-other-parents-when-you-see-them-doing-a-good-1833258152>
 
 在第 [期的一个坏妈妈播客](https://www.maximumfun.org/shows/one-bad-mother) 中，主持人比兹·埃利斯和特里萨·索恩在每集结束时都会互相说，“你做得真的很好。”我一直觉得这是一种鼓励彼此的甜蜜方式，当你处于育儿的最艰难时期，一切似乎都是一场斗争，你觉得周围没有人看到你有多努力。
 

@@ -1,6 +1,6 @@
 # 网飞新的高品质音频对您意味着什么
 
-> 原文:[https://life hacker . com/what-netflixs-new-high-quality-audio-means-for-you-1834453305](https://lifehacker.com/what-netflixs-new-high-quality-audio-means-for-you-1834453305)
+> 原文：<https://lifehacker.com/what-netflixs-new-high-quality-audio-means-for-you-1834453305>
 
 网飞用户可能很快会发现，该平台上的电视和电影听起来比以前更好。该公司今天宣布，该平台现在使用“录音室品质”音频 “听起来更接近创作者在录音室听到的声音”，并在不需要更多带宽或增加缓冲的情况下，全面提升其内容的音频保真度。
 

@@ -1,6 +1,6 @@
 # 如何保护你的存款免受利率下降的影响
 
-> 原文:[https://life hacker . com/how-to-adjust-your-savings-when-interest-rates-drop-1837204400](https://lifehacker.com/how-to-adjust-your-savings-when-interests-rates-drop-1837204400)
+> 原文：<https://lifehacker.com/how-to-adjust-your-savings-when-interests-rates-drop-1837204400>
 
 美联储于 7 月 31 日下调了联邦利率，正如所料，银行也开始下调利率。
 

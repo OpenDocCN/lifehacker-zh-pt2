@@ -1,6 +1,6 @@
 # 这些是最好的育儿书籍
 
-> 原文:[https://life hacker . com/the-best-parenting-books-out-there-1831464069](https://lifehacker.com/the-best-parenting-books-out-there-1831464069)
+> 原文：<https://lifehacker.com/the-best-parenting-books-out-there-1831464069>
 
 初为人父母同样令人兴奋和激动，快乐和恐惧。这里不乏建议:如果你在亚马逊 上搜索 [【育儿书籍】，会出现 6 万多个结果。一方面，生活在一个信息唾手可得的时代真好。另一方面，你怎么可能知道从哪里开始呢？](https://www.amazon.com/s/ref=nb_sb_noss_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-best-parenting-books-out-there-1831464069&asc_source=&field-keywords=parenting books&tag=kinjalifehackerlink-20&url=search-alias=stripbooks)
 

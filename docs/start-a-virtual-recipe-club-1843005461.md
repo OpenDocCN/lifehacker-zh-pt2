@@ -1,6 +1,6 @@
 # 创建一个虚拟食谱俱乐部
 
-> 原文:[https://life hacker . com/start-a-virtual-recipe-club-1843005461](https://lifehacker.com/start-a-virtual-recipe-club-1843005461)
+> 原文：<https://lifehacker.com/start-a-virtual-recipe-club-1843005461>
 
 我最近一直在忙着打电话，我发现有一个活动、一个主题或一些焦点来引导电话会很有帮助。不仅仅是简单的分享低调——但仍然令人心动！不管怎样，存在恐惧的感觉。虚拟的快乐时光很好，但不是每个人都喝酒，也不是每个人都想像这些电话发生的那样频繁地喝酒。如果这一切听起来对你来说很熟悉，那么通过虚拟食谱俱乐部的方式将焦点从饮料转移到食物上可能是正确的举措。
 

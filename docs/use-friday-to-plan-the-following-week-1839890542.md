@@ -1,6 +1,6 @@
 # 利用星期五来计划接下来的一周
 
-> 原文:[https://life hacker . com/use-Friday-to-plan-the-following-week-1839890542](https://lifehacker.com/use-friday-to-plan-the-following-week-1839890542)
+> 原文：<https://lifehacker.com/use-friday-to-plan-the-following-week-1839890542>
 
 我们很多人都没有什么仪式来帮助我们从工作周中过渡出来，让周末尽可能放松。也许你去欢乐时光；也许你点外卖；如果你是我，也许你会收拾好你的公寓，点上一支香烛。
 

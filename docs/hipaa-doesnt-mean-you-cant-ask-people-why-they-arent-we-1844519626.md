@@ -1,6 +1,6 @@
 # HIPAA 并不意味着你不能问人们为什么不接种疫苗
 
-> 原文:[https://life hacker . com/hipaa-dont-mean-you-can-ask-people-why-they-arent-we-1844519626](https://lifehacker.com/hipaa-doesnt-mean-you-cant-ask-people-why-they-arent-we-1844519626)
+> 原文：<https://lifehacker.com/hipaa-doesnt-mean-you-cant-ask-people-why-they-arent-we-1844519626>
 
 被称为《健康保险流通与责任法案》( HIPAA)的法律被严重误解。(首先， [的拼写是 HIPAA，而不是 HIPPA](https://www.atlantic.net/hipaa-compliant-hosting/hipaa-vs-hippa/) 。)最近误解它的人是那些声称询问他们是否接种疫苗是非法的人。抱歉，法律不是这么规定的。这一切都不是这样的。
 

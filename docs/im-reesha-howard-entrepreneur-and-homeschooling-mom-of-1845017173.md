@@ -1,6 +1,6 @@
 # im reesha howard entrepreneur and homeschooling mom of 1845017173
 
-> 原文:[https://life hacker . com/im-reesha-Howard-entrepreneur-and-home schooling-of-of-1845017173](https://lifehacker.com/im-reesha-howard-entrepreneur-and-homeschooling-mom-of-1845017173)
+> 原文：<https://lifehacker.com/im-reesha-howard-entrepreneur-and-homeschooling-mom-of-1845017173>
 
 Reesha Howard 认为她的家庭有点像独角兽——他们是一个接受家庭教育的黑人、素食主义者和基督徒家庭，有着深厚的企业家精神。她和她的丈夫罗恩是高中恋人，来自芝加哥南部，他们在国外生活了很多年，罗恩打职业篮球，大约 10 年前在印第安纳州的韦恩堡定居下来。他们现在有四个孩子:克洛伊(13 岁)、佩顿(9 岁)、诺拉(5 岁)和贾斯汀(2 岁)。
 

@@ -1,6 +1,6 @@
 # 问数字助理快还是自己动手快？
 
-> 原文:[https://life hacker . com/is-it-fast-to-ask-a-digital-assistant-or-just-do-it-y-1834390220](https://lifehacker.com/is-it-faster-to-ask-a-digital-assistant-or-just-do-it-y-1834390220)
+> 原文：<https://lifehacker.com/is-it-faster-to-ask-a-digital-assistant-or-just-do-it-y-1834390220>
 
 这段视频重复使用了亚马逊 Echo 触发词“Alexa”为了防止你的回音，请戴上耳机观看。
 

@@ -1,6 +1,6 @@
 # 如何在 Mozilla 之前启用火狐更安全的 HTTPS 域名服务
 
-> 原文:[https://life hacker . com/how-to-enable-Firefox-more-secure-DNS-over-https-featu-1837986733](https://lifehacker.com/how-to-enable-firefoxs-more-secure-dns-over-https-featu-1837986733)
+> 原文：<https://lifehacker.com/how-to-enable-firefoxs-more-secure-dns-over-https-featu-1837986733>
 
 在九月下旬的某个时候，Mozilla 将默认为所有用户启用 [火狐的 HTTPS 域名解析服务](https://blog.mozilla.org/futurereleases/2019/04/02/dns-over-https-doh-update-recent-testing-results-and-next-steps/) 。这就是为什么这很重要:DoH 通过 [隐藏 DNS 请求](https://blog.apnic.net/2018/10/12/doh-dns-over-https-explained/) 来保持你的互联网浏览隐私和安全——来自你的 ISP，来自你系统上的软件(如家长控制应用程序或其他阻止软件)，以及来自任何可能试图查出你在做什么的东西，如你政府的网络浏览审查机制。
 

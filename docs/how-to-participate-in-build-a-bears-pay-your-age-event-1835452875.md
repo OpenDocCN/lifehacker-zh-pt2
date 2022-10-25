@@ -1,6 +1,6 @@
 # 如何参加“打造一只熊”的“支付你的年龄”活动
 
-> 原文:[https://life hacker . com/how-to-party-in-build-a-bears-pay-your-age-event-1835452875](https://lifehacker.com/how-to-participate-in-build-a-bears-pay-your-age-event-1835452875)
+> 原文：<https://lifehacker.com/how-to-participate-in-build-a-bears-pay-your-age-event-1835452875>
 
 制作一只熊是每个小孩的圣地，可以和查克·e·奶酪相媲美。只要看一眼商店的招牌，就会引发一片合唱:“请，哦，请，我们能进去吗？”
 

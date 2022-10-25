@@ -1,6 +1,6 @@
 # 使用此应用在 Windows 和 Mac 上流式播放免费电台
 
-> 原文:[https://life hacker . com/stream-free-radio-stations-on-windows-and-MAC-with-this-1831551326](https://lifehacker.com/stream-free-radio-stations-on-windows-and-mac-with-this-1831551326)
+> 原文：<https://lifehacker.com/stream-free-radio-stations-on-windows-and-mac-with-this-1831551326>
 
 有几次我想在工作的时候听收音机——因为我偶尔会怀念通勤——我发现大多数电台的网站都很糟糕。就好像他们试图成为新闻服务、Tumblr 博客和播放音乐和视频的复杂网络工具的奇怪组合。糟糕。
 

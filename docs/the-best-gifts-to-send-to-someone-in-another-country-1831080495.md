@@ -1,6 +1,6 @@
 # 送给另一个国家的人最好的礼物
 
-> 原文:[https://life hacker . com/the-best-gifts-to-send-someone-in-other-country-1831080495](https://lifehacker.com/the-best-gifts-to-send-to-someone-in-another-country-1831080495)
+> 原文：<https://lifehacker.com/the-best-gifts-to-send-to-someone-in-another-country-1831080495>
 
 给另一种文化中的人送礼物需要额外的考虑；你要注意任何文化差异、禁忌或期望。但这也是一个不用花太多钱就能让某人大吃一惊的机会。跨文化商务顾问迪安·福斯特(Dean Foster)在一篇中型文章中给出了在国际上赠送精美礼物的建议；我们和他谈了一些该做和不该做的事情。
 

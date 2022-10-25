@@ -1,6 +1,6 @@
 # 在你的粗燕麦粉中加入 Nduja
 
-> 原文:[https://lifehacker.com/add-nduja-to-your-grits-1844922509](https://lifehacker.com/add-nduja-to-your-grits-1844922509)
+> 原文：<https://lifehacker.com/add-nduja-to-your-grits-1844922509>
 
 憎恨者(来自新英格兰的人)说玉米粉太“糊状”，但是糊状可以是一件光荣的事情。有时你不需要纹理或对比；有时候你只是需要一些温暖的，美味的，可以舀的东西。有时候(早上)，你不想那么用力咀嚼。
 

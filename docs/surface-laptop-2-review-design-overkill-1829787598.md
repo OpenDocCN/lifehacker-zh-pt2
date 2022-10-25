@@ -1,6 +1,6 @@
 # Surface Laptop 2 评论:设计过度
 
-> 原文:[https://gizmodo . com/surface-laptop-2-review-design-overkill-1829787598](https://gizmodo.com/surface-laptop-2-review-design-overkill-1829787598)
+> 原文：<https://gizmodo.com/surface-laptop-2-review-design-overkill-1829787598>
 
 Watch
 

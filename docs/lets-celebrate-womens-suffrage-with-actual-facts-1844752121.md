@@ -1,6 +1,6 @@
 # lets celebrate womens suffrage with actual facts 1844752121
 
-> 原文:[https://life hacker . com/let-spray-women-选举权与事实-1844752121](https://lifehacker.com/lets-celebrate-womens-suffrage-with-actual-facts-1844752121)
+> 原文：<https://lifehacker.com/lets-celebrate-womens-suffrage-with-actual-facts-1844752121>
 
 今天是赋予妇女投票权的第 19 修正案通过 100 周年纪念日。这使得今天成为一个好日子，再次让反思我们*实际上*对我们自己的美国历史了解多少。受益于 100 年的后见之明，也许我们可以看到这样的权利是如何花费了太长的时间才被授予，b 缺乏妇女被排除在外，以及历史是如何以令人不安的方式重演。
 

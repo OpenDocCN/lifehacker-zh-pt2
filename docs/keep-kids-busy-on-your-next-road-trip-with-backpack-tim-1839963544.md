@@ -1,6 +1,6 @@
 # 用“背包时间”让孩子们忙于你的下一次公路旅行
 
-> 原文:[https://life hacker . com/keep-kids-busy-on-your ' s next-road-trip-with-backpack-Tim-1839963544](https://lifehacker.com/keep-kids-busy-on-your-next-road-trip-with-backpack-tim-1839963544)
+> 原文：<https://lifehacker.com/keep-kids-busy-on-your-next-road-trip-with-backpack-tim-1839963544>
 
 我认为公平地说，现在孩子们在公路旅行中有更多的选择留在车里娱乐。我们有什么？书籍。笔和纸。一个随身听，如果我们幸运的话。最终，一种深深的厌倦让 [字母车牌游戏](https://itsallkidsplay.ca/259-alphabet-license-plate-game/) 听起来像个好主意。
 

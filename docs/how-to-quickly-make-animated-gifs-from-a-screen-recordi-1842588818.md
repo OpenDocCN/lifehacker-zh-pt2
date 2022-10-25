@@ -1,6 +1,6 @@
 # 如何从屏幕录像快速制作动画 gif
 
-> 原文:[https://life hacker . com/how-to-quick-make-a-screen-recordi-1842588818](https://lifehacker.com/how-to-quickly-make-animated-gifs-from-a-screen-recordi-1842588818)
+> 原文：<https://lifehacker.com/how-to-quickly-make-animated-gifs-from-a-screen-recordi-1842588818>
 
 有时候，记录下自己做的事情并发送给一个人要比试图描述给他们看他们自己努力去做容易得多。至少，每当我试图解释电脑设置或对朋友的系统进行故障诊断时，我都是这样的感觉。
 

@@ -1,6 +1,6 @@
 # 是时候开始拼图交换了
 
-> 原文:[https://life hacker . com/its-time-to-start-a-puzzle-exchange-1843687097](https://lifehacker.com/its-time-to-start-a-puzzle-exchange-1843687097)
+> 原文：<https://lifehacker.com/its-time-to-start-a-puzzle-exchange-1843687097>
 
 美国的拼图游戏消费在物理距离时代疯狂增长。困在室内无事可做的人们转向了颜色鲜艳、形状不规则的小纸板片，以此给他们一种控制混乱世界的感觉。为了证明这一点，看看正在进行的 Kickstarter 上来自魔术拼图公司的(公认听起来非常酷的)魔术拼图，该公司已经筹集了惊人的 250 万美元*并且还在增加(完全披露:我是三个拼图的支持者)。*
 

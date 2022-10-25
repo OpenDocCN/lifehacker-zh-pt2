@@ -1,6 +1,6 @@
 # 不要说“生日快乐”，而是听着披萨百吉饼的叮当声洗手
 
-> 原文:[https://life hacker . com/而不是生日快乐洗手送披萨-1842032115](https://lifehacker.com/instead-of-happy-birthday-wash-your-hands-to-the-pizza-1842032115)
+> 原文：<https://lifehacker.com/instead-of-happy-birthday-wash-your-hands-to-the-pizza-1842032115>
 
 洗手很重要，尤其是在 [的时候，比如这些](https://vitals.lifehacker.com/how-to-prepare-for-coronavirus-without-panicking-1841936747) ，但是简单的泼洒热肥皂水是不行的。事实上，洗手有一个正确的方法，它包括唱歌(或哼歌)。
 

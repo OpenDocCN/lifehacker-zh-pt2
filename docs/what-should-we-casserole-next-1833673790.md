@@ -1,6 +1,6 @@
 # 接下来我们应该做什么菜？
 
-> 原文:[https://life hacker . com/what-should-we-砂锅-next-1833673790](https://lifehacker.com/what-should-we-casserole-next-1833673790)
+> 原文：<https://lifehacker.com/what-should-we-casserole-next-1833673790>
 
 大家好，欢迎回到 [*会砂锅*](https://lifehacker.com/tag/will-it-casserole) [*？*](https://lifehacker.com/tag/will-it-casserole) ，我们看到什么饭、什么菜、什么菜系可以重新想象改造成砂锅的栏目。上个月美味可口的砂锅豌豆汤已经吃完了，这意味着我们必须转向一道新的热菜。
 

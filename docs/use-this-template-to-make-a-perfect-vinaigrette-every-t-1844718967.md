@@ -1,6 +1,6 @@
 # use this template to make a perfect vinaigrette every t 1844718967
 
-> 原文:[https://life hacker . com/use-this-template-to-make-a-perfect-vinaigrette-every-t-1844718967](https://lifehacker.com/use-this-template-to-make-a-perfect-vinaigrette-every-t-1844718967)
+> 原文：<https://lifehacker.com/use-this-template-to-make-a-perfect-vinaigrette-every-t-1844718967>
 
 一份好的调味汁应该是咸、甜、酸三种味道的强烈结合。在一个或另一个方向上犯太多错误，你的沙拉就会遭殃。然而，制作美味的调味汁并不难，使用上面(和下面)的模板可以帮助你每次都做好。
 

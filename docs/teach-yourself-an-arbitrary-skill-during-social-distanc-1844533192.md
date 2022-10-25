@@ -1,6 +1,6 @@
 # 在社交距离中自学一项任意的技能
 
-> 原文:[https://life hacker . com/teach-yourself-an-arbitrary-skill-in-social-distance-1844533192](https://lifehacker.com/teach-yourself-an-arbitrary-skill-during-social-distanc-1844533192)
+> 原文：<https://lifehacker.com/teach-yourself-an-arbitrary-skill-during-social-distanc-1844533192>
 
 我一直认为，每个人都应该学习一项古怪的技能，如果不是几项的话，来教会自己在武断中找到快乐。除了享受那件事，做好任何事都不需要“理由”,特别是如果它走在挑战性和可能性之间——只要你的能力足够远，如果你足够努力，你就能做到。
 

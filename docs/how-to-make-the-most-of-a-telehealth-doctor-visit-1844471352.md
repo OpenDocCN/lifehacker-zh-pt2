@@ -1,6 +1,6 @@
 # 如何充分利用远程健康医生的访问
 
-> 原文:[https://life hacker . com/how-to-make-the-most-a-tele health-doctor-visit-1844471352](https://lifehacker.com/how-to-make-the-most-of-a-telehealth-doctor-visit-1844471352)
+> 原文：<https://lifehacker.com/how-to-make-the-most-of-a-telehealth-doctor-visit-1844471352>
 
 虽然远程医疗已经存在多年，但在新冠肺炎疫情期间，它已经从一个鲜为人知的医疗选项变成了许多人的生命线。无论您是想与您的医生进行虚拟检查，询问潜在的 COVID 症状，还是您的孩子在封锁期间不知何故患上了红眼病，他们需要看医生，远程医疗在短短几个月内已经成为主流。
 

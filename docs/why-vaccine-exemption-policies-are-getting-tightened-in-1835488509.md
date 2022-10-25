@@ -1,6 +1,6 @@
 # 为什么加州的疫苗豁免政策越来越严格
 
-> 原文:[https://life hacker . com/why-vaccine-exemption-policies-be-getting-tighten-in-1835488509](https://lifehacker.com/why-vaccine-exemption-policies-are-getting-tightened-in-1835488509)
+> 原文：<https://lifehacker.com/why-vaccine-exemption-policies-are-getting-tightened-in-1835488509>
 
 据报道，杰西卡·贝尔和小罗伯特·F·肯尼迪昨天在加州游说反对收紧疫苗的医疗豁免。各州对学龄儿童的疫苗要求各不相同:在一些州，如果父母出于“个人信仰”反对，孩子可以不打疫苗。在其他地方，比如加利福尼亚，医疗豁免是选择退出的唯一合法途径。
 

@@ -1,6 +1,6 @@
 # 在哪里可以获得全国冷冻酸奶日的免费酸奶
 
-> 原文:[https://life hacker . com/where-to-get-free-froyo-for-national-冷冻酸奶-day-1841458397](https://lifehacker.com/where-to-get-free-froyo-for-national-frozen-yogurt-day-1841458397)
+> 原文：<https://lifehacker.com/where-to-get-free-froyo-for-national-frozen-yogurt-day-1841458397>
 
 在隆冬时节庆祝全国冷冻酸奶日没有多大意义，但让我们面对现实:一年中的任何时候都是吃甜食的好时候。如果你是一个冷冻酸奶爱好者，今天(2 月 6 日，星期四)就可以省钱，在这些连锁店中排队购买免费(或更便宜)的 froyo。
 

@@ -1,6 +1,6 @@
 # 后疫情时代，购物将会是什么样子
 
-> 原文:[https://life hacker . com/what-shopping-will-like-post-疫情-1843300121](https://lifehacker.com/what-shopping-will-be-like-post-pandemic-1843300121)
+> 原文：<https://lifehacker.com/what-shopping-will-be-like-post-pandemic-1843300121>
 
 现在，你已经习惯了杂货店收银台的有机玻璃栅栏。药店地板上的霓虹灯带告诉你在等待结账时应该站在哪里，这已经成为一个熟悉的景象。你知道，当你在五金店排队时，最接近夜总会的方式就是遵守一进一出的规则。
 

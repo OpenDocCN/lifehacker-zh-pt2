@@ -1,6 +1,6 @@
 # 如何在室内制作烟熏鸡尾酒
 
-> 原文:[https://life hacker . com/how-to-make-a-smoked-cocktail-室内-1838461986](https://lifehacker.com/how-to-make-a-smoked-cocktail-indoors-1838461986)
+> 原文：<https://lifehacker.com/how-to-make-a-smoked-cocktail-indoors-1838461986>
 
 液体烟雾可以用来给鸡尾酒添加木头和烧焦的味道，但它只有一种味道。烟熏木材是一种极好的味道，但是当你可以用烟熏茶、烟熏肉桂或烟熏八角来调味你的鸡尾酒时，为什么要止步于此呢？
 

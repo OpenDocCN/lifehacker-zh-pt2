@@ -1,6 +1,6 @@
 # 如何区分酸痛和疼痛
 
-> 原文:[https://life hacker . com/how-to-tell-the-difference-an-pain-1832730467](https://lifehacker.com/how-to-tell-the-difference-between-soreness-and-pain-1832730467)
+> 原文：<https://lifehacker.com/how-to-tell-the-difference-between-soreness-and-pain-1832730467>
 
 有没有在健身房锻炼后感到特别酸痛的经历？
 

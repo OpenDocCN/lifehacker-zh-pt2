@@ -1,6 +1,6 @@
 # 寻找谷歌秘密添加的这些 Pixel 4 新功能
 
-> 原文:[https://life hacker . com/look-for-these-new-pixel-4-features-Google-secretly-add-1840613076](https://lifehacker.com/look-for-these-new-pixel-4-features-google-secretly-add-1840613076)
+> 原文：<https://lifehacker.com/look-for-these-new-pixel-4-features-google-secretly-add-1840613076>
 
 由于第一次“像素功能下降”更新 ，整个 Pixel 手机系列最近获得了 [一些新功能，但看起来谷歌也设法偷偷加入了一些额外的 Pixel 4 更新。](https://lifehacker.com/everything-google-is-launching-in-its-first-pixel-featu-1840345270) 
 

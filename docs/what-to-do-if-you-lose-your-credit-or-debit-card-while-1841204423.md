@@ -1,6 +1,6 @@
 # 如果你在旅行中丢失了信用卡或借记卡，该怎么办
 
-> 原文:[https://life hacker . com/what-do if you-lost your-credit-or-debit-card-while 1841204423](https://lifehacker.com/what-to-do-if-you-lose-your-credit-or-debit-card-while-1841204423)
+> 原文：<https://lifehacker.com/what-to-do-if-you-lose-your-credit-or-debit-card-while-1841204423>
 
 我 magine，如果你愿意的话， Lifehacker 特约撰稿人 [Josh Ocampo](https://kinja.com/joshocampo) 站在东京一家 7-11 便利店外，紧握着自己的肠子，等待银行的消息。乔希借记卡上的芯片在旅行途中停止了工作，这意味着他无法从自动取款机上取钱。据他回忆，当地一家可以治疗“我一生中最严重的食物中毒”的诊所不接受信用卡。
 

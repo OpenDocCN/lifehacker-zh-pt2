@@ -1,6 +1,6 @@
 # 不要下载这些伪造的冠状病毒“跟踪”安卓应用
 
-> 原文:[https://life hacker . com/don-download-these-bogus-coronavirus-tracking-Android-1842358987](https://lifehacker.com/dont-download-these-bogus-coronavirus-tracking-android-1842358987)
+> 原文：<https://lifehacker.com/dont-download-these-bogus-coronavirus-tracking-android-1842358987>
 
 当我们都处于恐慌状态时，现在很容易上当受骗。只需要一个有一点空闲时间的人制作一个“冠状病毒仪表板”，要求不知情的用户在他们的机器上安装一个应用程序，当你认为你实际上正在下载一个程序来帮助你更好地了解外面发生了什么时，*嘣*——你被诱骗在你的系统上安装恶意软件。
 

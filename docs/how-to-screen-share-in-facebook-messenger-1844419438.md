@@ -1,6 +1,6 @@
 # 如何在 Facebook Messenger 中筛选分享
 
-> 原文:[https://life hacker . com/how-to-screen-share-in-Facebook-messenger-1844419438](https://lifehacker.com/how-to-screen-share-in-facebook-messenger-1844419438)
+> 原文：<https://lifehacker.com/how-to-screen-share-in-facebook-messenger-1844419438>
 
 Facebook Messenger 现在允许您在视频通话期间共享其他打开的应用程序、浏览器标签、照片、视频等。更好的是，你不必等待它在你喜欢的平台上推出:新的屏幕共享功能现在可以在 Android、iOS 和桌面版本的 Messenger、Messenger Rooms、Workplace Rooms 和任何其他可以进行视频通话的脸书应用程序上使用。
 

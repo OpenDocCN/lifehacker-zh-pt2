@@ -1,6 +1,6 @@
 # 如何为你的安卓系统获取华硕 ROG 手机 3 的动态壁纸
 
-> 原文:[https://life hacker . com/how-to-get-ASUS-rog-phone-3s-live-wallpapers-for-your-a-1844498897](https://lifehacker.com/how-to-get-asus-rog-phone-3s-live-wallpapers-for-your-a-1844498897)
+> 原文：<https://lifehacker.com/how-to-get-asus-rog-phone-3s-live-wallpapers-for-your-a-1844498897>
 
 华硕的 ROG Phone 3 是一款强大的专注于游戏的设备。甚至它的壁纸也被设计成当你打开它的高性能“X 模式”时会产生动画效果其目的是唤起那种“极限游戏”的氛围(有时是错误的)，但动画壁纸实际上看起来非常整洁——多亏了 XDA 论坛用户 linuxct，你现在可以在任何运行 Android 9 或更高版本的 手机上安装它们。
 

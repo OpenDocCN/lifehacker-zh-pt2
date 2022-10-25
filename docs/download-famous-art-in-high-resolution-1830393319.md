@@ -1,6 +1,6 @@
 # 下载高分辨率的著名艺术作品
 
-> 原文:[https://life hacker . com/download-namely-art-in-high-resolution-1830393319](https://lifehacker.com/download-famous-art-in-high-resolution-1830393319)
+> 原文：<https://lifehacker.com/download-famous-art-in-high-resolution-1830393319>
 
 芝加哥艺术学院最近更新了网站，发布了一个可搜索的高分辨率艺术数据库 。更好的是，许多艺术作品都是公共领域的，这意味着你可以合法地使用它们，即使是出于商业目的。(查看每幅作品页面上的版权声明。)你会注意到，虽然你可以放大大多数艺术品，但只有公共领域的艺术品会包含全分辨率下载链接。
 

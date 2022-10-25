@@ -1,6 +1,6 @@
 # 如果你在社交媒体上被拒绝该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-you-rejected-on-social-media-1832560593](https://lifehacker.com/what-to-do-if-youre-rejected-on-social-media-1832560593)
+> 原文：<https://lifehacker.com/what-to-do-if-youre-rejected-on-social-media-1832560593>
 
 在社交媒体上管理关系的细微差别会让任何人头疼。虽然我讨厌引用 [KonMari](https://lifehacker.com/konmari-your-twitter-feed-with-this-tool-1832407341) 这个短语，但你不应该忍受那些在你的数字聚会场所里不会引发欢乐的事物(或人)。我们已经给了你很多建议，告诉你如何 [从你的网络生活中清除那些愚蠢、烦人的人...但是如果你是那个让别人悲伤的人呢？](https://lifehacker.com/how-to-reject-someone-on-social-media-1832464867) 
 

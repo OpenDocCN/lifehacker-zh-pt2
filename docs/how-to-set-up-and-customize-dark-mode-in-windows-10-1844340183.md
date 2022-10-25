@@ -1,6 +1,6 @@
 # 如何在 Windows 10 中设置和自定义黑暗模式
 
-> 原文:[https://life hacker . com/how-to-set-up-and-customize-dark-mode-in-windows-10-1844340183](https://lifehacker.com/how-to-set-up-and-customize-dark-mode-in-windows-10-1844340183)
+> 原文：<https://lifehacker.com/how-to-set-up-and-customize-dark-mode-in-windows-10-1844340183>
 
 我永远不会离开你，黑暗模式。我越能让我使用的每个应用程序让我想起我十几岁的哥特岁月，就越好。今天，我们将向您展示如何在 Windows 10 中启用黑暗模式。
 

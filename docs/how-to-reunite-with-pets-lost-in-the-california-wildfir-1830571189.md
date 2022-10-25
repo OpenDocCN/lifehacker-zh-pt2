@@ -1,6 +1,6 @@
 # 如何与在加州野火中失踪的宠物团聚
 
-> 原文:[https://life hacker . com/how-to-butterfly-with-pets-lost-in-the-California-wild fire-1830571189](https://lifehacker.com/how-to-reunite-with-pets-lost-in-the-california-wildfir-1830571189)
+> 原文：<https://lifehacker.com/how-to-reunite-with-pets-lost-in-the-california-wildfir-1830571189>
 
 在加利福尼亚的野火中，宠物和牲畜与他们的人失散了，救援人员已经将尽可能多的动物带到了安全的地方。如果你在寻找一只丢失的宠物，许多救援机构已经把宠物的照片放到了网上。
 

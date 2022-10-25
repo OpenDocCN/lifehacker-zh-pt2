@@ -1,6 +1,6 @@
 # life hacker 2019 年最佳观点
 
-> 原文:[https://life hacker . com/life hacker-best-opinions-of-2019-1840515153](https://lifehacker.com/lifehackers-best-opinions-of-2019-1840515153)
+> 原文：<https://lifehacker.com/lifehackers-best-opinions-of-2019-1840515153>
 
 今年我们有很多意见，每一个都很完美，但有些比其他的更完美。Lifehacker 的工作人员在我们之间进行了讨论，并决定这些是我们在 2019 年的最佳观点。谢谢你同意。
 

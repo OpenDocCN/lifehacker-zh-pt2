@@ -1,6 +1,6 @@
 # 如何增强浏览器的拼写检查功能
 
-> 原文:[https://life hacker . com/how-to-beef-up-your-browsers-spell checker-1843757408](https://lifehacker.com/how-to-beef-up-your-browsers-spellchecker-1843757408)
+> 原文：<https://lifehacker.com/how-to-beef-up-your-browsers-spellchecker-1843757408>
 
 由于谷歌和微软最近的合作，基于 Chromium 的 Windows 网络浏览器获得了一个全新的拼写检查器。Windows 拼写检查，而不是 [Hunspell](http://hunspell.github.io/) ，现在将帮助你修复你的各种错别字和 [明显的拼写错误](https://www.merriam-webster.com/word-games/spell-it) (特别是 URL 和首字母缩写)，但你可能需要先启用该功能才能利用它。
 

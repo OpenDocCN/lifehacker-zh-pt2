@@ -1,6 +1,6 @@
 # 找到不会歧视你的狗的房主保险
 
-> 原文:[https://life hacker . com/find-owners-insurance-that-won-t-discrimina-again-1844712579](https://lifehacker.com/find-homeowners-insurance-that-won-t-discriminate-again-1844712579)
+> 原文：<https://lifehacker.com/find-homeowners-insurance-that-won-t-discriminate-again-1844712579>
 
 当你拥有房产时，房屋保险是一项不可避免的开支。不幸的是，对于爱狗人士来说，养狗——尤其是某些品种——可能会增加成本。原因如下:根据 [保险信息研究所](https://www.iii.org/article/spotlight-on-dog-bite-liability) 的数据，2019 年，与狗相关的伤害使房屋所有者保险公司损失了 7.97 亿美元，狗咬索赔也在增加。
 

@@ -1,6 +1,6 @@
 # 洗手仍然很重要
 
-> 原文:[https://life hacker . com/洗手仍然重要-1844393647](https://lifehacker.com/washing-your-hands-is-still-important-1844393647)
+> 原文：<https://lifehacker.com/washing-your-hands-is-still-important-1844393647>
 
 还记得早期的疫情吗，那时人们谈论最多的避免新冠肺炎的方法是洗手，不要摸脸？虽然我们 [现在对口罩](https://lifehacker.com/why-advice-on-masks-seems-to-be-constantly-changing-1843956784)[潜在的空气传播](https://lifehacker.com/what-would-it-mean-if-the-coronavirus-is-airborne-1844281525) 有了更多的了解，但我希望你还没有停止洗手。
 

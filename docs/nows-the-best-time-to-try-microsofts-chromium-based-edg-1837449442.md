@@ -1,6 +1,6 @@
 # 现在是尝试微软基于 Chromium 的 Edge 浏览器的最佳时机
 
-> 原文:[https://life hacker . com/nows-the-best-time-to-try-Microsoft-chromium-based-EDG-1837449442](https://lifehacker.com/nows-the-best-time-to-try-microsofts-chromium-based-edg-1837449442)
+> 原文：<https://lifehacker.com/nows-the-best-time-to-try-microsofts-chromium-based-edg-1837449442>
 
 微软基于 Chromium 的快速 Edge 浏览器 [已经有了](https://lifehacker.com/how-to-beta-test-microsoft-s-new-chromium-based-edge-br-1833889177) 的开发者版本和金丝雀版本(更不用说泄露的版本)好几个月了。现在，该公司已经正式推出了一个更稳定的浏览器“测试”频道，你可能想最终冒险尝试一下 Edge。
 

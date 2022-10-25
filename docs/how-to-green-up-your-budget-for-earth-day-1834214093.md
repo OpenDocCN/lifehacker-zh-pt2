@@ -1,6 +1,6 @@
 # 如何为地球日绿色预算
 
-> 原文:[https://life hacker . com/how-to-green-up-your-budget-for-earth-day-1834214093](https://lifehacker.com/how-to-green-up-your-budget-for-earth-day-1834214093)
+> 原文：<https://lifehacker.com/how-to-green-up-your-budget-for-earth-day-1834214093>
 
 当我们在小学庆祝地球日时，我们学习了三个 r:*减少*、*再利用*、*T5、*回收。** 
 

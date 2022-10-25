@@ -1,6 +1,6 @@
 # 如何在 Firefox 和 Chrome 中观看画中画视频
 
-> 原文:[https://life hacker . com/how-to-watch-picture-in-Firefox-and-c-1840272901](https://lifehacker.com/how-to-watch-picture-in-picture-videos-in-firefox-and-c-1840272901)
+> 原文：<https://lifehacker.com/how-to-watch-picture-in-picture-videos-in-firefox-and-c-1840272901>
 
 得益于最 [最近的火狐更新](https://blog.mozilla.org/blog/2019/12/03/news-from-firefox-on-mobile-private-network-and-desktop/) ，Mozilla 的浏览器终于可以和谷歌 Chrome 的画中画功能比肩了。众所周知，PiP 允许你在浏览其他网站的同时观看视频——如果你有最喜欢的节目不想错过，这是最终的生产力黑客。
 

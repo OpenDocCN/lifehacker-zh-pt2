@@ -1,6 +1,6 @@
 # 为明年的假期准备一份遗憾清单
 
-> 原文:[https://life hacker . com/prepare-for-next-years-a-list-of-affairs-1831578774](https://lifehacker.com/prepare-for-next-years-holidays-with-a-list-of-regrets-1831578774)
+> 原文：<https://lifehacker.com/prepare-for-next-years-holidays-with-a-list-of-regrets-1831578774>
 
 不管你今年如何度假，都不太可能按计划进行。尽管很诱人，但立即抑制对一次灾难性的跨国飞行或一次意外烹饪不足火鸡只 [的记忆会让你明年做同样的事情](https://lifehacker.com/why-its-so-hard-to-learn-from-our-mistakes-and-what-yo-1683224583) 。你应该在记忆犹新的时候，写下你希望自己能以不同方式去做的每一件事。
 

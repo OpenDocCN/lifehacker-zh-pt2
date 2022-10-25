@@ -1,6 +1,6 @@
 # 如何把举和跑结合起来
 
-> 原文:[https://life hacker . com/how-to-combine-lifting-and-running-1844162781](https://lifehacker.com/how-to-combine-lifting-and-running-1844162781)
+> 原文：<https://lifehacker.com/how-to-combine-lifting-and-running-1844162781>
 
 如果你是一名跑步者，强壮会有所帮助。如果你举重，做点有氧运动还是不错的。但有时你只想同时擅长两件事。有没有可能同时训练跑步和？是的，我做过。但是这需要一点额外的思考和计划。
 

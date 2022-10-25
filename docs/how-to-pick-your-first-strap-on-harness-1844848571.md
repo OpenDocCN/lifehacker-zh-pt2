@@ -1,6 +1,6 @@
 # how to pick your first strap on harness 1844848571
 
-> 原文:[https://life hacker . com/how-to-pick-your ' s first-strap-on-harness-1844848571](https://lifehacker.com/how-to-pick-your-first-strap-on-harness-1844848571)
+> 原文：<https://lifehacker.com/how-to-pick-your-first-strap-on-harness-1844848571>
 
 在我告诉你如何找到最适合你的绑带之前，让我们先搞清楚一件事:在这个家里，我们不说“钉住”
 

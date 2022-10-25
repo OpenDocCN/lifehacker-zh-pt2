@@ -1,6 +1,6 @@
 # 我有很多钱可以花在赛车上，但是我不想要典型的选择！我应该买什么？
 
-> 原文:[https://jalopnik . com/I-ve-get-serious-money-spend-on-a-track-car-but-I-do-1829835432](https://jalopnik.com/i-ve-got-serious-money-to-spend-on-a-track-car-but-i-do-1829835432)
+> 原文：<https://jalopnik.com/i-ve-got-serious-money-to-spend-on-a-track-car-but-i-do-1829835432>
 
 皮特一年中的大部分时间都在船上度过，但当他在家时，他喜欢开快车，并创造一些单圈时间。他准备把他的克尔维特换成可以应付赛道日的东西，但不想要通常的嫌疑人。他应该买什么车？
 

@@ -1,6 +1,6 @@
 # 如何确保你的网上遗嘱具有法律约束力
 
-> 原文:[https://life hacker . com/how-to-assure-your-online-will-is-legal-binding-1839259530](https://lifehacker.com/how-to-make-sure-your-online-will-is-legally-binding-1839259530)
+> 原文：<https://lifehacker.com/how-to-make-sure-your-online-will-is-legally-binding-1839259530>
 
 如果你使用像 LegalZoom 或 FreeWill 这样的在线服务来创建你的遗嘱，不要以为你也可以在网上签署和保存你的遗嘱。将它打印出来，让公证人出席签字仪式，并将一份硬拷贝存放在安全可靠的地方。
 

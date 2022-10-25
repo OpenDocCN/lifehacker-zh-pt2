@@ -1,6 +1,6 @@
 # 一百万和十亿的区别
 
-> 原文:[https://life hacker . com/10 亿分之差 1830493909](https://lifehacker.com/the-difference-between-one-million-and-one-billion-1830493909)
+> 原文：<https://lifehacker.com/the-difference-between-one-million-and-one-billion-1830493909>
 
 理智上，我们都知道十亿比一百万多得多。你知道，多 1000 倍。例如，我们知道杰夫·贝索斯比碧昂斯富有得多，比尔·盖茨的财富让卡戴珊家族相形见绌。
 

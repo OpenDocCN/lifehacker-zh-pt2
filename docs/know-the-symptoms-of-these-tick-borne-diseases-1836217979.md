@@ -1,6 +1,6 @@
 # 了解这些蜱传疾病的症状
 
-> 原文:[https://life hacker . com/know-the-symptoms-of-these-the-tick-border-diseases-1836217979](https://lifehacker.com/know-the-symptoms-of-these-tick-borne-diseases-1836217979)
+> 原文：<https://lifehacker.com/know-the-symptoms-of-these-tick-borne-diseases-1836217979>
 
 蜱虫在美国很多地方越来越常见，而且 [了解你所在地区的蜱虫](https://lifehacker.com/know-these-tick-species-to-stay-safe-outdoors-1836082172) 很有好处，因为它们有不同的种类。了解常见蜱传疾病的症状也很好，以防万一你被咬了，开始感觉不舒服。
 

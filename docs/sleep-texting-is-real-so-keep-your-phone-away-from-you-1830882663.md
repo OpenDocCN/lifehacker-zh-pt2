@@ -1,6 +1,6 @@
 # 睡觉发短信是真的，所以把你的手机放在远离你的床的地方
 
-> 原文:[https://life hacker . com/sleep-texting-is-real-so-keep-your-phone-away-you-1830882663](https://lifehacker.com/sleep-texting-is-real-so-keep-your-phone-away-from-you-1830882663)
+> 原文：<https://lifehacker.com/sleep-texting-is-real-so-keep-your-phone-away-from-you-1830882663>
 
 你已经知道你不应该睡在手机附近，因为这样做会打乱你的睡眠时间表 。还有另一个原因:你可以给你的朋友发无意义的短信，却不记得早上的对话。
 

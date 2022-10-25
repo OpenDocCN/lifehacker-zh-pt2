@@ -1,6 +1,6 @@
 # 你所在城市最酷的秘密地点是哪里？
 
-> 原文:[https://life hacker . com/whats-the-cool-secret-spot-in-your city-1835941517](https://lifehacker.com/whats-the-coolest-secret-spot-in-your-city-1835941517)
+> 原文：<https://lifehacker.com/whats-the-coolest-secret-spot-in-your-city-1835941517>
 
 如果你乘坐曼哈顿下城 6 号列车经过线路终点，你会看到废弃的市政厅地铁站。如果你在旧金山的住宅区漫步，你可以滑下水泥的苏厄德街滑道，或者走上瓦肯楼梯。直到最近，休斯顿市中心还有一个字面意义上的红色大按钮，你可以按下它，让气泡穿过河口的死水。你的城市有什么秘密地点？
 

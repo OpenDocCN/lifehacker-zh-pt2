@@ -1,6 +1,6 @@
 # im a disaster scientist heres why we need to think abo 1842726200
 
-> 原文:[https://gizmodo . com/im-a-disaster-scientist-heres-why-we-need-to-think-ABO-1842726200](https://gizmodo.com/im-a-disaster-scientist-heres-why-we-need-to-think-abo-1842726200)
+> 原文：<https://gizmodo.com/im-a-disaster-scientist-heres-why-we-need-to-think-abo-1842726200>
 
 当你可以离开你的房子或者科学家研发出疫苗时，冠状病毒疫情并没有结束。当我们恢复时，它就结束了。正如任何破坏性的飓风、龙卷风、地震、石油泄漏或恐怖袭击一样，从这场疫情中复苏将会发生。
 

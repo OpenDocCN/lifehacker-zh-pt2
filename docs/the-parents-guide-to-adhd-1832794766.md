@@ -1,6 +1,6 @@
 # the parents guide to adhd 1832794766
 
-> 原文:[https://lifehacker.com/the-parents-guide-to-adhd-1832794766](https://lifehacker.com/the-parents-guide-to-adhd-1832794766)
+> 原文：<https://lifehacker.com/the-parents-guide-to-adhd-1832794766>
 
 我儿子德克斯特六年级计算机课不及格。这个孩子自学了 Adobe Premiere 来编辑《我的世界》的视频，并开始学习编码，但他在一门基础的中学计算机课“如何打开一个文件”上不及格。因此，我们会见了他的老师，这次会见呼应了我们从幼儿园开始就一直与他的老师举行的会议。
 

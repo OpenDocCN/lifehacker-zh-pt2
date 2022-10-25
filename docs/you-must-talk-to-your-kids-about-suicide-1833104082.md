@@ -1,6 +1,6 @@
 # 你必须和你的孩子谈论自杀
 
-> 原文:[https://life hacker . com/you-must-talk to-your-kids-about-自杀-1833104082](https://lifehacker.com/you-must-talk-to-your-kids-about-suicide-1833104082)
+> 原文：<https://lifehacker.com/you-must-talk-to-your-kids-about-suicide-1833104082>
 
 作为一名家长，我的孩子——或者我认识的任何一个孩子——可能会考虑自杀，这种想法是我想推得远远的。不。天啊，不。不可能。
 

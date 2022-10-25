@@ -1,6 +1,6 @@
 # 当你已经负债时如何获得一张信用卡
 
-> 原文:[https://life hacker . com/how-to-get-a-credit-card-when-you-re-around-in-hacken-1841917075](https://lifehacker.com/how-to-get-a-credit-card-when-you-re-already-in-debt-1841917075)
+> 原文：<https://lifehacker.com/how-to-get-a-credit-card-when-you-re-already-in-debt-1841917075>
 
 所以你有信用卡债务。不仅如此:你真的可以使用另一张信用卡提供的金融回旋空间。一个囊中羞涩的人能做什么？
 

@@ -1,6 +1,6 @@
 # 使用键盘强制退出 Mac 应用程序
 
-> 原文:[https://life hacker . com/force-quit-MAC-applications-with-the-keyboard-5816504](https://lifehacker.com/force-quit-mac-applications-with-the-keyboard-5816504)
+> 原文：<https://lifehacker.com/force-quit-mac-applications-with-the-keyboard-5816504>
 
 很少有什么事情比你在流媒体或网上冲浪时浏览器死机或 messenger 应用程序中途锁定更令人沮丧的了。那么，如果你在 Mac 上面对旋转的死亡沙滩球，而你正在使用的应用程序没有响应，该怎么办呢？
 

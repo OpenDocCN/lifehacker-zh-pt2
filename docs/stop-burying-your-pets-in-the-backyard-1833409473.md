@@ -1,6 +1,6 @@
 # 不要把你的宠物埋在后院
 
-> 原文:[https://life hacker . com/stop-burying-your-pets-in-the-后院-1833409473](https://lifehacker.com/stop-burying-your-pets-in-the-backyard-1833409473)
+> 原文：<https://lifehacker.com/stop-burying-your-pets-in-the-backyard-1833409473>
 
 我 7 岁的时候埋了我第一只也是唯一一只宠物。
 

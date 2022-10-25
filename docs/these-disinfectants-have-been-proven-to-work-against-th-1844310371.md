@@ -1,6 +1,6 @@
 # 这些消毒剂已被证明对冠状病毒有效
 
-> 原文:[https://life hacker . com/这些消毒剂已被证明对 th-1844310371](https://lifehacker.com/these-disinfectants-have-been-proven-to-work-against-th-1844310371)
+> 原文：<https://lifehacker.com/these-disinfectants-have-been-proven-to-work-against-th-1844310371>
 
 有 [431 消毒剂](https://www.epa.gov/pesticide-registration/list-n-disinfectants-use-against-sars-cov-2-covid-19) 美国环保局称将杀死新型冠状病毒病毒，这种病毒导致新冠肺炎。他们上榜是因为他们能杀死其他类似的病毒。但是现在两种消毒剂已经测试成功，对抗你所担心的真正的 T4 冠状病毒。
 

@@ -1,6 +1,6 @@
 # 你的家庭健身房需要这些被低估的升级
 
-> 原文:[https://life hacker . com/your-home-gym-needs-these-undertised-upgrades-1844083296](https://lifehacker.com/your-home-gym-needs-these-underrated-upgrades-1844083296)
+> 原文：<https://lifehacker.com/your-home-gym-needs-these-underrated-upgrades-1844083296>
 
 我从三月份开始在家训练，在这段时间里，我已经非常了解我的家庭健身房(又名“我的车库里有几堆生锈的东西”)。除了明显的东西——重量之类的——事实证明还有一些小东西可以让车库感觉更像一个真正的健身房。
 

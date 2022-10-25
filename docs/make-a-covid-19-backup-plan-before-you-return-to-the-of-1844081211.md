@@ -1,6 +1,6 @@
 # make a covid 19 backup plan before you return to the of 1844081211
 
-> 原文:[https://life hacker . com/make-a-新冠肺炎-backup-plan-before-you-return-of-1844081211](https://lifehacker.com/make-a-covid-19-backup-plan-before-you-return-to-the-of-1844081211)
+> 原文：<https://lifehacker.com/make-a-covid-19-backup-plan-before-you-return-to-the-of-1844081211>
 
 在家工作了几个月后，你可能会对回到办公室的前景感到兴奋。共享微波炉！饮水机聊天！会议室预订已满！过去的所有不便，但新常态的新奇。
 

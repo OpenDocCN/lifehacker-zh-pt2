@@ -1,6 +1,6 @@
 # 你现在可以设置的最好的 Gmail 插件
 
-> 原文:[https://life hacker . com/the-best-Gmail-add-ons-you-can-set-up-right-now-1829872863](https://lifehacker.com/the-best-gmail-add-ons-you-can-set-up-right-now-1829872863)
+> 原文：<https://lifehacker.com/the-best-gmail-add-ons-you-can-set-up-right-now-1829872863>
 
 没有人对电子邮件的工作方式感到满意。
 

@@ -1,6 +1,6 @@
 # 如何防止宝宝尿在你身上
 
-> 原文:[https://life hacker . com/how-to-prevent-you-1835940769](https://lifehacker.com/how-to-prevent-your-baby-from-peeing-on-you-1835940769)
+> 原文：<https://lifehacker.com/how-to-prevent-your-baby-from-peeing-on-you-1835940769>
 
 这是一个惊人的发现，几乎每个新父母都会发现:当你给婴儿换尿布时，你正处于飞溅区。不过，也有一些保持警惕的方法，正如我从 [后代脸书](https://www.facebook.com/groups/2018785615043946/) 那里学到的。这里有四种方法。
 

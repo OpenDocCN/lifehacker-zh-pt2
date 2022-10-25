@@ -1,6 +1,6 @@
 # 如何在假日办公室聚会上与人交谈
 
-> 原文:[https://life hacker . com/how-to-talk-to-any one-a-holiday-office-party-1831078084](https://lifehacker.com/how-to-talk-to-anyone-at-a-holiday-office-party-1831078084)
+> 原文：<https://lifehacker.com/how-to-talk-to-anyone-at-a-holiday-office-party-1831078084>
 
 所有的聚会都有尴尬的时刻，但是在一个有开放吧台的同事房间里，你会感觉特别危险。这里有一些建议，告诉你如何和从老板到实习生的每一个人交谈，这样你就可以在周一早上高昂着头回到工作中。
 

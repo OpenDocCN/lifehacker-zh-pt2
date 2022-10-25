@@ -1,6 +1,6 @@
 # 你所在的城市最好的户外餐饮是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-outdoor-in-your-city-1835521458](https://lifehacker.com/whats-the-best-outdoor-dining-in-your-city-1835521458)
+> 原文：<https://lifehacker.com/whats-the-best-outdoor-dining-in-your-city-1835521458>
 
 好的户外用餐不仅仅是人行道上几把摇摇晃晃的椅子。你得稍微打扮一下这个地方；你必须在户外提供*属于*的食物。让你的食客与车流保持一定的距离，或者有一个很好的理由让他们呆在繁忙的人行道上。所以请在评论中告诉我们:在你的城市里，哪里是外出就餐的最佳地点？
 

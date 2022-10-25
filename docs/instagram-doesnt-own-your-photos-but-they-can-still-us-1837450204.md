@@ -1,6 +1,6 @@
 # Instagram 不拥有你的照片，但他们仍然可以永远使用它们
 
-> 原文:[https://life hacker . com/insta gram-not-own-your-photos-but-they-can-still-us-1837450204](https://lifehacker.com/instagram-doesnt-own-your-photos-but-they-can-still-us-1837450204)
+> 原文：<https://lifehacker.com/instagram-doesnt-own-your-photos-but-they-can-still-us-1837450204>
 
 本周早些时候，能源部长贾德·阿帕图、黛布拉·梅辛和里克·perry⁠—the 控制着我们所有的 weapons⁠—fell 核武器，因为 Instagram 上流传的一个谎言:Instagram 改变了政策，以便他们可以随意使用你的所有照片、信息和其他信息。
 

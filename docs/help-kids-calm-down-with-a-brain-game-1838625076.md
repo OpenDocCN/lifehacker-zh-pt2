@@ -1,6 +1,6 @@
 # 用“脑力游戏”帮助孩子平静下来
 
-> 原文:[https://life hacker . com/help-kids-用脑子冷静下来-game-1838625076](https://lifehacker.com/help-kids-calm-down-with-a-brain-game-1838625076)
+> 原文：<https://lifehacker.com/help-kids-calm-down-with-a-brain-game-1838625076>
 
 初学走路的孩子的问题在于，他们毫无理性。当然，这不是他们的错。在这些大脑完全发育并能够向世界提供真正的逻辑推理之前，这将是一个坚实的二十年，但仍然如此。令人沮丧。
 

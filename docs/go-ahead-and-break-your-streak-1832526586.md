@@ -1,6 +1,6 @@
 # 去打破你的记录吧
 
-> 原文:[https://life hacker . com/go-ahead-and-break-your-streak-1832526586](https://lifehacker.com/go-ahead-and-break-your-streak-1832526586)
+> 原文：<https://lifehacker.com/go-ahead-and-break-your-streak-1832526586>
 
 这些年来，我们尝试了很多方法来巩固一个新习惯。每天束缚你的自我 只是其中之一，并不适合每个人。然而，似乎每个应用程序都希望你深切关注保持一贯的风格。去他妈的。打破你的记录没关系。
 

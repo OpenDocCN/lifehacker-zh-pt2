@@ -1,6 +1,6 @@
 # 用阿尔顿·布朗的方式储存番茄酱
 
-> 原文:[https://life hacker . com/store-tomato-paste-the-alton-brown-way-1837903302](https://lifehacker.com/store-tomato-paste-the-alton-brown-way-1837903302)
+> 原文：<https://lifehacker.com/store-tomato-paste-the-alton-brown-way-1837903302>
 
 我没有看过美食重启，但乔尔(乔尔的《T2》和《T3》)看过，今天早上他分享了最近一集《T4》中的一个很好的提示:
 

@@ -1,6 +1,6 @@
 # 我的无线网络应该使用哪些 Wifi 频道？
 
-> 原文:[https://life hacker . com/which-wifi-channels-should-I-use-for-my-wireless-networking-1832788063](https://lifehacker.com/which-wifi-channels-should-i-use-for-my-wireless-networ-1832788063)
+> 原文：<https://lifehacker.com/which-wifi-channels-should-i-use-for-my-wireless-networ-1832788063>
 
 [Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)) : title[![](../Images/be764d30b532adad70daeee8be76d9d7.png)](https://wifiguide.kinja.com)[Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)Wireless networking is complicated, but it doesn't have to be. Let us help you out.
 

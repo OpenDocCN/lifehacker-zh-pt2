@@ -1,6 +1,6 @@
 # 不要用信用应用程序来代替检查你的信用报告
 
-> 原文:[https://life hacker . com/dont-use-credit-apps-as-a-substitute-for-checking-your-1838486190](https://lifehacker.com/dont-use-credit-apps-as-a-substitute-for-checking-your-1838486190)
+> 原文：<https://lifehacker.com/dont-use-credit-apps-as-a-substitute-for-checking-your-1838486190>
 
 如果你注册了一个信用监测应用程序，你可能对它最常见的警告很熟悉:“你的信用没有重大变化。”
 

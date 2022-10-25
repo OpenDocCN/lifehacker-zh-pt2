@@ -1,6 +1,6 @@
 # 接触式追踪器的真正用途是什么？
 
-> 原文:[https://life hacker . com/what-do-a-contact-tracer-really-do-1843610547](https://lifehacker.com/what-does-a-contact-tracer-really-do-1843610547)
+> 原文：<https://lifehacker.com/what-does-a-contact-tracer-really-do-1843610547>
 
 接触追踪是流行病学家和公共卫生官员长期使用的一种技术，用于对抗像 T2 艾滋病和肺结核这样的疾病。 [这是一个重要的工具](https://lifehacker.com/what-is-contact-tracing-1842984055) ，用于识别那些可能患病的，并防止感染传播给他人。随着全国继续重新开放，接触者追踪可能在我们遏制传播的努力中发挥重要作用。但是，许多人似乎担心合同跟踪者有能力做什么，以及如果其中一个人伸出手来意味着什么。以下是事实。
 

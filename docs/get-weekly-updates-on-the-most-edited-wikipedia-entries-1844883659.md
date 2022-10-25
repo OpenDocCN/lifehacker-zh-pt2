@@ -1,6 +1,6 @@
 # 获得编辑最多的维基百科条目的每周更新
 
-> 原文:[https://life hacker . com/get-weekly-updates-on-the-most-edited-Wikipedia-entries-1844883659](https://lifehacker.com/get-weekly-updates-on-the-most-edited-wikipedia-entries-1844883659)
+> 原文：<https://lifehacker.com/get-weekly-updates-on-the-most-edited-wikipedia-entries-1844883659>
 
 有这么多相互竞争的媒体报道——疫情、警察对有色人种的暴力行为、即将到来的选举、特别活跃的飓风季节——有很多东西需要消化。不过，与此同时，你可能还是想知道世界上正在发生什么。如果你发现自己在过去的几个月里连连失败，有另一种方法可以消除沉浸在大量详细信息中的那种渴望。它以每周时事通讯的形式出现，突出了维基百科上的热门话题。以下是你需要知道的。
 

@@ -1,6 +1,6 @@
 # 如何搜索 PDF 评论？
 
-> 原文:[https://life hacker . com/how-can-I-search-through-pdf-comments-1833299295](https://lifehacker.com/how-can-i-search-through-pdf-comments-1833299295)
+> 原文：<https://lifehacker.com/how-can-i-search-through-pdf-comments-1833299295>
 
 告白时间。本周的 Tech 911 有点令人挠头，因为 pdf[的广阔世界令人困惑](https://lifehacker.com/how-do-i-create-a-searchable-archive-of-pdfs-1831845468) ，充其量，通常比其他任何东西都更令人沮丧。你可以找到大量不同的应用程序，让你打开、编辑和 [摆弄 pdf](https://lifehacker.com/tag/pdf)。他们中的一些是免费的，还有一些是免费的，很棒，大部分都要花很多钱。
 

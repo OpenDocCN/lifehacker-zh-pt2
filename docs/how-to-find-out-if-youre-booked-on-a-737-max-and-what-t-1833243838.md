@@ -1,6 +1,6 @@
 # 如何确定您是否预订了 737 Max，如果您被[更新]了该怎么办
 
-> 原文:[https://life hacker . com/how-to-find-out-if-you-booked-on-a-737-max-and-what-t-1833243838](https://lifehacker.com/how-to-find-out-if-youre-booked-on-a-737-max-and-what-t-1833243838)
+> 原文：<https://lifehacker.com/how-to-find-out-if-youre-booked-on-a-737-max-and-what-t-1833243838>
 
 在过去的六个月里，波音 737 Max 8 喷气式飞机 发生了两起致命的坠机事件后，许多乘客和航空公司开始考虑飞机飞行是否安全。
 

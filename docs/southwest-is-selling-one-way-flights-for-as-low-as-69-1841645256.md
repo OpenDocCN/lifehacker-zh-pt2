@@ -1,6 +1,6 @@
 # 西南航空本周出售单程机票，价格低至 69 美元
 
-> 原文:[https://life hacker . com/south west-is-selling-one-way-flights-for-low-as-69-1841645256](https://lifehacker.com/southwest-is-selling-one-way-flights-for-as-low-as-69-1841645256)
+> 原文：<https://lifehacker.com/southwest-is-selling-one-way-flights-for-as-low-as-69-1841645256>
 
 如果你想在接下来的几个月里去旅行，西南航空公司现在正在进行票价促销，可能值得一看。该航空公司提供美国多个不同目的地之间的单程航班，单程票价为 69 美元，因此您可能会以 138 美元或更低的价格进行冒险。
 

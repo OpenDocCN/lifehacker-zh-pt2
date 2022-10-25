@@ -1,6 +1,6 @@
 # 这个假期给谁和多少小费
 
-> 原文:[https://life hacker . com/who-and-how-Dow-to-tip this-holiday-season-1830716631](https://lifehacker.com/who-and-how-much-to-tip-this-holiday-season-1830716631)
+> 原文：<https://lifehacker.com/who-and-how-much-to-tip-this-holiday-season-1830716631>
 
 就像旅行一样，在节假日给小费会滋生困惑和压力。你知道你应该给小费，但是具体给多少，给谁？如果你塞给他 20 美元，你孩子的老师会生气吗？你的发型师期望多少钱？你欠那个屡次无视你电话和短信的管理员什么吗？
 

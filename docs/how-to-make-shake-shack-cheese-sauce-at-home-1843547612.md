@@ -1,6 +1,6 @@
 # 如何在家制作 Shake Shack 奶酪酱
 
-> 原文:[https://life hacker . com/how-to-make-shake-shack-cheese-sauce-in-home-1843547612](https://lifehacker.com/how-to-make-shake-shack-cheese-sauce-at-home-1843547612)
+> 原文：<https://lifehacker.com/how-to-make-shake-shack-cheese-sauce-at-home-1843547612>
 
 我是绝对的垃圾奶酪薯条，我倾向于喜欢光滑，奶油酱超过弹性，融化的线。Shake Shack 是一种非常好的奶酪酱，但我很少在那里吃，因为我住在俄勒冈州，我们还没有奶酪酱。此外，我现在并没有真正离开我的家(咄)。其他人则避开这个链条，因为他们对该公司没有尽快归还 1000 万美元的 PPP 贷款感到愤怒。我们现在都有不去 Shake Shack 的理由，这就是我要说的，但我们仍然可以在家里享受他们的奶酪酱。
 

@@ -1,6 +1,6 @@
 # how to protect yourself if youre forced to return to wo 1843035069
 
-> 原文:[https://life hacker . com/how-to-protect-you-if-you-forced-return-to-wo-1843035069](https://lifehacker.com/how-to-protect-yourself-if-youre-forced-to-return-to-wo-1843035069)
+> 原文：<https://lifehacker.com/how-to-protect-yourself-if-youre-forced-to-return-to-wo-1843035069>
 
 当一些 [州准备再次开放](https://www.vox.com/2020/4/22/21228651/opening-up-save-economy-trump-coronavirus-pandemic-shutdown) 时，不顾专家的建议，工人们在工作中感到不安全时有什么保护措施？劳工部最近宣布，出于一般安全考虑 [拒绝返回工作岗位的工人](https://www.vice.com/en_us/article/jgewm7/gop-states-reopening-early-will-push-people-scared-to-work-off-unemployment) 不能继续领取 [失业救济金](https://www.reuters.com/article/us-health-coronavirus-usa-georgia-worker-idUSKCN2251RD?utm_campaign=trueAnthem%3A%20Trending%20Content&utm_medium=trueAnthem&utm_source=facebook&fbclid=IwAR2yA_WJ-WGxie-NA5MvlFR7wAgK9_MZVKHFTFuvnrloniA3MahGDUi07Gw) ，这使得这种担忧变得尤为紧迫。
 

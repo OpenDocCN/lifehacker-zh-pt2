@@ -1,6 +1,6 @@
 # 我们最喜欢的播客应用程序 Pocket Casts 现在是免费的
 
-> 原文:[https://life hacker . com/pocket-casts-our-new-favorite-podcast-app-is-now-free-1838221079](https://lifehacker.com/pocket-casts-our-new-favorite-podcast-app-is-now-free-1838221079)
+> 原文：<https://lifehacker.com/pocket-casts-our-new-favorite-podcast-app-is-now-free-1838221079>
 
 Pocket Casts 已经是一个很棒的播客应用 ，现在它甚至更好——主要是因为它是免费的。
 

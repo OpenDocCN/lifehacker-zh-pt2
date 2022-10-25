@@ -1,6 +1,6 @@
 # how to play an rpg anywhere any time 1832830780
 
-> 原文:[https://life hacker . com/how-to-play-an-RPG-anywhere-any-time-1832830780](https://lifehacker.com/how-to-play-an-rpg-anywhere-any-time-1832830780)
+> 原文：<https://lifehacker.com/how-to-play-an-rpg-anywhere-any-time-1832830780>
 
 我以前每周都在同一个*地下城&龙*战役*中玩*。现在，我和我的朋友们努力每隔几个月就安排一次游戏。有一次，我试图让它与另一组合作。我们做了一个六个月的涂鸦日历来寻找一个我们可以见面的日期。我们聚在一起，讨论角色塑造，然后再也没有见面。一场竞选需要如此多的准备、功课、计划、日程安排和重新安排，很难保持势头。同时，我交了更多想玩，但不知道规则的朋友。如果我连给更有经验的玩家介绍时间都没有，我怎么会有时间给他们介绍游戏呢？
 

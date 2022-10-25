@@ -1,6 +1,6 @@
 # 通过将消极情绪转化为积极情绪来减少拖延
 
-> 原文:[https://life hacker . com/cut-down-on-turning-negative-feeling-1839573516](https://lifehacker.com/cut-down-on-procrastination-by-turning-negative-feeling-1839573516)
+> 原文：<https://lifehacker.com/cut-down-on-procrastination-by-turning-negative-feeling-1839573516>
 
 拖延是我们都经历过的事情之一。有时你可能会拖延给朋友打电话传达坏消息，有时会拖延完成一个工作项目。在所有情况下，你拖延的事情很可能需要完成，通常是越快越好。
 

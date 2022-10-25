@@ -1,6 +1,6 @@
 # 这些是最常见的 Airbnb 骗局
 
-> 原文:[https://life hacker . com/这些是最常见的 airbnb-scams-1841428802](https://lifehacker.com/these-are-the-most-common-airbnb-scams-1841428802)
+> 原文：<https://lifehacker.com/these-are-the-most-common-airbnb-scams-1841428802>
 
 我们在 Lifehacker 总部写了很多关于预订 Airbnb 房产的麻烦。担心隐藏的摄像头在监视你？T3T5【我们已经报道过了！担心自己订了假房源？我们也报道过(实际上是时代 的 [一小撮](https://lifehacker.com/how-to-identify-scam-listings-on-airbnb-1837486562) [)。](https://lifehacker.com/should-you-book-an-airbnb-that-has-no-reviews-1835805431) 
 

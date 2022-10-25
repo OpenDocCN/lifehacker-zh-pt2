@@ -1,6 +1,6 @@
 # 如何让感恩节大扫除变得不那么糟糕
 
-> 原文:[https://the take out . com/thanksgiving-cleaning-check list-tips-kitchen-advice-1839951717](https://thetakeout.com/thanksgiving-cleaning-checklist-tips-kitchen-advice-1839951717)
+> 原文：<https://thetakeout.com/thanksgiving-cleaning-checklist-tips-kitchen-advice-1839951717>
 
 我家几乎准备了感恩节晚餐的每一道菜。出于责任感，我每年感恩节都会给自己安排两项重要工作:严格按照利比的南瓜罐头食谱[烤两个南瓜派，以及打扫卫生。既然我们已经介绍了馅饼的制作方法，让我们把注意力转移到清洁上来。](https://www.verybestbaking.com/recipes/18470/LIBBYS-Famous-Pumpkin-Pie)
 

@@ -1,6 +1,6 @@
 # 两个字:火腿球
 
-> 原文:[https://thetakeout.com/recipe-iowa-ham-balls-1830905540](https://thetakeout.com/recipe-iowa-ham-balls-1830905540)
+> 原文：<https://thetakeout.com/recipe-iowa-ham-balls-1830905540>
 
 中西部这里很冷，所以我估计总是砂锅饭。砂锅菜很简单——往一个盘子里放一堆东西，放进烤箱，45 分钟后见。今年秋天，当绿豆砂锅的发明者多卡斯·贝茨·雷利 [以 92 岁的高龄](https://thetakeout.com/dorcas-reilly-creator-green-bean-casserole-died-1829973051) 不幸去世时，我已经是第二个砂锅了。在她的记忆中，我给妈妈发了短信，询问她烹饪的其他相关食谱，这样我就可以继续向这道热菜的伟大艺术致敬。
 

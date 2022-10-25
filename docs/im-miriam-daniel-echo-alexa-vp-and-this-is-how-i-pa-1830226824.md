@@ -1,6 +1,6 @@
 # 我是米里亚姆·丹尼尔，Echo & Alexa 副总裁，这就是我为人父母的方式
 
-> 原文:[https://life hacker . com/im-miriam-Daniel-echo-Alexa-VP-and-this-is-how-I-pa-1830226824](https://lifehacker.com/im-miriam-daniel-echo-alexa-vp-and-this-is-how-i-pa-1830226824)
+> 原文：<https://lifehacker.com/im-miriam-daniel-echo-alexa-vp-and-this-is-how-i-pa-1830226824>
 
 Miriam Daniel 是亚马逊 Echo(声控扬声器)和 Alexa(数字助理)背后的创意者之一，这些创新改变了我们与周围世界的互动方式。她拥有计算机工程背景，曾在亚马逊、英特尔等公司工作，提供给消费者惊喜和愉悦的新产品和体验。作为一名产品经理，她坚信我们的发明是为了简化或改变人类生活。
 

@@ -1,6 +1,6 @@
 # 如何在不受惩罚的情况下伪造信用卡
 
-> 原文:[https://life hacker . com/how-to-churn-credit-cards-not-getting-1839469185](https://lifehacker.com/how-to-churn-credit-cards-without-getting-penalized-1839469185)
+> 原文：<https://lifehacker.com/how-to-churn-credit-cards-without-getting-penalized-1839469185>
 
 如果你以正确的方式处理信用卡，你可以最大化你的信用卡奖励——但是犯了一个错误，这些奖励可能会被收回。
 

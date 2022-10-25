@@ -1,6 +1,6 @@
 # 写正面评价而不是负面评价
 
-> 原文:[https://life hacker . com/write-a-positive-review-而不是-a-negative-review-1830771188](https://lifehacker.com/write-a-positive-review-instead-of-a-negative-review-1830771188)
+> 原文：<https://lifehacker.com/write-a-positive-review-instead-of-a-negative-review-1830771188>
 
 如果你在某件事上有过糟糕的经历——比如去餐馆、看书或去沙龙——在留下负面评价之前花一分钟。值得吗？
 

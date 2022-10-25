@@ -1,6 +1,6 @@
 # 如果你现在不能放松也没关系
 
-> 原文:[https://life hacker . com/its-okay-if-you-can-relax-right-now-1842905456](https://lifehacker.com/its-okay-if-you-cant-relax-right-now-1842905456)
+> 原文：<https://lifehacker.com/its-okay-if-you-cant-relax-right-now-1842905456>
 
 你还记得那些田园般的日子吗？大约在三月份的时候，我们都意识到我们会有更多的时间可以支配。办公室工作人员将在家工作，餐馆关门，活动取消。突然之间，不管你是否在工作，都没有那么多地方可去了。你好，自由时间。
 

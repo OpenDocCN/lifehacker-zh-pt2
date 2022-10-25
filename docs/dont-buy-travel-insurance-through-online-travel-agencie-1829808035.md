@@ -1,6 +1,6 @@
 # 不要通过在线旅行社购买旅游保险
 
-> 原文:[https://life hacker . com/dont-buy-travel-insurance-through-online-travel-agencie-1829808035](https://lifehacker.com/dont-buy-travel-insurance-through-online-travel-agencie-1829808035)
+> 原文：<https://lifehacker.com/dont-buy-travel-insurance-through-online-travel-agencie-1829808035>
 
 像 Orbitz 和 Expedia 这样的在线旅行社对比较一些航班和酒店的价格很有用，尽管在预订前直接在航空公司或酒店的网站上查看价格是值得的，正如我们在 之前报道的 [。你也应该意识到这些第三方网站并不是你购买额外服务的最佳选择，包括旅游保险。](https://twocents.lifehacker.com/is-booking-travel-through-a-site-like-expedia-worth-it-1793278319) 
 

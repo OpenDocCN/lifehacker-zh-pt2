@@ -1,6 +1,6 @@
 # 每当你去杂货店购物时，买一种对你来说新的配料
 
-> 原文:[https://life hacker . com/buy-one-new-to-you-ingredient-when-you-when-you-杂货店-1842843743](https://lifehacker.com/buy-one-new-to-you-ingredient-whenever-you-grocery-shop-1842843743)
+> 原文：<https://lifehacker.com/buy-one-new-to-you-ingredient-whenever-you-grocery-shop-1842843743>
 
 单调是享受家常菜的大敌，但这比平时更难避免，尤其是因为我们都在试图限制去杂货店的次数。突发奇想和冲动已经被谨慎和计划所取代，为一种缺失的成分在最后一分钟跑商店并不完全是“必要的”。
 

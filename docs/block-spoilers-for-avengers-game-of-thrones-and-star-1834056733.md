@@ -1,6 +1,6 @@
 # 用这些工具阻止复仇者联盟，权力的游戏和星球大战的剧透
 
-> 原文:[https://life hacker . com/block-扰流板-复仇者联盟-权力的游戏-明星-1834056733](https://lifehacker.com/block-spoilers-for-avengers-game-of-thrones-and-star-1834056733)
+> 原文：<https://lifehacker.com/block-spoilers-for-avengers-game-of-thrones-and-star-1834056733>
 
 作为一个极客，这是艰难的一周，除非你喜欢看你喜欢多年的角色，如果不是几十年的话，咬一口大的。本周一定要带着你的 mjlnir 大小的面巾纸盒子去复仇者联盟 4：终局之战(尤其是如果你和我一样，把灭霸作为你的首选。虽然他不太可能 [获得蚁人](https://youtu.be/FLtnts6i2UI?t=109) 奖，但我有点怀疑每个人都喜欢的虚无主义者不会通过这部电影。)
 

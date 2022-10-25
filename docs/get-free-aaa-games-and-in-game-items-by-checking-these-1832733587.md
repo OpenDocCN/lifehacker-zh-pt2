@@ -1,6 +1,6 @@
 # 通过检查这些服务获得免费的 AAA 游戏和游戏中的物品
 
-> 原文:[https://life hacker . com/get-free-AAA-games-and-in-game-items-by-checking-this-1832733587](https://lifehacker.com/get-free-aaa-games-and-in-game-items-by-checking-these-1832733587)
+> 原文：<https://lifehacker.com/get-free-aaa-games-and-in-game-items-by-checking-these-1832733587>
 
 我喜欢免费游戏。我说的不仅仅是免费软件或开源软件，它们要么复杂得令人抓狂，要么偶尔质量可疑。三 A 级的书，当打折到零的低价时，是很棒的。
 

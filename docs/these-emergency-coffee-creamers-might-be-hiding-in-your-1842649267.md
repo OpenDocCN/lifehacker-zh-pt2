@@ -1,6 +1,6 @@
 # 这些应急咖啡奶精可能藏在你的储藏室里
 
-> 原文:[https://life hacker . com/these-emergency-coffee-creamers-may-be-hiding-in-your-1842649267](https://lifehacker.com/these-emergency-coffee-creamers-might-be-hiding-in-your-1842649267)
+> 原文：<https://lifehacker.com/these-emergency-coffee-creamers-might-be-hiding-in-your-1842649267>
 
 如果你不是一个喝黑咖啡的人，你现在可能会有点纠结，尤其是如果你不是一个非乳粉状奶精的粉丝。毕竟，你不仅被困在家里，还可能和另一个人被困在家里，而那个人可能会用掉所有的一半。
 

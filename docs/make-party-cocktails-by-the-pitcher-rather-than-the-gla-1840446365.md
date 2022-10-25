@@ -1,6 +1,6 @@
 # 用水罐而不是玻璃杯制作派对鸡尾酒
 
-> 原文:[https://life hacker . com/make-party-cocktails-by-the-pitcher-而不是-the-gla-1840446365](https://lifehacker.com/make-party-cocktails-by-the-pitcher-rather-than-the-gla-1840446365)
+> 原文：<https://lifehacker.com/make-party-cocktails-by-the-pitcher-rather-than-the-gla-1840446365>
 
 昨晚我参加了一个节日聚会，我的贡献是一盘香肠和奶酪球以及一瓶 750 毫升的老式啤酒。两者都很受欢迎，但老式的可能最受关注。事实证明，许多参加派对的人从未考虑过一次做一大堆，而是认为这是一种鸡尾酒，你需要一次做一杯。
 

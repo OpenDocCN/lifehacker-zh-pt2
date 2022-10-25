@@ -1,6 +1,6 @@
 # 通过说孩子的“爱的语言”与他们交流
 
-> 原文:[https://life hacker . com/connect-with-your-kids-by-speaking-they-love-language-1842091485](https://lifehacker.com/connect-with-your-kids-by-speaking-their-love-language-1842091485)
+> 原文：<https://lifehacker.com/connect-with-your-kids-by-speaking-their-love-language-1842091485>
 
 五种爱情语言的概念对你来说可能并不陌生。这个想法是，我们都以不同的方式给予和接受爱——这些不同的方式可以分为五个不同的类别。当我们通过语言表达爱意，而对方却以不同的方式接受爱意时，我们会被绊倒，失去联系，尤其是和一个浪漫的伴侣。你认为给他们送礼会让他们感到温暖和模糊，同时，他们会说，“*如果她真的爱我，她会为我多花点时间*
 

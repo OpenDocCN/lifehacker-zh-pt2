@@ -1,6 +1,6 @@
 # 告诉我们你最讨厌的技术问题
 
-> 原文:[https://life hacker . com/tell-us-your ' s most-naught-tech-problems-1837867809](https://lifehacker.com/tell-us-your-most-annoying-tech-problems-1837867809)
+> 原文：<https://lifehacker.com/tell-us-your-most-annoying-tech-problems-1837867809>
 
 每周，我们都会发布一个技术建议专栏( [**Tech 911**](https://lifehacker.com/c/tech-911) )，目标是从你的紧迫技术问题中选择一个，并提供尽可能多的有用答案。这个专栏依赖于你的贡献，我们的邮箱快用完了，所以是时候让你加入进来了！
 

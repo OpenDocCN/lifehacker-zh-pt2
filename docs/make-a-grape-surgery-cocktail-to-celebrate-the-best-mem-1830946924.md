@@ -1,6 +1,6 @@
 # 制作“葡萄手术”鸡尾酒，庆祝 2018 年的最佳模因
 
-> 原文:[https://life hacker . com/make-a-grape-surgery-cocktail-to-庆功-mem-1830946924](https://lifehacker.com/make-a-grape-surgery-cocktail-to-celebrate-the-best-mem-1830946924)
+> 原文：<https://lifehacker.com/make-a-grape-surgery-cocktail-to-celebrate-the-best-mem-1830946924>
 
 服务新闻就是为其他人写作，但有时我会用我的这个平台给自己写 250 到 1000 字的笑话。这是其中的一次。我不知道你是否知道 2018 年所有的阴湿迷因，但没有一个像" [他们在葡萄上做了手术](https://knowyourmeme.com/memes/they-did-surgery-on-a-grape) "这样让我很开心
 

@@ -1,6 +1,6 @@
 # 通过这个网站帮助你的猫处理分离焦虑
 
-> 原文:[https://life hacker . com/help-your-cat-deal-with-this-we-1834034968](https://lifehacker.com/help-your-cat-deal-with-separation-anxiety-with-this-we-1834034968)
+> 原文：<https://lifehacker.com/help-your-cat-deal-with-separation-anxiety-with-this-we-1834034968>
 
 我邻居的猫费利克斯是我所知道的最可爱、最想抱的火球之一。我的上一只猫更喜欢我把它一整天单独留在我的公寓/她的城堡里，与之不同的是，费利克斯恰恰相反:他讨厌白天被单独留下。这意味着我们的朋友费利克斯会坐在前门嚎叫，焦急地等待他的主人凯旋而归，或者在某些情况下，他会花一天时间摧毁他能得到的任何东西，作为对他不断被遗弃的公开抗议。
 

@@ -1,6 +1,6 @@
 # 通过一些简单的易货交易与他人联系
 
-> 原文:[https://life hacker . com/connect-with-others-via-some-light-bartering-1843137233](https://lifehacker.com/connect-with-others-via-some-light-bartering-1843137233)
+> 原文：<https://lifehacker.com/connect-with-others-via-some-light-bartering-1843137233>
 
 随着我们通常的社交互动系统被拆除，人们正在寻找联系、帮助 T2 和表达爱意的方式——无论是通过 T4 的新鲜烘焙食品、自家菜园的蔬菜、预先调制的鸡尾酒还是手工缝制的面具。现在空气中弥漫着一种合作的慷慨，就我而言，我真的很享受这种感觉。
 

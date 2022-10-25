@@ -1,6 +1,6 @@
 # 通过智能音箱免费听亚马逊音乐或 YouTube 音乐
 
-> 原文:[https://life hacker . com/listen-to-Amazon-music-or-YouTube-music-for-free-throug-1834174961](https://lifehacker.com/listen-to-amazon-music-or-youtube-music-for-free-throug-1834174961)
+> 原文：<https://lifehacker.com/listen-to-amazon-music-or-youtube-music-for-free-throug-1834174961>
 
 两个最大的音乐流媒体服务——亚马逊音乐和 Youtube 音乐——现在为各种智能扬声器和智能家居设备提供免费版本。
 

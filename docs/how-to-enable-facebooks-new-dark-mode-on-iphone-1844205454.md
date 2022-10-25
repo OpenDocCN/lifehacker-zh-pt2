@@ -1,6 +1,6 @@
 # 如何在 iPhone 上启用脸书的新黑暗模式
 
-> 原文:[https://life hacker . com/how-to-enable-face books-new-dark-mode-on-iphone-1844205454](https://lifehacker.com/how-to-enable-facebooks-new-dark-mode-on-iphone-1844205454)
+> 原文：<https://lifehacker.com/how-to-enable-facebooks-new-dark-mode-on-iphone-1844205454>
 
 脸书的 iOS 应用终于获得了官方的黑暗模式。就像脸书其他应用中的黑暗模式——[Messenger](https://lifehacker.com/how-to-enable-facebook-messengers-secret-dark-mode-on-a-1833014003)、 [Instagram](https://lifehacker.com/how-to-enable-dark-mode-on-instagram-1838869676) 和[Whatsapp](https://lifehacker.com/how-to-turn-on-whatsapps-new-dark-mode-1841157512)——开启黑暗模式会将 iOS 应用默认的白蓝界面换成黑灰主题。这看起来很棒，应该会让那些还没有发誓放弃有问题的社交网络的人感到高兴。
 

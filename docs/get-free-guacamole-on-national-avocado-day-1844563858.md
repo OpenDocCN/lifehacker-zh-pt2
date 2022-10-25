@@ -1,6 +1,6 @@
 # 在全国鳄梨日获得免费鳄梨酱
 
-> 原文:[https://life hacker . com/get-free-guacamole-on-national-avocado-day-1844563858](https://lifehacker.com/get-free-guacamole-on-national-avocado-day-1844563858)
+> 原文：<https://lifehacker.com/get-free-guacamole-on-national-avocado-day-1844563858>
 
 虽然鳄梨已经流行了几年，但它仍然是每年都有自己的一天的食物之一。那一天就是今天:2020 年 7 月 31 日，星期五。如果你是一个水果迷(是的，这是一种水果；从技术上来说，这是一种浆果 )，在餐馆和杂货店都有的交易。其中包括一些获得免费鳄梨色拉酱的机会，以及一些大打折扣的全鳄梨。这里是找到最优惠的地方。
 

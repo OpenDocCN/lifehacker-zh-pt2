@@ -1,6 +1,6 @@
 # 为什么你的冰箱需要水瓶
 
-> 原文:[https://life hacker . com/why-your ' s freezer-needs-water-bottles-1844701670](https://lifehacker.com/why-your-freezer-needs-water-bottles-1844701670)
+> 原文：<https://lifehacker.com/why-your-freezer-needs-water-bottles-1844701670>
 
 你很少会发现一个经典的黑客擅长四种不同的东西，但也许这就是为什么它是经典的。13 年前，我们告诉你用水瓶填满冰箱里的空间，我们希望你做到了。
 

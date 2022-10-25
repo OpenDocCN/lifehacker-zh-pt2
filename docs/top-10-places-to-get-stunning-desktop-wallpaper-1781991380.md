@@ -1,6 +1,6 @@
 # 获得令人惊叹的桌面壁纸的最佳地点
 
-> 原文:[https://life hacker . com/top-10-places-to-get-惊艳-桌面-壁纸-1781991380](https://lifehacker.com/top-10-places-to-get-stunning-desktop-wallpaper-1781991380)
+> 原文：<https://lifehacker.com/top-10-places-to-get-stunning-desktop-wallpaper-1781991380>
 
 如果你一天花几个小时在电脑或手机上(说实话，你确实是这样)，你可以用桌面壁纸让事情变得有趣。如果你想超越你的操作系统或相机胶卷中的旧照片，你可以在互联网上找到成千上万的替代品。
 

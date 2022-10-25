@@ -1,6 +1,6 @@
 # 使用这些地图获取加州野火的实时烟雾报告
 
-> 原文:[https://life hacker . com/get-real-time-smoke-reports-from-the-California-wild fire-1830362443](https://lifehacker.com/get-real-time-smoke-reports-from-the-california-wildfir-1830362443)
+> 原文：<https://lifehacker.com/get-real-time-smoke-reports-from-the-california-wildfir-1830362443>
 
 除了明显的火灾危险之外，这三起火灾都产生了大量的烟雾，可能对居住在附近的人造成健康和安全风险，即使“附近”离着火的地方只有几百英里。例如，在旧金山，尽管火场离得很远，但在某些地方烟味仍然很重。那些患有哮喘和其他呼吸问题的人也被建议在外出时使用口罩，并限制他们暴露在烟雾弥漫的空气中。
 

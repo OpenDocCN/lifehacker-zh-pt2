@@ -1,6 +1,6 @@
 # 下次体检时该问医生什么
 
-> 原文:[https://life hacker . com/what-to-quest-your ' s doctor-in-next-physical-1836076621](https://lifehacker.com/what-to-ask-your-doctor-at-your-next-physical-1836076621)
+> 原文：<https://lifehacker.com/what-to-ask-your-doctor-at-your-next-physical-1836076621>
 
 下次你去看医生做年度检查、身体检查或健康检查时，不要只带保险卡。带着正确的问题赴约可以帮助你更多地了解你的整体健康状况，确保你得到正确的预防保健，甚至缓解那些对新痣、持续咳嗽或意外疼痛的深夜担忧。
 

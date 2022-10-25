@@ -1,6 +1,6 @@
 # Alexa 可以帮助你在你的房子周围找到丢失的物品
 
-> 原文:[https://life hacker . com/Alexa-can-help-you-find-lost-items-around-your house-1837712403](https://lifehacker.com/alexa-can-help-you-find-lost-items-around-your-house-1837712403)
+> 原文：<https://lifehacker.com/alexa-can-help-you-find-lost-items-around-your-house-1837712403>
 
 Alexa 非常适合帮助处理数字任务，如在线购物和讲可怕的笑话，但亚马逊的助手也可以帮助你解决现实世界中最大的问题，比如，“我把钥匙放在哪里了？”
 

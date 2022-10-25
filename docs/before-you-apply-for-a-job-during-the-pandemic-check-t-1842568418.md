@@ -1,6 +1,6 @@
 # 找出冠状病毒疫情期间谁在招人，谁不招人[更新]
 
-> 原文:[https://life hacker . com/before-you-apply-in-the-疫情-check-t-1842568418](https://lifehacker.com/before-you-apply-for-a-job-during-the-pandemic-check-t-1842568418)
+> 原文：<https://lifehacker.com/before-you-apply-for-a-job-during-the-pandemic-check-t-1842568418>
 
 寻找新工作已经是一个充满压力和不确定性的过程。 [冠状病毒](https://lifehacker.com/tag/coronavirus) 只会让事情变得更复杂。数百万人失业，世界各地的公司宣布在可预见的未来冻结招聘。
 

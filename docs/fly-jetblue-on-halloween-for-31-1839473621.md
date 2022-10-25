@@ -1,6 +1,6 @@
 # 万圣节乘坐捷蓝航空，票价 31 美元
 
-> 原文:[https://life hacker . com/fly-JetBlue-on-Halloween-for-31-1839473621](https://lifehacker.com/fly-jetblue-on-halloween-for-31-1839473621)
+> 原文：<https://lifehacker.com/fly-jetblue-on-halloween-for-31-1839473621>
 
 需要远离你所在城镇正在举行的任何怪异/俗气的庆祝活动吗？远离这一切——字面意思是,登上飞机，离开那里的—[,参加捷蓝航空的“怪兽大甩卖”](https://www.jetblue.com/deals/the-monster-sale-103019/) 万圣节期间往返美国、波多黎各和美属维尔京群岛目的地的每趟航班为 31 美元。
 

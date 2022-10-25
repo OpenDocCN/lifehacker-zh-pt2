@@ -1,6 +1,6 @@
 # this off road fridge and battery make your suv a home 1841148908
 
-> 原文:[https://jalopnik . com/this-off-road-冰箱和电池-让你的 suv-a-home-1841148908](https://jalopnik.com/this-off-road-fridge-and-battery-make-your-suv-a-home-1841148908)
+> 原文：<https://jalopnik.com/this-off-road-fridge-and-battery-make-your-suv-a-home-1841148908>
 
 你可能不需要在车上放冰箱，但是如果你长途旅行，尤其是离网旅行，它会改变一切。在我的钻机上用 Dometic 的 CFX3 冰箱和 PLB40 电源进行了一次陆上冒险后，我可以帮助你决定像这样的设置是否是你可能想要投资的东西。
 

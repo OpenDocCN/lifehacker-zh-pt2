@@ -1,6 +1,6 @@
 # 我们今年学到的最佳语法提示
 
-> 原文:[https://life hacker . com/the-best-grammar-tips-we-learned-this-year-1840562096](https://lifehacker.com/the-best-grammar-tips-we-learned-this-year-1840562096)
+> 原文：<https://lifehacker.com/the-best-grammar-tips-we-learned-this-year-1840562096>
 
 我可能是 Lifehacker 的育儿编辑，但今年我还担任了该网站语法作者的非正式角色。每当我不得不仔细检查一个单词或短语的用法，或者回忆起一个我觉得有用的记忆方法时，我都会写下来。然后我会收到具体的读者请求，比如，“ [你能写一篇帖子告诉人们‘verb age’不是一个单词吗？](https://lifehacker.com/verbage-is-not-a-word-1837711169) 或者 [接下来能不能做‘组成’？“我显然非常乐意帮忙。](https://lifehacker.com/youre-probably-using-the-word-comprise-wrong-1837622031)
 

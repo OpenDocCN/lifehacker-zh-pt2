@@ -1,6 +1,6 @@
 # 如果你在 2014 年或 2015 年购买了一台联想笔记本电脑，如何快速获得 40 美元
 
-> 原文:[https://life hacker . com/how-to-grab-a-quick-40-if-you-buy-a-Lenovo-laptop-I-1831672135](https://lifehacker.com/how-to-grab-a-quick-40-if-you-bought-a-lenovo-laptop-i-1831672135)
+> 原文：<https://lifehacker.com/how-to-grab-a-quick-40-if-you-bought-a-lenovo-laptop-i-1831672135>
 
 现在是大家最喜欢的法律新闻的时间了，伙计们，集体诉讼解决时间到了！如果你在 2014 年 9 月 1 日至 2015 年 2 月 28 日期间购买了一台新的非 ThinkPad 联想笔记本电脑，你很有可能有资格向*索赔至少*40 美元，作为该公司在其电脑上安装广告软件 妨碍其性能以窃取你的个人信息的补偿。
 

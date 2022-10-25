@@ -1,6 +1,6 @@
 # 我求你给煮熟的鸡蛋涂上黄油
 
-> 原文:[https://life hacker . com/I-am-godding-you-butter-you ' s hard-hidden-eggs-1841156203](https://lifehacker.com/i-am-begging-you-to-butter-your-hard-boiled-eggs-1841156203)
+> 原文：<https://lifehacker.com/i-am-begging-you-to-butter-your-hard-boiled-eggs-1841156203>
 
 偶然发现一种令人兴奋的吃鸡蛋的新方法可能是挤出时间吃早餐和完全不吃的区别。在过去的几年里，我经历了几个鸡蛋阶段: [简单的荷包蛋](https://lifehacker.com/this-is-the-chillest-easiest-way-to-poach-an-egg-1825889759) 一直很好，直到我发现了玉米淀粉蛋，最近它被一个扭曲的煮熟的鸡蛋取代了。 [梅丽莎·克拉克](https://skillet.lifehacker.com/the-best-hacks-from-melissa-clarks-kitchen-tour-1840069473) 告诉我 [在鸡蛋上涂黄油](https://www.instagram.com/p/Br-iMrHgyRo/?hl=en) 她是对的。
 

@@ -1,6 +1,6 @@
 # 学习打领带最简单的方法
 
-> 原文:[https://life hacker . com/the-easy-way-learn-to-tie-1836276584](https://lifehacker.com/the-easiest-way-to-learn-to-tie-a-tie-1836276584)
+> 原文：<https://lifehacker.com/the-easiest-way-to-learn-to-tie-a-tie-1836276584>
 
 如何正确地打领带被证明是成年后的一个挑战。
 

@@ -1,6 +1,6 @@
 # 如何在其他安卓手机上安装 Pixel 4 的动态壁纸
 
-> 原文:[https://life hacker . com/how-to-install-pixel-4s-live-wallpapers-on-other-androi-1838627342](https://lifehacker.com/how-to-install-pixel-4s-live-wallpapers-on-other-androi-1838627342)
+> 原文：<https://lifehacker.com/how-to-install-pixel-4s-live-wallpapers-on-other-androi-1838627342>
 
 就谷歌产品而言，Pixel 4 的存在是谷歌保守得最差的秘密。之前的 Pixel 手机很早就被泄露了，但考虑到谷歌下一款旗舰智能手机的曝光率，Pixel 4 可能已经有了官方声明。现在，你可以在自己的 Android 手机上提前看到 Pixel 4 的一些视觉设计，方法是下载并安装一组动态壁纸，这些壁纸将在仍未发布的设备上提供。
 

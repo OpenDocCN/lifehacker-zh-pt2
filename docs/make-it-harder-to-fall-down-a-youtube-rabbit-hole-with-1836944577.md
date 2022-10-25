@@ -1,6 +1,6 @@
 # 有了这个扩展，就更难掉进 YouTube 的“兔子洞”了
 
-> 原文:[https://life hacker . com/make-it-hard-to-fall-down-a-YouTube-rabbit-hole-with-1836944577](https://lifehacker.com/make-it-harder-to-fall-down-a-youtube-rabbit-hole-with-1836944577)
+> 原文：<https://lifehacker.com/make-it-harder-to-fall-down-a-youtube-rabbit-hole-with-1836944577>
 
 在 YouTube 上观看视频可以很有趣，但是如果你不小心的话，观看一个视频可以很快变成观看五十个。 [YouTube 兔子洞](https://chrome.google.com/webstore/detail/youtube-rabbit-hole/nlddakjbmpidooplakalfoogdincflfh?ref=producthunt) 是一个可以帮忙的扩展。
 

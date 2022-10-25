@@ -1,6 +1,6 @@
 # 用这些来自韦氏词典的新单词扩大你的词汇量
 
-> 原文:[https://life hacker . com/expand-your-vocabulary-with-these-new-words-from-merria-1834240933](https://lifehacker.com/expand-your-vocabulary-with-these-new-words-from-merria-1834240933)
+> 原文：<https://lifehacker.com/expand-your-vocabulary-with-these-new-words-from-merria-1834240933>
 
 韦氏词典刚刚在其字典 中增加了另外 [640 个单词，这对于语法](https://www.merriam-webster.com/words-at-play/new-words-in-the-dictionary)[**stans**](https://www.merriam-webster.com/dictionary/stan)**来说总是一个激动人心的时刻，各地的人都迫不及待地想看看是什么入选了。** 
 

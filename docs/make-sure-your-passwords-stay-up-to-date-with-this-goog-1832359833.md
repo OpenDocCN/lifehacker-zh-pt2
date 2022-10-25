@@ -1,6 +1,6 @@
 # 确保您的密码与此 Google Chrome 扩展保持同步
 
-> 原文:[https://life hacker . com/确保你的密码与 this-goog-1832359833 保持同步](https://lifehacker.com/make-sure-your-passwords-stay-up-to-date-with-this-goog-1832359833)
+> 原文：<https://lifehacker.com/make-sure-your-passwords-stay-up-to-date-with-this-goog-1832359833>
 
 在这个企业黑客和大量密码泄露的时代，拥有一个新的、未经授权的密码和拥有一个难以破解的密码一样重要。为此，谷歌刚刚宣布并推出了一个新的 Chrome 扩展，它有助于确保你的密码不会被泄露，并仍然保持你的账户安全。
 

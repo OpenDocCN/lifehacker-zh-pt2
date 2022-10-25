@@ -1,6 +1,6 @@
 # 如何制作真空日式煎蛋卷
 
-> 原文:[https://life hacker . com/how-to-make-sous-vide-Japanese-omelets-1839133996](https://lifehacker.com/how-to-make-sous-vide-japanese-omelets-1839133996)
+> 原文：<https://lifehacker.com/how-to-make-sous-vide-japanese-omelets-1839133996>
 
 我对 tamagoyaki 的喜爱已经有据可查，正如我对 [一次性用具](https://skillet.lifehacker.com/streamline-your-kitchen-countertop-with-these-rules-1796236035) 的反感一样。后者配有一个非常小的厨房，使我无法购买制作小烤鸡蛋方块所需的方形平底锅，这很可悲，因为我太喜欢它们了。
 

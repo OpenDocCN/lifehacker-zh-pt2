@@ -1,6 +1,6 @@
 # 请 Alexa 帮你拼写困难的单词
 
-> 原文:[https://life hacker . com/ask-Alexa-to-help-you-spell-different-words-1840811067](https://lifehacker.com/ask-alexa-to-help-you-spell-difficult-words-1840811067)
+> 原文：<https://lifehacker.com/ask-alexa-to-help-you-spell-difficult-words-1840811067>
 
 我们都有这样一个词(或上千个),无论我们如何努力，我们都无法记住如何正确拼写。如果你家里有一个亚马逊 Alexa 设备，那么虚拟助理可以帮助你解决这个问题。
 

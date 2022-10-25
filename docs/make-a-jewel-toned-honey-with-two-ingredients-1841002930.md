@@ -1,6 +1,6 @@
 # 用两种原料制作宝石色调的蜂蜜
 
-> 原文:[https://life hacker . com/make-a-jewel-toned-honey-two-ingredients-1841002930](https://lifehacker.com/make-a-jewel-toned-honey-with-two-ingredients-1841002930)
+> 原文：<https://lifehacker.com/make-a-jewel-toned-honey-with-two-ingredients-1841002930>
 
 我是米色食物[的坚定拥护者——一直是，也将永远是——但即使是我也承认，一抹欢快的颜色可以让一顿饭、小吃或饮料更令人愉快。如果这种颜色出现在酸甜的浆果蜂蜜中，那就更好了。](https://lifehacker.com/what-to-eat-to-cleanse-your-palate-of-unicorns-mermaid-1794851486)
 

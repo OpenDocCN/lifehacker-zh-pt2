@@ -1,6 +1,6 @@
 # 你到底需要多少睡眠？
 
-> 原文:[https://life hacker . com/how-much-sleep-do-much-you-really-need-1831576410](https://lifehacker.com/how-much-sleep-do-you-really-need-1831576410)
+> 原文：<https://lifehacker.com/how-much-sleep-do-you-really-need-1831576410>
 
 每个人的睡眠需求都有一点点不同，但是大多数成年人应该每晚得到 7 到 9 个小时的。
 

@@ -1,6 +1,6 @@
 # 为什么你的锻炼有时感觉如此艰难
 
-> 原文:[https://life hacker . com/why-your-stoughts-feel so hard-times-1839257373](https://lifehacker.com/why-your-workouts-feel-so-hard-sometimes-1839257373)
+> 原文：<https://lifehacker.com/why-your-workouts-feel-so-hard-sometimes-1839257373>
 
 我们很多人都走过一条健身之路。首先，当每次锻炼来临的时候，你都要做:参加这个课程，或者跟着那个朋友去健身房。然后，你意识到你可以在你的运动中取得*进步*——无论是举重、跑步还是其他什么——然后你开始遵循一个旨在带你实现具体目标的计划。到目前为止一切顺利。
 

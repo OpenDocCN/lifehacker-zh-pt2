@@ -1,6 +1,6 @@
 # 在 2019 年尝试为期 52 周的 IRA 挑战
 
-> 原文:[https://life hacker . com/try-a-52-week-IRA-challenge-in-2019-1831499115](https://lifehacker.com/try-a-52-week-ira-challenge-in-2019-1831499115)
+> 原文：<https://lifehacker.com/try-a-52-week-ira-challenge-in-2019-1831499115>
 
 两分读者可能熟悉 [52 周金钱挑战](https://lifehacker.com/take-the-52-week-money-challenge-and-easily-save-about-1486564993)——你每周增加 1 美元存款，持续一年。第一周你存 1 美元，第二周你存 2 美元，如此类推，直到年底你已经积累了 1378 美元。
 

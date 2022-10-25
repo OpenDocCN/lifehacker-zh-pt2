@@ -1,6 +1,6 @@
 # 预订返程航班是明智之举，但风险很大
 
-> 原文:[https://life hacker . com/is-it-launch-to-book-back-to-back-back-flights-1840171398](https://lifehacker.com/is-it-illegal-to-book-back-to-back-flights-1840171398)
+> 原文：<https://lifehacker.com/is-it-illegal-to-book-back-to-back-flights-1840171398>
 
 几个月前，我们在 Lifehacker 总部讨论了 [隐藏城市票务](https://lifehacker.com/why-you-shouldnt-book-a-hidden-city-ticket-for-a-flight-1836888338) 的可能后果——当一个旅行者故意错过转机，因为预订多站航班比直接飞往目的地更便宜。虽然旅客因为这种行为和其他类似的策略 [而被航空公司“惩罚”的故事不时成为头条新闻](https://thepointsguy.com/news/hidden-city-ticket-crackdown/) ，但这种情况可能比我们想象的要少。
 

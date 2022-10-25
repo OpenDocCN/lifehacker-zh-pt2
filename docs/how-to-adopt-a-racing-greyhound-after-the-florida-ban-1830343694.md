@@ -1,6 +1,6 @@
 # 佛罗里达禁令后如何收养赛狗
 
-> 原文:[https://life hacker . com/how-to-adopt-a-racing-a-greyhound-after-the-Florida-ban-1830343694](https://lifehacker.com/how-to-adopt-a-racing-greyhound-after-the-florida-ban-1830343694)
+> 原文：<https://lifehacker.com/how-to-adopt-a-racing-greyhound-after-the-florida-ban-1830343694>
 
 佛罗里达州以压倒性优势 [投票禁止赛狗](https://www.washingtonpost.com/sports/2018/11/08/greyhound-racing-ban-florida-means-thousands-dogs-will-need-new-homes/) ，这意味着到 2020 年底，成千上万的狗可能退出 j obs 。好消息是你可以在任何时候收养灰狗。它们是非常好的狗。
 

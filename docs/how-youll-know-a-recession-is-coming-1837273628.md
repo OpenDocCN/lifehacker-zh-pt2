@@ -1,6 +1,6 @@
 # 你如何知道衰退即将到来
 
-> 原文:[https://life hacker . com/how-you-know-a recession-coming-1837273628](https://lifehacker.com/how-youll-know-a-recession-is-coming-1837273628)
+> 原文：<https://lifehacker.com/how-youll-know-a-recession-is-coming-1837273628>
 
 本周，随着股市看起来乱七八糟，债券收益率变得疯狂，贸易战旷日持久，每个人似乎都在使用可怕的 R 字——衰退。但是这些事件并不意味着明天就会发生衰退。它甚至可能不会在下个月、接下来的六个月甚至明年发生。
 

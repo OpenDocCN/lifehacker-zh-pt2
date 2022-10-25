@@ -1,6 +1,6 @@
 # 把你的旧书柜变成一个感官活动中心
 
-> 原文:[https://life hacker . com/turn-your-old-bookcase-into-a-sensory-activity-center-1839774572](https://lifehacker.com/turn-your-old-bookcase-into-a-sensory-activity-center-1839774572)
+> 原文：<https://lifehacker.com/turn-your-old-bookcase-into-a-sensory-activity-center-1839774572>
 
 时不时地，你会搬到一个新家，或者重新布置你现在家的房间，你会发现自己的书架不再适合新的或更新的空间。那么现在你用它做什么？
 

@@ -1,6 +1,6 @@
 # 如果你想吃自制小吃，试试 Etsy
 
-> 原文:[https://life hacker . com/if-you-jonesing-for-a-自制零食-try-etsy-1843524073](https://lifehacker.com/if-youre-jonesing-for-a-homemade-snack-try-etsy-1843524073)
+> 原文：<https://lifehacker.com/if-youre-jonesing-for-a-homemade-snack-try-etsy-1843524073>
 
 感觉饿吗？也许是时候跳过 Doordash 和 Grubhub，尝试一种新的在线服务来满足你所有的零食需求了: [Etsy](https://www.etsy.com/) 。
 

@@ -1,6 +1,6 @@
 # 现在租车安全吗？
 
-> 原文:[https://life hacker . com/is-it-safe-to-rent-a-car-right-now-1843702978](https://lifehacker.com/is-it-safe-to-rent-a-car-right-now-1843702978)
+> 原文：<https://lifehacker.com/is-it-safe-to-rent-a-car-right-now-1843702978>
 
 夏季传统上是长途驾车的最佳时间——无论你是走亲访友、去主题公园还是只是远离尘嚣，没有什么比公路旅行更好的了。甚至在今年，随着夏季临近，各州开始取消旅行限制，你可能会考虑在未来几个月开车逃离你的家。但是如果你经常租车度假呢？现在租房子是一个安全的选择吗？
 

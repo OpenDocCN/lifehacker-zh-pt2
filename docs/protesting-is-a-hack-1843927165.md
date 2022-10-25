@@ -1,6 +1,6 @@
 # 抗议是一种黑客行为
 
-> 原文:[https://lifehacker.com/protesting-is-a-hack-1843927165](https://lifehacker.com/protesting-is-a-hack-1843927165)
+> 原文：<https://lifehacker.com/protesting-is-a-hack-1843927165>
 
 抗议能搞定一切。如果你庆祝独立日、骄傲日或马丁·路德·金日，你会知道公众示威，甚至暴乱，已经迫使其他方式无法改变的事情发生了。本周早些时候我们与你分享了 [改变历史的五次示威](https://lifehacker.com/demonstrations-that-changed-the-course-of-american-hist-1843824093)；今天我们来谈谈现在发生的事情*。*
 

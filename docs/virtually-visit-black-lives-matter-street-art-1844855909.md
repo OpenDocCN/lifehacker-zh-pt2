@@ -1,6 +1,6 @@
 # 虚拟参观黑人的命也是命街头艺术
 
-> 原文:[https://life hacker . com/virtually-visit-black-lifes-matter-street-art-1844855909](https://lifehacker.com/virtually-visit-black-lives-matter-street-art-1844855909)
+> 原文：<https://lifehacker.com/virtually-visit-black-lives-matter-street-art-1844855909>
 
 社会运动的一个持久元素是街头艺术。故事被讲述，生命受到尊重，行动主义通过壁画和涂鸦 得到推广。最近几个月(和几年)，反种族主义抗议者在全国各地的墙上和人行道上创作了大量街头艺术，现在你可以虚拟地 [参观其中的许多景点](http://www.openculture.com/2020/08/a-new-digital-archive-preserves-black-lives-matter-covid-19-street-art.html) 。
 

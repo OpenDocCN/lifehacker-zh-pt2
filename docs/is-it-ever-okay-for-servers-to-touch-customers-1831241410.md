@@ -1,6 +1,6 @@
 # 问那个刻薄的女服务员:服务员接触顾客可以吗？
 
-> 原文:[https://the take out . com/is-it-ever-ok-for-servers-to-touch-customers-1831241410](https://thetakeout.com/is-it-ever-okay-for-servers-to-touch-customers-1831241410)
+> 原文：<https://thetakeout.com/is-it-ever-okay-for-servers-to-touch-customers-1831241410>
 
 > 嗨，咸味，我是一个通常不是“敏感的人”的女人我不喜欢拥抱熟人，当我不太亲近的人拥抱我时，我会有点惊慌。
 > 

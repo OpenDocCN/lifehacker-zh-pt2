@@ -1,6 +1,6 @@
 # 如何在 Firefox 和 Chrome 上给 YouTube 一个“经典”的外观
 
-> 原文:[https://life hacker . com/how-to-give-YouTube-a-classic-look-on-Firefox-and-chrom-1834723659](https://lifehacker.com/how-to-give-youtube-a-classic-look-on-firefox-and-chrom-1834723659)
+> 原文：<https://lifehacker.com/how-to-give-youtube-a-classic-look-on-firefox-and-chrom-1834723659>
 
 如果你怀念 YouTube 过去的样子，或者至少是它过去的样子，那么回到过去是有可能的。一个名为“YouTube Classic”的火狐和 Chrome 扩展允许你用复古外观改变 web 视频中心，将网站恢复到从前的样子。
 

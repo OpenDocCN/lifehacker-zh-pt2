@@ -1,6 +1,6 @@
 # im lisa rowan lifehacker staff writer and this is how 1838155302
 
-> 原文:[https://life hacker . com/im-Lisa-rowan-life hacker-staff-writer-and-this-is-how-1838155302](https://lifehacker.com/im-lisa-rowan-lifehacker-staff-writer-and-this-is-how-1838155302)
+> 原文：<https://lifehacker.com/im-lisa-rowan-lifehacker-staff-writer-and-this-is-how-1838155302>
 
 每周，我们都会分享我们最喜欢的专家的快捷方式、工作空间和生产力提示。本周，我们将来到 Lifehacker 的幕后。我是丽莎·罗文，这就是我的工作方式。
 

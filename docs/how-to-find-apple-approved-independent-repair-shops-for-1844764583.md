@@ -1,6 +1,6 @@
 # 如何为您的 Mac 找到 Apple 认可的独立维修店
 
-> 原文:[https://life hacker . com/how-to-find-apple-approved-independent-repair-shop-for-1844764583](https://lifehacker.com/how-to-find-apple-approved-independent-repair-shops-for-1844764583)
+> 原文：<https://lifehacker.com/how-to-find-apple-approved-independent-repair-shops-for-1844764583>
 
 除非我的苹果电脑冒烟，否则你不会在苹果零售店看到我。即使在最好的疫情时代，在天才吧等着用你的笔记本电脑(或者更糟糕的是，你的台式机)获得一些无需预约的帮助也不是最有趣的经历。
 

@@ -1,6 +1,6 @@
 # 如何帮助小企业度过疫情
 
-> 原文:[https://life hacker . com/how-to-help-small-business-survive-the-疫情-1844231262](https://lifehacker.com/how-to-help-small-businesses-survive-the-pandemic-1844231262)
+> 原文：<https://lifehacker.com/how-to-help-small-businesses-survive-the-pandemic-1844231262>
 
 随着全国各州在冠状病毒病例再次激增的情况下开始重新开放，小企业主发现自己处于十字路口。在上面的视频中，我们采访了一些独立企业主，了解他们的客户和社区如何帮助他们在这场疫情中生存下来。
 

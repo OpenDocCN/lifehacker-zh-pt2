@@ -1,6 +1,6 @@
 # 用金黄色的玉米高汤烹饪你的粗燕麦粉
 
-> 原文:[https://life hacker . com/cook-your-grits-in-a-golden-corn-stock-1844674258](https://lifehacker.com/cook-your-grits-in-a-golden-corn-stock-1844674258)
+> 原文：<https://lifehacker.com/cook-your-grits-in-a-golden-corn-stock-1844674258>
 
 我居住的城市俄勒冈州波特兰市对南方食物非常着迷。我是说，我明白。南方食物很好，但许多准备它的餐馆老板很难抗拒“提升”它的冲动，这完全错过了烹饪的要点。如果你相信的话，我曾经在我的香肠肉汁里发现了一整枝迷迭香。)
 

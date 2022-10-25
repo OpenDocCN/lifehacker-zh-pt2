@@ -1,6 +1,6 @@
 # 用一点醋解冻冻肉
 
-> 原文:[https://life hacker . com/解冻-冻肉加一点醋-1842509505](https://lifehacker.com/thaw-frozen-meat-with-a-little-vinegar-1842509505)
+> 原文：<https://lifehacker.com/thaw-frozen-meat-with-a-little-vinegar-1842509505>
 
 我的冰箱是一个低效的垃圾，我冷冻的任何牛排、排骨或鸡腿最后都会覆盖一层霜。从技术上讲，这种肉可以食用，但味道没那么好。这就是为什么几个月来我一直把一块冻猪排挂在一袋冷冻玉米旁边。
 

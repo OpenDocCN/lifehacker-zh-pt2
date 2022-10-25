@@ -1,6 +1,6 @@
 # 关于参议院对特朗普弹劾案的投票，你需要知道什么
 
-> 原文:[https://life hacker . com/what-you-need-to-know-the-Senate-vote-on-trumps-I-1841469583](https://lifehacker.com/what-you-need-to-know-about-the-senate-vote-on-trumps-i-1841469583)
+> 原文：<https://lifehacker.com/what-you-need-to-know-about-the-senate-vote-on-trumps-i-1841469583>
 
 本周在政治方面，爱荷华州的党团会议进行得很顺利，特朗普总统在昨晚的国情咨文中吹嘘说，经济是“有史以来最好的”。
 

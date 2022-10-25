@@ -1,6 +1,6 @@
 # 用快速文本支持 USPS
 
-> 原文:[https://life hacker . com/support-the-usps-with-a-quick-text-1844749588](https://lifehacker.com/support-the-usps-with-a-quick-text-1844749588)
+> 原文：<https://lifehacker.com/support-the-usps-with-a-quick-text-1844749588>
 
 如果你担心美国邮政署​明显缺乏处理即将到来的邮寄选票所需的资金，一条短信可以帮助你。在 Twitter 上， [@Resistbot](https://twitter.com/resistbot) 主动提出通过短信或直接信息交换的方式代表你给代表们写信。
 

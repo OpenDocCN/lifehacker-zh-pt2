@@ -1,6 +1,6 @@
 # 给你的宠物穿上连体衣，而不是“耻辱柱”
 
-> 原文:[https://life hacker . com/put-a-onesie-on-your-pet-not-the-cone-of-the-cone-of-shame-1844135226](https://lifehacker.com/put-a-onesie-on-your-pet-instead-of-the-cone-of-shame-1844135226)
+> 原文：<https://lifehacker.com/put-a-onesie-on-your-pet-instead-of-the-cone-of-shame-1844135226>
 
 如果你的宠物从手术中恢复过来，你会记得它们有多讨厌伊丽莎白时代的项圈，也被称为“耻辱锥”——那是一种套在它们脖子上的硬塑料锥，防止它们舔或撕掉缝线。除了看起来不舒服，耻辱柱还限制了他们的视野，让他们更难进食或饮水。
 

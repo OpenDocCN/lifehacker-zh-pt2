@@ -1,6 +1,6 @@
 # 您仍然可以使用阿拉斯加里程在美国航空公司订票
 
-> 原文:[https://life hacker . com/you-can-still-use-Alaska-miles-to-book on the American-air-1841670500](https://lifehacker.com/you-can-still-use-alaska-miles-to-book-on-american-airl-1841670500)
+> 原文：<https://lifehacker.com/you-can-still-use-alaska-miles-to-book-on-american-airl-1841670500>
 
 阿拉斯加航空公司今天宣布与美国航空公司结成新的“西海岸国际联盟”，这一联盟将为客户带来一些实实在在的优势。
 

@@ -1,6 +1,6 @@
 # 如何选择退出大通新的有约束力的仲裁规则
 
-> 原文:[https://life hacker . com/how-to-opt-out-of-chases-new-binding-arbitration-rule-1835215747](https://lifehacker.com/how-to-opt-out-of-chases-new-binding-arbitration-rule-1835215747)
+> 原文：<https://lifehacker.com/how-to-opt-out-of-chases-new-binding-arbitration-rule-1835215747>
 
 大通已经开始为其信用卡用户推出一项新的有约束力的仲裁规则，快公司的凯尔·格思里·韦斯曼第一个 [上周](https://www.fastcompany.com/90357331/chase-adds-forced-arbitration-clause-to-slate-credit-cards) 报道。
 

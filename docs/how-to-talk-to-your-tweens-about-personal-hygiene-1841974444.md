@@ -1,6 +1,6 @@
 # 如何和你的孩子谈论个人卫生
 
-> 原文:[https://life hacker . com/how-to-talk-to-your tweens-on-personal-hygienes-1841974444](https://lifehacker.com/how-to-talk-to-your-tweens-about-personal-hygiene-1841974444)
+> 原文：<https://lifehacker.com/how-to-talk-to-your-tweens-about-personal-hygiene-1841974444>
 
 青少年经历了很多。青春期开始了，他们的身体在变化，他们的声音可能在变化，现在我们让他们背负着各种新的、不合理的期望，比如每天洗澡。对于十几岁的孩子来说，个人卫生可能是一个敏感的话题，但有一些方法可以处理它，使过渡更加平稳和快速，而不会给等式增加任何尴尬或羞愧。
 

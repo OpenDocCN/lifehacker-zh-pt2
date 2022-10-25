@@ -1,6 +1,6 @@
 # here is every democratic congressmembers pick for presi 1839232282
 
-> 原文:[https://life hacker . com/here-is-every-democratic-congress members-pick-for-presi-1839232282](https://lifehacker.com/here-is-every-democratic-congressmembers-pick-for-presi-1839232282)
+> 原文：<https://lifehacker.com/here-is-every-democratic-congressmembers-pick-for-presi-1839232282>
 
 本周末，纽约州众议员亚历山大·奥卡西奥-科尔特斯在纽约皇后区的一次集会上正式支持佛蒙特州参议员伯尼·桑德斯竞选总统，参加集会的是热情的人群。虽然集会受到了一些反对——主要来自 [共和党](https://www.usatoday.com/story/news/politics/2019/10/19/aoc-bernie-sanders-endorsement/4038312002/) 和保守派媒体——但随着像 [【伊丽莎白·沃伦】](https://thehill.com/hilltv/rising/466927-warren-overtakes-sanders-in-new-poll) 这样的候选人在最近的民意调查中飙升，这种支持在恰当的时候对桑德斯来说是一种急需的认可。特朗普自己的 2016 年竞选顾问迈克尔·卡普托 [本周告诉《每日野兽》](https://www.thedailybeast.com/with-aoc-in-his-corner-gop-takes-fresh-look-at-bernie) “有了新一届国会女议员的支持，我认为这给他的竞选带来了新的生命。”。
 

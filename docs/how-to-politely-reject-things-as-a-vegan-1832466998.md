@@ -1,6 +1,6 @@
 # 作为一个素食主义者如何礼貌地拒绝事物
 
-> 原文:[https://life hacker . com/how-to-curely-reject-things-as-a-a-vegan-1832466998](https://lifehacker.com/how-to-politely-reject-things-as-a-vegan-1832466998)
+> 原文：<https://lifehacker.com/how-to-politely-reject-things-as-a-vegan-1832466998>
 
 我的素食主义者同胞们，是时候我们解决一些问题了，这些问题阻止了大批潜在的皈依者加入我们的行列——甚至诱惑了我们中最虔诚的人做出非法的基于动物的不忠行为。不，它不是，动物奶酪或美国对培根的盲目热爱。它对免费的东西说不。
 

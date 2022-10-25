@@ -1,6 +1,6 @@
 # 来自我们读者的最佳达拉斯地区旅行建议
 
-> 原文:[https://life hacker . com/the-best-Dallas-area-travel-tips-from-our-readers-1830593787](https://lifehacker.com/the-best-dallas-area-travel-tips-from-our-readers-1830593787)
+> 原文：<https://lifehacker.com/the-best-dallas-area-travel-tips-from-our-readers-1830593787>
 
 Hack Your City 本周去了达拉斯*和 T2【沃斯堡】，以及附近和之间的整个地区。一位《T4》的读者指出，DFW 的面积比康涅狄格州和罗德岛加起来还要大，人口也比美国大多数州多。我们一口就把它吃了。 [去查看一下员工标签](https://lifehacker.com/tell-us-your-best-dallas-fort-worth-travel-tips-1830499351) 下的所有精彩评论，或者阅读下面的提示示例。*
 

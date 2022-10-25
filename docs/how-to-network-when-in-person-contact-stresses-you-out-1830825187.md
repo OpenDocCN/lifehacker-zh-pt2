@@ -1,6 +1,6 @@
 # 当面对面的接触让你紧张时，如何交际
 
-> 原文:[https://life hacker . com/how-to-network-when-in-person-contact-stress-you-out-1830825187](https://lifehacker.com/how-to-network-when-in-person-contact-stresses-you-out-1830825187)
+> 原文：<https://lifehacker.com/how-to-network-when-in-person-contact-stresses-you-out-1830825187>
 
 在拥挤的房间里与陌生人交谈，每个人都想从对方那里得到什么，这是一场真正的噩梦，有时这是职业发展最直接的途径。但是还有另一种方式来建立关系网——在电脑屏幕后面。
 

@@ -1,6 +1,6 @@
 # 更新你的收入信息会提高你的信用评分吗？
 
-> 原文:[https://life hacker . com/does-updating-your-income-information-raise-your-credit-1837658628](https://lifehacker.com/does-updating-your-income-information-raise-your-credit-1837658628)
+> 原文：<https://lifehacker.com/does-updating-your-income-information-raise-your-credit-1837658628>
 
 面对天价信用额度，你能做什么？我的意思是，你能做哪些*不能做的事情？如果你看到信用卡发行商提示你更新你的收入，以确定你是否有资格获得更高的信用额度，你可能会想知道是否值得提供这些个人信息。我向你保证这不是陷阱。* 
 

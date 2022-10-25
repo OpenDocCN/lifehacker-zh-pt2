@@ -1,6 +1,6 @@
 # 立即预订感恩节和圣诞节航班
 
-> 原文:[https://life hacker . com/now-is-the-time-to-book-thanksgiving-and-Christmas-flig-1838131297](https://lifehacker.com/now-is-the-time-to-book-thanksgiving-and-christmas-flig-1838131297)
+> 原文：<https://lifehacker.com/now-is-the-time-to-book-thanksgiving-and-christmas-flig-1838131297>
 
 如果你计划在这个假期旅行，现在可能是开始看机票的好时机。
 

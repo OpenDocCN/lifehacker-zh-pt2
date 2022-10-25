@@ -1,6 +1,6 @@
 # 试着用羊乳酪来做一次强烈的扭转
 
-> 原文:[https://life hacker . com/try-using-feta-in-saag-paneer-for-a-tangy-twist-1834758561](https://lifehacker.com/try-using-feta-in-saag-paneer-for-a-tangy-twist-1834758561)
+> 原文：<https://lifehacker.com/try-using-feta-in-saag-paneer-for-a-tangy-twist-1834758561>
 
 不管你是谁，也不管你以什么为生，把晚餐端上桌都是一件不可能完成的任务。在一整天的食谱开发( [或与我悲伤的大脑](https://skillet.lifehacker.com/how-to-feed-yourself-when-youre-really-depressed-1823560127?_ga=2.104056644.516558604.1557914692-amp-VOgg_tjC2YsJPdc1F95aeA) )之后，我宁愿啃一块奶酪或干脆不吃晚餐，也不愿弄脏更多的盘子。所以我看了很多美食电视，买了很多烹饪书，总是在寻找一些东西来让我摆脱我永久的工作日晚餐无聊。如今，没有人比 Priya Krishna 做得更好。
 

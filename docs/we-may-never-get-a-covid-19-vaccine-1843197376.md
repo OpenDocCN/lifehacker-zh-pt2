@@ -1,6 +1,6 @@
 # 我们可能永远也得不到新冠肺炎疫苗
 
-> 原文:[https://life hacker . com/we-may-never-get-a-新冠肺炎疫苗-1843197376](https://lifehacker.com/we-may-never-get-a-covid-19-vaccine-1843197376)
+> 原文：<https://lifehacker.com/we-may-never-get-a-covid-19-vaccine-1843197376>
 
 整个世界都在焦急地等待新冠肺炎疫苗，坚持目前估计的 12 到 18 个月的 T1 和 T3。一些媒体报道称，我们可能会在 之前 [研发出疫苗——甚至有一个网站](https://www.cbsnews.com/news/coronavirus-vaccine-september-oxford-university/) [追踪所有正在研发的疫苗和疗法](https://www.statnews.com/feature/coronavirus/drugs-vaccines-tracker/) 。许多人似乎认为我们所需要做的就是 [蹲一年](https://www.houstonchronicle.com/life/article/coronavirus-expert-peter-hotez-crowd-risk-15194321.php) ，之后生活就会恢复正常。
 

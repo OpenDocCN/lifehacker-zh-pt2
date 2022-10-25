@@ -1,6 +1,6 @@
 # 如何给自己做年终总结
 
-> 原文:[https://life hacker . com/how-to-give yourself a year-end-review-1840611490](https://lifehacker.com/how-to-give-yourself-a-year-end-review-1840611490)
+> 原文：<https://lifehacker.com/how-to-give-yourself-a-year-end-review-1840611490>
 
 一年中的这个时候避开一切坚决的事物是非常时髦的。毕竟，试图提高自己不应该是一年一次的活动。另一方面，一年的结束是反思的最佳时机。这是一个评估我们在职业上、个人上、身体上和情感上做得如何的机会。我们的发现可以帮助我们了解明年的目标。
 

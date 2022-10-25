@@ -1,6 +1,6 @@
 # 当一个城市没有新的新冠肺炎死亡记录时，这意味着什么
 
-> 原文:[https://life hacker . com/what-it-mean-when-a-city-records-no-new-新冠肺炎-death-1843924115](https://lifehacker.com/what-it-means-when-a-city-records-no-new-covid-19-death-1843924115)
+> 原文：<https://lifehacker.com/what-it-means-when-a-city-records-no-new-covid-19-death-1843924115>
 
 周三，自 3 月 12 日以来，纽约市 [首次报告新冠肺炎](https://nypost.com/2020/06/04/nyc-reports-no-new-coronavirus-deaths-for-first-time-since-mid-march/) 无新增死亡病例。客观地看，在 4 月中旬的高峰期，纽约市平均每天有 500 人死亡。这是令人鼓舞的消息，值得庆祝。预防性措施——关闭商店，公众采取物理距离习惯，增加戴口罩和经常洗手的做法——已被证明有效地限制了疾病的传播。
 

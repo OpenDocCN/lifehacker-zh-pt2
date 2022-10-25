@@ -1,6 +1,6 @@
 # 新用户可以免费获得 3 个月的 Spotify Premium
 
-> 原文:[https://life hacker . com/new-users-can-get-free-Spotify-premium-3 个月-1837513863](https://lifehacker.com/new-users-can-get-free-spotify-premium-for-3-months-1837513863)
+> 原文：<https://lifehacker.com/new-users-can-get-free-spotify-premium-for-3-months-1837513863>
 
 如果你还没有尝试过 Spotify Premium，现在你可以免费试用这项音乐服务三个月，然后你就必须开始付费订阅了。
 

@@ -1,6 +1,6 @@
 # 安卓智能手机运行缓慢？尝试删除应用缓存
 
-> 原文:[https://life hacker . com/Android-smart phone-running-slow-try-deleting-the-app-c-1833469532](https://lifehacker.com/android-smartphone-running-slow-try-deleting-the-app-c-1833469532)
+> 原文：<https://lifehacker.com/android-smartphone-running-slow-try-deleting-the-app-c-1833469532>
 
 安卓智能手机很棒，但它们也不能幸免于时间的摧残。虽然可以通过外壳和小心的操作来防止划痕或物理磨损，但要阻止系统变慢可能要困难得多，这种情况可能会蔓延到用户体验中，直到有一天你的手机不再感觉那么快。当这种情况发生时，你会花太多时间试图找出这个系统陷入困境 [的原因，以及如何修复它](https://lifehacker.com/how-to-fix-the-google-pixels-most-annoying-quirks-acco-1823366439) ，这是一个令人沮丧的过程，没有任何东西感觉它在工作。
 

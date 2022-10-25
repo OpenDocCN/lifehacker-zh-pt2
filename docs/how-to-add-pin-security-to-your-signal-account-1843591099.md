@@ -1,6 +1,6 @@
 # 如何为您的 Signal 帐户添加 PIN 安全性
 
-> 原文:[https://life hacker . com/how-to-add-pin-security-to-your-signal-account-1843591099](https://lifehacker.com/how-to-add-pin-security-to-your-signal-account-1843591099)
+> 原文：<https://lifehacker.com/how-to-add-pin-security-to-your-signal-account-1843591099>
 
 Signal 的 [新 PIN 码](https://signal.org/blog/signal-pins/) 功能为加密的消息应用程序增加了一层额外的安全保护，使您在多台设备之间移动帐户变得不那么麻烦。
 

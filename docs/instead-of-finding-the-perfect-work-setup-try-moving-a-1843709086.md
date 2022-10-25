@@ -1,6 +1,6 @@
 # 与其寻找完美的工作环境，不如试着四处走动
 
-> 原文:[https://life hacker . com/而不是寻找完美的工作-设置-尝试-移动-a-1843709086](https://lifehacker.com/instead-of-finding-the-perfect-work-setup-try-moving-a-1843709086)
+> 原文：<https://lifehacker.com/instead-of-finding-the-perfect-work-setup-try-moving-a-1843709086>
 
 你很难适应你的临时家庭办公室吗？我们已经吸收了这样的想法，即有一个理想的“人体工程学”设置，如果一切都得到适当的支持，并设置到正确的高度，我们就再也不会不舒服了。但是如果坐在一个正确的位置上对我们来说也不好呢？相反，我提出一个小小的建议:四处走动。
 

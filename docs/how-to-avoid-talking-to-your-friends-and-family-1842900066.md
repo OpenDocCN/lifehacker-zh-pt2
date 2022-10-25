@@ -1,6 +1,6 @@
 # 如何避免与你的朋友和家人交谈
 
-> 原文:[https://life hacker . com/how-to-避免与你的朋友和家人交谈-1842900066](https://lifehacker.com/how-to-avoid-talking-to-your-friends-and-family-1842900066)
+> 原文：<https://lifehacker.com/how-to-avoid-talking-to-your-friends-and-family-1842900066>
 
 还记得你可以忽略来电，快速回复“我出去了，现在不能说话”的时候吗？
 

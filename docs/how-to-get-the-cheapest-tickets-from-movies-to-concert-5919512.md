@@ -1,6 +1,6 @@
 # 如何买到最便宜的票:从电影到音乐会到体育比赛
 
-> 原文:[https://life hacker . com/how-to-get-the-chief-to-concert-5919512](https://lifehacker.com/how-to-get-the-cheapest-tickets-from-movies-to-concert-5919512)
+> 原文：<https://lifehacker.com/how-to-get-the-cheapest-tickets-from-movies-to-concert-5919512>
 
 就像我们喜欢晚上坐在沙发上看我们网飞队列中的下一个节目一样，穿上外面的裤子成为现场观众的一部分也是一件很棒的事情。无论是音乐会、电影还是体育赛事，有时在其他粉丝的包围下体验一些东西是值得的。但是如果你想做这些事情，你需要买票，而且票会很贵。幸运的是，有一些方法可以在各种类型的门票上省钱。
 

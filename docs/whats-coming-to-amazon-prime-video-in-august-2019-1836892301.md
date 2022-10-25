@@ -1,6 +1,6 @@
 # 2019 年 8 月亚马逊 Prime 视频将会有什么
 
-> 原文:[https://life hacker . com/whats-coming-to-Amazon-prime-video-in-autumn-2019-1836892301](https://lifehacker.com/whats-coming-to-amazon-prime-video-in-august-2019-1836892301)
+> 原文：<https://lifehacker.com/whats-coming-to-amazon-prime-video-in-august-2019-1836892301>
 
 八月带来了九个新的亚马逊原创系列和一部亚马逊原创电影——一部名为*嘉年华街的电影，*以维多利亚幻想世界为背景和由奥兰多·布鲁姆和卡拉·迪瓦伊主演。
 

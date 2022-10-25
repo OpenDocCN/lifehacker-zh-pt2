@@ -1,6 +1,6 @@
 # 如何享受独居生活
 
-> 原文:[https://lifehacker.com/how-to-enjoy-living-alone-1841671374](https://lifehacker.com/how-to-enjoy-living-alone-1841671374)
+> 原文：<https://lifehacker.com/how-to-enjoy-living-alone-1841671374>
 
 当我搬出四年前和前夫合住的房子时，我彻底崩溃了。我从 19 岁开始就和他保持着忠诚的关系，就在我 21 岁生日之前，我从母亲家直接搬到了他家。在我完成学士学位的两年里，我们分开住，但我有一个室友，他大多数周末都会来看我。突然独自生活的想法吓坏了我，但它绝对规则。
 

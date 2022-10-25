@@ -1,6 +1,6 @@
 # 通过抛硬币让你的小孩吃他们的晚餐
 
-> 原文:[https://life hacker . com/get-your ' s little-kids-to-eat-by-flipping-a-1834054976](https://lifehacker.com/get-your-little-kids-to-eat-their-dinner-by-flipping-a-1834054976)
+> 原文：<https://lifehacker.com/get-your-little-kids-to-eat-their-dinner-by-flipping-a-1834054976>
 
 如果你有一个小孩，你可能有某种食物战在你家肆虐。他们不想在一个地方坐太久去吃饭，他们不想吃那个，或者他们不想吃 T2 的任何东西。
 

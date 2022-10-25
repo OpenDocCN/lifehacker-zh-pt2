@@ -1,6 +1,6 @@
 # 通过谷歌航班获得免费机票价格保证
 
-> 原文:[https://life hacker . com/get-a-free-airfare-price-guarantee-through-Google-fligh-1837065025](https://lifehacker.com/get-a-free-airfare-price-guarantee-through-google-fligh-1837065025)
+> 原文：<https://lifehacker.com/get-a-free-airfare-price-guarantee-through-google-fligh-1837065025>
 
 机票价格的涨跌不可预测；当你提前几个月预订航班时，除非你痴迷地查看预订网站，否则无法判断你是否买到了最划算的机票。
 

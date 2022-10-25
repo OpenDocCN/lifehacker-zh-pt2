@@ -1,6 +1,6 @@
 # 如何规划产后帮助
 
-> 原文:[https://life hacker . com/how-to-plan for-产后帮助-1836190534](https://lifehacker.com/how-to-plan-for-postpartum-help-1836190534)
+> 原文：<https://lifehacker.com/how-to-plan-for-postpartum-help-1836190534>
 
 婴儿可能很小，但为他们做计划似乎是一项伟大的壮举。我们为他们的到来做了很多准备——我们参加了医院参观和分娩课程，装饰了婴儿室，组装了婴儿床，举办了婴儿送礼会，还雇了家庭摄影师。但是有时候我们为孩子的到来做了太多的计划，以至于我们没有充分地计划一旦孩子真的来到这里，我们该如何应对。
 

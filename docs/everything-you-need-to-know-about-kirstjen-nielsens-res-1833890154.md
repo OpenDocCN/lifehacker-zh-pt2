@@ -1,6 +1,6 @@
 # 你需要知道的关于科斯珍·尼尔森辞职的一切
 
-> 原文:[https://life hacker . com/everything-you-needle-to-know-on-kirstjen-nielsens-RES-1833890154](https://lifehacker.com/everything-you-need-to-know-about-kirstjen-nielsens-res-1833890154)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-about-kirstjen-nielsens-res-1833890154>
 
 本周末，国土安全部部长科尔斯特延·尼尔森(Kirstjen Nielsen)在与特朗普总统的一次会议后突然辞职。如果你正在翻阅一个又一个标题，试图理解这意味着什么，你应该知道它可能不是好消息，它很可能会恶化美墨边境的局势。这是你需要了解的本周新闻。
 

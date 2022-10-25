@@ -1,6 +1,6 @@
 # 什么时候你应该让你的孩子成为你信用卡的授权用户？
 
-> 原文:[https://life hacker . com/when-you-should-make-you-kid-an-authorized-user-on-you 1841305774](https://lifehacker.com/when-should-you-make-your-kid-an-authorized-user-on-you-1841305774)
+> 原文：<https://lifehacker.com/when-should-you-make-your-kid-an-authorized-user-on-you-1841305774>
 
 你需要一个良好的信用评分来获得信用卡，但你需要一个信用记录来获得良好的信用。这种个人理财的第 22 条军规对于那些想开始建立信用记录的年轻人和那些想让自己的孩子拥有强大财务基础的父母来说是一种挑战。
 

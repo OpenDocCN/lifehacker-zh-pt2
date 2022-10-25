@@ -1,6 +1,6 @@
 # 升级密码，而不是更改密码
 
-> 原文:[https://life hacker . com/与其更改您的密码，不如升级它们-1836182279](https://lifehacker.com/instead-of-changing-your-passwords-upgrade-them-1836182279)
+> 原文：<https://lifehacker.com/instead-of-changing-your-passwords-upgrade-them-1836182279>
 
 是什么让 [成为伟大的密码](https://lifehacker.com/how-to-create-secure-passwords-that-arent-impossible-to-1825048324) ？长的东西，用 [随机化的东西，各种字符](https://lifehacker.com/how-password-constraints-give-you-a-false-sense-of-secu-1830564360)——数字、符号和字母的所有情况——以及，理想情况下，用 [备份的东西，一种二次认证方法](https://lifehacker.com/two-factor-authentication-isnt-enough-to-keep-your-acco-1827867557) 。换句话说，*你*越容易记住你的密码，别人就越容易破解(一般来说)。
 

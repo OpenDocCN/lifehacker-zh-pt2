@@ -1,6 +1,6 @@
 # 用几乎空了的果酱罐制作你自己的水果酸奶
 
-> 原文:[https://life hacker . com/make-your-own-your-own-fruit-on-the-bottom-arbitat-1842776520](https://lifehacker.com/make-your-own-fruit-on-the-bottom-yogurt-with-an-almost-1842776520)
+> 原文：<https://lifehacker.com/make-your-own-fruit-on-the-bottom-yogurt-with-an-almost-1842776520>
 
 作为一个喜爱美味果酱和蜜饯的人，我不愿意浪费哪怕一点点这种甜食。如果你发现自己处于尴尬的境地，没有足够的 T2 来吃烤面包，你仍然可以在早餐时吃它——只需在上面舀一些纯酸奶。
 

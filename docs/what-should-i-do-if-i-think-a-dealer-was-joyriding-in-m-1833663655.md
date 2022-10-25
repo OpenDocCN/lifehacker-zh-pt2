@@ -1,6 +1,6 @@
 # 如果我认为一个经销商开着我的车兜风，我该怎么办？
 
-> 原文:[https://jalopnik . com/what-I-should-I-do-if-I-think-a-dealer-was-joyring-in-m-1833663655](https://jalopnik.com/what-should-i-do-if-i-think-a-dealer-was-joyriding-in-m-1833663655)
+> 原文：<https://jalopnik.com/what-should-i-do-if-i-think-a-dealer-was-joyriding-in-m-1833663655>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。我决定挑几个问题，试着帮帮大家。本周我们将讨论如果经销商的服务部门骑着你的车兜风，卖二手蓝宝，以及如果你买错了车该怎么办。
 

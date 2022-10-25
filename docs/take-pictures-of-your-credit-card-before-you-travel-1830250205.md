@@ -1,6 +1,6 @@
 # 旅行前给你的信用卡拍照
 
-> 原文:[https://life hacker . com/photos-of-your-card-before-you-travel-1830250205](https://lifehacker.com/take-pictures-of-your-credit-card-before-you-travel-1830250205)
+> 原文：<https://lifehacker.com/take-pictures-of-your-credit-card-before-you-travel-1830250205>
 
 当你旅行时，不缺少出错的事情:你可能会丢失你的借记卡或信用卡；你的钱包可能会被偷；你的手机可能会掉在旅社门口的栅栏上(是的，我也遇到过这种情况)。
 

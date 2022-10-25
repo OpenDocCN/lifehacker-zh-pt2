@@ -1,6 +1,6 @@
 # 使用 GSMArena 的手机搜索器挑选您的下一部智能手机
 
-> 原文:[https://life hacker . com/use-gsmarenas-phone-finder-to-pick-your-next-smart phone-1829911674](https://lifehacker.com/use-gsmarenas-phone-finder-to-pick-your-next-smartphone-1829911674)
+> 原文：<https://lifehacker.com/use-gsmarenas-phone-finder-to-pick-your-next-smartphone-1829911674>
 
 对大多数人来说，购买一部新的智能手机很容易——你只需要得到你一直在使用的手机的最新版本。如果你不够满意，或者你不想要最新的 Galaxy、Pixel 或 iPhone(仅举几例)，那么是时候去购物了，为了找到最适合你的智能手机，你将有一大堆智能手机要涉水而过。
 

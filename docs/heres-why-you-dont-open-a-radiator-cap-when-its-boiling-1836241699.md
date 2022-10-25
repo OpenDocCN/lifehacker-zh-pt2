@@ -1,6 +1,6 @@
 # 这就是为什么当水滚烫时你不打开散热器盖的原因
 
-> 原文:[https://jalopnik . com/heres-why-you-don-t-open-a-a-radiator-cap-when-when-it-boiling-1836241699](https://jalopnik.com/heres-why-you-dont-open-a-radiator-cap-when-its-boiling-1836241699)
+> 原文：<https://jalopnik.com/heres-why-you-dont-open-a-radiator-cap-when-its-boiling-1836241699>
 
 如果你认为这是显而易见的，那么，你就大错特错了，因为一个家伙很快就发现了宝马 E36。
 

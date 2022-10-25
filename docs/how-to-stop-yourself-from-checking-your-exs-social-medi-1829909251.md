@@ -1,6 +1,6 @@
 # 如何阻止自己查看前任的社交媒体资料
 
-> 原文:[https://life hacker . com/how-to-stop-your-exs-social-medi-1829909251](https://lifehacker.com/how-to-stop-yourself-from-checking-your-exs-social-medi-1829909251)
+> 原文：<https://lifehacker.com/how-to-stop-yourself-from-checking-your-exs-social-medi-1829909251>
 
 分手是很难做到的，尤其是当我们有很多公开资料可以查看前任做的每一件事的时候。看着和你约会的人如何度过没有你的日子是个坏主意，但是很难抗拒。你可以这样做。
 

@@ -1,6 +1,6 @@
 # 如何获得免费的艾滋病毒预防药物
 
-> 原文:[https://life hacker . com/how-to-get-free-HIV-prevention-druging-1840213888](https://lifehacker.com/how-to-get-free-hiv-prevention-medication-1840213888)
+> 原文：<https://lifehacker.com/how-to-get-free-hiv-prevention-medication-1840213888>
 
 称为 PrEP 或暴露前预防的药物可以将感染艾滋病毒的风险降低 97%。他们被推荐给任何高危人群，包括有 HIV 阳性伴侣的人。如果没有保险，这些药物可能会很贵，但是今天政府宣布了一项计划，向没有保险的人免费提供这些药物。
 

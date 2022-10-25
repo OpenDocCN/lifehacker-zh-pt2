@@ -1,6 +1,6 @@
 # 根据物理治疗师的说法，如何在长途飞行中幸存下来
 
-> 原文:[https://life hacker . com/how-to-survive-to-sitting-on-a-to-a-1835148711](https://lifehacker.com/how-to-survive-sitting-on-a-long-flight-according-to-a-1835148711)
+> 原文：<https://lifehacker.com/how-to-survive-sitting-on-a-long-flight-according-to-a-1835148711>
 
 我从来不能在飞机上舒服地坐着；多年来我一直与腰痛作斗争。众所周知，在一次坐在中间座位的长途飞行后，我瘫倒在机场的地板上，就像一个刚学会走路的婴儿。
 

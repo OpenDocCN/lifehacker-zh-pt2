@@ -1,6 +1,6 @@
 # 做熏鳟鱼蘸只有当你准备好永远上钩
 
-> 原文:[https://the take out . com/熏鳟鱼-dip-recipe-packaged-fish-1839166834](https://thetakeout.com/smoked-trout-dip-recipe-packaged-fish-1839166834)
+> 原文：<https://thetakeout.com/smoked-trout-dip-recipe-packaged-fish-1839166834>
 
 像任何一个好的玉米带天主教徒一样，我最早对鱼的体验是被迫在周五吃鱼，而不是我更想吃的肉。主题的变化包括冷冻烤鱼条、煮得很差的鲶鱼和金枪鱼罐头。直到今天我都没有碰过这东西。即使是成年人，我也告诉自己，可悲的是，我在地理上远离了招牌鱼——你的大西洋鳕鱼、你的奥卡帕卡鱼、你的致命河豚 T2 和 T3。直到有一次，作为一名尚未堕落的天主教徒，我去了一家夫妻店鱼市，与第三海岸海鲜的柏拉图式理想面对面:熏鳟鱼蘸酱。
 

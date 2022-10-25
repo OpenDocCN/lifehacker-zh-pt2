@@ -1,6 +1,6 @@
 # 明天之前购买 JetBlue 机票，机票价格低至 20 美元
 
-> 原文:[https://life hacker . com/buy-JetBlue-tickets-tomorrow-for-airfares-as-low-as-20-1841600765](https://lifehacker.com/buy-jetblue-tickets-tomorrow-for-airfares-as-low-as-20-1841600765)
+> 原文：<https://lifehacker.com/buy-jetblue-tickets-tomorrow-for-airfares-as-low-as-20-1841600765>
 
 今年春天旅行需要借口吗？JetBlue 正在庆祝其 20 岁生日，2 月 19 日至 6 月 17 日期间的机票价格低至 20 美元。
 

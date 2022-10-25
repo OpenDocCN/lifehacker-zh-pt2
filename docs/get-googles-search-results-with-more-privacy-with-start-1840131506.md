@@ -1,6 +1,6 @@
 # 使用 Startpage 获得更隐私的 Google 搜索结果
 
-> 原文:[https://life hacker . com/get-Googles-search-results-with-more-privacy-with-start-1840131506](https://lifehacker.com/get-googles-search-results-with-more-privacy-with-start-1840131506)
+> 原文：<https://lifehacker.com/get-googles-search-results-with-more-privacy-with-start-1840131506>
 
 说到网络搜索，我们当中注重隐私的人可能已经听说过 DuckDuckGo。本周， *Fast Company* [写了一篇关于搜索引擎](https://www.fastcompany.com/90437058/this-alternative-search-engine-is-basically-google-without-the-privacy-headaches) 的替代品 Startpage，如果你是 DuckDuckGo 的用户，也值得一看。
 

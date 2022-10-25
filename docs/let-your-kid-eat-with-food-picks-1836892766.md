@@ -1,6 +1,6 @@
 # 让你的孩子用食物挑选器吃饭
 
-> 原文:[https://life hacker . com/let-your-kid-eat-with-food-picks-1836892766](https://lifehacker.com/let-your-kid-eat-with-food-picks-1836892766)
+> 原文：<https://lifehacker.com/let-your-kid-eat-with-food-picks-1836892766>
 
 每次我们去我朋友安娜家，她都会给孩子们放一盘水果。李子，亚洲梨，甜瓜。我女儿总是一片一片地狼吞虎咽。然而，每当我在家里给孩子吃同样类型的水果时，她很少感兴趣。有什么区别？我断定这一定是安娜可爱的小食物选择。
 

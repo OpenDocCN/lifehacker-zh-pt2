@@ -1,6 +1,6 @@
 # 既然我们正处于经济衰退，该如何处理你的钱呢
 
-> 原文:[https://life hacker . com/what-do with the your ' s money-now-than-are-a-a-recess SiO-1843966353](https://lifehacker.com/what-to-do-with-your-money-now-that-were-in-a-recesssio-1843966353)
+> 原文：<https://lifehacker.com/what-to-do-with-your-money-now-that-were-in-a-recesssio-1843966353>
 
 经过几个月的讨论，短暂的乐观时期，然后全球疫情的开始，官方宣布:我们正处于衰退之中。
 

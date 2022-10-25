@@ -1,6 +1,6 @@
 # 如何流式传输美国女子足球队游行
 
-> 原文:[https://life hacker . com/how-to-stream-the-u-s-women-soccer-team-parade-1836240753](https://lifehacker.com/how-to-stream-the-u-s-womens-soccer-team-parade-1836240753)
+> 原文：<https://lifehacker.com/how-to-stream-the-u-s-womens-soccer-team-parade-1836240753>
 
 美国女子足球队在周日的世界杯决赛中打破纪录，赢得了我们的心；作为回报，我们欠他们一辆老式的 [彩车](https://www1.nyc.gov/office-of-the-mayor/news/331-19/goooaaalll-mayor-de-blasio-ticker-tape-parade-honor-record-breaking-world-cup) 。
 

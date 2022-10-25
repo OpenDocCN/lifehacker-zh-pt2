@@ -1,6 +1,6 @@
 # 什么是每周回顾，你如何从中获得最大收益？
 
-> 原文:[https://life hacker . com/what-a-weekly-review-and-how-can-you-get-the-most-ou-1843996587](https://lifehacker.com/what-is-a-weekly-review-and-how-can-you-get-the-most-ou-1843996587)
+> 原文：<https://lifehacker.com/what-is-a-weekly-review-and-how-can-you-get-the-most-ou-1843996587>
 
 如果你熟悉大卫·艾伦的 [*做事*](https://gettingthingsdone.com/) 生产力系统，你就已经知道每周回顾的重要性了。如果你没有，这里有一个快速概述:每周，你不仅要花时间回顾你即将到来的承诺和未完成的任务，还要回顾这些承诺和任务反映你短期、中期和长期目标的方式。
 

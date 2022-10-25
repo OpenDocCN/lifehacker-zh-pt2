@@ -1,6 +1,6 @@
 # 使用里兹饼干制作超级黄油不烤馅饼皮
 
-> 原文:[https://life hacker . com/use-ritz-cracker-to-make-extra-buttery-no-bake-pie-cru-1835122203](https://lifehacker.com/use-ritz-crackers-to-make-extra-buttery-no-bake-pie-cru-1835122203)
+> 原文：<https://lifehacker.com/use-ritz-crackers-to-make-extra-buttery-no-bake-pie-cru-1835122203>
 
 全麦饼干脆皮 填补了一个非常重要的甜点利基:当你想吃馅饼，但不能移动来打开你的烤箱时，一个快速，简单的脆皮。作为一个讨厌流汗并且总是想吃派的人，我希望我能对他们更感兴趣。
 

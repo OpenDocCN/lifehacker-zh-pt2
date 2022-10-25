@@ -1,6 +1,6 @@
 # 如何下载你所有的 Instagram 照片并永远抛弃脸书
 
-> 原文:[https://life hacker . com/how-to-download-all-your-insta gram-pictures-1831281692](https://lifehacker.com/how-to-download-all-your-instagram-pictures-1831281692)
+> 原文：<https://lifehacker.com/how-to-download-all-your-instagram-pictures-1831281692>
 
 上周有消息称，脸书一直在与微软和亚马逊等其他公司分享你在网站上做的事情，这让我们许多人开始考虑(可能不是第一次)删除脸书和 Instagram 和 WhatsApp 等公司拥有的其他应用。
 

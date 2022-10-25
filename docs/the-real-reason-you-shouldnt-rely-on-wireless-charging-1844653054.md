@@ -1,6 +1,6 @@
 # 你不应该依赖无线充电的真正原因
 
-> 原文:[https://life hacker . com/the-real-real-reason-you-should-relay-wireless-charging-1844653054](https://lifehacker.com/the-real-reason-you-shouldnt-rely-on-wireless-charging-1844653054)
+> 原文：<https://lifehacker.com/the-real-reason-you-shouldnt-rely-on-wireless-charging-1844653054>
 
 我喜欢人们出去*实际测试*我们每天依赖的硬件。这就是为什么我过去常常花太多时间在 Wirecutter 上运行路由器文件传输测试，也是为什么我喜欢 Lifehacker 的校友 Eric Ravenscraft 的最新分析，该分析揭示了手机无线充电设置的一些大问题——这些问题我们可能都在某个时候想过，但从未具体指出。
 

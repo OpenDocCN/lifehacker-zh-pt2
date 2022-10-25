@@ -1,6 +1,6 @@
 # 快速找出有这个网站的每个国家的签证要求
 
-> 原文:[https://life hacker . com/quickly-figure-what-the-visa-requirements-for-e-1831123185](https://lifehacker.com/quickly-figure-out-what-the-visa-requirements-are-for-e-1831123185)
+> 原文：<https://lifehacker.com/quickly-figure-out-what-the-visa-requirements-are-for-e-1831123185>
 
 今年早些时候，我第一次去了澳大利亚。我提前几个月预订了机票，确保我带了所有合适的电源适配器，然后在出发的那天前往机场，结果发现美国公民实际上需要签证才能进入这个国家。哎呦。
 

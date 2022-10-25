@@ -1,6 +1,6 @@
 # 你需要知道的关于家庭第一冠状病毒反应法案
 
-> 原文:[https://life hacker . com/what-you-need-to-know-the-families-first-coronavi-1842427176](https://lifehacker.com/what-you-need-to-know-about-the-families-first-coronavi-1842427176)
+> 原文：<https://lifehacker.com/what-you-need-to-know-about-the-families-first-coronavi-1842427176>
 
 3 月 18 日周三，特朗普总统签署了 H.R. 6201，又称 [家庭第一冠状病毒应对法案](https://www.congress.gov/bill/116th-congress/house-bill/6201/text) ，使之成为法律。我将继续引用法案摘要，而不是试图自己重新总结:
 

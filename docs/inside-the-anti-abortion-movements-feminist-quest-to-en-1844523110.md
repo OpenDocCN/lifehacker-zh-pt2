@@ -1,6 +1,6 @@
 # inside the anti abortion movements feminist quest to en 1844523110
 
-> 原文:[https://Jezebel . com/inside-the-anti-family-movements-feminist-quest-to-en-1844523110](https://jezebel.com/inside-the-anti-abortion-movements-feminist-quest-to-en-1844523110)
+> 原文：<https://jezebel.com/inside-the-anti-abortion-movements-feminist-quest-to-en-1844523110>
 
 2019 年反堕胎妇女大会并没有像广告中所说的那样在新奥尔良举行，而是在邻近的肯纳郊区，那里有更多的购物中心，犯罪的诱惑明显减少。庞恰特雷恩会议和市民中心，孤立在城市的一个偏僻角落，坐落在一个混凝土板的尽头，拥有飞机跑道的所有平方英尺和魅力。那是一个夏天的周末，在伟大的南方刀枪展和秋葵舞蹈运动锦标赛之间，天气如此炎热，以至于蜻蜓在半空中坠落，像鱼一样在人行道上扑腾。在玻璃建筑外，一名中年妇女对着一支香烟流汗，大声地想知道这些垂死的昆虫是否只是想念它们的女王。她把目光从昆虫上移开，悠闲地凝视着街对面的风景，那是保护指定“抗议区”的两个相连的路障。没有人在那里。
 

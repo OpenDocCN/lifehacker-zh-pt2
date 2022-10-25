@@ -1,6 +1,6 @@
 # 移除一片不规则蛋壳的最好方法
 
-> 原文:[https://life hacker . com/the-best-way-to-remove-an-a-errant-piece-a-蛋壳碎片-1844137468](https://lifehacker.com/the-best-way-to-remove-an-errant-piece-of-eggshell-1844137468)
+> 原文：<https://lifehacker.com/the-best-way-to-remove-an-errant-piece-of-eggshell-1844137468>
 
 没错，不打破几个鸡蛋就做不成煎蛋卷(或任何鸡蛋菜肴)。即使你是最小心的鸡蛋打破者，一点蛋壳也会时不时地进入锅里。这看起来并不是一场灾难，但却很烦人。
 

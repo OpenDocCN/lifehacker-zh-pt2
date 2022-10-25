@@ -1,6 +1,6 @@
 # 通过这个测试找到你的流行音乐盲点
 
-> 原文:[https://life hacker . com/find-your-pop-music-blind-spots-with this-quick-1843302769](https://lifehacker.com/find-your-pop-music-blind-spots-with-this-quiz-1843302769)
+> 原文：<https://lifehacker.com/find-your-pop-music-blind-spots-with-this-quiz-1843302769>
 
 每天，互联网都迫使我面对这样一个事实:我比自己想象的要老得多。最近，这条推文(已被删除)做得很好:
 

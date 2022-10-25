@@ -1,6 +1,6 @@
 # 使用硬件令牌保护您的帐户和密码
 
-> 原文:[https://life hacker . com/secure-your-accounts-and-password-with a-hardware-toke-1830063430](https://lifehacker.com/secure-your-accounts-and-passwords-with-a-hardware-toke-1830063430)
+> 原文：<https://lifehacker.com/secure-your-accounts-and-passwords-with-a-hardware-toke-1830063430>
 
 双因素身份验证是为您的帐户(或密码管理器)增加额外安全性的一种快速、简单的方法。为了更加安全和安心，考虑购买一个硬件令牌，如 YubiKey 或 Google Titan。它们非常容易设置，只要您将 USB 附件放在身上或附近，例如放在钥匙圈上，您就可以像输入密码一样快速地验证支持的帐户和服务。由于没有其他人会有你的硬件认证，你的帐户将受到保护，免受其他攻击者。
 

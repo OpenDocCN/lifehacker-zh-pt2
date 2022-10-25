@@ -1,6 +1,6 @@
 # 如何找到更好的播客
 
-> 原文:[https://life hacker . com/how-to-find-better-podcast-1835817421](https://lifehacker.com/how-to-find-better-podcasts-1835817421)
+> 原文：<https://lifehacker.com/how-to-find-better-podcasts-1835817421>
 
 有比你能尝试的更多的播客，但是大部分都是垃圾，或者不是你喜欢的。你怎么找到好东西的？我和电子邮件时事通讯的编辑卡罗琳·克兰普顿聊过，她每天都会推荐三到五集精彩的播客。为了找到他们，她每天听 2-6 个小时的播客，并不断搜索节目进行尝试。以下是她如何找到这么多好的播客，你也可以。
 

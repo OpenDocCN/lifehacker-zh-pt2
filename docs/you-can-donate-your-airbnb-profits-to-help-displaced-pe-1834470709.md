@@ -1,6 +1,6 @@
 # 你可以捐出你的 Airbnb 利润，帮助流离失所的人找到住房
 
-> 原文:[https://life hacker . com/you-can-duate-your-Airbnb-profits-to-help-displaced-PE-1834470709](https://lifehacker.com/you-can-donate-your-airbnb-profits-to-help-displaced-pe-1834470709)
+> 原文：<https://lifehacker.com/you-can-donate-your-airbnb-profits-to-help-displaced-pe-1834470709>
 
 想要回馈的 Airbnb 主机现在可以捐出一部分——或全部——利润来帮助受灾难、冲突或重大疾病影响的人们。
 

@@ -1,6 +1,6 @@
 # 如何用应用程序解决任何数学问题
 
-> 原文:[https://life hacker . com/how-to-solve-any-math-problem with-a-app-1836671400](https://lifehacker.com/how-to-solve-any-math-problem-with-an-app-1836671400)
+> 原文：<https://lifehacker.com/how-to-solve-any-math-problem-with-an-app-1836671400>
 
 **iOS/Android/桌面:**默认计算器应用烂透了。它们像传统的手持计算器一样工作，一次只显示一个值，只能做基本的数学运算。如果你想做的不仅仅是计算小费，你最好使用这些免费且便宜的计算器应用程序。
 

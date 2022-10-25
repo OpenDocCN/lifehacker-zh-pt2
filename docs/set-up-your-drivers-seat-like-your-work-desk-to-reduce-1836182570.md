@@ -1,6 +1,6 @@
 # 把你的驾驶座设置得像你的办公桌一样，以减少疼痛
 
-> 原文:[https://life hacker . com/set-up-your-drivers-seat-like-your-work-desk-to-reduce-1836182570](https://lifehacker.com/set-up-your-drivers-seat-like-your-work-desk-to-reduce-1836182570)
+> 原文：<https://lifehacker.com/set-up-your-drivers-seat-like-your-work-desk-to-reduce-1836182570>
 
 如果你是一个一天中大部分时间都在办公桌前工作的人，你可能已经采取措施 [改善你的姿势](https://lifehacker.com/the-ideal-sitting-posture-and-workspace-setup-for-healt-1777517795) 并在你的工作场所感到舒适。也许你安装了一个符合人体工程学的键盘，或者坐在一个健身球上，或者有一个背部支撑垫来帮助减少长时间坐着带来的疼痛。但是如果你的通勤包括开车——尽管有所有与办公室相关的预防措施——你在一天结束时仍然感到疼痛，这可能是因为你的驾驶姿势 。
 

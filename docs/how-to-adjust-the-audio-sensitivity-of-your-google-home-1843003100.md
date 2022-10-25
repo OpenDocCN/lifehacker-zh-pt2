@@ -1,6 +1,6 @@
 # 如何调整 Google Home 设备的音频灵敏度
 
-> 原文:[https://life hacker . com/how-to-adjust-the-audio-sensitivity-of-your-Google-home-1843003100](https://lifehacker.com/how-to-adjust-the-audio-sensitivity-of-your-google-home-1843003100)
+> 原文：<https://lifehacker.com/how-to-adjust-the-audio-sensitivity-of-your-google-home-1843003100>
 
 自从 Siri 首次推出以来，无意中通过说出唤醒词(或听起来足够像它的东西来愚弄计算机)召唤出一个像谷歌助手一样的人工智能助手已经成为生活中的一个事实。它也可能是一个长期的问题，取决于你的生活状况和你如何使用你的智能设备:有时事情可能是这样...过分热心于他们为你服务的愿望并且会认为*任何*发声都意味着你试图激活他们。另一方面，有时候你的设备似乎无法在你希望的时候听到你的声音。
 

@@ -1,6 +1,6 @@
 # 尝试这些运动心理学技巧来度过分娩
 
-> 原文:[https://life hacker . com/try-these-sports-psychology-techniques-to-get-through-c-1832235647](https://lifehacker.com/try-these-sports-psychology-techniques-to-get-through-c-1832235647)
+> 原文：<https://lifehacker.com/try-these-sports-psychology-techniques-to-get-through-c-1832235647>
 
 我曾经参加过马拉松比赛，并在同一年生了一个孩子，我发现这两件事在精神上非常相似。在这两种情况下，一开始都不会太痛，但你知道你必须保存体力。你会到达一个点，你觉得你的身体不能再往前走了，然而还有更远的路要走。你永远无法真正预测最后会发生什么。
 

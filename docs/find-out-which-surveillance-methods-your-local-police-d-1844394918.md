@@ -1,6 +1,6 @@
 # 找出当地警察局使用的监视方法
 
-> 原文:[https://life hacker . com/find-out-which-surveillance-methods-your-local-police-d-1844394918](https://lifehacker.com/find-out-which-surveillance-methods-your-local-police-d-1844394918)
+> 原文：<https://lifehacker.com/find-out-which-surveillance-methods-your-local-police-d-1844394918>
 
 最近几周，人们对警察部门的政策和做法进行了越来越多的审查，并对警察暴行、监控和缺乏问责进行了清算。值得一提的是，e 即使你住在一个看似寂静的小镇，你当地的警察部门也很可能从事*某种*类型的监视——现在你可以 [找出他们到底在使用什么方法](https://venturebeat.com/2020/07/13/atlas-of-surveillance-now-provides-searchable-interactive-database-of-police-surveillance/) 。
 

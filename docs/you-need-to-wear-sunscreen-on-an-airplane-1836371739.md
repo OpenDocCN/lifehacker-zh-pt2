@@ -1,6 +1,6 @@
 # 在飞机上你需要涂防晒霜
 
-> 原文:[https://life hacker . com/you-need-to-write-on-a-plant-1836371739](https://lifehacker.com/you-need-to-wear-sunscreen-on-an-airplane-1836371739)
+> 原文：<https://lifehacker.com/you-need-to-wear-sunscreen-on-an-airplane-1836371739>
 
 我总是去靠窗的座位。我想说，这是因为我可以从上面惊叹我们星球的美丽，但真的，我只是需要一个地方来休息，因为我会闭上眼睛，流口水几个小时。在我三十多年的空中旅行中，我从来没有质疑过我的座位偏好——直到我知道我的脸可能会因此而发热。
 

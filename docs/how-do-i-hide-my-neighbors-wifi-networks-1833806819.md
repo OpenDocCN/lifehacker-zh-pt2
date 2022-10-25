@@ -1,6 +1,6 @@
 # 如何隐藏邻居的 Wifi 网络？
 
-> 原文:[https://life hacker . com/how-do-I-hide-my-neighbors-wifi-networks-1833806819](https://lifehacker.com/how-do-i-hide-my-neighbors-wifi-networks-1833806819)
+> 原文：<https://lifehacker.com/how-do-i-hide-my-neighbors-wifi-networks-1833806819>
 
 我在这个 [**Tech 911**](https://lifehacker.com/c/tech-911) 建议专栏里讲了很多关于无线网络的内容。本周也不例外。就在我认为我们已经涵盖了一切的时候，一个读者问题突然出现了，需要引起注意——部分是因为这是一个古怪的问题，部分是因为我喜欢用一杯新鲜的 wifi 相关建议开始我的周五早晨。
 

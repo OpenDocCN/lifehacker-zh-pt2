@@ -1,6 +1,6 @@
 # 如何在非商用烤箱中获得高热效果
 
-> 原文:[https://life hacker . com/how-to-get-high-heat-results-in-your-non-commercial-1840366511](https://lifehacker.com/how-to-obtain-high-heat-results-in-your-non-commercial-1840366511)
+> 原文：<https://lifehacker.com/how-to-obtain-high-heat-results-in-your-non-commercial-1840366511>
 
 当需要极高的温度时，餐馆食物和自制食物的差别最大。商用烤箱的设计是为了达到起泡披萨和硬皮手工面包所需的高温；家用烤箱就不是。但是，即使你租的是一辆老式的破旧出租汽车， [巧妙的货架定位](https://lifehacker.com/understand-your-oven-better-and-never-burn-a-frozen-piz-1743357346) 也能让你的烤箱比实际温度更热。
 

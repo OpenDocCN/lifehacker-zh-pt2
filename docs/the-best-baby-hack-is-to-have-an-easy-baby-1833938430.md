@@ -1,6 +1,6 @@
 # 最好的育儿方法是生一个简单的宝宝
 
-> 原文:[https://life hacker . com/the-best-baby-hack-is-to-have-a-easy-baby-1833938430](https://lifehacker.com/the-best-baby-hack-is-to-have-an-easy-baby-1833938430)
+> 原文：<https://lifehacker.com/the-best-baby-hack-is-to-have-an-easy-baby-1833938430>
 
 发表在 [学术儿科学](https://www.academicpedsjnl.net/article/S1876-2859(18)30541-2/fulltext) 上的一项新研究证实，挑剔婴儿的母亲比“容易”婴儿的母亲更容易出现抑郁症状。一份 [新闻稿](https://labblog.uofmhealth.org/rounds/mothers-of-fussy-babies-at-higher-risk-of-depressive-symptoms) 称，研究人员从 8200 多名儿童及其父母中提取数据，发现“婴儿越不容易安抚，母亲就越痛苦”。事实上，照顾难相处的婴儿确实需要付出情感代价。
 

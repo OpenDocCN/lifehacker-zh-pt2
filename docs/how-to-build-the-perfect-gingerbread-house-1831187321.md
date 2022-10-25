@@ -1,6 +1,6 @@
 # 如何建造完美的姜饼屋
 
-> 原文:[https://life hacker . com/how-to-build-the-perfect-gingerbread-house-1831187321](https://lifehacker.com/how-to-build-the-perfect-gingerbread-house-1831187321)
+> 原文：<https://lifehacker.com/how-to-build-the-perfect-gingerbread-house-1831187321>
 
 我不是建筑师。我不知道如何理解蓝图或使事情稳定，甚至不知道真正理解“模型”是做什么的。我是一个称职的厨师，但不是一个好面包师。我一生中尝试做的两层蛋糕在完成后的几个小时内就像比萨斜塔一样开始坍塌。然而，我非常顽固，非常有精神。我不断看到各地的姜饼屋，作为一个喜欢好吃的饼干和一堆橡皮糖的人，我找到一些专家给你(我)一些建议，这些建议不太适合你在网上阅读的食谱(有数百种)。
 

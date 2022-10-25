@@ -1,6 +1,6 @@
 # 用“吹牛文件”克服冒名顶替综合症
 
-> 原文:[https://life hacker . com/comprise-imposter-syndrome-with-a-brag-file-1835103632](https://lifehacker.com/overcome-imposter-syndrome-with-a-brag-file-1835103632)
+> 原文：<https://lifehacker.com/overcome-imposter-syndrome-with-a-brag-file-1835103632>
 
 总有一天，我会辞去在 Lifehacker 的工作(因为太优秀而被解雇)，当我申请一份新工作时，我需要收集一份作品集并更新我的简历。不会花很长时间，因为我已经收集了我最好的作品。无论你的作品是否公开，你都应该这样做。你会有一个更强大的投资组合，更少的繁重工作。
 

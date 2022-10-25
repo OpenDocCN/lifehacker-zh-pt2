@@ -1,6 +1,6 @@
 # 购买冷冻土豆煎饼不仅可以接受，而且受到鼓励
 
-> 原文:[https://the take out . com/buy-frozen-hash-browns-vs-fresh-grated-potatos-1840972756](https://thetakeout.com/buy-frozen-hash-browns-vs-fresh-grated-potatoes-1840972756)
+> 原文：<https://thetakeout.com/buy-frozen-hash-browns-vs-fresh-grated-potatoes-1840972756>
 
 我是自制东西的冠军。当你花时间煮一点牛奶并用粗棉布过滤后，乳清干酪 的味道会好一百倍。 [鸡汤](https://thetakeout.com/homemade-chicken-stock-separates-great-home-cooks-from-1825194601) 在炉子上炖八个小时更有深度。 [意大利面](https://thetakeout.com/you-should-make-homemade-pasta-1832572661) 当你决定用尽你的前臂揉面时，它有一种不可替代的、蓬松的、鸡蛋般的质感。家常菜回报丰厚，但也有例外。烹饪化学家在他们的实验室中已经完善了一些东西，当人类因素被完全去除时，食物不知何故会变得更好。花时间从零开始做它们将是一件愚蠢的差事，伙计，有一件事是绝对不应该尝试的，那就是自制土豆煎饼。冷冻餐车-质量超值楼层-模型-成本碎早餐薯饼是一种美丽的东西，你不会做得更好。
 

@@ -1,6 +1,6 @@
 # 使用这个网站重新观看十年前最受欢迎的 YouTube 视频
 
-> 原文:[https://life hacker . com/rewatch-the-most-popular-YouTube-videos-from-exact-a-1837776839](https://lifehacker.com/rewatch-the-most-popular-youtube-videos-from-exactly-a-1837776839)
+> 原文：<https://lifehacker.com/rewatch-the-most-popular-youtube-videos-from-exactly-a-1837776839>
 
 我很喜欢社交媒体网站上的“今天”提醒。毫无疑问，当脸书重新展示我十年前发布的《老友记》的照片时，我很高兴，当 Instagram 让我想起我几年前发布的一张照片时，我也很高兴。
 

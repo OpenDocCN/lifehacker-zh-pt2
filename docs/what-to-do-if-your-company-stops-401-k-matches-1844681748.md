@@ -1,6 +1,6 @@
 # 如果你的公司停止 401(k)匹配该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-if-your-company-stops-401-k-matches-1844681748](https://lifehacker.com/what-to-do-if-your-company-stops-401-k-matches-1844681748)
+> 原文：<https://lifehacker.com/what-to-do-if-your-company-stops-401-k-matches-1844681748>
 
 随着疫情的肆虐，许多公司被迫做出艰难的成本节约决定——不幸的是，工人受到的影响最大。根据 [新的 MagnifyMoney 报告](https://www.magnifymoney.com/blog/investing/401k-match-suspensions-study/) ，由于公司暂停匹配计划，员工可能在未来 12 个月内损失 130 亿美元的退休计划缴款。
 

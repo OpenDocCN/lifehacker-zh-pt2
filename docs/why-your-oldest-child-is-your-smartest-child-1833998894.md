@@ -1,6 +1,6 @@
 # 为什么你的大孩子是你最聪明的孩子
 
-> 原文:[https://life hacker . com/why-你最大的孩子是你最聪明的孩子-1833998894](https://lifehacker.com/why-your-oldest-child-is-your-smartest-child-1833998894)
+> 原文：<https://lifehacker.com/why-your-oldest-child-is-your-smartest-child-1833998894>
 
 多子女父母早就承认，随着每多一个孩子的出现，养育标准会变得更低。
 

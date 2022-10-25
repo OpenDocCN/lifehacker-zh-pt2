@@ -1,6 +1,6 @@
 # technology ranked 1830501100
 
-> 原文:[https://gizmodo.com/technology-ranked-1830501100](https://gizmodo.com/technology-ranked-1830501100)
+> 原文：<https://gizmodo.com/technology-ranked-1830501100>
 
 这个世界充满了令人惊叹的技术，许多技术如此古老，以至于我们根本不认为它们是技术。
 

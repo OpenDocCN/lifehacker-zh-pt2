@@ -1,6 +1,6 @@
 # 该不该用苹果新的分期付款计划买 iPhone？
 
-> 原文:[https://life hacker . com/should-you-buy-an-iphone-on-apple-new-installation-plan-1840339526](https://lifehacker.com/should-you-buy-an-iphone-on-apples-new-installment-plan-1840339526)
+> 原文：<https://lifehacker.com/should-you-buy-an-iphone-on-apples-new-installment-plan-1840339526>
 
 标价 1000 美元或更多！—很难想象一下子买一部新 iPhone。你可以和你的电话公司建立一个支付计划，但是你通常要和那个运营商呆上两年。在某些情况下，你甚至不拥有每月付费的手机；更像是租赁。
 

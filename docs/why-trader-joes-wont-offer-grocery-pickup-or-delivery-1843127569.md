@@ -1,6 +1,6 @@
 # Trader Joe's 不让你订购杂货来取货或送货是有原因的
 
-> 原文:[https://the take out . com/why-trader-joes-wot-offer-杂货店-提货或送货-1843127569](https://thetakeout.com/why-trader-joes-wont-offer-grocery-pickup-or-delivery-1843127569)
+> 原文：<https://thetakeout.com/why-trader-joes-wont-offer-grocery-pickup-or-delivery-1843127569>
 
 作为人群控制措施和重要员工的安全预防措施，许多杂货店已经开始在全国范围内的家庭订单中提供杂货取货和/或送货服务。在线订购表格使选择商品和选择取货窗口变得简单，虽然你可能不会得到你订购的所有东西，但这总比在狭窄拥挤的过道徘徊并将你的卡交给今天已经不得不与太多人互动的人要好。但是作为美味冷冻食品和舒适小吃的灯塔，乔氏百货公司不会让步。它继续在没有提货或送货的情况下运营，现在这家杂货连锁店已经解释了原因。
 

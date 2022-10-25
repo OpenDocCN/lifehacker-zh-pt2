@@ -1,6 +1,6 @@
 # 通过将任务分配给一周中的每一天来简化您的工作流程
 
-> 原文:[https://life hacker . com/streamline-your-workflow-by-assigning-tasks-to-days-of-1832685402](https://lifehacker.com/streamline-your-workflow-by-assigning-tasks-to-days-of-1832685402)
+> 原文：<https://lifehacker.com/streamline-your-workflow-by-assigning-tasks-to-days-of-1832685402>
 
 一天中在许多不同的任务之间切换会让你难以集中注意力，并且会让完成这些任务变得比需要的更困难。不要在一天中来回转移你的注意力，试着把特定的日子用于特定的任务。
 

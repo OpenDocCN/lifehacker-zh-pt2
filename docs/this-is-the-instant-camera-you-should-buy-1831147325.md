@@ -1,6 +1,6 @@
 # 这是你应该买的即时照相机
 
-> 原文:[https://gizmodo . com/this-is-the-instant-camera-you-should-buy-1831147325](https://gizmodo.com/this-is-the-instant-camera-you-should-buy-1831147325)
+> 原文：<https://gizmodo.com/this-is-the-instant-camera-you-should-buy-1831147325>
 
 尽管这种媒介在 20 世纪中期几乎消亡，但现在的即时照相机比以往任何时候都更先进、更便宜。有些甚至有蓝牙。仍然很难与他们中的一个人拍出完美的照片，但这也是乐趣的一部分。
 

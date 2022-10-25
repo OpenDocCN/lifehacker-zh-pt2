@@ -1,6 +1,6 @@
 # 通过国会图书馆免费阅读罕见的经典儿童书籍
 
-> 原文:[https://life hacker . com/read-rare-classic-children-books-for-free-through-the-1834442292](https://lifehacker.com/read-rare-classic-childrens-books-for-free-through-the-1834442292)
+> 原文：<https://lifehacker.com/read-rare-classic-childrens-books-for-free-through-the-1834442292>
 
 这是 [儿童图书周](https://everychildareader.net/cbw/) 的 100 周年纪念日，国会图书馆通过提供一百多年前首次出版的 [免费在线收藏](https://www.loc.gov/collections/childrens-book-selections/about-this-collection/) 稀有儿童图书来庆祝。
 

@@ -1,6 +1,6 @@
 # 为什么收债人可能很快就能给你发短信了
 
-> 原文:[https://life hacker . com/why-debt-collectors-may-soon-able-to-text-you-1834611554](https://lifehacker.com/why-debt-collectors-may-soon-be-able-to-text-you-1834611554)
+> 原文：<https://lifehacker.com/why-debt-collectors-may-soon-be-able-to-text-you-1834611554>
 
 消费者金融保护局正计划进入科技时代，它的 [提议改变讨债人的](https://www.consumerfinance.gov/about-us/newsroom/bureau-proposes-regulations-implement-fair-debt-collection-practices-act/) 规则。虽然他们越来越明确什么是允许的，什么是不允许的，这很好，但你几乎肯定不会喜欢所有的变化。
 

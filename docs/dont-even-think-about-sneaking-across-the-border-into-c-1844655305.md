@@ -1,6 +1,6 @@
 # 想都别想偷偷越过边境进入加拿大
 
-> 原文:[https://life hacker . com/想都别想偷偷越境进入 c-1844655305](https://lifehacker.com/dont-even-think-about-sneaking-across-the-border-into-c-1844655305)
+> 原文：<https://lifehacker.com/dont-even-think-about-sneaking-across-the-border-into-c-1844655305>
 
 哦，加拿大，你这个北方的妖妇，有你的全民医保和奶酪酱薯条。有这么多美丽的景点，从爱德华王子岛到温哥华岛，以及两者之间的一切(嗯，大部分地区)，使其成为美国度假者的热门景点。鉴于加拿大被称为“公路旅行之夏” *和*加拿大，汽车可以到达，美国人想上来看看班夫或欧洲替身魁北克城清澈的海水是有道理的。
 

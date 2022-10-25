@@ -1,6 +1,6 @@
 # 给孩子们烤些鸡块
 
-> 原文:[https://life hacker . com/waffle-some-chicken-nuggets-for-the-children-1844844912](https://lifehacker.com/waffle-some-chicken-nuggets-for-the-children-1844844912)
+> 原文：<https://lifehacker.com/waffle-some-chicken-nuggets-for-the-children-1844844912>
 
 我和孩子们没有太多的共同之处，但是我听说他们喜欢吃鸡块，这是一种我能感同身受的感觉。一小口一小口的裹着面包屑的鸟简单、美味、舒适，我发现自己越来越喜欢简单的舒适。(这叫退步！查一下！)
 

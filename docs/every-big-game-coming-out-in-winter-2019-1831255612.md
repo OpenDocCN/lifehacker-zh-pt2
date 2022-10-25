@@ -1,6 +1,6 @@
 # 2019 年冬季推出的每一款大型游戏
 
-> 原文:[https://kotaku . com/every-big-game-out-in-winter-2019-1831255612](https://kotaku.com/every-big-game-coming-out-in-winter-2019-1831255612)
+> 原文：<https://kotaku.com/every-big-game-coming-out-in-winter-2019-1831255612>
 
 冬天从今天开始，这意味着是时候忘记今年所有的游戏，开始准备所有的新游戏了。
 

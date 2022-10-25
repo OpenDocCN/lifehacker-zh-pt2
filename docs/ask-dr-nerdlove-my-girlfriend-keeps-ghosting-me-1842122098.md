@@ -1,6 +1,6 @@
 # 去问 NerdLove 博士:我的女朋友一直缠着我
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-my-friend-keep-ghosting-me-1842122098](https://kotaku.com/ask-dr-nerdlove-my-girlfriend-keeps-ghosting-me-1842122098)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-my-girlfriend-keeps-ghosting-me-1842122098>
 
 大家好，你们这些会走路的自我污染角马，欢迎来到 [问问 NerdLove 博士](http://kotaku.com/askdrnerdlove) ，这是爱情游戏中唯一的常见问题解答专栏。
 

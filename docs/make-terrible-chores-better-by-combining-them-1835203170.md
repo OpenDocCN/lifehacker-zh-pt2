@@ -1,6 +1,6 @@
 # 把糟糕的家务结合起来，让它们变得更好
 
-> 原文:[https://life hacker . com/make-terrible-dodges-better-combining-them-1835203170](https://lifehacker.com/make-terrible-chores-better-by-combining-them-1835203170)
+> 原文：<https://lifehacker.com/make-terrible-chores-better-by-combining-them-1835203170>
 
 在任何时候，至少有一个打给公用事业公司的电话是我推迟的。无论是 [打电话给 ConEd](https://lifehacker.com/how-to-make-your-home-as-energy-efficient-as-possible-1831263910) 更新读数，还是打电话给频谱(偷偷换了名字，时代华纳有线，我们仍然知道是你)问 [为什么我的互联网费用](https://lifehacker.com/five-steps-to-help-you-cut-your-cable-bill-1791298146) 一直在上涨，我害怕这些电话，因为我知道它们会永远持续下去。
 

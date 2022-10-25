@@ -1,6 +1,6 @@
 # 如何在 2019 年预算紧张的情况下购买游戏
 
-> 原文:[https://kotaku . com/how-to-buy-games-on-a-tight-2019-1831551675](https://kotaku.com/how-to-buy-games-on-a-tight-budget-in-2019-1831551675)
+> 原文：<https://kotaku.com/how-to-buy-games-on-a-tight-budget-in-2019-1831551675>
 
 与其他爱好相比，电子游戏很贵——但也不尽然！以下是如何在预算范围内玩游戏。
 

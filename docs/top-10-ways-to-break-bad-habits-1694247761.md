@@ -1,6 +1,6 @@
 # 打破坏习惯的最好方法
 
-> 原文:[https://life hacker . com/top-10-ways-to-break-bad-habits-1694247761](https://lifehacker.com/top-10-ways-to-break-bad-habits-1694247761)
+> 原文：<https://lifehacker.com/top-10-ways-to-break-bad-habits-1694247761>
 
 尽管有些人不愿承认，但人类并不完美。我们知道自己应该做什么——比如锻炼、吃好、睡足——但并不总是符合标准。有时，开始只是偶尔的疏忽、失误或应对机制，却变成了成熟的坏习惯。好消息是，完全有可能戒掉你的坏习惯，我们在这里帮助你。
 

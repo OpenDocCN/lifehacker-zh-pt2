@@ -1,6 +1,6 @@
 # 为什么你的收件箱里需要一个“预购”文件夹
 
-> 原文:[https://life hacker . com/why-you-need-a-pre-orders-folder-in-your-inbox-1844917253](https://lifehacker.com/why-you-need-a-pre-orders-folder-in-your-inbox-1844917253)
+> 原文：<https://lifehacker.com/why-you-need-a-pre-orders-folder-in-your-inbox-1844917253>
 
 这里有一个有趣的小窍门:当你搬家时，确保你已经更改了你使用的任何服务的地址。这包括你经常购物的任何在线零售商，当你在搬家后买东西时看到你的旧地址，这应该是一件很明显的事情。然而，不太明显的是与您之前预订的任何订单相关联的地址。
 

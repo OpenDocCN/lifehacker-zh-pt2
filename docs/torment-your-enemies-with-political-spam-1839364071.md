@@ -1,6 +1,6 @@
 # 用政治垃圾邮件折磨你的敌人
 
-> 原文:[https://life hacker . com/用政治垃圾邮件折磨你的敌人-1839364071](https://lifehacker.com/torment-your-enemies-with-political-spam-1839364071)
+> 原文：<https://lifehacker.com/torment-your-enemies-with-political-spam-1839364071>
 
 你有没有恨一个人恨到希望机器人不停地给他们发垃圾邮件？首先，那太残忍了。其次，我们可以提供帮助。
 

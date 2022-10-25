@@ -1,6 +1,6 @@
 # 2019 年最佳转售名单是所有卡车和一辆令人惊讶的保时捷
 
-> 原文:[https://jalopnik . com/the-best-转售-2019-is-all-trucks-and-one-sur-1832156117](https://jalopnik.com/the-best-resale-list-for-2019-is-all-trucks-and-one-sur-1832156117)
+> 原文：<https://jalopnik.com/the-best-resale-list-for-2019-is-all-trucks-and-one-sur-1832156117>
 
 除非你买一些有收藏价值的异国情调的东西，否则你可以打赌，一旦你把它开出停车场，你可爱的新车就会贬值。但是有些车比其他车承受得更好。 [凯利蓝皮书发布了他们 2019 年的最佳转售名单](https://www.kbb.com/new-cars/best-resale-value-awards/) 这基本上是你所期待的，除了一个德国品牌的意外进入。
 

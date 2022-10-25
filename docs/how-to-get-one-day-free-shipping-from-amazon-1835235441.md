@@ -1,6 +1,6 @@
 # 如何从亚马逊获得一天免费送货
 
-> 原文:[https://life hacker . com/how-to-get-one-day-free-shipping-from-Amazon-1835235441](https://lifehacker.com/how-to-get-one-day-free-shipping-from-amazon-1835235441)
+> 原文：<https://lifehacker.com/how-to-get-one-day-free-shipping-from-amazon-1835235441>
 
 如果两天送货对一些客户来说不够快，亚马逊就推出了数百万件商品的免费一天送货服务。该公司周一宣布，美国大陆的 Prime 会员现在可以享受超过 1000 万件商品的特权。
 

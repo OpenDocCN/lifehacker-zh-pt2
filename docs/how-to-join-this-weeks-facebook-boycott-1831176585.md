@@ -1,6 +1,6 @@
 # 如何加入本周的脸书抵制活动
 
-> 原文:[https://life hacker . com/how-to-join-this-weeks-Facebook-boycit-1831176585](https://lifehacker.com/how-to-join-this-weeks-facebook-boycott-1831176585)
+> 原文：<https://lifehacker.com/how-to-join-this-weeks-facebook-boycott-1831176585>
 
 任何一天都是抵制脸书的好日子，但今天尤其完美。昨天参议院情报委员会发布了两份[关于俄罗斯宣传及其使用社交媒体的](https://disinformationreport.blob.core.windows.net/disinformation-report/NewKnowledge-Disinformation-Report-Whitepaper-121718.pdf) 报告。俄罗斯互联网研究机构广泛使用脸书和 Instagram 针对各种政治派别的人，特别关注美国黑人。
 

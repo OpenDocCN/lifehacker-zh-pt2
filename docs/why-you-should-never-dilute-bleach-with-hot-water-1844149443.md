@@ -1,6 +1,6 @@
 # 为什么千万不要用热水稀释漂白剂
 
-> 原文:[https://life hacker . com/why-you-should-never-different-用热水稀释漂白剂-1844149443](https://lifehacker.com/why-you-should-never-dilute-bleach-with-hot-water-1844149443)
+> 原文：<https://lifehacker.com/why-you-should-never-dilute-bleach-with-hot-water-1844149443>
 
 漂白剂是很好的消毒剂，但是安全很重要。你已经知道 [不能和氨水、醋或者酒精](https://vitals.lifehacker.com/dont-mix-your-cleaning-products-1843180430) 混合，但是你知道水的温度也很重要吗？
 

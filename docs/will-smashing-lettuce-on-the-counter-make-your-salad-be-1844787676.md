@@ -1,6 +1,6 @@
 # 在柜台上砸生菜会让你的沙拉更好吃吗？
 
-> 原文:[https://life hacker . com/will-smashing-生菜-on-the-counter-make-your-salad-be-1844787676](https://lifehacker.com/will-smashing-lettuce-on-the-counter-make-your-salad-be-1844787676)
+> 原文：<https://lifehacker.com/will-smashing-lettuce-on-the-counter-make-your-salad-be-1844787676>
 
 我们从抖音身上学到了一切。对不起，我的意思是没有什么*有用的*我们没有从抖音学到。今天的 [Hack 或者 Wack](https://lifehacker.com/c/video/hack-or-wack) 测试也不例外。
 

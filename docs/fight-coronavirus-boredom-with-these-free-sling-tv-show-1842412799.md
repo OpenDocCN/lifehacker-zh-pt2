@@ -1,6 +1,6 @@
 # 用这些免费的吊索电视节目和电影对抗冠状病毒无聊
 
-> 原文:[https://life hacker . com/fight-coronavirus-duty-with-thes-free-sling-TV-show-1842412799](https://lifehacker.com/fight-coronavirus-boredom-with-these-free-sling-tv-show-1842412799)
+> 原文：<https://lifehacker.com/fight-coronavirus-boredom-with-these-free-sling-tv-show-1842412799>
 
 当我们安顿下来独处时，Sling TV 为任何需要免费流媒体电视节目或电影来打发时间的人开放了图书馆。如果你在 Sling TV 的免费产品中寻找网飞式的生产价值，你会失望的。但是如果你想和你的朋友狂欢一个糟糕的电影之夜，看看 Sling 的免费图书馆就知道了；太完美了。
 

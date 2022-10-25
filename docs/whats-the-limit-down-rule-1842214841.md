@@ -1,6 +1,6 @@
 # 什么是“跌停”规则？
 
-> 原文:[https://lifehacker.com/whats-the-limit-down-rule-1842214841](https://lifehacker.com/whats-the-limit-down-rule-1842214841)
+> 原文：<https://lifehacker.com/whats-the-limit-down-rule-1842214841>
 
 标准普尔 500 [今早遭遇重创](https://www.nytimes.com/2020/03/09/business/stock-market-today.html) 导致纽约证券交易所暂停交易。这不是一个小故障，而是在动荡的市场中保护投资者的一个功能。
 

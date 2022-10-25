@@ -1,6 +1,6 @@
 # 永远不要从空白页开始
 
-> 原文:[https://life hacker . com/never-start-with a blank-page-1839325924](https://lifehacker.com/never-start-with-a-blank-page-1839325924)
+> 原文：<https://lifehacker.com/never-start-with-a-blank-page-1839325924>
 
 创意块结束了， [如果你想要的话](https://www.youtube.com/watch?v=CbKsgaXQy2k) 。如果你在一次头脑风暴或一个项目中没有想法，你只需要使用这个简单的系统:消费东西，做笔记，并随身携带这些笔记。以下是如何有效地做到这一点。
 

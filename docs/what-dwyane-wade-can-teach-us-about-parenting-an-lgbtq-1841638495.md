@@ -1,6 +1,6 @@
 # Dwyane Wade 可以教我们如何养育一个 LGBTQ+的孩子
 
-> 原文:[https://life hacker . com/what-Dwyane-wade-can-teach-us-about-parenting-an-lgbtq-1841638495](https://lifehacker.com/what-dwyane-wade-can-teach-us-about-parenting-an-lgbtq-1841638495)
+> 原文：<https://lifehacker.com/what-dwyane-wade-can-teach-us-about-parenting-an-lgbtq-1841638495>
 
 前 NBA 球星德维恩·韦德(Dwyane Wade)与艾伦·德杰尼勒斯(Ellen DeGeneres)的对话片段本周在社交媒体上传播，这是一个温暖人心的例子，说明了如果孩子告诉他们自己是 LGBTQ+，每个父母应该如何反应。
 

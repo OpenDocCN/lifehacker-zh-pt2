@@ -1,6 +1,6 @@
 # 成功人士如何应对工作中的拒绝
 
-> 原文:[https://life hacker . com/how-successful-people-deal-with-rejection-in-work-1832559866](https://lifehacker.com/how-successful-people-deal-with-rejection-at-work-1832559866)
+> 原文：<https://lifehacker.com/how-successful-people-deal-with-rejection-at-work-1832559866>
 
 成功的人不是学会逃避拒绝，而是学会处理拒绝，从中学习，甚至把拒绝变成新的机遇。我们采访了一些我们最喜欢的成功人士 Lifehacker 的 [我如何工作](https://lifehacker.com/c/how-i-work) 专栏的前嘉宾——关于他们如何处理工作中的拒绝。
 

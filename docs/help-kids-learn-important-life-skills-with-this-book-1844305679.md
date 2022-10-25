@@ -1,6 +1,6 @@
 # 用这本书帮助孩子学习重要的生活技能
 
-> 原文:[https://life hacker . com/help-kids-learn-important-life-skills-with this-book-1844305679](https://lifehacker.com/help-kids-learn-important-life-skills-with-this-book-1844305679)
+> 原文：<https://lifehacker.com/help-kids-learn-important-life-skills-with-this-book-1844305679>
 
 新书 [*发布的时机:65 在你长大之前学习的极其有用、超级重要的技能*](https://www.storey.com/books/how-to-be-a-person) 真的再好不过了。我敢肯定，作家凯瑟琳·纽曼(Catherine Newman)并没有预料或打算让她这本专注于教授孩子们基本生活技能的书在疫情期间发行，但我们还是来了。随着我们的孩子回家过暑假，以及未来几个月不同程度的隔离，这似乎是他们学习如何切洋葱、写信封地址或缝纽扣的最佳时机。
 

@@ -1,6 +1,6 @@
 # 使用 Chrome 新的共享剪贴板给自己发送笔记
 
-> 原文:[https://life hacker . com/send-yourself-notes-with-chromes-new-shared-clipboard-1840316711](https://lifehacker.com/send-yourself-notes-with-chromes-new-shared-clipboard-1840316711)
+> 原文：<https://lifehacker.com/send-yourself-notes-with-chromes-new-shared-clipboard-1840316711>
 
 Chrome 79 为桌面和 Android 版本的浏览器添加了一个新的“共享剪贴板”选项，这是一个受欢迎的功能。现在，在你的手机和桌面之间传送笔记、链接或提醒变得更加容易——不再需要第三方应用程序或在 Google Drive 中进行不可靠的复制粘贴。
 

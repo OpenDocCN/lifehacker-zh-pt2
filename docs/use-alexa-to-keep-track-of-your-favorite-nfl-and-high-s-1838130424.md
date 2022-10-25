@@ -1,6 +1,6 @@
 # 使用 Alexa 来跟踪您最喜爱的 NFL 和高中足球队本赛季
 
-> 原文:[https://life hacker . com/use-Alexa-to-keep-track-of-your favorite-NFL-and-high-s-1838130424](https://lifehacker.com/use-alexa-to-keep-track-of-your-favorite-nfl-and-high-s-1838130424)
+> 原文：<https://lifehacker.com/use-alexa-to-keep-track-of-your-favorite-nfl-and-high-s-1838130424>
 
 足球赛季正式开始了。无论你是对某个特定的团队感兴趣，还是对你的梦幻球员表现感兴趣，亚马逊的 Alexa 都是一个很好的跟踪工具。
 

@@ -1,6 +1,6 @@
 # 你引体向上之旅的一些基准
 
-> 原文:[https://life hacker . com/some-benchmarks-for-your-pull-up-journey-1840412113](https://lifehacker.com/some-benchmarks-for-your-pull-up-journey-1840412113)
+> 原文：<https://lifehacker.com/some-benchmarks-for-your-pull-up-journey-1840412113>
 
 你想做引体向上吗？你是否已经做了一些，但还想继续前进？在我们的年终健康基准系列中，这里有几个级别的引体向上测试来衡量你的进步。
 

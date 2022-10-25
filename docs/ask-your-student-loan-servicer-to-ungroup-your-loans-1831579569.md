@@ -1,6 +1,6 @@
 # 请你的学生贷款服务商取消你的贷款
 
-> 原文:[https://life hacker . com/ask-your student-loan-service-to-ungroup-your-loans-1831579569](https://lifehacker.com/ask-your-student-loan-servicer-to-ungroup-your-loans-1831579569)
+> 原文：<https://lifehacker.com/ask-your-student-loan-servicer-to-ungroup-your-loans-1831579569>
 
 一种更快还清学生贷款的方法是，额外付款。但是，除了将额外资金仅用于支付利息，您还可以要求将额外资金用于本金余额。我们已经在这里写了如何着手做那件事。
 

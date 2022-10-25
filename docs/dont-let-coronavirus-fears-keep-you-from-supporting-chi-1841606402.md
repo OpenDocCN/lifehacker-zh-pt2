@@ -1,6 +1,6 @@
 # 不要让对冠状病毒的恐惧阻止你支持中国餐馆
 
-> 原文:[https://life hacker . com/dont-let-coronavirus-fears-keep-you-from-supporting-chi-1841606402](https://lifehacker.com/dont-let-coronavirus-fears-keep-you-from-supporting-chi-1841606402)
+> 原文：<https://lifehacker.com/dont-let-coronavirus-fears-keep-you-from-supporting-chi-1841606402>
 
 爆发是可怕的事情，恐惧会导致人们做出错误的决定。恐惧可以让人 [买一堆自己不需要的面具](https://vitals.lifehacker.com/quit-buying-coronavirus-masks-you-dont-need-1841521105)[搞休闲种族主义](https://lifehacker.com/your-racist-coronavirus-jokes-arent-funny-1841449955) ，或者避开美味的中餐。这些都是不好的事情，最后一个在美国的唐人街和中国餐馆引起了很多问题。这真的很不幸，因为你在中国餐馆感染冠状病毒的可能性不比在大城市的其他餐馆高。
 

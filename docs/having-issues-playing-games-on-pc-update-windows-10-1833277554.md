@@ -1,6 +1,6 @@
 # 在电脑上玩游戏有问题吗？更新 Windows 10
 
-> 原文:[https://life hacker . com/having-issues-playing-games-on-PC-update-windows-10-1833277554](https://lifehacker.com/having-issues-playing-games-on-pc-update-windows-10-1833277554)
+> 原文：<https://lifehacker.com/having-issues-playing-games-on-pc-update-windows-10-1833277554>
 
 如果你已经注意到你在 Windows 10 上的一些游戏在上周特别没有反应，你并不孤单。微软证实，最近的一次 Windows 10 更新，补丁 [KB4482887](https://hothardware.com/news/microsoft-windows-10-october-update-cripple-game-performance) ，引入了一个大幅增加延迟的 bug。不过，别担心。幸运的是，微软在一个新的补丁 [KB4489899](https://support.microsoft.com/en-us/help/4489899/windows-10-update-kb4489899) 中迅速解决了这个问题，据报道该补丁修复了这个问题。
 

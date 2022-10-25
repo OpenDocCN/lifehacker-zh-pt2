@@ -1,6 +1,6 @@
 # 如何寻找和申请政府福利
 
-> 原文:[https://life hacker . com/how-to-find-and-apply-for-government-benefits-1453979191](https://lifehacker.com/how-to-find-and-apply-for-government-benefits-1453979191)
+> 原文：<https://lifehacker.com/how-to-find-and-apply-for-government-benefits-1453979191>
 
 当你运气不好时，很容易认为没有帮助——但是在美国有各种各样的计划和福利可以帮助你重新站起来。
 

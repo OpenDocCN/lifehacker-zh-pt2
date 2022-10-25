@@ -1,6 +1,6 @@
 # 让你的孩子负债
 
-> 原文:[https://life hacker . com/let-your-kids-go-into-debt-1834473679](https://lifehacker.com/let-your-kids-go-into-debt-1834473679)
+> 原文：<https://lifehacker.com/let-your-kids-go-into-debt-1834473679>
 
 给孩子零花钱有很多原因。让孩子赚取和管理少量的钱可以教会他们预算、消费、储蓄和给予。
 

@@ -1,6 +1,6 @@
 # 如果你的医生推荐医疗设备，先货比三家
 
-> 原文:[https://life hacker . com/if-your-doctor-recommended-medical-equipment-shop-aroun-1833613160](https://lifehacker.com/if-your-doctor-recommends-medical-equipment-shop-aroun-1833613160)
+> 原文：<https://lifehacker.com/if-your-doctor-recommends-medical-equipment-shop-aroun-1833613160>
 
 病人不得不货比三家以获得医疗设备的最佳价格，这是不公平的，也是令人恼火的。令人欣慰的是，你实际上*可以*。
 

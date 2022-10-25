@@ -1,6 +1,6 @@
 # 如何在没有电脑的情况下向孩子介绍编码
 
-> 原文:[https://life hacker . com/how-to-introduction-your-kid-to-code-without-a computer-1833914886](https://lifehacker.com/how-to-introduce-your-kid-to-coding-without-a-computer-1833914886)
+> 原文：<https://lifehacker.com/how-to-introduce-your-kid-to-coding-without-a-computer-1833914886>
 
 如果你想教你的孩子如何编码，你可以为你未来的谷歌员工购买应用程序、iPad 连接玩具、电动工具和可编程宠物。毫无疑问，有些是伟大的，但许多专注于孤立的技能，这些技能在未来几十年可能相关，也可能不相关。对于小孩子来说，可能比学习编码更重要的是学习如何像编码员一样思考(T2)。为此，他们甚至不需要电脑。
 

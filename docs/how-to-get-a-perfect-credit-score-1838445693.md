@@ -1,6 +1,6 @@
 # 如何获得完美的信用评分
 
-> 原文:[https://life hacker . com/how-to-get-a-perfect-credit-score-1838445693](https://lifehacker.com/how-to-get-a-perfect-credit-score-1838445693)
+> 原文：<https://lifehacker.com/how-to-get-a-perfect-credit-score-1838445693>
 
 你不需要一个完美的信用评分来获得最优惠的贷款和信用卡利率——但是如果你想要一个完美的评分，你会怎么做呢？
 

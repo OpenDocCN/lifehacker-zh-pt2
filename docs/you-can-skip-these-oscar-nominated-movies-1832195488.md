@@ -1,6 +1,6 @@
 # 你可以跳过这些奥斯卡提名的电影
 
-> 原文:[https://life hacker . com/you-can-skip-these-Oscar 提名电影-1832195488](https://lifehacker.com/you-can-skip-these-oscar-nominated-movies-1832195488)
+> 原文：<https://lifehacker.com/you-can-skip-these-oscar-nominated-movies-1832195488>
 
 你没看过*波西米亚狂想曲*！？那很好。Lifehacker 的工作人员收集了我们 2018 年的集体观影体验，并命名了奥斯卡提名电影，你可以放心跳过——包括我们自己甚至没有看过的电影。你可以安全地跳过任何电影，这就是娱乐的方式。但是你特别可以跳过这些！
 

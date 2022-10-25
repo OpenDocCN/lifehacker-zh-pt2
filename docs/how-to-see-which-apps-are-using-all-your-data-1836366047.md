@@ -1,6 +1,6 @@
 # 如何查看哪些应用程序正在使用您的所有数据
 
-> 原文:[https://life hacker . com/how-to-see-哪些应用程序正在使用你的全部数据-1836366047](https://lifehacker.com/how-to-see-which-apps-are-using-all-your-data-1836366047)
+> 原文：<https://lifehacker.com/how-to-see-which-apps-are-using-all-your-data-1836366047>
 
 几乎你手机上的每个应用程序都可能使用一定量的数据来运行。这些应用程序使用了多少数据；然而，会有很大的不同。
 

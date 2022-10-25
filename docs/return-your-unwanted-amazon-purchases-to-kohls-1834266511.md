@@ -1,6 +1,6 @@
 # 将你不想要的亚马逊商品退回美国柯尔百货公司
 
-> 原文:[https://life hacker . com/return-your-wanted-Amazon-purchases-to-kohls-1834266511](https://lifehacker.com/return-your-unwanted-amazon-purchases-to-kohls-1834266511)
+> 原文：<https://lifehacker.com/return-your-unwanted-amazon-purchases-to-kohls-1834266511>
 
 美国柯尔百货公司本周宣布，从 7 月份开始，其所有 1150 家门店将接受无包装的亚马逊退货。所以现在，如果你不知道这些五星评论是不是假的，你可以直接订购，自己决定，不可避免地退货——这次是去商店。(或者你可以继续重新装箱，然后通过邮局退回，就像你一直以来做的那样。)
 

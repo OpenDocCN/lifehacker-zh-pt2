@@ -1,6 +1,6 @@
 # 我们发现低于 2000 美元的家用投影仪确实物有所值
 
-> 原文:[https://gizmodo . com/we-found-the-home-projector-that-that-this-actually-worth-it-1834254369](https://gizmodo.com/we-found-the-home-projector-thats-actually-worth-it-1834254369)
+> 原文：<https://gizmodo.com/we-found-the-home-projector-thats-actually-worth-it-1834254369>
 
 购买投影仪比购买电视更令人望而生畏。你至少可以去商店里看看大多数电视，一旦你买了，设置它就像把它放在娱乐支架上并插上电源一样简单(尽管 [快速校准](https://gizmodo.com/8-tricks-to-improve-the-picture-on-your-new-tv-1831402550) 也是个好主意)。有了投影仪，你不得不担心合适的照明和合适的屏幕，甚至聚焦那些该死的东西。你能找到一个体面的投影仪，使用起来不会很痛苦，不会让你破产吗？我们做到了。
 

@@ -1,6 +1,6 @@
 # 是的，你可以在 Android 设备上使用 AirPods(但你会失去一些功能)
 
-> 原文:[https://life hacker . com/yes-you-can-use-ai rpods-on-Android-devices-but-youll-1841493140](https://lifehacker.com/yes-you-can-use-airpods-on-android-devices-but-youll-1841493140)
+> 原文：<https://lifehacker.com/yes-you-can-use-airpods-on-android-devices-but-youll-1841493140>
 
 仅仅因为你能，并不意味着你应该。在上面的视频中，我讲述了如何将 AirPods 与 Android 设备配对，以及为什么这可能不是最好的主意。
 

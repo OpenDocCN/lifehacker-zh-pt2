@@ -1,6 +1,6 @@
 # 如何正确清洗“只能手洗”的衣物
 
-> 原文:[https://life hacker . com/how-to-rightly-clean-your-hand-wash-only-was-5840778](https://lifehacker.com/how-to-properly-clean-your-hand-wash-only-clothes-5840778)
+> 原文：<https://lifehacker.com/how-to-properly-clean-your-hand-wash-only-clothes-5840778>
 
 如果你买了一件新衣服，后来发现上面有可怕的“只能手洗”的标签，你可能会忽略它，把它扔进洗衣机。但标签是有原因的，你真的应该手动清洗物品。你到底应该如何洗这些衣物？你应该用肥皂吗？多少钱？
 

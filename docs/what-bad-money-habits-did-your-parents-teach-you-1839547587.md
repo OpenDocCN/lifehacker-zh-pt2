@@ -1,6 +1,6 @@
 # 父母教过你哪些不良的花钱习惯？
 
-> 原文:[https://life hacker . com/what-bad-money-habits-do-you-parents-teach-you-1839547587](https://lifehacker.com/what-bad-money-habits-did-your-parents-teach-you-1839547587)
+> 原文：<https://lifehacker.com/what-bad-money-habits-did-your-parents-teach-you-1839547587>
 
 在一个理想的世界里，每只山雀在 18 岁离开巢穴时都有一个支票账户、储蓄账户，以及足够通过信用评分突击测验的知识。但是我们都知道有时候不会发生。
 

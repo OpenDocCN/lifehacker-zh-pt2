@@ -1,6 +1,6 @@
 # 我需要一辆车来分散我对坏消息的注意力。我应该买什么？
 
-> 原文:[https://jalopnik . com/I-need-a car-different-me-some-bad-news-what-sh-1831228650](https://jalopnik.com/i-need-a-car-to-distract-me-from-some-bad-news-what-sh-1831228650)
+> 原文：<https://jalopnik.com/i-need-a-car-to-distract-me-from-some-bad-news-what-sh-1831228650>
 
 就在最近，史蒂夫得到了一些坏消息，他被诊断出患有癌症。这个新情况有很多未知，但他知道的一件事是，他不想被困在驾驶一辆无聊的丰田汉兰达上。他应该买什么车？
 

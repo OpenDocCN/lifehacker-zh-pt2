@@ -1,6 +1,6 @@
 # 写下脸书评论，然后删除它
 
-> 原文:[https://life hacker . com/write-that-Facebook-comment-then-delete-it-1844391454](https://lifehacker.com/write-that-facebook-comment-then-delete-it-1844391454)
+> 原文：<https://lifehacker.com/write-that-facebook-comment-then-delete-it-1844391454>
 
 多年来，我们都试图离开脸书。 [科学告诉我们应该](https://www.nytimes.com/2019/01/30/health/facebook-psychology-health.html) ，也许我们中的一些人 [甚至设法做到了](https://www.businessinsider.com/people-who-delete-facebook-dont-return-using-zoom-chat-apps-2020-4)——至少直到疫情 [把我们拖回](https://www.vox.com/2020/4/29/21241601/facebook-coronavirus-pandemic-users-advertising-growth-making-losing-money-users-q1-2020-earnings) 作为所有常规的社交活动，更不用说教堂服务和尊巴课程，搬到了网上。即使你 [不能完全戒掉脸书](https://www.marketwatch.com/story/want-to-delete-facebook-read-what-happened-to-these-people-first-2018-07-27) (不过如果你想的话， [我们可以告诉你怎么做](https://lifehacker.com/how-to-delete-your-facebook-account-a-checklist-1829436824) )有一个简单的方法可以让你在网上的体验——就此而言，几乎在网上的任何地方——好一点。
 

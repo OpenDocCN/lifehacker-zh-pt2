@@ -1,6 +1,6 @@
 # 不要把你的旧 Xbox 或 Playstation 扔进垃圾桶
 
-> 原文:[https://life hacker . com/don-throw-your-old-Xbox-or-PlayStation-in-trash-1837306676](https://lifehacker.com/dont-throw-your-old-xbox-or-playstation-in-the-trash-1837306676)
+> 原文：<https://lifehacker.com/dont-throw-your-old-xbox-or-playstation-in-the-trash-1837306676>
 
 上周，作为纽约市新的电子废物收集计划的一部分， [官员](https://www.recyclingtoday.com/article/new-york-city-electronic-recycling-program-milestone/) [s](https://www.recyclingtoday.com/article/new-york-city-electronic-recycling-program-milestone/) 表示，在不到三年的时间里，从家庭中收集了超过 10 万件物品。虽然这意味着我们的垃圾填埋场中的电子产品——如电脑、手机或电视——会减少，但这是一个非常小的数字。据 [一估计](https://www.nytimes.com/2018/07/05/magazine/e-waste-offers-an-economic-opportunity-as-well-as-toxicity.html) 美国 2016 年产生了 690 万吨电子垃圾。
 

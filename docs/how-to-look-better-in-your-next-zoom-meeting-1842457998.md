@@ -1,6 +1,6 @@
 # 如何在下一次 Zoom 会议上看起来更好
 
-> 原文:[https://life hacker . com/how-to-look-better-in-your next-zoom-meeting-1842457998](https://lifehacker.com/how-to-look-better-in-your-next-zoom-meeting-1842457998)
+> 原文：<https://lifehacker.com/how-to-look-better-in-your-next-zoom-meeting-1842457998>
 
 物理距离意味着我们很多人已经开始在 Zoom 上进行虚拟会议，甚至虚拟快乐时光。
 

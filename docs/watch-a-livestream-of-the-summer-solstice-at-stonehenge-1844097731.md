@@ -1,6 +1,6 @@
 # 在巨石阵观看夏至的直播
 
-> 原文:[https://life hacker . com/watch-a-live stream-of-the-summer-solstice-at-Stonehenge-1844097731](https://lifehacker.com/watch-a-livestream-of-the-summer-solstice-at-stonehenge-1844097731)
+> 原文：<https://lifehacker.com/watch-a-livestream-of-the-summer-solstice-at-stonehenge-1844097731>
 
 许多人可能都想在夏至的时候去巨石阵看日出，但很少有人去体验。今年，这绝对是真的——即使你住在英国——因为不会有现场活动。虽然没有什么可以取代 IRL 的体验，但今年更多的人将能够一起观看夏至日落和日出，这要感谢英国历史非营利组织的直播， [英国遗产](https://www.english-heritage.org.uk/visit/places/stonehenge/) 。以下是收听的方法。
 

@@ -1,6 +1,6 @@
 # 不要相信这些欺骗性的冠状病毒疗法
 
-> 原文:[https://life hacker . com/don-trust-these-fraud-coronavirus-treatments-1842619056](https://lifehacker.com/dont-trust-these-fraudulent-coronavirus-treatments-1842619056)
+> 原文：<https://lifehacker.com/dont-trust-these-fraudulent-coronavirus-treatments-1842619056>
 
 那些利用病人来卖无用东西的公司很糟糕，那些在疫情期间这样做的公司是 ( 这是科学事实)*最差*。最近 [FDA 向违反法律的公司发送了 12 封警告信](https://www.fda.gov/consumers/health-fraud-scams/fraudulent-coronavirus-disease-2019-covid-19-products) ，声称他们的产品可以治疗或预防新冠肺炎。
 

@@ -1,6 +1,6 @@
 # 如何教你的孩子擤鼻涕
 
-> 原文:[https://life hacker . com/how-to-teach-your-kid-to-fly-these-nose-1838039367](https://lifehacker.com/how-to-teach-your-kid-to-blow-their-nose-1838039367)
+> 原文：<https://lifehacker.com/how-to-teach-your-kid-to-blow-their-nose-1838039367>
 
 多年来，我们成年人已经掌握了许多生活小技巧。如何穿上夹克？如何系鞋带？如何用口香糖吹泡泡，打响指。(好吧，最后两个可能不是真正的“生活技能”，但它们仍然很重要。然而，他们有点难教。
 

@@ -1,6 +1,6 @@
 # 取代那些让你烦恼的小事
 
-> 原文:[https://life hacker . com/replace-the-little-things-the-angry-you-1844597613](https://lifehacker.com/replace-the-little-things-that-annoy-you-1844597613)
+> 原文：<https://lifehacker.com/replace-the-little-things-that-annoy-you-1844597613>
 
 不管出于什么原因，我把我最后一个不粘锅放了整整 12 年。我在佛罗里达买的，搬到了波特兰，从我前夫那里搬走的时候还带着它。事实上，直到大约一年前，它还工作得“很好”，但是“好”和“讨厌”之间只有一线之隔。
 

@@ -1,6 +1,6 @@
 # 使用等级量表帮助你的孩子管理家庭作业焦虑
 
-> 原文:[https://life hacker . com/help-your-kid-manage-job-anxiety-by-use-rating-s-1833041913](https://lifehacker.com/help-your-kid-manage-homework-anxiety-by-using-rating-s-1833041913)
+> 原文：<https://lifehacker.com/help-your-kid-manage-homework-anxiety-by-using-rating-s-1833041913>
 
 对于患有焦虑症的孩子来说，家庭作业最难的部分往往是开始。甚至在拿起一支铅笔之前，他们就在脑海中构建了一个故事，告诉自己这项任务是多么的困难，多么的耗时，多么的难以完成。所以他们关闭了。父母的鼓励和恳求似乎只会让事情变得更糟。
 

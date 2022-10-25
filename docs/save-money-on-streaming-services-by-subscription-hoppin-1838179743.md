@@ -1,6 +1,6 @@
 # 通过“订阅跳跃”节省流媒体服务费用
 
-> 原文:[https://life hacker . com/save-money-on-streaming-services-by-subscription-hop pin-1838179743](https://lifehacker.com/save-money-on-streaming-services-by-subscription-hoppin-1838179743)
+> 原文：<https://lifehacker.com/save-money-on-streaming-services-by-subscription-hoppin-1838179743>
 
 我并不羞于承认我在七天的 Hulu 免费试用中观看了《女仆的故事》第一季。
 

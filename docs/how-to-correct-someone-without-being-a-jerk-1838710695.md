@@ -1,6 +1,6 @@
 # 如何纠正一个人而不是一个混蛋
 
-> 原文:[https://life hacker . com/how-to-correct-someone-not-be-a-jerk-1838710695](https://lifehacker.com/how-to-correct-someone-without-being-a-jerk-1838710695)
+> 原文：<https://lifehacker.com/how-to-correct-someone-without-being-a-jerk-1838710695>
 
 就像我们在 之前写的 [一样，有时候和一个混蛋争论的最好方法就是*表现得*像个混蛋。但是那些比较温和的分歧呢，比如健身房里的那个家伙对他的日常工作滔滔不绝，或者你的岳母坚持认为她的政治观点——只有她的——是正确的？](https://lifehacker.com/the-right-way-to-argue-with-an-asshole-1838104824)
 

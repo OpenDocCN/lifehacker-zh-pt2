@@ -1,6 +1,6 @@
 # 健身房里那个奇怪的东西是什么？
 
-> 原文:[https://life hacker . com/健身房里那个奇怪的东西是什么-1839139340](https://lifehacker.com/what-is-that-weird-thing-at-the-gym-1839139340)
+> 原文：<https://lifehacker.com/what-is-that-weird-thing-at-the-gym-1839139340>
 
 健身房里有很多奇怪的事情。如果你是新来的，一切都很神秘:这是一个 45 磅的酒吧吗？为什么角落里有一个带把手的小轮子？随着你变得更高级，或者去更有趣的健身房，你会开始看到更多的东西。粉笔。手柄形状奇特的酒吧。带子，包裹，绳子。
 

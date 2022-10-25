@@ -1,6 +1,6 @@
 # 今晚和西蒙·比尔斯一起参加免费的体操大师班
 
-> 原文:[https://life hacker . com/take-a-free-gym-master class-with-simone-biles-to-1844149201](https://lifehacker.com/take-a-free-gymnastics-masterclass-with-simone-biles-to-1844149201)
+> 原文：<https://lifehacker.com/take-a-free-gymnastics-masterclass-with-simone-biles-to-1844149201>
 
 如果你一直梦想成为一名体操运动员，或者如果你把体操列在你最喜欢的奥运会项目的首位，好消息是:体操冠军和四次奥运会金牌得主西蒙娜·比尔斯今晚(6 月 24 日) [将在大师班直播](https://learn.masterclass.com/masterclasslive_SB) 上免费直播课程和问答环节。
 

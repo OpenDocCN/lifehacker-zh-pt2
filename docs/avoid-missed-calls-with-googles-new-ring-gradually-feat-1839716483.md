@@ -1,6 +1,6 @@
 # 使用谷歌为 Pixel 新推出的“逐渐响铃”功能，避免错过来电
 
-> 原文:[https://life hacker . com/avoid-missed-calls-with-Google-new-ring-渐次-feat-1839716483](https://lifehacker.com/avoid-missed-calls-with-googles-new-ring-gradually-feat-1839716483)
+> 原文：<https://lifehacker.com/avoid-missed-calls-with-googles-new-ring-gradually-feat-1839716483>
 
 在一个完美的世界里，我会让我的手机一直处于震动状态。没有反对我有趣的铃声；我只是觉得当有人打电话来时，感到一阵嗡嗡声比被某首歌轰掉更令人愉快。然而，多亏了谷歌的新更新，我可以两者兼得——至少在我的 Pixel 上。
 

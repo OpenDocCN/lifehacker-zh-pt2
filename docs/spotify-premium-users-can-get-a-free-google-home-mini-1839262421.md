@@ -1,6 +1,6 @@
 # Spotify Premium 用户可以获得一个免费的 Google Home Mini
 
-> 原文:[https://life hacker . com/Spotify-premium-users-can-get-a-free-Google-home-mini-1839262421](https://lifehacker.com/spotify-premium-users-can-get-a-free-google-home-mini-1839262421)
+> 原文：<https://lifehacker.com/spotify-premium-users-can-get-a-free-google-home-mini-1839262421>
 
 如果你是 Spotify 的高级用户，该公司有样东西适合你:免费的 Google Home Mini。这项交易对现有用户和今天注册的新用户都有效。
 

@@ -1,6 +1,6 @@
 # 当心这些过时的二手车购买技巧
 
-> 原文:[https://jalopnik . com/当心这些过时的二手车购买提示-1837237276](https://jalopnik.com/beware-of-these-outdated-used-car-buying-tips-1837237276)
+> 原文：<https://jalopnik.com/beware-of-these-outdated-used-car-buying-tips-1837237276>
 
 买一辆二手车可能比买一辆新车更有压力。虽然有可能买到高质量的二手车，但这需要一点耐心和警惕。然而，你会想知道有一些过时但仍然流行的策略在那里，可能不会给你想要的结果。
 

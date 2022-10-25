@@ -1,6 +1,6 @@
 # 在浓缩咖啡饮料中，先加糖，再加牛奶
 
-> 原文:[https://life hacker . com/add-sugar before-milk-in-espresso-drinks-1840775299](https://lifehacker.com/add-sugar-before-milk-in-espresso-drinks-1840775299)
+> 原文：<https://lifehacker.com/add-sugar-before-milk-in-espresso-drinks-1840775299>
 
 如果你在咖啡中放糖，溶解度(和动能)等因素会建议你应该在加入任何种类的冷乳制品 之前加入 [。但是，即使你正在享受一种用蒸牛奶制成的浓缩咖啡饮料，如果你在加入牛奶之前加入任何甜味剂，你最终会得到一种更好的饮料。](https://skillet.lifehacker.com/add-sugar-to-your-coffee-before-milk-or-cream-1833550510) 
 

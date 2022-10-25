@@ -1,6 +1,6 @@
 # 感恩节带上你所有的混合发酵啤酒
 
-> 原文:[https://the take out . com/beer-styles-thanksgiving-food-pairing-sour-wild-1839834256](https://thetakeout.com/beer-styles-thanksgiving-food-pairing-sour-wild-1839834256)
+> 原文：<https://thetakeout.com/beer-styles-thanksgiving-food-pairing-sour-wild-1839834256>
 
 葡萄酒杂志会一页接一页地解释感恩节应该带哪些葡萄酒:配火鸡的维欧尼葡萄酒，强调蔓越莓酱的黑皮诺葡萄酒。啤酒搭配不必如此挑剔——打开一瓶混合发酵啤酒，你会感觉非常好。
 

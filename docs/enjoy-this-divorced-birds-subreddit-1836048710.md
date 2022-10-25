@@ -1,6 +1,6 @@
 # 享受这个“离婚鸟”子编辑
 
-> 原文:[https://life hacker . com/enjoy-this-dis 婚-birds-subreddit-1836048710](https://lifehacker.com/enjoy-this-divorced-birds-subreddit-1836048710)
+> 原文：<https://lifehacker.com/enjoy-this-divorced-birds-subreddit-1836048710>
 
 离婚太搞笑了！这就是为什么 HBO 制作了一整部剧以它命名(第三季刚刚开始，SJP 粉丝代表)。这也是为什么有一个有趣的分支叫做[/离婚鸟](https://www.reddit.com/r/DivorcedBirds/) 。它探索了你甚至没有意识到的关于离婚、分手、中年危机和重新开始的斗争的比喻。它展示了我们人类是如何看待自己在任何事物中的反映的。
 

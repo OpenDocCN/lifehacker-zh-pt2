@@ -1,6 +1,6 @@
 # 如何清洁所有类型的地板
 
-> 原文:[https://life hacker . com/how-to-clean-all-types-of-flooding-1843398665](https://lifehacker.com/how-to-clean-all-types-of-flooring-1843398665)
+> 原文：<https://lifehacker.com/how-to-clean-all-types-of-flooring-1843398665>
 
 虽然真空吸尘或清扫通常足以保持未铺地毯的地板看起来干净，但有时你必须更进一步，让拿出桶来真正彻底地清洗它们。也许这是你传统上作为春季大扫除的一部分，或者在你父母来访之前做的事情——或者也许这是你现在所有时间都待在家里而正在考虑做的事情。不管你解决这个问题的理由是什么，以正确的方式清洗地板可能听起来令人生畏，但这实际上是一个相对简单的过程，只要你考虑到你的 地板类型。以下是你需要了解的关于清洁各种地板的知识。
 

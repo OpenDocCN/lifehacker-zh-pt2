@@ -1,6 +1,6 @@
 # 没有拿铁你会有多富有？
 
-> 原文:[https://life hacker . com/how-rich-would-you are-not-lattes-1839984129](https://lifehacker.com/how-rich-would-you-be-without-lattes-1839984129)
+> 原文：<https://lifehacker.com/how-rich-would-you-be-without-lattes-1839984129>
 
 如果说在 Lifehacker 有什么事情让我们感到厌烦的话，那就是个人理财专家宣称，减少支出、增加储蓄、积累财富的最简单方法就是放弃喝咖啡。“为什么你每天花 5 美元买一杯拿铁咖啡，而你可以用这笔钱进行投资？”他们要求知道答案，这让我们每一个直到那一刻还在享用泡沫拿铁的人都感到羞愧。
 

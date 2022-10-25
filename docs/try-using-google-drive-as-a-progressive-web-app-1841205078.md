@@ -1,6 +1,6 @@
 # 尝试使用 Google Drive 作为渐进式网络应用程序
 
-> 原文:[https://life hacker . com/try-using-Google-drive-as-a-progressive-we B- app-1841205078](https://lifehacker.com/try-using-google-drive-as-a-progressive-web-app-1841205078)
+> 原文：<https://lifehacker.com/try-using-google-drive-as-a-progressive-web-app-1841205078>
 
 Google Drive 现在可以作为桌面和移动的渐进式网络应用程序(PWA)使用，为用户提供了在常规浏览器中启动该服务的另一种选择。pwa 看起来和感觉上都像精简版的应用程序，尽管它们基本上存在于浏览器的精简版中。它们就像是应用程序和网站之间的中间地带；虽然它们仍然需要互联网连接才能打开和运行，但它们比应用程序占用的空间更少，处理速度通常比加载整个浏览器(及其许多标签)要快得多。
 

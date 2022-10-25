@@ -1,6 +1,6 @@
 # 一位专家称，为什么 2020 年美国人口普查可能会改变一切
 
-> 原文:[https://life hacker . com/why-the-2020-u-s-census-can-change-everything-accor-1834246379](https://lifehacker.com/why-the-2020-u-s-census-could-change-everything-accor-1834246379)
+> 原文：<https://lifehacker.com/why-the-2020-u-s-census-could-change-everything-accor-1834246379>
 
 今天，最高法院 [阻止了](https://www.cnn.com/2019/06/27/politics/read-supreme-court-ruling-2020-census-citizenship-case/index.html) 一个至关重要的公民身份问题被添加到 2020 年美国人口普查中——川普总统忍不住附和了这个问题。
 

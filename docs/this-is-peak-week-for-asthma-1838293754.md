@@ -1,6 +1,6 @@
 # 这是哮喘的“高峰周”
 
-> 原文:[https://life hacker . com/this-is-peak-week for the asthma-1838293754](https://lifehacker.com/this-is-peak-week-for-asthma-1838293754)
+> 原文：<https://lifehacker.com/this-is-peak-week-for-asthma-1838293754>
 
 如果你患有哮喘，并且最近感觉病情恶化，这不是你的想象:9 月 1 日被非正式地称为 [【高峰周】](https://community.aafa.org/blog/asthma-peak-week-is-here-here-are-some-tips-to-help-you-avoid-asthma-episodes) ，因为几个加重哮喘的因素汇集在一起。
 

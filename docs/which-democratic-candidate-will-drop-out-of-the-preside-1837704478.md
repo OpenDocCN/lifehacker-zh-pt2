@@ -1,6 +1,6 @@
 # 下一个民主党候选人会退出总统竞选吗？
 
-> 原文:[https://life hacker . com/which-democratic-candidate-will-drop-out-of-the-president-1837704478](https://lifehacker.com/which-democratic-candidate-will-drop-out-of-the-preside-1837704478)
+> 原文：<https://lifehacker.com/which-democratic-candidate-will-drop-out-of-the-preside-1837704478>
 
 周三晚上，纽约州参议员柯尔斯顿·吉利布兰德(Kirsten Gillibrand)正式退出总统竞选，与杰伊·英斯利(Jay Inslee)和约翰·希肯卢珀一起在辩论前宣布退出。在周三的截止日期后，只有 10 名候选人有资格参加休斯顿的辩论，这意味着我们将在 9 月份看到一个更小的总统候选人池。
 

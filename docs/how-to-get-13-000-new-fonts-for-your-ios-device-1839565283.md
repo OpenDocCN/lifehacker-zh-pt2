@@ -1,6 +1,6 @@
 # 如何为你的 iPhone 和 iPad 获得 1300 种新字体
 
-> 原文:[https://life hacker . com/how-to-get-13-000-new-fonts-for-your-IOs-device-1839565283](https://lifehacker.com/how-to-get-13-000-new-fonts-for-your-ios-device-1839565283)
+> 原文：<https://lifehacker.com/how-to-get-13-000-new-fonts-for-your-ios-device-1839565283>
 
 如果你一直想让你的 iPhone 或 iPad 焕然一新，一种新的字体可能是一种方法。本周，Adobe 的 Creative Cloud 向从应用商店 下载其 Creative Cloud 应用 [的任何人免费提供 1300 种字体。](https://apps.apple.com/us/app/adobe-creative-cloud/id852473028#?platform=ipad) 
 

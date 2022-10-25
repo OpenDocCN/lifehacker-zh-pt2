@@ -1,6 +1,6 @@
 # “共享”现在可能会导致以后的身份盗用
 
-> 原文:[https://life hacker . com/sharen ting-now-may-lead-to-identity-theft-la ter-1838093590](https://lifehacker.com/sharenting-now-may-lead-to-identity-theft-later-1838093590)
+> 原文：<https://lifehacker.com/sharenting-now-may-lead-to-identity-theft-later-1838093590>
 
 在我们把关于我们孩子的照片和趣闻放到网上之前，有很多理由要三思——他们以后可能会觉得尴尬，我们正在创造他们无法控制的数字生活，这是对隐私的侵犯，等等。但是，限制我们分享多少的另一个原因是:我们可能在未来帮助罪犯窃取他们的身份。
 

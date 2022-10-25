@@ -1,6 +1,6 @@
 # 如何检查您的权限
 
-> 原文:[https://life hacker . com/how-to-check-your-privilege-1843885039](https://lifehacker.com/how-to-check-your-privilege-1843885039)
+> 原文：<https://lifehacker.com/how-to-check-your-privilege-1843885039>
 
 特权是因为你的性别、种族、宗教、性取向、健康、教育水平、身体能力和/或社会经济水平，你比其他人拥有的利益和优势。重要的是要意识到你所拥有的好处和优势，以便能够帮助那些不容易得到这些好处和优势的人。更好地理解特权可以帮助你利用这种特权来摧毁那些让人们付出生命代价的不公平制度。
 

@@ -1,6 +1,6 @@
 # 根据科学，为什么时间不再有意义
 
-> 原文:[https://life hacker . com/why-time-no-long-have-meaning-by-science-1842459302](https://lifehacker.com/why-time-no-longer-has-meaning-according-to-science-1842459302)
+> 原文：<https://lifehacker.com/why-time-no-longer-has-meaning-according-to-science-1842459302>
 
 在过去的几周里，时间已经失去了所有的意义。几天感觉像几周。几周感觉像几个月。虽然从技术上来说，世界卫生组织宣布这是一次疫情疫情才过了几个星期，但对我们许多人来说，感觉这已经持续了好几年了。
 

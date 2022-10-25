@@ -1,6 +1,6 @@
 # 人们实际上如何花费每月 500 美元的基本收入
 
-> 原文:[https://life hacker . com/how-people-actually-spend-a-500-monthly-universal-basi-1838775544](https://lifehacker.com/how-people-actually-spend-a-500-monthly-universal-basi-1838775544)
+> 原文：<https://lifehacker.com/how-people-actually-spend-a-500-monthly-universal-basi-1838775544>
 
 你会如何使用每月额外的 500 美元？你会把它花在挥霍上，用于支付账单，还是增加你的储蓄？
 

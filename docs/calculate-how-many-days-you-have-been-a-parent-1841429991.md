@@ -1,6 +1,6 @@
 # 算算你当父母有多少天了
 
-> 原文:[https://life hacker . com/calculate-how-days-you-be-a-parent-1841429991](https://lifehacker.com/calculate-how-many-days-you-have-been-a-parent-1841429991)
+> 原文：<https://lifehacker.com/calculate-how-many-days-you-have-been-a-parent-1841429991>
 
 你有没有想过你到底当了多少天父母？没有吗？我也不知道。也就是直到我在脸书 上看到 [这个帖子由](https://www.facebook.com/597842340238345/posts/2941641322525090?sfns=mo) [倾慕他们养育](https://adorethemparenting.com/) 。我控制不了自己，现在你也控制不了了；帖子评论中的回复从珍贵的 70 天到令人印象深刻的 17450 天不等。
 

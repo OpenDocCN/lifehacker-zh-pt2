@@ -1,6 +1,6 @@
 # 如果我只有 IMEI 号码，我可以找回丢失的 iPhone 吗？
 
-> 原文:[https://life hacker . com/can-I-recover-a-lost-iphone-if-I-only-have-the-imei-num-1840776601](https://lifehacker.com/can-i-recover-a-lost-iphone-if-i-only-have-the-imei-num-1840776601)
+> 原文：<https://lifehacker.com/can-i-recover-a-lost-iphone-if-i-only-have-the-imei-num-1840776601>
 
 手机丢了一点都不好玩，反而会变得更糟。虽然 Androids 和 iPhones 有很多保护措施，当你把设备放错地方或被人偷走时，你可以用它们来锁定或找到你的设备，但如果你甚至不能登录你的在线帐户来激活它们，这些措施对你没有什么好处。
 

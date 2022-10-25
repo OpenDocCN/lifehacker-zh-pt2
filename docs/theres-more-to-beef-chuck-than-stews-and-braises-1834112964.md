@@ -1,6 +1,6 @@
 # 牛肉不仅仅是炖菜和炖菜
 
-> 原文:[https://life hacker . com/there-than-to-beef-chuck-to-stews-and-brows-1834112964](https://lifehacker.com/theres-more-to-beef-chuck-than-stews-and-braises-1834112964)
+> 原文：<https://lifehacker.com/theres-more-to-beef-chuck-than-stews-and-braises-1834112964>
 
 Watch
 

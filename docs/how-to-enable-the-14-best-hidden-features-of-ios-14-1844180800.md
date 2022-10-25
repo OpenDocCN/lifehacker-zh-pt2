@@ -1,6 +1,6 @@
 # 如何启用 iOS 14 的 14 个最佳隐藏功能
 
-> 原文:[https://life hacker . com/how-to-enable-the-14-best-hidden-features-of-IOs-14-1844180800](https://lifehacker.com/how-to-enable-the-14-best-hidden-features-of-ios-14-1844180800)
+> 原文：<https://lifehacker.com/how-to-enable-the-14-best-hidden-features-of-ios-14-1844180800>
 
 WWDC 2020 已经结束了。虽然我非常喜欢苹果为期一周的系列活动的虚拟设置，但更有趣的是，我深入挖掘了 iOS 14 的最新测试版，找到了苹果*在其重要主题演讲中没有提到的所有有趣功能。现在，我正在与你分享这些数字宝藏。*
 

@@ -1,6 +1,6 @@
 # 看看你所在城市的空气污染与世界上最严重的城市相比如何
 
-> 原文:[https://life hacker . com/see-how-your-city-air-pollution-comparison-with-the-worl-1840176041](https://lifehacker.com/see-how-your-citys-air-pollution-compares-with-the-worl-1840176041)
+> 原文：<https://lifehacker.com/see-how-your-citys-air-pollution-compares-with-the-worl-1840176041>
 
 微粒只是空气污染的一个组成部分，但它们对健康构成了重大威胁——尤其是那些小于 2.5 微米的微粒。 [微粒污染](https://www.epa.gov/pm-pollution/particulate-matter-pm-basics) 会加重哮喘 [会导致心脏病、中风和其他健康状况](https://www.who.int/airpollution/ambient/health-impacts/en/) 。因此...你吸入了多少？
 

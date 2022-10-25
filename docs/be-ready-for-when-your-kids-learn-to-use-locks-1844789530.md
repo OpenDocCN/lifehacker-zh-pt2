@@ -1,6 +1,6 @@
 # 为你的孩子学会使用锁做好准备
 
-> 原文:[https://life hacker . com/be-ready-for-when-your-kids-learn-to-use-locks-1844789530](https://lifehacker.com/be-ready-for-when-your-kids-learn-to-use-locks-1844789530)
+> 原文：<https://lifehacker.com/be-ready-for-when-your-kids-learn-to-use-locks-1844789530>
 
 如果你的内门是锁着的，如果你有小孩，在某个时候，你家里的某个人要么被锁在的某个房间里*，要么被锁在*的某个房间里*。这是不可避免的，因此，你应该提前做好准备。*
 

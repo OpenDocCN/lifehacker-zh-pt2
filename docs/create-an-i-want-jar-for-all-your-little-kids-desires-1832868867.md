@@ -1,6 +1,6 @@
 # 为你孩子的所有欲望创造一个“我想要”的罐子
 
-> 原文:[https://life hacker . com/create-an-I-want-jar-for-all-your-little-kids-desires-1832868867](https://lifehacker.com/create-an-i-want-jar-for-all-your-little-kids-desires-1832868867)
+> 原文：<https://lifehacker.com/create-an-i-want-jar-for-all-your-little-kids-desires-1832868867>
 
 许多孩子在蹒跚学步或学龄前的时候遇到了一个阶段，他们想要所有的东西。你知道他们永远不会玩的玩具，你肯定他们不会喜欢的游戏，以及对他们来说太年轻或太老的物品。基本上任何闪亮或多彩的东西。
 

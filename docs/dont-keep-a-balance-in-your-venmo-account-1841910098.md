@@ -1,6 +1,6 @@
 # 不要在你的 Venmo 账户上保持余额
 
-> 原文:[https://life hacker . com/don-keep-a-balance-in-your-venmo-account-1841910098](https://lifehacker.com/dont-keep-a-balance-in-your-venmo-account-1841910098)
+> 原文：<https://lifehacker.com/dont-keep-a-balance-in-your-venmo-account-1841910098>
 
 欠朋友或家人钱的日子已经一去不复返了。但你使用你最喜欢的点对点支付应用程序的方式可能不是你财务状况的最佳选择。
 

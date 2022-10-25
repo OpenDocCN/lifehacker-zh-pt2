@@ -1,6 +1,6 @@
 # 用虾蹲来挑战自己
 
-> 原文:[https://life hacker . com/challenge-yourself with-shrimp-squats-1844084516](https://lifehacker.com/challenge-yourself-with-shrimp-squats-1844084516)
+> 原文：<https://lifehacker.com/challenge-yourself-with-shrimp-squats-1844084516>
 
 深蹲是一种非常好的腿部力量锻炼，但是如果你在没有重量的情况下进行家庭锻炼，它们很快就会变得太容易了。单腿手枪式深蹲是一种经典的变化，但它们非常困难。对于一个不同的单腿挑战，尝试虾蹲。
 

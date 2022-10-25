@@ -1,6 +1,6 @@
 # 不要扔掉精美鱼罐头中的油
 
-> 原文:[https://life hacker . com/don-t-扔掉鱼罐头中的油-1842268447](https://lifehacker.com/dont-throw-away-the-oil-from-fancy-cans-of-tinned-fish-1842268447)
+> 原文：<https://lifehacker.com/dont-throw-away-the-oil-from-fancy-cans-of-tinned-fish-1842268447>
 
 取决于你住在哪里，在不久的将来，你可能会也可能不会吃到罐头食品。如果你的预算允许的话，我建议你买一些精美的罐头——至少几个——让你发现自己在某种程度上的孤独变得愉快，或者至少可以忍受。花式鱼罐头才是潮流。
 

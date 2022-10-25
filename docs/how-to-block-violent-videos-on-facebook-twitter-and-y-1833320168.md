@@ -1,6 +1,6 @@
 # 如何屏蔽脸书、推特和 YouTube 上的暴力视频
 
-> 原文:[https://life hacker . com/how-to-block-violent-videos-on-Facebook-Twitter-and-y-1833320168](https://lifehacker.com/how-to-block-violent-videos-on-facebook-twitter-and-y-1833320168)
+> 原文：<https://lifehacker.com/how-to-block-violent-videos-on-facebook-twitter-and-y-1833320168>
 
 因为现在是 2019 年，直播已经有五年左右的时间真正成为人们实际做的主流活动，这意味着世界各地可怕的暴力和恐怖行为有大于零的机会被附加一些视频成分。毕竟，现在很多人的口袋里都有相当于 4K 摄像机的东西，拍摄和与世界分享任何东西——甚至是最糟糕的东西——都很容易。
 

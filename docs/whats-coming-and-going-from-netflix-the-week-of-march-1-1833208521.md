@@ -1,6 +1,6 @@
 # 2019 年 3 月 18 日这一周，网飞有哪些活动
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week-of-March-1-1833208521](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-march-1-1833208521)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-march-1-1833208521>
 
 我讨厌传记片！我更愿意看传记纪录片，而不是看演员假装成活生生的人。当然，你可能会因为你的表演获得奥斯卡奖(参见拉米·马雷克)，但我不完全确定为什么，因为在传记电影中表演涉及太多模仿，这似乎是浪费时间。给我拿真的麦考伊！(还是真正的水星！).出于这些原因，我本来打算讨厌网飞的杂色传记片《尘埃》(T1)，但后来我看了预告片。忘了《女王》的 CGI 再现吧——这部电影有镜头捕捉不到的性、毒品、火灾、斗殴和车祸。它看起来肮脏、令人发指，但也有几分不错——此外，它是根据因游戏而出名的*的尼尔·史特劳斯的书改编的，所以你知道这将是一场令人震惊的灾难！我可能会后悔，但我为这部垃圾电影打破了我的非传记片原则。* 
 

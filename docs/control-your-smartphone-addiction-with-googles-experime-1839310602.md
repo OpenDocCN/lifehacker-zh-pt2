@@ -1,6 +1,6 @@
 # 用谷歌的实验性应用程序控制你的智能手机瘾
 
-> 原文:[https://life hacker . com/control-your-smart phone-addiction-with-Google-experime-1839310602](https://lifehacker.com/control-your-smartphone-addiction-with-googles-experime-1839310602)
+> 原文：<https://lifehacker.com/control-your-smartphone-addiction-with-googles-experime-1839310602>
 
 Android: 谷歌创意实验室推出了六款新的实验性应用，它们都是为了一个目的而设计的——让你不再沉迷于每一个通知，查看每一个社交网络，并且在一天中的大部分时间里都将手机粘在脸上(或手上)。
 

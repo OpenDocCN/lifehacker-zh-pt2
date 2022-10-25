@@ -1,6 +1,6 @@
 # 偿还您的 Venmo 余额
 
-> 原文:[https://life hacker . com/pay-back-your-venmo-balance-1833542231](https://lifehacker.com/pay-back-your-venmo-balance-1833542231)
+> 原文：<https://lifehacker.com/pay-back-your-venmo-balance-1833542231>
 
 仔细检查你的 Venmo 余额没有赤字——否则你的账单可能会被收账。
 

@@ -1,6 +1,6 @@
 # coronavirus slashes global air pollution interactive m 1842473790
 
-> 原文:[https://gizmodo . com/coronavirus-slashes-global-air-pollution-interactive-m-1842473790](https://gizmodo.com/coronavirus-slashes-global-air-pollution-interactive-m-1842473790)
+> 原文：<https://gizmodo.com/coronavirus-slashes-global-air-pollution-interactive-m-1842473790>
 
 [新冠肺炎疫情](https://gizmodo.com/who-officially-declares-a-pandemic-decries-alarming-le-1842270014) 已经改变了世界，为了减缓病毒的传播，越来越大的地理区域和部分经济陷入停滞。
 

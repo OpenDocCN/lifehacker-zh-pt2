@@ -1,6 +1,6 @@
 # im maya ajmera publisher of science news and this is 1833417992
 
-> 原文:[https://life hacker . com/im-Maya-aj mera-publisher-of-science-news-and-this-is-1833417992](https://lifehacker.com/im-maya-ajmera-publisher-of-science-news-and-this-is-1833417992)
+> 原文：<https://lifehacker.com/im-maya-ajmera-publisher-of-science-news-and-this-is-1833417992>
 
 已有 98 年历史的 [科学学会&公众](https://www.societyforscience.org/) 出版非营利性科学杂志和网站 [*科学新闻*](https://www.sciencenews.org/) ，并为学生举办几场 STEM 竞赛。它的现任总裁兼首席执行官是玛雅·阿杰梅拉，她之前创建了非盈利赠款组织 [全球儿童基金](https://globalfundforchildren.org/) 。我们和她谈论了她在这两个组织的工作，她的科学背景，她凌乱的桌子，以及她如何放松。
 

@@ -1,6 +1,6 @@
 # 用 Duolingo 的新播客完善你的法语
 
-> 原文:[https://life hacker . com/perfect-your-French-with-duoligos-new-podcast-1835264106](https://lifehacker.com/perfect-your-french-with-duolingos-new-podcast-1835264106)
+> 原文：<https://lifehacker.com/perfect-your-french-with-duolingos-new-podcast-1835264106>
 
 为了从我的大学毕业并获得学士学位，你需要流利地掌握一门外语。
 

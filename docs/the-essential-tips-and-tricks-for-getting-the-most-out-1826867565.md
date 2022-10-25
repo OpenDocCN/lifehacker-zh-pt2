@@ -1,6 +1,6 @@
 # 如何充分利用你的苹果 AirPods
 
-> 原文:[https://life hacker . com/the-essential-tips-and-tricks-for-get-the-most-out-1826867565](https://lifehacker.com/the-essential-tips-and-tricks-for-getting-the-most-out-1826867565)
+> 原文：<https://lifehacker.com/the-essential-tips-and-tricks-for-getting-the-most-out-1826867565>
 
 苹果价格昂贵(看起来很傻)的 AirPods 起初可能很容易被取笑，但几年后(以及 AirPods Pro 的推出)，有很多理由挥霍一对。
 

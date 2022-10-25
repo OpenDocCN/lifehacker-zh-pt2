@@ -1,6 +1,6 @@
 # 举办“自习室”来完成工作
 
-> 原文:[https://life hacker . com/hold-a-study-hall-to-get-work-done-1840155204](https://lifehacker.com/hold-a-study-hall-to-get-work-done-1840155204)
+> 原文：<https://lifehacker.com/hold-a-study-hall-to-get-work-done-1840155204>
 
 花点工作时间偷懒或者充电也不错。但有时你需要认真工作，花几个小时不受干扰地工作。以下是 Lifehacker 的自习室指南。
 

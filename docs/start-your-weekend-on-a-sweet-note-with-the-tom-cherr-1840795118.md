@@ -1,6 +1,6 @@
 # 在甜蜜的音符中开始你的周末
 
-> 原文:[https://life hacker . com/start-your ' s weekend-on-a-sweet-note-the-Tom-cherr-1840795118](https://lifehacker.com/start-your-weekend-on-a-sweet-note-with-the-tom-cherr-1840795118)
+> 原文：<https://lifehacker.com/start-your-weekend-on-a-sweet-note-with-the-tom-cherr-1840795118>
 
 每周想出一种新的鸡尾酒是一个有趣的挑战，但在本专栏的 125 期之后，它变得更具挑战性了。有时我会向我出色的酒保朋友 寻求指导，但有时我只是盯着我的酒吧推车上的各种瓶子，希望一个新的配方成型。(后一种策略是我今天采用的。)
 

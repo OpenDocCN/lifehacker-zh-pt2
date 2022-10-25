@@ -1,6 +1,6 @@
 # 如果我在信用卡上添加授权用户会发生什么？
 
-> 原文:[https://life hacker . com/what-happens-if-I-add-an-authorized-user-on-my-credit-c-1678163631](https://lifehacker.com/what-happens-if-i-add-an-authorized-user-on-my-credit-c-1678163631)
+> 原文：<https://lifehacker.com/what-happens-if-i-add-an-authorized-user-on-my-credit-c-1678163631>
 
 将某人作为授权用户添加到您的信用卡帐户可以帮助他们建立或重建信用。但你也需要一路保护好自己的信用。
 

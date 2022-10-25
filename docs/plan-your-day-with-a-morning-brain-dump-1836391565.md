@@ -1,6 +1,6 @@
 # 用早晨的头脑风暴来计划你的一天
 
-> 原文:[https://life hacker . com/plan-your ' s day with a morning-brain-dump-1836391565](https://lifehacker.com/plan-your-day-with-a-morning-brain-dump-1836391565)
+> 原文：<https://lifehacker.com/plan-your-day-with-a-morning-brain-dump-1836391565>
 
 早晨是把事情从我们的系统中清理出去的好时机——那么为什么不也清理一下你的大脑呢？
 

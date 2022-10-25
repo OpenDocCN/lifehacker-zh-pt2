@@ -1,6 +1,6 @@
 # 阅读维基百科中关于“红衣女子”的新条目
 
-> 原文:[https://life hacker . com/read-new-Wikipedia-entries-about-women-with-women-in-re-1832329713](https://lifehacker.com/read-new-wikipedia-entries-about-women-with-women-in-re-1832329713)
+> 原文：<https://lifehacker.com/read-new-wikipedia-entries-about-women-with-women-in-re-1832329713>
 
 维基百科，一切的百科全书，大部分是关于男人的。根据维基百科内部改进项目 [红衣女子](https://en.wikipedia.org/wiki/Wikipedia:WikiProject_Women_in_Red) 的数据，该网站 150 万个传记页面中只有不到 18%是关于女性的。这个数字实际上代表了一种进步:在 2014 年末，这个数字是 15%。这种进步很大程度上要归功于《红衣女郎》本身，该网站成立于 2015 年，旨在增加和改善网站对女性的覆盖。
 

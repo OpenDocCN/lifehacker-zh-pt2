@@ -1,6 +1,6 @@
 # 这些天气应用程序是苹果拥有的黑暗天空的绝佳替代品
 
-> 原文:[https://life hacker . com/these-weather-apps-is-great-alternatives-to-the-apple-1842591377](https://lifehacker.com/these-weather-apps-are-great-alternatives-to-the-apple-1842591377)
+> 原文：<https://lifehacker.com/these-weather-apps-are-great-alternatives-to-the-apple-1842591377>
 
 “黑暗天空”刚刚宣布被苹果收购，出售给超级本地天气应用的粉丝带来了一些大问题。首先，由于显而易见的原因，Android 应用程序将彻底消失。你可以继续使用它，直到 7 月 1 日，订户将被退还他们在订阅上花费的任何钱，这些钱很快就会变得一文不值。
 

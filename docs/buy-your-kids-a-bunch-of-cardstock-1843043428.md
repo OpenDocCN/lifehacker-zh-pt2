@@ -1,6 +1,6 @@
 # 给你的孩子买一堆卡片
 
-> 原文:[https://life hacker . com/buy-your-kids-a-bunch-of-card stock-1843043428](https://lifehacker.com/buy-your-kids-a-bunch-of-cardstock-1843043428)
+> 原文：<https://lifehacker.com/buy-your-kids-a-bunch-of-cardstock-1843043428>
 
 在这个呆在家里的疫情，你可能需要给孩子的美术用品换一点东西。也许他们已经吹穿了房子里的每一张建筑用纸，或者也许你已经厌倦了魔法擦除表面，那里的标记已经穿透了太薄的纸。如果是这样，是时候拿出大枪了，我们的意思是“给你的孩子一大堆卡片”
 

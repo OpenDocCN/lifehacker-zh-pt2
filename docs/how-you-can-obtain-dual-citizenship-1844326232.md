@@ -1,6 +1,6 @@
 # 如何获得双重国籍
 
-> 原文:[https://life hacker . com/how-you-can-obtain-dual-citizenship-1844326232](https://lifehacker.com/how-you-can-obtain-dual-citizenship-1844326232)
+> 原文：<https://lifehacker.com/how-you-can-obtain-dual-citizenship-1844326232>
 
 双重国籍意味着你拥有两个不同国家的国籍。这还允许你拥有来自两个不同国家的两本护照，如果你持有一本比另一本更强大的护照，这就派上了用场——这意味着你将有更多的流动性，能够在不申请签证的情况下前往某些地方。
 

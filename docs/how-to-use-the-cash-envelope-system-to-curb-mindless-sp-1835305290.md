@@ -1,6 +1,6 @@
 # 如何使用现金信封系统来抑制盲目消费
 
-> 原文:[https://life hacker . com/how-to-use-the-cash-envelope-system-to-curb-mind-sp-1835305290](https://lifehacker.com/how-to-use-the-cash-envelope-system-to-curb-mindless-sp-1835305290)
+> 原文：<https://lifehacker.com/how-to-use-the-cash-envelope-system-to-curb-mindless-sp-1835305290>
 
 预算的某些部分很容易设定和坚持。你的租金不会波动。你的健身会员可能是一个可预测的数额。你大概知道你需要买多少汽油才能在这个工资周期来回工作。
 

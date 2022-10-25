@@ -1,6 +1,6 @@
 # 如何直播 Lollapalooza
 
-> 原文:[https://life hacker . com/how-to-stream-lollapalooza-live-1836909474](https://lifehacker.com/how-to-stream-lollapalooza-live-1836909474)
+> 原文：<https://lifehacker.com/how-to-stream-lollapalooza-live-1836909474>
 
 本周末，超过 150 支乐队将登上今年在芝加哥格兰特公园举行的 Lollapalooza 音乐节的舞台，驯服的黑斑羚(Impala)、21 飞行员(Twenty One Pilots)和爱莉安娜·格兰德(Andrew)等明星将在几十万名与会者面前，在酷热的天气中表演。(去年，160 多名市民因中暑住院。)
 

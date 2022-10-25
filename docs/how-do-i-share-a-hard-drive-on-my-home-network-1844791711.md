@@ -1,6 +1,6 @@
 # 如何在家庭网络上共享硬盘？
 
-> 原文:[https://life hacker . com/how-do-I-share-a-hard-drive-on-my-home-network-1844791711](https://lifehacker.com/how-do-i-share-a-hard-drive-on-my-home-network-1844791711)
+> 原文：<https://lifehacker.com/how-do-i-share-a-hard-drive-on-my-home-network-1844791711>
 
 我永远不会责怪问了一个感觉“基本”的技术问题的人，因为我们都必须从某个地方开始。我们中很少有人出生时就知道如何在 Windows 中访问网络共享，什么是工作组，或者如何映射网络驱动器。
 

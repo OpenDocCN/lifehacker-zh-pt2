@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:为什么我不能掌控自己的生活？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-why-cant-I-take-control-over-my-life-1830187588](https://kotaku.com/ask-dr-nerdlove-why-cant-i-take-control-over-my-life-1830187588)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-why-cant-i-take-control-over-my-life-1830187588>
 
 大家好，各位网上恐怖肉，欢迎来到 [问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，里约布拉沃北部唯一的非法约会建议专栏。
 

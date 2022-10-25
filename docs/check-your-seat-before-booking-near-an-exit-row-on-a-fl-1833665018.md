@@ -1,6 +1,6 @@
 # 在航班上靠近出口排的位置订票前，先检查一下你的座位
 
-> 原文:[https://life hacker . com/check-your-seat-before-booking-near-an-exit-row-on-a-fl-1833665018](https://lifehacker.com/check-your-seat-before-booking-near-an-exit-row-on-a-fl-1833665018)
+> 原文：<https://lifehacker.com/check-your-seat-before-booking-near-an-exit-row-on-a-fl-1833665018>
 
 有什么比没有腿部空间的中间座位更糟糕的？发现你的座位不能倾斜——你被困在一次跨国飞行中，当你坐直时，紧张地拉紧两个扶手。
 

@@ -1,6 +1,6 @@
 # 将生大蒜磨碎放进汤里可以缓解感冒
 
-> 原文:[https://life hacker . com/sose-a-cold-by-grating-large-to-your-soup-1834889638](https://lifehacker.com/soothe-a-cold-by-grating-raw-garlic-into-your-soup-1834889638)
+> 原文：<https://lifehacker.com/soothe-a-cold-by-grating-raw-garlic-into-your-soup-1834889638>
 
 不管背后是否有任何实际的科学依据，许多人都相信生大蒜的防病功效。我的一些朋友和家人实际上会大吃生丁香，试图消除他们的症状。
 

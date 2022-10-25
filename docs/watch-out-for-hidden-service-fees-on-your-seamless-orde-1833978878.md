@@ -1,6 +1,6 @@
 # 小心无缝订单上隐藏的“服务费”
 
-> 原文:[https://life hacker . com/watch-out-for-hidden-service-fees-on-your-seamless-orde-1833978878](https://lifehacker.com/watch-out-for-hidden-service-fees-on-your-seamless-orde-1833978878)
+> 原文：<https://lifehacker.com/watch-out-for-hidden-service-fees-on-your-seamless-orde-1833978878>
 
 下次你在“免费”送货的无缝网站下订单时，你可能想仔细看看细则。
 

@@ -1,6 +1,6 @@
 # 万事达卡允许变性人和非二进制人使用他们喜欢的名字
 
-> 原文:[https://life hacker . com/master card-to-let-trans-and-non-binary-people-use-they-1835652320](https://lifehacker.com/mastercard-to-let-trans-and-non-binary-people-use-their-1835652320)
+> 原文：<https://lifehacker.com/mastercard-to-let-trans-and-non-binary-people-use-their-1835652320>
 
 万事达卡推出了“真实姓名”卡，允许借记卡和信用卡用户选择将他们选择的姓名列在他们的卡上——即使这与他们的法定姓名不符。
 

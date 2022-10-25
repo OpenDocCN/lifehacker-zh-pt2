@@ -1,6 +1,6 @@
 # 使用此键盘设置来节省 Mac 的电池电量
 
-> 原文:[https://life hacker . com/conserve-your-Macs-battery-power-with this-keyboard-set-1830960602](https://lifehacker.com/conserve-your-macs-battery-power-with-this-keyboard-set-1830960602)
+> 原文：<https://lifehacker.com/conserve-your-macs-battery-power-with-this-keyboard-set-1830960602>
 
 每当我坐飞机的时候，我总是把笔记本电脑的亮度调到最低。在某些情况下，我会竭尽全力看清楚屏幕上的内容，但这是值得的，因为我在空中远离电源时可能会获得宝贵的几分钟额外电池寿命。
 

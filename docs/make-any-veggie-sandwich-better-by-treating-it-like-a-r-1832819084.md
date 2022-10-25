@@ -1,6 +1,6 @@
 # 像对待鲁本三明治一样对待它，让任何蔬菜三明治变得更好
 
-> 原文:[https://life hacker . com/make-any-veggie-sandwich-better by-treating-it-like-a-r-1832819084](https://lifehacker.com/make-any-veggie-sandwich-better-by-treating-it-like-a-r-1832819084)
+> 原文：<https://lifehacker.com/make-any-veggie-sandwich-better-by-treating-it-like-a-r-1832819084>
 
 没有咸牛肉的鲁本就不是鲁本，但这并不意味着鲁本的配料不能用来升级其他蔬菜三明治，因为蔬菜是一个好习惯。浓郁的俄罗斯调料、融化的瑞士奶酪和时髦的德国泡菜给每个和他们一起出去的人带来快乐，蔬菜爱好者应该好好利用这充满活力的三重奏。
 

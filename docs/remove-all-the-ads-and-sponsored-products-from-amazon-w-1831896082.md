@@ -1,6 +1,6 @@
 # 使用此扩展从亚马逊删除所有广告和赞助产品
 
-> 原文:[https://life hacker . com/remove-all-the-ads-and-sponsored-products-from-Amazon-w-1831896082](https://lifehacker.com/remove-all-the-ads-and-sponsored-products-from-amazon-w-1831896082)
+> 原文：<https://lifehacker.com/remove-all-the-ads-and-sponsored-products-from-amazon-w-1831896082>
 
 当你在亚马逊购物时，很容易被网站上的所有广告和建议分散注意力。事实上，你可能会如此心烦意乱，以至于最终忘记了你最初去这个网站是为了买什么。
 

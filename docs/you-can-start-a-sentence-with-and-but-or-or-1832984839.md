@@ -1,6 +1,6 @@
 # 你可以用“And”“But”或“or”来开始一个句子
 
-> 原文:[https://life hacker . com/you-can-start-a sentence with-and-but-or-or-1832984839](https://lifehacker.com/you-can-start-a-sentence-with-and-but-or-or-1832984839)
+> 原文：<https://lifehacker.com/you-can-start-a-sentence-with-and-but-or-or-1832984839>
 
 在我成长的过程中，英语老师向我们正在发展的写作能力灌输了一条特定的规则:不要用连词来开始一个句子。
 

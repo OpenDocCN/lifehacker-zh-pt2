@@ -1,6 +1,6 @@
 # 你现在可以在 Pinterest 上找到合法的疫苗信息
 
-> 原文:[https://life hacker . com/you-can-now-find-legit-vaccine-information-on-Pinterest-1837670851](https://lifehacker.com/you-can-now-find-legit-vaccine-information-on-pinterest-1837670851)
+> 原文：<https://lifehacker.com/you-can-now-find-legit-vaccine-information-on-pinterest-1837670851>
 
 直到最近，Pinterest [还屏蔽了其平台上关于疫苗](https://gizmodo.com/pinterest-quietly-blocks-all-vaccine-related-searches-1832754950) 的搜索结果。但是今天， [公司宣布](https://newsroom.pinterest.com/en/post/bringing-authoritative-vaccine-results-to-pinterest-search) 将提供“权威的疫苗结果”，而不是其他的。
 

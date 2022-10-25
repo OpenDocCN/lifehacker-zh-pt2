@@ -1,6 +1,6 @@
 # CBD 搭配 THC 效果更好吗？
 
-> 原文:[https://life hacker . com/does-CBD-work-better-when-paired-with-thc-1834154243](https://lifehacker.com/does-cbd-work-better-when-paired-with-thc-1834154243)
+> 原文：<https://lifehacker.com/does-cbd-work-better-when-paired-with-thc-1834154243>
 
 大麻二酚——俗称“CBD”——可谓无处不在。你不仅可以在药房找到各种形式的它，还可以在杂货店、咖啡店、鸡尾酒吧和各种希望利用这一趋势的场所找到它。
 

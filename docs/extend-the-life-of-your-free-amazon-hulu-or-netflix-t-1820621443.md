@@ -1,6 +1,6 @@
 # 如何延长亚马逊 Prime Video、Hulu 或网飞免费试用版的寿命
 
-> 原文:[https://life hacker . com/extend-the-life-of-your-free-Amazon-Hulu-or-网飞-t-1820621443](https://lifehacker.com/extend-the-life-of-your-free-amazon-hulu-or-netflix-t-1820621443)
+> 原文：<https://lifehacker.com/extend-the-life-of-your-free-amazon-hulu-or-netflix-t-1820621443>
 
 免费试用期是一种便捷的方式，可以测试你是否真的想为流媒体服务付费，或者只是狂看特定节目的每一季，然后放弃。
 

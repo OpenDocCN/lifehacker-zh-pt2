@@ -1,6 +1,6 @@
 # 如果你收到一封关于你从未申请过的失业救济金的信，该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-you-get-a-letter-on-lose-bene-1843733343](https://lifehacker.com/what-to-do-if-you-get-a-letter-about-unemployment-benef-1843733343)
+> 原文：<https://lifehacker.com/what-to-do-if-you-get-a-letter-about-unemployment-benef-1843733343>
 
 这种情况正在马萨诸塞州、华盛顿州发生，也许就在你家附近:骗子正试图利用你的个人信息，趁虚而入，利用疫情失业援助计划。
 

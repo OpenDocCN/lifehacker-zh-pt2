@@ -1,6 +1,6 @@
 # 拥抱孩子会让你感觉更快乐
 
-> 原文:[https://life hacker . com/feel-happer-by-embracing-kid-stuff-1844560435](https://lifehacker.com/feel-happier-by-embracing-kid-stuff-1844560435)
+> 原文：<https://lifehacker.com/feel-happier-by-embracing-kid-stuff-1844560435>
 
 现实点吧，关于 2020 年的一切都在变老，很快。当我们都在家呆了几个星期，看看周二下午在我们家的真实样子，这很可爱。但是这样过了四个月，我想到要在附近再逛一次，眼睛就交叉了。
 

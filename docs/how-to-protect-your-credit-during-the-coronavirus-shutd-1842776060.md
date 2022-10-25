@@ -1,6 +1,6 @@
 # 冠状病毒关闭期间如何保护自己的信用
 
-> 原文:[https://life hacker . com/how-to-protect-your-credit-dut-1842776060](https://lifehacker.com/how-to-protect-your-credit-during-the-coronavirus-shutd-1842776060)
+> 原文：<https://lifehacker.com/how-to-protect-your-credit-during-the-coronavirus-shutd-1842776060>
 
 随着疫情冠状病毒的继续发展，你可能会担心你财务状况的任何变化对你信用的长期影响。救济支票和延迟支付时间表是有帮助的，但它们最终会伤害你的信用评分或历史记录吗？
 

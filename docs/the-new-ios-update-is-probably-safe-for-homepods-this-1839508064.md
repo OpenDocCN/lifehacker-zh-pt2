@@ -1,6 +1,6 @@
 # 新的 iOS 更新这次(可能)对 Homepods 是安全的
 
-> 原文:[https://life hacker . com/the-new-IOs-update-is-possible-safe-for-homepods-this-1839508064](https://lifehacker.com/the-new-ios-update-is-probably-safe-for-homepods-this-1839508064)
+> 原文：<https://lifehacker.com/the-new-ios-update-is-probably-safe-for-homepods-this-1839508064>
 
 最近的 iOS 13.2 更新为 iPhone 引入了一些新的 HomePod 功能，但许多用户报告说，安装补丁 [后，他们的 HomePod 扬声器](https://lifehacker.com/how-to-prevent-ios-13-2-from-breaking-your-homepod-1839442697) 被堵住了。作为回应，苹果撤回了更新，并承诺发布一个没有破坏 HomePod 的错误的新版本。
 

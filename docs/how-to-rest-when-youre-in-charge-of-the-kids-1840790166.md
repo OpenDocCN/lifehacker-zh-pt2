@@ -1,6 +1,6 @@
 # 带孩子的时候怎么休息
 
-> 原文:[https://life hacker . com/how-to-rest-when-you-the-doing-the-kids-1840790166](https://lifehacker.com/how-to-rest-when-youre-in-charge-of-the-kids-1840790166)
+> 原文：<https://lifehacker.com/how-to-rest-when-youre-in-charge-of-the-kids-1840790166>
 
 我儿子小的时候，我们经常玩一个游戏，我喜欢叫它“哄妈妈睡觉”这让他很忙，有助于他练习养育技能，我也可以躺一会儿。我知道我并不孤单；各地小孩的父母都在试图找出如何在躺下时为人父母。而 [一个爸爸](https://www.facebook.com/photo.php?fbid=162819024959501&set=p.162819024959501&type=3&theater) 又好心的给了我们另一个横诀试试。
 

@@ -1,6 +1,6 @@
 # 你应该在亚马逊上用积分购物吗？
 
-> 原文:[https://life hacker . com/should-you-shop with points-on-Amazon-1844830823](https://lifehacker.com/should-you-shop-with-points-on-amazon-1844830823)
+> 原文：<https://lifehacker.com/should-you-shop-with-points-on-amazon-1844830823>
 
 随着冠状病毒疫情延伸到秋季，你可能会更密切地关注你的旅行奖励信用卡，更不用说你所有的信用卡奖励积分余额了。如果你暂时不打算去任何地方旅行，并且你的积分余额很大，你可能会考虑用其他方式来消费。
 

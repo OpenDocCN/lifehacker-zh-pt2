@@ -1,6 +1,6 @@
 # 用这个技巧帮助你的孩子学习视觉单词
 
-> 原文:[https://life hacker . com/help-your-kid-learn-sight-words-with this-trick-1839998833](https://lifehacker.com/help-your-kid-learn-sight-words-with-this-trick-1839998833)
+> 原文：<https://lifehacker.com/help-your-kid-learn-sight-words-with-this-trick-1839998833>
 
 幼儿园的孩子们有很多事情要做。他们越来越擅长识别字母和数字，他们按顺序计数，他们学习如何读出单词，然后他们学习英语中的许多单词实际上是不能“读出”的像“他们的”、“知道”、“谁”和“做”这样的词是他们必须记住的大约 100 个词中的一部分，因为它们要么非常频繁，要么无法被读出。他们必须面熟。
 

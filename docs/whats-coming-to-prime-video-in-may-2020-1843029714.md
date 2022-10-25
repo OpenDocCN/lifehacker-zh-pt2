@@ -1,6 +1,6 @@
 # 2020 年 5 月，Prime Video 将迎来什么
 
-> 原文:[https://life hacker . com/whats-coming-to-prime-video-in-may-2020-1843029714](https://lifehacker.com/whats-coming-to-prime-video-in-may-2020-1843029714)
+> 原文：<https://lifehacker.com/whats-coming-to-prime-video-in-may-2020-1843029714>
 
 我们离 5 月 1 日只有几天了，这意味着我们离一堆新的内容出现在亚马逊的 Prime 视频上只有几天了。
 

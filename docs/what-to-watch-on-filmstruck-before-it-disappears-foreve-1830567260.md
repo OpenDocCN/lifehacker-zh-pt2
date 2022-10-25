@@ -1,6 +1,6 @@
 # 在电影胶片永远消失之前看什么
 
-> 原文:[https://life hacker . com/what-to-watch-on-filmstruck-before-foreve-1830567260](https://lifehacker.com/what-to-watch-on-filmstruck-before-it-disappears-foreve-1830567260)
+> 原文：<https://lifehacker.com/what-to-watch-on-filmstruck-before-it-disappears-foreve-1830567260>
 
 11 月 29 日，FilmStruck 将被美国电话电报公司关闭，这意味着你只有几天时间来赶上该服务的电影库。
 

@@ -1,6 +1,6 @@
 # in defense of caffeine pills 1828501954
 
-> 原文:[https://life hacker . com/in-defense-of-咖啡因药丸-1828501954](https://lifehacker.com/in-defense-of-caffeine-pills-1828501954)
+> 原文：<https://lifehacker.com/in-defense-of-caffeine-pills-1828501954>
 
 在大学里，我曾经用毫克的尺度测量出少量的咖啡因粉末，把它放在一个凝胶帽里，然后一整天重复。一堆两英寸高的灰尘像刀疤脸一样堆积在我前男友桌子上的一张纸上，旁边是体重秤和一袋瓶盖。每当我开始感到困倦时，我平均服用 30 毫克左右，每天三到四次。周期性地，瓶盖会在我吞咽之前打开，我的嘴里会充满粉末状咖啡因的刺鼻苦味。
 

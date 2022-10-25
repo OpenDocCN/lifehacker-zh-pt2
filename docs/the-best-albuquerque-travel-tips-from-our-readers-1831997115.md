@@ -1,6 +1,6 @@
 # 来自我们读者的最佳阿尔伯克基旅行建议
 
-> 原文:[https://life hacker . com/the-best-Albuquerque-travel-tips-from-our-readers-1831997115](https://lifehacker.com/the-best-albuquerque-travel-tips-from-our-readers-1831997115)
+> 原文：<https://lifehacker.com/the-best-albuquerque-travel-tips-from-our-readers-1831997115>
 
 [阿-阿-阿-阿尔伯克基！在本周的《黑客你的城市》节目中，我们询问了你去这座名字有趣的沙漠城市旅游或居住的建议。所有最佳答案均在原评论线程](https://www.youtube.com/watch?v=JE37e1eK2mY) 中五线谱标签下。以下是我们个人的最爱。 
 

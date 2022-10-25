@@ -1,6 +1,6 @@
 # 你不必在黑色星期五购物来获得黑色星期五的优惠
 
-> 原文:[https://life hacker . com/you-don-t-do-to-shop-on-black-frid-1839146364](https://lifehacker.com/you-dont-have-to-shop-on-black-friday-to-get-black-frid-1839146364)
+> 原文：<https://lifehacker.com/you-dont-have-to-shop-on-black-friday-to-get-black-frid-1839146364>
 
 在过去，黑色星期五是假日购物的大日子。你起了个大早，开车去购物中心，像其他人一样排队，想买一台新电视、煎锅或当时流行的儿童玩具，想卖个好价钱。
 

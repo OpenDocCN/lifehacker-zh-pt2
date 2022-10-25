@@ -1,6 +1,6 @@
 # 根据科马克·麦卡锡的说法，如何使用长破折号
 
-> 原文:[https://life hacker . com/how-to-use-an-em-dash-only-to-Cormac-McCarthy-1839031259](https://lifehacker.com/how-to-use-an-em-dash-according-to-cormac-mccarthy-1839031259)
+> 原文：<https://lifehacker.com/how-to-use-an-em-dash-according-to-cormac-mccarthy-1839031259>
 
 小说家科马克·麦卡锡花了 20 年时间编辑感觉像是小说反面的东西:圣达菲学院教职员工和博士后的科学论文。与他一起工作的一些科学家已经 [转述并汇编了麦卡锡的最佳写作建议](https://www.nature.com/articles/d41586-019-02918-5) 。它适用于各种写作，从电子邮件到小说。
 

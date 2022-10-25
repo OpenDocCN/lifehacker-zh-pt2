@@ -1,6 +1,6 @@
 # how to support someone you love through infertility 1834411598
 
-> 原文:[https://life hacker . com/how-to-support-someone-you-love-through-不孕不育-1834411598](https://lifehacker.com/how-to-support-someone-you-love-through-infertility-1834411598)
+> 原文：<https://lifehacker.com/how-to-support-someone-you-love-through-infertility-1834411598>
 
 大约 10%的女性 [难以怀孕或保持怀孕](https://www.womenshealth.gov/a-z-topics/infertility) ，所以很有可能你爱的人正面临或将面临不孕。但是如果你没有亲身经历过(或者即使你经历过，但你的环境不同)，你可能很难知道该说些什么或做些什么来支持他们。
 

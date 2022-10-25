@@ -1,6 +1,6 @@
 # how soon should you travel somewhere after a disaster 1841391643
 
-> 原文:[https://life hacker . com/how-soon-should-you-travel-a place-after-1841391643](https://lifehacker.com/how-soon-should-you-travel-somewhere-after-a-disaster-1841391643)
+> 原文：<https://lifehacker.com/how-soon-should-you-travel-somewhere-after-a-disaster-1841391643>
 
 圣罗莎市知道，即使在 2017 年和 2019 年毁灭性的野火肆虐该地区后，你仍想参观加州的葡萄酒之乡。索诺玛山谷市也希望你来；它的经济很大程度上依赖于旅游收入，每年为该地区带来 14.7 亿美元的收入。但或许可以跳过那些被烧毁房屋的自拍照。
 

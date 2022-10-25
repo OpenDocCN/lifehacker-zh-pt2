@@ -1,6 +1,6 @@
 # 这是谷歌第二个像素功能下降的所有新东西
 
-> 原文:[https://life hacker . com/heres-everything-new-in-Google-second-pixel-feature-dr-1842064316](https://lifehacker.com/heres-everything-new-in-googles-second-pixel-feature-dr-1842064316)
+> 原文：<https://lifehacker.com/heres-everything-new-in-googles-second-pixel-feature-dr-1842064316>
 
 第二个大的 [像素功能于本周推出](https://www.blog.google/products/pixel/more-pixel-features-dropping) ，为谷歌的每款 Pixel 手机增加了一些新功能。其中的一些新功能已经在 Android 11 的预览版 [中发现，甚至有几个](https://lifehacker.com/how-to-test-the-best-features-in-the-android-11-preview-1841979306) [在非官方的](https://lifehacker.com/how-to-get-googles-car-crash-detection-app-on-older-pix-1841834525) 中提前泄露，但你会在本次更新中获得最终版本。
 

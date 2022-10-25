@@ -1,6 +1,6 @@
 # 给孩子的最好的极客章节书
 
-> 原文:[https://life hacker . com/the-best-geeky-chapter-books-for-kids-1839891551](https://lifehacker.com/the-best-geeky-chapter-books-for-kids-1839891551)
+> 原文：<https://lifehacker.com/the-best-geeky-chapter-books-for-kids-1839891551>
 
 花时间讨论霍比特人对抗精灵的利弊的成年人，以及思考如果他们成为兰尼斯特家族或马爹利家族的一部分会更成功的成年人，很可能是从狼吞虎咽地阅读一些令人讨厌的章节书籍开始他们的生活的。龙，魔法，时间旅行越多越好。
 

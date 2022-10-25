@@ -1,6 +1,6 @@
 # 为什么你的预算需要“偿债基金”
 
-> 原文:[https://life hacker . com/why-your-budget-needs-sinking-funds-1840265937](https://lifehacker.com/why-your-budget-needs-sinking-funds-1840265937)
+> 原文：<https://lifehacker.com/why-your-budget-needs-sinking-funds-1840265937>
 
 在昨天关于 [如何预算意外开支](https://lifehacker.com/how-to-budget-for-unexpected-expenses-1840237431) 的帖子中，我将偿债基金描述为“有史以来最好的预算方法之一”，这意味着是时候告诉你它们是如何运作的了。
 

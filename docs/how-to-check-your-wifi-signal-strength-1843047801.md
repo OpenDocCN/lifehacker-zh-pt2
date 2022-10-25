@@ -1,6 +1,6 @@
 # 如何检查你的 Wifi 信号强度
 
-> 原文:[https://life hacker . com/how-to-check-your-wifi-signal-strength-1843047801](https://lifehacker.com/how-to-check-your-wifi-signal-strength-1843047801)
+> 原文：<https://lifehacker.com/how-to-check-your-wifi-signal-strength-1843047801>
 
 Windows: 你以前见过可怕的信号条——这个有趣的小图形显示了你的无线连接强度。虽然满格意味着 你可能正在获得良好的 wifi 速度，但你也可能遇到过格*不太*满格的情况——你的无线连接很糟糕。
 

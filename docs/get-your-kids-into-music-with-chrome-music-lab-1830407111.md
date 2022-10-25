@@ -1,6 +1,6 @@
 # 通过 Chrome 音乐实验室让您的孩子享受音乐
 
-> 原文:[https://life hacker . com/get-your-kids-to-music-with-chrome-music-lab-1830407111](https://lifehacker.com/get-your-kids-into-music-with-chrome-music-lab-1830407111)
+> 原文：<https://lifehacker.com/get-your-kids-into-music-with-chrome-music-lab-1830407111>
 
 我丈夫和我都是玩乐器长大的，所以我们有点认为音乐能力和兴趣深深植根于我们的基因中。我们的儿子是否在乐队演奏不是一个问题；这是一个使用哪种乐器——或哪几种乐器的问题！—他会选择。
 

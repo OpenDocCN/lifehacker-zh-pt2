@@ -1,6 +1,6 @@
 # 我确信三星新的可折叠手机是完美的尺寸
 
-> 原文:[https://gizmodo . com/Samsung-galaxy-z-flip-24-hour-review-a-perfect-size-p-1841749854](https://gizmodo.com/samsung-galaxy-z-flip-24-hour-review-a-perfect-sized-p-1841749854)
+> 原文：<https://gizmodo.com/samsung-galaxy-z-flip-24-hour-review-a-perfect-sized-p-1841749854>
 
 我喜欢三星的 Galaxy Z Flip，几乎是不由自主的。
 

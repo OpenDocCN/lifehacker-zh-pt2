@@ -1,6 +1,6 @@
 # 员工股票计划入门指南
 
-> 原文:[https://life hacker . com/a-初学者指南-你的公司-员工-股票-pla-1720502775](https://lifehacker.com/a-beginner-s-guide-to-your-company-s-employee-stock-pla-1720502775)
+> 原文：<https://lifehacker.com/a-beginner-s-guide-to-your-company-s-employee-stock-pla-1720502775>
 
 你开始了一份新工作，公司提供股票期权作为福利的一部分。也许你不知道那是什么意思，或者你不太确定如何开始。这里有一些你应该知道的基本知识。
 

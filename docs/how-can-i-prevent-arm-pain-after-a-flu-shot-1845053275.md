@@ -1,6 +1,6 @@
 # 注射流感疫苗后，我如何预防手臂疼痛？
 
-> 原文:[https://life hacker . com/how-can-I-prevent-a-flu-shot-1845053275](https://lifehacker.com/how-can-i-prevent-arm-pain-after-a-flu-shot-1845053275)
+> 原文：<https://lifehacker.com/how-can-i-prevent-arm-pain-after-a-flu-shot-1845053275>
 
 今年流感疫苗 [比以往任何时候都重要](https://lifehacker.com/its-even-more-important-to-get-your-flu-shot-this-year-1844481707) 所以我希望你们都在计划接种，如果你们还没有接种的话。但是当你这样做的时候，你可能会有几天肩膀酸痛。一位读者问是否有防止疼痛的好方法:
 

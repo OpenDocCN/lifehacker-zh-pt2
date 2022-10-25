@@ -1,6 +1,6 @@
 # 如何培养你独生子女的耐心
 
-> 原文:[https://life hacker . com/how-to-build-patience-in-your-only-child-1841024781](https://lifehacker.com/how-to-build-patience-in-your-only-child-1841024781)
+> 原文：<https://lifehacker.com/how-to-build-patience-in-your-only-child-1841024781>
 
 作为独生子女的父母，我不相信许多关于单身人士的普遍刻板印象。作为一个群体，他们不是被宠坏的、不适应环境的、自私的、古怪的人。任何一个孩子都可以是这些东西中的任何一种，不管他们有几个兄弟姐妹。
 

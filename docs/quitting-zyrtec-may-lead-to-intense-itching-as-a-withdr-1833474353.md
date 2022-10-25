@@ -1,6 +1,6 @@
 # 停用 Zyrtec 可能会导致剧烈瘙痒，这是一种戒断症状
 
-> 原文:[https://life hacker . com/quitting-zyrtec-may-lead-to-intense-pitch-as-a-a-withdr-1833474353](https://lifehacker.com/quitting-zyrtec-may-lead-to-intense-itching-as-a-withdr-1833474353)
+> 原文：<https://lifehacker.com/quitting-zyrtec-may-lead-to-intense-itching-as-a-withdr-1833474353>
 
 过敏药物 Zyrtec(西替利嗪)的长期使用者有时会报告一种罕见但痛苦的戒断综合征，全身发痒。Jessica Misener 最近 [写了她在 Medium](https://medium.com/s/reasonable-doubt/quitting-zyrtec-is-total-hell-c3e79d753a1a) 戒断药物的经历，并报道 FDA 正在调查此事。
 

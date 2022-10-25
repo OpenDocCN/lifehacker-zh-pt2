@@ -1,6 +1,6 @@
 # 如何节省航空行李费
 
-> 原文:[https://life hacker . com/how-to-save-on-airline-行李费-1833461087](https://lifehacker.com/how-to-save-on-airline-baggage-fees-1833461087)
+> 原文：<https://lifehacker.com/how-to-save-on-airline-baggage-fees-1833461087>
 
 还记得那些没有长长的安检队伍和高昂的行李费就能登机的日子吗？信不信由你，在*有一段时间*机场不像一个你无法醒来的噩梦。
 

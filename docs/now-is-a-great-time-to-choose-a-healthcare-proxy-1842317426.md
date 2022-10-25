@@ -1,6 +1,6 @@
 # 现在是选择医疗代理的好时机
 
-> 原文:[https://life hacker . com/now-is-a-great-time-to-choose-a-health care-proxy-1842317426](https://lifehacker.com/now-is-a-great-time-to-choose-a-healthcare-proxy-1842317426)
+> 原文：<https://lifehacker.com/now-is-a-great-time-to-choose-a-healthcare-proxy-1842317426>
 
 在过去的几天里，我看到了一些可怕的广告和文章，告诉你你应该得到一份遗嘱，就在此时此刻。因为如果冠状病毒没有把你打倒，你肯定活不到你计划的 150 岁！(说真的，那份文案是我亲眼看到的。)
 

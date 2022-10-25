@@ -1,6 +1,6 @@
 # 如何用一个简单的技巧在移动的卡车上获得更好的交易
 
-> 原文:[https://life hacker . com/how-to-get-a-better-deal-on-a-moving-truck-a-simple-1084235787](https://lifehacker.com/how-to-get-a-better-deal-on-a-moving-truck-with-a-simpl-1084235787)
+> 原文：<https://lifehacker.com/how-to-get-a-better-deal-on-a-moving-truck-with-a-simpl-1084235787>
 
 像任何种类的汽车租赁一样，搬家卡车的价格并不总是像它看起来那样。你会看到一个很棒的交易——“从 19.95 美元开始！”或者“只需 20 美元就可以预订！”—但不可避免的是，当你打电话实际预订时，发现费用往往是两倍，甚至更多。当你开始寻找一个更长的旅程，比如越野，价格差异会变得更大。尽管这很令人沮丧，但有一种方法可以增加你获得更好价格的机会。
 

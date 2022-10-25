@@ -1,6 +1,6 @@
 # twitter 新的固定列表让你可以丢弃远程推文
 
-> 原文:[https://life hacker . com/twitters-new-pinned-lists-let-you-ditch-promoted-tweets-1842092496](https://lifehacker.com/twitters-new-pinned-lists-let-you-ditch-promoted-tweets-1842092496)
+> 原文：<https://lifehacker.com/twitters-new-pinned-lists-let-you-ditch-promoted-tweets-1842092496>
 
 众所周知，Twitter 的列表功能是一种很好的方式，可以从整天对你大喊大叫的互联网陌生人的混乱中提取有用性，新的更新使得在 iOS 或 Android Twitter 应用程序上访问你的列表变得更加容易。
 

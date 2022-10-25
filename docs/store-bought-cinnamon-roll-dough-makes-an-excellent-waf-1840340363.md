@@ -1,6 +1,6 @@
 # 商店里买的肉桂卷面团可以做很好的华夫饼干
 
-> 原文:[https://life hacker . com/store-bud-cinnamon-roll-dough-makes-an-excellent-waf-1840340363](https://lifehacker.com/store-bought-cinnamon-roll-dough-makes-an-excellent-waf-1840340363)
+> 原文：<https://lifehacker.com/store-bought-cinnamon-roll-dough-makes-an-excellent-waf-1840340363>
 
 肉桂卷是非常标准的圣诞节早餐，但是那些用商店买来的面团做的面包很少像自制面包那样柔软黏腻。这并不是说它们不好，但我认为罐装小圆面包比华夫饼干好得多。
 

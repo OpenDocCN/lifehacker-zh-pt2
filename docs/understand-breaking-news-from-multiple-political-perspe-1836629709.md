@@ -1,6 +1,6 @@
 # 使用 AllSides 从多个政治角度理解突发新闻
 
-> 原文:[https://life hacker . com/understand-breaking-news-from-multiple-political-perspe-1836629709](https://lifehacker.com/understand-breaking-news-from-multiple-political-perspe-1836629709)
+> 原文：<https://lifehacker.com/understand-breaking-news-from-multiple-political-perspe-1836629709>
 
 了解世界上正在发生的事情很重要，但从多个角度理解这些事件也很重要，尤其是如果你倾向于支持自己观点的新闻来源。
 

@@ -1,6 +1,6 @@
 # 你应该投资 401(k)还是罗斯 401(k)？
 
-> 原文:[https://life hacker . com/should-you-invest-a-401-k-or-Roth-401-k-1833202501](https://lifehacker.com/should-you-invest-in-a-401-k-or-roth-401-k-1833202501)
+> 原文：<https://lifehacker.com/should-you-invest-in-a-401-k-or-roth-401-k-1833202501>
 
 欢迎来到声明，Lifehacker 新的每周个人理财简讯。我是 Alicia Adamczyk， [Lifehacker 的金钱作家](https://kinja.com/aliciaadamczyk) ，每周三我将报道本周最紧迫的金钱问题，并回答读者关于你财务生活任何方面的问题。
 

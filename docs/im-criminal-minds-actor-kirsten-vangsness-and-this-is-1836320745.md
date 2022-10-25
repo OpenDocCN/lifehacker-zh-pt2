@@ -1,6 +1,6 @@
 # im criminal minds actor kirsten vangsness and this is 1836320745
 
-> 原文:[https://life hacker . com/im-criminal-minds-actor-kirsten-vangs ness-and-this-is-1836320745](https://lifehacker.com/im-criminal-minds-actor-kirsten-vangsness-and-this-is-1836320745)
+> 原文：<https://lifehacker.com/im-criminal-minds-actor-kirsten-vangsness-and-this-is-1836320745>
 
 当克斯汀·范奈丝在哥伦比亚广播公司的 *犯罪心理*中获得黑客佩内洛普·加西亚的角色时，她还在做兼职。她也在剧院工作，现在她以剧作家和演员的身份参与其中。我们和她聊了她的职业，她的子弹日记，以及她为什么喜欢在她的酿酒厂洗碗擦桌子。
 

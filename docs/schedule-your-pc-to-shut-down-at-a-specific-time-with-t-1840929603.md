@@ -1,6 +1,6 @@
 # 使用此 Windows 应用程序安排您的电脑在特定时间关机
 
-> 原文:[https://life hacker . com/schedule-your-PC-to-shut-down-at-a-specific-time with-t-1840929603](https://lifehacker.com/schedule-your-pc-to-shut-down-at-a-specific-time-with-t-1840929603)
+> 原文：<https://lifehacker.com/schedule-your-pc-to-shut-down-at-a-specific-time-with-t-1840929603>
 
 不时地关闭或重启你的电脑是一件好事。它甚至可以通过清除临时文件和释放内存来解决小的性能问题，这是一种经典的故障排除技术，但我们许多人都忽略了这一简单的技术维护行为。将台式机或笔记本电脑置于睡眠(或休眠)状态要比完全关机容易得多。
 

@@ -1,6 +1,6 @@
 # 是的，你可以去跑步
 
-> 原文:[https://lifehacker.com/yes-you-can-go-for-a-run-1842358121](https://lifehacker.com/yes-you-can-go-for-a-run-1842358121)
+> 原文：<https://lifehacker.com/yes-you-can-go-for-a-run-1842358121>
 
 呆在家里。这是 [自我隔离](https://vitals.lifehacker.com/what-does-self-quarantine-actually-mean-1842268976) 和社交距离的第一法则。但是过一会儿你可能会渴望出去走走，我有好消息告诉你:如果你能独自完成所有的事情，出去跑步是很好的。
 

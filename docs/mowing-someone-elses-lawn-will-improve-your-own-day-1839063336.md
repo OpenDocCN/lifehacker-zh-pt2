@@ -1,6 +1,6 @@
 # 修剪别人的草坪会改善你的一天
 
-> 原文:[https://life hacker . com/curving-someone-else-lawn-will-improve-your-own-day-1839063336](https://lifehacker.com/mowing-someone-elses-lawn-will-improve-your-own-day-1839063336)
+> 原文：<https://lifehacker.com/mowing-someone-elses-lawn-will-improve-your-own-day-1839063336>
 
 我们都知道，慷慨助人让我们感觉良好。这样做并不一定要花很多钱或占用很多时间。
 

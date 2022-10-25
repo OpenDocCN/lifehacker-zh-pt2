@@ -1,6 +1,6 @@
 # 训练你的大脑专注于这个 iPhone 游戏
 
-> 原文:[https://life hacker . com/improve-your-focus with this-iphone-game-1832108079](https://lifehacker.com/improve-your-focus-with-this-iphone-game-1832108079)
+> 原文：<https://lifehacker.com/improve-your-focus-with-this-iphone-game-1832108079>
 
 我们生活在一个不断同时处理多项任务的世界，这使得专注于一件事成为一种挑战。英国剑桥大学的研究人员认为他们已经以游戏的形式提出了一个解决方案。
 

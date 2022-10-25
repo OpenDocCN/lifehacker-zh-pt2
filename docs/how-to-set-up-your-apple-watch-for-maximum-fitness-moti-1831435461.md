@@ -1,6 +1,6 @@
 # 如何设置你的 Apple Watch 以获得最大的健身动力
 
-> 原文:[https://life hacker . com/how-to-set-up-your-apple-watch for maximum-fitness-moti-1831435461](https://lifehacker.com/how-to-set-up-your-apple-watch-for-maximum-fitness-moti-1831435461)
+> 原文：<https://lifehacker.com/how-to-set-up-your-apple-watch-for-maximum-fitness-moti-1831435461>
 
 Apple Watch 充满了健康和健身功能，数量之多令人应接不暇。但是，只要稍加思考，你就可以设置你的手表，让它帮助你进行出色的锻炼，并为下一次锻炼做好准备。
 

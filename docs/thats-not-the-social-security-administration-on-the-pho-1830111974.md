@@ -1,6 +1,6 @@
 # 电话里不是社会保障局
 
-> 原文:[https://life hacker . com/thas-not-the-social-security-administration-on-the-pho-1830111974](https://lifehacker.com/thats-not-the-social-security-administration-on-the-pho-1830111974)
+> 原文：<https://lifehacker.com/thats-not-the-social-security-administration-on-the-pho-1830111974>
 
 根据联邦贸易委员会的说法，城里有一种新的骗局需要警惕:要求个人信息的电话据称来自社会保障局。但不是 SSA，是骗子。
 

@@ -1,6 +1,6 @@
 # 如何阻止广告激活你的智能音箱
 
-> 原文:[https://life hacker . com/how-to-keep-commercial-from-activating-your-smart-spea-1831437974](https://lifehacker.com/how-to-keep-commercials-from-activating-your-smart-spea-1831437974)
+> 原文：<https://lifehacker.com/how-to-keep-commercials-from-activating-your-smart-spea-1831437974>
 
 这是一个广告季，你最喜欢的智能家庭扬声器展示了它的功能——这意味着你可能已经体验过你的谷歌助手、 、Alexa、或 Siri [回应来自你电视的问题](https://www.reddit.com/r/apple/comments/ab0gy0/nfls_hey_siri_ads_are_so_annoying_if_you_have_a/) 。而且每次发生这种情况，都不得不大喊，“嘿，谷歌，停下来，”或者你的智能音箱的等效短语，，这很烦人。
 

@@ -1,6 +1,6 @@
 # 如果你拥有一个 Pixel，你可以从谷歌获得 500 美元
 
-> 原文:[https://life hacker . com/if-you-own-a-pixel-you-can-get-up-to-500 from-googl-1834783480](https://lifehacker.com/if-you-own-a-pixel-you-could-get-up-to-500-from-googl-1834783480)
+> 原文：<https://lifehacker.com/if-you-own-a-pixel-you-could-get-up-to-500-from-googl-1834783480>
 
 谷歌同意支付 725 万美元来解决 Pixel 智能手机所有者对该公司提起的集体诉讼 。该诉讼称，谷歌故意销售焊接连接有缺陷的 Pixel 手机，导致麦克风普遍故障。谷歌已经解决了这一案件，该公司可能欠 Pixel 所有者每台设备高达 500 美元。即使你没有资格获得全部 500 美元，谷歌也有可能至少欠你*一些*钱。
 

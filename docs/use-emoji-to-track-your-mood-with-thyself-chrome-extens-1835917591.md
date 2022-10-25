@@ -1,6 +1,6 @@
 # 通过“你自己”Chrome 扩展，使用表情符号来跟踪你的心情
 
-> 原文:[https://life hacker . com/use-e moji-to-track-your-mood-with-yourself-chrome-extens-1835917591](https://lifehacker.com/use-emoji-to-track-your-mood-with-thyself-chrome-extens-1835917591)
+> 原文：<https://lifehacker.com/use-emoji-to-track-your-mood-with-thyself-chrome-extens-1835917591>
 
 此时此刻，你感觉如何？很好，现在哪个表情符号最能代表这种感觉？是一个免费的 Chrome 扩展，可以跟踪你一整天的心情。它要求你选择一个代表你当前感受的表情符号，并添加一个可选的文本注释。到下次入住时你就完成了。
 

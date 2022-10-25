@@ -1,6 +1,6 @@
 # 你应该烤一个蜂蜜面包
 
-> 原文:[https://life hacker . com/you-should-waffle-a-honey bun-1843905346](https://lifehacker.com/you-should-waffle-a-honeybun-1843905346)
+> 原文：<https://lifehacker.com/you-should-waffle-a-honeybun-1843905346>
 
 你可能会震惊地发现，我不太喜欢预先包装好的点心蛋糕，不管是女主人还是小黛布拉送的。我不喜欢斯诺球，直到 25 岁我才尝过夹心蛋糕，斑马蛋糕(我家人最喜欢的)的魅力也一直困扰着我。对我来说唯一重要的点心蛋糕是蜂蜜面包，它几乎是完美的。
 

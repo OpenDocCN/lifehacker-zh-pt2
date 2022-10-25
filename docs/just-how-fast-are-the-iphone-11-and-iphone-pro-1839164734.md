@@ -1,6 +1,6 @@
 # iPhone 11 和 iPhone 11 Pro 到底有多快？
 
-> 原文:[https://life hacker . com/just-how-fast-of-iphone-11-and-iphone-pro-1839164734](https://lifehacker.com/just-how-fast-are-the-iphone-11-and-iphone-pro-1839164734)
+> 原文：<https://lifehacker.com/just-how-fast-are-the-iphone-11-and-iphone-pro-1839164734>
 
 每年升级到新 iPhone 的一个好处是，新的总是感觉快得多。对我们大多数人来说，这是一种美好的感觉，我们就此打住。手机感觉很快，然后我们习惯了这种速度，然后下一个出现了... *ooooh，*那是*快*！
 

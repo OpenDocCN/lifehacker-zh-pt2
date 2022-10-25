@@ -1,6 +1,6 @@
 # 用这张疼痛图仔细决定在哪里纹身
 
-> 原文:[https://life hacker . com/谨慎决定在哪里用这个痛苦纹身-c-1689492474](https://lifehacker.com/carefully-decide-where-to-get-a-tattoo-with-this-pain-c-1689492474)
+> 原文：<https://lifehacker.com/carefully-decide-where-to-get-a-tattoo-with-this-pain-c-1689492474>
 
 如果你认为你可能想纹个(或另一个纹身)，但由于潜在的疼痛因素而犹豫不决，有一种工具可以帮助你。 [这张疼痛图](http://www.tattoos-hurt.com/tattoo-pain-scale/) 突出了针下来时最能疼的身体部位。
 

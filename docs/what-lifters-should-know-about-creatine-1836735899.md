@@ -1,6 +1,6 @@
 # 关于肌酸，举重运动员应该知道什么
 
-> 原文:[https://life hacker . com/what-lifters-should-know-on-creatine-1836735899](https://lifehacker.com/what-lifters-should-know-about-creatine-1836735899)
+> 原文：<https://lifehacker.com/what-lifters-should-know-about-creatine-1836735899>
 
 肌酸在锻炼补充剂的世界里是一种罕见的东西:它确实有效，而且便宜又安全。如果你想锻炼肌肉或者举起最重的东西，你可能想养成每天服用肌酸的习惯——但是，当然，有一些注意事项。
 

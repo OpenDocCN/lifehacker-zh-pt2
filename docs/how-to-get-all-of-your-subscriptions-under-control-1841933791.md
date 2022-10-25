@@ -1,6 +1,6 @@
 # 如何控制您的所有订阅
 
-> 原文:[https://life hacker . com/how-to-get-all-of-your-subscriptions-under-control-1841933791](https://lifehacker.com/how-to-get-all-of-your-subscriptions-under-control-1841933791)
+> 原文：<https://lifehacker.com/how-to-get-all-of-your-subscriptions-under-control-1841933791>
 
 从游戏到流媒体，再到预包装的食物，一切都需要订阅。尽管所有这些服务可能都很方便，但那些“每月仅 5 美元”的服务很快就会堆积起来，失去控制。在上面的视频中，我分享了一些我用来控制订阅预算的技巧。
 

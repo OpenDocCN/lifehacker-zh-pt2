@@ -1,6 +1,6 @@
 # 不要太客气
 
-> 原文:[https://lifehacker.com/be-less-polite-1838782691](https://lifehacker.com/be-less-polite-1838782691)
+> 原文：<https://lifehacker.com/be-less-polite-1838782691>
 
 你能对你的朋友说的最好的话是“去你的！”不是当你真的生气的时候，而是当你到处闲逛的时候，他们把你打得很好，你承认是的，你被控制了。“去你的”表示“我们在一个信任和亲密的圈子里，因此我们不需要礼貌。”
 

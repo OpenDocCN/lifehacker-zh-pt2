@@ -1,6 +1,6 @@
 # 问咸的女服务员:我是麸质过敏的素食者。怎么才能出去吃饭？
 
-> 原文:[https://the take out . com/gluten-allergy-素食-how-can-I-out-to-eat-1830594349](https://thetakeout.com/gluten-allergic-vegetarian-how-can-i-go-out-to-eat-1830594349)
+> 原文：<https://thetakeout.com/gluten-allergic-vegetarian-how-can-i-go-out-to-eat-1830594349>
 
 > 亲爱的 Salty，从我三年级读*夏洛特的网*的那一刻起，我就基本上是一个素食主义者，我非常擅长在菜单描述中定位和避免肉类。我也是公认的中西部人，所以当我在没有素食选择的餐馆时，我倾向于“凑合”而不是点菜单外的菜。
 > 

@@ -1,6 +1,6 @@
 # 这些电子游戏可以让你抚摸狗狗
 
-> 原文:[https://life hacker . com/these-video-games-let-you-pet-the-dogs-1833127272](https://lifehacker.com/these-video-games-let-you-pet-the-dogs-1833127272)
+> 原文：<https://lifehacker.com/these-video-games-let-you-pet-the-dogs-1833127272>
 
 正如我们的姐妹网站 Kotaku 解释的那样， [所有的视频游戏都应该让你抚摸动物](https://kotaku.com/all-video-games-should-let-me-pet-the-animals-1826089191) 。可悲的是，许多游戏都有狗、狗，但却没有办法去抚摸它们。直到国会采取行动，取缔这一疏忽，一个新的推特账户， [你能摸狗吗？](https://twitter.com/CanYouPetTheDog) ，告诉你哪些游戏做，不让你宠狗。它有图片。
 

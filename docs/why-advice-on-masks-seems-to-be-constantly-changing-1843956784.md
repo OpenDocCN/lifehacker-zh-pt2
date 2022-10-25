@@ -1,6 +1,6 @@
 # 为什么关于口罩的建议似乎一直在变
 
-> 原文:[https://life hacker . com/why-advice-on-masks-is-be-constant-changed-1843956784](https://lifehacker.com/why-advice-on-masks-seems-to-be-constantly-changing-1843956784)
+> 原文：<https://lifehacker.com/why-advice-on-masks-seems-to-be-constantly-changing-1843956784>
 
 世界卫生组织上周晚些时候宣布了关于口罩的新指导方针引发了另一波关于“他们”如何不断改变主意的眼球滚动。此前世卫组织并没有建议健康人戴口罩；现在他们说，60 岁以上的人和有潜在健康问题的人应该在不可能保持距离的地方戴口罩。他们还说，地方政府可能会向每个人推荐口罩，但他们会让这些官员自己判断。
 

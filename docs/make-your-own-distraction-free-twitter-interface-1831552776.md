@@ -1,6 +1,6 @@
 # 制作你自己的不受干扰的 Twitter 界面
 
-> 原文:[https://life hacker . com/make-your-own-distraction-free-Twitter-interface-1831552776](https://lifehacker.com/make-your-own-distraction-free-twitter-interface-1831552776)
+> 原文：<https://lifehacker.com/make-your-own-distraction-free-twitter-interface-1831552776>
 
 Twitter，一个让你对世界和自己感觉糟糕的地方，仍然对一些事情有用。你可能只会在上面关注他们真正的朋友，或者把它作为一个新闻聚合器，或者一个关注收集艺术、音乐或有趣视频的账户的地方。但 Twitter 会非常努力地让你关注更多的人，“发现”更多的“趋势”，并点击广告。以下是如何把自己不喜欢的部分剪掉。
 

@@ -1,6 +1,6 @@
 # 下次演示时带上一个运动水壶
 
-> 原文:[https://life hacker . com/bring-a-sport-top-water-bottle-to-your ' s next-democrati-1843829101](https://lifehacker.com/bring-a-sport-top-water-bottle-to-your-next-demonstrati-1843829101)
+> 原文：<https://lifehacker.com/bring-a-sport-top-water-bottle-to-your-next-demonstrati-1843829101>
 
 水可能是你能带到抗议或示威中的最重要的东西之一。没错，它能让你保持水分，但它也能用来清洁小伤口，给自己降温，冲洗掉眼睛里的化学刺激物。事实上，除了停滞的水坑水之外，所有的水都可以这样使用，但从装有运动装备的水瓶中射出的水尤其有效。
 

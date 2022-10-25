@@ -1,6 +1,6 @@
 # 扔掉旧乐高变得更容易了
 
-> 原文:[https://life hacker . com/getting-ride-of-old-Legos-just-get-easy-1838871895](https://lifehacker.com/getting-rid-of-old-legos-just-got-easier-1838871895)
+> 原文：<https://lifehacker.com/getting-rid-of-old-legos-just-got-easier-1838871895>
 
 世界各地的父母都在问这个古老的问题——我该拿这些奇怪的乐高玩具怎么办？——可能终于有个好答案了。乐高与一家物流公司合作，收集所有那些你踩了多年的微小硬塑料砖，清洗干净，然后捐赠给有需要的孩子。
 

@@ -1,6 +1,6 @@
 # 如果你要移居国外，该如何处理你的东西
 
-> 原文:[https://life hacker . com/what-do-with-your-style-if your-moving-1844222496](https://lifehacker.com/what-to-do-with-your-stuff-if-youre-moving-abroad-1844222496)
+> 原文：<https://lifehacker.com/what-to-do-with-your-stuff-if-youre-moving-abroad-1844222496>
 
 上周，我邀请《生活黑客》的读者 分享他们对移居国外最迫切的问题。你们中不少人想知道:如果你想移居国外，你该拿你的东西怎么办？
 

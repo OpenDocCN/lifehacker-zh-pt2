@@ -1,6 +1,6 @@
 # Chrome 的短网址如何增加你的安全性
 
-> 原文:[https://life hacker . com/how-chromes-short-URLs-can-increase-your-security-1844040108](https://lifehacker.com/how-chromes-short-urls-can-increase-your-security-1844040108)
+> 原文：<https://lifehacker.com/how-chromes-short-urls-can-increase-your-security-1844040108>
 
 谷歌可能很快就会截断你访问的网站的完整地址。通过在地址栏中只显示网站的域名而不是完整的网址，谷歌的这一举措实际上可以帮助人们提高浏览网页时的安全性。你现在就可以尝试这个功能。
 

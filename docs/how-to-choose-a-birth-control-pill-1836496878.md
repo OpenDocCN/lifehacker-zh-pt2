@@ -1,6 +1,6 @@
 # how to choose a birth control pill 1836496878
 
-> 原文:[https://life hacker . com/how-to-choose-a-避孕药-1836496878](https://lifehacker.com/how-to-choose-a-birth-control-pill-1836496878)
+> 原文：<https://lifehacker.com/how-to-choose-a-birth-control-pill-1836496878>
 
 “避孕药”并不是一个整体:有数百种避孕药，它们并不完全相同。但是大多数人从来没有选择。他们走进诊所，要求吃药，并得到一个处方，这个处方可能是也可能不是最适合他们特殊情况的。鉴于这种情况如此普遍，难怪这么多人对避孕药采取“一刀切”的做法。
 

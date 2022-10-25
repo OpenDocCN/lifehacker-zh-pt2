@@ -1,6 +1,6 @@
 # 如何解决对你想要的工作大材小用的问题
 
-> 原文:[https://life hacker . com/how-to-address-be 大材小用-for-a-job-you-want-1839210546](https://lifehacker.com/how-to-address-being-overqualified-for-a-job-you-want-1839210546)
+> 原文：<https://lifehacker.com/how-to-address-being-overqualified-for-a-job-you-want-1839210546>
 
 上周，我们讨论了如何应对棘手的工作面试，以及回答“ [你为什么想在这里工作的正确方式。](https://lifehacker.com/how-to-answer-why-you-do-you-want-to-work-here-in-a-jo-1839099971) ”(剧透:比你想象的容易多了。)在我们的评论部分，一位读者提到了你在找工作时可能会遇到的另一种情况:你如何解释想要一份大材小用的工作？
 

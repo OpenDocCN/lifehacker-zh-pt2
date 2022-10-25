@@ -1,6 +1,6 @@
 # 这个应用程序将借给你 75 美元免息，以避免透支费用
 
-> 原文:[https://life hacker . com/this-app-will-loan-you-75-interest-free-to-avoid-overd-1819733628](https://lifehacker.com/this-app-will-loan-you-75-interest-free-to-avoid-overd-1819733628)
+> 原文：<https://lifehacker.com/this-app-will-loan-you-75-interest-free-to-avoid-overd-1819733628>
 
 透支费从来没有好时机。当然，当你被打了一巴掌，通常是因为你没有足够的钱来买你真正需要的东西，而不必担心支付额外的现金。
 

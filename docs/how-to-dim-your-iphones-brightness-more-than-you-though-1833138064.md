@@ -1,6 +1,6 @@
 # 如何将 iPhone 的亮度调得比你想象的更暗
 
-> 原文:[https://life hacker . com/how-to-dim-your-iphone-brightness-than-you-through 1833138064](https://lifehacker.com/how-to-dim-your-iphones-brightness-more-than-you-though-1833138064)
+> 原文：<https://lifehacker.com/how-to-dim-your-iphones-brightness-more-than-you-though-1833138064>
 
 iPhone 的亮度不够低。在一片漆黑中，即使是最暗的设置也会太亮。但是你可以把 iPhone 最暗的设置调得更暗，这要感谢 redditor manawesome326 的提示 [。我们将一步一步地带你通过它。](https://www.reddit.com/r/NoStupidQuestions/comments/ayaqnc/anyone_else_wish_their_phones_can_go_darker_than/ehzg5gn/) 
 

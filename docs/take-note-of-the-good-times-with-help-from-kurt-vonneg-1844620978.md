@@ -1,6 +1,6 @@
 # 在库尔特·冯内古特的帮助下，记录下美好的时光
 
-> 原文:[https://life hacker . com/take-note-of-the-good-times-with-help-from-Kurt-von neg-1844620978](https://lifehacker.com/take-note-of-the-good-times-with-help-from-kurt-vonneg-1844620978)
+> 原文：<https://lifehacker.com/take-note-of-the-good-times-with-help-from-kurt-vonneg-1844620978>
 
 《2020》中有一句库尔特·冯内古特的话我一直很喜欢，这句话摘自他 1969 年的小说《五号屠场》，那是一段怪异的科幻时间旅行，在一个故事中融合了现实和幻想，试图将作者见证二战期间德国德累斯顿燃烧弹袭击的经历的超现实主义背景化。随着主角穿越时空，穿越银河系，遭遇人为的悲伤和外星人，短语“就这样过去了”变成了一种黑色喜剧叠句，是一个令人费解的混乱时刻和下一个(或上一个)时间旅行幽默之间的过渡！).
 

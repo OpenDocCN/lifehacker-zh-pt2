@@ -1,6 +1,6 @@
 # 每次第一次都在右边放上合适的床单
 
-> 原文:[https://life hacker . com/put-a-fitted-sheet-on-the-first-time-every-1844929939](https://lifehacker.com/put-a-fitted-sheet-on-right-the-first-time-every-time-1844929939)
+> 原文：<https://lifehacker.com/put-a-fitted-sheet-on-right-the-first-time-every-time-1844929939>
 
 在我的生活中有两件事是绝对确定的:我将永远无法在第一次尝试 时正确插入 USB，我将永远不得不以至少*的速度旋转我的床单一次，然后才能将它固定在我床垫的四个角上。但是我最近想到了一个解决这个问题的方法，灵感来自于为幼儿设计的床上用品。(不，我不骄傲。我最小的孩子不再使用婴儿床了，但他的床仍然适合一个更小的婴儿床大小的床垫。因为这些东西的宽度不会比它们的高度大多少，所以许多公司会在合适的婴儿床床单的顶部和侧面贴上标签，这样你就不用在铺床的时候弄不清哪个是哪个了。我享受这种儿童铺床的好处已经很多年了，但我只是刚刚意识到，我可以很容易地在我的成人尺寸的床单上复制它。*
 

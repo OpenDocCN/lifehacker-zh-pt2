@@ -1,6 +1,6 @@
 # 这些航空公司现在要求你在飞机上戴口罩
 
-> 原文:[https://life hacker . com/these-airlines-now-require-you-wear-a-mask-on-board-1843198986](https://lifehacker.com/these-airlines-now-require-you-to-wear-a-mask-onboard-1843198986)
+> 原文：<https://lifehacker.com/these-airlines-now-require-you-to-wear-a-mask-onboard-1843198986>
 
 如果你打算马上坐飞机，你需要随身携带一个口罩。虽然在这一点上这似乎是一个非常明显的声明， [上周一架从迈阿密飞往纽约的航班在网上疯传，](https://www.businessinsider.com/american-airlines-full-flight-passengers-masks-coronavirus-2020-4) 也许不止一种方式，因为在拥挤的航班上相当多的乘客没有戴口罩。
 

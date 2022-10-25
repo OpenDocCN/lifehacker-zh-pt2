@@ -1,6 +1,6 @@
 # DoorDash 上的“一美分”巨无霸其实不是一美分
 
-> 原文:[https://life hacker . com/the-one-cent-big-MAC-on-door dash-is-not-true-one-cent-1838700612](https://lifehacker.com/the-one-cent-big-mac-on-doordash-is-not-really-one-cent-1838700612)
+> 原文：<https://lifehacker.com/the-one-cent-big-mac-on-doordash-is-not-really-one-cent-1838700612>
 
 你会为麦当劳的巨无霸支付高于面值的价格吗？如果你本周抢着去买 DoorDash 的一美分汉堡，你可能已经这么做了。
 

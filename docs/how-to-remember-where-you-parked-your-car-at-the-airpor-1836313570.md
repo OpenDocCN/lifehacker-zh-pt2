@@ -1,6 +1,6 @@
 # 如何记住你在机场把车停在哪里
 
-> 原文:[https://life hacker . com/how-to-remember-where-you-parked your car-at-the-airport-1836313570](https://lifehacker.com/how-to-remember-where-you-parked-your-car-at-the-airpor-1836313570)
+> 原文：<https://lifehacker.com/how-to-remember-where-you-parked-your-car-at-the-airpor-1836313570>
 
 没有什么比从六小时的飞机上下来更痛苦的了；在机场多花一个小时下飞机，拿好你所有的行李，然后乘飞机去主要的交通枢纽；然后意识到你不知道你把车停在哪里了。
 

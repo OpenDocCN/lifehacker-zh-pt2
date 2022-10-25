@@ -1,6 +1,6 @@
 # 将你的财务目标与结果挂钩，而不是数字
 
-> 原文:[https://life hacker . com/tie-your-financial-goals-to-results-not-numbers-1834476400](https://lifehacker.com/tie-your-financial-goals-to-results-not-numbers-1834476400)
+> 原文：<https://lifehacker.com/tie-your-financial-goals-to-results-not-numbers-1834476400>
 
 当你处于个人理财旅程的早期阶段时，你的大部分理财目标都倾向于围绕特定的数字:
 

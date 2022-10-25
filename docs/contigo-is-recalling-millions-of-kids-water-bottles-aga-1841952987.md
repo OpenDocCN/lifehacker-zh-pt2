@@ -1,6 +1,6 @@
 # Contigo 再次召回数百万个儿童水瓶
 
-> 原文:[https://life hacker . com/contigo-is-recall-million-of-kids-water-bottles-aga-1841952987](https://lifehacker.com/contigo-is-recalling-millions-of-kids-water-bottles-aga-1841952987)
+> 原文：<https://lifehacker.com/contigo-is-recalling-millions-of-kids-water-bottles-aga-1841952987>
 
 如果你的孩子使用带硅胶嘴的 Contigo 水瓶，你可能记得在八月 由于窒息危险 [，数百万个](https://www.cpsc.gov/Recalls/2019/Contigo-Recalls-57-Million-Kids-Water-Bottles-Due-to-Choking-Hazard#) [水瓶被召回](https://offspring.lifehacker.com/your-kids-contigo-water-bottle-may-be-a-choking-hazard-1837703179?rev=1582818103513) 。好吧，现在替换的盖子也正在被召回，在数百个喷嘴分离的报告之后。
 

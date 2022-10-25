@@ -1,6 +1,6 @@
 # 如何结束一次性塑料玩具的循环
 
-> 原文:[https://life hacker . com/how-to-end-the-cycle of-throw-away-plastic-toys-1835665569](https://lifehacker.com/how-to-end-the-cycle-of-throwaway-plastic-toys-1835665569)
+> 原文：<https://lifehacker.com/how-to-end-the-cycle-of-throwaway-plastic-toys-1835665569>
 
 到处都是。廉价的卡祖笛。四旬斋前狂欢节的串珠子。蜘蛛戒指。疯狂吸管。放大镜只会让事物看起来模糊。非品牌的 Slinkies。这么多飞盘。不喷水的迷你水枪。我没有给我的孩子买很多塑料垃圾，但不知何故，它进入了我的家。这些东西在被埋进也被称为我们的玩具箱的深渊之前，被玩了整整 11 秒钟。
 

@@ -1,6 +1,6 @@
 # 做一个极好的烤奶酪和里面翻出来的晚餐卷
 
-> 原文:[https://life hacker . com/make-an-excellent-gricked-cheese with-inside-out-dinner-1831343306](https://lifehacker.com/make-an-excellent-grilled-cheese-with-inside-out-dinner-1831343306)
+> 原文：<https://lifehacker.com/make-an-excellent-grilled-cheese-with-inside-out-dinner-1831343306>
 
 晚餐面包卷非常适合用来蘸肉汁和做剩下的三明治。但是说到烤奶酪，它们已经变成褐色的外表，不如切片白面包烤得好。解决这个问题的方法很简单:只要把面包卷翻过来。
 

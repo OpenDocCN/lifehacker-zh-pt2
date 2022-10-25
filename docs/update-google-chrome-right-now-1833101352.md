@@ -1,6 +1,6 @@
 # 立即更新谷歌浏览器
 
-> 原文:[https://life hacker . com/update-Google-chrome-right-now-1833101352](https://lifehacker.com/update-google-chrome-right-now-1833101352)
+> 原文：<https://lifehacker.com/update-google-chrome-right-now-1833101352>
 
 谷歌 Chrome 的一个安全漏洞是上周 主动攻击下的[；虽然谷歌最新的 Chrome 更新(希望)自动修复了你浏览器中的问题，但重要的是你再次检查你运行的是最新版本(72.0.3626.121)。](https://www.zdnet.com/article/google-reveals-chrome-zero-day-under-active-attacks/)
 

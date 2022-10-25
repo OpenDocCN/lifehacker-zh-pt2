@@ -1,6 +1,6 @@
 # 如何成为一家大型汽车公司的汽车工程师
 
-> 原文:[https://jalopnik . com/how-to-be-a-major-car-com-1842971662](https://jalopnik.com/how-to-become-an-automotive-engineer-at-a-major-car-com-1842971662)
+> 原文：<https://jalopnik.com/how-to-become-an-automotive-engineer-at-a-major-car-com-1842971662>
 
 年轻读者经常问我一个问题:我如何才能成为一家大型汽车公司的汽车工程师？答案是，实现这个目标有很多途径，这就是为什么——除了讲述我自己如何在菲亚特克莱斯勒获得梦想中的工程工作的故事之外——我还收集了福特、日产、本田、菲亚特克莱斯勒和通用汽车工程师的故事。
 

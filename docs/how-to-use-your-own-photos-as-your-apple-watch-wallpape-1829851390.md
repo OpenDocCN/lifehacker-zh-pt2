@@ -1,6 +1,6 @@
 # 如何将自己的照片用作 Apple Watch 壁纸
 
-> 原文:[https://life hacker . com/how-to-use-your-own-photos-as-your-apple-watch-wallpape-1829851390](https://lifehacker.com/how-to-use-your-own-photos-as-your-apple-watch-wallpape-1829851390)
+> 原文：<https://lifehacker.com/how-to-use-your-own-photos-as-your-apple-watch-wallpape-1829851390>
 
 大多数 Apple Watch 用户已经知道，你可以通过手指在屏幕上滑动来在不同的手表表面之间跳跃。但你也知道你可以用自己的照片和图像作为苹果手表的壁纸吗？你可以显示一张照片作为你的壁纸，也可以显示一组照片，每次你轻触手表或抬起手腕时都会发生变化，这种定制可以在任何苹果手表上使用——从老派的原版到系列 4 。这个过程需要几个步骤，但是一旦完成，你的手表将会有一个更加个性化的外观和感觉。
 

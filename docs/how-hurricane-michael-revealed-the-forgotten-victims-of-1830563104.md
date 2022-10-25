@@ -1,6 +1,6 @@
 # how hurricane michael revealed the forgotten victims of 1830563104
 
-> 原文:[https://gizmodo . com/how-hurricane-Michael-revealed-the-forgotten-of-1830563104](https://gizmodo.com/how-hurricane-michael-revealed-the-forgotten-victims-of-1830563104)
+> 原文：<https://gizmodo.com/how-hurricane-michael-revealed-the-forgotten-victims-of-1830563104>
 
 佛罗里达州海湾惩教所的囚犯何塞·赫拉达第一次从收音机里听到迈克尔飓风的消息。起初，赫拉达对此并不以为意。尽管佛罗里达州 [发布](https://eu.tallahassee.com/story/news/2018/10/08/hurricane-michael-mandatory-evacuation-bay-county-zones-florida-panama-city-beach/1570291002/) 命令，要求附近的巴拿马城及周边地区强制疏散，但海湾 CI 的官员并未提出疏散该监狱 1500 名囚犯的可能性。Herrada 认为这意味着他是安全的。
 

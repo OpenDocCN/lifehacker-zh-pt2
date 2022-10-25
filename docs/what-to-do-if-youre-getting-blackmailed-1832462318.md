@@ -1,6 +1,6 @@
 # 如果你被敲诈了该怎么办
 
-> 原文:[https://life hacker . com/1832462318](https://lifehacker.com/what-to-do-if-youre-getting-blackmailed-1832462318)
+> 原文：<https://lifehacker.com/what-to-do-if-youre-getting-blackmailed-1832462318>
 
 所以你发了裸体照。我们生活在一个数字时代，现在裸照比以往任何时候都更像是约会的货币。
 

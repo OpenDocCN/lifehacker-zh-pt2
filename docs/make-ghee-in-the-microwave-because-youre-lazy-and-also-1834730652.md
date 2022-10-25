@@ -1,6 +1,6 @@
 # 用微波炉做酥油，因为你既懒又聪明
 
-> 原文:[https://life hacker . com/make-ghee-in-the-microwave-因为你懒-而且-1834730652](https://lifehacker.com/make-ghee-in-the-microwave-because-youre-lazy-and-also-1834730652)
+> 原文：<https://lifehacker.com/make-ghee-in-the-microwave-because-youre-lazy-and-also-1834730652>
 
 如果有任何烹饪脂肪配得上“液体黄金”的称号，那一定是酥油。酥油是澄清的棕色黄油——这意味着它具有澄清黄油的高发烟点和棕色黄油的坚果风味。在我看来，这是你能做到的最完美的了。
 

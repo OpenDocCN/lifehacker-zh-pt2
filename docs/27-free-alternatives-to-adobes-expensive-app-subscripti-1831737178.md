@@ -1,6 +1,6 @@
 # Adobe 昂贵的应用程序订阅的 27 种免费替代方案
 
-> 原文:[https://life hacker . com/27-free-alternatives-to-adobes-friendly-app-subscription-1831737178](https://lifehacker.com/27-free-alternatives-to-adobes-expensive-app-subscripti-1831737178)
+> 原文：<https://lifehacker.com/27-free-alternatives-to-adobes-expensive-app-subscripti-1831737178>
 
 Adobe 的应用程序订阅价格再次上涨，似乎让许多用户感到不安。虽然目前这款应用似乎只针对特定国家——北美用户可以幸免——但没有理由认为在未来某个时候你不必支付更多费用来订阅 Adobe 应用程序(或其整套创意应用程序)。伙计们，这就是生意。
 

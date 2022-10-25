@@ -1,6 +1,6 @@
 # 如何修复腐蚀的电池盒
 
-> 原文:[https://life hacker . com/how-to-fix-corrupted-battery-compartments-1835307548](https://lifehacker.com/how-to-fix-corroded-battery-compartments-1835307548)
+> 原文：<https://lifehacker.com/how-to-fix-corroded-battery-compartments-1835307548>
 
 你知道你应该把你的电子产品存放在一个干燥的地方*在*你取出电池后，对吗？不过，你并不总是这么做，对吧？你只是随意地把那些装饰性的、用电池供电的节日蜡烛扔进储藏箱，你把你的孩子曾经喜欢的音乐玩具堆进一个旧的玩具箱，没有进一步思考，就像不负责任的电池所有者一样。
 

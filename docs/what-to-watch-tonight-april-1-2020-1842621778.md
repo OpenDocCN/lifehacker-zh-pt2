@@ -1,6 +1,6 @@
 # 今晚看什么，2020 年 4 月 1 日
 
-> 原文:[https://life hacker . com/今晚看什么-2020 年 4 月 1 日-1842621778](https://lifehacker.com/what-to-watch-tonight-april-1-2020-1842621778)
+> 原文：<https://lifehacker.com/what-to-watch-tonight-april-1-2020-1842621778>
 
 今天是 4 月 1 日，这意味着大量新内容出现在流媒体服务上，如 [【网飞】](https://lifehacker.com/whats-coming-to-netflix-in-april-2020-1842413432)[Hulu](https://lifehacker.com/whats-coming-to-hulu-in-april-2020-1842474636)和 [迪士尼+](https://lifehacker.com/whats-coming-to-disney-in-april-2020-1842402802) 。新冠肺炎疫情也将许多潜在的现场活动搬到了网上。
 

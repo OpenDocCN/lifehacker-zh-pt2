@@ -1,6 +1,6 @@
 # 如果你的睡眠追踪器显示你睡眠不好，不要担心
 
-> 原文:[https://life hacker . com/don ' t-worry-if-your-sleep-tracker-say-your-sleep-was-ba-1833848640](https://lifehacker.com/dont-worry-if-your-sleep-tracker-says-your-sleep-was-ba-1833848640)
+> 原文：<https://lifehacker.com/dont-worry-if-your-sleep-tracker-says-your-sleep-was-ba-1833848640>
 
 如果你曾经睡了一夜，醒来后检查手机，发现你的睡眠质量很差，或者你很少“深度”睡眠，请举手。你今天剩下的时间感觉如何？蹩脚？你可能会责怪你的追踪器，而不是你的实际睡眠水平，至少部分是因为你的感觉。
 

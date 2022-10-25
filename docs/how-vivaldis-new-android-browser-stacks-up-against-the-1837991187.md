@@ -1,6 +1,6 @@
 # Vivaldi 的新 Android 浏览器如何与竞争对手相抗衡
 
-> 原文:[https://life hacker . com/how-vivaldis-new-Android-browser-stacks-up-against-the-1837991187](https://lifehacker.com/how-vivaldis-new-android-browser-stacks-up-against-the-1837991187)
+> 原文：<https://lifehacker.com/how-vivaldis-new-android-browser-stacks-up-against-the-1837991187>
 
 高度可定制的网络浏览器 Vivaldi 现已在安卓设备 上推出测试版。我们已经测试了 Android 应用程序，发现它是一个非常强大的移动浏览器，具有许多独特的功能，特别是对于 Vivaldi 桌面用户来说，但是在移动设备上拥有另一个伟大的浏览器应用程序会带来一些重要的问题。
 

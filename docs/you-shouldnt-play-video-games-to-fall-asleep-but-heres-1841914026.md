@@ -1,6 +1,6 @@
 # 你不应该为了睡着而玩电子游戏(但不管怎样，这里是方法)
 
-> 原文:[https://kotaku . com/you-should-but-heres-1841914026](https://kotaku.com/you-shouldnt-play-video-games-to-fall-asleep-but-heres-1841914026)
+> 原文：<https://kotaku.com/you-shouldnt-play-video-games-to-fall-asleep-but-heres-1841914026>
 
 我们都做过。前一分钟，你看着吉姆对德怀特说了些刻薄的话；下一分钟，你醒来时看到一个屏幕，问你“你还在看*【办公室】*(美国)吗？”
 

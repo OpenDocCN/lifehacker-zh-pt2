@@ -1,6 +1,6 @@
 # 给你的一天添加一个“延伸目标”
 
-> 原文:[https://life hacker . com/add-a-stretch-goal-to-your-day-1832532637](https://lifehacker.com/add-a-stretch-goal-to-your-day-1832532637)
+> 原文：<https://lifehacker.com/add-a-stretch-goal-to-your-day-1832532637>
 
 每个周末，我和妻子都希望完成很多事情。我们把所有的目标，从“洗头”到“报税”，都放在提醒应用程序或一张小纸片上的非正式小任务清单上。管理周末的待办事项本身就成了一件差事。把自己逼得太紧，我们会精疲力尽；太放松了，我们周一会后悔的。我们在保持紧迫性的同时建立灵活性的一个方法是指定几个待办事项作为“延伸目标”
 

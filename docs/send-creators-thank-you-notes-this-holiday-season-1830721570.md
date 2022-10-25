@@ -1,6 +1,6 @@
 # 在这个假期给创作者发送感谢信
 
-> 原文:[https://life hacker . com/send-creators-thank-you-notes-this-holiday-season-1830721570](https://lifehacker.com/send-creators-thank-you-notes-this-holiday-season-1830721570)
+> 原文：<https://lifehacker.com/send-creators-thank-you-notes-this-holiday-season-1830721570>
 
 如今，当谈到满足时，有一种财富的尴尬。无数的播客、电视节目、时事通讯、杂志、传统媒体、YouTube 系列、Instagram 故事等等都在争夺我们的注意力，以及我们的订阅费。虽然我们中的许多人愿意每月捐赠 5 美元或创作者要求的任何其他低数字，但我们经常不这样做或不能。
 

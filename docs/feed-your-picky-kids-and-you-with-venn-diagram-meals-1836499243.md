@@ -1,6 +1,6 @@
 # 用“维恩图餐”喂养你和你挑剔的孩子
 
-> 原文:[https://life hacker . com/feed-you-picky-kids-and-you-with Venn-diagram-meals-1836499243](https://lifehacker.com/feed-your-picky-kids-and-you-with-venn-diagram-meals-1836499243)
+> 原文：<https://lifehacker.com/feed-your-picky-kids-and-you-with-venn-diagram-meals-1836499243>
 
 在为人父母的过程中，我还没有完全接受的一个生活调整是我的食物。有时候，老公会发短信给我“今晚晚饭想吃什么？”我会认真思考，然后用“泰国辣椒酱醉面条”这样的话来回答，然后他会回答，“你记得我们有孩子，对吗？”哦，是的。
 

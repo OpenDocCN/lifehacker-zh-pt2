@@ -1,6 +1,6 @@
 # 如何从总统候选人杨安泽那里得到 12000 美元
 
-> 原文:[https://life hacker . com/how-to-get-12-000-from-president-candidate-Andrew-y-1838093905](https://lifehacker.com/how-to-get-12-000-from-presidential-candidate-andrew-y-1838093905)
+> 原文：<https://lifehacker.com/how-to-get-12-000-from-presidential-candidate-andrew-y-1838093905>
 
 如果昨晚观看民主党候选人和在一个舞台上的辩论让你头晕目眩，你可能错过了杨安泽在开场陈述中的声明:他正在努力测试一个全民基本收入(UBI)计划。
 

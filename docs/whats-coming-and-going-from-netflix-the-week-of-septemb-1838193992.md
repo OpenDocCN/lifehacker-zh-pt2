@@ -1,6 +1,6 @@
 # 2019 年 9 月 23 日这一周，网飞有哪些活动
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of-septemb-1838193992](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-septemb-1838193992)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-septemb-1838193992>
 
 瑞恩·墨菲的*《政治家*是网飞原创，你要么非常想看，要么宁死也不想看，周五首播时，你的愿望/恐惧就会成真。本·普拉特扮演一个的孩子竞选一所高中的学生会主席，这所高中的宫廷阴谋足以媲美路易十四的宫廷。自从早期的《欢乐合唱团》和《亲密接触》以来，我一直没有看《墨菲疯狂》，所以我不确定我是这部电影的目标观众，但杰西卡·兰格和格温妮丝都在里面，所以我可能必须收听，如果只是为了打磨我的流行文化真诚。你进去了还是出来了？
 

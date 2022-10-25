@@ -1,6 +1,6 @@
 # 五个最好的价格跟踪工具
 
-> 原文:[https://life hacker . com/five-best-price-tracking-tools-1692745053](https://lifehacker.com/five-best-price-tracking-tools-1692745053)
+> 原文：<https://lifehacker.com/five-best-price-tracking-tools-1692745053>
 
 找出买东西的最佳时机需要持续关注不断波动的网上价格，并了解过去价格的变化。幸运的是，你不需要自己解决所有问题——有很好的工具可以帮助你。我们已经收集了五个最好的，会让你知道什么时候该行动了。
 

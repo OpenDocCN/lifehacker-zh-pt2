@@ -1,6 +1,6 @@
 # 如何在你的 Android 上获得 iOS 14 的隐藏后点击控件
 
-> 原文:[https://life hacker . com/how-to-get-IOs-14s-hidden-back-tap-controls-on-your-and-1844575287](https://lifehacker.com/how-to-get-ios-14s-hidden-back-tap-controls-on-your-and-1844575287)
+> 原文：<https://lifehacker.com/how-to-get-ios-14s-hidden-back-tap-controls-on-your-and-1844575287>
 
 iOS 14 和 Android 11 将在今年晚些时候推出新的“back tap”手势控制，但你现在可以在任何运行 Android 7.0 或更高版本的 Android 设备上提前获得该功能。(iPhone 用户可以 [安装 iOS 14 测试版，也可以](https://lifehacker.com/how-to-launch-iphone-actions-with-a-tap-on-the-back-1844127710) 提前体验这种沉闷的生活)。
 

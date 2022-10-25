@@ -1,6 +1,6 @@
 # 我需要一辆越野车来拖在我那辆不是吉普车的房车后面！应该买什么车？
 
-> 原文:[https://jalopnik . com/I-need-a-off-road-ride-to-tow-after-my-RV-than-a-1836484414](https://jalopnik.com/i-need-an-off-road-ride-to-tow-behind-my-rv-that-isnt-a-1836484414)
+> 原文：<https://jalopnik.com/i-need-an-off-road-ride-to-tow-behind-my-rv-that-isnt-a-1836484414>
 
 罗恩正在找一辆可以平拖在他的房车后面的车，这辆车要有 AWD/四轮驱动，而且不要太重。他真的不想要吉普车，但他有一个相当健康的预算，大约 30，000 美元。他应该买什么车？
 

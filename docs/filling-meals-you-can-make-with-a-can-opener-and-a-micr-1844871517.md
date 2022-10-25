@@ -1,6 +1,6 @@
 # 用开罐器和微波炉做的馅料餐
 
-> 原文:[https://life hacker . com/filling-meals-you-can-make with a-can-opener-a-micr-1844871517](https://lifehacker.com/filling-meals-you-can-make-with-a-can-opener-and-a-micr-1844871517)
+> 原文：<https://lifehacker.com/filling-meals-you-can-make-with-a-can-opener-and-a-micr-1844871517>
 
 24 岁的 Zachary Shakked 是一名自主创业的 iOS 应用程序开发人员，他制定自己的时间表。“我通常睡懒觉，没有闹钟，在 9 点或 10 点左右醒来，吃早餐(通常是隔夜燕麦或鸡蛋和烤面包)，”他在电子邮件中解释道。“我通常会吃很多草——当我饿的时候我会吃东西。我绝对喜欢捣咖啡。”
 

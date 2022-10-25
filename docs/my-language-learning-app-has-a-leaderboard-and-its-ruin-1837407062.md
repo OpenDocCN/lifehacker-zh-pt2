@@ -1,6 +1,6 @@
 # 我的语言学习应用程序有一个排行榜，它毁了我的生活
 
-> 原文:[https://kotaku . com/my-language-learning-app-has-a-leader board-and-its-ruin-1837407062](https://kotaku.com/my-language-learning-app-has-a-leaderboard-and-its-ruin-1837407062)
+> 原文：<https://kotaku.com/my-language-learning-app-has-a-leaderboard-and-its-ruin-1837407062>
 
 我试图通过学习一门新语言来戒掉手机游戏。现在，我不再痴迷于玩手机游戏，而是痴迷于我的语言学习应用程序。该死的。
 

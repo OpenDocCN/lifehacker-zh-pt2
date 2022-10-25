@@ -1,6 +1,6 @@
 # 这些约会之夜的活动最好单独进行
 
-> 原文:[https://life hacker . com/these-date-night-activities-better-solo-1841587333](https://lifehacker.com/these-date-night-activities-are-better-solo-1841587333)
+> 原文：<https://lifehacker.com/these-date-night-activities-are-better-solo-1841587333>
 
 我不喜欢约会，但我喜欢去约会。约会的问题很少是真正的约会，但之前(比如找人约会)和之后(让那个人再次和你约会或者离开你)发生的所有事情真的很糟糕。然而，常见的约会活动占主导地位，没有理由让另一个人参与进来。
 

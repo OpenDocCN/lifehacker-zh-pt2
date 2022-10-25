@@ -1,6 +1,6 @@
 # 苹果新闻+完全是一团糟
 
-> 原文:[https://gizmodo.com/apple-news-is-a-total-mess-1833892734](https://gizmodo.com/apple-news-is-a-total-mess-1833892734)
+> 原文：<https://gizmodo.com/apple-news-is-a-total-mess-1833892734>
 
 苹果宣布 News+已经三周了，这是一项雄心勃勃的服务，提供数百种杂志和少量报纸订阅，每月 10 美元。这是苹果今年计划推出的两项主要新付费服务 中的第一项，作为面对 iPhone 销售疲软 重振其业务 [的主要努力的一部分。可惜苹果 News+效果不太好。它的某些部分根本不起作用。](https://gizmodo.com/apples-future-looks-rotten-1831041372)
 

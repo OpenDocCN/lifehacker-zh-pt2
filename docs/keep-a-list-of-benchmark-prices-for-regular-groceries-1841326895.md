@@ -1,6 +1,6 @@
 # 保留一份普通食品的基准价格清单
 
-> 原文:[https://life hacker . com/keep-a-list-of-benchmark-prices-for-regular-杂货 1841326895](https://lifehacker.com/keep-a-list-of-benchmark-prices-for-regular-groceries-1841326895)
+> 原文：<https://lifehacker.com/keep-a-list-of-benchmark-prices-for-regular-groceries-1841326895>
 
 即使你在去杂货店之前列了一个清单，如果你被几乎每个过道的货架上排列的销售标签分散了注意力，你仍然会浪费很多时间——更不用说钱了。当然，你想省钱。但是，站在过道里比较你店里库存的各种尺寸和品种的价格值得吗？
 

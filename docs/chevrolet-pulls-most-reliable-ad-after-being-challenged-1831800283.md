@@ -1,6 +1,6 @@
 # 受到丰田的挑战后，雪佛兰取消了“最可靠”的广告
 
-> 原文:[https://jalopnik . com/Chevrolet-pulls-most-reliable-ad-after-be-challenged-1831800283](https://jalopnik.com/chevrolet-pulls-most-reliable-ad-after-being-challenged-1831800283)
+> 原文：<https://jalopnik.com/chevrolet-pulls-most-reliable-ad-after-being-challenged-1831800283>
 
 在最近的一次广告活动中，雪佛兰宣称他们的汽车比本田、丰田和福特“更可靠”。这个说法 [是基于雪佛兰赞助的](https://jalopnik.com/the-truth-behind-chevrolet-s-real-people-claim-that-its-1831604863) 一些非常精挑细选的调查数据。丰田对雪佛兰的说法提出了质疑——现在这则广告已经被撤下。
 

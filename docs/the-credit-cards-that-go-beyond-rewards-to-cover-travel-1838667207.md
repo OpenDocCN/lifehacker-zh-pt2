@@ -1,6 +1,6 @@
 # 超出奖励范围支付旅行费用的信用卡
 
-> 原文:[https://life hacker . com/the-credit-cards-that-go-beyond-rewards-to-cover-travel-1838667207](https://lifehacker.com/the-credit-cards-that-go-beyond-rewards-to-cover-travel-1838667207)
+> 原文：<https://lifehacker.com/the-credit-cards-that-go-beyond-rewards-to-cover-travel-1838667207>
 
 对于任何一次旅行，甚至在你用你的信用卡积分兑换旅行奖励之后，你都会有一些剩余的费用。您可以用积分预订机票或酒店房间，但您不能打电话给营地，要求他们用积分支付您的预订。你也许可以用你的积分兑换租车预约，但是你要为把车停在停车场而自掏腰包。
 

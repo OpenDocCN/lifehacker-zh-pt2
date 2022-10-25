@@ -1,6 +1,6 @@
 # how to make an easter dinner with just a few ingredient 1842780208
 
-> 原文:[https://life hacker . com/how-to-make-a-Easter-dinner-with just-some-ingredient-1842780208](https://lifehacker.com/how-to-make-an-easter-dinner-with-just-a-few-ingredient-1842780208)
+> 原文：<https://lifehacker.com/how-to-make-an-easter-dinner-with-just-a-few-ingredient-1842780208>
 
 复活节就在这个星期天，像大多数日子一样，你可能会想在那天吃东西。你甚至可能希望那顿饭有一点特别的感觉，这是有道理的。在这个混乱但令人惊讶的沉闷时代，需要一点特殊性，这种特殊性也可以采取以火腿或羊肉为中心的食物的形式。
 

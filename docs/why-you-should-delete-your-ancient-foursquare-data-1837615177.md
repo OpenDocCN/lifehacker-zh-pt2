@@ -1,6 +1,6 @@
 # 为什么你应该删除你的(古老的)Foursquare 数据
 
-> 原文:[https://life hacker . com/why-you-should-delete-your-ancient-four square-data-1837615177](https://lifehacker.com/why-you-should-delete-your-ancient-foursquare-data-1837615177)
+> 原文：<https://lifehacker.com/why-you-should-delete-your-ancient-foursquare-data-1837615177>
 
 还记得 Foursquare 吗？我曾经用它(以及该公司的 [和其他应用](https://www.swarmapp.com) )来记录我所到之处的详细数字记录，这在 2010 年是很酷的事情。虽然我不再使用 Foursquare 的 [Android](https://play.google.com/store/apps/details?id=com.joelapenna.foursquared&hl=en_US) 或 [iOS](https://apps.apple.com/us/app/foursquare-city-guide/id306934924) 应用程序，但我已经向该公司提供了许多关于我的信息。谢天谢地，很容易就能看到公司从你那里收集的所有数据，并删除它们。
 

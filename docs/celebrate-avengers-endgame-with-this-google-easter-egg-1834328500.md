@@ -1,6 +1,6 @@
 # 用这个谷歌复活节彩蛋庆祝“复仇者联盟 4：终局之战”
 
-> 原文:[https://life hacker . com/prepare-Avengers-end game-with-this-Google-Easter-egg-1834328500](https://lifehacker.com/celebrate-avengers-endgame-with-this-google-easter-egg-1834328500)
+> 原文：<https://lifehacker.com/celebrate-avengers-endgame-with-this-google-easter-egg-1834328500>
 
 谷歌通过一个有趣的小复活节彩蛋，加入了人们对漫威的*复仇者联盟 4：终局之战的热情，这是过去十年来漫威电影世界 T3 的超大、超级高潮。*
 

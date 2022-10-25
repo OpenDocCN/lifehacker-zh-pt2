@@ -1,6 +1,6 @@
 # 如果您的行李在飞行后受损，如何提出索赔
 
-> 原文:[https://life hacker . com/how-to-file-a-1837366918](https://lifehacker.com/how-to-file-a-claim-if-your-luggage-is-damaged-after-a-1837366918)
+> 原文：<https://lifehacker.com/how-to-file-a-claim-if-your-luggage-is-damaged-after-a-1837366918>
 
 去年，一名乘坐美国航空公司 航班 [的乘客在发现自己的行李箱被毁坏后，获得了 3500 美元的赔偿；在行李认领处，她发现自己的一些衣服被撕碎了，一半的物品不见了，行李箱上沾满了油脂和牙膏。与此同时，更令人不安的消息是，据一条](https://thepointsguy.com/news/american-airlines-pays-passenger-3500-for-destroyed-bag/) [Reddit](https://old.reddit.com/r/Flights/comments/ckpotu/what_appears_to_be_blood_is_all_over_a_bag_that_i/) 线索称，一名联合航班上的乘客发现他们托运的行李上到处都是看起来很像血迹的东西。
 

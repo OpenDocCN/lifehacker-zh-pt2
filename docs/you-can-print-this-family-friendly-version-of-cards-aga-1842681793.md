@@ -1,6 +1,6 @@
 # 你可以在家免费打印这种家庭友好版的反人类卡片
 
-> 原文:[https://life hacker . com/you-can-print-this-family-friendly-version-of-cards-aga-1842681793](https://lifehacker.com/you-can-print-this-family-friendly-version-of-cards-aga-1842681793)
+> 原文：<https://lifehacker.com/you-can-print-this-family-friendly-version-of-cards-aga-1842681793>
 
 如果你们都待在家里，想找些有趣的事情和家人一起做，反人类的 [卡有一个新的适合家庭的游戏版本](https://www.cardsagainsthumanityfamilyedition.com/) ，你可以在家里下载并打印。
 

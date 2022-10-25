@@ -1,6 +1,6 @@
 # 使用此应用程序，轻松与群组共享家长的医疗动态
 
-> 原文:[https://life hacker . com/easy-share-a-parents-medical-updates-with-a-group-usi-1835036166](https://lifehacker.com/easily-share-a-parents-medical-updates-with-a-group-usi-1835036166)
+> 原文：<https://lifehacker.com/easily-share-a-parents-medical-updates-with-a-group-usi-1835036166>
 
 我的母亲在患有多发性硬化症大约 20 年后，于几年前去世。在那 20 年里，我的兄弟姐妹和大家庭经常交换责任，带她去看医生，给家里带食品杂货，帮她做她需要做的事情。
 

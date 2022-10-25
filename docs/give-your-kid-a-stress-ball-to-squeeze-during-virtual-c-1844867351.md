@@ -1,6 +1,6 @@
 # 给你的孩子一个压力球，让他在虚拟课堂上挤压
 
-> 原文:[https://life hacker . com/give-your-kid-a-stress-ball-to-squeeze-in-virtual-c-1844867351](https://lifehacker.com/give-your-kid-a-stress-ball-to-squeeze-during-virtual-c-1844867351)
+> 原文：<https://lifehacker.com/give-your-kid-a-stress-ball-to-squeeze-during-virtual-c-1844867351>
 
 有时候最好的黑客是最微小的；一件非常有用并且在事后看来显而易见的事情，你真的应该自己想到它。也许你做到了(对你有好处！).但是如果你和我一样，还没有想到在你的孩子登录他们的教室缩放会议时给他们一个压力球，现在是时候尝试一下了。
 

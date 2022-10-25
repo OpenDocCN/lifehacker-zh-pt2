@@ -1,6 +1,6 @@
 # 让你的孩子在需要的时候发泄
 
-> 原文:[https://life hacker . com/let-your-kids-vent-when-they-need-to-1841789328](https://lifehacker.com/let-your-kids-vent-when-they-need-to-1841789328)
+> 原文：<https://lifehacker.com/let-your-kids-vent-when-they-need-to-1841789328>
 
 这些天我的晚上有一种特定的模式。我去放学后的托儿所接我儿子。我很高兴见到他；他很高兴见到我。我们微笑，我们拥抱，我们走出学校的大门。然后，事情变糟了。
 

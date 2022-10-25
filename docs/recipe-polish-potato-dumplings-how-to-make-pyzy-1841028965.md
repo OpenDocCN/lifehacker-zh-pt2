@@ -1,6 +1,6 @@
 # 波兰土豆饺子是完美的安慰食品
 
-> 原文:[https://the take out . com/recipe-polish-potato-饺子-how-to-make-pyzy-1841028965](https://thetakeout.com/recipe-polish-potato-dumplings-how-to-make-pyzy-1841028965)
+> 原文：<https://thetakeout.com/recipe-polish-potato-dumplings-how-to-make-pyzy-1841028965>
 
 你知道什么时候食谱指南是一派胡言吗？当它说:“拿四个大土豆和一个中等大小的洋葱。”这些测量值意味着什么？！？我以前见过小猫大小的土豆——这是大土豆的标准吗？这只是我在箱子里能找到的最大的土豆，还是更像是，合理大小的土豆+小土豆= 1 个大土豆？一个中等大小的洋葱是最普通的洋葱吗？这些都不是真正的测量！需要解释的变量太多了，我倾向于想太多！我有一个不合理的数量与土豆有关的恐慌发作，这需要停止！
 

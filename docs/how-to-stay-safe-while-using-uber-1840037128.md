@@ -1,6 +1,6 @@
 # 如何在使用优步时保持安全
 
-> 原文:[https://life hacker . com/how-to-stay-safe-while-use-Uber-1840037128](https://lifehacker.com/how-to-stay-safe-while-using-uber-1840037128)
+> 原文：<https://lifehacker.com/how-to-stay-safe-while-using-uber-1840037128>
 
 尽管方便且界面友好，但像优步这样的拼车应用仍然存在一定的安全风险。根据其有史以来第一份公共安全报告 ，优步表示，去年美国共报告了 3045 起性侵事件，比 2017 年的 2936 起略有上升。
 

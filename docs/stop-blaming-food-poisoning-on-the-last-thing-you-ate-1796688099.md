@@ -1,6 +1,6 @@
 # 不要把食物中毒归咎于你最后吃的东西
 
-> 原文:[https://life hacker . com/stop-kicking-food-poisoning-on-the last-this-you-eat-1796688099](https://lifehacker.com/stop-blaming-food-poisoning-on-the-last-thing-you-ate-1796688099)
+> 原文：<https://lifehacker.com/stop-blaming-food-poisoning-on-the-last-thing-you-ate-1796688099>
 
 呕吐是非常可怕的，所以当它发生在我们身上时，我们通常会试图找出我们体内到底发生了什么，以确保它不会再次发生。如果胃部不适没有出现，你可能会怀疑食物中毒，并责怪几个小时前你吃饭的餐馆。但是那个地方可能不是罪魁祸首，即使你把那顿饭倒过来看。
 

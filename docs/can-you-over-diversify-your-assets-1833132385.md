@@ -1,6 +1,6 @@
 # 你能“过度分散”你的资产吗？
 
-> 原文:[https://life hacker . com/can-you-over-diversize-your-assets-1833132385](https://lifehacker.com/can-you-over-diversify-your-assets-1833132385)
+> 原文：<https://lifehacker.com/can-you-over-diversify-your-assets-1833132385>
 
 一个 [多元化的投资组合](https://lifehacker.com/what-it-means-to-diversify-your-assets-1830708509) 是长期投资策略成功的关键之一。但是你的资产能不能也变得*多元化呢？* 
 

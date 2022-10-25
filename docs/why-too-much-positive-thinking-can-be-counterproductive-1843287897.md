@@ -1,6 +1,6 @@
 # 为什么过多的积极思考会适得其反
 
-> 原文:[https://life hacker . com/why-too-much-positive-thinking-can-decreactive-1843287897](https://lifehacker.com/why-too-much-positive-thinking-can-be-counterproductive-1843287897)
+> 原文：<https://lifehacker.com/why-too-much-positive-thinking-can-be-counterproductive-1843287897>
 
 承认积极的一面是记住生活中所有美好事物的一种方式。然而，就像所有的事情一样，好事也会有太多的时候。这包括所谓的 [毒性阳性](https://www.startribune.com/it-s-ok-not-to-be-ok-minnesota-psychologists-push-back-on-toxic-positivity/570042452/) ，这是一种无情的专注，只专注于好的方面，以忽略所有不好的方面为代价。
 

@@ -1,6 +1,6 @@
 # 找出你的路边回收计划是如何变化的
 
-> 原文:[https://life hacker . com/find-out-how-your-curb side-recycling-program-is-changin-1833492910](https://lifehacker.com/find-out-how-your-curbside-recycling-program-is-changin-1833492910)
+> 原文：<https://lifehacker.com/find-out-how-your-curbside-recycling-program-is-changin-1833492910>
 
 如果你还没听说的话，你的路边回收项目可能会有麻烦——而且没有太多的解决方案。
 

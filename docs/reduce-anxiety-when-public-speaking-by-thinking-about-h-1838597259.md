@@ -1,6 +1,6 @@
 # 在公开演讲时，想想你是如何帮助听众的，从而减少焦虑
 
-> 原文:[https://life hacker . com/reduce-anxiety-when-public-speaking-by-thinking-h-1838597259](https://lifehacker.com/reduce-anxiety-when-public-speaking-by-thinking-about-h-1838597259)
+> 原文：<https://lifehacker.com/reduce-anxiety-when-public-speaking-by-thinking-about-h-1838597259>
 
 公众演讲是很多人都在努力解决的问题。在舞台上，尤其是在一大群人面前，即使是最老练、最自信的演讲者也会感到紧张。《哈佛商业评论》 最近的一篇文章就如何消除这种焦虑提出了一个有趣的建议:从你正在帮助听众的角度来说话。
 

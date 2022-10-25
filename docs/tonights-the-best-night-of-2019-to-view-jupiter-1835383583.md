@@ -1,6 +1,6 @@
 # 今晚是 2019 年观看木星的最佳夜晚
 
-> 原文:[https://life hacker . com/to nights-2019-to-view-Jupiter-1835383583](https://lifehacker.com/tonights-the-best-night-of-2019-to-view-jupiter-1835383583)
+> 原文：<https://lifehacker.com/tonights-the-best-night-of-2019-to-view-jupiter-1835383583>
 
 今晚将是一年中凝视木星及其众多卫星的最佳夜晚，因为地球、木星和太阳都排成一行，使这颗气态行星显得更加明亮。
 

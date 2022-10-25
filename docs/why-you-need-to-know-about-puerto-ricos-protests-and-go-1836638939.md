@@ -1,6 +1,6 @@
 # 为什么你需要了解波多黎各的抗议和总督里卡多·罗塞洛
 
-> 原文:[https://life hacker . com/why-you-need-to-know-about-Puerto-ricos-declaration-and-go 1836638939](https://lifehacker.com/why-you-need-to-know-about-puerto-ricos-protests-and-go-1836638939)
+> 原文：<https://lifehacker.com/why-you-need-to-know-about-puerto-ricos-protests-and-go-1836638939>
 
 在波多黎各，抗议已经席卷全国，要求他们的州长、里卡多·罗塞尔辞职——他现在 [预计今天](https://www.cnn.com/2019/07/24/us/puerto-rico-crisis-wednesday/) 辞职。在州长和他的核心圈子之间的消息泄露后，Rosselló因一系列对政府官员的人身攻击而被追究责任，包括将一名纽约市女议员称为“妓女”以及关于飓风 Maria 受害者的笑话。
 

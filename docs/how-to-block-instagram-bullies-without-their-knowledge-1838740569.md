@@ -1,6 +1,6 @@
 # 如何在不知情的情况下屏蔽 Instagram 恶霸
 
-> 原文:[https://life hacker . com/how-to-block-insta gram-bullass-without they-knowledge-1838740569](https://lifehacker.com/how-to-block-instagram-bullies-without-their-knowledge-1838740569)
+> 原文：<https://lifehacker.com/how-to-block-instagram-bullies-without-their-knowledge-1838740569>
 
 十几岁的孩子曾经可以在一天结束后把欺负他们的人留在学校的走廊里；但现在，随着社交媒体和智能手机的普及，他们无论去哪里都带着他们的欺凌者。
 

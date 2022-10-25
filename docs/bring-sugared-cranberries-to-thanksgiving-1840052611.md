@@ -1,6 +1,6 @@
 # 感恩节带糖蔓越莓
 
-> 原文:[https://life hacker . com/bring-sugared-cranberries-to-thanksgiving-1840052611](https://lifehacker.com/bring-sugared-cranberries-to-thanksgiving-1840052611)
+> 原文：<https://lifehacker.com/bring-sugared-cranberries-to-thanksgiving-1840052611>
 
 当你既不做饭也不主持感恩节晚餐时，你通常会在前一天给主人发短信，请求他们告诉你，具体来说就是 [你可以带什么](https://lifehacker.com/why-you-want-to-be-the-hero-who-brings-salad-to-thanksg-1820194832) 。如果你有一袋蔓越莓、白糖和一些水，你就拥有了完美开胃菜所需的一切——不管你的主人是否知道。
 

@@ -1,6 +1,6 @@
 # 选民压制是真实的，它确实影响了黑人
 
-> 原文:[https://www . the root . com/voter-suppression-is-real-and-it-really-affects-black-p-1830001232](https://www.theroot.com/voter-suppression-is-real-and-it-really-affects-black-p-1830001232)
+> 原文：<https://www.theroot.com/voter-suppression-is-real-and-it-really-affects-black-p-1830001232>
 
 我想我们都同意 2018 年中期选举至关重要。这意味着我们的投票比以往任何时候都重要。但是，当你已经注册并准备好参与这个良好的民主，但不能的时候，会发生什么呢？
 

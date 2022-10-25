@@ -1,6 +1,6 @@
 # 为什么你的信用卡旅行报销会消失
 
-> 原文:[https://life hacker . com/why-your-credit-card-travel-reinforcements-may-disapp-1843242774](https://lifehacker.com/why-your-credit-card-travel-reimbursements-might-disapp-1843242774)
+> 原文：<https://lifehacker.com/why-your-credit-card-travel-reimbursements-might-disapp-1843242774>
 
 旅行奖励信用卡的好处之一是提供信用额度的政策，这些信用额度可以从你的账单中抹去符合条件的费用。就像免费得到东西一样！但是现在，一些信用卡持卡人发现他们的美国运通信用卡被收回了。
 

@@ -1,6 +1,6 @@
 # 你可以在加州免费阅读纽约时报
 
-> 原文:[https://life hacker . com/you-can-read-the-new-York-times-in-California-1832758638](https://lifehacker.com/you-can-read-the-new-york-times-for-free-in-california-1832758638)
+> 原文：<https://lifehacker.com/you-can-read-the-new-york-times-for-free-in-california-1832758638>
 
 周二,《纽约时报》宣布其内容将对加州任何持有图书证的人完全免费。以下是如何像访问加州阳光一样轻松访问新闻的方法。
 

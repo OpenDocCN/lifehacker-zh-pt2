@@ -1,6 +1,6 @@
 # 检查您的移动运营商是否正在使用此应用程序限制网飞
 
-> 原文:[https://life hacker . com/check-if-your-mobile-carrier-is-throttling-网飞-with-1837781730](https://lifehacker.com/check-if-your-mobile-carrier-is-throttling-netflix-with-1837781730)
+> 原文：<https://lifehacker.com/check-if-your-mobile-carrier-is-throttling-netflix-with-1837781730>
 
 西北大学和马萨诸塞大学阿默斯特分校最近的一项研究发现，美国的每个主要运营商都人为降低了来自网飞、Hulu 和 YouTube 等网站的视频速度。
 

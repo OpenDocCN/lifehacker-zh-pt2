@@ -1,6 +1,6 @@
 # 这是一个有用的计时器，可以记录你正在做的所有酸面团
 
-> 原文:[https://life hacker . com/here-a-help-timer-for-all the-sour dough-you-maki-1842713080](https://lifehacker.com/heres-a-helpful-timer-for-all-that-sourdough-youre-maki-1842713080)
+> 原文：<https://lifehacker.com/heres-a-helpful-timer-for-all-that-sourdough-youre-maki-1842713080>
 
 如今每个人都是面包师——除了面粉短缺，这并不是一件坏事。(就像，这比每个人都通过真的制作冰毒或 macrame 来应对孤立要好。)但是面包可能有点让人吃不消，特别是如果你刚刚挑选了进入酸面团，而且你不习惯持续几个小时甚至几天的食谱。
 

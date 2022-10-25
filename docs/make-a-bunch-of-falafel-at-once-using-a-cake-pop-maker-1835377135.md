@@ -1,6 +1,6 @@
 # 用蛋糕制作机一次做一堆沙拉三明治
 
-> 原文:[https://life hacker . com/make-a-bunch-of-a-once-using a-cake-pop-maker-1835377135](https://lifehacker.com/make-a-bunch-of-falafel-at-once-using-a-cake-pop-maker-1835377135)
+> 原文：<https://lifehacker.com/make-a-bunch-of-falafel-at-once-using-a-cake-pop-maker-1835377135>
 
 蛋糕爆米花机是你用来制作蛋糕爆米花的最糟糕的工具。如你所见，蛋糕爆米花是*而不是*一种已经成型并烘焙成球状的蛋糕；蛋糕已经被弄碎，混合了糖霜，然后*用手将*卷成一个球，粘在一根棍子上。但是仅仅因为看似单一用途的设备在制作蛋糕爆米花时是垃圾，这并不意味着你不能将它用于其他更美味的应用。
 

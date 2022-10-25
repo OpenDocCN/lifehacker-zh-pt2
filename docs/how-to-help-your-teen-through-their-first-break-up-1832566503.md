@@ -1,6 +1,6 @@
 # 如何帮助你的孩子度过第一次分手
 
-> 原文:[https://life hacker . com/how-to-help-your-teen 度过他们的第一次分手-1832566503](https://lifehacker.com/how-to-help-your-teen-through-their-first-break-up-1832566503)
+> 原文：<https://lifehacker.com/how-to-help-your-teen-through-their-first-break-up-1832566503>
 
 青少年的爱可以是甜蜜的，无所不包的，强烈的。这也可能是暂时的。当然，你孩子的初恋有可能成为他们永远的爱。但是，嗯，可能不是。
 

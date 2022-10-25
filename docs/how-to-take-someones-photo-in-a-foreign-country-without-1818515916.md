@@ -1,6 +1,6 @@
 # 如何在外国给别人拍照而不显得自己是个混蛋
 
-> 原文:[https://life hacker . com/how-to-take-someones-photo-in-a-foreign-country-without-1818515916](https://lifehacker.com/how-to-take-someones-photo-in-a-foreign-country-without-1818515916)
+> 原文：<https://lifehacker.com/how-to-take-someones-photo-in-a-foreign-country-without-1818515916>
 
 人们旅行的原因多种多样，包括食物、风景、天气和文化。对许多人来说，访问另一个国家最有趣的部分是了解那里的人。但是在你开始拍照之前，重要的是想想你在做什么，并考虑你打算拍摄的人。以下是你需要知道的。
 

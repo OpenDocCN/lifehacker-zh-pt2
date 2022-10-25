@@ -1,6 +1,6 @@
 # 弄清楚在这个网站上你能做什么，不能做什么
 
-> 原文:[https://life hacker . com/figure-out-what-you-can-cant-with this-si-1838630396](https://lifehacker.com/figure-out-what-you-can-and-cant-microwave-with-this-si-1838630396)
+> 原文：<https://lifehacker.com/figure-out-what-you-can-and-cant-microwave-with-this-si-1838630396>
 
 "我能用微波炉加热这个吗？"这个问题和微波炉本身一样由来已久，但我脑海中唯一清晰的规则是“不要金属”在我七岁时，温蒂汉堡的包装纸将这个教训烙进了我的意识，我永远不会忘记小闪电是如何舞动的。
 

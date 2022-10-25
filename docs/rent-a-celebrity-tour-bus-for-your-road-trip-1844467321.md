@@ -1,6 +1,6 @@
 # 为你的公路旅行租一辆名人旅游巴士
 
-> 原文:[https://life hacker . com/rent-a-celebrity-tour-bus-for-your road-trip-1844467321](https://lifehacker.com/rent-a-celebrity-tour-bus-for-your-road-trip-1844467321)
+> 原文：<https://lifehacker.com/rent-a-celebrity-tour-bus-for-your-road-trip-1844467321>
 
 如果你是许多考虑在今年夏天或秋天进行公路旅行的人之一，你可能会考虑租一辆房车。 问题是，其他人也一样。7 月中旬， [RVshare](https://rvshare.com/) (一家点对点房车租赁公司)报告称，与去年同期相比，他们的房车预订量自 4 月初以来增长了 1600%。因此，即使这是你首选的公路旅行交通方式，而你又无法获得一辆房车，还有另一个选择:租一辆闲置的名人旅游巴士。以下是如何做到这一点。
 

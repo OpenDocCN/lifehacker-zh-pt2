@@ -1,6 +1,6 @@
 # 2018 年最佳技术指南
 
-> 原文:[https://life hacker . com/the-best-technology-guides-of-2018-1831365691](https://lifehacker.com/the-best-technology-guides-of-2018-1831365691)
+> 原文：<https://lifehacker.com/the-best-technology-guides-of-2018-1831365691>
 
 如果让我挑一个主题来总结 2018 年的科技，那就是“少烦我”。从收集太多数据的社交网络到向全世界泄露你的密码的网站到一年一度的硬件更新，感觉越来越不值得你辛苦赚来的钱，感觉现在比以往任何时候都更像是，我们热爱的技术变得既有用又令人讨厌。
 

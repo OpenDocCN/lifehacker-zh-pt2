@@ -1,6 +1,6 @@
 # 将此网站加入书签，在今年夏天尝试微软的新 Windows PowerToys
 
-> 原文:[https://life hacker . com/bookmark-this-site-to-try-Microsoft-new-windows-powert-1834749716](https://lifehacker.com/bookmark-this-site-to-try-microsofts-new-windows-powert-1834749716)
+> 原文：<https://lifehacker.com/bookmark-this-site-to-try-microsofts-new-windows-powert-1834749716>
 
 还记得 PowerToys 吗？它们是 Windows 95 和 Windows XP 时代的实用程序，为您提供了超出“普通”Windows 用户在其操作系统中所能做到的功能，如:直接打开命令提示符*到文件夹(而不是必须“CD”到文件夹)，通过快速右键上下文菜单更改屏幕分辨率，以及 good ol' [XMouse](https://socket3.wordpress.com/2016/10/22/using-windows-95-powertoys/) 。*
 

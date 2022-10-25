@@ -1,6 +1,6 @@
 # 如何跑一个轻松的蛋糕
 
-> 原文:[https://the take out . com/how-to-run-a-cakewalk-the-take-the-cake-the-cake-1831067433](https://thetakeout.com/how-to-run-a-cakewalk-that-takes-the-cake-1831067433)
+> 原文：<https://thetakeout.com/how-to-run-a-cakewalk-that-takes-the-cake-1831067433>
 
 如果你不确定 cakewalk 是什么，你并不孤单:我曾经坐在一个社区委员会里，想把节日聚会的活动包括在内，但是我不得不查阅维基百科来弄清楚 cakewalk 到底需要什么。我一点也不知道，几年后，我自己将在我孩子的学校里跑着 cakewalk。
 

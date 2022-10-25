@@ -1,6 +1,6 @@
 # 当利率高得离谱时，如何为一辆新车融资
 
-> 原文:[https://life hacker . com/how-to-finance-a-new-car-when-interest-1834760219](https://lifehacker.com/how-to-finance-a-new-car-when-interest-rates-are-ridicu-1834760219)
+> 原文：<https://lifehacker.com/how-to-finance-a-new-car-when-interest-rates-are-ridicu-1834760219>
 
 你一直在考虑的那辆车可能比你预期的要贵。埃德蒙兹 [的罗纳德·蒙托亚](https://www.edmunds.com/car-loan/buying-a-new-car-when-interest-rates-are-high.html) 写道，汽车贷款利率是 2009 年以来最高的。3 月份，新融资汽车的平均年利率为 6.4%。对于二手车，为 9.5%。
 

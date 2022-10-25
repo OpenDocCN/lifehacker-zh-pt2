@@ -1,6 +1,6 @@
 # 用 Kakeibo 方法简化你的预算
 
-> 原文:[https://life hacker . com/simplify-your-budget-with-the-kake ibo-method-1836252520](https://lifehacker.com/simplify-your-budget-with-the-kakeibo-method-1836252520)
+> 原文：<https://lifehacker.com/simplify-your-budget-with-the-kakeibo-method-1836252520>
 
 当我写到我成功地用手追踪我的支出时，一位读者说我可能想试试 kakeibo 方法。“哦，不，”我担心，“一个比我已经在做的更复杂的方法。”
 

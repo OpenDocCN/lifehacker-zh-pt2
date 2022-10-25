@@ -1,6 +1,6 @@
 # 立即更新您的 Fios 网关 G1100 路由器，修复严重的安全风险
 
-> 原文:[https://life hacker . com/update-your-fios-gateway-g 1100-router-right-now-to-fix-1833940678](https://lifehacker.com/update-your-fios-gateway-g1100-router-right-now-to-fix-1833940678)
+> 原文：<https://lifehacker.com/update-your-fios-gateway-g1100-router-right-now-to-fix-1833940678>
 
 威瑞森网关 G1100 路由器由于旧固件版本中存在的严重漏洞 ，可能面临被黑 [的风险。解释这些安全风险的最简单方法是，它们使得拦截登录凭证和远程访问路由器变得很容易。如果你对风险的更详细的技术解释感兴趣，以及导致这些风险的疏忽，请查看最初发现这些漏洞的](https://www.securityweek.com/verizon-patches-vulnerabilities-affecting-millions-routers) [的分析。](https://www.tenable.com/blog/verizon-fios-quantum-gateway-routers-patched-for-multiple-vulnerabilities)
 

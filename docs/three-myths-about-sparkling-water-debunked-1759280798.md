@@ -1,6 +1,6 @@
 # 关于苏打水的三个神话被揭穿
 
-> 原文:[https://life hacker . com/three-myths-about-sparkling-water-debucked-1759280798](https://lifehacker.com/three-myths-about-sparkling-water-debunked-1759280798)
+> 原文：<https://lifehacker.com/three-myths-about-sparkling-water-debunked-1759280798>
 
 不管你叫它苏打水、苏打水还是苏打水，这种气泡饮料正日益流行，美国人越来越多地狂饮。尽管它经常被宣传为更健康的生活方式的一部分——特别是不含含糖苏打水的生活方式——但仍有一些关于苏打水的长期神话不太合理。
 

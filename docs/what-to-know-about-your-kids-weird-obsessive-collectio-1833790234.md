@@ -1,6 +1,6 @@
 # 关于你的孩子怪异、痴迷的收藏，你该知道些什么
 
-> 原文:[https://life hacker . com/what-to-know-about-your-kids-verged-collectio-1833790234](https://lifehacker.com/what-to-know-about-your-kids-weird-obsessive-collectio-1833790234)
+> 原文：<https://lifehacker.com/what-to-know-about-your-kids-weird-obsessive-collectio-1833790234>
 
 赖安农告诉我，她照看的那个孩子曾经收集一次性乳胶手套。这开始于他两岁左右。任何时候他看到乳胶手套——在医生的办公室，在幼儿园，在一个随机挂在墙上的急救儿童身上——他都会问他是否可以拥有它们。他更喜欢“蓝色”，但“有点黄色”也是可以接受的。他会戴着它们到处走，然后把它们藏在口袋里、抽屉里和他的游戏厨房里。“说实话，太恶心了，”瑞安农谈到这些汗津津、黏糊糊的东西时说。“他现在 9 岁了，我仍然会偶尔在一个奇怪的地方找到一只令人恶心的、正在腐烂的橡胶手套——最近，在他不让我们扔掉的旧费雪收银机里。”
 

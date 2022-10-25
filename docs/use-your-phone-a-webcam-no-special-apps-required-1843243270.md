@@ -1,6 +1,6 @@
 # 使用您的手机作为网络摄像头，不需要特殊的应用程序
 
-> 原文:[https://life hacker . com/use-your-phone-a-web cam-no-special-apps-required-1843243270](https://lifehacker.com/use-your-phone-a-webcam-no-special-apps-required-1843243270)
+> 原文：<https://lifehacker.com/use-your-phone-a-webcam-no-special-apps-required-1843243270>
 
 在所有电话会议的这些日子里，每时每刻都有许多帖子充斥着不同的技术，可以用来将旧的 Android 智能手机或 iPhone 变成网络摄像头。我并不想说什么好的黑客技术，但是，我不认为大多数人需要用一个特殊的应用程序来给手机拍照。原因如下。
 

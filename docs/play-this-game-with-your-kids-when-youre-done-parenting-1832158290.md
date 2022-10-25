@@ -1,6 +1,6 @@
 # 当你不再为人父母时，和你的孩子玩这个游戏
 
-> 原文:[https://life hacker . com/play-this-game-with your-kids-when you-done-parenting-1832158290](https://lifehacker.com/play-this-game-with-your-kids-when-youre-done-parenting-1832158290)
+> 原文：<https://lifehacker.com/play-this-game-with-your-kids-when-youre-done-parenting-1832158290>
 
 有时候你只是需要休息一下。也许一个孩子让你整夜睡不着觉，或者在最近的历史中，在你醒着的时候，每个小时都有一个孩子吊在你的腿上。也许你已经不知道如何让你的孩子多享受一秒钟，你真正想做的就是躺下。
 

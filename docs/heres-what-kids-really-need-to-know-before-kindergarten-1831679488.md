@@ -1,6 +1,6 @@
 # 以下是孩子们在幼儿园前真正需要知道的事情
 
-> 原文:[https://life hacker . com/heres-what-kids-very-need-to-know-before-1831679488](https://lifehacker.com/heres-what-kids-really-need-to-know-before-kindergarten-1831679488)
+> 原文：<https://lifehacker.com/heres-what-kids-really-need-to-know-before-kindergarten-1831679488>
 
 我有一个朋友非常认真地对待幼儿园预备班。当她的儿子开始在学前班做作业(“作业”和“学前班”是两个不应该放在一起的词)，并且他不能正确识别作业上的“汽车”以字母“C”开头时，她吓坏了。
 

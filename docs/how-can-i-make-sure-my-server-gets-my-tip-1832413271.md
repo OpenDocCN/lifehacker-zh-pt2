@@ -1,6 +1,6 @@
 # 问那个咸味的女服务员:我怎样才能确保我的服务员得到我的小费？
 
-> 原文:[https://the take out . com/how-can-I-make-assure-my-server-gets-my-tip-1832413271](https://thetakeout.com/how-can-i-make-sure-my-server-gets-my-tip-1832413271)
+> 原文：<https://thetakeout.com/how-can-i-make-sure-my-server-gets-my-tip-1832413271>
 
 > 亲爱的 Salty 女士:当我还是个孩子的时候，我有过这样的经历:看到食客在离开时从废弃的桌子上拿走服务员的小费，我总是坚持直接给我的服务员小费。然而，越来越多的时候，我发现自己在聚会的其他人离开后被吊在桌子旁边，或者在餐厅周围寻找服务器，这对每个人来说都很尴尬。
 > 

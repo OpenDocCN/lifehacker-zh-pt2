@@ -1,6 +1,6 @@
 # 冠状病毒爆发时坐飞机是什么感觉
 
-> 原文:[https://life hacker . com/what-its-like-to-fly-in-the-coronavirus-outbreak-1842247253](https://lifehacker.com/what-its-like-to-fly-during-the-coronavirus-outbreak-1842247253)
+> 原文：<https://lifehacker.com/what-its-like-to-fly-during-the-coronavirus-outbreak-1842247253>
 
 上周三，我从旧金山飞往马尔代夫，中途在瑞士转机，今早返回家中，昨晚转机经过新加坡。这是一次我不完全确定会发生的旅行。在我乘坐飞机的几天前，我原定的出发被取消了，因为它在韩国有转机，韩国目前正在处理相当多的新冠肺炎确诊病例。
 

@@ -1,6 +1,6 @@
 # 如何使用 Alexa 有用的新日历功能
 
-> 原文:[https://life hacker . com/how-to-use-alexas-useful-new-calendar-features-1830151503](https://lifehacker.com/how-to-use-alexas-useful-new-calendar-features-1830151503)
+> 原文：<https://lifehacker.com/how-to-use-alexas-useful-new-calendar-features-1830151503>
 
 你的亚马逊 Alexa 设备现在可以更好地配合你的日历了。
 

@@ -1,6 +1,6 @@
 # 情商:学校里没教过的社交技能
 
-> 原文:[https://life hacker . com/emotional-intelligence-the-social-skills-you-were-ta-1697704987](https://lifehacker.com/emotional-intelligence-the-social-skills-you-werent-ta-1697704987)
+> 原文：<https://lifehacker.com/emotional-intelligence-the-social-skills-you-werent-ta-1697704987>
 
 你在学校学到的东西你还记得多少？更重要的是，你每天实际使用了多少呢？虽然我们可能不需要知道毕达哥拉斯定理或美西战争期间发生了什么，但我们确实——或者至少应该——理解人们的感受和行为方式。然而，我们大多数人都没有被教导如何识别或处理自己的情绪，或他人的情绪。这些技能可能很有价值，但你永远不会在教室里学到。
 

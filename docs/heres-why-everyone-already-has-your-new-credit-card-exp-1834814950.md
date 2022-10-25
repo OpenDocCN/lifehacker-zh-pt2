@@ -1,6 +1,6 @@
 # 这就是为什么每个人都已经知道了你新信用卡的有效期
 
-> 原文:[https://life hacker . com/heres-why-every one-has-your-new-credit-card-exp-1834814950](https://lifehacker.com/heres-why-everyone-already-has-your-new-credit-card-exp-1834814950)
+> 原文：<https://lifehacker.com/heres-why-everyone-already-has-your-new-credit-card-exp-1834814950>
 
 你刚刚收到一张新的信用卡，正好在你的旧信用卡到期之前。这是否意味着你需要赶紧更新你的数十亿定期订阅费？
 

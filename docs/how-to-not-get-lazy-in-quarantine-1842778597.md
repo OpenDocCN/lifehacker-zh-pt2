@@ -1,6 +1,6 @@
 # 如何在检疫中不偷懒
 
-> 原文:[https://life hacker . com/how-to-not-get-lazy-in-quarantine-1842778597](https://lifehacker.com/how-to-not-get-lazy-in-quarantine-1842778597)
+> 原文：<https://lifehacker.com/how-to-not-get-lazy-in-quarantine-1842778597>
 
 如果你发现你的日常生活被物理距离打乱了，你可能会想把每时每刻都当成居家度假。睡 14 个小时，吃垃圾食品，让你的胡子长出来是很容易的。
 

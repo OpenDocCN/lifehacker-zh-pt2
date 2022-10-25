@@ -1,6 +1,6 @@
 # 在你的谷歌仪表盘中找到丢失的安卓手机的 IMEI
 
-> 原文:[https://life hacker . com/find-the-imei-of-a-lost-Android-phone-in-your-Google-da-1680379181](https://lifehacker.com/find-the-imei-of-a-lost-android-phone-in-your-google-da-1680379181)
+> 原文：<https://lifehacker.com/find-the-imei-of-a-lost-android-phone-in-your-google-da-1680379181>
 
 所以你昨晚把手机落在酒吧了。或者当你穿过拥挤的人群时，它从你的包里被偷走了。不管怎样，你现在没有电话，与世隔绝，很沮丧。怎么办？
 

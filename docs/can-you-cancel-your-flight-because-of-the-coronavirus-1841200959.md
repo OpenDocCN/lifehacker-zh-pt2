@@ -1,6 +1,6 @@
 # 因为冠状病毒可以取消航班吗？
 
-> 原文:[https://life hacker . com/can-you-cancel-you-flight-as-the-corona virus-1841200959](https://lifehacker.com/can-you-cancel-your-flight-because-of-the-coronavirus-1841200959)
+> 原文：<https://lifehacker.com/can-you-cancel-your-flight-because-of-the-coronavirus-1841200959>
 
 据当地卫生官员 称，截至周五上午，中国爆发的冠状病毒已导致至少 26 人死亡，800 人患病。目前，美国有一例确诊病例，另外 12 例正在接受病毒检测， [CBS 新闻报道](https://www.cbsnews.com/live-updates/china-coronavirus-outbreak-chinese-lock-down-cities-wuhan-bid-to-contain-virus-today-2020-01-24/) 。
 

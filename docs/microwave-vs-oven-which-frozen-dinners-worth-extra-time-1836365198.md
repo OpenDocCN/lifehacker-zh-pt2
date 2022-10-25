@@ -1,6 +1,6 @@
 # 微波炉与烤箱:哪些冷冻晚餐值得多花时间？
 
-> 原文:[https://the take out . com/microwave-vs-oven-the-frozen-dings-worth-time-1836365198](https://thetakeout.com/microwave-vs-oven-which-frozen-dinners-worth-extra-time-1836365198)
+> 原文：<https://thetakeout.com/microwave-vs-oven-which-frozen-dinners-worth-extra-time-1836365198>
 
 我已经有一年半没有享受过用烤箱烹制的冷冻主菜了。作为一个孩子，我记得无数的煤气炉烤馅饼或电视晚餐，这有助于积极的怀旧情绪。当我负责“制作”(阅读:加热)我自己的饭菜时，微波炉成了首选的武器。
 

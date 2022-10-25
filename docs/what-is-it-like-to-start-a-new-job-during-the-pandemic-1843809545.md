@@ -1,6 +1,6 @@
 # 疫情期间开始一份新工作是什么感觉？
 
-> 原文:[https://life hacker . com/what-it-like-to-start-a-new-job-in-the-疫情-1843809545](https://lifehacker.com/what-is-it-like-to-start-a-new-job-during-the-pandemic-1843809545)
+> 原文：<https://lifehacker.com/what-is-it-like-to-start-a-new-job-during-the-pandemic-1843809545>
 
 我在 Lifehacker 的第一天是 2020 年 3 月 23 日——三个多月或者三年前。我在 3 月 5 日收到了我的工作邀请，就在整整一周前，我和妻子把我们的孩子从纽约市的学校拉出来，最后一次乘坐地铁，基本上不再出门。
 

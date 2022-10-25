@@ -1,6 +1,6 @@
 # 你最不擅长什么运动？
 
-> 原文:[https://life hacker . com/what-exercise-are-you-terrible-at-1833200029](https://lifehacker.com/what-exercise-are-you-terrible-at-1833200029)
+> 原文：<https://lifehacker.com/what-exercise-are-you-terrible-at-1833200029>
 
 我们都有不喜欢的运动。例如，你们都知道我对木板的看法。但是有多少练习是我们最不喜欢的，仅仅是因为我们做得不好？
 

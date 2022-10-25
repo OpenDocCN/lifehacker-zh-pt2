@@ -1,6 +1,6 @@
 # 你可能需要一个肘部榨汁机
 
-> 原文:[https://life hacker . com/you-possible-need-an-elbow-juicer-1834481830](https://lifehacker.com/you-probably-need-an-elbow-juicer-1834481830)
+> 原文：<https://lifehacker.com/you-probably-need-an-elbow-juicer-1834481830>
 
 发现我对看似无关紧要的事情异常固执，你可能不会感到惊讶。柠檬和酸橙榨汁就是如此。不管出于什么原因，我非常抗拒购买任何种类的榨汁设备。毕竟，我有 [双手和一把](https://lifehacker.com/stick-a-fork-in-a-lemon-to-squeeze-out-more-juice-1487343202) 叉子，所以再买一件厨具似乎有些奢侈。(我可能比较戏剧化，但我不奢侈。)
 

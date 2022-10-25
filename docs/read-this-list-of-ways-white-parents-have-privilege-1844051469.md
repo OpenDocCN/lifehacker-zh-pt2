@@ -1,6 +1,6 @@
 # 阅读以下白人父母享有特权的方式
 
-> 原文:[https://life hacker . com/read-this-list-of-way-white-parents-have-privilege-1844051469](https://lifehacker.com/read-this-list-of-ways-white-parents-have-privilege-1844051469)
+> 原文：<https://lifehacker.com/read-this-list-of-ways-white-parents-have-privilege-1844051469>
 
 最近几周有很多关于特权的讨论——什么是特权，谁拥有特权，谁愿意承认自己拥有特权。白人父母应该排在第一位，因为正如《你的育儿魔咒》的 [詹·鲁曼兰](https://yourparentingmojo.com/57-privileges-of-white-parents/) 所指出的，我们的特权是巨大的，而且根深蒂固:
 

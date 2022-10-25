@@ -1,6 +1,6 @@
 # 在完美的音效伴奏下为您的孩子朗读
 
-> 原文:[https://life hacker . com/read-to-your kid with-the-perfect-sound-effects-completa-1829832739](https://lifehacker.com/read-to-your-kid-with-the-perfect-sound-effects-accompa-1829832739)
+> 原文：<https://lifehacker.com/read-to-your-kid-with-the-perfect-sound-effects-accompa-1829832739>
 
 昨晚，我像往常一样，在睡觉前给女儿读了一个故事。我从她的书架上挑了一本旧的最爱——《长颈鹿不会跳舞》。但这一次，一个音乐演员伴随着我的叙述。
 

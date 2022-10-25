@@ -1,6 +1,6 @@
 # 今天就以低至 19 美元的价格购买 Frontier 假日单程机票
 
-> 原文:[https://life hacker . com/buy-a-one-way-a-holiday-flight-on-frontier-for-low-as-as 1839906243](https://lifehacker.com/buy-a-one-way-holiday-flight-on-frontier-for-as-low-as-1839906243)
+> 原文：<https://lifehacker.com/buy-a-one-way-holiday-flight-on-frontier-for-as-low-as-1839906243>
 
 如果你还在寻找一张假日机票，那么你可能想在这个周末购买。从现在开始，感恩节和圣诞节旅行的价格只会上涨。也就是说，你仍然可以在一些航班上买到便宜货。
 

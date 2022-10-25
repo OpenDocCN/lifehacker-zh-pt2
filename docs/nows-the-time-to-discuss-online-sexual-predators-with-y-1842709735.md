@@ -1,6 +1,6 @@
 # 现在是时候和你的孩子讨论网上的性侵犯者了
 
-> 原文:[https://life hacker . com/nows-the-time-to-discuse-online-sexual-predators-with-y-1842709735](https://lifehacker.com/nows-the-time-to-discuss-online-sexual-predators-with-y-1842709735)
+> 原文：<https://lifehacker.com/nows-the-time-to-discuss-online-sexual-predators-with-y-1842709735>
 
 你知道什么是变焦轰炸吗？我也是，直到大约两分钟前。我 15 岁的表妹正和她高中篮球队的队友聊着 T2。这是所有的篮球和快乐，直到——嘣！——他们被一个未知的掠夺者和他的非隐私部分黑了。
 

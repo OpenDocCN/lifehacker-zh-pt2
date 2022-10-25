@@ -1,6 +1,6 @@
 # 忽略你父母的财务建议
 
-> 原文:[https://life hacker . com/financial-advice-from-your-parents-to-ignore-1845094289](https://lifehacker.com/financial-advice-from-your-parents-to-ignore-1845094289)
+> 原文：<https://lifehacker.com/financial-advice-from-your-parents-to-ignore-1845094289>
 
 在冠状病毒的时代，有一些金钱建议不再适用。我们父母这一代人可能出于好意传承了一些经验法则，但其中一些智慧可能不适合现代社会的挑战，所以这里有一些你可能想打破的常见规则。
 

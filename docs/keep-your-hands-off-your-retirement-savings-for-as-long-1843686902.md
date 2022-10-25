@@ -1,6 +1,6 @@
 # 尽可能长时间不要动你的退休储蓄
 
-> 原文:[https://life hacker . com/keep-your-hand-off-your ' s retirement-savings for-long-1843686902](https://lifehacker.com/keep-your-hands-off-your-retirement-savings-for-as-long-1843686902)
+> 原文：<https://lifehacker.com/keep-your-hands-off-your-retirement-savings-for-as-long-1843686902>
 
 如果你正在艰难的财务阶段挣扎，你的退休账户可能是一个快速获得收入的好地方。如果你在冠状病毒关闭期间一直盯着自己的 401(k)或 IRA，那你就大错特错了:一项新的调查发现，最近几个月有 27%的人转向他们的退休账户或计划。
 

@@ -1,6 +1,6 @@
 # 在干燥的一月，问自己这些问题
 
-> 原文:[https://life hacker . com/during-dry-January-ask-yourself-these-questions-1831486610](https://lifehacker.com/during-dry-january-ask-yourself-these-questions-1831486610)
+> 原文：<https://lifehacker.com/during-dry-january-ask-yourself-these-questions-1831486610>
 
 如果你整个 12 月都在狂欢，干燥的 1 月会是一个令人耳目一新的变化。你会喜欢呆在家里，睡得更好，还能省钱，尤其是如果你能把你的朋友拉进来，这样他们就不会总是邀请你出去喝酒了。
 

@@ -1,6 +1,6 @@
 # 关注短期收益将如何帮助你实现长期目标
 
-> 原文:[https://life hacker . com/how-focusing-on-short-time-gains-will-help-you-reach-yo-1830983934](https://lifehacker.com/how-focusing-on-short-term-gains-will-help-you-reach-yo-1830983934)
+> 原文：<https://lifehacker.com/how-focusing-on-short-term-gains-will-help-you-reach-yo-1830983934>
 
 当我们考虑 2019 年 的 [金钱目标时，你的一个关键考虑因素应该是你每天或每周可以采取的](https://twocents.lifehacker.com/did-you-accomplish-your-2018-money-goals-1830981445#_ga=2.175172010.948678826.1544450486-594046802.1524762060) [小步骤](https://twocents.lifehacker.com/increase-your-401-k-or-ira-contributions-for-2019-1830819672#_ga=2.216049054.948678826.1544450486-594046802.1524762060) 让你去你想去的地方。
 

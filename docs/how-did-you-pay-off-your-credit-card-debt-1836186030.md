@@ -1,6 +1,6 @@
 # 你是怎么还清信用卡债务的？
 
-> 原文:[https://life hacker . com/how-do-you-pay-off-you-card-debt-1836186030](https://lifehacker.com/how-did-you-pay-off-your-credit-card-debt-1836186030)
+> 原文：<https://lifehacker.com/how-did-you-pay-off-your-credit-card-debt-1836186030>
 
 当我努力偿还我的信用卡债务时，我选择赚更多的钱，而不是大幅削减开支。这个等式的一部分是我住的地方:超级疯狂昂贵的华盛顿特区。我不能拿起东西花钱搬到一个不那么昂贵的地方，所以我决定出路是尽可能多地赚钱。当我这么做的时候，我并没有停止理发，每次 40 美元。我没有突然戒掉咖啡。我想，如果我要工作很长时间，我也可以拥有一些现代化的便利设施来保持动力。
 

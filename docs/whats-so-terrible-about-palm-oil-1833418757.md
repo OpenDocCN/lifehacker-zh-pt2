@@ -1,6 +1,6 @@
 # 棕榈油有什么可怕的？
 
-> 原文:[https://life hacker . com/whats-so-worthy-about-palm-oil-1833418757](https://lifehacker.com/whats-so-terrible-about-palm-oil-1833418757)
+> 原文：<https://lifehacker.com/whats-so-terrible-about-palm-oil-1833418757>
 
 如果你还没听说过棕榈油，它应该不会那么陌生。事实上，它很有可能以多种形式藏在你的橱柜和冰箱过道里(例如，它经常被用在花生酱和冰淇淋中)。棕榈油甚至被用于多种非食品用途，如肥皂和制造原油，这就没那么令人胃口了。
 

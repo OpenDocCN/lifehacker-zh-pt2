@@ -1,6 +1,6 @@
 # 最新的国税局罚款变化如何影响你的纳税申报
 
-> 原文:[https://life hacker . com/how-the-latest-IRS-penalty-changes-affect-your-tax-retu-1831981718](https://lifehacker.com/how-the-latest-irs-penalty-changes-affect-your-tax-retu-1831981718)
+> 原文：<https://lifehacker.com/how-the-latest-irs-penalty-changes-affect-your-tax-retu-1831981718>
 
 2017 年的[&就业法案](https://twocents.lifehacker.com/the-basics-of-the-gop-tax-plan-explained-1821583174) 改变了税法的许多事情，包括一些人应该从他们的工资中扣缴多少。Lifehacker 给了几个 [警告](https://twocents.lifehacker.com/update-your-tax-withholdings-now-1828249361) 到 [在 2018 年](https://twocents.lifehacker.com/how-to-update-your-w-4-now-that-the-tax-cuts-are-taking-1823622341)调整你的预扣税，以免你在这个纳税季受到少扣罚款的打击，但如果你没有，就没什么理由担心了:美国国税局 [上周](https://www.irs.gov/newsroom/irs-waives-penalty-for-many-whose-tax-withholding-and-estimated-tax-payments-fell-short-in-2018) 宣布在某些情况下免除罚款。
 

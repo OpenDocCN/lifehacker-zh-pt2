@@ -1,6 +1,6 @@
 # 如何判断个人理财建议是否是无稽之谈
 
-> 原文:[https://life hacker . com/how-to-figure-if-that-personal-finance-advice-is-no-1835912969](https://lifehacker.com/how-to-figure-out-if-that-personal-finance-advice-is-no-1835912969)
+> 原文：<https://lifehacker.com/how-to-figure-out-if-that-personal-finance-advice-is-no-1835912969>
 
 让我抓狂的新闻稿提到拿铁咖啡*和*很少有美国人准备好应对 400 美元的紧急情况。“我的宾果卡呢？”我开玩笑说。
 

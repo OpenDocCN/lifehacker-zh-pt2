@@ -1,6 +1,6 @@
 # 你的私人医疗图像可能会在网上被任何人看到
 
-> 原文:[https://life hacker . com/your-private-medical-images-may-online-for-any one-se-1838180004](https://lifehacker.com/your-private-medical-images-may-online-for-anyone-to-se-1838180004)
+> 原文：<https://lifehacker.com/your-private-medical-images-may-online-for-anyone-to-se-1838180004>
 
 x 光和其他医学图像应该是私人的，因为它们是你的医疗记录的一部分。但是最近的一项 ProPublica 调查 发现，病人的图像就在互联网上，任何人都可以查看。
 

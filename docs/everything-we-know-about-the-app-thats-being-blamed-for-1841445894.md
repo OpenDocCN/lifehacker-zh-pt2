@@ -1,6 +1,6 @@
 # 我们所知道的关于爱荷华州混乱的应用程序的一切
 
-> 原文:[https://gizmodo . com/everything-we-know-about-the-app-that-is-being-for-1841445894](https://gizmodo.com/everything-we-know-about-the-app-thats-being-blamed-for-1841445894)
+> 原文：<https://gizmodo.com/everything-we-know-about-the-app-thats-being-blamed-for-1841445894>
 
 昨晚和今天早上的爱荷华州党团会议，没有结果和通常的争吵，一切都是巨大的混乱。在这个乱糟糟的漩涡中心，是一个由爱荷华州民主党委托开发的应用程序。早在周一下午，的报道就开始过滤，称该应用程序对辖区队长存在故障，到晚上结束时，很明显那些[困难](https://www.nytimes.com/2020/02/04/us/politics/what-happened-iowa-caucuses.html) 在全州范围内普遍存在。
 

@@ -1,6 +1,6 @@
 # 这个月你的 Apple Watch 以旧换新可以额外获得 100 美元
 
-> 原文:[https://life hacker . com/get-an-extra-100 for-your-apple-watch-trade-in-this-mo-1841452020](https://lifehacker.com/get-an-extra-100-for-your-apple-watch-trade-in-this-mo-1841452020)
+> 原文：<https://lifehacker.com/get-an-extra-100-for-your-apple-watch-trade-in-this-mo-1841452020>
 
 如果你想升级到新的苹果手表系列 5T3，苹果将在本月为你的旧苹果手表折价提供额外的现金。当他们给苹果你的旧 Apple Watch Series 2 或 3，并将积分用于 Apple Watch Series 5 时，你将能够获得高达 100 美元的以旧换新积分，这与苹果为 Apple Watch Series 4 提供的以旧换新折扣相当。
 

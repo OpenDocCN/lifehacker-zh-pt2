@@ -1,6 +1,6 @@
 # 如何在不失去理智的情况下准备一场大赛
 
-> 原文:[https://life hacker . com/how-to-prepare for-a-big-race-with-lost your mind-1835095123](https://lifehacker.com/how-to-prepare-for-a-big-race-without-losing-your-mind-1835095123)
+> 原文：<https://lifehacker.com/how-to-prepare-for-a-big-race-without-losing-your-mind-1835095123>
 
 马拉松前的最后几周是一种特殊的地狱。几个月来，你的首要任务一直是坚持训练。现在，突然之间，你的跑步变短了。他们中的一些人完全从你的日历上消失了。这是一个新的领域，无论是精神上还是身体上，有点害怕是完全正常的。
 

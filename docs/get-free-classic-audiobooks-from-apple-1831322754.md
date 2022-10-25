@@ -1,6 +1,6 @@
 # 从苹果获得免费经典有声读物
 
-> 原文:[https://life hacker . com/get-free-classic-audio books-from-apple-1831322754](https://lifehacker.com/get-free-classic-audiobooks-from-apple-1831322754)
+> 原文：<https://lifehacker.com/get-free-classic-audiobooks-from-apple-1831322754>
 
 **iOS/MacOS:** [苹果正在赠送六本高质量的经典故事有声读物](https://itunes.apple.com/WebObjects/MZStore.woa/wa/viewFeature?id=1442752106&mt=3&uo=8&at=10lqkA&uo=8&at=10lqkA) 由名人朗读，免费无附加条件，可在桌面和手机上播放。可以下载听*傲慢与偏见*、*绿野仙踪*、*秘密花园*、*时光机*、*弗兰肯斯坦*，还有迪士尼小集*小熊维尼*故事。这些有声读物大部分都很优秀，一个很玄乎，一个很垃圾。
 

@@ -1,6 +1,6 @@
 # 如何应对工作压力
 
-> 原文:[https://life hacker . com/how-to-应付工作压力-1836198414](https://lifehacker.com/how-to-cope-with-work-stress-1836198414)
+> 原文：<https://lifehacker.com/how-to-cope-with-work-stress-1836198414>
 
 除非你的工作包括整天玩小狗，吃冰淇淋，享受按摩，被告知你有多棒，否则你可能已经经历过某种程度的工作压力。从技术上讲，由于不停的吠叫和撒尿，以及 [大脑冻结](https://lifehacker.com/why-we-get-brain-freezes-1781798710) ，即使是小狗冰淇淋按摩的工作有时也会变得紧张。
 

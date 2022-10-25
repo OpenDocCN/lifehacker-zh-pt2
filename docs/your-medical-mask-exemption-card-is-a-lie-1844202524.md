@@ -1,6 +1,6 @@
 # 你的‘医用口罩免检卡’是骗人的
 
-> 原文:[https://life hacker . com/your-medical-mask-exempt-card-is-a-lie-1844202524](https://lifehacker.com/your-medical-mask-exemption-card-is-a-lie-1844202524)
+> 原文：<https://lifehacker.com/your-medical-mask-exemption-card-is-a-lie-1844202524>
 
 面具戴起来会不舒服，这是真的。由于我们大多数美国人不习惯戴着它们，它们也令人不安地提醒我们疫情是如何改变了我们的生活。但如果你想找个借口不戴，请不要把美国残疾人协会和你的假身体状况扯进来。绝对不要使用(或接受)一张从网上下载的 [假冒政府的【自由呼吸】卡](https://slate.com/technology/2020/06/ada-exemption-face-mask-cards-utter-nonsense.html) 。
 

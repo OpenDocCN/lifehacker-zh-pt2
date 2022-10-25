@@ -1,6 +1,6 @@
 # 互联网档案馆的 VHS 保险库是 20 世纪 90 年代流行文化的金矿
 
-> 原文:[https://life hacker . com/the-internet-archives-VHS-vault-is-a-90 年代-pop-culture-1842024799](https://lifehacker.com/the-internet-archives-vhs-vault-is-a-1990s-pop-culture-1842024799)
+> 原文：<https://lifehacker.com/the-internet-archives-vhs-vault-is-a-1990s-pop-culture-1842024799>
 
 如果你已经在 YouTube 上看了几个小时甚至几天的童年旧电视片段，那就在你的日历上划掉一些时间，因为你即将失去另一大块成年生活。互联网档案馆——又名 [时光倒流机](https://archive.org/web/)——现在有超过 20，000 段 VHS 录像 可在其网站上免费观看。
 

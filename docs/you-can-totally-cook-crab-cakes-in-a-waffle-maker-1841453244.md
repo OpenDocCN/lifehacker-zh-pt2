@@ -1,6 +1,6 @@
 # 你完全可以用华夫饼干机做蟹饼
 
-> 原文:[https://life hacker . com/you-can-total-cook-the-crab-cakes in-a-waffle-maker-1841453244](https://lifehacker.com/you-can-totally-cook-crab-cakes-in-a-waffle-maker-1841453244)
+> 原文：<https://lifehacker.com/you-can-totally-cook-crab-cakes-in-a-waffle-maker-1841453244>
 
 蟹肉蛋糕最初看起来并不像是一个很好的 waffling 候选人。毕竟，好的蟹肉是尊重蟹肉的美味的。如果你花时间购买了一磅所说的肉来制作你自己的蟹饼，这不是你所寻求的烹饪方法；如果你碰巧在海鲜部看到一些预制的蟹饼，那么 waffling 是一条很好的路径。
 

@@ -1,6 +1,6 @@
 # 如果你用别的名字买，这东西会便宜些
 
-> 原文:[https://life hacker . com/this-stuff-is cheap-if-you-buy-it-again-name-1830315357](https://lifehacker.com/this-stuff-is-cheaper-if-you-buy-it-under-another-name-1830315357)
+> 原文：<https://lifehacker.com/this-stuff-is-cheaper-if-you-buy-it-under-another-name-1830315357>
 
 “我知道如果你搜索‘马厩垫’的话，健身垫会更便宜，”redditor MMAJakob 在 r/节俭网站上说。“如果你把婚礼也称为生日派对，那它就便宜多了。 [有哪些其他的东西，当你称它为别的东西时会变得更便宜？](https://www.reddit.com/r/Frugal/comments/9uxfx1/cheaper_names_for_things/) “下面是一些来自跟帖的最佳答案。
 

@@ -1,6 +1,6 @@
 # 自由职业者应该了解新税单的哪些内容
 
-> 原文:[https://life hacker . com/what-freelancers-should-know-on-the-new-tax-form-1845127713](https://lifehacker.com/what-freelancers-should-know-about-the-new-tax-form-1845127713)
+> 原文：<https://lifehacker.com/what-freelancers-should-know-about-the-new-tax-form-1845127713>
 
 如果你在 2020 年从自由职业或零工经济工作中赚了钱，你将在 2021 年 2 月 1 日前收到一份新的税单——1099 号[——NEC](https://www.irs.gov/pub/irs-pdf/f1099nec.pdf)。这取代了 1099-MISC 表格，当你赚到 600 美元或更多时，公司必须发送该表格。虽然关于 Form 1099-NEC 的细节仍然有限，但您可以在这里 找到最新版本(目前为草案)和未来的申报说明 [。](https://www.irs.gov/forms-pubs/about-form-1099-nec)
 

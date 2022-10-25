@@ -1,6 +1,6 @@
 # 特朗普的游轮禁令将如何影响到古巴旅游
 
-> 原文:[https://life hacker . com/how-trumps-cruise-ship-ban-will-affect-travel-to-Cuba-1835242743](https://lifehacker.com/how-trumps-cruise-ship-ban-will-affect-travel-to-cuba-1835242743)
+> 原文：<https://lifehacker.com/how-trumps-cruise-ship-ban-will-affect-travel-to-cuba-1835242743>
 
 从今天开始，去古巴旅行变得更加困难。 为了“疏导”有利于古巴军事、情报和安全部门的经济活动，乘坐游轮前往古巴的休闲旅游现已被川普政府禁止。
 

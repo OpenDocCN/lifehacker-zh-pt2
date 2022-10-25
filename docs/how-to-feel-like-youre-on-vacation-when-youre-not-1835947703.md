@@ -1,6 +1,6 @@
 # 当你不在的时候，如何感觉你在度假
 
-> 原文:[https://life hacker . com/how-to-feel-like-you-on-vacation-when-you-not-1835947703](https://lifehacker.com/how-to-feel-like-youre-on-vacation-when-youre-not-1835947703)
+> 原文：<https://lifehacker.com/how-to-feel-like-youre-on-vacation-when-youre-not-1835947703>
 
 如果你正在读这篇文章，你可能没有在度假——至少我希望你不要在徒步旅行或晒日光浴时阅读 Lifehacker 的帖子。嘿，我们不可能每个假期和四天的周末都休假。当其他人都在沙滩上创作的 Insta 故事时，你如何在你的日常生活中注入一点假期？
 

@@ -1,6 +1,6 @@
 # 你如何支持美国邮政
 
-> 原文:[https://life hacker . com/how-you-can-support-the-usps-1842858486](https://lifehacker.com/how-you-can-support-the-usps-1842858486)
+> 原文：<https://lifehacker.com/how-you-can-support-the-usps-1842858486>
 
 由于疫情，美国邮政署​(USPS)目前需要 [财务帮助](https://www.nytimes.com/2020/04/09/us/politics/coronavirus-is-threatening-one-of-governments-steadiest-services-the-mail.html)——公司发出的广告少了很多，邮件量下降了三分之一，严重影响了现金流。更糟糕的是，总统威胁要否决任何包括对美国邮政的救助资金在内的刺激方案。
 

@@ -1,6 +1,6 @@
 # 为什么孩子们仍然需要模拟时钟
 
-> 原文:[https://life hacker . com/why-kids-still-need-analog-clocks-1835389062](https://lifehacker.com/why-kids-still-need-analog-clocks-1835389062)
+> 原文：<https://lifehacker.com/why-kids-still-need-analog-clocks-1835389062>
 
 去年，在一次不科学的实验中，吉米·基梅尔的团队向一些孩子展示了一个传统的时钟，并询问他们是否能读出时钟上的时间。它 [没有](https://www.youtube.com/watch?v=PIe2auW9EMI) 走得那么顺利。
 

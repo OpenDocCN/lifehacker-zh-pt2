@@ -1,6 +1,6 @@
 # 当你预订旅行的时候，一定要考虑单程航班的选择
 
-> 原文:[https://life hacker . com/always-look-at-one-way-flight-options-when-you-book-a-t-1838340190](https://lifehacker.com/always-look-at-one-way-flight-options-when-you-book-a-t-1838340190)
+> 原文：<https://lifehacker.com/always-look-at-one-way-flight-options-when-you-book-a-t-1838340190>
 
 几周后，我会去丹佛。而不是买往返机票；然而，我选择在两家不同的航空公司购买两张单程机票。原因？它更便宜。便宜很多。我设法在两次航班上都买到了好座位。
 

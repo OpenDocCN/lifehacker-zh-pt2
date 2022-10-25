@@ -1,6 +1,6 @@
 # 让孩子们在生日聚会上收到礼物
 
-> 原文:[https://life hacker . com/let-kids-receive-gifts-in-they-birthday-parties-1833229625](https://lifehacker.com/let-kids-receive-gifts-at-their-birthday-parties-1833229625)
+> 原文：<https://lifehacker.com/let-kids-receive-gifts-at-their-birthday-parties-1833229625>
 
 近年来，在孩子的生日聚会邀请函上看到“请不要礼物”越来越常见。我能理解为什么。他们已经有这么多东西了。他们很可能会从祖父母或叔叔阿姨那里收到礼物。也许最重要的是， [我们不想把不必要的经济负担](https://offspring.lifehacker.com/be-the-parent-who-puts-no-gifts-on-your-kids-birthday-p-1821921058) 放在另一个父母身上。
 

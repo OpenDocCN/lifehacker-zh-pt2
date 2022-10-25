@@ -1,6 +1,6 @@
 # 这个“我的小马”节日热线让你的孩子和他们最喜欢的小马聊天
 
-> 原文:[https://life hacker . com/this-my-little-pony-holiday-hotline-let-s-your-kids-chat-1831275353](https://lifehacker.com/this-my-little-pony-holiday-hotline-lets-your-kids-chat-1831275353)
+> 原文：<https://lifehacker.com/this-my-little-pony-holiday-hotline-lets-your-kids-chat-1831275353>
 
 从现在起到 12 月 31 日，你的孩子可以叫他们最喜欢的我的小马驹。
 

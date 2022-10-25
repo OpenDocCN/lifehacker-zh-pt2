@@ -1,6 +1,6 @@
 # 如何记住你每天学到的东西
 
-> 原文:[https://life hacker . com/how-to-remember-what-you-needle-day-1836820219](https://lifehacker.com/how-to-remember-what-youve-learned-each-day-1836820219)
+> 原文：<https://lifehacker.com/how-to-remember-what-youve-learned-each-day-1836820219>
 
 我们很多人每天都花一点时间写下生活中发生的事情，或者我们的感受，或者我们感激的事情。
 

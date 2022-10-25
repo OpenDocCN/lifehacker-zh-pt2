@@ -1,6 +1,6 @@
 # 新罕布什尔州的初选是如何进行的，为什么重要？
 
-> 原文:[https://life hacker . com/how-does-new-hampshires-primary-work-and-why-it-ma-1841447680](https://lifehacker.com/how-does-new-hampshires-primary-work-and-why-does-it-ma-1841447680)
+> 原文：<https://lifehacker.com/how-does-new-hampshires-primary-work-and-why-does-it-ma-1841447680>
 
 如果你今天早上醒来的时候，期待着爱荷华州民主党党团会议的获胜者将会揭晓，你无疑会感到失望。因为“的不一致造成的州党团 app，民主党党团会议的结果仍然是一个谜(尽管 [一位候选人](https://twitter.com/PeteButtigieg/status/1224564353040625665) 似乎已经过早地宣称)。
 

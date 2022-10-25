@@ -1,6 +1,6 @@
 # 用一点肉汁来调味你的米饭和豆子
 
-> 原文:[https://life hacker . com/jazz-up-your ' s rice-and-beans with a little-gravy-1841177863](https://lifehacker.com/jazz-up-your-rice-and-beans-with-a-little-gravy-1841177863)
+> 原文：<https://lifehacker.com/jazz-up-your-rice-and-beans-with-a-little-gravy-1841177863>
 
 我不知道你是否听说了，但是 [豆类正在经历](https://lifehacker.com/put-pasta-toppings-on-your-beans-1840791523)——作为一个长期热爱吃豆类生活方式的人，我真的很想看到这一幕。然而，对许多人来说，干豆一点也不令人兴奋。如果你是其中之一，我想豆汁可能会改变你的想法。
 

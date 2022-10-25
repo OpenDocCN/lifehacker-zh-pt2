@@ -1,6 +1,6 @@
 # 你今年的退税会是什么样子
 
-> 原文:[https://life hacker . com/what-your ' s tax-refund-will-looking-this-year-1832121246](https://lifehacker.com/what-your-tax-refund-will-look-like-this-year-1832121246)
+> 原文：<https://lifehacker.com/what-your-tax-refund-will-look-like-this-year-1832121246>
 
 随着纳税季的正式开始，你可能会做白日梦，想想你将如何处理你的退税款:偿还一些债务，存一些以备不时之需，计划一次度假——大多数美国人可以在任何场合使用更多的现金。
 

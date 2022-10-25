@@ -1,6 +1,6 @@
 # 如何说服自己继续走下去
 
-> 原文:[https://life hacker . com/how-to-说服自己坚持下去 1836858040](https://lifehacker.com/how-to-convince-yourself-to-keep-going-1836858040)
+> 原文：<https://lifehacker.com/how-to-convince-yourself-to-keep-going-1836858040>
 
 任何身体上艰苦的运动也是精神上艰苦的。在你 10 英里长跑中的 7 英里，你大脑的一部分会试图劝你放弃。完成这一过程的唯一方法是对为什么以及如何继续下去有一个好的答案。同样的，当你需要在杠铃上增加重量来完成最后一组硬拉动作，或者继续推动自己穿着 Crossfit WOD 完成其余的 burpees 动作。我们对自己说的话很重要。
 

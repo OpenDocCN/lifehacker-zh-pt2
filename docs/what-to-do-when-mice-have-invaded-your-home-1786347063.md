@@ -1,6 +1,6 @@
 # what to do when mice have invaded your home 1786347063
 
-> 原文:[https://life hacker . com/what-to-do-what-what-when-mouse-invasing-your home-1786347063](https://lifehacker.com/what-to-do-when-mice-have-invaded-your-home-1786347063)
+> 原文：<https://lifehacker.com/what-to-do-when-mice-have-invaded-your-home-1786347063>
 
 不要被它们可爱而模糊的脸所迷惑:老鼠不是你想在家里见到的动物。看到一只小田鼠在公园的小径上疾走是一回事，当它们啃咬你的家具、在厨房里到处留下粪便或啃咬你墙上的电线完全是另一回事。更不用说 [一般来说啮齿类动物是许多疾病的先兆。](https://www.cdc.gov/rodents/diseases/direct.html) 它们也很聪明，足智多谋，难以摆脱。
 

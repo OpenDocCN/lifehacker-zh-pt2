@@ -1,6 +1,6 @@
 # 兑换货币的最简单方法
 
-> 原文:[https://life hacker . com/the-easy-ways-to-exchange-currency-1843423057](https://lifehacker.com/the-easiest-ways-to-exchange-currency-1843423057)
+> 原文：<https://lifehacker.com/the-easiest-ways-to-exchange-currency-1843423057>
 
 在某个时候，我们将再次出发去看世界，如果你是国际旅行的新手，你可能想知道如何兑换货币。这是你的选择。
 

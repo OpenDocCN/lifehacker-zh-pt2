@@ -1,6 +1,6 @@
 # 这个网站使用人工智能来发现隐私政策中的问题
 
-> 原文:[https://life hacker . com/this-site-uses-ai-to-find-issues-in-privacy-policies-1838335480](https://lifehacker.com/this-site-uses-ai-to-find-issues-in-privacy-policies-1838335480)
+> 原文：<https://lifehacker.com/this-site-uses-ai-to-find-issues-in-privacy-policies-1838335480>
 
 每当你注册一个新的应用或服务，你可能也同意一个新的隐私政策。你知道，那种不需要阅读就可以快速滚动的难以置信的长文本块？
 

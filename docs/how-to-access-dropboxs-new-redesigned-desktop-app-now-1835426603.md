@@ -1,6 +1,6 @@
 # 现在如何访问 Dropbox 重新设计的新桌面应用程序
 
-> 原文:[https://life hacker . com/how-to-access-Dropbox s-new-designed-desktop-app-now-1835426603](https://lifehacker.com/how-to-access-dropboxs-new-redesigned-desktop-app-now-1835426603)
+> 原文：<https://lifehacker.com/how-to-access-dropboxs-new-redesigned-desktop-app-now-1835426603>
 
 周二，Dropbox [宣布了其桌面应用](https://www.dropbox.com/features/new?_tk=blog_611_us) 的新统一版本，该公司称为“新的 Dropbox”
 

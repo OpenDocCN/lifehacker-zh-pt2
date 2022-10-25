@@ -1,6 +1,6 @@
 # 如何获得取消欧洲航班的赔偿
 
-> 原文:[https://life hacker . com/how-to-get-compensate-for-canceled-European-flights-1833128804](https://lifehacker.com/how-to-get-compensated-for-canceled-european-flights-1833128804)
+> 原文：<https://lifehacker.com/how-to-get-compensated-for-canceled-european-flights-1833128804>
 
 没有什么比取消航班更令人沮丧的了，尤其是在美国。你可能会等上几个小时，和越来越激动的旅伴一起等待，却被告知你必须等到第二天才能真正乘坐你的航班。
 

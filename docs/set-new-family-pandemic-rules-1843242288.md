@@ -1,6 +1,6 @@
 # 设定新的“家庭疫情规则”
 
-> 原文:[https://life hacker . com/set-new-family-疫情-rules-1843242288](https://lifehacker.com/set-new-family-pandemic-rules-1843242288)
+> 原文：<https://lifehacker.com/set-new-family-pandemic-rules-1843242288>
 
 现在孩子们经常出现在屏幕上吗？熬夜？多睡会儿？整天整夜穿着睡衣？大家好，欢迎来到*疫情育儿网，*这个游戏展示了一切都是虚构的，分数并不重要。
 

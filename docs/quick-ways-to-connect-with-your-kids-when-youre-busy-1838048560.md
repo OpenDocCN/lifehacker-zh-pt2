@@ -1,6 +1,6 @@
 # 忙碌时与孩子联系的快捷方式
 
-> 原文:[https://life hacker . com/quick-ways-to-connect-with-your-kids-when-your-busy-1838048560](https://lifehacker.com/quick-ways-to-connect-with-your-kids-when-youre-busy-1838048560)
+> 原文：<https://lifehacker.com/quick-ways-to-connect-with-your-kids-when-youre-busy-1838048560>
 
 如果我们有世界上所有的时间和我们的孩子交流，那将会很棒。我们知道在他们小的时候时间是短暂的。我们知道，有一天当我们回首往事时，会希望我们能更多地趴在地板上与火车玩耍，为它们读更多的书，或者在它们没完没了的问题上逗留更长的时间。但问题是，仍然有晚餐要做，洗澡要分发，工作和差事，洗衣和其他一切。
 

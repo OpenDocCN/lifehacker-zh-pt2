@@ -1,6 +1,6 @@
 # 帮助你的孩子记录他们的物品
 
-> 原文:[https://life hacker . com/help-your-teen-keep-track-of-their-properties-1837741009](https://lifehacker.com/help-your-teen-keep-track-of-their-belongings-1837741009)
+> 原文：<https://lifehacker.com/help-your-teen-keep-track-of-their-belongings-1837741009>
 
 (大部分)不是青少年对他们的东西不小心——他们的手机，他们的水瓶，你刚刚给他们买的昂贵的新夹克已经消失得无影无踪。这是因为他们大脑中与执行功能相关的区域尚未完全成熟，所以他们最终会在家里需要时把东西留在学校，在学校需要时留在家里。
 

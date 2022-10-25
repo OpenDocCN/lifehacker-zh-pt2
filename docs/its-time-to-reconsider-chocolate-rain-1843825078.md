@@ -1,6 +1,6 @@
 # 是时候重新考虑“巧克力雨”了
 
-> 原文:[https://life hacker . com/its-time-to-re-reference-chocolate-rain-1843825078](https://lifehacker.com/its-time-to-reconsider-chocolate-rain-1843825078)
+> 原文：<https://lifehacker.com/its-time-to-reconsider-chocolate-rain-1843825078>
 
 如果你对 Tay Zonday 的歌曲 [【巧克力雨】](https://youtu.be/EwTZ2xpQwpA) 自 2007 年成为迷因以来没有太多的思考，现在是时候打开 YouTube 视频了——仔细听听歌词。
 

@@ -1,6 +1,6 @@
 # 12 月的健身挑战是:瑜伽
 
-> 原文:[https://life hacker . com/decembers-fitness-challenge-is-yoga-1830827794](https://lifehacker.com/decembers-fitness-challenge-is-yoga-1830827794)
+> 原文：<https://lifehacker.com/decembers-fitness-challenge-is-yoga-1830827794>
 
 十二月可能是一年中压力最大的时候，所以我们把最放松、最踏实、最荣耀自己的挑战留到了最后。
 

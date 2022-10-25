@@ -1,6 +1,6 @@
 # 用蔓越莓汽酒为你的周末增添一些光彩
 
-> 原文:[https://life hacker . com/add-some-sparkle to-your ' s weekend with a-cranberry-sprit-1830342077](https://lifehacker.com/add-some-sparkle-to-your-weekend-with-a-cranberry-sprit-1830342077)
+> 原文：<https://lifehacker.com/add-some-sparkle-to-your-weekend-with-a-cranberry-sprit-1830342077>
 
 各位周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。这周我们要用我最喜欢的节日风味之一——蔓越莓酱。
 

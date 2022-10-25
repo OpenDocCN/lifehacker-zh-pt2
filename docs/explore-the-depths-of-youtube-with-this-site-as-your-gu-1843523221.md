@@ -1,6 +1,6 @@
 # 通过这个网站探索 YouTube 的深度
 
-> 原文:[https://life hacker . com/explore-the-depth-of-your-gu-1843523221](https://lifehacker.com/explore-the-depths-of-youtube-with-this-site-as-your-gu-1843523221)
+> 原文：<https://lifehacker.com/explore-the-depths-of-youtube-with-this-site-as-your-gu-1843523221>
 
 你是否曾经有过这样的感觉，觉得自己已经阅读、观看和/或聆听了互联网上的所有内容？你的首选网站不再受欢迎了吗？你是否渴望以一种非策划的方式看到其他的东西？如果是这样，你可能想看看 [宇航员. io](http://astronaut.io/) 。
 

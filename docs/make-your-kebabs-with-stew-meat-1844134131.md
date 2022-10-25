@@ -1,6 +1,6 @@
 # 用炖肉做你的烤肉串
 
-> 原文:[https://life hacker . com/make-your-kebabs-with-炖肉-1844134131](https://lifehacker.com/make-your-kebabs-with-stew-meat-1844134131)
+> 原文：<https://lifehacker.com/make-your-kebabs-with-stew-meat-1844134131>
 
 现在不是炖肉的季节，一点也不是，然而杂货店继续出售炖肉，公然无视天气。这将是粗鲁的，几乎是嘲讽，除了炖肉可以用于非炖肉的应用，尤其是烤肉串。
 

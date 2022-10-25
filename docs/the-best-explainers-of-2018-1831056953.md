@@ -1,6 +1,6 @@
 # 2018 年最佳解说
 
-> 原文:[https://life hacker . com/the-best-explainers-of-2018-1831056953](https://lifehacker.com/the-best-explainers-of-2018-1831056953)
+> 原文：<https://lifehacker.com/the-best-explainers-of-2018-1831056953>
 
 除了告诉你如何入侵你的生活，我们 Lifehacker 还喜欢帮助你了解你周围的世界，无论你是在为你电脑的一个模糊功能而困惑，还是在为新闻中的一个重大政治问题而困惑。以下是我们 2018 年的一些最佳解释者。
 

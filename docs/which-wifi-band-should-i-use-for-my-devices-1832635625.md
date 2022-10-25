@@ -1,6 +1,6 @@
 # 我的设备应该使用哪个 Wifi 频段？
 
-> 原文:[https://life hacker . com/which-wifi-band-should-I-use-for-my-devices-1832635625](https://lifehacker.com/which-wifi-band-should-i-use-for-my-devices-1832635625)
+> 原文：<https://lifehacker.com/which-wifi-band-should-i-use-for-my-devices-1832635625>
 
 [Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)) : title[![](../Images/be764d30b532adad70daeee8be76d9d7.png)](https://wifiguide.kinja.com)[Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)Wireless networking is complicated, but it doesn't have to be. Let us help you out.
 

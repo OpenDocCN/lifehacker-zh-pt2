@@ -1,6 +1,6 @@
 # 如何在多个谷歌账户之间快速切换
 
-> 原文:[https://life hacker . com/how-to-fast-switch-over-multiple-Google-accounts-1837302253](https://lifehacker.com/how-to-quickly-switch-between-multiple-google-accounts-1837302253)
+> 原文：<https://lifehacker.com/how-to-quickly-switch-between-multiple-google-accounts-1837302253>
 
 我有三个谷歌账户:一个供个人使用，一个来自我的大学校友会，一个用于工作。从一个切换到另一个通常需要在我的设备上点击几下鼠标——就在任何谷歌服务或应用程序中我的大图像上。
 

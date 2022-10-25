@@ -1,6 +1,6 @@
 # 西南航空公司本周有起价为 49 美元的特价航班
 
-> 原文:[https://life hacker . com/south west-is-having-a-49-flight-sale-this-week-1837988221](https://lifehacker.com/southwest-is-having-a-49-flight-sale-this-week-1837988221)
+> 原文：<https://lifehacker.com/southwest-is-having-a-49-flight-sale-this-week-1837988221>
 
 西南航空公司正在进行 49 美元的机票促销。
 

@@ -1,6 +1,6 @@
 # 当你被车撞了该怎么办
 
-> 原文:[https://life hacker . com/1831675791](https://lifehacker.com/what-to-do-when-youve-been-hit-by-a-car-1831675791)
+> 原文：<https://lifehacker.com/what-to-do-when-youve-been-hit-by-a-car-1831675791>
 
 昨天下午，当我走在人行横道上时，被一辆车撞了。
 

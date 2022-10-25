@@ -1,6 +1,6 @@
 # 现在就安排你的医疗预约
 
-> 原文:[https://life hacker . com/schedule-your-medical-appointments-right-now-1831802018](https://lifehacker.com/schedule-your-medical-appointments-right-now-1831802018)
+> 原文：<https://lifehacker.com/schedule-your-medical-appointments-right-now-1831802018>
 
 2019 年的年度体检安排好了吗？一个需要考虑的问题是:在年初提前安排好你所有的常规医疗预约、筛查和检查。
 

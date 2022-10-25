@@ -1,6 +1,6 @@
 # 用 iOS 上的“阅读队列”征服你积压的故事
 
-> 原文:[https://life hacker . com/conquer-your-story-backlog-with-reading-queue-on-IOs-1831399733](https://lifehacker.com/conquer-your-story-backlog-with-reading-queue-on-ios-1831399733)
+> 原文：<https://lifehacker.com/conquer-your-story-backlog-with-reading-queue-on-ios-1831399733>
 
 我的 Instapaper 里通常有 90 篇左右的文章，我对此没什么意见。在所有人都不再谈论文章的一个月后，我开始着手写文章。我浏览我的队列，就像它是一份十页的晚餐菜单，几个星期来忽略某些文章，直到我最终决定阅读或删除。情况可能会更糟； [曾经我有 500 篇未读文章](https://lifehacker.com/clean-out-your-instapaper-reading-list-today-1821703712) 。但是如果你的阅读清单让你失望——如果你希望你能在 Pocket 或 Instapaper 上宣布破产——那么你应该试试新的竞争对手， [阅读队列](https://readingqueue.app/) 。
 

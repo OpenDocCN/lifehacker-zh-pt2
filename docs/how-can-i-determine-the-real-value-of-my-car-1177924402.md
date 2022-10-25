@@ -1,6 +1,6 @@
 # 我如何确定我的汽车的真正价值？
 
-> 原文:[https://life hacker . com/how-can-I-determine-the-real-value of-my car-1177924402](https://lifehacker.com/how-can-i-determine-the-real-value-of-my-car-1177924402)
+> 原文：<https://lifehacker.com/how-can-i-determine-the-real-value-of-my-car-1177924402>
 
 不管你有多喜欢你的车，总有一天你会需要卖掉它。也许你需要升级，或者你以前可靠的坐骑不再可靠了。到那时，你需要知道你的旧车值多少钱。以下是如何做到这一点。
 

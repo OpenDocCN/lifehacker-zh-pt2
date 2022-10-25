@@ -1,6 +1,6 @@
 # 查看和转换的最简单方式。Windows 中的 HEIC 文件
 
-> 原文:[https://life hacker . com/the-easy-way-to-view-and-convert-heic-files-in-wind-1835061199](https://lifehacker.com/the-easiest-way-to-view-and-convert-heic-files-in-wind-1835061199)
+> 原文：<https://lifehacker.com/the-easiest-way-to-view-and-convert-heic-files-in-wind-1835061199>
 
 **Windows:** 如果你是一个狂热的 iOS 摄影师，处理。Windows 系统上的 HEIC 文件可能有点麻烦。我对这些图片做的第一件事就是转换它们，但这不是一个你可以在 Windows 10 操作系统中直接完成的过程。你需要某种第三方解决方案。我的方法是拖放。HEIC 照片进入免费 app[imaging HEIC 转换器](https://imazing.com/heic) 。这是一个有用的工具，可以将它们转换成。jpg，但它对批处理更有帮助——如果你只是转换一张图片，就必须加载它，这有点烦人。
 

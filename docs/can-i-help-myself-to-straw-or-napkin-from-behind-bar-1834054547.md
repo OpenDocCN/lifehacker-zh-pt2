@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:我能从吧台后面拿根吸管或餐巾纸吗？
 
-> 原文:[https://the take out . com/can-I-help-my-self-to-straw-or-餐巾-1834054547](https://thetakeout.com/can-i-help-myself-to-straw-or-napkin-from-behind-bar-1834054547)
+> 原文：<https://thetakeout.com/can-i-help-myself-to-straw-or-napkin-from-behind-bar-1834054547>
 
 > 嘿咸:作为一个坐在酒吧里的人，我可以伸手拿什么东西，什么东西是禁止的？我从来没有觉得抢餐巾纸很奇怪，但我见过其他人去拿橄榄、柑橘、吸管等。
 > 

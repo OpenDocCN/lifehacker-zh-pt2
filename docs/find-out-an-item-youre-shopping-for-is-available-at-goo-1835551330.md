@@ -1,6 +1,6 @@
 # 使用此分机查找您正在购买的商品在 Goodwill 有售
 
-> 原文:[https://life hacker . com/find-out-a-item-you-shopping-for-is-available-goo-1835551330](https://lifehacker.com/find-out-an-item-youre-shopping-for-is-available-at-goo-1835551330)
+> 原文：<https://lifehacker.com/find-out-an-item-youre-shopping-for-is-available-at-goo-1835551330>
 
 有时候你想拥有一件新的物品，而不是一件二手的。然而，在很多地方，旧版本和买新的一样好。善意购物 [是一个 Chrome 扩展](https://chrome.google.com/webstore/detail/goodwill-shopping/aanipnjhkfafeiepkmdjlfcflhjapnee?hl=en) 帮助你找到他们。
 

@@ -1,6 +1,6 @@
 # 那么红肉对我们又有好处了吗？
 
-> 原文:[https://life hacker . com/so-is-red-meat-good for us-again-or-what-1838677353](https://lifehacker.com/so-is-red-meat-good-for-us-again-or-what-1838677353)
+> 原文：<https://lifehacker.com/so-is-red-meat-good-for-us-again-or-what-1838677353>
 
 根据 [五项新的荟萃分析](https://annals.org/aim/fullarticle/2752328/unprocessed-red-meat-processed-meat-consumption-dietary-guideline-recommendations-from) ，没有足够的证据告诉人们要避免吃红肉。这是不是意味着我们被骗了，牛排一直都很好？或者这只是头条 的又一个反转，最好忽略？
 

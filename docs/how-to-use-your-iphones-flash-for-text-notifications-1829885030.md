@@ -1,6 +1,6 @@
 # 如何使用 iPhone 的闪光灯发送短信通知
 
-> 原文:[https://life hacker . com/how-to-use-your-iphone-flash-for-text-notifications-1829885030](https://lifehacker.com/how-to-use-your-iphones-flash-for-text-notifications-1829885030)
+> 原文：<https://lifehacker.com/how-to-use-your-iphones-flash-for-text-notifications-1829885030>
 
 如果你发现自己经常错过短信，你可以设置一下，让手机在收到短信时闪烁。
 

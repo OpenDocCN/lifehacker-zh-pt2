@@ -1,6 +1,6 @@
 # 所有主要的连锁杂货店都在感恩节开门营业
 
-> 原文:[https://life hacker . com/all-the-major-杂货店连锁店-感恩节开门-1840082360](https://lifehacker.com/all-the-major-grocery-store-chains-open-on-thanksgiving-1840082360)
+> 原文：<https://lifehacker.com/all-the-major-grocery-store-chains-open-on-thanksgiving-1840082360>
 
 当你意识到忘了买黄油或者酒比预期的要快用完的时候，你已经快要准备好感恩节晚餐了。或者，也许你根本没有参加感恩节庆祝活动，但直到现在才想到吃的事情。
 

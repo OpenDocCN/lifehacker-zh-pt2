@@ -1,6 +1,6 @@
 # you dont actually want to boost your immune system 1842754207
 
-> 原文:[https://life hacker . com/you-not-actually-want-boost-you-immune-system-1842754207](https://lifehacker.com/you-dont-actually-want-to-boost-your-immune-system-1842754207)
+> 原文：<https://lifehacker.com/you-dont-actually-want-to-boost-your-immune-system-1842754207>
 
 有一种病毒正在传播。一般来说，当你的免疫系统强大时，你就能更好地抵抗感染。那么，谁不想通过维生素、锻炼或任何食物或补充剂来增强免疫系统呢？但是整个概念有点破碎。
 

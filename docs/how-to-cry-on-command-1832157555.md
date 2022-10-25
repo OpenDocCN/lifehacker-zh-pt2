@@ -1,6 +1,6 @@
 # 如何在命令中哭泣
 
-> 原文:[https://lifehacker.com/how-to-cry-on-command-1832157555](https://lifehacker.com/how-to-cry-on-command-1832157555)
+> 原文：<https://lifehacker.com/how-to-cry-on-command-1832157555>
 
 我不太爱哭，但当我哭的时候，我会放声大哭。
 

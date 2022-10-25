@@ -1,6 +1,6 @@
 # 借助黑洞基于区块链的服务，免费安全传输文件
 
-> 原文:[https://life hacker . com/securely-transfer-files-for-free-with black-holes-block-1837879668](https://lifehacker.com/securely-transfer-files-for-free-with-black-holes-block-1837879668)
+> 原文：<https://lifehacker.com/securely-transfer-files-for-free-with-black-holes-block-1837879668>
 
 我们之前已经介绍过许多文件传输服务 ，但是我们最近偶然发现了黑洞，一种相对较新的服务使用基于区块链的 Blockstack 网络进行用户登录、文件存储和交付。(最好的一点:是免费的。)
 

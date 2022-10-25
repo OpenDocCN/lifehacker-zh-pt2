@@ -1,6 +1,6 @@
 # 是的，你可以用漱口水和苏打水清洗厕所
 
-> 原文:[https://life hacker . com/yes-you-can-clean-a toilet with 漱口水 and alka-sel-1840831991](https://lifehacker.com/yes-you-can-clean-a-toilet-with-mouthwash-and-alka-sel-1840831991)
+> 原文：<https://lifehacker.com/yes-you-can-clean-a-toilet-with-mouthwash-and-alka-sel-1840831991>
 
 很难在不把所有东西弄得脏兮兮的情况下写一篇关于厕所的帖子的介绍。
 

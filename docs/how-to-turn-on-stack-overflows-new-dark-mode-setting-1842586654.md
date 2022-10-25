@@ -1,6 +1,6 @@
 # 如何打开堆栈溢出的新黑暗模式设置
 
-> 原文:[https://life hacker . com/how-to-turn-on-stack-overflow-new-dark-mode-setting-1842586654](https://lifehacker.com/how-to-turn-on-stack-overflows-new-dark-mode-setting-1842586654)
+> 原文：<https://lifehacker.com/how-to-turn-on-stack-overflows-new-dark-mode-setting-1842586654>
 
 Stack Overflow，著名的“如果我不知道如何自己编写，我会去那里想办法如何编写代码” [留言板](https://stackoverflow.com/) 深受全球开发者的喜爱，终于*释放了它最受欢迎的功能:**黑暗模式**。* 
 

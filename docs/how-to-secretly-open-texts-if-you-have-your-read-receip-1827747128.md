@@ -1,6 +1,6 @@
 # 如何秘密打开 iMessages 而不触发已读回执
 
-> 原文:[https://life hacker . com/how-to-secretly-open-texts-if-you-have-you-read-receip-1827747128](https://lifehacker.com/how-to-secretly-open-texts-if-you-have-your-read-receip-1827747128)
+> 原文：<https://lifehacker.com/how-to-secretly-open-texts-if-you-have-your-read-receip-1827747128>
 
 我们首先要说的是，担心有人知道你是否读过他们的短信有点可笑。阅读信息是发短信的全部目的，然而……我们也可以承认，你想让一条信息看起来未读是有战略原因的。
 

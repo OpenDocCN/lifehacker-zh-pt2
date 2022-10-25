@@ -1,6 +1,6 @@
 # 你仍然可以在安卓系统上下载并播放《堡垒之夜》
 
-> 原文:[https://life hacker . com/you-can-still-download-and-play-fort nite-on-Android-1844728982](https://lifehacker.com/you-can-still-download-and-play-fortnite-on-android-1844728982)
+> 原文：<https://lifehacker.com/you-can-still-download-and-play-fortnite-on-android-1844728982>
 
 昨天，在 Epic 对游戏内支付方式 做出 [改变后，谷歌和苹果将*堡垒之夜*撤出了他们的应用商店。作为回应，Epic 起诉了两家公司，但是堡垒之夜的移除意味着你不能再从任何一个应用商店下载游戏。](https://lifehacker.com/how-to-ask-for-a-refund-for-fortnite-v-bucks-1844726936) 
 

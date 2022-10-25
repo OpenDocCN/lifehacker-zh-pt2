@@ -1,6 +1,6 @@
 # 如何帮助你的社区成员远离新冠肺炎病毒
 
-> 原文:[https://life hacker . com/how-to-help-keep-people-in-your-community-safe-from-cov-1842220774](https://lifehacker.com/how-to-help-keep-people-in-your-community-safe-from-cov-1842220774)
+> 原文：<https://lifehacker.com/how-to-help-keep-people-in-your-community-safe-from-cov-1842220774>
 
 当有威胁时，我们每个人都很容易只想到自己。但是，如果新冠肺炎病毒爆发到你的城市，你的许多邻居和亲戚可能会比你过得更糟。以下是如何准备让每个人都安全，而不仅仅是你自己。
 

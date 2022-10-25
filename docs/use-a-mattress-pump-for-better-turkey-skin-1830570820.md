@@ -1,6 +1,6 @@
 # 使用床垫打气筒来获得更好的火鸡皮
 
-> 原文:[https://life hacker . com/use-a-matrix-pump-for-better-turkey-skin-1830570820](https://lifehacker.com/use-a-mattress-pump-for-better-turkey-skin-1830570820)
+> 原文：<https://lifehacker.com/use-a-mattress-pump-for-better-turkey-skin-1830570820>
 
 将一串黄油 塞在感恩节火鸡的表皮下是确保它湿润可口的绝妙方法，但这需要你的手有点脏。如果你想花更少的时间 [把皮和肉](https://skillet.lifehacker.com/how-to-make-a-delicious-thanksgiving-turkey-1830465631) 分开，那就买一个空气床垫泵吧。
 

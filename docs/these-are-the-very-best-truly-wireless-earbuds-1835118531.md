@@ -1,6 +1,6 @@
 # 我们找到了最好的真正无线耳塞
 
-> 原文:[https://gizmodo . com/thes-is-the-very-best-true-wireless-earbuds-1835118531](https://gizmodo.com/these-are-the-very-best-truly-wireless-earbuds-1835118531)
+> 原文：<https://gizmodo.com/these-are-the-very-best-truly-wireless-earbuds-1835118531>
 
 决定购买哪一套真正的无线耳塞可能是一项艰巨的任务。除非你是那些相信 AirPods 炒作的人之一，在这种情况下，这个决定似乎很容易。不要成为那样的人。
 

@@ -1,6 +1,6 @@
 # 不要酸橙和盐，喝陈年龙舌兰酒配葡萄柚
 
-> 原文:[https://life hacker . com/inst-of-lime and-salt-drink-aged-tequila with a-gra-1834538575](https://lifehacker.com/instead-of-lime-and-salt-drink-aged-tequila-with-a-gra-1834538575)
+> 原文：<https://lifehacker.com/instead-of-lime-and-salt-drink-aged-tequila-with-a-gra-1834538575>
 
 如果你的五月五日节庆祝活动让你今天喝了几杯陈年龙舌兰酒，考虑用撒了一点肉桂的葡萄柚代替这些酒。
 

@@ -1,6 +1,6 @@
 # 请不要用你的 iPhone 自我诊断新冠肺炎
 
-> 原文:[https://life hacker . com/please-don-t-use-your-iphone-to-self-diagnose-新冠肺炎-1842457702](https://lifehacker.com/please-dont-use-your-iphone-to-self-diagnose-covid-19-1842457702)
+> 原文：<https://lifehacker.com/please-dont-use-your-iphone-to-self-diagnose-covid-19-1842457702>
 
 冠状病毒对我们所有人来说都很可怕。这个周末，我已经看了太多看似健康的年轻人被新冠肺炎病毒感染，在一周内死亡的故事。当我轻微咳嗽和可能鼻塞时，我甚至想用谷歌搜索症状，因为健康焦虑是真实的。
 

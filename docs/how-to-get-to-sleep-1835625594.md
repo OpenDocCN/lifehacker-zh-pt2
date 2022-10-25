@@ -1,6 +1,6 @@
 # 如何入睡
 
-> 原文:[https://lifehacker.com/how-to-get-to-sleep-1835625594](https://lifehacker.com/how-to-get-to-sleep-1835625594)
+> 原文：<https://lifehacker.com/how-to-get-to-sleep-1835625594>
 
 睡眠:我们都需要睡眠，但大多数人都睡不够。我们做错了什么？为什么完美的睡眠如此难以捉摸？我们怎样才能开始得到我们需要的和应得的休息？
 

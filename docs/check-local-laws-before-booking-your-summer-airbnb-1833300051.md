@@ -1,6 +1,6 @@
 # 预订您的夏季 Airbnb 之前，请查看当地法律
 
-> 原文:[https://life hacker . com/check-local-laws-before-booking-your-summer-Airbnb-1833300051](https://lifehacker.com/check-local-laws-before-booking-your-summer-airbnb-1833300051)
+> 原文：<https://lifehacker.com/check-local-laws-before-booking-your-summer-airbnb-1833300051>
 
 如果你的夏季旅行计划包括 Airbnb 住宿，你的假期可能会比你预期的更复杂(也更昂贵)。
 

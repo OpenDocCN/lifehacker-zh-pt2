@@ -1,6 +1,6 @@
 # 东京的这个游乐场鼓励孩子们去冒险
 
-> 原文:[https://life hacker . com/this-playground-in-Tokyo-comes-kids-to-take-risk-1833647784](https://lifehacker.com/this-playground-in-tokyo-encourages-kids-to-take-risks-1833647784)
+> 原文：<https://lifehacker.com/this-playground-in-tokyo-encourages-kids-to-take-risks-1833647784>
 
 我喜欢把自己想象成一个反直升机的家长，但是当我第一次带我一岁半的女儿去附近的游乐场时，听起来就像是在看一部恐怖片。"*喘息！*不要踩在那里！别靠在那上面！哦，天啊！*喘息！*哦，天哪！”她才蹒跚地走上三级台阶，我就准备坐下了。
 

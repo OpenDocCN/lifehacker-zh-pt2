@@ -1,6 +1,6 @@
 # 如何在没有有线电视的情况下观看 NFL 第一周比赛
 
-> 原文:[https://life hacker . com/how-to-watch-NFL-week-1-games-without-cable-1837952841](https://lifehacker.com/how-to-watch-nfl-week-1-games-without-cable-1837952841)
+> 原文：<https://lifehacker.com/how-to-watch-nfl-week-1-games-without-cable-1837952841>
 
 ### T3】
 

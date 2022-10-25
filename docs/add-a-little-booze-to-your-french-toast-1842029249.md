@@ -1,6 +1,6 @@
 # 给你的法式吐司加点酒
 
-> 原文:[https://life hacker . com/add-a little-booze-to-your ' s French-toast-1842029249](https://lifehacker.com/add-a-little-booze-to-your-french-toast-1842029249)
+> 原文：<https://lifehacker.com/add-a-little-booze-to-your-french-toast-1842029249>
 
 早午餐不是一顿实用的饭，除非那天有午睡。酒是早午餐的一部分，但通常是装在玻璃杯里，要么配橙汁，要么配血腥玛丽。这些都是在早午餐时享受美酒的好方法，但是你也可以吃你的酒。我喜欢在法式吐司里吃我的。
 

@@ -1,6 +1,6 @@
 # 使用此 AAP 应用程序调查您孩子的症状
 
-> 原文:[https://life hacker . com/investigate-your-kids-symptoms-with this-AAP-app-1844573689](https://lifehacker.com/investigate-your-kids-symptoms-with-this-aap-app-1844573689)
+> 原文：<https://lifehacker.com/investigate-your-kids-symptoms-with-this-aap-app-1844573689>
 
 鉴于这些天除非绝对必要，否则我们都有点犹豫是否要去医生办公室、医院或紧急护理，随着流感季节的临近，我们继续乘着疫情的浪潮，有一款应用程序可能会让你方便使用:[The kids doc app](https://apps.apple.com/us/app/kidsdoc-from-the-aap/id373964536)。
 

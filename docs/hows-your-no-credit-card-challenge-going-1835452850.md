@@ -1,6 +1,6 @@
 # 你的无信用卡挑战进行得怎么样了？
 
-> 原文:[https://life hacker . com/hows-your-no-credit-card-challenge-going-1835452850](https://lifehacker.com/hows-your-no-credit-card-challenge-going-1835452850)
+> 原文：<https://lifehacker.com/hows-your-no-credit-card-challenge-going-1835452850>
 
 这个月已经过了一半，这意味着是时候检查一下我们迎接新一轮挑战的进展了。
 

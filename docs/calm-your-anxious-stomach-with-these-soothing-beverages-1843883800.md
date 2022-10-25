@@ -1,6 +1,6 @@
 # 用这些舒缓的饮料安抚你焦虑的胃
 
-> 原文:[https://life hacker . com/用这些舒缓的饮料安抚你焦虑的胃-1843883800](https://lifehacker.com/calm-your-anxious-stomach-with-these-soothing-beverages-1843883800)
+> 原文：<https://lifehacker.com/calm-your-anxious-stomach-with-these-soothing-beverages-1843883800>
 
 现在用“紧张”来形容事情是很保守的，紧张会导致焦虑，这对我们中的一些人来说，会导致恶心和其他类型的胃部问题。而且，虽然我绝不会建议你放弃 Pepto 或 Tums，但我发现添加胃沉降饮料有助于安抚我的内心。
 

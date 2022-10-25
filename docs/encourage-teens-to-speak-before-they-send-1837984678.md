@@ -1,6 +1,6 @@
 # 鼓励青少年“先说后发”
 
-> 原文:[https://life hacker . com/鼓励青少年在发送前发言-1837984678](https://lifehacker.com/encourage-teens-to-speak-before-they-send-1837984678)
+> 原文：<https://lifehacker.com/encourage-teens-to-speak-before-they-send-1837984678>
 
 每当我开始告诉我的儿子，“你的话有力量，所以……”他用“结束我的句子”...所以明智地选择他们，我知道。”作为一名作家，我非常重视用词和语言的美。但我真正的意思是:说话前要三思——你要说的话可能会伤害别人的感情。
 

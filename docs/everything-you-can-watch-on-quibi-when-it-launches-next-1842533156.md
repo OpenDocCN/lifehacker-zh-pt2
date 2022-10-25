@@ -1,6 +1,6 @@
 # 下周在 Quibi 上可以看到的一切
 
-> 原文:[https://life hacker . com/everything-you-can-watch-on-quibi-when-it-launch-next-1842533156](https://lifehacker.com/everything-you-can-watch-on-quibi-when-it-launches-next-1842533156)
+> 原文：<https://lifehacker.com/everything-you-can-watch-on-quibi-when-it-launches-next-1842533156>
 
 专为你的手机设计的新娱乐平台 Quibi 将于 4 月 6 日正式推出。届时，它将推出一个相当规模的节目阵容。
 

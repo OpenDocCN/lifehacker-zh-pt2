@@ -1,6 +1,6 @@
 # 如何在 Windows 10 邮件中开启黑暗模式
 
-> 原文:[https://life hacker . com/how-to-turn-on-dark-mode-in-windows-10-mail-1833093065](https://lifehacker.com/how-to-turn-on-dark-mode-in-windows-10-mail-1833093065)
+> 原文：<https://lifehacker.com/how-to-turn-on-dark-mode-in-windows-10-mail-1833093065>
 
 截至本周，Windows 10 Mail 终于有了值得使用的黑暗模式。经过内部人士几周的测试，升级后的邮件和日历应用程序现在包括了一个更有用的电子邮件功能版本:它实际上使整个应用程序变暗，并提供了在难以阅读时快速变“亮”的能力。
 

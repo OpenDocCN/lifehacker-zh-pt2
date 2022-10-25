@@ -1,6 +1,6 @@
 # 利用假期向家人解释在线隐私和安全设置
 
-> 原文:[https://life hacker . com/use-the-holidays-to-explain-online-privacy-and-security-1831302116](https://lifehacker.com/use-the-holidays-to-explain-online-privacy-and-security-1831302116)
+> 原文：<https://lifehacker.com/use-the-holidays-to-explain-online-privacy-and-security-1831302116>
 
 本周末*华尔街日报* [刊登了一篇报道](https://www.wsj.com/articles/33-mostly-free-ways-to-fix-your-familys-tech-problems-11545573601?mod=e2tw) 列举了许多不同的方法，在这个假期你可以免费解决你家的技术问题。列表中有很多好的想法，但是引起我注意的是关于隐私和安全的部分。我的家人很擅长打电话给我，问一些关于如何操作智能手机或“修理”网飞的基本问题，但他们从来不会问关于隐私和安全的问题——他们应该问。
 

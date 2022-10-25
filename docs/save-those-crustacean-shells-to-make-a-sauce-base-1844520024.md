@@ -1,6 +1,6 @@
 # 把那些甲壳类动物的壳留下来做调味酱
 
-> 原文:[https://life hacker . com/save-these-甲壳类动物的壳-to-make-a-sauce-base-1844520024](https://lifehacker.com/save-those-crustacean-shells-to-make-a-sauce-base-1844520024)
+> 原文：<https://lifehacker.com/save-those-crustacean-shells-to-make-a-sauce-base-1844520024>
 
 这个周末，我和男朋友做了蟹酱——一种红色的酱，里面装满了美味的螃蟹。是的，有大块的邓杰内斯肉，但是酱汁的真正主角是螃蟹*壳*，我们捣碎它，用洋葱和茴香煨它，做一个非常难消化的基础。
 

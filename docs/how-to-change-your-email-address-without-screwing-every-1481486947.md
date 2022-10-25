@@ -1,6 +1,6 @@
 # 如何在不把一切都搞砸的情况下改变你的电子邮件地址
 
-> 原文:[https://life hacker . com/how-to-change-your-email-address-without-screw-every-1481486947](https://lifehacker.com/how-to-change-your-email-address-without-screwing-every-1481486947)
+> 原文：<https://lifehacker.com/how-to-change-your-email-address-without-screwing-every-1481486947>
 
 当你在现实世界中搬家时，你通常会在邮局填写一份地址变更表，然后*嘣！*—您的邮件出现在您的新家。要是换个邮箱地址也这么简单就好了。
 

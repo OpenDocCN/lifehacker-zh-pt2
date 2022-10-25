@@ -1,6 +1,6 @@
 # 当你注册 MyPanera 时，在 2018 年的剩余时间里每天获得一个免费的百吉饼
 
-> 原文:[https://life hacker . com/get-a-free-bagel-a-day for-the-rest-of-2018-when-you-si-1830865915](https://lifehacker.com/get-a-free-bagel-a-day-for-the-rest-of-2018-when-you-si-1830865915)
+> 原文：<https://lifehacker.com/get-a-free-bagel-a-day-for-the-rest-of-2018-when-you-si-1830865915>
 
 如果你还不是 Panera 的免费加入 MyPanera 计划的会员，现在可能是注册的好时机。
 

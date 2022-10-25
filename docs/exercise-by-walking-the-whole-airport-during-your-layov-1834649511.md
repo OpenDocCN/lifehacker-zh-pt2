@@ -1,6 +1,6 @@
 # 在中途停留期间，步行穿过整个机场进行锻炼
 
-> 原文:[https://life hacker . com/exercise-by-walking-the-all-airport-in-your-layov-1834649511](https://lifehacker.com/exercise-by-walking-the-whole-airport-during-your-layov-1834649511)
+> 原文：<https://lifehacker.com/exercise-by-walking-the-whole-airport-during-your-layov-1834649511>
 
 机场很大(至少在大城市)，这通常是我们讨厌它们的地方。行李认领处离有多远？？但是如果你有时间消磨，可以考虑利用机场的巨大优势。走完全程，给自己计时。
 

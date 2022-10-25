@@ -1,6 +1,6 @@
 # 如何在 Windows 10 中解锁微软的免费图形计算器
 
-> 原文:[https://life hacker . com/how-to-unlock-Microsoft-free-graphing-calculator-in-wi-1841064614](https://lifehacker.com/how-to-unlock-microsofts-free-graphing-calculator-in-wi-1841064614)
+> 原文：<https://lifehacker.com/how-to-unlock-microsofts-free-graphing-calculator-in-wi-1841064614>
 
 虽然你的数学老师(或你孩子的数学老师)可能不会让他们带着笔记本电脑去上微积分课，但我仍然认为微软终于给 Windows 计算器增加了一点极客的味道，这太棒了。如果你认为“科学”模式很有趣，你还没有看到任何东西——即将推出的 Windows 10 是一个成熟的图形计算器。
 

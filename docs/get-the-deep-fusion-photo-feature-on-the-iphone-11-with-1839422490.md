@@ -1,6 +1,6 @@
 # 通过今天的 iOS 13.2 更新，在 iPhone 11 上获得深度融合照片功能
 
-> 原文:[https://life hacker . com/get-the-deep-fusion-photo-feature-on-the-1839422490](https://lifehacker.com/get-the-deep-fusion-photo-feature-on-the-iphone-11-with-1839422490)
+> 原文：<https://lifehacker.com/get-the-deep-fusion-photo-feature-on-the-iphone-11-with-1839422490>
 
 苹果今天放弃了 iOS 13.2(以及 iPadOS 13.2 和 tvOS 13.2)，像大多数同类的 iOS 更新一样，有大量的变化和补充。这包括 iPhone 11 和 11 Pro 相机终于获得了深度融合摄影功能——用于出色的弱光拍摄——以及一系列适用于所有 iOS 设备的新 Siri 选项。
 

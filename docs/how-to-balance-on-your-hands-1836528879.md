@@ -1,6 +1,6 @@
 # 如何用手保持平衡
 
-> 原文:[https://life hacker . com/how-to-balance-on-your-hands-1836528879](https://lifehacker.com/how-to-balance-on-your-hands-1836528879)
+> 原文：<https://lifehacker.com/how-to-balance-on-your-hands-1836528879>
 
 上周我们讨论了如何用你的双脚 (或者更好，单脚)很好地保持平衡。这次让我们翻转剧本，双手平衡。
 

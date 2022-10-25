@@ -1,6 +1,6 @@
 # 当销售实际上不值得的时候
 
-> 原文:[https://life hacker . com/when-a-sale-not-actually-worth-it-1830094661](https://lifehacker.com/when-a-sale-isnt-actually-worth-it-1830094661)
+> 原文：<https://lifehacker.com/when-a-sale-isnt-actually-worth-it-1830094661>
 
 黑色星期五和网络星期一即将到来(分别是 11 月 23 日和 26 日)，这意味着假日“销售”季节即将来临。但随着销售的到来，年度报告也显示，这些商品实际上并没有打折太多，或者不值这个价格。你怎么知道什么时候该买呢？根据 [《消费者报告》](https://www.consumerreports.org/shopping-retail/when-are-sales-too-good-to-be-true/) ，答案是“永远不要假设销售价格是准确的。”
 

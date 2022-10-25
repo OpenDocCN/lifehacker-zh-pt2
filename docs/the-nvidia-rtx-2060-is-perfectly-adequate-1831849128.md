@@ -1,6 +1,6 @@
 # 英伟达 RTX 2060 完全够用
 
-> 原文:[https://gizmodo . com/the-NVIDIA-RTX-2060-is-perfective-sufficient-1831849128](https://gizmodo.com/the-nvidia-rtx-2060-is-perfectly-adequate-1831849128)
+> 原文：<https://gizmodo.com/the-nvidia-rtx-2060-is-perfectly-adequate-1831849128>
 
 在 CES 上，一名记者向英伟达首席执行官黄仁勋提了一个问题。他能说些什么来缓解粉丝们的担忧呢？他们觉得新的 RTX 20 系列 GPU 定价过高，并试图将光线跟踪技术强加给对它没有太大用处的客户。黄微笑着，脸上带着平静和满意的混合表情。“2060 年，”他说，好像这四个数字是生活的秘密，也是 Nvidia 所有成功的秘密。黄指的是刚刚宣布的 Nvidia 2060 GPU，这种卡比前几代产品价格更高，但仍然是未来图形最容易获得的切入点。
 

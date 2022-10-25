@@ -1,6 +1,6 @@
 # 如果你住院或残疾，如何投票
 
-> 原文:[https://life hacker . com/how-to-vote-if you-hospital-or-disabled-1830236833](https://lifehacker.com/how-to-vote-if-youre-hospitalized-or-disabled-1830236833)
+> 原文：<https://lifehacker.com/how-to-vote-if-youre-hospitalized-or-disabled-1830236833>
 
 如果你因为身体残疾无法到达投票站或面临额外的挑战，仍然有办法确保你的投票被计算在内。
 

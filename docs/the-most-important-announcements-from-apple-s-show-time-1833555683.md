@@ -1,6 +1,6 @@
 # 苹果“展示时间”活动中最重要的公告
 
-> 原文:[https://life hacker . com/the-most-the-important-announcements-from-apple-s-show-time-1833555683](https://lifehacker.com/the-most-important-announcements-from-apple-s-show-time-1833555683)
+> 原文：<https://lifehacker.com/the-most-important-announcements-from-apple-s-show-time-1833555683>
 
 在今天的最新主题演讲中，苹果公司宣布了四项新服务，以帮助其更深入地进入新闻、娱乐和娱乐的广阔世界...银行业？正如分析师和记者预测的那样，苹果宣布了一个付费杂志订阅平台和一个类似网飞的流媒体服务。它还宣布了 Xbox Game Pass 风格的游戏订阅，这是一个真正的惊喜，它有自己的信用卡 。
 

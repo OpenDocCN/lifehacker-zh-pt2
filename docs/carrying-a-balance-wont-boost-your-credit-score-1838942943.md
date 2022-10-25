@@ -1,6 +1,6 @@
 # 保持平衡不会提高你的信用评分
 
-> 原文:[https://life hacker . com/carrying-a-balance-wot-boost-your-credit-score-1838942943](https://lifehacker.com/carrying-a-balance-wont-boost-your-credit-score-1838942943)
+> 原文：<https://lifehacker.com/carrying-a-balance-wont-boost-your-credit-score-1838942943>
 
 想象一下这样的场景:你没有任何信用卡债务，要么是因为你还清了债务，要么是因为你完全避免了债务。你的信用记录闪闪发光，你的分数很高。但是你不希望信用机构忘记你知道如何对信用负责。所以时不时地，你会买一件东西，让它延期到下个月，而不用付清余额。你让这种循环平衡持续足够长的时间，直到局里注意到，然后你付清。这是表明你是一个负责任的信用卡使用者的最好方式，对吗？
 

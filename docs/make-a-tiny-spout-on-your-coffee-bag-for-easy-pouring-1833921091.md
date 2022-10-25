@@ -1,6 +1,6 @@
 # 在你的咖啡包上做一个小壶嘴，方便倒咖啡
 
-> 原文:[https://life hacker . com/make-a-tiny-spout-on-your-coffee-bag-for-easy-pouring-1833921091](https://lifehacker.com/make-a-tiny-spout-on-your-coffee-bag-for-easy-pouring-1833921091)
+> 原文：<https://lifehacker.com/make-a-tiny-spout-on-your-coffee-bag-for-easy-pouring-1833921091>
 
 如果我可以选择估计而不是精确测量，我总是会选择睁一只眼闭一只眼。黄油是这样，咖啡也是这样。在把咖啡渣加入壶中之前，我没有用勺子把它们铲平，而是直接把它们倒入冲泡筐中。这曾经有点乱，直到我意识到我可以用袋子上的一根弯曲的金属丝来制作一个容易倒的壶嘴。
 

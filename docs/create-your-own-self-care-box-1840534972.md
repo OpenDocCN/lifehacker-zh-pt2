@@ -1,6 +1,6 @@
 # 创建你自己的“自我护理箱”
 
-> 原文:[https://life hacker . com/create-your-own-self-care-box-1840534972](https://lifehacker.com/create-your-own-self-care-box-1840534972)
+> 原文：<https://lifehacker.com/create-your-own-self-care-box-1840534972>
 
 自我保健的好处被广泛吹捧——而且理由充分。我们确实需要更好地照顾自己。我们工作过度，日程安排过多，休息不足。我们应该得到更多的按摩，我们应该去更多的为期一周的海滩度假。但是自我保健的难题就在这里。我们没有时间或金钱去做许多真正能让我们感觉良好的事情——即使是和朋友聚会共度欢乐时光，或者在浴缸里泡个舒服的长时间澡，看起来都像是一项壮举。
 

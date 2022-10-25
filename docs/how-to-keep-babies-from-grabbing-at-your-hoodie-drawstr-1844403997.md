@@ -1,6 +1,6 @@
 # 如何防止婴儿抓住你的帽衫拉绳
 
-> 原文:[https://life hacker . com/how-to-keep 婴儿免于抓你的帽衫-drawstr-1844403997](https://lifehacker.com/how-to-keep-babies-from-grabbing-at-your-hoodie-drawstr-1844403997)
+> 原文：<https://lifehacker.com/how-to-keep-babies-from-grabbing-at-your-hoodie-drawstr-1844403997>
 
 婴儿最喜欢抓东西了。由于婴儿喜欢的其他东西之一是被抱着，你需要小心你的项链、危险的耳环和帽衫拉绳。因为我是三个孩子的母亲，穿得像个 12 岁的男孩，我唯一能帮忙的就是帽衫的拉绳。
 

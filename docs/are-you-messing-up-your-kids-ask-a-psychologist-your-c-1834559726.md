@@ -1,6 +1,6 @@
 # 你在搞乱你的孩子吗？美国东部时间下午 1 点向心理学家咨询你的育儿问题
 
-> 原文:[https://life hacker . com/are-you-messing-up-your-kids-ask-a-psychologist-your-c-1834559726](https://lifehacker.com/are-you-messing-up-your-kids-ask-a-psychologist-your-c-1834559726)
+> 原文：<https://lifehacker.com/are-you-messing-up-your-kids-ask-a-psychologist-your-c-1834559726>
 
 每个父母都想知道，他们对孩子发脾气和大喊大叫的那一次会不会给他们的生活留下创伤。也许有一天下午你带他们去动物园，一只猩猩把他们弄哭了，这会让他们对红发人产生终生的恐惧。谁能说呢？从专业人士那里得到一些建议不是很好吗？
 

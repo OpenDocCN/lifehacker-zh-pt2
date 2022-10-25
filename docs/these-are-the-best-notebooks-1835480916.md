@@ -1,6 +1,6 @@
 # 这些是最好的笔记本
 
-> 原文:[https://life hacker . com/these-is-the-best-notebooks-1835480916](https://lifehacker.com/these-are-the-best-notebooks-1835480916)
+> 原文：<https://lifehacker.com/these-are-the-best-notebooks-1835480916>
 
 拥有一个最喜欢的笔记本比拥有一支最喜欢的笔 还要傻。那是一堆你用来写字的纸。但是细微之处和特殊功能确实会影响您的工作流程。一本精装的 Moleskine 给你的笔记增添了几分档次，但是如果你想在看完一页纸后把它撕掉，这是一个糟糕的选择。这里是 Lifehacker 员工最喜欢的笔记本，以及我们为什么喜欢它们。
 

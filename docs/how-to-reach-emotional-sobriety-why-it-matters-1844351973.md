@@ -1,6 +1,6 @@
 # 如何达到情绪清醒&为什么它很重要
 
-> 原文:[https://life hacker . com/how-to-reach-emotional-清醒-为什么重要-1844351973](https://lifehacker.com/how-to-reach-emotional-sobriety-why-it-matters-1844351973)
+> 原文：<https://lifehacker.com/how-to-reach-emotional-sobriety-why-it-matters-1844351973>
 
 当我们想到戒酒时，通常是指不再使用酒精或娱乐性药物，但事实远比这复杂。根据《精神疾病[诊断和统计手册》(DSM)中的定义，清醒意味着“没有喝醉”，然后继续解释说，清醒更多的是关于](https://www.verywellmind.com/the-diagnostic-and-statistical-manual-dsm-2795758) [没有饮酒问题](https://www.northernillinoisrecovery.com/rehab-blog/what-is-sobriety/) ，而不是关于完全戒酒。
 

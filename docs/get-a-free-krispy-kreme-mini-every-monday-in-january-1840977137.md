@@ -1,6 +1,6 @@
 # 一月的每个周一都可以免费获得一份 Krispy Kreme Mini
 
-> 原文:[https://life hacker . com/get-a-free-krispy-kreme-mini-every-Monday-in-January-1840977137](https://lifehacker.com/get-a-free-krispy-kreme-mini-every-monday-in-january-1840977137)
+> 原文：<https://lifehacker.com/get-a-free-krispy-kreme-mini-every-monday-in-january-1840977137>
 
 这个月，你可以因为在办公室熬过周一而获得一份免费的奖励，形式是一个来自 Krispy Kreme 的微型甜甜圈。
 

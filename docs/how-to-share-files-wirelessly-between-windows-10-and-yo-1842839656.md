@@ -1,6 +1,6 @@
 # 如何在 Windows 10 和您的三星手机之间无线共享文件
 
-> 原文:[https://life hacker . com/how-to-share-files-wireless-between-windows-10-and-yo-1842839656](https://lifehacker.com/how-to-share-files-wirelessly-between-windows-10-and-yo-1842839656)
+> 原文：<https://lifehacker.com/how-to-share-files-wirelessly-between-windows-10-and-yo-1842839656>
 
 最新的 Windows 10 Insider 版本现在支持三星 **Link to Windows** 应用程序和微软**Your Phone**Windows 10 应用程序之间的无线文件传输。如果你满足所有要求，这将使在你的 PC 和 Galaxy 智能手机之间发送照片和其他文件变得更加容易。
 

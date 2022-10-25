@@ -1,6 +1,6 @@
 # 你的 TiVO 没有试图黑你
 
-> 原文:[https://life hacker . com/your-TiVo-not-trying-to-hack-you-1844455470](https://lifehacker.com/your-tivo-isnt-trying-to-hack-you-1844455470)
+> 原文：<https://lifehacker.com/your-tivo-isnt-trying-to-hack-you-1844455470>
 
 如果你最近购买了一台 TiVO Stream 4K，你可能会对收到的一个安全通知感到有些不快，该通知暗示你所做的事情已经给了第三方“对你的个人信息的广泛访问权”哦，还有“你应该删除它的访问权限，除非你确定你可以信任它。”
 

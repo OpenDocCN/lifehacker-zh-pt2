@@ -1,6 +1,6 @@
 # 布口罩、菜市场和 5G 塔是本周我们最关心的冠状病毒
 
-> 原文:[https://life hacker . com/cloth-masks-wet-markets-and-5g-towers-top-our-coronav-1842710361](https://lifehacker.com/cloth-masks-wet-markets-and-5g-towers-top-our-coronav-1842710361)
+> 原文：<https://lifehacker.com/cloth-masks-wet-markets-and-5g-towers-top-our-coronav-1842710361>
 
 欢迎回到我们的每周讨论主题，现在命名为冠状病毒圆桌会议。我想再一次听听你听到的关于我们现在的疫情的事情，特别是如果它让你去“嗯，那是真的吗？”
 

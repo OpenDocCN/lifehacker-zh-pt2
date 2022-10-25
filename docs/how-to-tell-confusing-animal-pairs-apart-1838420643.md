@@ -1,6 +1,6 @@
 # 如何区分易混淆的动物对
 
-> 原文:[https://life hacker . com/how-to-tell-foaming-animal-pairs-apart-1838420643](https://lifehacker.com/how-to-tell-confusing-animal-pairs-apart-1838420643)
+> 原文：<https://lifehacker.com/how-to-tell-confusing-animal-pairs-apart-1838420643>
 
 这个世界充满了各种形状和大小的动物，太多的这些动物很难与它们的亲戚区分开来。如果你在看纪录片，向窗外看，或者去远足，你可能会对你刚刚看到的特定生物感到困惑。
 

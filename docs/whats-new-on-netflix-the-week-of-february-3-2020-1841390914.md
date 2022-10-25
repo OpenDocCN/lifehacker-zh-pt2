@@ -1,6 +1,6 @@
 # 2020 年 2 月 3 日这一周网飞有什么新消息
 
-> 原文:[https://life hacker . com/whats-new-on-the-week-of-2-3-2020-1841390914](https://lifehacker.com/whats-new-on-netflix-the-week-of-february-3-2020-1841390914)
+> 原文：<https://lifehacker.com/whats-new-on-netflix-the-week-of-february-3-2020-1841390914>
 
 我们现在就跟你说实话:本周网飞的新股票一点也不令人兴奋。也就是说，除非你是网飞家庭原创内容的忠实粉丝(如果是这样，期待与*团队凯莉*和*裤衩队长*共度一周)。
 

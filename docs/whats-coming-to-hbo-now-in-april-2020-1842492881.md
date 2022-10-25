@@ -1,6 +1,6 @@
 # 2020 年 4 月，HBO 将迎来什么
 
-> 原文:[https://life hacker . com/whats-coming-to-HBO-now-in-April-2020-1842492881](https://lifehacker.com/whats-coming-to-hbo-now-in-april-2020-1842492881)
+> 原文：<https://lifehacker.com/whats-coming-to-hbo-now-in-april-2020-1842492881>
 
 如果你正在为 4 月份的居家日历准备一些可看的东西，HBO Now 正在增加许多新电影，帮助你快速填满它。
 

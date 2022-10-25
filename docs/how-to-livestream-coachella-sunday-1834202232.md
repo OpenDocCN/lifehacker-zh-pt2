@@ -1,6 +1,6 @@
 # 如何直播科切拉周日
 
-> 原文:[https://life hacker . com/how-to-live stream-coachella-Sunday-1834202232](https://lifehacker.com/how-to-livestream-coachella-sunday-1834202232)
+> 原文：<https://lifehacker.com/how-to-livestream-coachella-sunday-1834202232>
 
 科切拉的第二个周末正在加利福尼亚沙漠举行。如果您碰巧在这个国家的另一边，甚至是世界的另一边，您仍然可以观看一些活动。
 

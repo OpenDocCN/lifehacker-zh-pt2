@@ -1,6 +1,6 @@
 # 如何为你的周二捐赠找到有价值的组织
 
-> 原文:[https://life hacker . com/how-to-find-valued-organizations for-your-giving-tu-1840146878](https://lifehacker.com/how-to-find-worthwhile-organizations-for-your-giving-tu-1840146878)
+> 原文：<https://lifehacker.com/how-to-find-worthwhile-organizations-for-your-giving-tu-1840146878>
 
 网络星期一即将结束——这意味着大约是 [给周二](https://www.givingtuesday.org/) 的时间了，这一天通过给有价值的慈善机构捐款来纪念节日。
 

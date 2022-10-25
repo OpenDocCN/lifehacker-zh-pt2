@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:救命，我爱上了我的室友
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-help-ive-fall-for-my-室友-1839860129](https://kotaku.com/ask-dr-nerdlove-help-ive-fallen-for-my-roommate-1839860129)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-help-ive-fallen-for-my-roommate-1839860129>
 
 你好，你这个性感的费洛蒙幽灵，欢迎来到 [向 NerdLove](http://kotaku.com/askdrnerdlove) 博士提问，这是唯一一个来自外环昏暗酒吧的约会建议专栏。
 

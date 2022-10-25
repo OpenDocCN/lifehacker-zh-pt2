@@ -1,6 +1,6 @@
 # 如何在航班上获得更好的登机团
 
-> 原文:[https://life hacker . com/how-to-get-a-better-boarding-group-on-a-flight-1836970083](https://lifehacker.com/how-to-get-a-better-boarding-group-on-a-flight-1836970083)
+> 原文：<https://lifehacker.com/how-to-get-a-better-boarding-group-on-a-flight-1836970083>
 
 要在任何其他乘客之前登上美国航空公司的航班，你必须至少花费 45，000 美元——至少，这是围绕该航空公司最高精英地位的“礼宾钥匙”成员的传言，这些成员被带到一个秘密的、只有受邀才能参加的 basis⁠.(有了这种身份，乘客还可以获得额外待遇，比如进入休息室和快速安检，此外还有停机坪上的凯迪拉克护送服务。)
 

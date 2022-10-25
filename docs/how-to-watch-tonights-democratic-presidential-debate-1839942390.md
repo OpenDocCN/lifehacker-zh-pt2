@@ -1,6 +1,6 @@
 # 如何观看今晚的民主党总统候选人辩论
 
-> 原文:[https://life hacker . com/how-to-watch-tonights-democratic-president-debate-1839942390](https://lifehacker.com/how-to-watch-tonights-democratic-presidential-debate-1839942390)
+> 原文：<https://lifehacker.com/how-to-watch-tonights-democratic-presidential-debate-1839942390>
 
 又到了 2020 年民主党总统候选人辩论的时候了。这一轮，我们将见证只有 10 名候选人登上佐治亚州亚特兰大市的舞台，代表着一群慢慢减少的合格总统候选人(尽管还有待观察 [德瓦尔·帕特里克和](https://lifehacker.com/where-do-deval-patrick-and-michael-bloomberg-stand-on-m-1839857136) 迈克尔·彭博将如何影响未来的辩论)。
 

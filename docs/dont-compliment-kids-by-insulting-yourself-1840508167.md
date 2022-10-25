@@ -1,6 +1,6 @@
 # 不要通过侮辱自己来恭维孩子
 
-> 原文:[https://life hacker . com/don-compliment-kids-by-contesting-yourself-1840508167](https://lifehacker.com/dont-compliment-kids-by-insulting-yourself-1840508167)
+> 原文：<https://lifehacker.com/dont-compliment-kids-by-insulting-yourself-1840508167>
 
 现在我们知道，当我们表扬孩子时，我们应该 [少关注天生的能力或智力](https://lifehacker.com/what-to-tell-kids-instead-of-youre-so-smart-1797303765) ，多关注努力。比如，“你做作业很努力！”相对于“你真聪明！”但是成年人有另一种称赞孩子的方式，我们也应该摒弃这种方式——通过与他们的能力比较来侮辱我们自己的能力。
 

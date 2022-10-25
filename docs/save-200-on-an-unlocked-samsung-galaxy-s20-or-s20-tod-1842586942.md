@@ -1,6 +1,6 @@
 # 立即购买解锁的三星 Galaxy S20 或 S20+,节省 200 美元
 
-> 原文:[https://life hacker . com/save-200-on-an-unlocked-Samsung-galaxy-s20-or-s20-tod-1842586942](https://lifehacker.com/save-200-on-an-unlocked-samsung-galaxy-s20-or-s20-tod-1842586942)
+> 原文：<https://lifehacker.com/save-200-on-an-unlocked-samsung-galaxy-s20-or-s20-tod-1842586942>
 
 三星(Samsung)的 Galaxy S20 和 S20+智能手机今天在不同的零售商处出售，价格比正常价格低 200 美元，尽管有些商品的价格高达 280 美元。
 

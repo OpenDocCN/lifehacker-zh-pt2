@@ -1,6 +1,6 @@
 # 所有你现在可以协商的议案
 
-> 原文:[https://life hacker . com/all-the-bills-you-can-near-now-1843859571](https://lifehacker.com/all-the-bills-you-can-negotiate-right-now-1843859571)
+> 原文：<https://lifehacker.com/all-the-bills-you-can-negotiate-right-now-1843859571>
 
 即使你在全球疫情期间感觉相当适应生活(或者直到本周 之前一直是 [)，你的财务也很有可能需要额外的关注。无论你是为了收支平衡而挣扎，还是只是想在不确定的时期存点钱，仍然有机会减少一些最大的经常性账单。](https://lifehacker.com/c/protesting)
 

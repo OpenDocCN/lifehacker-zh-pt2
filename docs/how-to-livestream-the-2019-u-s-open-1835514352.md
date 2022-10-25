@@ -1,6 +1,6 @@
 # 如何直播 2019 年美国公开赛
 
-> 原文:[https://life hacker . com/how-to-live stream-the-2019-u-s-open-1835514352](https://lifehacker.com/how-to-livestream-the-2019-u-s-open-1835514352)
+> 原文：<https://lifehacker.com/how-to-livestream-the-2019-u-s-open-1835514352>
 
 美国公开赛第一轮于昨天在圆石滩拉开帷幕，并将持续到周末。
 

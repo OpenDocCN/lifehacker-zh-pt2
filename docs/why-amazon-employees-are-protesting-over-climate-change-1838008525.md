@@ -1,6 +1,6 @@
 # 为什么亚马逊员工抗议气候变化
 
-> 原文:[https://life hacker . com/why-Amazon-employees-is-抗议气候变化-1838008525](https://lifehacker.com/why-amazon-employees-are-protesting-over-climate-change-1838008525)
+> 原文：<https://lifehacker.com/why-amazon-employees-are-protesting-over-climate-change-1838008525>
 
 9 月 20 日，1000 多名亚马逊员工——主要由该公司西雅图总部的员工组成——将走出亚马逊办公室，抗议该公司在气候变化问题上的不作为，这是更大规模的全球气候罢工 的一部分。由 16 岁的活动家格里塔·图恩伯格领导的这次罢工是对继续使用化石燃料及其在气候危机中的作用的抗议。
 

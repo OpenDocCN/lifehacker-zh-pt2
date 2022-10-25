@@ -1,6 +1,6 @@
 # 教孩子擦屁股的最好方法
 
-> 原文:[https://life hacker . com/教孩子擦屁股的最佳方法 1839135253](https://lifehacker.com/the-best-way-to-teach-your-kid-to-wipe-their-butt-1839135253)
+> 原文：<https://lifehacker.com/the-best-way-to-teach-your-kid-to-wipe-their-butt-1839135253>
 
 准确彻底地擦屁股是每个孩子——只要有能力——在进入成年之前都需要掌握的技能(在进入幼儿园之前就更好了，我想老师会告诉你)。但是向他们展示如何做也是一种个人行为，一种比许多人愿意被认为是好父母更进一步的 T2 行为。
 

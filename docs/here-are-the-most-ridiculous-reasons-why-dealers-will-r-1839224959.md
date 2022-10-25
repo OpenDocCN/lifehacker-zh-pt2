@@ -1,6 +1,6 @@
 # 以下是经销商拒绝发送书面报价的最荒谬的原因
 
-> 原文:[https://jalopnik . com/here-is-the-most-rally-reasons-why-dealers-will-r-1839224959](https://jalopnik.com/here-are-the-most-ridiculous-reasons-why-dealers-will-r-1839224959)
+> 原文：<https://jalopnik.com/here-are-the-most-ridiculous-reasons-why-dealers-will-r-1839224959>
 
 作为一名专业购车者，我在一年的时间里与数百家经销商进行了沟通。虽然他们中的大多数人都很好，但他们中的一些人显然鄙视整个网上购物的事情，并会凭空捏造一些疯狂的借口不透露他们的价格。
 

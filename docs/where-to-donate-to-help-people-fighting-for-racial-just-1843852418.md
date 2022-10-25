@@ -1,6 +1,6 @@
 # where to donate to help people fighting for racial just 1843852418
 
-> 原文:[https://life hacker . com/where-to-donate-to-help-people-fighting-for-race-just-1843852418](https://lifehacker.com/where-to-donate-to-help-people-fighting-for-racial-just-1843852418)
+> 原文：<https://lifehacker.com/where-to-donate-to-help-people-fighting-for-racial-just-1843852418>
 
 乔治·弗洛伊德在明尼阿波利斯被警察 杀害一个多星期后，全国各地的示威游行以种族公正的名义继续进行。以下是如何捐款给一个积极致力于反对警察暴力和种族不公正的事业。其中包括:
 

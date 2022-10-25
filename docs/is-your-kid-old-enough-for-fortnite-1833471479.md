@@ -1,6 +1,6 @@
 # is your kid old enough for fortnite 1833471479
 
-> 原文:[https://life hacker . com/1833471479](https://lifehacker.com/is-your-kid-old-enough-for-fortnite-1833471479)
+> 原文：<https://lifehacker.com/is-your-kid-old-enough-for-fortnite-1833471479>
 
 如果你有一个五岁以上的孩子，我肯定你听说过*堡垒之夜:皇室战争*。我相信你已经听说过很多次了，就像每次他们张开他们该死的嘴。这是每一个第一世界的孩子都非常熟悉的普遍趋势之一。每个孩子要么玩它，想玩它，要么已经玩它，并转移到下一个趋势。但是你的孩子够大了吗？
 

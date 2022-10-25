@@ -1,6 +1,6 @@
 # 烘烤是更好的虾鸡尾酒的关键
 
-> 原文:[https://life hacker . com/baking-is-the-key to-a-better-shrimp-cocktail-1831578031](https://lifehacker.com/roasting-is-the-key-to-a-better-shrimp-cocktail-1831578031)
+> 原文：<https://lifehacker.com/roasting-is-the-key-to-a-better-shrimp-cocktail-1831578031>
 
 我想不出我不喜欢的虾菜，但我吸入虾鸡尾酒的速度是惊人的。这道菜只有两种成分——虾和酱——所以做一道好的虾鸡尾酒就是要最大限度地增加每一种的味道。要做到这一点，你需要做一些烘烤(和腌制)。
 

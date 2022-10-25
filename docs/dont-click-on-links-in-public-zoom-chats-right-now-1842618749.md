@@ -1,6 +1,6 @@
 # 现在不要点击公开缩放聊天中的链接
 
-> 原文:[https://life hacker . com/don-t-click-on-links-in-public-zoom-chats-right-now-1842618749](https://lifehacker.com/dont-click-on-links-in-public-zoom-chats-right-now-1842618749)
+> 原文：<https://lifehacker.com/dont-click-on-links-in-public-zoom-chats-right-now-1842618749>
 
 Zoom 将 URL 转换为超链接的方式中恰好存在一个漏洞，黑客可以使用该漏洞来收集您的 Windows 登录凭据，并可能远程访问您的桌面。在 Zoom 解决这个问题之前，忍住点击来自你不信任的人的网址的冲动——也就是你参加的所有公开的 Zoom 会议，以避免冠状病毒引起的无聊。
 

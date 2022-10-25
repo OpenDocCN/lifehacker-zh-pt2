@@ -1,6 +1,6 @@
 # 你真的需要预算
 
-> 原文:[https://life hacker . com/you-really-do-need-a-budget-1843440246](https://lifehacker.com/you-really-do-need-a-budget-1843440246)
+> 原文：<https://lifehacker.com/you-really-do-need-a-budget-1843440246>
 
 预算是基础。这看起来像是个人理财 101 课，让我们面对现实吧，预算指南的书籍封面和营销似乎更针对中学生，而不是你，一个有能力的成年人，不知何故通常设法有足够的钱来买东西。
 

@@ -1,6 +1,6 @@
 # 你的 401(k)账户余额中有多少是你的？
 
-> 原文:[https://life hacker . com/401-k-balance-实际上是你的-1832759715](https://lifehacker.com/how-much-of-your-401-k-balance-is-actually-yours-1832759715)
+> 原文：<https://lifehacker.com/how-much-of-your-401-k-balance-is-actually-yours-1832759715>
 
 如果你已经向 401(k)或个人退休账户缴款几年了，你可能会对目前的余额感到满意。你知道，以一种模糊的方式，当你支出时，你将不得不支付某种税，但这被你朝着退休目标取得的进展所掩盖。看看你正在积累的财富！
 

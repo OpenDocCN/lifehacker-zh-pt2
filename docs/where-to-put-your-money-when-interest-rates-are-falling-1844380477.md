@@ -1,6 +1,6 @@
 # 当利率下降时，你该把钱投到哪里
 
-> 原文:[https://life hacker . com/当利率下降时你的钱该放在哪里-1844380477](https://lifehacker.com/where-to-put-your-money-when-interest-rates-are-falling-1844380477)
+> 原文：<https://lifehacker.com/where-to-put-your-money-when-interest-rates-are-falling-1844380477>
 
 如果你一直在关注你的储蓄账户，你可能已经注意到过去一年里利率在下降。利率可能会受到经济和竞争银行间利率等因素的影响。然而，对利率影响最大的是美联储，也就是美联储。
 

@@ -1,6 +1,6 @@
 # outrageous beauty gadgets that failed 1833329827
 
-> 原文:[https://gizmodo . com/airlines-beauty-gadgets-that-failed-1833329827](https://gizmodo.com/outrageous-beauty-gadgets-that-failed-1833329827)
+> 原文：<https://gizmodo.com/outrageous-beauty-gadgets-that-failed-1833329827>
 
 你很丑，如果你没注意到，细读美国化妆品营销史会指出你无数的缺点，直到你觉得上帝诅咒了你。它告诉你你的基因特征不性感，然后让你为此付出代价。它否认科学。这是种族隔离。它在性方面迷恋儿童的身体特征。它支持自我造成的痛苦，并将手术刀添加到普通自我维护工具的手提包中。它燃烧，刺痛，刺痛，刺激，偶尔会导致癌症。是美。
 

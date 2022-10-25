@@ -1,6 +1,6 @@
 # 如何在不降低质量的情况下减小谷歌 Pixel 4 上的视频文件大小
 
-> 原文:[https://life hacker . com/how-to-reduce-video-file-sizes-on-Google-pixel-4-with o-1839326135](https://lifehacker.com/how-to-reduce-video-file-sizes-on-googles-pixel-4-witho-1839326135)
+> 原文：<https://lifehacker.com/how-to-reduce-video-file-sizes-on-googles-pixel-4-witho-1839326135>
 
 谷歌的 [Pixel 4 和 4 XL](https://lifehacker.com/how-the-leaked-pixel-4-stacks-up-against-other-smartpho-1838782478) 智能手机明天正式上市。虽然大多数人在这一点上可能可以自己设置他们的设备，但如果你热衷于拍摄视频，有一个小设置你会想知道——它将帮助你在不牺牲视频质量的情况下节省设备空间。
 

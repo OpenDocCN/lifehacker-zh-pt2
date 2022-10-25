@@ -1,6 +1,6 @@
 # 你的笑话不再好笑了
 
-> 原文:[https://life hacker . com/your-says-not-funny-more-1838498517](https://lifehacker.com/your-jokes-not-funny-anymore-1838498517)
+> 原文：<https://lifehacker.com/your-jokes-not-funny-anymore-1838498517>
 
 “我伺候宴席。许多中年男人在给他们的奶油鸡肉配上菰米时，都会对我说同样的笑话:“你是如何驯服菰米的？””Reddit 用户 Krisperrr 在回答这个问题时说:[“‘它没有扫描，所以它一定是你职业的自由户户户’是什么？](https://www.reddit.com/r/AskReddit/comments/d91j1e/noncashiers_of_reddit_whats_the_it_didnt_scan_so/)
 

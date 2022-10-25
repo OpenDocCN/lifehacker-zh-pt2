@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:我的主菜不可原谅地迟到了，而我得到的只是免费的甜点
 
-> 原文:[https://the take out . com/my-entree-inerable-late-all-I-get-was-free-dessert-1834816808](https://thetakeout.com/my-entree-inexcusably-late-all-i-got-was-free-dessert-1834816808)
+> 原文：<https://thetakeout.com/my-entree-inexcusably-late-all-i-got-was-free-dessert-1834816808>
 
 > 亲爱的 Salty，我最近去了一家不错的餐厅:不是特别高档，但却是约会或商务晚餐的好去处。
 > 

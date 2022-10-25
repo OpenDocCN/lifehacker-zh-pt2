@@ -1,6 +1,6 @@
 # 这个 Chrome 扩展让网飞看起来像一个电话会议
 
-> 原文:[https://life hacker . com/this-chrome-extension-makes-like-a-conference-1836583676](https://lifehacker.com/this-chrome-extension-makes-netflix-look-like-a-confere-1836583676)
+> 原文：<https://lifehacker.com/this-chrome-extension-makes-netflix-look-like-a-confere-1836583676>
 
 有时你想看网飞，但需要在离散的一边观看。例如，如果你的电脑屏幕看起来像是在电话会议上与另一个办公室的人交谈，而不是看着办公室，这可能会有所帮助。
 

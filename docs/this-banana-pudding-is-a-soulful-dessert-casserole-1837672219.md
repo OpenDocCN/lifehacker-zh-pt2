@@ -1,6 +1,6 @@
 # 这款香蕉布丁是一道深情的砂锅甜点
 
-> 原文:[https://life hacker . com/this-banana-pudding-is-a-southful-dessert-sarbang-1837672219](https://lifehacker.com/this-banana-pudding-is-a-soulful-dessert-casserole-1837672219)
+> 原文：<https://lifehacker.com/this-banana-pudding-is-a-soulful-dessert-casserole-1837672219>
 
 当我的编辑 [在推特上为砂锅菜](https://twitter.com/clairelizzie/status/1115685157342597120) 做宣传时，我陷入了疯狂状态。“我是吃灵魂食物长大的，”我喃喃自语。"砂锅不是灵魂食物。"我错了。我最喜欢的甜点——香蕉布丁——是典型的灵魂食物甜点。无论是方法还是容器都是砂锅。
 

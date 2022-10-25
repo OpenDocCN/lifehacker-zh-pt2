@@ -1,6 +1,6 @@
 # 用啤酒烹饪的统一理论只有一个简单的规则
 
-> 原文:[https://the take out . com/unified-theory-of cooking-with-beer-rule-guide-1838149318](https://thetakeout.com/unified-theory-of-cooking-with-beer-rule-guide-1838149318)
+> 原文：<https://thetakeout.com/unified-theory-of-cooking-with-beer-rule-guide-1838149318>
 
 虽然将啤酒与特定的食物搭配起来介于艺术和科学之间，但将啤酒作为一种配料来烹饪却不那么费力。我做过 [熟](https://thetakeout.com/what-s-the-best-beer-to-cook-with-1829392862) 和 [啤酒烤](https://thetakeout.com/recipe-breakfast-stout-muffins-beer-baking-1829345041) ，虽然后者需要精确和深谋远虑——毕竟是烘烤——但前者非常简单。记住一条关键规则，你就很难被引入歧途。
 

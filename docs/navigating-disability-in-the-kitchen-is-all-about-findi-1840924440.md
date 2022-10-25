@@ -1,6 +1,6 @@
 # navigating disability in the kitchen is all about findi 1840924440
 
-> 原文:[https://the take out . com/navigating-disability-in-the-kitchen-is-all-about-findi-1840924440](https://thetakeout.com/navigating-disability-in-the-kitchen-is-all-about-findi-1840924440)
+> 原文：<https://thetakeout.com/navigating-disability-in-the-kitchen-is-all-about-findi-1840924440>
 
 我敏锐地意识到这样一个事实，当我拿着一把刀时，它经常让人紧张。我知道为什么:我有一种神经紊乱，最明显的表现是明显的运动性震颤。我的手变得如此颤抖，以至于我经常无法使用笔、电话键盘或其他基于精细运动技能的常用工具。因此，当我看着一把锋利的切肉刀在我的一只手套里抽动和跳动，而另一只手按住比如说一个洋葱时，很容易担心我可能会砍掉一个手指。或者掉在我脚上。或者伤害自己或他人。
 

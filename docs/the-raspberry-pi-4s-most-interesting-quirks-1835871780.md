@@ -1,6 +1,6 @@
 # 树莓派 4 最有趣的怪癖
 
-> 原文:[https://life hacker . com/the-raspberry-pi-4s-most-interest-quirks-1835871780](https://lifehacker.com/the-raspberry-pi-4s-most-interesting-quirks-1835871780)
+> 原文：<https://lifehacker.com/the-raspberry-pi-4s-most-interesting-quirks-1835871780>
 
 [Lifehacker's Complete Guide to Raspberry Pi](https://raspberrypiguide.kinja.com)) : title[![](../Images/051582a87daf38ca09cf7f704ce5f720.png)](https://raspberrypiguide.kinja.com)[Lifehacker's Complete Guide to Raspberry Pi](https://raspberrypiguide.kinja.com)Everyone wants a tiny little computer that can do it all, but how do you get started? Use this guide to master your brand-new Raspberry Pi.
 

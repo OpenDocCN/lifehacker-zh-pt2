@@ -1,6 +1,6 @@
 # 现在就点你的节日烤肉吧
 
-> 原文:[https://life hacker . com/order-your-fancy-holiday-bake-now-1840237978](https://lifehacker.com/order-your-fancy-holiday-roast-now-1840237978)
+> 原文：<https://lifehacker.com/order-your-fancy-holiday-roast-now-1840237978>
 
 由于感恩节菜单的有限性，即使你等到最后一刻，也不可能在这个大日子里买到火鸡。(然而，解冻是另一个话题。)你在圣诞晚餐上有更多的回旋余地，这意味着你可能会想象烤排骨、一顶羊冠，甚至是一只又大又肥的鹅 。我给你的建议？现在就订购*。*
 

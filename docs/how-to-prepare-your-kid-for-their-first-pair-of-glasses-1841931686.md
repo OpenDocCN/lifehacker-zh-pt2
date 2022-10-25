@@ -1,6 +1,6 @@
 # 如何让你的孩子准备好戴第一副眼镜
 
-> 原文:[https://life hacker . com/how-to-prepare-your kid for-their ' s first-pair-1841931686](https://lifehacker.com/how-to-prepare-your-kid-for-their-first-pair-of-glasses-1841931686)
+> 原文：<https://lifehacker.com/how-to-prepare-your-kid-for-their-first-pair-of-glasses-1841931686>
 
 当我 9 岁的儿子第一次提到他看不清电视底部对面的篮球比分时，我的心不可否认地沉了一下。作为一个几乎终身佩戴眼镜和隐形眼镜的人——我在我儿子现在的年龄得到了我的第一副眼镜——我想他可能会在某个时候需要它们。但我希望他未来至少还能有几年没有相框。
 

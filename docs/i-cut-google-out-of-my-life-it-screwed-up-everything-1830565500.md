@@ -1,6 +1,6 @@
 # i cut google out of my life it screwed up everything 1830565500
 
-> 原文:[https://gizmodo . com/I-cut-Google-out-of-my-life-it-up-everything-everything-1830565500](https://gizmodo.com/i-cut-google-out-of-my-life-it-screwed-up-everything-1830565500)
+> 原文：<https://gizmodo.com/i-cut-google-out-of-my-life-it-screwed-up-everything-1830565500>
 
 第三周:谷歌
 

@@ -1,6 +1,6 @@
 # 为什么你现在需要一个家庭舞会
 
-> 原文:[https://life hacker . com/why-you-need-a-home-dance-party-right-now-1842413311](https://lifehacker.com/why-you-need-an-at-home-dance-party-right-now-1842413311)
+> 原文：<https://lifehacker.com/why-you-need-an-at-home-dance-party-right-now-1842413311>
 
 还有谁现在压力有点大？这些天来，有些时刻，我感到被焦虑、沮丧、愤怒或失望所压倒，以至于我不能做任何其他事情，只能坐着感受我的感受，让自己去感受它。
 

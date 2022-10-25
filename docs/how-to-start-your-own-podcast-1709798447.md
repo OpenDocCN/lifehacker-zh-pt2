@@ -1,6 +1,6 @@
 # how to start your own podcast 1709798447
 
-> 原文:[https://life hacker . com/how-to-start-your-own-podcast-1709798447](https://lifehacker.com/how-to-start-your-own-podcast-1709798447)
+> 原文：<https://lifehacker.com/how-to-start-your-own-podcast-1709798447>
 
 对于我们中的许多人来说，当我们在健身、通勤或做家务时，播客是获取新闻或娱乐的最受欢迎的方式。你可能有一个(或七个)你经常关注的最爱。
 

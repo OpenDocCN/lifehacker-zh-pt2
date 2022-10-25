@@ -1,6 +1,6 @@
 # 以下是如何强制召回汽车的方法
 
-> 原文:[https://jalopnik . com/heres-how-possible-force-a-recall-on-your-car-1830938474](https://jalopnik.com/heres-how-to-possibly-force-a-recall-on-your-car-1830938474)
+> 原文：<https://jalopnik.com/heres-how-to-possibly-force-a-recall-on-your-car-1830938474>
 
 你正在开车，你的车发生了可怕的事情:你的刹车失灵或方向盘失灵，你被迫离开道路，希望不要在这个过程中死去。你了解到其他人也有同样的问题，但国家公路交通安全管理局似乎并不太关心。但是，正如《纽约时报》报道的 ，有一种鲜为人知的方法可以改变这种情况。
 

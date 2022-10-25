@@ -1,6 +1,6 @@
 # MoviePass 客户:检查您的信用卡账单，看是否有欺诈性收费
 
-> 原文:[https://life hacker . com/movie pass-customers-check-your-credit-card-statements-1837441795](https://lifehacker.com/moviepass-customers-check-your-credit-card-statements-1837441795)
+> 原文：<https://lifehacker.com/moviepass-customers-check-your-credit-card-statements-1837441795>
 
 如果你是 MoviePass 的顾客，你可能需要格外仔细地看看你的信用卡账单 — 或者考虑完全更换你的信用卡。
 

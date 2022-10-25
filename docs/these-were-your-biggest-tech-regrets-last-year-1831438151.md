@@ -1,6 +1,6 @@
 # 这些是你去年最大的科技遗憾
 
-> 原文:[https://life hacker . com/这些是你去年最大的科技遗憾 1831438151](https://lifehacker.com/these-were-your-biggest-tech-regrets-last-year-1831438151)
+> 原文：<https://lifehacker.com/these-were-your-biggest-tech-regrets-last-year-1831438151>
 
 Wifi 扩展器。二手 CPU。一个“废物”点燃火焰。Lifehacker 的读者一般都很聪明、机敏，这在一定程度上要归功于他们每周享用的生产率技巧自助餐。尽管如此，即使是最优秀的人也会犯错。
 

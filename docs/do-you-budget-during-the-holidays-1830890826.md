@@ -1,6 +1,6 @@
 # 你在假期做预算吗？
 
-> 原文:[https://life hacker . com/do-you-budget-in-the-holiday-1830890826](https://lifehacker.com/do-you-budget-during-the-holidays-1830890826)
+> 原文：<https://lifehacker.com/do-you-budget-during-the-holidays-1830890826>
 
 节日送礼已经失控了。
 

@@ -1,6 +1,6 @@
 # 如何帮助癫痫发作的人
 
-> 原文:[https://life hacker . com/how-to-help-someone-that-happen-happen-1839980893](https://lifehacker.com/how-to-help-somebody-who-is-having-a-seizure-1839980893)
+> 原文：<https://lifehacker.com/how-to-help-somebody-who-is-having-a-seizure-1839980893>
 
 癫痫比你想象的更常见——每 26 个人中就有 1 人在一生中被诊断出——癫痫也可能因其他原因发生。总的来说，十分之一的人会在一生中的某个时候癫痫发作。根据癫痫基础 ，当它发生的时候，如果你在那里，你应该这么做。
 

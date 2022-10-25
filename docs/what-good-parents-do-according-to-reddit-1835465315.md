@@ -1,6 +1,6 @@
 # 据 Reddit 报道，好父母会做什么
 
-> 原文:[https://life hacker . com/what-good-parents-do-by-Reddit-1835465315](https://lifehacker.com/what-good-parents-do-according-to-reddit-1835465315)
+> 原文：<https://lifehacker.com/what-good-parents-do-according-to-reddit-1835465315>
 
 Reddit 用户[moon unknown](https://www.reddit.com/user/moonunknown/)[写道](https://www.reddit.com/r/AskReddit/comments/bxewvp/children_of_good_parents_what_did_your_parents_do/eq83dkl/?context=3) “我没有在一个幸福的家庭长大，我见过很多有类似经历的人。我想一定有父母做得很好。我想做一个好父母。”
 

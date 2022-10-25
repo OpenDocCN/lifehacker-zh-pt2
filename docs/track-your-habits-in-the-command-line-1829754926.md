@@ -1,6 +1,6 @@
 # 在命令行中跟踪您的习惯
 
-> 原文:[https://life hacker . com/track-your-habits-in-the-command-line-1829754926](https://lifehacker.com/track-your-habits-in-the-command-line-1829754926)
+> 原文：<https://lifehacker.com/track-your-habits-in-the-command-line-1829754926>
 
 极简习惯跟踪器 [habitctl](https://github.com/blinry/habitctl) 运行在命令行中。(如果你不知道 [命令行是什么](https://lifehacker.com/a-command-line-primer-for-beginners-5633909) ，这不是给你的工具。)因此，它是你可以使用的最简单的习惯跟踪器之一，同时仍然比文本文件更复杂(这是开发人员塞巴斯蒂安·莫尔以前的习惯跟踪方法)。
 

@@ -1,6 +1,6 @@
 # 你现在可以免费观看大量的 HBO 节目
 
-> 原文:[https://life hacker . com/you-can-watch-on-ton-of-HBO-shows-free-now-1842679805](https://lifehacker.com/you-can-watch-a-ton-of-hbo-shows-for-free-right-now-1842679805)
+> 原文：<https://lifehacker.com/you-can-watch-a-ton-of-hbo-shows-for-free-right-now-1842679805>
 
 由于美国很大一部分人都被命令呆在家里，HBO 正在通过免费播放大量内容来让呆在家里变得更有娱乐性。
 

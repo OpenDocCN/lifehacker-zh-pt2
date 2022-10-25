@@ -1,6 +1,6 @@
 # 试试这些来自建筑大师的迷你乐高挑战
 
-> 原文:[https://life hacker . com/try-these-mini-Lego-challenges-from-master-builders-1843344193](https://lifehacker.com/try-these-mini-lego-challenges-from-master-builders-1843344193)
+> 原文：<https://lifehacker.com/try-these-mini-lego-challenges-from-master-builders-1843344193>
 
 你最近的乐高情况如何？在我家里，t he LEGO 在疫情期间增长了如此之多,以至于我不得不在地下室创建额外的展示架，因为我儿子的 LEGO 桌子、梳妆台、书架和窗台不再足以展示他所有的最爱。(我还计划在我的家庭办公室里放一些架子来展示他的霍格沃茨魔法学校和其他哈利波特作品，但我对此不感兴趣。)
 

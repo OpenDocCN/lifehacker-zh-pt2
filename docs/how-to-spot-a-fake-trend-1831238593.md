@@ -1,6 +1,6 @@
 # 如何识别虚假趋势
 
-> 原文:[https://lifehacker.com/how-to-spot-a-fake-trend-1831238593](https://lifehacker.com/how-to-spot-a-fake-trend-1831238593)
+> 原文：<https://lifehacker.com/how-to-spot-a-fake-trend-1831238593>
 
 [脚踝围巾](https://www.countryliving.com/shopping/a25633668/ankle-scarves-winter-fashion-trend/) ！多么可笑的趋势！推特用户互相询问，像“脚踝围巾”这样愚蠢的东西怎么可能是真的。“嗯——我不敢透露这一点，因为许多真正的媒体都上当了——这不是真的。这是一个明显的笑话。这是它如何在社交媒体上被清洗成一种“疯狂趋势”供每个人嘲笑和愤怒。
 

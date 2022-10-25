@@ -1,6 +1,6 @@
 # 我如何将我所有的电子邮件保存为个人备份？
 
-> 原文:[https://life hacker . com/how-can-I-save-all-my-emails-for-a-personal-backup-5990556](https://lifehacker.com/how-can-i-save-all-my-emails-for-a-personal-backup-5990556)
+> 原文：<https://lifehacker.com/how-can-i-save-all-my-emails-for-a-personal-backup-5990556>
 
 无论是在离职之前还是之后，拥有一份工作邮件的个人副本肯定会派上用场。你以后可以参考它们，例如，记录你收到的反馈或你参与的项目——也许是你下一次演出的样本。
 

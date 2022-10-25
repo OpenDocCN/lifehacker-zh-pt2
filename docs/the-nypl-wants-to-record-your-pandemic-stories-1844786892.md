@@ -1,6 +1,6 @@
 # NYPL 想要记录你的疫情故事
 
-> 原文:[https://life hacker . com/the-nypl-wants-to-record-your-疫情-stories-1844786892](https://lifehacker.com/the-nypl-wants-to-record-your-pandemic-stories-1844786892)
+> 原文：<https://lifehacker.com/the-nypl-wants-to-record-your-pandemic-stories-1844786892>
 
 当新冠肺炎·疫情 的 [在三月和四月真正在美国拉开帷幕的时候，我们还在琢磨所有的事情。我们被封锁了。一切都很怪异和恐怖(尤其是在纽约和东海岸的其他地方)。而我们](https://vitals.lifehacker.com/were-still-in-the-first-wave-1844531694) [只是想要一些卫生纸](https://lifehacker.com/find-out-how-long-your-toilet-paper-stash-will-last-wit-1842396535) 。当我们进入五月，很明显(对大多数人来说)疫情不会很快去任何地方。现在是八月，我们明白这就是我们在可预见的未来 的现实 [。](https://vitals.lifehacker.com/prepare-now-for-a-long-winter-1844778559)
 

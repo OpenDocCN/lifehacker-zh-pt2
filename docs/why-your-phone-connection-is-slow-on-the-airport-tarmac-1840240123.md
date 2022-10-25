@@ -1,6 +1,6 @@
 # 为什么你的电话连接在机场跑道上很慢
 
-> 原文:[https://life hacker . com/why-your-phone-connection-is-slow-on-the-airport-tarmac-1840240123](https://lifehacker.com/why-your-phone-connection-is-slow-on-the-airport-tarmac-1840240123)
+> 原文：<https://lifehacker.com/why-your-phone-connection-is-slow-on-the-airport-tarmac-1840240123>
 
 如果你曾经登上飞机，却发现你的电话连接突然中断，而你正试图在起飞前发短信，你并不孤单。这是一个困扰大多数乘客的问题，就在他们出发前或着陆后不久，就在他们最需要与外界联系的时候。一名旅行者 [在推特](https://twitter.com/biggiant001/status/1113908144110022657) 上写道:“每个人似乎都在着陆后立即看手机，我不知道他们是否开心地在线，或者像我一样一直试图刷新。”
 

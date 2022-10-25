@@ -1,6 +1,6 @@
 # 告诉我们你最糟糕的行为
 
-> 原文:[https://life hacker . com/tell-us-your-worst-behavior-1838147908](https://lifehacker.com/tell-us-your-worst-behavior-1838147908)
+> 原文：<https://lifehacker.com/tell-us-your-worst-behavior-1838147908>
 
 有一个 [著名的子场景](https://lifehacker.com/the-greatest-stories-from-the-am-i-the-asshole-subredd-1837987235) ，人们会告诉你是否在做一个混蛋。但有时你已经*知道*你是个混蛋，你不知道如何停止。
 

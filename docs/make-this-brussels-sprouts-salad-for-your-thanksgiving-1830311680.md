@@ -1,6 +1,6 @@
 # 为你的感恩节大餐做这道球芽甘蓝沙拉
 
-> 原文:[https://life hacker . com/make-this-球芽甘蓝-感恩节沙拉-1830311680](https://lifehacker.com/make-this-brussels-sprouts-salad-for-your-thanksgiving-1830311680)
+> 原文：<https://lifehacker.com/make-this-brussels-sprouts-salad-for-your-thanksgiving-1830311680>
 
 感恩节是奶油、黄油淀粉和块根蔬菜的盛宴，虽然我不会有任何其他方式，但以沙拉的形式提供某种新鲜的喘息是很好的——甚至是英雄式的。
 

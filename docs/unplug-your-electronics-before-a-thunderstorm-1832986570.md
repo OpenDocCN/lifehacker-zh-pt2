@@ -1,6 +1,6 @@
 # 雷雨来临前拔掉电子设备的电源
 
-> 原文:[https://life hacker . com/unplug-your-electronics-before-a-雷雨-1832986570](https://lifehacker.com/unplug-your-electronics-before-a-thunderstorm-1832986570)
+> 原文：<https://lifehacker.com/unplug-your-electronics-before-a-thunderstorm-1832986570>
 
 拐角处的坏天气？你可能不得不忍受一个没有电子干扰的雨天——也就是说，如果你还想在第二天打开电视的话。
 

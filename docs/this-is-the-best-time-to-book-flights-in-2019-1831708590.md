@@ -1,6 +1,6 @@
 # 这是 2019 年预订航班的最佳时机
 
-> 原文:[https://life hacker . com/this-is-the-best-time-to-book-flights-in-2019-1831708590](https://lifehacker.com/this-is-the-best-time-to-book-flights-in-2019-1831708590)
+> 原文：<https://lifehacker.com/this-is-the-best-time-to-book-flights-in-2019-1831708590>
 
 如果你打算很快买一张机票，你可能想设置一个闹钟。
 

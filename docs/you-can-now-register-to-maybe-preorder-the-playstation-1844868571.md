@@ -1,6 +1,6 @@
 # 为什么索尼的 PlayStation 5 预购是一个笑话
 
-> 原文:[https://life hacker . com/you-can-now-register-to-maybe-preorder-the-PlayStation-1844868571](https://lifehacker.com/you-can-now-register-to-maybe-preorder-the-playstation-1844868571)
+> 原文：<https://lifehacker.com/you-can-now-register-to-maybe-preorder-the-playstation-1844868571>
 
 我和你一样不喜欢预订。我当然不喜欢看到限量供应的商品以荒谬的标价直接进入易贝——甚至在上市日期之前。索尼在预计于 11 月发布的 PlayStation 5 上做得更好:预购预购。
 

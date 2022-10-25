@@ -1,6 +1,6 @@
 # 使用此 PowerShell 脚本快速免费将 Windows 7 升级到 Windows 10
 
-> 原文:[https://life hacker . com/quick-upgrade-windows-7-to-windows-10-with-t-1840843214](https://lifehacker.com/quickly-upgrade-windows-7-to-windows-10-for-free-with-t-1840843214)
+> 原文：<https://lifehacker.com/quickly-upgrade-windows-7-to-windows-10-for-free-with-t-1840843214>
 
 如果你正在读这篇文章，你可能知道如何将一个版本的 Windows 升级到另一个版本。即使这是一个简单的过程，观看 Windows 下载和安装仍然是乏味和无聊的，然后你必须花更多的时间在屏幕上移动和调整设置。*咩。*
 

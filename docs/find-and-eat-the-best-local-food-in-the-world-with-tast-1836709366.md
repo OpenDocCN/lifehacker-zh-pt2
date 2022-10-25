@@ -1,6 +1,6 @@
 # 用 TasteAtlas 找到并品尝世界上最好的当地食物
 
-> 原文:[https://life hacker . com/find-and-eat-the-best-local-food in-the-world-with-tast-1836709366](https://lifehacker.com/find-and-eat-the-best-local-food-in-the-world-with-tast-1836709366)
+> 原文：<https://lifehacker.com/find-and-eat-the-best-local-food-in-the-world-with-tast-1836709366>
 
 我渴望一大块鸡蛋面包，我责怪。这个巧妙的美食搜索网站识别世界各地的当地食物和饮料，然后向你展示最好的餐馆。所以现在我很想吃格鲁吉亚 khachapuri，Rocca Imperiale 柠檬和怡保白咖啡。
 

@@ -1,6 +1,6 @@
 # 对于偏爱手动挡的人来说，最好的自动挡是什么？
 
-> 原文:[https://jalopnik . com/what-is-the-best-automatic-transmission-for-people-who-1833318797](https://jalopnik.com/what-is-the-best-automatic-transmission-for-people-who-1833318797)
+> 原文：<https://jalopnik.com/what-is-the-best-automatic-transmission-for-people-who-1833318797>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。我决定挑几个问题，试着帮帮大家。本周，我们讨论了对于喜欢手动挡的人来说最好的自动变速器，捷豹品牌的风险，以及无法解释的经销商费用。
 

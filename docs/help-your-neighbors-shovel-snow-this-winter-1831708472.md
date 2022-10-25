@@ -1,6 +1,6 @@
 # 今年冬天帮你的邻居铲雪
 
-> 原文:[https://life hacker . com/help-your-neighbors-铲雪今冬-1831708472](https://lifehacker.com/help-your-neighbors-shovel-snow-this-winter-1831708472)
+> 原文：<https://lifehacker.com/help-your-neighbors-shovel-snow-this-winter-1831708472>
 
 今年冬天 [以创纪录的降雪](https://www.washingtonpost.com/weather/2018/10/16/record-early-season-cold-snow-have-taken-over-central-united-states/?utm_term=.79b9536391a2) 和冰冻的温度开始——我们甚至还没有过半，这意味着我们许多人都有几周或几个月的降雪(和铲雪)要期待。
 

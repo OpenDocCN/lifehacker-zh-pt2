@@ -1,6 +1,6 @@
 # 这就是为什么画一匹马这么难
 
-> 原文:[https://life hacker . com/heres-why-it ' s so hard-draw-a-horse-1835298491](https://lifehacker.com/heres-why-its-so-hard-to-draw-a-horse-1835298491)
+> 原文：<https://lifehacker.com/heres-why-its-so-hard-to-draw-a-horse-1835298491>
 
 《纽约客》漫画 [【如何画一匹马】](https://www.newyorker.com/humor/daily-shouts/how-to-draw-a-horse) 并不是真正的指南；这是一个关于年轻的爱情和自然之美以及将你的情感融入艺术的故事。但它也有画马的实际技巧！所以，如果你是一个在解剖学、运动或比例上苦苦挣扎的艺术家，去看看吧。
 

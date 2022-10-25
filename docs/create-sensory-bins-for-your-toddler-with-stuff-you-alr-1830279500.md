@@ -1,6 +1,6 @@
 # 用你已经有的东西为你的孩子创造感觉箱
 
-> 原文:[https://life hacker . com/create-sensory-bins-for-your-tuckly-you-ALR-1830279500](https://lifehacker.com/create-sensory-bins-for-your-toddler-with-stuff-you-alr-1830279500)
+> 原文：<https://lifehacker.com/create-sensory-bins-for-your-toddler-with-stuff-you-alr-1830279500>
 
 我儿子两岁时，我辞掉了全职工作，在家陪他。我很快就意识到，我需要简单、有创意的方法让他有事可做——但只靠一份收入。
 

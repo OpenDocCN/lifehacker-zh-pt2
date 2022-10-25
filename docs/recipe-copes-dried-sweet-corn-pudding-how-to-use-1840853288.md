@@ -1,6 +1,6 @@
 # 一袋玉米可以治愈隆冬的忧郁
 
-> 原文:[https://the take out . com/recipe-copes-dry-sweet-corn-pudding-how-to-use-1840853288](https://thetakeout.com/recipe-copes-dried-sweet-corn-pudding-how-to-use-1840853288)
+> 原文：<https://thetakeout.com/recipe-copes-dried-sweet-corn-pudding-how-to-use-1840853288>
 
 许多被困在隆冬萧瑟中的人梦想着成熟的西红柿、多汁的桃子，但是我梦想着玉米。甜玉米，当它终于在七月到来时，感觉就像是夏天对熬过冬天寒冷的回报。在我最喜欢的农场，你早上 10 点买的玉米在早上 6 点还在茎上，它是如此甜美多汁，既不需要黄油也不需要盐就能让你神魂颠倒。我一次买一打面包，蒸熟，热着吃，冷着吃，作为完美的午间提神点心。我把玉米粒从玉米棒上切下来，用棕色黄油炒，或者做成天鹅绒般的汤。我用玉米棒子做土豆玉米浓汤，或者把它们浸泡在水里，制成温和而奇怪的提神饮料。
 

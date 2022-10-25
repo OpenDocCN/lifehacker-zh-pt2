@@ -1,6 +1,6 @@
 # 如何协商你的薪水
 
-> 原文:[https://life hacker . com/how-to-negotiate-your-salary-1566202988](https://lifehacker.com/how-to-negotiate-your-salary-1566202988)
+> 原文：<https://lifehacker.com/how-to-negotiate-your-salary-1566202988>
 
 增加收入的最好方法之一是通过薪资谈判，无论是在你第一次得到这份工作的时候，还是在绩效评估期间。这可能会让你不舒服，但它是极其重要的。以下是如何在谈判中得到你想要的。
 

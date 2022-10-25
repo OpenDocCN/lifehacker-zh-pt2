@@ -1,6 +1,6 @@
 # 用 Alexa 的“等待”动作创建完美的午睡程序
 
-> 原文:[https://life hacker . com/use-alexas-wait-action-to-create-the-perfect-nap-routin-1830906145](https://lifehacker.com/use-alexas-wait-action-to-create-the-perfect-nap-routin-1830906145)
+> 原文：<https://lifehacker.com/use-alexas-wait-action-to-create-the-perfect-nap-routin-1830906145>
 
 我是例行程序的忠实粉丝——也就是说，数字例行程序，因为它们是一种便捷的方式来启动一系列动作，而不必在每次你想做某事时手动设置一切。
 

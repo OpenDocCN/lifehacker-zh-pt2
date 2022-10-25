@@ -1,6 +1,6 @@
 # 不要做你圣诞节可能会做的 DNA 测试
 
-> 原文:[https://gizmodo . com/don-take-the-DNA-test-you-likely-get-for-Christmas-1831068871](https://gizmodo.com/dont-take-the-dna-test-youll-probably-get-for-christmas-1831068871)
+> 原文：<https://gizmodo.com/dont-take-the-dna-test-youll-probably-get-for-christmas-1831068871>
 
 今年，你和你爱的人可能会看到的广告，想在这个假期送上一份大礼:由 23andMe、FamilyTreeDNA 和 Ancestry 等公司出售的比以往任何时候都便宜的家用 DNA 检测试剂盒。
 

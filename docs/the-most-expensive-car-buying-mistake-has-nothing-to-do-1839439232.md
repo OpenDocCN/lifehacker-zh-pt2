@@ -1,6 +1,6 @@
 # 最昂贵的购车错误与你的谈判水平无关
 
-> 原文:[https://jalopnik . com/the-most-high-piece-buying-mistake-not-do-1839439232](https://jalopnik.com/the-most-expensive-car-buying-mistake-has-nothing-to-do-1839439232)
+> 原文：<https://jalopnik.com/the-most-expensive-car-buying-mistake-has-nothing-to-do-1839439232>
 
 如果买家不小心的话，他们可能会犯很多错误，最终可能会让他们付出代价，包括不理解你的预算或比较交易。但是最大的错误。根据 Edmunds 的说法，经常出现在精明的购物者完成交易之后。
 

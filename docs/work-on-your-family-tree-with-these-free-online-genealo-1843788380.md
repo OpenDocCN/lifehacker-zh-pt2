@@ -1,6 +1,6 @@
 # 使用这些免费的在线家谱资源制作你的家谱
 
-> 原文:[https://life hacker . com/work-on-your-family-tree-with this-free-online-gene alo-1843788380](https://lifehacker.com/work-on-your-family-tree-with-these-free-online-genealo-1843788380)
+> 原文：<https://lifehacker.com/work-on-your-family-tree-with-these-free-online-genealo-1843788380>
 
 无论你来自一个自豪地在门厅展示他们的盾形纹章的家庭，还是对他们来自哪里知之甚少，你可能会对你的背景有一些疑问。由于冠状病毒疫情而被困在家里意味着我们可能有更多的时间，但进行系谱研究并不像简单的谷歌搜索那样简单。
 

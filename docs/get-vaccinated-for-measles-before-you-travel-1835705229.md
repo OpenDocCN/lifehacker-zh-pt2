@@ -1,6 +1,6 @@
 # 旅行前接种麻疹疫苗
 
-> 原文:[https://life hacker . com/出行前接种麻疹疫苗-1835705229](https://lifehacker.com/get-vaccinated-for-measles-before-you-travel-1835705229)
+> 原文：<https://lifehacker.com/get-vaccinated-for-measles-before-you-travel-1835705229>
 
 你可能不会想到欧洲是一个度假前需要接种疫苗的地方，但今年欧洲的麻疹病例创下历史新高 。疾控中心建议去美国以外的任何国家*旅行的人采取预防麻疹的措施，所以如果你计划夏季旅行，现在是检查你是否接种疫苗的好时机。*
 

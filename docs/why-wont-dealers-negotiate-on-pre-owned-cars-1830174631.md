@@ -1,6 +1,6 @@
 # 为什么经销商不会就二手车进行谈判？
 
-> 原文:[https://jalopnik . com/为什么-不-经销商-谈判-对预先拥有的汽车-1830174631](https://jalopnik.com/why-wont-dealers-negotiate-on-pre-owned-cars-1830174631)
+> 原文：<https://jalopnik.com/why-wont-dealers-negotiate-on-pre-owned-cars-1830174631>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。我决定挑几个问题，试着帮帮大家。本周，我们将讨论经销商在二手车上不谈判，从远处支付私人购买，以及认证奥迪 A6 库存的消失。
 

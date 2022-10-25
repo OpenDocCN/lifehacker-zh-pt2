@@ -1,6 +1,6 @@
 # Megabus 今天提供 20 万张免费票
 
-> 原文:[https://life hacker . com/megabus-is-offing-200-000-free-tickets-today-1840596235](https://lifehacker.com/megabus-is-offering-200-000-free-tickets-today-1840596235)
+> 原文：<https://lifehacker.com/megabus-is-offering-200-000-free-tickets-today-1840596235>
 
 如果你错过了 [Megabus 的网络星期一优惠](https://lifehacker.com/megabus-is-giving-away-200-000-free-tickets-on-cyber-mo-1840129980) ，公交公司再次 [提供一些相当便宜的票今天](https://us.megabus.com/free-seat-sale) 发售。
 

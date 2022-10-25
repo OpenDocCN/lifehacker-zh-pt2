@@ -1,6 +1,6 @@
 # 使用 Firefox Send 一次共享多达 2.5GB 的文件(免费)
 
-> 原文:[https://life hacker . com/share-up-to-2-5gb-a-once-for-free-with-fire-1833232502](https://lifehacker.com/share-up-to-2-5gb-of-files-at-once-for-free-with-fire-1833232502)
+> 原文：<https://lifehacker.com/share-up-to-2-5gb-of-files-at-once-for-free-with-fire-1833232502>
 
 有时，将一个文件(或一吨文件)转储到云存储服务中会容易得多，比如 [Box](https://www.box.com/) 或 [Dropbox](https://www.dropbox.com/) ，而不是试图将它们全部附在一封电子邮件中。或者你在网上搜寻任何数量的“免费文件上传”服务，这些服务承诺为你暂时保存数据。
 

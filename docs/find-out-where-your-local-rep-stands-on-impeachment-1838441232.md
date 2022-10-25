@@ -1,6 +1,6 @@
 # 找出你当地的代表对弹劾的立场
 
-> 原文:[https://life hacker . com/find-out-where-your-local-rep-stand-on-弹劾-1838441232](https://lifehacker.com/find-out-where-your-local-rep-stands-on-impeachment-1838441232)
+> 原文：<https://lifehacker.com/find-out-where-your-local-rep-stands-on-impeachment-1838441232>
 
 如果你错过了本周的新闻——完全避开了社交媒体——周二，众议院议长南希·佩洛西宣布对川普总统进行正式弹劾调查。这一声明是为了回应 [川普与乌克兰总统](https://www.cnn.com/2019/09/25/politics/donald-trump-ukraine-transcript/index.html?utm_content=2019-09-25T14%3A08%3A57&utm_term=image&utm_source=twCNNp&utm_medium=social) 的电话，以及一名白宫内部人士/举报者的更大投诉。
 

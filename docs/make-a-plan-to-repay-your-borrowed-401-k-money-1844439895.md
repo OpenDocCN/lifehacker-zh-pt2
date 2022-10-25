@@ -1,6 +1,6 @@
 # 制定一个偿还 401(k)贷款的计划
 
-> 原文:[https://life hacker . com/make-a-plan-to-return-your-born-401-k-money-1844439895](https://lifehacker.com/make-a-plan-to-repay-your-borrowed-401-k-money-1844439895)
+> 原文：<https://lifehacker.com/make-a-plan-to-repay-your-borrowed-401-k-money-1844439895>
 
 今年春天，国会通过了针对受疫情影响人群的关怀法案。这项具有里程碑意义的法案对那些面临经济困难的人有几项规定，其中包括一项针对那些希望从退休账户 借款的人的规定。新规则提供了对你的 401(k)计划的临时访问，处罚和限制较少。如果你已经借了 401(k)的钱，你可能要开始考虑你的回报策略了。不管你是担心工作保障还是收入损失，制定一个计划是很重要的。在你开始付款之前，有一些事情需要考虑。
 

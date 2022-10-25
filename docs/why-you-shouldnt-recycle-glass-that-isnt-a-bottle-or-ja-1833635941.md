@@ -1,6 +1,6 @@
 # 为什么你不应该回收不是瓶子或罐子的玻璃
 
-> 原文:[https://life hacker . com/why-you-should-recycle-glass-the-not-a-bottle-or-ja-1833635941](https://lifehacker.com/why-you-shouldnt-recycle-glass-that-isnt-a-bottle-or-ja-1833635941)
+> 原文：<https://lifehacker.com/why-you-shouldnt-recycle-glass-that-isnt-a-bottle-or-ja-1833635941>
 
 有没有你想扔掉的旧盘子或旧灯泡？可悲的是，简短的答案是，不是罐子或瓶子的玻璃制品不容易回收。事实上，通常情况下，把它们扔进垃圾桶比扔进回收站更好，因为回收站会对其他可回收物品造成严重破坏。
 

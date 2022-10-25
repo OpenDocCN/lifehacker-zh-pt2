@@ -1,6 +1,6 @@
 # 用自制的凝结奶油达到你的每日饱和脂肪配额
 
-> 原文:[https://the take out . com/recipe-how-to-make-manufacture-English-clotted-cream-scone-1841680991](https://thetakeout.com/recipe-how-to-make-homemade-english-clotted-cream-scone-1841680991)
+> 原文：<https://thetakeout.com/recipe-how-to-make-homemade-english-clotted-cream-scone-1841680991>
 
 *欢迎来到* [***饼干周***](https://thetakeout.com/tag/biscuit-week) *，这是一个特别的时刻，为了珍惜所有快速面包中最黄油和最心爱的。*T12】
 

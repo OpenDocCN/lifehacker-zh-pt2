@@ -1,6 +1,6 @@
 # 美国人去欧洲旅行的新规定
 
-> 原文:[https://life hacker . com/what-Americans-need-to-know-the-new-rules-for-tra-1833190723](https://lifehacker.com/what-americans-need-to-know-about-the-new-rules-for-tra-1833190723)
+> 原文：<https://lifehacker.com/what-americans-need-to-know-about-the-new-rules-for-tra-1833190723>
 
 从 2021 年开始，美国人，以及来自许多其他免签证国家的人，在他们能够访问一些欧洲国家之前，将不得不做更多的工作。现在，进入德国、法国和西班牙等地只需要你的美国护照，但在两年多一点的时间里，你还需要在出发前申请进入这些国家和其他几个国家。政策 [的变化实际上是在去年夏天](http://europa.eu/rapid/press-release_IP-18-4367_en.htm) 宣布的，但本周透露了关于该计划的更多细节。
 

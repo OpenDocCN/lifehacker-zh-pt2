@@ -1,6 +1,6 @@
 # 像对待意大利调味饭一样改善你的燕麦片
 
-> 原文:[https://life hacker . com/improve-your-oat-by-treating-it-like-risotto-1836279263](https://lifehacker.com/improve-your-oatmeal-by-treating-it-like-risotto-1836279263)
+> 原文：<https://lifehacker.com/improve-your-oatmeal-by-treating-it-like-risotto-1836279263>
 
 我是一个忠实的美味早餐食用者。虽然我喜欢吃糖，但是每天吃糖会导致各种各样的问题，而且我从来不会在醒来的时候想吃糖。出于这个原因，我一直避免吃燕麦粥，这是一种淡而无味的粥，通常掺有黄油、糖和其他适合做饼干的配料。
 

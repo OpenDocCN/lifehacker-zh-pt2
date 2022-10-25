@@ -1,6 +1,6 @@
 # 超级碗只对家电销售有好处
 
-> 原文:[https://life hacker . com/the-super-bowl-is-only-good-for appliance-sales-1841328268](https://lifehacker.com/the-super-bowl-is-only-good-for-appliance-sales-1841328268)
+> 原文：<https://lifehacker.com/the-super-bowl-is-only-good-for-appliance-sales-1841328268>
 
 如果你像我一样是一个“体育迷”，那么你会很乐意在周日做除了看球以外的任何事情(或者我假设欧洲人称之为 *soccer* )。
 

@@ -1,6 +1,6 @@
 # 如果没有应急基金，如何获得资金
 
-> 原文:[https://life hacker . com/how-to-get-money-if you don ' t-have-a emergency-fund-1833272029](https://lifehacker.com/how-to-get-money-if-you-dont-have-an-emergency-fund-1833272029)
+> 原文：<https://lifehacker.com/how-to-get-money-if-you-dont-have-an-emergency-fund-1833272029>
 
 金融危机 降临到我们每个人身上，当他们到来时，你会想要一笔钱来支付至少一部分你将会发生的费用。
 

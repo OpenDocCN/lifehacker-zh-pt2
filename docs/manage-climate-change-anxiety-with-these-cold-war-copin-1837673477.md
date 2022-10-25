@@ -1,6 +1,6 @@
 # manage climate change anxiety with these cold war copin 1837673477
 
-> 原文:[https://life hacker . com/manage-climate-change-anxiety-with thes-cold-war-copin-1837673477](https://lifehacker.com/manage-climate-change-anxiety-with-these-cold-war-copin-1837673477)
+> 原文：<https://lifehacker.com/manage-climate-change-anxiety-with-these-cold-war-copin-1837673477>
 
 对于许多观众来说，观看切尔诺贝利事故使围绕核威胁的普遍文化恐慌与面对气候变化的 T2 T3 和 T4 T5 之间的相似之处具体化了。对于资深活动家和治疗师来说，这种联系很明显已经有一段时间了。
 

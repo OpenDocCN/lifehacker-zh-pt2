@@ -1,6 +1,6 @@
 # 你在无消费月过得怎么样？
 
-> 原文:[https://life hacker . com/how-do-you-fare-in-you ' s-unspeed-month 1832192107](https://lifehacker.com/how-did-you-fare-during-your-no-spend-month-1832192107)
+> 原文：<https://lifehacker.com/how-did-you-fare-during-your-no-spend-month-1832192107>
 
 一月即将过去，我们的 [无消费月也随之结束](https://twocents.lifehacker.com/a-new-years-resolution-that-will-actually-improve-your-1831321233) 。你表现如何？
 

@@ -1,6 +1,6 @@
 # 用你的贪睡闹钟来练习早晨的正念
 
-> 原文:[https://life hacker . com/use-your-snooze-alarm-to-practice-morning-mindfulness-1840612039](https://lifehacker.com/use-your-snooze-alarm-to-practice-morning-mindfulness-1840612039)
+> 原文：<https://lifehacker.com/use-your-snooze-alarm-to-practice-morning-mindfulness-1840612039>
 
 下一次你的闹钟响起的时候，利用你九分钟的小睡时间来伸展一下，检查一下你自己，思考一下你希望从这一天中得到什么。
 

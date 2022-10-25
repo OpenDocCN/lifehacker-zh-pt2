@@ -1,6 +1,6 @@
 # 你应该和你的孩子摔跤
 
-> 原文:[https://life hacker . com/you-should-摔跤与你的孩子-1834204895](https://lifehacker.com/you-should-wrestle-with-your-kid-1834204895)
+> 原文：<https://lifehacker.com/you-should-wrestle-with-your-kid-1834204895>
 
 2015 年，当我和妻子把家从湾区搬到西雅图时，我们最初选定了一个价格过高但在其他方面不起眼的出租屋。它不够大，装不下我们需要的东西，送货卡车一直在门前的街道上呼啸而过，后院的苹果树——我想这应该是某种奖励——秋天时在院子里撒满了苦涩的、不能吃的团块。
 

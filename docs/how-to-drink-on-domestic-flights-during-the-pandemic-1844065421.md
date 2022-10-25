@@ -1,6 +1,6 @@
 # 疫情期间如何在国内航班上喝酒
 
-> 原文:[https://life hacker . com/how-to-drink-on-the-family-during-1844065421](https://lifehacker.com/how-to-drink-on-domestic-flights-during-the-pandemic-1844065421)
+> 原文：<https://lifehacker.com/how-to-drink-on-domestic-flights-during-the-pandemic-1844065421>
 
 即使我们在全球化的疫情中适应旅行的新常态，航空公司也在改变他们的政策，让机组人员更容易与乘客保持距离。他们这样做的方法之一是限制飞机上的小吃和饮料服务。不幸的是，对于嗜酒如命的旅客来说，主客舱将不再供应酒类。这显然很糟糕，因为在疫情期间飞行意味着你的焦虑水平也会非常高，你将无法点一杯鸡尾酒来缓解你的紧张情绪。
 

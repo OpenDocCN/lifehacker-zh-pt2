@@ -1,6 +1,6 @@
 # 使用 NOAA 的新应用程序了解更多关于地球生态和天气的信息
 
-> 原文:[https://life hacker . com/learn-more-about-earths-ecology-and-weather with-noaas-1837139943](https://lifehacker.com/learn-more-about-earths-ecology-and-weather-with-noaas-1837139943)
+> 原文：<https://lifehacker.com/learn-more-about-earths-ecology-and-weather-with-noaas-1837139943>
 
 美国国家海洋和大气管理局(NOAA)是一个科学的政府机构，主要关注海洋和水道以及地球大气的状况。
 

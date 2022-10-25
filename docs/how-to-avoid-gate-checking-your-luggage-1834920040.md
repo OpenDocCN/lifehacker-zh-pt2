@@ -1,6 +1,6 @@
 # 如何避免行李安检
 
-> 原文:[https://life hacker . com/how-to-avoid-gate-check-your-行李箱-1834920040](https://lifehacker.com/how-to-avoid-gate-checking-your-luggage-1834920040)
+> 原文：<https://lifehacker.com/how-to-avoid-gate-checking-your-luggage-1834920040>
 
 为什么有一百万个类别决定你什么时候登机？情报人员解释道:航空公司发现随机登机比前后登机更快，因为当人们收起行李并坐下时，它将人们分散在整个飞机上，而不是后部被包围，然后前部被包围。然后，航空公司意识到，一些乘客会为提前登机支付更多费用，从而保证他们可以在头顶上找到放行李的空间，而不会被迫接受登机口检查。
 

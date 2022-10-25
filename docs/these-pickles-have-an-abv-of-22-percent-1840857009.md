@@ -1,6 +1,6 @@
 # 这些泡菜的 ABV 值为 22%
 
-> 原文:[https://life hacker . com/these-pickles-have-an-an-a-abv-of-22 %- 1840857009](https://lifehacker.com/these-pickles-have-an-abv-of-22-percent-1840857009)
+> 原文：<https://lifehacker.com/these-pickles-have-an-abv-of-22-percent-1840857009>
 
 我认为自己是一个快速泡菜革新者。毕竟，是我给你带来了 [大咸菜](https://lifehacker.com/make-a-giant-jar-of-giant-pickles-with-a-giant-zucchini-1837209505) ，一种非常好的咸菜，也非常大。这次我真的超越了自己。我做了酒精泡菜，味道很好。
 

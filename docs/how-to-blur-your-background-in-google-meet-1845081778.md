@@ -1,6 +1,6 @@
 # 如何在 Google Meet 中模糊你的背景
 
-> 原文:[https://life hacker . com/how-to-blur-your-background-in-Google-meet-1845081778](https://lifehacker.com/how-to-blur-your-background-in-google-meet-1845081778)
+> 原文：<https://lifehacker.com/how-to-blur-your-background-in-google-meet-1845081778>
 
 谷歌正在为其当前的视频聊天应用程序、谷歌的 Meet 和 Duo 推出新功能。Meet 的更新包括一个新的背景模糊工具；它还现在允许用户在大型小组会议中使用“平铺视图”时查看多达 49 个摄像机画面。
 

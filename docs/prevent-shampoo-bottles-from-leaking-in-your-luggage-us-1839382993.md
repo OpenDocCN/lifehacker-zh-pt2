@@ -1,6 +1,6 @@
 # 用保鲜膜防止洗发水瓶子漏到你的行李里
 
-> 原文:[https://life hacker . com/prevent-shampoo-bottles-from-leak-in-your-行李箱-us-1839382993](https://lifehacker.com/prevent-shampoo-bottles-from-leaking-in-your-luggage-us-1839382993)
+> 原文：<https://lifehacker.com/prevent-shampoo-bottles-from-leaking-in-your-luggage-us-1839382993>
 
 我已经正式到达了人生的一个转折点，旅行需要随身携带一把液体化妆品。虽然我曾经对酒店提供的任何洗发水和润肤露都很满意，但现在我对这些东西更加挑剔了，这意味着我也必须对我的包装更加挑剔。
 

@@ -1,6 +1,6 @@
 # 如何过滤 iOS 上的 YouTube 订阅
 
-> 原文:[https://life hacker . com/how-to-filter-YouTube-subscriptions-on-IOs-1841022462](https://lifehacker.com/how-to-filter-youtube-subscriptions-on-ios-1841022462)
+> 原文：<https://lifehacker.com/how-to-filter-youtube-subscriptions-on-ios-1841022462>
 
 iOS 上的 [YouTube](https://apps.apple.com/us/app/youtube-watch-listen-stream/id544007664) 应用程序正在获得 [的升级订阅标签](https://9to5google.com/2020/01/14/youtube-subscriptions-filters/) ，这将使其更容易跟上你最喜欢的频道。
 

@@ -1,6 +1,6 @@
 # 如何在人们讲话时阻止群组 FaceTime 窗口调整大小
 
-> 原文:[https://life hacker . com/how-to-stop-group-face time-windows-from-resizing-when-p-1843572742](https://lifehacker.com/how-to-stop-group-facetime-windows-from-resizing-when-p-1843572742)
+> 原文：<https://lifehacker.com/how-to-stop-group-facetime-windows-from-resizing-when-p-1843572742>
 
 如果你最近进行过群组互动，那么你可能已经体验过让参与者的窗口根据谁在说话而改变的功能。这个想法类似于 Zoom 在默认情况下的做法，因为它会让说话者成为关注的焦点，但如果你正在与多人进行激烈的对话，它也会很快变得令人讨厌。
 

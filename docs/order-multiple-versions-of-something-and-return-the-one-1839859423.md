@@ -1,6 +1,6 @@
 # 订购某样东西的多个版本，并退回不想要的版本
 
-> 原文:[https://life hacker . com/order-multiple-versions-of-something-and-return-the-one-1839859423](https://lifehacker.com/order-multiple-versions-of-something-and-return-the-one-1839859423)
+> 原文：<https://lifehacker.com/order-multiple-versions-of-something-and-return-the-one-1839859423>
 
 我知道每种潜在产品都没有无限的版本，但有时感觉就是这样——所以当你在购买一件新毛衣、一个新电水壶或一盏新灯时，你怎么知道你选择的是最好的呢？
 

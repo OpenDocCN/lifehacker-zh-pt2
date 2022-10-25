@@ -1,6 +1,6 @@
 # 冠状病毒爆发期间，做好在家工作的准备
 
-> 原文:[https://life hacker . com/be-prepared-to-work-from-home-in-the-coronavirus-ou-1842088431](https://lifehacker.com/be-prepared-to-work-from-home-during-the-coronavirus-ou-1842088431)
+> 原文：<https://lifehacker.com/be-prepared-to-work-from-home-during-the-coronavirus-ou-1842088431>
 
 如果你明天醒来时收到老板的一封电子邮件，宣布办公室建议每个人在家工作，以防止冠状病毒传播，你能完成多少工作？
 

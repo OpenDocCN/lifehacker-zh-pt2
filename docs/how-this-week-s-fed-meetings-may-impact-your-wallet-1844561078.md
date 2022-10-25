@@ -1,6 +1,6 @@
 # 本周的美联储会议将如何影响你的钱包
 
-> 原文:[https://life hacker . com/how-this-week-s-fed-meetings-may-impact-your ' s wallet-1844561078](https://lifehacker.com/how-this-week-s-fed-meetings-may-impact-your-wallet-1844561078)
+> 原文：<https://lifehacker.com/how-this-week-s-fed-meetings-may-impact-your-wallet-1844561078>
 
 昨天， [美联储](https://www.federalreserve.gov/monetarypolicy/files/monetary20200729a1.pdf) 宣布将基准利率维持在接近于零的水平。“我们甚至没有考虑考虑加息，”美联储主席杰罗姆·鲍威尔在新闻发布会上说。随着冠状病毒病例继续激增，美联储还计划在年底前延长其贷款计划，但预计经济复苏将是一条漫长的道路。
 

@@ -1,6 +1,6 @@
 # 使用最短、最冷的洗涤周期来保存您的衣物
 
-> 原文:[https://life hacker . com/use-the-shortest-cold-wash-cycle-to-preserve-your-c-1844101617](https://lifehacker.com/use-the-shortest-coldest-wash-cycle-to-preserve-your-c-1844101617)
+> 原文：<https://lifehacker.com/use-the-shortest-coldest-wash-cycle-to-preserve-your-c-1844101617>
 
 当你买一件衣服时，通常的想法是尽可能让它看起来新。(这显然不适用于运动衫和睡眠 t 恤之类的东西，它们只会随着年龄和多次使用洗衣机而变得更好。)但是洗衣服是必要的，我们大多数人不像 90 年代情景喜剧中的人那样经常把衣服送到干洗店。我们知道反复洗涤不利于长寿，那么你如何保持你的衣服干净并且看起来相对较新呢？根据的一项新研究，这归结于你洗衣机上的时间和温度设置。
 

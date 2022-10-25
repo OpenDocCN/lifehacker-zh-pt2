@@ -1,6 +1,6 @@
 # 任天堂说停止用酒精清洗你的游戏机
 
-> 原文:[https://kotaku . com/Nintendo-says-stop-use-alcohol-clean-your-joy-cons-1842799882](https://kotaku.com/nintendo-says-stop-using-alcohol-to-clean-your-joy-cons-1842799882)
+> 原文：<https://kotaku.com/nintendo-says-stop-using-alcohol-to-clean-your-joy-cons-1842799882>
 
 你可能已经听说了目前正在进行的全球疫情。因此，你可能会用酒精和消毒湿巾之类的东西来清理你的东西，包括你的开关。任天堂说不要，至少如果你的首要任务不是破坏系统的完成。对许多人来说，可能不是。
 

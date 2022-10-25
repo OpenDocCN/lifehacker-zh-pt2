@@ -1,6 +1,6 @@
 # 疫情期间如何在家教育有特殊需求的孩子
 
-> 原文:[https://life hacker . com/how-to-home school-the-pa-1842593939](https://lifehacker.com/how-to-homeschool-kids-with-special-needs-during-the-pa-1842593939)
+> 原文：<https://lifehacker.com/how-to-homeschool-kids-with-special-needs-during-the-pa-1842593939>
 
 事实证明，在冠状病毒疫情期间，在家教育孩子对几乎所有参与者来说都是一场斗争，但这种新的教育现实对一个特殊群体来说尤为艰难:需要特殊教育的学生——以及他们的父母。
 

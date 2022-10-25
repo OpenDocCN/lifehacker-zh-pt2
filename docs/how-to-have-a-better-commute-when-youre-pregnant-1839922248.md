@@ -1,6 +1,6 @@
 # 怀孕时如何更好地通勤
 
-> 原文:[https://life hacker . com/how-to-have-a-better-commute-when you-treaty-1839922248](https://lifehacker.com/how-to-have-a-better-commute-when-youre-pregnant-1839922248)
+> 原文：<https://lifehacker.com/how-to-have-a-better-commute-when-youre-pregnant-1839922248>
 
 当你怀孕时，日常活动会增加额外的难度。你不能以舒适的姿势睡觉，也不能优雅地从坐着变成站着。工作——无论你是整天站着，还是连续八个小时坐在办公桌前——都是一种尝试。还有上下班？可能也不好玩。
 

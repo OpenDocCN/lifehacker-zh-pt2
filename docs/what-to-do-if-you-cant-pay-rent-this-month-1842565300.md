@@ -1,6 +1,6 @@
 # 如果你这个月付不出房租怎么办
 
-> 原文:[https://life hacker . com/what-do-if-you can-pay-rent-this-month-1842565300](https://lifehacker.com/what-to-do-if-you-cant-pay-rent-this-month-1842565300)
+> 原文：<https://lifehacker.com/what-to-do-if-you-cant-pay-rent-this-month-1842565300>
 
 虽然看起来没完没了，但 2020 年 3 月已经快过去了。这个月的第一天又来了，自从你上次付房租以来，发生了很多变化。我们在练习物理距离，政府通过了一项大法案来刺激经济，冠状病毒迫使 [失业率](https://www.washingtonpost.com/business/2020/03/26/unemployment-claims-coronavirus-3-million/) 创历史新高。
 

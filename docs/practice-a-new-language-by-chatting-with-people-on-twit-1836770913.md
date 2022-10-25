@@ -1,6 +1,6 @@
 # 通过在 Twitch 上与人聊天来练习一门新语言
 
-> 原文:[https://life hacker . com/practice-a-new-language-by-champing-on-the-people-twit-1836770913](https://lifehacker.com/practice-a-new-language-by-chatting-with-people-on-twit-1836770913)
+> 原文：<https://lifehacker.com/practice-a-new-language-by-chatting-with-people-on-twit-1836770913>
 
 学习一门新语言可能会很复杂，尤其是如果你没有地方练习你正在学习的新词汇和语言规则。
 

@@ -1,6 +1,6 @@
 # 如何确保你拿到你的冠状病毒救济金，即使你不需要报税
 
-> 原文:[https://life hacker . com/how-to-assure-you-get-you-coronavirus-relief-money-1842708182](https://lifehacker.com/how-to-make-sure-you-get-your-coronavirus-relief-money-1842708182)
+> 原文：<https://lifehacker.com/how-to-make-sure-you-get-your-coronavirus-relief-money-1842708182>
 
 救济款项定于本周开始发放，但对于谁得到了什么，以及政府需要哪些信息来处理你的付款，仍存在一些困惑。
 

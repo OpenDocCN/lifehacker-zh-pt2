@@ -1,6 +1,6 @@
 # 如果我从很远的地方买车，是发货好还是开回家好？
 
-> 原文:[https://jalopnik . com/if-I-buy-a-car-from-far-away-it-to-ship-o-1837925039](https://jalopnik.com/if-i-buy-a-car-from-far-away-is-it-better-to-ship-it-o-1837925039)
+> 原文：<https://jalopnik.com/if-i-buy-a-car-from-far-away-is-it-better-to-ship-it-o-1837925039>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。我决定挑几个问题，试着帮帮大家。本周我们将讨论从远方购买汽车，日本豪华品牌的定制订单，以及如何合乎道德地卖掉一个柠檬。
 

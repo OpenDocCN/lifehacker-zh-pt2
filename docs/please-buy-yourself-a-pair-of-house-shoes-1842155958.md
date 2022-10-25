@@ -1,6 +1,6 @@
 # 请给你自己买双居家鞋
 
-> 原文:[https://Jezebel . com/please-buy-yourself-a-shoes-1842155958](https://jezebel.com/please-buy-yourself-a-pair-of-house-shoes-1842155958)
+> 原文：<https://jezebel.com/please-buy-yourself-a-pair-of-house-shoes-1842155958>
 
 坦率地说，其他人在自己家里选择做什么，与我无关；他们选择在我家做的事情肯定是。在我家，外面的鞋子被放在门口，凌乱地堆在餐桌旁，而家里的鞋子——一种漂亮的鞋子——继续穿着。这是一种文明的生活方式，也是保持地板清洁和你的小脚丫温暖的有效方法。如果我竞选总统(感谢上帝，我不是)，这是我的平台:每个人都需要鞋子，不管他们喜欢与否。
 

@@ -1,6 +1,6 @@
 # Cacio e Pepe 该不该加牧场调料？
 
-> 原文:[https://life hacker . com/should-you-add-ranch-sading-to-cacio-e-Pepe-1837241051](https://lifehacker.com/should-you-add-ranch-seasoning-to-cacio-e-pepe-1837241051)
+> 原文：<https://lifehacker.com/should-you-add-ranch-seasoning-to-cacio-e-pepe-1837241051>
 
 人们对网上(和在我家里)意大利食物的狂热是我最喜欢的内容形式之一。这是一种正义的愤怒，一种纯粹的愤怒，一种我(通常)不得不通过我的意大利裔美国男友来体验的愤怒。但是，即使是我，一个在披萨上点菠萝的人，也对梅根·斯普兰写的[The Kitchn ' s Ranch Cacio e Pepe](https://www.thekitchn.com/the-best-thing-you-can-do-with-ranch-seasoning-its-not-dip-22932048)有点反感。
 

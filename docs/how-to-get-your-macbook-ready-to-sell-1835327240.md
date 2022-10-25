@@ -1,6 +1,6 @@
 # 如何让你的 MacBook 准备好销售
 
-> 原文:[https://life hacker . com/how-to-get-your-macbook-ready-to-sell-1835327240](https://lifehacker.com/how-to-get-your-macbook-ready-to-sell-1835327240)
+> 原文：<https://lifehacker.com/how-to-get-your-macbook-ready-to-sell-1835327240>
 
 我要扔掉我的 MacBook。这不是针对个人的；我不得不把我的 G/O Media 拥有的设备换成另一台稍慢的 MacBook。这个过程很烦，但是不需要太多时间。事实上，我想出“在你扔掉你的 MacBook 之前我应该做的事情清单”可能比做实际工作花的时间还多。
 

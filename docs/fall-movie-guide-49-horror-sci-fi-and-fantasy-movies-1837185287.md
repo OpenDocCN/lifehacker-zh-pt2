@@ -1,6 +1,6 @@
 # 秋季电影指南:值得期待的 49 部恐怖、科幻和奇幻电影
 
-> 原文:[https://gizmodo . com/fall-movie-guide-49-恐怖科幻奇幻电影-1837185287](https://gizmodo.com/fall-movie-guide-49-horror-sci-fi-and-fantasy-movies-1837185287)
+> 原文：<https://gizmodo.com/fall-movie-guide-49-horror-sci-fi-and-fantasy-movies-1837185287>
 
 如果你喜欢怪异的类型电影，2019 年秋季适合你。
 

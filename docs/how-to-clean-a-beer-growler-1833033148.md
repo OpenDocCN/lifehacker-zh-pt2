@@ -1,6 +1,6 @@
 # 如何清洁啤酒咆哮者
 
-> 原文:[https://life hacker . com/how-to-clean-a-beer-growler-1833033148](https://lifehacker.com/how-to-clean-a-beer-growler-1833033148)
+> 原文：<https://lifehacker.com/how-to-clean-a-beer-growler-1833033148>
 
 我喜欢啤酒咆哮者。我丈夫和我有一些来自我们最喜欢的啤酒厂的啤酒，当我们出去吃饭时，他们轮流跟着我们，这样我们就可以带一些新鲜的生啤酒回家。
 

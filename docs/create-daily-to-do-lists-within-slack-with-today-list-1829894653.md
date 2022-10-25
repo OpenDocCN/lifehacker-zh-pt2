@@ -1,6 +1,6 @@
 # 如何在时差内创建每日待办事项列表
 
-> 原文:[https://life hacker . com/create-daily-to-do-lists-with-today-list-1829894653](https://lifehacker.com/create-daily-to-do-lists-within-slack-with-today-list-1829894653)
+> 原文：<https://lifehacker.com/create-daily-to-do-lists-within-slack-with-today-list-1829894653>
 
 我非常喜欢列清单。我有一张这个月需要完成的事情的清单，另一张清单被分解成我这个星期需要做的事情，还有一张需要在一天内完成的事情的清单。对我和我的工作方式来说，它们让我变得有条理，我从清单上划掉另一个项目中获得了很大的满足感。
 

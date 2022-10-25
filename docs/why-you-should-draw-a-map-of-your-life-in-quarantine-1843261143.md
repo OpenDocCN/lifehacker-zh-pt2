@@ -1,6 +1,6 @@
 # 为什么你应该画一张你在隔离区生活的地图
 
-> 原文:[https://life hacker . com/why-you-should-draw-a-map-of-you-life-in-quarantine-1843261143](https://lifehacker.com/why-you-should-draw-a-map-of-your-life-in-quarantine-1843261143)
+> 原文：<https://lifehacker.com/why-you-should-draw-a-map-of-your-life-in-quarantine-1843261143>
 
 不管你是住在大城市、宽敞的郊区还是农村，多亏了新冠肺炎疫情，你的日常世界可能已经大大缩小了。大多数人不再通勤上班、送孩子上学或在他们最喜欢的酒吧或餐馆见朋友。我们现在的生活以我们的家和我们赖以获得供给的几个附近的地方为中心——也许是附近的公园或你的后院或其他你可以去外面呼吸新鲜空气和锻炼的地方。关键是，你的隔离状态可能比两个月前你的日常生活在地理上更加封闭。是时候绘制地图了。
 

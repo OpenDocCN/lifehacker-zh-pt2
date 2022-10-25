@@ -1,6 +1,6 @@
 # 将甜的和淡的谷类混合在一起，做一份营养均衡的早餐
 
-> 原文:[https://life hacker . com/mix-sweet-and-bland-麦片换平衡早餐-1844558797](https://lifehacker.com/mix-sweet-and-bland-cereal-for-a-balanced-breakfast-1844558797)
+> 原文：<https://lifehacker.com/mix-sweet-and-bland-cereal-for-a-balanced-breakfast-1844558797>
 
 做早餐糟透了。你已经很累了，现在还需要*做饭？做饭？早上吗？*
 

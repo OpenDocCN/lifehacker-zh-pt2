@@ -1,6 +1,6 @@
 # 最好的 Instagram 滤镜只能在故事里访问
 
-> 原文:[https://life hacker . com/the-best-insta gram-filter-can-only-be-access-in-stori-1834013628](https://lifehacker.com/the-best-instagram-filter-can-only-be-accessed-in-stori-1834013628)
+> 原文：<https://lifehacker.com/the-best-instagram-filter-can-only-be-accessed-in-stori-1834013628>
 
 冒着激怒 Jameela Jamil 的风险，我喜欢一个好的过滤器。然而，大多数 Instagram 过滤器都是垃圾，要么彻底淘汰你，要么让你看起来极其过滤。一个好的滤镜可以微妙地使图像变得平滑，也许还会使图像变得明亮。像好的遮瑕膏，作用不大；这就足够了。
 

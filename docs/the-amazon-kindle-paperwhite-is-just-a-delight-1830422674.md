@@ -1,6 +1,6 @@
 # 亚马逊 Kindle Paperwhite 只是一种享受
 
-> 原文:[https://gizmodo . com/the-Amazon-kindle-paper white-is-just-a-delight-1830422674](https://gizmodo.com/the-amazon-kindle-paperwhite-is-just-a-delight-1830422674)
+> 原文：<https://gizmodo.com/the-amazon-kindle-paperwhite-is-just-a-delight-1830422674>
 
 我用 Kindle Paperwhite 的已经用了 [五年了](https://gizmodo.com/kindle-paperwhite-review-2013-faster-easier-on-the-1442924789) ，没错， [新的](https://www.amazon.com/Amazon-Kindle-Paperwhite-6-Inch-4GB-eReader/dp/B00OQVZDJM?asc_campaign=InlineText&asc_refurl=https://gizmodo.com/the-amazon-kindle-paperwhite-is-just-a-delight-1830422674&asc_source=&tag=kinjagizmodolink-20) 比之前的要好。它稍微小一点，稍微轻一点，甚至还稍微亮一点。加上它是防水的！
 

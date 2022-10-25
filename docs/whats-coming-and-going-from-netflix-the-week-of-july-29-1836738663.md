@@ -1,6 +1,6 @@
 # 2019 年 7 月 29 日这一周，网飞将会发生什么
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of July-29-1836738663](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-july-29-1836738663)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-july-29-1836738663>
 
 随着每个人都喜欢的似曾相识的浪漫喜剧*土拨鼠日*，八月即将到来。恰当地说，这不是*土拨鼠日*第一次来到(只是离开)网飞——也不会是最后一次，所以尽情享受吧。似乎*土拨鼠日*并没有提供我们想要或需要的所有安迪·麦克道尔，本周我们还有*四个婚礼和一个葬礼*。下一步是什么？*格雷斯托克:人猿泰山的传说，人猿之王？我们敢做梦吗？*
 

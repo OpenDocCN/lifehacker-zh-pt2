@@ -1,6 +1,6 @@
 # 如何让苹果音乐免费六个月——而不是通常的三个月
 
-> 原文:[https://life hacker . com/how-to-get-apple-music-free-to-that-1840604737](https://lifehacker.com/how-to-get-apple-music-free-for-six-months-instead-of-t-1840604737)
+> 原文：<https://lifehacker.com/how-to-get-apple-music-free-for-six-months-instead-of-t-1840604737>
 
 如果苹果对新的 [苹果音乐](https://www.apple.com/apple-music/) 用户的三个月免费试用还不足以让放弃 Spotify，六个月的试用怎么样？
 

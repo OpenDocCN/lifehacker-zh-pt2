@@ -1,6 +1,6 @@
 # 如何和不玩游戏的人谈论游戏
 
-> 原文:[https://kotaku . com/how-to-talk-about-games-with someone-the-not-play-th-1838848416](https://kotaku.com/how-to-talk-about-games-with-someone-who-doesnt-play-th-1838848416)
+> 原文：<https://kotaku.com/how-to-talk-about-games-with-someone-who-doesnt-play-th-1838848416>
 
 和不玩游戏的人谈论游戏可能很难。如果对方不熟悉你描述的类型，你如何解释你为什么喜欢某个类型或系列？解释你目前痴迷的游戏的更具体的故事情节或机制也同样复杂。你可以随时改变话题，但如果你真的想告诉别人关于游戏的事情，这里有一些技巧，可以让你在谈论你的激情时不至于让对方避而远之。
 

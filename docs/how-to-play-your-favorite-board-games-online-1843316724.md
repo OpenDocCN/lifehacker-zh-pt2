@@ -1,6 +1,6 @@
 # 如何在线玩自己喜欢的桌游
 
-> 原文:[https://life hacker . com/how-to-play-your favorite-board-games-online-1843316724](https://lifehacker.com/how-to-play-your-favorite-board-games-online-1843316724)
+> 原文：<https://lifehacker.com/how-to-play-your-favorite-board-games-online-1843316724>
 
 不要让疫情毁了你每周的桌游之夜。在上面的视频中，我分享了一些我一直在玩的我最喜欢的桌游的方式——包括风险、大富翁和卡坦的定居者。
 

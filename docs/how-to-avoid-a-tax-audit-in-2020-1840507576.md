@@ -1,6 +1,6 @@
 # 如何避免 2020 年的税务审计
 
-> 原文:[https://life hacker . com/how-to-避税审计-in-2020-1840507576](https://lifehacker.com/how-to-avoid-a-tax-audit-in-2020-1840507576)
+> 原文：<https://lifehacker.com/how-to-avoid-a-tax-audit-in-2020-1840507576>
 
 2020 年，美国国税局将获得更多资金。这对纳税人来说非常令人兴奋，因为这意味着更多的员工处理纳税申报单，更多的员工在你有问题时接听电话。但这可能意味着你被审计的风险也会增加，至少会增加一点点。 [The Motley Fool](https://www.fool.com/taxes/2019/12/18/you-may-have-a-greater-chance-of-being-audited-in.aspx) 表示，国税局资源的增加也意味着该机构在审计实践中可能会变得更加积极。
 

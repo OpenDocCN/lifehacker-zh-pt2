@@ -1,6 +1,6 @@
 # 使用这个网络工具从推文中抓取视频并嵌入到你自己的推文中
 
-> 原文:[https://life hacker . com/use-this-web tool-to-rip-videos-from-tweets-and-embed-th-1835123552](https://lifehacker.com/use-this-webtool-to-rip-videos-from-tweets-and-embed-th-1835123552)
+> 原文：<https://lifehacker.com/use-this-webtool-to-rip-videos-from-tweets-and-embed-th-1835123552>
 
 如今，反应视频是一种文化货币——它们可以冲击你的社交媒体帖子，并已演变成自己的喜剧类型。它们在 Twitter 上特别受欢迎，但由于 Twitter 没有办法从另一个人的推文中保存或复制视频，所以很难重用你在自己的 feed 中找到的反应视频(如果你不想转发别人的话)。
 

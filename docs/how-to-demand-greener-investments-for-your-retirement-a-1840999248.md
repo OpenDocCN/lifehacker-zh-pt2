@@ -1,6 +1,6 @@
 # 如何为你的退休账户要求更环保的投资
 
-> 原文:[https://life hacker . com/how-to-demand-greener-investments-for-your ' s retirement-a-1840999248](https://lifehacker.com/how-to-demand-greener-investments-for-your-retirement-a-1840999248)
+> 原文：<https://lifehacker.com/how-to-demand-greener-investments-for-your-retirement-a-1840999248>
 
 就在几年前，如果你想让你的投资更加环保，你必须从持有你退休储蓄的投资公司提供的有限资金中挑选。
 

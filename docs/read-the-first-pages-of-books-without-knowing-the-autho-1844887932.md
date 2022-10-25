@@ -1,6 +1,6 @@
 # 在不知道作者或书名的情况下阅读书籍的第一页
 
-> 原文:[https://life hacker . com/read-the-first-pages-of-books-without-known-the-autho-1844887932](https://lifehacker.com/read-the-first-pages-of-books-without-knowing-the-autho-1844887932)
+> 原文：<https://lifehacker.com/read-the-first-pages-of-books-without-knowing-the-autho-1844887932>
 
 如果你在家呆了几个月后，已经在你的书架上 [阅读了](https://lifehacker.com/how-to-fit-reading-into-your-stay-at-home-life-1844234242) ，你可能正在寻找一些新的东西。也许你通常喜欢历史小说，但不知道从另一种类型中挑选一些。有一些常见的方法，比如从朋友那里获得推荐，从 Goodreads 上的陌生人那里获得推荐，或者询问图书管理员或在书店工作的人，但是我们刚刚发现了一种新的(有趣的)方法，你可能想试试。
 

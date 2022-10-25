@@ -1,6 +1,6 @@
 # 如何像专业人士一样驾驭医疗保健系统
 
-> 原文:[https://life hacker . com/how-to-navigate-the-health-care-system-like-a-pro-1829920168](https://lifehacker.com/how-to-navigate-the-health-care-system-like-a-pro-1829920168)
+> 原文：<https://lifehacker.com/how-to-navigate-the-health-care-system-like-a-pro-1829920168>
 
 患有复杂疾病的人最终会与我们的医疗保健系统有很多联系:手术、医生出诊、专家和治疗以及成像测试等等。从某种意义上说，这让他们成为专家，知道如何最大限度地利用你的访问。
 

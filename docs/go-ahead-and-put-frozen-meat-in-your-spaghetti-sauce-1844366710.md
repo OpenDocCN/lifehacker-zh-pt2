@@ -1,6 +1,6 @@
 # 去吧，把冻肉放进你的意大利面酱里
 
-> 原文:[https://life hacker . com/go-ahead-and-put-on-freezed-meat-sauce-1844366710](https://lifehacker.com/go-ahead-and-put-frozen-meat-in-your-spaghetti-sauce-1844366710)
+> 原文：<https://lifehacker.com/go-ahead-and-put-frozen-meat-in-your-spaghetti-sauce-1844366710>
 
 冷冻碎牛肉应该是一种方便食品，但只有当你是那种在打算使用它的前一天晚上还记得把它从冰箱里拿出来的人，它才是方便的。我很久以前就放弃了成为那些人之一，这就是为什么最近来自厨师 [马蒂·马西森](https://www.instagram.com/mattymatheson/?hl=en) 的这个 Instagram 故事让我兴奋不已
 

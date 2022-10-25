@@ -1,6 +1,6 @@
 # 什么时候我应该扔掉有凹痕的罐头食品？
 
-> 原文:[https://the take out . com/when-should-I-through-a-distant-of-food-1832374592](https://thetakeout.com/when-should-i-throw-away-a-dented-can-of-food-1832374592)
+> 原文：<https://thetakeout.com/when-should-i-throw-away-a-dented-can-of-food-1832374592>
 
 我强调不要从亚当·桑德勒电影中获取个人理财的线索，所以我从来没有尝试过《老爸》中桑德勒指导他的儿子把意大利面条罐头扔在地上的特技(“有凹痕的罐头半价”)。这不仅是杂货店省钱的一种不正当的方法，而且很可能是不安全的；我们都被告知不要吃严重凹陷的罐头食品。为什么？
 

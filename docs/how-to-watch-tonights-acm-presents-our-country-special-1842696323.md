@@ -1,6 +1,6 @@
 # 如何收看今晚的“ACM 礼物:我们的国家”特别节目
 
-> 原文:[https://life hacker . com/how-to-watch-tonights-ACM-presents-our-country-special-1842696323](https://lifehacker.com/how-to-watch-tonights-acm-presents-our-country-special-1842696323)
+> 原文：<https://lifehacker.com/how-to-watch-tonights-acm-presents-our-country-special-1842696323>
 
 乡村音乐学院奖目前延期至 9 月 16 日；然而，今晚 ACM 将推出一个两小时的现场特别节目来代替一年一度的颁奖晚会，该节目展示了如果颁奖晚会真的举行的话，一些可能会发生的表演。
 

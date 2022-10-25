@@ -1,6 +1,6 @@
 # 如何处理你现在拿到的所有税务文件
 
-> 原文:[https://life hacker . com/what-to-do-with-all-the-tax-documents-you-get-rig-1831988627](https://lifehacker.com/what-to-do-with-all-the-tax-documents-youre-getting-rig-1831988627)
+> 原文：<https://lifehacker.com/what-to-do-with-all-the-tax-documents-youre-getting-rig-1831988627>
 
 到目前为止，你已经收到了附有“重要税务信息”和年终投资报表的电子邮件和信件，并且可能还会收到更多。你知道你需要这些来提交 2018 年的纳税申报表，但在那之后，你会怎么处理它们？
 

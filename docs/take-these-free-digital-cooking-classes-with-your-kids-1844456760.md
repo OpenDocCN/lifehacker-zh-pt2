@@ -1,6 +1,6 @@
 # 和你的孩子一起参加这些免费的数字烹饪课程
 
-> 原文:[https://life hacker . com/take-these-free-digital-cooking-classes-with-your-kids-1844456760](https://lifehacker.com/take-these-free-digital-cooking-classes-with-your-kids-1844456760)
+> 原文：<https://lifehacker.com/take-these-free-digital-cooking-classes-with-your-kids-1844456760>
 
 去疫情几个月后，我 9 岁的儿子看着我说，“也许我会从事烹饪。”他从学龄前开始就帮我烤东西，但我们从未真正一起做过饭，因为工作日晚上总是忙于学校、工作和活动。目前还没有。
 

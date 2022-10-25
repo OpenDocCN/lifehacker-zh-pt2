@@ -1,6 +1,6 @@
 # 给烤肉涂上芥末和果酱
 
-> 原文:[https://life hacker . com/glaze-烤肉配芥末酱-1831618342](https://lifehacker.com/glaze-roasted-meats-with-mustard-and-jam-1831618342)
+> 原文：<https://lifehacker.com/glaze-roasted-meats-with-mustard-and-jam-1831618342>
 
 世界上有这么多好的果酱、果冻和果脯酱，很容易就能收集到很多。(在任何时候，我的冰箱里都会有三到五瓶 Bonne Maman。)虽然这些水果美人除了做好面包之外再无其他选择，但它们也可以用来做炸弹( *bonne* ？)烤肉用的釉料。
 

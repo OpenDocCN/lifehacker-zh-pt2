@@ -1,6 +1,6 @@
 # 当人们不喜欢你时，如何不去在意
 
-> 原文:[https://life hacker . com/how-not-to-care-when people-not-like-you-1823964733](https://lifehacker.com/how-not-to-care-when-people-dont-like-you-1823964733)
+> 原文：<https://lifehacker.com/how-not-to-care-when-people-dont-like-you-1823964733>
 
 在高中的某个时候，我发现我的朋友们不喜欢我。我“小组”中的一个女孩告诉我，我没有被邀请参加生日聚会，因为“每个人”都认为我很讨厌——老实说，15 岁的我可能就是这样——我被排斥了几个月。我花了一些时间才重新融入帮派，但在那之前，我都崩溃了，我发誓我会用我的余生来讨人喜欢。
 

@@ -1,6 +1,6 @@
 # 为什么我备份了我的 iPhone 照片后却找不到了？
 
-> 原文:[https://life hacker . com/why-cant-I-find-my-iphone-photos-after-I-back-up-them-1844082929](https://lifehacker.com/why-cant-i-find-my-iphone-photos-after-i-backed-them-up-1844082929)
+> 原文：<https://lifehacker.com/why-cant-i-find-my-iphone-photos-after-i-backed-them-up-1844082929>
 
 没有什么比发现你丢失了好几年的手机照片更糟糕的了，尽管你认为你已经正确地备份了它们。我从 Lifehacker 的 [周刊科技问&专栏](https://lifehacker.com/c/tech-911) 得到了很多关于“丢失照片”的问题。我会尽我所能继续回答这些问题，因为我讨厌有人失去这么多珍贵的记忆。
 

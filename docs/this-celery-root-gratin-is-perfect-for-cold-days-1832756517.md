@@ -1,6 +1,6 @@
 # 这种芹菜根脆皮非常适合寒冷的天气
 
-> 原文:[https://life hacker . com/this-celery-root-grid-is-perfect-for-cold-days-1832756517](https://lifehacker.com/this-celery-root-gratin-is-perfect-for-cold-days-1832756517)
+> 原文：<https://lifehacker.com/this-celery-root-gratin-is-perfect-for-cold-days-1832756517>
 
 我们正处于糟糕的、似乎永无止境的冬季，我只想吃堆积如山的奶油碳水化合物。显然，我们的三种配料的脆皮土豆 会做得很好，但是高贵的土豆不是唯一适合脆皮的根。
 

@@ -1,6 +1,6 @@
 # is the new iphone se worth the upgrade 1842902293
 
-> 原文:[https://life hacker . com/is-the-new-iphone-se-worth-the-upgrade-1842902293](https://lifehacker.com/is-the-new-iphone-se-worth-the-upgrade-1842902293)
+> 原文：<https://lifehacker.com/is-the-new-iphone-se-worth-the-upgrade-1842902293>
 
 如果你是一名 iPhone 用户，想在市场上买一部入门级手机，你应该升级到新的 iPhone SET3T1】吗？嗯，是的:既然 iPhone 8 和 iPhone 8 Plus 已经不存在了，如果你在寻找最便宜的非翻新 iPhone，你真的没有别的选择了。还是你？ 
 

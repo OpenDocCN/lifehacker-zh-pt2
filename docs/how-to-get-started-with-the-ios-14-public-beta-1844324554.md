@@ -1,6 +1,6 @@
 # iOS 14 公测版如何入门
 
-> 原文:[https://life hacker . com/how-to-get-started-with-the-IOs-14-public-beta-1844324554](https://lifehacker.com/how-to-get-started-with-the-ios-14-public-beta-1844324554)
+> 原文：<https://lifehacker.com/how-to-get-started-with-the-ios-14-public-beta-1844324554>
 
 对于那些害怕将 iOS 14 安装为开发者测试版的人来说，不用担心。现在是公开测试时间，这意味着苹果最新的 iPhone 操作系统的预览版可能会有一点点小问题，但不会像我们中的一些人已经使用了几个星期那样疯狂。
 

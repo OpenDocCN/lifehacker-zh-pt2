@@ -1,6 +1,6 @@
 # does my smartwatchs sleep tracker actually do anything 1838290221
 
-> 原文:[https://gizmodo . com/does-my-smart watches-sleep-tracker-actually-do-any-1838290221](https://gizmodo.com/does-my-smartwatchs-sleep-tracker-actually-do-anything-1838290221)
+> 原文：<https://gizmodo.com/does-my-smartwatchs-sleep-tracker-actually-do-anything-1838290221>
 
 在我成年后的大部分时间里，我并没有真正想过睡眠:这只是我的身体需要的一项活动，每晚大约六到八个小时，以便第二天不觉得自己像垃圾。我很少停下来考虑我的休息质量或者我的睡眠模式是否“正常”也就是直到我被赠予 [一个 Fitbit Charge 3。](https://gizmodo.com/fitbits-charge-3-perfects-the-casual-fitness-tracker-1829828167)T3】
 

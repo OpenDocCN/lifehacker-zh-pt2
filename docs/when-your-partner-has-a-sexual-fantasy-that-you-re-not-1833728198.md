@@ -1,6 +1,6 @@
 # when your partner has a sexual fantasy that you re not 1833728198
 
-> 原文:[https://life hacker . com/when-your-partner-has-a-sex-fantasy-the-you-re-not-1833728198](https://lifehacker.com/when-your-partner-has-a-sexual-fantasy-that-you-re-not-1833728198)
+> 原文：<https://lifehacker.com/when-your-partner-has-a-sexual-fantasy-that-you-re-not-1833728198>
 
 有时，当你的伴侣分享一个特别的幻想或愿望时，这是很热的，但其他时候，你的伴侣可能会告诉你某个你不喜欢的幻想。也许一夫一妻制对你很重要，你不能接受三人行的想法。也许你是一个性虐待的幸存者，玩束缚游戏会感到不安全。或者你只是对角色扮演不感兴趣。这可能是一个棘手的情况。你应该参加一个你不感兴趣的性活动吗？你的伴侣应该因为你不喜欢而放弃他们的幻想吗？如果你的伴侣对你的幻想不感兴趣，这里有五种方法来处理这种情况。
 

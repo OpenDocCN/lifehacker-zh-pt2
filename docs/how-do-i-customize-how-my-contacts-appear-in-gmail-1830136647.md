@@ -1,6 +1,6 @@
 # 如何自定义我的联系人在 Gmail 中的显示方式？
 
-> 原文:[https://life hacker . com/how-do-I-customize-how-my-contacts-occure-in-Gmail-1830136647](https://lifehacker.com/how-do-i-customize-how-my-contacts-appear-in-gmail-1830136647)
+> 原文：<https://lifehacker.com/how-do-i-customize-how-my-contacts-appear-in-gmail-1830136647>
 
 Gmail 联系人可能有点令人困惑——尤其是当你意识到这个流行的电子邮件服务会自动将你与之进行网上交流的每个人都转储到一个大的“ [其他联系人](https://contacts.google.com/other) ”目录中。这使得自动完成给 Gmail 认为你将来可能会再次联系的人的电子邮件变得很容易，但当非预期的姓名或电子邮件地址出现在你的“收件人:”字段中时，也会引起一点混乱。
 

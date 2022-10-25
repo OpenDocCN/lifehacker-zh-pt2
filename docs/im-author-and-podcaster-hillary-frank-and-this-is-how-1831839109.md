@@ -1,6 +1,6 @@
 # 我是作家兼播客希拉里·弗兰克，这就是我为人父母的方式
 
-> 原文:[https://life hacker . com/im-author-and-podcaster-Hillary-frank-and-this-how-1831839109](https://lifehacker.com/im-author-and-podcaster-hillary-frank-and-this-is-how-1831839109)
+> 原文：<https://lifehacker.com/im-author-and-podcaster-hillary-frank-and-this-is-how-1831839109>
 
 *(Hillary Frank 是热门育儿播客* [*最长最短时间*](https://longestshortesttime.com/) *的创作者、前主持人和执行制作人)。她的新书《* [*怪异育儿胜:浴缸用餐、家人尖叫，以及其他来自育儿战壕*](https://www.hillaryfrank.com/weird-parenting-wins/) *》于 1 月 15 日发布。)*
 

@@ -1,6 +1,6 @@
 # 如何在网上赚外快
 
-> 原文:[https://life hacker . com/how-to-make-extra-money-online-1832397644](https://lifehacker.com/how-to-make-extra-money-online-1832397644)
+> 原文：<https://lifehacker.com/how-to-make-extra-money-online-1832397644>
 
 当我还是个孩子的时候，我偶然发现了一个名为“AllAdvantage”的网站，它承诺给你现金，只要你在操作系统的顶部或底部运行一个令人讨厌的横幅广告。很自然地，我一天 24 小时运行这个吸盘，用一个小工具来模拟鼠标的移动，这样广告栏就不会注意到我“空闲”而关闭。我的父母可能不喜欢我浪费的电，但我确实每月得到超过 150 美元的支出——对一个孩子来说是一大笔钱。
 

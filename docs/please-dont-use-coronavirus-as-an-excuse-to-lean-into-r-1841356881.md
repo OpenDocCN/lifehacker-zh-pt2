@@ -1,6 +1,6 @@
 # 请不要用冠状病毒作为向种族主义倾斜的借口
 
-> 原文:[https://Jezebel . com/please-don-use-coronavirus-as-a-托辞-lean-into-r-1841356881](https://jezebel.com/please-dont-use-coronavirus-as-an-excuse-to-lean-into-r-1841356881)
+> 原文：<https://jezebel.com/please-dont-use-coronavirus-as-an-excuse-to-lean-into-r-1841356881>
 
 这似乎是常识，但最近的传言表明，温和的 PSA 是应该的:鉴于最近冠状病毒的爆发，请不要允许偶然或公开的种族主义。
 

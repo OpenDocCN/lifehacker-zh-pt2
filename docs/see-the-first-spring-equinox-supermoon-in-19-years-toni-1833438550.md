@@ -1,6 +1,6 @@
 # 今晚看 19 年来第一次春分超级月亮
 
-> 原文:[https://life hacker . com/see-19 年来第一个春分超级月亮-toni-1833438550](https://lifehacker.com/see-the-first-spring-equinox-supermoon-in-19-years-toni-1833438550)
+> 原文：<https://lifehacker.com/see-the-first-spring-equinox-supermoon-in-19-years-toni-1833438550>
 
 今天，3 月 20 日，是春分。在北半球，白天将开始变长，夜晚变短，温暖将淹没大地。为了庆祝这一转变，今晚出去看看超级月亮，它将碰巧照亮天空。
 

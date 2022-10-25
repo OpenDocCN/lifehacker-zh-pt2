@@ -1,6 +1,6 @@
 # 使用 Windows 10 的新 PowerToys 管理您凌乱的桌面
 
-> 原文:[https://life hacker . com/manage-your-dirty-desktop-with-windows-10-s-new-power to-1837940528](https://lifehacker.com/manage-your-messy-desktop-with-windows-10-s-new-powerto-1837940528)
+> 原文：<https://lifehacker.com/manage-your-messy-desktop-with-windows-10-s-new-powerto-1837940528>
 
 “PowerToys”这个词可能不会让你跑向你的 Windows 电脑，但仅仅因为微软的古怪工具套件不性感并不意味着它不值得拍打你的系统。该公司今年早些时候宣布，它计划为 Windows 10 推出 PowerToys，前两个实际上是你日常生活中非常有用的补充。
 

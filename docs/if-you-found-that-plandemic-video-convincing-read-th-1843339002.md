@@ -1,6 +1,6 @@
 # 如果你觉得这个“规划的”视频很有说服力，也可以看看这个
 
-> 原文:[https://life hacker . com/if-you-found-that-plandemic-video-ensitive-read-th-1843339002](https://lifehacker.com/if-you-found-that-plandemic-video-convincing-read-th-1843339002)
+> 原文：<https://lifehacker.com/if-you-found-that-plandemic-video-convincing-read-th-1843339002>
 
 外面有一个视频声称显示一名科学家被政府压制。我一直看到人们一边分享，一边说“你觉得这个怎么样？”或者“我不知道这样说对不对，但值得一听。”如果你想了解更多，但又担心被宣传所欺骗，我为你写了这篇文章。
 

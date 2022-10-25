@@ -1,6 +1,6 @@
 # 起诉总统会怎么样？
 
-> 原文:[https://life hacker . com/what-happens-when-when-when-you-sue-the-president-1832722502](https://lifehacker.com/what-happens-when-you-sue-the-president-1832722502)
+> 原文：<https://lifehacker.com/what-happens-when-you-sue-the-president-1832722502>
 
 在周五宣布国家紧急状态，绝望地试图为美墨边境提供资金后，川普总统做了任何一位总统在国家危机后都会做的事情:整个周末，他都在佛罗里达州西棕榈的俱乐部打高尔夫球(在那里，会员费起价为 25 万美元)。如果本周的新闻有任何暗示，他将有很多理由在未来几天打高尔夫。
 

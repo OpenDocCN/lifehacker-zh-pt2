@@ -1,6 +1,6 @@
 # Frontier 现在正在以 15 美元的价格出售一些航班
 
-> 原文:[https://life hacker . com/frontier-is-selling-some-flights-for-15-right-now-1837901723](https://lifehacker.com/frontier-is-selling-some-flights-for-15-right-now-1837901723)
+> 原文：<https://lifehacker.com/frontier-is-selling-some-flights-for-15-right-now-1837901723>
 
 如果你一直希望在夏末秋初去度假，Frontier 现在正在开展一项促销活动，可能会让那次旅行更加实惠。这家打折航空公司正在举行票价打折活动，单程票价低至 15 美元。
 

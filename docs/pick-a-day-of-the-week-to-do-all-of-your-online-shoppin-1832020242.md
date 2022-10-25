@@ -1,6 +1,6 @@
 # 选择一周中的某一天来完成你所有的网上购物
 
-> 原文:[https://life hacker . com/pick-a-day-to-do-your-online-shop pin-1832020242](https://lifehacker.com/pick-a-day-of-the-week-to-do-all-of-your-online-shoppin-1832020242)
+> 原文：<https://lifehacker.com/pick-a-day-of-the-week-to-do-all-of-your-online-shoppin-1832020242>
 
 朋友们，你们的 [无休月](https://twocents.lifehacker.com/a-new-years-resolution-that-will-actually-improve-your-1831321233) 过得怎么样？老实说，在过去的几天里，我打了几个嗝，包括一次以葡萄酒为燃料的 Etsy 购买。如果你也有一点小麻烦，这里有一个来自 Reddit 的提示，可能有助于抑制冲动购买。
 

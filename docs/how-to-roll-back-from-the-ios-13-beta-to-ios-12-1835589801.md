@@ -1,6 +1,6 @@
 # 如何从 iOS 13 测试版回滚到 iOS 12
 
-> 原文:[https://life hacker . com/how-to-roll-back-from-the-IOs-13-beta-to-IOs-12-1835589801](https://lifehacker.com/how-to-roll-back-from-the-ios-13-beta-to-ios-12-1835589801)
+> 原文：<https://lifehacker.com/how-to-roll-back-from-the-ios-13-beta-to-ios-12-1835589801>
 
 iOS 13 [的第一个测试版是给开发者](https://lifehacker.com/how-to-install-the-latest-apple-betas-if-youre-not-a-de-1835296432) 玩的(还有喜欢生活在边缘的 [craftier 苹果粉丝](https://lifehacker.com/how-to-install-the-latest-apple-betas-if-youre-not-a-de-1835296432) )，但这不全是乐趣和游戏。虽然有一些 [令人敬畏的新功能](https://lifehacker.com/all-the-big-ios-13-changes-apple-announced-at-wwdc-19-1835216984) 测试版测试人员如果现在安装 iOS 13 就可以试用，但该操作系统并不完整，在 iOS 13 准备好公开发布之前，苹果还有几个月的测试时间。
 

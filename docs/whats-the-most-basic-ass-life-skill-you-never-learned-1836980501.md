@@ -1,6 +1,6 @@
 # 你从未学过的最基本的生活技能是什么？
 
-> 原文:[https://life hacker . com/whats-the-most-basic-ass-life-skill-you never-learn-1836980501](https://lifehacker.com/whats-the-most-basic-ass-life-skill-you-never-learned-1836980501)
+> 原文：<https://lifehacker.com/whats-the-most-basic-ass-life-skill-you-never-learned-1836980501>
 
 Twitter 用户最近向 [承认了他们从未学过做](https://twitter.com/i/events/1158204835004477440) 的最基本的事情:吹气球、吹口哨、眨眼、打响指。有些人不背一段助记符就不会系鞋带或拧开瓶盖。有些分不清时间。有些人可能会在走廊里迷路。我们都翘了一天基本生活技能课。那么，除了你，其他人都知道怎么做的事情是什么？
 

@@ -1,6 +1,6 @@
 # 已经在您的无线路由器上禁用 UPnP
 
-> 原文:[https://life hacker . com/disable-UPnP-on-your-wireless-router-already-1844012366](https://lifehacker.com/disable-upnp-on-your-wireless-router-already-1844012366)
+> 原文：<https://lifehacker.com/disable-upnp-on-your-wireless-router-already-1844012366>
 
 如果你有很多设备的话，在路由器上转发端口以便设备可以与外界通话可能会令人头疼，所以像 UPnP 这样的技术听起来如此方便是有道理的。这个自动过程假设当内部程序请求访问时，将您的网络暴露给互联网是安全的——这通常是正确的，除非是一个恶意软件发出请求。
 

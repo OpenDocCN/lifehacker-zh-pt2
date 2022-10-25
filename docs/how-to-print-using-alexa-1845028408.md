@@ -1,6 +1,6 @@
 # 如何使用 Alexa 打印
 
-> 原文:[https://lifehacker.com/how-to-print-using-alexa-1845028408](https://lifehacker.com/how-to-print-using-alexa-1845028408)
+> 原文：<https://lifehacker.com/how-to-print-using-alexa-1845028408>
 
 亚马逊最近更新了 Alexa 的一项新功能，让用户通过快速语音命令打印待办事项列表、食谱等。当你的墨水量不足时，人工智能助手还会通知你，甚至可以通过亚马逊 以折扣价设置 [自动墨水补充购买。](https://smile.amazon.com/b/ref=br_imp/ref=s9_acss_bw_cg_acpnav_md1_w?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-print-using-alexa-1845028408&asc_source=&node=21227170011&pf_rd_i=19820259011&pf_rd_m=ATVPDKIKX0DER&pf_rd_p=f574a716-964d-4514-9334-f9f670466031&pf_rd_r=JYBCYNG901NVCDJJ3G69&pf_rd_s=merchandised-search-top-1&pf_rd_t=101&tag=kinjalifehackerlink-20) 
 

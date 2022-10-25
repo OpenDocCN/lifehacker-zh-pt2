@@ -1,6 +1,6 @@
 # 苹果公司目前正在 iTunes 上以不到 10 美元的价格出售一批 4K 的电影
 
-> 原文:[https://life hacker . com/apple-is-selling-bunch-of-4k-movies-for-less-10-1840793691](https://lifehacker.com/apple-is-selling-a-bunch-of-4k-movies-for-less-than-10-1840793691)
+> 原文：<https://lifehacker.com/apple-is-selling-a-bunch-of-4k-movies-for-less-than-10-1840793691>
 
 苹果公司正在 iTunes 上以 5 美元到 10 美元的价格出售各种 4K 电影。其中一些游戏的折扣高达 50%，包括最近发布的 *Ad Astra* ，所以我们预计折扣不会持续太久。
 

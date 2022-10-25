@@ -1,6 +1,6 @@
 # 你应该多烤些鸡心
 
-> 原文:[https://life hacker . com/you-should-grill-more-chicken-hearts-1844233671](https://lifehacker.com/you-should-grill-more-chicken-hearts-1844233671)
+> 原文：<https://lifehacker.com/you-should-grill-more-chicken-hearts-1844233671>
 
 我从不回避吃肉的本能体验。我发现吃带骨的排骨、牛排、内脏，甚至是字面上的都是一种享受。带骨牛排对于日常消费来说有点贵，而且需要做很多准备工作——但是鸡心很便宜，容易串起来，烹饪起来没有挑战，而且用途惊人。另外，他们是非常好的。
 

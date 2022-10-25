@@ -1,6 +1,6 @@
 # 使用这个网站，根据价格或天气选择你的下一个度假目的地
 
-> 原文:[https://life hacker . com/pick-your-next-vacation-destination-based-on-price-or-w-1839008119](https://lifehacker.com/pick-your-next-vacation-destination-based-on-price-or-w-1839008119)
+> 原文：<https://lifehacker.com/pick-your-next-vacation-destination-based-on-price-or-w-1839008119>
 
 有时候假期是去一个你特别想去的地方。其他时候，你只是想去一个“温暖”或“便宜”的地方，并接受各种选择。对于那些时候， [逃避](https://greatescape.co/) 是一个可以帮你一点灵感的网站。
 

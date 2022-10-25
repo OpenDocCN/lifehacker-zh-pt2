@@ -1,6 +1,6 @@
 # 2019 年 7 月 22 日这一周，网飞有哪些活动
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of July-22-1836543127](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-july-22-1836543127)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-july-22-1836543127>
 
 让我们以一个坦白开始这一周:我从来没有看过*无耻混蛋*，自从它在 2009 年第一次出现以来，我已经悄悄地被标题的拼写激怒了。我想这是指电影中的一些东西，但谁能说呢？不是我！
 

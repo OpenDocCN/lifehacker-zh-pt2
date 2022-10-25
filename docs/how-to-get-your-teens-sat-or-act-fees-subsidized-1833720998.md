@@ -1,6 +1,6 @@
 # 如何让你的孩子的 SAT 或 ACT 费用得到补贴
 
-> 原文:[https://life hacker . com/how-to-get-your-tens-sat-or-act-feed-subsidiated-1833720998](https://lifehacker.com/how-to-get-your-teens-sat-or-act-fees-subsidized-1833720998)
+> 原文：<https://lifehacker.com/how-to-get-your-teens-sat-or-act-fees-subsidized-1833720998>
 
 因为接受大学教育不够昂贵，所以作为入学过程一部分的 SAT 和 ACT 考试的费用对许多高中生和他们的家庭来说是一种负担。
 

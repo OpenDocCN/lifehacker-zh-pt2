@@ -1,6 +1,6 @@
 # 疫情期间如何培养韧性
 
-> 原文:[https://life hacker . com/how-to-culture-resilience-in-the-疫情-1842786538](https://lifehacker.com/how-to-cultivate-resilience-during-the-pandemic-1842786538)
+> 原文：<https://lifehacker.com/how-to-cultivate-resilience-during-the-pandemic-1842786538>
 
 生活在疫情意味着不知道第二天会发生什么，不知道这一切将如何或何时结束，也不知道我们所爱的人是否会安全度过。度过疫情需要培养适应力，即在精神上和情感上应对危机的能力。
 

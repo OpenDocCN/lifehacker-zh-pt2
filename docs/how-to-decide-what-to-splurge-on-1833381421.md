@@ -1,6 +1,6 @@
 # 如何决定挥霍什么
 
-> 原文:[https://life hacker . com/how-to-decision-1833381421](https://lifehacker.com/how-to-decide-what-to-splurge-on-1833381421)
+> 原文：<https://lifehacker.com/how-to-decide-what-to-splurge-on-1833381421>
 
 众所周知，储蓄的关键在于花的比赚的少。这么简单！但是，当你有数不清的东西可以花钱的时候，你如何控制你的支出呢？
 

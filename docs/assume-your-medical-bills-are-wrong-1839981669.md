@@ -1,6 +1,6 @@
 # 假设你的医疗账单是错的
 
-> 原文:[https://life hacker . com/assume-your-medical-bills-is-error-1839981669](https://lifehacker.com/assume-your-medical-bills-are-wrong-1839981669)
+> 原文：<https://lifehacker.com/assume-your-medical-bills-are-wrong-1839981669>
 
 如果你不怀疑你收到的每一份医疗账单的准确性，那么可能是时候开始持怀疑态度了。
 

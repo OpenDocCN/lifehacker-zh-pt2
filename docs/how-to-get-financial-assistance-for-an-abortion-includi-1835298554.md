@@ -1,6 +1,6 @@
 # 如何获得堕胎经济援助——包括旅费
 
-> 原文:[https://life hacker . com/how-to-get-financial-assistance-for-a 流产-includi-1835298554](https://lifehacker.com/how-to-get-financial-assistance-for-an-abortion-includi-1835298554)
+> 原文：<https://lifehacker.com/how-to-get-financial-assistance-for-an-abortion-includi-1835298554>
 
 尽管堕胎在所有 50 个州 技术上仍然是合法的，但这并不意味着每个人都可以去诊所并且负担得起。手术本身的费用是一回事——在某些情况下， [可能会被你的保险](https://www.plannedparenthood.org/learn/teens/ask-experts/how-much-does-an-abortion-cost)——但即使你足够幸运地拥有这种保险，根据你住在哪里，仍然可能有其他重大费用。
 

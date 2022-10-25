@@ -1,6 +1,6 @@
 # 用这一招别忘了把护照放在酒店保险箱里[更新]
 
-> 原文:[https://life hacker . com/use-this-trick-to-not-forget-your-passport-in-the-hotel-1830362265](https://lifehacker.com/use-this-trick-to-not-forget-your-passport-in-the-hotel-1830362265)
+> 原文：<https://lifehacker.com/use-this-trick-to-not-forget-your-passport-in-the-hotel-1830362265>
 
 当你旅行时，酒店的保险箱可以很好地保护你的护照等物品的安全。它们还可以帮助你意外地将护照和贵重物品留在酒店房间里。
 

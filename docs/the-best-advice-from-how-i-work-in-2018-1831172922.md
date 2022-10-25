@@ -1,6 +1,6 @@
 # 2018 年“我如何工作”的最佳建议
 
-> 原文:[https://life hacker . com/the-best-advice-from-how-I-work-in-2018-1831172922](https://lifehacker.com/the-best-advice-from-how-i-work-in-2018-1831172922)
+> 原文：<https://lifehacker.com/the-best-advice-from-how-i-work-in-2018-1831172922>
 
 在 Lifehacker 上，我们每周都会在一个名为 [我如何工作](https://lifehacker.com/c/how-i-work) 的专栏中采访一位成功人士，询问他们的职业和工作习惯。每周我们都会问他们，“你收到过的最好的建议是什么？”以下是 2018 年嘉宾给我们的最好回答。
 

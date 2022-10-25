@@ -1,6 +1,6 @@
 # 我是作家丹尼尔·平克，这就是我为人父母的方式
 
-> 原文:[https://life hacker . com/im-author-Daniel-pink-and-this-how-I-parent-1833367846](https://lifehacker.com/im-author-daniel-pink-and-this-is-how-i-parent-1833367846)
+> 原文：<https://lifehacker.com/im-author-daniel-pink-and-this-is-how-i-parent-1833367846>
 
 丹尼尔·平克(Daniel Pink)是几本关于行为、动机和组织的改变游戏规则的书籍的畅销书作者，包括他的最新作品， [*当:完美时机的科学秘密*](https://www.amazon.com/When-Scientific-Secrets-Perfect-Timing/dp/0735210624?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-author-daniel-pink-and-this-is-how-i-parent-1833367846&asc_source=&tag=kinjalifehackerlink-20) *。所以他肯定已经把养育孩子的事情收入囊中了，对吗？他开玩笑说:“我非常愿意向我的家人提供研究、建议和技巧，他们也非常乐意对我说的话不予理会。”。但是我们是来倾听的。在这里，Pink 分享了一瞥他的生活和他所学到的关于抚养孩子的知识。*
 

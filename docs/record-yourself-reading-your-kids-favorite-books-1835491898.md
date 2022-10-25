@@ -1,6 +1,6 @@
 # 记录自己阅读孩子最喜欢的书籍
 
-> 原文:[https://life hacker . com/record-your-reading-your-kids-favorite-books-1835491898](https://lifehacker.com/record-yourself-reading-your-kids-favorite-books-1835491898)
+> 原文：<https://lifehacker.com/record-yourself-reading-your-kids-favorite-books-1835491898>
 
 *《卫报》*刊登了 [一份来自儿童奖获得者](https://www.theguardian.com/books/2019/may/11/how-do-you-turn-kids-into-bookworms-all-10-childrens-laureates-share-their-tips) 关于如何培养书呆子的建议清单。我最喜欢的一个想法来自朱莉娅·唐纳森，一个我喜欢的作家。(我已经给我女儿读了几十遍《扫帚上的房间》和《扫帚上的房间》了——它们是完美的。)唐纳森写道，她过去常常录下自己读孩子们最喜欢的书，这样他们就可以在车里听了。就是这么简单的一件事，却又这么特别。即使你不喜欢你的声音，你的孩子也会喜欢。你也可以邀请祖父母和远方的亲戚制作他们自己的唱片。
 

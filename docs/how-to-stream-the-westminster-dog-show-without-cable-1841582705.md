@@ -1,6 +1,6 @@
 # 如何在没有有线电视的情况下直播威斯敏斯特狗展
 
-> 原文:[https://life hacker . com/how-to-stream-the-Westminster-dog-show-without-cable-1841582705](https://lifehacker.com/how-to-stream-the-westminster-dog-show-without-cable-1841582705)
+> 原文：<https://lifehacker.com/how-to-stream-the-westminster-dog-show-without-cable-1841582705>
 
 你可能昨晚看了奥斯卡的红地毯，但是今晚是 2020 年威斯敏斯特狗展的绿地毯时间。
 

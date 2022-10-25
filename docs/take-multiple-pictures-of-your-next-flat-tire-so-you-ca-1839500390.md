@@ -1,6 +1,6 @@
 # 给你下一个漏气的轮胎拍多张照片，这样你就可以在将来重复使用这个借口
 
-> 原文:[https://life hacker . com/take-multiple-pictures-of-you ' s next-flat-tire-so-you-ca-1839500390](https://lifehacker.com/take-multiple-pictures-of-your-next-flat-tire-so-you-ca-1839500390)
+> 原文：<https://lifehacker.com/take-multiple-pictures-of-your-next-flat-tire-so-you-ca-1839500390>
 
 我有一个朋友，她过去喜欢用食物中毒作为借口，请一天假，或者逃避她不想做的事情。这是一个很好的谎言，因为食物中毒会让你感觉很糟糕，但只是短时间的。当你哀叹昨天是多么糟糕的时候，没有人会对你第二天看起来完全没问题感到惊讶。除了这位朋友用得太频繁，我想每个人都怀疑这是一个谎言。
 

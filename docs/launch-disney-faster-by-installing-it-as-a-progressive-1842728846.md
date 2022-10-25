@@ -1,6 +1,6 @@
 # 通过将 Disney+安装为渐进式网络应用程序来更快地启动它
 
-> 原文:[https://life hacker . com/launch-Disney-faster-by-installing-it-as-a-progressive-1842728846](https://lifehacker.com/launch-disney-faster-by-installing-it-as-a-progressive-1842728846)
+> 原文：<https://lifehacker.com/launch-disney-faster-by-installing-it-as-a-progressive-1842728846>
 
 如果你在 Windows 或 macOS 上看了很多 Disney+的，考虑将该网站安装为一个渐进式网络应用(PWA) ，以便更快地访问你最喜欢的电影和节目。
 

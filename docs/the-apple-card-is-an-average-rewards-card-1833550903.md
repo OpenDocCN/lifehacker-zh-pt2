@@ -1,6 +1,6 @@
 # 苹果卡是一种普通的奖励卡
 
-> 原文:[https://life hacker . com/the-apple-card-is-a-average-rewards-card-1833550903](https://lifehacker.com/the-apple-card-is-an-average-rewards-card-1833550903)
+> 原文：<https://lifehacker.com/the-apple-card-is-an-average-rewards-card-1833550903>
 
 在今天的苹果活动后，我们有更多关于苹果即将与高盛合作的 [信用卡](https://lifehacker.com/should-you-get-the-apple-and-goldman-sachs-credit-card-1832792958) 的细节，如果你希望一张改变游戏的奖励卡，嗯，这不是它。
 

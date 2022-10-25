@@ -1,6 +1,6 @@
 # 外面冷了怎么办一个实惠的生日派对
 
-> 原文:[https://life hacker . com/how-to-host-an-affordable-birthday-party-when-the-cold-1839070683](https://lifehacker.com/how-to-host-an-affordable-birthday-party-when-its-cold-1839070683)
+> 原文：<https://lifehacker.com/how-to-host-an-affordable-birthday-party-when-its-cold-1839070683>
 
 似乎孩子们对生日聚会的期望已经失控了。(对不起，小约翰尼，今年的预算里没有后院马戏和骑小马的活动！)但有可能我们把自己的不安全感投射到了孩子身上。仅仅因为约翰尼的七个同学在当地的蹦床公园举行了生日聚会——无论如何，这在我所在的地区是件大事——并不意味着如果你决定减少一点开支，他的生日就会被毁了。
 

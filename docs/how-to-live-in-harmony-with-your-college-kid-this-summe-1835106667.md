@@ -1,6 +1,6 @@
 # 如何在这个夏天与你的大学生和谐相处
 
-> 原文:[https://life hacker . com/how-to-live-harmony-your-college-kid-this-summe-1835106667](https://lifehacker.com/how-to-live-in-harmony-with-your-college-kid-this-summe-1835106667)
+> 原文：<https://lifehacker.com/how-to-live-in-harmony-with-your-college-kid-this-summe-1835106667>
 
 我从大学回家的第一个夏天，我计划工作，与我的高中朋友重新联系，享受没有论文可写的自由。我觉得自己比离开时更老、更聪明、更独立；然而，我的父母仍然坚持让我遵守高中的宵禁(坦率地说，即使作为一名高中生，我也觉得太早了)。
 

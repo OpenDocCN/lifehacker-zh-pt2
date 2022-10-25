@@ -1,6 +1,6 @@
 # 游说到底是什么？
 
-> 原文:[https://lifehacker.com/what-exactly-is-lobbying-1835525578](https://lifehacker.com/what-exactly-is-lobbying-1835525578)
+> 原文：<https://lifehacker.com/what-exactly-is-lobbying-1835525578>
 
 上周，在 T2 的一次推特交流中，纽约州众议员亚历山大·奥卡西奥·科尔特斯和得克萨斯州参议员特德·克鲁兹最终达成了一致:两位官员联手强调需要限制前国会议员成为说客的能力。
 

@@ -1,6 +1,6 @@
 # 追踪你所在州的冠状病毒 R₀
 
-> 原文:[https://life hacker . com/where-we-now-with-the-coronavirus-r-1844055940](https://lifehacker.com/where-we-are-now-with-the-coronaviruss-r-1844055940)
+> 原文：<https://lifehacker.com/where-we-are-now-with-the-coronaviruss-r-1844055940>
 
 还记得冠状病毒还是全新的时候，我们都担心它的 R <sub>0</sub> 可能会变成 T5T1】吗？R <sub>0</sub> ，读作“R naught”，是一个衡量每个感染者倾向于传染给多少人的指标。为了阻止疫情，我们需要把这个数字降到小于 1。一个名为 [Rt.live](https://rt.live/) 的工具根据最近的数据显示了每个州当前的生育数量。
 

@@ -1,6 +1,6 @@
 # 用你的烂礼品卡换联合航空的里程
 
-> 原文:[https://life hacker . com/exchange-your-lappy-gift-cards-for-United-airlines-mil-1840724584](https://lifehacker.com/exchange-your-crappy-gift-cards-for-united-airlines-mil-1840724584)
+> 原文：<https://lifehacker.com/exchange-your-crappy-gift-cards-for-united-airlines-mil-1840724584>
 
 在这个假期里，奶酪蛋糕工厂又收到了 50 美元？ H 以下是如何把它换成你可能会用到的东西。作为 MileagePlus 礼品卡兑换计划的一部分，联合航空公司提供购买您不需要的礼品卡，并通过航空公司将其兑换为实际奖励里程。
 

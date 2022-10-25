@@ -1,6 +1,6 @@
 # 该不该写自己的遗嘱？
 
-> 原文:[https://life hacker . com/when-it ' s a bad-idea-write your-own-will-1834504452](https://lifehacker.com/when-is-it-a-bad-idea-to-write-your-own-will-1834504452)
+> 原文：<https://lifehacker.com/when-is-it-a-bad-idea-to-write-your-own-will-1834504452>
 
 你知道你需要一份遗嘱。为什么不使用在线法律服务，或者自己写呢？
 

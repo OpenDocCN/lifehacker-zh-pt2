@@ -1,6 +1,6 @@
 # 如何防止负复利偏离你的财务目标
 
-> 原文:[https://life hacker . com/how-to-keep-negative-compound-from-出轨-your-fi-1836530454](https://lifehacker.com/how-to-keep-negative-compounding-from-derailing-your-fi-1836530454)
+> 原文：<https://lifehacker.com/how-to-keep-negative-compounding-from-derailing-your-fi-1836530454>
 
 当你为退休或另一个大的财务目标存钱时，每一分钱都很重要。这包括你支付的经纪费和损失费用比率——由于所谓的“负复利”，这些加起来可能比你意识到的要多得多。
 

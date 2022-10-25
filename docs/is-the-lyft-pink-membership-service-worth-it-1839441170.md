@@ -1,6 +1,6 @@
 # “Lyft Pink”会员服务值得吗？
 
-> 原文:[https://life hacker . com/is-the-lyft-pink-membership-service-worth-it-1839441170](https://lifehacker.com/is-the-lyft-pink-membership-service-worth-it-1839441170)
+> 原文：<https://lifehacker.com/is-the-lyft-pink-membership-service-worth-it-1839441170>
 
 四处逛逛可能会很贵。随着更多的方式出现——打车、租车、滑板车、普通自行车、电动助力自行车——那么，你的无车尝试可能会很快增加一些看起来像汽车付款的东西。
 

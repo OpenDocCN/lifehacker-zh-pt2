@@ -1,6 +1,6 @@
 # 如何腌制樱桃
 
-> 原文:[https://lifehacker.com/how-to-pickle-cherries-1843856478](https://lifehacker.com/how-to-pickle-cherries-1843856478)
+> 原文：<https://lifehacker.com/how-to-pickle-cherries-1843856478>
 
 我想，差不多是夏天了——至少杂货店里一袋袋暗红色的樱桃是这么告诉我的。樱桃季节会持续一段时间，但它仍然显得太短暂，这就是为什么我会花时间从我买的每个袋子里快速腌制一些。
 

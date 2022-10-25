@@ -1,6 +1,6 @@
 # 关于高收益回报支票账户应该知道什么
 
-> 原文:[https://life hacker . com/what-to-know-about-high-yield-reward-checking-accounts-1830681732](https://lifehacker.com/what-to-know-about-high-yield-reward-checking-accounts-1830681732)
+> 原文：<https://lifehacker.com/what-to-know-about-high-yield-reward-checking-accounts-1830681732>
 
 利率在一点点上升，但是如果你满足一定的要求，你可以通过转换到高收益回报支票账户获得大银行的两倍~两个百分点的收益。
 

@@ -1,6 +1,6 @@
 # 你应该做香肠球华夫饼
 
-> 原文:[https://life hacker . com/you-should-make-香肠球华夫饼-1843709873](https://lifehacker.com/you-should-make-sausage-ball-waffles-1843709873)
+> 原文：<https://lifehacker.com/you-should-make-sausage-ball-waffles-1843709873>
 
 隔离期间我一直在做两件事:做香肠和(不太成功地)重新整理我的厨房。前者已经成为一种困扰——我几乎完善了我的早餐香肠——但后者把我带到了一个被遗忘的收藏库—,里面有亮蓝色的快餐盒，包括但不限于饼干混合物。显然，一切都井井有条——我需要做香肠球。
 

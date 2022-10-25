@@ -1,6 +1,6 @@
 # 在一些机场餐厅使用您的优先通票可享受 28 美元的优惠
 
-> 原文:[https://life hacker . com/use-your-priority-pass-for-28-off-at-some-airport-rest-1833471990](https://lifehacker.com/use-your-priority-pass-for-28-off-at-some-airport-rest-1833471990)
+> 原文：<https://lifehacker.com/use-your-priority-pass-for-28-off-at-some-airport-rest-1833471990>
 
 如果你使用优先通行证进入机场候机室，你可能会对免费食物印象不深，这取决于你在哪里。但是有一种方法可以在不花更多钱的情况下获得更高质量的食物。
 

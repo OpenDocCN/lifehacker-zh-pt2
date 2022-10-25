@@ -1,6 +1,6 @@
 # 你的信用评分多久更新一次
 
-> 原文:[https://life hacker . com/how-frequency-your-credit-score-is-updated-1831051107](https://lifehacker.com/how-often-your-credit-score-is-updated-1831051107)
+> 原文：<https://lifehacker.com/how-often-your-credit-score-is-updated-1831051107>
 
 如果你想申请一张新的信用卡或房屋或汽车贷款，你可能想确保你的信用状况良好。但是知道什么时候申请最合适可能取决于你的信用评分何时改变。这随时都有可能发生。
 

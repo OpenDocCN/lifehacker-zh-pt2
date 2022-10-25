@@ -1,6 +1,6 @@
 # 2019 年 11 月亚马逊 Prime 视频会有什么
 
-> 原文:[https://life hacker . com/whats-coming-to-Amazon-prime-video-in-11-2019-1839145761](https://lifehacker.com/whats-coming-to-amazon-prime-video-in-november-2019-1839145761)
+> 原文：<https://lifehacker.com/whats-coming-to-amazon-prime-video-in-november-2019-1839145761>
 
 亚马逊 Prime Video 将于 11 月开始，增加了大量经典电影、，包括*大顶皮威*、*坏圣诞老人*和*黄金眼*。
 

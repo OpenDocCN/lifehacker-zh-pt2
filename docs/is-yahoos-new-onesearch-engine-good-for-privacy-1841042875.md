@@ -1,6 +1,6 @@
 # 雅虎新的“OneSearch”引擎对隐私有好处吗？
 
-> 原文:[https://life hacker . com/is-Yahoo s-new-one search-engine-good-for-privacy-1841042875](https://lifehacker.com/is-yahoos-new-onesearch-engine-good-for-privacy-1841042875)
+> 原文：<https://lifehacker.com/is-yahoos-new-onesearch-engine-good-for-privacy-1841042875>
 
 与过去时代的雅虎搜索相比，雅虎和威瑞森的新搜索引擎 OneSearch 是一个非常不同的产品。OneSearch 不仅抛弃了雅虎品牌(原因显而易见)，它还声称不使用 cookies，不存储搜索历史，也不共享用户信息。
 

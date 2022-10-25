@@ -1,6 +1,6 @@
 # 在你的孩子戴牙套之前，考虑以下五个因素
 
-> 原文:[https://life hacker . com/before-your-kid-gets-brackets-consider-this-the-five-factor-1830828291](https://lifehacker.com/before-your-kid-gets-braces-consider-these-five-factor-1830828291)
+> 原文：<https://lifehacker.com/before-your-kid-gets-braces-consider-these-five-factor-1830828291>
 
 当我回头看我 7 年级时的照片时，我感到害怕。不是因为我的嘴里全是金属，我的脸上长满了粉刺，而是因为这些天来，我知道牙套和牙齿矫正护理要花多少钱。很抱歉，爸爸妈妈。
 

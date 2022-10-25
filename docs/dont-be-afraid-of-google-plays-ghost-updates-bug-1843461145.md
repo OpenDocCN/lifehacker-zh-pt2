@@ -1,6 +1,6 @@
 # 不要害怕 Google Play 的“幽灵更新”错误
 
-> 原文:[https://life hacker . com/don ' t-be-畏 Google-plays-ghost-updates-bug-1843461145](https://lifehacker.com/dont-be-afraid-of-google-plays-ghost-updates-bug-1843461145)
+> 原文：<https://lifehacker.com/dont-be-afraid-of-google-plays-ghost-updates-bug-1843461145>
 
 据用户报道，谷歌 Play 商店闹鬼。
 

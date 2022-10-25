@@ -1,6 +1,6 @@
 # 为什么你的 USB-C 线不能给你的树莓 Pi 4 供电
 
-> 原文:[https://life hacker . com/why-your-USB-c-cable-cant-power-your-raspberry-pi-4-1842033826](https://lifehacker.com/why-your-usb-c-cable-cant-power-your-raspberry-pi-4-1842033826)
+> 原文：<https://lifehacker.com/why-your-usb-c-cable-cant-power-your-raspberry-pi-4-1842033826>
 
 现在是买树莓派 4 的最佳时机。我承认，我从来没有大到树莓皮的世界，直到我得到了一个，并拍了皮洞。现在，这个小小的神奇盒子在阻止第三方广告和其他可怕的追踪器方面做了令人难以置信的工作——甚至超过了最好的浏览器扩展，因为它可以在连接到我网络的所有设备上工作。
 

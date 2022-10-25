@@ -1,6 +1,6 @@
 # iPhone 上该不该切换到 Google Fi？
 
-> 原文:[https://life hacker . com/should-you-switch-to-Google-fi-on-the-iphone-1830742064](https://lifehacker.com/should-you-switch-to-google-fi-on-the-iphone-1830742064)
+> 原文：<https://lifehacker.com/should-you-switch-to-google-fi-on-the-iphone-1830742064>
 
 本周早些时候，谷歌宣布其蜂窝服务提供商部门“Project Fi”已经从测试版“Project”升级为成熟产品 [Google Fi](https://www.blog.google/products/project-fi/bringing-google-fi-more-people-android-and-ios/) 。名称的改变很好，但整个事情真正有趣和令人兴奋的是，作为转变的一部分，Google Fi 现在正式支持 iPhone。
 

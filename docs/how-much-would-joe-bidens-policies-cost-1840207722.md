@@ -1,6 +1,6 @@
 # 乔·拜登的政策要花多少钱？
 
-> 原文:[https://life hacker . com/how-much-won-won-Joe-Bidens-policies-cost-1840207722](https://lifehacker.com/how-much-would-joe-bidens-policies-cost-1840207722)
+> 原文：<https://lifehacker.com/how-much-would-joe-bidens-policies-cost-1840207722>
 
 乔·拜登曾表示，如果当选总统，他将让大学和医疗保健变得更加实惠，同时推动国家转向更多的可再生能源。听起来很棒！但这些变化将会带来超过 3 万亿美元的代价。在批评其他候选人的计划是不成熟的几个月后，拜登透露了他自己的 T2 计划。所以我们来看看。
 

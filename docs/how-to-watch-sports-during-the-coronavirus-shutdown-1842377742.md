@@ -1,6 +1,6 @@
 # 冠状病毒关闭期间如何观看体育比赛
 
-> 原文:[https://life hacker . com/how-to-watch-sports-in-the-coronavirus-shut down-1842377742](https://lifehacker.com/how-to-watch-sports-during-the-coronavirus-shutdown-1842377742)
+> 原文：<https://lifehacker.com/how-to-watch-sports-during-the-coronavirus-shutdown-1842377742>
 
 为了应对疫情冠状病毒，地球上几乎每一个主要的体育联盟都选择了暂停或无限期推迟运营——这是正确的。但是这个决定让世界各地的体育迷们想知道，在强制自我隔离期间，他们的体育节目选项会是什么样子。
 

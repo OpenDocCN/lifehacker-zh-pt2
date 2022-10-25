@@ -1,6 +1,6 @@
 # 2500 美元是你新的紧急储蓄目标
 
-> 原文:[https://life hacker . com/2500-is-your ' s new-emergency-savings-goal-1839234959](https://lifehacker.com/2500-is-your-new-emergency-savings-goal-1839234959)
+> 原文：<https://lifehacker.com/2500-is-your-new-emergency-savings-goal-1839234959>
 
 如果把三到六个月的开支存进应急基金听起来是明智但几乎不可能实现的建议，那么越来越多的证据表明，你不需要存那么多钱来缓冲财务紧急情况。2500 美元可能足以让你开始。
 

@@ -1,6 +1,6 @@
 # 总统在任期间从外部企业赚钱违法吗？
 
-> 原文:[https://life hacker . com/is-it-非法让总统从外面赚钱-1837982914](https://lifehacker.com/is-it-illegal-for-a-president-to-make-money-from-outsid-1837982914)
+> 原文：<https://lifehacker.com/is-it-illegal-for-a-president-to-make-money-from-outsid-1837982914>
 
 上周，美国副总统迈克·彭斯访问了爱尔兰都柏林，参加了几场会议——但令人困惑的是，他住在 200 英里外 T3[附近的一家川普酒店。就在昨天，美国空军因在苏格兰川普酒店过夜加油而受到审查。特朗普本人最近](https://www.vox.com/policy-and-politics/2019/9/3/20847247/mike-pence-ireland-doonbeg-trip-180-miles-away-trump-hotel) [提议](https://www.usatoday.com/story/news/politics/2019/08/26/trump-and-g-7-presidents-florida-golf-resort-may-host-2020-gathering/2118304001/) 在他位于佛罗里达州多拉尔的酒店举办下一届七国集团峰会。“我在各地都有很多酒店，人们使用它们是因为它们是最好的，”特朗普在回答关于彭斯最近入住的问题时说。
 

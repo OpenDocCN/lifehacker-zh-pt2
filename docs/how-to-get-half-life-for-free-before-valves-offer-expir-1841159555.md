@@ -1,6 +1,6 @@
 # 如何在 Valve 的优惠到期前免费获得'半衰期'
 
-> 原文:[https://life hacker . com/how-to-get-half-life-for-free-before-valves-offer-expir-1841159555](https://lifehacker.com/how-to-get-half-life-for-free-before-valves-offer-expir-1841159555)
+> 原文：<https://lifehacker.com/how-to-get-half-life-for-free-before-valves-offer-expir-1841159555>
 
 *半衰期 3* 什么时候出？也许永远不会；谁知道呢。但与此同时，Valve 给你一个难得的机会，让你完全免费地玩完整版的*半衰期*和*半衰期 2* ，其中有一个关键的限时捕捉。
 

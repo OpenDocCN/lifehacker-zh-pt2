@@ -1,6 +1,6 @@
 # 如何让你的肉桂卷尝起来像肉桂卷
 
-> 原文:[https://life hacker . com/how-to-make your-cinnamon-rolls-taste-like-cinnabons-1839326463](https://lifehacker.com/how-to-make-your-cinnamon-rolls-taste-like-cinnabons-1839326463)
+> 原文：<https://lifehacker.com/how-to-make-your-cinnamon-rolls-taste-like-cinnabons-1839326463>
 
 Cinnabon 从技术上讲生产肉桂卷，但他们生产的产品几乎自成一类。这些卷比它们的同类更粘、更粘、更密、更浓。
 

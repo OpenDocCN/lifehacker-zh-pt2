@@ -1,6 +1,6 @@
 # 见见我们新的个人理财作家
 
-> 原文:[https://life hacker . com/meet-our-new-personal-finance-writer-1834563704](https://lifehacker.com/meet-our-new-personal-finance-writer-1834563704)
+> 原文：<https://lifehacker.com/meet-our-new-personal-finance-writer-1834563704>
 
 你好。我可能是最普通的没有 Kinja 账号的 Lifehacker 读者。但是这种情况已经结束了！就现在！
 

@@ -1,6 +1,6 @@
 # 非奇客漫画入门指南
 
-> 原文:[https://life hacker . com/a-非极客-入门指南-阅读-漫画-1833244345](https://lifehacker.com/a-non-geeks-guide-to-start-reading-comics-1833244345)
+> 原文：<https://lifehacker.com/a-non-geeks-guide-to-start-reading-comics-1833244345>
 
 这段视频首次发布于 2019 年 3 月 13 日。我们今天在期待漫威的 [【复仇者联盟 4：终局之战】](https://io9.gizmodo.com/avengers-endgame-is-overwhelmingly-epic-and-immensely-1834240218) 的发布中重新露面。
 

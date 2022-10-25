@@ -1,6 +1,6 @@
 # 和你的孩子一起读电影剧本
 
-> 原文:[https://life hacker . com/read-movie-scripts-with-your-kid-1834542679](https://lifehacker.com/read-movie-scripts-with-your-kid-1834542679)
+> 原文：<https://lifehacker.com/read-movie-scripts-with-your-kid-1834542679>
 
 我和我 6 岁的孩子一直在欣赏一本名为[的儿童系列书，你读给我听，我也读给你听。](https://www.amazon.com/You-Read-Me-Ill-Together/dp/0316013161?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/read-movie-scripts-with-your-kid-1834542679&asc_source=&tag=kinjalifehackerlink-20)这些书是格式化的供两个人轮流阅读不同的部分，就像一个剧本。我们 肩并肩坐着，扮演不同的角色 [做所有愚蠢的声音](https://offspring.lifehacker.com/how-to-read-aloud-to-your-kid-according-to-audiobook-n-1833998192) (我期待奥斯卡对我的角色大灰狼的认可)。这很有趣，，这让我想到，最终，我们应该开始阅读真正的剧本。
 

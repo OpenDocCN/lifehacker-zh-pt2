@@ -1,6 +1,6 @@
 # 当你被赶下飞机时，该问些什么
 
-> 原文:[https://life hacker . com/what-to-quest-when-you-bumped-from a-flight-1836448891](https://lifehacker.com/what-to-ask-for-when-youre-bumped-from-a-flight-1836448891)
+> 原文：<https://lifehacker.com/what-to-ask-for-when-youre-bumped-from-a-flight-1836448891>
 
 去年，联合航空 航班 [上的一名乘客因自愿取消航班而获得了 1 万美元的旅行积分。虽然如果你同意做志愿者，你不太可能得到同样多的钱，但重要的是你知道你有权得到什么。](https://thepointsguy.com/2018/03/united-10000-voucher-bump/)
 

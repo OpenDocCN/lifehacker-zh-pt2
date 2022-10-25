@@ -1,6 +1,6 @@
 # how to identify and report hate speech on social media 1831018803
 
-> 原文:[https://life hacker . com/how-to-identify-and-report-hate-speech-on-social-media-1831018803](https://lifehacker.com/how-to-identify-and-report-hate-speech-on-social-media-1831018803)
+> 原文：<https://lifehacker.com/how-to-identify-and-report-hate-speech-on-social-media-1831018803>
 
 社交媒体非常适合联系人们，分享新闻和信息，并给你的祖母自由表达政治观点的机会。不幸的是，它的匿名性和广泛传播使人们很容易传播仇恨，自唐纳德·特朗普在 2016 年当选以来，社交媒体用户注意到在线仇恨言论令人担忧地增加。
 

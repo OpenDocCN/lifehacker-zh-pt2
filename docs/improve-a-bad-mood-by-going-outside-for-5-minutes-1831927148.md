@@ -1,6 +1,6 @@
 # 出去 5 分钟，改善坏心情
 
-> 原文:[https://life hacker . com/improve-a-bad-mood by-going-out-5 分钟-1831927148](https://lifehacker.com/improve-a-bad-mood-by-going-outside-for-5-minutes-1831927148)
+> 原文：<https://lifehacker.com/improve-a-bad-mood-by-going-outside-for-5-minutes-1831927148>
 
 治疗坏心情的方法可能就像出门一样简单。
 

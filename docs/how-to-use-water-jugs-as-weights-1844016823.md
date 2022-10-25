@@ -1,6 +1,6 @@
 # 如何使用水壶作为砝码
 
-> 原文:[https://life hacker . com/how-to-use-water-jugs-as-weights-1844016823](https://lifehacker.com/how-to-use-water-jugs-as-weights-1844016823)
+> 原文：<https://lifehacker.com/how-to-use-water-jugs-as-weights-1844016823>
 
 哑铃和壶铃可能仍然很难得到，但是盛水的容器随处可得，而且几乎免费。诀窍是找到合适的重量，而不是太尴尬。在本周的 [简易设备挑战](https://vitals.lifehacker.com/how-to-get-a-full-body-workout-with-a-pair-of-paper-pla-1843923503) 中，我们将使用水壶进行锻炼。
 

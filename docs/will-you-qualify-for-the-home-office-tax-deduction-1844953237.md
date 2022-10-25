@@ -1,6 +1,6 @@
 # 你有资格享受家庭办公室税收减免吗？
 
-> 原文:[https://life hacker . com/will-you-qualify-for-the-home-office-tax-deduction-1844953237](https://lifehacker.com/will-you-qualify-for-the-home-office-tax-deduction-1844953237)
+> 原文：<https://lifehacker.com/will-you-qualify-for-the-home-office-tax-deduction-1844953237>
 
 随着疫情的增加，数百万员工转向远程工作。根据美联储银行的一份报告，5 月份有 35.2%的员工在家工作，相比之下，2 月份只有 8.2%。如果你现在完全在偏远地区，你可能渴望知道你是否有资格享受家庭办公室税收减免——但资格规则可能会令人困惑。以下是需要了解的内容。
 

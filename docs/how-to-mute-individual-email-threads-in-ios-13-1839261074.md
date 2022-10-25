@@ -1,6 +1,6 @@
 # 如何在 iOS 13 中将单个邮件线程静音
 
-> 原文:[https://life hacker . com/how-to-mute-individual-email-threads-in-IOs-13-1839261074](https://lifehacker.com/how-to-mute-individual-email-threads-in-ios-13-1839261074)
+> 原文：<https://lifehacker.com/how-to-mute-individual-email-threads-in-ios-13-1839261074>
 
 智能手机通知的丁丁声和钟声是日常生活背景噪音的一部分。虽然这些有助于我们掌握重要的通信，但持续的噪音会造成焦虑。没有比塞满了你从未读过的邮件的收件箱更糟糕的多余通知了。
 

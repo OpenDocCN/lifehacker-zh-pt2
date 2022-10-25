@@ -1,6 +1,6 @@
 # 我是个大块头，需要一辆运动型车来承担家庭责任！应该买什么车？
 
-> 原文:[https://jalopnik . com/im-a-big-guy-the-need-a-sporty-ride-for-family-duty-1833286685](https://jalopnik.com/im-a-big-guy-that-needs-a-sporty-ride-for-family-duty-1833286685)
+> 原文：<https://jalopnik.com/im-a-big-guy-that-needs-a-sporty-ride-for-family-duty-1833286685>
 
 乔是个高个子，喜欢他的运动型轿车，但现在他是个父亲了，他需要一辆大一点的车来装汽车座椅和婴儿用品。但他不想放弃一些可以拐弯的东西。尽管预算不错，但他还没有找到合适的。他应该买什么车？
 

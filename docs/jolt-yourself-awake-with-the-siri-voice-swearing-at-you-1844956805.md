@@ -1,6 +1,6 @@
 # Siri 的声音在咒骂你，把你吵醒了
 
-> 原文:[https://life hacker . com/jolt-you-awake-with-the-Siri-voice-breaking-at-you-1844956805](https://lifehacker.com/jolt-yourself-awake-with-the-siri-voice-swearing-at-you-1844956805)
+> 原文：<https://lifehacker.com/jolt-yourself-awake-with-the-siri-voice-swearing-at-you-1844956805>
 
 我是 [不是一个容易醒来的人](https://lifehacker.com/a-night-owls-guide-to-surviving-early-mornings-1831880539) ，但多年来我发现，不幸的是，醒来是开始一天的必要条件。我玩过 [邪恶闹钟应用](https://lifehacker.com/this-evil-alarm-clock-app-is-the-only-reason-i-m-awake-1793682623) 和普通的贪睡按钮，但最近我发现了一个游戏改变者:你可以让 Siri 语音告诉你*叫醒他妈的*。
 

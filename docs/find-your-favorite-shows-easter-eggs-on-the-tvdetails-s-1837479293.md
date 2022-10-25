@@ -1,6 +1,6 @@
 # 在电视详情子编辑上找到你最喜欢的节目的复活节彩蛋
 
-> 原文:[https://life hacker . com/find-your-favorite-shows-Easter-eggs-on-the-TV details-s-1837479293](https://lifehacker.com/find-your-favorite-shows-easter-eggs-on-the-tvdetails-s-1837479293)
+> 原文：<https://lifehacker.com/find-your-favorite-shows-easter-eggs-on-the-tvdetails-s-1837479293>
 
 一些电视节目有太多的笑话，一次看不完:*发展受阻*， *30 摇滚*，*杰克骑士*，*辛普森一家*，*社区*。有的运用伏笔和主题暗示:*迷失*，*绝命毒师*，*百发百中*。有些只是有趣的错误，或者在布景和服装上的小选择。你可以在 [r/TVDetails](https://www.reddit.com/r/TVDetails/) 上一探究竟，这是一个专门为观众可能忽略的电视节目中的小瞬间而设的子栏目。这里有一些我们最喜欢的。
 

@@ -1,6 +1,6 @@
 # 立即更新 Windows 10 以阻止“SMBGhost”
 
-> 原文:[https://life hacker . com/update-windows-10-now-to-block-smbghost-1843968661](https://lifehacker.com/update-windows-10-now-to-block-smbghost-1843968661)
+> 原文：<https://lifehacker.com/update-windows-10-now-to-block-smbghost-1843968661>
 
 当连国土安全部的网络安全和基础设施安全局都开始对你未打补丁的 Windows 10 系统感到紧张时，也许是时候确保你已经从 Windows Update 下载了你需要的一切。
 

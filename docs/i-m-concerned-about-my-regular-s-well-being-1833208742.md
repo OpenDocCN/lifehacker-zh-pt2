@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:我担心我的常客的健康
 
-> 原文:[https://the take out . com/I-m-concerned-about-my-regular-s-well-being-1833208742](https://thetakeout.com/i-m-concerned-about-my-regular-s-well-being-1833208742)
+> 原文：<https://thetakeout.com/i-m-concerned-about-my-regular-s-well-being-1833208742>
 
 > 嗨，咸味，我在西部一个滑雪胜地一个有很多有钱顾客的高档酒吧里卖饮料。虽然我大部分时间都在做口哨猪和倒唐·胡里奥 1942，但我们也有一些不是亿万富翁的常客，他们每周在酒吧锁定同一个座位好几个晚上。
 > 

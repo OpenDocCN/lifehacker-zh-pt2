@@ -1,6 +1,6 @@
 # 如何从资助堕胎禁令的公司撤资
 
-> 原文:[https://life hacker . com/how-to-depict-from-the-corporations-funding-decimation-ba-1834980204](https://lifehacker.com/how-to-divest-from-the-corporations-funding-abortion-ba-1834980204)
+> 原文：<https://lifehacker.com/how-to-divest-from-the-corporations-funding-abortion-ba-1834980204>
 
 本周早些时候，贾德·勒古姆的大众信息通讯报道说，近年来，佐治亚州、密西西比州、阿拉巴马州、肯塔基州、密苏里州和俄亥俄州的六周堕胎禁令背后的六家公司 [向立法者](https://popular.info/p/these-six-corporations-are-financing)捐助了数十万美元。为了反击，全国的消费者已经开始组织抵制。
 

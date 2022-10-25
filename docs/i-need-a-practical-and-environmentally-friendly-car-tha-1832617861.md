@@ -1,6 +1,6 @@
 # 我需要一辆实用环保又不会传递错误信息的车！应该买什么车？
 
-> 原文:[https://jalopnik . com/I-need-a-实用型环保汽车 tha-1832617861](https://jalopnik.com/i-need-a-practical-and-environmentally-friendly-car-tha-1832617861)
+> 原文：<https://jalopnik.com/i-need-a-practical-and-environmentally-friendly-car-tha-1832617861>
 
 托马斯是中西部的一名建筑师，他正在寻找一辆舒适的跨界车，既能载着他的两个儿子，又有合理的碳足迹，还不会向他的潜在客户传递错误的信息。他应该买什么车？
 

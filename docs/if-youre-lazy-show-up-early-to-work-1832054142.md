@@ -1,6 +1,6 @@
 # 如果你很懒，那就早点去上班
 
-> 原文:[https://life hacker . com/if-you-lazy-show-up-early-to-work-1832054142](https://lifehacker.com/if-youre-lazy-show-up-early-to-work-1832054142)
+> 原文：<https://lifehacker.com/if-youre-lazy-show-up-early-to-work-1832054142>
 
 最近，Lifehacker 和我们姐妹网站的编辑人员需要在上午 10 点整在办公室集合。宣布这一消息的人感谢我们“在如此不虔诚的时刻”出现。我咧嘴一笑，像往常一样，在 8:55 左右到达。我通常是办公室里第一个生活黑客员工。部分是因为它看起来不错，但主要是因为我懒惰且自我放纵。
 

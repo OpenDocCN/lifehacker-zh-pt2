@@ -1,6 +1,6 @@
 # 如何不用喷雾清新空气
 
-> 原文:[https://life hacker . com/how-to-fresh-the-air without-sprays-1841261355](https://lifehacker.com/how-to-freshen-the-air-without-sprays-1841261355)
+> 原文：<https://lifehacker.com/how-to-freshen-the-air-without-sprays-1841261355>
 
 这里感觉有点闷吗？
 

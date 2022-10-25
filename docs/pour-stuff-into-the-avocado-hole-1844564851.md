@@ -1,6 +1,6 @@
 # 把东西倒进鳄梨洞里
 
-> 原文:[https://life hacker . com/pour-stuff-into-the-avocado-hole-1844564851](https://lifehacker.com/pour-stuff-into-the-avocado-hole-1844564851)
+> 原文：<https://lifehacker.com/pour-stuff-into-the-avocado-hole-1844564851>
 
 我一直很欣赏鳄梨的整洁。一旦对半切开，你可以直接从果皮中舀起奶油状的绿色果肉，它就像是自己的小碗。但是鳄梨与生俱来的功能并不止于此——正如聪明的评论家艾伦·史密瑟尔 [指出的](https://lifehacker.com/1844455471) ，一旦你去掉了核，你就有了一个完美的小缺口来盛放酱汁、调料或任何你想要的美味液体:
 

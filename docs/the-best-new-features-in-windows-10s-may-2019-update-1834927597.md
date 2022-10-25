@@ -1,6 +1,6 @@
 # Windows 10 2019 年 5 月更新中最好的新功能
 
-> 原文:[https://life hacker . com/the-best-new-features-in-windows-10s-may-2019-update-1834927597](https://lifehacker.com/the-best-new-features-in-windows-10s-may-2019-update-1834927597)
+> 原文：<https://lifehacker.com/the-best-new-features-in-windows-10s-may-2019-update-1834927597>
 
 微软今天正式推出了 Windows 10 2019 年 5 月更新，供所有人使用——也就是说，所有已经几个月没有进行测试的人。获取所述更新是容易的。单击开始按钮，键入“更新”，单击弹出的“检查更新”选项，然后在随后的屏幕中单击不容错过的“检查更新”按钮。如果你看到一个“Windows 10，version 1903”更新的列表，那就是你想要的那个。
 

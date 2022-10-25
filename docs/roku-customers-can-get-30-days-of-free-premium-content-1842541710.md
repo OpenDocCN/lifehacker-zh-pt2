@@ -1,6 +1,6 @@
 # Roku 用户现在可以获得 30 天的免费优质内容
 
-> 原文:[https://life hacker . com/Roku-customers-can-get-30-days of-free-premium-content-1842541710](https://lifehacker.com/roku-customers-can-get-30-days-of-free-premium-content-1842541710)
+> 原文：<https://lifehacker.com/roku-customers-can-get-30-days-of-free-premium-content-1842541710>
 
 我们现在在家的时间都比以前多了。如果你已经开始看不下去了，Roku 正在提供一些不同频道 的 [30 天免费试用，包括 Showtime、Epix 和 Smithsonian。](https://blog.roku.com/home-together) 
 

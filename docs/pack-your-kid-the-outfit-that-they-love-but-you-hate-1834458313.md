@@ -1,6 +1,6 @@
 # 给你的孩子准备一套他们喜欢但你讨厌的衣服
 
-> 原文:[https://life hacker . com/pack-your-kid-the-gear-that-they-love-but-you-hate-1834458313](https://lifehacker.com/pack-your-kid-the-outfit-that-they-love-but-you-hate-1834458313)
+> 原文：<https://lifehacker.com/pack-your-kid-the-outfit-that-they-love-but-you-hate-1834458313>
 
 日托中心让你把“备用衣服”放在孩子的尿布包里，你会选择哪件衣服？我过去常常选择旧的或丑陋的东西，因为我为什么要把一件非常好的衬衫和裤子从常规的洗衣循环中拿出来？
 

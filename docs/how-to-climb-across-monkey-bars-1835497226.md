@@ -1,6 +1,6 @@
 # 如何爬过单杠
 
-> 原文:[https://life hacker . com/how-to-climb-over-monkey-bars-1835497226](https://lifehacker.com/how-to-climb-across-monkey-bars-1835497226)
+> 原文：<https://lifehacker.com/how-to-climb-across-monkey-bars-1835497226>
 
 我小时候单杠已经够难了。但是这周我又试了一次，比以前更老，更聪明，肌肉也更多了。你知道吗？他们仍然非常非常努力。
 

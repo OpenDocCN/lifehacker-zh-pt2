@@ -1,6 +1,6 @@
 # 美国国家铁路客运公司提供 BOGO 到一些东海岸目的地的火车票
 
-> 原文:[https://life hacker . com/Amtrak-is-offing-bogo-train-tickets-to-some-east-coas-1834865199](https://lifehacker.com/amtrak-is-offering-bogo-train-tickets-to-some-east-coas-1834865199)
+> 原文：<https://lifehacker.com/amtrak-is-offering-bogo-train-tickets-to-some-east-coas-1834865199>
 
 如果你计划今年夏天沿着东海岸旅行，你可能会考虑坐火车旅行。
 

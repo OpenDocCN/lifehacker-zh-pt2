@@ -1,6 +1,6 @@
 # 如何使用谷歌地图找到兼容的电动汽车充电站
 
-> 原文:[https://life hacker . com/how-to-find-a-compatible-electric-car-charging-station-1840461143](https://lifehacker.com/how-to-find-a-compatible-electric-car-charging-station-1840461143)
+> 原文：<https://lifehacker.com/how-to-find-a-compatible-electric-car-charging-station-1840461143>
 
 电动汽车可能是未来的发展方向，但不同品牌和型号的充电插头各不相同，这使得寻找兼容的电动汽车(EV)充电站比简单地停在加油站要困难得多。令人欣慰的是，Android 上的谷歌地图现在有一个“电动汽车设置”菜单，这将使寻找适合你的汽车的电动汽车充电端口变得不那么令人头疼。
 

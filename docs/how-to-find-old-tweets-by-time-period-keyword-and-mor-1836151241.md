@@ -1,6 +1,6 @@
 # 如何通过时间段、关键词等找到旧推文
 
-> 原文:[https://life hacker . com/how-to-find-old-tweets-by-time-period-keyword-and-mor-1836151241](https://lifehacker.com/how-to-find-old-tweets-by-time-period-keyword-and-mor-1836151241)
+> 原文：<https://lifehacker.com/how-to-find-old-tweets-by-time-period-keyword-and-mor-1836151241>
 
 查看旧的社交媒体帖子是一种简单的方法，可以快速了解在某个时间段你的生活中发生了什么。
 

@@ -1,6 +1,6 @@
 # 不要让 Alexa，Siri，或谷歌助理自动拨号公司
 
-> 原文:[https://life hacker . com/dont-let-Alexa-Siri-or-Google-assistant-auto-dial-com-1837376368](https://lifehacker.com/dont-let-alexa-siri-or-google-assistant-auto-dial-com-1837376368)
+> 原文：<https://lifehacker.com/dont-let-alexa-siri-or-google-assistant-auto-dial-com-1837376368>
 
 我们已经讨论过 [虚假企业名录如何不顾谷歌的规定出现在谷歌地图](https://lifehacker.com/how-to-find-and-report-fake-businesses-on-google-maps-1835733238) 上，并利用合法的表象来剥削客户和其他业务。事实证明，人工智能助手也很容易成为虚假信息的牺牲品。
 

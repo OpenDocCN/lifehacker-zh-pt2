@@ -1,6 +1,6 @@
 # 现在拿到护照要多长时间？
 
-> 原文:[https://life hacker . com/how-long-it-take-to-get-a-passport-right-now-1844030677](https://lifehacker.com/how-long-will-it-take-to-get-a-passport-right-now-1844030677)
+> 原文：<https://lifehacker.com/how-long-will-it-take-to-get-a-passport-right-now-1844030677>
 
 在停滞了几个月之后，旅行者们终于又开始环游世界了——或者至少开始思考这个问题了。随着政府部门开始再次加速运作，T2 的护照服务也分阶段重新开放。如果你正在计划出国旅行，下面是你现在需要知道的事情。
 

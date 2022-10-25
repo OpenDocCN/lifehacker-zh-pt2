@@ -1,6 +1,6 @@
 # 化妆运动会长痘痘吗？
 
-> 原文:[https://life hacker . com/does-exercise-in-cost-acne-1834339594](https://lifehacker.com/does-exercising-in-makeup-cause-acne-1834339594)
+> 原文：<https://lifehacker.com/does-exercising-in-makeup-cause-acne-1834339594>
 
 我不化妆健身，但我也不做评判——部分原因是我在健身房见过的最浓妆的是一个超级被劫持的常客。不管她在做什么，都是为了她！但是我经常听到关于那些化妆健身的人的传闻。这不是毁了他们的皮肤吗？？
 

@@ -1,6 +1,6 @@
 # 立即更新您的 QNAP NAS 盒，以阻止“QSnatch”恶意软件
 
-> 原文:[https://life hacker . com/update-your-qnap-nas-box-right-now-to-block-qsna tch-mal-1839615325](https://lifehacker.com/update-your-qnap-nas-box-right-now-to-block-qsnatch-mal-1839615325)
+> 原文：<https://lifehacker.com/update-your-qnap-nas-box-right-now-to-block-qsnatch-mal-1839615325>
 
 我将继续下去，为我自己为“Qnap”和“恶意软件”这两个词设置了一个谷歌警报而感到自豪。我使用该公司的一个 NAS 盒，就像许多其他人一样，现在我有机会为我的设备接种疫苗，抵御正在传播的一种令人讨厌的新恶意软件。
 

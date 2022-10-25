@@ -1,6 +1,6 @@
 # 用糊状的棕色梨子做一种奇特的水果酱
 
-> 原文:[https://life hacker . com/make-a-fancy-fruit-paste-out-of-mushy-brown-pears-1837877430](https://lifehacker.com/make-a-fancy-fruit-paste-out-of-mushy-brown-pears-1837877430)
+> 原文：<https://lifehacker.com/make-a-fancy-fruit-paste-out-of-mushy-brown-pears-1837877430>
 
 拥有一个花园看起来不错，但是一想到要处理突然出现的 74 个西红柿，我就非常焦虑。这就是为什么作为园丁的朋友，从他们的花园里拿八个西红柿、一磅黑莓或者四个梨对我来说很有效。(即使这样，有时也不是很好，因为我不擅长时间/成果管理。)
 

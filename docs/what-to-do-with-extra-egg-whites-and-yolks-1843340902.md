@@ -1,6 +1,6 @@
 # 如何处理多余的蛋白和蛋黄
 
-> 原文:[https://life hacker . com/what-do-with-extra-蛋清和蛋黄-1843340902](https://lifehacker.com/what-to-do-with-extra-egg-whites-and-yolks-1843340902)
+> 原文：<https://lifehacker.com/what-to-do-with-extra-egg-whites-and-yolks-1843340902>
 
 如果你曾经做过蛋白甜饼、蛋羹或超级松软的酸奶，你就经历过鸡蛋过多的困境。不管是蛋清还是蛋黄，扔掉鸡蛋没用过的部分都让人感觉不好而且浪费，我对这两种感觉都不感兴趣。
 

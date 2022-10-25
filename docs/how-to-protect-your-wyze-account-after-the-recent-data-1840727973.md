@@ -1,6 +1,6 @@
 # 最近数据泄露后如何保护你的 Wyze 账户
 
-> 原文:[https://life hacker . com/how-to-protect-your-wyze-account-after-the-recent-data-1840727973](https://lifehacker.com/how-to-protect-your-wyze-account-after-the-recent-data-1840727973)
+> 原文：<https://lifehacker.com/how-to-protect-your-wyze-account-after-the-recent-data-1840727973>
 
 最近的一次安全漏洞泄露了超过 240 万名 Wyze 安全摄像头用户的信息。被入侵的数据库没有受到保护，可以公开访问，这些信息似乎是由中国的阿里云计算公司收集和存储的。
 

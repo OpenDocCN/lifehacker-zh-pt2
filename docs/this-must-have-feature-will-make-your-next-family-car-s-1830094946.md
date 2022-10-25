@@ -1,6 +1,6 @@
 # 这个必备的功能会让你的下一辆家用车变得更好
 
-> 原文:[https://jalopnik . com/this-must-have-feature-will-make-your next-family-car-s-1830094946](https://jalopnik.com/this-must-have-feature-will-make-your-next-family-car-s-1830094946)
+> 原文：<https://jalopnik.com/this-must-have-feature-will-make-your-next-family-car-s-1830094946>
 
 我们正在接近一年中的这个时候，一些购车者开始对即将到来的寒冷天气感到恐慌，并决定他们需要一辆更大、“更安全”的家用车。通常，这涉及到某种全轮驱动的 SUV。但是我在这里告诉你，太多的购买者对“家用车”的看法都是错误的。
 

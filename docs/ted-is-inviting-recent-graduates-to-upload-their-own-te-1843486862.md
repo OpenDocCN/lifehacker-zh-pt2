@@ -1,6 +1,6 @@
 # TED 邀请应届毕业生上传他们自己的 TED 演讲
 
-> 原文:[https://life hacker . com/ted-is-inviting-应届毕业生上传自己的-te-1843486862](https://lifehacker.com/ted-is-inviting-recent-graduates-to-upload-their-own-te-1843486862)
+> 原文：<https://lifehacker.com/ted-is-inviting-recent-graduates-to-upload-their-own-te-1843486862>
 
 标志性的 ted 演讲背后的人 TED 邀请任何最近毕业的人上传他们自己的毕业主题的 TED 演讲到新的#毕业演讲页面 下的平台。
 

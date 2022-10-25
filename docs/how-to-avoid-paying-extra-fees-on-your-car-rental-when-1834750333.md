@@ -1,6 +1,6 @@
 # 25 岁以下如何避免支付额外的租车费用
 
-> 原文:[https://life hacker . com/how-to-avoid-payed-on-your car-rental-when-1834750333](https://lifehacker.com/how-to-avoid-paying-extra-fees-on-your-car-rental-when-1834750333)
+> 原文：<https://lifehacker.com/how-to-avoid-paying-extra-fees-on-your-car-rental-when-1834750333>
 
 当你超过 24 岁时，你的生活选择是无穷无尽的——至少在租车方面。但是如果你是一个年轻的司机，你最好准备好租一辆旧的小型货车，并收取疯狂的额外费用。
 

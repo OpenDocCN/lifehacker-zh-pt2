@@ -1,6 +1,6 @@
 # 特朗普政府向最高法院提交的文件会如何伤害 LGBTQ 工人
 
-> 原文:[https://life hacker . com/how-the-trump-administrations-supreme-court-filing-coul-1837659059](https://lifehacker.com/how-the-trump-administrations-supreme-court-filing-coul-1837659059)
+> 原文：<https://lifehacker.com/how-the-trump-administrations-supreme-court-filing-coul-1837659059>
 
 本月，特朗普政府反对保护美国的 LGBTQ 工人，认为现有法律不应涵盖基于性别认同和性取向的歧视。他们的推理？1964 年通过的一项法案没有明确包括这两个标准，如果国会想修改法律，早就修改了。
 

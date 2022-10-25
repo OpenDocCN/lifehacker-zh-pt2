@@ -1,6 +1,6 @@
 # 当同事将你的老板添加到邮件中时，如何回应
 
-> 原文:[https://life hacker . com/how-to-response-when-a-a-an-EMA-1839912369](https://lifehacker.com/how-to-respond-when-a-coworker-adds-your-boss-to-an-ema-1839912369)
+> 原文：<https://lifehacker.com/how-to-respond-when-a-coworker-adds-your-boss-to-an-ema-1839912369>
 
 在某个时候，我们都曾不幸地与消极进取的同事共事。你知道，那个家伙正在搞垮你的项目，但不知何故认为所有的问题都是别人的错，以至于他强调要告诉任何人和每个人，他们会听，包括你的老板，但不会直接和你聊天。
 

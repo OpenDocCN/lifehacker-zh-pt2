@@ -1,6 +1,6 @@
 # 清洁 AirPods 的最佳方式
 
-> 原文:[https://life hacker . com/the-best-way-to-clean-your-ai rpods-1838454955](https://lifehacker.com/the-best-way-to-clean-your-airpods-1838454955)
+> 原文：<https://lifehacker.com/the-best-way-to-clean-your-airpods-1838454955>
 
 在最近一期的 Recomendo 时事通讯 中，马克·弗劳恩菲尔德(Mark Frauenfelder)建议使用一个三件套工具来清除你的 AirPods 滤网上的耳垢。我的 AirPods 急需深度清洁，我们曾经在 Lifehacker 上推荐的清洁方法太恶心了，所以我跑出去买了松散蜡的小刷子、捕捉蜡的海报油灰和 Frauenfelder 推荐的工作检查放大镜。
 

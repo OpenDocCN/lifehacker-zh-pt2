@@ -1,6 +1,6 @@
 # DJI 制作了一个带有黑仔特色的 GoPro 克隆版
 
-> 原文:[https://gizmodo . com/DJI-made-a-go pro-clone-with-one-killer-feature-1834766834](https://gizmodo.com/dji-made-a-gopro-clone-with-one-killer-feature-1834766834)
+> 原文：<https://gizmodo.com/dji-made-a-gopro-clone-with-one-killer-feature-1834766834>
 
 GoPro，我有个坏消息。无人机巨头 DJI 刚刚发布了一款名为 Osmo Action 的坚固型新相机。它很像 GoPro——以至于当我的同事把它递给我时，我以为它是 go pro。Osmo Action 和最新的 GoPro 并不完全相同，但它们在尺寸和设计上非常相似，很明显 DJI 对 GoPro 的风格有多着迷。
 

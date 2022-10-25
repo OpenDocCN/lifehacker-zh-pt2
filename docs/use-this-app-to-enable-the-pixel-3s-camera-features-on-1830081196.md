@@ -1,6 +1,6 @@
 # 使用此应用程序在旧的 Pixel 智能手机型号上启用 Pixel 3 的相机功能
 
-> 原文:[https://life hacker . com/use-this-app-enable-the-pixel-3s-camera-features-on-1830081196](https://lifehacker.com/use-this-app-to-enable-the-pixel-3s-camera-features-on-1830081196)
+> 原文：<https://lifehacker.com/use-this-app-to-enable-the-pixel-3s-camera-features-on-1830081196>
 
 谷歌 Pixel 3 和 3 XL 智能手机上一些最令人兴奋的新功能是它们的新相机功能，如夜视(对深色照片进行更准确的色彩和光线增强)和 Top Shot，这有助于在你拍摄的一系列照片中挑选出最佳照片。
 

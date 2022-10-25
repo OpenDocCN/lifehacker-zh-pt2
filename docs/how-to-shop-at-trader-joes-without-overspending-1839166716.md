@@ -1,6 +1,6 @@
 # 如何在乔氏购物而不超支
 
-> 原文:[https://life hacker . com/how-to-shop-at-trader-joes-1839166716](https://lifehacker.com/how-to-shop-at-trader-joes-without-overspending-1839166716)
+> 原文：<https://lifehacker.com/how-to-shop-at-trader-joes-without-overspending-1839166716>
 
 Trader Joe's 是那些试图减少商店的种类，增加 T2 的体验的零售商之一——这意味着如果没有花费超出计划的体验，很难度过 TJ 之旅。
 

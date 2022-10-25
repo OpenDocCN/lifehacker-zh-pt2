@@ -1,6 +1,6 @@
 # 免费给医院里的孩子寄一张情人节卡片
 
-> 原文:[https://life hacker . com/send-a-valentine-a-child in-hospital-1832363184](https://lifehacker.com/send-a-valentine-to-a-child-in-the-hospital-for-free-1832363184)
+> 原文：<https://lifehacker.com/send-a-valentine-to-a-child-in-the-hospital-for-free-1832363184>
 
 不要强调情人节或者你的生活中是否有爱，试着送一点爱给生病的孩子。
 

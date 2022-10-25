@@ -1,6 +1,6 @@
 # 问咸的女服务员:这种难吃的节日食品可以退款吗？
 
-> 原文:[https://the take out . com/can-I-get-a-refund-on-this-dark-festival-food-1836495307](https://thetakeout.com/can-i-get-a-refund-on-this-terrible-festival-food-1836495307)
+> 原文：<https://thetakeout.com/can-i-get-a-refund-on-this-terrible-festival-food-1836495307>
 
 > 亲爱的咸，上周末我和几个朋友去了一个音乐节。第一天晚上，在我们喝了一整天酒，站了一整天之后，我们饿极了，试图在节日上从一个烧烤摊上订购一些三明治。队伍排得很长，当我们排到前面时，他们告诉我们他们的大部分食物都卖完了，但可以做一些奶酪通心粉和一些胸肉。
 > 

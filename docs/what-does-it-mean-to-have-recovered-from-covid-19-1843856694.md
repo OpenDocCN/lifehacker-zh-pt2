@@ -1,6 +1,6 @@
 # 从新冠肺炎恢复过来意味着什么？
 
-> 原文:[https://life hacker . com/what-it-mean-have-recovery-from-新冠肺炎-1843856694](https://lifehacker.com/what-does-it-mean-to-have-recovered-from-covid-19-1843856694)
+> 原文：<https://lifehacker.com/what-does-it-mean-to-have-recovered-from-covid-19-1843856694>
 
 除了新冠肺炎确诊病例的统计，还有一个从感染中康复的人数的二次统计。算一个从新冠肺炎恢复过来的人意味着什么？那看起来像什么？
 

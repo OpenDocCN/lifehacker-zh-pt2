@@ -1,6 +1,6 @@
 # 当杂货店有空位时得到通知
 
-> 原文:[https://life hacker . com/get-notified-when-a-drugy-pick-slot-available-1842966069](https://lifehacker.com/get-notified-when-a-grocery-pickup-slot-is-available-1842966069)
+> 原文：<https://lifehacker.com/get-notified-when-a-grocery-pickup-slot-is-available-1842966069>
 
 上一次我买食品杂货，是在整整七天定期(有时是持续)刷新我的购物车之后，目的是确保有一个送货窗口。一个新的基于网络的工具可以让这个过程对你来说不那么痛苦，只要你住在一个可以选择路边捡东西的地方。
 

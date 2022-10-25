@@ -1,6 +1,6 @@
 # 当你的孩子是虚拟教室里的新生时，如何帮助他
 
-> 原文:[https://life hacker . com/how-to-help-when-your child ' s-the-new-kid-in-a-virtual-1844570885](https://lifehacker.com/how-to-help-when-your-child-is-the-new-kid-in-a-virtual-1844570885)
+> 原文：<https://lifehacker.com/how-to-help-when-your-child-is-the-new-kid-in-a-virtual-1844570885>
 
 这个学年将会是彻头彻尾的怪异。在我们的新常态中，有很多新的东西需要去适应——尤其是如果，除了其他一切，你还是一个突然变成虚拟教室的新孩子。在非疫情的日子里，作为班级的新成员是令人兴奋和紧张的，但是当他们的教室兼作家庭餐厅时，你如何帮助你的新学生适应呢？
 

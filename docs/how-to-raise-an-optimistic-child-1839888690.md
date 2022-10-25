@@ -1,6 +1,6 @@
 # 如何培养一个乐观的孩子
 
-> 原文:[https://life hacker . com/how-to-养大一个乐观的孩子-1839888690](https://lifehacker.com/how-to-raise-an-optimistic-child-1839888690)
+> 原文：<https://lifehacker.com/how-to-raise-an-optimistic-child-1839888690>
 
 从政治角度来说，我们的孩子成长在一个完全疯狂的时代。我们已经设法培养了一个又一个他们将不得不应对的危机——阿片类药物流行、自杀率上升、大规模枪击、我们星球的毁灭；我可以继续。总感觉没什么好乐观的。但是如果有一个时候我们都可以乐观一点，那就是现在。
 

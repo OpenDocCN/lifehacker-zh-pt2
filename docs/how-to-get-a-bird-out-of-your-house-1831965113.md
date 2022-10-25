@@ -1,6 +1,6 @@
 # 如何让一只鸟离开你的房子
 
-> 原文:[https://life hacker . com/how-to-get-a bird-out-of-your house-1831965113](https://lifehacker.com/how-to-get-a-bird-out-of-your-house-1831965113)
+> 原文：<https://lifehacker.com/how-to-get-a-bird-out-of-your-house-1831965113>
 
 我第一次在室内看到一只野鸟，在我奶奶家，我非常兴奋，因为我想养它。与此同时，大人们有点恐慌。房子里的每个人都和这只鸟在一个房间里，呆呆地看着它，激烈地争论着驱逐它的最佳方法。小鸟拍打着翅膀，看起来越来越害怕。
 

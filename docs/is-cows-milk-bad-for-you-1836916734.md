@@ -1,6 +1,6 @@
 # 牛奶对你有害吗？
 
-> 原文:[https://lifehacker.com/is-cows-milk-bad-for-you-1836916734](https://lifehacker.com/is-cows-milk-bad-for-you-1836916734)
+> 原文：<https://lifehacker.com/is-cows-milk-bad-for-you-1836916734>
 
 燕麦牛奶、杏仁牛奶、豌豆牛奶和其他基于植物的饮料随处可见——这可能会让人们看起来好像突然开始回避牛奶了。但是不用担心:如果你喜欢的话，牛奶还是很好的！
 

@@ -1,6 +1,6 @@
 # 记住如何在你的 iPhone 上拨打紧急电话
 
-> 原文:[https://life hacker . com/memory-how-to-make-emergency-calls-on-your-iphone-1840773327](https://lifehacker.com/memorize-how-to-make-emergency-calls-on-your-iphone-1840773327)
+> 原文：<https://lifehacker.com/memorize-how-to-make-emergency-calls-on-your-iphone-1840773327>
 
 新年伊始是一个很好的时机，你可以快速浏览一下你的 iPhone 设置，确保你已经根据自己的喜好定制了紧急求救功能。见鬼，你真的应该花几分钟时间记住——*真正记住*——这个特性是如何工作的。我希望你在 2020 年不需要它，但是如果你需要的话，你会很高兴你花了一些时间来学习它是如何工作的。
 

@@ -1,6 +1,6 @@
 # 加利福尼亚人的电力被切断了——如果发生在你身上该怎么办
 
-> 原文:[https://life hacker . com/why-Californians-be-getting-your-their-power-shut-and-1838919806](https://lifehacker.com/why-californians-are-getting-their-power-shut-off-and-1838919806)
+> 原文：<https://lifehacker.com/why-californians-are-getting-their-power-shut-off-and-1838919806>
 
 今天加州 [有 50 万人断电](https://www.kqed.org/news/11778706/pge-power-shutoffs-what-you-need-to-know) ，未来几天还会有更多断电。以下是我们了解的情况。
 

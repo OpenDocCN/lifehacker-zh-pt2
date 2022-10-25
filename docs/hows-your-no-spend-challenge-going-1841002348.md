@@ -1,6 +1,6 @@
 # 你的无消费挑战进行得怎么样了？
 
-> 原文:[https://life hacker . com/hows-your-no-spend-challenge-going-1841002348](https://lifehacker.com/hows-your-no-spend-challenge-going-1841002348)
+> 原文：<https://lifehacker.com/hows-your-no-spend-challenge-going-1841002348>
 
 在这个月初，积极的改变是如此的重要，我们通过鼓励你加入我们的无花费挑战来施加更大的压力。也就是说，在整整 31 天内，除了你计划的经常性支出之外，没有其他支出。
 

@@ -1,6 +1,6 @@
 # 2019 年 1 月 14 日这一周，网飞有什么动静
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of-January-1831616736](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-january-1831616736)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-january-1831616736>
 
 本周你可以在两个有趣的丑闻中做出选择:瑞恩·墨菲的限量系列*美国犯罪故事:暗杀詹尼·范思哲*(周四)和纪录片 *FYRE:从未发生过的最伟大的派对*(周五)关于命运多舛的“奢华音乐体验”变成了活生生的噩梦。或者，如果你喜欢你的娱乐不那么垃圾，格雷斯和弗兰基:第五季将于周五登陆。露波客串明星，这可能很有趣。
 

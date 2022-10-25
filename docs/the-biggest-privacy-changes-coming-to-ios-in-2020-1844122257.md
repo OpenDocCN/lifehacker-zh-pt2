@@ -1,6 +1,6 @@
 # 2020 年，iOS 将迎来最大的隐私变化
 
-> 原文:[https://gizmodo . com/the-maximum-privacy-changes-coming-to-IOs-in-2020-1844122257](https://gizmodo.com/the-biggest-privacy-changes-coming-to-ios-in-2020-1844122257)
+> 原文：<https://gizmodo.com/the-biggest-privacy-changes-coming-to-ios-in-2020-1844122257>
 
 苹果从不错过将自己标榜为一家将我们的隐私置于其利润之上的科技公司的机会——今年的年度开发者大会也不例外。今天早些时候，虚拟主题演讲结束时，该公司宣布了一系列新的隐私保护技术，这些技术将被纳入其即将推出的操作系统的最新更新中。
 

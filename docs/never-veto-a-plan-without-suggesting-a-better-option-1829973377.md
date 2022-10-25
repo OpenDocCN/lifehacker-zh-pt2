@@ -1,6 +1,6 @@
 # 在没有提出更好的选择之前，永远不要否决一个计划
 
-> 原文:[https://life hacker . com/never-veto-a plan-without-suggest-a-better-option-1829973377](https://lifehacker.com/never-veto-a-plan-without-suggesting-a-better-option-1829973377)
+> 原文：<https://lifehacker.com/never-veto-a-plan-without-suggesting-a-better-option-1829973377>
 
 与你的朋友、爱人和浪漫的伴侣一起制定计划应该是一个简单的过程，甚至可能是一个愉快的过程。然而，很多人都非常糟糕，犹豫不决，无法掌握或解释基本细节，沟通能力差，以及纯粹的懒惰。
 

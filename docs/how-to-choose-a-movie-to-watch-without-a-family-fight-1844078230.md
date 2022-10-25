@@ -1,6 +1,6 @@
 # 如何选择一部没有家庭争斗的电影来看
 
-> 原文:[https://life hacker . com/how-to-choose-a-movie-to-watch-non-family-fight-1844078230](https://lifehacker.com/how-to-choose-a-movie-to-watch-without-a-family-fight-1844078230)
+> 原文：<https://lifehacker.com/how-to-choose-a-movie-to-watch-without-a-family-fight-1844078230>
 
 谈到隔离时期的娱乐选择，我和妻子都被宠坏了。我们没有有线电视，但我们订阅了网飞、Hulu、Prime Video、Disney+、HBO Max 和 Criterion 频道(或可以获得这些频道的密码)，更不用说还有大量的免费流媒体服务。因此...为什么我们不能选一部该死的电影？自从禁闭开始以来——但实际上，自从我们的关系开始以来——我们花在争论我们想看什么电影上的时间比实际看电影的时间还多。有一半的时间，我们在挑选任何东西之前，因为对方冷漠的情绪或糟糕的品味而低调地争吵；另一半时间，无论如何，到那个时候看任何东西都太晚了。你会注意到，这在所有情况下加起来都是 100%,这只是稍微有点夸张——但我终于找到了解决我们选择麻痹的方法。
 

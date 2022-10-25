@@ -1,6 +1,6 @@
 # 如何让你的家庭薯条格外香脆
 
-> 原文:[https://life hacker . com/how-to-make-your-home-fries-extra-crisp-1838748386](https://lifehacker.com/how-to-make-your-home-fries-extra-crispy-1838748386)
+> 原文：<https://lifehacker.com/how-to-make-your-home-fries-extra-crispy-1838748386>
 
 当谈到早餐土豆时，我通常更喜欢经典的土豆泥，但从头开始做可能会很痛苦。(切碎，然后拧干水分，对一个早上来说太多了。)家庭炸薯条似乎是一个更好的家庭烹饪选择，但仅靠煎锅很难实现马铃薯外脆内松的完美口感。想要真正美味的家庭薯条，你需要基本的——比如，pH 值大于 7。
 

@@ -1,6 +1,6 @@
 # Kotaku 沙发合作伙伴礼貌指南
 
-> 原文:[https://kotaku . com/the-kotaku-guide-to-be-a-couch-co-op-part-1843266923](https://kotaku.com/the-kotaku-guide-to-being-a-courteous-couch-co-op-partn-1843266923)
+> 原文：<https://kotaku.com/the-kotaku-guide-to-being-a-courteous-couch-co-op-partn-1843266923>
 
 我不知道你怎么想，但是社交距离准则改变了我玩游戏的方式。我很幸运——或者说很不幸，这要看哪一天了——和另外三个人住在一起。一方面，我已经能够玩更多的沙发合作游戏( [)比如，更多的](https://kotaku.com/the-best-couch-co-op-games-when-youre-stuck-at-home-wit-1842712516)*)。另一方面，我已经能够玩更多的沙发合作。在这几周的强制非隔离中，我经历了一场真正的大师课，学习如何成为一名优秀的本地合作伙伴。* 
 

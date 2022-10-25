@@ -1,6 +1,6 @@
 # 如何偿还你的冠状病毒退休分配
 
-> 原文:[https://life hacker . com/how-to-retirement-your-coronavirus-distribution-1844280749](https://lifehacker.com/how-to-repay-your-coronavirus-retirement-distribution-1844280749)
+> 原文：<https://lifehacker.com/how-to-repay-your-coronavirus-retirement-distribution-1844280749>
 
 当 CARES 法案在 3 月下旬通过时，它为那些因疫情冠状病毒而面临财务困难的人提供了一条生命线:可以免费领取提前退休账户分配。
 

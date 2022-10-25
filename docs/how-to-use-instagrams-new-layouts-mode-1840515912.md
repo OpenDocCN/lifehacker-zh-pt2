@@ -1,6 +1,6 @@
 # 如何使用 Instagram 的新布局模式
 
-> 原文:[https://life hacker . com/how-to-use-instagrams-new-layouts-mode-1840515912](https://lifehacker.com/how-to-use-instagrams-new-layouts-mode-1840515912)
+> 原文：<https://lifehacker.com/how-to-use-instagrams-new-layouts-mode-1840515912>
 
 全新的 Instagram 更新终于为该应用程序添加了一个备受期待的功能:用户可以在一个 Instagram 故事中上传多张照片的拼贴画，并使用新的“布局”模式来创建更多引人入胜的故事帖子。
 

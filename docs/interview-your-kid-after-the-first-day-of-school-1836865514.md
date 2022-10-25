@@ -1,6 +1,6 @@
 # 开学第一天后采访你的孩子
 
-> 原文:[https://life hacker . com/interview-your-kid-after-the-first-day-of-school-1836865514](https://lifehacker.com/interview-your-kid-after-the-first-day-of-school-1836865514)
+> 原文：<https://lifehacker.com/interview-your-kid-after-the-first-day-of-school-1836865514>
 
 开学第一天的照片充满了希望:衣服看起来比平时亮一点(可能是因为你一小时前才把标签撕下来)，背包看起来足够大，足以让你的孩子摔倒，如果你特别有创造力，黑板或白板会展示一个甜蜜的小采访，及时捕捉这一时刻。(当被问及长大后想做什么时，一个朋友的女儿选择了“长颈鹿之歌的歌手”，这显然是有史以来最好的工作)。
 

@@ -1,6 +1,6 @@
 # 在新年之前把你的财务安排好
 
-> 原文:[https://life hacker . com/get-your-finance-in-order-before-the-new-year-1830659913](https://lifehacker.com/get-your-finances-in-order-before-the-new-year-1830659913)
+> 原文：<https://lifehacker.com/get-your-finances-in-order-before-the-new-year-1830659913>
 
 一年即将结束，这意味着是时候做年终总结和新年计划了。也许你正在走老路，等待 1 月 1 日开始你的梦想。或者，也许你正在接受艾米的建议，在今年的最后几周制定一个新的目标。
 

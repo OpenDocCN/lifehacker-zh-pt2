@@ -1,6 +1,6 @@
 # 不要为信用修复“搭便车”骗局买单
 
-> 原文:[https://life hacker . com/dont-pay-for-credit-repair-piggy-scams-1842243066](https://lifehacker.com/dont-pay-for-credit-repair-piggyback-scams-1842243066)
+> 原文：<https://lifehacker.com/dont-pay-for-credit-repair-piggyback-scams-1842243066>
 
 你的财务愿望清单上有更高的信用评分吗？确保你不是付钱给一个骗子来得到一个。
 

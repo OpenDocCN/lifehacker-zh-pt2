@@ -1,6 +1,6 @@
 # 使用这个 Chrome 扩展自动组织您的下载
 
-> 原文:[https://life hacker . com/automatically-organize-your-downloads-with-this-chrome-1839817777](https://lifehacker.com/automatically-organize-your-downloads-with-this-chrome-1839817777)
+> 原文：<https://lifehacker.com/automatically-organize-your-downloads-with-this-chrome-1839817777>
 
 我下载了很多东西。我们都是。在我的情况下，我的 Windows 下载文件夹基本上是我正在处理的所有东西的总称，也是我需要保存在其他地方(但还没有)的文件和文件夹的主要存档。这意味着所说的下载文件夹可能会变得难以控制，我已经找到了一个新的 Chrome 扩展来解决这个问题。
 

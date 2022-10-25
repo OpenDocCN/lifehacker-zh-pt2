@@ -1,6 +1,6 @@
 # 预订机票时如何保护自己免受在线旅游诈骗
 
-> 原文:[https://life hacker . com/how-to-protect-you-from-online-travel-scams-when-b-1836997073](https://lifehacker.com/how-to-protect-yourself-from-online-travel-scams-when-b-1836997073)
+> 原文：<https://lifehacker.com/how-to-protect-yourself-from-online-travel-scams-when-b-1836997073>
 
 如果你在一个不熟悉的订票网站上发现了一个不错的航班，先不要按“退房”键。本周，一个家庭分享了他们通过网站*预订机票的经历，该网站声称*隶属于达美航空，结果证明是一个骗局。在这个过程中，这个家庭损失了将近 300 美元。
 

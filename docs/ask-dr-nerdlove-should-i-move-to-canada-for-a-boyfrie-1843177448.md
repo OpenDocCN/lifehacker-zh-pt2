@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:该不该为了一个没见过面的男朋友搬到加拿大？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-should-I-move-to-Canada-for-a-boy frie-1843177448](https://kotaku.com/ask-dr-nerdlove-should-i-move-to-canada-for-a-boyfrie-1843177448)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-should-i-move-to-canada-for-a-boyfrie-1843177448>
 
 大家好，所有的性犯罪者，欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是唯一的建议专栏，帮助你在我们发现自己身处的新的后启示录时代处理你的关系。
 

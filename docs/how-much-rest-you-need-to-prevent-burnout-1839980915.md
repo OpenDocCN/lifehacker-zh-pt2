@@ -1,6 +1,6 @@
 # 你需要多少休息来防止精疲力尽
 
-> 原文:[https://life hacker . com/how-much-rest-you-need-to-prevent-burnout-1839980915](https://lifehacker.com/how-much-rest-you-need-to-prevent-burnout-1839980915)
+> 原文：<https://lifehacker.com/how-much-rest-you-need-to-prevent-burnout-1839980915>
 
 我们大多数人都已经知道，如果我们在紧张的任务之间没有足够的时间休息和恢复，我们就有累垮自己的危险。但是我们实际上需要多少休息呢？
 

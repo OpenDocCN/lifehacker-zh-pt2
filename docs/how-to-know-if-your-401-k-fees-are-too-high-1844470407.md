@@ -1,6 +1,6 @@
 # 如何知道你的 401(k)费用是否过高
 
-> 原文:[https://life hacker . com/how-to-know-if-your-401-k-fees-too-high-1844470407](https://lifehacker.com/how-to-know-if-your-401-k-fees-are-too-high-1844470407)
+> 原文：<https://lifehacker.com/how-to-know-if-your-401-k-fees-are-too-high-1844470407>
 
 虽然股市的低迷通常会引起那些担心退休基金的人的最大关注，但其他一些事情也可能对你的储蓄造成损害:401(k)费用。尽管法律规定退休计划必须对他们收取的费用透明，但是大多数通过雇主为他们缴款的人仍然被蒙在鼓里。根据一项 [2018 TDAmeritrade 调查](https://www.businesswire.com/news/home/20180129005124/en/Three-Quarters-Americans-Dark-401-Fees) ，只有 27%的 401(k)雇员知道他们支付了多少费用，这就是为什么它很重要:401(k)费用可能在一生中累计达数万美元 。
 

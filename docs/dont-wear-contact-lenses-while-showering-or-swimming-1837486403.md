@@ -1,6 +1,6 @@
 # 洗澡或游泳时不要戴隐形眼镜
 
-> 原文:[https://life hacker . com/不要在淋浴或游泳时戴隐形眼镜-1837486403](https://lifehacker.com/dont-wear-contact-lenses-while-showering-or-swimming-1837486403)
+> 原文：<https://lifehacker.com/dont-wear-contact-lenses-while-showering-or-swimming-1837486403>
 
 自从你唯一的选择是把硬塑料芯片放在你的眼球上的日子以来，隐形眼镜技术已经有了很大的进步。但是即使有了所有的光学进步，仍然有一些活动医生建议你 [在戴隐形眼镜](https://lifehacker.com/properly-care-for-your-contact-lenses-with-this-checkli-1730556702) 时避免——你可能会惊讶地听到清单包括淋浴和游泳。
 

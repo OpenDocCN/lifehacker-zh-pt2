@@ -1,6 +1,6 @@
 # 使用“汉密尔顿”让你的孩子对历史感兴趣
 
-> 原文:[https://life hacker . com/use-Hamilton-to-get-your-kids-interest-in-history-1830480951](https://lifehacker.com/use-hamilton-to-get-your-kids-interested-in-history-1830480951)
+> 原文：<https://lifehacker.com/use-hamilton-to-get-your-kids-interested-in-history-1830480951>
 
 为什么你的孩子在生活中需要 [*汉密尔顿*](https://hamiltonmusical.com/new-york/) ？诚然，这部音乐剧是国父亚历山大·汉密尔顿的传记片，时长近三小时，涉及各种成人主题:战争、政府、性、欺骗、谋杀。然而，这也是了解美国历史的一个很好的切入点。
 

@@ -1,6 +1,6 @@
 # 如何尽早获得 OneDrive 的新功能
 
-> 原文:[https://life hacker . com/how-to-get-early-access-to-new-one drive-features-1837246635](https://lifehacker.com/how-to-get-early-access-to-new-onedrive-features-1837246635)
+> 原文：<https://lifehacker.com/how-to-get-early-access-to-new-onedrive-features-1837246635>
 
 微软的 OneDrive 对 Windows 10 用户来说是一个很好的云存储服务，但还有一种方法可以让它变得更好。加入 [Windows Insider](https://lifehacker.com/get-the-newest-version-of-windows-forever-with-windows-1775733312) 计划可以让您预览 Windows 10 的新功能，同样，选择加入 OneDrive 预览计划可以让您提前获得 OneDrive 的新功能，例如更快的文件同步性能。
 

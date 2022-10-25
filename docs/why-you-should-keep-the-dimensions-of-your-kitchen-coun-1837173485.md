@@ -1,6 +1,6 @@
 # 为什么你应该在手机里保存厨房台面的尺寸
 
-> 原文:[https://life hacker . com/why-you-should-keep-the-dimensions-your ' s kitchen-coun-1837173485](https://lifehacker.com/why-you-should-keep-the-dimensions-of-your-kitchen-coun-1837173485)
+> 原文：<https://lifehacker.com/why-you-should-keep-the-dimensions-of-your-kitchen-coun-1837173485>
 
 购买家具或装饰品是出于需求(你*需要*一个不伤背的沙发)或想要(我*想要*另一个装鹿头)。你提前计划去买你需要的东西，而你想要的东西往往是冲动的——当你出去逛古董店的时候，你会发现一个完美的床头板。为了确保你不会一时冲动为你的窗户买一根太长的窗帘杆，或者在你的客厅买一张看起来像邮票的地毯，在你的手机里保存你所有房间、柜台、窗户、空白空间、甚至印刷品和海报的尺寸。
 

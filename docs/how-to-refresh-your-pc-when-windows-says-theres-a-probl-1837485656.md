@@ -1,6 +1,6 @@
 # 当 Windows 说有问题时，如何“刷新”你的电脑
 
-> 原文:[https://life hacker . com/how-to-refresh-your-PC-when-windows-says-thes-a-probl-1837485656](https://lifehacker.com/how-to-refresh-your-pc-when-windows-says-theres-a-probl-1837485656)
+> 原文：<https://lifehacker.com/how-to-refresh-your-pc-when-windows-says-theres-a-probl-1837485656>
 
 Windows 有积累数字灰尘和污垢的倾向，这可能会使系统陷入困境，重新安装操作系统 是解决任何问题的灵丹妙药。
 

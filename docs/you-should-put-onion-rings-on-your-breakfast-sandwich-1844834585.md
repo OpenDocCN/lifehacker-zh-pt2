@@ -1,6 +1,6 @@
 # 你应该在早餐三明治上放洋葱圈
 
-> 原文:[https://life hacker . com/you-should-put-onion-rings-on-your-breakfast-sandwich-1844834585](https://lifehacker.com/you-should-put-onion-rings-on-your-breakfast-sandwich-1844834585)
+> 原文：<https://lifehacker.com/you-should-put-onion-rings-on-your-breakfast-sandwich-1844834585>
 
 除了熏肉，最常见的早餐三明治配料——鸡蛋、奶酪、香肠和火腿——都非常软。人们可以通过烘烤面包(或添加 [薯饼](https://skillet.lifehacker.com/put-hash-browns-inside-your-breakfast-sandwich-1843731822) 或培根)来增加纹理对比。你可以把所有这些都做好，还可以加上脆脆的金黄色洋葱圈。
 

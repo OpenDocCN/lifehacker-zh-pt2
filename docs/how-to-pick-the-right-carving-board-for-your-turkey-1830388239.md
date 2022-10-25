@@ -1,6 +1,6 @@
 # 如何为你的火鸡挑选合适的雕刻板
 
-> 原文:[https://life hacker . com/how-to-pick-the-right-caring-board-for-your-turkey-1830388239](https://lifehacker.com/how-to-pick-the-right-carving-board-for-your-turkey-1830388239)
+> 原文：<https://lifehacker.com/how-to-pick-the-right-carving-board-for-your-turkey-1830388239>
 
 当你计划感恩节火鸡的情况时，你很可能会专注于食谱，而不会考虑从烤箱中取出这只烤得非常棒的火鸡后会发生什么。显然你要吃它，但是火鸡在食用前必须被切开，为此，你需要一个大的砧板。
 

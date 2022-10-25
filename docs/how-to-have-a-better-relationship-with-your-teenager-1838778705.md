@@ -1,6 +1,6 @@
 # 如何和你的少年建立更好的关系
 
-> 原文:[https://life hacker . com/how-to-hacker-1838778705](https://lifehacker.com/how-to-have-a-better-relationship-with-your-teenager-1838778705)
+> 原文：<https://lifehacker.com/how-to-have-a-better-relationship-with-your-teenager-1838778705>
 
 不管公平与否，青少年的名声有些不好。他们刻板地阴沉着脸，他们顶嘴，他们对我们的存在感到尴尬。当然，并不总是这样，但是父母会发现他们和孩子的关系在青少年时期变得紧张。这不一定是孩子的错。
 

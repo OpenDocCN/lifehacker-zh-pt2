@@ -1,6 +1,6 @@
 # 剥葱最简单的方法
 
-> 原文:[https://life hacker . com/the-easy-way-to-peel-a-shallow-1843303002](https://lifehacker.com/the-easiest-way-to-peel-a-shallot-1843303002)
+> 原文：<https://lifehacker.com/the-easiest-way-to-peel-a-shallot-1843303002>
 
 小葱是顶级葱属植物。比黄色或红色的洋葱更甜，不那么刺鼻，但味道一样好，它们是让一切尝起来更美味的神奇成分之一。但他们也让你为此而工作:剥青葱皮是一项普遍被鄙视的任务，这是有道理的。
 

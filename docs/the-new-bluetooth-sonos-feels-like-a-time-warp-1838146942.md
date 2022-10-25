@@ -1,6 +1,6 @@
 # 新的蓝牙 Sonos 感觉像是时间扭曲
 
-> 原文:[https://gizmodo . com/the-new-bluetooth-sonos-feel-like-a-time-warp-1838146942](https://gizmodo.com/the-new-bluetooth-sonos-feels-like-a-time-warp-1838146942)
+> 原文：<https://gizmodo.com/the-new-bluetooth-sonos-feels-like-a-time-warp-1838146942>
 
 你不需要新的索诺斯动作。这是一个 400 美元的 Sonos 扬声器 T3，听起来很像一个 180 美元的 Sonos 扬声器，但是有便携的额外好处。你可以把它捡起来带在身边。如果你离开了你的 wifi，没问题！此举是第一个可以通过蓝牙连接传输音乐的 Sonos，这对任何厌倦了在户外活动时将他们最喜欢的扬声器留在家里的 Sonos 粉丝来说都是一件大事。
 

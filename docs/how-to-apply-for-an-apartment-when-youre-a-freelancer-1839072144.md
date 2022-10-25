@@ -1,6 +1,6 @@
 # 自由职业者如何申请公寓
 
-> 原文:[https://life hacker . com/how-to-apply-when you-a-a-freelancer-1839072144](https://lifehacker.com/how-to-apply-for-an-apartment-when-youre-a-freelancer-1839072144)
+> 原文：<https://lifehacker.com/how-to-apply-for-an-apartment-when-youre-a-freelancer-1839072144>
 
 当你 [询问出租](https://lifehacker.com/the-essential-questions-you-should-ask-before-renting-a-1820342224) 时，房东通常会有一个大问题:你有足够的钱支付租金吗？咳出你最后的工资存根往往足以让当权者相信你有足够的责任支付每月的租金，一些房东甚至列出了他们要求的最低月收入——通常是租金的两倍、三倍甚至四倍。
 

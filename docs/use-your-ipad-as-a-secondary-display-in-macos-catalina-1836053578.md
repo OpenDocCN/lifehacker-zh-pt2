@@ -1,6 +1,6 @@
 # 在 macOS Catalina 中将您的 iPad 用作辅助显示器
 
-> 原文:[https://life hacker . com/use-your-ipad-as-a-secondary-display-in-MAC OS-catalina-1836053578](https://lifehacker.com/use-your-ipad-as-a-secondary-display-in-macos-catalina-1836053578)
+> 原文：<https://lifehacker.com/use-your-ipad-as-a-secondary-display-in-macos-catalina-1836053578>
 
 [Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)) : title[![](../Images/80a55aae3a4e6ac59b23fae8fccddf22.png)](https://applemacos.kinja.com)[Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)Many people turn to Macs because they're incredibly easy to operate. That's true, but there's still plenty worth knowing before you can truly master your Mac.
 

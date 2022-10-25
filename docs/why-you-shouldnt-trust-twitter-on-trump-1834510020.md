@@ -1,6 +1,6 @@
 # 为什么你不应该相信特朗普的推特
 
-> 原文:[https://life hacker . com/why-you-should nt-trust-Twitter-on-trump-1834510020](https://lifehacker.com/why-you-shouldnt-trust-twitter-on-trump-1834510020)
+> 原文：<https://lifehacker.com/why-you-shouldnt-trust-twitter-on-trump-1834510020>
 
 根据华盛顿邮报 T3[的报道，自上任以来，特朗普总统发表了 1 万次虚假或误导性的言论。](https://www.washingtonpost.com/politics/2019/04/29/president-trump-has-made-more-than-false-or-misleading-claims/?utm_term=.413daa1db5e2)
 

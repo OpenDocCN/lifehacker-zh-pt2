@@ -1,6 +1,6 @@
 # ACA 的变化会如何影响您的保险费
 
-> 原文:[https://life hacker . com/how-changes-to-the-ACA-may-affect-your-insurance-prem-1833715705](https://lifehacker.com/how-changes-to-the-aca-might-affect-your-insurance-prem-1833715705)
+> 原文：<https://lifehacker.com/how-changes-to-the-aca-might-affect-your-insurance-prem-1833715705>
 
 如果你没有关注最新的平价医疗法案，我不怪你。今天早上,《华盛顿邮报》刊登了一篇标题为 [的报道，白宫有或没有比奥巴马医改](https://www.washingtonpost.com/politics/2019/04/01/white-house-does-or-doesnt-have-health-care-plan-that-is-or-isnt-better-than-obamacare/?utm_term=.2a98125abe40) 更好或更差的医疗保健计划——这甚至不是愚人节的头条。
 

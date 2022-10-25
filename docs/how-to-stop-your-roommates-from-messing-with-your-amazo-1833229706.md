@@ -1,6 +1,6 @@
 # how to stop your roommates from messing with your amazo 1833229706
 
-> 原文:[https://life hacker . com/how-to-stop your-室友乱搞你的亚马逊-1833229706](https://lifehacker.com/how-to-stop-your-roommates-from-messing-with-your-amazo-1833229706)
+> 原文：<https://lifehacker.com/how-to-stop-your-roommates-from-messing-with-your-amazo-1833229706>
 
 当我的 iPhone 在晚上 9 点开始收到关于即将到来的约会的提醒时，我第一次意识到有些不对劲——这不是我通常有事情要做的时间。然后是约会的主题本身:“检查疱疹，”一个人说。第二个？提醒你和我的一个共同的朋友和我的室友一起尝试一些 NSFW 表演。
 

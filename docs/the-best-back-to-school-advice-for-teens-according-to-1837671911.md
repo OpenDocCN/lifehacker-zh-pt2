@@ -1,6 +1,6 @@
 # 根据 Reddit，对青少年最好的返校建议
 
-> 原文:[https://life hacker . com/the-best-back-to-school-advice-for-tenders-根据 1837671911](https://lifehacker.com/the-best-back-to-school-advice-for-teens-according-to-1837671911)
+> 原文：<https://lifehacker.com/the-best-back-to-school-advice-for-teens-according-to-1837671911>
 
 无论他们是第一次在高中走廊上行走，还是装饰他们的第一间宿舍，返校时间对那些要承担越来越难的课程和新责任的青少年来说都是有压力的。就连 T2 也必须意识到，他们可以从我们这些去过那里、做过那些事、在教科书上花了太多钱的人的建议中受益。
 

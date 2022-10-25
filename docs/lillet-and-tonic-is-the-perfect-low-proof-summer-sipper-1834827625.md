@@ -1,6 +1,6 @@
 # 利乐和滋补品是完美的低度酒
 
-> 原文:[https://life hacker . com/lillet-and-tonic-is-the-perfect-low-proof-summer-sipper-1834827625](https://lifehacker.com/lillet-and-tonic-is-the-perfect-low-proof-summer-sipper-1834827625)
+> 原文：<https://lifehacker.com/lillet-and-tonic-is-the-perfect-low-proof-summer-sipper-1834827625>
 
 我是一个懒惰的人，但是一旦温度上升到大约 72 度，我会变得更加懒惰。如果在高温下呆得太久，我也会变得非常恐慌，这意味着我需要稳定的易于制作的鸡尾酒，但不要太醉，以保持冷静。杜松子酒和滋补品有一点效果，但是狂饮杜松子酒，不管稀释得多稀，都会给人带来麻烦。
 

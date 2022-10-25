@@ -1,6 +1,6 @@
 # 你利用你所有的假期吗？
 
-> 原文:[https://life hacker . com/do-you-use-all-you-you-all-you-vacation-days-1837930916](https://lifehacker.com/do-you-use-all-your-vacation-days-1837930916)
+> 原文：<https://lifehacker.com/do-you-use-all-your-vacation-days-1837930916>
 
 美国人不喜欢请假——即使有人提议，即使有人付钱。当我们真的离开时，我们中的大多数人发现当我们应该“离开”时，很难完全拔掉电源插头。
 

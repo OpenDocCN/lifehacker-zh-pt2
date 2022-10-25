@@ -1,6 +1,6 @@
 # 结束争论的最快方法
 
-> 原文:[https://life hacker . com/the-fast-way-to-end-a-argument-1839719076](https://lifehacker.com/the-fastest-way-to-end-an-argument-1839719076)
+> 原文：<https://lifehacker.com/the-fastest-way-to-end-an-argument-1839719076>
 
 有时候，当有人就是不肯闭嘴时，直截了当地打断他们是让他们插话的唯一方法——当这不起作用时，诚实也起作用。( [)下面是如何做到这一点。](https://lifehacker.com/how-to-get-someone-to-shut-up-1838906639) )
 

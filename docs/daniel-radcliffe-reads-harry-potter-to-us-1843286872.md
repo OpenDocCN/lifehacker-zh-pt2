@@ -1,6 +1,6 @@
 # 丹尼尔·雷德克里夫给我们读《哈利·波特》
 
-> 原文:[https://life hacker . com/Daniel-Radcliffe-reads-Harry-Potter-to-us-1843286872](https://lifehacker.com/daniel-radcliffe-reads-harry-potter-to-us-1843286872)
+> 原文：<https://lifehacker.com/daniel-radcliffe-reads-harry-potter-to-us-1843286872>
 
 如果说疫情教会了我们什么的话，那就是我们真的很喜欢名人给我们读书。演员 [乔什·加德是第一批](https://offspring.lifehacker.com/actor-josh-gad-will-read-to-your-kids-every-night-1842398287) 中的一员(他现在还在！).然后 [美国 h ero 莱瓦尔·伯顿](https://offspring.lifehacker.com/levar-burton-will-read-to-us-thank-god-1842621471) 站出来为孩子、年轻人和成年人带来生活中的故事。现在，哈利·波特本人正在开始阅读第一部哈利·波特，这证明了生活并没有想象中那么糟糕。
 

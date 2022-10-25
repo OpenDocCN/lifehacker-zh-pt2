@@ -1,6 +1,6 @@
 # 我需要一辆经济实惠、易于驾驶的四座跑车！应该买什么车？
 
-> 原文:[https://jalopnik . com/I-need-an-affordable-four seat-sports-car-thas-easy-1834973544](https://jalopnik.com/i-need-an-affordable-four-seater-sports-car-thats-easy-1834973544)
+> 原文：<https://jalopnik.com/i-need-an-affordable-four-seater-sports-car-thats-easy-1834973544>
 
 迈克正在寻找一辆负担得起的运动型汽车，以补充他的日常驾驶，但它需要有一定程度的实用性，因为它偶尔会发生故障。他希望能够轻松地使用它，并拥有适合长途驾驶的东西。他应该买什么车？
 

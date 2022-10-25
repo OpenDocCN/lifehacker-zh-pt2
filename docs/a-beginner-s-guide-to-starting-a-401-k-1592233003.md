@@ -1,6 +1,6 @@
 # 开始 401(k)的初学者指南
 
-> 原文:[https://life hacker . com/a-beginner-s-guide-to-starting-a-401-k-1592233003](https://lifehacker.com/a-beginner-s-guide-to-starting-a-401-k-1592233003)
+> 原文：<https://lifehacker.com/a-beginner-s-guide-to-starting-a-401-k-1592233003>
 
 假设你已经开始了你的第一份工作。或者，也许你已经开始考虑为退休存钱了。你的雇主提供了 401(k)，但是你不知道从哪里开始(甚至不知道那是什么)。
 

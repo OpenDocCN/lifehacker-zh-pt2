@@ -1,6 +1,6 @@
 # 问咸的女服务员:我该不该问顾客为什么不吃完饭？
 
-> 原文:[https://the take out . com/should-I-ask-customers-why-they-not-finish-food-1835378700](https://thetakeout.com/should-i-ask-customers-why-they-didnt-finish-their-meal-1835378700)
+> 原文：<https://thetakeout.com/should-i-ask-customers-why-they-didnt-finish-their-meal-1835378700>
 
 > 嘿咸咸的！在这里做了很长时间的服务员/酒保。如果顾客在用餐结束时要求我清理他们的盘子，而他们的大部分食物还在上面，我该怎么说？(我这里说的不是最后剩下的几口，我的意思是他们显然只吃了几口，并要求我把盘子从桌子上拿走)
 > 

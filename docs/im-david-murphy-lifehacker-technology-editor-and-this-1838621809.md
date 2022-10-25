@@ -1,6 +1,6 @@
 # im david murphy lifehacker technology editor and this 1838621809
 
-> 原文:[https://life hacker . com/im-David-Murphy-life hacker-technology-editor-and-this-1838621809](https://lifehacker.com/im-david-murphy-lifehacker-technology-editor-and-this-1838621809)
+> 原文：<https://lifehacker.com/im-david-murphy-lifehacker-technology-editor-and-this-1838621809>
 
 每周，我们都会分享我们最喜欢的专家的快捷方式、工作空间和生产力提示。本周，我们将来到 Lifehacker 的幕后。我是大卫·墨菲，这就是我的工作方式。
 

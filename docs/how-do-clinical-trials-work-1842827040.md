@@ -1,6 +1,6 @@
 # 临床试验是如何进行的？
 
-> 原文:[https://life hacker . com/how-do-clinical-trials-work-1842827040](https://lifehacker.com/how-do-clinical-trials-work-1842827040)
+> 原文：<https://lifehacker.com/how-do-clinical-trials-work-1842827040>
 
 鉴于所有关于潜在新冠肺炎疫苗开发的谈论，以及对一些候选人 的 [临床试验已经开始的消息，你可能会问自己临床试验实际上是如何工作的。任何被批准在数百万美国人身上使用的疫苗都必须完成一个](https://www.the-scientist.com/news-opinion/covid-19-vaccine-frontrunners-67382) [严格的测试过程](https://www.cdc.gov/vaccines/basics/test-approve.html)——包括探索阶段、临床前阶段、临床开发、监管审查和批准、制造和质量控制——所以重要的是要记住，试验正在进行这一事实并不意味着疫苗即将问世。
 

@@ -1,6 +1,6 @@
 # 你应该多久洗一次车上的路盐
 
-> 原文:[https://jalopnik . com/how-frequency-you-should-wash-road-salt-off-your car-1831398962](https://jalopnik.com/how-often-you-should-really-wash-road-salt-off-your-car-1831398962)
+> 原文：<https://jalopnik.com/how-often-you-should-really-wash-road-salt-off-your-car-1831398962>
 
 如果我们正走向另一个(更不用说 [次级汽车贷款泡沫破裂](https://jalopnik.com/how-a-subprime-auto-lender-consumed-detroit-with-debt-a-1829527899) )经济衰退，保持你现在拥有的处于巅峰状态比以往任何时候都重要。谁知道下一次大地震发生后，我们的财务或生活状况会是什么样子。你可能想知道你是否能负担得起你为你的车做的所有小保养项目，但是你真正应该问的是:你能负担得起*而不是*做这些事情吗？
 

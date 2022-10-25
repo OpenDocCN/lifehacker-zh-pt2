@@ -1,6 +1,6 @@
 # 加入搅打奶油，改变蛋糕混合料
 
-> 原文:[https://life hacker . com/transform-cake-mixes-by-folding-in-whited-cream-1832363058](https://lifehacker.com/transform-cake-mixes-by-folding-in-whipped-cream-1832363058)
+> 原文：<https://lifehacker.com/transform-cake-mixes-by-folding-in-whipped-cream-1832363058>
 
 我对盒装巧克力布朗尼 的热爱是强烈而真实的，但是——除了一种华丽的合成 funfetti——我从来没有对几乎即时混合的蛋糕产生过太多的感情。它们似乎总是太甜，太单一，而且有一种独特的化学膨松剂味道，让人无法忽视。但是现在情况不同了，因为我发现了一种配料，它不仅能改善盒装混合蛋糕的味道，还能改善它的质地，那就是鲜奶油。
 

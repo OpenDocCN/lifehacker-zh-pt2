@@ -1,6 +1,6 @@
 # 这个西瓜韦奇切在几秒钟内切完美的切片
 
-> 原文:[https://life hacker . com/this-西瓜-wedger-cuts-完美切片-秒-1835435293](https://lifehacker.com/this-watermelon-wedger-cuts-perfect-slices-in-seconds-1835435293)
+> 原文：<https://lifehacker.com/this-watermelon-wedger-cuts-perfect-slices-in-seconds-1835435293>
 
 我总是怀疑一次性切片机和切片机，但我真的很害怕这个西瓜韦奇。这在烧烤季节尤其有用，因为供应大量新鲜的瓜块至关重要。
 

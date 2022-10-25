@@ -1,6 +1,6 @@
 # 升级版的全升级集
 
-> 原文:[https://life hacker . com/the-all-upgrades-episode-of-the-upgrade-1841139387](https://lifehacker.com/the-all-upgrades-episode-of-the-upgrade-1841139387)
+> 原文：<https://lifehacker.com/the-all-upgrades-episode-of-the-upgrade-1841139387>
 
 在本周的节目中，Alice 和 Melissa 回顾了过去几集的升级，看看他们是如何坚持下来的，从 chrome 扩展到心态的转变。有一点点骄傲，一点点羞愧，还有一大堆进步。到这一集结束时，你会变得如此完美，以至于你不知道下一集要做什么！
 

@@ -1,6 +1,6 @@
 # 通过将价格转换为时间来停止冲动购物
 
-> 原文:[https://life hacker . com/stop-impulse-shopping-by-converting-prices-to-time-1837074153](https://lifehacker.com/stop-impulse-shopping-by-converting-prices-to-time-1837074153)
+> 原文：<https://lifehacker.com/stop-impulse-shopping-by-converting-prices-to-time-1837074153>
 
 每当我考虑在工作日吃午餐或出去喝杯拿铁时，我经常会停下来想一想这会花费我多少时间——不是离开办公桌的时间，而是花在工作上的时间，加起来就是我将要花费的时间。它并不总是阻止我冲动购物，但它迫使我认识到，是的，这个三明治/饮料/冰淇淋蛋卷花费了我的一部分付费时间，我愿意放弃。
 

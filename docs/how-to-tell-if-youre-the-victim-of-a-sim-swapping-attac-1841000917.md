@@ -1,6 +1,6 @@
 # 如何辨别你是否是 SIM 卡交换攻击的受害者
 
-> 原文:[https://life hacker . com/how-to-tell-if-you-the-victim-of-a-sim-swapping-attac-1841000917](https://lifehacker.com/how-to-tell-if-youre-the-victim-of-a-sim-swapping-attac-1841000917)
+> 原文：<https://lifehacker.com/how-to-tell-if-youre-the-victim-of-a-sim-swapping-attac-1841000917>
 
 SIM 卡交换攻击听起来像是一个身份盗窃恐怖故事，只发生在那些过于粗心或轻视个人信息的人身上，但我们中的更多人面临着比看起来更大的风险。
 

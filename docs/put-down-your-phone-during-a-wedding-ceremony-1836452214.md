@@ -1,6 +1,6 @@
 # 在婚礼上放下你的手机
 
-> 原文:[https://life hacker . com/在婚礼上放下你的手机-1836452214](https://lifehacker.com/put-down-your-phone-during-a-wedding-ceremony-1836452214)
+> 原文：<https://lifehacker.com/put-down-your-phone-during-a-wedding-ceremony-1836452214>
 
 下次你参加婚礼时，我希望你能做点什么。我要你穿好衣服，把头发理好，找一个视野最好的座位，然后满怀爱意地看着仪式，把手机放在该死的口袋里。
 

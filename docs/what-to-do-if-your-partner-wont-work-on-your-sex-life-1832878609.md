@@ -1,6 +1,6 @@
 # what to do if your partner wont work on your sex life 1832878609
 
-> 原文:[https://life hacker . com/what-do-if-your-partner-wont-work-on-your-sex-life-1832878609](https://lifehacker.com/what-to-do-if-your-partner-wont-work-on-your-sex-life-1832878609)
+> 原文：<https://lifehacker.com/what-to-do-if-your-partner-wont-work-on-your-sex-life-1832878609>
 
 在高要求的工作、财务压力、孩子和繁忙的日程安排之间，很难找到时间和精力来保持积极和满意的性生活。大多数夫妇认为美好的性爱应该“自然而然”发生，这一事实使得这一挑战变得更加严峻。换句话说:你不应该为你的性生活付出任何努力；对性的渴望、时间、空间和激情应该在完美的时间间隔内自然出现。
 

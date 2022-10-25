@@ -1,6 +1,6 @@
 # 把你的婴儿浴缸当作婴儿泳池
 
-> 原文:[https://life hacker . com/use-your-baby-bath-as-a-baby-pool-1835611964](https://lifehacker.com/use-your-baby-bathtub-as-a-baby-pool-1835611964)
+> 原文：<https://lifehacker.com/use-your-baby-bathtub-as-a-baby-pool-1835611964>
 
 许多最好的育儿技巧来自 Lifehacker 的 [后代脸书育儿小组](https://www.facebook.com/groups/2018785615043946/) ，通常会有一个成员问，“如果...?"这就是我们如何来推荐你 [给你蹒跚学步的孩子买一张狗床](https://offspring.lifehacker.com/buy-your-toddler-a-dog-bed-1831428095) 和 [用你孩子的作品做贺卡](https://offspring.lifehacker.com/use-your-kids-artwork-as-greeting-cards-1833671697) 。现在，我们为另一位家长的天才想法鼓掌:将你的婴儿浴缸改造成一个室外游泳池。
 

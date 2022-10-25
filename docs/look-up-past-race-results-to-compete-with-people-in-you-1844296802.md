@@ -1,6 +1,6 @@
 # 查找过去的比赛结果，与同年龄组的人竞争
 
-> 原文:[https://life hacker . com/look-up-past-race-results-to-competition-with-people-in-you-1844296802](https://lifehacker.com/look-up-past-race-results-to-compete-with-people-in-you-1844296802)
+> 原文：<https://lifehacker.com/look-up-past-race-results-to-compete-with-people-in-you-1844296802>
 
 将自己与他人进行比较可能是一件危险的事情，但如果你仔细选择比较，这也是一种激励。我不断看到人们，尤其是新跑步者，抱怨他们是或者想知道他们离“普通”跑步者有多远。
 

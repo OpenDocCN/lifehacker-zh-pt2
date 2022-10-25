@@ -1,6 +1,6 @@
 # 为每次令人尴尬的公司数据泄露找到完美的借口
 
-> 原文:[https://life hacker . com/find-the-perfect-force for-every-hanging-corporat-1839718282](https://lifehacker.com/find-the-perfect-excuse-for-every-embarrassing-corporat-1839718282)
+> 原文：<https://lifehacker.com/find-the-perfect-excuse-for-every-embarrassing-corporat-1839718282>
 
 有时候我想知道为什么不是每个人都一直被黑。我们都那么不擅长安全，还有那么多懂得滥用安全的人！然后我记得我们*一直在被黑客攻击。
 

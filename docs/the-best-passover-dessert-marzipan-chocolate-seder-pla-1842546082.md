@@ -1,6 +1,6 @@
 # 用糖果逾越节家宴盘子来改善你的疫情逾越节
 
-> 原文:[https://the take out . com/the-best-逾越节-甜点-杏仁糖-巧克力-逾越节晚餐-pla-1842546082](https://thetakeout.com/the-best-passover-dessert-marzipan-chocolate-seder-pla-1842546082)
+> 原文：<https://thetakeout.com/the-best-passover-dessert-marzipan-chocolate-seder-pla-1842546082>
 
 当我第一次开始考虑今年要写的逾越节故事时，我很纠结。毕竟，每年大多数主要商店通常都会尝试承认这个节日，通常会提供承诺完全正宗的老派布比怀旧的食谱，突出来自东欧以外的犹太社区的食物，或者在旧食谱上提供新的“扭转”。我知道，因为我做过所有这些的版本。
 

@@ -1,6 +1,6 @@
 # 如何调整你的自行车
 
-> 原文:[https://lifehacker.com/how-to-tune-up-your-bike-1843404878](https://lifehacker.com/how-to-tune-up-your-bike-1843404878)
+> 原文：<https://lifehacker.com/how-to-tune-up-your-bike-1843404878>
 
 春天来了，是时候把你的自行车从冬眠中唤醒了。在你第一次骑行之前，做一些基本的 DIY 保养，让它准备好上路或上路。
 

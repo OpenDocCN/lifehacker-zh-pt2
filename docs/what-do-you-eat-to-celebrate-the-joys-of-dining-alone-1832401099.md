@@ -1,6 +1,6 @@
 # 你吃什么来庆祝独自用餐的快乐？
 
-> 原文:[https://life hacker . com/what-do-you-eat-to-庆祝会-1832401099](https://lifehacker.com/what-do-you-eat-to-celebrate-the-joys-of-dining-alone-1832401099)
+> 原文：<https://lifehacker.com/what-do-you-eat-to-celebrate-the-joys-of-dining-alone-1832401099>
 
 在二月的上半月，美食网站充斥着浪漫的双人餐，但是在很多方面，和另一个人一起吃饭被高估了。你不仅要担心牙齿里的东西，还要预测这顿饭会让你有什么感觉(或味道)。这有点累人，这就是为什么情人节一个人吃饭实际上有点规矩。
 

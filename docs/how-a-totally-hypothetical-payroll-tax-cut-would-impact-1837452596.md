@@ -1,6 +1,6 @@
 # 一个完全假设的工资税削减会如何影响你的薪水
 
-> 原文:[https://life hacker . com/how-a-total-hypothetic-payroll-tax-cut-would-impact-1837452596](https://lifehacker.com/how-a-totally-hypothetical-payroll-tax-cut-would-impact-1837452596)
+> 原文：<https://lifehacker.com/how-a-totally-hypothetical-payroll-tax-cut-would-impact-1837452596>
 
 在本周的一部分时间里，唐纳德·特朗普总统考虑削减工资税。“我已经考虑工资税很长时间了，”他在 [周二](https://www.cnbc.com/2019/08/21/what-a-trump-payroll-tax-cut-would-actually-mean-for-your-wallet.html) 告诉记者，然后他在 [周三](https://www.washingtonpost.com/us-policy/2019/08/21/president-trump-reversal-says-he-is-no-longer-looking-payroll-tax-cut/) 转过身，告诉同样的记者“我现在不打算减税，”他说。“我们不需要它。我们有强大的经济。”
 

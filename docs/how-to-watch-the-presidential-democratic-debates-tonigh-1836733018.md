@@ -1,6 +1,6 @@
 # 如何观看今晚的总统民主党辩论
 
-> 原文:[https://life hacker . com/how-to-watch-the-president-democratic-defenses-to nigh-1836733018](https://lifehacker.com/how-to-watch-the-presidential-democratic-debates-tonigh-1836733018)
+> 原文：<https://lifehacker.com/how-to-watch-the-presidential-democratic-debates-tonigh-1836733018>
 
 今晚，第二轮总统民主党辩论在底特律拉开帷幕，包括佛蒙特州参议员伯尼·桑德斯、南本德市长皮特·布蒂吉格和马萨诸塞州参议员伊丽莎白·沃伦在内的领先候选人将登台亮相。与此同时，前副总统乔·拜登和加州参议员卡玛拉·哈里斯将在第二晚的另一个被谈论和传播的时刻展开对决。
 

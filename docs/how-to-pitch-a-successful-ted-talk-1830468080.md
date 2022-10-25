@@ -1,6 +1,6 @@
 # 如何推销一个成功的 TED 演讲
 
-> 原文:[https://life hacker . com/how-to-pitch-a-successful-ted-talk-1830468080](https://lifehacker.com/how-to-pitch-a-successful-ted-talk-1830468080)
+> 原文：<https://lifehacker.com/how-to-pitch-a-successful-ted-talk-1830468080>
 
 你能想象自己站在那个舞台上，在一场完美排练的演讲中为大众提供一些智慧吗？一群充满敬意和敬畏的观众在聆听你的演讲。嗯，你得先过了球场。根据一位 TEDx 制作人的说法，以下是如何走出烂泥堆的方法。
 

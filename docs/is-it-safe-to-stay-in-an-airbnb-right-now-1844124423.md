@@ -1,6 +1,6 @@
 # 现在呆在 Airbnb 里安全吗？
 
-> 原文:[https://life hacker . com/is-it-safe-to-stay-in-an-Airbnb-right-now-1844124423](https://lifehacker.com/is-it-safe-to-stay-in-an-airbnb-right-now-1844124423)
+> 原文：<https://lifehacker.com/is-it-safe-to-stay-in-an-airbnb-right-now-1844124423>
 
 在疫情期间，呆在家里总是保持安全的好方法，但是在别人家里呢？如果你遵循一些预防措施，租用 Airbnb 相对来说风险较低。
 

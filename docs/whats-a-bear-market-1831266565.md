@@ -1,6 +1,6 @@
 # 什么是熊市？
 
-> 原文:[https://lifehacker.com/whats-a-bear-market-1831266565](https://lifehacker.com/whats-a-bear-market-1831266565)
+> 原文：<https://lifehacker.com/whats-a-bear-market-1831266565>
 
 包括苹果和微软等主要科技公司的纳斯达克指数 [在周五收盘时跌入熊市区域](https://www.reuters.com/article/us-usa-stocks-nasdaq/nasdaq-in-bear-market-first-of-the-three-major-u-s-indexes-idUSKCN1OK2BM) ，这个术语意味着从峰值下跌 20%或更多。《华尔街日报》[](https://www.wsj.com/articles/global-stock-slide-extends-to-asia-as-growth-fears-mount-11545372995?mod=e2tw)*将下滑归因于“一系列担忧，从美联储加息的步伐到美国经济的健康状况以及迫在眉睫的政府关门。”* 
 

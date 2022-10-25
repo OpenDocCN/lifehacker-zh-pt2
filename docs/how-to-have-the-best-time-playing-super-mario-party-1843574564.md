@@ -1,6 +1,6 @@
 # 如何玩超级马里奥派对最开心
 
-> 原文:[https://kotaku . com/how-to-have-the-best-time-playing-super-Mario-party-1843574564](https://kotaku.com/how-to-have-the-best-time-playing-super-mario-party-1843574564)
+> 原文：<https://kotaku.com/how-to-have-the-best-time-playing-super-mario-party-1843574564>
 
 当脾气变得暴躁时，马里奥派对就会变得很糟糕。一分钟，你即将终于(*终于！*)抢个星。接下来，你的一个所谓的“朋友”用一个金色的烟斗从你手中夺走了它。或者你陷入了迷你游戏性能不佳的困境。连续十几场迷你游戏中最后一个死亡会导致一个人的精神慢慢崩溃。也许你听过这个笑话，这个游戏是友谊的破坏者。
 

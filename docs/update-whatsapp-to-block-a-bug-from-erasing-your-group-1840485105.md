@@ -1,6 +1,6 @@
 # 更新 WhatsApp 以阻止一个 Bug 删除您的群聊
 
-> 原文:[https://life hacker . com/update-whatsapp-to-block-a-bug-from-erasing-your-group-1840485105](https://lifehacker.com/update-whatsapp-to-block-a-bug-from-erasing-your-group-1840485105)
+> 原文：<https://lifehacker.com/update-whatsapp-to-block-a-bug-from-erasing-your-group-1840485105>
 
 已发现 WhatsApp 的一个主要漏洞，该漏洞会使您的聊天记录面临被他人永久删除的风险，您应该尽快更新该应用程序以修补该漏洞。
 

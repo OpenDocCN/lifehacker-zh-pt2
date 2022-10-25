@@ -1,6 +1,6 @@
 # 当你旅行时，一定要下载并使用你的航空公司的应用程序
 
-> 原文:[https://life hacker . com/always-download-and-use-your-airlines-app-when-your-tra-1838810884](https://lifehacker.com/always-download-and-use-your-airlines-app-when-your-tra-1838810884)
+> 原文：<https://lifehacker.com/always-download-and-use-your-airlines-app-when-your-tra-1838810884>
 
 上周，我乘坐的一趟航班和许多其他航班一样，严重晚点。这是我到达机场时就知道的事情，所以我提前花了一些额外的时间去吃早餐。这也是航空公司的应用程序提供给我的一个细节。
 

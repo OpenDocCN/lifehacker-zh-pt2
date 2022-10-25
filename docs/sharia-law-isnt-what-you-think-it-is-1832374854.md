@@ -1,6 +1,6 @@
 # “伊斯兰教法”不是你想的那样
 
-> 原文:[https://life hacker . com/sharia-law-not-what-you-think-it-1832374854](https://lifehacker.com/sharia-law-isnt-what-you-think-it-is-1832374854)
+> 原文：<https://lifehacker.com/sharia-law-isnt-what-you-think-it-is-1832374854>
 
 *Gizmodo 媒体集团与 Smartypants Pictures 合作首播第二季* [*【穆斯林的秘密生活】*](http://www.secretlifeofmuslims.com/) *，这是一部关于现代伊斯兰教的视频系列，你不会在有线电视新闻上看到。*
 

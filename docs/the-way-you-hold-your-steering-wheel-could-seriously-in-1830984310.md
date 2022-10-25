@@ -1,6 +1,6 @@
 # 在撞车事故中，你握方向盘的方式可能会严重伤害你
 
-> 原文:[https://life hacker . com/the-way-you-hold-you-steel-wheel-can-serious in-1830984310](https://lifehacker.com/the-way-you-hold-your-steering-wheel-could-seriously-in-1830984310)
+> 原文：<https://lifehacker.com/the-way-you-hold-your-steering-wheel-could-seriously-in-1830984310>
 
 去年 [我在休息了 10 年之后又重新学会了驾驶](https://lifehacker.com/how-to-learn-to-drive-when-you-dont-own-a-car-1795773101#_ga=2.151457457.944658198.1544452512-1297080755.1497980211) 。我很惊讶汽车在那个时期发展得如此之快；我学会了轻踩油门和刹车，每当我用后视摄像头停车时，我都觉得自己在作弊。我没有学到这一点:把方向盘握在“10 和 2”的位置不再理想。根据国家公路交通安全管理局的说法，在撞车事故中，以这种姿势开车会严重伤害你的手。
 

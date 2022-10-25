@@ -1,6 +1,6 @@
 # 如何把任何蔬菜变成美味的烟熏酱
 
-> 原文:[https://life hacker . com/how-to-turn-any-vegetable to-a-dip-1831349613](https://lifehacker.com/how-to-turn-any-vegetable-into-a-delicious-smoky-dip-1831349613)
+> 原文：<https://lifehacker.com/how-to-turn-any-vegetable-into-a-delicious-smoky-dip-1831349613>
 
 一年中最悲伤的一餐 总是你在假期拜访家人后马上吃的那一餐。我的通常更像是一顿 [自由放养的冰箱搜寻](https://skillet.lifehacker.com/how-to-turn-a-fridge-full-of-sad-produce-into-dinner-1826919563#_ga=2.161614524.1229014966.1545920366-144977662.1506607947) 而不是一顿真正的饭，我总是有很多问题:是吃剩的咖喱太老了，不能吃了，还是我只是个懦夫？谁吃了我所有的奶酪？为什么我没有在行李箱里塞满饼干？
 

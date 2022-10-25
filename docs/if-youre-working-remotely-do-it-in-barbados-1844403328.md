@@ -1,6 +1,6 @@
 # 如果你是远程工作，那就在巴巴多斯岛吧
 
-> 原文:[https://life hacker . com/if-you-work-remote-do-it-in-Barbados-1844403328](https://lifehacker.com/if-youre-working-remotely-do-it-in-barbados-1844403328)
+> 原文：<https://lifehacker.com/if-youre-working-remotely-do-it-in-barbados-1844403328>
 
 众所周知，在这次疫情期间，旅游业遭受了经济上的损失。许多国家关闭了边境，以保护本国公民，帮助减少新冠肺炎病毒的传播——这是理所当然的。然而，各国现在正在寻找新的方法来吸引游客，保护人口安全，并仍然为他们的旅行和旅游创造收入。
 

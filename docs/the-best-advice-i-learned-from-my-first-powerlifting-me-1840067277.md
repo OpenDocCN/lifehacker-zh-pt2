@@ -1,6 +1,6 @@
 # 我从第一次举重比赛中学到的最好的建议
 
-> 原文:[https://life hacker . com/the-best-advice-I-learned from my-first-power lifting-me-1840067277](https://lifehacker.com/the-best-advice-i-learned-from-my-first-powerlifting-me-1840067277)
+> 原文：<https://lifehacker.com/the-best-advice-i-learned-from-my-first-powerlifting-me-1840067277>
 
 我已经举重很长时间了，但只是在一年多一点前才真正开始重视我的深蹲、长凳和硬拉。上周，我终于参加了一次举重比赛。我度过了一段美好的时光，学到了很多东西，并把我得到的许多初学者建议应用到了测试中。
 

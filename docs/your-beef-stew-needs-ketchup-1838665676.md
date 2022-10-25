@@ -1,6 +1,6 @@
 # 你的炖牛肉需要番茄酱
 
-> 原文:[https://life hacker . com/your-beef-stew-needs-番茄酱-1838665676](https://lifehacker.com/your-beef-stew-needs-ketchup-1838665676)
+> 原文：<https://lifehacker.com/your-beef-stew-needs-ketchup-1838665676>
 
 我从来没有用同样的方法做过两次炖肉。我会多加一点香草，或者多加一点酱油，或者换一下土豆。但是在我的炖肉中，除了肉、土豆和胡萝卜之外，有一样东西是不变的，那就是商店里买的番茄酱 。
 

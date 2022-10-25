@@ -1,6 +1,6 @@
 # 如何收集、储存和烹饪熏肉油脂
 
-> 原文:[https://life hacker . com/how-to-collect-store-and-cook with-bacon-grease-1833410977](https://lifehacker.com/how-to-collect-store-and-cook-with-bacon-grease-1833410977)
+> 原文：<https://lifehacker.com/how-to-collect-store-and-cook-with-bacon-grease-1833410977>
 
 我最珍贵的财产之一是我从祖母那里继承来的油壶。每天早上她都会做熏肉——基本上每天都是如此——她会把炸好的猪肉条拿走，然后毫不客气地把煎好的肥肉连同所有烧焦的小肉块一起倒进瓦罐里。瓦罐就住在炉子旁边，每当她需要“一点油脂”时，她就从瓦罐里舀水，从不量。
 

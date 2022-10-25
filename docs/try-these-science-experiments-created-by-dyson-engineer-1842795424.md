@@ -1,6 +1,6 @@
 # 试试这些由戴森工程师创造的科学实验
 
-> 原文:[https://life hacker . com/try-these-science-experiments-created-by-Dyson-engineer-1842795424](https://lifehacker.com/try-these-science-experiments-created-by-dyson-engineer-1842795424)
+> 原文：<https://lifehacker.com/try-these-science-experiments-created-by-dyson-engineer-1842795424>
 
 戴森的工程师想知道: [你的孩子准备好迎接挑战了吗](https://www.jamesdysonfoundation.com/resources/challenge-cards.html) ？嗯，也许他们以前不是，但他们现在已经回家一个月了，他们已经无聊透顶了。现在是尝试新事物的好时机。
 

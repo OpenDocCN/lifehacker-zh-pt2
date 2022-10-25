@@ -1,6 +1,6 @@
 # 使用此扩展将语音转文本添加到任何网站
 
-> 原文:[https://life hacker . com/add-speech-to-text-to-any-website-with this-extension-1840584524](https://lifehacker.com/add-speech-to-text-to-any-website-with-this-extension-1840584524)
+> 原文：<https://lifehacker.com/add-speech-to-text-to-any-website-with-this-extension-1840584524>
 
 如果你曾经使用过一个网站，并希望它有一个语音输入，现在你可以自己添加一个。
 

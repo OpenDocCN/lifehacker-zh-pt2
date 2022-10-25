@@ -1,6 +1,6 @@
 # 革命将会被煮熟
 
-> 原文:[https://splitter news . com/the-revolution-will-be-cooked-1834479916](https://splinternews.com/the-revolution-will-be-cooked-1834479916)
+> 原文：<https://splinternews.com/the-revolution-will-be-cooked-1834479916>
 
 [THE FUTURE OF LABOR](https://future-of-labor.kinja.com)) : title[![](../Images/d49821dd5a0c8fbb6d88227a8defc7af.png)](https://future-of-labor.kinja.com)[THE FUTURE OF LABOR](https://future-of-labor.kinja.com)What's next for work and workers
 

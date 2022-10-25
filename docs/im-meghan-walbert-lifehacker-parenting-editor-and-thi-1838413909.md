@@ -1,6 +1,6 @@
 # im meghan walbert lifehacker parenting editor and thi 1838413909
 
-> 原文:[https://life hacker . com/im-Meghan-walbert-life hacker-parenting-editor-and-thi-1838413909](https://lifehacker.com/im-meghan-walbert-lifehacker-parenting-editor-and-thi-1838413909)
+> 原文：<https://lifehacker.com/im-meghan-walbert-lifehacker-parenting-editor-and-thi-1838413909>
 
 每周，我们都会分享我们最喜欢的专家的快捷方式、工作空间和生产力提示。本周，我们将来到 Lifehacker 的幕后。我是梅根·沃尔伯特，这就是我的工作方式。
 

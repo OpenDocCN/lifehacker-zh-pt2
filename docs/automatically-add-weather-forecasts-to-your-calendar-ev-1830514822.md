@@ -1,6 +1,6 @@
 # 使用此应用程序获取日历活动的天气预报
 
-> 原文:[https://life hacker . com/automatically-add-weather-forecasts-to-your ' s calendar-ev-1830514822](https://lifehacker.com/automatically-add-weather-forecasts-to-your-calendar-ev-1830514822)
+> 原文：<https://lifehacker.com/automatically-add-weather-forecasts-to-your-calendar-ev-1830514822>
 
 你知道本周晚些时候你孩子的足球比赛天气会怎么样吗？你计划的周六野餐怎么样？你应该开始考虑室内场地吗？
 

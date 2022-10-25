@@ -1,6 +1,6 @@
 # 你在家怎么熬过这个夏天？
 
-> 原文:[https://life hacker . com/how-you-to-survive the summer-in-home-1843728802](https://lifehacker.com/how-are-you-going-to-survive-the-summer-at-home-1843728802)
+> 原文：<https://lifehacker.com/how-are-you-going-to-survive-the-summer-at-home-1843728802>
 
 几周来，我一直专注于一个特定的日期:6 月 9 日。我必须在 6 月 9 日之前想出今年夏天的计划。6 月 9 日是我儿子三年级学年正式结束的日子。6 月 9 日是我们一直坚持的宽松的时间表——以阅读、作业、休息和玩耍的时间块为中心——将要结束的时候。然后，昨天下午，他提到，实际上，他的老师说他们会在周五完成作业。也就是明天。
 

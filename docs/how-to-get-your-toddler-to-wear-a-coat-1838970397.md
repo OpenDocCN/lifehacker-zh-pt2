@@ -1,6 +1,6 @@
 # 如何让你的孩子穿上外套
 
-> 原文:[https://life hacker . com/how-to-get-your lead-to-wear a-coat-1838970397](https://lifehacker.com/how-to-get-your-toddler-to-wear-a-coat-1838970397)
+> 原文：<https://lifehacker.com/how-to-get-your-toddler-to-wear-a-coat-1838970397>
 
 从夏天到秋天的过渡可能会很艰难，原因有很多——新学年，更早的就寝时间，新活动的开始。但这也是一场斗争，因为是时候让你的孩子(或学龄前儿童，一直到青少年)开始穿外套了，他们对此并不满意。
 

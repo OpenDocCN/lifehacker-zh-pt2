@@ -1,6 +1,6 @@
 # 更新你的 Ruckus 路由器的固件来修复大的漏洞
 
-> 原文:[https://life hacker . com/update-your-ruckus-routers-firmware-to-fix-big-vulnerab-1840709124](https://lifehacker.com/update-your-ruckus-routers-firmware-to-fix-big-vulnerab-1840709124)
+> 原文：<https://lifehacker.com/update-your-ruckus-routers-firmware-to-fix-big-vulnerab-1840709124>
 
 安全研究人员已经在 Ruckus 品牌的接入点和路由器中发现了的大量漏洞。通常情况下，它们都会影响路由器的用户界面——允许攻击者以管理员身份登录，而不考虑您的密码，这样就可以远程控制您的路由器。
 

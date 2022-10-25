@@ -1,6 +1,6 @@
 # 先喝咖啡，睡个好觉
 
-> 原文:[https://life hacker . com/take-better-naps-by-drinking-coffee-first-1828909398](https://lifehacker.com/take-better-naps-by-drinking-coffee-first-1828909398)
+> 原文：<https://lifehacker.com/take-better-naps-by-drinking-coffee-first-1828909398>
 
 去年夏天，我在意大利呆了几个星期，那里的时差是我旧金山的家的 9 个小时。这种激进的时间变化意味着我旅行的第一周相当疲惫。我靠午睡和咖啡熬过了最初的几天。后来，和我一起旅行的一个人提出了一些有趣的建议:把午睡和咖啡结合起来。
 

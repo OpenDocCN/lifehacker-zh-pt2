@@ -1,6 +1,6 @@
 # 今天花 610 美元买一台翻新的 2017 或 2018 款 MacBook Pro
 
-> 原文:[https://life hacker . com/buy-a-refined-2017-or-2018-macbook-pro-for-610-tod-1842090964](https://lifehacker.com/buy-a-refurbished-2017-or-2018-macbook-pro-for-610-tod-1842090964)
+> 原文：<https://lifehacker.com/buy-a-refurbished-2017-or-2018-macbook-pro-for-610-tod-1842090964>
 
 亚马逊的 Woot 网站上有一个令人难以置信的关于翻新的 2017 年和 2018 年 MacBook Pros 的交易，仅在今天。二手型号正在大幅降价销售——比全零售价低 600 至 900 美元，比苹果的翻新型号便宜数百美元。
 

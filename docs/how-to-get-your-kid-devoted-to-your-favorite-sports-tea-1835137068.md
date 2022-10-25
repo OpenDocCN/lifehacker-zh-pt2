@@ -1,6 +1,6 @@
 # 如何让你的孩子投身于你最喜欢的运动队
 
-> 原文:[https://life hacker . com/how-to-get-your-kid-during-to-your-favorite-sports-tea-1835137068](https://lifehacker.com/how-to-get-your-kid-devoted-to-your-favorite-sports-tea-1835137068)
+> 原文：<https://lifehacker.com/how-to-get-your-kid-devoted-to-your-favorite-sports-tea-1835137068>
 
 我丈夫和我都是体育迷。大学和职业，篮球，足球和棒球——我们都喜欢。所以我们希望我们的儿子长大后能像我们一样喜欢看体育比赛。不仅仅是因为那会让生活变得轻松一点，还因为作为一个体育迷 [对你有意想不到的好处](https://www.cnn.com/2012/04/13/health/side-effects-sports-fan/index.html) :它可以提高你的自尊，抑制孤独感，让你感觉自己是社区的一部分。
 

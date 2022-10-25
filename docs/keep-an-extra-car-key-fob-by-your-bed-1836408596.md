@@ -1,6 +1,6 @@
 # 在你的床边多放一个汽车钥匙链
 
-> 原文:[https://life hacker . com/keep-an-extra-car-key-fob-by-your bed-1836408596](https://lifehacker.com/keep-an-extra-car-key-fob-by-your-bed-1836408596)
+> 原文：<https://lifehacker.com/keep-an-extra-car-key-fob-by-your-bed-1836408596>
 
 我们大多数人都知道如何让自己的家对窃贼没有吸引力的基本知识——安装一个安全系统(或者至少在你的窗户上贴一张这样的贴纸),在旅行时让灯亮着并设置定时器，养一只狂吠的狗，等等。但是，如果你认为有人可能无视你所有的威慑，并以任何方式打破，你该怎么办？
 

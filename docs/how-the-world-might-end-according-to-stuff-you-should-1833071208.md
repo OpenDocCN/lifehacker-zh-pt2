@@ -1,6 +1,6 @@
 # 一场生物技术灾难如何终结世界(以及其他需要担心的事情)
 
-> 原文:[https://life hacker . com/how-the-world-may-end-by-stuff-you-should-1833071208](https://lifehacker.com/how-the-world-might-end-according-to-stuff-you-should-1833071208)
+> 原文：<https://lifehacker.com/how-the-world-might-end-according-to-stuff-you-should-1833071208>
 
 我们与乔什·克拉克谈论了他的新播客， [与乔什·克拉克](https://www.theendwithjosh.com/) 的世界末日，并问他所有关于存在主义风险的问题，以及我们为什么应该关注这些风险。
 

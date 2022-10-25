@@ -1,6 +1,6 @@
 # 你要死了吗？在美国东部时间下午 1 点询问医生你所有的健康问题
 
-> 原文:[https://life hacker . com/are-you-death-ask-a-1835383696](https://lifehacker.com/are-you-dying-ask-a-doctor-all-your-health-questions-a-1835383696)
+> 原文：<https://lifehacker.com/are-you-dying-ask-a-doctor-all-your-health-questions-a-1835383696>
 
 背部那种奇怪的、偶尔的疼痛已经困扰你一段时间了，但安排一次全面的医生预约似乎并不是一个很大的问题。你必须申请休假，确保你没有落下任何事情——这将是一整件事。为什么不同时在 Lifehacker 上问问医生呢？
 

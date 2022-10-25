@@ -1,6 +1,6 @@
 # 我们最喜欢的 12 个 Chrome 扩展
 
-> 原文:[https://life hacker . com/our-12-favorite-chrome-extensions-1844729409](https://lifehacker.com/our-12-favorite-chrome-extensions-1844729409)
+> 原文：<https://lifehacker.com/our-12-favorite-chrome-extensions-1844729409>
 
 Chrome 网上商店 [的确是一团糟](https://lifehacker.com/stop-installing-extensions-from-the-chrome-web-store-1844678014) ，但这并不意味着你*不应该*使用合法的扩展来改善你的浏览器体验——无论是在 [谷歌 Chrome](https://lifehacker.com/why-chrome-uses-so-much-freaking-ram-1702537477) *还是*资源更友好的替代品，微软的[Edge Chrome](https://lifehacker.com/our-favorite-tips-for-microsofts-new-edge-chromium-brow-1841041653)。
 

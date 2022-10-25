@@ -1,6 +1,6 @@
 # 你可能会因为焦虑而拖延
 
-> 原文:[https://life hacker . com/you-may-be-delaying-because-you-anxiety-1833809567](https://lifehacker.com/you-might-be-procrastinating-because-youre-anxious-1833809567)
+> 原文：<https://lifehacker.com/you-might-be-procrastinating-because-youre-anxious-1833809567>
 
 拖延可能是你读这篇文章的原因，但是你拖延的原因可能实际上是焦虑。
 

@@ -1,6 +1,6 @@
 # 为什么不应该预订重复的航班
 
-> 原文:[https://life hacker . com/why-you-should-book-duplicate-flights-1840533049](https://lifehacker.com/why-you-shouldnt-book-duplicate-flights-1840533049)
+> 原文：<https://lifehacker.com/why-you-shouldnt-book-duplicate-flights-1840533049>
 
 经过数周的仔细搜索，你终于发现了一个很好的航班——或者你是这么认为的。预订几个小时后，你会发现通过同一家航空公司，你可以以更低的价格买到更好的机票。在紧急情况下，你可能会预订第二个航班，因为你知道这个座位可能会被取消，而且大多数主要的美国航空公司都提供长达 24 小时的免费取消服务(或类似的政策)。事实证明，这可能不是一个好主意。
 

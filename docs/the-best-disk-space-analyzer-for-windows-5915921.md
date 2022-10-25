@@ -1,6 +1,6 @@
 # 最好的 Windows 磁盘空间分析器
 
-> 原文:[https://life hacker . com/the-best-disk-space-analyzer-for-windows-5915921](https://lifehacker.com/the-best-disk-space-analyzer-for-windows-5915921)
+> 原文：<https://lifehacker.com/the-best-disk-space-analyzer-for-windows-5915921>
 
 如果你的硬盘开始被填满，你可能会想到底是什么占据了所有的空间。这就是磁盘空间分析器的用武之地:它扫描您的磁盘，并以图形形式向您显示所有空间被浪费的地方，让您知道从哪里开始清理。
 

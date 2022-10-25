@@ -1,6 +1,6 @@
 # Flipboard 用户:马上更新你的密码
 
-> 原文:[https://life hacker . com/flipboard-users-update-your-passwords-right-now-1835091775](https://lifehacker.com/flipboard-users-update-your-passwords-right-now-1835091775)
+> 原文：<https://lifehacker.com/flipboard-users-update-your-passwords-right-now-1835091775>
 
 Flipboard， [新闻聚合应用和网站](https://flipboard.com/) ，今天在一封电子邮件中向其用户宣布，一个大规模的安全漏洞使账户登录信息容易受到攻击，黑客可以访问超过九个月。该公司正在采取措施保护用户信息的安全，但如果你在其他地方使用了你的 Flipboard 密码，现在是时候改变这一点了。
 

@@ -1,6 +1,6 @@
 # 摩托罗拉的 Razr 手机揭示了最重要的细节
 
-> 原文:[https://life hacker . com/the-most-important-details-from-motorolas-razr-phone-re-1839864837](https://lifehacker.com/the-most-important-details-from-motorolas-razr-phone-re-1839864837)
+> 原文：<https://lifehacker.com/the-most-important-details-from-motorolas-razr-phone-re-1839864837>
 
 昨晚，摩托罗拉透露其 [复活 Razr 手机](https://www.motorola.com/us/products/razr) 。该公司显然指望 Razr 品牌的怀旧与可折叠设备的相对整洁相结合，但其核心是，新的 Razr 仍然是一款基于 Android 的智能手机。这意味着它必须与谷歌、三星和更多公司(包括来自库比蒂诺的)的旗舰设备正面交锋。
 

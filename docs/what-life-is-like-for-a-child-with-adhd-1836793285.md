@@ -1,6 +1,6 @@
 # 患有多动症的孩子的生活是怎样的
 
-> 原文:[https://life hacker . com/what-life-like for a child with ADHD-1836793285](https://lifehacker.com/what-life-is-like-for-a-child-with-adhd-1836793285)
+> 原文：<https://lifehacker.com/what-life-is-like-for-a-child-with-adhd-1836793285>
 
 患有 ADHD 的孩子可能看起来注意力不集中、优柔寡断、冲动且无纪律。但是他们实际上是在以不同的方式体验和处理我们周围的世界。稍微了解一下他们的观点——并且明白这不仅仅是他们需要静坐和专注的问题——对增强我们的共鸣有很大的帮助。
 

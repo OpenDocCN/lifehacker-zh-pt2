@@ -1,6 +1,6 @@
 # 当你陷入困境时，使用“五更法则”
 
-> 原文:[https://life hacker . com/use-the-five-more-rule-when-you-feeling-stick-1829911156](https://lifehacker.com/use-the-five-more-rule-when-youre-feeling-stuck-1829911156)
+> 原文：<https://lifehacker.com/use-the-five-more-rule-when-youre-feeling-stuck-1829911156>
 
 人们很容易被所有的事情弄得不知所措。所有你不得不回复的人(通常以悲伤的开场白“抱歉延迟回复…”).所有你应该写的字。所有你承诺在跑步机上跑步的时间，所有你说要准备的食物，所有你几个月来一直想扔掉的壁橱杂物。
 

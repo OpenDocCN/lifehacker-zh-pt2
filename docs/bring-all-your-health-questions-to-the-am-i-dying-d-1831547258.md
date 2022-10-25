@@ -1,6 +1,6 @@
 # 把你所有的健康问题带到“我要死了吗？!"美国东部时间明天下午 1 点
 
-> 原文:[https://life hacker . com/bring-all-your-health-questions-to-the-am-I-dying-d-1831547258](https://lifehacker.com/bring-all-your-health-questions-to-the-am-i-dying-d-1831547258)
+> 原文：<https://lifehacker.com/bring-all-your-health-questions-to-the-am-i-dying-d-1831547258>
 
 你的上背部有这种奇怪的疼痛，更像是刺痛，但只是在你的左侧。你的眼睛也会不停地抽搐。你腿上有一个奇怪的疹子，而且一直没有消失。你要死了吗？！
 

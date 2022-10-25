@@ -1,6 +1,6 @@
 # 在 BundleHunt 的新应用包中查找打折的 Mac 应用
 
-> 原文:[https://life hacker . com/find-discounted-MAC-apps-in-bundle hunts-new-app-pack-1830279655](https://lifehacker.com/find-discounted-mac-apps-in-bundlehunts-new-app-pack-1830279655)
+> 原文：<https://lifehacker.com/find-discounted-mac-apps-in-bundlehunts-new-app-pack-1830279655>
 
 每个人都喜欢一个好的应用捆绑包，bundle hunt——为你的 Mac 设计的创造者——已经推出了全新的假日应用捆绑包。兴奋起来，因为你总共有 46 个大折扣的应用程序可供选择。
 

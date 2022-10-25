@@ -1,6 +1,6 @@
 # 如何在 2019 年大修版下降之前使用新的 Winamp Beta
 
-> 原文:[https://life hacker . com/how-to-use-the-new-winamp-beta-before-the-大修-ve-1829974853](https://lifehacker.com/how-to-use-the-new-winamp-beta-before-the-overhauled-ve-1829974853)
+> 原文：<https://lifehacker.com/how-to-use-the-new-winamp-beta-before-the-overhauled-ve-1829974853>
 
 上周，Radionomy 首席执行官 Alexandre Saboundjian 透露，该公司计划彻底改革经典音乐播放器 WinampT3，该播放器以 iTunes 的 Windows 优先替代品而闻名，使其对我们更加注重流媒体的音频媒体世界更加重要。该版本将于 2019 年推出。
 

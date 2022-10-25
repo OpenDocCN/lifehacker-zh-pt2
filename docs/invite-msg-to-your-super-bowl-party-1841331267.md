@@ -1,6 +1,6 @@
 # 邀请味精参加你的超级碗派对
 
-> 原文:[https://life hacker . com/invite-msg-to-your ' s super bowl-party-1841331267](https://lifehacker.com/invite-msg-to-your-super-bowl-party-1841331267)
+> 原文：<https://lifehacker.com/invite-msg-to-your-super-bowl-party-1841331267>
 
 我已经不再对足球比赛感兴趣了，但是否认超级碗周日是最神圣的美食节日之一是不诚实的。所有的美食——鸡翅、披萨、玉米片——都会出席(有时在 [一道热菜](https://lifehacker.com/this-super-bowl-casserole-is-a-home-run-1822669744) ！).这是一个美味的一天，但有一种配料长期被拒绝邀请，一种调料将确保你的小吃是一个灌篮，并确保你不会作为主人出局。这种物质就是味精，它可以改善你超级碗快餐桌上的每一样东西。
 

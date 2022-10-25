@@ -1,6 +1,6 @@
 # 冬季的终极配菜是闷卷心菜
 
-> 原文:[https://life hacker . com/the-ultimate-winter-side-dish-is-smothered-cabbage-1831739571](https://lifehacker.com/the-ultimate-winter-side-dish-is-smothered-cabbage-1831739571)
+> 原文：<https://lifehacker.com/the-ultimate-winter-side-dish-is-smothered-cabbage-1831739571>
 
 卷心菜得不到尊重，这很遗憾——它可能是地球上用途最广的蔬菜。从娇嫩的叶子到甜美松脆的核心，我喜欢每一种卷心菜的每一部分，并把让别人有同样的感觉作为我的使命。
 

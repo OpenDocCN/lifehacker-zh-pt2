@@ -1,6 +1,6 @@
 # 现在弄清楚去哪里让你的孩子接受新冠肺炎病毒检测
 
-> 原文:[https://life hacker . com/figure-out-now-where-to-get-your-child-test-for-covid-1845012797](https://lifehacker.com/figure-out-now-where-to-get-your-child-tested-for-covid-1845012797)
+> 原文：<https://lifehacker.com/figure-out-now-where-to-get-your-child-tested-for-covid-1845012797>
 
 每当孩子生病时，计划就会突然改变。你可以让他们呆在家里不去上学，或者你自己也可以取消工作。在 2020 年，有一个新的考虑:我可以在哪里给这个孩子做 COVID 测试？
 

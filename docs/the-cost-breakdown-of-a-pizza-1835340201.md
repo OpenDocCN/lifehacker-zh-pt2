@@ -1,6 +1,6 @@
 # 我们以 16.50 美元出售比萨饼。下面是成本分解情况。
 
-> 原文:[https://the take out . com/the-cost-break-of-a-pizza-1835340201](https://thetakeout.com/the-cost-breakdown-of-a-pizza-1835340201)
+> 原文：<https://thetakeout.com/the-cost-breakdown-of-a-pizza-1835340201>
 
 我男朋友把放在披萨上的那一天永远改变了我的生活。那个男朋友，也就是我现在的丈夫，是第三代比萨饼师傅，他在芝加哥郊区的家庭比萨饼店从 20 世纪 50 年代开始供应酒馆式馅饼和其他芝加哥式意大利食品。尽管我很想大声喊出比萨店的名字，但你很快就会明白为什么我要把这个细节藏在心里。
 

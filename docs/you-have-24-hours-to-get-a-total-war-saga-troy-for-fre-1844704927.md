@@ -1,6 +1,6 @@
 # 你有 24 小时免费获得《全面战争传奇:特洛伊》
 
-> 原文:[https://life hacker . com/you-has-to-get-a-total-war-saga-troy-for-fre-1844704927](https://lifehacker.com/you-have-24-hours-to-get-a-total-war-saga-troy-for-fre-1844704927)
+> 原文：<https://lifehacker.com/you-have-24-hours-to-get-a-total-war-saga-troy-for-fre-1844704927>
 
 我是《全面战争》系列的超级粉丝，尤其是两款游戏——*全面战争:战锤 2* 和*全面战争:三国*——绝对是最好中的最好。虽然该系列的最新作品*全面战争传奇:特洛伊*在细节、策略和混乱程度上还没有达到他们的水平，但这个游戏有一个令人难以置信的可取之处:它是免费的。
 

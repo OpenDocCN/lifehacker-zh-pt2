@@ -1,6 +1,6 @@
 # 让你的孩子看到你的负面情绪
 
-> 原文:[https://life hacker . com/let-your-kids-see-your-negative-emotions-1830681600](https://lifehacker.com/let-your-kids-see-your-negative-emotions-1830681600)
+> 原文：<https://lifehacker.com/let-your-kids-see-your-negative-emotions-1830681600>
 
 众所周知，在孩子面前过度争吵不是一个好主意——这不仅会给他们带来情绪上的痛苦，而且 [会影响他们处理情绪的方式以及他们未来建立关系的方式](https://www.parents.com/health/parents-news-now/parents-who-fight-in-front-of-kids-may-do-more-harm-than-they-think/) 。
 

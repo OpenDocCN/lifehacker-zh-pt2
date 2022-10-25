@@ -1,6 +1,6 @@
 # 使用这个网站找出你下次旅行的出租车、食物和啤酒的价格
 
-> 原文:[https://life hacker . com/find-out-how-much-cabs-food-and-beer-will-cost for-yo-1838996645](https://lifehacker.com/find-out-how-much-cabs-food-and-beer-will-cost-for-yo-1838996645)
+> 原文：<https://lifehacker.com/find-out-how-much-cabs-food-and-beer-will-cost-for-yo-1838996645>
 
 几年前，我和我的男朋友购买了 WOW 航空公司飞往苏格兰的机票。他们非常便宜，而且在冰岛停留了 17 个小时。
 

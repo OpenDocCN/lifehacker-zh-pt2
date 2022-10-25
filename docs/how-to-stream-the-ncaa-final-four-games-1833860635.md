@@ -1,6 +1,6 @@
 # 如何直播 NCAA 四强赛
 
-> 原文:[https://life hacker . com/how-to-stream-the-NCAA-final-four-games-1833860635](https://lifehacker.com/how-to-stream-the-ncaa-final-four-games-1833860635)
+> 原文：<https://lifehacker.com/how-to-stream-the-ncaa-final-four-games-1833860635>
 
 今天是 NCAA 四强的日子。东部时间下午 6 点 09 分，第五名奥本将对阵第一名弗吉尼亚，紧接着是第三名德克萨斯理工大学对阵第二名密歇根州立大学，一切都是为了看谁将在周一参加 NCAA 冠军赛。
 

@@ -1,6 +1,6 @@
 # 千万不要把烟火带上飞机
 
-> 原文:[https://life hacker . com/never-being-fireworks-on-a plane-1836073890](https://lifehacker.com/never-bring-fireworks-onto-a-plane-1836073890)
+> 原文：<https://lifehacker.com/never-bring-fireworks-onto-a-plane-1836073890>
 
 千万不要带着烟火飞行(或者任何甚至*接近*烟火的东西)。烟花被认为是爆炸装置，可能在飞行途中点燃，美国运输安全管理局将从任何随身行李或托运行李中没收烟花。
 

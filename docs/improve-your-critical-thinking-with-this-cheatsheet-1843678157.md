@@ -1,6 +1,6 @@
 # 用这张备忘单提高你的批判性思维
 
-> 原文:[https://life hacker . com/improve-your-critical-this-cheat sheet-1843678157](https://lifehacker.com/improve-your-critical-thinking-with-this-cheatsheet-1843678157)
+> 原文：<https://lifehacker.com/improve-your-critical-thinking-with-this-cheatsheet-1843678157>
 
 下次你需要对某事进行批判性思考的时候——无论你是在考虑一个新的想法，权衡一个潜在决定的利弊，还是评估你是否可以信任一个特定的新闻来源——有必要问自己几个简单的问题。
 

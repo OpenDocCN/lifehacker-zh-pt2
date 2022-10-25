@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:我们应该给体育场的食品供应商小费，对吗？
 
-> 原文:[https://the take out . com/should-you-tip-stadium-food-beer-vendors-1833817669](https://thetakeout.com/should-you-tip-stadium-food-beer-vendors-1833817669)
+> 原文：<https://thetakeout.com/should-you-tip-stadium-food-beer-vendors-1833817669>
 
 > 亲爱的咸咸:请帮我弄清楚我是不是疯了。我带我的孩子去看棒球比赛，我们坐在过道的尽头。这个家伙坐在中间几个座位，在比赛中途拦住了一个卖热狗的小贩。两个热狗和一杯水总共是 18 美元左右，那个家伙伸手过来递给小贩 20 美元。然后，他站在那里，伸出手等待小贩给他的零钱。我是说，你应该给卖热狗和啤酒的小费，对吧？我没疯？这些人是为小费工作的？
 > 

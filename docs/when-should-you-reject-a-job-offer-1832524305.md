@@ -1,6 +1,6 @@
 # 什么时候你应该拒绝一份工作邀请？
 
-> 原文:[https://life hacker . com/when-should-you-reject-a-job-offer-1832524305](https://lifehacker.com/when-should-you-reject-a-job-offer-1832524305)
+> 原文：<https://lifehacker.com/when-should-you-reject-a-job-offer-1832524305>
 
 申请工作很像约会:这是一个耗费精力、常常令人尴尬的过程，需要付出很多努力才能获得最小的回报，将你的闲聊肌肉拉伸到最大。如果你把情况理解错了，你会发现自己被锁在一个极其不愉快的处境中，如果不打乱你的生活，你就无法逃脱，所以你试图假装某些重要的事情(性，带薪休假)实际上从来都不是你关心的事情。
 

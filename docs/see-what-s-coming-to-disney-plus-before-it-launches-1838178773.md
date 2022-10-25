@@ -1,6 +1,6 @@
 # 在 Disney Plus 发布之前，了解它将会带来什么
 
-> 原文:[https://life hacker . com/see-what-s-coming-to-Disney-plus-before-it-launches-1838178773](https://lifehacker.com/see-what-s-coming-to-disney-plus-before-it-launches-1838178773)
+> 原文：<https://lifehacker.com/see-what-s-coming-to-disney-plus-before-it-launches-1838178773>
 
 迪士尼+的发布日期越来越近了。距离迪士尼在网飞的主要竞争对手流媒体服务开始只有不到两个月的时间了，虽然你已经失去了为迪士尼+获得巨额多年折扣的机会，但这并不意味着你不会被说服为你在其他地方找不到的所有极客电视节目和动画电影付费。
 

@@ -1,6 +1,6 @@
 # 知道当一个名人被指控骚扰这个 Chrome 扩展
 
-> 原文:[https://life hacker . com/know-when-a-celebrity-hacker 被指控骚扰-wi-1832103707](https://lifehacker.com/know-when-a-celebrity-has-been-accused-of-harassment-wi-1832103707)
+> 原文：<https://lifehacker.com/know-when-a-celebrity-has-been-accused-of-harassment-wi-1832103707>
 
 我承认我不了解很多名人的八卦新闻。这意味着我通常不知道一个演员在和谁约会，或者他们刚刚有了一个孩子。我也不知道什么时候有人被指控性骚扰或性侵犯，除非这件事引起了温斯坦级别的关注。
 

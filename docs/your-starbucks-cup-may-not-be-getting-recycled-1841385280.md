@@ -1,6 +1,6 @@
 # 你的星巴克杯子可能不会被回收
 
-> 原文:[https://life hacker . com/your-Starbucks-cup-may-not-be-get-recycled-1841385280](https://lifehacker.com/your-starbucks-cup-may-not-be-getting-recycled-1841385280)
+> 原文：<https://lifehacker.com/your-starbucks-cup-may-not-be-getting-recycled-1841385280>
 
 为了应对星巴克越来越多的浪费问题，今年， [这家咖啡连锁店宣布在旧金山和西雅图等城市试运行](https://www.cnbc.com/2019/03/20/starbucks-announces-trials-for-recyclable-and-compostable-cups.html) 其最新的可回收和可堆肥杯子设计。回到 2018 年， [星巴克](https://www.businessinsider.com/starbucks-replaces-straws-with-sippy-cup-lid-2018-7) 也开始在全国范围内推出其 clear、 [可回收](https://www.forbes.com/sites/trevornace/2018/07/10/starbucks-to-ditch-plastic-straws-worldwide-for-adult-sippy-cups/#8f398a6c9eb6) sippy 杯子，用于其部分冷饮。
 

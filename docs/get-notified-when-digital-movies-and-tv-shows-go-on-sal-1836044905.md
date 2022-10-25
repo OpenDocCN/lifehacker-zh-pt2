@@ -1,6 +1,6 @@
 # 当数字电影和电视节目开始销售时获得通知
 
-> 原文:[https://life hacker . com/get-notified-when-digital-movie-and-TV-shows-go-on-sal-1836044905](https://lifehacker.com/get-notified-when-digital-movies-and-tv-shows-go-on-sal-1836044905)
+> 原文：<https://lifehacker.com/get-notified-when-digital-movies-and-tv-shows-go-on-sal-1836044905>
 
 随着我最喜欢的随机狂欢系列 ing [离开网飞](https://news.avclub.com/the-office-will-leave-netflix-for-nbcuniversals-streami-1835855209) 的消息传来，并且我完全知道我不会再注册更多的流媒体服务*，我上周考虑买下所有的*Office*。然而，我没有扣动扳机，因为我不知道我看到的价格是杀手级交易还是因为新闻而被抬高。* 
 

@@ -1,6 +1,6 @@
 # 你应该拥有你最喜欢的纸质书
 
-> 原文:[https://life hacker . com/you-should-own-your-favorite-books in-hard-copy-1836249572](https://lifehacker.com/you-should-own-your-favorite-books-in-hard-copy-1836249572)
+> 原文：<https://lifehacker.com/you-should-own-your-favorite-books-in-hard-copy-1836249572>
 
 微软正在删除用户设备上的书籍。这是一个严酷的提醒，大多数电子书都可以被卖家远程删除，所以你永远受他们的摆布。这只是你应该拥有自己喜欢的纸质书籍的一个原因。
 

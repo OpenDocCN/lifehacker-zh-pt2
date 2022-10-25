@@ -1,6 +1,6 @@
 # 如果你对和一个人做爱感到紧张，学着和机器人发短信
 
-> 原文:[https://life hacker . com/learn-to-sext-with-a-bot-if-you-nearly-do-I-1833961113](https://lifehacker.com/learn-to-sext-with-a-bot-if-youre-nervous-about-doing-i-1833961113)
+> 原文：<https://lifehacker.com/learn-to-sext-with-a-bot-if-youre-nervous-about-doing-i-1833961113>
 
 性短信和性很像，与其说是一种直觉，不如说是一种习得的技能。你可能会发现自己把“性”这个词扔向墙壁，看看会粘上什么，结果好坏参半。如果你想在一个安全的空间展开你的性短信翅膀，为什么不给机器人发短信呢？
 

@@ -1,6 +1,6 @@
 # 更新 Chrome 以保护自己免受三大安全缺陷的影响
 
-> 原文:[https://life hacker . com/update-chrome-to-protect-yourself-against-three-major-s-1841915107](https://lifehacker.com/update-chrome-to-protect-yourself-against-three-major-s-1841915107)
+> 原文：<https://lifehacker.com/update-chrome-to-protect-yourself-against-three-major-s-1841915107>
 
 在最新版本的 Chrome 中，不是一个，而是三个大的安全漏洞，其中一个正被黑客积极利用。你可以在 [谷歌博文](https://chromereleases.googleblog.com/2020/02/stable-channel-update-for-desktop_24.html) 中阅读该漏洞的技术细节，但它基本上影响了 Chrome 正确检查和运行 JavaScript 的能力，使浏览器对恶意代码敞开大门。
 

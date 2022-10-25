@@ -1,6 +1,6 @@
 # 谷歌新的 Nest Aware 计划值得额外花费吗？
 
-> 原文:[https://life hacker . com/are-Google-new-nest-aware-plans-worth-the-extra-cost-1843445914](https://lifehacker.com/are-googles-new-nest-aware-plans-worth-the-extra-cost-1843445914)
+> 原文：<https://lifehacker.com/are-googles-new-nest-aware-plans-worth-the-extra-cost-1843445914>
 
 谷歌旗下的家庭安全公司 Nest 更新了其 Nest Aware 服务，采用了全新的定价模式和一些新功能 T3。
 

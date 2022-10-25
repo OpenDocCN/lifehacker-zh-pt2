@@ -1,6 +1,6 @@
 # 今年情人节，用你前任的名字给一只蟑螂命名
 
-> 原文:[https://life hacker . com/name-a-column-after-your-ex-this-valentines-day-1832162403](https://lifehacker.com/name-a-cockroach-after-your-ex-this-valentines-day-1832162403)
+> 原文：<https://lifehacker.com/name-a-cockroach-after-your-ex-this-valentines-day-1832162403>
 
 人们说真爱永不消逝，但人们也可以这样说蟑螂。事实上，如果一个持续的、琐碎的怨恨以物质的形式出现，它很可能会以蟑螂的形式出现，这就是为什么今年情人节以你前任的名字命名一只蟑螂是非常有意义的。
 

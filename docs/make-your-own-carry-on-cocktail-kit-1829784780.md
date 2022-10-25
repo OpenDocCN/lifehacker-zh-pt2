@@ -1,6 +1,6 @@
 # 制作你自己的随身鸡尾酒包
 
-> 原文:[https://life hacker . com/make-your-own-carry-on-cocktail-kit-1829784780](https://lifehacker.com/make-your-own-carry-on-cocktail-kit-1829784780)
+> 原文：<https://lifehacker.com/make-your-own-carry-on-cocktail-kit-1829784780>
 
 坐飞机太可怕了，这就是为什么那么多人在飞机上喝酒。但是飞机不是酒吧，这使得在飞机上喝鸡尾酒的体验有点有限。虽然朗姆酒和可乐、杜松子酒和伏特加苏打水就可以了，但带上一点鸡尾酒会提升飞机上的饮酒体验，并提供一个受欢迎的分散你在该死的飞机上的注意力的方法(这就是重点)。
 

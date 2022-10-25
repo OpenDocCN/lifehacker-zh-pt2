@@ -1,6 +1,6 @@
 # 在哪里阅读穆勒报告
 
-> 原文:[https://life hacker . com/where-to-read-the-mueller-report-1834140364](https://lifehacker.com/where-to-read-the-mueller-report-1834140364)
+> 原文：<https://lifehacker.com/where-to-read-the-mueller-report-1834140364>
 
 最好戴上你的老花镜，因为期待已久的穆勒报告终于在这里——至少，在它的严重编辑形式中 [特朗普总统的律师](https://www.vox.com/2019/4/18/18484791/mueller-report-trump-barr-lawyers-white-house) 可能会或可能不会事先审查。很正常！
 

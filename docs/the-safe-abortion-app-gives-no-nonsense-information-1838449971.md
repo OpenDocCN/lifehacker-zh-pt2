@@ -1,6 +1,6 @@
 # “安全堕胎”应用程序提供了切实可行的信息
 
-> 原文:[https://life hacker . com/the-safe-流产-app-gives-no-废话信息-1838449971](https://lifehacker.com/the-safe-abortion-app-gives-no-nonsense-information-1838449971)
+> 原文：<https://lifehacker.com/the-safe-abortion-app-gives-no-nonsense-information-1838449971>
 
 如今，在网上找到任何准确的健康信息都是一项艰巨的任务，当谈到堕胎时，有 [个反堕胎团体专门试图误导人们](https://lifehacker.com/how-to-tell-a-crisis-pregnancy-center-from-a-legitimate-1823626740) 只想要关于自己怀孕和终止妊娠选择的信息。
 

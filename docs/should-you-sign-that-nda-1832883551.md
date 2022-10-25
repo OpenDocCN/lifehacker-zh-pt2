@@ -1,6 +1,6 @@
 # 你应该在 NDA 签名吗？
 
-> 原文:[https://lifehacker.com/should-you-sign-that-nda-1832883551](https://lifehacker.com/should-you-sign-that-nda-1832883551)
+> 原文：<https://lifehacker.com/should-you-sign-that-nda-1832883551>
 
 想为特朗普总统工作吗？显然，这需要 [三个](https://www.vox.com/the-big-idea/2018/8/16/17695150/omarosa-nondisclosure-agreements-white-house-secrecy-trump) 签署 [保密协议](https://www.thedailybeast.com/trump-white-house-is-forcing-interns-to-sign-ndas-and-threatening-them-with-financial-ruin)[s](https://www.thedailybeast.com/trump-white-house-is-forcing-interns-to-sign-ndas-and-threatening-them-with-financial-ruin)——以及迫在眉睫的威胁，如果你选择打破它，他会在经济上和法律上毁了你(没有压力！).
 

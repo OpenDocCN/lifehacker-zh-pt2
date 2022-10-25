@@ -1,6 +1,6 @@
 # 如何维护您的旧视频游戏系统
 
-> 原文:[https://life hacker . com/how-to-maintain-your-older-video-game-systems-1844123837](https://lifehacker.com/how-to-maintain-your-older-video-game-systems-1844123837)
+> 原文：<https://lifehacker.com/how-to-maintain-your-older-video-game-systems-1844123837>
 
 我们距离索尼的 PlayStation 5 和微软的 Xbox Series X 的发布还有几个月的时间。就像任何新一代的 游戏机一样，新机器令人兴奋，但它们的到来并不意味着你当前的设备会立即过时。PlayStation 4 和 Xbox One 的大量游戏将继续下降，如果你善待你的主机，你将能够在未来几年继续玩这些游戏。
 

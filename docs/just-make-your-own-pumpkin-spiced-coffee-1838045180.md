@@ -1,6 +1,6 @@
 # 只需自己制作南瓜香料咖啡
 
-> 原文:[https://life hacker . com/just-make-your-own-pumpkin-五香咖啡-1838045180](https://lifehacker.com/just-make-your-own-pumpkin-spiced-coffee-1838045180)
+> 原文：<https://lifehacker.com/just-make-your-own-pumpkin-spiced-coffee-1838045180>
 
 我第一次尝试在家里做南瓜香料口味的咖啡时，我 23 岁，还不熟悉食物和饮料。我煮了咖啡，加入了奶油和糖，搅拌了一小勺南瓜香料粉。香料漂浮到顶部，在那里它提供了一个不愉快的，砂砾质地，没有太多的味道。要制作注入南瓜香料味道的咖啡饮料，你需要在冲泡咖啡前将香料混合到你的咖啡粉中。
 

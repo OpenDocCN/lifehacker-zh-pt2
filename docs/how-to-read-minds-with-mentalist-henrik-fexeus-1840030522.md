@@ -1,6 +1,6 @@
 # 如何读心，精神论者亨利克·费克斯
 
-> 原文:[https://life hacker . com/how-to-read-minds-with-mentalist-Henrik-fexeus-1840030522](https://lifehacker.com/how-to-read-minds-with-mentalist-henrik-fexeus-1840030522)
+> 原文：<https://lifehacker.com/how-to-read-minds-with-mentalist-henrik-fexeus-1840030522>
 
 读心术真的可能吗？我们如何解读肢体语言才能更好地理解他人的真实想法？在本周的节目中，爱丽丝和梅丽莎在瑞典精神论者亨里克·费克斯(又名“瑞典的达伦·布朗”)的帮助下探索这些问题以及更多。亨里克是国际畅销书《读心术:如何在别人不注意的情况下理解和影响别人》的作者，在这一集里，他解释了读心术到底是什么，以及我们如何利用它。
 

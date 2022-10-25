@@ -1,6 +1,6 @@
 # 告诉我们你最好的堪萨斯城旅行建议
 
-> 原文:[https://life hacker . com/tell-us-your-best-Kansas-city-travel-tips-1831075173](https://lifehacker.com/tell-us-your-best-kansas-city-travel-tips-1831075173)
+> 原文：<https://lifehacker.com/tell-us-your-best-kansas-city-travel-tips-1831075173>
 
 这个城市甚至不能容纳一个州。堪萨斯城、堪萨斯城和其他几个城市组成了堪萨斯城大都市区，环绕在堪萨斯河和密苏里河的交汇处。现在，当我听到“堪萨斯城”时，我会想到“堪萨斯城的畜牧场”，但我已经准备好听听这个城市有多优雅了。以下是我想知道的关于本周黑客你的城市。
 

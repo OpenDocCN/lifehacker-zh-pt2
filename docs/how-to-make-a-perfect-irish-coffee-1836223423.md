@@ -1,6 +1,6 @@
 # 如何制作一杯完美的爱尔兰咖啡
 
-> 原文:[https://life hacker . com/how-to-make-a-perfect-Irish-coffee-1836223423](https://lifehacker.com/how-to-make-a-perfect-irish-coffee-1836223423)
+> 原文：<https://lifehacker.com/how-to-make-a-perfect-irish-coffee-1836223423>
 
 爱尔兰咖啡是全世界卡布奇诺鉴赏家和狂饮波本威士忌的好酒爱好者所喜爱的美味佳肴。不幸的是，我们大多数人已经变得对真正的爱尔兰咖啡漠不关心。这也难怪:一段时间以来，餐馆和酒吧里的爱尔兰咖啡质量一直在下降。我们基本上被提供了便宜的咖啡和更便宜的威士忌，上面还有过度充气的搅打浇头。但是爱尔兰咖啡是有艺术的。
 

@@ -1,6 +1,6 @@
 # 如何给宝宝洗手
 
-> 原文:[https://life hacker . com/how-to-wash-your-babys-hands-1842297614](https://lifehacker.com/how-to-wash-your-babys-hands-1842297614)
+> 原文：<https://lifehacker.com/how-to-wash-your-babys-hands-1842297614>
 
 如果你突然开始像准备手术的医生一样洗手，你并不孤单——直到本周，我才意识到 20 秒到底有多长。确保我们的孩子洗手或消毒(不要咳嗽)也是减缓冠状病毒传播的关键。但是婴儿的手呢？
 

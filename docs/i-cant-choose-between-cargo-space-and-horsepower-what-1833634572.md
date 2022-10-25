@@ -1,6 +1,6 @@
 # 货舱空间和马力我无法选择！应该买什么车？
 
-> 原文:[https://jalopnik . com/I-cant-choose-between-cargo-space-and-马力-what-1833634572](https://jalopnik.com/i-cant-choose-between-cargo-space-and-horsepower-what-1833634572)
+> 原文：<https://jalopnik.com/i-cant-choose-between-cargo-space-and-horsepower-what-1833634572>
 
 JP 正面临着性能与实用性的危机。他的租约快到期了，他喜欢一辆不错的运动型轿车，但作为新房主，他需要一些拖运能力。他厌倦了为卡车而烦扰他的朋友，但他真的不想放弃驾驶起来很有趣的东西。他应该买什么车？
 

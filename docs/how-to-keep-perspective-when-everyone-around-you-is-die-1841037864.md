@@ -1,6 +1,6 @@
 # 当你周围的人都在节食时，如何保持正确的观点
 
-> 原文:[https://life hacker . com/how-to-keep-perspective-when every one-around-you-die-1841037864](https://lifehacker.com/how-to-keep-perspective-when-everyone-around-you-is-die-1841037864)
+> 原文：<https://lifehacker.com/how-to-keep-perspective-when-everyone-around-you-is-die-1841037864>
 
 似乎你认识的每个人每年一月的饮食都会变得奇怪——也许是 Whole30，也许是糖的“排毒”，也许是对 keto 的全心承诺。如果你没有跟上潮流，而且这一切都有点过头了，该怎么办？ [*反节食*作者、注册营养师克里斯蒂·哈里逊](https://christyharrison.com/) 为我们提供了一些建议。
 

@@ -1,6 +1,6 @@
 # 你能从 16 亿美元的超级百万大奖中拿多少钱回家[更新]
 
-> 原文:[https://life hacker . com/how-much-you-really-take-home from-900m-mega-m-1829841029](https://lifehacker.com/how-much-youll-actually-take-home-from-the-900m-mega-m-1829841029)
+> 原文：<https://lifehacker.com/how-much-youll-actually-take-home-from-the-900m-mega-m-1829841029>
 
 ***10/23/18**更新:这篇文章已经更新，以反映新的 16 亿美元超级百万大奖。*
 

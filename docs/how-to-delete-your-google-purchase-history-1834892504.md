@@ -1,6 +1,6 @@
 # 如何删除您的谷歌购买历史
 
-> 原文:[https://life hacker . com/how-to-delete-your-Google-purchase-history-1834892504](https://lifehacker.com/how-to-delete-your-google-purchase-history-1834892504)
+> 原文：<https://lifehacker.com/how-to-delete-your-google-purchase-history-1834892504>
 
 没错，谷歌正在追踪你的购物记录，但这并不是什么新鲜事。谷歌的收集机制——从你的 Gmail 中获取信息——已经持续了一段时间。如果这是你第一次听说这些乱七八糟的事情，访问 [这个页面](https://myaccount.google.com/purchases) 看看谷歌知道的你在网上购物的一切。
 

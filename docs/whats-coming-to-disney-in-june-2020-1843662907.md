@@ -1,6 +1,6 @@
 # 2020 年 6 月迪士尼+会有什么
 
-> 原文:[https://life hacker . com/whats-coming-to-Disney-in-June-2020-1843662907](https://lifehacker.com/whats-coming-to-disney-in-june-2020-1843662907)
+> 原文：<https://lifehacker.com/whats-coming-to-disney-in-june-2020-1843662907>
 
 就新的迪士尼+内容而言，看起来六月将是相当清淡的一个月。流媒体服务已经发布了本月即将播出的节目列表，它很短，但仍然有一些值得兴奋的事情。
 

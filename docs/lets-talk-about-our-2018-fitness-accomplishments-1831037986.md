@@ -1,6 +1,6 @@
 # 让我们谈谈我们 2018 年的健身成就
 
-> 原文:[https://life hacker . com/let-talk-about-our-2018-fitness-achievements-1831037986](https://lifehacker.com/lets-talk-about-our-2018-fitness-accomplishments-1831037986)
+> 原文：<https://lifehacker.com/lets-talk-about-our-2018-fitness-accomplishments-1831037986>
 
 去年这个时候，我们很多人都为这一年设定了一些健身目标。我 [请读者在这里](https://vitals.lifehacker.com/what-are-your-fitness-goals-for-2018-1821469720) 权衡一下，你是否打算学习新东西，增加或减少体重，或者尝试一场比赛或竞争。
 

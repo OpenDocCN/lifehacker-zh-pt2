@@ -1,6 +1,6 @@
 # 用迪士尼的“Zenimation”系列安抚你的孩子和你自己
 
-> 原文:[https://life hacker . com/south-your-kids-and-yourself-Disney-zeni mation-s-1843799426](https://lifehacker.com/soothe-your-kids-and-yourself-with-disneys-zenimation-s-1843799426)
+> 原文：<https://lifehacker.com/soothe-your-kids-and-yourself-with-disneys-zenimation-s-1843799426>
 
 事情现在不是特别平静，所以大多数人都在寻找任何可以安抚他们的东西，即使只有几分钟。对一些人来说，这意味着重新观看他们小时候喜欢的电影。对其他人来说，这可能意味着 [在 YouTube 上观看 ASMR 的视频](https://lifehacker.com/how-to-calm-down-with-asmr-university-founder-craig-ri-1830711544) 。现在，多亏了 [【迪士尼+](https://lifehacker.com/disney-isnt-much-bang-for-your-buck-right-now-1839354029) 的一个新系列，你再也不用在两者之间做出选择了。
 

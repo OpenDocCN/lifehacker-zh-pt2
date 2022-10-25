@@ -1,6 +1,6 @@
 # 如何观看三星 2020 Galaxy Unpacked 活动
 
-> 原文:[https://life hacker . com/how-to-watch-samsungs-2020-galaxy-unpacked-event-1841562564](https://lifehacker.com/how-to-watch-samsungs-2020-galaxy-unpacked-event-1841562564)
+> 原文：<https://lifehacker.com/how-to-watch-samsungs-2020-galaxy-unpacked-event-1841562564>
 
 三星计划在周二发布一些重大消息。该公司将于 2 月 11 日美国东部时间下午 2 点/太平洋时间上午 11 点在旧金山举行年度 Unpacked 活动，预计将发布一款新的旗舰智能手机和一款新的可折叠手机以及其他一些产品。
 

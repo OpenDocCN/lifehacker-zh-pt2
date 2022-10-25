@@ -1,6 +1,6 @@
 # 本周末美国国家铁路客运公司门票买一送一
 
-> 原文:[https://life hacker . com/Amtrak-tickets-is-buy-one-get-free-this-weekend-1841706866](https://lifehacker.com/amtrak-tickets-are-buy-one-get-one-free-this-weekend-1841706866)
+> 原文：<https://lifehacker.com/amtrak-tickets-are-buy-one-get-one-free-this-weekend-1841706866>
 
 坐火车旅行可以是一种放松、低压力的全国旅行方式，同时也可以在旅途中欣赏窗外的风景。
 

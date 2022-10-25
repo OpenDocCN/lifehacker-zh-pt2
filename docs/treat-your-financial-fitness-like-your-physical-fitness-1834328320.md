@@ -1,6 +1,6 @@
 # 像对待身体健康一样对待你的财务健康
 
-> 原文:[https://life hacker . com/treat-your-financial-fitness-like-your-physical-fitness-1834328320](https://lifehacker.com/treat-your-financial-fitness-like-your-physical-fitness-1834328320)
+> 原文：<https://lifehacker.com/treat-your-financial-fitness-like-your-physical-fitness-1834328320>
 
 如果我们开始像对待健身事业一样对待我们的财务状况，做我们力所能及的事情，在需要的时候进行调整，慢慢变得更强，会怎么样？
 

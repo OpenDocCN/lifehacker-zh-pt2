@@ -1,6 +1,6 @@
 # 提醒:性病检测在疫情期间仍然很重要
 
-> 原文:[https://life hacker . com/reminder-STD-testing-is-ever-important-in-the-pan-1845080398](https://lifehacker.com/reminder-std-testing-is-still-important-during-the-pan-1845080398)
+> 原文：<https://lifehacker.com/reminder-std-testing-is-still-important-during-the-pan-1845080398>
 
 疫情打乱了我们生活的许多部分，包括性传播疾病的检测。在诊所关闭和供应短缺之间，许多测试被推迟，因为测试率在过去几个月中大幅下降。所以，这是对你的提醒，如果你有患性病的风险，你应该确保寻求检测，即使这比通常更不方便。
 

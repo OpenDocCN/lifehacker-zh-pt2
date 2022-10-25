@@ -1,6 +1,6 @@
 # 观看美国宇航局发射到国际空间站
 
-> 原文:[https://life hacker . com/watch-todays-NASA-launch-to-the-international-space-sta-1843709898](https://lifehacker.com/watch-todays-nasa-launch-to-the-international-space-sta-1843709898)
+> 原文：<https://lifehacker.com/watch-todays-nasa-launch-to-the-international-space-sta-1843709898>
 
 由于天气原因，“龙”号的发射被推迟了。下一次尝试将在东部时间 5 月 30 日星期六下午 3:32 进行，上午 11 点开始 [现场直播](https://www.nasa.gov/nasalive) 。
 

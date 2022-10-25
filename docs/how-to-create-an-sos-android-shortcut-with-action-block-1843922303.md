@@ -1,6 +1,6 @@
 # 如何创建一个带有动作块的“SOS”Android 快捷方式
 
-> 原文:[https://life hacker . com/how-to-create-an-SOS-Android-shortcut-with-action-block-1843922303](https://lifehacker.com/how-to-create-an-sos-android-shortcut-with-action-block-1843922303)
+> 原文：<https://lifehacker.com/how-to-create-an-sos-android-shortcut-with-action-block-1843922303>
 
 Android: 如果你正处于这样一种情况，你需要给你的朋友或爱人发一条短消息，因为狗屎就要撞上众所周知的风扇，不要浪费时间。当你拿出手机，用 PIN 或密码进行身份验证，打开你的消息应用程序，开始输入消息时，已经太晚了。
 

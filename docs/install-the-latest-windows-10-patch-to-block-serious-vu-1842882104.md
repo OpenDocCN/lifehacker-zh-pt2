@@ -1,6 +1,6 @@
 # 安装最新的 Windows 10 补丁，封堵两个严重漏洞
 
-> 原文:[https://life hacker . com/install-the-latest-windows-10-patch-to-block-serious-vu-1842882104](https://lifehacker.com/install-the-latest-windows-10-patch-to-block-serious-vu-1842882104)
+> 原文：<https://lifehacker.com/install-the-latest-windows-10-patch-to-block-serious-vu-1842882104>
 
 如今，下载一个 Windows 更新可能是一场赌博，但本周的 Windows 10“补丁【星期二】感觉比大多数更重要。此次更新包括大量重要的安全修复，包括 Windows Adobe Type Manager 中两个被积极利用的漏洞的补丁，这些漏洞会影响所有 Windows 10 用户。
 

@@ -1,6 +1,6 @@
 # 我们总结了布林基斯特对畅销书的总结
 
-> 原文:[https://life hacker . com/we-sumdered-blinkists-summarys-of-the-畅销书-1839366288](https://lifehacker.com/we-summarized-blinkists-summaries-of-bestselling-books-1839366288)
+> 原文：<https://lifehacker.com/we-summarized-blinkists-summaries-of-bestselling-books-1839366288>
 
 如果你还没听说过，一家拿了 3400 万美元风投资金来卖书概要的公司，不用担心！Blinkist 通过对作者和出版商的作品做摘要来表彰他们，并以每年 100 美元的价格出售。我完全赞成 [假装看书](https://lifehacker.com/how-to-pretend-youve-read-a-book-1796228206) 。所以我决定向 Blinkist 致敬，免费总结他们对三本流行建议书的总结。
 

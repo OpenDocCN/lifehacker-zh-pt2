@@ -1,6 +1,6 @@
 # 试试 Reddit 关于阅读更多书籍的最佳建议
 
-> 原文:[https://life hacker . com/try-reddits-best-tips-for-reading-more-books-1832394982](https://lifehacker.com/try-reddits-best-tips-for-reading-more-books-1832394982)
+> 原文：<https://lifehacker.com/try-reddits-best-tips-for-reading-more-books-1832394982>
 
 " [我如何建立一个稳定的阅读习惯？](https://www.reddit.com/r/TrueAskReddit/comments/ankznu/how_do_i_build_a_steady_reading_habit/)”redditor 6 hlooo 在 r/TrueAskReddit 上问道。“我总是那种读一本书，读了几页就停下来的人。我知道阅读的好处，但我似乎无法激励自己坚持阅读。我该怎么办？”Redditors 给出了养成习惯的好建议。秘密在于让你自己阅读你喜欢的东西，并采取切实可行的步骤让你更容易拿起一本书。在 60 多条评论中，以下是最好的。
 

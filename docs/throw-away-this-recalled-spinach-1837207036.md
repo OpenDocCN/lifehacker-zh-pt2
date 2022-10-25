@@ -1,6 +1,6 @@
 # 扔掉这些召回的菠菜
 
-> 原文:[https://life hacker . com/throw-away-this-received-菠菜-1837207036](https://lifehacker.com/throw-away-this-recalled-spinach-1837207036)
+> 原文：<https://lifehacker.com/throw-away-this-recalled-spinach-1837207036>
 
 如果你最近购买了袋装菠菜，它可能被沙门氏菌污染。
 

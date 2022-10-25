@@ -1,6 +1,6 @@
 # 最新的不确定健康趋势是注入 CBD 的健身装备
 
-> 原文:[https://gizmodo . com/the-latest-iffy-wellness-trend-is-CBD-infined-workout-g-1838982838](https://gizmodo.com/the-latest-iffy-wellness-trend-is-cbd-infused-workout-g-1838982838)
+> 原文：<https://gizmodo.com/the-latest-iffy-wellness-trend-is-cbd-infused-workout-g-1838982838>
 
 不缺少被填充、浸泡或喷洒大麻二酚的产品，大麻二酚是大麻中不改变精神的成分，也称为 CBD 。最新的趋势肯定会吸引健康人群:CBD 填充的健身服，据说可以在你酸痛的肌肉开始疼痛之前缓解它们。虽然这些产品是 CBD 主流时刻的最明显标志，但它们也象征着 [这个行业在如此短的时间内变得多么喧闹。](https://gizmodo.com/should-you-your-mom-and-your-dog-be-using-cbd-1834092614) 
 

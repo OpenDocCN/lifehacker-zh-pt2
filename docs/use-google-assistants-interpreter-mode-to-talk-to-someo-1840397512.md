@@ -1,6 +1,6 @@
 # 使用谷歌助手的翻译模式用某人的语言与他们交谈
 
-> 原文:[https://life hacker . com/use-Google-assistants-interpreter-mode-to-talk-to-someo-1840397512](https://lifehacker.com/use-google-assistants-interpreter-mode-to-talk-to-someo-1840397512)
+> 原文：<https://lifehacker.com/use-google-assistants-interpreter-mode-to-talk-to-someo-1840397512>
 
 下次你想和说另一种语言的人交谈时，你也许可以只用你的手机。
 

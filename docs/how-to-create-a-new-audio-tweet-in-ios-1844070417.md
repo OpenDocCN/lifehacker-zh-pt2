@@ -1,6 +1,6 @@
 # 如何在 iOS 中创建新的音频推文
 
-> 原文:[https://life hacker . com/how-to-create-a-new-audio-tweet-in-IOs-1844070417](https://lifehacker.com/how-to-create-a-new-audio-tweet-in-ios-1844070417)
+> 原文：<https://lifehacker.com/how-to-create-a-new-audio-tweet-in-ios-1844070417>
 
 **iOS:** Twitter 昨天推出了一项新功能，允许你直接从其 iOS 应用程序(抱歉，Android 粉丝)发布音频记录。你仍然不能编辑你推文中的拼写错误，但你现在可以通过发布他们不得不听的音频消息来惹恼你的所有粉丝。
 

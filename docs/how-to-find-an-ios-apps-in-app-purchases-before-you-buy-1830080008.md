@@ -1,6 +1,6 @@
 # 为什么您应该在购买之前查看 iOS 应用程序的应用内购买项目[更新]
 
-> 原文:[https://life hacker . com/how-to-find-an-IOs-apps-in-app-purchases-before-you-buy-1830080008](https://lifehacker.com/how-to-find-an-ios-apps-in-app-purchases-before-you-buy-1830080008)
+> 原文：<https://lifehacker.com/how-to-find-an-ios-apps-in-app-purchases-before-you-buy-1830080008>
 
 **更新于 2018 年 10 月 31 日下午 6:30 太平洋时间:**
 

@@ -1,6 +1,6 @@
 # 如何为学校停课做准备
 
-> 原文:[https://life hacker . com/how-to-prepare-for-a-school-shut down-1842120838](https://lifehacker.com/how-to-prepare-for-a-school-shutdown-1842120838)
+> 原文：<https://lifehacker.com/how-to-prepare-for-a-school-shutdown-1842120838>
 
 随着引起世界关注的冠状病毒继续传播，美国各地的学区——特别是在病毒确诊病例的地区——正在考虑关闭的可能性。有小孩的工作父母问他们自己，如果学校关闭，他们将如何对待他们的孩子。
 

@@ -1,6 +1,6 @@
 # 泳池面条并不是一种加强社交距离的好方法
 
-> 原文:[https://life hacker . com/pool-noodles-is-a-not-a-good-way-enforce-social-dista-1844180889](https://lifehacker.com/pool-noodles-are-not-a-good-way-to-enforce-social-dista-1844180889)
+> 原文：<https://lifehacker.com/pool-noodles-are-not-a-good-way-to-enforce-social-dista-1844180889>
 
 德国一家咖啡馆的顾客被要求戴上撞球面条帽以加强社交距离，我们有幸得到了这张病毒照片 。所以，当然，我们必须测试它。
 

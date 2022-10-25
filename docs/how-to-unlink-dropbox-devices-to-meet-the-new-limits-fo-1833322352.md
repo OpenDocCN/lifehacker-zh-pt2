@@ -1,6 +1,6 @@
 # 如何解除 Dropbox 设备的链接，以满足免费用户的新限制
 
-> 原文:[https://life hacker . com/how-to-unlink-Dropbox-devices-to-meet-the-new-limits-fo-1833322352](https://lifehacker.com/how-to-unlink-dropbox-devices-to-meet-the-new-limits-fo-1833322352)
+> 原文：<https://lifehacker.com/how-to-unlink-dropbox-devices-to-meet-the-new-limits-fo-1833322352>
 
 Dropbox 刚刚对它的“基本”用户——免费用户——做了一件糟糕的事情。该公司悄悄地添加了一个新的警告，将这些账户限制在三个设备上。要在四个或更多设备上使用你的 Dropbox 账户，你必须支付该服务的高级版本，其中 [将花费你](https://www.dropbox.com/individual) 至少每月 9.99 美元或每年 99.99 美元。
 

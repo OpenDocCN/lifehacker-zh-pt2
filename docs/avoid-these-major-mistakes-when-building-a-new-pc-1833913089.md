@@ -1,6 +1,6 @@
 # 在构建新电脑时避免这些重大错误
 
-> 原文:[https://life hacker . com/avoid-these-major-missons-when-building-a-new-PC-1833913089](https://lifehacker.com/avoid-these-major-mistakes-when-building-a-new-pc-1833913089)
+> 原文：<https://lifehacker.com/avoid-these-major-mistakes-when-building-a-new-pc-1833913089>
 
 [Lifehacker's Complete Guide to Building a PC](https://pcbuild.kinja.com)) : title[![](../Images/044fbadc98edfd613c34b7c809fe4420.png)](https://pcbuild.kinja.com)[Lifehacker's Complete Guide to Building a PC](https://pcbuild.kinja.com)Building your own desktop PC is a great, geeky pleasure. We'll show you how to do it and everything you need to know to keep your system properly maintained.
 

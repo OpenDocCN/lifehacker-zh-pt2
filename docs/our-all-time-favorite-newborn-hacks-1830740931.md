@@ -1,6 +1,6 @@
 # 我们最喜欢的新生黑客
 
-> 原文:[https://life hacker . com/our-all-time-favorite-新生儿-hacks-1830740931](https://lifehacker.com/our-all-time-favorite-newborn-hacks-1830740931)
+> 原文：<https://lifehacker.com/our-all-time-favorite-newborn-hacks-1830740931>
 
 一位疲惫不堪、不知所措的(新)家长最近向我寻求帮助:与其搜索后代的所有内容来找到他最需要的内容——新生儿、新生儿和更多新生儿——我能为他做吗？
 

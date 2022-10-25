@@ -1,6 +1,6 @@
 # 你 2020 年的视频游戏分辨率是多少？
 
-> 原文:[https://kotaku . com/what-your ' s video-game-resolutions-for-2020-1840678862](https://kotaku.com/what-are-your-video-game-resolutions-for-2020-1840678862)
+> 原文：<https://kotaku.com/what-are-your-video-game-resolutions-for-2020-1840678862>
 
 一年即将结束，新的十年即将来临，这意味着一个重塑自我和开始新冒险的机会。这也意味着更多的电子游戏。随着新年的临近，我们问:你的视频游戏分辨率是多少？
 

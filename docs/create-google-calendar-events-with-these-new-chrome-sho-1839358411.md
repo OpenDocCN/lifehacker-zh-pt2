@@ -1,6 +1,6 @@
 # 使用这些新的 Chrome 快捷方式创建谷歌日历活动
 
-> 原文:[https://life hacker . com/create-Google-calendar-events-with-these-new-chrome-sho-1839358411](https://lifehacker.com/create-google-calendar-events-with-these-new-chrome-sho-1839358411)
+> 原文：<https://lifehacker.com/create-google-calendar-events-with-these-new-chrome-sho-1839358411>
 
 谷歌日历有两个新的快捷功能，可以轻松安排新的事件或会议。你所要做的就是在谷歌浏览器中输入“cal.new”或“meeting . new”就可以直接进入日历活动创建页面。N o 不再需要浏览日历和摆弄额外的设置。
 

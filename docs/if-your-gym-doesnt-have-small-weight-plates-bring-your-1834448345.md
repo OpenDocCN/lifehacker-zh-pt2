@@ -1,6 +1,6 @@
 # 如果你的健身房没有小重量板，那就自己带吧
 
-> 原文:[https://life hacker . com/if-your-gym-not-have-small-weight-plates-bring-your-1834448345](https://lifehacker.com/if-your-gym-doesnt-have-small-weight-plates-bring-your-1834448345)
+> 原文：<https://lifehacker.com/if-your-gym-doesnt-have-small-weight-plates-bring-your-1834448345>
 
 理论上，健身房应该为你提供举重的重量。但有时他们的收藏并不完全是你想要的。如果他们最小的体重板是 5 或 10 磅，做一个叛逆者:在你的运动包里带更小的。
 

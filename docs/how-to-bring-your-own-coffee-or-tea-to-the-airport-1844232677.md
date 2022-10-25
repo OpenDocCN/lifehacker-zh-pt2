@@ -1,6 +1,6 @@
 # 如何自带咖啡或茶到机场
 
-> 原文:[https://life hacker . com/how-to-bring your-own-by-your-own-pool-or-tea-to-the-airport-1844232677](https://lifehacker.com/how-to-bring-your-own-coffee-or-tea-to-the-airport-1844232677)
+> 原文：<https://lifehacker.com/how-to-bring-your-own-coffee-or-tea-to-the-airport-1844232677>
 
 不是每个人都愿意花 10 美元在星巴克、Dunkin '或机场其他任何地方买一杯大杯摩卡拿铁或甘菊茶。我们都知道机场会提高价格，因为不管怎样，人们还是会花钱。但是，如果你像我一样(便宜)，你只会在绝对必要的时候花钱——比如买食物，因为你的航班没有机上服务。
 

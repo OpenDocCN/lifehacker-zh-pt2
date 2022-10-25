@@ -1,6 +1,6 @@
 # 如何举报冠状病毒爆发期间的价格欺诈
 
-> 原文:[https://life hacker . com/how-to-report-price-gouging-in-the-coronavirus-outb-1842276701](https://lifehacker.com/how-to-report-price-gouging-during-the-coronavirus-outb-1842276701)
+> 原文：<https://lifehacker.com/how-to-report-price-gouging-during-the-coronavirus-outb-1842276701>
 
 所以你决定下次去商店时，是时候 [冷静地购买](https://lifehacker.com/what-to-buy-if-youre-concerned-about-the-coronavirus-1842095740) 几盒额外的清洁湿巾或洗手液了。但是当你到了那里，你发现这些普通产品的价格似乎异常高。怎么回事？
 

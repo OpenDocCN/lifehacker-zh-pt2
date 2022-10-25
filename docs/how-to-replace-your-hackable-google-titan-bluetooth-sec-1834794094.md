@@ -1,6 +1,6 @@
 # 如何更换你的可破解的谷歌泰坦蓝牙安全密钥
 
-> 原文:[https://life hacker . com/how-to-replace-your-hackable-Google-titan-bluetooth-sec-1834794094](https://lifehacker.com/how-to-replace-your-hackable-google-titan-bluetooth-sec-1834794094)
+> 原文：<https://lifehacker.com/how-to-replace-your-hackable-google-titan-bluetooth-sec-1834794094>
 
 如果你使用谷歌的 Titan 蓝牙安全密钥登录你所有的双重保护账户，有好消息也有坏消息。正如你可能猜到的那样，坏消息是谷歌宣布发现了一个漏洞，该漏洞可能会允许某人访问你的帐户。好消息是，谷歌发现了这个问题，并将向您发送一个免费的替代品来填补漏洞。
 

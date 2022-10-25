@@ -1,6 +1,6 @@
 # 如何在 Edge Chromium 上将工作和个人浏览分开
 
-> 原文:[https://life hacker . com/how-to-keep-your-work-and-personal-browsing-separate-on-1843571354](https://lifehacker.com/how-to-keep-your-work-and-personal-browsing-separate-on-1843571354)
+> 原文：<https://lifehacker.com/how-to-keep-your-work-and-personal-browsing-separate-on-1843571354>
 
 Edge Chromium 在其最近的更新 中获得了 [几个新功能，而其中最巧妙的一个新增功能是自动配置文件切换。如果用户有多个 Microsoft 帐户登录 Edge，浏览器现在会在访问新网站或打开外部链接时询问您是否要更改为不同的配置文件。Edge 会记住您的选择，并在您以后再次访问这些 URL 时自动切换到您指定的配置文件。](https://blogs.windows.com/msedgedev/2020/05/19/microsoft-edge-news-developers-build-2020/) 
 

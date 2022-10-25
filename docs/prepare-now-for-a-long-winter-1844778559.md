@@ -1,6 +1,6 @@
 # 为漫长的冬天做准备吧
 
-> 原文:[https://life hacker . com/prepare-now-for-a long-winter-1844778559](https://lifehacker.com/prepare-now-for-a-long-winter-1844778559)
+> 原文：<https://lifehacker.com/prepare-now-for-a-long-winter-1844778559>
 
 现在，我们正在浏览居家度假和公路旅行。我们当中的家长和学生正在为开学前几周的混乱做计划，不管是面对面还是远程的。但是很快我们就要进入秋天了，秋天过后就是冬天。新冠肺炎哪儿也不会去。
 

@@ -1,6 +1,6 @@
 # 用几乎空了的蛋黄酱罐做沙拉酱
 
-> 原文:[https://life hacker . com/make-salad-dressing-with a-almost-empty-mayo-jar-1835270116](https://lifehacker.com/make-salad-dressing-with-an-almost-empty-mayo-jar-1835270116)
+> 原文：<https://lifehacker.com/make-salad-dressing-with-an-almost-empty-mayo-jar-1835270116>
 
 说到在家制作调料，醋油沙司通常是最容易得到的选择。他们所需要的只是一点不太精确的测量、普通的厨房配料和一些摇动(最好在罐子里)。但是通过用一点蛋黄酱代替或补充你的色拉油，你可以在几分钟内做出奶油般梦幻的沙拉酱。顺便说一下，粘在蛋黄酱罐边缘的“最后一点”通常是最完美的量。
 

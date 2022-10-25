@@ -1,6 +1,6 @@
 # 如何在 Windows 中设置微软新的 Spotlight 风格的 PowerToy
 
-> 原文:[https://life hacker . com/how-to-set-up-Microsoft-new-spot light-esque-powertoy-I-1843566673](https://lifehacker.com/how-to-set-up-microsofts-new-spotlight-esque-powertoy-i-1843566673)
+> 原文：<https://lifehacker.com/how-to-set-up-microsofts-new-spotlight-esque-powertoy-i-1843566673>
 
 在 Windows 10 上启动应用程序很容易:只需按下开始按钮，开始输入应用程序的名称，你很有可能能够快速调出你试图找到的任何内容。你永远不会使用 Windows Key + R 和操作系统的“运行”框来启动大多数应用程序，但由于最新的 Windows 10 PowerToy，这可能会成为你的新默认设置。
 

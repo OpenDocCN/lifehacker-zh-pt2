@@ -1,6 +1,6 @@
 # DIY 防晒霜不管用
 
-> 原文:[https://lifehacker.com/diy-sunscreen-doesnt-work-1835837420](https://lifehacker.com/diy-sunscreen-doesnt-work-1835837420)
+> 原文：<https://lifehacker.com/diy-sunscreen-doesnt-work-1835837420>
 
 你可以在谷歌上搜索任何东西的配方，包括防晒霜。像 Pinterest 这样的网站上到处都是将天然油和氧化锌混合制成防晒品的说明。不幸的是，DIY 方法不太可能制造出有效的防晒霜。
 

@@ -1,6 +1,6 @@
 # 这是 2020 年旅行最便宜的周末
 
-> 原文:[https://life hacker . com/这些是 2020 年最便宜的周末旅行-1840983855](https://lifehacker.com/these-are-the-cheapest-weekends-to-travel-in-2020-1840983855)
+> 原文：<https://lifehacker.com/these-are-the-cheapest-weekends-to-travel-in-2020-1840983855>
 
 周末旅行很有趣，但也可能非常昂贵。Hotwire [最近查看了](http://blog.hotwire.com/surprising-weekends-with-the-hottest-travel-rates-in-2020/) 酒店的历史预订数据，以确定 2020 年什么时候去旅行最实惠，并发布了每月酒店最实惠的周末列表。
 

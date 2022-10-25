@@ -1,6 +1,6 @@
 # 在六月和我们一起接受无信用卡挑战
 
-> 原文:[https://life hacker . com/take-the-no-credit-card-challenge-with-us-in-1835094602](https://lifehacker.com/take-the-no-credit-card-challenge-with-us-in-june-1835094602)
+> 原文：<https://lifehacker.com/take-the-no-credit-card-challenge-with-us-in-june-1835094602>
 
 在最近一次关于信用卡奖励的讨论中，Lifehacker 的执行编辑弗吉尼亚·k·史密斯(Virginia K. Smith)和我发现我们有一个共同的悲哀:当我们知道我们正在获得信用卡奖励时，我们会很高兴。
 

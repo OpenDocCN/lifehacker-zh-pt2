@@ -1,6 +1,6 @@
 # 2018 年养育青少年的最佳方法
 
-> 原文:[https://life hacker . com/the-years-best-hacks-for-parenting-tens-1831147562](https://lifehacker.com/the-years-best-hacks-for-parenting-teens-1831147562)
+> 原文：<https://lifehacker.com/the-years-best-hacks-for-parenting-teens-1831147562>
 
 育儿的每个阶段都有它的挑战。有新生儿阶段，你不知道你到底在做什么，蹒跚学步阶段，他们不会停止对你尖叫，还有学龄阶段，你必须重新学习如何做基本的数学，以便帮助他们做作业。
 

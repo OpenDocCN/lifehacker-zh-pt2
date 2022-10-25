@@ -1,6 +1,6 @@
 # 如何购买节能灯泡
 
-> 原文:[https://life hacker . com/how-to-buy-energy-efficient-light bulbes-1837878953](https://lifehacker.com/how-to-buy-energy-efficient-lightbulbs-1837878953)
+> 原文：<https://lifehacker.com/how-to-buy-energy-efficient-lightbulbs-1837878953>
 
 在周三关于气候危机的市政厅会议上，10 名民主党总统候选人讨论了化石燃料、水力压裂、碳税、电动汽车和灯泡等问题。当天早些时候，特朗普政府撤销了为美国灯泡设定新能效标准的规定。这些标准将有助于节省消费者的能源成本，减少碳排放。
 

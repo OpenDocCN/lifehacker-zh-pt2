@@ -1,6 +1,6 @@
 # 问那个刻薄的女服务员:我的服务员没有说我要为菜单替换付费
 
-> 原文:[https://the take out . com/server-not-t-tell-me-charged-for-menu-substitution-1829819626](https://thetakeout.com/server-didn-t-tell-me-charged-for-menu-substitution-1829819626)
+> 原文：<https://thetakeout.com/server-didn-t-tell-me-charged-for-menu-substitution-1829819626>
 
 > 亲爱的咸味:最近在我们镇上一家不错的餐馆吃饭时，我问服务员是否可以用某些海鲜代替鱼汤。我看到餐馆的菜单上有扇贝，所以我问是否可以在炖菜中用扇贝代替虾。他说当然可以，然后我就点了三份炖扇贝。然后，账单来了，扇贝要加 5 美元的附加费。我交了是因为我不想在朋友面前成为“那个女人”，但是好像不太对。我理解食材越贵的概念；我的问题是，服务员认为这是暗示的加价。他没给我提个醒有错吗？
 > 

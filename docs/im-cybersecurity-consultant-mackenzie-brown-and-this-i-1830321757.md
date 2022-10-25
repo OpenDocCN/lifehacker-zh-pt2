@@ -1,6 +1,6 @@
 # im cybersecurity consultant mackenzie brown and this i 1830321757
 
-> 原文:[https://life hacker . com/im-网络安全-顾问-麦肯齐-布朗-and-this-i-1830321757](https://lifehacker.com/im-cybersecurity-consultant-mackenzie-brown-and-this-i-1830321757)
+> 原文：<https://lifehacker.com/im-cybersecurity-consultant-mackenzie-brown-and-this-i-1830321757>
 
 但愿麦肯齐·布朗帮助你度过的第一次网络攻击是假的。否则，当你已经被黑客入侵时，你最终会在 [Optiv Security](https://www.optiv.com/) 给她和她的同事打电话。作为一名事件响应顾问，Brown 帮助客户为黑客入侵做好准备，或从中恢复。作为非营利组织 [格雷哈特女士](http://www.msgreyhat.org/) 的创始人，布朗为学习和实践网络安全的女孩和妇女提供培训和网络。我们和她谈论了她的信息安全工作和她最好的安全建议。
 

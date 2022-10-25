@@ -1,6 +1,6 @@
 # 如何停止关心别人的想法，马克·曼森
 
-> 原文:[https://life hacker . com/how-to-stop-care-what-people-think-with-mark-Manson-1839034495](https://lifehacker.com/how-to-stop-caring-what-people-think-with-mark-manson-1839034495)
+> 原文：<https://lifehacker.com/how-to-stop-caring-what-people-think-with-mark-manson-1839034495>
 
 你有没有发现自己花了太多时间担心别人对你的看法？你准备好放下那些不必要的顾虑，让 T2 专注于其他更重要的事情了吗？本周在升级版中，我们将与《T4》的作者马克·曼森一起解决我们的问题，并重温我们对 2017 年《如何不在乎》集作家萨曼莎·艾尔比的采访。
 

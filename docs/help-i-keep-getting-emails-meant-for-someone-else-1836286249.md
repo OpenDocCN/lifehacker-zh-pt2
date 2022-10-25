@@ -1,6 +1,6 @@
 # 救命啊！我不断收到给别人的邮件
 
-> 原文:[https://life hacker . com/help-I-keep-get-emails-mean-for-someone-1836286249](https://lifehacker.com/help-i-keep-getting-emails-meant-for-someone-else-1836286249)
+> 原文：<https://lifehacker.com/help-i-keep-getting-emails-meant-for-someone-else-1836286249>
 
 欢迎回到 [**Tech 911**](https://lifehacker.com/c/tech-911) ，Lifehacker 的每周技术建议专栏，它总是在寻找解决你的挑战——极客、奇怪或其他。本周，我们来看看一个认错人的案例。
 

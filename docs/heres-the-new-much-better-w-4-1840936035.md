@@ -1,6 +1,6 @@
 # 这是新的，更好的 W-4
 
-> 原文:[https://life hacker . com/heres-the-new-more-better-w-4-1840936035](https://lifehacker.com/heres-the-new-much-better-w-4-1840936035)
+> 原文：<https://lifehacker.com/heres-the-new-much-better-w-4-1840936035>
 
 如果要我从最差到最好排列税单，W-4 会排在首位。任何新工作最糟糕的部分是当你第一天填写那一叠文件时，你知道你把 W-4 留到最后，因为你不知道该怎么处理它。
 

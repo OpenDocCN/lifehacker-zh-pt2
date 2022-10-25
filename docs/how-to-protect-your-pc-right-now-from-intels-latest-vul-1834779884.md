@@ -1,6 +1,6 @@
 # 如何立即保护您的电脑免受英特尔最新漏洞的攻击
 
-> 原文:[https://life hacker . com/how-to-protect-your-PC-right-now-from-Intel-latest-vul-1834779884](https://lifehacker.com/how-to-protect-your-pc-right-now-from-intels-latest-vul-1834779884)
+> 原文：<https://lifehacker.com/how-to-protect-your-pc-right-now-from-intels-latest-vul-1834779884>
 
 谁不喜欢听到这样的消息:他们计算机的一个关键组件(为整个事情提供动力的 CPU)中的一个新漏洞可能允许攻击者直接从您的处理器中窃取关键数据(如您的密码或加密密钥)？发生这种事的时候总是很有趣。谢天谢地，对英特尔最近公布的漏洞—[的修复再简单不过了。](https://lifehacker.com/how-to-protect-yourself-from-meltdown-and-spectre-the-1821781392)
 

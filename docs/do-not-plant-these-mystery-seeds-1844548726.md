@@ -1,6 +1,6 @@
 # 不要种下这些神秘的种子
 
-> 原文:[https://life hacker . com/do-not-plant-these-mystery-seeds-1844548726](https://lifehacker.com/do-not-plant-these-mystery-seeds-1844548726)
+> 原文：<https://lifehacker.com/do-not-plant-these-mystery-seeds-1844548726>
 
 没有人知道为什么全国各地的人们都收到了来自中国的主动提供的种子包裹，但美国农业部正在试图找出原因。在本周的一份声明中，他们给出了一些建议，告诉你如果你收到这样的包裹该怎么办。
 

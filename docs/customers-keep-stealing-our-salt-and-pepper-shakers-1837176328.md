@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:顾客一直在偷我们的盐和胡椒瓶
 
-> 原文:[https://the take out . com/customers-keep-偷窃我们的盐和胡椒瓶-1837176328](https://thetakeout.com/customers-keep-stealing-our-salt-and-pepper-shakers-1837176328)
+> 原文：<https://thetakeout.com/customers-keep-stealing-our-salt-and-pepper-shakers-1837176328>
 
 > 亲爱的 Salty，我和我的妻子拥有一家早餐和午餐餐馆，我们很幸运，它有稳定的游客和常客业务。我们很幸运，我们的顾客和员工通常都很棒，我们的常客就像家人一样。但是我们对顾客偷我们的盐和胡椒瓶有意见。我和我妻子从旧货市场和古董店买的，它们都不相配，有些有公鸡或猪或灯塔等。这是魅力的一部分，也符合餐厅的装饰，但我们正在经历更多，我跟不上。我怎样才能不让它们最终落入顾客的口袋？
 > 

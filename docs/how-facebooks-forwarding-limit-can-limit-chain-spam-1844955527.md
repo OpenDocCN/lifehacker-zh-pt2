@@ -1,6 +1,6 @@
 # 脸书的“转发限制”如何限制连锁垃圾邮件
 
-> 原文:[https://life hacker . com/how-face books-forwarding-limit-can-limit-chain-spam-1844955527](https://lifehacker.com/how-facebooks-forwarding-limit-can-limit-chain-spam-1844955527)
+> 原文：<https://lifehacker.com/how-facebooks-forwarding-limit-can-limit-chain-spam-1844955527>
 
 我知道，我知道。脸书试图做正确的事情，并限制其网络上的垃圾邮件,这有点像说我要用胶带来封住附近大坝的漏洞，但每一点都有帮助，对吗？
 

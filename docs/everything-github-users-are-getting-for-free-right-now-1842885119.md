@@ -1,6 +1,6 @@
 # GitHub 用户现在可以免费获得的一切
 
-> 原文:[https://life hacker . com/everything-github-users-is-get-for-free-right-now-1842885119](https://lifehacker.com/everything-github-users-are-getting-for-free-right-now-1842885119)
+> 原文：<https://lifehacker.com/everything-github-users-are-getting-for-free-right-now-1842885119>
 
 免费 GitHub 用户的账户刚刚以最好的方式更新:在线软件开发平台取消了每月 7 美元的“专业”层，将该软件包的功能在免费层和之前更昂贵的“团队”层之间进行拆分。这意味着免费的 GitHub 用户现在可以使用一些新的功能(并且“团队”帐户现在花费也更少)。
 

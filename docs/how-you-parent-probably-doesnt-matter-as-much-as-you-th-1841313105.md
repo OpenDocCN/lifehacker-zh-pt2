@@ -1,6 +1,6 @@
 # 你如何为人父母可能没有你想的那么重要
 
-> 原文:[https://life hacker . com/how-you-parent-possible-not-matter-as-you-th-1841313105](https://lifehacker.com/how-you-parent-probably-doesnt-matter-as-much-as-you-th-1841313105)
+> 原文：<https://lifehacker.com/how-you-parent-probably-doesnt-matter-as-much-as-you-th-1841313105>
 
 作为一个写了很多关于养育孩子的文章的人，我的确切目标是帮助这个巨大而艰巨的任务的各个方面变得简单一些，当我在《今日家长》上看到这个标题时，我有点惊讶: [养育孩子真的重要吗](https://www.todaysparent.com/family/nature-vs-nurture-does-parenting-even-matter/) ？我 t *宁*事！否则，为什么我坐在这里写关于 [如厕训练](https://offspring.lifehacker.com/how-to-handle-a-potty-training-regression-1841203633) 和什么时候 [适应挑剔的食客](https://offspring.lifehacker.com/yes-you-should-accommodate-your-friends-picky-eating-k-1841204883) 以及如何应对 [一个蹒跚学步的孩子对自动厕所](https://offspring.lifehacker.com/help-your-toddler-conquer-their-fear-of-the-automatic-t-1841201544) 的恐惧？这些事情很重要。T24】
 

@@ -1,6 +1,6 @@
 # 我们的读者分享了他们最好的节俭秘诀
 
-> 原文:[https://life hacker . com/our-readers-share-thebest-fruit-hacks-1838094787](https://lifehacker.com/our-readers-share-their-best-frugal-hacks-1838094787)
+> 原文：<https://lifehacker.com/our-readers-share-their-best-frugal-hacks-1838094787>
 
 本周早些时候，我们邀请你分享你最喜欢的节俭方式——你做到了。Lifehacker 的读者拥有从理发到大宗购物的各种技巧，以及大规模的、哲学式的金钱技巧，来帮助你练习谨慎消费。
 

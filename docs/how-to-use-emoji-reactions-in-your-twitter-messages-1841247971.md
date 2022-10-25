@@ -1,6 +1,6 @@
 # 如何在你的推特信息中使用表情符号反应
 
-> 原文:[https://life hacker . com/how-to-use-e moji-reactions-in-your-Twitter-messages-1841247971](https://lifehacker.com/how-to-use-emoji-reactions-in-your-twitter-messages-1841247971)
+> 原文：<https://lifehacker.com/how-to-use-emoji-reactions-in-your-twitter-messages-1841247971>
 
 短信反应——这是 iPhone 和 iPad 用户应该熟悉的一种做法，你可以长按一条信息，在上面添加一个小心形或竖起大拇指/竖起大拇指——是传达反应的简单方式，而不必想出有趣的事情来说。我发现它们在我的 iPhone 上节省了大量时间，我很兴奋地看到它们现在也扩展到了 Twitter 这个伟大的社交自助餐。
 

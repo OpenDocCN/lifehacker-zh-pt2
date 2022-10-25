@@ -1,6 +1,6 @@
 # 我的辣酱变白了。使用安全吗？
 
-> 原文:[https://the take out . com/my-hot-sauce-is-turning-pale-it-safe-to-use-1835658979](https://thetakeout.com/my-hot-sauce-is-turning-pale-is-it-safe-to-use-1835658979)
+> 原文：<https://thetakeout.com/my-hot-sauce-is-turning-pale-is-it-safe-to-use-1835658979>
 
 这就是坐在我办公桌前的一个辣酱的现状。我忘记了几个月，只是在清理一些书的时候偶然发现的。这种辣酱的颜色是...关于。它曾经是一种相当亮的红色，就像任何基于卡宴的辣酱一样。这种辣酱是以醋为基础的，所以理论上应该保留，对吗？但是现在它因为氧化而变得苍白，我不确定它是否值得使用。
 

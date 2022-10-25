@@ -1,6 +1,6 @@
 # 使用 Chrome Dashboard 扩展来组织您的浏览
 
-> 原文:[https://life hacker . com/organize-your-browsing-with this-chrome-dashboard-exten-1832817515](https://lifehacker.com/organize-your-browsing-with-this-chrome-dashboard-exten-1832817515)
+> 原文：<https://lifehacker.com/organize-your-browsing-with-this-chrome-dashboard-exten-1832817515>
 
 Chrome: 我向所有使用过谷歌 Chrome 浏览器的人推荐这个扩展，因为这是一个尽可能降低浏览器内存使用的好方法。虽然这是一顿美味的大餐，但我也推荐将 [**伟大的吊杆**](https://chrome.google.com/webstore/detail/the-great-suspender/klbibkeccnjlkjkiokjodocebajanakg?hl=en) 与 Chrome 扩展 [**集群**](https://chrome.google.com/webstore/detail/cluster-window-tab-manage/aadahadfdmiibmdhfmpbeeebejmjnkef?hl=en) 配对。
 

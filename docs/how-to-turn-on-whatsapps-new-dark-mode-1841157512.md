@@ -1,6 +1,6 @@
 # 如何开启 WhatsApp 新的黑暗模式[更新]
 
-> 原文:[https://life hacker . com/how-to-turn-on-whatsapp-new-dark-mode-1841157512](https://lifehacker.com/how-to-turn-on-whatsapps-new-dark-mode-1841157512)
+> 原文：<https://lifehacker.com/how-to-turn-on-whatsapps-new-dark-mode-1841157512>
 
 **【2010 年 3 月 27 日上午 10:30 更新】**这里有一个好消息:你再也不用为了利用 WhatsApp 新的黑暗模式而在你的安卓手机上下载测试版 WhatsApp 了。这项功能已经(最终)为所有人推出，包括 [安卓](https://play.google.com/store/apps/details?id=com.whatsapp&hl=en_US) 和 [iOS](https://apps.apple.com/us/app/whatsapp-messenger/id310633997) 用户。
 

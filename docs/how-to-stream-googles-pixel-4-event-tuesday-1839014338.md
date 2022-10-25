@@ -1,6 +1,6 @@
 # 如何在周二直播谷歌的 Pixel 4 活动
 
-> 原文:[https://life hacker . com/how-to-stream-Google-pixel-4-event-Tuesday-1839014338](https://lifehacker.com/how-to-stream-googles-pixel-4-event-tuesday-1839014338)
+> 原文：<https://lifehacker.com/how-to-stream-googles-pixel-4-event-tuesday-1839014338>
 
 周二，谷歌将发布 Pixel 4。也许是历史上泄露最多的手机之一，如果你对这款设备感兴趣，你可能已经对它有所了解。
 

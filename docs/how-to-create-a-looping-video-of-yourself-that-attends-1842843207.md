@@ -1,6 +1,6 @@
 # 如何为你的虚拟会议创建一个循环视频
 
-> 原文:[https://life hacker . com/how-to-create-a-loop-video-of-yourself-attending-1842843207](https://lifehacker.com/how-to-create-a-looping-video-of-yourself-that-attends-1842843207)
+> 原文：<https://lifehacker.com/how-to-create-a-looping-video-of-yourself-that-attends-1842843207>
 
 根据你的创意，虚拟背景可以让视频通话更有趣。但是它们也很有可能被用于*邪恶。*典型的例子:在缩放功能中，你可以从几乎任何图像或视频文件中创建一个虚拟背景。这意味着您可以使用该功能显示自己的循环视频*—*非常适合那些您应该参加会议但*真的不想参加会议的时候。*
 

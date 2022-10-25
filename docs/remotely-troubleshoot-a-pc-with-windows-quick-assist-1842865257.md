@@ -1,6 +1,6 @@
 # 使用 Windows 快速助手对电脑进行远程故障排除
 
-> 原文:[https://life hacker . com/remote-troubleshoot-a-PC-with-windows-quick-assist-1842865257](https://lifehacker.com/remotely-troubleshoot-a-pc-with-windows-quick-assist-1842865257)
+> 原文：<https://lifehacker.com/remotely-troubleshoot-a-pc-with-windows-quick-assist-1842865257>
 
 很多时候，无法亲自进行故障诊断。也许你和对方住在不同的城市，或者你在不同的办公室工作 或者世界因为疫情而被封锁。无论情况如何，一个有用的 Windows 10 功能可以帮助你远程帮助你不懂技术的同事、朋友和家人。
 

@@ -1,6 +1,6 @@
 # 这些都是 Android 10 中谷歌摄像头的新变化
 
-> 原文:[https://life hacker . com/these-is-all-the-new-Google-camera-changes-in-Android-1837071539](https://lifehacker.com/these-are-all-the-new-google-camera-changes-in-android-1837071539)
+> 原文：<https://lifehacker.com/these-are-all-the-new-google-camera-changes-in-android-1837071539>
 
 [Lifehacker's Complete Guide to Android](https://androidos.kinja.com)) : title[![](../Images/e2dcc498f7314a475ad7b9879a9d5584.png)](https://androidos.kinja.com)[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)Don't get overwhelmed by Android's many (many!) settings and apps. Master your Android phone or tablet with our ample collection of guides, tips, and tricks.
 

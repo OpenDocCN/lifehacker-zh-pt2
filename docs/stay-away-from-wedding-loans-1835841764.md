@@ -1,6 +1,6 @@
 # 远离婚礼贷款
 
-> 原文:[https://life hacker . com/stay-from-wedding-loans-1835841764](https://lifehacker.com/stay-away-from-wedding-loans-1835841764)
+> 原文：<https://lifehacker.com/stay-away-from-wedding-loans-1835841764>
 
 如今孩子们如何支付婚礼费用？有贷款。一个持续一天的派对。《华盛顿邮报》 调查了通过个人贷款来支付婚礼费用的做法。虽然这不是一个令人惊讶的阅读，但仍然令人毛骨悚然。
 

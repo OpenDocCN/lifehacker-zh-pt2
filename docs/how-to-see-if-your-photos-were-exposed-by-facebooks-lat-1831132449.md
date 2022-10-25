@@ -1,6 +1,6 @@
 # 如何查看自己的照片是否被脸书最新的 Bug 曝光
 
-> 原文:[https://life hacker . com/how-to-see-if-your-photos-be-exposed-by-face books-lat-1831132449](https://lifehacker.com/how-to-see-if-your-photos-were-exposed-by-facebooks-lat-1831132449)
+> 原文：<https://lifehacker.com/how-to-see-if-your-photos-were-exposed-by-facebooks-lat-1831132449>
 
 周五，脸书 [披露一个 bug 曝光了上传到社交网络的](https://developers.facebook.com/blog/post/2018/12/14/notifying-our-developer-ecosystem-about-a-photo-api-bug/) 的照片。
 

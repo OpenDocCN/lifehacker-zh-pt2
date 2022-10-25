@@ -1,6 +1,6 @@
 # 如何在离婚中保护你的钱
 
-> 原文:[https://life hacker . com/how-to-protect-your money in-a-diffuse-1835907773](https://lifehacker.com/how-to-protect-your-money-in-a-divorce-1835907773)
+> 原文：<https://lifehacker.com/how-to-protect-your-money-in-a-divorce-1835907773>
 
 如果你在婚姻期间保持财务独立，不要认为离婚后他们会保持独立。
 

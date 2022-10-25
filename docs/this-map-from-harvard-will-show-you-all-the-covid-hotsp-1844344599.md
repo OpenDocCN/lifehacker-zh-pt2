@@ -1,6 +1,6 @@
 # 这张来自哈佛的地图将向你展示美国所有的 COVID 热点
 
-> 原文:[https://life hacker . com/this-map-from-Harvard-will-show-you-all-the-covid-hotsp-1844344599](https://lifehacker.com/this-map-from-harvard-will-show-you-all-the-covid-hotsp-1844344599)
+> 原文：<https://lifehacker.com/this-map-from-harvard-will-show-you-all-the-covid-hotsp-1844344599>
 
 自 2019 年 12 月新冠肺炎首次开始传播以来，它已经在世界各地传播。当它来到美国时，最初在西雅图有几个病例，但第一个主要热点是纽约市。现在，几个月后，像亚利桑那州、南卡罗莱纳州和佛罗里达州这样的地方成了病毒的新热点。很难跟踪疫情的传播，因此哈佛全球健康研究所与其他组织合作，提供了一份最新地图，标明了美国疫情最严重的地区。
 

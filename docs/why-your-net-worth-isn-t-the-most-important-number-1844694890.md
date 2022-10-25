@@ -1,6 +1,6 @@
 # 为什么你的净资产不是最重要的数字
 
-> 原文:[https://life hacker . com/why-your-net-worth-not-the-most-important-number-1844694890](https://lifehacker.com/why-your-net-worth-isn-t-the-most-important-number-1844694890)
+> 原文：<https://lifehacker.com/why-your-net-worth-isn-t-the-most-important-number-1844694890>
 
 在个人理财方面,你的的净资产得到了很多关注，而且理由很充分——它基本上就是你的财务成绩单。你可以通过从你的总资产中减去你的总债务来计算你的净资产，或者财务状况表。
 

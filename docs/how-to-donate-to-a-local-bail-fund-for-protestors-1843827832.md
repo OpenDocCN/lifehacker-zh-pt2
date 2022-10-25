@@ -1,6 +1,6 @@
 # 如何向当地的抗议者保释基金捐款
 
-> 原文:[https://life hacker . com/how-to-duate-a-local-bail-fund-for-抗议者-1843827832](https://lifehacker.com/how-to-donate-to-a-local-bail-fund-for-protestors-1843827832)
+> 原文：<https://lifehacker.com/how-to-donate-to-a-local-bail-fund-for-protestors-1843827832>
 
 如果你想知道如何帮助抗议者，可以考虑向当地的保释基金捐款。因为手头没有现金而监禁某人在任何时候都是残忍的——但尤其是现在，为了降低抗议者接触新冠肺炎的风险，让他们尽快出狱尤为关键。
 

@@ -1,6 +1,6 @@
 # 问咸女服务员:不小心把女顾客叫成了“先生”
 
-> 原文:[https://the take out . com/incidentially-called-female-customer-sir-gender-neutral-1831996034](https://thetakeout.com/accidentally-called-female-customer-sir-gender-neutral-1831996034)
+> 原文：<https://thetakeout.com/accidentally-called-female-customer-sir-gender-neutral-1831996034>
 
 > *亲爱的咸:救命！这是发生在我身上的几次。*
 > 

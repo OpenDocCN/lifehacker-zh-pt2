@@ -1,6 +1,6 @@
 # 如何复制“假期预期”的好处
 
-> 原文:[https://life hacker . com/how-to-replicate-the benefits-of-vacation-prediction-1845109423](https://lifehacker.com/how-to-replicate-the-benefits-of-vacation-anticipation-1845109423)
+> 原文：<https://lifehacker.com/how-to-replicate-the-benefits-of-vacation-anticipation-1845109423>
 
 还记得三月和四月初，我们都在抢购物资，准备呆在家里几个星期吗？我们新的封闭生活方式看起来像是我们要经历一段时间，然后生活——包括夏天——会恢复，大部分像往常一样。在这个阶段，暑假不仅仅是一年一度的传统，或者探索新目的地的一种方式:对很多人来说，期待暑假成了一种应对策略。
 

@@ -1,6 +1,6 @@
 # 为什么现在是买房子的时候
 
-> 原文:[https://life hacker . com/buy-a-house-in-first-week-of-fall 1838283828](https://lifehacker.com/buy-a-house-during-the-first-week-of-fall-1838283828)
+> 原文：<https://lifehacker.com/buy-a-house-during-the-first-week-of-fall-1838283828>
 
 如果你想要最多的选择和最少的竞争，秋季的第一周是买房的好时机。
 

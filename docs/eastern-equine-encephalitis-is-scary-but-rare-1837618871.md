@@ -1,6 +1,6 @@
 # 东部马脑炎很可怕，但很罕见
 
-> 原文:[https://life hacker . com/eastern-equine-脑炎是可怕但罕见的-1837618871](https://lifehacker.com/eastern-equine-encephalitis-is-scary-but-rare-1837618871)
+> 原文：<https://lifehacker.com/eastern-equine-encephalitis-is-scary-but-rare-1837618871>
 
 一名马萨诸塞州妇女 [最近死于东部马脑炎](https://boston.cbslocal.com/2019/08/26/eee-death-fairhaven-woman-laurie-sylvia-mosquito-borne-illness-threat-level-horse/) ，该地区的卫生当局处于戒备状态。但 EEE 是一种极其罕见的疾病，你需要知道的主要事情是，保护自己免受蚊虫叮咬总是一个好主意。
 

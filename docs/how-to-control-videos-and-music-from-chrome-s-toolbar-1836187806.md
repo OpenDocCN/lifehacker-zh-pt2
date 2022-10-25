@@ -1,6 +1,6 @@
 # 如何从 Chrome 的工具栏控制视频和音乐
 
-> 原文:[https://life hacker . com/how-to-control-videos-and-music-from-chrome-s-toolbar-1836187806](https://lifehacker.com/how-to-control-videos-and-music-from-chrome-s-toolbar-1836187806)
+> 原文：<https://lifehacker.com/how-to-control-videos-and-music-from-chrome-s-toolbar-1836187806>
 
 虽然 Chrome 已经让用户在个别标签 中的 [静音一段时间了，但谷歌目前正在浏览器的最新版本](https://lifehacker.com/how-to-mute-tabs-in-google-chrome-1798506886) [中测试新的媒体控制功能](https://www.zdnet.com/article/google-chrome-to-get-a-video-playpause-button-on-the-toolbar/) 。启用后，用户可以直接从浏览器的工具栏播放、暂停和跳过/回退音频和视频内容——例如，在您工作时静音(或启动) Spotify 非常方便，即使您没有看 Spotify 选项卡。
 

@@ -1,6 +1,6 @@
 # 如何捐赠您未使用的联系人
 
-> 原文:[https://life hacker . com/how-to-unused-contacts-1839827584](https://lifehacker.com/how-to-donate-your-unused-contacts-1839827584)
+> 原文：<https://lifehacker.com/how-to-donate-your-unused-contacts-1839827584>
 
 如果你的眼科处方最近发生了变化，或者你最终咬紧牙关选择了 LASIK 手术，这里有一种方法可以处理掉你可能藏起来的备用隐形眼镜。
 

@@ -1,6 +1,6 @@
 # 你的位置数据并不像你想的那样匿名
 
-> 原文:[https://life hacker . com/your-location-data-not-as-anonymous-as-you-think-1840540886](https://lifehacker.com/your-location-data-isnt-as-anonymous-as-you-think-1840540886)
+> 原文：<https://lifehacker.com/your-location-data-isnt-as-anonymous-as-you-think-1840540886>
 
 我们都知道我们的手机和应用程序会跟踪我们的位置——感觉我们大多数人已经接受了这样一个事实:太多的这种数据落入了那些想要向我们做广告的公司手中。问题？没有人真正考虑这些数据实际上是如何被存储的，或者它有多匿名*不*。
 

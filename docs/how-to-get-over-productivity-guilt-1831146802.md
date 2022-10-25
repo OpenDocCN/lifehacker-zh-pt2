@@ -1,6 +1,6 @@
 # 如何克服生产力内疚
 
-> 原文:[https://life hacker . com/how-to-get-over-productivity-内疚感-1831146802](https://lifehacker.com/how-to-get-over-productivity-guilt-1831146802)
+> 原文：<https://lifehacker.com/how-to-get-over-productivity-guilt-1831146802>
 
 作为一名 Lifehacker 的读者，你可能会在生活中积极尝试过得更好。这可能看起来像很多事情，但它通常包括尽可能多产。然而，不断地推动自己变得有效率，会变得相当有压力。
 

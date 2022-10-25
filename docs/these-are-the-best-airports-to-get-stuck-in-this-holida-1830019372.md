@@ -1,6 +1,6 @@
 # 这些都是在这个假期中最容易被困的机场
 
-> 原文:[https://life hacker . com/thes-is-the-best-to-stuck-in-this-holida-1830019372](https://lifehacker.com/these-are-the-best-airports-to-get-stuck-in-this-holida-1830019372)
+> 原文：<https://lifehacker.com/these-are-the-best-airports-to-get-stuck-in-this-holida-1830019372>
 
 说到美国的机场，有个确定的赢家和个输家。有些提供令人惊奇的吃饭的地方和几乎总是准时的航班，而另一些有很多的延迟和一个哈德逊新闻，在那里你可以拿一袋高价的 Chex Mix 度过 8 小时的中途停留。
 

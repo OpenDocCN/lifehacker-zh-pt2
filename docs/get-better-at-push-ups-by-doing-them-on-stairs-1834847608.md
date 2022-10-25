@@ -1,6 +1,6 @@
 # 通过在楼梯上做俯卧撑来提高自己的水平
 
-> 原文:[https://life hacker . com/get-better-at-push-better-doing-them-1834847608](https://lifehacker.com/get-better-at-push-ups-by-doing-them-on-stairs-1834847608)
+> 原文：<https://lifehacker.com/get-better-at-push-ups-by-doing-them-on-stairs-1834847608>
 
 上下楼梯是很好的有氧运动，但是在我们的下一期 [楼梯主题健身挑战](https://vitals.lifehacker.com/this-months-fitness-challenge-theme-is-stairs-1834511269?rev=1558113690228) 中，我们将进行一些力量训练。让我们做一些俯卧撑。
 

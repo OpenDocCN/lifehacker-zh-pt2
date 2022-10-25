@@ -1,6 +1,6 @@
 # 当你在旅行时，使用这个应用程序找到完美的 Instagram 照片
 
-> 原文:[https://life hacker . com/use-this-app-to-find-the-perfect-insta gram-shot-when-yo-1835766289](https://lifehacker.com/use-this-app-to-find-the-perfect-instagram-shot-when-yo-1835766289)
+> 原文：<https://lifehacker.com/use-this-app-to-find-the-perfect-instagram-shot-when-yo-1835766289>
 
 在旧金山，它始于冰淇淋博物馆(Museum of Ice Cream)，这是一个位于市中心的“博物馆”，花 38 美元，你就可以在一只独角兽旁边自拍，或者沉浸在建筑“洒水池”的洒水中
 

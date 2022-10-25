@@ -1,6 +1,6 @@
 # 《网飞经典》为你的浏览器带来了老派的网飞体验
 
-> 原文:[https://life hacker . com/classic-网飞-领老派-网飞-体验-1831300289](https://lifehacker.com/classic-netflix-bring-the-old-school-netflix-experience-1831300289)
+> 原文：<https://lifehacker.com/classic-netflix-bring-the-old-school-netflix-experience-1831300289>
 
 在假期拜访家人通常意味着做很多你在家里通常不会做的事情。对我来说，其中一件事就是在我的笔记本电脑上看网飞。我住的房间没有电视，客厅对我来说太中心了，我无法在睡觉前观看我传统的一小时网飞而不打扰大众，所以我开始在晚上打开我床头柜上的 MacBook 来满足修复。
 

@@ -1,6 +1,6 @@
 # 现在如何获得护照
 
-> 原文:[https://life hacker . com/how-to-get-a-passport-right-now-1842776017](https://lifehacker.com/how-to-get-a-passport-right-now-1842776017)
+> 原文：<https://lifehacker.com/how-to-get-a-passport-right-now-1842776017>
 
 旅行继续放缓，这是减缓冠状病毒疫情曲线所急需的努力。即使我们处于停滞状态，你也可能需要旅行或更新你的旅行证件。那么你现在如何获得一本新的或更新的护照呢？
 

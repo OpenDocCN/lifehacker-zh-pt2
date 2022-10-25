@@ -1,6 +1,6 @@
 # 告诉我们你最好的迈阿密旅行建议
 
-> 原文:[https://life hacker . com/tell-us-your-best-Miami-travel-tips-1830184686](https://lifehacker.com/tell-us-your-best-miami-travel-tips-1830184686)
+> 原文：<https://lifehacker.com/tell-us-your-best-miami-travel-tips-1830184686>
 
 迈阿密！*副*城市、*老何:*城市、*热线*城市、*考特尼和金乘坐*城市。戴夫·巴里，托尼·蒙大拿的家，而不是威尔·史密斯的家。我要开车来这里！迈阿密人就是这么说话的。我只去过迈阿密海滩和温伍德艺术区，周围都是我的雅皮士潮人伙伴。我错过了什么？住在迈阿密或附近有什么好的地方，旅游有什么好的地方，你有什么处理不好的事情的方法？
 

@@ -1,6 +1,6 @@
 # 苹果利用它的奥普拉时刻欺骗了我们
 
-> 原文:[https://gizmodo . com/apple-used-its-Oprah-moment-to-pull-one-over-on-us-1833582489](https://gizmodo.com/apple-used-its-oprah-moment-to-pull-one-over-on-us-1833582489)
+> 原文：<https://gizmodo.com/apple-used-its-oprah-moment-to-pull-one-over-on-us-1833582489>
 
 我承认——我迷上了奥普拉。不是当着她的面。她站在舞台上，离我大约 30 英尺，穿着一套很少有人能完成的飘逸的桑德斯上校服装(奥普拉做到了)。我也去过阿尔法·沃德和杰森·莫玛。我想到了史蒂夫·斯皮尔伯格在舞台上看起来有多短，想到了伊万·麦格雷戈的头发有多浓密和奢华。这些名人都出席了周一的苹果发布会，几个小时后，很明显，他们去那里是为了转移人们对苹果无话可说的事实的注意力。
 

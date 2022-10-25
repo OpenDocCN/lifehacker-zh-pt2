@@ -1,6 +1,6 @@
 # 既然你戴着面具，如何在智能手机上关闭面部解锁
 
-> 原文:[https://life hacker . com/how-to-turn-off-face-unlock-on-your-smart phone-now-that-1842983847](https://lifehacker.com/how-to-turn-off-face-unlock-on-your-smartphone-now-that-1842983847)
+> 原文：<https://lifehacker.com/how-to-turn-off-face-unlock-on-your-smartphone-now-that-1842983847>
 
 大多数时候，使用面部解锁手机是一种无缝的访问设备的方式。然而，现在 [我们出门都戴着口罩，在](https://vitals.lifehacker.com/what-to-know-if-youre-wearing-a-cloth-mask-in-public-1842706701) 左右(对吧？)这个功能与其说是一个很好的免提使用方式，不如说是一个令人讨厌的麻烦。
 

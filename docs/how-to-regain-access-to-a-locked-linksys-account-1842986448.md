@@ -1,6 +1,6 @@
 # 如何重新获得被锁定的 Linksys 帐户
 
-> 原文:[https://life hacker . com/how-to-recreat-access-to-a-locked-Linksys-account-1842986448](https://lifehacker.com/how-to-regain-access-to-a-locked-linksys-account-1842986448)
+> 原文：<https://lifehacker.com/how-to-regain-access-to-a-locked-linksys-account-1842986448>
 
 Linksys 目前正在强制任何拥有其“智能 Wi-Fi”服务账户的人重置密码。这种行为可能看起来是随机的，甚至令人担忧，但这是 Linksys 努力减轻 4 月初针对其用户的恶意软件攻击的一部分。
 

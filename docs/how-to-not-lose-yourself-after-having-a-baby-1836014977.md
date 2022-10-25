@@ -1,6 +1,6 @@
 # 生完孩子如何不迷失自己
 
-> 原文:[https://life hacker . com/how-to-not lost yourself-happed-1836014977](https://lifehacker.com/how-to-not-lose-yourself-after-having-a-baby-1836014977)
+> 原文：<https://lifehacker.com/how-to-not-lose-yourself-after-having-a-baby-1836014977>
 
 也许是一张旧照片。你上辈子的照片。你看着你曾经拥有的火花，然后你看着你现在的世界——它被一个需要、需要、*需要的孩子所消耗。Y* 你突然想:我是怎么到这里的？
 

@@ -1,6 +1,6 @@
 # Casa Noble 创始人何塞·“佩佩”·埃莫西约说，如何鉴别高品质的龙舌兰酒
 
-> 原文:[https://life hacker . com/how-to-spot-a-high-quality-tequila-on-casa-no-1839584592](https://lifehacker.com/how-to-spot-a-high-quality-tequila-according-to-casa-no-1839584592)
+> 原文：<https://lifehacker.com/how-to-spot-a-high-quality-tequila-according-to-casa-no-1839584592>
 
 许多人把龙舌兰酒等同于烈酒，因此也等同于早晨的宿醉。事实上，陈年龙舌兰酒无论是直接喝还是加冰喝都很美味，就像你品尝陈年威士忌一样。
 

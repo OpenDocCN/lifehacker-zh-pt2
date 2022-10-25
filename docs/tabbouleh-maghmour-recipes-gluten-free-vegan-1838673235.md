@@ -1,6 +1,6 @@
 # 如何为现代嬉皮士改编传统黎巴嫩食谱
 
-> 原文:[https://the take out . com/tabbouleh-maghmour-recipes-gluten-free-vegan-1838673235](https://thetakeout.com/tabbouleh-maghmour-recipes-gluten-free-vegan-1838673235)
+> 原文：<https://thetakeout.com/tabbouleh-maghmour-recipes-gluten-free-vegan-1838673235>
 
 当我搬到西雅图时，我妈妈夏洛特对它不屑一顾，认为它是“嬉皮士居住的地方”。但是当她来看我的时候，我们会召集那些已经成为我大家庭的朋友来享用她的黎巴嫩美食，他们中的大多数都是不含乳制品或麸质的素食者，只吃塑料容器装的鹰嘴豆泥。我妈妈习惯对她的食谱进行调整；她是一位现代女性，她说传统的黎巴嫩食谱很费时间，因为女性要整天呆在厨房里。所以她找到了更快更容易准备它们的方法。现在，为了我的朋友，她反复讲述她多年来制作的这些不含乳制品和麸质的素食菜肴。
 

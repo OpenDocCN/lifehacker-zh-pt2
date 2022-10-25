@@ -1,6 +1,6 @@
 # 当你习惯了磅的时候，如何举起公斤
 
-> 原文:[https://life hacker . com/how-to-lift-in-kgs-when you-used-to-pounds-1844945494](https://lifehacker.com/how-to-lift-in-kilos-when-youre-used-to-pounds-1844945494)
+> 原文：<https://lifehacker.com/how-to-lift-in-kilos-when-youre-used-to-pounds-1844945494>
 
 我第一次在以公斤为单位的健身房举重时，我磨练已久的 [板块数学技能](https://lifehacker.com/how-to-add-up-the-weights-when-youre-lifting-with-a-bar-1837876765) 突然变得毫无用处。数字都不一样，盘子的颜色很有趣，然而，没过多久，我发现我有点喜欢这样。
 

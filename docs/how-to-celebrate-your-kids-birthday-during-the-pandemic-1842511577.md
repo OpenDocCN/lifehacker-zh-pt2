@@ -1,6 +1,6 @@
 # 如何在疫情庆祝孩子的生日
 
-> 原文:[https://life hacker . com/how-to-庆生疫情-1842511577](https://lifehacker.com/how-to-celebrate-your-kids-birthday-during-the-pandemic-1842511577)
+> 原文：<https://lifehacker.com/how-to-celebrate-your-kids-birthday-during-the-pandemic-1842511577>
 
 你知道现在比学校被取消，运动被取消或者大部分生活被取消更糟糕的是什么吗？需要取消你的孩子期待了*个月*的生日聚会。作为一个喜欢大大小小的生日和节日的人，我不会容忍这种情况。外面可能会发生全球性的疫情，但你仍然可以在室内庆祝。下面是方法:
 

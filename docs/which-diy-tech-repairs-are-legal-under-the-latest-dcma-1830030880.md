@@ -1,6 +1,6 @@
 # 根据最新的 DCMA 版权规定，哪些 DIY 技术修复是合法的
 
-> 原文:[https://life hacker . com/which-DIY-tech-repair-is-legal-under-the-latest-dcma-1830030880](https://lifehacker.com/which-diy-tech-repairs-are-legal-under-the-latest-dcma-1830030880)
+> 原文：<https://lifehacker.com/which-diy-tech-repairs-are-legal-under-the-latest-dcma-1830030880>
 
 每三年，美国政府都会听到来自公民个人、小企业、技术专家和大公司的争论，讨论法律上应该允许用户对其拥有的技术进行何种修理或修改。最近的一次听证会是在 2018 年早些时候举行的，美国版权局本周发布了最终裁决，让用户能够合法地对智能手机、智能家居中枢等进行某些维修。
 

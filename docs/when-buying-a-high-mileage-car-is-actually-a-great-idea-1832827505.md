@@ -1,6 +1,6 @@
 # 买一辆高里程数的车其实是个好主意
 
-> 原文:[https://jalopnik . com/when-buying a high-mileage-car-其实是个好主意-1832827505](https://jalopnik.com/when-buying-a-high-mileage-car-is-actually-a-great-idea-1832827505)
+> 原文：<https://jalopnik.com/when-buying-a-high-mileage-car-is-actually-a-great-idea-1832827505>
 
 我有一个假设:当要找一辆很酷的旧车出售时，里程数高的好车最受欢迎。
 

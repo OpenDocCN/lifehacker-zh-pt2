@@ -1,6 +1,6 @@
 # 有时候放下重量没关系
 
-> 原文:[https://life hacker . com/times-it-okay-to-drop-the-weights-1837481047](https://lifehacker.com/sometimes-its-okay-to-drop-the-weights-1837481047)
+> 原文：<https://lifehacker.com/sometimes-its-okay-to-drop-the-weights-1837481047>
 
 今天我们要解决健身房混蛋的标志性行为:减肥。嘣。 [Blech](https://vitals.lifehacker.com/ask-us-your-gym-etiquette-questions-1836254313) 总结了我们很多人发现自己在思考的问题:
 

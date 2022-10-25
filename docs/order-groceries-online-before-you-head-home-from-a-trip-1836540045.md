@@ -1,6 +1,6 @@
 # 旅行回家之前，在网上订购食品杂货
 
-> 原文:[https://life hacker . com/order-stackies-online-before-you-head-home-from-a-trip-1836540045](https://lifehacker.com/order-groceries-online-before-you-head-home-from-a-trip-1836540045)
+> 原文：<https://lifehacker.com/order-groceries-online-before-you-head-home-from-a-trip-1836540045>
 
 我肯定你去过那里。你结束了一天的长途旅行回到家——筋疲力尽，饥肠辘辘——打开冰箱却发现里面什么都没有。呸。你只是想要食物。如果你已经在飞机餐盘上吃了很长时间的食物，最好是新鲜的食物。
 

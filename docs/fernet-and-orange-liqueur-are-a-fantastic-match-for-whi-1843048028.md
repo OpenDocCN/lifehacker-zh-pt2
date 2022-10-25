@@ -1,6 +1,6 @@
 # 费尔内酒和橘子利口酒是威士忌的绝佳搭配
 
-> 原文:[https://life hacker . com/fernet-and-orange-liquic-are-a-fantastic-match-for-whi-1843048028](https://lifehacker.com/fernet-and-orange-liqueur-are-a-fantastic-match-for-whi-1843048028)
+> 原文：<https://lifehacker.com/fernet-and-orange-liqueur-are-a-fantastic-match-for-whi-1843048028>
 
 现在我离开了坎帕瑞，我正被迫探索我的酒吧推车中长期被 T2 忽视的角落。事情并不完全是暗淡的:仍有很多瓶子——但是这些瓶子我并不经常去拿。这导致了大量的谷歌搜索，这让我发现了新的鸡尾酒，所以这是一个净积极的整体。
 

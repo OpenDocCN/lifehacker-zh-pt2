@@ -1,6 +1,6 @@
 # 返校购物的最佳信用卡奖励
 
-> 原文:[https://life hacker . com/the-best-rewards-credit-cards-for-back-school-shoppi-1844851829](https://lifehacker.com/the-best-rewards-credit-cards-for-back-to-school-shoppi-1844851829)
+> 原文：<https://lifehacker.com/the-best-rewards-credit-cards-for-back-to-school-shoppi-1844851829>
 
 当家庭准备送孩子回学校时，许多人担心供应品的高成本。三分之二的父母对费用感到压力——根据 [CompareCards 的年度返校调查](https://www.comparecards.com/blog/back-to-school-spending-survey) ，这一比例高于 2019 年的 43%——原因很容易明白。全国零售联盟称冠状病毒可能会促使父母重返校园的花费达到创纪录的水平，预计每个家庭将花费 789.49 美元。
 

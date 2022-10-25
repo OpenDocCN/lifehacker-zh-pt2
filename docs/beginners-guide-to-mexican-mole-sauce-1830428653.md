@@ -1,6 +1,6 @@
 # 神圣的莫勒:墨西哥天赐酱初学者指南
 
-> 原文:[https://the take out . com/beginners-guide-to-Mexican-mole-sauce-1830428653](https://thetakeout.com/beginners-guide-to-mexican-mole-sauce-1830428653)
+> 原文：<https://thetakeout.com/beginners-guide-to-mexican-mole-sauce-1830428653>
 
 在墨西哥家庭中，食谱是代代相传的传家宝——一本好的钼莱食谱是最珍贵的礼物之一。在我家，我的阿姨拥有梦寐以求的钼配方，我所知道的是一个痛苦的事实，她可能永远不会与我分享。这种痛苦可能足以驱使我考虑采取法律行动，以便在某一天实现它，所以我希望她正在读这篇文章。
 

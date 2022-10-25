@@ -1,6 +1,6 @@
 # 如何撬开内门的锁
 
-> 原文:[https://life hacker . com/how-to-open-a-locked-interior-door-when-you-have-the-lost-the-5464402](https://lifehacker.com/how-to-open-a-locked-interior-door-when-youve-lost-the-5464402)
+> 原文：<https://lifehacker.com/how-to-open-a-locked-interior-door-when-youve-lost-the-5464402>
 
 如果你家有很多内门是锁着的，迟早你会丢失钥匙，把它锁在房间里，或者发现你的孩子把自己锁在里面出不来。每次都叫锁匠不方便(也贵)；相反，你可以学会自己开锁。
 

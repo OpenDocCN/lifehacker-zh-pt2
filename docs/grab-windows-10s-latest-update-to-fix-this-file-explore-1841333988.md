@@ -1,6 +1,6 @@
 # 获取 Windows 10 的最新更新来修复这个文件资源管理器错误
 
-> 原文:[https://life hacker . com/grab-windows-10s-latest-update-to-fix-this-file-explore-1841333988](https://lifehacker.com/grab-windows-10s-latest-update-to-fix-this-file-explore-1841333988)
+> 原文：<https://lifehacker.com/grab-windows-10s-latest-update-to-fix-this-file-explore-1841333988>
 
 微软 11 月份对 Windows 10(1909 版)的更新为文件浏览器增加了一个新的快速搜索栏，旨在帮助用户在他们的电脑上找到文件。唯一的问题是，它在发布时并不是很好。大量的错误使得使用搜索栏变得更加困难。
 

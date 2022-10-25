@@ -1,6 +1,6 @@
 # 根据指南找到合适的床垫尺寸
 
-> 原文:[https://life hacker . com/find-the-right-matrix-size-with this-guide-1841020823](https://lifehacker.com/find-the-right-mattress-size-with-this-guide-1841020823)
+> 原文：<https://lifehacker.com/find-the-right-mattress-size-with-this-guide-1841020823>
 
 买床垫是件痛苦的事；毕竟这很贵，而且当它们看起来一样时，很难区分不同的床垫，除了一个可能长几英寸或宽几英寸。如果你曾经想知道该买哪种床垫，大号床比大号床大多少，或者阿拉斯加国王到底是什么——Reddit 有一个有用的图表，可能会让为你的家购买合适尺寸的床的过程不那么辛苦。
 

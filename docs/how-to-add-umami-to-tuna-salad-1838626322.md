@@ -1,6 +1,6 @@
 # 金枪鱼沙拉怎么加鲜味
 
-> 原文:[https://life hacker . com/how-to-add-umami-to-tuna-salad-1838626322](https://lifehacker.com/how-to-add-umami-to-tuna-salad-1838626322)
+> 原文：<https://lifehacker.com/how-to-add-umami-to-tuna-salad-1838626322>
 
 金枪鱼沙拉三明治是一种简单的享受。你真正需要的是鱼罐头、蛋黄酱，也许还有一点调味品，但是一些品牌的鱼罐头可能很淡，一旦你加入蛋黄酱，金枪鱼带来的任何味道都会变得非常淡。
 

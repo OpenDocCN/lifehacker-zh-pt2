@@ -1,6 +1,6 @@
 # 用柠檬清洁你的脏微波炉
 
-> 原文:[https://life hacker . com/clean-your-dirty-with a lemon-1844495764](https://lifehacker.com/clean-your-dirty-microwave-with-a-lemon-1844495764)
+> 原文：<https://lifehacker.com/clean-your-dirty-microwave-with-a-lemon-1844495764>
 
 我们一直在进行家庭装修，当你被困在家里几个月的时候，这是很容易发生的。上周我们探索了是否可以用柠檬 (剧透:你不能)清洁烤箱，但是今天我们正在清洁 *科学*烤箱，又名微波炉！这次一个柠檬能行吗？
 

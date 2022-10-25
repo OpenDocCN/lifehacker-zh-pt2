@@ -1,6 +1,6 @@
 # 最佳苹果，排名
 
-> 原文:[https://lifehacker.com/the-best-apples-ranked-1831266865](https://lifehacker.com/the-best-apples-ranked-1831266865)
+> 原文：<https://lifehacker.com/the-best-apples-ranked-1831266865>
 
 我们都对最好的苹果有自己的看法，但这是正确的看法。我的资历:我吃过很多苹果。我很幸运地品尝了古董品种的苹果和实验研究品种的苹果。如果你想知道最好的杂货店苹果，我可以告诉你。如果你想要真正最好的苹果，这些很难找到，但是我可以告诉你去找哪一个。
 

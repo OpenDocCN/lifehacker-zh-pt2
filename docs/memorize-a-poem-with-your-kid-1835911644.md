@@ -1,6 +1,6 @@
 # 和你的孩子一起背一首诗
 
-> 原文:[https://life hacker . com/memory-a poem-with-your-kid-1835911644](https://lifehacker.com/memorize-a-poem-with-your-kid-1835911644)
+> 原文：<https://lifehacker.com/memorize-a-poem-with-your-kid-1835911644>
 
 也许你今年夏天已经去过图书馆四次了。你仍然每天晚上和你的孩子一起阅读，他们也在做一些他们自己的独立阅读，所以你做得很好，但是你想改变一些事情，给他们更多的挑战。这里有个想法:一起背一首诗。
 

@@ -1,6 +1,6 @@
 # 如何合并你在 PS4、Xbox One 和任天堂 Switch 上的“堡垒之夜”帐户
 
-> 原文:[https://life hacker . com/how-to-merge-your-fort nite-accounts-on-ps4-Xbox-one-1832464970](https://lifehacker.com/how-to-merge-your-fortnite-accounts-on-ps4-xbox-one-1832464970)
+> 原文：<https://lifehacker.com/how-to-merge-your-fortnite-accounts-on-ps4-xbox-one-1832464970>
 
 终于到时间了，游戏机游戏*堡垒之夜*的粉丝们。如果您在 PlayStation 4、Xbox One 和/或任天堂 Switch 上创建了单独的登录帐户，Epic 为您创建了一种合并 Epic 帐户的方法。如果你在一个不经常玩的平台上购买了 V-Bucks 或物品，你现在可以将所有东西都带入你的主帐户。
 

@@ -1,6 +1,6 @@
 # 最好的观鸟应用程序来识别和跟踪你的观鸟
 
-> 原文:[https://life hacker . com/the-best-birding-apps-to-id-and-track-your-bird-sighting in-1835514764](https://lifehacker.com/the-best-birding-apps-to-id-and-track-your-bird-sightin-1835514764)
+> 原文：<https://lifehacker.com/the-best-birding-apps-to-id-and-track-your-bird-sightin-1835514764>
 
 iOS 和 Android: 观鸟听起来像是放下手机体验大自然的绝佳机会，但手机应用程序在识别鸟类和记录你的观察方面可以提供很大的帮助。博客 BirdWatchingBuzz 将五款最佳观鸟应用命名为“观鸟”，并撰写了大量评论和应用运行截图。
 

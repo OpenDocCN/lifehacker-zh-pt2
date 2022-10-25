@@ -1,6 +1,6 @@
 # 触觉是 iOS 中最被低估的功能
 
-> 原文:[https://life hacker . com/haptic-touch 是 ios 中最被低估的功能 1843586078](https://lifehacker.com/haptic-touch-is-the-most-underrated-feature-in-ios-1843586078)
+> 原文：<https://lifehacker.com/haptic-touch-is-the-most-underrated-feature-in-ios-1843586078>
 
 我们都应该在我们的 iPhones 上使用触觉。这是快速访问常见任务的最简单方法，从创建提醒到在蓝牙设备之间切换。在上面的视频中，我分享了我每天使用触觉的一些方式。
 

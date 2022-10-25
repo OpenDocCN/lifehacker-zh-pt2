@@ -1,6 +1,6 @@
 # 立即停止使用你的费雪牌摇滚游戏[更新]
 
-> 原文:[https://life hacker . com/if-your-baby-can-roll-stop-using-your-fisher-price-roc-1833849390](https://lifehacker.com/if-your-baby-can-roll-stop-using-your-fisher-price-roc-1833849390)
+> 原文：<https://lifehacker.com/if-your-baby-can-roll-stop-using-your-fisher-price-roc-1833849390>
 
 如果你有一个费雪-普莱斯摇滚乐队，一个受欢迎的婴儿“睡眠者”，美国儿科学会 [敦促你立即停止使用](https://www.aap.org/en-us/about-the-aap/aap-press-room/Pages/AAP-Urges-U-S-Consumer-Product-Safety-Commission-to-Recall-Fisher-Price-Rock-n-Play-Sleeper.aspx?fbclid=IwAR0j3bS69hPHMEbBHzuQWkIHSuyU0QklBuwyhRRUGE2zZXjgI0krZ0Pr7JE) 。该建议是在美国消费者产品安全委员会和费雪公司 [警告](https://www.cpsc.gov/Newsroom/News-Releases/2019/CPSC-ALERT-CPSC-and-Fisher-Price-Warn-Consumers-About-Fisher-Price-Rock-N-Play-Due-to-Reports-of-Death-When-Infants-Roll-Over-in-the-Product) 该产品的潜在危害后不到一周提出的。
 

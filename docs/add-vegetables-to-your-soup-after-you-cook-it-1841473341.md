@@ -1,6 +1,6 @@
 # 做好汤后，在汤里加入蔬菜
 
-> 原文:[https://life hacker . com/add-vegetables-to-your-soup-after-you-cook it-1841473341](https://lifehacker.com/add-vegetables-to-your-soup-after-you-cook-it-1841473341)
+> 原文：<https://lifehacker.com/add-vegetables-to-your-soup-after-you-cook-it-1841473341>
 
 比起汤本身，我更喜欢蔬菜汤这个主意。首先，对于我一个人的家庭来说，蔬菜通常太多了，每次加热蔬菜只会变得更糊。(唯一的例外是我继母的牛肉蔬菜汤，难以置信地完美无瑕。)我想要的是一份美味的肉汤，里面有嫩脆可口的蔬菜，烹饪方式突出了它们的最佳品质，而唯一的方法就是将蔬菜和肉汤分开烹饪。
 

@@ -1,6 +1,6 @@
 # 我的披萨外卖车被撞坏了！应该买什么车？
 
-> 原文:[https://jalopnik . com/my-pizza-delivery-vehicle-have-wreck-what-car-should-1838737553](https://jalopnik.com/my-pizza-delivery-vehicle-got-wrecked-what-car-should-1838737553)
+> 原文：<https://jalopnik.com/my-pizza-delivery-vehicle-got-wrecked-what-car-should-1838737553>
 
 道格拉斯是个送货员。他为 UPS 开车，还从当地的披萨店给饥饿的人们带食物。然而，共享比萨饼送货车被彻底报废，他正在寻找替代品。他现在需要便宜、可靠、进出方便的东西。
 

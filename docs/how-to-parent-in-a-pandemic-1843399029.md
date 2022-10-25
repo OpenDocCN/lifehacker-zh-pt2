@@ -1,6 +1,6 @@
 # 如何在疫情期间为人父母
 
-> 原文:[https://life hacker . com/how-to-parent-in-a-a-疫情-1843399029](https://lifehacker.com/how-to-parent-in-a-pandemic-1843399029)
+> 原文：<https://lifehacker.com/how-to-parent-in-a-pandemic-1843399029>
 
 我发现，在疫情时期，为人父母有起有落。它已经在我自己的家里，以及我的社交媒体上播放过，它是这样的:“Omg，孩子们在屏幕上看得太多了！他们需要更多的教育活动，更多的学习机会，更多的结构...我靠，我累坏了，不能全部做完...不管怎样，上电视吧，它不会杀了你的。”重复一遍。
 

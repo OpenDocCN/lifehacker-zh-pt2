@@ -1,6 +1,6 @@
 # 如何在国税局与真人交谈而不永远等待
 
-> 原文:[https://life hacker . com/how-to-talk-to-a-real-human-at-IRS-without-waiting-1842128259](https://lifehacker.com/how-to-talk-to-a-real-human-at-the-irs-without-waiting-1842128259)
+> 原文：<https://lifehacker.com/how-to-talk-to-a-real-human-at-the-irs-without-waiting-1842128259>
 
 不是所有的问题都能由计算机来回答，尤其是涉及到你的税收时。但是当你给国税局打电话时，让一个真正的人接电话似乎是不可能的。
 

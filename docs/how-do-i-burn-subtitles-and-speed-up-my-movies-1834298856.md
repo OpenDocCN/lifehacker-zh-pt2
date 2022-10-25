@@ -1,6 +1,6 @@
 # 如何刻录字幕并加快电影播放速度？
 
-> 原文:[https://life hacker . com/how-do-I-burn-subtitle-and-speed-my-movies-1834298856](https://lifehacker.com/how-do-i-burn-subtitles-and-speed-up-my-movies-1834298856)
+> 原文：<https://lifehacker.com/how-do-i-burn-subtitles-and-speed-up-my-movies-1834298856>
 
 好消息:我不再是生病的了。坏消息:在本周的*复仇者联盟 4：终局之战*中，当他们总是杀死我最喜欢的坏蛋，厚下巴灭霸时，我会感到恶心。啊好吧。我想所有伟大的事情都会结束。除了[**Tech 911**](https://lifehacker.com/c/tech-911)—life hacker 的每周技术建议专栏永远不走。
 

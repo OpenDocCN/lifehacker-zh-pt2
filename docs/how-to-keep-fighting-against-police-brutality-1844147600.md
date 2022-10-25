@@ -1,6 +1,6 @@
 # 如何继续对抗警察暴行
 
-> 原文:[https://life hacker . com/how-to-keep-fighting-against-police-残暴-1844147600](https://lifehacker.com/how-to-keep-fighting-against-police-brutality-1844147600)
+> 原文：<https://lifehacker.com/how-to-keep-fighting-against-police-brutality-1844147600>
 
 战斗还没有结束。全国各地的积极分子仍然走上街头，要求警察改革和正义，为[雷夏德·布鲁克斯](https://www.theroot.com/atlanta-cop-who-killed-rayshard-brooks-was-previously-r-1844050120)[伊利亚·麦克莱恩](https://www.thecut.com/2020/06/the-killing-of-elijah-mcclain-everything-we-know.html) 和无数其他警察暴行的受害者伸张正义。
 

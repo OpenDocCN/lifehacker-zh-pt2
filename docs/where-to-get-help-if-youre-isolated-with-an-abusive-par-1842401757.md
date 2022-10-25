@@ -1,6 +1,6 @@
 # 如果你被一个虐待你的伴侣孤立，去哪里寻求帮助
 
-> 原文:[https://life hacker . com/where-to-get-help-if-you-isolated-with-a-abuse-par-1842401757](https://lifehacker.com/where-to-get-help-if-youre-isolated-with-an-abusive-par-1842401757)
+> 原文：<https://lifehacker.com/where-to-get-help-if-youre-isolated-with-an-abusive-par-1842401757>
 
 在冠状病毒疫情 期间，几周的大部分时间都呆在家里，这种想法足以让你厌倦家中的每个人。但是如果你和一个有虐待行为的人住在一起，呆在家里对你来说可能会更不舒服——或者完全危险。
 

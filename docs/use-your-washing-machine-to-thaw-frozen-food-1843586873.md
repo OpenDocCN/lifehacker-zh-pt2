@@ -1,6 +1,6 @@
 # 用你的洗衣机解冻冷冻食物
 
-> 原文:[https://life hacker . com/use-your-washing-machine-to-解冻冷冻食品-1843586873](https://lifehacker.com/use-your-washing-machine-to-thaw-frozen-food-1843586873)
+> 原文：<https://lifehacker.com/use-your-washing-machine-to-thaw-frozen-food-1843586873>
 
 如今，我们对家里的每一个部分都越来越熟悉了，所以让我们花点时间探索一下这个不起眼的洗衣机的未知用途。
 

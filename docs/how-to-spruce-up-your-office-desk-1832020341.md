@@ -1,6 +1,6 @@
 # 如何收拾你的办公桌
 
-> 原文:[https://life hacker . com/how-to-spruce-up-your-office-desk-1832020341](https://lifehacker.com/how-to-spruce-up-your-office-desk-1832020341)
+> 原文：<https://lifehacker.com/how-to-spruce-up-your-office-desk-1832020341>
 
 坐办公室的人醒着的大部分时间都坐在办公桌前，这可能是因为它的实用性。既然你在那里，为什么不把它变成一个更愉快的地方呢？
 

@@ -1,6 +1,6 @@
 # 这是最棒的奶酪煎蛋卷
 
-> 原文:[https://life hacker . com/this-is-the-ultimate-cheese-煎蛋-1831960196](https://lifehacker.com/this-is-the-ultimate-cheese-omelette-1831960196)
+> 原文：<https://lifehacker.com/this-is-the-ultimate-cheese-omelette-1831960196>
 
 鸡蛋和奶酪是我最喜欢的两种食物，我花了大量的时间和脑力想出将它们结合起来的方法。 [往鸡蛋里掺奶酪](https://skillet.lifehacker.com/these-are-the-cheeses-you-need-in-your-scrambled-eggs-1829447109#_ga=2.203539416.976869809.1538407529-426097860.1521480505) 、 [把鸡蛋堆在奶酪堆里](https://skillet.lifehacker.com/behold-the-cheesy-crispy-glory-of-the-frico-fried-egg-1829470751) ，把鸡蛋叠在奶酪周围，这些都是我很珍惜的做法，而这个煎蛋利用了这三者。
 

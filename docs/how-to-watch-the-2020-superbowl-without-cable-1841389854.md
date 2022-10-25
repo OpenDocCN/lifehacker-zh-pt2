@@ -1,6 +1,6 @@
 # 如何在没有有线电视的情况下观看 2020 年超级碗
 
-> 原文:[https://life hacker . com/how-to-watch-the-2020-Superbowl-without-cable-1841389854](https://lifehacker.com/how-to-watch-the-2020-superbowl-without-cable-1841389854)
+> 原文：<https://lifehacker.com/how-to-watch-the-2020-superbowl-without-cable-1841389854>
 
 堪萨斯城酋长队将于周日在 LVI 超级碗比赛中迎战旧金山 49 人队。今年的比赛将于美国东部时间下午 6:30 在福克斯正式开始。如果你有有线电视甚至数字天线，那就意味着你可以在电视上收看所有的活动。如果你两者都没有，或者没有电视机，你也可以为今年的大赛选择一些稳定的流媒体。
 

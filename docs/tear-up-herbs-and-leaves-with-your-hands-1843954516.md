@@ -1,6 +1,6 @@
 # 用手撕碎药草和叶子
 
-> 原文:[https://life hacker . com/tear-up-herbers-and-leaves-with-your-hands-1843954516](https://lifehacker.com/tear-up-herbs-and-leaves-with-your-hands-1843954516)
+> 原文：<https://lifehacker.com/tear-up-herbs-and-leaves-with-your-hands-1843954516>
 
 即使经过一个周末最简单的烹饪，我和我的伙伴仍然在周五和周六设法制作(并清洗)了四个完整的洗碗池。昨天早上最后一次“装载”完成后，我决定奖励自己一份早午餐，用烤土豆的残渣和一批新的自制早餐香肠(食谱即将出炉)制作。
 

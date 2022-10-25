@@ -1,6 +1,6 @@
 # 如何应对冠状病毒库存下降
 
-> 原文:[https://life hacker . com/how-to-response-to-the-coronavirus-stock-drop-1842026380](https://lifehacker.com/how-to-respond-to-the-coronavirus-stock-drop-1842026380)
+> 原文：<https://lifehacker.com/how-to-respond-to-the-coronavirus-stock-drop-1842026380>
 
 过去一个月，我的 Vanguard 投资组合价值下跌了 9371.70 美元，其中大部分损失发生在上周。
 

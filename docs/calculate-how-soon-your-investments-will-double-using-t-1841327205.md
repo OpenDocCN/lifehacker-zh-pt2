@@ -1,6 +1,6 @@
 # 使用“72 法则”计算你的投资多久会翻倍
 
-> 原文:[https://life hacker . com/calculate-how-soon-your-investments-will-double-using-t-1841327205](https://lifehacker.com/calculate-how-soon-your-investments-will-double-using-t-1841327205)
+> 原文：<https://lifehacker.com/calculate-how-soon-your-investments-will-double-using-t-1841327205>
 
 你如何知道你的钱是否投入了正确的储蓄或投资工具？你可能会问自己，根据你目前获得的利率，你的钱需要多长时间才能翻倍——有一个公式可以让这个计算变得非常简单。
 

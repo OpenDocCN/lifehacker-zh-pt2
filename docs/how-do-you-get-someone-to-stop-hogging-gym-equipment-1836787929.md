@@ -1,6 +1,6 @@
 # 你如何让某人停止霸占健身器材？
 
-> 原文:[https://life hacker . com/how-do-you-get-someone-stop-how-how-you-how-how-someone-how-how-how-you-how-how-to-how-how-someone-stop-hawking-gym-equipment-1836787929](https://lifehacker.com/how-do-you-get-someone-to-stop-hogging-gym-equipment-1836787929)
+> 原文：<https://lifehacker.com/how-do-you-get-someone-to-stop-hogging-gym-equipment-1836787929>
 
 我们问你健身房礼仪问题，你回答了！或者更确切地说，问。很多。谢谢！今天我们将解决一个棘手的问题，当有人使用你想要的设备，并且似乎在浪费他们(和你)的时间时，该怎么办。
 

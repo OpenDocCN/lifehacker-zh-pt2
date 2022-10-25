@@ -1,6 +1,6 @@
 # 如何在机场让别人让你使用他们的电源插座
 
-> 原文:[https://life hacker . com/how-to-always-get someone-to-let-you-use-these-power-ou-1836169129](https://lifehacker.com/how-to-always-get-someone-to-let-you-use-their-power-ou-1836169129)
+> 原文：<https://lifehacker.com/how-to-always-get-someone-to-let-you-use-their-power-ou-1836169129>
 
 不管你乘坐哪家航空公司的飞机，也不管你要去哪里，我可以向你保证一件事:电力将会变得非常珍贵。
 

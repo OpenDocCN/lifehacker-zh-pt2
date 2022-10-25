@@ -1,6 +1,6 @@
 # 放假天天去健身房
 
-> 原文:[https://life hacker . com/go-to-the-gym-every-day-on-vacation-1837181182](https://lifehacker.com/go-to-the-gym-every-day-on-vacation-1837181182)
+> 原文：<https://lifehacker.com/go-to-the-gym-every-day-on-vacation-1837181182>
 
 有时候你需要从假期中解脱出来。旅行可能会有压力，有些类型的旅行尤其如此。举例来说，无论你的家庭有多好，家庭度假都有戏剧性。所以这是你的逃亡秘诀:每天早上去健身房。
 

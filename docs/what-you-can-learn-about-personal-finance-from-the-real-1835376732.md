@@ -1,6 +1,6 @@
 # 关于个人理财，你能从《真实主妇》中学到什么
 
-> 原文:[https://life hacker . com/what-you-can-learn-on-the-real-1835376732](https://lifehacker.com/what-you-can-learn-about-personal-finance-from-the-real-1835376732)
+> 原文：<https://lifehacker.com/what-you-can-learn-about-personal-finance-from-the-real-1835376732>
 
 有人看《真正的家庭主妇》系列的原因有两个:T2 的钱和 T4 的剧。
 

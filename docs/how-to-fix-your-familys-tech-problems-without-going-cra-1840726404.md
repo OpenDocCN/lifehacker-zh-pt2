@@ -1,6 +1,6 @@
 # 如何在不发疯的情况下解决家庭的技术问题
 
-> 原文:[https://life hacker . com/how-to-fix-your-familys-tech-problems-without-go-CRA-1840726404](https://lifehacker.com/how-to-fix-your-familys-tech-problems-without-going-cra-1840726404)
+> 原文：<https://lifehacker.com/how-to-fix-your-familys-tech-problems-without-going-cra-1840726404>
 
 当一些设备或服务出现问题时，我不介意帮助朋友、亲人和大家庭成员，但当他们不太理解如何描述问题时，甚至是他们为解决问题所做的事情时，这可能会很棘手。我多次发现自己处于这种境地，我想出了一些通用的故障排除技术，你可以用它们(希望)解决你的家庭成员让你烦恼的大多数问题。
 

@@ -1,6 +1,6 @@
 # 这个自动暂停的网飞扩展是 Chrome 用户的必备工具
 
-> 原文:[https://life hacker . com/this-auto-paging-网飞-extension-is-a-must-have-for-1832220756](https://lifehacker.com/this-auto-pausing-netflix-extension-is-a-must-have-for-1832220756)
+> 原文：<https://lifehacker.com/this-auto-pausing-netflix-extension-is-a-must-have-for-1832220756>
 
 我最喜欢的网飞把戏之一很简单。当你在你的网络浏览器，而不是一个独立的网飞应用程序中观看流媒体服务上你最喜欢的电视节目时，你很可能会遇到片头字幕，不得不拖动你的鼠标，点击方便的“跳过介绍”按钮开始。我认为这太麻烦了，因为你也可以点击键盘上的“s”来激活按钮。节省的秒数*。*
 

@@ -1,6 +1,6 @@
 # 如何查明 Equifax 是否欠你钱
 
-> 原文:[https://life hacker . com/how-to-find-out-if-equifax-ows-you money-1836662442](https://lifehacker.com/how-to-find-out-if-equifax-owes-you-money-1836662442)
+> 原文：<https://lifehacker.com/how-to-find-out-if-equifax-owes-you-money-1836662442>
 
 如果你在 2017 年受到了 Equifax 大规模数据泄露的影响，你最终可以要求赔偿。美国联邦贸易委员会 [宣布与信用局](https://www.ftc.gov/enforcement/cases-proceedings/refunds/equifax-data-breach-settlement) 达成和解，包括为 1.47 亿数据受损的人赔偿 4.25 亿美元。
 

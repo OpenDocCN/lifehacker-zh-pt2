@@ -1,6 +1,6 @@
 # 使用这个减少标签的扩展来加速谷歌浏览器
 
-> 原文:[https://life hacker . com/speed-up-Google-chrome-with-this-tab-reducing-extension-1831909030](https://lifehacker.com/speed-up-google-chrome-with-this-tab-reducing-extension-1831909030)
+> 原文：<https://lifehacker.com/speed-up-google-chrome-with-this-tab-reducing-extension-1831909030>
 
 我现在在电脑上打开了大约 70 个标签，误差不大。我把 Chrome 标签当做临时书签。例如，我打开的几个标签页是我以后想读的故事，还有几个是我目前正在计划的旧金山啤酒周活动。这不是最有效的工作方式，但这是我选择的方式。不幸的是，这也是一种消耗大量能量的方式。
 

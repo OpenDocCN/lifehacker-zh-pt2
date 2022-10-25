@@ -1,6 +1,6 @@
 # 如何建立 60/40 预算
 
-> 原文:[https://life hacker . com/how-to-set-up-a-60-40-budget-1843985810](https://lifehacker.com/how-to-set-up-a-60-40-budget-1843985810)
+> 原文：<https://lifehacker.com/how-to-set-up-a-60-40-budget-1843985810>
 
 预算的一个挑战是，如果你在试图理解你的财务义务时过于细化，你很可能会立即放弃，认为这太难了。
 

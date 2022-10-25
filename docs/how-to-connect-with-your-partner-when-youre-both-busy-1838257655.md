@@ -1,6 +1,6 @@
 # 当你们都很忙的时候，如何和你的伴侣联系
 
-> 原文:[https://life hacker . com/how-to-connect-with-you-partner-when-you-busy-1838257655](https://lifehacker.com/how-to-connect-with-your-partner-when-youre-both-busy-1838257655)
+> 原文：<https://lifehacker.com/how-to-connect-with-your-partner-when-youre-both-busy-1838257655>
 
 让我们面对现实吧:如果你在抚养孩子的战壕中，生活就是普通的忙碌。在拼车任务、占用家庭晚餐时间的工作项目和似乎永远不会结束的家务之间，找到时间与你重要的另一半联系完全是一个挑战。
 

@@ -1,6 +1,6 @@
 # 我需要一辆与贝弗利山格格不入的异国情调的车！我应该买什么？
 
-> 原文:[https://jalopnik . com/I-need-a-exotic-car-for-Beverly-hills-that-not-blend-1832012504](https://jalopnik.com/i-need-an-exotic-car-for-beverly-hills-that-doesnt-blen-1832012504)
+> 原文：<https://jalopnik.com/i-need-an-exotic-car-for-beverly-hills-that-doesnt-blen-1832012504>
 
 克拉克住在贝弗利山，但他和那些开着新法拉利兜风的人不太一样。我知道，是可以理解的。但是他有一个六位数预算的外国车迷——不知何故，这并没有使他的决定更容易。他应该买什么车？
 

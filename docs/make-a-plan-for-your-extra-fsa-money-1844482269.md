@@ -1,6 +1,6 @@
 # 为你额外的 FSA 钱做一个计划
 
-> 原文:[https://life hacker . com/make-a-plan-for-your-extra-FSA-money-1844482269](https://lifehacker.com/make-a-plan-for-your-extra-fsa-money-1844482269)
+> 原文：<https://lifehacker.com/make-a-plan-for-your-extra-fsa-money-1844482269>
 
 随着冠状病毒的肆虐，人们很容易忘记时间。如果你有一大笔灵活支出账户(FSA)的钱，你可能知道花这笔钱的最后期限快到了，随着在医疗费用或儿童保育上花钱的方式越来越少，许多人可能会在年底前陷入困境。幸运的是，在时间用完之前，还有时间为你的 FSA 制定一个计划。
 

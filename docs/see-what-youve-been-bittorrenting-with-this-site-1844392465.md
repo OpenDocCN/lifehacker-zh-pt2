@@ -1,6 +1,6 @@
 # 查看您在此网站上发表的内容
 
-> 原文:[https://life hacker . com/see-what-you-be-bittorrenting-with this-site-1844392465](https://lifehacker.com/see-what-youve-been-bittorrenting-with-this-site-1844392465)
+> 原文：<https://lifehacker.com/see-what-youve-been-bittorrenting-with-this-site-1844392465>
 
 无论你和你的室友对 BitTorrent 完全陌生，或者你已经下载了足够多的 Linux 发行版、公共领域电影和 [音乐会录音](http://bt.etree.org/) 让你的 ISP 对你的每月数据上限非常感兴趣，有一个很好的工具你应该用来检查你的 BitTorrent 活动实际上有多公开。
 

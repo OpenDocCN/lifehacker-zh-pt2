@@ -1,6 +1,6 @@
 # 如果你有残疾，考虑一个有能力的储蓄账户
 
-> 原文:[https://life hacker . com/if-you-hacken-a-able-savings-acco-1835483809](https://lifehacker.com/if-you-have-a-disability-consider-an-able-savings-acco-1835483809)
+> 原文：<https://lifehacker.com/if-you-have-a-disability-consider-an-able-savings-acco-1835483809>
 
 如果你有残疾，你可能会错过省钱的机会。能力储蓄账户允许残障人士为他们的财务需求储蓄— *而*不会因为这些储蓄而取消他们享受政府福利如医疗补助的资格。
 

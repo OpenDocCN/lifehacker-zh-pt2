@@ -1,6 +1,6 @@
 # 如何使用亚马逊的 Alexa 控制你的 Roku
 
-> 原文:[https://life hacker . com/how-to-control-your-Roku-using-amazons-Alexa-1833065191](https://lifehacker.com/how-to-control-your-roku-using-amazons-alexa-1833065191)
+> 原文：<https://lifehacker.com/how-to-control-your-roku-using-amazons-alexa-1833065191>
 
 我在台式电脑上方的墙上安装了一台 Roku 电视——在地震多发的加州，有一天它肯定会杀了我——我总是不得不翻遍成堆的东西来找遥控器。当然，我也可以用我的万能遥控器打开它，但那是在房间的另一头。
 

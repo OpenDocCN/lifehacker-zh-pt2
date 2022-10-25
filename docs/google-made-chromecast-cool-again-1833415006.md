@@ -1,6 +1,6 @@
 # 谷歌让 Chromecast 再次变得很酷
 
-> 原文:[https://gizmodo . com/Google-made-chrome cast-cool-again-1833415006](https://gizmodo.com/google-made-chromecast-cool-again-1833415006)
+> 原文：<https://gizmodo.com/google-made-chromecast-cool-again-1833415006>
 
 在 Gizmodo，没有什么比吃掉自己的话更有意义的了。所以我来了。六个月前，我评测了看起来很无聊的新谷歌 Chromecast，一个我称之为“不尽如人意”的小玩意。 不 w 谷歌已经有效地将 Chromecast 变成了未来的视频游戏机。这是我自食其言。
 

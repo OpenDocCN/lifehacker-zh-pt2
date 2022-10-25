@@ -1,6 +1,6 @@
 # 如何让朋友紧急访问您的在线帐户
 
-> 原文:[https://life hacker . com/how-to-give-friends-emergency-access-to-your-online-ACC-1831340372](https://lifehacker.com/how-to-give-friends-emergency-access-to-your-online-acc-1831340372)
+> 原文：<https://lifehacker.com/how-to-give-friends-emergency-access-to-your-online-acc-1831340372>
 
 随着这一年接近尾声，现在是让你的数字生活井然有序的好时机。从 [整理你的在线照片](https://lifehacker.com/organize-your-photos-with-this-windows-app-1830383368) 到用 [新的安全密码](https://lifehacker.com/how-to-create-secure-passwords-that-arent-impossible-to-1825048324) 刷新你的账户，或者最后 [清理你的浏览器书签](https://lifehacker.com/the-ultimate-guide-to-organizing-your-messy-chrome-book-1826770044)；在 2019 年热播之前，有很多问题需要你去解决。
 

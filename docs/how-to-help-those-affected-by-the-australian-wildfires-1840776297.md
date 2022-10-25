@@ -1,6 +1,6 @@
 # 如何帮助那些受澳大利亚野火影响的人
 
-> 原文:[https://life hacker . com/how-to-help-那些受澳大利亚野火影响的人-1840776297](https://lifehacker.com/how-to-help-those-affected-by-the-australian-wildfires-1840776297)
+> 原文：<https://lifehacker.com/how-to-help-those-affected-by-the-australian-wildfires-1840776297>
 
 截至周四早上，持续的森林大火继续肆虐澳大利亚。至少有 15 人死亡， [17 人失踪，](https://www.theguardian.com/australia-news/live/2020/jan/02/nsw-fires-live-news-victoria-bushfires-australia-near-south-coast-tourists-latest-updates-) ，受灾最严重的新南威尔士州大约有一千万英亩土地和一千所房屋被毁；据估计，全国至少有 1200 万英亩土地被烧毁。大火还毁坏了国家公园的土地，影响了悉尼等主要城市的空气质量。
 

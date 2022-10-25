@@ -1,6 +1,6 @@
 # 停止向天空释放气球
 
-> 原文:[https://life hacker . com/stop-releasing-balloons-into-sky-1831873033](https://lifehacker.com/stop-releasing-balloons-into-the-sky-1831873033)
+> 原文：<https://lifehacker.com/stop-releasing-balloons-into-the-sky-1831873033>
 
 一旦你把气球放飞到天空中，它们到底会去哪里？我们现在知道了答案，不幸的是，它一点也不漂亮。
 

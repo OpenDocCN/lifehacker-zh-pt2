@@ -1,6 +1,6 @@
 # 我们所知道的迪士尼世界将于 7 月重新开放
 
-> 原文:[https://life hacker . com/what-we-know-about-Disney-worlds-reopening-in-July-1843768956](https://lifehacker.com/what-we-know-about-disney-worlds-reopening-in-july-1843768956)
+> 原文：<https://lifehacker.com/what-we-know-about-disney-worlds-reopening-in-july-1843768956>
 
 截至 3 月中旬，全球所有的 [迪士尼主题公园和度假村](https://www.vox.com/the-goods/2020/3/12/21177375/disney-coronavirus-covid-19-theme-parks-disneyworld-disneyland) 因新冠肺炎疫情关闭。现在，随着一些州开始重新开放的进程，佛罗里达州的华特·迪士尼世界已经宣布计划欢迎人们从 7 月 11 日 开始回到地球上最快乐的地方 [。5 月 29 日星期五，迪斯尼世界主题公园和度假村得到了佛罗里达州奥兰治县经济复苏特别工作组的批准，重新开放，所以这是官方的，](https://disneyparks.disney.go.com/blog/2020/05/plans-unveiled-for-the-phased-reopening-of-walt-disney-world-resort-theme-parks-resort-hotels-and-disney-stores/) [《奥兰多哨兵报》报道](https://www.orlandosentinel.com/coronavirus/jobs-economy/os-bz-disney-world-plan-approved-20200529-k5z54zd4rbh2fhqq4iyrsjqx24-story.html) 。这是我们目前所知的。
 

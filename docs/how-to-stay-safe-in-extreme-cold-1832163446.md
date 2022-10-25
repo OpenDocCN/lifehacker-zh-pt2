@@ -1,6 +1,6 @@
 # 如何在极度寒冷中保持安全
 
-> 原文:[https://life hacker . com/how-to-stay-safe-in-extreme-cold-1832163446](https://lifehacker.com/how-to-stay-safe-in-extreme-cold-1832163446)
+> 原文：<https://lifehacker.com/how-to-stay-safe-in-extreme-cold-1832163446>
 
 创纪录的低温本周袭击了美国大部分地区。在某些地方，你可能会经历一生中从未见过的寒冷天气。当寒冷袭来时，你应该知道这些。
 

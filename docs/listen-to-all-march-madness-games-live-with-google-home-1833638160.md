@@ -1,6 +1,6 @@
 # 使用 Google Home 和 Google Assistant 实时收听所有三月疯狂游戏
 
-> 原文:[https://life hacker . com/listen-to-all-March-madness-games-live-with-Google-home-1833638160](https://lifehacker.com/listen-to-all-march-madness-games-live-with-google-home-1833638160)
+> 原文：<https://lifehacker.com/listen-to-all-march-madness-games-live-with-google-home-1833638160>
 
 [2019 年 3 月疯狂](https://lifehacker.com/how-to-watch-the-ncaa-march-madness-bracket-reveal-from-1833358941) 可能已经接近比赛的最后阶段，但谷歌助手 tant 可以通过各种语音命令帮助你跟上剩余的比赛，甚至可以让你 [免费收听 NCAA 韦斯特伍德一号的每场比赛](https://www.blog.google/products/assistant/tune-march-madness-free-your-google-assistant/)——前提是你有合适的设备。
 

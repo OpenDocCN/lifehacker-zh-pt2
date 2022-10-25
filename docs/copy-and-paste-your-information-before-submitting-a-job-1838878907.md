@@ -1,6 +1,6 @@
 # 提交工作申请前，复制并粘贴您的信息
 
-> 原文:[https://life hacker . com/copy-and-paste-your-information-before-submit-a-job-1838878907](https://lifehacker.com/copy-and-paste-your-information-before-submitting-a-job-1838878907)
+> 原文：<https://lifehacker.com/copy-and-paste-your-information-before-submitting-a-job-1838878907>
 
 找工作最糟糕的部分是在线申请，要求你重新输入你的 information⁠—after 你已经上传了你该死的简历。这是浪费时间，然而，你需要花半个小时写下那些雇主已经有的信息。
 

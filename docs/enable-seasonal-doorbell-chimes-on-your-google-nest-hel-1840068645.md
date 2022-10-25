@@ -1,6 +1,6 @@
 # 在你的 Google Nest 上启用季节性门铃铃声你好
 
-> 原文:[https://life hacker . com/enable-seasonal-门铃-钟声-on-your-Google-nest-hel-1840068645](https://lifehacker.com/enable-seasonal-doorbell-chimes-on-your-google-nest-hel-1840068645)
+> 原文：<https://lifehacker.com/enable-seasonal-doorbell-chimes-on-your-google-nest-hel-1840068645>
 
 由于新的节日主题门铃，谷歌的 Nest Hello 门铃现在可以响起一点季节性的欢呼。Nest 应用程序目前有四个门铃主题可供选择:圣诞节、光明节、新年前夕和冬天。四个主题中的每一个都有 10 种不同的钟声，当有人按门铃时就会响起。这些包括流行的节日经典，传统的宗教歌曲，以及基于每个特定主题的普通音乐。
 

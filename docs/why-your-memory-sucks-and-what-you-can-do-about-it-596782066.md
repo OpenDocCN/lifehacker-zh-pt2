@@ -1,6 +1,6 @@
 # 为什么你的记忆力很差，你能做些什么
 
-> 原文:[https://life hacker . com/why-your memory-sucks-and-what-you-can-do-that-596782066](https://lifehacker.com/why-your-memory-sucks-and-what-you-can-do-about-it-596782066)
+> 原文：<https://lifehacker.com/why-your-memory-sucks-and-what-you-can-do-about-it-596782066>
 
 人类的记忆既迷人又容易出错。你可以丢掉好几年的西班牙语课，但仍然可以背诵《盗亦有道》的开场场景。你记得自己在闺蜜的婚礼上穿了什么，却想不起上周三穿了什么。你*确定你在 sat 考试中获得了 730 分，但你的实际分数却不是这样。* 
 

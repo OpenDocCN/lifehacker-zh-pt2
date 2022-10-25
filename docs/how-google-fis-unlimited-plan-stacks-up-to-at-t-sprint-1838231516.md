@@ -1,6 +1,6 @@
 # Google Fi 的无限计划如何与美国电话电报公司、Sprint、T-Mobile 和威瑞森相抗衡
 
-> 原文:[https://life hacker . com/how-Google-fis-unlimited-plan-stacks-up-to-at-t-sprint-1838231516](https://lifehacker.com/how-google-fis-unlimited-plan-stacks-up-to-at-t-sprint-1838231516)
+> 原文：<https://lifehacker.com/how-google-fis-unlimited-plan-stacks-up-to-at-t-sprint-1838231516>
 
 谷歌的移动服务 Google Fi 终于有了一个 [无限数据计划](https://fi.google.com/about/plans/) 。虽然以前定义 Fi 服务的滑动比例“灵活计划”仍然可用，但新的无限计划提供了更传统的定价结构，减少了数据节流，以及其他一些额外待遇。让我们来看看 Fi 的新无限计划，看看它与威瑞森、Sprint、T-Mobile 和 AT & T.
 的类似计划相比如何

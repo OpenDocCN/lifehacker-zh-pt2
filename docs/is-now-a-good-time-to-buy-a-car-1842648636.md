@@ -1,6 +1,6 @@
 # 现在是买车的好时机吗？
 
-> 原文:[https://life hacker . com/is-now-a-good-time-to-buy-a-car-1842648636](https://lifehacker.com/is-now-a-good-time-to-buy-a-car-1842648636)
+> 原文：<https://lifehacker.com/is-now-a-good-time-to-buy-a-car-1842648636>
 
 最近看过新车广告吗？它们可能以诱人的价格和慷慨的融资选择为特色。这并不是因为汽车制造商的巨大改变；相信我，他们还是想赚钱的。汽车现在很便宜，因为冠状病毒 让人们呆在家里——推迟了他们可能不得不购买新车的计划。
 

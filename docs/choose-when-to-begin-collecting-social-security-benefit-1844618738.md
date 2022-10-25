@@ -1,6 +1,6 @@
 # 使用此计算器选择何时开始收集社会保障福利
 
-> 原文:[https://life hacker . com/choose-when-to-begin-collection-social-security-benefit-1844618738](https://lifehacker.com/choose-when-to-begin-collecting-social-security-benefit-1844618738)
+> 原文：<https://lifehacker.com/choose-when-to-begin-collecting-social-security-benefit-1844618738>
 
 当你离退休越来越近的时候，你可能想知道什么时候开始领取社会保障福利。这里有一些重要的事情需要知道:尽管你可以选择早在 62 岁 时就开始接受付款 [，但你可以通过以后接受付款来增加你的福利金额。你的社会保障福利随着你等待的每个月而增加——从](https://www.ssa.gov/benefits/retirement/planner/agereduction.html) [到 70 岁](https://www.ssa.gov/benefits/retirement/planner/delayret.html)——但是，当然，为更大的支票多等几年也意味着你收到的支票总数会更少。你如何计算出盈亏平衡点？
 

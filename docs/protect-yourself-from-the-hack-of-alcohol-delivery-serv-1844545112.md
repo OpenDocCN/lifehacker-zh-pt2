@@ -1,6 +1,6 @@
 # 保护自己免受酒类配送服务德里兹利最近的黑客攻击
 
-> 原文:[https://life hacker . com/protect-you-from-the-hack-of-the-alcohol-delivery-serv-1844545112](https://lifehacker.com/protect-yourself-from-the-hack-of-alcohol-delivery-serv-1844545112)
+> 原文：<https://lifehacker.com/protect-yourself-from-the-hack-of-alcohol-delivery-serv-1844545112>
 
 如果你使用 Drizly，你的数据很可能在网上出售。这家在线酒精配送服务公司最近向其客户发出警告，称一名黑客侵入了其服务器，从多达 250 万个账户的订单中窃取了大量用户信息，包括电子邮件地址、电话号码、出生日期、散列密码数据、配送地址、IP 地址和地理位置。
 

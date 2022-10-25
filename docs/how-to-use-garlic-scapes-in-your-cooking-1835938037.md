@@ -1,6 +1,6 @@
 # 如何在烹饪中使用蒜苔
 
-> 原文:[https://the take out . com/how-to-use-大蒜在烹饪中的作用-1835938037](https://thetakeout.com/how-to-use-garlic-scapes-in-your-cooking-1835938037)
+> 原文：<https://thetakeout.com/how-to-use-garlic-scapes-in-your-cooking-1835938037>
 
 在农贸市场购买蒜苔很容易让人冲动。供应商承诺这些绿色花饰每年只在短短的几周内有售(参见:坡道),而且花坛的形状像苏斯博士的发明，以此来吸引你。“多好玩啊，我要六个！”但是一旦你回家了，该怎么处理它们呢？
 

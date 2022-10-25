@@ -1,6 +1,6 @@
 # 你应该租赁你的下一个大宗采购吗？
 
-> 原文:[https://life hacker . com/should-you-lease-your ' s next-big-purchase-1842067415](https://lifehacker.com/should-you-lease-your-next-big-purchase-1842067415)
+> 原文：<https://lifehacker.com/should-you-lease-your-next-big-purchase-1842067415>
 
 渐进式租赁已经存在 20 年了。如果你在床垫公司、Lowes、Kay Jewelers、Pandora、Big Lots、Metro PCS、Cricket Wireless 和 Sam Ash 购物，你可能会看到这家公司的名字——这只是其中的几个例子。
 

@@ -1,6 +1,6 @@
 # 使用联系人追踪应用程序要格外小心
 
-> 原文:[https://life hacker . com/be-extra-precious-with-contact-tracing-apps-1843611802](https://lifehacker.com/be-extra-cautious-with-contact-tracing-apps-1843611802)
+> 原文：<https://lifehacker.com/be-extra-cautious-with-contact-tracing-apps-1843611802>
 
 就像新冠肺炎疫情的几乎所有方面一样，关于有效的接触者追踪，我们还有很多不知道的。此时，联系人追踪应用程序必须收集您的大量信息，并与其他组织共享。这不是阴谋妄想症；收集和分享你的信息正是这些应用程序应该做的事情。问题是，很难确切知道这些公司是如何存储和使用这些数据的。
 

@@ -1,6 +1,6 @@
 # HBO 将在劳动节周末提前播放周日节目[更新:他们已经来了]
 
-> 原文:[https://life hacker . com/HBO-is-streaming-its-Sunday-shows-early-for-labor-day-w-1837717967](https://lifehacker.com/hbo-is-streaming-its-sunday-shows-early-for-labor-day-w-1837717967)
+> 原文：<https://lifehacker.com/hbo-is-streaming-its-sunday-shows-early-for-labor-day-w-1837717967>
 
 **更新时间:2019 年 8 月 30 日美国东部时间上午 11 点:**截至周五上午，新剧集已经在 HBO Go 和 HBO Now 直播。
 

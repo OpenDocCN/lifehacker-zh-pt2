@@ -1,6 +1,6 @@
 # 洗脸时如何不让水顺着手臂流下来
 
-> 原文:[https://life hacker . com/how-to-keep-water-down-you-when-1844714670](https://lifehacker.com/how-to-keep-water-from-running-down-your-arms-when-you-1844714670)
+> 原文：<https://lifehacker.com/how-to-keep-water-from-running-down-your-arms-when-you-1844714670>
 
 等等，所以不仅仅是我？当我第一次看到 [时，我想到了这个 Reddit 帖子](https://www.reddit.com/r/beauty/comments/i8d4jq/ummm_how_the_hell_do_you_guys_wash_your_face_over/?utm_source=share&utm_medium=ios_app&utm_name=iossmf) 关于如何洗脸而不会弄得脏兮兮的。如果你手里有水，并且你的手和脸平齐，水会顺着你的手肘滴到你的柜台或地板上。感谢，*重力*。事实证明，这不仅是一个普遍的问题，不是“我”的问题，还有多种解决方案。
 

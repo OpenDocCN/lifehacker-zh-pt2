@@ -1,6 +1,6 @@
 # 现在是买你最喜欢的调味品的时候了
 
-> 原文:[https://life hacker . com/now-is-time-to-buy-your-favorite-conditions-1842296285](https://lifehacker.com/now-is-the-time-to-buy-your-favorite-condiments-1842296285)
+> 原文：<https://lifehacker.com/now-is-the-time-to-buy-your-favorite-condiments-1842296285>
 
 任何类型的危机都倾向于把人们转变成一种功利的、没有虚饰的心态。这适用于洗手液和其他不那么迷人的必需品，但我不会接受它用于食物。在接下来的几周里，我们可能都在吃豆子，但是没有理由这些豆子应该是淡而无味的。
 

@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:我男朋友找不到工作
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-my-boy-wot-get-a-job-1841493063](https://kotaku.com/ask-dr-nerdlove-my-boyfriend-wont-get-a-job-1841493063)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-my-boyfriend-wont-get-a-job-1841493063>
 
 大家好，你们这些令人不安的费洛蒙狼，欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是唯一一个帮助你为 4K 重塑爱情生活的约会建议专栏，也帮助你的关系看起来和感觉起来像你记忆中的新关系。
 

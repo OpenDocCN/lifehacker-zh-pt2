@@ -1,6 +1,6 @@
 # STI 呈上升趋势，以下是您需要了解的内容
 
-> 原文:[https://Jezebel . com/STIs-are-the-rise-heres-what-you-need-to-know 1833403369](https://jezebel.com/stis-are-on-the-rise-heres-what-you-need-to-know-1833403369)
+> 原文：<https://jezebel.com/stis-are-on-the-rise-heres-what-you-need-to-know-1833403369>
 
 前几天，我的病人，我称他为萨姆，因为两个原因来做常规性传播感染(STI)筛查。首先，他说他刚刚与一个在约会应用程序上认识的人开始了一段新的关系，并希望确保他是清白的。那天他没有任何症状。第二，他在某处读到性传播感染呈上升趋势，他对此感到担忧。
 

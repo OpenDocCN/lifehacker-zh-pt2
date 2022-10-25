@@ -1,6 +1,6 @@
 # 确保您没有从 Google Play 下载这些恶意应用程序
 
-> 原文:[https://life hacker . com/make-assure-you-not-download-one-of-these-malicious-app-1830662773](https://lifehacker.com/make-sure-you-didnt-download-one-of-these-malicious-app-1830662773)
+> 原文：<https://lifehacker.com/make-sure-you-didnt-download-one-of-these-malicious-app-1830662773>
 
 如果你最近从 Google Play 下载了一款赛车游戏，你可能需要检查一下，确保它不是恶意软件。
 

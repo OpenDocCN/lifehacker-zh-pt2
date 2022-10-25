@@ -1,6 +1,6 @@
 # 查看这份儿童教育直播列表
 
-> 原文:[https://life hacker . com/check-out-this-list-of-educational-live streams-for-kids-1842842724](https://lifehacker.com/check-out-this-list-of-educational-livestreams-for-kids-1842842724)
+> 原文：<https://lifehacker.com/check-out-this-list-of-educational-livestreams-for-kids-1842842724>
 
 每天，我们都会听到一个新的教育直播，我们的孩子可以或者应该收听这个直播。虚拟博物馆之旅，参观动物园和科学演示——甚至还有 [虚拟体育课](https://offspring.lifehacker.com/how-to-burn-off-that-little-kid-energy-1842620326) 。资源就在那里；挑战在于保持它们都是直的。
 

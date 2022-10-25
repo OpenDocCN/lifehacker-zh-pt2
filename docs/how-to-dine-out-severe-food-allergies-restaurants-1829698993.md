@@ -1,6 +1,6 @@
 # 当你有严重的食物过敏时，如何外出就餐——以及餐馆如何提供帮助
 
-> 原文:[https://the take out . com/how-to-dine-out-severe-food-allergies-restaurants-1829698993](https://thetakeout.com/how-to-dine-out-severe-food-allergies-restaurants-1829698993)
+> 原文：<https://thetakeout.com/how-to-dine-out-severe-food-allergies-restaurants-1829698993>
 
 我对食物过敏。比你想知道的多得多，但我还是要告诉你:鱼或贝类让我因危及生命的过敏反应、荨麻疹和可怕的肿胀而被送进医院。杏仁或腰果等生坚果也有类似的反应，但没有那么严重。藜麦对我来说是一种新出现的过敏，导致了最近的麻疹爆发。椰子味的黄色咖喱也一样。我最发达的肌肉是我的组胺。
 

@@ -1,6 +1,6 @@
 # 如何估算你花在流媒体音乐和视频上的数据
 
-> 原文:[https://life hacker . com/how-to-estimate-the-data-you-spend-streaming-music-and-1844693106](https://lifehacker.com/how-to-estimate-the-data-you-spend-streaming-music-and-1844693106)
+> 原文：<https://lifehacker.com/how-to-estimate-the-data-you-spend-streaming-music-and-1844693106>
 
 有没有想过你的流媒体应用使用了多少数据？这里有一个好消息:在大多数情况下，当你查看相同类型和质量的内容时，大多数应用程序之间的差异并不是那么极端。(例如，网飞和 Hulu 的平均水平将会差不多。)
 

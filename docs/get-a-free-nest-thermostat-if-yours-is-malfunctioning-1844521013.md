@@ -1,6 +1,6 @@
 # 如果你的恒温器有故障，可以免费得到一个 Nest 恒温器
 
-> 原文:[https://life hacker . com/get-a-free-nest-thermostat-if-your ' s-is-faulting-1844521013](https://lifehacker.com/get-a-free-nest-thermostat-if-yours-is-malfunctioning-1844521013)
+> 原文：<https://lifehacker.com/get-a-free-nest-thermostat-if-yours-is-malfunctioning-1844521013>
 
 如果你的 Nest 恒温器无法(或曾经无法)连接 wifi，谷歌会免费给你送一个替代品。
 

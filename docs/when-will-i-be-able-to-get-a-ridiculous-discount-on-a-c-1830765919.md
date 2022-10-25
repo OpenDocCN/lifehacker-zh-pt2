@@ -1,6 +1,6 @@
 # 我什么时候才能在一辆被取消的通用汽车上得到可笑的折扣？
 
-> 原文:[https://jalopnik . com/when-when-I-be-able-to-get-a-a-c-1830765919](https://jalopnik.com/when-will-i-be-able-to-get-a-ridiculous-discount-on-a-c-1830765919)
+> 原文：<https://jalopnik.com/when-will-i-be-able-to-get-a-ridiculous-discount-on-a-c-1830765919>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。我决定挑几个问题，试着帮帮大家。本周，我们将讨论通用汽车公司取消的汽车 的潜在大甩卖，为朋友验车，以及买断租约。
 

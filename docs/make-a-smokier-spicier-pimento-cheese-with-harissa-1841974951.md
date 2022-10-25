@@ -1,6 +1,6 @@
 # 用哈里萨做一道更烟熏、更辣的甜椒奶酪
 
-> 原文:[https://life hacker . com/make-a-smokier-spicier-pimento-cheese-with-ha rissa-1841974951](https://lifehacker.com/make-a-smokier-spicier-pimento-cheese-with-harissa-1841974951)
+> 原文：<https://lifehacker.com/make-a-smokier-spicier-pimento-cheese-with-harissa-1841974951>
 
 我从来没有遇到过我不喜欢的甜椒奶酪，可能是因为很难搞砸蛋黄酱、各种奶酪和甜而芳香的辣椒的组合。我认为标准配方不需要太多调整，但是如果你想让你的甜椒酱更大胆、更烟熏、更辣，那就拿一管哈里萨吧。
 

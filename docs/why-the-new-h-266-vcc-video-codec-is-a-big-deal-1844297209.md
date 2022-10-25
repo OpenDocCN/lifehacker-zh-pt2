@@ -1,6 +1,6 @@
 # 为什么新的 H.266/VCC 视频编解码器如此重要
 
-> 原文:[https://life hacker . com/why-the-new-h-266-VCC-video-codec-is-a-big-deal-1844297209](https://lifehacker.com/why-the-new-h-266-vcc-video-codec-is-a-big-deal-1844297209)
+> 原文：<https://lifehacker.com/why-the-new-h-266-vcc-video-codec-is-a-big-deal-1844297209>
 
 新的 H .266 视频编解码器是一件大事。你还不能玩它——尽管你可能很想去安装手刹，享受已经优化的 H .265 视频的一半大小的视频编码——但它的存在*将*加速最终向 8K HDR 视频的过渡。这是好事，对吧？
 

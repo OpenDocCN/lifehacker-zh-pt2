@@ -1,6 +1,6 @@
 # 听到以英语为母语人说出你想不出来的外来词
 
-> 原文:[https://life hacker . com/find-out-how-that-say-at-forvo-375734](https://lifehacker.com/find-out-how-its-said-at-forvo-375734)
+> 原文：<https://lifehacker.com/find-out-how-its-said-at-forvo-375734>
 
 使用像 Duolingo 这样的应用程序学习语言是完全值得尊敬的，但除非你想让你的法语有明显的 Siri 般的质量，否则你需要拓展一下。这就是像 [Forvo](https://forvo.com) 这样的网站的用武之地。
 

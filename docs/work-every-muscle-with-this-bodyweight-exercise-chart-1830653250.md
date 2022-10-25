@@ -1,6 +1,6 @@
 # 用这张体重锻炼表锻炼每块肌肉
 
-> 原文:[https://life hacker . com/work-every-muscle with this body weight-exercise-chart-1830653250](https://lifehacker.com/work-every-muscle-with-this-bodyweight-exercise-chart-1830653250)
+> 原文：<https://lifehacker.com/work-every-muscle-with-this-bodyweight-exercise-chart-1830653250>
 
 制定一个 [体重锻炼计划](https://lifehacker.com/everything-you-need-to-build-your-own-bodyweight-workou-1770226539) 很简单:只要做一些俯卧撑，一些深蹲，还有一些...哦...其他东西。为了获得平衡的锻炼，你必须知道哪些锻炼针对哪些肌肉。这就是为什么我们喜欢来自 Darebee 的 [这张体重锻炼图。](https://darebee.com/muscle-map.html) 
 

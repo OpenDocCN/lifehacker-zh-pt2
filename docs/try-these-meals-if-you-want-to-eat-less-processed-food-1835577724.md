@@ -1,6 +1,6 @@
 # 如果你想少吃加工食品，试试这些食物
 
-> 原文:[https://life hacker . com/try-these-meals-if-want-to-eat-less-processed-food-1835577724](https://lifehacker.com/try-these-meals-if-you-want-to-eat-less-processed-food-1835577724)
+> 原文：<https://lifehacker.com/try-these-meals-if-you-want-to-eat-less-processed-food-1835577724>
 
 上个月，一项研究发现，食用过度加工的[食物(想想谷类和松饼)的人，比那些食用较少加工食物的人摄入更多热量，体重增加更多](https://gizmodo.com/a-new-diet-study-confirms-your-worst-suspicions-about-u-1834818556) 。从那以后，我一直把这项研究的菜单作为早餐的灵感。
 

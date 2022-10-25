@@ -1,6 +1,6 @@
 # 使用该网站分期支付机票和酒店预订费用
 
-> 原文:[https://life hacker . com/pay-for-your-flight and hotel-bookings-in-partitions-1837350616](https://lifehacker.com/pay-for-your-flight-and-hotel-bookings-in-installments-1837350616)
+> 原文：<https://lifehacker.com/pay-for-your-flight-and-hotel-bookings-in-installments-1837350616>
 
 我们可能都知道，在大多数情况下，你越早为你的假期或姐妹的婚礼预订机票和酒店，它们就越便宜。
 

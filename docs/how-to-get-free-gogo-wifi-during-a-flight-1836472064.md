@@ -1,6 +1,6 @@
 # 如何在飞行中获得免费的 Gogo Wifi 更新]
 
-> 原文:[https://life hacker . com/how-to-get-free-gogo-wifi-in-a-flight-1836472064](https://lifehacker.com/how-to-get-free-gogo-wifi-during-a-flight-1836472064)
+> 原文：<https://lifehacker.com/how-to-get-free-gogo-wifi-during-a-flight-1836472064>
 
 飞机上的 wifi 付费？你一定是金子做的，因为我绝不会为了区区 30 分钟的上网时间就花 10 美元或者更多。至少，这是 Gogo 在我最近的阿拉斯加航空旅行中收取的费用。但是由于一些聪明的变通办法(如果我自己这么说的话)，我能够获得比我应得的更多的自由上网时间。以下是方法。
 

@@ -1,6 +1,6 @@
 # 马上扔掉你所有不舒服的内衣
 
-> 原文:[https://life hacker . com/throw-out-all-your-uncomfort-minutes-right-now-1832633023](https://lifehacker.com/throw-out-all-of-your-uncomfortable-underwear-right-now-1832633023)
+> 原文：<https://lifehacker.com/throw-out-all-of-your-uncomfortable-underwear-right-now-1832633023>
 
 人生苦短，不适合穿不舒服的内衣。
 

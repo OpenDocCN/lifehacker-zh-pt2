@@ -1,6 +1,6 @@
 # 如何在标签页标题上显示未读 Gmail 邮件的数量
 
-> 原文:[https://life hacker . com/how-to-display-the-number of-unread-Gmail-messages-you-1839912868](https://lifehacker.com/how-to-display-the-number-of-unread-gmail-messages-you-1839912868)
+> 原文：<https://lifehacker.com/how-to-display-the-number-of-unread-gmail-messages-you-1839912868>
 
 当你有很多未读邮件时，从技术上来说，看你到底有多少邮件需要阅读是没有意义的。
 

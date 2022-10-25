@@ -1,6 +1,6 @@
 # 如何叫醒不想起床的孩子
 
-> 原文:[https://life hacker . com/how-to-wake-up-kids-done-want-to-wake-up-1831959262](https://lifehacker.com/how-to-wake-up-kids-who-dont-want-to-wake-up-1831959262)
+> 原文：<https://lifehacker.com/how-to-wake-up-kids-who-dont-want-to-wake-up-1831959262>
 
 有时候，父母早上最大的障碍是让你的孩子起床。
 

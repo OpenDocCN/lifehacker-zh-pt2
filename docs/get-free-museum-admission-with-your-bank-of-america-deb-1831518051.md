@@ -1,6 +1,6 @@
 # 本周末用你的美国银行借记卡或信用卡获得免费的博物馆门票
 
-> 原文:[https://life hacker . com/get-free-museum-admission-with your ' s bank-of America-deb-1831518051](https://lifehacker.com/get-free-museum-admission-with-your-bank-of-america-deb-1831518051)
+> 原文：<https://lifehacker.com/get-free-museum-admission-with-your-bank-of-america-deb-1831518051>
 
 如果你是美国银行的客户，今年你可以免费参观一些博物馆和美术馆。
 

@@ -1,6 +1,6 @@
 # 当你坐经济舱时，谁坐扶手？
 
-> 原文:[https://life hacker . com/who-get-the-owners-when you-fly-economy-1836255837](https://lifehacker.com/who-gets-the-armrests-when-you-fly-economy-1836255837)
+> 原文：<https://lifehacker.com/who-gets-the-armrests-when-you-fly-economy-1836255837>
 
 没有任何书面规定规定谁有权使用经济舱的哪个扶手——但是有一些不成文的规定。
 

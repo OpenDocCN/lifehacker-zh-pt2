@@ -1,6 +1,6 @@
 # 如何修理自己的缝纫机
 
-> 原文:[https://life hacker . com/how-to-fix-your-own-缝纫机-1843315612](https://lifehacker.com/how-to-fix-your-own-sewing-machine-1843315612)
+> 原文：<https://lifehacker.com/how-to-fix-your-own-sewing-machine-1843315612>
 
 如果你已经把你的缝纫机拿出来做一些检疫工艺品，现在是一个糟糕的时候，如果出了问题，你必须把它拖到修理店。幸运的是，很多常见的缝纫机故障都是你可以在几分钟内自己解决的。
 

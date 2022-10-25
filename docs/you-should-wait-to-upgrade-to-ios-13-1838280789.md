@@ -1,6 +1,6 @@
 # 你应该等待升级到 iOS 13
 
-> 原文:[https://life hacker . com/you-should-wait-to-upgrade-to-IOs-13-1838280789](https://lifehacker.com/you-should-wait-to-upgrade-to-ios-13-1838280789)
+> 原文：<https://lifehacker.com/you-should-wait-to-upgrade-to-ios-13-1838280789>
 
 我们通常会说，尽可能更新到最新版本的 iOS 可能是一个好主意——为了您可以使用的额外功能、潜在的性能提升以及您可能获得的任何 bug 补丁或安全修复。虽然 iOS 13 昨天才发布，但有一个很好的理由可以让你推迟几天更新你的设备:iOS 13.1。
 

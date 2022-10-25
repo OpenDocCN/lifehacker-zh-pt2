@@ -1,6 +1,6 @@
 # 用蛋壳来种植和培育幼苗
 
-> 原文:[https://life hacker . com/use-蛋壳变植物变幼苗-1844070377](https://lifehacker.com/use-eggshells-to-plant-and-grow-seedlings-1844070377)
+> 原文：<https://lifehacker.com/use-eggshells-to-plant-and-grow-seedlings-1844070377>
 
 在检疫烘烤的流行和容易制作的鸡蛋菜肴之间，我们可能会有更多的蛋壳。不是每个人都有时间和精力去清洗和保存蛋壳，但是如果你属于这一类，我们有一个新的(字面上的)小窍门给你。我们已经介绍了几个基于蛋壳的黑客技术，比如 [用它们来让蛞蝓远离你的花园](https://lifehacker.com/keep-slugs-and-pesky-insects-out-of-your-garden-with-eg-824479727) 或者 [漂白你的衣物](https://lifehacker.com/whiten-laundry-with-egg-shells-1603108559)——但这个更可爱，因为它涉及到培育幼苗。
 

@@ -1,6 +1,6 @@
 # 你仍然可以从美国电话电报公司买到价值 90 美元的苹果电视 4K
 
-> 原文:[https://life hacker . com/you-can-still-get-a-90-apple-TV-4k-from-at-t-1839611941](https://lifehacker.com/you-can-still-get-a-90-apple-tv-4k-from-at-t-1839611941)
+> 原文：<https://lifehacker.com/you-can-still-get-a-90-apple-tv-4k-from-at-t-1839611941>
 
 美国电话电报公司本周末放弃了一笔大交易:一台苹果电视 4K，仅售 90 美元。这比其 179 美元的正常价格低了近 50%，也是我们见过的苹果电视 4K 的最低价格。现在，它不再在网上提供，但这并不意味着所有的希望都破灭了。
 

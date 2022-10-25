@@ -1,6 +1,6 @@
 # this is the first photo of a black hole 1833923659
 
-> 原文:[https://gizmodo . com/这是第一张黑洞照片 1833923659](https://gizmodo.com/this-is-the-first-photo-of-a-black-hole-1833923659)
+> 原文：<https://gizmodo.com/this-is-the-first-photo-of-a-black-hole-1833923659>
 
 进入这里的你们，放弃所有的希望吧:科学家们首次展示了黑洞的图像。
 

@@ -1,6 +1,6 @@
 # 告诉我们你的圣路易斯旅行建议
 
-> 原文:[https://life hacker . com/tell-us-your-ST-Louis-travel-tips-1829872803](https://lifehacker.com/tell-us-your-st-louis-travel-tips-1829872803)
+> 原文：<https://lifehacker.com/tell-us-your-st-louis-travel-tips-1829872803>
 
 欢迎来到 t 何接我城。有红雀队，有密苏里民主党，有沿河的半个麦当劳标志。那可是把所有大城市的记者都甩了的小老 [风隙](http://www.vulture.com/2018/07/sharp-objects-wind-gap-missouri-location.html) 。本来 [现在](https://www.stltoday.com/news/local/metro/latest-loop-trolley-opening-guesstimate-it-could-be-a-couple/article_bb26b910-778d-5db3-9d83-7db2674d0398.html) 应该有手推车了。本周，Hack Your City 想知道圣路易斯有哪些好的、秘密的、可以被黑客攻击的东西。
 

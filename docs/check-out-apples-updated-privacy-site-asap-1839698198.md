@@ -1,6 +1,6 @@
 # 尽快查看苹果更新的隐私网站
 
-> 原文:[https://life hacker . com/check-out-apple-updated-privacy-site-asap-1839698198](https://lifehacker.com/check-out-apples-updated-privacy-site-asap-1839698198)
+> 原文：<https://lifehacker.com/check-out-apples-updated-privacy-site-asap-1839698198>
 
 我坚持良好的数据安全，所以当像苹果这样的大型科技公司采取措施更加透明地对待我们的数据时，我感到很温暖。具体来说，我指的是苹果的 [新登陆页面](https://www.apple.com/privacy/) ，它让审查公司的隐私政策和更改安全设置变得更加容易。
 

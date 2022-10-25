@@ -1,6 +1,6 @@
 # 如何制作安东尼·鲍代恩祝福的葡萄牙三明治 Francesinha
 
-> 原文:[https://the take out . com/frances inha-sandwich-recipe-葡萄牙-1839323079](https://thetakeout.com/francesinha-sandwich-recipe-portugal-1839323079)
+> 原文：<https://thetakeout.com/francesinha-sandwich-recipe-portugal-1839323079>
 
 在最近的一次葡萄牙之旅中，波尔图偷走了我的心。我花了我的夜晚穿越它狭窄的小巷，高高的桥，和挑战性的楼梯。这是一个美丽的城市，有着平易近人、脚踏实地的烹饪根基。似乎这个城市的每家餐馆都做一个版本的 Francesinha，使它成为这个城市松散的官方菜肴。你可以把 Francesinha 描述成一个葡萄牙的克罗克夫人。这是两片厚面包，里面填满了可互换的肉类，放在帕尼尼压榨机上，完全覆盖着奶酪，然后浇上由啤酒和西红柿制成的薄酱。
 

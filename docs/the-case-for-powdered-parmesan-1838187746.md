@@ -1,6 +1,6 @@
 # 帕尔马干酪粉的情况
 
-> 原文:[https://life hacker . com/the-case-for-powdered-parmesan-1838187746](https://lifehacker.com/the-case-for-powdered-parmesan-1838187746)
+> 原文：<https://lifehacker.com/the-case-for-powdered-parmesan-1838187746>
 
 廉价的沙克尔干酪不是意大利干酪。“真正的东西”是坚果，略带水果味，充满美味，松脆的晶体。这是一种奢侈的奶酪，一种奇特的男孩奶酪，一种你应该在最好的意大利面上享受蓬松的奶酪。装在绿色摇壶里的奶酪不是帕玛吉亚诺奶酪，但这并不意味着它不值得拥有。
 

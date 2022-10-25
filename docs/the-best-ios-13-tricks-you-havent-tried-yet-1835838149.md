@@ -1,6 +1,6 @@
 # 你还没试过的最好的 iOS 13 招数
 
-> 原文:[https://life hacker . com/the-best-IOs-13-tricks-you-haven-yet-1835838149](https://lifehacker.com/the-best-ios-13-tricks-you-havent-tried-yet-1835838149)
+> 原文：<https://lifehacker.com/the-best-ios-13-tricks-you-havent-tried-yet-1835838149>
 
 [Lifehacker's Complete Guide to iOS](https://appleios.kinja.com)) : title[![](../Images/71562cabb8ab94eee70dc08ff80378ef.png)](https://appleios.kinja.com)[Lifehacker's Complete Guide to iOS](https://appleios.kinja.com)Apple's iPhone is easy to learn, but difficult to master. Instead of spending hours sifting through settings yourself, check out our giant collection of guides, tips, and tricks for all things iOS.
 

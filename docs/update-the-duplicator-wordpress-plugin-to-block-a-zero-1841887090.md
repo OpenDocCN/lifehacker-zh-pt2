@@ -1,6 +1,6 @@
 # 更新“复制器”插件来阻止零日攻击
 
-> 原文:[https://life hacker . com/update-the-duplicator-WordPress-plugin-to-block-a-zero-1841887090](https://lifehacker.com/update-the-duplicator-wordpress-plugin-to-block-a-zero-1841887090)
+> 原文：<https://lifehacker.com/update-the-duplicator-wordpress-plugin-to-block-a-zero-1841887090>
 
 WordPress 插件它也有一个明显的漏洞，你会想要马上修补。否则，一个精明的攻击者可以使用这个插件从 WordPress 网站下载关键文件，比如你非常重要的 wp-config.php 文件。
 

@@ -1,6 +1,6 @@
 # 释放您的 Google 帐户空间，以便备份您的手机
 
-> 原文:[https://life hacker . com/free-up-space-in-your-Google-account-so-you-can-back-up-1844563173](https://lifehacker.com/free-up-space-in-your-google-account-so-you-can-back-up-1844563173)
+> 原文：<https://lifehacker.com/free-up-space-in-your-google-account-so-you-can-back-up-1844563173>
 
 [Google One 云存储服务](https://blog.google/products/google-one/free-features/) 即将迎来重大变化，包括全新的 iOS 应用程序、免费的手机数据备份，以及 iOS 和 Android 上的新数据管理工具。谷歌已经为谷歌用户提供了付费的自动手机备份服务，但该功能现在对所有人都是免费的(只要你 [生活在提供 Google One](https://support.google.com/googleone/answer/9080668)的国家)。
 

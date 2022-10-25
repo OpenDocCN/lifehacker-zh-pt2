@@ -1,6 +1,6 @@
 # 你可以用一块透明胶带透过毛玻璃看
 
-> 原文:[https://life hacker . com/you-can-through-a-piece-of-scot-1831868746](https://lifehacker.com/you-can-look-through-frosted-glass-with-a-piece-of-scot-1831868746)
+> 原文：<https://lifehacker.com/you-can-look-through-frosted-glass-with-a-piece-of-scot-1831868746>
 
 这是一个可以用来行善或作恶的黑客。你可能有很好的理由需要透过毛玻璃窗户看东西，或者你可能是佩恩·拜德格雷在《你是 T1》中的角色。黑客工作的任何一种方式。
 

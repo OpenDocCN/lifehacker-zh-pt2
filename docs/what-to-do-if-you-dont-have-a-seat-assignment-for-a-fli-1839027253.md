@@ -1,6 +1,6 @@
 # 如果没有航班的座位分配，该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-you-dong-have-a-seat-a-fli-1839027253](https://lifehacker.com/what-to-do-if-you-dont-have-a-seat-assignment-for-a-fli-1839027253)
+> 原文：<https://lifehacker.com/what-to-do-if-you-dont-have-a-seat-assignment-for-a-fli-1839027253>
 
 当你买机票的时候，航空公司经常会故意忽略掉所有你需要承担的其他费用，比如一顿蹩脚的盒饭的价格，不稳定的无线网络，以及经常出现的实际座位分配。
 

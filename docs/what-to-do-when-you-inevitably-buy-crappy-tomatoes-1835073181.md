@@ -1,6 +1,6 @@
 # 当你不可避免地买到劣质西红柿时该怎么办
 
-> 原文:[https://life hacker . com/what-to-do what-what-what-do what-you-ably-buy-蹩脚番茄-1835073181](https://lifehacker.com/what-to-do-when-you-inevitably-buy-crappy-tomatoes-1835073181)
+> 原文：<https://lifehacker.com/what-to-do-when-you-inevitably-buy-crappy-tomatoes-1835073181>
 
 现在不是西红柿季节。我在头脑和内心都知道这一点，但我拒绝照此行事。尽管我完全明白，尽管今年我只感到过两次不舒服的温暖，但我还是屈服于(就在昨晚)一件紫色、凹凸不平、漂亮厚重的传家宝的诱惑之歌。
 

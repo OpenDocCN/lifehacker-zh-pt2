@@ -1,6 +1,6 @@
 # 如何处理这个假期你一时冲动买下的港口
 
-> 原文:[https://life hacker . com/what-to-do the-port-you-impulse-bud-this-holid-1840682149](https://lifehacker.com/what-to-do-with-that-port-you-impulse-bought-this-holid-1840682149)
+> 原文：<https://lifehacker.com/what-to-do-with-that-port-you-impulse-bought-this-holid-1840682149>
 
 假期是一个过度的时间，这种过度已经开始产生影响。除了普遍的疲劳和轻微的肿胀，我的季节性狂热开始消退，原来圣诞克莱尔可能在购买食物和酒方面做得太过了(又一次)。
 

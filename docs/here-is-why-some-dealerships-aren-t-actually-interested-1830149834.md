@@ -1,6 +1,6 @@
 # 这就是为什么有些经销商实际上对卖给你汽车不感兴趣
 
-> 原文:[https://jalopnik . com/here-is-why-some-dealerships-not-actually-interest-1830149834](https://jalopnik.com/here-is-why-some-dealerships-aren-t-actually-interested-1830149834)
+> 原文：<https://jalopnik.com/here-is-why-some-dealerships-aren-t-actually-interested-1830149834>
 
 你可能会认为这整个“ [”卖车](https://jalopnik.com/c/car-buying) ”的事情对经销商来说很容易，尤其是如果一个感兴趣的客户带着严肃的购买意图进来的话。但是你会惊讶地发现，一些商店对向特定的购买者出售特定的汽车是多么的不感兴趣。
 

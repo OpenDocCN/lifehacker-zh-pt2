@@ -1,6 +1,6 @@
 # 这是你最后一周免费看一堆 HBO 的节目
 
-> 原文:[https://life hacker . com/its-your ' s last-week-to-watch-a-bunch-of-HBO-shows-for-fr-1843090480](https://lifehacker.com/its-your-last-week-to-watch-a-bunch-of-hbo-shows-for-fr-1843090480)
+> 原文：<https://lifehacker.com/its-your-last-week-to-watch-a-bunch-of-hbo-shows-for-fr-1843090480>
 
 本月早些时候，HBO [制作了大量免费在线观看的节目](https://lifehacker.com/you-can-watch-a-ton-of-hbo-shows-for-free-right-now-1842679805) 。
 

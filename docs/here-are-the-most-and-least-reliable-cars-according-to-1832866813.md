@@ -1,6 +1,6 @@
 # 根据消费者报告，以下是最可靠和最不可靠的汽车
 
-> 原文:[https://jalopnik . com/here-are-the-most-and-less-reliable-cars 根据 1832866813](https://jalopnik.com/here-are-the-most-and-least-reliable-cars-according-to-1832866813)
+> 原文：<https://jalopnik.com/here-are-the-most-and-least-reliable-cars-according-to-1832866813>
 
 即使许多购买者在购买新车时优先考虑获得最新的技术，可靠性仍然应该是一个关键因素。多亏了互联网，你不必亲自去镇上的每个停车场踢每辆车的轮胎，只是为了找到一个可靠的乘坐。一个好的开始是 [《消费者报告》](https://jalopnik.com/tag/consumer-reports) ，它刚刚发布了最可靠和最不可靠汽车的名单。
 

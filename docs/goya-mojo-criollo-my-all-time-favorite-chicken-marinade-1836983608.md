@@ -1,6 +1,6 @@
 # Mojo Criollo 是我最喜欢的鸡肉腌泡汁
 
-> 原文:[https://the take out . com/Goya-mojo-criollo-my-all-time-favorite-chicken-marinade-1836983608](https://thetakeout.com/goya-mojo-criollo-my-all-time-favorite-chicken-marinade-1836983608)
+> 原文：<https://thetakeout.com/goya-mojo-criollo-my-all-time-favorite-chicken-marinade-1836983608>
 
 几年前，一位来自休斯顿的朋友告诉我，戈雅的 mojo criollo 是她的“魔法酱”，也是她家庭野餐的一道主菜。回想起来，这是我收到的最棒的建议之一。
 

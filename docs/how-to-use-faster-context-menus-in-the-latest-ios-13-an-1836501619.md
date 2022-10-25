@@ -1,6 +1,6 @@
 # 如何在最新的 iOS 13 和 iPadOS 13 测试版中使用更快的上下文菜单
 
-> 原文:[https://life hacker . com/how-to-use-fast-context-menus-in-the-latest-IOs-13-an-1836501619](https://lifehacker.com/how-to-use-faster-context-menus-in-the-latest-ios-13-an-1836501619)
+> 原文：<https://lifehacker.com/how-to-use-faster-context-menus-in-the-latest-ios-13-an-1836501619>
 
 第四个 iOS 13 和 iPadOS 测试版已经面向开发人员推出，尽管 Beta 4 中有一些常见的变化和错误修复，但更有趣的调整之一是一个更具响应性的上下文菜单，你可以在任何运行 iOS 或 iPadOS 13 的设备上调出该菜单。
 

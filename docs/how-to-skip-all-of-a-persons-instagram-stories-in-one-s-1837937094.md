@@ -1,6 +1,6 @@
 # 如何一次性跳过一个人的所有 Instagram 故事
 
-> 原文:[https://life hacker . com/how-to-skip-all-of-a-persons-insta gram-stories-in-one-s-1837937094](https://lifehacker.com/how-to-skip-all-of-a-persons-instagram-stories-in-one-s-1837937094)
+> 原文：<https://lifehacker.com/how-to-skip-all-of-a-persons-instagram-stories-in-one-s-1837937094>
 
 我一直做 Instagram 都做错了。
 

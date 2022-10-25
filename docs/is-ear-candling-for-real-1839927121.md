@@ -1,6 +1,6 @@
 # 耳烛是真的吗？
 
-> 原文:[https://lifehacker.com/is-ear-candling-for-real-1839927121](https://lifehacker.com/is-ear-candling-for-real-1839927121)
+> 原文：<https://lifehacker.com/is-ear-candling-for-real-1839927121>
 
 很多人发誓说耳烛很有效，如果你想做好人并且不使用棉签 ，这种水疗服务看起来是清除耳垢的合理方式。不幸的是，这些说法好得令人难以置信。
 

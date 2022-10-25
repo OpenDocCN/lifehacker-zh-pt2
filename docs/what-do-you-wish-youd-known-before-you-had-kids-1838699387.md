@@ -1,6 +1,6 @@
 # 你希望在有孩子之前知道什么？
 
-> 原文:[https://life hacker . com/what-do-you-wish-you-know before-you-hacked-1838699387](https://lifehacker.com/what-do-you-wish-youd-known-before-you-had-kids-1838699387)
+> 原文：<https://lifehacker.com/what-do-you-wish-youd-known-before-you-had-kids-1838699387>
 
 在你有孩子之前，你的脑海中会有这样的愿景。也许你会想象在后院踢足球，教他们如何骑自行车，或者在圣诞节早上他们的眼睛会亮起来。
 

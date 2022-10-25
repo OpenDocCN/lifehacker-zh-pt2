@@ -1,6 +1,6 @@
 # 在你的煎饼面糊中加入农家干酪
 
-> 原文:[https://life hacker . com/add-cottage-cheese-to-your-pancake-面糊-1837008026](https://lifehacker.com/add-cottage-cheese-to-your-pancake-batter-1837008026)
+> 原文：<https://lifehacker.com/add-cottage-cheese-to-your-pancake-batter-1837008026>
 
 我越来越担心——甚至感到恐慌——我最喜欢的食物是农家干酪。这是一种极好的 [、简易早餐](https://skillet.lifehacker.com/cottage-cheese-is-the-best-no-cook-breakfast-1831588670)、，当、[搅打](https://lifehacker.com/cottage-cheese-is-even-better-whipped-1834726636)、时会做出美妙的蘸酱，而且——我刚刚发现——是像薄煎饼一样最松软的海绵蛋糕的秘密。
 

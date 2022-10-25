@@ -1,6 +1,6 @@
 # 在你倾斜你的飞机座椅之前问一下
 
-> 原文:[https://life hacker . com/ask-before-you-reclined-you-airline-seat-1841873996](https://lifehacker.com/ask-before-you-recline-your-airplane-seat-1841873996)
+> 原文：<https://lifehacker.com/ask-before-you-recline-your-airplane-seat-1841873996>
 
 上周，一名美国航空公司的乘客 [在推特上发布了一段视频，视频中一名男子反复击打她](https://twitter.com/steelersfanOG/status/1226346795741143040?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1226346795741143040&ref_url=https%3A%2F%2Fwww.flyertalk.com%2Farticles%2Fask-before-you-recline-deltas-ceo-weighs-in-on-the-great-debate.html) 的斜倚座椅靠背。该视频在网上疯传，并再次引发了一场辩论，即当你在空中时，是否可以将座椅放倒。
 

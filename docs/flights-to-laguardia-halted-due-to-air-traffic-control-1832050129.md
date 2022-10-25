@@ -1,6 +1,6 @@
 # 由于空中交通管制人员短缺，政府关闭，飞往拉瓜迪亚的航班暂停
 
-> 原文:[https://jalopnik . com/flights-to-LaGuardia-halted-due-to-air-traffic-control-1832050129](https://jalopnik.com/flights-to-laguardia-halted-due-to-air-traffic-control-1832050129)
+> 原文：<https://jalopnik.com/flights-to-laguardia-halted-due-to-air-traffic-control-1832050129>
 
 今天早上，联邦航空管理局停止了飞往拉瓜迪亚机场的航班，因为越来越多的员工在空中交通管制机构休病假。机场已经重新开放。
 

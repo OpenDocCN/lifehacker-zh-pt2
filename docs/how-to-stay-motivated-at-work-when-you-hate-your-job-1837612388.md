@@ -1,6 +1,6 @@
 # 当你讨厌自己的工作时，如何保持工作动力
 
-> 原文:[https://life hacker . com/how-to-stay-motive-in-work-when you-hate-your-job-1837612388](https://lifehacker.com/how-to-stay-motivated-at-work-when-you-hate-your-job-1837612388)
+> 原文：<https://lifehacker.com/how-to-stay-motivated-at-work-when-you-hate-your-job-1837612388>
 
 在[《纽约时报》](https://www.nytimes.com/2019/03/19/magazine/should-i-report-a-do-nothing-co-worker.html) ，一名沮丧的员工与伦理学家分享了他们与一名懒惰、“无所事事”的同事的故事。他们写道:“她经常午休，比开始时间晚来，实际上并没有在‘在家工作’的日子里工作。”"...此外，她还不断抱怨，对自己的项目漠不关心。她不费吹灰之力就完成了工作，经常将结果归咎于客户或外部因素...我们的主管似乎没有注意到或关心，他们往往不惹麻烦。”
 

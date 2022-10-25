@@ -1,6 +1,6 @@
 # 苹果卡是否歧视女性？
 
-> 原文:[https://life hacker . com/does-apple-card-discrimine-against-women-1839776793](https://lifehacker.com/does-apple-card-discriminate-against-women-1839776793)
+> 原文：<https://lifehacker.com/does-apple-card-discriminate-against-women-1839776793>
 
 当苹果卡 [在 8 月份正式推出](https://lifehacker.com/is-apple-card-worth-it-1837042256) 时，它的一个便捷功能是可以从你的手机申请该卡，并在几秒钟内获得批准。更好的是，在同意信用卡条款之前，你可以看到你得到了多少批准，并看到在你的信用报告上开一个新账户的影响。
 

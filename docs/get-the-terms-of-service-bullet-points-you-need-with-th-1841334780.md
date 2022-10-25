@@ -1,6 +1,6 @@
 # 获得本网站所需的“服务条款”要点
 
-> 原文:[https://life hacker . com/get-the-term-of-service-bullet-points-you-need with-th-1841334780](https://lifehacker.com/get-the-terms-of-service-bullet-points-you-need-with-th-1841334780)
+> 原文：<https://lifehacker.com/get-the-terms-of-service-bullet-points-you-need-with-th-1841334780>
 
 每当你开始使用一个新产品、时，你经常会看到服务条款，这是一份通常非常冗长的文件，充满了各种语言，即使你试图全部阅读(我们知道你不会)，你也可能不明白你实际上放弃了什么权利。 [服务条款；没看完](https://tosdr.org/) 是一个网站和浏览器扩展帮助你搞清楚一切。
 

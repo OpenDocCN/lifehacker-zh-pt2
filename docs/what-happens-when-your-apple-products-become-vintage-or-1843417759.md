@@ -1,6 +1,6 @@
 # 当你的苹果产品变得“过时”或“过时”时，会发生什么？
 
-> 原文:[https://life hacker . com/what-happens-when-when-your-apple-products-be-vintage-or-1843417759](https://lifehacker.com/what-happens-when-your-apple-products-become-vintage-or-1843417759)
+> 原文：<https://lifehacker.com/what-happens-when-your-apple-products-become-vintage-or-1843417759>
 
 你拥有的每件科技产品都有一个发布后的“寿命”例如，苹果的政策保证五年的支持，从设备的发布日期开始(而不是你购买它的时间)。一旦这五年结束，这个设备就成了“古董”
 

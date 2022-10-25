@@ -1,6 +1,6 @@
 # 哪个数字助理的晨间作息最好？
 
-> 原文:[https://life hacker . com/which-digital-assistant-has-the-best-morning-routines-1832013605](https://lifehacker.com/which-digital-assistant-has-the-best-morning-routines-1832013605)
+> 原文：<https://lifehacker.com/which-digital-assistant-has-the-best-morning-routines-1832013605>
 
 在这一点上，被闹钟叫醒，甚至是你的智能手机，几乎感觉像是一种古老的做法。如果你已经购买了智能扬声器热潮——主要是谷歌或亚马逊的一个扬声器，或者苹果的木材染色 HomePod——那么你就有更多的选择来为一天做好准备，而不是烦人的闹钟。
 

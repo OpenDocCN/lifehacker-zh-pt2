@@ -1,6 +1,6 @@
 # 离开前给你的 Airbnb 拍照
 
-> 原文:[https://life hacker . com/take-photos-of-your-Airbnb-before-leaving-1833950599](https://lifehacker.com/take-photos-of-your-airbnb-before-leaving-1833950599)
+> 原文：<https://lifehacker.com/take-photos-of-your-airbnb-before-leaving-1833950599>
 
 越来越多的人认为，通过 Airbnb 预订房屋租赁是一件冒险的事情。有“超级主机” [在半夜撞破卧室窗户](https://www.thisisinsider.com/airbnb-host-crashed-through-window-couple-says-2018-10) 的故事，也有不太引人注目的(但也令人震惊)的出租被发现含有 [隐藏摄像头](https://www.washingtonpost.com/technology/2019/04/06/they-were-settling-into-their-airbnb-then-they-found-hidden-camera/?utm_term=.d80bff932986)中的一切从 [时钟](https://www.cnet.com/news/airbnb-apologizes-to-guest-for-how-it-handled-undisclosed-security-camera/) 到假运动传感器(还有一个家庭发现了一台 [直播摄像头](https://www.cnet.com/news/airbnb-apologizes-to-guest-for-how-it-handled-undisclosed-security-camera/) 现在，由于一个旅行者的故事，我们知道要留意那些声称你损坏了他们财产的房主——这种损坏可能会导致数千美元的费用。
 

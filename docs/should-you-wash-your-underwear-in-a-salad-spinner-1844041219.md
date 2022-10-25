@@ -1,6 +1,6 @@
 # 你应该用沙拉旋转器洗你的内衣吗？
 
-> 原文:[https://life hacker . com/should-you-should-wash-your-breather-in-a-salad-spinner-1844041219](https://lifehacker.com/should-you-wash-your-underwear-in-a-salad-spinner-1844041219)
+> 原文：<https://lifehacker.com/should-you-wash-your-underwear-in-a-salad-spinner-1844041219>
 
 如果你没有室内洗衣房，你可能会发现在去自助洗衣店之间很难找到一条干净的内裤。
 

@@ -1,6 +1,6 @@
 # 如果你在情绪上挣扎，如何应对隔离
 
-> 原文:[https://life hacker . com/how-to-deal-a-quarantine-if-you-twisting-emoti-1842139296](https://lifehacker.com/how-to-deal-with-a-quarantine-if-youre-struggling-emoti-1842139296)
+> 原文：<https://lifehacker.com/how-to-deal-with-a-quarantine-if-youre-struggling-emoti-1842139296>
 
 随着 [新冠肺炎继续在全美传播](https://lifehacker.com/what-to-do-if-you-think-you-have-covid-19-1841958386) ，担忧也随之而来。在许多人的清单上排在前列的是不得不在隔离或家庭隔离下度过一段时间的可能性。(对，两者是有区别的，一会就到了。)当一些人 [涌向杂货店和药店](https://twocents.lifehacker.com/what-to-buy-if-youre-concerned-about-the-coronavirus-1842095740) 购买所有的卫生纸、洗手液和口罩时，其他人可能会提前考虑隔离场景对他们心理健康的可能影响——特别是那些已经患有精神疾病的人。
 

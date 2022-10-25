@@ -1,6 +1,6 @@
 # 我想要异国情调的汽车外观，但我没有异国情调的汽车钱！应该买什么车？
 
-> 原文:[https://jalopnik . com/I-want-exotic-car-looks-but-I-not-dont-exotic-car-mone-1831637383](https://jalopnik.com/i-want-exotic-car-looks-but-i-dont-have-exotic-car-mone-1831637383)
+> 原文：<https://jalopnik.com/i-want-exotic-car-looks-but-i-dont-have-exotic-car-mone-1831637383>
 
 奇普正在找一辆二手车来配他的奥迪 A6。他曾梦想拥有一件既漂亮又快捷的东西，但在只有大约 35，000 美元的支出范围内做出选择可能很困难。他应该买什么车？
 

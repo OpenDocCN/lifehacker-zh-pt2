@@ -1,6 +1,6 @@
 # 如何归还已故亲人的刺激支票
 
-> 原文:[https://life hacker . com/how-to-return-a-dead-亲人-刺激-检查-1843316653](https://lifehacker.com/how-to-return-a-deceased-relatives-stimulus-check-1843316653)
+> 原文：<https://lifehacker.com/how-to-return-a-deceased-relatives-stimulus-check-1843316653>
 
 如果你收到了一张开给已故亲属的刺激支票，或直接存入他们的一个你控制的账户，或者即使你和已故配偶收到了联合刺激付款，美国国税局要求你归还这笔钱(或一半，如果是联合付款)。但是你是怎么做到的呢？
 

@@ -1,6 +1,6 @@
 # 为什么在 iOS 应用程序商店中找不到家长控制应用程序
 
-> 原文:[https://life hacker . com/why-you-can-find-parental-control-apps-in-the-IOs-app-1834478666](https://lifehacker.com/why-you-cant-find-parental-control-apps-in-the-ios-app-1834478666)
+> 原文：<https://lifehacker.com/why-you-cant-find-parental-control-apps-in-the-ios-app-1834478666>
 
 **iOS:** 如果你在 iOS 应用商店找不到一款好的家长控制应用，这是有原因的:MDM，即移动设备管理。根据苹果公司的说法，使用 MDM 的应用程序“不正确地”造成了严重的安全风险，因此该公司正在打击这种行为——但这实际上意味着什么呢？
 

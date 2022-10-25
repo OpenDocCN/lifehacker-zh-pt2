@@ -1,6 +1,6 @@
 # 冰镇浓缩啤酒是你感恩节早晨的英雄
 
-> 原文:[https://life hacker . com/cold-brew-concentre-is-your ' s 感恩节早晨英雄-1830225686](https://lifehacker.com/cold-brew-concentrate-is-your-thanksgiving-morning-hero-1830225686)
+> 原文：<https://lifehacker.com/cold-brew-concentrate-is-your-thanksgiving-morning-hero-1830225686>
 
 如果你是主人，感恩节的早晨会很奇怪。你醒来时还有很多工作要做，经常会有很多人围着你转，摆弄你的咖啡机。这就是冷酿造浓缩液的用武之地。
 

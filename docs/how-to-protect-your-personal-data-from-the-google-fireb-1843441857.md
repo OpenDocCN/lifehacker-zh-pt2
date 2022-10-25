@@ -1,6 +1,6 @@
 # 如何保护你的个人数据免受谷歌 Firebase 泄露的影响
 
-> 原文:[https://life hacker . com/how-to-protect-your-personal-data-from-the-Google-fireb-1843441857](https://lifehacker.com/how-to-protect-your-personal-data-from-the-google-fireb-1843441857)
+> 原文：<https://lifehacker.com/how-to-protect-your-personal-data-from-the-google-fireb-1843441857>
 
 Google Play 商店中近 24，000 个应用程序可能出现了数据泄露。与我们经常报道的主动窃取或分发用户信息的 Play Store 恶意软件和骗局不同，这些应用程序是由于使用最广泛的 Android 应用程序开发平台之一 Google Firebase 的配置不佳而意外泄露数据的。
 

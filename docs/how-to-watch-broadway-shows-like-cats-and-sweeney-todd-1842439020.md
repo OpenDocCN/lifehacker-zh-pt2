@@ -1,6 +1,6 @@
 # 如何在家免费观看《猫》和《理发师陶德》等百老汇节目
 
-> 原文:[https://life hacker . com/how-to-watch-Broadway-shows-like-cats-and-sweeney-Todd-1842439020](https://lifehacker.com/how-to-watch-broadway-shows-like-cats-and-sweeney-todd-1842439020)
+> 原文：<https://lifehacker.com/how-to-watch-broadway-shows-like-cats-and-sweeney-todd-1842439020>
 
 为应对疫情冠状病毒，纽约上周关闭了百老汇的所有影院，但你仍然可以在家里的沙发上观看一些百老汇最受欢迎的节目。
 

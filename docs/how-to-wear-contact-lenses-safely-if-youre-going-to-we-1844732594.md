@@ -1,6 +1,6 @@
 # 如何安全地佩戴隐形眼镜，如果你无论如何都要戴的话
 
-> 原文:[https://life hacker . com/how-to-wear-contact-lenses-safety-if-you-to-we-1844732594](https://lifehacker.com/how-to-wear-contact-lenses-safely-if-youre-going-to-we-1844732594)
+> 原文：<https://lifehacker.com/how-to-wear-contact-lenses-safely-if-youre-going-to-we-1844732594>
 
 早在 4 月份，我们就报道了美国眼科学会(AAO)的建议 ，隐形眼镜佩戴者暂时换回眼镜，原因是疫情。除了避免任何涉及将手指插入眼睛的事情，美国眼科协会还指出，隐形眼镜事故 [可能需要医疗护理](https://vitals.lifehacker.com/if-you-wear-contacts-consider-switching-to-glasses-for-1842912934) ，如果可能的话，我们应该尽可能远离医疗机构。
 

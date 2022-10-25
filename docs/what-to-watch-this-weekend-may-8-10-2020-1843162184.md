@@ -1,6 +1,6 @@
 # 2020 年 5 月 8 日-10 日这个周末看什么
 
-> 原文:[https://life hacker . com/本周末看什么-2020 年 5 月 8 日-10 日-1843162184](https://lifehacker.com/what-to-watch-this-weekend-may-8-10-2020-1843162184)
+> 原文：<https://lifehacker.com/what-to-watch-this-weekend-may-8-10-2020-1843162184>
 
 不知怎么又到了星期五。如果你想在这个周末找些好东西看，我们已经收集了一些最新鲜的选择。
 

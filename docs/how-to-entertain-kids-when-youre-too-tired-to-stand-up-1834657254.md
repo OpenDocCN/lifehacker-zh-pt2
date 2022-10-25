@@ -1,6 +1,6 @@
 # 横向育儿 101:躺着娱乐孩子
 
-> 原文:[https://life hacker . com/how-to-entertain-kids-when-you-tain-to-stand up-1834657254](https://lifehacker.com/how-to-entertain-kids-when-youre-too-tired-to-stand-up-1834657254)
+> 原文：<https://lifehacker.com/how-to-entertain-kids-when-youre-too-tired-to-stand-up-1834657254>
 
 养育一个年幼的孩子需要上下移动你衰老的身体。你的孩子想去喂金鱼，所以你起床了。然后他想玩地板拼图，你就趴下。然后他想吃点心，所以你又起来了。然后你就倒下了。然后你就起来了。然后向下。然后向上。然后向下。这种情况每天都在发生，直到孩子最终昏过去。
 

@@ -1,6 +1,6 @@
 # 教给你的孩子关于金钱的五件事
 
-> 原文:[https://life hacker . com/teach-your-tens-this-five-this-the-five-things-on-money-1830344151](https://lifehacker.com/teach-your-teens-these-five-things-about-money-1830344151)
+> 原文：<https://lifehacker.com/teach-your-teens-these-five-things-about-money-1830344151>
 
 最近，我儿子和他的朋友参加了他们高中的返校舞会。当男孩们在晚上外出前聚集在我们家拍照和吃披萨时，我把儿子拉到一边，递给他一张 20 美元的钞票。
 

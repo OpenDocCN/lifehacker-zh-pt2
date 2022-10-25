@@ -1,6 +1,6 @@
 # 这道多米尼加砂锅菜是宿醉者的梦想
 
-> 原文:[https://life hacker . com/this-多米尼加-奇米-砂锅-是一个宿醉的人-dr-1835852181](https://lifehacker.com/this-dominican-chimi-casserole-is-a-hungover-persons-dr-1835852181)
+> 原文：<https://lifehacker.com/this-dominican-chimi-casserole-is-a-hungover-persons-dr-1835852181>
 
 我像我认识的大多数其他多米尼加人一样长大——有一个庞大的社交家庭，从不缺少聚会和最后一分钟拜访的借口。在我家，没有煮太多食物这种事，因为这意味着那天晚些时候决定来访的人都会有剩菜。或者后天。或者后天。
 

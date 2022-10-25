@@ -1,6 +1,6 @@
 # 用库拉索制作更好的螺丝刀
 
-> 原文:[https://life hacker . com/make-a-better-scracao-1838291509](https://lifehacker.com/make-a-better-screwdriver-with-curacao-1838291509)
+> 原文：<https://lifehacker.com/make-a-better-screwdriver-with-curacao-1838291509>
 
 螺丝刀不是一种糟糕的饮料，但它不是一种伟大的饮料。橙汁和伏特加的组合不难下咽，但我从来没有像“你知道我现在真正渴望什么吗？一把该死的螺丝刀。"
 

@@ -1,6 +1,6 @@
 # 这里有一个快速将新鲜生姜加入饮料的方法
 
-> 原文:[https://life hacker . com/heres-a-quick-way to-get-fresh-ginger-into drinks-1836251097](https://lifehacker.com/heres-a-quick-way-to-get-fresh-ginger-into-drinks-1836251097)
+> 原文：<https://lifehacker.com/heres-a-quick-way-to-get-fresh-ginger-into-drinks-1836251097>
 
 新鲜的生姜给食物和饮料增加了一丝辛辣，但却令人惊讶地舒缓，但将其加入饮料通常需要 [制作糖浆](https://lifehacker.com/the-best-ginger-syrup-requires-no-heating-1828363912) 或——如果你想要一点刺激的话— [在一些盐水中](https://skillet.lifehacker.com/liven-up-your-lemonade-with-sushi-ginger-brine-1836017448) 。但是如果你想要的是纯的，不加糖的，新鲜的生姜，你需要做的就是拿起你的微型盘子。
 

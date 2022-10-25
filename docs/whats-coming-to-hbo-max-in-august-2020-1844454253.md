@@ -1,6 +1,6 @@
 # 2020 年 8 月 HBO Max 将迎来什么
 
-> 原文:[https://life hacker . com/whats-coming-to-HBO-max-in-August-2020-1844454253](https://lifehacker.com/whats-coming-to-hbo-max-in-august-2020-1844454253)
+> 原文：<https://lifehacker.com/whats-coming-to-hbo-max-in-august-2020-1844454253>
 
 2018 年电影*绿皮书*最令人讨厌的事情之一是它任意使用一个非常好的标题。维克多·雨果·格林(Victor Hugo Green)的《黑人驾车者绿皮书》 *，*，出版于 20 世纪 30 年代至 60 年代，是一段引人入胜的历史:一本地图集/指南，旨在帮助黑人驾车者沿着吉姆·克劳时代美国危险的道路导航一条安全的路线，告诉他们可以在哪里吃饭和睡觉，而不用担心(或不太担心)被拒绝服务、跑出城镇或更糟。
 

@@ -1,6 +1,6 @@
 # 用旧贺卡做书签
 
-> 原文:[https://life hacker . com/use-old-greeting-cards-as-bookmarks-1834916430](https://lifehacker.com/use-old-greeting-cards-as-bookmarks-1834916430)
+> 原文：<https://lifehacker.com/use-old-greeting-cards-as-bookmarks-1834916430>
 
 扔掉旧贺卡会让人产生负罪感，即使对于无情的整理者 来说也是如此——这意味着他们有堆积的方式。如果你收藏了一些你舍不得回收的旧卡片，有一个简单的方法可以让它们派上用场:把它们重新用作书签。
 

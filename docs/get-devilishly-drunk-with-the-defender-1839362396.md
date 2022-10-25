@@ -1,6 +1,6 @@
 # 和防守队员喝得酩酊大醉
 
-> 原文:[https://life hacker . com/get-divertibly-drinked-with the-defender-1839362396](https://lifehacker.com/get-devilishly-drunk-with-the-defender-1839362396)
+> 原文：<https://lifehacker.com/get-devilishly-drunk-with-the-defender-1839362396>
 
 如果你搜索短语“万圣节鸡尾酒”，你会找到许多绿色或紫色鸡尾酒的配方，名字像“女巫的酿造”、“女巫的心”或“融化的女巫”这些鸡尾酒大多太甜，很少有诱人的。
 

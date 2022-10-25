@@ -1,6 +1,6 @@
 # 如果你想开一个有效的会议，就离开那个闷热的房间
 
-> 原文:[https://life hacker . com/get-out-of-the-stuff-room-if-you-want-have-a-effe-1835276499](https://lifehacker.com/get-out-of-that-stuffy-room-if-you-want-to-have-an-effe-1835276499)
+> 原文：<https://lifehacker.com/get-out-of-that-stuffy-room-if-you-want-to-have-an-effe-1835276499>
 
 我们人类吸入氧气——你可能知道这一点——呼出二氧化碳。在封闭的空间里，二氧化碳有可能在空气中积聚。一些研究表明，会议室和教室可能被封闭到足以达到令人麻木的二氧化碳浓度。
 

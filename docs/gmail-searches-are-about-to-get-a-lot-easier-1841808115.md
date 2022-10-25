@@ -1,6 +1,6 @@
 # Gmail 搜索将变得更加容易
 
-> 原文:[https://life hacker . com/Gmail-searches-is-about-to-get-a-lot-easy-1841808115](https://lifehacker.com/gmail-searches-are-about-to-get-a-lot-easier-1841808115)
+> 原文：<https://lifehacker.com/gmail-searches-are-about-to-get-a-lot-easier-1841808115>
 
 在 Gmail 中搜索特定邮件将变得更加容易——至少如果你的组织使用 G Suite 的话。你仍然可以自由地成为一名键盘战士，在 Gmail 的搜索栏中填入参数，比如之前的*from:soandso@gmail.com:2020/2/20*，或者如果你不记得这些操作符，可以使用它的下拉菜单进行具体搜索。但为了让事情变得简单一点，谷歌现在将把方便的小“搜索芯片”放入界面，你可以用它来过滤你泛滥的收件箱。
 

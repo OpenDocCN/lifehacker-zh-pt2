@@ -1,6 +1,6 @@
 # 用一句简短的咒语来坚持你的目标
 
-> 原文:[https://life hacker . com/use-a-short-mantra-to-stick to-your-goals-1836883911](https://lifehacker.com/use-a-short-mantra-to-stick-to-your-goals-1836883911)
+> 原文：<https://lifehacker.com/use-a-short-mantra-to-stick-to-your-goals-1836883911>
 
 我们很多人都知道，出门前说“手机、钱包、钥匙”可以提醒我们不想遗忘的东西。事实证明，在我们生活的其他领域发展类似的咒语可以帮助我们专注于我们的目标。
 
