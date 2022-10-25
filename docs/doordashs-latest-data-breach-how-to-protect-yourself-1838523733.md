@@ -1,0 +1,27 @@
+# Doordash 的最新数据泄露:如何保护自己
+
+> 原文:[https://life hacker . com/door dashs-latest-data-breach-how-to-protect-yoursely-1838523733](https://lifehacker.com/doordashs-latest-data-breach-how-to-protect-yourself-1838523733)
+
+Doordash 是最新的“你可能使用的服务，或者至少有一个帐户”公司遭受大规模数据泄露。虽然你的密码可能还没有被泄露，但你的物理地址很可能就在互联网的某个地方，和其他识别信息一起漂浮着。
+
+Watch
+
+就像 Doordash [昨天](https://blog.doordash.com/important-security-notice-about-your-doordash-account-ddd90ddf5996) 写的那样，一个不知名的个人在 5 月 4 日访问了他们本不应该拥有的数据。被泄露的信息包括:
+
+> *“个人资料信息，包括姓名、电子邮件地址、送货地址、订单历史记录、电话号码，以及散列的加盐密码——一种使第三方无法破译实际密码的形式。”*
+
+大约有 490 万 Doordash 客户受到此次违规事件的影响，但只有那些在 2018 年 4 月 5 日之前加入该网站的客户。如果你在那之后报名了 Doordash，你就没事了。
+
+然而，泄露的信息并不仅限于电子邮件、电话号码和姓名——仅举几个例子。对于受影响的一部分人来说，攻击者能够访问他们存储的信用卡的最后四位数字，他们的银行账号，或者他们的驾照号码。
+
+Doordash 目前正在联系那些数据可能已经受损的人；如果你还没有收到电子邮件，你*可能*是清白的，但发送这些邮件也需要公司一点时间，所以稍微有点焦虑是正常的。
+
+正如 Doordash 指出的:
+
+> *“访问的信息不足以对支付卡进行欺诈性收费或从银行账户进行欺诈性提款。无论如何，始终保持警惕，定期检查您的支付卡和银行账户是否有异常活动，这是一种安全最佳做法。如果你看到可疑的事情，你应该及时向你的金融机构报告。”*
+
+尽管如此，出于谨慎，该公司仍然建议你至少更改你的 Doordash 密码。我赞同这一建议，但这可能是你现在唯一担心的。密切关注你的银行账户或信用卡信息，但它们不太可能会受到此次泄露的影响。
+
+至于你的驾照号码，那就有点让人沮丧了。如果 Doordash 通知你，由于这次违规，你的号码被泄露了，你可能会采取更强有力的措施，如 [信用冻结](https://twocents.lifehacker.com/what-to-know-about-freezing-and-unfreezing-your-credit-1829474191) ，建议[Experian](https://www.experian.com/blogs/ask-experian/what-should-i-do-if-my-drivers-license-number-is-stolen/)——或者记下从现在起六个月到一年内从 DMV 要求你的驾驶记录副本，只是为了确保没有人使用你的号码来逃避交通违规。
+
+(同样，联系你的车管所，让他们知道你的号码被盗是数据泄露的一部分，这可能是值得的；他们可能会记下这一点，或者至少就你能做什么提供额外的建议。)

@@ -1,0 +1,32 @@
+# 如何在你的 Android 上创建自动化的日常事务
+
+> 原文:[https://life hacker . com/how-to-create-automated-daily-routines-on-your-Android-1830539880](https://lifehacker.com/how-to-create-automated-daily-routines-on-your-android-1830539880)
+
+[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)) : title[![](../Images/e2dcc498f7314a475ad7b9879a9d5584.png)](https://androidos.kinja.com)[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)Don't get overwhelmed by Android's many (many!) settings and apps. Master your Android phone or tablet with our ample collection of guides, tips, and tricks.
+
+自从亚马逊为其 Echo 设备推出智能音箱以来，我一直在使用智能音箱的日常功能。我不会因为喊出一些随机的短语而引发连锁反应。相反，我在一天中的不同时间启动我的例行程序——实际上，只是起床时间和睡觉时间——这样我就可以快速浏览重要信息，比如天气和即将到来的日历事件。
+
+Watch
+
+如果你没有智能扬声器，而是在你的 Android 智能手机的舒缓声音中醒来，你现在可以在你的设备上复制这些类型的例程。谷歌已经更新了 Android 的标准时钟应用程序，以包括谷歌助手，设置在特定时间触发的日常事务既简单又方便。
+
+首先，确保你正在通过 Google Play 运行最新版本的谷歌**时钟**应用。如果你的智能手机因为任何原因没有时钟，你可以在这里 [下载](https://play.google.com/store/apps/details?id=com.google.android.deskclock&hl=en_US) 。
+
+打开时钟应用程序，点击**闹钟**部分，点击底部的蓝色大加号图标，创建一个新闹钟。设置你希望你的例行程序开始的时间，点击 OK，并设置为重复(如果你想的话)和响铃或振动(如果你只是创建一个每日例行程序，而不是闹钟+例行程序的组合，可能没有必要)。
+
+一旦你做到了这一点，点击“标签”下面新的“谷歌助手例程”选项，你会看到一个很大的页面，告诉你更多关于例程是什么。要开始，点击右下角的小“设置程序”框。
+
+如果你拥有谷歌的智能音箱，你会看到一个看起来非常熟悉的屏幕。如果这一切对你来说都是新的，花一点时间来享受你的智能手机现在将为你做什么。这包括:
+
+*   在特定时间将设备的音量设置为您的首选设置
+*   打开和关闭连接的智能设备，包括照明和开关，或者将家庭恒温器调节到特定设置
+*   给你一个关于天气的提示
+*   告诉你你今天上班的路程有多棒(或多糟糕)
+*   查看今天的日历事件
+*   提醒您之前创建的任何提醒
+
+一旦谷歌助手完成了你清单上的这些项目，它就可以通过播放你最喜欢的新闻来源的最新更新、打开播客或开始有声读物来结束你的日常生活——这是你早上燕麦片的完美搭配， [假设你今天正在吃](https://vitals.lifehacker.com/starving-yourself-two-days-a-week-is-actually-not-a-bad-1793788417) 。
+
+在您为正在创建的任何程序做出选择后，将滚动到屏幕顶部以更改大多数选择的顺序——播放新闻、播客或有声读物将总是在您的其他项目之后。要完成您的例行程序，请点击灰色复选标记。您将被询问是否希望助手从锁定屏幕运行您的例程来完成。当然，为什么不呢？
+
+现在你的日常工作已经开始，你可以通过点击闹钟选项中的谷歌助理程序标题(而不是带圆圈的减号)来返回并编辑任何你想要的选项。如果您点击减号图标，它不会弹出确认消息，因此在浏览此部分时要小心，否则您可能会意外删除您定制的例程。

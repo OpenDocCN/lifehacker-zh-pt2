@@ -1,0 +1,11 @@
+# 如何将一张合适的纸折叠成一个漂亮的矩形
+
+> 原文:[https://life hacker . com/how-to-fold-a-fitted-sheet to-nice-flat-rectangle-5829980](https://lifehacker.com/how-to-fold-a-fitted-sheet-into-a-nice-flat-rectangle-5829980)
+
+折叠衣物是一件非常痛苦的事情，但是合身的床单却是独一无二的。那些圆形的弹性“角”永远不会匹配，即使你设法将床单的一面弄得半平，另一面也不可避免地会聚在一起。幸运的是，有一种技术确实有效。
+
+Watch
+
+要将一张合适的纸放入一个漂亮的扁平矩形中，关键是要将所有的角都塞进去。观察:
+
+<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-YHTyH2nuFAw&amp;start=0" data-chomp-id="YHTyH2nuFAw" data-recommend-id="youtube://YHTyH2nuFAw" id="youtube-YHTyH2nuFAw" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="YHTyH2nuFAw" data-recommend-id="youtube://YHTyH2nuFAw" id="youtube-YHTyH2nuFAw" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">观看来自 YouTube 用户 Hisgirl777 的视频，以获得更好的演示，但以下是步骤:</p><p class="sc-77igqf-0 bOfvBY">1.将温热的床单从烘干机中取出(为了减少褶皱),抖掉。</p><p class="sc-77igqf-0 bOfvBY">2.把床单放下，让长边面向你(穿过你的身体)。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">3.把手指伸进左下角。</p><p class="sc-77igqf-0 bOfvBY">4.拿起它正上方的对角，把它拉过你手中的角。</p><p class="sc-77igqf-0 bOfvBY">5.右侧重复:将右手放在右下角，然后将对面的角拉过来。现在你将每只手握住角落。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">6.将你左手的角转到你右手握着的角上。现在四个角都在你的右手边。</p><p class="sc-77igqf-0 bOfvBY">7.把这个新的正方形铺好，弄平。</p><p class="sc-77igqf-0 bOfvBY">8.尽你所能把角落弄成方形。</p><p class="sc-77igqf-0 bOfvBY">9.折叠成长方形。</p><p class="sc-77igqf-0 bOfvBY">当你完成的时候，你可能甚至都不知道这是一个合适的床单。现在，你不需要在你的亚麻衣柜或抽屉里塞几团合适的床单了——很有可能，这会节省一些宝贵的储物空间。</p><p class="sc-77igqf-0 bOfvBY">本故事最初发表于 2011 年，并于 2019 年 11 月 21 日更新，以提供更全面的最新信息。</p> </body> </html></iframe>

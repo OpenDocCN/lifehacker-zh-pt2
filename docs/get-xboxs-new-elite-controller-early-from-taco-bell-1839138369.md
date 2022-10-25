@@ -1,0 +1,17 @@
+# 尽早从塔可钟获得 Xbox 的新精英控制器
+
+> 原文:[https://life hacker . com/get-Xbox s-new-elite-controller-early-from-taco-bell-1839138369](https://lifehacker.com/get-xboxs-new-elite-controller-early-from-taco-bell-1839138369)
+
+如果你看上了 Xbox 新的 Elite 2 控制器，你可能会考虑午餐吃塔可钟。
+
+Watch
+
+微软与塔可钟合作 [打造新的限量版 Xbox One X 主机](https://tacobellxboxappoffer.com/) 。这不是该公司第一次做宣传，但这一次，限量版游戏机附带了一些额外的东西:新的 Xbox Elite 2 控制器。
+
+为了拿到控制器，你需要通过餐厅的应用程序购买这家快餐连锁店的双份 Chalupa 盒子，这将为你赢得一个代码，你可以用它来输入一个抽奖。如果你赢了，你将得到 179.99 美元的控制器和一台游戏机。
+
+Xbox Elite 2 控制器有可调节的张力拇指棒你可以调节它来提高你在游戏中的精确度。它还更新了扳机手柄，重新设计了保险杠，头发更短，这样你就可以在射击游戏中更快地开火。控制器还支持 USB-C 和蓝牙。
+
+促销活动从现在开始一直持续到 11 月 23 日，塔可钟表示平均每 10 分钟就会奖励一台游戏机。订购双 Chalupa 盒子的客户还将获得为期 2 周的 Xbox Game Pass Ultimate 会员资格，前提是他们选择了店内提货。
+
+这不如早点拿到控制器好，但至少你不会空手而归。

@@ -1,0 +1,17 @@
+# 如何让有视觉障碍的人也能看到你的 Instagram 帖子
+
+> 原文:[https://life hacker . com/how-to-make-your-insta gram-posts-accessible-to-people-w-1830752644](https://lifehacker.com/how-to-make-your-instagram-posts-accessible-to-people-w-1830752644)
+
+Instagram 让有视觉障碍的人更容易体验它的网站。
+
+Watch
+
+今天，它开始推出新的自动替代文本功能 ，该功能将使用对象识别技术为上传到社交网络的照片创建描述。当有视觉障碍的人访问 Instagram 时，该应用程序会为照片生成描述，以便屏幕阅读器在他们浏览时可以阅读。
+
+Instagram 还增加了一个定制的替代文本字段，上传照片的人可以输入自己的文本，以便大声朗读，而不是依赖软件为他们创建一个文本。
+
+当选美国众议员的亚历山大·奥卡西奥-科尔特斯是当选国会议员的最年轻的女性， [在本月早些时候成为头条新闻](https://www.huffingtonpost.com/entry/alexandria-ocasio-cortez-video-deaf-accessibility_us_5bef0257e4b0d725c57b) ，当时她开始在自己的视频中添加类似的字幕，以此作为与聋人或重听人联系的一种方式。
+
+要访问这项新功能，你需要点击页面底部的“高级设置”,这是你传统上输入照片标题的地方。在“关闭评论”下面，你会看到一个“写替换文字”的选项，当你可以输入你自己的照片描述时。
+
+这是一件简单的事情，你可以上传一张图片，让视力受损的人更容易看到你的订阅。

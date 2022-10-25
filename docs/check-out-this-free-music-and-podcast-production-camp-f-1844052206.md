@@ -1,0 +1,29 @@
+# 看看这个免费的音乐和播客制作营
+
+> 原文:[https://life hacker . com/check-out-this-free-music-and-podcast-production-camp-f-1844052206](https://lifehacker.com/check-out-this-free-music-and-podcast-production-camp-f-1844052206)
+
+如果你的孩子曾经想创作自己的音乐或制作自己的播客，他们今年夏天有机会在自己的家里，按照自己的节奏，免费学习一些基础知识。
+
+Watch
+
+非营利组织 [声部](https://www.deptofsound.org/about-us) 创建了一个名为“ [声夏](https://www.deptofsound.org/summer-of-sound) ”的虚拟营地，向青少年传授节拍制作、歌曲结构和作曲、录音、乐器和编曲以及播客制作的基础知识。
+
+*关于制作你自己的播客的更多信息，请观看下面的视频:*
+
+本课程将分为七节课，重点是:
+
+*   Soundtrap 的基本功能和工具，他们将在整个课程中使用基于网络的制作软件
+*   如何使用键盘、模式和乐器标签创建轨道
+*   构图基础和现场录音功能
+*   钢琴功能、键盘以及如何创作原创音乐
+*   播客功能和录制自我采访的基础知识
+*   对音乐行业、职业道路、营销和分销的洞察力
+*   期末项目
+
+虚拟营地将由循序渐进、预先录制的视频和书面课程组成。对于期末项目，学生将被要求发布一个两分钟的音乐作品(一个节拍或一首完整的歌曲)或一个两分钟的播客。
+
+参与者必须至少年满 13 岁，他们需要使用笔记本电脑或台式电脑、平板电脑或智能手机，以及 wifi。 [现在可以注册音夏](https://www.deptofsound.org/summer-of-sound)；课程将于 6 月 22 日开始，学生可以按照自己的进度学习，直到 9 月 22 日。
+
+* * *
+
+<small>*遇见地球上最聪明的父母！加入我们的*</small> [<small>*后代脸书育儿群*</small>](https://www.facebook.com/groups/2018785615043946/) <small>*。*</small>

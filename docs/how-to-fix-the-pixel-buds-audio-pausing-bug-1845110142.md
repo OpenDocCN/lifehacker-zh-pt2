@@ -1,0 +1,17 @@
+# 如何修复 Pixel Buds 的音频暂停错误
+
+> 原文:[https://life hacker . com/how-to-fix-the-pixel-buds-audio-paging-bug-1845110142](https://lifehacker.com/how-to-fix-the-pixel-buds-audio-pausing-bug-1845110142)
+
+谷歌终于修补了一个困扰 Pixel Buds 用户数周的恼人问题:每隔 1 分 50 秒，无线耳机就会在播放过程中突然暂停。每一个。单身。时间。
+
+Watch
+
+这种缺陷并不普遍，但却很普遍。幸运的是，如果你是许多一直在处理这个问题的人之一， [一个新的固件更新可用，应该可以减轻烦恼](https://support.google.com/googlepixelbuds/thread/71558779?hl=en) 。
+
+Pixel Bud 固件更新通常会自动下载，因此您可能已经应用了补丁。如果您已禁用自动更新，当新更新可用时，您会在手机上收到通知。你也可以在 Pixel Buds app 中进入**设置>更多>固件更新**手动检查更新。
+
+要安装更新，请通过蓝牙将 Pixel Buds 与 Android 手机配对。随着设备的同步，你的手机将下载任何必要的更新，并将其传输到 Pixel Buds。根据 [谷歌支持](https://support.google.com/googlepixelbuds/answer/9642078?hl=en) 的说法，传输可能需要十分钟，但文件传输过程中你可以继续使用耳机。
+
+一旦更新到你的 Pixel Buds 上，你就需要在充电的情况下给耳塞几分钟来安装文件。好消息是，在更新完成之前从外壳中移除 Pixel Buds 只是暂停了该过程——当您将它们放回外壳时，它会继续。因此，如果您在播放过程中仍然会突然暂停，请让您的 Pixel Buds 在充电情况下多呆几分钟，以确保安装完成。
+
+暂停错误是此次更新中唯一修补的问题，但还有很多问题需要解决，如广泛传播的破坏性白噪声和频繁掉线的报告。希望这些在未来的更新中会被修补，但至少你现在可以听你的音乐，而不用像往常一样每分钟和 50 秒就停止播放。

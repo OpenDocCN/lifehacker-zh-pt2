@@ -1,0 +1,13 @@
+# 在你的车里玩危险游戏，你这个书呆子
+
+> 原文:[https://life hacker . com/play-jeopardy-in-you-car-you-nerd-1838016532](https://lifehacker.com/play-jeopardy-in-your-car-you-nerd-1838016532)
+
+播客、有声读物和音乐可以让你的日常生活不那么枯燥，但对于那些想要更多互动和精神参与的人来说，你现在可以通过智能手机使用 **Drivetime** 应用程序( [Android](https://play.google.com/store/apps/details?id=fm.drivetime.original&hl=en_US) ， [iOS](https://apps.apple.com/us/app/drivetime/id1357342274) )玩*亚历克斯·崔贝克主持的【危险】。*
+
+Watch
+
+该应用与索尼合作，通过向用户提供免费的每日剧集来庆祝《危险边缘》第 36 季。玩 Drivetime 的 *Jeopardy* 比赛不一定需要开车，但游戏是语音控制的——很容易提供答案*和*同时注意交通。
+
+(如果还是太分散注意力，可以暂停剧集，稍后继续。您也可以轻按应用程序右上角的三个堆叠点来查看设置、排行榜和您的朋友列表。)
+
+<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-1mEAWBHtkv0&amp;start=0" data-chomp-id="1mEAWBHtkv0" data-recommend-id="youtube://1mEAWBHtkv0" id="youtube-1mEAWBHtkv0" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="1mEAWBHtkv0" data-recommend-id="youtube://1mEAWBHtkv0" id="youtube-1mEAWBHtkv0" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">如果每天一集还不足以满足你的琐事需求，Drivetime 还包括其他免费的琐事游戏和互动媒体，你可以通过 Drivetime premium 订阅(9.99 美元/月或 99 美元/年)解锁额外的<em> Jeopardy </em>集和其他游戏。</p><p class="sc-77igqf-0 bOfvBY">以下是下载应用程序并开始播放的方法:</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><ol data-type="List" data-style="Number" class="sc-1lmbno3-1 sizyJ"><li>在<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://play.google.com/store/apps/details?id=fm.drivetime.original&quot;,{&quot;metric25&quot;:1}]]" href="https://play.google.com/store/apps/details?id=fm.drivetime.original" target="_blank" rel="noopener noreferrer">安卓</a> </span>或<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://apps.apple.com/us/app/drivetime/id1357342274?ls=1&quot;,{&quot;metric25&quot;:1}]]" href="https://apps.apple.com/us/app/drivetime/id1357342274?ls=1" target="_blank" rel="noopener noreferrer"> iOS </a> </span>上下载安装 Drivetime。</li><li>打开应用程序，然后点击主屏幕上的“<em> Jeopardy </em>”图标。</li><li>轻按您想要播放的剧集。最新的免费剧集总是显示在提要的顶部。</li><li>准备好开始时，点击“播放”按钮。第一次演奏时，您需要允许 Drivetime 许可来录制和访问您的麦克风音频。</li><li>享受你的<em>危险</em>游戏，但记得安全驾驶！</li></ol> </body> </html></iframe>

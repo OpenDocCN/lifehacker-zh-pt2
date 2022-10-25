@@ -1,0 +1,9 @@
+# 使用你的冰箱不仅仅是为了冰激凌和冷冻披萨
+
+> 原文:[https://life hacker . com/use-your ' s refuge-than-just-of-ice cream-and-freeze-1833133606](https://lifehacker.com/use-your-freezer-for-more-than-just-ice-cream-and-froze-1833133606)
+
+用你的冰箱做更多事情。
+
+在上面的视频中，我们分享了一些使用冰柜的创意方法。比如把你的保鲜膜放在冰箱里以防粘连，把你所有的蔬菜残渣留到最后储存起来，或者在冰盘中制作香蒜沙司丁。和塑料袋里那团恶心的冷冻香蕉说再见吧——我们有更好的方法给你。
+
+你有使用冰箱的独特方法吗？下面分享给我们。

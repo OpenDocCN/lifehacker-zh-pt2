@@ -1,0 +1,25 @@
+# 如何通过看型号来辨别你的 iPhone 是否翻新
+
+> 原文:[https://life hacker . com/how-to-tell-if-your ' s iphone is-refined-by-looking-1835974840](https://lifehacker.com/how-to-tell-if-your-iphone-is-refurbished-by-looking-at-1835974840)
+
+当你买一部二手 iPhone 时，总会有一点神秘。卖给你的人买的手机是新的吗？是翻新的吗？
+
+Watch
+
+事实上，你可以通过查看设备的序列号来找到这些信息。
+
+这是一个已经存在了一段时间的诡计，但是本周,[《OS X 日报》再次指出了这个](http://osxdaily.com/2018/01/27/determine-iphone-new-refurbished-replaced/) 。
+
+基本上，手机序列号的第一个字母会让你知道手机是新的、翻新的、替换的还是个性化的。
+
+若要在手机上找到答案，请前往 iPhone 上的“设置”菜单，然后依次选择“通用”和“关于”。从那里寻找“模型”型号的第一个字母将会是 M、N、F 或 P，并解释你手机的背景。
+
+M -新手机
+
+F-翻新手机
+
+N -替换手机。这是针对原始所有者可能在他们的原始手机出现某种问题后从苹果商店获得的设备。
+
+个性化。这些手机在购买时都带有个性化的雕刻。
+
+就是这样！这非常简单，也是在你购买之前了解更多 iPhone 背后故事的好方法。

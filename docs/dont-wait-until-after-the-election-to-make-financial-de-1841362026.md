@@ -1,0 +1,17 @@
+# 不要等到选举后才做出财务决定
+
+> 原文:[https://life hacker . com/don-t-wait-being-that-after-the-election-make-financial-de-1841362026](https://lifehacker.com/dont-wait-until-after-the-election-to-make-financial-de-1841362026)
+
+根据来自 finance buzz 的一项新调查，32%的人将“重大财务决策”推迟到总统选举之后。此外，72%的受访者表示，他们认为无论谁当选都将“对他们的个人财务产生直接影响”
+
+Watch
+
+很容易理解为什么的人们会等着看下一次选举会发生什么。几位候选人计划要么降低大学费用，要么彻底清除学生债务。一些候选人对我们当前的医疗保健系统的某些版本不感冒，而其他人则希望政府经营的全民医疗保险。
+
+随着选举的临近，剩下的候选人对他们的个人政纲越来越大胆。就在这个月，伊丽莎白·沃伦 [概述了](https://twocents.lifehacker.com/how-elizabeth-warren-plans-to-cancel-student-loans-with-1841004446) 她将减少学生贷款债务的所有方法，而不需要国会通过立法。这类声明会让你想知道新当选的总统多快能开始实施他们的政策计划。
+
+除了我们已经面临的问题之外，像 [正在进行的贸易战](https://twocents.lifehacker.com/treat-the-trade-war-like-any-other-stock-dip-1834750756) (以及潜在的，也许是某种解决方案)，以及正在进行的关于衰退的讨论。虽然围绕潜在衰退*的狂热在过去几个月中有所放缓，但价格上涨、裁员和失业、股市下跌和房地产价格下跌等问题是受访者提到的关切问题。*
+
+但正如我们之前说过的，你 [无法预测](https://lifehacker.com/you-cant-predict-a-presidents-effect-on-the-stock-marke-1839929495) 总统选举对股市的影响，你根本就不应该试图 [把握市场](https://twocents.lifehacker.com/stop-trying-to-time-the-market-1833585011) 的时间。所以你的投资决定不应该带着“我会在 11 月后再做”的心态，因为从理论上讲，你会错过从现在到那时的潜在回报。选举后的任何市场上涨或下跌都会在选举后的几周内趋于平稳。
+
+当涉及到其他财务决策时，你可以*为即将到来的衰退*做好准备。但是，为可能的衰退做准备的规则也是你应该一直用来加强财务状况的规则，而不仅仅是在经济衰退期间。你应该专注于建立你的应急预算，尽可能多地偿还债务，并尽可能多地储蓄，以使你未来的生活更轻松。举例来说，如果你担心工作的稳定性，你可以暂缓买车或买房，但是对 11 月 3 日之后的生活的担忧不应该阻止你为你的财务做出积极的举动。

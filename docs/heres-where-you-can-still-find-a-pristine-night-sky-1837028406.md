@@ -1,0 +1,21 @@
+# 在这里你仍然可以找到纯净的夜空
+
+> 原文:[https://life hacker . com/heres-where-you-can-find-an-priest-night-sky-1837028406](https://lifehacker.com/heres-where-you-can-still-find-a-pristine-night-sky-1837028406)
+
+今年夏天，不断有 [流星雨](https://lifehacker.com/watch-two-meteor-showers-peak-tonight-1836785745) 和 [闪亮的行星](https://lifehacker.com/how-to-view-the-planets-at-night-in-august-1836909970) 在夜空中惊艳我们，但有一件事阻碍了我们和一场完美的表演:光污染。从城市的明亮灯光下走出去可能很难(甚至几乎不可能)，但在美国仍有一些地方可以提供完全清晰、完美的宇宙景观。
+
+Watch
+
+光污染不仅对人类健康和自然生态系统有各种不利影响，它还使我们看不到真正夜空的美丽 。但是发表在 [环境管理杂志](https://www.sciencedirect.com/science/article/pii/S0301479719309296) 上的一项研究现在已经绘制出了县级的人工光污染，揭示了一些视野开阔的区域。
+
+毫不奇怪，光污染在美国东半部的绝大多数地区都很猖獗，但在明尼苏达州、密歇根州和缅因州的部分地区有少数例外。然而，美国西部的乡村地区——以及阿拉斯加和夏威夷的大部分地区——仍然是观星的最佳地点。
+
+不幸的是，去那么远的地方看风景可能不太可行——尤其是如果你在华盛顿特区，据《华盛顿邮报》 报道，那里既是全国光污染最严重的地区*,也是距离最远的地区*( 800 英里！)来自一个夜空晴朗的地方。但是你可以做一些事情来减少来自你家的光污染:
+
+> 减少光污染的策略包括屏蔽户外灯具，使光线只射向需要的地方，而不是向上射向天空，选择不会发出过多蓝光的灯泡，只提供所需的照明。
+
+它不会让天空像你在亚利桑那州北部看到的那样纯净，但这是一个开始。
+
+* * *
+
+*更多来自 Lifehacker 的内容，一定要在 Instagram 上关注我们*[*@ lifehackerdotcom*](https://www.instagram.com/lifehackerdotcom/)*。*

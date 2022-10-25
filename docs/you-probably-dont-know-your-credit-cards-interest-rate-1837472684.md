@@ -1,0 +1,11 @@
+# 你可能不知道你信用卡的利率
+
+> 原文:[https://life hacker . com/you-possible-not-know-your-credit-rate-1837472684](https://lifehacker.com/you-probably-dont-know-your-credit-cards-interest-rate-1837472684)
+
+想想你钱包里的信用卡。你能说出你为他们每个人赢得的奖励吗？利率呢:你能列出来吗？根据 Nerdwallet 的 2019 年消费者信用卡报告 ，结果显示，38%的人不知道自己信用卡的利率。
+
+Watch
+
+Nerdwallet 调查的受访者中有一半没有每月付清全部欠款。最重要的是，44%的人不知道什么利率对他们的信用评分是合理的。当我们考虑申请信用卡时，我们倾向于对回报的关注多于对利率的关注。
+
+<iframe data-src="https://e.infogram.com/cb8c79ae-3c73-4b5c-974f-caab3920c4ce?src=embed" width="550px" height="779px" sandbox="allow-same-origin allow-scripts allow-forms" frameborder="0" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen" class="lazyload" scrolling="yes">T2】</span></p><h3 class="sc-1bwb26k-1 kpbNNd" id="h295382"><br/></h3><p class="sc-77igqf-0 bOfvBY">当然你不认为你需要担心利率。你每个月都要付清余额！但是，由于高利率，这些精心制定的计划很容易出错，让你负债累累，支付的费用远远超出你的预期。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h295383">利率仍在上升</h3><p class="sc-77igqf-0 bOfvBY">过去五年，利率一直在上升，从 2014 年的平均 12.74%升至今年春天的 17.14%。如果你看一看过去 20 年的<span></span>，利率现在处于最高水平。</p><p class="sc-77igqf-0 bOfvBY">正如我们之前提到的，<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://twocents.lifehacker.com/how-to-prepare-for-an-economic-downturn-1831320497&quot;,{&quot;metric25&quot;:1}]]" href="https://twocents.lifehacker.com/how-to-prepare-for-an-economic-downturn-1831320497">偿还债务</a> </span>是保护你的财务免受经济衰退影响的最好方法之一。如果你有余额，或者认为有一天你可能需要，检查你的信用卡条款，了解你的利率。由于许多信用卡利率是可变的，它们可以随着时间的推移而轻微变动；当你支付账单或者回顾你的账单时，是一个很好的时机来确保你知道你的费用。这些知识可以帮助你做出更好的决定，如果你不得不为意想不到的购买付款或遇到某种财务紧急情况，该用什么卡。<br/></p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">如果你信誉良好，打个电话问问你是否能让你的利率<span></span>降下来也许是值得的。平均 17%不代表没有机会拿到更好的。</p> </body> </html></iframe>

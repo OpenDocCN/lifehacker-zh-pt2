@@ -1,0 +1,13 @@
+# 父母们，给你的厨房买个图书馆凳子吧
+
+> 原文:[https://life hacker . com/parents-get-a-library-stool-for-your-kitchen-1835067181](https://lifehacker.com/parents-get-a-library-stool-for-your-kitchen-1835067181)
+
+对许多人来说， [这个滚动的橡胶装置](https://www.amazon.com/Cramer-1001-01-Rolling-Stool-Silvertone/dp/B001GN7QWA/ref=sr_1_3?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/parents-get-a-library-stool-for-your-kitchen-1835067181&asc_source=&keywords=library stool&qid=1559066998&s=gateway&sr=8-3&tag=kinjalifehackerlink-20) 让人联想起当地公共图书馆的景象。你可能会发现它们散落在过道里(尽管在你最需要的时候它们总会消失)。他们有一个更宽的书架来放你的书，当你走上前去抓取一个遥不可及的标题时，它会以令人惊讶的满足感锁定到位，这样你就不会被一大堆平装书绊倒。
+
+Watch
+
+当然，在图书馆里有它是很棒的。但是这个凳子真正属于哪里呢？在一个有小孩的父母的厨房里。
+
+我希望我能说这是我的主意——更希望在我儿子小的时候我也有这个想法。但实际上是教育家 [伊森·肖诺弗](https://twitter.com/ethanschoonover) 赋予了我这种才华:
+
+<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1133205551612026880&amp;autosize=1" autoresize="true" id="twitter-1133205551612026880" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h287773">为什么它们很棒</h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>它们会滚动，这意味着你可以少拿一样东西来移动。简单地把它踢到位(非常适合沮丧情绪的释放！).或者更好的是，让你的孩子自己把它推到合适的位置。</li><li>当你(或你的孩子)踩在上面时，它就会锁定。这些东西异常坚固。孩子们长大后很久，你会发现自己变得无所事事。</li><li>环绕式保险杠！我仍然能听到我儿子的木凳在他靠着我的橱柜洗手时发出的声音。你的橱柜和家具不会遭受同样的命运。</li><li>你的孩子会发现这个小架子有无穷无尽的用途。</li></ul><p class="sc-77igqf-0 bOfvBY">显然，至少根据 Schoonover 的推特上的回复，这是很多人的祖母过去在厨房里使用的东西。现在是让奶奶骄傲的时候了，为了下一代，让他们回到我们的生活中。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><small> <em>更多来自 Lifehacker，一定要在 Instagram 上关注我们</em></small><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.instagram.com/lifehackerdotcom/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.instagram.com/lifehackerdotcom/" target="_blank" rel="noopener noreferrer"><small><em>@ lifehackerdotcom</em></small></a></span><small><em>。</em> </small> <br/></p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>

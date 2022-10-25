@@ -1,0 +1,18 @@
+# 使用谷歌地图查看公共交通状况
+
+> 原文:[https://life hacker . com/use-Google-maps-to-check-public-transportation-status-1836046424](https://lifehacker.com/use-google-maps-to-check-public-transportation-status-1836046424)
+
+我们很多人依赖公共交通，但有时你当地的交通系统一点也不可靠。我们这些使用它上下班的人已经习惯了挤在公交车和地铁车厢里，但有时乘客太多，你无法上车——或者更糟的是，你的公交车从你身边疾驰而过，因为它无法容纳更多的人。其他时候，由于交通事故、建筑或机械问题造成的延误会让你的通勤慢得近乎爬行。
+
+Watch
+
+幸运的是， [谷歌地图现在可以给我们所有人提前警告](https://www.blog.google/products/maps/grab-seat-and-be-time-new-transit-updates-google-maps/) 公共交通拥挤和延误，就像它可以猜测餐馆的等待时间一样。 [实时延迟更新](https://ai.googleblog.com/2019/06/predicting-bus-delays-with-machine.html) 和 [拥挤度评分](https://www.blog.google/products/maps/transit-crowdedness-trends-around/) 最近刚刚在 Android 和 iOS 的谷歌地图应用中推出。该功能支持全球 200 个主要城市，未来还会有更多。
+
+以下是在谷歌地图中查找新人群和延误信息的位置:
+
+1.  打开谷歌地图应用程序
+2.  轻按“通勤”以查看附近路线的列表。或者，您可以输入您的目的地，然后轻按“路线”，并选择“公共交通”
+3.  点击您希望使用的路线。
+4.  任何延误或绕路都会显示在您行程中涉及的每一条公共汽车或火车线路旁边的方向上。您还会看到列出了大致的拥挤度—图标中的棍图越多，意味着拥挤度越高。您也可以点击图标旁边的“I”信息图标，以获得更详细的解释。
+
+在此简单说明一下，一些城市/路线可能没有所有的新信息。这可能是因为谷歌的服务器还没有更新，或者是因为特定的数据在你所在的地区不可用。请继续查看应用程序，希望这些信息会很快添加进来。

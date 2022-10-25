@@ -1,0 +1,15 @@
+# 使用这个网站重新观看十年前最受欢迎的 YouTube 视频
+
+> 原文:[https://life hacker . com/rewatch-the-most-popular-YouTube-videos-from-exact-a-1837776839](https://lifehacker.com/rewatch-the-most-popular-youtube-videos-from-exactly-a-1837776839)
+
+我很喜欢社交媒体网站上的“今天”提醒。毫无疑问，当脸书重新展示我十年前发布的《老友记》的照片时，我很高兴，当 Instagram 让我想起我几年前发布的一张照片时，我也很高兴。
+
+Watch
+
+也就是说，本周我还非常兴奋地发现了 YouTube 十年 ，这个网站在 10 年前的今天重现了观看次数最多的视频。
+
+例如，2009 年 8 月 31 日，人们对典当明星 发布的关于 [如何辨别白银是真的视频非常感兴趣，并对](https://www.youtube.com/watch?v=e6mqbQtr9DM) [爱德华·玛雅&维卡·吉古丽娜的果酱“立体声爱情”](https://www.youtube.com/watch?v=p-Z3YrHJ1sU) 非常感兴趣，我相当自信，直到今天早上我研究这个帖子时，我才听到这个视频。
+
+网站上的视频按类别分类，每个类别只显示最上面的视频。选项包括音乐、喜剧、娱乐、新闻和政治、体育、游戏以及宠物和动物。
+
+如果你讨厌今天的选择，你也可以回到过去，看看 10 年前和一些变化前流行的东西。不能；然而，向前看，看看 10 年前的明天或下周流行什么。剧透证明！

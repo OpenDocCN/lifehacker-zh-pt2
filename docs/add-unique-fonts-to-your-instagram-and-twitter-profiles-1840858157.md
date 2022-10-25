@@ -1,0 +1,21 @@
+# 用这个字体生成器给你的 Instagram 和 Twitter 档案添加独特的字体
+
+> 原文:[https://life hacker . com/add-unique-fonts-to-your-insta gram-and-Twitter-profiles-1840858157](https://lifehacker.com/add-unique-fonts-to-your-instagram-and-twitter-profiles-1840858157)
+
+当在 Twitter 和 Instagram 等网站上创建个人资料时，很容易最终看起来和其他人一模一样。
+
+Watch
+
+默认情况下，这些网站只以单一字体发布个人资料，这使得每个人的个人资料页面看起来几乎完全一样。记住， [Meta Tag 的字体生成器](https://metatags.io/font-generator) 是一个快速简单的工具，可以帮助你创建一个与众不同的个人资料。
+
+要使用它，你只需输入你希望你的个人资料说什么。然后，字体生成器会用一堆不同的字体重新创建该文本。
+
+你不能只使用手机上的特殊键盘或从 Word 或其他文字处理程序中复制/粘贴字体，因为像 Instagram 这样的社交网络不允许你在文本上使用样式。Meta Tag 的工具通过创建由 Unicode 中的特殊字符 [组成的伪字体来解决这个问题，这是你的手机和电脑首先用来处理文本和表情符号的。](https://en.wikipedia.org/wiki/Unicode) 
+
+结果是你可以在那些本来就不是字体的社交网络上使用的“字体”。
+
+Meta Tag 有很多选项，都直接显示在你输入信息的下方。选择一个将在 Instagram 和 Twitter 上产生预览，这样你就可以感受一下它的样子。
+
+一旦你找到了完美的选项，每个字体选项旁边的复制按钮将允许你将你的信息复制到你的手机或电脑上，然后粘贴到你选择的社交网络上。
+
+这是一个使用起来非常简单的工具，可以给你的个人资料带来独特的变化，让它们脱颖而出。

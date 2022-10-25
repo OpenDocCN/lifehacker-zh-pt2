@@ -1,0 +1,17 @@
+# 将蔬菜浸入拉面粉中
+
+> 原文:[https://life hacker . com/dip-vegetables-into-ramen-powder-1844481642](https://lifehacker.com/dip-vegetables-into-ramen-powder-1844481642)
+
+当你想到“蘸”食物时，你可能会想象将它们浸入一碗奶油状、通常呈鲜味的蘸酱中。这样做通常是为了让薯条更美味，让蔬菜更令人兴奋，但你不一定需要酸奶油来实现后者。你所需要的是一种精细的、超级美味的粉末，它会附着在蔬菜的新鲜切面上。你需要的只是拉面粉。
+
+Watch
+
+将蔬菜蘸上干调料——一种 [掸湿](https://twitter.com/horsedivorce/status/1103095882139033600?lang=en) 的版本——并不是我一个人想出来的。我们的执行主编告诉我，他见过小胡萝卜搭配一包干 ranch，而《好胃口》的 [Sohla El-Waylly](https://www.instagram.com/sohlae/?hl=en) 最近分享了她受 idli podi 启发的“[Ranch Fun Dip](https://food52.com/blog/25440-why-sohla-el-waylly-ranch-fun-dip-is-genius)”——一种由营养酵母、开心果、阿勒颇胡椒和一系列美味调料组成的美味混合物——搭配 Food52。
+
+*想了解更多我们喜爱的耐储存食品，请看下面的视频:*
+
+所有这些关于干燥可口的粉末的谈论让我想到了放在我橱柜里的拉面调料包。我已经做了很多 [冷面碗](https://skillet.lifehacker.com/these-cold-spicy-noodles-will-soothe-your-sweaty-soul-1827369037) (用花生酱)但是我不敢扔那块面条附带的调料包。那些是珍贵的。我通常把它们撒在爆米花或 [炸薯条](https://lifehacker.com/sprinkle-ramen-powder-on-french-fries-1833383886) 上，但昨晚我把粉末倒在一个盘子上，然后把新切的黄瓜条浸入这堆味道粉末中，直到我吃完了我农产品抽屉里的所有黄瓜(那是一根半黄瓜)。
+
+如果你熟悉拉面调料，你可能会猜到这是多么令人愉快。凉爽、松脆、略带甜味的黄瓜完美地衬托了强烈的咸味和肉味粉末，这些粉末附着在新鲜切割的蔬菜上，就像糖果棒上有趣的蘸酱棒一样。(我发誓 Solha 的*头脑*是一个奇迹。)沾在蔬菜上的粉末量很容易控制，但请记住，这种做法最适合新切的蔬菜，因为你需要水分。干燥的预切产品不具备粘粉所需的粘着力。
+
+胡萝卜、萝卜、大葱和切成两半的樱桃番茄在这里都很美味，你只受到你的拉面粉收藏的限制，这是你可以建立的最便宜的收藏之一。(不过，牛肉粉是一个很好的起点；它有一点甜味，我很喜欢。)

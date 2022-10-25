@@ -1,0 +1,11 @@
+# 如果你倒挂太久，你的身体会怎么样
+
+> 原文:[https://life hacker . com/1793101067](https://lifehacker.com/what-happens-to-your-body-if-you-hang-upside-down-for-t-1793101067)
+
+如果你想知道倒挂太久是否会致命，答案是肯定的。如果你不及时直立起来，你的身体会发生什么。
+
+Watch
+
+在这段来自 [SciShow YouTube 频道](https://www.youtube.com/channel/UCZYTClx2T1of7BRZ86-8fow) 的视频中，奥利维亚·戈登解释了颠倒人体的科学，以及什么会出错:
+
+<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-mQG4aJF_B3E&amp;start=0" data-chomp-id="mQG4aJF_B3E" data-recommend-id="youtube://mQG4aJF_B3E" id="youtube-mQG4aJF_B3E" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="mQG4aJF_B3E" data-recommend-id="youtube://mQG4aJF_B3E" id="youtube-mQG4aJF_B3E" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">当你倒立时，你一翻身，血液就开始涌向你的头部。最终，这会导致血管破裂或引发脑出血。但这还不是最大的问题。大多数并发症是由窒息或缺氧引起的。</p><p class="sc-77igqf-0 bOfvBY">当你倒立时，你的器官会给你的肺增加额外的重量，使呼吸更加困难。心脏问题也可能出现，因为你有更多的血液流向心脏，这意味着你的心脏比平时泵得更努力。悬空太久也对你的眼睛有害。当你头朝下时，你眼睛里的压力会加倍，这会导致视力问题。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">当然，你必须倒挂几个小时或更长时间才会发生这些事情，所以没有必要让孩子们完全避开单杠。但是如果你正在<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://lifehacker.com/the-most-common-holiday-injuries-and-how-to-avoid-them-1790272397&quot;,{&quot;metric25&quot;:1}]]" href="https://lifehacker.com/the-most-common-holiday-injuries-and-how-to-avoid-them-1790272397">挂一些圣诞灯</a> </span>，去爬山或者在高处做一些工作，确保有人在附近以防万一。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY"><em>本文最初发表于 2019 年，由伊丽莎白·段丽阳于 2020 年 3 月 16 日更新。更新包括以下内容:检查链接的准确性，改变特征图像和更新格式，以反映当前的风格。</em></p> </body> </html></iframe>

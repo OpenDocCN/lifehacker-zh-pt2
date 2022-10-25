@@ -1,0 +1,45 @@
+# 关于全球入学注册，你现在需要知道什么
+
+> 原文:[https://life hacker . com/what-you-need-to-know-about-global-entry-enrollment-rig-1844217832](https://lifehacker.com/what-you-need-to-know-about-global-entry-enrollment-rig-1844217832)
+
+随着国内和国际旅游开始全面开放，旅行者将会看到更多的旅游业务跟进。首先开始逐步回归的是护照服务。现在，美国海关和边境保护局机构 [已经宣布](https://www.cbp.gov/newsroom/local-media-release/cbp-reopen-lax-global-entry-enrollment-center-july-6) 全球入境招生将于 7 月 6 日回归。
+
+Watch
+
+以下是你需要知道的。
+
+### 什么是全球进入？
+
+全球入境是一项为低风险旅客提供预先批准的计划，当他们在国际旅行后抵达美国机场时，可以更快地通过安全检查。
+
+一旦你着陆，你将带着你的护照或永久居民卡前往全球入境亭，然后将你的手指放在数字扫描仪上。在您完成自我扫描并被识别后，您将收到一张收据，您可以自由前往行李认领处或离开机场。
+
+获得全球入境计划的批准需要广泛的背景调查和面对面的面试(也可以在机场进行)。一次性支付 100 美元，如果你没有被批准，这笔费用是不可退还的。
+
+这里是提供全球入境亭的 机场的 [列表。](https://www.cbp.gov/travel/trusted-traveler-programs/global-entry/locations)
+
+### 纽约人不能申请
+
+特朗普政府禁止纽约人参加任何“抵达后加速”计划，包括全球入境。这些限制是对纽约州 [【绿灯法】](https://dmv.ny.gov/driver-license/driver-licenses-and-green-light-law) 的回应，该法律允许无证人士获得驾照。绿灯法律还禁止机动车辆部在没有法院命令的情况下与联邦当局共享数据。
+
+如果你是近 80，000 名纽约人中的一员，正在申请全球入境(Global Entry)等快速旅行项目，申请将会被拒绝。
+
+### 有条件批准
+
+如果你最近被批准了一个条件，你现在可以在 [全球入学注册中心](https://www.cbp.gov/travel/trusted-traveler-programs/global-entry/enrollment-centers) 完成你的面试。这些预约必须通过您的 [可信旅行者计划](https://ttp.dhs.gov/) 账户提前安排。这也被称为 [“抵达注册”](https://www.cbp.gov/travel/trusted-traveler-programs/global-entry/enrollment-arrival)T11】
+
+根据美国海关和边境保护局的说法，以下是你需要随身携带的东西:
+
+*   有效的护照。如果您使用多本护照旅行，请在面试时携带所有护照，以便将信息添加到您的档案中。这为您提供了在全球入境亭使用多本护照的能力。
+*   提供居住证明的文件。示例包括驾照(如果地址是当前地址)、抵押声明、租金支付声明、公用事业账单等。未成年人不需要这些文件。
+*   **永久居民卡。**(如适用)。
+
+### 社交距离措施
+
+由于我们仍然生活在一个全球化的疫情中，确保那些选择旅行的人尽可能安全是有意义的。因此，我们为全球入境员工和申请人制定了如下社交距离措施:
+
+*   预约可用性降低
+*   工作人员将被要求佩戴机构认可的口罩
+*   申请人和访客必须戴口罩
+*   已经取消了签到表
+*   等候区座位减少

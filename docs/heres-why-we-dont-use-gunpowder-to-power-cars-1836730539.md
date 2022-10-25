@@ -1,0 +1,29 @@
+# 这就是为什么我们不用火药来驱动汽车
+
+> 原文:[https://jalopnik . com/heres-why-we-don-use-powder-to-power-cars-1836730539](https://jalopnik.com/heres-why-we-dont-use-gunpowder-to-power-cars-1836730539)
+
+我 100%确定你们都在某个时候考虑过这个想法。枪支利用大爆炸来快速射出子弹，那么我们为什么不利用高速子弹背后的可怕力量来让汽车跑得和高速子弹一样快呢？科学，我的朋友们。科学是答案。
+
+Watch
+
+根据能量不能创造也不能消灭的科学原理，汽车必须将别处的能量转化为使其运动的动能。如今大多数汽车从石油产品中获取能量，越来越多的汽车从纯电力中获取能量。我们将在这里讨论石油。
+
+大多数汽车将汽油和空气的混合物推入气缸，混合物在气缸中被活塞压缩，此时火花塞点燃一点火花，压缩的汽油/空气混合物爆炸。这迫使活塞向下，进而旋转活塞连接的曲轴，曲轴连接到传动轴，传动轴将动力传递给推动汽车的车轮。简单。
+
+汽油是最终被许多汽车使用的燃料，这不仅仅是因为它在经济上可行(虽然仍然在毁灭地球，是的)，还因为它具有所谓的高“比能”。
+
+比能，以其最基本的形式，是你从一定量的任何给定物质中得到多少能量。像你汽车里的铅酸电池这样的东西实际上比能量很低，每公斤电池只能产生 0.17 兆焦耳的能量。这意味着要获得足够的能量来驱动一辆使用铅酸电池的汽车，你需要很多重的铅酸电池。可能会很慢。
+
+要真正动起来，你需要用功率重量比更好的东西给你的车提供动力。虽然像从增殖反应堆中取出的铀，其比能为每公斤 80，620，000 兆焦 ，肯定会让你很快离开，但从增殖反应堆中取出的铀如果没有极度的屏蔽，往往会让人有点死亡。因此，在这种情况下，你可能仍然会有功率重量比的问题，因为你的车是用许多许多吨的铅、混凝土和钢材等建造的。
+
+所以我们又回到了子弹的问题上。如果火药能让子弹以极快的速度运动，为什么汽车不能呢？
+
+嗯，事实证明你需要很多火药。这是因为火药充其量只有每公斤 11.3 兆焦耳的比能量密度(在一项试图检验火药是否可以用于焊接 的 [研究中愉快地展示了这一点)。](https://ieeexplore.ieee.org/document/5930549)
+
+另一方面，汽油的价格高达每公斤 46.4 兆焦耳。这比乙醇(30 兆焦/千克)煤(33 兆焦/千克)还要多，甚至比喷气燃料(43 兆焦/千克)还要多。汽油在一个小包装里有很强的冲击力。
+
+火药中的能量少得惊人。子弹在火药驱动下可以移动得如此之快，很大程度上是因为子弹不像汽车那样重达 4000 磅。
+
+为了了解实际情况，我们来看看 1991 年左右的英国。
+
+<iframe data-src="https://jalopnik.com/embed/inset/iframe?id=youtube-video-iS_2JD5whRY&amp;start=0" data-chomp-id="iS_2JD5whRY" data-recommend-id="youtube://iS_2JD5whRY" id="youtube-iS_2JD5whRY" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="iS_2JD5whRY" data-recommend-id="youtube://iS_2JD5whRY" id="youtube-iS_2JD5whRY" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">机器的秘密生活将火药倒入一个迫击炮筒，然后试着用它发射一个啤酒罐。可悲的是，啤酒罐很快就掉了出来。但是当他们试图发射一个装有汽油的啤酒罐时？<!-- -->嗯，那东西真的动了。</p><p class="sc-77igqf-0 bOfvBY">你的车也是。</p> </body> </html></iframe>

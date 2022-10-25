@@ -1,0 +1,13 @@
+# 如何降级你的大通信用卡不失去你的积分
+
+> 原文:[https://life hacker . com/how-to-degrade-you-chase-credit-with-lost-1840980543](https://lifehacker.com/how-to-downgrade-your-chase-credit-card-without-losing-1840980543)
+
+当有消息称大通银行将广受欢迎的 Sapphire Reserve 卡的年费从 450 美元提高到 550 美元时，很多读者都想知道保留这张卡是否值得。虽然增加的费用带来了额外的持卡人利益，但当你在账单上看到 550 美元时，这并不是一个轻松愉快的数字。
+
+Watch
+
+如果你想避免支付这笔费用，关闭卡不是最明智的举动。它会冻结你的信用评分，抹去你在使用预付卡时积累的积极付款记录。 [降级您的卡](https://lifehacker.com/the-chase-sapphire-reserve-annual-fee-is-increasing-1840881817) 是专家推荐的较好选择。你没有完全切断与发卡机构的联系，而是坚持使用另一种收费更低或根本不收费的信用卡。
+
+但是你积累的积分会怎么样呢？信用卡在关卡的时候 [刷掉你的积分](https://twocents.lifehacker.com/how-to-make-sure-you-dont-lose-your-credit-card-rewards-1836913367) 是很常见的，这也是我们说在兑换积分之前不要坐在你的积分上太久的原因之一。如果你改变主意，不再想要那张信用卡，你所有的努力工作都白费了。但是，如果你只是简单地将同一发行商的卡换成另一张呢？
+
+<iframe src="https://api.kinja.com/embed/thread/1840974371" height="350" width="640" scrolling="no"></p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY"><br/>在<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://chaseonline.chase.com/resources/RPA0511_0518_Web.pdf&quot;,{&quot;metric25&quot;:1}]]" href="https://chaseonline.chase.com/resources/RPA0511_0518_Web.pdf" target="_blank" rel="noopener noreferrer">追逐终极奖励</a> </span>的计划协议中没有明确，但由于我自己有这张卡，所以我拨通了客服询问政策。我与之交谈的代表并不担心。</p><p class="sc-77igqf-0 bOfvBY">对 Chase 客户来说，好消息是，如果您从储备卡降级到另一张 Chase rewards 卡，您不会失去您的积分。这意味着，如果您要求从保留卡转换到年费为 95 美元的首选卡，您将在 Chase Ultimate Rewards 帐户中看到相同的余额。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">请注意，如果您完成了“产品更换”，您赢取和兑换积分的能力将受到新卡规则的限制。</p><p class="sc-77igqf-0 bOfvBY">例如，当您通过大通的门户网站兑换终极奖励积分时(而不是将其转让给旅行合作伙伴)，这些积分的价值会增加 50%；在首选级别，您的积分仅在 Chase 门户网站中使用时价值增加 25%。</p><p class="sc-77igqf-0 bOfvBY">这条消息留给你两个主要选择。您可以在续费日期前将您的卡降级，并继续赢取积分。或者你可以看看你的日历，把它扔在地板上，给自己订一张去阳光明媚的地方的票。当我们说<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://twocents.lifehacker.com/dont-hoard-your-credit-card-points-1832859143&quot;,{&quot;metric25&quot;:1}]]" href="https://twocents.lifehacker.com/dont-hoard-your-credit-card-points-1832859143">不要囤积你的积分</a> </span>时，我们不是在开玩笑。</p> </body> </html></iframe>

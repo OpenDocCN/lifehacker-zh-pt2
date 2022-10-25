@@ -1,0 +1,17 @@
+# 以下是你的房东在出现之前需要给你的通知时间
+
+> 原文:[https://life hacker . com/heres-how-more-notice-your-landlord-need-to-give you-b-1837277617](https://lifehacker.com/heres-how-much-notice-your-landlord-needs-to-give-you-b-1837277617)
+
+如果你知道你的房东计划参观你租的房子，你可能至少会考虑收拾一下。你要确保你不需要在他们预计到达的时间内洗澡。你藏了任何违禁品。
+
+Watch
+
+但是说 [你的房东刚刚*抵达*](https://lifehacker.com/how-to-deal-with-a-difficult-landlord-1621836145) ，完全不请自来。那不可能是合法的，不是吗？
+
+一点也不简单的答案是:视情况而定。房东获得出租房产的规则因州而异。虽然一些州没有指定通知窗口，但一些州已经宣布 12 小时、24 小时或 48 小时为合理通知。有些州只要求模糊的“合理通知”(我正看着你呢，印第安纳州。你也是，新罕布什尔)。 [Nolo 列出了租赁单位准入的各种法律](https://www.nolo.com/legal-encyclopedia/chart-notice-requirements-enter-rental-29033.html) ，您可能会惊讶于您所在州的规则。
+
+当然，这种有意进入的通知是出于非紧急需要，如检查、维修或向潜在租户展示房屋。如果您要求维护，您所在州的通知期限可能不适用于该要求。
+
+如果有类似于火灾或管道爆裂的紧急情况，通知期肯定不适用，老实说，你有更大的问题要处理。
+
+但是，如果你想确保你的房东不会因为他们“就在附近”而“顺便拜访”，看看你的租赁协议规定了什么，并与你所在州的法律进行比较。对于一个州- 到- 的列表，查看 Nolo 关于房东访问的州法律纲要。

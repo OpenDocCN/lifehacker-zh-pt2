@@ -1,0 +1,17 @@
+# 为什么 Zappos 数据泄露和解率如此之低
+
+> 原文:[https://life hacker . com/why-the-zappos-data-breach-settlement-is-so-offensive-1839164880](https://lifehacker.com/why-the-zappos-data-breach-settlement-is-so-offensive-1839164880)
+
+你还记得亚马逊旗下的在线鞋店 Zappos[在 2012 年](https://lifehacker.com/zappos-passwords-hacked-what-you-need-to-do-right-now-5876462) 发生数据泄露，泄露了 2400 万顾客的用户名和密码吗？不，从那以后，在所有其他数据泄露事件中，你已经忘记了它:Equifax、雅虎、万豪等等。直到今天，当集体诉讼管理人发出通知，这似乎是有史以来最令人失望的解决方案。你认为从 Equifax 得到几块钱 不好吗？下次在 Zappos 购物打九折怎么样？
+
+Watch
+
+受影响的消费者收到一封电子邮件，其中包含一个一次性代码，可用于未来在 Zappos.com 购物时享受 10%的折扣(不包括运费和税费！)，署名“你在 Zappos 的朋友。”
+
+### 这微不足道的和解是如何发生的
+
+和解已获得初步批准，其最终批准听证会将于 12 月举行。如果你想知道是否有人得到了比你更好的出价，他们肯定没有:和解协议授予该案九名代表原告每人 2500 美元。其余的 160 万美元和解金大部分用于律师费。
+
+优惠码 2019 年 12 月 31 日到期。大众并不满意，并采取了我们的数字公共广场:Twitter。
+
+<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1185190500678152193&amp;autosize=1" autoresize="true" id="twitter-1185190500678152193" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1185177657719345153&amp;autosize=1" autoresize="true" id="twitter-1185177657719345153" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h297222"><br/></h3><p class="sc-77igqf-0 bOfvBY">一些情况使得这个案子变得棘手，亚当·莫斯科维茨 ，一位迈阿密的集体诉讼律师解释道。首先，除了修改密码的麻烦之外，没有大量证据表明消费者遭受了破坏。因为没有发现 Zappos 在安全措施上有疏忽，所以很难追究公司的责任。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">此外，该案件持续了七年多。那几乎是两个总统任期了。该集团首先与一项仲裁条款进行斗争，Zappos 声称该条款保护其免受违约诉讼。该案件一直上诉到最高法院，尽管最高法院拒绝了审理该案件的请求。莫斯科维茨说，相对于法律团队在该案上可能花费的实际时间而言，和解总额似乎相当低。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h297223"><strong>如何获得更好的交易</strong></h3><p class="sc-77igqf-0 bOfvBY">如果你直接受到 Zappos 违规事件的影响，你不应该期望得到 10%的优惠券。<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.zapposdatasettlement.com/&quot;,{&quot;metric25&quot;:1}]]" href="http://www.zapposdatasettlement.com/" target="_blank" rel="noopener noreferrer">你可以选择退出</a> </span>并聘请律师为你个人打官司。但是莫斯科维茨怀疑这个解决方案的退出率会非常低。</p><p class="sc-77igqf-0 bOfvBY">“聊胜于无，”莫斯科维茨谈到折扣时说，并解释说，在和解中，原告和被告共同同意减免(你的赔偿)。Zappos 本可以什么都不提供，辩称它通过加强其安全性尽到了自己的责任，优惠券是一种善意的表示。折扣优惠可能会给 Zappos 带来几天的负面新闻，但该品牌的粉丝仍会购买鞋子。与许多其他在线零售商不同，Zappos 因不定期提供优惠券代码而臭名昭著。该公司确实为学生、教师和军人提供 10%的折扣，尽管一名律师指出 持续的折扣与和解优惠券不相符。</p><p class="sc-77igqf-0 bOfvBY">对于任何曾经收到优惠券以换取你的痛苦和苦难的人来说，一个有趣的细节是:莫斯科维茨说，提供 a 级优惠券或折扣的和解协议变得比过去少得多。批准和解的法官正在更仔细地审查这些类型的报价，因为它们往往会给消费者带来伤害，因为他们可能会在体验后发誓放弃该产品或品牌。</p> </body> </html></iframe>

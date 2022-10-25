@@ -1,0 +1,29 @@
+# 如果你还没有删除你的展开。我的帐户，现在就做
+
+> 原文:[https://life hacker . com/if-you-have-have-have-have-have-have-have-have-have-have-have-have-have-have-have-have-have-have-have-have-have-have-have-have-have-have-have-have-have-have-have-deleted-your-unroll-me-account-d-1840511950](https://lifehacker.com/if-you-havent-already-deleted-your-unroll-me-account-d-1840511950)
+
+早在 2017 年，unroll . me——试图让你退订不想要的电子邮件和时事通讯的第三方服务——因收集用户信息、将其出售给优步，并在未通知用户的情况下保存电子邮件和其他数据的副本而受到批评。
+
+Watch
+
+这些发现导致了联邦贸易委员会的调查和随后的诉讼，最终 [在本周](https://www.theverge.com/2019/12/17/21027159/unroll-me-email-privacy-ftc-settlement) 达成了和解。协议的一部分要求 Unroll.me 删除所有保存的用户信息，并要求该公司在如何访问、收集和出售其收集的任何数据方面更加透明。
+
+尽管您之前存储的数据将从 Unroll.me 的服务器中删除，但我们认为您应该采取额外的措施:检查您是否曾与 Unroll.me 共享过您的 Gmail 帐户，如果是，请删除访问权限。
+
+Gmail 和其他电子邮件服务现在为退订邮件提供了类似的(自动)技术。更重要的是，你应该抵制把你的整个收件箱交给第三方服务的冲动，除非你有一个很好的理由这么做(并且相信他们无论你让他们哪个公司访问你的电子邮件都不会与其他公司分享这些数据，或者利用这些数据向你推销更多的产品)。
+
+无论你一直使用 Unroll.me，还是你有一个不再使用的旧帐户，联邦贸易委员会最近的解决方案都是一个删除你的帐户并取消 Unroll.me 访问你的 Gmail 的好借口。我们将向你展示如何使用最初由科技博客作者和 UX 设计师佩尔·阿克斯布姆概述的 步骤来做到这一点。
+
+### 删除您的 Unroll.me 帐户
+
+1.  要删除您的 Unroll.me 帐户，请登录该服务的 [主页](https://unroll.me/) 。
+2.  点击“汉堡”图标网你的账户名，然后点击**【设置】**
+3.  向下滚动并点击**“删除我的帐户”**
+4.  你会得到一个弹出窗口，询问你是否真的想要删除你的账户，并提供一个离开的理由，尽管这是可选的。点击**“删除我的账号”**完成。
+
+尽管已经删除了你的帐户，Unroll.me 可能仍然可以从技术上访问你的 Gmail，在这种情况下，你必须手动删除它才能完成这个过程。
+
+1.  打开[【accounts.google.com】](https://myaccount.google.com/)，用你的谷歌账户登录(如果你还没有的话)。
+2.  点击侧面菜单中的**“安全”**。
+3.  向下滚动并点击**“管理第三方访问”**
+4.  向下滚动，直到从应用程序列表中找到 Unroll.me。点击将其高亮显示，然后点击**“移除访问权限”。**

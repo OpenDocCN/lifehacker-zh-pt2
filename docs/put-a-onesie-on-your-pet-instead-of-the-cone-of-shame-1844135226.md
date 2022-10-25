@@ -1,0 +1,35 @@
+# 给你的宠物穿上连体衣，而不是“耻辱柱”
+
+> 原文:[https://life hacker . com/put-a-onesie-on-your-pet-not-the-cone-of-the-cone-of-shame-1844135226](https://lifehacker.com/put-a-onesie-on-your-pet-instead-of-the-cone-of-shame-1844135226)
+
+如果你的宠物从手术中恢复过来，你会记得它们有多讨厌伊丽莎白时代的项圈，也被称为“耻辱锥”——那是一种套在它们脖子上的硬塑料锥，防止它们舔或撕掉缝线。除了看起来不舒服，耻辱柱还限制了他们的视野，让他们更难进食或饮水。
+
+Watch
+
+好消息是，有一些更舒适的替代方案，可以让你和你的宠物感觉稍微平静一些。
+
+*想了解更多关于照顾宠物的信息，请观看下面的视频:*
+
+### 给你的宠物穿上连体衣
+
+最简单的替代方法之一就是给你的猫或小狗穿上一件 T2 T3。连体衣将为您的宠物提供全面的覆盖，覆盖他们的躯干，防止他们舔或撕裂任何缝线。这也是一个更可爱的选择。
+
+当要给你的宠物穿连体衣时，你需要选择合适的尺寸。当我在我的猫身上试验时，我 11 磅重的猫需要 9 个月的连体衣，而我 17 磅重的猫需要 18 个月的连体衣。(正如你从下面的照片中看到的，水泥，我 17 磅的猫，穿着连体衣看起来很不高兴，但这并不新鲜。)
+
+根据缝线的位置，你可能需要一件完整的连体衣，一件在底部按扣的连体衣，为此你需要在尾部剪一个洞，或者如果你不需要太多的覆盖，你可以使用一件婴儿衬衫，它可以覆盖肩膀和上腹部。
+
+你可能还需要稍微修改连体衣，以确保它舒适合身，无论是使用剪刀打开手臂或颈部的洞，还是固定躯干以使其更贴身。
+
+### **剪下一件旧 t 恤**
+
+如果你手头没有任何连体衣，另一个选择是 [剪下一件旧 t 恤](https://www.instructables.com/id/Superior-post-surgical-feline--canine-appliance.-/) 来制作一套术后服。对于这个选项，你将剪下一大块正方形的布料，为胳膊和腿剪下四个孔，将你的猫或小狗放在腿/胳膊孔中，然后用安全别针将所有东西固定住。
+
+你需要为你的宠物定制腿部和手臂的孔，为了舒适起见，当谈到别衣服时，你会想沿着宠物的顶部别，而不是腹部。如果你的宠物足够有耐心，你可以试着用一根 [织补针](https://www.thesprucecrafts.com/what-is-a-darning-needle-1106242) 和一些纱线来代替安全别针将夹克缝合到位。(你得把它们从夹克上剪下来，但这就是为什么你要用一件旧 t 恤。)
+
+<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Put a Onesie on Your Pet Instead of the &#39;Cone of Shame&#39;](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-cope-with-pets-during-quarantine-1842725452)</aside>
+
+### 商店购买的选项
+
+如果你没有心情自己动手，也有一些商店里买的硬塑料项圈的替代品。其中一些选项包括一个 [软项圈](https://trupanion.com/blog/2014/06/7-alternatives-cone-shame/) ，它可以系在你宠物的脖子上，还有一个 [充气项圈](https://caringvets.com/2018/01/alternatives-to-the-cone-of-shame-for-cats/) ，看起来像一个蓬松的大甜甜圈。
+
+所以，当你的宠物从兽医那里回家，因为最近的手术看起来很可怜，你会给它们一些更舒适(也更可爱)的选择，而不是用一个耻辱的圆锥体来增加它们的尊严。一定要拍张照片。

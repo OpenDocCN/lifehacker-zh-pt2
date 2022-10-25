@@ -1,0 +1,15 @@
+# 拥抱孩子会让你感觉更快乐
+
+> 原文:[https://life hacker . com/feel-happer-by-embracing-kid-stuff-1844560435](https://lifehacker.com/feel-happier-by-embracing-kid-stuff-1844560435)
+
+现实点吧，关于 2020 年的一切都在变老，很快。当我们都在家呆了几个星期，看看周二下午在我们家的真实样子，这很可爱。但是这样过了四个月，我想到要在附近再逛一次，眼睛就交叉了。
+
+更不用说，无时无刻不在担心要照顾另一个人——对我来说是一个特别小的人。事实是，我从我快两岁的女儿身上学到了比以前更多的如何快乐生活的知识。
+
+<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Feel Happier by Embracing Kid Stuff](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-essential-life-skills-you-need-to-be-a-real-person-1844484670)</aside>
+
+我意识到我已经放弃了太多的精神和情感地产去担心——通常是担心那些在很大程度上超出我控制的事情。我看着我的女儿毫无愧疚地花时间好奇，嘲笑自己，并毫不掩饰地说“嗨！”任何会动的东西(和一些不会动的东西)。它改变了我的方法，挑战我再次犯傻。
+
+<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Feel Happier by Embracing Kid Stuff](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/our-favorite-unconventional-uses-for-pool-noodles-1844418121)</aside>
+
+愚蠢对我们有好处。傻提醒我们，笑不需要理由。也许你已经赶上了香蕉面包的潮流，买了一套寿司制作工具，现在是十个新的室内植物的骄傲的父母。我试着再次做一个蹒跚学步的孩子——我玩游戏，跳进球坑，甚至发脾气取乐。这是一个有着巨大回报的艰巨任务。多亏了我的孩子，我学会了如何练习快乐。

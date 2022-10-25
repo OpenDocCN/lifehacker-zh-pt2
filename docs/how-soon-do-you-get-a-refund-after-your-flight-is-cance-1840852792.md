@@ -1,0 +1,19 @@
+# 你的航班被取消后多久能拿到退款？
+
+> 原文:[https://life hacker . com/how-soon-do-you-get-a-receive-after-you ' s flight-cancel-1840852792](https://lifehacker.com/how-soon-do-you-get-a-refund-after-your-flight-is-cance-1840852792)
+
+所以你的航班取消了。在最初的愤怒和泪水平息后，你意识到重新预订该航空公司的晚些时候的航班并不理想，可能是因为你在别处找到了更好的选择。但是，尽管事实上航空公司在法律上有义务在航班取消的情况下向你提供退款，但你应该知道钱可能不会来得这么容易
+
+Watch
+
+在 [埃利奥特倡导](https://www.elliott.org/airline-problems/can-you-help-me-get-my-refund-from-alaska-airlines/) 的上空，一位旅客在阿拉斯加航空公司取消了他的航班后绝望地寻求帮助；在最终处理退款之前，花了五个多星期，与航空公司和一家在线旅行社来回交涉(埃利奥特倡导公司代表他们介入)。
+
+航空公司是如何在不提供任何服务的情况下，一次扣留你的钱长达数周而不被发现的？首先，他们很差劲。但是，如果你发现自己处于这种情况以及任何有资格从航空公司获得退款的情况下(比如说，你取消了一张可退款的机票)，有一些事情你应该知道。
+
+首先，根据 [运输部的网站](https://www.transportation.gov/individuals/aviation-consumer-protection/refunds) ，你*有权*获得机票价格和“相关费用”的退款，所以请理解，你应该获得机票和任何预订费用的全额退款。就时间表而言，如果你用信用卡支付，所有旅行社和航空公司都需要在航班取消后的七个工作日内处理退款事宜(如果你用现金或支票支付，则需要 20 个工作日)。
+
+这就是棘手的地方；正如[Christopher Elliott](https://www.elliott.org/airline-problems/can-you-help-me-get-my-refund-from-alaska-airlines/)所写:“处理”退款并不意味着退款会在七天内打到你的账户上(甚至关闭)。事实上，这通常意味着航空公司可能只会在你的银行开始这个过程，而实际上在退款最终到达你的手中之前*会花费一到两个月的时间。换句话说，这需要一段时间，而且考虑到圆点处的模糊语言，你没有办法促使航空公司更快地工作。*
+
+这给你留下了什么？嗯，这是一个等待的游戏。如果你没有得到一个大概的时间表和整个退款过程，你还是应该和航空公司联系。如果你已经使用了旅行社或第三方预订网站，那么，它几乎总是会进一步拖延这个过程。(例如，航空公司可能会先向旅行社退款。)再次跟进，确保退款程序已经开始，最起码。
+
+如果最坏的情况发生，而你已经等了几个月没有任何一线生机，让你的信用卡公司介入，发出退款通知，并通过 [运输部的网站](https://www.transportation.gov/airconsumer/file-consumer-complaint) 向航空公司投诉。如果你需要在最后一刻改变你的航班， [这里有另一个指南](https://lifehacker.com/heres-what-youll-pay-to-change-your-flight-1836410208) 告诉你可能需要支付的费用。

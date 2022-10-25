@@ -1,0 +1,38 @@
+# 如何以及为什么将您的 Sonos 设置更新为“S2”
+
+> 原文:[https://life hacker . com/how-and-why-to-update-your-sonos-setup-to-S2-1843956053](https://lifehacker.com/how-and-why-to-update-your-sonos-setup-to-s2-1843956053)
+
+Sonos 正在推出一款名为 S2 控制器应用的新控制器应用，虽然许多用户需要它来接收功能更新或将未来的 Sonos 产品集成到他们的设置中，但它还没有完全取代旧的 Sonos 控制器应用。这就是现在的 [S1 控制器应用](https://apps.apple.com/us/app/sonos-s1-controller/id293523031)——仍然有一些情况下你可能需要使用它。
+
+Watch
+
+### S1 和 S2 Sonos 控制器应用程序之间有什么区别？
+
+S1 和 S2 控制器应用程序都用于控制 Sonos 品牌的扬声器、条形音箱、放大器和移动设备或 PC 上的接收器。一些 Sonos 设备只能在这两个应用程序中的一个上工作，但大多数都兼容这两个应用程序(至少目前如此)。目前需要 S2 应用程序的设备只有:
+
+*   Sonos Arc 杜比 Atmos 条形音箱
+*   Sonos 五扬声器
+*   第三代声纳潜艇
+
+至于较旧的设备，这里有一个图表，显示哪些设备已经支持 S2，哪些设备只支持 S1:
+
+请注意，你可以在同一间房子里使用 S1 和 S2 扬声器，但它们不能配对，你必须使用单独的应用程序来控制它们。下面是来自 Sonos 支持页面 的关于如何工作的更多信息。话又说回来，如果你 [使用该公司的以旧换新计划](https://lifehacker.com/you-dont-have-to-brick-your-old-sonos-devices-anymore-1842213812) ，图表中的所有 S1 设备都可以让你获得新 Sonos 产品的积分。
+
+### 你应该更新到 S2 吗？
+
+大概吧。不管有多少 Sonos 产品支持这两个应用程序，从 2020 年 5 月起，S2 应用程序将成为所有新 Sonos 设备的要求，你需要更新到 S2 应用程序，以便在你的设备上接收新功能更新。S1 应用和 S1 专用设备仍然可以使用，但它们不会获得任何新功能，只会在几年内进行必要的安全/漏洞修复和对新音乐流媒体应用的支持。
+
+因此，除非你正在摇动只有*与 S1 应用程序一起工作的旧设备，否则如果你想继续接收新功能更新并保持你的设置与未来设备兼容，你可能应该更新 Sonos 控制器应用程序。*
+
+### 如何更新到 Sonos 控制器应用程序
+
+#### **如果你已经在使用 Sonos 控制器应用:**
+
+1.  在 Android、iOS 或 iPadOS 设备上打开 Sonos 应用程序。
+2.  点击“更新”通知，开始下载新版本的应用程序并为您的设备打补丁。
+3.  其余的更新将自动进行，并将保存和导入您从 S1 控制器应用程序中保存的任何设置或预置。
+
+#### **如果您尚未使用 S1 控制器应用程序或者更新通知没有出现:**
+
+1.  从[【Google Play(安卓)](https://play.google.com/store/apps/details?id=com.sonos.acr2) 或 [应用商店(iOS/iPadOS)](https://apps.apple.com/us/app/sonos/id1488977981#?platform=ipad) 下载新的 Sonos 应用。(据报道，Windows 和 macOS 版本也在开发中)。
+2.  使用该应用程序来连接和设置您的扬声器和其他设备。

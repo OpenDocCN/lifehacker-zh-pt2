@@ -1,0 +1,11 @@
+# 从检疫女王开始你的“周末”
+
+> 原文:[https://life hacker . com/start-your ' s weekend-with-a-quarantine-queen-1842666100](https://lifehacker.com/start-your-weekend-with-a-quarantine-queen-1842666100)
+
+今天是星期五，或者至少我的手机是这么告诉我的，但是每天都感觉像是隔了一天，而且“周末”不再是同一天。但是，正如伯爵夫人昨天 提醒我们的那样，传统很重要，所以我们不妨来点 IGIF——“我猜今天是星期五”——鸡尾酒。
+
+Watch
+
+我不知道你是否很关注鸡尾酒人，但他们真的正在以他们知道的最好的方式做出贡献——为我们提供饮料配方和灵感，同时呆在家里。酒吧历史学家兼鸡尾酒作家大卫·万里奇 一直在尽自己的一份力量，发布每日鸡尾酒教程帖子——附有照片——名为“Lo-Fi Lush Hour”，他们他妈的统治着。
+
+<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1245832985208852480&amp;autosize=1" autoresize="true" id="twitter-1245832985208852480" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">最近——我忘了是哪一天，因为时间已经失去了它的大部分意义——Wondrich 发布了一份来自俄罗斯茶室的三种成分的复古鸡尾酒配方，非常适合伸展“半柄铁托酒和几瓶满是灰尘的利口酒”</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1245474550210584583&amp;autosize=1" autoresize="true" id="twitter-1245474550210584583" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><p class="sc-77igqf-0 bOfvBY">名字，呃，不太好，但是成分很好，所以我们就叫它“检疫皇后”，然后大醉一场。如果你没有任何本笃会，Wondrich 在他的帖子中有替代建议，你应该完整阅读。要成为隔离女王，你需要:</p><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>2 盎司伏特加</li><li>1 盎司 Benedictine(或其他植物性利口酒)</li><li>1 dash bitters</li></ul><p class="sc-77igqf-0 bOfvBY">将所有原料加入加满冰块的混合杯，搅拌至非常冷。这是一种很难喝的饮料，确实需要稀释一下。过滤成一个冷冻跑车和享受。如果有的话，用一条柠檬皮装饰。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>

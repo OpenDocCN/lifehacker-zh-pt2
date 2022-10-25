@@ -1,0 +1,13 @@
+# 青少年如何在今年夏天获得免费健身房会员资格
+
+> 原文:[https://life hacker . com/how-tens-can-get-a-free-gym-membership-this-summer-1834279749](https://lifehacker.com/how-teens-can-get-a-free-gym-membership-this-summer-1834279749)
+
+如果今年夏天你有一个无聊的青少年在你家附近闲逛，这是一个好消息:星球健身公司正在提供一个 [夏季挑战抽奖活动](https://static1.squarespace.com/static/5638c88de4b0ad04e240fd6c/t/5cb0d64d971a184855bfe825/1555093176901/PF_TSC_FAQ_r5.pdf) ，这基本上相当于为 15 至 18 岁的青少年提供一个长达一个夏天的免费健身房通行证。
+
+Watch
+
+从 5 月 15 日到 9 月 1 日提供免费锻炼，青少年只能在他们报名的地方锻炼。报名的唯一方法是选择一个星球健身地点，在家长或监护人的陪同下走进去报名。(18 岁可以自行报名。)然后，一份 [星球健身信息单](https://static1.squarespace.com/static/5638c88de4b0ad04e240fd6c/t/5cb0d64d971a184855bfe825/1555093176901/PF_TSC_FAQ_r5.pdf) 上说，青少年可以“想锻炼多久就锻炼多久，整个夏天都免费！”
+
+虽然这可能听起来有点可怕，但对于星球健身的常客来说，健身房已经允许 13 岁以上的孩子成为会员。夏天也是很多健身房的淡季，所以也许不会那么糟糕？但是真正的赢家是父母，他们将获得几个小时的平静和一个更强壮、更健康的孩子。
+
+虽然许多新闻媒体都在报道这项挑战，但 Planet Fitness 还没有正式启动或宣布这项计划。他们在 Instagram 上的回复中提到，完整的信息将在 5 月中旬提供。

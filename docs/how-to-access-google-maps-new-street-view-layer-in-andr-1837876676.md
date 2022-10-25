@@ -1,0 +1,20 @@
+# 如何在 Android 中访问谷歌地图的新街景图层
+
+> 原文:[https://life hacker . com/how-to-access-Google-maps-new-street-view-layer-in-andr-1837876676](https://lifehacker.com/how-to-access-google-maps-new-street-view-layer-in-andr-1837876676)
+
+谷歌正在慢慢缩小谷歌地图移动版和桌面版之间的功能差距，最近的一次更新终于使在 Android 应用程序上玩街景像在电脑上一样容易。
+
+Watch
+
+该功能的移动版本现在几乎与桌面版本一样。启用 Android 应用程序的新街景图层，您将看到街道、人行道和其他大道上的蓝色高亮路径，指示可视的街道级位置。这些线显示在俯视图和街景透视图上。
+
+这个新的街道视图层目前只在谷歌地图的 Android 版本中可用，但 iOS 用户应该很快就会得到它。要启用它:
+
+1.  在 Android 设备上打开谷歌地图应用程序。
+2.  导航到您希望查看的位置。
+3.  点击图层图标，然后点击“街景”。“您可能需要放大才能看到街景。
+4.  在街景视图中，您可以使用设备的触摸屏将相机旋转 360 度，并点击蓝线以移动到不同的视点。
+
+大多数用户应该可以使用这个功能，但如果你在图层菜单中没有街景选项，你可能需要先更新你的谷歌地图应用程序。通过访问应用程序的 [谷歌 Play 商店页面](https://play.google.com/store/apps/details?id=com.google.android.apps.maps) 来检查任何未决更新。如果你真的*真的*喜欢街景，你甚至可以从或 [苹果应用商店](https://apps.apple.com/us/app/google-street-view/id904418768) 中抓取一个独立的应用。
+
+新的街景图层只是过去几个月谷歌地图增加的众多新功能之一，包括标记交通事件和速度陷阱的能力。

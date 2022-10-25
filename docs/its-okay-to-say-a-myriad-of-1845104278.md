@@ -1,0 +1,11 @@
+# 可以说“无数”
+
+> 原文:[https://life hacker . com/its-okay-to-say-a myriad-of-1845104278](https://lifehacker.com/its-okay-to-say-a-myriad-of-1845104278)
+
+看看上面的照片。你会说那是无数只肮脏的橡胶鸭子吗？还是你看到了*无数的*脏鸭子？直到最近，我还会完全回避这个问题，称之为争议较小的东西，比如一大堆老鸭子。对我来说，前一种用法听起来总是自命不凡，但我已经看到了对后者足够多的愤怒，以至于认为它在语法上是不正确的。
+
+Watch
+
+嗯，英语充满了无数的惊喜，这个听起来很奇怪的词也不例外。本杰明·德雷耶，兰登书屋副总裁兼执行总编*和*《T2】[*德雷尔的英语:清晰和风格的绝对正确指南*](https://benjamindreyer.com) 的作者，在此 [让我们明白](https://twitter.com/BCDreyer/status/1291080911530995713) :
+
+<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1291080911530995713&amp;autosize=1" autoresize="true" id="twitter-1291080911530995713" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">单词“myriad”既可以用作形容词<em>也可以用作名词</em>。你可以说你有<em>无数</em>反对德雷尔的观点——或者你可以说你有<em>无数</em>反对它。两者都是正确的(嗯，除了他是对的)。</p><p class="sc-77igqf-0 bOfvBY">那种认为这个词只作为形容词使用更合适、更纯粹的观点是完全错误的，<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.merriam-webster.com/dictionary/myriad&quot;,{&quot;metric25&quot;:1}]]" href="https://www.merriam-webster.com/dictionary/myriad" target="_blank" rel="noopener noreferrer">韦氏词典说</a> </span>:</p><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">最近有人批评把无数的(T1)用作名词，无论是复数形式的<em>无数的</em>还是短语<em>无数的</em>，这似乎反映了一种错误的观念，即这个词最初是、现在仍然只是一个形容词。然而，正如这里的条目所示，这个名词实际上是更古老的形式，可以追溯到 16 世纪。名词<em> myriad </em>出现在米尔顿(复数<em>myriad</em>)和梭罗(复数<em>a myriad</em>)等作家的作品中，并且继续在著名的英语中频繁出现。没有理由回避。</p></blockquote><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">如果 M-W 认为没有理由避免它，你也不应该。</p> </body> </html></iframe>

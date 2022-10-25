@@ -1,0 +1,19 @@
+# 将你的家庭办公室建在自然光的周围可以节约用电
+
+> 原文:[https://life hacker . com/save-electric-by-building-your-home-office-around-na-1843001112](https://lifehacker.com/save-electricity-by-building-your-home-office-around-na-1843001112)
+
+我的家庭办公室藏在我的工作室公寓的角落里，离我朝西的窗户最远——但随着冠状病毒隔离的进展，我发现自己越来越不想坐在我的免税办公桌前，而越来越想站在厨房柜台前完成我的工作。
+
+Watch
+
+这是因为阳光，真的。因为我可以看到我在窗台上种的药草，我“种”在一杯水里的芹菜梗，还有外面刚刚开始长出叶子的树。
+
+<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Save Electricity by Building Your Home Office Around Natural Light](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-grow-vegetables-from-kitchen-scraps-1842858616)</aside>
+
+今天是地球日，这是一个思考自然世界的好日子——即使我们被困在家里，我们也可以支持我们的自然世界的方式之一是在自然光下度过我们的大部分时间。正如梅根·巴伯所解释的，在 [遏制了](https://www.curbed.com/2020/4/22/21228477/climate-change-stop-home-solutions-coronavirus) :
+
+> 由于疫情，现在许多人都在家全职工作， [重新考虑你的工作空间](https://www.curbed.com/2020/3/12/21172168/work-from-home-remote-coronavirus-quarantine-tips) :你需要整天开着灯吗？有没有其他地方可以获得更好的自然光？关掉几盏灯有助于减少用电量，延长灯泡寿命。
+
+一天中尽可能少开灯的时间也可以减少你的电费，因为你在家的时间更多，所以电费可能会比平时贵一点。自 2012 年以来，我一直在家工作，所以我的账单没有真正改变——但我可以更自觉地在太阳出来时关灯，在不使用电器时拔掉它们的插头。我也可以采纳 Lisa Rowan 最近的 Lifehacker 的建议，在我的冰箱 下面安装 [真空吸尘器，我实际上从来没有这样做过(但据说可以帮助冰箱线圈更有效地散热)。](https://lifehacker.com/how-to-save-energy-when-youre-stuck-at-home-1842411651)
+
+所以试着在阳光下工作，至少在地球日——如果对你不起作用，明天轻而易举就能打开灯。如果你已经知道在自然光下工作在你的生活空间是不可行的，Curbed 有 16 个额外的预防气候变化的建议 ，你可能要考虑一下，所有这些都是对检疫友好的。

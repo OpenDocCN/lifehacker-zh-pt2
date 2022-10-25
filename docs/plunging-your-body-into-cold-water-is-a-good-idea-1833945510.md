@@ -1,0 +1,13 @@
+# 将你的身体浸入冷水中是个好主意
+
+> 原文:[https://life hacker . com/把你的身体投入冷水是个好主意-1833945510](https://lifehacker.com/plunging-your-body-into-cold-water-is-a-good-idea-1833945510)
+
+大多数人避免将自己投入极冷的水中，因为这样感觉不好，而人们喜欢感觉良好。这很不和谐，但令人振奋，并且有额外的好处，让你高度意识到你的呼吸、循环系统和你身体的任何其他部分通常都不由自主地发挥作用。当轻微的折磨结束后，你会感觉非常好。
+
+Watch
+
+在哥本哈根的最后一天，我被我的旅行伙伴抛弃了，只能听天由命——这对每个人来说都是一个冒险的举动。我听说过“冬季沐浴”——在热桑拿和近乎冰冷的海水之间交替进行的一种做法——尽管严格来说这不是冬天，但也不是真正的春天，可以说，我想尝试一下。
+
+作为一名游客，同时享受海洋和桑拿可能有点棘手(大多数水疗中心需要会员资格)，但一位英俊的电影摄制组成员推荐了 [La Bachina](https://www.labanchina.dk) ，这是一家小型的天然葡萄酒酿造厂，恰好位于水上*和*，拥有一个可爱的小水疗中心。
+
+<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=instagram-Bv59KGSgZLe&amp;autosize=1" autoresize="true" id="instagram-Bv59KGSgZLe" data-recommended="false" width="598" height="676" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">这不是一个寒冷的日子，但也不是一个温暖的日子。我坐在桑拿房里，欣赏着风景，直到我变得满脸通红，然后紧张地等待着码头。没有其他人加入进来，所以我问了一小群时髦的女性，冬泳是否真的是“一件真实的事情”“哦，是的，”一个自信得吓人的女人回答道。“很北欧。”</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">我跳了进去，因为我从没学过如何潜水，而且，读者，天气很冷。天气太冷了，我都忘了我是否需要花点时间来记住，是的，我小时候上过游泳课，不会被淹死。天气太冷了，我不得不集中我大脑的每一部分来冷静下来，并记住这些教训，所以我可以(虽然缺乏任何优雅)狗桨到梯子，这是大约一码远，从我的嘴里涌出一连串的脏话。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">当我出来的时候，我感到敏锐和警觉，但奇怪的是放松，这是一个人在试图自杀后的感觉。我的轻微头痛(宿醉)消失了，我感觉非常健康。(我觉得；我对这种感觉不是很熟悉。)我重复了两次这个过程，然后和我在桑拿房里找到的一个苏格兰人喝酒，破坏了我新获得的健康感觉。</p><p class="sc-77igqf-0 bOfvBY">总之。如果你的健身房有桑拿，你可以交替使用桑拿和淋浴来达到类似的效果。同样值得一试的是，看看你是否有斯堪的纳维亚风格的温泉浴场(比如波特兰的<span></span>)、韩国温泉浴场，或者俄罗斯的<span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://en.wikipedia.org/wiki/Banya_(sauna)&quot;,{&quot;metric25&quot;:1}]]" href="https://en.wikipedia.org/wiki/Banya_(sauna)" target="_blank" rel="noopener noreferrer"><!-- --></a></span>风格的澡堂。<!-- -->你也可以将<!-- -->这种冷热疗法融入到你的晨间日常生活中，作为一种非常有效且肯定生活的醒来方式<!-- -->。我开始把淋浴开得越热越好，让我的浴室变得又好又潮湿。然后我关掉水，站在温暖的蒸汽中一会儿，然后打开冷水。感觉有点猛烈，但我只让它停留足够长的时间来淋湿我的头发，然后我把水恢复到正常的淋浴温度。事实上，我就在今天早上做了这件事，洗完澡醒来后，我忘了煮咖啡，直到上午 10:45。我不会说它消除了我因喝多了几杯“欢迎回家”马提尼而产生的轻微宿醉，但我会说我能吃早餐了，这在喝多了几杯马提尼的早晨是很少见的。</p> </body> </html></iframe>

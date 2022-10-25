@@ -1,0 +1,15 @@
+# 一个能真正改善你生活的新年决心
+
+> 原文:[https://life hacker . com/a-new-years-resolution-that-conditional-improve-your-1831321233](https://lifehacker.com/a-new-years-resolution-that-will-actually-improve-your-1831321233)
+
+每个人都想劫持你的一月。大多数人希望你在这个月不喝酒，前提是你在假期喝得太多了，需要戒酒。还有人认为 [是时候吃素了](https://veganuary.com/) 。我敢肯定，你认识的某个人正试图说服你在一月的每一天都去做热瑜伽，以排出“毒素”。我通常反对所有形式的新年决心；Lifehacker 致力于在一年中的每一天做出改变。但是我急切期待的一个决定是我的一月无开销的传统。听我说完。
+
+Watch
+
+### 假日购物就像大吃大喝
+
+你不是用你在亚马逊的多次购买作为理由来获得你购物车里所有的“附加商品”吗？去别人家过节聚会不是把自己家里需要的东西都突出来了吗，回家路上手机上那些东西不也买了吗？打开包裹不觉得恶心吗？
+
+我的假日购物倾向于遵循“一个给你，一个给我”的模式。所有这些礼物指南都有来自我从未听说过的网站的独特礼物，导致很多“我也应该得到一点好东西，不是吗？”以至于我的花费是预期的两到三倍。到了月底，我会有一种花钱的宿醉。
+
+<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-ZWYHVvHAG0Y&amp;start=0" data-chomp-id="ZWYHVvHAG0Y" data-recommend-id="youtube://ZWYHVvHAG0Y" id="youtube-ZWYHVvHAG0Y" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="ZWYHVvHAG0Y" data-recommend-id="youtube://ZWYHVvHAG0Y" id="youtube-ZWYHVvHAG0Y" data-recommended="false" class="js_recommend"/></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h17934">这不仅仅是为了省钱</h3><p class="sc-77igqf-0 bOfvBY">不要在一月花任何钱，除非是在食物上。看，我并不是建议你呆在家里喝绿茶和阅读(除非你想)。你可以买杂货。可以出去吃几次。但是不要再买别的了。如果你认为你下个月真的需要这些东西，把它们列成清单，但是停止购物。绝对不要在网上买东西。你的目标是没有包裹在门廊/大厅/邮局等着你。(你显然可以在紧急情况下花钱，但“打折羊绒”不是“紧急情况”。)</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">是的，你会省钱，如果你在 12 月份超支了，那就更好了。月底你会收到的那张信用卡账单感觉相当可观。但是一月份不花钱的真正好处是它释放了大量的精神空间。直到你停止消费，你才意识到你花了多少时间想要东西，研究你想要的东西，想知道东西在哪里，购买或订购东西，等待包裹的到来，回收包装，等等。不总是获得东西是一种巨大的解脱。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">此外，你可以感觉很好，因为你没有参与杰夫·贝索斯口袋里塞满了<span></span>的可悲的全国性消遣。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h17935">除了购物还能做什么</h3><p class="sc-77igqf-0 bOfvBY">连网上浏览都不要。当你想到你想买的东西时，你会买的，只要告诉自己“下个月！”如果你担心会忘记一些重要的东西，就把它写下来。这也适用于你认为你需要的东西(“一包十块的海绵从来都不是无意义的购买！”)和你非常确定你需要的东西(“我的雪地靴看起来有点破”)和你绝对不需要的东西(“我可以从德克萨斯叫甜甜圈外卖？！?").</p><p class="sc-77igqf-0 bOfvBY">我不会告诉你去健身房或者去施舍处做志愿者，而不是去购物。取而代之的是，购买你的房子。橱柜里那些你放在身边却没吃过的汤罐头——为什么不吃一个当午餐呢？你有没读过的书，没穿过的衣服，没用过的应用。如果你幸运的话，你会为假期准备一些新东西，让你忙个不停。</p><p class="sc-77igqf-0 bOfvBY">一个朋友最近评论说，你每买一件新东西，你已经拥有的东西就会贬值一点。这一点一直困扰着我，当我想买一些我不需要的东西时，这一点很有帮助。我希望，就像我们都希望的那样，不要太执着于事物。我宁愿拥有更少的有价值的东西，而不是一堆我只是有点喜欢的垃圾。这不是一个新的智慧，而是一个值得你在不花钱的时候思考一下的智慧。你不需要处理掉家里的杂物，但是一旦你开始使用你所拥有的东西，你会自然地发现哪些东西是你珍视的，哪些是你可以放弃的。更重要的是，当你不再不断追求下一个目标时，你就摆脱了伴随消费主义而来的令人疲惫的“精神混乱”。</p><p class="sc-77igqf-0 bOfvBY">计划一个无消费的一月也是一个在年底前完成购物的好借口——买你需要的东西(在合理的范围内！)在 12 月 31 日时钟敲响 12 点之前，然后进入这个月的冬眠状态。</p> </body> </html></iframe>

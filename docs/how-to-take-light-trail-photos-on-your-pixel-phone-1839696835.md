@@ -1,0 +1,13 @@
+# 如何在你的 Pixel 手机上拍摄光迹照片
+
+> 原文:[https://life hacker . com/how-to-take-light-trail-photos-on-your-pixel-phone-1839696835](https://lifehacker.com/how-to-take-light-trail-photos-on-your-pixel-phone-1839696835)
+
+随着智能手机相机变得越来越复杂，普通用户更容易创造出通常需要高端设备和技术才能实现的效果。例如，Pixel 4 的天文摄影模式能够以最小的努力拍摄夜空，但它也被用来创建标志性的光迹效果，这种效果定义了夜间城市摄影和“光写作”趋势。
+
+Watch
+
+捕捉移动光源时，曝光时间较长会产生光迹。这种效果通常需要使用 DSLR 相机设置长曝光时间和坚固的三脚架来保持一切稳定和对焦，但 Pixel 4 的天文摄影设置具有惊人的 4 分钟曝光时间——非常适合捕捉星空和光线轨迹——而手机的人工智能后处理功能将有助于创建更一致的结果。
+
+(旧款 Pixel 手机的用户也可以通过 [安装一个添加了天体摄影模式的改装相机应用](https://forum.xda-developers.com/apps/google-camera-mods/gcam-google-pixel-1-2-3-t3875663) 来参与其中。)
+
+<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1190455164034879489&amp;autosize=1" autoresize="true" id="twitter-1190455164034879489" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">一些用户展示了他们的努力，结果令人印象深刻，但请记住，网上的大多数例子来自经验丰富和/或专业的摄影师。Pixel 4 的人工智能驱动功能不是获得专业质量照片的捷径，但它们是更复杂摄影形式的绝佳入门——任何拥有 Pixel 手机的人都可以使用简单的设置和一点耐心来拍摄光线轨迹。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">(注意，这只在夜间或超低光条件下有效。)</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><ol data-type="List" data-style="Number" class="sc-1lmbno3-1 sizyJ"><li>使用三脚架、支架或类似设备稳定手机，以尽量减少移动。</li><li>打开 Pixel 4 上的股票相机应用程序(记住，如果你使用的是旧的 Pixel 手机，首先要<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://forum.xda-developers.com/apps/google-camera-mods/gcam-google-pixel-1-2-3-t3875663&quot;,{&quot;metric25&quot;:1}]]" href="https://forum.xda-developers.com/apps/google-camera-mods/gcam-google-pixel-1-2-3-t3875663" target="_blank" rel="noopener noreferrer">下载并安装改装的相机应用程序</a> </span>)。)</li><li>滑动到<strong>“夜视”</strong>模式。</li><li>如果你在足够暗的条件下，你的手机会要求你开启<strong>“天体摄影模式”</strong>点击打开。如果你看起来没有这个选项，试着远离明亮的光源和/或朝向夜空。</li><li>对准你的镜头，然后点击快门按钮开始拍照。天文摄影模式有 4 分钟的曝光时间，然后需要几秒钟来处理图像。确保手机在这段时间内保持完全静止。</li><li>曝光和后期处理完成后，您现在可以查看、编辑或共享您的照片。</li></ol> </body> </html></iframe>

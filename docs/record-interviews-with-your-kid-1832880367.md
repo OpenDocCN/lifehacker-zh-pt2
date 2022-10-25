@@ -1,0 +1,29 @@
+# 记录对你孩子的采访
+
+> 原文:[https://life hacker . com/record-interests-with-your-kid-1832880367](https://lifehacker.com/record-interviews-with-your-kid-1832880367)
+
+当我哥哥还是个孩子的时候，他有一台绿色的赫曼录音机。正如我妈妈讲述的那样，他会坐在自己的房间里，点击“录音”，开始诗意地讲述自己的生活。听起来有点像这样:“Myyyy naaaaaame 是大卫！我有。录音机！我可以。大喊。入之！”
+
+Watch
+
+然后他会把它带到楼下，让我和我们的父母听他的杰作。(把他当成一个早期的播客吧，不过是针对三个人的听众。)
+
+我最近问我妈妈，她是否认为她可能在任何地方都有这些磁带。“哦，我的不，”她说。“但我希望我们做到了。”
+
+播客和作家希拉里·弗兰克 最近为 [插图杂志](http://www.illustoria.com/blog/2019/1/17/how-to-record-a-great-interview-with-your-kid-at-any-age) 写了一篇文章，讲述了她偶然发现她当时两岁的弟弟说各种可爱的小孩子的事情的磁带。
+
+> 我决定在母亲节为我妈妈演奏这首曲子。我知道她会喜欢，但我没想到在我开始玩游戏后不久，她就不停地哭着、擤着鼻涕、笑着。
+
+> 我想我妈妈对录音有如此大的情绪反应的原因不仅仅是因为它捕捉到了一个有趣的瞬间；这一刻揭示了我哥哥和我妈妈的很多事情。甚至在两岁时，你就能听到他坚定的坚持，他不愿意让任何人摆脱困境。
+
+作为一名专业采访者，希拉里给了 [一些很好的建议](http://www.illustoria.com/blog/2019/1/17/how-to-record-a-great-interview-with-your-kid-at-any-age) 如何更进一步，有意录下你孩子的谈话，这样你就可以把他们的声音留给后代。她建议，对于从蹒跚学步到学龄前的孩子来说，最好是在他们已经开始聊天的时候抓住他们。当他们正在讲一个冗长、荒诞的 3 岁故事时，按下手机上的录音键，确保麦克风(在手机底部)指向他们下巴下方几英寸的地方。然后，就他们编造的故事问许多后续问题。
+
+对于稍大一点的孩子， [她建议让小学生](http://www.illustoria.com/blog/2019/1/17/how-to-record-a-great-interview-with-your-kid-at-any-age) 听几轮录制好的“你愿意吗”来激发他们的创造力。试着选择一个不寻常的环境来录音，比如在毯子城堡里，来减轻他们的情绪和压力。
+
+她说，对于青少年，要问更大、更开放的问题。
+
+> 我发现许多青少年喜欢提出建议。在他们的回答中，你可以听到他们在整理他们对人际关系和周围世界的看法。不过，要注意纠正你的孩子或判断他们的答案；在录音过程中“养育”他们可能会让他们关机。让他们觉得有人在听，如果他们想的话，让他们继续咆哮。
+
+是否是正式的“面试”并不是重点。更重要的是让他们说话来捕捉他们的语气和他们的想法的创造性——更不用说可爱的发音错误了。这位父亲 更进了一步，决定在他四岁的孩子练习曲棍球的时候给他带上麦克风。光是听他叫麦当劳“BaDonalds”就值得一看:
+
+<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-A3-L3YwU-iQ&amp;start=0" data-chomp-id="A3-L3YwU-iQ" data-recommend-id="youtube://A3-L3YwU-iQ" id="youtube-A3-L3YwU-iQ" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="A3-L3YwU-iQ" data-recommend-id="youtube://A3-L3YwU-iQ" id="youtube-A3-L3YwU-iQ" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">我最常看的是我儿子小时候拍的两个视频。其中一个是，当我们一家人一起玩<span></span>的时候，他在努力猜他是哪种“动物”(顺便说一句，强烈推荐那个游戏)。另一个是关于鬼魂是否真实的随机对话，我当时认出这是纯金的，并在中途开始录音。</p><p class="sc-77igqf-0 bOfvBY">仅仅 2-3 年后，他的声音已经变得如此不同。是时候再次为他录音了，因为我知道再过 2-3 年，他的声音会和今天大不相同。</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><small> <em>更多来自 Lifehacker，一定要在 Instagram 上关注我们</em></small><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.instagram.com/lifehackerdotcom/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.instagram.com/lifehackerdotcom/" target="_blank" rel="noopener noreferrer"><small><em>@ lifehackerdotcom</em></small></a></span><small><em>。</em> </small> <br/></p> </body> </html></iframe>

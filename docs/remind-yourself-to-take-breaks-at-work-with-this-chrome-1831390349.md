@@ -1,0 +1,17 @@
+# 使用这个 Chrome 扩展提醒自己在工作中休息一下
+
+> 原文:[https://life hacker . com/remind-yourself-take-break-in-work-this-chrome-1831390349](https://lifehacker.com/remind-yourself-to-take-breaks-at-work-with-this-chrome-1831390349)
+
+我们都知道连续几个小时盯着电脑屏幕不是个好主意，但这并不妨碍我们这样做。
+
+Watch
+
+[休息时间](https://chrome.google.com/webstore/detail/break-timer/hklkdbpicdmlpoiellngedpejjkmapei?hl=en) 是 Chrome 的一个扩展，提醒你周期性的离开一步。有了这个扩展，你可以自定义休息时间和休息频率。当休息时间到来时，您可以收到一个小的弹出通知，或者一条全屏消息，告诉您该休息几分钟了。
+
+如果现在不方便(从来都不是)，你也可以小睡一会儿，这样通知会在几分钟后再次弹出。
+
+众所周知，我不喜欢休息。有一段时间，我确信连续坐在电脑前八个小时，包括午休时间，会让我成为一个更有效率的人。剧透:不是。
+
+最终让我崩溃的是健身追踪器开始建议你每小时走 250 步。如果你戴了一个 FitBit 或智能手表，我强烈建议你激活这个功能(或许可以在这个扩展上使用它)。
+
+除了经常坐着给自己带来一系列健康问题外，长时间工作而不休息实际上会降低你的工作效率，而不是提高效率。每隔几个小时花几分钟伸展一下你的腿，从你正在做的任何项目中获得一些空间，最终会让你在一天中完成更多的事情。

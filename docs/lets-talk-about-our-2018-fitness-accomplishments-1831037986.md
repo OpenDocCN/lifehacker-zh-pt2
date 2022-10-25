@@ -1,0 +1,15 @@
+# 让我们谈谈我们 2018 年的健身成就
+
+> 原文:[https://life hacker . com/let-talk-about-our-2018-fitness-achievements-1831037986](https://lifehacker.com/lets-talk-about-our-2018-fitness-accomplishments-1831037986)
+
+去年这个时候，我们很多人都为这一年设定了一些健身目标。我 [请读者在这里](https://vitals.lifehacker.com/what-are-your-fitness-goals-for-2018-1821469720) 权衡一下，你是否打算学习新东西，增加或减少体重，或者尝试一场比赛或竞争。
+
+Watch
+
+你有一些伟大的目标！ [我们听到人们](https://lifehacker.com/the-most-inspiring-fitness-goals-from-our-readers-1821631795) 说，他们只想养成稳定的锻炼习惯，想参加举重比赛，想骑自行车跑得更快，想建一个家庭健身房，等等。
+
+现在 2018 年快结束了。不管你是否明确地指定了目标，我都想听听你这一年过得如何！如果你实现了你的目标，或者接近了，一定要告诉我们。就健康而言，你和去年这个时候的你有什么不同？
+
+但是即使你没有达到要求，也有很多可以谈的。你从经历中学到了什么？你做对了什么？你仍有机会在某些方面有所提高，或者至少了解了一些关于你自己或关于什么是一个好目标的事情。
+
+然后下周再回来，届时我们将讨论如何为 2019 年设定健身目标。

@@ -1,0 +1,17 @@
+# 通过调整对比度，让您的三星 Galaxy 键盘更易于输入
+
+> 原文:[https://life hacker . com/make-your-Samsung-galaxys-keyboard-easy-to-type-on-by-1841875517](https://lifehacker.com/make-your-samsung-galaxys-keyboard-easier-to-type-on-by-1841875517)
+
+Android 的一大优点是你有大量不同的键盘可供选择。虽然你可能知道如何用新的东西替换默认键盘，但你可能没有意识到，你的三星 Galaxy 手机也附带了一种让默认键盘更容易使用的方法。
+
+Watch
+
+*GadgetHacks* [本周在三星手机上强调了一个有点的隐藏键盘设置](https://android.gadgethacks.com/how-to/stop-squinting-your-galaxys-keyboard-type-faster-with-simple-setting-0243398/) ，它允许你改变手机键盘的对比度，这一举动可以使其更容易被看到，从而更容易打字。
+
+要使用它，请打开显示键盘的应用程序，然后选择键盘顶部的齿轮图标。这将带你到“三星键盘”菜单。你也可以进入手机上的“设置”菜单，选择“常规管理”，然后选择“语言与输入”、“屏幕键盘”，然后选择“三星键盘”
+
+一旦你找到正确的菜单，你会想从菜单中选择“键盘布局和反馈”，然后打开“高对比度键盘”。当你这样做时，你可以点击“高对比度键盘”设置来调出键盘的四种颜色选项。
+
+我个人是白字黑底的粉丝，但是你有四种高对比度的选择。我发现它们都比标准的默认选项更容易输入。
+
+如果你在默认键盘上有问题，或者即使你只是想在你的手机上改变一些东西，它绝对值得一看。

@@ -1,0 +1,13 @@
+# DIY 防晒霜不管用
+
+> 原文:[https://lifehacker.com/diy-sunscreen-doesnt-work-1835837420](https://lifehacker.com/diy-sunscreen-doesnt-work-1835837420)
+
+你可以在谷歌上搜索任何东西的配方，包括防晒霜。像 Pinterest 这样的网站上到处都是将天然油和氧化锌混合制成防晒品的说明。不幸的是，DIY 方法不太可能制造出有效的防晒霜。
+
+Watch
+
+氧化锌是这些食谱中的主要活性成分。它也是许多合法防晒霜中的活性成分，因为它能吸收和反射太阳光。因为它也是尿布霜的一种成分，你可能认为它很好，很安全。(有 [一些关于防晒霜](https://lifehacker.com/the-sunscreen-ratings-that-scare-people-every-year-are-1795824253) 的危言耸听，但实际上市场上的防晒霜都不太可能带来任何真正的健康风险。)
+
+但是，正如实验室松饼美容科学的化学家兼教育家米歇尔·王解释的那样，防晒霜的防晒作用与其活性成分只有一点点关系。为了制作有效的氧化锌防晒霜，你的配方需要确保锌的均匀分布，它不会与乳液的其他成分相互作用，并且配方总体上具有正确的化学性质，可以在瓶子中持续存在，并且在涂抹到皮肤上时仍然有效。
+
+<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-aTNcbLHZusc&amp;start=0" data-chomp-id="aTNcbLHZusc" data-recommend-id="youtube://aTNcbLHZusc" id="youtube-aTNcbLHZusc" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="aTNcbLHZusc" data-recommend-id="youtube://aTNcbLHZusc" id="youtube-aTNcbLHZusc" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">这是一个比你想象的更难的化学问题。化妆品化学家<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://thebeautybrains.com/2017/07/can-you-use-diaper-rash-cream-as-sunscreen-episode-162/&quot;,{&quot;metric25&quot;:1}]]" href="https://thebeautybrains.com/2017/07/can-you-use-diaper-rash-cream-as-sunscreen-episode-162/" target="_blank" rel="noopener noreferrer">美容大脑也解决了这个问题</a> </span>，他们指出，即使你把尿布霜涂满你的脸，你可能也不会得到很好的防晒，即使尿布霜比普通防晒霜含有更多的氧化锌。生产和非活性成分很重要。Wong 指出，一个品牌的防晒指数为 50，只含有 15%的氧化锌，而另一个品牌的防晒指数为 15，含有 19%的氧化锌。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">那么，什么能阻止你尝试一个食谱，看看你是否会被晒伤呢？你某一天的经历和知道防晒霜是否真的有效是不一样的。你是否会被晒伤除了取决于你皮肤上的东西之外，还取决于很多因素，包括是否是一年中紫外线高的时候，以及你在阴凉处呆了多长时间。与此同时，配方不当的防晒霜实际上会增加你的皮肤受到阳光伤害的程度，这使得自己动手做的防晒霜可能比不涂防晒霜更糟糕。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">“在进入核区域之前，你会穿上在 Pinterest 上找到的防辐射服吗？”Wong 在她的视频中问道。这是一个极端的例子，但如果你想要某种东西真正保护你，你应该使用为此目的而制定和测试的东西。</p> </body> </html></iframe>

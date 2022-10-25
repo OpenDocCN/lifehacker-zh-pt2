@@ -1,0 +1,13 @@
+# 别管你的高收益储蓄账户
+
+> 原文:[https://life hacker . com/leave-your-high-yield-savings-account-alone-1838953599](https://lifehacker.com/leave-your-high-yield-savings-account-alone-1838953599)
+
+“上升的必然下降”不仅仅是地心引力的工作原理——不幸的是，它也适用于美国经济。可悲的是，不可能一直都是牛市和彩虹。如果你对几个月前还在 2%以上徘徊的高收益储蓄账户利率感到兴奋，那么是时候开始重新调整你的预期了。
+
+Watch
+
+请注意，我没有说“惊慌失措，立刻转移你所有的钱。”
+
+在衰退期间和之后的许多年里，我们都有这样一个共识，即储蓄利率根本就不好。但在过去几年的中，随着美联储连续九次加息，银行逐渐向客户回报高收益储蓄账户的更高利率。6 月份，网上银行(通常提供最高高收益利率的银行)的平均储蓄 APY 为 1.69%。
+
+<iframe data-src="https://e.infogram.com/_/uLBue1wfWCS6LvaKf9Ph?src=embed" width="700px" height="650px" sandbox="allow-same-origin allow-scripts allow-forms" frameborder="0" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen" class="lazyload" scrolling="yes">T2】</span></p><p class="sc-77igqf-0 bOfvBY">但是，就在美联储开始取消加息的一个月前，上面这张方便的图表停止了跟踪。自 2008 年以来，它首次在 7 月份降息。因此，高收益储蓄客户开始看到利率下降的通知。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h291763">如果你的高收益利率下降，该怎么办</h3><p class="sc-77igqf-0 bOfvBY">正如为了微小的利率上升而换银行是不值得的一样，为了避免微小的下降而换银行也是不值得的。那家新银行最终可能会随时调整利率，给你留下又一个黯淡的利率。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">是的，我欣喜地看着我的网上储蓄 APY 从 1.8%，到 2%，再到 2.3%。现在，我一直<!-- -->看着它降到 2.1%，再降到 1.9%。但是我的储蓄率没有改变。我仍然有相同的自动传输设置。我已经存下的钱并没有贬值，只是增值的速度更慢了。因为我不指望我的钱在 1.9%的利率下变成数百万，所以可以肯定地说，我很乐意等待利率波动结束。<br/></p><p class="sc-77igqf-0 bOfvBY">如果你不喜欢坐以待毙，你有几个选择。</p><p class="sc-77igqf-0 bOfvBY">首先，你可以将一部分钱存入 CD。由于定期存款有固定的期限，你在整个时间段(六个月，一年，无论你选择哪个)都可以得到相同的利率。期限越长，利率越高。但是你不能在投资之后再给 CD 加钱，你也不能在没有支付高额费用的情况下在学期中间取钱。例外的是<span></span>无罚款 CD，这种 CD 的 APY 通常比普通 CD 略低，如果你愿意，可以一次拿回所有的钱。</p><p class="sc-77igqf-0 bOfvBY">另一个选择是<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://twocents.lifehacker.com/keep-the-bare-minimum-in-your-checking-account-1836413864&quot;,{&quot;metric25&quot;:1}]]" href="https://twocents.lifehacker.com/keep-the-bare-minimum-in-your-checking-account-1836413864">投入更多</a> </span>的资金。尽管人们对经济忧心忡忡，但股票市场仍处于良好状态。你可以增加你的税收优惠退休账户，或者把更多的钱存入非退休经纪账户。风险更大，但长期增长的潜力也更大。<br/></p><p class="sc-77igqf-0 bOfvBY">但是，如果你像我一样，将高收益储蓄账户用作应急基金，在你需要快速获得流动性的情况下，传统的 CD 和投资不会有太大帮助。</p><p class="sc-77igqf-0 bOfvBY">对于那些几天之内就能轻易到手的钱，最好还是把它存在那个高收益的储蓄账户里。即使利率已经降到 2%以下。</p> </body> </html></iframe>

@@ -1,0 +1,19 @@
+# 请立即更新 Firefox 来修补这个零日漏洞
+
+> 原文:[https://life hacker . com/update-Firefox-right-now-to-patch-this-zero-day-vulneraa-1840901792](https://lifehacker.com/update-firefox-right-now-to-patch-this-zero-day-vulnera-1840901792)
+
+即使你可能刚刚将你的 Firefox 桌面浏览器更新到 72 版(周二发布)，也要确保你运行了一个新的更新来获得 Mozilla 昨天发布的一个特殊补丁。将更新到版本 72.0.1 修复了一个零日漏洞，如果被利用，可能允许攻击者“控制受影响的系统”，正如美国网络安全和基础设施安全局 [描述的](https://www.us-cert.gov/ncas/current-activity/2020/01/08/mozilla-patches-critical-vulnerability) 。(“零日漏洞”是指攻击者发现了这个问题，并利用它来制造麻烦，Mozilla 就是这样发现这个漏洞的。)
+
+Watch
+
+虽然说你以后会得到它的诱惑可能很大，但 Mozilla 在其自己的建议 中提到 [“我们意识到在野外有针对性的攻击滥用了这个漏洞。”](https://www.mozilla.org/en-US/security/advisories/mfsa2020-03/)
+
+虽然从技术上讲，你被黑客攻击的几率很低，但考虑到全球有这么多火狐用户，如果你是火狐的忠实粉丝，我不会推迟这次更新。
+
+和往常一样，更新浏览器你要做的就是点击右上角的三线“汉堡”图标，然后点击帮助>关于火狐(Windows 用户)。如果你是 Mac 用户，你只需点击菜单栏中的“Firefox”并选择“关于 Firefox”
+
+当你这样做的时候，你会看到一个类似这样的屏幕，你将不得不短暂地重启你的浏览会话来应用更新。
+
+你甚至可能走不到这一步。拖得够久的话，你会在浏览器中直接看到这个弹出窗口:
+
+Mozilla 没有详细说明*攻击者是如何利用这个漏洞来控制系统的，但指出这次攻击是基于“类型混淆”换句话说，攻击者找到了一种在他们通常无法访问的内存位置读取或写入数据的方法，绕过了通常阻止他们这样做的保护措施。*

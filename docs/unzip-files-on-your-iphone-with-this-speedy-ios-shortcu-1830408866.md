@@ -1,0 +1,15 @@
+# 用这个快捷的 iOS 快捷方式解压你的 iPhone 上的文件
+
+> 原文:[https://life hacker . com/unzip-files-on-your-iphone-with-this-speedy-IOs-short Cu-1830408866](https://lifehacker.com/unzip-files-on-your-iphone-with-this-speedy-ios-shortcu-1830408866)
+
+在智能手机上处理压缩 Zip 文件可能会很麻烦。有一些应用程序可以完成这项工作，但是这个过程从来没有像它应该的那样无缝。在笔记本电脑或台式机上，打开文件是第二天性——最多点击一两下。
+
+Watch
+
+这就是为什么我们喜欢 Drang 博士最新的 iOS 快捷方式。Mac 博客“ [和现在这一切](https://leancrew.com/all-this/2018/11/an-unzipping-shortcut/) 的作者 Drang 设计了一种方法来解压缩文件并将其内容存储在你的 iPhone(或云服务，如 iCloud 或 Dropbox)上。)他的“ [解压到 iCloud](https://www.icloud.com/shortcuts/4fe51396c4904d0482020dafbf78df05) ”很简单:当你面对一个 zip 文件时，调出 iOS 共享表，选择快捷方式动作，然后选择解压到 iCloud。
+
+快捷方式解压缩归档后，默认情况下会将文件发送到您的 iCloud 帐户，但是您可以在运行快捷方式时更改目的位置:
+
+正如 Drang 所描述的，快捷方式*可能*有点繁琐，所以如果一开始不成功就继续尝试:*“我第一次尝试运行它的时候就崩溃了。我不知道这是因为内存不足还是其他什么奇怪的原因，但它让我走上了一条不必要的调试之路。当我想不出它出了什么问题时，我再次运行快捷方式，它运行得非常完美。🤷🏼‍♂️”*
+
+如果有一个云服务你知道你会一直使用快捷方式，你可以编辑它来选择一个新的默认服务(并删除“询问保存位置”选项)。

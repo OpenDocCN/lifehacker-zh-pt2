@@ -1,0 +1,27 @@
+# 随着热带风暴巴里的逼近，新奥尔良面临严重的洪水威胁
+
+> 原文:[https://gizmodo . com/new-Orleans-faces-a-major-flood-threat-updating-1836275414](https://gizmodo.com/new-orleans-faces-a-major-flood-threat-updating-1836275414)
+
+热带风暴巴里今天早上刚刚正式形成，但是水位已经 [压向新奥尔良的](https://earther.gizmodo.com/new-orleans-faces-catastrophic-flooding-ahead-of-possib-1836245310) 。退一步说，情况看起来很糟糕，我们地球人将密切关注路易斯安那州和该市为周末即将到来的飓风做准备。
+
+Watch
+
+以爵士乐和 po'boys 闻名的新奥尔良，在热带风暴系统仍在墨西哥湾形成之前，昨天开始洪水泛滥。除了面临河水泛滥和漫堤的威胁之外，预计整个周末周边地区还会有 20 多英寸 的降雨。到目前为止，路易斯安那州州长约翰·贝尔·爱德华兹已经宣布进入紧急状态，官员们已经开始关闭新奥尔良及其周边地区的水闸。据《泰晤士报》报道，[-pica yune](https://www.nola.com/news/weather/article_9d73aa4a-a325-11e9-ac0c-fff4b9853a95.html)周五应关闭 200 多家。
+
+国家气象局并不期望风暴在风速方面变得如此强劲，但是损害并不仅仅是风的大小。正如路易斯安那州已经看到的那样，这也与水有关。这场风暴应该会在周六变成飓风。
+
+海岸已经处于飓风警戒之下。拥抱水的普拉克明斯教区正在进行强制疏散 。路透社报道称，该地区三分之一的石油生产已经停止，工业正为即将到来的风暴做准备。汽油价格因此上涨了一点。
+
+专家提醒居民 远离洪水，因为洪水可能携带有害毒素或化学物质。此外，下水道已经开始堵塞，水除了往上流没有别的地方可去。当这些类型的天气事件发生时，公共健康总是令人担忧的，因为工业设施经常受到损害。但是这一次真正处于危险中的是该市的防洪堤，它在 2005 年卡特里娜飓风袭击时已经失效。
+
+星期五晚上，密西西比河的水位将达到 20 英尺，但是第九区的一些防洪堤低于这个水位，根据《泰晤士报》的报道，这是 T1-T2 T3。幸运的是，负责国家防洪堤的陆军工程兵团没有 19 亿美元来修复中西部地区在今年早些时候的 [春季洪水后受损的系统。即将到来的热带风暴巴里正在将我国河流的水位推得更高。](https://earther.gizmodo.com/this-springs-flooding-crisis-is-part-of-a-bigger-patter-1835092237) 
+
+随着事态的发展，Earther 将发布更新。
+
+**更新，美国东部时间上午 11 点:**热带风暴巴里正式发布。国家气象局 [宣布](https://www.nhc.noaa.gov/text/refresh/MIATCPAT2+shtml/111452.shtml) 该扰动已经升级为热带风暴，离飓风又近了一步。风速已经达到每小时 40 英里，水位正在上升。今晚到周五之间，路易斯安那州南部和密西西比州甚至会出现一两次龙卷风。
+
+这篇文章的文字已经更新，以反映巴里现在是一个命名的热带风暴的事实。
+
+**更新，美国东部时间下午 2 点:**新奥尔良市 [将不会在日益增强的风暴登陆前发布疏散](https://twitter.com/NOLAnews/status/1149374511852261377?s=20) ，因为该市通常会等到风暴变成 3 级飓风后才会发布疏散令。热带风暴 Barry 预计不会达到 Saffir-Simpson 飓风等级。该市还证实，整个周末所有移民和海关执法都已暂停，以确保无证移民在准备和应对这种情况时受到保护。
+
+<iframe data-src="https://gizmodo.com/embed/inset/iframe?id=twitter-1149370750287192065&amp;autosize=1" autoresize="true" id="twitter-1149370750287192065" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">爱德华兹州长举行了新闻发布会，他的团队宣布该州已准备好应对风暴后的反应，多达 3000 名国民警卫队成员随时待命。爱德华兹说，这将是密西西比河已经上涨的情况下，飓风首次在该州形成。</p><p class="sc-77igqf-0 bOfvBY">他在新闻发布会上说:“我们鼓励每个人都非常、非常认真地对待这件事。”。</p><p class="sc-77igqf-0 bOfvBY"><strong>更新 2019 年 7 月 12 日美国东部时间上午 9 点:</strong>路易斯安那州人得到了唐纳德·特朗普总统的支持。昨晚，在州长爱德华兹<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 kVnoAv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://gov.louisiana.gov/index.cfm/newsroom/detail/2068&quot;,{&quot;metric25&quot;:1}]]" href="http://gov.louisiana.gov/index.cfm/newsroom/detail/2068" target="_blank" rel="noopener noreferrer">向他发出请求</a> </span>寻求陆军工程兵团、美国海岸警卫队、民航巡逻队、<!-- -->鱼类和野生动物服务局以及农业部的援助后，他发布了联邦紧急声明。这不仅仅是为风暴做准备，也是为官员们预计风暴之后会发生的事情做准备，包括农作物受损。</p><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://gizmodo.com/embed/inset/iframe?id=twitter-1149517092355362816&amp;autosize=1" autoresize="true" id="twitter-1149517092355362816" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><p class="sc-77igqf-0 bOfvBY">目前，国家飓风中心的<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 kVnoAv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.nhc.noaa.gov/text/refresh/MIATCDAT2+shtml/120835.shtml?&quot;,{&quot;metric25&quot;:1}]]" href="https://www.nhc.noaa.gov/text/refresh/MIATCDAT2+shtml/120835.shtml?" target="_blank" rel="noopener noreferrer">预报</a> </span>没有显示热带风暴巴里发展成飓风，但在未来 24 小时内仍有可能。风暴<!-- -->目前的最大风速<!-- -->约为每小时 50 英里，明天可能达到每小时 70 英里。</p><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://gizmodo.com/embed/inset/iframe?id=twitter-1149663656369541120&amp;autosize=1" autoresize="true" id="twitter-1149663656369541120" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div> </body> </html></iframe>

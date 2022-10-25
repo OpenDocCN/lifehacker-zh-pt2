@@ -1,0 +1,22 @@
+# 急救人员可以免费修复他们的谷歌像素
+
+> 原文:[https://life hacker . com/first-responders-can-get-they-Google-pixels-repaired-f-1843184644](https://lifehacker.com/first-responders-can-get-their-google-pixels-repaired-f-1843184644)
+
+谷歌正在与第三方技术维修公司 uBreakiFix 合作，为所有急救人员和医疗保健专业人员提供免费的谷歌批准的像素维修。这包括所有:
+
+Watch
+
+*   警察和其他执法人员
+*   消防员和急救人员
+*   医疗专业人员，包括医生、护士、药剂师和其他疗养院/医院工作人员
+
+6 月 30 日之前，500 多家参与 uBreakiFix 的商店将提供免费维修。有资格获得免费像素维修的任何人都可以通过以下四种方式之一为他们的设备提供服务:
+
+*   任何 uBreakiFix 位置的路边服务
+*   转入转出
+*   邮寄维修
+*   “来找你”预约，uBreakiFix 技术人员会来取你的设备并进行必要的维修
+
+获得免费 Pixel 维修非常简单——当您将 Pixel 手机带到参与的 uBreakiFix 商店进行维修时，您所要做的就是提供有效的 id，证明您受雇于上面列出的第一个响应字段之一。D 由于疫情爆发，大多数 uBreakiFix 所在地都要求客户提前预约维修，你可以在 [uBreakiFix 的网站](https://www.ubreakifix.com/) 预约。
+
+以防你对 uBreakiFix 的卫生政策感到好奇:根据宣布 项目的新闻稿，所有的维修都是按照 CDC 要求的安全协议进行的，包括“增加洗手频率，增加工作场所和高接触表面的清洁，在操作设备时戴手套，在适用法律要求的地方戴口罩，尽量减少人与人之间的接触，以及在接收和返回时彻底消毒所有设备。”

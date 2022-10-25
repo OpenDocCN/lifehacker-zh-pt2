@@ -1,0 +1,21 @@
+# 教你的孩子进行一次冥想式的“雪休”
+
+> 原文:[https://life hacker . com/teach-your-kids-to-take-a-stationing-snow-break-1844493397](https://lifehacker.com/teach-your-kids-to-take-a-meditative-snow-break-1844493397)
+
+我们现在都可以使用更多一点的正念，但是学习如何开始定期冥想 可能会令人生畏，尤其是对孩子来说。但是在他们的日常生活中加入正念并不一定要每次坐下 10 或 15 分钟，并试图清空他们头脑中的所有想法；这些小小的时刻可以让他们放慢脚步，活在当下，让他们的身心平静下来。
+
+Watch
+
+尽管我们很多人居住的室外目前很热，但我发现一个有趣又简单的正念建议利用了现在会感觉有点清爽的东西:雪。
+
+[今天的家长](https://www.todaysparent.com/kids/kids-health/mindfulness-for-kids-easy/) 解释了如何教我们的孩子采取“snow bbreak”:
+
+> 在过渡期间——比如从 iPad 到餐桌——让你的孩子躺在地上，闭上眼睛，想象一场小雪飘落到他们身上。当他们“被雪覆盖”时，是时候跳起来，抖掉身上的雪，开始下一项活动了。
+
+在过渡期间尝试雪地休息练习是一个特别好的建议，因为对许多孩子来说，过渡可能会特别有压力或具有挑战性。在活动之间的一小段专注时间可能有助于让他们平静下来，让每个人都能更平稳地过渡。
+
+如果雪地休息技巧不起作用，你知道总有 [【湿猫】技巧](https://lifehacker.com/try-the-wet-cat-technique-to-ease-your-childs-anxiety-1843044670) 可以依靠——这两种练习对孩子和成年人都有好处，代表着你可以加入日常生活或在焦虑开始冒泡时依靠的正念时刻。
+
+* * *
+
+<small>*遇见地球上最聪明的父母！加入我们的*</small> [<small>*育儿脸书群*</small>](https://www.facebook.com/groups/2018785615043946/) <small>*。*T15】</small>

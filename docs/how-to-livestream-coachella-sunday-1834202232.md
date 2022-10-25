@@ -1,0 +1,13 @@
+# 如何直播科切拉周日
+
+> 原文:[https://life hacker . com/how-to-live stream-coachella-Sunday-1834202232](https://lifehacker.com/how-to-livestream-coachella-sunday-1834202232)
+
+科切拉的第二个周末正在加利福尼亚沙漠举行。如果您碰巧在这个国家的另一边，甚至是世界的另一边，您仍然可以观看一些活动。
+
+Watch
+
+YouTube 正在直播精选表演以及周末的一些安可表演、艺术家评论、迷你纪录片和丑 Primo 的动画冒险。您还可以在另一个专用频道上观看音乐节上尤马帐篷里的全套 DJ 节目。
+
+你可以点击这里查看电影节的直播视频:
+
+<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-KiYh4tpzPRQ&amp;start=0" data-chomp-id="KiYh4tpzPRQ" data-recommend-id="youtube://KiYh4tpzPRQ" id="youtube-KiYh4tpzPRQ" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="KiYh4tpzPRQ" data-recommend-id="youtube://KiYh4tpzPRQ" id="youtube-KiYh4tpzPRQ" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">这里是尤马帐篷:</p><div class="ooo3c9-0 cmUFVa align--center has-video media-large video-embed embed-frame"><span class="flex-video widescreen"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-1OBbmq18Ayw&amp;start=0" data-chomp-id="1OBbmq18Ayw" data-recommend-id="youtube://1OBbmq18Ayw" id="youtube-1OBbmq18Ayw" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/><span data-chomp-id="1OBbmq18Ayw" data-recommend-id="youtube://1OBbmq18Ayw" id="youtube-1OBbmq18Ayw" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">如果你不是特别关心观看现场表演，那么周末的许多表演以及上周末的一些表演也可以在科切拉的 YouTube 频道上看到。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">你甚至可以在频道上<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.youtube.com/channel/UCHF66aWLOxBW4l6VkSrS3cQ&quot;,{&quot;metric25&quot;:1}]]" href="https://www.youtube.com/channel/UCHF66aWLOxBW4l6VkSrS3cQ" target="_blank" rel="noopener noreferrer">策划你自己理想的 setlist </a> </span>，这样你就只能看到你想要背靠背的艺术家了。</p><p class="sc-77igqf-0 bOfvBY">这不如亲自去那里，但在家里喝自己的饮料和小吃，如果你喜欢，可以在以后切换到《权力的游戏》,这绝对有它的好处。</p> </body> </html></iframe>

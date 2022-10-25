@@ -1,0 +1,11 @@
+# 在你的安卓设备上试试这些用户自制的 Pixel 4a 壁纸
+
+> 原文:[https://life hacker . com/try-out-these-user-made-pixel-4a-wallpapers-on-your-and-1842291990](https://lifehacker.com/try-out-these-user-made-pixel-4a-wallpapers-on-your-and-1842291990)
+
+Pixel 4a 几乎被证实是谷歌的下一代智能手机，但我们仍在等待该公司正式宣布严重泄露的设备。在那之前，如果你渴望体验 Pixel 4a 的用户体验，你可以现在就在你自己的 Android 设备上尝试用户制作的手机壁纸版本。
+
+Watch
+
+这些不是官方的 Pixel 4a 壁纸，而是艺术家 [帕夏普马](https://twitter.com/pashapuma1) 在推特上的再现。这五种壁纸设计是基于 Pixel 4a 的泄露图像，它们看起来的确如此。也就是说，当你在手机上切换明暗模式时，Pashapuma 的壁纸不能动态改变 Pixel 4a 的壁纸可能会自动改变——但下载文件夹包含每种壁纸的多种颜色，所以应该不难找到与你设备主题匹配的背景。
+
+<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1237834483384094722&amp;autosize=1" autoresize="true" id="twitter-1237834483384094722" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">要将 4a 风格的壁纸应用到您的 Android 设备上，您需要首先将您想要使用的壁纸下载到您自己的 Android 上(<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://drive.google.com/drive/u/0/folders/13ZlOnFQYcoMdy1JCv50COtS_CC_CnlWs&quot;,{&quot;metric25&quot;:1}]]" href="https://drive.google.com/drive/u/0/folders/13ZlOnFQYcoMdy1JCv50COtS_CC_CnlWs" target="_blank" rel="noopener noreferrer">此处</a> </span>和<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://drive.google.com/drive/u/0/folders/12OvpQZZ4HxooBGC2ISWIKMd6vzChudfG&quot;,{&quot;metric25&quot;:1}]]" href="https://drive.google.com/drive/u/0/folders/12OvpQZZ4HxooBGC2ISWIKMd6vzChudfG" target="_blank" rel="noopener noreferrer">此处</a> </span>)。接下来，你需要将它们作为你的主页和/或锁屏背景。这将根据您的设备略有不同，但您应该能够在您的 Android 设置的<strong>显示</strong>部分找到该选项。你也可以试着长按主屏幕上的空白区域，这样你就可以选择编辑你的壁纸了。<br/></p><div id="mgid-container" data-placement="3" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>

@@ -1,0 +1,11 @@
+# 当你被困在里面的时候填写人口普查表格
+
+> 原文:[https://life hacker . com/1842471022](https://lifehacker.com/fill-out-the-census-form-while-youre-stuck-inside-1842471022)
+
+面对冠状病毒感到无助？你可以迈出重要的一小步:F 我会在网上填写你的人口普查表格。访问 2020census.gov 的来完成你的在线人口普查，这可能会花不到 10 分钟(我的大概花了 3 分钟)，并且会让你觉得你做了一些有成效的事情。
+
+Watch
+
+如果你需要快速复习一下什么是人口普查以及我们为什么要进行人口普查，这里有一个来自美国人口普查局 T3[的 30 秒视频:](https://youtu.be/Syg4zqb0iCU)
+
+<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-Syg4zqb0iCU&amp;start=0" data-chomp-id="Syg4zqb0iCU" data-recommend-id="youtube://Syg4zqb0iCU" id="youtube-Syg4zqb0iCU" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="Syg4zqb0iCU" data-recommend-id="youtube://Syg4zqb0iCU" id="youtube-Syg4zqb0iCU" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">本质上，每隔 10 年，我们就试图统计每个人的人数，收集我们国家的人口统计信息——然后政府利用这些信息来决定在哪里以及如何资助学校、消防站、交通补助等等。人口普查数据也有助于确定每个州获得多少国会席位，这是一件大事。</p><p class="sc-77igqf-0 bOfvBY">我并不是说，如果你不花五分钟来填写你的在线人口普查，你的州就不会得到它所需要的代表，你当地的学校就不会得到它所需要的资金，但是...你知道吗，只要填写你的在线人口普查。如果你想避免屏幕时间，为你的孩子树立一个好榜样，你甚至可以通过电话 完成你的人口普查！</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">如果你想在开始人口普查之前看到你必须回答的问题，人口普查局已经准备好让你细读 。需要注意的是<strong>在 2020 年的人口普查中没有公民身份问题</strong>；我们的政府一度考虑在人口普查过程中询问每个人的公民身份，但这在 2020 年是不可能的。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">这意味着，如果你生活在美国或其五个领地中的任何一个，无论你的公民身份如何，你都可以并且应该填写 2020 年人口普查。事实上，填写人口普查是法律要求的——法律还要求人口普查局对你的信息保密。</p><p class="sc-77igqf-0 bOfvBY">这让我想到了现在完成人口普查的最后一个好理由。如果你没有通过电话、电子邮件或网络上交人口普查表格，人口普查员可能会出现在你家(假设这整个“物理距离”的事情结束之后)，你最不希望的事情就是有人敲你的门，问你是否有几分钟时间回答一堆人口普查问题。</p><p class="sc-77igqf-0 bOfvBY">所以，今天就在你舒适的家中回答这些问题吧，作为一种方式，让你感觉到在一个长期不确定的时期，你仍然是有效率的。当你完成后，你可以有一个舞会。</p> </body> </html></iframe>
