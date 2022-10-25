@@ -6,7 +6,7 @@
 
 但是资本主义不等待品牌，强迫“创新”，即使产品本身非常好(见:牙膏和牙刷)。即使是难以置信的可咀嚼的白切达爆米花也不能幸免于自由市场的需求，所以 Smartfood 通过对他们已经很棒的产品进行各种“旋转”,颠覆了 的东西。你可以吃到热腾腾的智能食品(我允许)，酸奶油&洋葱智能食品(maaaybe)，还有——令人惊讶的——嘎吱船长的嘎吱浆果智能食品。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Is Cap&#39;n Crunch Smartfood Popcorn Worthy of Your Mouth?](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/will-this-contraption-really-keep-your-cereal-from-gett-1844905385)</aside>
+
 
 我怀疑问题在于几十年来一直困扰谷物经济的似乎永无止境的松脆浆果过剩。虽然船长能够适应 1997 年的巨大的克朗彻伯里盈余与创造隐约悔悟哎呀！所有的浆果，他继续用紫色、蓝色、红色和绿色的球体充斥市场，坚持我们以越来越荒谬和反常的形式消费它们。(也许是我们的错，让他带着一个半吊子的道歉离开了；但是 Change.org 在 1997 年还不存在，我不想责怪消费者。)
 

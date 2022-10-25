@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Improve Almost Any Thanksgiving Dish With Miso](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-make-a-delicious-thanksgiving-turkey-1830465631)</aside>
+
 
 虽然发酵豆酱在日本料理中最常见，但它有一种鲜味，咸味，略带坚果和甜味，与火鸡、填料、南瓜、任何砂锅，甚至南瓜派搭配都非常美味。它增加了复杂性，盐，甜坚果味，如果你想吃更黑的品种，还有一点臭味，但没有压倒菜里其他更“传统”的味道。
 

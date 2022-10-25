@@ -8,7 +8,7 @@
 
 AMC 希望与 Clorox 合作，通过他们的“安全&清洁 T3】倡议来减轻人们的恐惧。通过对“彻底加强清洁”和“高科技 HEPA 吸尘器”的描述，该公司旨在建立客户的信心，即在他们的协议下去看电影是安全的。除了安全指导方针，AMC 还提供折扣和奖金来吸引以前的顾客——特别是 AMC Stubs 忠诚度计划的成员——他们可能愿意抛开健康顾虑，在晚上出去享受优惠。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled What to Expect From AMC Theaters&#39; Reopening](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-create-your-own-backyard-movie-theater-1844221285)</aside>
+
 
 AMC 的“欢迎回来”邮件探讨了 AMC“安全与清洁”实践的六个方面，但它们可以很容易地分为“你在做什么来保证我的安全？”以及“你在做什么来增加交易的甜头？”我不会责怪你为了安全而远离——而不是*去电影院 100%有效地防止从室内电影院感染病毒——但是对于那些正在考虑回归的人来说，这里是你可以期待的:*
 

@@ -40,7 +40,7 @@
 
 只要确保购买一个可靠的品牌，这样你就不会被烧伤。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled When Spending the Extra Money Is Worth It, According to Reddit](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/those-cheap-charging-cables-arent-worth-it-1839135653)</aside>
+
 
 ### 更好的垃圾袋
 

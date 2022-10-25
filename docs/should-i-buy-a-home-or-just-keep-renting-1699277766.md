@@ -81,7 +81,7 @@
 
 降不降两成，关于 [被“房穷”的担忧，就是一个有效的](http://lifehacker.com/how-being-house-poor-happens-and-how-to-avoid-it-1606079501) 。你不希望你所有的净资产都被套牢在你的房子里，这就是“房子穷”的本质——当你因为把所有的钱都花在房子上而入不敷出的时候。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Should You Buy a Home or Just Keep Renting?](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-much-money-do-you-need-to-buy-a-house-1835422567)</aside>
+
 
 对于第一点也是最后一点，有人可能会说，你应该简单地继续租下，直到你*付得起 20%的首付(并且仍然可以轻松支付你的每月开支)。*
 

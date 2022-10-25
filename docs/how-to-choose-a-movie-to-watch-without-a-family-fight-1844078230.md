@@ -14,6 +14,6 @@
 
 我更喜欢随机发生器的自我治疗元素。我的妻子和我经常讨论有一天我们可能想看的电影，但从不在一个地方；我们有分布在 Alexa 列表、多个流媒体服务观看队列、随机文本和古老电子邮件中的选项，但出于某种原因，每次我们启动 Roku 时，我们都想不出任何我们感兴趣的东西。使用随机数发生器模型，我们不仅可以在一个地方拥有所有的选项，而且最难的部分——选择部分——也不在我们的掌握之中。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Choose a Movie to Watch Without a Family Fight](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-find-where-your-favorite-movie-is-streaming-1843461201)</aside>
+
 
 现在，这个*是*一个需要两个设置的解决方案——需要一段时间来组合你的观看内容列表，并且你可能会随着流媒体服务添加和删除电影——以及买入——而不断地管理它——每个受随机数发生器支配的人都必须*同意遵守随机数发生器的规则*。如果你只是再次点击“随机”按钮，如果你不喜欢你得到的，你还不如回到 [【网飞】的“无休止浏览”计划](https://www.theonion.com/netflix-introduces-new-browse-endlessly-plan-1819595604) 。如果这对你和你的同事的健康关系来说太死板，考虑实施一些家庭规则。也许你可以把你的清单按类型分类(这样你就不会在情人节看恐怖电影了)或者给每个人一个否决权——无论你做什么来保持和平，最后只是看一部该死的电影。

@@ -92,4 +92,3 @@
 
 ### 更多关于*动物穿越*:
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Tips For Playing Animal Crossing: New Horizons](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://kotaku.com/animal-crossings-character-creator-is-better-than-ever-1842401240)</aside>

@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled The Best Way to Keep Track of Your Glass at a Party](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/elevate-your-dinner-party-with-these-fancy-details-1826494234)</aside>
+
 
 这种双管齐下的饮料标签方法是有效的，因为它吸引了感官*和*自我。Painter 的胶带很便宜(比 twee washi 胶带便宜得多)，可以粘在任何表面上，并且你需要多长就有多短，这意味着没有名字会被小得令人压抑的标签压扁。但是，更重要的是，它使用起来很有趣。(看，我们都在可能的地方得到乐趣。)把胶带从卷上拉下来是极其令人满意的——它发出了如此美妙的声音！这意味着人们更有可能使用磁带。(这不是我编的；人们喜欢这卷带子。)
 

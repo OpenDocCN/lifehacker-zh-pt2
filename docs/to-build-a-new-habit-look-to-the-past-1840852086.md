@@ -20,7 +20,7 @@ ClearerThinking.orgT3[的道格·摩尔和斯潘塞·格林伯格最近进行了
 
 也许你是那种需要把习惯堆起来的人，詹姆斯清晰式。也许日常口头禅对你有用。也许你需要使用 BJ·福格的[Bs "蜂群](https://lifehacker.com/use-the-swarm-of-bs-technique-to-successfully-form-new-1840617907) 方法，同时用多种行为来支持你的习惯。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled To Build a New Habit, Look to the Past](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-start-a-new-habit-and-why-setting-goals-doesnt-1830535655)</aside>
+
 
 摩尔和格林伯格的研究中有趣的一点是，那些选择了习惯培养策略而没有先进行习惯反思的参与者不如那些进行了习惯反思的参与者成功。
 

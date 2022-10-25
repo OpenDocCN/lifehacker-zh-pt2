@@ -8,7 +8,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Make the Popeyes Chicken Sandwich, But Better](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/you-can-make-chick-fil-a-style-chicken-nuggets-at-home-1837284801)</aside>
+
 
 这是我的三明治:大力水手三明治用更好的小圆面包、更新鲜的泡菜、美味的酱汁*和当然还有脆脆的标志性大力水手面包制造了巨大的轰动。另一方面，福乐鸡快餐店有一种强烈的、容易辨认的味道。相比之下，大力水手的三明治，尽管有各种装饰，味道确实不怎么样。
 

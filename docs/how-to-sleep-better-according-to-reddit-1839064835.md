@@ -22,7 +22,7 @@
 
 不出所料，咖啡因作为一种兴奋剂，对你的睡眠能力不是好兆头。(2013 年 的一项 [小型研究发现，睡前六小时摄入咖啡因仍会扰乱睡眠。)根据](http://jcsm.aasm.org/viewabstract.aspx?pid=29198)[u/duostisticuloshabet](https://www.reddit.com/r/Fitness/comments/dhrv2i/community_campfire_improving_sleep_quality/f3rk9h5?utm_source=share&utm_medium=web2x)的说法，恰当地安排咖啡因的摄入时间会有所帮助。"...我尽量不超过中午，”他们说。“自从这样做后，我注意到我入睡和深度睡眠的能力有了显著的提高。作为一个经常在重量训练、健美操和跑步/游泳之间一天锻炼两次的人，很容易忘记下午的预锻炼或能量饮料会在晚上晚些时候扰乱你的睡眠。”
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Sleep Better, According to Reddit](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/watch-this-if-you-cant-fall-sleep-1832723242)</aside>
+
 
 ### 寻找更好的床垫
 

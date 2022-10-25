@@ -28,7 +28,7 @@
 
 无论你是亲自参加还是在线参加，你都可以期望一门课程持续四到八个小时。如果你在网上上课，你可能需要在一定的时间内完成课程，比如 30 天。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Why You Should Take a First-Time Homebuyer Class](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-much-money-do-you-need-to-buy-a-house-1835422567)</aside>
+
 
 ### **成本**
 

@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Run in the Dark](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/what-to-wear-to-run-in-the-cold-1831870049)</aside>
+
 
 ### 戴上头灯
 

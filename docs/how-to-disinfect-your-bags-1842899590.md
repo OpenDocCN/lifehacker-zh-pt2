@@ -28,7 +28,7 @@
 
 皮包容易擦下来，干的很快。正如我们 [之前建议](https://lifehacker.com/how-to-kill-germs-all-over-your-house-1842613280) 的那样，使用超细纤维布和消毒剂或消毒湿巾来清洁这些表面是最好的防线。同样，硬面包，包括聚碳酸酯制成的行李箱，也很容易用喷雾和布或抹布擦拭干净。对这些袋子进行抽查，以确保你使用的化学物质不会破坏它们或使它们变色。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Disinfect Your Bags](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-kill-germs-all-over-your-house-1842613280)</aside>
+
 
 #### 布
 

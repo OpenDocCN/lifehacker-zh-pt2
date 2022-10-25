@@ -8,7 +8,7 @@
 
 这就是为什么免煮早餐是最好的。最简单和最容易得到的当然是盒装早餐麦片。问题是麦片只有两种:太甜的和太淡的。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Mix Sweet and Bland Cereal for a Balanced Breakfast](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/will-this-tiktok-cereal-box-hack-solve-all-your-breakfa-1844544160)</aside>
+
 
 为了解决这个问题，我想出了一个完美的解决方案。回到以前，当我们的办公室有小吃时，我会把太甜的麦片和太淡的麦片混合在一起，调制一份下午小吃。这两种成分自然地相互平衡，形成了一个很好的平衡，可以在早上、下午或晚上享用！为什么不呢！
 

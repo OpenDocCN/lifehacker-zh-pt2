@@ -20,7 +20,7 @@
 
 *但你会在其他提供商那里找到几乎完全相同的基金，比如富达全市场指数基金(FSTMX)或嘉信全股票市场指数基金(SWTSX)。事实上，早在 2018 年 8 月，富达宣布其首批免费指数基金中的两只是 [富达零总市场指数基金](https://twocents.lifehacker.com/how-to-get-the-first-fee-free-index-funds-1828052370) (FZROX)，持有约 2500 只股票，以及富达零国际指数基金(FZILX)，根据 [Motley Fool](https://www.fool.com/investing/2019/01/06/read-this-before-buying-fidelitys-zero-fee-funds.aspx) 的说法，该基金“旨在投资于绝大多数在国际交易所上市的最有价值的公司”(也就是说，它们持有的股票与非免费版本不同不同券商的总指数基金之间的差异(如果有的话)可能可以忽略不计。*
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">*[![Image for article titled Simplify Your Investments With the 3-Fund Portfolio](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-fastest-way-to-save-1-million-1829372702)*</aside>
+
 
 *对于傻瓜来说，简单是关键。你不会把一堆不同的基金混为一谈，让你投资于市场的不同部分，而是选择三只一体化基金，然后让它们闲置。“像这样的基金是最接近真正被动的股票投资，”杂色傻瓜指出。另一个关键因素是:从费用和税收的角度来看，持有它们都不贵。*
 

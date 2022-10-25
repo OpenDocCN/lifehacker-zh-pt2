@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Make an Easy Summer Dessert That Isn&#39;t a Flag Cake](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/what-to-grill-when-youre-sick-of-hamburgers-and-hot-dog-1828402331)</aside>
+
 
 ### 如果你刚刚意识到你可能想要甜点
 

@@ -91,7 +91,7 @@
 *   ****书:** [*小常识书斥*](https://www.amazon.com/gp/product/1119404509/ref=dbs_a_def_rwt_hsch_vapi_taft_p1_i0?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/february-money-challenge-level-up-your-investments-1832327491&asc_source=&tag=kinjalifehackerlink-20)**
 *   ****研究:** [SPIVA 美国记分卡](https://www.spglobal.com/en/research-insights/articles/SPIVA-US-Scorecard)**
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">**[![Image for article titled February Money Challenge: Level Up Your Investments](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-fastest-way-to-save-1-million-1829372702)**</aside>
+
 
 ### **第三周:升级**
 

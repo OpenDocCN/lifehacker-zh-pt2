@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Make Mulled Wine in Your Instant Pot](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/let-the-instant-pot-make-your-thanksgiving-easier-1830163877)</aside>
+
 
 这不是一种在炉子上做的难喝的饮料，但是你知道我有多讨厌集中注意力，我宁愿把它弄好然后忘记，也不愿意看着一个沸腾的锅。虽然 [速溶壶不适合白酒](https://skillet.lifehacker.com/how-to-make-gin-in-the-instant-pot-1828578574)——*它会着火*——葡萄酒的 ABV 足够低，你可以用高压锅给它注入温暖、寒冷的香料。速溶罐热葡萄酒也是我开发的最快的高压锅食谱——你可以将烹饪时间设置为零分钟。当速溶壶达到一定压力时，酒就完全注入了。
 

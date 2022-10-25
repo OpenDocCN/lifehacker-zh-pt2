@@ -14,7 +14,7 @@
 
 但是，在对方表现异常的情况下退出面试(格林举了一个例子，一个人来参加一对一的会议，得知自己将成为 45 人小组面试的一部分)和当你意识到这份工作不是你想要的时，礼貌地结束面试是有区别的。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled When to Walk Out of a Job Interview Early](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-ace-a-job-interview-1837902479)</aside>
+
 
 当然，你可以把面试坚持到最后。因为工作面试是一项随着实践而提高的技能，所以即使你打算拒绝任何即将到来的工作邀请，也要抓住机会锻炼你的面试肌肉。
 

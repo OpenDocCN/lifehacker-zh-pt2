@@ -38,7 +38,7 @@
 
 尽管我们希望所有的决定都基于科学，但这仍然是一个判断问题。一个幸运的变化是，我们能够生产和销售大量的织物面具。缝纫的人给自己和朋友做了面具；服装公司开始大量生产它们。很快，得到一个面具并不太难，也不太麻烦去期望人们能够得到它们。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Why Advice on Masks Seems to Be Constantly Changing](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-dos-and-donts-of-cloth-face-masks-1842880855)</aside>
+
 
 ### 以下是没有改变的
 

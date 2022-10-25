@@ -4,7 +4,7 @@
 
 我们需要谈谈豆腐。随着“超越肉类和不可能的汉堡热”席卷全球，OG 素食蛋白被抛在了后面——就我而言，我讨厌看到这种情况。如果你真的想减少对动物产品的依赖，豆腐有可能让你的饮食和生活变得更好。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Tofu Freaking Rules](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/are-fake-meat-burgers-finally-as-good-as-beef-1836815995)</aside>
+
 
 
 

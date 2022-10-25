@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Serve Cheese and Charcuterie on Rimmed Baking Sheets](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-anatomy-of-a-perfect-cheese-board-1828745149)</aside>
+
 
 你可能会指责我想多了——毕竟，任何平坦、干净的板都可以作为奶酪和肉类的服务容器，但有边框的烤板*更好，*尤其是如果你懒惰、笨拙或两者兼而有之。(我也可以说，只要我们在脑子里有一个假想的争论，我的工作就是过度思考吃饭的细节。)
 

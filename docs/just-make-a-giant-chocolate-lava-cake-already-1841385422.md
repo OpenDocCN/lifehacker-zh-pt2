@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Just Make a Giant Chocolate Lava Cake, Already](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/impress-your-guests-with-instant-pot-lava-cakes-1826235162)</aside>
+
 
 有专门为大型熔岩蛋糕设计的食谱——像 [这个](https://www.foodnetwork.com/recipes/food-network-kitchen/giant-chocolate-lava-cake-3775638) 需要插入冰淇淋棒——但不需要那么复杂。调整很简单:不要把你的面糊倒入一堆小模子里，而是倒入一个大模子里(或蛋糕盘)再煮一会儿(但不要太久)。
 

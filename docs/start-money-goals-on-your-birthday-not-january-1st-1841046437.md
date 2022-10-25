@@ -8,7 +8,7 @@
 
 这种想法与事实相去甚远。你可以选择一年中的任何一天重新开始，并相应地跟踪你的进展。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Start Money Goals on Your Birthday, Not January 1st](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/give-up-on-new-years-resolutions-already-1840930899)</aside>
+
 
 但是如果你想找一个里程碑式的日子来设定一个财务目标(或者任何其他目标)，考虑在你生日那天开始你的旅程。 [凯瑟琳·米尔克](https://oid.wharton.upenn.edu/profile/kmilkman/) 宾夕法尼亚大学的商业教授，在《华尔街日报》的一篇 [文章](https://www.wsj.com/articles/want-to-reach-your-savings-goal-in-2020-heres-what-the-research-says-will-help-11577356205?mod=hp_lead_pos7) 中为这一目标奔走呼吁。
 

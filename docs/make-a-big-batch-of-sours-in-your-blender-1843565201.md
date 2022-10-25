@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Make a Big Batch of Sours in Your Blender](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-sour-is-the-perfect-quarantine-cocktail-1843185396)</aside>
+
 
 你可能会认为你的搅拌机是制作混合饮料的工具，就像玛格丽塔酒一样，但事实证明这是一个人狭隘的世界观。据酒吧经理杰弗里·摩根塔勒 说，他是几本鸡尾酒书的作者，比如《 [喝蒸馏过的](https://www.amazon.com/gp/product/0399580557/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/make-a-big-batch-of-sours-in-your-blender-1843565201&asc_source=&tag=kinjalifehackerlink-20) ，“你可以在搅拌机里做出蓬松的、完全冰镇的酸奶——或者任何需要摇晃的鸡尾酒。你只需要少加*点*冰。
 

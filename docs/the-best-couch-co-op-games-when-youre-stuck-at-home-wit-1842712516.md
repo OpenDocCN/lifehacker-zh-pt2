@@ -38,4 +38,3 @@
 
 ### 更多多人疯狂:
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled The Best Couch Co-Op Games When You&#39;re Stuck At Home With People](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://kotaku.com/here-s-what-wolfenstein-youngblood-s-co-op-looks-like-1836706551)</aside>

@@ -24,7 +24,7 @@
 
 我们已经(或者应该)更频繁地清洁我们的家，特别注意高接触表面。如果你生病了，这些努力需要加强，尤其是如果你家里还有其他人的话。确保你家里有足够维持至少两周的用品，这样你就不会在生病时冒险用完。使用清洁剂 清洁后，应使用消毒剂，为此，您应使用稀释的漂白剂溶液或酒精浓度至少为 70%的酒精溶液。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled What Supplies to Have at Home in Case You Get Sick](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-kill-germs-all-over-your-house-1842613280)</aside>
+
 
 ### **外科口罩，如果你能找到的话**
 
@@ -38,7 +38,7 @@
 
 “洗手，洗手，”斯图尔特说。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled What Supplies to Have at Home in Case You Get Sick](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-cdc-approved-method-to-washing-your-hands-step-by-1842377183)</aside>
+
 
 ### 温度计
 

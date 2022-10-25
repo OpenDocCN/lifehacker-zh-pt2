@@ -18,7 +18,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Be an Ethical Weed Consumer](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-best-way-to-roll-and-smoke-a-joint-1833998419)</aside>
+
 
 ### 这对于我这个买大麻的人来说意味着什么呢？
 
@@ -34,7 +34,7 @@
 
 如果这还不够的话，直到最近，组成 NYMCIA 的企业之一是一家总部位于加州的名为 MedMen 的公司。因其 2000 英尺的第五大道店面和光滑的触摸屏显示器而被称为“大麻的苹果商店”，梅德曼最近被该协会的解雇，因为其高管被发现使用种族和性别歧视的诽谤。当然，梅德门可能有一个奢华的地址和超前的采购流程，但你想让你的大麻钱进入一个据称将一名洛杉矶市议员称为“ [侏儒黑人](https://www.nydailynews.com/news/politics/ny-metro-medmen-dispensary-lawsuit-association-20190210-story.html) ”的人的金库吗？
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Be an Ethical Weed Consumer](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-properly-clean-a-cannabis-pipe-1834076628)</aside>
+
 
 ### 我怎样才能区分好演员和坏演员？
 

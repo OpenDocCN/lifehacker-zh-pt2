@@ -19,7 +19,7 @@
 *   *或者买一只便宜的宠物:squishyzucchini 花了 3 美元买了他们的蜗牛弗兰肯斯坦。 [这里有一张科学怪人“在海藻晶片上进城”的图片](https://imgur.com/a/qPaij0P)*
 *   *firepebble14 说:“我的 iPhone 需要一根 10 英尺长的充电线。太对了。但是为了安全起见，买一些合法的东西，比如 Anker 或 Aukey，这样你就不会烧了你的手机。*
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">*[![Image for article titled The Best Ways to Spend $20, According to Reddit](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/dont-get-duped-by-crappy-third-party-chargers-1826997808)*</aside>
+
 
 *   *一个常见的主题是持续多年的廉价二手物品——一个背包，一张沙发，一套在旧货店非常合身的衣服。这是来自 De_Vries8 的诀窍:带着 20 美元去跳蚤市场。“把你的钱包留在家里。买你想要的，到处走走，试着和别人交易。看看你的 20 美元可以带你去哪里。”有一次，他们买了一些旧磁带，换了一顶定制的摩托车头盔，当了 100 美元。*
 *   *插科打诨的礼物也派上了用场:“几年前圣诞节时，我给父亲买了一个木制的刮刮乐，几乎是作为一个笑话，”l4mpSh4d3 说。“他喜欢它，而且还在继续，说这是他收到的最好的礼物。”* 

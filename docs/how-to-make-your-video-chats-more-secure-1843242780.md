@@ -23,7 +23,7 @@ E 即使我们假定这些公司是无辜的，并假设他们正在负责任地
 
 如果你对谷歌、微软和思科的隐私政策感到不安，可以看看优先考虑隐私的电话会议应用，比如 Zoho。Mozilla 甚至有一个详细的指南，即 [根据安全等级](https://lifehacker.com/is-your-video-chat-app-secure-1843134385) 对视频聊天应用进行排名。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Make Your Video Chats More Secure](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-best-free-alternatives-to-zoom-1843043133)</aside>
+
 
 也就是说，只要您在实施智能数据安全实践，您就不必放弃 Meet、Teams 或 Webex。根据消费者报告和我们之前的报道，这里有一些其他的建议，应该有助于保证你的远程办公应用的安全:
 

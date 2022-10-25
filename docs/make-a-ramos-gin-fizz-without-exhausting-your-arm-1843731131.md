@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Make a Ramos Gin Fizz Without Exhausting Your Arm](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/sometimes-the-best-cocktail-is-a-glass-of-wine-1843000952)</aside>
+
 
 拉莫斯杜松子汽酒无疑是美味的。它就像一杯西瓜杜松子奶昔，只是更淡更蓬松，上面还有一大块蛋白酥皮。但我从来没点过，因为我有一种被人喜欢的强迫性需求。拉莫斯是出了名的难做，需要大量的原料。点一个会让*你*在联想中看起来像个讨厌鬼。(在我自己做之前，我唯一喜欢的拉莫斯是一个正在练习拉莫斯技巧的酒保递给我的。它裁定。)
 

@@ -14,7 +14,7 @@
 
 但是免费的信用监测网站和金融机构提供的免费评分是最近才兴起的，所以仍然有一种新奇的感觉。每个人都想知道自己的状态。这是基本的心理学。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled If You Want to Improve Your Credit Score, Check It Regularly](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-get-a-near-perfect-credit-score-1841521179)</aside>
+
 
 还记得你什么时候可以找到你的优步客户评级，但前提是你知道该去哪里找吗？每个人都想知道他们的分数。同样，有整个论坛专门讨论如何获得完美的信用评分。
 

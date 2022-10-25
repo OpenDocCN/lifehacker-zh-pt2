@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Make a Fancy Fruit Paste Out of Mushy Brown Pears](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/make-fruity-infused-booze-with-an-almost-empty-jam-jar-1836465195)</aside>
+
 
 当吉安娜邀请我去做这件事时，我非常激动。(吉安娜有一头好头发，一栋房子，还有一个博士学位——她可以说是我最成熟的朋友，她总是喂我。)我打算收集合理数量的新鲜农产品，然后及时食用或保存起来。我顺利地穿过了西红柿和黑莓，但我没有吃梨，因为它们还没有完全成熟。然后我去了洛杉矶一周拍摄一些视频。
 

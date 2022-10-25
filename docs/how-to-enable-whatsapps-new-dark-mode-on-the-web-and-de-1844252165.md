@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Enable WhatsApp&#39;s New Dark Mode on the Web and Desktop](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-turn-on-whatsapps-new-dark-mode-1841157512)</aside>
+
 
 ### 如何在网络上启用 WhatsApp 的黑暗模式
 

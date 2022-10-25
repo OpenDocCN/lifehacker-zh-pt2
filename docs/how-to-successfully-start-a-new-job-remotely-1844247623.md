@@ -36,7 +36,7 @@
 
 如果你远程开始一份新工作，Loanry 的首席执行官伊桑·陶博(Ethan Taub)说，你必须记住，主要的区别是你和你的同事不在一个房间里。“一个团队需要清晰和理解的领导——你必须成为他们的代言人，”他告诉 Lifehacker。“你必须激励他们去做工作，就像你们在同一个房间里一样。这是完全可能的，只要你也感受到动机。”
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Successfully Start a New Job Remotely](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-look-and-sound-great-on-a-conference-call-1842431127)</aside>
+
 
 ### 给任何开始远程工作的人的提示
 

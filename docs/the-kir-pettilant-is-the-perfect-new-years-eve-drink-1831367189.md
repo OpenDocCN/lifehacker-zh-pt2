@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled The Kir Péttilant Is the Perfect New Year&#39;s Eve Drink](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-buy-champagne-on-a-light-beer-budget-1829661228)</aside>
+
 
 事实上，这仅仅是一种三种成分的鸡尾酒。你所需要的是一点黑醋栗，一些起泡酒，和一条柠檬皮作为装饰。如果你想犒劳一下自己，可以拿一些大写字母 c 的香槟，做一杯 Kir Royale，但是我不太喜欢在好的香槟里掺任何东西。要制作这款优雅多彩、略带甜味和果香的酒，你需要:
 

@@ -42,7 +42,7 @@
 
 最后，如果你在海边住的时间足够长，你的家将不得不承受一场大风暴或天气事件。要点是:不要在保险单上吝啬。洪水保险政策将取决于你度假屋的位置，以及它是否位于高风险地区。您的房地产经纪人和当地保险代理人将能够帮助您确定是否需要高风险洪水保险。这可能是一笔很大的额外开支，所以你要提前做好调查，并将其纳入你的家庭总成本计划中。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Before Buying a Beach House, Ask Yourself These Questions](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-pack-the-perfect-beach-picnic-1828013991)</aside>
+
 
 ### **如果不住在附近，有没有办法和当地社区联系？**
 

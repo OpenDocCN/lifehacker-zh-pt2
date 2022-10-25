@@ -16,7 +16,7 @@
 
 当你的呼吸飞沫从你的嘴 [和鼻子](https://lifehacker.com/put-your-mask-over-your-damn-nose-1844132568) 中散发出来时，一个贴身的口罩将会捕捉到大部分的飞沫。但是面罩的底部是敞开的，这使得它比面具更容易泄漏。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Should You Wear a Clear Plastic Face Shield?](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/put-your-mask-over-your-damn-nose-1844132568)</aside>
+
 
 使用面罩 [的医护人员将*与*口罩](https://www.cdc.gov/coronavirus/2019-ncov/hcp/using-ppe.html) 配合使用。盾牌保护他们，也保持他们的面具清洁，所以他们可以继续戴更长时间。(这本身并不好——口罩真的应该一次性使用——但是很多医院仍然供应不足。)
 

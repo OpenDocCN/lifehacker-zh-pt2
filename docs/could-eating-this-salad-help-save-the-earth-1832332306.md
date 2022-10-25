@@ -36,7 +36,7 @@
 
 对于西红柿，你有两种选择——你可以将它们切成两半，最后扔进去，或者你可以 [花一点额外的时间将它们去皮](https://lifehacker.com/how-to-make-cheap-side-dishes-that-seem-fancy-1825900642) ，让它们浸泡在调味汁中，增加额外的味道。削西红柿皮其实很容易。在每个番茄的根部(茎标志的对面)，用一把非常锋利的刀划一个小小的“x ”,注意不要切得太深。烧开一壶水，将西红柿放入沸水中焯一段时间，大约 5 秒钟，让皮开始剥落，然后将它们放入冰浴中停止烹饪。一旦它们被冷却，轻轻地去掉皮，把去皮的西红柿放在碗里。用一汤匙调味汁搅拌西红柿，用少许盐和胡椒调味。盖上盖子，放在一边。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Could Eating This Salad Help Save The Earth?](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-make-cheap-side-dishes-that-seem-fancy-1825900642)</aside>
+
 
 从一个冷的不粘锅开始(不粘锅很重要，这样你就不用加更多的油了)，用中火煮意大利熏咸肉，直到脂肪被提取出来，咸肉变脆。用漏勺把咸肉捞出来，留下肥肉，然后加热到中火。将蘑菇放入培根油中烹制，直到它们释放出大部分水分并变脆。
 

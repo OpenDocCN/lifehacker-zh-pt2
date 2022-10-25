@@ -37,4 +37,3 @@
 
 在每次开会开始点击隐藏自己之前，花时间学习如何在 Zoom 上看起来和听起来都很棒是值得的，因为一旦你停止观察自己，你就不知道你的灯光是否关闭了(或者你的 Zoom 衬衫是否有点皱了)。一旦你掌握了缩放演示技巧，你就可以开始在每次通话时隐藏自己——看不到自己可能会对你如何体验缩放会议产生巨大影响。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Zoom Without Having to See Your Own Face](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-look-and-sound-great-on-a-conference-call-1842431127)</aside>

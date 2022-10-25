@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Level Up Your Cheese Board with a Wheel of Baked Cheese](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-throw-a-cheap-dinner-party-appetizers-1825577754)</aside>
+
 
 就像 [fromage fort](https://skillet.lifehacker.com/fromage-fort-is-an-amazing-spread-made-from-cheese-plat-1821052207) 一样，烤奶酪结合了所有可能的派对小吃世界的精华:奶酪、轻松和你冰箱里的任何东西。你所要做的就是在一轮柔软的去皮奶酪上切一个浅的交叉图案，填入你选择的美味小块，然后在 350 华氏度下烘烤直到融化。一个 [微型铸铁煎锅](https://skillet.lifehacker.com/you-need-a-mini-cast-iron-pan-1822741657) 为展示赢得加分，但你也可以将(未包装的)奶酪直接放在木箱包装中烘烤；无论哪种方式，将它们放在一个薄烤盘上，以获得更好的导热性和滴水保护。单独享用你美味的食物——含大量可食用的碳水化合物——或者作为一个杀手奶酪板的主菜。
 

@@ -38,7 +38,7 @@ Instacart 和[post mates](https://lifehacker.com/you-can-get-a-free-postmates-un
 
 在这种情况下，苹果的 HomePod 可能是更安全的选择，虽然你会以伦理的名义 [牺牲一些功能](https://gizmodo.com/homepod-is-the-ultimate-apple-product-in-a-bad-way-1822883347) 。考虑到很多单词会错误地触发智能扬声器，引发隐私问题，你可能也想干脆跳过这一条。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Stop Giving Amazon Your Money](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-stop-alexa-and-google-home-from-recording-you-1840465076)</aside>
+
 
 ### **除亚马逊 Fire TV 之外的任何地方的流媒体电视**
 
@@ -52,7 +52,7 @@ Instacart 和[post mates](https://lifehacker.com/you-can-get-a-free-postmates-un
 
 Hulu 和网飞都提供大量独家电视节目和原创电影可供观看，你可以使用 HBO 的许多服务选项之一来观看 HBO 的内容，而无需订阅有线电视。还有迪士尼+，苹果电视+和越来越多的网络专用平台。如果你错过了亚马逊可供出租的海量电影库，你通常可以在 iTunes、Google Play、YouTube 或其他地方找到你想要的东西，这些地方会 [免费为你提供](https://lifehacker.com/top-10-places-to-download-or-stream-movies-for-free-le-1782772455) 。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Stop Giving Amazon Your Money](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-find-where-your-favorite-movie-is-streaming-1843461201)</aside>
+
 
 ### **忘记 Audible，去别的地方买你的有声读物**
 

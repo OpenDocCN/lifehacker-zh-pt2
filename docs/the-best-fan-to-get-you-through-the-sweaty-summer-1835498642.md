@@ -18,7 +18,7 @@
 
 说到戴森的例外论， [我们测试的 AM06 车型](https://www.dyson.com/fans-and-heaters/dyson-cool-desk-10-inch-white-silver.html) 看起来与众不同。戴森将这个装置称为“空气倍增器”，它的设计立即令人震惊，因为它有点像风扇的形状，但你可以将手臂穿过中心，因为风扇的旋转部分隐藏在底座中。戴森风扇用叶轮吸入空气，然后将空气向上送过环，然后沿着环的形状缩小一个孔，几乎是无声的。(戴森 [制作了一整个视频](https://youtu.be/bUJ-X1rsKV4) 讲述这是如何工作的，这是令人惊讶的娱乐性。我只想说，戴森 AM06 是一个有趣的东西，它也能让你降温。也要 300 美元。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled The Best Fan to Get You Through the Sweaty Summer](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://gizmodo.com/these-are-the-very-best-truly-wireless-earbuds-1835118531)</aside>
+
 
 我们发现，控制是区分好粉丝和讨厌粉丝的关键。最基本的风扇控制是一个简单的旋钮，让你控制空速。这就是低端 Vornado 633 和[Lasko Cyclone](https://www.lasko.com/products/20-inch-cyclone-air-circulator-fan-with-remote-control-3542/)的运作方式——这两款产品的价格都是 75 美元。按钮的引入改善了体验，这意味着当你控制风扇时，你可以更好地了解你在做什么。 [售价 110 美元的中档 Vornado 660](https://www.vornado.com/shop/circulators-fans/660-large-air-circulator) ，低中高按键简单。150 美元的 Vornado 6303DC 有一系列按钮和一个小显示屏。Vornado 6303DC、Lasko Cyclone 和 Dyson AM06 也配有遥控器。
 

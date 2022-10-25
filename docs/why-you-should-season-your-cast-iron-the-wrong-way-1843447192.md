@@ -4,7 +4,7 @@
 
 去年年底，我发现自己处于十字路口。十年半之后，我真的厌倦了处理我的铸铁煎锅。不知从哪里来的，它突然拒绝接受调味料——拖着它到处走加重了我 30 岁那年患上的慢性手腕疼痛。我有两个选择:要么找出问题所在，要么永远放弃铸铁。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Why You Should Season Your Cast Iron the &#39;Wrong&#39; Way](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-properly-care-for-cast-iron-1842089019)</aside>
+
 
 
 

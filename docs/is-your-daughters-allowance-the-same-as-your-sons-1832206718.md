@@ -8,7 +8,7 @@
 
 据统计，男性 [收入高于女性](https://www.businessinsider.com/gender-wage-pay-gap-charts-2017-3#overall-black-and-hispanic-women-face-the-biggest-pay-gap-when-compared-to-white-men-3) 收入的差距因种族和地区而异；有色人种女性的收入明显低于白人男性和白人女性。有孩子的妇女在工作场所也更有可能受到经济上的惩罚，而父亲的工资往往比没有孩子的父亲高。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Is Your Daughter&#39;s Allowance the Same as Your Son&#39;s?](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-real-cost-of-the-wage-gap-1830905111)</aside>
+
 
 这种差异的原因引起了激烈的争论，但大多数女性都有自己的轶事，讲述她们在升职中被忽视的时候，或者发现自己挣得比男同事少很多的时候。现在有进一步的证据表明，性别歧视已经融入了我们对金钱的教育——事实证明，T2 的孩子中甚至存在性别工资差距。
 

@@ -8,7 +8,7 @@
 
 WhatsApp 的调整并不要求你调整应用程序的设置，但你必须做一个大的改变:如果你想让有机会让你可以在群组通话中交谈的人数增加一倍，你需要注册安卓或 iOS 版的 WhatsApp 测试版。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Get Up to 8 People on a WhatsApp Video Call](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-turn-on-whatsapps-new-dark-mode-1841157512)</aside>
+
 
 我说“这个机会”有两个原因:首先，让自己加入测试版*可能会*为你解锁这个功能，但也可能不会。正如 WABetaInfo [描述](https://wabetainfo.com/whatsapp-is-rolling-out-the-new-limit-of-participants-for-group-calls/) 一样，资料片也是服务器端解锁，有可能 WhatsApp 还没有向你推出。解锁可能会在你安装了正确的测试版后几个小时发生，或者根本不会发生。这就是贝塔生活。
 

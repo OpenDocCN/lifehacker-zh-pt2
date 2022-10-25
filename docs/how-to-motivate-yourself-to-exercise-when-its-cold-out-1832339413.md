@@ -12,7 +12,7 @@
 
 如果你正在考虑在寒冷中跑步，只要不断告诉自己这是为你好。纽约 [Brrrn](https://www.thebrrrn.com/) 健身房的联合创始人吉米·t .马丁说，在 45 度的温室里进行集体锻炼有很多好处，所以你可以从冬天的气温中获益。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Motivate Yourself to Exercise When It&#39;s Cold Out](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/what-to-wear-to-run-in-the-cold-1831870049)</aside>
+
 
 “从长期来看，较低的温度有助于燃烧更多的脂肪和卡路里，因为你的身体必须保持在 98.6 度，”他说。“真累人。但是一旦人们在我们的温度下锻炼，他们会注意到他们在耐力和恢复方面有所提高。他们感觉更加专注了。”
 

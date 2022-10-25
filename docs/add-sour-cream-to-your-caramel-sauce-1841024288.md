@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Add Sour Cream to Your Caramel Sauce](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/make-the-ultimate-salted-caramel-with-msg-1837100417)</aside>
+
 
 焦糖有三种主要的味道:甜味、褐色(但不是焦味)和黄油味。最后两种使它不像简单的糖浆那样令人作呕，但酸奶油带来了明亮的乳酸，让你的焦糖酱更有味道。如果你需要一种酱料来制作丰富的超甜甜点，这是特别有帮助的，因为额外的汤灿有助于减少那些主要的味道。
 

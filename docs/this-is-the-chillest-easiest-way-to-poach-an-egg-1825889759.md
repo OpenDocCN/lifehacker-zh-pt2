@@ -18,7 +18,7 @@
 
 向有紧盖的煎锅或炖锅中加入约两英寸的水；用大火煨一下。如果你像我一样把切片面包放在冰箱里 ，现在是时候拿出几片放进烤面包机了。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled This Is the Chillest, Easiest Way to Poach an Egg](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-easiest-way-to-poach-an-egg-1831951830)</aside>
+
 
 轻轻敲开冰箱里的冷鸡蛋，一次一个直接放入沸腾的水中——或者如果你喜欢，先放入一个 rame kin/茶杯/汤容器中——然后盖上盖子，关火。启动你的烤面包机。
 

@@ -86,7 +86,7 @@
 4.  **确保你的录音空间是安静的，录下大约 5 秒钟的“安静”这就是所谓的房间音，你可以用它来掩盖背景噪音，而你正在记录真实的交易。您现在可以通过点按轨道左侧的静音开关按钮来静音该轨道。您也可以通过点按轨道左下角的箭头来最小化它。**
 5.  **转到**文件>保存项目>将项目另存为**，并为您的项目选择一个名称。请记住，这不会导出任何音频，只会保存您的进度。**
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">**[![Image for article titled How to Start Your Own Podcast](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-start-a-podcast-preparing-for-your-first-episod-1839897558)**</aside>
+
 
 **现在你已经准备好录制播客的主要部分了。点击录制按钮，Audacity 将开始在一个新的轨道中捕捉您的音频。当你完成记录时，按停止按钮。就这么简单。在继续之前，请确保保存您的工作。**
 

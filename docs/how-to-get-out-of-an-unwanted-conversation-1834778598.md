@@ -14,7 +14,7 @@
 
 在任何其他社交场合，“很高兴见到你”和“我会让你走”可以让你摆脱糟糕的对话，而不会让它变得尴尬。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to End an Annoying Conversation](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-not-to-be-a-jerk-in-japan-1833724453)</aside>
+
 
 ### 带来增援部队
 

@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Make a Better Trader Joe&#39;s &#39;Umami Powder&#39; With Dried Mushrooms](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/make-the-ultimate-salted-caramel-with-msg-1837100417)</aside>
+
 
 调料混合很好，因为它增加了一种我觉得令人愉快的味道——用在爆米花上特别有趣——但它读起来不像纯鲜味。干燥和粉碎的蘑菇确实增加了这种美味，但它们被碾碎的红辣椒、百里香和大量的洋葱、芥末和盐挤到了后面。你得到的不是多肉、醇厚、朴实的蘑菇，而是一种辛辣、超咸的调味品。这是有道理的，因为盐是第一要素。(蘑菇排在配料表的第三位，在盐、干洋葱和芥末籽之后。)还是那句话，这个还不错，但不是我要找的，所以我决定自己做蘑菇向前粉(然后，好几个月后，我真的做了)。
 

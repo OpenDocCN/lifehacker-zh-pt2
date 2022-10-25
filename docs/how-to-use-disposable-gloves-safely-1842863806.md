@@ -23,7 +23,7 @@
 
 因此，如果你戴着手套购物，在触摸手机或钱包之前，你应该先摘掉手套。或者如果你戴着手套碰了那些东西，确保之后 [清理它们](https://lifehacker.com/the-dos-and-donts-of-disinfecting-your-phone-1842400895) 。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Use Disposable Gloves Safely](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-dos-and-donts-of-disinfecting-your-phone-1842400895)</aside>
+
 
 ### 知道如何安全地脱下手套
 

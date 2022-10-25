@@ -20,7 +20,7 @@
 
 这意味着就空气质量而言，室内运动几乎总是胜过室外运动，尽管如果室内空气足够糟糕，它仍可能刺激你的肺部。现在是确定你可以在室内进行锻炼的好时机，无论是 [Y 户外宇部视频](https://vitals.lifehacker.com/the-best-workout-videos-to-do-alone-1841673507) 还是跳上 [自行车训练器](https://lifehacker.com/build-your-own-peloton-style-exercise-bike-and-save-mon-1844446863) 。也就是说，在最糟糕的日子里，最好是休息一天，等待空气改善。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How Air Quality Affects Your Ability to Exercise](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/build-your-own-peloton-style-exercise-bike-and-save-mon-1844446863)</aside>
+
 
 ### 多坏才算坏到不运动？
 

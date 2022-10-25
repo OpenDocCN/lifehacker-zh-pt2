@@ -8,7 +8,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Read Books With NetGalley Before They Hit Print](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-best-places-to-find-free-ebooks-1843182342)</aside>
+
 
 ### **如何加入 NetGalley**
 

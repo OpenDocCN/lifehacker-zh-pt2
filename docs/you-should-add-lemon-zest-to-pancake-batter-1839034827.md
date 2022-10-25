@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled You Should Add Lemon Zest to Pancake Batter](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-make-boxed-mix-brownies-taste-homemade-1838952201)</aside>
+
 
 我不认为混音是“作弊”，我更愿意把它们看作是节省时间的空白画布，我可以在上面画出新的、更有味道的杰作。例如，许多煎饼混合料没有添加任何添加剂，非常好，但是只添加一种额外的成分就可以将平凡变得特别。我一直在疯狂吃 [农家奶酪煎饼](https://skillet.lifehacker.com/add-cottage-cheese-to-your-pancake-batter-1837008026) ，但是蒂姆(也就是我们发微博的人)最近让我喜欢上了柠檬皮煎饼，这看起来很好吃，而且非常容易做。
 

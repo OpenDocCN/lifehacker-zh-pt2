@@ -40,4 +40,3 @@
 
 #### *更多应对方法:*
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">*[![Image for article titled How To Clean And Sanitize Your Gaming Gear](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://kotaku.com/animal-crossing-new-horizons-is-the-escape-we-all-need-1842320037)*</aside>

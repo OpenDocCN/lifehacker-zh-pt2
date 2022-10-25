@@ -6,7 +6,7 @@
 
 当我们出发去 [测试你是否能在戴着一顶用泳池面条做成的帽子](https://lifehacker.com/pool-noodles-are-not-a-good-way-to-enforce-social-dista-1844180889) 的同时保持适当的社交距离时，我最终得到了一大包泡沫意大利面，而我没有泳池可以嬉闹。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Our Favorite Unconventional Uses for Pool Noodles](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/pool-noodles-are-not-a-good-way-to-enforce-social-dista-1844180889)</aside>
+
 
 我没有让面条被浪费掉——因为我甚至不知道谁有游泳池——我开始为这些彩色的超大号布卡蒂尼找到其他用途。
 

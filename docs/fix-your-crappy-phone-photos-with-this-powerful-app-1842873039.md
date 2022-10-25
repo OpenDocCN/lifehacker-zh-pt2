@@ -68,7 +68,7 @@ Snapseed 与其他应用程序的区别在于它的高级功能——你通常�
 
 ****除了头部姿势，你还可以找到一个叫做肖像的部分，你可以用它来管理肤色和皮肤光滑度等特征。****
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">****[![Image for article titled Fix Your Crappy Phone Photos With This Powerful App](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/check-out-these-essential-apps-for-editing-photos-on-yo-1831586210)****</aside>
+
 
 #### ****编辑堆栈和重叠文本****
 

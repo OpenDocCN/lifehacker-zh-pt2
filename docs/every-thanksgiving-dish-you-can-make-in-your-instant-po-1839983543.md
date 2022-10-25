@@ -22,7 +22,7 @@
 
 速食锅不会将蘸酱的馅料放入减半的蛋白中，但在 设备中烹饪的 [鸡蛋非常容易剥皮，这意味着在剥皮过程中蛋白不会受损，你的蘸酱鸡蛋将会是*漂亮的*，该死的。只需要在高压下煮五分钟，然后手动释放。打开锅，将热鸡蛋放入冰浴中，然后去皮去核。(需要好的 deviling 食谱？](https://skillet.lifehacker.com/let-the-instant-pot-make-your-thanksgiving-easier-1830163877) [这个](https://skillet.lifehacker.com/how-to-make-perfect-deviled-eggs-1821471027) 是经典。)
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Every Thanksgiving Dish You Can Make in Your Instant Pot](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-make-great-gravy-and-boozy-cranberry-sauce-1830502687)</aside>
+
 
 ### 蔓越莓酱和肉汁
 

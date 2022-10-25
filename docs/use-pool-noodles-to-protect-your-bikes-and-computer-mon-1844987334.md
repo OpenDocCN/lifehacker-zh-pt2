@@ -4,7 +4,7 @@
 
 夏天已经结束，这意味着我们都有多余的泳池和沙滩玩具躺在那里等待被使用。当然，你可以把这些东西储存起来，直到下一个温暖的季节，但是把它们切碎，以独特的方式在家里使用会更有趣。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Use Pool Noodles to Protect Your Bikes and Computer Monitors](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/our-favorite-unconventional-uses-for-pool-noodles-1844418121)</aside>
+
 
 自从我们的 [上一篇关于泳池面条](https://lifehacker.com/our-favorite-unconventional-uses-for-pool-noodles-1844418121) 的帖子以来，许多读者留下了关于他们如何使用这些泡沫管的评论。有如此多的建议，我们决定制作一个全新的*视频，再加五个应用程序。*
 

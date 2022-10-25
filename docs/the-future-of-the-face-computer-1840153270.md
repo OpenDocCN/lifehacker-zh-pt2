@@ -6,7 +6,7 @@
 
 简而言之，智能眼镜是需要解决问题的解决方案。这是我们采访过的大多数专家(如果不是全部的话)都认同的结论。对于消费者来说，没有一个“杀手级应用”或令人信服的用例来抵消所有的负面影响。除了在企业方面。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled The Future of the Face Computer](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://gizmodo.com/how-science-fiction-ruined-smart-glasses-1840035930)</aside>
+
 
 虽然谷歌眼镜受到了公众的追捧，但它实际上正受到企业的青睐。想想装配线上的工厂工人，建筑 3D 模型的建筑师，或者医院里的医生。这就是谷歌重新开始的原因。谷歌眼镜的消费者试点项目在 2015 年被关闭，它被并入 X——谷歌称之为“月球工厂”的实验室。企业版 [于 2017 年](https://gizmodo.com/google-glass-is-back-with-a-new-trick-it-doesnt-suck-at-1797017601) 首次亮相。快进到 2019 年，X 已经 [推出了 Glass 企业版的第二次迭代](https://gizmodo.com/google-glass-gets-a-fresh-update-with-more-powerful-gut-1834897004) 。
 

@@ -8,13 +8,13 @@
 
 而且，我们无法参加我们今年想要的 T2 骑行活动，这是将我们的注意力转向支持最初发起 T3 运动的人们的最佳时机。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Celebrate Pride by Supporting the Black Trans Community](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/nonbinary-people-share-their-advice-on-coming-out-1827016879)</aside>
+
 
 [伊恩·菲尔兹·斯图尔特](https://www.iannefieldsstewart.com/) 是一名演员、活动家和 [秋葵项目](https://www.theokraproject.com/) 的创始人，秋葵项目是一个为经历食物不安全的黑人跨性别者提供家庭烹饪的集体。她也是争取黑人跨性别生命的布鲁克林解放游行的组织者之一，这次游行吸引了 15，000 名参与者，抗议谋杀 Dominique "Rem'mie" Fells 和 Riah Milton 的谋杀案以及川普政府最近撤销跨性别医疗保护的事件。
 
 在上面的视频中，Fields Stewart 提醒 LGBTQ 社区的成员和他们的盟友，如果你认为这些问题是 *新的*，你就是问题的一部分。她说，帮助黑人跨性别者的最好方式是对你自己的社区施加影响，而不是试图将自己插入黑人和跨性别者的空间。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Celebrate Pride by Supporting the Black Trans Community](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-be-a-better-ally-to-the-queer-community-1827017520)</aside>
+
 
 当然，捐款总是受欢迎的。菲尔兹·斯图尔特建议支持一些黑人跨种族组织:
 

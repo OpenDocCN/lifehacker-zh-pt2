@@ -8,7 +8,7 @@
 
 正如大多数与区块链和密码相关的东西一样，很难理解 Exodus 1 到底是什么，以及它与你能买到的所有其他智能手机有何不同。所以，我们把这个指南放在一起，教你更多关于《出埃及记 1》的知识，包括你为什么想要(或不想要)一本——以及如何得到它。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled What You Need to Know About HTC&#39;s Exodus 1, the &#39;Blockchain Smartphone&#39;](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/should-you-buy-bitcoin-1826616664)</aside>
+
 
 ### HTC Exodus 1 是什么？
 

@@ -8,7 +8,7 @@
 
 虽然有些人想同时尝试这两种选择，但你还是要弄清楚优先选择哪一个。在你寻找一份收入更高的工作时，你会用信用卡支付一套新的面试装备吗？或者，你会停止与同事共进午餐，这样你就可以把所有多余的钱都用来还债了？
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Should You Focus on Cutting Expenses or Growing Your Income?](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-ace-a-job-interview-1837902479)</aside>
+
 
 金融国会最近收集了多位专家对复杂的金钱相关话题的意见，比如“偿还债务还是建立你的应急基金”当然，其中一个话题是，那些入不敷出的人是应该专注于减少开支还是增加收入。
 

@@ -8,7 +8,7 @@
 
 虽然把一瓶酒放在冰箱里几天没问题，但连续几周或几个月不放会让软木塞变干，最终导致你的酒失去味道和气泡，[*报道*](https://www.bloomberg.com/news/articles/2018-12-28/eight-ways-you-re-drinking-champagne-wrong)*。*
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">*[![Image for article titled Don&#39;t Store Your Leftover Champagne in the Fridge](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-buy-champagne-on-a-light-beer-budget-1829661228)*</aside>
+
 
 *因此，如果你为今晚的主要活动购买了六瓶酒，但只喝了三瓶，那就早上把它们从冰箱里拿出来，等到几天后你需要它们的时候再把它们放回去。在此期间，确保它们侧放。*
 

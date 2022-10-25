@@ -8,7 +8,7 @@
 
 你没看错。WhatsApp 会怎么做？我不认为这个流行的通讯应用程序会成为下一个互联网礼仪小姐，但我喜欢它为烦人的连锁信实施的新规则。它们应该是我们所有人生活的准则，就这样；不只是在 WhatsApp 上。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Stop the Spread of Bad Information by Adopting WhatsApp&#39;s Policy](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-turn-on-whatsapps-new-dark-mode-1841157512)</aside>
+
 
 正如 WhatsApp [解释的](https://blog.whatsapp.com/Keeping-WhatsApp-Personal-and-Private) :
 

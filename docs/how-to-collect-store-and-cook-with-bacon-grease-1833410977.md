@@ -8,7 +8,7 @@
 
 这个系统对她来说非常有效——她的食物总是美味可口，从来没有让任何人生病——但这不是一个正确的食品安全模式。将脂肪放在热源附近不仅会增加酸败的风险，而且少量的肉也会促进微生物的生长，缩短宝贵油脂的寿命。幸运的是，储存和收集培根油脂并不难，你只需要采取几个额外的步骤(非常简单)。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Collect, Store, and Cook With Bacon Grease](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/why-you-should-save-every-drop-of-bacon-grease-1829607931)</aside>
+
 
 如果你马上就要使用油脂，比如煎鸡蛋，没有必要过滤，只需将食物加入热油脂中，让它发挥美味、咸味的魔力。(哦，如果你想最大化你的脂肪产量，和你的培根的松脆度， [从冷锅](https://skillet.lifehacker.com/the-secret-to-great-bacon-is-a-cold-pan-1829171657) 开始。)但是如果你想把它保存下来供以后的项目使用，你就必须去掉这些实体。首先，选择合适的容器。将热油脂倒入塑料中是一个坏主意，但一个重新利用的玻璃罐——我喜欢克劳森泡菜罐——或者金属或陶瓷容器将会很好。
 

@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Turn Root Vegetable Odds and Ends Into This Sauce](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-make-flavored-salts-with-vegetable-skins-1831446621)</aside>
+
 
 餐馆风格的盘子的精确本质意味着蔬菜的一些部分由于美学原因不会出现在盘子上。行政总厨乔纳森·谭 没有将它们废弃，而是将它们重新加工成另一种美味。在这道分层精美的芹菜根菜肴中，他拿走了不太匀称的零碎东西，然后将它们烧焦，并与梨醋混合，制成令人惊叹的平衡酱汁。我在附近的任何一家杂货店都找不到梨醋，所以我无法准确地复制谭主厨的酱料*,但我*能够将这种方法应用到我在冰箱里枯萎的一些看起来很糟糕的胡萝卜和欧洲萝卜上。**
 

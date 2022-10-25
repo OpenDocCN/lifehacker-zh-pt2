@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Rhubarb Vodka Is the Best Thing You Can Make With Your Blender](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/make-a-tropical-gin-out-of-pineapple-peels-1824033918)</aside>
+
 
 此外还有季节性口味，这种口味因稀缺而变得更加诱人。大黄尤其如此，它尝起来像含酒精的馅饼馅，除了没有可察觉的酒精烧伤。如果你放任不管，它会毁了你该死的生活。这可以被描述为一种自我照顾或自我破坏的行为，我已经知道如何在家里制作大黄伏特加，它需要大约 25 分钟。你既讨厌又喜欢看到它。
 

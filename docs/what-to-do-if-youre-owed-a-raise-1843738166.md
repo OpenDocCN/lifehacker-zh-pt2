@@ -10,7 +10,7 @@
 
 如果你因为封锁错过了年度绩效评估，这个问题会变得更加重要。如果你应该和你的上司讨论加薪，但没有机会，你可能会问自己是否有一个开始谈话的好方法。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled What to Do if You&#39;re Owed a Raise](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/asking-for-a-raise-requires-research-and-practice-in-th-1834296884)</aside>
+
 
 我向一位经理的 艾莉森·格林求助，询问她对要求加薪的时机是否合适的看法，她证实了我们许多人心里已经知道的事情:不合适。
 

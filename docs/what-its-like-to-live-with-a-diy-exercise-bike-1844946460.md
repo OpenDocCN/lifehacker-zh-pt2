@@ -8,7 +8,7 @@
 
 我使用了与阿布相同的自行车训练器——一个支撑自行车后轮的绿色三角形支架。它不是电子的，也不做任何花哨的事情；它只是让轮子随着你的踩踏板移动，阻力可调。我把我的放在车库里，因为那是我一直在锻炼的。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled What It&#39;s Like to Live With a DIY Exercise Bike](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/build-your-own-peloton-style-exercise-bike-and-save-mon-1844446863)</aside>
+
 
 ### 设置我的空间
 

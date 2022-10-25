@@ -22,7 +22,7 @@
 
 在线布局对艺术家和参展商用来吸引潜在粉丝的传统技巧提出了新的挑战，因此我们必须拭目以待，看看会发生什么，以及元宇宙如何有效地通知粉丝有艺术家可用。对于熟悉特定时间和持续时间的粉丝来说，直播面板应该不会有太大的挑战，类似于过去几个月我们都已经习惯了的缩放流和聚集点。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled What to Expect From New York Comic Con&#39;s First Online Convention](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-create-your-own-backyard-movie-theater-1844221285)</aside>
+
 
 大会的 [官方 YouTube 频道](https://www.youtube.com/nycc) 将播放最受欢迎的专题讨论和来自最知名的公司和工作室(或那些资金最雄厚的公司)的公告，粉丝们可以在 YouTube 的实时聊天功能上发表评论。说到公告...
 

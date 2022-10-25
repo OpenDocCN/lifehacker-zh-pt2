@@ -18,7 +18,7 @@
 
 布伦特·韦斯，CFP 和 Facet Wealth 的联合创始人，说当人们因为害怕负债而不开始使用信贷时，他们可能会在得分和历史上处于劣势。他建议尽快申请一张低额度的 [信用卡](https://lifehacker.com/how-to-apply-for-a-credit-card-with-no-credit-score-1827446657) ，这样你就可以开始积累你的历史，不管你是年轻人还是刚刚接触信用卡。“把它想象成一种授权工具，”他说。“你必须开始创建信用记录，并确保你按时还款。”
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled What the &#39;History&#39; Part of Your Credit Score Really Measures](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-get-a-near-perfect-credit-score-1841521179)</aside>
+
 
 由于你的大部分分数是由你的按时付款和你使用的可用信用额度决定的，所以最明智的做法是关注这些方面的好习惯，而不是试图欺骗你的历史。“这是关于一遍又一遍地做正确的事情。”
 

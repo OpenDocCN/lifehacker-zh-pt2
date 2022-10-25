@@ -6,7 +6,7 @@
 
 幸运的是，每个州都很容易在网上检查你的身份或获得新的选民登记。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Register to Vote Online](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-make-sure-your-vote-is-counted-1844166647)</aside>
+
 
 只需进入[vote.gov](http://vote.gov)并选择您所在的州。它将带你进入一个页面，允许你输入一些个人信息(取决于你所在的州)，并让你知道你是否需要更新你的选民登记。
 

@@ -38,7 +38,7 @@
 
 有很多人说，削减开支会让我们进一步陷入经济衰退，并在本质上带来衰退。但是因为我们是在事后评估衰退的(即使是现在，有了这个早期的声明)，可以肯定的是，如果我们在谈论采取措施来减轻潜在的衰退，我们已经处于足够的低迷状态，这将会引起人们的注意。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled What to Do With Your Money Now That We&#39;re in a Recession](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/should-you-start-investing-during-the-pandemic-1843951659)</aside>
+
 
 保护你自己的财务，同时仍然支付你的账单，尽你所能做到收支平衡，并不能单枪匹马地将足球从美国经济中剥离出来。
 

@@ -10,7 +10,7 @@
 
 新的苹果总部有 280 万平方英尺的室内空间。那有多大？那是五角大楼占地面积的 42%， [说 Wolfram Alpha](https://www.wolframalpha.com/input/?i=2%2C800%2C000+square+feet+) 。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Use Wolfram Alpha to Conceptualize Giant Numbers](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-difference-between-one-million-and-one-billion-1830493909)</aside>
+
 
 你也可以反过来做。问 Wolfram 要泰坦尼克号 的 [*体积，你就知道是 463.3 万立方英尺。点击这个数字，Wolfram 解释说这只是兴登堡号的三分之二。我知道齐柏林飞艇很大，但是我从来没有想到它比泰坦尼克号还大。*](https://www.wolframalpha.com/input/?i=volume+of+the+titanic)
 

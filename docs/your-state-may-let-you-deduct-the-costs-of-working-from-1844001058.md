@@ -10,7 +10,7 @@
 
 在过去(好吧，在 2018 年之前)，如果你在联邦纳税申报表上逐项扣除，你可以扣除与工作有关的费用，只要这些费用没有被雇主报销。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Your State May Let You Deduct The Costs of Working From Home During the Pandemic](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-keep-your-energy-bill-low-while-working-from-hom-1843107936)</aside>
+
 
 但 2017 年的减税和就业法案大幅提高了标准扣除额，并夺走了一些从个人纳税申报表中扣除费用的机会。为一份工作搬家的成本被取消了，扣除与工作相关的费用的机会也取消了。它包括任何在家工作的费用。
 

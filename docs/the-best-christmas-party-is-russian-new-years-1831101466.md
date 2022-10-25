@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled The Best Christmas Party Is Russian New Year&#39;s](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/elevate-your-dinner-party-with-these-fancy-details-1826494234)</aside>
+
 
 在俄罗斯，新年是为你最亲近的人举办大型派对的节日。在苏联时代，公共宗教庆祝活动是被禁止的，所以 [新年夜取代了圣诞节成为年末最盛大的节日](https://slate.com/human-interest/2016/12/russian-new-years-dinner-is-a-fine-alternative-to-partying.html) 。从根本上说，俄罗斯新年是一场晚宴——一场真正壮观的晚宴。一切都发生在餐桌周围，虽然食物显然很重要，但你端上什么远不如你如何端上以及为什么端上来重要。这几乎是派对策划、主持和节奏的巅峰之作；每个节日聚会都可以从这个丰富的传统中学到一些东西。这里有一些俄罗斯新年的关键元素，你可以在下次聚会时采用。
 

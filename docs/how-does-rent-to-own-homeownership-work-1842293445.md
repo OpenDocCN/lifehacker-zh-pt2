@@ -18,7 +18,7 @@
 
 **租赁购买:**买方必须在租期结束时购买房屋。如果他们不这样做，他们将不得不支付协议中规定的罚金。这些处罚可能包括没收首付款的资金。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How Does Rent-to-Own Homeownership Work?](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-much-money-do-you-need-to-buy-a-house-1835422567)</aside>
+
 
 ### 先租后拥有有什么好处？
 

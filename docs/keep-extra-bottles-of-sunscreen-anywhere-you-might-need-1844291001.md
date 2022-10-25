@@ -12,7 +12,7 @@
 
 浴室里有一个瓶子。车里有一个瓶子。在你的钥匙链上放一个小瓶子，在你的钱包或背包里放一个旅行瓶，在你的沙滩包里放一个超大瓶。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Keep Extra Bottles of Sunscreen Anywhere You Might Need Them](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/youre-probably-using-sunscreen-all-wrong-1844245538)</aside>
+
 
 生产力专家劳拉·凡德卡姆 最近解释了这种方法如何帮助她的家人涂抹更多防晒霜:
 

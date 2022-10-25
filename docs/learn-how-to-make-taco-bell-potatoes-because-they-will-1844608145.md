@@ -6,7 +6,7 @@
 
 我不是素食主义者，但我点的塔可钟是。我总是得到一个 quesarito(不加牛肉，加豆子，加土豆)，一个辣土豆软玉米饼，一个芝士土豆卷饼(不加牛肉，加豆子)。](https://www.businessinsider.com/taco-bell-potatoes-return-menu-march-after-protest-2021-1) [其他物品来来去去](https://lifehacker.com/how-to-make-your-own-crunchwrap-supreme-1838496786) ，但这三个是永远的——嗯， [直到 8 月 13 日，届时每一单都将停产](https://www.eater.com/2020/7/17/21328550/taco-bell-menu-changes-discontinuing-potato-items-quesarito-nachos-supreme) 。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Taco Bell Potatoes Are Returning But You Can Make Your Own](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-make-your-own-crunchwrap-supreme-1838496786)</aside>
+
 
 
 

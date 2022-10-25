@@ -8,6 +8,6 @@
 
 从下周末开始，我们将开始每周强调一个值得你关注的新的浪费时间的事情。想想令人上瘾的免费手机游戏、网站和应用程序，它们吸引你的注意力，当你被关在家里的时候，它们是消磨几个小时的简单方式，或者甚至当你再次开始乘坐地铁或公交车时，当你在上下班途中寻找事情做的时候。我们在寻找那些能让你忘记周围世界的东西，它们很有趣，可能会让人有点上瘾。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Tell Us What Time-Wasters You&#39;re Obsessed With Right Now](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/stop-playing-candy-crush-and-start-playing-better-games-1835009574)</aside>
+
 
 在我们提出自己的建议之前，我们想问问你最近关注了什么。你在玩什么手机游戏，好像它们是下一个糖果粉碎？有哪些 web apps 引起了你的注意，让你无法释怀？当你的网飞队列开始干涸时，你在做什么来打发时间？

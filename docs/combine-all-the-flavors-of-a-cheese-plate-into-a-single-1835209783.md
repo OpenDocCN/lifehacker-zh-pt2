@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Combine All the Flavors of a Cheese Plate Into a Single Dip](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-anatomy-of-a-perfect-cheese-board-1828745149)</aside>
+
 
 在这种时候，我想蘸一点，没有理由你不能结合几个奶酪板球员做一个。就拿两块软奶酪——我选择了超奶油马斯卡彭奶酪和浓郁的切弗奶酪——加入一些干果和少量蜂蜜，然后混合在一起。我用杏干做水果，但无花果、樱桃、小红莓，甚至蓝莓也可以。对于蜂蜜，任何都可以，但辛辣的蜂蜜增加了额外的维度。在上面放上你最喜欢的坚果，你就可以蘸着吃来满足你对奶酪的渴望。
 

@@ -16,7 +16,7 @@
 
 我计算过，从 16 岁开始每月投资 50 美元(假设回报率为 7%)，到退休年龄时将变成近 25 万美元。显然，随着年龄的增长，他们的贡献会越来越大，但这是一个很好的开端。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Open a Roth IRA For Your Kid](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-fastest-way-to-save-1-million-1829372702)</aside>
+
 
 ### 罗斯个人退休帐户的基础
 

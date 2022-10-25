@@ -18,7 +18,7 @@ Centrii 指出，主流大片没有受到重视，很少收到涉及识别其影
 
 把 Cinetrii 想象成你大学男友的一个不那么令人讨厌的版本，他不断告诉每个人他“真的喜欢电影”，并以发布推荐为荣，这些推荐总是包括*《发条橙》、《低俗小说》、《好家伙》*，当然还有*《公民凯恩》*。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Find New Movies With Influences Similar to Your Favorite Films](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-find-where-your-favorite-movie-is-streaming-1843461201)</aside>
+
 
 ### 如何使用 Cinetrii
 

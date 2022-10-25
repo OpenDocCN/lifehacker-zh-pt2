@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Amaze Your Thanksgiving Guests With Personal Stuffing-Stuffed Squash](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/make-a-stunning-vegetarian-main-for-thanksgiving-1830294672)</aside>
+
 
 在小小的南瓜里做馅料是一种奇妙的方法，原因有几个:它在烹饪时保持馅料湿润，看起来非常可爱，而且你可以吃南瓜。它也适用于任何馅料和任何南瓜(甚至是大南瓜)。确切的烹饪时间取决于你用的南瓜的种类和大小，但一般的歌舞大概是这样的:
 

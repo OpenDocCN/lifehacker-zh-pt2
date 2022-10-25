@@ -24,6 +24,6 @@ Eyal 总结了 [下一张网](https://thenextweb.com/growth-quarters/2020/04/10/
 
 是的，这将很难记住我需要站起来，离开我的办公桌，拿起我的哑铃，而不是采取舒适和习惯性的路线打开另一个浏览器标签。不管怎么说，一开始是这样。最终，我希望减肥的习惯变得舒适、自动和令人期待，就像睡觉前刷牙或早上喝一杯咖啡一样——只有当这种行为从常规变成习惯时，这才会发生。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled To Change Your Habits, First Change Your Routine](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/do-this-dumbbell-workout-from-home-1842490289)</aside>
+
 
 在那之前，我必须有意识地想着记住我的哑铃，每一次；我还必须有意识地决定每次都要做这些练习。如果这种行为被证明有足够的回报并持续下去，那么我就已经形成了一个新的习惯——你也可以这样做，如果你对你想改变的日常生活经历了类似的过程。

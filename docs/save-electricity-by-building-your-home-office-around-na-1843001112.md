@@ -8,7 +8,7 @@
 
 这是因为阳光，真的。因为我可以看到我在窗台上种的药草，我“种”在一杯水里的芹菜梗，还有外面刚刚开始长出叶子的树。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Save Electricity by Building Your Home Office Around Natural Light](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-grow-vegetables-from-kitchen-scraps-1842858616)</aside>
+
 
 今天是地球日，这是一个思考自然世界的好日子——即使我们被困在家里，我们也可以支持我们的自然世界的方式之一是在自然光下度过我们的大部分时间。正如梅根·巴伯所解释的，在 [遏制了](https://www.curbed.com/2020/4/22/21228477/climate-change-stop-home-solutions-coronavirus) :
 

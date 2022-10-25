@@ -18,7 +18,7 @@
 
 开瓶后， [酒精的百分比会随着暴露在空气中而下降](https://www.prevention.com/health/a32052322/does-hand-sanitizer-expire/) 。因此，如果你有一瓶在某个早已被遗忘的日期打开的酒，即使它还没有过期，酒精含量也很有可能会显著下降。随着酒精百分比下降到 60%以下，消毒剂的效果会变得更差，尽管它仍然会有一些效果。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Yes, Hand Sanitizer Expires](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-cdc-approved-method-to-washing-your-hands-step-by-1842377183)</aside>
+
 
 ### **正确存放洗手液**
 
@@ -30,4 +30,3 @@
 
 也就是说，如果你没有肥皂和水，但是你有一瓶旧的洗手液，那也比什么都没有强。只要确保在第一时间用肥皂和水清洗，并且停止触摸你的脸。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Yes, Hand Sanitizer Expires](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-stop-touching-your-face-1842290379)</aside>

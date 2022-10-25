@@ -10,7 +10,7 @@
 
 所有这些都意味着，甚至在家庭健身器材出现短缺之前，就已经出现了短缺。现在，由于购买量激增，几乎找不到的壶铃。所有这些加起来造成了大量的延误和售罄的设备。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Can You Still Buy Home Gym Equipment Right Now?](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/do-this-workout-at-home-no-equipment-needed-1842425497)</aside>
+
 
 ### 哪里可以找到新的家庭健身房设备
 

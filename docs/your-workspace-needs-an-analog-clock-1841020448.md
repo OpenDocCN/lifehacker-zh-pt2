@@ -8,7 +8,7 @@
 
 为什么？因为尽管数字时钟非常擅长告诉我们现在是什么时间，但它们不太擅长显示已经过去了多少时间——这对于那些在一天中调整工作节奏或赶在中午截止日期之前有困难的人来说可能是一个问题。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Your Workspace Needs an Analog Clock](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-tell-time-1838978001)</aside>
+
 
 Money.com 最近分享了一份专家建议清单，以 [帮助你改善你的工作空间](https://money.com/best-desk-organizing-tips-experts/) ，并引用了全国生产力和组织专业人士协会主席苏西·海曼关于模拟时钟的好处的话:
 

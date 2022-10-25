@@ -18,7 +18,7 @@
 
 另一方面， [美国银行 flex perks Travel Rewards Visa Signature 卡](https://www.flexperks.com/credit/visaTravelBenefits.do) ，如果您使用您的卡进行慈善捐赠，会给您额外的奖励(每美元 2 分)。换句话说，你可以给环保组织一大笔钱*和*用你的积分预订一次环保旅行！
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Use Your Credit Card to Help the Environment](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/can-you-be-an-ecotourist-without-destroying-the-environ-1833637906)</aside>
+
 
 如果你真的想追踪你的碳足迹和/或支持致力于保护地球的组织，关注你使用哪种信用卡可能是实现你目标的最低效的方式。然而，如果你想让尽可能多的日常活动符合你的价值观，选择一张鼓励捐款的信用卡是一个很好的步骤。
 

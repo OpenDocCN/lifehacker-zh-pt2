@@ -10,7 +10,7 @@
 
 当这台机器终于发出最后的呼吸声时，我用这个非常小却出奇有效的椭圆形 代替了它，它基本上适合任何房间。我把它放在办公室，直接对着电脑显示器，打开 YouTube 电视、网飞和亚马逊 Prime 视频，把音量调到最大，然后离开了。接下来的几个月里，我继续观看《T4》[*【詹姆斯敦】*](https://www.imdb.com/title/tt5650650/)[*【英国游戏】*](https://www.imdb.com/title/tt8403664/)[*第一季和第二季《我死了》*](https://www.netflix.com/title/80219707)[*好莱坞*](https://www.imdb.com/title/tt9827854/)[*甜木兰*](https://www.netflix.com/title/80239866) 和
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Watch TV While You Work Out](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/build-your-own-peloton-style-exercise-bike-and-save-mon-1844446863)</aside>
+
 
 也许我在健身的时候会看很多历史剧和喜剧的最大好处是，这些节目让我从每周锻炼 3 天或 4 天、每次 30 分钟变成了每周锻炼 4 天或 5 天、每次 45 分钟；主要是因为我通常真的很喜欢这部剧，它们要么长 40-45 分钟，要么长 20 分钟，在这种情况下，我会看两集。
 

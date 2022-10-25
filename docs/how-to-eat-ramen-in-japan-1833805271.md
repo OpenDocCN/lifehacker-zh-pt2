@@ -10,7 +10,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Eat Ramen in Japan](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-not-to-be-a-jerk-in-japan-1833724453)</aside>
+
 
 当我四年前第一次访问东京时，是的，我爱上了纽约的交通系统，它让纽约地铁看起来更像一个垃圾填埋场的底部。我爱上了这里的人们，他们总是很友好，并且愿意迁就一个讨厌的不懂语言的美国游客。当然，我很难接受身边突然出现的拉面。
 

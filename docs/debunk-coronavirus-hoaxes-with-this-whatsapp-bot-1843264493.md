@@ -19,6 +19,6 @@ IFCN 的机器人得到了 WhatsApp 的官方认可，无论你使用什么平�
 3.  再次回答“1”开始新冠肺炎事实调查。
 4.  你现在可以回复一个问题或者发送一个与你想问的主题相关的关键词。然后，机器人将使用它所拥有的任何相关信息进行响应。例如，根据 IFCN 机器人引用的研究，发送“surface”短信将返回病毒目前被认为在大多数表面上存活多长时间的信息，在不锈钢或塑料等稳定表面上可能长达 72 小时。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Debunk Coronavirus Hoaxes With This WhatsApp Bot](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-turn-on-whatsapps-new-dark-mode-1841157512)</aside>
+
 
 [ [TechCrunch](https://techcrunch.com/2020/05/04/poynter-institutes-international-fact-checking-network-launches-chatbot-on-whatsapp-to-debunk-thousands-of-coronavirus-related-hoaxes/) ]

@@ -26,7 +26,7 @@
 
 你需要为你的宠物定制腿部和手臂的孔，为了舒适起见，当谈到别衣服时，你会想沿着宠物的顶部别，而不是腹部。如果你的宠物足够有耐心，你可以试着用一根 [织补针](https://www.thesprucecrafts.com/what-is-a-darning-needle-1106242) 和一些纱线来代替安全别针将夹克缝合到位。(你得把它们从夹克上剪下来，但这就是为什么你要用一件旧 t 恤。)
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Put a Onesie on Your Pet Instead of the &#39;Cone of Shame&#39;](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-cope-with-pets-during-quarantine-1842725452)</aside>
+
 
 ### 商店购买的选项
 

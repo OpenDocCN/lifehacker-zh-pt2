@@ -38,7 +38,7 @@
 
 就在今天，你可以通过麦当劳的应用程序 花费 0.50 美元 [得到一个双层芝士汉堡。要获得这笔交易，请下载他们的应用程序(如果您还没有下载),然后使用“移动订购和支付”将交易添加到您的订单中，或者在免下车柜台、柜台或信息亭扫描交易代码。每个客户在参与地点只能享受一次优惠。](https://www.mcdonalds.com/us/en-us/deals.html)
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Feed Yourself on These National Cheeseburger Day Deals](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/are-fake-meat-burgers-finally-as-good-as-beef-1836815995)</aside>
+
 
 ### **红知更鸟**
 

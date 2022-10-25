@@ -8,7 +8,7 @@
 
 蘸酱是完美的派对食物。他们只需要一个器具——一个把蘸汁转移到你盘子里的勺子——因为传送系统(即勺子)本身是可以食用的。把食物舀进嘴里是非常高效的，这使谈话保持流畅。饮料也有帮助。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Why Not Host a Dips and Drinks Party This Holiday Season?](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-throw-a-cheap-dinner-party-cocktails-1825727460)</aside>
+
 
 要计划一个蘸料和饮品聚会，你所要做的就是联系你的朋友，告诉他们在特定的时间带着他们最喜欢的蘸料和/或饮品出现在你的地方。如果他们选择 dip，确保他们带了合适的勺子；如果他们选择饮料，确保他们带了足够的饮料，至少可以和其他几个客人分享。(一瓶葡萄酒不错，但 12 盎司的昂贵啤酒就不太可行了。)
 

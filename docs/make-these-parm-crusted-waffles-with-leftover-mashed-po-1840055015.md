@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Make These Parm-Crusted Waffles With Leftover Mashed Potatoes](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/turn-leftover-stuffing-into-crispy-cheesy-waffles-1839968945)</aside>
+
 
 我知道你要说什么——“吃剩的土豆泥？？那些是什么？?"我求你不要说出来。如果你为感恩节做了适量的食物(也就是说，太多了)，你会吃剩下的东西，包括土豆泥。那些土豆应该是鸡蛋饼，而且要加大量的奶酪。parm 在松软的土豆周围形成一层外壳，帮助华夫饼保持形状。味道也特别好。要做帕尔马干酪土豆泥华夫饼，你需要:
 

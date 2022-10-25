@@ -10,7 +10,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled What Happened at the Congressional Hearing on Facebook and Libra?](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://jezebel.com/lets-all-watch-mark-zuckerberg-get-repeatedly-humiliate-1839332134)</aside>
+
 
 ## 很快，天秤座是什么？
 

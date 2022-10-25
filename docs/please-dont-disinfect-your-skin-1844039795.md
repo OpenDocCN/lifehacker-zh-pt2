@@ -25,6 +25,6 @@
 
 如果你想清洁双手，请用肥皂和水。谢谢你。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Please Don&#39;t Disinfect Your Skin](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-cdc-approved-method-to-washing-your-hands-step-by-1842377183)</aside>
+
 
 *想了解更多关于正确使用消毒剂的信息，请观看下面的视频:*

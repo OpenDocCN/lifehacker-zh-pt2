@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Make the Best Vegan Bolognese](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/are-fake-meat-burgers-finally-as-good-as-beef-1836815995)</aside>
+
 
 在所有生长在泥土中的东西中，蘑菇的味道最鲜美，但是——因为竞争对手是叶子和根——这并不能说明什么。但是你煮的时间越长，它们就越美味，如果你在烹饪前把它们细细切碎，水分就会蒸发掉，它们就会变成美味、香脆的小块，看起来就像碎肉。(实际上，这几乎令人毛骨悚然。)
 

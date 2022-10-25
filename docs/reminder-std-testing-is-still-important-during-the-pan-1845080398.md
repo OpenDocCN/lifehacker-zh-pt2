@@ -8,7 +8,7 @@
 
 疾控中心对性病检测的建议是 [此处](https://www.cdc.gov/std/prevention/screeningreccs.htm) 。这些建议根据你是谁以及你每年是否有多个性伴侣而有所不同。我们中的许多人应该至少每年做一次淋病、衣原体检查，在某些情况下还要做一次、艾滋病毒和梅毒检查。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Reminder: STD Testing Is Still Important During the Pandemic](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/can-you-still-go-to-the-doctor-during-a-pandemic-1844278703)</aside>
+
 
 不幸的是，衣原体和淋病检测试剂盒现在供不应求。卫生与公众服务部最近给医疗服务提供者 发了一封信，建议包括孕妇和男男性行为者在内的高危人群优先接受检测。他们还指出，如果有人确诊患有衣原体或淋病，不需要等待测试结果就可以让他们的伴侣开始治疗。
 

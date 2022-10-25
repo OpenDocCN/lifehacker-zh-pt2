@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled To Find Out if Your Potential Boss Will Be Any Good, Ask This Question](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-ace-a-job-interview-1837902479)</aside>
+
 
 ### 求职面试中你应该经常问的一个问题
 

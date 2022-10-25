@@ -30,7 +30,7 @@ HCAs 和 PAHs 喜欢超高温和燃烧，所以用小火烹饪肉类是另一种
 
 AICR 说，你也可以通过远离脂肪和果汁来减少突发事件。一种方法是从肉上切下可见的脂肪。你也可以把煤移到烤架的一边，然后在烤架的中央烤你的肉。最后，在吃之前切掉烧焦的部分。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Make Grilling Healthier](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/what-to-grill-when-youre-sick-of-hamburgers-and-hot-dog-1828402331)</aside>
+
 
 #### 使用腌泡汁
 

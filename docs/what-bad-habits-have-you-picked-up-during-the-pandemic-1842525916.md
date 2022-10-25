@@ -16,7 +16,7 @@
 
 **只选择一种行为/习惯/活动来开始或停止，这是一个好方法，不仅能让你对自己的现状感觉更好，还能更好地控制发生在你身上的事情。今天，你将在家进行哑铃锻炼。今天，你不会在下午 5 点后查看新闻。今天，你要创造一个新的早晨惯例(或者新的晚上惯例)，这将帮助你更有效率，更有当下感，或者更积极。**
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">**[![Image for article titled What Bad Habits Have You Picked Up During the Pandemic?](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/do-this-dumbbell-workout-from-home-1842490289)**</aside>
+
 
 **所以。你染上的一种冠状病毒焦虑症习惯是什么，你知道你现在不应该这样做？对我来说，洗澡时间长得离谱。就像，在水里呆很长时间，直到它变冷。早上一次，晚上一次。这对我的皮肤不好，对我的水费也不好，理论上对地球也不好，而且漫长的晨间沐浴占用了我在家工作的时间。**
 

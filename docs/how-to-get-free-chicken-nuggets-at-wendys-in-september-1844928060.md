@@ -22,6 +22,6 @@
 
 但是！我 t *没有*说这笔交易对每个客户只有效一次，*说优惠有效期到 9 月 27 日。因此，假设，如果你今天开始利用这笔交易，你可以积累[26 天 x 10 nuggs/天] 260 个免费金块(购买至少 26 个菜单上的其他项目)。*
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Get Free Chicken Nuggets at Wendy&#39;s in September](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/you-can-make-chick-fil-a-style-chicken-nuggets-at-home-1837284801)</aside>
+
 
 我们建议在几周内(或一生中)吃 260 块免费的鸡块吗？哦，该死的不。(除非也许它们冷冻得很好，你以后可以用？ [也许是为了无足轻重的目的？](https://skillet.lifehacker.com/waffle-some-chicken-nuggets-for-the-children-1844844912) )尽管我们频繁发表文章，就像这篇文章，我们并不认可这样的快餐消费率。但是我们也知道，并不是每个人都处于相同的财务状况，获得一些免费的蛋白质可能会有所帮助。不管怎样，别忘了点你最喜欢的蘸酱口味。

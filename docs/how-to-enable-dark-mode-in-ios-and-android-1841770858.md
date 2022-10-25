@@ -8,7 +8,7 @@
 
 虽然我们已经讨论了如何在特定的应用程序 中启用黑暗模式 [，甚至](https://lifehacker.com/how-to-turn-on-whatsapps-new-dark-mode-1841157512) [如何在你的电脑或智能手机上强制黑暗模式](https://lifehacker.com/force-android-10s-dark-mode-on-individual-apps-with-dar-1841577354) ，但我今天意识到，我们还没有为在 iOS 和 Android 上启用一般的、系统范围的黑暗模式的基本行为提供明确的说明。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Enable Dark Mode in iOS and Android](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/whats-the-big-deal-about-dark-mode-1839449679)</aside>
+
 
 ### 如何在 iOS / iPadOS 中打开黑暗模式
 

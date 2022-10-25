@@ -6,7 +6,7 @@
 
 你看，高杯酒看似简单。这只是两种成分——酒和气泡酒——倒入一个加了冰的高脚杯中。做一个好的很容易，做一个坏的更容易。你知道并喜爱的经典高杯酒——G&Ts、伏特加苏打水、威士忌姜汁汽水和苏格兰&苏打水——都可以通过避免一些陷阱而变得非常美味。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Make a Really Good Highball](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-sour-is-the-perfect-quarantine-cocktail-1843185396)</aside>
+
 
 首先，不要使用从你的冷冻制冰机中取出的冰，除非你知道那些管道是干净的。完全透明的冰不是必须的，但它会让你的高杯更上一层楼，特别是如果你用的是好东西，比如昂贵的苏格兰威士忌。(如果你在寻找如何清理冰的指导，露营者英语的博客，，是一个好去处。)
 

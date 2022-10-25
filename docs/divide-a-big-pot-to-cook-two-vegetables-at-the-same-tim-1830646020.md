@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Divide a Big Pot to Cook Two Vegetables at the Same Time](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/make-these-thanksgiving-classics-even-better-1830236674)</aside>
+
 
 我从烤面包机烤箱里借来的平底锅可以防止土豆混合在一起，同时让盐水在土豆周围沸腾。当他们做完后，我就用蜘蛛把一种土豆捞出来，然后把另一种倒进漏勺里。我捣碎红褐色土豆，大米 Yukons，然后把所有东西放回锅里混合在一起。
 

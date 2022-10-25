@@ -44,7 +44,7 @@
 
 这样做效果好一点，因为“当我使用 Twitter 时”和“当我不使用 Twitter 时”的界限很清楚——我推荐它作为任何在限制社交媒体使用方面有困难的人的解决方案。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Curb Your Twitter Addiction](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-stop-staring-at-your-phone-all-day-1839642069)</aside>
+
 
 ### 让别人为你收集最好的推文
 

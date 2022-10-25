@@ -8,7 +8,7 @@
 
 大喊大叫让我知道我在做正确的事情。感恩节有这样一个标准的、锁定的菜单，你必须玩弄细节，以免我们都无聊而死。这就是为什么你应该在土豆泥中加入法式洋葱酱。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Just Add Store-Bought French Onion Dip to Mashed Potatoes](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/make-these-thanksgiving-classics-even-better-1830236674)</aside>
+
 
 我说的不是花式 [自制洋葱蘸](https://skillet.lifehacker.com/make-a-super-bomb-onion-dip-without-a-mix-1795872077)；我甚至不是指你发现的那种用奶油奶酪和酸奶油冷藏的。我说的是装在玻璃罐里的米色菜籽油蘸酱——那种完全乳化且耐储存的蘸酱，从容器里出来时会轻微晃动。那种带点的， [麦当劳式的洋葱块](https://skillet.lifehacker.com/top-burgers-with-mcdonalds-style-diced-onions-like-a-ge-1834644886) 。带 [味精](https://skillet.lifehacker.com/put-msg-in-everything-you-cowards-1831721707) 的那种。(Lay’s 做的很好。)
 

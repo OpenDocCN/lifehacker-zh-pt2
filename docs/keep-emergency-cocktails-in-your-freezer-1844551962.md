@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Keep Emergency Cocktails in Your Freezer](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-throw-a-cheap-dinner-party-cocktails-1825727460)</aside>
+
 
 有时到了星期五晚上，我会忘记鸡尾酒，但当我需要它的时候，我总会记得。没有什么能像鸡尾酒一样平息情绪突发事件，但在情绪突发事件中精心调制一杯鸡尾酒并不理想。我要说的是，把一堆即饮鸡尾酒密封在小罐子里本质上是好的。除了用酒精代替鸡胸肉之外，这和膳食计划一模一样。
 

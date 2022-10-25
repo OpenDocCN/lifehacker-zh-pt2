@@ -10,7 +10,7 @@
 
 鉴于这对许多人来说可能是新的，这里有一些来自专家以及在疫情期间尝试过变焦约会的人的建议。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Have a Successful Zoom Date](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-get-started-on-dating-apps-1838920199)</aside>
+
 
 ### 缩放约会的利弊
 

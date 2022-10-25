@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Treat Face Mask-Related Dry Eye](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/put-your-mask-over-your-damn-nose-1844132568)</aside>
+
 
 ### 为什么面膜会让眼睛干涩？
 
@@ -18,7 +18,7 @@
 > 
 > 除了不舒服之外，MADE 可能会鼓励人们揉揉眼睛以获得暂时的缓解——这增加了未洗手被带到脸上的可能性。反过来，这增加了冠状病毒通过口、鼻以及在较小程度上通过眼睛感染的可能性。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Treat Face Mask-Related Dry Eye](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-dos-and-donts-of-cloth-face-masks-1842880855)</aside>
+
 
 ### 怎么才能治疗面膜引起的干眼症？
 

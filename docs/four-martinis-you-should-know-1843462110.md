@@ -4,7 +4,7 @@
 
 我最喜欢的马提尼是别人给我调的。理想情况下，那个人是 [丹·卡斯托](https://kinja.com/dancasto?_ga=2.261576207.381487110.1589134441-329965069.1585339145) 或者 [杰弗里·摩根塔勒](https://skillet.lifehacker.com/im-cocktail-book-author-and-bar-manager-jeffrey-morgent-1831775112) ，但是某些后勤问题阻止了我过那样的生活。在家调一杯马提尼酒并不难，但需要回答一个问题:“我想要哪种马提尼酒？”
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Four Martinis You Should Know](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/sometimes-the-best-cocktail-is-a-glass-of-wine-1843000952)</aside>
+
 
 
 

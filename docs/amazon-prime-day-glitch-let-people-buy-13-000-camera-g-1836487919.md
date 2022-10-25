@@ -8,7 +8,7 @@
 
 事情开始于一个 Slickdeals 成员发现并 [分享了一个黄金日交易](https://slickdeals.net/f/13219096-prime-members-sony-alpha-a6000-mirrorless-digital-camera-94-50-free-shipping#commentsBox) 索尼 a6000 无反光镜相机捆绑了一个 16-50 毫米镜头，价格为 94.48 美元；通常售价在 550 美元左右的一套工具。在亚马逊庞大的在线商店已经变成的蛮荒西部，看到有问题的第三方卖家以令人难以置信的低价提供品牌设备并不罕见，这些设备往往好得令人难以置信。但是这个相机套装是由亚马逊直接销售的。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Amazon Prime Day Glitch Let People Buy $13,000 Camera Gear for $94](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://gizmodo.com/the-worst-fire-gadget-amazon-ever-made-is-even-worse-th-1836274935)</aside>
+
 
 并不是每个参与 Slickdeals 论坛讨论这笔交易的人在登录亚马逊时都看到了折扣，当他们中的许多人读到这个定价错误时，相机套装早已售罄。但其他会员很快注意到，索尼套装并不是唯一打折至 94.48 美元的摄影器材。论坛成员 killroyriley 分享道，“我账户上所有带 prime day 标签的东西都是 94.48。我刚刚花 94.48 美元买了一个 3000 美元的望远镜，”成员 Eragorn 问道，“我刚刚花 94 美元订购了一个 a7iii，带套件镜头...他们不会发货然后改变价格吧？”AyoItsPat 发现了似乎最不可能的黄金日交易，“我花 94 美元买了一个 13，000 美元的镜头，等待取消，但这就像 99.3%的折扣。”
 

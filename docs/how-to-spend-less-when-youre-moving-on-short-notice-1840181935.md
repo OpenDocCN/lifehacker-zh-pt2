@@ -16,7 +16,7 @@
 
 他建议，一旦你知道你需要摆脱目前的状况，就在社交媒体上发帖。但是，他建议把你寻求帮助的请求作为一种陈述，而不是一个问题。“周六有人能帮我搬家吗？”可能不如“我周六需要帮忙搬些箱子”有效。如果你能帮忙，我会很感激你的时间，”例如。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Spend Less When You&#39;re Moving on Short Notice](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-best-way-to-pack-a-moving-box-1838011535)</aside>
+
 
 在搬家行业工作了十多年的格兰兹说:“你会惊讶地发现，有多少人会很快加入进来，多带几个箱子，甚至把一些你不需要的东西拿走。”。
 

@@ -10,7 +10,7 @@
 
 所以不，我不会在我的冰冻鸡尾酒中不加糖——事实上，我已经知道不加冰了，因为一大堆冰会让鸡尾酒尝起来有点淡。我没有依赖当季草莓中的天然糖分来增加饮料的甜味，而是用冷冻草莓代替冰块，制成了一种更浓、更浓郁、超级冰爽的酒精饮料。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Use Frozen Strawberries Instead of Ice When Making Frozen Cocktails](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-sour-is-the-perfect-quarantine-cocktail-1843185396)</aside>
+
 
 我可以理解不在饮料中添加“额外的糖”的吸引力。糖不是很受“健康”人群的欢迎，但我们正在制作一种鸡尾酒，所以谁在乎呢。更实际的说法是，添加糖会降低水的冰点，这会让你的饮料变得有点太黏糊糊，但这可以通过添加更多的冷冻水来克服。没有糖的鸡尾酒尝起来就不对劲，没有任何额外甜味剂的冰冻鸡尾酒尝起来完全不舒服。
 

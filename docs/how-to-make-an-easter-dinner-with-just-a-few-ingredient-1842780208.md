@@ -38,7 +38,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Make an Easter Dinner With Just a Few Ingredients](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-make-cheap-side-dishes-that-seem-fancy-1825900642)</aside>
+
 
 如果你觉得奶油有点重——或者你根本没有奶油——你可以用融化的黄油代替奶油，做出视觉上令人惊叹的菠萝安娜( [这段视频](https://skillet.lifehacker.com/how-to-make-cheap-side-dishes-that-seem-fancy-1825900642#_ga=2.5823411.1471198165.1529335642-426097860.1521480505) 将向你展示如何做)。
 

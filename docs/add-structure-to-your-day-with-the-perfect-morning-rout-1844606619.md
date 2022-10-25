@@ -6,7 +6,7 @@
 
 那些日子已经一去不复返了，但是如果你仍然觉得需要有某种形式的结构来避免成为一个宅男，那么我有一些关于如何创造完美的早晨日程的建议。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Add Structure to Your Day With the Perfect Morning Routine](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/will-this-tiktok-cereal-box-hack-solve-all-your-breakfa-1844544160)</aside>
+
 
 让我们首先记住，现在早上的例行公事都是关于*你*。你不再需要打扮得漂漂亮亮的，也不再需要躲避交通堵塞，你现在所要担心的是尽可能多的睡眠，以及如何确保你在家里的一天舒适愉快。
 

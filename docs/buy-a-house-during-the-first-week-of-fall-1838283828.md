@@ -12,7 +12,7 @@
 
 为什么？良好的...学校开学了，很多人的生活变得更加忙碌。这意味着那些可能在今年夏天早些时候挂牌出售房屋的房主现在已经准备好交易了。此外，孩子重返校园的家庭通常不希望在他们的待办事项列表中增加“搬家”和“换学区”——所以你的提议可能是唯一的。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Why Now&#39;s the Time to Buy a House](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-much-money-do-you-need-to-buy-a-house-1835422567)</aside>
+
 
 这个房地产策略来自 Realtor.com 发布的新数据，之前的数据证实了 [秋天是买房的绝佳时机](https://www.realtor.com/advice/buy/reasons-fall-is-the-best-time-to-buy-a-home/)——不仅仅是因为高库存/低竞争因素，还因为这是卖家开始降低要价的时候。把这一切放在一起，你会发现自己有一个理想的家。
 

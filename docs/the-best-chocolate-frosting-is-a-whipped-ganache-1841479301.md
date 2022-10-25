@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled The Best Chocolate Frosting Is a Whipped Ganache](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-make-a-boxed-cake-mix-taste-homemade-1839165427)</aside>
+
 
 你可能知道，Ganache 是由等量的奶油和巧克力混合而成的。你把热奶油倒在切碎的巧克力上，它会融化，然后你把这种丝滑的物质倒在任何你认为会从浓郁光滑的巧克力中受益的东西上。ganache 通常会提供一种与糖霜不同的效果，但是你可以稍微搅拌一下，让它变得蓬松、易涂抹。(这对我来说太棒了，因为大多数自制的糖霜需要将黄油放出来，这样它就可以变暖到室温，而这在基因水平上我似乎做不到。)
 

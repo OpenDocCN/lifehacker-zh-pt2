@@ -12,7 +12,7 @@ Zoom [在其聊天功能中暂时禁用了对 GIF 平台 Giphy](https://blog.zoo
 
 脸书最近以 3 亿美元收购了 Giphy，并计划将其整合到 Instagram 中。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled This Is Why You Can&#39;t Use GIFs in Zoom Right Now](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-best-free-alternatives-to-zoom-1843043133)</aside>
+
 
 移除 Giphy 集成是 Zoom 最近进行的一系列产品更新之一。
 

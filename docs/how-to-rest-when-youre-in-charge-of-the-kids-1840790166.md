@@ -10,7 +10,7 @@
 
 > 比赛的规则是，最完整的图画将获得巧克力奖，因此在莫妮卡去商店的大约 20 分钟里，他们一直粘在那里。韦伯的四个孩子足够大来意识到他们的父亲在做什么(如果需要的话，也足够大来唤醒他)，但是因为他们都喜欢艺术，他们就一起玩了。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Rest When You&#39;re in Charge of the Kids](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-entertain-kids-when-youre-too-tired-to-stand-up-1834657254)</aside>
+
 
 当你太累了，以至于可能会陷入深度睡眠时，我们不赞成尝试这个技巧，尤其是如果你的孩子还很小的话。最好把它当成一个躺下来放松的机会，而不必直接招待他们或回答任何人的问题。
 

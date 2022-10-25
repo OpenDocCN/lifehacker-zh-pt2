@@ -8,7 +8,7 @@
 
 这位亿万富翁没有立即向该机构解释他将如何支付这笔集体账单，据估计这笔账单高达 4000 万美元。史密斯的 [估计净资产为 50 亿美元](https://www.ajc.com/news/world/things-know-about-robert-smith-morehouse-donor-pay-off-class-2019-student-loans/ZydZS0fXzzeZNOUCU8RtON/) ，他对学术贡献并不陌生。但是对于一个即将毕业的学生来说，面对未来 10 年甚至更长时间的学生贷款，这是一个很大的挑战。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Billionaires Can&#39;t Save Us From Student Loans](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-difference-between-one-million-and-one-billion-1830493909)</aside>
+
 
 过去一年，莫尔豪斯学院的食宿学费为 48500 美元。私立大学毕业生的平均学生贷款债务为 32，300 美元。无论你如何分割，这都是一大笔钱——即使你只是将 32300 美元乘以 396，你也会得到 12790800 美元的估计账单。汪汪。
 

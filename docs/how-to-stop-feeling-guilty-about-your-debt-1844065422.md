@@ -14,7 +14,7 @@
 
 然后用你刚刚释放出来的大脑空间制定一个偿还债务的计划。跟踪你每个月的进展，这样你就能看到你的努力开始累积，并减少你的债务。记住，即使是很小的一步，随着时间的推移也会积累起来，如果你的进步在开始时感觉很慢，不要让那些内疚的感觉爬进来。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Stop Feeling Guilty About Your Debt](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/whats-the-best-way-to-pay-off-debt-1840777763)</aside>
+
 
 再次强调，在纸上或电子表格上记录这一进展可以让你忘记数学，这样你就可以专注于其他事情。在这里，你可以尽情发挥你的创造力:每次付款时给网格的一部分上色，或者创建一个每月更新的图表。
 

@@ -23,6 +23,6 @@
 
 那么，这样的代价值得吗？那得看情况。一个简单的解决办法是说:当然不是，玩彩票是傻瓜的游戏，没有富人玩彩票是有原因的，你在浪费你的钱，反正所有彩票中奖者都很痛苦，等等。但是这有什么意思呢？一个更复杂的答案是使用由 Slate 公式化的 [这个等式来找到票证](https://slate.com/human-interest/2001/09/is-powerball-a-mug-s-game.html) 的 [期望值的再混合版本。在将联邦税计算在内后，Slate 估计一张票实际价值约为 2.20 美元，然而成本仅为 2 美元。所以实际上，这是一笔购买预计累积奖金为 10 亿美元的彩票的交易(Slate 的估计是 9.7 亿美元的累积奖金，所以你的交易现在甚至更好)。文章指出，如果你所在的州对彩票奖金征税超过 8 %(看看你，纽约),那么很可能不值得。](https://slate.com/technology/2018/10/mega-millions-jackpot-odds-should-you-buy-ticket.html)
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled These Are Your Chances of Winning the Mega Millions Jackpot](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-fastest-way-to-save-1-million-1829372702)</aside>
+
 
 如果你想试试运气，你可以购买一张截至美国东部时间今天晚上 10 点 45 分的门票，抽奖时间是晚上 11 点。截至周五，强力球的奖金为 4.7 亿美元，抽奖时间是周六晚上。如果你正在努力争取百万巨奖*和*强力球奖金，你永远不会知道——有 88 万亿分之一的机会获胜。

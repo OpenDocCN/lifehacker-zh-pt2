@@ -28,7 +28,7 @@ Marjorelle 说，本地一年生植物——仅在一年内完成其生命周期
 
 金斯兰野花项目的经理尼基·杰克逊(Niki Jackson)建议在你的纽约小花园里种满五颜六色的花(一年生和多年生的),比如蜜蜂花、紫锥菊、雾花和黑眼苏珊花，它们都会吸引蜜蜂和蝴蝶。Majorelle 建议采用鲜红的 [*福禄考*](https://www.edenbrothers.com/store/red_annual_phlox_seeds.html) 。小花盆或窗盒需要定期浇水，因为土壤不够深，无法留住雨水，但本地植物在本地环境中往往比非本地植物更茁壮、更有弹性。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Grow a Bug-Friendly Garden Absolutely Anywhere](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/can-you-be-an-ecotourist-without-destroying-the-environ-1833637906)</aside>
+
 
 ### **如果你的露台或屋顶平台上有空间放置更大的花盆**
 

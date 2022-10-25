@@ -16,6 +16,6 @@
 
 这都是非常可靠的建议。在一年中的前几周，我们确实倾向于过度扩张自己，使得实现一个真正的逐步增长的行动计划变得更加困难。霍斯利牧师还建议人们放弃酒精、赌博，以及“对宗教和社会改革的冷漠”，所以他显然是一个有很多时间为自己工作的人。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Make Sure Your Resolutions Include the Three Ps](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-start-a-new-habit-and-why-setting-goals-doesnt-1830535655)</aside>
+
 
 然而，如果这一切听起来像是一个巨大的阻力，那么就听听女演员玛丽·斯图德霍尔姆的建议吧，她说她的决心是“试着振作起来，保持愉快。”这本身就是一个挑战。

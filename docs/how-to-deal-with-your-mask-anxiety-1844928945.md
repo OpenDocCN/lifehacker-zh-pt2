@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Deal With Your Mask Anxiety](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/put-your-mask-over-your-damn-nose-1844132568)</aside>
+
 
 ### 什么是面具焦虑？
 
@@ -30,7 +30,7 @@
 
 例如，在 COVID 之前，我有过相当多戴口罩的经历，并且拥有几个相对舒适的。然后，我从洛杉矶的一家小店订购了几个 [，它们非常合身，大大改善了我戴口罩的体验——有时我会忘记自己戴了一个。这里的要点是，你可能必须货比三家，尝试几种面膜面料、形状和设计，然后才能找到一种让你感觉不那么焦虑的。](https://matrushka.com/product/cotton-face-mask)
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Deal With Your Mask Anxiety](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-dos-and-donts-of-cloth-face-masks-1842880855)</aside>
+
 
 #### 在家试驾口罩
 

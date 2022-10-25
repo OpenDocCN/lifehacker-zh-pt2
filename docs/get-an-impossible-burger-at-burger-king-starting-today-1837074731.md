@@ -8,7 +8,7 @@
 
 更好的是，汉堡王和 Doordash 免费提供汉堡(其他费用仍然适用)。Doordash 的顾客还可以订购“不可能的味道测试”,其中包括一个不可能的弥天大谎以及一个原始的基于肉类的弥天大谎，价格为 7 美元。这样你就可以直接决定这种植物性汉堡尝起来是否真的像真正的肉(剧透:的确像)。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Get an Impossible Burger at Burger King Starting Today](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/are-fake-meat-burgers-finally-as-good-as-beef-1836815995)</aside>
+
 
 要获得免费送货服务，你需要在收银台输入密码，这是不可能的。8 月 9 日周五，Doordash 还为 DashPass 的顾客免费提供不可能的汉堡，代码为 DASHPASS5。
 

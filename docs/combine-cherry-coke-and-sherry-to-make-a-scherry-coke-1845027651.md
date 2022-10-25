@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Combine Cherry Coke and Sherry to Make a Scherry Coke](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-make-a-really-good-highball-1843479746)</aside>
+
 
 幸运的是，我是一个足智多谋的人，对味道有很好的把握，所以我能够(相当快地)改变主意，发明一种令人兴奋的新鸡尾酒，叫做“雪利酒可乐”，这是雪利酒和樱桃可乐的混合物，味道像樱桃可乐，让你像雪利酒一样喝醉。
 

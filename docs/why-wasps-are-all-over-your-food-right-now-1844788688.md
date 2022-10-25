@@ -12,7 +12,7 @@
 
 像我们一样，黄蜂需要碳水化合物(包括糖)作为能量和蛋白质来构建它们的身体。来自花朵的花蜜提供了糖分，尽管它们很乐意从野餐中找到的任何甜味或糖浆中喝水。为了获取蛋白质，黄蜂经常吃其他昆虫，但有些也喜欢吃腐肉。(你要烤的那排排骨？在黄蜂眼里，它只是额外新鲜的腐肉。)
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Why Wasps Are All Over Your Food Right Now](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/use-muffin-tins-and-egg-cartons-for-an-enhanced-picnic-1844750480)</aside>
+
 
 ### 你能做些什么
 

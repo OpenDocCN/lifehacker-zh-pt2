@@ -36,6 +36,6 @@
 *   朱莉娅·克鲁格的外交官日记(朱利安·戈登)
 *   玛格丽特·费尔莱斯·巴伯的《修路人》(迈克尔·费尔莱斯)
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Read Free Books by Women, Finally Released Under Their Real Names](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-best-places-to-find-free-ebooks-1843182342)</aside>
+
 
 当然，在一个完美的世界里，女性不需要用男性的名字来写作才会被重视，但至少她们现在得到了某种形式的认可。将这些书籍添加到您的隔离阅读列表中。

@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Celebrate My Birthday With This Bitter, Herbaceous Beverage](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/make-an-absolutely-filthy-martini-with-msg-1836892332)</aside>
+
 
 严格来说，你不必喝我喝的庆祝酒，但也许你应该喝。这种鸡尾酒——我们不妨称之为“我最喜欢的东西”——基本上是一种白尼格罗尼，但用代替了杜松子酒。它有苦乐参半的，青草般的龙胆草的味道，还有香菜和莳萝的味道。有很多事情正在发生，但就像 Dorito 一样，这只是意味着一种味道不会在舌头上停留太久。它也很浓，很适合庆祝，还有黄色，我穿黄色很好看。要做到这一点，你需要:
 

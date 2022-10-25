@@ -14,7 +14,7 @@
 
 2020 年黄金时段艾美奖奖 [将于美国东部时间](https://abc.com/shows/emmy-awards) 晚 8 点在 ABC 播出。吉米·基梅尔将主办这场三小时的活动。该节目还将在 ABC.com 的播出，并在 ABC.com 的和美国广播公司的应用程序上点播七天，但这两个都需要有线电视账户登录才能访问。虽然仪式不会有任何免费的直播，但它将在诸如 [Hulu + Live TV](https://fave.co/3mpslzf) 和 [YouTubeTV](https://tv.youtube.com/welcome/?utm_source=pm&utm_medium=gs&utm_campaign=1006175) 等服务上播出，这两个服务都有免费试听，如果你绝对不能不看三个小时的 Kimmel 的话。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Watch the 2020 Primetime Emmy Awards](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-find-where-your-favorite-movie-is-streaming-1843461201)</aside>
+
 
 然而，可能让艾美奖看起来有趣的是，制作听起来像一场逻辑噩梦，这自然会成为一部伟大的电视剧。:
 

@@ -14,7 +14,7 @@
 
 为什么担心？如上所述，你新商店信用卡的利率可能比你其他信用卡的利率要高。(去查，我们等。)这意味着你这张卡的欠款总额比你其他卡的增长要快。基本上来说，每一天有余额产生利息，就是你赔钱的一天。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Make a Plan to Pay Off Your Store Credit Card](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/whats-the-best-way-to-pay-off-debt-1840777763)</aside>
+
 
 如果你有固定的收入来源，在那张卡上设置定期付款，以确保你在开始为 2020 年假期购物之前优先支付余额。
 

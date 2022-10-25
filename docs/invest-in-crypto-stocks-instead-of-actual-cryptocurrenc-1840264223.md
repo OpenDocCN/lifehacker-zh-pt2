@@ -8,7 +8,7 @@
 
 但你可能已经注意到，比特币和它的一些同时代人现在正处于后炒作阶段，正如《Coin Talk》的杰伊·凯斯宾·康此前指出的。加密不再是一个可行的快速致富方案()我的意思是，曾经是吗？如果你寻求短期收益，专家提醒你不要这样做。 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Invest in Crypto Stocks Instead of Actual Cryptocurrency](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/should-you-buy-bitcoin-1826616664)</aside>
+
 
 但也许你仍然对加密货币的发展感兴趣，你想分散你的投资组合。你可以通过股票投资加密货币，而不是购买任何硬币。从逻辑上讲，这比 [记住你的访问密钥](https://gimletmedia.com/shows/reply-all/z3hl9r) 和 [安全存储你的数字货币](https://lifehacker.com/how-to-store-your-bitcoin-as-securely-as-possible-1821051421) 要容易得多。它潜在的风险更小。但是你应该这样做吗？
 

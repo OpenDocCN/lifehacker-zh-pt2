@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled This Cornmeal Pie Crust Is Extremely Forgiving](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/make-a-superior-thanksgiving-pie-with-sweet-potatoes-1830383070)</aside>
+
 
 希瑟和我为我们的红薯馅饼 做的外皮，从玉米粉中获得了乡村风味和质地，但正是*蛋黄*使它变得如此容易加工。它很容易展开，非常柔韧，而且——如果你不小心撕破了它——用手一捏就能很容易地修补起来。很明显，它非常适合做红薯馅饼，但我不介意和山核桃或苹果一起吃。你应该在这里查看厨师迈尔斯的全套 [红薯馅饼食谱](https://gardenandgun.com/recipe/sweet-potato-pie/) ，但是要做好馅饼皮，你需要:
 

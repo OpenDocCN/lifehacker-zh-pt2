@@ -18,7 +18,7 @@
 
 **我发现，当我不得不坐下来完成很多工作时，如果我切换到操作系统的黑暗模式，而不是盯着明亮的白色显示屏，我可以专注更长时间。这很容易在 [**Windows 和 macOS**](https://gizmodo.com/how-to-enable-dark-mode-nearly-everywhere-its-available-1833157906) ，以及 [**Chrome**](https://lifehacker.com/how-to-enable-google-chromes-new-dark-mode-and-more-1833265661) 、[**Edge**](https://lifehacker.com/how-to-enable-the-hidden-dark-mode-in-microsofts-chromi-1834000126)，或者[**Firefox**](https://lifehacker.com/everything-you-need-to-know-about-firefox-preview-on-an-1835950429)中设置——我假设你大部分时间都在这些操作系统和应用的组合中度过。别忘了 [**懈怠**](https://lifehacker.com/how-to-switch-to-night-mode-on-slack-1822842270) 也是。**
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">**[![Image for article titled How to Block Out the World When You&#39;re Trying to Work](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/whats-the-big-deal-about-dark-mode-1839449679)**</aside>
+
 
 ### **不要让自己分心**
 

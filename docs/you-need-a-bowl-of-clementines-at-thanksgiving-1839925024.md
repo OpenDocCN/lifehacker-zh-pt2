@@ -8,7 +8,7 @@
 
 小柑橘类水果没有问题，只有解决方案。一年中的这个时候，你可以看到克莱门蒂和温州蜜柑，它们的叶子还连着，它们是美丽的、实用的中心装饰品。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled You Need a Bowl of Clementines at Thanksgiving](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/pumpkin-icebox-cake-is-a-perfect-thanksgiving-dessert-f-1839859088)</aside>
+
 
 功能很多，但首先是健康的功能。感恩节经常有蔬菜，但很少有水果。是的，有蔓越莓酱，但是你真的吃了多少？几勺？如果你是个超级粉丝的话，可以喝四分之一杯？吃一片水果会让你感觉更健康，更阳光，吃一片柑橘类水果会让你觉得你在积极地抵御坏血病或其他一些海盗疾病。即使你除了馅料和淹没在肉汁中的土豆以及多块馅饼之外什么也没吃，你仍然可以回顾你的一天并想“至少我吃了四个克莱门蒂”，然后谷歌一下维生素 C 的好处以进一步减轻任何不必要的负罪感。
 

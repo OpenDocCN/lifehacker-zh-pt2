@@ -26,7 +26,7 @@
 
 > 取下手表，将时针对准太阳。想象一条穿过整点和 12 点中间点的线。那条线指向南方。例如，如果现在是 4:00，中间线将指向 2:00。请注意，在夏季，您需要根据夏令时调整一小时，所以请将时针向后拨一小时。如果你在南半球，将太阳对准 12 点，假想线将指向北方。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Figure Out Which Direction You&#39;re Facing](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-tell-time-1838978001)</aside>
+
 
 ### **找到教堂**
 

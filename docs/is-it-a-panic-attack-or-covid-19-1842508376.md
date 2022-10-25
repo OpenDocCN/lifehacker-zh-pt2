@@ -28,7 +28,7 @@
 
 *那么惊恐发作和焦虑发作有什么区别呢？正如克里夫兰诊所 所说:“从技术上来说，焦虑发作不是一件事，至少根据医学术语来说不是。这是外行人对惊恐发作的说法。”(如果你正经历惊恐发作， [，我们有一段视频可以帮助你度过难关](https://lifehacker.com/how-to-get-through-a-panic-attack-1841061270) 。)*
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">*[![Image for article titled Is It a Panic Attack or the Coronavirus?](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-get-through-a-panic-attack-1841061270)*</aside>
+
 
 *如果你已经排除了惊恐发作，那么症状不一定会达到顶峰然后消失，而是在恐惧和绝望的重压下慢慢压垮你呢？那就是焦虑，它有自己的一套症状，包括呼吸急促；胸部收紧；快速、剧烈的心跳；出汗；偶尔发冷或潮热；头痛和颤抖，伊万诺夫解释道。此外，全身性焦虑还会导致 [睡眠困难、](https://www.nimh.nih.gov/health/topics/anxiety-disorders/index.shtml) 肌肉酸痛以及某些情况下的 [肠胃问题](https://www.mayoclinic.org/diseases-conditions/anxiety/symptoms-causes/syc-20350961) 。与惊恐发作不同，焦虑症状会持续很长时间。例如，由于高度的焦虑，有时我会度过几个小时。其他时候，这是一种持续的，痛苦的感觉，一次可以持续几周或几个月。*
 

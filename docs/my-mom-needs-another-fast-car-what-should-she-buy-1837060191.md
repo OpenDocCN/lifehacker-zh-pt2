@@ -38,7 +38,7 @@
 
 对于住在加州一个大城市的人来说，他想要一些性能好、舒适的东西，他不想处理像火花塞坏掉这样的维修问题(说真的，这是一个根本不应该发生的荒谬故障)，他有 50 美元可以使用，我认为特斯拉 Model 3 是一个选择。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled My Mom Needs Another Fast Car! What Should She Buy?](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://jalopnik.com/watch-us-dig-into-a-totally-disassembled-tesla-model-3-1833772985)</aside>
+
 
 动力系统和传动系统的简单性本身就值得考虑。你的妈妈将不必处理换油、火花塞故障、燃油泵问题、传动系统问题或 ICE 汽车可能出现的许多弱点。当然，电动汽车仍然会出故障，它们的电子设备可能相当复杂，但由于它们的机械结构简单，它们的总体维护和维修成本比燃气汽车低得多。这对于那些不愿意每隔几个月就从机械师那里收到巨额账单的人来说是一个很大的吸引力。
 

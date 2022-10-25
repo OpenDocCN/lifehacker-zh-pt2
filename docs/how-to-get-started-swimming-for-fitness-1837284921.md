@@ -8,7 +8,7 @@
 
 第一，即使你根本不知道怎么游泳，还是有希望的。许多游泳池、基督教青年会和红十字会组织为成年人提供初级课程。(在我们的 [成人如何学习游泳视频](https://lifehacker.com/how-to-learn-to-swim-as-an-adult-1828577309) 中，我们跟踪了这样一个班的两个学生。)
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Get Started Swimming for Fitness](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-learn-to-swim-as-an-adult-1828577309)</aside>
+
 
 但是也许你知道如何游泳，只需要轻轻一推就能开始你的第一次水上锻炼。我喜欢为铁人三项运动员寻找游泳训练。三项全能运动包括游泳、骑自行车和跑步，所以大约三分之一的三项全能运动员是游泳新手。这些人希望得到良好的锻炼，提高他们的基本技能，所以他们可以比游泳运动员的训练更容易开始。例如，这里有三种很好的初学者训练方法，可以让你在第一周忙个不停，或者直到你厌倦为止。
 

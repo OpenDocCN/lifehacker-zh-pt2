@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled What Is a Red Tide?](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://gizmodo.com/inside-floridas-algae-fueled-nightmare-1829518742)</aside>
+
 
 ### 什么是赤潮，为什么这么叫？
 

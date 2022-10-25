@@ -10,7 +10,7 @@
 
 当你运行自己的数字时，你可能会发现一些自己的惊喜。例如，也许你在外出就餐上的花费比你意识到的要多得多，或者也许你在餐馆、外卖和工作午餐上的花费比你想象的要少得多——这意味着你明年可能不必担心你买的每一杯拿铁咖啡。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Did Your Spending in 2019 Match Your Personal Values?](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-rich-would-you-be-without-lattes-1839984129)</aside>
+
 
 就我而言，我担心我在乘车股票上花了太多钱——直到我的支出摘要显示我只花了 488.26 美元在个人(非商务)交通上，包括 Lyft、优步、出租车和公交车票。我对这个数字完全满意，而且比买车便宜多了。
 

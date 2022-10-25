@@ -8,7 +8,7 @@
 
 当 Reddit 用户 celticdude234 提供类似的建议时，我们想起了这个有远见的(咳咳)防雾霾战略，谷歌 [快速搜索显示，它已经在冠状病毒时代广泛传播](https://www.wsj.com/articles/coronavirus-facemask-foggy-glasses-fix-reopening-11588957512) ，但由于我们都将戴上口罩更长时间，它肯定值得重复。因此，如果你厌倦了你的眼镜、浴室镜子甚至汽车挡风玻璃起雾，你需要做的就是用一点剃须泡沫清洁有问题的表面。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Keep Your Glasses From Fogging Up With a Bit of Shaving Cream](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/put-your-mask-over-your-damn-nose-1844132568)</aside>
+
 
 如果你在护理你的眼镜，只需在镜片上泵一点剃须泡沫，使其产生泡沫，然后用软布擦拭(不要使用纸巾或卫生纸，它们会在表面留下小划痕)。如果你担心条纹，只要你擦掉所有可见的残留物，它们应该不是问题。
 

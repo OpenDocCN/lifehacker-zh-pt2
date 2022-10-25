@@ -28,7 +28,7 @@ Bostock 诉 Clayton 和 Altitude 诉 Zarda 两个案件涉及两名同性恋、�
 
 是的，数量也惊人。根据 Nevins 的说法，大约有 22 个州禁止基于性别认同或性取向的歧视(不一定两者都有)。然而，一些当地的城市条例也可能在没有提供保护的州额外保护 LGBTQ 工作者。目前，没有联邦法律禁止在就业方面歧视 LGBTQ 个人。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How the New Supreme Court Discrimination Case Could Affect LGBTQ Workers](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-be-a-better-ally-to-the-queer-community-1827017520)</aside>
+
 
 ### 这是否意味着对这些案件的积极裁决可以保护各地的工人？
 

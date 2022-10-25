@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Now Is the Time to Infuse a Bunch of Vodka](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/make-a-tropical-gin-out-of-pineapple-peels-1824033918)</aside>
+
 
 然而，输液可以让你混合东西而不用买更多的瓶子，如果你有搅拌机，你可以在几分钟内完成。搅拌机输液既快又非常有效。叶片提取新鲜，干净的味道和美丽的颜色，当你过滤掉所有的固体，你就有了一个全新的注入伏特加完美的啜饮或混合成一个完整的鸡尾酒。(我很少混合这些——只是把它们放在冰箱里冷藏，然后用小玻璃杯喝。)
 

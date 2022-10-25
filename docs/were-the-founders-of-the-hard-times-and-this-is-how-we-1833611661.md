@@ -254,7 +254,7 @@ MS: 不，它们简单多了。我想人们真的很反感横幅广告。因为�
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled We&#39;re the Founders of the Hard Times, and This Is How We Work](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-run-a-neighborhood-bookstore-1832604565)</aside>
+
 
 MS: 令人难以置信的满足。我可以和这个世界交流。当我在我的乐队里的时候——我不记得我是否有什么重要的事情要说——但是没有人会听我的。现在，通过我们的笑话，我认为他们有。这是值得的。我真的觉得会有很多人在困难时期开始写作，我大概 50 岁，我会指着电视说"那个人最先在困难时期写作。"
 

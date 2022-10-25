@@ -8,7 +8,7 @@ Stack Overflow，著名的“如果我不知道如何自己编写，我会去那
 
 *虽然你总是可以通过你的网络浏览器强制“黑暗模式”体验，无论是还是通过第三方扩展，没有什么比得上一个网站自己实现的颜色选择和设计。在 Stack Overflow 的情况下，你现在可以从三个不同的主题中选择一个:无聊的光线，令人惊讶的黑暗和自动匹配你当前操作系统设置的“系统”偏好。*
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">*[![Image for article titled How to Turn on Stack Overflow&#39;s New Dark Mode Setting](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-turn-on-whatsapps-new-dark-mode-1841157512)*</aside>
+
 
 *足够幽默的是，负责设计 Stack 的人 Aaron Shekey— 溢出新的黑暗模式体验— 大概连他自己都不会用。在一篇详细的设计博客中，他写道:*
 

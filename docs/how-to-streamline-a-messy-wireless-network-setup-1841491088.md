@@ -35,7 +35,7 @@
 
 你还需要确保不同机场的 wifi 网络都使用不同的频道。虽然他们*应该*自动设置，但你很可能需要 [手动设置](https://lifehacker.com/which-wifi-channels-should-i-use-for-my-wireless-networ-1832788063) 。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Streamline a Messy Wireless Network Setup](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/dont-buy-a-new-wifi-router-until-you-check-these-three-1837477352)</aside>
+
 
 哦。我差点忘了你在问题中隐藏的一个细节。不要将交换机直接连接到电缆调制解调器。几乎在所有情况下，你的家庭网络应该是这样的:**电缆调制解调器>路由器> >其他一切。**将您的路由器视为网络的主网关守卫和控制器。不要在它和它与您的电缆调制解调器之间的甜蜜、纯粹的连接之间放置任何东西，因为如果您的电缆调制解调器只能将一个 IP 地址分配给一个连接的设备(应该是您的路由器，然后它会神奇地为您网络中的所有其他设备分配自己的 IP 地址),这将会导致各种各样的痛苦。(因此它的名字叫做“路由器”。它传送数据。明白了吗？)
 

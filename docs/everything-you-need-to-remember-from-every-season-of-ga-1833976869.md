@@ -10,43 +10,43 @@ io9 整理了一个视频，分解了《权力的游戏》七季中最重要的�
 
 ### 第一季
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Everything You Need To Remember From Every Season of Game of Thrones in 10 Minutes](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://gizmodo.com/io9s-game-of-catch-up-recapping-game-of-thrones-season-1832727385)</aside>
+
 
 * * *
 
 ### 第二季
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Everything You Need To Remember From Every Season of Game of Thrones in 10 Minutes](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://gizmodo.com/dany-loses-her-dragons-a-shadow-baby-is-born-and-more-1832988207)</aside>
+
 
 * * *
 
 ### 第三季
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Everything You Need To Remember From Every Season of Game of Thrones in 10 Minutes](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://gizmodo.com/everything-you-need-to-remember-from-game-of-thrones-th-1833041297)</aside>
+
 
 * * *
 
 ### 第四季
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Everything You Need To Remember From Every Season of Game of Thrones in 10 Minutes](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://gizmodo.com/everything-you-need-to-remember-from-game-of-thrones-fo-1833092393)</aside>
+
 
 * * *
 
 ### 第五季
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Everything You Need To Remember From Every Season of Game of Thrones in 10 Minutes](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://gizmodo.com/everything-you-need-to-remember-from-game-of-thrones-fi-1833094839)</aside>
+
 
 * * *
 
 ### 第六季
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Everything You Need To Remember From Every Season of Game of Thrones in 10 Minutes](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://gizmodo.com/everything-you-need-to-remember-from-game-of-thrones-se-1833646940)</aside>
+
 
 * * *
 
 ### 第七季
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Everything You Need To Remember From Every Season of Game of Thrones in 10 Minutes](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://gizmodo.com/everything-you-need-to-remember-from-game-of-thrones-se-1833809645)</aside>
+
 
 ## 扩展的知识和粉丝理论
 
@@ -84,7 +84,7 @@ io9 整理了一个视频，分解了《权力的游戏》七季中最重要的�
 
 ### io9 预测谁将生存或死亡
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Everything You Need To Remember From Every Season of Game of Thrones in 10 Minutes](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://gizmodo.com/game-of-thrones-final-season-a-definitive-list-of-ever-1830265254)</aside>
+
 
 * * *
 

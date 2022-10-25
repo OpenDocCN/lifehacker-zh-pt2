@@ -12,7 +12,7 @@
 
 我知道我用 [击败了你，我更喜欢烤火鸡](https://skillet.lifehacker.com/choose-taste-over-looks-when-cooking-your-turkey-1820444769) ，但这是另一个它真的能帮到你的例子。去掉脊骨意味着你可以用它(连同脖子和内脏)来制作味道浓郁的高汤，然后你可以用它来制作味道浓郁的肉汁。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Make Turkey Gravy Without Pan Drippings](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-make-seafood-stock-out-of-scraps-1823958899)</aside>
+
 
 ### 你也可以即兴发挥
 

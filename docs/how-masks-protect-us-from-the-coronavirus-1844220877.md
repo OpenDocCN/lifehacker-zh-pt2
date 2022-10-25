@@ -39,4 +39,3 @@
 *   没有面具能提供完美的保护。
 *   即使你戴着口罩，你应该做的其他事情(洗手、保持距离、呆在家里)仍然很重要。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How Masks Protect Us From the Coronavirus](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/put-your-mask-over-your-damn-nose-1844132568)</aside>

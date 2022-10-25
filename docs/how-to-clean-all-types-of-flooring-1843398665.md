@@ -10,7 +10,7 @@
 
 在你拿出拖把和水桶之前，你会想要确保地板表面的灰尘、毛发和其他污垢都被清理干净。是的，一个选择是使用真空吸尘器，但一个好的老式扫帚也可以做到这一点。如果你不习惯使用扫帚， [我们制作了这段视频](https://lifehacker.com/how-to-get-the-most-use-out-of-your-broom-1841958558) ，告诉你如何充分利用扫帚，包括帮助你清洁扫帚的技巧，这样你就不会把灰尘撒到家里的各个地方。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Clean All Types of Flooring](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-get-the-most-use-out-of-your-broom-1841958558)</aside>
+
 
 ### 硬木地板
 

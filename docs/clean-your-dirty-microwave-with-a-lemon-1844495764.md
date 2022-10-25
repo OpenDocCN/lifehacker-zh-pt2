@@ -10,6 +10,6 @@
 
 如果黏糊糊的东西还是不动，就用旧信用卡或橡皮擦(通用名:三聚氰胺泡沫)把它擦掉。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Clean Your Dirty Microwave With a Lemon](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/use-magic-erasers-to-clean-sneakers-grout-and-keyboar-1835154205)</aside>
+
 
 关于所有这些技巧和更多，包括如何去除微波炉玻璃门上的油脂，请看上面的视频。

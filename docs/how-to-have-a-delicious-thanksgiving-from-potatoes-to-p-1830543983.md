@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Have a Delicious Thanksgiving From Potatoes to Pie](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-make-a-delicious-thanksgiving-turkey-1830465631)</aside>
+
 
 但是成功举办感恩节晚餐的关键在于有条不紊，所以我们决定把所有的视频都放在一个地方，并附上菜谱的链接。
 

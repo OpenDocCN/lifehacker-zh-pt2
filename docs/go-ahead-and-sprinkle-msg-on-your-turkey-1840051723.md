@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Go Ahead and Sprinkle MSG on Your Turkey](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/make-turkey-nuggets-for-a-fast-food-style-thanksgiving-1839719105)</aside>
+
 
 我知道这不是新的尝试，但是火鸡肉尝起来没那么好。不知何故，它非常平淡，这是一个矛盾修饰法，但我想不出其他方式来描述它。你可能会觉得有必要和我争论，但是如果火鸡真的很棒，为什么大多数人会花一整天的时间来做这道菜呢？火鸡是一种尝起来不够肉味的肉，但是味精实际上是肉味的结晶形式。(这些都是事实，听说他们不在乎你的感受。)
 

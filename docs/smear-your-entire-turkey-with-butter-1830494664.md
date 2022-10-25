@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Smear Your Entire Turkey with Butter](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-make-a-delicious-thanksgiving-turkey-1830465631)</aside>
+
 
 这是那些 [真如铁皮上说的](https://en.wikipedia.org/wiki/Does_exactly_what_it_says_on_the_tin) 的技术之一。在烤之前，只要软化一条黄油(或者两条，如果你的火鸡超过 15 磅),并在火鸡的每一平方英寸上按摩。全力以赴:皮肤很重要，但也不要忽视蛀牙，一定要尽可能多地在皮肤下面涂上黄油*。不出所料， [我更喜欢咸黄油](https://skillet.lifehacker.com/salted-butter-has-always-been-the-secret-to-better-cook-1822776571) ，但不加盐也不错，尤其是如果你今年很喜欢干盐水的话。*
 

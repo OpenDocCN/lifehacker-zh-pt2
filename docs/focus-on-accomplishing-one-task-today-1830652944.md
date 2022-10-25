@@ -8,7 +8,7 @@
 
 所以，今天就从小事做起。没有必要征服你的整个待办事项清单；相反，专注于一个可以实现的目标——完成公司的时事通讯，准备演讲，安排年终医生预约——并完成它。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Focus on Accomplishing One Task Today](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-start-a-new-habit-and-why-setting-goals-doesnt-1830535655)</aside>
+
 
 如果需要的话，把它分解成 [微任务](http://tps://www.nytimes.com/2018/01/22/smarter-living/micro-progress.html) ，一次检查一个。上面写着*纽约时报*’[更聪明的生活简讯](https://static.nytimes.com/email-content/SL_8057.html?nlid=66291208) ，
 

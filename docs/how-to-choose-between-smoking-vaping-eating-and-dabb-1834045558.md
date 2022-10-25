@@ -30,7 +30,7 @@
 
 食物可以很有力量，人们很容易继续吃一袋美味的口香糖，而忘记它们是难以置信的定时炸弹，在你的胃里等待爆炸。互联网上充斥着人们在食物上吃得过多的故事，最著名的是《纽约时报》 的 [莫林·多德。](https://books.google.com/books?id=cSyKDwAAQBAJ&pg=PA118&lpg=PA118&dq=marueen+dowd+%22overdowding%22&source=bl&ots=Y3I6QYB8A5&sig=ACfU3U2U-IVY5Sr6vYU_ua8wMW7vp6G9FA&hl=en&sa=X&ved=2ahUKEwidqLLsu9DhAhXBCjQIHVvpCzYQ6AEwA3oECAIQAQ#v=onepage&q=marueen%20dowd%20%22overdowding%22&f=false)
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled The Ultimate Guide to Choosing the Type of Weed That&#39;s Right for You](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/what-to-do-if-youre-too-high-1825412214)</aside>
+
 
 Weisbacher 建议从 5 或 10 毫克开始(剂量通常列在包装上)，然后等待一个半小时来感受效果。吸食大麻会直接进入大脑，但食物会在你的胃里溶解，需要更长时间才能起效，但持续时间也更长。
 

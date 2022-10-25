@@ -25,6 +25,6 @@
 
 虽然世卫组织没有明确说明你需要找到一个既有安全盖子又有内部垃圾袋的垃圾桶，但我还是要说，把你的口罩扔进有袋子的垃圾桶可能是个好主意。目标是确保没有其他人会接触到你用过的一次性口罩——没有家庭成员，没有环卫工人，没有污水清理人员(而且，当我们在这的时候，没有鱼)。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Don&#39;t Flush Disposable Masks Down the Toilet](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-dos-and-donts-of-cloth-face-masks-1842880855)</aside>
+
 
 如果可以的话，投资一些布质口罩也是个不错的主意。与一次性口罩相比，建议使用可重复使用的布口罩，以释放一次性口罩(为医护人员提供更好的保护)。一个额外的好处是:口罩几乎不可能被冲进马桶。

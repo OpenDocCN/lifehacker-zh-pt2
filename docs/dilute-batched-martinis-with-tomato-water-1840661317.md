@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Dilute Batched Martinis With Tomato Water](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-throw-a-cheap-dinner-party-cocktails-1825727460)</aside>
+
 
 番茄水——你可以用 [太熟的番茄](https://skillet.lifehacker.com/turn-overripe-tomatoes-into-tomato-water-instead-of-tra-1714564695) 来做——给经典鸡尾酒增添一丝美味和鲜味。根据 [潘趣](https://punchdrink.com/articles/this-frozen-martini-cocktail-recipe-has-a-secret/) 的说法，霹雳公司的迈克·卡波费里用澄清的番茄水制作了 [液体野餐](https://punchdrink.com/recipes/liquid-picnic/) ，这是一种几乎不脏的马提尼酒，“读起来像沙拉”，但“喝起来像马提尼酒”
 

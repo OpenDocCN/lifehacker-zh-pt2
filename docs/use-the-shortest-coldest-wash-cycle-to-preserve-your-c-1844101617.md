@@ -12,7 +12,7 @@
 
 事实证明，这是最温和，最短和最冷的洗涤周期。(这个你大概自己也猜到了。)你可能不知道，自 2005 年推出第一款冷水洗涤剂 以来，P&G 一直是该领域的领导者。但是没有什么能阻止你利用这些知识去购买另一个品牌。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Use the Shortest, Coldest Wash Cycle to Preserve Your Clothes](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/should-you-wash-your-underwear-in-a-salad-spinner-1844041219)</aside>
+
 
 ### 环境冲击
 

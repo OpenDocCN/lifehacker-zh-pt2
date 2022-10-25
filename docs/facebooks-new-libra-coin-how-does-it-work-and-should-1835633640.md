@@ -20,7 +20,7 @@ Libra 是一种即将推出的数字货币，用户可以通过应用程序访�
 
 你不需要*知道下一部分，但是它会产生一些后果，我们稍后会解释。在后端，Libra 用区块链处理交易，有点像比特币。 [区块链是交易的分布式记录](https://lifehacker.com/what-is-blockchain-1822094625) 记录谁拥有多少硬币，谁把什么硬币转给了谁。但是，虽然比特币的区块链分布在每个使用它的人中间，但天秤座的区块链是由天秤座协会管理的。(参见“谁控制着它？”下面。)*
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Facebook&#39;s New Libra Coin: How Does It Work, and Should You Buy It?](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/should-you-buy-bitcoin-1826616664)</aside>
+
 
 ### 它什么时候到来？
 

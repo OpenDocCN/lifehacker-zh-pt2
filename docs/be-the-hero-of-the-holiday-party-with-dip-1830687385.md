@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Be the Hero of the Holiday Party With Dip](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-throw-a-cheap-dinner-party-appetizers-1825577754)</aside>
+
 
 在 Skillet 工作期间，我写了很多关于蘸酱的文章，因为我相信它是一种近乎完美的食物，可以提供真正令人愉快的烹饪体验。用松脆的碎片或植物部分舀起奶油酱，在味道和质地上形成对比，吃起来真的很有趣(也很容易)。(为什么要用花哨的器皿把吃饭复杂化？)我没有让你在这个网站上搜遍所有最好、最棒的蘸酱，而是把它们整理在这里，这样你就可以在这个假期制作、食用和消费它们了:
 

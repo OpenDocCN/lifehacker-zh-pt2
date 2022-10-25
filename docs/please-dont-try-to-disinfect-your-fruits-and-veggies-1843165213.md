@@ -25,7 +25,7 @@ NPDS 无法根据其收集的信息将热线电话和冠状病毒直接联系起
 *   仅在皮肤上使用专为皮肤设计的清洁剂，不要在食物或表面上使用。
 *   不要将清洁产品混合在一起。最好的情况是，它不会让你的东西更干净；最坏的情况是，你可能会毒死自己。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Please Don&#39;t Try to Disinfect Your Fruits and Veggies](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-kill-germs-all-over-your-house-1842613280)</aside>
+
 
 但是对于那些想在从商店回家时擦干净他们的杂货的人( [)即使你不是真的*需要*](https://lifehacker.com/you-dont-need-to-sanitize-your-groceries-1842528397))，什么是清洗你的水果和蔬菜的最好方法呢？半心半意的冲洗——我常用的方法——够了吗？
 

@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Champagne Is the Only Wine You Need for Thanksgiving](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-buy-champagne-on-a-light-beer-budget-1829661228)</aside>
+
 
 我不是品酒师，但我对自己的这个(正确的)观点很有信心。香槟——或者其他来自非香槟地区的优质干起泡酒——是火鸡日的最佳选择，原因有很多。首先，这是一个节日，尤其是如果你做了火鸡的那份烹饪，你应该庆祝。其次(也是更重要的一点)，它的酸性、明亮、冒泡的性质使它成为咸、高脂肪食物的完美陪衬，这正是一份好的感恩节菜单所包含的。如果你怀疑这一点，吃一片蘸酸奶油的薯片，然后喝一大口香槟酒。你的生活将永远改变。但是即使除去脂肪和盐，香槟对任何东西都没有坏处。虽然从技术上来说，甜酒应该比它们所搭配的甜点更甜，但我喝过香槟配甜点派，发现它非常令人愉快。
 

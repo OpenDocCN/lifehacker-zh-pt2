@@ -10,7 +10,7 @@
 
 但在我之前，许多人已经发现了一个秘密:有一种更好的生活方式。没有人真的在乎你每天是否早到。我不知道我是什么时候明白这一点的，但在过去的几个月里，我或多或少地拒绝了所有关于你早上“应该”做什么的建议，正如我在我们关于年度 升级的视频中提到的。称之为工作效率超负荷，但是我没有在每天早上耗尽我所有的精神能量，相反，我正在放松进入我的一天。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Ease Up on Your Morning Routine](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-lifehacker-staffs-biggest-upgrades-of-2018-1831147298)</aside>
+
 
 从很多方面来说，这是我能做的最不具革命性的事情。然而，在这个优化和 [生活失控](https://lifehacker.com/these-coca-cola-hacks-are-as-pointless-as-they-are-ente-1827480241) 的时期，这感觉像是一种边缘性的反叛。我没有把闹钟设在早上 5 点，以便在提前到达开始一整天的工作之前，拿到晨报，跑 5 公里，做三道菜的饭，而是简单地感到寒冷。
 

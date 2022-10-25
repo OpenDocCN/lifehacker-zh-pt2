@@ -6,7 +6,7 @@
 
 下面是我们发现的让你的烹饪器皿恢复原有光泽的最有效的方法。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Our Best Methods to Clean Stained Pots and Pans](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-properly-care-for-cast-iron-1842089019)</aside>
+
 
 ### 酒保的朋友
 

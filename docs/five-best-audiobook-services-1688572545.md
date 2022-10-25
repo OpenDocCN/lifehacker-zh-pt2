@@ -52,7 +52,7 @@
 
 **我们之前已经写过关于喧闹的 的 [，所以你现在应该熟悉这项服务了。如果没有，这里有一个快速的解释:很像 OverDrive，](https://lifehacker.com/hoopla-helps-you-enjoy-the-library-from-the-comfort-of-1826489986) [Hoopla](https://www.hoopladigital.com/) 允许你从不同的库中检查各种类型的媒体；内容列表包括有声读物、电子书和音乐，以及电视节目和电影。您通过提供卡(数字或物理)背面的号码来验证您的图书馆会员身份，这样您就可以访问您图书馆的数字产品。** 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">**[![Image for article titled The Best Audiobook Services](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-best-places-to-find-free-ebooks-1843182342)**</aside>
+
 
 **您可以在 Hoopla 的网站上或通过其应用程序查看您的内容，这些应用程序适用于 [、iOS](https://itunes.apple.com/us/app/hoopla-digital/id580643740?mt=8&amp;uo=4) 、、T5】 Android 和 [亚马逊设备](https://www.amazon.com/Hoopla-Digital/dp/B00JMRGQHI/ref=sr_1_1?amp;keywords=hoopla digital&amp;qid=1413582359&amp;sr=8-1&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/five-best-audiobook-services-1688572545&asc_source=&ie=UTF8&rawdata=[r|https://www.google.com/[ks|google[t|link[p|1826489986[a|B00JMRGQHI[au|5876237249235970051[b|lifehacker&tag=kinjalifehackerlink-20) 。像 Overdrive 一样，你可以在各种媒体类别中一次查看一定数量的内容，但一旦你听完/读完/看完(或者一旦你的“借阅”期到期，就像一个真正的图书馆一样),很容易将内容重新查看。)**
 

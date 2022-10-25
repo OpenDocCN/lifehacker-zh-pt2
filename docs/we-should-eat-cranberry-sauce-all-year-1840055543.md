@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled We Should Eat Cranberry Sauce All Year](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-make-great-gravy-and-boozy-cranberry-sauce-1830502687)</aside>
+
 
 如果没有别的，你应该把它放在你所有的火鸡三明治上。蔓越莓酱在剩菜三明治中有很多好处，但这不是你一年中唯一吃的火鸡三明治。见鬼，涂在其他三明治上也不错——火腿，烤奶酪，或者烤火腿和奶酪都可以从品红色酱汁中受益。
 

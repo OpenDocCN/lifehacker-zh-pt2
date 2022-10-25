@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Build Your Nachos on Doritos](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-make-taco-bell-salt-1832055727)</aside>
+
 
 老实说，我很惊讶——也有点沮丧——塔可钟已经多年没有这样做了。他们已经有了一个墨西哥玉米饼，为什么不在他们丰富的菜单上再增加一个项目呢？把一堆沾满奶酪粉末的薯条和他们的玉米片 BellGrande 配料放在一起？给已经很美味的食物添加更多的味道(和 [味精](https://skillet.lifehacker.com/put-msg-in-everything-you-cowards-1831721707) )是一个简单的方法。我只是觉得有道理。即使塔可钟不接受我的建议，你仍然可以。
 

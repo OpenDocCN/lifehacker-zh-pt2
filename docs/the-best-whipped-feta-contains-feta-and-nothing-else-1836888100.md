@@ -6,7 +6,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled The Best Whipped Feta Contains Feta and Nothing Else](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-cook-with-leftover-feta-brine-1830920233)</aside>
+
 
 当一种食物发现自己拥有某个时刻时，它也会发现自己被写了很多。这种情况发生在 [切片水果](https://www.eater.com/2019/7/31/20748861/cut-fruit-summer-act-of-love) (因为这关系到你的父母有多爱你)和搅打羊乳酪上。网上有很多搅打羊乳酪的食谱，但我看到的每一个都有一个共同点:它们都用另一种更好的乳制品来源补充羊乳酪，有时数量相等。有奶油奶酪的食谱(搅打的和块状的)，酸奶的食谱，labneh 的食谱，和重奶油的食谱。自然，我都试过了。
 
