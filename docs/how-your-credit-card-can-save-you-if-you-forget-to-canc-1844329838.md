@@ -4,7 +4,7 @@
 
 疫情在很多方面影响了美国人的消费方式。4 月， [《纽约时报》报道了](https://www.nytimes.com/interactive/2020/04/11/business/economy/coronavirus-us-economy-spending.html) 在旅游、购物和餐饮方面的支出大幅下降。但是在其他领域也有增长，比如食品杂货和订阅服务。
 
-Watch
+
 
 随着家庭订单取消，人们在家庭娱乐上花费更多。像 [【网飞】](https://www.nytimes.com/2020/04/21/business/media/netflix-q1-2020-earnings-nflx.html)[迪士尼加](https://variety.com/2020/digital/news/hamilton-disney-plus-premiere-app-downloads-72-percent-1234698795/) 和 [xBox](https://www.theverge.com/2020/4/29/21242004/xbox-game-pass-10-million-subscribers-microsoft-q3-2020-earnings) 这样的服务自疫情开始以来都有所增长。咖啡订阅量也有所上升。
 

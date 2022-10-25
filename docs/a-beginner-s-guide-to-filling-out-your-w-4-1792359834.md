@@ -4,7 +4,7 @@
 
 也许你 [开始了你的第一份工作](https://twocents.lifehacker.com/the-money-moves-to-make-after-landing-your-first-job-1601217705) 或者也许你 [为了全职工作放弃了自由职业的生活](https://lifehacker.com/how-to-level-up-your-freelance-income-this-year-1834844906) 。无论您的情况如何，如果您发现自己第一次填写 W-4，您可能会对所有的字段、工作表和表单感到困惑。是的，国税局会让事情变得混乱。让我们一步一步来。
 
-Watch
+
 
 ## **输入您的个人信息**
 

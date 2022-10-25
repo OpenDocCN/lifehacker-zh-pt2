@@ -4,7 +4,7 @@
 
 无论你是在 [Windows](https://support.office.com/en-us/article/copy-the-window-or-screen-contents-98c41969-51e5-45e1-be36-fb9381b32bb7?ocmsassetID=HP001038284&CorrelationId=74acf2a3-0c32-44e1-9463-746b15eab356&ui=en-US&rs=en-US&ad=US) (点击键盘上的打印屏幕按钮)还是[Mac](https://support.apple.com/en-us/HT201361)(Shift-Command-5)，捕捉屏幕截图都很容易。虽然你可以使用各种键盘命令或屏幕选项将活动窗口隔离开来，这样可以更容易地拍摄你正在做的事情，但如果你试图拍摄整个网站的照片，这仍然不是理想的——当然，不是你屏幕上的任何内容。
 
-Watch
+
 
 承诺为你拍摄整页截图的浏览器扩展并不缺乏，其中一些相当不错(假设你在使用它们时没有任何疯狂的渲染问题)。然而，你并不真的需要一个扩展来截图一个网页。我们已经在 Firefox 中介绍过如何做到这一点，现在轮到 Chrome 了。
 

@@ -4,7 +4,7 @@
 
 谷歌的 Google One 云存储服务是在欺骗所有人吗？我承认，这不是我想得太多的事情，但是一位 Lifehacker 的读者最近给我们的 [技术建议专栏](https://lifehacker.com/c/tech-911) 写了一封信，问了这个问题。
 
-Watch
+
 
 我会让乔治解释:
 

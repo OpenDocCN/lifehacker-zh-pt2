@@ -4,7 +4,7 @@
 
 Flickr 不会消失，但如果你不遵循 [它的新限制](https://www.businesswire.com/news/home/20181101005328/en/Flickr-Announces-New-Photographer-Centric-Improvements-Flickr-Pro):1000 张照片，就这样。这些照片可以是你想要的任何尺寸，但是你只能得到一千张。Flickr 存储空间免费万亿字节的时代即将结束。
 
-Watch
+
 
 忽略 Flickr 的新指导方针，接下来几个月你将会面临以下情况:
 

@@ -4,7 +4,7 @@
 
 Mozilla 为其计划已久的虚拟专用网 [、火狐专用网](https://fpn.firefox.com/) 推出了测试版，为移动和桌面用户增加了又一项虚拟专用网服务。目前有一个 [等待测试访问](https://fpn.firefox.com/vpn/invite) ，所以我们还没有机会测试新服务，但有一些显著的功能帮助 Firefox Private Browsing 在已经 [拥挤的 VPN 市场](https://lifehacker.com/how-to-find-a-trustworthy-vpn-1833045522) 中脱颖而出。
 
-Watch
+
 
 与 [免费的火狐隐私浏览插件](https://lifehacker.com/how-to-secure-your-browsing-with-mozillas-free-firefox-1838062102) 只保护部分(而非全部)火狐浏览数据不同，火狐隐私浏览 VPN 服务对 Windows 和 Android 设备上的*所有*网络活动进行加密(未来将增加 iOS、Mac 和 Linux 支持)。这包括所有桌面和移动浏览器以及所有 Windows 10 应用程序。
 

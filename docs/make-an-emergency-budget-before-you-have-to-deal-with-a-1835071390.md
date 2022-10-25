@@ -4,7 +4,7 @@
 
 阅读本网站的每个人都听说过一两件关于拥有 [应急基金](https://twocents.lifehacker.com/how-big-your-emergency-fund-should-be-1825319181) 的重要性的事情。但是当这种紧急情况出现时，你如何明智地使用这笔钱呢？
 
-Watch
+
 
 艾琳·洛瑞 [破千年](https://brokemillennial.com/) 最近在推特上问:
 

@@ -4,7 +4,7 @@
 
 sonos——主要以其无线多房间扬声器、音乐流媒体设备和智能扬声器系列而闻名的音频品牌——[今天](https://blog.sonos.com/en/end-of-software-updates-for-legacy-products/) 宣布，它计划在 2020 年 5 月停止对其几款最老设备的支持。
 
-Watch
+
 
 不推荐使用的设备的完整列表如下:
 

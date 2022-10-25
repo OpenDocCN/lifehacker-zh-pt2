@@ -4,7 +4,7 @@
 
 如果你家里有门铃或摄像头，你应该立即更改密码并在帐户上设置双因素身份验证。
 
-Watch
+
 
 *Buzzfeed* [今日](https://www.buzzfeednews.com/article/carolinehaskins1/data-leak-exposes-personal-data-over-3000-ring-camera-users) 证实，3，672 名 Ring 客户的登录凭证最近遭到泄露。与这些账户相关的电子邮件和密码，以及相机所在的时区，以及你可能给相机起的名字，如“后门”或“游泳池”，都被泄露了。
 

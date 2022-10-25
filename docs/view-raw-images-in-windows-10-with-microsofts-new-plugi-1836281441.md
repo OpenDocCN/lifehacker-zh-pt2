@@ -4,7 +4,7 @@
 
 微软刚刚为 Windows 10 发布了一个免费的 RAW 图像扩展，使得在 Windows 的文件浏览器中查看 RAW 文件更加容易——摄影师们，欢呼吧。你不必使用 Adobe Photoshop 或其他第三方应用程序和插件来打开 [RAW 图像](https://lifehacker.com/which-format-is-best-when-you-should-shoot-photos-in-j-5907434) ，你也可以使用 Window 10 的内置照片应用程序来打开它们，就像你会更简单。JPG 或者。PNG 文件。
 
-Watch
+
 
 首先，在 Windows 商店中找到[RAW Image extension](https://www.microsoft.com/en-us/p/raw-image-extension/9nctdw2w1bh8)“app”并将其安装到您的系统中。(你需要先运行[Windows 2019 年 5 月 10 日](https://lifehacker.com/the-best-new-features-in-windows-10s-may-2019-update-1834927597) 更新，所以确保你也完成了那个过程。)
 

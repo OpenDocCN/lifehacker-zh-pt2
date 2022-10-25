@@ -4,7 +4,7 @@
 
 一个好的主持人总是手头有某种酒，但一个真正的明星主持人有一杯分批鸡尾酒，冰镇后随时可以倒。由于预制的鸡尾酒没有搅拌或摇晃，你必须用一点水稀释它们，只是为了让它们变得圆润，缓和燃烧。普通的过滤水很好，但是对于额外的特殊马提尼，尝试用西红柿水稀释。
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Dilute Batched Martinis With Tomato Water](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-throw-a-cheap-dinner-party-cocktails-1825727460)</aside>
 

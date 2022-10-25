@@ -4,7 +4,7 @@
 
 如果我对 [烤火鸡](https://skillet.lifehacker.com/choose-taste-over-looks-when-cooking-your-turkey-1820444769) 有一点批评的话，那就是你不能把它塞满。我甚至不喜欢火鸡里的填料，但称之为“填料”感觉不对，因为你实际上并没有做这样的事情。但是你也可以用填料填充其他东西，我最喜欢的是(可爱！)迷你壁球。
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Amaze Your Thanksgiving Guests With Personal Stuffing-Stuffed Squash](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/make-a-stunning-vegetarian-main-for-thanksgiving-1830294672)</aside>
 

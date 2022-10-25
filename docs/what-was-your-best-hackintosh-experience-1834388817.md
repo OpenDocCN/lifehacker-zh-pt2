@@ -4,7 +4,7 @@
 
 Lifehacker 最受欢迎的帖子之一，我们的 [黑客指南](https://lifehacker.com/the-always-up-to-date-guide-to-building-a-hackintosh-o-5841604?_ga=2.245553159.2031387578.1556546056-1723114163.1524514905) ，开始显示出它的年龄。是时候给这篇文章涂上一层新的油漆了，但在改造工作开始之前，我想听听你对每个极客的大梦想的体验:在非苹果设备上运行 macOS 的能力。
 
-Watch
+
 
 出于两个原因，我请求你们的故事、评论、建议和提示。首先，我已经有一段时间没有构建一个 hackintosh 了——一个*长的*而——我记得它需要 [一点配置](https://io9.gizmodo.com/how-to-run-mac-os-x-inside-windows-using-virtualbox-5938332) 才能开始。我敢肯定，有很多资源可以提供最新的信息和应用程序，帮助人们开始使用 hackintosh。**我很想听听你是从哪里获得信息、应用程序和实用程序来让这个神秘的过程发挥作用的。**
 

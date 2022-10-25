@@ -4,7 +4,7 @@
 
 我们很多人每天都花一点时间写下生活中发生的事情，或者我们的感受，或者我们感激的事情。
 
-Watch
+
 
 无论你是做还是 [单句日记](https://lifehacker.com/keep-a-single-sentence-journal-if-you-don-t-have-time-1694427601) ，考虑在你的日常习惯中增加一项:*写下* *你所学到的*。
 

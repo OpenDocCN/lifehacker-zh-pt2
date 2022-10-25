@@ -4,7 +4,7 @@
 
 谷歌 Pixel 用户将发现一个新的 [【规则】功能从今天](https://www.blog.google/products/pixel/more-pixel-features-dropping) 开始添加到他们的设备中。规则类似于 [iOS 快捷键](https://lifehacker.com/try-out-iphone-automation-with-this-list-of-150-ios-sh-1833153395) ，允许你在特定位置时创建自动设置更改的开关——尽管相比之下，Android 规则更多地局限于快捷键。目前，您只能设置规则:
 
-Watch
+
 
 *   打开“请勿打扰”模式。
 *   将通知设置为静音。

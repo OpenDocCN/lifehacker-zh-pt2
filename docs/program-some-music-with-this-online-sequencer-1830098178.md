@@ -4,7 +4,7 @@
 
 80 年代，一只乌龟教孩子们如何编码，用 [这个教育编程语言标识](https://www.controlaltachieve.com/2017/12/turtle-coding.html) 。现在，基于浏览器的音乐音序器 [turtle.audio](http://turtle.audio/) 将 Logo 和 Mario Paint 结合起来，让你编写 synth 循环程序。
 
-Watch
+
 
 Turtle.audio 比许多其他在线音乐玩具更不直观，因为其中涉及一些编程原则。与谷歌的歌曲制作软件 等音序器不同，Turtle.audio 在 2D 工作，在这些音序器中，你所有的音乐曲目都遵循相同的时间线。黑点——就像 Logo 里会动的乌龟——遵循设定的路径，弹奏它们碰到的每个彩色音符。同一个音符可以位于不同的点的路径上，这鼓励用户将他们的点同步成令人愉快的互补曲调。
 

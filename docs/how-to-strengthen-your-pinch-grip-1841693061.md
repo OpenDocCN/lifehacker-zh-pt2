@@ -4,7 +4,7 @@
 
 我们已经用抓手 和 [训练了](https://vitals.lifehacker.com/how-to-get-a-stronger-support-grip-for-deadlifts-and-ha-1841519693) [挤压抓手和](https://vitals.lifehacker.com/februarys-fitness-challenge-is-grip-1841383983) 支撑抓手。现在是另一种握拍力量的时候了:捏握。
 
-Watch
+
 
 强有力的握力会帮助你抓住你用手抓不住的东西。根据物体的宽度，以及捏的时候手指是平的还是弯曲的，你会用到不同的肌肉。如果你用一只手捏而不是两只手捏，你用手的方式也会有所不同。
 

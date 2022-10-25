@@ -4,7 +4,7 @@
 
 我们可能都希望银行里有更多的现金。一个简单的方法是减少住房和交通费用。
 
-Watch
+
 
 *商业内幕* [最近采访了《工作可选:提前退休的非吝啬之道](https://www.businessinsider.com/retire-early-financial-independence-save-more-money-2019-2) 》一书的作者坦娅·海丝特 在这本书里，海丝特提出了一些建议，告诉你如何能存更多的钱，而又不觉得自己在省钱。在她看来，最简单的方法之一是削减住房和交通成本。
 

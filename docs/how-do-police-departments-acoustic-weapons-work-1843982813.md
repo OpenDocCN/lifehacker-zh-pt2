@@ -6,7 +6,7 @@
 
 [闪光爆炸手雷](https://www.prevention.com/health/a32757232/what-is-flash-bang-grenade/?utm_medium=social-media&utm_source=twitter&utm_campaign=socialflowTWPVN) ，也叫眩晕手雷，是爆炸装置，当被引爆时会发出极大的爆炸声和明亮的灯光，意在迷惑人。一种 [远程声学装置(LRAD)，](https://pitchfork.com/thepitch/understanding-the-lrad-the-sound-cannon-police-are-using-at-protests-and-how-to-protect-yourself-from-it/?verso=true) 也称为“声炮”，是一种扬声器系统和声能武器用于通过发出极大的高频噪音来驱散人群，这种噪音会给暴露在外的人造成痛苦、迷失方向和伤害。在最近一个特别突出的例子中， [MSNBC 记者 Jo Ling Kent 在进行电视直播时被一枚闪光爆炸手榴弹](https://twitter.com/MSNBC/status/1267721172050984960?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1267721172050984960&ref_url=https%3A%2F%2Fwww.prevention.com%2Fhealth%2Fa32757232%2Fwhat-is-flash-bang-grenade%2F) 击中，正在报道西雅图的抗议活动。
 
-Watch
+
 
 尽管这两种类型的装置仅仅是为了迷惑人，闪光手榴弹和声炮*能*造成非常严重的伤害。
 

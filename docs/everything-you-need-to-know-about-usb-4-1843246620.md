@@ -4,7 +4,7 @@
 
 USB 4——或其官方品牌 USB 4——正在技术层面上，就像 [WiFi 6E](https://lifehacker.com/what-you-need-to-know-about-wifi-6e-1843050220) 或 [移动 5G](https://lifehacker.com/5g-phones-are-coming-soon-but-you-should-wait-to-buy-o-1831406561) 一样，你可能会有很多关于新 USB 标准对你的许多设备意味着什么的问题。所以，让我们快速浏览一下我们所知道的关于即将到来的 USB4 的一切。
 
-Watch
+
 
 ### 这是一次速度和带宽的大升级
 

@@ -4,7 +4,7 @@
 
 众所周知，在孩子面前过度争吵不是一个好主意——这不仅会给他们带来情绪上的痛苦，而且 [会影响他们处理情绪的方式以及他们未来建立关系的方式](https://www.parents.com/health/parents-news-now/parents-who-fight-in-front-of-kids-may-do-more-harm-than-they-think/) 。
 
-Watch
+
 
 但是这并不意味着你应该在他们面前压抑你所有的负面情绪，根据华盛顿州立大学 的一项新研究，并发表在期刊 [情感](http://psycnet.apa.org/doiLanding?doi=10.1037%2Femo0000527) 上。
 

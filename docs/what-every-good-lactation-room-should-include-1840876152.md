@@ -4,7 +4,7 @@
 
 前几天，在闲聊关于 [和](https://lifehacker.com/store-your-breast-pump-parts-in-the-fridge-between-sess-1840874381) 的时候，我的几个同事开始讨论什么样的工作场所才有足够的哺乳空间。我决定问问专家们( [后代脸书集团](https://www.facebook.com/groups/2018785615043946/) )他们认为私人抽水空间应该包括什么，这些人从来没有这么快回答过问题。他们说，一个好的抽水室是一项人权，但实际上并没有说。
 
-Watch
+
 
 如果你的未来是在工作场所工作，这里列出了一个好的——和一个更好的——雇主会给你提供什么。如果他们没有提供一个私人哺乳室来完成这个列表上的项目，请随意转发这篇文章，让他们注意到这样一个事实，不，在浴室隔间抽水是不够的( [根据法律](https://www.womenshealth.gov/supporting-nursing-moms-work/what-law-says-about-breastfeeding-and-work/what-employers-need-know/#2) )，是的，这应该是一个优先事项。
 

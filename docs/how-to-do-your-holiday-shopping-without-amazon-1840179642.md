@@ -4,7 +4,7 @@
 
 亚马逊以通常优于竞争对手的价格，储存你能想象到的所有商品。但是，如果能在两天内(或更短时间内)拿到 12 包纸巾或任何你想要的东西，那就有些不对劲了。
 
-Watch
+
 
 也许是该公司一些仓库的高受伤率，特别是在繁忙的假日运输季节，促使一个 [600 名工人请愿](https://www.vox.com/the-goods/2019/11/27/20985691/amazon-workers-black-friday-2019) 在轮班期间增加休息时间。或者是关于 [繁重的完成配额](https://www.theatlantic.com/technology/archive/2019/11/amazon-warehouse-reports-show-worker-injuries/602530/) 的报告，这些报告导致员工受伤的比率远远高于其他仓库。或 [履行中心工人要求更好工作条件的](https://lifehacker.com/how-to-support-the-amazon-prime-day-strike-1836309627) 黄金日罢工。或者是 [公司的计划](https://gizmodo.com/jeff-bezos-how-about-just-letting-amazon-draft-any-pos-1838470759) 起草面部识别政策向立法者推销。
 

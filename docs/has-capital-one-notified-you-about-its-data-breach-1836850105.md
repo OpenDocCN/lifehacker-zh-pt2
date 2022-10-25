@@ -4,7 +4,7 @@
 
 如果你是 Capital One 的客户，你很可能被该公司最近的数据泄露事件所困扰——该事件影响了 1.06 亿人(美国 1 亿人，加拿大 600 万人)。)我们的问题是:如果你受到影响，Capital One 实际上*告诉过*你吗？
 
-Watch
+
 
 这听起来可能是一个愚蠢的请求，但我们想知道你是否真的从 Capital One 那里听到了什么。很有可能你是通过新闻而不是 Capital One 本身了解到漏洞的。虽然该公司在新闻稿 的细则中承诺 [将开始接触受影响的客户，但它似乎并没有真正开始这样做:](https://lifehacker.com/when-theres-a-data-breach-always-read-the-fine-print-1836816788)
 

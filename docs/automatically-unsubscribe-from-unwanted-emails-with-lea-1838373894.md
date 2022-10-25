@@ -4,7 +4,7 @@
 
 几年前，Unroll.me 承诺免费帮助用户集体退订电子邮件简讯。原来他们正在扫描用户的电子邮件并出售数据——例如， [将 Lyft 电子邮件中的数据出售给优步](https://lifehacker.com/unroll-me-the-email-unsubscription-service-has-been-c-1794593445) 。这就是为什么你应该花钱购买【别烦我】，这是一种不出售用户数据的电子邮件退订服务。
 
-Watch
+
 
 ### 它是如何工作的
 

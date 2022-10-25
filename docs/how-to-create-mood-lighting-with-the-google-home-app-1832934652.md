@@ -4,7 +4,7 @@
 
 谷歌一直在缓慢但稳步地将谷歌 Home 应用程序转变为一个集中的控制中心。如果你最近没有打开这个应用，你可能没有注意到 [的新功能和设置](https://www.blog.google/products/home/new-home-app/) 。这些新功能中最近的一项是在 Google Home 应用程序中原生改变智能家居灯泡颜色的能力——尽管该应用程序有亮度调节设置和其他智能灯光功能，但这一点显然没有。
 
-Watch
+
 
 从技术上来说，以前可以通过使用飞利浦、LIFX 和其他公司的第三方应用程序来改变智能灯的颜色，但你必须为你安装的每个品牌的灯使用合适的应用程序，或者在某些情况下， [谷歌助手语音命令](https://lifehacker.com/the-best-google-assistant-skills-to-use-with-your-googl-1792134538) 。然而，Google Home 的新灯光控制设置 消除了对那些第三方应用的需求。Google Home 用户现在可以改变家中每个 Google Home 连接的灯泡的颜色，就像该应用程序让用户控制智能灯泡的亮度一样。以下是如何在 Google Home 应用程序中访问新的颜色灯设置。
 

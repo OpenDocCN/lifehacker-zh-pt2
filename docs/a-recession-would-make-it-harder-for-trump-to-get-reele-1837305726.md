@@ -4,7 +4,7 @@
 
 距离总统大选还有一年多的时间，但是一个话题正在成为讨论的焦点，那就是经济。随着 [迹象指向低迷](https://twocents.lifehacker.com/how-youll-know-a-recession-is-coming-1837273628) ，我们的经济健康将如何影响选举？
 
-Watch
+
 
 特朗普总统似乎并不担心这一点。据《华尔街日报》 报道， [他对新罕布什尔州的一家广播电台说，“现在的经济是惊人的”。“在利率正常化的情况下，我们做得非常出色。我们过了几天糟糕的日子。但我们会有一些非常好的日子。”](https://www.wsj.com/articles/any-economic-downturn-could-scramble-trumps-2020-strategy-11565898073?mod=hp_lista_pos4)
 

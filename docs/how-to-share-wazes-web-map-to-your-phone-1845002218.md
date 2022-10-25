@@ -4,7 +4,7 @@
 
 现在，你可以在桌面上用 Waze Live 地图规划出你的下一次公路旅行，然后将这些路线发送到你的手机上。这个新功能是 [live for everyone](https://medium.com/waze/new-feature-alert-you-can-now-save-your-drives-from-the-web-to-your-app-587f2406b652) ，你可以通过桌面上的 [Waze 的 live 地图](https://www.waze.com/livemap) 来访问。当然，Waze 应用程序需要安装在你的手机上才能加载路线，但这是唯一的要求。
 
-Watch
+
 
 Waze 允许你以两种方式将路线分享给你的手机:你可以在网络和移动应用程序上登录你的 Waze 帐户，并同步这两个设备，或者你可以跳过在桌面上登录，通过用手机扫描二维码来加载路线。
 

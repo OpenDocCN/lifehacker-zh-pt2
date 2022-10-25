@@ -4,7 +4,7 @@
 
 上个月，冒充 ExpediaT3[的骗子从希望通过电话确认或更改预订的旅行者那里窃取了数千美元。但是在真正的 Expedia 上预订机票——以及像 Travelocity 这样的第三方网站——也有一定的(法律)风险。](https://www.digitaltrends.com/news/expedia-warns-travelers-of-scam/) 
 
-Watch
+
 
 如果你的计划改变，你可能无权退款，正如一位 Redditor [最近发现的](https://www.reddit.com/r/tifu/comments/4sf1wn/tifu_by_throwing_away_5000_in_nonrefundable/) (在这个过程中几乎损失了 5000 美元)。如果你打算通过 Expedia 或 Kayak(一个带你去其他预订网站的搜索引擎)预订机票，这里是我们的警告:总是先货比三家，在点击确认按钮之前仔细阅读细则。你可以省去高额的费用和几次冗长的客户服务电话。
 

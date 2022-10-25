@@ -4,7 +4,7 @@
 
 最近的一项 [Buzzfeed 调查](https://www.buzzfeednews.com/article/craigsilverman/vpn-and-ad-blocking-apps-sensor-tower) 发现，几个流行的 Android 和 iOS VPN 和广告拦截应用程序秘密收集用户数据，并将其发送到 Sensor Tower，这是一个为应用程序开发者提供的跨平台数据分析服务。窥探应用包括:
 
-Watch
+
 
 *   Adblock Focus (Android 和 iOS)
 *   免费和无限制的 VPN (Android)

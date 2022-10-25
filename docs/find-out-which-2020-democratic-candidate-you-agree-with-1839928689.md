@@ -4,7 +4,7 @@
 
 随着前马萨诸塞州州长 [德瓦尔·帕特里克](https://lifehacker.com/where-do-deval-patrick-and-michael-bloomberg-stand-on-m-1839857136) 参加 2020 年总统竞选的最新消息——以及迈克尔·彭博参选的真实可能性——跟上候选人提出的所有 18 政策正变得日益困难。(我们试过了。 [这里的](https://lifehacker.com/heres-every-2020-democratic-candidates-plan-to-end-gun-1836917130) [都是](https://twocents.lifehacker.com/how-elizabeth-warren-plans-to-pay-for-medicare-for-all-1839541911) [几个](https://twocents.lifehacker.com/see-how-the-democratic-candidates-tax-plans-would-affec-1839098593) 对考生在重大问题上的立场进行引导。)
 
-Watch
+
 
 幸运的是，如果你仍然对候选人在电视辩论中争论的问题感到困惑，最近在七个主要政策领域调查了 2020 年竞选的大多数民主党候选人。这些领域包括他们改革教育、移民、医疗保健、外交政策和应对气候变化的提议——这些问题在候选人在辩论焦点的短暂时刻并不总是得到解决。
 

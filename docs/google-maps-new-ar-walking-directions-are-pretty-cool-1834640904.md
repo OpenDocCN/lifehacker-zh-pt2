@@ -4,7 +4,7 @@
 
 在昨天的 [I/O 2019 主题演讲](https://lifehacker.com/everything-google-announced-at-i-o-2019-that-matters-1834582453) 中，谷歌展示了其对谷歌地图的增强现实雄心，但我没想到谷歌很快就开始飙升，但我们开始了。从今天开始，数量不详的 Android 爱好者将获得谷歌新“AR 导航体验”的早期预览，该公司称之为“AR 导航体验”。
 
-Watch
+
 
 据我所知，你不需要在你的 Android 设备上更新谷歌地图来尝试新功能。然而，你确实需要一个像素(我不知道你的像素能有多旧，尽管我成功地使用了 Pixel 3 XL 和新发布的 Pixel 3a XL)。
 

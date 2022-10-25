@@ -4,7 +4,7 @@
 
 如果即将到来的 Chrome 86 更新有一个主题，那似乎就是“效率”。我们已经看到了 [节省内存的变化，这应该使 Chrome 不那么耗电](https://lifehacker.com/preview/switch-to-chrome-canary-for-now-to-get-chrome-86s-batte-1844283047?rev=1594064460353) ，但用户也有一个新的节省数据的“LiteVideo”模式值得期待。
 
-Watch
+
 
 LiteVideo 模式通过“假装”设备的网络连接很慢来强制视频以标清(SD)播放，因此网站将切换到标清播放分辨率，而不是高清。这减少了流传输时使用的数据量，应该有助于视频加载更快，在连接不良的情况下播放更流畅。
 

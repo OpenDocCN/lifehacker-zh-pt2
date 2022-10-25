@@ -4,7 +4,7 @@
 
 本周早些时候，知名手机侦探 Steve Hemmerstoffer([@ on leaks 在 Twitter 上](https://twitter.com/OnLeaks) ) [与 price Baba](https://pricebaba.com/blog/google-pixel-4-renders-exclusive)[合作，根据泄露的原理图制作即将推出的 Pixel 4 的渲染图](https://twitter.com/OnLeaks/status/1138082917995995137) 。自然，这让谣言工厂愤怒了，但现在在一个前所未有的举动中，谷歌决定用 Pixel 4 的第一张官方图片来提升最近的粉丝渲染。
 
-Watch
+
 
 这是一个巨大的惊喜，原因有很多。首先，如果之前的 Pixel 发布可以作为参考的话，我们距离谷歌传统的秋季发布窗口还有四五个月的时间。
 

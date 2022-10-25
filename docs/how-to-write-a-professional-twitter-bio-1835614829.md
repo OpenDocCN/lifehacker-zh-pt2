@@ -4,7 +4,7 @@
 
 你的 Twitter 账户应该反映你的个人生活，还是你的专业知识？可以说，答案是“两者都有”——但要找到如何平衡这两种身份并不总是那么容易。
 
-Watch
+
 
 在自由职业者 的 [上，艾米丽·高德特解释了如何创建一个 Twitter feed，让人们了解你的专业工作，同时提醒他们应该喜欢(并关注)你的所有理由:](https://contently.net/2019/06/12/resources/how-to-use-twitter-writer-professional-freelance/)
 

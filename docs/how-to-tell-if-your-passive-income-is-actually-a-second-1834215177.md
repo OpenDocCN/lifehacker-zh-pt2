@@ -4,7 +4,7 @@
 
 如果你目前正试图建立一个被动收入流——因为你正朝着 [财务独立](https://lifehacker.com/how-to-become-financially-independent-and-retire-early-1825651509) 努力，追逐那种 [每周 4 小时工作制](https://fourhourworkweek.com/)——或者只是希望赚一点额外的现金——你可能已经发现赚取被动收入需要做很多工作。
 
-Watch
+
 
 毕竟，你不能只是创建一个网站，然后希望人们会买你卖的东西；你需要找到你的理想客户，为他们的问题创造一个解决方案，有效地推销这个解决方案，等等。
 

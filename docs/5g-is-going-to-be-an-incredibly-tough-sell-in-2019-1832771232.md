@@ -4,7 +4,7 @@
 
 虽然雪崩般的公告可能会让它看起来不是这样，但今天正式标志着 2019 年世界移动通信大会的第一天，除了所有在展会上展出的[怪异](https://gizmodo.com/thank-god-phones-are-getting-weird-again-1832766372)新手机，毫无疑问，展会的另一个大主题是 5G。
 
-Watch
+
 
 到目前为止，几乎所有的主要运营商都已经开始部署 5G 网络，随着 [Galaxy S10 5G](https://gizmodo.com/the-galaxy-s10-is-the-aggressively-tech-loaded-phone-sa-1832689468?rev=1550692614275) ， [一款来自高通的新 5G 调制解调器](https://www.qualcomm.com/products/snapdragon-x55-5g-modem) ， [甚至更多支持 5G 的手机](https://gizmodo.com/lg-s-first-5g-phone-can-turn-into-a-dual-screen-sandwic-1832851687#_ga=2.107997447.464095689.1550857839-75259643.1519645932) 将在 MWC 发布，这有点像我们正在达到 5G 势头的临界质量。
 

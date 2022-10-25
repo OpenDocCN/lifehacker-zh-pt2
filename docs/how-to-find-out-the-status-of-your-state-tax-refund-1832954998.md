@@ -4,7 +4,7 @@
 
 如果你已经提交了你的纳税申报表，并且正在等待那笔 [甜蜜的、甜蜜的退款](https://twocents.lifehacker.com/what-to-do-with-your-tax-refund-1822515530) ，你可能知道检查你的联邦身份是多么容易。你只需登录国税局的网站或使用其应用程序(你可以 [在这里](https://sa.www4.irs.gov/irfof/lang/en/irfofgetstatus.jsp) 追踪你的)。
 
-Watch
+
 
 联邦政府在退款方面效率相当高(或者说，至少近几年在是这样)，你只需等待不到三周的，资金就会打到你的账户上。
 

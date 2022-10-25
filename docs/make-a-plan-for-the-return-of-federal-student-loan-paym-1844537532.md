@@ -4,7 +4,7 @@
 
 本周，参议院共和党人 [提出了疗愈法案](https://www.mcconnell.senate.gov/public/index.cfm/2020/7/mcconnell-outlines-historic-relief-proposal-for-an-important-crossroads-in-this-battle) ，该党的下一个刺激救济法案。虽然 1 万亿美元的计划需要失业保险、 [直接支付](https://twocents.lifehacker.com/what-can-you-expect-from-a-second-stimulus-check-1844497280) 、可原谅的 [薪水保障计划(PPP)](https://twocents.lifehacker.com/automate-ppp-loan-forgiveness-with-this-free-tool-1844444391) 贷款等等——但对学生贷款借款人来说却没有多少。据美国消费者新闻与商业频道报道,《治愈法案》要求简化还款计划或延长联邦付款暂停期——但跳过了新的学生贷款豁免项目。
 
-Watch
+
 
 三月份，国会通过了《关爱法案》 ,该法案为陷入困境的借款人提供了 [暂停联邦学生贷款支付的机会](https://twocents.lifehacker.com/heres-the-new-coronavirus-student-loan-plan-1842560767) 直到 9 月 30 日。距离最后期限不到两个月，如果下一个救助法案不延长暂停付款，4000 万借款人可能会陷入困境。政治报道教育部已经准备在八月中旬向受影响的借款人发出警告。
 

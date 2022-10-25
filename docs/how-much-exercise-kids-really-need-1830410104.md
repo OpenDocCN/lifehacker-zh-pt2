@@ -4,7 +4,7 @@
 
 在 [美国人的新锻炼指南](https://vitals.lifehacker.com/the-new-exercise-guidelines-are-even-easier-to-meet-1830380875) 中，孩子们得到了自己的一节。我们并不总是考虑我们的孩子有多四处走动，但我们可能应该这样做。更多的锻炼意味着更好的睡眠和更好的心情，更不用说为孩子更健康的成年做准备了。
 
-Watch
+
 
 ### 基础知识
 

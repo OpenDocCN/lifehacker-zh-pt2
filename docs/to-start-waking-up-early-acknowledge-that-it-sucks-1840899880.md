@@ -4,7 +4,7 @@
 
 如果你很难早起，接受一个简单的事实可能会有所帮助:在第一个清晨起床就像撕掉创可贴。
 
-Watch
+
 
 你可以试着用我们的睡眠和早晨相关的技巧让事情变得简单。给自己 [充足的睡眠时间](https://lifehacker.com/sleep-opportunity-is-the-key-to-actually-getting-enou-1821151153) ，晚上避免 [屏幕、咖啡因和酒精](https://lifehacker.com/get-better-sleep-and-start-mornings-strong-with-the-10-1762499118) ，设置一个 [实际有效的闹钟](https://lifehacker.com/this-evil-alarm-clock-app-is-the-only-reason-i-m-awake-1793682623) 。但是如果你没有心情在闹钟响的时候醒来，养成这个习惯的唯一方法就是*真的起床*。
 

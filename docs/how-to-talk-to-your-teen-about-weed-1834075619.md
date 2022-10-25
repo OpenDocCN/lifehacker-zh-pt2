@@ -4,7 +4,7 @@
 
 每一代人似乎都更加接受大麻的使用，毫不奇怪 [趋势显示](https://stayhipp.com/news/how-different-generations-view-marijuana/) 。对于出生于 1993 年至 2007 年间的 Z 世代，大麻被视为比酒精更健康的 [。孩子们正在步入成年，大麻不像毒品那样会让他们疯狂地寻找普通的汉堡，而更像是一种帮助他们在紧张的一天后冷静下来的工具。根据彭博的一项调查，这一代年轻人吸食大麻的可能性是全国平均水平的两倍，无论是通过吸食、蒸发还是食用。](https://www.bloomberg.com/news/articles/2019-04-05/what-s-gen-z-and-how-can-you-invest-cannabis-influencers-key)
 
-Watch
+
 
 如果你是一位母亲或父亲，你对大麻的看法可能比你的父母更为宽松。那很好。但是不管你对合法化怎么看，请记住这一点:大麻对未成年人来说仍然是非法的，并且 [研究](https://www.apa.org/monitor/2015/11/marijuana-brain.aspx) 表明它会对青少年的大脑产生长期影响。
 

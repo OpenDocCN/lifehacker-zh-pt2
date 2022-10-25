@@ -4,7 +4,7 @@
 
 在这一点上，我们已经听说了虚拟现实对于在想象的环境中行走和与世界近距离互动有多么好。但我从未预见到的是，在世界各地的疫情中，我那无聊、酷的科技消遣方式会成为我离开公寓的新宠。
 
-Watch
+
 
 截至本文撰写之时， [纽约州新冠肺炎](https://www.cnn.com/interactive/2020/health/coronavirus-us-maps-and-cases/) 检测呈阳性的人数最多，为 131830 人，死亡人数为 4758 人，并且还在攀升。我附近的医院 [已经开始装载冷藏车](https://www.reddit.com/r/Bushwick/comments/fqsemv/for_everyone_who_still_thinks_this_is_being/?utm_source=share&utm_medium=ios_app&utm_name=iossmf) 来存放尸体，警笛声频繁从我的公寓前呼啸而过。我现在过得很好，但如果我说这一切都没有影响到我，那我是在撒谎。我经常想，在这一切结束后，我们都会留下什么样的创伤，就像年长的亲戚染上了我们可能会根据他们的经历而觉得奇怪的习惯一样。
 

@@ -4,7 +4,7 @@
 
 随着冠状病毒病例在 [一些](https://www.cnbc.com/2020/07/19/we-need-to-close-down-florida-reports-more-than-10000-coronavirus-cases-for-fifth-day.html) [国家的部分地区](https://www.sfchronicle.com/bayarea/article/California-could-overtake-New-York-in-coronavirus-15421651.php) 激增，许多美国人还在从疫情的经济冲击中步履蹒跚。作为回应，国会已经通过了几项救济法案，包括立法让医疗储蓄账户在这个困难时期更容易使用。这些是自三月以来 HSAs 最大的变化。
 
-Watch
+
 
 ### **免费冠状病毒检测**
 

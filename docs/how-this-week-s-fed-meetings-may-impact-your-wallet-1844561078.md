@@ -4,7 +4,7 @@
 
 昨天， [美联储](https://www.federalreserve.gov/monetarypolicy/files/monetary20200729a1.pdf) 宣布将基准利率维持在接近于零的水平。“我们甚至没有考虑考虑加息，”美联储主席杰罗姆·鲍威尔在新闻发布会上说。随着冠状病毒病例继续激增，美联储还计划在年底前延长其贷款计划，但预计经济复苏将是一条漫长的道路。
 
-Watch
+
 
 虽然最近的举措可能会降低借贷成本——一些银行已经收紧了抵押贷款、和商业贷款等产品的 [贷款标准](https://www.americanbanker.com/news/banks-tighten-lending-standards-as-coronavirus-crimps-demand-survey) ，以保护自己免受未来经济衰退的影响。
 

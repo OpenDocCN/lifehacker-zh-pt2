@@ -4,7 +4,7 @@
 
 随着美联储 [保持低利率](https://twocents.lifehacker.com/how-this-week-s-fed-meetings-may-impact-your-wallet-1844561078) ，许多储户都 [感受到他们储蓄账户](https://twocents.lifehacker.com/where-to-put-your-money-when-interest-rates-are-falling-1844380477) 里的刺痛。 [美国消费者新闻与商业频道报道](https://www.cnbc.com/2020/08/05/high-yield-savings-accounts-slash-interest-rates-to-all-time-lows.html) 高收益储蓄账户已经将利率削减至创纪录低点——这让储户们开始寻找替代方案。一个已经引起注意的选择是:高 y 奖励检查账户。以下是如何知道这些账户中是否有一个适合你。
 
-Watch
+
 
 ### **奖励支票账户的好处**
 

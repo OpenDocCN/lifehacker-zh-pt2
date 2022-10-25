@@ -4,7 +4,7 @@
 
 由于烧烤受到如此多的关注，独立日甜点往往是事后才想到的，除非它们采取可怕的国旗蛋糕的形式——甜点界的美国国旗比基尼。但是有很多美味、简单、非国旗蛋糕的甜点你可以在今天或夏天剩下的时间里做，因为它们不受今天爱国主题的影响。
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Make an Easy Summer Dessert That Isn&#39;t a Flag Cake](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/what-to-grill-when-youre-sick-of-hamburgers-and-hot-dog-1828402331)</aside>
 

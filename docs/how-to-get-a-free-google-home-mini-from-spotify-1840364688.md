@@ -4,7 +4,7 @@
 
 如果你无法为你假日购物清单上的人挑选一台谷歌 Home Mini，不要担心——谷歌和 Spotify 正在向所有 Spotify 订户免费赠送。
 
-Watch
+
 
 这笔交易与去年 Spotify 的免费 Google Home Mini 赠品非常相似，但正如[Android Police](https://www.androidpolice.com/2019/12/11/spotify-free-google-home-mini/)指出的那样，今年的报价要慷慨得多。几乎所有新的和现有的 Spotify Premium 和 Family Premium 订户都有资格获得免费的智能扬声器，包括 Spotify 学生订户，他们被排除在之前的 Google Home Mini 赠品之外。
 

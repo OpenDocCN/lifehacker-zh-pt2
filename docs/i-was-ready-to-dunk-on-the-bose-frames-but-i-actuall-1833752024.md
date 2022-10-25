@@ -4,7 +4,7 @@
 
 智能眼镜有一个坏名声——你可以为此感谢 glassholes。时至今日，只要有人提起智能眼镜这个话题，大多数人还是会情不自禁地想起谷歌眼镜的第一次迭代。这也意味着人们开始考虑违背自己意愿的录音，愚蠢的设计，以及缺乏说服力的技术的荒谬价格。
 
-Watch
+
 
 我承认当我第一次听到 关于 [玻色框架](https://www.bose.com/en_us/products/wearables/frames.html) 的时候，我也想过 [。智能太阳镜？确定，fam。镜框不完全像谷歌眼镜。它们有一对直接内置在手臂上的扬声器，这意味着它们实际上是伪装的蓝牙耳机。它们连接到你的手机，所以你可以接电话，播放音乐，以及使用纯音频的增强现实应用程序。虽然我可以看到高品质而又低调的无线耳机的优点，但这种设计让我回想起](https://gizmodo.com/bose-wants-to-fundamentally-change-how-you-interact-wit-1823649148) [Snap 的眼镜](https://gizmodo.com/snapchat-seems-to-think-we-ll-like-spectacles-2-0-more-1823458527)——带有附加技术角度的太阳镜。除了痴迷于拥有任何东西的科技兄弟，谁还需要这个？
 

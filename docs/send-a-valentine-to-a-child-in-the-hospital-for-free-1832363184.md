@@ -4,7 +4,7 @@
 
 不要强调情人节或者你的生活中是否有爱，试着送一点爱给生病的孩子。
 
-Watch
+
 
 许多个体医院运行程序，在那里你可以发送带有鼓励信息的个性化卡片给正在为节日康复而奋斗的孩子们。SlickDeals 有 [编了一批最大的](https://slickdeals.net/f/12738058-children-s-hospitals-send-valentine-s-day-card-to-a-sick-child-free)；卡片的类型各不相同，但一般来说，医院会为你提供一些选择，一个写你的名字和电子邮件地址的地方，以及一个个性化信息的部分。
 

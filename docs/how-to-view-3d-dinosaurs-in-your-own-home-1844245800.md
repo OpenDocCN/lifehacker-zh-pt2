@@ -4,7 +4,7 @@
 
 还记得我们告诉过你，你可以在自己家里使用谷歌和智能手机观看 3D 动物吗？好吧，现在你可以对你最喜欢的*侏罗纪世界*恐龙做同样的事情，比如上面那只今天造访我家阳光门廊的迅猛龙。
 
-Watch
+
 
 来自谷歌 的 [方向非常简单:](https://blog.google/products/search/travel-back-time-ar-dinosaurs-search/)
 

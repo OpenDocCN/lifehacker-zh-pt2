@@ -4,7 +4,7 @@
 
 当你需要摆脱某人的时候，虚假的电话号码是一件美好的事情。无论你是当场编造号码，还是把号码给像拒绝热线 这样的服务机构 [，给一个假号码可以缩短尴尬的社交接触。不过，最棒的是你自己制作的，就像我给汽车经销商的那种，伪造完整的语音邮件。](https://lifehacker.com/give-out-these-fake-prank-numbers-to-creeps-1826672360)
 
-Watch
+
 
 当我在市场上购买一辆新车时，我在 [上阅读了](https://jalopnik.com/how-to-shop-for-a-car-without-dealers-stalking-you-fore-1796753270) [这部 Jalopnik 作品](https://jalopnik.com/how-to-shop-for-a-car-without-dealers-stalking-you-fore-1796753270) ，躲避饥渴的经销商 的电话。它建议，申请一个谷歌语音号码。嗯，我已经把谷歌语音用在其他用途上了，而且这项服务并没有给你无限的号码。 [燃烧器应用](https://lifehacker.com/burner-generates-disposable-phone-numbers-for-perfectly-5933208) 是另一种选择，但在这一点上，你不妨从 [Twilio](https://www.twilio.com/) 中抓取一个数字，并从中获得一些乐趣。
 

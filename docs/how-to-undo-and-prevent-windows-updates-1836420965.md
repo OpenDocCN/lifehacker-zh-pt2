@@ -4,7 +4,7 @@
 
 Windows 10 重大更新 [并非一帆风顺](https://lifehacker.com/back-up-windows-10-before-installing-the-october-update-1829556930) 。如果你拥有微软的 Surface Book 2，你可能会有点恼火地知道 [不能更新](https://docs.microsoft.com/en-us/windows/release-information/status-windows-10-1903#536msgdesc) 到微软操作系统的最新迭代 Windows 10 版本 1903，这要感谢英伟达 GPU 的一个错误。
 
-Watch
+
 
 公平地说，当一家公司为安装在硬件配置和功能差异很大的电脑上的操作系统推送更新时，这样的错误肯定会出现。微软通常会很快提供补丁来修复这些问题，但有时如果您扣动扳机并破坏了系统，您需要立即进行修复。
 

@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/what-we-know-about-the-coronavirus-so-far-1842600467>
 
-Watch
+
 
 新冠肺炎，由冠状病毒新型冠状病毒引起的疾病， [于 2019 年底在中国首次发现](https://www.nytimes.com/article/coronavirus-timeline.html) 。2020 年 1 月，在一名最近抵达华盛顿州的旅行者身上发现了美国首例病例。自早期开始，新冠肺炎的故事一直在迅速演变，每天都有新的信息出现。
 

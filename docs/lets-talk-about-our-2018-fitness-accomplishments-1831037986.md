@@ -4,7 +4,7 @@
 
 去年这个时候，我们很多人都为这一年设定了一些健身目标。我 [请读者在这里](https://vitals.lifehacker.com/what-are-your-fitness-goals-for-2018-1821469720) 权衡一下，你是否打算学习新东西，增加或减少体重，或者尝试一场比赛或竞争。
 
-Watch
+
 
 你有一些伟大的目标！ [我们听到人们](https://lifehacker.com/the-most-inspiring-fitness-goals-from-our-readers-1821631795) 说，他们只想养成稳定的锻炼习惯，想参加举重比赛，想骑自行车跑得更快，想建一个家庭健身房，等等。
 

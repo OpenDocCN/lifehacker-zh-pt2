@@ -4,7 +4,7 @@
 
 你可能已经看到，三星即将推出的 Galaxy S20、S20+和 S20 Ultra 是首批获得 USB 实施者论坛(USB-IF)颁发的“快速充电”认证 的 [智能手机。许多智能手机都声称拥有“快速充电”电池，但如果 Galaxy S20 系列率先获得 USB-IF 的官方认证，这对其他设备意味着什么？](https://www.sammobile.com/news/galaxy-s20-first-smartphone-usb-fast-charge-certification/)
 
-Watch
+
 
 大多数手机都通过 USB 充电，但只有一些充电器和电缆——特别是支持 USB 电力传输(USB-PD)标准的 USB 3.1 USB-C——能够以实现“快速充电”所需的速度和数量传输电力。这些电池能够以 100 瓦的功率为你的设备充电高达 5A，尽管即使是今天最新的智能手机也不需要那么多电力。
 

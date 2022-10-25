@@ -4,7 +4,7 @@
 
 欢迎来到声明，Lifehacker 新的每周个人理财简讯。我是 Alicia Adamczyk， [Lifehacker 的金钱作家](https://kinja.com/aliciaadamczyk) ，每周三我将报道本周最紧迫的金钱问题，并回答读者关于你财务生活任何方面的问题。
 
-Watch
+
 
 这一周，我都在转换视角。我写了关于 [创建恐吓清单](https://twocents.lifehacker.com/why-you-should-write-an-intimidation-list-1833204602#_ga=2.5536947.1836666110.1552309704-1020883953.1548705071)[参加一个“深度”年](https://twocents.lifehacker.com/why-you-should-make-this-your-depth-year-1833233445) 和 [全职工作者计算时薪的好处](https://twocents.lifehacker.com/if-you-work-full-time-calculate-your-hourly-wage-1833259406) ，这些都涉及到对某些行为和习惯的反思。
 

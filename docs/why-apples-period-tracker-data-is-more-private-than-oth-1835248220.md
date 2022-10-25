@@ -4,7 +4,7 @@
 
 当苹果 [本周宣布他们将在苹果手表](https://gizmodo.com/why-apple-might-soon-be-the-best-choice-for-tracking-yo-1835161704) 中添加月经周期跟踪器时，他们非常谨慎地强调你输入的数据将在你的设备上加密，以更好地保护你的个人信息隐私。
 
-Watch
+
 
 虽然这看起来很可疑——为什么*没有一家公司想利用你的数据赚钱呢？—该政策与苹果对其他健康数据的政策一致，甚至可以包括您的 [实际医疗记录](https://lifehacker.com/import-and-view-your-medical-records-on-apple-health-1827685373) 。*
 

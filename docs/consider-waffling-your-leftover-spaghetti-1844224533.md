@@ -4,7 +4,7 @@
 
 剩下的意大利面和最好的剩菜放在一起。在冰箱里放一夜，和酱料的味道融合在一起，将浸泡在面条里，渗透进去。我的一个前男友非常喜欢吃剩下的意大利面，他直接从冰箱里凉着吃，这很好。 我不知道吃剩的意大利面有什么不好的方法，事实上——但是华夫饼剩的意大利面是最好的之一。
 
-Watch
+
 
 然而，这并不是最容易胡扯的事情。与 [垃圾食品](https://skillet.lifehacker.com/cook-spam-in-your-waffle-maker-1840879423) 、 [甜面包](https://skillet.lifehacker.com/you-should-waffle-a-honeybun-1843905346) 甚至 [楔形布里干酪](https://skillet.lifehacker.com/fuck-it-lets-waffle-some-cheese-1842412271) 不同，华夫饼意大利面不是一种按了就走的交易。意大利面更脆，更容易烧焦，更“裹着奶酪”
 

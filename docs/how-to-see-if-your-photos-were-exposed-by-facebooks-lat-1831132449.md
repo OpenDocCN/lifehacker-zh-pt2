@@ -4,7 +4,7 @@
 
 周五，脸书 [披露一个 bug 曝光了上传到社交网络的](https://developers.facebook.com/blog/post/2018/12/14/notifying-our-developer-ecosystem-about-a-photo-api-bug/) 的照片。
 
-Watch
+
 
 该漏洞是脸书照片应用程序接口的问题，它允许第三方应用程序访问他们通常无权访问的照片。具体来说，大多数第三方应用程序只能访问你上传到时间线的照片，但这个漏洞也让他们可以访问你可能通过脸书故事或市场分享的照片。
 

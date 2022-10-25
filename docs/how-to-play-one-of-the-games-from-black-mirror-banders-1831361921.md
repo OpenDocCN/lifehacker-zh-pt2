@@ -4,7 +4,7 @@
 
 *Bandersnatch* ，新的*选择你自己的冒险*风格的*黑镜* [今天上映](https://io9.gizmodo.com/black-mirror-is-heading-back-to-the-1980s-with-a-chilli-1830570365) ，是(如你所料)一部曲折的互动小说。网飞通过为这一集的虚拟游戏工作室 Tuckersoft 建立一个真实的网站，进一步绑上了元文本结，该公司的几个标题(如 *Metl Hedd* )直接引用了该剧的前几集。
 
-Watch
+
 
 许多链接只是指向网飞的黑镜展示页面。但是作为对那些发现 [网站](https://tuckersoft.net/ealing20541/) 的人的一种款待，由这一集的王牌程序员科林·里特曼(威尔·保尔特)简要演示的新游戏可以下载并玩。是的，它是精确的，因为它只能在 ZX 频谱模拟器上播放。
 

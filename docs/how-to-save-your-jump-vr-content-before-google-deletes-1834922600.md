@@ -4,7 +4,7 @@
 
 谷歌的 giving [又一项服务被砍掉](https://lifehacker.com/how-to-track-every-google-service-and-app-thats-shut-do-1833553690?_ga=2.169668258.2008167612.1558447521-2127637903.1532515930)——这次是该公司的虚拟现实内容编辑服务 [Jump VR](https://vr.google.com/jump/) 。谷歌刚刚宣布这项服务将于 6 月 28 日关闭。
 
-Watch
+
 
 Jump VR(目前)是一种基于云的编辑服务，允许用户通过超级昂贵的虚拟现实捕捉设置将他们的视频和照片合并到 VR 内容中——也称为“缝合”——他们可以上传到 YouTube 或导出到其他 VR 应用程序。
 

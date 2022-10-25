@@ -4,7 +4,7 @@
 
 我只坐过一次头等舱，而且是短途飞行，几乎不值得升级。然而，我已经多次乘坐基本经济舱，因为我是一个身材娇小的女人，不管坐在什么样的座位上，都喜欢轻装上阵，所以我发现它非常值得节省。
 
-Watch
+
 
 然而，这并不意味着基本经济永远是最好的选择——即使就价格而言。在 [喧闹](https://www.bustle.com/p/when-is-booking-a-more-expensive-plane-ticket-worth-it-heres-why-i-can-never-go-back-to-booking-the-cheapest-flight-18136018) ，坦尼娅·哈赫雷曼尼解释了为什么如果你的飞行时间足够长，乘坐头等舱或商务舱实际上可能是更好的选择:
 

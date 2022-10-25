@@ -4,7 +4,7 @@
 
 根据 [众多用户错误报告](https://www.windowslatest.com/2020/03/05/windows-10-latest-update-crashes-pcs-for-some-users/) 显示，Windows 10 更新 KB4535996 存在几个严重错误，导致一些用户无法使用他们的电脑。具有讽刺意味的是(尽管 [可以预见](https://lifehacker.com/how-to-fix-the-user-profile-bug-in-windows-10s-latest-p-1841699789) )该补丁是为了修复今年早些时候*另一个*更新中引入的错误而发布的。
 
-Watch
+
 
 迄今为止报告的最严重的错误包括:
 

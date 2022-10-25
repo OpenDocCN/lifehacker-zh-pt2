@@ -4,7 +4,7 @@
 
 **iOS:** 有没有看过纸质书，希望自己能按 ctrl-F？使用免费的 iOS 应用程序 [SearchCam](https://apps.apple.com/us/app/searchcam-ctrl-f-for-life/id1440462575) 使用手机摄像头搜索印刷文本。它适用于文件、书籍、包装，甚至海报。
 
-Watch
+
 
 这款应用并不流畅，但速度很快，可以实时运行，也可以处理静态照片。无论哪种方式，输入几个字母，SearchCam 都会高亮显示它们出现的任何地方。
 

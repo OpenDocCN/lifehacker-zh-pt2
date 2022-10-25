@@ -4,7 +4,7 @@
 
 精神活性大麻的使用可以追溯到古代美索不达米亚。工具的使用可以追溯到人类出现之前的祖先。这些强大的力量汇聚到[/r/石匠工程](https://www.reddit.com/r/StonerEngineering/top/?sort=top&t=all) ，一个杂草丛生的小区域。
 
-Watch
+
 
 一些黑客是高科技的。最近的一个热门产品是一个由 Arduino 驱动的测量仪，它可以测量一个 T2 的力量。发明家兼披萨外卖员布拉德利·摩尔告诉科技博客 Motherboard[该设备使用光敏电阻和灯](https://motherboard.vice.com/en_us/article/vbkw84/this-guy-made-a-diy-device-that-measures-the-strength-of-your-bong-hits) 来测量烟枪内的烟雾浓度。到达光敏电阻的光越少，烟雾就越浓。
 

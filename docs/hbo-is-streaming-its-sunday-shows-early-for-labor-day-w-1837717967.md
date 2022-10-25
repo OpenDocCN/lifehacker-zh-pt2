@@ -4,7 +4,7 @@
 
 **更新时间:2019 年 8 月 30 日美国东部时间上午 11 点:**截至周五上午，新剧集已经在 HBO Go 和 HBO Now 直播。
 
-Watch
+
 
 早些时候: HBO 是 [提前](https://decider.com/2019/08/29/hbo-succession-righteous-gemstones-ballers-labor-day/) 发布其三个周日晚间节目的下一集，在劳动节周末开始。每个节目都将在 HBO Go 和 HBO Now 的正常播出时间播出，但时间是周五晚上，而不是周日。(和往常一样，这些节目将于周日在有线电视网播出。)
 

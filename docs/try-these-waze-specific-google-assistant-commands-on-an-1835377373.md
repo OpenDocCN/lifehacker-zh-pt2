@@ -4,7 +4,7 @@
 
 自 2013 年谷歌收购 Waze 以来，该公司一直在慢慢地将 Waze 的功能添加到谷歌地图中，包括 Waze 的 [交通报告功能](https://lifehacker.com/how-to-check-for-speed-traps-speed-limits-and-traffic-1835125560) 和实时限速。
 
-Watch
+
 
 这种关系是互惠的，因为谷歌 [正在为美国安卓用户将助手](http://https//blog.google/products/assistant/google-assistant-now-available-waze/) 集成到 Waze 应用中——当然，这是首次推出，这意味着你一开始可能看不到该功能。有了它，你现在可以用 Waze 执行更多种多样的语音命令，并使你现在可以完全不用手来访问 Waze 的大多数功能。这对应用程序来说是一个非常好的补充，特别是因为与谷歌地图相比， [Waze 是摆脱交通地狱的更好选择](https://lifehacker.com/waze-still-provides-the-fastest-driving-directions-1823286419) 。
 

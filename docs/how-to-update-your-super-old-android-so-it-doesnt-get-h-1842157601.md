@@ -4,7 +4,7 @@
 
 如果你有一个不再接收任何更新的旧设备，那么很可能有人会在某个地方发现并利用其中的一个漏洞，而这个漏洞没有人感兴趣或能够修复。这就是为什么我们宣扬你应该总是用最新的固件更新你的 wifi 路由器，这也适用于你的老式 Android 手机——尤其是有消息称超过 10 亿台旧 Android 设备不再接收安全更新。
 
-Watch
+
 
 从到[哪个报告？](https://press.which.co.uk/whichpressreleases/void-android-more-than-one-billion-android-devices-at-risk-of-hacking-attacks/) 声称，全球每五个安卓用户中就有两个不再为他们的旧安卓设备接收安全更新。虽然这听起来像是你可以不予理会的事情，但既然*不管怎样都关心旧设备*，利用这些巨大的安全漏洞显然并不困难。作为哪个？描述:
 

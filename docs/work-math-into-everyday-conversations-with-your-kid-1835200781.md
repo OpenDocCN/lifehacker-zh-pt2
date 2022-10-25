@@ -4,7 +4,7 @@
 
 大约 93%的美国成年人都有某种程度的数学焦虑。我承认我是这个群体的一部分。到了分摊晚餐账单的时候，我会紧张地避免和它对视，说:“我数学很烂。这就是我成为作家的原因！【*尴尬地笑着，祈祷我不用做除法*】。
 
-Watch
+
 
 但是作为家长，我不想把我对数学的恐惧通过 [传给我的孩子](https://lifehacker.com/you-have-math-anxiety-heres-how-to-not-pass-it-down-to-1819181913) 。在 NPR 的播客“生活锦囊: [养育优秀的孩子](https://www.npr.org/podcasts/510344/raising-awesome-kids) ”的 [集](https://www.npr.org/2019/05/14/723182826/raising-kids-who-love-math-even-if-you-dont?fbclid=IwAR1QyWt1BkGV17TKtbx6w5t56TOcvbMRReAT6GvaEwieaTFLfKP5REOrA2A) 中，我学到了一些对抗循环的方法首先，我们必须意识到，即使我们不认为自己是“数学人”，我们也无时无刻不在与数学打交道——当我们听音乐、烤饼干、背诵棒球统计数据或整理鞋柜时。第二，培养热爱数学的孩子，要用平凡的瞬间来谈论数学。这并不意味着背诵乘法表，相反，这是关于使用描述性的数学语言，因为孩子们会注意到世界的细节。看，当你添加更多的方块时，你的线会变长“为什么你的书放不下书架？哦，太高了？”"让我们唱快一点。"那个，我可以做。
 

@@ -4,7 +4,7 @@
 
 “ [《吸血鬼猎人巴菲》](https://www.facebook.com/BuffyTheVampireSlayerTheSeries/) 、 [天使](https://www.facebook.com/AngelTheSeries/) 、 [萤火虫](https://www.facebook.com/FireflyTheSeries/) ”的粉丝现在可以使用脸书免费观看这三部剧的每一集。
 
-Watch
+
 
 脸书已经为其 Facebook 手表产品获得了这组乔斯·韦登秀的版权。有了 Facebook Watch，你可以同时在脸书上和朋友(或任何你喜欢的人)一起看视频，还可以举办“观看派对”
 

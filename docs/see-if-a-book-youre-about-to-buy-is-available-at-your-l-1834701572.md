@@ -4,7 +4,7 @@
 
 如果你发现自己在浏览亚马逊寻找下一本好书， [图书馆扩展](https://chrome.google.com/webstore/detail/library-extension/chkgcmmjoejpekoegkedcpifgfhpjmec?utm_source=libraryextension-web-download) 可能会让你免费阅读同一本书，从而帮你节省一点钱。
 
-Watch
+
 
 该扩展的工作方式非常简单:只需像平常一样在亚马逊、巴诺书店或 Goodreads 上滚动。当你这样做的时候，扩展名将会显示你可以在当地图书馆找到这本书。这个扩展已经为 Amazon 提供了一段时间，但是这些年来已经扩展了对其他站点的支持。
 

@@ -4,7 +4,7 @@
 
 十几岁的孩子曾经可以在一天结束后把欺负他们的人留在学校的走廊里；但现在，随着社交媒体和智能手机的普及，他们无论去哪里都带着他们的欺凌者。
 
-Watch
+
 
 社交媒体和网络欺凌携手并进，导致青少年抑郁和焦虑情绪增加。他们可能会觉得被欺负者困住了，即使是在屏幕上。屏蔽不受欢迎的用户当然是一种选择，但正如 [快公司](https://www.fastcompany.com/90412178/instagram-rolls-out-restrict-feature-allowing-users-to-shadow-ban-bullies?partner=feedburner&utm_source=feedburner&utm_medium=feed&utm_campaign=feedburner+fastcompany&utm_content=feedburner) 指出的，屏蔽社交媒体上的恶霸实际上可能适得其反，让事情变得更糟:
 

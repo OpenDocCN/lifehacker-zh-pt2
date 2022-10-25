@@ -6,7 +6,7 @@
 
 自从开发者测试版首次推出 以来，我一直在玩 iOS 13[——bug 和所有东西。由于](https://lifehacker.com/the-easiest-way-to-install-the-ios-13-beta-1835610960) [现已面向公众开放](https://lifehacker.com/how-to-enroll-in-the-ios-13-macos-catalina-and-ipados-1835814672) ，我想我会分享一些我最喜欢的新技巧，这样你就可以在等待测试版安装到你的设备上时感到兴奋了。
 
-Watch
+
 
 ### 不使用设置切换 wifi 网络
 

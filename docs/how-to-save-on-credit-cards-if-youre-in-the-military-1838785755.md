@@ -4,7 +4,7 @@
 
 $250.$450.$550.顶级旅行奖励卡的年费持续攀升。但是现役军人根本不需要支付这些费用。这一巨大的折扣要归功于《军事借贷法》(MLA)和 [服役人员民事救济法(SCRA)](https://www.consumerfinance.gov/ask-cfpb/when-am-i-covered-by-the-servicemembers-civil-relief-act-scra-en-2086/) ，这些法律旨在保护服役人员免受不公平信贷和借贷行为的影响。
 
-Watch
+
 
 《劳动合同法》的最新版本 [将这些权利](https://www.consumerfinance.gov/ask-cfpb/what-are-my-rights-under-the-military-lending-act-en-1783/) 赋予现役军人，包括现役军人和现役预备役军人:
 

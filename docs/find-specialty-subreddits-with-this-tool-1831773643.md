@@ -4,7 +4,7 @@
 
 Reddit 很酷的一点是，你可以只订阅你喜欢的子编辑，忽略你不喜欢的所有内容。更小、更专业的子涡旋是最好的，但它们更难找到。新工具 [sayit](https://anvaka.github.io/sayit/) 帮你找到他们。
 
-Watch
+
 
 Sayit 展示了一张子红的网络图，通过相互评论者的数量来判断它们的相似性。因此，如果我 [查找](https://anvaka.github.io/sayit/?query=seashanties)[r/seashanties](https://www.reddit.com/r/seashanties/)，我看到它类似于 [r/IrishMusic](https://www.reddit.com/r/Irishmusic/) 和 [r/tinwhistle](https://www.reddit.com/r/tinwhistle/) ，因为许多相同的 redditors 在所有这些子主题上写帖子和评论。(它也“类似”于几个不相关的视频游戏子编辑，只是因为它们也共享许多相同的成员。)
 

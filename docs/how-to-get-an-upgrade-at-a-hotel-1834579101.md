@@ -4,7 +4,7 @@
 
 我会向任何人要求升级，无论是餐馆里更好的桌子还是飞机上的头等舱座位。然而，获得酒店升级也有其自身的困难。你无法准确评估在你逗留期间有哪些空房或哪些房间会开放。
 
-Watch
+
 
 最近，NBC 新闻 采访了礼宾专家和《T4》[礼宾机密](https://www.amazon.com/Concierge-Confidential-Secrets-Serving-Champagne/dp/1250002737?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-get-an-upgrade-at-a-hotel-1834579101&asc_source=&tag=kinjalifehackerlink-20) 的作者迈克尔·法齐奥，询问客人如何在酒店获得更好的服务，在这里，额外的毛巾布长袍和房间升级等便利设施都是可以买到的。法齐奥斯在纽约洲际酒店的礼宾柜台后站了七年，他解释了为什么在与酒店员工打交道时，时机和礼貌大有帮助。
 

@@ -4,7 +4,7 @@
 
 有没有想过在机场使用流量很大的公共 wifi 网络上网是不是一个坏主意？多半是 [安全](https://www.wired.com/story/hotel-airport-wifi-safe/)；只要您连接到正确的网络，您的信息可能不会有风险。另一方面，你*可能*想重新考虑把你的手机插到门口的 USB 充电站。
 
-Watch
+
 
 网络犯罪分子可能会在你不同意或不知情的情况下使用这些网站下载你的数据并安装恶意软件，正如本周《福布斯》 所解释的那样——这种犯罪被称为“ [果汁劫持](https://money.cnn.com/2017/02/15/technology/public-ports-charging-bad-stop/index.html) ”
 

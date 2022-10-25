@@ -4,7 +4,7 @@
 
 上周，我们请你 [告诉我们你离不开的 iOS *或安卓*相机应用](https://lifehacker.com/what-are-your-favorite-camera-apps-for-ios-and-android-1829560660?rev=1538775788761#_ga=2.103291074.357243503.1539611405-801553702.1531498092) 。我们的 Hive Five hunt 是由我在 [iOS](https://lifehacker.com/the-2018-lifehacker-pack-for-ios-the-essential-ios-app-1828788598) 和[Android](https://lifehacker.com/the-essential-android-apps-for-2018-1829424567#_ga=2.49148902.1358726328.1539658100-396842925.1520800403)life hacker Packs 上的工作引发的，当时我注意到有大量不同的第三方相机应用程序可供你的设备使用。我想我找到了一些很棒的，但我想确保我没有错过很多人喜欢使用的东西。
 
-Watch
+
 
 (对我来说)好消息是:我没有。读者推荐的主要应用都是我们之前在 Lifehacker 报道过(或强调过)的优秀应用。
 

@@ -4,7 +4,7 @@
 
 如果你曾经渴望成为现实生活中的马克·瓦特尼——收集火星上的岩石和泥土样本——现在是你的机会了。借助美国宇航局的 [AI4Mars 项目](https://www.zooniverse.org/projects/hiro-ono/ai4mars) ，你可以乘坐好奇号火星车在红色星球上进行一次虚拟旅行。
 
-Watch
+
 
 由美国宇航局喷气推进实验室的一个团队设计的模拟程序，要求用户 [帮助分类火星地形](https://www.zooniverse.org/projects/hiro-ono/ai4mars/classify) 。你将标记好奇号从火星表面拍摄的图像(例如，沙子或基岩)，科学家将使用众包数据训练未来的火星车更好地绕过危险的障碍。
 

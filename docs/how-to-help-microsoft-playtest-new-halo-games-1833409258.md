@@ -4,7 +4,7 @@
 
 微软上周宣布*Halo:Master Chief Collection*将于今年晚些时候通过 Steam 和 [Windows Store](https://www.microsoft.com/en-us/p/halo-the-master-chief-collection/bpk4zkfcfl5g?activetab=pivot:overviewtab) 在 [PC 上发售，现在你可以通过该公司新的](https://store.steampowered.com/app/976730/Halo_The_Master_Chief_Collection/)[Halo Insider program](https://www.halowaypoint.com/en-us/community/halo-insider)注册一次提前玩游戏的机会。
 
-Watch
+
 
 PC 和 Xbox One 玩家都可以报名参加 Halo Insider 计划，该计划取代了之前 Xbox One 上的 *Master Chief Collection* 预览计划。光环内部人员可以参加“公共飞行”，这是一种预发布测试活动，将定期举行，在 PC 发布之前测试*主首席收集*中每个游戏的各种模式和功能。在这些活动之后，微软将通过调查从这些早期访问活动中收集内部反馈。
 

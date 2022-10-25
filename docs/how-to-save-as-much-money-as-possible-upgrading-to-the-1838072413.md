@@ -4,7 +4,7 @@
 
 iPhones 真他妈的贵。如果你是下周想升级到 iPhone 11 或 iPhone 11 Pro 的数百万人中的一员，那么当你付清时，你至少要花 700 美元。你可能只需要一部手机，而你*可能*已经有一部了，那么 ***可能*** 应该想办法用你的旧手机来抵消新手机的成本。
 
-Watch
+
 
 实际上，我们应该已经这样做了。根据 [CNET](https://www.cnet.com/news/your-old-iphone-is-about-to-be-worth-a-whole-lot-less/) 的说法，以旧换新的最佳时间是在苹果发布新手机之前。但那艘船已经起航了。在你看到新的 iPhone 11 Pro 的 [噩梦般的摄像头孔](https://gizmodo.com/the-iphone-lenses-are-giving-me-trypophobia-1838023299) 之前，你对你的手机很满意，但现在你需要它。很酷。我去过那里。
 

@@ -4,7 +4,7 @@
 
 由于疫情，美国邮政署​(USPS)目前需要 [财务帮助](https://www.nytimes.com/2020/04/09/us/politics/coronavirus-is-threatening-one-of-governments-steadiest-services-the-mail.html)——公司发出的广告少了很多，邮件量下降了三分之一，严重影响了现金流。更糟糕的是，总统威胁要否决任何包括对美国邮政的救助资金在内的刺激方案。
 
-Watch
+
 
 那么，为什么拯救美国邮政署​——一个与美洲本身 一样古老的机构——如此重要，我们能做些什么来帮助它呢？
 

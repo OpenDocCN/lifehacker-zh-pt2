@@ -4,7 +4,7 @@
 
 如果你一直在囤积那些 [金宝贝](https://www.gymboree.com/home?lang=en_US) 礼品卡，等待着为你的孩子挥霍一些新款式的最佳时机，现在是时候使用它们了。
 
-Watch
+
 
 上周，金宝贝集团有限公司在不到两年的时间里第二次申请破产，它将关闭其所有的金宝贝和疯狂 8 商店， [首席执行官 Shaz Kahng 在公司网站](https://www.gymboree.com/message-from-our-ceo.html?lang=en_US) 上的一封信中说:
 

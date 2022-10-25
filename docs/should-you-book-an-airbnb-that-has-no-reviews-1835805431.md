@@ -4,7 +4,7 @@
 
 在浏览一个特别漂亮的 Airbnb 房源时，你可能会对自己说:这个地方好得令人难以置信。你浏览了房源的照片，了解了它的便利设施——包括一个游泳池和一个日光浴平台——大约就在这个时候，你发现房源的评论为零。
 
-Watch
+
 
 在很大程度上，有一个非常简单的解释:该列表是新的，还没有收到足够的或任何客人来查看它。然而，在其他情况下，你完全有可能被一个 [骗局](https://www.usatoday.com/story/money/2019/05/19/airbnb-scam-hits-some-users-charges-them-fake-reservations/3732422002/) 收买，尽管 [Airbnb 声称](https://www.airbnb.com/help/article/1308/does-airbnb-perform-background-checks-on-members) 至少对其部分成员进行背景调查。在预订评论很少或没有评论的 Airbnb 之前，仔细看看房源并在完成预订之前联系房东是很重要的。
 

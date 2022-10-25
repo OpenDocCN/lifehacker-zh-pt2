@@ -4,7 +4,7 @@
 
 昆虫无处不在，人类经常被抓到试图根除它们。虫子会让生活变得非常不方便，甚至有点恶心——但它们是我们生态系统中最重要的部分之一。它们正在消失。你可以做些什么来阻止它们危险的下降。
 
-Watch
+
 
 T 何卫报近日报道的新数据 [发表在《生物保护](https://www.sciencedirect.com/science/article/pii/S0006320718313636) 杂志上，显示 [世界各地的昆虫生命在减少](https://www.theguardian.com/environment/2019/feb/10/plummeting-insect-numbers-threaten-collapse-of-nature) 。有一些相当严峻的统计数据，即使对讨厌蚊子的人来说也应该是可怕的:
 

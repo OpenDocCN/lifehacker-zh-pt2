@@ -4,7 +4,7 @@
 
 我已经不再对足球比赛感兴趣了，但是否认超级碗周日是最神圣的美食节日之一是不诚实的。所有的美食——鸡翅、披萨、玉米片——都会出席(有时在 [一道热菜](https://lifehacker.com/this-super-bowl-casserole-is-a-home-run-1822669744) ！).这是一个美味的一天，但有一种配料长期被拒绝邀请，一种调料将确保你的小吃是一个灌篮，并确保你不会作为主人出局。这种物质就是味精，它可以改善你超级碗快餐桌上的每一样东西。
 
-Watch
+
 
 如果你担心用“化学物质”来“毒害”你的客人，请知道两件事:所有的食物都含有化学物质(橙汁 的 [分子组成是完全疯狂的)，味精](https://en.wikipedia.org/wiki/Orange_juice#Molecular_composition) [并不危险](https://vitals.lifehacker.com/stop-being-afraid-of-msg-1831011967) 。此外，如果你曾经在看球派对上放了一袋多力多滋，损害已经造成，检查伴侣，等等。
 

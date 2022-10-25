@@ -15,7 +15,7 @@
 
 CDC 指出，如果患者出现咳嗽和呼吸急促，或者出现上述至少两种症状，他们可能已经感染了冠状病毒，应该进行检测。
 
-Watch
+
 
 但是还有其他报告的疾病症状——如[“covid toes”](https://health.clevelandclinic.org/are-covid-toes-and-rashes-common-symptoms-of-coronavirus/)或 [中风风险增加](https://www.usatoday.com/story/news/health/2020/04/29/coronavirus-covid-19-caused-strokes-young-patients-nyc-doctors/3046447001/)——我们仍在了解它们有多罕见或常见，即使我们添加到列表中。随着我们理解的加深，如果你对自己的健康有任何担忧——无论你认为自己是否有新冠肺炎症状，倾听你的身体并与你的医生交谈真的很重要。与此同时，如果你读到一种新的或可怕的症状，这里有一些事情要记住。
 

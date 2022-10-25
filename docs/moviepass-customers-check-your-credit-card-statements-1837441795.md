@@ -4,7 +4,7 @@
 
 如果你是 MoviePass 的顾客，你可能需要格外仔细地看看你的信用卡账单 — 或者考虑完全更换你的信用卡。
 
-Watch
+
 
 电影订阅服务周三宣布，其关键服务器之一没有密码保护。这台关键服务器包含数万张 MoviePass 卡号以及顾客的个人信用卡号， [Techcrunch 报道](https://techcrunch.com/2019/08/20/moviepass-thousands-data-exposed-leak/) 。
 

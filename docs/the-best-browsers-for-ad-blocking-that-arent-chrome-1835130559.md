@@ -4,7 +4,7 @@
 
 好像我们没有足够的理由让 [远离 Chrome](https://lifehacker.com/why-you-should-switch-from-google-chrome-to-firefox-1821879163) ，谷歌已经加倍努力改变内容屏蔽 [浏览器扩展](https://lifehacker.com/how-to-install-chrome-extensions-on-an-android-browser-1834279173)——包括广告屏蔽——在 Chrome 中的工作方式。
 
-Watch
+
 
 导致这种情况的技术变化有点复杂，但它们主要是由于一个新实现的系统，名为 Manager V3，用于解释 Chrome 扩展如何工作。这种转变导致旧的 API 被弃用，并打破了许多广告拦截应用所依赖的技术。这迫使开发者转向效率较低的内容拦截方法，这意味着在一个页面上部署更多的广告，即使你正在运行多个广告拦截扩展。
 

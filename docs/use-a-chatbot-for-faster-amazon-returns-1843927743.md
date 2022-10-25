@@ -4,7 +4,7 @@
 
 当你在亚马逊的订单上遇到问题，需要退货或要求退款时，你可能会向该网站的实时客户支持代表寻求帮助。不要。相反，点击亚马逊的自动聊天机器人，它可以让你几乎即时退款或安排退货，而不会浪费你的任何时间。
 
-Watch
+
 
 我并不反对亚马逊乐于助人的客户服务代理，但如果你只是试图建立一个简单的退货，那么与“机器人”打交道会容易得多。今天早些时候，我只是通过最近的[Android Police post](https://www.androidpolice.com/2020/06/04/tip-amazons-chat-bot-is-actually-surprisingly-decent-at-handling-returns-and-refunds/)才知道这个聊天机器人，所以我利用这项服务查看了一份原定昨天到达的快递。
 

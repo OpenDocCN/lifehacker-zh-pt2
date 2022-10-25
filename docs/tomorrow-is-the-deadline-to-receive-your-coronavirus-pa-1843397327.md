@@ -6,7 +6,7 @@
 
 您可以在国税局运营的 [获取我的支付网站](https://lnks.gd/l/eyJhbGciOiJIUzI1NiJ9.eyJidWxsZXRpbl9saW5rX2lkIjoxMjcsInVyaSI6ImJwMjpjbGljayIsImJ1bGxldGluX2lkIjoiMjAyMDA1MDguMjEyNTYzODEiLCJ1cmwiOiJodHRwczovL3d3dy5pcnMuZ292L2Nvcm9uYXZpcnVzL2dldC1teS1wYXltZW50In0.x-gRuFcLLeRq0X9iHJ--nz1ZrykR-nCo2GcmqUramMw/br/78419304853-l) 上提交您的银行信息。为此，你需要提供你的社会保险号和出生日期；您可能还需要提供您最近的纳税申报表中的信息。
 
-Watch
+
 
 如果你在 5 月 13 日中午之前没有主动提供你的直接存款信息，你将不得不等待邮寄来的纸质支票。到目前为止，美国国税局已经支付了大约 1.3 亿美元，但本月晚些时候将过渡到主要以纸质支票支付剩余的高达 1200 美元的刺激付款。
 

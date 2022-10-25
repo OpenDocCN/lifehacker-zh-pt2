@@ -4,7 +4,7 @@
 
 如果你的安卓设备在过去几周电池续航时间不佳，罪魁祸首可能是网飞。
 
-Watch
+
 
 科技 fiRM Mobile Enerlytics[本周](http://mobileenerlytics.com/is-netflixs-android-app-draining-your-phones-battery-here-is-why/) 发现，一些安卓手机后台运行的网飞应用程序导致了严重的电池问题。例如，在运行 Android 6.0.1 的 Nexus 6 上，手机电池闲置一夜就耗尽了 20%以上， [BGR 报道](https://bgr.com/2019/05/17/netflix-app-battery-drain-android-issue/) 。
 

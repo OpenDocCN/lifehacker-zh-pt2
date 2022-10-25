@@ -4,7 +4,7 @@
 
 T-Mobile 向客户提供了为期两个月的 YouTube Premium 试用。这笔交易是 T-Mobile 的“ [T-Mobile 周二](https://www.t-mobiletuesdays.com/) ”计划的一部分。从今天开始，您可以在 4 月 21 日之前将优惠存入您的帐户。必须在 5 月 1 日前赎回。
 
-Watch
+
 
 YouTube Premium 提供无广告视频，允许离线下载，也允许在后台播放视频(例如，如果你想在手机上听视频的同时查看电子邮件或短信)。
 

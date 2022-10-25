@@ -4,7 +4,7 @@
 
 亚马逊和谷歌的智能音箱都允许你用各种各样的*扩展*来补充它们，就像你安装第三方插件来让你的网络浏览体验更好一样。这里有一个问题:一个有浏览器插件的 s，你完全受开发者的支配。如果他们利用他们的能力作恶，你可能会把你对你的设备所说的一切透露给某个随机的人。
 
-Watch
+
 
 至少，这是德国安全研究实验室(SRLabs)提出的场景，他们建立了许多虚拟的 [技能](https://smile.amazon.com/alexa-skills/b?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/your-smart-speakers-skills-might-be-a-huge-privacy-prob-1839257208&asc_source=&ie=UTF8&node=13727921011&tag=kinjalifehackerlink-20) (亚马逊)和 [动作](https://assistant.google.com/explore/?hl=en-US) (谷歌)，它们通过了两家公司的检查，并实际上被列为下载到你的 Echo 或 Google Home 设备上。有什么问题吗？正如 [Ars Technica](https://arstechnica.com/information-technology/2019/10/alexa-and-google-home-abused-to-eavesdrop-and-phish-passwords/) 所描述的:
 

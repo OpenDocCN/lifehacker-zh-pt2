@@ -4,7 +4,7 @@
 
 如果你想知道如何帮助抗议者，可以考虑向当地的保释基金捐款。因为手头没有现金而监禁某人在任何时候都是残忍的——但尤其是现在，为了降低抗议者接触新冠肺炎的风险，让他们尽快出狱尤为关键。
 
-Watch
+
 
 已经建立了许多地方保释基金来帮助抗议者出狱。由于源源不断的支持，其中一些基金——包括 [明尼阿波利斯自由基金](https://minnesotafreedomfund.org/) 和 [布鲁克林保释基金](https://brooklynbailfund.org/)——已经要求捐赠者 [将他们的资金转向其他非营利组织](https://www.thecut.com/2020/05/george-floyd-protests-how-to-help-where-to-donate.html) 。当然，有许多基金，许多在你自己的社区里，需要这笔钱。
 

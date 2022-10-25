@@ -4,7 +4,7 @@
 
 如果你喜欢字体或者国家公园(或者两者都喜欢)，那你就走运了——你可以免费下载公园招牌上的字体。
 
-Watch
+
 
 国家公园管理局使用的标志性全大写字母最初并不是一种字体， [报道快速公司](https://www.fastcompany.com/90300746/the-national-parks-iconic-typeface-has-never-been-digitized-until-now) 。标志是用直接凿进木头的刳刨机制作的。
 

@@ -4,7 +4,7 @@
 
 自从电子邮件出现以来，网络钓鱼诈骗就一直存在，但是 [的基本策略是一样的](https://lifehacker.com/modern-phishing-attempts-look-more-legit-but-the-metho-1794914817) : H 黑客向你发送虚假链接或文件，欺骗你说出个人信息或在你的设备上安装恶意软件。如果你采用 [基本的互联网安全实践](https://lifehacker.com/the-complete-guide-to-avoiding-online-scams-for-your-l-5420356) ，这些虚假链接很容易被识破，但最新的网络钓鱼欺诈在隐藏其意图方面更加老练。
 
-Watch
+
 
 最近发现的一个网络钓鱼活动将一个名为 NetSupport Manager 的合法远程桌面工具隐藏在“安全”的密码锁定文件中，该文件可以通过防病毒扫描(通过 [、ZDNet](https://www.zdnet.com/article/this-phishing-email-contains-a-password-protected-file-dont-open-it/) )。这些文件通过标有“紧急”字样的看起来很重要的财务电子邮件发送，引诱用户打开它们。大公司面临的风险最大，但该活动也针对个人用户，以窃取他们的个人信息，并有可能窃取他们的身份。一旦安装了 NetSupport Manager，黑客就可以远程访问您的设备、网络以及存储在这些设备上的所有应用程序和数据。
 

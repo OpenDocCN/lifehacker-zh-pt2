@@ -4,7 +4,7 @@
 
 你的财务愿望清单上有更高的信用评分吗？确保你不是付钱给一个骗子来得到一个。
 
-Watch
+
 
 美国联邦贸易委员会 [解决了](https://www.ftc.gov/news-events/press-releases/2020/03/credit-repair-company-settles-ftc-charges-it-deceived-consumers) 对一家名为 BoostMyScore.net 的信用修复公司的投诉。这个案例提醒你，你应该对任何承诺大幅提高你信用评分的人保持怀疑。
 

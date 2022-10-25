@@ -4,7 +4,7 @@
 
 狗是最好的人，所以当你第一次和它们打招呼时，很自然地想用爱来拥抱它们。大多数人都太好了，不想说出来，但这实际上是一种很糟糕的向狗介绍自己的方式。这里有一个更好的方法来给人留下好的第一印象。
 
-Watch
+
 
 狗和我们很像:它们通常不愿意被陌生人拥抱。如果有人对你做同样的事，可能会让你不舒服，甚至会让你觉得不安全。训狗资源金毛狗 [备份:](http://www.wellheeleddog.com/wellheeleddog/Tips_%26_Articles/Entries/2011/2/3_Be_My_Valentine_The_Kind_of_Love_Dogs_Appreciate....html)
 

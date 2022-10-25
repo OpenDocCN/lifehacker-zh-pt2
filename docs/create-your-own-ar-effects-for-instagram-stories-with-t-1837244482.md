@@ -4,7 +4,7 @@
 
 现在任何人都可以使用 [脸书的 Spark AR 工作室](https://sparkar.facebook.com/ar-studio/features) 为 Instagram 故事创建自己的 AR 效果。
 
-Watch
+
 
 最初是在 F8 脸书开发者大会上宣布的，今年早些时候 [该工具已经从封闭测试版转移到开放测试版](https://tech.fb.com/creativity-for-all-facebooks-spark-ar-now-lets-anyone-build-and-share-effects-on-instagram/?utm_source=web&utm_medium=spark-ar&utm_campaign=ar-ig-launch&utm_offering=spark-ar&utm_product=spark-ar) 。这意味着任何人都可以注册使用它——但是这个工具可能并不适合所有人使用。
 

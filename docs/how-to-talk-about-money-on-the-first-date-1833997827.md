@@ -6,7 +6,7 @@
 
 > 仔细看这张图:雅斯敏的牙齿洁白整齐，皮肤清澈。她的衬衫毫无特色，但至少在我们看来，并不“廉价”背景中衬衫颜色和房子的对比让她看起来清爽干净。她总体上看起来是资产阶级的，就像一期 [*中的模特一样真实简单。*](https://www.google.com/search?q=real+simple&safe=off&es_sm=91&source=lnms&tbm=isch&sa=X&ei=icwRVODYDLH7sATakYLYAQ&ved=0CAgQ_AUoAQ&biw=1442&bih=779)
 
-Watch
+
 
 然而，仅仅因为某人看起来“中产阶级”并不意味着他们没有债务，或者他们能够为未来储蓄。它不能告诉你他们是精打细算还是挥霍无度，也不能预测他们的财务重点是否与你的一致。
 

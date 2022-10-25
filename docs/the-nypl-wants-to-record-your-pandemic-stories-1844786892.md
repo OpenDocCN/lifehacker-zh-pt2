@@ -4,7 +4,7 @@
 
 当新冠肺炎·疫情 的 [在三月和四月真正在美国拉开帷幕的时候，我们还在琢磨所有的事情。我们被封锁了。一切都很怪异和恐怖(尤其是在纽约和东海岸的其他地方)。而我们](https://vitals.lifehacker.com/were-still-in-the-first-wave-1844531694) [只是想要一些卫生纸](https://lifehacker.com/find-out-how-long-your-toilet-paper-stash-will-last-wit-1842396535) 。当我们进入五月，很明显(对大多数人来说)疫情不会很快去任何地方。现在是八月，我们明白这就是我们在可预见的未来 的现实 [。](https://vitals.lifehacker.com/prepare-now-for-a-long-winter-1844778559)
 
-Watch
+
 
 尽管事情令人沮丧(特别是当 [的人无视](https://vitals.lifehacker.com/how-masks-protect-us-from-the-coronavirus-1844220877) 旨在防止病毒传播和拯救生命的公共卫生措施时)，我们正在经历历史。经历过 1918 年疫情流感的人可能不认为他们的个人经历对一个世纪内的任何人都很重要，但看看现在疫情出现的频率。
 

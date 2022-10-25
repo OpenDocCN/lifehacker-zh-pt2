@@ -4,7 +4,7 @@
 
 找工作最糟糕的部分是在线申请，要求你重新输入你的 information⁠—after 你已经上传了你该死的简历。这是浪费时间，然而，你需要花半个小时写下那些雇主已经有的信息。
 
-Watch
+
 
 在你填写下一份申请之前，让 Redditor[u/aerdon](https://old.reddit.com/r/LifeProTips/comments/dehoww/lpt_before_submitting_an_online_form_where_youve/)为你的理智提供一个简单的建议:在任何要求你写几个长答案的表格上，总是复制文本并粘贴到其他地方如果你不小心点击了“返回”按钮，“提交”选项不起作用或者你的互联网就中断了。
 

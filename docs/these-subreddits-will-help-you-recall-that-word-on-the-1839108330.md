@@ -4,7 +4,7 @@
 
 十年来，我想不起的 subred dit 一直在帮助人们记起事情。下次你可能记不起一部电影、一首歌、一张 GIF 图片、一本书的名字， [一段定格视频把 20 世纪的战争变成了一场食物大战](https://www.reddit.com/r/tipofmytongue/comments/dir9o9/tomtyoutube_video2010ish_history_explained_with/) ...不管是什么，过来问。
 
-Watch
+
 
 subreddit 中一些最受欢迎的已解之谜包括:
 

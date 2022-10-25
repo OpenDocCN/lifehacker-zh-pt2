@@ -4,7 +4,7 @@
 
 对大多数人来说，拥有健康保险是显而易见的。即使你非常健康，你也希望得到保证，如果发生严重的事情，你的保险将支付医疗保健的大部分 [惊人费用](https://twocents.lifehacker.com/assume-your-medical-bills-are-wrong-1839981669) 。
 
-Watch
+
 
 但是牙齿保险呢？通常每年价值 1000 到 2000 美元的治疗有一个保险上限，这可能会让你想知道你每月的保费到底能换来什么。根据 [统计局](https://www.statista.com/statistics/247701/us-dental-services-payments-by-insurance/) 的数据，2017 年，约 52 %的牙科服务由私人健康保险支付，而 48 %的服务由自费支付。
 

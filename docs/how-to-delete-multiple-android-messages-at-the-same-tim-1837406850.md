@@ -4,7 +4,7 @@
 
 Android Messages 版本今天早上发布，新的更新增加了人们期待已久的删除对话线程中多条消息的功能。这是一个很棒、很方便的附加功能，同样奇怪的是，Android Messages 花了这么长时间才获得一个在其他地方似乎很常见的功能。
 
-Watch
+
 
 对于那些不知道的人，Android Messages 是许多 Android 手机上的默认消息应用程序，尽管一些 OEM 厂商包括他们自己的专有服务(如 Galaxy 设备上的 Samsung Messages)。对于那些已经安装了 Android Messages 的用户，新版本应该会自动下载并安装，但您也可以从谷歌 Play 商店 手动下载最新版本的应用 [。](https://play.google.com/store/apps/details?id=com.google.android.apps.messaging&hl=en_US)
 

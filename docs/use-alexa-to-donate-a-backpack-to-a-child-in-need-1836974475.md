@@ -4,7 +4,7 @@
 
 亚马逊、Alexa 和沙奎尔·奥尼尔本月联手向有需要的孩子捐赠装满学习用品的背包。如果你家里有一台 Alexa，你可以说“Alexa，捐到 [快乐学年](https://www.amazon.com/b?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/use-alexa-to-donate-a-backpack-to-a-child-in-need-1836974475&asc_source=&node=19337760011&tag=kinjalifehackerlink-20) ”来参与。
 
-Watch
+
 
 在你说“Alexa，捐赠给快乐学年”之后，你将被提示确认你捐赠的价值高达 25 美元的背包，该背包适合各种年龄的孩子。然后，亚马逊会将你捐赠的背包送到学校(CIS) 的 [社区，这是一个支持有风险学生的非营利组织。亚马逊将通过在捐赠的袋子里装满学习用品，如钢笔、铅笔、尺子和笔记本，来匹配第一笔 20 万美元的背包捐赠。](https://www.communitiesinschools.org/)
 

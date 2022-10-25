@@ -4,7 +4,7 @@
 
 苹果 WWDC 发布会最后详细概述了即将发布的 macOS 更新，现在官方名称为“Catalina”让我们回顾一下在 WWDC 宣布的所有新功能，这些功能将成为 macOS 10.15 Catalina 的一部分，当它 [在 f all，2019](https://www.apple.com/newsroom/2019/06/apple-previews-macos-catalina/) 发布时。
 
-Watch
+
 
 ### iTunes 现在是独立的应用程序:
 

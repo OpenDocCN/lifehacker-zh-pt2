@@ -6,7 +6,7 @@
 
 本周，Android 操作系统周期再次开始，谷歌 [宣布了 Android Q](https://android-developers.googleblog.com/2019/03/introducing-android-q-beta.html) 的更多细节，并为那些想一窥其内幕的冒险类型发布了第一个早期测试版。如果你是这些人中的一员，并且你有一部谷歌 Pixel 手机，你现在就可以注册测试版，并在请求的 24 小时内(如果不是更早的话)开始试用 Android Q。
 
-Watch
+
 
 ### 如何注册 Android Q 测试版
 

@@ -4,7 +4,7 @@
 
 苹果已经开始推出管理 Siri 数据的新选项——最重要的是可以选择不让苹果员工查看 Siri 音频剪辑。在不久的将来，用户也可以提交 Siri 数据删除请求。这些新功能已经出现在苹果设备的最新一轮操作系统更新中，应该很快就会面向公众。
 
-Watch
+
 
 很高兴看到苹果回应最近关于让员工使用记录的 Siri 交互来帮助开发新功能和微调人工智能助手准确性的批评。虽然苹果处理这些数据的技巧和安全性 [比其他公司](https://lifehacker.com/how-to-stop-amazon-employees-from-watching-your-cloud-c-1838949389?rev=1570736025537) 更高，但如果不 [完全禁用 Siri 并删除你的整个命令历史](https://lifehacker.com/how-to-delete-voice-recordings-with-alexa-google-assis-1836977240) ，退出该程序基本上是不可能的——但即将到来的 iOS 13.2、iPadOS 13.2、MacOS 10.15.1、tvOs 13.2 和 WatchOS 6.1 更新都将包括对 Siri 数据的新的退出和删除请求。
 

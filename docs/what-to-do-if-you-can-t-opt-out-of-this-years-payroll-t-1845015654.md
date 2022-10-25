@@ -4,7 +4,7 @@
 
 上个月，川普宣布了一项新的 [工资税延期](https://twocents.lifehacker.com/how-the-new-payroll-tax-deferral-will-affect-you-1844688678) ，暂停员工缴纳的部分税款。9 月 1 日开始的 [有争议的命令](https://thehill.com/policy/finance/515548-senators-urge-administration-to-make-payroll-tax-deferral-optional-for-federal) 称公司可能停止收取员工缴纳的 6.2%的社会保障税。虽然许多公司已经选择退出，但一些员工没有选择不参加。
 
-Watch
+
 
 联邦雇主——包括军队——都已经接受了临时工资税的改变。问题是，没有国会的批准，延期纳税是不能被免除的。这意味着公司仍将受到资金的束缚，他们可能不得不在 2021 年初扣缴更多的税款来弥补差额。
 

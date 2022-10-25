@@ -4,7 +4,7 @@
 
 谷歌 Pixel Androids 的用户将获得一些新功能，包括更新你设备的个人安全应用程序 [和更多的](#otherfeatures) 。此外，从 Pixel 2 开始，所有 Pixel 智能手机都支持个人安全，而不仅仅是 Pixel 4。问题？谷歌让个人安全变得一团糟。
 
-Watch
+
 
 让我解释一下。
 

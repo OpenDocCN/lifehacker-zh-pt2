@@ -4,7 +4,7 @@
 
 无论你怎么做，给你的孩子读书都是很重要的——在睡觉前或白天的，用图画书或 [小说](https://offspring.lifehacker.com/read-novels-to-your-little-kid-1828237592) ，自己读或者用 [滑稽的音效](https://offspring.lifehacker.com/read-to-your-kid-with-the-perfect-sound-effects-accompa-1829832739) 。哎，科学 [这么说](https://www.sciencedaily.com/releases/2019/04/190404074947.htm) 。但是如果你觉得你的阅读变得有点乏味，或者你只是想提升你的游戏，这里有一些来自那些以大声朗读为生的人的建议:有声读物解说员。
 
-Watch
+
 
 ### 选择合适的书
 

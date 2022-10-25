@@ -4,7 +4,7 @@
 
 增加收入的最好方法之一是通过薪资谈判，无论是在你第一次得到这份工作的时候，还是在绩效评估期间。这可能会让你不舒服，但它是极其重要的。以下是如何在谈判中得到你想要的。
 
-Watch
+
 
 ***这是 2006 年创办博客* [*慢慢致富*](http://www.getrichslowly.org/) *的 J.D. Roth*** *的一篇客座博文。罗思写过* [*你的钱:失踪手册*](http://www.amazon.com/exec/obidos/ASIN/0596809409/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-negotiate-your-salary-1566202988&asc_source=&tag=kinjalifehackerlink-20) *并被《企业家》杂志的* [*【你的钱】专栏作家*](http://www.entrepreneur.com/author/jd-roth) *。他还主持了一门为期一年的课程，讲述如何掌控你的金钱，该课程解释了如何削减成本和增加收入，以便你可以追求提前退休和其他目标。这篇文章是这门课程的一部分。*
 

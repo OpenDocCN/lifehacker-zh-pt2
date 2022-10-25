@@ -4,7 +4,7 @@
 
 11 月 12 日，迪士尼将正式推出其流媒体服务 Disney+，作为网飞和 Hulu 等其他主要平台的竞争对手。
 
-Watch
+
 
 虽然我们已经知道 [对流媒体服务](https://lifehacker.com/see-what-s-coming-to-disney-plus-before-it-launches-1838178773) 的期待有一段时间了，但在一系列 [300 多条推文](https://twitter.com/disneyplus/status/1183759143913447424) 中，Disney+透露了其在发布日可用的*整个*电视和电影阵容。
 

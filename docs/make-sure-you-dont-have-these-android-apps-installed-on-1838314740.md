@@ -4,7 +4,7 @@
 
 谷歌本周从谷歌 Play 商店移除了两个应用程序，因为它发现它们向用户提供广告软件。这些应用程序，Sun Pro 美颜相机和滑稽甜美自拍相机，已被下载超过 150 万次， [ZDNet 报道](https://www.zdnet.com/article/two-android-adware-apps-with-1-5-million-downloads-removed-from-google-play-store/) 。
 
-Watch
+
 
 Sun Pro 美颜相机已经在 Play Store 上线两年了，搞笑甜美颜自拍相机也有 6 个月了。
 

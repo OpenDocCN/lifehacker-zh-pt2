@@ -4,7 +4,7 @@
 
 今天是弗雷德·罗杰斯的生日，这个教会我们如何从 [寻找帮手](https://www.youtube.com/watch?v=-LGHtc_D328) 的人，这个在 [成为国家药方](https://pediatrics.aappublications.org/content/142/3/e20182058) 之前就懂得玩耍的力量的人，这个能轻而易举地把他母亲 做的一件拉链毛衣 [摇得滚瓜烂熟的人。我想念他，也想念他的节目。](https://www.rewire.org/pbs/sweaters-sneakers-rogers-neighborhood/) 
 
-Watch
+
 
 虽然你可以在 PBS Kids、亚马逊 Prime Video 和 iTunes 上找到《罗杰斯先生的邻居》的剧集，但你现在也可以在 MisterRogers.org 弗雷德·罗杰斯制作公司的新网站上在线观看这些节目。新(旧)集在每个月的第一个和第三个星期一发布。
 

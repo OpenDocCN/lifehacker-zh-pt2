@@ -4,7 +4,7 @@
 
 梦不仅仅是一个游戏。这是一个有无限可能性的创意孵化器。如果你能梦想它，你就能创造它。想做出比顽皮狗过场动画看起来更逼真的 [早餐](https://kotaku.com/this-breakfast-looks-deliciously-real-but-was-actually-1840808587) ？去吧！一个 [可爱的凯居吃船模拟器](https://kotaku.com/this-cute-kaiju-rampage-is-the-best-dreams-level-ive-pl-1837715607) ？当然可以！一个 [空中克星 boss 战斗](https://kotaku.com/someone-made-an-awesome-final-fantasy-vii-remake-boss-f-1836540586) 来自*最终幻想 VII* ？一部连载的 [【木偶】剧](https://kotaku.com/professional-animator-uses-dreams-to-make-excellent-pup-1835942605) ？*赛博朋克 2077* ，但是 [PS1 化](https://kotaku.com/made-in-dreams-this-is-what-cyberpunk-2077-would-like-1840949241) ？快快快。
 
-Watch
+
 
 然而，在你成为大师级的创造者之前，有很多东西要学，而且很容易被淹没。盯着空白画布足够长的时间可以很容易地驱使任何玩家回到“梦想冲浪”部分的安全范围内(在那里你可以玩其他玩家的梦想)。我知道我就是这么做的。
 

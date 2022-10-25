@@ -4,7 +4,7 @@
 
 Apple Card 有一项新的隐私政策，该政策会影响现有客户以及尚未申请信用卡的人。预计这些变化将使苹果的银行合作伙伴高盛(Goldman Sachs)更容易判断哪些潜在客户是有信用的。
 
-Watch
+
 
 TechCrunch 的 Matthew Panzarino 率先报道了修订后的政策，该政策有两个主要特点。
 

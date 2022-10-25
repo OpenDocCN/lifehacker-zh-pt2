@@ -4,7 +4,7 @@
 
 盖住网络摄像头是最古老的隐私技巧之一，但一些 MacBook 用户不幸发现，当你试图关闭笔记本电脑 时，第三方摄像头盖 [会损坏你的笔记本电脑。许多这种外壳体积庞大，以至于 MacBook 无法完全关闭，并且它们对屏幕施加的过度压力可能会使其破裂。](https://www.reddit.com/r/apple/comments/eg84x1/psa_do_not_apply_a_webcam_cover_to_your_macbook/)
 
-Watch
+
 
 值得称赞的是，它 [警告用户不要使用物理覆盖物](https://support.apple.com/en-us/HT211148) ，并建议他们看看他们的 MacBook 的绿色网络摄像头灯是否打开。现代 MacBooks 是有线的，因此当灯关闭时，网络摄像头无法打开，苹果公司似乎认为这是一个合适的替代物，可以损坏屏幕，并阻止自动调节亮度等依赖于摄像头的功能工作。
 

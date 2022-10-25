@@ -4,7 +4,7 @@
 
 我们许多人都对例行公事着迷——无论是取笑名人的 [雄心勃勃的日程](https://www.marieclaire.co.uk/life/work/morning-routines-of-successful-people-35277) ，还是 [管理我们的时间以最大限度地利用我们的时间](https://lifehacker.com/the-bullet-journal-minus-the-hype-is-actually-a-reall-1786382012) ，媒体有一个完整的子部分致力于详细描述“成功”人士如何安排他们的日子(事实上，这些例行公事部分启发了 Lifehacker 的“醒来周”。
 
-Watch
+
 
 这些对他人生活的审视可能具有启发性，但它们也是不完整的。没有人，即使是马克·马克 也不应该以同样的方式度过每一天。你的日子变化多端，因为生活是不可预测的。有(并且想要)一个常规是很好的，但是试图根据生产力专家的建议拼凑一个对大多数人来说不太可能奏效。
 

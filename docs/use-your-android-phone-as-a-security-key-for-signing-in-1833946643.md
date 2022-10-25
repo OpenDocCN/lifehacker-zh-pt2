@@ -4,7 +4,7 @@
 
 所有运行 Android 7.0 或更高版本的 Android 智能手机 [现在都可以用作安全密钥](https://cloud.google.com/security-key/) 登录网站——只有谷歌的，目前只能通过 Chrome，但希望更多的网站和浏览器很快会支持该功能。这是一种方便的双因素身份认证方法，因为大多数人即使在桌面上浏览时，也将他们的 Android 手机或平板电脑放在手边，并且它减轻了处理其他硬件令牌或身份认证应用程序的需要。
 
-Watch
+
 
 这项新功能是 Android 最近获得 FIDO2 和 WebAuth 认证的结果。如果你想知道这项技术是如何工作的，我们有 [快速解释器](https://lifehacker.com/update-google-play-services-to-enable-touch-id-sign-ins-1832874607) ，但是电梯推销是你的 Android 手机与 Chrome 通信以验证你的身份和你登录的网站的合法性。这两个设备检查:
 

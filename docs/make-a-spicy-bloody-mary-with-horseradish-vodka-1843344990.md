@@ -4,7 +4,7 @@
 
 我有两个食品检疫项目，都不涉及烘焙。首先是用我的绞肉机绞肉(主要是为了做香肠)。第二件是 [用我的搅拌机快速调制伏特加](https://lifehacker.com/now-is-the-time-to-infuse-a-bunch-of-vodka-1842838266) 。辣根是清窦的最爱。
 
-Watch
+
 
 你可以买到商业生产的辣根伏特加，但自制的 [混浊、烈性混合](https://skillet.lifehacker.com/make-crazy-potent-horseradish-vodka-in-your-blender-1831650872) 却令人非常满意。注入并过滤后，放入冰箱冷藏，然后用小玻璃杯啜饮，直到入睡。当你醒来的时候，把它放在血玛丽里。
 

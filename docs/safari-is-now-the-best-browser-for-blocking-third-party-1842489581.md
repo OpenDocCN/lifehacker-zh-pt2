@@ -4,7 +4,7 @@
 
 昨天发布的 Safari 13.1 引入了更严格的第三方 cookie 阻止功能，防止网站识别 Safari 用户并跟踪他们的网络活动。这意味着 [苹果的默认网络浏览器](https://www.apple.com/safari/) 现在是阻止第三方追踪器的最佳选择，也是第一个彻底阻止第三方 cookies 的浏览器——击败了 Chrome。
 
-Watch
+
 
 你可以在 [最新的 WebKit 开发者博客](https://webkit.org/blog/10218/full-third-party-cookie-blocking-and-more/) 中读到这些变化，但这篇文章是为 web 开发者写的，比你可能需要的技术含量高一点。以下是重要的一点:Safari 的 ITP(智能跟踪预防)现在默认情况下会阻止所有第三方 cookies。ITP 在 2017 年推出时允许一些例外，但网站能够利用这些例外根据被阻止的内容来识别用户，并跟踪他们的活动。这些例外还使得根据用户当前在其他地方登录的其他网站来对用户进行指纹识别成为可能，即使他们启用了 Safari 最严格的隐私设置。
 

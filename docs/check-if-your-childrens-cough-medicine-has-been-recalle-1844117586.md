@@ -4,7 +4,7 @@
 
 两名儿童的非处方咳嗽和感冒药被召回，原因是不正确的剂量杯可能会造成意外过量的风险。GSK Consumer Healthcare 主动召回了两种药物:儿童 Robitussin Honey 咳嗽和胸部充血 DM 和儿童 Dimetapp 感冒和咳嗽。
 
-Watch
+
 
 [公司在 FDA 网站](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/gsk-consumer-healthcare-issues-voluntary-nationwide-recall-childrens-robitussinr-honey-cough-and) 上的公告部分称:
 

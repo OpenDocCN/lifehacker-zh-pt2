@@ -4,7 +4,7 @@
 
 如果你的火狐浏览器插件突然停止工作，现在在没有任何警告的情况下“不受支持”，或者你不能安装任何新的插件，不要担心: [Mozilla 已经意识到这些错误](https://blog.mozilla.org/addons/2019/05/04/update-regarding-add-ons-in-firefox/)正在解决这个问题。抵制现在采取任何聪明的变通办法的冲动，这可能会弄糟 Mozilla 试图实现的任何解决方案。
 
-Watch
+
 
 根据 Mozilla 的博客文章:
 

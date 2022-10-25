@@ -4,7 +4,7 @@
 
 你希望孩子们能去夏令营。他们只想整天出现在 YouTube 上。事实证明，在疫情时代，这两件事都是可能的。而这一切都要感谢“ [营地 YouTube](https://learnathome.withyoutube.com/camp-youtube) ”
 
-Watch
+
 
 今年夏天有很多虚拟营地 可供选择，但这个可能比大多数人更能吸引孩子们的注意力。它拥有来自 40 多个不同创作者的 1200 多个视频，包括[艺术](https://learnathome.withyoutube.com/arts)[体育](https://learnathome.withyoutube.com/sports) 和[冒险](https://learnathome.withyoutube.com/adventure) 。
 

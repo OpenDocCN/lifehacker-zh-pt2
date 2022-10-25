@@ -4,7 +4,7 @@
 
 成功的人不是学会逃避拒绝，而是学会处理拒绝，从中学习，甚至把拒绝变成新的机遇。我们采访了一些我们最喜欢的成功人士 Lifehacker 的 [我如何工作](https://lifehacker.com/c/how-i-work) 专栏的前嘉宾——关于他们如何处理工作中的拒绝。
 
-Watch
+
 
 ### [安姿丽](https://lifehacker.com/im-actress-anjali-bhimani-and-this-is-how-i-work-1830462542) ，女演员:
 

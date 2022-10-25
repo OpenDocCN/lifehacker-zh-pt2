@@ -4,7 +4,7 @@
 
 [更新一部安卓手机](https://lifehacker.com/why-you-should-install-the-october-2019-android-securit-1838848808) 有很多种方法。大多数人可能会等待最新补丁的到来，让他们的手机自动运行更新。这是最方便的选择，但也是最慢的，因为它依赖于您的运营商为您推出更新。有一些方法可以更快地获得更新——比如 [自己下载新的更新](https://lifehacker.com/how-to-sideload-android-10-onto-your-pixel-instead-of-w-1838072534)——但是对于那些不想用额外的软件或系统级操作来捣乱的人来说，这些方法可能会令人生畏和困惑。
 
-Watch
+
 
 Pixel 用户有一个额外的选择，可以提前获得更新，而且不需要太多额外的工作。你所要做的就是使用谷歌的 Pixel 更新和修复服务来找到并安装新的更新。虽然这比等待更新出现在你的手机上并按几个按钮来安装它更复杂，但通过 Pixel Update and Repair web 工具进行更新是一种为你的 Pixel 设备获取最新 Android 补丁和更新的好方法，如果除了你之外其他人都有它们的话。
 

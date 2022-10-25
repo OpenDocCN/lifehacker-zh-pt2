@@ -4,7 +4,7 @@
 
 时不时地，我会发现自己需要一件亚马逊附加商品，而且只是一件附加商品，这让我在购物时有点纠结。
 
-Watch
+
 
 亚马逊不会自己给你发一个附加商品。哦，不。“附加”的意思是你必须有至少 25 美元的订单排队。如果是这样，那么您可以通过将该附加项目包含在您的大额采购中来订购它。否则，你什么也得不到。还有 [你不能只订购 25 美元的礼品卡](https://www.amazon.com/gp/help/customer/display.html/ref=hp_468520_buyaddon?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-get-amazon-add-on-items-without-paying-25-1829905951&asc_source=&nodeId=200876660&tag=kinjalifehackerlink-20)——亚马逊对你的把戏很聪明。(反正有一部分。)
 

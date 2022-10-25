@@ -4,7 +4,7 @@
 
 我不确定有多少人喜欢 GoDaddy，但有很多人仍然使用 web 注册器和主机，因为他们不知道任何更好的东西。我不能指责他们。我非常确定我用 GoDaddy 注册了我的第一个域名，要么是因为我在一个商业广告上听到了该公司的名字，并在脑海中将其与“如何获得域名”联系起来，要么是我在网上看到了一些交易。(大概就是那个。)
 
-Watch
+
 
 关于 GoDaddy 有很多*不*喜欢的地方——包括 [它过去在重要事情上的立场](https://www.thedailybeast.com/are-white-supremacist-sites-morally-offensive-to-godaddy)[它如何对待潜在客户](https://www.reddit.com/r/web_design/comments/a562gv/godaddy_is_a_scam/)[整个 SOPA 的事情](https://gizmodo.com/as-if-you-needed-another-reason-to-hate-f-cking-godaddy-5870559) ，以及 [它被抬高的定价模式](https://www.authormedia.com/6-reasons-authors-should-avoid-godaddy/) 。你现在可以在清单上增加一个烦恼了。最近，程序员伊戈尔·克罗明(Igor Kromin)发现 GoDaddy 在他的网站中注入令人讨厌的 Javascript。该代码是该服务的“真实用户指标”功能的一部分，如果该公司的美国数据中心托管着你的网站，你会自动选择使用该功能。
 

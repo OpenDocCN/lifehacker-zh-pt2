@@ -4,7 +4,7 @@
 
 “ [火狐预览版](https://lifehacker.com/everything-you-need-to-know-about-firefox-preview-on-an-1835950429) 、“火狐的重建版 Android app、的开发一直在沿着平稳地前进，本周它最好的功能之一得到了的大幅更新。
 
-Watch
+
 
 早在二月份，Mozilla [就为 Firefox 预览版](https://lifehacker.com/mozillas-new-firefox-android-app-only-supports-these-ex-1841673071) 增加了对浏览器扩展的支持，但你只能安装一个插件:uBlock Origin。 Mozilla 最新的 Firefox 预览版测试版在移动浏览器中增加了五个插件，这些插件可以从应用程序的设置中安装，它们都很棒:
 

@@ -4,7 +4,7 @@
 
 我们都知道连续几个小时盯着电脑屏幕不是个好主意，但这并不妨碍我们这样做。
 
-Watch
+
 
 [休息时间](https://chrome.google.com/webstore/detail/break-timer/hklkdbpicdmlpoiellngedpejjkmapei?hl=en) 是 Chrome 的一个扩展，提醒你周期性的离开一步。有了这个扩展，你可以自定义休息时间和休息频率。当休息时间到来时，您可以收到一个小的弹出通知，或者一条全屏消息，告诉您该休息几分钟了。
 

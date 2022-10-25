@@ -4,7 +4,7 @@
 
 上周，一对 [夫妇花了近 11800 美元](https://www.cnn.com/travel/article/airbnb-ibiza-spain-penthouse-scam-trnd/index.html) 在西班牙伊比沙岛的 Airbnb 住了两周——却发现房源是个骗局。办理入住手续时，他们得知这家酒店根本不存在，并发现自己在最后一刻匆忙寻找酒店，同时努力与 Airbnb 沟通。
 
-Watch
+
 
 我们已经 [写了很多](https://lifehacker.com/how-to-identify-scam-listings-on-airbnb-1837486562)[关于如何](https://lifehacker.com/take-photos-of-your-airbnb-before-leaving-1833950599) 避免 Airbnb 诈骗的方法(并且最近与 [《华盛顿邮报》](https://www.washingtonpost.com/travel/2019/10/03/couple-was-scammed-by-airbnb-listing-heres-how-make-sure-that-doesnt-happen-you/) 分享了一些我们关于这个话题的顶级建议)。尽管如此，人们还是经常成为租房网站上欺诈房源和其他诈骗的受害者。使用这个故事作为案例研究，让我们深入探讨常见的 Airbnb 骗局的危险信号，这样你就可以避免类似的命运。
 

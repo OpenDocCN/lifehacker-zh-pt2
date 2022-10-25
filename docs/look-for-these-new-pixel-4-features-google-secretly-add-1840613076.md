@@ -4,7 +4,7 @@
 
 由于第一次“像素功能下降”更新 ，整个 Pixel 手机系列最近获得了 [一些新功能，但看起来谷歌也设法偷偷加入了一些额外的 Pixel 4 更新。](https://lifehacker.com/everything-google-is-launching-in-its-first-pixel-featu-1840345270) 
 
-Watch
+
 
 无论是 [XDA 开发者](https://www.xda-developers.com/google-pixel-4-pixel-feature-drop-hidden-improvements/) 还是 [Android Police](https://www.androidpolice.com/2019/12/19/pixel-4-december-update-adds-official-support-for-t-mobile-esim/) 都发现了 Pixel 4 的三项增强功能，这些功能并没有包含在最初的功能下降包中，尽管包括了大多数 Pixel 4 和 4 XL 用户可能会感到兴奋的新功能——例如扩展的 eSIM 支持以及 GPS 功能和面部识别的更高精度。
 

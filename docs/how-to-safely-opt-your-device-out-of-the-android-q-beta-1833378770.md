@@ -6,7 +6,7 @@
 
 虽然谷歌允许用户通过一个公共测试程序测试 T2 安卓 10 T3 T4，但这并不适合所有人。如果你更新到 Android 10 测试版，发现你的设备速度变慢了，电池效率降低了，或者某些应用程序没有按照预期的方式运行(或者根本没有运行)，那么 [你并不孤单](https://www.androidcentral.com/what-android-q-bugs-have-you-discovered) ，很可能你需要回滚到 Android 9。
 
-Watch
+
 
 像这样的性能问题和错误是早期获得新软件和新特性的部分代价。测试版旨在帮助开发者发现和解决问题，值得称赞的是，谷歌 [公开了选择任何测试版程序的潜在缺点](https://developers.google.com/android/guides/beta-program) 。
 

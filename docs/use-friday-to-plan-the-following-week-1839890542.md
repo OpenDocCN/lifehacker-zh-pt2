@@ -4,7 +4,7 @@
 
 我们很多人都没有什么仪式来帮助我们从工作周中过渡出来，让周末尽可能放松。也许你去欢乐时光；也许你点外卖；如果你是我，也许你会收拾好你的公寓，点上一支香烛。
 
-Watch
+
 
 生产力专家 [劳拉·凡德卡姆](https://lauravanderkam.com/) 建议在你的周五待办事项清单上再增加一项: [规划下周](https://lauravanderkam.com/2019/11/tranquility-by-tuesday-planning-on-fridays-and-batching-those-little-tasks/) 。
 

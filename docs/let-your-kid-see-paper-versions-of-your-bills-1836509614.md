@@ -4,7 +4,7 @@
 
 ——一款新版本的桌游有一个管理买卖的语音助手。这太奇怪了。就像你是史高治·麦克老鸭一样沉浸在你收集的所有纸币中，这种快乐难道不是来自于此吗？但这种变化也可能是一个更大问题的标志。如果孩子们不再接触金钱这个有形的元素，他们还能完全理解它的价值吗？
 
-Watch
+
 
 接触实物对孩子的大脑有影响。研究表明， [触摸金钱](https://www.marketwatch.com/story/what-to-tell-your-children-about-money-so-they-dont-become-materialistic-2018-12-20) 这种简单的行为会对他们的行为产生强大的影响。这就是为什么你可能想要 [给你的孩子现金而不是信用卡](https://offspring.lifehacker.com/give-your-kids-cash-instead-of-a-credit-card-1825151908) 。对于那些刚刚开始培养财务意识的人来说，手握真金白银的触觉体验会让他们意识到他们所花的钱是赚来的。
 

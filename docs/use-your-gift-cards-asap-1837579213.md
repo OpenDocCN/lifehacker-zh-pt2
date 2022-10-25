@@ -4,7 +4,7 @@
 
 下次你收到礼品卡的时候，不要把它留到特殊的场合——也不要把它扔进抽屉里然后忘记它。尽快使用你的信用卡，否则你就是在给公司提供无息贷款。
 
-Watch
+
 
 正如财经博主 [JP 康宁](https://jpkoning.blogspot.com/2019/08/starbucks-monetary-superpower.html) 所解释的:
 

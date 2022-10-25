@@ -4,7 +4,7 @@
 
 如果你的收入低于 34，000 美元，并向 TurboTax 缴纳了税款，那么是时候打电话要求退款了。
 
-Watch
+
 
 [正如 ProPublica 解释的](https://www.propublica.org/article/how-to-get-turbotax-refund) :
 

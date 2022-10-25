@@ -4,7 +4,7 @@
 
 科技界在 2018 年说了很多谎言，并且它以前所未有的速度陷入了这些谎言。一些硅谷玩家甚至开始 [唤醒](https://www.forbes.com/sites/parmyolson/2018/09/26/exclusive-whatsapp-cofounder-brian-acton-gives-the-inside-story-on-deletefacebook-and-why-he-left-850-million-behind/#556a5c2c3f20) 这些年来他们告诉自己的谎言。面对如此多的谎言，我们有必要回顾一下，看看在公众对科技的信任开始下降的这一年，谁变得更强大了。
 
-Watch
+
 
 出于多种原因 ，对于记者应该和不应该称之为“谎言”的问题，有很多人感到痛心一些人认为 [谎言](https://www.merriam-webster.com/dictionary/lie) 的一个定义(“说话者或作者为了欺骗而断言已知或相信的事情是不真实的”)很难证明，因为不可能知道一个人内心的意图。那是一些扯淡的相对主义，大部分谎言从表面上看都很明白。但是为了那些学究们的利益，我们用韦伯斯特的 [其他定义](https://www.merriam-webster.com/dictionary/lie) 来定义下面的科技谎言:“误导或欺骗的东西。”有些谎言显然符合第一个定义，有些则更符合第二个定义，但它们都是谎言。
 

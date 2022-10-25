@@ -4,7 +4,7 @@
 
 如果你和我一样，患有焦虑症，那么疫情的整体情况可能会让你的日子特别难过。鉴于所有的不确定性和我们现在对几乎所有事情缺乏控制，即使那些通常没有焦虑问题的人也感觉到了。不管你属于哪一类，你现在都有可能需要一点帮助——[，尤其是如果这种帮助是免费的](https://thewellnesssociety.org/wp-content/uploads/2020/04/Coronavirus-Anxiety-Workbook.pdf) 。
 
-Watch
+
 
 几年前，我的治疗师建议我购买并使用 [一本焦虑练习册](https://www.amazon.com/Anxiety-Worry-Workbook-Cognitive-Behavioral/dp/160623918X?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/download-this-free-workbook-on-anxiety-and-the-coronavi-1842886965&asc_source=&tag=kinjalifehackerlink-20) 。它充满了活动和练习，旨在让我思考我焦虑的根源，并帮助我重新构建我的思维模式作为应对机制。在过去的几周里，我一直在重温练习册，提醒自己脑子里到底在想什么，这是一种让自己感觉对事情有更多掌控的策略。
 

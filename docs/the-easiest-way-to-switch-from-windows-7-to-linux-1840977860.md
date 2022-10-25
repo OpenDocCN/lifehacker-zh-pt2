@@ -4,7 +4,7 @@
 
 欢迎来到 Windows 7 的最后一天——这是微软为过时的操作系统 发布 [安全更新的最后一天。虽然你有很多选择](https://lifehacker.com/am-i-screwed-if-i-dont-upgrade-windows-7-by-january-15-1840903120) [升级 Windows 7](https://lifehacker.com/the-best-ways-to-get-windows-10-for-free-1837174464) ，甚至有一个黑客 [可能能够将你的更新](https://lifehacker.com/how-to-extend-your-windows-7-security-updates-past-janu-1840313094) 延长数年，如果你*不想 [跳到 Windows 10](https://lifehacker.com/quickly-upgrade-windows-7-to-windows-10-for-free-with-t-1840843214) 的话，你可以做的最好的事情之一就是来个 90 度大转弯，转向 Linux。*
 
-Watch
+
 
 是的，Linux。不要害怕。虽然你的第一个想法可能是，“这对我来说太复杂了”，但请听我说完。有许多 Linux 发行版的外观和感觉都像您已经熟悉的 Windows。你不会发现自己坐在命令提示符前，不知道下一步该做什么，除非那是你想要的那种体验。否则，Linux 一点也不可怕。
 

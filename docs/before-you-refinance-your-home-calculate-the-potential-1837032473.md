@@ -4,7 +4,7 @@
 
 抵押贷款利率为 [自 2016 年](https://lifehacker.com/what-the-federal-reserve-interest-rate-cut-might-mean-f-1836790877) 以来的最低水平。这是否意味着是时候为你的房子再融资了？良好的...也许吧。
 
-Watch
+
 
 正如美国消费者新闻与商业频道提醒我们的，再融资有其自身的成本:
 

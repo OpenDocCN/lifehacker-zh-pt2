@@ -4,7 +4,7 @@
 
 Trader Joe's 是那些试图减少商店的种类，增加 T2 的体验的零售商之一——这意味着如果没有花费超出计划的体验，很难度过 TJ 之旅。
 
-Watch
+
 
 甚至阅读《乔的无畏传单》也会让人幻想在一个 [南瓜香料面膜](https://www.traderjoes.com/fearless-flyer/article/5075) 下放松，或者舀进一桶 [烘焙的血橙巧克力片乳清干酪](https://www.traderjoes.com/fearless-flyer/article/5027) ，TJ's 以“每磅 10.99 美元的惊人价格”出售，并建议你要么放在奶酪板上，要么“在打开的冰箱门前，用叉子”吃
 

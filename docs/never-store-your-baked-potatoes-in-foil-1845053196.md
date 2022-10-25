@@ -4,7 +4,7 @@
 
 作为一个享受丰盛牛排大餐的人，我经常发现自己吃了一半，剩下的烤土豆。也许你也经历过这种情况。这并不是一件坏事——你可以用剩菜来做 [真正好的早餐土豆](https://skillet.lifehacker.com/make-hash-browns-with-a-leftover-baked-potato-1844705539)——但是你应该在储存它们的时候小心一点。
 
-Watch
+
 
 如果你习惯在烤土豆的时候用箔纸把它们包起来(我通常会把它们裸露出来，这样会更脆)，确保土豆一从烤箱里出来就把箔纸拿掉。铝箔减少了土豆看到的氧气量，缺氧会导致肉毒中毒，这是没有人想要的。根据的说法，熟土豆是一种 [时间/温度控制安全(TCS)食品](https://www.statefoodsafety.com/Resources/Resources/is-my-baked-potato-safe-to-eat) ，一类必须小心存放的食品:
 

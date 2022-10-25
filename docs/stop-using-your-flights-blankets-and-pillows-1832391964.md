@@ -4,7 +4,7 @@
 
 在潮湿的马桶座圈和你座位上那些神秘的碎屑之间，飞机卫生，嗯，还有很多需要改进的地方。
 
-Watch
+
 
 就在本周， [英国航空公司](https://thepointsguy.com/news/british-airways-tries-not-cleaning-aircraft-cabin-between-flights/) 甚至在从伦敦希思罗机场飞往爱尔兰都柏林的航班之间进行了一次“免清洁试验”，这意味着机舱根本不打扫*(*这样他们可以更好地按时起飞)。更糟糕的是，你现在有理由永远停止在飞机上使用某些供应品。
 

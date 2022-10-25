@@ -4,7 +4,7 @@
 
 *替罪羊:终极淘汰赛* [正在席卷游戏世界](https://kotaku.com/an-unreleased-indie-game-took-over-twitch-but-it-didnt-1844520348) 。派对平台游戏《皇家之战》(battle royale)将于本周在 PC 和 PlayStation 4 上推出，让数十名玩家在一系列疯狂的迷你游戏中相互对战。这很简单。大部分迷你游戏都要求向前跑，在合适的时间跳跃。但是还是有一些小技巧的。以下是如何赢得你的第一个(或第五个)王冠。
 
-Watch
+
 
 ## 你不需要第一个进来——首先。
 

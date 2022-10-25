@@ -4,7 +4,7 @@
 
 烤鸡有很多种方法，其中很多都很好。事实上，烤鸡的种类太多了，以至于我很少用同样的方式烤一只鸡两次，尽管我认为这一切都将改变，因为我现在痴迷于用被称为“labneh”的过滤奶油奶酪状酸奶涂抹整只鸡。
 
-Watch
+
 
 lab neh chicken——lab hen，如果你愿意的话——完全完全受 [Samin Nosrat](https://skillet.lifehacker.com/im-samin-nosrat-host-and-executive-producer-of-salt-f-1830721316) 的标志性 [酪乳鸡](https://www.saltfatacidheat.com/buttermilkmarinated-roast-chicken) 的启发，是一种终极的低努力高回报烤鸡。lab neh——就像酸奶油和奶油奶酪的混合物——可以做出很棒的腌泡汁，原因有很多。就像 Samin 的酪乳腌制鸡肉一样，labneh 涂层鸡肉暴露在酸、脂肪和蛋白质中，这使得鸡肉鲜嫩多汁，皮肤呈金黄色。与酪乳腌制的鸡肉不同，你不必担心腌制时液体溢出，所以你可以更懒地将鸡肉装袋。
 

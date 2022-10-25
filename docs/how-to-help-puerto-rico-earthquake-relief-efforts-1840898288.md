@@ -4,7 +4,7 @@
 
 周二，一场 6.4 级的地震袭击了波多黎各岛，引发了一系列余震，夷平了岛上的房屋和建筑；这次地震紧随周一早上同样袭击该岛的 5.8 级 地震之后。
 
-Watch
+
 
 据美国有线电视新闻网 报道，许多当地居民称地震*造成的破坏比 2017 年 9 月飓风玛利亚造成的破坏*更严重，而 [岛基本上仍未从](https://www.washingtonpost.com/us-policy/2020/01/09/hit-by-devastating-earthquakes-puerto-rico-still-waiting-billions-hurricane-relief/?utm_campaign=wp_main&utm_medium=social&utm_source=twitter) 中恢复过来。截至周三，该岛大约三分之二的地方仍然没有电(许多人仍然没有水)。作为对一系列地震的回应，岛上已经宣布进入公共卫生紧急状态。
 

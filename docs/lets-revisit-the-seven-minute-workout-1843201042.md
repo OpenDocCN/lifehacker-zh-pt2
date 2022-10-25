@@ -4,7 +4,7 @@
 
 我第一次听说七分钟锻炼，我认为这是一个伟大的想法。但后来我做到了，不能挂。从纸面上看，这太容易了，然而最后的侧板却是致命的。我没有跟上它，尽管它旨在让你在短短几分钟内完成一天的锻炼，使每个人都能通过简单的例行公事保持健康。
 
-Watch
+
 
 在本月的 Lifehacker 健身挑战赛中，我们将重温 Lifehacker 历史上的经典家庭训练。七分钟锻炼是 2013 年的一个重磅炸弹，第一个 [发表在 5 月/6 月期的《ACSM 健康与健身杂志》上](https://journals.lww.com/acsm-healthfitness/Fulltext/2013/05000/HIGH_INTENSITY_CIRCUIT_TRAINING_USING_BODY_WEIGHT_.5.aspx) ，随后不久 [《纽约时报》的一篇文章](https://well.blogs.nytimes.com/2013/05/09/the-scientific-7-minute-workout/) 将其带入公众意识。
 

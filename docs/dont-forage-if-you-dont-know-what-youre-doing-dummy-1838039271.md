@@ -4,7 +4,7 @@
 
 我们都听说过徒步旅行者的故事，他们靠浆果或其他野生食物 [存活下来，却在森林里](https://lifehacker.com/what-to-do-if-youre-lost-in-the-woods-1835061202) 迷路了。虽然学习当地的食物是一个很好的学习课题，但是对于过于自信的人来说，还有很多讨厌的甚至是致命的东西在等着他们。
 
-Watch
+
 
 如果你*真的*在森林里迷路了，记住在 [附近，97%的搜救案例都是在](https://www.outsideonline.com/2059616/how-backcountry-search-and-rescue-works) 的 24 小时内找到的。如果你已经迷失了一个小时，没有必要开始吃随机的浆果。
 

@@ -4,7 +4,7 @@
 
 Lifehacker 的读者如果不实用，那就一无是处。根据我们的流量日志，2018 年你想要更快的 wifi，更便宜的航班，以及在你中奖时保持匿名的指南。所有这些都是人们过上幸福而富有成效的生活所需要的。在我们今年最受欢迎的十篇文章中，看看我们关于这些话题的故事。
 
-Watch
+
 
 ### 10。 [**Cipro 的安全警告刚刚变得更恐怖**](https://vitals.lifehacker.com/cipros-safety-warnings-just-got-scarier-1827537812#_ga=2.79136084.1946986655.1544704342-amp-VOgg_tjC2YsJPdc1F95aeA)
 

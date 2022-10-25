@@ -4,7 +4,7 @@
 
 Twitter 只是让你更容易在时间线上的最新推文和热门推文之间切换你的家庭时间线——只要你使用的是 iOS 设备。
 
-Watch
+
 
 [https://life hacker . com/Twitter-is-bring-back-the-reverse-chronological-time-1829135138](https://lifehacker.com/twitter-is-bringing-back-the-reverse-chronological-time-1829135138)T3】
 

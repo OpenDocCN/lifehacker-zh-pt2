@@ -4,7 +4,7 @@
 
 谷歌已经放弃了 11 月份对 Pixel 2、Pixel 3、Pixel 3a 和 Pixel 4 的 Android 10 更新，这很有趣，因为三星显然在这一次 [击败了谷歌](https://9to5google.com/2019/11/05/galaxy-s10-november-patch/)——这是一个意想不到的举动。
 
-Watch
+
 
 如果你使用的是谷歌的旗舰手机，你没有理由不更新到最新版本的 Android 10。它不仅可以修复错误和修补漏洞，还可以根据您使用的设备添加一些功能。
 

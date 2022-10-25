@@ -4,7 +4,7 @@
 
 仔细检查你的 Venmo 余额没有赤字——否则你的账单可能会被收账。
 
-Watch
+
 
 这是根据[](https://www.wsj.com/articles/venmo-to-users-if-you-owe-us-money-were-coming-for-it-11553518800)*的一份报告，该报告发现，PayPal 旗下的支付应用程序向负余额用户发送了 7 美元至 3000 美元不等的电子邮件，告诉他们“如果不支付，你将面临被催收机构举报的风险。”*
 

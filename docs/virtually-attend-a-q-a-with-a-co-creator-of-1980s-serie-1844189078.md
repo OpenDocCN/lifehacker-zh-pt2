@@ -4,7 +4,7 @@
 
 你是科学电视节目和纪录片的粉丝吗？尽管自 1903 年 以来，它们在某些版本中一直出现在 [左右，但 PBS 在 1980 年播出的一个 13 集系列节目真正吸引了全国的注意力。它被称为](http://blogs.nature.com/ofschemesandmemes/2011/03/01/science-as-seen-on-screen-wt#:~:text=First%20ever%20documentary,the%20first%20ever%20science%20documentary.) [“宇宙:个人航行”](http://carlsagan.com/) ，由卡尔·萨根、安·德鲁扬和史蒂文·索特创作并撰写，萨根担任该节目的主持人(在大多数人使用这个词之前，他担任 [“科学传播者”](https://blogs.scientificamerican.com/observations/how-to-become-a-scientist-communicator/) )。
 
-Watch
+
 
 当它第一次播出时，它是那种约会电视——那种全家人围在电视前的时刻——如果你错过了它，你会感到被忽视了。事实上，10 年来，它是美国公共电视上收视率最高的系列节目，在《纽约时报》2011 年的一篇文章中，戴夫·伊茨科夫称该系列节目为“科学节目的分水岭时刻”无论如何，如果你还没看过，现在就是你的机会，今天晚些时候，你甚至可以 [参加一个与德鲁伊](https://www.eventbrite.com/e/cosmos-online-zoom-qa-with-co-creator-ann-druyan-tickets-109758235838?aff=ebdssbonlinesearch) 的虚拟 Q &会话。下面是观看的方法。
 

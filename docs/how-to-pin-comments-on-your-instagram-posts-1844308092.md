@@ -4,7 +4,7 @@
 
 评论线程是互联网 的 [Mos Eisleys，社交媒体](https://www.youtube.com/watch?v=Xcb4_QwP6fE) [上的评论部分是最糟糕的](https://lifehacker.com/how-to-report-racist-or-abusive-posts-on-social-media-1843836814) ，尤其是来自热门账户的帖子。为了帮助创造一个更积极的氛围，Instagram 现在允许你在帖子顶部发布最多三条评论——请选择一些好的评论。
 
-Watch
+
 
 发表的评论可以是你自己的，也可以来自其他关注者/评论者。一旦一个评论被锁定，无论它是什么时候发布的，它都将位于评论主题的顶部。这将是用户滚动订阅源时看到的特色评论，也是他们打开主题时看到的第一条评论。
 

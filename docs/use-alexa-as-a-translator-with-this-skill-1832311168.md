@@ -4,7 +4,7 @@
 
 在过去的几年里，我开始在世界各地旅行，这意味着学习新的语言。
 
-Watch
+
 
 虽然我肯定已经到了一个年龄，流利地掌握一门全新的语言是不可能的(老实说，我 18 岁时就是这样)，但我总是在去一个新地方之前努力学习一门语言的基础知识。并学习如何正确地发音。如果你在同一条船上，这个 [Alexa 技能翻译过来的](https://www.amazon.com/Translated-Labs/dp/B01N9BZJPZ?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/use-alexa-as-a-translator-with-this-skill-1832311168&asc_source=&tag=kinjalifehackerlink-20) 可以帮上忙。
 

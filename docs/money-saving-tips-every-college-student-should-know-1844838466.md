@@ -4,7 +4,7 @@
 
 虽然冠状病毒 [可能在减少](https://www.wsj.com/articles/coronavirus-latest-news-08-24-2020-11598258429) 在美国新病例的威胁仍然存在， [尤其是在大学生中](https://www.cnn.com/videos/health/2020/08/20/coronavirus-wrap-college-campuses-watt-dnt-lead-vpx.cnn) 。随着保持健康的额外挑战——以及更少的安全社交方式——你可能没有同样的精力在今年秋天寻找省钱的机会。幸运的是，Reddit 上有一个 [新帖，为大学生提供了一些最好的免费和低价资源。这是一些亮点。](https://www.reddit.com/r/AskReddit/comments/if4ggi/what_are_some_freelowcost_resources_college)
 
-Watch
+
 
 ### **尽量使用开源教材**
 

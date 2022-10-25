@@ -4,7 +4,7 @@
 
 热心的清洁工们，注意了:你的厨房里有一块区域积满了污垢，你甚至看不到它。
 
-Watch
+
 
 尤其令人担忧的是，如果你有宠物，情况会更糟。或者之前的房客有没有宠物。事实上，根据 Reddit 用户[u/Tuckerismypuppy](https://www.reddit.com/user/Tuckerismypuppy)的说法，如果有动物在你的房子里呼吸，你应该检查一下你的冰箱下面。他们 [发布了该地区的照片](https://www.reddit.com/r/HomeImprovement/comments/9v1tah/fyi_if_you_have_pets_maybe_look_under_your_fridge/) ，并写道他们已经移除了“底部塑料盖”，并在他们制作食物的地方发现了数量惊人的毛发:
 

@@ -4,7 +4,7 @@
 
 奶酪、熟食，甚至 [夜宵板](https://skillet.lifehacker.com/how-to-build-a-perfect-snack-board-1829690692) 都可以作为小吃、正餐或鸡尾酒会的食物。板子上的内容显然是最重要的部分，但是板子本身也能极大地影响你吃零食的体验。为了轻松享受吃零食的乐趣，拿一个有边框的烤盘。
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Serve Cheese and Charcuterie on Rimmed Baking Sheets](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-anatomy-of-a-perfect-cheese-board-1828745149)</aside>
 

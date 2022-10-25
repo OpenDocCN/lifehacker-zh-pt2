@@ -4,7 +4,7 @@
 
 由于牛肉短缺 ，温迪店现在可能不会供应他们标志性的方形汉堡 [，但他们想让你知道他们仍然在营业——他们正在](https://www.squaredealblog.com/homewendys/does-wendys-have-beef-weve-got-answers) [免费赠送鸡肉三明治来做这件事](https://www.wendys.com/offers-coupons) 。具体来说，如果你通过 [Wendy 的 app](https://apps.apple.com/us/app/wendys/id540518599) 点任何一个菜单项，你都可以获得一份 0 美元的辣鸡三明治。
 
-Watch
+
 
 这笔交易实际上已经有几周了，但是根据 Thrillist 的报道，这家快餐连锁店最近将的优惠延长至 6 月 7 日。我们知道日期和时间不再存在，但那是两个多星期以后的事了。这超过了 14 个单位的鸡肉三明治时间(CST)。
 

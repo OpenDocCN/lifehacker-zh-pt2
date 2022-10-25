@@ -4,7 +4,7 @@
 
 自从 [亚马逊基础](https://jalopnik.com/amazon-is-selling-its-own-brand-of-motor-oil-now-and-it-1831153957) 宣布出售其自有品牌的合成机油以来，一个大问题就是“但它到底有多好？”现在，人们进行他们自己的家庭测试，看看亚马逊的油与我们所知道和喜爱的大品牌相比如何。
 
-Watch
+
 
 最近由 [Project Farm](https://www.youtube.com/channel/UC2rzsm1Qi6N1X-wuOg_p0Ng) 在 YouTubeube 上发布的一段视频将亚马逊基础全合成机油与 Valvoline 10W-30 传统机油和美孚 1 号全合成机油进行了对比，以了解它们在一系列 at- 家庭测试中的对比情况。
 

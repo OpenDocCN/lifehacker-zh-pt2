@@ -4,7 +4,7 @@
 
 即使是 Zune 的忠实用户也不得不承认 Mac 用户过得很好——至少现在是这样。苹果已经多年没有对 macOS 和 macOS 更新收费了。当然，你需要从苹果公司购买电脑才能使用 macOS ( [差不多](https://lifehacker.com/what-was-your-best-hackintosh-experience-1834388817) )，但至少操作系统是免费的。
 
-Watch
+
 
 Windows 操作系统...没有那么多。虽然你的新台式机或笔记本电脑几乎肯定会配备 Windows 10，但操作系统的价格可能已经包含在你为系统支付的任何费用中。打造自己的 PC，你得自己掏钱买一份 Windows 10。如果你从旧的操作系统升级，你是否需要为新版本的 Windows 付费的问题会变得令人困惑。
 

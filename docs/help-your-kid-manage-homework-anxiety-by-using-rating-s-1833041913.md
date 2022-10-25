@@ -4,7 +4,7 @@
 
 对于患有焦虑症的孩子来说，家庭作业最难的部分往往是开始。甚至在拿起一支铅笔之前，他们就在脑海中构建了一个故事，告诉自己这项任务是多么的困难，多么的耗时，多么的难以完成。所以他们关闭了。父母的鼓励和恳求似乎只会让事情变得更糟。
 
-Watch
+
 
 等级量表是帮助我们表达和跟踪我们的痛苦和进步的有效工具——我们成年人使用它们来 [评估我们的心理健康](https://lifehacker.com/use-this-pain-scale-to-assess-your-mental-health-1826424998)[评估我们的痛苦](https://vitals.lifehacker.com/how-to-rate-your-pain-on-a-scale-of-1-to-10-1827971067)[回顾我们如何处理情况](https://lifehacker.com/create-a-self-reflection-feedback-system-by-rating-your-1632169533) 。孩子们也能从这种方法中受益。拥有关于他们完成任务能力的硬数据可以帮助他们从“我做不到！”“其实，我可以。这是我以前做过的证明。”
 

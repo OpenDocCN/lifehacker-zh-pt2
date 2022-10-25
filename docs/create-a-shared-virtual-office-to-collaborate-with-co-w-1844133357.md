@@ -4,7 +4,7 @@
 
 我们中那些足够幸运可以选择在家工作的人已经开始这种新的生活方式几个月了。像很多事情一样，有好的一面(不用通勤！)、不好的(和家里其他人争平面当桌子用)、丑的(当我 [在缩放会议](https://lifehacker.com/make-sure-you-dont-look-like-a-big-weirdo-before-jumpin-1842469549) 中瞥见自己的时候)。如果你是那种 [与他人合作](https://lifehacker.com/improve-your-work-from-home-morale-with-group-slack-bre-1842880766) 时工作表现最佳的人，这种新的安排可能是一个特别困难的调整。幸运的是，有一种方法可以解决这个问题。
 
-Watch
+
 
 在《纽约时报》 的一篇文章中，朱莉·威德提供了在没有办公室的情况下成功做办公室工作的建议。一种策略是在家工作时，与同事一起重新创造一种“面对面”的办公室体验。
 

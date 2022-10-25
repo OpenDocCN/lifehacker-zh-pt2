@@ -4,7 +4,7 @@
 
 苹果最近更新了其应用商店指南，允许应用程序向你发送包含广告、营销或其他促销的推送通知。这一举动并不令人惊讶，因为苹果多年来一直在自己的*应用程序中这样做——每个人都记得你收到的那些恼人的诱惑，要你注册 [Apple TV+](https://www.digitaltveurope.com/2019/11/04/exclusive-apple-accused-of-breaking-own-guidelines-with-apple-tv-push-notifications/) 或 [Apple News+](https://www.cnbc.com/2019/04/02/apple-bends-its-app-store-rules-in-services-push-developers-say.html) ？*嗯嗯*。*
 
-Watch
+
 
 使用推送通知的应用程序需要给用户一种选择退出通知的方式，用户必须选择接收通知，才能收到应用程序开发者想要的任何信息。但是我不相信整个过程会顺利。我的意思是，苹果没有提供一种简单的方法来关闭自己服务的通知广告，苹果*建立了*操作系统，更不用说规则了。
 

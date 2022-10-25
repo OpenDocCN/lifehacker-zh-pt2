@@ -4,7 +4,7 @@
 
 Chili 今天宣布与 DoorDash 建立新的合作伙伴关系，这意味着你现在可以从餐厅获得从蛋卷到薯条和调味汁的任何东西。为了庆祝，它为顾客 [提供免费的奶酪](https://www.chilis.com/menu/big-mouth-burgers/oldtimer-w-cheese) 老前辈，今天购物满 10 美元。
 
-Watch
+
 
 优惠仅限于 25，000 个汉堡，所以尽管这是一个很大的数字，如果你想利用这笔交易，你可能会更安全地尽早订购。
 

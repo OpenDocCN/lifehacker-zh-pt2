@@ -4,7 +4,7 @@
 
 又到时间了:我们最喜欢的医生回来了，和你讨论任何困扰你的健康问题，不管你认为它有多小或多奇怪。毕竟，你手臂上奇怪的疼痛可能是你走向死亡的信号，对吗？
 
-Watch
+
 
 美国东部时间下午 1 点，医学博士 Christopher Kelly，M.S .和医学博士 Marc Eisenberg，f . a . c . c .——[*作者我要死了吗？！:一份关于你的症状的完整指南——以及下一步该做什么*](https://aax-us-east.amazon-adsystem.com/x/c/QmQfmNVipNEBorebclh3QzYAAAFo3TkHAAEAAAFKATNGbyA/https://www.amazon.com/Am-Dying-Complete-Guide-Symptoms/dp/0062847600/ref=sr_1_1?creativeASIN=0062847600&linkCode=w61&imprToken=kq5MPSzeLXysoFUj6kQIYw&slotNum=0&ascsubtag=cdf232f2ac4e046ed82a93316a2e857815d8a6b0&ie=UTF8&keywords=am%20i%20dying&qid=1546879087&sr=8-1&tag=lifehackeramzn-20)——将在网上对你可能存在的任何健康问题做出回应。以下是他们能够帮助您解决的一些问题示例:
 

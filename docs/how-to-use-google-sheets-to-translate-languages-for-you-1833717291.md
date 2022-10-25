@@ -4,7 +4,7 @@
 
 有比手持字典更有效的方法来记录重要的外语词汇。如果你正在学习一门新语言或进行基本的翻译，尝试使用 Google Sheets 中的 Google Translate 公式，轻松获取你知道或想知道的内容列表。
 
-Watch
+
 
 这个 [方法是由 r/LifeHacks 上的](https://www.reddit.com/r/lifehacks/comments/b81zqh/using_google_sheets_to_translate_batches_of_words/) [u/mk4rim](https://www.reddit.com/user/mk4rim) 发布到 Reddit 上的 ，但原始信息实际上来自科技作家兼教育家杰克·米勒。米勒在 2018 年分享了这个视频，但它在 Reddit 上获得了新的生命。当时，他制作了这个视频，展示了插入到谷歌工作表中的基本公式，这些公式将你的电子表格连接到谷歌翻译:
 

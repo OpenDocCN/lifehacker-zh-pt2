@@ -4,7 +4,7 @@
 
 昨天， [沃尔玛宣布](https://corporate.walmart.com/newsroom/2020/09/01/walmart-introduces-walmart) 一项新服务，与 [亚马逊 Prime](https://twocents.lifehacker.com/all-the-ways-amazon-offers-prime-for-free-1789710361?_ga=2.113795143.1749539011.1598877333-845207273.1593703971) 竞争。沃尔玛+会员计划将于 9 月 15 日对所有顾客开放。这是我们目前所知道的关于这项服务的所有信息。
 
-Watch
+
 
 ### **沃尔玛+多少钱？**
 

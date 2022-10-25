@@ -4,7 +4,7 @@
 
 作为一个千禧一代，我被鳄梨毁了经济。我忍不住把它们涂在每一个可以吃的表面上——而且它们太贵了！这就是为什么这个关于如何让你的钱得到最多鳄梨肉的小建议如此令人兴奋。
 
-Watch
+
 
 由 [u/passivefiness](https://www.reddit.com/user/passivefiness) 发布在 r/LifeProTips 上，这个黑客是基于你 [不为坑](https://www.reddit.com/r/LifeProTips/comments/ayozne/lpt_the_rounder_the_avocado_the_bigger_the_pit/) 买个牛油果的假设；显然，在杂货店过道里看起来很好的大而圆的鳄梨果实打开后会发现它们里面大部分是一个巨大的种子。你想要的是一个好的长方形 avo:
 

@@ -4,7 +4,7 @@
 
 如果你被困在一份你不喜欢的工作中，不要马上辞职。相反，问问你自己如何利用你目前的职位来帮助你建立职业生涯的下一个阶段。
 
-Watch
+
 
 为什么？因为——正如最近在 [Fast Company](https://www.fastcompany.com/90396641/even-if-you-hate-your-job-you-can-use-it-to-build-a-career-you-love) 发表的一篇文章解释的那样——如果你不花点时间问问自己为什么讨厌目前的工作，你可能不知道在下一份工作中寻找什么(以及避免什么)。
 

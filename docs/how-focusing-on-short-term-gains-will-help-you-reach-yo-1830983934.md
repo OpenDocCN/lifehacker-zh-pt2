@@ -4,7 +4,7 @@
 
 当我们考虑 2019 年 的 [金钱目标时，你的一个关键考虑因素应该是你每天或每周可以采取的](https://twocents.lifehacker.com/did-you-accomplish-your-2018-money-goals-1830981445#_ga=2.175172010.948678826.1544450486-594046802.1524762060) [小步骤](https://twocents.lifehacker.com/increase-your-401-k-or-ira-contributions-for-2019-1830819672#_ga=2.216049054.948678826.1544450486-594046802.1524762060) 让你去你想去的地方。
 
-Watch
+
 
 对于[](https://www.fastcompany.com/90273724/cant-work-towards-your-long-term-goal-blame-your-brain)*快公司，贝基·凯恩解释说，人们很难达到他们的长期财务目标，比如为退休储蓄，因为我们的大脑并没有这样做。她写道:*
 

@@ -4,7 +4,7 @@
 
 皮特一年中的大部分时间都在船上度过，但当他在家时，他喜欢开快车，并创造一些单圈时间。他准备把他的克尔维特换成可以应付赛道日的东西，但不想要通常的嫌疑人。他应该买什么车？
 
-Watch
+
 
 *(欢迎回到* [*应该买什么车*](http://jalopnik.com/tag/wcsyb) *？我们给真正的人买车的真正建议。你想让我们帮你找辆车吗？* [*在我们的表格上提交您的故事。*](https://docs.google.com/forms/d/e/1FAIpQLSeDqY7bGeYrM8RWcNlPnkVd6814SQy9xNLyLOtkgq_lz3cePA/viewform?usp=sf_link) *)*
 

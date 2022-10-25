@@ -4,7 +4,7 @@
 
 Android 用户可以 [放心地期待谷歌定期推出新的安全补丁](https://lifehacker.com/why-you-should-install-the-october-2019-android-securit-1838848808) ，但具体时间取决于你的设备。谷歌产品，如 Pixel line，通常每个月都会获得新的补丁，而其他制造商的 Android 手机可能会有所不同。
 
-Watch
+
 
 如果你是三星用户，你的设备的更新时间表可能刚刚改变，因为三星最近调整了 的补丁时间表，将最近发布的产品添加到列表中，并改变了一些旧 Android 设备的更新时间表。
 

@@ -4,7 +4,7 @@
 
 如果你错过了任何好的网络星期一交易，不要担心。一些最优惠的活动在周二仍然有效——这包括航空公司的几项交易，在所谓的“ [周二](https://www.usatoday.com/story/travel/airline-news/2019/12/02/cyber-monday-airfare-deals-southwest-allegiant-jetblue-alaska-frontier/4350800002/) 旅行期间。”
 
-Watch
+
 
 是的，又有一个*日是为了交易——事实证明这些交易非常特别。只需 49 美元，你就可以乘坐阿拉斯加航空公司的单程机票从旧金山飞往奥兰治县。只要 95 美元，你就可以从纽约经西南航空飞到芝加哥。*
 

@@ -4,7 +4,7 @@
 
 周一，美国总统唐纳德·川普 [表示](https://www.bloomberg.com/news/articles/2020-03-23/trump-postpones-real-id-requirements-due-to-virus-concerns) 获得真实身份证的截止日期将会推迟，以防止人们聚集在机动车办公室周围。
 
-Watch
+
 
 新的截止日期尚未公布。
 

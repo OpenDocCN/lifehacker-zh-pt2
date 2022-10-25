@@ -4,7 +4,7 @@
 
 夏天可能是一年中最危险的时候。衣服脱了，阳光灿烂，蜜蜂和蚊子出来了。我们更加活跃，这意味着发生事故的机会更多，比如脚踝扭伤和擦伤。当你勇敢地走向户外时，这里有一个 Android 和 iOS 应用工具包，你可以用它来处理晒伤、冲浪、刺痛、扭伤等等。
 
-Watch
+
 
 ### **急救——美国红十字会(** [**安卓**](https://play.google.com/store/apps/details?id=com.cube.arc.fa) **，**[**iOS**](https://apps.apple.com/us/app/first-aid-american-red-cross/id529160691)**)**
 

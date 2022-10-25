@@ -4,7 +4,7 @@
 
 肉桂卷是一种真正的糕点。一听到它的名字，你马上就知道你要做什么了。会有肉桂，会有*滚*。 [制作肉桂卷](https://lifehacker.com/how-to-make-your-cinnamon-rolls-taste-like-cinnabons-1839326463) 需要不- 的少量步骤，其中一个步骤是将一大卷肉桂卷切割成几卷较小的肉桂卷。对于这项任务，你不应该使用刀，甚至糕点刀具。你应该使用牙线。
 
-Watch
+
 
 与刀子和其他刀片不同，牙线不会刮到肉桂卷。牙线不是压在糕点上，而是从外面向中心切片，从各个方向施加近乎均匀的压力，让你的面包卷呈现统一的*圆形*形状。(它也适用于 [挑剔的奶酪](https://lifehacker.com/use-dental-floss-to-cut-frustrating-cheeses-5987407) 。)
 

@@ -4,7 +4,7 @@
 
 然而 [另一个主要的固件漏洞](https://lifehacker.com/how-to-check-your-usb-devices-for-unsafe-firmware-1841773522) 被发现，使得*数十亿*来自苹果、谷歌、亚马逊的手机、路由器和其他无线设备暴露在间谍活动之下。
 
-Watch
+
 
 这个被称为“Kr00k”的漏洞是由 ESETt 数据安全公司发现的，并在最近的一篇论文 中披露。Kr00k 影响某些 wifi 芯片加密数据的方式；当受影响的 wifi 设备断开连接时，正在进行的通信会被错误地加密，密钥仅为 0，很容易被解密。黑客可以破坏 wifi 信号的稳定性来触发漏洞，然后拦截并读取易受攻击的数据。( [Ars Technica 关于 Kr00k bug 的报道](https://arstechnica.com/information-technology/2020/02/flaw-in-billions-of-wi-fi-devices-left-communications-open-to-eavesdroppng/) 对感兴趣的人有更进一步的技术细节。)
 

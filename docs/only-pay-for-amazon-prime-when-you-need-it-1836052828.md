@@ -4,7 +4,7 @@
 
 当你想到通过亚马逊 Prime 获得快速送货的费用时，你可能会想到 119 美元的年度会员费——这可能对你来说只是太高了，特别是如果你的续订即将到来，但你最近经历了一场与流行病有关的裁员。另一方面，随着 [冠状病毒病例在全国大部分地区激增](https://www.npr.org/sections/coronavirus-live-updates/2020/07/25/895437773/covid-19-cases-continue-to-surge-in-states-across-the-u-s) ，你可能也在寻找一种方法，将一些你亲自购买的东西转移到送货上门。如果你想选择获得免费送货或免费送货服务，但不想预付一整年的费用，请记住**你可以按月支付服务费用，而不是一整年的费用**。
 
-Watch
+
 
 这不是一个新的黑客。我们在去年第一次发表了这个建议，在之后，它被一个的评论者在另一个 Lifehacker 帖子上指出——关于 [注册 Prime 是否值得](https://lifehacker.com/is-amazon-prime-worth-it-1038496234) 。 Lifehacker 读者[Noskferatu](https://twocents.lifehacker.com/1835909545)这样描述他们减少黄金消费的尝试:
 

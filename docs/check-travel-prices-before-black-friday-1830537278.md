@@ -4,7 +4,7 @@
 
 你可能想不到航空公司会在黑色星期五和网络星期一提供优惠——通常优惠是在电器、服装和科技产品上，对吗？但是，如果你有一个旅行的想法，并希望节省一点机票费用，来自不同旅游公司的研究表明，你可能希望查看下周发生的交易。
 
-Watch
+
 
 旅行价格比较应用程序 Hopper“预测，旅行者可以在感恩节后的周二以比平时低 40%的价格预订到东京的旅行，Skyscanner 预计周五的票价会有 20%的折扣，”纽约时报[](https://www.nytimes.com/2018/11/15/travel/best-shopping-holiday-travel-black-friday-cyber-monday-tuesday.html)*报道。那是一笔相当不错的交易。*
 

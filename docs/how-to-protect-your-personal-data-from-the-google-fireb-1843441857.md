@@ -4,7 +4,7 @@
 
 Google Play 商店中近 24，000 个应用程序可能出现了数据泄露。与我们经常报道的主动窃取或分发用户信息的 Play Store 恶意软件和骗局不同，这些应用程序是由于使用最广泛的 Android 应用程序开发平台之一 Google Firebase 的配置不佳而意外泄露数据的。
 
-Watch
+
 
 近三分之一的 Play Store 应用程序使用 Firebase 根据 Comparitech 的 [研究，大约 4.8%的应用程序——大约 24000 个——将你的数据存储在安全措施不当的数据库中。这些不安全的数据库包括大量的个人信息，如您的电子邮件地址、用户名、密码、全名、电话号码、聊天信息副本、街道地址、IP 地址、GPS 数据、信用卡数据等，只需快速的网络搜索即可访问这些数据库。谷歌从其搜索结果中删除了 Firebase 数据库，但它们可以在其他搜索引擎中找到，如 Bing。](https://www.comparitech.com/blog/information-security/firebase-misconfiguration-report/#What_data_is_exposed)
 

@@ -4,7 +4,7 @@
 
 Chrome 79 为桌面和 Android 版本的浏览器添加了一个新的“共享剪贴板”选项，这是一个受欢迎的功能。现在，在你的手机和桌面之间传送笔记、链接或提醒变得更加容易——不再需要第三方应用程序或在 Google Drive 中进行不可靠的复制粘贴。
 
-Watch
+
 
 共享剪贴板可以在 Android 版本的浏览器和所有桌面版本(Windows、macOS、Linux 和 Chrome OS)之间工作，但是你需要稍微修改一下来设置它。共享剪贴板存在于 Chrome 的 Android 应用程序的稳定版本中，但目前仅在桌面的 [Chrome 金丝雀](https://www.google.com/chrome/canary/) 中可用，你必须通过 Chrome 标志来启用该功能:
 

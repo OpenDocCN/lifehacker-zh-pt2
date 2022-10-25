@@ -4,7 +4,7 @@
 
 另一波粗略的应用程序已被谷歌 Play 商店禁止。这一次，违规应用都来自一家发行商 CooTek，该公司被安全公司 [Lookout](https://blog.lookout.com/beitaplugin-adware) 指控在其应用中部署了恶意广告软件 BeiTaAd。
 
-Watch
+
 
 根据[9 到 5 谷歌对导致 Play Store 禁令的](https://9to5google.com/2019/07/17/cootek-google-play-store-ban/) 事件的总结，Lookout 在风闻用户抱怨攻击性应用内广告后，开始调查一些应用。一些用户甚至报告说，由于大量的广告被推送，他们的设备变得无法使用——即使应用程序没有运行。 [公司发现](https://blog.lookout.com/beitaplugin-adware) 报告的应用程序都是由 CooTek 发布的，并且它们都包含 BeiTaAd 广告软件。
 

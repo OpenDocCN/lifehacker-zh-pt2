@@ -4,7 +4,7 @@
 
 自谷歌首次推出 Chromecast 流媒体棒以来，已经过去了漫长的六年。虽然你们中的大多数人现在可能已经升级到更好的东西了——比如第三代 [Chromecast](https://store.google.com/product/chromecast) 或 [Chromecast Ultra](https://store.google.com/product/chromecast_ultra) 形式的更强大的“冰球”——如果你还没有，你现在又有了一个做出改变的理由:谷歌不会再更新你的老派 Chromecast 了。
 
-Watch
+
 
 这句话带有一点警告。虽然你的第一代 Chromecast 似乎不会获得更多功能，因为它目前的固件版本是 1.36.157768，而其他 Chromecast 设备(目前)的版本是 1.40.156414，谷歌仍将根据需要用关键补丁更新你的旧设备。正如公司告诉[9 to 5 谷歌](https://9to5google.com/2019/08/26/original-chromecast-no-major-updates/) :
 

@@ -4,7 +4,7 @@
 
 当我们准备好迎接新的一年时，让我们在今年一月做一个零开销的挑战。如果你已经读了一段时间的《两分钱》，你可能会想，“女士， [我们去年做了这个](https://lifehacker.com/a-new-years-resolution-that-will-actually-improve-your-1831321233) 。追上去。”我知道！所以我想再来一次。
 
-Watch
+
 
 新年的新鲜感让它成为无消费月的黄金时间。假期是如此的忙碌——而且经常充斥着大大小小的奢侈品——以至于一月份可能是你财务状况的一个重要恢复期。在齐心协力减少开支的同时，是时候回顾你的预算，为纳税季做计划，也许 [重新评估你的一些财务优先事项](https://twocents.lifehacker.com/did-your-spending-in-2019-match-your-personal-values-1840510060) 。
 

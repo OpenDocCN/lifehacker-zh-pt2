@@ -4,7 +4,7 @@
 
 我心里一直有一个老派的“寓教于乐”游戏卡门·桑迪戈，因为小时候它们教了我一些像样的地理知识。我也喜欢这部很棒的电视节目(有很棒的主题曲 )，尽管我很确定我做了噩梦，梦见自己出现在节目中，并且在大结局中被一个难以置信的困难的大陆卡住，就像 [非洲](https://youtu.be/GsSCNjbNy4I?t=1423) 。
 
-Watch
+
 
 如果你是新网飞版《卡门·桑迪戈》系列的粉丝——很棒的动画，但仍然错过了那首朗朗上口的 Rockapella riff——你现在可以试着自己抓住小偷中的小偷大师。通过 [谷歌地球](https://earth.google.com/web/data=CiQSIhIgYmU3N2ZmYzU0MTc1MTFlOGFlOGZkMzdkYTU5MmE0MmE) 在网络或服务的 [安卓](https://play.google.com/store/apps/details?id=com.google.earth) 或 [iOS](https://play.google.com/store/apps/details?id=com.google.earth) 应用程序上启动谷歌与霍顿·米夫林·哈科特合作开发的第一款游戏 [。](https://www.blog.google/products/earth/your-mission-gumshoe-catch-carmen-sandiego-google-earth/)
 

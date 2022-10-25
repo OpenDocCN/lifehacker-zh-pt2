@@ -4,7 +4,7 @@
 
 “PowerToys”这个词可能不会让你跑向你的 Windows 电脑，但仅仅因为微软的古怪工具套件不性感并不意味着它不值得拍打你的系统。该公司今年早些时候宣布，它计划为 Windows 10 推出 PowerToys，前两个实际上是你日常生活中非常有用的补充。
 
-Watch
+
 
 如果你想遵循这个 Windows 10 的 PowerToys 的简短指南，在你的系统上安装 PowerToys 是很容易的。去下载。MSI 安装程序来自 [Github](https://github.com/microsoft/PowerToys/releases) ，其中包含两个实用程序，并运行它。一旦你在系统上安装了 PowerToys 并启动了应用程序，一个新的图标就会出现在你的任务栏上。(就是那种看起来像 RGB 渐变，下面有六个点的，我截图里左起第二个。)
 

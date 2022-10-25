@@ -4,7 +4,7 @@
 
 在你的 Android 上设置黑暗模式很容易，但是确保 [**Gboard 键盘**](https://play.google.com/store/apps/details?id=com.google.android.inputmethod.latin) 符合你对光明或黑暗面的偏好需要更多的手工。如果你想让你的键盘在你的 Android 主题改变时改变颜色——比如在一天中的某个特定时间——这个过程会有点混乱。
 
-Watch
+
 
 解决办法？当然是测试版。但在我们开始之前，让我们先来谈谈为什么你会想把它安装在你的 Android 上(除非你用的是三星，我想你真的更喜欢那个键盘而不是谷歌的)。
 

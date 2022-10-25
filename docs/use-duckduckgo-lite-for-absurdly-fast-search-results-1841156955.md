@@ -4,7 +4,7 @@
 
 大多数人可能认为 DuckDuckGo 是谷歌更注重隐私的替代产品，但放弃所有数据跟踪的一个较少讨论的好处是提高搜索速度。与谷歌相比，普通的 DuckDuckGo 搜索消耗的数据更少，需要的请求也更少，但也有一个“ [Lite](https://duckduckgo.com/lite) ”版本的 DuckDuckGo 页面，加载结果的速度要快得多。
 
-Watch
+
 
 主 DuckDuckGo 主页和 Google 搜索页面都是 2mb 左右。以今天的标准来看，这根本算不上什么数据，但 DuckDuckGo Lite 将其缩减到只有 33KBs。屏幕上唯一的 UI 元素是搜索栏和一个 DuckDuckGo 标志——所有的广告和其他图像都被剥离了。DuckDuckGo Lite 也只需要发出一些请求来填充搜索结果页面，而普通的 DuckDuckGo 页面至少会发出 50 个请求，而 Google 会发出 100 个或更多。这些较小的数字导致接近瞬时的加载时间；我们说的是毫秒，而不是秒。
 

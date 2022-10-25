@@ -4,7 +4,7 @@
 
 作为我们的 [后代脸书育儿集团](https://www.facebook.com/groups/2018785615043946/) 的一位家长，展望夏天，他认为他的孩子需要一个目标。安组织原则。一个项目。因此，艾萨克·埃利亚斯和他的合伙人在谷歌文档 中创建了 [演示文稿，召开了一次会议，并向他们的孩子宣布:今年夏天，他们将投资他们孩子的“柠檬水项目”。](https://docs.google.com/presentation/d/1KArCEH26JiGF2glbr3rDLiWcF8W_Hn-Q49kccg6aT3g/edit?fbclid=IwAR0W93blokNjkH30dfSeguY455Ea3ypIB_YuwamOwEAxQWoZNFagpWxNYhw#slide=id.p)
 
-Watch
+
 
 他们称之为“柠檬水项目”,因为当生活给了你柠檬，你就做了柠檬水。如果你没有注意到，柠檬在这个特殊的时刻非常丰富。在的演示中，他们这样写给他们的孩子:
 

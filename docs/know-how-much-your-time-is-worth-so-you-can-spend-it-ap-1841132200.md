@@ -6,7 +6,7 @@
 
 无论你是用每小时挣多少钱来计算时间，还是用一天中的多少时间来计算时间，确切地知道你的时间值多少钱是对你有利的，这样你就可以合理地安排和使用时间。
 
-Watch
+
 
 正如罗米·纽施塔特《T2[的作者所言，你可以拥有一切，只是不能同时拥有该死的](https://www.romineustadt.com/you-can-have-it-all) ，在 [中解释道:](https://www.marketwatch.com/story/if-you-want-to-live-your-dream-life-you-need-to-calculate-your-billable-hour-2020-01-14)
 

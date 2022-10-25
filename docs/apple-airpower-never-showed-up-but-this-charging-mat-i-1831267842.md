@@ -4,7 +4,7 @@
 
 很久以前，传说中有一种神奇的充电板，可以同时给智能手机、手表和无线耳塞充电。声称见过它的当地人甚至提到，它有一个看起来像吃了一半的水果的标记。然而，尽管有各种预言和谣言，没有人能够证明这种装置确实存在。因此，带着梦想和一些小工具，我开始寻找神秘的无线充电板。
 
-Watch
+
 
 最后，我找到的是 [SliceCharge](https://hardciderlabs.com/collections/test/products/slicecharge-3in1-wireless-charger) ，它的外观和功能很像苹果传说中的 AirPower 充电垫。算是吧。好吧，所以我在这篇评论中测试的是蓝色的，而不是像苹果去年取笑的 vaporware 那样是白色的，里面的技术可能与苹果计划的不同。但除此之外，SliceCharge 看起来与苹果发布的 [AirPower 概念图](https://gizmodo.com/tag/air-power) 极其相似。
 

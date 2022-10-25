@@ -4,7 +4,7 @@
 
 黑客正在使用 BlueKeep 侵入 Windows 电脑，安装一个加密货币挖掘器。该漏洞只会影响运行 Windows 7、Windows Server 2008 R2 和 Windows Server 2008 的系统。
 
-Watch
+
 
 如果你运行的是这三个版本的 Windows，你应该 [从微软下载并安装一个补丁来纠正这个问题](https://portal.msrc.microsoft.com/en-US/security-guidance/advisory/CVE-2019-0708) 。补丁从 5 月份就开始发布了，所以很有可能你已经更新了。
 

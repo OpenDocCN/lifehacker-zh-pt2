@@ -4,7 +4,7 @@
 
 今天，对于许多美国人来说，买房似乎是一个遥远的梦想，尤其是对于那些生活在纽约或旧金山等高生活成本地区的人来说。
 
-Watch
+
 
 事实上， [【何】](https://www.citylab.com/equity/2018/05/the-great-housing-reset/559466/) [我的所有权*正在下降*](https://www.citylab.com/equity/2018/05/the-great-housing-reset/559466/)*这要归功于工资停滞不前、 [不断增加的学生贷款债务](https://www.bloomberg.com/news/articles/2019-01-16/high-student-debt-is-driving-low-millennial-homeownership-rates) 、难以负担的住房选择和不断变化的财务优先事项等因素的综合作用。*
 

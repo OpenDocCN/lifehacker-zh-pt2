@@ -4,7 +4,7 @@
 
 你喜欢鸟吗？你也不讨厌在寒冷的户外吗？每年这个时候都会有一次年度鸟类普查，在许多地方仍然有时间报名帮忙。
 
-Watch
+
 
 这是奥杜邦协会的 [圣诞节鸟类计数](https://www.audubon.org/conservation/science/christmas-bird-count) ，不管名字是什么，它可能在 12 月 14 日到 1 月 5 日之间的任何时候发生在你所在的地方。结果告诉我们有多少鸟在那里，它们在哪里，以及随着时间的推移发生了什么变化。例如， [这个基于 CBC 数据的趋势查看器](https://www.audubon.org/conservation/where-have-all-birds-gone) 显示了这些年来鸟类数量的增减情况。
 

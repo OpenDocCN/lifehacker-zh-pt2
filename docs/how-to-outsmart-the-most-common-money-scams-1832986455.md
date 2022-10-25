@@ -4,7 +4,7 @@
 
 根据美国联邦贸易委员会年度 [前哨数据书报告](https://www.ftc.gov/system/files/documents/reports/consumer-sentinel-network-data-book-2018/consumer_sentinel_network_data_book_2018_0.pdf)——的报道，金融诈骗正在上升，但大多数人可以采取一些简单的措施来避免被耍。
 
-Watch
+
 
 2018 年，消费者向美国联邦贸易委员会举报了近 300 万起诈骗案，其中 48%与某种欺诈有关。最常见的诈骗类型是:
 

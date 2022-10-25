@@ -4,7 +4,7 @@
 
 这似乎应该是基本知识，但我无法告诉你有多少次我让别人给我拍照，递给他们一部手机，然后站在那里一动不动，看着他们把手机转向我...什么都没发生。他们正在拍照吗？他们在看我的电子邮件吗？那边发生了什么事？后来，当我检查相机胶卷时，会有大约 50 张照片看起来一模一样，只是我眼中的焦虑越来越多。不幸的是，我们似乎已经放弃了给别人拍照的艺术。
 
-Watch
+
 
 当 Redditor[u/triple _ verbosity](https://www.reddit.com/user/triple_verbosity)在 r/LifeProTips 中发布这个问题时，我想起了我对 [这个持久问题](https://www.reddit.com/r/LifeProTips/comments/b9mxlf/lpt_when_people_ask_you_to_take_a_picture_of_them/) 的小烦恼:
 

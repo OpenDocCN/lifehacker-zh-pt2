@@ -4,7 +4,7 @@
 
 你现在可以使用 Alexa 来捐赠玩具。在周二，亚马逊为其虚拟助手推出了一项新功能，允许你向有需要的孩子捐赠玩具，只需说，“Alexa，捐给儿童玩具吧。当你这样做的时候，Alexa 会建议你可以购买的实际玩具发送到该组织。
 
-Watch
+
 
 一旦你做出选择，亚马逊将把你的礼物直接送到 Toys for Tots。就像任何订单一样，你可以跟踪货物并查看它何时到达目的地， [*TechCrunch* 报道](https://techcrunch.com/2018/11/27/alexa-can-now-help-you-donate-to-toys-for-tots-and-other-charities/) 。
 

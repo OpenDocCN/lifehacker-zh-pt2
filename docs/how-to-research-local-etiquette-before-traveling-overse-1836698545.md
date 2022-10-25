@@ -4,7 +4,7 @@
 
 当你前往海外时，研究 [旅游诈骗](https://lifehacker.com/how-to-avoid-getting-scammed-when-traveling-1835913288) 很重要，但你也应该*努力寻找当地的社会习俗——比如用手吃饭是否会引起不满，或者初次握手需要的确切的*坚定度*。*
 
-Watch
+
 
 如果你在国外旅行——去一个不熟悉的目的地——在你下次旅行前检查一下，就像最近推荐的 [强尼·杰特](https://www.johnnyjet.com/avoid-travel-faux-pas-dondoo/) 一样。这是一个网站，它会告诉你在海外应该做什么，不应该做什么，以及如何避免犯文化错误。
 

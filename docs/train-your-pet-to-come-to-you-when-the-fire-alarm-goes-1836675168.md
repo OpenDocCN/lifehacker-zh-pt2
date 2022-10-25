@@ -4,7 +4,7 @@
 
 下一次你烧了一堆熏肉，让你的厨房充满了烟，触动了你的火警警报，迅速做出反应——移开锅，用厨房毛巾使劲扇着警报周围的空气*和*给你的宠物一个款待。
 
-Watch
+
 
 [Reddit 用户 u/Jajaninetynine](https://www.reddit.com/r/LifeProTips/comments/70h6w5/lpt_if_your_fire_alarm_goes_off_call_your_pets/) 解释原因:
 

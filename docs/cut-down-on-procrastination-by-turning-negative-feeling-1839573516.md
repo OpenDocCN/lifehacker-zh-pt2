@@ -4,7 +4,7 @@
 
 拖延是我们都经历过的事情之一。有时你可能会拖延给朋友打电话传达坏消息，有时会拖延完成一个工作项目。在所有情况下，你拖延的事情很可能需要完成，通常是越快越好。
 
-Watch
+
 
 本周 *Fast Company* [发布了一篇文章](https://www.fastcompany.com/90423957/mental-strategies-for-overcoming-procrastination) ，提出了一个关于如何战胜拖延症的好建议:将你的消极情绪转化为积极情绪。
 

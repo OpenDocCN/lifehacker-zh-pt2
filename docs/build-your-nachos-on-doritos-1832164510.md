@@ -4,7 +4,7 @@
 
 本周日，Bündchen 先生将继续他的恐怖统治，所有正派的人都将采取压力饮食(或分心饮食，如果你不关心足球)。往嘴里塞食物是最有效的方法，没有什么比玉米片更好的了。所有的玉米片都很好，但是用玉米片奶酪做的玉米片更好。
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Build Your Nachos on Doritos](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-make-taco-bell-salt-1832055727)</aside>
 

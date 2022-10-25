@@ -4,7 +4,7 @@
 
 如果你在家工作，你可能已经阅读了你能得到的优化你工作日的每一个建议。而且我相信你知道所有的大事: [制定时间表](https://lifehacker.com/how-to-schedule-your-day-when-you-freelance-or-work-fro-1833242226) ，洗澡穿衣服，不要伏案吃饭， [做点运动](https://lifehacker.com/how-to-avoid-becoming-a-hermit-when-you-work-from-home-1792406033) 。
 
-Watch
+
 
 大哈欠，好吗？近 10 年来，我每周至少有一部分时间在家工作。要让我对远程工作效率留下深刻印象，需要*很多*。
 

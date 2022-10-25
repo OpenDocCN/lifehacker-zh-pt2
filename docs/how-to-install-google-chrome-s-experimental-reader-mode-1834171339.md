@@ -4,7 +4,7 @@
 
 对于讨厌广告、自动播放视频和繁忙网页的人来说，我们有一些好消息:*谷歌 Chrome 增加了一个阅读器模式*。
 
-Watch
+
 
 阅读器模式去除了网页上除文本和无格式图像之外的所有设计元素，这与你阅读保存在 Pocket 和 Instapaper 等服务上的故事类似。其他浏览器，即 [Safari](https://www.macworld.com/article/3206708/how-to-use-reader-mode-in-safari-11.html) 和 [Firefox](https://blog.mozilla.org/firefox/reader-view/) ，已经内置阅读器模式多年。谷歌在 2014 年将其添加到 Android 上的[Chrome](https://lifehacker.com/enable-the-new-hidden-reader-mode-in-chrome-for-andro-1666469700)中，然后走开了。桌面版终于赶上了。
 

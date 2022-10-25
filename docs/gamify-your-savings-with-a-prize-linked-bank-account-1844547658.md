@@ -4,7 +4,7 @@
 
 一个名为 [约塔储蓄](https://www.withyotta.com/) 的新的与奖金挂钩的储蓄账户 [引起了 Redditors](https://www.reddit.com/r/personalfinance/comments/hzsplx/prizelinked_savings_smart_or_dumb/) 和信用博士 博客的兴趣。根据 Yotta 网站的说法，Yotta 希望“通过让存钱变得即时有趣”来帮助美国人变得更加财务安全。该公司表示，这一概念来自溢价债券——英国最大的储蓄产品——它为债券持有人提供每月赢得 100 万英镑的机会。
 
-Watch
+
 
 Yotta 是几个美国奖金挂钩储蓄账户(PLSAs)之一，所有这些账户都提供根据您的存款赢取奖金的机会。其他受欢迎的计划还有 [救赢](http://www.savetowin.org/home)[幸运储户](https://nycua.org/communications-resources/lucky-savers) 和 [赢赢](http://wincentivesavings.org/) 。沃尔玛也推出了类似的项目。
 

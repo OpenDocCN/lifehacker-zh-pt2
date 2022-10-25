@@ -4,7 +4,7 @@
 
 微软正在准备其下一个主要的 Windows 10 更新版本 1909 的公开发布。这些主要版本一年出现两次，第一次在春季，第二次在秋季，通常包括许多新特性、更新和补丁。然而，它们也会带来一些主要的错误和烦恼，所以在你投入 Windows 10 版本 1909 之前，花一些时间准备你的电脑是值得的。
 
-Watch
+
 
 首先，我们来谈谈特性。Windows 10 版本 1909 将 [增加许多新的日历和通知快捷方式](https://lifehacker.com/the-best-features-coming-in-windows-10-version-1909-1838851768) ，外加许多针对各种 Windows 10 应用的安全调整。这次 Windows 10 更新在范围上比 [之前的同类 Windows 更新](https://lifehacker.com/back-up-windows-10-before-installing-the-october-update-1829556930) 要小得多，所以它也有可能不会有任何重大错误。
 

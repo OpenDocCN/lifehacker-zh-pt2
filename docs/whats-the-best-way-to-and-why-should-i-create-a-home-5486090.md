@@ -4,7 +4,7 @@
 
 另一个 [飓风季节](https://lifehacker.com/what-to-know-about-storm-terminology-before-the-next-bi-1844737150?rev=1597806326363) 正在进行，很可能是一个糟糕的季节。野火也在加州肆虐，，【疫情】意味着我们其余的人比以往任何时候都花更多的时间在家里， [增加了房屋火灾](https://abc7amarillo.com/news/local/fires-increase-during-pandemic) 和其他导致财产损失的事故的可能性。如果你最近一直在考虑为家里的东西购买保险，或者增加保险，那么你已经领先一步了:记录你的财产以防盗窃、损坏或火灾，这永远不是一个坏主意。但是你应该怎么做呢？好吧，这项工作的最佳工具是你实际使用的工具。
 
-Watch
+
 
 做一份家庭清单并不难，但是很费时间。也是 [极其重要的](https://www.iii.org/article/three-reasons-take-home-inventory#:~:text=Homeowners%20%2B%20Renters%20Insurance,-SHARE%20THIS&text=A%20home%20inventory%20is%20simply,keeping%20receipts%20in%20a%20folder.)；保持完整和准确的库存将加快保险索赔过程，并确保您的保险照顾你失去的一切。(当然，你做 [需要保险](https://lifehacker.com/how-to-choose-the-best-renters-insurance-1838855068) 。)
 

@@ -4,7 +4,7 @@
 
 Lightroom 可能没有像 Photoshop 那样渗透到普通语言中，但在某些方面，它与强大的图像编辑器一样有用——你可以通过 20 美元的创意云 [摄影订阅](https://www.adobe.com/creativecloud/photography/compare-plans.html) 和豪华 CC 包获得这两者。无论您是刚刚开始使用该软件，还是已经习惯了使用它来调整图像，这些提示应该可以帮助您提升 Lightroom 游戏的水平。
 
-Watch
+
 
 如果你不知道 Lightroom 是什么，就把它想象成一个高级图像管理工具，内置了 Photoshop 一些最有用的编辑功能。如果需要快速处理大量图像，Lightroom 是理想选择；如果你需要最先进的编辑工具，Photoshop 更适合这项工作。
 

@@ -4,7 +4,7 @@
 
 在过去的几个月里，我在这里写了很多关于这个疫情如何影响了我们的孩子，尤其是他们的学习。随着秋天的临近，我希望帮助家长 [弄清楚他们的学区是否采取了足够的预防措施](https://offspring.lifehacker.com/how-to-assess-whether-your-school-district-is-doing-eno-1844379276) 和 [如何决定是否亲自送孩子回学校](https://offspring.lifehacker.com/finally-tools-to-help-you-decide-what-to-do-about-scho-1844604507) (如果他们有选择的话)。我们已经讨论过 [学习合作](https://offspring.lifehacker.com/how-to-start-your-own-learning-co-op-at-home-1844394666) 和 [在家里创造工作空间](https://offspring.lifehacker.com/how-to-create-a-learning-space-for-kids-at-home-1844517672)；我预测 [学校*将*再次关闭](https://offspring.lifehacker.com/schools-will-close-again-1844604561) 并有写关于 [父母如何和他们的孩子谈论所有这些](https://lifehacker.com/how-to-talk-to-kids-about-schools-reopening-or-not-1844483946) 。
 
-Watch
+
 
 所以当计划今年返校周的内容时(今年我们称之为返校周)，我不得不问自己:我该从哪里开始？当我们进入可能是我们任何人经历过的最奇怪的学年时，父母还不知道什么是重要的？然后我想，我为什么不问问我们的老师呢？有谁能比那些站在孩子教育第一线的人更好地指导我们，给我们提供智慧和建议呢？
 

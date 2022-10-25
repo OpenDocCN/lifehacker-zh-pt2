@@ -4,7 +4,7 @@
 
 如果你因为身体残疾无法到达投票站或面临额外的挑战，仍然有办法确保你的投票被计算在内。
 
-Watch
+
 
 事实上，你有受联邦保护的权利去做，而且有许多服务设立来帮助任何在这个过程中需要帮助的人， [据](https://www.forbes.com/sites/tarahaelle/2018/11/05/hospitalized-or-disabled-you-can-still-vote-and-receive-federally-protected-help/#fe4fd90756c2) 记者 Tara Haelle 为福布斯:
 

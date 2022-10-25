@@ -4,7 +4,7 @@
 
 [2019 年 3 月疯狂](https://lifehacker.com/how-to-watch-the-ncaa-march-madness-bracket-reveal-from-1833358941) 可能已经接近比赛的最后阶段，但谷歌助手 tant 可以通过各种语音命令帮助你跟上剩余的比赛，甚至可以让你 [免费收听 NCAA 韦斯特伍德一号的每场比赛](https://www.blog.google/products/assistant/tune-march-madness-free-your-google-assistant/)——前提是你有合适的设备。
 
-Watch
+
 
 像大多数谷歌助手一样，进入游戏只需要一个简单的“嘿，谷歌”语音命令，但该功能只在谷歌主页、智能显示器和其他基于谷歌助手的智能家居设备和扬声器上可用。您可以提出类似于**“嘿，谷歌，将 NCAA 三月疯狂放在西木一号上”、**或**“在西木一号上玩[队名]三月疯狂游戏”**的请求，以便在游戏正在现场进行时收听。
 

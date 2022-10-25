@@ -4,7 +4,7 @@
 
 如果你想要最好的防蚊保护，你需要在几乎所有暴露的皮肤上涂上驱蚊剂(最好是避蚊胺)。包括你的脸。
 
-Watch
+
 
 但是你不想直接往脸上喷灭虫喷雾；你可能会把它弄到眼睛里，或者吸入。相反，标签可能会告诉你把它喷在手上，并以这种方式使用。但是这里有一个改进的方法，我们通过加雷思的提示、工具和商店故事 找到了 [:在你手的*背部*喷洒杀虫剂。](https://www.getrevue.co/profile/garethbranwyn/issues/gareth-s-tips-tools-and-shop-tales-issue-10-187496?utm_campaign=Issue&utm_content=view_in_browser&utm_medium=email&utm_source=Gareth%27s+Tips%2C+Tools%2C+and+Shop+Tales)
 

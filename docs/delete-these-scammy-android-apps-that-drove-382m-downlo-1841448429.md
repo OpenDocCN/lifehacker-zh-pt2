@@ -4,7 +4,7 @@
 
 每当我们发布“删除这些应用”的故事时，我们总是会看到评论声称，这些恶意软件应用是如此怪异和毫无意义，你必须是地球上最愚蠢的 Android 用户才能下载它们(或类似的东西)。
 
-Watch
+
 
 根据来自 [VPNpro](https://vpnpro.com/blog/chinese-company-secretly-behind-popular-apps-seeking-dangerous-permissions/) 的一份新报告，中国公司 Shenzhen Hawk 似乎已经在谷歌 Play 商店推出了 24 款不同的粗略应用，累计下载量达 3.82 亿次*。虽然你可能没有被骗在你的设备上安装一个，但是很多人都被骗了。而且这些 app 都不是直接来自深圳 Hawk 该公司使用了许多不同的应用程序开发者名称来掩盖其动机。*
 

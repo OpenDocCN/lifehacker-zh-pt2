@@ -4,7 +4,7 @@
 
 2020 年，美国国税局将获得更多资金。这对纳税人来说非常令人兴奋，因为这意味着更多的员工处理纳税申报单，更多的员工在你有问题时接听电话。但这可能意味着你被审计的风险也会增加，至少会增加一点点。 [The Motley Fool](https://www.fool.com/taxes/2019/12/18/you-may-have-a-greater-chance-of-being-audited-in.aspx) 表示，国税局资源的增加也意味着该机构在审计实践中可能会变得更加积极。
 
-Watch
+
 
 联邦新闻网指出，9 月份通过的 2020 财年预算是近十年来最大的一次。但这并不意味着国税局会有一个坚实的应急基金。国税局将专注于实现其信息技术系统的现代化，这是 2019 年 纳税人第一法案 [改革的一部分。这项立法不仅旨在使该机构对纳税人更加友好；它还试图防止像 2018 年](https://www.irs.gov/taxpayer-first-act) 那样的小故障 [，导致国税局的直接支付网站在纳税日不可用。](https://twocents.lifehacker.com/you-have-an-extra-day-to-file-your-taxes-1825342803)
 

@@ -4,7 +4,7 @@
 
 Windows 10 用户:花一些时间检查你是否已经在你的电脑上安装了微软 2019 年 8 月的安全更新。虽然你可能已经被提示更新你的系统，但仔细检查一下也无妨。
 
-Watch
+
 
 最新的 Windows 更新 修复了微软旗舰操作系统当前版本中发现的一长串漏洞。谢天谢地，大多数都是最小的风险，但这次更新解决了 Windows 10 的远程桌面协议(RDP)中的四个严重漏洞，其中两个类似于今年早些时候发现并修补旧版本 Windows 的 的 [Bluekeep 漏洞。](https://lifehacker.com/update-pcs-running-older-version-of-windows-immediately-1835149208)
 

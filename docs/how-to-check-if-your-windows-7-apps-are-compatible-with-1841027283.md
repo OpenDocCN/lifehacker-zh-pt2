@@ -4,7 +4,7 @@
 
 阻碍人们从 [升级他们(真的)过时的 Windows 7](https://lifehacker.com/quickly-upgrade-windows-7-to-windows-10-for-free-with-t-1840843214) 版本的最大问题之一是应用兼容性。如果你有一些超级特定的应用程序不能在 Windows 10 上运行，这是坚持使用不太安全的操作系统的最好理由。这可能不是 T4 正确的举措，但却是必要的举措。
 
-Watch
+
 
 但是，如果你*假设*你的应用不能在 Windows 10 中运行，那你就没有帮到自己最大的忙。是时候放手一搏了——不是升级和抱最好的希望，而是试用 Windows 10，看看你的日常应用是否如你所愿。如果他们这样做了，而且你的系统硬件 [足够好运行 Windows 10](https://support.microsoft.com/en-us/help/4028142/windows-10-system-requirements) ，你有义务为你的系统安全切换。
 

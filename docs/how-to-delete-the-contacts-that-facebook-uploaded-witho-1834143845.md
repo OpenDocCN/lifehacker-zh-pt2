@@ -4,7 +4,7 @@
 
 脸书的公众形象 [最近受到打击](https://lifehacker.com/what-was-your-facebook-breaking-point-1832371668) ，社交媒体平台的情况越来越糟。根据[Business Insider India](https://www.businessinsider.in/Facebook-says-it-unintentionally-uploaded-1-5-million-peoples-email-contacts-without-their-consent/articleshow/68930320.cms)的最新报道，自 2016 年以来，脸书一直在上传用户电子邮件联系人的信息。当用户第一次创建他们的帐户，或者使用他们的电子邮件帐户进行登录确认时，脸书“无意”并且没有警告地这么做了。
 
-Watch
+
 
 根据 Business Insider 的报告，超过 150 万用户出现了这种情况。脸书表示，将联系受影响的用户，并承诺很快删除他们的联系信息，同时禁用电子邮件登录确认。
 

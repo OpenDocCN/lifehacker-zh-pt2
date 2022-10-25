@@ -4,7 +4,7 @@
 
 这是扩展你的视野和玩更多电子游戏的好时机。[【GOG】](https://www.gog.com/)——该平台前身为 Good【Ol’Games——和独立游戏商店 [Itch.io](https://itch.io/) 都在开展“呆在家里”的促销活动，免费赠送几十款游戏，作为其平台上更大销售额的一部分。GOG 的 [免费游戏](https://www.gog.com/partner/stay_at_home) 是其当前“春季特卖”的一部分，而 Itch.io 的 [免费和打折游戏](https://itch.io/c/757294/games-to-help-you-stay-inside) 则是对当前留在室内需求的回应。
 
-Watch
+
 
 这两个系列结合起来提供了 50 多个免费游戏，创建了一个巨大的新游戏库，当你在家闲逛时可以尝试，并增加了本周可以挑选的免费游戏 的 [列表。GOG 的游戏将持续到 3 月 30 日。Itch 还没有设定其销售的结束日期，但考虑到它的目的，我想它可能还会存在一段时间。](https://lifehacker.com/these-free-mobile-games-can-help-you-cope-with-cabin-fe-1842396048) 
 

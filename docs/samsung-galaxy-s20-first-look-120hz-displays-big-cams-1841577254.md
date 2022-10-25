@@ -4,7 +4,7 @@
 
 去年的 [Galaxy S10](https://gizmodo.com/samsung-galaxy-s10-review-an-android-champ-to-get-exci-1833080698) 是手机设计的一次胜利，它将显示指纹识别器、反向无线充电和微型打孔自拍相机等创新功能与华丽的几乎无边框的机身相结合。然而，在错过了 S10 的一些最大竞争对手的一些功能后，三星似乎正在努力确保这不会发生在新的 Galaxy S20 上。
 
-Watch
+
 
 因此，今年在 Galaxy S20 的所有三个版本中，我们将获得 120Hz 显示屏，5G 支持，以及三星称之为自 Galaxy S7 以来最大的相机升级。但不利的一面是，它会让你付出代价，因为 [与去年的](https://gizmodo.com/samsung-galaxy-s10e-review-cheaper-smaller-just-righ-1833149084) 不同，Galaxy S20 没有“预算”版本，即使在三种 Galaxy S20 型号之间，也有一些你应该知道的非常重要的区别。
 

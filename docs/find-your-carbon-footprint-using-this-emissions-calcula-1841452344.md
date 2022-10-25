@@ -4,7 +4,7 @@
 
 上个月，捷蓝航空宣布计划在 2020 年在所有国内航班上实现碳中和，抵消高达 170 亿磅的碳排放。在消费者层面，像 [联合](https://www.united.com/ual/en/us/fly/company/global-citizenship/environment/carbon-offset-program.html) 这样的航空公司长期以来一直为有环保意识的旅行者提供碳补偿选择——但是碳补偿到底是如何运作的呢？
 
-Watch
+
 
 好吧，如果你想了解更多关于碳补偿的信息，那么在线订阅服务和网络应用软件[【Wren】](https://projectwren.com/)将帮助你计算你的整体碳足迹，以及你可以捐赠的项目，以“抵消”你的污染。
 

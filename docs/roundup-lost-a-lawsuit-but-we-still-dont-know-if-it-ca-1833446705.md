@@ -4,7 +4,7 @@
 
 本周 [陪审团发现](https://www.wsj.com/articles/jury-finds-bayers-roundup-weedkiller-caused-mans-cancer-11553030151) 一名男子在自家院子里使用草甘膦除草剂农达是导致他多年后患上癌症的“重要因素”。但是法庭案例不是科学研究，科学家们在草甘膦是否真的应该被认为是致癌物的问题上仍然存在分歧。
 
-Watch
+
 
 正如我们在 之前报道的 [，世界卫生组织的国际癌症研究机构研究了证据，决定将草甘膦添加到“可能”致癌的物质清单中。名单上的其他东西包括红肉、热咖啡和人类乳头瘤病毒。](https://vitals.lifehacker.com/no-your-cereal-is-not-full-of-weedkiller-1828424844)
 

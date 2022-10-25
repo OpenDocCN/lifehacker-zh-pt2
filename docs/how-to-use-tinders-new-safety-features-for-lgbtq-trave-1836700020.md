@@ -4,7 +4,7 @@
 
 约会应用对你在 旅行时的 [交往很有帮助，但它们也可能是一个重大的安全风险。这就是为什么 Tinder 推出了一个新的“](https://lifehacker.com/use-dating-apps-while-traveling-to-see-a-new-place-1829466559?_ga=2.179927969.447315495.1563817596-1864099547.1536779123) [旅行者提醒](https://blog.gotinder.com/safety-update-introducing-traveler-alert/) ”功能，该功能是与国际女同性恋、男同性恋、双性恋、跨性别者和双性者协会( [ILGA](https://ilga.org/) )合作开发的，以保护那些将同性行为定为刑事犯罪的国家和地区的 LGBTQ+用户。
 
-Watch
+
 
 国际旅行者要遵守他们所去国家的法律，即使这些法律是不宽容和倒退的。可悲的现实是，许多政府公开压迫 LGBTQ+群体——常常到了暴力的地步。虽然 Tinder 的旅行者提醒是一种令人讨厌的自我审查形式，但它旨在帮助用户保持安全。
 

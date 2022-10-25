@@ -4,7 +4,7 @@
 
 跳到易贝，你就能以仅仅 800 美元的价格买到三星 Galaxy Note 10+,这是我们一段时间以来看到的最低价格(肯定比你将看到的大多数黑色星期五手机交易要好，如果有的话)。
 
-Watch
+
 
 有什么问题吗？首先，你从易贝卖家[处订购，这可能会让你有些紧张，并且/或者如果你遇到问题，可能会让你没有资格享受任何](https://www.ebay.com/itm/Samsung-Galaxy-Note-10-Plus-SM-N9750-DS-256GB-12GB-RAM-FACTORY-UNLOCKED-6-8/202758997146) [保修服务](https://www.samsung.com/us/support/warranty/) 。第二，Galaxy Note 10+的所有炫酷颜色在我们到达这里时已经售罄；只剩下光环白。如果你打算将你的 Galaxy Note 10+包装在一个盒子里，这不是最糟糕的消息，但这是肯定的。
 

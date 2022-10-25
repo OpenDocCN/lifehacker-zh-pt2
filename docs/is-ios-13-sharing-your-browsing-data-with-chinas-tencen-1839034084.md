@@ -4,7 +4,7 @@
 
 iOS 13 针对 Safari mobile 的“欺诈网站警告”功能会默认分享你的部分浏览数据。这通常是一件好事，因为谷歌会获取这些数据，对你试图访问的内容进行哈希处理，并且只能将你要找的内容与你的 IP 地址进行匹配。然而，在某些情况下，苹果也将这些数据发送给了中国公司 [腾讯](https://gizmodo.com/5-things-to-know-about-tencent-the-chinese-internet-gi-1820767339?utm_campaign=Newsletter&utm_source=hs_email&utm_medium=email&_hsenc=p2ANqtz-9RS-tidZTEPqsuKr4zA0yBHTUdODfQavhqciPellXoXtvpqGW8F7PWogn4X4HMr6Agv_O8#!) ，这是一个额外的担忧——但你仍然没事的可能性很大。
 
-Watch
+
 
 约翰·霍普金斯大学教授和专业密码学家马修·格林写了一篇详细的博客文章，讲述了苹果公司用于其“欺诈网站警告”功能的技术，以及它如何成为“安全浏览”的标准然而，最重要的一点是，该选项对所有 iOS 13 用户都是默认开启的。虽然您可以将其关闭，但您的设备将面临更大的恶意软件攻击和网络钓鱼欺诈风险。然而，让它开着，你的数据可能会与腾讯共享，腾讯对保护你的隐私不像谷歌那样感兴趣。
 

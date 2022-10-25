@@ -4,7 +4,7 @@
 
 你可能会说，2019 年不是 vaping 的好年景。今年年初，vaping 作为一种流行的、潜在的比吸烟更安全的替代品，仍然享有它的地位。也就是说，直到我们意识到某些类型的 vapes 可能导致突发疾病甚至死亡。
 
-Watch
+
 
 虽然 [我们一直坚持](https://offspring.lifehacker.com/what-parents-need-to-know-about-juuling-1823376027) 电子烟的使用对于开发大脑 来说并不 [安全，但我们也发现了 vape 烟或朱尔充电器在](https://offspring.lifehacker.com/what-is-the-real-cost-of-vaping-for-teens-1829202789) [非常具体的](https://lifehacker.com/open-a-motion-sensor-door-with-vape-smoke-1830082005)[随机场景](https://lifehacker.com/rescue-a-fallen-airpod-with-a-juul-charger-and-floss-1835130466) 中有所帮助的几种方式。尽管如此，我们还是在新年伊始提醒你不要在孩子面前抽烟，就像你不要在他们面前抽烟一样:
 

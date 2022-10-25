@@ -4,7 +4,7 @@
 
 这是在家工作版 [**Tech 911**](https://lifehacker.com/c/tech-911) 的第二天，我回来处理更多棘手的故障排除。请记住，如果你对在家工作的设置有任何问题，我鼓励你在这个帖子( [或这个帖子](https://lifehacker.com/tell-us-your-working-from-home-tech-issues-1842428782) )上发表评论！)，或者拍我 [一封邮件](mailto:david.murphy@lifehacker.com?subject=Tech%20911) 。我会尽力回答你的问题，因为一个好的谜题有助于打破隔离区的单调。
 
-Watch
+
 
 今天，我要回答来自 Lifehacker 评论者 [**crs486**](https://lifehacker.com/1842430111) 的一个问题，它涉及到我最不喜欢的话题:让多个显示器很好地播放。
 

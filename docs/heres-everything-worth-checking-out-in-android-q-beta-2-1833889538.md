@@ -4,7 +4,7 @@
 
 Android Q Beta 2 [现已推出](https://android-developers.googleblog.com/2019/04/android-q-beta-2-update.html) ，并增加了一批新功能供 Beta 测试人员试用。
 
-Watch
+
 
 谷歌的大部分重大改动都影响了这个版本的 Android UI。其中包括新的手势控制、应用管理选项、新的通知和对总体设计的更改，但也有一些系统级的更改。
 

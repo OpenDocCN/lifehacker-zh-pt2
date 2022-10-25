@@ -4,7 +4,7 @@
 
 本周，欧盟 [一劳永逸地禁止](https://www.washingtonpost.com/world/2019/03/28/eu-parliament-backs-ban-single-use-straws/?utm_term=.4836afcfc4ef) 一次性塑料吸管，加入全美连锁酒店、 [餐厅、](https://www.businessinsider.com/plastic-straw-ban-why-are-there-so-many-2018-7) 、迪士尼主题公园和连锁杂货店
 
-Watch
+
 
 随着塑料吸管成为遥远的过去，聚苯乙烯泡沫塑料[一次性塑料袋](https://www.cnn.com/2019/03/31/us/new-york-state-plastic-bags-ban/index.html) 在全国范围内禁止制造绿色浪潮，什么日常用品将很快成为我们的下一个环境敌人？
 

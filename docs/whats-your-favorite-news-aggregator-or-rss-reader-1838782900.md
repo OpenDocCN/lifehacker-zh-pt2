@@ -4,7 +4,7 @@
 
 你如何找到和阅读你的新闻？似乎大多数人都依赖他们的脸书或推特来获取最新的头条新闻，但我对这种方法持怀疑态度。你不仅要 [与假新闻](https://lifehacker.com/how-to-stop-your-parents-from-sharing-fake-news-online-1836667313) 和 [伪装成头条新闻的黑幕广告](https://lifehacker.com/identify-ads-masquerading-as-real-headlines-with-this-c-1838149949) ，而且还有大量研究告诉我们 [花太多时间在社交媒体上对我们的身心都不好。](https://lifehacker.com/monitor-your-time-spent-on-social-media-with-new-tools-1828029375)
 
-Watch
+
 
 限制我使用社交媒体的最好工具之一是切换到新闻聚合器，而不是滚动我的社交 feed 来查看发生了什么。但是，即使你对减少你的社交媒体摄入量不感兴趣，新闻聚合应用程序也是一种有用的方式，可以将你每天消费的各种在线内容整合到一个位置。这些应用程序中的大多数都包含方便的工具，让你可以组织你的订阅，保存文章以供以后阅读，帮助你根据关键词或主题找到新的内容，甚至让你在其他应用程序或服务之间导入和导出。
 

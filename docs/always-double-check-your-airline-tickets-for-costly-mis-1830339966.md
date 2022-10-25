@@ -4,7 +4,7 @@
 
 一个旅行者在通过大通的在线门户网站预订机票时遇到的问题说明了为什么你应该总是在预订机票时一出错就反复检查。
 
-Watch
+
 
 据 [积分佬](https://thepointsguy.com/news/check-your-airline-ticket-to-ensure-you-werent-involuntarily-downgraded/) 报道，一位读者试图通过 Chase 门户网站预订美国航空公司的机票，却发现发给她的是一张基本经济舱机票，而不是她用积分购买的主舱机票。主舱是一个“更好”的座位——它包括座位选择、免费小吃、随身行李和升级的可能性，而 [基本经济舱机票没有](https://thepointsguy.com/guide/how-to-survive-basic-economy-on-american-airlines/) (技术上来说，基本是主舱的最低级别)。这意味着它更贵。
 

@@ -4,7 +4,7 @@
 
 我发现自己最近陷入了恶性循环。每当我有空闲时间时，我通常会浏览相同的、陈旧的网站列表，吸收任何新内容来缓解我的无聊。我会在脸书、Twitter、YouTube、Reddit 和 Gmail(偶尔还有 Slickdeals)之间来回切换，直到我最终提醒自己这很愚蠢，也许我应该出去走走，或者做一些更有成效的事情。
 
-Watch
+
 
 感谢 Chrome 扩展 [**HabitLab**](https://habitlab.stanford.edu/) ，我已经能够回调我的边缘强迫行为。这是一项由斯坦福大学支持的实验，它提供了大量不同的鼓励——有些温和，有些不那么温和——来防止你沉迷于那些占据你太多注意力和时间的网站。在 之前，我们已经讨论过 [这个扩展，但是我想更深入地说明为什么 HabitLab 是一个数字救星。](https://lifehacker.com/be-more-mindful-of-the-time-you-waste-online-with-habit-1828118354)
 

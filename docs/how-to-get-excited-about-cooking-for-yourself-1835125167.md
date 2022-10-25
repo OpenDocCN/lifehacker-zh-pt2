@@ -4,7 +4,7 @@
 
 “一个人做饭”被认为是最悲伤的一种烹饪，但你有没有试过为讨厌西红柿的人做饭？不管你的关系状态如何，你都得吃饭，你如何看待这项活动的一个简单的转变可以把自我保护的行为变成真正有营养和娱乐的事情。
 
-Watch
+
 
 但首先，你必须放松。饮食和烹饪中有很多道德问题，你必须允许自己 [走捷径](https://lifehacker.com/its-okay-to-buy-prepared-foods-1834422853) ，出去吃饭，搞砸一顿饭。为一个人做饭的好处是*没人能看到你*。这意味着你的食物可以不在 Instagram- 上，是的，但它应该鼓励你尝试精神错乱的、挑战极限的风味组合，以及 [具有挑战性的食谱](https://skillet.lifehacker.com/why-you-should-try-challenging-recipes-right-now-1831874153) 你肯定会 [注定失败](https://skillet.lifehacker.com/why-failure-is-a-useful-kitchen-tool-1797643711) 。一旦你接受了会有一些陷阱，你就能找到一些乐趣。
 

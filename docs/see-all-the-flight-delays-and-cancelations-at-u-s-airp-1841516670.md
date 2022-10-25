@@ -4,7 +4,7 @@
 
 本周早些时候，一场冬季风暴影响了德克萨斯、俄克拉荷马和科罗拉多等州，这意味着航班大量延误和取消*—*—丹佛国际机场， [周一至少有 600 架航班延误](https://www.usatoday.com/story/travel/airline-news/2020/02/04/winter-weather-storm-kade-airline-travel-waivers-texas-colorado-oklahoma/4653333002/)40 架航班取消。与此同时，由于龙卷风的影响，亚特兰大哈兹菲尔德-杰克逊国际机场超过 1200 个航班被延误，夏洛特道格拉斯国际机场至少有 400 个航班被取消。
 
-Watch
+
 
 想知道你的航班是否会延迟或取消，因为外面的世界看起来就要结束了？Y 你应该知道，在某些天气情况下， [而不是*所有的*航班](https://lifehacker.com/why-only-some-flights-get-canceled-for-bad-weather-1841353240) 都会受到恶劣天气的影响。假设联邦航空局没有在你的机场发布停飞令，航空公司的算法可能会决定你的命运。当这种做法失败时，航空公司将在决定推迟或取消哪些航班时，权衡对消费者和自身底线的影响。
 

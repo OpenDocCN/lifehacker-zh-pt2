@@ -4,7 +4,7 @@
 
 许多 LastPass 用户正在该公司的论坛上抱怨一个非常不幸的错误，该错误影响了其扩展的自动注销功能——这是一种你总是想启用的备份安全措施。
 
-Watch
+
 
 据报道，这个漏洞似乎不是特定于平台的:Windows 和 macOS 上的 Firefox、Chrome 和 Brave 用户都加入了描述 LastPass 的“x 分钟不活动后注销”如何停止工作的线程。他们对这个问题不满意。正如 [一位用户写的](https://forums.lastpass.com/viewtopic.php?f=12&t=361995&start=20#p1203415) :
 

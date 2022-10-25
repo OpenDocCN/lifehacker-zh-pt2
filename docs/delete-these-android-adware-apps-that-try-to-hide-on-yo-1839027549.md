@@ -4,7 +4,7 @@
 
 如果你的安卓设备上有这 15 个偷偷摸摸的应用，是时候去搜索并删除它们了。根据 [Sophos](https://news.sophos.com/en-us/2019/10/08/icon-hiding-android-adware-returns-to-the-play-market/) 的说法，这些广告软件应用正在尽一切努力在你的设备上隐藏自己，并在你做的所有事情中注入垃圾广告——全球超过 130 万台设备至少安装了其中一个应用。
 
-Watch
+
 
 有问题的应用程序是:
 

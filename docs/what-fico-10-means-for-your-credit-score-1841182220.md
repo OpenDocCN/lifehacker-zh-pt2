@@ -4,7 +4,7 @@
 
 对你的信用评分感觉良好吗？一种新的评分模式可能会改变这一点，但可能不会彻底改变。FICO 今天宣布推出 FICO 10，这是贷方用来计算你的信用评分的评分模型的最新版本。
 
-Watch
+
 
 它实际上发布了两个版本: [FICO 10 和 FICO 10 T](https://fico.gcs-web.com/news-releases/news-release-details/fico-introduces-new-fico-score-10-suite) 。后者提供了您过去 24 个月的信用使用情况，考虑了您的帐户余额等因素的历史记录。(VantageScore 已经用其最新版本 [VantageScore 4](https://twocents.lifehacker.com/the-credit-scoring-system-is-about-to-get-less-awful-1794597144) 做到了这一点。)这个版本更有可能对你的分数产生影响，它通常是你活动的快照，而不是整体视图。
 

@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-stream-the-nfc-and-afc-championship-games-1841052776>
 
-Watch
+
 
 旧金山 49 人队今天在 NFC 冠军赛中迎战绿湾包装工队，这将决定两队中的哪一队进入今年的超级碗。在密苏里州，酋长们将在亚足联冠军赛中与巨人队较量，以决定同样的事情。
 

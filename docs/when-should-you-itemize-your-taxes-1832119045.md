@@ -4,7 +4,7 @@
 
 如何决定是采用 [标准扣除](https://www.investopedia.com/terms/s/standarddeduction.asp) 还是采用 [分项扣除](https://www.investopedia.com/terms/i/itemizeddeduction.asp) ？显然，你会想选择哪一个能最大程度地降低你的年收入，这样你就能少交税。但是你怎么知道呢？
 
-Watch
+
 
 ### **记录你的分项扣除额**
 

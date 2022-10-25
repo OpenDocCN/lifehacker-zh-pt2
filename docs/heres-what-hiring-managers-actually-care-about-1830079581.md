@@ -4,7 +4,7 @@
 
 在面试中，你不可能了解坐在你对面的人的想法，并确切知道他们在寻找什么。但幸运的是，大多数招聘经理都认为一些基本素质是非常重要的。
 
-Watch
+
 
 在 [对公司负责面试和招聘的 800 人的调查](https://www.netquote.com/business-insurance/business-insurance-articles/interview-questions) 中，Netquote 收集了一些关于面试过程的一般观察。我们一直怀疑对个人很重要的东西——比如我们的创造力——实际上在经理的等级表上很低。下面是他们实际做的，不想知道的。
 

@@ -4,7 +4,7 @@
 
 2017 Fyre Festival 是 [一场垃圾箱火灾](https://www.washingtonpost.com/news/the-intersect/wp/2017/04/28/the-complete-and-utter-disaster-that-was-fyre-festival-played-out-on-social-media-for-all-to-see/) ，根本不是真正的节日。这场活动被定位为由杰·鲁和肯达尔·詹娜等有影响力的人共同组织的巴哈马专属豪华音乐节，结果只不过是一堆灾难帐篷和悲伤的奶酪三明治。
 
-Watch
+
 
 即使你不是其中一个不幸的出席者，你也可以假装你在那里:从现在到 8 月 13 日，各种各样的 Fyre 节日品牌服装将被拍卖。
 

@@ -4,7 +4,7 @@
 
 每周五早上我 [调一杯鸡尾酒](https://lifehacker.com/c/3-ingredient-happy-hour) (为了工作)，每周五早上我都抑制住想马上喝完整杯鸡尾酒的冲动。很明显，我尝到了它的味道，但是我已经不像以前那么年轻了，而且在喝醉的时候写作也没有海明威说的那么有趣。我没有把饮料倒进下水道——那样既愚蠢又浪费——而是把它们倒进小罐子里，藏在冰箱里，以后享用——这是聪明又好的做法。
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Keep Emergency Cocktails in Your Freezer](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-throw-a-cheap-dinner-party-cocktails-1825727460)</aside>
 

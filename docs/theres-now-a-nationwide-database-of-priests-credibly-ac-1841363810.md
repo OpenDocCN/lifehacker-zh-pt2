@@ -4,7 +4,7 @@
 
 一个名为 [可信指控](https://projects.propublica.org/credibly-accused/) 的 ProPublica 项目提供了一个可搜索的天主教牧师数据库，顾名思义，这些牧师已经被确定为涉嫌虐待者。并非每个教堂或教区都公布了名单，但很多都公布了，数据库中有超过 6000 个名字。
 
-Watch
+
 
 ProPublica 的总裁 [在时事通讯](http://go.propublica.org/nsu) 中写道，有力量将来自许多地方的列表结合起来。一些神职人员被悄悄地从一个地方转移到另一个地方，但在这里你可以按名字搜索，看到来自全国各地的人。
 

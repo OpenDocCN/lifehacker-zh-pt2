@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-preorder-googles-pixel-4-and-4-xl-pixelbook-go-1839068320>
 
-Watch
+
 
 我们都知道谷歌将在 [期间宣布其 Pixel 4 和 Pixel 4 XL，今天是谷歌制造 2019 活动](https://lifehacker.com/everything-from-todays-google-event-that-actually-matte-1839057732) ，但该公司也展示了一些其他设备:新的 Pixelbook Go 笔记本电脑，Pixel Buds 无线耳机的更新，以及新的 Nest 智能家居扬声器(和网状 wifi 系统)。
 

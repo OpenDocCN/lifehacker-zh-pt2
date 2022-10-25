@@ -4,7 +4,7 @@
 
 这是全国鸡翅日——是庆祝美国传统的时候了，人们将之前丢弃的鸡翅部分油炸，涂上黄油和辣酱，然后高价出售。嗯，技术上来说，那些是(起源于 1964 年纽约州布法罗的锚吧)。鸡翅本身——油炸的或其他形式的——已经存在 [很久了](https://www.nationalchickencouncil.org/chicken-wing-history/#:~:text=Deep%2Dfried%20chicken%20wings%20have,her%20son%20and%20his%20friends.) 。
 
-Watch
+
 
 撇开开胃菜历史不谈，很多人对这些家禽块百吃不厌，现在 [他们有了自己的国庆](http://www.nationalchickenwingday.com/) 。为了纪念这一时刻，几个 wing slingers 在这道受欢迎的菜肴上提供免费赠品和其他优惠。现在看看一些参与的餐厅，这样你就可以计划你的一天，而不必即兴表演。
 

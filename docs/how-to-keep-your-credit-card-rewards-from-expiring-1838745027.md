@@ -4,7 +4,7 @@
 
 你总是使用你的航空公司或酒店积分吗？你知道它们有没有有效期吗？
 
-Watch
+
 
 如果你毫无头绪，你肯定不是唯一一个忘记这一细节的信用冲浪者。来自 Bankrate 的一项新的 [调查发现，29%收集信用卡奖励的人允许他们的奖励过期。](https://www.bankrate.com/credit-cards/rewards/#survey)
 

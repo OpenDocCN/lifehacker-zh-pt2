@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/file-your-credit-card-travel-insurance-claim-right-away-1835885381>
 
-Watch
+
 
 知道你的信用卡为旅行事故提供保险是一回事，比如行李延误或航空公司突然关闭。当你在旅途中时，知道如何获得这些好处是另一回事。
 

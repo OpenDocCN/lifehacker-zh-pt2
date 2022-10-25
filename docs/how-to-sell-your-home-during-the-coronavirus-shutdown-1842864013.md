@@ -4,7 +4,7 @@
 
 如果你想在今年卖掉你的房子，你可能会认为冠状病毒已经无限期地暂停了这个计划。但是房地产是 [停工期间](https://www.cisa.gov/publication/guidance-essential-critical-infrastructure-workforce) 必不可少的服务。这段时间完成卖房的过程可能比较困难，但肯定不是不可能。以下是房地产专家关于如何适应的建议。
 
-Watch
+
 
 ### 招募销售专家
 

@@ -4,7 +4,7 @@
 
 这些天到处都有焦虑，不幸的是，这不仅仅是家里成年人的专利。即使在最好的时候，孩子们也会变得焦虑，更不用说当他们被困在疫情的家中，远离他们的朋友，并试图跟上他们的虚拟学校作业。这是令人焦虑的时代。
 
-Watch
+
 
 斯图尔特·菲茨威廉是《想象英雄》——[的创造者，这是一种帮助孩子管理焦虑的可视化治疗工具](https://www.amazon.com/Imaginhero/dp/B07FCZG3CG?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/try-the-wet-cat-technique-to-ease-your-childs-anxiety-1843044670&asc_source=&tag=kinjalifehackerlink-20)——他写道，当你的孩子变得焦虑时，你可以教他们说:“我的大脑正在对它不喜欢的东西做出反应，它吓坏了。”然后，向他们介绍湿猫脑技术:
 

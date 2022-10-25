@@ -4,7 +4,7 @@
 
 网上购车应该不难，但一些经销商继续破坏这一过程。更令人沮丧的 [短语之一是当经销商在他们的广告](https://jalopnik.com/heres-what-call-for-price-on-a-dealers-website-really-m-1820001720) 上放“要价”，但我发现了一个新的更糟糕的短语:“要价里程”
 
-Watch
+
 
 当 Jalopnik 团队在我们的每周 [专栏工作时，当 Jalopnik 的大人物 Patrick George 为我们的读者发现一辆甜美的宝马 Z8 时，我发现了这一现象，他正在寻找一辆价格在 13 万美元](https://jalopnik.com/c/what-car-should-you-buy) 以下的“异国情调”。鉴于 Z8s 的市场，我认为那辆车便宜得可疑。
 

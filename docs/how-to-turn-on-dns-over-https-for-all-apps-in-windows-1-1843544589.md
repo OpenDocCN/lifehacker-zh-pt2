@@ -4,7 +4,7 @@
 
 使用 HTTPS DNS(DoH)可以隐藏您的电脑正在访问的网站，从而使您的 web 浏览更加安全。我们已经介绍过 [在浏览器](https://lifehacker.com/how-to-enable-dns-over-https-in-your-web-browser-1841909057) 中开启 DoH，但是最新的 Windows Insider 更新为 Windows 10 增加了系统级 DoH 设置。它非常方便。
 
-Watch
+
 
 打开 Windows 10 的系统级 DoH 将为安装在支持它的 PC 上的所有浏览器启用 HTTPS DNS，以及现在或将来可以使用它的任何其他基于互联网的程序。Brave、Chrome、Edge Chromium、Firefox 和 Opera 目前都支持 DoH，但迄今为止，你必须单独配置每个浏览器的 DoH 设置——如果你使用多个浏览器，这是一个繁琐的过程。使用 Windows 10 DoH 会应用您电脑的互联网适配器，以便访问它的每个浏览器或应用程序都将使用相同的 DNS 设置。
 

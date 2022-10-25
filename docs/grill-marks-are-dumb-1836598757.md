@@ -4,7 +4,7 @@
 
 排骨和牛排上金棕色的平行条纹可能会让人惊呼“夏季烹饪”，但烧烤痕迹——事实上——非常愚蠢。我这样说不是因为我的公寓居住方式让我缺少烧烤部门；我这么说是因为 [Meathead Goldwyn](https://amazingribs.com/about-us/meet-meathead) (无可争议的烧烤王)告诉我的，也因为它让*有意义*。
 
-Watch
+
 
 如果你想想那些烧烤的痕迹是什么，你就开始明白了。一旦美拉德褐变和焦糖化开始发生，这些深金棕色的颜色带就会出现，这意味着味道就在那里，我假设你想要尽可能多的味道。用 Meathead 的最佳描述，标志之间的空间 [，是一条条“未实现的潜力”(当然，如果你在烹饪牛肉或猪肉薄片、精致的海鲜或任何在整个表面形成均匀的外壳之前会过度烹饪的东西，烧烤痕迹是不可避免的，也是好的。)](https://amazingribs.com/more-technique-and-science/more-cooking-science/myths-we-want-grill-marks-and-you-should-not-flip)
 

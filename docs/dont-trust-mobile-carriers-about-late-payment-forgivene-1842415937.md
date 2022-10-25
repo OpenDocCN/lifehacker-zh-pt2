@@ -4,7 +4,7 @@
 
 在新冠肺炎疫情蔓延的不确定性中，许多公司已经采取措施 [帮助他们的客户实现收支平衡](https://lifehacker.com/subscribers-can-now-get-two-free-months-of-adobes-creat-1842396082?rev=1584648082511) 。例如，美国四大手机运营商——AT&T、Sprint、T-Mobile 和威瑞森 [宣布，他们将停止收取滞纳金](https://www.fcc.gov/document/chairman-pai-launches-keep-americans-connected-pledge) 和提前取消费用，在某些情况下，不会对无力支付账单的账户关闭服务。有些甚至提供免费的自动服务升级 。
 
-Watch
+
 
 承诺原谅延迟付款是慷慨的(也是必要的)，但如果客户还有能力支付电话费，他们不应该以此为借口不支付。
 

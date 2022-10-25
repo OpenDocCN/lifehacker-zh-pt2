@@ -4,7 +4,7 @@
 
 理论上，我们约会是为了找到一段我们想要坚持的关系。实际上，人们约会有很多不同的原因，很难判断你和约会对象是否意见一致。以下是 Reddit 上的女性如何打这个电话。
 
-Watch
+
 
 在 r/AskWomen 上由 [u/tinykittymama](https://www.reddit.com/user/tinykittymama) 发起的一个帖子中，人们分享了他们的“[2019 年约会的专业技巧](https://www.reddit.com/r/AskWomen/comments/anmlgb/what_are_your_pro_tips_for_dating_in_2019/) ”，因为我们似乎每年都需要更新规则。当然，这里的建议是由有女性身份的人给出的，也是针对她们的，但是大部分建议对每个人都适用。以下是你如何决定在整个约会过程中是否想继续约会的方法。
 

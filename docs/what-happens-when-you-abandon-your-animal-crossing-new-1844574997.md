@@ -4,7 +4,7 @@
 
 *动物穿越:新视野*是一款需要关注的游戏。它的结构是，你应该每天都玩，或者至少检查一下发生了什么。就像刷牙或倒垃圾一样，*动物穿越*本质上是一件苦差事。那么，如果你两个月都忘了做家务，会发生什么呢？
 
-Watch
+
 
 自从五月下旬以来，我还没有去过奥凯礁，我的*动物穿越:新地平线*岛，当时 [一个所谓的朋友用这个游戏骗了我 30 块](https://kotaku.com/a-bet-over-animal-crossing-new-horizons-screwed-me-out-1843613679) 。此后，任天堂以 PacSun 为主题的 life sim 进行了多次更新。现在，你可以 [去游泳](https://kotaku.com/swimming-and-diving-add-a-little-depth-to-animal-crossi-1844259315) 。你可以 [做梦](https://kotaku.com/animal-crossings-second-summer-update-adds-fireworks-d-1844529249) 并且在周日晚上欣赏烟火。最近增加的新功能重新引入了“趴在地上的能力”。
 

@@ -4,7 +4,7 @@
 
 从 12 月 1 日开始，你可以在当地的苹果商店免费学习一些代码。该零售商的 [年度“代码小时”](https://www.apple.com/newsroom/2018/11/apple-brings-coding-education-to-more-students-for-computer-science-education-week/) 活动将于 12 月 1 日至 14 日举行。
 
-Watch
+
 
 为了获得优势，你需要 [在苹果网站](https://www.apple.com/today/collection/hourofcode/) 上注册一个小时。所有年龄段的人都可以参加这些活动，此外还有针对 6 至 12 岁儿童的“儿童时间”活动。
 

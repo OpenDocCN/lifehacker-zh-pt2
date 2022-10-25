@@ -4,7 +4,7 @@
 
 听着，我们明白。你很忙。你已经有一段时间感到身体一侧奇怪的疼痛，或者你可能对自己的血压有疑问——但你只是没有时间去看医生。你肯定还是应该这样做，但是如果你同时需要一点帮助，为什么不在 Lifehacker dot com 上向一些医生寻求建议呢？
 
-Watch
+
 
 在美国东部时间下午 1 点，我们将迎来医学博士克里斯托弗·凯利和医学博士马克·艾森伯格，以及《T2》[的作者。！:在线评论区的一个完整的症状指南——以及下一步该做什么](https://aax-us-east.amazon-adsystem.com/x/c/QmQfmNVipNEBorebclh3QzYAAAFo3TkHAAEAAAFKATNGbyA/https://www.amazon.com/Am-Dying-Complete-Guide-Symptoms/dp/0062847600/ref=sr_1_1?creativeASIN=0062847600&linkCode=w61&imprToken=kq5MPSzeLXysoFUj6kQIYw&slotNum=0&ascsubtag=cdf232f2ac4e046ed82a93316a2e857815d8a6b0&ie=UTF8&keywords=am%20i%20dying&qid=1546879087&sr=8-1&tag=lifehackeramzn-20)——回答你所有挥之不去的健康问题。
 

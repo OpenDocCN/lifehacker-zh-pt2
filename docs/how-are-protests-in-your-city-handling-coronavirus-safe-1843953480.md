@@ -4,7 +4,7 @@
 
 虽然抗议在一个民主国家是必不可少的— [一个黑客，你可以说](https://lifehacker.com/protesting-is-a-hack-1843927165) ，为了让你的声音在选举之间被听到——任何大型集会都有传播新冠肺炎病毒的风险。但是有 [的方法来降低这种风险](https://vitals.lifehacker.com/how-to-protest-during-a-pandemic-1843885100) ，许多抗议者一直在组织这些措施。
 
-Watch
+
 
 例如，许多抗议者戴着面具，尽可能保持 6 英尺的距离。抗议照片经常显示大量蒙面面孔。仅举一例，争取黑人生命运动命令数千个印有“停止杀害黑人”字样的口罩在抗议活动中散发出去。(他们制造新闻是因为 [那些货物被联邦执法](https://www.sfgate.com/news/article/Oakland-masks-shipped-to-protestors-seized-15320231.php) 扣押，然后释放。)
 

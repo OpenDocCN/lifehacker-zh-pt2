@@ -4,7 +4,7 @@
 
 [【VSCO】](https://vsco.co/)，Lifehacker 的 [最喜欢的相机应用](https://lifehacker.com/the-best-photography-apps-for-iphone-2014-edition-1496689753) 之一，让任何人都可以在没有先进技术知识的情况下改进他们的手机照片。我们与联合创始人乔尔·弗洛里谈论了他的摄影背景、管理风格和喝茶习惯。
 
-Watch
+
 
 * * *
 

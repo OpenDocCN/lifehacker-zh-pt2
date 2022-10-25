@@ -4,7 +4,7 @@
 
 维基百科，一切的百科全书，大部分是关于男人的。根据维基百科内部改进项目 [红衣女子](https://en.wikipedia.org/wiki/Wikipedia:WikiProject_Women_in_Red) 的数据，该网站 150 万个传记页面中只有不到 18%是关于女性的。这个数字实际上代表了一种进步:在 2014 年末，这个数字是 15%。这种进步很大程度上要归功于《红衣女郎》本身，该网站成立于 2015 年，旨在增加和改善网站对女性的覆盖。
 
-Watch
+
 
 当然，大多数有文字记载的历史都与男性有关，因为有记载的历史中，大多数人都生活在父权制社会下。所以他们有更多的原始资料。但这并不能完全解释维基百科的偏见。 [正如《新政治家报》](https://www.newstatesman.com/politics/feminism/2019/01/chinese-spies-award-winning-geologists-we-re-making-women-visible) 所报道的，主要文章都遗漏了杰出的女性。例如，《化学史》提名了 200 名男性和 4 名女性，忽略了诺贝尔奖得主代谢研究人员 [格特里·柯里](https://en.wikipedia.org/wiki/Gerty_Cori) 和 CRISPR 研究人员詹妮弗·杜德纳(Jennifer Doudna)，根据她自己的维基百科页面， [“在生物化学和遗传学方面做出了根本性的贡献。”](https://en.wikipedia.org/wiki/Jennifer_Doudna) 并不是没有更多值得报道的女性；而是他们被忽视了。
 

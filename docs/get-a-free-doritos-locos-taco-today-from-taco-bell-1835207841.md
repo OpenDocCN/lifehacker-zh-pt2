@@ -4,7 +4,7 @@
 
 本月早些时候，金州勇士队在 NBA 总决赛第二场比赛中“偷走”了一场客场胜利，这一举动现在让每个美国人都有机会以球队的名义获得一份免费的 Doritos Locos taco。
 
-Watch
+
 
 在塔可钟网站或 app [注册的粉丝，可以在 6 月 18 日](https://www.tacobell.com/stealataco) 的任何时间，通过 app 下单，到店领取，免费获得一份 Doritos Locos taco。
 

@@ -4,7 +4,7 @@
 
 当你平静地浏览你的脸书视频时，你可能已经看过史努比·道格为债务委员会的债务减免项目做广告的视频。
 
-Watch
+
 
 “如果你的信用卡欠款 1 万美元，看。只要打 15 分钟的电话，你就有资格参加一个项目，并能拿回几千美元，”他在 Vice News 引用的一段视频中说道。债务委员会声称能够通过政府漏洞抹去债务，并为脸书和 Instagram 上的广告活动支付了 27.4 万美元， [Vice News 的调查解释](https://www.vice.com/en_us/article/4agg8w/snoop-dogg-is-starring-in-a-scam-debt-relief-ad-campaign-pouring-millions-into-facebook) 。但是没有这样的政府漏洞。
 

@@ -4,7 +4,7 @@
 
 上周， [两名黑人变性女](https://time.com/5853325/black-trans-women-killed-riah-milton-dominique-remmie-fells-trump/) 被谋杀。6 月 12 日星期五是 [脉冲夜总会枪击案](https://www.cnn.com/2020/06/12/us/pulse-remembrance-day-orlando-shooting-trnd/index.html) 四周年纪念日，在此期间，49 人在奥兰多的 LGBTQ 场所被枪杀。周五也是特朗普政府宣布撤销奥巴马时代一项为患者保护与平价医疗法案(ACA)下的变性人提供保护的法规的日子。(我们有没有提到这也是骄傲月...疫情在上映吗？)尽管美国最高法院今天裁定支持增加对美国同性恋、双性恋和变性者的工作场所保护，但现任政府正在撤销奥巴马时代旨在为他们提供平等医疗保健的政策。以下是你需要了解的新政策。
 
-Watch
+
 
 ### 原来的规定是怎么说的？
 

@@ -4,7 +4,7 @@
 
 聚会是用杯子喝酒，记录你的杯子是其中重要的一部分。在我当女主人的时候，我遇到过一些“对标签不感兴趣”的客人，但是，鉴于组织和秩序是一个好的聚会的基石，有标签的饮料容器对我来说非常重要。我没有把可爱的葡萄酒符咒强加给人们——这些符咒总是会掉下来——或者试图让我的客人屈服，而是抓起一卷画家的磁带，告诉他们使用假名。
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled The Best Way to Keep Track of Your Glass at a Party](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/elevate-your-dinner-party-with-these-fancy-details-1826494234)</aside>
 

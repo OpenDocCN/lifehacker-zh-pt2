@@ -4,7 +4,7 @@
 
 30 年来最大的转变是明年 FICO 信用评分的计算方式。
 
-Watch
+
 
 《华尔街日报》[](https://www.wsj.com/articles/want-a-higher-credit-score-soon-your-cash-could-help-1540123200)*报道称，Fair Issac corp .(FICO 评分的发布者)将考虑“消费者如何管理其支票、储蓄和货币市场账户中的现金”，而不是主要依赖消费者的信用支付历史。*
 

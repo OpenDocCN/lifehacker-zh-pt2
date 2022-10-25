@@ -4,7 +4,7 @@
 
 下一次你在邮件中收到医疗账单时，打个电话问问你是否真的需要支付，或者账单是否有误是值得的。当涉及到医疗账单时，错误比你想象的更常见。
 
-Watch
+
 
 意想不到的医疗账单既普遍又昂贵:根据最近的一项价值企鹅调查 ，61%的美国成年人收到过至少一份他们认为会由保险支付的账单，总计平均费用为 520 美元。其中一些包括余额账单，即当您收到网络外提供商针对您的保险公司未承保金额的意外账单时，这是大多数州允许的 [做法](https://www.commonwealthfund.org/sites/default/files/documents/___media_files_publications_issue_brief_2017_jun_lucia_balance_billing_ib.pdf) 。
 

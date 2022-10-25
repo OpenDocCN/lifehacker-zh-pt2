@@ -4,7 +4,7 @@
 
 Echo 音箱拥有 [出色的功能](https://lifehacker.com/the-seven-best-things-you-can-do-with-an-amazon-echo-1766989219) ，这使得它们非常适合 Alexa 驱动的智能家居设置，但它们不一定以一流的音频质量而闻名，尤其是亚马逊更实惠的选项。
 
-Watch
+
 
 考虑到 Echo 扬声器产生的音频量——包括亚马逊新的 Amazon Music HD——我们可以同情那些喜欢其他品牌更高质量音频的用户，但亚马逊新宣布的 [Echo Studio](https://www.amazon.com/dp/B07G9Y3ZMC?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-amazons-new-echo-studio-compares-to-other-smart-spe-1838497667&asc_source=&ref=ODS_v2_FS_AUCC_oe&tag=kinjalifehackerlink-20) 智能扬声器声称可以克服其前辈(甚至一些竞争对手)的性能限制。
 

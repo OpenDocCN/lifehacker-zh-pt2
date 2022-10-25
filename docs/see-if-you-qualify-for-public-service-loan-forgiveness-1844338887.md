@@ -4,7 +4,7 @@
 
 随着选举的临近，学生贷款减免成为一个热门话题。虽然一些政治家已经提出了 [学生贷款免除](https://berniesanders.com/issues/free-college-cancel-debt/) ，但目前的公共服务贷款免除(PSLF)计划遇到了一些困难。
 
-Watch
+
 
 最近，教育部发布了其 PSLF 项目的新数据——这些数字看起来仍然很糟糕。根据最新的报告，只有 2.37%的申请人有资格申请 PSLF。2018 年以来，该节目一直在 [下火](https://www.marketwatch.com/story/this-government-loan-forgiveness-program-has-rejected-99-of-borrowers-so-far-2018-09-20) 为 [高拒](https://www.cnn.com/2019/09/05/politics/rejection-rates-public-student-loan-forgiveness-fix-trnd/index.html) 率。拒绝的原因之一是项目的严格标准。借款人必须满足以下 [才有资格](https://studentaid.gov/manage-loans/forgiveness-cancellation/public-service) 申请 PSLF:
 

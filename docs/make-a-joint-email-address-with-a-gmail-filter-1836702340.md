@@ -4,7 +4,7 @@
 
 当你有一个伴侣时，你不可避免地要注册会员资格和账户，这对你们两个都有影响:双影院订阅，或者涵盖你们两个的健康保险。令人恼火的是，许多会员资格只允许你用一个电子邮件地址注册。这里有一个 Gmail 小技巧，你可以设置后就忘记了，而不是设置第三个电子邮件帐户，或者为每次注册制定一个新的转发规则。
 
-Watch
+
 
 来自 Lifehacker 阅读器 Trippple 的 [的诀窍是使用 Gmail 的“+”功能。Gmail 允许你在电子邮件地址的加号后面添加额外的标签:bert@gmail.com、bert+work@gmail.com 和 bert+newsletters@gmail.com 都到同一个地址。(这也适用于自定义域和组织的 Gmail。)](https://offspring.lifehacker.com/1836666126)
 

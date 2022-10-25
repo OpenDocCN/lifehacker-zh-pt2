@@ -4,7 +4,7 @@
 
 如果你一直在努力学习如何成为一名更好的摄影师，四月可能是你的月份。
 
-Watch
+
 
 尼康 [在四月](https://www.nikonevents.com/us/live/nikon-school-online/) 免费播放其所有摄影学校的课程。
 

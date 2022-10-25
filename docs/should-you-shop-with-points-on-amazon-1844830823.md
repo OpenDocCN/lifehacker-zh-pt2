@@ -4,7 +4,7 @@
 
 随着冠状病毒疫情延伸到秋季，你可能会更密切地关注你的旅行奖励信用卡，更不用说你所有的信用卡奖励积分余额了。如果你暂时不打算去任何地方旅行，并且你的积分余额很大，你可能会考虑用其他方式来消费。
 
-Watch
+
 
 也许你使用亚马逊 Prime 账户来获得必需品，减少亲自购物。(如果你没有订阅，但想要一个——这里有获得免费账户 的 [种方法。)如果是这样的话，当你在亚马逊的结账过程中进入支付页面时，你可能会注意到一家带有积分](https://twocents.lifehacker.com/all-the-ways-amazon-offers-prime-for-free-1789710361) 选项的 [商店。虽然你的订单可能很容易获得快速折扣，但你应该首先考虑你的其他选择。原因如下:根据你的奖励信用卡，以这种方式使用你的积分可能不会提供最佳的兑换价值。](https://www.amazon.com/b?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/should-you-shop-with-points-on-amazon-1844830823&asc_source=&ie=UTF8&node=16218619011&tag=kinjalifehackerlink-20) 
 

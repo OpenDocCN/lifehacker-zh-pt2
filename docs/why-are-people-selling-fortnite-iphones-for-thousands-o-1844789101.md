@@ -4,7 +4,7 @@
 
 绝望的时代带来了人们最糟糕的一面——从那些在新冠肺炎检疫开始时囤积卫生纸并以每卷 50 多美元的价格出售的人，到那些现在试图以几千美元的价格出售装有*堡垒之夜*游戏的的蹩脚 iPhones 的人。
 
-Watch
+
 
 我通常会认为这是一个蹩脚的企图，骗走人们的钱，这显然是行不通的，但显然它*已经*成功了。一些易贝购物者 [在他们并不需要的 iPhones 上花费惊人的金钱](https://www.ebay.com/sch/i.html?_from=R40&_nkw=fortnite+iphone&_sacat=0&rt=nc&LH_Sold=1&LH_Complete=1) 。
 

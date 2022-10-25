@@ -6,7 +6,7 @@
 
 最终的 Android 10Beta—[Android 10Beta 6](https://android-developers.googleblog.com/2019/08/final-beta-update-official-android-q.html)—现在可供开发者和发烧友们玩。这一版本向我们展示了一幅近乎完整的图片，展示了 Android 10 的公开版本将会是什么样子，其中包括谷歌正在对其相机应用进行的一些调整。
 
-Watch
+
 
 Android 10 迄今为止最大的变化涉及新的手势控制和一般的 UI 调整，但许多其他核心 Android 应用程序和功能也在升级。以下是我们在谷歌相机应用中注意到的一些关键差异:
 

@@ -4,7 +4,7 @@
 
 当你开始帮助你的孩子计划他们的万圣节服装( [无论今年的万圣节是什么样子](https://offspring.lifehacker.com/this-map-can-help-you-decide-whether-to-go-trick-or-tre-1845128409) )，当你开始为你参加的任何成人节日计划你自己的服装时，这里是我们一年一度的提醒:黑脸永远都不是好东西。你和你的孩子可以打扮成勒布朗·詹姆斯、巴拉克·奥巴马或碧昂斯，而不会以一种历史上令人反感的方式使你的肤色变黑。
 
-Watch
+
 
 你可能会想，到目前为止，这是不言而喻的，特别是考虑到今年美国对种族主义和种族不公正的关注。然而，就在上周， [犹他州一名兼职高中托儿助理被解雇](https://www.deseret.com/utah/2020/10/8/21508449/blackface-social-media-school-jordan-district-child-care) ，原因是他在个人社交媒体账户上发布了一张黑脸照片。不要这样做。不要让你的孩子这样做。叫出任何这样做的朋友、邻居或熟人——告诉他们这是种族歧视( [这就是*反种族歧视*关于](https://lifehacker.com/the-difference-between-being-not-racist-and-anti-racist-1843834092) )。
 

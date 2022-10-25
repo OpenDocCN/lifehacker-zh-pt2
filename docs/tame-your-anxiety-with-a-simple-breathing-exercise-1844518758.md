@@ -4,7 +4,7 @@
 
 我们中的许多人——也许特别是最近——都经历过 T2 焦虑的心跳加速的感觉，这种感觉导致我们出汗、颤抖，甚至呼吸困难。但是事实证明我们在压力下喘气的本能有负面影响。
 
-Watch
+
 
 在《升级》最近的一集里，我们采访了科学记者詹姆斯·内斯特，他是《呼吸 [*:失传艺术*](https://www.amazon.com/Breath-New-Science-Lost-Art/dp/0735213615?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/tame-your-anxiety-with-a-simple-breathing-exercise-1844518758&asc_source=&tag=kinjalifehackerlink-20) 的新科学》一书的作者，讲述了不同呼吸方式的生理影响。根据他的说法，当谈到焦虑时，我们如何自然地倾向于呼吸实际上是对我们的精神状态和幸福感的损害:
 

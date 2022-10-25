@@ -4,7 +4,7 @@
 
 每天，我们都会听到一个新的教育直播，我们的孩子可以或者应该收听这个直播。虚拟博物馆之旅，参观动物园和科学演示——甚至还有 [虚拟体育课](https://offspring.lifehacker.com/how-to-burn-off-that-little-kid-energy-1842620326) 。资源就在那里；挑战在于保持它们都是直的。
 
-Watch
+
 
 幸运的是，已经有人在为我们做这一部分了。我们通过 [kottke.org 的快速链接](https://kottke.org/quick-links/2020-04) 发现的 [Everywhere School](https://everywhereschool.live/) ，在疫情期间每天都在监管教育直播。有循环时间、烹饪课、艺术课、音乐会、舞蹈课——等等。
 

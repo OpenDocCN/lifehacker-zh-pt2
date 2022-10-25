@@ -4,7 +4,7 @@
 
 悄悄了解某人的政治和他们真正关心的问题的一个方法是弄清楚他们资助了哪些竞选活动。有时你会发现 [意想不到的惊喜](https://www.snopes.com/fact-check/trump-donated-kamala-harris/) 或者了解到某人把钱投在哪里并不总是仅仅与党派有关。或者你可能会发现，一个宣扬某种价值观的组织 [用它的美元](https://popular.info/p/kelly-loeffler-is-running-against) 投票是不同的。
 
-Watch
+
 
 如果你想知道你的家庭成员、邻居、雇主或喜欢的公司是否为各种政治候选人捐过款(以及捐了多少)，你可以通过搜索公开的财务披露记录轻松找到这些信息。
 

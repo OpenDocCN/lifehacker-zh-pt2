@@ -4,7 +4,7 @@
 
 说到网络搜索，我们当中注重隐私的人可能已经听说过 DuckDuckGo。本周， *Fast Company* [写了一篇关于搜索引擎](https://www.fastcompany.com/90437058/this-alternative-search-engine-is-basically-google-without-the-privacy-headaches) 的替代品 Startpage，如果你是 DuckDuckGo 的用户，也值得一看。
 
-Watch
+
 
 与 DuckDuckGo 不同的是， [Startpage](https://www.startpage.com/) 会获取实际的谷歌搜索结果，这要归功于它与该公司的长期协议。直接用 Startpage 和 Google 的区别；然而，当你搜索的时候，你没有被跟踪。
 

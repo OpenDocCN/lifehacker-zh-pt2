@@ -4,7 +4,7 @@
 
 学生贷款债务将成为整个 2020 年总统竞选季的热门话题，特别是民主党候选人 [【伊丽莎白·沃伦】](https://lifehacker.com/why-elizabeth-warrens-student-debt-plan-isnt-that-radic-1834240902?) 和 [【伯尼·桑德斯】](https://twocents.lifehacker.com/keep-paying-your-loans-while-bernie-tries-to-cancel-stu-1835817118?) 的早期举措，他们立即宣布了详细的计划。但这只是众多候选人中的两个，他们将在明年秋天的选举中与唐纳德·特朗普总统竞争。
 
-Watch
+
 
 20 名竞争者将在下周另一轮为期两晚的辩论中讨论这些问题。如果你想了解每一个候选人解决大学费用和学生贷款债务的计划，把这当作你的快速参考。
 

@@ -4,7 +4,7 @@
 
 我爱 [瓦罐](https://thetakeout.com/tag/slow-cooker) 。我喜欢开胃菜。我喜欢派对。因此，我对慢炖肉丸并不陌生，这种肉丸经常出现在庆祝从难看的节日毛衣到一年中最大的比赛的聚会上，总是伴随着喜庆、色彩鲜艳的剑形塑料牙签。当思考我自己对今年超级碗聚会的贡献时，我决定解决这道我渴望已久的菜。想象一下，当我发现这种特殊的酱，根据韦尔奇的网站，含有两种成分时，我有多惊讶:葡萄果冻和烧烤酱。
 
-Watch
+
 
 关键是从实心肉丸开始。请把那些冷冻的暂时放在袋子里。为了确保我使用了正确的素材，我使用了来自经典 [*肉丸店食谱*](https://www.amazon.com/Meatball-Shop-Cookbook-Daniel-Holzman/dp/0440423163?asc_campaign=InlineText&asc_refurl=https://thetakeout.com/recipe-grape-jelly-meatballs-1832026014&asc_source=&tag=kinjatakeoutlink-20) *，*的经典牛肉肉丸，来自流行的纽约肉丸连锁店 [肉丸店](https://www.themeatballshop.com/) *。*【**编者按:**获取这本书只是为了火鸡肉丸食谱。我们一个月做一次。]这是一个非常基本的食谱，有一些重要的配料，如乳清干酪和红辣椒片，它们增加了热量，特别是在糖醋酱中(糖醋酱更偏向甜而不是酸)。
 

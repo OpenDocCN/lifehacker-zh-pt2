@@ -4,7 +4,7 @@
 
 根据 [新的应用商店指南](https://developer.apple.com/app-store/review/guidelines/#safety) ，苹果从平台上移除了 181 个 vape 相关应用，并彻底禁止在其应用市场中包含任何 vape 相关应用或功能。对苹果公司来说，这似乎是一个突然的举动，但几个月来，苹果公司一直在慢慢走向这一不可避免的禁令——很容易看出为什么。
 
-Watch
+
 
 vape 行业经常将 vape 描述为比吸烟更健康、更安全，但是政府和私人组织一直在大力反对使用 vape 产品，就像他们反对吸烟一样，而且理由充分。[CDC](https://www.cdc.gov/tobacco/basic_information/e-cigarettes/severe-lung-disease.html)报告称，vape 已导致至少 2172 例呼吸系统疾病/损伤(包括内部烧伤)，至少 42 例近期死亡是由尼古丁 vape 产品引起的。这当然没有与吸烟相关的死亡和疾病高，但随着更多的研究和 vaping 的普及，这些数字只会增加。
 

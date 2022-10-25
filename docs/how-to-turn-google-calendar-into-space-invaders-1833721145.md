@@ -4,7 +4,7 @@
 
 谷歌 2019 年的愚人节噱头非常有趣。不仅可以把 [地图变成*蛇*](https://lifehacker.com/how-to-access-the-snake-easter-egg-in-google-maps-1833700845)T5】的游戏，还可以把谷歌日历变成街机经典*太空入侵者*。 
 
-Watch
+
 
 1.  要玩游戏，首先在您的网络浏览器 中打开 [谷歌日历](https://calendar.google.com/calendar/r)
 2.  点击**档位图标**打开设置下拉菜单

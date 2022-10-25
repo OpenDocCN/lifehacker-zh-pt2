@@ -4,7 +4,7 @@
 
 所有的技术都在我的指尖，我仍然喜欢在我办公桌前的墙上挂一个纸质日历。很方便的一瞥，就能看到下周一是几号，或者离某个截止日期还有几周。我过去常常去书店购买出版的日历，但后来我发现了一个更直接的解决方案:我打印从开始的日历页，然后想贴多少就贴多少。
 
-Watch
+
 
 我选择每个方格上有一个巨大数字的，但是如果你更喜欢有空间写自己事件的那种， [他们也有那些](https://www.blank-calendar.com/printable/2020/preview/large-box-grid) 。还是想要一个适合四个月一页的 [浓缩版](https://www.blank-calendar.com/printable-calendar/2020/printable-yearly-2020-calendar-4-months.jpg) ？一个日历 [，每天都有复选框](https://www.blank-calendar.com/printable/2020/preview/check-boxes) 这样你就可以跟踪你的习惯了？一个 [栏目风格策划](https://www.blank-calendar.com/printable-calendar/2020/printable-yearly-2020-calendar-month-in-column.jpg) ？其中每一个都只是一个打印任务。
 

@@ -4,7 +4,7 @@
 
 定期从智能手机上卸载未使用的应用程序(并禁用不必要的应用程序权限)不仅可以释放额外的存储空间，还可以帮助保护您的个人数据安全。例证:几个第三方安卓应用程序最近卷入了一次数据泄露事件，影响了数百万脸书和推特用户。
 
-Watch
+
 
 Twitter 在周一的一篇博客文章 中披露了攻击 [的细节。许多包含恶意软件的第三方应用程序能够利用 Android 设备中的](https://help.twitter.com/en/sdk-issue) [漏洞](https://lifehacker.com/this-new-android-malware-can-survive-a-factory-reset-1839471462) 来访问某些 Twitter 和脸书账户信息。
 

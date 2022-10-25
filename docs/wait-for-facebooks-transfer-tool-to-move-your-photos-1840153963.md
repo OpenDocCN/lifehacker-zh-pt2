@@ -4,7 +4,7 @@
 
 如果你一直梦想将你在脸书的照片和视频转移到另一个服务上，你可能需要再等一段时间。脸书将使这一过程比今天的技术简单得多: [下载你所有的数据](https://www.facebook.com/dyi/?x=AdkHEsKAriLKv7Lm) ，整理你的媒体，然后坐在那里，而你的电脑永远需要把它上传到 [另一个云存储服务](https://lifehacker.com/google-one-is-now-open-for-everyone-but-is-it-a-good-d-1826049257) 。
 
-Watch
+
 
 公司 [最近宣布了一项即将推出的功能](https://about.fb.com/news/2019/12/data-portability-photo-transfer-tool/) ，该功能将允许用户从谷歌照片开始，将他们在脸书的所有照片和视频转移到其他照片服务。该工具仍处于测试阶段，将首先在爱尔兰推出，然后在 2020 年推广到世界其他地区。
 

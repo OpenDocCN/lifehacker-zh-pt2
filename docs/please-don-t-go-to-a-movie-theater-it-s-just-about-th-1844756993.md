@@ -4,7 +4,7 @@
 
 几个月来，全国各地的电影院已经关闭，作为拯救生命和减缓新冠肺炎病毒传播的持续努力的一部分。作为回应， [工作室选择推迟他们的大制作](https://news.avclub.com/in-the-heights-movie-gets-bumped-back-to-2021-1842991544) 或 [转而推出 VOD](https://news.avclub.com/lets-get-down-to-business-mulan-will-debut-on-disney-1844611084)。但是拉塞尔·克罗不会被某种冠状病毒所阻挡。他有一部新的动作片将于周五上映，还有“我不是在和你开玩笑。电影 的最新广告 [中，这位奥斯卡奖得主对着镜头说:“它将在电影院上映。”该电影将在 44 个州上映。](https://twitter.com/edgarwright/status/1294757848405233664)
 
-Watch
+
 
 如果我们认为克罗是在开玩笑，他也不会因此而反对我们，因为冠状病毒病例的数量在全国范围内持续快速上升。“我不认为你知道糟糕的一天到底是什么…但你会知道的，”克罗在宣传电影《T2》《T3》的一条推特上写道。——尽管这也可能是对过早重开电影院的无情警告。我们有没有提到这部显然只能在电影院看的电影杰作叫什么？[](https://film.avclub.com/russell-crowe-is-unhinged-in-a-trashy-road-rage-thrille-1844759549)*。*
 

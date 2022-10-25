@@ -4,7 +4,7 @@
 
 虽然我有一个强大的酒吧推车的情况下，我很少在家喝酒。至少我*以前*在家很少喝酒。自从我开始在社交上保持距离，我重新发现了一些被遗忘的瓶子，比如我的好朋友:菠萝朗姆酒。
 
-Watch
+
 
 你可能还记得鸡尾酒中的菠萝朗姆酒，如 [这款夏季老款](https://skillet.lifehacker.com/make-a-summery-old-fashioned-with-pineapple-rum-1836314321)[这款炸弹鸡尾酒](https://skillet.lifehacker.com/3-ingredient-happy-hour-a-super-fresh-pineapple-daiqui-1795963499) 和 [这款棕榈鸡尾酒](https://skillet.lifehacker.com/get-your-rum-fix-with-a-palmetto-cocktail-1826307906) 。都很好，但没有一种像这种超级酒一样安静致命，相当甜的菠萝朗姆酒和老 Overholt 黑麦的混合物，老实说，这是我们现在都需要的烈性饮料。
 

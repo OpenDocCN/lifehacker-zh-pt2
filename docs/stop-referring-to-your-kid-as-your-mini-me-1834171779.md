@@ -4,7 +4,7 @@
 
 也许你的女儿有着和你一样的深棕色头发或者锐利的蓝眼睛。你控制不住自己，真的；时不时地，你会穿上相配的衣服，在后院拍些照片，然后把照片发布给全世界的人看。谁能责怪你呢？这孩子完全是你的翻版。
 
-Watch
+
 
 但是在《纽约时报》的一篇名为“[‘迷你我’，](https://www.nytimes.com/2019/04/17/style/mini-me-children.html?em_pos=small&emc=edit_ml_20190418&nl=well-family&nl_art=2&nlid=70774231emc%3Dedit_ml_20190418&ref=headline&te=1) ”的文章中，作家汉娜·塞利格森探讨了将一个孩子称为你的“迷你我”是无害的亲昵还是“无拘无束的自恋”
 

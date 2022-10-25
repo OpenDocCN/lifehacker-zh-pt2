@@ -4,7 +4,7 @@
 
 当你 [反思过去的一年](https://twocents.lifehacker.com/get-your-finances-in-order-before-the-new-year-1830659913) 并制定新的决心时，考虑和你的孩子坐下来，一起为 2019 年制定一个金钱目标。
 
-Watch
+
 
 目标不一定是高风险；只是一些可以教他们如何理财的东西。当然，有些想法会因孩子的不同而有所不同，你应该和他们讨论他们在这一年中想做什么:
 

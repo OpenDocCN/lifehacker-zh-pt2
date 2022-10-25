@@ -4,7 +4,7 @@
 
 脸书新推出的“ [一起看](https://about.fb.com/news/2020/09/introducing-watch-together-on-messenger) ”功能支持最多 8 个人在 Facebook Messenger，或者最多 50 个人使用 [Messenger Rooms](https://about.fb.com/news/2020/04/introducing-messenger-rooms) 。无论你决定如何组织你的数字派对，这都是让每个人同时观看(和评论)相同视频的便捷方式。
 
-Watch
+
 
 如今，团体观看并不是一个独特的功能。然而，脸书的实现让你可以在同一个应用程序窗口中观看视频*和你的聊天伙伴的摄像头反馈*，与大多数其他观看派对功能相比，增加了一个新颖的转折。这应该会让一起观看感觉更有集体感——只要你首先对脸书的视频内容感兴趣。
 

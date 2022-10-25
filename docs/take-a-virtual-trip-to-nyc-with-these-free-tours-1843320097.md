@@ -4,7 +4,7 @@
 
 在新冠肺炎出现之前，纽约市是美国最受欢迎的城市。但作为疫情爆发的中心，它不再被游客淹没(甚至被轻度占据)。在这一点上，即使是本地人也不能在他们的城市呆上一段时间，但是现在，虚拟参观纽约比以往任何时候都容易。
 
-Watch
+
 
 自 2009 年以来， [未开发的纽约](https://untappedcities.com/) 一直在提供纽约市鲜为人知的地方的旅游，以及发布从 [废弃医院](https://untappedcities.com/2017/09/15/10-abandoned-hospitals-and-asylums-around-nyc/) 到 [哈特岛](https://untappedcities.com/2020/04/10/haunting-video-and-photos-of-hart-island-nycs-mass-burial-ground/) 的各种新内容。像许多其他旅游景点和目的地一样，该网站转向在冠状病毒时期提供在线旅游和讲座。通常，订阅访问他们的在线节目每月 10 美元起，但他们目前使用 STAYHOME 代码提供两个月的免费会员资格。这包括访问即将到来的现场虚拟活动以及他们以前的巡回演出和讲座的档案。
 

@@ -4,7 +4,7 @@
 
 如果你还不是 Panera 的免费加入 MyPanera 计划的会员，现在可能是注册的好时机。
 
-Watch
+
 
 这家三明治连锁店每天都提供免费的百吉饼，直到年底，所有报名参加 MyPanera 奖励计划的人都可以享受。你可以在网上 或店内 [加入该计划以获得促销(尽管你必须去商店才能买到那个百吉饼)。](https://www-beta.panerabread.com/en-us/sign-up-with-mypanera.html)
 

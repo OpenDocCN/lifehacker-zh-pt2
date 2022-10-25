@@ -4,7 +4,7 @@
 
 尽管从技术上来说，夏天还有几个星期，但高温和潮湿并没有消失(至少在纽约是这样)。而那些没有空调的人(或者有非常旧的、蹩脚的窗户单元的人)，通常会在咖啡店或图书馆远程工作，目前没有这种选择。我属于那一类。
 
-Watch
+
 
 很有可能，如果有一个 [黑](https://lifehacker.com/top-10-ways-to-stay-cool-without-air-conditioning-1782370303) 或者 [策略](https://lifehacker.com/this-graphic-shows-you-how-to-stay-cool-while-you-sleep-1718246417) 换 [保持冷静](https://lifehacker.com/how-to-keep-your-bed-as-cool-as-possible-this-summer-1826397130) [没有 AC](https://lifehacker.com/how-to-cool-your-home-without-cranking-the-ac-1835107947) ，我也试过。这实际上就是这个小窍门:用冰冷的湿布包住你的头。不，这显然不是什么新奇的东西，但由于某种原因，我在这个夏天忘记了它，直到最近，当我在井+好 中看到这篇文章。这样做了几天后，我准备回来报道。
 

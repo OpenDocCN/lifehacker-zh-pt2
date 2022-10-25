@@ -4,7 +4,7 @@
 
 虽然 [Pixel 3](https://gizmodo.com/google-pixel-3-review-the-other-way-to-make-a-killer-p-1829749807) 不错，但当谷歌上个月发布这款手机时，它有点让人觉得不完整。这种感觉一部分是因为谷歌对智能手机设计的软件第一的方法，这意味着总是有代码被修改，但另一部分只是因为谷歌仍然没有提供该公司在发布前取笑的两个主要的 Pixel 3 功能。
 
-Watch
+
 
 但从今天开始，那些缺失的附加功能之一， [夜视](http://www.blog.google/products/pixel/see-light-night-sight/) ，终于向 Pixel 3 用户推出，在有机会测试了几天之后，我可以有把握地说，谷歌复杂的相机功能值得等待。
 

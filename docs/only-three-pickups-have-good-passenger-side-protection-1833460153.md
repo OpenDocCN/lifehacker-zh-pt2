@@ -4,7 +4,7 @@
 
 自从 [高速公路安全保险研究所](https://jalopnik.com/tag/iihs) 在 2017 年开始让车辆接受其乘客侧小重叠碰撞测试以来，它一直很难通过。皮卡也不例外。
 
-Watch
+
 
 周四，IIHS [报道](https://m.iihs.org/mobile/news/mobilenews/most-pickups-need-better-passenger-side-protection) 称，在测试了 11 辆出租车司机皮卡后，只有三辆获得了良好的评级。它们是福特 F-150 和日产 Titan，加入了 Ram 1500(去年 7 月后生产的车型)，后者在 2018 年底获得了评级。
 

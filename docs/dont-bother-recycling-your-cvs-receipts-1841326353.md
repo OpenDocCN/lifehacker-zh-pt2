@@ -4,7 +4,7 @@
 
 回到 2018 年， [Vox 记者雷切尔·苏格](https://www.vox.com/the-goods/2018/10/10/17956950/why-are-cvs-pharmacy-receipts-so-long) 调查了你在 CVS 商店收到的那些令人讨厌的长收据背后的原因。事实证明，这不是意外；根据一份声明，药店故意打印出长长的收据，向顾客展示“他们获得的奖励或他们可以利用的储蓄”，这显然需要几英尺长的书面解释。
 
-Watch
+
 
 对你(以及 Lifehacker 总部的大多数员工)来说，这可能是另一条新闻:那些收据可能也是不可回收的。许多药店的纸质收据都是由热敏纸制成的。这是一种闪亮的纸张，可以通过热转印的方式打印，而不是像 [回收站写的](https://livegreen.recyclebank.com/column/because-you-asked/can-i-recycle-receipts-made-of-thermal-paper) 。然而，问题是热敏纸通常涂有双酚 a 或 BPA，这种化学物质的形状有点像雌二醇，一种雌激素。
 

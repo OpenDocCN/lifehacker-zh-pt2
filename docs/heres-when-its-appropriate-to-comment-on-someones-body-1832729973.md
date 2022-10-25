@@ -4,7 +4,7 @@
 
 身体会随着时间发生很大的变化，有时这些变化是戏剧性的。当你看到一个朋友突然变了样，你会有一种强烈的冲动去评论他。有时这种评论会非常受欢迎——甚至是意料之中的——而有时它会不受欢迎，甚至是彻头彻尾的伤害。
 
-Watch
+
 
 在 subreddit /r/LifeProTips 中，Redditor[u/ker MIT 2014](https://www.reddit.com/user/kermit2014)分享了一个关于他们如何让 [因减肥](https://www.reddit.com/r/LifeProTips/comments/as4rb8/lpt_request_how_to_tactfully_reject_a_compliment/) 而不断接受赞美的故事——他们对此深恶痛绝。他们不是因为节食或锻炼而变瘦，而是因为生病而变瘦:
 

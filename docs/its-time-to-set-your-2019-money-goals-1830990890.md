@@ -4,7 +4,7 @@
 
 既然我们已经谈论了设定目标， [回顾了我们今年的表现](https://twocents.lifehacker.com/did-you-accomplish-your-2018-money-goals-1830981445) ，是时候谈谈明年了。为此，我 2019 年的金钱目标是...
 
-Watch
+
 
 [鼓声]
 

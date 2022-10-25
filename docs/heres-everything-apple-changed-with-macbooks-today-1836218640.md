@@ -4,7 +4,7 @@
 
 苹果公司今天就其入门级笔记本电脑的命运发布了一些重大公告 。该公司已经停产了 12 英寸 MacBook (RIP)，非视网膜显示屏 MacBook Air，并且无法购买没有( [有争议的](https://gizmodo.com/the-macbook-pros-touch-bar-is-a-gimmick-thats-not-worth-1788931016) )触摸条的 MacBook Pro。取而代之的是升级版的入门级 MacBook Pro 和 MacBook Air。
 
-Watch
+
 
 ### 新的入门级 MacBook Pro
 

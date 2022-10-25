@@ -4,7 +4,7 @@
 
 伴随着永无止境的焦虑，不知所措似乎成了这些天的常态。你可能会认为花更多的时间呆在家里会帮助我们掌控一切，但对很多人来说肯定不是这样。(如果你是一个早期夸夸其谈的人，现在拥有 Pinterest 上的衣橱和茶水间，这可能不适用于你——，除非那是你正在做的事情，而不是完成你的其他工作。)
 
-Watch
+
 
 在一篇关于 SmartBrief 的 [文章中，](https://www.smartbrief.com/original/2020/08/how-identify-most-important-tasks)[Naphtali Hoff](https://www.smartbrief.com/author/naphtali-hoff)—《成为新老板 》一书的作者——建议从我们最重要的任务开始我们的待办事项清单(MITs)。“这些可能是‘一次性任务，可以在一个时间段内完成...或者可能持续几天，”他写道。如果你不把最重要的事情放在日程表的首位，所有其他的需求都会占用你的时间和精神带宽。"
 

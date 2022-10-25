@@ -4,7 +4,7 @@
 
 我总是去靠窗的座位。我想说，这是因为我可以从上面惊叹我们星球的美丽，但真的，我只是需要一个地方来休息，因为我会闭上眼睛，流口水几个小时。在我三十多年的空中旅行中，我从来没有质疑过我的座位偏好——直到我知道我的脸可能会因此而发热。
 
-Watch
+
 
 好吧，这可能有点极端，但事实是，当我们在空中时，我们的皮肤更容易受到阳光的伤害，这是我们很少被警告的事情。然而，风险是真实存在的。虽然大多数飞机窗户都能有效阻挡 UVB 射线，但 UVA 辐射仍然可以穿透，而且可能“在更高的高度会更强烈”，正如威尔康奈尔医学院皮肤科助理临床教授 Marisa Garshick 博士对 [*旅行+休闲*](https://www.travelandleisure.com/travel-news/bring-sunscreen-on-flights) *所解释的那样。*在 2014 年发表于[JAMA Dermatology](https://jamanetwork.com/journals/jamadermatology/fullarticle/2019958)的一项研究中，研究人员发现，就辐射剂量而言，在巡航高度飞行 56.6 分钟相当于在日光浴床上度过 20 分钟。一项 [分析](https://www.cbsnews.com/news/pilots-flight-crews-face-higher-risk-of-skin-cancer/) 发现，飞行员和机组人员的黑色素瘤发病率几乎是普通人的两倍，尽管原因尚不完全清楚，但紫外线照射可能是罪魁祸首。
 

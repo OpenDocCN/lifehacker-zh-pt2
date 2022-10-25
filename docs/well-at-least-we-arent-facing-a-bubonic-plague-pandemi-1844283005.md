@@ -4,7 +4,7 @@
 
 是的，现在是 2020 年，糟糕的事情正在发生。但是在蒙古和内蒙古的几个鼠疫 病例的 [诊断并不预示着黑死病的重演。就像所谓的](https://www.nytimes.com/2020/07/06/world/asia/china-bubonic-plague-inner-mongolia.html) [杀人黄蜂](https://vitals.lifehacker.com/murder-hornets-are-unlikely-to-murder-you-personally-1843264533) 一样，这种吓唬又是一个哑弹。
 
-Watch
+
 
 [正如我们之前提到的](https://vitals.lifehacker.com/can-we-hide-from-plague-flu-and-the-spectre-of-death-1796557862) ，每年都会有几起鼠疫病例成为新闻。鼠疫是一种由 [细菌*鼠疫杆菌*](https://en.wikipedia.org/wiki/Yersinia_pestis) 引起的疾病，如果它感染了你的淋巴结，它引起的疾病被称为腺鼠疫，如果它感染了你的肺部，它引起的疾病被称为肺鼠疫。
 

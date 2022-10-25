@@ -4,7 +4,7 @@
 
 删除你的推文有很多很好的理由，但我一直犹豫要不要扣动扳机。虽然这个想法在纸上是有道理的，但我知道有些事情我会后悔抹去。我们之前推荐过清除你 Twitter 的服务，但据我所知，它们都是删除你的全部历史。要么全有，要么全无。
 
-Watch
+
 
 由科技记者 [米卡·李](https://twitter.com/micahflee) 制作的程序[semi phermerial](https://micahflee.com/2019/06/semiphemeral-automatically-delete-your-old-tweets-except-for-the-ones-you-want-to-keep/)，对于那些想从他们的推特账户中挑选出被大量删除的内容的人来说是完美的。当你运行它时，它可以删除你所有的推文*，除了你选择保留的推文*——这听起来很棒，但有一个小问题。要在上使用应用程序，你必须注册一个 Twitter 开发人员账户，并进入一个比按一个按钮然后屏蔽你所有的推文更复杂的程序。
 

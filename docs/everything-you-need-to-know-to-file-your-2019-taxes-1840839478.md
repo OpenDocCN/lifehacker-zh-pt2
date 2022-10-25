@@ -4,7 +4,7 @@
 
 如果你还没有开始收到提交 2019 年纳税申报表所需的表格，你肯定会很快收到。虽然去年我们面临了很多变化，但今年的变化会少很多。有一些调整你应该知道，但在大多数情况下，这一切都将感到非常熟悉。
 
-Watch
+
 
 乔治城大学的商学教授托马斯·库克 表示，2019 年的税法变化很小。如果没有国会在 12 月通过的 [支出方案](https://www.washingtonpost.com/us-policy/2019/12/17/house-passes-sprawling-trillion-spending-deal-sends-senate-ahead-friday-shutdown-deadline/) ，我们将通过 2017 年减税和就业法案(TCJA)实施的保持稳定。
 

@@ -4,7 +4,7 @@
 
 尽管与目前最大的技术和最受欢迎的设备有关，谷歌也为基础设施和资源有限的地方开发产品和服务。其中一个产品，精简的搜索应用“Google Go”现在在全球范围内可供所有安卓用户试用。
 
-Watch
+
 
 [Google Go](https://play.google.com/store/apps/details?id=com.google.android.apps.searchlite) 是为 Android Go 设备设计的，这些设备主要在连接速度慢或不可靠的地区销售。由于该应用程序现在正在各地推出，任何运行 Android 5.0 Lollipop 或更高版本的 Android 设备都可以使用它。
 

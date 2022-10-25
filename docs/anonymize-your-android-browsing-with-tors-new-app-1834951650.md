@@ -4,7 +4,7 @@
 
 经过几个月的测试，第一个稳定的、面向安卓 的 [Tor 浏览器的公开版本终于在谷歌 Play 商店上市了。](https://play.google.com/store/apps/details?id=org.torproject.torbrowser) 
 
-Watch
+
 
 对于那些对开源浏览器没有太多经验的人来说，Tor 是围绕隐私和自治而构建的。在之前的 中，我们已经讨论过几次[桌面版 Tor](https://lifehacker.com/the-best-privacy-and-security-focused-web-browsers-1672758270)[，但是 Tor 的基石是它是一个让用户(几乎)匿名的浏览器。这](https://lifehacker.com/how-to-anonymize-your-browsing-with-a-tor-powered-raspb-1793869805) [并不完美](https://2019.www.torproject.org/docs/faq.html.en#AmITotallyAnonymous)——如果你试图做一些你不应该做的事情，你仍然需要——但它为大多数普通人创造了一个足够私密的环境。
 

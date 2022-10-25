@@ -4,7 +4,7 @@
 
 在个人理财方面,你的的净资产得到了很多关注，而且理由很充分——它基本上就是你的财务成绩单。你可以通过从你的总资产中减去你的总债务来计算你的净资产，或者财务状况表。
 
-Watch
+
 
 一些专家说，另一个数字可以更好地衡量你的财务状况。Ritholtz Wealth Management 的首席运营官 Nick Maggiulli 是《美元与数据》 网站 [的博客作者，他认为你的净资产并不能为*提供你如何达到目前财务状况的背景。*](https://ofdollarsanddata.com/wealth-discipline-ratio/) 
 

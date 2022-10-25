@@ -4,7 +4,7 @@
 
 在 [苹果宣布其基于订阅的游戏服务 Apple Arcade](https://lifehacker.com/google-play-pass-or-apple-arcade-which-app-subscriptio-1836890417) 后不久，谷歌以自己类似的订阅计划进行反击: [Google Play Pass](https://play.google.com/about/play-pass/) 。与 Apple Arcade 不同，Google Play Pass 包括通过 Google Play 访问优质游戏和非游戏应用程序，通常每个月只需支付 5 美元，而 Apple Arcade 则完全专注于游戏。Google Play Pass 库中的每个应用程序都是完整版本，没有任何广告或无关的应用内购买，但迄今为止，谷歌忽略了一个非常重要的细节:该程序中包含的应用程序的完整列表。
 
-Watch
+
 
 谷歌表示，这项服务包括 350 多个应用和游戏，尽管谷歌已经突出显示了几个知名应用，但用户需要搜索谷歌 Play 商店，才能准确找出哪些高级应用包含在你的月度订阅中。幸运的是，Android Police 的工作人员肩负起了这一重任，他们已经识别出了 Google Play Pass 的 350 多个应用和游戏中的 320 多个。
 

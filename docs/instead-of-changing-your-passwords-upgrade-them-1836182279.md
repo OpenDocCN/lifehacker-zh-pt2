@@ -4,7 +4,7 @@
 
 是什么让 [成为伟大的密码](https://lifehacker.com/how-to-create-secure-passwords-that-arent-impossible-to-1825048324) ？长的东西，用 [随机化的东西，各种字符](https://lifehacker.com/how-password-constraints-give-you-a-false-sense-of-secu-1830564360)——数字、符号和字母的所有情况——以及，理想情况下，用 [备份的东西，一种二次认证方法](https://lifehacker.com/two-factor-authentication-isnt-enough-to-keep-your-acco-1827867557) 。换句话说，*你*越容易记住你的密码，别人就越容易破解(一般来说)。
 
-Watch
+
 
 虽然这应该是任何拥有 [的人都必须创建密码](https://lifehacker.com/donald-was-one-of-the-worst-passwords-you-used-in-201-1831046351) 的常识，并且有 [许多工具](https://lifehacker.com/the-five-best-password-managers-5529133) 可以用来生成、存储和调用伟大的密码，但是对于这个过程有一个小小的警告，你可能没有想过太多。你应该多久*更改*一次你的密码？
 

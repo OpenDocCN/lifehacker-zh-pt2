@@ -4,7 +4,7 @@
 
 FDA 已经宣布在全国范围内召回几个品牌的干狗粮，因为它们含有高达 70 倍的维生素 D。过多会导致器官衰竭和死亡，所以检查标签并留意维生素 D 中毒的迹象。
 
-Watch
+
 
 [FDA 的受影响品牌](https://www.fda.gov/AnimalVeterinary/NewsEvents/ucm627485.htm) 列表包括以下内容，但随着调查的深入，该列表可能会增加:
 

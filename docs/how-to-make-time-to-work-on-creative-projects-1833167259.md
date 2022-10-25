@@ -6,7 +6,7 @@
 
 2017 年，当我的编辑问我是否愿意写一本书时，我正在以谈论和写作生产力为生，这本书类似于团队的五种功能障碍和*一分钟经理*——通过故事教授商业课程。只有一个问题。我什么时候才能在工作和照顾我的四个孩子之间找到时间呢？
 
-Watch
+
 
 但是我写了《朱丽叶的可能性学校》[](https://www.amazon.com/Juliets-School-Possibilities-Little-Priorities-ebook/dp/B07DTBXCRL ?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-make-time-to-work-on-creative-projects-1833167259&asc_source=&tag=kinjalifehackerlink-20)**一个雄心勃勃的年轻顾问的故事，她的生活正在崩溃，直到她的导师教她如何好好利用时间。我依靠这七个策略，我认为它们可以帮助任何人在已经充实的生活中找到一个意想不到的机会。**
 

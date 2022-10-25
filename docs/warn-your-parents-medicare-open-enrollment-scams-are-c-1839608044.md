@@ -4,7 +4,7 @@
 
 开放注册的季节到了，一年中的这个时候，几乎每个人都可以改变他们的医疗保险，而不会受到今年剩余时间的限制。虽然你可能对自己的医疗保健做出改变的过程充满信心，但你知道谁在每年的这个时候特别容易被骗吗？你的父母。
 
-Watch
+
 
 美国联邦贸易委员会 [告诉美国消费者新闻与商业频道](https://www.cnbc.com/2019/11/04/be-on-high-alert-for-scams-during-medicare-open-enrollment.html) 仅在今年前九个月，他们就收到了 240 万起诈骗和身份盗窃的投诉，其中有近 33.2 万起投诉是关于自称来自政府机构的骗子。 [美国联邦贸易委员会的消费者哨兵网络报道](https://public.tableau.com/profile/federal.trade.commission#!/vizhome/GovernmentImposter/Infographic) 健康&人类服务和医疗保险是第二大最常见的诈骗类别(社会保障诈骗名列榜首)。
 

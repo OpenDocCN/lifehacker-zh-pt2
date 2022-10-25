@@ -4,7 +4,7 @@
 
 烤焦后给锅去釉是烹饪牛排或猪排时显而易见的、几乎是本能的一部分，但在煎培根时却不太常见。但是像排骨和牛排一样，培根只是一块肉，去釉——也就是在少量液体的帮助下刮去所有美味的棕色部分——确保你不会在锅里留下任何味道。
 
-Watch
+
 
 我通常在烤箱 中烹制大批量的熏肉 [，但前几天我决定煎几条做三明治，并伸手拿起我的(](https://lifehacker.com/ditch-the-skillet-fire-up-your-oven-to-cook-perfect-ba-5711834) [冷](https://lifehacker.com/the-secret-to-great-bacon-is-a-cold-pan-1829171657) )不锈钢锅。当面条变得又好又脆(用纸巾擦干)时，我注意到——除了明显的油脂——我的锅里还剩下相当多的面粉。
 

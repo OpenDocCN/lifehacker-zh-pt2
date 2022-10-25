@@ -4,7 +4,7 @@
 
 美国邮政署​(USPS)陷入了困境。现在，公司和其他所有人都在依赖电子邮件而不是纸质邮件，他们的邮件量 [已经下降了大约三分之一](https://lifehacker.com/how-you-can-support-the-usps-1842858486) 。最重要的是， [总统已经威胁要否决](https://www.reuters.com/article/us-health-coronavirus-trump-postalservic/trump-threatens-to-block-aid-for-us-postal-service-if-it-does-not-raise-prices-for-amazon-idUSKCN226367) 任何包含对美国邮政的救助资金的刺激方案。
 
-Watch
+
 
 那么你能做些什么来帮忙呢？买些邮票吧！在这一点上，USPS 的全部 [预算来自邮票](https://www.politifact.com/factchecks/2013/aug/09/jim-hightower/postal-service-which-operates-sales-stamps-last-ha/) 的销售，所以这是一种直接贡献的方式。更好的是，在 6 月 10 日星期三之前，你可以定制自己的邮票。
 

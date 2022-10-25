@@ -4,7 +4,7 @@
 
 如果你愿意购买已经打开的东西，下次在亚马逊购物时，你可能会为自己节省一大笔钱， [假设在亚马逊购物仍然是你这个假期正在做的事情](https://twocents.lifehacker.com/how-to-do-your-holiday-shopping-without-amazon-1840179642) 。
 
-Watch
+
 
 亚马逊网站实际上有一个名为“ [亚马逊仓库销售](https://www.amazon.com/b/?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-find-discounted-open-box-items-on-amazon-1840288221&asc_source=&camp=1789&creative=9325&linkCode=pf4&linkId=5909ecdfe57ab4ce26efde525c746ad1&node=1267877011&ref_=assoc_tag_ph_1384415829680&tag=kinjalifehackerlink-20) ”的栏目，专门销售开箱商品。你知道，有些人买了东西，然后决定退回给零售商，但是在它们已经被打开之后。
 

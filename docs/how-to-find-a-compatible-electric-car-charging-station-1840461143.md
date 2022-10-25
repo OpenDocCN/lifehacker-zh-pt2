@@ -4,7 +4,7 @@
 
 电动汽车可能是未来的发展方向，但不同品牌和型号的充电插头各不相同，这使得寻找兼容的电动汽车(EV)充电站比简单地停在加油站要困难得多。令人欣慰的是，Android 上的谷歌地图现在有一个“电动汽车设置”菜单，这将使寻找适合你的汽车的电动汽车充电端口变得不那么令人头疼。
 
-Watch
+
 
 谷歌地图已经能够指出开放的电动汽车站有一段时间了，但 [安卓警方报道](https://www.androidpolice.com/2019/12/14/google-maps-can-now-search-for-electric-vehicle-charging-stations-by-plug-type/) 用户现在可以指定他们需要的充电站类型，并过滤掉他们不需要的充电站。
 

@@ -6,7 +6,7 @@
 
 根据专家的说法，是也不是。
 
-Watch
+
 
 烘焙需要精确，这就是为什么你会想要严格遵循食谱的盐建议，根据凯特琳·彭泽姆格、 [*外卖*撰稿人](https://thetakeout.com/salt-grinders-are-bullshit-and-other-lessons-from-grow-1798259994) 和 [作者](https://thetakeout.com/importance-of-salt-on-spice-book-penzeymoog-1831585194) *关于香料:建议、智慧和历史与一粒盐*。她说盐的质地各不相同——想想粗盐和细盐相比有多少——这意味着一汤匙的粗盐和一汤匙的细盐可能不一样。称量配料有助于缓解这种差异，但是如果食谱给出了它的体积测量，如果可能的话，遵循指定的盐。如果烘焙食谱没有指定盐的种类，你只能用你喜欢的种类。
 

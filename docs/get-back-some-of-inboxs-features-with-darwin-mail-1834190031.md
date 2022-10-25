@@ -4,7 +4,7 @@
 
 如果你的 [不见了谷歌的收件箱](https://gadgets.ndtv.com/apps/news/google-inbox-by-gmail-older-android-apks-stop-functioning-users-2026005) ， [达尔文邮件](https://www.darwinmail.app/) 可能是个不错的替代。该服务与您的 Gmail 帐户配合使用，将收件箱的许多最佳功能带回您的收件箱。
 
-Watch
+
 
 具体来说，该服务允许你打盹你的电子邮件，有一个内置的黑暗模式，自定义背景，撤销发送功能，提醒和电子邮件模板，当你一次又一次地发送相同的信息时，你可以用它们来节省时间。
 

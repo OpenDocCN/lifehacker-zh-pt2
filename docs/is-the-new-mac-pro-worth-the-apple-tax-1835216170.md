@@ -4,7 +4,7 @@
 
 Mac Pro 是一个声明。它的透气外壳让人想起厨房工具，是对 Power Mac G5 的致敬和进步，粉丝们亲切地将它比作奶酪刨丝器。这是一款配备了新一代至强处理器的苹果设备，似乎终于按时推出，并与其竞争对手步调一致。尽管如此，6000 美元基本款配备的微不足道的 GPU 和 SSD 似乎与其行业领先的设计不协调。当我走过苹果公司为展示这款设备而设立的展厅时，我不停地问自己，它值不值这么高的苹果产品价格？
 
-Watch
+
 
 最好的苹果产品价格昂贵，但有足够的高级抛光，他们觉得值得。我爱我的 MacBook Pro:我喜欢未被充分利用的 Touch Bar 和 [电脑运行多快](https://gizmodo.com/the-new-apple-macbook-pro-is-so-good-the-price-is-almos-1827802621) 。我喜欢众多的霹雳港。同样， [iPad Pro](https://gizmodo.com/the-new-ipad-pro-is-the-last-great-tablet-1830380453) 和 [iPhone XS](https://gizmodo.com/the-new-ipad-pro-is-the-last-great-tablet-1830380453) 都是昂贵的设备，感觉它们物有所值。从硬件到软件的体验都足够好，你可以证明其成本是合理的。
 

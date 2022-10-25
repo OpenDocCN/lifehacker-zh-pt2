@@ -4,7 +4,7 @@
 
 现在我们很多人都花更多的时间在家里，许多流媒体服务已经开始提供更长时间的免费试用或免费访问他们的一些原创内容。
 
-Watch
+
 
 本周，苹果公司也加入了这一努力，免费提供一些 Apple TV Plus 节目， [*综艺*报道](https://variety.com/2020/tv/news/apple-tv-plus-streams-certain-shows-movies-for-free-amid-stay-at-home-guidance-1234576694/) 。现在，您可以在服务上免费观看这些节目:
 

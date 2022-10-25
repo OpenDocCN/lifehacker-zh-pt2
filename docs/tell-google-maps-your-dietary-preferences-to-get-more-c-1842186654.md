@@ -4,7 +4,7 @@
 
 我们都有某种食物偏好。也许你是个素食主义者或者对贝类过敏，或者你真的不喜欢披萨。当你使用谷歌地图寻找食物推荐时；然而，默认情况下，它会向你展示所有的选择，而不仅仅是你可能想吃的。也就是说，除非你告诉谷歌地图这些偏好是什么。
 
-Watch
+
 
 本周早些时候 *Android Central* [指出](https://www.androidcentral.com/how-get-restaurant-recommendations-google-maps) 你实际上可以告诉谷歌地图你通常对哪种食物感兴趣，因此它可以根据你可能想要的方式定制给你的推荐。
 

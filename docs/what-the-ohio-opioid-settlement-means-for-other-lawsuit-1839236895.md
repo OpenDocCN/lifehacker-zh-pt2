@@ -4,7 +4,7 @@
 
 俄亥俄州的两个县计划起诉一些公司在阿片类药物流行中的作用，但在最后一刻，双方 [达成了 2.6 亿美元的和解](https://www.washingtonpost.com/health/ohio-counties-drug-firms-reach-260m-settlement-averting-trial/2019/10/21/c9ac1dd4-f39f-11e9-ad8b-85e2aa00b5ce_story.html) 。这对于相关的国家和公司以及未来更多诉讼的可能性意味着什么。
 
-Watch
+
 
 ### 谁卷入了这场诉讼？
 

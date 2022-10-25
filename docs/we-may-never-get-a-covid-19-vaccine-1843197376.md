@@ -4,7 +4,7 @@
 
 整个世界都在焦急地等待新冠肺炎疫苗，坚持目前估计的 12 到 18 个月的 T1 和 T3。一些媒体报道称，我们可能会在 之前 [研发出疫苗——甚至有一个网站](https://www.cbsnews.com/news/coronavirus-vaccine-september-oxford-university/) [追踪所有正在研发的疫苗和疗法](https://www.statnews.com/feature/coronavirus/drugs-vaccines-tracker/) 。许多人似乎认为我们所需要做的就是 [蹲一年](https://www.houstonchronicle.com/life/article/coronavirus-expert-peter-hotez-crowd-risk-15194321.php) ，之后生活就会恢复正常。
 
-Watch
+
 
 尽管我们有很好的理由希望我们能够并且将会有一种疫苗，但现实要复杂得多。在正常情况下，疫苗开发是一个复杂而脆弱的过程。即使疫情对这一过程施加压力，也不能保证我们在 12 到 18 个月内会有疫苗。不能保证我们会有疫苗。
 

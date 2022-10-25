@@ -4,7 +4,7 @@
 
 毫无疑问，在我看来，Mozilla 正在努力——非常努力地——寻找 Firefox 网络浏览器未来的各种盈利方式。我仍然很高兴该公司决定提供免费的 VPN 服务(实际上是一个 [网络代理](https://news.ycombinator.com/item?id=20928445) 而不是其他任何东西)，给你一个简单的方法“屏蔽你的 IP 地址，防止网络上的第三方追踪者，”正如 Mozilla [所说](https://blog.mozilla.org/blog/2019/09/10/firefoxs-test-pilot-program-returns-with-firefox-private-network-beta/) 。
 
-Watch
+
 
 同样值得注意的是，Mozilla VPN 的诞生(该公司的第二个产品，尽管它是第一个免费的)也复活了该公司的测试试点计划，该计划之前负责许多有用的附加软件和体验: [标签休眠](https://lifehacker.com/test-out-firefoxs-new-tab-snoozing-feature-with-its-tes-1792714295) 、 [侧视图和 Firefox 颜色](https://lifehacker.com/how-to-get-firefoxs-new-side-view-and-color-changing-fe-1826616996) 、 [注释](https://lifehacker.com/sync-your-to-do-list-across-firefox-browsers-and-androi-1827513237) 和 [锁箱](https://lifehacker.com/the-ios-lockbox-app-lets-firefox-users-pull-up-their-pa-1827494462)
 

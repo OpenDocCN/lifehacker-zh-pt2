@@ -4,7 +4,7 @@
 
 YouTube 是一个寻找音乐的好地方。既然是视频网站；然而，当你真的只是在寻找一些曲调时，音乐往往会伴随着视频，这会分散你的注意力。 [音乐模式是 Chrome 的扩展](https://chrome.google.com/webstore/detail/music-mode-for-youtube/jeieekjcmkhfffleemgbiooooockfmha?ref=producthunt) 可以帮忙。
 
-Watch
+
 
 一旦启用，扩展会将你重定向到一个页面，该页面只播放视频中的音频，而不播放伴随的视频。该页面也从原始页面中剥离出来，没有广告、视频建议或评论。本质上，它让视频看起来就像是一个音频文件开始。
 

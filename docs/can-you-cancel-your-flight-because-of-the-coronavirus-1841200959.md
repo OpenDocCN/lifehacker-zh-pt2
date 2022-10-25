@@ -4,7 +4,7 @@
 
 据当地卫生官员 称，截至周五上午，中国爆发的冠状病毒已导致至少 26 人死亡，800 人患病。目前，美国有一例确诊病例，另外 12 例正在接受病毒检测， [CBS 新闻报道](https://www.cbsnews.com/live-updates/china-coronavirus-outbreak-chinese-lock-down-cities-wuhan-bid-to-contain-virus-today-2020-01-24/) 。
 
-Watch
+
 
 为应对疫情，中国当局已限制航班和火车进出中国中部的武汉，首批受影响的少数人曾在当地市场购物或工作。在美国，五个 [机场](https://www.npr.org/sections/health-shots/2020/01/23/798919318/can-airport-screening-help-stop-the-spread-of-wuhan-coronavirus) 正在对来自武汉的乘客进行安检:旧金山国际机场、洛杉矶国际机场、约翰·肯尼迪国际机场、芝加哥奥黑尔国际机场和哈兹菲尔德-杰克逊亚特兰大国际机场。(伦敦的 [希思罗机场](https://www.theguardian.com/science/2020/jan/22/coronavirus-heathrow-to-create-separate-arrival-area) 也开辟了一个单独的到达区，对来自武汉的乘客进行安检。)
 

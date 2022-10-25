@@ -4,7 +4,7 @@
 
 谷歌旗下的家庭安全公司 Nest 更新了其 Nest Aware 服务，采用了全新的定价模式和一些新功能 T3。
 
-Watch
+
 
 新的 Nest Aware 和 Nest Aware Plus 订阅对所有用户开放，只要他们已经将他们的 Nest 帐户迁移到谷歌帐户 。然而，以前 Nest Aware 计划的任何人现在都可以继续使用这些计划，如果他们愿意的话——这可能是一种祝福，因为新的 Nest Aware 包有很大的不同。
 

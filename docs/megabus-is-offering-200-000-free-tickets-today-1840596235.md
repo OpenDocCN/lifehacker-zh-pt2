@@ -4,7 +4,7 @@
 
 如果你错过了 [Megabus 的网络星期一优惠](https://lifehacker.com/megabus-is-giving-away-200-000-free-tickets-on-cyber-mo-1840129980) ，公交公司再次 [提供一些相当便宜的票今天](https://us.megabus.com/free-seat-sale) 发售。
 
-Watch
+
 
 门票仍然是免费的，但你需要支付预订和设施费才能买到一张，这将使你的自付费用达到每张门票 4 美元，这仍然是一笔不错的费用。
 

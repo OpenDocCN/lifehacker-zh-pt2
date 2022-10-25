@@ -4,7 +4,7 @@
 
 我从来不知道为什么人们喜欢看加速视频，直到我得到一个有趣的问题。然后我试了一下，现在完全理解了；你在质量上失去的(和在花栗鼠的声音中遭受的)，你在时间上得到——甜蜜的，甜蜜的时间。
 
-Watch
+
 
 虽然加快或减慢典型的 YouTube 视频很容易，但网络上没有易于访问的速度控制的所有其他视频呢？如果你在 HTML5 播放器中观看，你可以加快或减慢视频的速度。你可能看不到这个选项，但它确实存在。并且乐于助人的 Chrome 扩展 [**视频速度控制器**](https://chrome.google.com/webstore/detail/video-speed-controller/nffaoalbilbmmfgbnbgppjihopabppdk?hl=en) 可以解锁。
 

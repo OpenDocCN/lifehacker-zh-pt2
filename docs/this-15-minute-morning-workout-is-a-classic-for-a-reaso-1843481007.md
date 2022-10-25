@@ -4,7 +4,7 @@
 
 在本月的 [健身挑战赛](https://lifehacker.com/c/lifehacker-fitness-challenge) 中，我们重温了 [科学的七分钟锻炼](https://vitals.lifehacker.com/lets-revisit-the-seven-minute-workout-1843201042) 和加拿大的古董套索 [5BX](https://lifehacker.com/this-week-we-return-to-the-fighter-pilot-workout-1843341941) 。本周，让我们把时间机器拨回到几年前的 2016 年，那时我们告诉你们关于 Darebee 的这个 15 分钟的早晨锻炼。
 
-Watch
+
 
 这是一个简单的循环锻炼，包括以下三轮:
 

@@ -4,7 +4,7 @@
 
 当你考虑锁车门的时候，大多数情况下你最关心的是防止别人偷你车里的东西——或者车本身。虽然这肯定是一个合理的担忧，但一位 Reddit 用户提出了锁门的另一个重要的原因:为了不让的孩子进来。
 
-Watch
+
 
 Reddit 用户 Monstermommy [本周发布了一个关于她四岁女儿](https://www.reddit.com/r/LifeProTips/comments/d0dcme/lpt_parents_of_young_children_always_keep_parked/) 的故事。这个孩子告诉她的祖母她要去后门廊玩。当她妈妈出去找她的时候，她不在那里，这让她妈妈担心孩子被拐走了。她在车道上跑来跑去，喊着她的女儿，最终听到了她的尖叫，但是找不到她。
 

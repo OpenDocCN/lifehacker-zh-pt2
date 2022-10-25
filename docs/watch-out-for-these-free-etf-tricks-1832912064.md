@@ -4,7 +4,7 @@
 
 对于普通投资者来说，交易所交易基金的交易成本越来越低，因为多家公司在过去几个月里推出或扩大了免费选项。以 为例，vanguard[在 8 月份为投资者提供了近 1800 种不同 ETF 的免佣金投资。查尔斯·施瓦布和富达也扩大了免佣金服务。](https://twocents.lifehacker.com/vanguard-is-expanding-commission-free-etf-options-in-au-1827359408)
 
-Watch
+
 
 虽然这些变化是散户投资者成本普遍下降的一个迹象，但也有一些事情你需要注意。
 

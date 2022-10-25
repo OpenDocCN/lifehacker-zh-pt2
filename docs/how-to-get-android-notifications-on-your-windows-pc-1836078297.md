@@ -6,7 +6,7 @@
 
 在手机和电脑之间来回切换可能会很烦人。 [一些消息应用](https://lifehacker.com/the-best-whatsapp-alternatives-1832064581) 有网络客户端，所以你不必打开你的设备来进行对话。但有一种更简单的方式来回复信息、查看通知和打开 Android 设备的屏幕，而不必将眼睛从 PC 上移开。
 
-Watch
+
 
 由于最近的更新，微软的 Your Phone 应用程序现在允许用户直接从 Windows 10 PC 上查看他们的 Android 通知和回复消息。该更新最初是为 Windows 内部人员推出的，但现在正在向所有用户推出。设置起来再简单不过了:
 

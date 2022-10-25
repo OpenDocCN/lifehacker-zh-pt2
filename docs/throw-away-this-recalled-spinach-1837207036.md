@@ -4,7 +4,7 @@
 
 如果你最近购买了袋装菠菜，它可能被沙门氏菌污染。
 
-Watch
+
 
 都乐新鲜蔬菜公司 [宣布自愿召回其婴儿菠菜](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/dole-fresh-vegetables-announces-precautionary-limited-recall-baby-spinach) ，因担心可能被沙门氏菌污染，这种菠菜以 6 盎司袋装和 10 盎司蛤壳装出售。
 

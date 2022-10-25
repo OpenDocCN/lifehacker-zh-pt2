@@ -4,7 +4,7 @@
 
 今年到目前为止，所有的焦点都在新冠肺炎，人们很容易忽略常规医疗保健。对于有子宫但对怀孕不感兴趣的人来说，这包括获得他们首选的节育方法。那些服用避孕药的人也许可以通过他们的药店或者 [送货上门服务](https://vitals.lifehacker.com/these-online-services-offer-birth-control-without-visit-1790510793) 获得补充，但是对于选择 [宫内节育器](https://lifehacker.com/why-the-iud-could-be-your-perfect-birth-control-method-1718250795) 的人来说，事情就有点复杂了。
 
-Watch
+
 
 如果你不熟悉 [宫内节育器](https://www.plannedparenthood.org/learn/birth-control/iud) ，它是一种(相对)小的 T 形装置，作为避孕的一种形式插入子宫。与阴道环不同，获得宫内节育器不是一件 DIY 的工作。由于许多 [非紧急医疗程序](https://www.facs.org/covid-19/legislative-regulatory/executive-orders) 先前在 COVID 封锁期间被搁置，一些想要获得宫内节育器(或移除或调换现有的宫内节育器)的人可能无法获得。但是现在，我们正处于这个不稳定时期，疫情仍然很糟糕，但是大多数医生的办公室又重新开放了——至少现在是这样。所以现在是时候去看你的子宫 GYN 宫内节育器了吗？我们采访了杰西卡·谢博德医生，一位在达拉斯执业的产科 GYN 医生，来寻找答案。
 

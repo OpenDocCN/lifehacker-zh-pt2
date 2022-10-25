@@ -4,7 +4,7 @@
 
 通过 One UI 2.0 更新，Android 10 终于可以在几款最新的三星智能手机上使用，但正如许多三星用户发现的那样，最新版本的 Android 在发布时不支持 One UI 的 Good Lock 定制应用。幸运的是，该应用程序最近更新了对 Android 10 和 One UI 2.0 的支持，你现在可以从 [Galaxy Store](https://galaxystore.samsung.com/detail/com.samsung.android.goodlock) 下载新版本。
 
-Watch
+
 
 如果你以前从未使用过 Good Lock，它是一款三星专属的应用程序，包含各种模块和小部件，可以让你自定义用户界面，个性化手势控制，并为你的手机添加通常无法通过谷歌 Play 商店应用程序获得的新功能。一些亮点包括:
 

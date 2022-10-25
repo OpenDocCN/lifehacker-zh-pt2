@@ -4,7 +4,7 @@
 
 用面包喂鸟和额外面包一样古老。但是，尽管鸟儿很乐意叼走你不新鲜的食物(T4 ),有很多理由说明这是个坏主意。
 
-Watch
+
 
 redditor[u/llcucf 80](https://www.reddit.com/user/llcucf80)向 r/LifeProTips 发布了一个有点令人困惑而 [最终引发争议的](https://www.reddit.com/r/LifeProTips/comments/bbbu0h/lpt_do_not_feed_ducks_bread_bread_provides_no/) 声明，关于面包如何对鸟类有害:
 

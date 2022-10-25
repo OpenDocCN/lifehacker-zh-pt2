@@ -4,7 +4,7 @@
 
 这显然是“公路旅行的夏天”，因为这是我们唯一的旅行选择。对很多人来说，这意味着开车去某个地方(可能很远)，从 Airbnb、VRBO 或另一个家庭共享应用租一套房子或公寓 。理想情况下，你会和你的 [【隔离舱】](https://lifehacker.com/how-to-quaran-team-more-safely-1843584879) 中的人一起旅行，但是考虑到我们已经有多长时间没有见面了(而且疫情肯定还没有结束)，不顾一切去集体度假会很有诱惑力。我们已经 [已经](https://twocents.lifehacker.com/the-best-insurance-for-your-summer-road-trip-1844398400) 过去了 [过去了](https://lifehacker.com/dont-trust-your-hotels-covid-19-cleaning-policy-1844247370) 方法 [使](https://lifehacker.com/how-two-major-airlines-are-actually-handling-social-dis-1844233813) 任何 [COVID-era 旅行更安全](https://lifehacker.com/tag/travel) 但是让我们来谈谈与一群人合租度假公寓的另一个问题:停车。
 
-Watch
+
 
 ### 注意停车
 

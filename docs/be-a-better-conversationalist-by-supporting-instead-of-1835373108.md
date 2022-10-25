@@ -4,7 +4,7 @@
 
 上一次一个朋友告诉你他们有多忙，你回答说“Omg，一样”了吗？如果你这样做了，你可能就是一位社会学家所说的“ [”会话自恋者](https://www.amazon.com/Pursuit-Attention-Power-Everyday-Life/dp/0195135490/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/be-a-better-conversationalist-by-supporting-instead-of-1835373108&asc_source=&tag=kinjalifehackerlink-20) ，”这可能会破坏你的人际关系。
 
-Watch
+
 
 人类经常通过自己的经历来同情他人。今天早上堵车了？让我告诉你几个月前我经历的大规模交通堵塞吧！当我们这样做时，我们通常是善意的——我们试图表明我们理解对方的感受。但是正如作家 Celeste Headlee 发现的那样，我们经常不知道对方的感受，并且我们无意中用自己的情绪掩盖了他们的情绪。
 

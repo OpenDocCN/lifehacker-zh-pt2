@@ -4,7 +4,7 @@
 
 如果你在家陪着你的孩子，亚马逊会提供一些免费的儿童节目，让他们更容易有事可做。
 
-Watch
+
 
 这些电影和电视节目传统上需要亚马逊 Prime 帐户才能访问，但现在可以通过在线家庭友好门户 免费获得 [，无需登录。](https://www.amazon.com/gp/video/storefront/ref=atv_hm_hom_1_c_ZWyNDQ_fMHI51_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/these-kids-shows-are-free-to-stream-on-amazon-right-now-1842458931&asc_source=&contentId=freeforall&merchId=freeforall&tag=kinjalifehackerlink-20)
 

@@ -4,7 +4,7 @@
 
 五月，消费者金融保护局 [提出了讨债人](https://lifehacker.com/why-debt-collectors-may-soon-be-able-to-text-you-1834611554) 的新规则。《公平收债法》自 1977 年制定以来一直没有更新，此次更新将限制收债人每周给你打电话的频率，并为逐项列出的账单提供更大的清晰度。但它也允许讨债人给你发短信和电子邮件。
 
-Watch
+
 
 在七个消费者权益组织 [提交信函](https://www.consumerfinancemonitor.com/wp-content/uploads/sites/14/2019/07/7_10_19_Ex_Parte_Memo_NCLC_Letter_to_Director_Kraninger_re_debt_collection_NPRM.pdf) 请求延长之后，CFPB 延长了其公开意见征询期。因此，如果你还没有告诉 CFPB，你不希望收债人滑入你的 DMs，你有更多的时间。新的截止日期是 2019 年 9 月 18 日。
 

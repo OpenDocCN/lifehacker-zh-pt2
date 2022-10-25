@@ -4,7 +4,7 @@
 
 如果你有一个小孩，你可能有某种食物战在你家肆虐。他们不想在一个地方坐太久去吃饭，他们不想吃那个，或者他们不想吃 T2 的任何东西。
 
-Watch
+
 
 [Reddit 用户 u/jlfern 想出了一个办法](https://www.reddit.com/r/Parenting/comments/bczekj/today_i_taught_my_4yr_old_daughter_how_to_flip_a/) 让他们四岁的女儿吃饭:教她抛硬币。
 

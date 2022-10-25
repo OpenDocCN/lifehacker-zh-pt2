@@ -4,7 +4,7 @@
 
 有一种华丽的 Android 壁纸正在流传，你应该*绝对不要*把它设置为你手机的背景。是的，看起来很棒，但它也可以在安装时软砖你的手机——特别是如果你在 Pixel 或三星设备上运行 Android 10。原因如下。
 
-Watch
+
 
 摄影师 Gaurav Agrawal 在蒙大拿州冰川国家公园拍摄了上面这张圣玛丽湖的照片，这是一张手机壁纸的主要主题。Agrawal 告诉 [9to5Google](https://9to5google.com/2020/06/10/android-phone-wallpaper-soft-brick-bug-video/) 他从 Adobe Lightroom 以 ProPhoto RGB 格式导出了文件。
 

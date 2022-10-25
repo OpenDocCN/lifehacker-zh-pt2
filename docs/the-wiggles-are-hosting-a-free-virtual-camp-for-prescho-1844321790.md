@@ -4,7 +4,7 @@
 
 现在仍然是虚拟夏令营的季节，最新宣布的免费夏令营是一个许多小孩都想参加的夏令营:Wiggles 的虚拟夏令营。
 
-Watch
+
 
 “营地”将由艾玛·威格(Emma Wiggle)和费瑟剑上尉(与 [Rascal + Friends](https://www.facebook.com/RascalAndFriends) 合作)主持，它将以艺术、手工艺、唱歌、跳舞等为特色。
 

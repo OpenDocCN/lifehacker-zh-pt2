@@ -4,7 +4,7 @@
 
 五种爱情语言的概念对你来说可能并不陌生。这个想法是，我们都以不同的方式给予和接受爱——这些不同的方式可以分为五个不同的类别。当我们通过语言表达爱意，而对方却以不同的方式接受爱意时，我们会被绊倒，失去联系，尤其是和一个浪漫的伴侣。你认为给他们送礼会让他们感到温暖和模糊，同时，他们会说，“*如果她真的爱我，她会为我多花点时间*
 
-Watch
+
 
 尽管识别和学习你和你的伴侣的爱的语言是一个好主意，露西的名单中的布里特·考吉尔写道 了解你孩子的爱的语言也非常有帮助。以下是她对加里·查普曼的书 [*的评价:儿童的五种爱的语言*](https://www.amazon.com/Love-Languages-Children-Secret-Effectively/dp/0802412858/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/connect-with-your-kids-by-speaking-their-love-language-1842091485&asc_source=&tag=kinjalifehackerlink-20) *:*
 

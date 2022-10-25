@@ -4,7 +4,7 @@
 
 如果你有一段时间没有去看你的初级保健医生(或者，嗯， [曾经](https://vitals.lifehacker.com/do-you-really-need-a-primary-care-doctor-1830182981) )，帮自己一个忙，安装美国医疗保健研究和质量机构的 [ePSS 应用](https://epss.ahrq.gov/PDA/index.jsp) 。
 
-Watch
+
 
 输入一些关于你自己的基本信息，该应用程序将向你显示 [USPSTF](https://www.uspreventiveservicestaskforce.org/) 为你的年龄、性别、吸烟状况和生殖状况(是否怀孕，以及是否有性生活)的人推荐哪些咨询、预防和筛查服务。点击每一个列表，你可以看到为什么这项测试或服务被推荐，它的好处和风险是什么。
 

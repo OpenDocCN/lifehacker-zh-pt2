@@ -4,7 +4,7 @@
 
 现在还有人用 Windows 7 吗？绝对的。如果他们在来年的 1 月 14 日 之后还坚持使用 [，他们将不得不向微软支付费用以继续获得安全更新。大多数*人*不会(也不能)这样做，因为微软的付费安全更新](https://support.microsoft.com/en-us/help/4467761/windows-what-happens-when-windows-7-support-ends) [只面向企业](https://www.microsoft.com/microsoft-365/partners/news/article/announcing-paid-windows-7-extended-security-updates) ，但是一个聪明的小黑客允许普通人免费利用这项服务。
 
-Watch
+
 
 我没有 Windows 7，所以我不能亲自测试，但这是黑客通常的工作方式。你要先给你的 Windows 7 系统安装三个必备更新:[kb 4490628](https://www.catalog.update.microsoft.com/Search.aspx?q=KB4490628)[kb 4474419](https://www.catalog.update.microsoft.com/Search.aspx?q=KB4474419)和 [KB4523206](https://www.catalog.update.microsoft.com/Search.aspx?q=KB4523206) 。根据需要重新启动系统。
 

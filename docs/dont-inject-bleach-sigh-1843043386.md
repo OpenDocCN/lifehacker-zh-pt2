@@ -4,7 +4,7 @@
 
 总统刚才是不是告诉人们给自己注射漂白剂？不是*确切的说是*。但他确实大声惊叹——而且是在镜头前！—关于它是否可行。通过这样做，他给我们上了很好的一课，告诉我们为什么不能凭直觉从实验室研究中推断。
 
-Watch
+
 
 这一惨败发生在昨晚的新闻发布会上( [文字稿此处](https://www.whitehouse.gov/briefings-statements/remarks-president-trump-vice-president-pence-members-coronavirus-task-force-press-briefing-31/) )，一名政府官员比尔·布莱恩(Bill Bryan)在实验室中展示了一些关于温度、湿度、紫外线、漂白剂和外用酒精杀灭冠状病毒功效的发现。布莱恩有着的军事和后勤背景，目前 [领导着](https://www.dhs.gov/science-and-technology/william-n-bryan) 国土安全部的科技司。
 

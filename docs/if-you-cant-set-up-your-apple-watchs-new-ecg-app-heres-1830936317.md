@@ -4,7 +4,7 @@
 
 虽然这不是我今年早些时候买 Apple Watch Series 4 的唯一原因，但苹果在 9 月份的大型活动中展示的心电图功能无疑是智能手表最独特的功能之一。我怀疑我的心脏有什么问题，苹果的实现仍然 [不如你在医院](https://vitals.lifehacker.com/what-to-know-about-the-ecg-feature-in-the-new-apple-wat-1829064723) 得到的心电图好——当然——但在你的手腕上看到你的心脏的电活动很有趣。
 
-Watch
+
 
 随着昨日 [watchOS 5.1.2](https://www.apple.com/newsroom/2018/12/ecg-app-and-irregular-heart-rhythm-notification-available-today-on-apple-watch/) 的发布，期待已久的 [心电图功能](https://support.apple.com/hu-hu/HT208955) 终于准备好公开消费了。你所要做的就是将你的 Apple Watch 连接到它的充电线上，在你的 iOS 设备上打开 Watch 应用程序，点击“通用”选项，点击软件更新，然后让我们开始吧。一旦更新安装完毕，你会在智能手表的 [网格视图](https://support.apple.com/guide/watch/organize-apps-apd99e3c6a68/watchos) 上看到一个全新的心电图读数图标。点击它，系统会提示您设置新的心电图功能。
 

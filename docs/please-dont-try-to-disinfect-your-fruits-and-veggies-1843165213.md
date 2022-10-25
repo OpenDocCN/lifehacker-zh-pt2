@@ -4,7 +4,7 @@
 
 来自疾病控制中心的一些令人不安的消息:与去年同期相比，2020 年第一季度 打给毒物控制中心 [的电话明显增加。](https://www.cdc.gov/mmwr/volumes/69/wr/mm6916e1.htm?s_cid=mm6916e1_w&mod=article_inline#suggestedcitation)
 
-Watch
+
 
 根据国家中毒数据系统(NPDS)的数据，关于接触清洁剂的电话增加了 20.4%，关于接触消毒剂的电话增加了 16.4%。
 

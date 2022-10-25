@@ -4,7 +4,7 @@
 
 我不喜欢烈性酒，但我会为热葡萄酒破例。事实上，如果你试图在佛罗里达 90 度的天气里——在 12 月里——制作热葡萄酒来制造季节性的欢乐。——教会了我什么，那就是我会为热葡萄酒做很多例外。
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Make Mulled Wine in Your Instant Pot](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/let-the-instant-pot-make-your-thanksgiving-easier-1830163877)</aside>
 

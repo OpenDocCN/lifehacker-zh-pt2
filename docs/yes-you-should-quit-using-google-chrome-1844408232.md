@@ -4,7 +4,7 @@
 
 是时候 [停止使用 Chrome](https://www.wsj.com/articles/quit-chrome-safari-and-edge-are-just-better-browsers-for-you-and-your-computer-11594558801) 了吗？我们当然已经准备好放弃占用资源的浏览器，特别是考虑到最近有消息称，微软对 Chrome 占用内存问题的有望修复已经被谷歌自己挫败。
 
-Watch
+
 
 其他浏览器在速度、性能、隐私和/或安全性方面早就盖过了 Chrome，如果你不需要，就没有必要坚持使用如此臃肿和缓慢的东西——你也没有必要，因为已经有了更好的 Chrome 版本、，但它、不是由谷歌开发的。
 

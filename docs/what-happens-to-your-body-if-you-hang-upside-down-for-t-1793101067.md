@@ -4,7 +4,7 @@
 
 如果你想知道倒挂太久是否会致命，答案是肯定的。如果你不及时直立起来，你的身体会发生什么。
 
-Watch
+
 
 在这段来自 [SciShow YouTube 频道](https://www.youtube.com/channel/UCZYTClx2T1of7BRZ86-8fow) 的视频中，奥利维亚·戈登解释了颠倒人体的科学，以及什么会出错:
 

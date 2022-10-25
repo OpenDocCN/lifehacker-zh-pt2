@@ -4,7 +4,7 @@
 
 有没有因为压力太大，以至于做一个最小的决定都感觉筋疲力尽？在这种情况下，一想到 [做出重大决定](https://lifehacker.com/what-is-decision-fatigue-and-how-does-it-affect-you-1842851099) 就会让你觉得僵在原地，根本无法行动。
 
-Watch
+
 
 如果正在进行的冠状病毒紧急事件让你对你的钱有这种感觉，有一种新工具可能会帮助你铺平道路。
 

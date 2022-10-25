@@ -4,7 +4,7 @@
 
 如果你收到一大笔遗产，你会怎么做？如果你想在财务上谨慎一点，答案是什么也不做，至少一年内不做，T2。
 
-Watch
+
 
 正如苏珊·b·加兰在《纽约时报》 的 [中解释的那样，许多人通过挥霍短期快乐和未能为税收负担做好计划，比他们预期的更快地花费他们的遗产。Garland 引用了 Susan Bradley 的话，她是突如其来的钱研究所的创始人，她建议在花掉你的遗产之前等待一年:](https://www.nytimes.com/2019/09/20/business/inheritance-financial-planning.html)
 

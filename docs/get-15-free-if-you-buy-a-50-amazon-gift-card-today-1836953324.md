@@ -6,7 +6,7 @@
 
 虽然拿着成堆的礼品卡到处走显然没有意义，但我喜欢去的商店会定期举办促销活动，如果你买一张贺卡，就可以得到额外的东西。这才是值得的。就像今天，亚马逊 [向](https://www.amazon.com/b/ref=gc_10p50_vc_hi_nov?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/get-15-free-if-you-buy-a-50-amazon-gift-card-today-1836953324&asc_source=&ie=UTF8&imprToken=j2yjfVUanmJ6G9odTB0cFQ&linkCode=w61&node=11158618011&slotNum=2&tag=kinjalifehackerlink-20) 顾客提供 15 美元，如果他们购买 50 美元的礼品卡，前提是你是礼品卡的新顾客。
 
-Watch
+
 
 促销活动要求你 [购买一张价值 50 美元的数字亚马逊礼品卡](https://www.amazon.com/gp/product/B004LLIKVU/ref=as_li_qf_asin_il_tl?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/get-15-free-if-you-buy-a-50-amazon-gift-card-today-1836953324&asc_source=&creative=9325&creativeASIN=B004LLIKVU&ie=UTF8&linkCode=as2&linkId=6b5a88c0a462ea9a13e8c78c90fd3d31&tag=kinjalifehackerlink-20) 。当你这样做时，在结帐时输入促销代码 19GIFTCARD，你将在几天内获得 15 美元的促销点数(确保你在完成购买前得到确认)。
 

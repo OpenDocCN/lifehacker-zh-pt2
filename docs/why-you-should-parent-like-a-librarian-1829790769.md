@@ -4,7 +4,7 @@
 
 作为父母，我们被告知我们是孩子的第一任老师。这是真的，但对我来说，这唤起了一个想法，我们必须站在他们的肩膀上，用一支红笔告诉他们到底该学什么，怎么学。为了更好地支持他们天生的好奇心，把自己想象成一名图书管理员会有所帮助。
 
-Watch
+
 
 在一篇博客文章 中，作者奥斯丁·克莱恩深入研究了已故的非学校教育运动的先驱约翰霍·尔特的作品，他认为如果我们成年人希望我们的孩子走得更远，我们就应该尽量不碍事。Kleon 从霍尔特于 1967 年首次出版的经典著作 [*儿童如何学习*](https://www.amazon.com/Children-Learn-anniversary-Merloyd-Lawrence/dp/0738220086/ref=dp_ob_title_bk?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/why-you-should-parent-like-a-librarian-1829790769&asc_source=&tag=kinjalifehackerlink-20)*中重点强调了这段话。*
 

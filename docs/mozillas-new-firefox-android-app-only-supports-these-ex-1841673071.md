@@ -4,7 +4,7 @@
 
 Mozilla 即将从谷歌 Play 商店移除其新的 Firefox Android 浏览器的夜间测试版，只留下 [Firefox Preview](https://lifehacker.com/everything-you-need-to-know-about-firefox-preview-on-an-1835950429) 供用户试用。现在从夜间版本切换到这个浏览器是值得的，或者第一次瞥一眼，但有一个小问题:目前只支持一个扩展，你的许多最爱可能不会跳转到这个新版本的 Firefox。
 
-Watch
+
 
 根据 Mozilla 最近发布的消息，在 Mozilla 的“ [推荐扩展](https://support.mozilla.org/en-US/kb/recommended-extensions-program) ”计划中，只有 97 个扩展将在新版 Firefox for Android 最终发布稳定版本时得到支持。现在，你在 Firefox 预览版中只能看到一个: [uBlock origin](https://lifehacker.com/how-to-make-ublock-origin-even-better-at-ad-blocking-in-1839964889) 。Mozilla 也没有承诺未来会将推荐包中没有的扩展添加回 Firefox mobile，尽管该公司表示愿意尝试。
 

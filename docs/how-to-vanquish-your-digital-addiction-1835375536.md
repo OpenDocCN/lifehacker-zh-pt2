@@ -4,7 +4,7 @@
 
 [模拟周](https://lifehacker.com/c/analog-week) 对我来说是一个陌生的概念。作为 Lifehacker 的高级技术编辑，我每天大部分时间都粘在屏幕上。我很想把我所有的小玩意都扔进抽屉，锁起来一个星期，但这对我的工作来说不切实际。我也不知道怎么去任何地方(因为没有地图应用程序带路，我很难辨别方向)。
 
-Watch
+
 
 开始你自己的模拟一周(或一生)的最简单的方法是突然戒掉你的设备，但这很难做到。在这一点上你不会听到我的任何异议。虽然主要的设备制造商开始变得明智起来，并为你提供一点帮助([Android](https://lifehacker.com/the-best-new-features-in-android-q-1834620582)/[iPhone](https://lifehacker.com/apples-screen-time-report-is-not-accurate-for-tracking-1829368950))，但你可以尝试一些其他的技术来分散你对设备的注意力。
 

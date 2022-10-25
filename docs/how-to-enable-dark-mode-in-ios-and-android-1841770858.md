@@ -4,7 +4,7 @@
 
 我们在 Lifehacker 上谈论了很多关于黑暗模式的话题——根据每当一个新的应用程序或服务引入一种黑色背景的新方式时我们得到的反应，很明显许多 Lifehacker 读者更喜欢昏暗的设备而不是明亮的设备。
 
-Watch
+
 
 虽然我们已经讨论了如何在特定的应用程序 中启用黑暗模式 [，甚至](https://lifehacker.com/how-to-turn-on-whatsapps-new-dark-mode-1841157512) [如何在你的电脑或智能手机上强制黑暗模式](https://lifehacker.com/force-android-10s-dark-mode-on-individual-apps-with-dar-1841577354) ，但我今天意识到，我们还没有为在 iOS 和 Android 上启用一般的、系统范围的黑暗模式的基本行为提供明确的说明。
 

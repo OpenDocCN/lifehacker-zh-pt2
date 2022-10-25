@@ -4,7 +4,7 @@
 
 几年前当我第 20 次破解我的 iPhone 5 屏幕时，我从 iFixit [订购了一个修复包，并自己修复了](https://www.popularmechanics.com/technology/gadgets/how-to/a11348/i-fixed-my-broken-iphone-screen-and-you-should-too-17250663/) 。更换显示屏出人意料地容易，而且自己动手比请苹果或其他人来做要便宜得多。如此简单，我开始为我的朋友们做这件事，如果他们从易贝购买 10 美元的替代显示器。
 
-Watch
+
 
 然后，在 iPhone 6 上，苹果开始使用涉及胶水的显示屏(这意味着修理它们需要吹风机并去除胶水)，在三部手机坏掉后，我换了一部三星设备，不知何故，我一次都没有坏掉。
 

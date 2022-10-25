@@ -4,7 +4,7 @@
 
 Reddit 用户 MrNumber28 [问](https://old.reddit.com/r/personalfinance/comments/bznn9z/is_it_wrong_to_apply_for_other_jobs_to_see_what/) “有时候我想知道在另一家公司工作会不会得到更多报酬。我对自己的工作很满意，但显然我更希望得到更多的报酬。我不应该货比三家，看看还能买到什么，这有错吗/有什么理由吗？”
 
-Watch
+
 
 这是一个会让你成为第二个的困境——猜测你从第一天开始所做的每一个职业选择。你应该对你所拥有的心怀感激，对你所得到的工作充满信心吗？或者你应该一直寻找更好的东西？
 

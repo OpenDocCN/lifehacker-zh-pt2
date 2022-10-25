@@ -4,7 +4,7 @@
 
 当你在爱人的手机上发现了不该有的东西，会发生什么？如果这与你有关呢？在本周 Lifehacker 的技术支持专栏 [**Tech 911**](https://lifehacker.com/c/tech-911) 中，我们正在解决“为什么它会在你的手机上”这个神秘案件。
 
-Watch
+
 
 事不宜迟，Lifehacker 的读者 Sarah 写道:
 

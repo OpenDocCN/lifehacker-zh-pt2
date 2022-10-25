@@ -4,7 +4,7 @@
 
 随着 iOS 13 的 [发布，几乎所有的苹果设备都预装了 Siri，这使得苹果的人工智能助手比以前更加无处不在。虽然 Siri 是一个有用的工具，大多数用户都能找到它的用处——尤其是与 Shortcuts 应用结合使用——但 Siri 老手和新手都可以通过使用定制的 Siri 快捷方式从他们的 iOS 设备中获得更多。](https://www.lifehacker.com.au/2019/09/find-out-if-your-iphone-or-ipad-can-download-ios-13/) 
 
-Watch
+
 
 然而，与其煞费苦心地创建自己的快捷方式，我们建议导入预先定制的快捷方式——比如这个由开发人员马修·卡西尼利创建的超过 150 个快捷方式 的 [大集合。Cassinelli 的收藏包括帮助创建复杂的日常事务的快捷方式；让您在众多应用程序中听写、书写和轻松编辑文本；自动化重要任务；设置健康提醒；针对媒体或游戏优化您的设备，并且更重要的是，整个列表的广度令人印象深刻。](https://www.matthewcassinelli.com/ios-13-siri-shortcuts-library/)
 

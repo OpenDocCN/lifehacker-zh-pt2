@@ -4,7 +4,7 @@
 
 欢迎来到 t 何接我城。有红雀队，有密苏里民主党，有沿河的半个麦当劳标志。那可是把所有大城市的记者都甩了的小老 [风隙](http://www.vulture.com/2018/07/sharp-objects-wind-gap-missouri-location.html) 。本来 [现在](https://www.stltoday.com/news/local/metro/latest-loop-trolley-opening-guesstimate-it-could-be-a-couple/article_bb26b910-778d-5db3-9d83-7db2674d0398.html) 应该有手推车了。本周，Hack Your City 想知道圣路易斯有哪些好的、秘密的、可以被黑客攻击的东西。
 
-Watch
+
 
 每周一的[*Hack Your City*](https://lifehacker.com/c/hack-your-city)*，我们向读者征集你对一个城市的最佳建议:驾驶技巧、餐馆推荐、要做的事情，以及其他给游客和当地人的建议。然后在周四，我们会展示最好的评论。我们正在美国和全球范围内努力工作。*
 

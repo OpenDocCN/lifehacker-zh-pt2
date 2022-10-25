@@ -4,7 +4,7 @@
 
 你离家很远。一百英里前，你经过了最后一个熟悉的坎伯兰农场。你去哪里买一杯可靠的咖啡？
 
-Watch
+
 
 [GasBuddy](https://www.gasbuddy.com) ，一款寻找便宜气和好加油站的 app，已经收集了超过 200 万条加油站评论，并确定 [为各州评分最高的加油站咖啡](https://www.gasbuddy.com/NewsRoom/PressRelease/836) 。冒着进一步分裂这个分裂国家的风险，我们在下面展示了加斯巴迪的地图。
 

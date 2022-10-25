@@ -4,7 +4,7 @@
 
 作为一个通常默认使用 [手动跟踪费用](https://twocents.lifehacker.com/track-your-spending-using-a-pen-and-paper-1835310590) 的人，我这个月挑战自己，决定最好的应用程序来帮助跟踪费用。有很多选择，但是我把每天的预算、Wally、EveryDollar 和 Dollarbird 放在我的日常开支中。
 
-Watch
+
 
 这个实验让我对使用费用跟踪来争论我的预算有了新的认识，它也让我的朋友们对我对财务的奉献有了新的认识，因为每次我们出去，我都会站在角落里，在我忘记之前把我所有的费用放进所有四个应用程序。
 

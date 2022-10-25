@@ -4,7 +4,7 @@
 
 微软掉了一个全新的开源 Windows 10 PowerToy，它和另外两个 一样好玩有用。这个新增的“PowerRename”为您提供了一个在文件资源管理器中批量重命名文件的简单方法。它免费、简单，值得花 10 秒钟安装到您的系统上。
 
-Watch
+
 
 首先，点击微软 PowerToys 的 [GitHub](https://github.com/microsoft/PowerToys) ，下载最新发布的。一旦你安装了它，所有三个 PowerToys——fancy zones、PowerRename 和快捷键指南——都应该默认启用，但你可以通过右键单击任务栏中的小图标并选择“设置”来检查这一点
 

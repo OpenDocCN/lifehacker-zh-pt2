@@ -6,7 +6,7 @@
 
 iOS 13 发布日快乐！既然 [更新已经上线](https://lifehacker.com/what-time-will-ios-13-and-ipados-13-launch-on-thursday-1838183688) ，就不要急着点击进入 iOS 大更新。在开始安装之前，你可以做一些事情——真的，值得一年至少做一次的事情，iOS 更新时间是做这些事情的完美提醒。
 
-Watch
+
 
 我什么意思？
 

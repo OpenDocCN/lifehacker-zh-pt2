@@ -4,7 +4,7 @@
 
 [恶周](https://lifehacker.com/c/evil-week) 正在收尾，但这并不意味着你的恶行需要告一段落。套用特雷西·乔丹的话，你可以像过邪恶周一样过好每一周。
 
-Watch
+
 
 这可能意味着继续 [欺骗你的孩子](https://offspring.lifehacker.com/what-lies-have-you-told-your-kids-out-of-convenience-1829902088#_ga=2.133110734.1994079707.1540488657-594046802.1524762060)[在更多的游戏中作弊](https://lifehacker.com/how-to-cheat-in-your-favorite-games-1829939723#_ga=2.94237789.1994079707.1540488657-594046802.1524762060)[沉迷于撒旦圣经](https://lifehacker.com/surprisingly-good-life-lessons-from-the-satanic-bible-1829876106#_ga=2.94237789.1994079707.1540488657-594046802.1524762060) 或 [洗更多的钱](https://twocents.lifehacker.com/how-does-money-laundering-work-1829760343#_ga=2.94237789.1994079707.1540488657-594046802.1524762060) 。
 

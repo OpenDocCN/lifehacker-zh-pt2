@@ -4,7 +4,7 @@
 
 此时在 [冠状病毒【疫情】](https://lifehacker.com/tag/coronavirus) 中，我们的生活已经几乎完全转移到了网上——而 [约会也不例外](https://lifehacker.com/dating-apps-are-for-scheduling-dates-people-1824294863) 。如果你正在积极地约会(或者至少在这次爆发之前)，你可能习惯于投入大量的时间和精力去会见一个潜在的浪漫或性伴侣。而不能因为一时见不到人，就一定要停止约会。
 
-Watch
+
 
 现在，像 Tinder 、Grindr、Hinge 和 Bumble 这样的约会网站和应用程序已经变得如此普遍——甚至是一些人认识人的首选方式——这个过程的一部分仍然保持不变。我们比以往有更多的时间来更新我们的个人资料，并相应地向左或向右滑动。但是和一个人匹配之后会怎么样呢？好吧，那就是当你启动 Zoom、FaceTime 或 Skype，和那个人进行虚拟的第一次约会。
 

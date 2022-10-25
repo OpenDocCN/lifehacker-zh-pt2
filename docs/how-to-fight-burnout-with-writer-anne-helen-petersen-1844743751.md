@@ -4,7 +4,7 @@
 
 很有可能你(和你周围的几乎所有人)现在正遭受某种程度的倦怠。在工作、各种债务、疫情、金融危机和我们未来的不确定性之间，你很难停下来喘口气。幸运的是，本周我们采访了记者兼作家安妮·海伦·彼得森，看看我们能为此做些什么。
 
-Watch
+
 
 收听安妮的建议，了解如何识别自己精疲力竭的迹象，并学习我们 T2 个人和社会需要采取的步骤，以便 T4 有望让我们走上更好的轨道。安妮最新的书， [*甚至不会:千禧一代如何成为倦怠一代*](https://www.amazon.com/Cant-Even-Millennials-Burnout-Generation/dp/0358315077?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-fight-burnout-with-writer-anne-helen-petersen-1844743751&asc_source=&tag=kinjalifehackerlink-20) *，*9 月出版。
 

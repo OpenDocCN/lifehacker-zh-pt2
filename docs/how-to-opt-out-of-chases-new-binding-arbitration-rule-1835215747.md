@@ -4,7 +4,7 @@
 
 大通已经开始为其信用卡用户推出一项新的有约束力的仲裁规则，快公司的凯尔·格思里·韦斯曼第一个 [上周](https://www.fastcompany.com/90357331/chase-adds-forced-arbitration-clause-to-slate-credit-cards) 报道。
 
-Watch
+
 
 这一改变通过电子邮件发给了至少一些使用 Chase Slate 和 Chase Sapphire Reserve 信用卡的客户(包括我)，内容如下:
 

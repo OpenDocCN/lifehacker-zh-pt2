@@ -4,7 +4,7 @@
 
 2017 年的[&就业法案](https://twocents.lifehacker.com/the-basics-of-the-gop-tax-plan-explained-1821583174) 改变了税法的许多事情，包括一些人应该从他们的工资中扣缴多少。Lifehacker 给了几个 [警告](https://twocents.lifehacker.com/update-your-tax-withholdings-now-1828249361) 到 [在 2018 年](https://twocents.lifehacker.com/how-to-update-your-w-4-now-that-the-tax-cuts-are-taking-1823622341)调整你的预扣税，以免你在这个纳税季受到少扣罚款的打击，但如果你没有，就没什么理由担心了:美国国税局 [上周](https://www.irs.gov/newsroom/irs-waives-penalty-for-many-whose-tax-withholding-and-estimated-tax-payments-fell-short-in-2018) 宣布在某些情况下免除罚款。
 
-Watch
+
 
 去年，该机构建议纳税人更新他们的扣缴，以确保他们符合新税法。但现在，美国国税局表示，由于新法律造成的任何混乱，它“通常会免除任何通过联邦所得税预扣、季度估计纳税额或两者结合的方式，在一年内支付至少 85%总纳税义务的纳税人的罚款”。通常标准是百分之九十。
 

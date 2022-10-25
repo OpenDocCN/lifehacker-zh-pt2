@@ -4,7 +4,7 @@
 
 如果说任天堂 Switch 有什么不好的地方，那就是电池。对，对，你可以在路上玩*塞尔达*。但如果你只能这样做两个小时，这真的是卖点吗？这还不包括从纽约到纽黑文的火车费用！如果你面临一次更长的旅行，或者更糟糕的是，去机场，你可以忘记相信这个东西会持续整个旅程。
 
-Watch
+
 
 任天堂官方声称，最初型号的电池寿命可以持续 2.5 到 6.5 小时。但是任何经常玩游戏的人都可以告诉你，现实是令人沮丧地接近 2.5 小时的标记 。尽管马里奥 [之家去年发布了一款充满活力的型号](https://kotaku.com/nintendo-releasing-new-switch-model-with-a-better-batte-1836444569)——据称电池寿命为 9 小时——但许多游戏玩家仍然选择了低充电原版，这在很大程度上要归功于 [一个 300 美元的套装](https://kotaku.com/buyer-beware-nintendos-black-friday-switch-bundle-is-t-1840069721) ，其中包括一个 [【卓越】*马里奥赛车 8 豪华版*](https://kotaku.com/mario-kart-8-deluxe-the-kotaku-review-1794746789) 的下载代码。事实上，根据[*The Verge*](https://www.theverge.com/2019/12/4/20995584/nintendo-switch-best-sales-week-black-friday)统计，仅在黑色星期五一周，就有超过 80 万人抢购了该套餐。(对于这些消费者来说:你可能会选择的唯一道路是彩虹路。)
 

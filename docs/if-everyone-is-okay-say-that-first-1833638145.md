@@ -4,7 +4,7 @@
 
 如果你曾经接到过这样的电话，开头是“某某人(你爱的人)出事了”，然后是一个曲折的故事，最后以“但他们没事”结束，你就会知道以好消息开头的重要性。
 
-Watch
+
 
 [Reddit 用户 u/lukeholigan 建议](https://www.reddit.com/r/LifeProTips/comments/b6d337/lpt_if_you_have_to_call_another_person_to_tell/) 如果你知道一切正常，那是开始对话的最佳地点:
 

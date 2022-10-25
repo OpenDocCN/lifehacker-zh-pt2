@@ -4,7 +4,7 @@
 
 脸书的 iOS 应用终于获得了官方的黑暗模式。就像脸书其他应用中的黑暗模式——[Messenger](https://lifehacker.com/how-to-enable-facebook-messengers-secret-dark-mode-on-a-1833014003)、 [Instagram](https://lifehacker.com/how-to-enable-dark-mode-on-instagram-1838869676) 和[Whatsapp](https://lifehacker.com/how-to-turn-on-whatsapps-new-dark-mode-1841157512)——开启黑暗模式会将 iOS 应用默认的白蓝界面换成黑灰主题。这看起来很棒，应该会让那些还没有发誓放弃有问题的社交网络的人感到高兴。
 
-Watch
+
 
 尽管脸书还没有正式宣布黑暗模式的存在，但*已经*证实新的黑暗模式正在推出，所以你们中的一些人可能不知道你们现在就可以进入它。以下是如何在你的 iPhone 或 iPad 上打开脸书的黑暗模式:
 

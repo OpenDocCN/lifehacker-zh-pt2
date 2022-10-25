@@ -4,7 +4,7 @@
 
 虽然去 [很容易，但只要呆在](https://lifehacker.com/what-would-make-you-actually-go-to-the-movies-1821605002) 里，穿着睡衣坐在沙发上打开你最喜欢的流媒体服务，实际上*去看电影*看起来就像是一件大事。那，还有 [票价失控](https://lifehacker.com/heres-what-would-make-going-to-the-movies-worth-the-mon-1821647467) 的事实。(相关:T11】RIP movie pass。 )
 
-Watch
+
 
 所以，如果你要克服穿上户外裤和离开家的麻烦，你最好充分利用你的经历，从在剧院里挑一个好座位开始。但是具体在哪里呢？根据大多数剧院的设置方式，它将位于后面三分之二的位置，在这一排的中间。
 

@@ -4,7 +4,7 @@
 
 旅行时，便携式手机电池充电器不止一次地救了我的命。从过度使用我的 iPhone 拍摄度假照片到依靠谷歌地图在没有辅助端口的情况下开车带我去哪里，如果我外出时没有能够给我的手机充电至少一次的电源插头，低电量警告有时会引发严重的焦虑。但我也养成了一个习惯，在家里的抽屉里放一个充满电的电池，你也应该这样做。美国现在发生了很多事情。现在是夏天，气温升高，空调增多，能源供应跟不上需求时，装配工会限制用电。我们也进入了破纪录的飓风季节 的第三天；我可能不需要告诉你暴风雨会切断你家的电力供应。考虑到正在进行的全国范围内对警察暴行的抗议以及许多其他更常见的原因(从倒下的树枝到过于热心的承包商)，电力可能会以某种方式中断，即使你不外出，也有足够多的理由随时准备好充电器。
 
-Watch
+
 
 充电器有各种尺寸和容量，从可以给你的智能手机充电一两次的 [微型圆筒](https://www.amazon.com/Luxtude-myColors-Portable-Lipstick-External/dp/B0797RJR25/ref=sr_1_1_sspa?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/keep-a-fully-charged-phone-power-bank-at-home-1843909062&asc_source=&tag=kinjalifehackerlink-20) 到可以充电八次或更多次的 [重型砖块](https://www.amazon.com/Portable-Charger-Anker-PowerCore-20100mAh/dp/B00X5RV14Y?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/keep-a-fully-charged-phone-power-bank-at-home-1843909062&asc_source=&tag=kinjalifehackerlink-20) 。因为你会把它放在家里，而不是把它放在你的钱包、口袋或背包里，所以我说要大一点；谁知道你的电会停多久，你不想在你的整个街区陷入黑暗时，没有电力与紧急服务保持联系，打电话给朋友，或者最重要的是，流式网飞。
 

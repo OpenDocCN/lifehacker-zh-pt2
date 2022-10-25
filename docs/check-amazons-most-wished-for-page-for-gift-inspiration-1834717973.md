@@ -4,7 +4,7 @@
 
 如果你一直在亚马逊愿望清单上为将来的购买藏东西，你可能会无意中为完全陌生的人提供礼物想法。
 
-Watch
+
 
 亚马逊将其愿望清单和注册表中的所有“”最想要的物品汇编成一个巨大的数据库 [，用户可以按类别](https://www.amazon.com/gp/most-wished-for/ref=zg_mw_unv_k_0_k_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/check-amazons-most-wished-for-page-for-gift-inspiration-1834717973&asc_source=&tag=kinjalifehackerlink-20) 进行搜索。结果——每天更新——是一个礼物想法的宝库，你可以为即将到来的生日、假期或特殊场合仔细阅读。
 

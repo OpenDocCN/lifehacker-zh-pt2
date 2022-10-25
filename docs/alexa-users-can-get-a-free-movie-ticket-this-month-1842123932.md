@@ -4,7 +4,7 @@
 
 如果你住在美国，并拥有任何支持 Alexa 的设备，你可以在 3 月下半月 [获得一张免费电影票](https://www.atomtickets.com/promotions?clickid=186b6db9N8bac11e9b7fb42010a246f0d&irgwc=1&ref=ir) 。是一些小事，对吗？
 
-Watch
+
 
 为了获得免费电影票，你必须在你的 Alexa 设备上启用 [Atom Tickets](https://www.atomtickets.com/promotions) 技能，并使用它在 3 月 16 日至 3 月 29 日之间订购电影票。Atom Tickets 适用于任何 Echo 扬声器、Fire 电视设备或 Fire 平板电脑。
 

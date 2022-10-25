@@ -4,7 +4,7 @@
 
 [面霜或喷雾](https://lifehacker.com/sunscreen-showdown-creams-vs-sprays-1784495399) 、矿物或化学成分、高防晒系数与否——有很多特性让你*可以*选择防晒霜。但是从长远来看，重要的是你是否真的戴上它，并且戴够了。
 
-Watch
+
 
 如果你的防晒霜让你的脸看起来像白垩一样白，或者又粘又油腻，你会忍不住把它涂得薄薄的。但是瓶子上的防晒系数是 [当你涂上厚厚的一层](https://vitals.lifehacker.com/here-s-the-spf-you-actually-get-when-you-apply-sunscree-1715166600)——老实说，厚得不切实际——所以你涂得越薄，你得到的保护就越少。
 

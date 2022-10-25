@@ -4,7 +4,7 @@
 
 感觉饿吗？也许是时候跳过 Doordash 和 Grubhub，尝试一种新的在线服务来满足你所有的零食需求了: [Etsy](https://www.etsy.com/) 。
 
-Watch
+
 
 是的 Etsy。这个迷人的小地方是大多数人购买小饰品和自制的版权作品仿制品的地方——为什么 [迪士尼没有起诉 Etsy 遗忘](https://news.avclub.com/disney-is-going-after-etsy-shops-selling-unlicensed-bab-1841095995) ，我永远不会知道——显然也是业余面包师典当他们美味商品的地方。
 

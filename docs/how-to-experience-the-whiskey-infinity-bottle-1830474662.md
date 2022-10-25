@@ -4,7 +4,7 @@
 
 我们在*外卖*这里做了一个小专题，我们称之为“今天我学会了”在里面，我们分享今天学到的东西。(最近的一些例子:A[Chick-Fil-A nugs hack](https://thetakeout.com/chick-fil-a-nugget-box-straw-hack-1830383302#_ga=2.197868655.1997257230.1541971964-633124151.1529105379)T5】； [霜降 5K](https://thetakeout.com/til-there-s-a-frosty-5k-1829374133)； [德语单词为香槟醉](https://thetakeout.com/til-german-word-champagne-drunk-sektlaune-1828394277) 。)2018 年 6 月 26 日，我了解到的事情是这样的:我可以 [马上开始自己的威士忌勾兑](https://thetakeout.com/til-i-could-start-my-own-whiskey-blend-right-now-1827135719) ，*。* 
 
-Watch
+
 
 我很抱歉地说，我并不总是一个坚持不懈的人(问我关于我的字典”收藏，“我的打字机”收藏，“我的”小说，“我的十字绣”爱好，“我的”其他小说，你会明白的)。但在这种情况下，你的女孩挺过来了。就在那天，我买了一个酒瓶( [这个](https://www.amazon.com/Rustic-Farmhouse-Decanter-Stopper-Twine/dp/B00PCB68NA/ref=asc_df_B00PCB68NA/?asc_campaign=InlineText&asc_refurl=https://thetakeout.com/how-to-experience-the-whiskey-infinity-bottle-1830474662&asc_source=&hvadid=167154313631&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9021731&hvnetw=g&hvpone=&hvpos=1o10&hvptwo=&hvqmt=&hvrand=14623761506729075444&hvtargid=pla-272386461342&linkCode=df0&tag=kinjatakeoutlink-20&th=1) )，倒了差不多五分之一的上好威士忌进去，又加了最后一瓶上好的威士忌，然后开始喝。
 

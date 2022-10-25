@@ -4,7 +4,7 @@
 
 我越来越担心——甚至感到恐慌——我最喜欢的食物是农家干酪。这是一种极好的 [、简易早餐](https://skillet.lifehacker.com/cottage-cheese-is-the-best-no-cook-breakfast-1831588670)、，当、[搅打](https://lifehacker.com/cottage-cheese-is-even-better-whipped-1834726636)、时会做出美妙的蘸酱，而且——我刚刚发现——是像薄煎饼一样最松软的海绵蛋糕的秘密。
 
-Watch
+
 
 它们就像意大利乳清干酪薄烤饼，除了丹吉尔(而且通常会便宜一点)。你可以像食物 52[这里](https://food52.com/recipes/81578-cottage-cheese-pancakes-with-strawberry-maple-syrup) 一样从头开始做，或者你可以只是舀一些奶酪到一个盒子里- 混合面糊，给一个不那么自制的东西一种极其自制的味道和质地。
 

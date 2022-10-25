@@ -4,7 +4,7 @@
 
 继 Nest 和 [Ring 和](https://lifehacker.com/how-to-get-the-most-out-of-rings-new-privacy-features-1840832191) 之后，智能家居安全摄像头公司 Arlo 和 Blink 宣布，他们将在 2020 年底前强制所有用户使用双因素认证(2FA)。
 
-Watch
+
 
 这是明智之举；我们已经看到基于云的安全系统 [被黑客](https://lifehacker.com/how-to-kick-hackers-out-of-your-ring-account-1840507643) 利用，或者由于 [糟糕的安全策略](https://lifehacker.com/how-to-protect-your-wyze-account-after-the-recent-data-1840727973) 而受到损害，最近很多时候，强迫用户在登录时使用 2FA 是加强安全的一种体面方式。两家公司都没有强制执行 2FA，但是这些设备的所有者可以采取一些措施来确保他们的帐户准备好。
 

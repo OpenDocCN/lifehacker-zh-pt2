@@ -4,7 +4,7 @@
 
 我很高兴地宣布 Lifehacker 的热门问题专栏的回归，在这个专栏中，我回答了人们不能——或者不想——谷歌的健康问题。提醒一下，这是*而不是*的医学建议，我也不是医生。
 
-Watch
+
 
 也就是说，我不怕问医生你不会问的问题。比如如何 [检查屁股上的痣破解](https://vitals.lifehacker.com/what-to-do-about-a-mole-in-an-embarrassing-place-1821806008) 而不会尴尬的死去。或者 [阴茎是否会随着年龄的增长而更加弯曲](https://vitals.lifehacker.com/what-your-penis-will-look-like-when-you-get-older-1820332839) 。或者 [为什么来例假的时候会拉肚子](https://lifehacker.com/why-you-get-gas-and-diarrhea-when-you-have-your-period-1821308466) 。
 

@@ -4,7 +4,7 @@
 
 如果你在用奖励里数兑换联航的国际旅行，有一个简单的方法让你的虚拟货币更有价值:计划一次至少三条腿的旅行。
 
-Watch
+
 
 本周 [Travel + Leisure 发表了一篇](https://www.travelandleisure.com/travel-tips/points-miles/how-to-book-flights-with-united-excursionist-perk) 的报道，讲述了一个鲜为人知的美联航员工福利，名为“ [短途旅行福利](https://www.united.com/ual/en/us/fly/mileageplus/awards/travel/types.html) ”这项特权允许您在预订涉及多个城市的旅行时获得一张免费的单程奖励机票。
 

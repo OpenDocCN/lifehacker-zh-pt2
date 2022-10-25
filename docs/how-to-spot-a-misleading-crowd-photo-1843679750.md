@@ -4,7 +4,7 @@
 
 随着企业重新开业，人们去海滩和公园，你可能已经看到新闻照片或视频，显示人们挤进密集的人群，愉快地无视社交距离准则。但是这些照片可能会误导人，这要归功于一个相机技巧。
 
-Watch
+
 
 摄影师在拍摄人群时喜欢使用的一个相当常见的技巧是使用变焦或长焦镜头。这张 [压缩了一张](https://photographylife.com/what-is-lens-compression) 图片的前景和背景，让每个人看起来都靠得更近。例如，在一篇关于人群照片的文章 [《户外摄影指南》中写道](https://www.outdoorphotographyguide.com/video/tips-and-techniques-for-photographing-crowds-009788/#) 一个 300 毫米的镜头“压缩了人群，使其看起来更大但更紧凑，创造出更有活力、更放大的照片。”
 

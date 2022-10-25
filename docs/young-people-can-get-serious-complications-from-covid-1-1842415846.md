@@ -4,7 +4,7 @@
 
 到目前为止，我们都至少从生活中的一个人那里听到过这句话:“我不担心感染新冠肺炎，因为我还年轻。”这是那些在海滩上开派对的[旅行者](https://www.nytimes.com/2020/03/13/travel/coronavirus-travel-deals.html) 利用廉价交易，或者拥挤在酒吧里的 [年轻职业人士](https://www.nytimes.com/2020/03/14/opinion/coronavirus-bars-lockdown.html) 给出的理由。
 
-Watch
+
 
 但是，年轻健康并不是“免于牢狱之灾”的通行证。年轻和健康的人可以感染冠状病毒，当他们感染时，他们也可以以高于专家最初预期的速度住院。
 

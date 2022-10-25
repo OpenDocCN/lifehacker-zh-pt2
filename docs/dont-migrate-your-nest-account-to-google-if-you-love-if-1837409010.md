@@ -4,7 +4,7 @@
 
 今年早些时候， [谷歌宣布](https://blog.google/products/google-nest/helpful-home/) 其智能家居设备系列 Nest 将并入其“有益家庭”计划。此举的一个副作用是，从 2019 年 8 月 31 日开始，IFTTT 粉丝将不再能够使用他们的 Nest 设备构建触发器和自动装置。
 
-Watch
+
 
 作为对用户抗议的回应，该公司制定了一项折中措施，允许 Nest 用户继续使用 IFTTT，即使谷歌方面的官方支持已经停止。然而，有一些重要的警告。如 [IFTTT 描述的](https://help.ifttt.com/hc/en-us/articles/360022524734-Important-update-about-the-Nest-services) :
 

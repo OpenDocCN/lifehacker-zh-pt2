@@ -4,7 +4,7 @@
 
 当全国都把注意力转向一个可能的 [第二次刺激检查](https://twocents.lifehacker.com/what-can-you-expect-from-a-second-stimulus-check-1844497280) 的时候，许多美国人还在 [等待第一次](https://news.bloombergtax.com/daily-tax-report/millions-still-waiting-for-virus-payments-as-congress-mulls-more) 。上周，我们介绍了一些方法来 [追回你的欠款](https://twocents.lifehacker.com/what-to-do-if-you-still-haven-t-received-the-first-stim-1844532720)——但是如果你仍然有困难，也许还有另一个选择。
 
-Watch
+
 
 纳税人倡导服务——国税局内部的一个独立组织——很快就能提供帮助。根据一篇 [最近的博客文章](https://taxpayeradvocate.irs.gov/news/nta-blog-tas-to-assist-correcting-eip-amounts-for-limited-groups-of-taxpayers?category=Tax%20News) ，该组织有程序在五种情况之一下协助纳税人。如果你正在处理以下五个问题中的一个，纳税人倡议服务可以接受你的案例(免费！)8 月 10 日。
 

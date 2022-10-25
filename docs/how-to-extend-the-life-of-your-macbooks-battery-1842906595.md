@@ -4,7 +4,7 @@
 
 苹果将在 macOS Catalina 10.15.5 中加入一项新功能，该功能将改变 MacBook 的充电方式，有望让你从设备的致命弱点:电池中获得更长的寿命。
 
-Watch
+
 
 它是如何工作的？简而言之，如果 MacBook 检测到充电可能会影响笔记本电脑电池的寿命，它就会停止充电到最大电量。就是这样。正如苹果 [描述的](https://support.apple.com/en-us/HT211094?cid=mc-ols-energy_saver-article_ht211094-macos_ui-04022020) :
 

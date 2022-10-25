@@ -4,7 +4,7 @@
 
 做记者的一个特点是你会收到大量不请自来的电子邮件，通常来自你不认识的人。 [发现](https://chrome.google.com/webstore/detail/discoverly-for-gmail-link/dijhcpbkalfgkcebgoncjmfpbamihgaf) 是一个 Chrome 扩展，可以帮助把那些陌生人的电子邮件放入视野。
 
-Watch
+
 
 Chrome 扩展扫描社交网络，提取给你发邮件的人的信息，显示在你的收件箱里，在你回复之前，让你更全面地了解那个人是谁。
 

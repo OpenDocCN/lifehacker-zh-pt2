@@ -4,7 +4,7 @@
 
 博博大厨安迪·里克(Andy Ricker)的这道“Phat Thai Ruam Mit”食谱来自于他最新的食谱， [*博博面*](https://www.amazon.com/POK-Noodles-Recipes-Thailand-Beyond/dp/1607747758?asc_campaign=InlineText&asc_refurl=https://thetakeout.com/recipe-how-to-make-pok-pok-pad-thai-pork-shrimp-1834808412&asc_source=&tag=kinjatakeoutlink-20) 。点击这里 阅读我们对 Ricker 的采访，了解他为什么认为像泰式炒面这样在美国无处不在的菜肴应该受到尊敬和尊重，然后尝试重现他的食谱。
 
-Watch
+
 
 * * *
 

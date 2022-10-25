@@ -4,7 +4,7 @@
 
 汽车研究公司[【iSeeCars.com】](https://www.iseecars.com)发布了一项名为“美国最危险的汽车”的研究，结果，一堆网站刊登了标题为[*致命诱惑的文章:这些是路上最致命的汽车*](https://www.forbes.com/sites/jimgorzelany/2019/05/14/fatal-attraction-these-are-the-deadliest-cars-on-the-road/?fbclid=IwAR0v4N-8qBvCkGsT4hnaXIzGwx1qFOZySBSEZMfbIO88_KPpbZAAXxSS-GQ#4c9e7b12e31e) ，其中肯定有一些不错的生死大戏。然而，事情是这样的:当你真正挖掘用于获得结果的数字和方法时，事实证明，美国“最危险”的汽车实际上并不那么危险，当你把它放在一个角度看时。
 
-Watch
+
 
 我现在就告诉你，研究发现可悲的小三菱幻影是其结果中最致命的汽车，好像可怜的 [幻影真的需要别的东西](https://jalopnik.com/this-brutal-nyt-mirage-review-is-whats-wrong-with-cheap-1583123298?_ga=2.175877602.138953239.1557148770-1042025855.1525800714) 让人们取笑。
 

@@ -4,7 +4,7 @@
 
 如果你一直梦想去巴黎旅行，欣赏一些世界级的艺术作品，你就不再需要预订机票了。多亏了由巴黎 14 家博物馆组成的 [巴黎博物馆](https://en.wikipedia.org/wiki/Paris_Mus%C3%A9es) ，现在有超过 150，000 份艺术作品的高分辨率数字拷贝可以在网上免费无限制地获得。他们的 [收藏网站](http://parismuseescollections.paris.fr/en) 包括了像伦勃朗、莫奈、毕加索和塞尚等知名艺术家的作品，以及成千上万其他人的作品。
 
-Watch
+
 
 不仅仅是绘画:在杰森·科特基的博客[【kottke.org】](https://kottke.org/20/01/paris-museums-put-100000-images-online-for-unrestricted-public-use)上，他提到他特别高兴看到摄影师 [尤金·阿特热](https://en.wikipedia.org/wiki/Eug%C3%A8ne_Atget) 的作品出现在网站上，他捕捉了巴黎街头的生活。
 

@@ -4,7 +4,7 @@
 
 Galaxy Note 10 是三星 [大型触控笔智能手机](https://lifehacker.com/we-looked-at-every-setting-on-the-galaxy-note-10-and-he-1837450445) 系列的最新产品，它有一个新功能，但没有像其他产品一样受到关注。Note 10 是第一款支持 [PlayGalaxy Link](https://www.playgalaxy.com/) 的手机，这是一项三星服务，允许玩家将游戏从 Windows PC 传输到手机。
 
-Watch
+
 
 目前处于测试阶段的 PlayGalaxy Link 并不是唯一一个这样的服务。还有 [Steam Link](https://store.steampowered.com/app/353380/Steam_Link/) ，它运行在流行的 PC 游戏平台上，但要求用户通过同一本地网络连接他们的手机和 PC。PlayGalaxy Link 也可以通过移动宽带连接。这可能会对你的数据上限造成严重破坏，但解除与家里 wifi 的连接使 PlayGalaxy Link 成为一个更便携的选择。
 

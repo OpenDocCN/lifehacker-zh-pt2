@@ -4,7 +4,7 @@
 
 当脸书和 Oculus 凭借 [Oculus Go](http://Follow along with all of our CES 2019 coverage here) 和即将推出的 [Oculus Quest](https://gizmodo.com/the-oculus-quest-is-real-facebook-promises-400-standa-1829336268) 追赶普通人时，HTC Vive 似乎正朝着相反的方向前进，试图通过新的 Vive Pro Eye 将 VR 体验推得更远。
 
-Watch
+
 
 在目前的 [Vive Pro](https://gizmodo.com/vive-pro-review-way-more-beautiful-way-better-way-too-1824268076) 的基础上，Vive Pro Eye 更进一步，在该公司目前的旗舰 VR 耳机中加入了内置眼球追踪功能。现在，如果你允许我使用一分钟技术，将眼球追踪添加到虚拟现实中有几个重大的影响。
 

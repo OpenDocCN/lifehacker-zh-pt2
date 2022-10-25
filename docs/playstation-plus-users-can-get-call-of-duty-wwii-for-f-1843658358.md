@@ -4,7 +4,7 @@
 
 PlayStation 宣布将提前推出下一轮 PlayStation Plus 免费游戏。
 
-Watch
+
 
 使命召唤:从技术上讲，二战是 6 月份向 PlayStation Plus 用户提供的免费游戏之一；然而，索尼将从明天开始让 Plus 用户下载这款游戏。
 

@@ -4,7 +4,7 @@
 
 截至周五上午，飓风道林已经在北卡罗来纳的 [哈特拉斯角](https://www.cbsnews.com/live-news/hurricane-dorian-track-path-models-latest-forecast-today-2019-09-06/)登陆，那里已经先发制人地发布了的[紧急状态](https://files.nc.gov/ncdps/documents/files/CooperEO101-Declaration-of-SOE_Hurricane-Dorian.pdf)的。在即将到来的周末，飓风道林预计将穿过加拿大新斯科舍省，然后接近格陵兰岛南部的水域。
 
-Watch
+
 
 到下周，我们可能会对飓风在乔治亚州、卡罗莱纳州和巴哈马群岛造成的破坏有更好的了解(到目前为止，巴哈马群岛已经有 30 人死亡)。
 

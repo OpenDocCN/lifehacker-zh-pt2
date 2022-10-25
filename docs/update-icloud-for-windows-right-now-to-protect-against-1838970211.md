@@ -4,7 +4,7 @@
 
 Windows iTunes 用户:Windows 上的苹果软件 Bonjour updater 存在严重漏洞，使得有人可能在您的系统上悄悄安装勒索软件。
 
-Watch
+
 
 据 [Threatpost](https://threatpost.com/apple-itunes-bug-bitpaymer-iencrypt/149075/) 报道，该漏洞利用了苹果程序使用 Bonjour 的事实，Bonjour 是 Windows 用户与 iTunes 一起下载的一款网络软件。苹果已经在 WindowsI cloud 的 [新补丁中解决了这个问题。如果你使用(或曾经安装过)iCloud 或 iTunes for Windows，你应该确保它尽快更新。](https://support.apple.com/en-us/HT210637)
 

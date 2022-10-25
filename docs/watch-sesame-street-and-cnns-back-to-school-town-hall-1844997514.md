@@ -4,7 +4,7 @@
 
 芝麻街和 CNN 今年合作满足我们所有的情感需求，首先是虚拟的新冠肺炎市政厅 ，然后是关于种族主义的[one](https://offspring.lifehacker.com/watch-sesame-street-and-cnns-town-hall-on-racism-1843880815)，现在是一个 [市政厅，我们带着我们的孩子在疫情度过了从到的上学季](https://www.cnn.com/2020/09/02/us/sesame-street-back-to-school-town-hall/index.html) 。
 
-Watch
+
 
 这个 60 分钟的特别节目“回到学校的基础知识，一个 CNN/芝麻街的家庭市政厅”，将解决如何在教室里保持安全，以及如何导航混合和全虚拟学习。据美国有线电视新闻网 报道， [它还将“在冠状病毒时代为家庭处理学校的独特情况提供工具和信息”。更多详情:](https://www.cnn.com/2020/09/02/us/sesame-street-back-to-school-town-hall/index.html)
 

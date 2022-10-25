@@ -4,7 +4,7 @@
 
 WordPress 插件它也有一个明显的漏洞，你会想要马上修补。否则，一个精明的攻击者可以使用这个插件从 WordPress 网站下载关键文件，比如你非常重要的 wp-config.php 文件。
 
-Watch
+
 
 一旦他们掌握了这一点，你的博客、电子商务网站或投资组合就会变得非常有趣。正如 [成立](https://www.tenable.com/blog/duplicator-wordpress-plugin-vulnerability-exploited-in-the-wild) 所描述的:
 

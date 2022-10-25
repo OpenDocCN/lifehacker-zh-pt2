@@ -4,7 +4,7 @@
 
 谷歌的 [Pixel 4 和 4 XL](https://lifehacker.com/how-the-leaked-pixel-4-stacks-up-against-other-smartpho-1838782478) 智能手机明天正式上市。虽然大多数人在这一点上可能可以自己设置他们的设备，但如果你热衷于拍摄视频，有一个小设置你会想知道——它将帮助你在不牺牲视频质量的情况下节省设备空间。
 
-Watch
+
 
 Pixel 4 的默认视频文件格式 H.264/AVC 比更有效的 H.265/HEVC 格式的文件更大，后者最近作为一个选项添加到旧款 Pixel 手机上。Pixel 4 用户可以切换到较新的 H.265/HEVC，以节省手机上的存储空间，但你需要先更新到最新的 [谷歌相机](https://play.google.com/store/apps/details?id=com.google.android.GoogleCamera&hl=en_US) 应用版本(7.2 或更高版本)，因为该选项可能不会在新的 Pixel 4 设备上提供。
 

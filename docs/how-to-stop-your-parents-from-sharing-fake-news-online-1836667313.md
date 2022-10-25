@@ -4,7 +4,7 @@
 
 本周，川普总统提出了几项不实指控，其中一项是关于向 [波多黎各](https://lifehacker.com/why-you-need-to-know-about-puerto-ricos-protests-and-go-1836638939) 提供 920 亿美元的飓风玛利亚救援工作，另一项是关于他在昨天的司法听证会上被罗伯特·穆勒假定 [免除](https://www.apnews.com/130932b573664ea5a4d186f752bb8d50https://www.apnews.com/130932b573664ea5a4d186f752bb8d50)的指控。
 
-Watch
+
 
 许多网站将类似这样的虚假声明作为冷酷无情的事实，在脸书和推特上传播，并被无数用户分享。足球运动员梅根·拉皮诺埃公然践踏美国国旗！( [她不是故意的](https://www.snopes.com/fact-check/rapinoe-flag-stomp/) )。)玛利亚·奥巴马被捕了！( [她不是](https://www.snopes.com/fact-check/malia-obama-arrested-again/) )。)
 

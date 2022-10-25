@@ -4,7 +4,7 @@
 
 已发现 WhatsApp 的一个主要漏洞，该漏洞会使您的聊天记录面临被他人永久删除的风险，您应该尽快更新该应用程序以修补该漏洞。
 
-Watch
+
 
 这个漏洞是由网络安全公司 Check Point Software Technologies[在八月](https://www.jpost.com/Israel-News/Israeli-experts-identify-WhatsApp-flaw-threatening-group-chats-611184) 发现并披露的。它允许黑客发送包含恶意代码的消息，当这些代码被打开时，将会清除您的消息线索。这还不是全部。正如 Check Point 研究人员所描述的:
 

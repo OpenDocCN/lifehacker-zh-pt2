@@ -4,7 +4,7 @@
 
 在专门介绍 Airbnb 上噩梦经历的网站[【AirbnbHell.com】](http://airbnbhell.com/airbnb-guest-stories/)上，客人们分享他们与 [蚂蚁和蟑螂横行](https://www.airbnbhell.com/infestation-refund-charge/) [ns](https://www.airbnbhell.com/infestation-refund-charge/) 、拥有“假” [海边风景](https://www.airbnbhell.com/french-airbnb-features-fake-seaside-view/) 的单元，以及根本不存在的公寓住在一起的故事。
 
-Watch
+
 
 “我女儿通过 Airbnb 网站在新西兰奥克兰预订了一家 Airbnb。一位 [的评论者](https://www.airbnbhell.com/fake-airbnb-in-auckland-new-zealand/) 写道:“当她的车带她去那个地址时，大楼里一片漆黑。“没人开门。她无法通过电话联系到所谓的主持人...当她想知道发生了什么事时，有人开车来到附近的一处房产，告诉她那栋楼不是 Airbnb，他不得不告诉很多人这一点。
 

@@ -4,7 +4,7 @@
 
 今天在“更新你的设备总是一个好主意”中，最近发现了 Android 基于 NFC 的文件共享功能的一个漏洞， [Android Beam](https://developer.android.com/training/beam-files) ，使得有人可以在你的设备上安装应用程序。谷歌在上个月发布的 Android 更新中已经发现并修复了这个漏洞，所以勤奋的更新者已经被覆盖了。如果你还没有，现在是时候这么做了。
 
-Watch
+
 
 [ZDNet](https://www.zdnet.com/article/android-bug-lets-hackers-plant-malware-via-nfc-beaming/) 报道的 bug，确实是对 Beam 的安全权限的错误分类。对于大多数基于 NFC 的交易，用户应该会收到一个提示，警告他们信息正在被传输。特别是应用程序，Android 应该会阻止安装来自 Google Play 商店之外的“未知来源”的应用程序，除非你确认你想要它们。
 

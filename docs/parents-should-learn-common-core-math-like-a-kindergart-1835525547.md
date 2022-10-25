@@ -4,7 +4,7 @@
 
 如果你有一个孩子在上学，你可能已经注意到他们的数学作业看起来和你几年前不一样了。你可能抱怨过——“这些疯狂的舞步是怎么回事？在温克曼夫人四年级的课堂上，这些方程花了我几秒钟才解答出来！”嘿，我在这里不是要争论当前教学方法“共同核心”的价值(尽管根据我从数学教育者那里读到和听到的，这很大程度上是 [朝着正确方向迈出的一大步](https://hechingerreport.org/memorizers-are-the-lowest-achievers-and-other-common-core-math-surprises/) )。但我可以帮你接受改变。
 
-Watch
+
 
 作为对 Nick Douglas 的作品“ [用这些心算技巧](https://lifehacker.com/do-math-in-your-head-with-these-mental-math-tricks-1835384146) 在你的大脑中做数学运算”的回应，一些读者注意到，Common Core 通过使用 [数字感](https://www.youcubed.org/resource/number-sense/) 帮助孩子们直观地建立这种联系。如果你像我一样，一个主要通过死记硬背来学习数学的人，你可能会对这意味着什么有点困惑。在这种情况下，一个好的起点是从一开始。评论者 noodlesintheface 给家长们提了一个聪明的建议:浏览一下 [可汗学院的算术课程](https://www.khanacademy.org/commoncore/map) ，从学前或幼儿园课程开始。
 

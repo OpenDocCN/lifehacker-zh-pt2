@@ -4,7 +4,7 @@
 
 航空公司喜欢折磨我们。他们用包费、延误、不穿 [裤子](https://www.travelandleisure.com/travel-news/passenger-took-off-pants-air-france) 的乘客来忽悠我们。最重要的是，即使你做好了准备和组织，你也无法逃避他们对利润的嗜血。如果你曾经在航班上预订过座位，你会注意到航空公司的整个区域都被封锁了，所以你不能认领，即使你想或愿意支付额外的费用。
 
-Watch
+
 
 本周早些时候， [点家伙](https://thepointsguy.com/news/blocked-seats-for-flight/) 回应了一位读者关于同一问题的请求。到底为什么座位被封锁了，你怎么能*找到一个呢？这可能并不容易，但以下是关于航空公司预订座位以及如何抢到座位的独家新闻:*
 

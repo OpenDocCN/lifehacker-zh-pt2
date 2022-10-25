@@ -4,7 +4,7 @@
 
 如果你一直在等待一个信号，是时候把你的孩子介绍给 [保姆俱乐部](https://www.amazon.com/s?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/introduce-your-kid-to-the-baby-sitters-club-1832995807&asc_source=&k=baby-sitters club book series&ref=nb_sb_noss_1&tag=kinjalifehackerlink-20) 了，网飞已经慷慨地决定满足你的要求。
 
-Watch
+
 
 [流媒体服务公司](https://www.today.com/popculture/baby-sitters-club-will-soon-be-netflix-tv-show-here-t149618) 宣布，它已经订购了 10 集经典的 20 世纪 80 年代和 90 年代的书籍系列转变为电视节目的电影。甚至最简单的描述也让我兴奋不已:
 

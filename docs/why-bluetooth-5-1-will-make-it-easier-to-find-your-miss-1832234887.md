@@ -4,7 +4,7 @@
 
 开发者现在可以开始玩下一代蓝牙了——这种方便的小技术可以让你将音乐传输到附近的设备，或者在没有电缆连接你的智能手机的情况下进行跑步。虽然蓝牙 5.1 进入手机、笔记本电脑和其他设备还需要一段时间，但蓝牙特别兴趣小组(SIG) [最近发布了](https://www.bluetooth.com/bluetooth-resources/core-51?utm_campaign=location-services&utm_source=homepage&utm_medium=featured-resource&utm_content=core51-feature) 对蓝牙 5.1 的一些主要特性的分析，你现在就可以开始兴奋了。
 
-Watch
+
 
 如果你总是丢失你的设备，这些变化不会来得太快。
 

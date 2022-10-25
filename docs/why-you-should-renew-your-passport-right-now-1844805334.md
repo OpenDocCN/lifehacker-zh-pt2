@@ -4,7 +4,7 @@
 
 鉴于 [挥之不去的冠状病毒威胁](https://www.cnn.com/2020/08/20/health/us-coronavirus-thursday/index.html) 和 [持续的旅行限制](https://lifehacker.com/this-interactive-map-tells-you-which-countries-are-open-1843935523) ，你的下一次国际旅行可能还需要一段时间。但这并不意味着你应该等待申请或更新你的护照，因为你前面可能会有很长的队伍。
 
-Watch
+
 
 正如《今日美国》报道 所言，美国国务院从三月中旬到六月初削减了护照业务，作为减少新冠肺炎病毒传播的努力的一部分。根据 [机构的网站](https://travel.state.gov/content/travel/en/passports.html) 显示，他们在那段时间停止处理加急申请，只签发生死攸关的紧急护照。结果，到员工 6 月份回来时，积压的应用程序激增至 180 万个。
 

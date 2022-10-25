@@ -6,7 +6,7 @@
 
 我承认，自从去年九月功能首次亮相以来，我还没有真正接触过 iOS 快捷方式，但不要让我的懒惰阻止你摆弄它们。如果你刚刚开始，你应该找到一些很棒的预制快捷方式集成到你的设备中，而不是花太多时间去弄清楚如何构建自己的快捷方式。那也很有趣，但是还没有必要跳到深水区。
 
-Watch
+
 
 我们之前已经介绍了一些其他 Lifehacker 用户感兴趣的快捷方式 ，但与 MacStories 的费德里科·维蒂奇最近烹制的主菜相比，这只是 iOS 的开胃菜。自 2014 年左右以来，他一直在 [从事快捷方式](https://www.macstories.net/news/introducing-the-macstories-shortcuts-archive-a-collection-of-150-custom-shortcuts-for-apples-shortcuts-app/)——以前的工作流——的工作，他已经建立了 [一个他的作品](https://www.macstories.net/shortcuts/) (151 个快捷方式和计数)的庞大列表，值得探索。
 

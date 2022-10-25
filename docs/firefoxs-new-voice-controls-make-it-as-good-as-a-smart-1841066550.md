@@ -4,7 +4,7 @@
 
 我习惯对着我的谷歌主页和亚马逊 Echo 大喊大叫，而不是我的网络浏览器。然而，Mozilla 现在正在测试其 Firefox 浏览器的语音控制功能，你可以和我一起对着你的屏幕尖叫——这实际上比乍看起来更有趣和有用。
 
-Watch
+
 
 要开始，打开火狐，访问 Mozilla 的 [火狐语音活动](https://events.mozilla.org/firefoxvoicecampaign) 页面。点击“开始”按钮，说出你的名字和电子邮件地址，你就会得到 [一个链接](https://va.allizom.org/releases/prod/firefox-voice.xpi) 来下载火狐语音插件:
 

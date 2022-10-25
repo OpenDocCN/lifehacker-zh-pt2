@@ -4,7 +4,7 @@
 
 对于全国各地的旅行者来说，跟上最新的限制已经成为一项日常任务。有这么多停飞的航班和警告指示当穿越州界时该做什么，我们中的许多人都梦想着逃离。房车(休闲车)生活是现在寻找房车的方式吗？
 
-Watch
+
 
 2019 年， [美国超过 900 万人](https://www.thewanderingrv.com/rv-industry-statistics-trends-facts/) 拥有房车；超过 4000 万人还报告说，他们定期去房车露营。如果你是这数百万人中的一员，并希望在冠状病毒疫情期间利用你的房车， [CDC 指南](https://www.cdc.gov/coronavirus/2019-ncov/travelers/travel-in-the-us.html) 建议现在**不是公路旅行的时候**。最好把它停在你的院子里使用。
 

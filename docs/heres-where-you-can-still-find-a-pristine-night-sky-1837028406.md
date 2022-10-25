@@ -4,7 +4,7 @@
 
 今年夏天，不断有 [流星雨](https://lifehacker.com/watch-two-meteor-showers-peak-tonight-1836785745) 和 [闪亮的行星](https://lifehacker.com/how-to-view-the-planets-at-night-in-august-1836909970) 在夜空中惊艳我们，但有一件事阻碍了我们和一场完美的表演:光污染。从城市的明亮灯光下走出去可能很难(甚至几乎不可能)，但在美国仍有一些地方可以提供完全清晰、完美的宇宙景观。
 
-Watch
+
 
 光污染不仅对人类健康和自然生态系统有各种不利影响，它还使我们看不到真正夜空的美丽 。但是发表在 [环境管理杂志](https://www.sciencedirect.com/science/article/pii/S0301479719309296) 上的一项研究现在已经绘制出了县级的人工光污染，揭示了一些视野开阔的区域。
 

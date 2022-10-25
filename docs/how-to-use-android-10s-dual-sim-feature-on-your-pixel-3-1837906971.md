@@ -4,7 +4,7 @@
 
 随着 Android 10 [推出](https://lifehacker.com/do-this-before-installing-android-10-on-your-phone-1837842182) ，用户正在发现更新中包含的一些 [意想不到的惊喜](https://lifehacker.com/how-to-access-googles-secret-easter-eggs-in-android-9-a-1837877288) 。例如，升级到 Pixel 3a 和 3a XL 的双 SIM 双待机(DSDS)功能，最终在这些设备上实现真正的双 SIM 卡支持。
 
-Watch
+
 
 DSDS 允许您将两张 SIM 卡(一张物理卡和一张 eSIM 卡)连接到不同的网络，这是一种出于任何原因在运营商之间切换的便捷方式。在 Android 10 更新之前，Pixel 3a 用户被迫交换 sim 卡以访问不同的网络；在 Android 10 中，Pixel 3a 的用户可以同时使用每个网络，并指定哪些活动(短信、数据或通话)应该默认为特定的网络。
 

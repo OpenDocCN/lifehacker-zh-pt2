@@ -4,7 +4,7 @@
 
 周二，Dropbox [宣布了其桌面应用](https://www.dropbox.com/features/new?_tk=blog_611_us) 的新统一版本，该公司称为“新的 Dropbox”
 
-Watch
+
 
 Dropbox 将其描述为一个单一的工作场所解决方案，可以帮助你组织内容、连接工具和将工作小组聚集在一起。
 

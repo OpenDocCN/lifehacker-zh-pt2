@@ -4,7 +4,7 @@
 
 为你的祖父母或父母安装一台电脑可能会令人沮丧，尤其是当你试图通过电话与他们沟通时。如果你真的能接触到电脑，你就有机会让他们的互联网体验变得更好。
 
-Watch
+
 
 redditor[u/TyrKiyote](https://www.reddit.com/user/TyrKiyote)在 r/LifeProTips 上分享说，他们通过 YouTube 上的 [操纵算法](https://www.reddit.com/r/LifeProTips/comments/b3l4ua/lpt_when_setting_up_a_computer_for_an_older/) 为 80 岁的爷爷准备好了电脑:
 

@@ -4,7 +4,7 @@
 
 如果你有旧的或过期的汽车座椅在地下室积灰，那就留着这个日子吧:Target 广受欢迎的汽车座椅折价项目将于本月晚些时候回归，为期两周。Target 将为您回收旧座位，并为您提供 20%的升级优惠券作为回报。
 
-Watch
+
 
 9 月 13 日至 26 日，塔吉特百货将举办其 [汽车座椅以旧换新活动](https://www.target.com/c/car-seat-trade-in-event/-/N-v41nu) 。您可以将您的旧的、损坏的和过期的汽车座椅留在任何参与地点的还书箱中( [点击此处找到一个离您最近的](https://www.target.com/c/kids-event-stores/-/N-i9dn5?clkid=3ced0c2bNc02d11e9ad2142010a246e03&lnm=81938&afid=Skimbit%20Ltd.&ref=tgt_adv_xasd0002&clkid=063f214dNcd1111eabb9142010a246e28&lnm=520943&afid=POPSUGAR&ref=tgt_adv_xasd0002) )。他们将接受所有类型和风格的婴儿座椅、敞篷座椅、汽车座椅底座、安全带和儿童座椅。
 

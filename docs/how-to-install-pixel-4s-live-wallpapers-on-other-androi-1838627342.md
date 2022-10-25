@@ -4,7 +4,7 @@
 
 就谷歌产品而言，Pixel 4 的存在是谷歌保守得最差的秘密。之前的 Pixel 手机很早就被泄露了，但考虑到谷歌下一款旗舰智能手机的曝光率，Pixel 4 可能已经有了官方声明。现在，你可以在自己的 Android 手机上提前看到 Pixel 4 的一些视觉设计，方法是下载并安装一组动态壁纸，这些壁纸将在仍未发布的设备上提供。
 
-Watch
+
 
 在 XDA 开发者论坛 的 [上，开发者 Pranav Pandey 将这些壁纸编译成了一款应用。不过这些非官方版本都有一些限制，包括严格的软硬件要求。](https://www.xda-developers.com/download-google-pixel-4-live-wallpapers-port/)
 

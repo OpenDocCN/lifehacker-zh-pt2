@@ -4,7 +4,7 @@
 
 迈克·阿达米克向他的爸爸们传达了一个信息:性别歧视是存在的，如果你不是解决方案的一部分，你就是问题的一部分。在他即将出版的新书 [*中，他聚焦于父亲传递给孩子的看似无辜的神话、比喻和谚语是如何结合成更具破坏性的东西。好消息是什么？你不必让这些事情过去。正在抚养 13 岁女儿的阿达米克和我们分享了他是如何为人父母的。*](https://www.amazon.com/Raising-Empowered-Daughters-Dad-Dad/dp/1580058655/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-mike-adamick-author-of-raising-empowered-daughters-1834047813&asc_source=&tag=kinjalifehackerlink-20) 
 
-Watch
+
 
 * * *
 

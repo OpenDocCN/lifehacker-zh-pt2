@@ -4,7 +4,7 @@
 
 三星的[Unpacked 2020 event](https://www.samsung.com/global/galaxy/events/unpacked/)换来了现场观众，换来了有点尴尬的全数字演示，但今年的直播流挤满了大量新设备和功能公告。这里是该公司向那些需要回顾的人展示的一切。
 
-Watch
+
 
 ### Galaxy Note 20 和 Note 20 Ultra
 

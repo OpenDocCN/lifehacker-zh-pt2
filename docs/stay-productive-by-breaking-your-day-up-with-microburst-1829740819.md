@@ -4,7 +4,7 @@
 
 当我刚开始在家工作时，我有时会发现自己花 12-14 个小时粘在办公椅上。虽然那段时间都是“工作”,但那段时间往往是我效率最低的时候，原因很简单，因为我在某个时候停滞不前，无法重新回到高效的状态。
 
-Watch
+
 
 本周， *Fast Company* [发表了一篇文章](https://www.fastcompany.com/90248621/9-productivity-experts-on-how-you-can-finally-beat-distractions-and-get-everything-done) ，其中采访了几位生产力专家，并提供了如何克服干扰、完成工作的建议。他们的建议之一是我个人不久前采纳的:短时间的身体活动。
 

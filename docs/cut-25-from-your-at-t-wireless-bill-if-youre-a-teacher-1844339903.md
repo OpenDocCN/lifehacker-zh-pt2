@@ -4,7 +4,7 @@
 
 在疫情早期，许多公司 [做了一场秀](https://lifehacker.com/first-responders-can-get-their-google-pixels-repaired-f-1843184644) 延长 [特殊福利](https://lifehacker.com/how-to-get-free-t-mobile-service-if-youre-a-first-respo-1843590856) 和 [折扣](https://lifehacker.com/how-to-get-free-t-mobile-service-if-youre-a-first-respo-1843590856) 给那些在各州发布居家命令时不能呆在室内尽情狂欢的“关键工人”。现在，随着各州重新开放，通信巨头 AT & T 正在向教师、护士和医生提供慷慨的无线计划折扣——高达 25%。
 
-Watch
+
 
 从今天开始，该公司将这些群体添加到已经有资格获得其“赞赏”折扣的关键员工名单中，其中包括第一反应人员、军人和退伍军人。该折扣适用于拥有美国电话电报公司 [无限启动计划、Extra 和 Elite 无线计划](https://www.att.com/offers/discount-program/first-responders/) 的新老客户。(对不起，预付客户，不给您打折。)
 

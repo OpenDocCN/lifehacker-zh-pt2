@@ -4,7 +4,7 @@
 
 这些漫长的隔离日日夜夜让我们开始做一些在正常情况下可能不会做的事情。无论你已经花了几个小时在烤完美的酸面团上，还是把 1000 块拼图拼在一起，你可能比一个月前有了全新的爱好。如果你喜欢启动谷歌，看看过去的人现在在做什么，你可能已经做过几次了。
 
-Watch
+
 
 但这就是事情变得复杂的地方。一次谷歌搜索很容易引发另一次搜索，突然之间 [你正在浏览前任的 Instagram feed](https://lifehacker.com/how-to-stop-yourself-from-checking-your-exs-social-medi-1829909251) 。无论你是一个人被困在家里，还是和一个一天比一天烦人的伙伴在一起，比如 [尖叫的孩子](https://offspring.lifehacker.com/host-a-virtual-lunch-for-your-kids-and-their-friends-1842526789?_ga=2.16077046.1792966627.1586056561-954933324.1558747226) 或者 [忘恩负义的室友](https://lifehacker.com/how-to-tolerate-the-people-youre-quarantined-with-1842661451) ，你都很容易走神，思考如果你的生活以不同的方式展开会是什么样子。这时，与前任接触的诱惑就来了。这看起来是个好主意，但是相信我们——它真的不是。
 

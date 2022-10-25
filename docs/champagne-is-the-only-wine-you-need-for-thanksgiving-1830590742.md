@@ -4,7 +4,7 @@
 
 在大多数家庭里，感恩节的饭菜一年比一年没有太大变化，但总会有人为用什么酒来配火鸡和配菜而苦恼。答案很简单:香槟。
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Champagne Is the Only Wine You Need for Thanksgiving](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-buy-champagne-on-a-light-beer-budget-1829661228)</aside>
 

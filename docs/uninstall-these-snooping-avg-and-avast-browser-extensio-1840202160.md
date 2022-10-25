@@ -4,7 +4,7 @@
 
 我们总是建议尽量简化您的扩展列表，因为您永远不知道什么时候会有东西试图从您的浏览器中吸走数据——尤其是超过它应该能够访问的数据。这正是 Mozilla 用四个看起来“不错”的扩展提出的问题——Avast 在线安全、 **AVG 在线安全**、 **Avast 安全价格**、和 **AVG 安全价格**——你应该从你的浏览器中卸载它们，直到它们被修复，至少是这样。
 
-Watch
+
 
 正如 [ZDNet](https://www.zdnet.com/article/mozilla-removes-avast-and-avg-extensions-from-add-on-portal-over-snooping-claims/) 报道，在 AdBlock Plus 的创建者 Wladimir Palant 报告这些扩展收集了过多的数据后，Mozilla 从其在线画廊中删除了这四个扩展。Palant [写道](https://palant.de/2019/12/03/mozilla-removes-avast-extensions-from-their-add-on-store-what-will-google-do/) :
 

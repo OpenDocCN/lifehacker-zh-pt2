@@ -4,7 +4,7 @@
 
 [对 ALDI](https://lifehacker.com/what-to-buy-and-skip-at-aldi-1798664491) 的崇拜是真实的，是强大的。这家连锁店的粉丝喜欢它独特的顾客体验方式，就像他们喜欢它的低价一样，并很快向他们遇到的每个人宣传它。
 
-Watch
+
 
 据美国有线电视新闻网报道， [这家德国杂货连锁店计划在明年](https://www.cnn.com/interactive/2019/05/business/aldi-walmart-low-food-prices/index.html) 开设 130 家新店。事实证明，ALDI 节省成本的特质——小商店、有限的员工、塑料袋费和你必须用 25 美分硬币才能租到的手推车——真的得到了回报。因此，如果你从未涉足 ALDI，也不完全了解它的全部，这种情况可能很快就会改变。这是你第一次旅行前需要知道的一切。
 

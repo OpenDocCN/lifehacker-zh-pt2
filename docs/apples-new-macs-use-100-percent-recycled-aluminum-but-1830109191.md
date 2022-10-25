@@ -4,7 +4,7 @@
 
 苹果公司秋季的第二次新闻发布会发布了一系列新设备的细节。但该公司也在环境方面做出了一些声明，这些声明引起了热议和质疑，特别是关于其 2018 年产品线将使用的回收材料。
 
-Watch
+
 
 具体来说，苹果公司宣布，其 2018 年款的 [MacBook Air](https://www.apple.com/newsroom/2018/10/all-new-macbook-air-takes-flight/) 和 [起死回生](https://gizmodo.com/heres-all-the-stuff-apple-announced-today-1830094572)[Mac Mini](https://www.apple.com/newsroom/2018/10/new-mac-mini-packs-huge-punch/)采用 100%再生铝外壳，使用定制合金，加入了制造过程中回收的多余铝。苹果声称，这些变化，以及将消费后回收塑料融入 Mac Mini，使这两款产品的总体碳足迹减少了近 50%，新的 MacBook Air 是“有史以来最环保的 Mac”
 

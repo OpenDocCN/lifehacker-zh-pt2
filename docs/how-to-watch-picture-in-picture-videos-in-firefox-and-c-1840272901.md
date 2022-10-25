@@ -4,7 +4,7 @@
 
 得益于最 [最近的火狐更新](https://blog.mozilla.org/blog/2019/12/03/news-from-firefox-on-mobile-private-network-and-desktop/) ，Mozilla 的浏览器终于可以和谷歌 Chrome 的画中画功能比肩了。众所周知，PiP 允许你在浏览其他网站的同时观看视频——如果你有最喜欢的节目不想错过，这是最终的生产力黑客。
 
-Watch
+
 
 Firefox 的版本目前仅适用于 Windows，而 Chrome 可以在所有版本的桌面浏览器上播放 PiP 视频。也就是说，Firefox 的 PiP 开箱即用要简单得多，而 Chrome 需要几个额外的步骤。以下是在这两种浏览器中开始使用的方法:
 

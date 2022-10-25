@@ -4,7 +4,7 @@
 
 Android Auto 的新版本终于来了——算是。上个月末，谷歌开始推出一款漂亮的新版 Android Auto，当你将设备*插入汽车时，你的设备*会提示你切换到新的外观和感觉。如果没有，你需要检查一个隐藏的设置来强制手动更新。
 
-Watch
+
 
 正如 [Android Police](https://www.androidpolice.com/2019/08/16/tip-if-you-still-dont-have-the-new-android-auto-check-your-app-settings/) 报道的那样，一些 Android 粉丝一直在连接和断开他们的设备与汽车的连接，却从未收到通知——我们注意到，这是一个关键的通知——升级到 Android Auto 的最新版本。虽然谷歌很可能会在某个时候自动升级*每个人的* Android Auto，但如果你现在就能访问其新版本，那就没有必要等待这一天的到来。
 

@@ -4,7 +4,7 @@
 
 昨天，Twitter 的安全遭到巨大破坏，导致各种高调的账户——从比尔·盖茨到巴拉克·奥巴马，甚至是一直沉默的苹果——在 Twitter 上发布骗局，引诱人们向匿名比特币钱包汇款。对于我们一段时间以来看到的最大的社交媒体黑客攻击之一，你无能为力，但现在你可以采取*步骤来抵御未来的灾难。* 
 
-Watch
+
 
 嗯，除了 [停用你的推特账号](https://help.twitter.com/en/managing-your-account/trouble-deactivating-twitter-account) ，那就是。
 

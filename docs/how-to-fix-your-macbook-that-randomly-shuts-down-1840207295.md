@@ -4,7 +4,7 @@
 
 你的 MacBook Pro 是否会随机关机，即使电池续航时间很长？你并不孤单；MacBook Pros 过早关机的报告出现在各种 [论坛和支持线程](https://forums.macrumors.com/threads/macbook-pro-2019-entry-level-battery-issues.2192339/) 上。到目前为止，苹果公司已经证实了 2019 年 13 英寸 MacBook Pro 的随机关机行为，尽管 [Mashable 报告了](https://mashable.com/article/macbook-pro-random-shutdown-fix/)2017 年的 13 英寸 MacBook Pro 型号也出现了类似的问题，因此该漏洞可能比苹果公司迄今为止承认的更广泛。
 
-Watch
+
 
 这是快速解决办法。这既简单又奇怪，一旦开始，你需要关闭 MacBook Pro 几个小时不使用。如果你需要你的 MacBook 来工作或学习，最好在晚上运行这个奇怪的修复程序。
 

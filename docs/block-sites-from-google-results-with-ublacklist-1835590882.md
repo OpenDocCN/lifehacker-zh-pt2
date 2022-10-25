@@ -4,7 +4,7 @@
 
 Chrome: 有时你只是不想在谷歌搜索结果中看到某个网站。也许你想屏蔽一个粗略的新闻来源，或者你不想让 Pinterest 出现在你的图片搜索结果中，或者有一个非常恶心的论坛一直出现在搜索中。一些像雅虎问答和 Quora 这样的网站有办法把大量的搜索搞得乱七八糟。你可以用 [uBlacklist Chrome 扩展](https://chrome.google.com/webstore/detail/ublacklist/pncfbmialoiaghdehhbnbhkkgmjanfhe/related?hl=en) 来阻止一个网站的未来搜索。
 
-Watch
+
 
 一旦安装了这个扩展，uBlacklist 就会在每个谷歌搜索结果中添加一个“阻止这个网站”的链接。要从搜索结果中删除某个站点，请单击该链接，然后单击“确定”。
 

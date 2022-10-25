@@ -4,7 +4,7 @@
 
 随着政府继续关闭，大都会博物馆正在为休假的联邦政府雇员提供一个机会，以 [的形式在大都会博物馆](https://www.metopera.org/user-information/free-tickets-for-furloughed-federal-employees/) 免费展示。
 
-Watch
+
 
 受持续停工影响的联邦雇员现在可以获得从今天到 2019 年 1 月 31 日在大都会歌剧院所有演出的免费门票，不包括 1 月 26 日的日场演出-他们可以带一个朋友。
 

@@ -4,7 +4,7 @@
 
 拥有一部手机已经成为童年时代的一种仪式。父母们经常纠结于*多快*快，现在 [普通孩子在 10 岁](http://influence-central.com/kids-tech-the-evolution-of-todays-digital-natives/) 收到第一部手机，12 岁就有了第一个社交媒体账户。
 
-Watch
+
 
 但科技行业的领导者们正在抵制这种新规范，他们不让自己的孩子接触手机，直到他们十几岁。
 

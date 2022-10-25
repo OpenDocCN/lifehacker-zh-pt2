@@ -4,7 +4,7 @@
 
 一场 [“炸弹旋风”周三袭击科罗拉多州](https://www.usatoday.com/story/news/nation/2019/03/14/blizzard-powerful-storm-hit-central-u-s-heavy-snow-winds/3159959002/) 。虽然这个术语听起来像是科幻小说中的东西，但它是真实的——“炸弹气旋”是一个描述炸弹形成后果的科学术语，这是另一个我很感激现在在我的词汇中的词。因此，为了理解“炸弹气旋”,你首先需要了解炸弹的形成。
 
-Watch
+
 
 ### 爆炸发生
 

@@ -4,7 +4,7 @@
 
 说到冠状病毒新闻， [不乏误传](https://lifehacker.com/how-to-tell-whos-full-of-shit-when-theyre-talking-about-1842293545) 和不良演员。如果你想从可靠的来源学习，你可能会担心你会很快用完你这个月的免费文章，然后不得不相信一堆推文。
 
-Watch
+
 
 我们稍后将讨论付费新闻的重要性。现在，让我们把重点放在实用性上:你可以免费阅读主要新闻媒体。
 

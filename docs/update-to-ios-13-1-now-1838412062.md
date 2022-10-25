@@ -4,7 +4,7 @@
 
 [iOS 13 的推出](https://lifehacker.com/what-time-will-ios-13-and-ipados-13-launch-on-thursday-1838183688) 坦率地说，有点混乱——以至于我们和许多其他人，甚至 [推荐的 iOS 用户在升级前都要等一等。](https://lifehacker.com/you-should-wait-to-upgrade-to-ios-13-1838280789) 谢天谢地，你不用再坚持了:苹果开始推出 iOS 13.1 补丁，意味着升级的时候终于到了。对于那些已经升级到 iOS 13 的人来说，今天的版本更新修复了几个错误，平滑了操作系统的性能，带来了更好的整体体验。
 
-Watch
+
 
 以下是 iOS 13.1 添加、修复或更改的所有内容:
 

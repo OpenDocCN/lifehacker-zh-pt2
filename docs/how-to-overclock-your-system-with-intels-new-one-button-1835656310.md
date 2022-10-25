@@ -4,7 +4,7 @@
 
 **Windows:** 英特尔让你的 CPU 超频变得容易多了——把它推到超过它的默认时钟速度，让它甚至更快，冒着潜在烧焦你的芯片的风险。只有一个大警告:你将需要六个受支持的第九代 CPU 中的一个(都在 Coffee Lake 家族中)才能享受其新的简单的超频实用程序。你还需要在你的一个驱动器上有 16GB 的空闲空间，但我怀疑这对大多数寻求超频系统的系统构建者来说是个问题。
 
-Watch
+
 
 首先说一下 CPU。不要安装(仅限 Windows)[**英特尔性能最大化器**](https://www.intel.com/content/www/us/en/products/docs/processors/core/performance-maximizer.html) ，除非您正处于以下状态之一:
 

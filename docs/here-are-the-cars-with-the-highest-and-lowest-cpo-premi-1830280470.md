@@ -4,7 +4,7 @@
 
 购车时，你会受到各种选择的轰炸。比如选择买新的还是二手的。如果买二手的，怎么用？ [认证二手车](https://jalopnik.com/what-is-a-certified-pre-owned-car-1595837186) 的东西值得研究吗？iSeeCars 的这篇 [新报道可能会让你的决定变得更容易一些。](https://www.iseecars.com/cars-with-lowest-cpo-premiums-study) 
 
-Watch
+
 
 买新车的好处之一是它有保修和干净的车辆历史。问题是，新车比二手车更贵。这就是为什么买家有时会寻找 CPO 车。这些都是经过制造商严格检查的二手车，通常保修时间更长，并有额外的奖励。
 

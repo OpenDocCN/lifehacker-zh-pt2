@@ -4,7 +4,7 @@
 
 这是不可避免的。在某些时候，当你给你的孩子换尿布的时候，他会开始抓他们的尿布区，而他们最终会得到一把体液(或固体)，这将是令人沮丧的。有时候你可以用一个玩具、一片干净的尿布或者一管兴奋剂来分散他们的注意力。有时，你递给他们什么，他们就扔什么，然后继续抓。
 
-Watch
+
 
 [Reddit 用户 u/wadingin3 有一个不同的解决方案](https://www.reddit.com/r/LifeProTips/comments/ch8cin/lpt_to_make_toddler_diaper_changes_easier/) 迎合了他们的音乐天性:
 

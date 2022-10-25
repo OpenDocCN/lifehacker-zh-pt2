@@ -4,7 +4,7 @@
 
 获得 [学生贷款减免](https://twocents.lifehacker.com/how-to-know-if-you-qualify-for-public-student-loan-fori-1825027661) 资格的条款和条件可能会令人困惑。就拿这些数据来说吧:截至 2018 年夏天，在申请公共服务贷款豁免的近 2.9 万人中，只有 289 人获得批准。那可是百分之九十九的拒绝率。
 
-Watch
+
 
 显然，这不是一个简单的批准过程。这是来自《两美分》读者谢尔比的电子邮件问题:
 

@@ -4,7 +4,7 @@
 
 旅行奖励信用卡的好处之一是提供信用额度的政策，这些信用额度可以从你的账单中抹去符合条件的费用。就像免费得到东西一样！但是现在，一些信用卡持卡人发现他们的美国运通信用卡被收回了。
 
-Watch
+
 
 像 [信用博士](https://www.doctorofcredit.com/american-express-claws-back-airline-credits-which-were-refunded-by-merchant/) 和 [Reddit](https://www.reddit.com/r/personalfinance/comments/gc5yh0/amex_is_clawing_back_2_years_worth_of_airline/) 这样的网站上的客户声明表明，美国运通正在清理其部分信用卡提供的航空购物积分奖励系统。收回— 是指已经支付的利益被收回的术语——似乎是为了补偿被用于不符合条件的购买或也是由商家退还的费用。
 

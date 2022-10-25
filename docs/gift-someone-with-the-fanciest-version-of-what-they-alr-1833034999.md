@@ -4,7 +4,7 @@
 
 送礼物并不是每个人的爱的语言；如果你不知道该给某人买什么，考虑一下他们喜欢用什么，然后给他们最好的礼物。这是奢华与实用的完美结合。
 
-Watch
+
 
 这个想法来自于 r/LifeProTips 上的 u/ [hubgat](https://old.reddit.com/user/hubgat) ，虽然他们把它框定为给那些 [从来不知道要什么](https://old.reddit.com/r/LifeProTips/comments/avxgfb/lpt_do_family_often_waste_money_on_gifts_that/) 的人的推荐。这与我非常相关，因为我发现接受礼物比送礼物更有压力。大多数我想要的东西，我都得到了，就像爱莉安娜·格兰德一样。对于你生活中似乎拥有一切的显贵来说，一件他们日常使用的更好的东西是一种负担得起的姿态:
 

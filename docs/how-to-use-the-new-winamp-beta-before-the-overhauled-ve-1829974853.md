@@ -4,7 +4,7 @@
 
 上周，Radionomy 首席执行官 Alexandre Saboundjian 透露，该公司计划彻底改革经典音乐播放器 WinampT3，该播放器以 iTunes 的 Windows 优先替代品而闻名，使其对我们更加注重流媒体的音频媒体世界更加重要。该版本将于 2019 年推出。
 
-Watch
+
 
 与此同时，旧的 Winamp 回来了！也就是说，它现在兼容 Windows 8 和 Windows 10，这使它成为不使用旧硬件的人更可行的选择。据 Techcrunch 报道，说实话，尽管从许多方面来看，Winamp 是一个过时的工具，自 2013 年以来就没有更新过，但它在全球范围内拥有超过 1 亿每月用户的忠实粉丝群。
 

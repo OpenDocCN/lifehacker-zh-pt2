@@ -4,7 +4,7 @@
 
 一旦你自己搬出去，开始支付自己的水电费，你可能会对能源的成本有一个粗鲁的觉醒。如果你以前从未考虑过像用电这样的事情，你可以花一分钟时间养成这样的习惯，不仅在离开房间时关灯，还要考虑家里的其他电器。
 
-Watch
+
 
 解决省钱和节能需求的显而易见的办法是研究节能电器[太阳能电池板](https://lifehacker.com/how-to-decide-whether-to-install-solar-panels-for-your-1719858560) 或 [节能插座](https://lifehacker.com/belkin-conserve-insight-energy-use-monitor-keeps-tabs-o-5917802) 。不幸的是，这些都要花钱。那么，有环保意识和预算意识的人应该怎么做呢？
 

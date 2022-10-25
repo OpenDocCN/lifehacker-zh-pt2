@@ -4,7 +4,7 @@
 
 堕胎是目前可用的 [最安全和最常见的门诊手术](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5870078/) 之一。尽管四分之一的美国女性选择终止妊娠，但共和党的恐惧和极端主义让堕胎变得越来越难以实现，也越来越难以讨论。
 
-Watch
+
 
 虽然面对这种侵犯基本人权的行为，人们很容易感到无助，但还是有切实可行的方法可以提供帮助: [向堕胎基金捐赠](http://one of the safest and most common out-patient surgeries that exists,) ，志愿担任诊所陪护，以及支持支持堕胎的立法。另一个更个人化的直接行动是向寻求堕胎的朋友或家庭成员提供支持。Jezebel 采访了美国计划生育联合会医疗服务高级主任 Gillian Dean 博士，讨论如何最好地与正在接受堕胎或经历过流产的人交谈。
 

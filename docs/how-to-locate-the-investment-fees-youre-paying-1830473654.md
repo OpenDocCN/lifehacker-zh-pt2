@@ -4,7 +4,7 @@
 
 你上一次阅读 401(k)计划提供者发给你的电子邮件，或者下载你所投资的基金的说明书是什么时候？去年？你第一次注册的时候。从来没有？
 
-Watch
+
 
 如果你没有，那么你可能不知道你支付的费用。事实上，根据来自 [NerdWallet](https://www.nerdwallet.com/blog/investing/when-it-comes-to-financial-fees-americans-dont-even-know-where-to-look/) 的一项新调查，53%拥有投资账户的美国人找不到他们账户上的费用。从长远来看，这可能意味着会失去很多钱。
 

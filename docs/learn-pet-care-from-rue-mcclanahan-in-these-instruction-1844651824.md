@@ -4,7 +4,7 @@
 
 新冠肺炎疫情重新唤起了人们对传统爱好的兴趣，比如手工艺、编织和园艺，以及其他能让我们在艰难时期感觉更好的活动。两种更受欢迎的消遣/应对机制是 [领养宠物](https://www.usatoday.com/story/life/2020/04/28/coronavirus-empties-animal-shelter-cages-but-pets-still-need-adopting/3023196001/) ，以及 [看《黄金女郎》](https://www.nytimes.com/2020/04/30/business/media/coronavirus-television-netflix-ratings.html)
 
-Watch
+
 
 如果我们告诉你有一种方法可以将两者结合起来(除了阅读 [贝蒂·怀特关于动物的书籍](https://www.smithsonianmag.com/science-nature/betty-white-on-her-love-for-animals-92610121/) )会怎么样？是真的:有。它以 1990 年发布的一系列教学视频的形式出现，由 Rue McClanahan(因在标志性情景喜剧 [中扮演 Blanche Devereaux 而闻名)讲述宠物护理](https://www.kqed.org/arts/13884491/watch-golden-girl-rue-mcclanahans-hilarious-1990-videos-about-pet-care) 。以下是如何观看它们以及您必须期待的内容。
 

@@ -4,7 +4,7 @@
 
 如果你要从 2017 年的 Equifax 数据泄露中索赔 125 美元的和解金，不要把这笔额外的现金加入你的预算中，因为你可能不会得到全额。
 
-Watch
+
 
 正如 Equifax 在其 [结算常见问题](https://www.equifaxbreachsettlement.com/faq) 中解释的那样，如果太多的人要求现金，就不会有足够的现金。
 

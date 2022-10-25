@@ -4,7 +4,7 @@
 
 “我知道如果你搜索‘马厩垫’的话，健身垫会更便宜，”redditor MMAJakob 在 r/节俭网站上说。“如果你把婚礼也称为生日派对，那它就便宜多了。 [有哪些其他的东西，当你称它为别的东西时会变得更便宜？](https://www.reddit.com/r/Frugal/comments/9uxfx1/cheaper_names_for_things/) “下面是一些来自跟帖的最佳答案。
 
-Watch
+
 
 当然，用户 mareish 回答说，健身房的垫子已经比马垫便宜了——每样东西的价格都不一样，所以不要在没有快速仔细检查的情况下就按照下面的提示行动。
 

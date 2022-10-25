@@ -4,7 +4,7 @@
 
 人们很容易被所有的事情弄得不知所措。所有你不得不回复的人(通常以悲伤的开场白“抱歉延迟回复…”).所有你应该写的字。所有你承诺在跑步机上跑步的时间，所有你说要准备的食物，所有你几个月来一直想扔掉的壁橱杂物。
 
-Watch
+
 
 也许你已经开始了一项任务，但却陷入了困境，被你面前巨大的山峰所麻痹。与其放弃，不如告诉自己:**再来五个**。在一篇关于 [的文章中，卫报解释了“五更法则”](https://www.theguardian.com/lifeandstyle/2018/oct/14/the-lost-art-of-concentration-being-distracted-in-a-digital-world)
 

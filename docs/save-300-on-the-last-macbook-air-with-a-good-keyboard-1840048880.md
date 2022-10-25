@@ -4,7 +4,7 @@
 
 问题:你想要一台没有蹩脚键盘的 Mac，但是你买不起(或者不需要)全新的 16 英寸 MacBook Pro。你可以去淘一台 2015 年的 MacBook Pro——一台我越来越喜欢的 Mac——或者买一台更便宜、功能更弱的替代品:2017 年的 MacBook Air， [现在打折 300 美元](https://smile.amazon.com/Apple-MacBook-1-8GHz-dual-core-Intel/dp/B07211W6X2?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/save-300-on-the-last-macbook-air-with-a-good-keyboard-1840048880&asc_source=&tag=kinjalifehackerlink-20) 。
 
-Watch
+
 
 MacBook Air 的规格不会让你大吃一惊:1.8GHz 英特尔酷睿 i5 Broadwell 处理器，8GB 内存和 128GB 固态硬盘。不过，它的重量只有 3 磅，如果你只是在旅行时需要一些小东西，它的 13.3 英寸屏幕非常棒。(我不会把它作为我的主要电脑，但这只是我的想法。)它还拥有 2x2 wireless-ac，如果你的路由器配备类似的设备，至少可以让你获得一些不错的 wifi 速度。
 

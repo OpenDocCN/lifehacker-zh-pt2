@@ -4,7 +4,7 @@
 
 在 Lifehacker 上，我们每周都会在一个名为 [我如何工作](https://lifehacker.com/c/how-i-work) 的专栏中采访一位成功人士，询问他们的职业和工作习惯。每周我们都会问他们，“你收到过的最好的建议是什么？”以下是 2018 年嘉宾给我们的最好回答。
 
-Watch
+
 
 ## [罗珊妮同性恋，作者](https://lifehacker.com/im-author-roxane-gay-and-this-is-how-i-work-1820994345)
 

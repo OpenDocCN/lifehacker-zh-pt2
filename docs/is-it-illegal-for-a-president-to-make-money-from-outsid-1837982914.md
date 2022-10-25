@@ -4,7 +4,7 @@
 
 上周，美国副总统迈克·彭斯访问了爱尔兰都柏林，参加了几场会议——但令人困惑的是，他住在 200 英里外 T3[附近的一家川普酒店。就在昨天，美国空军因在苏格兰川普酒店过夜加油而受到审查。特朗普本人最近](https://www.vox.com/policy-and-politics/2019/9/3/20847247/mike-pence-ireland-doonbeg-trip-180-miles-away-trump-hotel) [提议](https://www.usatoday.com/story/news/politics/2019/08/26/trump-and-g-7-presidents-florida-golf-resort-may-host-2020-gathering/2118304001/) 在他位于佛罗里达州多拉尔的酒店举办下一届七国集团峰会。“我在各地都有很多酒店，人们使用它们是因为它们是最好的，”特朗普在回答关于彭斯最近入住的问题时说。
 
-Watch
+
 
 诸如此类的案件现在引发了民主党人对特朗普总统的更大规模调查，特朗普总统通过利用他的办公室引导客户转向他的企业，从他的总统任期中获利。根据《纽约时报》上周末发表的一篇报道 ，川普的房产已经接待了外国领导人、国会共和党议员、游说者和政治候选人等数以千计的来访。根据 [响应政治中心](https://www.opensecrets.org/trump/trump-properties?cycle=All) 的分析，他们已经花费了不到 1900 万美元来使用特朗普的财产，其中大部分是在特朗普已经成为总统之后。
 

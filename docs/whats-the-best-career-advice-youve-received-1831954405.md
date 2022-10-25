@@ -4,7 +4,7 @@
 
 通常最好的建议是最简单的建议。无论是关于 [金钱](https://twocents.lifehacker.com/your-finances-should-be-boring-1823831040) 还是 [生产力](https://lifehacker.com/ease-up-on-your-morning-routine-1831875238#_ga=2.129016005.810605957.1548165195-594046802.1524762060) ，看似微不足道的小事却能产生最大的差异。
 
-Watch
+
 
 尤其是在职业方面，一次灵感的迸发足以让你走上一条充实的道路。在 Man Repeller，哈林·罗斯 [写道](https://www.manrepeller.com/2018/03/best-career-advice.html) 她从大学导师那里得到的一点建议改变了一切:
 

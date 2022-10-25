@@ -4,7 +4,7 @@
 
 有学校智能，街道智能，商业智能，但我们往往忘记了感觉智能:情商。就像你批判性思考的能力一样，你阅读和表达情感的能力也是可以培养的。
 
-Watch
+
 
 所有旨在逐渐提高能力的练习都包括奉献，这包括提高一个人的“情商”作者贾斯汀·巴里索 [为 Inc.com 写了](https://www.inc.com/justin-bariso/21-ways-to-improve-your-emotional-intelligence-using-just-a-few-minutes-a-day.html?cid=landermore) 他的新书《应用的*情商:情商的真实世界指南*充满了每天只需几分钟就能应用的技巧，但是要坚持不懈。这些只是开始理解你自己和别人的感受的基础，它始于拥有知道你需要它的情感成熟。
 

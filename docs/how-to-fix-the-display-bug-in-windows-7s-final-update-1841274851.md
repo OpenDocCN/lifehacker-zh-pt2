@@ -4,7 +4,7 @@
 
 Windows 7 的“最终”更新， [版本 KB4534310](https://support.microsoft.com/en-us/help/4534310/windows-7-update-kb4534310?ranMID=43674&ranEAID=je6NUbpObpQ&ranSiteID=je6NUbpObpQ-m.IQX_F6XBCQ2DAoMNnnVA&epi=je6NUbpObpQ-m.IQX_F6XBCQ2DAoMNnnVA&irgwc=1&OCID=AID2000142_aff_7795_1243925&tduid=(ir__rqecia0stkkftwf2kk0sohzg2n2xllytu1wegusv00)(7795)(1243925)(je6NUbpObpQ-m.IQX_F6XBCQ2DAoMNnnVA)()&irclickid=_rqecia0stkkftwf2kk0sohzg2n2xllytu1wegusv00) ，显然引入了一个新的错误，需要至少再打一个补丁才能消除。这个 bug 是良性的——它所做的只是在你设置为“拉伸”时导致你的桌面壁纸变黑——但它仍然很烦人。
 
-Watch
+
 
 幸运的是，微软有几个解决办法可以修复显示错误，所以如果你不耐烦的话，你就不必等待补丁了。仍然有趣的是，微软上一次计划的 Window 7 更新 将需要另一个补丁来修复新的漏洞，但考虑到该公司的 [漏洞更新记录](https://lifehacker.com/how-to-work-around-windows-10s-latest-update-issues-1838107037) ，这并不令人惊讶。
 

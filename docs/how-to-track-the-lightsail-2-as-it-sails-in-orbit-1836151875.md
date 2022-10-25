@@ -4,7 +4,7 @@
 
 上周， [光帆 2 号](http://www.planetary.org/explore/projects/lightsail-solar-sailing/#the-spacecraft) 正式与地球进行了第一次接触。太阳能航天器将在明年绕地球轨道航行，这是证明太阳能航行是一种可行的太空探索模式的任务的一部分。
 
-Watch
+
 
 如果成功，太阳能帆船有望用于未来的其他航天器，这将使我们能够以比目前更低的成本探索太空。
 

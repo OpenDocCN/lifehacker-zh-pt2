@@ -4,7 +4,7 @@
 
 据称，千橡枪击案发生前几年，千橡枪击案凶手 [袭击了他的田径教练](https://losangeles.cbslocal.com/2018/11/08/thousand-oaks-gunman-high-school-coach-assault/) 。她被鼓励保持沉默。佛罗里达州高中枪手 [涉嫌虐待、威胁、跟踪](https://www.washingtonpost.com/graphics/2018/national/timeline-parkland-shooter-nikolas-cruz/?utm_term=.4b9f0a53e648) 他认识的人。拉斯维加斯枪手涉嫌 [当众辱骂女友](https://www.independent.co.uk/news/world/americas/stephen-paddock-vegas-shooting-gunman-abusing-girlfriend-public-a7981866.html) 。没有万无一失的方法知道谁将成为下一个大规模射击，但危险信号的模式已经出现。
 
-Watch
+
 
 联邦调查局 [今年早些时候发布了一份关于大规模枪击案](https://www.fbi.gov/file-repository/pre-attack-behaviors-of-active-shooters-in-us-2000-2013.pdf/view)[石英报告](https://qz.com/1456558/the-fbis-warning-signs-of-a-mass-shooter/) 的“攻击前行为”的报告。63%是白人，和美国人口差不多。94%是男性。联邦调查局在报告的结论中写道:
 

@@ -4,7 +4,7 @@
 
 大 iFixit 拆机完成， [结果在](https://www.ifixit.com/Teardown/MacBook+Pro+16-Inch+2019+Teardown/128106) 。新的 16 英寸 MacBook Pro 与旧的 15 英寸 MacBook Pro 非常相似，除了一些有意义的复古功能。是的，我指的是 retro 中的 retro back——就像苹果实际上从旧的 MacBooks 中取出退役的功能，然后作为新功能重新引入。在总部位于库比蒂诺的计算机公司，创新的未来似乎是我称之为倒带设计。
 
-Watch
+
 
 我不是在抱怨。16 英寸的 MacBook Pro [看起来就像一台地狱般的笔记本电脑](https://gizmodo.com/yep-theres-a-giant-new-macbook-pro-and-yep-apple-imp-1839825979) ，起价 2400 美元也应该如此。新机器配备了更大的显示屏，更大的电池，更好的扬声器，以及全新的 AMD 显卡。然后就是那些复古的特点。有一个物理退出按钮，就像 Touch Bar 兴起之前 MacBook Pros 上的一样。箭头键再次排列成倒“T”形，就像它们几十年来一直在键盘上一样。新的“魔法键盘”使用了一个剪刀开关，与苹果 [近五年前发布的蓝牙魔法键盘几乎相同。](https://gizmodo.com/apples-new-magic-keyboard-and-mouse-make-typing-fun-aga-1736799194)
 

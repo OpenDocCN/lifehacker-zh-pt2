@@ -4,7 +4,7 @@
 
 欢迎回到我们的每周讨论主题，现在命名为冠状病毒圆桌会议。我想再一次听听你听到的关于我们现在的疫情的事情，特别是如果它让你去“嗯，那是真的吗？”
 
-Watch
+
 
 上周 我们谈到了关于公共卫生组织是否应该建议每个人戴口罩的争论。疾控中心最后说 [是的，如果他们是布口罩](https://www.cdc.gov/coronavirus/2019-ncov/prevent-getting-sick/diy-cloth-face-coverings.html) 。接下来我们给出了一些关于 [的建议，告诉你如果你戴着布面具](https://vitals.lifehacker.com/what-to-know-if-youre-wearing-a-cloth-mask-in-public-1842706701) 该知道些什么，尽管事实上并没有太多可靠的证据。
 

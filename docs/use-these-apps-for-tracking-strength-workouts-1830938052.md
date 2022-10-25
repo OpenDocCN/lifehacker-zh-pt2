@@ -4,7 +4,7 @@
 
 有很多很棒的应用程序可以记录你的跑步里程，当谈到骑自行车时，显然是赢家( [Strava](https://lifehacker.com/the-best-fitness-tracking-apps-for-every-type-of-exerci-1482693352) ，咄)。但是当你在体育馆举重的时候，要选出一个冠军就有点困难了。直到最近，所有的应用程序都很笨重，难以使用。现在...嗯，他们中只有*一些*是。
 
-Watch
+
 
 ### **我们的最爱:强**
 

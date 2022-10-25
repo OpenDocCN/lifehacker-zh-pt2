@@ -4,7 +4,7 @@
 
 新冠肺炎疫情对美国经济造成了毁灭性的影响。尽管上个月雇主增加了数量可观的新工作岗位，失业率仍保持在两位数。尽管国会已经通过了三个 [经济刺激方案](https://home.treasury.gov/policy-issues/cares)——总计近 3 万亿美元——许多人仍然勉强度日。
 
-Watch
+
 
 为了应对疫情，一些银行通过收紧贷款标准或削减消费信贷来降低风险。根据最近的一份 [信用卡对比报告](https://www.comparecards.com/blog/credit-card-limit-reduced-card-closed/) ，5000 万信用卡持有者的信用额度被降低——有些人的信用卡已经被完全关闭。
 

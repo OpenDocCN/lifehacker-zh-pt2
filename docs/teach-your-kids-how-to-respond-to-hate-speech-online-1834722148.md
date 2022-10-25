@@ -4,7 +4,7 @@
 
 阻止我让我八岁的儿子和他所有的朋友一起玩流行的在线多人游戏的主要原因不是担心他会把个人信息泄露给讨厌的人。而是我不想让他接触到网上如此盛行的仇恨言论。
 
-Watch
+
 
 我和我的孩子 [经常谈论种族](https://offspring.lifehacker.com/how-to-talk-to-young-kids-about-race-1797811655?_ga=2.241195714.171784206.1557094295-1940201396.1552611778) 和种族主义 [如何成为有色人种的盟友](https://offspring.lifehacker.com/how-to-teach-kids-to-stick-up-for-their-marginalized-pe-1798560929) 。我们谈论不同的宗教，以及变性意味着什么，对女性说哪些话是尊重的，哪些话不是。我尽量不让任何话题成为禁区，尤其是当涉及到我们如何待人接物以及如何与他人沟通时。
 

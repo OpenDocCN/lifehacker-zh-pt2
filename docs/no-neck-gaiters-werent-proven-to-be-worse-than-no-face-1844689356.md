@@ -4,7 +4,7 @@
 
 有一项新的研究声称 [像 buff](https://buffusa.com/how-to-wear)一样的颈部绑腿比根本不戴面具更糟糕。我不认为这项研究应该从表面价值来看，但也有理由怀疑 Buffs、bandanas 和其他不是设计来做面具工作的面部覆盖物。
 
-Watch
+
 
 (需要明确的是:Buff 是一家生产轻薄的弹力颈部绑腿的公司，这种绑腿被许多人以“Buff”的名字命名。 [他们*还*特制了一个面具](https://buffusa.com/shop-buff/filter-mask.html) 。我们在这里讨论的研究中没有测试过这个面具。)
 

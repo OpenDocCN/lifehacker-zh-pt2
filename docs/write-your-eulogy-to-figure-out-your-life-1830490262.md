@@ -4,7 +4,7 @@
 
 人类醒着的时候会花很多时间来避免思考我们不可避免的结局。这可能是最好的，因为沉湎于死亡是一种病态的练习。但是，事实证明，当你试图弄清楚自己的生活时，这也是一件非常有用的事情。
 
-Watch
+
 
 科技公司和首席执行官们已经接受了一种特定的思维实验，作为决定他们下一步做什么的方式，他们在其中写下自己的悼词。它之所以流行，部分是因为一个名为“打造冠军”的教练小组；他们的高管教练丹尼尔·哈卡维 [与](https://www.fastcompany.com/90266043/how-vividly-imagining-your-own-death-can-help-your-next-career-move?utm_source=feedly&utm_medium=webfeeds) Fast Company 谈论了这项技术，以及它为什么有效。
 

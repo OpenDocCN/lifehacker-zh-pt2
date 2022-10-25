@@ -4,7 +4,7 @@
 
 *欢迎来到* [*向凯特询问啤酒*](https://thetakeout.com/tag/ask-kate-about-beer) *，其中*外卖*的常驻啤酒专家回答了你曾经想知道的关于啤酒却又醉得不敢问的一切。有问题吗？把它拍给 beer@thetakeout.com。*T12】
 
-Watch
+
 
 * * *
 

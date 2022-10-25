@@ -4,7 +4,7 @@
 
 作为第一次园丁，我的许多失败之一是让我的绿色植物结籽。我没有收获精心照料的羽衣甘蓝和莴苣，而是等了太久，结果一无所获。
 
-Watch
+
 
 然而，事实证明，从蔬菜中获取种子并不是一件坏事。你可以( [或许应该](https://www.nytimes.com/2020/08/05/realestate/garden-vegetables-save-seeds-build-supply.html) )为未来的季节保留一些种子。以下是如何收集、保存和储存你花园里的种子。
 

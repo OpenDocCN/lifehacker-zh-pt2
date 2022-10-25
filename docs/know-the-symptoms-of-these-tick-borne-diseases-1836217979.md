@@ -4,7 +4,7 @@
 
 蜱虫在美国很多地方越来越常见，而且 [了解你所在地区的蜱虫](https://lifehacker.com/know-these-tick-species-to-stay-safe-outdoors-1836082172) 很有好处，因为它们有不同的种类。了解常见蜱传疾病的症状也很好，以防万一你被咬了，开始感觉不舒服。
 
-Watch
+
 
 这份清单并没有包括壁虱可能携带的所有疾病(有很多)，但我们试图包括最常见的疾病，以及一些已经得到一些媒体报道的罕见疾病。如果有人死于一种罕见的蜱传疾病，当地新闻会在 *it* 上*。但重要的是要记住，罕见的疾病是罕见的。你不必惊慌，但你或许应该 [使用杀虫剂，并检查自己是否有虱子](https://vitals.lifehacker.com/youre-probably-going-to-get-a-tick-this-summer-good-lu-1793895235) 。*
 

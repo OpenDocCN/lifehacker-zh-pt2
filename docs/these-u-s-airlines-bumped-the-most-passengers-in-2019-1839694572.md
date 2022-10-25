@@ -4,7 +4,7 @@
 
 超售航班回来了，宝贝！2017 年春天，在 [之后，一名男子被强行拖下超额预订的联合航空](https://gizmodo.com/united-ceo-doubles-down-blames-passenger-who-got-his-a-1794203925) 航班，联合航空首席执行官*指责该男子*，航空公司在只出售飞机上实际座位数量方面有了显著改善。到 2018 年年中，只有事件发生前的六分之一的“颠簸”乘客。但是，据旅游网站 UpgradedPoints.com 介绍， [的颠簸率又翻了三番](https://upgradedpoints.com/us-airlines-most-likely-to-bump-you-data-study/) 。
 
-Watch
+
 
 今年 3 月，在两起坠机事件导致数百名乘客和机组人员死亡后，美国终于加入世界其他国家的行列，停飞了所有波音 737 Max-8 和 Max-9 飞机。就在白宫让他们停止之前，西南航空和美国航空 [告诉 Gizmodo](https://gizmodo.com/which-u-s-airlines-operate-the-boeing-737-max-8-1833200705) 他们计划继续飞行这些飞机，非常酷，并且已经向波音公司订购更多。
 

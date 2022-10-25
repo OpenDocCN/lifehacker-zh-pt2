@@ -4,7 +4,7 @@
 
 每年升级到新 iPhone 的一个好处是，新的总是感觉快得多。对我们大多数人来说，这是一种美好的感觉，我们就此打住。手机感觉很快，然后我们习惯了这种速度，然后下一个出现了... *ooooh，*那是*快*！
 
-Watch
+
 
 如果你有兴趣了解更多关于最新手机有多快的信息，科技博客 [AnandTech](https://www.anandtech.com/show/14892/the-apple-iphone-11-pro-and-max-review) 发布了对 iPhone 11 和 iPhone 11 Pro 的评论，其中包括对苹果 A13 pro 处理器的详细分析，这是新 iPhone 内部的 CPU。Anandtech 发表了一些最详细的技术评论，他们的 iPhone 评论包括许多分析，如果你想更好地了解你的口袋电脑，你可能会感兴趣。
 

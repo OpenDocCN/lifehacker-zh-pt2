@@ -4,7 +4,7 @@
 
 谷歌录音机 [是你在 Pixel 4 和 Pixel 4 XL 上发现的最好的应用](https://gizmodo.com/the-new-pixel-4-real-time-transcription-app-is-amazing-1839408583) 之一，这要感谢它能够 [自动转录捕获的音频](https://lifehacker.com/use-the-pixel-4s-live-caption-feature-to-transcribe-mut-1839362089) 甚至为静音的视频创建字幕。现在我们有好消息给其他像素的所有者:谷歌终于将这款应用移植到 Pixel 2、Pixel 3 和 Pixel 3a 智能手机上(以及它们更大的 XL 版本)。
 
-Watch
+
 
 即使你没有一个像素，你也可能运气不错。 [安卓警方报告](https://www.androidpolice.com/2019/12/05/google-recorder-pixel-2-pixel-3-download/) 称，许多用户已经将谷歌记录器侧装到非 Pixel 手机上，并获得了不同程度的成功。
 

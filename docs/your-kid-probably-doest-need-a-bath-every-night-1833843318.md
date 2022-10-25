@@ -16,7 +16,7 @@
 
 很自然地，t he 入场 [促使了源源不断的迷因](https://www.newsweek.com/mila-kunis-ashton-kutcher-bathing-admission-reaction-memes-1613865) ，但是平心而论，孩子们*不需要那么频繁地被擦洗。事实上，你可能已经*超过*了——给它们洗澡。如果你想让你的孩子保持相对干净，而又不想让他们完全库奇库尼，这里有一个按年龄给他们洗澡的指南。*
 
-Watch
+
 
 ### 婴儿
 

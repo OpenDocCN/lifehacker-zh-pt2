@@ -4,7 +4,7 @@
 
 [iOS 13](https://www.apple.com/ios/ios-13-preview/) ， [macOS Catalina](https://www.apple.com/macos/catalina-preview/) ， [iPadOS](https://www.apple.com/ipados/ipados-preview/) ， [tvOS 13](https://www.apple.com/apple-tv-4k/) 的公测版终于面世了。这里有一个如何注册的快速回顾，以及测试人员可以从这些测试版本中得到什么。
 
-Watch
+
 
 ### 如何注册和下载 iOS 13、macOS Catalina、iPadOS 和 tvOS
 

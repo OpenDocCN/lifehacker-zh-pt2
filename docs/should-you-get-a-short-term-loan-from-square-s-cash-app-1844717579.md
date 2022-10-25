@@ -4,7 +4,7 @@
 
 Square 的 [现金应用](https://cash.app/)——一种点对点支付服务——目前正在测试精选用户的短期贷款。 [据 TechCrunch 报道](https://techcrunch.com/2020/08/12/square-cash-app-borrowing/) ，Cash App 正在提供小额贷款，还款期限为四周。虽然这项新功能仅面向 1000 名 Cash 应用用户，但该公司未来可能会推出更广泛的应用。
 
-Watch
+
 
 它是这样工作的:现金应用程序用户可能会在应用程序内要求 20 到 200 美元的小额贷款。TechRadar 说, 有即时审批，用户有四周时间偿还贷款。Cash App 目前提供 5%的固定费用，相当于每年 60%的年利率。
 

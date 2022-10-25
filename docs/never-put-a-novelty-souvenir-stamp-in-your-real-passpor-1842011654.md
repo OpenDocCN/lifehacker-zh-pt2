@@ -4,7 +4,7 @@
 
 如果你是一个经常旅行的人，那么有一天你可能会遇到一个提供护照纪念邮票的机会。南极洲的一些科考站提供邮票，马丘比丘 [在印加遗址](https://treehouselodge.com/where-to-get-your-passport-stamped-in-machu-picchu/) 的入口处提供邮票，威尔士的 llanfairpwllgwyngyllgolgogerychyrndrobwllllantysiliogogogogoch 镇提供一种特殊的邮票，你可以在它的一家商店把它放在你的护照上。除了你不应该。至少你的护照上没有。
 
-Watch
+
 
 在你的美国护照的第五页上，你会发现一个说明，上面写着“涂改或毁损护照”是不允许的，“只有美国或外国的授权官员可以在本护照上盖章或做批注或添加内容。”本周 Travel + Leisure 贴出了一个英国女人 Tina Sibley 的故事，她没有在她的英国护照上写类似的警告，而是加了一个 Machu Pichu 印章，实际上使她的护照在这个过程中失效了。
 

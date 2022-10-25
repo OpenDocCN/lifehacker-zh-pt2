@@ -4,7 +4,7 @@
 
 委婉地说，冠状病毒是一个令人头疼的问题。我们已经看到大型团体活动和会议的大规模取消，你的雇主可能会鼓励你在家工作，直到一切平息。为了帮助简化这一过程，谷歌和微软正在加紧提供有限时间的免费会议工具。虽然有一点点利他主义和一点点良好的公共关系，自由软件就是自由软件。
 
-Watch
+
 
 在 [**谷歌的**](https://cloud.google.com/blog/products/g-suite/helping-businesses-and-schools-stay-connected-in-response-to-coronavirus) 方面，该公司最近宣布，它将为任何使用 G Suite 或 G Suite 进行教育的人提供免费访问 Hangouts Meet 中的高级功能。具体来说，你会得到 [三个临时升级](https://cloud.google.com/blog/products/g-suite/helping-businesses-and-schools-stay-connected-in-response-to-coronavirus) :
 

@@ -4,7 +4,7 @@
 
 如果你追求财务独立和提前退休，你可能听说过 4%规则:当你计算你的投资组合是否能支付你的生活费用时，假设 4%的提款率。
 
-Watch
+
 
 [CampfireFinance](https://www.campfirefinance.com/4-percent-rule/) 很好地总结了为什么 4%法则有效，至少在理论上是这样:
 

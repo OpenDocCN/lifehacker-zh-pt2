@@ -4,7 +4,7 @@
 
 Gmail 的收件箱可能已经死了 ，但谷歌至少正在努力让核心的 Gmail 体验变得更好，截至 [谷歌对电子邮件服务的最新更新](https://cloud.google.com/blog/products/g-suite/15-years-and-counting-making-gmail-work-faster-and-smarter-for-businesses) ，你将不再需要依赖第三方 Chrome 扩展来安排你的邮件。
 
-Watch
+
 
 在此功能之前，Gmail 用户必须依赖第三方应用程序或扩展程序，如 Boomerang 或 IFTTT，以便稍后安排他们的邮件，尽管最近的变化取消了 IFTTT 支持。令人欣慰的是，Gmail 的原生日程安排功能比安装第三方扩展更容易，并且更优雅地集成到 Gmail 界面中。
 

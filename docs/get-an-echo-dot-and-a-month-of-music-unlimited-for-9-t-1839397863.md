@@ -4,7 +4,7 @@
 
 亚马逊今天正在开展一项促销活动，将允许你以 8.98 美元的价格带走一个 Echo Dot，这比其正常价格优惠了很多。
 
-Watch
+
 
 想要得到它，你只需要 [去这个具体的商品页面](https://www.amazon.com/gp/product/B07XF1TSJR/ref=as_li_qf_asin_il_tl?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/get-an-echo-dot-and-a-month-of-music-unlimited-for-9-t-1839397863&asc_source=&creative=9325&creativeASIN=B07XF1TSJR&ie=UTF8&linkCode=as2&linkId=44e34d9db8a498d3ca5b90647a24f059&tag=kinjalifehackerlink-20) 。你不是花 8.98 美元购买一个 Echo Dot，而是花 0.99 美元购买一个 Echo Dot，并注册一个月的亚马逊音乐无限服务。
 

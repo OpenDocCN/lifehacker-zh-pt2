@@ -4,7 +4,7 @@
 
 欢迎来到 2019 年。我们现在都变得更好，更有责任感了，这难道不好吗？我们正在 [控制我们的支出](https://twocents.lifehacker.com/how-to-prepare-for-a-no-spend-month-1831401525)[擅长我们的爱好](https://lifehacker.com/become-a-better-photographer-with-this-52-week-photo-ch-1831420107) 并且用技术 建立 [更好的界限。](https://lifehacker.com/how-to-mindfully-break-up-with-your-phone-1825587301) 
 
-Watch
+
 
 我们也不再为金融产品 支付 [费用(或者至少，我们将支付的费用降至最低)。2019 年版的我们知道支付费用会如何](https://twocents.lifehacker.com/401-k-fees-you-need-to-know-1825819800) [破坏我们的长期财务](https://twocents.lifehacker.com/how-to-balance-your-short-and-long-term-financial-goal-1830853590) ，考虑到我们今年为自己设定的 [崇高的金钱目标](https://twocents.lifehacker.com/its-time-to-set-your-2019-money-goals-1830990890) ，这是不能容忍的。
 

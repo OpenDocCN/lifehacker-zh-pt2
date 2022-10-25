@@ -4,7 +4,7 @@
 
 我对 tamagoyaki 的喜爱已经有据可查，正如我对 [一次性用具](https://skillet.lifehacker.com/streamline-your-kitchen-countertop-with-these-rules-1796236035) 的反感一样。后者配有一个非常小的厨房，使我无法购买制作小烤鸡蛋方块所需的方形平底锅，这很可悲，因为我太喜欢它们了。
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Make Sous-Vide Japanese Omelets](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/these-sous-vide-egg-bites-are-better-than-starbucks-1838094893)</aside>
 

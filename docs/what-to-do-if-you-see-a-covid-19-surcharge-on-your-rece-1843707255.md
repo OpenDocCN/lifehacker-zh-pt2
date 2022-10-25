@@ -4,7 +4,7 @@
 
 如果你开始冒险回到社会中购买任何种类的商品和服务，看看你的收据:你可能会发现你被征收了与正在进行的疫情相关的附加费。
 
-Watch
+
 
 被列为“新冠肺炎附加费”的东西可以是任何东西。对于一家发廊来说，也许的 3 美元费用变成了额外的清洁用品费用。在 [餐厅](https://www.today.com/food/what-covid-19-surcharge-why-some-restaurants-are-adding-extra-t181450) ，附加费可用于反映波动的食材成本。
 

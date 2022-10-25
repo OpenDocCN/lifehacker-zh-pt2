@@ -4,7 +4,7 @@
 
 正如你们中的一些人所知，我可以吃我面前的任何东西。我曾经试着把一整顿 surf 'n' turf 晚餐 榨成一杯奶昔(不要这么做)，我 [尝了一串胶棒](http://www.thepizzle.net/schools-out-for-summer-the-glue-stick-taste-test/) 看看我是否喜欢。我还活着真是个奇迹。 [作为一名厨师](https://thetakeout.com/can-you-have-too-much-pepperoni-on-a-pizza-1829350346) ，我喜欢摆弄配料的挑战，只是为了看看我是否能让技术发挥作用，就像我今年早些时候处理的[Flamin ' Hot Cheeto challenge](https://thetakeout.com/i-tried-very-hard-to-cook-with-flamin-hot-cheetos-1826244509)一样。
 
-Watch
+
 
 然而，我从来没有真正摆弄过的东西是大脑。大多数内脏在精神上更容易处理，但出于某种原因，大脑是一些下一级的狗屎。
 

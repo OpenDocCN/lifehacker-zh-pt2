@@ -4,7 +4,7 @@
 
 西北大学和马萨诸塞大学阿默斯特分校最近的一项研究发现，美国的每个主要运营商都人为降低了来自网飞、Hulu 和 YouTube 等网站的视频速度。
 
-Watch
+
 
 如果你想知道你的运营商是否在限制你的移动视频数据， *CNET* [本周推出了一款应用](https://www.cnet.com/how-to/your-carrier-could-throttle-your-streaming-netflix-and-youtube-videos-heres-how-you-test/) 可以帮上忙。
 

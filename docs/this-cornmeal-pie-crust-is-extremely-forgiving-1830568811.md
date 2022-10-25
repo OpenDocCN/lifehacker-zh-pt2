@@ -4,7 +4,7 @@
 
 [正如我之前提到的](https://skillet.lifehacker.com/this-pumpkin-icebox-cake-is-the-perfect-thanksgiving-tr-1830468906) ，我并不是一个热情的面包师。因此，我欣赏一个能原谅和忘记我的缺点的馅饼面团，尤其是如果它能被一起扔进食品加工机的话。来自 Dolester Miles 的玉米粉面包皮就是所有这些东西，*和*非常好吃。
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled This Cornmeal Pie Crust Is Extremely Forgiving](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/make-a-superior-thanksgiving-pie-with-sweet-potatoes-1830383070)</aside>
 

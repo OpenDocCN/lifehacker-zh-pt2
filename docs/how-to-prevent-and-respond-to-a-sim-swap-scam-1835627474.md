@@ -4,7 +4,7 @@
 
 当 ZDNet 的 [马修·米勒](https://www.zdnet.com/article/sim-swap-horror-story-ive-lost-decades-of-data-and-google-wont-lift-a-finger/) 受到 SIM 交换攻击时，他形容这是一个“恐怖故事”，导致他丢失了“几十年的数据”他没有夸张；一个多星期后，他仍在处理后遗症，一些主要的技术公司——包括推特和谷歌——都不能保证他能够重新获得被攻击者搞砸的东西。
 
-Watch
+
 
 SIM 卡交换是一件大事，尤其是如果你还积极参与了 [加密货币社区](https://www.zdnet.com/article/wave-of-sim-swapping-attacks-hit-us-cryptocurrency-users/)——这是攻击者赚点小钱的好方法*和*搅乱你的生活。幸运的是，对你的账户安全措施做一些小小的调整可以帮助你减少这个恼人的问题毁掉你一天(或一个月)的可能性。
 

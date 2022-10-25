@@ -4,7 +4,7 @@
 
 寄给民主党政治领袖的管状炸弹。两名美国黑人在杂货店被谋杀。美国历史上最大的反犹袭击。所有这三起由仇恨引发的事件都发生在上周，让这个国家悲痛欲绝，并在寻找答案和寻求灵感。
 
-Watch
+
 
 在黑暗时期，人们很难忘记近期事件的黯淡，展望更光明的未来。如果下一任国家领导人可以轻易撤销旨在实现公平、正义和保护的法律，那么通过这些法律又有什么意义呢？当每天都有 [气候灾难](https://splinternews.com/the-people-choosing-to-do-nothing-about-climate-change-1829596811) 、猖獗的厌女症和 [种族主义](https://www.cnn.com/2018/10/26/us/kentucky-kroger-shooting/index.html) 的消息传来，一个政府似乎背弃了它赖以建立的 [民主](https://splinternews.com/georgia-so-desperate-to-suppress-black-vote-that-they-s-1829809847) 和 [包容](https://splinternews.com/trump-administration-wants-to-obliterate-transgender-ci-1829895403) 的原则，我们该如何应对？
 

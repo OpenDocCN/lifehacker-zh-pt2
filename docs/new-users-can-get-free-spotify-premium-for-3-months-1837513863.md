@@ -4,7 +4,7 @@
 
 如果你还没有尝试过 Spotify Premium，现在你可以免费试用这项音乐服务三个月，然后你就必须开始付费订阅了。
 
-Watch
+
 
 流媒体服务 [周四](https://newsroom.spotify.com/2019-08-22/5-ways-to-take-control-of-your-streaming-with-spotify-premium/) 宣布从 1 个月免费试用改为 3 个月免费试用，使其免费试用与苹果公司提供的苹果音乐相当。
 

@@ -4,7 +4,7 @@
 
 这是周六晚上，你和你的朋友想去附近最热门的餐厅。这里有一个小技巧可能会让这成为可能。
 
-Watch
+
 
 这个来自 r/LifeProTips 上的 Redditor[u/ashen 808](https://www.reddit.com/user/ashen808)的小技巧取决于几件事:你有守时的朋友，你要去一个从早到晚都不会被洪水淹没的地方:
 

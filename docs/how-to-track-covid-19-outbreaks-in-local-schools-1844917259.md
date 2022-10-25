@@ -4,7 +4,7 @@
 
 学校正在开学，随着新冠肺炎疫情在学生和员工中被发现， [不可避免地至少一些学校会再次关闭](https://offspring.lifehacker.com/schools-will-close-again-1844604561) 。没有联邦系统来追踪学校疫情，但是 [国家教育协会一直在编辑新闻故事](https://app.smartsheet.com/b/publish?EQBCT=00a2d3fbe4184e75b06f392fc66dca13) 并按学区列出。
 
-Watch
+
 
 这项工作是由堪萨斯州的一名教师艾丽夏·莫瑞斯发起的，NEA 接管了这项工作，试图将它作为一个大型的、经过验证的国家数据库来维护。但它仍然依靠教育工作者和其他志愿者来报告 COVID 病例以及美国各地小学的安全问题
 

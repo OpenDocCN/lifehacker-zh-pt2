@@ -4,7 +4,7 @@
 
 最近几周，我们中的许多人已经开始探索 [quaran-teaming](https://www.today.com/health/quaranteaming-why-people-are-choosing-quarantine-groups-t179362?icid=related) ，两个孤立的家庭联合起来，无论是为了社交目的还是为了帮助解决特定的需求。成年人搬回与难以独自管理的年迈父母同住，这些家庭需要交换儿童护理:这种趋势也被称为形成 [【隔离泡】](https://slate.com/human-interest/2020/05/why-i-decided-to-join-a-quarantine-bubble-and-you-should-too.html) 或 [【隔离舱】](https://www.cnn.com/2020/04/30/health/how-to-form-a-bubble-wellness/index.html) 被吹捧为对抗隔离疲劳的方法之一，也是解决一些与长期隔离相关的问题。
 
-Watch
+
 
 但是 quaran 团队到底有多安全呢？如果是两个家庭或住户在考虑，他们在做决定前需要权衡哪些因素？就像所有与疫情有关的事情一样，这是一种必须非常仔细地权衡风险和收益的情况，所有各方在开始谈判之前都需要同意一套相同的规则。
 

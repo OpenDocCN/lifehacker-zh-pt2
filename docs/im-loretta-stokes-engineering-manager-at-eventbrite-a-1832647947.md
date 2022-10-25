@@ -4,7 +4,7 @@
 
 Loretta Stokes 是一名高级软件工程经理，也是女性工程师的导师，她在 [*妇女组织工作。她最近被大纳什维尔技术委员会命名为“年度新兴领袖”。*](http://womengetit.net/about-us/)
 
-Watch
+
 
 * * *
 

@@ -4,7 +4,7 @@
 
 这个月，你可以因为在办公室熬过周一而获得一份免费的奖励，形式是一个来自 Krispy Kreme 的微型甜甜圈。
 
-Watch
+
 
 甜甜圈连锁店 [最近推出了 Krispy Kreme minis](https://krispykreme.com/promos/minis) ，这是其受欢迎的甜甜圈的较小版本。迷你版有四种口味:原味、巧克力糖霜、草莓糖霜和巧克力糖霜。
 

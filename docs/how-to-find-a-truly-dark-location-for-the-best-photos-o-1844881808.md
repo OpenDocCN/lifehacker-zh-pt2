@@ -4,7 +4,7 @@
 
 在过去的几个月里，我们晚上花了相当多的时间在户外，欣赏夜空。今年夏天，我们经历了一些令人难忘的与太空相关的时刻——包括每 6000 年一次的彗星 和一系列的 [流星雨](https://lifehacker.com/how-to-watch-the-meteor-shower-happening-now-through-au-1844505160)——在一个难以把握时间的时期，这是一件可以自由做和期待的事情。
 
-Watch
+
 
 但是如果你曾经拿起你的手机(或者，你知道，一个真正的相机)试图拍摄一些夜空的照片，你可能不会对结果感到满意。然后，当你浏览你的 Instagram feed 时，你看到一个朋友发布了这些令人难以置信的图像，看起来它们可能来自美国宇航局[。](https://lifehacker.com/download-nasas-new-batch-of-stunning-images-of-mars-for-1844736860) 
 

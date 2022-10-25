@@ -4,7 +4,7 @@
 
 我喜欢整洁的捷径。公司来你乱七八糟的家里？ [打扫你的浴室就好。](https://lifehacker.com/if-you-only-have-time-to-clean-one-room-before-guests-a-1821191162) 今天看起来像屎一样？ [抹上一些红色的口红。我的建议是:换掉你的浴帘，你会觉得你有了一个全新的浴室。](https://www.youtube.com/watch?v=eLu57hplNlo) 
 
-Watch
+
 
 几乎你浴室里的所有东西都是标准的、乏味的颜色。白色的马桶，黑色的活塞，水池下面的米色橱柜，毛巾在你洗一百遍之前曾经是有趣的颜色。但是你的浴帘可以是你想要的任何东西。
 

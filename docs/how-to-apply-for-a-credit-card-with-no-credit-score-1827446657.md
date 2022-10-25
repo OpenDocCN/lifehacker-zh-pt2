@@ -4,7 +4,7 @@
 
 假设你开始了你的第一份工作，你想 [开一张信用卡](https://lifehacker.com/open-a-credit-card-account-as-soon-as-you-graduate-from-1827361861) ，但是你还没有信用评分——或者你有，但是很低。你是做什么的？幸运的是，有几种选择。
 
-Watch
+
 
 ### 首先，找份工作
 

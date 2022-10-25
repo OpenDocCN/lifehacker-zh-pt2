@@ -4,7 +4,7 @@
 
 最近，你*可能*收到了一条来自“苹果”的紧急语音邮件，声称你设备上的“金融活动”处于危险之中。
 
-Watch
+
 
 别担心——你的苹果账户很好，公司也不会打电话给用户，亲自警告他们 iCloud 账户或 iPhones 上的可疑活动；正如 [Snopes](https://www.snopes.com/fact-check/apple-support-call-on-suspicions/) 最近所写的，这是一种常见的欺骗骗局，骗子模仿合法公司的号码来骗取你的个人信息。
 

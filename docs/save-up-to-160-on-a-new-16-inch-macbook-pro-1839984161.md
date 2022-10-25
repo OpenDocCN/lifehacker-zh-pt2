@@ -4,7 +4,7 @@
 
 苹果产品已经看到了大量的早期假期折扣。我们已经尽可能多地介绍了这些，但即使我们错过了一些，似乎每天都有新的内容出现。最近的交易之一是亚马逊对苹果手表系列 5 的 [进行适度折扣，以及对全新的 16 英寸 MacBook Pro 进行小规模销售。](https://smile.amazon.com/dp/B07XR5K7TG/ref=as_li_ss_tl?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/save-up-to-160-on-a-new-16-inch-macbook-pro-1839984161&asc_source=&ie=UTF8&language=en_US&linkCode=sl1&linkId=a2e0a99571ae09714a22f2e27e90b780&sa-no-redirect=1&tag=kinjalifehackerlink-20)
 
-Watch
+
 
 ### 苹果手表系列 5
 

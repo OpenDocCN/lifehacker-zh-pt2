@@ -4,7 +4,7 @@
 
 有没有担心过卧推失败后会被杠铃压住？你并不孤单——这是互联网上健身论坛和 [Reddit threads](https://www.reddit.com/r/Fitness/comments/5l4p2e/how_to_progress_in_bench_press_without_a_spotter/) 的共同担忧。
 
-Watch
+
 
 任何教练都会告诉你，当你在没有观察员的情况下坐冷板凳时，没有简单的方法摆脱失败的压力。你可以选择*而不是*来使用夹子，让重量从杠铃的两端落下，或者依靠可怕的“ [耻辱柱](https://www.reddit.com/r/Fitness/comments/4j70ri/have_you_ever_had_to_do_the_roll_of_shame_on_the/) ”，当你举起更重的重量时，这可能是危险的。(你也可以选择*而不是*来推动失败，但对于初学者来说，找到那个点并不总是容易的。)
 

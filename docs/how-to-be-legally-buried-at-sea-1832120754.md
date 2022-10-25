@@ -4,7 +4,7 @@
 
 多亏了 Reddit 上最近的一个帖子，葬礼已经是旧闻了。如果你正在寻找一个引人注目的葬礼，这是如何完成的。
 
-Watch
+
 
 周末， [Redditor Mike6575](https://www.reddit.com/r/todayilearned/comments/ak7lxe/til_it_is_100_legal_be_to_buried_at_sea_in_the/) 在环境保护署的 [网站](https://www.epa.gov/ocean-dumping/burial-sea#How_do_I_find_a_boat) 上发现了一个显眼的页面:一个专门讨论海葬合法权利的页面。
 

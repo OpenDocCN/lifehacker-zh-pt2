@@ -4,7 +4,7 @@
 
 终于扔掉了堆积在你厨房桌子上的一堆垃圾邮件？你一直在等待政府发放的经济影响补偿可能就在那一堆钱里。
 
-Watch
+
 
 美国财政部于 5 月中旬开始通过借记卡 发送冠状病毒救济款 [。这些卡是由 MetaBank 发行和邮寄的，接受者可以通过借记的方式使用救济款项，提取现金，或将资金转移到他们的银行账户。](https://lifehacker.com/that-debit-card-you-were-mailed-is-actually-your-corona-1843544054)
 

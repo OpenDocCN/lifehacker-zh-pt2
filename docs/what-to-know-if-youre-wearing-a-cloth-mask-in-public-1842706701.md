@@ -4,7 +4,7 @@
 
 CDC [现在推荐“布面套”](https://www.cdc.gov/coronavirus/2019-ncov/prevent-getting-sick/diy-cloth-face-coverings.html) 来减缓新冠肺炎的传播。正如我们之前讨论过的，布质面具 [有利有弊](https://lifehacker.com/do-homemade-face-masks-help-stop-the-spread-of-the-coro-1842514179) ，一些组织仍然在犹豫是否值得说服每个人都戴上它们。例如，世卫组织还没有提供布面具的官方意见，但是在周三暗示这可能会改变。
 
-Watch
+
 
 如果你真的开始戴布质口罩，请记住以下几点:
 

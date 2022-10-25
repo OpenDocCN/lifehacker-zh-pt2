@@ -4,7 +4,7 @@
 
 面部识别系统无处不在，从试图发现罪犯的安全摄像头到 Snapchat 找到你的脸并把兔子耳朵放在上面的方式。计算机需要大量数据才能学习如何识别人脸，其中一些数据来自 Flickr。
 
-Watch
+
 
 今年早些时候，IBM 发布了一个 [“面孔多样性”数据集](https://www.research.ibm.com/artificial-intelligence/trusted-ai/diversity-in-faces/) ，这在某种程度上可以说是一件好事:许多早期的人脸识别算法都是针对瘦瘦的白人名人进行训练的，因为很容易找到很多名人的照片。你的数据来源影响你的算法能够做什么和理解什么，所以有很多 [种族主义，性别歧视的算法在那里](https://lifehacker.com/what-makes-an-artificial-intelligence-racist-and-sexist-1796990621) 。该数据集旨在通过提供面部图像以及关于面部的数据(如肤色)来提供帮助。
 

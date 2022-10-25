@@ -4,7 +4,7 @@
 
 [Google One 云存储服务](https://blog.google/products/google-one/free-features/) 即将迎来重大变化，包括全新的 iOS 应用程序、免费的手机数据备份，以及 iOS 和 Android 上的新数据管理工具。谷歌已经为谷歌用户提供了付费的自动手机备份服务，但该功能现在对所有人都是免费的(只要你 [生活在提供 Google One](https://support.google.com/googleone/answer/9080668)的国家)。
 
-Watch
+
 
 iOS 备份仅限于谷歌照片、日历事件和联系人，但 Android 用户可以备份他们设备上的所有内容。这些自动备份可以使迁移到新手机更容易，或者在严重故障后恢复您的设备更不具灾难性。
 

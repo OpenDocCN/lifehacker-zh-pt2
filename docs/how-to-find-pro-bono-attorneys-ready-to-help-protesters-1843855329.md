@@ -4,7 +4,7 @@
 
 抗议——即使是和平抗议——伴随而来的风险之一是你可能会被逮捕。是的，第一修正案赋予了我们和平集会的权利——但是仅仅因为《权利法案》中有所规定并不意味着你不会发现自己处于这些权利被侵犯的境地。
 
-Watch
+
 
 在你参加下一次抗议之前，如果你在抗议 时被警察拦下 [，阅读、保存和/或记住](https://www.aclu.org/know-your-rights/protesters-rights/#i-was-stopped-by-the-police-while-protesting) [ACLU](https://www.aclu.org/) 的行动清单是个好主意。这些建议包括“确保让你的手看得见”和“如果可以，写下你记得的一切，包括警官的徽章和巡逻车号码以及他们工作的机构。"
 

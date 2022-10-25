@@ -4,7 +4,7 @@
 
 从很多方面来说，看着我们周围的世界被关闭对每个人来说都很难。但是，年幼儿童的父母面临着额外的挑战，他们试图以小孩子能够理解的方式解释正在发生的事情，同时又不会让他们感到恐惧或焦虑。幸运的是，纽约时报的播客今天可以帮上忙。
 
-Watch
+
 
 卡尔·齐默(Carl Zimmer)是一名科学记者，他研究和撰写病毒已有 30 年，他在《纽约时报》的新闻播客 [、每日](https://www.nytimes.com/2020/03/27/podcasts/the-daily/kids-coronavirus.html?action=click&module=audio-series-bar&region=header&pgtype=Article) 中花了一集时间回答孩子们关于冠状病毒的问题。
 

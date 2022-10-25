@@ -4,7 +4,7 @@
 
 我们对自己有一些负面的想法，我们会一遍又一遍地重复。如果你想改掉想自己糟糕事情的习惯，这里有一个有用的提示:取消这个想法。
 
-Watch
+
 
 这和最近在/r/LifeProTips 上的一个帖子有关，由 [u/Falcia](https://www.reddit.com/user/Falcia) 分享，他希望大家 [不要一直说自己](https://www.reddit.com/r/LifeProTips/comments/aukjfp/lpt_every_time_you_say_one_thing_about_yourself/) 的屁话。事实上，如果你确实在心里或大声说了一些不好的话，那就接着说两句好话:
 

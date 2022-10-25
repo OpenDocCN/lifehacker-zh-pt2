@@ -4,7 +4,7 @@
 
 你有没有想过为什么你的猫只养了三只宠物就咬你？如何让你的狗冷静下来并停止吠叫？本周，在动物行为专家扎奇·托德的帮助下，我们将揭开我们四条腿朋友的神秘面纱。在这一集里，你将会听到为什么我们的动物会有这样的行为背后的潜在心理，以及扎奇让你的宠物变得规矩的人性化技巧。
 
-Watch
+
 
 博客 [、CompanionAnimalPsychology.com](https://www.companionanimalpsychology.com/)、新书 [*Wag:让你的狗快乐的科学*](https://www.amazon.com/Wag-Science-Making-Your-Happy/dp/177164379X/ref=asc_df_177164379X/?adgrpid=100114716437&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-make-your-pet-happy-with-animal-behavior-expert-1844237610&asc_source=&hvadid=431080777109&hvadid=431080777109&hvdev=c&hvdev=c&hvdvcmdl=&hvdvcmdl=&hvlocint=&hvlocint=&hvlocphy=9073499&hvlocphy=9073499&hvnetw=g&hvnetw=g&hvpone=&hvpone=&hvpos=&hvpos=&hvptwo=&hvptwo=&hvqmt=&hvqmt=&hvrand=6735182277415347159&hvrand=6735182277415347159&hvtargid=pla-885048546918&hvtargid=pla-885048546918&linkCode=df0&psc=1&ref=&tag=kinjalifehackerlink-20) 作者扎奇。
 

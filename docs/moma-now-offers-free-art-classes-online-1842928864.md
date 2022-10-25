@@ -4,7 +4,7 @@
 
 虽然纽约现代艺术博物馆现在不对公众开放，但它的虚拟大门以博物馆免费课程的形式开放。
 
-Watch
+
 
 MoMA 通过 Coursera 提供九门免费课程 [:](https://www.coursera.org/moma)
 

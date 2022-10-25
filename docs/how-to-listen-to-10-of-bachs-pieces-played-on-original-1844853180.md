@@ -4,7 +4,7 @@
 
 古典音乐的爱好者可能会有一个首选的作曲家、时期、或流派，在“古典音乐”的保护伞下有这么多的和[找到与你共鸣的特定作品或风格](https://lifehacker.com/how-to-find-classical-music-you-actually-like-1829062436) 是一种很棒的感觉。如果你对过去的任何一位大牌古典作曲家感兴趣(亨德尔、莫扎特、维瓦尔第、贝多芬等)，你可能会想知道这些作品首次亮相时是什么样的，使用的是那个时期的乐器。(也可能你没有，也没关系，也是。)
 
-Watch
+
 
 如果你碰巧喜欢约翰·塞巴斯蒂安·巴赫的音乐风格，你一定会喜欢:加州的一个乐团用原始的巴洛克乐器 [录制了他的一些作品](http://www.openculture.com/2020/08/hear-ten-of-bachs-pieces-played-on-original-baroque-instruments.html) 。下面是听的方法。
 

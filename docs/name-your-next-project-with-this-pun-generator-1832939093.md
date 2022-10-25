@@ -4,7 +4,7 @@
 
 在 Lifehacker 的母公司 Gizmodo Media，我们喜欢公文包。我们的很多姐妹网站，以及它们的子域名，都是现有单词的组合:Deadspin 让人想起 *backspin* 以及*ESPN*；Gizmodo 包含 *gizmo* 和 *mod* 。Lifehacker 的子网站在一个单词或短语中找到第二个意思: *Skillet* 包含 *skill* ， *Two Cents* 是金钱建议。我们之前已经介绍过一些发明双关语的好工具。现在有了[Entendrepreneur](https://www.punchlinedesign.net/pun_generator)，这是一个强大的工具，可以将任何两个概念组合成一个组合词或一首押韵诗。
 
-Watch
+
 
 在 Entendrepreneur 中输入两个单词，它会为这两个单词寻找相关的单词。然后，它会尝试匹配这些单词，使用任何重叠的音节组成一个组合词。它还列出了押韵的词对，这更容易在心理上处理。无论哪种方式，你都可以为你的网站、产品、业务或其他项目找到一个聪明的名字。
 

@@ -4,7 +4,7 @@
 
 这是一个可以用来行善或作恶的黑客。你可能有很好的理由需要透过毛玻璃窗户看东西，或者你可能是佩恩·拜德格雷在《你是 T1》中的角色。黑客工作的任何一种方式。
 
-Watch
+
 
 redditor[u/unable farious](https://www.reddit.com/user/UnableNefariousness)，我认为他是一个正直的公民，绝不会将这个黑客用于邪恶的目的，他向 r/BlackMagicFuckery 分享了一段视频。如果这个视频是其内容的一个很好的样本，这是这个 subreddit 的完美名字。在里面，我们看到有人 [将一小块透明胶带](https://www.reddit.com/r/blackmagicfuckery/comments/ah7mnb/clear_tape_makes_frosted_glass_see_through/) 摩擦到一块毛玻璃上。胶带透过霜形成了一个完美的透明矩形:
 

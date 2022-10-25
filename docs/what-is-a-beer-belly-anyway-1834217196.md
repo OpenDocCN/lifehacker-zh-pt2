@@ -4,7 +4,7 @@
 
 拥有一个大肚子是 [与](https://www.health.harvard.edu/staying-healthy/abdominal-obesity-and-your-health) 有更大的心脏病和死亡风险，但要了解啤酒肚(实际上你不能责怪啤酒)，你必须看看它的内部。
 
-Watch
+
 
 ### 一些脂肪就生活在皮肤下面
 

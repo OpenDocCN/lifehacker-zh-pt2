@@ -4,7 +4,7 @@
 
 这些年来，Windows 的文件资源管理器得到了发展和扩展，但核心功能基本保持不变。它还是和以前一样又笨又丑。
 
-Watch
+
 
 微软正计划在即将到来的 Windows 10X 版本中给文件浏览器一些 TLC，但那些想要一个精简的——或者只是更好的——外观的——选项现在可以转向第三方替代方案，如 [**文件 UWP**](https://www.microsoft.com/en-us/p/files-uwp-preview/9nghp3dx8hdx?) 。
 

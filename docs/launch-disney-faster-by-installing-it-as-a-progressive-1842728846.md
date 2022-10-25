@@ -4,7 +4,7 @@
 
 如果你在 Windows 或 macOS 上看了很多 Disney+的，考虑将该网站安装为一个渐进式网络应用(PWA) ，以便更快地访问你最喜欢的电影和节目。
 
-Watch
+
 
 PWAs 把一个网站和 [一个全功能的应用](https://lifehacker.com/this-free-disney-mac-app-resumes-your-shows-as-soon-as-1840206512) 区分开来。将 Disney+安装为 PWA 会为网站的独立版本创建一个易于访问的桌面快捷方式。当启动时，PWA 将不仅绕过你的浏览器主页并移除它的大部分 UI，与通过传统方法查看网站的 相比，它将提高速度和稳定性。
 

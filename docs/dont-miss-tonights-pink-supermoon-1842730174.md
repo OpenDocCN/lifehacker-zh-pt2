@@ -4,7 +4,7 @@
 
 如果你现在正在寻找从你所有的烦恼中转移注意力的方法(如此如此之多)，今晚一定要花些时间凝视天空，因为今晚的满月将是一年中最大最亮的。
 
-Watch
+
 
 这将是所谓的 [粉色超级月亮](https://www.nj.com/news/2020/04/the-full-april-moon-will-be-the-biggest-supermoon-of-2020-and-also-a-pink-moon.html) ，这样命名是因为在美国春天时通常最早到出现的粉色花朵。更一般地说，当满月与近地点重合时，即月球轨道最接近地球时，就会出现 [超级月亮](https://en.wikipedia.org/wiki/Supermoon) 。
 

@@ -4,7 +4,7 @@
 
 微软不小心又推了一个不必要的 Windows 10 更新。本周的“ [KB4532441](https://support.microsoft.com/en-us/help/4532441/cumulative-update-for-autopilot-in-windows-10-versions-1903-1909) ”更新面向 Windows 10 的普通用户，尽管该更新是针对那些使用 Windows Autopilot 的用户——这是 IT 部门设置和管理新电脑的一种方式。微软甚至向非自动驾驶用户发布了一些安装更新的提醒，尽管这是不必要的。
 
-Watch
+
 
 令人欣慰的是，这一最新的失误完全是良性的，尽管它很好地提醒了我们，Windows 更新过程往好里说可能是令人讨厌的([，往坏里说可能是令人难以置信的](https://lifehacker.com/how-to-work-around-windows-10s-latest-update-issues-1838107037) )。在这一点上，几乎可以预料到，一些 Windows 10 更新将是不可靠的或彻底的破坏性的——以至于微软已经小心翼翼地 [限制更大 Windows 更新的发布](https://blogs.windows.com/windowsexperience/2017/04/25/windows-10-creators-update-rollout-first-phase-update/) ，以避免出现兼容性问题的系统。
 

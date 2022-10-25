@@ -4,7 +4,7 @@
 
 2017 年末，我从华盛顿州搬到了爱荷华州。移动本身 [花费 me $ 5929.10](https://www.vox.com/the-goods/2019/3/26/18255131/moving-midwest-cedar-rapids)。
 
-Watch
+
 
 我的新地址也让我在今年的州税收中损失了 3140 美元。
 

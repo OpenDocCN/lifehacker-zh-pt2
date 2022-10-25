@@ -4,7 +4,7 @@
 
 默认情况下，三星 Galaxy 智能手机会将屏幕截图保存为 crappier 格式。JPEG 图像。没有什么反对好的老 JPEG，尤其是如果你需要节省尽可能多的设备空间。它们只是看起来不如(几乎)每个其他 Android 设备默认使用的替代品——强大、 [无损](https://www.digitaltrends.com/photography/jpeg-vs-png/) .PNG
 
-Watch
+
 
 当然，在你把 Android 10 升级到你的三星 Android 之前，你不能从较小的升级到较大的。如果，不管出于什么原因， [你一直在磨蹭那个](https://lifehacker.com/find-out-when-your-samsung-device-is-getting-android-10-1840235349) ，现在就去安装它吧。我会等的。
 

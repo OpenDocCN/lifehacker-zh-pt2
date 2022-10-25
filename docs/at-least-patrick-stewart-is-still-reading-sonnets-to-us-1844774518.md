@@ -4,7 +4,7 @@
 
 感觉好像没有什么值得庆祝的:我们不能举办生日聚会或婚宴，甚至不能在周五晚上出去看电影。我们的孩子已经五个月没有离他们的朋友六英尺以内了，运动很奇怪，我们已经有一个漫长而黑暗的冬天在我们面前逼近。但是！帕特里克·斯图尔特还在 [Instagram](https://www.instagram.com/sirpatstew/) 和 [Twitter](https://twitter.com/SirPatStew) 上读十四行诗。
 
-Watch
+
 
 Patrick 爵士在 3 月 21 日第一次发布了他自己 [背诵威廉·莎士比亚十四行诗第 116 首](https://www.instagram.com/p/B-A3NY2haqq/) 的视频(还记得三月吗？).这本书一炮而红——现在已经有近 50 万的浏览量和 4000 条评论，其中大多数都是这样的:“谢谢你，先生，你打动了我的心，祝福你，我绝对崇拜你。”所以就在第二天， [他带着这些甜言蜜语回到了我们身边](https://www.instagram.com/p/B-DeQAGh4eS/) :
 

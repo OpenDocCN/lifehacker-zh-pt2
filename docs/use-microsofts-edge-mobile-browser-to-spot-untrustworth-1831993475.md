@@ -4,7 +4,7 @@
 
 微软正在将自己的 [假新闻之战](https://lifehacker.com/learn-about-fake-news-with-this-web-game-1823229554) 扩展到移动战线。其 Edge 浏览器应用程序的最新更新包含了一个新闻标记功能，该功能以前只在桌面版本上作为可选插件提供。
 
-Watch
+
 
 该功能的移动和桌面版本都是基于 NewsGuard——一种浏览器扩展，使用记者来发现假新闻，而不是机器学习算法或其他第三方网站和公司[。这种方法有利也有弊，但结果是你让真实的人来检查和验证你正在阅读的网站。](https://lifehacker.com/fight-fake-news-with-this-chrome-extension-1826810600)
 

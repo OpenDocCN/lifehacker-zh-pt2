@@ -4,7 +4,7 @@
 
 如果你不是一个跑步者，但你想成为一个跑步者，经典的方式是开始一个“沙发到 5 公里”计划(以方便的 [应用](https://lifehacker.com/get-off-the-couch-and-start-running-with-the-c25k-app-1825351919#_ga=2.256662795.1818520996.1543847822-1456718367.1520458611) 、 [播客](https://itunes.apple.com/us/podcast/nhs-couch-to-5k/id394384987?mt=2) ，或 [可打印图表](https://crcphp.arizona.edu/sites/default/files/images/Couch-to-5k%20Running%20Plan.pdf) 的形式提供)。但是我们知道在这个过程中你会有很多问题，所以这里是你需要知道的。
 
-Watch
+
 
 ### “沙发到 5 公里”项目会发生什么？
 

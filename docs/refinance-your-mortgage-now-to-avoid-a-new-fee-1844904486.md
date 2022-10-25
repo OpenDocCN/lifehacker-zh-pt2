@@ -4,7 +4,7 @@
 
 在过去的几个月里，我们已经写了几次关于抵押贷款再融资的文章——理由很充分: [新的房地美数据](http://www.freddiemac.com/pmms) 显示 30 年期固定利率抵押贷款再次跌破 3%。这些 [最低的抵押贷款利率](https://www.washingtonpost.com/business/2020/08/27/mortgage-rates-drop-once-again-remaining-below-3-percent) 已经激励了一群人考虑在他们现有的抵押贷款上获得更低的利率。
 
-Watch
+
 
 无论你是想降低你的抵押贷款支付额，还是从房屋净值中借款来偿还债务，比如学生贷款(T2，T3)，都可能有另一个早行动比晚行动更好的理由。房利美和房地美将很快开始对再融资抵押贷款收取 0.5%“[逆向市场费](https://guide.freddiemac.com/app/guide/bulletin/2020-32) ”以应对疫情冠状病毒带来的额外风险。根据抵押贷款银行家协会的说法，这可能会使平均抵押贷款再融资成本增加 1400 美元。
 

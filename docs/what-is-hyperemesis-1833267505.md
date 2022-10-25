@@ -4,7 +4,7 @@
 
 艾米·舒默告诉《纽约时报》记者 ，自从怀孕以来，她已经呕吐了 980 次。她患有妊娠剧吐，就在几年前，剑桥公爵夫人凯特·米德尔顿 [也患有这种疾病](https://www.today.com/health/prince-williams-reveals-not-much-has-helped-pregnant-duchess-kate-t116827) 。
 
-Watch
+
 
 [妊娠剧吐顾名思义就是](https://americanpregnancy.org/pregnancy-complications/hyperemesis-gravidarum/) ，如果你知道医学上的行话:妊娠过多(hyper)呕吐(呕吐)(gravidarum)。这是妊娠恶心的一种极端形式，被戏称为“晨吐”有些人在怀孕期间根本不会恶心，另一方面，有些人恶心得无法停止呕吐。
 

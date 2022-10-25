@@ -6,7 +6,7 @@
 
 Raspberry Pi 4 Model B 终于来了， [一款 35 美元的设备](https://gizmodo.com/the-new-raspberry-pi-is-basically-a-35-desktop-compute-1835804060) ，它将许多有用的技术集成在一块电路板上，你可以拿在手中。它甚至可能是你的下一台廉价电脑，假设你能忍受狂热爱好者在早期测试中确定的一些权衡。
 
-Watch
+
 
 这个小小的工具为许多人的 [聪明的黑客项目](https://lifehacker.com/top-10-raspberry-pi-projects-for-beginners-1791002723)——包括 [宿舍聚会](https://lifehacker.com/how-to-build-a-party-mode-in-your-dorm-room-1828555615)——提供了动力，在其第四代版本中获得了许多重大升级。理论上，规格令人印象深刻:1.5 GHz，四核，ARM Cortex-A72 处理器；高达 4GB 的内存(将价格提高到 55 美元)；千兆以太网；无线-交流；以及每秒向 4K 显示器推送 60 帧(或每秒向*两个*连接的 4K 显示器推送 30 帧)的能力。
 

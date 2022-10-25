@@ -4,7 +4,7 @@
 
 截至周四早上，持续的森林大火继续肆虐澳大利亚。至少有 15 人死亡， [17 人失踪，](https://www.theguardian.com/australia-news/live/2020/jan/02/nsw-fires-live-news-victoria-bushfires-australia-near-south-coast-tourists-latest-updates-) ，受灾最严重的新南威尔士州大约有一千万英亩土地和一千所房屋被毁；据估计，全国至少有 1200 万英亩土地被烧毁。大火还毁坏了国家公园的土地，影响了悉尼等主要城市的空气质量。
 
-Watch
+
 
 野火在澳大利亚很常见，但是严重的干旱和大风，再加上极端的高温，已经导致了一场特别具有破坏性的火灾。许多消防员也是志愿者。随着澳大利亚的夏季刚刚开始，天气状况不太可能马上好转。如果你想帮助那些受持续火灾影响的人，有几种方法可以做到:
 

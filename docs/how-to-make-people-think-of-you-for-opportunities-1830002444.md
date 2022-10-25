@@ -4,7 +4,7 @@
 
 如果你曾经因为有人“想到你”而得到一份工作或一份演出，那么你已经从人际关系网中受益。良好的人际关系不需要任何肮脏或自私的东西。它要求你定义自己。这意味着当你遇到或赶上别人时，要更加注意自己的行为。
 
-Watch
+
 
 在 [“书呆子的网络”，](http://benjaminreinhardt.com/networking-for-nerds/) 工程师 Benjamin Reinhardt 为不喜欢网络的人提供了一个网络计划。我们已经讨论了很多这样的想法，像 [如何请求帮助](https://lifehacker.com/the-best-way-to-ask-for-a-favor-1827173655) 和 [如何在伸出手的时候直奔主题](https://lifehacker.com/dont-be-so-damn-coy-when-you-ask-a-favor-1824144187#_ga=2.9462837.1007362126.1540214291-1297080755.1497980211) 。引起我们注意的是这种向他人定义自己的方法:
 

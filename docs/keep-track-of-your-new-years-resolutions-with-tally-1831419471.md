@@ -4,7 +4,7 @@
 
 今天是新年，所以我们猜测你可能已经制定了一些新年计划。 [Tally](https://itunes.apple.com/us/app/tally-the-anything-tracker/id1090990601?mt=8) 是一个 iOS 应用程序，它可以帮助你记录你昨晚在醉酒后做出的所有崇高承诺。
 
-Watch
+
 
 不要被同名的金融应用程序所迷惑，Tally 允许你通过一个简单易用的界面跟踪你想要的任何东西。
 

@@ -4,7 +4,7 @@
 
 随着在家订单的持续，许多人放弃了通勤去远程工作。减少在车里的时间已经产生了一些积极的影响，比如减少交通流量和减少事故[。这些变化也对汽车保险行业产生了积极的影响。](https://thehill.com/changing-america/resilience/smart-cities/490601-amid-coronavirus-lockdowns-traffic-accidents-in)
 
-Watch
+
 
 随着路上的汽车越来越少，保险索赔也就越来越少——同时汽车保险公司的利润激增。事实上，今年春天许多公司给顾客 [额外回扣](https://twocents.lifehacker.com/look-for-a-credit-on-your-next-car-insurance-bill-1842797568) 或折扣。这些公司还向那些提出要求的人提供冠状病毒困难援助。
 

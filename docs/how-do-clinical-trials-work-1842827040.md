@@ -4,7 +4,7 @@
 
 鉴于所有关于潜在新冠肺炎疫苗开发的谈论，以及对一些候选人 的 [临床试验已经开始的消息，你可能会问自己临床试验实际上是如何工作的。任何被批准在数百万美国人身上使用的疫苗都必须完成一个](https://www.the-scientist.com/news-opinion/covid-19-vaccine-frontrunners-67382) [严格的测试过程](https://www.cdc.gov/vaccines/basics/test-approve.html)——包括探索阶段、临床前阶段、临床开发、监管审查和批准、制造和质量控制——所以重要的是要记住，试验正在进行这一事实并不意味着疫苗即将问世。
 
-Watch
+
 
 临床开发阶段分为三个阶段，是在人类志愿者中测试潜在疫苗的阶段。美国国立卫生研究院已经与制药公司 Moderna 合作，开始了 rna 疫苗[的第一阶段试验，而](https://www.nih.gov/news-events/news-releases/nih-clinical-trial-investigational-vaccine-covid-19-begins) [许多其他候选疫苗仍在开发中](https://www.nature.com/articles/d41573-020-00073-5) 。
 

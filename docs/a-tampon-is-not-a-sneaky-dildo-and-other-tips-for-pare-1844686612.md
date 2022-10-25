@@ -4,7 +4,7 @@
 
 青春期对于参与的各方都是尴尬的。对于孩子来说，随着朋友们开始达到这些生物学里程碑，它开始有所发展，随后是新的身体部位和特征的萌芽，最终导致几年后问自己“这正常吗？”一天 37 次。
 
-Watch
+
 
 而且因为这个国家的性教育，说得委婉一点， [不是很全面](https://www.guttmacher.org/fact-sheet/facts-american-teens-sources-information-about-sex) ，很多这些 [的问题落在父母身上](https://lifehacker.com/how-to-talk-to-older-kids-about-sex-1796800679) 他们自己在学校的时候也没有在这方面得到足够的准备。本质上，这是一个围绕基本身体功能的尴尬循环，在 2020 年不应该是禁忌，但我们在这里。
 

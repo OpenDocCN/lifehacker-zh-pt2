@@ -8,7 +8,7 @@
 
 首先，遵守严格的登录要求，确保电视用户帐户和应用内配置文件的安全。
 
-Watch
+
 
 *   [尽可能在应用或服务中设置双因素认证(2FA)](https://lifehacker.com/no-one-knows-about-two-factor-authentication-and-privat-1838913065) 。在 2FA 不可用的情况下，至少确保您必须输入密码、pin 码，或者在登录电视或尝试购物时使用生物识别登录。
 *   尽可能将个人和财务信息从电视或电视应用程序中删除。

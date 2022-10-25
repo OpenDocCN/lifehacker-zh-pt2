@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-pick-the-perfect-fitness-watch-for-the-athlete-i-1830902966>
 
-Watch
+
 
 一块健身手表是送给你生活中注重健身的人的天然礼物，但挑选一块却是件棘手的事情。以下是哪种类型的运动员倾向于选择哪种手表的一些指南。
 

@@ -4,7 +4,7 @@
 
 星巴克的咖啡不便宜；对于一个在美国消费者新闻与商业频道 [做](https://www.cnbc.com/2018/12/14/giving-up-starbucks-for-a-year-could-make-me-17000-dollars-heres-why-i-refuse.html) 的作家来说，这是一项每年花费近 2300 美元的开支。
 
-Watch
+
 
 如果你想省下一点钱，并且继续保持你的咖啡因习惯，你可以通过以下几个关键步骤在星巴克免费续杯。根据 [公司的网站](https://www.starbucks.com/rewards/terms) ，要获得资格，你必须使用与你的账户关联的星巴克卡使用星巴克应用购买你的原创饮料。你必须把这个交给咖啡师才能续杯。
 

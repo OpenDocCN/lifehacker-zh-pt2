@@ -4,7 +4,7 @@
 
 如果你错过了昨天阿根-达斯 的 [免费蛋卷冰淇淋，现在是你救赎自己的机会——用](https://lifehacker.com/get-a-free-ice-cream-cone-at-haagen-dazs-today-1834726847) [白色城堡](https://www.whitecastle.com/locations) 的免费滑盖和可乐。
 
-Watch
+
 
 五月是全国汉堡月，但今天是庆祝最小汉堡的日子:滑块。
 

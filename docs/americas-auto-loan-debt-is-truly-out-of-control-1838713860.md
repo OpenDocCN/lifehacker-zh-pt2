@@ -4,7 +4,7 @@
 
 当你去买一辆新车的时候，你真的希望多久能付款？三年？四个？也许五年？最近，很有可能超过六年，这对买家、汽车行业和整体经济来说是一个越来越令人不安的迹象。
 
-Watch
+
 
 《华尔街日报》又有新的故事出来了那是一种概述性的东西 [我们已经](https://jalopnik.com/the-97-month-car-loan-is-the-craziest-new-car-buying-tr-472876323) [广泛报道过](https://jalopnik.com/americans-owe-a-record-1-1-trillion-in-car-loans-1818506226)[围绕](https://jalopnik.com/your-average-car-payment-is-now-a-record-523-per-month-1826450154) [这些](https://jalopnik.com/subprime-auto-king-santander-reaches-11-8-million-sett-1830591616)的部分——那种超长的汽车贷款，往往利率非常高，是买家们很难跟上。这意味着汽车贷款会一直存在，直到其中一些车型需要昂贵的维修，或者超过了原来的车主，它们会消耗我们越来越多的收入。
 

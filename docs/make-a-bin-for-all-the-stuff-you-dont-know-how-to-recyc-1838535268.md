@@ -4,7 +4,7 @@
 
 上周，我们 [讨论了](https://lifehacker.com/stop-pretending-your-trash-is-recyclable-1838178982) 为什么当你不确定某样东西是否可回收时，把它扔进你的回收箱可能是个坏主意。(有疑问的时候，扔出来！)
 
-Watch
+
 
 但是除了扔掉那些可以回收的垃圾，这里还有一个主意:为那些你不确定的东西创建一个垃圾箱。 [今天的家长](https://www.todaysparent.com/family/family-life/ways-to-reduce-waste-at-home-even-if-you-are-exhausted/) 想出了这个简单的主意，如果你不确定或者只是对回收感到有点懒，这是防止可回收材料进入我们的垃圾填埋场的一个极好的方法。“这样你就不会不恰当地扔掉它们，”今天的父母写道。
 

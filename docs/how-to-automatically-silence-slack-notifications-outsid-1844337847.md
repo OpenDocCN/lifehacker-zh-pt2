@@ -4,7 +4,7 @@
 
 我下班后的时间很宝贵，没有什么比听到斯莱克的 [再熟悉不过的敲门声](https://www.reddit.com/r/Slack/comments/diz6ww/what_is_the_notification_noise/) 打断我的午睡更让我觉得烦的了。(我还没六十岁；我只是为了工作起得特别早。)
 
-Watch
+
 
 虽然我的 Lifehacker 同事一般都很擅长在我们结束一天或周末的工作后放松一下——除了 [*乔尔*](https://skillet.lifehacker.com/give-ice-cream-a-caffeinated-kick-with-coffee-grounds-1844232307) ，我不确定他是否真的在睡觉——但你可能会发现自己在一个工作环境中，无论什么时候，每个人都只是聊个不停。如果你厌倦了每次有人在下班时间有话要说时都被 Slack 通知，你可以使用一些快速的方法来限制你的通知
 

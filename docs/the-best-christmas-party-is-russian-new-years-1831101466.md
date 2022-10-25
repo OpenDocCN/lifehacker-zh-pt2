@@ -4,7 +4,7 @@
 
 假日聚会往往比它们本身更麻烦。十二月已经过去一半，你已经熬过了一三个邋遢的露天酒吧，再一次离开家的想法可能会相当令人倒胃口。今年，学学俄罗斯人:呆在家里，给 [举办一场盛大的晚宴](https://lifehacker.com/elevate-your-dinner-party-with-these-fancy-details-1826494234) 。
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled The Best Christmas Party Is Russian New Year&#39;s](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/elevate-your-dinner-party-with-these-fancy-details-1826494234)</aside>
 

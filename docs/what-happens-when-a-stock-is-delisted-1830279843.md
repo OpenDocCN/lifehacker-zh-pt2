@@ -4,7 +4,7 @@
 
 每年，股票都会被各种交易所暂停交易和摘牌。虽然这种情况并不少见，但作为投资者，你肯定不想经历这种事情。因为最大的问题是:你的钱怎么了？
 
-Watch
+
 
 当 SEC 认为暂停交易符合公众的最佳利益时，它可以暂停交易。这包括了 [以下几种情况](https://www.sec.gov/oiea/investor-alerts-bulletins/ib_tradesuspensions.html) :
 

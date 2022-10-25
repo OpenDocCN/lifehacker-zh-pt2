@@ -4,7 +4,7 @@
 
 本月早些时候，联邦政府推出了 [薪酬保护计划](https://www.sba.gov/funding-programs/loans/coronavirus-relief-options/paycheck-protection-program-ppp) ，该计划让小企业主有机会申请小企业管理局(SBA)贷款，旨在帮助企业在冠状病毒疫情期间发放工资。如果贷款被用于某些指定的费用——工资、抵押贷款利息、租金和公用事业——贷款有可能被部分或全部免除。
 
-Watch
+
 
 今天，工资保护计划(PPP)对个体经营者、独立承包商和个体经营者开放。 [下面是如何应用](https://www.sba.gov/sites/default/files/2020-04/PPP%20Borrower%20Application%20Form.pdf) ，下面是你需要知道的:
 

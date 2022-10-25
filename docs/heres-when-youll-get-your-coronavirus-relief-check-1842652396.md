@@ -6,7 +6,7 @@
 
 直接存款将于 4 月 9 日开始，比财政部长史蒂文·姆努钦此前预计的时间提前一周。
 
-Watch
+
 
 如果您没有直接存款记录，将会有一个在线门户，您可以在其中添加您的信息。美国国税局还没有设置，但一旦设置好，你就可以在这里访问它[](https://www.irs.gov/newsroom/economic-impact-payments-what-you-need-to-know)****。****
 

@@ -4,7 +4,7 @@
 
 许多公司开始对使用真人来“改善”他们的数字助理持保留态度，方法是审查你对智能扬声器或手机说过的话。我敢打赌，微软也将很快改变这种做法，但现在，承包商可能会听你告诉 Skype Translator 和 Cortana。
 
-Watch
+
 
 根据 Vice 的 [主板](https://www.vice.com/en_us/article/xweqbq/microsoft-contractors-listen-to-skype-calls) 的说法，一位未透露姓名的微软承包商能够提供使用 [Skype 翻译](https://www.skype.com/en/features/skype-translator/) 功能的人的录音——录音长度往往从 5-10 秒不等，但不限于此。为了帮助微软提高该功能的能力，这些承包商会听取用户的意见，并从可能的翻译列表中进行选择，或者在某些情况下，提供他们自己的翻译。
 

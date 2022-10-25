@@ -4,7 +4,7 @@
 
 Firefox 是阻止广告和垃圾网页跟踪器的最佳浏览器之一，你可以使用“nuke-'em-all”浏览器扩展，如 [uBlock Origin](https://addons.mozilla.org/en-US/firefox/addon/ublock-origin/) ，让它变得更好。现在， [Ghacks](https://www.ghacks.net/2019/11/20/ublock-origin-for-firefox-addresses-new-first-party-tracking-method/) 和 GitHub 的用户指出，uBlock Origins 甚至能够阻止新型广告、追踪器和网站内容，这是 Chrome 等浏览器无法(或不愿)阻止的，即使安装了插件。
 
-Watch
+
 
 这种特殊内容使用规范名称(CNAME)记录，通过告诉浏览器正在显示的内容是需要在网站上显示的重要第一方内容来通过内容阻止程序。如果你在 Firefox 上使用 uBlock Origin，情况就不一样了，Firefox 也在测试一种阻止这种令人讨厌的变通方法的方法——在浏览器对其竞争对手 的青睐中又增加了 [。](https://lifehacker.com/why-you-should-switch-from-google-chrome-to-firefox-1821879163)
 

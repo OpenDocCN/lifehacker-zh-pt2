@@ -4,7 +4,7 @@
 
 为你的下一篇博客文章或 meme 寻找伟大的艺术作品可能是一个挑战。虽然有很多网站可以让你找到你被法律允许复制和/或修改的图片，但我的列表中最新增加的是 [CC Search](https://search.creativecommons.org/) ，这是一个创作共用工具，现已正式退出测试。
 
-Watch
+
 
 Creative Commons 的产品和研究总监简·帕克(Jane Park)指出，新的搜索工具索引了大约 3 亿张图像，还有更多的图像正在被索引——Creative Commons 的有一个崇高的目标，即索引超过 14 亿部授权作品。
 

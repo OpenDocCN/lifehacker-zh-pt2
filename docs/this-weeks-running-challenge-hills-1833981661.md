@@ -4,7 +4,7 @@
 
 即使你住在多山的地方，你可能会发现自己在跑步时会避开山丘。根据运行的应用程序报告，它们会降低你的速度。他们也只是觉得很难。
 
-Watch
+
 
 但是有两个理由来运行它们。一个是，迟早，你会*有*跑一座山。你同意和一个朋友一起参加慈善 5000 米跑，然后，嘭，就在第二英里了。或者你有一个跑马拉松的目标。 [除非你住在(或旅行到)克利夫兰](https://www.clevelandmarathon.com/runners-info/course-info.aspx) ，否则你可能要和家乡的几座小山赛跑。练习跑小山，你将 [学会让你自信面对它们的身体和精神技巧](https://lifehacker.com/how-to-run-hills-without-crushing-your-confidence-1783126331) 。
 

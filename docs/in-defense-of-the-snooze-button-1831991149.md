@@ -4,7 +4,7 @@
 
 每个人醒来的方式不同，但大多数人都认同 [贪睡键](https://lifehacker.com/science-explains-why-you-should-stop-hitting-the-snooze-5991618) [是](https://lifehacker.com/does-the-snooze-button-turn-you-into-a-zombie-1543880213) [坏](https://lifehacker.com/how-to-stop-snoozing-and-get-yourself-out-of-bed-5934145) 。但我希望你能考虑不同的意见。我希望你能考虑一下，贪睡按钮是好的。
 
-Watch
+
 
 人们可能会说“你打盹，你就输了”，但人们喜欢说押韵的东西。(你试试 [，黄瓜](https://www.youtube.com/watch?v=B6u-FPskfAE) “如果你不相信我。)醒来很可怕。起床就更难受了。你应该遭受一些可怕的事情(醒来)，然后立即参加一些更糟糕的事情(起床)，中间没有缓冲，这种想法是疯狂的。我不在乎我是不是“ [扰乱了我身体的自然唤醒机制](https://thethirty.byrdie.com/snooze-button)”；第一次起床让我很难过，让自己打半个小时的“瞌睡”会让我——如果不开心的话——不那么难过。(如果你是一个不能与此相关的早起者，那太好了！我为你高兴！)
 

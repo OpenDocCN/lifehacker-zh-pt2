@@ -4,7 +4,7 @@
 
 由于天气原因，“龙”号的发射被推迟了。下一次尝试将在东部时间 5 月 30 日星期六下午 3:32 进行，上午 11 点开始 [现场直播](https://www.nasa.gov/nasalive) 。
 
-Watch
+
 
 两名美国宇航员今天前往国际空间站，你现在可以在推特 或 [YouTube](https://www.youtube.com/watch?v=Aymrnzianf0) 上观看发射 [直播——发射准备工作正在进行中。](https://twitter.com/i/broadcasts/1lDxLglolpQJm)
 

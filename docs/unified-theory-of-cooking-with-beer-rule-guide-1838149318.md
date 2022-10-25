@@ -4,7 +4,7 @@
 
 虽然将啤酒与特定的食物搭配起来介于艺术和科学之间，但将啤酒作为一种配料来烹饪却不那么费力。我做过 [熟](https://thetakeout.com/what-s-the-best-beer-to-cook-with-1829392862) 和 [啤酒烤](https://thetakeout.com/recipe-breakfast-stout-muffins-beer-baking-1829345041) ，虽然后者需要精确和深谋远虑——毕竟是烘烤——但前者非常简单。记住一条关键规则，你就很难被引入歧途。
 
-Watch
+
 
 这一条规则，我称之为我的用啤酒烹饪的统一理论(商标正在申请中)，将在你 95%的用啤酒烹饪的实验中很好地为你服务:
 

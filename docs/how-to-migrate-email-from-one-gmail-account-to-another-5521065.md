@@ -4,7 +4,7 @@
 
 无论你是将 [从工作邮箱迁移到私人邮箱](https://lifehacker.com/how-can-i-save-all-my-emails-for-a-personal-backup-5990556) ，还是只是不喜欢你选择的用户名，想换一个听起来更专业的用户名，你并不是唯一一个在寻找将所有 Gmail 数据从一个地方转移到另一个地方的人。
 
-Watch
+
 
 我们已经在 [上讲解了如何为你的工作电子邮件创建个人备份](https://lifehacker.com/how-can-i-save-all-my-emails-for-a-personal-backup-5990556) 和 [如何使用谷歌外卖](https://lifehacker.com/how-to-back-up-your-gmail-and-view-mbox-files-1827660389) 下载 Gmail 邮件，然后将其恢复到新帐户中。但如果你只是想让旧 Gmail 帐户的邮件出现在新 Gmail 帐户的收件箱中，最简单的选择是设置 POP(也就是邮局协议)访问。
 

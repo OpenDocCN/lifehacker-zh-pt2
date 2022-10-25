@@ -4,7 +4,7 @@
 
 最近，有很多新闻报道了一种新的疾病，叫做 [小儿多系统炎症综合征](https://www.nytimes.com/2020/05/13/health/coronavirus-children-kawasaki-pmis.html) ，这是类似于一种罕见的儿童疾病，叫做 [川崎病](https://www.webmd.com/children/what-is-kawasaki-disease#1) 。这种新的综合征开始在美国各地的儿童中出现，被认为与新冠肺炎感染有关。正如许多与这种疫情相关的事情一样，我们对这种综合征及其含义仍有许多不了解— ,但有必要检查一下我们目前对儿童新冠肺炎症状的了解。
 
-Watch
+
 
 ### 孩子们没有被感染那么多，他们的症状也更轻
 

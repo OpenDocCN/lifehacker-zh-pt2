@@ -4,7 +4,7 @@
 
 **MacOS:** [我们还是喜欢 Clocker](https://lifehacker.com/clocker-crams-a-world-clock-into-your-menu-bar-1794709422) ，你菜单栏的自由时区时钟。但是，如果你必须跟踪一个时区的 *lot* ，你也应该看看 [菜单世界时间](https://itunes.apple.com/us/app/menu-world-time/id1446377255?utm_source=densediscovery&utm_medium=email&utm_campaign=newsletter-issue-28) ，另一个界面略有不同的免费菜单栏世界时钟。
 
-Watch
+
 
 菜单世界时间在菜单栏中显示一个代表白天或夜晚的图标，以及一个箭头来显示另一个时区是比当地时间早一天还是晚一天。(您也可以显示星期几。)但最重要的是，它紧凑的下拉菜单可以显示一长串其他时区。
 

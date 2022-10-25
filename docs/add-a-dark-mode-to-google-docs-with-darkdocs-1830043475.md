@@ -4,7 +4,7 @@
 
 我非常喜欢网站和应用程序的夜晚或“黑暗”模式。较暗的背景比明亮的白色背景耗电更少，对眼睛也更好看。这是双赢。我以前写过几个 Chrome 扩展，可以让你做任何事情都打开黑暗模式。本周，我偶然发现了一个专门适用于谷歌文档的新工具。
 
-Watch
+
 
 [叫做 Darkdocs](https://chrome.google.com/webstore/detail/darkdocs/jagekcabhgjlinjdcpocekgnnfidnmpi) ，这个扩展做的和你想的完全一样:给 Google Docs 添加了一个黑暗模式。
 

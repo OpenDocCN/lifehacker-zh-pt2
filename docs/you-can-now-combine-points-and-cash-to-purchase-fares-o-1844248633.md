@@ -6,7 +6,7 @@
 
 [捷蓝航空](https://www.jetblue.com/trueblue/using-points) 开始向 TrueBlue 会员提供积分和现金相结合的购票服务。这是一种更方便的方式来帮助您的资金和里程进一步增长。
 
-Watch
+
 
 即使您只有 500 点积分，捷蓝航空现在也提供现金+积分支付选项。
 

@@ -4,7 +4,7 @@
 
 你是否觉得你现在应该对 Shake Shack 或 Potbelly 三明治店感到愤怒，但你无法解释他们到底做错了什么？
 
-Watch
+
 
 这可能是因为通过小企业管理局提供的贷款计划 [工资保护计划](https://www.sba.gov/funding-programs/loans/coronavirus-relief-options/paycheck-protection-program) 非常混乱。该计划作为[【2.2 万亿美元冠状病毒救济法案](https://lifehacker.com/all-your-coronavirus-relief-check-questions-answered-1842526582) 的一部分推出，为小企业提供高达 1000 万美元的贷款，使他们能够继续支付工资、租金和公用事业等基本支出。如果接受贷款的企业在 8 周内避免裁员，贷款就可以被免除。如果他们不能维持他们的工资，他们必须用 1%的利息偿还。
 

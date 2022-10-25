@@ -4,7 +4,7 @@
 
 除了编织、拼图和烘焙，园艺已经成为疫情另一种流行的消遣方式。种子 的 [销售暴涨，不管人们在城市里有没有巨大的后院或者微小的消防通道，他们一直在进入杂草中(主要是为了拔草)。](https://www.marketwatch.com/story/this-earth-day-especially-remember-plants-are-non-judgmental-what-its-like-to-start-gardening-during-a-pandemic-2020-04-22)
 
-Watch
+
 
 也许你想更进一步，让你的植物或花园对蜜蜂更有吸引力。我们知道 [蜜蜂的数量正在减少](https://lifehacker.com/don-t-plant-those-bee-friendly-wildflowers-cheerios-i-1793370883) ，我们需要那些小工来帮助我们种植食物，所以当你想到这一点时，为它们建造一个吸引人的地方是一件好事。但是你从哪里开始呢？当然是通过在网上上课！
 

@@ -4,7 +4,7 @@
 
 Lifehacker 的 [邪恶周](https://lifehacker.com/c/evil-week) 已经接近尾声，到目前为止，我们已经教会了我们的读者如何 [在最后一刻退出计划](https://lifehacker.com/excuses-to-get-out-of-plans-last-minute-ranked-1839502154) 和 [一个结束烦人电话的策略](https://lifehacker.com/say-your-phone-is-dying-at-the-start-of-every-annoying-1839442463) 而没有任何反响——但是将*而不是*归功于 [不道德的生活专业建议 subreddit](https://old.reddit.com/r/UnethicalLifeProTips) 作为灵感的来源是不对的。
 
-Watch
+
 
 如果您以前从未遇到过它，r/ULPT 正是您所期望的:一个充满建议的子编辑，这些建议通常是以他人的利益为代价的“并且/或者具有可疑的合法性。”换句话说，你在别处找不到这个建议，这使得 subreddit 更有价值。
 

@@ -4,7 +4,7 @@
 
 我希望你坐下来是因为这个消息的震惊:我丈夫和我又因为食物发生了争吵。他正要做 [panang 咖喱](https://thetakeout.com/our-weeknight-secret-weapon-a-6-ingredient-panang-curr-1822315779) ，已经把鸡胸肉掏出来了。我的保质期和我们计划吃它的日期是同一天，所以很明显，我生气了。我闻了闻鸡肉，觉得味道怪怪的。他认为它闻起来不错。我说我不吃，我宁愿我们的孩子也不吃。我们最后在一家餐馆点了咖喱。
 
-Watch
+
 
 尽管如此，这件事还是困扰着我:我们谁是对的？我探索过 [棕色碎牛肉](https://thetakeout.com/should-i-throw-away-ground-beef-thats-turned-brown-1828141586) (大概没问题) [发霉的奶酪](https://thetakeout.com/does-a-little-mold-spoil-the-whole-block-of-cheese-1829633397) (只是把绿色的部分切掉了)，还有 [发霉的面包](https://thetakeout.com/last-call-can-you-cut-out-the-mold-from-your-bread-and-1829207004) (不，都得去)。但是鸡肉呢？它什么时候变坏？有时候很难分辨，尤其是更贵的农贸市场的鸡肉，味道和香气都更浓。于是我联系了几个家禽专家。
 

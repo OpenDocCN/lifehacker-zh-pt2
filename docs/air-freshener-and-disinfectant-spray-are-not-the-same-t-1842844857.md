@@ -4,7 +4,7 @@
 
 有一种很棘手的产品:可以喷到房间空气中的罐装产品，标签上写着可以杀菌。这里有一个问题:这是两种不同的功能。
 
-Watch
+
 
 美国环保署有一份[T2 表面](https://www.epa.gov/pesticide-registration/list-n-disinfectants-use-against-sars-cov-2) 消毒剂清单，它认为这些消毒剂能有效对抗导致新冠肺炎的冠状病毒新型冠状病毒。几款看起来像空气清新剂的产品榜上有名。
 

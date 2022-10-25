@@ -4,7 +4,7 @@
 
 我对我的土豆泥很挑剔。我喜欢赤褐色和育空金色的混合 ，但我更喜欢育空金色。(我不喜欢米色的质感。)这就需要在烹饪时将土豆分开，因为一旦去皮煮熟，很难区分开来。我没有拿出两个不同的汤锅，而是用一个小平底锅把我的大锅分成两份。
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Divide a Big Pot to Cook Two Vegetables at the Same Time](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/make-these-thanksgiving-classics-even-better-1830236674)</aside>
 

@@ -4,7 +4,7 @@
 
 周三，我写了如何 [研究你的 401(k)经理](https://twocents.lifehacker.com/how-to-improve-your-401-k-1833432710) 提供的基金，并建议使用雅虎财经或晨星这样的网站。今天我就来详细说说你查资金的时候其实需要注意什么。
 
-Watch
+
 
 这是由来自 Stephen(与昨天问题中的 Stephen 不同)的一封电子邮件提示的:
 

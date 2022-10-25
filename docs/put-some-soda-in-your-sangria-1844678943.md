@@ -4,7 +4,7 @@
 
 桑格利亚是一个取悦人群的地方，但是有一种方式会在所有人都高兴之前消失，即使有一个适合两人的 COVID 人群。缓解这种情况的一种方法是制作比您想象中需要的更多的桑格利亚酒(并用便宜的葡萄酒制作)，但您也可以通过搭配苏打水来进一步扩展桑格利亚酒。
 
-Watch
+
 
 阿尔顿·布朗用 [Cheerwine](https://lifehacker.com/make-alton-browns-cheerwine-sangria-before-the-summer-i-1784852340) 做到了这一点，但那狗屎是地区性的，樱桃可乐无处不在(胡椒博士也是)。普通可乐也可以，但之后我们会转向 [Kolimotxo 领域](https://skillet.lifehacker.com/the-best-drink-to-order-at-a-crappy-airport-bar-1836423617) ，这是一个不错的领域，但却是一种不同的饮料。(对于我的南方朋友:明白我说的“可乐”指的是可口可乐，不是所有的碳酸软饮料。)
 

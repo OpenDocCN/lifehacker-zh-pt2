@@ -4,7 +4,7 @@
 
 如果你一直在利用你的社交距离来提高你的摄影技巧，那么现在你有更多的方法来做到这一点。
 
-Watch
+
 
 上周末 [我们告诉你尼康](https://lifehacker.com/you-can-attend-nikons-photography-school-for-free-this-1842682960) 提供了一些免费的在线摄影课程，本周我们发现奥林巴斯和徕卡也提供了一些课程。
 

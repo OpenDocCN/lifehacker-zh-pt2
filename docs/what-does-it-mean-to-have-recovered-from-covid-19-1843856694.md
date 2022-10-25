@@ -4,7 +4,7 @@
 
 除了新冠肺炎确诊病例的统计，还有一个从感染中康复的人数的二次统计。算一个从新冠肺炎恢复过来的人意味着什么？那看起来像什么？
 
-Watch
+
 
 事实证明，对于如何统计康复病例 ，有一套严格的方法 [，而且，正如许多疾病的情况一样，官方统计的康复并不总是意味着患者没有后遗症。](https://www.marketwatch.com/story/heres-what-determines-who-has-recovered-from-coronavirus-and-it-includes-two-more-tests-2020-04-07)
 

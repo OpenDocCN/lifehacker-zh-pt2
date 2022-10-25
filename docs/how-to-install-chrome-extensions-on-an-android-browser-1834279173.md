@@ -4,7 +4,7 @@
 
 如果你曾经坐在笔记本电脑或台式机上，想知道为什么不能在智能手机上使用所有有趣的浏览器扩展，你一定是 Chrome 用户。火狐粉丝已经能够为 Android 版本的浏览器安装扩展有一段时间了，但这一能力尚未成为 Chrome 的正式版本。
 
-Watch
+
 
 相反，我建议你试试另一款浏览器——当然是基于 Chrome 的——它能让你熟悉 Chrome *和*,还能让你在手机浏览器上使用扩展。我说的是 [**奇异果浏览器**](https://play.google.com/store/apps/details?id=com.kiwibrowser.browser&hl=en_US) ，下面是如何入门解锁对扩展的支持。
 

@@ -4,7 +4,7 @@
 
 取决于你住在哪里，现在你可能比平时更难得到一些酒。没错，【T12 各州，如纽约州、新泽西州和马里兰州有 [被视为酒类商店的“基本”业务](https://thehill.com/business-a-lobbying/business-a-lobbying/490514-coronavirus-brings-quick-changes-to-state-alcohol) ，其他州——包括加利福尼亚州、内布拉斯加州、佛蒙特州、肯塔基州、科罗拉多州和哥伦比亚特区——目前已经放宽了法律，并且允许 [餐馆提供酒类](https://thehill.com/business-a-lobbying/business-a-lobbying/490514-coronavirus-brings-quick-changes-to-state-alcohol) 。但是这忽略了这个国家的很多地方——而且不是每个杂货店都提供酒水外卖。如果说有什么时候我们需要喝酒，那就是在全球疫情期间，对吗？
 
-Watch
+
 
 嗯怕不怕:Y 我们的 T3】变焦欢乐时光 T5】需要不要干。就在你认为所有的希望都破灭的时候，试着直奔源头:你当地的啤酒厂。现在 [小型酿酒厂、酿酒酒吧和地方手工酿酒厂](https://www.brewersassociation.org/statistics-and-data/national-beer-stats/) 基本上在任何地方都能找到，很有可能在你附近就有一家这样的酿酒厂，他们也许能帮你牵线搭桥。
 

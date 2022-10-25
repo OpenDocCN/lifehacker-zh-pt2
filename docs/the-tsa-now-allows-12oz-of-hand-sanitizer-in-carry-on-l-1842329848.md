@@ -4,7 +4,7 @@
 
 如果你有一个航班即将起飞，担心把洗手液带上飞机，我们有一些好消息给你:现在你可以在你的随身行李里装更大的瓶子了。
 
-Watch
+
 
 运输和安全管理局(TSA)周五宣布，现在将允许旅客在乘坐飞机时携带更大的洗手液瓶，[*华盛顿邮报*报道](https://www.washingtonpost.com/transportation/2020/03/13/tsa-will-allow-travelers-bring-larger-bottles-hand-sanitizer-their-carry-ons/) 。乘客现在可以在随身行李中携带最大 12 盎司的洗手液，比之前允许的 3.4 盎司有了很大的提高。
 

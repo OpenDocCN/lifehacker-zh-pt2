@@ -4,7 +4,7 @@
 
 在九月下旬的某个时候，Mozilla 将默认为所有用户启用 [火狐的 HTTPS 域名解析服务](https://blog.mozilla.org/futurereleases/2019/04/02/dns-over-https-doh-update-recent-testing-results-and-next-steps/) 。这就是为什么这很重要:DoH 通过 [隐藏 DNS 请求](https://blog.apnic.net/2018/10/12/doh-dns-over-https-explained/) 来保持你的互联网浏览隐私和安全——来自你的 ISP，来自你系统上的软件(如家长控制应用程序或其他阻止软件)，以及来自任何可能试图查出你在做什么的东西，如你政府的网络浏览审查机制。
 
-Watch
+
 
 一旦更新推出，DoH 将很快成为一小部分 Firefox 用户的默认功能，一旦确认一切正常，DoH 将会在更大范围内推出。对于那些不想等待的人来说，火狐浏览器现在也提供了功能*和*——只需要在设置菜单中做一些调整:
 

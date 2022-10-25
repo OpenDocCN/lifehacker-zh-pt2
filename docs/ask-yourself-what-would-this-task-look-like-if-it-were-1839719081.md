@@ -4,7 +4,7 @@
 
 如果你关注生产率大师 Tim Ferriss，你可能会熟悉他提出的改变思维模式的问题“如果这很容易，会是什么样子？”
 
-Watch
+
 
 正如他在自己的著作 [*中解释的那样*](https://tim.blog/tim-ferriss-books/) :
 

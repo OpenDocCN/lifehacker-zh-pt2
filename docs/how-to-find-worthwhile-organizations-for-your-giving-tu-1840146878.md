@@ -4,7 +4,7 @@
 
 网络星期一即将结束——这意味着大约是 [给周二](https://www.givingtuesday.org/) 的时间了，这一天通过给有价值的慈善机构捐款来纪念节日。
 
-Watch
+
 
 但随着 2019 年成为非官方的[年](https://www.businessinsider.com/theranos-founder-ceo-elizabeth-holmes-life-story-bio-2018-4)[骗局](https://www.vox.com/recode/2019/11/7/20953930/wework-adam-neumann-severance-laid-off-employees-layoffs-buyout-unicorn-ipo)——以及一些假冒的慈善机构代表真正有价值的事业接受金钱——你如何保证你的捐款实际上被适当地使用了？
 

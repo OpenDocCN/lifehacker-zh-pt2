@@ -4,7 +4,7 @@
 
 " [邦德马克](https://www.nytimes.com/2019/08/13/opinion/the-bond-market-is-screaming.html) t 正在尖叫."” [债券市场](https://www.barrons.com/articles/the-bond-market-smells-big-trouble-where-to-hide-51565399138) 闻起来麻烦大了。这里是藏身之处。”每次你回头看，都会有另一个标题听起来像这样，因为债券收益率一直在以类似于飞溅山的角度下降。与此同时，购买债券的成本越来越高。但是等等，利率呢？别忘了利率。
 
-Watch
+
 
 都是有关联的。但如果你是投资新手，事情就有点复杂了。让我们来分析一下债券市场是如何运作的，以及华尔街为什么一直发飙。
 

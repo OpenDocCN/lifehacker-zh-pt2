@@ -4,7 +4,7 @@
 
 如果你错过了本周的新闻——完全避开了社交媒体——周二，众议院议长南希·佩洛西宣布对川普总统进行正式弹劾调查。这一声明是为了回应 [川普与乌克兰总统](https://www.cnn.com/2019/09/25/politics/donald-trump-ukraine-transcript/index.html?utm_content=2019-09-25T14%3A08%3A57&utm_term=image&utm_source=twCNNp&utm_medium=social) 的电话，以及一名白宫内部人士/举报者的更大投诉。
 
-Watch
+
 
 截至周三，刚刚超过 200 名众议院民主党人和一名共和党众议员公开支持弹劾调查。(据 [纽约时报](https://www.nytimes.com/interactive/2019/us/politics/trump-impeachment-congress-list.html?action=click&module=Spotlight&pgtype=Homepage) 报道，仅从周一开始，至少有 71 名民主党人站出来支持。)
 

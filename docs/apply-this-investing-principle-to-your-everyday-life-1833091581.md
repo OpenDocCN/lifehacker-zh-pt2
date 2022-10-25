@@ -4,7 +4,7 @@
 
 要养成习惯，不管是经济上的还是其他方面的，你必须投入工作。这通常意味着在很长一段时间内持续地做出 [的小改变或](https://twocents.lifehacker.com/how-to-balance-your-short-and-long-term-financial-goal-1830853590) 的微调。几天、几周、几个月、几年——如果你真的想改变你的行为，你必须长期致力于某件事。
 
-Watch
+
 
 顺便提一下，时机——或者更确切地说，市场中的时间*——也是 [投资和积累财富](https://twocents.lifehacker.com/your-finances-should-be-boring-1823831040) 的关键之一。事实上，投入的时间可能是你最重要的资产。*
 

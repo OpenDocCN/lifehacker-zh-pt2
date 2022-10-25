@@ -4,7 +4,7 @@
 
 略读诈骗无处不在，但根据安全 上的 [Krebs，它们还有另一个很容易防止的组成部分——骗子记录你的 PIN 码。](https://krebsonsecurity.com/2019/03/insert-skimmer-camera-cover-pin-stealer/) 
 
-Watch
+
 
 Krebs 写道:“通常，典型的 ATM 盗用攻击中最聪明的部分是隐藏的针孔摄像头，用于记录客户输入 PIN 码的情况。”“这些小视频强盗可以用 100 种不同的方式隐藏起来，但它们经常伪装成 ATM 的安全功能——例如额外的 PIN pad 隐私保护盖，或者 ATM 绿色闪卡接收槽上的一体化 skimmer。”
 

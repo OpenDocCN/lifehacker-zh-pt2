@@ -4,7 +4,7 @@
 
 硬件黑客可能不会像最近的安全漏洞 一样受到关注，但它们可能同样具有毁灭性。你可能会想象攻击者偷偷使用一个虚拟的 USB 密钥来渗透计算机，但正如 Vice 最近的一份报告 [所描述的，即使像苹果的 Lightning 电缆这样无害的技术也可以被修改来利用漏洞并控制你的设备。](https://www.vice.com/en_us/article/evj4qw/these-iphone-lightning-cables-will-hack-your-computer)
 
-Watch
+
 
 虚拟闪电电缆——以其创造者——一位被称为 [MG](https://mg.lol/blog/) 的安全研究员的名字命名为“O.MG 电缆”——在最近的 Defcon 黑客大会上流传。O.MG 电缆在其他方面看起来很普通，是用额外的硬件改装的闪电电缆，当它们插入时，黑客可以远程访问你的 PC 和 iOS 设备。
 

@@ -4,7 +4,7 @@
 
 万一你想在这个万圣节给你的宠物糖果，这里有一个快速提醒:不要。虽然糖果看起来无害，但你的宠物不能安全地吃掉大多数商店里买的糖果，在某些情况下，选择甜食甚至可以 [证明是致命的](https://www.wthr.com/article/woman-warns-pet-owners-dangerous-ingredient-sugar-free-candy-cane-after-dog-dies) 。
 
-Watch
+
 
 你应该警惕什么糖果？在 [宠物毒药热线的网站](http://petpoisonhelp.wpengine.com/2011/10/pet-owners-beware-chocolate-and-dogs-dont-mix/) 上，他们已经收集了一些关于你的宠物不能食用的东西和在紧急情况下应该做什么的提示。
 

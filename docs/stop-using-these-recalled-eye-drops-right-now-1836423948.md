@@ -4,7 +4,7 @@
 
 几种非处方药眼药水，包括沃尔玛、沃尔格林和 CVS 品牌下专门包装的眼药水，由于担心它们可能不是无菌的，已经被召回。
 
-Watch
+
 
 就你的眼睛而言，无菌是不可忽视的。正如发布召回的 [阿尔泰制药](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/altaire-pharmaceuticals-inc-issues-voluntary-recall-multiple-ophthalmic-products-sold-cvs) 在其公告中所说，“使用旨在无菌的非无菌产品可能导致严重的、潜在的威胁生命的感染或死亡。”
 

@@ -4,7 +4,7 @@
 
 2020 年总统选举 [是 11 月 3 日](https://lifehacker.com/everything-you-need-to-know-to-vote-in-2020-1844873184) ，这意味着需要完成或更新注册的选民时间紧迫。好消息是有很多服务可以让你注册在线投票。(你真的没有借口。)
 
-Watch
+
 
 也就是说，有很多错误的信息，包括冒充选民登记页面 的 [彻头彻尾的虚假网站。这些充其量是有意误导；其他的是网络钓鱼和恶意软件陷阱。](https://www.idwatchdog.com/education/voter-election-identity-scams)
 

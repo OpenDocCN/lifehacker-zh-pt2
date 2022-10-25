@@ -4,7 +4,7 @@
 
 如果你的劳动节计划包括去美国东南部或加勒比海旅行，那么飓风多里安可能已经引起了你的注意。
 
-Watch
+
 
 五级风暴 [今晨在巴哈马](https://www.foxnews.com/us/hurricane-dorian-bahamas-warning-florida-carolinas) 登陆，风速达 185 英里，降雨量惊人。也就是说，你可能要重新考虑那些旅行计划了。
 

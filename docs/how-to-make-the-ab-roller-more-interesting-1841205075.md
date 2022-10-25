@@ -4,7 +4,7 @@
 
 上周我们谈到了如何使 ab 轮推出少吸，但也许这不是你的风格。也许你想看看这个练习能糟糕到什么程度。或者至少有所向往。
 
-Watch
+
 
 所以这里有一些你可以做的改变事情的方法。记住， [保持正确的姿势](https://vitals.lifehacker.com/the-right-way-to-use-an-ab-roller-1791612277) ， [如果你无法控制动作的结束，就靠墙做。](https://vitals.lifehacker.com/how-to-make-the-ab-wheel-suck-less-1841068450)
 

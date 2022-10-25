@@ -4,7 +4,7 @@
 
 我有几个选择非小说类书籍的规则:我不会读一本承诺揭露一个组织或领域的“内幕秘密”的书。(作者只知道 1%的秘密，他们会过分吹捧。)如果我发现一本书太宽泛或者太有挑战性，我会降低阅读级别——或者甚至找一本有可靠合著者的 [漫画版](https://www.amazon.com/Logicomix-search-truth-Apostolos-Doxiadis/dp/1596914521?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/good-rules-for-choosing-non-fiction-books-1832573119&asc_source=&tag=kinjalifehackerlink-20) 。我不会像看小说那样沉迷于此——有时我只需要读一章。
 
-Watch
+
 
 程序员 Herman Schaaf 在挑选非小说类书籍 时有自己的质量过滤器:寻找在特定主题方面是专家的作者，Goodreads 评分在 4 以上，书名不包含“令人惊讶”这个词虽然我对他提出的所有三条规则的细节持有异议(记者可以是专家！Goodreads 评分是营销的标志，不是好书！)，我原则上和他在一起。有很多扯淡的书，它们的封面上没有一个大标签写着“这是扯淡，请忽略”，所以你需要形成某种量规，以弄清楚什么是值得你花时间的。
 

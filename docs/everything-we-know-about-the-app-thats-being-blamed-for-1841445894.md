@@ -4,7 +4,7 @@
 
 昨晚和今天早上的爱荷华州党团会议，没有结果和通常的争吵，一切都是巨大的混乱。在这个乱糟糟的漩涡中心，是一个由爱荷华州民主党委托开发的应用程序。早在周一下午，的报道就开始过滤，称该应用程序对辖区队长存在故障，到晚上结束时，很明显那些[困难](https://www.nytimes.com/2020/02/04/us/politics/what-happened-iowa-caucuses.html) 在全州范围内普遍存在。
 
-Watch
+
 
 [早些时候](https://www.nytimes.com/2020/01/31/us/politics/iowa-caucuses-hacking-security.html?smid=nytcore-ios-share) [报道](https://www.desmoinesregister.com/story/news/2020/01/29/iowa-caucus-cybersecurity-measures-ramping-up/4612169002/) 称该应用程序据称已经由独立党派和国土安全部进行了测试和审查，但该应用程序的制造商和测试方式是严格保密的，以尽量减少选举干扰的机会——一些网络安全专家 [质疑](https://www.politico.com/news/2020/02/02/iowa-2020-election-security-110126) 的决定，因为模糊不一定等于安全。
 

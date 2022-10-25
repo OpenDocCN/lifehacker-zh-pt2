@@ -4,7 +4,7 @@
 
 视频游戏是一种受欢迎的节日礼物，发行商育碧正在通过 [免费赠送 2018 年最好的发行版之一——《刺客信条奥德赛》](https://news.ubisoft.com/en-us/article/341869/project-stream-participants-to-get-free-pc-copy-of-assassins-creed-odyssey) 作为礼物给那些参加谷歌项目流测试版的人。
 
-Watch
+
 
 如果你还没听说，谷歌即将推出流媒体服务 Project Stream，进军内容流媒体和视频游戏业务。谷歌表示，它可能会在未来将 Project Stream 扩展到其他形式的媒体，但目前它的首次亮相是考虑到视频游戏，它的第一个合作伙伴是育碧，将刺客信条奥德赛带到平台上。
 

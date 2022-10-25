@@ -4,7 +4,7 @@
 
 尽管它的图像质量(最大分辨率仅为 160x144 像素)，Game Boy 相机仍然是一个 [受欢迎的附件](https://gizmodo.com/an-old-school-film-trick-finally-brings-color-to-the-ga-1831339272) ，这在一定程度上要归功于一个可以打印出微小照片的廉价配件。但是，如今为 Game Boy 打印机寻找纸张并不是一件容易的事情，所以 Vaclav Mach 发明了一种[【20 美元】的适配器](https://www.tindie.com/products/xx0x/gbpxl-game-boy-printer-xl-kit/) ，它可以让 Game Boy 相机与现代打印机配合工作。
 
-Watch
+
 
 复兴 Game Boy 打印机并非不可能，这种打印机在易贝，甚至在专门销售复古硬件的视频游戏商店都很容易找到。这是一台热敏打印机，所以更换墨盒不是问题，但找到 1.5 英寸大小的热敏纸卷并不容易(切割自己的 [看起来像是一种痛苦](https://www.instructables.com/id/How-to-Make-Game-Boy-Printer-Paper/) )如果你这样做了，你经常需要拆开它们，以便将纸卷放入 Game Boy 打印机的进纸机构中。仅仅是打印出低分辨率的黑白照片，就要经历很多困难——即使你喜欢高保真的美感。
 

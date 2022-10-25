@@ -4,7 +4,7 @@
 
 我们正在用塑料淹没这个世界。它 [冲上了我们的海滩](https://www.smithsonianmag.com/smart-news/waves-garbage-are-washing-beach-dominican-republic-180969747/) ，它 [在垃圾填埋场被掩埋了几个世纪](https://slate.com/news-and-politics/2007/06/do-plastic-bags-really-take-500-years-to-break-down-in-a-landfill.html) ，它漂浮在海洋上，形成一团微小的微粒 [体积是得克萨斯州的两倍](https://www.theoceancleanup.com/great-pacific-garbage-patch/) 。其中大部分——在美国占 75%——从未被回收。回收它仍然需要制造新塑料能量的 10%——并非一无所有。一开始少用一点就好了。
 
-Watch
+
 
 记者詹娜·沃瑟姆 [向推特粉丝](https://twitter.com/jennydeluxe/status/1063092657377943554) 询问一些减少使用一次性塑料的方法。你不必遵循回复中的所有建议；我当然不打算带我自己的带回家的容器去餐馆。抱歉。但是尝试这些建议中的一两个会有那么糟糕吗？不，这并不可怕。实际上可能会很有趣。
 

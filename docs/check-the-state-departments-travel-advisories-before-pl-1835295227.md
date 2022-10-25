@@ -4,7 +4,7 @@
 
 计划今年夏天来一次的单人旅行？在你独自去之前，为了你自己的安全，做好你的功课，尽你所能去研究。最近，正好赶上繁忙的夏季旅游季节，美国国务院在其 [网站](https://travel.state.gov/content/travel/en/traveladvisories/traveladvisories.html/) 上更新了一些旅游建议。
 
-Watch
+
 
 如果您以前从未审查过它们(您应该这样做)，该部门会根据以下四个建议级别之一对每个国家进行评级:
 

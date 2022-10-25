@@ -4,7 +4,7 @@
 
 本周，*外卖*的工作人员受到了 Otto42.5 的 [评论的启发，这是一个关于](https://thetakeout.com/1836494689?) [吃肉/不可能的汉堡](https://thetakeout.com/who-eats-fast-food-meatless-vegan-burgers-data-1836490878) (不是纯素食者)以外的东西的故事。T 帽子评论:
 
-Watch
+
 
 这在许多层面上激起了我们的兴趣。但是让我们倒着来应对这个挑战:我们将首先——姑且称之为超越汉堡一半——并解释它是否有效或者是否有必要。
 

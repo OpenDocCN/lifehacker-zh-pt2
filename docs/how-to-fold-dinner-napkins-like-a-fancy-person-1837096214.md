@@ -4,7 +4,7 @@
 
 我个人相信每个人都应该知道三种折纸术:一种 [纸鹤](https://www.origami-fun.com/origami-crane.html) ，一种 [美钞环](http://make-origami.com/money-ring/) ，以及至少一种折叠餐巾纸的奇特方式。教你如何叠餐巾的最好网站是 [动画餐巾](https://www.animatednapkins.com/index.php) 。
 
-Watch
+
 
 这个网站(由 [动画结](https://www.animatedknots.com) 的创作者)向你展示如何将餐巾纸折叠成你可以坐在餐桌上的形状。如果你要举办一个晚宴，这是一个给人留下深刻印象的简单方法。这里有几个简单的折叠，还有几个需要更多时间才能做好。
 

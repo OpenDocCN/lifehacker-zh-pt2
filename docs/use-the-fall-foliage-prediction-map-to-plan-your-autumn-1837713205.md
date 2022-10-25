@@ -4,7 +4,7 @@
 
 从技术上讲，我们可能还有一个月的夏天，但这并不意味着我们不能现在就开始计划我们最喜欢的秋季活动。
 
-Watch
+
 
 我如果你想完全赶上季节转换的话——和星巴克店外，星巴克在周二——推出了南瓜香料——看看本周也推出的 [2019 秋季树叶预测图](https://smokymountains.com/fall-foliage-map/)。利用历史数据和 [预测预测](https://www.vox.com/energy-and-environment/2019/8/26/20833436/peak-fall-foliage-2019-map) ，该地图将帮助你围绕树叶不断变化的颜色来规划行程。
 

@@ -4,7 +4,7 @@
 
 新冠肺炎疫情酒店让我们中的许多人有更多的时间呆在家里，许多公司为你在那里的时候提供各种选择。
 
-Watch
+
 
 本周，谷歌 [宣布其云游戏服务 Stadia](https://blog.google/products/stadia/try-stadia-free-today)现已免费开放。此外，它还为注册了 Stadia Pro 的任何人提供 2 个月的免费访问，这可以让你免费访问 9 场不同的比赛。
 

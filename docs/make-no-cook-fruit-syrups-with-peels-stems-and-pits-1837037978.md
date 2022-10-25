@@ -4,7 +4,7 @@
 
 说到水果，人们想要的是果肉，但果肉往往附着在茎、核和果皮上，扔掉这些部分意味着你扔掉了味道。幸运的是， [糖果女王斯特拉·帕克斯](https://lifehacker.com/im-pastry-chef-stella-parks-and-this-is-how-i-eat-1833139563) 有一个解决方案:用这些所谓的下脚料制作充满活力的免煮糖浆。
 
-Watch
+
 
 帕克斯用 [柠檬皮](https://www.seriouseats.com/recipes/2016/03/fresh-lemon-syrup-recipe.html)[芒果核和皮](https://www.seriouseats.com/recipes/2018/04/fresh-mango-syrup.html)[菠萝核](https://www.seriouseats.com/recipes/2018/07/fresh-pineapple-syrup.html) 以及最近的 [樱桃核](https://www.seriouseats.com/2019/07/how-to-make-cherry-pit-syrup.html) 制作了美味的糖浆。尽管她有特定的食谱和适量的调料！)，你可以用几乎任何数量的茎、皮和核做成糖浆，只需用它们重量一半的糖包裹它们。你让这种情况持续至少三个小时，但最好是 24 个小时，然后用(不起反应的)细网筛过滤。将糖浆洒入鸡尾酒(或苏打水)，倒在冰淇淋上，或加入更多新鲜水果一起食用。
 

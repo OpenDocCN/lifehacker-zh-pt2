@@ -4,7 +4,7 @@
 
 这里有一个好消息:如果你有一段时间没有更新你的 Realtek 蓝牙驱动程序，或者甚至不知道这是一件事，你终于可以更新到 Windows 10 版本 1909-截至我们发表这篇文章时，该操作系统的最新和最大的迭代。
 
-Watch
+
 
 据 [哔哔声电脑](https://www.bleepingcomputer.com/news/microsoft/microsoft-removes-windows-10-1909-realtek-driver-update-block/) 报道，微软已经移除了阻止你升级到这一版本，甚至是 Windows 10 版本 1903 和 1809 的障碍，原因是你的旧 Realtek 驱动程序导致新版本操作系统上的设备连接出现问题。
 

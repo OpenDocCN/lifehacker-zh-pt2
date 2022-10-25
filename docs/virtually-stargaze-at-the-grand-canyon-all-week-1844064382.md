@@ -4,7 +4,7 @@
 
 虽然这个月我们比往常有更多的 [机会看到行星](https://lifehacker.com/how-to-see-jupiter-mars-and-saturn-rise-every-day-this-1844021311) ，但这与抬头看到布满星星的天空是不一样的。但是本周，由于有了 [大峡谷国家公园](https://www.nps.gov/grca/index.htm) ，你可以参加他们一年一度的“明星派对”，该派对将在网上举行，一直持续到 6 月 20 日。以下是你需要知道的。
 
-Watch
+
 
 2020 年 6 月 13 日至 20 日期间， [大峡谷国家公园将举办为期一周的虚拟活动](https://www.nps.gov/grca/planyourvisit/grand-canyon-star-party.htm) ，展示他们令人惊叹的夜空。通常，他们一年一度的“明星聚会”是面对面进行的，但由于新冠肺炎，它——像许多其他活动一样——已经转移到了网上。虽然对于那些想现场参加派对的人来说，这可能有点扫兴，但其他人都有机会看到这一自然奇观也是件好事。
 

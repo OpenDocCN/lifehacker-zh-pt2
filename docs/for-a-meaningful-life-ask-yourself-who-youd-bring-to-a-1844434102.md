@@ -4,7 +4,7 @@
 
 作为一名专攻生命意义的哲学家和心理学研究者，[Frank Martela 博士不断回答关于如何让你的生命更有意义的问题](https://ideas.ted.com/want-a-more-meaningful-life-ask-yourself-who-would-i-take-to-a-remote-island/) 。显然，这不是一个简单的问题，但他确实建议做一个可能有帮助的思考练习:问问自己，你会带谁去一个偏远的岛屿。以下是应该做的事情以及为什么它会有所帮助。
 
-Watch
+
 
 ### 你生命中的哪些人赋予了它意义？
 

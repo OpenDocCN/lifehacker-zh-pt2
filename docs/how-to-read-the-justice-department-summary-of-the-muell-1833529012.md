@@ -4,7 +4,7 @@
 
 周日，司法部长威廉·巴尔提交了他对特别顾问罗伯特·穆勒调查 2016 年总统选举的主要结论的总结。如果你想了解整个事情，你可以 [阅读这里](https://judiciary.house.gov/sites/democrats.judiciary.house.gov/files/documents/AG%20March%2024%202019%20Letter%20to%20House%20and%20Senate%20Judiciary%20Committees.pdf) 。
 
-Watch
+
 
 巴尔说，他打算尽可能多地公布报告，但在报告公布之前，他和穆勒将删除报告，删除秘密大陪审团证词以及与正在进行的调查有关的任何内容。所有这些都表明我们可能要等一段时间。
 

@@ -4,7 +4,7 @@
 
 在我学会打字很久以后，我在高中上了第一堂正式的打字课。没有足够的电脑给每个人，所以我们中的一些人被分流到一个满是灰尘的房间，那里有真正的打字机。当其他孩子练习“键盘输入”技能时，我们不停地敲击键盘，在句号后加上两个空格，并学习如何正确设置制表位的神秘程序。
 
-Watch
+
 
 再往后，我记得在 fjfjfjfjfj 上钻 [可悲的虚构 Mavis Beacon](https://www.vice.com/en_us/article/kwx5a9/whats-mavis-beacon-up-to-these-days-nothing-shes-fake-926) 。但是现在，很多孩子没有得到任何打字指导。我九岁的儿子现在上小学，他已经顺利地从打字变得更流畅了，尽管他仍然要看着自己的手。他从未上过打字课。当我向他的幼儿园老师询问家庭打字练习时，她想不出任何答案。( [我们这里有几个](https://offspring.lifehacker.com/the-best-web-programs-for-teaching-kids-how-to-type-1818489919) ，不过。)
 

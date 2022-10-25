@@ -4,7 +4,7 @@
 
 Ethan Schoonover ( [在西雅图被他的学生称为 e 先生](https://twitter.com/ethanschoonover) )最近在推特上描述了他如何在他的女子中学创办了一个龙与地下城俱乐部——你也可以这样做。
 
-Watch
+
 
 我必须承认，在我看他的 47 分钟视频《解说者》之前，我所知道的关于龙与地下城的一切都是通过看 [陌生人的事情](https://www.syfy.com/syfywire/stranger-things-is-the-ultimate-show-for-dd-fans) 了解到的。但是 Schoonover 谈到了 D & D 和孩子们玩它的好处，他的知识和热情让我希望我的儿子在几年内学会它——或者在他的学校里有人成立了一个类似的俱乐部。
 

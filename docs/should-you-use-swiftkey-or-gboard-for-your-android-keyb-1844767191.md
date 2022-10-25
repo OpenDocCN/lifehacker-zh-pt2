@@ -4,7 +4,7 @@
 
 一个即将到来的 SwiftKey Android 更新终于添加了一个渴望已久的滑动光标控件，这让我们再次质疑我们对 Gboard 的忠诚。在我们讨论这两种主要 Android 键盘的优缺点之前，让我们快速浏览一下这个新的 SwiftKey 功能。
 
-Watch
+
 
 新的滑动光标功能在 [SwiftKey 测试版应用](https://play.google.com/store/apps/details?id=com.touchtype.swiftkey.beta&hl=en_US) 中可用，应该很快就会推出稳定的 Android 版本。一旦可用，你所要做的就是长按空格键，然后拖动你的手指来移动光标。
 

@@ -4,7 +4,7 @@
 
 当你计划度假时，要考虑的最大因素之一，或者至少是最贵的因素，就是机票。当你买机票的时候，往往会对机票价格产生和你要去哪里一样大的影响。
 
-Watch
+
 
 本周，CheapAir [根据其年度机票研究](https://www.cheapair.com/blog/cheapair-coms-5th-annual-airfare-study-reveals-the-best-time-to-buy-airline-tickets/) 发布了 2019 年购买航班的最佳时间建议。这项研究分析了 8，000 多个不同市场的 9.17 亿张机票，以确定购买机票的“最佳”日期，以及一个“主要预订窗口”，其中有一系列日期你可能会找到最优惠的价格。
 

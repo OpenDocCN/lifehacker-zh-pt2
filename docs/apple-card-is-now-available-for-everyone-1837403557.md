@@ -4,7 +4,7 @@
 
 经过几周向兴奋的侍者分发申请后，苹果的新信用卡现在对所有美国 iOS 用户 开放 [。这张卡通过苹果钱包和 Apple Pay 提供了数字优先的体验，它是一张光滑的实体卡，上面甚至不会显示你的卡号或有效期。Apple Card 还提供强大的费用跟踪功能，并且不收取利息以外的费用，这弥补了其](https://www.apple.com/newsroom/2019/08/apple-card-launches-today-for-all-us-customers/) [无聊的返现奖励。](https://lifehacker.com/is-apple-card-worth-it-1837042256)
 
-Watch
+
 
 ### 如何办理苹果卡
 

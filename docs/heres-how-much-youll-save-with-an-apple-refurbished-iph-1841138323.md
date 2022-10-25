@@ -4,7 +4,7 @@
 
 苹果现在通过其在线商店 和认证零售商销售翻新的 iPhone XS 和 iPhone XS Max 智能手机 [。对于任何想从 iPhone 8 或更旧版本升级到的人来说，这是一个好消息，但他们可能不想为解锁的 XS 或 XS Max 支付全价(或者直接跳到 iPhone 11)。XS 和 XS Max 才两年，他们的技术仍然很快，所以他们仍然是可靠的升级。](https://www.apple.com/shop/refurbished)
 
-Watch
+
 
 当然，真正的问题是，从苹果公司直接购买翻新的 iPhone XS 或 XS Max 能省多少钱。确切的最终价格取决于你选择的型号和配置，但所有 iPhone XS 型号似乎都比购买新的便宜 200 美元，而你将为 iPhone XS Max 节省约 250 美元。每部 512GB 型号手机的最高价格(不含税)如下:
 

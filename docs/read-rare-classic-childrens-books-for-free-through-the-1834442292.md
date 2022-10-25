@@ -4,7 +4,7 @@
 
 这是 [儿童图书周](https://everychildareader.net/cbw/) 的 100 周年纪念日，国会图书馆通过提供一百多年前首次出版的 [免费在线收藏](https://www.loc.gov/collections/childrens-book-selections/about-this-collection/) 稀有儿童图书来庆祝。
 
-Watch
+
 
 这 70 本书包括一些今天仍被孩子们阅读的书籍，以及图书馆收藏的具有历史意义的儿童书籍中鲜为人知的书籍。所有藏书都是 1924 年前在美国或英国出版的。
 

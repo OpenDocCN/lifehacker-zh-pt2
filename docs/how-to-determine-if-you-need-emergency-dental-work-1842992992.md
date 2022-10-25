@@ -4,7 +4,7 @@
 
 我们已经在家里躲了足够长的时间，以至于我们中的许多人开始想知道去牙科诊所该做些什么。我们中的一些人正在处理疼痛的智齿、未完成的牙根管、植入物和蛀牙，以及疼痛的牙齿或牙龈。其他人想知道推迟日常护理的相关风险，如清洁和 x 光检查。
 
-Watch
+
 
 为了降低传播风险，美国牙科协会(ADA) [建议所有牙科诊所关闭](https://www.ada.org/en/publications/ada-news/2020-archive/april/ada-urges-dentists-to-heed-april-30-interim-postponement-recommendation) ，紧急情况除外，最早到 4 月 30 日。很可能的牙科诊所将在更长时间内保持关闭。
 

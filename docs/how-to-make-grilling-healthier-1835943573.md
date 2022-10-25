@@ -4,7 +4,7 @@
 
 烤架上制作的 [食物](https://skillet.lifehacker.com/dont-use-a-bristle-brush-to-clean-your-grill-1833265471) 有一种很夏天的味道。你可以在户外用你自己控制的营火来烹饪，而不需要真的去露营。然而，如果你最近看了当地的夏季新闻，你可能会看到一段关于烧烤如何增加癌症风险的片段。但是在你扔掉那些完美的 [牛排、排骨或汉堡](https://lifehacker.com/what-to-grill-when-youre-sick-of-hamburgers-and-hot-dog-1828402331) 之前，让我们来谈谈*实际的*风险以及如何降低风险，这样你就可以享受 [你未来所有的烧烤](https://skillet.lifehacker.com/grill-vegetables-before-pickling-or-marinating-them-1828057997) 。
 
-Watch
+
 
 ### 有什么风险？
 

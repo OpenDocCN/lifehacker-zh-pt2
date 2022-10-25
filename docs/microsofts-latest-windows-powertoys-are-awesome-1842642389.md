@@ -4,7 +4,7 @@
 
 微软忙碌的开发人员已经逐渐发布了有趣的新工具供 Windows 用户使用。这些 [PowerToys](https://github.com/microsoft/PowerToys/) 往往会给你的操作系统增加一点古怪但实用的功能，而且你完全可以免费试用。我们已经介绍了他们以前的[产品](https://lifehacker.com/bookmark-this-site-to-try-microsofts-new-windows-powert-1834749716) 中的一些，但是最新增加的两个是最好的。
 
-Watch
+
 
 抓取最新的 [PowerToys 安装程序](https://github.com/microsoft/PowerToys/releases/download/v0.16.0/PowerToysSetup-0.16.0-x64.msi) ，一起来认识一下**图像缩放器**和**窗口行者**。
 

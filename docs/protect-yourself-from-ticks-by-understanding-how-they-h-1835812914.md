@@ -4,7 +4,7 @@
 
 即使只是阅读有关蜱的文章，也会让我立即检查我的四肢，并开始感到发痒。(提前为这个故事会给你带来的影响道歉。)但与此同时，我对扁虱如此偏执，以至于我忍不住点击任何可能提高我避开那些小吸盘的机会的东西，哪怕只是一点点。
 
-Watch
+
 
 我们 [了解一下](https://vitals.lifehacker.com/youre-probably-going-to-get-a-tick-this-summer-good-lu-1793895235) (对吗？) : C 在户外呆了一段时间后(在树林、你的后院、公园等)，检查你的身体，使用 [适当的去除技术](https://lifehacker.com/properly-remove-a-tick-with-this-illustrated-guide-1590681271) 如果你找到一个，当你在大自然中时尽可能多地覆盖你的身体。但是，如果我们能进入一只扁虱的大脑，找出它究竟在人类身上寻找什么，难道不是更有帮助吗？是什么导致它在一种哺乳动物身上向右滑动而不在另一种上呢？因为蜱虫会主动寻找下一个目标，所以 [了解它们如何选择猎物](https://www.popsci.com/how-to-avoid-ticks/) 有助于避免被叮咬。
 

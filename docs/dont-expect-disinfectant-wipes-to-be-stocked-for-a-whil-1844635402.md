@@ -4,7 +4,7 @@
 
 在 2019 年的旧日，消毒湿巾有一个小而专用的市场。恐惧症患者和父母定期购买；对于我们中的许多人来说，它们要么是偶尔出现的，要么是不必要的。现在一切都变了，生产湿巾的公司正在努力跟上。
 
-Watch
+
 
 Clorox 将无法跟上需求，直到明年的某个时候， [赫芬顿邮报报道](https://www.huffpost.com/entry/clorox-disinfecting-wipes-2021_l_5f29a190c5b68fbfc8888e92?ncid=tweetlnkushpmg00000035&guccounter=1) 。该公司通常会生产足够的额外湿巾来度过寒冷和流感季节，但他们没有办法为新冠肺炎做准备。
 

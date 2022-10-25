@@ -4,7 +4,7 @@
 
 你知道 Gmail 有很多内置快捷方式吗？默认情况下，它们是关闭的，但如果你是一个重度 Gmail 用户，你可以打开它们，让浏览收件箱更有效率。
 
-Watch
+
 
 例如，一旦启用，Shift+I 可以将消息设为已读，#可以将其删除，而 Shift+C 可以在新窗口中开始新消息。这些快捷方式非常有用( [)我们甚至在这里收集了大量我们最喜欢的东西](https://lifehacker.com/the-19-most-important-gmail-keyboard-shortcuts-1836311313) )，只要你真的使用它们。
 

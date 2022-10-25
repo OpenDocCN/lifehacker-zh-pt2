@@ -4,7 +4,7 @@
 
 我将继续下去，为我自己为“Qnap”和“恶意软件”这两个词设置了一个谷歌警报而感到自豪。我使用该公司的一个 NAS 盒，就像许多其他人一样，现在我有机会为我的设备接种疫苗，抵御正在传播的一种令人讨厌的新恶意软件。
 
-Watch
+
 
 这种恶意软件被称为 QSnatch，它将代码注入到 QNAP NAS box 的固件中，然后 QNAP NAS box 有能力调用命令控制服务器将*额外的*代码转储到您的设备上。最终，写到[芬兰国家网络安全中心](https://www.kyberturvallisuuskeskus.fi/en/news/qsnatch-malware-designed-qnap-nas-devices)写到，QSnatch 可以执行以下操作:
 

@@ -4,7 +4,7 @@
 
 Xbox One 用户现在可以从他们的游戏机向他们的 Android 智能手机和平板电脑传输游戏。 [PC](https://lifehacker.com/how-to-stream-steam-games-to-your-android-device-with-s-1826390959) 和 PlayStation 玩家已经有了 [类似的流媒体选项](https://lifehacker.com/how-to-stream-your-ps4-to-any-android-phone-1838909366) 现在已经有一段时间了，但是，直到今天，微软 [仍将 Xbox One 流媒体](https://lifehacker.com/windows-10s-xbox-app-is-awesome-even-if-you-dont-have-1723617404) 限制在 Windows PCs 上。
 
-Watch
+
 
 对 Android 设备的支持是微软下一代游戏机云流媒体计划的一个明显步骤，但目前，手机流媒体仍在最终测试中。因此，在您尝试家庭游戏流时，您可能会体验到变化无常的性能和超出预期的延迟。
 

@@ -4,7 +4,7 @@
 
 我使用许多不同的工具和应用程序来管理我的工作流程和个人生活: [Airtable](https://airtable.com/) 用于调度， [Toggl](https://toggl.com/) 用于计时， [YNAB](https://www.youneedabudget.com/) 用于预算， [RescueTime](https://www.rescuetime.com/) 用于生产力跟踪， [Fitbit](https://www.fitbit.com/) 用于健康跟踪， [Exist](https://exist.io/) (信不信由你，有报道称，下班后不查收邮件的时候，我的工作效率会更高。不管怎样，当我摄入更多的蛋白质时，我也会更有效率。)
 
-Watch
+
 
 然后我有一个电子表格。
 

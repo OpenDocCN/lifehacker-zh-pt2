@@ -4,7 +4,7 @@
 
 如果你已经注意到你在 Windows 10 上的一些游戏在上周特别没有反应，你并不孤单。微软证实，最近的一次 Windows 10 更新，补丁 [KB4482887](https://hothardware.com/news/microsoft-windows-10-october-update-cripple-game-performance) ，引入了一个大幅增加延迟的 bug。不过，别担心。幸运的是，微软在一个新的补丁 [KB4489899](https://support.microsoft.com/en-us/help/4489899/windows-10-update-kb4489899) 中迅速解决了这个问题，据报道该补丁修复了这个问题。
 
-Watch
+
 
 根据关于 [Reddit](https://www.reddit.com/r/Windows10/comments/aw8il0/march_1_2019_kb4482887_os_build_17763348/) 和像 [Joker Productions](https://www.youtube.com/watch?v=jJGDRffb9q4) 这样的 YouTube 的报道，每当你在像 *Apex Legends* 、 *Destiny 2* 和一些更老的使命召唤游戏中使用鼠标时，该补丁都会导致“大量”输入延迟。考虑到大多数受影响的游戏都是第一人称射击游戏，需要抽搐反射和非常精确的鼠标动作，这个问题可能会使这些游戏几乎无法玩。
 

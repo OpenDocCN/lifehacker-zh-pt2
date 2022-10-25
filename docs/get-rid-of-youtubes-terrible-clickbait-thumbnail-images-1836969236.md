@@ -4,7 +4,7 @@
 
 曾经，YouTube 缩略图实际上很像他们广告的视频。曾经，推荐视频列表不是 PS 头像和图形叠加的感官过载，每个缩略图看起来都像一场史诗般的说唱历史之战。你可以回到那个时候，用实际 YouTube 视频中的帧替换 clickbaity 缩略图，用 Chrome 扩展 [为 YouTube](https://chrome.google.com/webstore/detail/clickbait-remover-for-you/omoinegiohhgbikclijaniebjpkeopip) 移除 Clickbait。
 
-Watch
+
 
 安装扩展，并告诉它是否从视频的开头、中间或结尾抓取帧。Clickbait Remover 还可以让您将美国视频标题中禁止的所有大写字母变成令人惊叹的必看内容！变成小写或句子大小写。
 

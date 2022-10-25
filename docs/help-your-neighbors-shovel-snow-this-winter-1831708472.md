@@ -4,7 +4,7 @@
 
 今年冬天 [以创纪录的降雪](https://www.washingtonpost.com/weather/2018/10/16/record-early-season-cold-snow-have-taken-over-central-united-states/?utm_term=.79b9536391a2) 和冰冻的温度开始——我们甚至还没有过半，这意味着我们许多人都有几周或几个月的降雪(和铲雪)要期待。
 
-Watch
+
 
 市政法规通常要求居民在积雪或停止下落后的一定时间内( [通常是 24 小时](https://minnesota.cbslocal.com/2015/12/01/good-question-when-do-we-have-to-shovel-sidewalks/) )清除其物业内人行道上的冰雪。如果业主没有在截止日期前铲雪，他们可能会面临罚款和/或被收取除雪费用。
 

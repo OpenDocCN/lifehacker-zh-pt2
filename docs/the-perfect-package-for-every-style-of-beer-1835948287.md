@@ -4,7 +4,7 @@
 
 如果你的室友发短信给你“嘿，请在回家的路上买些啤酒”，你会怎么想？最有可能的是，你想象的是六瓶装的，但是它包含罐头或瓶子吗？或者可能是一个星期五，30 包让你和朋友度过周末更适合你。或者也许你正在寻找一个 [软木塞和笼子](https://upload.wikimedia.org/wikipedia/commons/thumb/3/39/Beer_bottle_sealed_with_a_cork_and_muselet.jpg/220px-Beer_bottle_sealed_with_a_cork_and_muselet.jpg) 专业瓶，你们两个可以在晚餐时分享。
 
-Watch
+
 
 美国啤酒厂 数量的激增不仅体现了啤酒风格的多样性，也体现了出售啤酒的容器的多样性。杂货店现在库存 6 包，15 包，30 包，个别 19.2 超高男孩罐，16 盎司罐，等等。啤酒厂发现，一个 16 盎司的四装罐——[最好贴上乙烯基标签](https://thetakeout.com/are-shrink-wrapped-beer-cans-recyclable-1832063063)——是向 IPA 饮酒者传达其声望的新方式。就在本周，我收到了我的第一罐 8 盎司装的啤酒，来自芝加哥的霍普韦尔酿酒公司(见右图)。
 

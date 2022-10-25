@@ -4,7 +4,7 @@
 
 父母可以去药店买一个新的捕兽器并宣布返校购物结束的日子已经一去不复返了。所需学习用品的清单非常紧张。根据 [德勤的年度调查](https://www2.deloitte.com/us/en/pages/consumer-business/articles/back-to-school-survey.html#) ，爸爸妈妈们今年将在每个家庭的学习用品上花费大约 519 美元，这并不奇怪。
 
-Watch
+
 
 为了省钱，看看你所在的州是否有返校免税周末。越来越多的州已经取消了这些假期 ，这些假期允许购物者购买精选的与学校相关的商品，而无需缴纳州销售税，但相当多的州仍保留着这一传统(目前如此)。每个州都有自己的规定，所以请访问相应的政府网站(通常是州税务局网页)阅读细则。如果您居住在参与州，您还可以在其销售税假日周末期间在零售商处购物，包括 [【沃尔玛】](https://help.walmart.com/ci/fattach/get/12592559/1555106046/redirect/1/filename/2019%20Sales%20Tax%20Holidays.pdf) 、 [亚马逊](https://www.amazon.com/gp/help/customer/display.html?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/find-out-if-your-state-is-having-a-back-to-school-tax-f-1836421808&asc_source=&nodeId=202036210&tag=kinjalifehackerlink-20) 和塔吉特，并购买不含销售税或降低销售税的精选商品。
 

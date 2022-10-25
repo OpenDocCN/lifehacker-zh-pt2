@@ -4,7 +4,7 @@
 
 当我的朋友科尔花太多时间穿着内衣玩视频游戏，或者在 YouTube 上看别人玩视频游戏时，他会想象他的祖父叹着气，翻着白眼，说“我为了这个参加了一场战争？”
 
-Watch
+
 
 我想，正是这种精神让 Reddit 用户的 alwaysmyday [把他们的锁屏](https://www.reddit.com/r/SuccessionTV/comments/dkzox0/put_this_as_my_phone_locked_screen_to_remind/) 换成了洛根·罗伊的照片，这位反对《T4》继任的父亲。redditor 表示，这是一个有用的提醒，提醒人们远离手机。你也可以这样做，不管你对失望的父母形象的品味如何。对你来说可能是:
 

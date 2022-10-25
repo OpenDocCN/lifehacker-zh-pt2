@@ -4,7 +4,7 @@
 
 天气频道是我们许多人的应用程序抽屉中的主要内容，它可能会在未经你同意的情况下使用你的位置数据。洛杉矶市周四提起诉讼，指控天气频道所有者天气公司及其母公司 IBM 未经许可，使用通过应用获得的位置数据进行有针对性的广告销售和营销。安装后，Weather Channel 应用程序会请求访问您的位置数据，以向您提供当地天气报告，但没有提到这些数据将用于广告或可能出售给第三方。
 
-Watch
+
 
 根据纽约时报 的报道，加州认为像这样不完整的许可申请是一种“欺骗性”的商业行为。(没错)。我们经常不假思索地允许应用程序访问我们手机中的各种数据，但在泄密和 [欺骗性商业行为](https://www.lifehacker.com.au/2017/01/should-you-be-worried-about-meitu-app-security-and-privacy-fears/) 之间，尽可能避免泄露信息肯定更好， [尤其是位置数据](https://lifehacker.com/its-time-to-check-which-apps-are-tracking-your-location-1830979707) 。
 

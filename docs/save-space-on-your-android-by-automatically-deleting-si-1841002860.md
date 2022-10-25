@@ -4,7 +4,7 @@
 
 Signal 刚刚更新了其 Android 应用程序，增加了新功能，使管理文件附件和删除旧对话比以前容易得多。
 
-Watch
+
 
 正如[Android Police](https://www.androidpolice.com/2020/01/13/signal-update-makes-it-easier-to-keep-track-of-files-and-storage-regardless-of-encryption/)解释的那样，在此次更新之前，使信号通信安全的相同的基于加密的功能*也*使得很难确切知道信号附件在你的 Android 设备上占用了多少存储空间。
 

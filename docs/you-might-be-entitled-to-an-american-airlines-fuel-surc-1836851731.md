@@ -4,7 +4,7 @@
 
 如果您最近通过美国航空公司预订了英国航空公司的 SEA-LHR 奖励机票，您可能有资格获得燃油附加费退款。
 
-Watch
+
 
 随着 [的分家伙](https://thepointsguy.com/news/american-airlines-fuel-surcharge-refund/) 解释道:
 

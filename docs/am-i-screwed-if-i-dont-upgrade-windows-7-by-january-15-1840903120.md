@@ -4,7 +4,7 @@
 
 截止日期很可怕。*我知道*。微软给 Windows 7 用户抛出了一个大难题:在 2020 年 1 月 15 日之前， [更新到更现代的操作系统](https://lifehacker.com/quickly-upgrade-windows-7-to-windows-10-for-free-with-t-1840843214) ，否则你将永远不会收到安全更新。最终，微软甚至将在全年内开始禁用 Windows 7 的关键服务——比如互联网双陆棋*和*互联网跳棋。
 
-Watch
+
 
 我对此有点轻松，但微软放弃 Windows 7 *是很多人担心的原因。Lifehacker 读者 **Douglas** 最近带着这个问题写道:*
 

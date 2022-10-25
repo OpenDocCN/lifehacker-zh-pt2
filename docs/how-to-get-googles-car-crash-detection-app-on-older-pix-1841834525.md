@@ -4,7 +4,7 @@
 
 根据即将到来的 Android 11 的早期开发人员构建，Pixel 4 专属的 [车祸检测应用](https://lifehacker.com/how-the-pixel-4-will-detect-car-crashes-and-help-you-re-1838679721) 将在 2020 年晚些时候 Android 大更新发布时进入旧的 Pixel 设备——但如果你不想等待，你可以提前试用。该应用的早期版本是从 Android 11 的开发者版本中提取出来的，并移植到了旧的 Pixel 手机上，你现在就可以将它下载到你的设备上。
 
-Watch
+
 
 ### 如何在旧的 Pixel 手机上侧装汽车碰撞检测应用程序
 

@@ -4,7 +4,7 @@
 
 最新的 Windows 10 Insider 版本现在支持三星 **Link to Windows** 应用程序和微软**Your Phone**Windows 10 应用程序之间的无线文件传输。如果你满足所有要求，这将使在你的 PC 和 Galaxy 智能手机之间发送照片和其他文件变得更加容易。
 
-Watch
+
 
 目前，该功能仅面向 Windows 10 内部人员，但它在最新测试版本中的出现意味着它应该很快就会面向普通用户。同样，无线文件传输只能在能够运行“链接到 Windows”应用程序 1.5 版或更高版本的 [三星设备上运行。Galaxy S10、S20 和 Note 10 应该都没问题，但使用旧设备的用户需要检查他们使用的应用程序版本。](https://lifehacker.com/how-to-add-the-galaxy-note-10s-link-to-windows-app-to-o-1837355912)
 

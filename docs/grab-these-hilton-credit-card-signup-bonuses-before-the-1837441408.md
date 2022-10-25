@@ -4,7 +4,7 @@
 
 如果你是一个经常旅行的人，想要获得大量的希尔顿荣誉积分，现在你的机会来了。
 
-Watch
+
 
 据积分专家 报道，美国运通和希尔顿将减少他们三张联名信用卡的欢迎红利。如果您想最大化您的奖金，您必须在 8 月 28 日之前申请美国运通 的希尔顿荣誉卡、 [希尔顿荣誉美国运通超越卡](https://www.americanexpress.com/us/credit-cards/card/hilton-honors-surpass/) 和 [希尔顿荣誉美国运通商务卡](https://creditcard.americanexpress.com/d/hilton-honors-american-express-business-credit-card/) 。
 

@@ -4,7 +4,7 @@
 
 如果你打算在这个劳动节周末外出，你应该计划尽快购买机票。
 
-Watch
+
 
 旅游网站 Hipmunk [最近查看了过去劳动节周末](https://www.hipmunk.com/tailwind/when-to-buy-your-summer-holiday-travel-for-max-savings/) 的历史数据，以确定预订航班的最佳时间。事实证明，购买的最佳时间是 7 月的第一周。这意味着购买九月假期机票的最佳时间是下周。
 

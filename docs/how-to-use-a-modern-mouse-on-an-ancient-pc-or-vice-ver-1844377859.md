@@ -4,7 +4,7 @@
 
 也许你被科技迷迷上了，成为了一名海军准将收藏家。或者你在清理爱人的房子时，发现了一些古老、笨重、四四方方的个人电脑。或者你有你自己的超级旧系统，你想修补一下。无论如何，复古系统总会带来某种怀旧的快乐。问题？让它们工作，尤其是如果你没有匹配的旧设备，可能会出现问题。
 
-Watch
+
 
 我的灵感来自于 [Hackaday](https://hackaday.com/2020/07/14/modern-mice-on-old-computers) 的这篇帖子，其中详细介绍了 [一种超级有用的适配器](https://retrohax.net/project-mouster-the-ultimate-mouse-adapter-for-retrocomputers) ，它允许你使用任何你想要的带有 [DB9 端口](https://en.wikipedia.org/wiki/Atari_joystick_port) 的 USB 鼠标(或游戏控制器)——如果你曾经玩过雅达利游戏机，至少应该对它非常熟悉。
 

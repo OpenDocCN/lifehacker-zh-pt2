@@ -4,7 +4,7 @@
 
 我最近在《卫报》 的 [中看到一个建议专栏，这让我很难过。一位母亲写信来寻求建议，因为她 10 岁的儿子一直在说没有人关心他，他希望他从来没有出生过，他的生命不值得活下去。她说，他还提到了“不明确的自杀方式”](https://www.theguardian.com/lifeandstyle/2018/aug/31/my-10-year-old-says-no-one-cares-talks-suicide)
 
-Watch
+
 
 作为父母，我们拼命想相信我们的孩子不可能死于自杀——甚至不会考虑自杀。但是 [自杀率持续攀升](https://www.verywellmind.com/youth-suicide-facts-1066787) ，那篇专栏文章让我想知道:我们的孩子什么时候会感到悲伤，需要一些额外的爱和关注，什么时候的担忧变得更深，需要专业帮助？
 

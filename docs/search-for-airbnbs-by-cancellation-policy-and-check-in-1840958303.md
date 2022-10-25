@@ -4,7 +4,7 @@
 
 当你在找 Airbnb 的时候，大多数情况下内置的搜索功能都很好用。有时候；但是，您还有一些标准搜索未涵盖的住宿规定。
 
-Watch
+
 
 例如，也许你想找一个可以提前入住或者为长期入住提供折扣的旅馆。 [Airplus 是 Chrome 的扩展](https://chrome.google.com/webstore/detail/airplus-advanced-options/bdcdjfoindheggeigmgocjlglbphnkdn?ref=producthunt) ，它给网站增加了额外的搜索层，这样你就可以更容易地显示信息。
 

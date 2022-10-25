@@ -4,7 +4,7 @@
 
 网络安全研究员 [萨姆贾达利](https://securitywithsam.com/)T5】最近发现大规模数据泄露，泄露了 45 家大公司和数百万个人的私人信息。Ja dali 和他的团队称之为“DataSpii ”,这次泄露是由看起来无辜的 Chrome 和 Firefox 浏览器扩展造成的，这些扩展收集并分发用户的浏览数据——显示用户私人信息和一长串公司的 URL，包括苹果，沃尔玛，亚马逊，23AndMe，SpaceX，Skype 等。(完整列表包含在 Ja dali 的报告 T11 中)。)
 
-Watch
+
 
 用于实施泄漏的八个扩展是:
 

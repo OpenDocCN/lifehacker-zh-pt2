@@ -4,7 +4,7 @@
 
 每天都有这么多关于新冠肺炎·疫情的文章，人们很容易被大量的信息淹没。鉴于此，现在比以往任何时候都更难找出哪些是真正提供高质量报告、值得关注的。那么，我们如何知道该读什么，该相信谁呢？
 
-Watch
+
 
 [华盛顿大学生物学教授卡尔·博格斯特伦](https://www.callingbullshit.org/) 博士(以及升级版 上的 [前嘉宾)，近日](https://lifehacker.com/how-to-detect-bullshit-1803144313) [与《科学美国人》](https://www.scientificamerican.com/article/how-to-evaluate-covid-19-news-without-freaking-out1/) 就如何消费和评价新冠肺炎新闻报道而不“抓狂”(他们的原话)。作为识别和辨别谎言的专家，博格斯特伦分享了一些技巧，帮助你找出哪些 COVID 新闻值得阅读和相信。这里有一些我们最喜欢的。
 

@@ -4,7 +4,7 @@
 
 FDA [最近授予一个品牌的鼻烟](https://www.fda.gov/news-events/press-announcements/fda-grants-first-ever-modified-risk-orders-eight-smokeless-tobacco-products?utm_source=CTPTwitter&utm_medium=social&utm_campaign=ctp-mrtp) “改良风险”地位，这种烟草产品在瑞典很受欢迎，在美国也开始流行。虽然它可能比其他烟草产品风险小，但它仍然不完全安全。
 
-Watch
+
 
 鼻烟(与鹅押韵)装在小袋中，意在塞在上唇和牙龈之间。不像嚼烟草或蘸烟草，它不会引起过多的唾液分泌，所以没有持续的吐痰。
 

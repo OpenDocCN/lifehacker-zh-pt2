@@ -4,7 +4,7 @@
 
 在她成为参议员和 2020 年总统候选人之前，伊丽莎白·沃伦是哈佛大学的教授，她还写了几本关于美国个人金融和经济不稳定的非常好的书
 
-Watch
+
 
 事实上，她的第一本书，[](https://www.amazon.com/Two-Income-Trap-Middle-Class-Parents-Going/dp/0465090907?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/follow-elizabeth-warrens-excellent-budgeting-advice-1833415377&asc_source=&tag=kinjalifehackerlink-20)**(与她的女儿阿米莉亚·沃伦·泰吉合著)强调了许多我们今天仍在应对的经济问题，如不断上涨的住房和教育成本、停滞的工资、中产阶级的空洞化等。早在他们成为全国最大报纸的每日素材之前。**
 

@@ -4,7 +4,7 @@
 
 至少在过去的四年里，我每年都决心少花点时间在 Twitter 上。
 
-Watch
+
 
 今年，在尝试和测试了许多不同的避开该网站的方法(包括一个 [电击手环](https://forge.medium.com/can-an-electronic-shock-bracelet-kill-your-bad-habits-35681ddb62cc) )后，我想我终于弄明白了。
 

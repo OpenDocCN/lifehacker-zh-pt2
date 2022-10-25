@@ -4,7 +4,7 @@
 
 聚会可能结束了，但每张桌子上的花看起来仍然新鲜。不要把它们扔进垃圾桶或和喝醉的家人一起送回家，而是把它们全部捐赠给一群需要振作精神的人。
 
-Watch
+
 
 举办像婚礼这样的大型活动可能会造成大量浪费。根据 Reddit 用户 [u/Bebop0420](https://www.reddit.com/user/Bebop0420) 的经验，其中一些装饰品可以在养老院找到第二次生命，他 [在 r/LifeProTips 上写道](https://www.reddit.com/r/LifeProTips/comments/9qrjxa/lpt_after_your_weddingother_special_event_you_can/) 他们的插花得到了很好的利用:
 

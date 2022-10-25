@@ -4,7 +4,7 @@
 
 我是那些必须总是运行我正在使用的任何东西的最新版本的人之一。应用程序？游戏？硬件？如果一个设备或软件没有自动更新程序(即使有)，我也会不断检查以确保它有最新的补丁、功能和安全补丁。是一种执念。
 
-Watch
+
 
 我、 [和其他](https://arstechnica.com/gadgets/2019/09/apple-released-two-bug-fix-updates-to-ios-13-in-one-weekend/) 已经注意到，在这个全新的 iOS 13 世界中，苹果正在以通常的强劲步伐进行更新，这是有充分理由的。iOS 13 的第一次公开发布充满了 [一些烦人的 bug](https://lifehacker.com/you-should-wait-to-upgrade-to-ios-13-1838280789)和缺乏 [一些有趣的功能](https://lifehacker.com/install-the-ios-13-1-beta-to-restore-these-missing-ios-1837631042) ，这些功能*差一点*就要发布了，但是不能。
 

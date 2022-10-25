@@ -4,7 +4,7 @@
 
 就科技虫而言，这是一个非常奇怪的问题。新的*神奇宝贝剑*和*神奇宝贝盾*游戏导致一些 Roku 机顶盒和电视崩溃。*神奇宝贝* *剑*和*盾*只在任天堂 Switch 上玩，不应该有任何理由与 Roku 设备接口。(神奇宝贝的力量显然是无限的。)
 
-Watch
+
 
 根据 Roku Reddit 用户 [MazInger-Z](https://www.reddit.com/r/pokemon/comments/dxc5yg/psa_pokemon_swordshield_causes_roku_devices_on/) 的说法，他做了一些网络测试来解决这个问题，问题显然围绕着这样一个事实，即神奇宝贝剑与盾不断发出无线信号，试图与其他玩游戏的任天堂交换机连接。Roku 设备试图解释这些信号，但不能，这导致它们崩溃。对这个帖子和其他帖子的回复证实，这个问题正在一系列设备上发生，包括 Rokus、Roku Sticks 和 TCL 的 Roku 电视。
 

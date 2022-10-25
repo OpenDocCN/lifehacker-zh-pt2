@@ -4,7 +4,7 @@
 
 我认为自己是一个快速泡菜革新者。毕竟，是我给你带来了 [大咸菜](https://lifehacker.com/make-a-giant-jar-of-giant-pickles-with-a-giant-zucchini-1837209505) ，一种非常好的咸菜，也非常大。这次我真的超越了自己。我做了酒精泡菜，味道很好。
 
-Watch
+
 
 对每个艺术家来说，拥有一个缪斯女神是很重要的，弗吉尼亚(我们的执行主编)就是我的缪斯女神，尤其是在奶酪、奶酪板以及你可能会在奶酪板上发现的任何腌制或腌制的东西旁边。最近，我们进行了一次简短的奶酪聊天，她提到一罐 [杜松子酒](https://europeandeli.com/products/kuhne-gin-cornichons) 进入了她的冰箱(和她的心脏)。显然，我需要知道更多。
 

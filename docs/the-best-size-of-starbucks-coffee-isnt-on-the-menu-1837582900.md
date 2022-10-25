@@ -4,7 +4,7 @@
 
 星巴克的菜单上没有“小份”这种东西。听过糟糕的单口喜剧表演的人都知道，尺码有高、大和大。星巴克不傻。他们做提供一个小；需求很少，所以他们不把它放在菜单上。他们不叫它小。(可能星巴克有点傻。)
 
-Watch
+
 
 [一杯星巴克咖啡是 12 盎司；格兰德 16；大杯 20。](https://customerservice.starbucks.com/app/answers/detail/a_id/3113/~/what-are-the-sizes-of-starbucks-drinks%3F) (天啊，特伦塔重 31 盎司。)这些你都不要点。你应该点的是“短”
 

@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/whats-new-on-netflix-the-week-of-may-18-2020-1843138785>
 
-Watch
+
 
 本周，网飞将迎来由库梅尔·南贾尼和伊萨·雷主演的《爱情鸟》。这部电影原本计划在影院上映，但由于新冠肺炎疫情将于 5 月 22 日在网飞上映。
 

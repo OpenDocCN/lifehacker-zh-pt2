@@ -4,7 +4,7 @@
 
 如果你已经买了一对 AirPods，你要确保它们处于最佳状态——是的，这意味着定期清洁它们。你的 AirPods 需要清理的一个线索是，它们似乎变得越来越安静。原来，可能是你自己的天然耳垢堵塞了豆荚。
 
-Watch
+
 
 为了摆脱这种困扰，我们来看看石英 2017 年的一篇文章 [，其中提到了苹果社区论坛](https://quartzy.qz.com/quartzy/1142342/are-your-airpods-getting-quieter-its-time-to-clean-them-heres-how/)[2014 年的一篇帖子](https://quartzy.qz.com/1142342/are-your-airpods-getting-quieter-its-time-to-clean-them-heres-how/) 。在帖子中，一位用户注意到他们的左耳耳机比右耳耳机更安静，他想知道，“我的左耳聋了吗，还是我的耳机普遍坏掉了？”网友 Frankie 1413 建议:
 

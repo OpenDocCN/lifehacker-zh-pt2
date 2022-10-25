@@ -4,7 +4,7 @@
 
 如果你在过去几年中接触过这些互联网领域，你就会知道所有关于煤气灯的事情，其中人们如此狂热地站在谎言背后，以至于他们迫使其他人也相信它，让马克斯不确定什么是真的，什么是真正的*苹果首席执行官的名字*T3】蒂姆·苹果 T5】。
 
-Watch
+
 
 煤气灯在网上特别有效，你可以在沉默中阅读一个故意的谎言，并消化它，而没有一个真正的人在你身后看着你，告诉你不要再做他妈的白痴。一旦领导人掌握了煤气灯的力量，因为 [他们已经有了](https://www.amazon.com/Republic-Lies-Conspiracy-Theorists-Surprising/dp/1250159059/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://deadspin.com/my-kids-won-t-stop-gaslighting-me-1833438696&asc_source=&keywords=anna merlan&qid=1553085866&s=gateway&sr=8-1&tag=kinjadeadspinlink-20) ，你就生活在一个反乌托邦里，在那里简单地让人们接受基本的事实——世界变得越来越热，MS-13 不会来杀你，埃利·曼宁应该在六年前退休——是最困难的艰苦战斗。因为煤气灯的原因，现在回到制图板是不可能的。但是，当人们把它作为一种社会威胁谈论时，不管是在我们现已去世的前 [母公司](https://gawker.com/gawker-was-murdered-by-gaslight-1785456581) 还是在其他地方，他们经常把它的蔓延归咎于互联网，或者特朗普家族，或者任何数量的尖叫着青蛙把他们变成同性恋的蠢蛋。但是他们忽略了关注煤气灯的真正祖先。当然，我说的是孩子。
 

@@ -4,7 +4,7 @@
 
 天气潮湿，刮风，在不到三个小时的时间里，我想我已经经历了芝加哥刺骨寒冷的全部天气:雨、冰雹和雪。我所做的一切都是为了最终在一个真实的，实时运行的网络上体验那些甜蜜的超快的 5G 速度。虽然我在风城测试下一代移动通信的短暂时间并不完全是在千禧公园散步，但我带走了一些关于 5G 初期状态的重要信息。
 
-Watch
+
 
 4 月 3 日，威瑞森的 [宣布](https://www.verizon.com/about/news/customers-chicago-and-minneapolis-are-first-world-get-5g-enabled-smartphones-connected-5g) 其 5G 网络正式在芝加哥和明尼阿波利斯投入使用，Big Red 声称，它不仅在美国交付了第一个商用 5G 网络，实际上是在全世界交付了 5G 网络。
 

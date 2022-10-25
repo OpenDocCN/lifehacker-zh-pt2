@@ -4,7 +4,7 @@
 
 学习一门新语言可能会很复杂，尤其是如果你没有地方练习你正在学习的新词汇和语言规则。
 
-Watch
+
 
 本周，Duolingo [宣布与 Twitch](https://www.twitch.tv/duolingo) 建立新的合作关系，这可能会让寻找练习空间变得更容易一些。
 

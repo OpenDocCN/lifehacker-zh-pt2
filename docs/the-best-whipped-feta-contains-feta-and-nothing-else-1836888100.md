@@ -4,7 +4,7 @@
 
 像其他消费品一样，食物也受资本主义之风的影响，这导致了与季节性无关的趋势。搅打羊乳酪目前很流行，但也很美味，所以我——这类东西的仲裁者——对它的流行很满意。
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled The Best Whipped Feta Contains Feta and Nothing Else](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-cook-with-leftover-feta-brine-1830920233)</aside>
 

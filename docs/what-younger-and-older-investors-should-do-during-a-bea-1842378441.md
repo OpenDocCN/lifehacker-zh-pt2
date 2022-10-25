@@ -4,7 +4,7 @@
 
 周一，股市经历了 1987 年以来最大跌幅。虽然 [市场目前正试图反弹](https://www.cnbc.com/2020/03/16/us-stock-futures-rise-slightly-following-dows-third-worst-day-ever.html) ，但在一段时间内，投资肯定会感觉比平时风险更大。
 
-Watch
+
 
 现在我们正处于熊市，你该怎么处理你的钱呢？这可能取决于你的年龄，或者你需要现金的时间。
 

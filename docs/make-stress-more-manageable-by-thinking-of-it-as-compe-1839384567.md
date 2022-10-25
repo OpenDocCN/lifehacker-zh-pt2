@@ -4,7 +4,7 @@
 
 压力是我们每个人都会有的，不同的是我们如何处理它。虽然在完成任务时，压力很容易让我们慢下来，甚至拖垮我们。本周, [Fast Company 发表了一篇关于压力](https://www.fastcompany.com/90416002/how-to-handle-stress-like-a-nascar-pit-crew-member) 的报道，并提出了一些应对压力的好建议，一:像飞行员一样驾驭压力。
 
-Watch
+
 
 这个建议来自特里·莱尔斯，他指导职业运动员和像纳斯卡车手这样的人如何处理压力。
 

@@ -4,7 +4,7 @@
 
 你可能已经注意到经济不太景气。消费支出大幅下降。 [失业人数](https://gizmodo.com/an-old-computer-system-is-keeping-many-americans-from-g-1842839527) 继续上升。但是股票市场...还好吗？
 
-Watch
+
 
 4 月，标准普尔 500 和道琼斯指数经历了自 1987 年以来最好的几个月。
 

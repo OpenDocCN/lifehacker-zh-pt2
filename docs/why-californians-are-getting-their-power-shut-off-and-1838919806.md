@@ -4,7 +4,7 @@
 
 今天加州 [有 50 万人断电](https://www.kqed.org/news/11778706/pge-power-shutoffs-what-you-need-to-know) ，未来几天还会有更多断电。以下是我们了解的情况。
 
-Watch
+
 
 ### 他们为什么要切断电源？
 

@@ -4,7 +4,7 @@
 
 如果你曾经将你的小狗的年龄乘以 7，以获得他们实际年龄的一些观点，你可能已经注意到这个公式有它的缺陷。一个 [新计算](https://theconversation.com/are-dog-years-for-real-an-explanation-of-calculating-canine-age-127655) 有点难记，但给出的答案可能更准确。
 
-Watch
+
 
 为了得出新的公式，研究人员将拉布拉多的 DNA 甲基化与不同年龄的人类进行了比较。甲基化是随着我们变老而发生在 DNA 上的生化过程；我们越老，DNA 上的甲基就越多。
 

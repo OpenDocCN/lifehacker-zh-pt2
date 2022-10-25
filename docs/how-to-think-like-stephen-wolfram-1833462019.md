@@ -4,7 +4,7 @@
 
 史蒂夫·沃尔夫勒姆致力于让人们变聪明。他的创作，包括 [Mathematica](https://www.wolfram.com/mathematica/) 、 [Wolfram Alpha](https://www.wolframalpha.com/) 和[Wolfram Language](http://wolframlanguage.org/)，帮助人们进行计算性思考，当他将它们比作数学符号的发明时，他并没有自大。作为 [Wolfram](http://wolfram.com/) 的创始人兼首席执行官，他监管着一个 800 人的团队，但他高度重视学习每一个技术细节，并将自己的投入最大化。
 
-Watch
+
 
 斯蒂芬最近发表了一篇 14000 字的文章，介绍了他的个人工作习惯 ，包括特别设计的书桌抽屉，扁平的文件系统，以及带着笔记本电脑散步对健康的好处。我们详细采访了他的心理策略，确保自我测量是一种工具，而不是一种干扰，他如何避免放弃自己的智慧，为什么谷歌不擅长机构搜索，以及让你的 wifi 网络在人群中脱颖而出的邪恶黑客。
 

@@ -4,7 +4,7 @@
 
 你每月支付多少订阅费？你的钱通过自动转账的方式汇走了，你也渐渐习惯了这种会员资格的好处:试用大小的化妆盒。每月的视频游戏 t 恤订阅。这款应用可以让你定制家庭瑜伽动作。在你每月预算的大计划中，每月 10 美元或 20 美元可能看起来微不足道。但是如果你开始考虑每月花费以外的事情呢？如果你必须预先付费，你还会想要订阅吗？
 
-Watch
+
 
 Reddit 用户 [ligmapolis](https://www.reddit.com/r/LifeProTips/comments/d240l4/lpt_think_of_monthly_subscriptions_in_terms_of/) 分享了这个小技巧:
 

@@ -4,7 +4,7 @@
 
 24 岁的 Zachary Shakked 是一名自主创业的 iOS 应用程序开发人员，他制定自己的时间表。“我通常睡懒觉，没有闹钟，在 9 点或 10 点左右醒来，吃早餐(通常是隔夜燕麦或鸡蛋和烤面包)，”他在电子邮件中解释道。“我通常会吃很多草——当我饿的时候我会吃东西。我绝对喜欢捣咖啡。”
 
-Watch
+
 
 你可能会认为这样一个灵活的时间表会给很多烹饪留下时间，但是膳食计划可以让每个人受益——尤其是那些白天 [少于结构化](https://skillet.lifehacker.com/how-to-eat-like-a-human-even-though-you-work-from-home-1823176244) 的人。Shakked 一直在“探索为忙碌的人建立一个与做饭相关的 [应用程序的想法”，这导致他创建了一个真正令人印象深刻的](https://www.meal.farm) [用餐计划](https://www.reddit.com/r/MealPrepSunday/comments/hzgqzt/zero_cook_meal_prep_10_meals_in_25_minutes_w) ，其中包括 10 道菜，只需用刀、叉、滤网和开罐器，就可以在八分钟内准备好，然后用微波炉烹饪(如果有的话)。
 

@@ -6,7 +6,7 @@
 
 iOS 13 的 [测试版面向开发者](https://lifehacker.com/how-to-install-the-ios-13-beta-right-now-and-why-you-m-1835241537) ，测试人员正在寻找一系列 [新功能](https://lifehacker.com/all-the-big-ios-13-changes-apple-announced-at-wwdc-19-1835216984) ，我们其他人将能够在几个月后接触到它们。iOS 13 最方便的变化之一是在 Shortcuts 应用程序中添加了自动触发器。
 
-Watch
+
 
 快捷键应用 的 [当前版本允许用户设置复杂的多步操作，只需点击一下或 Siri 语音命令即可实现。然而，在 iOS 13 中，用户将能够设置快捷方式的自动触发器。它们将在后台启动，无需您做任何事情(尽管有些操作可能仍然需要您的批准，在这种情况下，当快捷方式被触发时，将会发送推送通知)。](https://lifehacker.com/check-out-our-favorite-reader-submitted-ios-12-shortcut-1829186848)
 

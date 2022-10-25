@@ -4,7 +4,7 @@
 
 如果您是 LastPass 用户，您应该确保您当前运行的是最新版本的浏览器扩展。
 
-Watch
+
 
 [在今天](https://blog.lastpass.com/2019/09/lastpass-bug-reported-resolved.html/) 的一篇博文中，LastPass 承认了扩展中的一个 bug，该 bug 可能会允许恶意网站欺骗浏览器给它你在另一个网站输入的凭证。这可不是你想发生的事。
 

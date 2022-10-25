@@ -4,7 +4,7 @@
 
 谷歌最近为 Project Fi 客户升级了虚拟专用网(VPN)功能，允许用户选择使用 VPN 做他们在 Project Fi 上做的一切事情——wifi 和蜂窝连接。
 
-Watch
+
 
 谷歌的 [Android 专用](https://fi.google.com/about/phones/) 手机运营商搭载了 Sprint、T-Mobile、U.S. Cellular 和 Three 的蜂窝网络，还能自动连接美国各地超过[200 万个 wifi 热点](https://fi.google.com/about/coverage/)
 

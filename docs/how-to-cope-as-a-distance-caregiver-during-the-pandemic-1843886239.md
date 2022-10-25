@@ -4,7 +4,7 @@
 
 新冠肺炎·疫情意味着应对大多数人从未想过他们会面临的挑战:卫生纸短缺、普遍的家庭学校教育和一种新型病毒，这种病毒在不到三个月的时间里已经导致超过 10 万美国人死亡。它也极大地改变了护理领域。 [在美国，大约有 3980 万人](https://www.caregiver.org/caregiver-statistics-demographics) 为成年残疾人或疾病患者(18 岁以上)提供护理，而疫情的发作——尤其是身体距离——使本已困难的工作变得更加困难。
 
-Watch
+
 
 一般来说，大约 13%的美国人充当 [、](https://www.fawco.org/images/stories/global_issues/Women_Caring_from_a_Distance_Final.pdf)、的远程护理者，这意味着他们住在、[距离他们所护理的人大约 100 英里或更远的地方。但是在这个社会距离时代，特别是当涉及到老年人和其他弱势群体时，曾经被认为是“本地”的护理者在许多情况下成为了远程护理者，无法提供他们通常类型的护理。如果你发现自己在照顾父母或其他亲人时处于这种境地，这里有一些专家的建议，帮助你适应我们的新现实。](https://www.nytimes.com/2018/09/04/well/live/strategies-for-long-distance-caregiving.html)
 

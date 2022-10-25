@@ -4,7 +4,7 @@
 
 在今天的苹果活动后，我们有更多关于苹果即将与高盛合作的 [信用卡](https://lifehacker.com/should-you-get-the-apple-and-goldman-sachs-credit-card-1832792958) 的细节，如果你希望一张改变游戏的奖励卡，嗯，这不是它。
 
-Watch
+
 
 以下是苹果卡的主要特点，其中一些在今天的发布会之前由 [*华尔街日报*](https://www.wsj.com/articles/apple-goldman-sachs-team-up-on-credit-card-paired-with-iphone-11550750400) 首先报道:
 

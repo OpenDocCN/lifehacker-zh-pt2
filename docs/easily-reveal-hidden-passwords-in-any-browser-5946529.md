@@ -4,7 +4,7 @@
 
 如果您不想每次登录帐户时都要记住并键入密码，自动填充是一个很好的设置。事实上，我们强烈建议你 [使用密码管理器](https://lifehacker.com/the-five-best-password-managers-5529133) (并利用自动填充功能)来跟踪安全密码。但是如果你需要在其他地方输入密码，自动填充很容易忘记你的密码。
 
-Watch
+
 
 值得庆幸的是，有一种 [绕过这种](https://www.labnol.org/internet/reveal-hidden-password/25600/) 的方法。
 

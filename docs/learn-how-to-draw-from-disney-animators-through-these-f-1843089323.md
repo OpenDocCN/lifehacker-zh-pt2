@@ -4,7 +4,7 @@
 
 如果你一直在利用一些在家的时间学习如何画画，迪斯尼公园有一些视频可能会有所帮助。
 
-Watch
+
 
 该公园在 YouTube 上的 [“如何画”系列提供了如何画出从艾尔莎和安娜到唐老鸭和高飞等经典角色的视频。](https://www.youtube.com/playlist?list=PLflf8xbnbx65Z2oa2F9uqKZxJJn-4Nynr)
 

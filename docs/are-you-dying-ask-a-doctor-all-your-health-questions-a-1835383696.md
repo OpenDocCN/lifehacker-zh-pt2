@@ -4,7 +4,7 @@
 
 背部那种奇怪的、偶尔的疼痛已经困扰你一段时间了，但安排一次全面的医生预约似乎并不是一个很大的问题。你必须申请休假，确保你没有落下任何事情——这将是一整件事。为什么不同时在 Lifehacker 上问问医生呢？
 
-Watch
+
 
 美国东部时间下午 1 点，我们将迎来克里斯托弗·凯利，医学博士，理学硕士——《T2》[的作者之一，《我要死了吗？！:关于你的症状以及下一步该做什么的完整指南](https://www.amazon.com/Am-Dying-Complete-Guide-Symptoms/dp/0062847600/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/are-you-dying-ask-a-doctor-all-your-health-questions-a-1835383696&asc_source=&creativeASIN=0062847600&ie=UTF8&imprToken=kq5MPSzeLXysoFUj6kQIYw&keywords=am i dying&linkCode=w61&qid=1546879087&slotNum=0&sr=8-1&tag=kinjalifehackerlink-20)——在线帮助你找到一直困扰你大脑的健康问题的答案。(克里斯的合著者马克·艾森伯格(Marc Eisenberg)，医学博士，美国癌症协会，通常也会加入我们，但他本周不在。)
 

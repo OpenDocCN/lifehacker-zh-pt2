@@ -4,7 +4,7 @@
 
 继续我的探索，做我怀疑自己能做的东西——[披萨面团](https://thetakeout.com/recipe-how-to-make-pizza-dough-1827812406)[泡菜](https://thetakeout.com/recipe-how-to-make-refrigerator-quick-pickles-1833541867)——我最近的想法转向了果酱。我总是被煮沸和密封的过程吓到。但是除非你打算一次保存果酱几个月，否则消毒是没有必要的。如果你像我一样，午餐吃半罐美味的果酱配烤饼，你会毫无问题地很快用完。
 
-Watch
+
 
 果酱公司的创始人兼首席执行官拉娜·米拉向我保证，家庭厨师不必担心罐子的消毒问题，除非他们想让果酱耐储存。也许当明年圣诞节每个人都收到覆盆子-薄荷-香草果酱时，我会重温这一点，但对于我的第一次外出，我跳过了消毒(这也有助于使我的 [泡菜过程](https://thetakeout.com/recipe-how-to-make-refrigerator-quick-pickles-1833541867) 相当容易)。
 

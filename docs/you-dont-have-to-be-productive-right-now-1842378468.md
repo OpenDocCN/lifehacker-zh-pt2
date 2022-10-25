@@ -4,7 +4,7 @@
 
 我们被告知，艾萨克·牛顿在一个瘟疫年 完成了他最好的作品 [。当剧院关门时，莎士比亚可能已经把](https://www.washingtonpost.com/history/2020/03/12/during-pandemic-isaac-newton-had-work-home-too-he-used-time-wisely/) [变成了十四行诗](https://www.theatlantic.com/culture/archive/2020/03/broadway-shutdown-could-be-good-theater-coronavirus/607993/) 。现在你认识的每一个人都在家里工作(或者不工作)的时候从事某种项目。但是你知道你还有什么选择吗？*不* *做任何那种事。*
 
-Watch
+
 
 当你周围的商店关门，感染人数攀升的时候，呆在家里是一种奇怪的、前所未有的、可怕的情况。如果你不知道你的工作或整个社会发生了什么，感到有点压力是正常的？也许，我知道这是一个疯狂的想法，对自己宽容点？
 

@@ -4,7 +4,7 @@
 
 当我阅读“新发明食谱”时，我降低了我的期望，这些菜肴包括慢炖锅和速溶锅、空气油炸锅等。我总是准备对(在我看来)这道菜真正耗时的替代品感到失望。我不喜欢替换，更不喜欢走捷径——我不喜欢感觉自己被骗走了某样东西的更好版本。所以在阅读我做的许多食谱时，我一直看到——也一直忽略——即食排骨。
 
-Watch
+
 
 是的，我已经分享了美味的即食便餐(见 [芝士蛋糕](https://thetakeout.com/recipe-how-to-make-instant-pot-cheesecake-1834034972) 和 [智利猪肉](https://thetakeout.com/how-to-make-instant-pot-pork-chile-verde-1834560342) )。的确，这个网站的 [即食罐黄油鸡肉食谱](https://thetakeout.com/instant-pot-indian-butter-chicken-recipe-1834199355) 是我从冰箱里拿出来做单人晚餐时最喜欢的东西。但是 [即开锅军](https://thetakeout.com/5-foods-i-cook-in-my-instant-pot-1828235185) 已经把排骨推到了“好到要死”的程度，那种说法的夸张让我怀疑。
 

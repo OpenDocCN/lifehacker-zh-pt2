@@ -4,7 +4,7 @@
 
 这里有一个提醒:即使你已经先发制人地冻结了你的信用报告，你也应该每隔几个月检查一次可疑活动。
 
-Watch
+
 
 [信用冻结](https://twocents.lifehacker.com/what-to-know-about-freezing-and-unfreezing-your-credit-1829474191) 是一个很好的安全措施，因为它可以防止债权人访问你的报告。这意味着，如果有人试图以你的名义开立金融账户，他们将无法得逞。
 

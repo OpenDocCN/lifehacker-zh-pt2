@@ -4,7 +4,7 @@
 
 如果你在感恩节假期旅行，这里有一个建议:在机场给自己足够的时间。与每年的情况一样，这个感恩节假期将是 2019 年最繁忙的旅行日之一— [AAA](https://newsroom.aaa.com/2019/11/aaa-more-than-55-million-travelers-taking-to-the-roads-and-skies-this-thanksgiving/) 估计，仅本周四就有 445 万美国人将乘坐飞机。根据 [今日美国](https://www.usatoday.com/picture-gallery/travel/airline-news/2019/11/23/thanksgiving-travel-airports-shortest-and-longest-customs-lines/4272718002/) 报道，不出所料，来自海外的入境游客也往往在感恩节前后激增。
 
-Watch
+
 
 这对你意味着什么？好吧，准备好迎接交通堵塞，愤怒的人们，还有长长的队伍。如果你在这个假期进行国际旅行，移动护照制造商 Airside Mobile 最近根据旅客在海关和移民线上等待的平均时间(使用海关边境巡逻队在 2018 年感恩节前后提供的数据)对美国 25 个主要机场进行了排名。在确定排名时，他们还考虑了平均最长等待时间，以及每个展位处理的乘客数量等因素。
 

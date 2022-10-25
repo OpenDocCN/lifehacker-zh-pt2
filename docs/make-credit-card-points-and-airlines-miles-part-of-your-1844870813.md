@@ -6,7 +6,7 @@
 
 这就是为什么创建一个 [财务“随身”包](https://twocents.lifehacker.com/keep-these-financial-records-in-your-go-bag-1835947477) 可能会很方便，里面包括你家庭的所有重要记录。你也可以制定一个如何支付最后一分钟撤离费用的计划，这可能比你预期的要贵——取决于你去哪里和你需要呆多长时间。
 
-Watch
+
 
 除了常规的应急基金，你可以选择保留额外的旅行奖励。 [积分专家说](https://thepointsguy.com/guide/points-miles-emergency-preparedness-plan) 额外奖励积分、常旅客里程和免费酒店住宿认证可以在你最意想不到的时候帮你省钱。
 

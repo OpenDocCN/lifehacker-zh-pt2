@@ -4,7 +4,7 @@
 
 回到 11 月，就在 [前几天，三星推出了其柔性显示屏](https://gizmodo.com/samsung-s-flexible-display-is-our-best-look-yet-at-its-1830290960#_ga=2.153569468.506668787.1547161364-1595880060.1539636540) 手机， Royole 凭借全球首款柔性手机 [Flexpai](http://www.royole.com/flexpai) 亮相。可悲的是，演示在旧金山举行，而我在纽约。当我发现的时候，我根本没有足够的时间去那里。
 
-Watch
+
 
 谢天谢地， Royole 把 FlexPai 带到了 CES 2019，我终于有机会一探究竟了。与三星的预告片不同，Flexpai 不是原型，它是一款 [的产品，如果你不介意花 1320 美元购买的话，现在就可以买到。也就是说，你必须有错觉才会购买，因为虽然弯曲设备背后的想法超级令人兴奋，但 FlexPai 却表现平平。](http://www.royole.com/flexpai-black-6g-for-dev)
 

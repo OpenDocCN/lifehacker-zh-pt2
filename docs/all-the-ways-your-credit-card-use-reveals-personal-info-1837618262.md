@@ -4,7 +4,7 @@
 
 如果有人问你为什么用信用卡购买日常物品，比如食品杂货，你可能会不假思索地说出一些组合，比如方便以后支付信用卡账单，保护消费者免受潜在的欺诈，或者不必携带现金或担心支票余额。
 
-Watch
+
 
 但是，当然，所有这些好处都是有代价的。《华盛顿邮报》科技专栏作家 Geoffrey A. Fowler [进行了一次城市探险](https://www.washingtonpost.com/technology/2019/08/26/spy-your-wallet-credit-cards-have-privacy-problem) 展示信用卡公司及其亲信如何出售你的数据。在一个涉及两根香蕉、一张亚马逊 Prime Visa 卡和一张 [刚出炉的苹果卡](https://twocents.lifehacker.com/apple-card-is-now-available-for-everyone-1837403557) 的令人筋疲力尽的故事中，福勒指出了你的信用卡使用可能会泄露比你可能意识到的更多的个人信息的六个地方。
 

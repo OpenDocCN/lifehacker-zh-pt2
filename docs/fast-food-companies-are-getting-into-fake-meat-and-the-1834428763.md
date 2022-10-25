@@ -4,7 +4,7 @@
 
 在未来，我们被许诺会飞的汽车和假肉。虽然飞行汽车部分 [还没有淘出](https://paleofuture.gizmodo.com/i-will-literally-eat-the-sun-if-this-flying-car-is-rele-1691753404) ，但假肉似乎准备侵入美国人的生活，特别是通过快餐。在这个过程中，它可能会成为地球的一件大事。
 
-Watch
+
 
 仅在过去一周，Del Taco [首次亮相其 Beyond Meat Taco](https://thetakeout.com/del-taco-vegan-fast-food-beyond-taco-1833464869?_ga=2.197763055.1575897096.1556541739-1013477785.1530213155)[汉堡王宣布](https://thetakeout.com/burger-king-to-take-impossible-whopper-nationwide-2019-1834382272) 将在年底前将其不可能的巨无霸扩展到每个地方。除此之外，其他知名快餐品牌在过去一年中也加强了他们的无肉选择，包括白色城堡和小卡尔斯，这反过来又对麦当劳 [施加压力，让其加入植物汉堡列车。Beyond Meat 最近也宣布了 IPO 计划，预计估值为 15 亿美元，这意味着假肉市场仍在上升。](https://thetakeout.com/mcdonalds-meatless-plant-based-burger-petition-1834048480)
 

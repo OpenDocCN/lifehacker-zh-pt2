@@ -4,7 +4,7 @@
 
 一旦你把气球放飞到天空中，它们到底会去哪里？我们现在知道了答案，不幸的是，它一点也不漂亮。
 
-Watch
+
 
 2008 年至 2016 年间，在 [海洋保护协会](https://oceanconservancy.org/) 组织的海岸清理活动中，人们发现了数量惊人的 [63 万个](http://www.longwood.edu/cleanva/images/Balloon%20Release%20Research%20in%20VA-%20Joyful%20Send-off%20Report%20Nov%202017%20sm.pdf)。它们已经变得对海洋生物特别危险，这些海洋生物会被气球线缠住或混淆气球寻找食物(从而窒息并死亡)。
 

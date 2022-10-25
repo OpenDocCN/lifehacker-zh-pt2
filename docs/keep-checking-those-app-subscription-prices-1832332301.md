@@ -4,7 +4,7 @@
 
 苹果对试图以复杂的订阅价格吸引你的应用采取了稍微强硬的立场，但这并不意味着你不会受到那些想要你所有现金的蹩脚应用的影响。我们的建议？假装什么都没变。像本尼迪克特·康伯巴奇(Benedict Cumberbatch)一样不断检查订阅价格，就像你在解决一个*夏洛克*的恶作剧一样，并且定期检查你订阅了什么，以防你支付了你不想要的东西。
 
-Watch
+
 
 根据众多报道，苹果公司最近调整了应用程序订阅的 [人机界面指南](https://developer.apple.com/design/human-interface-guidelines/subscriptions/overview/)【HIG】和 [应用商店指南](https://developer.apple.com/app-store/subscriptions/) 。在这两个文档中，开发者现在被要求以一致和清晰的方式描述他们应用程序中的订阅价格。(我说的是“要求的”，而不是“必需的”，因为不清楚违反这条准则是否会导致应用程序被苹果的应用程序审查团队拒绝。)
 

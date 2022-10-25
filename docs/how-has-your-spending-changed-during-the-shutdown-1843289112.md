@@ -6,7 +6,7 @@
 
 [我的健身房](https://twocents.lifehacker.com/how-to-get-your-gym-membership-fees-back-during-the-cor-1842885943) 停止向我收费，我的 [汽车保险公司](https://twocents.lifehacker.com/look-for-a-credit-on-your-next-car-insurance-bill-1842797568) 正在给我打折，我预定的所有行程 [取消](https://twocents.lifehacker.com/ask-your-credit-card-to-cut-you-a-check-for-big-refunds-1843244743) 直到另行通知。
 
-Watch
+
 
 虽然我在酒吧和餐馆花了几乎零美元，这是我通常的周末预算克星，但我比平时在杂货店花的更多。
 

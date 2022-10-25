@@ -4,7 +4,7 @@
 
 昨晚，纽约州女众议员亚历山大奥卡西奥- 科尔特斯和马萨诸塞州众议员艾安娜·普莱斯利 [在赢得众望所归的众议院监督委员会席位后成为头条新闻](https://www.usatoday.com/story/news/politics/2019/01/22/alexandria-ocasio-cortez-appointed-oversight-and-reform-committee/2653661002/) 。
 
-Watch
+
 
 “来到你附近的一个委员会听证会，”普雷斯利 [发推文](https://twitter.com/AyannaPressley/status/1087911395495198720) ，随后是一张 gif 图片，标题为“我有收据。”但是对于那些不了解内情的人来说，这个强大的委员会*实际上监督什么呢？下面是众议院监督委员会重要性的内幕，以及为什么它比以往任何时候都更有必要。*
 

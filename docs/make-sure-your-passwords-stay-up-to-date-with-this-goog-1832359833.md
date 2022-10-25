@@ -4,7 +4,7 @@
 
 在这个企业黑客和大量密码泄露的时代，拥有一个新的、未经授权的密码和拥有一个难以破解的密码一样重要。为此，谷歌刚刚宣布并推出了一个新的 Chrome 扩展，它有助于确保你的密码不会被泄露，并仍然保持你的账户安全。
 
-Watch
+
 
 这个名为 [密码检查](https://chrome.google.com/webstore/detail/password-checkup/pncabnpcffmalkkjpajodfhijclecjno) 的扩展程序会在你使用时获取你的用户名和密码，并根据泄露的凭证对其进行检查。在其 [公司博客](https://www.blog.google/technology/safety-security/google-password-checkup-cross-account-protection/) 上，谷歌表示，它用来检查你账户的被攻破的密码库包括 40 亿个不安全的名称和密码组合，你知道，这是一个很大的数目。
 

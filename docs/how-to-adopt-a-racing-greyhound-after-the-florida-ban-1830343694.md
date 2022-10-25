@@ -4,7 +4,7 @@
 
 佛罗里达州以压倒性优势 [投票禁止赛狗](https://www.washingtonpost.com/sports/2018/11/08/greyhound-racing-ban-florida-means-thousands-dogs-will-need-new-homes/) ，这意味着到 2020 年底，成千上万的狗可能退出 j obs 。好消息是你可以在任何时候收养灰狗。它们是非常好的狗。
 
-Watch
+
 
 ### 佛罗里达发生了什么？
 

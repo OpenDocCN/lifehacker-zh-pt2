@@ -4,7 +4,7 @@
 
 尽管最近包含了新的 [自动故障排除和解决问题的工具](https://lifehacker.com/solve-windows-10-issues-automatically-with-the-new-reco-1835377734) ，但 Windows 10 的 [版本 1809 更新](https://lifehacker.com/the-best-new-features-in-windows-10s-may-2019-update-1834927597) 引入了相当多的 bug。一个最新的(也是更烦人的)怪癖是阻止你的电脑及时关机或进入睡眠状态。
 
-Watch
+
 
 ### 是什么导致了这个错误
 

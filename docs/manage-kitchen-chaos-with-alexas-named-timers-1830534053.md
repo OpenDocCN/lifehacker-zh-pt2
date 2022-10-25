@@ -4,7 +4,7 @@
 
 Alexa 和 Google Home 都允许你 [设置多个，命名计时器](https://www.amazon.com/gp/help/customer/display.html?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/manage-kitchen-chaos-with-alexas-named-timers-1830534053&asc_source=&nodeId=202110530&tag=kinjalifehackerlink-20) ，它们会保存感恩节。
 
-Watch
+
 
 你只需要说:
 

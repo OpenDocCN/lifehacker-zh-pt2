@@ -4,7 +4,7 @@
 
 我一生中有过三次不同的下背部受伤，都是因为糟糕的硬拉形式。直到几年前，在参加了一个举重健身房后，我才终于了解到什么可能是我持续背痛的最大原因:一触即发的硬拉动作，以及在每次练习之间轻轻擦过地板
 
-Watch
+
 
 如果你读过 Reddit[r/fitness threads](https://www.reddit.com/r/Fitness/comments/64ic0u/difference_between_touch_and_go_deadlift_and_full/)，你会发现重复之间的完全重置是唯一可以接受的硬拉方式；这是真的，不像一触即发，你在硬拉的时候休息一下会受益更多。
 

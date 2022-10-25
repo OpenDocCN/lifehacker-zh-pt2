@@ -4,7 +4,7 @@
 
 这个世界现在依靠视频聊天和远程办公应用程序运行，但正如我们在过去几周发现的那样，它们可能是一个安全风险。最近关于“Zoombombing”和帐户填充的报道引起了人们对几种不同的视频聊天应用程序的关注，但是你要担心的不仅仅是 [黑客和巨魔](https://lifehacker.com/how-to-prevent-jerks-from-ruining-your-zoom-meetings-1842453487) : Y 你还需要警惕拥有这些平台的公司。
 
-Watch
+
 
 ### 公司如何使用视频聊天中的数据
 

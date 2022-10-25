@@ -4,7 +4,7 @@
 
 有什么比没有腿部空间的中间座位更糟糕的？发现你的座位不能倾斜——你被困在一次跨国飞行中，当你坐直时，紧张地拉紧两个扶手。
 
-Watch
+
 
 如果你的背部有问题，或者只是讨厌坐飞机，一位用户在最近的 [Reddit 帖子](https://www.reddit.com/r/LifeProTips/comments/b6kk55/lpt_when_choosing_a_seat_on_an_airplane_do_not/) 中提出了一个有趣的建议，让你的旅行体验不那么令人沮丧:不要预订前排的座位。
 

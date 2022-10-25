@@ -4,7 +4,7 @@
 
 如果你使用 Chrome 有一段时间了，你可能会偶然发现它可怕的红色间隙——或者被称为谷歌安全浏览警告。如果你试图打开一个看起来有问题的网站， [就像一个恶意软件主机](https://transparencyreport.google.com/safe-browsing/overview) ，Chrome 会阻止你这样做，除非你稍微挖掘一下 [绕过它的警告](https://support.google.com/chrome/answer/99020?co=GENIE.Platform%3DDesktop&hl=en-GB) 。
 
-Watch
+
 
 虽然那个不能错过的红色拦截器应该可以帮助你阻止你访问你不想上的网站，但谷歌*也*提供了一些额外的工具，你可以用来检查一个网站的“安全浏览状态”，包括一个全新的 [可疑网站记者](https://chrome.google.com/webstore/detail/suspicious-site-reporter/jknemblkbdhdcpllfgbfekkdciegfboi) Chrome 扩展。
 

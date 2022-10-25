@@ -4,7 +4,7 @@
 
 无论你是一个刚刚从朋友或家人那里获得这项服务的 Spotify 新用户，还是一个长期用户，当你 [获得年度总结](https://spotifywrapped.com/) 时，你总是会对你听了多少感到震惊，在 Spotify 桌面和移动应用程序中有一个小设置似乎不能达成一致。
 
-Watch
+
 
 虽然这个功能在纸上听起来很棒——一个“ [音量水平](https://support.spotify.com/us/using_spotify/system_settings/high-quality-streaming/) ”选项，可以平衡你正在听的一切，所以你不会对超级响亮的音轨感到惊讶——这个功能，在你的应用程序中默认启用，据称也会影响音轨的动态范围。再见，你重低音歌曲中的*【wub wub wub】wub*(如果你能分辨的话)。 Reddit 用户 WATSON_349 [最近描述](https://www.reddit.com/r/audiophile/comments/a58fzh/reminder_that_spotify_defaults_to_audio/ebkoe75/) :
 

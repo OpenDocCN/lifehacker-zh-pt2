@@ -4,7 +4,7 @@
 
 拥有公共学生贷款的大学毕业生通常会在毕业典礼后获得六个月的宽限期，之后他们必须 [开始支付](https://twocents.lifehacker.com/why-you-should-make-student-loan-payments-during-your-g-1826640345) 。这意味着对于 2018 年春季毕业生来说，可能是时候开始付钱了。
 
-Watch
+
 
 学生贷款债务可以压倒一切。如果你不知道从哪里开始，就按照这个清单来做。
 

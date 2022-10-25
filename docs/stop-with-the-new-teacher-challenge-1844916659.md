@@ -4,7 +4,7 @@
 
 在最新一轮*中，人类到底发生了什么？*、现在抖音上有父母给他们的孩子看残疾人或患有影响他们外貌的疾病的人的照片。然后他们假装这些陌生人是他们孩子的新老师。因为，很明显，如果一个五岁的孩子对一个有伤疤或斗鸡眼的人或一个看起来严重醉酒的人做出恐惧的反应，那就太搞笑了。
 
-Watch
+
 
 当我写这篇文章时，标签为# [新教师挑战](https://www.tiktok.com/tag/newteacherchallenge?_d=secCgsIARCbDRgBIAIoARI%2BCjxLKQOAJN9liIagLYB%2BtpjctIXXJ0zJUit8%2BxzCKN194g7ePI1lC5%2BjLS%2F2UQp1Hxutott%2B0tDH35X6%2B%2BsaAA%3D%3D&language=en&preview_pb=0&share_item_id=6856858618357107974&share_link_id=E983CEAA-DEFA-410B-87F7-24B456C73C0C&timestamp=1598994751&tt_from=copy&u_code=0&utm_campaign=client_share&utm_medium=ios&utm_source=copy&source=h5_m) 的视频在抖音有超过 4200 万的点击量。抖音和其他社交媒体频道上的一些视频是公开反对的人，包括 [利兹·维拉斯奎兹](https://www.instagram.com/p/CDpMeamB2Qk) ，一位作家和励志演说家，她出生时患有极其罕见的先天性疾病，她的形象被用来向孩子们介绍他们的“新老师”但令人不安的是，大量带有该标签的帖子是人们试图震惊他们的孩子，让他们产生恐惧或厌恶的反应，这样他们就可以发布这种反应，让全世界观看并跟着笑。
 

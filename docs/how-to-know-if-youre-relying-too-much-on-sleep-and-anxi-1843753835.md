@@ -4,7 +4,7 @@
 
 与往常相比，我们的生活现在更被压力所定义，而压力的结果就是许多焦虑的不眠之夜。对许多人来说，这意味着转向抗焦虑药物或处方睡眠辅助药物。事实上，在过去的几个月里，抗焦虑和睡眠药物的 [处方已经增加](https://www.wsj.com/articles/more-people-are-taking-drugs-for-anxiety-and-insomnia-and-doctors-are-worried-11590411600?mod=e2tw) 到了医生们越来越担心他们的病人可能会过度使用药物或者对药物产生依赖的程度。
 
-Watch
+
 
 苯二氮卓类药物，如 Klonopin、Xanax、Valium 和 Ativan，以及睡眠辅助药物 Ambien 和 Lunesta，都具有这些风险，因此在您决定是否求助于药物治疗之前，这里有一些您应该知道的事情。
 

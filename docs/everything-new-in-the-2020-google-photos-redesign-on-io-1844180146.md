@@ -4,7 +4,7 @@
 
 谷歌最近宣布了谷歌照片应用 的 [新设计，充满了全新的功能和流线型的外观。重新设计现在正在 Android 和 iOS 上慢慢推出，一些用户可能已经有了新的布局和功能——包括一个可以帮助你跟踪你丰富的宠物照片的功能。](https://www.blog.google/products/photos/redesigned-google-photos/) 
 
-Watch
+
 
 你可以尝试通过 [Google Play](https://play.google.com/store/apps/details?id=com.google.android.apps.photosgo&hl=en_US) 或 [应用商店](https://apps.apple.com/us/app/google-photos/id962194608) 更新你的 Google 相册应用程序，看看新版本是否正在等待为你安装——如果没有，它可能很快就会安装到你的设备上。当应用程序图标变成新的圆形外观时，你就知道你拥有它了。让我们来看看这个应用程序的新版本。
 

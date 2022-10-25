@@ -4,7 +4,7 @@
 
 我知道，我知道。脸书试图做正确的事情，并限制其网络上的垃圾邮件,这有点像说我要用胶带来封住附近大坝的漏洞，但每一点都有帮助，对吗？
 
-Watch
+
 
 对于那些仍在使用社交网络的人来说——甚至我有时会想，如果 [是正确的举动](https://twitter.com/lizzadwoskin/status/1301580454433177602) ，鉴于 [脸书的突出地位](https://www.cnn.com/2020/09/03/tech/facebook-twitter-label-trump-post/index.html) 随着我们越来越接近 11 月的选举地狱场景——脸书现在借用 [WhatsApp](https://lifehacker.com/stop-the-spread-of-bad-information-by-adopting-whatsapp-1842729343) 的一页，限制内容如何通过 Messenger 转发。
 

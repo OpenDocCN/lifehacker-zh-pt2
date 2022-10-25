@@ -4,7 +4,7 @@
 
 美国儿科学会 希望所有年龄段的孩子的父母对水上安全保持警惕，尤其是幼儿和青少年，他们溺水的风险最大。但它也可能确定了父母应该何时开始给孩子上游泳课的最佳时机——就在孩子一岁生日的时候。
 
-Watch
+
 
 [更新的 AAP 预防溺水建议](https://www.aap.org/en-us/about-the-aap/aap-press-room/Pages/AAP-Updates-Recommendations-to-Prevent-Drowning-in-Children.aspx) 将 1 岁定为游泳课对孩子有益的年龄点。但是父母也应该考虑其他个人因素，比如在水中的舒适度、健康以及身体和认知的限制。
 

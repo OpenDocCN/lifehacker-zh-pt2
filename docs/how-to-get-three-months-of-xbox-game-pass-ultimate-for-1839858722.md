@@ -4,7 +4,7 @@
 
 就像微软知道的那样。我们刚刚讨论了 [几种方法](https://lifehacker.com/how-to-save-big-on-an-xbox-game-pass-subscription-1839695601) 你可以以低得离谱的价格获得 Xbox Game Pass Ultimate 订阅，这里还有一种方法可以添加到你的收藏中。由于微软的一个促销活动，新的 Game Pass Ultimate 用户现在可以花 1 美元 获得 [三个月的服务，而不是通常的一个月。](https://www.microsoft.com/en-us/p/xbox-game-pass-ultimate/CFQ7TTC0KHS0/000F?ranMID=24542&ranEAID=VZfI20jEa0c&ranSiteID=VZfI20jEa0c-HapAcA5jadjaj_YoZBrF9Q&epi=VZfI20jEa0c-HapAcA5jadjaj_YoZBrF9Q&irgwc=1&OCID=AID2000142_aff_7593_1243925&tduid=(ir__6op30pavgckfrkdtkk0sohziz22xgo9r1x11fxhl00)(7593)(1243925)(VZfI20jEa0c-HapAcA5jadjaj_YoZBrF9Q)()&irclickid=_6op30pavgckfrkdtkk0sohziz22xgo9r1x11fxhl00&activetab=pivot:overviewtab)
 
-Watch
+
 
 由于三个月的 Xbox Game Pass Ultimate 通常需要花费 45 美元，所以你可以通过这次促销节省相当多的现金——而且你可能还会变得更加疯狂。正如我们所提到的，如果微软为您提供订阅定期计费的选项(您可以在订阅后立即取消)，您可能会获得额外的免费订阅月，从而节省 59 美元。
 

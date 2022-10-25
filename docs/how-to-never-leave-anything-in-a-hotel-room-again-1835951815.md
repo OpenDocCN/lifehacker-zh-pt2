@@ -4,7 +4,7 @@
 
 2018 年，总部位于英国的连锁酒店 [Travelodge](https://www.traveldailymedia.com/travelodge-bizarre-things-left-behind/) 列出了旅行者留在房间里的最奇怪的东西——包括三条金鱼、一整辆冰淇淋车和两只波斯猫。早在 2016 年，有人还把他们的设得兰矮种马布丁留在了 Travelodge 酒店。(谢天谢地，他后来被认领了)。
 
-Watch
+
 
 本周， [《今日美国》](https://www.usatoday.com/story/travel/advice/2019/06/28/how-to-make-sure-you-dont-leave-anything-behind-at-your-hotel/1583627001/) 提供了一些关于如何在退房时不忘记任何重要物品(或宠物)的建议。如果你是健忘的类型，重要的是你要以正确的方式组织你的事情，并在你最终永远离开之前为自己设置提醒。
 

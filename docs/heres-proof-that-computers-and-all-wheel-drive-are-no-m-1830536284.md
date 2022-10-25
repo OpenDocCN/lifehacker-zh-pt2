@@ -4,7 +4,7 @@
 
 在 之前，我们已经 [说过了，我们要再说一遍:如果你住在冬天很严重的地方，你真的需要](https://jalopnik.com/heres-why-you-need-winter-tires-as-shown-with-a-tricyc-1754259579) [在你的日常驾驶上考虑冬季轮胎](https://jalopnik.com/a-guide-to-how-you-should-buy-winter-tires-1821780963) 。是的，就算你有 [全驱](https://jalopnik.com/you-dont-need-all-wheel-drive-in-the-snow-1821806245) 。是的，即使轮胎店的收据上清楚地写着“一年四季”。这很有道理。
 
-Watch
+
 
 为了提醒我们什么是我们真正应该知道的，TireRack.com 进行了一系列测试，看看冬季轮胎在结冰条件下有多重要。答案是:非常。
 

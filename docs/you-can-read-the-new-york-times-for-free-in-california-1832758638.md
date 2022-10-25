@@ -4,7 +4,7 @@
 
 周二,《纽约时报》宣布其内容将对加州任何持有图书证的人完全免费。以下是如何像访问加州阳光一样轻松访问新闻的方法。
 
-Watch
+
 
 不仅仅是 NYT 上的当前文章；据希尔称，借书证还允许 [访问其所有的数字内容和档案](https://thehill.com/homenews/media/430594-new-york-times-now-free-in-all-1200-california-public-libraries) 。加州《东海岸报》已经有了相当数量的读者，所以这似乎是某种奖励:
 

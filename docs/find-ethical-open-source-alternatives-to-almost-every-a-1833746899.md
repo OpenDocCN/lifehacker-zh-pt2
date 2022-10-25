@@ -4,7 +4,7 @@
 
 我们喜欢大公司提供给你的应用程序和产品的便利性和功能丰富性，但我们也支持个人自主权和对你在线体验的控制 。不过，只是 [背对着大财团](https://lifehacker.com/how-to-ditch-apple-completely-1821082984) 是一回事；有意识地、合乎道德地这样做是另一回事。
 
-Watch
+
 
 值得庆幸的是，由于 Ethical.net 收集了 [道德替代品&资源](https://ethical.net/resources/?utm_source=densediscovery&utm_medium=email&utm_campaign=newsletter-issue-30&resource-category=social-media) ，找到符合你价值观的主要应用和服务的可行替代品变得更加容易。该精选列表包括软件、技术、网站和将隐私、用户权利和可持续性放在首位的组织。对于那些希望减少他们的数字和物理足迹并回收一些在线代理的人来说，这个列表将是一个极好的资源。
 

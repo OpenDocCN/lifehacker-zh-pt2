@@ -6,7 +6,7 @@
 
 随着全国数以百万计的孩子参加在线课程，而不是面对面的学校，肯定会有大量的“无脚本”活动。如果那是你的包，看看这个经常搞笑，有时又令人心酸的 [Reddit 帖子](https://www.reddit.com/r/AskReddit/comments/itz0qf/students_of_reddit_has_anyone_in_your_online) ，它展示了 Zoom 上成千上万的“哦，狗屎”时刻，包括不合时宜的放屁，无意中听到的老师和他们配偶之间的争吵，以及大量不幸的衣柜故障。
 
-Watch
+
 
 ### 你从未听说过的名人:达梅里奥姐妹
 

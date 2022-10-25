@@ -4,7 +4,7 @@
 
 如果你今年秋天申请经济资助，过程可能会有所不同。原因如下:你 2021 至 2022 学年的助学金表格会考虑你家庭从 2019 年开始的收入。如果你的收入在 2020 年受到疫情冠状病毒的影响，你可能需要要求调整奖励。
 
-Watch
+
 
 正如 [华尔街日报](https://www.wsj.com/articles/college-financial-aid-what-parents-and-students-need-to-know-starting-oct-1-11599483601) 报道的那样，你随时可以根据自己的家庭情况要求调整奖金。以下是如何开始:
 

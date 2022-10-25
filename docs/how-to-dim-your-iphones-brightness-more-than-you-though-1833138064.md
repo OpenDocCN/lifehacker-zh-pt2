@@ -4,7 +4,7 @@
 
 iPhone 的亮度不够低。在一片漆黑中，即使是最暗的设置也会太亮。但是你可以把 iPhone 最暗的设置调得更暗，这要感谢 redditor manawesome326 的提示 [。我们将一步一步地带你通过它。](https://www.reddit.com/r/NoStupidQuestions/comments/ayaqnc/anyone_else_wish_their_phones_can_go_darker_than/ehzg5gn/) 
 
-Watch
+
 
 进入设置应用，搜索“减少白点”或者点击通用>辅助功能，向下滚动到辅助功能快捷方式，然后选中减少白点。现在，每当你点击 home 键三次，你的屏幕就会变暗，即使它已经处于最低亮度设置。
 

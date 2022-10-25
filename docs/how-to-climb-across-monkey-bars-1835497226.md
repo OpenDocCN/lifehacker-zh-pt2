@@ -4,7 +4,7 @@
 
 我小时候单杠已经够难了。但是这周我又试了一次，比以前更老，更聪明，肌肉也更多了。你知道吗？他们仍然非常非常努力。
 
-Watch
+
 
 因为我们这个月在 进行 [操场健身挑战，我花了一些时间阅读了猴子酒吧的建议并尝试了一下。我有以下情况要报告:](https://vitals.lifehacker.com/the-june-fitness-challenge-is-playgrounds-1835210163)
 

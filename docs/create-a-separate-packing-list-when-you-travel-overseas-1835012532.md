@@ -4,7 +4,7 @@
 
 我在 iPhone 上保存了至少六份不同的打包清单，有些是长周末用的，有些是紧急情况用的，还有一份是专门为长途飞行准备的。
 
-Watch
+
 
 虽然我*可能*做过头了，但这里有一个快速提示:如果你计划在不久的将来进行几次旅行，现在就帮自己一个忙，至少创建两份单独的打包清单:一份是出国旅行，一份是国内旅行，就像 u/delicious_tomato 在 [Reddit](https://old.reddit.com/r/LifeProTips/comments/bsixve/lpt_if_you_travel_frequently_create_a_packing/) 上建议的那样。
 

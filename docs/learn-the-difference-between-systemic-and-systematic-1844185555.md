@@ -4,7 +4,7 @@
 
 鉴于最近关于种族不公正的讨论和示威,“系统性的”和“系统性的”这两个词已经出现了很多，有时可以互换使用。虽然它们有相同的词根，但它们也有不同的意思。如果你不太确定每个单词的确切使用时间， [米农·福格蒂(又名“语法女孩”)](https://www.quickanddirtytips.com/education/grammar/systemic-or-systematic) 和 [语法学家](https://grammarist.com/usage/systematic-systemic/) 的好心人已经为我们拼出来了。以下是需要了解的内容。
 
-Watch
+
 
 ### 一些背景
 

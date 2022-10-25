@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/turn-sad-winter-tomatoes-into-delicious-roasted-salsa-1833380599>
 
-Watch
+
 
 每年至少有一次，我不顾一切地想要看到一丝春天的曙光，买下超市里第一批看起来甚至有些成熟的西红柿。它们只会让我彻底失望，这意味着我最终会后悔我的购买——怨恨那些劣质的西红柿把我骗了进去。
 

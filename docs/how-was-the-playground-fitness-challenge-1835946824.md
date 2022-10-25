@@ -4,7 +4,7 @@
 
 好了，我们已经来到了 [游乐场健身挑战赛](https://lifehacker.com/the-june-fitness-challenge-is-playgrounds-1835210163) 的尾声，虽然如果你玩得开心，你肯定不必停下来。
 
-Watch
+
 
 这个月来，我在单杠上有所进步，虽然不是很好，因为 [单杠很难，而](https://vitals.lifehacker.com/how-to-climb-across-monkey-bars-1835497226) 单杠很难。(尤其是当你早上在孩子们醒来之前去操场，所有的东西都沾满了露水。超级滑。)我尝试了一些新东西，比如挂在横杆上练习握杆。
 

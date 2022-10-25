@@ -4,7 +4,7 @@
 
 如果你家里有一个刚开始学习阅读的小孩，谷歌有一个新的免费资源可以帮助他们。
 
-Watch
+
 
 本周 [谷歌推出了 Read Along、](https://play.google.com/store/apps/details?id=com.google.android.apps.seekh)一款帮助小学生练习阅读技巧的应用。该应用基于谷歌现有的应用 Bolo，去年在印度推出。
 

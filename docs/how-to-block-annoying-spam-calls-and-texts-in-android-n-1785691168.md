@@ -4,7 +4,7 @@
 
 Android 希望让你和垃圾来电者尽可能远离对方。当你在 Android 的设置中屏蔽一个号码时，它将永远对你手机上的所有应用程序屏蔽，而无需通过你的网络提供商[。虽然谷歌几年前在之前的 Android 版本中引入了阻止号码的功能，但访问和添加到你的阻止号码列表已经发生了一些变化，现在有多种方式可以做到这一点。以下是你可以在 Android 上屏蔽号码的所有方法。](https://twocents.lifehacker.com/you-can-block-robocalls-by-default-with-your-phone-comp-1835324828)
 
-Watch
+
 
 ### **如何使用谷歌拨号器屏蔽号码**
 

@@ -4,7 +4,7 @@
 
 今天早些时候，超级百万头奖 [达到了 10 亿美元](https://abcnews.go.com/US/mega-millions-powerball-lotteries-now-billion-combined-jackpot/story?id=58505714) ，各种因素的综合推动其达到创纪录的水平。
 
-Watch
+
 
 所以，如果你在想“为什么不呢？”说到买票，我们不怪你。毕竟，你和其他人一样，有 3.026 亿分之一的机会赢得头奖。
 

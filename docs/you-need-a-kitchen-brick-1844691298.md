@@ -4,7 +4,7 @@
 
 砖头不是你能在 Williams-Sonoma 或 Sur La Table 买到的东西，但也许应该买，因为它们在厨房里非常有用。实际上，算了吧。这两家零售商都非常擅长让曾经买得起的东西变得买不起，最终可能会出售“当地采购的用食品级硅胶包裹的沉淀物砝码”或类似的东西。(等等。他们已经卖 35 美元的 [烧烤炉](https://www.williams-sonoma.com/products/williams-sonoma-grill-press/?catalogId=41&sku=3507901&cm_ven=PLA&cm_cat=Google&cm_pla=Outdoor%20%3E%20Grill%20Tools%20%26%20Accessories&cm_ite=3507901&gclid=EAIaIQobChMIt7qgqoeU6wIVZRitBh1t7A2WEAQYBCABEgIS_vD_BwE) ，【这些都是带把手的奇特砖块。我的思想！)
 
-Watch
+
 
 总之。砖块在厨房里很有用，尤其是当你用厚铝箔包了几次之后。如果箔片变脏了，就更换它。这是一个完美的系统。砖头包好后你会怎么处理？很明显，你把它放在东西上面，然后用它砸东西。
 

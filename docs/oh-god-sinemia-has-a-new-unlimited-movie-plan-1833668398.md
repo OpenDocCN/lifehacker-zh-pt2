@@ -4,7 +4,7 @@
 
 电影院订阅服务 Sinemia 刚刚宣布了一项新的“无限”计划，每月 15 美元。你一天只能看一部电影，但你可以在任何时间任何影院看。 ***更新 2019 年 3 月 29 日下午 4 点 25 分:** Sinemia 告诉 life hacker 没有对特定电影进行封锁——这是竞争对手 MoviePass 的常见问题。就其本身而言，这听起来很划算——一个月看两部电影，你就已经领先了。但还是有一个问题。* 
 
-Watch
+
 
 去年，作为其更著名的竞争对手 MoviePass 搞砸了[再](https://lifehacker.com/how-to-cancel-your-moviepass-subscription-1828062833#_ga=2.36632032.1576232585.1553607908-2064621199.1553269009)[再](https://lifehacker.com/is-your-moviepass-subscription-still-worth-it-1828359816)再再
 

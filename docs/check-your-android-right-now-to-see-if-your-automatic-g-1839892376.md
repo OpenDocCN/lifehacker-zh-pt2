@@ -4,7 +4,7 @@
 
 对于许多 Android 用户来说，Google Drive 的自动设备备份功能显然被破坏了。到目前为止，谷歌 Pixel、三星 Galaxy/Note、摩托罗拉、一加和华为设备以及 Android 9 和 Android 10 都报告了该漏洞。这是 Android 设备的一个很大的横截面，但这个问题可能会更加普遍。
 
-Watch
+
 
 无论是 [Android Police](https://www.androidpolice.com/2019/11/13/android-backups-to-google-drive-have-been-disabled-on-many-phones-for-months-no-proper-fix-in-sight/) 还是 [9to5Google](https://9to5google.com/2019/11/14/android-failed-backups-google-drive-issue/) 注意，如果 Google Drive 备份失败或以这种方式停止，Android 设备不会通知你，所以许多其他 Android 用户可能正在经历这个错误，甚至没有意识到这一点。确认你的 Google Drive 备份不起作用的唯一方法是检查你的系统设置。转到**设置>系统>备份**，如果**“备份”**按钮变暗，各种数据类别显示“等待备份”，那么——幸运的是——您遇到了错误。
 

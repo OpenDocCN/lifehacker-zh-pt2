@@ -4,7 +4,7 @@
 
 如果你是一名大学生，同时也是一名家长，你可能不知道有联邦补助金来帮助你支付育儿费用。
 
-Watch
+
 
 正如 [MarketWatch](https://www.marketwatch.com/story/too-many-colleges-arent-telling-student-parents-this-valuable-piece-of-information-agency-says-2019-09-16) 解释的那样，今天 22%的大学生是父母——但美国政府问责局的一份新报告显示，这些学生中的许多人不知道他们可能有资格获得儿童保育补贴:
 

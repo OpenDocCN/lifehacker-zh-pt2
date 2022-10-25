@@ -4,7 +4,7 @@
 
 如果你生活在地震多发的国家，本周加州发生的 [6.9 级和 7.1 级地震](https://earther.gizmodo.com/magnitude-7-1-earthquake-in-southern-california-is-seco-1836152140)可能会让你有点紧张。好好利用你的紧张情绪，准备好你的两个急救包。
 
-Watch
+
 
 ### 准备原地避难
 

@@ -4,7 +4,7 @@
 
 奖励信用卡曾经是相当标准的:你可以获得航空里程，你可以获得酒店积分，或者你可以获得现金返还。但随着信用卡开始用基于积分的奖励来奖励各种类型的消费，而不仅仅是简单的现金返还，其中一个突出的类别是餐饮。自从最初的餐馆俱乐部签帐卡以来，我们已经走过了漫长的道路。外出就餐曾经是特殊场合的专属，现在已经成为许多人日常生活的一部分，也是获得信用卡奖励的一种有利可图的方式。
 
-Watch
+
 
 让我们来看看这一类中最好的信用卡。正如我们之前所做的(我们已经为新毕业生 挑选了 [购物](https://twocents.lifehacker.com/these-are-the-best-credit-cards-for-grocery-shopping-1837371355) 和 [卡片)，这个列表着眼于几个因素:](https://twocents.lifehacker.com/the-best-credit-cards-for-recent-college-grads-1838361280)
 

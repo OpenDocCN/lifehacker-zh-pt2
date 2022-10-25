@@ -4,7 +4,7 @@
 
 自动扶梯步行者和自动扶梯站立者永远在斗争中被锁定——他们就像卫生纸的卷上安装者和卷下安装者，或 GIF 发音者，或 [单间隔者和双间隔者](https://lifehacker.com/no-you-still-shouldnt-put-two-spaces-after-a-period-1825662114) ，每天只在世界各地的商场、机场、办公室、火车出口和各式各样的移动楼梯中面对面出现。现实世界的证据似乎站在旁观者一边。步行者是一个瓶颈，他们互相拖累，也拖累了站立者。
 
-Watch
+
 
 [在 2015 年的伦敦地铁实验](https://www.theguardian.com/uk-news/2016/jan/16/the-tube-at-a-standstill-why-tfl-stopped-people-walking-up-the-escalators) 中，伦敦交通局指示通勤者站在上行扶梯的两侧不动，而不是使用左侧行走。他们发现有了这个开关，自动扶梯每两秒钟就能多载一名乘客。如果每个人都停止尝试步行，在给定的时间内，可以乘坐自动扶梯的乘客会增加 28%。
 

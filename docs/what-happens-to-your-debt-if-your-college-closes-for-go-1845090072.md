@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/what-happens-to-your-debt-if-your-college-closes-for-go-1845090072>
 
-Watch
+
 
 疫情带来了全球性的经济挑战，和高校感受到了的压力。虽然 T4 只有一所的少数学校已经永久关闭，但专家称未来那里的 [可能会更多。](https://www.dispatch.com/ZZ/business/20200916/if-your-college-closes-for-good-what-happens-to-your-debt) 如果这种情况发生在你入学的时候，你有两个选择:转学分，或者申请退学。以下是每个选项需要了解的内容。
 

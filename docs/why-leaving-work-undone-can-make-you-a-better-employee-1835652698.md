@@ -4,7 +4,7 @@
 
 你如何知道你在工作中是否做对了事情？你可能想问问自己还有什么没做。
 
-Watch
+
 
 在[prosper globa](https://thriveglobal.com)l，杰西卡·希克斯指出了如果你想保持高效率并保持良好的工作生活平衡，应该避免的三个职场习惯，其中一个职场坏习惯是 [每天督促自己完成清单上的每一项任务](https://thriveglobal.com/stories/how-to-become-more-productive-at-work-change-habits/) :
 

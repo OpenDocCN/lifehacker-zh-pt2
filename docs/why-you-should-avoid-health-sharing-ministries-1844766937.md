@@ -4,7 +4,7 @@
 
 随着疫情的继续，特朗普总统悄悄对患者保护与平价医疗法案发起了另一场攻击:财政部提出了一项 [新法规](https://www.federalregister.gov/documents/2020/06/10/2020-12213/certain-medical-care-arrangements) 将医疗保健共享部委定义为医疗保险。正如《T4 时报》报道的那样，新规则可以通过使医疗保健共享部门的费用免税来增加这些基于信仰的计划的吸引力，这些计划已经收取较低的月保费。
 
-Watch
+
 
 根据最近凯泽健康新闻 的报道，在至少 29 个州的 100 多个医疗保健共享部门中，可能有近 100 万人注册。这些计划已经受到了 [州法规](https://www.insurance.wa.gov/news/kreidler-bans-trinity-healthshare-collects-150000-fine) — [以及媒体](https://www.nytimes.com/2020/01/02/health/christian-health-care-insurance.html) 的审查——因为这些计划让客户没有得到足够的保险。
 

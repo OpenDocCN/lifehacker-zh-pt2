@@ -4,7 +4,7 @@
 
 如果你的孩子使用带硅胶嘴的 Contigo 水瓶，你可能记得在八月 由于窒息危险 [，数百万个](https://www.cpsc.gov/Recalls/2019/Contigo-Recalls-57-Million-Kids-Water-Bottles-Due-to-Choking-Hazard#) [水瓶被召回](https://offspring.lifehacker.com/your-kids-contigo-water-bottle-may-be-a-choking-hazard-1837703179?rev=1582818103513) 。好吧，现在替换的盖子也正在被召回，在数百个喷嘴分离的报告之后。
 
-Watch
+
 
 [Contigo 再次召回 570 万个“儿童可清洁”水瓶](https://www.cpsc.gov/Recalls/2020/Contigo-Reannounces-Recall-of-5-7-Million-Kids-Water-Bottles-Due-to-Choking-Hazard-Additional-Incidents-with-Replacement-Lids-Provided-in-Previous-Recall#) ，并扩大召回范围，包括新的替换盖子。受影响的瓶子有一个黑色底座和黑色盖子的透明硅胶喷嘴(见图片)。它们以三种尺寸(13 盎司、14 盎司和 20 盎司)和四种颜色(纯色、图形、不锈钢和不锈钢纯色)出售，包装为一瓶、两瓶和三瓶。
 

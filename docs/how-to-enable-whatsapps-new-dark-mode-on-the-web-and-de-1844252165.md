@@ -4,7 +4,7 @@
 
 如果我有选择的话，我会改变我所做的每件事的颜色；黑暗模式对眼睛来说更舒服。虽然 WhatsApp 用户已经能够在他们的应用程序上玩黑暗模式有一段时间了，但直到现在，你才能在 WhatsApp 的基于网络的界面 和 [桌面应用程序](#desktop) 上获得相同的选项。
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Enable WhatsApp&#39;s New Dark Mode on the Web and Desktop](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-turn-on-whatsapps-new-dark-mode-1841157512)</aside>
 

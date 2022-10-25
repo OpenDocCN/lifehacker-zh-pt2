@@ -4,7 +4,7 @@
 
 我们的总统 [断章取义芬兰总统](https://www.nytimes.com/2018/11/18/world/europe/finland-california-wildfires-trump-raking.html?emc=edit_nn_20181119&amp;nl=morning-briefing&amp;nlid=4498585820181119&amp;te=1) 说的关于森林管理的话，认为雪国比加州的野火少，因为他们 [在荒野中耙树叶](https://gizmodo.com/finns-mock-president-trump-by-posting-forest-raking-pho-1830532120) 。令人震惊的是，这不是真的。
 
-Watch
+
 
 正如《纽约时报》报道的那样，芬兰的森林得益于运气和非愚蠢的森林管理的结合:
 

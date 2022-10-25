@@ -4,7 +4,7 @@
 
 随身携带一点现金可以帮助你避免一些小的不便。但是，如果你想使用每次你去借或贷时从钱包里偷出来的现金，你可能会想把一些现金藏在另一个地方:你的汽车。
 
-Watch
+
 
 这条建议来自 Reddit 用户[I _ only _ troll _ dictions](https://www.reddit.com/r/LifeProTips/comments/cvqke2/lpt_keep_20_hidden_in_your_car/)，他建议在你的车里藏 20 美元:
 

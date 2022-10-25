@@ -4,7 +4,7 @@
 
 人们有时会死于流感。人们有时会死于新冠肺炎。人们死于自杀、吸毒过量、心脏病和许多其他事情。因此，如果你所在的社区还没有很多新冠肺炎死亡病例，也许你已经说服自己冠状病毒和你不担心的其他疾病一样致命，比如流感。
 
-Watch
+
 
 但正如这张图表所示，事实并非如此。 [播放动画](https://public.flourish.studio/visualisation/2944635/?fbclid=IwAR3ASyBh3vOw-FXnU2mamAsM7HdgL7se0yK0JObP-pQP3rPkvaTCWDQuV9U) 你会看到一些耳熟能详的死因，排名。这些是*而不是*世界上最大的死亡原因； [心血管疾病和癌症导致的死亡人数](https://www.who.int/news-room/fact-sheets/detail/the-top-10-causes-of-death) 远远超过这里显示的原因。但是这张图表上的死因是新冠肺炎将在动画结尾跳过的。
 

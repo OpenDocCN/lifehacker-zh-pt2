@@ -4,7 +4,7 @@
 
 如果你是 [免费食物](https://lifehacker.com/tag/free-stuff) 和 [其他交易](https://lifehacker.com/tag/deals) 的粉丝，汉堡王已经为你设置了陷阱，并在整个六月都留下了。快速浏览一下他们网站上的 [【优惠】部分](https://www.bk.com/offers) 就会发现特价商品—包括一些免费汉堡。好奇吗？如果你想整个月都吃免费的快餐来满足你的感情，你需要知道以下几点。
 
-Watch
+
 
 ### 免费的巨无霸和芝士汉堡
 

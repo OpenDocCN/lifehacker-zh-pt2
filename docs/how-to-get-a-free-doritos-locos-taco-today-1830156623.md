@@ -6,7 +6,7 @@
 
 这笔交易是餐馆“ [偷一个基地，偷一个墨西哥卷](https://www.tacobell.com/stealataco/terms?utm_source=twitter&utm_medium=social&utm_campaign=E10-SABSAT) ”世界系列促销活动的一部分。(一点背景:红袜队球员 Mookie Betts 在世界系列赛第一场比赛的第一局偷了一个垒位，为整个国家赢得了一份 Doritos Locos taco。)
 
-Watch
+
 
 得到一个就像出现在你当地的塔可钟一样简单。
 

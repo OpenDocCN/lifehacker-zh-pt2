@@ -4,7 +4,7 @@
 
 现在，从 Google Play 下载东西可以获得奖励。谷歌 [本周在美国推出了 Google Play 积分计划](https://www.blog.google/products/google-play/google-play-points-rewards-program-all-ways-you-play/) ，这是一个免费的计划，允许你通过使用 Google Play 购买商品来赚取积分，然后可以兑换成折扣和特殊物品，如《糖果粉碎传奇》和《精灵宝可梦 GO》等游戏，或者电影、游戏或应用程序的积分。
 
-Watch
+
 
 要使用 Play Points，您首先需要注册。为此，请在您的移动设备上启动 Google Play。很有可能你会看到一个程序弹出窗口，提示你注册。如果没有，那么只需点击 Google Play 中的菜单，然后选择“Play Points”
 

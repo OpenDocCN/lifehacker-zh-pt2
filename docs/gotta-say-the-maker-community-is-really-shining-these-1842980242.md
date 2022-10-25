@@ -4,7 +4,7 @@
 
 随着世界努力应对强制检疫和隔离，创客社区正在蓬勃发展，并做着它最擅长的事情:粗制滥造出[创新](https://gizmodo.com/guy-uses-physics-and-computer-simulations-to-design-a-n-1842968293)[聪明](https://gizmodo.com/man-who-made-a-digital-ai-powered-twin-for-video-calls-1842705724) ，有时 [完全可怕的创作](https://www.instagram.com/p/B-RlLXAl4Hp/) 。
 
-Watch
+
 
 尽管发生了这一切，消费技术行业仍在继续发展，随着我们在未来几个月慢慢恢复到某种程度上的正常生活，有大量新产品值得期待。但是这些产品是为了吸引大众而设计的；来自创客社区的发明的伟大之处在于，它们是为满足创造者的 [非常具体的需求](https://gizmodo.com/guy-uses-physics-and-computer-simulations-to-design-a-n-1842968293) 而设计和制造的。通常情况下，它们也是对其创造者大脑的迷人窥视，尽管很难想象在这个皮肤包裹的超大骰子后面的人的大脑中发生了什么，这个骰子有一个电子动画眨眼，而单个 pip 应该在那里。
 

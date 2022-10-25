@@ -4,7 +4,7 @@
 
 加州正在与三场同时发生的野火作战，这场大火已经摧毁了近 20 万英亩的森林，并导致 31 人死亡。超过 250，000 人已经被疏散， [据](https://www.cbsnews.com/live-news/california-fires-camp-malibu-woolsey-evacuation-containment-evacuations-death-toll-live-updates/) CBS 新闻报道，数千所房屋被夷为平地。以下是你可以提供帮助的方式。
 
-Watch
+
 
 ### 爱彼迎（美国短租平台）
 

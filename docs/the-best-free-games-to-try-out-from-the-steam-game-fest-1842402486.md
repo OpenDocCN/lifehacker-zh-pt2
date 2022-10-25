@@ -4,7 +4,7 @@
 
 本周，为了纪念技术上“推迟”的 [游戏开发者大会](https://lifehacker.com/how-to-stream-this-weeks-game-developers-conference-tal-1842365971) ，一群计划在大会上展示他们游戏的开发者通过 [Steam 游戏节:春季版](https://store.steampowered.com/sale/SteamGameFestival-Spring) 发布了这些游戏的预览版。
 
-Watch
+
 
 去年 12 月，Valve 首次推出了 Steam 游戏节计划，该计划与游戏奖项并行，并展示了 14 个未发布游戏的演示。这一事件看起来相当大，因为超过 40 个游戏预览通过 Steam 提供，直到下周一，3 月 23 日。正如 Steam 所有者 Valve 在宣布该活动的新闻稿中指出的那样，这些游戏中的许多本来会在 GDC 期间的一些独立展示中展示。
 

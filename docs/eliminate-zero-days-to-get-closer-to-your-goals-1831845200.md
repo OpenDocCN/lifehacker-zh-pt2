@@ -4,7 +4,7 @@
 
 很难每一天都让人惊喜。尤其是如果你今年一开始就有远大的目标，如果你似乎跟不上，你可能会气馁。与其放弃，不如尝试“没有零天”的宽恕哲学
 
-Watch
+
 
 在 [u/ryans01 在评论](https://www.reddit.com/r/getdisciplined/comments/1q96b5/i_just_dont_care_about_myself/) 中描述它之后，这个概念在 Reddit 上变得流行起来。这个想法是，每天你都可以朝着你的目标做一些事情，即使是非常非常小的事情。他们是这样描述的:
 

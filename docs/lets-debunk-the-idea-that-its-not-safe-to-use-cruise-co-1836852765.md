@@ -4,7 +4,7 @@
 
 互联网对很多事情都很有用，从让你有 wi-fi 功能的冰箱全天候播放 Yoo-Hoo 广告，到让你和一个裸体男人在地球的另一边玩纸牌游戏。但它真正擅长的一件事是传播错误的歇斯底里，通常是关于驾驶的。这样的例子是持续而可怕的 [“不要在雨中使用巡航控制”](https://www.facebook.com/THEPINKSHORTSMOVEMENT/posts/439846166596833?comment_id=450090125572437&notif_id=1564420525629247&notif_t=comment_mention) 警告，它已经流传了十多年。
 
-Watch
+
 
 最近才遇到的，前几天有朋友问我交通安全组 [粉色短裤运动](https://www.facebook.com/pg/THEPINKSHORTSMOVEMENT/about/?ref=page_internal) 上的这篇双曲线脸书帖是否准确:
 

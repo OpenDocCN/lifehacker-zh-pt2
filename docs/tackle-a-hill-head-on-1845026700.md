@@ -4,7 +4,7 @@
 
 上周的 挑战，你有没有找到新的 [跑步或徒步的路径？本周是另一个适合远足的一周，我鼓励你找个有趣的地方去做这件事。但是我们要更进一步，因为我要你特别找一个可怕的山丘。爬上去。](https://vitals.lifehacker.com/go-somewhere-new-for-a-run-or-hike-1844954732)
 
-Watch
+
 
 是什么让山变得可怕？有时候，很陡。你担心在到达顶峰之前会失去动力。如果是这样的话，读一读 [我们的跑步指南，不要打击你的信心](https://vitals.lifehacker.com/how-to-run-hills-without-crushing-your-confidence-1783126331) 。慢慢来，一小步一小步地走，在你努力达到顶峰的过程中，专注于保持轻松稳定的努力水平。
 

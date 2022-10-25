@@ -4,7 +4,7 @@
 
 吃一个小猫大小的玉米煎饼的满足感本身就很棒，但是你现在可以通过 Chipotle 的奖励计划获得额外的好处，包括实际的现金。
 
-Watch
+
 
 《快速公司》报道称，在较小的市场 进行测试后，Chipotle 正在全国范围内推出其 [奖励计划。为了推广它，他们与 Venmo 合作发放现金。你可以在这里注册，无论何时你在购买一顿饭时，都可以使用该应用程序或在收银台扫描你的会员代码。](https://www.fastcompany.com/90318692/chipotles-rewards-program-open-to-us-free-burritos-after-125)
 

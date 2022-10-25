@@ -4,7 +4,7 @@
 
 [Edge Chromium 是一款像样的网页浏览器](https://lifehacker.com/how-to-try-out-edge-chromiums-latest-features-months-be-1842562597) 。鉴于谷歌 Chrome 在内存使用方面的改进，我甚至可以说它值得从谷歌 Chrome 换过来。然而，微软一直对 [向每个人灌输 Edge Chromium](https://www.express.co.uk/life-style/science-technology/1292563/Google-Chrome-Microsoft-Edge-best-browser-adverts-Windows-10-gmail) 非常恼火，最近的一次 Windows 更新甚至将这款浏览器锁定在你的操作系统中。
 
-Watch
+
 
 当然，你可以将 Firefox 或 Opera 等其他应用程序设置为默认网络浏览器，并忽略 Edge 的存在(以及 Windows 10 不断发出的“尝试新 Edge”的通知)，但如果你从未打算使用 Edge Chromium，最好将其完全移除。
 

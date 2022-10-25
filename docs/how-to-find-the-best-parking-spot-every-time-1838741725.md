@@ -4,7 +4,7 @@
 
 你是第一个找到空地就停车的人，还是努力找到离你要去的地方最近的空地的人？事实证明，这两种方法都不是在停车场导航的有效方法——从数学上来说，还有一个更好的选择。
 
-Watch
+
 
 正如詹妮弗·韦莱特所解释的，在[Ars Technica](https://arstechnica.com/science/2019/09/to-find-the-best-parking-spot-do-the-math/)T3:
 

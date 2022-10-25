@@ -4,7 +4,7 @@
 
 Alexa 有一些新的命令，可以帮助你为危险的天气或糟糕的交通状况做好准备。这些功能实际上已经存在了几个星期——亚马逊上个月悄悄将它们放到了 Alexa 支持的设备上——但由于该公司直到最近 才 [提到这些更新，大多数人都没有注意到它们。让我们回顾一下您可能错过的所有新功能。](https://www.amazon.com/b/ref=s9_acss_bw_cg_aeggs_2a1_cta_w?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-get-severe-weather-alerts-and-traffic-reports-fr-1842160304&asc_source=&node=21100773011&pf_rd_i=17978648011&pf_rd_m=ATVPDKIKX0DER&pf_rd_p=5ca0a321-b636-4feb-a01b-765a6c83d370&pf_rd_r=X65ZSYJMWNC68TTVG1CQ&pf_rd_s=merchandised-search-17&pf_rd_t=101&tag=kinjalifehackerlink-20)
 
-Watch
+
 
 ### 极端天气警报和交通更新
 

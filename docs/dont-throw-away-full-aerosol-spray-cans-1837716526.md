@@ -4,7 +4,7 @@
 
 早在 5 月，一项诉讼声称 [老帕姆烹饪喷雾剂](https://skillet.lifehacker.com/throw-out-old-canisters-of-pam-immediately-1834614281) 爆炸，造成至少 8 人烧伤(甚至 [致盲某人](https://www.usatoday.com/story/money/2019/05/07/8-people-allegedly-burned-exploding-cooking-spray-cans-sue-conagra/1127053001/) 一只眼睛)。
 
-Watch
+
 
 一般来说，喷雾罐——就像普通的食用油喷雾——比其他可回收材料更有可能引发事故，因为它们是受压的。罐子本身通常包含一种液体，如发胶或空气清新剂，以及一种推进剂，这是一种将液体推出形成云或喷雾的气体。(自 70 年代末以来，在发现含氯氟烃或氯氟化碳会破坏臭氧层后，制造商已经逐步停止使用含氯氟烃或氯氟化碳作为推进剂。)
 

@@ -6,7 +6,7 @@
 
 旅游网站 Skyscanner [最近查看了历史航班数据](https://www.skyscanner.com/tips-and-inspiration/best-time-to-book-usa) ，不仅确定了一周中购买机票的最佳日期，还确定了最佳时间。结论是:凌晨 5 点。
 
-Watch
+
 
 根据历史航班数据，您最有可能在早上 5 点预订航班节省(我们猜测这里是东部时间，因为 Skyscanner 没有指定时区)。相反，你应该避免预订晚上 7 点到 10 点之间的航班。
 

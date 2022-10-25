@@ -4,7 +4,7 @@
 
 如果你觉得有义务邀请一群人参加你的婚礼，同时又暗暗希望他们中的大多数人表达他们的歉意，那么目的地婚礼就是你要去的地方。
 
-Watch
+
 
 正如米歇尔·辛格特里在 [《华盛顿邮报》](https://www.washingtonpost.com/business/2019/04/30/one-way-save-your-wedding-pick-destination-people-wont-travel/?utm_term=.8676e6dd36dc) 中解释的那样，情侣们长期以来一直将目的地婚礼作为筛选宾客名单的一种方式:
 

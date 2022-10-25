@@ -4,7 +4,7 @@
 
 尽管这种媒介在 20 世纪中期几乎消亡，但现在的即时照相机比以往任何时候都更先进、更便宜。有些甚至有蓝牙。仍然很难与他们中的一个人拍出完美的照片，但这也是乐趣的一部分。
 
-Watch
+
 
 郑重声明，你不再需要摇宝丽来了。然而，你确实需要注意不同的胶片格式，因为这个新复活的相机品牌现在面临着来自富士胶片和使用其 Intax 和 Instax 方形胶片的各种相机的巨大竞争。在这个 Battlemodo 中，我们挑选了所有不同电影格式中最受欢迎的相机:[160 美元的宝丽来 one step Plus](https://us.polaroidoriginals.com/products/onestep-plus-polaroid-camera)[280 美元的徕卡 Sofort](https://www.leicacamerausa.com/sofort-white.html)[190 美元的 Lomo 即时自动玻璃](https://shop.lomography.com/en/cameras/camera-best-sellers/lomo-instant-automat-glass-black-combo)[200 美元的 Lomo 即时方形玻璃](https://shop.lomography.com/en/cameras/lomo-instant-square-camera/lomo-instant-square-camera-white) 和
 

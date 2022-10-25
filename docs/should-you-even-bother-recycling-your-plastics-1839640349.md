@@ -4,7 +4,7 @@
 
 我们 [最近写了](https://lifehacker.com/stop-pretending-your-trash-is-recyclable-1838178982) 关于回收某些*可能*不可回收的产品的危险，但是本周 Quartz 的一份新的(而且大部分是暗淡的) [报告更进一步，表明整个回收系统本身存在严重缺陷——特别是在塑料方面。](https://qz.com/1738706/the-futility-of-recycling-most-plastic/)
 
-Watch
+
 
 在报告中，作家[zo](https://qz.com/author/zschlangerqz/)[Schlanger](https://qz.com/author/zschlangerqz/)描述了使塑料回收特别困难的问题。首先，生产新塑料比回收塑料更便宜。因此，对它的需求就不存在了，因为公司经常选择新塑料而不是回收塑料，因为它的价格。在他们和塑料制造商的眼中，原始塑料几乎总是证明对他们的底线更有价值——这意味着我们可以期待更多的新塑料生产。(更糟糕的是，生产的许多塑料比铝和玻璃等其他可回收材料的寿命要短得多，因为它不能在不牺牲质量的情况下重复回收。)
 

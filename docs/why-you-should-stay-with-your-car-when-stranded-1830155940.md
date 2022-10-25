@@ -4,7 +4,7 @@
 
 这是人类采取行动的冲动，尤其是在潜在的可怕情况下。你可能认为当被困在你的车里时，出去寻求帮助是最好的办法。不是的。
 
-Watch
+
 
 除非你绝对确定你在哪里，并且知道在步行距离内有一个加油站，否则你应该留在原地。这是因为寻找你的人更有可能在他们在荒野中找到一个孤独的人之前找到你的车，根据[u/MorsOmnibusCommunis](https://www.reddit.com/user/MorsOmnibusCommunis)的说法，他向 r/LifeProTips 发布了这条 [消息](https://www.reddit.com/r/LifeProTips/comments/9spmg7/lpt_if_you_ever_find_yourself_stranded_in_the/) :
 

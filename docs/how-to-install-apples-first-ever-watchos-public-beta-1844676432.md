@@ -4,7 +4,7 @@
 
 在所有测试新操作系统的设备中，我最不喜欢的就是我的苹果手表。我喜欢新功能，不要误会我的意思，但是一个漏洞百出的操作系统可以把你的智能手表 变成砖块。既然你不能降级 Apple Watch，你要么必须等待后续更新来解决你的问题，要么把你的 Apple Watch 送到 Genius Bar 休假。
 
-Watch
+
 
 然而，苹果似乎对其测试版测试更有信心，因为它刚刚为 watchOS 开放了有史以来第一个公共测试版。要在其他人(没有草率行事的人 [安装开发者预览版](https://lifehacker.com/how-to-beta-test-apples-new-os-updates-from-wwdc-2020-1844123711) )之前试用 **watchOS 7** ，首先使用你已经与 Apple Watch 配对的 iPhone 上的 Safari 浏览器访问苹果的 [**公测版**](https://beta.apple.com/sp/betaprogram/) 网站。用你的 Apple ID 登录，然后访问 [watchOS 7](https://beta.apple.com/sp/betaprogram/guide#watchos) 的页面。
 

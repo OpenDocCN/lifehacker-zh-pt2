@@ -4,7 +4,7 @@
 
 关于经济状况的最新报告再次出现了那个可怕的词:衰退。
 
-Watch
+
 
 根据美国商务部 发布的报告 [，2020 年第一季度美国国内生产总值(GDP)下降 4.8%。我们上一次经历如此严重的下跌是在 2008 年。](https://www.commerce.gov/news/press-releases/2020/04/statement-us-secretary-commerce-wilbur-ross-q1-2020-gdp-advance)
 

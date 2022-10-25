@@ -4,7 +4,7 @@
 
 我做过很多 [盒装混合布朗尼](https://skillet.lifehacker.com/an-ode-to-boxed-mix-brownies-1828685632) 。有时候我会按照包装上的说明来做，但我通常会在一些地方做一些调整，比如用 [替换植物油](https://skillet.lifehacker.com/how-to-make-boxed-brownie-mix-taste-homemade-1829269063?rev=1598977351576) 来做一些更美味的东西，或者用 [咖啡](https://skillet.lifehacker.com/use-coffee-instead-of-water-in-chocolate-baking-mixes-1828744499) 来代替水。
 
-Watch
+
 
 昨晚我决定做一批，却发现我没有开心果油了，这是(直到大约 12 小时前)我最喜欢的盒装混合核仁巧克力饼油。我曾想过用橄榄油，但最终还是放弃了，因为我快用完了，而且我需要橄榄油来做其他事情(比如煎鸡蛋)。我正要伸手去拿(普通、无聊、平凡的)植物油，这时我发现炉子旁边挂着一瓶烤芝麻。我打赌你能猜到接下来发生了什么。
 

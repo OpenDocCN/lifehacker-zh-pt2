@@ -4,7 +4,7 @@
 
 即使你很少租车，你也可能知道这样做的通常限制:你需要有效的驾照，你必须至少 25 岁，你需要一张信用卡。但第三条规则正在改变，至少在某些地方是这样。
 
-Watch
+
 
 赫兹、美元和节俭租车公司现在在欧洲接受借记卡付款，根据的积分。赫兹 [声称](https://www.prnewswire.com/news-releases/hertz-dollar-and-thrifty-welcome-debit-cards-in-europe-offering-customers-greater-choice-and-convenience-in-time-for-the-summer-holiday-season-300883520.html) 的新闻稿称，这一变化是因为在欧洲借记卡比信用卡使用更频繁。
 

@@ -4,7 +4,7 @@
 
 如果您想让您的 DNA 数据不落入执法部门的手中，避免 GEDmatch 是不够的。家谱 DNA 最近承认它允许执法部门使用他们的服务，并且 [正在积极地与联邦调查局](https://www.buzzfeednews.com/article/salvadorhernandez/family-tree-dna-fbi-investigative-genealogy-privacy) 合作，至少在一些案件上。
 
-Watch
+
 
 如果你不介意，太好了！一些人会争辩说这是一个抓住罪犯和识别受害者的好方法。但是家谱数据库中的大多数人在政策改变之前就已经注册了，并且不同意使用他们的数据。请记住，你的亲戚分享你的 DNA，所以如果你的阿姨真的对家谱感兴趣，无论你同意与否，你的数据都可能会公开。由于家谱 DNA 数据库中有大约一百万人， [普通美国人可能有几个第三代表亲](https://vitals.lifehacker.com/you-probably-already-have-cousins-in-a-dna-database-1825892173) 。
 

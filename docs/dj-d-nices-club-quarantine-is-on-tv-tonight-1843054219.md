@@ -4,7 +4,7 @@
 
 一个多月来，DJ D-Nice 一直定期在 Instagram 上打开俱乐部隔离区的虚拟大门。从史努比狗狗到奥普拉，每个人都参加了他的在线 DJ 会议。今晚，这种体验正以一种特殊的“俱乐部 MTV”音乐活动的形式跃上电视。
 
-Watch
+
 
 名为“Club MTV Presents # dance together with D-Nice”的 D-Nice 将与柯克·帕尔莫一起在网络上共同举办一场现场一晚的音乐活动。
 

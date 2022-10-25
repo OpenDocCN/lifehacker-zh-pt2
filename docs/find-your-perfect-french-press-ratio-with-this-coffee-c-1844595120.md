@@ -6,7 +6,7 @@
 
 如果法式压榨是你的首选方法，你可以用咖啡计算器算出你需要多少克(或汤匙)的咖啡粉，以及多少克(或盎司)的水，才能调制出温和、适中或浓烈的咖啡。](https://handground.com/french-press-coffee-to-water-ratio-calculator)
 
-Watch
+
 
 要使用这个计算器，你首先需要知道你要煮多少液体盎司的咖啡——基本上，你的法式压榨有多大？
 

@@ -4,7 +4,7 @@
 
 面具戴起来会不舒服，这是真的。由于我们大多数美国人不习惯戴着它们，它们也令人不安地提醒我们疫情是如何改变了我们的生活。但如果你想找个借口不戴，请不要把美国残疾人协会和你的假身体状况扯进来。绝对不要使用(或接受)一张从网上下载的 [假冒政府的【自由呼吸】卡](https://slate.com/technology/2020/06/ada-exemption-face-mask-cards-utter-nonsense.html) 。
 
-Watch
+
 
 有很多人患有真正的疾病或残疾，这使得他们戴口罩很困难或很危险。这些可能包括呼吸问题，如慢性阻塞性肺病或严重的哮喘，或者伴随自闭症的感觉问题。严重的焦虑或 PTSD 会使一些人戴口罩成为问题，任何呼吸困难或无法自己摘下口罩的人也不应该戴口罩。东南阿达中心的 [这里的](https://www.adasoutheast.org/ada/publications/legal/ada-and-face-mask-policies.php?fbclid=IwAR0Bctc2YbCdBjJ7gRwKKuqrQwQJp5qLt3PbVZZjH7oIJSd4W0CSAmcdEqk) 有更多的信息。
 

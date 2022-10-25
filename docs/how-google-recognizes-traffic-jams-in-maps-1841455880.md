@@ -4,7 +4,7 @@
 
 柏林艺术家西蒙·韦克特(Simon Weckert)最近“黑”了谷歌地图，他在一辆红色货车上装满了 99 部运行谷歌地图的 iPhone，并在城市里拖到 [欺骗服务，让它认为有交通堵塞](https://www.cnn.com/style/article/artist-google-traffic-jam-alert-trick-scli-intl/index.html) ，而实际上并没有。
 
-Watch
+
 
 这是一个聪明的把戏，但它提出了一个问题，即谷歌地图如何跟踪和响应它在正常交通条件下收集的数据。如果有可能用一堆旧 iPhones 和一辆旅行车骗过谷歌地图，你能永远确定这个应用程序是准确的吗？根据我们对谷歌地图算法的了解以及该公司对 Weckert 的 DIY 交通堵塞的回应，答案似乎是:是的，在很大程度上。
 

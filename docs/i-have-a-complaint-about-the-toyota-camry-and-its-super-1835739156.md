@@ -4,7 +4,7 @@
 
 尽管你对它嗤之以鼻，但 2019 款 [丰田凯美瑞](https://jalopnik.com/tag/toyota-camry) 确实是一款 [好车](https://jalopnik.com/2018-toyota-camry-heres-why-its-still-the-sedan-king-1826940096) 。尤其是你跟 [300 马力发动机](https://jalopnik.com/look-at-this-nearly-40-000-camry-with-300-horsepower-1828716522) 一起订购的时候。它是轿车之王，因为它既可靠又宽敞。对此我只有一个抱怨。而且是小家子气。
 
-Watch
+
 
 *( **完全披露:**丰田借给美国一辆 2019 款凯美瑞一个星期，还加满了油。)*
 

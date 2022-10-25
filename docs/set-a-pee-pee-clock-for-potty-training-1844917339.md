@@ -4,7 +4,7 @@
 
 实际上，有多少幼儿抵制如厕训练，就有多少如厕训练方法。有一种经典的贴纸图表和奖品方法。 [凌乱三日法](https://offspring.lifehacker.com/how-i-trained-my-kid-to-use-the-potty-in-three-messy-da-1819082534) 。 [恼人的玩具方法](https://offspring.lifehacker.com/make-the-toy-you-hate-the-most-the-potty-toy-1839539317) 。甚至 M & M 法(很简单:你用 M & Ms 贿赂他们)。许多这样的经历可以归结为贿赂和权力斗争的某种结合。但是如果你给你的孩子设置一个“尿尿计时器”,它可能会帮助你缓解典型的如厕训练权力斗争。
 
-Watch
+
 
 在 [Reddit 用户 u/sonaked](https://www.reddit.com/r/Parenting/comments/iisucu/you_folks_mentioned_a_pee_pee_clock_for_potty) 看到其他 Reddit 用户推荐使用“尿尿钟”后，他们决定尝试一下:
 

@@ -4,7 +4,7 @@
 
 学校午餐——以及那些让有午餐债务的父母的孩子感到羞耻的政策——再次成为新闻。据报道，新泽西州的一所学校现在禁止学生参加课外活动，如舞蹈和实地考察，如果他们的父母欠款超过 75 美元。这是一个可怕的政策，取代了它以前的可怕政策。
 
-Watch
+
 
 [费城哥伦比亚广播公司](https://philadelphia.cbslocal.com/2019/10/15/cherry-hill-board-of-education-approves-policy-that-would-keep-students-who-dont-pay-lunch-debt-from-extracurricular-events/) 报道:
 

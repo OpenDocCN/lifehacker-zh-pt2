@@ -4,7 +4,7 @@
 
 从美国东部时间今天下午 5 点开始，CNN 将采访 10 位民主党总统候选人，询问他们应对气候变化的计划。与辩论不同，每位候选人将有 40 分钟时间回答 CNN 主持人和演播室观众的问题；整个论坛预计将持续七个小时。
 
-Watch
+
 
 如果你对候选人应对气候危机的计划感到好奇，CNN 将在其 [网站](https://www.cnn.com/) 和应用程序上直播论坛，可在 [iOS](https://apps.apple.com/us/app/cnn-breaking-us-world-news/id331786748) 和 [Android](https://play.google.com/store/apps/details?id=com.cnn.mobile.android.phone&hl=en_US) 设备上下载。(CNN 也会提供 [实时更新](https://www.cnn.com/politics/live-news/climate-crisis-town-hall-august-2019/index.html) )。)
 

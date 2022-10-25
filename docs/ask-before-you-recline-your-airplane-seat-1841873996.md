@@ -4,7 +4,7 @@
 
 上周，一名美国航空公司的乘客 [在推特上发布了一段视频，视频中一名男子反复击打她](https://twitter.com/steelersfanOG/status/1226346795741143040?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1226346795741143040&ref_url=https%3A%2F%2Fwww.flyertalk.com%2Farticles%2Fask-before-you-recline-deltas-ceo-weighs-in-on-the-great-debate.html) 的斜倚座椅靠背。该视频在网上疯传，并再次引发了一场辩论，即当你在空中时，是否可以将座椅放倒。
 
-Watch
+
 
 虽然我们都(希望)同意击打坐在你前面的人的座椅靠背是不合适的，但是否可以斜倚是大多数人都有意见的事情之一，通常是强烈的意见。
 

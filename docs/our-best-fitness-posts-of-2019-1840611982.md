@@ -4,7 +4,7 @@
 
 今年我们在健身方面经历了很多，讨论了健身房礼仪、身体形象、远大目标等等。以下是我们年度最佳健身贴。
 
-Watch
+
 
 ### [如何对抗健身房焦虑](https://vitals.lifehacker.com/how-to-combat-gym-anxiety-1831771715)
 

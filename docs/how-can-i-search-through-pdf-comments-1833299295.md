@@ -4,7 +4,7 @@
 
 告白时间。本周的 Tech 911 有点令人挠头，因为 pdf[的广阔世界令人困惑](https://lifehacker.com/how-do-i-create-a-searchable-archive-of-pdfs-1831845468) ，充其量，通常比其他任何东西都更令人沮丧。你可以找到大量不同的应用程序，让你打开、编辑和 [摆弄 pdf](https://lifehacker.com/tag/pdf)。他们中的一些是免费的，还有一些是免费的，很棒，大部分都要花很多钱。
 
-Watch
+
 
 本周，我们的问题提交者在查看或打开 pdf 时没有遇到问题。这部分很简单。多亏了光学字符识别(OCR ),甚至在他创建的 pdf 文本中搜索也不是太难。我会让 **Robert** 描述他所面临的挑战:
 

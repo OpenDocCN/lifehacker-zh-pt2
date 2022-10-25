@@ -4,7 +4,7 @@
 
 当 CARES 法案在 3 月份通过时，如果人们因疫情冠状病毒而面临经济困难，他们可以更容易地从退休账户中提取资金。上周，美国国税局(IRS)[宣布](https://www.irs.gov/newsroom/relief-for-taxpayers-affected-by-covid-19-who-take-distributions-or-loans-from-retirement-plans) 扩大规则，规定谁可以从他们享有税收优势的账户中提款而不被罚款。
 
-Watch
+
 
 在我们开始更新之前，让我们回顾一下 CARES Act 因冠状病毒对退休账户提款做出的临时变更:
 

@@ -4,7 +4,7 @@
 
 WhatsApp 用户应该点击 [【谷歌 Play 商店】](https://play.google.com/store/apps/details?id=com.whatsapp&hl=en_US) 或 [应用商店](https://apps.apple.com/us/app/whatsapp-messenger/id310633997) 并确保他们运行的是最新版本的应用程序，因为新的更新修复了一个重大的安全漏洞，该漏洞可能会让黑客 [通过看似无辜的 MP4 视频文件将恶意代码](https://www.facebook.com/security/advisories/cve-2019-11931) 溜到设备上。
 
-Watch
+
 
 Threatpost 有关于这个漏洞的的详细解释，但要点是黑客可以通过操纵元数据(如标题、权利人等信息)来破坏设备的内存。)的 MP4 视频文件。只有当恶意文件在 WhatsApp 中播放时，攻击才有可能发生，然后攻击者可以控制设备的某些部分，并远程安装或执行代码。
 

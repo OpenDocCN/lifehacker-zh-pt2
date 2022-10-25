@@ -4,7 +4,7 @@
 
 大多数火鸡配料都是为了弥补脂肪的不足，从而增加味道。干腌是从里到外给你的鸟调味的最好方法，但是对于最多汁、最美味的肉[，你必须添加一些脂肪——没有比黄油更好的脂肪了。](https://lifehacker.com/how-to-make-a-delicious-thanksgiving-turkey-1830465631) 
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Smear Your Entire Turkey with Butter](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-make-a-delicious-thanksgiving-turkey-1830465631)</aside>
 

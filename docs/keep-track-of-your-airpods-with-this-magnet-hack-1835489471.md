@@ -4,7 +4,7 @@
 
 你有没有把一个气垫放下很短的时间，却突然忘记把它放在哪里了？我善良而出色的编辑爱丽丝最近就遇到了这种情况，我也是。(结果，她的气垫被扔进了垃圾桶。)
 
-Watch
+
 
 在 Reddit 上， [u/itseday](https://www.reddit.com/r/airpods/comments/bx96b3/does_anyone_else_do_this_when_they_need_to_take/) 发现了一个有用的提示，如果你想跟踪你走失的 AirPods:当你赶时间时，把花蕾粘在你的 MacBook 屏幕的一角——笔记本电脑的外壳有磁铁，可以让你的 AirPods 保持在合适的位置。事实上，AirPod [外壳](https://imgur.com/a/7haMHys) 甚至可以粘在你的笔记本电脑上(还有有线耳塞，尽管你可能不太可能丢失它们)。
 

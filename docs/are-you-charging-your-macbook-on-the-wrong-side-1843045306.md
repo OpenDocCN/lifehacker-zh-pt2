@@ -4,7 +4,7 @@
 
 是的，你没看错标题。将设备连接到两侧带有 Thunderbolt/USB-C 端口的 M acBook 显然有种“正确”和“错误”的方式。操作不当会影响计算机的性能。
 
-Watch
+
 
 我最近在 [StackExchange](https://apple.stackexchange.com/questions/363337/how-to-find-cause-of-high-kernel-task-cpu-usage?answertab=active#tab-top) 的一个线程上遇到了这一知识，我惊讶地发现，根据你给 MacBook 充电和连接设备的方式，你的系统稳定性可能会有*实质性的*差异，在这个例子中是 MacBook Pro。将所有设备都连接到同一侧的决定可能会影响系统的运行温度——一个温度较高的系统更有可能看到 CPU 被抑制以降低内部温度，从而影响性能。
 

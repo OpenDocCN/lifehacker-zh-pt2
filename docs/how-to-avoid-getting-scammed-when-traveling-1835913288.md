@@ -4,7 +4,7 @@
 
 本周在希腊， [卧底警察](https://www.independent.co.uk/travel/news-and-advice/greek-restaurants-tourist-rip-off-mykonos-overcharge-raids-tax-inspectors-a8973411.html) 正在打击向游客过度收费的餐馆；一名美国游客在 [猫途鹰](https://www.tripadvisor.com/ShowUserReviews-g659660-d12991346-r674941074-Dk_Oyster-Platys_Gialos_Mykonos_Cyclades_South_Aegean.html) 上说，他在米克诺斯岛的一家餐馆吃了六瓶啤酒和三份沙拉，被要价 830 欧元。
 
-Watch
+
 
 让我们面对现实吧——作为游客，我们都曾成为偶然骗局的受害者。例如，我已经同意支付超过必要的出租车费，可能还会花高价买一份沙拉。
 

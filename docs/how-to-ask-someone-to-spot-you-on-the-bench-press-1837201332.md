@@ -4,7 +4,7 @@
 
 卧推真他妈的可怕。我仍然会做噩梦，梦见自己被杠铃砸死，在纽约的一家运动俱乐部里死去——但如果你有一个观察员，并与他们充分沟通，你就不应该这么担心。
 
-Watch
+
 
 《华尔街日报》的 [写道](https://www.wsj.com/articles/a-risky-weightlifting-courtesy-spotting-for-a-bench-press-1451322142) “发现某人就像在健身房为满载的送货员开门一样”。"这是一种可以防止事故发生的礼貌。"
 

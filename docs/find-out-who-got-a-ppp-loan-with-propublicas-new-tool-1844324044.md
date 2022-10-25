@@ -4,7 +4,7 @@
 
 你是否很想知道你的雇主或当地企业是否从政府 2.2 万亿美元的刺激计划中分得一杯羹？本周，独立的非营利新闻编辑室 ProPublica 发布了一个新的薪酬保护计划(PPP) [跟踪工具](https://projects.propublica.org/coronavirus/bailouts/) 。
 
-Watch
+
 
 这个工具包括[新发布的](https://sba.app.box.com/s/tvb0v5i57oa8gc6b5dcm9cyw7y2ms6pp) 来自小企业管理局(SBA)的数据，其中包括贷款人批准的 15 万美元或以上的贷款。ProPublica 工具提供了四种筛选 PPP 贷款数据的方法。您可以按组织、贷方、邮政编码或业务类型进行搜索。
 

@@ -4,7 +4,7 @@
 
 如果你失去知觉，依靠生命维持系统，你希望你的家人等多久，看你是否康复？如果你想确保你的意愿得到尊重，可以考虑预先医疗指示。
 
-Watch
+
 
 要找到合适的文件，谷歌“提前医疗指令”和你所在的州。虽然并不总是需要使用特定的形式， [每个州都有关于如何使指令有效的要求](https://www.americanbar.org/groups/law_aging/publications/bifocal/vol_37/issue_1_october2015/myths_and_facts_advance_directives/) :例如，关于证人的要求。你的医院也可以帮助你提交适当的文件。
 

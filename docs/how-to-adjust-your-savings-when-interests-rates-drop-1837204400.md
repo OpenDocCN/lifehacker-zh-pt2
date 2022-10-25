@@ -4,7 +4,7 @@
 
 美联储于 7 月 31 日下调了联邦利率，正如所料，银行也开始下调利率。
 
-Watch
+
 
 正如 [MarketWatch](https://www.marketwatch.com/story/bad-news-banks-are-cutting-yields-on-savings-accounts-and-cds-2019-07-03) 报道的，这些降低的利率既影响储蓄账户也影响定期存款:
 

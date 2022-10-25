@@ -4,7 +4,7 @@
 
 Adobe 今天推出了新的 [Photoshop 相机应用](https://www.adobe.com/products/photoshop-camera.html) ，虽然它肯定不是 Photoshop 或 Lightroom 的替代品，但它可以让你的照片接近“Photoshop”的外观，而无需知道什么是透明遮罩或什么是减淡和燃烧。
 
-Watch
+
 
 这款应用程序现在适用于安卓系统的和 iOS 系统的，不过你需要更新和/或更强大的设备才能运行它。例如，我的 Pixel 3a XL 不兼容，但我的 iPad Pro 兼容——尽管有一些轻微的输入延迟。
 

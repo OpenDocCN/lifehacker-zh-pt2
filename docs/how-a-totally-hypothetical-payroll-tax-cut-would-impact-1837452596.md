@@ -4,7 +4,7 @@
 
 在本周的一部分时间里，唐纳德·特朗普总统考虑削减工资税。“我已经考虑工资税很长时间了，”他在 [周二](https://www.cnbc.com/2019/08/21/what-a-trump-payroll-tax-cut-would-actually-mean-for-your-wallet.html) 告诉记者，然后他在 [周三](https://www.washingtonpost.com/us-policy/2019/08/21/president-trump-reversal-says-he-is-no-longer-looking-payroll-tax-cut/) 转过身，告诉同样的记者“我现在不打算减税，”他说。“我们不需要它。我们有强大的经济。”
 
-Watch
+
 
 但是，看，这个家伙改变主意比一个挑食的人试图决定午餐吃什么更重要，所以让我们回顾一下他可能试图对你的工资税做什么。我确信我们将需要尽快再次审查这一问题。
 

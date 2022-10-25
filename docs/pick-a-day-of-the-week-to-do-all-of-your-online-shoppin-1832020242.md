@@ -4,7 +4,7 @@
 
 朋友们，你们的 [无休月](https://twocents.lifehacker.com/a-new-years-resolution-that-will-actually-improve-your-1831321233) 过得怎么样？老实说，在过去的几天里，我打了几个嗝，包括一次以葡萄酒为燃料的 Etsy 购买。如果你也有一点小麻烦，这里有一个来自 Reddit 的提示，可能有助于抑制冲动购买。
 
-Watch
+
 
 redditor[rodney Jesus](https://www.reddit.com/r/personalfinance/comments/aj3ws1/designate_a_day_for_online_purchases/)写道，为了避免到处捡“小”东西——这些东西累积起来很快——他们决定将一周中的某一天指定为“亚马逊日”,运作方式如下:
 

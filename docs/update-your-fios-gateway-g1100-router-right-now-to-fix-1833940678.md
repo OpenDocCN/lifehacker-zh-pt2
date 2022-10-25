@@ -4,7 +4,7 @@
 
 威瑞森网关 G1100 路由器由于旧固件版本中存在的严重漏洞 ，可能面临被黑 [的风险。解释这些安全风险的最简单方法是，它们使得拦截登录凭证和远程访问路由器变得很容易。如果你对风险的更详细的技术解释感兴趣，以及导致这些风险的疏忽，请查看最初发现这些漏洞的](https://www.securityweek.com/verizon-patches-vulnerabilities-affecting-millions-routers) [的分析。](https://www.tenable.com/blog/verizon-fios-quantum-gateway-routers-patched-for-multiple-vulnerabilities)
 
-Watch
+
 
 至于担心自己设备的威瑞森用户，威瑞森推出了一个更新，固件版本 02.02.00.13，修复了漏洞。这一更新尚未向所有用户推出，但我们将向您展示如何检查您的路由器固件以及如何在您需要时强制更新。
 

@@ -4,7 +4,7 @@
 
 如果你是那种 [纠结于](https://lifehacker.com/how-to-make-better-small-talk-1832124157) [闲聊](https://lifehacker.com/how-to-make-better-small-talk-1832124157) 的人，那么你大概也纠结于如何*结束*一段对话；毕竟，当谈话陷入尴尬的沉默时，没有唯一正确的方式告诉某人“我们别说了，现在我们已经没有什么可谈的了。”
 
-Watch
+
 
 “开始一场对话对我来说并不太难，有时我甚至擅长进行一场对话，但当我感觉到会议即将结束或我必须马上去某个地方时，我永远不知道如何停止，”[u/yellow submarine 19](https://www.reddit.com/r/socialanxiety/comments/6hbh7e/does_anyone_else_have_a_hard_time_ending/)在最近的 Reddit 帖子中写道，寻求建议。“我就越来越少说话，多多微笑，希望对方就此结束。”
 

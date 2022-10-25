@@ -4,7 +4,7 @@
 
 无论他们是第一次在高中走廊上行走，还是装饰他们的第一间宿舍，返校时间对那些要承担越来越难的课程和新责任的青少年来说都是有压力的。就连 T2 也必须意识到，他们可以从我们这些去过那里、做过那些事、在教科书上花了太多钱的人的建议中受益。
 
-Watch
+
 
 进入 Reddit，它的 [返校大线程建议帖子](https://www.reddit.com/r/LifeProTips/comments/ck355d/backtoschool_megathread/?utm_source=share&utm_medium=ios_app) 有数百条评论，是新学年生存建议的金矿。
 

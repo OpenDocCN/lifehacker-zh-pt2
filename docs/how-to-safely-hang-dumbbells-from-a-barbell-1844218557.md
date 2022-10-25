@@ -4,7 +4,7 @@
 
 如果你有一个杠铃，但没有足够的盘子，你可能已经花了这个检疫悬挂的东西非常粗略的方式。在社交媒体上，我看到人们把重物放在手提袋里，把水瓶挂在杠铃上，等等。这些 DIY 的解决方案很多都是 [伤病等待发生](https://vitals.lifehacker.com/how-to-prevent-injuries-when-youre-working-out-at-home-1843106512) ，但是最近我在 Reddit 上看到一个来自 u/nachosun 的巧妙解决方案 [。](https://www.reddit.com/r/powerlifting/comments/hibchv/figure_8_straps_coming_in_clutch/) 
 
-Watch
+
 
 这个窍门很简单:用 8 字形硬拉带把哑铃挂在你的杠铃上。我试过了，可以报告它确实有效，如果你使用合适大小的哑铃，它是安全的。
 

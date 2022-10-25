@@ -4,7 +4,7 @@
 
 Audible 宣布 [全新的定价结构，将于本周向所有现有和新用户推出](https://www.audible.com/about/newsroom/all-you-can-listen-membership-option-audible-plus-rolls-out-in-preview) 。
 
-Watch
+
 
 该公司现在提供 Audible Plus 和 Audible Premium Plus ，而不是 Audible Gold 和 Platinum。这两个计划都包括访问数万小时的音频内容，但内容类型在每个计划之间有所不同。我们将介绍您通过订阅 Audible Plus 和 Premium Plus 以及将会为当前的黄金和白金订户带来哪些变化(如果有的话)。
 

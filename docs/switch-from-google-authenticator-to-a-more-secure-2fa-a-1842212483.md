@@ -4,7 +4,7 @@
 
 根据最近来自 [Nightwatch 网络安全](https://wwws.nightwatchcybersecurity.com/2020/03/03/google-authenticator-for-android-allows-screen-capture/) 的一份报告，谷歌的 Android 认证应用程序存在一个未解决的问题，如果你的设备上安装了任何恶意软件或其他不可靠的应用程序，可能会造成一场巨大的安全噩梦。(安卓系统的 [**微软认证器**](https://play.google.com/store/apps/details?id=com.azure.authenticator&hl=en_US) 应用也存在同样的问题，所以暂时也不要切换到*那个*应用。)
 
-Watch
+
 
 这两个应用，截至我们写这篇文章时，都没有使用 Android 的 FLAG_SECURE 设置，该设置禁止其他应用(和你)截图。不相信我？在 Android 上拉起 Google Authenticator，按住电源键+底部音量键截图。*轰。*截图。在像 [**Authy**](https://play.google.com/store/apps/details?id=com.authy.authy&hl=en_US) 这样的应用上试试，你可以想按住按钮多久就按住多久——什么都不用做。
 

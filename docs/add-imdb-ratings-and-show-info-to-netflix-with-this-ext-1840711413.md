@@ -4,7 +4,7 @@
 
 当你试图在网飞寻找一些可以看的节目时，有时你会想知道网飞以外的其他人对这个节目的看法。这就是 [zRate](https://www.zeeker.com/zRate/netflix) 可以帮忙的地方。[Chrome 扩展](https://chrome.google.com/webstore/detail/zrate-netflix-add-show-ra/eelcmdidihggbganloigjkefaahhhanj) 从 IMDB，偶尔从烂番茄和 Metacritic 带来分级信息，并提供关于节目情节的信息，以及来自同一网站的主要演员阵容。
 
-Watch
+
 
 不幸的是，这是一个 Chrome 扩展，所以使用它意味着你需要在 Chrome 上看网飞，而不是在你的电视上。也就是说，你总是可以用你的电脑创建一个完美的观看列表，然后在你的电视上访问它。
 

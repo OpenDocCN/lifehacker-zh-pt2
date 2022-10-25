@@ -4,7 +4,7 @@
 
 如果你一直在疫情寻找一个新家，你并不孤单。随着 [创纪录的低抵押贷款利率](https://www.wsj.com/articles/30-year-mortgage-rate-reaches-lowest-level-ever-2-98-11594908357)[更多的人在家工作](https://www.dallasfed.org/-/media/documents/research/papers/2020/wp2017.pdf) ，许多人正在考虑升级。事实上，根据最近一份全国房地产经纪人协会的报告，6 月份现房销售跃升了 20%以上，7 月份飙升了 25%。问题是，买房不仅仅是支付每月的抵押贷款——随着财产税和房主保险费的上涨，每月的抵押贷款也会增加。
 
-Watch
+
 
 根据 HomeAdvisor 的 2019 年家庭支出状况 [报告](https://www.homeadvisor.com/r/wp-content/uploads/2019/06/StateOfHomeSpending2019.pdf) ，你还必须支付持续的房屋维修和保养费用——平均每年 1105 美元。但是许多房主会花更多的钱，所以专家建议每年留出房屋价值的 1-4%来支付。
 

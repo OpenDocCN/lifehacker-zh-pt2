@@ -4,7 +4,7 @@
 
 最近几周，我们在 Lifehacker 总部这里就航班上的正确礼仪进行了几次重要的辩论，比如哪个乘客有 [关闭窗帘的权利](https://lifehacker.com/who-has-the-right-to-the-window-shade-on-a-flight-1838482583)[进入](https://lifehacker.com/go-ahead-and-use-the-first-class-bathroom-on-flights-1838743415)[头等舱洗手间](https://lifehacker.com/go-ahead-and-use-the-first-class-bathroom-on-flights-1838743415)[第一个下飞机的权利](https://lifehacker.com/whats-the-correct-etiquette-for-getting-off-a-plane-1838911167) 。
 
-Watch
+
 
 但是没有一个话题比关于你是否应该在飞机上放倒你的座位的争论引起了更多的争议——甚至《华盛顿邮报》最近也加入了这个问题的讨论(t[《纽约时报》](https://www.nytimes.com/2014/08/29/travel/on-flights-reclining-seats-and-rage.html))我们早在七月份就写了这个问题，尽管倾向于由你自己决定是否靠在椅子上，但人们的意见普遍不一。“除非是他们第一次飞行，否则他们知道比分，” [JasonMTracy](https://lifehacker.com/1836603238) 在我们的评论中写道。“通常，我斜倚的全部原因是我前面的人斜倚了，现在我需要额外的空间。”
 

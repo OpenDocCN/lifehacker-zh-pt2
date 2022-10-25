@@ -4,7 +4,7 @@
 
 如果一家 [航空公司无意中把你](https://lifehacker.com/what-to-ask-for-when-youre-bumped-from-a-flight-1836448891) 赶下飞机，你可能会要求比你想象的更多的东西，比如餐券、酒店住宿或现金。但是如果一家航空公司突然决定完全改变你的航班起飞时间，你有什么权利呢？它发生了；在 Reddit 上， [u/kaileen](https://www.reddit.com/r/airlines/comments/9xm5y4/frontier_airlines_changed_a_flight_by_more_than/) 分享了他们的家人在航空公司最后一刻改变行程的经历。
 
-Watch
+
 
 “我哥哥在 8 月份从边疆航空公司买了一张机票，”他们写道。“原定的航班是本周六早上 5:45。他刚刚收到一封电子邮件，内容是他周日早上 6:00 出发的新行程...如果这不是一个错误，有什么可以做得到折扣或某种形式的不便赔偿？我知道 Frontier 并不以适合飞行而闻名，但这似乎太荒谬了。”
 

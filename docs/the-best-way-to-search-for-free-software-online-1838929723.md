@@ -4,7 +4,7 @@
 
 感谢 Lifehacker 自己的 Nick Douglas 偶然发现了这个问题——这是我一直都知道的事情，但我没有意识到我应该向全世界公开。正如几天前在 Reddit 上讨论的 [，这里有一个小窍门:当你在网上寻找免费软件时，忍住不去谷歌(或你选择的搜索引擎)搜索“免费”这个词](https://www.reddit.com/r/lifehacks/comments/delfva/want_free_software_never_search_free_you_often/)
 
-Watch
+
 
 为什么会这样？因为当你说你在寻找，哦，一个免费的 photoshop 替代品时，你肯定会得到一堆垃圾:实际上不是免费的免费软件应用程序，免费试用的订阅应用程序，或者其他你想用多久就用多久的完全免费的变种。
 

@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/whats-new-on-netflix-the-week-of-june-22-2020-1843712077>
 
-Watch
+
 
 我们距离 7 月份的新内容登陆网飞只有一周时间，这意味着本周的新内容非常少。
 

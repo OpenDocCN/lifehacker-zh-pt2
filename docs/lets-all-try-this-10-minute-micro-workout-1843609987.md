@@ -4,7 +4,7 @@
 
 我们一直在为本月的 [Lifehacker 健身挑战赛](https://lifehacker.com/c/lifehacker-fitness-challenge) 进行快速的家庭训练，今天我们将尝试一种由使高强度间歇训练流行起来的科学家设计的训练。这就是所谓的“去锻炼”，你可以改变它，无论你喜欢。
 
-Watch
+
 
 我们最近提到它是一个 [微型锻炼](https://vitals.lifehacker.com/are-micro-workouts-effective-1842715773) 的好例子。它的设计师马丁·吉巴拉说，如果他只能做一种锻炼，那就是这个。你可以在这里找到一个 [的完整描述](https://www.health.com/fitness/one-minute-workout-book) ，但它相当简单且适应性强:
 

@@ -4,7 +4,7 @@
 
 很久以前，我有个大计划，要和我的朋友丹举办一次复活节早午餐。我们曾有过 [预配料](https://skillet.lifehacker.com/how-to-throw-a-cheap-dinner-party-cocktails-1825727460) 鸡尾酒、 [酸辣酱](https://skillet.lifehacker.com/make-hollandaise-sauce-the-easy-way-with-an-immersion-c-1836184914) 和羊肉雕刻站的宏伟愿景，但显然这些都不再发生了。但是没有能力举办一场盛大的聚会并不是我放弃吃羊肉计划的理由；这些计划只能按比例缩减。
 
-Watch
+
 
 根据你与食物和烹饪的关系，一些简单的食谱可能比华丽的菜单更好。就我个人而言，我比平时更喜欢更慵懒的烹饪风格，这就是为什么 [拉布内](https://skillet.lifehacker.com/how-to-make-your-own-labneh-and-how-to-eat-it-1796785416)-腌羊肉(lambneh)真的很适合我。
 

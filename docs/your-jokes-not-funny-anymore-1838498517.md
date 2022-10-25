@@ -4,7 +4,7 @@
 
 “我伺候宴席。许多中年男人在给他们的奶油鸡肉配上菰米时，都会对我说同样的笑话:“你是如何驯服菰米的？””Reddit 用户 Krisperrr 在回答这个问题时说:[“‘它没有扫描，所以它一定是你职业的自由户户户’是什么？](https://www.reddit.com/r/AskReddit/comments/d91j1e/noncashiers_of_reddit_whats_the_it_didnt_scan_so/)
 
-Watch
+
 
 如果你曾经做过服务工作，你会对 Krisperrr 表示同情，以及他们必须对这个早已过时的笑话微笑，这个笑话在 20 世纪 50 年代的一些浪漫喜剧中可能很有趣。你可以想象 Krisperrr，一个完美的专业人士，向每个无聊的老人假装他有一个原创的想法。老人们该停下来了。
 

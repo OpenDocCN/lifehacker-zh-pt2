@@ -4,7 +4,7 @@
 
 无论你是一直想尝试 的一些掷骰子冒险，还是因为你的常规*地下城&龙*团队可能不得不虚拟化几周(或几个月)而感到沮丧，现在都是用桌面游戏对抗冠状病毒引起的厌倦的好时机。
 
-Watch
+
 
 既然我们可能都有点精打细算，我建议你从《海岸巫师》的这个全新(免费)的活动开始你的冒险: [威尔蒙特](https://marketplace.roll20.net/browse/module/5353/adventure-preview-explorers-guide-to-wildemount?fbclid=IwAR0Ll5GUcbcmcPJnb-bngyzroJsfLzGd08yQQbxQt7PeNA5oPBnJrTnODyE) 探险者指南。
 

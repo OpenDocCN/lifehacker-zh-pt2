@@ -4,7 +4,7 @@
 
 积累信用卡积分和里程似乎是支付梦幻之旅的理想方式。但正如[CreditCards.com](https://www.creditcards.com/credit-card-news/points-hoarding-mistakes-tips.php)指出的那样，你的积分不一定总是和现在一样有价值；把它们花掉比存起来好。
 
-Watch
+
 
 为什么？为了一些不切实际的旅行或其他报销而囤积它们可能会导致失望。您永远无法保证您的积分和里程会随着时间的推移而保值。CreditCards.com 写道:
 

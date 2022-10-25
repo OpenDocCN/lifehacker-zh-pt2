@@ -4,7 +4,7 @@
 
 在 Slack 和 Trello 之前，我工作的在线新闻编辑室使用 Basecamp 和 Campfire 来组织项目。然而，当涉及到个人项目时，base camp 99 美元/月的价格标签使它成为一个禁忌。那是直到现在。本周，该公司推出了一个免费层，为您提供许多与传统 Basecamp 相同的功能，而无需支付昂贵的月费。
 
-Watch
+
 
 名为 [Basecamp Personal](https://basecamp.com/personal) 的公司表示，它是“专门为自由职业者、学生、家庭和个人项目”而创建的你知道，你只是为自己或像你的家人或一群朋友这样的一小群人组织这些事情，而不是整个公司办公室。它以前的 [提供了 25 美元/项目](https://lifehacker.com/basecamp-personal-manages-your-non-work-projects-5977975) 的个人层，但这个版本是完全免费的。
 

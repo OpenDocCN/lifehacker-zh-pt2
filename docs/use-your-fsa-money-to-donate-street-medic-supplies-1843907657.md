@@ -4,7 +4,7 @@
 
 如果你倾向于在年底时在你的医疗灵活支出账户(FSA)中有笔现金，你不必等到 [到 12 月](https://lifehacker.com/how-to-spend-your-extra-fsa-money-1821055768) 才开始花费。你现在可以用它来购买急救用品，并考虑将其捐赠给为抗议者组织医疗支持的团体。
 
-Watch
+
 
 在购买物资之前，和你想捐赠的团体核实一下。这里有一个 [的街头医疗兵组织列表](https://medic.wikia.org/wiki/List_of_street_medic_organizations) ，按地点组织。如果你找不到一个专门的医疗小组，就去接触那些参加抗议活动的社区和激进组织；他们也许能帮你找到合适的谈话对象。
 

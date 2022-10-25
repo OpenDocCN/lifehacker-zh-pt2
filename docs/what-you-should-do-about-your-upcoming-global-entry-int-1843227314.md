@@ -4,7 +4,7 @@
 
 很有可能你现在没有任何计划去进行一次国际旅行。然而，如果你想在今年早些时候注册 Global Entry，你至少要等到 6 月份才能完成这个过程。
 
-Watch
+
 
 美国海关和边境保护局办公室 [上周](https://www.cbp.gov/newsroom/national-media-release/cbp-extends-temporary-closure-trusted-traveler-program-enrollment) 宣布，将无限期暂停 Global Entry、SENTRI 和 NEXUS 等项目的注册，但至少要到 6 月 1 日。
 

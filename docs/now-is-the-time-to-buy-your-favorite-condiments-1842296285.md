@@ -4,7 +4,7 @@
 
 任何类型的危机都倾向于把人们转变成一种功利的、没有虚饰的心态。这适用于洗手液和其他不那么迷人的必需品，但我不会接受它用于食物。在接下来的几周里，我们可能都在吃豆子，但是没有理由这些豆子应该是淡而无味的。
 
-Watch
+
 
 现在——我是说现在——是时候去买绝对最好的调味品、最贵的泡菜和你想要的每一种 [鲜味炸弹](https://skillet.lifehacker.com/five-umami-bombs-you-should-always-have-stocked-in-your-1794269578) 了。现在是时候投资 [百吉饼调料](https://skillet.lifehacker.com/this-everything-bagel-seasoning-is-quite-literally-my-1793624935) 的摇瓶，几盒 [片状盐、](https://skillet.lifehacker.com/make-flaky-finishing-salt-in-your-slow-cooker-or-instan-1831643616) 和几袋 [味精](https://skillet.lifehacker.com/put-msg-in-everything-you-cowards-1831721707) 了。呆在里面很无聊。每天吃同样的东西很无聊。调味汁、调味料和腌制品可以帮助减轻一些无聊感，而且它们可以持续很长时间(或者至少几个月)。
 

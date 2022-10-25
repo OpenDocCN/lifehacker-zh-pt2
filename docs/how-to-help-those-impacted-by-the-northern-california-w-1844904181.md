@@ -4,7 +4,7 @@
 
 此时，加利福尼亚州、爱达荷州、俄勒冈州和华盛顿州的部分地区正在着火——这是已经强烈野火季节的最新补充(除此之外还有 [【极度活跃】](https://www.noaa.gov/media-release/extremely-active-hurricane-season-possible-for-atlantic-basin) 飓风季节)。这些野火产生的烟雾已经穿越了整个国家，在东海岸造成了一片烟雾，这种烟雾从 T12 到 T13 一直蔓延到了欧洲。而且让我们不要忘记，所有这一切都是发生在全球 [疫情](https://lifehacker.com/how-to-shelter-from-a-storm-during-a-pandemic-1844698438) 期间，而不幸的是， [布口罩并不能保护你不受野火烟雾](https://vitals.lifehacker.com/cloth-masks-dont-protect-against-wildfire-smoke-1845049868) 的伤害。这一切都让人不知所措，让人感到绝望——但是如果你正在寻找帮助那些受大火影响的人的方法，这里有一些建议。
 
-Watch
+
 
 ### **美国红十字会**
 

@@ -4,7 +4,7 @@
 
 “婴儿婚前协议”的想法是由《亚特兰大的真实主妇》中的波莎第一次带入流行意识的，显然，它现在是最新的(哦，上帝[【momtroversy】。](https://abcnews.go.com/GMA/Family/momtroversy-baby-prenups-good-idea-expecting-parents/story?id=64086500) “这只是一对怀孕夫妇之间的书面协议，在孩子出生前列出双方对孩子的期望。
 
-Watch
+
 
 我的看法:坏名字，好主意。
 

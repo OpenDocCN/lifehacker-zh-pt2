@@ -4,7 +4,7 @@
 
 我最喜欢的用于广告拦截和隐私的 Chrome 扩展， [Ghostery](https://www.ghostery.com/) ，在 macOS 上的 Safari 有了新版本: [GhosteryLite](https://www.ghostery.com/blog/product-releases/ghostery-lite-for-safari-is-live/) 。
 
-Watch
+
 
 最新版本的 Safari 具有非常可靠的隐私功能，但苹果也提供了一个内容拦截器 API，允许 GhosteryLite 等扩展来扩展其功能。Ghostery 维护着一个庞大的追踪器和广告平台数据库，使用苹果自己的 API 意味着它不会给 Safari 的性能增加额外的负载。(当然，屏蔽广告和追踪器会帮助你的网站加载得更快。)
 

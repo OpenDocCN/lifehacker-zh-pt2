@@ -4,7 +4,7 @@
 
 如果你想用很少的钱甚至不用钱来装修你的家，你很快就会发现(也许是在用塑料储物盒当茶几的时候)这是一件很麻烦的事情。但是你并不总是有钱来解决这个问题，以便在你的新住处快速买到像样的家具。所以你在 Craigslist 上和某人玩来回的电子邮件谈判游戏，或者祈祷你在邻居加入之前得到了的免费自行车优惠。
 
-Watch
+
 
 用 [快速追踪你的家具搜索 Reddit](https://old.reddit.com/r/Frugal/comments/d8cwlf/search_moving_sale_on_facebook_marketplace/) 上 bos-o 的这个提示:在 Facebook Marketplace 上搜索“移动销售”。
 

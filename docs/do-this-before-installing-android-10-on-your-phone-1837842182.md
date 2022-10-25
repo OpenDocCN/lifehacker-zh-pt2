@@ -4,7 +4,7 @@
 
 Android 10 是为一些人准备的，但可能不是你。如果你拥有谷歌 Pixel(从 OG [Pixel](https://gizmodo.com/if-you-owned-a-first-gen-pixel-phone-google-may-owe-yo-1837191957) 到最新的 Pixel 3a 或 Pixel 3a XL 变种)，你现在就可以下载并安装新版 Android 操作系统。对其他人来说，你可能要等一会儿。
 
-Watch
+
 
 在你下载和安装 Android 10 之前——无论何时——这里有几个你需要考虑的步骤:
 

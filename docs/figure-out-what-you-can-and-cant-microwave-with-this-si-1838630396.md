@@ -4,7 +4,7 @@
 
 "我能用微波炉加热这个吗？"这个问题和微波炉本身一样由来已久，但我脑海中唯一清晰的规则是“不要金属”在我七岁时，温蒂汉堡的包装纸将这个教训烙进了我的意识，我永远不会忘记小闪电是如何舞动的。
 
-Watch
+
 
 但是有很多其他的食物、容器和杂烩的规则并不明显。 [【康宁器皿】](https://canyoumicrowave.com/corningware/)[蟹腿](https://canyoumicrowave.com/crab-legs/)[lube](https://canyoumicrowave.com/can-you-microwave-lube/)只是其中的几个主题 canyoumicrowave.com 解决的问题，深入解释了为什么你应该或不应该用微波炉加热某些东西。该网站还提供关于 *如何*微波食品或材料的信息(如果适用)。
 

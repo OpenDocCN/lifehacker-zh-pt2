@@ -4,7 +4,7 @@
 
 随着疫情的延续——议员们继续就最新的刺激方案 进行 [谈判——专家们警告说，可能会有一场](https://www.forbes.com/sites/robertberger/2020/08/05/stimulus-bill-expected-next-week-heres-when-benefits-would-likely-go-out/#510890077135) [迫在眉睫的驱逐危机](https://twocents.lifehacker.com/how-to-try-and-prevent-your-eviction-1844419671) 。无论你的家庭正遭受失业或减薪，现在可能是时候开始与你的房东谈判了。正如美国消费者新闻与商业频道报道的那样，如果你现在就开始准备对话，你可能会有比你想象中更多的选择。
 
-Watch
+
 
 ### **查看你的预算**
 

@@ -4,7 +4,7 @@
 
 前几天，我在想“G 奥什，自从我看了《创:遗产》后，它肯定已经永远消失了。“然后一个朋友在*动物穿越:新视野*里发现 [赛博服](https://villagerdb.com/item/cyber-suit) 在卖，她在我们岛聊里说了*同样的事情*。我们的解决方案？让我们一起看 *Tron: Legacy* ，用一个 **Chrome** 浏览器扩展来模拟我们实际上同时处于同一个空间的效果。
 
-Watch
+
 
 嗯， [**场景器**](https://chrome.google.com/webstore/detail/scener-%E2%80%93-virtual-movie-th/lkhjgdkpibcepflmlgahofcmeagjmecc) 技术上来说不会让我做*那个*，因为华丽的 *Tron* 续集在网飞或 HBO 上不可用，并且扩展仅与这两个流媒体服务一起工作。但是我还是要安装它，用它来主持共享观看夜。就是那么好。
 

@@ -4,7 +4,7 @@
 
 随着新冠肺炎变得越来越普遍，最大的担忧之一是医疗机构可能会不堪重负。这就是为什么我们都在努力“ [拉平曲线](https://www.npr.org/sections/health-shots/2020/03/13/815502262/flattening-a-pandemics-curve-why-staying-home-now-can-save-lives) ”确保即使病毒传播，它也是以卫生系统可以处理的速度传播。
 
-Watch
+
 
 Propublica 有一个新的 [工具来比较不同地区的卫生系统](https://projects.propublica.org/graphics/covid-hospitals) 。你可以输入你的位置，这个工具会显示一个容量的测量值——有多少张病床——来反对一些关于病毒可能如何传播的猜测。
 

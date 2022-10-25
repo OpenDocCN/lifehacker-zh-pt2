@@ -4,7 +4,7 @@
 
 像 [【谷歌地图】](https://lifehacker.com/how-to-make-the-most-of-google-maps-1793442153)[苹果地图](https://lifehacker.com/set-walking-directions-as-the-default-in-apple-maps-1584806266) 和 [Waze](https://lifehacker.com/waze-adds-hands-free-controls-motorcycle-directions-an-1820846212#_ga=2.264085260.1292262190.1511760428-1167719708.1504278915) 这样的应用程序已经将驾驶中几乎所有的猜测都拿掉了(至少在 [自动驾驶汽车](https://lifehacker.com/what-self-driving-cars-can-teach-us-about-better-drivin-1786843323) 变得更加主流之前)。输入你的目的地，然后按照路线指引直到你到达目的地——就这么简单。
 
-Watch
+
 
 但是，如果你愿意钻研你最喜欢的导航应用程序的设置，还是有办法让你的驾驶变得更好。以下是如何用苹果地图、谷歌地图和 Waze 避开过路费和高速公路(以及高速公路交通)。
 

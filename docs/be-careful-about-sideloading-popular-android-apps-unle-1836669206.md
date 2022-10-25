@@ -4,7 +4,7 @@
 
 你确定你使用的是安装在手机上的流行应用的真实版本吗？《福布斯》最近报道称，伪装成流行安卓应用的 [间谍软件正在网上流传](https://www.forbes.com/sites/thomasbrewster/2019/07/24/warning-android-malware-masquerading-as-pornhub-google-and-evernote-is-actually-a-russian-spy-operation/#441a92b95a3a) ，黑客可能正在用它们来跟踪你。
 
-Watch
+
 
 这篇文章特别指出了 Evernote、Google Play 甚至 PornHub 应用程序的假冒版本，这些版本似乎与一个已知的俄罗斯监控组织有关。好消息是什么？这些假冒的应用不会出现在谷歌 Play 商店上(即使是 [虽然很多](https://lifehacker.com/delete-these-banned-apps-from-your-android-1836494919) [的](https://lifehacker.com/check-if-your-android-device-has-been-infected-by-malic-1836457809) 其他黑幕应用会出现 )。然而，被看起来合法的应用程序欺骗的 Android 用户正在从非官方来源下载这些应用程序。
 

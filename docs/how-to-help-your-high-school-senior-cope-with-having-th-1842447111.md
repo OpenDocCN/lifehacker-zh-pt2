@@ -4,7 +4,7 @@
 
 回想一下你高中的最后一年。一旦春天来临，你基本上就可以自由自在了，终于可以体验“老年人”的快乐了:去上学，去看朋友，同时享受较低的学业期望。再加上有那么多 [重大事件](https://twocents.lifehacker.com/would-you-tell-your-kids-that-college-is-worth-the-mone-1837000013) 期待像毕业舞会、 [还有其他任何传统](https://offspring.lifehacker.com/start-your-kids-high-school-graduation-gift-in-kinderga-1833940742) 你的学校可能都有。但是现在，由于冠状病毒的爆发，许多高中(和大学)高年级学生不得不接受不得不错过这一切的事实。
 
-Watch
+
 
 当然，Zoom 和群组 FaceTime 聊天上也有课程，但当然这是不一样的。如果你是一个高中生的家长，这可能很难看到。你看到你的孩子这么努力工作了这么长时间，却被剥夺了完成高中学业的庆祝机会。尽管你可能会感到无助，但还是有办法让这种情况变得简单一些。Lifehacker 采访了心理健康和教育专家，以找出父母如何帮助他们的高中毕业生应对学年缩短的问题。
 

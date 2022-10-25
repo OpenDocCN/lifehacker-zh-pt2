@@ -4,7 +4,7 @@
 
 在[《纽约时报》](https://www.nytimes.com/2019/03/19/magazine/should-i-report-a-do-nothing-co-worker.html) ，一名沮丧的员工与伦理学家分享了他们与一名懒惰、“无所事事”的同事的故事。他们写道:“她经常午休，比开始时间晚来，实际上并没有在‘在家工作’的日子里工作。”"...此外，她还不断抱怨，对自己的项目漠不关心。她不费吹灰之力就完成了工作，经常将结果归咎于客户或外部因素...我们的主管似乎没有注意到或关心，他们往往不惹麻烦。”
 
-Watch
+
 
 我们都认识至少一个这样的同事。在某些情况下，*你*甚至可能是那个同事，而你并不知道。但也许这不是你的错；这可能是工作描述误导了你，或者是你在同一个职位上干了几年后精疲力竭了。本周， [Quartz](https://qz.com/work/1693368/what-to-do-when-youre-bored-at-work/https://qz.com/work/1693368/what-to-do-when-youre-bored-at-work/) 的莎拉·托德(Sarah Todd)最近提出了当你在 work⁠—and 感到无聊时该做什么的问题。答案并不包括花时间在 Reddit 上或浏览你的 Twitter feed。
 

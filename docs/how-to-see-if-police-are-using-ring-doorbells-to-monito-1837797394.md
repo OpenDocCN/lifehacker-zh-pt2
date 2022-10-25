@@ -4,7 +4,7 @@
 
 本月早些时候 [我们了解到，亚马逊正在与执法机构](https://gizmodo.com/cops-are-giving-amazons-ring-your-real-time-911-data-1836883867) 就可能让他们访问门铃上的视频流进行谈判，这既是一种帮助决定如何部署紧急救援人员的方式，也可能为亚马逊的邻里监督应用程序 Neighbors 创建“犯罪新闻”帖子。
 
-Watch
+
 
 本周，亚马逊 [发布了一篇关于其与执法机构](https://blog.ring.com/2019/08/28/working-together-for-safer-neighborhoods-introducing-the-neighbors-active-law-enforcement-map/) 合作的博客文章，特别详细介绍了目前在邻居门户网站上与该公司合作的 405 个不同的执法机构。
 

@@ -4,7 +4,7 @@
 
 如果你一直在关注我们的感恩节报道，你会知道我们有一个小小的员工晚宴，你会知道我帮助每个员工确保他们的菜闪闪发光。我们有过一些欢笑，也吸取了一些教训(有一次，、、[、](https://skillet.lifehacker.com/make-these-thanksgiving-classics-even-better-1830236674)、跳了一小段舞)，整个月我们都在和你分享这些技巧和诀窍。
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Have a Delicious Thanksgiving From Potatoes to Pie](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-make-a-delicious-thanksgiving-turkey-1830465631)</aside>
 

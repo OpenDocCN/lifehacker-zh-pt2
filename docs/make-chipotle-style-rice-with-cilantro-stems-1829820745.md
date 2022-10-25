@@ -4,7 +4,7 @@
 
 自从 2017 年 的 [大溃败之后，我就没有再去过 Chipotle 与奶酪有关的心碎需要最长的时间才能愈合——但我仍然对他们的香菜石灰饭情有独钟。幸运的是，这并不难复制，而且可以用芫荽叶茎做成*和*。](https://lifehacker.com/3-cheesy-dips-that-are-way-better-than-whatever-chipotl-1818528845) 
 
-Watch
+
 
 *这是《与克莱尔一起吃垃圾》的一部分* [*，这是一个生活黑客系列，克莱尔·劳尔说服你将你的厨余转化为可食用的美味。*](http://lifehacker.com/tag/eating-trash-with-claire)
 

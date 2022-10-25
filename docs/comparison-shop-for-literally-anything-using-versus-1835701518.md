@@ -4,7 +4,7 @@
 
 [对](http://versusutil.com/) 是一个微小的网站，做微小的事情，而且做得很好。输入一种产品或服务——或者任何东西——vs 会告诉你其他选择。 [搜索 Photoshop](http://versusutil.com/?seed=photoshop) ，你会得到可比的 Adobe 产品 Lightroom 和 Illustrator，以及竞争对手 Gimp、Affinity、Procreate、Krita 和 Pixlr。如果你经常想要昂贵产品或服务的替代品，这是很有用的——尤其是当你把 vs 变成你浏览器的内置搜索引擎时。
 
-Watch
+
 
 在幕后，vs 只是简单地谷歌一下你的搜索词加上“vs”，然后看看谷歌想自动补全什么。它不会给你完整的谷歌搜索结果，而是返回一个干净的建议单词和短语列表，这样你就可以快速浏览。你可以在谷歌上点击搜索这个词或短语的任何结果。
 

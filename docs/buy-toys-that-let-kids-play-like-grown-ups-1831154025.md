@@ -4,7 +4,7 @@
 
 两年前是。在那之前几十年，是 [Tickle-Me Elmo](https://en.wikipedia.org/wiki/Tickle_Me_Elmo) 。还记得 [电子宠物](http://www.bandai.com/tamagotchi/) 吗？ [白菜帮的娃儿](https://cabbagepatchkids.com/) 和风靡一时的 [活蹦乱跳的宝宝](https://babyalive.hasbro.com/en-us) ？所有这些由玩具变成的游戏都有一个共同点:它们允许孩子们练习养育。
 
-Watch
+
 
 甚至在孩子会走路或说话之前，他们就已经在发展同理心，幼儿专家 Ayuko Uezu Boomer 告诉《大西洋月刊》 :
 

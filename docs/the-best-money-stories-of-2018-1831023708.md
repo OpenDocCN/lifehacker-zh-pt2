@@ -4,7 +4,7 @@
 
 朋友们，又一年过去了。在那段时间里，我们曾经 [谈论过目标](https://twocents.lifehacker.com/aim-to-get-to-10-000-1827509198) ，想象过一百万和十亿之间的，发现过 [新的旅行技巧](https://twocents.lifehacker.com/find-cheaper-international-travel-fares-using-this-deca-1830152019) 并且被反复提醒，我们需要削减我们都在支付的所有 [费用](https://twocents.lifehacker.com/401-k-fees-you-need-to-know-1825819800) 。
 
-Watch
+
 
 但是什么是精英中的精英呢？亲爱的 TwoCents 读者，对你来说，什么真正概括了 2018 年？下面是服务、新闻和评论的组合。为更加硕果累累的 T2 干杯。(如果你希望看到某个话题在 2019 年得到解决，请在评论中留下或发邮件给我，地址是*alicia.adamczyk@lifehacker.com*。)
 

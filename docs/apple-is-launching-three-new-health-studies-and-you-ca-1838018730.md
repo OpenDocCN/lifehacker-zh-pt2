@@ -4,7 +4,7 @@
 
 今天，苹果 [宣布](https://lifehacker.com/everything-from-todays-apple-event-that-actually-matter-1838013573) 他们推出了三项新的健康研究，你可以通过即将推出的研究应用程序注册。
 
-Watch
+
 
 该应用程序将于今年晚些时候推出，这些研究是自愿加入的。除非你使用应用程序注册并授予研究人员访问权限，否则你不是他们的一部分。这些研究是:
 

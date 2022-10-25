@@ -4,7 +4,7 @@
 
 你可以从所有的健身房自拍、健身追踪器截图和充满社交媒体的无碳水化合物餐的过度热情的照片中看出这是一月。虽然你可能已经决定把注意力放在其他地方，而不是每天的步数，但你的手机有不同的想法。
 
-Watch
+
 
 几乎所有的智能手机现在都有某种形式的内置运动跟踪功能，并且大多数智能手机默认在后台收集这些数据。幸运的是，关闭手机的健身和活动跟踪器非常简单。你甚至会发现，如果没有过多的应用程序提醒 (以及 [额外的数据隐私](https://lifehacker.com/psa-your-phone-logs-everywhere-you-go-heres-how-to-t-1486085759) 也不会有坏处)，给予你的健康和健身适当的关注 [会更容易。](https://vitals.lifehacker.com/how-to-have-a-healthy-relationship-with-your-fitness-tr-1834616117)
 

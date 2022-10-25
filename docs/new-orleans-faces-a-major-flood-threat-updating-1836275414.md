@@ -4,7 +4,7 @@
 
 热带风暴巴里今天早上刚刚正式形成，但是水位已经 [压向新奥尔良的](https://earther.gizmodo.com/new-orleans-faces-catastrophic-flooding-ahead-of-possib-1836245310) 。退一步说，情况看起来很糟糕，我们地球人将密切关注路易斯安那州和该市为周末即将到来的飓风做准备。
 
-Watch
+
 
 以爵士乐和 po'boys 闻名的新奥尔良，在热带风暴系统仍在墨西哥湾形成之前，昨天开始洪水泛滥。除了面临河水泛滥和漫堤的威胁之外，预计整个周末周边地区还会有 20 多英寸 的降雨。到目前为止，路易斯安那州州长约翰·贝尔·爱德华兹已经宣布进入紧急状态，官员们已经开始关闭新奥尔良及其周边地区的水闸。据《泰晤士报》报道，[-pica yune](https://www.nola.com/news/weather/article_9d73aa4a-a325-11e9-ac0c-fff4b9853a95.html)周五应关闭 200 多家。
 

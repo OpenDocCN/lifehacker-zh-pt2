@@ -4,7 +4,7 @@
 
 如果你看上了 Xbox 新的 Elite 2 控制器，你可能会考虑午餐吃塔可钟。
 
-Watch
+
 
 微软与塔可钟合作 [打造新的限量版 Xbox One X 主机](https://tacobellxboxappoffer.com/) 。这不是该公司第一次做宣传，但这一次，限量版游戏机附带了一些额外的东西:新的 Xbox Elite 2 控制器。
 

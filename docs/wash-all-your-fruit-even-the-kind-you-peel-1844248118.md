@@ -4,7 +4,7 @@
 
 你应该清洗你所有的水果和蔬菜，甚至是那些你打算在吃之前去皮的。除了田地里的泥土，还有细菌、杀虫剂或其他化学残留物。所以当你打包你的野餐篮子时，冲洗一下你的产品。
 
-Watch
+
 
 顺便说一下，这并不意味着你需要害怕你的食物。少量的农药残留 [并不危险](https://lifehacker.com/why-you-shouldnt-buy-organic-based-on-the-dirty-dozen-1689190822) ，购买有机食品并不回避这个问题——[有机食品也使用农药](https://vitals.lifehacker.com/organic-food-has-pesticides-too-1825156951) 。
 

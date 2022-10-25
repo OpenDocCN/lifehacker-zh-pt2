@@ -4,7 +4,7 @@
 
 脑洞大开的时刻发生在大约一周前。一个 [视频](https://www.facebook.com/kathy.slater.330/posts/10157619021525967) (带有亚马逊公司 Ring 的相机标志)显示一名男子递送亚马逊包裹，在门廊上找到一盒零食，然后跳舞 [迅速走红](https://www.yahoo.com/lifestyle/amazon-delivery-man-speaks-about-viral-video-of-his-celebratory-dance-230237902.html) 。我的心灵没能在那一刻找到快乐。
 
-Watch
+
 
 想想运动的部分。有一个饥饿脱水的亚马逊员工——[，或者，更有可能的是，一个亚马逊承包商](https://gizmodo.com/amazons-last-mile-1820451224)——从他紧张的工作中找到了一丝喘息的机会，却看到那一刻变成了某种怪异的病毒广告。有一个由亚马逊制造的环形安全摄像头，可以监视这位亚马逊员工或附近的任何人在做什么，并可能与当地警察局共享视频。据了解，亚马逊和 Ring 利用警方合作关系 [引诱潜在的包裹窃贼](https://www.nbcnewyork.com/news/jersey-city-partners-with-amazon-to-catch-package-thieves-in-act/1815862/) ，这可以被描述为一场私人运营的国家支持的监控活动的营销活动。
 

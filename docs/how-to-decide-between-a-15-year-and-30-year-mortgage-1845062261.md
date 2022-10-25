@@ -4,7 +4,7 @@
 
 随着抵押贷款利率 [再次创下历史新低](https://finance.yahoo.com/news/u-mortgage-rates-slide-another-213629775.html)你可能正在考虑买房或者 [为你的抵押贷款](https://lifehacker.com/refinance-your-mortgage-now-to-avoid-a-new-fee-1844904486) 再融资。但是，你应该申请 15 年期抵押贷款还是 30 年期抵押贷款呢？以下是如何决定哪种选择最适合你的家庭。
 
-Watch
+
 
 ### 15 年期抵押贷款的好处
 

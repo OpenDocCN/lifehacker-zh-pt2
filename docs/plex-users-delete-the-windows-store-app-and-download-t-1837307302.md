@@ -4,7 +4,7 @@
 
 关于 Plex 的一个伟大之处——除了用它来 [创建你自己的私人、可共享的流库](https://lifehacker.com/use-a-plex-media-server-to-stream-your-media-collection-1832992483)——就是它支持多少平台。你可以在 Android、iOS、PC、Roku、智能电视甚至你的网络浏览器上使用这项服务(和服务器)。
 
-Watch
+
 
 Plex 最近 [发布了新的桌面客户端](https://www.plex.tv/blog/desktop-af/?AID=13099277&PID=7293383&SID=UUwpUdUnU68137YYwYg) ，旨在将其 Windows、Mac 和 web 客户端以及独立的 Plex 媒体播放器整合到一个应用程序中。对于 Windows 用户，这个新版本的 Plex(目前)在 Windows Store 上不可用。以下是对您的意义以及 Plex 更新程序带来的所有新功能的快速概述。
 

@@ -4,7 +4,7 @@
 
 你会为麦当劳的巨无霸支付高于面值的价格吗？如果你本周抢着去买 DoorDash 的一美分汉堡，你可能已经这么做了。
 
-Watch
+
 
 周一， [DoorDash 宣布](https://blog.doordash.com/were-giving-away-1-million-big-mac-sandwiches-for-just-1-cent-and-we-re-giving-away-1-million-d2838c5f63d8) 它现在提供全国范围的麦当劳外卖，并表示将向通过送餐应用程序使用促销代码订购巨无霸的前 100 万人免费赠送 1 美分的 100 万个巨无霸。促销活动将持续到 10 月 4 日或供应结束。
 

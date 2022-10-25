@@ -4,7 +4,7 @@
 
 当你拥有一双很棒的鞋子时，你会想要炫耀它们。但是你穿得越多，它们看起来就越糟糕——被打坏了，被难看的折痕破坏了。
 
-Watch
+
 
 本周，推特用户 [@shanteldebonsu](https://twitter.com/shanteldebonsu/status/1117740672868659205) 发布了 [她关于去除你鞋子顶部那些烦人褶皱的建议](https://twitter.com/shanteldebonsu/status/1117740672868659205) 。
 

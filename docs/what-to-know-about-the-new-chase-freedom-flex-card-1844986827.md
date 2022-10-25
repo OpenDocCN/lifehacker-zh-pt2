@@ -4,7 +4,7 @@
 
 上周， [大通推出了](https://media.chase.com/news/new-chase-freedom-flex-credit-Card-and-more-cash-back-Opportunities-for-freedom-unlimited-cardmembers) 新的奖励信用卡产品——包括新的 [大通自由灵活](https://creditcards.chase.com/a1/freedom/comingsoon?jp_cmp=cc/freedom-teaser-vanity/ext/CID/PID)——以及现有大通自由无限的新返现奖励。两者都将于 2020 年 9 月 15 日上市。
 
-Watch
+
 
 ### **Chase Freedom Flex 福利**
 

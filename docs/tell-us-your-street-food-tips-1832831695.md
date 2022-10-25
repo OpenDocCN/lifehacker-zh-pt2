@@ -4,7 +4,7 @@
 
 我最好的街头小吃是在我的婚礼上租了一辆 [Wafels & Dinges](https://dinges.nyc/) 卡车来供应甜点。快餐车是目前街头食品最时尚的形式，但你最喜欢的餐馆可能是手推车、小摊、拖车或在公园里推着冷藏车的人。
 
-Watch
+
 
 城市街头美食可以成为传奇。三藩市的 Tamale 女士， [愿她安息，](http://remezcla.com/culture/virgina-ramos-tamale-lady-dies/) ，曾经在 Zeitgeist 这样的酒吧里招待酒客。我也从来没有在营业时间看过奥斯丁的《T4》中的发展受阻[Bananarchy](https://sweets.seriouseats.com/2010/09/bananarchy-frozen-banana-stand-inspired-by-arrested-development-austin-tx.html)，尽管为了吃一根冷冻香蕉，我去了一趟河对岸。
 

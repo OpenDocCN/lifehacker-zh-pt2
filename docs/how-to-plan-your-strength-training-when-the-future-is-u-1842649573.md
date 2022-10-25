@@ -4,7 +4,7 @@
 
 每个人都有在家锻炼的想法( [美国](https://vitals.lifehacker.com/do-this-workout-at-home-no-equipment-needed-1842425497) [包括](https://vitals.lifehacker.com/do-this-dumbbell-workout-from-home-1842490289) )，但是当你知道你将在未来几周在家训练时，你不仅仅需要想法；你需要一个计划。
 
-Watch
+
 
 我是一个积极主动的人，会在我的日历上安排一次会议，并坚持按照时间表为会议做准备。即使你不如我有竞争力(我是最有竞争力的，好吗？？)没有合适的设备，在家训练会感觉有点漫无目的。
 

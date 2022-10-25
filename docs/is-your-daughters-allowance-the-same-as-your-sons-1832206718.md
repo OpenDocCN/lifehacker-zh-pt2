@@ -4,7 +4,7 @@
 
 性别工资差距不仅仅是劳动力正在努力解决的问题；它从你在家如何对待你的孩子开始。
 
-Watch
+
 
 据统计，男性 [收入高于女性](https://www.businessinsider.com/gender-wage-pay-gap-charts-2017-3#overall-black-and-hispanic-women-face-the-biggest-pay-gap-when-compared-to-white-men-3) 收入的差距因种族和地区而异；有色人种女性的收入明显低于白人男性和白人女性。有孩子的妇女在工作场所也更有可能受到经济上的惩罚，而父亲的工资往往比没有孩子的父亲高。
 

@@ -4,7 +4,7 @@
 
 经过几个月的社交疏远和呆在家里，许多人都经历了严重的旅游癖。考虑到我们仍处于全球疫情中，离开地球休息一会儿似乎特别有诱惑力。虽然说到太空旅游，我们还不太了解，但由于国际空间站(ISS)的虚拟旅行，我们至少可以一瞥轨道上的生活。
 
-Watch
+
 
 正如[Travel+Leisure](https://www.travelandleisure.com/trip-ideas/space-astronomy/international-space-station-virtual-tour)指出的那样，你可以通过 [谷歌艺术&文化](https://artsandculture.google.com/) 进行许多令人惊叹的虚拟旅行之一是 [国际空间站](https://artsandculture.google.com/streetview/international-space-station/WgFE9b04h8A0ww?sv_lng=-95.08533878466375&sv_lat=29.56040149436038&sv_h=46.239999999999995&sv_p=-13.299999999999997&sv_pid=2Lx7fxjE5hcAAAQvxgbyLQ&sv_z=1.0000000000000002) 的 360 度旅行。但这不仅仅是太空的美景:你实际上可以探索国际空间站的内部，滚动和点击你的方式通过狭窄的隧道和充满设备的房间。
 

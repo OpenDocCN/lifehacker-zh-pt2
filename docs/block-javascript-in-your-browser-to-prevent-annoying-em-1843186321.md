@@ -4,7 +4,7 @@
 
 JavaScript 是大多数网站和网络应用在 上运行的关键元素之一，但也是最容易被利用的元素之一。它不仅用在 [分析工具、广告、浏览跟踪器](https://lifehacker.com/the-best-browsers-for-ad-blocking-that-arent-chrome-1835130559) 中，黑客还经常使用 JavaScript[部署恶意软件](https://lifehacker.com/how-to-avoid-the-new-astaroth-malware-thats-hitting-win-1842509944) ，它让你 [在某些情况下很容易被跟踪](https://lifehacker.com/dont-use-tor-right-now-if-youre-working-from-home-1842318515) ，它甚至可以意外泄露重要数据。
 
-Watch
+
 
 事实上， [最近的一项研究发现](https://medium.com/@thezedwards/the-2020-url-querystring-data-leaks-millions-of-user-emails-leaking-from-popular-websites-to-39a09d2303d2) 仅在 2020 年，运行 JavaScript 的热门网站就向广告商和其他分析公司泄露了超过一百万封用户电子邮件。这些网站包括华盛顿邮报、Mailchimp、Wish，甚至最近推出的视频流媒体服务 [Quibi](https://lifehacker.com/everything-you-need-to-know-about-quibi-1842710665) 。更糟糕的是，许多网站都是在不知情的情况下这样做的，甚至破坏了他们原本应该保护用户数据安全的其他安全措施。
 

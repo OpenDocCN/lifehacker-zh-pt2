@@ -4,7 +4,7 @@
 
 一些电视节目有太多的笑话，一次看不完:*发展受阻*， *30 摇滚*，*杰克骑士*，*辛普森一家*，*社区*。有的运用伏笔和主题暗示:*迷失*，*绝命毒师*，*百发百中*。有些只是有趣的错误，或者在布景和服装上的小选择。你可以在 [r/TVDetails](https://www.reddit.com/r/TVDetails/) 上一探究竟，这是一个专门为观众可能忽略的电视节目中的小瞬间而设的子栏目。这里有一些我们最喜欢的。
 
-Watch
+
 
 这个笑话实际上对大多数观众来说是隐藏的:反派议员 Jamm 声称他热爱中国文化。但据 redditor JurassicWorldWarZ 称， [在日文中竟然写着“朝鲜”](https://www.reddit.com/r/TVDetails/comments/7pxvo0/parks_rec_jamm_says_he_loves_chinese_culture_but/) 。
 

@@ -4,7 +4,7 @@
 
 截至今天，所有 Alexa 用户终于可以 [使用他们的 Alexa 通过 Spotify](https://newsroom.spotify.com/2019-12-13/all-spotify-users-in-the-u-s-can-now-play-podcasts-through-amazon-alexa/) 播放播客，只需说“Alexa，播放[*Spotify 上的升级*](https://lifehacker.com/c/the-upgrade) ”如果你在 Spotify 应用程序上播放了一集，Alexa 会从你停止的地方继续播放，反之亦然。不再需要在两个应用程序之间转换进度。
 
-Watch
+
 
 如果该功能对你不起作用， [在 Alexa](https://www.spotify.com/us/amazonalexa/) 上将 Spotify 设置为你的默认播客播放器:
 

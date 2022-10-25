@@ -4,7 +4,7 @@
 
 社交媒体上分享的一张图片显示，高碳酸血症或吸入过多二氧化碳会导致嗜睡和头晕等症状。这话没错， [这个形象来自维基百科这里的](https://commons.wikimedia.org/wiki/File:Main_symptoms_of_carbon_dioxide_toxicity.png) 。*不真实的是高碳酸血症和戴口罩之间隐含的关系。*
 
-Watch
+
 
 提醒一下，如果你外出时戴着面具，那应该是一个布面具。医用 N95 呼吸器应该留给卫生专业人员，五金店的 N95s 不合适，因为它们的 [阀门可以让病毒通过](https://vitals.lifehacker.com/if-your-mask-has-a-valve-its-half-useless-1843182019) 。
 

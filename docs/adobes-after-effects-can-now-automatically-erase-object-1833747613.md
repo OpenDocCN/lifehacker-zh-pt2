@@ -4,7 +4,7 @@
 
 2010 年，Adobe 推出了 Photoshop 首批真正的“智能”功能之一:一款名为 Content-Aware Fill 的工具，可以智能地移除和替换场景中的对象。今天，Adobe 正在将该工具的一个版本引入其合成软件 After Effects，该软件基本上做同样的事情，但在移动视频剪辑上，却更具挑战性。
 
-Watch
+
 
 Adobe 的摄影和视频软件多年来一直保持如此主导地位的原因之一是该公司在研发方面的大量投资，以及许多从 R&D 的努力中诞生的看似神奇的自动化工具实际上进入了它的软件。诚然，当它最初在 Photoshop CS5 推出时， [内容感知填充很少像在该公司的演示](https://gizmodo.com/photoshops-new-content-aware-fill-has-its-limitations-5517749) 中看起来那样毫不费力或完美无缺。但随着时间的推移，以及 Photoshop 的几个版本，这个工具被完善和改进到了这样一个地步，它的自动更正往往变得无法检测。
 

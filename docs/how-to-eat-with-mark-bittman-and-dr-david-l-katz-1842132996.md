@@ -4,7 +4,7 @@
 
 忘掉旧石器时代、酮式饮食和间歇性禁食——本周，我们将和马克·比特曼以及大卫·l·卡茨博士一起探讨你真正应该如何饮食的真相。他们最新的书叫做 [*如何吃:你所有的食物和饮食问题都回答了*](https://www.amazon.com/How-Eat-Your-Questions-Answered/dp/035812882X?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-eat-with-mark-bittman-and-dr-david-l-katz-1842132996&asc_source=&tag=kinjalifehackerlink-20) ，在这一集里，他们讨论了在我们消费时使用科学和常识的重要性。听他们与爱丽丝和梅利莎谈论最新健康时尚的缺陷以及实际上有助于整体健康的饮食。(剧透警报，我们不能活在持续的酮症中。)
 
-Watch
+
 
 马克是美食界的领军人物，他写了 30 多本关于这个主题的书，包括《纽约时报》畅销书《如何烹饪一切》。卡茨博士是耶鲁大学耶鲁-格里芬预防研究中心的创始主任，也是真正健康倡议的创始人和主席。
 

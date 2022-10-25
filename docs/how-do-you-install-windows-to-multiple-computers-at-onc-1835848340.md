@@ -4,7 +4,7 @@
 
 在本周的 [**Tech 911**](https://lifehacker.com/c/tech-911) 建议专栏中，一位 Lifehacker 读者想要自动化一个 otherwis e 耗时又烦人的过程:安装一个全新的 Windows(大概是， Windows 10)。有什么问题吗？他们不想只在一个系统上安装操作系统。
 
-Watch
+
 
 Lifehacker 读者**比利**写道:
 

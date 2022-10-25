@@ -4,7 +4,7 @@
 
 电子邮件简讯不断涌现，因此我们正在跟进 Lifehacker 的 [2017 年员工简历](https://lifehacker.com/the-lifehacker-staffs-favorite-email-newsletters-1821200598) ，推出新一批我们最喜欢的简讯。以下是 2019 年让我们保持见识和娱乐的内容。
 
-Watch
+
 
 ### **播客制作人米凯拉·赫克**
 

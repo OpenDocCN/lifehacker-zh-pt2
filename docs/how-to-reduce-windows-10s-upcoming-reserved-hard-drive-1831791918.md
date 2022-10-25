@@ -4,7 +4,7 @@
 
 Windows 10 用户可能很快就会注意到他们的硬盘存储有点不同。
 
-Watch
+
 
 从下一次代号为 19H1 的 Windows 10 系统大更新开始，操作系统将分配一部分 PC 硬盘 [作为重要系统更新和临时文件的保留存储](https://blogs.technet.microsoft.com/filecab/2019/01/07/windows-10-and-reserved-storage/) (根据需要定期删除)。到了执行系统更新的时候，操作系统会清理出保留的空间，并用它来存储更新文件。
 

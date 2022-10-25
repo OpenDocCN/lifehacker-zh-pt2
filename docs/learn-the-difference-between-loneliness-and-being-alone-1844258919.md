@@ -4,7 +4,7 @@
 
 在过去的几年里，我们被告知孤独是一种公共健康危机，其危害性不亚于每天吸 15 支烟。传达的信息是，我们是人，是需要人的人，花太多时间独处是一个大问题。哦，但同时，显然 [我们现在都是内向的人](https://thoughtcatalog.com/heidi-priebe/2015/09/why-everyone-and-their-mother-is-now-identifying-as-an-introvert/) ，和别人 [社交是让人疲惫的](https://psychcentral.com/blog/social-exhaustion-avoiding-introvert-burnout/) 。那到底是哪个？原来，两者都可以，因为“孤独”和“独处”是两个完全不同的概念。以下是它们的区别，以及为什么更好地理解每个术语的含义会有所帮助。 
 
-Watch
+
 
 ### 孤独对孤独
 

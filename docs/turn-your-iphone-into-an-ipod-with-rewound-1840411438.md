@@ -4,7 +4,7 @@
 
 **更新时间:2019 年 12 月 16 日上午 10 点 50 分美国东部时间:**在 Rewound 应用成为风靡一时之后， [苹果将其从 iOS 应用商店](https://medium.com/@RewoundApp/apple-killed-rewound-http-rewound-fund-will-bring-it-back-c39a89aeceac) 下架。该应用程序的创建者正在引导粉丝前往 [Rewound.app](http://rewound.app/) 进行未来更新，但截至发稿时，该网站显然已经超载。
 
-Watch
+
 
 以下是周五要做的一件傻事。下载 [倒带](https://apps.apple.com/app/rewound-music-player/id1481219461) ，通过一个老式的点拨轮 iPod 接口收听你的苹果音乐库(流媒体或自有)。
 

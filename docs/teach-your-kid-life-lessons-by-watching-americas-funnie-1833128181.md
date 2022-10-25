@@ -4,7 +4,7 @@
 
 你还记得 [*全美最好笑的视频*](https://abc.go.com/shows/americas-funniest-home-videos) 吧？那个由鲍勃·萨吉特主持的 90 年代自制视频剪辑节目，主要是人摔倒和宠物做奇怪的事情？
 
-Watch
+
 
 你猜怎么着？ [它仍然在美国广播公司](https://abc.go.com/shows/americas-funniest-home-videos) 播出，它一生中有许多主持人(目前是 Alfonso Ribeiro，或者是来自*的 Carlton，Bel-Air 的新鲜王子*)，它仍然以人摔倒和宠物做奇怪的事情为特色。
 

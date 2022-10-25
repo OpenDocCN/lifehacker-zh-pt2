@@ -4,7 +4,7 @@
 
 在我们充满生活的 Craigslist/offer up/Letgo/易贝/Nextdoor- 中，警察局是一个将旧货兑换成现金的热门地点。事实上，许多警察局都推出了 [【安全区】](https://lifehacker.com/kristin-an-extensive-list-of-police-departments-that-1694576467) 专门针对您与当地陌生人的现金交易。
 
-Watch
+
 
 但是 Reddit 用户 [大名 21](https://www.reddit.com/r/LifeProTips/comments/c0q8lk/lpt_if_selling_a_high_priced_item_in_person_and/) 提供了另一个现金交易的好地方:银行。
 

@@ -4,7 +4,7 @@
 
 从给我们带来“ [颅骨粉碎者挑战](https://offspring.lifehacker.com/warn-your-kids-about-this-dangerous-tiktok-challenge-1841892348) 的应用程序来看，我们现在显然有了“苯海拉明挑战”，年轻人服用大量药物来产生幻觉。这一挑战导致至少一名青少年死亡，其他人住院治疗。
 
-Watch
+
 
 作为这一挑战的一部分，一些年轻的抖音使用者相互鼓励服用一打或更多的过敏药丸，以获得快感并产生幻觉。在 7 月份的一篇博文中，沃思堡的 [库克儿童医疗保健系统](https://www.checkupnewsroom.com/tiktok-videos-encourage-viewers-to-overdose-on-benadryl) 表示，该系统治疗了三名服用过量苯那君的青少年:
 

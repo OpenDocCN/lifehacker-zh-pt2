@@ -4,7 +4,7 @@
 
 还记得那次我们都提交了对 Equifax 违约集体诉讼的索赔，期望每人得到 125 美元吗？在得知我们的个人数据可能在 2017 年 1.47 亿个账户的黑客攻击中丢失后，我们理所当然地应该(或者我们认为)获得足够的现金，几乎可以购买一套 AirPods。
 
-Watch
+
 
 首先，我们意识到我们需要沉住气，因为数学并不合理。和解常见问题 的 [细读显示，如果我们重新提交超过 3100 万美元的索赔，赔偿将被“降低并按比例分配”事实上，人们对和解的现金选项反应如此之大，以至于 Equifax 开始](https://lifehacker.com/why-you-might-not-get-125-in-equifax-settlement-money-1836788283) [要求人们证明](https://twocents.lifehacker.com/if-you-asked-for-125-from-the-equifax-settlement-you-1837958230) 他们应该得到 125 美元，而不是要求免费的信用监控。
 

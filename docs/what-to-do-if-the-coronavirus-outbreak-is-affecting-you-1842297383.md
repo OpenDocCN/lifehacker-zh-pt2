@@ -4,7 +4,7 @@
 
 抛开所有关于网飞和社交距离的笑话不谈，冠状病毒的爆发给许多人带来了财务不确定性。从 [依赖小费的工人](https://twocents.lifehacker.com/tip-your-service-workers-especially-generously-right-no-1842265325) 到 [现已取消的节日](https://lifehacker.com/this-website-lists-events-canceled-due-to-coronavirus-c-1842086176) 和贸易展的活动工作人员，有很多情况下你通常可以指望的收入可能无法实现。
 
-Watch
+
 
 如果你幸运的话，这只是个小麻烦。但是，如果它给你带来的压力比不得不勒紧你的钱包几个星期还要大，你可以向一些资源寻求帮助。
 

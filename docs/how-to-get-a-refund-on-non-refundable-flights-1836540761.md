@@ -4,7 +4,7 @@
 
 购买不可退票的机票是一个有风险的提议；如果你的个人情况发生变化，你最终将背负一张无用机票的费用。但是尽管标签上写着“不可退款”票*是可以退款的——在适当的情况下。* 
 
-Watch
+
 
 首先，如果你的航班因任何原因被取消，你有权在退票。如果有任何提前的 change⁠安排——比如出发或到达时间或中途停留时间的变化——你也可能有权退款，尽管这取决于 [航空公司的具体政策](https://thepointsguy.com/2018/01/maximize-airline-schedule-changes/) 。正如[airfare watchdog](https://www.airfarewatchdog.com/blog/17207058/strategies-to-get-a-refund-on-a-non-refundable-airfare/)所写的那样，你还是应该联系航空公司，解释航班不再为你工作。
 

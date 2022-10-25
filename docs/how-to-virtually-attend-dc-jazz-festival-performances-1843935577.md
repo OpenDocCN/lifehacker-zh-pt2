@@ -4,7 +4,7 @@
 
 像今年的许多现场活动一样，DC 爵士音乐节因为新冠肺炎疫情 — 而被推迟，但这并不意味着你不能享受一些世界上最好的爵士音乐家的流畅声音。尽管官方现场活动暂时搁置，但每个周六， [DCJazzFest from Home 系列](https://dcjazzfest.org/dcjazzfest-from-home-series) 都会播放新的音乐会供您观看和聆听。
 
-Watch
+
 
 每周一次的活动在美国东部时间周六晚上 7 点举行，并在 YouTube 频道 的 [DCJF 和他们的](https://www.youtube.com/channel/UCyZcRZ-2HLRq4wnYmb0a9FQ) [脸书页面](https://www.facebook.com/dcjazzfest/) 上进行直播。每个节目要么是以前 JazzFest 表演的从未见过的镜头，要么是 DCJF 艺术家校友的现场直播节目。
 

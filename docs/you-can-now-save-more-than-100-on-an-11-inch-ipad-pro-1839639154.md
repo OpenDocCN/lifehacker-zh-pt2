@@ -4,7 +4,7 @@
 
 尽管已经一岁了，2018 年的 iPad Pro 仍然是苹果平板电脑产品线中的一个坚实的选择。正因为如此，很少看到 iPad Pro 的价格比 800 美元的正常价格低得多，但你现在可以通过亚马逊 以 674 美元的价格在 [买到一台 11 英寸、只有 wifi 功能、64GB 内存的 iPad Pro。(其他型号也有折扣，但远不及 64GB 的 wifi iPad Pro。)](https://www.amazon.com/Apple-iPad-11-inch-Wi-Fi-64GB/dp/B07K344J3N?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/you-can-now-save-more-than-100-on-an-11-inch-ipad-pro-1839639154&asc_source=&tag=kinjalifehackerlink-20) 
 
-Watch
+
 
 我们不确定优惠会持续多长时间，尽管我们假设它不会持续很久，因为苹果产品很少得到像 这样的折扣，而且很容易售罄。如果你想要一个，最好快点行动。当然，黑色星期五和网络星期一距离只有几周，你可以等着看交易是否会再次发生，但这很可能是你在今年剩余时间里看到的最便宜的 iPad Pro。
 

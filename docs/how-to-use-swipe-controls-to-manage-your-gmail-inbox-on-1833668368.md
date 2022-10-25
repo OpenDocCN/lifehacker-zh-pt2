@@ -4,7 +4,7 @@
 
 谷歌宣布滑动手势控制 [即将在 Gmail iOS 开始](https://gsuiteupdates.googleblog.com/2019/03/take-action-faster-with-customizable.html?utm_source=feedburner&utm_medium=feed&utm_campaign=Feed%3A+GoogleAppsUpdates+(G+Suite+Update+Alerts)) [今天](https://gsuiteupdates.googleblog.com/2019/03/take-action-faster-with-customizable.html?utm_source=feedburner&utm_medium=feed&utm_campaign=Feed%3A+GoogleAppsUpdates+(G+Suite+Update+Alerts)) 推出，应该很快就能为所有 iOS Gmail 用户提供。尽管此次更新没有给 Gmail 添加任何新的命令，但它让用户自定义向左或向右“滑动”的动作，从而使快速管理收件箱变得更加容易。
 
-Watch
+
 
 对于大多数人来说，应用内通知应该让你知道新功能可用，并提供一个带你到定制菜单的快速链接，但你也可以通过进入**设置>滑动动作**在 Gmail 的应用内设置中找到它。然后，您可以为左右滑动的指定单独的动作。
 

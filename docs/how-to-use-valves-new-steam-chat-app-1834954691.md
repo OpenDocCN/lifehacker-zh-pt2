@@ -4,7 +4,7 @@
 
 多年来，Steam 主要是一个 PC 游戏的游戏市场，但 Valve 似乎在该平台的社交方面加倍努力，它新推出的 Steam 聊天消息应用程序适用于安卓系统，安卓系统和 iOS 系统。
 
-Watch
+
 
 多年来，Steam Mobile 一直允许用户通过智能手机管理账户和发送消息，而 Steam Chat 则将该平台的消息服务拆分为自己的专用应用。不过，Steam Mobile 不会消失；这两个应用程序将同时存在，Steam Chat 专用于通信，Steam Mobile 涵盖服务的其他部分——如购买游戏、启动远程下载和 Steam Guard 帐户安全。
 

@@ -4,7 +4,7 @@
 
 脸书最近 [发布了 CatchUp](https://npe.fb.com/2020/05/26/introducing-catchup-helping-you-stay-in-touch-with-the-people-you-care-about/) 的早期版本，这是一款纯音频聊天应用，有一个有用的功能:用户可以看到他们的联系人何时有空聊天，并且只需轻轻一点就可以开始对话(或群组通话)。
 
-Watch
+
 
 如果这听起来像没有文本和视频通话的 Facebook Messenger 或 WhatsApp，那是因为它确实如此。这也让我想起了在 Discord 服务器上闲逛，和在线的人聊天——除了 CatchUp 只是为你和保存在你手机上的联系人准备的。
 

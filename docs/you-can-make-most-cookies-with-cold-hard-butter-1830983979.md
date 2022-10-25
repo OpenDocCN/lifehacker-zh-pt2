@@ -4,7 +4,7 @@
 
 此时此刻，世界各地的季节性面包师正在标记饼干食谱，追踪特殊的配料，当他们意识到他们忘记将黄油[留在外面软化时，他们感到恐慌。欢迎来到饼干交换季。](https://lifehacker.com/salted-butter-has-always-been-the-secret-to-better-cook-1822776571)
 
-Watch
+
 
 完全披露:我绝对讨厌做饼干。 [馅饼皮](https://skillet.lifehacker.com/for-better-pie-crust-resort-to-violence-1798295233) 、酥饼、 [蛋白酥饼](https://skillet.lifehacker.com/brighten-up-your-thanksgiving-dessert-spread-with-a-cra-1830539135) 、 [奶油蛋卷](https://skillet.lifehacker.com/how-to-make-perfect-lemon-curd-in-the-microwave-1826812427) ，甚至焦糖相比之下都是小菜一碟，因为饼干需要的耐心和精确度比我有兴趣花费的还要多。我最讨厌所有的等待——等待黄油变软，等待面团冷却一夜，等待面团变热到可以舀起来或卷起来，等等。令人惊讶的是，当谈到饼干时，完全跳过软化步骤不仅仅是一条捷径；这实际上让一切都变得容易多了。
 

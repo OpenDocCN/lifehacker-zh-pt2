@@ -4,7 +4,7 @@
 
 先锋集团(Vanguard Group)创始人、个人投资者指数共同基金(index mutual fund)创始人约翰·c·博格尔(John C. Bogle)于周三去世。 [他 89 岁](https://www.nytimes.com/2019/01/16/obituaries/john-bogle-vanguard-dead.html) 。
 
-Watch
+
 
 很难想出在金融界还有谁比博格尔(通常指杰克)对普通人的影响更大；指数基金和他的静观其变、不动你的钱的哲学 Two Cents 采用的原则——让像你我这样的普通投资者积累了财富，避免了被金融业欺骗。他真的把数十亿美元放回了普通投资者的口袋。正如《纽约时报》[罗恩·利伯](https://twitter.com/ronlieber/status/1085662570898485249) 所说，“我们这么多人因为他而多了多少钱？他的记忆是一种祝福。”
 

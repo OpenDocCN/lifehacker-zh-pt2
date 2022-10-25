@@ -4,7 +4,7 @@
 
 我们最终都会死，但你现在就要死了吗？问问专业人士也无妨。
 
-Watch
+
 
 美国东部时间下午 1 点，我们将邀请医学博士克里斯多佛·凯利和医学博士马克·艾森伯格——[*的作者——我要死了吗？！:针对您的症状的完整指南—以及下一步该做什么*](https://aax-us-east.amazon-adsystem.com/x/c/QmQfmNVipNEBorebclh3QzYAAAFo3TkHAAEAAAFKATNGbyA/https://www.amazon.com/Am-Dying-Complete-Guide-Symptoms/dp/0062847600/ref=sr_1_1?creativeASIN=0062847600&linkCode=w61&imprToken=kq5MPSzeLXysoFUj6kQIYw&slotNum=0&ascsubtag=cdf232f2ac4e046ed82a93316a2e857815d8a6b0&ie=UTF8&keywords=am%20i%20dying&qid=1546879087&sr=8-1&tag=lifehackeramzn-20) *—* 再次随叫随到，回答您的所有健康问题。(如果你遇到真正紧急的健康状况，请拨打 911。)
 

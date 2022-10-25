@@ -4,7 +4,7 @@
 
 大力水手路易斯安那厨房仍然在去年发布的令人难以置信的受欢迎的鸡肉三明治的浪潮中设法抓住了我们的注意力。他们最近将 [更名为](https://www.adweek.com/brand-marketing/popeyes-unveils-refreshed-logo-and-new-restaurant-design/) ，并在新冠肺炎疫情爆发之初通过他们的 app 开始提供 [免费送货，包括向](https://www.qsrweb.com/articles/burger-king-popeyes-tim-hortons-company-ceo-lays-out-covid-19-response/) [【无饥饿儿童】](https://www.nokidhungry.org/) 捐款。
 
-Watch
+
 
 最重要的是，在冠状病毒隔离期间，他们现在标志性的鸡肉三明治已经成为这个国家最受欢迎的快餐 。还有一件奇怪的事情，他们 [“向 1000 人泄露了他们的网飞密码”](https://www.fastcompany.com/90481469/popeyes-gives-away-netflix-passwords-in-tone-deaf-campaign-during-coronavirus-crisis) 。无论如何，大力水手继续把他们的炸鸡放在第一位。
 

@@ -4,7 +4,7 @@
 
 尽管许多人最初是通过克里斯蒂安·库珀的视频 [认识他的，这个视频现在已经广为流传，是一个女人在他在中央公园观鸟时报警的](https://www.facebook.com/671885228/posts/10158742137255229/?d=n) ，但多年来，他已经成为观鸟社区 的常客。2020 年 5 月 25 日的种族主义对抗不仅制造了新闻，而且还促使 [更多的人尝试观鸟](https://lifehacker.com/get-started-birdwatching-with-this-free-app-1844106484) (特别是因为这通常是一个对疫情友好的活动)。今天，库珀将在#BirdingWhileBlack 上主持一场直播会议，以及中央公园的虚拟游览和观鸟会议。以下是参加方式。 
 
-Watch
+
 
 ### #BirdingWhileBlack 研讨会
 

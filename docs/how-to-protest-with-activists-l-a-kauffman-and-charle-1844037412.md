@@ -4,7 +4,7 @@
 
 当涉及到抗议时，我们有什么权利？在这个疫情期间，我们如何安全有效地抗议？本周，在活动家 L.A 考夫曼和夏琳·卡鲁泽斯的帮助下，我们回答了这些问题以及更多问题。L.A .是一位经验丰富的基层组织者，在政治活动中有超过 35 年的经验，并已就此主题写了两本书，包括她的最新作品 [*如何阅读抗议:组织和抵抗的艺术*](https://www.amazon.com/How-Read-Protest-Organizing-Resistance/dp/0520301528?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-protest-with-activists-l-a-kauffman-and-charle-1844037412&asc_source=&tag=kinjalifehackerlink-20) ***。*** 夏琳是 [黑人青年计划 100](https://www.byp100.org/) 的创始国家主任，现在是 [争取黑人生命运动](https://m4bl.org/) (M4BL)的一部分。她还是《毫无歉意:激进运动的黑人、同性恋和女权主义者的使命 的作者。
 
-Watch
+
 
 我们还采访了布鲁克林辩护服务 的高级律师 Maryanne Kaishian，了解我们的权利，以及在被捕时如何合法保护自己。
 

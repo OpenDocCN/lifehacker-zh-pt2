@@ -4,7 +4,7 @@
 
 不锈钢锅是厨房的主要工具，但是它们的学习曲线非常小，尤其是在烤焦食物而不粘锅的时候。在加入油之前让锅变热是关键，但是通过视觉来确定某物的温度不是大多数人所拥有的技能。
 
-Watch
+
 
 幸运的是，有一个非常简单的方法来判断你的锅是否足够热，不需要任何花哨的小工具——你只需要一点水。虽然不锈钢看起来不像在移动，但它会随着温度的变化而膨胀和收缩，根据 [食品网](https://www.foodnetwork.com/how-to/packages/help-around-the-kitchen/photos/solutions-for-common-issues-with-stainless-steel-cookware) 的说法，在添加油之前适当加热会产生暂时“静止”的不粘表面。
 

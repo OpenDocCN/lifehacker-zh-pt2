@@ -4,7 +4,7 @@
 
 六月将为平台带来五部亚马逊原创系列电影和两部亚马逊原创电影，这些电影都将免费为现有的 Prime 会员提供流媒体或下载。
 
-Watch
+
 
 6 月 4 日，随着《追逐幸福》的发行，这个月开始了，这是乔纳斯兄弟从一个努力维持生计的家庭到流行巨星的个人经历。本月晚些时候，亚马逊原创电影《S3 创意银河》(Creative Galaxy America)、《缺席的 S2》(Absentia America)、《亚德尔》(Yardle)、《S3 文献》(Documental America)、《S1 的最后生活》(Final Life)和《东京爱丽丝》(Tokyo Alice)也将上映。
 

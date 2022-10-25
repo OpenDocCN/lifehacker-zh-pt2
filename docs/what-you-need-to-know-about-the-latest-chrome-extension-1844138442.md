@@ -4,7 +4,7 @@
 
 网络安全公司 Awake Security 最近揭露了一个大规模的秘密监控网络。这已经足够严重了，你应该再一次再三检查你的 Chrome 浏览器中没有使用可疑的扩展。
 
-Watch
+
 
 [Awake Security 发现](https://awakesecurity.com/blog/the-internets-new-arms-dealers-malicious-domain-registrars/)GalComm 公司拥有的超过 60%的网络域名正在托管恶意软件和间谍工具，被至少 111 个 Chrome 扩展使用，这些扩展已经被下载了超过 3200 万次——这还只是*计算 Chrome 网络商店中列出的那些。通过这些浏览器扩展，GalComm 访问了数百万个人和公司网络，收集了大量数据，并使用复杂的规避方法来避免检测，尽管操作的规模很大。*
 

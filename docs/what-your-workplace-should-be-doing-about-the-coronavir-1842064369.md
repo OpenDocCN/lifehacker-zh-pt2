@@ -4,7 +4,7 @@
 
 我们知道个人应该如何保护自己免受新冠肺炎病毒的侵害:如果生病了，主要是通过洗手和呆在家里。但是工作场所在这方面有更多的责任，因为它们可能是病毒传播的地方。
 
-Watch
+
 
 疾病预防控制中心有 [建议](https://www.cdc.gov/coronavirus/2019-ncov/specific-groups/guidance-business-response.html) 企业应该采取哪些具体行动来保证员工的安全。如果你的公司是一家 [航空公司](https://www.cdc.gov/quarantine/air/managing-sick-travelers/ncov-airlines.html) 、一家 [学校](https://www.cdc.gov/coronavirus/2019-ncov/specific-groups/guidance-for-schools.html) ，或者一家 [医疗机构](https://www.cdc.gov/coronavirus/2019-ncov/healthcare-facilities/guidance-hcf.html) ，我们会为你单独推荐这些公司。但让我们来看看所有雇主都应该做的基本事情:
 

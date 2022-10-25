@@ -4,7 +4,7 @@
 
 默认情况下，Windows Defender 中的一个重要安全功能被禁用:勒索病毒防护。这令人惊讶，因为 [勒索软件是一个严重的威胁](https://lifehacker.com/a-crash-course-in-ransomware-and-how-to-protect-yoursel-1783372708) 它锁定你的设备，阻止你访问你的数据，直到你付钱给攻击者。当你考虑到勒索软件保护早在 2017 年 10 月的 Windows 10 更新中就已添加，这就更令人惊讶了。
 
-Watch
+
 
 对于为什么勒索病毒防护被默认禁用， [正如 gHacks，](https://www.ghacks.net/2017/10/24/configure-controlled-folder-access-in-windows-10/) 所指出的，最好的解释是该功能可能容易出现误报。这是一个合理的担忧，但鉴于勒索软件攻击的破坏性，我们同情那些急于保护自己数据的人。
 

@@ -4,7 +4,7 @@
 
 世界卫生组织今天召开会议， [宣布](https://www.who.int/dg/speeches/detail/ihr-emergency-committee-on-novel-coronavirus-(2019-ncov)) 来自武汉的冠状病毒(2019-nCoV)为国际关注的突发公共卫生事件，简称 PHEIC。
 
-Watch
+
 
 这并不意味着我们都将死去，或者疾病已经失控。相反，这意味着病毒正在跨越国际边界，这需要各国共同努力，防止情况进一步恶化。
 

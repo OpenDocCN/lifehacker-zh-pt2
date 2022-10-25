@@ -4,7 +4,7 @@
 
 在 Mac 上运行 Windows 要比在 Windows 机器上运行 macOS 容易得多，但这并不意味着这种疯狂的混合环境总是完美的。微软最近发布了一个公告，解释了为什么如果你试图在 Boot Camp 版本的操作系统上更新到 Windows 10 (1903)的最新版本 [时可能会遇到一些问题。](http://Editor-in-Chief for Cloud)
 
-Watch
+
 
 简短的回答？你的 Mac 真的很旧了。正如微软所描述的:
 

@@ -4,7 +4,7 @@
 
 如果你或者你的孩子想知道野生环境中的狼、鲨鱼或老虎到底有多大，谷歌有办法把它们的 3D 动画图像带进你的家。你所需要的只是一点好奇心，一个浏览器和一个 [ARCore 或 ARKit-ready iPhone 或安卓手机](https://www.howtogeek.com/348445/what-are-the-arcore-and-arkit-augmented-reality-frameworks/) 。
 
-Watch
+
 
 当扎克·克莱恩在推特 上发布说*他*在谷歌搜索“狼有多大？”时，我们偶然发现了这个功能为了他五岁的儿子。
 

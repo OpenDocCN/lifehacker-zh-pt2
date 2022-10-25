@@ -4,7 +4,7 @@
 
 感觉就像每天，我看到另一个人意识到他们在网上的隐私是多么少，然后说“够了”对我们与科技公司的关系感到不安，他们是 [退出脸书](https://lifehacker.com/how-to-delete-your-facebook-account-a-checklist-1829436824) 和 Twitter， [避开亚马逊，](https://lifehacker.com/how-to-stop-giving-amazon-your-money-1823468097) 和 [放弃谷歌。](https://lifehacker.com/the-comprehensive-guide-to-quitting-google-1830001964#_ga=2.114842702.87543563.1543241483-3846207152.1521480874)
 
-Watch
+
 
 成立 10 年的网络隐私公司 DuckDuckGo 提供了谷歌搜索之外的无追踪器选择，以及网络浏览工具，最大限度地减少了网络上追踪你的网站和公司的数量。
 

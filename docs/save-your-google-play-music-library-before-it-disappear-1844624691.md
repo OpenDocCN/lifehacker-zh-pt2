@@ -4,7 +4,7 @@
 
 到 2020 年底，Google Play Music 将加入不断增长的谷歌死亡产品名单。如果你曾经使用该服务存储过音乐——这是它最好的功能之一——你现在需要备份或传输你的歌曲，因为它们将在几个月后全部消失。
 
-Watch
+
 
 如果你愿意，你可以继续使用谷歌音乐几周，但谷歌将很快开始移除其功能。例如， [根据谷歌的时间表](https://blog.youtube/news-and-events/youtube-music-will-replace-google-play-music-end-2020/) ，从 8 月下旬开始，你将无法再购买新音乐。
 

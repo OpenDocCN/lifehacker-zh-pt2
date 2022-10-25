@@ -4,7 +4,7 @@
 
 [口袋](https://getpocket.com/) ，领先的保存文章稍后阅读的 app， [有了新的声音](https://venturebeat.com/2018/10/11/pocket-taps-amazon-polly-to-let-you-listen-to-articles-just-like-podcasts/) ，亚马逊波利的声音。这已经足够好了，你可能真的想用它。不适合小说或诗歌或任何依赖于音调的东西。但是波利非常自然，你可以用一两句话忘记你在听一个机器人说话。这足以让大多数文章，甚至一些个人文章，在文本到语音转换上可以忍受。
 
-Watch
+
 
 Polly 比 Instapaper 的语音好很多，也比 iOS 的 VoiceOver 好(目前 Kindle iOS 应用上唯一的文本到语音转换选项)。Instapaper 的声音听起来像一个旧时代的机器人，即使是最干燥的文本也太分散注意力了。画外音听起来更像一个人，但一个仍在学习阅读的人。听这两个，我不能注意实际的材料。
 

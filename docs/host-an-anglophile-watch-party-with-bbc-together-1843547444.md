@@ -4,7 +4,7 @@
 
 BBC 正在测试一个新的 [BBC Together](https://www.bbc.co.uk/taster/pilots/bbc-together) 工具，可以让多个用户同时观看相同的 BBC 内容。你正在观看的任何内容都将被同步到“主机”用户的流，因此每个人都将同时看到相同的内容，而不需要 [第三方应用程序或浏览器扩展](https://lifehacker.com/watch-shows-on-hulu-disney-and-more-with-your-friends-1842924419)——你所要做的就是使用 BBC 一起创建一个特殊的链接，并与你的联系人分享。
 
-Watch
+
 
 该服务可让您通过多个联系人观看来自各种 BBC 平台的内容，包括:
 

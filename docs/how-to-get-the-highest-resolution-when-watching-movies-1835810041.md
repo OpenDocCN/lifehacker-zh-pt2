@@ -4,7 +4,7 @@
 
 我一直希望有一天苹果会看看它的 Windows iTunes 客户端。我意识到苹果可能会优先考虑“在苹果公园擦掉窗户上的虫子”和“ [为披萨设计一个新盒子](https://gizmodo.com/the-most-interesting-part-of-apples-new-5-billion-camp-1795253637) ”之间的事情，但这并不意味着我们 windows 粉丝不能做梦。
 
-Watch
+
 
 现在，iTunes 一团糟。使用起来很不愉快，它的 UI 感觉很平淡，它的设置很混乱。这一点在你试图观看一部简单的电影时表现得最为明显。我的意思是。
 

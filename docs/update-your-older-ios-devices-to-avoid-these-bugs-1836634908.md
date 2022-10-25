@@ -4,7 +4,7 @@
 
 保持你的 iPhone 和 iPad 的软件更新至至日期是很重要的——即使你仍然使用的旧设备不符合即将到来的 [iOS/iPadOS 13](https://lifehacker.com/how-to-enroll-in-the-ios-13-macos-catalina-and-ipados-1835814672) 的条件。事实上，有时是苹果硬件产品线中的老款手机和平板电脑看到了最关键的更新。
 
-Watch
+
 
 苹果最近提醒用户，2012 年或更早推出的 iPhone 和 iPad 型号 [需要在 11 月 3 日](https://support.apple.com/en-ca/HT210239#version) 之前更新，以避免“GPS 时间翻转”问题，该问题可能会破坏你设备的位置跟踪和日期/时间功能。这些漏洞还可能影响众多应用和服务，例如将数据同步到 iCloud 或获取最新的电子邮件。
 

@@ -4,7 +4,7 @@
 
 你好，欢迎回到 [*会砂锅吗？*](https://skillet.lifehacker.com/you-deserve-a-hot-and-cheesy-pierogi-casserole-1819722125?rev=1508528101066#) ，我把你的美味概念重新想象成砂锅造物的专栏。我们已经有一段时间没有一起做砂锅菜了，这种豌豆汤的情况真的是回归了。
 
-Watch
+
 
 把汤做成砂锅菜其实很简单:你只需要去掉一些汤汁，然后——嘣——你就有馅料了。我选择了经典的豌豆片，在豌豆中添加了火腿、胡萝卜和大量的洋葱和大蒜。对于浇头，我很想用面包(我喜欢面包)，但在最后一刻改变了路线，选择了土豆泥浇头，给了它主要的牧羊人馅饼的感觉。在 [一位聪明的评论员](https://skillet.lifehacker.com/1831775960) 的建议下，我吃完了这道香脆的洋葱，这让我很兴奋，因为 [我喜欢那些东西](https://skillet.lifehacker.com/you-need-crispy-fried-onions-year-round-1833037023) 。要自己制作，您需要:
 

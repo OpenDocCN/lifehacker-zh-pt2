@@ -4,7 +4,7 @@
 
 感觉很多人都不会放弃他们昂贵的摄像机门铃，不管 Ring 做什么——要么是因为他们花了很多钱买了一个，而且他们很固执，要么是他们不想花更多时间摆弄螺丝刀和电线来安装其他东西。
 
-Watch
+
 
 那很好。我们都会在生活中做出决定，不管是好是坏。但如果你坚持使用你的戒指设备，你绝对应该看看该公司刚刚在其 [Android](https://play.google.com/store/apps/details?id=com.ringapp&hl=en_US) 和 [iOS](https://apps.apple.com/us/app/ring-always-home/id926252661) 应用中首次亮相的新控制中心。
 

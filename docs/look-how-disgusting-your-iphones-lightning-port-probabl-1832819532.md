@@ -4,7 +4,7 @@
 
 大约六个月前，我真的开始害怕我会很快买一部新手机。过去三年我一直放在口袋里和手上的 [iPhone](https://gizmodo.com/its-2018-and-the-iphone-is-still-super-annoying-1831096584) 7 开始出现充电问题，我再也不能使用我的[Lightning connector](https://gizmodo.com/apples-lightning-port-kingdom-is-crumbling-1830101905)耳机了。这真的让我很生气。
 
-Watch
+
 
 我绝对不想花 1000 美元买一部新手机。即使我想，我也讨厌最新的 iphone、的大尺寸，并且仍然无法忘记苹果将所有东西都放进一个单独的闪电端口——即使三年后。
 

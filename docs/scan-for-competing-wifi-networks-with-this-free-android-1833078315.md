@@ -4,7 +4,7 @@
 
 **Android / iOS:** 一位生活黑客读者在最近的一篇 Tech 911 帖子中提醒我存在 Ubiquiti 的 WiFiman 应用程序——谢谢， [里克](https://lifehacker.com/1832831554) ！—如果你是一名[**Android**](https://play.google.com/store/apps/details?id=com.ubnt.usurvey&hl=en_US)用户，我全心全意地推荐它。该应用也适用于[**iOS**](https://itunes.apple.com/us/app/ubiquiti-wifiman/id1385561119?mt=8)，它有一些有趣的功能，但对于了解更多关于减缓连接速度的 wifi 拥塞的信息来说，它远没有那么有用。
 
-Watch
+
 
 首先，也是最重要的，这款应用是免费的。而且在安卓上功能齐全。安装它，接受一个许可，你将立即跳转到你的设备在你周围地区可以找到的所有 wifi 网络列表。您将看到它们的 SSIDs，包括您的邻居正在破坏的任何隐藏网络，以及它们的信号强度，以及它们是开放的还是安全的。
 

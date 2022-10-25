@@ -4,7 +4,7 @@
 
 Vizio 的 SmartCast 电视以其集成的 Chromecast 支持而闻名，这使得它对 Android 用户来说很容易销售。现在，许多 Vizio 智能电视也有资格进行 SmartCast 3.0 升级，这将带来 AirPlay 2 和 HomeKit 支持——向 iOS 和 Mac 用户传播一些爱。
 
-Watch
+
 
 AirPlay 2 允许用户 [将本地内容从他们的苹果移动设备和苹果电脑](https://lifehacker.com/how-to-stream-music-via-airplay-2-on-your-old-school-ai-1828689478) 流式传输到他们的电视屏幕上，包括多房间流式传输(如果你有不止一个兼容设备)。HomeKit 可以让你 [用 Siri 或者用你的 iPhone 或 iPad 作为遥控器来控制你的智能电视和其他智能设备](https://lifehacker.com/how-to-control-unapproved-smart-home-gadgets-with-apple-1820775984) ，你还可以通过 iOS 或 macOS [Home](https://www.apple.com/ios/home/) 应用程序将你的 SmartCast 电视集成到你的家庭自动化例程中。
 

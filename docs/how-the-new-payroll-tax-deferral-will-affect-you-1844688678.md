@@ -4,7 +4,7 @@
 
 随着国会继续讨论下一个刺激计划，唐纳德·特朗普总统周六签署了四项行政命令 ，成为头条新闻。其中一个命令，一份关于 [工资税延期](https://www.whitehouse.gov/presidential-actions/memorandum-deferring-payroll-tax-obligations-light-ongoing-covid-19-disaster/) 的备忘录，让许多雇主对它将如何运作以及它将对他们的员工产生的影响大惑不解。
 
-Watch
+
 
 备忘录命令财政部长从 2020 年 9 月 1 日至 12 月 31 日停止征收员工的社会保障税份额——占其收入的 6.2%。通常情况下，公司通过从员工的每份薪水中扣缴员工的份额，与员工分摊 12.4%的社会保障税和 2.9%的医疗保险税(T2 税和 T3 税)，也被称为工资税。
 

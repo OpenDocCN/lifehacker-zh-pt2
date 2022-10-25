@@ -4,7 +4,7 @@
 
 亚马逊 Prime 的最佳福利之一是每月通过 Twitch . TVTwitch Prime "服务轮流选择免费游戏。更好的是， Amazon now 有一个新的 Amazon Games launcher，这使得在 PC 上申请、下载和玩这些游戏变得更加容易，但是如果你不知道去哪里找，首先安装应用程序是一件麻烦的事情。
 
-Watch
+
 
 这里有一个快速指南来安装新的亚马逊游戏启动器，并使用它来玩你已经添加到你的账户中的所有 Twitch Prime 游戏。
 

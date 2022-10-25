@@ -4,7 +4,7 @@
 
 有趣的事实:你的 Alexa 对话片段可能会被成千上万的亚马逊员工听到和阅读。根据 [最近的 r](https://www.bloomberg.com/news/articles/2019-04-10/is-anyone-listening-to-you-on-alexa-a-global-team-reviews-audio)报道，亚马逊拥有一支国际员工团队，他们致力于帮助 Alexa 更好地理解你的许多命令，并开发人工智能与用户互动的新方式。这需要他们听你的 Echo 扬声器和其他 Alexa 设备正在记录的片段。 [听起来出奇的熟悉](https://lifehacker.com/protect-your-privacy-from-your-own-cloud-security-camer-1831684103) 。
 
-Watch
+
 
 不仅真实的人在听你和 Alexa(以及周围的人)说话，而且他们听到的对话正在被亚马逊的员工转录和注释。这些转录然后被用来“教”Alexa AI 识别更多的命令。
 

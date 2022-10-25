@@ -6,7 +6,7 @@
 
 每个人都有关于无线网络的问题，这完全没关系。关于 wifi，你可能还有很多不知道的，即使你已经成功设置了路由器，现在正坐在那里，在你的笔记本电脑、台式机、智能手机或平板电脑上浏览 Lifehacker。
 
-Watch
+
 
 在这个 [**Tech 911**](https://lifehacker.com/c/tech-911) 建议专栏中，我之前已经讨论过一些更大的问题，如果你想在家里获得最快的连接，你需要了解这些问题，包括你应该使用哪个 [无线频段](https://lifehacker.com/which-wifi-band-should-i-use-for-my-devices-1832635625) 来获得最佳连接，以及你的 wifi 网络应该使用哪个 [无线信道](https://lifehacker.com/which-wifi-channels-should-i-use-for-my-wireless-networ-1832788063) 。这些都是相当复杂的话题，但这并不意味着我们应该忽视基础。
 

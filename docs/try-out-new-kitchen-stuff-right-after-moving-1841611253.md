@@ -4,7 +4,7 @@
 
 每一次搬家最糟糕的部分是试图像一个正常人一样生活在之间满是盒子的门槛空间里。但是，事实证明，这段恼人的时间恰恰有一个好处:它提供了投资新炊具的绝佳机会，因为你别无选择，只能每天使用它。
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Try Out New Kitchen Stuff Right After Moving](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-best-way-to-pack-a-moving-box-1838011535)</aside>
 

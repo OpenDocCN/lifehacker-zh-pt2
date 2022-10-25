@@ -4,7 +4,7 @@
 
 *这一周，*外卖的*彭凯将* [*烹饪从安东尼·鲍代恩的*](https://thetakeout.com/anthony-bourdain-les-halles-cookbook-french-onion-soup-1833361381) Les Halles 烹饪书*[*写他的经历*](https://thetakeout.com/anthony-bourdain-les-halles-cookbook-boeuf-bourguignon-1833392149) *。**
 
-Watch
+
 
 * * *
 

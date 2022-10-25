@@ -4,7 +4,7 @@
 
 重新加热剩余的意大利面可能会很棘手。用一点水泼它可以帮助放松，但是如果你真的想让一团僵硬、干燥的面条复活，你需要节省一点煮面条的水。
 
-Watch
+
 
 这个提示，来自 [美食 52](https://food52.com/blog/24578-cooking-hack-reheat-leftover-pasta) ，很有道理。就像淀粉液体可以用来制作 [奶油酱](https://lifehacker.com/how-to-make-creamy-pasta-dishes-without-any-dairy-1823434878) (没有任何奶油)，它可以通过提供水分和帮助一切重新乳化，为一堆悲伤的面条注入新的生命。
 

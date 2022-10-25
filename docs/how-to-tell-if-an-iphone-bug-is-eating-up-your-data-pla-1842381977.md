@@ -4,7 +4,7 @@
 
 一个奇怪的 iOS 漏洞正在吞噬移动数据，并导致 iPhone 用户每月账单飙升。您可能不会受到影响，但是值得检查一下(以防万一)。
 
-Watch
+
 
 所有运行 iOS 13 的 iPhone 机型都报告了这个问题，它几乎影响了所有主要的手机供应商。一些用户只看到几千字节的数据计划受到影响，而其他 [报告称](https://www.forbes.com/sites/gordonkelly/2020/03/16/apple-ios-13-iphone-cellular-data-problem-iphone-11-pro-max-u-iphone-xs-max-xr-update/#184f68844f74) 因该漏洞丢失了几千兆字节的数据。无论哪种方式，这是吃掉你的数据计划；即使你使用的是无限套餐，如果你的手机变成了一只大肥猪，你也可能会受到服务节流的影响。
 

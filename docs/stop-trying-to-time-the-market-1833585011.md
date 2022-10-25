@@ -4,7 +4,7 @@
 
 欢迎回到声明，Lifehacker 的个人理财简讯。有问题吗？发送电子邮件**给 tips@lifehacker.com**或回复此邮件。
 
-Watch
+
 
 如果说投资中有一条真理的话，那就是没人能预测股市。可是...我们坚持尝试。[Money.com 报道](http://money.com/money/5639551/market-timing-2018/) :
 

@@ -4,7 +4,7 @@
 
 iOS: 现在有如此多的任务管理应用，选择一款最适合你的应用本身就是一项任务——你可能会想在待办事项列表中或者，老实说，在一个巨大的电子表格中跟踪它。然而，如果你是一个总是在家里购买杂货的人，你会在 Any.do 的应用程序中发现的一个全新功能可能会将其提升到你的(应用程序)购物清单的首位。
 
-Watch
+
 
 在我展示 Any.do 令人惊叹的新购物清单功能之前，我有一个简短的说明。你现在只能在 any.do 的应用程序的 [iOS](https://itunes.apple.com/us/app/any-do-to-do-list-calendar/id497328576?mt=8) 或 [Android](https://play.google.com/store/apps/details?id=com.anydo&hl=en_US) 版本上找到它。该工具的网络版总有一天会到来， [该公司称](https://blog.any.do/2018/10/shared-grocery-list/) 。
 

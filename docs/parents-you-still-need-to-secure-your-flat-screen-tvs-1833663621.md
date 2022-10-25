@@ -4,7 +4,7 @@
 
 到现在为止，我们都知道那些老旧、笨重、重得离谱的显像管电视对孩子们构成了多大的威胁。近年来，我们大多数人已经升级到更时尚、更轻便的平板电脑，如果它们倒在一个孩子身上，可能不会那么致命。
 
-Watch
+
 
 但是，《消费者报告》指出的，仅仅因为平板电视*更轻*并不意味着它们*轻。*此外，随着我们升级到平板电视，我们也倾向于变得更大， [作家詹姆斯·威尔科克斯](https://www.consumerreports.org/product-safety/tv-tipovers-still-pose-danger-despite-lighter-flat-screens/) 说:
 

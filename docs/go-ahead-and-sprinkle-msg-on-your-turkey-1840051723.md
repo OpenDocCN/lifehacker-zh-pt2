@@ -4,7 +4,7 @@
 
 火鸡是我最不喜欢吃的鸟，但我永远不会过没有火鸡的感恩节，也不会让别人做火鸡。我就是不能放弃这只温和、愚蠢的鸟。我对肉本身的矛盾心理驱使我去做一只美味的鸟，但我的不敬又驱使我去摆弄它。在鸡皮上撒些味精让我颠覆了人们对普通火鸡的期望，同时也让它尝起来更好。
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Go Ahead and Sprinkle MSG on Your Turkey](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/make-turkey-nuggets-for-a-fast-food-style-thanksgiving-1839719105)</aside>
 

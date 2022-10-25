@@ -4,7 +4,7 @@
 
 急诊室并不总是为了生死攸关的紧急情况:有时你有足够的时间来选择去哪里。(例如，如果你的孩子需要照顾，你应该知道在哪里可以找到最近的 [儿科急诊](https://lifehacker.com/pediatric-emergency-rooms-really-are-better-for-kids-1837909704) 。)
 
-Watch
+
 
 对于其他一切，值得看一看 ProPublica 的 ER Inspector。我们在几年前写了这个工具，当时它是“er 等待监视器”，能够给你一个估计的等待时间，包括旅行时间，所以如果你附近有一个更快的 ER，你不必永远坐在那里。
 

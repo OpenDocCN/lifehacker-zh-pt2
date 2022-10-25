@@ -4,7 +4,7 @@
 
 乡村音乐学院奖目前延期至 9 月 16 日；然而，今晚 ACM 将推出一个两小时的现场特别节目来代替一年一度的颁奖晚会，该节目展示了如果颁奖晚会真的举行的话，一些可能会发生的表演。
 
-Watch
+
 
 由盖尔·金主持，今晚的演出阵容预计将包括凯莉·安德伍德、米兰达·兰伯特、凯斯·厄本、布莱克·谢尔顿和格温·史蒂芬妮、 [凯恩·布朗](https://www.countryliving.com/life/entertainment/a29501383/kane-brown-kenny-dixon-tribute/) 、约翰·传奇、凯尔西·巴勒里尼、德克斯·本特利、卢克·布莱恩、埃里克·丘奇、卢克·库姆斯、谢乐尔·克劳、佛罗里达·乔治亚线、战前女神、 [【小镇风云】](https://www.countryliving.com/life/entertainment/a21085357/little-big-town-karen-fairchild-jimi-westbrook-married/) 、蒂姆·麦格劳、 [布拉德·佩斯利](https://www.countryliving.com/life/entertainment/a31819971/brad-paisley-virtual-concert-coronavirus/) 和大流士·拉克、 [托马斯·瑞德](https://www.countryliving.com/life/entertainment/a31992854/thomas-rhett-new-song-coronavirus/)
 

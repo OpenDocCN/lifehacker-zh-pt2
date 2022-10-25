@@ -4,7 +4,7 @@
 
 如果你正在寻找新的读物，漫威正在通过漫威无限应用 为 iOS 和 Android 提供 12 部漫画免费下载 [。](https://apps.apple.com/us/app/marvel-unlimited/id607205403) 
 
-Watch
+
 
 获得漫画不需要你注册服务，免费漫画 [也可以通过亚马逊的 Comnixology 平台](https://redirect.viglink.com/?format=go&jsonp=vglnk_158604343278912&key=b9014669b87be145294606ccea8870ce&libId=k8m8mplc01029lk1000DA83x9ys7x&loc=https%3A%2F%2Fwww.gamespot.com%2Farticles%2Fmarvel-is-giving-away-12-free-comics-to-help-you-p%2F1100-6475613%2F%3Ffbclid%3DIwAR1vlSgvKn2lQ-hhz8GsXf4K9Eah8WNFJ_09oPsJdFFlmD4wFk1e2qLVQXY&v=1&out=https%3A%2F%2Fcomixology.sjv.io%2Fc%2F159047%2F402490%2F7303%3FsubId1%3Dgs-gs11006475613--en%26u%3Dhttps%3A%2F%2Fwww.comixology.com%2FMarvel-Free-Comics%2Fpage%2F23611%26subId3%3Dxid%3Afr1586042295270gbd&ref=https%3A%2F%2Fl.facebook.com%2F&title=Marvel%20Is%20Giving%20Away%2012%20Free%20Comics%20To%20Help%20You%20Pass%20The%20Time%20At%20Home%20-%20GameSpot&txt=secure%20the%20comics%20through%20Amazon%27s%20Comixology%20platform) 获得。
 

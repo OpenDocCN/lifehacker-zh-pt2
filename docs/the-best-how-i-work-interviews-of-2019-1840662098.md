@@ -4,7 +4,7 @@
 
 今年在 [我如何工作](https://lifehacker.com/c/how-i-work) 中，我们采访了学者、喜剧演员、政治家、活动家、记者、企业家、工程师、高管、作家和艺术家，了解他们的职业和工作习惯。这些是我们的最爱。
 
-Watch
+
 
 ### [**理查·盖瑞特，又名英国勋爵**](https://lifehacker.com/im-richard-garriott-aka-lord-british-and-this-is-how-1831177709)T5】
 

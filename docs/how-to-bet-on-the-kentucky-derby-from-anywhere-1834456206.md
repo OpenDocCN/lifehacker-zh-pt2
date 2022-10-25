@@ -4,7 +4,7 @@
 
 我喜欢在重大事件上赌博。无论是 [超级碗期间国歌将持续多长时间](https://lifehacker.com/spice-up-your-super-bowl-party-with-prop-bets-1832305336) 还是 [哪个角色将坐上铁王座](https://lifehacker.com/how-to-bet-on-game-of-thrones-with-your-friends-1834035583) ，对我来说有看头一个事件更令人兴奋如果我有机会赢得什么东西，即使那“赢”只是 5 美元。
 
-Watch
+
 
 我只去过一次丘吉尔园马场，而且不是为了德比。也就是说，尽管我对赛事缺乏了解，我发现自己在比赛间隙去了投注站，在那匹看起来最有希望的小马身上下了一两块钱(或者说是最有名气的，如果我们诚实的话)。
 

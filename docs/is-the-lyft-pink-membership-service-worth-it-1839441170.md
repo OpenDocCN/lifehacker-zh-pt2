@@ -4,7 +4,7 @@
 
 四处逛逛可能会很贵。随着更多的方式出现——打车、租车、滑板车、普通自行车、电动助力自行车——那么，你的无车尝试可能会很快增加一些看起来像汽车付款的东西。
 
-Watch
+
 
 经常搭车的人会做什么？ [当然考虑订阅](https://twocents.lifehacker.com/before-signing-up-for-a-subscription-calculate-the-ann-1838067245) 。这是现代的做法。
 

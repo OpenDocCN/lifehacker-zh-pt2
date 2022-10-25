@@ -4,7 +4,7 @@
 
 苹果光滑的新信用卡开始进入少数几个数字钱包，但 [苹果卡](https://lifehacker.com/the-apple-card-is-an-average-rewards-card-1833550903) 有一个可能会让你惊讶的主要限制:你不能将你的数据导出到金融应用程序。苹果以薄荷为例， [解释](https://support.apple.com/en-us/HT209489) 导出“目前不支持”
 
-Watch
+
 
 根据 [The Verge](https://www.theverge.com/2019/8/6/20756048/apple-card-availability-sign-up-cancel-apr-iphone-goldman-sachs) 的消息，苹果卡目前仅处于预览阶段，只有随机选择的登记在等候名单中的人才能申请该卡。预计八月晚些时候会有更大范围的推广。
 

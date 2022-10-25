@@ -4,7 +4,7 @@
 
 很明显，今天是全国奶酪日。在令人自豪的传统节日中，如[国家墨西哥卷饼日](https://lifehacker.com/where-to-score-deals-today-for-national-burrito-day-1833816979) ，盒子里的杰克选择用每个人最喜欢的礼物来庆祝这一天:免费食物。
 
-Watch
+
 
 盒子里的杰克与 DoorDash 合作，向顾客免费赠送终极芝士汉堡，并且不收送货费。为了享受这一优惠，你只需在 DoorDas h 上下单，并在结账时输入促销代码“SAYCHEESE”。
 

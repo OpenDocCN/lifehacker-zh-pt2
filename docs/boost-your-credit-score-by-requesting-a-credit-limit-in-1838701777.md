@@ -4,7 +4,7 @@
 
 如果你想提高你的信用评分，你需要按时支付所有的债务，保持信用卡的低余额，并等待所有良好的信用记录随着时间的推移慢慢提高你的分数。正确
 
-Watch
+
 
 好吧，正如杂色傻瓜提醒我们的，如果你想快速提高你的信用评分，有一个经常被遗忘的步骤可以采取: [请求增加信用额度](https://www.fool.com/the-ascent/credit-cards/articles/2-3-americans-are-procrastinating-smart-money-move/) 。
 

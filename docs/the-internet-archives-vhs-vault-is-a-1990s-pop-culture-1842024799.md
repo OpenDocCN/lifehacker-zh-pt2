@@ -4,7 +4,7 @@
 
 如果你已经在 YouTube 上看了几个小时甚至几天的童年旧电视片段，那就在你的日历上划掉一些时间，因为你即将失去另一大块成年生活。互联网档案馆——又名 [时光倒流机](https://archive.org/web/)——现在有超过 20，000 段 VHS 录像 可在其网站上免费观看。
 
-Watch
+
 
 虽然 VHS Vault 已经存在了一段时间，但由于一个名为 Vista Group 的组织，它最近增加了许多新视频，自 2020 年初以来，该组织已经上传了数百个新视频， [VICE reported](https://www.vice.com/en_us/article/7kzeg4/archivists-are-uploading-hundreds-of-random-vhs-tapes-to-the-internet) 。
 

@@ -33,4 +33,3 @@ AAdvantage 会员，查看您的电子邮件。
 
 作为 [积分的家伙](https://thepointsguy.com/news/american-airlines-elite-status-giveaway/) 注意，你也可以登录 [AAdvantage 促销网站](https://www.aa.com/aadvantage-program/profile/promotions?anchorLocation=DirectURL&title=yourpromotions) 看看你有没有被选中享受这项福利。更重要的是，你需要知道这次升级不会自动应用到你的账户上。你必须在 8 月 13 日之前报名参加，否则你将一无所获。希望你在万圣节前已经计划好了航班，或者你真的想去的地方。
 
-Watch

@@ -4,7 +4,7 @@
 
 对于准备开始新的一天的[思考你的目标和梦想](https://lifehacker.com/use-these-prompts-if-you-need-help-journaling-1823368749)[利用你的创造力](https://lifehacker.com/why-you-should-keep-a-journal-and-how-to-start-yours-1547057185) 来说，写日志可以是一个很好的练习。但是如果你在写这些东西，你什么时候读你的日记？你有必要吗？
 
-Watch
+
 
 有时当我写日记时，我会对自己说，“以后回想起来会很有趣，”或者“还好我把这些想法留给了后代。”然后我永远，永远，永远不会回去读它。
 

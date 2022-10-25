@@ -4,7 +4,7 @@
 
 谷歌游戏流媒体服务 Stadia 最令人困惑的挫折之一是其严格的控制器要求。Stadia 游戏只能用官方 Stadia 控制器玩，必须通过 USB 连接才能工作——即使是在像 Android 手机这样的便携式设备上。这削弱了这项服务作为便携式游戏服务的生存能力。
 
-Watch
+
 
 谷歌表示，这些要求将会改变，未来将支持其他控制器选项，但多亏了 Reddit 用户 SmashShock ，你不必等待该公司让 Stadia 更容易在你的手机上玩。SmashShock 名副其实的 [TouchStadia](https://github.com/ihatecsv/TouchStadia) 程序可以在 Android 和桌面电脑上实现触摸屏控制，让你完全不用插上控制器就能玩球场游戏。
 

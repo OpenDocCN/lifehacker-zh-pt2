@@ -4,7 +4,7 @@
 
 新版本的 macOS 通常意味着在苹果最新的硬件上有更好的性能，但你在旧 MAC 上的体验——特别是如果你在不受支持的型号 上安装了最新的 MAC OS[——可能会有所不同。](http://dosdude1.com/catalina/)
 
-Watch
+
 
 我们距离苹果肯定会宣布 macOS 10.16 CaliforniaName 还有一周时间，所以我们认为最后看一眼 macOS Catalina 并看看过去一年它是如何对待你的会很好。提醒一下，macOS Catalina [兼容](https://www.apple.com/macos/catalina/) 以下台式机和笔记本电脑:
 

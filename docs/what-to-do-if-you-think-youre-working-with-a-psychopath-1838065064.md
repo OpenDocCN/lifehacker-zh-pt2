@@ -4,7 +4,7 @@
 
 我们都有过不正常的同事，但是如果你怀疑和你一起工作的人实际上是一个精神病患者呢？那你会怎么做？
 
-Watch
+
 
 首先，我们来回顾一下什么是精神病患者。我们有一个关于如何使用罗伯特·黑尔的 20 点清单 来识别精神病患者的 [的详细帖子，但是如果你想要一句话的总结，亚特·马克曼博士，UT-Austin 的心理学和营销学教授、](https://lifehacker.com/heres-what-a-psychopath-actually-is-1830182457) [的作者和教授提供了一个简洁的定义](https://www.fastcompany.com/90402072/what-to-do-if-your-coworker-is-a-psychopath) :
 

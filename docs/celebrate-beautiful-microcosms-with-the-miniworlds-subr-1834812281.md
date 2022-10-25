@@ -4,7 +4,7 @@
 
 Reddit 上的每个分论坛都是一个缩影。与 Twitter 或脸书的混乱不同，subreddit 坚持一种格式或一个主题。它有自己的规则、习俗和笑话。而在 [r/Miniworlds](https://www.reddit.com/r/Miniworlds/) 上，每一个帖子也是一个缩影。每个 r/Miniworlds 帖子都是一个微小场景的照片，看起来像整个世界。有些是构建的，有些是上演的，但我最喜欢的是自然发生的。 [上面那个](https://www.reddit.com/r/Miniworlds/comments/92egzn/a_jungle_covered_tropical_island_no_a_tiny_rock/) 的镜头，比如一个水坑里的石头。以下是 subreddit 上的一些最佳帖子。
 
-Watch
+
 
 [我最喜欢的 r/Miniworlds 帖子](https://www.reddit.com/r/Miniworlds/comments/ablhyw/really_cool/) 是转贴自[r/mildlyin interest](https://www.reddit.com/r/mildlyinteresting/)。redditor SigmaNukem 发布的这张冰冻农田的航拍照片实际上是一个水坑的镜头:
 

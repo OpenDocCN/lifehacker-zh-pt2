@@ -4,7 +4,7 @@
 
 根据联邦贸易委员会的说法，城里有一种新的骗局需要警惕:要求个人信息的电话据称来自社会保障局。但不是 SSA，是骗子。
 
-Watch
+
 
 下面是它的工作原理，根据 [消费者报告](https://www.consumerreports.org/scams-fraud/fake-calls-from-social-security/) :
 

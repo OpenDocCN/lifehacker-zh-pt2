@@ -4,7 +4,7 @@
 
 根据谷歌 Project Zero 团队 9 月底的一份错误报告，Android 上流行的秘密消息应用 Signal 的一个问题允许任何攻击者基本上窃听一个人的设备(通过音频，而不是视频)。
 
-Watch
+
 
 正如项目零 [描述的](https://bugs.chromium.org/p/project-zero/issues/detail?id=1943) :
 

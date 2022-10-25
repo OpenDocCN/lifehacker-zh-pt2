@@ -4,7 +4,7 @@
 
 现在，奥普拉·温弗瑞(Oprah Winfrey)加入了其他讨论种族不公正的声音，她将主持一个为期两天的市政厅会议，名为“我们将何去何从？”6 月 9 日和 10 日播出。该节目将在自己的网络上运行:奥普拉·温弗瑞网络，以及探索频道的其他 18 个美国网络，包括探索频道、HGTV、ID、食品网络和 TLC。
 
-Watch
+
 
 但如果你没有有线电视，也不用担心——市政厅的两个夜晚也将在 [观看自己的](http://watchown.tv/) 和探索家庭应用程序，以及 [自己的 YouTube](https://www.youtube.com/user/OWN) 、 [、脸书](https://www.facebook.com/owntv/) 和 [Instagram](https://www.instagram.com/ownTV/) 频道上免费播放。该节目将在美国东部时间晚上 9 点播出。
 

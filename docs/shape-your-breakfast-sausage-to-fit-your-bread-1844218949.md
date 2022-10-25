@@ -4,7 +4,7 @@
 
 如果你正在做一个 [麦芬式](https://skillet.lifehacker.com/make-an-even-better-egg-mcmuffin-in-five-minutes-1838218899) 早餐三明治，一个圆形香肠馅饼是有意义的。但是假如你想要吐司三明治——w 然后呢？香肠圈会留下未腌制的角，我想这里没有人想以未腌制的角开始他们的一天。(此外，一些预先成型的圆形馅饼非常小，在你的早餐三明治馅料周围留有未腌制的面包边！)
 
-Watch
+
 
 这就是为什么购买松散的早餐香肠(或者 [自己做](https://lifehacker.com/homemade-breakfast-sausage-is-completely-worth-the-effo-1844166843) )然后把肉饼做成适合你的早餐三明治面包的形状是个好主意。你可以为烤面包做香肠方块，为羊角面包做香肠新月形，当然，还可以为你的 DIY 松饼做大香肠圈。做一个长方形的馅饼做一个 [的棕色三明治](https://skillet.lifehacker.com/hash-browns-are-the-new-toast-1834626337) 。做一个薄饼大小的馅饼作为薄饼早餐三明治。弄些香肠肠衣，你可以做足够长的早餐链来填满一个热狗面包。你被你的想象力所限制。
 

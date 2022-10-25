@@ -4,7 +4,7 @@
 
 我们在 Lifehacker 总部写了很多关于预订 Airbnb 房产的麻烦。担心隐藏的摄像头在监视你？T3T5【我们已经报道过了！担心自己订了假房源？我们也报道过(实际上是时代 的 [一小撮](https://lifehacker.com/how-to-identify-scam-listings-on-airbnb-1837486562) [)。](https://lifehacker.com/should-you-book-an-airbnb-that-has-no-reviews-1835805431) 
 
-Watch
+
 
 Airbnb 的问题在于，该平台忽视了对出现在其网站上的至少一些公寓和房东进行彻底审查。因此，骗局被识破了，而(字面上)付钱的是客人——只要问问英国的一对夫妇就知道了，他们爱上了根本不存在的奢华的 Airbnb 房产 ，在这个过程中几乎损失了 12000 美元。
 

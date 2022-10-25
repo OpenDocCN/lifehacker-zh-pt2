@@ -4,7 +4,7 @@
 
 当你准备报税时，你可能想知道哪个软件最适合你。有很多选择，包括像 Credit Karma 这样的新玩家，但许多报税者的首选是 TurboTax。然而，税务软件之王也有一些问题。
 
-Watch
+
 
 报税的肮脏小秘密是国税局已经有了你的信息。它得到的 [表格和你每个纳税季收到的](https://twocents.lifehacker.com/what-to-do-with-all-the-tax-documents-youre-getting-rig-1831988627) 表格一样:你的 W-2、1099、投资信息等。如果你选择了 [标准扣除](https://twocents.lifehacker.com/when-you-should-itemize-your-taxes-1832119045) ，美国国税局有你目前填写的税务文件所需的信息。
 

@@ -4,7 +4,7 @@
 
 正如在今年的[【WWDC】](https://www.buzzfeednews.com/article/buzzfeednews/apple-wwdc-2019-announcements)上宣布的那样，18 年后，苹果终于决定杀死 iTunes，它的 [笨重的](https://www.rollingstone.com/music/music-news/apple-is-finally-killing-itunes-842750/) ，标志性的音乐应用。苹果打算将这项服务拆分成更小的部分——这意味着我们所知的 iTunes 将不复存在。
 
-Watch
+
 
 但是，这对于多年来你每年圣诞节收到的所有未使用的礼品卡意味着什么呢？好吧，iTunes store 不会消失(目前)，所以你仍然可以兑换任何 iTunes 卡，并在商店内向你的帐户添加点数，以购买电影、电视节目、书籍或游戏。
 

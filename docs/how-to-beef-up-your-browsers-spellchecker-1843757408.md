@@ -4,7 +4,7 @@
 
 由于谷歌和微软最近的合作，基于 Chromium 的 Windows 网络浏览器获得了一个全新的拼写检查器。Windows 拼写检查，而不是 [Hunspell](http://hunspell.github.io/) ，现在将帮助你修复你的各种错别字和 [明显的拼写错误](https://www.merriam-webster.com/word-games/spell-it) (特别是 URL 和首字母缩写)，但你可能需要先启用该功能才能利用它。
 
-Watch
+
 
 正如微软 [写的](https://blogs.windows.com/msedgedev/2020/05/28/improved-spellcheck-microsoft-edge-83/) ，这个新的拼写检查器应该会自动在最新版本的**微软 Edge** 中工作——那将是前几天刚刚放弃的版本 83。如果你不想不断质疑你自己的“我在 e 之前”的规则，请打开 Windows Update 并查看是否有可用的东西，以确保你已经更新了你的浏览器。(是的，和大多数浏览器不同，原来的 Edge 是通过 Windows 本身更新的。)
 

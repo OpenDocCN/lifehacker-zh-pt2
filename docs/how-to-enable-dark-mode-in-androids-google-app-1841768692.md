@@ -4,7 +4,7 @@
 
 很快，每个应用程序都将有一个黑暗的模式，因为它看起来比明亮的白色背景更酷。谷歌对其 Android 官方应用程序的最新调整应该会给所有 Android 智能手机上的应用程序带来黑暗模式。但由于我们讨论的是 Android，而且是谷歌的另一次展示，你的结果可能会有所不同。
 
-Watch
+
 
 首先，你需要获得谷歌搜索应用的最新测试版。访问 [该网站](https://play.google.com/apps/testing/com.google.android.googlequicksearchbox) ，注册测试版，然后等待通过 Google Play 接收您的应用程序更新。如果你不耐烦，你可以从[【APK 镜像】](https://www.apkmirror.com/apk/google-inc/google-search/) 下载最新的测试版，但是如果没有必要，最好*避免*在 Android 上下载应用。
 

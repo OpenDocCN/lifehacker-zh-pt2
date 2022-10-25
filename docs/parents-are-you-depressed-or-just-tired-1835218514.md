@@ -4,7 +4,7 @@
 
 做母亲之前，我从不容易抑郁(焦虑是 [更是我的果酱](https://parenting.blogs.nytimes.com/2014/10/23/preparing-to-lose-my-mind-after-giving-birth/?_php=true&_type=blogs&module=BlogPost-Title&_r=0) )。但是自从为人父母以来，我好几次都在想:*我是不是抑郁了？放学后我想回到床上的日子，或者周末，我暗暗希望我的家人离开我，这样我就可以回到自己的房间，睡觉，阅读，通常是独处。* 
 
-Watch
+
 
 那是抑郁症吧？
 

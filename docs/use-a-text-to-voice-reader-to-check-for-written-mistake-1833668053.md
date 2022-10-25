@@ -4,7 +4,7 @@
 
 当你想在求职信或书面材料中给人留下好印象时，你会非常沮丧地发现你在第一句话中漏掉了一个单词。我们的大脑并不总是能捕捉到简单的错误，所以争取一点数字帮助也无妨。
 
-Watch
+
 
 [u/turtles4dayz](https://www.reddit.com/user/turtles4dayz) 在 r/LifeProTips 上建议，任何担心拼写或语法错误的人都应该 [将他们的文本通过文本到语音阅读器](https://www.reddit.com/r/LifeProTips/comments/b6qxcr/lpt_before_you_send_out_a_cover_letter_use_a/) :
 

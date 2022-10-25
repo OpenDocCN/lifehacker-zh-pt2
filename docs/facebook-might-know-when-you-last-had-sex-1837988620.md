@@ -4,7 +4,7 @@
 
 一些时期跟踪应用程序一直在向脸书发送数据， [BuzzFeed 报道](https://www.buzzfeednews.com/article/meghara/period-tracker-apps-facebook-maya-mia-fem) ，包括你做爱的时间，如果你使用应用程序记录的话。他们还分享你记录的其他信息，从详细的医疗数据到你的情绪，再到你正在使用月经应用的事实。
 
-Watch
+
 
 我们知道这一点是因为总部位于英国的 Privacy International [最近在 Android 上测试了几个世界上最受欢迎的时期跟踪应用](https://www.privacyinternational.org/long-read/3196/no-bodys-business-mine-how-menstruations-apps-are-sharing-your-data) ，并公布了他们发现两个应用共享哪些数据的详细信息，这两个应用是 Plackal Tech 的【玛雅】和 Mobapp Development Limited 的 MIA Fem。之前的一份报告发现 Leap Fitness Group 的周期跟踪器；Flo 健康公司生产的月经跟踪器 flo；简单设计有限公司的周期跟踪器；还有 Biowink 的线索期跟踪器。根据该组织的分析，是否与脸书分享详细信息。
 

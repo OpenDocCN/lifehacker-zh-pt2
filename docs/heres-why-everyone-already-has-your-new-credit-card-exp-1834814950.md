@@ -4,7 +4,7 @@
 
 你刚刚收到一张新的信用卡，正好在你的旧信用卡到期之前。这是否意味着你需要赶紧更新你的数十亿定期订阅费？
 
-Watch
+
 
 也许不是。可能有人捷足先登了。而我 [连骗子](https://twocents.lifehacker.com/what-to-do-if-theres-a-data-breach-1826450129) 都不说！一切都很好。
 

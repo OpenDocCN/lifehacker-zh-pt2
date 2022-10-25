@@ -4,7 +4,7 @@
 
 就像 [关闭手机的 GPS](https://lifehacker.com/psa-your-phone-logs-everywhere-you-go-heres-how-to-t-1486085759) 或 [限制你与谷歌](https://lifehacker.com/how-to-automatically-delete-your-google-data-and-why-y-1839614022) 分享的数据一样，人们有权保护数字隐私，但脸书等网站或谷歌照片等应用程序的内置面部识别算法积极反对我们的数字自主权。
 
-Watch
+
 
 虽然有一些方法可以控制你自己的脸何时何地出现在网上——比如对脸书的照片关闭自动面部识别，限制其他用户可以分享的 和 [在](https://help.instagram.com/496738090375985) 中给你加标签，甚至让你的社交媒体源成为私有——但有时你也需要保护其他人的匿名性。
 

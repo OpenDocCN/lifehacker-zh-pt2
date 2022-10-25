@@ -4,7 +4,7 @@
 
 美国人不喜欢请假——即使有人提议，即使有人付钱。当我们真的离开时，我们中的大多数人发现当我们应该“离开”时，很难完全拔掉电源插头。
 
-Watch
+
 
 一项 [Glassdoor 调查](https://www.glassdoor.com/about-us/glassdoor-survey-finds-americans-forfeit-earned-vacationpaid-time/) 发现，美国雇员平均只休了一半的合法假期，三分之二的人在休假时工作，不到四分之一的人会休完所有假期。
 

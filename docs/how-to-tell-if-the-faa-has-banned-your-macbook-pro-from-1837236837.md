@@ -4,7 +4,7 @@
 
 周二，美国联邦航空管理局(Federal Aviation Administration)正式禁止部分 MacBook Pros 乘坐美国航班。几个月前，苹果公司主动召回了一些电池过热引发火灾的笔记本电脑。
 
-Watch
+
 
 8 月 1 日，欧盟航空安全局*也* [警告](https://www.easa.europa.eu/newsroom-and-events/news/safety-precautions-regarding-transport-air-recalled-portable-electronic) 航空公司带着召回的笔记本电脑飞行的风险；本周， [四家国际运营商](https://www.npr.org/2019/08/13/750985881/u-s-air-regulators-ban-macbook-pros-with-recalled-batteries-from-flights) 禁止了那些受影响的 MacBook Pros 在 FAA 的建议后，这个数字可能会增加。正如 [彭博报道](https://www.bloomberg.com/news/articles/2019-08-13/u-s-regulator-bans-recalled-apple-laptops-from-flights) 的那样，美国联邦航空局现已提醒美国航空公司遵守该组织关于一般电池安全的指导方针(包括*而不是*将任何受影响的笔记本电脑藏在货物或随身行李中)。
 

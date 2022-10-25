@@ -4,7 +4,7 @@
 
 一个包含超过 1 . 42 亿米高梅度假村客人的个人信息的数据库在网上出售给 T2。这些数据在暗网上以 2900 美元的价格出售，包括敏感的客人信息，如姓名、电话号码等等——尽管似乎不包括财务信息。
 
-Watch
+
 
 目前还不清楚这个信息是否包括 2019 年类似违规事件中曝光的 1060 万嘉宾的相同数据，还是全部为新信息。也不确定数据库最初是如何获得的。一个俄罗斯黑客网站上的帖子声称，这些信息是从 Night Lion security 的 DataViper 中窃取的——这是一种索引泄露数据的服务，去年 [也遭到了自己的入侵](https://krebsonsecurity.com/2020/07/breached-data-indexer-data-viper-hacked/)——但 Night Lion 创始人 Vinny Troia [告诉 ZDNet](https://www.zdnet.com/article/hacker-breaches-security-firm-in-act-of-revenge/) 该公司的数据库中根本没有米高梅度假村的信息。另一种可能性是，这些信息也是在去年米高梅云服务器最初的漏洞中获得的。
 

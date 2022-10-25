@@ -4,7 +4,7 @@
 
 世界上最著名的水管工( [或者不是](https://kotaku.com/mario-is-officially-no-longer-a-plumber-1799118840) )在 [*纸马里奥:折纸之王*](https://kotaku.com/paper-mario-the-origami-king-the-kotaku-review-1844379684) 中回归二维状态，今天为任天堂 Switch 出。这是任天堂长期运营的前 RPG 系列的最新作品，既坚持公式(桃子需要再次保存)又反对它(战斗系统是独一无二的)。
 
-Watch
+
 
 无论你在期待什么，请记住这一点:你肯定会不止一次地措手不及。这些建议应该可以帮助你避免一路上被弄皱。
 

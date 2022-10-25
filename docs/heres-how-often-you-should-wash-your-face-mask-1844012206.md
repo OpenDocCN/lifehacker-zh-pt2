@@ -4,7 +4,7 @@
 
 自从新冠肺炎疫情事件开始以来——甚至早在[1 月](https://vitals.lifehacker.com/can-a-surgical-mask-protect-you-from-coronavirus-1841311686) 和[2 月](https://vitals.lifehacker.com/quit-buying-coronavirus-masks-you-dont-need-1841521105) 美国的事情真正开始变得糟糕之前——就已经有一些混杂的消息谈到戴着面具的。在 Lifehacker，我们很幸运，我们的高级健康编辑 Beth Skwarecki 一直在关注这个问题，为我们提供了口罩佩戴指南中所有变化的更新。
 
-Watch
+
 
 但是一个不断出现的问题是我们应该多久洗一次布口罩。根据世界卫生组织(世卫组织)最近发布的新信息，我们应该每天至少洗一次口罩。以下是需要了解的内容。
 

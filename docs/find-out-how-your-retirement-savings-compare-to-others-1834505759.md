@@ -4,7 +4,7 @@
 
 你为退休存够钱了吗？对我们大多数人来说，这很难说——但我们可以看看我们的储蓄与同年龄组的其他人相比如何。
 
-Watch
+
 
 [正如 Investopedia 所解释的:](https://www.investopedia.com/ask/answers/101215/what-size-average-retirement-nest-egg.asp)
 

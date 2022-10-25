@@ -4,7 +4,7 @@
 
 除了告诉你如何入侵你的生活，我们 Lifehacker 还喜欢帮助你了解你周围的世界，无论你是在为你电脑的一个模糊功能而困惑，还是在为新闻中的一个重大政治问题而困惑。以下是我们 2018 年的一些最佳解释者。
 
-Watch
+
 
 ### [如何用第 25 修正案](https://lifehacker.com/how-to-remove-an-unfit-president-with-the-25th-amendmen-1828859155) 罢免一个不称职的总统
 

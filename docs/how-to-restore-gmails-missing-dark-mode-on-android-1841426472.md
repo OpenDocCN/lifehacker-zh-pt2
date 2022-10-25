@@ -4,7 +4,7 @@
 
 作为一个拥有 Gmail 地址的 iPhone 用户，我很羡慕所有能够在 Gmail 应用程序中使用黑暗模式的 Android 用户。虽然谷歌*声称*这样神奇的 [可以在 iOS 上使用](https://support.google.com/mail/answer/9460619?co=GENIE.Platform%3DiOS&hl=en-GB) ，但我从未见过这个选项——而且我并不孤单。因此，最近有报道称，Android 上的 Gmail 应用程序在某些情况下出现并消失了黑暗模式，这让我有点幸灾乐祸。
 
-Watch
+
 
 别担心，Android 用户:这似乎不是一个永久的变化，只是一个错误。不过，这无疑是一个不和谐且恼人的问题；无论你为 Android 选择什么系统主题，轻量级主题都会在 Gmail 中持续存在。
 

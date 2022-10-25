@@ -4,7 +4,7 @@
 
 随着大学生返校，许多人正准备应对校园关闭的可能性。一些学校——如北卡罗来纳大学教堂山分校 和 [密歇根州立大学](https://www.lansingstatejournal.com/story/news/2020/08/18/michigan-state-moves-undergraduate-classes-online-only-start-new-year/3394257001/)——已经将秋季课程转移到网上。这些变化让学生们想知道如何拿回他们的钱——事实证明，退款可能不容易。
 
-Watch
+
 
 [据市场报道](https://www.marketplace.org/2020/08/19/university-moves-classes-online-dont-expect-tuition-refund-covid19/) ，不幸的是，全国没有统一的大学学费返还政策。一些大学可能有严格的不退款政策——而另一些可能提供部分退款或未来的学费代金券。
 

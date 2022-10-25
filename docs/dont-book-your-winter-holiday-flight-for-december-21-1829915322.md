@@ -4,7 +4,7 @@
 
 根据旅游应用程序 [Hopper](https://www.hopper.com/) 的说法，如果你在圣诞节前后旅行，还没有预订机票，你还有几周时间来争取最划算的价格。
 
-Watch
+
 
 虽然寒假预订的理想时间是上周，但霍普告诉《纽约时报》[](https://www.nytimes.com/2018/10/10/travel/when-to-book-holiday-travel-flights.html)*如果你还没有最终确定你的计划，你应该尽快去做，你可能还能得到一笔不错的交易。"如果你需要给自己设定一个截止日期，那就在出发前至少两周设定。"*
 

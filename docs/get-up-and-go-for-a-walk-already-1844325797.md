@@ -4,7 +4,7 @@
 
 你在家坐着吗？或许，在家工作？在某个地方的办公桌前工作？如果是这样，我今天对你的健身挑战很简单:起来一会儿，在街区周围散散步。
 
-Watch
+
 
 欢迎来到我们这个月的第一个挑战，它将采取 [锻炼【小吃】](https://vitals.lifehacker.com/if-you-dont-have-time-for-a-workout-try-exercise-snack-1839892614) 的形式，目的是稍微打乱你的日常生活。
 

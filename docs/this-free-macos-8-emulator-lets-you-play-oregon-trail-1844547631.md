@@ -4,7 +4,7 @@
 
 不要把 macOS 8 和你可能更熟悉的 OS X 10.8 弄混了，它是一个上世纪 90 年代的操作系统，是在苹果系统的基础上发展起来的，这些系统的名字显然很老派，比如“Power Macintosh”和“PowerBook”但是现在，你可以在任何现代的 Mac 或 Windows PC 上免费使用,或者至少直到苹果生气并追求使成为可能的项目。
 
-Watch
+
 
 菲利克斯·里瑟伯格(Felix Rieseberg)也负责为 Windows 95 推出类似的多功能应用 [，他创造了这款](https://github.com/felixrieseberg/windows95) [全电子版](https://www.theverge.com/circuitbreaker/2018/5/16/17361696/chrome-os-electron-desktop-applications-apple-microsoft-google)[**MAC OS 8**](https://github.com/felixrieseberg/macintosh.js)。它完全在 JavaScript 中运行，这是一种礼貌的方式说你使用它的体验不会像你原生安装它的体验那么令人惊奇——或者更好的是，在你自己的虚拟机上安装。尽管如此，玩还是很有趣的，而且在你的现代系统上工作也很容易。
 

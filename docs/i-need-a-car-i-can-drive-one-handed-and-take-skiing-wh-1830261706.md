@@ -4,7 +4,7 @@
 
 在过去的三个月里，我一直在医生之间穿梭，而不是为 Jalopnik 写作，因为我在我的婚礼上撞毁了一辆特立独行的 X3T3，并粉碎了我的左手。不过那是一个 [的故事，另一个时间](https://www.instagram.com/p/BncFtfZHT-W/) 。现在，你能帮我重新上路吗？
 
-Watch
+
 
 *(欢迎回到* [*应该买什么车*](http://jalopnik.com/tag/wcsyb) *？我们给真正的人买车的真正建议。你想让我们帮你找辆车吗？* [*在我们的表格上提交您的故事。*](https://docs.google.com/forms/d/e/1FAIpQLSeDqY7bGeYrM8RWcNlPnkVd6814SQy9xNLyLOtkgq_lz3cePA/viewform?usp=sf_link) *)*
 

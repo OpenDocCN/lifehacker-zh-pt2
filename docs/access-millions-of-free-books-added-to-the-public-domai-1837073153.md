@@ -4,7 +4,7 @@
 
 由于纽约公共图书馆资助的一个项目，你的暑期阅读清单变得更加容易获得。1964 年 之前在美国出版的大部分 [书都在公共领域，因为作者没有延长版权。他们对文书工作的厌恶是我们的收获，因为许多文书工作都可以在网上免费获得，而且每天都在增加。](https://www.nypl.org/blog/2019/05/31/us-copyright-history-1923-1964) 
 
-Watch
+
 
 下面是 [如何运作](https://www.vice.com/en_us/article/kz4e3e/millions-of-books-are-secretly-in-the-public-domain-you-can-download-them-free) :美国国会图书馆公布了版权条目 的 [*目录，包括了 20 世纪 70 年代美国图书的所有注册和续展信息。互联网档案馆——一个免费资料的非盈利图书馆——有国会图书馆的数字版书目，但仍需要有人对所有记录进行分类，以确定哪些书属于公共领域(随着版权到期，这种情况会不断变化)。*](https://archive.org/search.php?query=creator%3A%22Library+of+Congress.+Copyright+Office.%22)
 

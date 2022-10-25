@@ -4,7 +4,7 @@
 
 气候变化似乎威胁着我们所珍视的一切，从 [咖啡](https://earther.gizmodo.com/more-than-half-of-wild-coffee-species-could-go-extinct-1831807896) 到 [啤酒](https://earther.gizmodo.com/drink-beer-while-you-can-still-afford-it-1829754901#_ga=2.83325526.1556161580.1554143263-852401423.1546292596) 到 [塔巴斯科酱](https://earther.gizmodo.com/tabasco-sauce-is-in-a-battle-for-its-very-survival-1825510123) 。现在，美国最受欢迎的海鲜之一——金枪鱼——也陷入了困境。
 
-Watch
+
 
 发表在《全球变化生物学》上的新研究 发现，在 22 种被研究的金枪鱼种群中，有 20 种已经由于气候变化而改变了它们的分布范围，预计在不久的将来会有更大的变化。分析涵盖了七种最具经济价值的金枪鱼物种中的六种，包括长鳍金枪鱼、大西洋蓝鳍金枪鱼和黄鳍金枪鱼。一些主要的金枪鱼种群开始远离沿海捕鱼船队容易到达的地方，而另一些则正在迁移到新的栖息地，那里可能无法养活大量的食肉鱼。
 

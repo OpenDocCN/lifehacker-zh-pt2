@@ -4,7 +4,7 @@
 
 当你债台高筑时，你会发现自己感到内疚、悲伤或彻底绝望。无论是几百美元还是几千美元，感觉自己无法控制自己的财务状况会让你感到无所作为。但是，晚上趴在沙发上并不能帮你摆脱债务——这似乎只是放大了问题。
 
-Watch
+
 
 Reddit 用户[ohmygoshhhhhh](https://www.reddit.com/r/personalfinance/comments/eemk8h/how_to_reduce_guilt_while_in_debt/)最近在[r/personal finance](https://www.reddit.com/r/personalfinance)中问到这个问题。在失业几个月后，用户的信用卡债务达到了 4100 美元，并且越来越接近 4500 美元的信用额度。当他们回到工作岗位，感觉财务更加稳定时，“我曾经的最高信用已经下滑到 643，我想知道其他人是如何在精神上应对这种负担的，”他们说。“我就是忘不了这件事，满脑子都是这件事。”
 

@@ -4,7 +4,7 @@
 
 如果说疫情教会了我们什么的话，那就是我们真的很喜欢名人给我们读书。演员 [乔什·加德是第一批](https://offspring.lifehacker.com/actor-josh-gad-will-read-to-your-kids-every-night-1842398287) 中的一员(他现在还在！).然后 [美国 h ero 莱瓦尔·伯顿](https://offspring.lifehacker.com/levar-burton-will-read-to-us-thank-god-1842621471) 站出来为孩子、年轻人和成年人带来生活中的故事。现在，哈利·波特本人正在开始阅读第一部哈利·波特，这证明了生活并没有想象中那么糟糕。
 
-Watch
+
 
 如果你一直在等待合适的时机向你的孩子介绍《哈利·波特》，那最好就是现在，丹尼尔·雷德克里夫和其他名人嘉宾已经承诺轮流阅读《哈利·波特与魔法石》*[*。*如果你的孩子已经是哈利波特迷，这是一个很好的借口重新开始阅读该系列，或者让他们参与进来，创作并](https://www.wizardingworld.com/news/introducing-harry-potter-at-home-readings) [提交他们自己的原创作品](https://www.wizardingworld.com/terms/content-submission-guidelines) 以在即将到来的章节阅读中展示。* 
 

@@ -4,7 +4,7 @@
 
 你的朋友对你的 2000 本田思域感兴趣吗？当心，那是去年美国最常被偷的车。你现在还确定可以把这个人称为朋友吗？
 
-Watch
+
 
 [美国国家保险犯罪局](https://www.nicb.org/news/news-releases/nicbs-hot-wheels-americas-10-most-stolen-vehicles-2018-data) 根据报告的车型失窃总数，发布了 2018 年美国最常被盗汽车的新名单。对于这些车的车主来说，这是个坏消息，尽管事实上它们也是路上最受欢迎的车，这可能与此有关。
 

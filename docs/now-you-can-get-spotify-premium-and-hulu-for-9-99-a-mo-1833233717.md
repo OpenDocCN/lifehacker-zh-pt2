@@ -4,7 +4,7 @@
 
 Spotify 和 Hulu 已经降低了价格，将两种服务合起来每月 9.99 美元。
 
-Watch
+
 
 去年 4 月，两家公司 [开始以每月 12.99 美元](https://lifehacker.com/you-can-now-bundle-your-spotify-and-hulu-together-for-1825198944) 的价格提供 Spotify Premium 和 Hulu 的有限商业计划。现在它延长了交易期限，并在 6 月 10 日之前将价格降低 3 美元吨，或者“直到供应结束”
 

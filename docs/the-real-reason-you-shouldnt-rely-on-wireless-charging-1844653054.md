@@ -4,7 +4,7 @@
 
 我喜欢人们出去*实际测试*我们每天依赖的硬件。这就是为什么我过去常常花太多时间在 Wirecutter 上运行路由器文件传输测试，也是为什么我喜欢 Lifehacker 的校友 Eric Ravenscraft 的最新分析，该分析揭示了手机无线充电设置的一些大问题——这些问题我们可能都在某个时候想过，但从未具体指出。
 
-Watch
+
 
 这个评价看起来很简单，我很惊讶我以前没有遇到过。Eric 与 iFixit [的维修权利向导合作，计算出](https://onezero.medium.com/wireless-charging-is-a-disaster-waiting-to-happen-48afdde70ed9) 一个典型的无线充电器在给你的智能手机充电的相当长的时间里消耗了多少能量。然后，他对标准充电电缆和电源适配器进行了同样的评估。
 

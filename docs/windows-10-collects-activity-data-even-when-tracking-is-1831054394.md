@@ -4,7 +4,7 @@
 
 又是一天，另一家科技公司对其隐私做法不诚实。这一次是微软，在它发现 [Windows 10 继续跟踪用户的活动](https://www.ghacks.net/2018/12/12/windows-10-activity-may-be-recorded-even-if-you-disable-it/) 后，即使他们在 Windows 10 设置中禁用了活动跟踪选项。
 
-Watch
+
 
 你可以自己试试。调出 Windows 10 的设置，进入隐私部分，禁用你活动历史中的所有内容。给它几天。访问[Windows Privacy Dashboard online](https://account.microsoft.com/privacy/)，你会发现一些应用、媒体，甚至浏览历史仍然会显示出来。
 

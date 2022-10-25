@@ -4,7 +4,7 @@
 
 当你搬进一个新的房产时，你可能只是多年来住在那里的许多居民中的一员。这意味着一旦你搬到一个新的地方，就应该解决一些安全(和卫生)隐患。
 
-Watch
+
 
 这份清单从一个基本的安全措施开始，由 r/LifeProTips 上的 Redditor[u/Lionel _ Vs _ The _ World](https://www.reddit.com/user/Lionel_Vs_The_World)推荐，这可能是你和家庭入侵 之间唯一的障碍:
 

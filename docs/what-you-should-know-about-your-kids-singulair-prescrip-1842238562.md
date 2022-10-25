@@ -4,7 +4,7 @@
 
 如果您的孩子使用顺尔宁(或仿制药)来控制他们的哮喘或过敏，美国美国食品药品监督管理局希望您知道，他们可能面临更高的精神健康副作用风险，包括焦虑、抑郁、睡眠问题和自杀想法和行为。出于对患者、护理人员和卫生专业人员没有充分意识到风险的担忧，FDA 已经将其警告提高到“黑盒警告”。
 
-Watch
+
 
 方框警告是该机构最突出的警告——它相当于 FDA 的明亮闪光灯——旨在引起对严重或威胁生命的风险的更多关注。在这种情况下， [FDA 称](https://www.fda.gov/news-events/press-announcements/fda-requires-stronger-warning-about-risk-neuropsychiatric-events-associated-asthma-and-allergy) ，警告“建议医疗服务提供者避免给症状较轻的患者开孟鲁司特，尤其是过敏性鼻炎患者。”
 

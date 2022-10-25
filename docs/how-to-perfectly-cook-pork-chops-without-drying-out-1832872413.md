@@ -4,7 +4,7 @@
 
 [作为信任的屠夫](https://www.chicagotribune.com/dining/ct-food-restaurant-publican-new-chefs-levitt-bayer-0318-story.html) 和肉类生活教练，顾客有时会给我带来从美食杂志上撕下来的页面，或者翻手机给我看 Pinterest 上的食谱照片。他们问自己是否能让食物看起来那么好，或者这是食物造型的全部魔力。事实是，两者都有。通常，他们渴望的目标是烤焦的猪排上美丽的琥珀色，如果你有时间和足够的耐心，这很容易实现。
 
-Watch
+
 
 简单来说，你要做的就是慢下来。 [前面我已经说过](https://thetakeout.com/3-3-2-2-trick-perfectly-cooked-steak-rob-levitt-1830389312) ，大男子主义法(rippin 热锅，老弟！)会在你的牛排或猪排上留下很深的烤焦感，但会让肉变干。从硬烤焦开始不能让排骨均匀地烹饪。以下是我如何在保持猪排内部多汁的同时，让猪排呈现出漂亮的颜色:
 

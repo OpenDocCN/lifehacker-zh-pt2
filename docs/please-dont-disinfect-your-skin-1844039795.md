@@ -4,7 +4,7 @@
 
 你不需要 [消毒你的杂货](https://vitals.lifehacker.com/you-dont-need-to-sanitize-your-groceries-1842528397) ，你绝对不应该 [用消毒剂](https://vitals.lifehacker.com/please-dont-try-to-disinfect-your-fruits-and-veggies-1843165213) 清洗你的产品，我真的希望你采纳我们的建议 [不要注射漂白剂](https://vitals.lifehacker.com/dont-inject-bleach-sigh-1843043386) 。现在是时候在我认为不必说的事情清单上增加一件事情了:请不要在你的皮肤或身体的任何其他部位使用清洁产品。
 
-Watch
+
 
 看，消毒剂——像来苏消毒剂和漂白剂——有标签告诉你如何使用。因为它们和杀虫剂 一样，都是受美国环保署监管的 [，这些说明背后其实是有一点科学依据的。如果你想专门保护自己免受冠状病毒的侵害，这里有](https://www.aphis.usda.gov/aphis/ourfocus/animalhealth/nvap/NVAP-Reference-Guide/Cleaning-and-Disinfection/Regulation-of-Disinfectants#:~:text=Chemical%20disinfectants%20in%20the%20United,CFR%20Parts%20150%2D189).&text=All%20EPA%2Dregistered%20pesticides%20must%20have%20an%20EPA%20registration%20number.) [一系列适合这样做的特定产品](https://www.epa.gov/pesticide-registration/list-n-disinfectants-use-against-sars-cov-2-covid-19) 。这些通常是表面清洁剂。它们应该用在桌子、地板、门把手等地方。
 

@@ -4,7 +4,7 @@
 
 我们现在在家的时间都比以前多了。如果你已经开始看不下去了，Roku 正在提供一些不同频道 的 [30 天免费试用，包括 Showtime、Epix 和 Smithsonian。](https://blog.roku.com/home-together) 
 
-Watch
+
 
 要得到它，去“Roku 频道”下的“特别优惠”部分，然后“一起回家-特别优惠”从那里，你将能够看到可用的选项，并赎回延长免费试用。
 

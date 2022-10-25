@@ -4,7 +4,7 @@
 
 一年前，全国的学龄儿童举行了罢课和抗议活动 [向他们的代表施压，要求他们支持有意义的枪支立法](https://lifehacker.com/a-students-guide-to-walkouts-and-protests-1823334274) 。
 
-Watch
+
 
 现在，这一代人因其社会和政治激进主义而闻名，他们再次计划大规模的全国性抗议:这次是为了气候变化。
 

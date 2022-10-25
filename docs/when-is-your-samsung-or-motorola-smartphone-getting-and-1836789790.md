@@ -6,7 +6,7 @@
 
 Android 10 已经发布，但是有一个重要的警告——仅仅因为谷歌发布了 Android 10 并不意味着你会和其他人一样快得到 Android 10。
 
-Watch
+
 
 如果你用的是 Pixel 手机，那就万事俱备了。你可以马上安装操作系统，然后开始体验。然而，如果你使用任何其他制造商的 Android 智能手机，你的 Android 10 时间表可能会有很大差异——如果你想看看延迟会有多疯狂，只需浏览 Android Authority 的 Android Pie 的 [时间表。](https://www.androidauthority.com/android-9-0-update-880718/)
 

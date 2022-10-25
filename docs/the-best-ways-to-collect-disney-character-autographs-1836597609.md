@@ -4,7 +4,7 @@
 
 我和我的大家庭去过几次迪士尼世界，包括我的儿子和三个侄女。在他们四到七岁的时候，获得角色签名是一件非常重要的事情。我们做了那个年龄组的所有其他父母似乎都在做的事情:我们买了一本 [迪士尼签名簿](https://www.shopdisney.com/world-of-disney-autograph-book-with-pen-1489664?pagePath=%2Fsearch&pageType=SearchPage&algorithm=filter%3Afalse%2Csort%3AD-gross_margin&position=3%2C5) 他们手里拿着签名簿，有条不紊地穿过公园。
 
-Watch
+
 
 虽然这很有趣，但当我现在回想起来，我想我本可以更有创意地收集孩子们的签名和他们最喜欢的角色的照片。
 

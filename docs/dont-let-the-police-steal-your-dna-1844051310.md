@@ -4,7 +4,7 @@
 
 在我们最近一集的升级节目 [如何抗议](https://lifehacker.com/how-to-protest-with-activists-l-a-kauffman-and-charle-1844037412) 中，我们了解了很多警察在实施逮捕时可以做什么和无权做什么。我们学到的最重要的事情之一是，警察可能会试图获取你的 DNA 样本，但你不必——也不应该——同意。尽管他们可能会告诉你，但你没有法律义务遵守颊拭子。
 
-Watch
+
 
 布鲁克林辩护服务 的高级律师玛丽安娜·凯希安(Maryanne Kaishian)表示，警方有多种方法可以诱使你交出 DNA 样本:
 

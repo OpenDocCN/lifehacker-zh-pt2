@@ -4,7 +4,7 @@
 
 如果你住在美国东海岸，很有可能你已经注意到今年明显缺乏生机勃勃的秋叶。
 
-Watch
+
 
 从北卡罗来纳州到宾夕法尼亚州，许多树仍然是绿色的，而其他的已经从绿色变成棕色。马里兰州西部通常火热的秋叶被描述为[相当单调](https://news.maryland.gov/dnr/2018/10/25/fall-foliage-and-festival-report-oct-27-28-2018/) ，[来自宾夕法尼亚州和弗吉尼亚州的报道](http://www.docs.dcnr.pa.gov/cs/groups/public/documents/document/dcnr_20033748.pdf) 暗示这些州的森林早该换颜色了。阿巴拉契亚州立大学 [的一位植物生理学家形容](https://www.citizen-times.com/story/news/2018/10/26/asheville-wnc-where-fall-color-heat-rain-push-leaves-beyond-usual-peak/1761447002/) 北卡罗莱纳州西部的树叶是“我见过的最奇怪的”，而定期提供全国秋季树叶报告的树叶网络 [在 10 月 25 日的大西洋中部和东南部更新中总结了这种令人沮丧的状况...这真是一个奇异的观叶季节。”](https://www.foliagenetwork.com/index.php/foliage-reports/foliage-reports-southeast-us/current-season-southeast-us/130-foliage-reports/foliage-reports-southeast-us/foliage-reports-southeast-us-current-season/847-se-foliage-report-15-2018)
 

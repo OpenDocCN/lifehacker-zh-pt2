@@ -4,7 +4,7 @@
 
 **iOS:** 如今，你只需要一部智能手机就能创作出有趣、高质量的视频内容。使用正确的应用程序，过去需要额外的设备和软件 [的事情几乎都可以在一部 iPhone](https://lifehacker.com/everything-you-need-to-shoot-good-looking-video-with-yo-1791659034) 上完成——包括同时录制多个镜头。这一切都要归功于 [DoubleTake，这是一款免费的 iOS 应用](https://apps.apple.com/us/app/doubletake-by-filmic-pro/id1478041592) ，它可以同时从你 iPhone 的许多相机中的两个相机进行录制。它目前适用于 iPhone 11 和 iPhone 11 Pro、iPhone XS(和 XS Max)以及 iPhone XR。你的 iPhone 也需要运行 iOS 13。
 
-Watch
+
 
 DoubleTake 不仅可以同时使用两个后置摄像头录制视频，还可以同时使用前置和后置摄像头进行拍摄，这样就可以一次从多个角度捕捉素材。该应用程序甚至可以从 iPhone 的不同麦克风中录制单独的音频。
 

@@ -4,7 +4,7 @@
 
 如果你是 Snapchat 过滤器的粉丝，现在你可以在台式电脑上的 Skype 和 Google Hangouts 等地方使用它们。该公司本周发布了一款名为 [Snap Camera](https://snapcamera.snapchat.com/) 的专用桌面应用，允许你在 Skype、Google Hangouts 和 Twitch 等其他桌面应用中使用该公司的增强现实自拍镜头。
 
-Watch
+
 
 你可以在 这里 [下载 app。](https://snapcamera.snapchat.com/)
 

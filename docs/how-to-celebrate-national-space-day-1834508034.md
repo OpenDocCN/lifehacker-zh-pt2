@@ -4,7 +4,7 @@
 
 今晚，走出户外，仰望天空——假设你在一个光污染少的地方——欣赏星空。因为伙计们，现在是 [国家航天日](https://nationaldaycalendar.com/national-space-day-first-friday-in-may/) 。
 
-Watch
+
 
 为了纪念这个节日， [Fast Company 编制了一份从现在到年底所有“天体物理、航天甚至娱乐领域的重大事件”](https://www.fastcompany.com/90343162/international-space-day-here-are-14-space-events-to-look-forward-to-in-2019) 的清单。
 

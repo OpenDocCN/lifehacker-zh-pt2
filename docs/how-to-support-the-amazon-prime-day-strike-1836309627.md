@@ -4,7 +4,7 @@
 
 亚马逊员工连续第二年计划在黄金日罢工。2018 年，亚马逊德国、波兰、西班牙 [仓库工人在黄金日](https://www.theverge.com/2018/7/16/17577348/amazon-warehouse-worker-strike-europe-prime-day) 罢工；今年，明尼苏达州履行中心的工人计划举行类似的罢工，部分原因是亚马逊最近宣布将开始 [免费一日运输](https://lifehacker.com/how-to-get-one-day-free-shipping-from-amazon-1835235441) 。
 
-Watch
+
 
 正如 [彭博](https://www.bloomberg.com/news/articles/2019-07-08/amazon-workers-plan-prime-day-strike-despite-15-an-hour-pledge) 报道:
 

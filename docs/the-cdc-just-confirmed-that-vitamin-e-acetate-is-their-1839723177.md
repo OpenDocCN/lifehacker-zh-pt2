@@ -4,7 +4,7 @@
 
 美国疾病控制和预防中心今天宣布，他们终于同意了关于导致他们称之为[EVALI](https://www.cdc.gov/media/releases/2019/p1028-first-analysis-lung-injury-deaths.html)vape 疾病的主要理论 :醋酸维生素 E，主要存在于 THC vapes 中。一种新的肺液取样技术显示，所有接受测试的患者——来自 10 个州的 29 人的方便样本——在他们的肺部都有维生素 E 醋酸酯。
 
-Watch
+
 
 对于其他被怀疑导致疾病的化学物质，包括“植物油、石油馏分如矿物油、MCT 油和萜烯”，没有这样一致的结果
 

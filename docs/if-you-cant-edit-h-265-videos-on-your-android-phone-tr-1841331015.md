@@ -4,7 +4,7 @@
 
 你更喜欢哪一个:节省 Android 设备的空间还是能够在智能手机上编辑视频？现在，你得到了一个或另一个——一个时髦的 Android 错误出现了，然后消失了，现在又出现了，这使得你不可能在你的设备上充分利用 [H.265/HEVC 编码](https://lifehacker.com/how-to-reduce-video-file-sizes-on-googles-pixel-4-witho-1839326135) 。
 
-Watch
+
 
 由于许多 Android 用户在谷歌照片 [帮助论坛](https://support.google.com/photos/thread/18154677?hl=en) (自去年 10 月以来)上报告称，在各种 Android 设备上使用 H.265 编解码器拍摄的视频无法在谷歌照片应用程序中编辑。例如，如果你想修剪刚刚拍摄的东西，点击“保存副本”会给人一种有事情发生的错觉:
 

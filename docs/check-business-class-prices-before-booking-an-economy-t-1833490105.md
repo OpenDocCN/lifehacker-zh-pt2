@@ -4,7 +4,7 @@
 
 我在飞机上乘坐商务舱的典型经历是我在过道里短暂的穿行——我走向后面。很漂亮，不是吗？变成床的座位。充足的腿部空间。还有热坚果！到处都是热坚果。
 
-Watch
+
 
 事实证明，坚持基本的经济舱票价并不总是省钱。根据 [积分员](https://thepointsguy.com/news/first-business-class-cheaper-than-economy/) 的说法，你预订商务舱可能会更好。
 

@@ -4,7 +4,7 @@
 
 今年早些时候，克里斯蒂尼·托西将“快克派”的名字改成了“奶吧派”， [解释说](https://milkbarstore.com/blogs/notes-from-tosi/a-note-on-milk-bar-pie) 这个名字“不符合”奶吧“传播快乐，激发庆祝”的使命这算不上道歉，也不清楚托西是否真的明白*为什么*这个名字一开始就是个问题，但至少这个名字——终于在十多年后——被改了。
 
-Watch
+
 
 Tosi 不是第一个用“crack”这个词来表示一种食物难以停止食用的人，她也绝对不是最后一个。这个词被用来形容[盐酥糖](https://www.simplyrecipes.com/recipes/christmas_crack/) (虽然有人认为这个“裂纹”来源于饼干)，还有 [酱](https://rollinggeek.com/la-vic-crack-sauce/) 。在波特兰，离我住的地方不太远，有一家名为“ [奶酪&裂纹](https://www.cheeseandcrack.com/about) ”的“小吃店”，尽管其中只有一种东西可供购买。
 

@@ -4,7 +4,7 @@
 
 如果你发现“新推特”令人分心，现在有一个扩展可以帮助你——简化的推特。
 
-Watch
+
 
 就像它听起来的那样，[Chrome](https://chrome.google.com/webstore/detail/simplified-twitter/kfopmjhmejbgomgeajemgpgpbckpoopg?ref=producthunt)扩展和 [Firefox 插件](https://addons.mozilla.org/en-US/firefox/addon/simplified-twitter/?ref=producthunt) 采用 Twitter 的传统桌面界面并将其简化，使其更容易专注于实际的推文，而不是其他任何事情。
 

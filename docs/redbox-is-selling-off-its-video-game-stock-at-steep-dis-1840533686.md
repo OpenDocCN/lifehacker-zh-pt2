@@ -4,7 +4,7 @@
 
 Redbox 正在退出游戏租赁业务，并通过清仓甩卖出售 PlayStation 4、Xbox One 和少量 Switch 游戏的库存。你会在红盒子的网站 上找到许多交易 [，但一些值得注意的折扣包括:](https://www.redbox.com/games) 
 
-Watch
+
 
 *   使命召唤:现代战争——29.99 美元(PS4，Xbox One)
 *   死亡搁浅-24.99 美元(PS4)

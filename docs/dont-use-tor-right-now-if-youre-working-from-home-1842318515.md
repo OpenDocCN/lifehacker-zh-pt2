@@ -4,7 +4,7 @@
 
 随着越来越多的人呆在家里， [远程工作以避免新冠肺炎疫情](https://lifehacker.com/be-prepared-to-work-from-home-during-the-coronavirus-ou-1842088431) ，网络安全已经成为更高的优先事项。使用尊重用户隐私并保证数据安全的 web 浏览器是远程办公的必需品，但是你现在应该避免使用 Tor web 浏览器，尽管这是匿名化你的网络活动的最好方法之一。
 
-Watch
+
 
 [根据 Tor 开发团队](https://blog.torproject.org/new-release-tor-browser-906) 的说法，一个漏洞意外地允许 Javascript 在网页上运行，即使用户已经明确禁用了它或者打开了浏览器最严格的设置(通过 T5】ZDNet)。禁用和阻止 Javascript 是 Tor 的关键功能之一，但这一故障破坏了它的安全性，并使浏览器对依赖其匿名性的用户具有潜在的危险，因为公司、政府实体甚至黑客都可以使用 Javascript 来找到 IP 地址。
 

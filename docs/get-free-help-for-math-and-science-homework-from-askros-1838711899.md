@@ -4,7 +4,7 @@
 
 如果你努力帮助你的孩子做数学和科学作业，并且你不能通过 [在线学习共同核心数学](https://lifehacker.com/parents-should-learn-common-core-math-like-a-kindergart-1835525547) 来解决，那么尝试打电话或发电子邮件 [询问家庭作业帮助](https://askrose.org/) 。每天晚上，他们训练有素的学生导师会帮助学生，指导他们解决数学和科学问题。
 
-Watch
+
 
 6-12 年级的学生可以在美国东部时间周日至周四晚上 7-10 点拨打 877-Ask-Rose (877-275-7673)寻求帮助。您也可以通过 [这种网络形式](https://askrose.org/email/) 提出您的问题，或者在同一时间内启动一个 [实时网络聊天](https://askrose.org/chat/) 。
 

@@ -4,7 +4,7 @@
 
 iOS 14 和 Android 11 将在今年晚些时候推出新的“back tap”手势控制，但你现在可以在任何运行 Android 7.0 或更高版本的 Android 设备上提前获得该功能。(iPhone 用户可以 [安装 iOS 14 测试版，也可以](https://lifehacker.com/how-to-launch-iphone-actions-with-a-tap-on-the-back-1844127710) 提前体验这种沉闷的生活)。
 
-Watch
+
 
 要在你的 Android 上通过轻拍它的背部来启动动作，你需要下载 **Tap，Tap** 应用程序——这是由 Keiron Quinn 开发的开源 Android 应用程序。在谷歌将其从后续测试版本中撤出之前，它曾在 Android 11 测试版中可用。在此之前，Android 11 beta 测试人员可以双击打开手机的摄像头，调用谷歌助手，抓取和截屏，或将其用作辅助功能快捷方式。
 

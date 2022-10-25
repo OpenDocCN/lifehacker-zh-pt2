@@ -4,7 +4,7 @@
 
 在 Lifehacker，我们谈论了很多关于如何养成好习惯和如何改掉坏习惯的话题。 但这个技巧是关于如何把后者换成前者，并简化整个过程。
 
-Watch
+
 
 这个故事是由 Rad 的 Khe Hy 通过他的 [简讯](https://radreads.co/) 发现的；redditor[u/dfjord](https://www.reddit.com/user/DFjorde)在 r/LifeProTips 上发帖讲述了一场非常有关联的斗争——他们一直在冲动地吃垃圾食品。他们卖薯条和糖果的生意已经减少了，但是多余的存货正在从壁橱里溢出来。任何有冲动控制问题的人都可以想象这是多么大的诱惑。
 

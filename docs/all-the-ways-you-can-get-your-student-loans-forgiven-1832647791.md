@@ -4,7 +4,7 @@
 
 随着 2018 届学生贷款 [平均余额达到 29800 美元](https://studentloanhero.com/student-loan-debt-statistics/) ，你可能正在寻找任何可以帮助你偿还债务的方法。如果你满足了某些要求，你的一部分余额是有可能被原谅的。
 
-Watch
+
 
 不是每个人都有资格获得宽恕:例如，如果你有私人贷款，你就要偿还全部金额，每个宽恕计划都有严格的要求。你不应该指望宽恕来控制你的债务，你也不应该 [付钱给任何承诺免除你债务的人](https://twocents.lifehacker.com/dont-pay-anyone-to-help-you-with-your-student-loans-1825888355)——这很可能是一个骗局。
 

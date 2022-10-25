@@ -4,7 +4,7 @@
 
 即使你知道他们可能来自一个地方，但滚动浏览你的社交媒体订阅，却发现大量的 [模因和引用卡](https://www.google.com/search?sxsrf=ALeKk00BXkLDQZAtwj8sGMZzW7MvxTm0mQ:1599339834571&source=univ&tbm=isch&q=good+vibes+quotes&sa=X&ved=2ahUKEwjhtduV9dLrAhUtmXIEHapUCUsQsAR6BAgKEAE&biw=1420&bih=733) 指示我们“选择幸福”，或发出“只有好的共鸣”，这可能会令人抓狂。(也可能只是我和其他人都爱他们？)再说一次，我明白大多数人并没有积极地执行他们的“只有好心情”的政策，他们只是把这样的东西放到这个世界上来抵消“所有的负面情绪”
 
-Watch
+
 
 很好，但是如果你不在一个好的地方，一遍又一遍地看到这种情绪会很困难。而现在，在 2020 年，我不确定是否/如何有人在一个好地方。这只是有害乐观情绪的一小部分。这里有更多关于这个概念的内容，以及当它不可避免地出现时处理它的一些策略。
 

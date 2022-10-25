@@ -4,7 +4,7 @@
 
 经过多年的 Xbox Insider 计划测试，微软终于正式发布了免费的无线显示应用程序，允许 PC 流媒体传输到 Xbox One，并提供控制器支持。它工作的时候很整洁。以我目前的经验来看，这并不经常奏效。
 
-Watch
+
 
 利用 [行业标准 Miracast 技术](https://www.microsoft.com/en-us/p/wireless-display/9nblggh3zw34?ranMID=24542&ranEAID=TnL5HPStwNw&ranSiteID=TnL5HPStwNw-.wDA__BAXB1JvAUN.Qn92A&epi=TnL5HPStwNw-.wDA__BAXB1JvAUN.Qn92A&irgwc=1&OCID=AID681541_aff_7593_1243925&tduid=%28ir__vc69uupe09kfr26c2j3ttrvko32xmzcewdsimnmm00%29%287593%29%281243925%29%28TnL5HPStwNw-.wDA__BAXB1JvAUN.Qn92A%29%28%29&irclickid=_vc69uupe09kfr26c2j3ttrvko32xmzcewdsimnmm00&wa=wsignin1.0&activetab=pivot%3Aoverviewtab) ，微软的 [无线显示](https://www.microsoft.com/en-us/p/wireless-display/9nblggh3zw34?ranMID=24542&ranEAID=TnL5HPStwNw&ranSiteID=TnL5HPStwNw-.wDA__BAXB1JvAUN.Qn92A&epi=TnL5HPStwNw-.wDA__BAXB1JvAUN.Qn92A&irgwc=1&OCID=AID681541_aff_7593_1243925&tduid=%28ir__vc69uupe09kfr26c2j3ttrvko32xmzcewdsimnmm00%29%287593%29%281243925%29%28TnL5HPStwNw-.wDA__BAXB1JvAUN.Qn92A%29%28%29&irclickid=_vc69uupe09kfr26c2j3ttrvko32xmzcewdsimnmm00&wa=wsignin1.0&activetab=pivot%3Aoverviewtab) 应用程序旨在允许 Xbox One 通过无线连接镜像 Windows PC 或 Android 设备的显示。这与大多数智能电视的功能相同。Xbox 应用的不同之处在于，它允许连接到控制台的 Xbox One 控制器控制 PC。你既可以把它当作游戏手柄，也可以用控制器的模拟手柄来移动鼠标光标。
 

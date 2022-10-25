@@ -4,7 +4,7 @@
 
 对我们的孩子来说，看到自己在周围世界中的形象是非常重要的，从他们自己社区中的人和电影中描绘的人物，到他们玩的玩具。但是对于有助听器、人工耳蜗、唇裂、气管造口术、饲管或手术疤痕的孩子来说，找到这种表现可能是一个挑战。
 
-Watch
+
 
 这就是为什么一位母亲自己开了一家 Etsy 商店，为需要在世界上看到自己的孩子提供包容性的娃娃和配件。我第一次了解这家店，叫，来自 [Kids 活动博客](https://kidsactivitiesblog.com/149094/inclusive-dolls)；店主克莱尔 [解释了店铺是如何开始](https://www.etsy.com/shop/BrightEars?ref=simple-shop-header-name&listing_id=626341301) :
 

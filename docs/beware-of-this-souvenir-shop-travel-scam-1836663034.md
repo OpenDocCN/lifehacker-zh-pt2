@@ -4,7 +4,7 @@
 
 在你出国旅行之前，总是在你的目的地调查常见的骗局，这样你*就不会*成为针对游客的骗局的受害者(比如瓶装水或者“跳过线路” [骗局](https://lifehacker.com/how-to-avoid-getting-scammed-when-traveling-1835913288) )。下次你决定去纪念品商店时，一定要小心。O 在最近的一个 [Reddit 帖子](https://www.reddit.com/r/LifeProTips/comments/cgefdz/lpt_if_youre_on_vacation_and_find_yourself_in_a/) 中，几个用户报告了*另一个*骗局，在这个骗局中，旅行者被指控违反 item⁠—and，却突然被要求负责赔偿任何损失。
 
-Watch
+
 
 “我和一群人在一起，我和小贩闲聊，他评论了我的 t 恤，”u/[singmelullabies 1](https://www.reddit.com/r/LifeProTips/comments/cgefdz/lpt_if_youre_on_vacation_and_find_yourself_in_a/)写道。“这群人接着去了一家餐馆，10 分钟后，小贩走进餐馆，找到我，说‘你弄坏了我的几条项链，你需要赔偿’...我拒绝被骗，[他]坚持了几分钟，但当他意识到我不会因为羞愧而付钱给他时，我离开了。”
 

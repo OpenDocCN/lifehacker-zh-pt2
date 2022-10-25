@@ -4,7 +4,7 @@
 
 即使我不太记得 90 年代，但我肯定记得所有 90 年代的老技术，尤其是老 Windows 操作系统的经典外观和感觉。所以当我看到 [Android Central 的](https://www.androidcentral.com/progressbar95-hyper-casual-game-turns-your-phone-90s-era-computer) 关于免费玩的 Android 游戏 [Progressbar95](https://play.google.com/store/apps/details?id=com.spookyhousestudios.progressbar95) 的帖子时，我知道我必须试一试。
 
-Watch
+
 
 Progressbar95 出色地将 90 年代的 PC 风格引入了现代智能手机。这一切都在这里——电脑硬盘的呼呼声、刮擦声、层叠式弹出窗口、烦人的剪贴簿传真，甚至可怕的蓝屏死机(顺便说一下，这是 [还是很像](https://lifehacker.com/learn-to-decipher-the-blue-screen-of-death-and-troubles-1583771468) )。
 

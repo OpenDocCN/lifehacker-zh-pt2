@@ -4,7 +4,7 @@
 
 几十年来，我们已经能够买到播放噪音的设备，据说可以驱蚊，几十年来，这些设备完全没有用。现在，你可以下载一个应用程序，而不是购买一个设备。你猜怎么着？还是不行。
 
-Watch
+
 
 “这都是痴心妄想。没有证据表明发声装置可以阻止蚊子叮咬，”蚊子科学家卡梅隆·韦伯 [为《对话](https://theconversation.com/the-buzz-from-your-smartphone-wont-stop-mosquito-bites-92611) 写道。
 

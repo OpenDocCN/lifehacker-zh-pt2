@@ -4,7 +4,7 @@
 
 如果你在 2015 年至 2017 年期间的某个时候购买了 MacBook Pro，你可能应该仔细检查它是否会在你身上自燃。
 
-Watch
+
 
 或者， [正如苹果公司所说的](https://support.apple.com/15-inch-macbook-pro-battery-recall) ，“苹果公司已经确定，在数量有限的老一代 15 英寸 MacBook Pro 设备中，电池可能会过热，并造成火灾安全风险。”
 

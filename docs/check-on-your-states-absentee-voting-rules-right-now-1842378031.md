@@ -4,7 +4,7 @@
 
 冠状病毒已经影响了许多州的初选，并可能影响今年晚些时候的整体选举。现在是你开始研究你所在州如何处理缺席投票的好时机，并且注册一个，这样你就可以通过邮件投票，如果你需要的话。
 
-Watch
+
 
 Twitter 用户 Asha Dornfest [本周早些时候在 Twitter 上提出了这个建议](https://twitter.com/ashadornfest/status/1239329955692998656) 。
 

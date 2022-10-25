@@ -4,7 +4,7 @@
 
 日期已定:AMC 影院将于 8 月 20 日重新开放。今年早些时候，当新冠肺炎疫情关闭全国各地的电影院时，该公司正在庆祝其百年庆典，尽管该病毒的 [广泛感染水平](https://vitals.lifehacker.com/were-still-in-the-first-wave-1844531694)[不清楚长期后果](https://vitals.lifehacker.com/we-still-dont-know-all-the-long-term-consequences-of-mi-1844560700) ，关于其传播方式的愤怒的 [错误信息](https://lifehacker.com/how-to-tell-if-you-can-trust-the-latest-coronavirus-hea-1844609639)[以及有效疫苗](https://lifehacker.com/what-we-know-dont-about-russias-supposed-covid-19-vac-1844700593) 的持续缺乏，全国最大的连锁影院将重新开放。显而易见的问题是:怎样才能让电影观众回到他们当地的影院？
 
-Watch
+
 
 AMC 希望与 Clorox 合作，通过他们的“安全&清洁 T3】倡议来减轻人们的恐惧。通过对“彻底加强清洁”和“高科技 HEPA 吸尘器”的描述，该公司旨在建立客户的信心，即在他们的协议下去看电影是安全的。除了安全指导方针，AMC 还提供折扣和奖金来吸引以前的顾客——特别是 AMC Stubs 忠诚度计划的成员——他们可能愿意抛开健康顾虑，在晚上出去享受优惠。
 

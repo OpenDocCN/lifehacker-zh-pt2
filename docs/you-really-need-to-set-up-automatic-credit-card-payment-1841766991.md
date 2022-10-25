@@ -6,7 +6,7 @@
 
 如果这个问题让你坐得更直一点，并再次猜测你是否真的支付了你的信用卡……嗯，我一点也不惊讶。
 
-Watch
+
 
 事实证明，即使 [我们在](https://lifehacker.com/automate-your-credit-card-payments-already-1828654501) 之前已经讨论过，你应该自动管理你的财务，这样你就不会错过付款，但你们中的许多人仍然错过了你的到期日。个人理财推荐网站 [WalletHub](https://wallethub.com/credit-cards#survey) 的一项新调查发现，18%的成年人预计在 2020 年至少会错过一次信用卡到期日。
 

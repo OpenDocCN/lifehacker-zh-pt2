@@ -4,7 +4,7 @@
 
 T-Mobile 已经证实，一次数据泄露 影响了其部分客户，来自 [TechCrunch](https://techcrunch.com/2019/11/22/more-than-1-million-t-mobile-customers-exposed-by-breach/) 的补充报道称，该数字估计为 100 多万个账户(左右)。换句话说，这是一个很大的突破，但你不应该大惊小怪。不要忽视，但也不要紧张。
 
-Watch
+
 
 正如 T-Mobile 在其公开披露中所写的:
 

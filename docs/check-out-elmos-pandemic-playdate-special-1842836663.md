@@ -4,7 +4,7 @@
 
 对于我们当中最成熟、最理性、最清醒的人来说，疫情是一个令人恐惧和困惑的时代。想象一下这对蹒跚学步的孩子来说是多么不和谐，他们过去常常去托儿所、奶奶家和图书馆，而现在...每个人都生活在电脑里。幸运的是，他们还有埃尔莫。
 
-Watch
+
 
 芝麻街背后的非营利组织芝麻街工作室宣布了一个名为 [*的联播特别节目:芝麻街:Elmo 的播放日期*](https://www.sesameworkshop.org/press-room/press-releases/primetime-special-sesame-street-elmos-playdate-offer-families-connection) ，作为其新的 [*互相关心*](http://www.sesamestreet.org/caring) 倡议的一部分，旨在帮助在冠状病毒危机期间支持父母。游戏日将有一些熟悉的面孔，包括格罗弗，饼干怪兽和艾比·卡达比，以及名人嘉宾安妮·海瑟薇，林·曼努尔·米兰达和特雷西·埃利斯·罗斯。
 

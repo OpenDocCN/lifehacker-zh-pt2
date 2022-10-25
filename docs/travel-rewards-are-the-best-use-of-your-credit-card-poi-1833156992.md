@@ -4,7 +4,7 @@
 
 那里不缺少奖励信用卡，随着更多的玩家进入游戏，兑换机会也在扩大。但是正如丹·弗罗默 [为食客](https://www.eater.com/2019/3/7/18246799/best-credit-card-rewards-points-restaurants-dining-out) 指出的，用你的积分兑换旅行奖励可能是最划算的。
 
-Watch
+
 
 你可以每天花几个小时计算和评估信用卡奖励计划(事实上，很多人都这样做——有一整个 [在线行业致力于此](https://thepointsguy.com/guide/monthly-valuations/) )来找出如何获得尽可能最好的交易。
 

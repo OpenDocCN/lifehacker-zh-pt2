@@ -4,7 +4,7 @@
 
 如果你喜欢 Airbnb 和航空里程，一些航空公司已经准备好奖励你通过它们预订 Airbnb 住宿——或者成为 Airbnb 的主人。
 
-Watch
+
 
 **达美航空**拥有 [一个专门的 Airbnb 预订网站](https://www.deltaairbnb.com/?_ga=2.214073879.1609361857.1554993347-2082512011.1549738185) ，在这里，您可以在全球范围内的所有 Airbnb 住宿中，每 1 美元兑换 1 天里程。您还可以 [赢取奖励里程](https://www.airbnb.com/help/article/1545/delta-skymiles--airbnb-partnership-program) :
 

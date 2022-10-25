@@ -4,7 +4,7 @@
 
 我都试过了:Zyrtec、Allegra、Claritin、Xyzal、Benadryl、Nasacort、Flonase——甚至 neti pot——但我仍然很难找到一种有效的工具，可以一劳永逸地消除我布满血丝的眼睛和鼻涕。
 
-Watch
+
 
 根据 David Erstein 博士的说法，如果你也在努力寻找哪种抗过敏药最适合你，有时，只需结合不同类型的药物(并且足不出户)就能战胜季节性过敏的噩梦。
 

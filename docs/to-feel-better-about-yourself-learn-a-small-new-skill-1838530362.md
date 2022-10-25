@@ -4,7 +4,7 @@
 
 如此多的自我保健都是以自我为中心的，无论是像洗个好澡这样的放纵还是像预约医生这样的工作。但是，当你把注意力从自己身上移开一分钟，学习如何做一些有其自身原因的事情时，会发生什么呢？开棍子，学编织， [烤点面包](https://skillet.lifehacker.com/the-perfect-time-to-get-into-bread-making-is-right-now-1837899445) 。
 
-Watch
+
 
 这个概念有个朗朗上口的名字，；你甚至可以读 [一整本书](https://www.goodreads.com/en/book/show/32509887-micromastery) 了解一下。当然，潜在的想法是永恒的。
 

@@ -4,7 +4,7 @@
 
 谷歌新的“ [功能下降](https://www.blog.google/products/pixel/more-helpful-pixel-features/) ”计划于本月启动，适用于 Pixel 2、3、3a 和 4 智能手机(包括 XL 型号)。在这个首次功能发布中，你会发现很多功能——尽管并非所有功能都适用于所有 Pixel 手机——所以这里有一个完整功能的快速列表，以及哪些手机正在获得这些功能:
 
-Watch
+
 
 ### Google 相册的人像模糊滤镜(全像素手机)
 

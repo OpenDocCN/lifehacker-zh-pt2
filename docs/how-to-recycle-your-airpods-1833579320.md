@@ -4,7 +4,7 @@
 
 在一系列关于新的 [信用卡](https://twocents.lifehacker.com/the-apple-card-is-an-average-rewards-card-1833550903#_ga=2.88751133.725380737.1553520334-1166140590.1547667345) 、订阅服务以及与 [奥普拉](https://www.theroot.com/oprah-came-through-apple-s-press-event-and-crushed-the-1833558149) 有关的声明中，苹果终于推出了 AirPods 的第二次到来。
 
-Watch
+
 
 就设计而言，AirPods 2 与我们都知道并喜欢的熟悉的 air buds 完全相同——但当你打开引擎盖时，新的 AirPods 是一个非常需要的升级:它们有更长的 [电池寿命](https://gizmodo.com/apples-powerbeats-looks-to-be-going-wire-free-and-its-1833563940) ，它们可以更快地在设备之间配对。但是，如果你正在使用我们的 AirPods 的更好版本，你应该如何处理我们的旧版本呢？
 

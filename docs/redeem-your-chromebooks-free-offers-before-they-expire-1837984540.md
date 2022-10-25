@@ -4,7 +4,7 @@
 
 我没有新的 Chromebook，但我希望我有；不是因为我的笔记本电脑需要升级(没关系)，而是因为这样我就可以利用谷歌提供的更多免费服务，而我目前的 Chromebook 太旧了，无法享受。
 
-Watch
+
 
 如果你在过去 180 天内买了一台 Chromebook——真的，如果从你第一次用 chrome book 设置你的谷歌账户到现在还不到 180 天——那么你肯定想快速浏览一下 [Chromebook 优惠](https://www.google.com/chromebook/offers/) 页面，看看你能获得的所有最新交易。正如 [Android Police](https://www.androidpolice.com/2019/09/09/reminder-grab-your-chromebook-freebies-including-inkredible-pro-and-noteshelf/) 所言，现在你可以免费低价获得两个应用:
 

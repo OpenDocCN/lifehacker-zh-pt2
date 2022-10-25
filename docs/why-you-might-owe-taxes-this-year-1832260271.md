@@ -6,7 +6,7 @@
 
 由于 2017 年通过的减税和就业法案降低了税率，并将标准扣除额增加了一倍，大多数人预计今年会退税。但至少一些过去总是收到退款的人今年申报时会欠钱，根据 [国税局](https://www.irs.gov/newsroom/irs-make-an-estimated-tax-payment-now-to-avoid-a-tax-time-surprise) 。
 
-Watch
+
 
 该机构表示，“尽管大多数 2018 年纳税申报人预计仍将获得退款，但欠税人数，以及某些情况下的罚款，可能会比近年来更多。”
 

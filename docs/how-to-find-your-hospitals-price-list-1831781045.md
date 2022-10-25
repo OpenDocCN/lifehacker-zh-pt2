@@ -4,7 +4,7 @@
 
 在医院 [的任何东西的实际费用是一个谜，直到你拿到账单](https://vitals.lifehacker.com/why-health-care-is-so-expensive-1775781692) ，但是从 2019 年 1 月 1 日起，医院必须在网上公布所有价格的清单。它可能令人困惑，几乎不可读，很难找到，但它是*在那里*。某处。
 
-Watch
+
 
 Quartzy 在医院网站上寻找这些名单， [已经发布了其中 115 个](https://qz.com/1518545/price-lists-for-the-115-biggest-us-hospitals-new-transparency-law/) 的直接链接。他们发现，最快的方法是谷歌:
 

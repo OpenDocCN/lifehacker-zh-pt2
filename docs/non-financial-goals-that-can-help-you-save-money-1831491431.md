@@ -4,7 +4,7 @@
 
 在 401(k)计划、529 计划、个人退休账户、高收益账户和为你工作的应用程序之间，不缺少省钱的方法。有效使用这些账户和应用是长期财务健康的关键。
 
-Watch
+
 
 也许你 2019 年的金钱目标是节省更多的钱，通过利用所有这些选项:你正在 [增加你的 401(k)贡献](https://twocents.lifehacker.com/increase-your-401-k-or-ira-contributions-for-2019-1830819672) ，或者使用像 [Digit 或 Qapital](https://lifehacker.com/saving-app-showdown-qapital-vs-digit-1790189978) 这样的应用程序为你的下一次旅行存钱。但是在严格的财务领域之外，你还可以做很多其他的事情来帮助你实现你的底线，同时实现你的另一个目标或愿望。
 

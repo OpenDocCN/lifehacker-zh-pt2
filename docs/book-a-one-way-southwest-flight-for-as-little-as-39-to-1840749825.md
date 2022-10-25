@@ -4,7 +4,7 @@
 
 如果旅行是你 2020 年上半年的计划，那么你可能想看看西南航空 2020 年的最终销售。该公司今天在一些单程航班上提供大幅折扣，从美国大陆和夏威夷出发的航班低至 39 美元，美国大陆内的航班低至 49 美元。
 
-Watch
+
 
 您可以在 这里 [搜索特价。](https://www.southwest.com/html/offers/clicknsave_sale_NonstopConnect_191231.html?irgwc=1&clickid=VnaxRUUmAxyJWKKwUx0Mo34VUknR3e0FzTjyzQ0) 
 

@@ -4,7 +4,7 @@
 
 如果你一直在通过[ged match](https://www.gedmatch.com/login1.php)——这曾是一个小众基因谱系网站——探索你的家谱，你应该知道它们已经被法医基因组学公司 、ver ogen[收购。然而，隐私政策并没有改变。](https://verogen.com/gedmatch-partners-with-genomics-firm/)
 
-Watch
+
 
 去年，调查人员用 GEDmatch 寻找金州黑仔 T3 的亲戚并追踪他们的嫌疑人，一夜之间 ged match 变得出名并备受争议。在那之前，它只是一个网站，你可以从 23andme 或 Ancestry 等 DNA 测试服务上传数据，并查看你可能与谁有血缘关系。
 

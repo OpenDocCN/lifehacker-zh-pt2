@@ -4,7 +4,7 @@
 
 点对点支付应用程序使得与朋友分摊账单变得很容易。但是，如果事情没有按计划进行，通过触摸屏按钮发送和请求资金的简单性可能会变得复杂。
 
-Watch
+
 
 Reddit 用户 [equkelly](https://www.reddit.com/r/personalfinance/comments/dlbhfz/someone_i_dont_know_just_venmod_me_1000_dollars/) 昨天发帖称，一个他们不认识的人在 Venmo 上给他们汇了 1， 000 美元。“我不知道这个人是谁，我想他们把它发给了错误的用户，”他们在 r/personalfinance 中写道。
 

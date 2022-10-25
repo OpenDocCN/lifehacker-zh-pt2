@@ -4,7 +4,7 @@
 
 如果你想要最多的选择和最少的竞争，秋季的第一周是买房的好时机。
 
-Watch
+
 
 正如 Miabelle Salzano 在 [大厦环球](https://www.mansionglobal.com/articles/black-friday-of-u-s-real-estate-is-next-week-207419) 报道的:
 

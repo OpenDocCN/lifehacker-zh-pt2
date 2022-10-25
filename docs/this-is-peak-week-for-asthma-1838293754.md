@@ -4,7 +4,7 @@
 
 如果你患有哮喘，并且最近感觉病情恶化，这不是你的想象:9 月 1 日被非正式地称为 [【高峰周】](https://community.aafa.org/blog/asthma-peak-week-is-here-here-are-some-tips-to-help-you-avoid-asthma-episodes) ，因为几个加重哮喘的因素汇集在一起。
 
-Watch
+
 
 首先，有豚草花粉。这是到处都是*的季节*。豚草是风媒传粉的，所以每株植物都会从它看起来不太绚丽的花朵上释放出数十亿粒花粉。(它与美丽的黄花同时绽放，但 [它们不是同一株](https://www.mnn.com/health/allergies/stories/dear-allergy-sufferers-dont-blame-goldenrod) 。)
 

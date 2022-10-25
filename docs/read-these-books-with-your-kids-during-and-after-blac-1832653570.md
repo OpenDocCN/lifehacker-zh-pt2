@@ -4,7 +4,7 @@
 
 正如我们在 之前说过的，教孩子感同身受的最好方法之一就是通过虚构。我不记得我在小学的任何关于 B 缺乏历史的讲座或课程，但我记得读过米尔德里德·泰勒的“ [《如雷贯耳，听我的呼喊](https://www.amazon.com/Roll-Thunder-Hear-My-Cry/dp/0142401129?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/read-these-books-with-your-kids-during-and-after-blac-1832653570&asc_source=&tag=kinjalifehackerlink-20) 》，9 岁的凯西·洛根在大萧条时期长大，几乎每天都经历着个人和机构的种族主义。 
 
-Watch
+
 
 如果你想帮助你的孩子和青少年实现黑人历史月的目标——庆祝成就并认识黑人在美国的作用——这里有一些专家推荐的书籍和录音可能会有所帮助。
 

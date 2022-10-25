@@ -4,7 +4,7 @@
 
 如果你拥有一台亚马逊 Echo 设备，你现在就可以免费获得四个月的亚马逊音乐无限服务——，前提是你之前没有订阅这项服务。
 
-Watch
+
 
 促销优惠的有效期为 2019 年 1 月 28 日至 2 月 5 日。为了利用这一优势，你需要 [进入亚马逊的促销页面](https://www.amazon.com/b/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/get-4-months-of-amazon-music-unlimited-for-free-right-n-1832272598&asc_source=&mnsid=mbnx33-20&node=18274646011&tag=kinjalifehackerlink-20) 并点击“立即尝试”按钮。(优惠仅限每个客户和账户一个。)
 

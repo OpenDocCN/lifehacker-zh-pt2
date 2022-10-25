@@ -4,7 +4,7 @@
 
 今天，购物应用 Instacart [的送货工人正在罢工](https://www.npr.org/2020/03/30/823767492/amazon-instacart-grocery-delivery-workers-strike-for-coronavirus-protection-and-) ，以获得更好的保护和报酬，因为冠状病毒爆发导致对他们服务的需求大幅增加。以下是你需要了解的关于罢工以及如何支持工人的信息。
 
-Watch
+
 
 ### 这是怎么回事？
 

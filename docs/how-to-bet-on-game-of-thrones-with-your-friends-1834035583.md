@@ -4,7 +4,7 @@
 
 我是赌博的狂热爱好者。我不是一个在拉斯维加斯玩扑克会输掉大量钱的人，但我确实喜欢三月疯狂支架、幻想体育和其他任何我可以赌少量现金以赢得朋友们的支持权的东西，这就是为什么我在这一季中一直在寻找一些方法来通过一些友好的赌注来增强《权力的游戏》。
 
-Watch
+
 
 如果你在拉斯维加斯下注， [布兰·史塔克有望登上](https://www.covers.com/Editorial/Article/09adbae9-5d46-11e9-a984-125516351e3a/Betting-on-HBOs-Game-of-Thrones-Odds-proposition-bets-and-predictions-for-Season-8) 宝座。他的赔率是+220。琼恩·雪诺得分+350，珊莎·史塔克以+500 排名第三。也就是说，丹妮莉丝以+700 落后不多。
 

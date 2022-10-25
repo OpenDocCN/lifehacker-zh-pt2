@@ -4,7 +4,7 @@
 
 今天早上，我听到了一个可怕的消息。显然，现在蛋黄酱短缺，全国许多商店的货架上都找不到一罐蛋黄酱。幸运的是，有很多方法可以自己制作蛋黄酱，我冒昧地为你收集了这些方法。
 
-Watch
+
 
 ### [如果你是公爵斯坦](https://skillet.lifehacker.com/how-to-make-your-own-dukes-style-mayonnaise-1833804415)
 

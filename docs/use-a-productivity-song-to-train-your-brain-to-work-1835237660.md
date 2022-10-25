@@ -4,7 +4,7 @@
 
 看过电影蒙太奇的人都知道激励人心的配乐的重要性。我们可能没有专业编辑来拼接我们为拳击比赛训练或为律师考试学习的镜头，但我们可以选择自己的音乐来帮助我们提高工作效率。
 
-Watch
+
 
 有 [很多](https://lifehacker.com/the-best-sounds-for-getting-work-done-5365012)[out](https://lifehacker.com/choose-unfamiliar-work-music-for-better-productivity-an-5987019)[there](https://lifehacker.com/the-lifehacker-work-playlists-your-ideal-music-for-get-1733478594)关于如何以及为什么听某些类型的音乐可以让我们完成更多的工作，但是我更进一步，训练我的大脑将某些音乐与工作时间联系起来。从技术上讲，这不是我最初故意做的事情，但它起作用了，所以我要继续做下去。
 

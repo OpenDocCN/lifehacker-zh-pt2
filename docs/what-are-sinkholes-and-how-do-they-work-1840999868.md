@@ -4,7 +4,7 @@
 
 本周在中国 ，一个天坑张开吞噬了一辆公共汽车，造成数人死亡。几个月前，另一个天坑 [在我的家乡匹兹堡](https://pittsburgh.cbslocal.com/2019/10/28/port-authority-bus-sinkhole-downtown-pittsburgh/) 的一辆公交车下面打开了；不过，在那种情况下，每个人都安全逃脱了。除了公交车，天坑还可以吞噬 [汽车](https://www.usatoday.com/story/news/nation/2014/02/12/corvette-museum-sinkhole/5417171/) 、行人、 [房屋](https://www.businessinsider.com/what-happens-when-a-sinkhole-swallows-a-house-2018-5) 。以下是天坑到底是什么以及它们是如何发生的概要。
 
-Watch
+
 
 ### 是什么导致了天坑？
 

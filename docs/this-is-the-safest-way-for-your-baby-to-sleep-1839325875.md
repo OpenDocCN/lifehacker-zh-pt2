@@ -4,7 +4,7 @@
 
 婴儿的父母既缺乏睡眠，又沉迷于睡眠。婴儿睡觉很重要，这样父母才有希望得到一点他们自己的休息，这就是我们如何能很快达到“尽一切努力”的策略。但是越来越多的报道显示，一些父母使用和喜爱的产品对他们熟睡的婴儿不安全。现在排在首位的是在床上睡觉的人。
 
-Watch
+
 
 我们今年早些时候了解到，倾斜的“睡眠者” [像摇滚乐](https://offspring.lifehacker.com/if-your-baby-can-roll-stop-using-your-fisher-price-roc-1833849390) ，与几十例婴儿死亡有关。现在，一项 [消费者报告调查](https://www.consumerreports.org/child-safety/more-infant-sleep-products-linked-to-deaths/) 得出结论，2012 年至 2018 年期间，几名婴儿床上睡觉者与至少 12 起死亡事件有关。这些床上睡眠者是为了与成人护理人员共享床位。
 

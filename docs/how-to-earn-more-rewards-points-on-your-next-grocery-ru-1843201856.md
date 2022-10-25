@@ -4,7 +4,7 @@
 
 如果你已经为了冠状病毒时代的购物而放弃了你的奖励信用卡 ，转而使用返现卡，那么可能是时候重新评估了。
 
-Watch
+
 
 不是因为返现卡不好，而是因为奖励卡开始适应我们的新常态。美国运通 [宣布](https://about.americanexpress.com/press-release/business-charge-cards/american-express-helps-consumers-and-small-businesses-get-most) 今天向持卡人提供新的或扩展的优惠，让他们有机会从我们现在实际购买的商品中获得奖励。
 

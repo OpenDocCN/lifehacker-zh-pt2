@@ -4,7 +4,7 @@
 
 面部识别技术引发了道德困境和隐私问题。我们的手机、电脑、 [社交媒体应用程序不仅能识别我们](https://lifehacker.com/how-to-stop-facebook-from-identifying-your-face-1837903031) ，还能 [收集并存储我们面部的数据](https://lifehacker.com/change-these-facebook-settings-to-protect-your-photos-f-1841131425) ，这样可以吗？随着技术变得越来越精确，越来越多的政府机构、私营企业和 [广告公司](https://www.businessnewsdaily.com/15213-walgreens-facial-recognition.html) 利用它 [来跟踪我们](https://www.usatoday.com/story/tech/2020/02/26/clearview-ai-data-theft-stokes-privacy-concerns-facial-recognition/4883352002/) 。
 
-Watch
+
 
 然而，事实证明这些复杂的面部识别算法可以通过戴一个简单的面具来挫败。是的， [帮助防止致命疾病传播的工具](https://vitals.lifehacker.com/how-masks-protect-us-from-the-coronavirus-1844220877) 同样可以让你的身份隐藏在准 [监视状态](https://lifehacker.com/tiktok-and-other-apps-are-secretly-reading-your-clipboa-1844248653) 我们现在生活的。
 

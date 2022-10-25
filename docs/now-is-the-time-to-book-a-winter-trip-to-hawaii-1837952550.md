@@ -4,7 +4,7 @@
 
 如果你正在考虑去夏威夷的冬季旅行，那么现在是时候开始寻找航班了。
 
-Watch
+
 
 飞行网站 Hopper [最近告诉 Travel + Leisure](https://www.travelandleisure.com/trip-ideas/island-vacations/when-to-start-planning-hawaii-winter-vacation) 十月是一年中飞往夏威夷最便宜的时候。这个月经济舱的平均价格是 511 美元。每年飞往该州第二便宜的时间是 11 月，往返机票平均价格为 604 美元。一月也是去的好时机。那时航班的平均费用是 617 美元。
 

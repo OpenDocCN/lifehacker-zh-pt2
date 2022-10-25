@@ -4,7 +4,7 @@
 
 我们大多数人都没有达到政府(或其他任何人)的 [锻炼指南](https://lifehacker.com/how-much-exercise-do-i-really-need-1823708126) ，这是一个耻辱，因为除了减肥，锻炼还有一百万个原因对我们有好处。今天发布的 [新指南](https://health.gov/news/blog/2018/11/updated-physical-activity-guidelines-for-americans-now-available/) 甚至更容易满足，它们包括对 3 岁及以上儿童的建议。
 
-Watch
+
 
 推荐的运动量没有改变，但不再有 10 分钟的最低量。所以上班爬楼梯的几分钟，跑步赶公交车的几分钟，用一个 app 做一个 [七分钟的锻炼](https://lifehacker.com/use-alexa-as-a-7-minute-workout-coach-with-this-skill-1828445511) 都算。
 

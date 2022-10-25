@@ -4,7 +4,7 @@
 
 还记得早期的疫情吗，那时人们谈论最多的避免新冠肺炎的方法是洗手，不要摸脸？虽然我们 [现在对口罩](https://lifehacker.com/why-advice-on-masks-seems-to-be-constantly-changing-1843956784)[潜在的空气传播](https://lifehacker.com/what-would-it-mean-if-the-coronavirus-is-airborne-1844281525) 有了更多的了解，但我希望你还没有停止洗手。
 
-Watch
+
 
 其他呼吸道病毒，包括感冒和流感，可以通过空气中的飞沫和表面的飞沫传播。由于这种冠状病毒是新的，科学家们仍在研究每种传播方式有多普遍。
 

@@ -4,7 +4,7 @@
 
 如果你曾经站在你的回收箱前——不确定你手中的垃圾是否可回收——然后把它扔了进去，这篇文章是给你的。
 
-Watch
+
 
 在 [琼斯母亲](https://www.motherjones.com/environment/2019/08/recycling-wishcycling-china-plastics-zero-waste-bags-straws/) 中，作家杰姬·弗林·莫根森追踪了“愿望循环”的影响，当消费者犯下这种垃圾失礼行为，希望在某个时候，他们的垃圾会找到它应有的位置，无论是与其他类似的可回收物在一起还是在填埋场。
 

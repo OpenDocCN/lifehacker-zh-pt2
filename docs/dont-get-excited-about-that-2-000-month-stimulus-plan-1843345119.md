@@ -4,7 +4,7 @@
 
 当许多美国人继续等待他们的冠状病毒救济支票或失业救济金时，有一项计划正在制定中，以提供另一笔救济款项——这将是每月一次。
 
-Watch
+
 
 参议院民主党人 [提出了一项](https://www.harris.senate.gov/imo/media/doc/Monthly%20Economic%20Crisis%20Support%20Act%20Bill%20Text.pdf) 法案，该法案将在疫情期间给予大多数美国人每月 2000 美元。
 

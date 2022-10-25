@@ -4,7 +4,7 @@
 
 很难让你所有的球都在空中，但一点点多任务处理会有所帮助——直到你把它们扔得满地都是，因为你还试图回复一条短信或什么的。有时候，同时做两件事会比专注于一件事更没效率。以下是判断这种情况何时发生的方法。
 
-Watch
+
 
 通常情况下，今天的答案来自 Fast Company 制作的一个精心制作的 [流程图](https://www.fastcompany.com/90264034/this-chart-will-show-you-when-you-can-multitask-and-when-you-cant?partner=feedburner&utm_source=feedburner&utm_medium=feed&utm_campaign=feedburner+fastcompany&utm_content=feedburner) 。这张图表将人们倾向于一个接一个堆叠的任务类型分为 1、2、3 三类，1 是多任务的好时机，3 是禁区。这是一种常识性的东西，但也许不是我们在一堆项目中可以清楚思考的东西。
 

@@ -4,7 +4,7 @@
 
 Spirit Airlines 的大型前排座椅间距为 36 英寸，宽度为 18.5 英寸，没有大型航空公司头等舱中 38 英寸间距、20 英寸宽度的座椅那么大。然而，它们比经济舱的座位大得多，在某些情况下，也更实惠。
 
-Watch
+
 
 随着 [的分家伙](https://thepointsguy.com/guide/is-spirit-airlines-big-front-seat-worth-it/) 解释道:
 

@@ -4,7 +4,7 @@
 
 你知道你需要一份遗嘱。为什么不使用在线法律服务，或者自己写呢？
 
-Watch
+
 
 正如职业信托人和遗嘱执行人玛格丽特·c·洛伦茨解释的那样， [一份 DIY 遗嘱可能会带来比它所解决的更多的问题:](https://www.nextavenue.org/do-it-yourself-online-wills/)
 

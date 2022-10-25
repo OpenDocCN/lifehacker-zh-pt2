@@ -6,7 +6,7 @@
 
 免费 DNS 提供商 Cloudflare 最近发布了一款全新的应用程序，用于 [**iOS**](https://itunes.apple.com/us/app/1-1-1-1-faster-internet/id1423538627?mt=8) 和[**Android**](https://play.google.com/store/apps/details?id=com.cloudflare.onedotonedotonedotone&hl=en_US)，【1.1.1】，这使得通过 [该服务的高速服务器](https://www.cloudflare.com/learning/dns/what-is-1.1.1.1/) ，而不是你的 ISP(可能更慢)服务器来路由你设备的所有 DNS 请求变得非常容易。换句话说，这会让你的网页浏览感觉更快。更好的是，Cloudflare 表示，它不会存储任何关于你正在浏览的内容的数据——这可能与你的 ISP 不同。有什么不喜欢的呢？
 
-Watch
+
 
 这款应用可以免费安装和使用，但有一个小问题。Cloudflare 首席执行官 Matthew Prince 在 [回复](https://blog.cloudflare.com/1-thing-you-can-do-to-make-your-internet-safer-and-faster/#comment-4190526220) 几天前的一篇博客评论中调侃了这个问题:
 

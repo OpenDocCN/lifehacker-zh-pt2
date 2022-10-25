@@ -4,7 +4,7 @@
 
 我不知道你能不能看出来，但是我最近买了一个华夫饼干机，并且一直在测试华夫饼干的极限。(火腿事实证明，华夫饼干做得很好。)我已经计划将所有的 [剩余馅料](https://lifehacker.com/turn-leftover-stuffing-into-crispy-cheesy-waffles-1839968945) 烤成华夫饼，土豆泥似乎是合理的下一步。
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Make These Parm-Crusted Waffles With Leftover Mashed Potatoes](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/turn-leftover-stuffing-into-crispy-cheesy-waffles-1839968945)</aside>
 

@@ -4,7 +4,7 @@
 
 自从 5 月 25 日明尼阿波利斯警察 [打死乔治·弗洛伊德](https://lifehacker.com/how-to-fight-for-justice-for-george-floyd-1843703041) 后，正在进行的 [示威游行在全美 50 个州](https://www.nbcnews.com/news/us-news/map-protests-rallies-george-floyd-spread-across-country-n1220976) 爆发。虽然成千上万的人参加了抗议活动，但许多其他人——否则他们会加入抗议活动——留在家里，因为我们也处于全球疫情之中。但这并不意味着你不能与其他人互动，不能就种族问题进行有意义的对话。就像我们现在生活中的其他事情一样，这可能会发生。
 
-Watch
+
 
 一个名为 [公民晚餐](https://www.civicdinners.com/) 的组织——旨在促进社区晚餐以减少隔离——已经与 [国王中心](https://thekingcenter.org/) 合作建立虚拟晚餐，在那里人们可以与他们通常圈子之外的人就种族和不公正进行富有成效的对话。
 

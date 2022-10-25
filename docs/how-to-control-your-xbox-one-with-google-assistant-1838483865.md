@@ -4,7 +4,7 @@
 
 现在有更多的方法让你不用控制器就能操作你的 Xbox One。微软宣布，它在谷歌助手上推出了一项技能，允许你使用 iOS 和 Android 上的谷歌助手应用程序控制控制台上的基本导航和系统级命令。这听起来像是没人需要的东西，但在你尝试之前不要吹毛求疵——事实证明，免提浏览你的 Xbox One 实际上很有帮助。
 
-Watch
+
 
 在这一点上，使用语音命令控制 Xbox One 肯定是过时的。这是该游戏机在 2013 年推出时的一个关键功能，当时它通过现已不存在的 Kinect 摄像头，然后通过使用数字助理[【Cortana】](https://support.xbox.com/en-US/xbox-one/voice-and-digital-assistants/set-up-cortana-as-a-digital-assistant-for-xbox-one)[【Alexa](https://support.xbox.com/en-US/xbox-one/voice-and-digital-assistants/set-up-alexa-as-digital-assistant-xbox-one)。Google Assistant 的加入不仅增加了功能，还增加了选择。不要误解我:选择是伟大的。如果你喜欢使用一个虚拟助手，如果其他虚拟助手是你最喜欢的设备专用的，那么切换到其他虚拟助手会很烦人。
 

@@ -4,7 +4,7 @@
 
 如果你在你的职业中有哪怕一盎司的野心，总会有其他人得到你想要的东西的时候:晋升、荣誉、压力。
 
-Watch
+
 
 这不是一种只属于一种职业的感觉；如果不止一个人在做你所做的事情，你可能已经看到他们获得了你认为应该获得的成功。也许你会，但是坐在嫉妒和怨恨的情绪中不会让你成功。Radreads [分享了](https://radreads.co/help-im-envious-of-my-friends/?utm_source=Rad&utm_campaign=61d0d811b5-RR172_COPY_01&utm_medium=email&utm_term=0_bcb3ed60c4-61d0d811b5-193202613) 一些关于如何让嫉妒控制你的基本建议——因为它肯定不会让你在工作中表现得更好。
 

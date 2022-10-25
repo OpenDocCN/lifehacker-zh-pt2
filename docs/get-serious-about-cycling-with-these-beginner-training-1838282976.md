@@ -4,7 +4,7 @@
 
 自行车骑得怎么样了？如果你是第一次参加 [我们的健身挑战赛](https://lifehacker.com/this-september-lets-ride-our-bikes-1837912381) ，今年九月我们一直在骑自行车(室内或室外)进行一些自行车训练。如果你玩得开心，想更上一层楼，这里有一些初学者训练计划可以尝试。
 
-Watch
+
 
 如果你只是想要一个变得更好的粗略指南，引用 FuzzyCollege 在[r/cycling](http://reddit.com/r/cycling)subreddit[上的一段话很好地总结了这一点](https://www.reddit.com/r/cycling/comments/cs4dfw/how_do_go_from_20kmh_rider_to_2530kmr_rider/excjp48/) :
 

@@ -4,7 +4,7 @@
 
 [*《我们最后的人 2》*](https://kotaku.com/the-last-of-us-part-ii-the-kotaku-review-1844006193)可能是 PlayStation 4 游戏有史以来最响亮的声音。我说的不是声音设计，虽然它令人印象深刻。我说的是游戏对基本上任何 PlayStation 4 的影响。启动顽皮狗的最新杰作，你几乎听不到遥控器的声音盖过了控制台风扇无休止的尖叫。这就像试图在房间里玩汽船游戏。
 
-Watch
+
 
 你永远也不可能让它安静下来，尤其是在今天的大型资源密集型游戏中。(*我们最后 2 个*不好。*星球大战绝地:堕落金刚*也是臭名昭著的罪魁祸首。谁知道那些代沟游戏，像 [*赛博朋克 2077*](https://kotaku.com/cyberpunk-2077-is-complex-and-overwhelming-but-it-work-1844163262) 和 [*刺客 3*](https://kotaku.com/everything-we-know-about-the-playstation-5-1844017899) ，听起来会是什么样子。)除了购买军用级降噪耳机，你还可以采取一些措施来处理声音。他们来了。一如既往，如果你有任何天才的锦囊妙计，请分享。
 

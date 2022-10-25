@@ -4,7 +4,7 @@
 
 Android 的一大优点是你有大量不同的键盘可供选择。虽然你可能知道如何用新的东西替换默认键盘，但你可能没有意识到，你的三星 Galaxy 手机也附带了一种让默认键盘更容易使用的方法。
 
-Watch
+
 
 *GadgetHacks* [本周在三星手机上强调了一个有点的隐藏键盘设置](https://android.gadgethacks.com/how-to/stop-squinting-your-galaxys-keyboard-type-faster-with-simple-setting-0243398/) ，它允许你改变手机键盘的对比度，这一举动可以使其更容易被看到，从而更容易打字。
 

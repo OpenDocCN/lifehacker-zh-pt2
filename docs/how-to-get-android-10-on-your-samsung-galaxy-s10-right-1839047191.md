@@ -4,7 +4,7 @@
 
 购买非像素 Android 智能手机的一个令人不快的地方是，你要感谢制造商提供的 Android 更新。换句话说，谷歌设备通常会先获得像 Android 10 这样的重大升级，如果你花了一大笔钱买了三星或华为的设备，你不得不坐在那里嫉妒，直到你得到机会——可能是在事情发生后的几个月。
 
-Watch
+
 
 美国、韩国和德国的三星 Galaxy S10、S10+和 S10e 智能手机用户现在将有机会试用“Android 10”。我把它放在引号中，因为你真的有机会注册测试版的[One UI 2.0](https://news.samsung.com/global/one-ui-beta-program-enjoy-android-10-on-galaxy-s10-starting-today)——三星的定制 UI，它建立在股票 Android 的基础上。
 

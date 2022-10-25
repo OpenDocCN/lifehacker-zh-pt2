@@ -4,7 +4,7 @@
 
 你有没有注意到你的眼睛最近特别干燥？这可能有多种原因，包括戴口罩。但是在我们进一步讨论之前，让我们明确一点:干眼症不是在需要的情况下停止戴口罩的借口，T2。尤其是这种情况，因为有处理这种情况的方法。而这就是我们今天要讨论的:如何治疗面膜相关的干眼症。以下是你需要知道的。
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Treat Face Mask-Related Dry Eye](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/put-your-mask-over-your-damn-nose-1844132568)</aside>
 

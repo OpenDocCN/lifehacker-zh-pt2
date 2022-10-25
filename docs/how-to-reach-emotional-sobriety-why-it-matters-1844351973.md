@@ -4,7 +4,7 @@
 
 当我们想到戒酒时，通常是指不再使用酒精或娱乐性药物，但事实远比这复杂。根据《精神疾病[诊断和统计手册》(DSM)中的定义，清醒意味着“没有喝醉”，然后继续解释说，清醒更多的是关于](https://www.verywellmind.com/the-diagnostic-and-statistical-manual-dsm-2795758) [没有饮酒问题](https://www.northernillinoisrecovery.com/rehab-blog/what-is-sobriety/) ，而不是关于完全戒酒。
 
-Watch
+
 
 还有情绪上的清醒，一位有执照的婚姻和家庭治疗师雷切尔·芬奇·伍兹 说，这包括“学会处理令人不舒服的感觉、想法和行为，这些是上瘾行为试图掩盖或避免的。它需要以健康和建设性的方式面对和管理我们的情绪，而不是诉诸伤害自己或他人的方法。”在一篇关于 PsychCentral 的 [文章中，伍兹讨论了情绪上的清醒以及如何做到这一点。以下是你需要知道的。](https://blogs.psychcentral.com/cultivating-contentment/2020/06/how-to-achieve-emotional-sobriety/)
 

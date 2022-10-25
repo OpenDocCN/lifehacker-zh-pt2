@@ -5,7 +5,7 @@
 我们国家的学生贷款债务是惊人的。随着联邦贷款余额超过 1.5 万亿美元，各个年龄段的借款人都在苦苦挣扎。幸运的是，政府已经采取措施简化还款程序。
 二月，教育部[宣布为 StudentAid.gov 新升级](https://www.ed.gov/news/press-releases/federal-student-aid-delivers-secretary-devos-promise-modernize-personalize-customer-experience) 。这些更新是总统 2021 财年 [预算提案](https://www.ed.gov/news/press-releases/president-trump-proposes-transformative-student-first-budget-return-power-states-limit-federal-control-education) 的一部分，以简化学生贷款和还款选择。
 
-Watch
+
 
 该网站的新工具之一贷款模拟器提供了三种方法，让学生贷款决策更容易。该工具根据您的需求和目标，引导您回答一系列问题。目前有两种情况——第三种方案正在酝酿中。
 

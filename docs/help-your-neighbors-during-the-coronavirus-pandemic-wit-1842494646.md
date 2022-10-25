@@ -4,7 +4,7 @@
 
 我们很多人被困在里面，但这并不意味着我们不能成为好邻居，互相帮助。 [Nextdoor](https://nextdoor.com/) 最近推出了一项新的“ [帮助地图](https://blog.nextdoor.com/2020/03/18/nextdoor-launches-help-map-and-groups-to-bring-neighbors-together/) ”功能，让用户自愿为周围的人承担额外的家务和其他有益的活动。这一功能可以为老年居民、大家庭以及在新冠肺炎疫情爆发期间需要额外援助的患病或有特殊需求的个人带来巨大变化。
 
-Watch
+
 
 帮助地图功能已经测试了一段时间，但它现在对所有移动用户开放-你只需要首先更新你的 Nextdoor 应用程序。解决了这个问题后，下面是如何找到新的帮助地图并向您的社区伸出援手:
 

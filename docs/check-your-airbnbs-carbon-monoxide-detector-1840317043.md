@@ -4,7 +4,7 @@
 
 5 月， [六名游客](https://www.yahoo.com/news/6-brazilian-tourists-die-carbon-monoxide-chile-235023548.html) 在智利圣地亚哥的一家 Airbnb 租赁酒店住宿时死于一氧化碳中毒。这不是一个孤立的事件。2018 年， [一对去墨西哥圣米格尔德阿连德](https://www.usatoday.com/story/travel/2018/12/11/airbnb-security-mexico-costa-rica-deaths/2239544002/) 旅游的夫妇也在不知情的情况下吸入了他们 Airbnb 出租房里的加热器发出的气体后死亡。
 
-Watch
+
 
 虽然 Airbnb *建议*主机安装一氧化碳和烟雾探测器，而 [向符合条件的租户免费提供](https://www.airbnb.com/trust/home-safety) ，但根据其 [网站](https://www.airbnb.com/help/article/515/im-a-host-should-i-have-a-smoke-and-carbon-monoxide-co-detector-installed) 的说法，租赁平台实际上并不要求安装一氧化碳和烟雾探测器。(不过在某些城市和州，比如 [纽约](https://www.universalsecurity.com/legislation/#ny) 和 [加州](https://losangeles.cbslocal.com/2011/07/05/new-law-mandates-carbon-monoxide-detectors-in-calif-homes/) ，反正大多数家里都需要探测器。)
 

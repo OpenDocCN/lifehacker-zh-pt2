@@ -4,7 +4,7 @@
 
 自从他在 2001 年代托纳 500 中去世后，戴尔·恩哈特可能已经成为美国赛车界最受尊敬的车手。这位恐吓者激励了一代 [纳斯卡](https://jalopnik.com/c/racing) 车迷，人们继续通过在各种东西上扔他的制服来表达敬意，包括这辆 [特斯拉 Model 3](https://jalopnik.com/tag/tesla-model-3) 。
 
-Watch
+
 
 老恩哈特的失事引发了赛车界的安全革命，但除此之外，他还激励了数百万人，甚至成为了一个迷因:升起地狱，赞美戴尔！Slate 声称 Sr 的迷因地位 [将他提升为狂热爱好者中的圣徒](https://slate.com/human-interest/2019/04/dale-earnhardt-memes-intimidator-nascar-rabbit-holes.html) 。
 

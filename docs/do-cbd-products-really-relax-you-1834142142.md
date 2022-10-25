@@ -4,7 +4,7 @@
 
 除了油和酊剂，你现在还可以以泡制软糖、 [美食甜点](https://www.foodabletv.com/blog/cbd-infused-cocktails-ice-cream-and-desserts-are-on-the-rise) ，甚至是某精品妇科门诊 [提供的苏打水](https://jezebel.com/tia-the-boutique-gyno-wants-a-whole-lot-of-data-about-1833469897) 的形式消费 CBD。市场营销绝对领先于科学，所以下面是关于这些说法背后的真相。
 
-Watch
+
 
 ### CBD 与焦虑的研究
 

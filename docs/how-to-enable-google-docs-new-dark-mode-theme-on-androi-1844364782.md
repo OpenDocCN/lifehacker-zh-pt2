@@ -4,7 +4,7 @@
 
 谷歌*终于*给安卓系统上的谷歌文档和幻灯片增加了和[黑暗模式。新的深色主题看起来与其他第一方谷歌应用程序中的相同:亮白色被深色灰色和黑色取代，这对眼睛和电池来说应该更容易。](https://gsuiteupdates.googleblog.com/2020/07/dark-theme-google-docs-sheets-slides-.html)
 
-Watch
+
 
 作为一个 Android 用户和铁杆黑暗- 模式倡导者，这是我的耳朵(眼睛)的音乐？).不幸的是，没有消息表明 iOS 版本是否也会有黑暗模式主题。
 

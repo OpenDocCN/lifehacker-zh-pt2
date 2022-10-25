@@ -4,7 +4,7 @@
 
 如果你有一段时间没有拿起控制器，你可能会把你的孩子的视频游戏视为无意识的乐趣，或者作为他们打扫房间的奖励。但是视频游戏可不止这些。当沉浸在虚拟世界中时，孩子们可以学习如何解决复杂的问题——，这是他们在屏幕上的生活结束后很久还需要的技能。
 
-Watch
+
 
 新书 [*养育一个屏幕聪明的孩子*](https://www.amazon.com/Raising-Screen-Smart-Kid-Embrace-Digital/dp/0143132075?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/help-your-kid-become-a-better-problem-solver-with-these-1836901629&asc_source=&tag=kinjalifehackerlink-20) 的作者朱莉安娜·迈纳(Julianna Miner)告诉我，最好的电子游戏可以帮助孩子练习策略、即兴创作、资源管理、协作和情境意识。“孩子们可能不明白，收集硬币并选择如何在游戏中最大限度地利用它们的行为实际上是在教授一些关于资源分配的宝贵课程，”她说。
 

@@ -4,7 +4,7 @@
 
 一项新的研究表明，积极思考的力量也会对你的银行存款余额产生积极影响。
 
-Watch
+
 
 [杂色傻子](https://www.fool.com/retirement/2019/04/21/why-a-bright-outlook-in-life-can-help-you-save-mor.aspx) 报道:
 

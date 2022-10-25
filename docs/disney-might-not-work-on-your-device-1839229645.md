@@ -4,7 +4,7 @@
 
 那些期待着 [即将到来的迪士尼+](https://lifehacker.com/see-what-s-coming-to-disney-plus-before-it-launches-1838178773) 的人可能想先仔细检查一下他们的首选设备是否真的可以运行流媒体服务。 [根据 Linux 开发者 Hansdegoede](https://hansdegoede.livejournal.com/22338.html) 的说法，Linux PCs、Chromebooks 和一些 Android 设备无法满足迪士尼通过网络浏览器访问 Disney+所必需的严格 DRM 要求。
 
-Watch
+
 
 Disney+使用“wide vine”DRM，根据 1(低)到 3(高)之间的安全级别限制对内容的访问。大多数流媒体服务只要求设备满足 1 级安全才能观看(非 4K)内容，但 Disney+仅适用于满足 3 级安全的设备。Linux、Chromebooks 和一些旧的 Android 设备只与 1 级兼容，这意味着所有这些设备都被锁定在该服务之外。迪士尼意识到了这个问题，并告诉 Hansdegeode，这个问题在 9 月份就已经解决了，但错误仍然存在。
 

@@ -4,7 +4,7 @@
 
 有时，最好的黑客是最简单的。毫不奇怪，Chrome 扩展 [**Simplify**](https://chrome.google.com/webstore/detail/simplify-gmail/pbmlfaiicoikhdbjagjbglnbfcbcojpj) 是我的新宠之一，因为它将所有杂乱的东西都放入了 Gmail 和灭霸，让它们湮没无闻。
 
-Watch
+
 
 如果你是一个普通的 Gmail 用户，你可能甚至不会认为这项服务的网络体验一开始就那么混乱。我明白了。自从 Gmail 问世以来，我就一直在使用它，感觉很熟悉，尽管我确实同意 Simplify 开发者迈克尔·莱格特(Michael Leggett)的观点，即左上角的巨大图标和标志有点招摇。
 

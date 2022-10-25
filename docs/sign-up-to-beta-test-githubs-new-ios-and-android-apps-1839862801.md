@@ -4,7 +4,7 @@
 
 Github 是一个优秀的 [资源，适用于所有级别的](https://lifehacker.com/fund-your-favorite-open-source-projects-using-githubs-n-1834983571) 程序员，并且是一个很好的现成软件和开发工具的仓库。该网站除了在桌面上使用之外，在其他任何地方使用都很麻烦，但这可能很快就会改变，因为 GitHub 正在要求你帮助测试一个新的专用应用程序。
 
-Watch
+
 
 要开始使用，你可以查看 GitHub 的 [官方测试版注册页面](https://github.com/mobile) ，或者你可以直接跳转到你选择的平台——[**iOS**](https://github.com/mobile/beta?platforms=ios)或者[**Android**](https://github.com/mobile/beta?platforms=android)——如果你有 [一个活跃的 GitHub 账号](https://github.com/join) 。iOS 测试版目前已经上线，Android 测试版更像是一个等待列表，而不是一个你现在就可以获得的应用。
 

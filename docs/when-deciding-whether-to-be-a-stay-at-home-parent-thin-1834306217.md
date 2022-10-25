@@ -4,7 +4,7 @@
 
 辞去工作成为全职妈妈是一个非常个人化的决定，涉及许多不同的因素。当然，还有财务方面的。还有变化会如何影响你的孩子(尽管 [这是主观的](https://www.fastcompany.com/90338409/we-need-to-stop-shaming-women-for-wanting-or-not-wanting-to-return-to-work) )。
 
-Watch
+
 
 然后就有这个问题了。这是一个有时会在处理数据的紧张过程中迷失的变量，但和其他变量一样，它也是一个重要的变量。
 

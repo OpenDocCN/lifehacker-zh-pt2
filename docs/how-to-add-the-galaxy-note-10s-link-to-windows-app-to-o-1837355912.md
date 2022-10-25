@@ -4,7 +4,7 @@
 
 三星的“链接 Windows”功能很像微软的 [你的手机](https://lifehacker.com/how-to-get-android-notifications-on-your-windows-pc-1836078297)app；它可以让你通过快速设置菜单将 Galaxy Note 10 系列手机同步到 PC。连接后，您可以直接从 Windows 桌面访问您的消息应用程序、通知、照片和其他手机功能。
 
-Watch
+
 
 链接到 Windows 的唯一要求是你有一台全新的 Galaxy Note 10 设备，但功能实际上 也可以在任何使用三星专有 One UI 的 Galaxy 设备上正常工作，包括 Galaxy S9 和 S8 智能手机，以及 Galaxy Note 8 和 9。
 

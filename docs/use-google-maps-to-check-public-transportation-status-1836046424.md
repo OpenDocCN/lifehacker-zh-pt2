@@ -4,7 +4,7 @@
 
 我们很多人依赖公共交通，但有时你当地的交通系统一点也不可靠。我们这些使用它上下班的人已经习惯了挤在公交车和地铁车厢里，但有时乘客太多，你无法上车——或者更糟的是，你的公交车从你身边疾驰而过，因为它无法容纳更多的人。其他时候，由于交通事故、建筑或机械问题造成的延误会让你的通勤慢得近乎爬行。
 
-Watch
+
 
 幸运的是， [谷歌地图现在可以给我们所有人提前警告](https://www.blog.google/products/maps/grab-seat-and-be-time-new-transit-updates-google-maps/) 公共交通拥挤和延误，就像它可以猜测餐馆的等待时间一样。 [实时延迟更新](https://ai.googleblog.com/2019/06/predicting-bus-delays-with-machine.html) 和 [拥挤度评分](https://www.blog.google/products/maps/transit-crowdedness-trends-around/) 最近刚刚在 Android 和 iOS 的谷歌地图应用中推出。该功能支持全球 200 个主要城市，未来还会有更多。
 

@@ -4,7 +4,7 @@
 
 2019 年将带来许多变化，包括高尔夫运动的一些重大变化。
 
-Watch
+
 
 美国高尔夫协会和圣安德鲁斯皇家和古代俱乐部，以及 PGA 巡回赛和其他人的意见，为这项运动制定了新的规则，将于明年实施，所有的目标都是使这项运动对玩家更友好，，更容易理解，动作更快， [报道*《环球邮报》&*](https://www.theglobeandmail.com/sports/golf/article-golf-introducing-new-rules-for-2019-to-make-the-game-more-player/?cmpid=rss&utm_source=dlvr.it&utm_medium=twitter)。
 

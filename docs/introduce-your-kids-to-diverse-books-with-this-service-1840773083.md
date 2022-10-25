@@ -4,7 +4,7 @@
 
 在我们孩子的书架上放满各种各样的人物、故事情节和家庭结构是许多父母喜欢做的事情。然而，能够真正地*找到*大量高质量的包容性书籍，说起来容易做起来难。
 
-Watch
+
 
 许多以不同人物为特色的书籍是由外国出版社或较小的出版商出版的，它们没有庞大的营销和分销网络，无法将书籍送到需要它们的家庭面前。这就是为什么艾莉·哈珀推出了[our shells](https://www.ourshelves.com/)，这是一项儿童书籍订阅服务，为其成员策划这些书籍。她最近在 [一个坏母亲播客](https://maximumfun.org/episodes/one-bad-mother/one-bad-mother-episode-332-apologies-plus-alli-harper-of-ourshelves/) 中谈到了她推出我们的书架的决定:
 

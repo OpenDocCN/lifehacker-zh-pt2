@@ -4,7 +4,7 @@
 
 在为期三周的饮食中，我了解到了 [我自己与食物的关系](https://earther.gizmodo.com/i-can-t-eat-much-meat-on-the-planetary-health-diet-but-1832653091) 以及 2050 年饮食的 [起伏](https://earther.gizmodo.com/i-followed-the-planetary-health-diet-during-a-week-of-f-1832464856) 。这个星期，我看了看我的冰箱，意识到有一件事我一直在努力。
 
-Watch
+
 
 推开菠菜，我羞愧地盯着那些装着最好的意图，却在梅森罐子和其他各种容器里慢慢枯萎变形的剩菜。我看着我准备加入动物园的纯素玉米片奶酪(你*有 [来制作](https://www.101cookbooks.com/ultimate-vegan-nachos-recipe/) 即使你对纯素的任何东西都嗤之以鼻)，想知道它是否会遭遇同样发霉的命运。虽然吃被称为行星健康餐盘的食物让我专注于餐盘上的食物，但它也让扔进垃圾桶的食物变得清晰起来。*
 

@@ -4,7 +4,7 @@
 
 让一家航空公司的 [与你在另一家航空公司的](https://lifehacker.com/how-to-get-an-airline-to-match-your-elite-status-from-a-1836567069) 精英地位相匹配并不总是那么容易。例如，美国航空公司通常要求你额外支付一点现金才能获得资格。然而,西南航空公司,是目前正在提供一笔你应该好好利用的交易。
 
-Watch
+
 
 在 12 月 31 日之前，西南航空公司将免费为您在任何其他美国航空公司的精英会员身份提供西南航空公司的顶级会员身份。U 一般来说，你必须至少乘坐 [25 次单程航班](https://www.southwest.com/rapidrewards/tiers-more-alist) 或赚取 35，000 积分才能获得该身份。
 

@@ -4,7 +4,7 @@
 
 把你的简历和求职信放在一起是我们很多人现在面临的一个挑战。数百万人目前正在找工作，而 [正在应对经济衰退](https://twocents.lifehacker.com/what-to-do-with-your-money-now-that-were-in-a-recesssio-1843966353) 和 [高失业率](https://twocents.lifehacker.com/why-todays-optimistic-unemployment-report-is-still-not-1843922829) 由于一个全球性的疫情，更不用提通常的担忧了: 你如何推销自己，却不显得 [*太过自吹自擂*](https://lifehacker.com/it-s-ok-to-brag-in-your-resume-just-do-it-right-1801986342)？你是否应该加入或做出一些大胆的举动，让你从众多应聘者中脱颖而出，还是会让你看起来像一个不懂企业文化的怪人？如果你已经有一段时间没有润色自己的简历了，那么在如何向潜在雇主描述自己的问题上，你可能会一片空白。这里有 53 个词，你可以考虑把它们写进你的简历或者下一次工作面试中。
 
-Watch
+
 
 ### 词语很重要
 

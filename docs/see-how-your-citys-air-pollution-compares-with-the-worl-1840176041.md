@@ -4,7 +4,7 @@
 
 微粒只是空气污染的一个组成部分，但它们对健康构成了重大威胁——尤其是那些小于 2.5 微米的微粒。 [微粒污染](https://www.epa.gov/pm-pollution/particulate-matter-pm-basics) 会加重哮喘 [会导致心脏病、中风和其他健康状况](https://www.who.int/airpollution/ambient/health-impacts/en/) 。因此...你吸入了多少？
 
-Watch
+
 
 《纽约时报》的 [有一个工具](https://www.nytimes.com/interactive/2019/12/02/climate/air-pollution-compare-ar-ul.html?action=click&module=Top%20Stories&pgtype=Homepage) ，可以将你所在城市的空气污染水平(由 [伯克利地球](http://berkeleyearth.org/air-quality-real-time-map/) 计算，其中也有一些漂亮的地图)与世界上一些污染最严重的城市进行比较。
 

@@ -4,7 +4,7 @@
 
 当你用信用卡注册免费试用时，你可能会忘记取消，网飞、Spotify、Audible 或 HBO 将开始按月收费。有些服务很难取消，有些 [像 MoviePass](https://lifehacker.com/how-to-stop-moviepass-from-reversing-your-cancellation-1828331003) ，甚至“不可取消”你。对于那些想注册免费试用订阅服务的高级用户来说，现在有了一个新工具。但是每月要花 3 美元。
 
-Watch
+
 
 [DoNotPay](https://apps.apple.com/app/id1427999657) 是一款 iOS 应用，用于对抗交通罚单、提交政府文件、处理客户服务以获得退款，以及其他金融谈判任务。现在，该应用程序提供免费试用卡，这是一种虚拟信用卡，你可以使用它来注册免费试用，而不会泄露你的个人电子邮件地址、物理地址甚至真实姓名。
 

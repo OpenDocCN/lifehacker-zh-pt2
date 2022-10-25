@@ -4,7 +4,7 @@
 
 你可能已经知道我喜欢学习新技能，无论是 [在衣服上缝补丁](https://vitals.lifehacker.com/to-feel-better-about-yourself-learn-a-small-new-skill-1838530362) 还是 [徒手将苹果撕成两半](https://vitals.lifehacker.com/how-to-split-an-apple-in-half-with-your-bare-hands-1839415314) 。这就是我喜欢[r/learnuselestalents](https://www.reddit.com/r/LearnUselessTalents/)子编辑的原因。
 
-Watch
+
 
 我第一次发现它是在找苹果劈视频的时候， [它送来了](https://www.reddit.com/r/LearnUselessTalents/comments/dszyej/how_to_split_an_apple_in_half_without_a_knife/) 。其他帖子的有用性各不相同:通常这只是一些很酷的东西的抖音，以“你是怎么做到的？”的形式发布请求。其他时候，贴子是关于如何做酷的事情的短视频或完整教程。
 

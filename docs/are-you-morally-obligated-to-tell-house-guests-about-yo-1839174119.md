@@ -4,7 +4,7 @@
 
 你应该告诉别人你在家里的某个地方藏了一个智能音箱、相机或显示器吗？如果那个人和你住在一起，当然可以。如果你有一些朋友过来，这是不是有点过分了？你有责任让人们知道吗，还是小题大做？
 
-Watch
+
 
 刚刚获得了一个谷歌 Nest Hub Max，对此我有自己的想法。但是首先让我们听听谷歌自己的 Rick oster loh——设备和服务高级副总裁，如果你还记得的话，他基本上是上周由谷歌事件 制作的 [的负责人。](https://lifehacker.com/everything-from-todays-google-event-that-actually-matte-1839057732)
 

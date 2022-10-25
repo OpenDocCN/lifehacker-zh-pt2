@@ -4,7 +4,7 @@
 
 欢迎来到本月最后一篇健康挑战文章。我希望你已经享受了这些 [迷你](https://vitals.lifehacker.com/get-up-and-do-some-arm-circles-1844420029?_ga=2.107776386.1248358329.1595879433-1985951192.1595879433) [从你的一天中休息](https://vitals.lifehacker.com/get-out-of-your-chair-and-do-some-downward-dogs-1844493696) ，尽管它们有时有点傻。今天，我有一个更愚蠢的挑战:把除了屁股以外的东西放在椅子上。
 
-Watch
+
 
 例如:往前挪，让你的屁股离开椅子，手放在座位上。现在你可以做，一个极好的三头肌训练。
 

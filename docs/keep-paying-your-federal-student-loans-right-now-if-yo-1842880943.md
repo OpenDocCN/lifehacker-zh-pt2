@@ -4,7 +4,7 @@
 
 大多数联邦学生贷款借款人 [直到 2020 年 10 月才需要支付](https://lifehacker.com/heres-the-new-coronavirus-student-loan-plan-1842560767) ，在此期间没有利息累积的风险。
 
-Watch
+
 
 如果你在冠状病毒疫情期间很难支付账单，自动忍耐期可能会减轻你的负担。
 

@@ -4,7 +4,7 @@
 
 2019 年，我们将在 Two Cents 上带回每月财务挑战(你可以在这里 看到 [2017 年的版本)。每一个都是为了帮助我们专注于我们金钱的不同方面，理想情况下，将微小的变化发展成我们财务生活中的](https://twocents.lifehacker.com/the-lifehacker-money-challenge-is-back-1790627747) [可衡量的差异](https://twocents.lifehacker.com/its-time-to-set-your-2019-money-goals-1830990890) 。
 
-Watch
+
 
 然而，这些每月的挑战并不集中在噱头或暂时的、一次性的变化上，而是集中在我们整体的财务健康上。与往年不同的是，这一次，每个月都将建立在前几个月的基础上，让我们在年底前更好地了解我们的整个财务生活。
 

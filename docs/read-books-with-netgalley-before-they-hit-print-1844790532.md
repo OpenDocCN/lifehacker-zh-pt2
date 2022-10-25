@@ -6,7 +6,7 @@
 
 号称“一个书评人和其他专业读者可以在书籍以电子版或数字版形式出版之前阅读它们的网站”，NetGalley 主要是作为出版商——从印度到“五大”——的一种方式存在，通过将它们分发给广泛的“有影响力的人”网络来为即将出版的书籍制造声势，这些人希望在他们的出版物上，在他们的博客上，甚至在 Goodreads 上评论它们。(从经验上讲，成为图书影响者肯定不如成为 Instagram 影响者光鲜，但至少你不用担心你的自拍游戏。)以下是参与行动的方法。
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Read Books With NetGalley Before They Hit Print](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-best-places-to-find-free-ebooks-1843182342)</aside>
 

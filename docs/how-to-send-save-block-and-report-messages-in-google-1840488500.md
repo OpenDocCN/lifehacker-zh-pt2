@@ -4,7 +4,7 @@
 
 Google Photos 最近进行了几次大的更新，但现在这款应用有了一项全面的信息服务，你可以用它来交换照片，并在你的联系人之间进行对话。
 
-Watch
+
 
 谷歌 [说](https://www.blog.google/products/photos/now-its-easier-to-share-everyday-moments-in-google-photos/) 这并不是要取代或与其他通讯应用竞争，而是让谷歌照片中的照片和视频分享更具互动性。也就是说，Google 相册中的对话在外观和行为上与大多数其他消息服务一样，包括阅读回执、表情反应、群聊等功能。
 

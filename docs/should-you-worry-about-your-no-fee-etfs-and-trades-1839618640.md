@@ -4,7 +4,7 @@
 
 我们都听说过生活中最好的东西是免费的，但是当涉及到你的投资时，“免费”是一件好事吗？投资公司最近宣布的变化可能会让你对如何管理自己的储蓄感到困惑。
 
-Watch
+
 
 最近的变化:查尔斯·施瓦布 [上个月宣布](https://lifehacker.com/some-brokerages-are-eliminating-trading-fees-whats-the-1838781715) 对股票和交易所交易基金的交易不收取费用。TD Ameritrade 很快宣布了类似的举措。
 

@@ -4,7 +4,7 @@
 
 上周，英伟达宣布计划推出纯软件版本的 G-Sync，其用于 PC 显示器的 [自适应同步工具](https://lifehacker.com/learn-the-basics-of-nvidias-g-sync-and-amds-freesync-mo-1831578473#_ga=2.255835912.1014487321.1547747405-396842925.1520800403) 。现在，随着 [GeForce 驱动程序 417.71](https://www.geforce.com/drivers/results/141906) 的公开，将 Nvidia 显卡与 FreeSync 显示器混合使用的一小群人可以尝试 G-Sync 的新实现。
 
-Watch
+
 
 英伟达表示，它正在测试自适应同步兼容显示器，看看哪些与 G-Sync 兼容。在测试了 400 台显示器之后——现在可能更多——该公司发布了一份 12 英寸 [G-Sync 兼容](https://www.nvidia.com/en-us/geforce/news/g-sync-ces-2019-announcements/) 显示器的短名单。如果你有其中的一个，那么你将自动享受“GeForce 兼容的可变刷新率体验”，正如 Nvidia 所说，如果你用最新的 GeForce 驱动程序玩游戏。
 

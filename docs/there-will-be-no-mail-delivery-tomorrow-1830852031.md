@@ -4,7 +4,7 @@
 
 美国邮政局 [宣布](http://about.usps.com/newsroom/statements/120318-usps-operating-status-national-day-of-mourning.htm) 将在明天为纪念前总统老布什的全国哀悼日暂停邮件递送。全国各地的邮局也将关闭。
 
-Watch
+
 
 前总统布什于周五晚间去世，他的追悼会将于周三在华盛顿国家大教堂举行。
 

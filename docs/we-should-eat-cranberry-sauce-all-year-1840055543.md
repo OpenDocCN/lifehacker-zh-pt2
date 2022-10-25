@@ -4,7 +4,7 @@
 
 蔓越莓酱在感恩节起着至关重要的作用。没有它，盐和脂肪会主宰你的味觉，你的嘴会很快因丰富的美味而过饱和。蔓越莓酱解决了所有这些问题，因此我们的食物更好。但是为什么要把香甜扑鼻的调味品局限在一天呢？它能提供更多的东西。
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled We Should Eat Cranberry Sauce All Year](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-make-great-gravy-and-boozy-cranberry-sauce-1830502687)</aside>
 

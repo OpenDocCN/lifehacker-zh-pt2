@@ -4,7 +4,7 @@
 
 周一下午 3 点，巴西最大的城市[S](https://www.buzzfeednews.com/article/skbaer/sao-paulo-darkness-amazon-fires)[o Paolo](https://www.buzzfeednews.com/article/skbaer/sao-paulo-darkness-amazon-fires)【陷入黑暗，因为正在进行的大火正在摧毁数千英里外的亚马逊雨林。今年，巴西目睹了创纪录数量的野火。该国总统雅伊尔·博索纳罗表示，该国政府缺乏扑灭这些火灾的资源，这引起了人们对雨林破坏和土著人土地毁坏的更多关注。
 
-Watch
+
 
 但是到底是什么引起了这些火灾呢？这很简单，也是可以预见的，是环保主义者和一位政治家之间争论的根源。
 

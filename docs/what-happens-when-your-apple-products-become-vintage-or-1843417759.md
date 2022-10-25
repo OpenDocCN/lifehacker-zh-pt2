@@ -4,7 +4,7 @@
 
 你拥有的每件科技产品都有一个发布后的“寿命”例如，苹果的政策保证五年的支持，从设备的发布日期开始(而不是你购买它的时间)。一旦这五年结束，这个设备就成了“古董”
 
-Watch
+
 
 几款 2013 和 2014 款的 MacBook Air 和 MacBook Pro [最近加入了复古清单](https://www.macrumors.com/2020/05/12/macbook-air-pro-2013-2014-vintage-products/) 。这包括 2013 年年中至 2014 年初发布的所有 11 和 13 英寸 MacBook Airs，以及 2014 年年中推出的 13 英寸 MacBook Pro。
 

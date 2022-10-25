@@ -4,7 +4,7 @@
 
 “我从未见过任何人生转变不是始于那个人最终厌倦了自己的废话，” [说](https://www.reddit.com/r/quotes/comments/akgawh/ive_never_seen_any_life_transformation_that_didnt/) *吃祈祷爱*回忆录作者伊丽莎白·吉尔伯特。如果你需要一句座右铭贴在便利贴上，让你远离自己的废话，去 [引用子编辑](https://www.reddit.com/r/quotes/) 。这就是我们得到吉尔伯特观察结果的地方，她在一篇文章 中详细阐述了 [。](https://www.elizabethgilbert.com/dear-ones-yesterday-i-wrote-on-twitter-ive-never-seen-any-life-transformati/) 
 
-Watch
+
 
 子编辑中的引语涵盖了许多主题，但大多数都是终生的至理名言:
 

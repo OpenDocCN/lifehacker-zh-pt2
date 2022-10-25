@@ -4,7 +4,7 @@
 
 芝加哥艺术学院最近更新了网站，发布了一个可搜索的高分辨率艺术数据库 。更好的是，许多艺术作品都是公共领域的，这意味着你可以合法地使用它们，即使是出于商业目的。(查看每幅作品页面上的版权声明。)你会注意到，虽然你可以放大大多数艺术品，但只有公共领域的艺术品会包含全分辨率下载链接。
 
-Watch
+
 
 你会认出像[【美国哥特式】](https://www.artic.edu/artworks/6565/american-gothic) 毕加索的 [【老吉他手】](https://www.artic.edu/artworks/28067/the-old-guitarist) 和莫奈的 [【一堆堆的小麦】这样的艺术品许多这样的壁纸，甚至是仍受版权保护的壁纸，都是很好的桌面壁纸。](https://www.artic.edu/artworks/64818/stacks-of-wheat-end-of-summer)
 

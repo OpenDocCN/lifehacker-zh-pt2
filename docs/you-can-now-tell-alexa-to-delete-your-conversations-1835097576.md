@@ -4,7 +4,7 @@
 
 如果你不喜欢你的回声设备记录你问它的每一个问题——这都是为了 [不管亚马逊的推理是](https://smile.amazon.com/gp/help/customer/display.html?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/you-can-now-tell-alexa-to-delete-your-conversations-1835097576&asc_source=&nodeId=201602230&sa-no-redirect=1&tag=kinjalifehackerlink-20)——你现在可以每天用一个方便的语音命令清除它的记忆。对着你的设备说，“Alexa，删除我今天说的一切，”你的 Echo 扬声器或其他 Alexa 设备就会这样做:删除你账户上当天累积的所有语音数据和存储的命令。
 
-Watch
+
 
 当然，你必须首先在你的 Alexa 应用程序的设置中设置这个功能，这个设置已经被埋没了。打开应用程序，打开设置部分，然后点击 Alexa 帐户> Alexa 隐私>查看语音历史记录。在那里，打开“启用语音删除”的功能，训练你的室友像你每天一样勤奋地说“短语”，以防你忘记。
 

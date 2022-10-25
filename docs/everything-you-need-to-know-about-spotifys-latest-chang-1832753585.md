@@ -4,7 +4,7 @@
 
 最近，Spotify 更新了它的界面，把它的“重复”按钮埋在它的移动应用程序的子菜单深处——人们很生气。Redditors 和 [Twitter](https://twitter.com/search?q=spotify%20repeat&src=typd) 用户都在互联网上表达他们的不满。
 
-Watch
+
 
 “我已经支付了多年的保费，如果这是永久性的，我可能会停止，”Redditor u/[ChummySquash](https://www.reddit.com/r/spotify/comments/aseivi/dear_spotify_if_it_aint_broke_dont_fix_it/)写道。"隐藏重复播放和随机播放是你对音乐应用程序所能做的最糟糕的事情."
 

@@ -4,7 +4,7 @@
 
 你有最喜欢的金融大师吗？你是戴夫·拉姆齐的狂热爱好者还是苏茜·欧曼的狂热爱好者？你更有可能推荐*你的钱或你的生活*还是*隔壁的百万富翁*？
 
-Watch
+
 
 昨天，Money.com 发表了一篇关于戴夫·拉姆齐方法的长篇文章，询问 [他的建议是否支持](http://money.com/money/longform/dave-ramsey-money-debt-free/) :
 

@@ -4,7 +4,7 @@
 
 几个月前，你可能不会再考虑 [“虚拟旅行”的概念毕竟，如果你有时间、金钱和旅行的意愿，你基本上可以...去你想去的地方。多亏了新冠肺炎环球疫情，这一切都改变了。就目前而言，大多数旅行——尤其是国际旅行——将不得不等待。或者虚拟地完成。](https://lifehacker.com/tag/virtual-travel) 
 
-Watch
+
 
 但是有这么多的选择——你可以虚拟地参观 [公园](https://lifehacker.com/how-to-virtually-visit-31-national-parks-using-google-m-1834189792)[博物馆](https://lifehacker.com/you-can-virtually-tour-these-500-museums-and-galleries-1842343589)[纽约市](https://lifehacker.com/take-a-virtual-trip-to-nyc-with-these-free-tours-1843320097) 甚至——很难找出哪些值得你花费时间(和带宽)。这就是为什么[Upgraded Points](https://upgradedpoints.com/get-paid-to-take-a-virtual-vacation)——一个专注于帮助其读者使用他们的积分和里程旅行的网站——正在寻求雇人并支付他们 1000 美元来进行虚拟旅行并对他们进行评论。以下是你申请时需要做的事情。
 

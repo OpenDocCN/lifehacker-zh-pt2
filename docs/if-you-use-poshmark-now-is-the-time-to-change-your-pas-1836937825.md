@@ -6,7 +6,7 @@
 
 该服务 [周四](https://blog.poshmark.com/2019/08/01/important-security-notice-from-poshmark/) 发布了一份安全通知，提醒用户最近发现一些 Poshmark 用户的数据被未经授权的第三方获取。
 
-Watch
+
 
 虽然这些数据不包括任何财务信息或任何人的物理地址，该服务也不认为任何人的密码信息被泄露——但它也建议你现在更改密码以防万一。
 

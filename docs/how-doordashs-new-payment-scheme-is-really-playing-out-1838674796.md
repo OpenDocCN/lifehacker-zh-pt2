@@ -4,7 +4,7 @@
 
 你会为了两块钱跑腿吗？3 美元怎么样？也许 4 美元？这些是快递服务 DoorDash 的许多送货工人表示，他们现在面临的问题，因为该公司建立了一种新的薪酬模式，每份工作仅支付 2 美元——这种制度旨在取代以前的掠夺性工资模式。由于公司的奖励计划即将发生变化，经常为残羹剩饭工作可能是一些老板的唯一选择。
 
-Watch
+
 
 早在 8 月份，在 [持续的反对](https://gizmodo.com/doordash-tip-skimming-scheme-prompts-clash-action-lawsu-1836820630) 中，DoorDash 首席执行官许宏涛在一篇 [博客文章](https://blog.doordash.com/working-to-strike-a-better-balance-e1f66c76fca1) 中宣布，该公司将最终屈服于公众对其有争议的 [小费模式](https://gizmodo.com/doordash-announces-its-replacing-that-whole-tip-skimmin-1837492337) 的压力。徐当时声称，在 9 月份大范围推广这一新系统后，短跑运动员的平均工资将会提高。但在徐提议彻底改革支付模式后，与 Gizmodo 交谈的 dashers 表示，他们担心每次 dash 的基本工资范围(根据徐的说法，从 2 美元到 10 美元不等)可能会减少每次递送的收入。尽管这个系统在 9 月份就开始向大众推广，但是陪审团还没有做出决定。
 

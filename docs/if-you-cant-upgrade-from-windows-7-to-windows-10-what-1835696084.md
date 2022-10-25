@@ -4,7 +4,7 @@
 
 虽然我总是建议升级到你正在使用的任何软件的最新和最好的版本，但如果你运行的是已经很难运行的旧设备，这可能不是最好的选择。对于操作系统来说尤其如此——尽管有时甚至你的旧设备 [也能从操作系统升级中获益](http://www.iphonehacks.com/2018/09/ios-12-performance-improvements-tested-iphone-5s-6-ipad-mini-2.html) 。
 
-Watch
+
 
 如果你在实现这一升级时遇到了麻烦，你可能会感到有点卡住——就像 Lifehacker 的读者 **Daniela** ，她在本周的 [Tech 911](https://lifehacker.com/c/tech-911) 问题中写道:
 

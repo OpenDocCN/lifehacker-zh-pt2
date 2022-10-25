@@ -6,7 +6,7 @@
 
 这位硅谷亿万富翁目睹了公众对他的关注，他的各种公司，包括特斯拉，在过去一年里都有所增长，但不是以积极的方式。他在播客上吸食大麻，毫无根据地公开指责 一名救援人员是恋童癖者，并在推特上宣布他将特斯拉 [私有化](https://jalopnik.com/elon-musk-says-he-has-funding-from-saudi-arabia-to-take-1828298232) ，导致与美国证券交易委员会&达成和解，他放弃了特斯拉董事长的职位，并同意让他的沟通团队审查可能影响该公司股价的社交媒体声明。
 
-Watch
+
 
 他带着一个 60 分钟 的 [采访回来了，在采访中，他向](https://www.bizjournals.com/sanjose/news/2018/12/10/elon-musk-60-minutes-stahl-interview-tsla.html) [宣称不尊重 SEC](https://jalopnik.com/elon-musk-on-losing-chairman-title-20-million-over-a-1830981678) 并将他的压力归咎于他疯狂的工作时间。
 

@@ -4,7 +4,7 @@
 
 Windows 有积累数字灰尘和污垢的倾向，这可能会使系统陷入困境，重新安装操作系统 是解决任何问题的灵丹妙药。
 
-Watch
+
 
 较新版本的 Windows 包括一个方便的 [刷新选项](https://support.microsoft.com/en-us/help/17085/windows-8-restore-refresh-reset-pc) ，让你保留你的个人文件，但删除你的应用程序并重新安装 Windows。这使你免于更长时间的备份和恢复，并减少了你重新安装操作系统后重新配置设备的次数——它并不总是有效。
 

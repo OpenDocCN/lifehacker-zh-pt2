@@ -4,7 +4,7 @@
 
 你的信用记录可能是信用评分 中较为混乱的 [部分之一。即使你有良好的信用习惯，你的年龄似乎也会对你不利。但是除了耐心等待毕业到专家水平，你还能做些什么来提高你的分数吗？](https://twocents.lifehacker.com/the-5-factors-behind-your-credit-score-1797277397) 
 
-Watch
+
 
 好消息是你的信用记录只占你总分的 15%,所以年轻或刚开始使用信用卡不会让你处于巨大的劣势。但是年龄并不是这块蛋糕的唯一因素。“这不仅仅是你有多长时间的信用这么简单，”马特·舒尔茨说，他是 [CompareCards](https://www.comparecards.com/blog/authors/matt-schulz/) 的首席行业分析师。"这其中有一些微妙之处。"
 

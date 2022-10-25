@@ -4,7 +4,7 @@
 
 《消费者报告》写道，如果你在征信机构 2017 年大规模数据入侵后注册了 Equifax 的 TrustedID Premier，你需要找到一种新的信用监测服务。
 
-Watch
+
 
 TrustID Premier 是继 [数据泄露事件曝光](https://twocents.lifehacker.com/the-latest-news-on-the-equifax-hack-updating-1812224799)[1.455 亿人](https://www.cbsnews.com/news/equifax-data-breach-millions-more-affected/) 的个人信息后，由 Equifax 向美国消费者提供的 [。它给了人们一份他们的 Equifax 信用报告的副本，他们的 Equifax，Experian 和 TransUnion 信用报告的信用监控和身份盗窃保险，等等。](https://twocents.lifehacker.com/equifax-will-offer-free-lifetime-credit-locks-in-januar-1818974145)
 

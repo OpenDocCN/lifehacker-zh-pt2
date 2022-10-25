@@ -4,7 +4,7 @@
 
 拥有一部解锁的 iPhone 的好处之一是，你可以在旅行时关掉你的 SIM 卡。国际电话套餐很贵，购买新卡和本地数据套餐通常比向运营商支付日费、月租费或按次计费要便宜得多。
 
-Watch
+
 
 那么 [出国怎么把主 SIM 卡](https://www.businessinsider.com/how-to-remove-sim-card-from-iphone) 取出来呢？
 

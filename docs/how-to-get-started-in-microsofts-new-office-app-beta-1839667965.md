@@ -4,7 +4,7 @@
 
 微软的新 Office 应用程序为 [iOS](https://testflight.apple.com/join/eHAKJBtM) 和 [Android](https://techcommunity.microsoft.com/t5/Office-Apps-Blog/Office-app-for-Android-How-to-access-the-public-preview/ba-p/976713) ，目前处于测试阶段，应该是替代移动 Word 套件的“一站式商店”。它结合了 Office 最受欢迎的三个程序——Word、Excel 和 Powerpoint——并加入了一系列面向移动设备的功能，比如使用手机摄像头扫描纸质文档中的文本和表格。(你甚至可以用 Office 做笔记。)
 
-Watch
+
 
 ### **向你的新瑞士办公刀问好**
 

@@ -4,7 +4,7 @@
 
 作为一个婴儿的母亲，我遇到过各种各样的连体衣存储技巧，它们在理论上听起来都不错。在晾衣绳上抓拍！用 [衣服隔断](https://www.amazon.com/Minnebaby-Neutral-Hangers-Ultra-Clothing-Dividers/dp/B07CJ49Y8J?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/store-your-babys-onesies-in-an-ornament-box-1835624362&asc_source=&ref_=fsclp_pl_dp_3&tag=kinjalifehackerlink-20) 把它们挂起来！把它们折叠成 Kond0 风格的和并把它们直立地放在漂亮的、闪耀着欢乐火花的盒子里！我曾试图在我的婴儿室实施这样一个系统，但我不断停下来问自己:“来吧。你*真的*要跟上这个吗？”答案总是:“可能性极小。”
 
-Watch
+
 
 但是，对于这些没有任何身体结构的小小婴儿服装，父母应该怎么处理呢？到目前为止，我一直通过限制儿子的衣物数量来保持他衣柜的整洁，使用了 [网状抽屉单元](https://www.containerstore.com/s/elfa/best-selling-solutions/drawer-units/platinum-elfa-mesh-start-a-stack/123d?productId=10009305&country=US&currency=USD&utm_source=tcscompshop&utm_medium=feed&utm_campaign=google&cid=cse%7Cevergreen%7Celfa+%3E+best-selling-solutions+%3E+drawer-units%7Cgoogle%7C%7C%7Bcampaignid%7D%7C%7Bproduct_id%7D%7C%7Bdevice%7D&gclid=EAIaIQobChMItorj-83z4gIVEarsCh0qeAUCEAQYASABEgIxRvD_BwE) 这样我就可以很容易地看到东西，并且经常洗衣服。不过，因为箱子很深，一切都有点混乱。有一个更加条块分割的解决方案会有所帮助。为此，我想到的最好的办法是 [使用一个装饰盒](https://www.apartmenttherapy.com/quick-tip-use-an-ornament-box-139206) 。
 

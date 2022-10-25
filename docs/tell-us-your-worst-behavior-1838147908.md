@@ -4,7 +4,7 @@
 
 有一个 [著名的子场景](https://lifehacker.com/the-greatest-stories-from-the-am-i-the-asshole-subredd-1837987235) ，人们会告诉你是否在做一个混蛋。但有时你已经*知道*你是个混蛋，你不知道如何停止。
 
-Watch
+
 
 即使是好人也有我们无法摆脱的不良行为。你呢？你是不是 [经常迟到](https://lifehacker.com/how-to-stop-being-late-all-the-time-1838012536) ？对你的朋友太挑剔？抱怨者？你有保守秘密或控制脾气的困难吗？你会在生产力博客上发表令人讨厌的评论吗？
 

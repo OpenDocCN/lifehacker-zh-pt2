@@ -4,7 +4,7 @@
 
 你的 Instagram 故事会在 24 小时后从你的 feed 中消失，但它们不会永远消失:它们实际上保存在你个人资料的私人部分，你可以随时返回查看或重新分享它们。下面是怎么做的。
 
-Watch
+
 
 点击 Instagram 应用程序上的个人资料页面，点击屏幕右上角的三条垂直线，然后从弹出菜单中选择存档。在这里你可以查看存档的故事(和 [存档的文章](https://www.lifehacker.com.au/2017/06/now-you-can-hide-your-terrible-instagram-photos-without-deleting-them/)——只需点击屏幕顶部的“存档”即可在两者之间切换)。
 

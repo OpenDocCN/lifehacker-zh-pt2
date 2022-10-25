@@ -4,7 +4,7 @@
 
 偶然发现一种令人兴奋的吃鸡蛋的新方法可能是挤出时间吃早餐和完全不吃的区别。在过去的几年里，我经历了几个鸡蛋阶段: [简单的荷包蛋](https://lifehacker.com/this-is-the-chillest-easiest-way-to-poach-an-egg-1825889759) 一直很好，直到我发现了玉米淀粉蛋，最近它被一个扭曲的煮熟的鸡蛋取代了。 [梅丽莎·克拉克](https://skillet.lifehacker.com/the-best-hacks-from-melissa-clarks-kitchen-tour-1840069473) 告诉我 [在鸡蛋上涂黄油](https://www.instagram.com/p/Br-iMrHgyRo/?hl=en) 她是对的。
 
-Watch
+
 
 我知道你在想什么。“但是我们一直在鸡蛋里面和周围放黄油；毕竟，荷兰酱基本上是一个借口，将荷包蛋浸泡在融化的黄油中。跳过通常的中间人——烤面包、英式松饼、涂黄油的煎锅——直接给鸡蛋涂黄油只是一条捷径。完全符合逻辑，真的。
 

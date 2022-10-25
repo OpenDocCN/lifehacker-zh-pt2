@@ -4,7 +4,7 @@
 
 如果你对 Android Q 的体验感兴趣，但一直没有安装任何 Android Q 测试版，那么是时候尝试一下今天发布的最新版本了。正如谷歌所描述的，Android Q 的这一次迭代" [非常接近](https://android-developers.googleblog.com/2019/07/android-q-beta-5-update.html) "你将在 Android Q 的完全公开发布中体验到的，正如谷歌所描述的，升级到 Android Q 是阻止来自 [的恼人应用程序收集数据](https://www.cnet.com/news/more-than-1000-android-apps-harvest-your-data-even-after-you-deny-permissions/) 的一个很好的方式，否则它们不应该能够访问这些数据。
 
-Watch
+
 
 ### Android Q Beta 5 有什么新功能
 

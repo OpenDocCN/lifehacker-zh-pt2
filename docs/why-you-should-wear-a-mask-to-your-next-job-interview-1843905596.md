@@ -4,7 +4,7 @@
 
 现在越来越多的州重新开放，求职者可能会发现自己不得不决定如何进行面对面的工作面试。你应该戴口罩吗？你应该避免握手吗？你应该尝试与面试官保持至少 6 英尺的距离吗？
 
-Watch
+
 
 根据 [问一个经理的](https://www.askamanager.org/) 艾莉森·格林，答案是肯定的——以上都是。正如格林最近在 [中所解释的](https://www.thecut.com/article/interview-etiquette-coronavirus.html) :
 

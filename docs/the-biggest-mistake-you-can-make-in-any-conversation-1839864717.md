@@ -4,7 +4,7 @@
 
 你有没有尝试过解决朋友的问题，而他们真正想要的是发泄和获得一些同情？你有没有寻求建议，只得到同情的时候？当你的伴侣还在不断提出新的指控和抱怨时，你有没有尝试去解决一场争论？在所有这些情况下，问题是你们还没有就对话的*框架*达成一致。
 
-Watch
+
 
 这是一个如此广泛的问题，以至于分析它需要一些非常抽象的语言。LessWrong 短文 [【注意框架差异】](https://www.lesswrong.com/posts/f886riNJcArmpFahm/noticing-frame-differences) 需要一些时间来适应，可能需要几篇阅读才能理解。但是一旦点击，你将拥有一个有用的 [心智模型](https://lifehacker.com/mental-models-solve-problems-by-approaching-them-from-1682835620) ，它将在一次没有成效或令人沮丧的谈话中帮助你。
 

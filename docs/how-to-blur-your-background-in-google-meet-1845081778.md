@@ -4,7 +4,7 @@
 
 谷歌正在为其当前的视频聊天应用程序、谷歌的 Meet 和 Duo 推出新功能。Meet 的更新包括一个新的背景模糊工具；它还现在允许用户在大型小组会议中使用“平铺视图”时查看多达 49 个摄像机画面。
 
-Watch
+
 
 Duo 的“新”功能并不全是新的:谷歌在 2018 年从应用程序中倪星 it 后恢复了屏幕共享功能。这一逆转是一个受欢迎但出乎意料的举动；Google Duo 的支持一直滞后，种种迹象表明 [可能会在不久的将来并入 Google Meet](https://www.androidpolice.com/2020/08/15/google-duo-may-eventually-be-phased-out-in-favor-of-google-meet)。不过现在，它正在享受即兴更新。
 

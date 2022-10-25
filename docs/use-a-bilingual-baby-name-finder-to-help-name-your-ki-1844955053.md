@@ -4,7 +4,7 @@
 
 如果你和你的伴侣来自不同的语言背景，你可能会发现自己很难找到一个兼容两种语言的婴儿名字。Bemmu Sepponen 和他的伙伴发现自己正处于这样的境地，因为他们期待着他们的日裔芬兰儿子，并希望有一个两种语言都适用的名字。
 
-Watch
+
 
 [塞波宁在 Reddit](https://www.reddit.com/r/namenerds/comments/if3mie/we_were_struggling_with_naming_our) 上写道，他最初创建了 [双语婴儿名字查找器](https://mixedname.com) 供个人使用，但决定将其扩展供他人使用:
 

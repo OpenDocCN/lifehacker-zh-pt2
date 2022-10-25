@@ -4,7 +4,7 @@
 
 我们度过了多么美好的一周啊！感觉还是周一，但也许只是我。我们已经帮助计算出 [电缆调制解调器和 ISP 速度](https://lifehacker.com/do-i-need-a-new-cable-modem-if-im-stuck-working-from-ho-1842455120)；如何 [在家用显示器](https://lifehacker.com/how-do-i-connect-my-work-laptop-to-my-home-monitor-1842471071) 设置你的工作笔记本电脑；谈论为什么你的工作笔记本电脑在无线网络方面表现不佳；并帮助解决了令人烦恼的“ [现在我的主计算机无法启动 Windows](https://lifehacker.com/help-windows-wont-boot-correctly-after-a-recent-os-upd-1842509510) ”的问题。
 
-Watch
+
 
 还有更多的事情要做——[你已经发送了许多与在家工作相关的棘手问题](https://lifehacker.com/tell-us-your-working-from-home-tech-issues-1842428782)你希望解决这些问题，我鼓励你继续将这些问题 [发送到我的收件箱](mailto:david.murphy@lifehacker.com?subject=Tech%20911) ！每周五，我都会回答问题，不管问题是大是小。那是我对你的承诺！(除非我在度假)。
 

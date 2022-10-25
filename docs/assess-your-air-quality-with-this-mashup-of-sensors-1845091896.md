@@ -4,7 +4,7 @@
 
 有一天，我在查看我加州住所的空气质量，我访问的第一个网站说空气质量指数是可爱的 40 左右。这看起来很奇怪，因为外面烟雾弥漫——所以我尝试了另一个网站:400+。这似乎也很奇怪，因为它看起来不太像外面的沙丘拖车。
 
-Watch
+
 
 为什么会有差异？我用的是 PurpleAir，一个我在 之前谈过的网站 [，还有 AirNow，它们都采用不同的方法来测量特定区域的空气质量。正如](https://lifehacker.com/use-these-apps-to-see-if-your-air-quality-index-sucks-o-1844856739) [SFGate](https://www.sfgate.com/california-wildfires/article/PurpleAir-AirNow-Federal-hybrid-air-quality-site-15572827.php) 报道:
 

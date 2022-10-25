@@ -4,7 +4,7 @@
 
 现在是 2020 年，所以自然而然地，邮件就从 [变成了政治化的](https://www.nbcnews.com/politics/2020-election/trump-rages-state-officials-quietly-press-forward-vote-mail-n1215781) 。具体来说， [总统坚称](https://twitter.com/realDonaldTrump/status/1265255835124539392?s=20) 推动在疫情期间通过邮件投票变得更容易是企图操纵选举，因为这样做容易出现欺诈——这种说法没有实际证据 。好消息是，各州基本上忽略了这一点:据研究选举技术的非营利组织开源选举技术研究所称，46 个州现在为每个合格的选民提供邮寄选票的选项。以下是你需要知道的关于邮件投票的事情，在这一年里，你既要面对一场有争议的总统选举，又要面对一场全球性的疫情。
 
-Watch
+
 
 ### 基础知识
 

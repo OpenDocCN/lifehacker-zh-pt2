@@ -4,7 +4,7 @@
 
 虽然在家工作对一些人来说是一种奢侈，但对另一些人来说却是必须的。全球目前正在见证其“最大规模的在家工作实验”，正如彭博所说的，由于武汉冠状病毒的快速传播，武汉 T5 比 2002-03 年非典爆发时杀死的人还多。中国各地的许多企业正迫使员工呆在家里，以保护他们的健康，防止病毒传播。对于习惯于面对面集思广益会议的团队来说，这可能是一个挑战，但远程工作有可能通过不仅仅是遏制武汉病毒来保护公众健康。
 
-Watch
+
 
 这是因为远程工作是减少温室气体排放的最简单、最具成本效益的方式之一。和冠状病毒一样可怕的是， [气候](https://earther.gizmodo.com/the-climate-crisis-may-have-helped-spawn-massive-locust-1841385871) [变化](https://earther.gizmodo.com/miami-is-fucked-1841431975) [是](https://earther.gizmodo.com/goosebumps-researchers-capture-first-video-from-under-1841311460) [另一个](https://earther.gizmodo.com/a-heat-wave-has-fire-danger-rising-again-in-australia-1841354142) [巨大的](https://earther.gizmodo.com/women-face-pervasive-violence-in-the-face-of-the-enviro-1841333396) [问题](https://earther.gizmodo.com/miami-is-fucked-1841431975) 已经盯上了最脆弱的。对抗它需要改变我们生活的方方面面，包括我们离开家去办公室的频率。
 

@@ -4,7 +4,7 @@
 
 一个恼人的锁屏错误已经困扰了一些不幸的 Android 用户几个月了，通过一种奇怪的认证循环将他们锁定在设备之外。这个错误早在 9 月份就出现了，当时它最初是在 Pixel XL 设备上发现的。它仍未修复，更糟糕的是，它似乎突然出现在更多的 Android 用户面前。
 
-Watch
+
 
 根据 Android Police 的 [最新更新](https://www.androidpolice.com/2019/12/12/google-pixel-pin-lock-screen-loop-help/) ，该漏洞现已被确认不仅仅出现在 Pixel 手机上:一加 7 Pro、索尼 Xperia XZ2 Compact 和 Seuic Cruise 1 等运行 Android 9 或 Android 10 的手机也受到了影响。谷歌已经承认这个漏洞的存在，但没有提供任何官方建议，也没有表示修复程序可能会在何时到来。
 

@@ -4,7 +4,7 @@
 
 Spotify 几乎可以在我们能想到的所有流行设备上使用。无论你是在智能手机、电脑上还是通过智能电视应用程序听音乐，每个应用程序都做着几乎相同的事情，但对桌面用户来说有一个奇怪的限制:你不能从电脑 将 Spotify 转换到“谷歌播放”设备，如 Chomecast 或谷歌智能扬声器[——至少，如果你是 macOS 或 Windows 系统，就不能。](https://community.spotify.com/t5/Desktop-Windows/Spotify-Connect-amp-Google-Home/td-p/4642461) 
 
-Watch
+
 
 最新版本的 Spotify 桌面播放器(终于)修复了这个缺点。Mac 和 Windows 用户现在可以通过 Spotify 桌面播放器的“已连接设备”选项卡连接到您的谷歌设备。这与将您的 Spotify 音乐从 PC 传输到外部扬声器的过程完全相同。
 

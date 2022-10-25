@@ -4,7 +4,7 @@
 
 你手机的摄像头比以往任何时候都更强大，但它远非万无一失。总是令人沮丧的是认为你已经排好了完美的镜头，却发现你的相机胶卷和发现你搞砸了一些东西——你的构图，你的白平衡，或者谁知道什么——你捕捉到了一个不太完美的瞬间，一去不复返了。
 
-Watch
+
 
 幸运的是，你可以通过使用一款同样熟练易用的照片编辑应用来解决你的问题，即使你正在进行最高级的编辑。谷歌的**Snapseed**([iOS](https://apps.apple.com/us/app/snapseed/id439438619)， [Android](https://play.google.com/store/apps/details?id=com.niksoftware.snapseed&hl=en_IN) )应用程序符合要求，但其工具宝库乍一看可能令人生畏。以下是 Snapseed 如何让您的照片熠熠生辉的快速指南。
 

@@ -4,7 +4,7 @@
 
 每当我计划去某个地方旅行时，一旦我预订了机票、火车票或租车，就感觉很“正式”，但我从来不确定何时预订酒店[。我是否应该尽可能提前做这件事，以获得最好的交易？或者我应该等到我真正到达目的地后，在今晚的旅馆或另一个临时地点碰碰运气？事实证明，为了获得最优惠的价格，实际上可能有一个预订住宿的“正确”时间。](https://lifehacker.com/tag/hotels) 
 
-Watch
+
 
 根据来自旅游研究 app [Hopper](https://www.hopper.com/) 的 [一项新研究](https://media.hopper.com/research/top-4-hotel-booking-myths-debunked) ，预订酒店的最佳时间取决于你的目的地城市。以下是他们的发现:
 

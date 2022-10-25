@@ -4,7 +4,7 @@
 
 最近几周，人们对警察部门的政策和做法进行了越来越多的审查，并对警察暴行、监控和缺乏问责进行了清算。值得一提的是，e 即使你住在一个看似寂静的小镇，你当地的警察部门也很可能从事*某种*类型的监视——现在你可以 [找出他们到底在使用什么方法](https://venturebeat.com/2020/07/13/atlas-of-surveillance-now-provides-searchable-interactive-database-of-police-surveillance/) 。
 
-Watch
+
 
 由电子前沿基金会和内华达大学雷诺新闻学院创建的项目 [监控图集](https://atlasofsurveillance.org/) ，是一个可搜索的数据库，包含了全国各地警察部门使用的监控工具。
 

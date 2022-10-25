@@ -4,7 +4,7 @@
 
 当你想到“蘸”食物时，你可能会想象将它们浸入一碗奶油状、通常呈鲜味的蘸酱中。这样做通常是为了让薯条更美味，让蔬菜更令人兴奋，但你不一定需要酸奶油来实现后者。你所需要的是一种精细的、超级美味的粉末，它会附着在蔬菜的新鲜切面上。你需要的只是拉面粉。
 
-Watch
+
 
 将蔬菜蘸上干调料——一种 [掸湿](https://twitter.com/horsedivorce/status/1103095882139033600?lang=en) 的版本——并不是我一个人想出来的。我们的执行主编告诉我，他见过小胡萝卜搭配一包干 ranch，而《好胃口》的 [Sohla El-Waylly](https://www.instagram.com/sohlae/?hl=en) 最近分享了她受 idli podi 启发的“[Ranch Fun Dip](https://food52.com/blog/25440-why-sohla-el-waylly-ranch-fun-dip-is-genius)”——一种由营养酵母、开心果、阿勒颇胡椒和一系列美味调料组成的美味混合物——搭配 Food52。
 

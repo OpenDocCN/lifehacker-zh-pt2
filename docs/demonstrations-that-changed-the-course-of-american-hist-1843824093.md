@@ -4,7 +4,7 @@
 
 随着上周至少 140 个城市 发生了抗议活动，起因是警察杀害了 [乔治·弗洛伊德](https://www.nytimes.com/2020/05/29/us/minneapolis-police-george-floyd.html) 和 [布里奥纳·泰勒](https://www.nytimes.com/article/breonna-taylor-police.html) ，我们认为是时候看看美国历史上的其他示威和骚乱了。鉴于个人安全的潜在风险——更不用说在疫情举行的大型集会了——人们可能想知道参加抗议活动是否真的能有所作为。简而言之:他们可以。
 
-Watch
+
 
 当然，以一种准确而有意义的方式回顾美国示威游行的历史，说起来容易做起来难，因为这个国家的历史叙事一直是由最初殖民这片土地的同一批白人主导的。这个 [包括我们用](https://www.motherjones.com/politics/2020/06/the-reliably-racist-cherry-picking-of-the-word-riot/) 来指代事件和相关人员的词语——比如“爱国者”对“暴徒”，或者“叛乱”对“暴乱”正如 [【杰尼塔】亚当斯](https://twitter.com/GenettaAdams?ref_src=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor)[的执行主编](https://www.theroot.com/)[告诉琼斯妈妈](https://www.motherjones.com/politics/2020/06/the-reliably-racist-cherry-picking-of-the-word-riot/) ，某件事是被认为是暴动还是叛乱或起义都是旁观者的观点。“这个国家是建立在破坏行为和财产破坏之上的，”她解释道。“看波士顿倾茶事件。这是为“自由”和“自由”而战谁决定这些行为被称为什么？不幸的是，今天，太多时候都是白人或白人占多数的新闻编辑室。"
 

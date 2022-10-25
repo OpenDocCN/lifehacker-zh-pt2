@@ -4,7 +4,7 @@
 
 根据我今天早上的测试，我是一个 ISFP 人。或者我几年前拍的那张，一个“动荡”的 INFP，每次都可能得到不同的结果。迈尔斯-布里格斯测试是花一个小时自我专注的有趣方式，但却是做出影响某人生计的决策的糟糕方式。
 
-Watch
+
 
 然而，这正是许多雇主想要使用它的原因。商家谈论利用考试的结果去 [把人分组到](https://www.forbes.com/sites/elenabajic/2015/09/28/how-the-mbti-can-help-you-build-a-stronger-company/#494a73b8d93c) 的团队中，或者去 [挑选职位](https://www.topresume.com/career-advice/how-to-pass-the-pre-employment-personality-test) 的候选人。如果人们因为在一次愚蠢的测验中的得分而错过了机会，那是反复无常和不公平的。
 

@@ -4,7 +4,7 @@
 
 到目前为止，在我们的怪异托举挑战中，我要求你做一个 [单手硬拉](https://vitals.lifehacker.com/lets-get-weird-and-try-a-one-handed-deadlift-1839717740) 和一个 [单手哑铃抓举](https://vitals.lifehacker.com/this-weeks-weird-lift-is-the-one-hand-dumbbell-snatch-1839893931?rev=1574372309060) 。现在有一个解脱:在本周的举重中，我会让你把双手放在杠铃上。我们在做杰斐逊硬拉。
 
-Watch
+
 
 这部电梯不是以我们的第三任总统命名的，而是以一个名叫查尔斯·杰弗逊 T3 的马戏团强人命名的。这是一种不对称的硬拉，你必须使用你的核心肌肉来防止杠铃在你举起时旋转。
 

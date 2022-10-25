@@ -4,7 +4,7 @@
 
 我们生活在一个假汉堡的黄金时代。不可能的汉堡和超越汉堡都承诺并提供不含肉的肉味。但是它们的营养如何与一块真正的死牛相比呢？事实证明，非常接近。
 
-Watch
+
 
 让我们来看看三种肉饼:一种 [4 盎司不可能的汉堡](https://faq.impossiblefoods.com/hc/en-us/articles/360018939274-What-are-the-nutrition-facts-) ，一种 [4 盎司超越汉堡](https://www.beyondmeat.com/products/the-beyond-burger/) ，以及 [美国农业部分析的一种典型牛肉肉饼](https://ndb.nal.usda.gov/ndb/foods/show/7612?n1=%7BQv%3D1%2C+Q335718%3D4%2C+Q335719%3D1%7D&fgcd=&man=&lfacet=&count=&max=&sort=&qlookup=&offset=&format=Full&new=&measureby=&Qv=1&ds=&qt=&qp=&qa=&qn=&q=&ing=) ，烹饪前重量 4 盎司，由 85%的瘦肉碎牛肉制成。
 

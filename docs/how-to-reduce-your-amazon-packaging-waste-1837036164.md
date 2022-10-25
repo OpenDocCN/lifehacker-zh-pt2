@@ -4,7 +4,7 @@
 
 2013 年， [一家公司的分析师](https://www.wsj.com/articles/amazon-tests-its-own-delivery-network-1398360018) 估计，亚马逊仅在美国就发送了 6.08 亿个包裹，这意味着该零售商每天发送超过 150 万个包裹。当然，这是一种方便快捷的购物方式，但也是一种资源消耗。想想你可能在一个订单中收到的纸板盒或塑料邮件，然后乘以 6.08 亿——如果不适当回收或再利用，所有这些材料都可能最终被填埋(除了你收到的气垫或其他包装材料)。
 
-Watch
+
 
 这是一个越来越严重的问题，甚至亚马逊最近为了让他们的业务更环保而做出的的努力也遭到了失败。(今年 2 月， [公司成为头条新闻](https://www.washingtonpost.com/technology/2019/02/11/why-amazons-new-streamlined-packaging-is-jamming-up-recycling-centers/) ，因为它的塑料邮件成为几家回收设施的严重问题，使他们的机器陷入困境。)
 

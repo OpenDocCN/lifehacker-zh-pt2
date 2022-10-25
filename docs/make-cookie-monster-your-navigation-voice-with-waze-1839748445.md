@@ -4,7 +4,7 @@
 
 今年早些时候，Waze [让 Cookie Monster 成为其导航语音](https://lifehacker.com/how-to-make-cookie-monster-your-navigation-voice-in-waz-1836584967) 之一。这很有趣，但也是一种有限的参与，这意味着如果你有 Cookie 指导你，他最终会消失，并被默认的 Waze 声音取代。
 
-Watch
+
 
 为了庆祝饼干怪兽的生日(显然是 11 月 2 日)，Waze 将带回声音。
 

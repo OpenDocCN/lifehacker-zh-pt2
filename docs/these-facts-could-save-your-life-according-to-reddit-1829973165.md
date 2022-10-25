@@ -4,7 +4,7 @@
 
 生活是不稳定的，没有什么比 Reddit 生成的潜在死亡陷阱列表更能让你欣赏这个事实了。从好的方面来看，一个人的焦虑提示可能是另一个人的生活- 保存知识。
 
-Watch
+
 
 在 r/AskReddit 上，用户 [u/luciflerfather](https://www.reddit.com/user/luciflerfather) 要求知道，“什么事实可能会救你一命？”有些答案相当令人惊讶——显然死亡可以在任何地方找到我们。就像 u/[on time 4 social events](https://www.reddit.com/user/OnTime4SocialEvents)的这篇小技巧，是谁让水肺潜水在很多层面上变得可怕:
 

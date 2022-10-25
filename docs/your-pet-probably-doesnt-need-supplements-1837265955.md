@@ -4,7 +4,7 @@
 
 大多数人类 [不需要服用维生素补充剂](https://lifehacker.com/which-vitamins-do-you-really-need-1826433744) ，大多数宠物也不需要。但 Vox [报道](https://www.vox.com/the-goods/2019/8/12/20799061/pet-supplement-industry-vitamins-dogs-cats) 称，宠物补充剂行业的规模大致相当于“南瓜香料工业综合体”虽然一些宠物确实需要补充维生素，但更多的宠物获得维生素只是因为公司喜欢出售它们。我们认为，我想最好地照顾我的宠物。所以我们给他们买东西。
 
-Watch
+
 
 但是我们想多了。如果你的宠物吃了从商店买的食物，法律要求这种食物含有它们所需的适量营养。如果他们不吃商店买的食物，那么，也许你也想多了。 [自制的宠物食品食谱很容易带来不平衡的饮食](https://vitals.lifehacker.com/your-homemade-cat-food-may-be-bad-for-your-cat-1834593452) ，一种补充剂不一定能解决这个问题。
 

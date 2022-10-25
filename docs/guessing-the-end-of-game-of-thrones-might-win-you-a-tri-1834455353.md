@@ -4,7 +4,7 @@
 
 你知道谁会赢得铁王座吗？猜对了就有可能赢得去克罗地亚旅行的机会， [阿法尔报道](https://www.afar.com/magazine/you-could-win-a-trip-to-croatia-if-you-can-guess-how-game-of-thrones-ends) 。
 
-Watch
+
 
 豪华旅游运营商 [难忘的克罗地亚](https://unforgettablecroatia.com/game-of-thrones-competition) 正在为一位能够猜到故事结局的粉丝提供定制设计的*权力的游戏*国家之旅。七夜的旅程将包括参观剧中的一些地标，包括“君临”的拍摄地，以及魁尔斯、布拉佛斯和维斯特洛河流域。
 

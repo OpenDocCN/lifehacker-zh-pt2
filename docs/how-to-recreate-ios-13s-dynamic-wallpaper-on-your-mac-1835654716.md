@@ -6,7 +6,7 @@
 
 iOS 13 测试版为我们提供了一个新的动态背景预览，当 iOS 13 在今年秋天向公众推出时，iPhone 用户将会看到这些背景。iOS 13 上的新背景会根据你使用的是亮还是暗主题来变换颜色。静态图像本身不会这样做，但自从 macOS 在 Mojave 中开始支持动态桌面背景后，只需最少的努力和几个额外的文件，就可以在 Mac 上重新创建 iOS 13 的壁纸效果。
 
-Watch
+
 
 为此，我们将使用 [开源 macOS 程序 wallpaper](https://github.com/mczachurski/wallpapper)，它允许你从图像文件夹中创建动态壁纸。从头开始创建一个动态壁纸文件需要一点编码，但是多亏了 [Github 开发者 alicerunsonfedora](https://github.com/alicerunsonfedora/ZephyrMac) ，壁纸图像已经被编译成我们可以在 wallpaper 中使用的目录。
 

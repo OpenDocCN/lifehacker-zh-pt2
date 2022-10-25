@@ -4,7 +4,7 @@
 
 如果你有烹饪美食的习惯，你可能会用某种脂肪来烹饪。而且无论你是在做 [橄榄油煎鸡蛋](https://skillet.lifehacker.com/how-to-make-the-best-steak-and-eggs-1835806413) ， [牛油炸薯条](https://skillet.lifehacker.com/make-retro-mcdonalds-fries-with-beef-tallow-1838259817) ，还是 [极炸鸡块](https://skillet.lifehacker.com/you-can-make-chick-fil-a-style-chicken-nuggets-at-home-1837284801) ，你都会发现自己有一定量的剩余烹饪脂肪，需要重新利用、再利用或扔掉。
 
-Watch
+
 
 ### **切勿将其倒入下水道**
 

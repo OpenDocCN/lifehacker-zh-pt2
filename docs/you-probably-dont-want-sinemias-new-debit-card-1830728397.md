@@ -4,7 +4,7 @@
 
 MoviePass 的竞争对手 Sinemia 最近因 [在顾客提前购买电影票时收取 1.80 美元的“手续费”](https://www.doctorofcredit.com/sinemia-adds-new-1-8-processing-fee-for-pre-paid-movies/) 而受到抨击(它已经 [对预售](https://www.reddit.com/r/Sinemia/comments/8d1b53/convenience_fees/) 收取了另一笔费用)。如今，随着实体借记卡的重新引入，它提供了一种“免除所有费用”的新选择。有了新卡，你可以在上映当天的票房或者在影院网站上购买电影。
 
-Watch
+
 
 如果你已经被通过该服务购买门票的相关费用所困扰，那么实体卡听起来是个不错的主意。除了这里有几个(相当大的)警告需要考虑
 

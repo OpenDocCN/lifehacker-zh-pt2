@@ -4,7 +4,7 @@
 
 超过 450 人，其中许多是十几岁的青少年，患上了呼吸道疾病，这似乎与 vaping 有关。六个人已经死了。最近， [《华盛顿邮报》报道称，卫生官员正在调查大麻样本中的一种特殊化学物质:醋酸维生素 E。](https://www.washingtonpost.com/health/2019/09/05/contaminant-found-vaping-products-linked-deadly-lung-illnesses-state-federal-labs-show/?arc404=true)
 
-Watch
+
 
 根据滚石 的 [报道，醋酸维生素 E 是增稠剂的主要成分，用于稀释黑市 THC(大麻)vapes 中的大麻油:](https://www.rollingstone.com/culture/culture-features/vaping-honey-cut-mystery-thickener-vitamin-e-acetate-vapes-881896/)
 

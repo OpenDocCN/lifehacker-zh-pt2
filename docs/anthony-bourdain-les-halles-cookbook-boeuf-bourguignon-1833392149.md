@@ -4,7 +4,7 @@
 
 *这一周，*外卖的*彭凯将会从安东尼·鲍代恩的* [的](https://thetakeout.com/anthony-bourdain-les-halles-cookbook-french-onion-soup-1833361381) [*烹饪以及 Les Halles 的*](https://thetakeout.com/anthony-bourdain-les-halles-cookbook-french-onion-soup-1833361381) *烹饪书中写写他的经历。*
 
-Watch
+
 
 * * *
 

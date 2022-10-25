@@ -4,7 +4,7 @@
 
 你知道现在是什么时候:政客们向你的收件箱发邮件要钱的时候。天哪，有时候，他们活该！贝托，拿走我的钱！沃伦，这是我的借记卡和银行账户信息！AOC，这是我一生的积蓄！但有时，当涉及到谁接受你的竞选捐款时，多一点点辨别是值得的，正如我们本周所了解到的。
 
-Watch
+
 
 周二，一个人被 [指控](https://www.nbcnews.com/politics/justice-department/california-man-set-bogus-websites-bernie-beto-defraud-donors-prosecutors-n985036) 欺诈有希望的捐赠者，接受超过 25，000 美元作为支持伯尼·桑德斯、奥罗克和其他民主党领导人的虚假政治行动委员会的一部分。
 

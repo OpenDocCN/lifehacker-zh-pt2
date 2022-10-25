@@ -4,7 +4,7 @@
 
 还记得那次我们告诉你 [不要在收银台注册商店信用卡](https://lifehacker.com/never-sign-up-for-store-cards-at-the-register-1838921912) 吗？根据上周 [对比卡](https://www.comparecards.com/blog/fewer-americans-pay-store-cards-quickly-post-holiday/) 发布的数据，你们很多人没有听进去。根据 12 月下旬进行的一项调查，在刚刚过去的假日季节，37%的美国人申请了商店信用卡。
 
-Watch
+
 
 如果你像 54%的人说他们注册是为了得到商店折扣，那么注册一张商店卡是没问题的。如果你没有立即用那张卡付款的计划，麻烦就开始酝酿了。截至 2019 年底，零售卡的平均年利率为 25.4%，而所有信用卡的平均年利率为 15%。这意味着你在购买节日礼物时渴望得到的折扣可能会一直困扰着你，直到明年圣诞节，甚至更久。
 

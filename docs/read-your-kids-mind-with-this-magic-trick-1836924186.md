@@ -4,7 +4,7 @@
 
 你不能读你孩子的想法。如果可以的话，你会知道他新喜欢的颜色变成了蓝绿色，尽管你刚刚给他买了一个蓝色的杯子，这是他三个小时前最喜欢的颜色。但是你可以让他*认为*你可以读懂他的心思，这多亏了 u/trongs24 发布在 Reddit 上的这个 [超级好玩的小把戏](https://www.reddit.com/r/howto/comments/bkkuje/how_to_perform_this_simple_mind_reading_trick/) 。
 
-Watch
+
 
 YouTube 频道《心灵爆炸魔法幻觉》打破了这种把戏:
 

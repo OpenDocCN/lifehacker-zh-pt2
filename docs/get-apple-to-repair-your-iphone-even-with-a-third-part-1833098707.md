@@ -4,7 +4,7 @@
 
 如果你用第三方替代品更换了你的 iPhone 电池，并需要修理你的设备，你很幸运:苹果现在将使用第三方电池为 iPhone 提供服务， [MacRumors 报道](https://www.macrumors.com/2019/03/05/iphones-third-party-batteries-now-repair-eligible/) 。
 
-Watch
+
 
 Genius Bar 和苹果授权服务提供商的员工在历史上拒绝了带有大多数售后零件的设备，将更换电池的用户排除在苹果生态系统之外。
 

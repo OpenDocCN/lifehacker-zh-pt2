@@ -4,7 +4,7 @@
 
 显然， [某种程度的健康是遗传的](https://vitals.lifehacker.com/how-much-does-genetics-really-affect-your-fitness-1747333767) :你不能指望每个人都遵循同样的锻炼有相同的结果。进行测试来看看你个人是否与优秀短跑运动员或举重运动员有相同的基因是很有诱惑力的。但是 [DNA 测试不能告诉你太多关于你的健康状况](https://vitals.lifehacker.com/can-a-dna-test-really-help-you-lose-weight-1825822704) ，事实证明，知道你的结果实际上可能会改变你的感觉和表现。
 
-Watch
+
 
 最近的一项研究(付费，但 [在这里很好地总结了](https://www.strongerbyscience.com/genetics-expectations/?utm_source=share&utm_medium=ios_app) )测试了 116 个人的 [CREB1 基因](https://www.researchgate.net/publication/43227024_CREB1_is_a_strong_genetic_predictor_of_the_variation_in_exercise_heart_rate_response_to_regular_exercise_The_HERITAGE_Family_Study) 的变异，这与有氧健身有关。然后他们将测试结果随机分组:一半的参与者被告知他们有“高风险”版本的基因，另一半被告知他们有“保护性”版本的基因。但是他们故意给一些人错误的结果，只是为了看看会发生什么。
 

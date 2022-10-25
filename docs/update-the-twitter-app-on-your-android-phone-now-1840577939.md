@@ -4,7 +4,7 @@
 
 如果你在 Android 上使用 Twitter，那么你应该确保你运行的是最新版本的应用。
 
-Watch
+
 
 Twitter [昨天](https://privacy.twitter.com/en/blog) 宣布，它在 Android 的 Twitter 中发现了一个漏洞，该漏洞可能“允许坏人查看非公开账户信息或控制你的账户(即发送推文或直接消息)。”
 

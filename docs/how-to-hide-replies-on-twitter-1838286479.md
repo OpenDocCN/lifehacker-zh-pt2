@@ -4,7 +4,7 @@
 
 几年前，Twitter 用“ [”对话排名](https://www.theverge.com/2016/11/29/13779330/twitter-ranked-replies-conversation-counts-mobile) ”取代了按时间顺序排列的推文回复列表，“优先考虑你关注的人和最初推文的作者的回复。2018 年，为了遏制滥用，排名系统开始纳入 [其他因素](https://www.theverge.com/2018/5/15/17352962/twitter-abuse-changes-ranking-tweets-conversations-search) ，如用户拥有的账户数量及其 IP 地址。
 
-Watch
+
 
 在减少滥用的另一个步骤中， [Twitter 上周宣布](https://blog.twitter.com/en_us/topics/product/2019/controlexpansion.html) 他们将推出一项功能，允许用户*隐藏*对其推文的回复。根据 Twitter 的说法，这是为了帮助其用户进行“更好的对话”——或者遏制劣质推文的问题。
 

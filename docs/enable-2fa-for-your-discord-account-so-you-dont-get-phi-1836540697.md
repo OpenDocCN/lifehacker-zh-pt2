@@ -4,7 +4,7 @@
 
 好消息是什么？最近的一次网络钓鱼尝试击中了 Discord，并且只困住了一小批用户——总共大约 2500 人。坏消息呢？没有简单的工具来判断你是否在那个名单上，所以你最好现在就花点时间在服务上重置你的密码。更重要的是，是时候停止懒惰，启用双因素身份认证，这可以帮助保护您免受未来的网络钓鱼企图。
 
-Watch
+
 
 正如今天 [Vice](https://www.vice.com/en_us/article/evye3a/hackers-publish-list-of-discord-email-addresses-passwords-login-credentials?utm_source=mbtwitter) 报道的那样，受骗用户的名单很小，甚至充满了意识到自己被钓鱼的聪明的不和谐用户:
 

@@ -4,7 +4,7 @@
 
 本周，谷歌 [宣布推出 Stadia](https://gizmodo.com/all-the-detail-about-stadia-googles-huge-bet-on-the-fu-1833410886) ，这是一项从云端运行的游戏服务，而不是你客厅里的游戏机或你书房里的加大马力的游戏装备。不过，网络流媒体游戏的概念并不新鲜 Stadia 要对抗的是其他服务，以及它们提供的服务。
 
-Watch
+
 
 首先，让我们快速回顾一下什么是体育场。本质上，它在谷歌的服务器上运行游戏，然后以高达 4K 的分辨率将游戏传输到你选择的设备上。它可以在任何运行 Chrome 或支持 Chromecast 协议的设备上运行。
 

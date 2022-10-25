@@ -4,7 +4,7 @@
 
 我从事美食写作已经十多年了，直到今天，我仍然对美食一无所知。但这是我职业的终极特权，它让我可以钉上 [一份正宗的法式煎蛋卷](https://thetakeout.com/4-lessons-tips-in-how-to-make-omelettes-1832765134)[精心烹制我的意大利面条](https://thetakeout.com/lessons-from-the-school-of-spaghetti-carbonara-1798259380) ， [对付](https://thetakeout.com/anthony-bourdain-les-halles-cookbook-french-onion-soup-1833361381) [法式](https://thetakeout.com/anthony-bourdain-les-halles-cookbook-boeuf-bourguignon-1833392149) [小酒馆](https://thetakeout.com/anthony-bourdain-les-halles-cookbook-pork-rillette-1833418748) [美食](https://thetakeout.com/anthony-bourdain-les-halles-cookbook-skate-grenobloise-1833453886) ，并在我的工作时间里这样做。
 
-Watch
+
 
 最近，我一直渴望得到我的韦伯水壶架，它已经在芝加哥寒冷的雪地里闲置了六个月。但是春天来了。汉堡、牛排、鸡翅都是必不可少的东西(坦白说有点无聊)，所以我想了很久如何提高我的烧烤天赋。然后我突然想到，就像一条飞来的鲤鱼扑面而来:
 

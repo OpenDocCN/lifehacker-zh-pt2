@@ -4,7 +4,7 @@
 
 以前有人说过，但它值得重复:第一轮民主党总统候选人辩论 [辜负了这个星球](https://newrepublic.com/article/154334/first-democratic-debate-failed-planet) 。在总计 240 分钟的讨论中——在 [市举行的一场准备沉入大海](https://www.nytimes.com/2019/06/24/us/miami-democratic-debates.html?smid=nytcore-ios-share) 的活动中——主持人将总计 15 分钟 的播出时间用于讨论人类面临的最大生存威胁。
 
-Watch
+
 
 我们一点也不惊讶。事实上，我们几个月来一直在期待这个结果——这就是为什么早在 4 月份， [我们就有了一个想法](https://twitter.com/emorwee/status/1115261769386274821) :如果我们自己计划一个关于气候问题的候选人交流会怎么样？
 

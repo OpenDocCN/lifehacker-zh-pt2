@@ -4,7 +4,7 @@
 
 你厨房里有洋葱吗？是的，我也是。突击测验:洋葱来自哪个农场或经销商？如果你不能回答这个问题，你应该扔掉它。
 
-Watch
+
 
 7 月 31 日 T3，FDA 和 CDC [宣布他们已经追踪到红洋葱中爆发的*沙门氏菌*的一个“可能来源”:一个名叫汤姆森国际公司的加州供应商](https://www.fda.gov/news-events/fda-brief/fda-brief-fda-advises-consumers-avoid-red-onions-california-supplier-investigation-continues-find)
 

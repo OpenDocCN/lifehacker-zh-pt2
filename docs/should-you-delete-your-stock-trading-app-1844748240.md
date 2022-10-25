@@ -8,7 +8,7 @@
 
 增加的罗宾汉需求并非没有受到审查——包括 [停电投诉](https://techcrunch.com/2020/03/03/robinhood-will-offer-case-by-case-compensation-for-its-outage-on-the-day-markets-gained-1-1-trillion/)——以及 [一些国会议员要求更多投资者保护的一封信](https://sherman.house.gov/sites/sherman.house.gov/files/Robinhood%20letter_0.pdf) 。今年 6 月，一名 20 岁的用户亚历克斯·卡恩斯(Alex Kearns)悲惨地结束了自己的生命，当时他认为自己在该平台上交易股票期权时损失了 73 万美元。期权合约赋予你在特定日期或之前以特定价格买卖股票的权利，而不是义务。因此，当卡恩斯在应用程序中看到负六位数的“购买力”数字时，并不意味着他失去了这笔钱。
 
-Watch
+
 
 罗宾汉随即在一篇博文 中发誓要做出改变 [。该公司表示，将考虑对那些可以交易期权的人进行更严格的资格审查，增加教育资源，并更新应用程序内的消息，使期权交易更容易理解。](https://blog.robinhood.com/news/2020/6/19/commitments-to-improving-our-options-offering) 
 

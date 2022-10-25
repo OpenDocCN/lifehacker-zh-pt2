@@ -4,7 +4,7 @@
 
 现在有很多人试图从冠状病毒焦虑中赚钱，无论是通过 [对一瓶 Purell](https://nypost.com/2020/03/06/liquid-gold-purell-selling-for-79-in-manhattan-hardware-store/)[收费 79 美元，在 Etsy](https://www.msn.com/en-au/health/medical/people-are-turning-to-etsy-for-coronavirus-proof-face-masks-but-it-seems-to-be-full-of-counterfeit-antiviral-gear-that-doesnt-work/ar-BB10rtwl) 上销售假冒口罩，还是 [声称可以用精油](https://www.ocregister.com/2020/03/10/feds-warn-buena-park-firm-warn-about-pitching-coronavirus-cures/) 治愈新冠肺炎。
 
-Watch
+
 
 还有一些你需要注意的网络诈骗——网络钓鱼诈骗、恶意软件诈骗、虚假众筹活动。
 

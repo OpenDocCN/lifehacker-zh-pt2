@@ -4,7 +4,7 @@
 
 机场酒吧如此普遍是有原因的——因为食物很难吃。毕竟，没有人喜欢早上 6 点的冷鸡蛋三明治和掺水的咖啡，啤酒可能会让一切味道好一点。
 
-Watch
+
 
 本周，旅游预订平台 [Wanderu](https://www.wanderu.com/blog/ranking-the-best-worst-airports-for-food-in-the-u-s/) 的人们根据“高评分”食物选择的百分比，对美国 50 个最繁忙的机场进行了排名，将可供选择的餐饮选择总数与他们在 Yelp 上的评论进行了比较；根据 Wanderu 的说法，Yelp 上的三星级意味着一家餐厅被认为是高评级的(看不到劣质咖啡)。
 

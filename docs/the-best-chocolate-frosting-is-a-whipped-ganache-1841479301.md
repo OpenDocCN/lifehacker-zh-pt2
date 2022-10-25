@@ -4,7 +4,7 @@
 
 如果我觉得在做蛋糕的过程中不得不偷工减料，我更有可能 [伪造蛋糕](https://lifehacker.com/how-to-make-a-boxed-cake-mix-taste-homemade-1839165427) 而不是糖霜。商店里买的糖霜比盒装的混合蛋糕更容易被发现，而且糖霜是一个更容易的项目——你只需要搅拌一个 ganache。
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled The Best Chocolate Frosting Is a Whipped Ganache](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-make-a-boxed-cake-mix-taste-homemade-1839165427)</aside>
 

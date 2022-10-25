@@ -4,7 +4,7 @@
 
 随着疫情的持续，美国人继续受到国家经济危机的影响。自三月以来，随着许多公司适应“新常态”，失业人数屡创新高
 
-Watch
+
 
 作为回应，国会通过了 [关爱法案](https://www.congress.gov/bill/116th-congress/house-bill/748/text?format=txt) ，该法案提供了几个救济项目——比如 [薪水保障项目](https://twocents.lifehacker.com/automate-ppp-loan-forgiveness-with-this-free-tool-1844444391) 、联邦 [失业保险](https://twocents.lifehacker.com/how-unemployment-benefits-are-changing-with-the-senate-1842494496) 、利用 401(k) 的能力、扩大的 [健康储蓄账户选项](https://twocents.lifehacker.com/how-to-make-the-most-of-your-health-savings-account-rig-1844449242) 等等。 
 

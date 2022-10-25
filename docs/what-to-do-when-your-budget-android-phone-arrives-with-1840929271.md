@@ -4,7 +4,7 @@
 
 美国政府的 [生命线援助](https://www.fcc.gov/consumers/guides/lifeline-support-affordable-communications) 计划的前提没有错。它允许那些收入相当低的人——比联邦贫困指导线低 135%或更低，或者一个单人家庭不到 16862 美元——获得折扣或免费的电话和无线服务。
 
-Watch
+
 
 然而，当提供的一款手机预装了恶意软件时，这就成了一个大问题。至少，MalwareBytes 是这么断言的，它注意到了预装在这样一款手机上的应用程序的一些问题，这款手机是维珍移动公司[Assurance Wireless](https://www.assurancewireless.com/)销售的 Unimax U686CL。而 [下面是它发现的](https://blog.malwarebytes.com/android/2020/01/united-states-government-funded-phones-come-pre-installed-with-unremovable-malware/) :
 

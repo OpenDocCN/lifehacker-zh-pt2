@@ -4,7 +4,7 @@
 
 谈到隐私问题，最好的建议也是最简单的建议:不要把工作和娱乐混为一谈。这意味着不要在你的工作笔记本上安装 BitTorrent 当连接到你公司的 wifi(或 VPN)时，不要浏览淘气的事情并且不要使用你的工作电子邮件转发公司机密(或不适当的模因)。*不不不*
 
-Watch
+
 
 这些规则很容易遵守，但是人们仍然无法一直遵守，结果被解雇( [或者更糟](https://copocetic.com/look-before-you-leak-a-few-pros-and-cons-of-leaking-legal-documents-to-the-media-abe3ba8cbdb3) )。然而，在高等教育的世界里，这种情况变得有点模糊不清，我们带着本周的问题回到你母校常春藤装饰的墙上。
 

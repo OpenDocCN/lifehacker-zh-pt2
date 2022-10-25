@@ -4,7 +4,7 @@
 
 当你生病不上班时，在你吃点止咳糖浆，躺在沙发上喝一碗汤之前，通常会有很多事情要做。使用 Siri 快捷方式跳过这些工作。
 
-Watch
+
 
 Siri 快捷键可以让你用几个单词命令 Siri 完成你的重要任务；它们只能在 iOS 12 中使用，所以如果这听起来很吸引人，而你还没有更新，现在是时候了。RoutineHub 是一个提供用户和开发者创建的 Siri 快捷方式的网站。作者 [@bachya](https://routinehub.co/user/bachya) 是 [娱乐城](https://routinehub.co/shortcut/339) 他们对工作的回答与生俱来。
 

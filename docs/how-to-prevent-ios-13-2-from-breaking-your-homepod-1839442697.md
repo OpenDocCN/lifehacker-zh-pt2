@@ -4,7 +4,7 @@
 
 苹果前几天发布了 iOS 13.2，为你的 HomePod 增加了一些简洁的功能——包括检测和区分多种声音的能力，以及通过将手机靠近扬声器将音频从 iPhone 传递到 Homepod。坏消息是，这次更新似乎在不分青红皂白地砖化一些 HomePods。
 
-Watch
+
 
 据 [MacRumors](https://www.macrumors.com/how-to/homepod-software-update/) 报道，一些用户声称 iOS 13.2 更新正在将他们的 HomePods 破坏到他们再也不能用智能音箱做任何事情的地步。据称，问题出现在软件安装后的*或安装后重启 HomePod 的*。(甚至有人提出，当用户在 iPhones 之前将 HomePods 更新到 iOS 13.2 时，可能会出现这个问题，但目前这只是一种直觉。)
 

@@ -4,7 +4,7 @@
 
 截至 2019 年 9 月 14 日星期六， [MoviePass 已在](https://www.cnbc.com/2019/09/13/moviepass-will-shut-down-for-good-on-sept-14.html) 完成 MoviePass。在与连锁影院、竞争对手、客户和自身进行了长期斗争后，这个“不能看完”的电影放映订阅服务在 8 岁时关闭了。
 
-Watch
+
 
 MoviePass 于 2011 年在纽约市诞生，多年来作为一种在影院观看电影的廉价方式赢得了适度的关注。2017 年，这项服务 [的月价格降至 9.99 美元](https://lifehacker.com/moviepass-now-offers-unlimited-movies-in-theaters-for-1797865400) ，可以无限制地进入电影院，不管所有者是谁。这一变化立即为这项服务带来了声誉，截至 2018 年 6 月，订阅人数超过 300 万，包括这篇讣告的作者。
 

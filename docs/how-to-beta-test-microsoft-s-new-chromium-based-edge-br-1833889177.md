@@ -4,7 +4,7 @@
 
 微软已经对其最新版本的 Edge 网络浏览器进行了公开测试，该浏览器建立在谷歌的“Chromium”[开源框架](https://github.com/MicrosoftEdge/MSEdge) 之上。这不仅意味着 Edge 应该(据称) [更好地与按照现代网络标准设计的网站配合使用](https://www.onmsft.com/editorial/a-web-developers-perspective-edges-move-to-chromium-will-increase-productivity-but-raises-long-term-concerns) ，还意味着你将能够在 Edge 中运行 Chrome 扩展——使浏览器比以前的版本更容易忍受。
 
-Watch
+
 
 据微软 的 [称，新的 Edge 对现有用户来说看起来非常相似，尽管有一些有趣的补充(支持跨 Edge 实例同步数据，以及前述的扩展)。此外，预计会遇到一些错误和其他技术问题，因为 Edge 的新迭代只能通过微软三个测试版构建分支中的两个获得:“Dev”，接收每周更新，以及“Canary”，接收每日更新。](https://blogs.windows.com/windowsexperience/2018/12/06/microsoft-edge-making-the-web-better-through-more-open-source-collaboration/) 
 

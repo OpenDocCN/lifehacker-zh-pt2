@@ -4,7 +4,7 @@
 
 在本周的升级版中，我们将探讨如何在各种情况下生存——从飓风到地震，从恐怖的枪击事件到踩踏事件——我们将在危机记者 Judith Matloff 的帮助下进行报道。朱迪思在战区、起义和其他危险环境中有 40 年的报道经验。她现在在哥伦比亚大学新闻研究生院教授危机报道，她最新的书是 [*如何拖拽尸体以及其他你希望永远不需要的安全提示*](https://smile.amazon.com/Drag-Body-Other-Safety-Never/dp/0062970933/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-survive-a-disaster-with-crisis-reporter-judith-1845049961&asc_source=&crid=OP52FP6T494S&dchild=1&keywords=how to drag a body and other safety tips&qid=1600098735&sprefix=how to drag a b,aps,141&sr=8-1&tag=kinjalifehackerlink-20) *。*
 
-Watch
+
 
 听听 Judith 关于如何在精神上和身体上为最坏的情况做准备的建议，以及她关于在自然灾害、蛇咬、断肢等情况下生存的最佳建议。
 

@@ -4,7 +4,7 @@
 
 当我们这些傻瓜整个夏天都在疫情的混乱中度过时，宇航员鲍勃·贝肯和道格·赫利已经在国际空间站呆了几个月了。自 5 月 31 日 以来，他们一直在那里 [，在佛罗里达州美国宇航局肯尼迪航天中心乘坐 SpaceX 猎鹰 9 号火箭成功旅行之后。但是今天他们开始了返回地球的旅程，你可以观看整个过程，这是由美国宇航局提供的。以下是方法。](https://www.nasa.gov/press-release/nasa-to-provide-coverage-of-astronauts-return-from-space-station-on-spacex-commercial) 
 
-Watch
+
 
 ### 如何观看 SpaceX 返回飞行
 

@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-get-first-class-perks-while-flying-coach-1831444474>
 
-Watch
+
 
 头等舱和商务舱机票有很多额外津贴。你比任何人都先登机，保证有地方放你的随身行李，有最大的伸腿空间(有时还有一个平躺的座位！).你可以得到免费的饮料和食物，这比飞机上其他客舱提供给乘客的要高。
 

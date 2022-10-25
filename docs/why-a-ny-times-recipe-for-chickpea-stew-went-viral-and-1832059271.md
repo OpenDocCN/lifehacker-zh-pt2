@@ -4,7 +4,7 @@
 
 菜肴从在人们的厨房里烹制，到被拍照、发布并在网上分享足够多的时间，成为互联网现象，这通常涉及某种噱头。这些食谱如此简单，以至于制作它们感觉就像是参与了一场骗局。几年前有过 [单一成分的香蕉“冰淇淋”](https://cooking.nytimes.com/recipes/3038-one-ingredient-banana-ice-cream) ，或者玛塞拉·哈赞不插手的 [番茄黄油意粉酱](https://food52.com/recipes/13722-marcella-hazan-s-tomato-sauce-with-onion-butter) 。这样的菜肴美味可口，但同时也有一种可疑的感觉，即有人在某种程度上规避了烹饪过程。
 
-Watch
+
 
 这就是为什么令人振奋的是看到一个更复杂，但仍然相对简单的菜得到了一些关注。艾莉森·罗曼的 [鹰嘴豆炖椰子和姜黄](https://cooking.nytimes.com/recipes/1019772-spiced-chickpea-stew-with-coconut-and-turmeric) 的食谱首次出现在 11 月下旬的*纽约时报*上，在接下来的几个月里*在*作者的丰盛素食餐中用餐已经被烹饪、拍照并在网上分享了数千次。(这并不是罗曼的食谱第一次以这种方式出现。去年，她的 [巧克力块酥饼](https://www.bonappetit.com/story/alison-roman-chocolate-chunk-shortbread-cookies) 也同样难逃厄运。)这个食谱——或者说# The stew——与罗曼和《纽约时报》专栏作家梅丽莎·克拉克习惯创造的其他食谱相去不远。菜是实质性的，比较健康；准备时间不长；最重要的是，味道很好。椰子汁带来了奶油般的口感，印度风味带来了令人舒适的温暖，否则可能会给人以苦行僧般的冬季食物的感觉。
 

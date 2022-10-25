@@ -4,7 +4,7 @@
 
 我承认——我迷上了奥普拉。不是当着她的面。她站在舞台上，离我大约 30 英尺，穿着一套很少有人能完成的飘逸的桑德斯上校服装(奥普拉做到了)。我也去过阿尔法·沃德和杰森·莫玛。我想到了史蒂夫·斯皮尔伯格在舞台上看起来有多短，想到了伊万·麦格雷戈的头发有多浓密和奢华。这些名人都出席了周一的苹果发布会，几个小时后，很明显，他们去那里是为了转移人们对苹果无话可说的事实的注意力。
 
-Watch
+
 
 当然，该公司宣布了一张 [有问题的新信用卡](https://gizmodo.com/the-apple-card-is-great-at-privacy-but-mediocre-overall-1833582689) ，一项 [新闻策展服务](https://gizmodo.com/apple-finally-jumps-into-games-with-subscription-servic-1833548776) 这是独立新闻业的又一颗钉子，而 [则是它自己在统一游戏平台](https://gizmodo.com/apple-finally-jumps-into-games-with-subscription-servic-1833548776)**上的尝试，但长达一个半小时的活动主要集中在 [苹果电视](https://gizmodo.com/heres-the-full-rundown-on-apple-tv-and-the-new-apple-tv-1833541652) (不， 不是你插在电视上的媒体播放器——你在你插在电视上的媒体播放器上使用的应用程序，很快也会有一些智能电视)和 Apple TV+，这是苹果公司的一项新服务，将包括许多许多名人出席的大量原创内容。**
 

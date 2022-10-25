@@ -4,7 +4,7 @@
 
 如果你和我一样，也是苹果迷，现在是时候开始考虑你打算购买的下一部手机了，苹果已经推出了 [iPhone 11 和 iPhone 11 Pro](https://lifehacker.com/everything-from-todays-apple-event-that-actually-matter-1838013573) 。但是也有很多很棒的手机不是以“I”开头的。
 
-Watch
+
 
 如果你打算在下一部设备上花大钱，我想你可能会发现自己在考虑一个决定:你应该选择哪一款最大、功能最齐全的高端手机:iPhone 11 Pro 或三星的 Galaxy Note 10(或它们更大的“Max”和“Plus”版本)。那么，让我们来看看它们是如何叠加的。
 

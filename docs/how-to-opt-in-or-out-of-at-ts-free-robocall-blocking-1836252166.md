@@ -4,7 +4,7 @@
 
 机器人电话令人讨厌，但与它们斗争是混乱和不均衡的。在你的 [Android](https://lifehacker.com/how-to-block-annoying-spam-calls-and-texts-in-android-n-1785691168) 或 [iOS](https://lifehacker.com/the-best-ios-13-tricks-you-havent-tried-yet-1835838149) 设备上，你有一些弹药来对抗这种烦恼，但那是一种反动战术，而不是主动战术。
 
-Watch
+
 
 FCC 法规的最新变化将允许提供商 [默认为其客户拦截垃圾邮件和自动呼叫](https://twocents.lifehacker.com/you-can-block-robocalls-by-default-with-your-phone-comp-1835324828) ，AT & T [宣布](https://about.att.com/story/2019/att_call_protect.html) 将免费呼叫保护服务扩展到所有用户，而不需要他们手动下载额外的应用程序来启用它。
 

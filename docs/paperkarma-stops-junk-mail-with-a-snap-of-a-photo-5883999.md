@@ -6,7 +6,7 @@
 
 四次免费退订请求后，PaperKarma 的费用为每月 1.99 美元或每年 19.99 美元。如果不想无限期报名，那就存起来，批量退订。你不必保存所有的物理邮件——该应用程序允许你上传现有的照片，所以你可以在收到回信地址时拍摄它们，将其转储到你的照片应用程序的一个文件夹中，然后一次性上传到 PaperKarma。如果你真的想继续收到垃圾邮件，就不要拍下来。(我喜欢通过邮件获得旧的海军销售警报。别让我难堪。)如果某个发件人在你告诉他们停止发送垃圾邮件后 12 周还继续向你发送垃圾邮件，你可以告诉 PaperKarma。告诉那些威瑞森的邮差你不会被耍的。
 
-Watch
+
 
 [paper karma](https://www.paperkarma.com/)| via[TechCrunch](http://techcrunch.com/2012/02/09/take-a-photo-and-stop-your-junk-mail-with-paperkarma/)
 

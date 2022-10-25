@@ -4,7 +4,7 @@
 
 AirPods 很容易乱放，我们知道。如果你最近不得不购买一个替代 AirPod 耳塞，你可能会认为现在一切都好了——你孤独的 AirPod 现在又有了一个朋友。然而，许多苹果粉丝 [报告](https://www.imore.com/apple-shipping-single-replacement-airpods-new-unreleased-firmware-and-people-cant-use-them) 他们的替换 AirPod 无法与他们的旧 AirPod 配对，这使得拥有一对功能性的配对失去了意义。
 
-Watch
+
 
 不用担心；这一次甚至不是一个 bug，你的 [新 AirPod](https://lifehacker.com/how-to-set-up-your-brand-new-airpods-pro-1839488952) 也没有坏。苹果不小心运出了一些未发布固件版本 2D3 的替代 AirPods，使它们与你已经拥有的 AirPods 不兼容。两个 AirPods 都需要运行相同的固件才能配对。
 

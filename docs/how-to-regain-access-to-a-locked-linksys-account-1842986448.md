@@ -4,7 +4,7 @@
 
 Linksys 目前正在强制任何拥有其“智能 Wi-Fi”服务账户的人重置密码。这种行为可能看起来是随机的，甚至令人担忧，但这是 Linksys 努力减轻 4 月初针对其用户的恶意软件攻击的一部分。
 
-Watch
+
 
 据 [Linksys](https://www.linksys.com/us/support-article?articleNum=317063) 称，黑客利用凭证填充攻击控制了至少 1200 台路由器，并将连接的设备重定向到充满恶意软件的网页，这些网页充斥着 [与冠状病毒相关的网络钓鱼诈骗](https://lifehacker.com/dont-get-suckered-by-these-coronavirus-phishing-scams-1842967378?rev=1587412411147) 。Linksys 注意到了可疑的活动，并重置了所有智能 Wi-F 用户的登录凭证，以防止进一步的攻击——但这也意味着即使用户的密码没有泄露，他们也会被毫不客气地踢出他们的帐户。
 

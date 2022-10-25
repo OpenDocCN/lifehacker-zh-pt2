@@ -4,7 +4,7 @@
 
 在我加入 Lifehacker 的第一个月，我就开始了这个 [**科技 911**](https://lifehacker.com/c/tech-911) 专栏，对于你的许多科技问题，我得到了很多答案——偶尔猜测，但大多是经过充分研究的观点。
 
-Watch
+
 
 请继续将你的 [技术问题发送到我的电子邮件地址](mailto:david.murphy@lifehacker.com?subject=Tech 911) 或者发表在下面的评论中，这样我就有一大堆问题要在 2019 年解决。与此同时，让我们回顾一下 Lifehacker 读者今年分享的一些最受欢迎的技术难题。
 

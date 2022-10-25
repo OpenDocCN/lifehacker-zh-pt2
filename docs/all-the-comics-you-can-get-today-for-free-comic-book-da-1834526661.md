@@ -4,7 +4,7 @@
 
 [免费漫画日](https://www.freecomicbookday.com/Article/222154-Free-Comic-Book-Day-2019-Full-List-of-Comic-Books-Announced) 是今天，5 月 4 日，这一天也正好是星球大战日。漫画零售今年共选择了 51 本免费书籍，12 本来自金牌赞助商，39 本来自银牌赞助商。
 
-Watch
+
 
 “每年，我们都不断努力给粉丝们带来最好的免费漫画书日体验，”乔·菲尔德，FCBD 的创始人，加州康科德的 Flying Colors Comics 的所有者，在一份准备好的声明中说。“今年漫画书的口径、力度、和深度都非常棒，世界各地的独立漫画店零售商都迫不及待地想让粉丝和顾客享受一天的乐趣、发现和了解漫画店。”
 

@@ -4,7 +4,7 @@
 
 如果你没有关注最新的平价医疗法案，我不怪你。今天早上,《华盛顿邮报》刊登了一篇标题为 [的报道，白宫有或没有比奥巴马医改](https://www.washingtonpost.com/politics/2019/04/01/white-house-does-or-doesnt-have-health-care-plan-that-is-or-isnt-better-than-obamacare/?utm_term=.2a98125abe40) 更好或更差的医疗保健计划——这甚至不是愚人节的头条。
 
-Watch
+
 
 所以。我们知道些什么？
 

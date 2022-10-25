@@ -4,7 +4,7 @@
 
 我们熬过了 10 月，这意味着有氧运动间歇 的 [月结束了，我们现在可以躺在地板上，流汗喘气，发誓再也不这样了。](https://lifehacker.com/c/lifehacker-fitness-challenge)
 
-Watch
+
 
 无论你是在健身房的有氧健身器 上跳来跳去，还是在你的客厅里做一些 [HIIT 锻炼](https://vitals.lifehacker.com/the-best-interval-workouts-you-can-do-in-your-living-ro-1839162550) ，或者花时间去 [学习划船](https://vitals.lifehacker.com/how-to-do-intervals-on-a-rowing-machine-1838974151) ，我希望你能从这个挑战中有所收获——即使只是知道间歇运动可能不是你最喜欢的运动类型。
 

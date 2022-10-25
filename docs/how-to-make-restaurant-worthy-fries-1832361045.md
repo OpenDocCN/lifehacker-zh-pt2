@@ -4,7 +4,7 @@
 
 说到炸薯条，快餐店做得最好。不是他们用最新鲜的土豆(他们没有)，也不是他们有某种秘密调料(是盐)，甚至不是他们油炸的事实(这是一种很好的战术，但不是必要的)。我的朋友们，秘密在于它们是双熟的。
 
-Watch
+
 
 大多数餐馆点的薯条是冷冻的，而这些薯条已经煮过一次了。其他餐馆——比如 [这家](http://www.in-n-out.com)——在室内切土豆，煮一次，他们的薯条烂透了。正如 J. Kenji Lopez-Alt 对 NPR 的[](https://www.npr.org/sections/thesalt/2016/03/24/470396393/fry-and-fry-again-the-science-secrets-to-the-double-fry)*盐的解释，罪魁祸首是水分。你需要第二轮烹饪来使土豆脱水:*
 

@@ -4,7 +4,7 @@
 
 我还没有拿到国税局的刺激支票。每次我查看美国国税局的 [获取我的付款](https://www.irs.gov/coronavirus/get-my-payment) 网站时，我都会收到消息“我们目前无法确定您的付款资格。”我不是唯一一个处于这种困境的人，这就是为什么人们一直在访问 Reddit 的[r/stimulus check](https://www.reddit.com/r/stimuluscheck/)subreddit 这样的网站，分享他们在刺激检查方面的挫折。
 
-Watch
+
 
 不幸的是，一些人也在分享照片和截图——从装有刺激支票的信封到直接存款公告。
 

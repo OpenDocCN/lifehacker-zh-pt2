@@ -4,7 +4,7 @@
 
 当乔氏 [多用途鲜味调味料](https://www.traderjoes.com/digin/post/umami-seasoning-blend) 首次向世界发布时，我收到了许多关于它的文字、DM 和电子邮件，因为 [我的品牌非常强大](https://twitter.com/PenLlawen/status/1166021027492716544) 。作为第五种味道的爱好者，我对这种粉末感到兴奋，特别是因为 TJ's 已经停止了他们的鲜味酱。
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Make a Better Trader Joe&#39;s &#39;Umami Powder&#39; With Dried Mushrooms](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/make-the-ultimate-salted-caramel-with-msg-1837100417)</aside>
 

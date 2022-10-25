@@ -4,7 +4,7 @@
 
 很明显，你为什么想要保持个人信息的私密性，比如密码和信用卡数据。但是医疗数据可能不那么明显:为什么黑客会关心我是否有糖尿病？多亏了 [一份新的报告](https://www.carbonblack.com/resources/threat-research/healthcare-cyber-heists-in-2019/) ，我们现在对医疗系统的数据遭到破坏时会发生什么有了更多的了解。
 
-Watch
+
 
 报道称，黑客可以在 [暗网](https://lifehacker.com/things-you-can-do-on-the-dark-web-that-arent-illegal-1819790298) 上转而出售窃取的数据。最有价值的健康信息实际上不是你的医疗信息，而是帮助人们实施其他类型欺诈的文件:
 

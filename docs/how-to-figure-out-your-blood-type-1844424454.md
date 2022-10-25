@@ -4,7 +4,7 @@
 
 问一个特定年龄的人他们是什么血型，他们很可能马上就能知道。从 [军用狗牌](https://www.army.mil/article/123034/whats_on_your_dog_tag#:~:text=Today's%20identification%20tags%20identify%20vital,H%20for%20Hebrew%20(Jewish).) 到 [儿童身上的冷战时期纹身](https://www.mentalfloss.com/article/573101/operation-tat-type) ，其理念是知道你的血型可以在你可能需要立即输血的紧急情况下拯救你的生命。但是曾经是一条重要的个人信息，人们可以在出生日期、家庭住址和社会安全号码旁边快速背诵，不再是每个人都知道或记得的东西。
 
-Watch
+
 
 多亏了新冠肺炎，血型最近再次成为新闻。最初，一些人认为血型和 COVID 症状的严重程度之间可能有联系，但哈佛大学的一项新研究发现事实并非如此。即便如此，考虑到所有其他潜在的诊断并发症，了解你的血型是个好主意。那么，你有八种最常见的血型之一( [A+，A-](https://www.redcrossblood.org/donate-blood/blood-types/a-blood-type.html) ， [B+，B-](https://www.redcrossblood.org/donate-blood/blood-types/b-blood-type.html) ， [O+，O-](https://www.redcrossblood.org/donate-blood/blood-types/o-blood-type.html) ， [AB+，AB-](https://www.redcrossblood.org/donate-blood/blood-types/ab-blood-type.html) )，或者有一种 [那就很少见了](https://www.redcrossblood.org/donate-blood/dlp/rare-donors.html) ？下面是如何弄清楚的。
 

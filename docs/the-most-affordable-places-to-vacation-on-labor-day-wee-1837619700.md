@@ -4,7 +4,7 @@
 
 劳动节周末 抢打折机票的 [时间已过；然而，仍然有时间在周末的酒店房间上得到很大的折扣。](https://lifehacker.com/book-your-labor-day-flights-this-week-for-the-best-deal-1837387860) 
 
-Watch
+
 
 Priceline 最近根据 8 月 30 日至 9 月 2 日期间酒店的平均每日价格，分析了这些数据，以找出周末最实惠的酒店目的地。
 

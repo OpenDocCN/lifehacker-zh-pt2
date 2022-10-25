@@ -4,7 +4,7 @@
 
 这个游戏是非法的。Razzle，又名 Razzle-Dazzle，是一种伪装成嘉年华或街头游戏的骗局，在这里你在一个盒子里滚动大理石收集点数。突然出现在 [哈瓦那](http://www.lahabana.com/content/on-diamonds-razzle-and-goddesses-of-the-flesh-2/)[纽约](https://www.nydailynews.com/new-york/mobsters-shots-carnival-game-cash-article-1.1242359)[新奥尔良](https://www.chron.com/news/nation-world/article/Role-of-New-Orleans-police-in-rigged-game-1967577.php) ，以及全美各地的路边和停车场，这就像三张牌的蒙特，但更复杂，也更好地伪装成真实的游戏。
 
-Watch
+
 
 这是吸引力的一部分，也是为什么一个好的骗子可以让傻瓜们继续玩下去，每轮支付几美元，直到他们失去几千美元 T2 T3。这里有一个 [的美丽演示](https://www.youtube.com/watch?v=527F51qTcTg) 由 [的数学家詹姆斯·格里莫](https://www.youtube.com/channel/UCoxcjq-8xIDTYp3uz647V5A) 和 [的魔术师布莱恩·布鲁姆斯](https://www.youtube.com/channel/UCRd9JHiQvqwT8O4d0QGI9jQ) 完成。
 

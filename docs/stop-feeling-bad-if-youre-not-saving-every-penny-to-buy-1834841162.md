@@ -4,7 +4,7 @@
 
 如果你觉得自己的购房目标有点落后——或者如果你想知道购房是否应该是你的目标之一——不要担心。首先，你不是一个人。第二，现在比以往任何时候都更难攒钱买房了。
 
-Watch
+
 
 《美国消费者新闻与商业频道》最近一篇关于 [攒首付的困难](https://www.cnbc.com/2019/05/15/living-with-your-parents-to-save-money-mighthurt-your-chances-of-becoming-a-homeowner.html) 的文章指出，现在需要将近十年的时间来积累现金:
 

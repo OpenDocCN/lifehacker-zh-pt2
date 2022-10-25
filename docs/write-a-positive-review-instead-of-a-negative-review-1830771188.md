@@ -4,7 +4,7 @@
 
 如果你在某件事上有过糟糕的经历——比如去餐馆、看书或去沙龙——在留下负面评价之前花一分钟。值得吗？
 
-Watch
+
 
 在我们关于 [写作创作者感谢信的帖子](https://twocents.lifehacker.com/send-creators-thank-you-notes-this-holiday-season-1830721570) 这个假期， [交通锥 3 号](https://twocents.lifehacker.com/1830731480) 提供了这个伟大的建议:
 

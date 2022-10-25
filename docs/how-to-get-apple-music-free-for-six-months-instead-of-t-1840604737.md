@@ -4,7 +4,7 @@
 
 如果苹果对新的 [苹果音乐](https://www.apple.com/apple-music/) 用户的三个月免费试用还不足以让放弃 Spotify，六个月的试用怎么样？
 
-Watch
+
 
 多亏了一个创造性的变通办法，最初是由 [9to5Mac](https://9to5mac.com/2019/12/20/apple-is-offering-six-months-of-apple-music-subscription-for-free-heres-how-to-get-it/) 发现的，你可以使用一个特殊的 Shazam 推广，将 Apple Music 的典型免费试用时间延长一倍。这有足够的时间来做决定——或者，至少，这是一种省钱的快捷方式。只要你不介意 [重新调整你的播放列表](https://lifehacker.com/move-your-streaming-music-between-spotify-apple-and-g-1823612996) ，你没有理由不取消当前的流媒体服务，享受六个月的苹果免费流媒体服务。
 

@@ -4,7 +4,7 @@
 
 在今天这一期的[**Tech 911**](https://lifehacker.com/c/tech-911)——life hacker 的技术支持专栏一周以来一直关注你在家工作的问题——我们将讨论一个老话题:微软 Windows。具体来说，当每次你试图启动操作系统时，Windows 开始抛出令人讨厌的错误信息，会发生什么？如果你试图在一天中登录并在关键的截止日期前完成工作，而你又没有真正的 IT 部门来帮忙，这可能是最糟糕的情况。
 
-Watch
+
 
 在我们扔给你一个数字救生圈之前，让我们从 life hacker reader[**patch kek**](https://lifehacker.com/1842437421)那里了解一下细节。
 

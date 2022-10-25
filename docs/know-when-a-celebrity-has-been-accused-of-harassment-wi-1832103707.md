@@ -4,7 +4,7 @@
 
 我承认我不了解很多名人的八卦新闻。这意味着我通常不知道一个演员在和谁约会，或者他们刚刚有了一个孩子。我也不知道什么时候有人被指控性骚扰或性侵犯，除非这件事引起了温斯坦级别的关注。
 
-Watch
+
 
 [在 Chrome 扩展中发现骚扰者](https://chrome.google.com/webstore/detail/uncover-harassers/lafpdaabjfbkfhkcmlellicnacnhkgjc) ，它可以帮助我知道我正在阅读的人被指控骚扰。这个想法是，你可能会宣传某个特定的名人或他们的作品，而没有意识到他们被指控做了一些可怕的事情。
 

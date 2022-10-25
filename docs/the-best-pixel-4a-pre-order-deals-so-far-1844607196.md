@@ -4,7 +4,7 @@
 
 谷歌终于在周一宣布了传闻已久(也经常泄露)的 Pixel 4a 智能手机。虽然这款新的中端手机与更强大的 Pixel 5 和 Pixel 4a 5G 手机分享了舞台，但我们仍然不太了解这两款手机(包括发布日期)。眼下，是 Pixel 4a 大放异彩的时候了。
 
-Watch
+
 
 128GB Pixel 4a 将于 8 月 20 日发布，售价仅为 349 美元——比普通智能手机便宜多了。 [早期评论](https://gizmodo.com/google-pixel-4a-review-the-best-budget-phone-of-2020-1844575872) [都是正面的](https://www.theverge.com/21351770/google-pixel-4a-review-camera-specs-price) ，许多媒体都将 Pixel 4a 出色的摄像头、精简的功能和令人尊敬的中档规格称为这款手机的最大优势。
 

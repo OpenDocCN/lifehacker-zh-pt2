@@ -4,7 +4,7 @@
 
 曾经希望你的信用卡债务会消失吗？不是吗，我的朋友们。但如果你是大通的客户，这可能真的发生了。只有一个条件:你必须是它以前的加拿大客户之一。
 
-Watch
+
 
 去年，大通撤出了加拿大，关闭了持有其两张 Visa 卡中任何一张的人的账户，其中一张是与亚马逊的联名信用卡，另一张是与万豪的联名信用卡。当时， [NBC 新闻](https://www.nbcnews.com/business/consumer/chase-cancelling-its-canadian-customers-credit-card-debt-n1041036) 报道，蔡斯告诉受影响的客户继续支付他们的每月账单。
 

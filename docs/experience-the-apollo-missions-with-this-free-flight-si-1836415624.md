@@ -4,7 +4,7 @@
 
 如果你想有一个更令人兴奋的 [阿波罗 11 号](https://io9.gizmodo.com/astronaut-neil-armstrong-on-why-hes-proud-to-be-a-nerd-1556439969) 周，很容易在你的电脑上免费尝试不同阿波罗任务的美丽模拟。你所需要的只是开源应用 [轨道飞行器](http://orbit.medphys.ucl.ac.uk/) 和 [项目阿波罗](https://sourceforge.net/projects/nassp/) 附加组件，这比去太空营要容易管理得多。
 
-Watch
+
 
 虽然 Orbiter 可以是一个相当硬核的飞行模拟器，但它(谢天谢地)为更休闲的玩家提供了不同程度的真实感和难度。换句话说，如果你只是想放大到月球并返回，你不会为了弄清楚你 60 年代的计算机 的来龙去脉而流汗。
 

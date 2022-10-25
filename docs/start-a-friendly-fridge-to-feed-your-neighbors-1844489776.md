@@ -4,7 +4,7 @@
 
 如果你正在寻找一种方式在这些疫情时代支持你的社区，或者如果你有多余的钱或剩余的水果，蔬菜和其他你不想变坏的食材，在你的社区里启动一个免费的“友好冰箱”，好好利用它们(这个想法的 [h/t 去了 Morning Brew 编辑 Dan McCarthy](https://www.morningbrew.com/daily/stories/2020/07/22/essentials-issue-45-friendly-fridges) )。
 
-Watch
+
 
 如果你熟悉小小的免费图书馆网络——那些在人行道上和院子里的鸟巢式图书交换，以“拿一个走一个”的精神为基础——那么你已经有了友好冰箱的概念。
 

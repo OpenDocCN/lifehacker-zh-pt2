@@ -4,7 +4,7 @@
 
 如果你正在处理 2018 年的纳税申报单，你会希望确保仔细检查你这一年的个人退休帐户缴款和支出，这样你就不会招致国税局的愤怒(好吧，反正是罚款)。
 
-Watch
+
 
 有两件事需要特别注意， [美国消费者新闻与商业频道](https://www.cnbc.com/2019/02/27/time-running-out-to-fix-this-ira-error-and-avoid-a-50-percent-penalty.html) 报道:w 如果你至少 70 岁，你是否得到了要求的最低分配(RMD)，如果你贡献了太多。
 

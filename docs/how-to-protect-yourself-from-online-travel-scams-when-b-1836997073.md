@@ -4,7 +4,7 @@
 
 如果你在一个不熟悉的订票网站上发现了一个不错的航班，先不要按“退房”键。本周，一个家庭分享了他们通过网站*预订机票的经历，该网站声称*隶属于达美航空，结果证明是一个骗局。在这个过程中，这个家庭损失了将近 300 美元。
 
-Watch
+
 
 “我们和一个两岁的孩子一起旅行，所以我们很恐慌，”游客之一的娜奥米·拉告诉 [《今日美国》](https://www.usatoday.com/story/travel/airline-news/2019/08/05/fake-travel-sites-scam-consumers/1923184001/) 。像这样的骗局很常见；一周前，另一名游客在致电自称属于 [Expedia](https://www.tmj4.com/news/local-news/milwaukee-man-loses-thousands-in-online-booking-fraud) 的客服热线后，被骗走了 6 张往返机票，价值近 6000 美元。
 

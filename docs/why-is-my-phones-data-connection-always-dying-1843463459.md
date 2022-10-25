@@ -4,7 +4,7 @@
 
 我喜欢时不时地为周刊[**Tech 911**](https://lifehacker.com/c/tech-911)Q&A 得到一个真正的难题；它让我保持警觉。这一次，读者很难通过威瑞森获得任何数据。奇怪的是，数据连接只在工作时间中断。
 
-Watch
+
 
 正如 Lifehacker 读者 **Sherry** 写道:
 

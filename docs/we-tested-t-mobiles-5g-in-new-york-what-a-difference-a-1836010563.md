@@ -4,7 +4,7 @@
 
 上周五标志着 5G 发展的一个小但仍然重要的里程碑，因为当 T-Mobile [在全国六个城市](https://www.t-mobile.com/coverage/our-first-5g-coverage-maps?filter=dallas) 开通 5G 网络时，这意味着美国四大运营商终于有了某种形式的公共可用 5G 覆盖并开始运行。
 
-Watch
+
 
 [&](https://about.att.com/pages/5G)【T-Mobile】[Sprint](https://gizmodo.com/sprint-drove-me-to-a-dumpster-in-texas-to-show-me-the-f-1835127653)都有某种形式的真正的现场 5G，你现在就可以得到。那么这是否意味着你应该开始考虑升级了？嗯，不，还没有。
 

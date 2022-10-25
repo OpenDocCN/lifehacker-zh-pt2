@@ -4,7 +4,7 @@
 
 今天，3 月 20 日，是春分。在北半球，白天将开始变长，夜晚变短，温暖将淹没大地。为了庆祝这一转变，今晚出去看看超级月亮，它将碰巧照亮天空。
 
-Watch
+
 
 一个 [春分和一个](https://www.nationalgeographic.com/science/2019/03/see-first-super-worm-moon-on-spring-equinox-in-19-years/) 超级月亮相对应是很罕见的事情；据《国家地理》报道，自 2000 年以来，这种情况从未发生过，直到 2030 年才会再次发生。超级月亮本身并不罕见；今年已经有两起了。Space.com 解释说 [超级月亮是一种视错觉](https://www.space.com/34515-supermoon-guide.html) 由月亮围绕地球的轨道造成的，它更像椭圆形而不是圆形:
 

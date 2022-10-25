@@ -4,7 +4,7 @@
 
 如果你出差，那么很有可能你会把至少几个酒店房间当成“家”
 
-Watch
+
 
 酒店房间可能很棒，但如果你要长期使用，那么你可以做一些事情，让住在酒店房间里感觉更像家。 [【旅行+休闲】本周详细介绍了几个](https://www.travelandleisure.com/travel-tips/how-to-make-extended-stay-trip-feel-like-home) 非常棒，作为一个经常旅行的人，我也有几个值得一试的。
 

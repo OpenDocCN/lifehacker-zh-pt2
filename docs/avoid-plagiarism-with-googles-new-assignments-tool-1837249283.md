@@ -4,7 +4,7 @@
 
 今年，谷歌让老师们更容易打击作弊，也让学生们更容易确保他们不会无意中抄袭他人的作品。
 
-Watch
+
 
 周三，谷歌 [宣布了其 CourseKit 软件的更新版本](https://edu.google.com/assignments/?modal_active=none) 。
 

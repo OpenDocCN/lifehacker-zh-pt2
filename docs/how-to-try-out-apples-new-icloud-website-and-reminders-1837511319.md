@@ -4,7 +4,7 @@
 
 苹果的 [提醒应用](https://lifehacker.com/turn-apples-reminders-into-a-quality-gtd-app-1464442575)——一种在 iOS 和 macOS 上保持有序的非常有用的方式——再次通过你的网络浏览器可用，这要归功于苹果 iCloud 网站的更新版本。但你不会看到这一点，以及苹果的其他变化，除非你报名参加 iCloud beta 测试。
 
-Watch
+
 
 除了复活的提醒应用程序，新的 iCloud 门户网站还配备了全新的界面(以及主要的 iCloud 应用程序:日历、联系人、邮件、笔记、照片和新更新的“查找我的”设备功能，以前称为“查找我的手机”。)
 

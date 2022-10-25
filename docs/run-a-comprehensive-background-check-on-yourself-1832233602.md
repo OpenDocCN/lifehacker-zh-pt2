@@ -4,7 +4,7 @@
 
 你知道谁在收集你的信息吗？如果你申请了一份工作、一套公寓或一份保险，很有可能你已经接受了背景调查。这些报告可以包括你的收入、贷款偿还、债务等信息，消费者报告公司甚至可以为你提供“风险评分”。
 
-Watch
+
 
 虽然你可能熟悉像 Equifax 这样的 [信用机构，但你可能不知道收集你个人信息的公司有多少。](https://twocents.lifehacker.com/surprise-the-equifax-hack-affected-millions-more-peopl-1823427395)
 

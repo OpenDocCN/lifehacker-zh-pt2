@@ -4,7 +4,7 @@
 
 你的 Garmin 手表是不是周四突然停了？你并不孤单。 该公司遭遇疑似勒索软件攻击，导致*其所有*在线服务瘫痪。
 
-Watch
+
 
 虽然 Garmin 尚未正式确认任何细节，但许多员工在社交媒体上发表声明，表示宕机是由 [勒索软件攻击](https://lifehacker.com/no-more-ransom-helps-you-prevent-and-recover-from-ranso-1788086996) 造成的。台湾科技新闻网站 iThome 获得的一份 Garmin 内部备忘录将问题归咎于一种“病毒”
 

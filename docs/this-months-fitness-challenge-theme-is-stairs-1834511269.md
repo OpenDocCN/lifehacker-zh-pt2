@@ -4,7 +4,7 @@
 
 这个月，我们的 [挑战](https://lifehacker.com/c/lifehacker-fitness-challenge) 你走楼梯。整个 5 月，我们将为您提供以楼梯为中心的锻炼和训练，并将其添加到您的日常活动中。第一个，很简单:走或跑上一堆楼梯。
 
-Watch
+
 
 ### **休闲选项**
 

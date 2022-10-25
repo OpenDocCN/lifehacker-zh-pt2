@@ -8,7 +8,7 @@
 
 我一生都喜欢拉面。我是吃各种各样的面条长大的:乌冬面、荞麦面、粉丝。然而，拉面一直是我成年后的最爱——当你面前有一碗热腾腾的肉汤、肉和面条时，为什么还要吃别的东西呢？
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Eat Ramen in Japan](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-not-to-be-a-jerk-in-japan-1833724453)</aside>
 

@@ -4,7 +4,7 @@
 
 中期选举增加了你的压力吗？我理解你。我们当前的政治气候导致我们所有人都喝得更多，根据一项新的民意调查，甚至 [导致一些选民“吃他们的感觉，](https://www.nbcnews.com/better/health/political-climate-making-democrats-eat-their-feelings-here-s-how-ncna929826) ”,这两者都不是解决这个问题的最健康的方式。
 
-Watch
+
 
 除了投票(你已经投票了或者打算投票了，对吧？)，你还可以做一些其他积极的事情来帮助缓解压力，停止担忧。
 

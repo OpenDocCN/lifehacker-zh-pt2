@@ -4,7 +4,7 @@
 
 编者按:这篇文章最初描述了一项研究，发表于 5 月 22 日，但由于担心研究人员使用的数据集的完整性，该研究随后于 6 月 5 日被撤回。撤稿信可以在 [*柳叶刀的网站上找到。*](https://www.thelancet.com/journals/lancet/article/PIIS0140-6736(20)31324-6/fulltext?utm_campaign=tlcoronavirus20&utm_source=twitter&utm_medium=social)
 
-Watch
+
 
 在过去的几个月里，围绕羟氯喹这种被吹捧为治疗新冠肺炎的灵丹妙药的药物展开了激烈的争论。尽管缺乏强有力的证据表明这种药物对新冠肺炎有效，而且存在严重的副作用，但这种药物仍然受到了大肆宣传。
 

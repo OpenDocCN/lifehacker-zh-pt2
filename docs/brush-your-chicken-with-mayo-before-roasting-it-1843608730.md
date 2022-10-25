@@ -4,7 +4,7 @@
 
 我一直最喜欢的烤鸡是烤鸡，但那东西需要 24 小时腌泡，有时我简直没有耐心。然而，我不能不经过任何处理就把一只鸡——赤裸的、无人爱的——直接放进烤箱。在这些匆忙的、没有腌泡汁的时刻，我伸手去拿我最好的朋友:蛋黄酱。
 
-Watch
+
 
 如果你了解我，你就会知道我喜欢蛋黄酱，并且一直认为它超越了三明治的 T2 和 T5。这是一种美丽的乳化剂——它使 [沙拉酱](https://skillet.lifehacker.com/make-salad-dressing-with-an-almost-empty-mayo-jar-1835270116) 和 [土豆泥](https://skillet.lifehacker.com/how-to-making-smashing-mashed-potatoes-1820225954)——它可以帮助在牛排 上形成一种真正美味的 [烤焦。它在鸡的皮肤上产生了类似的奇迹，糖和蛋白质有助于形成漂亮的金黄色皮肤。不像 labneh，黄油，或其他乳制品，蛋黄酱变黄的速度要慢一些，所以你不必密切关注它。(我几乎总是用箔纸盖住一部分 labneh 鸡肉，以防止烧伤；额外的一点劳动是值得的，但它可能需要一点警惕。)](https://skillet.lifehacker.com/you-can-use-mayonnaise-to-sear-a-steak-1834218246)
 

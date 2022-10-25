@@ -4,7 +4,7 @@
 
 丹·莱维现在最为人所知的是他在广受欢迎的热门电影《希特的小溪》中扮演的大卫·罗斯，这部电影讲述了一个曾经富有的家庭住在他们开玩笑买下的小镇上的故事。利维也是该系列的主持人和创作者，他对如何发挥你的创造性天赋提出了一些建议。
 
-Watch
+
 
 在与 *GQ 的一次新采访中，*通过卡拉·库特鲁祖拉的 [铜环日报](https://us14.campaign-archive.com/home/?u=b1819370f078f7aaea854586f&id=985443e86d) 简讯发现，利维解释了 [他是如何设法制作](https://www.gq.com/story/schitts-creek-dan-levy-profile?utm_medium=social&utm_source=twitter&mbid=social_twitter&utm_social-type=owned&utm_brand=gq) 这样一部成功的电视节目的。通常，我很怀疑任何一个来自工业家庭的人对进入这个行业的挑战发表评论。(利维的父亲是尤金·利维，他也在《希特的小溪》中扮演他的父亲约翰尼·罗斯。)但是 Levy 关于他如何从主要做 MTV 主持过渡到拥有节目主持技能的想法对于任何试图发展艺术嗓音的人来说都是非常贴切的。这是他学到的:
 

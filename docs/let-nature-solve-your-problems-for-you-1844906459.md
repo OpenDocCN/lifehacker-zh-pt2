@@ -4,7 +4,7 @@
 
 大自然最了解大多数事情。如果你正在寻找如何在炎热中保持凉爽、保护自己免受病原体侵害或建立长期友谊的答案，其他生物可能已经找到了解决方案——而正在为你汇编它们。
 
-Watch
+
 
 AskNature 是来自 [仿生研究所](https://biomimicry.org) 的一个项目，该研究所(顾名思义)从大自然中获取想法，并将其应用于人类世界的社会、经济和设计挑战。例如，科学家已经了解到 [寄居蟹使用一种社交网络的形式](https://asknature.org/strategy/social-networking-aids-housing-search) 来寻找住房——空壳——来居住，而 [蚂蚁使用分散的蚁群](https://asknature.org/strategy/ant-colonies-respond-quickly-to-distribute-food) 在食物短缺后快速分发食物。
 

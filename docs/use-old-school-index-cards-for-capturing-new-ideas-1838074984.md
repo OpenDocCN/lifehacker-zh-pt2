@@ -4,7 +4,7 @@
 
 我尝试过 Evernote 和 Scrivener、paper planners 和 Moleskines，以及世界上几乎所有的应用程序来捕捉我的想法。但是我不断回到一个简单的、被低估的工具上来捕捉那些似乎不适合其他地方的半生不熟的想法和想法。最完美的地方是不起眼的索引卡。
 
-Watch
+
 
 当然，索引卡在我们的个人组织系统中来来去去。很少有人用它们来记录家庭食谱，但索引卡仍然不仅仅是制作卡片或在演讲前记录要点的媒介。你可能听说过 [把事情做完](https://lifehacker.com/getting-things-done-ten-years-in-1795707084)【GTD】，这个系统让你写下每一个待办事项，这样你的大脑就不需要一次处理太多信息。这个系统的一个扩展是使用索引卡来跟踪每天的任务和记录，记录你喜欢的引用，或者记录你学到的东西。你把它们都放在一个盒子里，按日期或笔记类型分类。它被恰如其分地称为 [堆索引卡](https://lifehacker.com/the-pile-of-index-cards-system-efficiently-organizes-ta-1599093089) 系统。
 

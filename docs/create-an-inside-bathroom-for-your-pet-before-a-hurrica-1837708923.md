@@ -4,7 +4,7 @@
 
 如果你住在佛罗里达州附近的任何地方，不要忘记准备一个旅行袋 ，并在热带风暴多里安逼近时(很可能增强为 3 级或 4 级飓风)准备好疏散计划。
 
-Watch
+
 
 但是当你准备的时候，你也应该为你的狗制定一个计划。在 Twitter 上， [一位用户](https://twitter.com/travisakers/status/1167050261535309824) 通过 [爱国者 K-Nine 训练](https://www.facebook.com/patriotknine/posts/getting-your-dogs-to-potty-during-a-hurricane-and-other-inclement-weather-tips-y/1013040438898001/) 的方式分享了一个建议:为了避免遛狗到外面解手的问题，做一个简单的室内卫生间；如果有飞来的碎片，飓风可能会惊吓你的宠物或危及它们。
 

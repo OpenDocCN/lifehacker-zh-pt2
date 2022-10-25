@@ -4,7 +4,7 @@
 
 我们之前已经告诉过你 [把你的 Venmo 设置改成私人](https://lifehacker.com/we-are-actually-begging-you-to-make-your-venmo-transact-1840412474) 这样全世界都不知道你在缠着你的哪个朋友把上周末的电影票钱还给你。
 
-Watch
+
 
 但这可能不足以让你的应用活动真正保持私密。据《今日美国》科技专栏作家杰弗逊·格雷厄姆称，这些信息仍在被数据收集公司分享。格拉汉姆 [发现](https://www.usatoday.com/story/tech/2020/02/22/venmo-noom-solitaire-shared-my-personal-info-data-firms/4795546002/) 数据收集公司 Braze 已经收到了他的 Venmo 交易记录，包括他的 GPS 位置和接收者的姓名。
 

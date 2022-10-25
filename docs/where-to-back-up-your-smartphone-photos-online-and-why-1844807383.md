@@ -4,7 +4,7 @@
 
 iOS 上一个拙劣的 Adobe Lightroom 应用程序更新意外删除了用户的照片和编辑预设。Adobe 对广泛传播的错误报告做出了回应，并发布了一个补丁来修复它，这样其他人就不会受到影响，但它无法恢复任何丢失的文件。
 
-Watch
+
 
 [Adobe 表示](https://9to5mac.com/2020/08/20/adobe-confirms-lightroom-ios-photos-erased-due-to-update-bug-are-not-recoverable/) 如果一些用户在 iCloud 中存储了手机备份，他们可能能够恢复一部分丢失的照片和编辑预设。如果你是一个丢失照片历史记录的不幸用户，试试看，但这对每个人都有用的可能性很小。我不想太消极，但我不想给任何人不切实际的希望。
 

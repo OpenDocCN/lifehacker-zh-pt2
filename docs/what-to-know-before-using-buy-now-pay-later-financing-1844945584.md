@@ -4,7 +4,7 @@
 
 自大萧条以来，先买后付的概念就一直存在。分期付款购物在 20 世纪 80 年代基本消失了，它包括在你把东西带回家之前支付少量的定金和分期付款。尽管在大萧条期间，分期付款 [短暂地卷土重来](https://www.bankrate.com/finance/personal-finance/layaway-makes-a-comeback-1.aspx) ，但它已经被更高成本的融资选择所取代，比如信用卡。
 
-Watch
+
 
 现在，购物者有了另一个选择:现在购买，以后支付服务费用。与分期付款最大的不同是你不必等着把你的商品带回家，这可能是这些服务越来越受欢迎的原因。在店内收银台或网上购物时，你可能会看到现在购买，以后支付的公司，如 Affirm，AfterPay，Klarna，QuadPay— [和现在的 PayPal](https://techcrunch.com/2020/08/31/paypal-joins-the-buy-now-pay-later-race-with-new-pay-in-4-installment-program) 。
 

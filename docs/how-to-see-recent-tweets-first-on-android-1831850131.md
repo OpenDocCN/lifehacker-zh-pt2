@@ -4,7 +4,7 @@
 
 Android 用户，高兴吧:你的 Twitter 应用程序现在可以轻松解决恼人的“最佳推文优先”时间线布局。
 
-Watch
+
 
 这一变化是为了回应用户对充满几小时或几天前而不是最近或及时的推文的时间线的失望。去年 12 月，Twitter [增加了 iOS 用户](https://lifehacker.com/how-to-quickly-switch-your-twitter-timeline-to-chronolo-1831204218) 的功能，可以在他们的热门推文和应用顶部的倒序时间线之间快速切换。
 

@@ -4,7 +4,7 @@
 
 你的签名问题是否是 [体面的工作条件和工人的生活工资](https://gizmodo.com/amazon-workers-across-europe-protest-black-friday-citi-1830622250)；该公司的 [在其“搜索”HQ2](https://www.newyorker.com/tech/annals-of-technology/the-new-york-hustle-of-amazons-second-headquarters) 中对美国城市的系统性诈骗；或者一个简单的事实，没有人( [更不用说像杰夫·贝索斯](https://splinternews.com/the-math-of-jeff-bezos-astounding-greed-1829032247#_ga=2.111234753.490175163.1543500591-2127637903.1532515930) 这样明显贪婪的人)应该拥有 1630 亿美元——似乎现在几乎每个人都在生亚马逊的气。
 
-Watch
+
 
 这有点不方便，因为我们刚刚进入了一年中网上购物最繁忙的时候。所以我们想知道:假设这是你想做的事情，人们在假期里实际上在做什么来减少他们对贝佐斯的依赖？
 

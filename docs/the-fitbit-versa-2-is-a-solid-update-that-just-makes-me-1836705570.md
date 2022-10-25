@@ -4,7 +4,7 @@
 
 让我以说我爱我的 [Fitbit Versa](https://gizmodo.com/the-fitbit-versa-is-the-first-real-bargain-smartwatch-1824036224) 开始这篇评论。它是 Fitbit 最受欢迎的智能手表是有原因的。它时尚、经济、健身功能强大，5 天以上的电池续航时间简直是天赐之物。我只是厌倦了 Fitbit 的每一个新公告都是 Versa 的不同风格——即使最新的 Versa 2 是一款优秀的智能手表。
 
-Watch
+
 
 当我拿到我的 Versa 2 复习单元的时候，我的灵魂累了。拆开包装，这只手表看起来几乎和我戴在手腕上的那只 Versa 一模一样——除了一些小的设计差异。首先，屏幕上不再有 Fitbit 的标志。像 [精简版](https://gizmodo.com/you-wont-miss-the-features-cut-from-the-fitbit-versa-li-1833135388)*半年前**发布的，把按键从三个缩小到一个。箱子的边缘没有那么棱角分明；一切都被软化了。如果你把设备翻过来，传感器会更突出。大概就是这样。你必须非常敏锐才能注意到，或者是一个可穿戴的评论家。(也就是说，你不需要鹰眼也能注意到那些糟糕透顶的表圈仍然很厚。)*
 

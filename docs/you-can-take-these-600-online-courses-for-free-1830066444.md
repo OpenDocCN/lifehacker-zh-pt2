@@ -4,7 +4,7 @@
 
 你不再需要成为哈佛学生或普林斯顿毕业生，就能从这些精英机构的教学中受益。你可以通过 [MOOCs](http://mooc.org/) 在线访问一些他们最受欢迎的课程。
 
-Watch
+
 
 MOOCs(大规模开放在线课程)已经存在多年，但现在有数百门课程可供任何人在线学习，而且(大部分)是免费的。参加这些课程不会让你有资格获得学位，但是如果你有时间，并且一直对 [黑洞](https://www.class-central.com/course/coursera-astro-101-black-holes-11460) 或 [计算机如何工作](https://www.class-central.com/course/coursera-how-computers-work-12188) 感到好奇，比如说，你可以报名参加世界上一些最好的高等教育机构的课程。
 

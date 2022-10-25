@@ -4,7 +4,7 @@
 
 即使你没有在玩 [iOS 14](https://lifehacker.com/how-to-get-started-with-the-ios-14-public-beta-1844324554) 或 [macOS Big Sur](https://lifehacker.com/the-best-features-of-macos-big-sur-so-far-1844124560) 但如果你是苹果新闻+订阅者，有一个设置你想知道。这是因为从 iOS 14 和 macOS Big Sur 的*开始，点击或点击新闻报道的网络链接将在 Apple News+中调出所述报道，而不是出版商的网站。*
 
-Watch
+
 
 这个“功能”只适用于参与 Apple News+的发布商，但是被苹果的 app 接管就有点不和谐了。虽然各种网站在可能的情况下都会将链接重定向到他们的应用程序，或者至少会问你是否想启动相关的应用程序，而不是你试图访问的基于网络的内容，但苹果在 iOS 14 和 macOS Big Sur 中的实现会将你直接发送到新闻应用程序。而且，据我所知，这种行为是默认启用的。
 

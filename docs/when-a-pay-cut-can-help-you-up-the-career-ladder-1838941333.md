@@ -4,7 +4,7 @@
 
 五年后你想在哪里？你有达到目标所需的技能吗？如果你不这样做，你可能不得不从职业阶梯上爬下来，然后才能重新爬上去——是的，这可能意味着减薪。
 
-Watch
+
 
 Okta 首席产品官迪亚乔利(Diya Jolly)采取了三次故意减薪，作为她长期职业战略的一部分。 [正如她在美国消费者新闻与商业频道](https://www.cnbc.com/2019/10/04/i-climbed-corporate-ladder-by-taking-lower-titles-and-less-pay-3-times.html)所解释的:
 

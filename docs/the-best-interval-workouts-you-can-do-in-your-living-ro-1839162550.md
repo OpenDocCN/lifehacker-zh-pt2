@@ -4,7 +4,7 @@
 
 这个月我们探索了 [不同类型的间歇训练](https://lifehacker.com/october-is-for-interval-workouts-1838751041) ，但是跑步和 [划船](https://vitals.lifehacker.com/how-to-do-intervals-on-a-rowing-machine-1838974151) 并不是你有氧运动的唯一方式。短时间的间歇很适合在家锻炼。
 
-Watch
+
 
 要制定自己的例行程序，首先要选择一个时间表。一分钟的努力加上一分钟的休息是非常简单的；你不会发现自己在欺骗困难的部分或者匆忙地度过休息时间。(当然还有 [其他选项](https://vitals.lifehacker.com/the-three-most-effective-interval-workouts-1714674056) 。)
 

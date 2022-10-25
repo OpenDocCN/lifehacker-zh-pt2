@@ -4,7 +4,7 @@
 
 如果你一直想让你的 iPhone 或 iPad 焕然一新，一种新的字体可能是一种方法。本周，Adobe 的 Creative Cloud 向从应用商店 下载其 Creative Cloud 应用 [的任何人免费提供 1300 种字体。](https://apps.apple.com/us/app/adobe-creative-cloud/id852473028#?platform=ipad) 
 
-Watch
+
 
 安装并启动该应用程序后，您将能够浏览 Adobe 为您的设备提供的所有字体。当你找到一个你喜欢的，你可以安装它，然后在任何支持自定义字体 API 的 iOS 13.1 应用程序中使用它。
 

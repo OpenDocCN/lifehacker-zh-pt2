@@ -4,7 +4,7 @@
 
 也许你在撰写完美的 Tinder 简历方面有困难。比方说，你认为给你的岳母寄一张感谢卡，因为你没有要那件奇怪的毛衣，这可能是个好主意，但可能有点过头了。也许你下周第一次举办晚宴，你想知道该使用什么样的餐具。(小叉子还是个东西吗？)
 
-Watch
+
 
 我们 Lifehacker 当然可以尽最大努力帮助你解决这些现代礼仪难题，但我们更愿意请一位真正的专家，以免我们破坏你最重要的人际关系。明天， [丹尼尔·波斯特·森宁](http://emilypost.com/bio/daniel-post-senning/) — [礼仪专家](https://lifehacker.com/how-to-find-love-with-matchmaker-dr-frankie-bashan-1830990684) ，Awesome 礼仪播客主持人， [*数字世界中的礼仪:在线美好生活*](https://www.amazon.com/gp/product/B00BNPI7FQ/ref=as_li_qf_sp_asin_il_tl?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/are-you-a-jerk-bring-your-etiquette-questions-to-danie-1832155581&asc_source=&camp=1789&creative=9325&creativeASIN=B00BNPI7FQ&ie=UTF8&linkCode=as2&tag=kinjalifehackerlink-20) 的作者，艾米莉·波斯特本人的玄孙将在线回答您最迫切的礼仪问题。
 

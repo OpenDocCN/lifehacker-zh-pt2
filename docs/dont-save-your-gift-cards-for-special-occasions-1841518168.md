@@ -4,7 +4,7 @@
 
 如果你收到了一张节日礼品卡，但你还没有使用它，为什么不呢？也许这是一个逻辑问题——就像，你得到了一张商店或餐馆的卡片，但你还没有时间亲自去拜访——但也许你有意识地(或无意识地)保留着那张礼品卡，因为你想把它留到一个特殊的事件中，就像它被给予的那个事件一样。
 
-Watch
+
 
 正如 Soo Youn 在 [The Lily](https://www.thelily.com/are-you-waiting-for-the-perfect-occasion-to-use-your-gift-cards-heres-why-thats-a-bad-idea/) 中解释的那样，我们许多人都陷入了“场合匹配”礼品卡的陷阱。例如，如果我们在生日时收到一张礼品卡，我们不会想随便花在什么东西上；我们想把它留到真正的生日礼物上。
 

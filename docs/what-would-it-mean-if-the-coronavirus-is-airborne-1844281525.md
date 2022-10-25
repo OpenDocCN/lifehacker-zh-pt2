@@ -4,7 +4,7 @@
 
 CDC 最近 [更新了](https://www.cdc.gov/media/releases/2020/s1005-how-spread-covd.html) 的冠状病毒信息，以记录冠状病毒“空气传播的可能性”这标志着我们应该采取的预防措施发生了一些微妙的变化。
 
-Watch
+
 
 众所周知，新冠肺炎主要通过呼吸道飞沫传播。这是物理距离背后的推理，因为这些水滴很难移动超过几英尺。在过去的几个月里， [科学家们一直在争论](https://www.nytimes.com/2020/07/04/health/239-experts-with-one-big-claim-the-coronavirus-is-airborne.html) 非常小的飞沫——小到足以在空气中漂浮——是否足够常见，传染性是否足以构成严重的风险。
 

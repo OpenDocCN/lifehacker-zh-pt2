@@ -4,7 +4,7 @@
 
 随着疫情取消秋季计划，如和 [大学足球](https://www.politico.com/news/2020/08/13/college-football-coronavirus-maga-394505) ，你可能不会期待旅行到 2020 年甚至更久。有了所有的 [旅行限制](https://www.cdc.gov/coronavirus/2019-ncov/travelers/travel-during-covid19.html) ，你可能在想你的 [奖励信用卡](https://twocents.lifehacker.com/its-time-to-stop-using-your-travel-rewards-credit-card-1842615023?_ga=2.195227624.558985030.1597022187-1566653369.1585083891) ，高额的年费，以及保留它是否还有意义。
 
-Watch
+
 
 在过去的五个月里，人们的意见不一。最近的一项 CreditCards.com 民意调查发现，81%持有年费信用卡的人觉得他们从奖励卡中获得了相同或更多的价值，例如 [喜欢杂货的额外积分](https://twocents.lifehacker.com/how-to-earn-more-rewards-points-on-your-next-grocery-ru-1843201856?_ga=2.195227624.558985030.1597022187-1566653369.1585083891) 。来自 ValuePenguin 的一项新的 [调查发现事实正好相反——30%的被调查者关闭了至少一张奖励卡。](https://www.valuepenguin.com/travel/cardholders-close-cards-coronavirus) 
 

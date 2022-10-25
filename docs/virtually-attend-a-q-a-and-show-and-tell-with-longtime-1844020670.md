@@ -4,7 +4,7 @@
 
 该放音乐了，该点灯了。今晚是时候和三个长期员工布偶员工一起参加现场问答了。没错:美国东部时间今晚 7 点，位于纽约皇后区的 [移动影像博物馆](http://movingimage.us/visit/calendar/2020/06/13/detail/jim-hensons-world-qa-with-craig-shemin-and-friends) 正在直播一场活动，吉姆·汉森公司的长期员工、现任 [吉姆·汉森遗产](https://www.jimhensonlegacy.org/) 非营利组织主席克雷格·谢明(Craig Shemin)将参加此次活动。
 
-Watch
+
 
 ### 是时候见见提线木偶了
 

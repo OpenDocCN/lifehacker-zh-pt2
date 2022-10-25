@@ -4,7 +4,7 @@
 
 早在 2018 年， [众议院通过了一项法案](https://thepointsguy.com/news/congress-bans-unenrolled-passengers-precheck-line/) ，该法案将禁止大多数没有注册美国运输安全管理局预检的乘客进入机场的快速安检线——这让那些没有注册预检的乘客集体抱怨不已。
 
-Watch
+
 
 虽然该法案尚未成为法律，但你可能会想:如果你与没有 TSA Precheck 的人一起旅行，你能做些什么让他们偷偷排队吗？嗯，旅行网站 [你的里程可能会有所不同](https://yourmileagemayvary.net/2020/01/30/what-do-you-do-if-you-have-tsa-precheck-your-partner-doesnt/) 最近提出了这个问题——简短的回答是，*可能*不会。
 

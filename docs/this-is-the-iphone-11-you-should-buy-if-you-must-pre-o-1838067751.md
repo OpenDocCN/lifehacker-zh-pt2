@@ -4,7 +4,7 @@
 
 又是一个九月，当我们告别夏天的时候，我们再一次向苹果年度 iPhone 活动之后令人痛苦的升级决定问好。让我们来分析一下哪一款 iPhone 11 可能最适合你，以及是否真的到了升级的时候。
 
-Watch
+
 
 除了本周早些时候苹果活动后的一些与新[iPhone 11](https://gizmodo.com/the-cheaper-iphone-11-might-still-be-apples-best-smartp-1837986947)[11 Pro](https://gizmodo.com/iphone-11-pro-whats-new-about-apples-super-extra-premi-1838006799)和 [11 Pro Max](https://gizmodo.com/iphone-11-pro-whats-new-about-apples-super-extra-premi-1838006799) 的实际操作时间，我们还没有机会试驾任何新硬件。我们将在未来几周内分享对新款 iPhone 更深入的分析，但目前，我们已经获得了足够的信息，可以在 9 月 13 日周五之前做出一些明智的决定，届时苹果将在美国东部时间上午 8 点 01 分(太平洋时间上午 5 点 01 分)正式开始 iPhone 11 预购。
 

@@ -4,7 +4,7 @@
 
 它们无处不在——在你的超市里，在连锁药店里，甚至在你当地的宠物店里。大麻二酚 ( CBD) ，大麻的主要成分*不会*让你兴奋的最新非处方健康时尚，催生了看似无穷无尽的新产品和可疑的健康声明。
 
-Watch
+
 
 围绕 CBD 产品有很多炒作，从它们能够帮助缓解焦虑，**到 [降低痴呆症风险](https://420intel.com/articles/2018/08/30/how-find-best-cbd-dosage-alzheimer%E2%80%99s-disease) 或 [治疗癌症](https://www.cancer.gov/about-cancer/treatment/cam/hp/cannabis-pdq) 。但是科学对 CBD 的健康益处有什么看法呢？对于给自己买一个 CBD 汉堡或者给你的狗买一些 CBD 零食 T21，你应该有多兴奋呢？**
 

@@ -4,7 +4,7 @@
 
 上个月，Instagram 开始隐藏美国账户的一些帖子上的赞。此举背后的想法是让用户“关注你分享的照片和视频，而不是你获得了多少赞。”
 
-Watch
+
 
 如果你错过了能够看到赞和评论计数的机会，或者因为工作需要能够看到它们， [赞](https://chrome.google.com/webstore/detail/the-return-of-the-likes/djfggogjickolkmoijohpgmojangelni?ref=producthunt) 的回归是 Chrome 的一个扩展，可以帮上忙。
 

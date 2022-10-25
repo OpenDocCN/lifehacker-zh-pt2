@@ -4,7 +4,7 @@
 
 人们为 [坡道](https://lifehacker.com/ramp-wrapped-scallops-are-better-than-bacon-wrapped-sca-1834227569) 而失去理智，我明白了。它们是一种非常好的蔬菜，而葱属植物的限时特性驱动了它们的吸引力。但是那些东西*贵*。不要误解我的意思:我非常兴奋能吃到我冰箱里的坡道。然而，真正的大蒜，洋葱，鲜艳的，高性价比的早春最有价值的是绿色大蒜。
 
-Watch
+
 
 [和大葱](https://lifehacker.com/youre-not-cooking-with-scallions-enough-1830420439) 一样，青蒜是一种绝对的蔬菜。嫩绿色和几乎没有的球茎在成为我们熟知和喜爱的标志性丁香品种之前就被收割了，产生了一种醇厚但仍有蒜味的味道。
 

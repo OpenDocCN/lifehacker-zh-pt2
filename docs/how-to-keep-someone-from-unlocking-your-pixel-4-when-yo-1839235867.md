@@ -4,7 +4,7 @@
 
 [Pixel 4](https://lifehacker.com/how-the-leaked-pixel-4-stacks-up-against-other-smartpho-1838782478)和 4 XL 勉强进入评测人员的手中，一个重大的安全漏洞已经被发现:这款手机新的面部识别功能将让你的脸解锁你的手机，无论你是否醒着。
 
-Watch
+
 
 使用 Face ID 或拇指指纹来解锁你的智能手机可能会让你感觉像是在科幻电影中，但可以理解的是，正是由于这样的安全担忧，人们对生物识别技术存在大量怀疑( [和其他](https://lifehacker.com/the-samsung-galaxy-s10s-fingerprint-lock-isnt-very-safe-1839133478) )。为了防止被利用，许多制造商在使用面部识别解锁设备时会采取措施检查警觉性，例如扫描睁开的眼睛或要求用户首先眨眼。这种措施存在于苹果的产品以及之前版本的安卓系统中，但 Pixel 4 没有这种检查。这款手机会让任何人进来，只要他们能把手机指向它的主人，即使他们在打瞌睡，喝醉了，或者死了。
 

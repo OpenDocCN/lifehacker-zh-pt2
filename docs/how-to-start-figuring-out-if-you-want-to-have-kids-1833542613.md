@@ -4,7 +4,7 @@
 
 能够主动决定要不要孩子是一种巨大的特权。这也可能是你做出的最困难的决定之一。Ann Davidma n 是一名婚姻和家庭治疗师，她为那些在这一选择中挣扎的人担任“清晰母性导师”,她与 Lifehacker 分享了一些她在这一过程中的建议。
 
-Watch
+
 
 《华盛顿邮报》最近采访了大卫曼和其他在同一领域工作的治疗师，以及那些觉得 [在寻求治疗后对自己的决定](https://www.washingtonpost.com/lifestyle/on-parenting/deciding-whether-to-have-kids-has-never-been-more-complex-enter-parenthood-indecision-therapists/2019/03/15/e69231da-44d7-11e9-8aab-95b8d80a1e4f_story.html?utm_term=.12baa6f17ff3) 心平气和的客户。大卫曼带客户经历了一个广泛的过程，她与治疗师丹尼斯·l·卡里尼合著的书叫做 [*母性——是给我的吗？你一步一步的清晰指南*](https://www.amazon.com/gp/product/B01N48ZCD1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-start-figuring-out-if-you-want-to-have-kids-1833542613&asc_source=&camp=1789&creativeASIN=B01N48ZCD1&ie=UTF8&linkCode=xm2&tag=kinjalifehackerlink-20) ，带领读者完成 12 周的练习。
 

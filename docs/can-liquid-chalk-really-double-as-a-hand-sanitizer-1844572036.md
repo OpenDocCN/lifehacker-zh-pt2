@@ -4,7 +4,7 @@
 
 为了保护我们免受冠状病毒的侵害，CDC [建议](https://www.cdc.gov/coronavirus/2019-ncov/prevent-getting-sick/prevention.html) 尽可能保持双手清洁，包括在无法洗手时使用含至少 60%酒精的洗手液。攀岩者和力量举重者使用的液体粉笔帮助抓握，通常含有大量的酒精。那么你能依靠液体粉笔来阻止新冠肺炎吗？
 
-Watch
+
 
 当人们讨论健身房重新开放时，我开始看到这个想法。“液体粉笔基本上是用粉笔做的洗手液，”一家健身房在 reddit 上发给会员 [的电子邮件中写道。我想知道这是不是真的，或者只是那些渴望回到健身房的人一厢情愿的想法。](https://www.reddit.com/r/ClimbingCircleJerk/comments/fi38pi/liquid_chalk_hand_sanitizer/)
 

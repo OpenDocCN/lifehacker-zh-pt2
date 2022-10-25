@@ -4,7 +4,7 @@
 
 越来越多的人认为，通过 Airbnb 预订房屋租赁是一件冒险的事情。有“超级主机” [在半夜撞破卧室窗户](https://www.thisisinsider.com/airbnb-host-crashed-through-window-couple-says-2018-10) 的故事，也有不太引人注目的(但也令人震惊)的出租被发现含有 [隐藏摄像头](https://www.washingtonpost.com/technology/2019/04/06/they-were-settling-into-their-airbnb-then-they-found-hidden-camera/?utm_term=.d80bff932986)中的一切从 [时钟](https://www.cnet.com/news/airbnb-apologizes-to-guest-for-how-it-handled-undisclosed-security-camera/) 到假运动传感器(还有一个家庭发现了一台 [直播摄像头](https://www.cnet.com/news/airbnb-apologizes-to-guest-for-how-it-handled-undisclosed-security-camera/) 现在，由于一个旅行者的故事，我们知道要留意那些声称你损坏了他们财产的房主——这种损坏可能会导致数千美元的费用。
 
-Watch
+
 
 旅行作家 [李·阿巴蒙特](http://www.leeabbamonte.com/travel-tips/my-airbnb-scam-experience.html) 离开西班牙马德里的一家 Airbnb 后，回到家发现一封来自公寓假定主人的愤怒邮件。
 

@@ -4,7 +4,7 @@
 
 我下载了很多东西。我们都是。在我的情况下，我的 Windows 下载文件夹基本上是我正在处理的所有东西的总称，也是我需要保存在其他地方(但还没有)的文件和文件夹的主要存档。这意味着所说的下载文件夹可能会变得难以控制，我已经找到了一个新的 Chrome 扩展来解决这个问题。
 
-Watch
+
 
 仅仅通过它的标题你大概就能猜到这个扩展是做什么的: [按日期](https://chrome.google.com/webstore/detail/organize-downloads-by-dat/ipjljbilkibpncgnagphiamkkdilbbki?hl=en) 组织下载。截至我写这篇文章时，它还没有任何评论，这通常会让我犹豫是否推荐它，但它的完整源代码可在 [GitHub](https://github.com/Luc45/Organize-Downloads-by-Date-Chrome-Extension) 上查看——所以就这样了。
 

@@ -4,7 +4,7 @@
 
 几周前，我的收件箱里收到了一封电子邮件，问我是否有兴趣和里克一起上奇拉奎莱斯的课。当然，Chilaquiles 是墨西哥美食中令人欣慰的玉米饼包治百病，Rick 是芝加哥厨师 Rick Bayless，墨西哥福音传道者， [也是奥黑尔机场可以忍受的唯一原因。【T2](https://thetakeout.com/the-secret-to-bypassing-the-long-lines-at-ohares-most-p-1821404754)
 
-Watch
+
 
 很难说不。这份*外卖*工作的最大好处是与厨师并肩站在一起，并获得一道菜的速成课程(如果我可以这么大胆的话，我现在做*[煎蛋卷](https://thetakeout.com/4-lessons-tips-in-how-to-make-omelettes-1832765134) 和 [意大利面](https://thetakeout.com/lessons-from-the-school-of-spaghetti-carbonara-1798259380) )。因此，chilaquiles——油炸玉米粉圆饼在莎莎酱中慢炖，上面放上，嗯，任何东西——似乎是下一个需要掌握的完美食谱:这道菜需要最少的配料和技巧，可以通过一些策略技巧得到极大的改善。*
 

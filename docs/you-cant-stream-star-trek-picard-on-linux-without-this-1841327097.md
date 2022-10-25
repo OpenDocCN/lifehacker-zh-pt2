@@ -4,7 +4,7 @@
 
 现在是 2020 年，你认为在任何你想要的设备上播放任何你想要的内容都很容易——尤其是 CBS All Access 上全新的 *Picard* 系列。如果你是一个既喜欢《T2》、《星际迷航》、《T3》又喜欢 Linux 的超级极客，那你就不走运了。由于数字版权管理(DRM)的乐趣，你无法在 Linux 上使用 CBS 的 All Access 服务来传输 Picard。
 
-Watch
+
 
 残酷的是，你不仅不能直播节目，还可以*直播围绕它的所有废话。正如 Ars Technica 的吉姆·索尔特 [对](https://arstechnica.com/gadgets/2020/01/cbs-all-access-serves-ads-but-not-content-to-linux-users/) 的描述:*
 

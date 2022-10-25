@@ -4,7 +4,7 @@
 
 在所有这些不可思议的近似肉类上市之前，蘑菇是素食和纯素食菜肴中的无肉主力。虽然新的人造动物蛋白已经使蔬菜汉堡超越了两个小面包之间的土豆汉堡，但我敦促你不要忘记蘑菇作为肉类替代品，特别是如果你正在寻找一些东西来代替碎牛肉的话。
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Make the Best Vegan Bolognese](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/are-fake-meat-burgers-finally-as-good-as-beef-1836815995)</aside>
 

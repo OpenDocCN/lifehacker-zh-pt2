@@ -4,7 +4,7 @@
 
 在最近的一个 Reddit 帖子 中，几个用户分享了他们如何通过蹲坐来应对死亡恐惧的建议。据 [报道，一位 Redditor](https://old.reddit.com/r/Fitness/comments/czzqt1/fear_of_squatting/ez5g87i/)——他说他们在蹲着的时候折断了一根肋骨——使用观察员可以有所帮助。但是最简单的方法是*练习*失败，并且在深蹲的架子上这样做，正如其他用户在评论中回应的那样。
 
-Watch
+
 
 首先，找到你的下蹲深度，将安全杠设置得足够低，这样你仍然可以达到这个深度(不要每次重复都碰到安全杠)，但又足够高，这样你就可以放下杠铃(在这个过程中你的背部不会弯曲)。“如果支架有足够小的增量，你可以把它们放在一个位置，这样当你处于下蹲的最低点时，它们就在横杆下方一点点(比如一英寸)， [u/uvbob 写道](https://www.reddit.com/r/Fitness/comments/3ubz8n/how_to_safely_fail_a_squat/cxdm188?utm_source=share&utm_medium=web2x) 。
 

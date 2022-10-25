@@ -4,7 +4,7 @@
 
 如果你一直在向你的朋友吹嘘你在亚马逊的 Prime Day 噱头中达成的出色交易，不要这样做。你不太可能像 [Slickdeals 论坛](https://slickdeals.net/f/13219096-prime-members-sony-alpha-a6000-mirrorless-digital-camera-94-50-free-shipping#commentsBox) 的许多成员那样做。由于亚马逊网站上的一个错误，他们中的几个人能够 [买到一些非常昂贵的摄影器材](https://slickdeals.net/f/13219096-prime-members-sony-alpha-a6000-mirrorless-digital-camera-94-50-free-shipping#commentsBox)——包括镜头和相机套件——每个仅售 94.48 美元。
 
-Watch
+
 
 事情开始于一个 Slickdeals 成员发现并 [分享了一个黄金日交易](https://slickdeals.net/f/13219096-prime-members-sony-alpha-a6000-mirrorless-digital-camera-94-50-free-shipping#commentsBox) 索尼 a6000 无反光镜相机捆绑了一个 16-50 毫米镜头，价格为 94.48 美元；通常售价在 550 美元左右的一套工具。在亚马逊庞大的在线商店已经变成的蛮荒西部，看到有问题的第三方卖家以令人难以置信的低价提供品牌设备并不罕见，这些设备往往好得令人难以置信。但是这个相机套装是由亚马逊直接销售的。
 

@@ -4,7 +4,7 @@
 
 坐办公室的人醒着的大部分时间都坐在办公桌前，这可能是因为它的实用性。既然你在那里，为什么不把它变成一个更愉快的地方呢？
 
-Watch
+
 
 办公室可以变成一个舒适、愉快、令人愉快的空间，即使你不得不在每一面都堆上五颜六色的小摆设。或者只是一些重音符号，如果那更适合你的话。口味千差万别，正如 Redditor[u/CAD DAP](https://www.reddit.com/user/Caddap)发现的那样，当他们问 Reddit，“对于那些坐办公室的人来说，你增加了哪些小装饰来让你的办公桌 [更舒适一点？](https://www.reddit.com/r/AskReddit/comments/ajb7ko/for_those_with_office_jobs_what_little_touches/)
 

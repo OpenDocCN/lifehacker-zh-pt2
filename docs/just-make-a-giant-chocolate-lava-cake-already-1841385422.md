@@ -4,7 +4,7 @@
 
 传统上，熔化的熔岩蛋糕通常装在小模子里。它有一种媚俗的可爱——谁不喜欢个人甜点呢？—但是你的熔岩蛋糕没有理由一定要小。作为奖励，你可以吃一个大巧克力熔岩蛋糕。
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Just Make a Giant Chocolate Lava Cake, Already](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/impress-your-guests-with-instant-pot-lava-cakes-1826235162)</aside>
 

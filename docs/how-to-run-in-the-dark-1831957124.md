@@ -4,7 +4,7 @@
 
 冬天晨跑最糟糕的地方不是寒冷(我知道 [如何为](https://lifehacker.com/what-to-wear-to-run-in-the-cold-1831870049) 着装)，而是黑暗。即使在夏至之后，日出仍然是早上相当晚的时候，晚上也有宝贵的几分钟时间。你如何安全地在户外跑步？
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Run in the Dark](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/what-to-wear-to-run-in-the-cold-1831870049)</aside>
 

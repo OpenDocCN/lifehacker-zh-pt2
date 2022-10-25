@@ -4,7 +4,7 @@
 
 当我寻找我感兴趣的产品信息时，我有几个可以去的网站，比如 Wirecutter、Strategist 和 Amazon comments(不过你必须小心 [那里](https://lifehacker.com/how-to-spot-a-fake-five-star-amazon-review-1827907107#_ga=2.170546848.1837296093.1553520176-1723114163.1524514905) )。
 
-Watch
+
 
 这些通常是足够的选择，但如果你想寻找更多不同的评论，一个简单的方法是在谷歌中键入你感兴趣的产品名称，然后输入“vs”。然后你会得到其他流行的替代选择，以及你可能没有听说过的评论网站的链接，就像 [Recomendo 写的](http://recomendo.com/issues/social-mission-bollywood-pyt-sketch-pad-for-all-media-166882) 。
 

@@ -4,7 +4,7 @@
 
 受联邦政府关闭影响的 80 万联邦工作人员中的一些人，现在已经进入第 19 天，他们发起了众筹活动来支付基本费用， [石英报道](https://qz.com/1519556/unpaid-us-federal-workers-are-asking-for-donations-to-survive-through-the-shutdown/) 。
 
-Watch
+
 
 特朗普总统要求 50 亿美元建一堵墙(或...一些金属板条？)沿着美国南部边境，民主党拒绝签署。结果，由于政府仍然被封锁，数十万联邦工作人员没有收到工资，导致一些人在 GoFundMe 等网站上发起众筹活动，以支付食品、抵押贷款等费用。
 

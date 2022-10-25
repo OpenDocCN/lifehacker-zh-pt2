@@ -4,7 +4,7 @@
 
 如果你在 iPad 上使用外置键盘，你可以利用 Mac 上的一些键盘快捷键。 [甜蜜的设置](https://thesweetsetup.com/best-ipad-keyboard-shortcuts/) 列出了对 iPad 用户特别重要的好的键盘快捷键，包括这些不太明显的:
 
-Watch
+
 
 *   **按住向下箭头**调出软件键盘，无需移除。
 *   **Command-H** 转到主屏幕。

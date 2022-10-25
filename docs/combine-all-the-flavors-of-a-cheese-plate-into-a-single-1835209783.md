@@ -4,7 +4,7 @@
 
 一盘好的奶酪是几种成分的和谐组合。是的，奶酪很重要，但是你也需要水果、坚果、少量的甜食和碳水化合物。虽然混合、搭配和堆叠给我温暖和模糊的午餐感觉，但有时我只想把东西塞进嘴里，而不用担心“构建”任何东西。
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Combine All the Flavors of a Cheese Plate Into a Single Dip](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-anatomy-of-a-perfect-cheese-board-1828745149)</aside>
 

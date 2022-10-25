@@ -4,7 +4,7 @@
 
 *最终幻想*没有召唤就不会是*最终幻想*。自从 [*【最终幻想 III】*](https://kotaku.com/final-fantasy-iii-retrospective-hope-you-like-losing-p-1784147478)以来，你已经能够在战斗中召唤超能力的神兽来帮忙，只需按下按钮，就能有效地扭转局势。*最终幻想 VII 重拍*， [来自 Square Enix](https://kotaku.com/i-need-much-more-of-final-fantasy-vii-remakes-dancing-m-1842979584) 的新舞斗游戏，并无不同。
 
-Watch
+
 
 我花了很多时间在*重拍*上，而且大部分时间都在想召唤机械师已经是板上钉钉了。我的同事们处境相似——只是我们都有不同的想法。伊恩·沃克尽可能简洁地总结道:
 

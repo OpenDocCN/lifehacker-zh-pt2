@@ -4,7 +4,7 @@
 
 每个星期天，当我试图把它放在我的床垫上时，我都会对我的床单发起一场战争，努力把它放在一个角落，因为它会从另一个角落弹出来。
 
-Watch
+
 
 在最近的一次 [Reddit 帖子](https://www.reddit.com/r/LifeProTips/comments/blq5yc/lpt_tired_of_fitted_sheets_popping_off_while/?depth=2) 、 [u/ericfussell](https://www.reddit.com/user/ericfussell) 中有一个聪明而简单的提示:如果你像我一样挣扎:在你成功地越过你的第一个拐角后，移动到对角进行第二次尝试。安装对角不会导致第一个角弹出。
 

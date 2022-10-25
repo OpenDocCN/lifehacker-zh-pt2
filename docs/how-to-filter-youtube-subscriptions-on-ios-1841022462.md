@@ -4,7 +4,7 @@
 
 iOS 上的 [YouTube](https://apps.apple.com/us/app/youtube-watch-listen-stream/id544007664) 应用程序正在获得 [的升级订阅标签](https://9to5google.com/2020/01/14/youtube-subscriptions-filters/) ，这将使其更容易跟上你最喜欢的频道。
 
-Watch
+
 
 重新设计的订阅选项卡现在在订阅页面的顶部显示创作者故事(相当于 Snapchat 或 Instagram 故事帖子的 YouTube)。在那下面，你会发现所有最近的上传和一个新的可滑动菜单，让你在六个不同的过滤器之间切换。默认设置“全部”显示所有频道的所有视频和帖子，按时间倒序排列。其他五个包括:
 

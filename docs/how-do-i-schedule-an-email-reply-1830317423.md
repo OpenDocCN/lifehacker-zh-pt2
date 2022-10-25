@@ -4,7 +4,7 @@
 
 有多少人还在使用美国在线邮件？我以为是三个人，但显然你们中仍有相当一部分人坚持自己的 aol.com 账户。你希望 AOL 有一天会东山再起吗？你怀念拨号调制解调器的声音吗？你讨厌 Gmail 吗？ [可以移动提供商](https://lifehacker.com/how-do-i-import-another-email-account-into-gmail-1829997407)；会没事的。
 
-Watch
+
 
 在本周的 [Tech 911](https://lifehacker.com/c/tech-911) 专栏中，我们来看看一个源于 AOL Mail 的问题，但适用于所有曾经在邮件准备好(或没有打字错误)之前意外发送邮件时感到恐慌的人。
 

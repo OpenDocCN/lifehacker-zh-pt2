@@ -4,7 +4,7 @@
 
 你有没有感觉到在回收之前需要粉碎东西？好吧，这通常是正确的本能，因为它节省空间，并且对于回收者来说更有效。例如，塑料瓶在扔进回收站时通常最好被压碎(并在 上留下 [盖子)。](https://lifehacker.com/stop-recycling-plastic-bottles-without-caps-on-1832992981) 
 
-Watch
+
 
 然而，铝罐是一个罕见的例外，如 [科普](https://www.popsci.com/how-to-recycle) 上周提到的。事实证明，如果易拉罐被压碎或压扁，你通常会让回收设施的工作变得更加困难。
 

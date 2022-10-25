@@ -4,7 +4,7 @@
 
 朋友们，我们回来了，用 [挑战你们更多的楼梯练习](https://lifehacker.com/this-months-fitness-challenge-theme-is-stairs-1834511269) 。上周我们 [做了楼梯俯卧撑](https://vitals.lifehacker.com/get-better-at-push-ups-by-doing-them-on-stairs-1834847608)；今天的重点是下半身锻炼。
 
-Watch
+
 
 任何你能在有氧健身操上做的运动，你都可以在楼梯上做:上台阶，下台阶，配上音乐。但是，如果你想要更快、更燃的腿部锻炼，试试这些动作，像深蹲和弓步一样锻炼类似的肌肉:
 

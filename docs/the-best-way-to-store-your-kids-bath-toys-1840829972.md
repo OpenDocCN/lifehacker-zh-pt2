@@ -4,7 +4,7 @@
 
 机会是，如果你有小孩，你也有各种各样的橡胶沐浴玩具，处于不同的霉菌感染状态。我们已经告诉你 [如何清理](https://vitals.lifehacker.com/how-to-stop-mold-from-building-up-inside-baby-and-bath-1791344058) (甚至 [如何首先防止发霉](https://lifehacker.com/ask-a-clean-person-rubber-duckies-and-other-bath-toys-1798150090) )，但是一旦它们清理干净了，你把它们存放在哪里呢？
 
-Watch
+
 
 你不想把它们藏在壁橱里，因为明天晚上你又会把它们拿出来。你不会想让它们躺在浴缸里——那样它们永远也不会感到干燥。但是把它们扔进角落里的桶里似乎也不是让它们变干的最好方法。一位家居装修博主 想出了一个完美的解决方案:把它们放在一个悬挂的多层水果篮里。
 

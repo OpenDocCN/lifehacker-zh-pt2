@@ -4,7 +4,7 @@
 
 Lifehacker 的工作人员在纽约时代广场工作，这意味着我们经常处于被路过的汽车撞上的威胁之下。就在今天，一辆 SUV 差点撞倒我，尽管它闯了红灯。
 
-Watch
+
 
 好了，在 [Reddit](https://www.reddit.com/r/LifeProTips/comments/btk8a7/lpt_when_you_cross_a_road_always_make_eye_contact/) 上，u/cinema7D 有一个必要的(也可能是显而易见的)建议，下次你过马路时:与迎面而来的汽车司机进行眼神交流，这样他们就不会从你身上碾过。是的，你可能在进行眼神交流，以确保他们不会把你撞倒*，但重要的是他们在短暂的凝视中与你的目光相遇，这样他们就知道这是你的通行权。*
 

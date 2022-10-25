@@ -4,7 +4,7 @@
 
 我用 WordPress 给我在互联网上强大的小角落提供动力，我承认，我很懒，没有及时更新我的各种插件和主题。y 站点是非常基础的，所以,这个想法从来没有出现过。然而，我强烈建议你现在就访问*你的* WordPress 网站，更新所有需要的东西，尤其是如果你使用的是 ThemeGrill 的某个插件，如果不打补丁的话，这个插件会有很大的漏洞。
 
-Watch
+
 
 根据最近来自 [WebARX](https://www.webarxsecurity.com/critical-issue-in-themegrill-demo-importer/) 的一份报告，Wordpress 的 ThemeGrill 演示导入器插件——在他们发表文章时已有超过 200，000 次安装，但这个数字正在迅速下降——在 1.3.4 到 1.6.1 之间的任何版本中都存在漏洞。如果一个 WordPress 用户为他们的博客安装并激活了一个 ThemeGrill 主题，并且在他们的 WordPress 安装中有一个默认的“admin”用户帐户，攻击者可以利用这个漏洞“将整个数据库清除到默认状态，之后他们会自动以管理员身份登录。”
 

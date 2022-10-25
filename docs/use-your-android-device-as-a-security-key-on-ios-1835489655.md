@@ -4,7 +4,7 @@
 
 如果你是那些既拥有又使用 Android 和 iOS 设备又喜欢混乱的人之一，谷歌现在允许你使用你的 Android 智能手机作为物理安全密钥，用于 [在 iOS](https://security.googleblog.com/2019/06/use-your-android-phones-built-in.html) 上登录你的谷歌账户。
 
-Watch
+
 
 我们将向您展示如何设置这一切，但我们想首先承认 [对这种形式的双因素身份验证](https://arstechnica.com/information-technology/2019/06/ill-be-passing-on-googles-new-2fa-for-logins-on-iphones-and-ipads-heres-why/) (或 2FA，这不同于基于文本的 [两步*安全*](https://lifehacker.com/the-difference-between-two-factor-and-two-step-authenti-1787159870))的担忧。其中包括报告称，使用你的 Android 设备作为 iOS 的安全密钥可能是一个更复杂的过程——如果它真的有效的话。
 

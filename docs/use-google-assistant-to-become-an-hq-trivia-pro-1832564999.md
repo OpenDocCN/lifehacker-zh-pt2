@@ -4,7 +4,7 @@
 
 想用自己的时间掌握 HQ 琐事？谷歌助手可以帮你做到这一点。
 
-Watch
+
 
 谷歌和基于应用程序的琐事游戏 HQ Trivia[联手](https://mashable.com/article/hq-trivia-google-assistant/#KWV3xVHfyOqq) 创建了 HQ 大学，让用户在直播节目之外使用谷歌助手磨练琐事技能。
 

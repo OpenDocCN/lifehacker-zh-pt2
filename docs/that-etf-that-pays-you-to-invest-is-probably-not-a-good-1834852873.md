@@ -4,7 +4,7 @@
 
 你听说过免费的 ETF。但是，如果一只 ETF*付钱给你*去投资它呢？听起来好得难以置信，对吧？但这正是上周 [盐财](https://www.prnewswire.com/news-releases/salt-financial-completes-regulatory-process-for-pricing-incentive-structure-for-low-volatility-etf-powered-by-trubeta-300848449.html) 推出的。
 
-Watch
+
 
 Salt 的 ETF 免除了客户资产 0.29%的正常费用，还提供了这些资产价值 0.05%的回扣(阅读: [你每投资](https://www.etftrends.com/innovative-etfs-channel/first-negative-fee-etf-gains-sec-approval/)1 万美元，就能获得 5 美元)。该要约适用于下一年投资于该基金的第一笔 1 亿美元资产， [石英解释](https://qz.com/1619947/salt-is-paying-investors-who-buy-its-new-etf-whats-the-catch/)；此时，折扣结束，费用将恢复。
 

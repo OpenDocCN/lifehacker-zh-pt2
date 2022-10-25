@@ -4,7 +4,7 @@
 
 在失业率史无前例的上升期间，有一份工作的需求不断增加: [接触追踪](https://lifehacker.com/what-is-contact-tracing-1842984055) 。疾病控制中心多管齐下的应对措施针对新冠肺炎疫情，接触者追踪包括给疑似和确诊感染者打电话，并记录他们在传染性最强期间可能密切接触过的任何人。
 
-Watch
+
 
 根据 NPR5 月 7 日进行的一项调查，各州目前计划雇佣约 61，000 名接触追踪员——这一数字自 4 月底 T4 首次进行同样的调查以来，在 10 天内几乎翻了一番。现在，纽约时报 [估计](https://www.nytimes.com/2020/05/18/health/coronavirus-contact-tracing-jobs.html) 全国将需要 [10 万](https://www.centerforhealthsecurity.org/our-work/pubs_archive/pubs-pdfs/2020/200410-national-plan-to-contact-tracing.pdf) 到 [30 万](https://www.statnews.com/2020/04/13/coronavirus-health-agencies-need-army-of-contact-tracers/)。那么成为一名联系人追踪师需要具备哪些条件，工资多少，谁可以申请？以下是你需要知道的。
 

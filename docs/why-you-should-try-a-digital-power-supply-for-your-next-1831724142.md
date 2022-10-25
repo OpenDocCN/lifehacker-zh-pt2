@@ -6,7 +6,7 @@
 
 我总是喜欢知道我的电脑发生了什么，但我倾向于只关注它的冷却能力，因为这直接影响到我工作(或游戏)时我的系统听起来是像一只咕噜咕噜的小猫还是喷气式发动机。然而，我一直很想知道我的系统消耗了多少能量，因为我倾向于让它在 [上的时间比我一天中可能需要的](https://lifehacker.com/use-this-autoclicker-app-to-rack-up-points-on-idle-game-1825654192) 时间更长。
 
-Watch
+
 
 虽然拿起一个方便的阅读器就可以很容易地测量任何设备的功耗——例如 [杀死一瓦](http://www.p3international.com/products/p4400.html) ，或者像我使用的[Belkin Conserve Insight](https://smile.amazon.com/Belkin-F7C005-Energy-Monitor/dp/B003WV5DBU?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/why-you-should-try-a-digital-power-supply-for-your-next-1831724142&asc_source=&sa-no-redirect=1&tag=kinjalifehackerlink-20)这样快速简单的东西——如果你想升级你的桌面系统(或者构建一个全新的系统)，你可能需要考虑一个更有趣和更彻底的解决方案。我一直在玩 [NZXT 的 E850 数字电源](https://www.nzxt.com/products/e850) 和系统监控 CAM 软件，它们都教会了我很多关于我的系统的电源要求。
 

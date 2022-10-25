@@ -4,7 +4,7 @@
 
 今年，我试着冥想更多，这涉及到对你能在互联网上找到的所有冥想工具的深入探究，特别是那些 f re e 工具。
 
-Watch
+
 
 我最近遇到了一个我非常喜欢的 Alexa 技能: [正念冥想](https://www.amazon.com/Stoked-Skills-LLC-Mindful-Meditation/dp/B0784GXF2M?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/use-alexa-to-help-you-meditate-with-this-skill-1841097886&asc_source=&tag=kinjalifehackerlink-20) 。
 

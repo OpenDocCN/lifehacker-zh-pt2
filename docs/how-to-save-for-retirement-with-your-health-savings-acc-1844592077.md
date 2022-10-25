@@ -4,7 +4,7 @@
 
 关于 [高免赔额健康保险](https://vitals.lifehacker.com/how-to-survive-a-high-deductible-health-insurance-plan-1792436777) 计划并没有太多让人喜欢的地方。如果你有一个，你可能已经在医疗保健上花费了数千美元。在达到免赔额之前，很难支付基本费用。不幸的是，这些计划已经成为许多大公司的首选——这种代价高昂的趋势可能会继续下去。
 
-Watch
+
 
 然而，高扣除额计划可能会提供一个好处:选择向 [健康储蓄账户](https://twocents.lifehacker.com/how-to-make-the-most-of-your-health-savings-account-rig-1844449242) 缴款，这允许你或你的雇主留出税前资金用于健康支出。这些账户可能不足以抵消你的医疗账单——[，特别是如果你患有慢性病](https://www.healthaffairs.org/do/10.1377/hblog20190416.47741/full/)——但是你可以通过对你的贡献进行 [税收减免](https://www.irs.gov/publications/p969#en_US_2019_publink1000204023) 来省钱。
 

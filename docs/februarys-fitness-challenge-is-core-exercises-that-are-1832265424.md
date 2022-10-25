@@ -4,7 +4,7 @@
 
 也许我在 [Lifehacker 健身挑战赛](https://lifehacker.com/c/lifehacker-fitness-challenge) 中最喜欢的时刻是我们完成木板挑战赛 的 [那天。我讨厌木板。幸运的是，不用做一个单板就能锻炼出你的核心*。*](https://vitals.lifehacker.com/were-finally-done-with-the-plank-challenge-1825651117)
 
-Watch
+
 
 所以这个月的每个星期，我们会让你熟悉一些你以前可能没有尝试过(或者应该再试一次)的核心练习。当然，这不仅仅是关于腹肌:你的核心包括所有不属于你手臂或腿的稳定肌肉。所以，你的腹肌，是的，还有你背部的肌肉，你身体两侧的肌肉，以及你肩膀和臀部周围的一些肌肉。
 

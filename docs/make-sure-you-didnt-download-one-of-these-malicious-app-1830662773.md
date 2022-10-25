@@ -4,7 +4,7 @@
 
 如果你最近从 Google Play 下载了一款赛车游戏，你可能需要检查一下，确保它不是恶意软件。
 
-Watch
+
 
 谷歌本周末从 Google Play 商店移除了 13 款感染了恶意软件的应用。13 个都伪装成赛车游戏。当你试图启动游戏时，它会崩溃，但仍然会在你的设备上安装恶意软件。受影响的用户可能只是认为他们的手机有问题，而没有意识到该应用程序是恶意的， [*NDTV* 报道](https://gadgets.ndtv.com/apps/news/google-pulls-13-android-apps-installed-over-500-000-times-containing-malware-report-1952366) 。
 

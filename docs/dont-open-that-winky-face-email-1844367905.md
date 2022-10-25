@@ -4,7 +4,7 @@
 
 一个非常成功的垃圾邮件活动正在用勒索软件和其他恶意软件感染计算机，如加密货币矿工和僵尸网络软件，它们可以在您不注意的情况下从您的帐户发送垃圾邮件。
 
-Watch
+
 
 根据 Check Point 网络安全公司(via[【ZDNet](https://www.zdnet.com/article/this-botnet-has-surged-back-into-action-spreading-a-new-ransomware-campaign-via-phishing-emails/))的数据，网络钓鱼企图通常很容易捕捉到 ，但这一次欺骗了足够多的用户打开垃圾短信并下载恶意 Zip 文件，这是 2020 年 6 月报告的第二大恶意软件。
 

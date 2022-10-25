@@ -4,7 +4,7 @@
 
 在 YouTube 上观看视频可以很有趣，但是如果你不小心的话，观看一个视频可以很快变成观看五十个。 [YouTube 兔子洞](https://chrome.google.com/webstore/detail/youtube-rabbit-hole/nlddakjbmpidooplakalfoogdincflfh?ref=producthunt) 是一个可以帮忙的扩展。
 
-Watch
+
 
 顾名思义，扩展降低了你掉进 YouTube 兔子洞的能力。它如何做到这一点是通过隐藏的东西，如建议和评论。
 

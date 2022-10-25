@@ -4,7 +4,7 @@
 
 周三，众议院弹劾了唐纳德·特朗普总统，这使他成为美国历史上第三位被弹劾的总统，投票结果非常接近党派界限。在投票中，众议院通过了昨天提出的两项弹劾条款，包括滥用权力( [定义为](https://www.reuters.com/article/us-usa-trump-impeachment-charges-factbox/factbox-abuse-of-power-obstruction-the-charges-against-trump-explained-idUSKBN1YM1O8) )和阻碍国会(通过他所谓的阻碍对他与乌克兰行动的调查)。
 
-Watch
+
 
 特朗普总统今天在推特 T3 上写道:“昨晚我被弹劾了，没有一个共和党人投票支持民主党继续美国历史上最大的政治迫害。”。参议院多数党领袖米奇·麦康奈尔(Mitch McConnell)今天早上在参议院发表演讲时也为特朗普辩护，称他的弹劾是众议院民主党人和南希·佩洛西(Nancy Pelosi)的“草率程序”的结果，是“辜负了这个国家”。
 

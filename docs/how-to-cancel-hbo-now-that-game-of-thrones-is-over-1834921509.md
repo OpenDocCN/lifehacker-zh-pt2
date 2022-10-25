@@ -4,7 +4,7 @@
 
 随着《权力的游戏》正式成为过去，你可能会问自己很多棘手的问题。粉丝们本周一直在问的最大问题之一是，不出所料，“既然《权力的游戏》已经结束了，我该如何取消 HBO？”
 
-Watch
+
 
 如果剧集大结局前激动人心的 HBO 广告没有吸引你继续每月 14.99 美元的订阅，你并不孤单。眼尖的 Reddit 用户 [underlander 指出](https://old.reddit.com/r/dataisbeautiful/comments/br2hw5/oc_google_searches_for_cancel_hbo_subscription/) 在大结局之后，“取消 HBO 订阅”的搜索量略有飙升。说真的，看看谷歌趋势结果:
 

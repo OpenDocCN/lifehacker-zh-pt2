@@ -4,7 +4,7 @@
 
 如果你在 2017 年受到了 Equifax 大规模数据泄露的影响，你最终可以要求赔偿。美国联邦贸易委员会 [宣布与信用局](https://www.ftc.gov/enforcement/cases-proceedings/refunds/equifax-data-breach-settlement) 达成和解，包括为 1.47 亿数据受损的人赔偿 4.25 亿美元。
 
-Watch
+
 
 你可能还记得，当这一巨大的混乱在 2017 年被曝光时，Equifax 为那些知道自己的信息被列入违规的人设置了免费的信用监控。但是，用于查明你是否是受 影响的 [许许多多人中的一员的网站漏洞百出，有时会显示不正确的状态信息。有些人在失去对数据的控制后，不愿意信任 Equifax 来监控他们的身份和信用。](https://lifehacker.com/how-to-find-out-if-you-were-affected-by-the-equifax-hac-1806121695)
 

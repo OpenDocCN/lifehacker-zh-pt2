@@ -4,7 +4,7 @@
 
 苹果公司将于明天举行一场媒体发布会，预计将会发布下一代 iPhone。有传言称，这款手机实际上将有三个新版本:iPhone 11、iPhone 11 Pro 和 iPhone 11 Max。
 
-Watch
+
 
 传统上，苹果只允许通过 Safari 流媒体播放活动；然而，最近几年，它也向其他浏览器开放了这个流，最近又向 Twitter 开放了。iPhone 活动也将在一个新的平台上进行:YouTube。
 

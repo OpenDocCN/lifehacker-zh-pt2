@@ -4,7 +4,7 @@
 
 你的 iPhone 被垃圾信息搞得焦头烂额了吗？如果你还没有升级到 iOS 13 的话，你应该升级到 iOS 13[。iOS 13 包括几个阻止垃圾邮件的新工具和](https://lifehacker.com/update-to-ios-13-1-now-1838412062) [robocalls](https://lifehacker.com/how-to-prevent-robocalls-and-minimize-phone-spam-1828192361) ，并继承了 iOS 12 的 iMessage 阻止选项。这使得从源头过滤掉不想要的信息变得很容易——无论是来自特定的联系人还是全体。更好的是，你在 iPhone 上屏蔽的任何号码或电子邮件地址也会在你的其他苹果设备上被屏蔽。下面是方法:
 
-Watch
+
 
 ### 阻止不想要的电子邮件
 

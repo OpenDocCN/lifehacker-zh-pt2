@@ -4,7 +4,7 @@
 
 任何一天都是抵制脸书的好日子，但今天尤其完美。昨天参议院情报委员会发布了两份[关于俄罗斯宣传及其使用社交媒体的](https://disinformationreport.blob.core.windows.net/disinformation-report/NewKnowledge-Disinformation-Report-Whitepaper-121718.pdf) 报告。俄罗斯互联网研究机构广泛使用脸书和 Instagram 针对各种政治派别的人，特别关注美国黑人。
 
-Watch
+
 
 其中一份报告总结道:“爱尔兰共和军在脸书和 Instagram 上最多产的努力专门针对美国黑人社区，似乎一直专注于发展黑人受众和招募美国黑人作为资产。”
 

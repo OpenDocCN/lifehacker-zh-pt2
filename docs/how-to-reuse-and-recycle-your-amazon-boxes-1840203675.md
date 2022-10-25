@@ -4,7 +4,7 @@
 
 本周，[《the Verge》](https://www.theverge.com/2019/12/2/20986298/cyber-monday-black-friday-amazon-effect-recycling-cardboard-shopping)报道了亚马逊纸箱在各地回收设施的大规模冲击——也就是众所周知的“亚马逊效应”
 
-Watch
+
 
 据美国最大的回收设施之一 Sims 市政回收公司称，瓦楞纸板——构成亚马逊箱子的那种——现在占了当地路边回收流的近一半，而 2004 年只有 15%。
 

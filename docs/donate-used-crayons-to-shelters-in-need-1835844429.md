@@ -4,7 +4,7 @@
 
 去任何一家有儿童菜单的餐馆，你很可能会看到蜡笔散落在桌子上，一天用完就扔掉。
 
-Watch
+
 
 虽然蜡笔算不上是主要的污染源，但它们对环境也没什么好处；大多数是由石蜡制成的，这种物质你可能会在 [美容产品](https://www.amazon.com/Paraffin-Wax-Works-Green-Treatment/dp/B00SLMLOSQ?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/donate-used-crayons-to-shelters-in-need-1835844429&asc_source=&tag=kinjalifehackerlink-20) 中找到，是原油或石油的副产品。它们不会生物降解，这意味着它们会在未来几年里留在垃圾填埋场。
 

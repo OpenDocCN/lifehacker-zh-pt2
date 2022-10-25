@@ -4,7 +4,7 @@
 
 你每个月浪费多少钱？你有没有算过帐，或者只是在冲动购物时抱怨一下，因为它们会出现在你的银行对账单上？
 
-Watch
+
 
 The Ascent from Motley Fool [调查了 1015 名](https://www.fool.com/the-ascent/credit-cards/blog/study-the-most-wasteful-spending-habits-among-americans/) 人的消费习惯。他们平均估计每月浪费多少钱？**139 美元。**
 

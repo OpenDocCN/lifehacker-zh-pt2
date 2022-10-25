@@ -4,7 +4,7 @@
 
 我用 Kindle Paperwhite 的已经用了 [五年了](https://gizmodo.com/kindle-paperwhite-review-2013-faster-easier-on-the-1442924789) ，没错， [新的](https://www.amazon.com/Amazon-Kindle-Paperwhite-6-Inch-4GB-eReader/dp/B00OQVZDJM?asc_campaign=InlineText&asc_refurl=https://gizmodo.com/the-amazon-kindle-paperwhite-is-just-a-delight-1830422674&asc_source=&tag=kinjagizmodolink-20) 比之前的要好。它稍微小一点，稍微轻一点，甚至还稍微亮一点。加上它是防水的！
 
-Watch
+
 
 在这一点上，赞美 Kindle 和电子阅读器的好处几乎毫无意义。随身携带一个可以轻松放入夹克口袋的小设备比随身携带一本薄薄的平装书要方便得多。拥有实体书有好处吗？我不是室内装潢师，但我相信你的墙上挂满书会让你的客人印象深刻。最近，我在我的储物单元周围挖掘，发现了一个巨大的手提箱，里面装满了我完全忘记自己拥有的书。我不需要那些书！我很高兴我再也不用买实体书了，除非我确定我会完全珍惜它。电子书是不可思议的，感谢图书馆借阅服务 Overdrive，你甚至不需要购买你想在 Kindle 上阅读的书！怎么样？
 

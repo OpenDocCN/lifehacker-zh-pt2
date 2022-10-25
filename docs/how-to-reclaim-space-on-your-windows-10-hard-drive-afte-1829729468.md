@@ -4,7 +4,7 @@
 
 感觉微软正在加大对 Windows 的主要系统更新，现在大约每六个月就会有一次。但问题是，除了雷德蒙吃掉你的文件 之外，Windows 更新总是在你的电脑上留下许多临时文件和其他占用空间的垃圾。这可能会随着时间的推移而累积，并吃掉许多浪费的千兆字节，您可能无法节省，也不应该有。
 
-Watch
+
 
 为了避免这个问题，在每次 Windows 10 重大更新后清理这些临时文件是一个好主意。这是一个简单的过程，最初在最近的 groovyPost 文章中对 [进行了说明。](https://www.groovypost.com/howto/free-up-tons-of-drive-space-after-windows-10-1809-update/)
 

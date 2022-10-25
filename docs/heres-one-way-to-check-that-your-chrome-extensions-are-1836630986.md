@@ -4,7 +4,7 @@
 
 鉴于最近的 DataSpii 浏览器扩展泄漏，数百万用户的数据被跟踪，并通过看似良性的浏览器扩展出售给 ，值得检查一下你可能已经安装或正在考虑安装的其他 Chrome 插件，以 [嗅出任何不良行为者](https://www.ghacks.net/2019/07/22/how-to-search-all-chrome-extensions-for-the-dangerous-unsafe-eval/) 。
 
-Watch
+
 
 为此，我们将使用一款名为[Chrome Extension Source Viewer](https://chrome.google.com/webstore/detail/chrome-extension-source-v/jifpbeccnghkjeaalbbjmodiffmgedin?hl=en)的轻量级软件，该软件可以发现潜在的可疑行为，如执行远程代码的能力。
 

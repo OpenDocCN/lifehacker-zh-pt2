@@ -4,7 +4,7 @@
 
 如果你本周晚些时候要去机场庆祝感恩节，你要小心打包你打算带去的任何好吃的东西。同样的 TSA 规则适用于每隔一天的感恩节，这意味着不是每一餐都能随身携带。
 
-Watch
+
 
 负责记分的人 [向美国运输安全管理局发言人](https://thepointsguy.com/news/how-to-travel-through-the-airport-with-thanksgiving-dinner/) 询问了什么是合法的，什么是非法的。这里有一个简单的纲要，告诉你什么可以通过安检，什么是你想留在家里的。
 

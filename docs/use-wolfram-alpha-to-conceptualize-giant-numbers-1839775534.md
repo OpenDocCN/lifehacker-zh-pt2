@@ -4,7 +4,7 @@
 
 如果没有一些帮助，我们的猴子大脑不会进化到理解大数。所以，当你遇到一个抽象的图形时，最好有一些现实世界的东西与之比较。这就是为什么我 [记住了一些关于美国人口](https://lifehacker.com/what-numbers-should-everyone-memorize-1838716183) 的统计数据；这就是为什么我们制作了 [视频，将杰夫·贝索斯的钱与碧昂斯的](https://lifehacker.com/the-difference-between-one-million-and-one-billion-1830493909) 进行对比。当你需要可视化某个数字时，无论是大还是小，在 Wolfram Alpha 上搜索它，你就会得到与现实世界中一些物体的对比。
 
-Watch
+
 
 例如，纽约市一天大约使用十亿加仑的水 。那有多大？wolfram AlphaT5【说】T6 它大约是三峡大坝体积的七分之一。
 

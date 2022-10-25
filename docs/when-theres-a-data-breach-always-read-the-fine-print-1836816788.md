@@ -4,7 +4,7 @@
 
 Capital One 已经启动了其最近一次数据泄露 的通知流程——影响了美国大约 1 亿人和加拿大另外 600 万人(目前)。不过，如果你碰巧看到了该公司关于这个问题的公告，听起来肯定一切都很好。
 
-Watch
+
 
 至少，当我阅读 Capital One 的 [新闻稿](http://press.capitalone.com/phoenix.zhtml?c=251626&p=irol-newsArticle&ID=2405043) 时，我感觉自己就像坐在一辆金融过山车上，看到了这样交替出现的几行文字:
 

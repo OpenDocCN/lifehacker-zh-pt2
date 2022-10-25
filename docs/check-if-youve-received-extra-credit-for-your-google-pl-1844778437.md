@@ -4,7 +4,7 @@
 
 Google Play 音乐即将被淘汰，未来几周将在 T2 被 YouTube 音乐取代。谷歌为曾经使用过谷歌播放音乐(由 [制作)的人提供了多种工具](https://lifehacker.com/save-your-google-play-music-library-before-it-disappear-1844624691) 来迁移你的曲库、播放列表和其他数据，从而使迁移变得容易。但是你的*订阅*呢？
 
-Watch
+
 
 答案取决于你是如何为 Google Play 音乐付费的。Google Play 音乐订阅用户可以购买或获赠三个月或六个月的订阅服务。因此，许多用户现在已经预付了 Google Play 音乐订阅，订阅时间超过了谷歌 9 月/10 月的日落时间。
 

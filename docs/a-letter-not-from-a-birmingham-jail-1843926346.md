@@ -2,7 +2,7 @@
 
 > 原文：<https://www.theroot.com/a-letter-not-from-a-birmingham-jail-1843926346>
 
-Watch
+
 
 我想象我是一名清洁工。
 

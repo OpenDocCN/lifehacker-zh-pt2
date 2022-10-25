@@ -4,7 +4,7 @@
 
 最近几周，全国各地的警察部门使用所谓的“声炮” [来控制和驱散抗议人群](https://www.wweek.com/news/2020/06/05/portland-police-deployed-a-long-range-acoustic-device-thursday-night-as-crowd-control-device/) 。这些扬声器 [的正式名称是远程声学设备，或 LRADs，本质上是基于声音的武器](https://lifehacker.com/how-do-police-departments-acoustic-weapons-work-1843982813) ，允许执法人员以令人痛苦的音量和精确的方向远距离广播高频音频。
 
-Watch
+
 
 LRADs 会导致头痛、恶心和眩晕——一直到永久性失聪。
 

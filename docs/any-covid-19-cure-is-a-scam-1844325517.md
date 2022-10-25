@@ -4,7 +4,7 @@
 
 这是你的定期提醒，仍然没有已知的治愈，也没有具体的药物预防或治疗，为新冠肺炎。所以如果有人在卖，那就是骗局。
 
-Watch
+
 
 是的，有一些药物显示出希望。对于患有严重新冠肺炎病的人来说，他们的身体正在攻击自己， [皮质类固醇地塞米松似乎可以提高这些患者的生存机会](https://www.sciencemag.org/news/2020/06/cheap-steroid-first-drug-shown-reduce-death-covid-19-patients) 。它并不对抗病毒，只是降低了身体自身的炎症反应。所以它不能预防疾病，也不能帮助那些只有轻微症状的人。这是我们目前为止最好的药物！ [Remdesivir 可能会有一点帮助](https://www.nejm.org/doi/full/10.1056/NEJMoa2007764) ，但它也不是什么灵丹妙药。羟氯喹背后有很多嗡嗡声，但它在试验 [中的表现一直令人失望](https://www.statnews.com/2020/07/08/a-flawed-covid-19-study-gets-the-white-houses-attention-and-the-fda-may-pay-the-price/) 。您可以使用 [这个跟踪器](https://lifehacker.com/track-all-the-covid-19-drug-and-vaccine-candidates-with-1843131548) 来查看当前候选药物(和疫苗)的进展情况。
 

@@ -4,7 +4,7 @@
 
 5 月，一名男子在乘坐德尔塔航班时被情绪支持动物 [攻击](https://www.nbcnews.com/news/us-news/man-attacked-emotional-support-dog-delta-flight-sues-airline-passenger-n1011881)；根据这名乘客提起的诉讼，这只动物在攻击前多次试图坐在主人的腿上——尽管根据达美航空的规定，esa 必须留在地板上——而乘务员无视航空公司的政策。
 
-Watch
+
 
 在 [点盖伊](https://thepointsguy.com/news/first-class-seat-emotional-support-animal/) 上，一位读者也分享了她在美国航空公司航班上与一名乘客的动物的经历，这(谢天谢地)少了很多创伤。登机后，这位旅客发现她的头等舱座位被邻座的狗占了。
 

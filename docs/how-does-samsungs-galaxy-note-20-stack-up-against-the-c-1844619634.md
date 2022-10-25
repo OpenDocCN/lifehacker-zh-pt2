@@ -4,7 +4,7 @@
 
 我确实喜欢新智能手机发布日，今天是三星展示其全新系列 [Galaxy Note 20 Android 智能手机](https://www.samsung.com/us/smartphones/galaxy-note20-5g/compare/?device-1=samsung-galaxy-note20-5g&device-2=samsung-galaxy-note20-ultra-5g&device-3=samsung-galaxy-z-fold2-5g) 的时候。该公司今天宣布了两款新机型，三星 Galaxy Note 20 和 Galaxy Note 20 Ultra。从美国东部时间今晚 12 点 01 分开始，在您购买预购之前，我们将看看它们的规格，看看它们与其他同类产品相比如何。
 
-Watch
+
 
 如果由我决定，我会等一些评论后再买一部 1000 多美元的新手机，但预购的力量很强大。我明白了。为了帮助你找到最适合你的手机，我们将在我们的迷你综述中涵盖八个不同的类别和 12 款不同的手机:
 

@@ -4,7 +4,7 @@
 
 如果你是一个冬天寒冷或多雪的地方的狗主人，你可能习惯于让你的小狗穿上一双狗靴来保护它们的爪子免受寒冷、冰和盐的伤害。但是这些爪子也需要保护，以免被炎热的夏季路面灼伤。
 
-Watch
+
 
 Reddit 用户 [u/RealSimplexity 本周将 PSA](https://old.reddit.com/r/LifeProTips/comments/bwin2m/lpt_buy_little_booties_for_your_walkable_animals/) 发布给宠物主人，他们很可能在炎热的夏天走路时穿着鞋子，可能会忘记爪子会像脚一样燃烧:
 

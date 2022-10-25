@@ -4,7 +4,7 @@
 
 如果你感染了艾滋病毒，但你的病毒载量测试显示病毒是无法检测的，你不能把它传染给其他人。这个事实是[【U = U】认知活动](http://www.unaids.org/en/resources/presscentre/featurestories/2018/july/undetectable-untransmittable) 的基础，并且在一项新的研究中得到进一步证实。
 
-Watch
+
 
 “这个问题已经得到了肯定的回答，没有必要再做进一步的研究了。作者之一的艾莉森·罗杰告诉美国有线电视新闻网 。
 

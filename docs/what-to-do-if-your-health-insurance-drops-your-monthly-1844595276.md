@@ -4,7 +4,7 @@
 
 当你依赖昂贵的处方时，没有什么比得知你的健康保险不再覆盖它更令人担忧的了——不幸的是，这种情况比你想象的更频繁。根据 GoodRx 的新数据，15%的美国人在过去的一年中至少有一个处方从他们的保险范围中退出。幸运的是， [消费者报告说](https://www.consumerreports.org/prescription-drugs/when-your-insurer-drops-your-prescription-drug/) 如果这种情况发生在你身上，你可以采取一些措施。
 
-Watch
+
 
 ### **和你的药剂师谈谈**
 

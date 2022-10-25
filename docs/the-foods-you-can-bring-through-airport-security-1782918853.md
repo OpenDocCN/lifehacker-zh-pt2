@@ -4,7 +4,7 @@
 
 自从美国运输安全管理局颁布了[【3-1-1】规则](https://www.tsa.gov/travel/security-screening/liquids-rule) ，真正收紧了对液体、糊状物和凝胶的限制后，对于某些食品是否被允许通过机场安检一直存在一些困惑。
 
-Watch
+
 
 我们大多数人都知道你不能携带超过 3.4 盎司的液体通过安检，但是像肉汁和酸奶这样的东西呢？幸运的是，我的美国运输安全管理局 应用程序和美国运输安全管理局 [网站](https://www.tsa.gov/travel/security-screening/whatcanibring/food) 都允许你搜索特定的物品，包括食物，看看你是否被允许带它通过安检。
 

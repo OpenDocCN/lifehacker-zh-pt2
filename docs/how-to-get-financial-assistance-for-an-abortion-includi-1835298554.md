@@ -4,7 +4,7 @@
 
 尽管堕胎在所有 50 个州 技术上仍然是合法的，但这并不意味着每个人都可以去诊所并且负担得起。手术本身的费用是一回事——在某些情况下， [可能会被你的保险](https://www.plannedparenthood.org/learn/teens/ask-experts/how-much-does-an-abortion-cost)——但即使你足够幸运地拥有这种保险，根据你住在哪里，仍然可能有其他重大费用。
 
-Watch
+
 
 例如，密苏里州只有一家堕胎诊所在运营(而 [那家也岌岌可危](https://www.usnews.com/news/us/articles/2019-06-05/hearing-to-consider-fate-of-lone-missouri-abortion-clinic) )，所以如果你碰巧不住在圣路易斯地区，需要终止妊娠，你还面临着交通、住宿和其他必需品如食物和用品的费用。这些费用会迅速增加，使得那些不住在诊所附近的人更难堕胎。
 

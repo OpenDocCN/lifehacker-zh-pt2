@@ -4,7 +4,7 @@
 
 当热门应用 和操作系统出现时，我们尽最大努力强调它们的 [酷新测试功能，但事实是新功能和想法总是在每一个活跃的软件上进行测试。只要那些产品有测试程序，你就可以随时测试它们。](https://lifehacker.com/how-to-change-firefoxs-default-search-engine-for-privat-1838880194) 
 
-Watch
+
 
 我们已经介绍了如何为[Chrome](https://lifehacker.com/how-to-enable-our-favorite-chrome-78-features-right-now-1837662130)[Firefox](https://lifehacker.com/everything-you-need-to-know-about-firefox-preview-on-an-1835950429)[Android](https://lifehacker.com/how-to-sign-up-for-the-android-q-beta-right-now-1833291629)(包括 [三星手机](https://lifehacker.com/how-to-get-android-10-on-your-samsung-galaxy-s10-right-1839047191))[Windows 10](https://lifehacker.com/how-to-switch-to-insider-preview-builds-of-windows-10-1725625466#!)，以及相当多的 [苹果操作系统](https://lifehacker.com/how-to-roll-back-from-the-ios-13-beta-to-ios-12-1835589801) 中的每一款操作系统实现这一点，但是我们还没有介绍如何试用最新的 Chromebook 随着 [一款新的 Pixelbook 即将上市](https://lifehacker.com/everything-from-todays-google-event-that-actually-matte-1839057732) ，这似乎是向您展示如何加入 Chrome OS beta 频道的最佳时机。
 

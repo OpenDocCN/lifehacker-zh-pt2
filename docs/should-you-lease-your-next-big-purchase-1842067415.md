@@ -4,7 +4,7 @@
 
 渐进式租赁已经存在 20 年了。如果你在床垫公司、Lowes、Kay Jewelers、Pandora、Big Lots、Metro PCS、Cricket Wireless 和 Sam Ash 购物，你可能会看到这家公司的名字——这只是其中的几个例子。
 
-Watch
+
 
 但是，渐进式租赁公司并不为你购买钻戒、冰箱或电吉他提供融资，而是为高价物品提供短期租赁。你基本上是租用物品，直到你付清你的协议。
 

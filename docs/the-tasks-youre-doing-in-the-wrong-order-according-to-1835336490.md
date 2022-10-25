@@ -4,7 +4,7 @@
 
 [“什么是不需要你做任何新的事情，只需要改变你已经在做的事情的顺序的‘生活黑客’？”](https://old.reddit.com/r/AskReddit/comments/bxgvjz/what_is_a_lifehack_that_doesnt_require_you_to_do/) 问 Reddit 用户 DetroitHustlesHarder。Redditors 回答了大量好的时间管理建议，不需要额外的工作，只是以更好的顺序做同样的工作。你需要做的只是控制你的时间表，和一些自我控制。
 
-Watch
+
 
 *   “首先将附件添加到电子邮件中，”LionelHutz4 说。那就不能忘了附上。
 *   Redditor -Axon- adds:在你写完邮件之前，不要填写“收件人:”行，这样你就不会意外地发送得太快。

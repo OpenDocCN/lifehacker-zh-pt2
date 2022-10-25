@@ -2,7 +2,7 @@
 
 > 原文：<https://gizmodo.com/surface-laptop-2-review-design-overkill-1829787598>
 
-Watch
+
 
 Surface Laptop 2 的 billboard 新功能根本不是一个功能。这是一种配色:你现在可以得到一种严重的哑光黑色，它设法变得非常不透明，同时仍然非常醒目和美丽。但这款设备的主要兴趣点是配色，这应该会引发一些危险信号，也许没什么好兴奋的。在某种程度上，也许从来就没有。
 

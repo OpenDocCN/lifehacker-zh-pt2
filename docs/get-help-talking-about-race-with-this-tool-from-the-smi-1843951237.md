@@ -4,7 +4,7 @@
 
 当然，到现在为止，我们都看到了谈论种族的迫切需要——与我们的孩子，与我们的父母，与我们的朋友，甚至与我们自己。如果唯一阻碍你的是你根本不知道从哪里开始，史密森尼国家非裔美国人历史和文化博物馆已经推出了一个新的在线门户网站，这将有所帮助。
 
-Watch
+
 
 这个数字门户网站包含工具、在线练习、视频指导、文章和 100 多种为教育工作者和家长量身定制的多媒体资源，在乔治·弗洛伊德去世后全国爆发抗议活动之前，它就已经在工作中了。看到眼前的需要，博物馆提前了“ [谈论种族](https://nmaahc.si.edu/about/news/national-museum-african-american-history-and-culture-releases-talking-about-race-web?fbclid=IwAR1skR1fJb47d-iTszVLa26cw9XaWv6N7uBk0T450ngnWo3fDz5q2IFHoZI) ”的上映日期，以提供人们可以立即使用的资源:
 

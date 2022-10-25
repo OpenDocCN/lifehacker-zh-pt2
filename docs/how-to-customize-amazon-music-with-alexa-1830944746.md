@@ -4,7 +4,7 @@
 
 Alexa 长期以来一直能够响应特定音乐流派、情绪和播放列表的请求。现在，她还可以帮助你管理和个性化播放列表，并记住你未来的偏好。
 
-Watch
+
 
 亚马逊正在 [为亚马逊音乐用户推出新功能](https://variety.com/2018/biz/news/amazon-music-new-voice-features-alexa-1203081896/) ，允许与 Alexa 进行更自然的来回对话。以前你只能使用基本的命令(“Alexa，播放节日音乐”)，现在你可以使用 Alexa 来帮助你缩小选择范围。
 

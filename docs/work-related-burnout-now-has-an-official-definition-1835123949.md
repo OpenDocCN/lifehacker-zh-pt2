@@ -4,7 +4,7 @@
 
 我们大多数人都经历过一种模糊的被工作“耗尽”的感觉，但是现在对于这种感觉的真正含义有了一个具体的定义。世界卫生组织最近更新了他们的 [国际疾病分类编码](https://www.who.int/health-topics/international-classification-of-diseases) (ICD-11)，将倦怠定义为一种具有三个维度的综合征。
 
-Watch
+
 
 新的定义并不意味着倦怠(或者，他们称之为“烧尽”)是一种疾病；是 [将](https://icd.who.int/browse11/l-m/en#/http%3a%2f%2fid.who.int%2ficd%2fentity%2f129180281) 归类为“影响健康状况的因素”这是新的定义:
 

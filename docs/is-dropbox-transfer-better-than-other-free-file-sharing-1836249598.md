@@ -4,7 +4,7 @@
 
 在互联网上共享文件并不是什么新鲜事，但是自从挑剔的 FTP 服务器和狡猾的 P2P 程序的太平日子以来，这个过程已经发生了变化。现在，通过一个简单的网络应用或云服务，如 Dropbox，发送大文件很容易，后者正计划通过一个新的免费文件传输服务 [Dropbox Transfer](https://blog.dropbox.com/topics/product-tips/send-large-files-transfer) 使这变得更容易。
 
-Watch
+
 
 ### 什么是 Dropbox 转账？
 

@@ -4,7 +4,7 @@
 
 在疫情中部，没有时间去药店买最后一分钟的药品，所以在生病前储备一些是有意义的。这是你需要用来抵御轻度新冠肺炎或者普通感冒或流感的东西。
 
-Watch
+
 
 我们采访了 FAAFP 医学博士 Ada Stewart，讨论了你应该在家里准备哪些物品以防生病。除了是美国家庭医师学会 的当选主席 [之外，Stewart 还是南卡罗莱纳州哥伦比亚市的一名家庭医师。](https://www.aafp.org/about/governance/board-directors/ada-stewart1.html)
 

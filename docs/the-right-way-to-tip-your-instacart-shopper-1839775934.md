@@ -4,7 +4,7 @@
 
 上周，Instacart 的工人们组织了一场全国性的罢工，持续了三天，要求将交付平台界面上的默认小费从 5%增加到 10%。在一篇因“隐私”原因被 Medium 删除的帖子中(自从 [被重新发布](https://medium.com/@nopenever50/dear-apoorva-mehta-founder-and-ceo-of-instacart-944ca4db6ad0) )，几名 Instacart 购物者在罢工前对该公司的首席执行官 Apoorva Mehta 说，他的商业行为“不道德”。
 
-Watch
+
 
 他们写道:“每年，随着我们的薪酬进一步下降，Instacart 的估值飙升数十亿，你的净资产飙升，我们都会进行反击。”"...因为你的贪婪或不作为，或缺乏关心，购物者现在努力把食物放在桌子上，给家人一个栖身之所。"
 

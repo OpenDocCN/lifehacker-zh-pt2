@@ -4,7 +4,7 @@
 
 藏书家们欢欣鼓舞:Sonos now [与 Libby](https://www.theverge.com/2020/4/30/21242505/sonos-libby-overdrive-local-library-audiobooks-free) 集成，后者是音频和电子书服务 OverDrive 的应用程序，可以将你与当地公共图书馆的免费内容联系起来。
 
-Watch
+
 
 这意味着你可以查看有声读物，并在 Sonos 扬声器上收听，而不必携带移动设备从一个房间到另一个房间。你只需要一张借书证。(如果您还没有信用卡，即使您当地的分行暂时关闭，您也可以在线申请信用卡。)
 

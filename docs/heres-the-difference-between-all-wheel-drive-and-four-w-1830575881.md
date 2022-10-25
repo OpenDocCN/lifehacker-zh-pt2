@@ -4,7 +4,7 @@
 
 随着冬天的到来，如果我们有一个训练有素的拉力车手，能够接触到一堆组装在一起的四轮驱动和四轮驱动车辆，帮助解释这两个越来越混乱的术语之间的区别，那将是非常棒的。哦，等等，他来了！
 
-Watch
+
 
 我是奥尼尔拉力赛学校的怀亚特·诺克斯。你可能还记得他教我和我的同事 [如何在你的司机被击中的情况下控制汽车](https://jalopnik.com/how-to-take-control-of-a-car-if-your-driver-dies-1790289210) ， [如何做坑内机动](https://jalopnik.com/a-remote-rally-school-teaches-americas-special-forces-h-1820468426) ，以及 [许多其他事情。](https://jalopnik.com/what-youll-learn-in-a-one-day-rally-school-487593619) 怀亚特是双轮驱动全国拉力赛冠军，懂行。怀亚特正是考虑到这一点，解释了为什么一辆老款斯巴鲁 STI 可以被视为四轮驱动，而即使是最酷的福特福克斯也不能，以及卡车、路虎和吉普切诺基都符合这一点。
 

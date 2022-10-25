@@ -4,7 +4,7 @@
 
 如果你是 Windows 用户，所有的补丁星期二都应该很重要，除了那些微软 [发布补丁](https://lifehacker.com/back-up-windows-10-before-installing-the-october-update-1829556930) 并实际上使你的 Windows 系统比以前更糟糕的情况。为您的系统获取最新的功能和安全更新——主要是后者——应该是您每个月都期待的事情。但是今天的星期二更重要。
 
-Watch
+
 
 首先，如果你还在使用 Windows 7 ，要知道今天是你经历的最后一个补丁星期二。除非微软收回成命，并选择在巨大的漏洞被覆盖后发布未来的补丁，否则这将是你的操作系统收到的最后一轮安全更新。M 确保你安装了它们，因为 [从现在开始你要靠自己了](https://lifehacker.com/how-to-extend-your-windows-7-security-updates-past-janu-1840313094) 。
 

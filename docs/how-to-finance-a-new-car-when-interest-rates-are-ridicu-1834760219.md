@@ -4,7 +4,7 @@
 
 你一直在考虑的那辆车可能比你预期的要贵。埃德蒙兹 [的罗纳德·蒙托亚](https://www.edmunds.com/car-loan/buying-a-new-car-when-interest-rates-are-high.html) 写道，汽车贷款利率是 2009 年以来最高的。3 月份，新融资汽车的平均年利率为 6.4%。对于二手车，为 9.5%。
 
-Watch
+
 
 蒙托亚解释说:“虽然汽车贷款利率上升是经济健康的标志，但这也意味着买车的成本会更高。”
 

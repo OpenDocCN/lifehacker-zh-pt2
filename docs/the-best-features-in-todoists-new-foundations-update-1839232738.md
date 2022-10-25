@@ -4,7 +4,7 @@
 
 我们最喜欢的 [待办应用](https://lifehacker.com/five-best-to-do-list-managers-5924093)——恰当地命名为 [待办](https://todoist.com)——今天进行了一次大升级。你将看到它在未来 24 小时左右开始推出，所有使 Todoist 更容易使用的新功能都值得等待尝试。
 
-Watch
+
 
 根据 Todoist 的说法，所有这些功能都将出现在所有版本的服务中——免费的*和* premium。对于那些仍在尝试任务管理的人来说，这是一个好消息，他们不愿意为 Todoist Premium 支付每月 3 美元。
 

@@ -4,7 +4,7 @@
 
 在亚马逊上，一副由一家名为 HiFiMan 的制造商生产的耳机售价 2250 美元。根据评论，其中有 28 个假定的买家， [一个评论者](https://www.amazon.com/product-reviews/B00Y9XT3SE/ref=cm_cr_arp_d_viewpnt_rgt?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-dispose-of-a-broken-pair-of-headphones-1837372883&asc_source=&filterByStar=critical&pageNumber=1&showViewpoints=1&tag=kinjalifehackerlink-20) 说他的这双鞋坏了，他不会再买另一双了。(他的评论提到这是他从公司得到的第二套 T4。)
 
-Watch
+
 
 上周，我们写了如何处理有价值的电子垃圾，比如你用过的 Xbox 和 Playstation 游戏机。如果你的耳机已经停止工作，甚至修理店也无法前来救援，重要的是要以正确的方式处理它们；耳机和控制台一样，回收起来很复杂，因为它们必须拆卸下来才能重新使用。
 

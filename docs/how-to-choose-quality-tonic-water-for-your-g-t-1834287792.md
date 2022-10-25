@@ -4,7 +4,7 @@
 
 杜松子酒是一种优雅简单的东西，但是，由于调酒器构成了这种饮料的大部分，很多东西都取决于奎宁。幸运的是，市面上有许多质量上乘的奎宁味产品——包括糖浆！你只需要知道要寻找什么。
 
-Watch
+
 
 注明 [G & T 历史学家](https://www.amazon.com/Tonic-Water-AKA-Camper-English-ebook/dp/B01MXOAPOC?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-choose-quality-tonic-water-for-your-g-t-1834287792&asc_source=&tag=kinjalifehackerlink-20) 和 [鸡尾酒作家](https://www.alcademics.com) Camper English 对这种饮料几乎太熟悉了，自然地，有一些小贴士确保你挑选的奎宁水配得上你的杜松子酒。
 

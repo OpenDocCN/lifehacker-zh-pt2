@@ -4,7 +4,7 @@
 
 作为一个写了很多关于养育孩子的文章的人，我的确切目标是帮助这个巨大而艰巨的任务的各个方面变得简单一些，当我在《今日家长》上看到这个标题时，我有点惊讶: [养育孩子真的重要吗](https://www.todaysparent.com/family/nature-vs-nurture-does-parenting-even-matter/) ？我 t *宁*事！否则，为什么我坐在这里写关于 [如厕训练](https://offspring.lifehacker.com/how-to-handle-a-potty-training-regression-1841203633) 和什么时候 [适应挑剔的食客](https://offspring.lifehacker.com/yes-you-should-accommodate-your-friends-picky-eating-k-1841204883) 以及如何应对 [一个蹒跚学步的孩子对自动厕所](https://offspring.lifehacker.com/help-your-toddler-conquer-their-fear-of-the-automatic-t-1841201544) 的恐惧？这些事情很重要。T24】
 
-Watch
+
 
 但是后来我看了整篇文章，我也建议你看，我感觉好多了。事实上，我感觉真的非常好——因为它的主旨是我们喜欢的养育孩子的部分——爱我们的孩子，支持我们的孩子，与我们的孩子建立联系——*很重要。然而，所有其他的事情——我们有多严格，或者他们是否有家务表，或者我们是否让他们参加了幼儿瑜伽——与他们的结果没有太大关系。*
 

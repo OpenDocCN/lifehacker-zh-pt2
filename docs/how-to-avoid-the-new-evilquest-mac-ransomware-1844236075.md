@@ -4,7 +4,7 @@
 
 当你开始下载时，最新的 Mac 恶意软件之一是一种破坏性的勒索软件，称为“EvilQuest”。
 
-Watch
+
 
 好消息是什么？现在它主要是通过盗版的 Mac 软件传播，所以如果你不做偷窃程序的事情，你现在就不用担心了。 [Malwarebytes 说](https://blog.malwarebytes.com/mac/2020/06/new-mac-ransomware-spreading-through-piracy/) 该勒索病毒存在于至少两个不同 app 的假冒安装程序中: [小飞贼](https://obdev.at/products/littlesnitch/index.html) 和 [混在 Key 8](https://mixedinkey.com/) 。Malwarebytes 还发现了一个伪造的 [Ableton Live](https://www.ableton.com/en/) 安装程序的证据，并且其他人也可能存在。
 

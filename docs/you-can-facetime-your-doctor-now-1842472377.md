@@ -4,7 +4,7 @@
 
 无论你是否感到不舒服，呆在家里是你能做的最好的事情 来阻止新冠肺炎的传播——这使得现在寻求医疗护理成为一个复杂的提议。令人欣慰的是，各地的医疗服务提供者为他们的病人提供虚拟就诊变得更加容易，所以你不用走出家门就可以看到医生。
 
-Watch
+
 
 上周，医疗保险和医疗补助服务中心(CMS)和卫生与公众服务部(HHS)宣布了两项措施，以扩大全国患者的远程医疗服务。截至 2020 年 3 月 6 日， [医疗服务提供者可以为其所有的医疗保险和医疗补助患者](https://www.cms.gov/newsroom/fact-sheets/medicare-telemedicine-health-care-provider-fact-sheet) 提供远程医疗访问，无论他们在哪里，仍然可以获得费用报销。(以前，只有某些农村地区的患者才有资格。)并且，在另行通知之前，HHS 民权办公室(OCR) [已决定不对远程医疗服务违反 HIPAA 规则的行为实施制裁](https://www.hhs.gov/hipaa/for-professionals/special-topics/emergency-preparedness/notification-enforcement-discretion-telehealth/index.html) 。换句话说，在新冠肺炎公共卫生紧急状态期间，医疗保健提供者可以在任何地方通过视频聊天与任何患者交流，而不会因为不遵守 HIPAA 而受到指责。
 

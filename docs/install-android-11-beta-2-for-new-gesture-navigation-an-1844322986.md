@@ -4,7 +4,7 @@
 
 Android 11 beta 2 来了。这意味着我们离发布预览版只有一个测试版了，也就是所谓的“如果你想在尽可能稳定的环境中尝试新特性，你想要得到的测试版。”从那里开始，它就到了 Android 11 最终版本。如此接近！
 
-Watch
+
 
 如果你之前已经在 Android 11 测试版的早期阶段 [为自己](https://lifehacker.com/four-ways-to-install-the-new-android-11-public-beta-1843983079) 注册了，我强烈建议你今天检查一下你设备的系统更新设置。(如果你想在今天的测试中迈出第一步，很容易 [设置](https://www.google.com/android/beta) ！)
 

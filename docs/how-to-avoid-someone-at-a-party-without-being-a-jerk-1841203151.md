@@ -4,7 +4,7 @@
 
 你正在参加一个聚会，这时一个你无法忍受的熟人走进来。*狗屁*，你以为。我一定要打招呼吗？我能假装没看见他们吗？我在几楼，我能从窗户逃出去吗，毫发无伤？
 
-Watch
+
 
 结束于 [the Cut](https://www.thecut.com/2020/01/this-is-the-best-way-to-avoid-someone-at-a-party.html) ，作家 [Hannah Gold](https://www.thecut.com/author/hannah-gold/) 当你想要拼命避开某人而不显得像个 total dick 的时候，它拥有所有黑客的技巧。承蒙最新一季*抑制你的热情*，它被称为“大好事再见。”这里是黄金:
 

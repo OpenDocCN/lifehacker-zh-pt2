@@ -4,7 +4,7 @@
 
 还记得 PowerToys 吗？它们是 Windows 95 和 Windows XP 时代的实用程序，为您提供了超出“普通”Windows 用户在其操作系统中所能做到的功能，如:直接打开命令提示符*到文件夹(而不是必须“CD”到文件夹)，通过快速右键上下文菜单更改屏幕分辨率，以及 good ol' [XMouse](https://socket3.wordpress.com/2016/10/22/using-windows-95-powertoys/) 。*
 
-Watch
+
 
 好了，PowerToys 回来了——微软正在为现代版本的 Windows 开源一套新的实用程序。虽然该公司迄今只推出了两款，但我肯定会将 [PowerToys GitHub](https://github.com/Microsoft/PowerToys) 列为书签。这是因为该公司计划在今年夏天发布这些实用程序——它们一出来我就想玩玩——也因为微软在它的构建列表上有一堆其他的想法。
 

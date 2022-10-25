@@ -4,7 +4,7 @@
 
 本周，谷歌宣布其游戏流媒体平台 Stadia 将于 11 月 19 日推出 [。因此，是时候坐下来想想你是否真的想在 Stadia 的发布日买入股票了。](https://lifehacker.com/everything-from-todays-google-event-that-actually-matte-1839057732)
 
-Watch
+
 
 虽然在任何 PC、手机、电视或其他设备上玩游戏的想法听起来像是梦想成真，但 Stadia 的承诺有许多警告，包括你需要购买 Stadia 创始人的 [包](https://store.google.com/product/stadia) 才能在你的电视上使用它(如果你不打算传输到 PC)。有鉴于此，我认为可以公平地说，现在决定购买 Stadia 和决定是否购买 Founder's Pack 基本上是同一个问题。
 

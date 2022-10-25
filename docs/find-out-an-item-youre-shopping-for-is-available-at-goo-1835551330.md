@@ -4,7 +4,7 @@
 
 有时候你想拥有一件新的物品，而不是一件二手的。然而，在很多地方，旧版本和买新的一样好。善意购物 [是一个 Chrome 扩展](https://chrome.google.com/webstore/detail/goodwill-shopping/aanipnjhkfafeiepkmdjlfcflhjapnee?hl=en) 帮助你找到他们。
 
-Watch
+
 
 Chrome 扩展关注你在沃尔玛、亚马逊和 Jet 等热门网站上购买的商品，并让你知道你正在寻找的商品何时可以在以更低的价格出售。
 

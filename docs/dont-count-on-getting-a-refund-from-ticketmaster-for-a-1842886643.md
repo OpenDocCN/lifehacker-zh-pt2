@@ -4,7 +4,7 @@
 
 ticket master[澄清了因新冠肺炎而取消或推迟的活动的退款政策](https://help.ticketmaster.com/s/article/Purchase-Policy?language=en_US) ，这对已经购买了即将到来的活动门票的人来说可能是个坏消息。
 
-Watch
+
 
 纽约时报 分享的 [图片显示，Ticketmaster 之前的政策规定,有资格获得退款,“如果您的活动延期、改期或取消”现在，该页面已被编辑，说明“如果您的活动被取消，退款是可用的。”这意味着如果主办场地只是将它推迟到不确定的未来，而不是彻底取消它，你可能无法收回你的钱。](https://www.nytimes.com/2020/04/08/arts/music/ticketmaster-refunds-coronavirus.html)
 

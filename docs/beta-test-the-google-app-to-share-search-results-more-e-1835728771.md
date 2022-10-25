@@ -4,7 +4,7 @@
 
 Android: 你通常如何与朋友分享谷歌的搜索结果？我承认，我从来没有把搜索结果页面的巨大网址复制粘贴给任何人；我通常只是用美味被动攻击的“[”](https://lmgtfy.com/)”来帮助他们摆脱困境。也许我是个混蛋。
 
-Watch
+
 
 然而，我现在有理由不那么刻薄了，因为谷歌正在测试 Android 版本的 [谷歌应用](https://play.google.com/store/apps/details?id=com.google.android.googlequicksearchbox&hl=en_US) 中搜索结果的专用分享按钮。不能保证这个功能最终会公开发布，但是我想不出为什么谷歌*不想让人们更容易分享它的搜索结果。这对谷歌*和*的用户都有帮助。*
 

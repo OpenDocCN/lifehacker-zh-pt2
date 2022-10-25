@@ -4,7 +4,7 @@
 
 你的车可能看起来像一个私人世界，在那里你可以放屁，与家人争吵，或者抱怨在免下车窗口的等待；实际上，每个戴着耳机的人都能听到你的声音。
 
-Watch
+
 
 根据人们点餐时大喊大叫的程度，与说话者交流似乎很困难，但倾听者可能比你意识到的要多得多。redditor[u/筛糠拉尔夫](https://www.reddit.com/user/wreckinitralph) [在 r/LifeProTips 上发布了这条警告](https://www.reddit.com/r/LifeProTips/comments/b088fw/lpt_when_youre_sitting_at_a_drivethru_speaker_we/):
 

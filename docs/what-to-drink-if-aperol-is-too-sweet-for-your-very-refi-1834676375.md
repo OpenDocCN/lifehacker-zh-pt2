@@ -4,7 +4,7 @@
 
 如果你参与了最近关于某种夏季饮料的讨论——或者我们应该说“[spritz course](https://twitter.com/yatinbrooklyn/status/1126864721918005250)”——你现在知道有些人不喜欢 [这种开胃酒 spritz](https://www.nytimes.com/2019/05/09/dining/drinks/aperol-spritz.html) ，并觉得它“像大热天足球练习后的卡布里太阳”，但“不是以一种好的方式”
 
-Watch
+
 
 虽然将甜的、便宜的普罗塞克和已经很甜的利口酒搭配会导致令人作呕的、不那么提神的饮料，但如果混合得当，开胃酒也可以令人愉快。还有，有些人就是喜欢甜的东西，也没关系。
 

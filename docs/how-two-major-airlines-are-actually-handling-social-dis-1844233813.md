@@ -4,7 +4,7 @@
 
 当旅行开始慢慢开放时，航空公司证实他们将采取社交距离措施:取消中间座位分配，不要让飞机满员。然而，联合航空公司和美国航空公司现在都选择退出，并取消了航班上的社交距离措施，使航班满员——包括中间座位。
 
-Watch
+
 
 从今天开始， [美国航空公司将解除其容量限制](https://www.forbes.com/sites/rachelsandler/2020/06/27/american-airlines-ditches-social-distancing-will-book-planes-at-full-capacity/#f68e5b23b9ad) ，尽管他们将允许乘客选择换到一个开放的座位，如果有空位的话。美联航的[是跟风](https://www.forbes.com/sites/brucelee/2020/06/28/american-united-airlines-will-go-back-to-packing-flights-despite-covid-19-coronavirus/#17c97b5c3f30)的。
 

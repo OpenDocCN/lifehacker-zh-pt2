@@ -4,7 +4,7 @@
 
 如果你仍然害怕调味味精让你头疼，你应该知道你已经相信了一个几十年的神话。不要绝望！现在你知道了真相，你可以去你最喜欢的使用味精的餐馆吃一顿庆祝，或者犒劳自己一瓶可爱的熊猫形状的 。
 
-Watch
+
 
 味精的恐慌始于 1968 年写给《新英格兰医学杂志》的一封信，在信中，一位居住在美国的中国研究人员说，他在某些中国餐馆吃饭后感到脖子和手臂麻木，但不是在吃了家常菜后。他认为，这可能与料酒有关，或者更有可能是酱油和味精中含有大量的钠。在病房后不久，医生 [和其他所有人](https://books.google.com/ngrams/graph?content=%22Chinese+restaurant+syndrome%22&year_start=1800&year_end=2018&corpus=15&smoothing=3&share=&direct_url=t1%3B%2C%22%20Chinese%20restaurant%20syndrome%20%22%3B%2Cc0) 都在谈论一种“中国餐馆综合症”，并将其归咎于味精。
 

@@ -4,7 +4,7 @@
 
 这是你的年度提醒，你必须在 4 月 15 日之前向个人退休账户缴款，以潜在地降低你 2018 年的税单。
 
-Watch
+
 
 2018 年个人退休帐户(传统和罗斯)的缴费限额为 50 岁以下的 5500 美元，50 岁及以上的 6500 美元。([2019](https://twocents.lifehacker.com/these-are-the-new-401-k-and-ira-contribution-limits-fo-1830175445)多了 500 美元。假设你有收入且年龄不超过 70 岁半，向传统个人退休帐户缴款会降低你的应税收入。以 [杂色傻子笔记](https://www.fool.com/retirement/2019/02/04/how-funding-an-ira-right-now-might-boost-your-2019.aspx) 为例:
 

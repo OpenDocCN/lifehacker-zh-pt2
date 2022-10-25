@@ -4,7 +4,7 @@
 
 整个坚果的卡路里比之前认为的要少。几年来，研究证实了这一事实，但现在食品标签开始改变。例如， [一种以前是 200 卡路里的酒吧，现在将被标注为含有 180 卡路里的](https://www.prnewswire.com/news-releases/kind-nut-bars-have-nearly-20-less-calories-according-to-new-usda-research-300985956.html?tc=eml_cleartime) 。
 
-Watch
+
 
 KIND 通过电子邮件告诉我，他们认为他们是第一个调整标签的零食品牌。大多数品牌从美国农业部数据库 中提取卡路里数据，该数据库尚未更新，但卡路里减少背后的科学是公认的。
 

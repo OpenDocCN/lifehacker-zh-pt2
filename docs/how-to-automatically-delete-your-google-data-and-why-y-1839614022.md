@@ -4,7 +4,7 @@
 
 谷歌收集了大量数据，这些数据被用于在 Google Play 和 YouTube 等服务上策划内容推荐，以及基于你的活动向你投放市场广告。
 
-Watch
+
 
 我们已经谈了很多次这种做法，但是谷歌的功劳在于，该公司让用户对其收集的 数据的 [最终命运拥有更大的控制权。这包括定期重复删除这些数据的能力。我们过去已经报道过一些，但是根据最近对谷歌隐私选项](https://lifehacker.com/how-to-tell-google-what-to-do-with-your-data-when-you-d-1839213076) 的一些 [更新，我们将向你展示如何在尽可能多的谷歌服务中自动删除你的数据。](https://lifehacker.com/how-to-find-and-use-googles-brand-new-privacy-tools-1838712525) 
 

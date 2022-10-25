@@ -4,7 +4,7 @@
 
 从现在到 1 月 7 日，堡垒之夜将在盛大的 [冬季节活动](https://www.epicgames.com/fortnite/en-US/news/winterfest-2019-begins) 期间向所有玩家赠送 14 张免费角色皮肤和其他游戏物品。
 
-Watch
+
 
 登录游戏后，玩家可以访问季节性的游戏内小屋,每天从游戏的胡桃夹子主题人物 Crackshot 那里获得一件免费物品。你可以在地图的雪域中找到他的小屋，就在 Frosty Flights 的北面。
 

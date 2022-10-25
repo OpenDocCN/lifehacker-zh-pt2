@@ -4,7 +4,7 @@
 
 一些受欢迎的 YouTubers 用户主要是儿童，他们正受到批评，因为他们与一个网站合作并推广该网站，该网站通过花钱打开一个数字“神秘盒子”来引诱用户赌博。
 
-Watch
+
 
 [杰克·保罗](https://www.youtube.com/channel/UCcgVECVN4OKV6DH1jLkqmcA)(1770 万订户)和布莱恩" [RiceGum](https://www.youtube.com/user/RiceGum) "乐(1070 万订户)都在最近推广[【MysteryBrand.net](https://mysterybrand.net/en)，一个客户付费打开网上“盒子”的网站，里面有各种预选的潜在商品。批评者说，这充其量相当于赌博，最糟糕的是一个骗局。
 

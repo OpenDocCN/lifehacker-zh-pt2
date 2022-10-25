@@ -4,7 +4,7 @@
 
 去年，杰夫·达西 [分享了他在酒店房间里用衣架遮挡阳光的方法，震惊了互联网的集体思维](https://lifehacker.com/clip-your-hotel-curtains-shut-with-a-closet-hanger-1825597305) 。
 
-Watch
+
 
 过去的一周，GV [的高级运营合伙人里克·克劳(Rick Klau)再次在推特上发布了黑客攻击](https://twitter.com/rklau/status/1179965234624286721?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1179965234624286721&ref_url=https%3A%2F%2Fwww.washingtonpost.com%2Ftravel%2Ftips%2Fguy-tweeted-an-ingenious-hotel-room-hack-twitter-responded-with-their-own%2F) ，感谢达西的建议(尽管他忘记了是达西发布了最初的病毒推特)。这一举动促使许多人分享他们自己的旅行秘诀。
 

@@ -4,7 +4,7 @@
 
 亚马逊标准版 Kindle 和 Kindle Paperwhite 电子书阅读器的最新型号以几个月来的最低价格出售。你可以花 60 美元 (通常为 90 美元)买到基本的 4 [GB Kindle 型号，而](https://www.amazon.com/dp/B07DLPWYB7/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-kindle-and-kindle-paperwhite-are-on-sale-at-steep-d-1842029612&asc_source=&tag=kinjalifehackerlink-20)[8GB Kindle paper white](https://www.amazon.com/gp/product/B07CXG6C9W/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-kindle-and-kindle-paperwhite-are-on-sale-at-steep-d-1842029612&asc_source=&tag=kinjalifehackerlink-20&th=1)售价 85 美元(通常为 130 美元)。还有一款 [32GB Paperwhite 型号](https://www.amazon.com/gp/product/B07PPXZYWQ/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-kindle-and-kindle-paperwhite-are-on-sale-at-steep-d-1842029612&asc_source=&tag=kinjalifehackerlink-20) 售价 110 美元(正常情况下 160 美元)。
 
-Watch
+
 
 客户还将获得 20 美元的信用，用于在 KINDLE 电子书商店消费，以及通过使用“KINDLE2020”促销代码购买 Paperwhite(不幸的是，不适用于标准的 Kindle 购买)。
 

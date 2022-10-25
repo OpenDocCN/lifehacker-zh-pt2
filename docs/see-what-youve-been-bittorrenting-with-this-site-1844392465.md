@@ -4,7 +4,7 @@
 
 无论你和你的室友对 BitTorrent 完全陌生，或者你已经下载了足够多的 Linux 发行版、公共领域电影和 [音乐会录音](http://bt.etree.org/) 让你的 ISP 对你的每月数据上限非常感兴趣，有一个很好的工具你应该用来检查你的 BitTorrent 活动实际上有多公开。
 
-Watch
+
 
 为什么这很重要？当然是隐私。没有理由把你的 IP 地址或任何其他可识别的信息与你的下载和上传联系起来。除了你自己，没有人需要知道你对什么感兴趣，这就是为什么*强烈建议*无论何时使用 BitTorrent 下载和上传文件，至少要使用安全可靠的 VPN。(使用 [种子盒](https://lifehacker.com/how-to-completely-anonymize-your-bittorrent-traffic-wit-5863380) 通过 BitTorrent 下载文件的高级方法更好，然后*你*通过一个私人的安全连接下载文件。)
 

@@ -4,7 +4,7 @@
 
 从 8 月 5 日开始，威瑞森正在 [推出新一批“不限量”计划。](https://www.verizon.com/about/news/verizon-customers-get-more-plans) 但是在看到公司新品的名字和它们所包含的内容后，我感觉就像《公主新娘》 中的 [伊尼戈·蒙托亚:“你一直在用那个词。我不认为它意味着你认为它意味着什么。”](https://youtu.be/dTRKCXC0JFg?t=8)
 
-Watch
+
 
 威瑞森的新电话计划阵容包括四个“无限”套餐，可以根据你的需要混合搭配每月 70 美元起，一条线，以及该公司上个月宣布的 Just Kids 计划[。](https://www.verizonwireless.com/solutions-and-services/just-kids/)
 

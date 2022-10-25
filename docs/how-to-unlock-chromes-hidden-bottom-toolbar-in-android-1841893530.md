@@ -4,7 +4,7 @@
 
 大多数移动网络浏览器都将地址栏和用户界面控件放在屏幕顶部，但当使用大屏幕或有某些可访问性限制的设备时，这种布局并不理想。一些浏览器——特别是 [Firefox Preview](https://lifehacker.com/everything-you-need-to-know-about-firefox-preview-on-an-1835950429) 和[Vivaldi mobile](https://lifehacker.com/how-vivaldis-new-android-browser-stacks-up-against-the-1837991187)——有易于访问的底部屏幕用户界面，使应用程序更容易用拇指管理，但你可能会惊讶地听到在 Android 上 Chrome 的实验性设置中隐藏了类似的底部屏幕菜单选项。
 
-Watch
+
 
 该功能是 Chrome 重新设计的“Duet”的一部分，希望在未来更容易启用，但目前，Chrome 用户可以通过编辑应用程序的标志来打开隐藏菜单。
 

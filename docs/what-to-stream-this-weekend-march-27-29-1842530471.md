@@ -6,7 +6,7 @@
 
 昨天 [我们告诉你如何在家时免费参加烹饪学校](https://lifehacker.com/what-to-stream-tonight-march-26-2020-1842511375) ，如何下载两张新的九寸钉乐队专辑，以及如何用 DJ D-Nice 的新 Spotify 播放列表开始一场私人舞会。
 
-Watch
+
 
 今天，我们采购了一套全新的东西，让你在这个周末远离现实的时候保持忙碌。
 

@@ -4,7 +4,7 @@
 
 第二代像素芽是 [最后这里是](https://store.google.com/us/config/pixel_buds) 。虽然大多数人仍然需要等待他们的订单从谷歌的在线商店出现——因为，你知道，大多数实体店目前都关闭了——你可以通过下载刚刚推出的 Pixel Buds 应用程序来为他们做准备。
 
-Watch
+
 
 新的谷歌 Pixel Buds 应用程序 [出现在谷歌 Play 商店](https://play.google.com/store/apps/details?id=com.google.android.apps.wearables.maestro.companion) 上，在 Pixel Bud 2 本周发布之前完全没有宣布，一些 Pixel 用户报告说它会自动出现在他们的设备上。(事实上，您可以在蓝牙音频设置中直接找到它的功能。)
 

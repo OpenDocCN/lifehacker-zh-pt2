@@ -4,7 +4,7 @@
 
 信用评分通常由贷款和信用卡的使用情况决定。但是，几乎每个人每个月都要支付的账单，比如水电费，只有当这些账单被收账时，才会出现在你的信用报告上。这种结构排除了很多不使用信贷产品的人，无论是出于选择还是出于需要。
 
-Watch
+
 
 加利福尼亚州参议员卡玛拉·哈里斯是我们众多民主党总统候选人之一， [在上周末的 Essence Festival 期间宣布了一项计划](https://www.marketwatch.com/story/kamala-harris-says-credit-scores-should-include-rent-cell-phones-and-utilities-2019-07-09?mod=MW_home_top_stories) 更新公平信用报告法案，以包括更多类型的支付。她提议的变革遇到了热情和怀疑的混合。你需要知道的是:
 

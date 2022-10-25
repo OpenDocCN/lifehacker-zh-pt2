@@ -4,7 +4,7 @@
 
 我热爱太空。我对人类更多地探索太空感到非常兴奋，我甚至可以接受我们 [重返月球](https://gizmodo.com/we-must-go-to-the-moon-and-bring-back-our-piss-1833660539?_ga=2.147111543.1776964966.1557490742-2075852810.1537814466) 作为开始。太空是一个等待科学发现的广阔领域；一个让我们 [探索宇宙奥秘](https://gizmodo.com/tag/astrophysics)[了解自己](https://io9.gizmodo.com/a-psychological-transformation-that-only-astronauts-exp-1655217228) 的机会。
 
-Watch
+
 
 空间不是也永远不会是拯救我们这个物种的关键。
 

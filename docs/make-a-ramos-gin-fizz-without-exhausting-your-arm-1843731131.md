@@ -4,7 +4,7 @@
 
 似乎有两种相反的隔离状态:极度懒惰和令人讨厌的多产。在大多数情况下，我属于第一类；我喜欢买面包而不是烤面包，喜欢喝酒而不是调马提尼酒。但是最近我决定我想要一个项目，一个挑战，一些让我全身心地投入的事情。这就是为什么我在一个星期三的下午喝了三杯拉莫斯杜松子酒。
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Make a Ramos Gin Fizz Without Exhausting Your Arm](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/sometimes-the-best-cocktail-is-a-glass-of-wine-1843000952)</aside>
 

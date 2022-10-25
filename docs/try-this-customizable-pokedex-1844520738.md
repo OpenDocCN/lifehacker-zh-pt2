@@ -4,7 +4,7 @@
 
 尽管你可能很想知道，但你不可能掌握目前存在的近 900 个神奇宝贝的所有数据。有时你需要快速查找一个统计数据，有时你想让自己沉浸在一堆能力和弱点中。无论哪种方式，每个神奇宝贝粉丝都必须快速方便地获得神奇宝贝。
 
-Watch
+
 
 但是任何旧的魔法都不行。前 Lifehacker 专栏作家亚当·达奇斯(Adam Dachis)认为，人们可能想要自己的*可定制* Pokédex，他没有错。当然，你可以在 [官方 Pokédex](https://www.pokemon.com/us/pokedex) 上查找任何你想要的神奇宝贝，但是你能控制体验的外观和感觉吗？不，你没有。我们应该得到更好的。于是达奇斯 [在 Airtable](https://airtable.com/universe/expBnjEvgt28vYKbG/the-airtable-pokedex) 上做了一个底座，任何人都可以复制定制。
 

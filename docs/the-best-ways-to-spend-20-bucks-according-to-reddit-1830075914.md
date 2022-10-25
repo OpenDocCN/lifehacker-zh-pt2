@@ -4,7 +4,7 @@
 
 "[20 美元以下你花过最划算的钱是什么？](https://www.reddit.com/r/AskReddit/comments/9s8jek/what_is_the_best_money_you_ever_spent_under_20/)”redditor Davy _ do 问道。里面有一些有趣的故事，但我们只收集了你可以应用到自己生活中的回复。
 
-Watch
+
 
 *   cascadegaming 说，给你的眼镜打蜡。“因为它是一种蜡，而不是喷雾，所以它有助于填补镜片上的小划痕。”Meatchris 链接 [Smitty 的保护玻璃蜡](https://smittysglasswax.com/) ，不过你也可以用 [车蜡或者小苏打](https://lifehacker.com/how-can-i-revive-an-old-beaten-up-pair-of-glasses-499894449) 。
 

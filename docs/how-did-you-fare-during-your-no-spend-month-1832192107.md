@@ -4,7 +4,7 @@
 
 一月即将过去，我们的 [无消费月也随之结束](https://twocents.lifehacker.com/a-new-years-resolution-that-will-actually-improve-your-1831321233) 。你表现如何？
 
-Watch
+
 
 就我个人而言，我实现了我的首要目标:我没有买新衣服或书。后者比前者更难抗拒——现在有很多好书，我还在赶年终“最佳”书目。我没有买它们，而是把它们添加到一个列表中，这本身就令人满意。
 

@@ -4,7 +4,7 @@
 
 Quibi 的 [对短格式内容](https://lifehacker.com/everything-you-need-to-know-about-quibi-1842710665) 的新颖方法旨在将与网飞、YouTube 和 Hulu 等区别开来，但它的开始有点艰难；事实证明，没有人通勤的时候是 [*而不是*推出适合通勤的移动流媒体平台](https://www.nytimes.com/2020/05/11/business/media/jeffrey-katzenberg-quibi-coronavirus.html) 的时候。即使你被这个概念和内容深深吸引，然而知道如何取消你的 Quibi 订阅也许有一天会派上用场。
 
-Watch
+
 
 即使你不想退出 Quibli，你可能也需要知道如何取消: 你的订阅是通过与你第一次使用的设备绑定的苹果或安卓账户支付的。如果您决定从团队 iOS 切换到团队 Android ，或者反之亦然，您将需要取消订阅并重新订阅，以避免任何计费问题。而那个建议 [来自于 Quibi 本身](https://help.quibi.com/hc/en-us/articles/360041411152-What-happens-if-I-switch-between-Apple-and-Android-)；是的，很奇怪。
 

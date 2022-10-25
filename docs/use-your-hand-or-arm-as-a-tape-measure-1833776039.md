@@ -4,7 +4,7 @@
 
 有时候，当你出门在外，你会发现有一把卷尺真的很有帮助。
 
-Watch
+
 
 你可以像我妈妈一样，她在包里带着一把柔软轻便的卷尺 [，就像这个](https://www.amazon.com/eBoot-Measure-Sewing-Tailor-Cloth/dp/B01D9RCHDI/ref=sr_1_1_sspa?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/use-your-hand-or-arm-as-a-tape-measure-1833776039&asc_source=&keywords=soft tape measure&psc=1&qid=1554305068&s=gateway&sr=8-1-spons&tag=kinjalifehackerlink-20) ，每当她需要测量一个随机的壁挂式或户外椅垫时，就拿出来。或者你可以像 [Reddit 用户 u/buttpucked](https://www.reddit.com/r/LifeProTips/comments/b8np8m/lpt_for_quick_reference_in_the_future_find_and/)(我们不会基于用户名进行歧视)那样尝试一下:
 

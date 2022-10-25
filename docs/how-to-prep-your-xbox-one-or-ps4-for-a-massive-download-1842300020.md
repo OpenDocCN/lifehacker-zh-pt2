@@ -4,7 +4,7 @@
 
 如果你今天玩视频游戏，你对大量下载并不陌生。*红色死亡救赎 2* 是 [90 GB](https://store.playstation.com/en-us/product/UP1004-CUSA03041_00-REDEMPTION000002) ，更新和附加组件之前。*光环:主总集*目前时钟为 [115 GB](https://www.microsoft.com/en-us/p/halo-the-master-chief-collection/9mt8ptgvhx2p?activetab=pivot:overviewtab) 。当然，*命运 2* 的基本游戏可能只有 31 GB，但是如果你想要所有的资料片——这是最大限度地玩游戏所必需的——你需要为射击和抢劫的 105 GB 腾出空间。
 
-Watch
+
 
 与财富不平等的持续增长不同，游戏每年都在变大，但硬盘却跟不上。没有人能说即将上映的大片会有多大，比如《对马岛的幽灵》、《T2》、《漫步者》、《T4》、《赛博朋克 2077》、《T5》，但可以肯定的是，它们的容量会在 40 GB 左右，抱歉，是时候把硬盘上的东西都清空了。
 

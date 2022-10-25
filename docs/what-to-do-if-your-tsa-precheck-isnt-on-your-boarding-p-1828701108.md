@@ -4,7 +4,7 @@
 
 如果你是一个经常旅行的人，还没有得到 TSA 的预检，你还在等什么？TSA PreCheck，特别是 TSA PreCheck 的全球准入，一直是我做过的最好的投资之一。即使预检队伍越来越长，我还是很感激能排在(大部分)理解机场安检程序的队伍中，不用脱鞋或从包里拿出电子产品。
 
-Watch
+
 
 然而，有时悲剧发生了，特殊的“TSA Pre”标志不会出现在您的登机牌上。 [这个分家伙围捕了](https://thepointsguy.com/news/what-to-do-if-a-boarding-pass-isnt-marked-tsa-precheck/) 可能发生这种情况的一些原因，以及你能做些什么。
 

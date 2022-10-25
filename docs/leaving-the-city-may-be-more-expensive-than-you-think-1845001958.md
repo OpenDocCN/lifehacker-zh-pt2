@@ -4,7 +4,7 @@
 
 3 月以来，不断有[报道](https://www.wsj.com/articles/remote-work-is-reshaping-san-francisco-as-tech-workers-flee-and-rents-fall-11597413602) 的疫情式招式。正如美国消费者新闻与商业频道报道的那样，随着人们从城市搬到有更多隐私和空间在家工作的家中，我们可能正处于“大洗牌”的边缘。虽然搬到郊区可能很有吸引力——尤其是在疫情——但它的成本可能比你想象的要高。
 
-Watch
+
 
 ### 关注所得税
 

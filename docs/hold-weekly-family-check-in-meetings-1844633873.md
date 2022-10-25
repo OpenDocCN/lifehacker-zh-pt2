@@ -4,7 +4,7 @@
 
 你可能已经在工作中做了类似的事情:每周一次，即使你和你的同事几乎一直在交流，整个团队坐下来(最近可能是通过视频聊天)对事情的进展进行简要概述。这些会议遵循一定的脚本，来自不同部门的更新，或者可能是讨论正在进行的项目的更随意的聚会。这样的会议可能很重要，即使你整天都在用其他方式交流，因为这是一个喘息的时刻，面对面地虚拟地看着对方，谈论事情进展如何。家庭也可以这样做。
 
-Watch
+
 
 这个想法源于 Jeff Sutherland，他在 20 世纪 80 年代为一家金融公司设计了一个新的工作流系统。萨瑟兰注意到，自上而下的过于雄心勃勃的命令导致项目延期、超出预算或者完全失败。布鲁斯·费勒著有《幸福家庭的秘密》[](https://www.amazon.com/Secrets-Happy-Families-Improve-Mornings/dp/0061778745?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/hold-weekly-family-check-in-meetings-1844633873&asc_source=&tag=kinjalifehackerlink-20)**为《哈佛商业评论》撰稿:**
 

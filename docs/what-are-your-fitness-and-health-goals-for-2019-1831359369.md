@@ -4,7 +4,7 @@
 
 你们所有人都 [震撼了 2018](https://lifehacker.com/the-most-inspiring-2018-fitness-accomplishments-from-ou-1831242234) ，所以我迫不及待地想听听接下来会发生什么。你要多跑步吗？多抬抬？吃得更好？
 
-Watch
+
 
 我喜欢把一年的目标想象成一个的全年计划。今年春天，夏天，秋天你会做什么？当 12 月再次到来时，你希望自己有什么样的成就？
 

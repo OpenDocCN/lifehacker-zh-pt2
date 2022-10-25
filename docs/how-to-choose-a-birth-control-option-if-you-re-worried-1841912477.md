@@ -4,7 +4,7 @@
 
 选择避孕看起来很可怕，尤其是如果你担心更极端的副作用。你可能听说过关于使用宫内节育器的 [器官穿孔](https://www.health.com/condition/birth-control/iud-fell-out) 的风险的恐怖故事，或者声称节育与 [偏头痛](https://americanmigrainefoundation.org/resource-library/spotlight-on-oral-contraceptives-and-migraine/) 有关。然而，极端的副作用是罕见的，通常只有在你已经存在可能引发它们的情况下才会发生。
 
-Watch
+
 
 至于常见的副作用，好消息是，由于市场上有如此多的选择，很可能有一种避孕方式可以将你最担心的影响降至最低。坏消息是，没有精确的科学来预测某种节育措施会对任何一个人产生怎样的影响。
 

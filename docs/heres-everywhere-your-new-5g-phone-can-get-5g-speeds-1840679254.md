@@ -4,7 +4,7 @@
 
 尽管 5G 网络传播缓慢，大多数 5G 设备 相对 [表现平平，但大量早期采用者和好奇的客户正在加入 5G 宣传列车。如果你在这个假期获得了一个新的 5G 设备，你可能会想知道你到底可以在哪里使用它。](https://lifehacker.com/5g-phones-are-coming-soon-but-you-should-wait-to-buy-o-1831406561)
 
-Watch
+
 
 不幸的是，答案只存在于少数几个城市——至少目前如此。
 

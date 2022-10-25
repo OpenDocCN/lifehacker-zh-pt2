@@ -4,7 +4,7 @@
 
 随着这一年接近尾声，现在是让你的数字生活井然有序的好时机。从 [整理你的在线照片](https://lifehacker.com/organize-your-photos-with-this-windows-app-1830383368) 到用 [新的安全密码](https://lifehacker.com/how-to-create-secure-passwords-that-arent-impossible-to-1825048324) 刷新你的账户，或者最后 [清理你的浏览器书签](https://lifehacker.com/the-ultimate-guide-to-organizing-your-messy-chrome-book-1826770044)；在 2019 年热播之前，有很多问题需要你去解决。
 
-Watch
+
 
 你应该考虑的一件事——对于允许你这样做的服务——是建立一种在紧急情况下其他人访问你的账户的方法。我知道，我知道——我们在 Lifehacker 宣扬 [安全](https://lifehacker.com/use-your-password-manager-for-security-answers-too-1829498257) 高于一切，所以让*让*别人拥有你的数字王国的备份钥匙似乎是违反直觉的。
 

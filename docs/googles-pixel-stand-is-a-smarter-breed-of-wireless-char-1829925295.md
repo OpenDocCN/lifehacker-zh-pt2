@@ -4,7 +4,7 @@
 
 在一个技术日益复杂的世界，无线充电器是令人耳目一新的简单设备。拿起你的手机，把它放在垫子或架子上，然后走开。就是这样。现在无线充电基本上是大多数旗舰手机的标准功能，它很快成为保持手机电池充满电的首选方式。但是，如果你的无线充电器不需要电线或电缆，不仅仅可以激发电子，会怎么样呢？嗯，这正是谷歌试图用新的 [像素支架](https://store.google.com/us/product/pixel_stand?hl=en-US) 做的事情。
 
-Watch
+
 
 一开始，谷歌拿了一个 10 瓦的无线充电支架( [，比大多数无线充电器](https://gizmodo.com/we-tested-5-wireless-chargers-for-the-iphone-and-this-i-1821575429) 快一点)，然后它做了谷歌最擅长的事情:在一堆整洁的软件中编程。结果呢？当对接后，Pixel Stand 将 Pixel 3 转变为一个迷你智能扬声器加上 [家庭集线器](https://gizmodo.com/googles-home-hub-is-a-great-start-to-a-smarter-home-1829844478#_ga=2.2570425.80129596.1540211252-2135808592.1525885870) ，未来可能会更多。
 

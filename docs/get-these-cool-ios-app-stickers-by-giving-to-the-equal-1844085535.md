@@ -4,7 +4,7 @@
 
 由于新冠肺炎疫情，苹果的 WWDC 2020 大会将是一个远程、仅在线的活动。这个决定保证了参与者的安全，但它也有不利的一面——即 WWDC 的社交方面，开发者们聚在一起谈论商店，交换礼物，包括应用程序贴纸和别针。
 
-Watch
+
 
 鉴于今年只有数字的 WWDC，为了保持贴纸交易的传统，应用开发工作室团队 Nighthawk 与其他 90 多名应用开发者合作，创建了 [独立贴纸包](https://www.indiestickerpack.com/) 。你将获得代表 90 多个开发者应用的 100 多个贴纸。更好的是，所有的收益将被平均分配给 [平等正义倡议](https://eji.org/) 和世界卫生组织的 [新冠肺炎应对基金](https://www.who.int/emergencies/diseases/novel-coronavirus-2019/donate) 。
 

@@ -4,7 +4,7 @@
 
 拖延者们，注意了:今天是对 Equifax 数据泄露提起集体诉讼的最后期限。
 
-Watch
+
 
 如果你一直生活在岩石下——老实说，我们不会评判你——Equifax 在 2017 年宣布，1.47 亿人的个人和财务数据已经 [被泄露](https://twocents.lifehacker.com/surprise-the-equifax-hack-affected-millions-more-peopl-1823427395) 。
 

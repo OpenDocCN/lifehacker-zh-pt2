@@ -6,7 +6,7 @@
 
 这些情况在过去一年中变得更加糟糕，因为疫情 [进一步耗尽了](https://www.propublica.org/article/how-the-irs-was-gutted) 众所周知的人手不足的机构，该机构还在处理 [异常复杂的纳税年度](https://www.abc12.com/2021/01/19/income-tax-season-could-be-more-complicated-for-many-people/) 之后的大量询问，以及对 [改变儿童税收抵免(将看到每月](https://lifehacker.com/how-to-make-sure-you-get-your-monthly-child-tax-credit-1847055859) 付款)的潜在困惑。即便如此，有时候你只是*需要和一个人*谈谈。以下是如何快速联系到某人的方法。
 
-Watch
+
 
 ## 你要等多久才能和国税局的人通话？
 

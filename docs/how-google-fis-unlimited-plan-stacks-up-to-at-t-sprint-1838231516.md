@@ -5,7 +5,7 @@
 谷歌的移动服务 Google Fi 终于有了一个 [无限数据计划](https://fi.google.com/about/plans/) 。虽然以前定义 Fi 服务的滑动比例“灵活计划”仍然可用，但新的无限计划提供了更传统的定价结构，减少了数据节流，以及其他一些额外待遇。让我们来看看 Fi 的新无限计划，看看它与威瑞森、Sprint、T-Mobile 和 AT & T.
 的类似计划相比如何
 
-Watch
+
 
 ### Google Fi 的无限计划包括什么
 

@@ -4,7 +4,7 @@
 
 就像新冠肺炎疫情的几乎所有方面一样，关于有效的接触者追踪，我们还有很多不知道的。此时，联系人追踪应用程序必须收集您的大量信息，并与其他组织共享。这不是阴谋妄想症；收集和分享你的信息正是这些应用程序应该做的事情。问题是，很难确切知道这些公司是如何存储和使用这些数据的。
 
-Watch
+
 
 例如，Jumbo Privacy 最近发现北达科他州的新冠肺炎联系人追踪应用 Care19、 [与谷歌、Foursquare 和其他公司](https://blog.jumboprivacy.com/jumbo-privacy-review-north-dakota-s-contact-tracing-app.html) 共享用户数据。这与该应用程序最初的隐私政策直接冲突，该政策声称，未经用户同意，该应用程序不会共享数据。Care19 开发商 Proud Crowd 更新了隐私声明，以回应 Jumbo Security 的调查结果，但我们可能会看到更多类似的故事。
 

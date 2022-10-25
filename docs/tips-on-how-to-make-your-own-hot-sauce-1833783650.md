@@ -4,7 +4,7 @@
 
 [我爱辣酱](https://thetakeout.com/r-hotsauce-reddit-sweetest-spiciest-corner-hot-sauce-1832732480) 。我几乎每餐都用它:河粉、三明治、披萨、玉米片。正如埃塞尔在《T4》[弗兰克的红热广告](https://www.youtube.com/watch?v=pOXOb52dFXI) 中亲切地说的那样，“我把那玩意儿抹在所有东西上。”我冰箱里有十几瓶，每一瓶都有自己独特的味道和热量。
 
-Watch
+
 
 我也是一个狂热的家庭厨师。我今年的一个目标是做完整本烹饪书， [阿尔顿·布朗*日常烹饪烹饪书*](https://altonbrown.com/alton-brown-everydaycook-cookbook/) ，过去几年我甚至一直在为自己的家庭烹饪书编写食谱。但出于某种原因，我从未想过将我对辣酱和烹饪的热爱结合起来——制作自己的辣酱。可能我一直把它看成是商店买的调味品，而不是菜谱？谁知道呢。我想我应该尝试一下，看看我能把它搞得多糟。事实证明，这比我想象的要容易得多。
 

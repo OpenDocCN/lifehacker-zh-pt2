@@ -4,7 +4,7 @@
 
 尽管我已经是千禧年的长者，但我从来没有对鳄梨吐司着迷过。(至今 [我还租](https://twocents.lifehacker.com/how-to-afford-a-house-when-youre-spending-all-your-mone-1795231082) ！)很好——没什么*毛病——但我通常更喜欢用勺子直接从鳄梨坚韧的果皮中舀进嘴里。*
 
-Watch
+
 
 但是命运对我另有安排。作为最近多吃蔬菜、少去商店的努力的一部分，我最近注册了“不完美食品”,这是一个不错的小程序，可以让农产品(如果你喜欢，也可以是肉类和奶制品)送到你家门口。几周前，我发现我可以添加一管 [La 凯西亚的](https://laquercia.us/cuts_specialties_Nduja_Americana) 来补充我平时收集的水果和蔬菜。你最好相信是我加上去的。
 

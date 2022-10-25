@@ -4,7 +4,7 @@
 
 这是官方消息:下周就要交税了。回到三月份，政府 [将申报截止日期](https://twocents.lifehacker.com/tax-day-is-now-july-15-1842425809) 推到 7 月 15 日，财政部 [最近确认](https://www.irs.gov/newsroom/taxpayers-should-file-by-july-15-tax-deadline-automatic-extension-to-oct-15-available) 他们不会再动它了。如果你一直在拖延，现在是时候提交你的纳税申报表并支付你所欠的。
 
-Watch
+
 
 这也是你第二季度纳税的最后期限，因为疫情而改变。不过，你所在的州可能有不同的季度纳税截止日期。你可以通过 [税收管理员联合会](https://www.taxadmin.org/state-tax-agencies) 查询你所在州的税务代理网站。
 

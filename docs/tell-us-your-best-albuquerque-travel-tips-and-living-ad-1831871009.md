@@ -4,7 +4,7 @@
 
 Hack Your City 本周将前往新墨西哥的阿尔伯克基，如果我们花全部时间谈论这个城市一年一度的国际气球节，我们会很高兴。但是阿尔布开克不仅仅只有闪亮的糖果色热气球。你还能告诉我们关于参观和生活在这个城市的什么事情吗？在那里 [沃尔特·怀特把一个比萨饼扔在屋顶上](https://www.youtube.com/watch?v=RKAzfd8oTWs) ，在那里 [怪异的艾尔吃了一大碗酸菜](https://www.youtube.com/watch?v=JE37e1eK2mY) ，在那里 [兔八哥应该左转](https://www.youtube.com/watch?v=e8TUwHTfOOU) ？
 
-Watch
+
 
 有哪些被低估和意想不到的事？被高估景点的最佳替代方案有哪些？你喜欢那里最古怪、最疯狂或最书呆子的东西是什么？
 

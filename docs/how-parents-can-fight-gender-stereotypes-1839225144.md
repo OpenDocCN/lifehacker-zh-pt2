@@ -4,7 +4,7 @@
 
 父母有足够的理由反对传统的性别刻板印象。我们希望我们的女孩从事 STEM 职业，我们希望我们的男孩在表达悲伤或恐惧时感到舒适，我们也希望不要假设他们的外表性别是他们内在的性别认同。
 
-Watch
+
 
 但正如#MeToo 运动反复强调的那样，在我们的国家努力应对性暴力盛行的同时，还有另一个原因来积极避免坚持传统的性别刻板印象:到了青春期，这些刻板印象可能会开始助长性暴力。 [《华盛顿邮报》报道](https://www.washingtonpost.com/outlook/2019/09/17/stop-sexual-violence-we-need-change-how-we-engage-with-kids/?arc404=true) :
 

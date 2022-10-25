@@ -4,7 +4,7 @@
 
 在这个方便的直接存款时代，每次发薪日到来时，你会看你的工资单吗？你确信你工作的时间是你实际得到的报酬吗？
 
-Watch
+
 
 Reddit 用户 [最近，格兰芬多学院发布了这个建议](https://www.reddit.com/r/LifeProTips/comments/c04pq7/lpt_if_you_work_hourly_dont_trust_your_employer/) :“如果你是按小时工作的，不要相信你的雇主会自己记录你的工作时间。记录下每个工资周期你工作了多少小时，以确保你的工作时间得到了回报。”
 

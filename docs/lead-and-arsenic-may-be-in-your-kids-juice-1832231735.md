@@ -4,7 +4,7 @@
 
 现在我们又多了一个理由 [少喂孩子果汁](https://lifehacker.com/how-to-raise-a-healthy-vegan-kid-1828667417) 。根据一份新的报告 ，消费者报告发现超市货架上许多品牌的铅、砷和镉[。其中一些含量高到足以对每天只喝半杯的孩子造成伤害。](https://www.consumerreports.org/food-safety/arsenic-and-lead-are-in-your-fruit-juice-what-you-need-to-know/)
 
-Watch
+
 
 “我们的发现是对市场的抽查，不能用来得出关于品牌的明确结论，”《消费者报告》说。这是因为一个小样本(每种果汁三个)并不能告诉你一个品牌的金属含量是否总是比另一个高。不幸的是，CR 混淆了他们的信息，将一些品牌描述为比其他品牌“更好的替代品”，这是他们的研究*和他们自己的声明*所不支持的。底线是，根据这些结果更换品牌不一定能保护你。
 

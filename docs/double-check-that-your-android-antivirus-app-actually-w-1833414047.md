@@ -4,7 +4,7 @@
 
 [杀毒软件](https://lifehacker.com/the-best-antivirus-app-for-windows-5865356)的本意是让我们的设备免受恶意软件的侵害，但如果是杀毒应用本身出了问题，会发生什么呢？
 
-Watch
+
 
 最近来自 [AV-Comparatives](https://www.av-comparatives.org/tests/android-test-2019-250-apps/) 的一份报告发现，谷歌 Play 商店上多达 138 款安卓杀毒应用在杀毒检测方面表现不佳，它们甚至可能会给你的安卓设备带来严重的安全风险。
 

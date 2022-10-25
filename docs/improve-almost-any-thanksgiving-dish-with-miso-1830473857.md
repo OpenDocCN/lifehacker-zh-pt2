@@ -4,7 +4,7 @@
 
 有些人对感恩节大餐的口味很挑剔——他们想要经典的，他们想让他们品尝经典。当我建议在馅料中加入味噌时，那些人 [冲我](https://skillet.lifehacker.com/you-should-definitely-add-miso-to-your-thanksgiving-stu-1820053100) 大喊大叫，但我很固执，我会继续谈论味噌在几乎任何感恩节菜肴中都有多好。
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Improve Almost Any Thanksgiving Dish With Miso](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-make-a-delicious-thanksgiving-turkey-1830465631)</aside>
 

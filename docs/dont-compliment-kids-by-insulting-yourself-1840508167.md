@@ -4,7 +4,7 @@
 
 现在我们知道，当我们表扬孩子时，我们应该 [少关注天生的能力或智力](https://lifehacker.com/what-to-tell-kids-instead-of-youre-so-smart-1797303765) ，多关注努力。比如，“你做作业很努力！”相对于“你真聪明！”但是成年人有另一种称赞孩子的方式，我们也应该摒弃这种方式——通过与他们的能力比较来侮辱我们自己的能力。
 
-Watch
+
 
 在 Reddit 上， [用户 u/Luke_7 解释](https://www.reddit.com/r/LifeProTips/comments/ec20da/lpt_dont_put_yourself_down_in_order_to_compliment/) :
 

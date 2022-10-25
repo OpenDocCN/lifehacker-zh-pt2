@@ -4,7 +4,7 @@
 
 如果您在 Zoom 会议期间一直使用 gif 与其他人聊天，您可能会注意到该功能已经消失。
 
-Watch
+
 
 Zoom [在其聊天功能中暂时禁用了对 GIF 平台 Giphy](https://blog.zoom.us/wordpress/2020/05/22/restricted-screen-sharing-by-default-consent-for-unmuting-waiting-room-audio-alert/) 的集成。在一篇宣布这一举措的博客文章中，它说“为了确保对用户隐私的有力保护，我们暂时移除了 Zoom Chat 中的 Giphy 集成。一旦部署了额外的技术和安全措施，我们将重新启用该功能。”
 

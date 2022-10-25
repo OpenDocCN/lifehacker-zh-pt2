@@ -4,7 +4,7 @@
 
 Waffling carbs 几乎总是一个伟大的想法。毕竟，最初的华夫饼——你知道，用面糊制成的基于面粉的东西——是有史以来发明的最伟大的碳水化合物之一，所以毫不奇怪，其他基于小麦的食物会很好地适应这种烹饪方法。
 
-Watch
+
 
 剩余的通心粉是一个特别明显的例子，特别是当它是从 [烘焙](https://lifehacker.com/add-creme-fraiche-to-your-macaroni-and-cheese-1842241544) 食谱中剩下的时候。凝结的冷通心粉片和奶酪片进入华夫饼机，金黄、酥脆、热腾腾的奶酪结片就出来了。就像我们的 [帕玛森脆皮土豆泥](https://skillet.lifehacker.com/make-these-parm-crusted-waffles-with-leftover-mashed-po-1840055015) 一样，奶酪形成了一个精致、酥脆、带花边的外层，而内部则保持鲜嫩，形成了风味和质地的绝佳对比。
 

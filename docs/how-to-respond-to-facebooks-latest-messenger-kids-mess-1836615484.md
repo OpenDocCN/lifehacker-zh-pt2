@@ -4,7 +4,7 @@
 
 脸书的 [Messenger Kids](https://messengerkids.com/) 
 
-Watch
+
 
 根据来自[【The Verge】](https://www.theverge.com/2019/7/22/20706250/facebook-messenger-kids-bug-chat-app-unauthorized-adults)的一份报告，该问题影响了该服务上的群聊:孩子 A 可以邀请(批准)孩子 B 加入一个聊天群，但孩子 A 也可以邀请孩子 C、D、E 和 F 加入该群，即使*他们*在技术上无权通过正常的 Messenger Kids 批准流程与孩子 B 聊天。然后，孩子 B 可以和孩子 B 的父母不知道的人聊天(或者事先批准)。
 

@@ -6,7 +6,7 @@
 
 > 你对 Twitter 与其商业伙伴分享的信息的控制已经改变。具体来说，你控制移动应用广告测量的能力已经被删除，但你可以控制是否分享一些非公开数据，以改善 Twitter 在其他网站和应用上的营销活动。这些变化有助于 Twitter 继续作为一项免费服务运营，现在已经反映在你的设置中了。”
 
-Watch
+
 
 用简单的英语来说，这是什么意思？正如 Twitter 发言人 [向《广告周刊》的大卫·科恩](https://www.adweek.com/digital/twitter-changes-its-data-sharing-controls-for-mobile-app-ad-measurements/) 阐述的那样，用户隐私设置的改变只是 Twitter 新广告策略的一部分:
 

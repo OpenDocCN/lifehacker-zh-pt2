@@ -4,7 +4,7 @@
 
 说到减少浪费，有些习惯比其他习惯更难打破。以纸巾为例。 T 他们真是太方便了——但是这种方便是有代价的。
 
-Watch
+
 
 纸巾很少被回收，因为它们的 [低](https://livegreen.recyclebank.com/column/because-you-asked/when-should-i-compost-paper-instead-of-recycling-it)，不像报纸，仍然可以被回收成许多其他物品，包括 [鸡蛋盒](http://www.wm.com/thinkgreen/what-can-i-recycle.jsp) 和麦片盒。
 

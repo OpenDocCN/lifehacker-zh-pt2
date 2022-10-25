@@ -4,7 +4,7 @@
 
 我和妻子在纽约街头玩一种游戏。我认出了一个名人，她告诉我那绝对不是他们。如果不是因为她，我可能会在[r/not really faminous](https://www.reddit.com/r/notreallyfamous/)上结束，这是一个错误的名人目击的子分类。
 
-Watch
+
 
 这些帖子很可爱，因为人们很热情——他们认为，或者他们假装得很好，他们真的遇到了一个名人，尽管所有的证据都反对。(一篇好的 r/not really namely 帖子不仅仅是“嘿，这个普通人很像这个名人！”为此，去更受欢迎的 subreddit [沃尔玛名人](https://www.reddit.com/r/WalmartCelebrities/) 。)
 

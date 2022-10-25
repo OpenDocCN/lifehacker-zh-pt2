@@ -4,7 +4,7 @@
 
 众所周知，洋葱不是“奶油状的”光明？是的。尖酸？当然可以。痛苦？有时候。但不是奶油。然而，如果你把它们放在热烤箱里烤不到一个小时，它们就变成了那样——柔软、醇厚、完全像奶油一样。
 
-Watch
+
 
 这种素食奶油替代品(据我所知)是由 [ChefSteps](https://www.chefsteps.com/activities/tips-tricks-swap-cream-with-onion-puree-for-better-brighter-flavor) 带到这个世界上的——不是你想在咖啡中加入的那种奶油，但当它淋在汤里，用作无奶酱的基础，或者代替奶油加入砂锅时，它是非常棒的。它比全脂乳制品更清淡，但仍令人惊讶地厚重甘美。
 

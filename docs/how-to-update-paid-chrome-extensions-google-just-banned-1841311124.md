@@ -4,7 +4,7 @@
 
 我承认，我已经有一段时间没有碰到付费的谷歌扩展了。 [他们](https://chrome.google.com/webstore/detail/open-seo-statsformerly-pa/hbdkkfheckcdppiaiabobmennhijkknn?hl=en)[do](https://chrome.google.com/webstore/detail/timed-test-division-facts/mimjmfnekgfaepenmgcfdekeenpocmcg)[存在](https://chrome.google.com/webstore/detail/amazon-relay-auto-refresh/gooaddljkpdcjbdigogmajlcgifjjhgp) ，然而——还有一些其实是有用的，比如[stop themaness](https://chrome.google.com/webstore/detail/stopthemadness/gfdahjcdgfioalhekjflcpijhngbjgdo)(一个让网站无法禁用键盘快捷键或上下文菜单的扩展)。 如果你碰巧发现(并购买)了付费的 Chrome 扩展，你需要知道他们可能会在一段未知的时间内收不到更新。
 
-Watch
+
 
 这一点很重要，因为如果你已经付费，你可能想确保你的扩展的体验没有错误，并且尽可能的功能齐全。但是谷歌暂时禁止发布任何使用 Chrome 网上商店支付的 T2 Chrome 扩展。根据开发商倡导者 [Simeon Vincent](https://groups.google.com/a/chromium.org/forum/#!topic/chromium-extensions/EW0VuDjZSO4) 的帖子:
 

@@ -4,7 +4,7 @@
 
 当有害化学物质被倾倒在垃圾填埋场或水道中时，它对环境和我们的健康有很大的危害，这应该是不足为奇的。Ju st 上周，六个州起诉 [环保局](https://thehill.com/policy/energy-environment/456560-epa-sued-over-decision-to-allow-use-of-pesticide-tied-to-brain) 允许继续使用一种杀虫剂，这种杀虫剂会对人类产生严重影响——比如脑损伤。
 
-Watch
+
 
 但是这并不意味着某些化学物质，或者装它们的容器不能被回收。无论是空的、含有一些剩余残渣的还是半满的、、装有化学物质的瓶子都必须妥善处理，以免对环境或您的污水管道造成危害。
 

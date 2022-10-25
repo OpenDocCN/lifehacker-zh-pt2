@@ -4,7 +4,7 @@
 
 这是我作为 Lifehacker 特约撰稿人的最后一篇文章，所以我想给你一些元建议。当你想学习一项新技能时，不要只使用一本书，或应用程序，或 YouTube 教程。尝试很多，坚持其中的几个，偶尔咨询一下其他人。
 
-Watch
+
 
 在此期间，我参加了 [钢琴课](https://lifehacker.com/how-to-fake-playing-piano-lesson-1-1819456727) 和 [绘画课](https://lifehacker.com/how-to-draw-like-a-new-yorker-cartoonist-1826078109) 。我已经寻找了用于记忆的 [最佳应用](https://lifehacker.com/learn-how-to-memorize-anything-1836195510) ，用于解魔方的 [最佳应用](https://lifehacker.com/the-best-apps-for-solving-a-rubiks-cube-1840509349) 。每一次，我都通过在不同的学习方法之间跳跃而学得最好。你也会的。
 

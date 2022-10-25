@@ -6,7 +6,7 @@
 
 当新的智能手机问世时，我总是嫉妒它们的壁纸——通常是一些华丽的独家背景，你不能简单地从制造商的网站上下载到你的旧设备上。
 
-Watch
+
 
 我一直在玩 [三星 Galaxy Note 10+](https://lifehacker.com/we-looked-at-every-setting-on-the-galaxy-note-10-and-he-1837450445) ，我非常喜欢三星用于该设备壁纸的“泡沫美学”。以至于其他人——Android 和 iOS 用户——都有机会将这些漂亮的纸张用于他们设备的主屏幕或锁屏，这才是公平的。
 

@@ -4,7 +4,7 @@
 
 当你申请员工福利时，你可能忽略了残疾保险这一部分。如果你身体健康，很难想象不能工作——即使是很短的一段时间。但是残疾是可能发生的，你的工作场所覆盖面可能不够。
 
-Watch
+
 
 根据美国劳工统计局 2019 年 [员工福利调查](https://www.bls.gov/ncs/ebs/benefits/2019/benefits_life.htm) ，大多数团体长期伤残保险计划只覆盖 [收入](https://www.bls.gov/ncs/ebs/benefits/2019/ownership/civilian/table29a.pdf) 的 60%。更糟糕的是，大多数公司只支付保险费的——因此工人 [将会因他们的支付](https://www.policygenius.com/disability-insurance/are-disability-insurance-benefits-taxable) 而欠税。
 

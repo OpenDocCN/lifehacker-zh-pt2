@@ -4,7 +4,7 @@
 
 火狐用户最近打开浏览器，发现他们所有保存的密码都不见了。如果这发生在你身上，不要担心:你的密码没有去任何地方，尽管看起来是这样。
 
-Watch
+
 
 据 [Mozilla](https://bugzilla.mozilla.org/show_bug.cgi?id=1558765) 报道，该问题涉及 AVG 反病毒应用程序的一个功能( [密码保护](https://support.avg.com/SupportArticleView?l=en&urlName=Activate-AVG-Password-Protection) )与浏览器 67.0.2 版本(一周前发布)中推出的新 Firefox 证书之间的不兼容。正如 Mozilla 所写的:
 

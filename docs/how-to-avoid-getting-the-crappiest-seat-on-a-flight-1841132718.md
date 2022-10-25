@@ -4,7 +4,7 @@
 
 在《华盛顿邮报》 的 [专栏中，](https://www.washingtonpost.com/lifestyle/travel/whats-the-worst-seat-on-a-plane--and-how-do-i-avoid-it/2020/01/08/2148bf8e-3185-11ea-91fd-82d4e04a3fac_story.html) [埃利奥特倡导](https://www.elliott.org/) 的克里斯托弗·埃利奥特描述了你在飞行中可能遇到的每一种糟糕的座位——例如，有一种 [舱壁排座](https://lifehacker.com/what-you-should-know-before-booking-a-bulkhead-seat-on-1839888964) 不会倾斜。或者是那个座椅上的娱乐控制台不管你怎么按都不工作。当然，中间的座位都很糟糕，但是靠近厕所的中间座位呢？所有这些都给我们带来了一个重要的问题:航班上最差的座位是什么？
 
-Watch
+
 
 正如埃利奥特所写的，考虑到现有的各种各样的飞机，很难说出哪个座位是最差的。也是主观的；例如，也许你不介意坐在中间。(如果是这样的话，y ou 也可能是个怪物。)尽管如此，面对几个糟糕的选择，明智地选择并制定策略是很重要的。下面是如何避免预订航班上最糟糕座位的建议，这可能需要一点研究和简单的提前登记。
 

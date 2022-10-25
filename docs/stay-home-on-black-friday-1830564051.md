@@ -4,7 +4,7 @@
 
 黑色星期五的狂欢可能比在消费者“假日”购物更受欢迎。我们现在都知道，砸门广告并不像宣传的那样是真正的大优惠，打折的电视不值得把人踩在脚下(至少，我希望我们都知道这一点)。
 
-Watch
+
 
 但是黑色星期五 的 [【消亡】，这个已经写了很多年的话题，也被过分夸大了。我们继续在每年的长周末花费破纪录的金额。去年，](https://twocents.lifehacker.com/black-friday-is-dying-and-that-s-a-good-thing-1743114275) [美国人仅在 24 小时内就在网上花费了 50 亿美元。](https://qz.com/1456840/black-friday-by-the-numbers-savings-store-openings-and-more/)
 

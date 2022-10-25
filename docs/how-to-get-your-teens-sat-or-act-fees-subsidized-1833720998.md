@@ -4,7 +4,7 @@
 
 因为接受大学教育不够昂贵，所以作为入学过程一部分的 SAT 和 ACT 考试的费用对许多高中生和他们的家庭来说是一种负担。
 
-Watch
+
 
 [Vox 分解成本](https://www.vox.com/the-goods/2019/3/28/18282453/sat-act-college-admission-testing-cost-price) :
 

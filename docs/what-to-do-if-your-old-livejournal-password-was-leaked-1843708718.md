@@ -4,7 +4,7 @@
 
 我喜欢收到来自 Firefox Monitor 的电子邮件，告诉我我的电子邮件被发现存在全新的数据漏洞。雪上加霜的是，这是一封我十年没用过的电子邮件。这种情况的三重含义是当服务是 live journal——你知道，在 Tumblr 很酷之前，每个人都在这个地方写博客。
 
-Watch
+
 
 Livejournal 数据泄露的古怪之处在于，数据本身并不都是新的。据 ZDNet 报道，所谓的 [泄密事件发生在 2014 年的](https://www.zdnet.com/article/26-million-livejournal-credentials-leaked-online-sold-on-the-dark-web/) 。其中包含的数据——超过 2600 万 Livejournal 用户的用户名、电子邮件和明文密码——从那时起就一直在流传。如果你正在使用众多可用的 [账户泄露通知服务](https://lifehacker.com/10-billion-wrecked-accounts-show-why-you-need-have-i-be-1836996930) 中的一种，它现在才突然出现在你的雷达上，因为所有这些被盗项目本身都被泄露了。
 

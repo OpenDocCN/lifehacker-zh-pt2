@@ -4,7 +4,7 @@
 
 亚马逊 Prime Video 将于 11 月开始，增加了大量经典电影、，包括*大顶皮威*、*坏圣诞老人*和*黄金眼*。
 
-Watch
+
 
 11 月 15 日 h，亚马逊原创系列第四季*高城堡里的人*在服务上首次亮相，整个月你都可以 [观看周四晚上的足球](https://lifehacker.com/watch-thursday-night-football-using-your-prime-membersh-1838313949) ，从 11 月 7 日充电器队对突袭者队开始。
 

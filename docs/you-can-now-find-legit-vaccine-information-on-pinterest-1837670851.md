@@ -4,7 +4,7 @@
 
 直到最近，Pinterest [还屏蔽了其平台上关于疫苗](https://gizmodo.com/pinterest-quietly-blocks-all-vaccine-related-searches-1832754950) 的搜索结果。但是今天， [公司宣布](https://newsroom.pinterest.com/en/post/bringing-authoritative-vaccine-results-to-pinterest-search) 将提供“权威的疫苗结果”，而不是其他的。
 
-Watch
+
 
 好消息是，你现在可以从世界卫生组织、疫苗安全网、疾病控制和预防中心以及美国儿科学会找到信息。如果你搜索“疫苗”或类似“麻疹”的关键词，他们的结果就会出现。这些搜索还会在页面上显示一条消息:
 

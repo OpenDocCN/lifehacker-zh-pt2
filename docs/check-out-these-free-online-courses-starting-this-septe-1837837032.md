@@ -4,7 +4,7 @@
 
 如果你想温习一项技能，学习一种新的东西，或者给你的知识生活增添一点趣味，本月开始有一大堆免费的 MOOCs(大规模开放在线课程)，你可能想去看看。
 
-Watch
+
 
 如果你不熟悉的话，mooc 是由知名大学免费提供的在线课程(尽管如果你想要一个证明你成功完成课程的证书，你可能需要付费)。根据 [开放文化](http://www.openculture.com/2019/09/3700-moocs-massive-open-online-courses-getting-started-in-september-enroll-today.html) 的消息，MOOCs 全年定期举办，但本月将有 3700 多门 MOOCs 开课。
 

@@ -4,7 +4,7 @@
 
 俄勒冈州波特兰市有一家 [俄罗斯餐厅](https://kachkapdx.com) ，这里的伏特加让人难以置信。这既是一件非常好的事情，也是一件非常坏的事情。口味从山葵到甜豆，清新纯净，冰镇伏特加以克为单位。这两个因素结合在一起，很难判断你到底喝了多少，特别是如果你从来没有记住伏特加的密度(顺便说一下，密度是 970 公斤/米)。
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Rhubarb Vodka Is the Best Thing You Can Make With Your Blender](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/make-a-tropical-gin-out-of-pineapple-peels-1824033918)</aside>
 

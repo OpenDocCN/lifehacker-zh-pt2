@@ -4,7 +4,7 @@
 
 Chrome 79
 
-Watch
+
 
 [随着 Android Police](https://www.androidpolice.com/2019/12/20/chrome-beta-80-removes-experimental-reader-mode-and-gesture-navigation-deprecates-ftp-support-and-more/)的报道，Chrome 80 beta 测试人员已经注意到，Chrome 79 中仍然存在的几个功能已经丢失，包括几个期待已久的功能，这些功能将在 Chrome 80 上市后被放弃。
 

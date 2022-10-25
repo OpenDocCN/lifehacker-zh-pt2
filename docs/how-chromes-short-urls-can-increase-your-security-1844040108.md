@@ -4,7 +4,7 @@
 
 谷歌可能很快就会截断你访问的网站的完整地址。通过在地址栏中只显示网站的域名而不是完整的网址，谷歌的这一举措实际上可以帮助人们提高浏览网页时的安全性。你现在就可以尝试这个功能。
 
-Watch
+
 
 首先，你需要为 Windows 或 Mac 安装 [Chrome Dev](https://www.google.com/chrome/dev/?extra=devchannel&platform=win64) 或 [Chrome Canary](https://www.google.com/chrome/canary/?platform=win64) ，因为这一网址隐藏功能目前还没有出现在 Chrome 的测试版或稳定版频道中。一旦你启动并运行了 Chrome Canary，你就要把它复制并粘贴到地址栏中，并启用这个标志:
 

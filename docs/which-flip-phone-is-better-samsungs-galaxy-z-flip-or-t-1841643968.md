@@ -4,7 +4,7 @@
 
 三星 2 月 11 日的“三星拆包”活动 展示了几款新设备，包括其下一款可折叠智能手机:Galaxy Z Flip。与 [Galaxy Fold](https://lifehacker.com/why-you-should-wait-to-buy-the-samsung-galaxy-fold-1836727525) 的垂直折叠屏幕不同，Z Flip 像老式翻盖手机一样水平折叠——更不用说摩托罗拉最近发布的 [Razr](https://lifehacker.com/how-to-pre-order-the-motorola-razr-1841158604) 智能手机了。
 
-Watch
+
 
 一场翻盖手机大战正在酝酿，那么如果你认同这种特殊的审美，你应该买哪一款智能手机呢？让我们来看看哪一个值得你花钱——如果有的话。
 

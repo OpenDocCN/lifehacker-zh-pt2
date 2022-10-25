@@ -4,7 +4,7 @@
 
 如果你“不小心”上了令人分心的网站，下载 Chrome 的 [暂停扩展。Pause 不会屏蔽分散注意力的网站，而是弹出一个五秒钟的绿色空白屏幕，迫使你暂停。然后你可以点击进入实际的网站。(您也可以单击以禁止在接下来的 24 小时内暂停该站点。)](https://chrome.google.com/webstore/detail/pause/ljfdccdjpfjpfjbpdiihanpodilolofh) 
 
-Watch
+
 
 这个扩展来自自由，我们最喜欢的分散注意力的内容拦截器 的制造者 [。他们给 Pause 加载了一个长长的黑名单，包括社交媒体、几个新闻网站和色情网站。Y 您可以在设置页面添加或删除站点。](https://lifehacker.com/freedom-blocks-distractions-in-sync-across-every-device-1747878326)
 

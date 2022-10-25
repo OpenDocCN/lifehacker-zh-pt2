@@ -5,7 +5,7 @@
 本月早些时候，教育部发布了关于即将到来的学生贷款服务机构改革的新细节 。教育部在六月的新闻发布会上首次宣布了这些重大的变化，包括与五家新的学生贷款服务机构的合同。
 根据新闻稿，这五家新公司将向超过 6800 万借款人提供“增强的客户支持”。
 
-Watch
+
 
 然而，根据最新消息，这五家新公司不会马上接管。d 部门将继续与其现有的九家贷款服务机构合作；c 与 FedLoan Servicing、Great Lakes、Navient 和 Nelnet 的合同要到 2021 年 12 月才结束，而 CornerStone、Granite State、Edfinancial、MOHELA 和 OSLA service 的合同要到 2022 年 3 月。
 

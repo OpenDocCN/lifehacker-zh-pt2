@@ -4,7 +4,7 @@
 
 如果你试图以一种有助于减轻气候变化影响的方式生活，你可能会下决心少坐飞机或少吃肉。但是换银行呢？
 
-Watch
+
 
 正如作家兼环保主义者比尔·麦克吉本在《纽约客》 的 [中解释的那样，金融机构在气候变化中扮演着比我们意识到的更大的角色:](https://www.newyorker.com/news/daily-comment/money-is-the-oxygen-on-which-the-fire-of-global-warming-burns)
 

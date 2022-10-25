@@ -4,7 +4,7 @@
 
 很少有智能手机像延长你的设备的电池寿命这样有用，通过用户 u/neq 在 Reddit 上发布的 [，你也许可以通过禁用一个相对未知的功能来给你的安卓手机的电池寿命一个显著的提升。](https://www.reddit.com/r/Android/comments/9ybm9l/psa_disabling_mobile_data_alwayson_while_on_wifi/) 
 
-Watch
+
 
 这篇文章声称，通过禁用永远在线的移动数据，你可以将你的设备的 [屏幕打开时间(SoT)](https://www.xda-developers.com/sot-battery-meter-xdatv/) 增加一倍，这是一个电池周期内你的屏幕打开的平均时间的测量值。这与电池寿命不同，因为它纯粹是衡量你的屏幕具体使用的时间，而不是你的手机只是“开着”的时间将你的 SoT 加倍将意味着电池寿命的急剧变化，但是节省任何额外的能量是有帮助的。
 

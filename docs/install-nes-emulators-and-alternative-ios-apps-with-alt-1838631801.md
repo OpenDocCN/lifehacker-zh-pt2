@@ -4,7 +4,7 @@
 
 作为一个使用 Android 作为主要移动操作系统的人，我倾向于关注谷歌产品 的 [替代应用/服务，但这并不意味着我不喜欢 iOS 和 iPad 上苹果应用的第三方替代品。不幸的是，苹果对其产品的“围墙花园”方法意味着 iOS](https://lifehacker.com/the-best-competitors-to-every-first-party-google-app-an-1834172092) [上可用的第三方和/或开源应用程序比 Android](https://lifehacker.com/the-comprehensive-guide-to-quitting-google-1830001964) 上的要少得多——而且大多数都需要你破解你的 iPhone，这是一个乏味的、违反保修的项目。
 
-Watch
+
 
 然而，软件开发商 Riley Testut 新发布的开源应用商店项目，恰当地命名为 [AltStore](https://altstore.io/) ，可以通过一个巧妙的变通方法下载并安装在你的 iOS 设备上。
 

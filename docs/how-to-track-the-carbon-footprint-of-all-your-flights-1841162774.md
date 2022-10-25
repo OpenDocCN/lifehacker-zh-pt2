@@ -4,7 +4,7 @@
 
 近年来，我们许多人开始更加关注自己的碳足迹，而对碳足迹影响最大的个人行为之一就是航空旅行。
 
-Watch
+
 
 本周， [TripIt 推出了一款工具](https://www.tripit.com/web/blog/new-tripit-update-your-flights-carbon-footprint-at-your-fingertips) ，不仅可以帮助你了解你的假期可能会对环境产生什么影响，还可以帮助你做些什么来抵消这种影响。
 

@@ -4,7 +4,7 @@
 
 孩子们总是对学年结束感到兴奋，因为自由的几周就在他们面前。但我认为可以肯定地说，今年，他们特别准备把学校——以及他们的 Chromebooks 和面具——踢到路边。是时候用你举办过的最大的“欢迎来到夏季派对”来庆祝他们在本学年的所有努力了。
 
-Watch
+
 
 我一直是一个 [的粉丝，想找个理由庆祝](https://lifehacker.com/teach-kids-positivity-by-celebrating-the-little-things-1831749205) ，这就是为什么我两年前在我儿子二年级结束时第一次制作了上面照片中的横幅——这个想法最初是我从 [这个后代帖子](https://offspring.lifehacker.com/tape-a-finish-line-to-your-doorway-on-your-kids-last-da-1826468542) 中得到的。那一年的最后一天，当他放学回家时，我打开门，让他跑了进去。他边撕纸边欢呼，感觉夏天正式开始了。
 

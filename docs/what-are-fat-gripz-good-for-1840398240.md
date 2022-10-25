@@ -4,7 +4,7 @@
 
 我们的 [寻求解释健身房里的每一件怪事](https://vitals.lifehacker.com/what-is-that-weird-thing-at-the-gym-1839139340) 现在落到了 [胖 Gripz](https://www.fatgripz.com/) 身上，那是沉重的橡胶把手，通常是蓝色的，你可以绕在杠铃和哑铃上。他们的主要工作是让酒吧更难把持，这可能是一件好事。
 
-Watch
+
 
 (Fat Gripz 是一个受欢迎的品牌，但它经常被用作整个类别对象的名称。Fat Gripz 有多个尺寸，加上其他品牌，像 [Alpha grips](https://www.ironbullstrength.com/alpha-grips-2-0.html) 。)
 

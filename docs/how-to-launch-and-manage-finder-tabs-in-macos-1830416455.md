@@ -6,7 +6,7 @@
 
 如果你不知道 macOS Finder 有内置标签，请做好准备，至少，如果你之前在管理文件时用新的 Finder 窗口填满了你的桌面。不要依赖于**命令+ N** ，向上向左切换你的手指，**命令+ T** 将允许你在一个 finder 窗口中打开大量标签。
 
-Watch
+
 
 这个功能已经存在很多年了，所以如果你听到这个消息没有从座位上蹦起来，我可以理解。然而，你可能不知道的是，在 [macOS Mojave](https://lifehacker.com/what-you-need-to-know-before-and-after-installing-mac-1829271754) 中有一些与 Finder 标签互动的有趣方式。
 

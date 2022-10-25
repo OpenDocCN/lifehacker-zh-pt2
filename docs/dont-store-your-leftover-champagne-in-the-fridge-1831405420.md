@@ -4,7 +4,7 @@
 
 如果你有今晚庆祝活动剩下的香槟，帮你自己一个忙，早上把它从冰箱里拿出来。
 
-Watch
+
 
 虽然把一瓶酒放在冰箱里几天没问题，但连续几周或几个月不放会让软木塞变干，最终导致你的酒失去味道和气泡，[*报道*](https://www.bloomberg.com/news/articles/2018-12-28/eight-ways-you-re-drinking-champagne-wrong)*。*
 

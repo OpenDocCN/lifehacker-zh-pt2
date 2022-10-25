@@ -4,7 +4,7 @@
 
 最近，WW 公司——前身为 Weight Watchers——推出了一款名为 Kurbo 的儿童“健康指导”应用程序。显然 [意为减肥](https://kurbo.com/success-stories/) ，尽管节食对许多孩子来说并不合适，而且会导致饮食紊乱。管理孩子体重的健康方法应该集中在建立健康的饮食和锻炼习惯， [指南说](https://www.niddk.nih.gov/health-information/weight-management/helping-your-child-who-is-overweight#habits) ，而不是节食。
 
-Watch
+
 
 该公司面临强烈反对，因为专家认为该应用程序的方法 [助长了青少年](https://www.nytimes.com/2019/08/18/opinion/weight-watchers-kids.html) 饮食失调背后的习惯和思维模式。因此，如果你一直在考虑下载这个应用程序(或者如果你怀疑你的孩子可能会感兴趣)，下面是一些你可能会考虑的方法。
 

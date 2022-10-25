@@ -4,7 +4,7 @@
 
 如果我家有一个《权力的游戏》式的家庭格言，那就是“亲爱的，你能打我的电话吗？”这是找到你放错地方的设备的常用方法。但是如果你把手机调成震动，效果就不太好了。
 
-Watch
+
 
 相反，尝试激活 Siri 或谷歌助手。你得提前 [启用语音激活](https://lifehacker.com/use-google-assistant-on-your-new-pixel-2-to-take-a-hand-1820685974) 。然后无论何时你丢了手机，只要走来走去说“好的谷歌，玩 Despacito。”
 

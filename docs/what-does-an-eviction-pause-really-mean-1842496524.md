@@ -4,7 +4,7 @@
 
 全国各州和城市决定在冠状病毒疫情期间暂停驱逐和公用事业关闭。但如果你面临被驱逐的风险，暂缓令可能只是一种临时保护。
 
-Watch
+
 
 Alieza Durana 说，各州和各市提出的住宿条件存在一些问题。杜兰娜在普林斯顿大学的驱逐实验室 工作，该实验室不断更新暂停驱逐和关闭的地方名单 [。](https://lifehacker.com/where-to-find-coronavirus-eviction-and-utility-shutoff-1842470826)
 

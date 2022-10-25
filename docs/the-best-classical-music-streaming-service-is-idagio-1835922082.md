@@ -4,7 +4,7 @@
 
 听古典音乐和听现代流行音乐有点不同。音乐是不同的——大多数录音不是由他们的作曲家演奏的，而且很少有一首作品的确定录音。同一张专辑往往会发行多首作品。曲目标题很长，包括作品的目录号、乐章号，可能还有速度，甚至是粉丝给的昵称。大多数流媒体服务都不是为适应这一点而构建的。有几个是，最好的一个是 [伊达吉奥](https://www.idagio.com/) 。
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled The Best Classical Music Streaming Service Is Idagio](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-start-listening-to-classical-music-1827887495)</aside>
 

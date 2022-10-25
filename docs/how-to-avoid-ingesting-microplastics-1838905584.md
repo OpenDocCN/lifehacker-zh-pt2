@@ -4,7 +4,7 @@
 
 到处都是微小的塑料碎片。 [它们在海洋中](https://oceanservice.noaa.gov/facts/microplastics.html) ，被海洋生物吃掉。 [它们装在瓶装水](https://www.theguardian.com/environment/2018/mar/15/microplastics-found-in-more-than-90-of-bottled-water-study-says) 里，已经脱离了瓶子本身的塑料。虽然 [对健康的影响还不清楚](https://theconversation.com/plastics-in-oceans-are-mounting-but-evidence-on-harm-is-surprisingly-weak-93877) ，但如果你想尽量减少接触微塑料，这里有一些方法可以避免。
 
-Watch
+
 
 ### 喝自来水而不是瓶装水
 

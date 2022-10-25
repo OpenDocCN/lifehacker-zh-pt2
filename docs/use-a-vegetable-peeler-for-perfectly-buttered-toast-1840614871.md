@@ -4,7 +4,7 @@
 
 在这家店，我们努力让 [两种黄油](https://lifehacker.com/you-need-two-types-of-butter-in-your-kitchen-1837837122) 随时可用:便宜的烹饪黄油(保存在冰箱里)和零食黄油(保存在室温下，便于涂抹)。但我不是一个完美的人，有时我会忘记给黄油碟加满黄油，让我的厨房里没有可涂抹的零食黄油。
 
-Watch
+
 
 这使得涂黄油的吐司成为一个小小的挑战。是的，你可以像 Lifehacker 的执行编辑 Virginia Smith 一样，把黄油 [抹在你做了两次的面包上](https://skillet.lifehacker.com/what-are-your-best-butter-tips-and-tricks-1830827846)——很像一根胶棒！—但这会在黄油中留下面包屑，这不是每个人都能接受的。如果这对你来说是一个交易破坏者，不要烦恼——完美的黄油烤面包*和*碎黄油很容易实现；你只需要一个蔬菜削皮器。
 

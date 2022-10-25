@@ -4,7 +4,7 @@
 
 我们最近得知，婴儿爽身粉 [的制造商强生公司多年来一直知道他们的滑石粉含有微量石棉](https://www.reuters.com/investigates/special-report/johnsonandjohnson-cancer/) ，并向监管者和因癌症案件起诉他们的人隐瞒了这一事实。是时候抓狂了吗？以下是你需要知道的。
 
-Watch
+
 
 ### 为什么婴儿爽身粉里会有石棉？？
 

@@ -4,7 +4,7 @@
 
 当一部手机的零售价为 1100 美元时，它不能仅仅是好，它必须是一流的。它需要提供你在其他手机上得不到的功能，在所有标准指标上保持卓越，并且能够处理几乎任何情况，无论是工作、娱乐还是只是看一点电影。虽然我希望三星在其最新的大屏幕旗舰产品中包括一些东西，但 [Galaxy Note 10+](https://www.samsung.com/us/mobile/galaxy-note10/?cid=sem-mktg-pfs-mob-us-google-na-08082019-140070-&ds_e=GOOGLE-cr:0-pl:251767854-&ds_c=Brand+-+Note10+-+Brand+Variations+-+Exact-&ds_ag=Galaxy+note10-&ds_k=galaxy+note+10&gclid=CjwKCAjw1_PqBRBIEiwA71rmtQJUhvCnuebZLmH-9ecsyG80R54Kc-i_5QeSAXkKZKNnqXUrflhxBxoCN4gQAvD_BwE&gclsrc=aw.ds) 近乎完美。
 
-Watch
+
 
 ## 设计:纸币已经发光了
 

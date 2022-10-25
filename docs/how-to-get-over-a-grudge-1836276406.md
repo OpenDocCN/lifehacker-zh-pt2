@@ -4,7 +4,7 @@
 
 我们人类喜欢我们的怨恨。我们一遍又一遍地讲述我们的怨恨故事，就像永远不会完全愈合的战争创伤:我们被错误地拒绝了晋升，我们支付了不属于我们的账单，我们从未收到邀请。
 
-Watch
+
 
 没事的；适度地，怨恨并不是 100%可怕的。《如何怀恨在心:从怨恨到满足——怨恨改变你生活的力量 》一书的作者索菲·汉娜(Sophie Hannah)将每次怨恨都视为一个可以学习和受益的故事。汉娜在 [中解释了这个观点:](https://www.theladders.com/career-advice/why-you-should-actually-hold-more-grudges-in-life-and-your-career)
 

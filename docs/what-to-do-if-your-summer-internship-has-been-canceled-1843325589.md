@@ -4,7 +4,7 @@
 
 暑期实习可以帮助大学生或初级员工开始职业生涯。但冠状病毒的爆发已经搁置了许多夏季计划。那么你能做些什么呢？
 
-Watch
+
 
 [Glassdoor](https://www.glassdoor.com/research/internship-hiring-coronavirus/) 发现，在过去的两个月里，其平台上超过一半的实习职位已经关闭，该网站的实习招聘在 2019 年 4 月至 2020 年 4 月期间下降了 39%。
 

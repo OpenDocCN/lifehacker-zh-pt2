@@ -4,7 +4,7 @@
 
 我是 [不是一个容易醒来的人](https://lifehacker.com/a-night-owls-guide-to-surviving-early-mornings-1831880539) ，但多年来我发现，不幸的是，醒来是开始一天的必要条件。我玩过 [邪恶闹钟应用](https://lifehacker.com/this-evil-alarm-clock-app-is-the-only-reason-i-m-awake-1793682623) 和普通的贪睡按钮，但最近我发现了一个游戏改变者:你可以让 Siri 语音告诉你*叫醒他妈的*。
 
-Watch
+
 
 你需要付费版的 Alarmy 来做这件事，它是 4.99 美元/月，7 天免费试用。(我用的是 iPhone，但安卓上也有这个应用。)你想要的设置有点埋没了:设置闹钟，然后向下滚动找到这两个设置:
 

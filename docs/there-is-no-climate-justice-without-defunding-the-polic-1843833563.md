@@ -4,7 +4,7 @@
 
 美国爆发抗议警察残忍杀害乔治·弗洛伊德的活动。抗议大体上是和平的。警方没有回应。
 
-Watch
+
 
 在过去的一周里，大范围的警察暴力事件困扰着整个国家。警察用橡皮子弹射击抗议者，向他们施放催泪瓦斯，并用警棍殴打他们。警察 [用实弹射杀了路易斯维尔的黑人厨师](https://www.theroot.com/louisville-police-and-national-guard-fatally-shoot-man-1843823292) 大卫·麦卡蒂，并把他的尸体留在街头 [12 小时](https://theintercept.com/2020/06/01/louisville-police-left-the-body-of-david-mcatee-on-the-street-for-12-hours/?utm_source=twitter&utm_medium=social&utm_campaign=theintercept) 。装甲车和身穿战术防弹衣的警察占领了街道，以回应针对警察暴力对待黑人社区的抗议。
 

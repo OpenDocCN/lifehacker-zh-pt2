@@ -4,7 +4,7 @@
 
 你忘了吗？母亲节就在本周日，这意味着你或许应该马上给你的妈妈寄张卡片——甚至如果你是懒人，也有很多简单的选择。
 
-Watch
+
 
 像 [Postable](https://www.postable.com) 这样的服务会以“专利”真实笔迹的名义在邮件中发送一张卡片，而 [Postagram](https://sincerely.com/postagram) 会将你的任何 Instagrams 变成一张带有签名信息的明信片。
 

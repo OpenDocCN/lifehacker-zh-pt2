@@ -4,7 +4,7 @@
 
 现在对租车的需求不是很多，对这个行业的影响开始显现:赫兹，也经营 Dollar and Thrifty， [上周申请破产](https://www.nytimes.com/2020/05/22/business/hertz-bankruptcy-coronavirus-car-rental.html) 。
 
-Watch
+
 
 即使是财务状况较好的租赁机构也在为最坏的情况做准备，大幅削减今年计划购买的新车数量。
 

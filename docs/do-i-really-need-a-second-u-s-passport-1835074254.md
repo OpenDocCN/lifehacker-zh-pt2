@@ -4,7 +4,7 @@
 
 有一些旅行技巧是有意义的——比如使用[M](https://lifehacker.com/use-the-mobile-passport-app-to-breeze-through-customs-w-1833203914?_ga=2.69599954.338407604.1559050493-1544362783.1548434679)[obile Passport](https://lifehacker.com/use-the-mobile-passport-app-to-breeze-through-customs-w-1833203914?_ga=2.69599954.338407604.1559050493-1544362783.1548434679)应用程序轻松通过任何海关关卡，或者 [在周二](https://lifehacker.com/when-to-book-that-international-flight-1834672258) 预订机票可能是最便宜的——但是获得第二本美国护照呢？
 
-Watch
+
 
 本周， [百万英里秘密](https://millionmilesecrets.com/guides/could-and-should-you-have-two-valid-us-passports/) 进入获得第二本护照的过程；如果你是一个经常出差的人，或者时间紧迫，出国时拥有另一种身份证明可能会对你有好处。
 

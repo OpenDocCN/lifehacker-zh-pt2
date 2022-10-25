@@ -6,7 +6,7 @@
 
 今天，美国注册会计师协会(AICPA)和 CPA.com 发布了一款 [免费工具](https://www.pppforgivenesstool.com/) 让 PPP 豁免变得更简单。这个新工具由在线小企业贷款机构 Biz2Credit 的软件提供支持，包括 AICPA 的宽恕计算器。该工具还拥有来自财政部和小企业管理局(SBA)的最新信息。
 
-Watch
+
 
 如果您获得了 PPP 贷款，您可以使用免费工具，无论是哪家贷款机构提供的资金。您或您的注册会计师可以使用该工具开始填写 [PPP 贷款豁免申请](https://home.treasury.gov/system/files/136/3245-0407-SBA-Form-3508-PPP-Forgiveness-Application.pdf) 。不过，网站上说要推迟完成和签署表格。
 

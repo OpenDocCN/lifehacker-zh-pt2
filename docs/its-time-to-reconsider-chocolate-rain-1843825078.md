@@ -4,7 +4,7 @@
 
 如果你对 Tay Zonday 的歌曲 [【巧克力雨】](https://youtu.be/EwTZ2xpQwpA) 自 2007 年成为迷因以来没有太多的思考，现在是时候打开 YouTube 视频了——仔细听听歌词。
 
-Watch
+
 
 以下是 Zonday 实际演唱的一个例子:
 

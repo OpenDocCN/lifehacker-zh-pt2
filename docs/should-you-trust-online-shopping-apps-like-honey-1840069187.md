@@ -4,7 +4,7 @@
 
 当 PayPal 上个月宣布将收购 Honey 时，我的耳朵都竖起来了。Honey 是一种浏览器扩展和应用程序，可以帮助你在网上购物时找到优惠券代码和交易。引起我兴趣的不是收购的消息:而是 PayPal 将支付 40 亿美元(T1)，主要是现金。PayPal 可能想从 [Honey 的 1700 万用户](https://techcrunch.com/2019/11/20/paypal-to-acquire-shopping-and-rewards-platform-honey-for-4-billion/) 那里得到什么？
 
-Watch
+
 
 但答案很明显:数据。你使用的每个为你找到交易、折扣、优惠券或返现折扣的程序的现实是，该服务需要收集关于你的购物习惯的信息，以便为你找到那些交易和折扣。
 

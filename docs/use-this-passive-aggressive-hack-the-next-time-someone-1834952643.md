@@ -4,7 +4,7 @@
 
 你是否厌倦了人们在工作中借用你的东西——比如一支昂贵的钢笔，配有你喜欢的 0.38 毫米线宽和舒适的握感——并且永远不会归还？
 
-Watch
+
 
 如果你曾经借给同事一支你非常想要还回去的钢笔，这里有一个小提示:在你把它交给同事的时候，不要盖上笔帽。正如 u/jothebest75 在 [、Reddit](https://www.reddit.com/r/LifeProTips/comments/brdqba/lpt_when_letting_someone_borrow_our_pen_or_marker/) 上解释的那样，如果没有上限，他们更有可能在使用后归还。
 

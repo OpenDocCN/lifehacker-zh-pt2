@@ -4,7 +4,7 @@
 
 如果你是 Instacart 购物者，黑客可能会在网上出售你的数据。根据 Buzzfeed 最近的一份报告，至少有两个黑客社区上有 278，531 个 Instacart 账户以 2 美元一个的价格出售。每个账户包括全名、信用卡号码的最后四位数字和订单历史。这些列表出现在 4 月份,并不断更新新账户，就在昨天。
 
-Watch
+
 
 Instacart 否认其数据库遭到破坏，并指出，如果出现漏洞，它会立即通知用户，并自动强制他们更改密码，以防止不必要的访问。然而， [Buzzfeed 与](https://www.buzzfeednews.com/article/janelytvynenko/instacart-customers-info-sold-online) 多个账户泄露的个人进行了交谈。这些用户证实，这些黑暗网络卖家提供的信息是正确的，但表示 Instacart 从未联系过他们，也没有自动重置他们的密码。
 

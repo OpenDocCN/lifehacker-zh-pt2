@@ -4,7 +4,7 @@
 
 对于那些健康但由于 oronavirus 限制而被困在里面的人来说，这有点像是宇宙给了我们一个借口，让我们尽情观看我们最喜欢的电影和电视节目(或者 [补上我们积压的游戏](https://lifehacker.com/these-free-mobile-games-can-help-you-cope-with-cabin-fe-1842396048) )。我们大多数人可能会启动许多付费流媒体服务 [中的一个](https://lifehacker.com/heres-the-streaming-video-service-thats-the-best-bargai-1838050860) 来获得我们的内容修复，但也有大量的免费选项，包括 Popcorn Time——一个受欢迎(但众所周知不那么合法)的免费流媒体应用程序，它使用 BitTorrent 技术来查找和观看视频。
 
-Watch
+
 
 与其他 BitTorrent 应用程序不同，爆米花时间允许几乎即时播放你想看的任何内容——你不必等待任何下载完成。也就是说，由于该应用的主要目的是访问受版权保护的内容，让我们明确一点:我们不纵容盗版，正如 [爆米花时间的官方](https://popcorntime.app/tos) 服务条款所述，如果你下载受版权保护的材料，你就违反了法律。如果你不知所措，有几个地方可以通过 BitTorrent 合法获得的内容。
 

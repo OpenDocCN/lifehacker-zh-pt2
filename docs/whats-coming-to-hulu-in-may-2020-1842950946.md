@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/whats-coming-to-hulu-in-may-2020-1842950946>
 
-Watch
+
 
 如果你的流媒体队列在一个月的隔离狂欢后开始变空，Hulu 下个月会向投放大量新内容来再次填满。
 

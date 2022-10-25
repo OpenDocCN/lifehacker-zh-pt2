@@ -4,7 +4,7 @@
 
 被称为《健康保险流通与责任法案》( HIPAA)的法律被严重误解。(首先， [的拼写是 HIPAA，而不是 HIPPA](https://www.atlantic.net/hipaa-compliant-hosting/hipaa-vs-hippa/) 。)最近误解它的人是那些声称询问他们是否接种疫苗是非法的人。抱歉，法律不是这么规定的。这一切都不是这样的。
 
-Watch
+
 
 [HIPAA 声明](https://www.hhs.gov/hipaa/for-individuals/guidance-materials-for-consumers/index.html) 患者(即您)可以访问您的健康记录，未经您的同意，您的医院或健康保险公司等“承保实体”不能共享您的健康记录。
 

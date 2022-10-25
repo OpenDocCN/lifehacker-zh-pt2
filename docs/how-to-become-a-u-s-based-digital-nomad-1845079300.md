@@ -4,7 +4,7 @@
 
 疫情影响了我们生活的许多方面，包括我们的工作方式。一些[5 月份](https://www.dallasfed.org/-/media/documents/research/papers/2020/wp2017.pdf)35.2%的员工远程工作，相比之下 4 月份只有 8.2%，这可能是好事也可能是坏事，看你的角度了。但是远程工作的一个积极方面是有可能在 T4 以外的地方工作。
 
-Watch
+
 
 当 [出国旅行](https://lifehacker.com/stay-up-to-date-on-covid-travel-restrictions-with-this-1845011555) 暂停时，远程员工可能有机会在国内任何地方工作——甚至可能交换一个永久地址，成为数字游民。虽然可能的风景变化可能很吸引人，但在打包行李之前，有几件事需要考虑。
 

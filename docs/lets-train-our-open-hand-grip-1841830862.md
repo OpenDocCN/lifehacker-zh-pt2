@@ -4,7 +4,7 @@
 
 在我们长达一个月的寻求获得更强壮的手和前臂的过程中，我们训练了我们的[支撑握](https://vitals.lifehacker.com/how-to-get-a-stronger-support-grip-for-deadlifts-and-ha-1841519693) 和捏握。现在是时候迎接一个不同的挑战了:张开手握法，这种握法可以帮助你抓住大的、有时形状奇怪的物体。
 
-Watch
+
 
 ### 厚条
 

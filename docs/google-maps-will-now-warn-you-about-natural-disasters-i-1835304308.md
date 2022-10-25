@@ -4,7 +4,7 @@
 
 谷歌地图已经可以为你提供交通和道路封闭的路线，但现在它还能帮助你避开受自然灾害影响的地区。
 
-Watch
+
 
 [今日更新](https://www.blog.google/products/maps/updates-maps-and-search-help-during-times-crisis/) 包括:
 

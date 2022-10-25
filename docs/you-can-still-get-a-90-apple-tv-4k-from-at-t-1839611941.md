@@ -4,7 +4,7 @@
 
 美国电话电报公司本周末放弃了一笔大交易:一台苹果电视 4K，仅售 90 美元。这比其 179 美元的正常价格低了近 50%，也是我们见过的苹果电视 4K 的最低价格。现在，它不再在网上提供，但这并不意味着所有的希望都破灭了。
 
-Watch
+
 
 这项疯狂的交易于 11 月 1 日生效，适用于任何人——你不必订阅任何美国电话电报公司服务就能享受折扣。此外，当你购买新的苹果设备时，苹果公司 [会赠送一年的免费 Apple TV+](https://lifehacker.com/how-to-get-free-apple-tv-with-your-apple-device-1838412966) ，所以毫不奇怪，在& T [苹果电视在线销售一空](https://www.att.com/buy/accessories/streaming-tv/apple-tv-4k-32gb-black.html?cjevent=a67bec11ff2e11e983b801740a1c0e12&source=EC1NAT10600aff12A) 。
 

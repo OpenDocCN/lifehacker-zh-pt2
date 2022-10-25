@@ -4,7 +4,7 @@
 
 这不仅仅是因为我们每天在个人生活中有很多事情要思考和处理。我们也几乎每天都被诸如弹劾、气候变化和大规模枪击这样的大话题淹没。此外，我们总是试图在工作中同时处理多项任务——做饭、回复工作邮件*和*吼孩子停止争吵——这太多了。
 
-Watch
+
 
 即将出版的新书 [*的作者瑞安·哈乐黛【静止是关键*](https://www.amazon.com/Stillness-Key-Ryan-Holiday/dp/0525538585/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-quiet-your-mind-1838622010&asc_source=&tag=kinjalifehackerlink-20)*为 [蒂姆·费里斯秀博客](https://tim.blog/2019/09/26/stillness-is-the-key-ryan-holiday/) 写道，我们都需要多一点——你猜对了——*静止:**
 

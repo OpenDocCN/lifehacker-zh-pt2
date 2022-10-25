@@ -4,7 +4,7 @@
 
 人们对网上(和在我家里)意大利食物的狂热是我最喜欢的内容形式之一。这是一种正义的愤怒，一种纯粹的愤怒，一种我(通常)不得不通过我的意大利裔美国男友来体验的愤怒。但是，即使是我，一个在披萨上点菠萝的人，也对梅根·斯普兰写的[The Kitchn ' s Ranch Cacio e Pepe](https://www.thekitchn.com/the-best-thing-you-can-do-with-ranch-seasoning-its-not-dip-22932048)有点反感。
 
-Watch
+
 
 并不是说我不屑于在东西上放牧场调料。我肯定不是。但是 *cacio e pepe* 的 *bellezza* 是那两种配料——新鲜研磨的胡椒和 Pecorino 或 parm——变得闪亮，不受阻碍。牧场，作为一种风味，是一个黯然失色。公平地说，这道菜看起来确实是为“两个讨厌黑胡椒的孩子”创造的，所以遮蔽和模糊正是它在这里的意义所在。
 

@@ -4,7 +4,7 @@
 
 WhatsApp 正在测试一个新的 Android 静音功能，让你直接在系统通知中点击“静音”就可以快速静音，而不必在应用程序内部静音。还有一个新的“总是静音” [选项也即将推出](https://wabetainfo.com/whatsapp-beta-for-android-2-20-197-3-whats-new/) ，取代“静音一年”选项。如果你只是不想和某些健谈的人打交道，这是再好不过了...*曾经*。
 
-Watch
+
 
 新的通知设置仍处于测试阶段，所以如果你想现在试用，你必须 [下载最新的 WhatsApp Android 测试版](https://play.google.com/apps/testing/com.whatsapp) 。该应用的稳定版本应该会在未来几周内更新为新的静音选项。
 

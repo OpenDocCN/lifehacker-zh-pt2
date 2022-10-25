@@ -4,7 +4,7 @@
 
 如果你一定要叫我基本的，但是我爱除夕。无论你是在跳干净的舞，还是只是在家庭聚会上闲逛，穿上闪亮闪亮的衣服，喝着闪亮闪亮的饮料，都是有趣的事情，该死的。Kir Péttilant 不仅像它们来的时候一样花哨喜庆，而且制作极其简单，在照片上看起来美极了。
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled The Kir Péttilant Is the Perfect New Year&#39;s Eve Drink](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-buy-champagne-on-a-light-beer-budget-1829661228)</aside>
 

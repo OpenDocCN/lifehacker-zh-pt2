@@ -4,7 +4,7 @@
 
 **Windows:** 如果你是一个狂热的 iOS 摄影师，处理。Windows 系统上的 HEIC 文件可能有点麻烦。我对这些图片做的第一件事就是转换它们，但这不是一个你可以在 Windows 10 操作系统中直接完成的过程。你需要某种第三方解决方案。我的方法是拖放。HEIC 照片进入免费 app[imaging HEIC 转换器](https://imazing.com/heic) 。这是一个有用的工具，可以将它们转换成。jpg，但它对批处理更有帮助——如果你只是转换一张图片，就必须加载它，这有点烦人。
 
-Watch
+
 
 然而，后来我发现了一个更好的处理方法。Windows 10 中的 HEIC 图像。成本同样很高——免费——而且比 iMazing 的应用程序更容易使用。首先，登陆 CopyTrans 的网站，然后下载并安装“[copy trans HEIC for Windows](https://www.copytrans.net/copytransheic/)”
 

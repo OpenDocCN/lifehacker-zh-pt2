@@ -4,7 +4,7 @@
 
 任天堂并没有像其他视频游戏平台一样简单地对其数字游戏打折，而是推出了一项新的 Sw itch 促销活动，玩家可以购买特殊的代金券，然后用这些代金券换取新游戏，将整个过程变成了一个复杂的迷你游戏。
 
-Watch
+
 
 他们被称为 [任天堂 Switch 游戏代金券](https://www.nintendo.com/switch/online-service/special-offers/?cid=NSO&eid=NSOGameVoucher&crmid=FDCDA15A-5EFD-46D7-B9ED-1F2ADC44DAE3) ，他们的工作方式是你支付任天堂 100 美元来换取一对代金券。然后这些代金券可以兑换一系列精选的游戏，包括像两年前 Switch 推出时发布的*《塞尔达传说:野性的呼吸》*，以及直到 6 月 28 日才发布的*《超级马里奥制作人 2》*。
 

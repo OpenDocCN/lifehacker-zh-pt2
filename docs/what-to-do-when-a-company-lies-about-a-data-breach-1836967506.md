@@ -4,7 +4,7 @@
 
 上周，在线运动鞋交易平台 [StockX](https://stockx.com) 要求其用户重置密码，原因是“StockX 平台最近完成了系统更新”事实上，该公司早在 5 月份就遭遇了一次大规模数据泄露，直到记者追问下，该公司才最终澄清此事，这些记者中的 [接触到了一些泄露的数据](https://techcrunch.com/2019/08/03/stockx-hacked-millions-records/) 。
 
-Watch
+
 
 换句话说， [StockX 谎称](https://gizmodo.com/e-commerce-site-stockx-confirms-it-was-hacked-exposing-1836956575) 。虽然它最终披露了 [漏洞的细节](https://stockx.com/news/update-on-data-security-issue/) ，但仍然没有解释为什么 StockX 花了这么长时间才弄清楚发生了什么，也没有解释为什么该公司觉得有必要用上周可疑的密码重置电子邮件来混淆视听。
 

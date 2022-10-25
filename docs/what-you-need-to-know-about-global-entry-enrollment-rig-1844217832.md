@@ -4,7 +4,7 @@
 
 随着国内和国际旅游开始全面开放，旅行者将会看到更多的旅游业务跟进。首先开始逐步回归的是护照服务。现在，美国海关和边境保护局机构 [已经宣布](https://www.cbp.gov/newsroom/local-media-release/cbp-reopen-lax-global-entry-enrollment-center-july-6) 全球入境招生将于 7 月 6 日回归。
 
-Watch
+
 
 以下是你需要知道的。
 

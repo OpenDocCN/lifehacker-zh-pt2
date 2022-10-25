@@ -4,7 +4,7 @@
 
 所以你决定下次去商店时，是时候 [冷静地购买](https://lifehacker.com/what-to-buy-if-youre-concerned-about-the-coronavirus-1842095740) 几盒额外的清洁湿巾或洗手液了。但是当你到了那里，你发现这些普通产品的价格似乎异常高。怎么回事？
 
-Watch
+
 
 这是哄抬价格:将有需求的东西的价格提高到不合理的水平。
 

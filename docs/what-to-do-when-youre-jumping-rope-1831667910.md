@@ -4,7 +4,7 @@
 
 加入我们的 [跳绳健身挑战赛](https://lifehacker.com/januarys-fitness-challenge-is-jump-rope-1831490416) ？你可能会想，除了跳过绳子，数一数在被缠住之前你能走多远，你还能做些什么。这是一个开始！
 
-Watch
+
 
 如果你还不能做到这一步，看看这个来自 [朋克绳](https://www.punkrope.com/videos/) 的关于初学者常见错误的视频。如果绳子总是碰到你的脚踝，或者在你跳跃时似乎变短了，他们知道你做错了什么:
 

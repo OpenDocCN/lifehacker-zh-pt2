@@ -4,7 +4,7 @@
 
 社交距离意味着我们很多人在家的时间明显增加了。如果这不是你习惯做的事情，那么你可能已经开始没有事情可以打发时间了。
 
-Watch
+
 
 这里有一些好消息:环球 [正在以 48 小时出租](https://corporate.comcast.com/press/releases/comcast-nbcuniversal-moves-to-make-current-movies-available-in-the-home) 的形式发行目前正在影院上映的电影。第一部同时在网上和影院上映的电影是 4 月 10 日上映的《魔法精灵 2》。
 

@@ -4,7 +4,7 @@
 
 自去年以来，有毒的“赤潮”一直影响着佛罗里达州的海滩，现在情况尤其糟糕。我们在地球的朋友深入报道这个主题，但是如果你对什么是赤潮以及为什么每个人都在谈论它感到困惑，我们有你基本问题的答案。
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled What Is a Red Tide?](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://gizmodo.com/inside-floridas-algae-fueled-nightmare-1829518742)</aside>
 

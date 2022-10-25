@@ -4,7 +4,7 @@
 
 英语中没有“抱怨”的精确反义词所有最接近的动词都需要一个宾语:你可以称赞一件事或恭维一件事，但你可以抱怨，句号。不管相反的是什么，库尔特·冯内古特说你应该去做。这会让你更快乐。
 
-Watch
+
 
 作家、艺术家、人类灵感日历奥斯汀·克莱恩喜欢分享冯内古特 的建议和想法。他的 [最新建议](https://austinkleon.com/2019/10/04/notice-when-you-are-happy/) 来自冯内古特的最后一本书，散文集 [*一个没有国家的人*](https://www.amazon.com/Man-Without-Country-Kurt-Vonnegut/dp/081297736X?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/use-kurt-vonneguts-happiness-trick-1839029198&asc_source=&tag=kinjalifehackerlink-20) 。冯内古特描述了他的叔叔亚历克斯，他说人类“很少在快乐的时候注意到这一点。”
 

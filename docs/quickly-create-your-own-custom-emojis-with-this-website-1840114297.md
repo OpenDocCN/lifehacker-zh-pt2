@@ -4,7 +4,7 @@
 
 表情符号可以是推文或信息的有趣补充，但正确的表情符号并不存在。 [表情符号制作者](https://jamstack.studio/emoji) 是一个简单的工具，可以提供帮助。
 
-Watch
+
 
 该工具提供了大量不同的选项来从头开始构建自己的表情符号。例如，你可以创建一个惊讶的小丑或哭泣的便便表情符号。它的 [类似于表情符号生成器](https://lifehacker.com/make-your-own-custom-emoji-using-this-site-1830634983) ，但是有一个更简单的界面。
 

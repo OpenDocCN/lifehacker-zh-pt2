@@ -4,7 +4,7 @@
 
 太阳镜 [是为数不多的](https://lifehacker.com/tag/sun-glasses) 物品之一，它既能保护你的健康，又能作为的时尚配饰。仅仅根据它们让你看起来有多酷来购买一副眼镜是很诱人的，检查它们的标签并确保它们确实为你的眼睛提供了一些保护也是一个好主意。
 
-Watch
+
 
 太阳镜不仅通过降低亮度使人们更容易看清，它们还保护你的眼睛免受 UVA 和 UVB 射线的伤害，这些射线会对你的黄斑 (你眼睛后面的，它有助于将图像传输到你的大脑)以及白内障的发展 [造成永久损害](https://www.mayoclinic.org/healthy-lifestyle/adult-health/expert-answers/uv-protection/faq-20058021?mc_id=us&utm_source=newsnetwork&utm_medium=l&utm_content=content&utm_campaign=mayoclinic&geo=national&placementsite=enterprise&cauid=100721&_ga=2.35168865.1327681020.1562081701-1802723852.1558308291) 。
 

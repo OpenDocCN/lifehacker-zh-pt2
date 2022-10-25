@@ -4,7 +4,7 @@
 
 新冠肺炎疫情的严重性是骗子试图用骗局欺骗你的完美背景。我们已经看到假冒的 [冠状病毒追踪器应用](https://lifehacker.com/these-bogus-coronavirus-trackers-could-infect-your-comp-1842293731) 和 [假冒慈善机构](https://lifehacker.com/how-to-avoid-coronavirus-scams-1842268661) ，现在与冠状病毒相关的网络钓鱼诈骗也在增加。
 
-Watch
+
 
 这些骗局使用令人担忧的信息来欺骗受害者交出他们的社交媒体账户、社会安全号码和金融凭证。一些人声称来自美国国税局、疾病控制中心或谷歌等公司，而其他人则试图吓唬你购买假的测试工具或下载窃取你数据的“筛选应用程序”。
 

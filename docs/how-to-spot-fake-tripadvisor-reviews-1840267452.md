@@ -4,7 +4,7 @@
 
 在最近由华尔街日报发布的一份报告中，帮助追踪虚假评论的网站 Fakespot 估计，亚马逊和 Walmart.com 等主要网站上超过三分之一的评论是虚假的，主要由机器人或被赞助撰写好评的人生成。当然，如果你曾经浏览过产品或餐馆的评论，这并不奇怪。
 
-Watch
+
 
 上个月， [BuzzFeed 新闻](https://www.buzzfeednews.com/article/nicolenguyen/her-amazon-purchases-are-real-the-reviews-are-fake) 也写了关于困扰亚马逊的虚假评论； [Yelp](https://blog.yelp.com/2016/10/yelp-manages-social-activism-review-storms-online) 近年来也处理过欺诈性评论的争议。(当然， [Airbnb](https://www.vice.com/en_us/article/43k7z3/nationwide-fake-host-scam-on-airbnb) 也因未能缓和一场骗局而受到抨击，在这场骗局中,“房主”故意在最后一刻取消对客人的预订——利用虚假评论来提高他们房源的吸引力以诱捕他们——我们也曾写过关于 的文章。)
 

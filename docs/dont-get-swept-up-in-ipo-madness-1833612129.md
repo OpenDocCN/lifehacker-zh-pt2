@@ -4,7 +4,7 @@
 
 包括李维斯、优步和 Lyft 在内的许多知名公司都计划今年上市。但是如果你想在你的投资组合中增加几只“”独角兽，你应该暂时踩刹车。
 
-Watch
+
 
 “在今天的市场上，买入一只新上市的股票可能是一件亏本的事情，”萝莉·佩斯特·科尼什为 [【美国消费者新闻与商业频道】](https://www.cnbc.com/2019/03/23/reasons-why-you-may-want-to-rethink-investing-in-the-uber-lyft-pinterest-ipos.html) 写道。那是 f 或者各种各样的原因。
 

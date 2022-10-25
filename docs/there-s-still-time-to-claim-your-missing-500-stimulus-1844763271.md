@@ -6,7 +6,7 @@
 
 上周， [美国国税局宣布了](https://www.irs.gov/newsroom/irs-takes-new-steps-to-ensure-people-with-children-receive-500-economic-impact-payments) 一个新的遗漏刺激支出的登记期——一个 k a 经济影响支出，或 EIP。接受联邦福利的人们现在有另一个机会为合格的家属要求他们丢失的 500 美元付款。
 
-Watch
+
 
 如果您获得社会保障收入、补充保障收入、铁路退休或退伍军人事务补偿和养老金等联邦福利，您可能符合资格。国税局将在 10 月中旬之前发放补缴款——每个符合条件的 17 岁以下儿童 500 美元。
 

@@ -4,7 +4,7 @@
 
 这种情况以前发生过，随着明年另一场总统选举的临近，这种情况会一次又一次地发生。“假新闻”的传播，将真正的新闻贴上“假”的错误标签，以及如何辨别这两种新闻的总体混乱。
 
-Watch
+
 
 波因特研究所 正在通过其 [国际事实核查网](https://www.poynter.org/ifcn/) 提供一些指导，该网已经编制了 [一份不可靠新闻网站的名单](https://www.poynter.org/ifcn/unreliable-news-index/) 它称之为 [UnNews](https://www.poynter.org/ifcn/unreliable-news-index/) 。”
 

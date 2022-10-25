@@ -4,7 +4,7 @@
 
 随着延迟的纳税申报截止日期迅速向我们走来——今天是 7 月 15 日 [，别忘了](https://twocents.lifehacker.com/tax-day-is-now-july-15-1842425809) ！—我们想借此机会提醒你，数字税务准备软件 TurboTax 标榜自己是一种免费而简单的纳税方式，但实际上并不那么免费*或*简单。实际上，它糟透了——以至于它启发了喜剧演员和《爱国者法案》的创造者哈桑·米哈杰，让他创建了 TurboTaxSucksAss.com 的新网站。
 
-Watch
+
 
 到了申报的时候，不要相信商标:TurboTax 宣传一个免费的申报选项，标签为“Intuit TurboTax 免费版”，但选择它会带你走上一条漫长而曲折的表格之路，然后在最后给你一笔高昂的申报费。 [这本身就是欺骗性的](https://twocents.lifehacker.com/here-is-turbotaxs-actual-link-to-file-for-free-1834380008) ，但更是因为 TurboTax 故意让其真正的免费版本——由 TurboTax 交付的 IRS 免费文件程序*——难以找到。*
 

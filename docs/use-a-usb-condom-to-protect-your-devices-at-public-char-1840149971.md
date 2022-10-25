@@ -4,7 +4,7 @@
 
 是的，这是一个可怕的短语，但“USB 避孕套”是一个很好的小工具，你可以购买它来防止未知的攻击者在你为设备充电时做一些他们不应该做的事情。换句话说，一个 USB“数据拦截器”，如果你更喜欢这个说法，将允许你 [使用公共 USB 端口给你的手机](https://lifehacker.com/stop-using-public-usb-ports-to-charge-your-phone-1839906505) 充电而不用担心。
 
-Watch
+
 
 一个 USB 数据拦截器看起来有点像这样，正如 ZDNet 的 [阿德里安·金斯利-休斯](https://www.zdnet.com/article/this-cheap-gadget-can-stop-your-smartphone-or-tablet-being-hacked-at-an-airport-hotel-or-cafe/) 首先引起我们的注意:
 

@@ -4,7 +4,7 @@
 
 当你和一个五岁的孩子打交道时，有时候，对付他们的乱发脾气的最好方法就是完全无视他们。但是对于一个处于公众崩溃中的成年人来说呢？这确实发生了(不仅仅是在电视转播的 [新闻发布会上](https://www.cnn.com/videos/politics/2019/10/02/trump-press-conference-schiff-impeachment-inquiry-acosta-pkg-tsr-vpx.cnn/video/playlists/this-week-in-politics/) )。
 
-Watch
+
 
 想想餐馆里那些愤怒的顾客，他们要求和经理谈话，或者那个在网上疯传的视频 ，一个女人在苹果店因为没有预约而崩溃。如果你正在目睹一个成年人实时发脾气，你该怎么办？
 

@@ -4,7 +4,7 @@
 
 在最新版本的 Chrome 中，不是一个，而是三个大的安全漏洞，其中一个正被黑客积极利用。你可以在 [谷歌博文](https://chromereleases.googleblog.com/2020/02/stable-channel-update-for-desktop_24.html) 中阅读该漏洞的技术细节，但它基本上影响了 Chrome 正确检查和运行 JavaScript 的能力，使浏览器对恶意代码敞开大门。
 
-Watch
+
 
 谷歌没有确切说明攻击是如何进行的，但该公司已确认该漏洞正被用于针对用户，所以你应该尽快为 Chrome 打补丁。坏消息是:到目前为止，只有 Windows、Mac 和 Linux 版本的 Chrome 得到了更新。Android、iOS 和 Chromebook 用户将不得不等待他们的补丁。
 

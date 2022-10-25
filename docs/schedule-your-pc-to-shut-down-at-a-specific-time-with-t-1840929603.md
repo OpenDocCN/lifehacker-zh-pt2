@@ -4,7 +4,7 @@
 
 不时地关闭或重启你的电脑是一件好事。它甚至可以通过清除临时文件和释放内存来解决小的性能问题，这是一种经典的故障排除技术，但我们许多人都忽略了这一简单的技术维护行为。将台式机或笔记本电脑置于睡眠(或休眠)状态要比完全关机容易得多。
 
-Watch
+
 
 如果 [关闭 Windows PC](https://lifehacker.com/why-does-my-laptop-shut-down-instead-of-going-to-sleep-1840067515) 已经成为你待办事项清单上又一个被忽视的琐事，那么看看[Adios](https://haendel.jimdofree.com/shutdowntimer/)——开发者 Bernd Haendel 博士开发的一款简单的 Windows 应用。它可以让你设置和忘记你的电脑自动关机定时器，这可以让你的生活更轻松。
 

@@ -4,7 +4,7 @@
 
 媒体经历了残酷的几周，BuzzFeed、赫芬顿邮报、 [Vice、甘内特和麦克拉奇](https://www.miaminewtimes.com/news/mcclatchy-newspaper-ceo-got-900000-bonus-in-2017-amid-layoffs-11073139) 解雇了数千名员工。但是最近受到伤害的不仅仅是记者:通用汽车 [在接下来的两周内解雇了数千名工人](https://www.freep.com/story/money/cars/general-motors/2019/02/01/gm-layoffs-2019-workers/2743506002/)[西尔斯的破产](https://www.chicagotribune.com/business/ct-biz-bankruptcy-court-weighs-sears-sale-20190131-story.html) 已经危及了数万个工作岗位，政府关闭导致数十万人几周没有工资。
 
-Watch
+
 
 所有这些失业都让人们认识到拥有一笔(或 [裁员基金](https://melmagazine.com/en-us/story/the-generation-of-the-layoff-fund) )应急基金的重要性，当然，在裁员前后，你还可以采取许多其他步骤和预防措施来帮助缓解财务(和心理)痛苦。
 

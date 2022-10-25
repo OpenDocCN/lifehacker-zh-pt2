@@ -4,7 +4,7 @@
 
 在推特上被骚扰一点都不好玩。无论你是一个拥有蓝色真实性复选标记的体面知名人物，还是网络俏皮话世界中的后起之秀，或者如果你想出了一条超出你最大预期的推文，它都可能发生在你身上。或者，当然，如果你是女人。
 
-Watch
+
 
 我们之前介绍过一些技巧，你可以用它们来 [清除你的 Twitter feed](https://lifehacker.com/hide-nazis-with-this-twitter-setting-1819414520#_ga=2.107309056.388081514.1552914512-1723114163.1524514905) 中最讨厌的用户，包括 [报告他们](https://lifehacker.com/how-to-identify-and-report-hate-speech-on-social-media-1831018803) 向你散播的所有垃圾，并在他们入侵你的数字泡沫 时关闭他们 [。我这个周末的推特之旅也让我看到了来自《华尔街日报》记者海蒂·n·摩尔的精彩评论。](https://lifehacker.com/how-to-shut-down-a-troll-once-and-for-all-1821098303)
 

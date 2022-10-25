@@ -4,7 +4,7 @@
 
 那些利用病人来卖无用东西的公司很糟糕，那些在疫情期间这样做的公司是 ( 这是科学事实)*最差*。最近 [FDA 向违反法律的公司发送了 12 封警告信](https://www.fda.gov/consumers/health-fraud-scams/fraudulent-coronavirus-disease-2019-covid-19-products) ，声称他们的产品可以治疗或预防新冠肺炎。
 
-Watch
+
 
 没有药物、草药产品、药物、酊剂或茶可以防止你感染冠状病毒，或者在你感染后治愈你。(一些潜在的药物正在考虑中，如 remdesivir 和 [氯喹](https://lifehacker.com/chloroquine-is-not-a-ready-to-go-wonder-drug-for-covid-1842471341) ，但它们处于研究的早期阶段。)
 

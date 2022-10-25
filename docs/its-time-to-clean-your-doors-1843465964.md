@@ -4,7 +4,7 @@
 
 你用吸尘器。你是灰尘。偶尔，你的帽子里会有一只蜜蜂，于是你决定去擦窗户。而现在，你可能正在花额外的精力清洁你的 [门把手和](https://lifehacker.com/how-long-does-the-coronavirus-live-on-different-surface-1842316128) 电灯开关。
 
-Watch
+
 
 但是等一下，回到门口等一会儿。你最后一次擦你的内门是什么时候？你*曾经*做过吗？
 

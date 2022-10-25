@@ -4,7 +4,7 @@
 
 今年，我们 [挑战我们自己](https://lifehacker.com/c/lifehacker-fitness-challenge) 在举重、有氧运动、瑜伽等方面开拓创新。一路走来，我们提升了我们健身的方方面面，从在跑道上实现近乎超越，到在健身房里绕开那个混蛋。以下是我们 2018 年最佳健身贴。
 
-Watch
+
 
 ### [如何在蹩脚的酒店健身房得到良好的锻炼](https://vitals.lifehacker.com/how-to-get-a-good-workout-in-a-crappy-hotel-gym-1830405477#_ga=2.205904211.1170130860.1545062148-1456718367.1520458611)
 

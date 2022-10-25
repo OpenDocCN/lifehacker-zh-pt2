@@ -4,7 +4,7 @@
 
 狗很好。养狗的都是鸡巴。不是全部，但显然很多。因为在我的城市，每一片精心照料的花都有一个标志，恳求人们不要让他们的狗在上面拉屎撒尿。同样的标志也出现在郊区的草坪上。他们也不会阻止狗主人。花儿凋谢了，草变成了褐色，草坪和花园闻起来像尿。Reddit 说，如果你是这些沮丧的海报中的一员，也许你应该贴一个有毒警告。
 
-Watch
+
 
 如果邻居不尊重你的“禁止养狗”的标志，那就换成“警告:草坪喷洒农药”的标志。所以建议 [Reddit 用户 FantasyMaster85](https://www.reddit.com/r/UnethicalLifeProTips/comments/b53bv3/ulpt_if_you_want_people_to_stop_letting_their/) 上 [丧尽天良的生活亲提示](https://www.reddit.com/r/UnethicalLifeProTips/) subreddit。当诉诸体面不起作用时，诉诸私利仍有可能。你也可以用传单警告邻居，表现出你是一个负责任的居民，关心在你家门廊上拉屎的动物的健康。
 

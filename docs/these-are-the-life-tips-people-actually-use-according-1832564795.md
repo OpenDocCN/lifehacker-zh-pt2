@@ -4,7 +4,7 @@
 
 在 Lifehacker，我们不断收到如何过上更优化生活的建议——但并不是所有的建议都是平等的。最好的是那些坚持下来的；据 Reddit 报道，以下是最长寿的秘诀。
 
-Watch
+
 
 你可能不熟悉 subred dit/r/life prot tips，但人们可以在这里找到有用的提示，告诉他们如何协商紧急和琐碎的事情。你可以只搜索排名最高或评论最多的帖子，但有时评级系统与 Redditor 的建议被嘲笑的激烈程度相关。幸运的是，在/r/AskReddit 上，Redditor[u/Zach _ the _ muffin](https://www.reddit.com/user/Zach_the_muffin)问道:“你从 Reddit 学到了什么‘生活专业建议’，你每次遇到这种情况时还会用到？ ”
 

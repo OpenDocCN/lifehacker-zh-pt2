@@ -4,7 +4,7 @@
 
 你听说过彩票中奖者会后悔的。赢得 1620 万美元但后来 [宣布](http://www.washingtonpost.com/wp-dyn/content/article/2006/01/19/AR2006011903124.html) 他破产时更快乐。这位 3 . 15 亿美元的强力球赢家后来 [希望](https://abcnews.go.com/2020/powerball-winner-cursed/story?id=3012631) 他撕掉了他的彩票。这名女子在与同事和 [分享奖金后获得了 600 万美元，她说](https://www.usatoday.com/story/news/nation/2012/11/28/winner-lottery-bankrupt/1731367/) 她爱的人“正在变成吸血鬼，试图吸走我的生命。”
 
-Watch
+
 
 但是，当头奖到来时，我们排队买票，即使我们知道这并不能解决我们的问题。我们深信，在内心深处，钱(*任何*钱)会有所帮助。
 

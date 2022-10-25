@@ -4,7 +4,7 @@
 
 在我 [在 Reddit](https://old.reddit.com/r/LifeProTips/comments/dy257y/lpt_if_you_accidentally_press_the_spacebar_and/f7xw6ap/) 上看到它之前，这个简单的东西对我来说从来没有点击过:在 Windows 和 MacOS 的许多键盘快捷键中，添加 *shift* 键会使快捷键做与它通常做的相反的事情。
 
-Watch
+
 
 几个例子(在 Mac 上，用 cmd 替换 ctrl 或 alt):
 

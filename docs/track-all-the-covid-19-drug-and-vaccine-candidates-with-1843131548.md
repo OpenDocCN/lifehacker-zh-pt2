@@ -4,7 +4,7 @@
 
 你听说过 [羟氯喹](https://lifehacker.com/chloroquine-is-not-a-ready-to-go-wonder-drug-for-covid-1842471341) ，但你知道 Remdesivir、Roivant、Athersys 吗？如果你在关注一种可能的疫苗，你知道有超过 12 种候选疫苗正在进行试验或者希望很快开始吗？ [这个来自医疗保健新闻网站 STAT](https://www.statnews.com/feature/coronavirus/drugs-vaccines-tracker/) 的追踪器已经覆盖了你。
 
-Watch
+
 
 追踪器并没有包括每一种可能的药物和疫苗，但它列出了一些“最常被谈论的”,并对它们进行了分类，将发展最深入的放在图表的顶部。
 

@@ -4,7 +4,7 @@
 
 厌倦了 iPhone 或 iPad 上的 Safari？你可以从 App Store 安装很多其他很棒的替代品——没问题。但是如果你想在你的设备上使用它们作为你的默认浏览器，你必须通过一些额外的关卡。
 
-Watch
+
 
 首先，你需要 iOS 14。我们如此艰难地接近苹果最新移动操作系统的全面发布，我不觉得谈论那些你还不能安装的提示有什么不好(除了 [一个公开测试版](https://lifehacker.com/how-to-get-started-with-the-ios-14-public-beta-1844324554) ，你现在应该完全尝试一下)。
 

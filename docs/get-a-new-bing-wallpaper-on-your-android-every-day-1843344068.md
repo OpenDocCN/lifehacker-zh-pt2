@@ -4,7 +4,7 @@
 
 我可以肯定地说，更多的人喜欢必应的壁纸，而不是它的搜索引擎。以至于，事实上，微软已经发布了 Bing 的壁纸作为 Windows 的 [桌面背景，它甚至最近推出了一个官方的用于 Android 设备的](https://lifehacker.com/get-bing-wallpapers-for-your-windows-desktop-with-these-1842963251) [Bing 壁纸应用](https://play.google.com/store/apps/details?id=com.microsoft.bing.wallpapers) 。
 
-Watch
+
 
 然而，必应壁纸应用不仅仅是背景的集合。它包括一个有用的界面，带有过滤器和类别搜索选项，甚至可以每天、每周或每月自动切换到不同的背景——这是许多当代第一方背景应用程序非常缺乏的(看看你，谷歌)。
 

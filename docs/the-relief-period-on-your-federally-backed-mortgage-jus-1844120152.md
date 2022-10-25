@@ -4,7 +4,7 @@
 
 担心在疫情期间支付抵押贷款的人将从政府获得延期偿付。联邦住房金融机构 [上周宣布](https://www.fhfa.gov/Media/PublicAffairs/Pages/FHFA-Extends-Foreclosure-and-Eviction-Moratorium-6172020.aspx) 房利美和房地美将延长他们的止赎和驱逐延期至“至少”8 月 31 日。
 
-Watch
+
 
 《保健法》规定的救济期将于 6 月 30 日到期。延长期限和最初的减免期适用于政府支持的抵押贷款，即来自房利美和房地美、联邦住房管理局(FHA)、美国退伍军人事务部(VA)、美国住房开发部(HUD)或美国农业部(USDA)的抵押贷款。
 

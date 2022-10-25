@@ -4,7 +4,7 @@
 
 Lifehacker 最近 [发布了一个视频](https://lifehacker.com/is-it-faster-to-ask-a-digital-assistant-or-just-do-it-y-1834390220) ，其中两个受试者测试了一个亚马逊 Echo 的功能。不久之后，我们的 [高级技术编辑大卫·墨菲](https://kinja.com/thedavidmurphy) 提醒视频团队，任何通过扬声器在家观看视频的人都会发现，每当视频中有人说出唤醒单词“Alexa”时，他们的回声就会反复激活
 
-Watch
+
 
 现在，这不一定是坏的，因为播放我们的视频会自动让 Alexa 告诉你时间、天气或最新的头条新闻。但当然这可能会很麻烦，所以我们找到了一种方法，某人制作视频、音频记录或播客可以阻止 Alexa 响应。
 

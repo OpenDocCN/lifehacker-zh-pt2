@@ -4,7 +4,7 @@
 
 告诉你哪些节目和电影在哪些流媒体服务上的网站[【reel good】](https://reelgood.com)，有了一份新的 [年度报告](https://lifehacker.com/heres-the-streaming-video-service-thats-the-best-bargai-1829370696) 关于哪个是最划算的:Hulu、网飞或 Prime Video。今年，网飞正在节节败退。
 
-Watch
+
 
 如果你想要拥有最多电影和电视节目的服务，选择 Prime Video。但是你可能想要的是最好的电影和电视节目。Reelgood 衡量前三大流媒体工具上有多少好的标题，加上 HBO 和 Showtime，根据用户受欢迎程度和 IMDb 评级来定义。该网站将于明天发布他们的分析，但他们提前与 Lifehacker 分享了他们的一些发现。
 

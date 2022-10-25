@@ -4,7 +4,7 @@
 
 无论是在离职之前还是之后，拥有一份工作邮件的个人副本肯定会派上用场。你以后可以参考它们，例如，记录你收到的反馈或你参与的项目——也许是你下一次演出的样本。
 
-Watch
+
 
 有很多方法可以用来创建工作邮件的备份。我们将浏览 Outlook 和 Gmail 的几个选项，但在我们开始之前，要知道:**你的公司拥有你的工作邮件**。为了避免任何法律后果，在对你的电子邮件进行存档之前，请与你的 IT 部门或主管核实，以免你发现自己在 [结束了一场不愉快的诉讼](https://www.workforce.com/news/employee-copying-documents-protected-activity-unlawful-stealing) 。
 

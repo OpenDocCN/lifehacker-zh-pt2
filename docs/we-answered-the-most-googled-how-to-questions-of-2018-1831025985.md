@@ -4,7 +4,7 @@
 
 根据谷歌年度回顾 中的 [,“如何投票”正式成为 2018 年最热门的搜索词。Lifehacker 有了答案。事实上，今年谷歌十大搜索中有九个我们都有了答案。(而我们的姐妹站点回答了第十个。)](http://google.com/2018) 
 
-Watch
+
 
 1.  **如何投票:**我们告诉过你[2018 年中期选举如何投票](https://lifehacker.com/all-the-information-you-need-to-vote-in-the-2018-midter-1829328834) 、 [如何克服选民压制战术](https://lifehacker.com/the-most-common-voter-suppression-scams-1830095243) 、 [如果你是残疾人如何投票](https://lifehacker.com/how-to-vote-if-youre-hospitalized-or-disabled-1830236833) 。
 

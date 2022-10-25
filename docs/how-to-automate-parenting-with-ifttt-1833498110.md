@@ -4,7 +4,7 @@
 
 IFTTT ，这个让你的数字生活自动化的工具，可以帮助任何精神负荷达到最大容量的父母——每次使用它，你都有点像一个技术魔术师。这里有一些很棒的 IFTTT 小程序，可以让育儿变得更容易。(如果你是这项服务的新手，请查看我们的初级指南以了解基本知识。)
 
-Watch
+
 
 ### **放学后在你家开始** [**直播**](https://ifttt.com/applets/186928p-start-a-live-stream-at-the-same-time-every-weekday-so-you-can-watch-the-kids-arrive-home) **，这样你就知道你的孩子安全到达了**
 

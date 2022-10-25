@@ -4,7 +4,7 @@
 
 前几天，我偶然看到了一篇我在四月初写的文章，当时我们刚进入疫情 2-3 周。它的标题是，“ [”如果你现在正在努力为人父母，你并不孤单](https://offspring.lifehacker.com/if-you-re-struggling-to-parent-right-now-you-re-not-al-1842641280) ，”它现在读起来就像一个悲伤的时间胶囊。这让我立刻回想起最初几周的感受，那是多么漫长、紧张、和*无休无止。*
 
-Watch
+
 
 从早期的疫情开始，我们已经走了很长的路，但是我们现在意识到我们还有很长的路要走。这个学年将会变得如此怪异，以至于我们将今年 Lifehacker 的返校主题周命名为“[Back-*ish*To School Week](https://lifehacker.com/c/back-ish-to-school)”我想通过集体深呼吸和提醒我们自己一些重要的事情来结束学校周。
 

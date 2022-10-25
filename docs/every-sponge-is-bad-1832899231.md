@@ -6,7 +6,7 @@
 
 传统的海绵吸收污物，一周内就会变臭。擦洗起来也很糟糕。硅胶海绵不吸污物，因为 [它不吸任何东西](https://www.apartmenttherapy.com/silicone-sponge-scrubber-review-does-it-work-243860) ，而且你会用太多肥皂。 [超细纤维海绵](https://www.amazon.com/Ultra-Micro-Fiber-Miracle-Sponge/dp/B00SI2BNU8/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/every-sponge-is-bad-1832899231&asc_source=&tag=kinjalifehackerlink-20) 基本上是传统海绵:不好。
 
-Watch
+
 
 [擦洗爸爸](https://scrubdaddy.com/) 用力擦洗就会散架，它的“控温”材料在热水(理想的擦洗温度)下软绵绵的，很脆弱。这个 [桃色清洁](https://www.amazon.com/Antimicrobial-Silicone-Scrubber-Peachy-Clean/dp/B01AS83DCA/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/every-sponge-is-bad-1832899231&asc_source=&tag=kinjalifehackerlink-20) 是磨砂爸爸的一个不太坏的版本。根据我的经验，它能更好地保持它的结构。它闻起来像桃子。还是不好。
 

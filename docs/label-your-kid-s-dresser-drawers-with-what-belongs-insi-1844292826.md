@@ -4,7 +4,7 @@
 
 如果你的孩子不愿意收拾衣服、玩具或其他物品，很有可能他们只是不想收拾。但如果这已经成为一场常规的战斗，他们对要求的反对似乎与要求不相称，那么可能有更深层的原因在起作用。他们可能真的搞不清楚哪些物品该放在哪里。
 
-Watch
+
 
 这是 Reddit 上一位家长最近的顿悟，当时他们的女儿不同意把衣服放在她的衣柜里。 [U/cahawkri3510 解释](https://www.reddit.com/r/Parenting/comments/he79xz/45yo_had_an_epic_meltdown_about_putting_her/) :
 

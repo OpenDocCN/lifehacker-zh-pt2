@@ -4,7 +4,7 @@
 
 Alexa Skill Blueprints 上的 [房客指南](https://blueprints.amazon.com/bp/amzn.ask.bp.dc73216e-ab8e-45bb-9552-38a013d38515?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/make-a-houseguest-guide-with-alexa-1830407695&asc_source=&tag=kinjalifehackerlink-20) 可以让你对 Alexa 进行编程，以回答保姆、临时保姆和其他客人的问题。你可以解释电视遥控器，垃圾程序，以及让淋浴工作的技巧，Alexa 会把这些都包含在一个房客指南技能中。
 
-Watch
+
 
 出于隐私原因，亚马逊 Echo 在我家被禁止，所以我们只能用老办法给我们的客人发电子邮件介绍房子，然后发短信告诉他们我们漏掉的所有东西。为我们工作。但是，如果你已经习惯于依赖 Alexa 来解决各种家庭问题，这是一种方便的方式来建立一个全面的指南，而不用交给你的客人一个感觉像家庭作业的巨大文档。
 

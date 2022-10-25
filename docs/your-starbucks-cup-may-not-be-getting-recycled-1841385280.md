@@ -4,7 +4,7 @@
 
 为了应对星巴克越来越多的浪费问题，今年， [这家咖啡连锁店宣布在旧金山和西雅图等城市试运行](https://www.cnbc.com/2019/03/20/starbucks-announces-trials-for-recyclable-and-compostable-cups.html) 其最新的可回收和可堆肥杯子设计。回到 2018 年， [星巴克](https://www.businessinsider.com/starbucks-replaces-straws-with-sippy-cup-lid-2018-7) 也开始在全国范围内推出其 clear、 [可回收](https://www.forbes.com/sites/trevornace/2018/07/10/starbucks-to-ditch-plastic-straws-worldwide-for-adult-sippy-cups/#8f398a6c9eb6) sippy 杯子，用于其部分冷饮。
 
-Watch
+
 
 但是等等——熟悉的星巴克纸杯有什么不好？好吧，不仅仅是纸张。大多数纸杯的内部是聚乙烯塑料衬里，旨在帮助防止渗漏。这种衬里给回收设施带来了问题，回收设施随后被迫将衬里与纸分离，以适当地回收材料。
 

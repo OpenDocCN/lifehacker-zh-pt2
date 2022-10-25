@@ -4,7 +4,7 @@
 
 你已经知道 [你的许多财务决策](https://twocents.lifehacker.com/how-your-psychology-affects-your-finances-1821986465) 都不是理性做出的: [近期偏差](https://lifehacker.com/seven-mental-biases-that-can-impact-how-you-invest-1651324703)[沉没成本谬误](https://lifehacker.com/the-cognitive-biases-that-lead-to-bad-money-decisions-1777406419) 和 [心理会计](https://twocents.lifehacker.com/how-your-psychology-affects-your-finances-1821986465) 都在我们如何花钱、存钱和思考我们的钱方面发挥着重要作用。一份新的报告增加了一种新的偏见，当你选择投资时要注意。
 
-Watch
+
 
 [报告](https://poseidon01.ssrn.com/delivery.php?ID=674066092020080067112006003086021101038046007020059034127066086110127101099074031028056033058006042055014024031096117113092100053082054001060125112077007099105084088041055020084031066088067023117008071031066018127074002029088097090065015101100079024&EXT=pdf) ，“401(k)投资中的字母顺序偏差”发现，基金的排列顺序(通常是字母顺序)“显著地偏差了参与者的投资分配决策。“当有大量基金可供选择时，这种偏见会更加明显，但当可用的基金“相对较少”时，这种偏见也会存在。
 

@@ -4,7 +4,7 @@
 
 去度假是梦幻般的，对你的大脑有好处 [无论你的预算](https://twocents.lifehacker.com/how-to-take-an-affordable-vacation-1834299635) 。但是，当从纽约到伦敦的一次往返旅行向大气中释放出一吨二氧化碳(足以融化 [三平方米](https://www.latimes.com/science/sciencenow/la-sci-sn-co2-sea-ice-20161103-story.html) 的北极冰)时，很难放松下来，享受免费的飞机酒而不去回味它。如果你想在 2020 年过一个没有[*flygskam*](https://www.ft.com/content/5c635430-1dbc-11ea-97df-cc63de1d73f4)，的假期，我们有一些小贴士，可以让你在未来的一年里做出更环保的旅行选择。
 
-Watch
+
 
 ### 少坐飞机
 

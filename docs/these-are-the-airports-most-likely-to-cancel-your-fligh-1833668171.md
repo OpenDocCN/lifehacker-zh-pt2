@@ -4,7 +4,7 @@
 
 我们都有一个不惜一切代价试图避开的机场——我的机场是拉瓜迪亚机场。在纽约生活了十年，我知道如果我在 LGA 飞行，我可能会遇到一些旅行中的不幸，无论是航班延误、取消，还是因为腹痛而吃干羊角面包。
 
-Watch
+
 
 幸运的是，由于 [InsureMyTrip](https://www.prnewswire.com/news-releases/travel-report-us-airports-prone-to-flight-cancellations-300816546.html) 的一份报告，我们现在知道哪些机场我们应该*都*避开。本周，该公司汇总了 2018 年的数据，根据航班取消数量对机场进行排名，这些数据来自交通部运输统计局。
 

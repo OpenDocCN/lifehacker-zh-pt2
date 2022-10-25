@@ -4,7 +4,7 @@
 
 说到度假，我们都有那些我们知道自己想去的旅行目的地。也就是说，有时你也只需要离开一个长周末，几乎任何地方都可以。当然，任何不会让你倾家荡产的地方。
 
-Watch
+
 
 麻省理工学院的可感知城市实验室最近推出了一种新的互动地图 ，以帮助回答你应该去哪里进行最后一分钟的逃离。 [据 *Fast Company*](https://www.fastcompany.com/90279510/these-are-the-cheapest-cities-to-escape-to-right-now?partner=feedburner&utm_source=feedburner&utm_medium=feed&utm_campaign=feedburner+fastcompany&utm_content=feedburner) 报道，该工具让你输入你的家乡和你的旅行日期，然后生成一张交互式地图，显示你去世界各地的目的地旅行可能要花多少钱。
 

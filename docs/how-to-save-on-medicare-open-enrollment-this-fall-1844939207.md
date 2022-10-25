@@ -4,7 +4,7 @@
 
 随着秋天的临近，是时候开始考虑 [医疗保险开放注册](https://www.cms.gov/Outreach-and-Education/Reach-Out/Find-tools-to-help-you-help-others/Medicare-Open-Enrollment)了，这离正式开始还有六周。从 10 月 15 日到 12 月 7 日，老年人有机会选择新的 Medicare 和 Part D 处方药计划。您也可以从 Medicare 计划(A 部分和 B 部分)切换到具有 Medicare Advantage 的私人计划。
 
-Watch
+
 
 根据新 CBNC 的一份报告，虽然自动重新加入你当前的医疗保险计划很诱人，但你可能会错过数百美元的可能储蓄。以下是过程中需要了解的内容。
 

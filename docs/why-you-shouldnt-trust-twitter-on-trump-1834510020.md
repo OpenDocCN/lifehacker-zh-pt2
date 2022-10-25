@@ -4,7 +4,7 @@
 
 根据华盛顿邮报 T3[的报道，自上任以来，特朗普总统发表了 1 万次虚假或误导性的言论。](https://www.washingtonpost.com/politics/2019/04/29/president-trump-has-made-more-than-false-or-misleading-claims/?utm_term=.413daa1db5e2)
 
-Watch
+
 
 考虑到这个惊人的数字，人们比以往任何时候都更容易对他的一些“事实”陈述产生怀疑根据非营利监督组织 [媒体事务](https://www.mediamatters.org/) 的一项新研究，他不是唯一一个传播#fakenews 的人。
 

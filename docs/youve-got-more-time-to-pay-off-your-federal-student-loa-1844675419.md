@@ -4,7 +4,7 @@
 
 为联邦学生贷款项目的结束而紧张的借款人在九月得到了喘息的机会。 周六，唐纳德·川普 [总统签署了一项行政命令](https://www.whitehouse.gov/presidential-actions/memorandum-continued-student-loan-payment-relief-covid-19-pandemic/) 延长联邦学生贷款支付的减免。新的命令——也暂停应计利息——允许借款人在 12 月 31 日之前停止还款。由 2 万亿美元关怀法案创建，目前的学生贷款暂停将于 9 月 30 日到期。
 
-Watch
+
 
 随着国家仍在疫情中蹒跚前行， [专家警告说](https://www.cnbc.com/2020/07/28/in-gop-stimulus-plan-little-relief-for-student-loan-borrowers.html) 如果没有更多的救济，可能会有一波学生贷款拖欠和违约。川普的新措施适用于大多数联邦贷款——但 [政治报道](https://www.politico.com/news/2020/08/08/trump-extends-student-loan-relief-through-years-end-392724) 称，它仍然排除了约 900 万由私人贷款机构或学校持有贷款的联邦借款人。
 

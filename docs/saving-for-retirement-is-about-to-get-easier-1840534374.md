@@ -4,7 +4,7 @@
 
 对于你最终的退休来说，这里有一些好消息:国会正试图让你更容易存钱，以便有一天你可以最终放下公文包，在海滩上放松一下。
 
-Watch
+
 
 [2019 年](https://www.congress.gov/bill/116th-congress/house-bill/1994) 的《为每个社区设立退休保障法案》(Setting Every Community Up for Retirement Enhancement Act)，也被称为《安全法案》(SECURE Act)，被纳入政府的年终支出法案，该法案于本周获得众议院批准。下一步，该法案将提交参议院，预计将在假期前通过。
 

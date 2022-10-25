@@ -4,7 +4,7 @@
 
 根据 [Grubhub 的](https://www.grubhub.com/) 年度“ [年内食品](https://media.grubhub.com/media/press-releases/press-release-details/2019/Grubhub-Launches-Annual-Year-In-Food-Report-Highlighting-The-Top-Trends-In-2019/default.aspx) ”报告，送餐平台平均每天超过 45 万单。莫名其妙的是，菜花披萨也是 2019 年单个点的最多的菜。
 
-Watch
+
 
 我们明白了(至少送货部分——不是花椰菜披萨的事情)。当你累了或者感觉很懒的时候，没有什么能比得上门铃响了，食物送到你家门口时的兴奋。然而，这种依赖最方便的东西的倾向经常导致浪费。想一想去年你在食品配送订单中积累的所有塑料和纸垃圾，特别是如果你是一个经常点餐的人。(在像中国这样的国家，送餐应用的便利导致了一次性塑料垃圾的过剩，《纽约时报》12 月报道 。)
 

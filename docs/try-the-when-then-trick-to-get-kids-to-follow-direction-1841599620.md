@@ -4,7 +4,7 @@
 
 有时候，偶尔，每隔一段时间，一个孩子就是不想顺从。他们需要去拿鞋吗？ *Nah* 。洗澡时间到了？*谢谢但不用谢*。你想让他们把玩具收起来？*不感兴趣*。这就是你使用“何时/然后”技巧的时候。
 
-Watch
+
 
 安吉拉·伊利亚为 [PopSugar](https://www.popsugar.com/family/avoid-power-struggles-with-toddlers-using-this-expert-hack-47161730) 写道，她从艾米·麦克里迪的 [积极育儿解决方案](https://www.positiveparentingsolutions.com/parenting/simple-words-to-avoid-power-struggles) 课程中学到了这个方法，内容如下:
 

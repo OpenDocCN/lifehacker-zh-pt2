@@ -4,7 +4,7 @@
 
 使用谷歌地图很容易看到你的办公室离你最喜欢的餐馆有多远，或者从洛杉矶开车到纽约需要多长时间。然而，估计两个地点之间的距离，而不依赖于使你的估计混乱的蜿蜒道路，是有点复杂的。当然，你可以尝试用屏幕底部的距离标尺来测量它，但是一种奇怪的地图(我们最初在 reddit 上了解到的 [)使得估计点到点的距离(或“直线距离”)非常容易，无论你是使用你的桌面还是 Android 或 iOS 设备。](https://www.reddit.com/r/YouShouldKnow/comments/6y79zw/ysk_that_you_can_measure_distances_on_google_maps/) 
 
-Watch
+
 
 ### 如何在桌面上测量距离
 

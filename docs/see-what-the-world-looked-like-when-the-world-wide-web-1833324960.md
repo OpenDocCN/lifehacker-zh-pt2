@@ -4,7 +4,7 @@
 
 本周，万维网迎来了它的 30 岁生日，每个人都用他们所知道的最好的方式来庆祝——列出我们在过去几十年中处理过(或痴迷过)的所有互联网相关话题的清单。这包括拨号调制解调器、美国在线、 [头像-](https://www.youtube.com/watch?v=etdK69B0pvU) 和 [基于漫画的](https://www.youtube.com/watch?v=goEqyQgWIe4) 聊天室，以及[Homestar Runner](https://www.youtube.com/watch?v=JwZwkk7q25I)，这些只是我在成长过程中想到的几个项目。哦，还有 [快乐的小狗](https://www.wired.com/1997/02/happy-puppy-snaps-up-games-domain/) 。还记得从快乐小狗那里得到游戏吗？*叹息。*
 
-Watch
+
 
 我有另一个想法，而不是花一些时间去回忆在 13 英寸的 CRT 显示器上浏览网页是什么感觉。你仍然可以细读 [众多精彩怀旧综述](https://gizmodo.com/100-websites-that-shaped-the-internet-as-we-know-it-1829634771) 中的一篇，并深情地反思逝去的数字时代。但是当你这么做的时候(或者不久之后)，访问一下谷歌的定时拍摄网站。
 

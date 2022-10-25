@@ -4,7 +4,7 @@
 
 你可能已经对那些可能从读卡器中窃取你的支付信息的加油站撇油器心存警惕。现在，Visa 就加油站的新威胁发出了警告:黑客通过加油站的销售系统进行攻击。
 
-Watch
+
 
 黑客通过向员工发送钓鱼邮件进入加油站的销售点系统， [根据 Visa 的报告](http://click.broadcasts.visa.com/xfm/?30761/0/0624013ddc6f39785bf56d504f3b812e/lonew) ，原文由 [Engadget](https://www.engadget.com/2019/12/16/visa-gas-station-fraud-malware/) 分享。从那里，当你把卡插入加油机时，黑客可以从你卡的磁条上获取你的信息。
 

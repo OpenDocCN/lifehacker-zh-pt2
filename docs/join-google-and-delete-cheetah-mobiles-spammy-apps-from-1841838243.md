@@ -4,7 +4,7 @@
 
 谷歌最近宣布禁止 Play Store 的 600 多个应用程序使用激进的广告手法。 [Buzzfeed 报道](https://www.buzzfeednews.com/article/craigsilverman/google-bans-android-apps-disruptive-ads) 许多应用是由猎豹移动等相对受欢迎的开发者发布的，在被禁之前，猎豹移动在 Play Store 上有 45 款应用——有些下载量高达*十亿*。
 
-Watch
+
 
 虽然谷歌没有公布违规应用的名单，但你至少可以从手机上移除猎豹移动的任何应用。如果有几个你经常使用的应用程序对它们的广告有点反感，看看它们是否还存在于谷歌 Play 商店。如果没有，是时候把它们从你的设备中移除，并找到一个替代物了。(除此之外，试用一款类似于 [AdGuard](https://adguard.com/en/adguard-android/overview.html) 的应用可能会有所帮助。)
 

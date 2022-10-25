@@ -4,7 +4,7 @@
 
 从周日开始，我一直在庆祝我的生日，而且喝了不少酒。我在密西西比州喝过 [玛格丽特](https://www.instagram.com/p/B0wmGyGhLwB/) ，在旋转木马酒吧喝过 Viuex[carré](https://www.instagram.com/p/B0zEEMhB6Wn/)，在波特兰这里喝过 [非常潮湿的蚱蜢](https://www.instagram.com/p/B04tMPUBJtK/) 。现在——以典型的狮子座方式——我请你继续和我一起用一些我最喜欢的东西来庆祝。
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Celebrate My Birthday With This Bitter, Herbaceous Beverage](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/make-an-absolutely-filthy-martini-with-msg-1836892332)</aside>
 

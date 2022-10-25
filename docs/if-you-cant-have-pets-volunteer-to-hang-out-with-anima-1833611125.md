@@ -4,7 +4,7 @@
 
 也许你住在一个禁止动物的房子里，也许你有一个过敏的伴侣；这并不意味着猫和狗不能成为你日常生活的一部分。在动物收容所做志愿者对渴望宠物的人来说是一个绝佳的机会。
 
-Watch
+
 
 redditor[u/mollylejames](https://www.reddit.com/user/mollyleejames)在 r/LifeProTips 上兴高采烈地宣布，许多 [收容所需要志愿者](https://www.reddit.com/r/LifeProTips/comments/b5fn8x/lpt_its_free_to_go_to_the_humane_society_and_pet/) 帮助猫和狗进行社交，让它们有事可做，受人喜爱:
 

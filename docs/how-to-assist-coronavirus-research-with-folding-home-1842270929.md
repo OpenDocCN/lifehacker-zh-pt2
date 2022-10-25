@@ -4,7 +4,7 @@
 
 回想我在*最大 PC* 工作的时候，我们是 [大进折](https://stats.foldingathome.org/team/11108) 。我们有一个由编辑、读者和计算机组成的庞大团队为斯坦福大学的项目做出贡献，该项目将你系统中未使用的资源用于 [蛋白质折叠](https://foldingathome.org/support/faq/project-details/) 。您的系统加入了一个分布式计算网络，为研究人员处理计算，让他们了解如何治疗癌症、帕金森病和现在的新冠肺炎等疾病。
 
-Watch
+
 
 开始很容易。下载适用于 Windows、macOS 或 Linux 的 [Folding@Home 客户端](https://foldingathome.org/alternative-downloads/) ，并将其安装在您经常使用的系统上。启动应用程序，它会弹出一个网站，在那里你可以选择是匿名折叠蛋白质还是有一个与你的工作相关的句柄。(去追名逐利。选后者。)
 

@@ -4,7 +4,7 @@
 
 米饭和这么多东西搭配得很好:一个熊猫快递碗，一个婚礼(不， [小鸟不会爆炸](http://mentalfloss.com/article/31421/does-wedding-rice-really-make-birds-explode) )， [香菜茎](https://skillet.lifehacker.com/make-chipotle-style-rice-with-cilantro-stems-1829820745) 。它不能与你潮湿的智能手机相混合，即使你可能已经被灌输了当你不小心浸泡了你的设备时，你想做的第一件事就是把它放入一大碗生米中。
 
-Watch
+
 
 事实证明，大米没有任何作用。这是相关性， [不是因果关系](https://medium.com/causal-data-science/if-correlation-doesnt-imply-causation-then-what-does-c74f20d26438) 。但是很多人把他们浸泡过的设备放在大米里，让它静置一天，当他们发现他们的设备神奇地再次工作时，称赞黑暗神为他们节省了数百美元。米饭！*米饭！*
 

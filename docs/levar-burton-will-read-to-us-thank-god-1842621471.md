@@ -4,7 +4,7 @@
 
 在过去的几周里，许多名人站出来为我们(和我们的孩子)朗读。 [演员乔什·加德](https://offspring.lifehacker.com/actor-josh-gad-will-read-to-your-kids-every-night-1842398287) ，奥拉夫的声音，是第一批开始通过推特和 Instagram 为孩子们现场朗读的人。詹妮弗·加纳和艾米·亚当斯发起了#[savewithtories](https://offspring.lifehacker.com/how-to-help-feed-kids-in-need-during-school-closures-1842412136)活动，鼓励许多名人给我们读书。甚至 [多莉·帕顿](https://www.npr.org/sections/coronavirus-live-updates/2020/03/31/824638554/dolly-parton-will-read-bedtime-stories-to-kids-online-every-week) 也愿意每周一次用睡前故事来分散我们的注意力。但是莱瓦尔·伯顿呢？他就是我们现在需要的声音。
 
-Watch
+
 
 伯顿 [昨天在推特](https://twitter.com/levarburton/status/1245359822297423873) 上宣布，他将每周给我们读三次:周一中午(东部时间)给孩子们读；周三下午 6 点(针对年轻人)；星期五晚上 9 点，我们中的成年人。
 

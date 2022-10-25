@@ -4,7 +4,7 @@
 
 特朗普总统今天表示，联邦学生贷款借款人可以 60 天不还款。但不是自动的。
 
-Watch
+
 
 来自教育部的 [新闻稿](https://www.ed.gov/news/press-releases/delivering-president-trumps-promise-secretary-devos-suspends-federal-student-loan-payments-waives-interest-during-national-emergency) :
 

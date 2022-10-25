@@ -4,7 +4,7 @@
 
 在 9 名在多明尼加共和国旅游的美国游客死亡后的几周里，数百名去过该国的游客在网站[【IWasPoisoned.com】](https://iwaspoisoned.com/)上报告了他们自己类似食物中毒的症状；自 2019 年初以来，在超过 [的时间里，总共报告了 1600 例](https://www.businessinsider.com/dominican-republic-i-was-poisoned-reports-2019-6) 疾病。
 
-Watch
+
 
 “我在迷你酒吧喝了点酒，大约在 12:30 就睡着了，” [一位评论者写下了](https://iwaspoisoned.com/incident/hard-rock-hotel-casino-punta-cana-bv-turistico-del-este-punta-cana-dominican-republic-222904#emailscroll) 他在蓬塔卡纳硬石酒店的经历——其中两名游客曾在那里住过。“我在凌晨 3 点左右醒来，病得很厉害，伴有发烧、发冷、呕吐和腹泻。从 5 月 7 日到 5 月 11 日，我一直在生病。回家后，我又病了一个星期。我和我老婆再也不回去了。”
 

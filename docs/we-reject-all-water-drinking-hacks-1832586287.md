@@ -4,7 +4,7 @@
 
 告诉人们多喝水是一种懒惰且无用的健康伎俩。你渴了就会喝水。为什么要把事情复杂化？
 
-Watch
+
 
 我应该可以在那里结束帖子，但由于某种原因，有 [列表](https://www.elle.com/beauty/health-fitness/advice/a19189/water-drinking-hacks/)[列表](https://helloglow.co/hydration-hacks-11-easy-ways-to-drink-more-water/)[列表](https://blog.myfitnesspal.com/20-life-hacks-for-drinking-more-water/) 在那里的水化黑客。欺骗自己多喝水的方法。(我们甚至已经发布了 [一个](https://lifehacker.com/how-to-trick-yourself-into-drinking-more-water-every-da-1678956552) 或者 [两个](https://lifehacker.com/what-the-color-of-your-pee-says-about-your-health-1477171258) 。)从这些看来，你会认为在你的生活中获得更多的水是非常重要的。不止如此。不，甚至更多。一饮而尽。
 

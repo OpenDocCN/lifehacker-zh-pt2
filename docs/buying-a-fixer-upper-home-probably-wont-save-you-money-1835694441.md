@@ -4,7 +4,7 @@
 
 如果你因为想“省钱”而一直在考虑买一套房子，那就要小心了。
 
-Watch
+
 
 [门廊](https://porch.com/resource/turnkey-fixer-upper) 的一项新调查显示，一旦你把翻新的费用加进去，修复的房子可能和交钥匙一样贵:
 

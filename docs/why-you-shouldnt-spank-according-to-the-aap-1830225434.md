@@ -4,7 +4,7 @@
 
 美国儿科学会强烈反对体罚，呼吁禁止体罚。它现在还说，“严厉的口头纪律”，包括羞辱和羞辱，对孩子的大脑发育有害。
 
-Watch
+
 
 AAP 今天宣布，将更新其已有 20 年历史的“ [有效管教指南](http://pediatrics.aappublications.org/content/101/4/723.long) ”，该指南称“体罚效果有限，且具有潜在的有害副作用。美国儿科学会(American Academy of Pediatrics)建议鼓励和帮助父母开发除打屁股以外的方法来管理不良行为。
 

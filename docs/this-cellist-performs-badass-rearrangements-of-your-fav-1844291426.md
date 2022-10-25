@@ -4,7 +4,7 @@
 
 一位专业大提琴家已经准确地找出了我们现在都需要什么——我们最喜欢的电视、电影和电子游戏主题曲，这些歌曲被改编成 8 或 10 部分的大提琴作品，完全由她演奏。
 
-Watch
+
 
 萨马拉·金斯堡安排并表演了她自己的古典风格，涉及广泛的极客友好主题，从电视连续剧 [*雷猫*](https://www.youtube.com/watch?v=tKZzgeqJb0Y)*[*飞狼*](https://www.youtube.com/watch?v=73iTHJQaxcY) 和 [*路易斯&克拉克:超人新冒险*](https://www.youtube.com/watch?v=PCatanid3-4) 到视频游戏 [*先从*](https://www.youtube.com/watch?v=lt13oLV6Lp4) *[*霹雳游侠*](https://www.youtube.com/watch?v=eYf595EJAc4)* *说起，虽然；*霹雳游侠*不可思议。**
 

@@ -4,7 +4,7 @@
 
 当特朗普总统上周将 2 万亿美元的冠状病毒刺激法案签署成为法律时，像 [复苏退税支票](https://twocents.lifehacker.com/all-your-coronavirus-relief-check-questions-answered-1842526582) 和 [扩大失业福利](https://twocents.lifehacker.com/how-unemployment-benefits-are-changing-with-the-senate-1842494496) 这样的项目得到了大多数最初的关注。但是在第 825 页，你会发现一套免除学生贷款的新规则。
 
-Watch
+
 
 这很令人困惑，因为特朗普总统和教育部长贝琪·德沃斯之前宣布了在冠状病毒疫情期间联邦学生贷款支付和利息的。以下是您需要了解的最新一轮住宿信息，它取代了之前的公告。
 

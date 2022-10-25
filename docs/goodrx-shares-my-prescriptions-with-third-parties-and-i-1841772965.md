@@ -4,7 +4,7 @@
 
 鉴于这个国家糟糕的医疗保健状况，科技公司——尤其是应用领域的科技公司——左拥右抱，试图解决联邦政府不能或不愿解决的问题。想监测你的血压吗？ [那个](https://www.healthline.com/health/heart-disease/top-iphone-android-apps#bloodpressure-monitor) 有个 app。心理健康让你沮丧？ [那个也有 app](https://jezebel.com/the-spooky-loosely-regulated-world-of-online-therapy-1841791137)。当然，还有一些应用程序可以缓解困扰整个国家的数百万美元的头痛问题:。没有比 GoodRX 更受欢迎的了。它是苹果应用商店 中排名最靠前的 [，拥有](https://www.similarweb.com/apps/top/apple/store-rank/us/medical/top-free/iphone) [超过 450，000 个五星评级](https://sensortower.com/ios/us/goodrx/app/goodrx-save-on-prescriptions/485357017/overview) ，并且是——根据该公司自己的标准，每月大约有 1000 万用户——以你能承受的价格获得你需要的处方的关键。
 
-Watch
+
 
 见鬼，在成为有收入的工作之前，*我*日复一日地用这个应用程序从我的精神药物处方中减去了数百张。我当时没有意识到的是，每一次处方补充都有很多附加条件。
 

@@ -4,7 +4,7 @@
 
 建立和维护一个健康的信用记录可能会非常困难。但是如果你在 [建立了你的信用档案](https://twocents.lifehacker.com/everything-you-need-to-know-about-credit-how-to-check-1797093506) 之后搬到美国以外的地方，保持你的良好状态会更加困难。
 
-Watch
+
 
 一位 Lifehacker 读者经历了惨痛的教训才明白这一点。他是一名在海外工作的美国公民，使用公司的美国总部作为他的法定地址。
 

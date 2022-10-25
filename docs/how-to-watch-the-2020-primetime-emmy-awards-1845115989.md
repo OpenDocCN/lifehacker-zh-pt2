@@ -4,7 +4,7 @@
 
 这个国家 [目前正在处理着火的](https://lifehacker.com/how-to-help-those-impacted-by-the-northern-california-w-1844904181)在疫情和总统大选即将到来之际，颁奖典礼之类的事情可能(可以理解地)不会出现在我们的雷达上。但是现在是九月，第 72 届艾美奖奖就要到了——准确地说是今晚。下面是今年赛事需要了解的内容，包括 [如何观看](https://www.indiewire.com/2020/09/how-watch-2020-primetime-emmys-1234577250) 。
 
-Watch
+
 
 ### 今年的艾美奖怎么样了？
 

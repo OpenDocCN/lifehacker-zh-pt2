@@ -4,7 +4,7 @@
 
 U-Haul [向任何因疫情而被迫突然离开宿舍的大学生提供 30 天免费寄存](https://www.uhaul.com/Articles/About/20625/College-Students-U-Haul-Offers-30-Days-Free-Self-Storage-amid-Coronavirus-Outbreak/) 。
 
-Watch
+
 
 这笔交易对全美所有 U-Haul 拥有和运营的设施都有好处。为了利用这项交易，学生需要不是现有的 U-Haul 客户，并拥有有效的大学身份证。
 

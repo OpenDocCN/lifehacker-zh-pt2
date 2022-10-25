@@ -4,7 +4,7 @@
 
 当谈到用户隐私时，我经常推荐 [Firefox 而不是谷歌 Chrome](https://lifehacker.com/the-best-browsers-for-ad-blocking-that-arent-chrome-1835130559)，但是尽管对谷歌收集多少用户数据有合理的担忧，该公司已经变得很好地让我们控制如何处理这些数据——包括让我们设置定时器来自动删除一些数据。
 
-Watch
+
 
 这是 Chrome 比 Firefox 有优势的一个例子。 Chrome 可以选择在你注销电脑时自动删除你的浏览数据，谷歌最近也让我们更容易自动删除其他类型的收集信息，比如我们设备上的位置数据或我们的 YouTube 观看和搜索历史。
 

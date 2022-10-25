@@ -4,7 +4,7 @@
 
 当你旅行时，酒店的保险箱可以很好地保护你的护照等物品的安全。它们还可以帮助你意外地将护照和贵重物品留在酒店房间里。
 
-Watch
+
 
 本周*商业内幕* [公布了英国航空公司](https://www.businessinsider.com/flight-attendant-trick-to-prevent-lost-passport-2018-10?r=US&IR=T) 空乘人员的建议，以确保你不会把那些东西落下:在保险箱里也放一只鞋。
 

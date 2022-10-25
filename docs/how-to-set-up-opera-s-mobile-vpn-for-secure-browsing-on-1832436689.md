@@ -4,7 +4,7 @@
 
 **2019 年 3 月 20 日更新:** *Opera 为 Android 用户提供的免费 VPN(内置于 Opera 应用中)现已停止测试，并将于今天开始向所有用户推出，通过* [*【谷歌 Play 商店】*](https://play.google.com/store/apps/details?id=com.opera.browser) *。立即更新您的应用！*
 
-Watch
+
 
 我们之前已经讨论过几次使用 VPN 进行网络浏览的重要性，但是几乎总是在 [寻找 VPN](https://lifehacker.com/how-to-choose-a-vpn-1831320407#_ga=2.13075959.1784146165.1549488061-1253015741.1548273887) 与你的桌面浏览器(以及其他活动)一起使用的情况下。然而，许多移动开发者正在将 VPN 直接植入他们的浏览器，最新的是 Android 上的 [Opera。](https://blogs.opera.com/mobile/2019/02/opera-browser-vpn-coming-to-android/)
 

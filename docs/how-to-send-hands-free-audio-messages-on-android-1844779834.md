@@ -4,7 +4,7 @@
 
 谷歌助手 [可以让你在你的安卓手机](https://lifehacker.com/use-google-assistant-to-listen-to-articles-on-android-1844135149) [上做大量的事情](https://lifehacker.com/how-to-connect-your-favorite-streaming-services-to-goog-1844053932)，完全免提 ，最近的更新增加了录音和发送文本语音信息。
 
-Watch
+
 
 WhatsApp 用户可能会指出，类似的功能已经在 Android 应用程序中存在了几年，但这一新的谷歌助手功能适用于谷歌消息应用程序。谷歌助理可以记录，修剪，并通过彩信和 RCS 文本发送语音到任何联系人保存在您的手机上，而不需要一个按钮按下。这非常方便，你可以这样做:
 

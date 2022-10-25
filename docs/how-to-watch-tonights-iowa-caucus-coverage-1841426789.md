@@ -4,7 +4,7 @@
 
 今晚在爱荷华州，几十万人将聚集在图书馆、社区中心，甚至是 [酒吧](https://www.youtube.com/watch?v=HE9-ysxU2EE) 辩论并选出他们的民主党总统候选人，作为该州党团会议的一部分。
 
-Watch
+
 
 你会问，为什么爱荷华州的党团会议如此重要？嗯，在 election⁠—and 赢得第一次提名竞争看起来不错，在爱荷华州的结果 [至少出现](https://www.vox.com/2020/2/3/21113394/iowa-democratic-caucus-2020-explained) 来经常预测谁最终成为一个政党的提名者( [虽然不总是](https://www.usatoday.com/story/news/politics/elections/2020/01/06/do-iowa-caucus-winners-win-presidency-party-nomination-general-election/2828834001/) )。
 

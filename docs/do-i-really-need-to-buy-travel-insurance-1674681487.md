@@ -4,7 +4,7 @@
 
 每次你购买机票、邮轮旅行或其他旅行机票时，你最终都会被问及同样的问题:你想多花几美元就增加一份旅行保险吗？在那一刻，你可能对买票和制定计划感到兴奋，而不是想办法为保险多付钱——到底是什么？
 
-Watch
+
 
 旅游险听起来是那种 [不需要](https://twocents.lifehacker.com/these-insurance-policies-arent-worth-your-money-1796076103) 的险种，就像 [延保](https://twocents.lifehacker.com/skip-the-extended-warranty-and-save-the-money-instead-1786556184) 一般不值得。但在某些情况下，支付旅游保险是明智之举。让我们来看看你的选择，以及什么时候旅行保险有意义或没有意义。
 

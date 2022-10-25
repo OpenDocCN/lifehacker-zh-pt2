@@ -4,7 +4,7 @@
 
 关于即将到来的 Pixel 4 和 4 XL 有很多 [传言](https://gizmodo.com/google-pixel-4-leaks-purport-to-show-huge-front-bezel-1836568450) ，这些都被证实将在今年晚些时候的谷歌制造 2019 活动上首次正式亮相。最有说服力的证据之一是，去年的 Pixel 3 和 3 XL 手机目前的售价比通常的 低 300 美元。似乎有人想腾出一些货架空间。 
 
-Watch
+
 
 这项交易将持续到 9 月 28 日，适用于通过 [谷歌商店](https://store.google.com/config/pixel_3) 、 [谷歌 Fi](https://fi.google.com/about/phones/) 和 [亚马逊](https://www.amazon.com/Google-Pixel-XL-Just-Black/dp/B07K3X5JTP/ref=sr_1_2?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/save-300-on-a-pixel-3-or-pixel-3-xl-through-september-1836968367&asc_source=&keywords=Pixel 3&qid=1565014940&s=wireless&sr=1-2&tag=kinjalifehackerlink-20) 购买的所有 Pixel 3 和 3 XL 手机。降价的有:
 

@@ -4,7 +4,7 @@
 
 如果你开了多种处方，或者已经开始使用非处方药或补充剂，那么可能是时候向你的医生咨询了。
 
-Watch
+
 
 哈佛医学院的助理教授 Suzanne Salamon 博士告诉 [哈佛健康](https://www.health.harvard.edu/staying-healthy/7-reasons-why-you-may-need-a-medication-check-up) 应该每年和住院后进行药物检查(这对老年人来说尤其重要)。以下是你想做的，或者鼓励你父母做的。
 

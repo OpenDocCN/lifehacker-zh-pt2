@@ -4,7 +4,7 @@
 
 无论医学让我们以多快的速度走向治疗，预防医学将永远是保持健康最有效和最便宜的方法。在本帖中，我们将介绍一些常见的女性健康筛查测试，你应该在什么时候做，当你走进去的时候你会做什么。(如果你正在寻找男性同样的信息， [我们已经在这里](https://vitals.lifehacker.com/the-medical-screenings-all-men-need-and-when-1779846310) 讨论过了。)
 
-Watch
+
 
 这里的关键词是*推荐*。这些不是规则；它们是针对具有一般风险的女性的指南(这意味着没有相关的个人或家庭病史。)由于专家们对哪些检查适合什么年龄的人有一些争论，下面的每一个建议都是由美国妇产科学大会(ACOG)[美国癌症协会](http://cancer.org)(ACS)[美国预防服务工作组](http://www.uspreventiveservicestaskforce.org)(USPSTF)[美国放射学院](http://acr.org) (ACR)和 [共同提供的](http://acponline.org)
 

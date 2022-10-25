@@ -4,7 +4,7 @@
 
 爆发是可怕的事情，恐惧会导致人们做出错误的决定。恐惧可以让人 [买一堆自己不需要的面具](https://vitals.lifehacker.com/quit-buying-coronavirus-masks-you-dont-need-1841521105)[搞休闲种族主义](https://lifehacker.com/your-racist-coronavirus-jokes-arent-funny-1841449955) ，或者避开美味的中餐。这些都是不好的事情，最后一个在美国的唐人街和中国餐馆引起了很多问题。这真的很不幸，因为你在中国餐馆感染冠状病毒的可能性不比在大城市的其他餐馆高。
 
-Watch
+
 
 尽管美国疾病控制中心 建议美国人暂缓去中国旅行，但这并没有延伸到你当地的唐人街。根据 [Vox](https://www.vox.com/2020/1/31/21113178/what-is-coronavirus-symptoms-travel-china-map) ，“目前的病例中，99%在 mainland China。其中一半以上在湖北。”正如波士顿公共卫生委员会医疗主任詹妮弗·罗博士向波士顿 WBUR 解释的那样，如果你目前在美国生活(和用餐)，你应该更加关注流感，根据美国疾病控制和预防中心的数据，美国有 10，000 个病例与之相关，相比之下，有 12 个病例归因于新型冠状病毒。
 

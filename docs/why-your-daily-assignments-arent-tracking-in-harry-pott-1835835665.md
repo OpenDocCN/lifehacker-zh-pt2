@@ -4,7 +4,7 @@
 
 尽管有点耗时，但我一直在用新的*哈利波特:巫师团结*手机游戏( [iOS](https://apps.apple.com/us/app/harry-potter-wizards-unite/id1452352832) ， [Android](https://play.google.com/store/apps/details?id=com.nianticlabs.hpwu.prod&hl=en_US) )作为多出去走走的绝佳借口。我不得不这样做，因为有一个每日成就，你只有在你的邻居家轻松地走了 0.25 公里后才能解锁。
 
-Watch
+
 
 前几天我就这么做了——使用魔药，收集铸造品，在客栈停留，所有其他你必须做的事情来完成一天的成就，并收集那甜蜜的八金奖励。想象一下，当我打开游戏的“每日任务”跟踪器，发现我所有的努力都白费了，我有多惊讶；它什么也没记录。
 

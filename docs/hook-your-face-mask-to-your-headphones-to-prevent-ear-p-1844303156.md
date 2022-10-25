@@ -4,7 +4,7 @@
 
 是的， [戴口罩](https://lifehacker.com/put-your-mask-over-your-damn-nose-1844132568) 带弹力耳挂长时间戴会不舒服(不过你还是应该 [戴口罩](https://lifehacker.com/how-masks-protect-us-from-the-coronavirus-1844220877) )。在许多情况下，你可以远离其他人或者出去短暂休息一下(因为你绝对不应该 [不戴面具](https://vitals.lifehacker.com/no-wearing-a-mask-isnt-dangerous-1843685109) )。但是，如果你在一个你无法真正摆脱任何人的地方，比如说，被困在 30000 英尺高的金属管中，该怎么办呢？因为即使它变成了字面上的痛苦，飞行也是那些时候之一 [你只需要戴上你的面具](https://lifehacker.com/these-airlines-now-require-you-to-wear-a-mask-onboard-1843198986) 。
 
-Watch
+
 
 幸运的是，如果你喜欢戴耳挂式耳机——这可能已经是你的一种常见做法，或者是你在旅行(无论是通过飞机还是地铁)或在办公室工作时很容易养成的习惯——有一种简单的方法可以让你的耳朵感觉不到松紧带的拉力:将耳挂附在耳机上。
 

@@ -4,7 +4,7 @@
 
 查克·e·奶酪对感官来说是一种不和谐的声音——嗡嗡声、钟声和尖叫声、人群和音乐、过度刺激的孩子(和父母)、各种颜色和灯光。这对那些没有感觉处理挑战的人来说是很大的挑战。但是对于感觉敏感的人来说，这可能是一种方式。也是。很多。
 
-Watch
+
 
 这就是为什么 Chuck E. Cheese 和其他以感官超负荷而闻名的场所会花几天时间来接待那些需要更凉爽一些的人。根据 [史密森尼杂志](https://www.smithsonianmag.com/innovation/how-museums-are-becoming-more-sensory-friendly-for-those-with-autism-180967740/) :
 

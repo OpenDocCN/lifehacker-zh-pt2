@@ -4,7 +4,7 @@
 
 截至周四上午，飓风道林继续沿美国东南部行进，其路径上有佐治亚州和卡罗莱纳州，沿海社区的居民将被疏散。实时预警要下载 [FEMA 的 app](https://www.fema.gov/mobile-app)；该应用程序将提供更新和避难所信息。
 
-Watch
+
 
 在确定风暴或飓风的严重程度时，FEMA 在自己的灾难准备中也使用了另一个非正式的指标:华夫饼屋指数。“如果一家[华夫饼屋]商店开张了，你的社区就幸免了，” [今日美国](http:// https://www.usatoday.com/story/news/nation/2019/09/01/hurricane-dorian-waffle-house-index-disasters/2187708001/) 写道。“如果商店开门营业，但菜单有限，你可能会受到一些损害。如果商店完全关闭，你就处在一个灾难区。”
 

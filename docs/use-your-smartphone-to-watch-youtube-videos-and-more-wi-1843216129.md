@@ -4,7 +4,7 @@
 
 如果你想和你的朋友在线看电影，疫情给我们带来了一些选择。
 
-Watch
+
 
 网飞党已经存在了一段时间，但在我们在家的时候就受到了很多关注。后来 [我们发现了 Vemos](https://lifehacker.com/watch-shows-on-hulu-disney-and-more-with-your-friends-1842924419) ，本质上是一样的东西，但是允许你不仅可以和朋友一起看网飞，还可以看 Hulu 和 Disney+之类的东西。
 

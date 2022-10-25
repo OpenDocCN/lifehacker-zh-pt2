@@ -4,7 +4,7 @@
 
 根据一份 [2017 年盖洛普报告](https://news.gallup.com/reports/199961/7.aspx#) t，普通人一生中在办公室度过 [90，000 小时](https://www.businessinsider.com/disturbing-facts-about-your-job-2011-2#but-87-of-americans-have-no-passion-for-their-jobs-2) ，然而只有三分之一的美国员工专注于他们的工作和工作场所。也许这是不可避免的，但让我们的工作和事业甚至*稍微*更令人满意和满足，可能会导致我们日常生活的重大全面改善。
 
-Watch
+
 
 考虑到这一点，昨天我们向你询问了你所收到的最好的职业建议。以下是你说过的一些话。
 

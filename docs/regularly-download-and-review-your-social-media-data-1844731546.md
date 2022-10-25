@@ -4,7 +4,7 @@
 
 以为那个尴尬的 Instagram 帖子的数据在你删除了、之后就丢了像数字雨里的眼泪？再想想。
 
-Watch
+
 
 网络安全研究员 [索加特·波卡雷尔发现了](https://medium.com/nassec-cybersecurity-writeups/deleted-data-stored-permanently-on-instagram-facebook-bug-bounty-2020-26074c229955)insta gram 数据库中的一个漏洞，即使一个人从他们的 feed 中删除了原始照片，该漏洞也会保留用户的图像数据。
 

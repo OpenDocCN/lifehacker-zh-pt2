@@ -4,7 +4,7 @@
 
 PlayStation 5 和 Xbox Series X 将在短短几周内发布，大量游戏玩家正试图在肯定会出现[稀少的假期供应](https://www.usgamer.net/articles/neither-the-xbox-series-x-or-ps5-are-really-ready-for-this-holiday) 之前获得他们的预购订单。人们很容易陷入对下一代的炒作、困惑、愤世嫉俗和焦虑之中。不过，这里有一个秘密:你最好等着购买你选择的系统。
 
-Watch
+
 
 虽然我相信 PS5 和 Xbox Series X 最终都会为游戏行业向前迈进一大步，但好消息是你现在还不必升级。很多人仍然不相信这些新游戏机 [值得升级](https://www.gamesindustry.biz/articles/2020-09-17-playstation-and-xbox-have-both-failed-to-sell-next-gen-opinion) 。事实上，大多数人可能不应该在发布时购买这两款游戏机，即使他们买得起。至少等几个月是个好主意。原因如下。
 

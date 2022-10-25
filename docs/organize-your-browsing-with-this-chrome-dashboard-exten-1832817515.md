@@ -4,7 +4,7 @@
 
 Chrome: 我向所有使用过谷歌 Chrome 浏览器的人推荐这个扩展，因为这是一个尽可能降低浏览器内存使用的好方法。虽然这是一顿美味的大餐，但我也推荐将 [**伟大的吊杆**](https://chrome.google.com/webstore/detail/the-great-suspender/klbibkeccnjlkjkiokjodocebajanakg?hl=en) 与 Chrome 扩展 [**集群**](https://chrome.google.com/webstore/detail/cluster-window-tab-manage/aadahadfdmiibmdhfmpbeeebejmjnkef?hl=en) 配对。
 
-Watch
+
 
 就像美酒一样，Cluster 会给你一个简单的仪表板来查看和管理所有打开的标签，从而增强你已经体验到的标签暂停的乐趣。最棒的是，它向你展示了暂停网站的实际 URL，而不是你在地址栏中看到的时髦的 T2 chrome-extension://URL。
 

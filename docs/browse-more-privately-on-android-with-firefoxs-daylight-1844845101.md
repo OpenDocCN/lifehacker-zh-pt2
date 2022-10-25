@@ -4,7 +4,7 @@
 
 这是一个缓慢的过程，但是新的 [Firefox Android 浏览器已经最终登陆](https://play.google.com/store/apps/details?id=org.mozilla.firefox&referrer=adjust_reftag%3Dcn9q1UyeeP9fy%26utm_source%3DProduct%2BMarketing%2B%2528Owned%2Bmedia%2529%26utm_campaign%3Dblog%26utm_content%3Den%26utm_term%3Dandroid-mobile1)——至少在欧洲。美国的 sers 将不得不等到 8 月 27 日(或者安装测试版)才能访问，但是如果预览版有任何暗示的话，这个新的手机浏览器将会比 Mozilla 的上一次尝试有更好的体验。
 
-Watch
+
 
 经过彻底改造的浏览器为提供了更好的界面，更容易- 到- 到达底部 URL 菜单，智能标签和书签管理功能，黑暗模式，甚至画中画视频播放。虽然最终的用户界面并没有偏离我们在最初的预览版 中看到的 [太多，但我没有抱怨；这些变化使得新的火狐比其笨重的前代更容易控制。](https://lifehacker.com/everything-you-need-to-know-about-firefox-preview-on-an-1835950429) 
 

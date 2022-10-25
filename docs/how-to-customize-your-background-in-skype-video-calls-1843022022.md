@@ -4,7 +4,7 @@
 
 我最喜欢的莫过于在视频聊天中巧妙使用愚蠢的背景。虽然这个古怪的功能过去只属于 Zoom，但越来越多的应用程序正在集成该功能——包括最近的 [微软团队](https://lifehacker.com/how-to-customize-your-background-in-microsoft-teams-vid-1842838567) ，以及现在微软自己的 Skype 应用程序。
 
-Watch
+
 
 您可以在 Windows 或 macOS 版本的 Skype 上使用自定义背景，前提是您首先确保已更新到该应用程序的最新版本(8.59.0.77)。简单的，不需要很长时间。对于 Windows 10 应用版本 Skype 的用户——你从 Windows 商店下载的那个版本——有一个警告:你需要切换到你可以从 [Skype 网站](https://www.skype.com/en/get-skype/) 下载的版本，以便使用新的自定义背景功能(至少在撰写本文时是这样)。
 

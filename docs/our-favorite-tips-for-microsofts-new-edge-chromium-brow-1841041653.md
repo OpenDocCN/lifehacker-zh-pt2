@@ -4,7 +4,7 @@
 
 微软终于发布了基于 Chromium 的 Edge 网络浏览器的官方稳定版本。尽管这并不意味着你的老派优势正在消失，微软*将* [开始小批量推出](https://blogs.windows.com/msedgedev/2020/01/15/upgrading-new-microsoft-edge-79-chromium/)Chromium 浏览器，最终在今年夏天通过 Windows Update 取代它。
 
-Watch
+
 
 当然，您也可以今天就下载。我建议这样做。这是一个伟大的，快速的浏览器，比微软的老版本 Edge 好用得多。您可以获得更多定制外观和感觉的选项。你可以在 Chrome 用户的网上商店 使用所有有趣的扩展功能 [，你还可以玩很多额外的功能。](https://chrome.google.com/webstore/category/extensions)
 

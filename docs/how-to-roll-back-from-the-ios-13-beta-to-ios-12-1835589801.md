@@ -4,7 +4,7 @@
 
 iOS 13 [的第一个测试版是给开发者](https://lifehacker.com/how-to-install-the-latest-apple-betas-if-youre-not-a-de-1835296432) 玩的(还有喜欢生活在边缘的 [craftier 苹果粉丝](https://lifehacker.com/how-to-install-the-latest-apple-betas-if-youre-not-a-de-1835296432) )，但这不全是乐趣和游戏。虽然有一些 [令人敬畏的新功能](https://lifehacker.com/all-the-big-ios-13-changes-apple-announced-at-wwdc-19-1835216984) 测试版测试人员如果现在安装 iOS 13 就可以试用，但该操作系统并不完整，在 iOS 13 准备好公开发布之前，苹果还有几个月的测试时间。
 
-Watch
+
 
 如果你已经提前升级到了 iOS 13 测试版，并且感觉到了一些升级者的懊悔，不要担心。你可以让 iOS 回到 iOS 12 的舒适和稳定——至少，直到下个月晚些时候公开测试版发布，这应该比第一个开发者测试版更稳定一点。
 

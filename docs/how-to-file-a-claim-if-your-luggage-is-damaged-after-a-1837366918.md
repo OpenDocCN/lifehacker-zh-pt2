@@ -4,7 +4,7 @@
 
 去年，一名乘坐美国航空公司 航班 [的乘客在发现自己的行李箱被毁坏后，获得了 3500 美元的赔偿；在行李认领处，她发现自己的一些衣服被撕碎了，一半的物品不见了，行李箱上沾满了油脂和牙膏。与此同时，更令人不安的消息是，据一条](https://thepointsguy.com/news/american-airlines-pays-passenger-3500-for-destroyed-bag/) [Reddit](https://old.reddit.com/r/Flights/comments/ckpotu/what_appears_to_be_blood_is_all_over_a_bag_that_i/) 线索称，一名联合航班上的乘客发现他们托运的行李上到处都是看起来很像血迹的东西。
 
-Watch
+
 
 虽然我们可能永远不知道在我们把行李留在登记处后会发生什么，但如果你发现你的行李箱被损坏了，你绝对应该向航空公司提出索赔。我们要警告你:这个过程可能并不容易，但至少，你可能会得到一个替换包或提供一个新包的部分报销。
 

@@ -4,7 +4,7 @@
 
 去年，一项法律生效，允许癌症患者在接受治疗期间以及之后的六个月内暂停他们的联邦学生贷款。但是 [没有办法实际请求延期](https://www.cnbc.com/2019/04/09/new-cancer-deferment-for-student-loan-borrowers-has-a-rocky-rollout.html)——直到现在。
 
-Watch
+
 
 [这里是癌症治疗延期申请表](https://www.studentloans.gov/myDirectLoan/downloadForm.action?searchType=library&shortName=cncrtrtmt&localeCode=en-us) ，来自 [美国教育部](https://studentaid.ed.gov/sa/repay-loans/deferment-forbearance) 。要申请，你需要一封你的医生的信，说明你正在接受癌症治疗，以及治疗开始的日期和预计结束的时间。如果治疗持续超过一年，你需要再发一封信来延长延期。
 

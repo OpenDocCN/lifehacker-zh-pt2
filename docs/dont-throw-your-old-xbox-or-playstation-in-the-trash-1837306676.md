@@ -4,7 +4,7 @@
 
 上周，作为纽约市新的电子废物收集计划的一部分， [官员](https://www.recyclingtoday.com/article/new-york-city-electronic-recycling-program-milestone/) [s](https://www.recyclingtoday.com/article/new-york-city-electronic-recycling-program-milestone/) 表示，在不到三年的时间里，从家庭中收集了超过 10 万件物品。虽然这意味着我们的垃圾填埋场中的电子产品——如电脑、手机或电视——会减少，但这是一个非常小的数字。据 [一估计](https://www.nytimes.com/2018/07/05/magazine/e-waste-offers-an-economic-opportunity-as-well-as-toxicity.html) 美国 2016 年产生了 690 万吨电子垃圾。
 
-Watch
+
 
 虽然你用过的 PS4 或 Xbox 可能不会构成电子垃圾的很大一部分，但这并不意味着它们不会造成这个问题。如果你有任何二手游戏机，不要扔掉它们——你可以在任何电器商店转售它们，或者至少回收它们。
 

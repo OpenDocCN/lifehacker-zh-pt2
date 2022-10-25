@@ -4,7 +4,7 @@
 
 如果你有不良信用或没有信用，并且真的喜欢在亚马逊购物，电子商务的大佬有一个新的信用卡选项可以考虑。
 
-Watch
+
 
 亚马逊商店卡的 [信用构建器版本](https://www.amazon.com/iss/credit/creditbuilder?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/should-you-get-amazons-new-card-for-people-with-bad-cre-1835376164&asc_source=&tag=kinjalifehackerlink-20) 在亚马逊 Prime 购物时提供 5%的现金返还，无年费，并在开户后提供 40 美元的礼品卡(一旦你的开户存款结清)。信用生成器用户还可以获得一些达到最低消费的零利率融资优惠。
 

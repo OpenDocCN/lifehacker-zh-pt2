@@ -4,7 +4,7 @@
 
 如果你是亚马逊 Prime 学生会员，亚马逊现在正在 Echo 设备上开展一项非常稳定的返校交易，允许你在宿舍使用设备时获得 40%的折扣。
 
-Watch
+
 
 这笔交易包括 Echo Plus、Echo Show 5 和 Echo Spot。您只能在一台设备上获得优惠，因此请明智选择。您还必须在结账时输入促销代码才能实际享受优惠，因为 [*安卓中央*报道](https://www.androidcentral.com/echo-devices-discount-prime-student-members?utm_source=ac_tw&utm_medium=tw_card&utm_content=78690&utm_campaign=social) 。
 

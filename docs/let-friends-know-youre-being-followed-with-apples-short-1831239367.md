@@ -4,7 +4,7 @@
 
 一个人走回家或者去酒吧或餐馆有时会很可怕，尤其是如果你是女人的话。 [一位 Reddit 用户](https://www.reddit.com/r/shortcuts/comments/a7qzf4/i_made_a_shortcut_for_addressing_the_issue_of/) 想出了一个有趣的方法来 [使用苹果的快捷方式功能](https://itunes.apple.com/app/shortcuts/id915249334) :让你的朋友知道你认为你被跟踪了。
 
-Watch
+
 
 “我被跟踪”背后的想法是，你创建一个快捷方式，拍摄十张快速照片，将它们保存到你的设备中，然后将它们与你的位置一起发送给接收者。
 

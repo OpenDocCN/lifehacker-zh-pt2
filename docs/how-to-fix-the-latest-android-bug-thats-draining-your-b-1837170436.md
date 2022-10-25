@@ -4,7 +4,7 @@
 
 安卓用户:如果你的手机电池最近感觉没电了，可能是最新的 Google Play 服务更新造成的。
 
-Watch
+
 
 Android Hacks [指出](https://www.androidpolice.com/2019/08/12/heads-up-the-latest-play-services-update-has-a-battery-drain-problem/) 截至 18.3.82 版本，Google Play 服务比大多数应用程序消耗了更多的电池，在许多用户的使用图表中名列前茅。目前还不清楚这是影响所有人还是只影响某些设备，但你可以(也应该)通过在设置应用中搜索“电池使用情况”来检查自己的使用情况图表。
 

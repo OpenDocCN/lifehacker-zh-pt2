@@ -4,7 +4,7 @@
 
 今天的女孩们看到了更多从事 STEM 职业的女性形象，这很棒。现在，我正在看这些女性创新者的插图海报，她们来自 [你应该认识的女性](https://womenyoushouldknow.net/downloadable-stem-role-models-posters/) :有 Maria da Penha，一位生物药物学家和人权捍卫者；梅·C·杰米森，第一位遨游太空的非洲裔美国女性；罗莎琳德·富兰克林，他在发现 DNA 结构方面起了重要作用。我很想把这些艺术品挂在我女儿的房间里，帮助她看到一切可能。
 
-Watch
+
 
 但是说到支持年轻女孩对科学的兴趣，我不应该就此打住。简单地告诉孩子们“看看你能成为什么样的人”是不够的——事实上，这种语言甚至可能会产生抑制作用。正如认知科学家西安·贝洛克为《赫钦格报告》 的 [所写，新的研究表明，“告诉年轻女孩们她们可以*成为*科学家——而不是*做*科学——实际上会](https://hechingerreport.org/opinion-how-to-get-our-daughters-into-stem/) [扼杀她们的兴趣和动力。](https://journals.sagepub.com/doi/abs/10.1177/0956797618823670) ”(语言在研究中对 b oys 没有同样的影响。)
 

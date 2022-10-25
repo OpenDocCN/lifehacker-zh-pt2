@@ -4,7 +4,7 @@
 
 现在有很多打发时间的方法。你可以读更多的书。多看电视。晚饭后进行更长时间的家庭散步。或者— *或者—* 你可以制作和你一起长大的电脑的纸质模型，这样你的孩子就可以看到(并且欣赏，*该死的*！)科技已经走了多远，他们有多幸运，他们的 Chromebooks、ipad 和 Nintendo switch 是什么样的。
 
-Watch
+
 
 平面设计师 Rocky Bergen 致力于帮助我们通过 [将我们最喜爱的经典电脑和游戏系统(某种程度上)带入生活，这是一组免费可下载的 papercraft 模型](https://rockybergen.com/papercraft) ，其中包括 [Commodore 64](http://rockybergen.com/whatsnew/2018/6/28/commodore-64-papercraft-v3) 、 [Apple II](https://rockybergen.com/whatsnew/2018/11/27/apple-ii-papercraft) 、 [任天堂 GameCube](http://rockybergen.com/whatsnew/2018/7/21/nintendo-gamecube-papercraft) 、Atari 520 ST、T21
 

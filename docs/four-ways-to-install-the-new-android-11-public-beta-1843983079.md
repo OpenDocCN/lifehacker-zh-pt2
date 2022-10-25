@@ -4,7 +4,7 @@
 
 因为 [我刚刚写了一篇关于如何安装 Android 11 的潜在 buggier 开发者预览版的文章](https://lifehacker.com/try-android-11-today-using-googles-android-flash-tool-1843953684) ，谷歌今天推出 Android 11 公测版是再合适不过了。通过官方途径将这个最新的测试版安装到你的 Pixel 智能手机上——并且只安装*的*Pixel——再简单不过了。
 
-Watch
+
 
 如果你想在其他人之前体验 Android 11，它包括每个应用程序的聊天气泡，更高级的请勿打扰模式，以及一个有趣的新“权限重置”功能，该功能可以锁定你已经有一段时间没有使用的应用程序，你应该(最终)能够 [**访问这个网站**](https://www.google.com/android/beta) 立即在 Android 11 测试版中注册你的设备。
 

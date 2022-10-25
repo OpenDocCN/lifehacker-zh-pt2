@@ -4,7 +4,7 @@
 
 如果你不确定你是否找到了绝对最好的机票，并且想更好地了解你的所有选择，谷歌航班刚刚推出了一个新的更新，让找到便宜的机票变得更容易。
 
-Watch
+
 
 使用谷歌航班，你可能已经注意到了提示附近机场的弹出提示。最早由 [节俭旅行者](https://thriftytraveler.com/google-flights-just-added-new-search-features-to-help-you-save-more/) 报道，后来由 [The Points Guy](https://thepointsguy.com/news/google-flights-will-now-alert-you-if-flying-from-a-nearby-airport-is-cheaper/) 证实，这些提醒是谷歌最近添加的，以帮助你从周围机场找到你可能不会专门搜索的更便宜的交易。
 

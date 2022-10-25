@@ -4,7 +4,7 @@
 
 随着这一年接近尾声，是时候回顾一下过去 300 多天里我们与科技相关的所有乐趣了。微笑面对我们购买的新升级！畏缩在所有我们浪费时间和金钱的应用上！不要谈论那些在当时看起来很酷，但是现在却积满灰尘的小玩意。
 
-Watch
+
 
 我对最后两个特别感兴趣，因为我敢打赌，今年我们都有不少技术遗憾——这也可能包括“尽管我想了很多，但没有 [删除我的脸书](https://lifehacker.com/how-to-delete-your-facebook-account-a-checklist-1829436824) ”或“搞砸了 [的 SSD 升级](https://lifehacker.com/how-to-migrate-to-a-solid-state-drive-without-reinstall-5837543) ，并为没有最近备份我的数据而后悔。”
 

@@ -4,7 +4,7 @@
 
 当我在药店无聊的时候，我会买一些我不需要的骗人的东西。这就是我最终发现液体绷带的原因，事实证明我确实需要它，因为它对我手上的小伤口、水泡和任何伤口都非常有效。液体绷带用一层直接敷在伤口上的透明液体代替了普通绷带。
 
-Watch
+
 
 有 [多个品牌](https://www.amazon.com/s/ref=nb_sb_noss_2?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/when-to-use-liquid-bandages-instead-of-band-aids-1826485377&asc_source=&field-keywords=liquid bandage&tag=kinjalifehackerlink-20&url=search-alias=aps) 使用不同的化学品，它们以喷涂或涂抹的形式出现。我选择 Walgreens 商店的油漆品牌，但就像普通绷带一样，你会找到自己最喜欢的。
 

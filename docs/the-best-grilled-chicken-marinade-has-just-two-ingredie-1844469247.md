@@ -4,7 +4,7 @@
 
 尽管我很喜欢不那么 t 韩- 主流 [切肉](https://skillet.lifehacker.com/theres-no-such-thing-as-weird-meat-1844249803) ，但我无法否认自己享受烤鸡腿的简单乐趣，尤其是如果这些腿已经用酸奶和大蒜盐腌制过——这是一种最完美的家禽腌料。
 
-Watch
+
 
 “酸奶和大蒜盐”听起来并不特别性感，但我向你保证涂有这两种成分的鸡肉——而且只有这两种成分——尝起来绝对诱人。从 [几个](https://www.saltfatacidheat.com/buttermilkmarinated-roast-chicken) [其他](https://skillet.lifehacker.com/marinate-a-whole-chicken-in-labneh-1834555314) [家禽](https://skillet.lifehacker.com/this-buttermilk-brine-will-turn-you-into-a-turkey-breas-1830318684) 食谱中我们知道，乳制品中的酸使之变嫩，蛋白质促进褐变，脂肪使东西保持湿润。为什么放大蒜盐？味道非常好。很好用。很便宜。它赋予大蒜和盐两种最好的味道；有时候会涉及到欧芹。用大蒜盐没有坏处。
 

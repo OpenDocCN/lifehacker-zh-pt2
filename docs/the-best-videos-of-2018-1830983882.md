@@ -4,7 +4,7 @@
 
 视频！它们就像活的文章。每个人都喜欢，我们今年做了一大堆。这些是我们 2018 年最好的视频。
 
-Watch
+
 
 ### [太高怎么办](https://lifehacker.com/what-to-do-if-youre-too-high-1825412214)
 

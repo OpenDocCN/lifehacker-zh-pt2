@@ -4,7 +4,7 @@
 
 是时候从操场 进来 [开始](https://vitals.lifehacker.com/the-june-fitness-challenge-is-playgrounds-1835210163) [Lifehacker 健身挑战赛](https://lifehacker.com/c/lifehacker-fitness-challenge) 的新篇章了。七月，我们回到了你可以在阴凉处，在任何空闲时间做的事情:平衡练习。
 
-Watch
+
 
 我们将从单脚平衡开始。简单点说，就是看你一只脚能站多久。如果你能坚持 30 秒以上，试着通过以下方式增加难度:
 

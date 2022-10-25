@@ -4,7 +4,7 @@
 
 如果说现在是网飞让父母更多地控制孩子的收视体验的好时机，那就是现在，我们的孩子在家看的节目比以往任何时候都多。他们已经掌握了一些基本知识，有助于确保孩子们不会观看不合适的内容，或者你不想让他们看到的节目。
 
-Watch
+
 
 在 [网飞新的家长控制](https://media.netflix.com/en/company-blog/more-choice-and-control-for-families) 下，你可以:
 

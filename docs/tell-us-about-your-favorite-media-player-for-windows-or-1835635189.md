@@ -4,7 +4,7 @@
 
 又到了 [蜂巢五](https://lifehacker.com/tag/hive-five) 的时间了！我们希望您告诉我们您最喜欢的桌面媒体播放器。
 
-Watch
+
 
 我是个[](https://lifehacker.com/tag/vlc)**彻头彻尾的家伙；从我记事起，它就是我台式电脑、笔记本电脑和移动设备的默认媒体播放器。我从未误入歧途，尽管我*将*承认我也曾经摆弄过 [**媒体播放器经典**](https://github.com/clsid2/mpc-hc) 。最终，我意识到在我的 Windows PC 上安装两个媒体播放器应用程序没有多大意义，所以 MPC 必须退出。**
 

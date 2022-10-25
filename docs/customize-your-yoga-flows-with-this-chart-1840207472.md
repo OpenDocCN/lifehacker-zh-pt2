@@ -4,7 +4,7 @@
 
 如果你习惯了上课，独自做瑜伽可能会令人生畏——你应该选择哪种姿势？或者，如果你正在跟随一个你在网上找到的流程，你如何修改或替换一些不太适合你的东西？ [这张来自 Stack52](http://strength.stack52.com/periodic-table-of-yoga-poses/) 的图表可以帮你找到正确的姿势。
 
-Watch
+
 
 与他们的[壶铃练习](https://vitals.lifehacker.com/get-a-full-body-kettlebell-workout-with-these-exercises-1774731446) 和 [悬浮训练练习](https://vitals.lifehacker.com/amp-up-your-bodyweight-workout-with-these-suspension-ex-1751397400) 的“周期表”一样，图表根据瑜伽姿势的类型(开髋、倒立、平衡)将它们分成列，并根据难度分成行。
 

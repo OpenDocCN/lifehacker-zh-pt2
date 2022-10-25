@@ -4,7 +4,7 @@
 
 对许多人来说，高中毕业后上大学是自然而然的下一步，其长期价值毋庸置疑。几十年来，上大学一直是一种文化规范，被广泛接受的开始白领生涯的方法。
 
-Watch
+
 
 但这种心态可能正在改变。TD Ameritrade 进行的一项 [调查发现，五分之一的年轻人(Z 世代和千禧一代)表示，他们可能不会选择上大学。超过 30%的 Z 世代受访者表示，他们考虑过在高中和大学之间度过一个间隔年，这些年龄组中超过四分之三的受访者表示，他们考虑过传统四年制高等教育的替代方案，](https://s2.q4cdn.com/437609071/files/doc_news/research/2019/young-americans-and-college-survey.pdf) [Marketwatch 的](https://www.marketwatch.com/story/half-of-young-americans-say-college-isnt-necessary-2019-08-06) 文章指出。
 

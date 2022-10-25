@@ -4,7 +4,7 @@
 
 GoPro，我有个坏消息。无人机巨头 DJI 刚刚发布了一款名为 Osmo Action 的坚固型新相机。它很像 GoPro——以至于当我的同事把它递给我时，我以为它是 go pro。Osmo Action 和最新的 GoPro 并不完全相同，但它们在尺寸和设计上非常相似，很明显 DJI 对 GoPro 的风格有多着迷。
 
-Watch
+
 
 DJI 对 GoPro 的嘲讽超越了 Osmo Action 的外观，深入到了它的功能。而 [Hero7 Black 有超平滑防抖](https://gizmodo.com/i-strapped-gopros-hero7-black-to-my-dog-and-my-hog-to-s-1829710269?_ga=2.25417405.1273694783.1557748687-456451285.1550108399) ，Osmo Action 有 RockSteady 防抖。这两款相机都可以在 4K 以 60fps 的速度拍摄，图像稳定功能可以打开或关闭。两者都允许 8 倍慢动作捕捉。都是防水的。(DJI 声称在这里取得了小小的胜利，宣传最大深度为 11 米，而 Hero7 Black 声称防水深度可达 10 米。)它们都允许你在拍摄视频的同时拍摄静态图像。两者都有延时拍摄模式。两者都有恼人的界面，它们的小触摸屏让你想把相机踢到墙上。
 

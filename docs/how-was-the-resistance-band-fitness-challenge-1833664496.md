@@ -4,7 +4,7 @@
 
 我们整个月都在 [试验阻力带](https://vitals.lifehacker.com/the-march-fitness-challenge-is-the-resistance-band-wor-1832996075) ，但是说实话，我还没有找到任何我真正喜欢的新运动。也许这是因为我的大多数乐队是较小的环型，这是伟大的一些下半身练习，而不是其他。
 
-Watch
+
 
 有些人喜欢在酒店房间里做阻力乐队锻炼；这个月旅游了两次，就是进不去。我更喜欢 [去酒店健身房](https://vitals.lifehacker.com/how-to-get-a-good-workout-in-a-crappy-hotel-gym-1830405477) 做哑铃锻炼。
 

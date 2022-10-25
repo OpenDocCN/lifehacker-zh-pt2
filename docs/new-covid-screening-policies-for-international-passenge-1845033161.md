@@ -4,7 +4,7 @@
 
 将近半年前，一直追溯到三月中旬，川普政府 [发布命令禁止来自欧洲、巴西、伊朗和中国的](https://www.bbc.com/news/world-us-canada-51846923) 旅行。这条规则有一个例外:美国公民、合法永久居民及其家庭成员已经被允许重新进入这个国家，只要他们飞到 15 个指定的美国机场中的一个，并且经过了强化的入境检查。但是 9 月 7 日星期一，这个政策变了， [据雅虎新闻](https://news.yahoo.com/exclusive-the-white-house-orders-end-to-covid-19-airport-screenings-for-international-travelers-172713942.html) 爆料。以下是你需要了解的关于更新后的旅行规定。
 
-Watch
+
 
 ### COVID 筛查政策有什么变化？
 

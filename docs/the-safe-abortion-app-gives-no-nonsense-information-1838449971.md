@@ -4,7 +4,7 @@
 
 如今，在网上找到任何准确的健康信息都是一项艰巨的任务，当谈到堕胎时，有 [个反堕胎团体专门试图误导人们](https://lifehacker.com/how-to-tell-a-crisis-pregnancy-center-from-a-legitimate-1823626740) 只想要关于自己怀孕和终止妊娠选择的信息。
 
-Watch
+
 
 为了填补这一空白， [西方健康指南](https://hesperian.org) 现在提供了一个专门给人们堕胎信息的应用程序。它叫做“安全堕胎(SA)”，在 [iOS](https://apps.apple.com/us/app/safe-abortion-sa/id1261710057) 和 [Android](https://play.google.com/store/apps/details?id=org.hesperian.Safe_Abortion&hl=en_US) 上是免费的。在这两种情况下，开发商都被列为西方健康指南。(我提到这一点是为了防止山寨应用开始出现；我不会感到惊讶。)
 

@@ -4,7 +4,7 @@
 
 那些关注美联储新闻的人可能知道 [他们最近决定](https://twocents.lifehacker.com/how-this-week-s-fed-meetings-may-impact-your-wallet-1844561078) 保持低利率，这影响了从 [抵押贷款](https://twocents.lifehacker.com/how-to-know-if-you-should-refinance-your-mortgage-1844406684) 到你的 [储蓄账户](https://twocents.lifehacker.com/where-to-put-your-money-when-interest-rates-are-falling-1844380477) 的一切。如果你背负着任何类型的债务，你可能会寻找降低利率的机会。
 
-Watch
+
 
 随着抵押贷款利率处于历史低位，你甚至会想，T2 是否应该利用你的房屋净值来偿还高利率债务，包括你的学生贷款。如果你 有资格申请学生贷款套现再贷款，用房屋净值来偿还学生贷款，这可能是个不错的选择。以下是你申请前需要了解的内容。
 

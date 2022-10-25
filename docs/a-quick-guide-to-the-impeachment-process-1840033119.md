@@ -4,7 +4,7 @@
 
 [弹劾美国总统](https://lifehacker.com/how-to-impeach-a-president-1834123053) 涉及很多不止一次审判或投票。正如我们之前所写的，这是一个漫长的过程，包括以下步骤:众议院对弹劾条款做出决定，众议院司法委员会对这些条款进行辩论，众议院对弹劾进行表决，其中必须包括至少一项获得批准的条款，参议院对审判程序做出决定，参议院进行审判，然后参议院做出裁决。
 
-Watch
+
 
 如果你仍然对这一过程感到困惑，我们不会责怪你——毕竟，这一过程是几个世纪前设计的，迄今为止，我们只弹劾过美国历史上的两位总统(安德鲁·约翰逊和比尔·克林顿，两人都没有被罢免；理查德·尼克松被弹劾前辞职)。值得庆幸的是，这里有一张信息图，它会让你更容易理解这个过程，并且只让你知道你需要知道的东西，由[BBC](https://www.bbc.com/news/world-us-canada-39945744)/[Reddit](https://www.reddit.com/r/coolguides/comments/dz8tua/what_happens_next_in_impeachment_process/)提供:
 

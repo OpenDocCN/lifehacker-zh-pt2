@@ -4,7 +4,7 @@
 
 每个人都在看网飞的*黑镜:Bandersnatch* ，这要感谢它古怪的前提 [一个完全互动的故事](https://lifehacker.com/how-to-watch-every-ending-of-black-mirror-bandersnatc-1831380467) 让你选择它如何展开。
 
-Watch
+
 
 几乎所有人。虽然你可以在苹果电视等流媒体设备上随心所欲地观看《网飞》,但 banders natch(T1)是行不通的。值得一提的是，当你在谷歌的 Chromecast 或亚马逊的 Fire TV Stick 上运行网飞时，这部电影也无法运行——试试看，你会收到网飞 T5 发来的道歉邮件。
 

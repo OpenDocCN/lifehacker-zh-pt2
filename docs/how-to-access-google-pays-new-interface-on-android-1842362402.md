@@ -4,7 +4,7 @@
 
 如今有许多理由使用数字支付选项而不是现金或信用卡，而 [谷歌最新的 Pixel 功能 Drop](https://lifehacker.com/heres-everything-new-in-googles-second-pixel-feature-dr-1842064316) 只是给了 Google Pay 用户一种更漂亮的方式让 Pixel 用户管理他们的钱。
 
-Watch
+
 
 Google Pay 的新界面只有通过特定的方式打开应用程序才能使用，这就是为什么有些人(包括我自己)可能没有意识到它被添加了。以下是找到它的方法:
 

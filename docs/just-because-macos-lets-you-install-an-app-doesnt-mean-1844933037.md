@@ -4,7 +4,7 @@
 
 只要 macOS 让你装个 app，应该就安全了吧？这是苹果看门人和 [公证服务](https://developer.apple.com/documentation/xcode/notarizing_macos_software_before_distribution) 的点，早在二月份就开始在 macOS Catalina 强制执行。从理论上来说，这意味着你在 Mac 上安装的任何应用程序*都应该*已经过苹果的 [恶意组件检测](https://developer.apple.com/documentation/xcode/notarizing_macos_software_before_distribution) 。”但是，如果你认为任何带有 [看门人绿灯](https://support.apple.com/en-us/HT202491) 的应用程序实际上是安全的，那你就错了。
 
-Watch
+
 
 Objective-See 的 Patrick Wardle [最近的一篇文章描述了](https://objective-see.com/blog/blog_0x4E.html) ，有一种新的 Mac 攻击正在传播，它使用网关守卫传递有效载荷来分发一种特别流行和有问题的恶意软件:OSX.Shlayer
 

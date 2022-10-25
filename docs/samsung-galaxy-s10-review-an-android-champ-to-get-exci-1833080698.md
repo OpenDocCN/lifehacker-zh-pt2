@@ -4,7 +4,7 @@
 
 如果说 [Pixel 3](https://gizmodo.com/google-pixel-3-review-the-other-way-to-make-a-killer-p-1829749807) 是谷歌展示软件优先的手机设计方法有多好的最高成就，那么 [Galaxy S10](https://www.samsung.com/us/mobile/galaxy-s10/) 则是向硬件之神致敬。Galaxy S10 采用了令人厌倦的凹口自拍摄像头，重新设计了带有三种不同镜头的后置摄像头，以及令人难以置信的电池续航时间，感觉像是智能手机技术成熟的庆典。
 
-Watch
+
 
 令人印象深刻的是三星在 Galaxy S10 中塞进了多少东西，尤其是 S10+。尽管与 [Galaxy Note 9](https://gizmodo.com/samsungs-galaxy-note-9-is-the-best-big-phone-1828348138) 的屏幕尺寸几乎相同，但 S10+拥有略大的 4100 毫安时电池(Note 9 为 4000 毫安时)，前后额外的摄像头传感器，以及反向无线充电(三星称之为无线电源共享)，机身实际上薄了 10%。现在，我不是那种通常会关心 7.8 毫米和 8.8 毫米之间差异的人，但当它们在你手中时，你肯定会注意到。对于一部包装了这么多新功能的手机来说，重 6.1 盎司的 S10+也轻得令人惊讶。
 

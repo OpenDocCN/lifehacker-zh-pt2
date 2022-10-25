@@ -4,7 +4,7 @@
 
 谷歌将在下个月向所有 YouTube Premium 和 Google Play 用户免费赠送一个 Nest 迷你智能扬声器。
 
-Watch
+
 
 该优惠适用于截至 2020 年 5 月 19 日拥有有效 YouTube Premium、YouTube Music Premium 或 Google Play 音乐订阅的任何 Google 帐户。这包括个人、家庭和学生计划。优惠先到先得，每个账户限购一台 Nest Mini，必须在 6 月 30 日太平洋时间 11:59 前兑换。那给了一个多月的时间来获取你选择颜色的免费智能音箱——如果供应持续那么久的话。
 

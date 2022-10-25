@@ -4,7 +4,7 @@
 
 如果你一直在等待合适的价格下降，以挑选一款未锁定的 Pixel 3 XL，那可能是时候行动了。百思买推出的 64GB 内存的 Pixel 3xl 售价仅为 550 美元，比其 900 美元的原价整整低了 350 美元。唯一的要求是你在购买时激活手机；如果你以后想激活你的新 Pixel 3 XL，价格会涨到 600 美元。
 
-Watch
+
 
 你可以 [通过百思买的网上商店](https://www.bestbuy.com/site/google-pixel-3-xl-64gb-unlocked-just-black/6319226.p?acampID=614286&irclickid=Vx1z3EXgKxyJUuo0EkzjZTwgUknxLGxwExkRyk0&irgwc=1&loc=1661513&ref=198&skuId=6319226) 购买打折的 Pixel 3 XL，或者亲自到你当地的实体店购买。
 

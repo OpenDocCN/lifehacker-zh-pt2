@@ -4,7 +4,7 @@
 
 准备好数数鸟吧，因为奥杜邦的 [大后院鸟类计数](https://www.audubon.org/conservation/about-great-backyard-bird-count) 从今天 2 月 12 日开始，一直持续到 15 日星期一。这是一个初学者友好的活动，甚至比 [圣诞鸟计数](https://lifehacker.com/theres-still-time-to-join-the-christmas-bird-count-1840416104) 更容易加入。
 
-Watch
+
 
 你甚至不需要后院。找一个你可能看到一些鸟的地方。这是参观当地公园或野生动物保护区的好时机。要参与其中，数鸟至少 15 分钟，“你想去多少天，去多少地方。”每次外出你都要保留一份单独的清单。除了记下你看到的鸟的种类，一定要数一数(或估计)你看到了多少只。两位红衣主教在你的喂食处。20 只鹅在湖上。
 

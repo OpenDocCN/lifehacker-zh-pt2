@@ -4,7 +4,7 @@
 
 没有足够多的人知道在每次怀孕期间注射 TDaP 疫苗和流感疫苗的重要性。这些疫苗可以在婴儿出生后的头几个月保护他们免受流感和百日咳的侵害，因为那时他们还太小，不能自己接种这些疫苗。
 
-Watch
+
 
 在怀孕的最后三个月，胎儿 [通过胎盘](https://www.nhs.uk/common-health-questions/childrens-health/how-long-do-babies-carry-their-mothers-immunity/) 接受抗体。为了获得最佳效果， [疾病预防控制中心建议在每次怀孕的第 27 到 36 周](https://www.cdc.gov/pertussis/pregnant/mom/get-vaccinated.html?CDC_AA_refVal=https%3A%2F%2Fwww.cdc.gov%2Ffeatures%2Ftdap-in-pregnancy%2Findex.html) 之间注射 TDaP。TDaP 可为您和您的宝宝预防破伤风、白喉和百日咳。
 

@@ -4,7 +4,7 @@
 
 水 [不可能完全变坏](https://lifehacker.com/water-doesnt-go-bad-1826120883) ，如果你所拥有的真的只是水，而且是在一个密封的瓶子里。没有任何营养物质可供细菌食用，所以不会导致食物中毒。那么，为什么瓶装水有一个“最佳”日期呢？
 
-Watch
+
 
 [有一个传言](https://old.reddit.com/r/YouShouldKnow/comments/d7tdad/ysk_the_expiration_dates_on_water_bottles_are_for/) 说有效期是为了*瓶*到期的时候。虽然这在技术上不正确——我找不到任何塑料“过期”的迹象——但这更接近事实。坐了几年后，你的瓶装水可能开始有点味道了...塑料玩具。
 

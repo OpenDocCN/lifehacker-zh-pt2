@@ -4,7 +4,7 @@
 
 幼儿:他们和我们一样。他们喜欢吃饼干和奶酪泡芙，喝含糖的冰沙——嘿，谁不喜欢呢？但是幼儿零食的营销方式让父母认为他们买的是额外有益健康的东西。
 
-Watch
+
 
 说实话吧: [安妮的有机兔女郎](https://www.annies.com/products/snacks/berry-patch-organic-bunny-fruit-snacks) 是糖果。 [这些盒子上印有 Elmo 头像的有机“早餐饼干”](https://www.target.com/p/earth-s-best-sesame-street-organic-breakfast-biscuits-blueberry-3-53oz/-/A-54423180) 就是饼干。 [嘉宝(Gerber Lil ' crunches)](https://www.target.com/p/gerber-lil-crunchies-baked-whole-grain-corn-snack-mild-cheddar-1-48oz/-/A-11195277)，切达风味，是直截了当的芝士涂鸦。
 

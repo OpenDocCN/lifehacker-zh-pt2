@@ -4,7 +4,7 @@
 
 礼品卡是一个几乎无法想象的庞大产业。 [美国人仅在 2018 年就在它们身上花费了 1600 亿美元](https://www.statista.com/statistics/671202/us-gift-card-sales/) ，这意味着 [二级市场](https://lifehacker.com/everything-you-can-do-with-gift-cards-you-don-t-want-1790570272) 既有利可图又完全势不可挡——尤其是在一年中最大的送礼假期之后。如果你有一个奇怪的礼品卡要出售或交易，下面是你需要知道的，以充分利用它。
 
-Watch
+
 
 ### 检查你的余额
 

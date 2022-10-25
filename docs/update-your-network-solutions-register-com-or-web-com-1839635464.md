@@ -4,7 +4,7 @@
 
 如果你曾经从 Network Solutions、Register.com 或 Web.com 购买过域名，你应该尽快修改你的密码。域名注册商 [宣布](https://notice.networksolutions.com/?siteid=100&clickid=1000000000&channelid=P99C100S500N0B11A1D38E0000V288&cid=NetSol%20Customer%20Notice%20-%2011/04/2019&bid=567782307) 于 2019 年 8 月遭遇数据泄露。
 
-Watch
+
 
 在给客户的电子邮件中，这些公司解释说，他们在 2019 年 10 月得知了这起违规事件。虽然没有访问信用卡数据，但帐户信息可能已经泄露。这些信息可能包括姓名、地址、电话号码、电子邮件地址和订单详情。
 

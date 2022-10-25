@@ -4,7 +4,7 @@
 
 周末旅行很有趣，但也可能非常昂贵。Hotwire [最近查看了](http://blog.hotwire.com/surprising-weekends-with-the-hottest-travel-rates-in-2020/) 酒店的历史预订数据，以确定 2020 年什么时候去旅行最实惠，并发布了每月酒店最实惠的周末列表。
 
-Watch
+
 
 实际上令人惊讶的是:一些价格合理的酒店住宿实际上是在假日周末。
 

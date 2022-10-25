@@ -4,7 +4,7 @@
 
 苹果公司将得到 Adobe 公司的大力支持，该公司正努力使 iPad Pro 合法化，成为一种生产力工具。今天，在洛杉矶举行的 MAX 会议上， [Adobe 证实，Photoshop CC](https://gizmodo.com/full-version-of-adobe-photoshop-is-reportedly-coming-to-1827572583)——其照片编辑应用程序的完整、未妥协版本——将于明年年初在 iPad 上推出。
 
-Watch
+
 
 包括 Photoshop 在内的 Adobe 应用程序版本已经在多个平台上发布了一段时间，包括 Windows、MacOS、iOS 和 Android。但在手持设备上，该公司的旗舰应用程序只提供功能较少的移动版本，缺乏强大的工作流程选项和桌面替代品的功能。
 

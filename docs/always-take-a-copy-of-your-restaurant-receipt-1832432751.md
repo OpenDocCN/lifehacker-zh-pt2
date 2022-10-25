@@ -4,7 +4,7 @@
 
 吃完饭后，我们都会把收据的“顾客副本”放在餐厅的桌子上。这里有一个很好的理由来解释你为什么想把它带在身边(并把它放在安全的地方)。
 
-Watch
+
 
 在最近的一个 [线程](https://www.reddit.com/r/LifeProTips/comments/anmjtt/lpt_take_your_restaurant_receipt_with_you_when/) 上，Redditor u/[Ryan _ 77](https://www.reddit.com/user/Ryan_77)一位前餐厅工作人员建议人们把他们的收据带回家，这样员工离开后就不能调整小费。
 

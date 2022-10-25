@@ -4,7 +4,7 @@
 
 如果你计划今年感恩节上路，开车有正确和错误的时机。查看谷歌地图的历史数据，谷歌刚刚发布了美国 25 个城市感恩节期间最佳和最差出行时间的建议。今年，该公司还进一步研究了人们通常在一周中去酒店或电影院等场所的时间，以防你父母的房子不是你唯一的周末目的地。
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled The Best and Worst Times to Travel This Thanksgiving Weekend](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-make-a-delicious-thanksgiving-turkey-1830465631)</aside>
 

@@ -4,7 +4,7 @@
 
 你知道 Chrome 的隐姓埋名模式会对你浏览器的数据做什么吗？如果没有，这是值得重温的，因为似乎有些用户一直在错误的印象下操作。
 
-Watch
+
 
 谷歌 [被起诉](https://www.mercurynews.com/2020/06/03/google-sued-for-at-least-5-billion-over-claimed-incognito-mode-grab-of-potentially-embarrassing-browsing-data/) 索赔 50 亿美元，罪名是“故意欺骗用户”，让他们相信在使用匿名模式时他们的浏览数据是禁止的。虽然我完全质疑谷歌的隐私政策，但很难看到谷歌失去这一条，因为 Chrome [清楚地解释了](https://support.google.com/chrome/answer/9845881?visit_id=637268076064756036-1312094663&p=incognito&rd=1) 每次打开匿名标签时匿名模式是如何工作的。
 

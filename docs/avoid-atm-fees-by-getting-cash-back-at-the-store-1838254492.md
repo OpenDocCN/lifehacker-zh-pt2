@@ -4,7 +4,7 @@
 
 避免银行费用是财务健康的支柱之一，但在你需要现金的意外时刻，这可能很难实现。为什么你要付钱在自动取款机上取你自己的钱，仅仅因为这台机器是由另一家银行操作的？如果你曾经在需要一点现金的时候被一台网络外的 ATM 机逼得走投无路，那就看看那台提款机。你看到附近有大型连锁超市或药店吗？如果是这样，你很幸运。你可以在收银台取回现金。
 
-Watch
+
 
 这个技巧来自 Reddit 用户 [@corcoran_jon](https://old.reddit.com/r/Frugal/comments/d5bcil/i_use_the_cash_back_feature_at_selfcheckouts_to/) ，但它太简单了，我真不敢相信我们没有在 Lifehacker 这里早点讨论它。这是他们的策略:
 

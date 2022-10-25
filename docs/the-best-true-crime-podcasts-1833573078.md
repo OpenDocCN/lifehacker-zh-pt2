@@ -4,7 +4,7 @@
 
 自从 [系列](https://serialpodcast.org/) 在 2014 年问世，唤醒了世界对播客奇迹的认识，真正的犯罪迷们一直在寻找一种方法来重现那种快感。高中毕业生 Hae Min Lee 被谋杀和她前男友 Adnan Sayed 被定罪的故事受到了媒体的广泛关注，并被改编成了《T4》[书](https://www.amazon.com/Adnans-Story-Search-Justice-Serial/dp/1250087104?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-best-true-crime-podcasts-1833573078&asc_source=&tag=kinjalifehackerlink-20) 和 HBO 纪录片 。
 
-Watch
+
 
 如果你还没有听过，那就从这里开始吧。强烈推荐 [第一季](https://serialpodcast.org/season-one) 。 [第二季](https://serialpodcast.org/season-two) 很好看*呣，*但是我喜欢 [第三季](https://serialpodcast.org/) ，它讲述了克利夫兰一家法院一年来发生的事情。不过，我来自克利夫兰，因此这可能对我来说更有吸引力。
 

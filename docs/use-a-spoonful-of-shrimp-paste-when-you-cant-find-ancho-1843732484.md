@@ -4,7 +4,7 @@
 
 昨天，我发现自己陷入了一个很大的鲜味难题。我开始做自制的凯撒酱，并且准备了所有的配料——柠檬汁、帕尔马干酪、蛋黄、大蒜——但是发现我的餐具室缺少罐装凤尾鱼片，这是这道菜的主要成分。
 
-Watch
+
 
 灵机一动，我伸手去拿我的虾酱罐——确切地说是 [bagoong](https://www.amazon.com/Kamayan-Ginisang-Bagoong-Camayan-Gisado/dp/B0058H8FVG/ref=sr_1_4?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/use-a-spoonful-of-shrimp-paste-when-you-cant-find-ancho-1843732484&asc_source=&dchild=1&keywords=bagoong&qid=1590687204&sr=8-4&tag=kinjalifehackerlink-20) ，一种菲律宾虾酱，已经被炒过，基本上可以在冰箱里永久保存。
 

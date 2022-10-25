@@ -4,7 +4,7 @@
 
 如果你曾经因为担心朋友会读取你的 DMs 而犹豫不决，现在你至少可以在你的 iPhone 或 iPad 上用一个单独的 Face(或 Touch) ID 来锁定你的 Facebook Messenger 聊天。
 
-Watch
+
 
 脸书刚刚推出了 App Lock，这是 Messenger 的一个可选隐私设置，可以在指定时间段后隐藏您的聊天记录。从那时起，访问它们的唯一途径就是通过 Face ID、触控 ID 或者输入你的密码。
 

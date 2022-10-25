@@ -4,7 +4,7 @@
 
 你在机场准备办理登机手续，这时你意识到找不到你的信用卡了——你在精神上折回你的脚步，希望它在家里在你打包行李时做的那堆衣服下面。幸运的是，你*至少*做好了足够的准备，带着你的借记卡度过接下来的几天。
 
-Watch
+
 
 在 Reddit 上，[u/debunked they](https://old.reddit.com/r/Flights/comments/ezwtij/do_i_have_to_have_the_credit_card_i_booked_the/)问了一个你自己可能想知道的问题如果你在旅行前忘记或丢失了信用卡，或者如果一个家庭成员或雇主为你安排了一次旅行:没有用于预订航班的信用卡会影响你办理登机手续吗？
 

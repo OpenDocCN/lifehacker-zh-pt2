@@ -4,7 +4,7 @@
 
 是的，亚洲大黄蜂体型大，而且有条纹。但其他几种昆虫也是如此。如果你看到一些看起来有点像 [的东西，这些你听说过太多关于](https://vitals.lifehacker.com/murder-hornets-are-unlikely-to-murder-you-personally-1843264533) 的“谋杀大黄蜂”，你可能会忍不住杀死它和/或说服自己末日真的到来了。但是请不要。这几乎可以肯定是认错人了。
 
-Watch
+
 
 记住:入侵的黄蜂只在华盛顿州被报道过，即使在那里它们也是极其罕见的。(还有，请回忆一下，他们是 [而不是出来谋杀你的](https://vitals.lifehacker.com/murder-hornets-are-unlikely-to-murder-you-personally-1843264533) 。)
 

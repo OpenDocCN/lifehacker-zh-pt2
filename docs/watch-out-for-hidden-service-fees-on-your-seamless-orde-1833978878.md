@@ -4,7 +4,7 @@
 
 下次你在“免费”送货的无缝网站下订单时，你可能想仔细看看细则。
 
-Watch
+
 
 Reddit 用户 mattkenefick [最近注意到，Seamless 已经取消了其网站上允许你查看运费是多少](https://www.reddit.com/r/nyc/comments/bbo1mv/seamless_starts_using_service_fees_as_hidden/) 的选项。相反，现在它在网站上宣传“免费送货”。只有一个问题:送货实际上不是免费的。
 

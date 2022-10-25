@@ -4,7 +4,7 @@
 
 我的哥本哈根之行最大的亮点是在农场和 [餐厅 Relae](http://www.restaurant-relae.dk/en/manifest/) 的厨房里拍摄视频，这是一个非常注重 [可持续性](http://www.restaurant-relae.dk/en/baeredygtighed/) 的场所。我学到了很多东西(在接下来的视频中你也会学到)，包括如何用块根蔬菜和醋制作一种丝滑、美味的素食酱。
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Turn Root Vegetable Odds and Ends Into This Sauce](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-make-flavored-salts-with-vegetable-skins-1831446621)</aside>
 
