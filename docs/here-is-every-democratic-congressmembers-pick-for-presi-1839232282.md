@@ -176,7 +176,7 @@
 *   加州众议员 [布拉德·谢尔曼](https://www.dailynews.com/2019/08/23/brad-sherman-democratic-race-could-come-down-to-biden-warren/) :相信民主党的竞争会“归结”到拜登和沃伦身上。
 *   加州众议员多丽丝·松井:哈里斯已经 [表态支持她的](http://www.matsuiforcongress.com/endorsements) 。
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 加州众议员埃里克·斯瓦尔韦尔
 
@@ -221,7 +221,7 @@
 *   科罗拉多州众议员杰森·克劳:2018 年拜登 [代言嗨](https://jasoncrowforcongress.com/endorsements/) [m](https://jasoncrowforcongress.com/endorsements/) 。
 *   科罗拉多州众议员乔·内格斯:2018 年拜登 [代言嗨](https://www.joeneguseforcongress.com/endorsements/) [m](https://www.joeneguseforcongress.com/endorsements/) 。
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 康涅狄格州参议员克里斯·墨菲
 
@@ -257,7 +257,7 @@
 
 *   夏威夷参议员布莱恩·沙茨
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 夏威夷参议员 Mazie Hirono
 
@@ -274,7 +274,7 @@
 *   伊利诺伊州众议员布拉德·施奈德
 *   伊利诺伊州众议员切里·布斯托斯
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 伊利诺伊州众议员丹尼尔·利平斯基
 
@@ -312,7 +312,7 @@
 
 *   马萨诸塞州众议员理查德·尼尔
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 马萨诸塞州众议员塞斯·莫尔顿
 
@@ -347,7 +347,7 @@
 *   纽约参议员查克·舒默
 *   纽约州参议员 Kirsten Gillibrand 在结束她的总统竞选后告诉 [【今日美国】](https://www.democratandchronicle.com/story/news/politics/albany/2019/09/24/gillibrand-her-presidential-run-who-she-may-endorse-and-whats-next/2388875001/) “我将支持我认为第一位是最好的总统，第二位是能击败 Trump 的人。
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 纽约众议员阿德里亚诺·埃斯帕莱特
 
@@ -364,7 +364,7 @@
 *   纽约众议员艾略特·恩格尔
 *   纽约州众议员孟昭文
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 纽约众议员格雷戈里·米克斯
 
@@ -400,7 +400,7 @@
 *   俄勒冈州众议员苏珊娜·博纳米奇
 *   宾夕法尼亚州众议员 Chrissy Houlahan:最近为 Buttigieg 共同主持了一场 [的募捐活动。](https://www.politicspa.com/houlahan-to-co-host-buttigieg-fundraiser/92449/) 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 宾夕法尼亚州众议员康纳·兰姆
 

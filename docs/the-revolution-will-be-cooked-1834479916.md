@@ -2,7 +2,7 @@
 
 > 原文：<https://splinternews.com/the-revolution-will-be-cooked-1834479916>
 
-[THE FUTURE OF LABOR](https://future-of-labor.kinja.com)) : title[![](../Images/d49821dd5a0c8fbb6d88227a8defc7af.png)](https://future-of-labor.kinja.com)[THE FUTURE OF LABOR](https://future-of-labor.kinja.com)What's next for work and workers
+[THE FUTURE OF LABOR](https://future-of-labor.kinja.com)) : title[](https://future-of-labor.kinja.com)[THE FUTURE OF LABOR](https://future-of-labor.kinja.com)What's next for work and workers
 
 每天早上，黑豹党的波特兰分会都有一套惯例。
 

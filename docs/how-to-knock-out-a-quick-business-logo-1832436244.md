@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-knock-out-a-quick-business-logo-1832436244>
 
-[Get Ready To...](https://worksmarter.kinja.com)) : title[![](../Images/6df5a12c55ead4b12ad20872c9620c3d.png)](https://worksmarter.kinja.com)[Get Ready To...](https://worksmarter.kinja.com)Running a small business is hard work, but we're here to help. Welcome to Work Smarter, your one-stop-shop for tips and tricks to help small business owners save time and energy.
+[Get Ready To...](https://worksmarter.kinja.com)) : title[](https://worksmarter.kinja.com)[Get Ready To...](https://worksmarter.kinja.com)Running a small business is hard work, but we're here to help. Welcome to Work Smarter, your one-stop-shop for tips and tricks to help small business owners save time and energy.
 
 如果你的企业需要一个面向公众的标志，一个出现在标志、文具和广告上的标志，一个你和你的客户每天工作时都会看到的标志，那么你应该花几百(或几千)美元进行专业设计。如果你只需要一些东西放在你的脸书页面和每月的发票上，但你没有设计技能或 Photoshop，那么你可以在免费或便宜的网站上“定制”一个标志。我们试了几个，发现有三个效果不错，值得推荐。
 

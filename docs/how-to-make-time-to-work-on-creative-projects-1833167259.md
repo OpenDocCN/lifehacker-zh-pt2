@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-make-time-to-work-on-creative-projects-1833167259>
 
-[Get Ready To...](https://worksmarter.kinja.com)) : title[![](../Images/6df5a12c55ead4b12ad20872c9620c3d.png)](https://worksmarter.kinja.com)[Get Ready To...](https://worksmarter.kinja.com)Running a small business is hard work, but we're here to help. Welcome to Work Smarter, your one-stop-shop for tips and tricks to help small business owners save time and energy.
+[Get Ready To...](https://worksmarter.kinja.com)) : title[](https://worksmarter.kinja.com)[Get Ready To...](https://worksmarter.kinja.com)Running a small business is hard work, but we're here to help. Welcome to Work Smarter, your one-stop-shop for tips and tricks to help small business owners save time and energy.
 
 2017 年，当我的编辑问我是否愿意写一本书时，我正在以谈论和写作生产力为生，这本书类似于团队的五种功能障碍和*一分钟经理*——通过故事教授商业课程。只有一个问题。我什么时候才能在工作和照顾我的四个孩子之间找到时间呢？
 
