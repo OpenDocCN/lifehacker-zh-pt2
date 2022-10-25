@@ -6,7 +6,7 @@
 
 她的丈夫克里斯在三月下旬被诊断患有新冠肺炎之后不久，克里斯蒂娜也受到了病毒的折磨。对于这位三个孩子的母亲来说，这是一个充满压力的考验，尤其是现在她的儿子马里奥也被诊断出感染了这种病毒，这种病毒已经在美国感染了 100 多万人，并导致 56，500 人死亡。克莉丝汀娜·科莫(Cristina Cuomo)一丝不苟地为她的健康刊物《纯粹主义者》记录了她的[丈夫的](https://thepuristonline.com/2020/04/chris-cuomos-corona-protocol-week-two/) 新冠肺炎养生法，涵盖了从他们服用的补品到她和克里斯都采用的阿育吠陀饮食法的所有内容。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 克莉丝汀娜在 [的博客文章](https://thepuristonline.com/2020/04/the-cuomos-corona-protocol-week-3/) 中强调了她的具体治疗计划，她写道:“我依赖的许多治疗方法实际上比传统药物更便宜，比如辣椒、生姜和大蒜的肉汤或柠檬姜茶或维生素 C。”。
 
@@ -16,7 +16,7 @@
 
 “在没有咨询医生或自然疗法医生的情况下，以下这些自然疗法都不应该服用，”Cristina 写道，然后她发表了一篇 3000 多字的长篇文章，讲述了她如何在九天内战胜新冠肺炎并取得胜利，所有这些都是在 GNC 一家商店价值连城的补充剂的帮助下进行的(以及缺乏 FDA 批准的设备，听起来像是从《幽灵历险记》的场景中借来的)。作为一个名人和一位杰出州长的嫂子，许多美国人都在寻找这位州长的领导，她的建议可能会比一般的互联网健康人士更受重视。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 但是那些在过度紧张的医疗系统中工作的人是如何看待克莉丝汀娜·科莫的新冠肺炎疗法的呢？我联系了南希医生(化名，以保持她的身份私密)，她是费城一家医院的内科医生，我问她对克里斯蒂娜·科莫(Cristina Cuomo)在博客上记录的大量日常工作有何看法。她的第一反应是:“搞什么鬼去了大部分吧。”
 
@@ -24,7 +24,7 @@
 
 不说别的，克里斯蒂娜·科莫(Cristina Cuomo)广泛记录了她注入体内的一切——口服、静脉注射等——提供了一种坦率的人类学服务，显示了有多少东西可以花钱，如果你足够幸运的话。(Cuomo 尚未回复 Jezebel 关于她推广一种未经 FDA 批准的机器的评论请求，如果她回复，将更新此贴。)
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 * * *
 
@@ -36,7 +36,7 @@
 
 但是前面提到的研究涉及高剂量的静脉注射维生素 C，这在家里不容易获得...除非你是克里斯蒂娜·科莫(Cristina Cuomo)，她写道，她只是打电话给纽约市的 Roxanna Namavar 医生(一名 [精神病医生](https://www.prettyhealthynyc.com/practice) ),这是一家提供 300 美元维生素 C 点滴的精品替代健康机构。他们似乎没有保险，但他们的许多服务——肉毒杆菌注射、催眠、肽治疗——是否会被保险完全覆盖还是个疑问。根据 Cristina 的帖子，Namavar 穿着“hazmat 装备和 3M 面罩”出现，以管理维生素和补充丰富的点滴。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 “两个小时后，这项昂贵的投资得到了回报，我强烈的鼻窦疼痛消失了，”克里斯蒂娜写道。根据南希博士的说法，对于我们中的平民来说，正常口服剂量的维生素 C，大约每天 1000 毫克，就可以了。
 
@@ -46,7 +46,7 @@
 
 特朗普总统 [宣布](https://www.cnn.com/2020/04/10/health/trump-wrong-about-hydroxychloroquine/index.html) 羟氯喹是新冠肺炎的“彻底改变游戏规则者”，特朗普政府希望 [向美国人民分发数百万剂](https://www.vanityfair.com/news/2020/04/internal-documents-reveal-team-trumps-chloroquine-master-plan) 。但是没有强有力的发现证明它的成功。南希博士说:“迄今为止，只有一项关于人类的小规模研究，大约有 20 名患者接受了羟氯喹的测试。”。“假设 OXO 的作用方式与羟氯喹相同，但它是否对新冠肺炎有效还没有任何确切的数据。”
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 尽管这种令人困惑的转向相对未经测试的药物使用案例，南希博士在阅读了克莉丝汀娜的 [现在](https://www.latimes.com/entertainment-arts/story/2020-04-24/coronavirus-cristina-cuomo-chris-cuomo-clorox-instagram) [嗯](https://www.huffpost.com/entry/cristina-cuomo-clorox-coronavirus_l_5ea1e30ec5b60f4ac13f4914) - [有记载的](https://www.vanityfair.com/style/2020/04/cristina-cuomo-clorox-bath-donald-trump)-[Clorox 漂白浴](https://www.usatoday.com/story/entertainment/celebrities/2020/04/24/coronavirus-experts-warn-against-cristina-cuomos-bleach-baths-methods/3017294001/) 后，表达了更多的怀疑。克里斯汀娜引用了梅奥诊所 [的一篇文章](https://www.mayoclinic.org/diseases-condition/atopic-dermatitis-eczema/expert-answers/eczema-bleach-bath/faq-20058413c) 称在水中加入少量漂白剂有助于减轻湿疹等细菌性皮肤病的症状。然而，克里斯蒂娜并不是在治疗皮肤疾病，她正试图从身体中去除重金属和辐射——由手机和 Wi-Fi 引起的:
 
@@ -56,7 +56,7 @@
 
 **今年 2 月，作者波罗希斯塔·卡普尔(Porochista Khakpour)在一篇的博客文章中回忆了最近与兰开斯特的一次磋商。兰卡斯特说，她在 Khakpour 的“能量场中”看到了寄生虫，以及霉菌、莱姆病、EMF(电磁场)中毒和“白血病前期状态”兰开斯特开了生羊奶清洁剂，与辣椒和草药胶囊一起服用。Khakpour 写道，在为期八天的清洗结束时，她并没有感到任何不适。据《华盛顿邮报》报道，兰卡斯特在一次随访中告诉她:“嗯，你仍然有一些寄生虫，但我们已经清除了一些。”虽然 Khakpour 写道，她崇拜兰卡斯特的个性，但她拒绝继续养生，其中也包括一个 Clorox 浴。**
 
-**<label class="bxm4mm-13 juykRM">Advertisement</label>**
+****
 
 **克里斯蒂娜·科莫似乎对漂白剂浸泡的反应比 Khakpour 更积极。**
 
@@ -66,7 +66,7 @@
 
 **“我做了一个简短的搜索，没有找到一个出版物研究了在洗澡时使用漂白剂作为一种重金属排毒的方法，”南希说。“老实说，我不认为有人研究过去除体内重金属的家庭疗法。”她补充说，稀释的漂白剂在短时间内对皮肤可能是好的，但皮肤刺激的风险可能超过克里斯蒂娜寻求的任何好处。**
 
-**<label class="bxm4mm-13 juykRM">Advertisement</label>**
+****
 
 **然后还有克里斯蒂娜·科莫使用的一种""革命性的装置叫做人体充电器:**
 
@@ -76,7 +76,7 @@
 
 **众所周知，癌症不是由坏情绪引起的，但试着告诉奥皮兹，他的治愈过程官方网站解释道:**
 
-**<label class="bxm4mm-13 juykRM">Advertisement</label>**
+****
 
 > **灵魂的情绪记忆(EM)将你吸引到你的灵魂需要完成的事件，以释放 EM 中保存的能量。对大多数人来说，EM 是重复的，直到灵魂完成了体验。EM 从痛苦身体中汲取旧事件来呈现时间，让灵魂再次体验。这允许灵魂接近旧的体验，经常是与它在过去遇到过的相同的灵魂(而一些或所有的“玩家”有了新的身体、思想和人格)，允许旧的体验被重新体验和重新检查，在清理 EM 的同时给灵魂一个成长和进化的新机会。**
 > 
@@ -86,7 +86,7 @@
 
 **然而，克里斯蒂娜对能量医学的涉猎并没有就此停止。**
 
-**<label class="bxm4mm-13 juykRM">Advertisement</label>**
+****
 
 **“我还使用了 PEMF(脉冲电磁场)便携式机器，它优化了细胞开始愈合的能力，”科莫写道。“在身体组织或骨骼受到物理伤害或病毒攻击后，它使用低能量场来刺激细胞的自我修复机制。”许多 PEMF 零售商吹捧这种机器能够平衡人体 pH 值**
 
@@ -96,7 +96,7 @@
 
 **她补充说，“如果你的 pH 值如此之低，以至于你的身体无法再调节它，你可能需要住院。”**
 
-**<label class="bxm4mm-13 juykRM">Advertisement</label>**
+****
 
 * * *
 
@@ -108,6 +108,6 @@
 
 > **对于那些没有从上面的医生建议中得到足够多的建议，不赞同我的试错努力和我为保持自己强壮和健康所做的投资的人来说，这些信息不适合你。“以牙还牙只会增加仇恨，给已经没有星星的夜晚增加更深的黑暗。黑暗不能驱逐黑暗；只有光能做到。小马丁·路德·金说:“仇恨不能赶走仇恨，只有爱能做到这一点。”正如我们信任的纽约州州长所说:“爱必胜。”**
 
-**<label class="bxm4mm-13 juykRM">Advertisement</label>**
+****
 
 **我敢肯定，这是对依赖信仰、金钱和其他因素的医疗程序的谨慎回应，这正是马丁·路德·金在说出这些强有力的话时所想的。**

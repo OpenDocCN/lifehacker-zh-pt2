@@ -12,7 +12,7 @@
 
 虽然我运气好一点，因为大多数年票持有者被禁止在那个周末进入公园，而所有其他迪士尼乐园的粉丝似乎都太害怕人群出现，所以我也带着一个对迪士尼乐园的坚实的攻击计划来了。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### **研究，研究，研究**
 
@@ -24,7 +24,7 @@
 *   对于《星球大战:银河边缘》的预订流程来说——这对于你的下一次旅行来说并不重要——弄清楚迪士尼何时开放在线注册进入这片土地，并确保我的旅行团准备好坐在虚拟队列中(以最大化我们进入的几率)。
 *   阅读其他人(在 Twitter 和 Reddit 上)的开幕日旅行报告，感受一下我可以做或跳过的体验——以及哪里有什么好商品卖(多少钱)。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 老实说，这些是我去任何一个迪士尼乐园旅行的正常步骤。研究至关重要。你会想知道正在发生什么特别的事件，如果有的话——包括公园 [是否因为自己的特别事件](https://disneyland.disney.go.com/calendars/month/) 提前关闭，比如毕业生之夜，或者是否有 [非官方活动计划](https://www.undercovertourist.com/blog/disneyland-special-events/) 可能会导致公园 [在你想去的时候变成疯人院](http://dapperday.com/) 。
 
@@ -38,7 +38,7 @@
 
 那么，什么日子和时间最合适呢？还有 [整个](https://www.undercovertourist.com/blog/best-time-visit-disneyland/) [网站](https://www.isitpacked.com/disneyland-crowd-forecast-predictor-calendar/) [专用](https://magicguides.com/disneyland-crowd-calendar/) 到这个 [非常](https://touringplans.com/disneyland-resort/crowd-calendar) [分析](https://insidethemagic.net/2018/12/ba1-disneyland-crowd-calendar/) ，你可以随意交叉引用它们，你觉得合适。我承认，这让我头疼。相反，我会查看迪士尼乐园对年度通行证持有者的 [限制日期](https://disneyland.disney.go.com/passes/blockout-dates/) 。如果迪斯尼乐园不想让它的超级粉丝来乐园，那将会是忙碌的一天。然后，我会避开明显的陷阱，比如三天的周末或假期，我会选择一个我最开心的时间——周四、周五、周六的旅行——而不是周末的狂欢。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 你应该住在哪里？
 
@@ -52,7 +52,7 @@
 
 作为迪士尼乐园规划的一部分，你需要解决的另一个大问题是，你将购买哪种通行证来进入迪士尼乐园的两个主要公园。如果你不打算一年只去一次公园，答案很明显:某种公园跳票，它允许你在迪斯尼乐园和加州冒险之间无限制地穿梭。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 当然，如果你买“你每天只能去一个公园”的票，你会省钱，但是那是一个愚蠢的错误。从一个公园跳到另一个公园，以避开人群，吃独特的食物，或者给你的一天增加一些多样性，这是明智之举。尽管你可以提前计划好你的旅行——骑行、表演、活动、用餐等等，但当你在地面上时，现实将会大不相同。你的兴趣可以改变。线条会影响你的一天。你可能会错过获得迪士尼乐园 *Fantasmic 快速通行证的机会！*秀，但得分加州冒险同样令人印象深刻的*彩色世界*秀。给自己灵活性，想做什么就做什么；付钱给那个跳公园的人。
 
@@ -64,7 +64,7 @@
 
 我讨厌去迪斯尼乐园总感觉像是在赚钱。这并不是说你不能以便宜的方式来做这件事——打包你的饭菜 ，不买昂贵的东西，充分利用迪士尼乐园在各个小吃摊发放的免费水。然而，有一样东西我会一直挥霍，那就是迪士尼乐园[【max pass】](https://disneyland.disney.go.com/guest-services/maxpass/)。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 对于那些不知道的人来说，MaxPass 是迪士尼乐园 [快速通行证](https://disneyland.disney.go.com/guest-services/fastpass/) 系统的数字版本——在特定的一小时窗口内快速进入游乐设施。如果你走快速通行证路线，你必须走到你想去的游乐设施外面的小亭，扫描你的公园门票，并获得第二张实体卡，告诉你什么时候回来更快地进入游乐设施。对每一次你想去的地方重复这个动作。
 
@@ -80,7 +80,7 @@
 
 ### **玩迪士尼乐园应用程序很有趣，但是...**
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 如果你因为忘记带充电线、忘记带便携式充电器，或者不想整个假期都盯着屏幕，而想节省智能手机宝贵的电池电量，你可以*或许*跳过玩迪士尼乐园应用程序( [iOS](https://apps.apple.com/app/id1325935439) 、 [Android](https://play.google.com/store/apps/details?id=com.disney.playdisneyparks.goo&referrer=utm_campaign%3DDLR%2520Play%2520Marketing%2520Page%26trackingcode%3DILC-DLR-PlayMarketingPage%26utm_source%3DDLR%26utm_medium%3DWebsite) )。
 
@@ -94,7 +94,7 @@
 
 现在这片土地对所有人开放，整个体验有些改变。如果你想享受一天的乐趣，而不是忍受几个小时的排队，或者更糟糕的是，在你的银河冒险中只做一两件事，而不是做你一直听到的关于 的所有事情，我能想到的只有两个主要建议。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### **去得早**
 
@@ -104,7 +104,7 @@
 
 #### **更早醒来并预订房间**
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 如果你想~~造一把光剑~~去*星球大战:银河边缘*的废料拍卖会或者在令人敬畏的酒吧里喝一杯，你必须在那天早上 7 点登录迪士尼乐园的网站或者迪士尼乐园的应用程序，希望你能抢在其他人之前获得一个预定位置。截至我们写这篇文章时，没有其他方法可以排队获得这些体验；将不会有备用线，也没有任何其他方式进入。(迪士尼甚至让你 [交订金](https://www.themeparkinsider.com/flume/201906/6849/) 以显示它对预订过程的重视——跳过你的预订时段，你就放弃你的现金。)
 
@@ -114,7 +114,7 @@
 
 #### **控制你的期望**
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 应对主题公园的全新扩建的基本原则很简单:不要抓狂。
 

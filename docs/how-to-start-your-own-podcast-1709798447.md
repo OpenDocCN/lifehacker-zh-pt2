@@ -6,7 +6,7 @@
 
 虽然每个拥有录音应用程序的纸上谈兵的广播员都渴望加入这个游戏，但创建一个听起来专业的播客并没有那么简单。本指南将告诉你如何创建、录制和发布你自己的基础播客，并让人们去听。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 *   [**你需要的档位**](https://kinja.com/write/1843809460#podcastgear)
 *   [](https://kinja.com/write/1843809460#podcastniche)
@@ -27,7 +27,7 @@
 
 **不要指望通过播客致富。播客有可能产生收入，但这通常需要广告、赞助和赞助——只有在你建立了足够大的听众群，让广告商觉得值得时，你才能获得所有这些。**
 
-**<label class="bxm4mm-13 juykRM">Advertisement</label>**
+****
 
 **如果你对开播客不感兴趣，或者只是想让别人听到你的声音，除非你已经有了一个热切的听众，否则你可能不会从中得到什么。**
 
@@ -48,7 +48,7 @@
 
 **你可能认为所有这些设备都很昂贵，你没有错。然而，请记住，如果你照顾好它，体面的音频设备将永远存在。一开始可能会很贵，但初次购买后，你就万事俱备了。**
 
-**<label class="bxm4mm-13 juykRM">Advertisement</label>**
+****
 
 ### ****缩小你的话题，找到你的定位****
 
@@ -60,7 +60,7 @@
 
 ### ****下载、安装和设置 Audacity****
 
-**<label class="bxm4mm-13 juykRM">Advertisement</label>**
+****
 
 **如前所述，Audacity 是播客初学者的绝佳选择。它是开源的，只要你愿意，可以免费使用，并且可以在 Windows、macOS 和 Linux 上使用。**
 
@@ -76,7 +76,7 @@
 
 ### ****在 Audacity 中录制和编辑您的播客****
 
-**<label class="bxm4mm-13 juykRM">Advertisement</label>**
+****
 
 **Audacity 中的录音非常简单，但是在你开始第一次表演之前，有几件事你应该做**
 
@@ -94,7 +94,7 @@
 
 **如果你不知道自己在做什么，创作和录制自己的主题音乐会非常困难(而且听起来可能不会很好)。把它留给专业人士，在任何一个提供有 [归属国际许可](https://creativecommons.org/licenses/by/4.0/) 或 [归属-非商业性国际许可](https://creativecommons.org/licenses/by-nc/3.0/) 的音乐的网站上找到免费音乐——就像 [免费音乐存档](http://freemusicarchive.org/) :**
 
-**<label class="bxm4mm-13 juykRM">Advertisement</label>**
+****
 
 1.  **按流派或通过搜索浏览音乐。**
 2.  **找到你喜欢的曲目，点击向下箭头下载。**
@@ -115,7 +115,7 @@
 
 **如果你需要从你的播客中删除一些东西，比如说脏话，如果你想保持干净，或者不应该公开的信息，这很容易解决:**
 
-**<label class="bxm4mm-13 juykRM">Advertisement</label>**
+****
 
 1.  **找到您需要剪切的音频部分。**
 2.  **使用选择工具并高亮显示要删除的整个部分。**
@@ -132,7 +132,7 @@
 
 **为什么要用多个话筒录音？首先，它使修复某人的音频变得容易得多，无论是在现场通过调整他们的麦克风电平，还是稍后如果你有多个音轨同时录制。**
 
-**<label class="bxm4mm-13 juykRM">Advertisement</label>**
+****
 
 **然而，即使有了**多个 USB 麦克风**，Audacity 一次也只能识别一个音频输入进行录制。无畏团队 [建议了几种方式](https://manual.audacityteam.org/man/faq_recording_how_to_s.html#twomics) 来绕过这个限制:**
 
@@ -150,7 +150,7 @@
 
 **Audacity 不直接支持 Skype 录音，但 Audacity 团队有一些方法可以让你偷偷绕过它，同时用于和 [macOS](https://manual.audacityteam.org/man/tutorial_recording_computer_playback_on_mac.html) 。**
 
-**<label class="bxm4mm-13 juykRM">Advertisement</label>**
+****
 
 **否则，你必须使用额外的软件，如 [MP3 Skype 录音机](http://voipcallrecording.com/) 或 [Pamela](http://www.pamela.biz/en/products/) 并将通话音频导入 Audacity，就像导入音乐或其他音频文件一样。一旦进入 Audacity，您就可以调整音量，确保一切听起来都没问题。尽管 Audacity 很强大——尤其是免费的——但它肯定有它的局限性，所以如果你真的喜欢播客，它值得你去寻找一个更好的黎明。**
 
@@ -160,7 +160,7 @@
 
 **首先，您需要编辑文件的元数据(也称为“标记”)。元数据是无论文件名是什么都会显示的信息，包括标题、曲目号、专辑和艺术家姓名等内容。**
 
-**<label class="bxm4mm-13 juykRM">Advertisement</label>**
+****
 
 **幸运的是，Audacity 允许您在将音频导出为 MP3 时这样做:** 
 
@@ -187,7 +187,7 @@
 
 **播客章节是让用户更好地控制他们的收听体验的好方法。例如，您的播客可能涵盖各种各样的主题，或者您可能想让您的听众轻松访问您的各个部分。这不是一个要求，很少有播客使用这个功能，但是如果你想展示一个更好的作品，播客章节肯定会有帮助。**
 
-**<label class="bxm4mm-13 juykRM">Advertisement</label>**
+****
 
 **播客章节的工作方式类似于书中的章节，让您可以“跳过”像引言这样的片段，或者跳过您不感兴趣的片段。您甚至可以将图片添加到您的播客部分，将图片与讨论联系起来，或者使用它来呈现关于某个主题的更多信息。不幸的是，手动添加它们既复杂又耗时。为了避免麻烦，请使用章节添加软件:**
 
@@ -197,7 +197,7 @@
 
 **Mac OS:[**Mac 上的章节**](https://itunes.apple.com/us/app/podcast-chapters/id1070963477?mt=12) ($19.99)应用程序使得在 Mac 上添加章节变得非常简单。如果您正在处理多个 podcast，您可以存储 podcast 预置，调整回放速度以帮助您更快地找到分段标记，以及添加图像。**
 
-**<label class="bxm4mm-13 juykRM">Advertisement</label>**
+****
 
 ### ****选择一个强有力的名字，并制作封面图片****
 
@@ -207,7 +207,7 @@
 
 **你的播客还需要一张图片。这是人们看到你的节目时首先会看到的东西，所以它应该看起来不错。为了在目录中列出您的播客，还需要一个图像，如 [、iTunes](https://itunes.apple.com/ug/genre/podcasts/id26?mt=2) 、 [Stitcher](https://www.stitcher.com/) 和 [BluBrry](https://www.blubrry.com/) ，以及播客管理器，如 [Pocket Casts](https://www.pocketcasts.com/) 和[dog catcher](https://play.google.com/store/apps/details?id=com.snoggdoggler.android.applications.doggcatcher.v1_0)。**
 
-**<label class="bxm4mm-13 juykRM">Advertisement</label>**
+****
 
 **封面艺术可以是一张照片，也可以是一件定制的艺术品，这取决于你想如何表现你的展览。如果这个节目是关于你的，你甚至可以用一张你自己的好照片。如果你喜欢，你可以使用简单的标志，只要它与你在播客上谈论的内容有关。你要确保你的形象尽可能地传达你的节目的真实内容。**
 
@@ -221,7 +221,7 @@
 
 **一个好的经验法则是将图像优化为 150 x 150 像素。如果它看起来那么小，你知道你不会遇到任何问题。[Audacity to 播客的丹尼尔·j·路易斯还建议](http://theaudacitytopodcast.com/how-to-make-great-podcast-cover-art-tap191/) 对某些类型的图片区别对待，让它们看起来总是最好的:**
 
-**<label class="bxm4mm-13 juykRM">Advertisement</label>**
+****
 
 *   **对于基于照片/图像的作品，尽可能获得最大的版本，并在其尺寸范围内进行设计。**
 *   **对于基于颜色或插图的图稿，请在矢量编辑器(如 Adobe Illustrator)中进行设计，使图稿可以缩放到任何大小而不会损失质量。**
@@ -241,7 +241,7 @@
 
 **如果你是播客的新手，或者一般来说是在线托管媒体文件的新手，试试免费服务，看看你是否喜欢它们的工作方式。当你找到一个你喜欢的，如果你真的想继续你的播客，付费主持是值得的。此处列出的每台主机都会为您提供如何上传 podcast 音频文件的简单说明，但无论您选取哪种服务，都有一些基本步骤需要遵循:**
 
-**<label class="bxm4mm-13 juykRM">Advertisement</label>**
+****
 
 1.  **当你注册服务时，使用你的播客的名字(或者最接近的名字)。**
 2.  **上传至少为 1，400 x 1，400 像素的封面图片。**
@@ -264,7 +264,7 @@
 
 **应该可以了！如果你没有马上在苹果播客中看到任何弹出的内容，不要紧张。你的播客可能需要 24 小时到两周的时间才能被添加，因为你的播客必须首先经过一组人的审核。幸运的是，在其他播客目录中列出的过程并没有太大的不同，所以一旦你搞清楚了苹果播客，前途无量。** 
 
-**<label class="bxm4mm-13 juykRM">Advertisement</label>**
+****
 
 **最后，尽管让每个人都能听到你的播客是令人兴奋的，但考虑一下等到你已经有了一些播客后再提交你的第一集。只提交一集可能会让那些偶然发现你的节目的人有很多不满意的地方。你也不太可能被当作新的、值得关注的事物来宣传或推广。所以在你开始尝试增加你的观众之前，录三四集。**
 

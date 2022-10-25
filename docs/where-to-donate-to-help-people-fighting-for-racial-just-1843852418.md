@@ -10,7 +10,7 @@
 
 如果你想把你的捐款直接捐给某个特定的地方，下面的保释金和法律基金清单是按州分类的。如果没有， [“蓝色行动”设置了一个页面](https://secure.actblue.com/donate/bail_funds_george_floyd?refcode=cwg) ，将你的捐款在 39 个社区保释基金之间进行分配。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### 反对种族主义的国家组织
 
@@ -63,7 +63,7 @@
 
 阿拉巴马州
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 *   无人掉队基金
 *   [蒙哥马利纾困基金](https://givebutter.com/mgmbailout)
@@ -84,7 +84,7 @@
 
 特拉华州
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 *   [FNB 保释基金](https://www.gofundme.com/f/fnbbailfundwilm)
 
@@ -108,7 +108,7 @@
 
 伊利诺伊州
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 *   芝加哥社区债券基金
 *   [温尼贝戈债券项目](https://www.wincoilbondproject.org/donate)
@@ -128,7 +128,7 @@
 
 路易斯安那州
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 *   新奥尔良安全与自由基金会
 
@@ -147,7 +147,7 @@
 
 密苏里
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 *   [密苏里州黑人抗议者救济基金会](https://www.gofundme.com/f/mo-black-protester-relief-fund)
 *   堪萨斯城社区保释基金
@@ -170,7 +170,7 @@
 
 **俄克拉荷马**
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 *   [BLM 俄克拉荷马](https://www.paypal.me/BLMOKC)T3】
 
@@ -195,7 +195,7 @@
 
 **罗德岛**
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 *   [方社区保释基金](https://www.gofundme.com/f/fangbailfund)
 
@@ -223,7 +223,7 @@
 
 犹他州
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 *   盐湖城社区保释
 
@@ -244,7 +244,7 @@
 
 **华盛顿特区**
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 [市于 1992 年取消了现金保释](https://www.washingtonian.com/2020/06/01/dc-doesnt-have-a-bail-fund-heres-how-you-can-donate-to-help-protesters/) ，但 BLM 的 DC 分会正在筹款寻求法律支持:
 

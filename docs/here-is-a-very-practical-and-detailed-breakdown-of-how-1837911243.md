@@ -4,7 +4,7 @@
 
 当你听到“[【van life】](https://jalopnik.com/vanlife-can-be-cheaper-weirder-and-more-accessible-th-1836822787)”这个词时，通常会想到一对年轻迷人的夫妇在一辆内部定制得像小木屋一样的一尘不染的短跑车前做瑜伽。日落时分。在海滩上。信不信由你，你不一定需要成为 [一个 Instagram 明星和一辆昂贵的时髦面包车](https://jalopnik.com/even-hippies-living-in-vans-are-shilling-for-brands-on-1794423354) 在这个国家旅行，过你最好的生活。你可以在一辆有 20 年历史的破旧小货车里完成，预算不多，木屋碎片也少。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 我断断续续做了几年，对那些有兴趣长时间旅行的人有一些建议，看看这个国家，有点舒服，不要打破银行。
 
@@ -26,7 +26,7 @@
 *   在车里放一把小挂锁，用于健身房和游泳池的储物柜。
 *   一个额外的建议是一个太阳能/曲柄应急收音机与天气波段。即使你不在手机信号范围内，也可以边听音乐边吃晚餐，或者通过电台访谈探索当地风味。当天气开始变得不吉利时，检查一下当地的天气也是很有用的，这样你就不是唯一一个在附近的龙卷风期间，当你的货车在沃尔玛的一个空停车场被风吹得摇晃时，坐在那里毫无头绪的人(真实故事)。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### 食物:
 
@@ -61,7 +61,7 @@
 
 对于低预算旅行来说，其他可以派上用场的资源是大量的 road trip 和 vanlife 应用程序，如 Roadtrippers、AllStays 和 BLM 土地地图。还有，这一点怎么强调都不为过:不要做一个糟糕的旅行者。本质上， [不留痕迹](https://www.nps.gov/articles/leave-no-trace-seven-principles.htm)[别鸡巴](https://generationdirtbag.com/7-vanlife-rules-to-live-by/) 。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 当你穿过某个区域，在不寻常的地方露营，或者只是在休息站停车过夜时，你就是其他人做同样事情的代表。就像“这就是为什么我们不能拥有美好事物”一样，它可能会被那些不尊重或破坏他们所在的社区和他们所依赖的资源的人在公众舆论中毁掉。所以，当你和你的朋友在那里进行一次有趣的 vanlife 旅行时，重要的是要记住，有些住在车里的人并不是自愿去那里的，你的行为会影响那些没有其他选择的人。
 
@@ -69,7 +69,7 @@
 
 如果我们都采用这种方法，不仅每个人都会过得更好，而且我们也不会因为不尊重他人的过度旅游而毁掉我们所爱的一切。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 在美国旅行是一项激动人心的活动，也是美国的传统活动。根据你所需要的舒适程度，它可以是非常实惠和容易获得的，打开这个国家的多元化广阔空间去探索，而不需要小财富的小摆设和豪华汽车来容纳它们。
 

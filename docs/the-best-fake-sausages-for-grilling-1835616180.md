@@ -6,7 +6,7 @@
 
 嗯，有时候。并非所有的非狗都生来平等，某些制造商比其他制造商做得更有说服力。选择假香肠时，参数与选择真香肠几乎相同，尽管标准略有不同。质地、味道和漂亮的外壳是关键，我尝试的产品中只有一种(六种中的一种)接近真货。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 为了口味测试，我从三个厂家抢了两种口味(意大利和经典小香肠):超越肉[Tofurky](https://tofurky.com/what-we-make/sausages/italian/)[现场烤](https://fieldroast.com/product-family/sausages/) 。每一个都在不粘锅里煮 7 分钟，直到两面都变成棕色。Beyond 和 Tofurky 都可以直接从包装中取出，但现场烤香肠有一个不能食用的塑料外壳，必须移除，我觉得这很不方便。
 
@@ -14,7 +14,7 @@
 
 这三种香肠在烹饪时都保持了它们的形状，尽管必须小心处理，因为它们比你的标准香肠要软一些。就质地而言，只有 Beyond 香肠的肠衣能抵抗任何牙咬，而且很轻微。它也有一种类似于真正香肠的弹性，尽管“肉”看起来有点过厚。然而，Tofurky 和现场烘烤的样品只是糊状物，没有皮可言。(坦率地说，我没有给他们拍照，因为看到他们会让我难过！)我还欣赏 Beyond 香肠像真香肠一样涂上油脂，留下一小滩油脂。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 **获胜者:**超越肉香肠，这两个品种都因其逼真、有弹性的质地、轻微的断裂和逼真的油脂池而获奖。
 
@@ -26,6 +26,6 @@
 
 **获胜者:** Beyond Meat 热意大利香肠，因其缺乏面筋风味，极佳的香料，以及咸味、肉味俱佳。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 他们会取代我最喜欢的非肉类烧烤选择， [也就是奶酪](https://skillet.lifehacker.com/your-new-vegetarian-grilling-staple-is-cheese-1835275453) ？可能不是，奶酪不是纯素的。就素食主义者，烧烤友好的食物而言，这种辣香肠非常接近，特别是当它和烤洋葱堆在一起的时候。

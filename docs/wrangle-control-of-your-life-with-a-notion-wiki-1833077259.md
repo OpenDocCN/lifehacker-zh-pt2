@@ -6,7 +6,7 @@
 
 无论你是喜欢把所有东西都清楚地放在一个页面上，还是更倾向于右边的看板，conception 都提供了你需要的模板和工具来跟踪截止日期、谷歌文档链接、Dropbox 文件、网上的零散图片等等。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 观念可以免费使用，并有应用程序供您的 [浏览器](https://www.notion.so/evernote)[Windows](https://www.notion.so/desktop)[Mac](https://www.notion.so/desktop)[iOS](https://www.notion.so/mobile)和 [Android](https://www.notion.so/mobile) 。免费订阅对于一个孤独的工作者来说足够了，尽管你被限制在 1000 个块和不大于 5MB 的文件。如果你认为你需要更多，4 美元一个月的个人账户可以让你获得无限的块存储空间，没有文件上传限制，还可以访问版本历史。对于那些想用这款应用管理一个小团队的人来说，个人账户和管理工具的费用是每人每月 8 美元，其中包括强大的编辑权限。
 
@@ -16,7 +16,7 @@
 
 你不需要知道任何关于概念的东西就可以开始使用它。一旦你启动了它，决定你是否想要使用一个预先填充的模板或开始裸露。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 你可以在新页面上从十几个预制模板中进行选择。一些模板适合常见的业务需求，比如跟踪销售和新员工入职；还有一些是针对个人需求的，比如通过清单跟踪你的每周日程，把你觉得值得剪下来的文章归档到一个总的阅读清单上。也有空白模板，尽管它们在模板选项中不可用。在新页面屏幕上向下滚动到 Database 部分，您将看到表格、基于看板的板或简单的 listicle 等内容的框架布局。
 
@@ -24,7 +24,7 @@
 
 ### 无论你喜欢什么，都要树立观念
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 概念的中心前提围绕着内容块。块可以是文本、图像、链接、清单或项目符号。您也不会拘泥于第一个选择的块，因为随着项目的变化和需求的发展，您可以快速地移动数据和增加或减少块。
 
@@ -36,7 +36,7 @@
 
 导入功能有一些注意事项。我试着上传了一些我最常用的 Google Sheets 文件，一些特定于单元格的公式翻译得不太好。用一点小技巧，我可以得到想要的效果，但这不是苹果对苹果的体验。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### 记下您的共享偏好
 
@@ -44,7 +44,7 @@
 
 如果你在托管敏感信息，就要小心了，因为“公共访问”意味着任何有链接的人都可以访问该页面，不管他们是否用概念登录，并且内容可以被搜索引擎索引。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### 用观念来追踪所有的小事
 
@@ -56,7 +56,7 @@
 
 我有一个习惯，就是把我在网上阅读的文章中我最喜欢的部分粘贴到一个空白的文本文件中，然后忘记我把它们保存在哪里，当我以后想回忆起来的时候，这不是很有帮助。如果你也因快速复制粘贴而臭名昭著，使用 [概念浏览器扩展](https://chrome.google.com/webstore/detail/notion-web-clipper/knheggckgoiihginacbkhaalnibhilkk?hl=en) 从链接中提取报价并保存到特定的工作页面。你甚至不需要在归档后格式化它。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### 尽情使用表情符号
 
@@ -64,7 +64,7 @@
 
 ### 给自己留下提醒
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 当然，掌控全局的最终方法是给自己足够的时间提醒。idea 带有提醒功能，可以让您了解日历中即将到来的任务和会议。然而，我不会将它作为您的主要调度方法，因为警报仅限于您安装了 idea 应用程序的平台。
 

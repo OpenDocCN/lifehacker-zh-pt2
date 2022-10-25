@@ -6,7 +6,7 @@
 
 从当地居民到运营垃圾焚烧发电厂的公司，每个人似乎都对这种情况感到不满，这是一场危机的缩影，这场危机自中国以来一直在全国蔓延，中国曾经是美国可回收物的最大买家 ，禁止进口 [两打“外国废物”](https://www.waste360.com/recycling/china-notifies-wto-intent-ban-24-types-solid-waste-imports) ，并对其接受的可回收物实施严格的质量标准。在全国范围内，市政当局正面临着更高的成本，并被迫寻找权宜之计，从焚化炉到垃圾填埋场，寻找无处可去的可回收物。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 与此同时，尽管处理了美国四分之一的废物，但几乎没有联邦政府指导的回收行业正在为自己开辟一条新的前进道路而进行生存斗争。
 
@@ -18,7 +18,7 @@
 
 根据环境保护署的数据，美国回收者每年总共处理大约 6100 万公吨的材料。直到最近，中国还是一个巨大的买家，在 2016 年接收了大约[1600 万吨](https://phys.org/news/2018-01-china-import-upends-global-recycling.html) 美国废弃商品，其中 [占美国废纸出口](https://www.usitc.gov/publications/332/executive_briefings/ebot_china_recycled_paper_final.pdf) 的 60%。这一切在去年都改变了，当国家开始推出严格的进口禁令，作为全国对抗污染运动的一部分。2018 年 1 月，中国禁止进口包括混合纸和消费后塑料在内的 [24 种国外材料](https://cdn.ymaws.com/wasterecycling.org/resource/resmgr/issue_brief/nwra_issue_brief_on_changing.pdf) 。两个月后，它收紧了禁令未涵盖的可回收纸制品的污染阈值，包括 [瓦楞纸板](https://www.usitc.gov/publications/332/executive_briefings/ebot_china_recycled_paper_final.pdf) 至 0.5%。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 正如一位行业专家所说，这对美国回收业的影响就像一场“地震。”根据美国人口普查局和美国国际贸易委员会汇编的 [数据](http://swana.informz.net/SWANA/data/images/China-RecyclingUpdate-June2018_US_generic.pdf) ，2017 年 1 月至 2018 年 1 月，对中国的混合纸和塑料出口下降了 90%以上。随着该行业争相寻找新的买家，价格一落千丈。行业贸易组织全国废物回收协会(National Waste and Recycling Association)负责技术和监管事务的副总裁安妮·杰曼(Anne Germain)告诉我，混合纸的售价从每吨 100 美元左右涨到了每吨 3 美元左右。
 
@@ -28,7 +28,7 @@
 
 因为沿海地区享有较低的运输成本，他们的回收更依赖于中国，这也是新政策的影响首先被感受到的地方。但是，随着纽约人和加州人争相为成捆的塑料废料和纸板寻找新的买家，包括美国中部青睐的国内回收商，杰曼说，让制造商盘点库存“变成了一场竞购战”。“最终，整个国家都受到了影响。”
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 最终，影响波及到了城市，面对不断飙升的回收成本，城市被迫做出艰难的选择，是将可回收物送往垃圾填埋场，还是减少他们可以接受的物品清单。费城的情况既独特又是整个国家面临的问题的精髓。
 
@@ -36,7 +36,7 @@
 
 “从财务角度来看，这是不可行的，”麦格拉思告诉我。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 因此，根据 McGrath 的说法，费城做出安排，向废物管理部门支付每吨 78 美元，以获得一半的可回收物，并将另一半发送给废物变能源公司 Covanta，该公司以每吨约 63 美元的价格接受该市的垃圾。2018 年 10 月，可回收物开始与固体废物混合在一起，用卡车运送到两个卡万塔拥有的焚烧炉， [一个在切斯特市](https://www.covanta.com/our-facilities/covanta-delaware-valley) ，另一个在 [普利茅斯](https://www.covanta.com/Our-Facilities/covanta-plymouth) 。
 
@@ -46,7 +46,7 @@
 
 “我们强烈认为，源头分离的材料应该被回收，”他说，并指出，向废物流中引入更多的塑料和纸张意味着工厂处理更少的废物来产生同样多的能源，这最终对企业不利。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 麦格拉思强调，焚烧是“在我们制定长期合同时的权宜之计”，他希望该市将在今年春天完成这项工作。“在 3 月和 4 月之间的某个时候，我们将获得那份合同，让事情回到我们原来的位置，”他说。"我们有一个处理器处理所有的回收."
 
@@ -56,7 +56,7 @@
 
 杰曼说，公共教育是整个回收行业多年来一直放任不管的事情。“我们更多的是鼓励回收，而不是说停止做这做那，”她说。这一点，加上单流的广泛采用，使得公众越来越热衷于将所有东西扔进他们的蓝色垃圾箱，导致了许多科斯塔所谓的“理想回收”，或试图回收垃圾。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 “一旦你开始说越来越多的材料是可以接受的，似乎很多人开始认为一切都是可以接受的，”热尔曼说，并补充说，与几十年前相比，今天包装的复杂性增加了，这只是增加了混乱。
 
@@ -66,7 +66,7 @@
 
 “我们需要向零浪费迈进，”能源正义网络的创始人和主任迈克·埃沃尔告诉我。Ewall 提出了“现收现付” 计划，根据居民产生的垃圾量向他们收费，以及路边堆肥计划，作为实现这一目标的重要工具。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 根据 McGrath 的说法，对于费城来说，减少废物“将是未来的一个更大的组成部分”。像许多其他美国城市一样，费城现在正朝着零废物的未来努力，其中 [的目标是](https://www.philadelphiastreets.com/zero-starts-with-one/) 到 2035 年转移 90%的垃圾并消除垃圾。麦格拉思说，到目前为止，该市的很多努力都集中在减少垃圾方面，但他预计很快就会看到消除垃圾的努力。
 

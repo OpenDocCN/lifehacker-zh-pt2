@@ -12,7 +12,7 @@
 **当前移动设备:** iPhone 7
 **一个词最能描述你的工作方式:**坚持不懈
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 首先，简单介绍一下你的背景，以及你是如何走到今天这一步的。
 
@@ -22,7 +22,7 @@
 
 那天下午，像往常一样，一大叠文件被放在我家的前廊上，用橡皮筋包好，放在我的自行车上。封面上就有我的照片，我自豪地投递了每一份报纸。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 带我们看看最近的一个工作日。
 
@@ -36,7 +36,7 @@
 
 在我们总部(DC)的照相馆里，我通常用连接到 Mac Pro 的 [佳能 5D Mk IV](https://www.usa.canon.com/internet/portal/us/home/products/details/cameras/eos-dslr-and-mirrorless-cameras/dslr/eos-5d-mark-iv) 或 [SR](https://www.usa.canon.com/internet/portal/us/home/products/details/cameras/eos-dslr-and-mirrorless-cameras/dslr/eos-5ds-r) 拍摄。我拍摄到 [捕捉一个](https://www.captureone.com/en/) 这样我就可以在大屏幕上看到了。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 这种设置的一个巨大优势是我可以使用佳能的实时视图，这让我可以在电脑显示器上看到来自相机的实时视频，我可以调整物体和照明，并查看结果，而不必拍照。Capture One 甚至可以让我调整相机设置，当相机安装在 10 英尺高的地方向下看时，这是一个方便的功能。我在野外拍摄文物时使用了相同的设置，但我使用了 MacBook Pro。
 
@@ -44,7 +44,7 @@
 
 有时候我需要总部的图片编辑给我快速的反馈。我会用我的 iPhone 在相机的 LCD 屏幕上拍摄图像，然后发送出去。拍一张照片是多余的，但在合适的情况下效果相当好。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 带我们经历一个有趣的、不寻常的或挑剔的工作流程。
 
@@ -58,7 +58,7 @@
 
 我的日历就是一切。它记录了我所有的拍摄地点和与拍摄相关的联系信息。通常照片编辑和我会在云中共享一个文档，以跟踪与一个故事相关的不同拍摄的进度。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 怎么充电或者休息？
 
@@ -74,7 +74,7 @@
 
 [](https://www.amazon.com/Righteous-Mind-Divided-Politics-Religion/dp/0307455777?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-national-geographic-photographer-mark-thiessen-and-1834930746&asc_source=&tag=kinjalifehackerlink-20)*乔纳森·海特。这是关于理解为什么政治光谱两端的人会有这样的感觉。你会明白为什么你坚持你的道德信仰，为什么别人不同意你。*
 
-*<label class="bxm4mm-13 juykRM">Advertisement</label>*
+**
 
 #### *你能分享你制作的音乐播放列表吗，用于工作或其他地方？*
 
@@ -88,7 +88,7 @@
 
 *无论你做什么，都要尽力而为。*
 
-*<label class="bxm4mm-13 juykRM">Advertisement</label>*
+**
 
 #### *你还在努力解决什么问题？*
 

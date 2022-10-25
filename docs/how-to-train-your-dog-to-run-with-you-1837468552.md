@@ -6,7 +6,7 @@
 
 然而，在你和你毛茸茸的朋友踏上小径或人行道之前，有一些事情需要知道。首先，不是每只狗都适合跑步，尤其是长跑。即使你的小狗是一个伟大的跑步者，你也要教他们一些事情来帮助你的外出更加顺利。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ## 首先:和你的兽医谈谈
 
@@ -20,7 +20,7 @@
 
 首先，你可能需要一个不用手的皮带，这样你就可以像在其他跑步中一样自由地移动你的手臂。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 哈特斯坦给你一个忠告:*永远不要*在带着你的狗跑步时使用窒息链、尖头项圈或电击项圈——如果你因为任何原因不得不突然停下来，受伤的风险太高了(或者如果你的狗突然发现一只松鼠，他只是*有*去追逐)。
 
@@ -36,7 +36,7 @@
 
 Hartstein 说，这是一个信号或命令，提醒你的狗注意速度的变化，这样你就不只是猛拉它的皮带了。提示可以是任何东西——例如， [美国养狗俱乐部](https://www.akc.org/expert-advice/training/how-to-train-your-dog-to-run-with-you/) (AKC)建议“跑”或“我们走”——只要它是新的，而不是你的狗联想到另一个命令。你可能还想使用某种口头暗示，让他们知道什么时候该慢下来了(例如，“停”或“哇”)。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ## 慢慢开始
 
@@ -48,7 +48,7 @@ Hartstein 说，这是一个信号或命令，提醒你的狗注意速度的变�
 
 准备好去做更有挑战性的事情了吗？尝试一个只针对狗狗的 5K 训练计划(是的，它们真的存在！). *Runner's World* [这里有几个不错的选择](https://www.runnersworld.com/runners-stories/a20850541/how-to-run-a-5k-with-your-dog/) 。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ## 专心
 
@@ -62,7 +62,7 @@ Hartstein 说，这是一个信号或命令，提醒你的狗注意速度的变�
 
 天气真的很热吗？保持你的跑步短而甜蜜。“狗不会考虑停下来喝水，”加州兽医兼罗孚顾问加里·里克特说。“当他独自一人时，他可能知道停下来休息，但当他和你在一起时，他会努力跟上——即使这对他有害。”为 Fido 建立频繁的小范围饮水休息可以帮助你确保他没有脱水，也给你一个机会确保他玩得开心。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ***一个重要的注意事项*** **:** 保持水分对你的狗狗来说很重要(就像你一样！克莱因博士警告说，如果可能的话，不要让他或她大口喝水，因为这会增加他们吞下过多空气并出现腹胀的风险。相反，让他或她一次吃少量，并确保至少有 10 到 15 分钟的“冷静期”，就像赛马一样，他说。等到你回家喂你的狗也将减少肿胀的机会(同样，不要在 Fido 狼吞虎咽地吃完早餐后和他一起跑步)。
 
@@ -76,7 +76,7 @@ Hartstein 说，这是一个信号或命令，提醒你的狗注意速度的变�
 
 寒冷对于短毛狗来说往往是一个更大的问题，它们可能需要穿上外套( [)这只 Weatherbeeta 在亚马逊](https://www.amazon.com/dp/B009BQWAUM?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-train-your-dog-to-run-with-you-1837468552&asc_source=&linkCode=xm2&tag=kinjalifehackerlink-20) 上的评级是 4.5 星)，但人行道上的盐和冰也会烫伤你的狗的脚掌，这就是为什么在出门前给他穿上短靴是个好主意。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ## 每只狗都能跑吗？
 

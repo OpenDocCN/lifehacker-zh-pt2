@@ -6,7 +6,7 @@
 
 石头 [问](https://vitals.lifehacker.com/1844057403) :
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 > 有什么方法可以去除/防止扁桃体结石的形成吗？我不常收到，但我非常非常讨厌它们。
 
@@ -16,7 +16,7 @@
 
 通常这不起作用，所以你必须去浴室的镜子前用手指或精心挑选的工具如棉签或牙刷的光滑末端戳你的扁桃体。你呕吐，如果你幸运的话，臭石头会弹出来。也许你会吞下去。也许你会把它吐出来，惊叹它看起来有多大、多怪异、多恶心。(典型的扁桃体结石大约有爆米花粒大小，但它们各不相同。)
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 正如我们之前 [提到的](https://vitals.lifehacker.com/tonsil-stones-the-grossest-thing-in-your-mouth-are-to-1791882537) ，扁桃体结石是完全正常的。它们是由扁桃体内部褶皱中积累的死亡细菌和细胞造成的。有趣的事实:这些隧道状褶皱被称为扁桃体 [隐窝](https://en.wikipedia.org/wiki/Tonsillar_crypts) 。扁桃体本身是我们免疫系统的一部分。它们可以检测细菌和病毒，产生抗体，并与免疫系统的其他部分进行交流。
 
@@ -24,7 +24,7 @@
 
 否则，口腔卫生可能有助于防止扁桃体结石的形成，或者让你在扁桃体结石变小、不太严重时取出它们。据说有帮助的几件事:
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 *   用漱口水漱口
 *   用盐水漱口

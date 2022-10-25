@@ -10,7 +10,7 @@ T3】当前 gig:life hacker 的《T5》[两分钱](https://twocents.lifehacker.c
 **当前移动设备:**一台 iPhone 6。真的！
 **一个最能描述你工作方式的词:** Lexapro
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 首先，告诉我们一些你的背景，以及你是如何走到今天这一步的。
 
@@ -24,7 +24,7 @@ T3】当前 gig:life hacker 的《T5》[两分钱](https://twocents.lifehacker.c
 
 我有一个带数字键盘的罗技 K750 太阳能键盘。当你写很多数字的时候，在右边留出额外的空间就像一个计算器一样很重要。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 你的工作空间是什么样的？
 
@@ -40,7 +40,7 @@ T3】当前 gig:life hacker 的《T5》[两分钱](https://twocents.lifehacker.c
 
 我在一个简单的文本编辑窗口中起草我为工作写的所有东西，无论是为 Lifehacker 还是为自由职业者。它实际上是一个毫无特色的白色盒子，可以根据我的需要变大或变小，这使得它非常适合在我做研究、做采访或试图保持写作头脑清晰时做笔记。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 你如何记录你必须做的事情？
 
@@ -54,7 +54,7 @@ T3】当前 gig:life hacker 的《T5》[两分钱](https://twocents.lifehacker.c
 
 我和我的朋友卡琳共同主持了 5 年半的流行时尚 ，这是一个关于时尚和商业的每周播客。工作量很大，特别是因为这是一个没有嘉宾采访的新闻节目，所以我们不能把事情安排得太早。但这部剧已经成为我生命中的一个永恒，比很多其他事情都要长久——城市、男朋友、工作、一只猫(RIP)。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 虽然 Kaarin 和我过去常常一起在一个由毯子和书籍组成的临时堡垒中录制我们的剧集，但我们现在依靠技术在两个地点进行录制。我卧室的壁橱里有一张折叠桌，我在那里录制剧集。黑客:用你的衣服作为临时的隔音板。
 

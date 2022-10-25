@@ -8,7 +8,7 @@
 
 韦氏词典 给爸爸的笑话 [下的定义是“据说是由父亲讲的那种健康的笑话，笑点通常是显而易见或可预见的双关语或文字游戏，通常被认为是令人喜爱的老套或无趣的。”](https://lifehacker.com/vacay-is-now-a-real-word-according-to-merriam-webster-1838493217)
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 *(什么时候玩笑变成爸爸的玩笑了？当它变得明显的时候。)*
 
@@ -20,7 +20,7 @@
 
 在父亲节，为了向所有我们最喜爱的爸爸们致敬，我为你们收集了一批最好的(最差的？)我能找到爸爸的笑话。在周日的后院烧烤会上，你可以随意拿出这些东西。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 *   为什么电梯笑话这么好？他们在很多层面上工作。
 *   为什么这个家伙被橙汁厂解雇了？他无法集中精神。
@@ -56,7 +56,7 @@
 
 我知道有一个你喜欢的关于父亲的笑话不在这个清单上，我也知道它让你痛不欲生。去吧，在评论里补充；没有所谓的太多爸爸笑话(是的，有)。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 * * *
 

@@ -6,7 +6,7 @@
 
 Reddit 用户 [u/magneticsouth](https://www.reddit.com/r/loseit/comments/hwcsj3/recent_influx_of_teens_how_we_as_a_community_can) 注意到青少年在“ [减肥](https://www.reddit.com/r/loseit) ”版块上发帖求助减肥的人数有所上升:
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 > 因为我们这里的大多数人都是成年人，我们知道青少年需要更多的热量，因为他们仍在成长，比具有类似统计数据的成年人需要更多的热量。我想用这篇文章作为我们社区的一个起点，来促进和鼓励这些青少年健康和可持续的习惯，而不是关闭他们，否决他们或建议只适合成年人的赤字。
 
@@ -16,7 +16,7 @@ Reddit 用户 [u/magneticsouth](https://www.reddit.com/r/loseit/comments/hwcsj3/
 
 换句话说，在前疫情时代，青少年可能已经习惯于看到所有这些自拍都是在合适的角度和最合适的灯光下拍摄的，但第二天去学校，看到所有的同学都在野外，并不总是看起来像最上镜的自己。现在，这种现实检查对许多青少年来说不是一个选项。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### 让我们来谈谈增长
 
@@ -26,7 +26,7 @@ Reddit 用户 [u/magneticsouth](https://www.reddit.com/r/loseit/comments/hwcsj3/
 
 “在青春期发育高峰期，孩子可以长到 6-8 英寸或 40 磅，”她说。“起初，这对父母和孩子来说都有点令人担忧。”
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 比他们成长多少或身体质量指数计算器所说的更不重要的是(卡茨强烈建议完全抛弃他们)，他们沿着自己的个人成长曲线相当一致地成长。一个从蹒跚学步开始就处于第 95 百分位的孩子很可能会继续比他们的同龄人在身高和体重上增长得更快——因为这是他们身体自然生长的方式。卡茨将成长中的孩子的身体比作从地基开始建造房子。
 
@@ -38,7 +38,7 @@ Reddit 用户 [u/magneticsouth](https://www.reddit.com/r/loseit/comments/hwcsj3/
 
 “如果你吃了薯片，不会有什么可怕的后果，”她说。"每一种食物在我们的生活中都有一席之地。"
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 这意味着你可以模拟不同类型食物的均衡摄入，谈论食物作为我们身体所有活动的燃料，只要有可能，全家一起吃饭，这样父母就可以模拟这些习惯。在你的家里，不要谈论任何关于“卡路里”的话题。
 
@@ -48,7 +48,7 @@ Reddit 用户 [u/magneticsouth](https://www.reddit.com/r/loseit/comments/hwcsj3/
 
 “父母可以说，‘我们必须走出家门，’”卡茨说。“他们可以通过坦率地说‘我感觉有点暴躁’来鼓励这一点；我们需要离开这里。"
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 作为一个家庭一起四处活动——徒步旅行、骑自行车、在附近散步或者甚至进行一场史诗般的打水仗——也给你一个机会通过调整自己的速度、补水和休息来进行安全和适度的锻炼。
 
@@ -60,7 +60,7 @@ Reddit 用户 [u/magneticsouth](https://www.reddit.com/r/loseit/comments/hwcsj3/
 
 “最强有力的干预是家庭因素，”卡茨说。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 最后，如果他们只是不相信你的话，安排一个时间让他们和一个值得信任的儿科医生谈谈可能会帮助他们获得他们需要的观点和客观性。
 
@@ -72,7 +72,7 @@ Reddit 用户 [u/magneticsouth](https://www.reddit.com/r/loseit/comments/hwcsj3/
 
 在这些情况下，良好的第一步是拜访他们的儿科医生，他们可以进行体重检查，并将青少年现在的体重与他们过去的体重增加趋势进行比较。医生还可以做一些实验室工作，记录一些关键的统计数据，如心率，以确定基线并检查他们的整体健康状况。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 从那里，你的儿科医生可能会把你介绍给心理学家或社会工作者。如果你探索这个选项，Katz 警告说，你联系的专业人士应该接受过治疗饮食和体重紊乱的专门训练；她说，一般的治疗师在这个特定领域没有足够的知识来有效地提供帮助。
 

@@ -6,7 +6,7 @@
 
 在你开始你来之不易的旅行之前，你必须跨越一些必要的障碍，这样你的假期才能顺利进行。具体是什么样的麻烦？嗯，那种包括你的信用卡被冻结或者挣扎着打一个电话而不被收取一个月的租金。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 这是你在航班起飞前需要完成的所有事情的清单。
 
@@ -16,7 +16,7 @@
 
 最简单的方法是打电话给你信用卡背面的号码，告诉他们你旅行的日期和地点。如果你不喜欢打电话，一些银行也会让你在网上设置。下面是几家银行的运作方式，用 [信用因果](https://www.creditkarma.com/credit-cards/i/how-to-travel-notification/) 表示:
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 > **美国银行**
 > 您可以在手机应用程序上或通过您的在线账户设置美国银行旅行通知。如何通过您的在线帐户设置旅行通知:
@@ -38,7 +38,7 @@
 > 点击“管理卡”部分下的“管理旅行计划”。
 > 输入您的旅行日期和目的地。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### 兑换你的钱
 
@@ -50,7 +50,7 @@
 
 最好把钱放在一个安全的地方，尤其是当你有很多钱的时候。“如果你身上带着几百美元，不要把它放在钱包里，”哈特说。“买一条质量好的钱带，塞在衣服下面，然后把大部分钱带在身上。我还会把一些钞票藏在另一个地方，比如你行李箱的拉链内衬里。不要让扒手轻易偷走你的度假资金。”
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 你可以在亚马逊上找到大量的(如果这是一个问题的话，它们并不都令人尴尬)。
 
@@ -58,7 +58,7 @@
 
 “否则，检查一下你的银行是否在你要去的国家有分支机构，或者是否加入了银行联盟，在那里你要去的国家的特定银行会给你一笔不错的交易，”卡普兰说。“例如，美洲银行加入了所谓的' [全球 ATM 联盟](https://locators.bankofamerica.com/international.html) 。”"
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 如果你有剩余的货币，并且你是一个咖啡狂热者，你可以将它加载到星巴克卡上，以便在回家时使用(正如我们之前将 [写成](https://lifehacker.com/put-leftover-foreign-currency-on-a-starbucks-gift-card-1833095163) )。或者，你可以询问你的银行是否接受兑换(他们应该接受，但这取决于货币)。
 
@@ -66,7 +66,7 @@
 
 你应该为整个假期准备多少预算？这取决于很多因素。除了像机票和酒店这样的大开销之外，你还应该考虑每天的餐费、交通费、活动费和纪念品费。你也可以使用 [NerdWallet 的计算器](https://www.nerdwallet.com/blog/finance/how-to-save-for-a-vacation/) 来计算你可能需要为你的旅行存多少钱。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### 获得国际电话计划
 
@@ -76,7 +76,7 @@
 
 > 美国电话电报公司提供一项名为 [Passport](https://www.att.com/offers/international-plans/passport.html) 的服务，它可以让你获得 200 MB 的数据，并在 200 多个国家无限制地发短信，只需在你当前的月套餐中追加 40 美元。(打国际电话仍然是一分钟一美元，所以说快点)。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 > 威瑞森也提供类似的服务， [Travel Pass](https://www.verizonwireless.com/support/international-travel-faqs/#travelpass1) ，将计划扩展到墨西哥和加拿大的费用为每天 5 美元，在 100 多个其他国家的服务费用为每天 10 美元。
 > 
@@ -86,7 +86,7 @@
 
 你*也可以*在你的目的地购买当地的 SIM 卡或预付费手机。这将需要一些额外的跑腿工作(你必须找到一个可用的商店)，而且 SIM 卡并不兼容所有的手机。“一般来说，如果你等到那里买，你会得到最好的交易，但当然你可以在到达那里之前研究计划，”卡普兰补充说。“在许多情况下，当地的移动电话提供商会在你到达的机场提供商店或服务亭，所以如果你做好了准备，你就可以知道当你着陆时该去哪里。”
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 哈特说，如果你要去更近的地方，比如加拿大、墨西哥或加勒比海，你现有的手机套餐可能已经覆盖了这些地区。
 
@@ -96,7 +96,7 @@
 
 通过咨询 [ConAir](https://www.conair.com/co/115/which-international-travel-adapter-or-power-adapter-do-i-need/338) 或 [国际电工委员会](https://www.iec.ch/worldplugs/list_bylocation.htm) [的](https://www.iec.ch/worldplugs/list_bylocation.htm) 列表找到您所在国家的插座，并检查电压。有些国家还会列出多种类型的插头，这并不一定意味着您需要另一种适配器。咨询您的酒店或进行在线搜索，找出最常用的插座。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 在大多数情况下，世界上的插座运行在两种电压设置:110/125V 或 220/240V。查看您的设备(通常在标签上),并将其与您所在国家的电压设置进行比较。如果目的位置的设置对您的设备来说太高，您的设备可能会烧毁。如果太低，它将无法正常工作，或者会造成损坏。
 
@@ -104,7 +104,7 @@
 
 想知道你的设备是否有问题？假设你来自美国，以下是你在几个目的地需要的东西:
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 *   对于澳大利亚和新西兰，较新的设备可能只需要 I 型适配器。旧设备可能需要适配器和转换器。
 
@@ -119,7 +119,7 @@
 
 “并非所有国家都有六个月的要求，但无论如何你都应该遵守，因为你永远不知道你将不得不走什么样的弯路，”他补充道。“例如，也许你回家的航班取消了，航空公司为你安排了不同的路线，你发现自己在一个你不打算去的国家停留了很长时间，无法到达他们为你提供的酒店，因为你不允许离开机场。”
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 为了安全起见，你应该确保尽可能拿到护照的复印件。为什么？万一你在海外丢失了护照，拥有一份复印件将会大大方便证明你的身份(美国国务院 建议将复印件留在朋友或家庭成员家中，并随身携带，与你计划保存护照的地方分开)。如果你经常出国旅行，容易丢东西，你甚至可以申请 [护照副本](https://lifehacker.com/request-a-duplicate-passport-if-you-travel-internationa-1762652053#_ga=2.41169764.791121930.1551711031-1166140590.1547667345) 。
 
@@ -129,7 +129,7 @@
 
 在你去度假之前，弄清楚你是否需要签证。查看 [Visalist](https://visalist.io/) ，看看你的目的地是否需要，以及如何注册。卡普兰说，这通常是一个无痛的过程，但你通常必须在旅行开始前完成这个过程(T4)。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 一些目的地可能还会在您离开或进入机场时向您收取费用，有时称为“签证”费。要想知道你可能欠了多少钱，查看美国国务院网站 上的 [并搜索你的目的地(并在你的钱包里带足够的现金)。](https://travel.state.gov/content/travel/en/international-travel/International-Travel-Country-Information-Pages.html)
 
@@ -139,7 +139,7 @@
 
 前者通常涵盖与丢失的行李、取消的航班和因生病而错过的航班有关的事情。然而，后者通常涵盖任何因健康问题而需要的医疗护理，以及因紧急情况而回家或去医院的交通费用(也包括意外死亡保险，但我们现在不考虑这一点)，此外还有上述所有费用。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 哈特说，如果你想确保你会因航班取消而得到赔偿，那么基本保险可能是值得的，尤其是如果航班特别贵的话。购买基本保险非常简单，你通常可以在购买机票时添加。
 
@@ -149,7 +149,7 @@
 
 如果它不能在国际范围内覆盖你，你通常可以购买一份补充旅行政策，在医疗紧急情况下为你提供保障(安泰 和 [联合医疗](https://www.uhc.com/individual-and-family/insurance-plans/travel-medical) 都提供这种政策)。对于任何医疗护理，您仍然需要像往常一样通过您的医疗服务提供者提出索赔(因此保留所有收据)。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### 检查你的目的地的疫苗接种政策和处方
 
@@ -159,7 +159,7 @@
 
 如果你要带一种药物到海外，确保它们在容器上有清楚的标记，并且手边有医生的说明，最好是用信笺抬头的 [纽约时报](https://www.nytimes.com/2018/01/19/travel/how-to-make-sure-you-travel-with-medication-legally.html) 推荐。一般来说，少量的话，你不会遇到太大的问题，但是你可能会有被没收的风险，或者在国际上更糟。 [CDC](https://www.cdc.gov/features/travel-medicine/index.html) 建议提前联系目的地的美国大使馆，了解你的药物在抵达后是否会遇到任何问题。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 你可能还想在海外 打包其他你不会轻易找到的非处方药 [(如布洛芬或 Pepto Bismol)。](https://www.fodors.com/news/travel-tips/10-things-you-need-to-do-before-any-international-trip)
 
@@ -171,7 +171,7 @@
 
 ### 向国务院登记你的旅行
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 如果你想让你的家人知道你一直都很好，请注册美国国务院的智能旅行者登记计划，或 STEP。您可以登记您的旅行日期，在您的目的地登记旅行建议，如果当地发生紧急情况，最近的美国大使馆或领事馆可以为您提供帮助。
 
@@ -183,7 +183,7 @@
 
 牡蛎
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 > 拔掉任何不必要的电器，如烤面包机、电脑和风扇。您可以保护它们免受电涌的影响，并节省能源成本。
 > 
@@ -193,7 +193,7 @@
 
 我要补充的是，如果你要去海外待很长时间，考虑冻结你的健身房会员资格。如果你有一个孩子或一只动物，并且没有带他们去兜风，希望你已经提前安排好了一个合适的保姆、遛狗的人或看猫的人。当然，一定要为你的邮件设置一个不在办公室的自动回复(这适用于任何休假时间的人)。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### 检查一切
 
@@ -208,7 +208,7 @@
 *   你在飞机上有小吃或娱乐吗？在到达机场之前买一本书或者零食(往往是便宜)。虽然你不能携带液体通过安检，但你*可以*在你的随身行李中携带一个可重复灌装的水瓶，在机场的饮水机旁加满水。
 *   你有像那样的“智能”包吗？取出电池组，放入您的随身行李中。装有不可拆卸电池组的包是 [禁带](https://thepointsguy.com/2017/12/smart-bags-with-without-removable-battery/) 的，航空公司的服务员会在办理登机手续时要求你把它拿下来。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 *   你的饭店确定了吗？找到您的电子邮件确认。更好的是，打印出来，以防你没有无线网络，需要一个地址。如果你住在 Airbnb，联系你的主人，让他们知道任何可能导致意外到达或延误的重大旅行变化。他们想知道这一点，这样他们就可以预测何时交换钥匙。
 *   对于你要去的国家，你学会了一些基本的语言技能吗？了解一些简单的会话表达可能会有好处，比如“你好”或“谢谢”一本好的旅游指南应该包括这一点，以及旅游热点的基本知识。

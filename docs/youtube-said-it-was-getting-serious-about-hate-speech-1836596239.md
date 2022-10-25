@@ -6,7 +6,7 @@
 
 当时，纽约时报 [报道](https://www.nytimes.com/2019/06/05/business/youtube-remove-extremist-videos.html) 称，该公司承诺删除数千个属于这一扩大定义的视频。然而，六个多星期后，仍然很容易在平台上找到与仇恨团体相关的频道，这令人不安。奇怪的是，这不是 YouTube 母公司谷歌的简单疏忽。事实上，这是政策在按计划运行。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 YouTube 拥有超过 2300 万个 频道，这使得它不可能识别出每一个参与仇恨运动的人——特别是因为一个人不可接受的仇恨言论是另一个人的合理论点。考虑到这一点，我们使用了来自 [【南方贫困法律中心】](https://www.splcenter.org/)[希望不要仇恨](https://www.hopenothate.org.uk/)[加拿大反仇恨网络](https://www.antihate.ca/)[反极端主义项目](https://www.counterextremism.com) 的组织名单，以及 [白人至上主义者](https://www.splcenter.org/20140331/white-homicide-worldwide) 论坛 Stormfront 上推荐的频道，创建了一个包含 226 名极端主义者的 YouTube 概要
 
@@ -18,7 +18,7 @@ YouTube 拥有超过 2300 万个 频道，这使得它不可能识别出每一�
 
 要理解这些频道继续运营的原因，了解 YouTube 如何监管其平台是很重要的。YouTube 的执法行动很大程度上局限于直接发生在其网站上的事情。也有一些例外——比如当一个频道的内容与 [外部犯罪](https://www.tubefilter.com/2018/01/22/youtube-deletes-gymnastics-larry-nassar-channel/) 联系在一起的时候——但是 YouTube 一般不会考虑一个账户背后的群体或个人的外部行为。它只是确定特定的视频是否违反了特定的政策。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 负责南方贫困法律中心情报项目的海蒂·贝里奇指责 YouTube 的做法使其远远落后于脸书等同行，后者对谁可以在网站上发帖采取了更全面的观点，禁止仇恨组织及其领导人使用社交网络。
 
@@ -30,7 +30,7 @@ YouTube 对仇恨的有限态度导致了一些令人困惑的决定。例如，
 
 除了给许多充满仇恨的频道一张通行证，这种对上传者动机的不可知论意味着，随着 YouTube 执行其政策，一些对促进白人至上毫无兴趣的频道受到了惩罚。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 经常报道极右集会的独立新闻媒体 News2Share 频道于 6 月 5 日被取消的货币地位，并且在重大新闻报道后仍然如此。来自罗马尼亚的历史教师 Scott Allsop 的频道 [在同一天被短暂禁止](https://www.buzzfeednews.com/article/ryanhatesthis/history-teacher-scott-allsop-youtube-channel-banned-nazi) 播放纳粹宣传视频档案作为教育资源。在公众强烈抗议后，Allsop 的频道恢复了，但他随后与谷歌代表的联系并没有增强他对该公司的信心。
 
@@ -42,7 +42,7 @@ Allsop 告诉 Gizmodo，YouTube 要求他提供其他历史教师的频道，以
 
 他们解释说，从根本上说，该平台最重要的变化是对仇恨言论的定义更加宽泛，鼓吹受保护群体的劣等性或排斥性。YouTube 决定有许多频道专门从事这类活动，没有其他可取之处。一旦新政策生效，这些渠道立即被终止。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 其他频道被发现违反了新的仇恨言论规则，但也有一些内容没有违反新政策，现在属于 YouTube 的打击系统。第一次发现通道违规时，它会收到警告。第二次，暂停上传新内容一周。第三次，停课两周。第四次，就终止了。
 
@@ -58,7 +58,7 @@ Allsop 告诉 Gizmodo，YouTube 要求他提供其他历史教师的频道，以
 
 “我的总体观察表明，YouTube 没有做出显著影响我去年所写的影响者网络的改变，”刘易斯说。“在我自己的研究中，我写了 YouTube 的问题有多深，以及如何在他们的平台上产生任何与白人至上有关的重大影响，他们需要改变一些业务结构和对创作者的激励。到目前为止，我们还没有看到这些领域的变化。”
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 刘易斯认为，YouTube 的问题是其商业模式所固有的。一个频道的观众越多，收入就越多。“不幸的是，偏执可以吸引大量的观众，所以创作者有动机创造偏执的，从而在经济上有利可图的内容，”她说。“所以我确实认为，YouTube 有很多理由重新考虑他们的盈利结构。”
 
@@ -68,7 +68,7 @@ Allsop 告诉 Gizmodo，YouTube 要求他提供其他历史教师的频道，以
 
 很容易看出这在实践中是如何工作的。就在 Vox 记者卡洛斯·马扎发布了一条 [病毒式推特帖子](https://twitter.com/gaywonk/status/1134263774591037441?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1134264395717103617&ref_url=https%3A%2F%2Fwww.theverge.com%2F2019%2F6%2F4%2F18653088%2Fyoutube-steven-crowder-carlos-maza-harassment-bullying-enforcement-verdict) 详细描述了 YouTube 上保守派人物史蒂芬·克劳德多年来针对、极度仇视同性恋的 [虐待和骚扰](https://www.theverge.com/2019/5/31/18647621/youtube-steven-crowder-bullying-harassment-twitter-vox-carlos-maza) 之后，该网站宣布了新的仇恨言论政策。(谷歌的代表坚称，政策变化已经酝酿了几个月，时间只是巧合。)克罗德的内容很快就因“ [持续的恶劣行为模式](https://youtube.googleblog.com/2019/06/taking-harder-look-at-harassment.html) ”(不是任何个人视频)而被去货币化，但他拥有 400 万订户的频道仍然活跃。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 这意味着克劳德可以继续在网站上发布链接到他的网上商店，最近他的网上商店 [出售了一件印有“社会主义是 F*GS 的”口号的衬衫](https://gizmodo.com/we-want-youtube-to-remove-crowder-googlers-gear-up-to-1835340613) 当被问及克罗德在 YouTube 上的收入来源时，该公司简单地表示，克罗德需要停止销售恐同衬衫( [以及其他未指明的改革](https://twitter.com/teamyoutube/status/1136363701882064896?s=21) )来重新货币化。
 
@@ -78,7 +78,7 @@ Allsop 告诉 Gizmodo，YouTube 要求他提供其他历史教师的频道，以
 
 这个问题在关注 LGBTQ 的频道中尤为常见，因为 YouTube 的自动标记频道去货币化系统倾向于将“同性恋”或“女同性恋”等标签与色情联系起来，即使这些频道的内容完全是家庭友好的。当他们研究的一个 YouTuber 做了一个 [实验](https://www.youtube.com/watch?v=HpjnXAyJM2w&t=16s&index=32&list=PLwSAFlbWv59xPBL3W_bLxaLGvnC4FtkbG) 用“女同性恋”、“男同性恋”和“异性恋”标记同一个视频时，前两个剪辑被取消了，但第三个没有被改动。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 卡普兰和吉莱斯皮发现，自 2016 年以来，YouTube 上出现了七个不同的大规模去货币化时期。其中只有一次大规模去货币化——2017 年春天的“广告末日”(Adpocalypse)，是由对亲 ISIS 宣传之前播放广告的担忧引发的——与仇恨言论有关。其他的，比如在优步罗根·保罗 [播放了他在日本森林中发现的一具尸体](https://www.polygon.com/2018/1/9/16871252/logan-paul-video-suicide-forest-youtube-explained) 的图像后发生的事情，不那么政治化，更多的是关于广告客户可能普遍觉得不愉快的内容。
 
@@ -88,7 +88,7 @@ Allsop 告诉 Gizmodo，YouTube 要求他提供其他历史教师的频道，以
 
 卡普兰说:“YouTube 不愿意仅仅将‘政治’去货币化……相反，它正在将‘政治’去货币化，因为他们不想划清这些界限。”。“那些利用这个平台寻找自己社区的边缘群体——黑人的命也是命谈论警察暴行，跨 YouTubers 最终被去货币化了。他们寻找其他资金来源的流动性更小。”
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### 自尊心的丧失
 
@@ -100,7 +100,7 @@ Allsop 告诉 Gizmodo，YouTube 要求他提供其他历史教师的频道，以
 
 “我毫不怀疑这种不讨好的公关时刻总是发生在最底层的员工身上，”罗伯茨说。"在这种突发事件中，地面上的工作人员肯定会受到地震波及."谷歌代表告诉 Gizmodo，该公司已经制定了健康规则来保护版主的情绪健康。例如，他们解释说，版主不希望每天花超过五个小时来审查潜在的令人不安的内容，并有机会定期咨询会议。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 虽然还不清楚谷歌的版主对该公司处理仇恨言论的方式有何看法，但与该公司山景城总部关系密切的其他人已经开始表达他们的不满。最近，145 名谷歌员工要求旧金山骄傲游行的组织者取消谷歌对该活动的赞助。“如果...员工们在 [的一封公开信](https://medium.com/@BanGoogleFromPride/an-open-petition-to-the-san-francisco-pride-board-of-directors-f8164486c2e4) 中写道:“YouTube 允许对 LGBTQ+者的虐待、仇恨和歧视，那么骄傲不得为该公司提供一个将其描绘成彩虹贴面的平台。”。
 
@@ -110,7 +110,7 @@ Allsop 告诉 Gizmodo，YouTube 要求他提供其他历史教师的频道，以
 
 @NoPrideForGoog 的组织者坚称，公开信的签名者并没有要求具体的解决方案，只是要求领导层真诚地承诺解决这个问题。“谷歌，包括 YouTube，在工程和其他方面都充满了有能力、聪明的人，”组织者说。“我很有信心，如果该公司致力于我们要求的这些变革，他们将能够找到如何做到这一点。”
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 至少对一名员工来说，公司的失败变得难以承受。6 月下旬，一名要求不透露姓名的 LGBTQ 员工辞职，以抗议谷歌处理 YouTube 的仇恨言论问题。这位前员工在给谷歌管理层的辞职信中写道:
 
@@ -120,7 +120,7 @@ Allsop 告诉 Gizmodo，YouTube 要求他提供其他历史教师的频道，以
 > 
 > 苹果早就腐烂了。谷歌已经成为一个怪物，我们应该努力阻止它。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 这名前雇员说，管理层没有努力倾听他们的担忧。
 
@@ -132,7 +132,7 @@ Allsop 告诉 Gizmodo，YouTube 要求他提供其他历史教师的频道，以
 
 监管像 YouTube 这样大的平台并不是一件令人羡慕的任务。该公司声称每分钟都有大约 500 小时的视频被上传到网站上，这可以说是人类历史上面临的最复杂的言论自由问题之一。作为一家广告公司做这些事情——谷歌从根本上来说就是——只会让问题更加棘手。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 与此同时，该网站庞大的受众(以及 [估计 150 亿美元](https://www.wsj.com/articles/ok-google-hows-youtube-doing-11556896078) 的年收入)意味着它有同样重大的责任，不要离开这个让它变得更加富裕的世界。至少，YouTube 似乎在真诚地努力减少其平台被用来传播歧视的方式。但是，正如我们的仇恨频道列表所显示的，这个平台要真正消除仇恨还需要更多的时间。
 

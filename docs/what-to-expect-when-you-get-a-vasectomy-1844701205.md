@@ -6,7 +6,7 @@
 
 当然，如果你有生育能力，有功能正常的阴茎和睾丸，并且 100%确定你不想用它们来生孩子，输精管结扎术是防止意外怀孕的方法。传统上，这样做的责任落在了有卵巢的一半人口身上，无论这意味着服用避孕药(这带有一定程度的风险)，接受输卵管结扎术(这种手术 [远比输精管结扎术](https://healthcare.utah.edu/the-scope/shows.php?shows=0_r14awktv) )还是 [为不情愿的伴侣购买避孕套](https://www.refinery29.com/en-us/2017/03/146990/women-buying-condoms-survey-trojan) 或进行事后堕胎。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 考虑到这些选择，一个几乎 100%有效的门诊手术[【几乎没有证据】长期副作用](https://www.glowm.com/section_view/heading/long-term-risks-of-vasectomy/item/408) 似乎是你最起码能做的。这并不意味着这种想法不令人不安——所以这里有一个关于输精管切除术的初级读本。
 
@@ -22,7 +22,7 @@
 
 在无手术刀输精管结扎术中，医生使用一种名为止血钳的环状夹子在阴囊中心开一个洞，止血钳将“ [刺穿阴囊的皮肤。然后，轻轻展开皮肤，直到可以看到两个输精管。](https://www.verywellhealth.com/no-scalpel-vasectomy-906903) “说白了，医生然后四处寻找并提取每条输精管的一个小环，一次一个，然后切割它们，移除一小段管道并缝合(再次，可能首先烧灼)开口端。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### 哪个更好？
 
@@ -38,7 +38,7 @@
 
 根据您接受手术的地点，您可能会被给予在**局部**和**全身麻醉**之间进行选择的选项。严格地说，输精管结扎术并不要求你接受麻醉，但是有些病人压力太大，以至于他们的身体导致他们的生殖器官紧缩，这使得医生很难做这项工作。或者你只是不想记住这段经历。 [全身麻醉会带来额外的风险](https://www.surgeryencyclopedia.com/A-Ce/Anesthesia-General.html#:~:text=Risks%201%20Awareness%20during%20surgery.%20One%20possible%20complication,3%20Anesthetic%20toxicity.%20...%204%20Malignant%20hyperthermia.%20) 并且可能不在您的保险范围内。一旦你到了医生的办公室，医生会要求你脱下衣服，穿上手术服。假设你选择了局部麻醉，你的阴囊会被注射一针麻药。在这一点上，护士也可能完成从手术部位移除任何剩余的毛发。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ## **什么感觉？**
 
@@ -52,7 +52,7 @@
 
 Vasectomy.com(多么偶然的网址！)给 [一个很好的轮廓](https://www.vasectomy.com/article/vasectomy/procedure/what-to-expect-after-a-vasectomy#:~:text=%20Recovering%20immediately%20after%20a%20vasectomy%20%201,you%20lift%20heavy%20objects%20and%20perform...%20More%20) 你可以预期在未来几天你的身体康复时必须做什么。有些人会在几天后感觉或多或少恢复正常； [其他人可能会经历持续几周或更长时间的疼痛和不适](https://www.healthline.com/health/mens-health/vasectomy-side-effects#:~:text=While%20the%20risks%20for%20complications%20are%20very%20small%2C,men%20experience%20chronic%20scrotal%20pain%20after%20the%20procedure.) 。这份清单并不令人惊讶:充分休息，不要做任何过于剧烈的事情，之后 48 小时内不要洗澡或淋浴，敷冰袋以减轻任何肿胀，服用对乙酰氨基酚(不是阿司匹林或布洛芬)止痛，并注意感染迹象。除了身体上的影响，你可能会有意想不到的情绪反应。这并不是说你会后悔经历这个过程——大多数报告说他们不后悔自己的选择——但是你可能会感到一些悲伤或失落感。其中一些可能与你的身体经历了手术创伤有关，并将随着时间而消退。随后的几天没有婴儿忧郁是正常的，你可能会偶尔怀疑自己多年来是否做了正确的事情(这时你可以提醒自己当初做这件事的所有非常好的理由)。但是如果你经历了持久的、破坏性的情绪副作用，请和你的医生谈谈。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 绝对不要马上发生性行为(而且，绝对，绝对不要在没有避孕措施的情况下发生性行为，直到你得到许可；稍后会有更多的介绍)。尽管 Reddit 上的许多人会吹嘘“马上”做，但 Vasectomy.com 建议 [在尝试射精前至少等待一周](https://www.vasectomy.com/article/vasectomy/procedure/what-to-expect-after-a-vasectomy#:~:text=%20Recovering%20immediately%20after%20a%20vasectomy%20%201,you%20lift%20heavy%20objects%20and%20perform...%20More%20) 。注意:在你第一次这么做的时候，你的精液看起来会很奇怪。好像里面可能有血。这是令人不安的，但正常的，因为这些事情。甚至几周和几个月后(尽管对大多数人来说最终会消退)，你可能会在性唤起时感到腹股沟反复疼痛。确切地说，这不会妨碍你享受性爱，但你会注意到这一点。只要它被归类为轻度不适，你就不需要担心它——但是向你的医生提出任何担忧都不是一个坏主意。
 

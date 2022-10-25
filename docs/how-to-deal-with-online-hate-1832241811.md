@@ -8,7 +8,7 @@
 
 *对话*的标语是“记住屏幕的另一边有一个人。”(迪伦不喜欢把人叫做“巨魔”。)这对说屁话的人来说是个很好的教训，但对那些被说屁话的人也很有用。正如 [迪伦在他的 TED 演讲](https://www.ted.com/talks/dylan_marron_how_i_turn_negative_online_comments_into_positive_offline_conversations) 中解释的那样，你可以对那些说了你坏话的人产生共鸣，而不用为他们所说的话辩解。如果你认为他们是一个特定的人，而不是这个世界的宏大的声音，你就剥夺了他们对你的一些权力。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 迪伦说:“同理心只是承认某人是人。“但是，和一个你非常不同意的人，或者一个非常不同意你的核心部分和你是谁的人产生共鸣，感觉真的很奇怪。我们害怕同情别人，因为我们害怕同情会支持他们的观点。”但他与政治信仰或生活方式大相径庭的人交谈过，这并没有改变他的信仰，也没有让他在为正义而战时声音变小。这实际上让他更容易坚持自己的信念和工作，因为批评并不可怕。
 
@@ -16,7 +16,7 @@
 
 不要——相信我，我犯过这个错误——不要利用你的研究在网上攻击他人。他们可能活该！但是如果你在网上升级，他们很可能也会升级，他们暂时的大便会变成一场长期的战斗。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### **使其离线**
 
@@ -30,7 +30,7 @@
 
 迪伦的第一位嘉宾克里斯(Chris)在迪伦的一个视频上留下了一条恶评，称迪伦是一坨屎。在电话中，克里斯说迪伦“在一个糟糕的时间抓住了他。”正如迪伦善意地指出的(克里斯立即接受了)，克里斯是选择参与的人；迪伦根本没有“抓住他”。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 因此，当你读到有人说你的坏话时，你可以在心里把它降低几个等级。像迪伦一样，你可以意识到在网上侮辱你的人可能过得“不愉快”，而不用为他们开脱。见鬼，你甚至不需要原谅他们。这是为了减轻他们对你的伤害。
 
@@ -40,7 +40,7 @@
 
 无论你面对何种程度的批评或中等程度的仇恨，都不要觉得有义务去考虑虐待。并且认识到你的个人局限和别人的不一样。虽然迪伦愿意和称他为“一坨屎”的人通电话，但他并不指望其他人会这么做:“我们(每个人)都必须弄清楚我们想和什么人打交道。”
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### **不要忽视所有的批评**
 
@@ -52,7 +52,7 @@
 
 作为一名网络作家和视频制作者，我收到了很多恐吓信。讨厌推特，讨厌评论。听听*的对话*帮助我记住，这发生在任何在公共场合做有趣事情的人身上。如果你想对你的恐吓信感觉好些，那就去找那些针对广受欢迎和尊重的东西的恐吓信。我喜欢在亚马逊和 Goodreads 上查自己喜欢的文学名著，看一星评论。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 现在，这可能有点令人沮丧，因为你会看到有些人的品味有多糟糕。你会看到很多人写一些关于伟大的人和伟大的艺术作品的糟糕和愚蠢的事情。但是想想那些人和他们的作品做得有多好。这并不意味着这些人从未被批评伤害过。这意味着他们没有屈服。这也意味着，无论你有多伟大，总会有人准备恨你——或者暂时认为他们恨你。
 
@@ -60,4 +60,4 @@
 
 这部分对我来说很奇怪——我不是那种把我的仇恨邮件保存在剪贴簿里的人。我去看过别人的仇恨邮件直播，觉得很小家子气。我直到最近才开始听*对话*。但是我会做 screencap 和 tweet [，偶尔会发愤怒的邮件](https://twitter.com/toomuchnick/status/1090999184935845888) ，这确实让我感觉好多了。所以你可以把人们的仇恨变成一个大项目，一个小项目，或者只是你发短信给朋友逗笑的东西。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1090999184935845888&amp;autosize=1" autoresize="true" id="twitter-1090999184935845888" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">一名记者的妻子<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.reddit.com/r/Journalism/comments/al8pwy/my_wife_turned_my_latest_hatemail_into_a_cross/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.reddit.com/r/Journalism/comments/al8pwy/my_wife_turned_my_latest_hatemail_into_a_cross/" target="_blank" rel="noopener noreferrer">十字绣了一些特别不识字的恐吓信</a> </span>。(对付一个不会拼写的仇恨者总是更容易。)而吉米·基梅尔<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.youtube.com/playlist?list=PLs4hTtftqnlAkiQNdWn6bbKUr-P1wuSm0&quot;,{&quot;metric25&quot;:1}]]" href="https://www.youtube.com/playlist?list=PLs4hTtftqnlAkiQNdWn6bbKUr-P1wuSm0" target="_blank" rel="noopener noreferrer">让名人阅读人们刻薄的推文</a></span>——这可能有点过分鼓励这些人，但它至少告诉每个人谁是真正的负责人。仇恨者会在电视上出现几秒钟，而他们的目标会继续成功。</p><div class="bxm4mm-12 dFBBhS js_movable_ad_slot"><div class="bxm4mm-14 gFcZLy"><label class="bxm4mm-13 juykRM">Advertisement</label><div is="bulbs-dfp" class="ad-container dfp dfp-slot-MID_BANNER ad-middleboard" data-ad-unit="MID_BANNER" data-targeting="{&quot;pos&quot;:&quot;mid_banner&quot;}"/><div class="bt-wrapper"><span data-uid="5d1b8a6cd5-384" class="bt-uid-tg" style="display:none !important;text-align:center" data-css-selector="ad-container.ad-middleboard"/></div></div></div><p class="sc-77igqf-0 bOfvBY">并且记得珍惜正面的反馈。打印出一个陌生人的赞美或一封你尊敬的人的邮件。花点时间和喜欢你的人在一起。让仇恨者消失在背景中。</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><em> <small>更多来自 Lifehacker，一定要在 Instagram 上关注我们</small></em><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.instagram.com/lifehackerdotcom/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.instagram.com/lifehackerdotcom/" target="_blank" rel="noopener noreferrer"><em><small>@ lifehackerdotcom</small></em></a></span><em><small>。</small>T15】</em></p></div> </body> </html></iframe>
+<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1090999184935845888&amp;autosize=1" autoresize="true" id="twitter-1090999184935845888" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">一名记者的妻子<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.reddit.com/r/Journalism/comments/al8pwy/my_wife_turned_my_latest_hatemail_into_a_cross/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.reddit.com/r/Journalism/comments/al8pwy/my_wife_turned_my_latest_hatemail_into_a_cross/" target="_blank" rel="noopener noreferrer">十字绣了一些特别不识字的恐吓信</a> </span>。(对付一个不会拼写的仇恨者总是更容易。)而吉米·基梅尔<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.youtube.com/playlist?list=PLs4hTtftqnlAkiQNdWn6bbKUr-P1wuSm0&quot;,{&quot;metric25&quot;:1}]]" href="https://www.youtube.com/playlist?list=PLs4hTtftqnlAkiQNdWn6bbKUr-P1wuSm0" target="_blank" rel="noopener noreferrer">让名人阅读人们刻薄的推文</a></span>——这可能有点过分鼓励这些人，但它至少告诉每个人谁是真正的负责人。仇恨者会在电视上出现几秒钟，而他们的目标会继续成功。</p><div class="bxm4mm-12 dFBBhS js_movable_ad_slot"><div class="bxm4mm-14 gFcZLy"><div is="bulbs-dfp" class="ad-container dfp dfp-slot-MID_BANNER ad-middleboard" data-ad-unit="MID_BANNER" data-targeting="{&quot;pos&quot;:&quot;mid_banner&quot;}"/><div class="bt-wrapper"><span data-uid="5d1b8a6cd5-384" class="bt-uid-tg" style="display:none !important;text-align:center" data-css-selector="ad-container.ad-middleboard"/></div></div></div><p class="sc-77igqf-0 bOfvBY">并且记得珍惜正面的反馈。打印出一个陌生人的赞美或一封你尊敬的人的邮件。花点时间和喜欢你的人在一起。让仇恨者消失在背景中。</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><em> <small>更多来自 Lifehacker，一定要在 Instagram 上关注我们</small></em><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.instagram.com/lifehackerdotcom/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.instagram.com/lifehackerdotcom/" target="_blank" rel="noopener noreferrer"><em><small>@ lifehackerdotcom</small></em></a></span><em><small>。</small>T15】</em></p></div> </body> </html></iframe>

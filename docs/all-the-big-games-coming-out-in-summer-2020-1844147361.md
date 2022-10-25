@@ -6,7 +6,7 @@
 
 至少我们希望这些都出来了。由于新冠肺炎仍然是一个令人担忧的问题，这份名单上的任何一款游戏都有可能被忽略掉。这里希望*劲爆 21* 、*漫威的复仇者联盟*、*对马之鬼*、*斗蟹*都保持在正轨上。手指交叉，开始了。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ## 6 月 23 日
 
@@ -18,7 +18,7 @@
 
 *浪歇* |视距
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ## 6 月 24 日
 
@@ -32,7 +32,7 @@
 
 *司钻先生钻地* |PC，开关
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 *幻影:秘密行动* | PC/VR
 
@@ -46,7 +46,7 @@
 
 *Skater XL* | PC，PS4，Switch，Xbox One
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ## 7 月 3 日
 
@@ -62,7 +62,7 @@
 
 *CrossCode* | PS4，Switch，Xbox One
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ## 7 月 10 日
 
@@ -76,7 +76,7 @@
 
 *死亡搁浅* | PC
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 *火箭竞技场* | PC
 
@@ -88,7 +88,7 @@
 
 *对马幽灵* | PS4
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 *纸马里奥:折纸之王* |开关
 
@@ -104,7 +104,7 @@
 
 毁灭所有人类！重制 | PC，PS4，Stadia，Xbox One
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 *Megadimension 海王七号* |开关
 
@@ -120,7 +120,7 @@
 
 博德之门|电脑(早期访问)
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ## 8 月 7 日
 
@@ -138,7 +138,7 @@
 
 *新世界* | PC
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ## 8 月 27 日
 
@@ -152,7 +152,7 @@
 
 ~~*黑手党限定版* | PC、PS4、Xbox One~~ (延迟至 9 月 25 日)
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 *项目车 3* | PC，PS4，Xbox One
 
@@ -164,7 +164,7 @@
 
 *Ary 和季节的秘密* | PC，PS4，Switch，Xbox One
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 *十字军国王 III* | PC
 
@@ -176,7 +176,7 @@
 
 *托尼·霍克的职业滑手 1+2* | PC，PS4，Xbox One
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ## 9 月 8 日
 

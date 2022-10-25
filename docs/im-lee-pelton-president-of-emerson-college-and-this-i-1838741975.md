@@ -12,7 +12,7 @@
 **当前移动设备:** iPhone X
 **一个词最能形容你的工作方式:**没完没了
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 首先，告诉我们一些你的背景，以及你是如何走到今天这一步的。
 
@@ -24,7 +24,7 @@
 
 耶鲁大学前校长巴特·吉亚马蒂(Bart Giamatti)曾说过，“作为一个成年人，当大学校长绝不是谋生之道。”这是一个很好的总结。这是一项极其艰难的工作。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 我的职责每天都在变化，并充分发挥我的能力，包括学术生活、学生生活、人力资源、预算、战略规划、筹款、房地产开发、法律事务、风险和危机管理以及几项公民领导任务。但最重要的是，最好的描述应该是我从事人事工作。
 
@@ -36,7 +36,7 @@
 
 有人曾经说过:“如果你的梦想没有让你夜不能寐，那么它们还不够大。”
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 这绝对是事实。我睡得不多。
 
@@ -46,7 +46,7 @@
 
 我的公路自行车。 [骑 GPS](https://ridewithgps.com)[Strava](https://www.strava.com)[run keeper](https://runkeeper.com)，一个炒锅，筷子，一个生菜旋转器，一个上好的炖锅，一个压蒜器和 [盖茨烤肉酱](https://gatesbbq.com/product-category/bar-b-q-sauces/) (堪萨斯城)。我最喜欢的应用程序是天气应用程序(太棒了)、《每日新闻》、 [《纽约客》广播时间](https://www.newyorker.com/podcast/the-new-yorker-radio-hour) 、 [富博](https://www.fubo.tv/welcome) 、Instagram、ESPN、爱默生、 *S-Town* (有史以来最好的)以及我能找到的每一个真实犯罪[播客]。我在书店，厨房商店或者健身房的时候是最开心的。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 你的工作空间是什么样的？
 
@@ -62,7 +62,7 @@
 
 我的很多一对一的会议都是在外面散步的时候进行的。它非常有效，也非常健康。我已经有一段时间没有这样做了——但是我想我需要在严寒来临之前让它恢复活力。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 你如何记录你必须做的事情？
 
@@ -76,7 +76,7 @@
 
 我喜欢在山里独处，徒步旅行和骑自行车。我可以在那些地方呼吸。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 你最喜欢的副业是什么？
 
@@ -88,7 +88,7 @@
 
 我刚刚看完托马斯·查特顿·威廉姆斯的《失去冷静的 T2》《T4》《T5》。我刚开始 [*唱，客死异乡，由杰斯明病房唱*](https://www.amazon.com/Sing-Unburied-Novel-Jesmyn-Ward/dp/1501126067?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-lee-pelton-president-of-emerson-college-and-this-i-1838741975&asc_source=&tag=kinjalifehackerlink-20) 。同时，我在重读:
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 *   詹姆斯·鲍德温，散文和小说( [*下一次大火*](https://www.amazon.com/Fire-Next-Time-James-Baldwin/dp/067974472X?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-lee-pelton-president-of-emerson-college-and-this-i-1838741975&asc_source=&tag=kinjalifehackerlink-20)*[*如果比厄街会说话*](https://www.amazon.com/If-Beale-Street-Could-Talk/dp/0307275930?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-lee-pelton-president-of-emerson-college-and-this-i-1838741975&asc_source=&tag=kinjalifehackerlink-20) ，最近)*
 *   *[【理查德·耶茨】](https://www.amazon.com/Special-Providence-Vintage-Contemporaries/dp/0307455955?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-lee-pelton-president-of-emerson-college-and-this-i-1838741975&asc_source=&tag=kinjalifehackerlink-20)**和[*【三国演义】*](https://www.amazon.com/Collected-Stories-Richard-Yates-Revolutionary/dp/0312420811?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-lee-pelton-president-of-emerson-college-and-this-i-1838741975&asc_source=&tag=kinjalifehackerlink-20)***
@@ -109,7 +109,7 @@
 
 ***我给出的最好的建议是:“要真实。它是无可替代的。”*** 
 
-***<label class="bxm4mm-13 juykRM">Advertisement</label>***
+******
 
 #### ***你仍在努力解决的问题是什么？***
 
@@ -121,7 +121,7 @@
 
 ***“我想过正常的生活，”他回答道。***
 
-***<label class="bxm4mm-13 juykRM">Advertisement</label>***
+******
 
 ***“世上没有正常的生活。只有生活。”***
 

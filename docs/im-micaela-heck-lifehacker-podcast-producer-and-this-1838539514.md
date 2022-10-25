@@ -9,7 +9,7 @@
 **当前电脑:** 2017 MacBook Pro
 **当前移动设备:** iPhone 6(而且我只有死了才会升级！一个词最能描述你的工作方式:**紧张
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 首先，告诉我们一些你的背景，以及你是如何走到今天这一步的。
 
@@ -23,7 +23,7 @@
 
 我通常在早上 8:30 左右进入办公室，花前半个小时阅读堆积在我个人 Gmail 收件箱中的许多时事通讯。然后我会看看我们的生产计划，我的谷歌日历和待办事项列表，并围绕这些计划我的一天。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 如果是在一周的早些时候，我会花大部分时间为即将到来的剧集做计划和研究，并为下周的剧集写剧本。偶尔我会在野外捕捉音频，这总是很有趣。
 
@@ -33,7 +33,7 @@
 
 Todoist、Google Calendar、Google Sheets、Pro Tools、Dropbox、苹果播客(我知道我需要换一个更好的播客应用)和我的 Bose SoundLink Mini。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 你的工作空间是什么样的？
 
@@ -47,7 +47,7 @@ Todoist、Google Calendar、Google Sheets、Pro Tools、Dropbox、苹果播客(�
 
 此外，Gmail 中的彩色标签也让我免于被收件箱淹没。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 你如何记录你必须做的事情？
 
@@ -61,7 +61,7 @@ Todoist！(以防你从我之前的回答中分辨不出来。)不是吹牛，�
 
 我最近正在读塔菲·布罗德塞-阿克纳的《T2 的*和朱利亚·恩德斯博士的《内脏:我们身体最被低估的器官的内幕》，我强烈推荐这两本书。*
 
-*<label class="bxm4mm-13 juykRM">Advertisement</label>*
+**
 
 #### *你还希望谁来回答这些问题？*
 

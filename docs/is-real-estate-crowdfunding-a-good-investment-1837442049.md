@@ -6,7 +6,7 @@
 
 即使买房子不符合你对美国梦的个人愿景，你仍然可以考虑投资房地产。彻底购买一处房产不再是你投资的唯一选择。房地产众筹是你分散投资组合的另一种方式，通常前期支出较少。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 但随着旨在让房地产众筹变得容易的创业公司和平台的兴起，很难判断这种投资方法是否适合你的投资组合。下面是你开始之前需要知道的。
 
@@ -18,7 +18,7 @@
 
 同样，你看到的投资回报类型取决于你选择的平台。房产管理应用 [SparkRental](https://sparkrental.com/) 的教育总监 Brian Davis 解释说:“一些众筹网站已经汇集了资金，为所有投资者提供相同的回报。“Fundrise 以这种方式运作，有几种不同的基金可供选择。其他众筹网站允许你挑选你想投资的单个项目。底层就是一个例子。”(戴维斯个人同时使用 Fundrise 和 GroundFloor。)
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### 为什么它现在受欢迎
 
@@ -28,7 +28,7 @@
 
 随着这种投资方法的发展，你可以期待看到更多特定的选择出现。“消费者的选择越来越多，它变得越来越复杂，”Wasserstrum 说，并引用了 Fund That Flip 的例子。“就像房地产技术中的许多事情一样，我们仍处于起步阶段。”
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### 众筹与房地产投资信托基金有何不同
 
@@ -40,7 +40,7 @@
 
 和往常一样，还有潜在的成本需要考虑。众筹平台的费用各不相同，通常以较低的费用换取较高的投资。比如 [CrowdStreet](https://www.crowdstreet.com) 要求最低投资 1 万美元，最少 36 个月，但不收账户费。 [Fundrise](https://fundrise.com/) 让你以 500 美元起步，但每年收取 1%的费用，这与 [roboadvisors](https://twocents.lifehacker.com/when-to-transfer-your-savings-to-a-roboadvisor-1833034570) 的费用相比相对较高，后者往往在 0.25%至 0.60%左右。对于积极管理的投资组合，你可以预期收费在 1%的范围内。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### 耐心点，因为你不会很快致富
 
@@ -52,6 +52,6 @@
 
 如果你还没有投资——也就是说你没有 401(K)、罗斯个人退休账户或经纪账户——你可能还没有准备好投资房地产。最好 [从最基本的](https://twocents.lifehacker.com/how-to-build-an-easy-beginner-set-and-forget-investm-1686878594) 开始，把你的大部分投资目标留到你 [解决债务并建立应急基金](https://lifehacker.com/10-things-you-should-do-before-you-start-investing-1773924039) 之后。但如果你对目前的投资组合感到满意，并想把事情搞混，房地产众筹可以帮助你实现多元化。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 “从小事做起，打造舒适体验，”戴维斯建议道。“没人说你必须马上投资几千。”

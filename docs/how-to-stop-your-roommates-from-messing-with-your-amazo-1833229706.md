@@ -6,7 +6,7 @@
 
 由于当时我离家很远，我首先对人们(显然认识我的人)如何在我的智能手机上留下提醒感到困惑。在细节开始变得具体之前，我一直以为我的一些其他朋友只是在我把 iPhone 放在一边的时候，用 Siri 给它添加愚蠢的提醒。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 然后我突然想到。是我该死的智能音箱。
 
@@ -18,7 +18,7 @@
 
 正如我的室友所知——一旦他们在客厅电视意外触发 Alexa 后发现了新设备——他们可以对 Echo 说出任何数量的命令来搞我。天哪，他们试过了:
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 那么，如何防止你家里的其他人乱动你的智能音箱呢？如果友好的对话不能完成工作，你有一些技术选择——不是很多，而是很少。
 
@@ -26,7 +26,7 @@
 
 这个很简单，但是不方便。如果你通过公共 Echo 扬声器将“智能”技术优雅地赠予你的室友，你可能会试图将它与你的亚马逊账户关联起来，这样你就可以，你知道，使用它的一半功能。这样做，你也给了别人一扇了解你个人生活的大窗户，因为你的回声不会神奇地把你的声音和他们的区别开来，也不会拒绝分享你的私人细节。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 虽然为你的 Echo 创建一个“虚拟”账户很痛苦，但如果不止一个人使用这个扬声器，我会考虑这样做。你将失去做一些事情的能力，比如检查你的日历事件，添加待办事项或提醒，购物，或使用个人技能——仅举几个例子——但你也不会放弃你生活中的隐私细节，让任何人通过一个简单的问题来了解。
 
@@ -36,7 +36,7 @@
 
 如果你能说服你的室友去买它——为什么不呢，因为它会给每个人省钱——考虑把他们加入你的亚马逊家庭，而不是你们两个都单独订阅亚马逊 Prime。亚马逊只允许两个成年人存在于一个“家庭”中，除非你的其他室友不介意因为你而成为“青少年”。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 虽然这可能会带来复杂性，因为现在，你们两个将共享相同的支付方式，希望你们能足够信任对方，使这个设置工作。一旦你在你的 Echo 扬声器上设置了你的新家庭，你和你的室友就可以通过要求 Alexa 做 来在你的两个配置文件 [之间切换——或者通过为你们每个人设置](https://www.amazon.com/gp/help/customer/display.html?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-stop-your-roommates-from-messing-with-your-amazo-1833229706&asc_source=&nodeId=201628040&tag=kinjalifehackerlink-20) [语音配置文件](https://lifehacker.com/how-to-set-up-multiple-voice-profiles-on-your-amazon-ec-1819474600) 。
 
@@ -46,7 +46,7 @@
 
 由于创建亚马逊家庭可能不适用于大多数室友的情况，你可以尝试将你的个人服务与你的 Alexa 账户分离。你不能使用它们——例如，不能在 Echo 上查看你的日历来看看有什么事情发生——但是你的室友也不能。这是在共享空间使用 Echo 扬声器的代价。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 我建议删除:
 
@@ -62,7 +62,7 @@
 
 在一个完美的世界里，你可以给任何触发出站操作的 Echo 功能或 Alexa 技能分配某种 PIN:创建一个提醒或日历事件；通过技能向某人汇款；将物品添加到购物清单等等。虽然这听起来好像过一会儿就会变得很烦人，但亚马逊没有理由不能给你一个“说一次你的 PIN，你就不用在[时间段]内再说一次”的设置，或者甚至是一个触发词，在你之前验证过你自己的 PIN 后，“锁定”你的回声。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 语音购买是你可以在 Echo 上用大头针锁定的主要功能——不包括任何同样需要它的第三方技能，比如 [你的智能锁](https://support.august.com/integrating-with-amazon-alexa-r1l0L8yCOM) 。如果您的 Echo 扬声器生活在一个多人的家庭中，我建议尽快启用它。通过应用程序 [或网站](https://alexa.amazon.com/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-stop-your-roommates-from-messing-with-your-amazo-1833229706&asc_source=&tag=kinjalifehackerlink-20) 访问你的 Alexa 设置，点击或点击“Alexa 帐户”下的“语音购买”，然后要么关闭该功能(如果你从未使用它)，要么在它上面打上“语音代码”。
 
@@ -72,7 +72,7 @@
 
 比方说，如果你的客厅里有一段时间的“秘密”回声，而你愚蠢的室友现在才*发现它——并干扰它——一个阻止他们的好方法是改变你说话者的唤醒词。如果你默认为“Alexa”，考虑进入设置(然后是“通用”)，把它改成更晦涩的，比如“Echo”，或者更糟的，“Computer”你的室友很可能猜不到这些单词，你的 Alexa 也很安全...直到某个电视广告触发了它，他们发现了新的秘密。*
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 说到这个，你也可以在你的回声上永久启用“请勿打扰”模式，这样你就不会在你的扬声器上收到提醒他们你的回声存在的通知。
 
@@ -84,6 +84,6 @@
 
 这条建议只适用于你的室友不是技术娴熟就是懒惰的时候。当你离开房间一天(或一段时间)时，点击 Alexa 顶部的“静音麦克风”按钮。你的室友可以对它大喊大叫，但它什么也不会做。而且，不，你不能*告诉*你的 Alexa 关掉麦克风。你必须按下按钮。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 你也可以变得更狡猾一点，将你的回声扬声器插入一个智能开关。假设它可以让你安排连接设备的电源，你可以确保在不需要它的正常时间关闭扬声器(当你在工作时，当你睡觉时，等等)。这有点极端，你的室友总是可以按下你智能开关上的物理按钮来再次打开回声扬声器，但这是一个选项。

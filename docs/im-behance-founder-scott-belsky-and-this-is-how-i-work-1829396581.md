@@ -4,7 +4,7 @@
 
 如果你是一个视觉创意者，你需要表现得。专业的社交平台让艺术家、设计师和其他创作者以高分辨率分享他们的作品，并建立一个可共享的作品集。我们采访了 Behance 创始人 Scott Belsky，他现在是 Adobe 的首席产品官，谈到了他的工作，他的个人捷径，以及他关于企业家精神和创造力的书籍。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 * * *
 
@@ -22,7 +22,7 @@ T3】现任 Gig:Adobe 首席产品官；作者&种子投资人
 
 我也是 Pinterest、优步和 Cheddar 等公司的早期投资者和产品顾问。多年来，我对其他企业家和大变革领导者的故事着迷，特别是他们如何管理旅程的波动性。五年前这种迷恋变成了一个图书项目叫做 [*乱七八糟的中间*](https://www.amazon.com/Messy-Middle-Finding-Through-Hardest/dp/0735218072/ref=tmm_hrd_swatch_0?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-behance-founder-scott-belsky-and-this-is-how-i-work-1829396581&asc_source=&qid=1546615085&sr=8-1&tag=kinjalifehackerlink-20) ，刚刚推出。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 带我们看看最近的一个工作日。
 
@@ -32,7 +32,7 @@ T3】现任 Gig:Adobe 首席产品官；作者&种子投资人
 
 最后，在每天结束时，我会花一些时间清理电子邮件、我的行动清单(由 [神童](https://www.wunderlist.com/) 提供支持)和 Slack 中的紧急项目。我讨厌成为瓶颈，认为“果断而不拖别人后腿”是领导者最重要的工作之一。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 你生活中离不开哪些应用、小工具或工具？
 
@@ -46,7 +46,7 @@ T3】现任 Gig:Adobe 首席产品官；作者&种子投资人
 
 但我也是一个记笔记的人，并且仍然使用[Behance 生产的笔记本] [点网格书](https://www.amazon.com/Behance-Dot-Grid-Book-10-5/dp/B00YQ5RBIO?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-behance-founder-scott-belsky-and-this-is-how-i-work-1829396581&asc_source=&tag=kinjalifehackerlink-20) 和 [行动本迷你](https://actionmethod.com/products/action-book-mini) 来捕捉忙碌中的任务。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 关于与有创造力的专业人士一起工作和为他们工作，你最喜欢的一课是什么？
 
@@ -58,7 +58,7 @@ T3】现任 Gig:Adobe 首席产品官；作者&种子投资人
 
 我在我的 iPhone 上创建了键盘快捷键，这样我就可以给有缩写的人发送普通信息。例如，我对优步司机在纽约哪里接我有一个长达一句话的描述，我只需要键入“uberd ”,就可以得到整个句子。我也在 Gmail 中使用固定回复。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 我不断尝试将单调的工作与其他事情并行处理。当我刷牙的时候，我试着阅读或者看一些东西。当我在无意识地组织的时候，我在听播客。我在去机场的途中安排电话，等等。当我处于工作状态时，我希望感觉自己被充分利用了。
 
@@ -68,7 +68,7 @@ T3】现任 Gig:Adobe 首席产品官；作者&种子投资人
 
 我也试着在每周末检查自己，快速查看我的日历，问自己:“我做了多少事情让事情向前发展了？”这样做有助于我识别某些浪费时间的会议，以及其他特别有成效的对话。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 帮助你完成事情的人是谁，你是如何依赖他们的？
 
@@ -84,7 +84,7 @@ T3】现任 Gig:Adobe 首席产品官；作者&种子投资人
 
 我试着每个月都去海滩散步，即使是在淡季。海浪让我头脑清醒。还有网飞。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 你最喜欢的副业是什么？
 
@@ -98,7 +98,7 @@ T3】现任 Gig:Adobe 首席产品官；作者&种子投资人
 
 *我想更多地了解太阳马戏团的设计人员——他们是世界上最具创造力和生产力的组织之一。* 
 
-*<label class="bxm4mm-13 juykRM">Advertisement</label>*
+**
 
 #### *你收到过的最好的建议是什么？*
 

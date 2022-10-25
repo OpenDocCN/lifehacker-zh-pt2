@@ -6,7 +6,7 @@
 
 问题不仅仅是这个用户敲诈了其他人(尽管那也很可怕)；而是像 YouTube 这样的平台可以说没有付出足够的努力来验证这些说法，这意味着用户可以自由提交删除请求，作为威胁其他账户的一种手段。由于平台本身可能没有对这些进行足够的审查，如果你收到撤销请求，你应该怎么办？嗯，这是一条漫长而复杂的路，即使你拥有内容的版权。目前，只是我们生活的世界。尽管如此，以下是你保护自己的方法:
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### 什么是撤销请求？
 
@@ -16,7 +16,7 @@
 
 哈佛法学院伯克曼互联网与社会中心的安迪·塞拉斯当时告诉 Gizmodo:“阿什利·麦迪森正在以一种从未被设计过的方式使用 DMCA 来压制对这个问题的报道。”。“我认为这是一个相当明显的例子。我认为在这些案件中显然没有侵权。”
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 根据 G/O Media 副总法律顾问 Faiza Javaid 的说法，撤下通知应由版权所有者或其代理人发出；Gizmodo 有一个阿什利·麦迪森网站撤下通知的例子。([upcouncil](https://www.upcounsel.com/dmca-claim)在其网站上也有模板版本。在 Gizmodo 发布报告时，至少有三家网站收到了下架通知，只有一家网站在收到通知后保留了网站上的数据。
 
@@ -28,7 +28,7 @@
 
 但是有许许多多的例外、情况和灰色地带。正如 [Gizmodo](https://gizmodo.com/ashley-madison-is-sending-bogus-dmca-takedown-notices-1725372969) 所写的，你应该先问问自己:这些材料是否可以申请版权？
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 例如，如果你的内容属于公共领域，你应该能够毫无问题地发布它。公共领域代表的是 [由公众](https://fairuse.stanford.edu/overview/public-domain/welcome/) 拥有的任何东西，而不是由个人拥有的；如果版权过期，这可能会发生。如果你能相信的话， [祝你生日快乐](https://www.cbsnews.com/news/happy-birthday-song-officially-recognized-in-public-domain/) “直到最近才进入公共领域，因为它的出版商未能获得其歌词的权利并保持有效的版权。
 
@@ -36,7 +36,7 @@
 
 如果你不确定你的内容是否属于合理使用、公共领域或其他许可使用，你可以参考我们之前写过的 [这张图](https://lifehacker.com/follow-this-chart-to-know-if-you-can-use-an-image-from-1615584870) 。或者，是的，你可以联系律师寻求一点帮助，如果你愿意支付特权的话。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### 该材料不构成侵权。我该怎么办？
 
@@ -48,7 +48,7 @@
 
 反通知会保留你网站上的内容吗？也许吧。在 YouTube 上，原告(或声称侵权的个人)有 10 天时间向平台提供法院诉讼的“证据”，否则内容可能会被恢复。在 Instagram 上，是 10 到 14 天之间。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 但与实际的撤下通知一样，反通知也很容易被滥用。在一个特别糟糕的 [Reddit 帖子](https://www.reddit.com/r/youtube/comments/6mbhh0/how_can_i_respond_to_a_countercopyright/) 中，一个用户声称一个视频侵犯了版权，但该用户用一个成功的反通知进行了反击，包含其版权材料的视频最终被恢复。“事情就是这样，如果你不通过视频对这个人提起诉讼，视频可以一直被重新上传，”u/icon 30T5T7】写道。“大型 YouTubers 一直在处理这个问题。”
 

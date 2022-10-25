@@ -6,7 +6,7 @@
 
 一个彻底的解决方案正是我们现在所需要的。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 正如阿历克斯·维塔莱，一位布鲁克林学院的社会学教授和《治安的终结》的作者，在最近的一次 [琼斯母亲访谈](https://www.motherjones.com/crime-justice/2020/06/police-abolition-george-floyd/) 中所说:
 
@@ -16,13 +16,13 @@
 
 警察处理的许多问题，如精神健康危机或无家可归，可以通过社会服务和社区组织的混合来更好地处理。同时，许多人——包括少数民族和家庭暴力或性侵犯的受害者——不愿意向警察求助。我们如何花钱很重要，我们每在一支高度军事化的警察部队[上花一美元，警察](https://fivethirtyeight.com/features/baltimore-police-officers-charged-freddie-gray/) 就很少因其暴力行为而被追究责任，这就意味着我们可以在提供有意义帮助的项目上少花一美元。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 在各级政府中，我们在监狱、警察和法院上的花费是我们在旨在帮助有需要的人的社会项目上花费的两倍 。我们把人关进监狱的比率 [比其他国家](https://www.prisonpolicy.org/global/#:~:text=The%20U.S.%20incarcerates%20716%20people,the%20countries%20in%20the%20world.&text=Next%20comes%20the%20state%20of,rate%20as%20the%20Russian%20Federation.) 高五倍，每个被监禁的人每年 花费[31，286 美元。作为比较，我们每年花 12，201 美元来教育一个小学生和中学生。](https://www.vera.org/downloads/Publications/price-of-prisons-what-incarceration-costs-taxpayers/legacy_downloads/price-of-prisons-updated-version-021914.pdf)
 
 与其把我们有限的钱花在庞大的警察队伍上，不如投资于社会服务和社区组织，而不是一支高度军事化的警察队伍，这可能更明智、更有效。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### 社会服务和社区组织往往更有效
 
@@ -34,7 +34,7 @@
 
 这一战略试图解决犯罪行为背后的潜在问题，从长远来看，这种方法将使我们的社会更加安全。研究表明，专注于预防犯罪的社区组织的参与对降低城市的谋杀率、暴力犯罪率和财产盗窃率具有可衡量的影响。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### 警察已经不为很多人服务了
 
@@ -44,7 +44,7 @@
 
 性侵犯或家庭暴力的受害者经常报告说很少或根本没有从警察那里得到有意义的帮助。其中一些原因可能是因为警察队伍中的性行为不端和家庭虐待是系统性问题，没有有效的制度追究他们的责任。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 从性骚扰到强奸的警察不当性行为非常猖獗，每五天就有一名警察被指控不当性行为。在一项对导致逮捕的 [警察不正当性行为](https://www.washingtonpost.com/outlook/how-some-cops-use-the-badge-to-commit-sex-crimes/2018/01/11/5606fb26-eff3-11e7-b390-a36dc3fa2842_story.html) 的调查中，大约一半发生在警察执勤的时候；警官不当班时的不当行为往往因他们的警官身份以及随身武器的存在而变得复杂。
 
@@ -54,7 +54,7 @@
 
 相反，我们可以通过社会服务和基于社区的举措来解决家庭暴力或性侵犯问题，在这些举措中，受害者可以获得所需的帮助，以摆脱虐待者，并获得康复。这将允许受害者——特别是黑人社区的受害者——实际上获得他们需要的帮助，而不必权衡成为另一个警察暴力统计数据的风险。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### 钱是有限的，我们如何花钱很重要
 

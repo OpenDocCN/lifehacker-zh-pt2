@@ -11,7 +11,7 @@ T7】当前电脑:苹果从喜欢一年前？
 **当前移动设备:** iPhone
 **最能描述你工作方式的一个词:**不完美
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 首先，告诉我们一些你的背景，以及你是如何走到今天这一步的。
 
@@ -19,7 +19,7 @@ T7】当前电脑:苹果从喜欢一年前？
 
 《CM》已经播出了 15 季，在我出演该剧期间，我继续创作剧本，并在洛杉矶著名的剧院担任董事。我也在 2016 年和我最亲爱的两个朋友成为了圣安娜 [眨眼猫头鹰酒厂](https://blinkingowldistillery.com/) 的合伙人。基本上，我能走到今天是因为我接受了很多机会！
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 带我们看看最近的一个工作日。
 
@@ -33,7 +33,7 @@ T7】当前电脑:苹果从喜欢一年前？
 
 我疯狂地使用语音备忘录。我写歌，构思故事，列出我需要和人们谈论的事情，等等。我的工作基本上是学习如何做人，然后写下来。我不能没有我的日志和子弹日志，这对我来说是新的！我也喜欢贴纸，并且是格罗斯曼夫人贴纸俱乐部的骄傲成员。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 你的工作空间是什么样的？
 
@@ -43,7 +43,7 @@ T7】当前电脑:苹果从喜欢一年前？
 
 授权！我读了盖伊·亨德里克斯写的这本书，书名是[](https://www.amazon.com/Big-Leap-Conquer-Hidden-Level/dp/0061735361?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-criminal-minds-actor-kirsten-vangsness-and-this-is-1836320745&asc_source=&tag=kinjalifehackerlink-20)*，他谈到了你的天才区、能力区和无能区。在我的无能领域里有很多事情，所以我觉得这本书真的在和我说话。我经常要花很长时间才能完成一项任务，而有些人只需要很短的时间就能完成，而且他们会做得更好。所以，我在雇佣这些人做这些事情中找到了安慰。关键是授权，然后定制项目，以适应你自己的声音和需求。*
 
-*<label class="bxm4mm-13 juykRM">Advertisement</label>*
+**
 
 #### *带我们经历一个你在工作中的有趣、不寻常或挑剔的过程。*
 
@@ -57,7 +57,7 @@ T7】当前电脑:苹果从喜欢一年前？
 
 *我用手机上的 [日历 5](https://readdle.com/calendars5) app，还有我的子弹日记。*
 
-*<label class="bxm4mm-13 juykRM">Advertisement</label>*
+**
 
 #### ***如何充电或休息？***
 
@@ -71,7 +71,7 @@ T7】当前电脑:苹果从喜欢一年前？
 
 *我目前正在读一本克利奥帕特拉的传记和一本关于女性“性反应”的书，这是我正在写的剧本的研究的一部分。我强烈推荐同性恋亨德里克斯的[](https://www.amazon.com/Big-Leap-Conquer-Hidden-Level/dp/0061735361?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-criminal-minds-actor-kirsten-vangsness-and-this-is-1836320745&asc_source=&tag=kinjalifehackerlink-20)*。**
 
-**<label class="bxm4mm-13 juykRM">Advertisement</label>**
+****
 
 #### **你还希望谁来回答这些问题？**
 

@@ -13,7 +13,7 @@
 **当前移动设备:**谷歌像素
 **一个词最能描述你的工作方式:**不断
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 你的工作职责是什么？
 
@@ -25,7 +25,7 @@
 
 我痴迷于谷歌日历，并不真的检查我的邮件，我用我的日历作为我的邮件。我刚刚开始使用 Airtable，我听到了一些关于它的好消息。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 你的工作空间是什么样的？
 
@@ -39,7 +39,7 @@
 
 嗯，我喜欢柠檬水。片场可能会很冷。当我感到不知所措或紧张时，一杯温水。拿着一个温暖的杯子可以接地和安全——它味道很好，对你的喉咙有好处！
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 帮助你完成事情的人是谁，你是如何依赖他们的？
 
@@ -53,7 +53,7 @@
 
 嗯。我和我的猫在一起，我喜欢我的花园。我希望我能说些更性感的话！
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 你最喜欢的副业是什么？
 
@@ -67,7 +67,7 @@
 
 我们家是爵士乐的忠实粉丝。我最喜欢的最新作品是 [【噗噗我逃了】](https://www.youtube.com/watch?v=aVVtE14-p0g) 因为它让我觉得真的很开心。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 你收到过的最好的建议是什么？
 

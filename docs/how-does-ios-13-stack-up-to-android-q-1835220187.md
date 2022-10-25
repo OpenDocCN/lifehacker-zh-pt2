@@ -8,7 +8,7 @@
 
 不管你用的是什么智能手机，你一定会在功能上找到相似之处。这是因为就像时尚界一样，趋势是存在的，苹果和谷歌正在设立标杆。两家公司都将很快进行重大软件更新，分别是 [iOS 13](https://lifehacker.com/all-the-big-ios-13-changes-apple-announced-at-wwdc-19-1835216984) 和 [Android 10](https://lifehacker.com/the-best-new-features-in-android-q-1834620582) ，这两种软件都将带来各种新功能，你很快就会发现没有它们你就无法生活。(当然只要你更新你的软件。)
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### 黑暗模式
 
@@ -20,7 +20,7 @@ iOS 13 和 Android 10 将配备全系统黑暗模式。所有菜单屏幕、按�
 
 苹果宣布对 iOS 13 中的提醒应用进行改造。该应用程序将提供新的类别，以帮助根据紧急程度区分任务，以及一个新的人工智能推动的功能，该提醒你什么时候该做你计划要做的事情。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 Android 10 已经通过 [谷歌助手应用](https://play.google.com/store/apps/details?id=com.google.android.apps.googleassistant) 继承了这一能力，它可以让你以“嘿谷歌，提醒我……”。由于它与助手相关联，提醒会在你的手机、智能扬声器和 Chrome 浏览器上弹出(尽管只有在你愿意的情况下)。
 
@@ -30,7 +30,7 @@ Android 10 已经通过 [谷歌助手应用](https://play.google.com/store/apps/
 
 iOS 13 将有类似的功能，你可以选择多久给一个特定的应用程序提供一次你的位置数据，所以当你不使用你的手机时，它不会 using。比谷歌更胜一筹的是，苹果还推出了“登录苹果”功能，这将允许 iPhone 用户创建新账户，并使用 Face ID 登录。苹果账户还可以为不同的应用程序创建一次性电子邮件地址，帮助减少收件箱中的垃圾邮件。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### **改良地图**
 
@@ -38,7 +38,7 @@ iOS 13 将有类似的功能，你可以选择多久给一个特定的应用程�
 
 iOS 13 中还有一个共享 ETA 功能。就像谷歌地图中的选项一样，你可以向朋友发送一个链接，暂时跟随你的路线，直到你到达目的地。不幸的是，从苹果地图向你使用 Android 的朋友发送链接不太可能奏效，因为该应用在谷歌 Play 商店不可用。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### 滑动打字
 
@@ -48,7 +48,7 @@ iOS 13 中还有一个共享 ETA 功能。就像谷歌地图中的选项一样�
 
 ### 照片
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 iOS 13 将包括新的照片和视频编辑工具。您可以编辑亮度、阴影、高光、对比度、饱和度、白平衡、锐度和清晰度等元素。还有一个晕影和降噪功能。为了快速编辑，可以从照片应用程序中旋转视频。
 

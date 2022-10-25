@@ -10,7 +10,7 @@
 **当前移动设备:** iPhone XR
 **一个最能形容你工作方式的词:**狂热地
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 首先，告诉我们一些你的背景，以及你是如何走到今天这一步的。
 
@@ -20,7 +20,7 @@
 
 从那以后，我一跃成为了 Lifehacker 的视频制作人。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 你的工作职责是什么？
 
@@ -36,7 +36,7 @@
 
 除了我的手机和笔记本电脑，我唯一离不开的小玩意是我的 [【任天堂 Switch】](https://www.nintendo.com/switch/)。我曾经是一个长大的游戏玩家，但当我上大学时，我基本上不再玩游戏了。去年我生日的时候给自己换了一个开关，这让我又回到了游戏中，重新投入到我曾经如此热爱的爱好中是一件令人愉快的事情。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 你的工作空间是什么样的？
 
@@ -50,7 +50,7 @@
 
 我们有一个小型的三人视频团队，我依靠我的两个同事做所有事情。我们的技能互补得很好，我从他们身上学到了很多新东西。我们的高级制作人乔尔是一个组织和物流奇才。我的制片人同事希瑟做了惊人的动画工作。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 你在工作中犯过的最大的错误是什么，你是如何处理的？
 
@@ -64,7 +64,7 @@
 
 去年，我推出了一个专门庆祝视频游戏讲故事的播客网络。我们在 [Lore Party 播客网](https://loreparty.com/) 上有三个播客，我们的旗舰播客[*Lore Party*](https://podcasts.apple.com/us/podcast/lore-party/id1352758135)，已经超过 100 集。管理一个 15 人的团队并日复一日地运营播客是我一生中最有收获的项目之一。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 你目前在读什么，或者有什么推荐？
 
@@ -82,7 +82,7 @@
 
 “休息一下，伙计。”
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 你仍在努力解决的问题是什么？
 

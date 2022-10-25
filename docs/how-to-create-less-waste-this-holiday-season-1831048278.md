@@ -6,7 +6,7 @@
 
 据估计，在感恩节和新年之间，美国人扔掉的垃圾比一年中其他时间多 25%，相当于大约 2500 万吨额外的垃圾。那是从包装纸和包装到所有没人要的剩余圣诞布丁的所有东西；外加快递包裹和蹩脚的一元店装饰。这个数字还不包括你最后一分钟从中国快递过来的货物和玩具的碳(和道德)足迹。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 《零浪费:大幅减少垃圾的简单生活窍门》一书的作者 Shia Su 说:“我们不喜欢在欢乐季节考虑对环境的影响，原因很简单:这很扫兴。”。"我们觉得这是个例外，所以没关系。"
 
@@ -16,13 +16,13 @@
 
 少就是少:少买东西(很多东西在从中国到仓库、到柴油运输卡车、到商店、再到你家的途中会消耗大量的化石燃料和资源)，得到更少但更持久的装饰品，少开车去商店，少用包装，尽可能重复利用。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 让我们从购物开始:只要有可能，购买当地产品总是更好的选择。这有助于加强当地企业，并避免未来我们都从一个吞噬地球的巨型公司购买东西，这个巨型公司是以滑稽讽刺的名字 [命名的，比如 idk、雨林或其他什么。](https://lifehacker.com/are-you-cutting-amazon-out-of-your-holiday-shopping-thi-1830740594)
 
 说到网上订购，一个很好的经验法则是，越快= [越浪费](https://www.vox.com/2017/11/17/16670080/environmental-cost-free-two-day-shipping) 。空运通常会消耗更多导致气候变化的燃料，所以如果可以的话，选择陆运。避免匆忙过夜和两天的选择(是的，即使他们是“免费的”)，这通常有更高的环境影响。请记住，本着让你的订单快速送达的精神，在线零售商会尽可能地浪费。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 根据 Grist 的 Ask Umbra 专栏 “两天的运输可能会在确定低碳、最低燃料成本的途径方面对送货提供商造成一些限制”。该专栏指出，更长的运输窗口让快递公司有更多的时间来阻止送货卡车，直到它装满而不是半空，并在你的社区周围设计更有效的送货路线。更不用说快手中心的 [*实际上是在杀人。*](https://www.nytimes.com/interactive/2018/10/21/business/pregnancy-discrimination-miscarriages.html)
 
@@ -32,7 +32,7 @@ Kathryn Kellogg， [博主](https://www.goingzerowaste.com/) 和即将出版的�
 
 如果其他方法都失败了，至少试着把你的订单分批处理。一次装运包含你所有购买的物品比分散在一堆送货卡车上的几次购买对环境的影响要小。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### **不要包起来**
 
@@ -40,7 +40,7 @@ Kathryn Kellogg， [博主](https://www.goingzerowaste.com/) 和即将出版的�
 
 一些包装纸 [*是*可回收的](https://earth911.com/home-garden/holiday-tip-dont-recycle-gift-wrap/)——但它必须不是金属的、有纹理的或有闪光或丝带在上面。你知道你的包装纸是否符合那些标准吗？你知道怎么检查吗？你送礼物的每个人都会经历检查的麻烦吗？任何不可回收的物品被错误地放入一袋可回收物品中都会污染整袋物品。此外，请记住，废物大多产生于产品的来源(如砍伐树木)，而不是最终的目的地。跳过它！
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 专家建议坚持使用普通的、可回收的纸——比如屠夫纸——来包装，但是重新利用报纸或旧杂志，加上一些个人的手艺，会更好。
 
@@ -48,7 +48,7 @@ Kathryn Kellogg， [博主](https://www.goingzerowaste.com/) 和即将出版的�
 
 苏建议，用有趣的杂志图片或报纸标题来包装，以增加欢乐，并添加干橙片或肉桂棒，给礼物一个“复杂和怀旧”的外观。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 她还建议在互相包装礼物时要有创意。例如，厨房用品可以用茶巾包起来，或者个人礼物可以用围巾包起来。可重复使用的礼品袋和其他可以重新利用的物品——饼干盒、梅森罐——都是高端礼品容器，比印有雪人的花哨纸质垃圾好得多。
 
@@ -58,7 +58,7 @@ Kathryn Kellogg， [博主](https://www.goingzerowaste.com/) 和即将出版的�
 
 萨默维尔说:“买人们想要的礼物太复杂了，我不想给 T2 不想要的礼物，让事情变得更复杂。”。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 这类礼物交换可能有点半吊子或者操之过急，不可避免地导致更多的浪费。但是如果你被困在这样的礼物交换中，至少 [送一份合适的礼物](https://lifehacker.com/whats-the-best-secret-santa-gift-1831014244#_ga=2.200441518.1055601077.1544468859-3846207152.1521480874) (下面会有更多)，一份在收到后 12 小时内不太可能被扔进垃圾桶的礼物。
 
@@ -68,7 +68,7 @@ Kathryn Kellogg， [博主](https://www.goingzerowaste.com/) 和即将出版的�
 
 你现在肯定听说过，千禧一代正在扼杀""行业，主要是因为我们没有太多的钱或空间来收集垃圾，并且模糊地意识到，当我们可能不得不把所有东西都装进生锈的校车，在我们越来越有可能成为疯狂的麦克斯的未来中，在地球上烘烤的荒地旅行时，把钱花在垃圾上似乎是愚蠢的。另外，研究表明 [把钱花在经历上，而不是东西上，](https://www.inc.com/travis-bradberry/why-you-should-spend-your-money-on-experiences-not-things.html) 从长远来看会让你更快乐。萨默维尔说，把这一点推断到你的送礼上。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 “从给予一些无关紧要的东西转变为体验性的东西，”她说。
 
@@ -76,7 +76,7 @@ Kathryn Kellogg， [博主](https://www.goingzerowaste.com/) 和即将出版的�
 
 她说，这一切都是为了改变你的思维模式:把礼物想象成一种负担，你把它交给某个人去照顾。这是他们经常使用的东西吗？还是说它会被闲置多年，占据空间？它会像他们说的那样引发喜悦吗，或者你只是对另一个人说，“ [在这里，*你*把这个扔掉](https://www.youtube.com/watch?v=4PNZSgVVgJo) ？”
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### **和圣诞老人说话**
 
@@ -88,7 +88,7 @@ Kathryn Kellogg， [博主](https://www.goingzerowaste.com/) 和即将出版的�
 
 但现在是假期，所以理智点。将假期对环境的影响考虑在内的能力绝对是一种特权(如果你有这种特权，你应该好好利用)。你可以把你不喜欢的礼物捐给那些不那么幸运的人，而不是把它们扔进回收站。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 “我不认为这是必要的时间死在这个土堆上，”萨默维尔说。"我们的目标是记住，思想才是最重要的。"底线是，如果你能鼓励你所爱的人推迟礼物——或者选择低浪费的选择——你肯定应该这样做，但是你在这里的里程数可能会有所不同，这也没关系。
 
@@ -98,7 +98,7 @@ Kathryn Kellogg， [博主](https://www.goingzerowaste.com/) 和即将出版的�
 
 根据这项研究，活树的碳足迹实际上只有人造树的三分之一，人造树有时是用有害的聚氯乙烯塑料制成的。所以，如果你有一棵塑料树，就永远使用它；如果你真的要去，买本地的 [或者买一个他们打算扔掉的](https://lifehacker.com/save-money-on-your-christmas-tree-by-asking-for-a-dud-1830850070)——并且确保在你用完后把它放回土里。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### **已经买了一些像样的装饰品——或者自己做一个**
 
@@ -106,7 +106,7 @@ Kathryn Kellogg， [博主](https://www.goingzerowaste.com/) 和即将出版的�
 
 “我觉得它看起来非常漂亮，最后我会把它们放进堆肥箱，它会变回土壤，”她说。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### **减少你的盛宴，跳过烤肉**
 
@@ -118,7 +118,7 @@ Kathryn Kellogg， [博主](https://www.goingzerowaste.com/) 和即将出版的�
 
 无论你有什么食物垃圾，将其制成堆肥。根据美国环保署 的说法， [垃圾填埋场中的食物垃圾会释放甲烷，这种气体在吸收大气中的热量方面比二氧化碳强 25 倍。你不能顺便堆肥肉；注意到一种模式？](https://blog.epa.gov/2016/11/22/recognizing-leaders-in-food-waste-reduction-this-holiday-season/)
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### **新年，同一个星球**
 

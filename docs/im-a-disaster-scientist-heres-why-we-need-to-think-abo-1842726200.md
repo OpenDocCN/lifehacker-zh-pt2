@@ -6,7 +6,7 @@
 
 灾难幸存者称恢复为“第二次灾难”危机过后重建生活的过程是艰难的。我研究了像新奥尔良和休斯顿这样的社区，它们已经进行了数年甚至数十年的恢复。去年夏天，我花了一天时间在新奥尔良下九区重建一所房子，自从卡特里娜飓风期间防洪堤决堤并淹没该社区以来，这所房子已经闲置了 14 年。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 我们从新冠肺炎的复苏会是什么样子？我们不需要像飓风过后那样重建房屋或清理街道上的废墟。不过，天气灾难和疫情灾后恢复还是有一些共同点的。
 
@@ -14,7 +14,7 @@
 
 一项针对 14 个受灾社区的研究发现了影响灾后恢复的三个关键因素，包括领导力、应对知识和行动能力。在每个从新冠肺炎灾后恢复的社区，我们可以期待政治领导和对如何恢复的理解，加上获得所需资源，将指导恢复进程并解释结果。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 在危机时期，领导需要灵活，同时提供远见、主动性和动力。众所周知，在新奥尔良的拉塞尔·奥诺雷 将军到来之前，应对卡特里娜飓风和堤坝崩溃的措施一直缺乏联邦领导(他本人迄今已对联邦应对冠状病毒的措施发出了[批评](https://www.msnbc.com/craig-melvin/watch/lt-gen-general-russel-honore-the-focus-needs-to-be-on-saving-lives-81387589710) )。领导人还需要有一个如何复苏的计划，尤其是在联邦层面。
 
@@ -24,7 +24,7 @@
 
 灾后，个人和家庭基本上只能靠自己去完成一系列复杂的联邦项目，这些项目不能充分满足许多人的需求。许多个人和家庭很难获得他们需要的恢复资源，这些资源可以为他们提供某种形式的稳定。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 灾难发生后，联邦紧急事务管理局(FEMA)会带着一张支付损失的支票上门，这有点荒诞。这与现实相去甚远。例如，通过联邦应急管理局的个人援助，对桑迪幸存者的平均财政援助只有 8000 美元。乔普林龙卷风幸存者平均 5700 美元，塔斯卡卢萨龙卷风幸存者平均 3500 美元。
 
@@ -32,7 +32,7 @@
 
 三月底，国会通过了 [医疗法案](https://www.npr.org/2020/03/26/821457551/whats-inside-the-senate-s-2-trillion-coronavirus-aid-package) ，其中包括许多美国人的 1200 美元。然而，对于那些靠薪水度日、已经失业或面临意外医疗账单的人来说，1200 美元不太可能支撑他们度过这个疫情，更不用说经济复苏了。这些人将不得不通过更广泛的政府项目寻求额外的帮助。继飓风哈维的毁灭性洪水之后， [得克萨斯州数十万人](https://www.texastribune.org/2017/10/18/food-stamp-program-extension-draw-thousands-harvey-victims-houston/) 依靠灾难补充营养援助计划(D-SNAP)。飓风玛丽亚肆虐波多黎各后，许多 [通过灾难失业救助领取](https://www.nbcnews.com/news/latino/not-enough-puerto-ricans-left-jobless-hurricanes-are-benefiting-new-n979506) 救济金。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 灾难恢复中普遍存在的低效和不公正现象在应急管理专家和灾难研究人员中是众所周知的。不幸的是，未能进行全面的应急管理改革导致了全国各地永无休止的灾难循环，我们被困在其中。
 
@@ -40,7 +40,7 @@
 
 政治家们经常持类似的观点，谈论灾难后做出改变的“机会之窗”，包括政策的改变。灾后经常有人呼吁做出改变，以防止类似的灾难再次发生。已经有呼吁成立一个 9/11 式的委员会，以找出新冠肺炎应对措施中的失误之处。这可能会给我们的公共卫生和应急管理方法带来积极的变化，但也可能会忽略作为应对失败根源的更大的系统性问题。在应急管理中，我们习惯于看到下意识的政策变化。 [众所周知的](https://www.globalsecurity.org/security/library/congress/2007_h/070731-tierney.pdf) ，9/11 后广泛的、被动的政策变化对联邦政府应对几年后的卡特琳娜飓风和堤坝崩溃产生了负面影响。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 我们不仅需要重新思考我们目前应对流行病的方法，还需要重新思考我们目前管理所有灾害的方法。由于气候危机，这一点尤为紧迫。全国各地的社区正面临着来自多种危害的越来越大的风险。如果最近的灾难像 2017 年和 2018 年的 [飓风](https://earther.gizmodo.com/climate-change-worsened-2017s-hurricane-season-from-hel-1829365238) [季节](https://earther.gizmodo.com/how-hurricane-michael-revealed-the-forgotten-victims-of-1830563104)[2019 年中西部洪水](https://earther.gizmodo.com/farmers-in-the-midwest-face-decades-of-recovery-as-floo-1833436732) 和 [西部野火](https://earther.gizmodo.com/standing-in-the-rubble-of-paradise-life-after-the-camp-1839223033) 是一个迹象，那么我们还没有准备好。应急管理系统 [已经紧张](https://www.vox.com/2016/8/18/12522036/louisiana-flood-climate-change-emergency-management) 。
 
@@ -50,7 +50,7 @@
 
 其他人则认为，现在是进行变革性政策变革以更好地应对气候危机及其后果的时候了。不管政策变化如何展开，灾难研究警告说，对许多人来说，恢复将是一个漫长而艰难的过程。有很多因素能够也将会影响复苏的进程，包括我们最终在全国看到的实际影响。在我们仍然处于应对模式并专注于拯救生命的任务的这一时刻，可能很难想象，但我们也需要展望冠状病毒的复苏。我们越早计划恢复，情况就可能越好。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 考虑如何从疫情中恢复的最佳时间是在疫情发生之前，第二好的时间是现在。
 

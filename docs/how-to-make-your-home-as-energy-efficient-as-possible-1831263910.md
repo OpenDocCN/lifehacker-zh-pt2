@@ -4,7 +4,7 @@
 
 如果来自政府间气候变化专门委员会的最新报告敲响了警钟，你可能会想知道你还能做些什么来减缓气候变化。你曾 [投票给你认识的关心气候变化的人](https://lifehacker.com/how-to-demand-action-on-climate-change-1829783214)[从让情况变得更糟的公司中撤资](https://twocents.lifehacker.com/how-to-divest-from-the-companies-killing-the-environmen-1829625706)[几年前，你把所有的白炽灯泡换成了 led](https://lifehacker.com/how-to-pick-the-best-light-bulbs-for-every-room-in-your-1713809049)。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 今天是开始计划减少你家能源使用量并使能源更清洁的好日子。 [制定计划](https://rmi.org/blog_2013_01_11_this_old_house_making_old_homes_energy_efficient/) 会帮你决定从哪里开始。如果一个特别的项目听起来有趣又简单，那就尽快去做。如果你觉得某样东西太贵或者现在工作量太大，计划一下如何通过存钱、雇人来做或者和朋友一起工作来解决它。
 
@@ -14,7 +14,7 @@
 
 NIST 的测试设施表明，一所房子每年可以产生与它消耗的一样多的能量，简而言之，“T0”[净零](https://www.youtube.com/watch?v=xSzu83fyQaQ&feature=youtu.be) 希利说 [太阳能电池板](https://lifehacker.com/how-to-decide-whether-to-install-solar-panels-for-your-1719858560) 通常应该放在最后；但是太阳能电池板使一个家庭的净零度触手可及，以及优越的舒适度和大大减少的水电费。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### 对你的家进行能源审计
 
@@ -24,7 +24,7 @@ NIST 的测试设施表明，一所房子每年可以产生与它消耗的一样
 
 首先要考虑的是你家的 [建筑围护结构](https://silvermancpm.com/construction-term-of-the-week-building-envelope/) 。这基本上是室内和室外的界限。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 你的阁楼是在你加热和冷却的生活空间的里面还是外面？地下室或爬行空间怎么样？你的目标是定义建筑围护结构，将其与外界密封，这样空气就不会从你居住的空间进出，然后隔离密封的围护结构。我们从顶部开始。但是这里有一些 [可能的地方](https://www.greenbuildingadvisor.com/article/top-10-air-leaks-in-existing-homes-part-1) 为主要 [气流](http://www.conservationtechnology.com/building_design.html#AirLeakagePathways) 。
 
@@ -34,7 +34,7 @@ NIST 的测试设施表明，一所房子每年可以产生与它消耗的一样
 
 希利说，空气密封是提高住宅能效的最佳方法。“数据非常清楚。这是最划算的……因为这通常是我们失去大部分能量的地方。”
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 阁楼通常在建筑围护结构之外，并向外通风。天花板上的洞，为灯具或浴室风扇而做的，或者只是墙顶的洞，让冷空气从外面流入你的家。例如，来自灯具的冷风会产生不舒服的气流。就像开着一扇窗。
 
@@ -42,7 +42,7 @@ NIST 的测试设施表明，一所房子每年可以产生与它消耗的一样
 
 你可以试着封闭每一个电灯开关和水管孔，你可能应该这样做。但是首先，在源头上阻止空气流动。爬上阁楼，有条不紊地密封每一个缝隙，从阁楼的边缘，外墙，到电线或水管的钻孔。或者雇人来做。 [下面是](https://www.greenbuildingadvisor.com/article/air-sealing-an-attic) 的做法。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 如果你雇不起帮手，又不想自己建阁楼，可以考虑和一小群朋友合作，组成一个工作小组，在几个周末的时间里密封 3 到 4 个阁楼。然后一起庆祝，计划下一步怎么办。
 
@@ -52,7 +52,7 @@ NIST 的测试设施表明，一所房子每年可以产生与它消耗的一样
 
 你可以使用玻璃纤维蝙蝠(甚至把它们放在你自己身上)，但蝙蝠会在这里和那里留下缝隙。或者，你可以花钱请人吹进来覆盖一切的隔热材料。这就像在你的房子上盖了一床羽绒被。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 一旦阁楼被密封和隔热，这个家将会更温暖，通风更少，也更安静。拍拍自己的背，享受你更舒适的家！
 
@@ -62,7 +62,7 @@ NIST 的测试设施表明，一所房子每年可以产生与它消耗的一样
 
 如果你推迟这个，没有人会责怪你，但是，最终，密封建筑外壳的楼层，加上 [边缘托梁](https://www.finehomebuilding.com/2012/01/19/air-sealing-a-basement) ，支撑房子。根据房子的不同，这可能是一个大项目，承包商有无数种方法来解决这个问题，包括喷涂泡沫，固体绝缘板加上泡沫密封剂，或者用厚塑料板掩盖房子的整个底部。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### 升级到电器
 
@@ -72,7 +72,7 @@ NIST 的测试设施表明，一所房子每年可以产生与它消耗的一样
 
 对于冰箱、洗碗机和洗衣机，选择最节能的、被 [能源之星](https://www.energystar.gov) 评为最节能的型号。将电子设备插入不使用时可以关闭的电源条。是的，用 led 取代旧灯泡。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### **如果你不能做所有的事情，优先考虑**
 

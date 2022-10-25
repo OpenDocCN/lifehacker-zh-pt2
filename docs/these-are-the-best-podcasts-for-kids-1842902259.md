@@ -6,7 +6,7 @@
 
 如果你想让你的孩子接触播客，或者你正在寻找一些新的好的播客，我收集了一些我最喜欢的。我决定不把年龄建议放在上面，因为它们对任何年龄都合适；你孩子的个性、气质和注意力持续时间也将是他们喜欢的节目的因素。但总的来说，这个列表中的播客对 12 岁及以下的孩子最有吸引力，而且在许多情况下，它们可能是全家人都喜欢一起听的播客。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 世界上的[哇](https://www.npr.org/podcasts/510321/wow-in-the-world?fbclid=IwAR1KmK5mssMCWSUjXnXKWqJ6vYAoafoNcXUza8cx2yt1OR_N73W32mBbq6I)T3】
 
@@ -20,7 +20,7 @@ NPR 的《Wow in the World》是家长们的最爱；如果你正在为你的孩
 
 主持人简·林德霍尔姆用语音备忘录回答孩子们的问题，然后求助于专家，让他们得到准确而全面的答案。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### [**翻滚**](http://www.sciencepodcastforkids.com/)T5】
 
@@ -32,7 +32,7 @@ Tumble 是一个面向儿童的科学播客，由一名科学记者和一名教�
 
 这个播客来自美国的“试吃厨房的孩子们”，每周都有不同的食材——都是为本季大结局做准备，大结局将为听众呈现一个神秘的食谱“烹饪”。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 如果你还没有开始，考虑到目前的食品杂货店购物状况，你可能想(偷偷)快速听一下 4 月 14 日发布的额外一集[，它揭示了烹饪所需的食谱和配料。(你也可以很容易地](https://podcasts.apple.com/us/podcast/bonus-episode-recipe-reveal-and-shopping-list/id1498382420?i=1000471402274) [在这里查看](https://www.americastestkitchen.com/kids/recipes/one-pot-pasta-with-quick-tomato-sauce?utm_source=podcast&utm_medium=audio&utm_content=onepotpasta&utm_campaign=atkkidsmysteryrecipe)——幸运的是，你手头可能已经有了大部分食材。)
 
@@ -44,7 +44,7 @@ Tumble 是一个面向儿童的科学播客，由一名科学记者和一名教�
 
 只要确保你从第一集开始，而不是最近的一集，如果你想要它真正有意义的话。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### [面条面包](http://noodleloafshow.com/)
 
@@ -68,7 +68,7 @@ Tumble 是一个面向儿童的科学播客，由一名科学记者和一名教�
 
 和...外面还有很多。如果你有一个不在这个列表中的最爱，请在下面的评论中留下来，这样我们其他人就可以听听了。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 * * *
 

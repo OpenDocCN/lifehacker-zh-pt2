@@ -6,7 +6,7 @@
 
 显然，这还不够；我一年级的侄女转过身来对我说:“朱慧珊阿姨！你说了“废话”和“混蛋”！哎呀！”
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 开怀大笑之后，我想:在一个孩子面前说多少脏话才算过分？*一切*都不好吗？还是取决于孩子？他们呢——什么时候*的孩子*可以骂人？我把这个问题问了我的父母朋友和脸书育儿小组 [的后代](https://www.facebook.com/groups/2018785615043946/) ，然后我自己做了一点研究。
 
@@ -18,7 +18,7 @@
 
 另一端是父母，他们不改变自己的语言，不管身边的小人，也不介意他们的孩子说脏话。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 “在我家里，我无时无刻不在发誓。“我有一个 7 岁和 10 岁的孩子，”来自明尼苏达州罗切斯特的两个孩子的母亲萨拉·帕塔丽塔说，“他们可以在家里说任何他们想说的话，但是他们知道很多人认为某些词是‘不好的’，不喜欢听到它们——尤其是从孩子那里。他们通常非常善于保持这种区别，就像我在工作中一样。”
 
@@ -28,7 +28,7 @@
 
 同样来自脸书集团的普莱西打算向一个朋友借一个小窍门，他的朋友规定孩子们可以说脏话，但只能在自己的房间里，而且必须关上门。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 “孩子们从小到大对脏话有着非常现实的看法，”普雷斯写道。“这并不是完全禁止的，孩子们可以用它来表达他们的沮丧和愤怒，但必须在私人场合，永远不要对其他人使用。”
 
@@ -38,7 +38,7 @@
 
 “我有一张水手的嘴，”来自伊利诺伊州布拉德利的三个孩子的母亲阿曼达·甘农说。“(我的孩子)不允许说脏话。他们被允许说低级(话)……而且只是偶尔，而且只在我面前。永远不要*看*我。”
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 来自脸书小组的朱莉在使用诅咒语和咒骂他人时也有类似的区别。
 
@@ -50,7 +50,7 @@
 
 “指出当电视角色互相辱骂时，问孩子们他们如何才能以不同的方式处理这种情况，” [作家塞拉·菲鲁奇用常识建议](https://www.commonsensemedia.org/blog/5-ways-to-talk-to-your-kids-about-swearing-and-why) 。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 抑制孩子说脏话的一个常用技巧是尽量减少你的反应——尽可能强硬。
 
@@ -60,7 +60,7 @@
 
 根据 Parents.com 文章 中的 [“如果你的孩子看到你不觉得有趣，他就不太可能再说一遍了”。如果它再次发生，“保持冷静，说，‘这不是一个好词，我们不在我们的房子里使用它。’”](https://www.parents.com/toddlers-preschoolers/discipline/improper-behavior/potty-mouth-stop-kids-from-cursing-and-swearing/) 
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 还有一个完全相反的极端:神经学家 Emma Byrne 说，两岁大的孩子实际上应该学习脏话以及它们可能产生的影响。这样，信息来自父母，而不是同龄人。
 

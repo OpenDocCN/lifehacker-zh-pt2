@@ -6,7 +6,7 @@
 
 然而，当涉及到应用程序时，答案令人惊讶地各不相同；我不知道有这么多不同的笔记应用程序存在。虽然这意味着我必须尝试大量的新软件，但好消息是，我们现在有一个可靠的优秀应用程序名册，你可以用它来创建提醒、记下想法或跟踪清单。这绝不是一个详尽的列表，但你一定会找到适合你需求的笔记应用程序。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### [Evernote](https://evernote.com/)T3】
 
@@ -16,7 +16,7 @@
 
 显然，Evernote 在纸面上是一个很好的选择，我们也同意 Evernote 是同类应用中整体表现最好的。我们还建议将 Evernote 与 Saferoom 配对，后者在这个列表中有自己的名字。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ***更新 8 月 5 日** :* 我们错误地描述了 2016 年对 Evernote 的 [隐私政策](https://evernote.com/blog/evernote-revisits-privacy-policy-change/) 的更改，我们对此错误表示歉意。
 
@@ -26,7 +26,7 @@
 
 它也赢得了那些推荐。OneNote 不仅支持文本和网页剪辑，如果您使用平板电脑或触摸屏，还可以手写笔记和扫描物理文档。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 由于这是微软的产品，你将能够在与你的微软帐户相关的所有设备上同步你的笔记，包括 iOS 和 Android 设备。但是，即使你没有登录到同一个帐户，你仍然可以享受与 Microsoft Office 应用程序(如 Excel 和 Word)的原生集成。这是一个很好的选择，也是 Evernote 的可行替代方案，尽管我们会再次推荐它和 Saferoom 一起使用，你可以在下面读到。
 
@@ -36,7 +36,7 @@
 
 Zoho Notebook 在 Android、iOS、Mac 和 web 客户端上是免费的，尽管目前没有 Windows 应用程序。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### [收纳盒纸](https://www.dropbox.com/paper)
 
@@ -46,7 +46,7 @@ Zoho Notebook 在 Android、iOS、Mac 和 web 客户端上是免费的，尽管�
 
 ### [安全屋](https://getsaferoom.com/)
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 好吧——从技术上来说， [安全室](https://getsaferoom.com/) 本身并不是一个笔记应用，下载并安装它本身不会做太多事情。相反，Saferoom 用于加密 Evernote 或 OneNote 等应用程序中的笔记，甚至是 Microsoft Word 文档中的笔记。
 
@@ -58,7 +58,7 @@ Zoho Notebook 在 Android、iOS、Mac 和 web 客户端上是免费的，尽管�
 
 这里有几个，咳咳，值得注意的应用程序，只获得了少量的投票，但仍然值得一试。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 [**simple note:**](https://simplenote.com/)想让事情变得又快又好，简单？使用简单的笔记。UI 是最小化的(以一种好的方式),基本上你可以用 Simple Note 做的唯一的事情就是创建和编辑新的笔记，但是如果这真的是你所需要的，它可能是最好的选择。此外，您的笔记是云同步的，因此您可以从多个设备访问它们。当然，其他应用程序可以做得更多，并打包了大量的组织工具，但 Simplenote 非常适合快速记下想法或写下最后一分钟的购物清单。简单笔记可以在 Android、iOS、Mac、Windows 和 Linux 上使用。
 

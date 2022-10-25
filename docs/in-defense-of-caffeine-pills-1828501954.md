@@ -6,7 +6,7 @@
 
 当我毕业后搬回布鲁克林时，我毫不犹豫地戒掉了“冷火鸡”——不像它的液体等价物，在粉状咖啡因的消费方面几乎没有规律可循；咖啡和 Soylent 的关系就像食物一样。我甚至没有意识到我已经上瘾了，直到我在没有咖啡因的几天后出现了冷汗、偏头痛和身体抽搐，因为我经历了每天 120 毫克左右的咖啡因习惯的戒断。我在当地一家药店的补充品区找到了 10 美元一瓶的 100-200 毫克胶囊(大约 5 美分一粒)，我的身体立即得到了安抚。从那时起，我坚持喝预先加了咖啡因的粉状饮料，没有任何理由，只是为了放松(尽管也有安全的原因让我做出这种改变——后面会详细介绍)。粉末形式的咖啡因比液体形式的咖啡因更有效:对于讨厌咖啡的人和喜欢咖啡的人来说，这里有一些你服用前需要知道的事情。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### **咖啡因安全的基础知识**
 
@@ -16,7 +16,7 @@
 
 单从液体咖啡因来说，很难过量——你需要一杯接一杯地喝很多杯咖啡。当严重的咖啡因过量确实发生时(并且 [它们相当罕见](https://www.vox.com/science-and-health/2017/5/17/15649722/caffeine-overdose-health-risks-coffee-energy-drinks) ，尤其是对于这样一种通用药物)，它们是显而易见的:呕吐、腹痛和癫痫都是症状。癫痫发作或其他严重症状时，请随时拨打 911。对于轻度过量，当你的症状只是神经过敏时，你可能会保持冷静，喝点水，等待它结束。对于介于两者之间的任何事情，或者如果你不确定，请拨打 1-800-222-1222 联系毒物控制中心，或者使用他们的 [在线工具](https://triage.webpoisoncontrol.org/#/exclusions) 。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 以下是一些基本的咖啡因安全信息:
 
@@ -30,7 +30,7 @@
 
 针对 2014 年 18 岁的洛根·斯丁纳(Logan Stiner)和 24 岁的詹姆斯·韦德·斯韦特(James Wade Sweatt)因摄入过量咖啡因 [死亡事件，](https://well.blogs.nytimes.com/2015/05/18/caffeine-powder-poses-deadly-risks-2/) [FDA 在 2018 年禁止了一些纯咖啡因产品](https://www.fda.gov/food/dietary-supplement-products-ingredients/pure-and-highly-concentrated-caffeine) 。这距离 FDA [在 2015 年向一些咖啡因粉生产商发出警告函](https://www.newsweek.com/fda-issues-warning-letters-makers-caffeine-powder-368402?amp=1) 还不到三年。“它应该和海洛因一样非法，”Stiner [的母亲在他死后的一次采访中告诉 NBC](https://www.nbcnews.com/video/parents-of-overdose-victim-want-caffeine-powder-banned-314703427691) 咖啡因粉。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 在一份 [2018 报告](https://www.fda.gov/downloads/Food/GuidanceRegulation/GuidanceDocumentsRegulatoryInformation/UCM604319.pdf) 中，FDA 明确表示，它认为掺假和标签不良的散装粉末产品是造成健康风险的主要产品。在报告的某一点上，FDA 非常明确地指出了“用微小的量勺”包装的咖啡因的问题，这种包装声称构成了单剂量，因为当咖啡因在“分开生活的多人”之间分享时，一些消费者被剥夺了“量勺的好处”。
 
@@ -40,7 +40,7 @@
 
 比起咖啡，我更喜欢药片的原因很简单，即使是亵渎的:我不喜欢咖啡的味道。此外，我享受那种近乎狂热的高度警觉，这种高度警觉来自于一次服用全部剂量。这显然不适合每个人，当我摄入过多咖啡因，超过 400 毫克的推荐量时，我会变得疯狂和烦躁，心悸，手掌湿冷，焦虑加剧。对咖啡因药片上瘾和不喜欢咖啡也是相当无意的反社会行为。在液体状态下，这种药物构成了人类最统一的日常体验之一。我的方法是，我通常在沉默中吞下一粒白色的小药丸。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 不过，对喜欢咖啡因药片的人来说，咖啡因药片也有一些好处，包括价格和对环境的影响。我的咖啡因成瘾每年花费不到 50 美元，而美国工人平均每年在咖啡上花费约 1100 美元。此外，虽然我一年回收两三个塑料瓶，但咖啡行业涉及到很多废物，因为 K-Cups 和其他一次性使用的咖啡豆荚经常被 [猛烈抨击](https://www.theatlantic.com/technology/archive/2015/03/the-abominable-k-cup-coffee-pod-environment-problem/386501/) 和 [因为不可回收而禁止](https://qz.com/620447/single-use-coffee-pods-are-so-wasteful-some-cities-are-banning-them/) 。绝大多数咖啡杯仍然是 [一次性的](https://www.independent.co.uk/environment/disposable-coffee-cups-how-big-problem-environment-landfill-recycling-incinerate-export-rubbish-a8142381.html) 并且对环境有害。
 
@@ -48,7 +48,7 @@
 
 如果我们作为一个社会从原始配方 Four Loko 中学到了什么，那就是人类盲目地相信广泛传播的品牌罐头，即使它们含有本质上字面上的毒药。将咖啡因和牛磺酸 混合使用的安全性仍然是个问题，牛磺酸是能量饮料中经常大量含有的一种成分。未成年人对能量饮料的消费不是:它是坏的，然而在购买能量饮料时没有年龄限制(在这个国家)。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 没有证据表明，对于液态咖啡因和药丸形式的咖啡因消费者来说，戒烟是一种非常不同的体验，尽管每天喝一杯咖啡的无菌体验意味着没有太多例行公事，也没有糖可以错过。耐受性的形成也大致相同:咖啡因这种化学物质作为粉末并不比作为饮料更容易上瘾——为了达到同样的效果，你总是需要越来越多，不管你摄入的咖啡因是什么形式。
 
@@ -58,6 +58,6 @@
 
 咖啡因药丸的不受欢迎和咖啡的吸引力是很难反驳的。一个是作为通宵达旦的研究药物而闻名，另一个是作为成年生活的重要乐趣而闻名。虽然社会转向对咖啡因药片的偏好对环境、成本和卡路里的影响将是非常真实的，但如果你正在进行这一跳跃，请准备好这样一个事实，即你可能会独自完成这一跳跃。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 *本文最初发表于 2018 年，由伊丽莎白·段丽阳于 2020 年 3 月 12 日更新。更新包括以下内容:检查链接的准确性和更新格式，以反映当前的风格。*

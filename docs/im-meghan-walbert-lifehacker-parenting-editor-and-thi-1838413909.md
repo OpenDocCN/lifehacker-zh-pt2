@@ -10,7 +10,7 @@ T3】当前位置: Lifehacker 的育儿编辑
 **当前移动设备:** iPhone 7
 **一个词最能描述您的工作方式:**远程
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 首先，告诉我们一些你的背景，以及你是如何走到今天这一步的。
 
@@ -22,7 +22,7 @@ T3】当前位置: Lifehacker 的育儿编辑
 
 我为 Lifehacker 的育儿垂直、 [后代](https://offspring.lifehacker.com/) 写了大部分内容。我还分配和编辑自由职业者的育儿文章，并管理我们的后代脸书家长小组。( [快来加入我们的](https://www.facebook.com/groups/2018785615043946/) ！有 4000 多名成员，他们充满了想法。那组是我最近得到这个天才 [肮脏组织 hack](https://lifehacker.com/this-is-the-only-way-to-throw-away-dirty-tissues-1838249787) 的地方。)
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 带我们度过一个典型的工作日。
 
@@ -32,7 +32,7 @@ T3】当前位置: Lifehacker 的育儿编辑
 
 在投球和写作之间，我编辑和安排自由撰稿人的作品，或者向脸书小组提出问题，让讨论和想法流动起来。我通常会在下午 5 点接儿子离开长期护理中心之前，通过梳理一整天都试图忽略的电子邮件来结束一天的工作。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 你的工作空间是什么样的？
 
@@ -46,7 +46,7 @@ T3】当前位置: Lifehacker 的育儿编辑
 
 除此之外，我真的是一个喜欢纸和笔的女孩。我有一个子弹日记，记录所有的事情(我的工作截止日期，我儿子的足球日程，我的志愿者工作和其他重要的日期)。我喜欢把所有的事情都写在一个地方，这样我就可以看到我一整天是什么样子。我还在右手边放了一个记者笔记本和一叠便利贴，这样我就可以在需要的时候给自己记下小笔记。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 你最喜欢的捷径或窍门是什么？
 
@@ -58,7 +58,7 @@ T3】当前位置: Lifehacker 的育儿编辑
 
 我发现我不太可能以这种方式忘记部分格式，但它也有助于我进入主题的凹槽，特别是在中午的时候，我正在疯狂地从沉重和重要的事情切换到轻松和有趣的事情(反之亦然)。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 你在工作中犯过的最大的错误是什么，你是如何处理的？
 
@@ -72,7 +72,7 @@ T3】当前位置: Lifehacker 的育儿编辑
 
 几乎是我的子弹日记。老实说，如果那个东西消失了，在可预见的未来，我会错过所有的截止日期、会议和事件。所以如果我有事没出现，你知道为什么。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### **如何充电或休息？**
 
@@ -86,7 +86,7 @@ T3】当前位置: Lifehacker 的育儿编辑
 
 我目前正在阅读《哈利·波特》系列，，这次是和我的儿子一起。我买了这本 [华丽插画版](https://www.amazon.com/Harry-Potter-Sorcerers-Stone-Illustrated/dp/0545790352/ref=sr_1_4?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-meghan-walbert-lifehacker-parenting-editor-and-thi-1838413909&asc_source=&crid=1HGVR8L0WHCKN&keywords=harry potter and the sorcerer's stone&qid=1569356603&s=gateway&sprefix=harry potter,aps,511&sr=8-4&tag=kinjalifehackerlink-20) ，非常适合一个大人和小孩一起看。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 他九岁了，所以他肯定不再需要我给他读故事了，但是和他分享这个故事，每天晚上都有一点额外的时间在一起，真是太有趣了。在过去的几年里，他的父亲已经完成了大部分的夜间阅读，但现在我又开始全职工作了，我正在寻找方法在我们的时间表中建立更多的联系时间。
 

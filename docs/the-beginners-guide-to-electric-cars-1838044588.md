@@ -6,7 +6,7 @@
 
 但是在你使用电动汽车之前，你需要做一些决定和计划，以确保你购买的汽车符合你的驾驶需求。在你做出改变之前，有一些事情需要考虑。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### 决定是买插电式混合动力车还是全电动汽车
 
@@ -16,7 +16,7 @@
 
 另一方面，全电动汽车完全依靠电池供电，这意味着它必须定期充电。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### **计算你的成本**
 
@@ -26,7 +26,7 @@
 
 如果你安装 2 级家用充电设备，这将增加你的前期成本(一分钟后会有更多)。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 但真正的区别在于长期成本，这种成本因汽车品牌和型号等因素而有很大差异；你住的地方的燃气和电力价格；何时何地给电动车充电；维护成本；以及你开了多少车。
 
@@ -38,7 +38,7 @@
 
 如果你住在公寓里，或者不得不在街上或公共场所停车，你可能会在这方面运气不佳(除非你能说服你的房东或物业经理安装充电设备)。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 设置家庭充电非常简单。你可以将 1 级充电器直接插入标准的 120V 插座，尽管这将使你的车辆充电非常缓慢(根据 [能源部估计](https://afdc.energy.gov/files/u/publication/WPCC_L1ChargingAtTheWorkplace_0716.pdf) 每小时 2-5 英里)。
 
@@ -50,7 +50,7 @@
 
 例如，你的办公室可能会为的员工提供充电站，这样你就可以在工作日的一部分时间里让你的汽车插上电源。一些酒店、餐馆和商店为顾客提供收费。您还可以使用地图找到附近免费的公共充电站，如 [ChargePoint](https://www.chargepoint.com/) 和[PlugShare](https://www.plugshare.com/)(其中有收费和免费站的过滤器)。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 注意，公共充电站往往有时间限制(类似停车限制)。确保您检查了标牌并遵守了任何张贴的规则。
 
@@ -60,7 +60,7 @@
 
 你的车的行驶里程可能是你购买前要考虑的最大限制之一。大多数电动汽车的行驶里程不到 300 英里，这使得长途旅行变得困难，除非你能在沿途找到充电站。PHEVs 每次充电的行驶里程非常短——通常足以满足通勤或出差 — ，但在需要时会切换到燃气。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 由于加油站比充电站多得多，驾驶一辆充满电的电动汽车行驶更长的距离需要一些规划。谷歌地图 [向你显示附近的车站](https://lifehacker.com/how-to-find-ev-charging-stations-using-google-maps-1829884348) ，如果你搜索“电动汽车充电”或“电动汽车充电站”，会显示哪种设备可用 [像 ChargeHub](https://lifehacker.com/chargehub-finds-charging-stations-for-your-electric-veh-1743937351) 和 [PlugShare](https://www.plugshare.com/) 这样的应用也提供类似的地图功能。
 
@@ -68,7 +68,7 @@
 
 一个可能的解决办法是:如果你不经常开车，在你的电动汽车行驶里程之外的地方租一辆车。或者选择一辆 PHEV，它可以在长途旅行中换成汽油。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ## 使用正确的充电设备
 
@@ -78,7 +78,7 @@
 
 你的汽车规格应该概述你的电动汽车可以使用哪些连接器和充电系统(或者你会在拥有汽车的第一天就知道)。可能不是你遇到的每个充电站都有快速充电选项，但你应该能够连接到任何带或不带 J1772 适配器的 2 级充电器。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ## 维护您的车辆
 
@@ -90,7 +90,7 @@
 
 *根据您的具体服务需求，您的社区机械师可能不适合这项工作(例如，如果需要专业工具)。在这种情况下，你可能需要找到一家为你的电动车型工作的经销商。*
 
-*<label class="bxm4mm-13 juykRM">Advertisement</label>*
+**
 
 ## *为极端温度做好准备*
 
@@ -100,7 +100,7 @@
 
 *对于 PHEV 来说，热量依赖于燃气发动机。如果你想继续用电池供电，打开你的加热座椅，直到你受不了寒冷，需要释放热量。*
 
-*<label class="bxm4mm-13 juykRM">Advertisement</label>*
+**
 
 ## *别忘了关掉你的车*
 

@@ -9,7 +9,7 @@ T3】当前演出:【Lifehacker 的创意制作人
 **当前电脑:** iMac
 **当前移动设备:** iPhone
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 首先，告诉我们一些你的背景，以及你是如何走到今天这一步的。
 
@@ -23,7 +23,7 @@ T3】当前演出:【Lifehacker 的创意制作人
 
 如果没有铅笔和纸，我会很难过的。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 你的工作空间是什么样的？
 
@@ -33,7 +33,7 @@ T3】当前演出:【Lifehacker 的创意制作人
 
 当我吃三明治的时候，我有一个切蔬菜的好方法。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 帮助你完成工作的人是谁，你如何依赖他们？
 
@@ -49,7 +49,7 @@ LH 的每个人都很棒，但我与乔尔和阿布的合作最密切！我们�
 
 我一直在制作一部音乐录影带，希望能尽快完成！许多停止运动和 spfx。当我有精力的时候，从事如此有创意的工作是非常令人满意的！
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 你目前在读什么，或者有什么推荐？
 
@@ -63,7 +63,7 @@ LH 的每个人都很棒，但我与乔尔和阿布的合作最密切！我们�
 
 聪明地工作，而不是努力。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 你仍在努力解决的问题是什么？
 

@@ -6,7 +6,7 @@
 
 那么，这些大代言到底有什么关系呢？或许，在推特和脸书出现之前，政客们希望一个支持可能会影响你和其他选民的想法，让他们更认真地考虑那个候选人；至少，放弃南希·佩洛西或黛安娜·范斯坦这样的大牌明星作为代言人是一个非常好的公关策略。(也不仅仅是现任和前任官员祝福候选人；非营利组织、政治行动委员会和名人将自由支持候选人——还记得奥普拉在 2008 年选举中支持奥巴马吗？)
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 正如 [五卅八](https://fivethirtyeight.com/features/were-tracking-2020-presidential-endorsements-heres-why-they-probably-still-matter/) 指出的，虽然支持不一定影响谁获得提名或赢得选举，但这通常是一个很好的预测——支持的领先者*往往*赢得选票。(领跑者不仅仅是由代言人数量决定的，还有名字本身。)因此，下面你会发现一份名单，列出了迄今为止国会中每一位民主党议员以及那些支持 2020 年竞选候选人的人。
 
@@ -14,7 +14,7 @@
 
 到目前为止我们学到了什么？嗯，政治家倾向于忠于各自州的候选人，实际的支持人数并不总是他们投票情况的指标，很可能我们会在未来几个月(甚至几天)看到更多的支持声明。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### 艾米·克洛布查尔
 
@@ -39,7 +39,7 @@
 
 总数 : 7 人(1 名参议员，6 名众议员；**五个**州外背书整体)
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### **科里·布克**
 
@@ -77,7 +77,7 @@
 
 总计: 10 名(1 名参议员，9 名众议员；**四个**州外代言整体)
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### 乔·拜登
 
@@ -114,7 +114,7 @@
 
 总计: 2 名(两名众议院议员；**一**外州签注)
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### 朱利×恩·卡斯楚
 
@@ -145,7 +145,7 @@
 
 总计: 16 (16 名众议院议员； **10** 州外签注整体)
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### **皮特·巴托吉**
 
@@ -159,7 +159,7 @@
 
 **合计** : 1(参议员一名；**零**州外签注总数)
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### 不清楚或未决定
 
@@ -284,7 +284,7 @@
 
 </section>
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 *   伊利诺伊州众议员 Jesus Garcia:2016 年支持 [桑德斯](https://www.chicagobusiness.com/greg-hinz-politics/chuy-garcia-isnt-ready-commit-sanders) ，但尚未支持候选人。
 *   伊利诺伊州众议员劳伦·安德伍德
@@ -410,7 +410,7 @@
 
 </section>
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 *   宾夕法尼亚州众议员玛丽·盖伊·斯坎伦
 
@@ -463,6 +463,6 @@
 
 本报道于 2019 年 10 月 27 日更新，以反映密歇根州众议员 Rashida Tlaib 宣布支持桑德斯和加利福尼亚州众议员 Katie Porter 支持沃伦。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 这篇报道于 2019 年 11 月 6 日更新，以反映奥鲁克退出竞选以及马萨诸塞州众议员 Ayanna Pressley 宣布支持沃伦。

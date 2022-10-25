@@ -6,7 +6,7 @@
 
 几个月前，我开始回答是否有可能避开科技巨头的问题。在五周的时间里，我一次一个地屏蔽了 [【亚马逊】](https://gizmodo.com/i-tried-to-block-amazon-from-my-life-it-was-impossible-1830565336#_ga=2.52350880.882275658.1548823260-1494158073.1547676718)[【脸书】](https://gizmodo.com/i-cut-facebook-out-of-my-life-surprisingly-i-missed-i-1830565456)[【谷歌】](https://gizmodo.com/i-cut-google-out-of-my-life-it-screwed-up-everything-1830565500#_ga=2.109788613.1339556351.1549309045-1494158073.1547676718)[微软](https://gizmodo.com/i-cut-microsoft-out-of-my-life-or-so-i-thought-1830863898)[苹果](https://gizmodo.com/i-cut-apple-out-of-my-life-it-was-devastating-1831063868) ，以了解在没有它们的情况下，如何在现代生活。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 为了结束我的实验，我要看看我是否能同时挡住五个。
 
@@ -14,7 +14,7 @@
 
 我使用一台名为 Purism 的公司生产的 Linux 笔记本电脑和一部诺基亚功能手机，在这部手机上，我正在重新学习已经失传的[【T9】发短信](https://en.wikipedia.org/wiki/T9_(predictive_text)) 。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 我不认为我能做到这一点。我需要在准备阶段戒掉各种服务，就像一个酒鬼经历 12 个步骤一样。科技巨头虽然在数据积累、权力和社会控制方面存在问题，但他们确实提供了让我们的生活轻松得多的服务。
 
@@ -24,7 +24,7 @@
 
 这周，我打了很多电话，因为在诺基亚的数字键盘上发短信实在是太烦人了。我发现人们经常出于关心而在电话铃一响就接电话；他们不习惯接到我的电话。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 在街区的第一天，我安静地开车去上班，因为我租的福特 Fusion 的“SYNC”娱乐系统是由微软驱动的。背景噪音总的来说在本周消失了，因为 YouTube、Apple Music 和我们的 Echo 都被禁了——网飞、Spotify 和 Hulu、也是如此，因为它们依靠 AWS 和谷歌云向用户提供内容。
 
@@ -32,7 +32,7 @@
 
 作为实验的结果，许多事情都变得更具挑战性，比如当我录制对播客 *Reply All* 的 Alex Goldman 的采访时，谈到了脸书及其隐私问题。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 我住在加州，亚历克斯在纽约；我们通常会使用 Skype，但那是微软的，所以而不是我们通过电话交谈，我用手持变焦录音机记录我的结束。这很好，但当要把 386 MB 的音频文件发送给 Alex 时，我意识到我不知道如何通过互联网发送一个巨大的文件。
 
@@ -42,7 +42,7 @@
 
 奥布莱恩首先指引我去找 Send.Firefox.com 的一个加密文件共享服务，由 Mozilla 运营。但是...它使用谷歌云，所以它不会加载。然后，奥布莱恩把我送到 Share.Riseup.net 的，这是一个文件共享服务，来自同一个激进的技术集体，托管着我的个人电子邮件，但它只对不超过 50 MB 的文件有效。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 奥布莱恩的最后一个建议是 [Onionshare](https://micahflee.com/2018/02/onionshare-has-some-exciting-new-features/#more-1056) ，这是一个通过“黑暗网络”私下分享文件的工具，也就是说，的那部分网络没有被谷歌抓取，需要 Tor 浏览器才能到达。实际上我知道这个。我的朋友米卡·李，一位拦截者的技术专家， [把它做成](https://www.wired.com/2014/05/onionshare/) 。不幸的是，当我去[Onionshare.org](https://onionshare.org/)下载时，网站无法加载。
 
@@ -52,7 +52,7 @@
 
 Micah 建议我从 Github 下载，但那是微软的。谢天谢地，O'Brien 告诉我，我可以在我的 Linux 计算机上通过命令行直接从 Micah 的服务器下载 Onionshare 程序。他必须一步一步地教我，但这很有效。我可以运行 Onionshare，把我的文件放进去，创建一个临时的 onion 站点；我将现场的 URL 发送给 Alex，以便他可以通过 Tor 浏览器下载。一旦他下载了，我告诉 Onionshare“停止共享”，这将关闭 onion 网站，从网上删除文件。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 (最后，亚历克斯甚至没有用我的音频来回复所有人的年终大结局。叹气。)
 
@@ -62,13 +62,13 @@ Micah 建议我从 Github 下载，但那是微软的。谢天谢地，O'Brien �
 
 有些奇怪的事情是令人愉快的:我发现我的诺基亚手机可以播放收音机，所以当我去跑步时，我会听 NPR，而不是我通常去的地方:Spotify、播客或有声读物。我正在计划的南非之旅，并在与旅行社的迷人交谈中结束，我不得不寻求帮助；通过旅行社预订成本更高，效率更低，但这是唯一的选择，因为旅游预订网站对我不起作用。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 有些不愉快的是我的诺基亚 3310 的摄像头；它拍的照片很糟糕，很暗。我有一台旧的佳能傻瓜数码相机，但是我发现这个星期我没有拍很多照片——因为没有脸书和 Instagram，我没有地方分享它们。
 
 有时候我就是找不到数码替代品。Venmo 没有智能手机就无法工作，所以我用现金支付我们的保姆。我开始使用实体日历来记录我的日程。说到出行， [大理石地图](https://marble.kde.org/) 是一个选项，但我对界面感到困惑，所以我坚持去我知道的地方，并购买实体地图作为备份。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 “有意思的是，诺基亚曾经用 Navtech 进行惊人的导航，”一天，当我谈到没有地图应用的驾驶有多困难时，一位技术专家对我说，“但后来他们把自己卖给了微软。”
 
@@ -78,7 +78,7 @@ Micah 建议我从 Github 下载，但那是微软的。谢天谢地，O'Brien �
 
 我的诺基亚 3310 不是一个科技巨头的手机，但它肯定是科技巨头相邻。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 为了找出 HMD Global 仍在销售静音手机的原因，我打电话给其驻香港的首席产品官 Juho Sarvikas。Sarvikas 告诉我，该公司认为“经典”手机的核心市场将在亚洲和非洲，那里智能手机不太普及，但他表示，这些设备在美国的表现出人意料地好。
 
@@ -88,7 +88,7 @@ Micah 建议我从 Github 下载，但那是微软的。谢天谢地，O'Brien �
 
 他笑着说，“我以前从来没有这样说过，但是是的。”
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 我原以为这些手机是为那些希望自己的孩子拥有没有社交媒体和应用程序的手机的父母准备的。
 
@@ -98,7 +98,7 @@ Micah 建议我从 Github 下载，但那是微软的。谢天谢地，O'Brien �
 
 许多和我谈论这个实验的人把它比作数字素食主义。 [数字素食者](https://observer.com/2011/06/what-is-digital-veganism-cody-brown-explains-his-catchphrase/) 拒绝某些技术服务，认为不道德；他们对自己使用的产品以及消费和分享的数据有所歧视，因为信息就是力量，越来越多的公司似乎拥有一切。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 当我遇到这种生活方式的全职实践者、美国公民自由联盟的技术专家丹尼尔·卡恩·吉尔莫时，我并不完全惊讶地发现他是一个真正的素食主义者。我对他避开科技巨头的程度感到惊讶:他没有手机，更喜欢用现金购物。
 
@@ -106,7 +106,7 @@ Micah 建议我从 Github 下载，但那是微软的。谢天谢地，O'Brien �
 
 吉尔默有自己的邮箱，并避免使用大多数社交媒体网络(他为 Github 和 Sourceforge、做了例外，因为他是一名开源开发者，希望与他人分享他的代码)。他把加入社交网络称为引诱其他人进入“监视陷阱”的“诱饵”。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 吉尔默认为，如果人们不被日益控制信息流的公司挖掘数据和货币化，他们的生活会更好。
 
@@ -116,7 +116,7 @@ Micah 建议我从 Github 下载，但那是微软的。谢天谢地，O'Brien �
 
 吉尔默教授数字卫生课程，他试图让人们考虑他们的隐私和安全。他通常以询问人们是否知道他们的手机何时与手机信号塔通信开始上课。“大多数人说，‘当我使用它的时候’，但答案是，‘任何时候都可以开机，’”他说。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 他希望人们在为其他人创建数据踪迹时也考虑自己的数据踪迹，例如当一个人 [将自己的联系人上传到技术服务](https://gizmodo.com/how-facebook-figures-out-everyone-youve-ever-met-1819822691)——与服务分享那些联系人可能不想让分享的信息。
 
@@ -126,7 +126,7 @@ Micah 建议我从 Github 下载，但那是微软的。谢天谢地，O'Brien �
 
 吉尔默希望立法者介入，但他也认为这可以从技术上解决，通过推动像电话号码和电子邮件一样的互操作系统。你可以打电话给任何人；你不需要和他们用同一个手机运营商。如果你愿意，你可以把你的电话号码带到不同的运营商(感谢 [立法者干预](https://www.fcc.gov/consumers/guides/porting-keeping-your-phone-number-when-you-change-providers) )。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 当公司不能将我们锁定在专有生态系统中时，我们有更多的自由。但这意味着脸书将不得不让 Pinterest 用户对其网站上的活动进行回复。苹果需要让你和安卓用户进行面对面交流。
 
@@ -138,7 +138,7 @@ Micah 建议我从 Github 下载，但那是微软的。谢天谢地，O'Brien �
 
 我的朋友凯蒂从纽约来了。我们计划有一天晚上在我家附近的一家餐馆共进晚餐，这是我的物理日历上标记的事件。在我们见面的那天早上，我收到了她发给我的 Riseup 账户的一封电子邮件，主题是“发生了什么”
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 几天来，凯蒂一直通过 Signal 给我发信息，但我没有收到，因为 Signal 是由 AWS 托管的。当她没有收到我的消息时，她给 Gmail 发了一封“你收到我的短信了吗”的邮件，并收到了我的留言，让她转到我的 Riseup 账户。
 
@@ -146,7 +146,7 @@ Micah 建议我从 Github 下载，但那是微软的。谢天谢地，O'Brien �
 
 一天，我问我的丈夫特雷弗，他拒绝和我一起做这个街区，因为他有“一份真正的工作”，对他来说，我的实验最困难的部分是什么。“我永远不知道你是否会回复我的短信，”他说。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 “什么意思？”我问。“我没有回应什么？
 
@@ -158,7 +158,7 @@ Micah 建议我从 Github 下载，但那是微软的。谢天谢地，O'Brien �
 
 一位常春藤联盟的教授告诉我，他经常使用谷歌拦截器。“我纳税时不得不禁用它，因为国税局网站上有谷歌分析，”他说。“这有点可怕。”
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 35 岁以下的人对没有智能手机的生活充满好奇(有时甚至嫉妒)；35 岁以上的人似乎很怀旧。
 
@@ -168,7 +168,7 @@ Micah 建议我从 Github 下载，但那是微软的。谢天谢地，O'Brien �
 
 这个星期，我完全不看电视了，因为我们没有有线电视，网络电视也不是一个选择。我并不想让这个实验成为“对所有技术的拒绝”——但它还是发生了，尽管这是我的本意。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 我对我的手机感到非常沮丧。我很想使用科技巨头的免费智能手机，但它们还没有真正上市。如果你想要一个，你需要精通技术，并在特殊的手机型号 上安装定制的操作系统 [。随着](https://devices.ubuntu-touch.io/) [Eelo](https://e.foundation/e-solutions/) 和 [Purism](https://puri.sm/products/librem-5/) 的商业产品的出现，这种情况有望很快改变。
 
@@ -176,7 +176,7 @@ Micah 建议我从 Github 下载，但那是微软的。谢天谢地，O'Brien �
 
 我认识的一位作家在《纽约时报》上写了一篇专栏文章*:*[讨厌亚马逊？试试没有它的生活](https://www.nytimes.com/2018/12/08/opinion/sunday/hate-amazon-try-living-without-it.html) ”(她其实也不是没有过。)一名美国消费者新闻与商业频道理工大学的记者透露，她放弃了 [脸书和 Instagram 三个月](https://www.cnbc.com/2018/12/01/social-media-detox-christina-farr-quits-instagram-facebook.html) ，这“让她开心多了”一名哥伦比亚广播公司记者试图退出谷歌，但失败了。一个副编剧给 [所有巨头一个月](https://motherboard.vice.com/en_us/article/ev3qw7/how-to-quit-apple-microsoft-google-facebook-amazon) (但没有我这么严谨)。《纽约时报》[写道，应用程序以惊人的规律性和粒度追踪人们的位置](https://www.nytimes.com/interactive/2018/12/10/business/location-data-privacy-apps.html) 。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 科技巨头为我们的数据交易奠定了所有的基础设施。他们让我们将我们的信息放入公共档案，在口袋里携带跟踪设备，并将应用程序下载到那些秘密窃取数据的跟踪设备上。
 
@@ -186,7 +186,7 @@ Micah 建议我从 Github 下载，但那是微软的。谢天谢地，O'Brien �
 
 这个世界是有缺陷的，不管公平与否，科技巨头正越来越多地受到指责。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 哈佛商学院教授肖莎娜·祖博夫(Shoshana Zuboff)在一本关于“监控资本主义”的新书中提出，为了利润而对我们的数据进行极端挖掘和操纵，正在成为我们经济驱动力的一个不可避免的全景监狱。
 
@@ -198,7 +198,7 @@ Zuboff 的公关人员给了我一本电子书，我真的很喜欢它，但我�
 
 关于政府在这方面能做些什么的想法，我打电话给开放市场研究所的 Lina Khan，她写了一篇轰动一时的论文，论述了监管亚马逊垄断力量的必要性。(至少以学术标准来看是一鸣惊人。)
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 可汗目前在纽约哥伦比亚大学从事学术研究，在那里她正在撰写更多的论文。可汗没有 Prime 账户，也不使用 Gmail。就在我给她打电话之前，我看到了一条的推文，发自 [华盛顿邮报](https://www.washingtonpost.com/lifestyle/2018/12/12/dear-tech-companies-i-dont-want-see-pregnancy-ads-after-my-child-was-stillborn/?utm_term=.5c61bb651d62) 的一名视频制作人，她在生完死胎后受到了婴儿广告的狂轰滥炸。
 
@@ -206,7 +206,7 @@ Zuboff 的公关人员给了我一本电子书，我真的很喜欢它，但我�
 
 我在电话开始时向 Khan 讲述了这个故事，并说这种类型的愤怒似乎在增加。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 “科技公司自己的行动正在促使潮流转向。这是一次迟来的清算，但它似乎仍然是一次清算。在大多数用户意识到他们的数据有价值之前，公司就开始利用用户数据赚钱，更不用说由私人行为者收集了。如果用户被告知访问的代价是近乎全面的监控，他们会同意吗？公司会被迫提供不同的商业模式吗？"
 
@@ -214,7 +214,7 @@ Zuboff 的公关人员给了我一本电子书，我真的很喜欢它，但我�
 
 “一些大型科技公司已经收购了竞争对手，并通过掠夺性行为抑制了竞争对手，”她说，这个话题最近随着脸书电子邮件 [的曝光而成为新闻，其中首席执行官马克·扎克伯格谈到了切断](https://www.theverge.com/2018/12/5/18127202/mark-zuckerberg-facebook-vine-friends-api-block-parliament-documents) 当时病毒式视频服务 Vine 对脸书社交图的访问。“他们从事的业务在几十年前被广泛认为是垄断性的。我们需要司法部、美国联邦贸易委员会或州检察长的调查。”
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 欧洲的情况就是如此，其监管机构 [对谷歌](https://www.reuters.com/article/us-eu-alphabet-inc-antitrust/google-challenges-record-5-billion-eu-antitrust-fine-idUSKCN1MJ2CA) 和 [进行罚款，称](https://techcrunch.com/2019/02/07/german-antitrust-office-limits-facebooks-data-gathering/) 脸书不能在未经用户同意的情况下，合并来自脸书、WhatsApp 和 Instagram 的用户数据 [。但美国的反垄断监管机构对这些公司敬而远之，因为它们的服务便宜或免费，所以它们被视为亲消费者的，这最终是监管机构想要鼓励的。但是，当“消费者”就是公司所卖的东西时，这怎么可能呢？](https://www.nytimes.com/2019/01/25/technology/facebook-instagram-whatsapp-messenger.html) 
 
@@ -224,7 +224,7 @@ Zuboff 的公关人员给了我一本电子书，我真的很喜欢它，但我�
 
 然而，我很清楚，并不是每个人都有 50 美元来购买他们可以轻易“免费”获得的东西，所以如果事情是这样的话，富人将在网上拥有隐私，穷人(也是最脆弱的)将被利用他们的数据。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 * * *
 
@@ -236,7 +236,7 @@ Zuboff 的公关人员给了我一本电子书，我真的很喜欢它，但我�
 
 “我要把我的座位换到飞机的另一个位置，”特雷弗开玩笑地警告道。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 特雷弗给 iPad 充电，以防我意志动摇。但我会坚强地抓住 T1。我们和 Ellev 一起读书，在磁性画板上涂鸦，唱歌，玩至少一个小时她阿拉斯加航空公司零食包里的粘粘的，有弹性的“Wizzle sticks”。她在飞行的最后一个半小时睡觉，如果有 iPad 的话，她通常不会这么做。
 
@@ -244,7 +244,7 @@ Zuboff 的公关人员给了我一本电子书，我真的很喜欢它，但我�
 
 我们去了布鲁克林的 Airbnb，这是我在实验前几个月预订的。(技术上应该禁止，因为 Airbnb 是 AWS 托管的。)公寓楼外面有个锁箱，我用四位数的密码打开。里面有一把钥匙，可以让我们进入大楼，同样的四位数密码可以打开公寓门上的数字锁。我在一张纸上写下了地址和代码，知道我将无法访问 Airbnb 网站。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 我们顺利进入。我们饿了，所以去一家我们坐出租车路过的餐馆。之后，我们需要食品杂货，但 Ellev 快崩溃了，所以我去了 Airbnb，而 Trevor 去购物了。我拿着钥匙进了大楼，但是当我和 Ellev 爬了四层楼梯到公寓时，我意识到我没有那张写着门密码的纸——我也不记得密码了。
 
@@ -254,7 +254,7 @@ Ellev 哭着试着转动门把手。我开始感受到早年那种绝望的恐�
 
 我大脑中的一个受虐狂部分提醒我，我陷入这种混乱是因为我使用了 AWS 托管的一个网站。我可以通过电话预订一个普通的酒店房间，然后我就可以在这个时候拿到一张新的钥匙卡。技术创造技术解决的问题，反之亦然。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 在安慰 Ellev 的同时，我根据我对四个数字的模糊记忆，尝试了锁的一系列不同组合。其中一个有效。我一进去，就把我的 iPhone 插到充电器上，放心第二天我会继续使用它。
 
@@ -264,7 +264,7 @@ Ellev 哭着试着转动门把手。我开始感受到早年那种绝望的恐�
 
 这些公司是不可避免的，因为它们控制着互联网基础设施、在线商务和信息流。他们中的许多人专门在网上跟踪你，不管你是否使用他们的产品。这些公司开始销售书籍，提供搜索结果，或展示大学帅哥，但他们已经扩大了规模，现在几乎触及了所有的在线互动。这些公司看起来很像现代垄断企业。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 自从实验结束后，我又开始使用科技巨头的服务，但我用得更少了。作为一名消费者，我故意寻找替代方案，尽我所能，而不是帮助他们垄断市场。
 
@@ -272,7 +272,7 @@ Ellev 哭着试着转动门把手。我开始感受到早年那种绝望的恐�
 
 我删除了浪费时间的应用程序，比如 Words With Friends 和 a Hearts 应用程序。我看 Instagram 的次数减少了，以至于我看到朋友们在他们的故事中给我加了标签，但看不到这些故事，因为它们已经达到了 24 小时的有效期。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 我每天晚上 9 点左右关机，直到第二天真的需要时才开机。我花了两周时间使用我的“尼古丁贴片”智能手机，但我最终失去了用床头柜上的智能手机开始新一天的冲动。
 
@@ -282,7 +282,7 @@ Ellev 哭着试着转动门把手。我开始感受到早年那种绝望的恐�
 
 我问特雷弗，自从实验以来，他是否注意到我有什么不同。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 “你再也不知道现在是什么时候了，”他开玩笑说，但这是真的。我很少看手机，身边也很少有时钟，个人设备显然已经让它们过时了。我更多的是在此刻，但对实际的小时和分钟却不太清楚。
 
@@ -294,7 +294,7 @@ Ellev 哭着试着转动门把手。我开始感受到早年那种绝望的恐�
 
 [再见五大](https://gizmodo.com/c/goodbye-big-five) 系列由:
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 记者:克什米尔希尔(和她的家人)
 
@@ -304,7 +304,7 @@ Ellev 哭着试着转动门把手。我开始感受到早年那种绝望的恐�
 
 视频团队:丹妮尔·斯坦伯格、本·雷宁加、圣地亚哥·加西亚
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 艺术团队:吉姆·库克，泰蕾兹·麦克弗森
 

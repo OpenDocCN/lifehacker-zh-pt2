@@ -10,7 +10,7 @@
 T3】当前移动设备: iPhone XS
 **一个最能形容你工作方式的词:**多任务
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 首先，告诉我们一些你的背景，以及你是如何走到今天这一步的。
 
@@ -20,7 +20,7 @@ T3】当前移动设备: iPhone XS
 
 我生来就是一个连续创业者，本质上是一个非常有创造力的人，所以在出售 NYX 后不久，我创办了一家太阳镜公司，名为 [Thomas James LA](https://www.thomasjamesla.com) ，该公司以每副仅 19 美元的实惠价格提供令人惊叹的质量、流行的太阳镜。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 将你的企业从一个女人的公司发展成一个大品牌的关键步骤是什么？
 
@@ -32,7 +32,7 @@ T3】当前移动设备: iPhone XS
 
 当我开始做太阳镜生意时，我做得太大了。我雇了太多的人，买了太大的软件程序，在发布会上花了太多的钱，等等。关键词是“太多了。”我花了大约六个月的时间才意识到我们走错了路，我很快采取了行动，开始缩减我的员工，并开始转向更小、更易于管理的软件程序。我必须迅速做出决定并采取行动。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 自从你开始工作以来，美容行业发生了什么变化？
 
@@ -48,7 +48,7 @@ T3】当前移动设备: iPhone XS
 
 早上一睁开眼睛，我的工作日就开始了，因为我从亚洲购买商品。我有来自供应商的电子邮件，需要在早上跟进，因为我喜欢在 12 小时内回复，所以我不会浪费一整天的时间来来回回处理电子邮件。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 之后，我做好准备，走进办公室。一到办公室，我就和我的员工一起检查他们当天未完成的项目，然后我通常会花一些时间坐在办公桌前查看更多的电子邮件、计划、日程安排等。
 
@@ -60,7 +60,7 @@ T3】当前移动设备: iPhone XS
 
 我不能没有笔记本和笔。一个真正的纸质笔记本和一支超细钢笔是必须的！我还是喜欢把事情写下来。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 你的工作空间是什么样的？
 
@@ -74,7 +74,7 @@ T3】当前移动设备: iPhone XS
 
 我们公司开会不多，因为我觉得开太多会适得其反。此外，我对每个人都有开放的政策，包括我自己。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 你如何记录你必须做的事情？
 
@@ -92,7 +92,7 @@ T3】当前移动设备: iPhone XS
 
 我刚刚读完泰拉·威斯多佛的《受教育的》[](https://www.amazon.com/Educated-Memoir-Tara-Westover/dp/0399590501?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-nyx-cosmetics-founder-toni-ko-and-this-is-how-i-wor-1837846411&asc_source=&tag=kinjalifehackerlink-20)*,太神奇了。我现在正在读布拉德利·霍普和汤姆·怀特的《十亿巨鲸》[](https://www.amazon.com/Billion-Dollar-Whale-fooled-Hollywood/dp/1912854546/ref=tmm_pap_swatch_0?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-nyx-cosmetics-founder-toni-ko-and-this-is-how-i-wor-1837846411&asc_source=&qid=&sr=&tag=kinjalifehackerlink-20)*，超级有趣。然而，如果有一本书我会推荐所有企业家阅读，那就是吉姆·C·柯林斯的《从优秀到卓越》。**
 
-**<label class="bxm4mm-13 juykRM">Advertisement</label>**
+****
 
 #### **你还希望谁来回答这些问题？**
 

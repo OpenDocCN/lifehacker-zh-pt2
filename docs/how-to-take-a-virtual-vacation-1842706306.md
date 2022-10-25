@@ -6,7 +6,7 @@
 
 但这并不意味着逃避是不可能的:我们只需要拥抱虚拟体验。就像我们阅读书籍或狂看网飞系列来逃离这个世界一样，我们也可以通过一次小小的家庭旅行来暂时忘却它。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ## 设置场景
 
@@ -17,7 +17,7 @@
 *   如果你想搭建一个 [露营式场景](https://lifehacker.com/make-a-cheap-and-portable-camping-stove-from-shelving-b-1791445151) ，点上一些蜡烛或者壁炉。打开灯，为这个节省一点电费。
 *   不要忘记气味！如果你正在参观一个虚拟游乐园，试着重现这个 [漏斗蛋糕食谱](https://lifehacker.com/spaghetti-squash-makes-a-surprisingly-tasty-funnel-cake-1787682954) 。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ## 去哪里旅游
 
@@ -33,7 +33,7 @@
 
 在不到六分钟的时间里，这个 360 度的虚拟体验将带你深入帕劳的水域。清澈的海水、摇曳的珊瑚和充满活力的鱼群只是这个视频的一小部分——你还可以了解珊瑚在应对气候变化中扮演的角色。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### 
 
@@ -49,7 +49,7 @@ T3】
 
 这个 7 分钟的 360 度视频让你探索塞伦盖蒂平原，感受所有的刺激，没有任何安全顾虑，与角马、大猩猩，甚至一只友好的疣猪近距离接触。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### [阿拉斯加的基奈峡湾国家公园](https://artsandculture.withgoogle.com/en-us/national-parks-service/kenai-fjords/exit-glacier-tour)
 
@@ -65,7 +65,7 @@ T3】
 
 这次导游让你真正感受到东南亚最受欢迎的旅游目的地之一，那里有令人难以置信的建筑、寺庙、和金佛。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### [意大利米兰](https://www.youtube.com/watch?v=TsKPeH4oyhI)T3】
 
@@ -77,7 +77,7 @@ T3】
 
 但是，即使我们不会很快去音乐节，我们仍然可以看看百老汇的戏剧和舞蹈，由专业的 DJ 来混音。或者欣赏乡村音乐表演，如果你喜欢的话。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 以下是一些你可以在家旅行观看的表演:
 

@@ -6,7 +6,7 @@
 
 这一切都是从 Sur La Table 的一次销售开始的，我通常不会参加这种场面，但社会隔离可能会导致人们进入互联网的黑暗角落。(我想我们都同意，所有昂贵的厨房电器商店都有一些邪恶的东西。)无论如何，一件事接一件事，在我知道之前，我的购物车里有了一个 [凯膳怡绞肉机附件](https://www.surlatable.com/kitchenaid-metal-food-grinder-attachment/3984101.html?mrkgadid=1&mrkgen=gpla&mrkgbflag=0&mrkgcat=cat&acctid=21700000001683301&dskeywordid=92700052592109207&lid=92700052592109207&ds_s_kwgid=58700005772685172&ds_s_inventory_feed_id=97700000008343482&dsproductgroupid=296079404282&product_id=3984101&merchid=5755698&prodctry=US&prodlang=en&channel=local&storeid=%7Bproduct_store_id%7D&device=c&network=g&matchtype=&locationid=%7Bloc_phyiscal_ms%7D&creative=190769995565&targetid=pla-296079404282&campaignid=803390144&adgroupid=41052747309&&affsrcid=AFF0005&utm_source=google&utm_medium=cpc&utm_term=&utm_campaign=803390144&creative=190769995565&device=c&matchtype=&gclid=EAIaIQobChMI9OvX-NKd6gIVjx-tBh0CAA22EAQYAyABEgKcd_D_BwE&gclsrc=aw.ds) (还有一个模仿卷心菜的马克杯)。我买了它，那天晚上做了一个香肠的梦。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 从那以后，我花了很多闲暇时间来完善我的早餐香肠食谱。我原本不打算写这个——这是写给我自己的，该死的——但是我太骄傲了，不会把它藏在心里。事实证明，一旦你有了绞肉机，早餐香肠就非常容易制作，而且味道非常棒。所付出的一点劳动是非常值得的。
 
@@ -20,7 +20,7 @@
 
 脂肪是香肠的重要组成部分，热量是脂肪的大敌。如果你的绞肉机是热的，肉中的脂肪就会融化，这将在你的香肠中造成一种凌乱的涂抹效果，导致蹩脚的研磨。因为研磨本身会产生热量，所以在研磨之前，将所有东西——研磨机的所有金属部件和肉——完全冷却是很重要的。只需将你的部分放入冰箱中半小时，然后直接从冰箱中加入你的肉，你就可以磨碎了。(如果你能舒服地拿着你的绞肉机，说明还不够冷。)
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### 干香草是非常好的
 
@@ -34,7 +34,7 @@
 
 除了测量操作，时间也是一个变量，你可以用它来控制早餐香肠的质地和味道。一旦你的香料和调味料混合在一起，你会想把它们和一些切丁的猪肩肉混合在一起，让它们在冰箱里放至少半个小时。你让它冷却的时间越长，你就会失去越多的水分。这不一定是件坏事:我让一批这样的干盐水放了大约 12 个小时，结果是一根非常美味、有牙齿的香肠，带有强烈的肉味。我让另一批——含有完全相同比例的完全相同的调味料——静置约 45 分钟，那批更温和、更嫩、味道更“新鲜”。两者都很好，尽管我认为 12 小时香肠更适合像 [饼干和肉汁](https://lifehacker.com/this-three-ingredient-sausage-gravy-will-improve-your-c-1831176919) 这样的东西，在那里你会冒着用奶油和面粉抑制味道的风险。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### 把一切都写下来
 
@@ -55,6 +55,6 @@
 
 **方向:**
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 将猪肩肉切成 1 英寸的方块，放入一个大碗中。在一个小碗中混合调味料，然后将混合物加入猪肉，搅拌均匀。盖上盖子，放在冰箱里至少半个小时，或者 12 个小时，这取决于你想让你的香肠更有侵略性和肉味。在你想磨碎它的半个小时前，把你的绞肉机附件的所有金属片(或者整个绞肉机，取决于型号和品牌)放在冰箱里。根据制造商的说明研磨，要么立即烹饪，要么在冰箱里储存最多五天。

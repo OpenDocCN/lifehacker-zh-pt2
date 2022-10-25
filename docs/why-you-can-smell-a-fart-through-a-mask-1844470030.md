@@ -6,7 +6,7 @@
 
 布口罩的作用 [是阻挡含有冠状病毒](https://lifehacker.com/how-masks-protect-us-from-the-coronavirus-1844220877) 的飞沫。它最有效地阻挡了来自你自己的嘴和鼻子的大飞沫(这样你就不会有感染他人的风险)，但它也可能对其他人产生的飞沫提供一些保护。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 *关于戴口罩的更多信息，请看下面的视频:*
 
@@ -14,7 +14,7 @@
 
 掩模上的孔不一定都是相同的尺寸，还有其他因素会影响颗粒大小。(例如，多层织物会比一层织物保护得更好。)因此，更重要的问题不是口罩上的孔有多大，而是口罩过滤各种大小颗粒的能力有多强。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 最近的一份关于布口罩的论文 对此进行了测试，发现各种织物可以阻挡 5%到 80%的小于 300 纳米的颗粒。对于较大的颗粒——大于 300 纳米——一些织物比其他织物效果更好，阻挡了 5%到 95%的颗粒。
 
@@ -26,7 +26,7 @@
 
 结果是，你能闻到一个屁穿过裤子和内裤后的味道。也可以通过口罩闻出来。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### 病毒有多大？
 
@@ -38,7 +38,7 @@
 
 喷嚏产生的液滴大约有 10 万纳米。咳嗽产生的水滴更小，大约 1000 纳米。(我从这篇综述论文中得到我的编号， [新型冠状病毒(新冠肺炎)由编号](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7224694/) ，它将回答你关于冠状病毒的许多数字问题。)
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 那么 [气雾剂](https://lifehacker.com/what-would-it-mean-if-the-coronavirus-is-airborne-1844281525) 呢？“气溶胶”和“空气传播”的定义有些争议，所以我们只能说我们担心的是小液滴，它们被认为是 5000 纳米以下的液滴。一个好的口罩应该可以阻止大部分这些。
 

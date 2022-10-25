@@ -11,7 +11,7 @@ T3】当前演出:作家
 **当前电脑:** MacBook Air，取代之前遭遇咖啡馆惨死的 Air。
 **当前移动设备:**嗯，是安卓。Moto G6。出于某种原因，我的妻子得到了 iphone，而我得到了目前被贴上“最便宜的智能手机”标签的任何手机。一个词最能描述你的工作方式:效率低下*
 
-*<label class="bxm4mm-13 juykRM">Advertisement</label>*
+**
 
 #### *首先，告诉我们一些你的背景，以及你是如何走到今天这一步的。*
 
@@ -21,7 +21,7 @@ T3】当前演出:作家
 
 *写故事和小说，以及所有相关的东西，比如阅读、会议和教学。当我可以的时候，我仍然表演节目。我还在一家非营利机构兼职，在那里我戴着一大堆帽子和假胡子，并且经常换来换去。*
 
-*<label class="bxm4mm-13 juykRM">Advertisement</label>*
+**
 
 #### *带我们看看最近的一个工作日。*
 
@@ -33,7 +33,7 @@ T3】当前演出:作家
 
 *如果我在家，我的主要工具是一个老式的沙漏，里面有半个小时的沙子。我把手机调成静音，然后进行半小时的“冲刺”，每次冲刺后休息 15 分钟。我试着先起草，然后完成当天的所有目标。然后我会转向任何我需要完成的编辑工作。电子邮件采访和博客可以在我注意力不集中的时候进行。天气允许时，另一只狗会去散步。我有继续前进的坏倾向，所以我试着在妻子回家时停下来。*
 
-*<label class="bxm4mm-13 juykRM">Advertisement</label>*
+**
 
 *我尽量不创造太多的仪式。重要的是页面上的文字，其他几乎没有。我可以在任何地方做这个。我喜欢写静修。如果我在一个城市呆的时间够长，我会在当地找一家咖啡馆工作。*
 
@@ -43,7 +43,7 @@ T3】当前演出:作家
 
 *我用 Word 写我不太喜欢的故事，用 [代书](https://www.literatureandlatte.com/scrivener/overview) 写小说。我喜欢为小说代笔；我无法想象没有它，如何处理一个大项目。对代码视点进行着色、选择不同部分、像看公告板一样看它的能力……哦，还有字数统计！我喜欢小目标米。我很容易找到好目标。*
 
-*<label class="bxm4mm-13 juykRM">Advertisement</label>*
+**
 
 *我想我不能没有 Dropbox，因为当我的电脑被谋杀时，它救了我。*
 
@@ -55,7 +55,7 @@ T3】当前演出:作家
 
 *我最大的写作爱好实际上是遛狗或去跑步。在我积极运动的时候，我从未经历过文思枯竭，但如果我开始减少运动，我会觉得我的大脑变慢了。*
 
-*<label class="bxm4mm-13 juykRM">Advertisement</label>*
+**
 
 *当我走路的时候，我在思考。我在解决问题。我正在想出一个更好的第一行，或者下一个要去的地方，这样我就永远不会看到一个空白的页面，看到它是空白的。我会把这些内容发短信给自己，或者集中精力长时间记住，这样我一回家就可以把它写下来。*
 
@@ -65,7 +65,7 @@ T3】当前演出:作家
 
 *有人——是 V.E 施瓦布吗？—我最近在一次现场问答中看到一位作者，她说她从小说的结尾开始，然后反向工作，这样她就知道人物需要到达哪里。对我来说，这听起来非常奇怪，但我不能批评，因为这显然对她很有效。*
 
-*<label class="bxm4mm-13 juykRM">Advertisement</label>*
+**
 
 *我经常和一个朋友一起写作，他一边写草稿，一边反复听同一首歌。当我写作时，音乐总的来说让我太分心了。我喜欢听给自己打气的音乐，但不是在我实际起草或编辑的时候。*
 
@@ -75,7 +75,7 @@ T3】当前演出:作家
 
 *这个女人为自己的所作所为承担了责任，这是很多人都不会做的，但从那以后我就一直很害怕。我把咖啡放在旁边的椅子上，或者放在一个密封的杯子里，用一个可以关上的水瓶喝水。我过去常常在店主点餐时和她坐在“家庭餐桌”旁，但现在我坐在一张小桌子旁，没有人能伤害我的电脑。我有 Dropbox，所以我没有失去工作，但整个事情非常有压力。*
 
-*<label class="bxm4mm-13 juykRM">Advertisement</label>*
+**
 
 #### *帮助你完成工作的人是谁，你如何依赖他们？*
 
@@ -87,7 +87,7 @@ T3】当前演出:作家
 
 *我甚至不能说出我妻子为确保我能完成工作而做的所有事情。她非常善解人意，但也善于说“当剩下的事情都在进行的时候，你确定你要承诺吗？”这平衡了我对一切都说好的倾向。*
 
-*<label class="bxm4mm-13 juykRM">Advertisement</label>*
+**
 
 #### *你职业生涯中犯过的最大错误是什么，你是如何处理的？*
 
@@ -101,7 +101,7 @@ T3】当前演出:作家
 
 *我觉得我现在做得不是很好。我一直在说“在这个截止日期之后”，直到下一个截止日期像无休止的打地鼠游戏一样突然出现。理论上:徒步旅行，遛狗。骑着我朋友的马。去看摇滚演出。播放音乐。去看电影。*
 
-*<label class="bxm4mm-13 juykRM">Advertisement</label>*
+**
 
 #### *你最喜欢的副业是什么？*
 
@@ -115,4 +115,4 @@ T3】当前演出:作家
 
 *是啊！我小说的章节标题实际上是一个播放列表。有些歌只存在于小说里，但存在于我们世界的都在这里:*
 
-*<iframe data-src="https://open.spotify.com/embed/playlist/4mL6rQGz4AO8mcBI4X3F7y" width="300px" height="380px" frameborder="0" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen" class="lazyload" scrolling="yes">T2】</span></p><div class="bxm4mm-12 dFBBhS js_movable_ad_slot"><div class="bxm4mm-14 gFcZLy"><label class="bxm4mm-13 juykRM">Advertisement</label><div is="bulbs-dfp" class="ad-container dfp dfp-slot-MID_BANNER ad-middleboard" data-ad-unit="MID_BANNER" data-targeting="{&quot;pos&quot;:&quot;mid_banner&quot;}"/><div class="bt-wrapper"><span data-uid="5d1b8a6cd5-384" class="bt-uid-tg" style="display:none !important;text-align:center" data-css-selector="ad-container.ad-middleboard"/></div></div></div><h4 class="sc-1bwb26k-1 kpbNNd" id="h290947"><br/></h4><h4 class="sc-1bwb26k-1 kpbNNd" id="h290948">你还希望谁来回答这些问题？</h4><p class="sc-77igqf-0 bOfvBY">查理·简·安德斯或马尔卡老或加奈儿·梦奈，因为我不明白他们怎么做得像他们那样多。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h290949">你收到过的最好的建议是什么？</h4><p class="sc-77igqf-0 bOfvBY">把你写的东西大声读出来，然后再叫它完成。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h290950">你仍在努力解决的问题是什么？</h4><p class="sc-77igqf-0 bOfvBY">如何停止对每件事都说好？</p></div> </body> </html></iframe>*
+*<iframe data-src="https://open.spotify.com/embed/playlist/4mL6rQGz4AO8mcBI4X3F7y" width="300px" height="380px" frameborder="0" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen" class="lazyload" scrolling="yes">T2】</span></p><div class="bxm4mm-12 dFBBhS js_movable_ad_slot"><div class="bxm4mm-14 gFcZLy"><div is="bulbs-dfp" class="ad-container dfp dfp-slot-MID_BANNER ad-middleboard" data-ad-unit="MID_BANNER" data-targeting="{&quot;pos&quot;:&quot;mid_banner&quot;}"/><div class="bt-wrapper"><span data-uid="5d1b8a6cd5-384" class="bt-uid-tg" style="display:none !important;text-align:center" data-css-selector="ad-container.ad-middleboard"/></div></div></div><h4 class="sc-1bwb26k-1 kpbNNd" id="h290947"><br/></h4><h4 class="sc-1bwb26k-1 kpbNNd" id="h290948">你还希望谁来回答这些问题？</h4><p class="sc-77igqf-0 bOfvBY">查理·简·安德斯或马尔卡老或加奈儿·梦奈，因为我不明白他们怎么做得像他们那样多。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h290949">你收到过的最好的建议是什么？</h4><p class="sc-77igqf-0 bOfvBY">把你写的东西大声读出来，然后再叫它完成。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h290950">你仍在努力解决的问题是什么？</h4><p class="sc-77igqf-0 bOfvBY">如何停止对每件事都说好？</p></div> </body> </html></iframe>*

@@ -8,7 +8,7 @@
 
 > 去年年底，我提前 60 天向雇主递交了辞职通知，从 1 月 1 日起生效。在我提出辞职的两天后，我的老板无缘无故地解雇了我，并说:“我们不接受你的辞职。”
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 > 我在马萨诸塞州。我咨询了这里的就业律师，被告知我没有理由起诉非法解雇。失业决定了我有资格领取救济金，因此我收到了救济金支票。
 > 
@@ -20,7 +20,7 @@
 
 你的人力资源部不是律师，所以我不得不与一些专家交谈，以了解这里的背景——特别是马萨诸塞州的背景。在决定失业救济金的实际管理方式时，州法规会有相当大的影响。因此，我想对任何一个州遇到这种情况的读者说一句话:从研究当地的细节开始。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 马萨诸塞州的州失业机构是失业救助部；你可以在线访问 [这里](https://www.mass.gov/orgs/department-of-unemployment-assistance) 。鉴于你所描述的情况，当你的福利突然停止时，你应该已经收到了“取消资格通知”。
 
@@ -30,7 +30,7 @@ FisherBroyles 的合伙人艾米·爱泼斯坦·格鲁克(Amy Epstein Gluck)是�
 
 但是从短期来看，你应该上诉——即使你已经(远远)超过了最后期限，马萨诸塞州 [黑文斯律师事务所](http://www.havenslawoffice.com/) 的就业律师吉尔·黑文斯告诉我。提供解释延误的任何解释，并希望你能得到一个听证会，使你的情况。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### 被解雇还是被解雇
 
@@ -44,7 +44,7 @@ Havens(当然，他也没有在这里提供具体的法律建议)推测，有几
 
 这是否意味着你只是失去了你的利益？肯定有可能，但不一定。正如 Havens 指出的，失业机构应该确定你辞职的原因是否会使你有资格继续享受福利。所以你绝对应该上诉。或许，你可以考虑再和律师谈谈。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 请注意 [此处](https://www.mass.gov/service-details/your-rights-and-responsibilities-as-a-claimant) 您有权查看与您的申请相关的所有材料:如果您认为您的前雇主向本机构提供了关于您失业详情的虚假重要事实陈述，这可能构成欺诈，则这些材料可能有用。
 
@@ -56,6 +56,6 @@ Havens(当然，他也没有在这里提供具体的法律建议)推测，有几
 
 但是也许 Lifehacker 的读者(律师和其他人！)会再拍一次。如果有，请在评论中大声说出来！
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 *将你的工作世界问题发送到*[](mailto:humanresource@lifehacker.com)**。问题可能会因长度和清晰度而被编辑。**

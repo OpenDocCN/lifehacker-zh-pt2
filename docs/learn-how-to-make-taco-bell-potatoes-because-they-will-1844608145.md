@@ -8,7 +8,7 @@
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Taco Bell Potatoes Are Returning But You Can Make Your Own](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-make-your-own-crunchwrap-supreme-1838496786)</aside>
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 根据 7 月 17 日 的新闻稿，即将进行的菜单调整将“为新的粉丝最爱留出空间”和“在植物性饮食等类别中继续取得进展”，我想这两者都很酷。但是塔可钟的土豆如此普遍地受欢迎，以至于停止供应土豆让人感觉是故意心怀恶意的——尤其是对纯素食者和素食者来说，他们的快餐选择在塔可钟之外受到严重限制。无论我们期待什么样的新的无肉选择，它们永远不会取代一碗蘸着液态奶酪和酸奶油的咸咸的、黏糊糊的、油腻的土豆。
 
@@ -16,7 +16,7 @@
 
 要制作你自己的马斯尘，你需要 1 茶匙(5-6 克)以下各种材料:
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 *   孜然粉
 *   粒状大蒜
@@ -32,12 +32,12 @@
 
 要做土豆，把烤箱加热到 475 华氏度，在上三分之一处放一个架子。将 1 磅未去皮的赤褐色土豆切成 1/2 英寸的方块，并加入大约三分之一的活马斯粉。用中火加热一个大的烤箱安全的煎锅，然后加入足够的中性食用油来覆盖底部。将调味后的土豆单层加入热油中，不受干扰地烹饪 3-5 分钟。用刮刀把它们翻过来，然后转移到烤箱里。烘烤 10-15 分钟，翻转土豆一次或两次，直到它们变成金棕色，变脆。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 当他们烹饪时，打开一些罐装玉米片奶酪和油炸豆类，将你最喜欢的辣酱与瓶装牧场酱混合(我发誓，牧场是他们所有奶油酱的秘密)，并将一些活的马斯粉扔进煮熟的碎牛肉中——或 [脆豆腐碎](https://skillet.lifehacker.com/tofu-freaking-rules-1843024412) 。从现在开始都是组装。
 
 为了获得完整的体验，我建议在塔可钟网站 上查看你最喜欢的商品的 [描述。你不会找到详细的食谱，但是你*会*找到每个项目的成分列表。我重新制作了我通常点的菜，外加](https://www.tacobell.com/food) [一碗嘉年华土豆](https://www.tacobell.com/food/sides/cheesy-fiesta-potatoes) 作为额外的补充。“得来速”塔可钟土豆的日子可能屈指可数了，但它们在我的厨房里还活着(还活着)——现在，是你的了。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 *这篇文章最初发表于 2020 年 8 月，更新于 2021 年 1 月 14 日，添加了关于将土豆食品重新纳入塔可钟菜单的内容。*

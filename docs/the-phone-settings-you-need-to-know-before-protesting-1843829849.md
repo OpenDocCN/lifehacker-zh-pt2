@@ -6,7 +6,7 @@
 
 看看这个视频，然后继续阅读了解更多细节。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 <figcaption class="sc-1ptbguh-0 hxeMec caption">“How to prepare your phone for a protest,” by Abu Zafar</figcaption>
 
@@ -34,7 +34,7 @@
 
 *是的。如果你像往常一样使用手机，有各种各样的方式可以跟踪你，并可能因此面临法律问题，这取决于你的抗议活动发生了什么。这包括使用各种社交媒体网站，上传照片和视频(你还没有 [删除](https://ssd.eff.org/en/module/attending-protest) 的任何识别信息，包括时间戳)，甚至仅仅是*使用你的设备*打电话、给别人发信息，等等。*
 
-*<label class="bxm4mm-13 juykRM">Advertisement</label>*
+**
 
 ### *没关系！我就把手机调成飞行模式吧！*
 
@@ -44,7 +44,7 @@
 
 *此外，在到达抗议地点之前*，将手机调成飞行模式——如果你要走这条路线的话。如果你已经在那里呆了十分钟，然后把手机调到飞行模式，你还不如让它开着；如果警察聪明的话， [他们早就知道你在那里了](https://www.aclu.org/issues/privacy-technology/surveillance-technologies/stingray-tracking-devices) 。**
 
-*<label class="bxm4mm-13 juykRM">Advertisement</label>*
+**
 
 ### *让朋友帮你保管手机数据*
 

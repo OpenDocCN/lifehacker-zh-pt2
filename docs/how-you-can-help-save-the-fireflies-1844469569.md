@@ -6,7 +6,7 @@
 
 数据可能没有定量显示下降，但经验证据是存在的。特拉华州立大学的昆虫学家 Christopher Heckscher 告诉 [【今日美国】](https://www.usatoday.com/story/news/nation/2019/08/01/firefly-decline-insects-decline-development-destroys-habitat/1886909001/) 说，他已经捕捉到稀有的萤火虫，，还有一些昆虫学家在 20 世纪初描述的他找不到的萤火虫——包括一种在布兰迪温河流域常见的萤火虫，布兰迪温河流域是特拉华河流域的一部分，位于纽约州、宾夕法尼亚州、特拉华州和新泽西州。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 没有人 100%确定是什么导致了失踪，但是有一些理论。
 
@@ -16,7 +16,7 @@
 
 然而，萤火虫最喜欢的栖息地正在消失。据网站介绍，
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 > 问题是……我们开阔的田野和森林正在被铺满，我们的水道正在经历更多的开发和嘈杂的船只交通。随着它们的栖息地在住房和商业开发下消失，萤火虫的数量逐渐减少。
 
@@ -26,7 +26,7 @@
 
 萤火虫也用它们的闪光作为警告信号。扰乱或遮蔽这些闪光会使昆虫更容易受到捕食者的攻击。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ## 你能提供什么帮助
 

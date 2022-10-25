@@ -8,7 +8,7 @@
 
 **地点:**马里兰州巴尔的摩
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 当前工作:关注性、毒品和社会公正的优步
 
@@ -20,7 +20,7 @@
 
 首先，一个免责声明，任何希望从我这里得到任何类型的饮食伦理指导的人都会非常失望，因为它只是在混乱和邪恶之间交替。当我能停止做饭的时候，我就停止了。大多数时候，我除了吃零食什么也不吃。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 我还有一个不好的吃零食的习惯。
 
@@ -34,7 +34,7 @@
 
 是的，都有。尽管最近，出于对牙齿的恐惧，我更依赖能量饮料。我刚刚做了牙齿美白，所以我想保持下去。我更喜欢喝咖啡，而不是无糖的怪物能量饮料，但至少在接下来的几个月里，我会因为牙齿的原因尽量不喝咖啡。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 你通常怎么喝咖啡？
 
@@ -52,7 +52,7 @@
 
 它改变了我的生活。这并没有改变我的生活。它改变了我和麦当劳的关系。它使我成为一个常客。天哪，他们完全控制了我。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 在这和 UberEats 之间——我没有车，所以我没有吃任何麦当劳，然后突然之间我吃了太多麦当劳。
 
@@ -68,7 +68,7 @@
 
 #### 我们能看看你的冰箱吗？
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 午餐一般吃什么，还是有“通常”？
 
@@ -86,7 +86,7 @@
 
 看，我喜欢那种里面有水果和坚果的 [克什米尔馕](https://thetakeout.com/master-of-naan-the-a-v-club-guide-to-south-asian-brea-1818547060) 。我更喜欢那个。但我把它当甜点之类的吃。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 你喜欢辛辣的食物吗？
 
@@ -104,7 +104,7 @@
 
 让我们看看。我最喜欢的非常辣的是我尝过的 [塔巴斯科蝎子酱](https://countrystore.tabasco.com/products/scorpion-sauce) 。那真的很好。实际上，我很喜欢塔巴斯科。我喜欢 [塔巴斯科辣酱](https://countrystore.tabasco.com/products/tabasco-chipotle-sauce-5oz) 。那个没那么辣，但是很有味道，很有意思。我还喜欢什么？我喜欢 [Valentina 超辣](https://www.amazon.com/Valentina-Black-Label-Hot-Sauce/dp/B00L84BXGW?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-youtuber-natalie-wynn-of-contrapoints-and-this-is-h-1835858733&asc_source=&tag=kinjalifehackerlink-20) 。我说我很有男子气概——其实并没有那么有男子气概。因为我讨厌辣酱文化，比如“给我最大的，最辣的东西。”我讨厌那样。这对我来说毫无意义，而且很多这种非常非常辣的酱汁——尝起来一点味道都没有。这只是你在食物中添加的化学灼伤。我喜欢蝎子酱的一点是，它像许多哈瓦那辣酱一样含有芒果，芒果的甜味除了增加热量之外，还增加了一些东西。或者墨西哥辣味辣味辣味辣味辣味辣味辣味辣味辣味辣味辣味辣味辣味辣味辣味辣味辣味辣味辣味辣味辣味辣味辣味辣味辣味辣味。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 我知道这不是墨西哥菜，但我不得不问，因为我是垃圾。你在塔可钟吃过吗？
 
@@ -118,7 +118,7 @@
 
 有一些好地方。我出门的时候有个地方叫 [Clavel](http://barclavel.com) ，真的真的很不错。那是我所知道的巴尔的摩最好的地方。我认为墨西哥食物不如许多其他城市的好。我过去住在芝加哥。我非常想念芝加哥的东西是真正的墨西哥美食和真正的 T4 pho。在红线上的阿盖尔站，有一个小小的越南社区，那里有所有这些越南和 pho 餐厅，它们真的很棒。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 在芝加哥生活过，你对他们有披萨忠诚吗？
 
@@ -136,7 +136,7 @@
 
 是蛤蜊披萨？
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 是啊。它就像一个白色的馅饼。我不认为它上面有奶酪。
 
@@ -150,7 +150,7 @@
 
 嗯，客观上是正确的。尤其是腌制的肉，如火腿。甜味和咸味——很好。这就像用火腿片裹住蜜瓜一样。我喜欢把它当零食。咸味、甜味和咸味的结合。哦！太好了。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 如果你必须在咸零食和甜零食之间做出选择，你有明确的偏好吗？
 
@@ -168,7 +168,7 @@
 
 我经常喝健怡可乐。我在电影里看到的。我会偷别人的小块爆米花，但我通常不会自己点爆米花。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 这是一个太大的承诺。
 
@@ -186,7 +186,7 @@
 
 有时候我觉得这些都是羞耻餐，因为我有强烈的感觉，我真的应该吃素，或者至少不要总是吃那么多肉。我试过了，但就是做不到。我尝过血的味道，现在我的身体需要血。我不知道该说什么。我想我也为不做饭感到难过，因为我觉得我应该做饭，我的兄弟都做饭，我妈妈是一个了不起的厨师。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 嗯，这完全取决于你想如何度过你的时间。
 
@@ -200,7 +200,7 @@
 
 我在想。我有吗？是啊，不尽然。看到了吗？这里有一些节制。因为即使我知道我应该在饮食中控制很多大的、常规的方面，但我没有。但在一些小的方面，它似乎在控制中，因为我没有做那样的事情。但我喜欢你这样。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 非常感谢。你喜欢吃汉堡吗？
 
@@ -218,7 +218,7 @@
 
 我喜欢红薯。那些是我喜欢的薯条。它们是我的最爱。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 几乎所有人都说快餐是麦当劳式的炸薯条。我欣赏答案的多样性。
 
@@ -236,4 +236,4 @@
 
 最好的热狗是芝加哥风味的热狗。也就是——他们叫它什么？——“拖着穿过花园”或类似的表达方式。这是一个包着罂粟籽的热狗，有切片番茄，泡菜，芥末，没有番茄酱，这些东西叫做“棒球场辣椒”——这些是小青椒。我觉得那真的很好。玉米热狗？我想我确实喜欢他们。这在我的视频中是一个笑话——有一个视频，我一口气吃了 16 个。获得玉米热狗的唯一好方法是在嘉年华。我会买冷冻的作为我视频的道具，但我不会满足于微波玉米热狗。这不是我的风格。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-hyaftqCORT4&amp;start=0" data-chomp-id="hyaftqCORT4" data-recommend-id="youtube://hyaftqCORT4" id="youtube-hyaftqCORT4" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="hyaftqCORT4" data-recommend-id="youtube://hyaftqCORT4" id="youtube-hyaftqCORT4" data-recommended="false" class="js_recommend"/></span></div><h4 class="sc-1bwb26k-1 kpbNNd" id="h19244">它们的外部不够脆。</h4><p class="sc-77igqf-0 bOfvBY">你想要新鲜油炸面糊。你正在吃一块蘸了漏斗蛋糕面糊的过度加工的肉——这种体验正是我想要的。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h19245">我确实记得读过一篇关于这位芭蕾舞演员早餐吃微波玉米热狗的文章。</h4><p class="sc-77igqf-0 bOfvBY">我也记得！因为这个我开始吃玉米热狗了！因为我看到的是<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.youtube.com/watch?v=5356zt0JiDY&quot;,{&quot;metric25&quot;:1}]]" href="https://www.youtube.com/watch?v=5356zt0JiDY" target="_blank" rel="noopener noreferrer">一段视频，她讲述了她的饮食</a> </span>的排行榜，视频从她早上做伸展运动，吃玉米热狗开始，我就像“这是我的早餐。”其实不是<em>，</em>，因为我不太喜欢它们，但它唤醒了我微波玉米热狗的想法。我想这就像是“你可以早餐吃一个玉米热狗，然后看起来像那个？我知道这没有意义，因为我不是专业舞者，但是，我不知道，它仍然有视觉冲击。</p><div class="bxm4mm-12 dFBBhS js_movable_ad_slot"><div class="bxm4mm-14 gFcZLy"><label class="bxm4mm-13 juykRM">Advertisement</label><div is="bulbs-dfp" class="ad-container dfp dfp-slot-MID_BANNER ad-middleboard" data-ad-unit="MID_BANNER" data-targeting="{&quot;pos&quot;:&quot;mid_banner&quot;}"/><div class="bt-wrapper"><span data-uid="5d1b8a6cd5-384" class="bt-uid-tg" style="display:none !important;text-align:center" data-css-selector="ad-container.ad-middleboard"/></div></div></div><h4 class="sc-1bwb26k-1 kpbNNd" id="h19246">说到视频，还有你视频里的东西:你真的喝香槟吗？</h4><p class="sc-77igqf-0 bOfvBY">是的。这是我最喜欢喝的东西。这不是视频的借口。我经常喝它，而不仅仅是作为一种庆祝。它仍然是我的最爱。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h19247">你有最喜欢的制作人吗？</h4><p class="sc-77igqf-0 bOfvBY">如果我们在说“让我们喝酒吧，因为今天是星期四”——我的日常是<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.freixenetusa.com/products/cordon-negro-brut&quot;,{&quot;metric25&quot;:1}]]" href="https://www.freixenetusa.com/products/cordon-negro-brut" target="_blank" rel="noopener noreferrer"> Freixenet Brut </a> </span>，这是一种卡瓦酒，而不是香槟。好像是十一美元。真的很好。然后我最喜欢的“特殊场合”是<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.moet.com/en-int&quot;,{&quot;metric25&quot;:1}]]" href="https://www.moet.com/en-int" target="_blank" rel="noopener noreferrer">莫特</a> </span>，就像普通的一样——皇家布鲁。因为它就像 55 美元一瓶，我从来都买不起，直到几年前我在直播上玩神奇宝贝，赚了 200 美元。那是我用神奇宝贝的钱买的第一件东西。感觉很好。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h19248">你尝过尤乌·克里括吗？</h4><p class="sc-77igqf-0 bOfvBY">耶！我试过了，我很喜欢这样。我知道很多人喜欢它胜过喜欢它，但我不喜欢。我想是因为莫特更像黄油，而尤乌更像柑橘。这只是我的业余品味描述。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h19249">我不是一个爱喝葡萄酒的人，所以我只会喝我那些势利的葡萄酒朋友喝的酒。</h4><p class="sc-77igqf-0 bOfvBY">哦是的。我对大多数葡萄酒也是这样。我确实有一些势利的葡萄酒朋友，我只是遵从他们的意见，因为他们知道的比我多，但是对于起泡酒——纯粹是因为喝得太多的习惯——我有自己的看法。</p><div class="bxm4mm-12 dFBBhS js_movable_ad_slot"><div class="bxm4mm-14 gFcZLy"><label class="bxm4mm-13 juykRM">Advertisement</label><div is="bulbs-dfp" class="ad-container dfp dfp-slot-MID_BANNER ad-middleboard" data-ad-unit="MID_BANNER" data-targeting="{&quot;pos&quot;:&quot;mid_banner&quot;}"/><div class="bt-wrapper"><span data-uid="5d1b8a6cd5-384" class="bt-uid-tg" style="display:none !important;text-align:center" data-css-selector="ad-container.ad-middleboard"/></div></div></div><h4 class="sc-1bwb26k-1 kpbNNd" id="h19250">我忘了是哪段视频，你说喝普罗塞克“像个农民”，但我喜欢。</h4><p class="sc-77igqf-0 bOfvBY">哦，那是《启示录》中的一个角色，他是一个懒惰的、可怕的、否认气候变化的人，正在洗澡，喝着一瓶葡萄酒。</p><div class="ooo3c9-0 cmUFVa align--bleed has-video media-large video-embed embed-frame"><span class="flex-video widescreen"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-S6GodWn4XMM&amp;start=0" data-chomp-id="S6GodWn4XMM" data-recommend-id="youtube://S6GodWn4XMM" id="youtube-S6GodWn4XMM" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/><span data-chomp-id="S6GodWn4XMM" data-recommend-id="youtube://S6GodWn4XMM" id="youtube-S6GodWn4XMM" data-recommended="false" class="js_recommend"/></span></div><h4 class="sc-1bwb26k-1 kpbNNd" id="h19251">我和那个角色有很多关联。</h4><p class="sc-77igqf-0 bOfvBY">我也和她有关系。我能想到的塑造一个有关联的角色的唯一方法是在我身上找到一些东西，并把它孤立或夸张地放在那里。我完全不理解那些“科学在某种程度上是错误的”的人，但我理解的是懒惰和享乐主义。我完全可以理解不想为气候变化或工厂化农业或其他任何事情做任何事情。我完全理解。所以这是我能想到的唯一让这个角色有同情心的方法，因为那个人完全是我的一大部分。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h19252">你喜欢吃甜点吗？</h4><p class="sc-77igqf-0 bOfvBY">不，我想我吃甜点比大多数人都少。我通常不会在餐馆里得到它。也就是说，我喜欢巧克力。巧克力、巧克力蛋糕、巧克力慕斯、巧克力等等——我就是喜欢巧克力。</p><div class="bxm4mm-12 dFBBhS js_movable_ad_slot"><div class="bxm4mm-14 gFcZLy"><label class="bxm4mm-13 juykRM">Advertisement</label><div is="bulbs-dfp" class="ad-container dfp dfp-slot-MID_BANNER ad-middleboard" data-ad-unit="MID_BANNER" data-targeting="{&quot;pos&quot;:&quot;mid_banner&quot;}"/><div class="bt-wrapper"><span data-uid="5d1b8a6cd5-384" class="bt-uid-tg" style="display:none !important;text-align:center" data-css-selector="ad-container.ad-middleboard"/></div></div></div><h4 class="sc-1bwb26k-1 kpbNNd" id="h19253">你喜欢黑巧克力还是牛奶巧克力？</h4><p class="sc-77igqf-0 bOfvBY">黑巧克力是最好的。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h19254">我非常喜欢任何一种加盐的巧克力。</h4><p class="sc-77igqf-0 bOfvBY">我喜欢这样。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h19255">我要一块巧克力，我要马尔登...<em/>T2】</h4><p class="sc-77igqf-0 bOfvBY">把盐放在巧克力上...这真是个好主意。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h19256">或者放在冰淇淋上。<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://skillet.lifehacker.com/the-case-for-salting-your-ice-cream-1830971434&quot;,{&quot;metric25&quot;:1}]]" href="https://skillet.lifehacker.com/the-case-for-salting-your-ice-cream-1830971434">冰淇淋上的盐</a> </span>其实真的很好吃。</h4><p class="sc-77igqf-0 bOfvBY">哦是的。我倾向于不吃那么多冰淇淋，因为，出于某种原因，这是少数几个我坚决反对的领域之一，就像“嗯！卡路里！”但是我最近做了面部手术，我的下巴动了手术，所以它肿了，我两个星期不能很好地吃固体食物。突然，摄入足够的卡路里成了一个问题，所以我吃了一堆冰淇淋，养成了吃冰淇淋的习惯。很难戒掉，现在我已经习惯了。</p><div class="bxm4mm-12 dFBBhS js_movable_ad_slot"><div class="bxm4mm-14 gFcZLy"><label class="bxm4mm-13 juykRM">Advertisement</label><div is="bulbs-dfp" class="ad-container dfp dfp-slot-MID_BANNER ad-middleboard" data-ad-unit="MID_BANNER" data-targeting="{&quot;pos&quot;:&quot;mid_banner&quot;}"/><div class="bt-wrapper"><span data-uid="5d1b8a6cd5-384" class="bt-uid-tg" style="display:none !important;text-align:center" data-css-selector="ad-container.ad-middleboard"/></div></div></div><h4 class="sc-1bwb26k-1 kpbNNd" id="h19257">你有最喜欢的口味或品牌吗？</h4><p class="sc-77igqf-0 bOfvBY">本和杰里的是最好的，你可以在大多数商店。天啊，让我欲罢不能的是费西合唱团食物，因为有棉花糖——棉花糖、小巧克力和焦糖。如果你舀一勺焦糖、棉花糖和巧克力，它会变成这种黏糊糊的东西——啊，太好吃了。一种口味中有如此多的不同质地。我最近试着换一件光晕上衣，但我真的不明白这有什么意义。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h19258">我没试过那东西。它尝起来像什么？</h4><p class="sc-77igqf-0 bOfvBY">它尝起来不像冰淇淋。它尝起来像某种冷冻的、纤维状的、膨化的零食，有点像冰淇淋。我可以想象如果你说“我现在真的很想吃冰淇淋”的时候会吃它。我的身体需要它，但我真的不想吃那么多卡路里，所以我想我会满足于这个。”然后你就像是在吃冰淇淋，却没有快感。这就像吸 CBD 油，而你真正想要的是大麻。</p></div> </body> </html></iframe>
+<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-hyaftqCORT4&amp;start=0" data-chomp-id="hyaftqCORT4" data-recommend-id="youtube://hyaftqCORT4" id="youtube-hyaftqCORT4" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="hyaftqCORT4" data-recommend-id="youtube://hyaftqCORT4" id="youtube-hyaftqCORT4" data-recommended="false" class="js_recommend"/></span></div><h4 class="sc-1bwb26k-1 kpbNNd" id="h19244">它们的外部不够脆。</h4><p class="sc-77igqf-0 bOfvBY">你想要新鲜油炸面糊。你正在吃一块蘸了漏斗蛋糕面糊的过度加工的肉——这种体验正是我想要的。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h19245">我确实记得读过一篇关于这位芭蕾舞演员早餐吃微波玉米热狗的文章。</h4><p class="sc-77igqf-0 bOfvBY">我也记得！因为这个我开始吃玉米热狗了！因为我看到的是<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.youtube.com/watch?v=5356zt0JiDY&quot;,{&quot;metric25&quot;:1}]]" href="https://www.youtube.com/watch?v=5356zt0JiDY" target="_blank" rel="noopener noreferrer">一段视频，她讲述了她的饮食</a> </span>的排行榜，视频从她早上做伸展运动，吃玉米热狗开始，我就像“这是我的早餐。”其实不是<em>，</em>，因为我不太喜欢它们，但它唤醒了我微波玉米热狗的想法。我想这就像是“你可以早餐吃一个玉米热狗，然后看起来像那个？我知道这没有意义，因为我不是专业舞者，但是，我不知道，它仍然有视觉冲击。</p><div class="bxm4mm-12 dFBBhS js_movable_ad_slot"><div class="bxm4mm-14 gFcZLy"><div is="bulbs-dfp" class="ad-container dfp dfp-slot-MID_BANNER ad-middleboard" data-ad-unit="MID_BANNER" data-targeting="{&quot;pos&quot;:&quot;mid_banner&quot;}"/><div class="bt-wrapper"><span data-uid="5d1b8a6cd5-384" class="bt-uid-tg" style="display:none !important;text-align:center" data-css-selector="ad-container.ad-middleboard"/></div></div></div><h4 class="sc-1bwb26k-1 kpbNNd" id="h19246">说到视频，还有你视频里的东西:你真的喝香槟吗？</h4><p class="sc-77igqf-0 bOfvBY">是的。这是我最喜欢喝的东西。这不是视频的借口。我经常喝它，而不仅仅是作为一种庆祝。它仍然是我的最爱。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h19247">你有最喜欢的制作人吗？</h4><p class="sc-77igqf-0 bOfvBY">如果我们在说“让我们喝酒吧，因为今天是星期四”——我的日常是<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.freixenetusa.com/products/cordon-negro-brut&quot;,{&quot;metric25&quot;:1}]]" href="https://www.freixenetusa.com/products/cordon-negro-brut" target="_blank" rel="noopener noreferrer"> Freixenet Brut </a> </span>，这是一种卡瓦酒，而不是香槟。好像是十一美元。真的很好。然后我最喜欢的“特殊场合”是<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.moet.com/en-int&quot;,{&quot;metric25&quot;:1}]]" href="https://www.moet.com/en-int" target="_blank" rel="noopener noreferrer">莫特</a> </span>，就像普通的一样——皇家布鲁。因为它就像 55 美元一瓶，我从来都买不起，直到几年前我在直播上玩神奇宝贝，赚了 200 美元。那是我用神奇宝贝的钱买的第一件东西。感觉很好。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h19248">你尝过尤乌·克里括吗？</h4><p class="sc-77igqf-0 bOfvBY">耶！我试过了，我很喜欢这样。我知道很多人喜欢它胜过喜欢它，但我不喜欢。我想是因为莫特更像黄油，而尤乌更像柑橘。这只是我的业余品味描述。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h19249">我不是一个爱喝葡萄酒的人，所以我只会喝我那些势利的葡萄酒朋友喝的酒。</h4><p class="sc-77igqf-0 bOfvBY">哦是的。我对大多数葡萄酒也是这样。我确实有一些势利的葡萄酒朋友，我只是遵从他们的意见，因为他们知道的比我多，但是对于起泡酒——纯粹是因为喝得太多的习惯——我有自己的看法。</p><div class="bxm4mm-12 dFBBhS js_movable_ad_slot"><div class="bxm4mm-14 gFcZLy"><div is="bulbs-dfp" class="ad-container dfp dfp-slot-MID_BANNER ad-middleboard" data-ad-unit="MID_BANNER" data-targeting="{&quot;pos&quot;:&quot;mid_banner&quot;}"/><div class="bt-wrapper"><span data-uid="5d1b8a6cd5-384" class="bt-uid-tg" style="display:none !important;text-align:center" data-css-selector="ad-container.ad-middleboard"/></div></div></div><h4 class="sc-1bwb26k-1 kpbNNd" id="h19250">我忘了是哪段视频，你说喝普罗塞克“像个农民”，但我喜欢。</h4><p class="sc-77igqf-0 bOfvBY">哦，那是《启示录》中的一个角色，他是一个懒惰的、可怕的、否认气候变化的人，正在洗澡，喝着一瓶葡萄酒。</p><div class="ooo3c9-0 cmUFVa align--bleed has-video media-large video-embed embed-frame"><span class="flex-video widescreen"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-S6GodWn4XMM&amp;start=0" data-chomp-id="S6GodWn4XMM" data-recommend-id="youtube://S6GodWn4XMM" id="youtube-S6GodWn4XMM" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/><span data-chomp-id="S6GodWn4XMM" data-recommend-id="youtube://S6GodWn4XMM" id="youtube-S6GodWn4XMM" data-recommended="false" class="js_recommend"/></span></div><h4 class="sc-1bwb26k-1 kpbNNd" id="h19251">我和那个角色有很多关联。</h4><p class="sc-77igqf-0 bOfvBY">我也和她有关系。我能想到的塑造一个有关联的角色的唯一方法是在我身上找到一些东西，并把它孤立或夸张地放在那里。我完全不理解那些“科学在某种程度上是错误的”的人，但我理解的是懒惰和享乐主义。我完全可以理解不想为气候变化或工厂化农业或其他任何事情做任何事情。我完全理解。所以这是我能想到的唯一让这个角色有同情心的方法，因为那个人完全是我的一大部分。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h19252">你喜欢吃甜点吗？</h4><p class="sc-77igqf-0 bOfvBY">不，我想我吃甜点比大多数人都少。我通常不会在餐馆里得到它。也就是说，我喜欢巧克力。巧克力、巧克力蛋糕、巧克力慕斯、巧克力等等——我就是喜欢巧克力。</p><div class="bxm4mm-12 dFBBhS js_movable_ad_slot"><div class="bxm4mm-14 gFcZLy"><div is="bulbs-dfp" class="ad-container dfp dfp-slot-MID_BANNER ad-middleboard" data-ad-unit="MID_BANNER" data-targeting="{&quot;pos&quot;:&quot;mid_banner&quot;}"/><div class="bt-wrapper"><span data-uid="5d1b8a6cd5-384" class="bt-uid-tg" style="display:none !important;text-align:center" data-css-selector="ad-container.ad-middleboard"/></div></div></div><h4 class="sc-1bwb26k-1 kpbNNd" id="h19253">你喜欢黑巧克力还是牛奶巧克力？</h4><p class="sc-77igqf-0 bOfvBY">黑巧克力是最好的。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h19254">我非常喜欢任何一种加盐的巧克力。</h4><p class="sc-77igqf-0 bOfvBY">我喜欢这样。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h19255">我要一块巧克力，我要马尔登...<em/>T2】</h4><p class="sc-77igqf-0 bOfvBY">把盐放在巧克力上...这真是个好主意。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h19256">或者放在冰淇淋上。<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://skillet.lifehacker.com/the-case-for-salting-your-ice-cream-1830971434&quot;,{&quot;metric25&quot;:1}]]" href="https://skillet.lifehacker.com/the-case-for-salting-your-ice-cream-1830971434">冰淇淋上的盐</a> </span>其实真的很好吃。</h4><p class="sc-77igqf-0 bOfvBY">哦是的。我倾向于不吃那么多冰淇淋，因为，出于某种原因，这是少数几个我坚决反对的领域之一，就像“嗯！卡路里！”但是我最近做了面部手术，我的下巴动了手术，所以它肿了，我两个星期不能很好地吃固体食物。突然，摄入足够的卡路里成了一个问题，所以我吃了一堆冰淇淋，养成了吃冰淇淋的习惯。很难戒掉，现在我已经习惯了。</p><div class="bxm4mm-12 dFBBhS js_movable_ad_slot"><div class="bxm4mm-14 gFcZLy"><div is="bulbs-dfp" class="ad-container dfp dfp-slot-MID_BANNER ad-middleboard" data-ad-unit="MID_BANNER" data-targeting="{&quot;pos&quot;:&quot;mid_banner&quot;}"/><div class="bt-wrapper"><span data-uid="5d1b8a6cd5-384" class="bt-uid-tg" style="display:none !important;text-align:center" data-css-selector="ad-container.ad-middleboard"/></div></div></div><h4 class="sc-1bwb26k-1 kpbNNd" id="h19257">你有最喜欢的口味或品牌吗？</h4><p class="sc-77igqf-0 bOfvBY">本和杰里的是最好的，你可以在大多数商店。天啊，让我欲罢不能的是费西合唱团食物，因为有棉花糖——棉花糖、小巧克力和焦糖。如果你舀一勺焦糖、棉花糖和巧克力，它会变成这种黏糊糊的东西——啊，太好吃了。一种口味中有如此多的不同质地。我最近试着换一件光晕上衣，但我真的不明白这有什么意义。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h19258">我没试过那东西。它尝起来像什么？</h4><p class="sc-77igqf-0 bOfvBY">它尝起来不像冰淇淋。它尝起来像某种冷冻的、纤维状的、膨化的零食，有点像冰淇淋。我可以想象如果你说“我现在真的很想吃冰淇淋”的时候会吃它。我的身体需要它，但我真的不想吃那么多卡路里，所以我想我会满足于这个。”然后你就像是在吃冰淇淋，却没有快感。这就像吸 CBD 油，而你真正想要的是大麻。</p></div> </body> </html></iframe>

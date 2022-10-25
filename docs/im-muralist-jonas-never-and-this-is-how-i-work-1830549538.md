@@ -12,7 +12,7 @@
 **当前移动设备:** iPhone 8
 **一个最能形容你工作方式的词:**大。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 首先，告诉我们一些你的背景，以及你是如何走到今天这一步的。
 
@@ -26,7 +26,7 @@
 
 我会画一上午。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 当我精疲力竭时，我会找些当地的东西吃。
 
@@ -36,7 +36,7 @@
 
 谈到喷漆和技巧，我有一些最爱:我的首选是蒙大拿 94 油漆和细节工作。我喜欢 [蒙大拿黑罐](https://www.montana-cans.com/en/spray-cans/spray-paint/black-50ml-600ml/montana-black-400ml) 的发光和背景。我更喜欢 [蒙大拿 94 瘦小贴士](https://www.sprayplanet.com/products/94-skinny-cap?variant=2184023745&gclid=Cj0KCQiApbzhBRDKARIsAIvZue9vlBBgpeuQwLdHBv8HZQq9bSalV_ZqydiX-XoXTVL_kFoHNxvhl84aAtYYEALw_wcB) 人物肖像的细节工作。我使用 [一个更胖的提示](https://www.sprayplanet.com/collections/mtn-spray-paint-caps/products/pink-dot-fat-cap) 来处理肤色、服装和背景。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 我的 AirPods 帮助我淹没了环境或交通噪音。我的 iPad Pro 可以让我做笔记，并根据具体的墙壁尺寸和项目需求绘制出一面墙。
 
@@ -52,7 +52,7 @@
 
 尽可能提前做好准备是有帮助的。在我拿起罐子或刷子之前，我会试着把所有的测量和准备工作都处理好。只有这么多小时在墙上，你寻找任何地方来精简。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 这似乎是显而易见的，但在你开始之前，确保你和客户达成一致是很重要的。这有助于你避免浪费时间或物资。
 
@@ -62,7 +62,7 @@
 
 我所有的壁画都基于现实主义。所以，我需要确保一切都是相称的:一个人的脸，肩膀，头发，所有的一切。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 除非上面已经有砖或瓦的图案，否则第一天我会在每面墙上画一个格子。这有助于确保我绘画时的一致性。在这个过程结束的时候，我看起来就像一个煤矿工人或者职业举重运动员，满手都是粉笔灰。但是当我失去参考时，很容易回到这些网格上。
 
@@ -74,7 +74,7 @@
 
 我还依赖我的 Instagram 和 Twitter 粉丝( [@never1959](https://www.instagram.com/never1959/?hl=en) )，他们欣赏并经常分享我的作品。与他们接触很有趣，看到他们参观我的作品并把它们视为地标，我感到很谦卑。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 你如何记录你必须做的事情？
 
@@ -86,7 +86,7 @@
 
 当你是自己的老板时，充电可能很难，尤其是作为一名艺术家。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 去年夏天，斯蒂芬妮和我去意大利玩了几个星期。但当我在那里的时候，我研究了卡纳莱托和那个叫达芬奇的家伙的作品，并思考如何将他们的学科融入到我自己的项目中。
 
@@ -98,7 +98,7 @@
 
 甚至当我在看棒球的时候，我会看着一个投手的纹身或者思考如何与球队合作。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 但是我喜欢画画。这是一种激情。对我来说这不像是一份工作。
 
@@ -108,7 +108,7 @@
 
 我也是第无数次看安东尼·鲍代恩的 [*【厨房机密】*](https://www.amazon.com/Kitchen-Confidential-Updated-Adventures-Underbelly/dp/0060899220?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-muralist-jonas-never-and-this-is-how-i-work-1830549538&asc_source=&tag=kinjalifehackerlink-20) 。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 你还希望谁来回答这些问题？
 
@@ -122,7 +122,7 @@
 
 时不时地，我免费做项目。我日复一日地期待着我的艺术。它帮助我证明我的购买，尤其是那些帮助我提高项目质量的购买。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 #### 你仍在努力解决的问题是什么？
 

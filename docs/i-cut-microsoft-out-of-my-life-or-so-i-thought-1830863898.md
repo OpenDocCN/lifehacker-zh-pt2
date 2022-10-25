@@ -6,7 +6,7 @@
 
 当我最初计划 [阻止所有科技巨头进入我的生活](https://gizmodo.com/life-without-the-tech-giants-1830258056) 时，我没有想到包括微软，主要是因为微软——至少在这些日子里——很少受到我们所知的破坏文明的批评。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 微软作为科技超级监管者的日子已经成为遥远的记忆，可以追溯到 20 世纪 90 年代，当时 20 个州和美国司法部像 Voltron 一样聚集在一起，以违反反垄断法为由将这家科技公司拉下马。
 
@@ -16,7 +16,7 @@
 
 即使我不使用任何 Windows 机器，没有 Xbox，也不求助于微软 Office 来创建文档，该公司仍然很难阻止，不是在网上，而是在现实世界中，Dhruv 和他的 VPN 无法帮助我。一个令人惊讶的例子是，我开车撞上了雷德蒙巨人——一辆 2015 款福特 Fusion，这是我从一家名为 Canvas 的长期租赁服务公司买的。我已经开了几个星期了，但直到现在才注意到中控台上的一个标语牌，上面写着，“同步，由微软提供动力。”原来，微软的技术为汽车的 [娱乐和导航系统](https://www.ford.com/technology/sync/) 提供动力，所以我必须安静地开车去上班。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 (这实际上是最后的福特车型之一；据报道，福特抛弃了微软 [，因为其软件](http://www.extremetech.com/extreme/177171-why-microsoft-lost-ford-sync) 漏洞太多。现在福特T5 提供来自谷歌和亚马逊的 T7】服务。“福特和 Alexa，科技天堂里的一对，”福特的网站声称，这听起来一点也不像我心目中的神。)
 
@@ -28,7 +28,7 @@
 
 因此，微软目前在许多方面都是一家“B2B”公司，不可否认的是，当我光顾餐馆、咖啡店、商店或任何其他发生货币交易的地方时，我在本周的某个时候依赖于使用其服务的服务。但就直接消费微软产品而言，这是我 [科技巨头阻击实验](https://gizmodo.com/c/goodbye-big-five) 迄今为止最轻松的一周。微软仍然是一个庞然大物，但我很难在这个实验中衡量它的影响，因为它的数十亿美元中有许多来自于像 Windows 服务器这样的产品，这些产品被用来为政府和企业基础设施提供动力，而不是被消费者直接使用。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 这并不是说消费者没有大规模使用微软的产品:在访问美国政府网站的所有操作系统中，包括 iOS 和 Android，Windows 仍然占 40%的，这很好地表明了它的普遍流行。对于*这个*消费者来说，这根本不是问题。正如我在本系列 的介绍中承认的，这反映了我自己的技术偏见。在社会运作中避开公司可能是不可能的，但是我发现避免个人使用微软的产品是可能的。
 
@@ -36,7 +36,7 @@
 
 几十年前的微软反垄断案就像任何法律问题一样错综复杂，但它归结起来是一个相当简单的催化剂。30 年前，Windows 是占主导地位的操作系统，就像今天在个人电脑上一样，而互联网才刚刚开始发展。1994 年，一家名为 Netscape 的公司发布了一款名为 Navigator 的流行互联网浏览器，售价约为 50 美元，微软决定以低价出售。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 为了确保其在不断增长的互联网业务中的主导地位，微软开发了自己的互联网浏览器 Internet Explorer，免费提供，并坚持将其与 Windows 捆绑在一起。因此，当你买了一台电脑——它可能运行 Windows 操作系统，因为当时大多数电脑都是这样做的——你会默认安装 Internet Explorer，就像你在 iPhone 上预装 Safari 或在 Android 手机上预装谷歌 Play 商店一样，这给了 Internet Explorer 一个明显的优势。
 
@@ -46,7 +46,7 @@
 
 政府 [最初希望将微软](http://www.stern.nyu.edu/networks/Microsoft_Antitrust.final.pdf) 拆分成两家公司(一家生产操作系统软件，另一家经营其余产品)，这类似于科技公司批评家今天对像 [【脸书】](https://www.theguardian.com/commentisfree/2018/nov/20/facebook-google-antitrust-laws-gilded-age) 和 [谷歌](https://www.google.com/search?q=break+up+google) 这样的公司的呼吁。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 但是，经过多年的斗争，政府最终从微软那里得到的唯一让步是一项承诺，即不合谋阻止竞争对手被排除在新电脑之外，并承诺让 Windows 与非微软软件互操作。然而，根据法律教授蒂姆·吴(Tim Wu)和美国参议员理查德·布卢门撒尔(Richard Blumenthal)的说法，这仍然意义重大，他们在《纽约时报》的[专栏](https://www.nytimes.com/2018/05/18/opinion/microsoft-antitrust-case.html) 中写道，这些让步为新技术公司的崛起打开了大门:
 
@@ -56,7 +56,7 @@
 
 安东尼奥·加西亚-马丁内斯 [最近在《连线》](https://www.wired.com/story/what-microsofts-antitrust-case-teaches-us-about-silicon-valley/) 杂志上写道:“今天的巨头们凌驾于他们的王国之上，在他们的用户数据墙后获得安全，并受益于极端的网络效应，这使得来自初创公司的严重竞争几乎不可能，”关于从微软遗产中吸取的教训。“工业时代制定的美国反垄断法没有抓住这些庞大数据帝国的许多新现实和潜在危险。也许他们应该这样做。”
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 * * *
 
@@ -68,7 +68,7 @@
 
 因此，如果结论是，由于政府在 90 年代的反垄断打击，我今天可以(在某种程度上)没有微软，那么问题是，政府现在应该对我发现我不能没有的庞然大物做些什么。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 接下来: [苹果](https://gizmodo.com/i-cut-apple-out-of-my-life-it-was-devastating-1831063868)
 

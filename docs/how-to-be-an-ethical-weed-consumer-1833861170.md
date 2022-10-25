@@ -6,7 +6,7 @@
 
 长期以来，大麻政策在有色人种社区不成比例地执行，这些社区遭受了高 [逮捕率](https://www.nytimes.com/2018/05/13/nyregion/marijuana-arrests-nyc-race.html) 、普遍 [刑事定罪](https://www.washingtonpost.com/news/the-fix/wp/2018/04/20/shifting-views-on-marijuana-highlight-just-how-differently-people-of-color-are-impacted-by-drug-laws/?utm_term=.9b2f60e2c854) 、 [驱逐出境](http://www.drugpolicy.org/news/2017/04/homeland-security-chief-marijuana-possession-grounds-deportation) 以及几乎没有或根本没有经过正当程序就没收财产，这只是所谓的禁毒战争的几个灾难性影响。现在，大麻正在慢慢地被合法化，这很容易让人认为围绕它的道德和法律问题即将结束。可惜没那么简单。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### 道德的大麻消费意味着什么？
 
@@ -16,7 +16,7 @@
 
 但很少有行业像大麻一样经历了如此快速的转变，不久前，大麻被成功地武器化，用于对付有色人种，并大幅提高了监禁率。正如许多戴维斯和德新社所看到的，消费者现在不仅有责任减轻未来的伤害，而且有责任制定政策来弥补过去的错误。这些应该包括立法方面的努力，如 [删除](https://www.npr.org/2019/02/26/698045482/san-francisco-to-expunge-thousands-of-marijuana-convictions) 从大麻定罪开始的犯罪记录，也包括监管方面的努力，如消除 [进入](https://free.vice.com/en_us/article/yw4pkw/weed-industry-equity-black-business) 的障碍，让那些受种族主义毒品法影响的人现在可以合法地参与蓬勃发展的大麻产业。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Be an Ethical Weed Consumer](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-best-way-to-roll-and-smoke-a-joint-1833998419)</aside>
 
@@ -28,7 +28,7 @@
 
 例如，一个名为纽约医用大麻行业协会的行业组织成功游说纽约州州长安德鲁·科莫(Andrew Cuomo)将禁止家庭种植娱乐性大麻纳入其合法化提案。虽然该组织声称其利益与关注公共安全相关，但批评者认为这是压制竞争的明显努力。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 “从我们的角度来看，除了个人和企业的贪婪，很难找到任何真正的理由来反对家庭种植，”全国大麻法律改革组织(NORML， [的执行主任埃里克·阿尔蒂里告诉](https://www.marijuanamoment.net/marijuana-companies-urged-governor-to-ban-cannabis-home-cultivation-document-shows/) 大麻时刻。
 
@@ -40,7 +40,7 @@
 
 简单地说，你必须做功课。“人们应该做研究，人们应该关注，”倡导团体无笼大麻的创始人亚当·万说。具体来说，消费者应该着眼于整个供应链，不管他们是从药房购买还是从送货服务购买。“当你进门时，谁会跟你打招呼？谁带着大麻出现在你家门口？谁是嫩芽？”Vine 问。“这家店是谁的？他们如何支付员工的工资？他们是否雇佣了受毒品战争伤害的人？他们在备货什么产品？那些公司是怎么运作的？他们的所有权团队成员是否来自直接受影响的社区？诸如此类。”
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 正如德新社的戴维斯所说，“这不像任何其他行业。美国有数百万人的生活受到了这些政策不可挽回的伤害，在美国的许多地方，现在仍然如此。”
 
@@ -50,7 +50,7 @@
 
 不幸的是，确保大麻符合道德规范需要付出相对较高的努力，这意味着大多数人不会去理会。Supernova Women 的执行董事安柏·森特(Amber Senter)去年告诉 GQ，尽管大麻在黑人和棕色人种中被监管的方式非常有害，但消费者并没有很好地让这个行业负起责任。
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 “消费者有责任吗？，”森特问道。“嗯，我的意思是，在其他行业，消费者通常会支持黑人和棕色人种的企业吗？有时会，有时不会。你知道吗？我要说他们基本上不知道。那么大麻会有什么不同吗？我高度怀疑。”
 
@@ -58,7 +58,7 @@
 
 “这在过去很难做到，因为自我认同为消费者当然是违法的。但现在，随着耻辱和法律风险的减轻，消费者自我认同并成为自身的强大力量变得至关重要。”
 
-<label class="bxm4mm-13 juykRM">Advertisement</label>
+
 
 ### 最后，不要忘记倡导
 
