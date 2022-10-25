@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/why-you-should-try-a-digital-power-supply-for-your-next-1831724142>
 
-[Lifehacker's Complete Guide to Building a PC](https://pcbuild.kinja.com)) : title[![](../Images/044fbadc98edfd613c34b7c809fe4420.png)](https://pcbuild.kinja.com)[Lifehacker's Complete Guide to Building a PC](https://pcbuild.kinja.com)Building your own desktop PC is a great, geeky pleasure. We'll show you how to do it and everything you need to know to keep your system properly maintained.
+
 
 我总是喜欢知道我的电脑发生了什么，但我倾向于只关注它的冷却能力，因为这直接影响到我工作(或游戏)时我的系统听起来是像一只咕噜咕噜的小猫还是喷气式发动机。然而，我一直很想知道我的系统消耗了多少能量，因为我倾向于让它在 [上的时间比我一天中可能需要的](https://lifehacker.com/use-this-autoclicker-app-to-rack-up-points-on-idle-game-1825654192) 时间更长。
 

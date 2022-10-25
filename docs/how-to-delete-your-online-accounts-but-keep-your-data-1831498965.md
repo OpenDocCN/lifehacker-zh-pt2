@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-delete-your-online-accounts-but-keep-your-data-1831498965>
 
-[Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)) : title[![](../Images/ce8fdf9d40d4898cdc1fe3570dd2a22f.png)](https://dataprivacy.kinja.com)[Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)We'll walk you through everything you should do to live the most secure, private life in the digital era.
+
 
 我喜欢时不时做的事情之一——尤其是每年的这个时候——就是*重新开始*。我会考虑所有我已经注册但实际上没有使用的服务。浏览并删除它们有助于我对自己的数字扩张感觉更好，我建议每个人都定期尝试这种做法。
 

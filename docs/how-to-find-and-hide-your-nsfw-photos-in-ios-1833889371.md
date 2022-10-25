@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-find-and-hide-your-nsfw-photos-in-ios-1833889371>
 
-[Lifehacker's Complete Guide to iOS](https://appleios.kinja.com)) : title[![](../Images/71562cabb8ab94eee70dc08ff80378ef.png)](https://appleios.kinja.com)[Lifehacker's Complete Guide to iOS](https://appleios.kinja.com)Apple's iPhone is easy to learn, but difficult to master. Instead of spending hours sifting through settings yourself, check out our giant collection of guides, tips, and tricks for all things iOS.
+
 
 如果你曾经在手机上拍过 R 级照片，你很可能知道它存在于你的照片库中。我很健忘，但我知道我会记得那个事实。我的意思是，有设置过程——照明很重要！—事实上，你必须至少脱去一部分衣服，在你选定一张完美的照片之前，你将拍下大量的照片，你可能会把这些照片发给某个人(以后可能会后悔)，等等。
 

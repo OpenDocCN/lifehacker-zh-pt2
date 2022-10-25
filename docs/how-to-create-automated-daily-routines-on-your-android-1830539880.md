@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-create-automated-daily-routines-on-your-android-1830539880>
 
-[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)) : title[![](../Images/e2dcc498f7314a475ad7b9879a9d5584.png)](https://androidos.kinja.com)[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)Don't get overwhelmed by Android's many (many!) settings and apps. Master your Android phone or tablet with our ample collection of guides, tips, and tricks.
+
 
 自从亚马逊为其 Echo 设备推出智能音箱以来，我一直在使用智能音箱的日常功能。我不会因为喊出一些随机的短语而引发连锁反应。相反，我在一天中的不同时间启动我的例行程序——实际上，只是起床时间和睡觉时间——这样我就可以快速浏览重要信息，比如天气和即将到来的日历事件。
 

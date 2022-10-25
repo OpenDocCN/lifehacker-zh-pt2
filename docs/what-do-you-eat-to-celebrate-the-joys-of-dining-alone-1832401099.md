@@ -8,7 +8,7 @@
 
 你不仅可以自由地按照自己的具体要求制作菜肴，还可以利用和滥用葡萄酒、牛排、龙虾和其他任何打折的“美味”食品的折扣和优惠。(然而，第二天吃巧克力。后天的巧克力销售无与伦比。)我相信每个人都有自己喜欢的食物，但不被人窥探，我们收集了我们的食物与你分享。
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 许多袋爆米花
 
@@ -16,9 +16,9 @@
 
 艾丽西娅亚当奇克**，个人理财作家**
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 卡夫晚餐
 
@@ -26,9 +26,9 @@
 
 大卫·墨菲，高级技术编辑
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### (奶酪)堆积在(其他东西)堆上
 
@@ -36,9 +36,9 @@
 
 弗吉尼亚·k·史密斯，执行主编
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 蒜味牛排晚餐
 
@@ -46,9 +46,9 @@
 
 食品和饮料编辑克莱尔·洛
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 极端黄油面条
 
@@ -56,9 +56,9 @@
 
 主编梅丽莎·基尔希
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 臭鱼
 
@@ -66,9 +66,9 @@
 
 尼克·道格拉斯，专职作家
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 凌乱的翅膀
 
@@ -76,9 +76,9 @@
 
 约什·奥坎波，专职作家
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 塔可钟
 
@@ -86,9 +86,9 @@
 
 Beth Skwarecki，健康编辑
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 禁忌泰国菜
 
@@ -96,9 +96,9 @@ Beth Skwarecki，健康编辑
 
 乔尔·卡恩，高级视频制作人
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 更多的牛皮纸，加上凤尾鱼披萨
 
@@ -106,6 +106,6 @@ Beth Skwarecki，健康编辑
 
 A.A .牛顿，Skillet 供稿人
 
-</section>
+
 
 你最喜欢的反浪漫餐是什么？你如何庆祝独自吃饭的快乐？它涉及到很多大蒜吗？我感觉它应该包含很多大蒜。

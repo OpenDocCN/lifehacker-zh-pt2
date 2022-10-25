@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-make-your-instagram-account-as-private-as-possib-1836023815>
 
-[Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)) : title[![](../Images/ce8fdf9d40d4898cdc1fe3570dd2a22f.png)](https://dataprivacy.kinja.com)[Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)We'll walk you through everything you should do to live the most secure, private life in the digital era.
+
 
 在上周关于隐私问题的采访中，Instagram 的首席执行官亚当·莫塞里希望你知道:你的隐私没有受到威胁(目前)。他告诉哥伦比亚广播公司的盖尔·金说:“我们不看你的信息，我们不监听你的麦克风，因为很多不同的原因，这样做会有很大的问题。”"但我知道你不会真的相信我。"
 

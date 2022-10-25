@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/psa-your-phone-logs-everywhere-you-go-heres-how-to-t-1486085759>
 
-[Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)) : title[![](../Images/ce8fdf9d40d4898cdc1fe3570dd2a22f.png)](https://dataprivacy.kinja.com)[Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)We'll walk you through everything you should do to live the most secure, private life in the digital era.
+
 
 你可能知道你的 Android 手机或 iPhone 可以通过 GPS、本地搜索或天气定位你的位置。希望你也知道，这意味着你的手机可以随时跟踪你去的任何地方。不要惊慌——这是您为获得功能所做的权衡。如果这让你感到不舒服，以下是如何在 Android 和 iOS 上退出位置跟踪的方法。
 

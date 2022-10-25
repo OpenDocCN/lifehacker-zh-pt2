@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/lock-down-your-webcam-with-this-mac-app-1836663360>
 
-[Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)) : title[![](../Images/80a55aae3a4e6ac59b23fae8fccddf22.png)](https://applemacos.kinja.com)[Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)Many people turn to Macs because they're incredibly easy to operate. That's true, but there's still plenty worth knowing before you can truly master your Mac.
+
 
 macOS: 当一个应用程序想要使用你的网络摄像头时，这很容易判断，对吗？你的 Mac 电脑前面有一个绿色的小 LED 灯亮起，你要么为即将到来的视频会议露出最好的笑容，要么因为你认为你没有启动任何需要网络摄像头的应用程序而抓狂。
 

@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-safely-opt-your-device-out-of-the-android-q-beta-1833378770>
 
-[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)) : title[![](../Images/e2dcc498f7314a475ad7b9879a9d5584.png)](https://androidos.kinja.com)[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)Don't get overwhelmed by Android's many (many!) settings and apps. Master your Android phone or tablet with our ample collection of guides, tips, and tricks.
+
 
 虽然谷歌允许用户通过一个公共测试程序测试 T2 安卓 10 T3 T4，但这并不适合所有人。如果你更新到 Android 10 测试版，发现你的设备速度变慢了，电池效率降低了，或者某些应用程序没有按照预期的方式运行(或者根本没有运行)，那么 [你并不孤单](https://www.androidcentral.com/what-android-q-bugs-have-you-discovered) ，很可能你需要回滚到 Android 9。
 

@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/try-out-iphone-automation-with-this-list-of-150-ios-sh-1833153395>
 
-[Lifehacker's Complete Guide to iOS](https://appleios.kinja.com)) : title[![](../Images/71562cabb8ab94eee70dc08ff80378ef.png)](https://appleios.kinja.com)[Lifehacker's Complete Guide to iOS](https://appleios.kinja.com)Apple's iPhone is easy to learn, but difficult to master. Instead of spending hours sifting through settings yourself, check out our giant collection of guides, tips, and tricks for all things iOS.
+
 
 我承认，自从去年九月功能首次亮相以来，我还没有真正接触过 iOS 快捷方式，但不要让我的懒惰阻止你摆弄它们。如果你刚刚开始，你应该找到一些很棒的预制快捷方式集成到你的设备中，而不是花太多时间去弄清楚如何构建自己的快捷方式。那也很有趣，但是还没有必要跳到深水区。
 

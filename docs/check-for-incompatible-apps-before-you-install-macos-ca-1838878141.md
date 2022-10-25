@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/check-for-incompatible-apps-before-you-install-macos-ca-1838878141>
 
-[Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)) : title[![](../Images/80a55aae3a4e6ac59b23fae8fccddf22.png)](https://applemacos.kinja.com)[Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)Many people turn to Macs because they're incredibly easy to operate. That's true, but there's still plenty worth knowing before you can truly master your Mac.
+
 
 苹果最新的操作系统更新——昨天发布——带有许多令人兴奋的新功能。然而，macOS Catalina 也有一个很大的缺点:苹果不再让你运行 32 位应用程序。如果这对你来说是一个大问题，或者你担心你需要的关键应用程序在最新的操作系统中不受支持，你有一些简单的方法来检查。
 

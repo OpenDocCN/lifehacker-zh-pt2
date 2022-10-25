@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-set-up-wireless-audio-sharing-in-ios-13-1836604560>
 
-[Lifehacker's Complete Guide to iOS](https://appleios.kinja.com)) : title[![](../Images/71562cabb8ab94eee70dc08ff80378ef.png)](https://appleios.kinja.com)[Lifehacker's Complete Guide to iOS](https://appleios.kinja.com)Apple's iPhone is easy to learn, but difficult to master. Instead of spending hours sifting through settings yourself, check out our giant collection of guides, tips, and tricks for all things iOS.
+
 
 iOS 13 和 iPadOS 13 带有一个新功能，可以更容易地与朋友分享音频。当然，你可以走“你们两人使用一副耳塞的一半”的路线，但这不是体验音乐或观看视频的最佳方式——毕竟，两个听众都错过了一个音频通道。虽然你总是可以得到一个 3.5 毫米的分离器，但我们怀疑你会和你的朋友们一起摇摆。
 

@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/which-wifi-channels-should-i-use-for-my-wireless-networ-1832788063>
 
-[Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)) : title[![](../Images/be764d30b532adad70daeee8be76d9d7.png)](https://wifiguide.kinja.com)[Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)Wireless networking is complicated, but it doesn't have to be. Let us help you out.
+
 
 显然，一群 Lifehacker 的读者在使用无线网络时遇到了问题——无论你是试图从很远的地方连接，还是你的设备速度很慢，或者你因为有 300 个不同的无线网络辐射着你的公寓而感到沮丧。
 

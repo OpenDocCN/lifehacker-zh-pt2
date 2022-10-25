@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-share-your-music-in-macos-catalina-1837417285>
 
-[Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)) : title[![](../Images/80a55aae3a4e6ac59b23fae8fccddf22.png)](https://applemacos.kinja.com)[Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)Many people turn to Macs because they're incredibly easy to operate. That's true, but there's still plenty worth knowing before you can truly master your Mac.
+
 
 当 macOS Catalina 最终退出时，你会注意到许多重大变化。其中最令人难忘的是苹果将 iTunes 转变为独立的音乐、视频和播客应用。我们喜欢这一举动，但它也带来了一些问题，比如“你如何在家里分享媒体？”
 

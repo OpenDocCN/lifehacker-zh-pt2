@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-take-better-nighttime-photos-with-your-smartphon-1836434034>
 
-[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)) : title[![](../Images/e2dcc498f7314a475ad7b9879a9d5584.png)](https://androidos.kinja.com)[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)Don't get overwhelmed by Android's many (many!) settings and apps. Master your Android phone or tablet with our ample collection of guides, tips, and tricks.
+
 
 智能手机相机的性能比过去好得多，但在夜间摄影时，它们仍然有点有限。无论你是在酒吧还是在月光下抓拍照片，你手机的相机传感器可能仍然太小，无法与全尺寸相机媲美。
 

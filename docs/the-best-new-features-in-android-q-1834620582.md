@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/the-best-new-features-in-android-q-1834620582>
 
-[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)) : title[![](../Images/e2dcc498f7314a475ad7b9879a9d5584.png)](https://androidos.kinja.com)[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)Don't get overwhelmed by Android's many (many!) settings and apps. Master your Android phone or tablet with our ample collection of guides, tips, and tricks.
+
 
 谷歌移动操作系统的下一个版本 Android 10 还没有准备好迎接黄金时间。对于那些不介意遇到一两个错误的勇敢的少数人，你可以下载第三个测试版的 [Android 10 ，并在其他人可用之前在你的 Android 手机上试用。](https://lifehacker.com/how-to-enable-all-the-new-android-q-beta-3-features-1834608705)
 

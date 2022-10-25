@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/the-best-privacy-and-security-focused-web-browsers-1672758270>
 
-[Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)) : title[![](../Images/ce8fdf9d40d4898cdc1fe3570dd2a22f.png)](https://dataprivacy.kinja.com)[Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)We'll walk you through everything you should do to live the most secure, private life in the digital era.
+
 
 如果你允许的话，你的网络浏览器知道很多关于你的信息，也会告诉你访问的网站很多关于你的信息。我们已经讨论过哪些浏览器是最好的[广告拦截](https://lifehacker.com/the-best-browsers-for-ad-blocking-that-arent-chrome-1835130559) ，但在本指南中，我们将重点关注那些你想要用来更好地向所有想要跟踪你的数字生活的广告商隐藏你的一切的浏览器。
 

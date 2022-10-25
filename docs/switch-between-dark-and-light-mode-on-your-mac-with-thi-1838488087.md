@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/switch-between-dark-and-light-mode-on-your-mac-with-thi-1838488087>
 
-[Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)) : title[![](../Images/80a55aae3a4e6ac59b23fae8fccddf22.png)](https://applemacos.kinja.com)[Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)Many people turn to Macs because they're incredibly easy to operate. That's true, but there's still plenty worth knowing before you can truly master your Mac.
+
 
 Mojave 引入的 macOS 最好的部分之一是操作系统的黑暗模式。这是一个全系统的触发器，在你的核心 Mac 应用程序和任何支持该功能的第三方应用程序中给你一个更暗淡的颜色主题——我认为它对眼睛来说更容易，但也许这只是我的看法。
 

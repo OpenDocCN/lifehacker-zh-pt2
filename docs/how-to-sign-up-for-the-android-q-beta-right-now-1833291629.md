@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-sign-up-for-the-android-q-beta-right-now-1833291629>
 
-[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)) : title[![](../Images/e2dcc498f7314a475ad7b9879a9d5584.png)](https://androidos.kinja.com)[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)Don't get overwhelmed by Android's many (many!) settings and apps. Master your Android phone or tablet with our ample collection of guides, tips, and tricks.
+
 
 本周，Android 操作系统周期再次开始，谷歌 [宣布了 Android Q](https://android-developers.googleblog.com/2019/03/introducing-android-q-beta.html) 的更多细节，并为那些想一窥其内幕的冒险类型发布了第一个早期测试版。如果你是这些人中的一员，并且你有一部谷歌 Pixel 手机，你现在就可以注册测试版，并在请求的 24 小时内(如果不是更早的话)开始试用 Android Q。
 

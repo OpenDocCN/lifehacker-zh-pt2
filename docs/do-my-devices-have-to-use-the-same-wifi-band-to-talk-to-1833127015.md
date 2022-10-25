@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/do-my-devices-have-to-use-the-same-wifi-band-to-talk-to-1833127015>
 
-[Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)) : title[![](../Images/be764d30b532adad70daeee8be76d9d7.png)](https://wifiguide.kinja.com)[Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)Wireless networking is complicated, but it doesn't have to be. Let us help you out.
+
 
 每个人都有关于无线网络的问题，这完全没关系。关于 wifi，你可能还有很多不知道的，即使你已经成功设置了路由器，现在正坐在那里，在你的笔记本电脑、台式机、智能手机或平板电脑上浏览 Lifehacker。
 

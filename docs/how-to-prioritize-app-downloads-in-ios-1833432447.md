@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-prioritize-app-downloads-in-ios-1833432447>
 
-[Lifehacker's Complete Guide to iOS](https://appleios.kinja.com)) : title[![](../Images/71562cabb8ab94eee70dc08ff80378ef.png)](https://appleios.kinja.com)[Lifehacker's Complete Guide to iOS](https://appleios.kinja.com)Apple's iPhone is easy to learn, but difficult to master. Instead of spending hours sifting through settings yourself, check out our giant collection of guides, tips, and tricks for all things iOS.
+
 
 我对之前不知道这一点感到有点遗憾，但这是 iOS 的乐趣之一:总会有一些随机的新事物，比如如何一次移动许多应用程序的技巧 ，不时出现在你的极客雷达上。
 

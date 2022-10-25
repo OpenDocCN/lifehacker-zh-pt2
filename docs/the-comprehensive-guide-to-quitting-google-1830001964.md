@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/the-comprehensive-guide-to-quitting-google-1830001964>
 
-[Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)) : title[![](../Images/ce8fdf9d40d4898cdc1fe3570dd2a22f.png)](https://dataprivacy.kinja.com)[Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)We'll walk you through everything you should do to live the most secure, private life in the digital era.
+
 
 尽管谷歌庞大的生态系统既方便又优质，但一些用户已经受够了该公司最近在 Gmail、Chrome 和其他服务中实施的可疑隐私政策。值得称赞的是， [谷歌已经做出了很好的改变](https://lifehacker.com/how-to-clear-your-search-history-off-of-googles-servers-1829966097#_ga=2.25775860.856842449.1540819232-2127637903.1532515930) 以回应 [对用户反馈](https://lifehacker.com/how-to-disable-chromes-automatic-sign-ins-in-version-70-1829819727#_ga=2.25775860.856842449.1540819232-2127637903.1532515930) 的回应，但这并没有减少该公司在互联网上的阴影。如果你准备抛弃谷歌，甚至只是减少它在你的数字生活中的存在，这个指南可以帮助你。
 

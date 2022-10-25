@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-install-the-latest-apple-betas-if-youre-not-a-de-1835296432>
 
-[Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)) : title[![](../Images/80a55aae3a4e6ac59b23fae8fccddf22.png)](https://applemacos.kinja.com)[Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)Many people turn to Macs because they're incredibly easy to operate. That's true, but there's still plenty worth knowing before you can truly master your Mac.
+
 
 是时候尝试一下苹果公司在库比蒂诺实验室酝酿的所有新功能和调整了——如果你是一名开发者，那么就是 T1、T2、T3、T4 和 T5。虽然苹果现在正在预览 iOS、macOS、tvOS 和 watchOS 的最新和最棒版本作为测试版，但只有在你每年向苹果支付 99 美元以参与其 [开发者计划](https://developer.apple.com/programs/) 的情况下，你才能(正式)访问它们。
 

@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/use-your-ipad-as-a-secondary-display-in-macos-catalina-1836053578>
 
-[Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)) : title[![](../Images/80a55aae3a4e6ac59b23fae8fccddf22.png)](https://applemacos.kinja.com)[Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)Many people turn to Macs because they're incredibly easy to operate. That's true, but there's still plenty worth knowing before you can truly master your Mac.
+
 
 你会在 macOS Catalina 中发现一个更简洁的功能——至少肯定引起了我的注意——是苹果新的“Sidecar”模式。就像大型摩托车上的小座椅一样，Sidecar 可以让你将 iPad 连接到 Mac 上，并将其用作辅助显示器。如果你有一支苹果铅笔，你甚至可以和屏幕上的物体互动。
 

@@ -2,7 +2,6 @@
 
 > 原文：<https://lifehacker.com/all-the-questions-to-ask-before-starting-your-own-busin-1832880662>
 
-[Get Ready To...](https://worksmarter.kinja.com)) : title[![](../Images/6df5a12c55ead4b12ad20872c9620c3d.png)](https://worksmarter.kinja.com)[Get Ready To...](https://worksmarter.kinja.com)Running a small business is hard work, but we're here to help. Welcome to Work Smarter, your one-stop-shop for tips and tricks to help small business owners save time and energy.
 
 创业是一个看似复杂的过程。这不是“想出一个伟大的商业想法”和“将这个想法付诸行动”那么简单
 

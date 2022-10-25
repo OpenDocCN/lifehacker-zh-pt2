@@ -6,7 +6,7 @@
 
 
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### *一个明星的诞生*
 
@@ -14,9 +14,9 @@
 
 主编梅丽莎·基尔希
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### *黑骑士*
 
@@ -24,9 +24,9 @@
 
 尼克·道格拉斯，专职作家
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### *狗岛*
 
@@ -34,9 +34,9 @@
 
 乔尔·卡恩，高级视频制作人
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### *绿皮书*
 
@@ -44,9 +44,9 @@
 
 艾丽西娅·亚当奇克，个人理财作家
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### *老虎钳*
 
@@ -54,9 +54,9 @@
 
 食品和饮料编辑克莱尔·洛
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### *波西米亚狂想曲*
 
@@ -64,7 +64,7 @@
 
 弗吉尼亚·k·史密斯，执行主编
 
-</section>
+
 
 现在轮到你了:告诉我们，法律是否要求我们观看*第一人*、*最受欢迎的*和*拉尔夫断网*？
 

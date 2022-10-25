@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-get-android-notifications-on-your-windows-pc-1836078297>
 
-[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)) : title[![](../Images/e2dcc498f7314a475ad7b9879a9d5584.png)](https://androidos.kinja.com)[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)Don't get overwhelmed by Android's many (many!) settings and apps. Master your Android phone or tablet with our ample collection of guides, tips, and tricks.
+
 
 在手机和电脑之间来回切换可能会很烦人。 [一些消息应用](https://lifehacker.com/the-best-whatsapp-alternatives-1832064581) 有网络客户端，所以你不必打开你的设备来进行对话。但有一种更简单的方式来回复信息、查看通知和打开 Android 设备的屏幕，而不必将眼睛从 PC 上移开。
 

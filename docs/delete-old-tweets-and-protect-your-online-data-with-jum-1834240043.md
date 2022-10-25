@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/delete-old-tweets-and-protect-your-online-data-with-jum-1834240043>
 
-[Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)) : title[![](../Images/ce8fdf9d40d4898cdc1fe3570dd2a22f.png)](https://dataprivacy.kinja.com)[Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)We'll walk you through everything you should do to live the most secure, private life in the digital era.
+
 
 iOS: 我是那些在一个简单易用的界面上给你提供一堆有用的隐私工具的应用程序的忠实粉丝，这就是为什么我认为免费的 iOS 应用程序 [**Jumbo**](https://itunes.apple.com/us/app/jumbo-privacy/id1454039975?mt=8&ign-mpt=uo%3D2) 是你的 iOS 武器库中的必备之物。有了它，你可以清理 Twitter，限制其他人在脸书看到你的生活，删除你的谷歌搜索历史，并清除你与 Alexa 的所有亚马逊对话记录。(针对你的 Instagram 和 Tinder 账户的数据隐私控制“即将推出”。)
 

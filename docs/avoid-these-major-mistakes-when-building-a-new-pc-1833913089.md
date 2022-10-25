@@ -2,7 +2,6 @@
 
 > 原文：<https://lifehacker.com/avoid-these-major-mistakes-when-building-a-new-pc-1833913089>
 
-[Lifehacker's Complete Guide to Building a PC](https://pcbuild.kinja.com)) : title[![](../Images/044fbadc98edfd613c34b7c809fe4420.png)](https://pcbuild.kinja.com)[Lifehacker's Complete Guide to Building a PC](https://pcbuild.kinja.com)Building your own desktop PC is a great, geeky pleasure. We'll show you how to do it and everything you need to know to keep your system properly maintained.
 
 如果你曾经制造过台式个人电脑——如果你没有，你应该试一试——那么你可能至少有过一次(或者可能有几次)失败。它发生了。计算机仍然是一个小小的综合体，无论你是在建造一个基本的钻机还是用可怕的、会毁坏零件的液体来冷却你的系统。
 

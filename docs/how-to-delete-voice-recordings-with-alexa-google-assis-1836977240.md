@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-delete-voice-recordings-with-alexa-google-assis-1836977240>
 
-[Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)) : title[![](../Images/ce8fdf9d40d4898cdc1fe3570dd2a22f.png)](https://dataprivacy.kinja.com)[Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)We'll walk you through everything you should do to live the most secure, private life in the digital era.
+
 
 我们可以通过与 Alexa、Siri 和 Google Assistant 等数字助理的语音交互来控制如此多的设备。这可能非常方便，但也可能令人头疼，因为科技公司现在拥有你的声音和互动记录。
 

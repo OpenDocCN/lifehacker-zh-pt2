@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-opt-out-of-companies-sharing-your-data-with-thir-1837096307>
 
-[Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)) : title[![](../Images/ce8fdf9d40d4898cdc1fe3570dd2a22f.png)](https://dataprivacy.kinja.com)[Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)We'll walk you through everything you should do to live the most secure, private life in the digital era.
+
 
 周三，一项针对苹果 的集体诉讼被提起，原因是人们发现 iPhone 的虚拟助手 Siri 保留了一些用户的语音记录，以改进其语音识别软件。虽然 T4 的“监听程序”目前被禁用，但苹果计划在未来某个不确定的时间为用户创建一个退出功能。苹果公司审核完这些数据后，也不清楚这些数据会去哪里。
 

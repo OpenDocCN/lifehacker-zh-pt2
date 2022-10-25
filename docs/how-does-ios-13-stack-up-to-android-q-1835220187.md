@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-does-ios-13-stack-up-to-android-q-1835220187>
 
-[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)) : title[![](../Images/e2dcc498f7314a475ad7b9879a9d5584.png)](https://androidos.kinja.com)[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)Don't get overwhelmed by Android's many (many!) settings and apps. Master your Android phone or tablet with our ample collection of guides, tips, and tricks.
+
 
 忘记*权力的游戏*。有史以来最伟大的故事是两个备受推崇的平台之一:iOS 和 Android。它们处于持续的竞争中，从来不缺少阴影，无论是苹果在 WWDC 19 年的主题演讲中扔出一颗关于安卓翻转开关隐私的真相炸弹，还是谷歌在开发者大会上展示其集成人工智能的威力。
 

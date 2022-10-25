@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-download-and-install-older-macos-versions-with-t-1839671161>
 
-[Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)) : title[![](../Images/80a55aae3a4e6ac59b23fae8fccddf22.png)](https://applemacos.kinja.com)[Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)Many people turn to Macs because they're incredibly easy to operate. That's true, but there's still plenty worth knowing before you can truly master your Mac.
+
 
 当需要安装新版 macOS 或下载新的更新时，几乎每个人都会去 Mac App Store 开始这个过程。虽然 App Store 使操作系统的安装变得简单且相对容易，但它并不总是有效的——也许是时候转向终端(和一点创造力)了。
 

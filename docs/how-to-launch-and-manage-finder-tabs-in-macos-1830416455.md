@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-launch-and-manage-finder-tabs-in-macos-1830416455>
 
-[Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)) : title[![](../Images/80a55aae3a4e6ac59b23fae8fccddf22.png)](https://applemacos.kinja.com)[Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)Many people turn to Macs because they're incredibly easy to operate. That's true, but there's still plenty worth knowing before you can truly master your Mac.
+
 
 如果你不知道 macOS Finder 有内置标签，请做好准备，至少，如果你之前在管理文件时用新的 Finder 窗口填满了你的桌面。不要依赖于**命令+ N** ，向上向左切换你的手指，**命令+ T** 将允许你在一个 finder 窗口中打开大量标签。
 

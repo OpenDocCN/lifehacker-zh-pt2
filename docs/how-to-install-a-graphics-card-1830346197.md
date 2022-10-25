@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-install-a-graphics-card-1830346197>
 
-[Lifehacker's Complete Guide to Building a PC](https://pcbuild.kinja.com)) : title[![](../Images/044fbadc98edfd613c34b7c809fe4420.png)](https://pcbuild.kinja.com)[Lifehacker's Complete Guide to Building a PC](https://pcbuild.kinja.com)Building your own desktop PC is a great, geeky pleasure. We'll show you how to do it and everything you need to know to keep your system properly maintained.
+
 
 在每个游戏玩家的一生中，总会有一段时间，他们老化的显卡不再适用。虽然你的旧卡多年来的服务值得称赞——你们两个可能在一起有许多美好的回忆——但现在是时候让你的朋友在其他地方度过它的日子，升级到更新、更快、更贵的东西了。
 

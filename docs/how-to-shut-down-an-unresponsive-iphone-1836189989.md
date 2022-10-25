@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-shut-down-an-unresponsive-iphone-1836189989>
 
-[Lifehacker's Complete Guide to iOS](https://appleios.kinja.com)) : title[![](../Images/71562cabb8ab94eee70dc08ff80378ef.png)](https://appleios.kinja.com)[Lifehacker's Complete Guide to iOS](https://appleios.kinja.com)Apple's iPhone is easy to learn, but difficult to master. Instead of spending hours sifting through settings yourself, check out our giant collection of guides, tips, and tricks for all things iOS.
+
 
 如果你的 iPhone 给你带来了麻烦，简单的重启是一个快速解决问题的方法。但是，如果你的设备冻结了，你不能召唤标准的“滑动关机”屏幕怎么办？
 

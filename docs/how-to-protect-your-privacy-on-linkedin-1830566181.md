@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-protect-your-privacy-on-linkedin-1830566181>
 
-[Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)) : title[![](../Images/ce8fdf9d40d4898cdc1fe3570dd2a22f.png)](https://dataprivacy.kinja.com)[Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)We'll walk you through everything you should do to live the most secure, private life in the digital era.
+
 
 我们最近花了很多时间来研究脸书对我们个人生活中的信息做了什么——但脸书不是唯一一个你分享自己很多信息的地方。LinkedIn 是每个人最喜欢的职业网络服务，它从你那里获得大量关于你的职业和兴趣的数据，并利用这些数据销售广告和其他服务。你绝对应该小心你在 LinkedIn 上发布的信息，尽你所能限制你可能认为是隐私的数据的自由流动。以下是一些开始的方法。
 

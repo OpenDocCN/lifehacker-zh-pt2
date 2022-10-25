@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/which-wifi-band-should-i-use-for-my-devices-1832635625>
 
-[Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)) : title[![](../Images/be764d30b532adad70daeee8be76d9d7.png)](https://wifiguide.kinja.com)[Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)Wireless networking is complicated, but it doesn't have to be. Let us help you out.
+
 
 无线网络有点像你的汽车(或地震多发的加州住宅)的应急包。当它在那里的时候，你真的不会想太多，但是当你需要它的时候，你会注意到它不见了。此外，你要确保它的设置能给你最好的体验。
 

@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-find-websites-that-wont-give-out-your-private-in-1832395514>
 
-[Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)) : title[![](../Images/ce8fdf9d40d4898cdc1fe3570dd2a22f.png)](https://dataprivacy.kinja.com)[Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)We'll walk you through everything you should do to live the most secure, private life in the digital era.
+
 
 这些天，我们的私人信息被公开拍卖，出价最高的。收藏者通过在我们的收件箱和社交媒体账户中投放广告来锁定我们。更糟糕的是，像脸书这样的网站明显影响着我们电脑和手机上的生活(关于 2016 年选举..).
 

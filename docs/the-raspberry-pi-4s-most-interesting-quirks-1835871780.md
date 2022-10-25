@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/the-raspberry-pi-4s-most-interesting-quirks-1835871780>
 
-[Lifehacker's Complete Guide to Raspberry Pi](https://raspberrypiguide.kinja.com)) : title[![](../Images/051582a87daf38ca09cf7f704ce5f720.png)](https://raspberrypiguide.kinja.com)[Lifehacker's Complete Guide to Raspberry Pi](https://raspberrypiguide.kinja.com)Everyone wants a tiny little computer that can do it all, but how do you get started? Use this guide to master your brand-new Raspberry Pi.
+
 
 Raspberry Pi 4 Model B 终于来了， [一款 35 美元的设备](https://gizmodo.com/the-new-raspberry-pi-is-basically-a-35-desktop-compute-1835804060) ，它将许多有用的技术集成在一块电路板上，你可以拿在手中。它甚至可能是你的下一台廉价电脑，假设你能忍受狂热爱好者在早期测试中确定的一些权衡。
 

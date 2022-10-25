@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-get-the-exclusive-samsung-galaxy-note-10-wallpap-1837578345>
 
-[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)) : title[![](../Images/e2dcc498f7314a475ad7b9879a9d5584.png)](https://androidos.kinja.com)[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)Don't get overwhelmed by Android's many (many!) settings and apps. Master your Android phone or tablet with our ample collection of guides, tips, and tricks.
+
 
 当新的智能手机问世时，我总是嫉妒它们的壁纸——通常是一些华丽的独家背景，你不能简单地从制造商的网站上下载到你的旧设备上。
 

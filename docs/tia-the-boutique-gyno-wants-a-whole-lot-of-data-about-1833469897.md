@@ -12,13 +12,13 @@ Tia 诊所是一家只对会员开放的医生诊所，最近在纽约市开设�
 
 根据其网站上的文字，Tia 认为“女性应该拥有一切”，女性医疗保健的核心问题之一是，你不能“ [像与朋友聊天一样与医生聊天](https://asktia.com/) “按需”。为了解决这个问题，该诊所于 3 月 7 日开始接诊患者，将自己定位为满足职业女性需求的一站式商店，将妇科服务与初级保健和对整体倾向者有吸引力的附加服务相结合，或者对那些传统医学根本没有起到预期作用的人有吸引力。
 
-<section class="q35npn-0 MZtuu">
+
 
 #### 联系特别项目服务台
 
 本帖由 Gizmodo Media 的 [特别项目组制作。](https://specialprojectsdesk.com) 知道一些我们应该知道的事情吗？请发送电子邮件至 tips@gizmodomedia.comT5T7】联系我们，或使用T9】SecureDropT11】安全地联系我们。
 
-</section>
+
 
 除了产科医生/GYN，Tia 还有一名自然疗法医生、治疗师和“ [”训练有素的千里眼](https://www.experiencesevensenses.com/meet-dr-erica-matluck) ”员工，他们提供冥想研习班和一对一咨询。后一种 [疗程的费用为](https://asktia.com/assets/pdf/PricingSheet.pdf)【Tia 会员 299 美元，其他人 425 美元:会员费只能进入诊所提供适当的医疗服务，对于巴氏涂片和流感疫苗等服务，Tia 接受 Aetna 等公司的保险或直接现金。
 

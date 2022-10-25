@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-choose-a-vpn-1831320407>
 
-[Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)) : title[![](../Images/ce8fdf9d40d4898cdc1fe3570dd2a22f.png)](https://dataprivacy.kinja.com)[Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)We'll walk you through everything you should do to live the most secure, private life in the digital era.
+
 
 找到一个好的 VPN 服务可能是一项具有挑战性的任务——这是委婉的说法。不难找到*任何* VPN 服务。有很多应用程序承诺通过第三方服务器对你的连接进行加密，使你的请求看起来像是来自所述服务器 (即使它在地球的另一边)，而不是你更容易识别的设备。
 

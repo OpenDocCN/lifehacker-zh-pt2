@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-manage-cloudflares-new-dns-app-1830435734>
 
-[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)) : title[![](../Images/e2dcc498f7314a475ad7b9879a9d5584.png)](https://androidos.kinja.com)[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)Don't get overwhelmed by Android's many (many!) settings and apps. Master your Android phone or tablet with our ample collection of guides, tips, and tricks.
+
 
 免费 DNS 提供商 Cloudflare 最近发布了一款全新的应用程序，用于 [**iOS**](https://itunes.apple.com/us/app/1-1-1-1-faster-internet/id1423538627?mt=8) 和[**Android**](https://play.google.com/store/apps/details?id=com.cloudflare.onedotonedotonedotone&hl=en_US)，【1.1.1】，这使得通过 [该服务的高速服务器](https://www.cloudflare.com/learning/dns/what-is-1.1.1.1/) ，而不是你的 ISP(可能更慢)服务器来路由你设备的所有 DNS 请求变得非常容易。换句话说，这会让你的网页浏览感觉更快。更好的是，Cloudflare 表示，它不会存储任何关于你正在浏览的内容的数据——这可能与你的 ISP 不同。有什么不喜欢的呢？
 

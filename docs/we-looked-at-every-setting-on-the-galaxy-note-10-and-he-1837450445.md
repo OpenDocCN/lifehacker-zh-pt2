@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/we-looked-at-every-setting-on-the-galaxy-note-10-and-he-1837450445>
 
-[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)) : title[![](../Images/e2dcc498f7314a475ad7b9879a9d5584.png)](https://androidos.kinja.com)[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)Don't get overwhelmed by Android's many (many!) settings and apps. Master your Android phone or tablet with our ample collection of guides, tips, and tricks.
+
 
 三星 Galaxy Note 10 发布日快乐！无论你是急切地等待联邦快递的人来送你的新玩具，还是准备开始使用你的新智能手机，有一个事实是真的:你的设备有大量的设置。我认为，设置太多了，没有什么比不得不费力地浏览一大堆菜单来弄清楚如何根据自己的喜好定制一个新玩意儿 更让人扫兴的了。
 

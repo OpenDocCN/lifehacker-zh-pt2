@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-set-up-guest-mode-on-your-android-1835913254>
 
-[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)) : title[![](../Images/e2dcc498f7314a475ad7b9879a9d5584.png)](https://androidos.kinja.com)[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)Don't get overwhelmed by Android's many (many!) settings and apps. Master your Android phone or tablet with our ample collection of guides, tips, and tricks.
+
 
 无论你的手机有多干净或安全，当有人借用它时，我们都会经历一些焦虑——即使只有几分钟。不管是好是坏，我们使用智能手机来管理生活中的重要部分，一条错误的短信或一句意外的“我把那张照片留在了我最近使用的应用程序列表中”会导致巨大的悲痛。
 

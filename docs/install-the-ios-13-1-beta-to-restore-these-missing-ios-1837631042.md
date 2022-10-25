@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/install-the-ios-13-1-beta-to-restore-these-missing-ios-1837631042>
 
-[Lifehacker's Complete Guide to iOS](https://appleios.kinja.com)) : title[![](../Images/71562cabb8ab94eee70dc08ff80378ef.png)](https://appleios.kinja.com)[Lifehacker's Complete Guide to iOS](https://appleios.kinja.com)Apple's iPhone is easy to learn, but difficult to master. Instead of spending hours sifting through settings yourself, check out our giant collection of guides, tips, and tricks for all things iOS.
+
 
 iOS 13.0 [甚至还没有*出*](https://lifehacker.com/how-to-enroll-in-the-ios-13-macos-catalina-and-ipados-1835814672)已经到了开始测试 iOS 13.1 的时候了。这个新版本的 iOS 绝对值得一试，因为它添加了苹果从 iOS 13 的各个版本中删除的一些功能。
 

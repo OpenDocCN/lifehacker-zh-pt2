@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/these-are-all-the-new-google-camera-changes-in-android-1837071539>
 
-[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)) : title[![](../Images/e2dcc498f7314a475ad7b9879a9d5584.png)](https://androidos.kinja.com)[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)Don't get overwhelmed by Android's many (many!) settings and apps. Master your Android phone or tablet with our ample collection of guides, tips, and tricks.
+
 
 最终的 Android 10Beta—[Android 10Beta 6](https://android-developers.googleblog.com/2019/08/final-beta-update-official-android-q.html)—现在可供开发者和发烧友们玩。这一版本向我们展示了一幅近乎完整的图片，展示了 Android 10 的公开版本将会是什么样子，其中包括谷歌正在对其相机应用进行的一些调整。
 

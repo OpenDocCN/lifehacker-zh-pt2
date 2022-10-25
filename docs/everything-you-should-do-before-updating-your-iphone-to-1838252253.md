@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/everything-you-should-do-before-updating-your-iphone-to-1838252253>
 
-[Lifehacker's Complete Guide to iOS](https://appleios.kinja.com)) : title[![](../Images/71562cabb8ab94eee70dc08ff80378ef.png)](https://appleios.kinja.com)[Lifehacker's Complete Guide to iOS](https://appleios.kinja.com)Apple's iPhone is easy to learn, but difficult to master. Instead of spending hours sifting through settings yourself, check out our giant collection of guides, tips, and tricks for all things iOS.
+
 
 iOS 13 发布日快乐！既然 [更新已经上线](https://lifehacker.com/what-time-will-ios-13-and-ipados-13-launch-on-thursday-1838183688) ，就不要急着点击进入 iOS 大更新。在开始安装之前，你可以做一些事情——真的，值得一年至少做一次的事情，iOS 更新时间是做这些事情的完美提醒。
 

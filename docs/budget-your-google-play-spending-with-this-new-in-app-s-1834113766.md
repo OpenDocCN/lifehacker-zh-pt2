@@ -2,7 +2,6 @@
 
 > 原文：<https://lifehacker.com/budget-your-google-play-spending-with-this-new-in-app-s-1834113766>
 
-[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)) : title[![](../Images/e2dcc498f7314a475ad7b9879a9d5584.png)](https://androidos.kinja.com)[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)Don't get overwhelmed by Android's many (many!) settings and apps. Master your Android phone or tablet with our ample collection of guides, tips, and tricks.
 
 应用程序最大的优点之一就是它们的可负担性。通常，移动应用程序可以做桌面或基于网络的软件和服务可以做的事情，但价格却很低。甚至一些应用程序高级版本的应用内购买和月订阅通常也很少——通常不超过一杯咖啡。
 

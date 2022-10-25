@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-maintain-relative-privacy-on-dating-apps-1832657379>
 
-[Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)) : title[![](../Images/ce8fdf9d40d4898cdc1fe3570dd2a22f.png)](https://dataprivacy.kinja.com)[Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)We'll walk you through everything you should do to live the most secure, private life in the digital era.
+
 
 无论你是在 Tinder，Hinge，还是 [Tudder](https://www.reuters.com/article/us-valentines-day-cows/tinder-for-cows-matches-livestockin-the-mood-for-love-idUSKCN1Q226F) (这是一款让农民遇见奶牛的 app，柏拉图式的！)，安全是关键。当你被一个屏幕和一张模糊的照片隔开时，你永远不知道你会遇见谁。
 

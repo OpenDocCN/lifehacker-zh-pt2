@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-trigger-automatic-shortcuts-in-ios-13-1835516448>
 
-[Lifehacker's Complete Guide to iOS](https://appleios.kinja.com)) : title[![](../Images/71562cabb8ab94eee70dc08ff80378ef.png)](https://appleios.kinja.com)[Lifehacker's Complete Guide to iOS](https://appleios.kinja.com)Apple's iPhone is easy to learn, but difficult to master. Instead of spending hours sifting through settings yourself, check out our giant collection of guides, tips, and tricks for all things iOS.
+
 
 iOS 13 的 [测试版面向开发者](https://lifehacker.com/how-to-install-the-ios-13-beta-right-now-and-why-you-m-1835241537) ，测试人员正在寻找一系列 [新功能](https://lifehacker.com/all-the-big-ios-13-changes-apple-announced-at-wwdc-19-1835216984) ，我们其他人将能够在几个月后接触到它们。iOS 13 最方便的变化之一是在 Shortcuts 应用程序中添加了自动触发器。
 

@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/the-best-ios-13-tricks-you-havent-tried-yet-1835838149>
 
-[Lifehacker's Complete Guide to iOS](https://appleios.kinja.com)) : title[![](../Images/71562cabb8ab94eee70dc08ff80378ef.png)](https://appleios.kinja.com)[Lifehacker's Complete Guide to iOS](https://appleios.kinja.com)Apple's iPhone is easy to learn, but difficult to master. Instead of spending hours sifting through settings yourself, check out our giant collection of guides, tips, and tricks for all things iOS.
+
 
 自从开发者测试版首次推出 以来，我一直在玩 iOS 13[——bug 和所有东西。由于](https://lifehacker.com/the-easiest-way-to-install-the-ios-13-beta-1835610960) [现已面向公众开放](https://lifehacker.com/how-to-enroll-in-the-ios-13-macos-catalina-and-ipados-1835814672) ，我想我会分享一些我最喜欢的新技巧，这样你就可以在等待测试版安装到你的设备上时感到兴奋了。
 

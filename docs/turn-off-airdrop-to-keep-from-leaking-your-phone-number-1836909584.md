@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/turn-off-airdrop-to-keep-from-leaking-your-phone-number-1836909584>
 
-[Lifehacker's Complete Guide to iOS](https://appleios.kinja.com)) : title[![](../Images/71562cabb8ab94eee70dc08ff80378ef.png)](https://appleios.kinja.com)[Lifehacker's Complete Guide to iOS](https://appleios.kinja.com)Apple's iPhone is easy to learn, but difficult to master. Instead of spending hours sifting through settings yourself, check out our giant collection of guides, tips, and tricks for all things iOS.
+
 
 当你在公共场所阻止某个陌生人给你发奇怪的图片或问候时，你最有可能遇到隔空投送。但是如果你需要在不同的设备之间传递文件，比如你刚刚在酒吧给朋友拍的有趣的照片，为了安全起见，等到你回家的时候。
 
