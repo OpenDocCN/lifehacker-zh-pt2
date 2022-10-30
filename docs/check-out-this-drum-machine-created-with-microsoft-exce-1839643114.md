@@ -1,6 +1,6 @@
 # 看看这个用微软 Excel 创建的鼓机
 
-> 原文:[https://life hacker . com/check-out-this-drum-machine-created-with-Microsoft-exce-1839643114](https://lifehacker.com/check-out-this-drum-machine-created-with-microsoft-exce-1839643114)
+> 原文：<https://lifehacker.com/check-out-this-drum-machine-created-with-microsoft-exce-1839643114>
 
 我认为我对 Excel 很在行。我熟悉数据透视表，我喜欢用公式和条件格式自动化任何事情，我对 vlookup 的熟练程度不亚于令人敬畏的新 xlookup 。然而，Excel 宏是一个全新的领域，我只希望我能像 Dylan Tallchief 那样使用它们。
 

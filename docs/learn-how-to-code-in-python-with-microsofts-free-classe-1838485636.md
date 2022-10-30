@@ -1,6 +1,6 @@
 # 通过微软的免费课程学习如何用 Python 编程
 
-> 原文:[https://life hacker . com/learn-how-to-code-in-python-with-Microsoft-free-classe-1838485636](https://lifehacker.com/learn-how-to-code-in-python-with-microsofts-free-classe-1838485636)
+> 原文：<https://lifehacker.com/learn-how-to-code-in-python-with-microsofts-free-classe-1838485636>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-jFCNu1-Xdsw&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-jFCNu1-Xdsw&start=0) 
 

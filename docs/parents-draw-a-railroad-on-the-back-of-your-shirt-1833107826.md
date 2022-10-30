@@ -1,6 +1,6 @@
 # 父母们，在你们的衬衫背后画一条铁路
 
-> 原文:[https://life hacker . com/parents-draw-a-railway-on-back-of-your-shirt-1833107826](https://lifehacker.com/parents-draw-a-railroad-on-the-back-of-your-shirt-1833107826)
+> 原文：<https://lifehacker.com/parents-draw-a-railroad-on-the-back-of-your-shirt-1833107826>
 
 疲惫的爸爸妈妈们，有没有希望躺着的时候能多做些 [育儿](https://offspring.lifehacker.com/how-to-entertain-your-child-while-lying-down-1798359968)*？请看这件由日本软件工程师 Ken Kawamoto 设计的 t 恤。* 
 

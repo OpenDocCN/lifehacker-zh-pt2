@@ -1,6 +1,6 @@
 # 为患有痴呆症的亲人创建音乐播放列表
 
-> 原文:[https://life hacker . com/create-a-music-playlist-for-a-loved-one-with-dementia-1835688112](https://lifehacker.com/create-a-music-playlist-for-a-loved-one-with-dementia-1835688112)
+> 原文：<https://lifehacker.com/create-a-music-playlist-for-a-loved-one-with-dementia-1835688112>
 
 看着心爱的人因痴呆而衰老可能是一种可怕、孤立和绝望的经历。但是即使患者失去了认知功能——思考、记忆和推理——他们仍可能与他们对音乐的热爱保持联系。
 

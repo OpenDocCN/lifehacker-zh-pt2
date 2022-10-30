@@ -1,6 +1,6 @@
 # 通过删除这些段落来改进每篇文章
 
-> 原文:[https://life hacker . com/improve-every-essay-by-deleting-these-paragraphs-1837747554](https://lifehacker.com/improve-every-essay-by-deleting-these-paragraphs-1837747554)
+> 原文：<https://lifehacker.com/improve-every-essay-by-deleting-these-paragraphs-1837747554>
 
 “一开始就是这个词。道与神同在，道就是神。”如果你在写弥赛亚的传记，这是一个很好的开头。对于一篇大学入学申请论文，或者一篇关于生三个孩子的快乐的中型文章，或者公司时事通讯上的一个观点专栏来说，就不那么好了。当你在写一篇文章的时候，以几个热身段落开始是可以的。但是记得删掉。
 

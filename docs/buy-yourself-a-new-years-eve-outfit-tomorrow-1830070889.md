@@ -1,6 +1,6 @@
 # 明天给自己买套新年前夜的行头
 
-> 原文:[https://life hacker . com/buy-yourself-a-new-years-eve-tool-tomorrow-1830070889](https://lifehacker.com/buy-yourself-a-new-years-eve-outfit-tomorrow-1830070889)
+> 原文：<https://lifehacker.com/buy-yourself-a-new-years-eve-outfit-tomorrow-1830070889>
 
 明天是你在万圣节弹出式商店购物的日子。75 折买假发。买便宜的化妆品。但最重要的是，给自己买一套除夕夜服装。我的意思不是在除夕夜去参加化妆舞会；我的意思是穿着你在 11 月 1 日花 5 美元买的漂亮衣服去参加一个普通的聚会。
 

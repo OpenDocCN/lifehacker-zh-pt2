@@ -1,6 +1,6 @@
 # 学校将再次关闭
 
-> 原文:[https://lifehacker.com/schools-will-close-again-1844604561](https://lifehacker.com/schools-will-close-again-1844604561)
+> 原文：<https://lifehacker.com/schools-will-close-again-1844604561>
 
 随着冠状病毒数量在一些地区激增，在其他地区保持稳定或下降，人们很容易忘记我们从哪里开始。数字越大，我们越不会感到震惊。还记得吗，就在两个月前，当《纽约时报》制作了这个图形 来帮助我们感受 10 万美国人死亡这一不可思议的里程碑事件的影响？自那以后，我们又增加了近 60，000 例死亡病例，并且我们正在迅速接近 500 万例确诊病例。
 

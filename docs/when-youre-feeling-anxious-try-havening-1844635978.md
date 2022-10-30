@@ -1,4 +1,4 @@
-> 原文:[https://life hacker . com/when-you-feeling-anxie-try-having-1844635978](https://lifehacker.com/when-youre-feeling-anxious-try-havening-1844635978)
+> 原文：<https://lifehacker.com/when-youre-feeling-anxious-try-havening-1844635978>
 
 感到焦虑？即使这一刻对你来说不是焦虑的时刻，在疫情的某个时刻，你很可能会感到焦虑；很有可能你会再次感受到。如果你有，我建议你试着给自己一个拥抱。一个甜蜜的拥抱。
 

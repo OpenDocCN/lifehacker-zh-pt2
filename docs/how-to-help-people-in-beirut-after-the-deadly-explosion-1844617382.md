@@ -1,6 +1,6 @@
 # 如何在致命爆炸后帮助贝鲁特的人们
 
-> 原文:[https://life hacker . com/how-to-help-the-people-in-Beirut-after-the-致命爆炸-1844617382](https://lifehacker.com/how-to-help-people-in-beirut-after-the-deadly-explosion-1844617382)
+> 原文：<https://lifehacker.com/how-to-help-people-in-beirut-after-the-deadly-explosion-1844617382>
 
 随着搜寻昨天贝鲁特爆炸幸存者的工作继续进行，目前我们知道爆炸造成 100 多人死亡，数千人受伤。据《纽约时报》 报道，爆炸发生在黎巴嫩首都港口附近，尽管在 150 多英里外的塞浦路斯都能感觉到。
 

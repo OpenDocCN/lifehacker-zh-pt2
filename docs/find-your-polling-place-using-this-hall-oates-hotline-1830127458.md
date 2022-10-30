@@ -1,6 +1,6 @@
 # 使用霍尔奥茨热线找到您的投票地点
 
-> 原文:[https://life hacker . com/find-your-polling-place-using-this-hall-Oates-hotline-1830127458](https://lifehacker.com/find-your-polling-place-using-this-hall-oates-hotline-1830127458)
+> 原文：<https://lifehacker.com/find-your-polling-place-using-this-hall-oates-hotline-1830127458>
 
 中期选举将于下周举行。希望你已经知道你的投票站在哪里，或者已经提前投了票。如果你不知道它在哪里，需要一点帮助，霍尔&奥茨就在这里。
 

@@ -1,6 +1,6 @@
 # 如何与 COVID 阴谋论者沟通，根据约翰·奥利弗
 
-> 原文:[https://life hacker . com/how-to-communication-with-covid-阴谋论者-acc-1844454620](https://lifehacker.com/how-to-communicate-with-covid-conspiracy-theorists-acc-1844454620)
+> 原文：<https://lifehacker.com/how-to-communicate-with-covid-conspiracy-theorists-acc-1844454620>
 
 在很大程度上感谢新冠肺炎，我们发现自己在 [一个阴谋论](https://lifehacker.com/if-you-found-that-plandemic-video-convincing-read-th-1843339002) 的黄金时代。由于对这种新型冠状病毒仍有如此多的未知，每当我们通过循证医学和研究为疫情之谜添加一部分时——特别是如果新信息与我们之前的想法相矛盾——就可以理解为什么有人会质疑它。让事情变得更复杂的是，我们都经历了最初关于戴口罩的混乱信息，更不用说对隔离目的的混乱，以及各种封锁的时机。这就是说，我们对新冠肺炎的了解变化如此之快，难怪很难知道该相信什么。
 

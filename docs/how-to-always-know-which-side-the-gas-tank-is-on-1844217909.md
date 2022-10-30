@@ -1,6 +1,6 @@
 # 如何总是知道油箱在哪一边
 
-> 原文:[https://life hacker . com/how-to-always-know-the-side of the-gas-tank-is-on-1844217909](https://lifehacker.com/how-to-always-know-which-side-the-gas-tank-is-on-1844217909)
+> 原文：<https://lifehacker.com/how-to-always-know-which-side-the-gas-tank-is-on-1844217909>
 
 最近的一个推特 [病毒视频](https://twitter.com/RexChapman/status/1277738669852495874) 向我们介绍了一位不幸的驾车者，她不知道如何正确地将她的油箱和油泵连接起来，这让附近停车场的几个旁观者感到好笑。
 

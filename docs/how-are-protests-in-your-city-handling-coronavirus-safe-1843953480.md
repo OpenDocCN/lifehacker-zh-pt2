@@ -1,6 +1,6 @@
 # 你所在城市的抗议活动如何处理冠状病毒安全问题？
 
-> 原文:[https://life hacker . com/how-are-decimations-in-your-city-handling-coronavirus-safe-1843953480](https://lifehacker.com/how-are-protests-in-your-city-handling-coronavirus-safe-1843953480)
+> 原文：<https://lifehacker.com/how-are-protests-in-your-city-handling-coronavirus-safe-1843953480>
 
 虽然抗议在一个民主国家是必不可少的— [一个黑客，你可以说](https://lifehacker.com/protesting-is-a-hack-1843927165) ，为了让你的声音在选举之间被听到——任何大型集会都有传播新冠肺炎病毒的风险。但是有 [的方法来降低这种风险](https://vitals.lifehacker.com/how-to-protest-during-a-pandemic-1843885100) ，许多抗议者一直在组织这些措施。
 

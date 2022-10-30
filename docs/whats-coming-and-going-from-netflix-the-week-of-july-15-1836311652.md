@@ -1,6 +1,6 @@
 # 2019 年 7 月 15 日这一周，网飞有哪些活动
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of July-15-1836311652](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-july-15-1836311652)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-july-15-1836311652>
 
 杰瑞·宋飞又回到了许多豪华车的车轮后面(它看起来像一辆轻便摩托车？)随着下一集*喜剧演员坐在车里喝咖啡*在周五落下帷幕。布里奇特·埃弗雷特、艾迪·墨菲、马修·布罗德里克、杰米·福克斯和塞斯·罗根都是这一次无害的低承诺泡沫的一部分。如果你喜欢稍微庄重一点的，我可以建议你看《T2:酷儿眼:第四季(也是周五)，在这部剧中，五人组将饰演乔纳森的高中乐队老师吗？
 

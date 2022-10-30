@@ -1,6 +1,6 @@
 # 如何和巴拉克·奥巴马一起参加今晚众星云集的“一起毕业”虚拟毕业典礼
 
-> 原文:[https://life hacker . com/how-to-attend-tonights-starred-graduate-together-v-1843493810](https://lifehacker.com/how-to-attend-tonights-star-studded-graduate-together-v-1843493810)
+> 原文：<https://lifehacker.com/how-to-attend-tonights-star-studded-graduate-together-v-1843493810>
 
 今晚，毕业班学生将有机会参加毕业典礼，演讲者包括巴拉克·奥巴马和勒布朗·詹姆斯。
 

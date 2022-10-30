@@ -1,6 +1,6 @@
 # 今晚看什么，2020 年 5 月 5 日
 
-> 原文:[https://life hacker . com/今晚看什么-2020 年 5 月 5 日-1843162129](https://lifehacker.com/what-to-watch-tonight-may-5-2020-1843162129)
+> 原文：<https://lifehacker.com/what-to-watch-tonight-may-5-2020-1843162129>
 
 星期二快乐！如果你像往常一样正在寻找今晚的看点，我们已经为你准备了大量不同的选择。
 

@@ -1,6 +1,6 @@
 # 如何帮助斯里兰卡爆炸案的受害者
 
-> 原文:[https://life hacker . com/how-to-help-the-victims-of-the-slanika-boards-1834217046](https://lifehacker.com/how-to-help-the-victims-of-the-sri-lanka-bombings-1834217046)
+> 原文：<https://lifehacker.com/how-to-help-the-victims-of-the-sri-lanka-bombings-1834217046>
 
 [复活节](https://www.cnn.com/2019/04/22/asia/sri-lanka-investigation-easter-attacks/index.html) 斯里兰卡发生 9 起爆炸案，造成 290 人死亡，500 多人受伤，其中包括多名美国公民。
 

@@ -1,6 +1,6 @@
 # 如何启用经典的 Mac 启动提示音
 
-> 原文:[https://life hacker . com/how-to-enable-the-classic-MAC-startup-chime-1842026959](https://lifehacker.com/how-to-enable-the-classic-mac-startup-chime-1842026959)
+> 原文：<https://lifehacker.com/how-to-enable-the-classic-mac-startup-chime-1842026959>
 
 *Donnnnnng。*经典的 Mac 提示音是让你知道你的 Mac 在关机或重启后正在重新启动的一种很好的方式。但如果我是对的，这种友好的声音已经在大多数新的苹果电脑中消失多年了。(我只有一台 MacBook Pro，我可以确认，从我记事起，启动我的 MacBook 就一直很无聊，很安静。)
 

@@ -1,6 +1,6 @@
 # 如何观看阿丽亚娜 5 号和猎鹰 9 号火箭今天发射
 
-> 原文:[https://life hacker . com/how-to-watch-the-Ariane-5-and-falcon-9-rockets-launch-t-1836999854](https://lifehacker.com/how-to-watch-the-ariane-5-and-falcon-9-rockets-launch-t-1836999854)
+> 原文：<https://lifehacker.com/how-to-watch-the-ariane-5-and-falcon-9-rockets-launch-t-1836999854>
 
 两枚携带大型通信卫星的火箭计划于今天在几个小时内相继发射，首先从南美发射，然后从北美发射。你可以通过直播观看每一场比赛。
 

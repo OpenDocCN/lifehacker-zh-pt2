@@ -1,6 +1,6 @@
 # 心理学家杰西米·希伯特告诉我们，如何不再觉得自己是个骗子
 
-> 原文:[https://life hacker . com/how-to-stop-feeling-like-a impostor-with-psychologist-1837374240](https://lifehacker.com/how-to-stop-feeling-like-an-impostor-with-psychologist-1837374240)
+> 原文：<https://lifehacker.com/how-to-stop-feeling-like-an-impostor-with-psychologist-1837374240>
 
 在本期升级节目中，我们将讨论冒名顶替综合症，这是一种心理现象，人们质疑自己的成功，内心害怕被发现是个骗子。
 

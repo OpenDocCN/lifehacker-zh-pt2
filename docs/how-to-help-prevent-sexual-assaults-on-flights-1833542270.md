@@ -1,6 +1,6 @@
 # 如何帮助预防航班上的性侵犯
 
-> 原文:[https://life hacker . com/how-to-help-prevent-on-flight-1833542270](https://lifehacker.com/how-to-help-prevent-sexual-assaults-on-flights-1833542270)
+> 原文：<https://lifehacker.com/how-to-help-prevent-sexual-assaults-on-flights-1833542270>
 
 记者 Joanna Chiu 最近目睹了许多人都经历过的事情:一个令人毛骨悚然的家伙在飞机上对被堵在他旁边的女孩说了令人毛骨悚然的话。
 

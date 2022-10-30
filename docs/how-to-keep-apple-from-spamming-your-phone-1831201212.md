@@ -1,6 +1,6 @@
 # 如何阻止苹果向你的手机发送垃圾邮件
 
-> 原文:[https://life hacker . com/how-to-keep-apple-from-spamming-your-phone-1831201212](https://lifehacker.com/how-to-keep-apple-from-spamming-your-phone-1831201212)
+> 原文：<https://lifehacker.com/how-to-keep-apple-from-spamming-your-phone-1831201212>
 
 有什么比拼车 k 歌更糟糕的？当你很久很久没看的时候，在你的 iPhone 上得到拼车卡拉 ok 通知。
 

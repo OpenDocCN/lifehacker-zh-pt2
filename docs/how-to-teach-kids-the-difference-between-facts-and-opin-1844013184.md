@@ -1,6 +1,6 @@
 # 如何教孩子区分事实和观点
 
-> 原文:[https://life hacker . com/how-to-teach-kids-the-difference of-facts-and-opin-1844013184](https://lifehacker.com/how-to-teach-kids-the-difference-between-facts-and-opin-1844013184)
+> 原文：<https://lifehacker.com/how-to-teach-kids-the-difference-between-facts-and-opin-1844013184>
 
 事实和观点之间的区别是当今的热门话题。近年来越来越明显的是，这是一个很难理解的概念，甚至对一些成年人来说，更不用说孩子了。因此，无论何时，或者是否，你孩子的学校决定解决这个差异，父母在家加强课程是个好主意。
 

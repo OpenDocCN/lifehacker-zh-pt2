@@ -1,6 +1,6 @@
 # 把你孩子的梳子绑在浴室的墙上
 
-> 原文:[https://life hacker . com/chain-your-kids-hair brush-to-the-bath-wall-1835330439](https://lifehacker.com/chain-your-kids-hairbrush-to-the-bathroom-wall-1835330439)
+> 原文：<https://lifehacker.com/chain-your-kids-hairbrush-to-the-bathroom-wall-1835330439>
 
 如果你对这位育儿编辑的早晨例行公事感到好奇，我会告诉你，其中很大一部分包括在房子里跑来跑去，问:“有人看到梳子吗？”(我说“一把”发刷是因为我们大约有六把这样的发刷。)这一直是一个愚蠢的、持续的问题。当我需要用刷子把幼儿园小朋友的头发梳成高高的马尾辫时，我从来不用刷子，就像她喜欢的那样。这是因为我们早上的发型设计不会每天都在同一个地方进行。有时候，我会在她吃早餐的时候帮她做头发。有时候，我们会坐在楼梯上。在那些我们都在争分夺秒的日子里，我会在她上车的时候完成她的工作。
 

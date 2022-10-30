@@ -1,6 +1,6 @@
 # 如何利用你的网络，看到网络上发生的一切
 
-> 原文:[https://life hacker . com/how-tap-your-network-and-see-everything-that-occurs-1649292940](https://lifehacker.com/how-to-tap-your-network-and-see-everything-that-happens-1649292940)
+> 原文：<https://lifehacker.com/how-to-tap-your-network-and-see-everything-that-happens-1649292940>
 
 您的家庭网络以及与之相连的一切就像一个保险库。在你登录的背后隐藏着大量有价值的信息，从包含个人数据的未加密文件到可以被劫持并用于任何目的的设备。在本帖中，我们将向您展示如何规划您的网络，了解谁在与什么人交谈，以及如何发现可能正在消耗带宽的设备或进程(或者是您网络上的意外访客)。
 

@@ -1,6 +1,6 @@
 # 如何徒手将苹果劈成两半
 
-> 原文:[https://life hacker . com/how-to-speed a apple-in-half-hands-1839415314](https://lifehacker.com/how-to-split-an-apple-in-half-with-your-bare-hands-1839415314)
+> 原文：<https://lifehacker.com/how-to-split-an-apple-in-half-with-your-bare-hands-1839415314>
 
 凯罗·路德前几天在推特上发布了一个视频，视频中他徒手将一个苹果分成两半。太神奇了！什么样的人能做到这一点？除了凯罗·路德肯定没人了！
 

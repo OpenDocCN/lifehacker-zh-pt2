@@ -1,6 +1,6 @@
 # 心脏病专家克里斯·凯利和马克·艾森伯格将告诉你如何判断自己是否濒临死亡
 
-> 原文:[https://life hacker . com/how-to-tell-if-you-re-dye-with cardiologists-Chris-k-1832131438](https://lifehacker.com/how-to-tell-if-you-re-dying-with-cardiologists-chris-k-1832131438)
+> 原文：<https://lifehacker.com/how-to-tell-if-you-re-dying-with-cardiologists-chris-k-1832131438>
 
 我们花了很多时间担心死亡:我们自己的死亡，以及我们所爱的人的死亡。本周我们来看看我们对死亡的深深恐惧和假设，看看我们是否能减轻一些对死亡的焦虑。
 

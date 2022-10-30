@@ -1,6 +1,6 @@
 # 如何在划船机上做间歇运动
 
-> 原文:[https://life hacker . com/how-do-intervals-on-a-rowing machine-1838974151](https://lifehacker.com/how-to-do-intervals-on-a-rowing-machine-1838974151)
+> 原文：<https://lifehacker.com/how-to-do-intervals-on-a-rowing-machine-1838974151>
 
 我去过的几乎每个健身房都有一台划船机，有时有两台，但从来没人用过。这是一个遗憾，因为当你做有氧运动时，这是一个很好的全身锻炼工具，特别是对于 [间隔，就像我们这个月做的](https://vitals.lifehacker.com/october-is-for-interval-workouts-1838751041) 。
 

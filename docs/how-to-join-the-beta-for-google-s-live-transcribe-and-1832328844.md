@@ -1,6 +1,6 @@
 # 如何加入谷歌“实时转录”安卓应用的测试版
 
-> 原文:[https://life hacker . com/how-to-join-the-beta-for-Google-s-live-transcripte-and-1832328844](https://lifehacker.com/how-to-join-the-beta-for-google-s-live-transcribe-and-1832328844)
+> 原文：<https://lifehacker.com/how-to-join-the-beta-for-google-s-live-transcribe-and-1832328844>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-jLCwjIaPXwA&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-jLCwjIaPXwA&start=0) 
 

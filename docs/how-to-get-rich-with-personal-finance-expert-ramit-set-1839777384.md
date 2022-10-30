@@ -1,6 +1,6 @@
 # 如何致富，个人理财专家拉米特·塞西
 
-> 原文:[https://life hacker . com/how-to-get-rich-with-personal-finance-expert-ramit-set-1839777384](https://lifehacker.com/how-to-get-rich-with-personal-finance-expert-ramit-set-1839777384)
+> 原文：<https://lifehacker.com/how-to-get-rich-with-personal-finance-expert-ramit-set-1839777384>
 
 《我会教你变得富有》一书的作者拉米特·塞西(Ramit Sethi)是一位专业的理财专家，他本周将加入我们的节目，谈论如何重新规划我们的消费方式，如何投资我们的储蓄，以及普通人如何找到一个为期六周的蜜月之旅。
 

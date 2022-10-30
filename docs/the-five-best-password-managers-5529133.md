@@ -1,6 +1,6 @@
 # 最佳密码管理器
 
-> 原文:[https://life hacker . com/the-five-best-password-managers-5529133](https://lifehacker.com/the-five-best-password-managers-5529133)
+> 原文：<https://lifehacker.com/the-five-best-password-managers-5529133>
 
 上周，我们要求您在您最喜欢的密码管理器 上填写 [。在梳理了您的回答，测试了一些新的回答，并了解了其他流行的选择之后，我们列出了最佳密码管理器。](https://lifehacker.com/tell-us-about-your-favorite-password-manager-1835910472) 
 

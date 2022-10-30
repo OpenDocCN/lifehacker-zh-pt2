@@ -1,6 +1,6 @@
 # 如何现场观看今天的公众弹劾听证会
 
-> 原文:[https://life hacker . com/how-to-watch-todays-public-弹劾-听证会-直播-1839805189](https://lifehacker.com/how-to-watch-todays-public-impeachment-hearings-live-1839805189)
+> 原文：<https://lifehacker.com/how-to-watch-todays-public-impeachment-hearings-live-1839805189>
 
 从美国东部时间今天上午 10 点开始，持续到周五，对特朗普总统的公开弹劾听证会将进行直播，从三名曾与乌克兰领导人共事的现任和前任公职人员开始。
 

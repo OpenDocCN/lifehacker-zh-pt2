@@ -1,6 +1,6 @@
 # 你应该总是买带骨的鸡腿
 
-> 原文:[https://life hacker . com/you-should-always-buy-bone-in-chicken-legals-1840457445](https://lifehacker.com/you-should-always-buy-bone-in-chicken-thighs-1840457445)
+> 原文：<https://lifehacker.com/you-should-always-buy-bone-in-chicken-thighs-1840457445>
 
 每个吃鸡肉的人都喜欢无骨无皮的大腿。多汁，鲜嫩，非常适合从油炸到慢炖的任何食物，几乎是任何食谱的完美选择。但所有这些现在都是常识，这意味着无骨大腿不再像几年前那样便宜。
 

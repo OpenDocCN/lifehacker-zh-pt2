@@ -1,6 +1,6 @@
 # 如何观看 Space X 今晚对其商业飞船的更新
 
-> 原文:[https://life hacker . com/how-to-watch-space-xs-update-on-its-commercial-spaceshi-1838576566](https://lifehacker.com/how-to-watch-space-xs-update-on-its-commercial-spaceshi-1838576566)
+> 原文：<https://lifehacker.com/how-to-watch-space-xs-update-on-its-commercial-spaceshi-1838576566>
 
 美国东部时间今晚 8 点/太平洋时间下午 5 点，埃隆·马斯克预计将发布 Space X 的新星际飞船和超级重型火箭的最新消息，这是该公司进军商业太空旅行的冒险。
 

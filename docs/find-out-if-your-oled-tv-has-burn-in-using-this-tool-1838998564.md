@@ -1,6 +1,6 @@
 # 使用此工具了解您的 OLED 电视是否有老化现象
 
-> 原文:[https://life hacker . com/find-out-if-your-OLED-TV-has-burn-in-using-this-tool-1838998564](https://lifehacker.com/find-out-if-your-oled-tv-has-burn-in-using-this-tool-1838998564)
+> 原文：<https://lifehacker.com/find-out-if-your-oled-tv-has-burn-in-using-this-tool-1838998564>
 
 如果你家里有一台有机发光二极管电视，那么烧屏可能是一个问题。当同一幅图像长时间显示在您的电视机显示屏上时，就会出现老化现象。它可以是苹果电视上的菜单，或者是电视开机时的默认屏幕。
 

@@ -1,6 +1,6 @@
 # 不要从一个美化了的潮汐舱里喝威士忌
 
-> 原文:[https://life hacker . com/don-drink-whiskey-from-a-glorized-pod-1838879173](https://lifehacker.com/dont-drink-whiskey-from-a-glorified-tide-pod-1838879173)
+> 原文：<https://lifehacker.com/dont-drink-whiskey-from-a-glorified-tide-pod-1838879173>
 
 为了吸引潮荚一代，格兰威特发布了他们的“胶囊系列”，由食用海藻包装的少量酒精组成。你不需要冰、搅拌器或玻璃杯来食用胶囊，但这些东西并不是很难得到。
 

@@ -1,6 +1,6 @@
 # 如何将另一个电子邮件帐户导入 Gmail？
 
-> 原文:[https://life hacker . com/how-do-I-import-another-email-account-into Gmail-1829997407](https://lifehacker.com/how-do-i-import-another-email-account-into-gmail-1829997407)
+> 原文：<https://lifehacker.com/how-do-i-import-another-email-account-into-gmail-1829997407>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-dudJjUU9Nhs&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-dudJjUU9Nhs&start=0) 
 

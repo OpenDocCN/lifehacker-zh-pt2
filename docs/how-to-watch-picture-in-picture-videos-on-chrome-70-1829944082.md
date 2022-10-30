@@ -1,6 +1,6 @@
 # 如何在 Chrome 70 上观看画中画视频
 
-> 原文:[https://life hacker . com/how-to-watch-picture-in-picture-videos-on-chrome-70-1829944082](https://lifehacker.com/how-to-watch-picture-in-picture-videos-on-chrome-70-1829944082)
+> 原文：<https://lifehacker.com/how-to-watch-picture-in-picture-videos-on-chrome-70-1829944082>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-t2QAzHZH-5s&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-t2QAzHZH-5s&start=0) 
 

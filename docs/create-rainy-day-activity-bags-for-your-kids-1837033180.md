@@ -1,6 +1,6 @@
 # 为你的孩子制作雨天活动包
 
-> 原文:[https://life hacker . com/create-rain-day-activity-bags-for-your-kids-1837033180](https://lifehacker.com/create-rainy-day-activity-bags-for-your-kids-1837033180)
+> 原文：<https://lifehacker.com/create-rainy-day-activity-bags-for-your-kids-1837033180>
 
 我完全同意让孩子们感到无聊(这对他们有好处)并对他们自己的娱乐负责(他们有一大堆玩具)，但偶尔为他们提供一点灵感也不错。尤其是当他们因为恶劣的天气被困在里面已经好几天了，他们几乎要爬墙了(很快你也会这样)。
 

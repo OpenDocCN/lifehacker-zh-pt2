@@ -1,6 +1,6 @@
 # 现在就给你的服务人员特别慷慨的小费
 
-> 原文:[https://life hacker . com/tip-your-service-workers-outly-right-no-1842265325](https://lifehacker.com/tip-your-service-workers-especially-generously-right-no-1842265325)
+> 原文：<https://lifehacker.com/tip-your-service-workers-especially-generously-right-no-1842265325>
 
 你知道要洗手，如果感觉不舒服就呆在家里，忍住囤积洗手液的冲动。但是，如果你感觉良好，并继续过着基本正常的日常生活，你还可以完成另一项任务:慷慨解囊。
 

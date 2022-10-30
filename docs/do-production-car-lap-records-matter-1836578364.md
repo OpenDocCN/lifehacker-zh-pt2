@@ -1,6 +1,6 @@
 # 量产车圈速记录重要吗？
 
-> 原文:[https://jalopnik . com/do-production-car-lap-records-matter-1836578364](https://jalopnik.com/do-production-car-lap-records-matter-1836578364)
+> 原文：<https://jalopnik.com/do-production-car-lap-records-matter-1836578364>
 
 orsche 最近在世界各地的赛道上创造了 991.2 代 GT2 RS 量产车的单圈记录。GT2 遥感是令人难以置信的快，这是显而易见的，但这是一个已知的数量。除了保时捷吹嘘自己在纽博格林、美国之路、亚特兰大之路以及现在的 CTMP 上创下了纪录，这些对你来说有什么实际意义吗？
 

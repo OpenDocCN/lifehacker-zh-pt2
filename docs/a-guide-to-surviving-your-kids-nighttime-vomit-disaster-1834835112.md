@@ -1,6 +1,6 @@
 # 孩子夜间呕吐灾难幸存指南
 
-> 原文:[https://life hacker . com/a-guide-to-surviving-your-kids-night-呕吐灾难-1834835112](https://lifehacker.com/a-guide-to-surviving-your-kids-nighttime-vomit-disaster-1834835112)
+> 原文：<https://lifehacker.com/a-guide-to-surviving-your-kids-nighttime-vomit-disaster-1834835112>
 
 我女儿第一次呕吐的时候，我吓得大叫，然后她就哭了。她两岁，从日托所感染了胃病。我觉得自己是个糟糕的妈妈，于是说:“哦，对不起，宝贝——没关系，没关系，没关系。”但是这并不好。她又吐了。我又大叫。她又哭了。这一刻我赢不了。
 

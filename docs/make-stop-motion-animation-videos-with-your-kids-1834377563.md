@@ -1,6 +1,6 @@
 # 和你的孩子一起制作定格动画视频
 
-> 原文:[https://life hacker . com/make-stop-motion-animation-videos-with-your-kids-1834377563](https://lifehacker.com/make-stop-motion-animation-videos-with-your-kids-1834377563)
+> 原文：<https://lifehacker.com/make-stop-motion-animation-videos-with-your-kids-1834377563>
 
 我儿子一直喜欢场景设置和讲故事。他是那种无论我们旅行的距离有多短，都会带上几个“家伙”的孩子，所以他可以表演一些场景，配有对话和音效。
 

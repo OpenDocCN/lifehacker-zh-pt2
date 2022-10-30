@@ -1,6 +1,6 @@
 # 如果你擅长社交媒体，你可以免费带着美国国家铁路客运公司穿越全国
 
-> 原文:[https://life hacker . com/you-can-take-Amtrak-over-the-country-if-your-1831951298](https://lifehacker.com/you-can-take-amtrak-across-the-country-for-free-if-your-1831951298)
+> 原文：<https://lifehacker.com/you-can-take-amtrak-across-the-country-for-free-if-your-1831951298>
 
 美国国家铁路客运公司正在为那些对社交媒体有特殊技能的人重新引入免费居住——他们发誓他们不是指“影响者”
 

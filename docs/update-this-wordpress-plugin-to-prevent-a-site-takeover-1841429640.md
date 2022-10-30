@@ -1,6 +1,6 @@
 # 更新这个 WordPress 插件来防止站点被接管
 
-> 原文:[https://life hacker . com/update-this-WordPress-plugin-to-prevent-a-site-take over-1841429640](https://lifehacker.com/update-this-wordpress-plugin-to-prevent-a-site-takeover-1841429640)
+> 原文：<https://lifehacker.com/update-this-wordpress-plugin-to-prevent-a-site-takeover-1841429640>
 
 安全研究人员发现了流行的 WordPress 插件 [代码片段](https://wordpress.org/plugins/code-snippets/) 的旧版本中存在的一个严重漏洞，该漏洞可能允许攻击者远程接管一个人的网站。该插件的开发者发布了一个补丁来修复这个漏洞，但仍有超过 20 万个网站面临风险。
 

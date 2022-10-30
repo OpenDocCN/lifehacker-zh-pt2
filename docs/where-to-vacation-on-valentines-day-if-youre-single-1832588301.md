@@ -1,6 +1,6 @@
 # 如果你是单身，情人节去哪里度假
 
-> 原文:[https://life hacker . com/如果你是单身，情人节去哪里度假-1832588301](https://lifehacker.com/where-to-vacation-on-valentines-day-if-youre-single-1832588301)
+> 原文：<https://lifehacker.com/where-to-vacation-on-valentines-day-if-youre-single-1832588301>
 
 即使你声称不在乎情人节，也很难避免去想它。无论你走到哪里，爱都会扑面而来——所以，也许是时候独自在沙漠中漫步了？
 

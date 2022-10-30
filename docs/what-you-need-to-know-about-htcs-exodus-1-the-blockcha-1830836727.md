@@ -1,6 +1,6 @@
 # 关于 HTC 的“区块链智能手机”Exodus 1，你需要知道什么
 
-> 原文:[https://life hacker . com/what-you-need-to-know-about-htcs-exodus-1-the-block cha-1830836727](https://lifehacker.com/what-you-need-to-know-about-htcs-exodus-1-the-blockcha-1830836727)
+> 原文：<https://lifehacker.com/what-you-need-to-know-about-htcs-exodus-1-the-blockcha-1830836727>
 
 没有什么比区块链网络和加密货币的兴起更能表明我们终于进入了网络未来。这使得 HTC 即将推出的总部位于区块链的智能手机 HTC Exodus 1 成为迄今为止最具赛博朋克风格(也最奇怪)的设备之一。
 

@@ -1,6 +1,6 @@
 # Zerchers 是我们这个月最后一个奇怪的电梯
 
-> 原文:[https://life hacker . com/zer chers-are-our-last-verged-lift-of-month-1840073209](https://lifehacker.com/zerchers-are-our-last-weird-lift-of-the-month-1840073209)
+> 原文：<https://lifehacker.com/zerchers-are-our-last-weird-lift-of-the-month-1840073209>
 
 我希望你喜欢用手肘夹着杠铃，因为这是我们这个月最后一次奇怪的举重。泽彻举，或泽彻蹲，让你做到这一点。
 

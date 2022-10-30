@@ -1,6 +1,6 @@
 # 如果被催泪瓦斯袭击，如何冲洗眼睛
 
-> 原文:[https://life hacker . com/how-to-flush your-eyes-if-you-tear-gases-1843826826](https://lifehacker.com/how-to-flush-your-eyes-if-youre-tear-gassed-1843826826)
+> 原文：<https://lifehacker.com/how-to-flush-your-eyes-if-youre-tear-gassed-1843826826>
 
 在本周针对警察暴行的抗议中，许多城市的警察选择了暴力升级。他们常用的一种工具是俗称催泪瓦斯的化学武器。如果你在抗议中遇到催泪瓦斯，以下是你应该做的。(第一步:用水冲洗眼睛。)
 

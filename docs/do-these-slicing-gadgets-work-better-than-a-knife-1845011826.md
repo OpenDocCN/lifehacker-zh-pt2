@@ -1,6 +1,6 @@
 # 这些切片工具比...一把刀？
 
-> 原文:[https://life hacker . com/do-these-slicing-gadgets-work-better-a-knife-1845011826](https://lifehacker.com/do-these-slicing-gadgets-work-better-than-a-knife-1845011826)
+> 原文：<https://lifehacker.com/do-these-slicing-gadgets-work-better-than-a-knife-1845011826>
 
 在 Hack 或 Wack，我们通常喜欢测试令人震惊的病毒式黑客攻击。但有时我们也会测试那些一开始就让人非常怀疑的黑客。
 

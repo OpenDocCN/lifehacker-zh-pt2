@@ -1,6 +1,6 @@
 # 我们怎样才能结束警察暴力？
 
-> 原文:[https://life hacker . com/how-can-we-end-police-violence-1843904474](https://lifehacker.com/how-can-we-end-police-violence-1843904474)
+> 原文：<https://lifehacker.com/how-can-we-end-police-violence-1843904474>
 
 最近警察对公众成员的暴力行为，无论是最近乔治·弗洛伊德和布罗纳·泰勒死于警察之手，还是许多针对和平抗议者的暴力示威，越来越明显的是，这个问题是系统性的，需要采取全面的方法来解决。
 

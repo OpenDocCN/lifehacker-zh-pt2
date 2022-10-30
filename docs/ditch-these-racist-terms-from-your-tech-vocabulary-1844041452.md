@@ -1,6 +1,6 @@
 # 从你的科技词汇中去掉这些种族主义术语
 
-> 原文:[https://life hacker . com/ditch-these-racistic-terms-from-your-tech-vocabulary-1844041452](https://lifehacker.com/ditch-these-racist-terms-from-your-tech-vocabulary-1844041452)
+> 原文：<https://lifehacker.com/ditch-these-racist-terms-from-your-tech-vocabulary-1844041452>
 
 在争取种族公正和平等的斗争中，科技行业还有很多工作要做。但是，尽管雇佣黑人雇员和其他在该领域代表性不足的少数民族 至关重要，还有一些更微妙的问题需要解决。这包括反思和改变在整个行业司空见惯的对种族不敏感的术语，越来越多的公司和独立开发者正试图这样做。
 

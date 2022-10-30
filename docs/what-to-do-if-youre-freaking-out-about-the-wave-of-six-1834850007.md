@@ -1,6 +1,6 @@
 # 如果你对为期六周的堕胎禁令感到恐慌，该怎么办
 
-> 原文:[https://life hacker . com/1834850007](https://lifehacker.com/what-to-do-if-youre-freaking-out-about-the-wave-of-six-1834850007)
+> 原文：<https://lifehacker.com/what-to-do-if-youre-freaking-out-about-the-wave-of-six-1834850007>
 
 尽管堕胎在美国的任何地方都是合法的，但共和党人坚决要改变这种状况。除了捐钱给堕胎基金，很难知道自己能帮上什么忙。
 

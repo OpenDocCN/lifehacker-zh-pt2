@@ -1,6 +1,6 @@
 # 如何进入职业无人机竞速
 
-> 原文:[https://life hacker . com/how-to-get-into-professional-drone-racing-1832129947](https://lifehacker.com/how-to-get-into-professional-drone-racing-1832129947)
+> 原文：<https://lifehacker.com/how-to-get-into-professional-drone-racing-1832129947>
 
 在职业无人机比赛中，飞行员戴着 FPV(第一人称视角)护目镜在体育场周围驾驶多架直升机进行比赛，护目镜周围环绕着他们的无人机视角。无人机竞速与老的遥控赛车爱好有着非常不同的氛围。无人机竞赛联盟[的创始人 Nicholas Horbaczewski 说，大多数参赛者都在 13-34 岁之间。球场(建在体育场、仓库和废弃建筑中)经常像夜总会一样灯火通明。虽然许多飞行员都有电子竞技和模特比赛的经验，但也有几个人有单板滑雪和摩托车越野赛等运动的背景——这给这项竞争对手止步不前的运动带来了一些令人惊讶的相关技能。](https://thedroneracingleague.com/) 
 

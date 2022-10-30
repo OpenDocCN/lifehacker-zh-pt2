@@ -1,6 +1,6 @@
 # 不要相信“全国饮酒日”的宣传
 
-> 原文:[https://life hacker . com/don-believe-the-national-drink-wine-day-hype-1832732995](https://lifehacker.com/dont-believe-the-national-drink-wine-day-hype-1832732995)
+> 原文：<https://lifehacker.com/dont-believe-the-national-drink-wine-day-hype-1832732995>
 
 当你意识到昨天是全国饮酒日时，你有没有放下一切，改变一天的日程安排？没有吗？但也许你(或你认识的人)分享了一两个以巨型酒杯为特色的迷因。因为你值得拥有。
 

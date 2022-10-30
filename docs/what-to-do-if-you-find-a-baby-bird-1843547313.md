@@ -1,6 +1,6 @@
 # 如果你发现一只小鸟该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-you-found-a-baby-bird-1843547313](https://lifehacker.com/what-to-do-if-you-find-a-baby-bird-1843547313)
+> 原文：<https://lifehacker.com/what-to-do-if-you-find-a-baby-bird-1843547313>
 
 每年春天，树上和灌木丛里都有鸟巢，而那些鸟巢里又塞满了小鸟。如果你发现一只小鸟，它不是在巢里，它不一定需要你的帮助。以下是你需要知道的。
 

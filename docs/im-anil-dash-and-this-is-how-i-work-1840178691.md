@@ -1,4 +1,4 @@
-> 原文:[https://life hacker . com/im-Anil-dash-and-this-is-how-I-work-1840178691](https://lifehacker.com/im-anil-dash-and-this-is-how-i-work-1840178691)
+> 原文：<https://lifehacker.com/im-anil-dash-and-this-is-how-i-work-1840178691>
 
 Glitch 希望像 YouTube 对视频、Flickr 和 Imgur 对图片以及 Twitter 对不良观点所做的那样，为网络应用做些什么:让它们易于创建、分享和嵌入，并让它们有机会接触到合适的受众，甚至传播开来。我与首席执行官阿尼尔·达什(Anil Dash)讨论了格林奇、他的职业生涯、他在互联网上的名气，以及如何和为什么要经营一家对社会负责的公司。这是一部微缩历史，讲述了互联网是如何接管世界的，世界是如何毁掉互联网的，以及我们是如何把两者都夺回来的。
 

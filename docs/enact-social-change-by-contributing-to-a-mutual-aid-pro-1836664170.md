@@ -1,6 +1,6 @@
 # 通过参与互助项目来实现社会变革
 
-> 原文:[https://life hacker . com/enact-social-change-by-contributing-to-a-mutual-aid-pro-1836664170](https://lifehacker.com/enact-social-change-by-contributing-to-a-mutual-aid-pro-1836664170)
+> 原文：<https://lifehacker.com/enact-social-change-by-contributing-to-a-mutual-aid-pro-1836664170>
 
 过去三年最令人沮丧的事情之一，也是我们半开玩笑地称之为“当前政治气候”的事情是，无论打多少电话给我们的代表，向美国公民自由联盟捐款，或者与脸书的远亲争论，似乎都不会有任何影响。道德在我们周围崩溃，人们在受苦，感觉唯一能做的就是抱怨没有人做任何事情。
 

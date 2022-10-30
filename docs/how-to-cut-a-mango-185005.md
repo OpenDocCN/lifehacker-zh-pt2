@@ -1,6 +1,6 @@
 # 如何切芒果而不切到手
 
-> 原文:[https://lifehacker.com/how-to-cut-a-mango-185005](https://lifehacker.com/how-to-cut-a-mango-185005)
+> 原文：<https://lifehacker.com/how-to-cut-a-mango-185005>
 
 吃一个芒果就像在你的嘴里度过一个迷你假期——突然，你被带到了一个阳光温暖的地方，即使你不是。尽管它们很好吃，但切开它们可能有点棘手。幸运的是，这个 [教学视频](https://www.youtube.com/watch?time_continue=3&v=-6dPnL0uJho&feature=emb_logo) 演示了 [如何从芒果扁平的椭圆形果核(是的，芒果有果核)周围切下又大又干净的切片。视频有点不稳定，所以如果你容易眩晕，考虑你自己被警告。此外，享受学分。](http://lifehacker.com/tag/how-to/)
 

@@ -1,6 +1,6 @@
 # 如何参加周一的“Taps Across America”
 
-> 原文:[https://life hacker . com/how-to-party-in-taps-across-America-Monday-1843643065](https://lifehacker.com/how-to-participate-in-taps-across-america-monday-1843643065)
+> 原文：<https://lifehacker.com/how-to-participate-in-taps-across-america-monday-1843643065>
 
 明天是阵亡将士纪念日。虽然今年的庆祝活动可能会有所不同，但哥伦比亚广播公司试图保留一项传统 :玩水龙头。
 

@@ -1,6 +1,6 @@
 # 打电话给芝麻街人物寻求精神支持
 
-> 原文:[https://life hacker . com/call-a-sesame-street-character-for-moral-support-1842900600](https://lifehacker.com/call-a-sesame-street-character-for-moral-support-1842900600)
+> 原文：<https://lifehacker.com/call-a-sesame-street-character-for-moral-support-1842900600>
 
 在冠状病毒关闭期间，我们最喜爱的作家、演员和组织现在都站出来提供资源和情感支持，b ut 芝麻街本周获胜。F 首先他们给我们提供了一个 [疫情 p laydate](https://lifehacker.com/check-out-elmos-pandemic-playdate-special-1842836663) 特别节目，现在他们给的孩子们选择“呼叫”一个心爱的角色来获得关于度过危机的建议*和*给我们一个动画短片系列，叫做 [怪物冥想](https://www.sesameworkshop.org/press-room/press-releases/sesame-street-and-headspace-team-encourage-kids-practice-meditation-and)
 

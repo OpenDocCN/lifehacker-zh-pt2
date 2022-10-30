@@ -1,6 +1,6 @@
 # 计划更新您的专业投资组合
 
-> 原文:[https://life hacker . com/schedule-updates-to-your-professional-portfolio-1844639851](https://lifehacker.com/schedule-updates-to-your-professional-portfolio-1844639851)
+> 原文：<https://lifehacker.com/schedule-updates-to-your-professional-portfolio-1844639851>
 
 当你的工作涉及多个项目时——通常是同时进行——很容易忘记更新你的投资组合。如果你幸运的话，你会有一个稳定的工作流，有固定的截止日期，除了实际工作之外，几乎没有时间做任何与工作相关的事情。
 

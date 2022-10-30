@@ -1,6 +1,6 @@
 # 当科学家说“没有证据”时，他们真正的意思是什么
 
-> 原文:[https://life hacker . com/what-scientists-really-mean-when-they-they-say-no-evidence-1843268833](https://lifehacker.com/what-scientists-really-mean-when-they-say-no-evidence-1843268833)
+> 原文：<https://lifehacker.com/what-scientists-really-mean-when-they-say-no-evidence-1843268833>
 
 有些事情就是不为人知。这些天，这是很多事情。从冠状病毒成为威胁的那一刻起，没有回答的问题就远远多于已经回答的问题。当一个病毒只有五个月大的时候，你可能能知道多少*？*
 

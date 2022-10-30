@@ -1,6 +1,6 @@
 # 自动切换网页搜索到 DuckDuckGo 有时用这个 Chrome 扩展
 
-> 原文:[https://life hacker . com/automatically-switch-web-searches-to-duck duck go-sometim-1837966990](https://lifehacker.com/automatically-switch-web-searches-to-duckduckgo-sometim-1837966990)
+> 原文：<https://lifehacker.com/automatically-switch-web-searches-to-duckduckgo-sometim-1837966990>
 
 在某种程度上，谷歌已经使其搜索功能成为互联网的固有功能。这是我们大多数人使用网络的一部分，即使我们非常想切换到另一个搜索引擎，也会有点复杂。
 

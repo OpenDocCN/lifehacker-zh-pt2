@@ -1,6 +1,6 @@
 # 将洗手变成一种专注的体验
 
-> 原文:[https://life hacker . com/turn-hand-washing-into-a-minded-experience-1842395435](https://lifehacker.com/turn-hand-washing-into-a-mindful-experience-1842395435)
+> 原文：<https://lifehacker.com/turn-hand-washing-into-a-mindful-experience-1842395435>
 
 手洗。这是 20 秒钟的琐事，在冠状病毒进入我们的生活之前，我们许多人更像是在做四五秒钟的琐事。但是现在我们知道得更清楚了，我们已经在脑海中无限循环着生日快乐歌，这也是...不太好。不过，我最近在冥想应用 Headspace 上看到了一个建议，它成功地将这项家务变成了——恕我直言——一次真正愉快的经历。
 

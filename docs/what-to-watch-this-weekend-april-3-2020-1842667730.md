@@ -1,6 +1,6 @@
 # 2020 年 4 月 3 日-5 日这个周末看什么
 
-> 原文:[https://life hacker . com/what-to-watch-this-weekend-April-3-2020-1842667730](https://lifehacker.com/what-to-watch-this-weekend-april-3-2020-1842667730)
+> 原文：<https://lifehacker.com/what-to-watch-this-weekend-april-3-2020-1842667730>
 
 今天是周末！在找东西看吗？
 

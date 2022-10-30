@@ -1,6 +1,6 @@
 # 如何在智能手机上运行诊断测试
 
-> 原文:[https://life hacker . com/how-to-run-diagnostics-tests-on-your-smart phone-1834010973](https://lifehacker.com/how-to-run-diagnostics-tests-on-your-smartphone-1834010973)
+> 原文：<https://lifehacker.com/how-to-run-diagnostics-tests-on-your-smartphone-1834010973>
 
 如果你从未在自己的智能手机上运行过诊断测试，那么这是值得的——特别是当你的手机开始显示其年龄时，或者如果你二手购买了一部“新”智能手机，并想感受一下它的状况。
 

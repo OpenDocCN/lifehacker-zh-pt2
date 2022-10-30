@@ -1,6 +1,6 @@
 # 这些 1924 年的版权作品将于 2020 年进入公共领域
 
-> 原文:[https://life hacker . com/these-1924-copyright-works-enter-the-public-domain-in-1839612665](https://lifehacker.com/these-1924-copyrighted-works-enter-the-public-domain-in-1839612665)
+> 原文：<https://lifehacker.com/these-1924-copyrighted-works-enter-the-public-domain-in-1839612665>
 
 1 月 1 日连续第二年将数以千计的经典版权作品带入公共领域。根据美国法律，1924 年任何时候出版的作品都将在 2020 年 1 月 1 日进入公共领域。这包括书籍、电影、艺术品、活页乐谱和其他具体的创造性作品——但不幸的是不包括录音。以下是一些失去版权的最重要的作品。
 

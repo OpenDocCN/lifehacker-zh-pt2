@@ -1,6 +1,6 @@
 # 不要再用“至少”来安慰人了
 
-> 原文:[https://life hacker . com/stop-use-the-words-at-less-to-comfort-1833158663](https://lifehacker.com/stop-using-the-words-at-least-to-comfort-1833158663)
+> 原文：<https://lifehacker.com/stop-using-the-words-at-least-to-comfort-1833158663>
 
 当有人向你倾诉时——从真正糟糕的事情到普通的糟糕的一天——你接下来说的话绝对不应该是:“至少……”
 

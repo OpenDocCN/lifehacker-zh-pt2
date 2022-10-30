@@ -1,6 +1,6 @@
 # 2020 年 8 月 30 日这一周，网飞将迎来什么
 
-> 原文:[https://life hacker . com/whats-coming-to-the-week of-August-2020-30-1844903435](https://lifehacker.com/whats-coming-to-netflix-the-week-of-august-30-2020-1844903435)
+> 原文：<https://lifehacker.com/whats-coming-to-netflix-the-week-of-august-30-2020-1844903435>
 
 你会离开家人三年去火星执行任务吗？通常情况下，这是一个简单的拒绝，但自从 3 月 11 日以来，我还没有一个人，所以前景听起来不错...有点吸引力。如果没有其他事情，我至少可以享受 9 月 4 日首播的新网飞剧集《远离城市》的体验。
 

@@ -1,6 +1,6 @@
 # 冠状病毒期间帮助人们(远距离)的方法列表
 
-> 原文:[https://Jezebel . com/a-list-of-way-to-help-from-a-distance-during-1842358261](https://jezebel.com/a-list-of-ways-to-help-people-from-a-distance-during-1842358261)
+> 原文：<https://jezebel.com/a-list-of-ways-to-help-people-from-a-distance-during-1842358261>
 
 冠状病毒暴露了一个许多美国人已经知道是真实的现实:在我们故意削弱和不充分的社会安全网中存在着巨大的漏洞。我们可能都认识失业的人，不知道如何支付账单的人，担心自己和亲人健康的人，没有带薪病假或带薪假期的人，无家可归的人，被监禁的人，独居的老人，身患残疾的人，没有安全住所的人。
 

@@ -1,6 +1,6 @@
 # 立即从您的 Mac 上移除缩放
 
-> 原文:[https://life hacker . com/remove-zoom-from-your-MAC-right-now-1836209383](https://lifehacker.com/remove-zoom-from-your-mac-right-now-1836209383)
+> 原文：<https://lifehacker.com/remove-zoom-from-your-mac-right-now-1836209383>
 
 对于 Mac 用户来说，Zoom 视频会议应用程序包含两大安全问题。首先，以常规方式卸载应用程序实际上不会将其从系统中移除；相反，通过安装 Zoom，你实际上已经在你的系统上安装了一个持久的 web 服务器，可以用来在未经你允许的情况下*重新安装*应用程序。
 

@@ -1,6 +1,6 @@
 # 当你飘飘欲仙时可以尝试的怪异网络体验
 
-> 原文:[https://life hacker . com/try-these-verged-web-experiences-when-you-high-1834148683](https://lifehacker.com/try-these-weird-web-experiences-when-youre-high-1834148683)
+> 原文：<https://lifehacker.com/try-these-weird-web-experiences-when-youre-high-1834148683>
 
 虽然我已经很久很久没有嗑药了，但我仍然记得我嗑药时的那些愚蠢的冒险经历。那是在大学时代——很久很久以前——当我们品尝各种(难吃的)食物时，我们只有超级粉碎兄弟、肉搏、熔岩灯和壁球来娱乐自己。啊，更简单的时代。
 

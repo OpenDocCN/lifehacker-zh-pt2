@@ -1,6 +1,6 @@
 # 2019 年 9 月 16 日这一周，网飞有哪些活动
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of-septemb-1838192984](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-septemb-1838192984)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-septemb-1838192984>
 
 你喜欢它的网络系列。你会喜欢它作为一部故事片吗？在两株蕨类植物之间:电影将于周五上映，虽然我仍持怀疑态度，但预告片让它看起来相当滑稽。像大卫·莱特曼、乔恩·哈姆、布丽·拉尔森和克莉茜·泰根这样的名人和扎克·加利费安纳基斯一起参加一些面无表情的脱口秀节目；威尔·法瑞尔在那里，做着他那可靠而有趣的威尔·法瑞尔式的事情，显然马修·麦康纳死了或者几乎死了，这是一个有趣的情节转折？
 

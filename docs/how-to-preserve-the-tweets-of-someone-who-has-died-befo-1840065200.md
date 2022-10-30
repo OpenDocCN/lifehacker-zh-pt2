@@ -1,6 +1,6 @@
 # 如何在 Twitter 清除之前保存已经去世的人的推文
 
-> 原文:[https://life hacker . com/how-to-preserve-the-tweets-of-someone-who-dead-befo-1840065200](https://lifehacker.com/how-to-preserve-the-tweets-of-someone-who-has-died-befo-1840065200)
+> 原文：<https://lifehacker.com/how-to-preserve-the-tweets-of-someone-who-has-died-befo-1840065200>
 
 Twitter 刚刚宣布，计划释放不活跃账户 的用户名。虽然这意味着你一直关注的令人垂涎的 Twitter 账号可能最终会是你的，但如果你碰巧在其他人之前抢到了它，Twitter 的这一举动会带来一个不幸的副作用:如果你爱的人不再使用这项服务，他们的账户也可能会消失。
 

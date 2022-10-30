@@ -1,6 +1,6 @@
 # 2019 年 11 月 18 日这一周，网飞有哪些来往
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of novembe-1839894744](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-novembe-1839894744)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-novembe-1839894744>
 
 突击测验！你会沐浴在超凡脱俗的光芒中走向光明，还是四肢着地爬向黑暗面？这是网飞本周提出的问题，因为它只给你提供了两个可行的流媒体选项。
 

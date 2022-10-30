@@ -1,6 +1,6 @@
 # 如果医生只告诉你减肥，考虑第二种意见
 
-> 原文:[https://life hacker . com/if-a-doctor-only-tell-you-to-lose-weight-consider-a-s-1837202095](https://lifehacker.com/if-a-doctor-only-tells-you-to-lose-weight-consider-a-s-1837202095)
+> 原文：<https://lifehacker.com/if-a-doctor-only-tells-you-to-lose-weight-consider-a-s-1837202095>
 
 众所周知，医生在看更大的病人时，有时会忽略体重 。如果你认为你真正的健康问题被忽视了，那就值得寻求第二种意见。
 

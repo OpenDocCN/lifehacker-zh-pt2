@@ -1,4 +1,4 @@
-> 原文:[https://life hacker . com/im-comedian-Caleb-hear on-and-this-is-how-I-eat-1844411378](https://lifehacker.com/im-comedian-caleb-hearon-and-this-is-how-i-eat-1844411378)
+> 原文：<https://lifehacker.com/im-comedian-caleb-hearon-and-this-is-how-i-eat-1844411378>
 
 喜剧演员 Caleb Hearon 可能是我在 Twitter 上最喜欢的人 [。他的正面视频很搞笑，也很有共鸣，但他描绘社会不适而又不刻薄的不可思议的方式有些特别。Caleb 最近从芝加哥搬到了洛杉矶(在疫情的中部)，他已经习惯了很多变化，但他仍然能够在电话上讨论鸡翅，他的秘密辣椒配料，以及他吃过的最糟糕的一顿饭。](https://twitter.com/calebsaysthings)
 

@@ -1,6 +1,6 @@
 # 2020 年 5 月 18 日今晚看什么
 
-> 原文:[https://life hacker . com/今晚看什么-2020 年 5 月 18 日-1843506499](https://lifehacker.com/what-to-watch-tonight-may-18-2020-1843506499)
+> 原文：<https://lifehacker.com/what-to-watch-tonight-may-18-2020-1843506499>
 
 我们都已经正式晋级到下一周了，这意味着我们还有 7 个晚上要过。每天下午，我们都会通过收集一些最佳的流媒体选项来帮助您做到这一点。
 

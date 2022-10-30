@@ -1,6 +1,6 @@
 # 当你跳绳的时候应该做什么
 
-> 原文:[https://life hacker . com/what-to-do-when-you-jumping-rope-1831667910](https://lifehacker.com/what-to-do-when-youre-jumping-rope-1831667910)
+> 原文：<https://lifehacker.com/what-to-do-when-youre-jumping-rope-1831667910>
 
 加入我们的 [跳绳健身挑战赛](https://lifehacker.com/januarys-fitness-challenge-is-jump-rope-1831490416) ？你可能会想，除了跳过绳子，数一数在被缠住之前你能走多远，你还能做些什么。这是一个开始！
 

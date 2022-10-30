@@ -1,6 +1,6 @@
 # 为什么今天的“补丁星期二”对 Windows 用户如此重要
 
-> 原文:[https://life hacker . com/why-todays-patch-Tuesday-is so-important-for-windows-us-1840998702](https://lifehacker.com/why-todays-patch-tuesday-is-so-important-for-windows-us-1840998702)
+> 原文：<https://lifehacker.com/why-todays-patch-tuesday-is-so-important-for-windows-us-1840998702>
 
 如果你是 Windows 用户，所有的补丁星期二都应该很重要，除了那些微软 [发布补丁](https://lifehacker.com/back-up-windows-10-before-installing-the-october-update-1829556930) 并实际上使你的 Windows 系统比以前更糟糕的情况。为您的系统获取最新的功能和安全更新——主要是后者——应该是您每个月都期待的事情。但是今天的星期二更重要。
 

@@ -1,6 +1,6 @@
 # 如何对社交说不
 
-> 原文:[https://life hacker . com/how-to-say-no-to-socialization-1843532583](https://lifehacker.com/how-to-say-no-to-socializing-1843532583)
+> 原文：<https://lifehacker.com/how-to-say-no-to-socializing-1843532583>
 
 尽管 [专家](https://www.statnews.com/2020/04/30/reopening-some-states-heightens-risk-others/) 多次警告说这样做仍然不安全，各州还是重新开放。与此同时，我们都得了幽居症——这是可以理解的——这意味着在未来的几周和几个月里，你可能需要权衡自己的个人安全与那些想与你和你的家人交往的人的意愿。
 

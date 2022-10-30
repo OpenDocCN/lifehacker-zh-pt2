@@ -1,6 +1,6 @@
 # 今天就免费获得《上古卷轴 3:晨风》
 
-> 原文:[https://life hacker . com/get-a-free-copy-of-the-elder-scrolls-iii-morrow wind-tod-1833542688](https://lifehacker.com/get-a-free-copy-of-the-elder-scrolls-iii-morrowind-tod-1833542688)
+> 原文：<https://lifehacker.com/get-a-free-copy-of-the-elder-scrolls-iii-morrowind-tod-1833542688>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-jtFkIdanNEs&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-jtFkIdanNEs&start=0) 
 

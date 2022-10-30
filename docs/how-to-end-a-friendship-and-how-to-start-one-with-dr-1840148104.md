@@ -1,6 +1,6 @@
 # 如何结束一段友谊(以及如何开始一段友谊)，与米里亚姆·克尔迈尔博士一起
 
-> 原文:[https://life hacker . com/how-to-end-a-friendship-and-how-to-start-one with-dr-1840148104](https://lifehacker.com/how-to-end-a-friendship-and-how-to-start-one-with-dr-1840148104)
+> 原文：<https://lifehacker.com/how-to-end-a-friendship-and-how-to-start-one-with-dr-1840148104>
 
 本周，我们将与心理学家米丽娅姆·科尔迈耶 一起应对艰难的友谊场景，她解释了为什么驾驭友谊的准则如此困难，以及如何和平地结束那些不再有效的联系。除了研究友谊科学近十年之外，科尔迈耶博士还为《今日 T4 心理学》写了一个名为" [Casual to Close](https://www.psychologytoday.com/us/blog/casual-close) 的专栏，并经常被《纽约时报》**《大西洋月刊》**《福布斯》杂志*和*《时代》杂志*等出版物咨询。* 
 

@@ -1,6 +1,6 @@
 # 为你挑食的人创建一份“菜单”
 
-> 原文:[https://life hacker . com/create-a-menu-for-your-picky-eater-1842058400](https://lifehacker.com/create-a-menu-for-your-picky-eater-1842058400)
+> 原文：<https://lifehacker.com/create-a-menu-for-your-picky-eater-1842058400>
 
 我坚信，让挑食的人吃东西没有太多的窍门。挑食的父母需要更加努力地为他们的孩子提供健康、均衡的膳食，这样他们的孩子每天早上、中午和晚上都不会大吵大闹。当然， [食物选择](https://offspring.lifehacker.com/let-your-kid-eat-with-food-picks-1836892766) 可能是一个孩子开始啃食甜瓜所需要的一切。但下一个孩子可能会被“ [品尝盘子](https://offspring.lifehacker.com/use-a-taste-plate-to-get-picky-eaters-to-try-new-food-1796917875) ”说服或者也许你会有更好的运气，在 [维恩图](https://offspring.lifehacker.com/feed-your-picky-kids-and-you-with-venn-diagram-meals-1836499243) 中想到你家人的饭菜。
 

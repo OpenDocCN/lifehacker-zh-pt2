@@ -1,6 +1,6 @@
 # 可以用高清电视作为电脑显示器吗？
 
-> 原文:[https://life hacker . com/is-it-okay-to-use-an-HDTV-as-a-computer-monitor-5884040](https://lifehacker.com/is-it-okay-to-use-an-hdtv-as-a-computer-monitor-5884040)
+> 原文：<https://lifehacker.com/is-it-okay-to-use-an-hdtv-as-a-computer-monitor-5884040>
 
 每次去买新的电脑显示器，我都会问自己同一个问题:我为什么要这样做？为什么不通过我已经有的巨大的显示器，或者说我的大屁股电视来运行所有的东西呢？
 

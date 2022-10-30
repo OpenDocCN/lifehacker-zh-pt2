@@ -1,6 +1,6 @@
 # 本周末免费畅饮 HBO 的《守望者》
 
-> 原文:[https://life hacker . com/binge-hbos-watchmen-for-free-this-weekend-1844080406](https://lifehacker.com/binge-hbos-watchmen-for-free-this-weekend-1844080406)
+> 原文：<https://lifehacker.com/binge-hbos-watchmen-for-free-this-weekend-1844080406>
 
 1921 年的黑人华尔街大屠杀是美国历史上最伟大、最血腥的悲剧之一。从 5 月底到 6 月初的两天时间里，暴力的白人群体渗透到该市格林伍德区的黑人居民和黑人拥有的企业社区，杀害了数百人，伤害了数千人，摧毁了一个繁荣的社区。然而，许多美国人仍然不知道我们国家历史上“最严重的种族暴力事件”,直到它成为 HBO 的《守望者》(表面上是一部关于超级英雄的电视剧)中的一个情节点。
 

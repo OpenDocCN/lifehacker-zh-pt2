@@ -1,6 +1,6 @@
 # 如何选择免费高清电视的最佳无线天线
 
-> 原文:[https://life hacker . com/how-to-choose-the-best-over-the-air-antenna-for-free-HD-1569752514](https://lifehacker.com/how-to-choose-the-best-over-the-air-antenna-for-free-hd-1569752514)
+> 原文：<https://lifehacker.com/how-to-choose-the-best-over-the-air-antenna-for-free-hd-1569752514>
 
 有了这么多的流媒体服务，我们可以在任何时候观看我们想要的东西，人们考虑摆脱有线电视 是有道理的。下班后回到家，看一集接一集的《办公室》或《单身生活》固然很棒，但早上收听当地新闻，查看天气和交通状况，也有好处。
 

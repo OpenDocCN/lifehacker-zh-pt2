@@ -1,6 +1,6 @@
 # 如何转行，职业导师约瑟夫·刘
 
-> 原文:[https://life hacker . com/how-to-switch-careers-with-career-guru-Joseph-Liu-1839639811](https://lifehacker.com/how-to-switch-careers-with-career-guru-joseph-liu-1839639811)
+> 原文：<https://lifehacker.com/how-to-switch-careers-with-career-guru-joseph-liu-1839639811>
 
 跳到一个全新的工作领域，一个新的行业，一个新的身份，是极其令人畏惧的。这就是为什么本周我们要直接进入如何进行大的职业转换。首先，我们与职业转变顾问、演讲者和职业重新启动节目主持人播客 [约瑟夫·刘](https://josephliu.co/) 聊一聊，这些年来，他帮助了许多人在职业中期做出重大转变。接下来我们来听听 Julieta Benavides 的个人职业转变故事，她从高薪的餐厅管理工作一跃进入了保健按摩领域。
 

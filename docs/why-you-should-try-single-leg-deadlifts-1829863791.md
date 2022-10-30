@@ -1,6 +1,6 @@
 # 为什么你应该尝试单腿硬拉
 
-> 原文:[https://life hacker . com/why-you-should-try-single-leg-deadlifts-1829863791](https://lifehacker.com/why-you-should-try-single-leg-deadlifts-1829863791)
+> 原文：<https://lifehacker.com/why-you-should-try-single-leg-deadlifts-1829863791>
 
 如果你一直在为我们的硬拉挑战 而挣扎，因为你不容易进入有杠铃和重物的健身房，这是特别为你准备的。不过，我们所有人都会受益。是时候试试单腿硬拉了。
 

@@ -1,6 +1,6 @@
 # 通过这段视频向你的孩子解释物理距离
 
-> 原文:[https://life hacker . com/explain-physical-distance-to-your ' s little-kid with thi-1842488101](https://lifehacker.com/explain-physical-distancing-to-your-little-kid-with-thi-1842488101)
+> 原文：<https://lifehacker.com/explain-physical-distancing-to-your-little-kid-with-thi-1842488101>
 
 向我们较大的孩子解释冠状病毒 可能非常简单——我们可以用适合年龄的方式回答他们的问题，承认他们的焦虑，谈论我们正在做什么来保持健康，并找到帮助他人的方法。但对于我们的小孩来说，这就有点棘手了，他们现在可能会无限期地从日托所或幼儿园回家，错过与他们蹒跚学步的孩子或学龄前朋友的常规玩耍时间。
 

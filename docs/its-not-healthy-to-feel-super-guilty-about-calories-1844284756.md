@@ -1,6 +1,6 @@
 # 对卡路里感到极度内疚是不健康的
 
-> 原文:[https://life hacker . com/its-not-healthy-to-feel-super-calories-1844284756](https://lifehacker.com/its-not-healthy-to-feel-super-guilty-about-calories-1844284756)
+> 原文：<https://lifehacker.com/its-not-healthy-to-feel-super-guilty-about-calories-1844284756>
 
 食物可以充满情感和意义。当它标有一定数量的卡路里时，情况就更糟了，因为这个数字将食物与你的体重、你的锻炼习惯以及你对这两者潜在的复杂感受相匹配。
 

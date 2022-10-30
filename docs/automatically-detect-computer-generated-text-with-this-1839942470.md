@@ -1,6 +1,6 @@
 # 使用这个 Chrome 扩展自动检测计算机生成的文本
 
-> 原文:[https://life hacker . com/automatically-detect-computer-generated-text-with this-1839942470](https://lifehacker.com/automatically-detect-computer-generated-text-with-this-1839942470)
+> 原文：<https://lifehacker.com/automatically-detect-computer-generated-text-with-this-1839942470>
 
 如今，人工智能系统可以写出非常令人信服的可读文本。一个新的浏览器扩展， [GPTrue 或 False](https://chrome.google.com/webstore/search/Gptrue%20or%20false) ，可以测试给定的文本是否可能是由人工智能生成的。
 

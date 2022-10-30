@@ -1,6 +1,6 @@
 # 如何让老鼠窝远离你长期停放的汽车
 
-> 原文:[https://jalopnik . com/how-to-keep-from-turning-your ' s long-term-parked-1843967245](https://jalopnik.com/how-to-keep-rodents-from-turning-your-long-term-parked-1843967245)
+> 原文：<https://jalopnik.com/how-to-keep-rodents-from-turning-your-long-term-parked-1843967245>
 
 许多美国人在过去的几周里很少开车，以 [社交距离](https://jalopnik.com/tag/covid-19) 的名义，虽然旅行假期可能让通勤者减少了开车，但坚持在家呆着的命令使汽车容易受到啮齿动物的侵扰。
 

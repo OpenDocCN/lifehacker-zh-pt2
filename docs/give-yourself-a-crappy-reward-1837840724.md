@@ -1,6 +1,6 @@
 # 给自己一个蹩脚的奖励
 
-> 原文:[https://life hacker . com/给自己一个蹩脚的奖励-1837840724](https://lifehacker.com/give-yourself-a-crappy-reward-1837840724)
+> 原文：<https://lifehacker.com/give-yourself-a-crappy-reward-1837840724>
 
 奖励自己可能会适得其反。如果你告诉自己“我只会在健身房的时候听我最喜欢的播客”，只需要一瞬间的软弱就能意识到你可以作弊，想听就随时听。相反，试试这个:奖励自己一些没有任何享受价值的东西。就像日历上的勾号。
 

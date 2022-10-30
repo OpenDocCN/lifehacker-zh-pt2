@@ -1,6 +1,6 @@
 # 在手机中追踪孩子朋友的最佳方式
 
-> 原文:[https://life hacker . com/the-best-way to-keep-track-of-you-kid-s-friends-in-you 1836833608](https://lifehacker.com/the-best-way-to-keep-track-of-your-kid-s-friends-in-you-1836833608)
+> 原文：<https://lifehacker.com/the-best-way-to-keep-track-of-your-kid-s-friends-in-you-1836833608>
 
 作为一个六岁孩子的母亲，我的手机里充斥着诸如“玛丽·蕾拉斯莫”和“达娜·玛蒂丝达”之类的联系人。这就是我如何跟踪我女儿的新朋友和那些记录他们日程的(也就是他们的“父母”)私人助理。这种标记方法有助于我的大脑将成人和儿童联系起来，但它又笨拙又笨拙。可怜的玛丽和达娜永远不会有合适的姓，至少在我的移动设备里不会。
 

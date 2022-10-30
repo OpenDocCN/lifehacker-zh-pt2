@@ -1,6 +1,6 @@
 # 如何停止使用这么多一次性塑料
 
-> 原文:[https://life hacker . com/how-to-stop-use-so-much-disposable-plastic-1830504494](https://lifehacker.com/how-to-stop-using-so-much-disposable-plastic-1830504494)
+> 原文：<https://lifehacker.com/how-to-stop-using-so-much-disposable-plastic-1830504494>
 
 我们正在用塑料淹没这个世界。它 [冲上了我们的海滩](https://www.smithsonianmag.com/smart-news/waves-garbage-are-washing-beach-dominican-republic-180969747/) ，它 [在垃圾填埋场被掩埋了几个世纪](https://slate.com/news-and-politics/2007/06/do-plastic-bags-really-take-500-years-to-break-down-in-a-landfill.html) ，它漂浮在海洋上，形成一团微小的微粒 [体积是得克萨斯州的两倍](https://www.theoceancleanup.com/great-pacific-garbage-patch/) 。其中大部分——在美国占 75%——从未被回收。回收它仍然需要制造新塑料能量的 10%——并非一无所有。一开始少用一点就好了。
 

@@ -1,6 +1,6 @@
 # 如何像星际舰队军官一样为人父母
 
-> 原文:[https://life hacker . com/how-to-parent-like-a-starfleet-officer-1840338010](https://lifehacker.com/how-to-parent-like-a-starfleet-officer-1840338010)
+> 原文：<https://lifehacker.com/how-to-parent-like-a-starfleet-officer-1840338010>
 
 有时候，当你蹒跚学步的孩子因为他们要香蕉而大发脾气，然后你给了他们一个香蕉，你可能会想到:*坐在我面前的这个不理智的人是谁或什么？就好像我在和一个无法适应新环境的外星生命形式打交道。那是时候引导你内心的星际舰队军官了。* 
 

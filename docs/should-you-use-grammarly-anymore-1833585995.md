@@ -1,6 +1,6 @@
 # 你还应该使用语法吗？
 
-> 原文:[https://life hacker . com/should-you-use-grammarly-more-1833585995](https://lifehacker.com/should-you-use-grammarly-anymore-1833585995)
+> 原文：<https://lifehacker.com/should-you-use-grammarly-anymore-1833585995>
 
 我曾经很喜欢[](https://lifehacker.com/chrome-firefox-extension-of-the-week-grammarly-1824182620)**，这是一个有用的浏览器插件，它可以分析你输入的内容，并指出你糟糕的拼写和语法选择——让你修改或忽略，这取决于你是哪种类型的作家。几个月后，我最终卸载了它，因为它似乎有点占用资源，而且我发现 Chrome 的内置拼写检查是我真正需要的。**
 

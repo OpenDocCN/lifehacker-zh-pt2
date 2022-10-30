@@ -1,6 +1,6 @@
 # 如何礼貌地避免握手
 
-> 原文:[https://life hacker . com/how-to-礼貌地避免握手-1842154501](https://lifehacker.com/how-to-politely-avoid-a-handshake-1842154501)
+> 原文：<https://lifehacker.com/how-to-politely-avoid-a-handshake-1842154501>
 
 我们大多数人可能都熟悉标准的冠状病毒预防建议:洗手，避免触摸面部，定期清洁门把手等常见表面，以及再次洗手。
 

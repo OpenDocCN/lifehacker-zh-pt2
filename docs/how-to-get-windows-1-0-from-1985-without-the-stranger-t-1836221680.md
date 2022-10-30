@@ -1,6 +1,6 @@
 # 如何获得 1985 年的 Windows 1.0，而没有“陌生事物”的搭售
 
-> 原文:[https://life hacker . com/how-to-get-windows-1-0-from-1985-without-the-stranger-t-1836221680](https://lifehacker.com/how-to-get-windows-1-0-from-1985-without-the-stranger-t-1836221680)
+> 原文：<https://lifehacker.com/how-to-get-windows-1-0-from-1985-without-the-stranger-t-1836221680>
 
 微软本周“重新发布”了 Windows 1.0，作为其与“陌生人事物”[](https://www.microsoft.com/en-us/p/windows-111/9pghpx7zmjrc?ranMID=24542&activetab=pivot%3Aoverviewtab)*合作伙伴关系的一部分，这表明我还没有对网飞着迷。虽然你可以免费下载并使用它——当然是在 Windows 上——但它并不是真正的 Windows 1.0，因为它充满了谜题和各种其他促销搭售，这些在 1985 年 Windows 1.0 首次推出时并不存在。* 
 

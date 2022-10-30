@@ -1,6 +1,6 @@
 # DIY 化学果皮是一个可怕的想法
 
-> 原文:[https://life hacker . com/DIY-chemical-peels-are-a-terrible-idea-1838446497](https://lifehacker.com/diy-chemical-peels-are-a-terrible-idea-1838446497)
+> 原文：<https://lifehacker.com/diy-chemical-peels-are-a-terrible-idea-1838446497>
 
 仅仅因为你可以在网上买东西，并不意味着你应该这样做。三氯乙酸是一种化学去死皮的主要成分，你可以从美学家或皮肤科医生那里得到，它很容易获得，但是高浓度的使用并不安全。
 

@@ -1,6 +1,6 @@
 # 不，航空公司还没有用摄像机监视你
 
-> 原文:[https://life hacker . com/no-airlines-arent-watching-you-with camera-yet-1832828029](https://lifehacker.com/no-airlines-arent-watching-you-with-cameras-yet-1832828029)
+> 原文：<https://lifehacker.com/no-airlines-arent-watching-you-with-cameras-yet-1832828029>
 
 本周有个非常酷、非常令人欣慰的隐私消息，你可能不得不在一个地方保护你的个人信息，除了任何笔记本电脑或手机:飞机座位。
 

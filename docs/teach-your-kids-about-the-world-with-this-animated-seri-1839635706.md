@@ -1,6 +1,6 @@
 # 用这个动画系列教你的孩子了解这个世界
 
-> 原文:[https://life hacker . com/teach-your-kids-about-the-world with this-animated-seri-1839635706](https://lifehacker.com/teach-your-kids-about-the-world-with-this-animated-seri-1839635706)
+> 原文：<https://lifehacker.com/teach-your-kids-about-the-world-with-this-animated-seri-1839635706>
 
 如果你的孩子兴趣广泛——而且注意力持续时间短——他们可能会喜欢上 [Triviatopia](https://www.youtube.com/channel/UCOkdrnEls8BYXVLGnyRyk9A) ，这是 YouTube 上的一系列教育动画视频，涉及从科学、历史和艺术到技术和环境的方方面面。
 

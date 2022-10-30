@@ -1,6 +1,6 @@
 # 把你的太阳镜变成眼镜
 
-> 原文:[https://life hacker . com/convert-your-太阳镜换眼镜-1835307516](https://lifehacker.com/convert-your-sunglasses-into-eyeglasses-1835307516)
+> 原文：<https://lifehacker.com/convert-your-sunglasses-into-eyeglasses-1835307516>
 
 当我看着网飞令人愉快的浪漫喜剧*永远是我的可能*:*我需要去韩国水疗中心做一次按摩"我很确定我的六个高中朋友有同样的丰田花冠.""好吧，戴耳机的山谬·里维可能会成为我下一个万圣节服装."* 
 

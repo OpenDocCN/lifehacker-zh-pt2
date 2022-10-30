@@ -1,6 +1,6 @@
 # 好吧，那么英国退出欧盟实际上是什么时候发生的？
 
-> 原文:[https://life hacker . com/ok-so-when-so-when-does-actually-occurrence-1840416451](https://lifehacker.com/ok-so-when-does-brexit-actually-happen-1840416451)
+> 原文：<https://lifehacker.com/ok-so-when-does-brexit-actually-happen-1840416451>
 
 随着鲍里斯·约翰逊赢得英国大选，你可能已经看到了一堆关于英国退出欧盟将如何发展的头条新闻。但事情没那么简单。让我们来分析一下这一事件及其对英国的意义，以及它(最终)对我们美国人的意义
 

@@ -1,6 +1,6 @@
 # 使用 Google Home 为您的孩子录制并分享睡前故事
 
-> 原文:[https://life hacker . com/record-and-share-bedrome-stories-for-your-kid-using-goo-1840005107](https://lifehacker.com/record-and-share-bedtime-stories-for-your-kid-using-goo-1840005107)
+> 原文：<https://lifehacker.com/record-and-share-bedtime-stories-for-your-kid-using-goo-1840005107>
 
 对大多数父母来说， [与孩子](https://offspring.lifehacker.com/why-picture-books-are-perfect-bedtime-stories-1826481061) 分享夜间故事是宝贵的和重要的时间，但有时照顾孩子的责任落到了保姆和其他家庭成员身上。最新的 Google Home 更新增加了一个新的“我的故事时间”功能，让父母在他们不在家睡觉的时候为他们的孩子录制故事和其他信息。
 

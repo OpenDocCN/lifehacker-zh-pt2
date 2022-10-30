@@ -1,4 +1,4 @@
-> 原文:[https://Jezebel . com/Alison-Roman-is-more-than-the stew-1838861751](https://jezebel.com/alison-roman-is-more-than-thestew-1838861751)
+> 原文：<https://jezebel.com/alison-roman-is-more-than-thestew-1838861751>
 
 艾莉森·罗曼(Alison Roman)是一本烹饪书的作者、Instagram microlebrity 和一款病毒性鹰嘴豆炖菜的创造者，她是一个拥抱者。“我感觉我们以前见过！”她滔滔不绝地说，拥抱了我，并为物流混乱道歉，让我在曼哈顿东村的韩国杂货店 H Mart 的前哨等待，而罗曼正在前往韩国城的原位置。
 

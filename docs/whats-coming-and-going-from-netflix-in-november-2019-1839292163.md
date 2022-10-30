@@ -1,6 +1,6 @@
 # 2019 年 11 月网飞有什么来往
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-2019-11-1839292163](https://lifehacker.com/whats-coming-and-going-from-netflix-in-november-2019-1839292163)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-in-november-2019-1839292163>
 
 这个月，网飞得到了*比利在街上*，*恐惧和厌恶在拉斯维加斯*，*油脂*，*迷迭香的宝宝*，*继兄弟*，*游戏*，完整的*黑客帝国*三部曲(最后一次在网飞[6 月 30 日](https://lifehacker.com/whats-coming-and-going-from-netflix-in-july-2019-1835653336)，*僵尸之地*。 
 

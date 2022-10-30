@@ -1,6 +1,6 @@
 # 好市多 75 美元的优惠券是假的
 
-> 原文:[https://life hacker . com/that-Costco-75-coupon-is-fake-1839858290](https://lifehacker.com/that-costco-75-coupon-is-fake-1839858290)
+> 原文：<https://lifehacker.com/that-costco-75-coupon-is-fake-1839858290>
 
 如果你注意到一张价值 75 美元的好市多优惠券在脸书四处飘荡，并认为“这似乎有些牵强”，你的直觉是对的:这是一张假优惠券。
 

@@ -1,6 +1,6 @@
 # 如何为 Instagram 创建多图像全景图
 
-> 原文:[https://life hacker . com/how-to-create-multi-image-panoramas-for-insta gram-1843328162](https://lifehacker.com/how-to-create-multi-image-panoramas-for-instagram-1843328162)
+> 原文：<https://lifehacker.com/how-to-create-multi-image-panoramas-for-instagram-1843328162>
 
 如果你曾经试图上传一张全景照片到 Instagram，或者老实说，任何有趣的横向照片，那么你可能会遇到问题。
 

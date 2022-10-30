@@ -1,6 +1,6 @@
 # 试试这些黑仔核心和上身阻力带练习
 
-> 原文:[https://life hacker . com/try-these-killer-core-and-upper-body-resistance-band-ex-1833490936](https://lifehacker.com/try-these-killer-core-and-upper-body-resistance-band-ex-1833490936)
+> 原文：<https://lifehacker.com/try-these-killer-core-and-upper-body-resistance-band-ex-1833490936>
 
 虽然几乎任何运动都有阻力带版本，但只有少数运动中阻力带是最好的方法之一。这里有一些我最喜欢的，重点是上半身的动作。加入我们的 [抵抗乐队挑战](https://lifehacker.com/the-march-fitness-challenge-is-the-resistance-band-wor-1832996075) ，给他们一个尝试吧！
 

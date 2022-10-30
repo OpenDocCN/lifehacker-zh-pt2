@@ -1,6 +1,6 @@
 # 忽略你的 iPhone 对第三方更换电池的“服务”警告
 
-> 原文:[https://life hacker . com/ignore-your-iphone-service-warning-for-battery-replace-1837062491](https://lifehacker.com/ignore-your-iphones-service-warning-for-battery-replace-1837062491)
+> 原文：<https://lifehacker.com/ignore-your-iphones-service-warning-for-battery-replace-1837062491>
 
 如果你不想更换你的 iPhone 电池，你可以不去苹果商店更换——如果你的新 iPhone 过了保修期，苹果会提供 69 美元的修复服务。然而，如果你在别处购买了电池，你的 iPhone 会警告你新的替换电池需要维修。不要为此感到紧张。这只是苹果新 iPhone 电池验证过程中的一个烦恼。
 

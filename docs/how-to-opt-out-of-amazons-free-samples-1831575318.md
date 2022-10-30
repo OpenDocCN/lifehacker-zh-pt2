@@ -1,6 +1,6 @@
 # 如何退出亚马逊的免费样品
 
-> 原文:[https://life hacker . com/how-to-opt-out-of-amazons-free-samples-1831575318](https://lifehacker.com/how-to-opt-out-of-amazons-free-samples-1831575318)
+> 原文：<https://lifehacker.com/how-to-opt-out-of-amazons-free-samples-1831575318>
 
 在邮件中收到免费的东西总是很有趣，尤其是如果它们是一个惊喜——无论是朋友或爱人的礼物，还是亚马逊微妙的鼓励，让你应该尝试一下赞助的产品。
 

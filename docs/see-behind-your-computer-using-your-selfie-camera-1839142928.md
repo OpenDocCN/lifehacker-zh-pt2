@@ -1,6 +1,6 @@
 # 使用自拍相机查看电脑背后
 
-> 原文:[https://life hacker . com/see-behind-your-computer-using-your-self ie-camera-1839142928](https://lifehacker.com/see-behind-your-computer-using-your-selfie-camera-1839142928)
+> 原文：<https://lifehacker.com/see-behind-your-computer-using-your-selfie-camera-1839142928>
 
 当你把东西塞到显示器、电脑或电视后面时，你有几个选择，都很烦人。你可以用手盲目摸索。你可以在显示器下弯腰，撞到你的头。或者你可以把整个东西从墙上拉下来。但是科技记者马克斯·布朗利有一个窍门:用你手机的自拍摄像头偷窥端口。这是它的样子。
 

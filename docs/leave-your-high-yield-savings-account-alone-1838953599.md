@@ -1,6 +1,6 @@
 # 别管你的高收益储蓄账户
 
-> 原文:[https://life hacker . com/leave-your-high-yield-savings-account-alone-1838953599](https://lifehacker.com/leave-your-high-yield-savings-account-alone-1838953599)
+> 原文：<https://lifehacker.com/leave-your-high-yield-savings-account-alone-1838953599>
 
 “上升的必然下降”不仅仅是地心引力的工作原理——不幸的是，它也适用于美国经济。可悲的是，不可能一直都是牛市和彩虹。如果你对几个月前还在 2%以上徘徊的高收益储蓄账户利率感到兴奋，那么是时候开始重新调整你的预期了。
 

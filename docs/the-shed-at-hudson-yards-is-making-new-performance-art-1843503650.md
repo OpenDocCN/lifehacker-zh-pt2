@@ -1,6 +1,6 @@
 # 哈德逊庭院的棚子在周日免费提供新的行为艺术
 
-> 原文:[https://life hacker . com/the-shed-at-Hudson-yards-is-making-new-performance-art-1843503650](https://lifehacker.com/the-shed-at-hudson-yards-is-making-new-performance-art-1843503650)
+> 原文：<https://lifehacker.com/the-shed-at-hudson-yards-is-making-new-performance-art-1843503650>
 
 如果你错过了过去几个月去看艺术展的机会，哈德逊庭院的小屋每周日都会在其网站上举办一场免费的数字艺术展，内容每隔一周更换一次，以展示新的艺术家。
 

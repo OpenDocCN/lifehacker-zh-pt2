@@ -1,6 +1,6 @@
 # 2018 年 11 月 5 日这一周，网飞有哪些活动
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of novembe-1830074107](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-novembe-1830074107)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-novembe-1830074107>
 
 让我们废话少说，不要再假装这周除了*伟大的英国烘焙展:收藏 6* (在英国更为人所知的是第九季)之外还有什么你想看的。这是有史以来最舒缓的节目，我们都知道。
 

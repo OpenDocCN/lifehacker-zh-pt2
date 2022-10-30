@@ -1,6 +1,6 @@
 # 如何戴上口罩而不使眼镜起雾
 
-> 原文:[https://kotaku . com/how-to-wear-disease-masks-no-fogging-up-your-glas-1841486445](https://kotaku.com/how-to-wear-sickness-masks-without-fogging-up-your-glas-1841486445)
+> 原文：<https://kotaku.com/how-to-wear-sickness-masks-without-fogging-up-your-glas-1841486445>
 
 如果你戴眼镜，就像我有时戴的那样，你会知道疾病的面具会很快使你的眼睛变得模糊。东京警视厅有如何避免这种情况的提示。
 

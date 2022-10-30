@@ -1,6 +1,6 @@
 # 如果你担心冠状病毒，注射流感疫苗
 
-> 原文:[https://life hacker . com/if-you-warehouse-get-your-flu-shot-1841201798](https://lifehacker.com/if-youre-worried-about-coronavirus-get-your-flu-shot-1841201798)
+> 原文：<https://lifehacker.com/if-youre-worried-about-coronavirus-get-your-flu-shot-1841201798>
 
 冠状病毒可能会成为头条新闻 ，但迄今为止，它对我们大多数人来说并没有那么大的风险。全世界只有极少数病例，如果你没有去过中国武汉，你的咳嗽很可能只是普通感冒。不过，如果你担心，用你紧张的精力去做:注射该死的流感疫苗。
 

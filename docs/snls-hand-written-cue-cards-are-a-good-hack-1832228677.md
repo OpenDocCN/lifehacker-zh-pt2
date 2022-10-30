@@ -1,6 +1,6 @@
 # SNL 的手写提示卡是一个很好的黑客
 
-> 原文:[https://life hacker . com/snls-hand-written-cue-cards-is-a-good-hack-1832228677](https://lifehacker.com/snls-hand-written-cue-cards-are-a-good-hack-1832228677)
+> 原文：<https://lifehacker.com/snls-hand-written-cue-cards-are-a-good-hack-1832228677>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-3djg59JUrmc&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-3djg59JUrmc&start=0) 
 

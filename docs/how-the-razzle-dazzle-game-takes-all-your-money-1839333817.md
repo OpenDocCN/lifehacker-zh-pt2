@@ -1,6 +1,6 @@
 # 这个令人眼花缭乱的游戏是如何花光你所有的钱的
 
-> 原文:[https://life hacker . com/how-the-razzle-dazzle-game-take-all-your money-1839333817](https://lifehacker.com/how-the-razzle-dazzle-game-takes-all-your-money-1839333817)
+> 原文：<https://lifehacker.com/how-the-razzle-dazzle-game-takes-all-your-money-1839333817>
 
 这个游戏是非法的。Razzle，又名 Razzle-Dazzle，是一种伪装成嘉年华或街头游戏的骗局，在这里你在一个盒子里滚动大理石收集点数。突然出现在 [哈瓦那](http://www.lahabana.com/content/on-diamonds-razzle-and-goddesses-of-the-flesh-2/)[纽约](https://www.nydailynews.com/new-york/mobsters-shots-carnival-game-cash-article-1.1242359)[新奥尔良](https://www.chron.com/news/nation-world/article/Role-of-New-Orleans-police-in-rigged-game-1967577.php) ，以及全美各地的路边和停车场，这就像三张牌的蒙特，但更复杂，也更好地伪装成真实的游戏。
 

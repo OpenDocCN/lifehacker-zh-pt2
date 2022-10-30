@@ -1,6 +1,6 @@
 # 如何让你的迪士尼+账号不被黑
 
-> 原文:[https://life hacker . com/how-to-keep-your-Disney-account-1839940718](https://lifehacker.com/how-to-keep-your-disney-account-from-being-hacked-1839940718)
+> 原文：<https://lifehacker.com/how-to-keep-your-disney-account-from-being-hacked-1839940718>
 
 根据大量报道，最近网络上出现了大量被黑的迪士尼+账户。那些闯入你账户的人并没有利用流媒体服务中一些疯狂的漏洞。他们要么是仿冒你的账户数据，要么更糟的是，使用已经暴露了的凭证登录你的账户。
 

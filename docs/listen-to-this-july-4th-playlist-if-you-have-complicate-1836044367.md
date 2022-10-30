@@ -1,6 +1,6 @@
 # 如果你对美国有复杂的感情，请听听这个 7 月 4 日的播放列表
 
-> 原文:[https://life hacker . com/listen-to-this-July-4-playlist-if-you-hacken-1836044367](https://lifehacker.com/listen-to-this-july-4th-playlist-if-you-have-complicate-1836044367)
+> 原文：<https://lifehacker.com/listen-to-this-july-4th-playlist-if-you-have-complicate-1836044367>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-VYOjWnS4cMY&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-VYOjWnS4cMY&start=0) 
 

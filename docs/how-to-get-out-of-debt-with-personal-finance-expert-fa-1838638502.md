@@ -1,6 +1,6 @@
 # 如何摆脱债务，个人理财专家法努什·托拉比
 
-> 原文:[https://life hacker . com/how-to-get-out-of-debt with-personal-finance-expert-fa-1838638502](https://lifehacker.com/how-to-get-out-of-debt-with-personal-finance-expert-fa-1838638502)
+> 原文：<https://lifehacker.com/how-to-get-out-of-debt-with-personal-finance-expert-fa-1838638502>
 
 在这一集的升级中，我们将解决债务问题。令人不堪重负、焦虑不安的债务。面对如此沉重的负担，可能很难知道从哪里开始，但幸运的是，我们得到了一些帮助。首先，我们将听取 Lifehacker 的特约撰稿人 Lisa Rowan 的意见，她将回答 Upgrade listener 和 Lifehacker reader 提出的关于信用卡的问题。然后，我们请来了个人理财专家(也是播客 的朋友)法努什·托拉比，他指导我们如何开始处理债务。 
 

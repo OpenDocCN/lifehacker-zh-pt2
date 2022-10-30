@@ -1,6 +1,6 @@
 # 2019 年 4 月 8 日这一周，网飞有哪些活动
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of-April-8-1833809211](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-april-8-1833809211)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-april-8-1833809211>
 
 本周，贝尔·格里尔斯真的处于进退两难的境地，你可以在这个名为 *You vs. Wild* (周三)*的互动系列中选择他自己的冒险。*他应该爬上悬挂的悬崖顶，面对饥饿的美洲狮，还是跳进岩石深渊？他应该吃掉这个巨大的活幼虫，还是随它去？“如果你不做出正确的选择，我可能不会有好结果，”他在预告片中警告说，暗示如果你选择错误，他就会死，我想我们都同意，这是一个空洞的承诺。尽管如此，如果任何类型的系列有助于游戏化和互动性，它绝对是你决定一个人是否在冰冷的广阔天地行走或爬行的一个系列。
 

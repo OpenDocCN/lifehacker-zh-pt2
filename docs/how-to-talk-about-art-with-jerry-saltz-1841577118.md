@@ -1,6 +1,6 @@
 # 如何与杰瑞·萨尔茨谈论艺术
 
-> 原文:[https://life hacker . com/how-to-talk-about-art with-Jerry-saltz-1841577118](https://lifehacker.com/how-to-talk-about-art-with-jerry-saltz-1841577118)
+> 原文：<https://lifehacker.com/how-to-talk-about-art-with-jerry-saltz-1841577118>
 
 当你盯着杰森·布拉克时，你有没有感到无话可说？或者只是不知道该对罗斯科说些什么？纽约杂志的资深艺术评论家杰里·萨尔茨本周加入我们，帮助我们这些没什么文化的人学习讨论艺术，并让我们记住艺术评论没有对错之分。
 

@@ -1,6 +1,6 @@
 # 创建新的在线账户时伪造你的生日
 
-> 原文:[https://life hacker . com/fake-your-birthday-when-creating-new-online-accounts-1844494922](https://lifehacker.com/fake-your-birthday-when-creating-new-online-accounts-1844494922)
+> 原文：<https://lifehacker.com/fake-your-birthday-when-creating-new-online-accounts-1844494922>
 
 每次我注册一个新的网站或服务时，我都会对自己说:现在有多少地方有我的信息？我想，考虑到这些年来我给各种实体提供的数据:我的名字、地址、生日、电子邮件、电话号码、性别等等，我不需要很长时间就能得到一个关于我的很好的个人资料。
 

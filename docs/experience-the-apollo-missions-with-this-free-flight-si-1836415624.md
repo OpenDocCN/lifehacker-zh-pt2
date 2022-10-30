@@ -1,6 +1,6 @@
 # 体验这个免费的飞行模拟器阿波罗任务
 
-> 原文:[https://life hacker . com/experience-the-Apollo-missions-this-free-flight-si-1836415624](https://lifehacker.com/experience-the-apollo-missions-with-this-free-flight-si-1836415624)
+> 原文：<https://lifehacker.com/experience-the-apollo-missions-with-this-free-flight-si-1836415624>
 
 如果你想有一个更令人兴奋的 [阿波罗 11 号](https://io9.gizmodo.com/astronaut-neil-armstrong-on-why-hes-proud-to-be-a-nerd-1556439969) 周，很容易在你的电脑上免费尝试不同阿波罗任务的美丽模拟。你所需要的只是开源应用 [轨道飞行器](http://orbit.medphys.ucl.ac.uk/) 和 [项目阿波罗](https://sourceforge.net/projects/nassp/) 附加组件，这比去太空营要容易管理得多。
 

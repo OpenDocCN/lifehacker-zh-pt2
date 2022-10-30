@@ -1,6 +1,6 @@
 # 以下是儿科医生对今年秋季入学的建议
 
-> 原文:[https://life hacker . com/heres-what-pediatrics-recommend-for-school-this-fall-1844217206](https://lifehacker.com/heres-what-pediatricians-recommend-for-school-this-fall-1844217206)
+> 原文：<https://lifehacker.com/heres-what-pediatricians-recommend-for-school-this-fall-1844217206>
 
 如果你一直在学校今秋重新开放的利弊之间来回徘徊，你并不孤单。即使是美国儿科学会也不能明确指出我们应该做什么。就在几周前，AAP 第一次建议学校把今年秋天让学生亲自出现在教室里作为一个目标，现在又说“一刀切”的方法是行不通的。
 

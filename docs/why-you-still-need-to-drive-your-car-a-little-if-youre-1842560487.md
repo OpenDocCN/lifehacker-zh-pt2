@@ -1,6 +1,6 @@
 # 如果你被隔离了，为什么还需要开一会儿车
 
-> 原文:[https://life hacker . com/why-you-still-need-drive-you-a little-if-you-1842560487](https://lifehacker.com/why-you-still-need-to-drive-your-car-a-little-if-youre-1842560487)
+> 原文：<https://lifehacker.com/why-you-still-need-to-drive-your-car-a-little-if-youre-1842560487>
 
 由于如此多的人在家工作，身体上保持距离——按照美联储的命令到五月，并且*可能*比更长——你可怜的汽车可能已经停在外面的街道上或者卡在你的车库里。如果你一直试图让你所有的杂货和其他必需品送货上门，而不是出门，那就更是如此。
 

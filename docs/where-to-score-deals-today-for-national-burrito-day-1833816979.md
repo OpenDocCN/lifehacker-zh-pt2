@@ -1,6 +1,6 @@
 # 今天在哪里可以买到全国玉米煎饼日的特价商品
 
-> 原文:[https://life hacker . com/where-to-score-deals-today-for-national-burrito-day-1833816979](https://lifehacker.com/where-to-score-deals-today-for-national-burrito-day-1833816979)
+> 原文：<https://lifehacker.com/where-to-score-deals-today-for-national-burrito-day-1833816979>
 
 过去几年给我们带来了许多令人兴奋的新的以食物为基础的节日，从全国比萨饼日(2 月 9 日)到全国啤酒日(即将到来的 4 月 7 日！).虽然我们都(希望)同意这些不完全是真正的“假期”,但无论这一天在庆祝什么，它们通常都相当于真正的节省，今天是全国墨西哥卷饼日。
 

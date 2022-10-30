@@ -1,6 +1,6 @@
 # 了解“如果我是”和“如果我是”的区别
 
-> 原文:[https://life hacker . com/learn-the-difference-if-I-was-and-if-I-was-if-I-was-1835069534](https://lifehacker.com/learn-the-difference-between-if-i-was-and-if-i-were-1835069534)
+> 原文：<https://lifehacker.com/learn-the-difference-between-if-i-was-and-if-i-were-1835069534>
 
 如果我告诉你“如果我是”和“如果我是”不能互换使用，你会相信吗？你应该这样做，因为它们在英语中都有自己的位置，而不仅仅是哪一个听起来好。幸运的是，一旦你知道了规则，就很容易决定什么时候你应该“是”，什么时候你应该“曾经是”
 

@@ -1,6 +1,6 @@
 # 我真的需要锻炼前补充吗？
 
-> 原文:[https://life hacker . com/do-I-really-need-a-pre-workout-supplement-1835693628](https://lifehacker.com/do-i-really-need-a-pre-workout-supplement-1835693628)
+> 原文：<https://lifehacker.com/do-i-really-need-a-pre-workout-supplement-1835693628>
 
 逛逛任何一家维生素商店，你会发现自己迷失在药丸和粉末的过道中，每一种都声称通过增强你的、能量或恢复来有益于你的锻炼。健身前补充剂，旨在跑步或举重前消耗，现在特别热，新品种不断涌现。但是他们到底是做什么的呢？它们值得争论或者花费吗？
 

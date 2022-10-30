@@ -1,6 +1,6 @@
 # 用“棕色皮肤问题”看看深色皮肤上的儿童皮疹是什么样的
 
-> 原文:[https://life hacker . com/see-what-children-shores-look-like-on-dark-skin-with-1837261047](https://lifehacker.com/see-what-childrens-rashes-look-like-on-darker-skin-with-1837261047)
+> 原文：<https://lifehacker.com/see-what-childrens-rashes-look-like-on-darker-skin-with-1837261047>
 
 如果你曾经在你孩子的皮肤上看到一些不寻常的东西，当你焦急地等待与儿科医生的预约时，你可能会转向互联网寻求指导。在健康教育网站上，你会找到各种常见皮肤病的图片，包括湿疹、手足口病、水痘、脓疱病和麻疹。但是这些图像几乎都是白人病人的特写。(要自己看，只需在梅奥诊所、WebMD 和美国皮肤病协会网站上快速搜索一下这些情况。甚至连肿块、疮和皮疹的插图也只显示在白皙的皮肤上。)
 

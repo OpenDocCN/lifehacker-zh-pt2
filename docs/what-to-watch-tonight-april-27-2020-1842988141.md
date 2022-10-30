@@ -1,6 +1,6 @@
 # 2020 年 4 月 27 日今晚看什么
 
-> 原文:[https://life hacker . com/今晚看什么-2020 年 4 月 27 日-1842988141](https://lifehacker.com/what-to-watch-tonight-april-27-2020-1842988141)
+> 原文：<https://lifehacker.com/what-to-watch-tonight-april-27-2020-1842988141>
 
 这是新的一周的开始，这意味着是时候开始寻找新的东西来看了。
 

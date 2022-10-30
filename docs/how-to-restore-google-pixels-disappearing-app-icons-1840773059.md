@@ -1,6 +1,6 @@
 # 如何恢复 Google Pixel 消失的应用图标
 
-> 原文:[https://life hacker . com/how-to-restore-Google-pixels-incoming-app-icons-1840773059](https://lifehacker.com/how-to-restore-google-pixels-disappearing-app-icons-1840773059)
+> 原文：<https://lifehacker.com/how-to-restore-google-pixels-disappearing-app-icons-1840773059>
 
 一个奇怪的问题一直困扰着一些 Pixel 用户，谷歌尚未解决这个特殊的问题。显然，一些运行 2019 年 12 月安全更新的人——如果你甚至 [有能力](https://twitter.com/madebygoogle/status/1212076907430400000) 下载它，你可能不会——注意到他们的 Pixel 设备上的各种应用程序图标正在消失。
 

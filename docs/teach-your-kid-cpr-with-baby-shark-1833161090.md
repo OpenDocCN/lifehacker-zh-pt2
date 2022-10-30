@@ -1,6 +1,6 @@
 # 用“小鲨鱼”教你的孩子心肺复苏术
 
-> 原文:[https://life hacker . com/teach-your-kid-CPR-with-baby-shark-1833161090](https://lifehacker.com/teach-your-kid-cpr-with-baby-shark-1833161090)
+> 原文：<https://lifehacker.com/teach-your-kid-cpr-with-baby-shark-1833161090>
 
 小鲨鱼嘟嘟嘟嘟嘟嘟。事实证明，在今天第 28 次听到这首关于一代海洋生物的流行歌曲后，它不仅能让父母发疯:它还能帮助拯救一条生命。
 

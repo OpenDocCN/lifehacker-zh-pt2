@@ -1,6 +1,6 @@
 # 如何用随机诗歌给 Gmail 的“智能回复”增添趣味
 
-> 原文:[https://life hacker . com/how-to-spice-up-Gmail-smart-replies-with random-poem-1833882662](https://lifehacker.com/how-to-spice-up-gmails-smart-replies-with-random-poetry-1833882662)
+> 原文：<https://lifehacker.com/how-to-spice-up-gmails-smart-replies-with-random-poetry-1833882662>
 
 Chrome: 并不是所有的黑客都必须让你成为生产力奇才。有些只需要让你开心，给你发邮件的人增加一点快乐(或困惑)。至少，这是我能想到的描述 Chrome 扩展“[”Gmail 建议诗](https://chrome.google.com/webstore/detail/suggested-poems-for-gmail/kjjcalmhcemhafjcoanjjllfjdfnnhid) ”的最佳方式，“这是一个聪明的小服务，给谷歌 Gmail 的正常建议自动回复投下了一颗文学炸弹。
 

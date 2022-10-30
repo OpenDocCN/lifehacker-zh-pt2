@@ -1,6 +1,6 @@
 # 如何在爬绳时获得更好的握力
 
-> 原文:[https://life hacker . com/how-to-get-better-grip-strength-1841974863](https://lifehacker.com/how-to-get-better-grip-strength-for-rope-climbs-1841974863)
+> 原文：<https://lifehacker.com/how-to-get-better-grip-strength-for-rope-climbs-1841974863>
 
 这个月我们学到了每一种握法都有点不同。我们已经学过了[撑握](https://vitals.lifehacker.com/how-to-get-a-stronger-support-grip-for-deadlifts-and-ha-1841519693)[捏握](https://vitals.lifehacker.com/how-to-strengthen-your-pinch-grip-1841693061)[开握](https://vitals.lifehacker.com/lets-train-our-open-hand-grip-1841830862) 。现在让我们来看一些有点奇怪的东西:你需要抓住垂直的东西，比如绳子。
 

@@ -1,6 +1,6 @@
 # 抖音和其他应用程序正在偷偷读取你的剪贴板
 
-> 原文:[https://life hacker . com/tiktok-和-其他-应用程序-正在秘密阅读-你的-clipboa-1844248653](https://lifehacker.com/tiktok-and-other-apps-are-secretly-reading-your-clipboa-1844248653)
+> 原文：<https://lifehacker.com/tiktok-and-other-apps-are-secretly-reading-your-clipboa-1844248653>
 
 iOS 14 中的一个新隐私功能曝光了一些流行的应用程序，并引发了对剪贴板隐私的担忧。在上面的视频中，我解释了为什么这是令人担忧的，但不是什么值得恐慌的事情。
 

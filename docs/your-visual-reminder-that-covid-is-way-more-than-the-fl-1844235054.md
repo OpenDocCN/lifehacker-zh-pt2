@@ -1,6 +1,6 @@
 # 你的视觉提醒 Covid 不仅仅是流感
 
-> 原文:[https://life hacker . com/your-visual-reminder-that-covid-is-way-than-the-fl-1844235054](https://lifehacker.com/your-visual-reminder-that-covid-is-way-more-than-the-fl-1844235054)
+> 原文：<https://lifehacker.com/your-visual-reminder-that-covid-is-way-more-than-the-fl-1844235054>
 
 人们有时会死于流感。人们有时会死于新冠肺炎。人们死于自杀、吸毒过量、心脏病和许多其他事情。因此，如果你所在的社区还没有很多新冠肺炎死亡病例，也许你已经说服自己冠状病毒和你不担心的其他疾病一样致命，比如流感。
 

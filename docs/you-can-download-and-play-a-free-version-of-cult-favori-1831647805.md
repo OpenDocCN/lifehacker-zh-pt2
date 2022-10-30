@@ -1,6 +1,6 @@
 # 你可以下载并玩一个免费版本的邪教最喜欢的恐怖游戏，“p . t .”[更新]
 
-> 原文:[https://life hacker . com/you-can-download-and-play-a-free-version-of-cult-favori-1831647805](https://lifehacker.com/you-can-download-and-play-a-free-version-of-cult-favori-1831647805)
+> 原文：<https://lifehacker.com/you-can-download-and-play-a-free-version-of-cult-favori-1831647805>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-5rzYuotjec4&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-5rzYuotjec4&start=0) 
 

@@ -1,6 +1,6 @@
 # Wiggles 为学龄前儿童举办了一个免费的虚拟夏令营
 
-> 原文:[https://life hacker . com/the-wiggles-are-hosting-a-free-virtual-camp-for-prescho-1844321790](https://lifehacker.com/the-wiggles-are-hosting-a-free-virtual-camp-for-prescho-1844321790)
+> 原文：<https://lifehacker.com/the-wiggles-are-hosting-a-free-virtual-camp-for-prescho-1844321790>
 
 现在仍然是虚拟夏令营的季节，最新宣布的免费夏令营是一个许多小孩都想参加的夏令营:Wiggles 的虚拟夏令营。
 

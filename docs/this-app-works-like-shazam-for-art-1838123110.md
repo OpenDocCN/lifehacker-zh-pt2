@@ -1,6 +1,6 @@
 # 这个应用程序就像艺术版的 Shazam
 
-> 原文:[https://life hacker . com/this-app-works-like-shazam-for-art-1838123110](https://lifehacker.com/this-app-works-like-shazam-for-art-1838123110)
+> 原文：<https://lifehacker.com/this-app-works-like-shazam-for-art-1838123110>
 
 当你听到一首你喜欢却又不太能定位的歌曲时，Shazam 成了许多人解决问题的方法。你所要做的就是打开应用程序，让它听几秒钟，通常你会在几秒钟内看到标题和艺术家。
 

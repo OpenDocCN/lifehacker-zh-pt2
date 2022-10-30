@@ -1,6 +1,6 @@
 # 如何隐藏你偶然的 Instagram“赞”
 
-> 原文:[https://life hacker . com/how-to-hide-your-accident-insta gram-like-1827683771](https://lifehacker.com/how-to-hide-your-accidental-instagram-like-1827683771)
+> 原文：<https://lifehacker.com/how-to-hide-your-accidental-instagram-like-1827683771>
 
 我们大多数人(如果不是所有人的话)都经历过这种事情，而且非常尴尬。你深夜坐在那里，浏览一个老朋友/对象/伴侣的 Instagram 页面。一切都很好，直到你的手指微微抽搐，你意外地“喜欢”了他们 47 周前的一篇帖子。
 

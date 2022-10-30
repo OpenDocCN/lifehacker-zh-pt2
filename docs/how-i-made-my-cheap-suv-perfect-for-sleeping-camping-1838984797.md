@@ -1,6 +1,6 @@
 # 我如何让我的廉价 SUV 成为睡觉、露营和越野的完美之选
 
-> 原文:[https://jalopnik . com/how-I-made-my-cheap-SUV-perfect-for-sleeping-camping-1838984797](https://jalopnik.com/how-i-made-my-cheap-suv-perfect-for-sleeping-camping-1838984797)
+> 原文：<https://jalopnik.com/how-i-made-my-cheap-suv-perfect-for-sleeping-camping-1838984797>
 
 你不需要花费 50，000 美元来拥有一辆合法的陆上 SUV，你可以白天越野，晚上睡觉。你甚至不需要放弃 1 万美元。到目前为止，我的 1998 年三菱蒙特罗已经花了大约 5000 美元；以下是我如何在不牺牲太多舒适性或安全性的情况下，搭建这款经济实惠的钻机。
 

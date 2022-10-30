@@ -1,6 +1,6 @@
 # 如何安装 iOS 12.1 公测版
 
-> 原文:[https://life hacker . com/how-to-install-the-IOs-12-1-public-beta-1829787466](https://lifehacker.com/how-to-install-the-ios-12-1-public-beta-1829787466)
+> 原文：<https://lifehacker.com/how-to-install-the-ios-12-1-public-beta-1829787466>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-lhoYLI6kzjU&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-lhoYLI6kzjU&start=0)
 

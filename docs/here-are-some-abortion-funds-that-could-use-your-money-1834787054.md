@@ -1,6 +1,6 @@
 # 这里有一些堕胎基金，可以马上用上你的钱
 
-> 原文:[https://Jezebel . com/here-is-some-that-some-that-some-that-waste-funds-that-use-your money-1834787054](https://jezebel.com/here-are-some-abortion-funds-that-could-use-your-money-1834787054)
+> 原文：<https://jezebel.com/here-are-some-abortion-funds-that-could-use-your-money-1834787054>
 
 堕胎可能会很昂贵，尤其是在人们必须跋涉数百英里才能获得堕胎的地方，堕胎本身、旅行、休假的成本可能会使堕胎变得极其困难和沉重。
 

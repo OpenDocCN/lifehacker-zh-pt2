@@ -1,6 +1,6 @@
 # 新父母们，让 Alexa 悄悄告诉你们
 
-> 原文:[https://life hacker . com/new-parents-have-Alexa-whisper-to-you-1829871715](https://lifehacker.com/new-parents-have-alexa-whisper-to-you-1829871715)
+> 原文：<https://lifehacker.com/new-parents-have-alexa-whisper-to-you-1829871715>
 
 对于新父母来说，Alexa 可以是一个巨大的帮助——它可以创建一个摇篮曲播放列表，或者订购更多的布吉纸巾，或者让你 [听到托儿所](https://www.amazon.com/gp/help/customer/display.html?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/new-parents-have-alexa-whisper-to-you-1829871715&asc_source=&nodeId=202153130&tag=kinjalifehackerlink-20) 发生的事情。但是语音助手并不总是善于跟踪社交线索。假设你*终于*哄你的婴儿入睡，你*非常安静地*让 Alexa 调暗灯光，智能设备会脱口而出“好的！”啊啊。来吧，Alexa，和我们一起努力！
 

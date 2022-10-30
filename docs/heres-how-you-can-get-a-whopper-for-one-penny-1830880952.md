@@ -1,6 +1,6 @@
 # 这里告诉你如何用一便士买一个巨无霸
 
-> 原文:[https://life hacker . com/heres-how-you-can-get-a whopper-one-penny-1830880952](https://lifehacker.com/heres-how-you-can-get-a-whopper-for-one-penny-1830880952)
+> 原文：<https://lifehacker.com/heres-how-you-can-get-a-whopper-for-one-penny-1830880952>
 
 汉堡王正拖着它最大的竞争对手——这让任何想在汉堡上获得极大优惠的人受益。以下是你可以利用的方法。
 

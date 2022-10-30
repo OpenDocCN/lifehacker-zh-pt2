@@ -1,6 +1,6 @@
 # 最好用的 iOS 对讲机应用程序，而不是苹果的
 
-> 原文:[https://life hacker . com/the-best-IOs-walkie-talkie-talkie-apps-to-use-of-apple-1836286572](https://lifehacker.com/the-best-ios-walkie-talkie-apps-to-use-instead-of-apple-1836286572)
+> 原文：<https://lifehacker.com/the-best-ios-walkie-talkie-apps-to-use-instead-of-apple-1836286572>
 
 在 [发现一个可能让其他人偷听谈话的漏洞](https://gizmodo.com/apple-disables-watch-walkie-talkie-app-due-to-security-1836274902) 后，苹果公司暂时禁用了 Apple Watch 的 [对讲机](https://support.apple.com/en-us/HT208917) 应用程序。虽然苹果公司表示没有窃听事件的报告，但该应用程序被禁用，直到漏洞被修补(尽管它仍会安装在你的设备上)。
 

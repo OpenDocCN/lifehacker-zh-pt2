@@ -1,6 +1,6 @@
 # 与童书作者兼插画师莫·威廉姆一起涂鸦
 
-> 原文:[https://life hacker . com/doodle-with-children-book-author-and-illustrator-mo-wi-1842376859](https://lifehacker.com/doodle-with-childrens-book-author-and-illustrator-mo-wi-1842376859)
+> 原文：<https://lifehacker.com/doodle-with-childrens-book-author-and-illustrator-mo-wi-1842376859>
 
 接下来几周的每个工作日，作家兼插画家莫·威廉都会在午餐时间邀请孩子们去他的工作室创作一些他钟爱的角色。从本周开始，新一集的《与莫·威廉 共进午餐涂鸦》将于美国东部时间下午 1 点发布，并将随时在线播放。
 

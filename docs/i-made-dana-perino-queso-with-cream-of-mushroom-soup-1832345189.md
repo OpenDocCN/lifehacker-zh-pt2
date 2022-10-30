@@ -1,6 +1,6 @@
 # 这是我做的
 
-> 原文:[https://the take out . com/I-made-Dana-perino-queso-with 奶油蘑菇汤-1832345189](https://thetakeout.com/i-made-dana-perino-queso-with-cream-of-mushroom-soup-1832345189)
+> 原文：<https://thetakeout.com/i-made-dana-perino-queso-with-cream-of-mushroom-soup-1832345189>
 
 福克斯新闻频道主播达娜·佩里诺成为社交媒体笑点的速度比 Velveeta 融化的速度还快。在超级碗周日，佩里诺发布了一张她的慢炖锅的照片，里面装满了泡沫砖褐色的物质，标题是:“我做了奎索。”
 

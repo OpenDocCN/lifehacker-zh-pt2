@@ -1,6 +1,6 @@
 # 如何处理那些酒店的化妆品
 
-> 原文:[https://life hacker . com/what-to-do-what-do-with the all-thes-hotel-toiletries-1838849974](https://lifehacker.com/what-to-do-with-all-those-hotel-toiletries-1838849974)
+> 原文：<https://lifehacker.com/what-to-do-with-all-those-hotel-toiletries-1838849974>
 
 作为一个微缩模型和免费物品的爱好者，我一直很欣赏——并囤积——酒店的洗漱用品。旅行时，我经常在淋浴后把瓶子藏起来，只是为了确保它们每天都能得到补充。这意味着我带着许多小瓶的洗发水、护发素和沐浴露回家，它们放在一个篮子里，通常是不用的。但是现在我知道我只是在保存它们，这样我就可以把它们捐给收容所和其他提供援助的组织。
 

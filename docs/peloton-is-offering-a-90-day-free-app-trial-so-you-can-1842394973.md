@@ -1,6 +1,6 @@
 # Peloton 提供为期 90 天的免费应用程序试用，这样你就可以继续你的健身计划
 
-> 原文:[https://life hacker . com/peloton-is-offing-a-90-day-free-app-trial-so-you-can-1842394973](https://lifehacker.com/peloton-is-offering-a-90-day-free-app-trial-so-you-can-1842394973)
+> 原文：<https://lifehacker.com/peloton-is-offering-a-90-day-free-app-trial-so-you-can-1842394973>
 
 在冠状病毒关闭期间，为了努力在社交上与他人保持距离，如果你的典型锻炼计划半途而废，很少有人会责怪你。毕竟，在汗流浃背的健身房里触摸一堆共享设备听起来肯定是生病的好方法。但是，嘿，你还有互联网，这意味着你有选择。
 

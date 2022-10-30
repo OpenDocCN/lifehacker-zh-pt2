@@ -1,6 +1,6 @@
 # 如果特朗普对墨西哥进口商品征税，鳄梨会变得更贵
 
-> 原文:[https://life hacker . com/avocados-will-get-bigged-if-trump-taxes-Mexican-1835203625](https://lifehacker.com/avocados-will-get-more-expensive-if-trump-taxes-mexican-1835203625)
+> 原文：<https://lifehacker.com/avocados-will-get-more-expensive-if-trump-taxes-mexican-1835203625>
 
 特朗普总统在推特上宣布，从 6 月 10 日开始，对墨西哥进口商品征收 5%的关税，并视需要上调 25%，直到“非法移民通过墨西哥”停止。
 

@@ -1,6 +1,6 @@
 # 如何戴口罩而不使眼镜起雾
 
-> 原文:[https://life hacker . com/how-to-wear a face-mask-no-fogging-your-glasses-1842750271](https://lifehacker.com/how-to-wear-a-face-mask-without-fogging-up-your-glasses-1842750271)
+> 原文：<https://lifehacker.com/how-to-wear-a-face-mask-without-fogging-up-your-glasses-1842750271>
 
 如果你是戴口罩的新手，并且是三分之二戴处方眼镜的美国成年人 中的 [之一，你可能已经注意到一个问题:模糊的镜片。这听起来微不足道，但既然](https://www.thevisioncouncil.org/sites/default/files/Q415-Topline-Overview-Presentation-Stats-with-Notes-FINAL.PDF) [疾病预防控制中心已经建议每个人在外出时戴上布口罩](https://lifehacker.com/do-homemade-face-masks-help-stop-the-spread-of-the-coro-1842514179) ，以帮助防止冠状病毒的传播，这曾经是某些职业的问题，现在正在影响其他人。
 

@@ -1,6 +1,6 @@
 # 现在就免费获得现代神秘继承者“Obduction”
 
-> 原文:[https://life hacker . com/get-modern-day-myst-successor-obduction-for-free-now-1835125513](https://lifehacker.com/get-modern-day-myst-successor-obduction-for-free-now-1835125513)
+> 原文：<https://lifehacker.com/get-modern-day-myst-successor-obduction-for-free-now-1835125513>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-2wCPOTK587o&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-2wCPOTK587o&start=0) 
 

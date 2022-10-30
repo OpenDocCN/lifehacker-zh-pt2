@@ -1,6 +1,6 @@
 # 特朗普在加州野火问题上犯了什么错误
 
-> 原文:[https://life hacker . com/what-trump-gets-error-about-californias-wild fires-1830391393](https://lifehacker.com/what-trump-gets-wrong-about-californias-wildfires-1830391393)
+> 原文：<https://lifehacker.com/what-trump-gets-wrong-about-californias-wildfires-1830391393>
 
 加州北部的营地大火刚刚成为该州历史上最致命的一次；南方的伍尔西大火正在吞噬马里布；我们的总统在推特上拐弯抹角地谈论伐木业。欢迎来到 2018 年。
 

@@ -1,6 +1,6 @@
 # 如何在抗议中大喊而不破坏你的声音
 
-> 原文:[https://life hacker . com/how-to-shout-at-a-protocol-without-wrecking-your-voice-1843972007](https://lifehacker.com/how-to-shout-at-a-protest-without-wrecking-your-voice-1843972007)
+> 原文：<https://lifehacker.com/how-to-shout-at-a-protest-without-wrecking-your-voice-1843972007>
 
 说出来很重要，但这不一定只是比喻。如果你参加抗议，你可能会发现自己在呼喊、欢呼、喊叫，或者用你的声音让别人听得更清楚。然而，反对不公正的斗争是一场马拉松，而不是短跑，所以你会希望有一天能够再次呐喊。
 

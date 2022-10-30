@@ -1,6 +1,6 @@
 # 用谷歌的“动作块”安卓应用程序创建快捷按钮
 
-> 原文:[https://life hacker . com/create-simple-shortcut-buttons-with-Google-action-bloc-1843612199](https://lifehacker.com/create-simple-shortcut-buttons-with-googles-action-bloc-1843612199)
+> 原文：<https://lifehacker.com/create-simple-shortcut-buttons-with-googles-action-bloc-1843612199>
 
 我们都用手机完成大量日常任务，这些任务需要几个步骤来完成。例如，如果你要与家人视频聊天，你可能需要在手机上找到视频应用程序，点击打开它，然后滚动联系人列表，找到你想与之交谈的人。
 

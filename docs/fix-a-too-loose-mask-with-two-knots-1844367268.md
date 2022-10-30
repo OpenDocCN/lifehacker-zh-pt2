@@ -1,6 +1,6 @@
 # 用两个结固定一个太松的面具
 
-> 原文:[https://life hacker . com/fix-a-too-loose-mask-with-two-knots-1844367268](https://lifehacker.com/fix-a-too-loose-mask-with-two-knots-1844367268)
+> 原文：<https://lifehacker.com/fix-a-too-loose-mask-with-two-knots-1844367268>
 
 任何面具——即使是外科手术式的或布质的——都应该贴合你的脸。但是由于许多面具在侧面会有缝隙，这里有一个快速的技巧可以让你的面具更合适。
 

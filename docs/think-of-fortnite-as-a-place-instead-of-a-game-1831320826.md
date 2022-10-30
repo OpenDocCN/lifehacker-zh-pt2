@@ -1,6 +1,6 @@
 # 把堡垒之夜当成一个“地方”而不是一个“游戏”
 
-> 原文:[https://life hacker . com/think-of-fort nite-as-a-place-代替-a-game-1831320826](https://lifehacker.com/think-of-fortnite-as-a-place-instead-of-a-game-1831320826)
+> 原文：<https://lifehacker.com/think-of-fortnite-as-a-place-instead-of-a-game-1831320826>
 
 有很多家长对这种现象感到绝望，那就是。这不仅仅是一个孩子们可以从一系列设备(电脑、手机、PlayStation、Xbox 或任天堂 Switch)上免费玩的生存社交游戏。*《堡垒之夜:皇室战争*也因有点上瘾而获得名声( [取决于你问谁](https://www.abc.net.au/news/2018-07-11/fortnite-is-addiction-really-a-thing/9981528) )。
 

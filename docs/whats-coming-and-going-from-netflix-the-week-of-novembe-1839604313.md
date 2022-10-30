@@ -1,6 +1,6 @@
 # 2019 年 11 月 4 日这一周，网飞有哪些活动
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of novembe-1839604313](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-novembe-1839604313)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-novembe-1839604313>
 
 根据你对近期节日美食的胃口和你对“一年中最美好的时光”的普遍热情，这要么是一个网飞产品的伟大周，要么是一堆平庸的废话。你不会惊讶我属于后一种阵营——如果不是 1964 年的定格*鲁道夫* *，我会很乐意在假日“最爱”冬眠到春天。
 

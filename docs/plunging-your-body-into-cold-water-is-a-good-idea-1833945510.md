@@ -1,6 +1,6 @@
 # 将你的身体浸入冷水中是个好主意
 
-> 原文:[https://life hacker . com/把你的身体投入冷水是个好主意-1833945510](https://lifehacker.com/plunging-your-body-into-cold-water-is-a-good-idea-1833945510)
+> 原文：<https://lifehacker.com/plunging-your-body-into-cold-water-is-a-good-idea-1833945510>
 
 大多数人避免将自己投入极冷的水中，因为这样感觉不好，而人们喜欢感觉良好。这很不和谐，但令人振奋，并且有额外的好处，让你高度意识到你的呼吸、循环系统和你身体的任何其他部分通常都不由自主地发挥作用。当轻微的折磨结束后，你会感觉非常好。
 

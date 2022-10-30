@@ -1,6 +1,6 @@
 # 解锁英伟达的新应用程序，消除恼人的背景噪音
 
-> 原文:[https://life hacker . com/unlock-nvidias-new-app-to-kill-nois-background-nois-1843004793](https://lifehacker.com/unlock-nvidias-new-app-to-kill-annoying-background-nois-1843004793)
+> 原文：<https://lifehacker.com/unlock-nvidias-new-app-to-kill-annoying-background-nois-1843004793>
 
 游戏很棒，尤其是在疫情期间，尤其是现在你可以玩带有实时光线跟踪 的《我的世界》 [的增强版——但你现在可以使用 Nvidia 显卡来创造现实生活中的魔法。看看这个降噪演示，全部由您的 Nvidia GPU 提供支持:](https://kotaku.com/minecraft-gets-graphics-overhaul-later-this-week-on-pc-1842858362)
 

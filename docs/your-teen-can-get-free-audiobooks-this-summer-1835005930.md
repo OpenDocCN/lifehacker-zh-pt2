@@ -1,6 +1,6 @@
 # 今年夏天，你的孩子可以得到免费的有声读物
 
-> 原文:[https://life hacker . com/your-teen-can-get-free-audio books-this-summer-1835005930](https://lifehacker.com/your-teen-can-get-free-audiobooks-this-summer-1835005930)
+> 原文：<https://lifehacker.com/your-teen-can-get-free-audiobooks-this-summer-1835005930>
 
 孩子们的大脑在夏天变得有点迟钝是很常见的——一份布鲁金斯报告 得出结论说，一般学生在假期中会损失一个月的学术日历学习。但是你们，父母，可以帮助减缓的夏季滑坡。 一个办法:让他们一直读下去。
 

@@ -1,6 +1,6 @@
 # 通过在自动取款机上取出小额钞票来减少给小费和开支票的尴尬
 
-> 原文:[https://life hacker . com/make-tipping-and-check-splitting-less-hangible-by-taking-1835149633](https://lifehacker.com/make-tipping-and-check-splitting-less-awkward-by-taking-1835149633)
+> 原文：<https://lifehacker.com/make-tipping-and-check-splitting-less-awkward-by-taking-1835149633>
 
 根据我不科学的研究，你去 ATM 机取现有两种情况。
 

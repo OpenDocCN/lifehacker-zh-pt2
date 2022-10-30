@@ -1,6 +1,6 @@
 # 如何增加你在房屋火灾中幸存的机会
 
-> 原文:[https://life hacker . com/sleep-with-your-door-closed-to-increase-of-your-occupations 1829720822](https://lifehacker.com/sleep-with-your-door-closed-to-increase-your-chances-of-1829720822)
+> 原文：<https://lifehacker.com/sleep-with-your-door-closed-to-increase-your-chances-of-1829720822>
 
 一半的房屋火灾发生在晚上 11 点至早上 7 点之间，在这段时间里，我们大多数人都没有意识到发生了什么。这很可怕，但是你可以做一件简单的事情来帮助你生存下来:睡觉前关上你的卧室门。
 

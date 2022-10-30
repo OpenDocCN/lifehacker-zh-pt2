@@ -1,6 +1,6 @@
 # “铆钉”将你孩子最喜欢的 YouTube 视频变成书籍
 
-> 原文:[https://life hacker . com/rivet-turns-your-kids-favorite-YouTube-videos-into-book-1834792701](https://lifehacker.com/rivet-turns-your-kids-favorite-youtube-videos-into-book-1834792701)
+> 原文：<https://lifehacker.com/rivet-turns-your-kids-favorite-youtube-videos-into-book-1834792701>
 
 **Android/iOS:** 我六岁的孩子已经开始阅读 YouTube 视频，我对此并不介意。她正在使用一款名为 [铆钉](https://rivet.area120.com/) 的免费儿童阅读 app，这款 app 刚刚发布。Rivet 有一个超过 2000 本书的数字图书馆，从关于飞马的神话故事到云的指南。
 

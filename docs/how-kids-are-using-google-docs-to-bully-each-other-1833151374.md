@@ -1,6 +1,6 @@
 # 孩子们如何使用谷歌文档互相欺负
 
-> 原文:[https://life hacker . com/how-kids-are-use-Google-docs-to-bully-other-1833151374](https://lifehacker.com/how-kids-are-using-google-docs-to-bully-each-other-1833151374)
+> 原文：<https://lifehacker.com/how-kids-are-using-google-docs-to-bully-each-other-1833151374>
 
 作为父母，你可能会走过孩子的房间，看到她开心地在谷歌文档页面上打字。“可爱！”你认为。"她可能正在写她的科学报告，或者正在完成关于 RBG 崛起的论文。"
 

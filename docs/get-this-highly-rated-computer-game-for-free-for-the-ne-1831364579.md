@@ -1,6 +1,6 @@
 # 在接下来的 40 小时内免费获得这款高评分的电脑游戏
 
-> 原文:[https://life hacker . com/get-this-high-rated-this-computer-game-for-the-ne-1831364579](https://lifehacker.com/get-this-highly-rated-computer-game-for-free-for-the-ne-1831364579)
+> 原文：<https://lifehacker.com/get-this-highly-rated-computer-game-for-free-for-the-ne-1831364579>
 
 如果你正在寻找一种方式来打发圣诞节和新年之间的时间，Gog 为你提供了一个交易:一个免费的高评级游戏。
 

@@ -1,6 +1,6 @@
 # 从检疫女王开始你的“周末”
 
-> 原文:[https://life hacker . com/start-your ' s weekend-with-a-quarantine-queen-1842666100](https://lifehacker.com/start-your-weekend-with-a-quarantine-queen-1842666100)
+> 原文：<https://lifehacker.com/start-your-weekend-with-a-quarantine-queen-1842666100>
 
 今天是星期五，或者至少我的手机是这么告诉我的，但是每天都感觉像是隔了一天，而且“周末”不再是同一天。但是，正如伯爵夫人昨天 提醒我们的那样，传统很重要，所以我们不妨来点 IGIF——“我猜今天是星期五”——鸡尾酒。
 

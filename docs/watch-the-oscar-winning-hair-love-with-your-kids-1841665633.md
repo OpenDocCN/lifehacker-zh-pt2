@@ -1,6 +1,6 @@
 # 和你的孩子一起看奥斯卡获奖影片《发恋》
 
-> 原文:[https://life hacker . com/watch-the-Oscar-winding-hair-love-with-your-kids-1841665633](https://lifehacker.com/watch-the-oscar-winning-hair-love-with-your-kids-1841665633)
+> 原文：<https://lifehacker.com/watch-the-oscar-winning-hair-love-with-your-kids-1841665633>
 
 你现在可以在 YouTube 上观看奥斯卡获奖动画短片[](https://www.youtube.com/watch?time_continue=6&v=kNw8V_Fkw28&feature=emb_logo)*——你应该这么做。和你的孩子在一起。因为对有色人种的头发和发型的无知和/或种族歧视仍然大量存在，而这部甜蜜的电影正是我们需要的视角。*
 

@@ -1,6 +1,6 @@
 # 什么时候引用推特是个混蛋
 
-> 原文:[https://life hacker . com/when-to-quote-tweet-a-jerk-1838151411](https://lifehacker.com/when-to-quote-tweet-a-jerk-1838151411)
+> 原文：<https://lifehacker.com/when-to-quote-tweet-a-jerk-1838151411>
 
 推特是用来吼的。我在推特上大喊大叫，被人吼，并阅读关于那天我们集体大喊大叫的稍微不同的观点和笑话。这不是放松，但有时也是一种宣泄。就推特宣泄而言，没有什么比明智地引用推特更好的了。
 

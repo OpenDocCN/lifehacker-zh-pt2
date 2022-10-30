@@ -1,6 +1,6 @@
 # 享受作者查克·温迪格的这些传家宝苹果评论
 
-> 原文:[https://life hacker . com/enjoy-these-herilom-apple-reviews-by-author-chuck-wend-1837278182](https://lifehacker.com/enjoy-these-heirloom-apple-reviews-by-author-chuck-wend-1837278182)
+> 原文：<https://lifehacker.com/enjoy-these-heirloom-apple-reviews-by-author-chuck-wend-1837278182>
 
 你不一定要成为一流的美食作家才能写出优秀的美食作品；对这个主题的热情和用语言表达的方式就足够了。例证:畅销书作家查克·温迪格的年度传家宝苹果评论——一部充满娱乐性和教育性的穿越苹果世界的游戏。
 

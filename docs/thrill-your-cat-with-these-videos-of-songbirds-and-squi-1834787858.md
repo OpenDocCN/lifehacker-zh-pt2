@@ -1,6 +1,6 @@
 # 用这些鸣禽和松鼠的视频来刺激你的猫
 
-> 原文:[https://life hacker . com/thrill-your-cat-with the-songger-and-squi-1834787858](https://lifehacker.com/thrill-your-cat-with-these-videos-of-songbirds-and-squi-1834787858)
+> 原文：<https://lifehacker.com/thrill-your-cat-with-these-videos-of-songbirds-and-squi-1834787858>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-n2IHlHavYco&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-n2IHlHavYco&start=0) 
 

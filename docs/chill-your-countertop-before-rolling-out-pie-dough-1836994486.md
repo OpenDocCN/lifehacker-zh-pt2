@@ -1,6 +1,6 @@
 # 在擀馅饼面团之前，先冷却你的工作台面
 
-> 原文:[https://life hacker . com/chill-your ' s counter-before-rolling-out-pie-dough-1836994486](https://lifehacker.com/chill-your-countertop-before-rolling-out-pie-dough-1836994486)
+> 原文：<https://lifehacker.com/chill-your-countertop-before-rolling-out-pie-dough-1836994486>
 
 在夏天制作糕点意味着与热力学定律进行一场艰苦的斗争。即使你已经采取了一切可能的预防措施来保持你的原料——和你的工具——凉爽宜人，馅饼 [面团](https://lifehacker.com/for-better-pie-crust-resort-to-violence-1798295233) 仍然很容易在它到达你的柜台时融化。
 

@@ -1,6 +1,6 @@
 # 如何制作一碗完美的麦片？
 
-> 原文:[https://the take out . com/gene-Simmons-ice-cubes-perfect-bowl-of-breakfast-麦片-1840833053](https://thetakeout.com/gene-simmons-ice-cubes-perfect-bowl-of-breakfast-cereal-1840833053)
+> 原文：<https://thetakeout.com/gene-simmons-ice-cubes-perfect-bowl-of-breakfast-cereal-1840833053>
 
 如果你错过了它，音乐家/摇滚明星吉恩·西蒙斯在新年的第一天，在推特上发了一张令人震惊的早餐混合物的照片:一碗加冰块的麦片加到牛奶中。
 

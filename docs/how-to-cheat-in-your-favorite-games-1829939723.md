@@ -1,6 +1,6 @@
 # 如何在你喜欢的游戏中作弊
 
-> 原文:[https://life hacker . com/how-to-check-in-your favorite-games-1829939723](https://lifehacker.com/how-to-cheat-in-your-favorite-games-1829939723)
+> 原文：<https://lifehacker.com/how-to-cheat-in-your-favorite-games-1829939723>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-MerAZwOMQzE&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-MerAZwOMQzE&start=0) 
 

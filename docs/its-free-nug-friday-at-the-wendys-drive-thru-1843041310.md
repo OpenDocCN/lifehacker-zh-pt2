@@ -1,6 +1,6 @@
 # 温蒂得来速餐厅周五免费
 
-> 原文:[https://life hacker . com/its-free-nug-Friday-at-the-wendys-drive-thru-1843041310](https://lifehacker.com/its-free-nug-friday-at-the-wendys-drive-thru-1843041310)
+> 原文：<https://lifehacker.com/its-free-nug-friday-at-the-wendys-drive-thru-1843041310>
 
 鉴于现在每一天似乎都融入了下一天，你可能没有意识到今天是星期五。但事实就是如此，温迪店正在庆祝这一时刻，于今天，2020 年 4 月 24 日，在每一家(参与)餐厅的免下车餐厅，免费提供四份香辣或香脆鸡块 。
 

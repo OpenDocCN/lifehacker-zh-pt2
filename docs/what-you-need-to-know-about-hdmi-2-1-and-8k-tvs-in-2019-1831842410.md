@@ -1,6 +1,6 @@
 # 2019 年你需要了解的 HDMI 2.1 和 8K 电视
 
-> 原文:[https://life hacker . com/what-you-need-to-know-about-HDMI-2-1-and-8k-TVs-in-2019-1831842410](https://lifehacker.com/what-you-need-to-know-about-hdmi-2-1-and-8k-tvs-in-2019-1831842410)
+> 原文：<https://lifehacker.com/what-you-need-to-know-about-hdmi-2-1-and-8k-tvs-in-2019-1831842410>
 
 2019 年你会听到很多关于 [HDMI 2.1](https://lifehacker.com/everything-you-need-to-know-about-hdmi-2-1-1792406703) 的消息。这是自近二十年前取代之前的 A/V 连接以来，消费者一直使用的 A/V 连接格式的最新版本，随着 8K 电视准备好进入你的客厅，HDMI 2.1 是一个必要的、备受期待的升级。
 

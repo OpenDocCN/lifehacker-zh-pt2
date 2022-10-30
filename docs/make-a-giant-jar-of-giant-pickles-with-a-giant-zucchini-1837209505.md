@@ -1,6 +1,6 @@
 # 用一个巨大的西葫芦做一个巨大的泡菜罐子
 
-> 原文:[https://life hacker . com/make-a-giant-jar-of-giant-pickles-with-a-giant-zucchini-1837209505](https://lifehacker.com/make-a-giant-jar-of-giant-pickles-with-a-giant-zucchini-1837209505)
+> 原文：<https://lifehacker.com/make-a-giant-jar-of-giant-pickles-with-a-giant-zucchini-1837209505>
 
 我没有花园，但我有许多园丁类型的朋友，这意味着我在夏季享受免费的农产品。一些礼物，如两磅黑莓或许多成熟的西红柿，是受欢迎的，但最近的一个礼物——一个西葫芦——有模糊的巨魔感应。
 

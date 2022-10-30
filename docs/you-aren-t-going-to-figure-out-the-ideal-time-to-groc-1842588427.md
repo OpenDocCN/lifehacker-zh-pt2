@@ -1,6 +1,6 @@
 # 你不会马上找出去杂货店购物的“理想”时间
 
-> 原文:[https://life hacker . com/you-not-to-figure-the-ideal-time-to-groc-1842588427](https://lifehacker.com/you-aren-t-going-to-figure-out-the-ideal-time-to-groc-1842588427)
+> 原文：<https://lifehacker.com/you-aren-t-going-to-figure-out-the-ideal-time-to-groc-1842588427>
 
 如果你在 Twitter 上花了一些时间，你可能已经看到过 [的推文恳求每个人推迟去杂货店购物](https://twitter.com/LiataisLibrary/status/1244441917582200833) 直到 4 月 3 日或之后。原因很简单:政府福利在每月的第一天存入，由于冠状病毒疫情导致杂货店的交易量极高，恐慌的购物者可能会在低收入邻居有机会进货之前清空货架。
 

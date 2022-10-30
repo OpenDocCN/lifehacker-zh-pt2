@@ -1,6 +1,6 @@
 # 你需要知道的关于奎比的一切
 
-> 原文:[https://life hacker . com/everything-you-need-to-know-about-quibi-1842710665](https://lifehacker.com/everything-you-need-to-know-about-quibi-1842710665)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-about-quibi-1842710665>
 
 梦工厂创始人兼首席执行官杰弗里·卡曾伯格(Jeffery Katzenberg)的新流媒体服务 Quibi 今天正式推出。与大多数应该在电视上观看的流媒体服务不同，Quibi 主要是为在手机上观看而设计的。
 

@@ -1,6 +1,6 @@
 # 让你的煎饼面糊结块
 
-> 原文:[https://life hacker . com/leave-your pancake-batter-lumpy-1831547219](https://lifehacker.com/leave-your-pancake-batter-lumpy-1831547219)
+> 原文：<https://lifehacker.com/leave-your-pancake-batter-lumpy-1831547219>
 
 除非你的目标是做一个可丽饼，否则一个扁平的煎饼就是一个悲伤的煎饼。理想的烙饼是又高又蓬松的，把它们养到辉煌高度的秘诀是少做点。(我说的“少做”，是指“不要混那么多。”)
 

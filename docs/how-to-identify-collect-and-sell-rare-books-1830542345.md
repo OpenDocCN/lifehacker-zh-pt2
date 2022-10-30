@@ -1,6 +1,6 @@
 # 如何识别、收集和出售珍本书籍
 
-> 原文:[https://life hacker . com/how-to-identify-collect-and-sell-rare-books-1830542345](https://lifehacker.com/how-to-identify-collect-and-sell-rare-books-1830542345)
+> 原文：<https://lifehacker.com/how-to-identify-collect-and-sell-rare-books-1830542345>
 
 美国最著名的二手书店之一，房屋工程书店咖啡馆 ，最近展示了其最昂贵的书籍之一，美国首次印刷的*指环王*售价 4000 美元。在他们的 Instagram 账户上，他们指出了这种罕见印刷的迹象，包括具体的印刷错误，以及它的特殊功能，包括一张中土世界的折叠地图。
 

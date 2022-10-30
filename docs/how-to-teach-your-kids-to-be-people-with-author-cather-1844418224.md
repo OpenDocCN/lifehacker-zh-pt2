@@ -1,6 +1,6 @@
 # 如何教你的孩子成为人，作者凯瑟琳·纽曼
 
-> 原文:[https://life hacker . com/how-to-teach-your-kids-to-be-people-with-author-Cather-1844418224](https://lifehacker.com/how-to-teach-your-kids-to-be-people-with-author-cather-1844418224)
+> 原文：<https://lifehacker.com/how-to-teach-your-kids-to-be-people-with-author-cather-1844418224>
 
 委婉地说，为人父母是一次疯狂而令人困惑的旅行。因此，本周我们在作家凯瑟琳·纽曼的帮助下，学习如何教我们的孩子如何成为体面、负责任的成年人。凯瑟琳是多本儿童和成人书籍的作者，包括 [*等待贾斯敏·范登博加尔德*](https://www.amazon.com/gp/product/0143034774/ref=as_li_tl?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-teach-your-kids-to-be-people-with-author-cather-1844418224&asc_source=&camp=1789&creative=390957&creativeASIN=0143034774&ie=UTF8&linkCode=as2&linkId=GSJGEEXQW7P5GSHB&tag=kinjalifehackerlink-20) 、 [*灾难性的幸福*](https://www.amazon.com/gp/product/0316337501/ref=as_li_tl?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-teach-your-kids-to-be-people-with-author-cather-1844418224&asc_source=&camp=1789&creative=390957&creativeASIN=0316337501&ie=UTF8&linkCode=as2&linkId=ZIAFF3DAYLR24WRG&tag=kinjalifehackerlink-20) 和 [*一个混乱的夜晚*](https://www.amazon.com/One-Mixed-Up-Night-Catherine-Newman/dp/0399553886/ref=as_li_ss_tl?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-teach-your-kids-to-be-people-with-author-cather-1844418224&asc_source=&ie=UTF8&keywords=one mixed up night&linkCode=sl1&linkId=d2d60f962d596088782ce3b87fa0df49&qid=1493675118&sr=8-1&tag=kinjalifehackerlink-20) 。她的新书是 [*如何成为一个人:成长前需要学习的 65 项非常有用、非常重要的技能*](https://www.workman.com/products/how-to-be-a-person) 。
 

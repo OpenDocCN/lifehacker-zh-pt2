@@ -1,6 +1,6 @@
 # Twitter 反对政治广告的新规定也可能让健康诊所噤声
 
-> 原文:[https://life hacker . com/twitters-new-rules-against-political-ads-can-silence-1839508312](https://lifehacker.com/twitters-new-rules-against-political-ads-could-silence-1839508312)
+> 原文：<https://lifehacker.com/twitters-new-rules-against-political-ads-could-silence-1839508312>
 
 Twitter 将禁止其付费广告中的所有政治话题，杰克·多西 [本周宣布](https://twitter.com/jack/status/1189634372334280704) 。但这也意味着“发布”广告，如果负责人(或者更有可能是他们训练的算法)认为这个话题过于政治化，任何东西都可以被禁止。
 

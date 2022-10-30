@@ -1,6 +1,6 @@
 # 让你爱上黑白电影的 10 部经典电影
 
-> 原文:[https://life hacker . com/10-film-classics-that-will-make-you-love-black-white-1844688021](https://lifehacker.com/10-film-classics-that-will-make-you-love-black-white-1844688021)
+> 原文：<https://lifehacker.com/10-film-classics-that-will-make-you-love-black-white-1844688021>
 
 我喜欢老电影。我妻子...没有。这是我们在 [决定我们想一起看什么](https://lifehacker.com/how-to-choose-a-movie-to-watch-without-a-family-fight-1844078230) 时的一个症结；在极少数情况下，她说*我们可以看你想看的任何东西*她从来不会忘记加上*但是没有旧的和黑白的*。我不认为我的配偶是唯一一个对经典电影有错误看法的人——她的反对并不是因为它们大部分是黑白的，尽管这是其中的一部分。还有一个简单的事实是，电影制作是迭代的，就像任何其他年轻的艺术形式一样，自从一些第一批电影观众害怕一列火车会开出屏幕并把他们撞成碎片以来，它已经改变了很多。(尽管在你自己分享这些琐事之前，有必要知道这可能是虚构的 [。那时候的电影和现在不一样。它们的写法不同。它们被不同地剪辑过——](https://www.atlasobscura.com/articles/did-a-silent-film-about-a-train-really-cause-audiences-to-stampede)[一边剪辑一边制作](https://www.sutori.com/story/the-history-of-editing-in-film--QJpt1BGzfkapALSCe9af3Upx) ，电影制作人不得不教观众叙事电影的语言。他们的行为肯定是不同的，这是我配偶的主要抱怨。是啊，老电影里的人听起来怪怪的(至少在你学会爱上 [大西洋中部口音](https://www.huffpost.com/entry/a-simple-explanation-for-why-people-in-old-movies-seem-to-talk-funny_n_564f4c50e4b0879a5b0ab795#:~:text=A%20video%20from%20BrainStuff%20explains,in%20New%20England%20boarding%20schools.) 之前是这样)。)
 

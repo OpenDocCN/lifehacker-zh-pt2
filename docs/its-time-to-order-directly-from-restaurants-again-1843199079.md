@@ -1,6 +1,6 @@
 # 又到了直接从餐馆点菜的时候了
 
-> 原文:[https://life hacker . com/its-time-to-order-direct-from-restaurants-again-1843199079](https://lifehacker.com/its-time-to-order-directly-from-restaurants-again-1843199079)
+> 原文：<https://lifehacker.com/its-time-to-order-directly-from-restaurants-again-1843199079>
 
 在这个疫情期间，被困在家里的诸多挑战之一是不知道如何最好地帮助我们热爱和依赖 T2 的当地企业。嗯，就拿外卖来说吧:我们被指示从我们最喜欢的餐馆订购外卖和外卖——尤其是较小的家庭企业——以确保在这段身体疏远的时期，当他们的餐厅关闭时，他们至少为带来一些收入。虽然这是一个伟大的计划，但你帮助他们的程度取决于你如何下订单。
 

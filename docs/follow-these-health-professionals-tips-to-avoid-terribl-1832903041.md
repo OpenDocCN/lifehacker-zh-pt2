@@ -1,6 +1,6 @@
 # 遵循这些健康专家的建议来避免可怕的命运
 
-> 原文:[https://life hacker . com/follow-these-health-professionals-tips-to-avoid-terribl-1832903041](https://lifehacker.com/follow-these-health-professionals-tips-to-avoid-terribl-1832903041)
+> 原文：<https://lifehacker.com/follow-these-health-professionals-tips-to-avoid-terribl-1832903041>
 
 对你的健康影响最大的日常决定并不是你在杂货店做出的决定，比如说，在有机苹果和普通苹果之间做出选择。它们是高影响力的事情，比如接种疫苗和系安全带。
 

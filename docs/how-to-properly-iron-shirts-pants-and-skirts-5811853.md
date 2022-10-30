@@ -1,6 +1,6 @@
 # 如何正确熨烫衬衫、裤子和裙子
 
-> 原文:[https://life hacker . com/how-to-right-iron-shirts-pants-and-skirts-5811853](https://lifehacker.com/how-to-properly-iron-shirts-pants-and-skirts-5811853)
+> 原文：<https://lifehacker.com/how-to-properly-iron-shirts-pants-and-skirts-5811853>
 
 新熨好的衣服看起来很棒:干净、清爽、整洁。理论上，熨烫是很棒的，一旦你开始做，它甚至没有那么糟糕，但它也很麻烦，很多人都倾向于推迟。另外，你可能有点害怕弄坏你最喜欢的衬衫或裙子。
 

@@ -1,6 +1,6 @@
 # 如何在 iPhone XR、XS 或 XS Max 上使用双模拟人生
 
-> 原文:[https://life hacker . com/how-to-use-dual-sims-on-an-iphone-xr-xs-or-xs-max-1830916251](https://lifehacker.com/how-to-use-dual-sims-on-an-iphone-xr-xs-or-xs-max-1830916251)
+> 原文：<https://lifehacker.com/how-to-use-dual-sims-on-an-iphone-xr-xs-or-xs-max-1830916251>
 
 当苹果周三推送 iOS 版本 12.1.1 时，美国电话电报公司用户获得了在 [a 双 SIM 卡配置](https://support.apple.com/en-us/HT209044) 中使用 iPhone XR、XS 和 XS Max 的能力。从明天，也就是 12 月 7 日开始，威瑞森用户可以在他们的设备上设置类似的场景。
 

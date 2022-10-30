@@ -1,6 +1,6 @@
 # 这个应用程序在 MacOS 上复活了 Clippy
 
-> 原文:[https://life hacker . com/this-app-resurses-clippy-on-MAC OS-1838154307](https://lifehacker.com/this-app-resurrects-clippy-on-macos-1838154307)
+> 原文：<https://lifehacker.com/this-app-resurrects-clippy-on-macos-1838154307>
 
 早在我们 [与智能设备上的人工智能助手](https://lifehacker.com/how-to-delete-voice-recordings-with-alexa-google-assis-1836977240) 交谈之前，我们就有了 Clippy——活泼的，微软 Office 的动画回形针吉祥物，它绝对不是一点都不烦人的提示和上下文操作，“帮助”用户导航 Word、Excel 和 Office 套件的其他部分。
 

@@ -1,6 +1,6 @@
 # 史坦利·图齐的尼格罗尼震撼了我
 
-> 原文:[https://life hacker . com/Stanley-tuccis-negro ni-has-me-shake-1842983873](https://lifehacker.com/stanley-tuccis-negroni-has-me-shook-1842983873)
+> 原文：<https://lifehacker.com/stanley-tuccis-negroni-has-me-shook-1842983873>
 
 他们说规则是用来打破的，但是在你能有效地打破规则之前，你必须理解规则。鸡尾酒有很多规则，也有很多违反规则的人，但史坦利·图齐违反了尼格罗尼规则，这让我开始怀疑我是否真的理解了这种饮料。(令人惊讶的是，我非常喜欢规则。我的规则往往与其他人的不同，但一旦它们被确立，它们就会被*遵循*。)
 

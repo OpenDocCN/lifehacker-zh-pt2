@@ -1,6 +1,6 @@
 # 如果你不知道该对孩子说什么，试试这个
 
-> 原文:[https://life hacker . com/if-you-not-know-to-a-kid-try-this-1839605628](https://lifehacker.com/if-you-dont-know-what-to-say-to-a-kid-try-this-1839605628)
+> 原文：<https://lifehacker.com/if-you-dont-know-what-to-say-to-a-kid-try-this-1839605628>
 
 如果你还没有看过周六夜现场的《 [与孩子说话的多林戈](https://www.youtube.com/watch?v=qsEsgp3H7CU) 》小品，我们强烈推荐。这很有趣，因为这是真的:与孩子交谈可能会令人惊讶地令人生畏。我应该问他们学校的事吗？大家不是都问他们学校的事吗？等等，他们(T4)到上学的年龄了吗？
 

@@ -1,4 +1,4 @@
-> 原文:[https://the take out . com/ramen-Lord-perfect-bow-of-ramen-Mike-satin over-1830128673](https://thetakeout.com/ramen-lord-perfect-bowl-of-ramen-mike-satinover-1830128673)
+> 原文：<https://thetakeout.com/ramen-lord-perfect-bowl-of-ramen-mike-satinover-1830128673>
 
 在过去的八年里，我毕生致力于学习、欣赏和尊重世界上最伟大的烹饪奇迹之一。人们说我过分执着，近乎狂热。
 

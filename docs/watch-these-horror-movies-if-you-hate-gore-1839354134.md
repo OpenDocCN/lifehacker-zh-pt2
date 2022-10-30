@@ -1,6 +1,6 @@
 # 如果你讨厌戈尔，就看看这些恐怖电影吧
 
-> 原文:[https://life hacker . com/watch-these-terror-movies-if-you-hate-gore-1839354134](https://lifehacker.com/watch-these-horror-movies-if-you-hate-gore-1839354134)
+> 原文：<https://lifehacker.com/watch-these-horror-movies-if-you-hate-gore-1839354134>
 
 如果你是那种一看到血就恶心的人，你可能会认为恐怖电影不适合你——但你应该知道这种类型不全是血腥和胆量。举个例子，像*出去，一个安静的地方*和*灵异活动*这样的电影(大部分)是没有血腥的。
 

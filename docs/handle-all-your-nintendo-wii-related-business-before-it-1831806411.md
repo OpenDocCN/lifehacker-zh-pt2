@@ -1,6 +1,6 @@
 # 在任天堂在线商店关闭前处理好你所有的 Wii 业务
 
-> 原文:[https://life hacker . com/handle-all-your-Nintendo-Wii-related-business-before-it-1831806411](https://lifehacker.com/handle-all-your-nintendo-wii-related-business-before-it-1831806411)
+> 原文：<https://lifehacker.com/handle-all-your-nintendo-wii-related-business-before-it-1831806411>
 
 Wii 经历了一段美好的长期运行，但它将在 1 月 31 日变得有点孤独，届时任天堂计划关闭 Wii 商店频道。这意味着不再需要在网上购买游戏，不再需要下载你以前购买的游戏，也不再需要 Wii Transfer tool，它可以让你将数字购买的游戏从 Wii 转移到它的继任者 Wii U。通过关闭这些工具，任天堂实际上切断了对 Wii 的最后一丝支持。
 

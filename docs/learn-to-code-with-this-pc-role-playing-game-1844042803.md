@@ -1,6 +1,6 @@
 # 用这个 PC 角色扮演游戏学习编码
 
-> 原文:[https://life hacker . com/learn-to-code with this-PC-role-playing-game-1844042803](https://lifehacker.com/learn-to-code-with-this-pc-role-playing-game-1844042803)
+> 原文：<https://lifehacker.com/learn-to-code-with-this-pc-role-playing-game-1844042803>
 
 我尝试过使用一系列不同的应用程序和在线课程自学编程语言，但 [TwilioQuest](https://www.twilio.com/quest) 可能是我在学习代码时遇到的最有趣的事情。它最初是一个类似游戏的教程，供开发人员学习 Twilio 的 [通信 API](https://www.youtube.com/watch?v=euJAcVfn0C4)，但扩展到了它的前提之外，成为了一个独立的角色- 玩游戏，可以教你几种编码语言。哦，它(大部分)也是免费下载和播放的。
 

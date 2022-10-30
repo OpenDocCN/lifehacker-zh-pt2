@@ -1,6 +1,6 @@
 # 如何在你睡着的时候不让别人解锁你的 Pixel 4
 
-> 原文:[https://life hacker . com/how-to-keep-someone-unlock-your-pixel-4-when-yo-1839235867](https://lifehacker.com/how-to-keep-someone-from-unlocking-your-pixel-4-when-yo-1839235867)
+> 原文：<https://lifehacker.com/how-to-keep-someone-from-unlocking-your-pixel-4-when-yo-1839235867>
 
 [Pixel 4](https://lifehacker.com/how-the-leaked-pixel-4-stacks-up-against-other-smartpho-1838782478)和 4 XL 勉强进入评测人员的手中，一个重大的安全漏洞已经被发现:这款手机新的面部识别功能将让你的脸解锁你的手机，无论你是否醒着。
 

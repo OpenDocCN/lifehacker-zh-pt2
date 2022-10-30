@@ -1,6 +1,6 @@
 # 如何将您的音乐从 Google Play 传输到 YouTube
 
-> 原文:[https://life hacker . com/how-to-transfer-your-music-from-Google-play-to-YouTube-1843422369](https://lifehacker.com/how-to-transfer-your-music-from-google-play-to-youtube-1843422369)
+> 原文：<https://lifehacker.com/how-to-transfer-your-music-from-google-play-to-youtube-1843422369>
 
 是时候告别 Google Play Music 了:这项服务将在今年晚些时候逐渐退出。它自 2011 年以来就一直存在，这意味着如果你是一名普通用户，你可能已经在谷歌的服务器上建立了一个健康的音乐商店。
 

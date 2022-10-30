@@ -1,6 +1,6 @@
 # 我做了这些 DIY 深蹲支架，它们真的有用
 
-> 原文:[https://life hacker . com/I-build-these-DIY-squat-stands-and-they-actual-work-1844237232](https://lifehacker.com/i-built-these-diy-squat-stands-and-they-actually-work-1844237232)
+> 原文：<https://lifehacker.com/i-built-these-diy-squat-stands-and-they-actually-work-1844237232>
 
 我有一个杠铃，但在疫情生活的头三个月里，除了放在地上，我没有别的地方可以放它。如果你想硬拉，或者做奥运举重，或者把它捡起来，卷起来或者压起来，这都没问题。这些都是我做的。但是没有架子就不能蹲。
 

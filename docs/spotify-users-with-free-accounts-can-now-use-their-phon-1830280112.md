@@ -1,6 +1,6 @@
 # 拥有免费账户的 Spotify 用户现在可以将他们的设备用作扬声器遥控器
 
-> 原文:[https://life hacker . com/Spotify-拥有免费帐户的用户现在可以使用他们的电话-1830280112](https://lifehacker.com/spotify-users-with-free-accounts-can-now-use-their-phon-1830280112)
+> 原文：<https://lifehacker.com/spotify-users-with-free-accounts-can-now-use-their-phon-1830280112>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-3YBG_lA0Qz8&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-3YBG_lA0Qz8&start=0) 
 

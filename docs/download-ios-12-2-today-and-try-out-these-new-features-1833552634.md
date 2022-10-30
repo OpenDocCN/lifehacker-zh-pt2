@@ -1,6 +1,6 @@
 # 立即下载 iOS 12.2，体验这些新功能
 
-> 原文:[https://life hacker . com/download-IOs-12-2-today-and-try-out-these-new-features-1833552634](https://lifehacker.com/download-ios-12-2-today-and-try-out-these-new-features-1833552634)
+> 原文：<https://lifehacker.com/download-ios-12-2-today-and-try-out-these-new-features-1833552634>
 
 恰在此时——苹果发布日等——这家以服务为导向的科技巨头发布了其 iOS 操作系统的最新版本。如果你还没有，或者还没有收到 iOS 更新可用的通知，只需点击你的**设置**应用> **通用** > **软件更新**即可开始下载。这需要一段时间；我花了大约一个小时左右的时间在相当快的互联网连接上下载并安装了更新。
 

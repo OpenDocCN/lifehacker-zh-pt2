@@ -1,6 +1,6 @@
 # 在预购您的 Nvidia RTX 30 系列显卡之前，请阅读本文
 
-> 原文:[https://life hacker . com/read-this-before-pre-ordering-your-NVIDIA-RTX-30-series-1845017144](https://lifehacker.com/read-this-before-pre-ordering-your-nvidia-rtx-30-series-1845017144)
+> 原文：<https://lifehacker.com/read-this-before-pre-ordering-your-nvidia-rtx-30-series-1845017144>
 
 我知道，我知道。诱惑是巨大的，如果你是一个自己动手制作电脑的发烧友，厌倦了看着你的游戏在你把它们调到“超”质量设置时变得断断续续。Nvidia 的新 RTX 30 系列显卡是野兽。但是你应该预订一个吗？我不会。
 

@@ -1,6 +1,6 @@
 # 分手后如何拆分你的电子游戏
 
-> 原文:[https://kotaku . com/how-to-split-your-video-games-after-a-breakup-1843959151](https://kotaku.com/how-to-split-your-video-games-after-a-breakup-1843959151)
+> 原文：<https://kotaku.com/how-to-split-your-video-games-after-a-breakup-1843959151>
 
 分手糟透了。当你权衡外部因素时，情况就更糟了。谁得到这只猫？谁得到了朋友群？谁可以保留电子游戏？如果你目前正纠结于最后一个问题，我们收集了一些专家建议，可能会对你有所帮助。
 

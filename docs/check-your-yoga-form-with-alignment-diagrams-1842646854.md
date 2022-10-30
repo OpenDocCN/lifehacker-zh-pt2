@@ -1,6 +1,6 @@
 # 你的瑜伽形式很糟糕吗？用排列图找出答案
 
-> 原文:[https://life hacker . com/check-your-yoga-form-with-alignment-diagrams-1842646854](https://lifehacker.com/check-your-yoga-form-with-alignment-diagrams-1842646854)
+> 原文：<https://lifehacker.com/check-your-yoga-form-with-alignment-diagrams-1842646854>
 
 [瑜伽是一种理想的隔离锻炼](https://lifehacker.com/how-to-get-into-the-habit-of-doing-yoga-at-home-1830947163) :它可以是放松的，也可以是身体上的折磨，只要你喜欢，你需要的只是你的身体和一个相当柔软的表面。但是就像任何运动一样，如果你的状态不好，你不会从练习瑜伽中得到很多——所以在你第一次(或者永远)踏上垫子(或者地毯)之前，花点时间想想你的。
 

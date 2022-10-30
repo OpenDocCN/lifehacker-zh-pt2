@@ -1,6 +1,6 @@
 # 2020 年 4 月 24-26 日这个周末看什么
 
-> 原文:[https://life hacker . com/what-to-watch-this-weekend-April-24-26-2020-1842934973](https://lifehacker.com/what-to-watch-this-weekend-april-24-26-2020-1842934973)
+> 原文：<https://lifehacker.com/what-to-watch-this-weekend-april-24-26-2020-1842934973>
 
 今天是星期五！(今天*是*周五吧？)既然我们都熬过了又一周，是时候...周末继续呆在家里。
 

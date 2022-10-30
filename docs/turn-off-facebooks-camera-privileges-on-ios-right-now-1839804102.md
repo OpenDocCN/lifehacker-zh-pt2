@@ -1,6 +1,6 @@
 # 马上在 iOS 上关闭脸书的相机权限
 
-> 原文:[https://life hacker . com/turn-off-face books-camera-privileges-on-IOs-right-now-1839804102](https://lifehacker.com/turn-off-facebooks-camera-privileges-on-ios-right-now-1839804102)
+> 原文：<https://lifehacker.com/turn-off-facebooks-camera-privileges-on-ios-right-now-1839804102>
 
 有很多证据表明，脸书是 [一直在跟踪](https://gizmodo.com/all-of-the-creepy-things-facebook-knows-about-you-1785510980) 我们的数据，但在 iOS 脸书应用程序上发现的一个新问题表明，该公司可能也确实在监视。一个新的 bug——大多数人似乎认为*是*一个 bug——在你使用脸书时在后台打开你手机的摄像头。
 

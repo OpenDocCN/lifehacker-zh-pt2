@@ -1,6 +1,6 @@
 # 当你写作的时候听我们的播放列表
 
-> 原文:[https://life hacker . com/listen-to-our-playlist-while-write-1834761503](https://lifehacker.com/listen-to-our-playlist-while-you-write-1834761503)
+> 原文：<https://lifehacker.com/listen-to-our-playlist-while-you-write-1834761503>
 
 写作是 1%的写作，1%的盯着空间，98%的做些小差事为写作“做准备”。我最喜欢的不写作的方法是为我正在写的东西制作一个非常特别的播放列表。如果你去寻找合适的音乐来写作，对不起，我刚刚毁了你的借口:这里是 Lifehacker 的四小时音乐写作播放列表。
 

@@ -1,6 +1,6 @@
 # 2019 年全国三明治日在哪里可以买到便宜的三明治
 
-> 原文:[https://life hacker . com/where-to-get-price-sandwich-on-national-sandwich-day-1839511000](https://lifehacker.com/where-to-get-cheap-sandwiches-on-national-sandwich-day-1839511000)
+> 原文：<https://lifehacker.com/where-to-get-cheap-sandwiches-on-national-sandwich-day-1839511000>
 
 11 月 3 日星期日是全国三明治日。我们在这里报道了很多“免费食物日”，因为我们爱你，我们希望你被喂养。所以我需要提前向你承认，周日没有免费的三明治，至少没有购买同等或更大的三明治。
 

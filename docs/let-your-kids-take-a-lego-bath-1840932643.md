@@ -1,6 +1,6 @@
 # 让你的孩子洗个乐高澡
 
-> 原文:[https://life hacker . com/let-your-kids-take-a-Lego-bath-1840932643](https://lifehacker.com/let-your-kids-take-a-lego-bath-1840932643)
+> 原文：<https://lifehacker.com/let-your-kids-take-a-lego-bath-1840932643>
 
 一年中的这个时候会有点糟糕。假期结束了，孩子们回到了日托所或学校，天气寒冷而灰暗(但仍然基本没有雪，这取决于你在哪里)。很难想出新的方法来改变日常生活，创造一点仲冬的快乐火花。我的建议是:把你孩子的 DUPLO 积木倒进浴缸，让他们洗个乐高澡。
 

@@ -1,6 +1,6 @@
 # 以下是你在底特律错过的第二轮民主党总统候选人辩论
 
-> 原文:[https://life hacker . com/heres-what-you-miss-from round-two-of-the-democratic-1836880645](https://lifehacker.com/heres-what-you-missed-from-round-two-of-the-democratic-1836880645)
+> 原文：<https://lifehacker.com/heres-what-you-missed-from-round-two-of-the-democratic-1836880645>
 
 周三晚上，又有 10 名候选人登上底特律的舞台，参加第二轮民主党总统候选人辩论，讨论医疗保健、气候变化和警察改革等问题——但乔·拜登是每个候选人心中的明确主题。
 

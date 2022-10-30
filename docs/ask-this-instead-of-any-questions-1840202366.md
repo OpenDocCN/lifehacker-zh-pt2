@@ -1,6 +1,6 @@
 # 问这个而不是“有问题吗？”
 
-> 原文:[https://life hacker . com/ask-this-inst-of-any-questions-1840202366](https://lifehacker.com/ask-this-instead-of-any-questions-1840202366)
+> 原文：<https://lifehacker.com/ask-this-instead-of-any-questions-1840202366>
 
 我来自一个安静的民族。我和我的同学总是不善于向老师提问，或者认识到我们*有*个问题。我希望我有一个像历史学家和教授 [杰奎琳·安东诺维奇](https://www.muhlenberg.edu/academics/history/facultystaff/jacquelinedantonovich/) 那样的人，她最近在推特上发布了一个鼓励她的学生闭嘴的小技巧。她只是简单地重述了提示“有问题吗？”到“你有什么问题要问我？”
 

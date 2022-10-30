@@ -1,6 +1,6 @@
 # 按哥特风格对你的 Twitter 订阅进行排序
 
-> 原文:[https://life hacker . com/sort-your-Twitter-feed-by-gothness-1838039698](https://lifehacker.com/sort-your-twitter-feed-by-gothness-1838039698)
+> 原文：<https://lifehacker.com/sort-your-twitter-feed-by-gothness-1838039698>
 
 就我个人而言，我喜欢 Twitter 的算法时间线，但我知道这让我变成了一个白痴和骗子。网络玩具 [其他订单](https://otherorders.net) 会拿走你的时间线，按照你的喜好重新排序。你可以得到一个按时间顺序排列的时间线。你可以把每个人的推文按最喜欢或转发排序，只看热门的。或者让其他订单分析这些推文的文本，并挖掘出最具启示性、最令人惊叹、最令人羞愧、最“像警察”、最像 TED 演讲或最哥特的内容。
 

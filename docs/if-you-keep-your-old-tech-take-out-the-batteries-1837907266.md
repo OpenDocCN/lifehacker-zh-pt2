@@ -1,6 +1,6 @@
 # 如果你还留着你的旧技术，就把电池拿出来
 
-> 原文:[https://life hacker . com/if-you-keep-you-old-tech-take-out-the-batteries-1837907266](https://lifehacker.com/if-you-keep-your-old-tech-take-out-the-batteries-1837907266)
+> 原文：<https://lifehacker.com/if-you-keep-your-old-tech-take-out-the-batteries-1837907266>
 
 我不想吓到你，但是你拥有的每一件旧技术都可能是定时炸弹。
 

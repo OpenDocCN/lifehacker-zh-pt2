@@ -1,6 +1,6 @@
 # 约书亚树的惨败是为什么公园应该在关闭期间关闭
 
-> 原文:[https://gizmodo . com/the-Joshua-tree-fiasco-is-why-parks-should-be-closed-du-1831651545](https://gizmodo.com/the-joshua-tree-fiasco-is-why-parks-should-be-closed-du-1831651545)
+> 原文：<https://gizmodo.com/the-joshua-tree-fiasco-is-why-parks-should-be-closed-du-1831651545>
 
 在周三 的一个奇怪的决定中，约书亚树国家公园改变了关闭大门的方针，尽管有明确的证据表明游客正在破坏公园的同名树木，非法露营和越野。
 

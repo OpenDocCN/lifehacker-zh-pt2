@@ -1,6 +1,6 @@
 # 为你的孩子建立一个玩具清洗站
 
-> 原文:[https://life hacker . com/set-up-a-toy-cleaning-station-for-your-kids-1839920538](https://lifehacker.com/set-up-a-toy-cleaning-station-for-your-kids-1839920538)
+> 原文：<https://lifehacker.com/set-up-a-toy-cleaning-station-for-your-kids-1839920538>
 
 对于小孩子来说，我最喜欢的活动类型是让他们忙起来，然后完成另一个目标。就像他们帮你整理衣物或“准备”晚餐一样。孩子们喜欢动手的活动，他们喜欢乐于助人。这位妈妈用这个简单的玩具清洗站解决了这两个问题:
 

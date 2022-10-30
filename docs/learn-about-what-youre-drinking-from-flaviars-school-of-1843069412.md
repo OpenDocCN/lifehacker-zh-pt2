@@ -1,6 +1,6 @@
 # 从弗拉维亚的“酒精学校”中了解你正在喝什么
 
-> 原文:[https://life hacker . com/learn-on-what-you-drinking-from-flaviars-school-of-1843069412](https://lifehacker.com/learn-about-what-youre-drinking-from-flaviars-school-of-1843069412)
+> 原文：<https://lifehacker.com/learn-about-what-youre-drinking-from-flaviars-school-of-1843069412>
 
 总的来说，呆在家里和疫情已经改变了我们很多习惯。也许你正在 [参加常春藤联盟的在线课程](https://lifehacker.com/you-can-now-attend-ivy-league-classes-online-for-free-1842907160) ，或者在你的健身自行车上做更多的锻炼。或者，也许你和我一样，只是喝得比平时多。
 

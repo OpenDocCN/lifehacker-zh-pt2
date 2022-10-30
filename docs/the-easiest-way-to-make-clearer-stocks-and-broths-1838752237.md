@@ -1,6 +1,6 @@
 # 最简单的方法，使更清晰的股票和肉汤
 
-> 原文:[https://life hacker . com/the-easy-way-make-clearer-stock-and-brothers-1838752237](https://lifehacker.com/the-easiest-way-to-make-clearer-stocks-and-broths-1838752237)
+> 原文：<https://lifehacker.com/the-easiest-way-to-make-clearer-stocks-and-broths-1838752237>
 
 在炉子上做肉汤需要站在沸腾的热锅上，从表面舀起奇怪的凝结的肉渣。这绝对是最糟糕的。当然，你可以使用慢炖锅 来完全避免撇去浮渣，但是如果你坚持使用炉子，有一个简单的方法可以让炒菜最糟糕的部分变得不那么难吃。
 

@@ -1,6 +1,6 @@
 # 如何组织邻里“粉笔行走”
 
-> 原文:[https://life hacker . com/how-to-organize-a-neighborhood-chalk-walk-1842862920](https://lifehacker.com/how-to-organize-a-neighborhood-chalk-walk-1842862920)
+> 原文：<https://lifehacker.com/how-to-organize-a-neighborhood-chalk-walk-1842862920>
 
 你有没有注意到最近你隔离区附近人行道上可爱的粉笔画数量增加了？被关起来的孩子们(和许多成年人)走上人行道，扔出一些小艺术品或一些鼓舞人心的话，让邻居欣赏，因为我们都尽可能地走在户外。因为在疫情期间，我们都在以各种可能的方式与他人联系，所以考虑通过组织一次社区粉笔行走来提升这种情绪。
 

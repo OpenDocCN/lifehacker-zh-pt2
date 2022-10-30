@@ -1,6 +1,6 @@
 # 七月的医院真的更危险吗？
 
-> 原文:[https://life hacker . com/are-hospitals-really-more-dangerous-in-July-1836052146](https://lifehacker.com/are-hospitals-really-more-dangerous-in-july-1836052146)
+> 原文：<https://lifehacker.com/are-hospitals-really-more-dangerous-in-july-1836052146>
 
 7 月 1 日标志着教学医院新学年的开始。这意味着这是新医生开始他们第一份工作的日子，一些人(通常包括医院工作人员)会发誓这是 T2 最糟糕的就医时间。
 

@@ -1,6 +1,6 @@
 # 如何将我的 Android 手机传输到旧电视？
 
-> 原文:[https://life hacker . com/how-do-I-stream-my-Android-phone-to-an-older-TV-1837708025](https://lifehacker.com/how-do-i-stream-my-android-phone-to-an-older-tv-1837708025)
+> 原文：<https://lifehacker.com/how-do-i-stream-my-android-phone-to-an-older-tv-1837708025>
 
 你永远不应该感到局限于你口袋里的小手机上的小屏幕——或者巨大的手机，这取决于你对“plus”设备的偏好。把你在手机上看到的任何东西推到一个更大的屏幕上是非常容易的，比如你的客厅电视。至少，它*应该*是。
 

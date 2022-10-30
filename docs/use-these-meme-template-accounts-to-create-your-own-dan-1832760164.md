@@ -1,6 +1,6 @@
 # 用这些模因模板帐户创建你自己的湿模因
 
-> 原文:[https://life hacker . com/use-these-meme-template-accounts-to-create-your-own-Dan-1832760164](https://lifehacker.com/use-these-meme-template-accounts-to-create-your-own-dan-1832760164)
+> 原文：<https://lifehacker.com/use-these-meme-template-accounts-to-create-your-own-dan-1832760164>
 
 安吉尔·奥尔森曾经唱过“ [”他们用我的遗产亲爱的](https://www.youtube.com/watch?v=L4C-Lw-YaWg) 做了一个迷因，“但我从未找到一个迷因完全包含我对世界的持久影响。幸运的是，在 Instagram 上的模板账户的帮助下，我现在可以(轻松地)制作自己的定制模因了。
 

@@ -1,6 +1,6 @@
 # 被困医院近一个月怎么玩你的 PS4
 
-> 原文:[https://kotaku . com/how-to-play-your-ps4-when-you-re-stick-in-a-hospital-fo-1832754790](https://kotaku.com/how-to-play-your-ps4-when-you-re-stuck-in-a-hospital-fo-1832754790)
+> 原文：<https://kotaku.com/how-to-play-your-ps4-when-you-re-stuck-in-a-hospital-fo-1832754790>
 
 从 1 月 23 日到 2 月 18 日，我一直躺在医院的病床上，从一个手术过程中恢复过来，这个手术过程要求我几乎完全保持俯卧以便痊愈。幸运的是我来到医院时有备而来，并设法仍然播放了*王国之心 3* 、*跳跃力、顶点传说*和*圣歌*。我只需要合适的装备。
 

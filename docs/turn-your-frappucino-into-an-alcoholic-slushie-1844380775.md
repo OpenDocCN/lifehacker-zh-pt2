@@ -1,6 +1,6 @@
 # 把你的法式冰沙变成酒精冰沙
 
-> 原文:[https://life hacker . com/turn-your-frappucino-into-a-alcohol-slush ie-1844380775](https://lifehacker.com/turn-your-frappucino-into-an-alcoholic-slushie-1844380775)
+> 原文：<https://lifehacker.com/turn-your-frappucino-into-an-alcoholic-slushie-1844380775>
 
 瓶装星冰乐永远不会让我错过 1999 年。我 13 岁了——都是倩碧 Happy 和蝴蝶夹——从玻璃瓶中啜饮冰镇摩卡咖啡饮料似乎是成年人的高度成熟。我已经有很长一段时间没有真正想过这种饮料了，直到我看到 Delish 的这篇文章 ，讲述了我们多年来一直在喝这种饮料，但都是错的
 

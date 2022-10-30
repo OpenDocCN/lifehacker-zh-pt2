@@ -1,6 +1,6 @@
 # 飞机上最安全的座位是什么？
 
-> 原文:[https://life hacker . com/whats-the-safe-seat-on-a-plane-1836494676](https://lifehacker.com/whats-the-safest-seat-on-an-airplane-1836494676)
+> 原文：<https://lifehacker.com/whats-the-safest-seat-on-an-airplane-1836494676>
 
 昨天， [@KLMIndia](https://twitter.com/KLMIndia) 分享然后删除了下面这条推文:“根据 Time 的数据研究，飞机中间的座位致死率最高。然而，前排座位的死亡率略低，飞机后三分之一座位的死亡率最低。”
 

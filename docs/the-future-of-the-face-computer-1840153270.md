@@ -1,6 +1,6 @@
 # 人脸计算机的未来
 
-> 原文:[https://gizmodo . com/the-future-of-the-face-computer-1840153270](https://gizmodo.com/the-future-of-the-face-computer-1840153270)
+> 原文：<https://gizmodo.com/the-future-of-the-face-computer-1840153270>
 
 对于消费者来说，智能眼镜无疑有一个艰难的开端。简单概括一下，它们很贵，看起来很傻，而且在现实生活中，它们不符合流行文化中为我们描绘的幻想。尽管像谷歌眼镜这样的东西技术先进，但第一次迭代与我们在电影中看到的完全不同。例如，你不能简单地看着一个人并了解他的一切。
 

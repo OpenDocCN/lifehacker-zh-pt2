@@ -1,6 +1,6 @@
 # 如何学习一门语言以便你能真正理解它
 
-> 原文:[https://life hacker . com/how-to-study-a-language-so-you-can-actually-understand-1833844226](https://lifehacker.com/how-to-study-a-language-so-you-can-actually-understand-1833844226)
+> 原文：<https://lifehacker.com/how-to-study-a-language-so-you-can-actually-understand-1833844226>
 
 当你到达一个新的国家时，在语言学习应用程序中升级和能够说并理解你的目标语言之间有很大的区别。与其想知道哪种应用或方法是“最好的”，不如考虑从多个方向学习你的语言。
 

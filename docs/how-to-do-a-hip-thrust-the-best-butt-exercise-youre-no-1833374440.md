@@ -1,6 +1,6 @@
 # 如何做臀推，你没有做的最好的臀部练习
 
-> 原文:[https://life hacker . com/how-do-a-hip-thrust-the-best-butt-exercise-you-no-1833374440](https://lifehacker.com/how-to-do-a-hip-thrust-the-best-butt-exercise-youre-no-1833374440)
+> 原文：<https://lifehacker.com/how-to-do-a-hip-thrust-the-best-butt-exercise-youre-no-1833374440>
 
 似乎有两种健身房:一种是每个人都在做臀部按摩的，另一种是没人听说过的。在第一种情况下，你可能会感到害怕；第二，你可能不想成为那个怪人。不要害怕:我们将帮助你自信地开始。
 

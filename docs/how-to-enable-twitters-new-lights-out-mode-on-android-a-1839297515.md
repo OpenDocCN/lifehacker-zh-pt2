@@ -1,6 +1,6 @@
 # 如何在 Android 和桌面上启用 Twitter 的新熄灯模式
 
-> 原文:[https://life hacker . com/how-to-enable-twitters-new-lights-out-mode-on-Android-a-1839297515](https://lifehacker.com/how-to-enable-twitters-new-lights-out-mode-on-android-a-1839297515)
+> 原文：<https://lifehacker.com/how-to-enable-twitters-new-lights-out-mode-on-android-a-1839297515>
 
 Twitter 的新的超黑暗主题“熄灯”终于可以在 Twitter Android 应用程序中使用了。今年年初首次在 iOS 上推出的功能。与 Twitter 最初的黑暗模式(现在称为“Dim”)不同，它将背景和用户界面更改为暗蓝木炭色调，熄灯模式使用真正的黑色来实现更暗的美感，旨在降低有机发光二极管屏幕设备的功耗——尽管任何人都可以启用它，不管他们的 Android 智能手机或平板电脑是什么样的屏幕。
 

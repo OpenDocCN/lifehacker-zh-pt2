@@ -1,6 +1,6 @@
 # 如何变得更擅长闲聊
 
-> 原文:[https://life hacker . com/how-to-get-better-at-small-talk-1838011744](https://lifehacker.com/how-to-get-better-at-small-talk-1838011744)
+> 原文：<https://lifehacker.com/how-to-get-better-at-small-talk-1838011744>
 
 在这一集里，我们将深入讨论闲聊这个话题。闲聊真的有价值吗，还是只是无聊的闲聊？无论你站在话题的哪个位置，你迟早都会被叫去参与闲聊——那么你怎样才能对此感到更舒服呢？我们的制作人问了可能是闲聊最流利的人:调酒师。然后，生活骇客的工作人员作家尼克·道格拉斯加入了梅丽莎和爱丽丝的演播室，讨论我们在闲聊中的各种感受，以及谈论天气是否有任何价值。
 

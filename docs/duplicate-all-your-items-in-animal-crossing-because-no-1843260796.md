@@ -1,6 +1,6 @@
 # 在动物穿越中复制你的物品，因为什么都不重要
 
-> 原文:[https://life hacker . com/duplicate-all-your-items-in-animal-crossing-because-no-1843260796](https://lifehacker.com/duplicate-all-your-items-in-animal-crossing-because-no-1843260796)
+> 原文：<https://lifehacker.com/duplicate-all-your-items-in-animal-crossing-because-no-1843260796>
 
 我觉得不可能在*动物穿越:新视野*里作弊。或者，更确切地说，我对利用游戏的怪癖来随心所欲地装备你的单人岛屿没有任何愧疚感。从时间旅行到 [萝卜交换](https://turnip.exchange/) ，有很多方法可以用来规避游戏缓慢、有条不紊的意图——包括一个全新的杜平黑客，让你可以克隆你想要的任何物品。
 

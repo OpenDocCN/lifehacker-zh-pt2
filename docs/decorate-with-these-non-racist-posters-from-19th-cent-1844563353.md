@@ -1,6 +1,6 @@
 # 用这些 19 世纪剧院的(非种族主义)海报装饰
 
-> 原文:[https://life hacker . com/decorate-with-these-non-racistic-posters-from-19-cent-1844563353](https://lifehacker.com/decorate-with-these-non-racist-posters-from-19th-cent-1844563353)
+> 原文：<https://lifehacker.com/decorate-with-these-non-racist-posters-from-19th-cent-1844563353>
 
 我最羡慕别人的技能之一是用艺术品装饰房间的能力。我们已经在现在的公寓里住了三年了，我们的大部分墙壁仍然是大片空白的白色。我不是不喜欢看墙上的东西。我知道。但是就像培养一个新音乐的播放列表一样，找到好的东西需要时间和研究，尤其是如果你有折衷的口味。你可以花几个小时研究 Instagram 和所有海报，希望能找到一些有趣的东西。或者你可以用 19 世纪的剧院海报装饰家里的每一面。这个建议来自于一位名叫鲍勃·尼克尔森[的博士(他自称是“维多利亚流行文化的历史学家”)。他在推特上发起了一个大规模的帖子，强调 Picryl](https://twitter.com/DigiVictorian) 收集的一些非常优秀的老式剧院海报 [，这是一个公共领域材料的在线资源。](https://picryl.com/search?page=1&q=%23posters%2Bperforming%2Barts%2Bposters)
 

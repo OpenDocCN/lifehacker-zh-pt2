@@ -1,6 +1,6 @@
 # 这里有一个洗车的实际理由
 
-> 原文:[https://jalopnik . com/heres-a-practical-reason-wash-your-car-1841176080](https://jalopnik.com/heres-a-practical-reason-to-wash-your-car-1841176080)
+> 原文：<https://jalopnik.com/heres-a-practical-reason-to-wash-your-car-1841176080>
 
 我知道你们当中有一批人不相信洗车。这很好！汽车停在外面，你真的看不出保持它们闪亮和干净有什么意义。这是一个错误的选择，但我仍然尊重它。但是今天在这里，我给你带来一个洗车的实用理由。这和钱有关。
 

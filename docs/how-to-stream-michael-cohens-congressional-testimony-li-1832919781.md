@@ -1,6 +1,6 @@
 # 如何直播迈克尔·科恩的国会证词
 
-> 原文:[https://life hacker . com/how-to-stream-Michael-cohens-congressional-证言-李-1832919781](https://lifehacker.com/how-to-stream-michael-cohens-congressional-testimony-li-1832919781)
+> 原文：<https://lifehacker.com/how-to-stream-michael-cohens-congressional-testimony-li-1832919781>
 
 伙计们，就是今天了。
 

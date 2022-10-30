@@ -1,6 +1,6 @@
 # 我如何让 iPhone 和 Windows PC 玩得很好？
 
-> 原文:[https://life hacker . com/how-do-I-get-a-iphone-a-windows-PC-to-play-nicely-1845012874](https://lifehacker.com/how-do-i-get-an-iphone-and-a-windows-pc-to-play-nicely-1845012874)
+> 原文：<https://lifehacker.com/how-do-i-get-an-iphone-and-a-windows-pc-to-play-nicely-1845012874>
 
 你如何管理一个多平台的家庭？不是每个人都完全忠于苹果、谷歌、微软或任何其他科技公司。你可能拥有一部 iPhone，并使用 Windows PC。也许你更喜欢你的 Android 的摄像头和你的 MacBook 的键盘。也许你只是一个超级极客，你喜欢设备，仅此而已。
 

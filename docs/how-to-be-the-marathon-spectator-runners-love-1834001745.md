@@ -1,6 +1,6 @@
 # 如何成为马拉松观众喜爱的运动员
 
-> 原文:[https://life hacker . com/how-to-be-the-marathon-spectator-runners-love-1834001745](https://lifehacker.com/how-to-be-the-marathon-spectator-runners-love-1834001745)
+> 原文：<https://lifehacker.com/how-to-be-the-marathon-spectator-runners-love-1834001745>
 
 鼓励的欢呼声会极大地鼓舞士气，但每个马拉松运动员都有对观众的美好回忆，他在比赛的艰难时刻吃了完美的小吃或激励性的话语。以下是成为天使的方法。
 

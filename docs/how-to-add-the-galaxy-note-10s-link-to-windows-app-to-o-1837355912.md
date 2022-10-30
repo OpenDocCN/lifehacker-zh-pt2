@@ -1,6 +1,6 @@
 # 如何将 Galaxy Note 10 的“Windows 链接”应用程序添加到旧的三星手机上
 
-> 原文:[https://life hacker . com/how-to-add-the-galaxy-note-10s-link-to-windows-app-to-o-1837355912](https://lifehacker.com/how-to-add-the-galaxy-note-10s-link-to-windows-app-to-o-1837355912)
+> 原文：<https://lifehacker.com/how-to-add-the-galaxy-note-10s-link-to-windows-app-to-o-1837355912>
 
 三星的“链接 Windows”功能很像微软的 [你的手机](https://lifehacker.com/how-to-get-android-notifications-on-your-windows-pc-1836078297)app；它可以让你通过快速设置菜单将 Galaxy Note 10 系列手机同步到 PC。连接后，您可以直接从 Windows 桌面访问您的消息应用程序、通知、照片和其他手机功能。
 

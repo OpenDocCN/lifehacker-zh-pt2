@@ -1,6 +1,6 @@
 # 根据水管工的说法，如何保养你的淋浴器
 
-> 原文:[https://life hacker . com/how-to-maintain your ' s shower-by-a-plumber-1828239435](https://lifehacker.com/how-to-maintain-your-shower-according-to-a-plumber-1828239435)
+> 原文：<https://lifehacker.com/how-to-maintain-your-shower-according-to-a-plumber-1828239435>
 
 一个坚固的管道系统，如果维护良好，可以——也应该——持续几十年。这是一件好事，因为更换整个东西是一个巨大而昂贵的项目。
 

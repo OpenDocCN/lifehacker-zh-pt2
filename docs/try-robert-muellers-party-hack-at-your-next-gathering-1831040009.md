@@ -1,6 +1,6 @@
 # 下次聚会时试试罗伯特·穆勒的派对技巧
 
-> 原文:[https://life hacker . com/try-Robert-muellers-party-hack-at-your ' s next-gathering-1831040009](https://lifehacker.com/try-robert-muellers-party-hack-at-your-next-gathering-1831040009)
+> 原文：<https://lifehacker.com/try-robert-muellers-party-hack-at-your-next-gathering-1831040009>
 
 我们都有过这样的经历:你举办了一个令人惊叹的聚会——也许是乔迁宴，也许是假日聚会——但现在是凌晨 1、2 点，你的客人只是。不会。离开。这不是你的错，你只是太擅长开派对了，但是你也想尽快收拾干净上床睡觉。该怎么办呢？
 

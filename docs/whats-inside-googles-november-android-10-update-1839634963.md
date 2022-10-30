@@ -1,6 +1,6 @@
 # 谷歌 11 月 Android 10 更新有什么内容
 
-> 原文:[https://life hacker . com/whats-inside-Google-November-Android-10-update-1839634963](https://lifehacker.com/whats-inside-googles-november-android-10-update-1839634963)
+> 原文：<https://lifehacker.com/whats-inside-googles-november-android-10-update-1839634963>
 
 谷歌已经放弃了 11 月份对 Pixel 2、Pixel 3、Pixel 3a 和 Pixel 4 的 Android 10 更新，这很有趣，因为三星显然在这一次 [击败了谷歌](https://9to5google.com/2019/11/05/galaxy-s10-november-patch/)——这是一个意想不到的举动。
 

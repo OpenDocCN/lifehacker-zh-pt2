@@ -1,6 +1,6 @@
 # 我们无法用语言来描述我们所经历的一切
 
-> 原文:[https://life hacker . com/we-don ' t-thewords for what ' s-being-through-1843111507](https://lifehacker.com/we-dont-have-the-words-for-what-were-living-through-1843111507)
+> 原文：<https://lifehacker.com/we-dont-have-the-words-for-what-were-living-through-1843111507>
 
 “隔离”从来都不完全正确。“重新开放”也不是一个准确的术语。作为一个社会，我们正在经历的是前所未有的，我们无法用语言来描述。我想那是因为我们不能说出那些我们几乎无法理解的东西的名字。
 

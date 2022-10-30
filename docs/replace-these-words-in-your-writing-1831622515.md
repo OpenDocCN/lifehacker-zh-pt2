@@ -1,6 +1,6 @@
 # 在你的写作中替换这些单词
 
-> 原文:[https://life hacker . com/replace-these-words-in-your-writing-1831622515](https://lifehacker.com/replace-these-words-in-your-writing-1831622515)
+> 原文：<https://lifehacker.com/replace-these-words-in-your-writing-1831622515>
 
 写作很难，也很怪异，而且在人类生存的模式中是相当新的。我们已经谈论了 [也许 50 万年](https://www.psychologytoday.com/us/blog/language-in-the-mind/201502/how-old-is-language) ，写作了大约 5000 年。所以有时候我们会写一些我们永远不会大声说出来的东西。当一个简单的词更好用时，我们使用一个复杂的或“听起来很聪明”的词。《纽约时报》编辑丹·萨尔茨斯坦 [在推特](https://twitter.com/dansaltzstein/status/1076861137558360064) 上列举了一些很棒的例子。它们出现在新闻媒体上，也出现在“商业用语”中如果你想有效地写作，请注意以下几点:
 

@@ -1,6 +1,6 @@
 # 为什么明星们因为堡垒之夜的舞蹈动作起诉 Epic Games？
 
-> 原文:[https://life hacker . com/why-are-rappers-youtubers-and-TV-stars-suing-epic-gam-1831213622](https://lifehacker.com/why-are-rappers-youtubers-and-tv-stars-suing-epic-gam-1831213622)
+> 原文：<https://lifehacker.com/why-are-rappers-youtubers-and-tv-stars-suing-epic-gam-1831213622>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-9FYsStiXQzY&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-9FYsStiXQzY&start=0) 
 

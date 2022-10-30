@@ -1,6 +1,6 @@
 # 更改这些脸书设置，使您的录音更加私密
 
-> 原文:[https://life hacker . com/change-these-Facebook-settings-to-make-your-voice-recor-1837215537](https://lifehacker.com/change-these-facebook-settings-to-make-your-voice-recor-1837215537)
+> 原文：<https://lifehacker.com/change-these-facebook-settings-to-make-your-voice-recor-1837215537>
 
 在过去的几个月里，脸书是最新一个承认外部承包商获得用户录音的科技巨头。
 

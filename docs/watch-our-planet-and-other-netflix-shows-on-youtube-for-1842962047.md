@@ -1,6 +1,6 @@
 # 在 YouTube 上免费观看《我们的星球》和其他网飞的节目
 
-> 原文:[https://life hacker . com/watch-our-planet-and-other-YouTube-on-1842962047](https://lifehacker.com/watch-our-planet-and-other-netflix-shows-on-youtube-for-1842962047)
+> 原文：<https://lifehacker.com/watch-our-planet-and-other-netflix-shows-on-youtube-for-1842962047>
 
 早在孩子们真正走进教室学习的时候，网飞就向希望在课堂上播放这些纪录片的教师免费提供了许多教育纪录片。随着疫情迫使大多数孩子回到家中进行一些不确定的""远程学习，网飞已经在 [YouTube](https://www.youtube.com/playlist?list=PLvahqwMqN4M0GRkZY8WkLZMb6Z-W7qbLA) 上放弃了许多这些纪录片，供我们所有人免费观看。
 

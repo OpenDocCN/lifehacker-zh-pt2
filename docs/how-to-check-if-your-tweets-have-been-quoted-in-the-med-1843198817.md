@@ -1,6 +1,6 @@
 # 如何检查你的推文是否被媒体引用
 
-> 原文:[https://life hacker . com/how-to-check-if-your-tweets-are-quoted-in-the-med-1843198817](https://lifehacker.com/how-to-check-if-your-tweets-have-been-quoted-in-the-med-1843198817)
+> 原文：<https://lifehacker.com/how-to-check-if-your-tweets-have-been-quoted-in-the-med-1843198817>
 
 作为一个在 Twitter 上从来都不太机智的人，我几乎不担心我输入的任何东西会在某个网站或新闻故事中被突出显示——除非有人真的关心我对猫和动物穿越的想法。然而，有一个快速简单的方法可以让你自己看看你的推特智慧是否被其他人借鉴过。(而且你可能会惊讶！)
 

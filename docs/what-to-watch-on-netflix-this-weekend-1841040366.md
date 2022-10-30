@@ -1,6 +1,6 @@
 # 这个周末在网飞看什么
 
-> 原文:[https://life hacker . com/本周末网飞看点-1841040366](https://lifehacker.com/what-to-watch-on-netflix-this-weekend-1841040366)
+> 原文：<https://lifehacker.com/what-to-watch-on-netflix-this-weekend-1841040366>
 
 网飞一定认为我们都在电影院看奥斯卡的角逐者；否则他们为什么会留给我们这么少的像样的流水账来打发我们的长周末呢？别担心，我们会保护你的。以下是 Lifehacker 为你每天的小休时间选择在网飞播放的内容。
 

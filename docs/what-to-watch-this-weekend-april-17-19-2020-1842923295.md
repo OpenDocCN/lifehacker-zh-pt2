@@ -1,6 +1,6 @@
 # 2020 年 4 月 17-19 日这个周末看什么
 
-> 原文:[https://life hacker . com/what-to-watch-this-weekend-April-17-19-2020-1842923295](https://lifehacker.com/what-to-watch-this-weekend-april-17-19-2020-1842923295)
+> 原文：<https://lifehacker.com/what-to-watch-this-weekend-april-17-19-2020-1842923295>
 
 准备好在家过另一个周末了吗？是啊，我们也是。如果你想在这个周末找些事情做，我们已经为你挖掘了未来几天的一些最佳流媒体选项。
 

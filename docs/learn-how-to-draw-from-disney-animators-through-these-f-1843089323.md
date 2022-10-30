@@ -1,6 +1,6 @@
 # 了解如何通过这些免费视频从迪士尼动画师
 
-> 原文:[https://life hacker . com/learn-how-to-draw-from-Disney-animators-through the-f-1843089323](https://lifehacker.com/learn-how-to-draw-from-disney-animators-through-these-f-1843089323)
+> 原文：<https://lifehacker.com/learn-how-to-draw-from-disney-animators-through-these-f-1843089323>
 
 如果你一直在利用一些在家的时间学习如何画画，迪斯尼公园有一些视频可能会有所帮助。
 

@@ -1,6 +1,6 @@
 # 理解汽车维修手册的简单技巧
 
-> 原文:[https://jalopnik . com/easy-tips-for-understanding-an-auto-repair-manual-1843862414](https://jalopnik.com/easy-tips-for-understanding-an-auto-repair-manual-1843862414)
+> 原文：<https://jalopnik.com/easy-tips-for-understanding-an-auto-repair-manual-1843862414>
 
 所以你一直想更多地使用自己的汽车，并听说“最好的工具之一是维修手册。”没错，但是它们从来没有乐高说明那么简单。今天我得到了一些关于如何充分利用一本又厚又无聊的汽车手册的建议，这样你就可以更有效地使用它。
 

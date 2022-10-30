@@ -1,6 +1,6 @@
 # “女士们，先生们”更具包容性的说法
 
-> 原文:[https://life hacker . com/the-more-inclusive-the-way-to-say-女士们先生们-1840663340](https://lifehacker.com/the-more-inclusive-way-to-say-ladies-and-gentlemen-1840663340)
+> 原文：<https://lifehacker.com/the-more-inclusive-way-to-say-ladies-and-gentlemen-1840663340>
 
 “女士们，先生们”是称呼一群人的常用方式，尤其是在正式的公共场合。长期以来，这被视为一种标准的、礼貌的——如果不是过时的——称呼一群人的方式，它的日子已经过去了。并不是每个人都认为自己是女士或者是绅士，幸运的是，有一个简单的方法可以对所有人说:“欢迎大家。”
 

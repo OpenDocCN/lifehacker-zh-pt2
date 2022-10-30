@@ -1,6 +1,6 @@
 # 2020 年 6 月 12-14 日这个周末看什么
 
-> 原文:[https://life hacker . com/what-to-watch-this-weekend-June-12-14-2020-1844003450](https://lifehacker.com/what-to-watch-this-weekend-june-12-14-2020-1844003450)
+> 原文：<https://lifehacker.com/what-to-watch-this-weekend-june-12-14-2020-1844003450>
 
 这个周末你在看什么？自从隔离开始以来的每个下午，我们一直寻找并强调周围最好的观看选择——今晚我们做最后一次。
 

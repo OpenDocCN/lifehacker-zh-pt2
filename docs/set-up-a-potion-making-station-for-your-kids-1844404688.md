@@ -1,6 +1,6 @@
 # 为你的孩子建立一个魔药制造站
 
-> 原文:[https://life hacker . com/set-up-a-trophy-making-station-for-your-kids-1844404688](https://lifehacker.com/set-up-a-potion-making-station-for-your-kids-1844404688)
+> 原文：<https://lifehacker.com/set-up-a-potion-making-station-for-your-kids-1844404688>
 
 现在是夏天。有一种疯狂的病毒在传播。孩子们对常见的谜题、棋盘游戏、书籍和玩具感到厌倦。是时候让他们酿造一些“药水”了。
 

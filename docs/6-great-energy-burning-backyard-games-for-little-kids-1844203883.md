@@ -1,6 +1,6 @@
 # 6 个非常棒的燃烧能量的后院游戏
 
-> 原文:[https://life hacker . com/6-great-energy-burning-backyard-games-for-little-kids-1844203883](https://lifehacker.com/6-great-energy-burning-backyard-games-for-little-kids-1844203883)
+> 原文：<https://lifehacker.com/6-great-energy-burning-backyard-games-for-little-kids-1844203883>
 
 好了，我们到了。我们敲响了七月的大门，新冠肺炎病毒仍在我们的许多社区肆虐。也许你现在已经加入了一些社交距离较远的玩伴，或者也许你开始想出如何安全地去游乐场或朋友的游泳池。如果你还没有跑出后院，为你的小孩进行破坏能量的活动，我会印象深刻。如果你有，这里有一些你可能还没有尝试过的想法。
 

@@ -1,6 +1,6 @@
 # 作家安妮·海伦·彼得森的《如何战胜倦怠》
 
-> 原文:[https://life hacker . com/how-to-fight-burnout-with-writer-Anne-Helen-Petersen-1844743751](https://lifehacker.com/how-to-fight-burnout-with-writer-anne-helen-petersen-1844743751)
+> 原文：<https://lifehacker.com/how-to-fight-burnout-with-writer-anne-helen-petersen-1844743751>
 
 很有可能你(和你周围的几乎所有人)现在正遭受某种程度的倦怠。在工作、各种债务、疫情、金融危机和我们未来的不确定性之间，你很难停下来喘口气。幸运的是，本周我们采访了记者兼作家安妮·海伦·彼得森，看看我们能为此做些什么。
 

@@ -1,6 +1,6 @@
 # 如何看待今天罗伯特·穆勒的证词
 
-> 原文:[https://life hacker . com/how-to-watch-Robert-muellers-证言-今日-1836631624](https://lifehacker.com/how-to-watch-robert-muellers-testimony-today-1836631624)
+> 原文：<https://lifehacker.com/how-to-watch-robert-muellers-testimony-today-1836631624>
 
 大约三个月后，罗伯特·穆勒将于本周三上午在众议院司法委员会和众议院情报委员会面前作证。他的报告审查了特朗普总统、俄罗斯在 2016 年大选期间的干预以及可能的司法障碍。
 

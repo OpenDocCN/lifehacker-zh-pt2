@@ -1,6 +1,6 @@
 # 这个指南系列在 2007 年风靡了互联网
 
-> 原文:[https://life hacker . com/this-how-to-series-trolled-the-internet-in-2007-1831851266](https://lifehacker.com/this-how-to-series-trolled-the-internet-in-2007-1831851266)
+> 原文：<https://lifehacker.com/this-how-to-series-trolled-the-internet-in-2007-1831851266>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-dyii4nndOMM&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-dyii4nndOMM&start=0) 
 

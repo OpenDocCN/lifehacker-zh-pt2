@@ -1,6 +1,6 @@
 # 这就是精神病患者的真实面目
 
-> 原文:[https://life hacker . com/heres-what-a psychiatre-really-is-1830182457](https://lifehacker.com/heres-what-a-psychopath-actually-is-1830182457)
+> 原文：<https://lifehacker.com/heres-what-a-psychopath-actually-is-1830182457>
 
 我们一直都在使用“神经病”这个词，但它到底是什么意思呢？**T3】**
 

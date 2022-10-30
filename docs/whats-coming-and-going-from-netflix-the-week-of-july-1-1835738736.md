@@ -1,6 +1,6 @@
 # 2019 年 7 月 1 日这一周，网飞有哪些活动
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of July-1-1835738736](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-july-1-1835738736)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-july-1-1835738736>
 
 网飞在 7 月 4 日假期给你提供了一个不错的新东西，那就是第三季*奇异事物*(周四)。不是粉丝？看起来这将是《T2》和《T4》的双重特色:谁知道呢？送给你。
 

@@ -1,6 +1,6 @@
 # 用这个免费的应用程序把你的佳能 DSLR 变成一个网络摄像头
 
-> 原文:[https://life hacker . com/turn-your-canon-dslr-to-a-web cam-with this-free-app-1843162662](https://lifehacker.com/turn-your-canon-dslr-into-a-webcam-with-this-free-app-1843162662)
+> 原文：<https://lifehacker.com/turn-your-canon-dslr-into-a-webcam-with-this-free-app-1843162662>
 
 如果你是佳能 DSLR 的专业摄影师(或者只是碰巧身边有一个)，现在你可以使用你的相机作为网络摄像头，这要感谢新推出的 EOS 网络摄像头实用程序测试版应用程序。
 

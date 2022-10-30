@@ -1,6 +1,6 @@
 # 如何让你的特斯拉不被偷
 
-> 原文:[https://life hacker . com/how-to-keep your ' s Tesla-from-getting-1829940649](https://lifehacker.com/how-to-keep-your-tesla-from-getting-stolen-1829940649)
+> 原文：<https://lifehacker.com/how-to-keep-your-tesla-from-getting-stolen-1829940649>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-odG2GX4_cUQ&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-odG2GX4_cUQ&start=0) 
 

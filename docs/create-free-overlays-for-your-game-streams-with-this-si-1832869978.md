@@ -1,6 +1,6 @@
 # 使用此网站为您的游戏流创建免费覆盖
 
-> 原文:[https://life hacker . com/create-free-overlays-for-your-game-streams-with-this-si-1832869978](https://lifehacker.com/create-free-overlays-for-your-game-streams-with-this-si-1832869978)
+> 原文：<https://lifehacker.com/create-free-overlays-for-your-game-streams-with-this-si-1832869978>
 
 尽管我很想尝试一下游戏流，但我总是犹豫不决地跳入 Twitch waters，原因有两个:我的游戏桌面椅子后面没有坚实的背景，这使得除了我的脸之外的一切都变得很棘手，我没有任何整洁的动画可以让所有 10 名观众都参与到我的流中。
 

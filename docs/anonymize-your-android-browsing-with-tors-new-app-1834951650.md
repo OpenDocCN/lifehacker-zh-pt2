@@ -1,6 +1,6 @@
 # 使用 Tor 的新应用程序匿名浏览您的 Android
 
-> 原文:[https://life hacker . com/anonymize-your-Android-browsing-with-tors-new-app-1834951650](https://lifehacker.com/anonymize-your-android-browsing-with-tors-new-app-1834951650)
+> 原文：<https://lifehacker.com/anonymize-your-android-browsing-with-tors-new-app-1834951650>
 
 经过几个月的测试，第一个稳定的、面向安卓 的 [Tor 浏览器的公开版本终于在谷歌 Play 商店上市了。](https://play.google.com/store/apps/details?id=org.torproject.torbrowser) 
 

@@ -1,6 +1,6 @@
 # Capital One 的数据泄露:为什么你需要阅读小字
 
-> 原文:[https://life hacker . com/when-there-a-data-breach-always-read-the-fine-print-1836816788](https://lifehacker.com/when-theres-a-data-breach-always-read-the-fine-print-1836816788)
+> 原文：<https://lifehacker.com/when-theres-a-data-breach-always-read-the-fine-print-1836816788>
 
 Capital One 已经启动了其最近一次数据泄露 的通知流程——影响了美国大约 1 亿人和加拿大另外 600 万人(目前)。不过，如果你碰巧看到了该公司关于这个问题的公告，听起来肯定一切都很好。
 

@@ -1,4 +1,4 @@
-> 原文:[https://deadspin . com/the-night-the-lights-out-1834298070](https://deadspin.com/the-night-the-lights-went-out-1834298070)
+> 原文：<https://deadspin.com/the-night-the-lights-went-out-1834298070>
 
 [*“棋子被人从我这里偷走了*](https://www.youtube.com/watch?v=C9OfBcjyxKY)
 [*或者我敢说……送人了吗？*](https://www.youtube.com/watch?v=C9OfBcjyxKY)T13】

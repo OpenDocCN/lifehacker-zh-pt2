@@ -1,6 +1,6 @@
 # 保存你的最后一张名片
 
-> 原文:[https://life hacker . com/save-your-last-business-card-1839801772](https://lifehacker.com/save-your-last-business-card-1839801772)
+> 原文：<https://lifehacker.com/save-your-last-business-card-1839801772>
 
 你永远也不想成为在社交活动中用完名片的人。你最终会在一张纸上潦草地写下你的电子邮件地址，或者发誓你会记得你新朋友的名字，或者至少记得他们的公司和职位，说实话——你不会的。好吧，给你一个建议:下次你缺少名片的时候，把最后一张存起来。
 

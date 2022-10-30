@@ -1,6 +1,6 @@
 # 如何防止陌生人入侵你的“私人”WhatsApp 群组
 
-> 原文:[https://life hacker . com/how-to-prevent-from-invasing-your-private-wha-1841837490](https://lifehacker.com/how-to-prevent-strangers-from-invading-your-private-wha-1841837490)
+> 原文：<https://lifehacker.com/how-to-prevent-strangers-from-invading-your-private-wha-1841837490>
 
 如果你是 WhatsApp 的大用户，我恳求你:停止公开发布你的群聊链接。告诉你小组里的每个人也要克制这种冲动。只需要一个不太懂技术的用户偶然给任何对搜索运营商有一点点了解的人一个加入你的小组、看到你的成员的电话号码，并引起各种各样的乐趣的方法。
 

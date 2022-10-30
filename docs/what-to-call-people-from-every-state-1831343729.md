@@ -1,6 +1,6 @@
 # 如何称呼来自每个州的人
 
-> 原文:[https://life hacker . com/what-to-call-people-from-every-state-1831343729](https://lifehacker.com/what-to-call-people-from-every-state-1831343729)
+> 原文：<https://lifehacker.com/what-to-call-people-from-every-state-1831343729>
 
 你可能知道几个州名——你称呼某个州的人或事物的词——比如“宾夕法尼亚人”或“德克萨斯人”或者有趣的“密歇根人”你甚至可能知道 [维基百科保留了一份半官方的国家假名](https://en.wikipedia.org/wiki/List_of_demonyms_for_U.S._states_and_territories) ，加上备选选项。但是你知道吗，各州的人名都遵循一个地区模式。
 

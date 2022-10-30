@@ -1,6 +1,6 @@
 # 使用此应用程序玩游戏时学习一门新语言
 
-> 原文:[https://life hacker . com/learn-a-new-language-while-playing-games-using-this-app-1841084808](https://lifehacker.com/learn-a-new-language-while-playing-games-using-this-app-1841084808)
+> 原文：<https://lifehacker.com/learn-a-new-language-while-playing-games-using-this-app-1841084808>
 
 说到学习一门新语言，多林哥语通常是我的首选。我已经到了一个点，我已经确定我可能永远也不会完全流利地使用另一种语言，但是每当我旅行到一个我通常不会说母语的地方，我都会在到达那里之前努力把基础知识记下来。这通常意味着，在任何大型旅行前的几周，我通常会每天花 10-15 分钟在网站上进行培训，这样我就不会完全迷路。
 

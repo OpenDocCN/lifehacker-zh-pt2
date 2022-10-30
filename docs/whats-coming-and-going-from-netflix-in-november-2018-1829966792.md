@@ -1,6 +1,6 @@
 # 2018 年 11 月网飞有什么来往
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-网飞 2018-11-1829966792](https://lifehacker.com/whats-coming-and-going-from-netflix-in-november-2018-1829966792)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-in-november-2018-1829966792>
 
 对网飞来说，11 月是一个稳定的月份。你已经有了新的*希瑞*，新一季的 *MST3K* ，一部之前未完成的奥逊·威尔斯电影，以及经典的*《英国病人》*、*《心灵捕手》*和*《第三种亲密接触》*。该网站只是失去了几部热门电影。这是 10 月份从网飞进出的所有东西。
 

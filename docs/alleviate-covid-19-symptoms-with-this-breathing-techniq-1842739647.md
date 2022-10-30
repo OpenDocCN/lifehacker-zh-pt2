@@ -1,6 +1,6 @@
 # 用这种呼吸技巧缓解新冠肺炎症状
 
-> 原文:[https://life hacker . com/缓解-新冠肺炎-症状-用这个呼吸-技术-1842739647](https://lifehacker.com/alleviate-covid-19-symptoms-with-this-breathing-techniq-1842739647)
+> 原文：<https://lifehacker.com/alleviate-covid-19-symptoms-with-this-breathing-techniq-1842739647>
 
 你可能已经看过下面的 [视频](https://www.youtube.com/watch?v=HwLzAdriec0&amp=&feature=youtu.be) 关于新冠肺炎患者的一种呼吸技巧。在这段视频中，英国皇后医院的医生 Sarfaraz Munshi 展示了一种帮助新冠肺炎患者的技术。
 

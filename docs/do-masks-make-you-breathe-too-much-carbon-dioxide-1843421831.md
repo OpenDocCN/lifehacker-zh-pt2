@@ -1,6 +1,6 @@
 # 口罩会让你吸入过多的二氧化碳吗？
 
-> 原文:[https://life hacker . com/do-masks-make-you-breathe-more-carbon-oxide-1843421831](https://lifehacker.com/do-masks-make-you-breathe-too-much-carbon-dioxide-1843421831)
+> 原文：<https://lifehacker.com/do-masks-make-you-breathe-too-much-carbon-dioxide-1843421831>
 
 社交媒体上分享的一张图片显示，高碳酸血症或吸入过多二氧化碳会导致嗜睡和头晕等症状。这话没错， [这个形象来自维基百科这里的](https://commons.wikimedia.org/wiki/File:Main_symptoms_of_carbon_dioxide_toxicity.png) 。*不真实的是高碳酸血症和戴口罩之间隐含的关系。*
 

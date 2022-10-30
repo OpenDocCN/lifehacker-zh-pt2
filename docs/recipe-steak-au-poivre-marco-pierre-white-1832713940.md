@@ -1,6 +1,6 @@
 # 一份好得难以置信的牛排食谱？
 
-> 原文:[https://the take out . com/recipe-steak-au-poi vre-Marco-pierre-white-1832713940](https://thetakeout.com/recipe-steak-au-poivre-marco-pierre-white-1832713940)
+> 原文：<https://thetakeout.com/recipe-steak-au-poivre-marco-pierre-white-1832713940>
 
 马尔科·皮埃尔·怀特，如果你从未听说过这个名字，是 O.G .坏男孩英国厨师，一个臭名昭著的打破年轻的戈登·拉姆齐并让他流泪的人。 和拉姆齐一样，怀特以暴躁的举止闻名，但也是英国最伟大的厨师之一:1994 年，怀特是第一位获得米其林三星的英国厨师，拉姆齐本人在 2001 年也获得了这一荣誉。
 

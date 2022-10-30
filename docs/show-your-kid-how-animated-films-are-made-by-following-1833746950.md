@@ -1,6 +1,6 @@
 # 通过在社交媒体上关注艺术家，向你的孩子展示动画电影是如何制作的
 
-> 原文:[https://life hacker . com/show-your-kid-how-animated-films-make-by-following-1833746950](https://lifehacker.com/show-your-kid-how-animated-films-are-made-by-following-1833746950)
+> 原文：<https://lifehacker.com/show-your-kid-how-animated-films-are-made-by-following-1833746950>
 
 在推特上，西蒙·威廉森给了我们一个 [精彩的综述](https://twitter.com/simonw/status/1077737871602110466) 来自*蜘蛛侠：平行宇宙的幕后内容，*直接来自艺术家们自己。(感谢 [Kottke](https://kottke.org/19/03/how-animators-created-the-spider-verse) 的提示。)两个想法:1)索尼允许这种程度的透明度值得称赞，2)每一个痴迷于《蜘蛛侠》的孩子*都需要*看到这一点。
 

@@ -1,6 +1,6 @@
 # 您的孩子可能没有正确使用哮喘吸入器
 
-> 原文:[https://life hacker . com/your-child-may-be-use-their-asthma-Israel-correc-1833205310](https://lifehacker.com/your-child-might-be-using-their-asthma-inhaler-incorrec-1833205310)
+> 原文：<https://lifehacker.com/your-child-might-be-using-their-asthma-inhaler-incorrec-1833205310>
 
 正确使用哮喘吸入器是一个棘手的多步骤过程。如果你做得不正确，你就不能获得药物的全部益处，有可能使哮喘恶化，或者使药物看起来不起作用。
 

@@ -1,6 +1,6 @@
 # 如何隔离，萨曼莎·艾尔比
 
-> 原文:[https://life hacker . com/how-to-quarantine-with-Samantha-irby-1843224710](https://lifehacker.com/how-to-quarantine-with-samantha-irby-1843224710)
+> 原文：<https://lifehacker.com/how-to-quarantine-with-samantha-irby-1843224710>
 
 喜剧演员兼作家萨曼莎·艾尔比本周加入我们的《升级》节目，谈论如何让自己适应自我隔离。这包括找合适的电视节目来狂看(她有一两个推荐)，找合适的书来逃避，找合适的食物来烹饪，当你蜷缩在家里的时候。山姆是《纽约时报》*畅销书《T3】 [*的作者我们在现实生活中从未谋面*](https://www.amazon.com/gp/product/B01N31X4WA/ref=dbs_a_def_rwt_bibl_vppi_i1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-quarantine-with-samantha-irby-1843224710&asc_source=&tag=kinjalifehackerlink-20)[*肉肉的*](https://www.amazon.com/gp/product/B01N31X4WA/ref=dbs_a_def_rwt_bibl_vppi_i1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-quarantine-with-samantha-irby-1843224710&asc_source=&tag=kinjalifehackerlink-20) ，还有最近的 [*哇，不用谢*](https://www.amazon.com/Wow-No-Thank-You-Essays/dp/0525563482?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-quarantine-with-samantha-irby-1843224710&asc_source=&tag=kinjalifehackerlink-20) 。*
 

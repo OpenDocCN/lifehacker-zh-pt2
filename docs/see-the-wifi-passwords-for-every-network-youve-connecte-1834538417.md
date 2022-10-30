@@ -1,6 +1,6 @@
 # 查看你使用此 Android 应用连接到的每个网络的 WiFi 密码
 
-> 原文:[https://life hacker . com/see-the-wifi-passwords-for-every-network-youve-connect-1834538417](https://lifehacker.com/see-the-wifi-passwords-for-every-network-youve-connecte-1834538417)
+> 原文：<https://lifehacker.com/see-the-wifi-passwords-for-every-network-youve-connecte-1834538417>
 
 我比大多数人更倾向于更换电子产品，这意味着当我带着笔记本电脑或平板电脑去拜访朋友时，很可能不是我上次去的那台笔记本电脑或平板电脑。
 

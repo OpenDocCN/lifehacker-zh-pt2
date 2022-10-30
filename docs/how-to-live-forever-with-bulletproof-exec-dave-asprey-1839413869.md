@@ -1,6 +1,6 @@
 # 如何长生不老，防弹执行戴夫·阿斯普雷
 
-> 原文:[https://life hacker . com/how-to-live-forever-with-防弹-exec-Dave-asprey-1839413869](https://lifehacker.com/how-to-live-forever-with-bulletproof-exec-dave-asprey-1839413869)
+> 原文：<https://lifehacker.com/how-to-live-forever-with-bulletproof-exec-dave-asprey-1839413869>
 
 我们能做些什么来活得更长、更健康？防弹咖啡创始人戴夫·阿斯普雷加入到我们的升级节目中来，谈论他所采用的做法，他相信这些做法将帮助我们所有人延长寿命。听听他谈论我们可以抵御衰老的令人惊讶的方法，他在他的新书中提到了这些方法， [【超级人类:延缓衰老甚至永生](https://www.amazon.com/Super-Human-Bulletproof-Backward-Forever/dp/0062882821?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-live-forever-with-bulletproof-exec-dave-asprey-1839413869&asc_source=&tag=kinjalifehackerlink-20) 的防弹计划。
 

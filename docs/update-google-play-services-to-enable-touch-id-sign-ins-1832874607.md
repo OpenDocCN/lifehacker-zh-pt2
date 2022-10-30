@@ -1,6 +1,6 @@
 # 更新 Google Play 服务，为网站启用 Touch-ID 登录
 
-> 原文:[https://life hacker . com/update-Google-play-services-to-enable-touch-id-sign-ins-1832874607](https://lifehacker.com/update-google-play-services-to-enable-touch-id-sign-ins-1832874607)
+> 原文：<https://lifehacker.com/update-google-play-services-to-enable-touch-id-sign-ins-1832874607>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-5ZIQabDrnT0&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-5ZIQabDrnT0&start=0) 
 

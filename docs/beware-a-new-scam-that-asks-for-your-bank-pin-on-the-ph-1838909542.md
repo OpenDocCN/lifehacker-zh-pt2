@@ -1,6 +1,6 @@
 # 小心一个新的骗局，它会在电话上询问你的银行密码
 
-> 原文:[https://life hacker . com/当心一个新的骗局，它要求你的银行密码在 ph-1838909542](https://lifehacker.com/beware-a-new-scam-that-asks-for-your-bank-pin-on-the-ph-1838909542)
+> 原文：<https://lifehacker.com/beware-a-new-scam-that-asks-for-your-bank-pin-on-the-ph-1838909542>
 
 陷入金融网络钓鱼骗局有多容易？问问推特用户 [彼得·冈斯特](https://twitter.com/DigitalLawyer/status/1181348689756864513) 就知道了。他写道，他面临着“迄今为止我经历的最可信的网络钓鱼企图”，概述了几乎骗过他的步骤。他的遭遇提醒人们，即使是最谨慎的人也可能成为越来越老练的骗子的目标。
 

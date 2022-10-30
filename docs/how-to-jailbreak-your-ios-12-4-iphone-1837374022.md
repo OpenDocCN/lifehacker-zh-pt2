@@ -1,6 +1,6 @@
 # 如何越狱你的 iOS 12.4 iPhone 或 iPad
 
-> 原文:[https://life hacker . com/how-to-jailbreak-your-IOs-12-4-iphone-1837374022](https://lifehacker.com/how-to-jailbreak-your-ios-12-4-iphone-1837374022)
+> 原文：<https://lifehacker.com/how-to-jailbreak-your-ios-12-4-iphone-1837374022>
 
 越狱你的 iPhone——取消苹果的限制，阻止你在你的设备上安装任何你想要的应用程序，或者扰乱苹果锁定的设置——并不适合所有人。一开始这可能是一个有风险的过程，这样做会使你的保修失效，但这是一个延长旧设备或你不日常使用的东西的寿命的好方法。
 

@@ -1,6 +1,6 @@
 # 如果你的航班延误了，从汉堡王免费得到一个不可能的汉堡
 
-> 原文:[https://life hacker . com/get-a-free-a-impossible-burger-from-burger-king-if-your-f-1840558802](https://lifehacker.com/get-a-free-impossible-burger-from-burger-king-if-your-f-1840558802)
+> 原文：<https://lifehacker.com/get-a-free-impossible-burger-from-burger-king-if-your-f-1840558802>
 
 如果你从现在到年底的任何时候去机场，很有可能会遇到延误，至少在你的一段旅程中。一年中最繁忙的旅行时间也恰好与一年中最冷的时间重合，这意味着从天气到行李放错地方的一切都可能会减缓您的旅行。如果你真的耽搁了，汉堡王提供了一个帮助减轻痛苦的交易:免费的(植物性的)汉堡。
 

@@ -1,6 +1,6 @@
 # 从 YouTube 上为孩子们获取有趣的倒计时器
 
-> 原文:[https://life hacker . com/get-fun-count-timers-for-kids-from-YouTube-1835328775](https://lifehacker.com/get-fun-countdown-timers-for-kids-from-youtube-1835328775)
+> 原文：<https://lifehacker.com/get-fun-countdown-timers-for-kids-from-youtube-1835328775>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-xTczn5RUgnk&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-xTczn5RUgnk&start=0) 
 

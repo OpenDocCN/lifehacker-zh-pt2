@@ -1,6 +1,6 @@
 # 不想额外付包装费？假装怀孕
 
-> 原文:[https://life hacker . com/don-want-to-pay-extra-bag-fees-fake-a-contemption-1839500751](https://lifehacker.com/dont-want-to-pay-extra-bag-fees-fake-a-pregnancy-1839500751)
+> 原文：<https://lifehacker.com/dont-want-to-pay-extra-bag-fees-fake-a-pregnancy-1839500751>
 
 我不确定我是否会宽恕这种做法，但是既然现在是万圣节，我们脑子里都在想服装，让我们来看看这个 DIY 策略，以避免支付额外的航空行李费。
 

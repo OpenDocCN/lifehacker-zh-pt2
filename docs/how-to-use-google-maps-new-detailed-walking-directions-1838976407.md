@@ -1,6 +1,6 @@
 # 如何使用谷歌地图新的详细步行路线
 
-> 原文:[https://life hacker . com/how-to-use-Google-maps-new-detailed-walking-directions-1838976407](https://lifehacker.com/how-to-use-google-maps-new-detailed-walking-directions-1838976407)
+> 原文：<https://lifehacker.com/how-to-use-google-maps-new-detailed-walking-directions-1838976407>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-7PEbPYy56XI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-7PEbPYy56XI&start=0) 
 

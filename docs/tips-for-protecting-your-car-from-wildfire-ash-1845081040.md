@@ -1,6 +1,6 @@
 # 保护你的汽车免受野火灰烬伤害的小贴士
 
-> 原文:[https://jalopnik . com/tips-for-protecting-your-car-from wild fire-ash-1845081040](https://jalopnik.com/tips-for-protecting-your-car-from-wildfire-ash-1845081040)
+> 原文：<https://jalopnik.com/tips-for-protecting-your-car-from-wildfire-ash-1845081040>
 
 对于现在在美国各地停车的许多人来说，一个令人悲伤的现实是他们的汽车被西部野火的灰烬覆盖。显然，对人类和动物的身体威胁更为紧迫，但如果你正受到火灾的影响，并有足够的精神带宽去关心你汽车的油漆，你可能会欣赏一些可以让生活更轻松的提示。
 

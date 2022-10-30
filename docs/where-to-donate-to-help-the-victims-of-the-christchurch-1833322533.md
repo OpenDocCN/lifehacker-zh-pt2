@@ -1,6 +1,6 @@
 # 向克赖斯特彻奇枪击案的受害者捐款
 
-> 原文:[https://life hacker . com/where-to-donate-to-help-the-victors-of-the-Christ church-1833322533](https://lifehacker.com/where-to-donate-to-help-the-victims-of-the-christchurch-1833322533)
+> 原文：<https://lifehacker.com/where-to-donate-to-help-the-victims-of-the-christchurch-1833322533>
 
 新西兰克赖斯特彻奇市发生毁灭性的恐怖袭击，造成 49 人死亡。以下是你如何帮助受此次大规模枪击事件影响的社区。
 

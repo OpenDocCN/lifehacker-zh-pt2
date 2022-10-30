@@ -1,6 +1,6 @@
 # 试试这个可定制的口袋妖怪
 
-> 原文:[https://life hacker . com/try-this-customized-pokedex-1844520738](https://lifehacker.com/try-this-customizable-pokedex-1844520738)
+> 原文：<https://lifehacker.com/try-this-customizable-pokedex-1844520738>
 
 尽管你可能很想知道，但你不可能掌握目前存在的近 900 个神奇宝贝的所有数据。有时你需要快速查找一个统计数据，有时你想让自己沉浸在一堆能力和弱点中。无论哪种方式，每个神奇宝贝粉丝都必须快速方便地获得神奇宝贝。
 

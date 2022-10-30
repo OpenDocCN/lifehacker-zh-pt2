@@ -1,6 +1,6 @@
 # 2019 年 10 月 21 日这一周，网飞有哪些来往
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of the-October-1839056459](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-october-1839056459)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-october-1839056459>
 
 我知道娱乐圈的情况很糟糕。这一季的接班工作已经完成。*小丑*据说很可怕。我们已经连续几周没有网飞的劣质产品了。但是振作起来，室内的孩子们！这周我们有一堆有前途的可看的，我敢打赌至少有一个是你喜欢的。(剧透警告:*杰克骑士*归来。)
 

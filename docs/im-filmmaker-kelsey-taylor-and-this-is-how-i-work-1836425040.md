@@ -1,4 +1,4 @@
-> 原文:[https://life hacker . com/im-电影制作人-凯尔西-泰勒-这就是我的工作方式-1836425040](https://lifehacker.com/im-filmmaker-kelsey-taylor-and-this-is-how-i-work-1836425040)
+> 原文：<https://lifehacker.com/im-filmmaker-kelsey-taylor-and-this-is-how-i-work-1836425040>
 
 为纪念第一部*外星人*电影四十周年，20 世纪福克斯(通过工作室平台 [【通加尔】](https://tongal.com/) ) 委托拍摄了六部以*外星人*宇宙为背景的新短片。最受欢迎的是凯尔西·泰勒导演和制作的《外星人:标本》。泰勒还参与了 CollegeHumor、1 分钟恐怖片和她自己的几部短片的制作。我们与泰勒谈论了她在片场、编剧室和后期制作中的过程，并看到了《标本》的首映时间表。在她的第一部故事片上映前好好了解一下她。
 

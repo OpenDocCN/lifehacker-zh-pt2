@@ -1,6 +1,6 @@
 # 我问猫行为专家，为什么我的猫对我可笑的游戏椅如此着迷
 
-> 原文:[https://kotaku . com/I-asked-cat-behavior-experts-why-my-cat-is-wit-1844715771](https://kotaku.com/i-asked-cat-behavior-experts-why-my-cat-is-obsessed-wit-1844715771)
+> 原文：<https://kotaku.com/i-asked-cat-behavior-experts-why-my-cat-is-obsessed-wit-1844715771>
 
 上个月，我收到了一个永远改变了我生活的包裹。我立刻知道了里面是什么，也许是因为这个光滑的黑色盒子重达近 100 磅，而我在几个月前已经订购了一把难看的粉色游戏椅 。当我撬开椅子上的浮雕背甲时，我们的一只猫 Graymalkin 跳了进来，躺在未组装的椅子坐垫上。事实证明，这只是一场更大斗争的开始。
 

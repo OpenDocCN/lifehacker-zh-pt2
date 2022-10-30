@@ -1,6 +1,6 @@
 # 2019 年 9 月 30 日这一周，网飞将会发生什么
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of-septemb-1838366226](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-septemb-1838366226)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-septemb-1838366226>
 
 改编自丹尼斯·刘(Dennis Liu)和杰森·皮珀堡(Jason Piperburg)的同名漫画，《抚养迪翁》(Raising Dion)(星期五)是一部拥有超能力的儿童系列片，主演，迈克尔·B·乔丹和一大堆有趣的 CGI。MBJ 也是执行制片人，所以你可能会想看看这部电影，特别是如果你还在为网飞和漫威的分手而哭泣，需要一些超级英雄来填补空缺的话。
 

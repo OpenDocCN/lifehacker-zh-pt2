@@ -1,6 +1,6 @@
 # 2020 年 1 月网飞看什么
 
-> 原文:[https://life hacker . com/2020 年 1 月网飞看什么-1840367054](https://lifehacker.com/what-to-watch-on-netflix-in-january-2020-1840367054)
+> 原文：<https://lifehacker.com/what-to-watch-on-netflix-in-january-2020-1840367054>
 
 下个月的《网飞》中，杰克骑士和 T2 的安妮都将结束。*萨布丽娜*，*性教育*，*嘻哈进化*，*调查者*，*格蕾丝和弗兰基*回归。有一部新的泰勒·佩里电影，还有亚历克斯·费尔南德斯、福琼·费姆斯特和维尔·达斯的喜剧特别节目。德国有自己的*搞定了！*
 

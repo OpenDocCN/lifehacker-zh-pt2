@@ -1,6 +1,6 @@
 # 你实际上不需要坐直
 
-> 原文:[https://life hacker . com/you-do-not-actually-have-to-sit-up-straight-1837870489](https://lifehacker.com/you-dont-actually-have-to-sit-up-straight-1837870489)
+> 原文：<https://lifehacker.com/you-dont-actually-have-to-sit-up-straight-1837870489>
 
 一组物理治疗师 [最近在期刊文章](https://www.jospt.org/doi/abs/10.2519/jospt.2019.0610) 中澄清，背痛不是由坐姿或站姿不当引起的。我们经常谈论姿势，好像它是一件我们需要正确表现的事情，但这不是背痛的证据实际告诉我们的。
 

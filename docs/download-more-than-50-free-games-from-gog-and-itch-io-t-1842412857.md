@@ -1,6 +1,6 @@
 # 本月从 GOG 和 Itch.io 下载超过 50 款免费游戏
 
-> 原文:[https://life hacker . com/download-than-50-free-games-from-Gog-and-itch-io-t-1842412857](https://lifehacker.com/download-more-than-50-free-games-from-gog-and-itch-io-t-1842412857)
+> 原文：<https://lifehacker.com/download-more-than-50-free-games-from-gog-and-itch-io-t-1842412857>
 
 这是扩展你的视野和玩更多电子游戏的好时机。[【GOG】](https://www.gog.com/)——该平台前身为 Good【Ol’Games——和独立游戏商店 [Itch.io](https://itch.io/) 都在开展“呆在家里”的促销活动，免费赠送几十款游戏，作为其平台上更大销售额的一部分。GOG 的 [免费游戏](https://www.gog.com/partner/stay_at_home) 是其当前“春季特卖”的一部分，而 Itch.io 的 [免费和打折游戏](https://itch.io/c/757294/games-to-help-you-stay-inside) 则是对当前留在室内需求的回应。
 

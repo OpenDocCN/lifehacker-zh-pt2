@@ -1,6 +1,6 @@
 # 2019 年 8 月 5 日这一周，网飞有哪些活动
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of the-August-1836887771](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-august-1836887771)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-august-1836887771>
 
 我在倒数秒钟，直到我能看完《家庭》这部纪录片，这部纪录片讲述了华盛顿的秘密部门，其影响力渗透到政府的最高层。该组织每年都会举办全国祈祷早餐会，但除此之外都在暗中运作，如果有一件事我很喜欢的话，那就是一个地下组织秘密管理着这个世界，这种行为无孔不入，他们不得不制作一部关于它的恐怖纪录片。
 

@@ -1,6 +1,6 @@
 # 以下是 2019 年 10 月的黄金阵容 Xbox 游戏
 
-> 原文:[https://kotaku . com/heres-2019 年 10 月 s-Xbox-games-with gold-line-1838485200](https://kotaku.com/heres-october-2019s-xbox-games-with-gold-lineup-1838485200)
+> 原文：<https://kotaku.com/heres-october-2019s-xbox-games-with-gold-lineup-1838485200>
 
 十月份的 Xbox Live 黄金游戏是恐怖、动作和适合家庭的的结合。一如既往，只有当你拥有有效的 Xbox Live 黄金订阅时，它们才是免费的。
 

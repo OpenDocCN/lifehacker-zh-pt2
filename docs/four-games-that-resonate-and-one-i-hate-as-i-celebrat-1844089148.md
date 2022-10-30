@@ -1,4 +1,4 @@
-> 原文:[https://kotaku . com/four-games-the-resonant-and-one-I-hate-as-I-celebrat-1844089148](https://kotaku.com/four-games-that-resonate-and-one-i-hate-as-i-celebrat-1844089148)
+> 原文：<https://kotaku.com/four-games-that-resonate-and-one-i-hate-as-i-celebrat-1844089148>
 
 六月节，曾经是庆祝黑人自由的一个默默无闻的非正式节日，现在比以往任何时候都要盛大。它是为了纪念 1865 年 6 月 19 日，最后一个邦联州德克萨斯州的最后一批被奴役的人获得自由。今天，在今年的 6 月 10 日，世界各国正在清算反黑人的历史，纠正他们早就应该解决的错误。当我们把奴役者的雕像扔进河里，从我们的法院和公共场所清除白人至上的偶像时——当我们在我们的离线生活中考虑白人至上并庆祝黑人自由时——我的想法转向了我们也可以在我们的数字生活中这样做的所有方式。
 

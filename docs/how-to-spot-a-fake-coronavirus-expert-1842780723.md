@@ -1,6 +1,6 @@
 # 如何识别假冠状病毒专家
 
-> 原文:[https://life hacker . com/how-to-spot-a-fake-coronavirus-expert-1842780723](https://lifehacker.com/how-to-spot-a-fake-coronavirus-expert-1842780723)
+> 原文：<https://lifehacker.com/how-to-spot-a-fake-coronavirus-expert-1842780723>
 
 疫情的特点是:它无处不在。每个人都想读一些让人安心的东西。每个人都想说些有用的话。每个人都认为他们的观点很重要。我们大多数人应该闭嘴，这样我们就能听到真正的专家讲话。
 

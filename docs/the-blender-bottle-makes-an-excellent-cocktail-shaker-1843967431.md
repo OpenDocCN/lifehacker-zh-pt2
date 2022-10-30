@@ -1,6 +1,6 @@
 # 搅拌瓶是一个很好的鸡尾酒调酒器
 
-> 原文:[https://life hacker . com/the-blender-bottle-make-a-excellent-cocktail-shaker-1843967431](https://lifehacker.com/the-blender-bottle-makes-an-excellent-cocktail-shaker-1843967431)
+> 原文：<https://lifehacker.com/the-blender-bottle-makes-an-excellent-cocktail-shaker-1843967431>
 
 果汁瓶是“健康人”拥有和使用的物品，所以我从来没有花太多时间去想它。但是塑料瓶里的那个小搅拌球注定不仅仅是混合蛋白粉——那个搅拌球是为了酒精的伟大而制造的。
 

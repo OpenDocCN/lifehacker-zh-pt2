@@ -1,6 +1,6 @@
 # 如何在流沙中生存
 
-> 原文:[https://lifehacker.com/how-to-survive-quicksand-1833226335](https://lifehacker.com/how-to-survive-quicksand-1833226335)
+> 原文：<https://lifehacker.com/how-to-survive-quicksand-1833226335>
 
 作为一个孩子，我知道流沙的两件事:对于丛林中的卡通人物来说，这是一个的危险；在现实生活中，只有当你把它当成固体时，它才是粘性的。假装是水，你就能游出来。
 

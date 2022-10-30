@@ -1,6 +1,6 @@
 # 黑客还是怪人:艾米·克洛布查尔的沙拉梳
 
-> 原文:[https://life hacker . com/hack-or-wack-Amy-klobuchars-salad-comb-1832826957](https://lifehacker.com/hack-or-wack-amy-klobuchars-salad-comb-1832826957)
+> 原文：<https://lifehacker.com/hack-or-wack-amy-klobuchars-salad-comb-1832826957>
 
 又是一天，又是一场病毒式的黑客攻击。
 

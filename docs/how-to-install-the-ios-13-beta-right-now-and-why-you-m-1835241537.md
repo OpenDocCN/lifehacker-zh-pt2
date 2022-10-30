@@ -1,6 +1,6 @@
 # 如何立即安装 iOS 13 测试版(以及为什么你可能想要等待)
 
-> 原文:[https://life hacker . com/how-to-install-the-IOs-13-beta-right-now-and-why-you-m-1835241537](https://lifehacker.com/how-to-install-the-ios-13-beta-right-now-and-why-you-m-1835241537)
+> 原文：<https://lifehacker.com/how-to-install-the-ios-13-beta-right-now-and-why-you-m-1835241537>
 
 本周， [苹果宣布下一个版本的 iOS](https://lifehacker.com/all-the-big-ios-13-changes-apple-announced-at-wwdc-19-1835216984) 正在开发中，他们将为 iPhone 的操作系统增加许多有趣的新功能。新版本 iOS 13 将包括大的新增功能，比如使用 Face ID 登录网站的功能，以及小的功能，比如好看的黑暗模式。当 iOS 13 今年秋天向所有人推出时，你会看到很多很酷的变化。
 

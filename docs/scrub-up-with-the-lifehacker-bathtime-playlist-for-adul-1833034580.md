@@ -1,6 +1,6 @@
 # 用 Lifehacker 成人洗澡时间播放列表擦洗
 
-> 原文:[https://life hacker . com/scrub-up-with-the-life hacker-bath time-playlist-for-adul-1833034580](https://lifehacker.com/scrub-up-with-the-lifehacker-bathtime-playlist-for-adul-1833034580)
+> 原文：<https://lifehacker.com/scrub-up-with-the-lifehacker-bathtime-playlist-for-adul-1833034580>
 
 当我的宝贝女儿在浴缸里变得暴躁时，我把 TLC 的“无手术服”放在 Spotify 上，我知道我有一些特别的东西要与世界分享。有大量的儿童洗澡歌曲，但大多数都很乏味。所以我为成年人(以及不介意一些脏话和性暗示的任何年龄的人)做了一个洗澡时间播放列表。
 

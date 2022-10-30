@@ -1,6 +1,6 @@
 # 如何解决每个常见的拉链问题
 
-> 原文:[https://life hacker . com/how-to-fix-every-common-zipper-problem-5975700](https://lifehacker.com/how-to-fix-every-common-zipper-problem-5975700)
+> 原文：<https://lifehacker.com/how-to-fix-every-common-zipper-problem-5975700>
 
 自从拉链被发明以来，它的变化并不大，我们都遇到的问题也是如此。从卡住的拉链到咬不紧的牙齿，以下是如何解决你在使用拉链时会遇到的所有问题。
 

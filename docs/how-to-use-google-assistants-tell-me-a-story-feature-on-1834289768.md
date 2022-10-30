@@ -1,6 +1,6 @@
 # 如何在智能手机上使用谷歌助手的“给我讲个故事”功能
 
-> 原文:[https://life hacker . com/how-to-use-Google-assistants-tell-me-a-story-feature-on-1834289768](https://lifehacker.com/how-to-use-google-assistants-tell-me-a-story-feature-on-1834289768)
+> 原文：<https://lifehacker.com/how-to-use-google-assistants-tell-me-a-story-feature-on-1834289768>
 
 从今天开始，你可以将谷歌助手的“给我讲个故事”功能带在身边。
 

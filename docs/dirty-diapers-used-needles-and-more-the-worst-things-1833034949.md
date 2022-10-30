@@ -1,6 +1,6 @@
 # 脏尿布、用过的针头等等:美国人试图回收的最糟糕的东西
 
-> 原文:[https://gizmodo . com/dirty-diapers-used-needles-and-more-the-worst-things-1833034949](https://gizmodo.com/dirty-diapers-used-needles-and-more-the-worst-things-1833034949)
+> 原文：<https://gizmodo.com/dirty-diapers-used-needles-and-more-the-worst-things-1833034949>
 
 回收 [遇到麻烦](https://earther.gizmodo.com/recycling-is-broken-1833063010) 。这有很多原因，其中最主要的是中国 颁布的一系列关于回收商品 [的新禁令和限制。但是还有另一个相关的原因，为什么这么多美国人试图回收的东西现在被送进了焚化炉或垃圾填埋场。](https://earther.gizmodo.com/chinas-plastic-waste-ban-will-create-a-huge-issue-for-t-1826991472) 
 

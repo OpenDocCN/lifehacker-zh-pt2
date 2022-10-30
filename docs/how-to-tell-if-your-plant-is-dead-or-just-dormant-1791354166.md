@@ -1,6 +1,6 @@
 # 如何判断你的植物是死了还是休眠了
 
-> 原文:[https://life hacker . com/how-to-tell-if-your-plant-is dead-or just-dormant-1791354166](https://lifehacker.com/how-to-tell-if-your-plant-is-dead-or-just-dormant-1791354166)
+> 原文：<https://lifehacker.com/how-to-tell-if-your-plant-is-dead-or-just-dormant-1791354166>
 
 在过去的几年里，室内植物从被动的家居装饰物品变成了一些人近乎痴迷的，与小狗和日落的图片一起充斥着我们的社交媒体。如果你是一个花大钱买植物的人，你可能想成为一个好的(抱歉)，确保你的盆栽植物繁荣昌盛——或者至少活下去。
 

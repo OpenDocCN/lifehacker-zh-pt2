@@ -1,6 +1,6 @@
 # 看看埃尔莫的疫情“游戏日”特别节目
 
-> 原文:[https://life hacker . com/check-out-elmos-疫情-play date-special-1842836663](https://lifehacker.com/check-out-elmos-pandemic-playdate-special-1842836663)
+> 原文：<https://lifehacker.com/check-out-elmos-pandemic-playdate-special-1842836663>
 
 对于我们当中最成熟、最理性、最清醒的人来说，疫情是一个令人恐惧和困惑的时代。想象一下这对蹒跚学步的孩子来说是多么不和谐，他们过去常常去托儿所、奶奶家和图书馆，而现在...每个人都生活在电脑里。幸运的是，他们还有埃尔莫。
 

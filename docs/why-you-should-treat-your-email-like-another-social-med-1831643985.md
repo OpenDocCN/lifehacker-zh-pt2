@@ -1,6 +1,6 @@
 # 为什么你应该像对待另一个社交媒体源一样对待你的电子邮件
 
-> 原文:[https://life hacker . com/why-you-should-treat-you-email-like-another-social-med-1831643985](https://lifehacker.com/why-you-should-treat-your-email-like-another-social-med-1831643985)
+> 原文：<https://lifehacker.com/why-you-should-treat-your-email-like-another-social-med-1831643985>
 
 如果你有 [一个面向公众的电子邮件地址](https://lifehacker.com/how-to-find-or-guess-anyones-email-address-1829336997#_ga=2.264657677.3674868.1546966923-144977662.1506607947) ，费力地处理收件箱里不相关的公关宣传本身就是一份全职工作。一天中没有足够的时间来跟上你收到的每一条信息，所以不要因为落后而自责，而是拥抱混乱。
 

@@ -1,6 +1,6 @@
 # 为什么 Zappos 数据泄露和解率如此之低
 
-> 原文:[https://life hacker . com/why-the-zappos-data-breach-settlement-is-so-offensive-1839164880](https://lifehacker.com/why-the-zappos-data-breach-settlement-is-so-offensive-1839164880)
+> 原文：<https://lifehacker.com/why-the-zappos-data-breach-settlement-is-so-offensive-1839164880>
 
 你还记得亚马逊旗下的在线鞋店 Zappos[在 2012 年](https://lifehacker.com/zappos-passwords-hacked-what-you-need-to-do-right-now-5876462) 发生数据泄露，泄露了 2400 万顾客的用户名和密码吗？不，从那以后，在所有其他数据泄露事件中，你已经忘记了它:Equifax、雅虎、万豪等等。直到今天，当集体诉讼管理人发出通知，这似乎是有史以来最令人失望的解决方案。你认为从 Equifax 得到几块钱 不好吗？下次在 Zappos 购物打九折怎么样？
 

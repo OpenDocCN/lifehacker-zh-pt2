@@ -1,6 +1,6 @@
 # 3 月 27 日至 29 日，本周末将播放哪些内容
 
-> 原文:[https://life hacker . com/what-to-stream-this-weekend-March-27-29-1842530471](https://lifehacker.com/what-to-stream-this-weekend-march-27-29-1842530471)
+> 原文：<https://lifehacker.com/what-to-stream-this-weekend-march-27-29-1842530471>
 
 正在寻找这个周末不用离开沙发就可以做的事情吗？
 

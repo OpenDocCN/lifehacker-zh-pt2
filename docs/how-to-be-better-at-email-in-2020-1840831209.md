@@ -1,6 +1,6 @@
 # 如何在 2020 年更擅长电子邮件
 
-> 原文:[https://life hacker . com/how-to-be-better-in-email-2020-1840831209](https://lifehacker.com/how-to-be-better-at-email-in-2020-1840831209)
+> 原文：<https://lifehacker.com/how-to-be-better-at-email-in-2020-1840831209>
 
 又是新的一年——如果你仍在处理一个装满 2019 年电子邮件的收件箱，这里有三个技巧可以帮助你在 2020 年更好地处理电子邮件。
 

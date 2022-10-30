@@ -1,6 +1,6 @@
 # 在 iOS 和 Android 上免费获得令人惊叹的“Bloons TD 6”
 
-> 原文:[https://life hacker . com/get-the-amazing-bloons-TD-6-for-free-on-IOs-and-Android-1834985196](https://lifehacker.com/get-the-amazing-bloons-td-6-for-free-on-ios-and-android-1834985196)
+> 原文：<https://lifehacker.com/get-the-amazing-bloons-td-6-for-free-on-ios-and-android-1834985196>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-hiwM-U6ifG0&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-hiwM-U6ifG0&start=0) 
 

@@ -1,6 +1,6 @@
 # 如何获得更强的硬拉和悬挂支撑抓地力
 
-> 原文:[https://life hacker . com/how-to-get-a-strong-support-grip-for-deadlifes-and-ha-1841519693](https://lifehacker.com/how-to-get-a-stronger-support-grip-for-deadlifts-and-ha-1841519693)
+> 原文：<https://lifehacker.com/how-to-get-a-stronger-support-grip-for-deadlifts-and-ha-1841519693>
 
 当你第一次开始做硬拉时，你可能会想它们对你的背部、臀部和腿部有多难。但是一旦动作成为第二天性，另一个身体部位就开始发挥作用了:你的手。一旦重量变得足够重，你的握杆可能会难以支撑。
 

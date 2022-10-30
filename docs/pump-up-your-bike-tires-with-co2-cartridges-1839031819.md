@@ -1,6 +1,6 @@
 # 用二氧化碳气筒给自行车轮胎打气
 
-> 原文:[https://life hacker . com/pump-up-your-bike-tires-with-CO2-cartridge-1839031819](https://lifehacker.com/pump-up-your-bike-tires-with-co2-cartridges-1839031819)
+> 原文：<https://lifehacker.com/pump-up-your-bike-tires-with-co2-cartridges-1839031819>
 
 如果你不经常去自行车商店(我没有)，你可能不知道这些事情之一，但显然，如果你在路上爆胎，那些小小的应急手泵不是给你的自行车轮胎充气的唯一方法。二氧化碳盒式自行车打气筒是一个东西，我要说他们是一个黑客。
 

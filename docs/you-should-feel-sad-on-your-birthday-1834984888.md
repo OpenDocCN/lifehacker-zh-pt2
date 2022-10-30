@@ -1,6 +1,6 @@
 # 你应该在生日那天感到悲伤
 
-> 原文:[https://life hacker . com/you-should-feel-sad-on-your-birthday-1834984888](https://lifehacker.com/you-should-feel-sad-on-your-birthday-1834984888)
+> 原文：<https://lifehacker.com/you-should-feel-sad-on-your-birthday-1834984888>
 
 每个人有时候都喜欢小小的哭泣；这就是为什么有悲伤的歌曲和电影和书籍。即使你的实际生活进展顺利，一点选择性的忧郁也能锻炼你的情绪，它能让你精神和身体焕然一新。有些时候特别适合:雨天、深夜和生日。
 

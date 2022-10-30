@@ -1,6 +1,6 @@
 # 在烤箱架上烤一只鸡，让它美味的脂肪涂在你的蔬菜上
 
-> 原文:[https://the take out . com/recipe-bake-chicken-oven-rack-trick-1829925394](https://thetakeout.com/recipe-roast-chicken-oven-rack-trick-1829925394)
+> 原文：<https://thetakeout.com/recipe-roast-chicken-oven-rack-trick-1829925394>
 
 这种方法的灵感来自于杰米·奥利弗的《5 种食材——快速简单的食物》中的一集，他把整只鸡重重地放在烤箱的架子上。我仔细看了看。这样做可以吗？没有锅？没有像林肯原木一样复杂的胡萝卜排列来支撑烤盘里的鸡肉？溅出来的鸡汁会让我不太干净的烤箱冒烟吗？我原以为我会永远和我的烤鸡晚餐站在一起，但我被激起了兴趣。这个小把戏能让我回到烤鸡上来吗？
 

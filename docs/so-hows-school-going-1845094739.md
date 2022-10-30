@@ -1,6 +1,6 @@
 # 因此...学校怎么样？
 
-> 原文:[https://lifehacker.com/so-hows-school-going-1845094739](https://lifehacker.com/so-hows-school-going-1845094739)
+> 原文：<https://lifehacker.com/so-hows-school-going-1845094739>
 
 昨天我带我儿子去看医生。这是和一个新医生的预约，一个我们从未见过的专家，护士停顿了一下，直视我的眼睛。“所以，”她说。“学校过得怎么样？”
 

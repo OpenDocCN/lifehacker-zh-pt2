@@ -1,6 +1,6 @@
 # 什么是 RCS 消息传递，为什么要关注它？
 
-> 原文:[https://life hacker . com/whats-RCS-messaging-and-why-should-you-care-1832235783](https://lifehacker.com/whats-rcs-messaging-and-why-should-you-care-1832235783)
+> 原文：<https://lifehacker.com/whats-rcs-messaging-and-why-should-you-care-1832235783>
 
 谷歌已经正式采用下一代“RCS”短信协议，如果你不使用谷歌 Fi 服务，这并不重要。然而，该公司也在推动每一家运营商从短信转向 RCS 这是一项急需的升级——这将对你的短信、自拍和 GIF-blasting 产生重大影响。
 

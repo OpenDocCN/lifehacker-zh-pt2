@@ -1,6 +1,6 @@
 # 你最喜欢的 Photoshop 技巧是什么？
 
-> 原文:[https://life hacker . com/whats-your-favorite-Photoshop-trick-1840416111](https://lifehacker.com/whats-your-favorite-photoshop-trick-1840416111)
+> 原文：<https://lifehacker.com/whats-your-favorite-photoshop-trick-1840416111>
 
 天啊，我喜欢内容感知填充。在 Lifehacker，我经常想用不够宽的图片来说明一篇文章(如上)。所以我把它扔进 Photoshop，我扩大画布大小，我选择边上的新空白部分，我点击我的*cmd+option+F*—*编辑>内容感知填充的自定义快捷键。*
 

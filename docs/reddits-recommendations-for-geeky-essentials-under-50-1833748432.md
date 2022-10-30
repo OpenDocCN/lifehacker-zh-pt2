@@ -1,6 +1,6 @@
 # Reddit 对 50 美元以下极客必需品的推荐
 
-> 原文:[https://life hacker . com/reddits-50 岁以下极客必备推荐-1833748432](https://lifehacker.com/reddits-recommendations-for-geeky-essentials-under-50-1833748432)
+> 原文：<https://lifehacker.com/reddits-recommendations-for-geeky-essentials-under-50-1833748432>
 
 每一个配得上( [塔可钟](https://skillet.lifehacker.com/make-taco-bell-salt-with-leftover-sauce-packets-1828393224) )盐的极客都有一堆他们离不开的科技装备。它不仅仅是一堆昂贵的东西:老派游戏机、一堆硬盘或一个被遗忘的旧智能手机抽屉。有很多必需品值得放在你的工具带、腰包或背包里——或者至少在少数几个关键时刻，当你需要一件特定的物品来完成一项技术任务时，手边要有。
 

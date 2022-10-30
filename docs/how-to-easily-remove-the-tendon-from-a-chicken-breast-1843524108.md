@@ -1,6 +1,6 @@
 # 如何轻松去除鸡胸肉上的肌腱
 
-> 原文:[https://life hacker . com/how-to-easy-remove-the 腱从鸡胸肉-1843524108](https://lifehacker.com/how-to-easily-remove-the-tendon-from-a-chicken-breast-1843524108)
+> 原文：<https://lifehacker.com/how-to-easily-remove-the-tendon-from-a-chicken-breast-1843524108>
 
 我对抖音来说太老了，但我已经考虑下载这个应用程序——不是为了记录自己跳舞，或看别人跳舞，而是为了看看孩子们在做什么，以及他们是如何做的。
 

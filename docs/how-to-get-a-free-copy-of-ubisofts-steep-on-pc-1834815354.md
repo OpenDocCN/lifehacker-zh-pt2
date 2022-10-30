@@ -1,6 +1,6 @@
 # 如何在个人电脑上免费获得育碧的《陡峭》
 
-> 原文:[https://life hacker . com/how-to-get-a-free-copy-of-ubi softs-steep-on-PC-1834815354](https://lifehacker.com/how-to-get-a-free-copy-of-ubisofts-steep-on-pc-1834815354)
+> 原文：<https://lifehacker.com/how-to-get-a-free-copy-of-ubisofts-steep-on-pc-1834815354>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-bIU_ihmpoyA&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-bIU_ihmpoyA&start=0) 
 

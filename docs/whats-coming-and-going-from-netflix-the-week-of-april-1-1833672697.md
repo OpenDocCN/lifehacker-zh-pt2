@@ -1,6 +1,6 @@
 # 2019 年 4 月 1 日这一周，网飞有哪些活动
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week-of-April-1-1833672697](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-april-1-1833672697)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-april-1-1833672697>
 
 美国能原谅凯文·哈特仇视同性恋的推特吗？那么对于*有利的一面*呢？周二，*不负责任，*哈特的“由他自己的错误激发的新鲜特别节目”将在网飞上映，我们将拭目以待。我仍在努力完成《雷·罗马诺》的，所以这个月我将跳过我的脱口秀，取而代之的是喝一大杯清凉的*我们的星球*，这是带给你*地球*的人的最新系列纪录片。英国国宝大卫·爱登堡再次讲述了这个 8 人故事，你知道他过去有一些令人遗憾的推文。*
 

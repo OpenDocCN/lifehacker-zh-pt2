@@ -1,6 +1,6 @@
 # 如何在本周获得《刺客信条 2》的免费副本
 
-> 原文:[https://life hacker . com/how-to-get-a-free-copy-of-assassassin-s-creed-ii-this-week-1842861888](https://lifehacker.com/how-to-get-a-free-copy-of-assassin-s-creed-ii-this-week-1842861888)
+> 原文：<https://lifehacker.com/how-to-get-a-free-copy-of-assassin-s-creed-ii-this-week-1842861888>
 
 育碧的*刺客信条 II* 可能正在显示其年龄，但免费是免费的。
 

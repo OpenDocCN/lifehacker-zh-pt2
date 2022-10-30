@@ -1,6 +1,6 @@
 # 父母们，给你的厨房买个图书馆凳子吧
 
-> 原文:[https://life hacker . com/parents-get-a-library-stool-for-your-kitchen-1835067181](https://lifehacker.com/parents-get-a-library-stool-for-your-kitchen-1835067181)
+> 原文：<https://lifehacker.com/parents-get-a-library-stool-for-your-kitchen-1835067181>
 
 对许多人来说， [这个滚动的橡胶装置](https://www.amazon.com/Cramer-1001-01-Rolling-Stool-Silvertone/dp/B001GN7QWA/ref=sr_1_3?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/parents-get-a-library-stool-for-your-kitchen-1835067181&asc_source=&keywords=library stool&qid=1559066998&s=gateway&sr=8-3&tag=kinjalifehackerlink-20) 让人联想起当地公共图书馆的景象。你可能会发现它们散落在过道里(尽管在你最需要的时候它们总会消失)。他们有一个更宽的书架来放你的书，当你走上前去抓取一个遥不可及的标题时，它会以令人惊讶的满足感锁定到位，这样你就不会被一大堆平装书绊倒。
 

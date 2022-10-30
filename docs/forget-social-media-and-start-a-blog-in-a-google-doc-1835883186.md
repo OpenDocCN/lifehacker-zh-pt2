@@ -1,6 +1,6 @@
 # 忘记社交媒体，在谷歌文档中创建一个博客
 
-> 原文:[https://life hacker . com/forget-social-media-and-start-a-blog-in-a-Google-doc-1835883186](https://lifehacker.com/forget-social-media-and-start-a-blog-in-a-google-doc-1835883186)
+> 原文：<https://lifehacker.com/forget-social-media-and-start-a-blog-in-a-google-doc-1835883186>
 
 当社交媒体让我筋疲力尽时，我总是会通过转向一对一或集体聊天来感觉更好。但是我从来没有想过这个方法，via
 [Gareth 的提示](https://www.getrevue.co/profile/garethbranwyn/issues/gareth-s-tips-tools-and-shop-tales-issue-8-184862) :在云端 doc 写一篇“博文”，分享给一群精选的好友。发明家兼工程师明星辛普森称之为“懒博客”；投资者郭凯文称之为“私人备忘录”这就像建立你自己的高度受控的临时社交网络，就像分享一个谷歌文档一样简单:

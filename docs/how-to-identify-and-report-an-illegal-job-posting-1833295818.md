@@ -1,6 +1,6 @@
 # 如何识别和报告非法招聘信息
 
-> 原文:[https://life hacker . com/how-to-identify-and-report-a-law-job-posting-1833295818](https://lifehacker.com/how-to-identify-and-report-an-illegal-job-posting-1833295818)
+> 原文：<https://lifehacker.com/how-to-identify-and-report-an-illegal-job-posting-1833295818>
 
 本周早些时候，美食网站总监大卫·塔玛金兴奋地在推特上写道 他们需要一名“敏锐的、对烹饪着迷的编辑助理”在 48 小时内，这个帖子被媒体推特无情地烘烤，纽约州劳工部甚至被迫 介入。发生了什么事？
 

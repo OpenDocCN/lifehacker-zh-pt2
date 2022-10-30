@@ -1,6 +1,6 @@
 # 给你的猫一个诱饵键盘来享受
 
-> 原文:[https://life hacker . com/get-a-decoy-keyboard-for-your-cat-to-enjoy-1833554607](https://lifehacker.com/get-a-decoy-keyboard-for-your-cat-to-enjoy-1833554607)
+> 原文：<https://lifehacker.com/get-a-decoy-keyboard-for-your-cat-to-enjoy-1833554607>
 
  [https://lifehacker.com/embed/inset/iframe?id=fbpost-https%3A%2F%2Fwww.facebook.com%2FHappyCatEnclosures%2Fposts%2F2153855918043960&autosize=1](https://lifehacker.com/embed/inset/iframe?id=fbpost-https%3A%2F%2Fwww.facebook.com%2FHappyCatEnclosures%2Fposts%2F2153855918043960&autosize=1) Watch
 

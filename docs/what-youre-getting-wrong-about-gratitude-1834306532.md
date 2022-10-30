@@ -1,6 +1,6 @@
 # 你对感恩的误解是什么
 
-> 原文:[https://life hacker . com/what-you-get-error-about-感恩-1834306532](https://lifehacker.com/what-youre-getting-wrong-about-gratitude-1834306532)
+> 原文：<https://lifehacker.com/what-youre-getting-wrong-about-gratitude-1834306532>
 
 当我们还是个孩子的时候，我们学到的关于礼貌的第一件事就是尽早地、经常地使用“请”和“谢谢”。但是我们没有教对，因为每个人都做错了，而且他们做错的方式多种多样。所以这里有一个复习，关于如何*而不是*有效地表达真正的感谢。
 

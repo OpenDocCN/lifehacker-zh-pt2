@@ -1,6 +1,6 @@
 # 如何发展你的魅力，变得更讨人喜欢
 
-> 原文:[https://life hacker . com/how-to-develop-your charisma-and-be-like-1673988208](https://lifehacker.com/how-to-develop-your-charisma-and-become-more-likable-1673988208)
+> 原文：<https://lifehacker.com/how-to-develop-your-charisma-and-become-more-likable-1673988208>
 
 魅力是人们认为你与生俱来的东西之一，但事实并非如此。不管你的性格类型如何，变得更讨人喜欢和发展你的魅力是完全可能的。关键是专注于你可以练习并应用到自己行为中的某些特质，这些特质可能会让你看起来更有吸引力、更值得信赖、更有影响力。这里是开始的地方。
 

@@ -1,6 +1,6 @@
 # 如何过一个最好的阵亡将士纪念日周末
 
-> 原文:[https://life hacker . com/how-to-have-the-best-possible-memorial-day-weekend-1835006087](https://lifehacker.com/how-to-have-the-best-possible-memorial-day-weekend-1835006087)
+> 原文：<https://lifehacker.com/how-to-have-the-best-possible-memorial-day-weekend-1835006087>
 
 及时行乐！这是夏天的第一个周末。(6 月 20 日是书呆子的天文学屁话。)开始 [穿一身白色](https://verysmartbrothas.theroot.com/why-this-all-white-memorial-day-weekend-sale-at-macys-i-1834982986) 在户外吃肉的时间。但是如果你没有计划好你的周末，你可能会在沙发或电脑椅上呆上三天，留下零记忆。让我们通过制定计划来减少遗憾。
 

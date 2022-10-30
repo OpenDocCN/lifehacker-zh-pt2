@@ -1,4 +1,4 @@
-> 原文:[https://www . av club . com/what-will-win-and-what-should-win-the-this-1832784571](https://www.avclub.com/what-will-win-and-what-should-win-at-the-oscars-this-1832784571)
+> 原文：<https://www.avclub.com/what-will-win-and-what-should-win-at-the-oscars-this-1832784571>
 
 周日，30 年来第一次，奥斯卡金像奖没有主持人。有道理。谁会在今年想要*那份*工作*?即使在最好的情况下，在好莱坞最盛大的夜晚扮演司仪也是一件吃力不讨好的事情。2019 年，这是一个雷区，有足够多的话题足以推翻即使是最小心翼翼的喜剧演员。你一定是疯了，才会站在那里，试图拿一切的状态开玩笑。*
 

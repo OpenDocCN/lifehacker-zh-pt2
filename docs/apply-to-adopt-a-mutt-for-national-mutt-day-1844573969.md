@@ -1,6 +1,6 @@
 # 为国家狗日申请领养一只狗
 
-> 原文:[https://life hacker . com/apply-to-adopt-a-a-mutt-for-national-mutt-day-1844573969](https://lifehacker.com/apply-to-adopt-a-mutt-for-national-mutt-day-1844573969)
+> 原文：<https://lifehacker.com/apply-to-adopt-a-mutt-for-national-mutt-day-1844573969>
 
 爱狗人士欢欣鼓舞——今天是全国狗狗日！动物权利倡导者科琳·佩吉于 2005 年创立了这个一年两次的节日(庆祝 7 月 31 日和 12 月 2 日的 T2 ),意在庆祝我们生活中的混血狗。
 

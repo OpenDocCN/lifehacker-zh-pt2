@@ -1,6 +1,6 @@
 # 这是最好的幼儿旅行零食
 
-> 原文:[https://life hacker . com/this-is-the-best-leaddle-travel-snack-1840367872](https://lifehacker.com/this-is-the-best-toddler-travel-snack-1840367872)
+> 原文：<https://lifehacker.com/this-is-the-best-toddler-travel-snack-1840367872>
 
 如果你有一个蹒跚学步的孩子，你已经知道在旅行时拥有一个零食库是最重要的。零食可以避免发脾气，如果你的食物选择有限，零食可以给你灵活性，如果你在飞机上，吞咽可以帮助你在起飞和降落时对抗中耳压力。
 

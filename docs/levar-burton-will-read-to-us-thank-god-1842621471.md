@@ -1,6 +1,6 @@
 # 感谢上帝，莱瓦尔·伯顿会给我们朗读
 
-> 原文:[https://life hacker . com/levar-Burton-will-read-to-us-thank-god-1842621471](https://lifehacker.com/levar-burton-will-read-to-us-thank-god-1842621471)
+> 原文：<https://lifehacker.com/levar-burton-will-read-to-us-thank-god-1842621471>
 
 在过去的几周里，许多名人站出来为我们(和我们的孩子)朗读。 [演员乔什·加德](https://offspring.lifehacker.com/actor-josh-gad-will-read-to-your-kids-every-night-1842398287) ，奥拉夫的声音，是第一批开始通过推特和 Instagram 为孩子们现场朗读的人。詹妮弗·加纳和艾米·亚当斯发起了#[savewithtories](https://offspring.lifehacker.com/how-to-help-feed-kids-in-need-during-school-closures-1842412136)活动，鼓励许多名人给我们读书。甚至 [多莉·帕顿](https://www.npr.org/sections/coronavirus-live-updates/2020/03/31/824638554/dolly-parton-will-read-bedtime-stories-to-kids-online-every-week) 也愿意每周一次用睡前故事来分散我们的注意力。但是莱瓦尔·伯顿呢？他就是我们现在需要的声音。
 

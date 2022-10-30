@@ -1,6 +1,6 @@
 # 投资应用 Robinhood 再次宕机[更新]
 
-> 原文:[https://life hacker . com/investing-app-robin hood-is-down-again-1842211007](https://lifehacker.com/investing-app-robinhood-is-down-again-1842211007)
+> 原文：<https://lifehacker.com/investing-app-robinhood-is-down-again-1842211007>
 
 投资应用程序[robin hood](https://status.robinhood.com/)在最近股票市场历史上最动荡的一个早晨停止交易。纽约证券交易所开盘后，标准普尔 500 指数 [大幅下跌](https://finance.yahoo.com/news/rout-u-stock-futures-trigger-221631295.html) ，引发交易“跌停”暂停，这是自 2008 年以来从未发生过的。
 

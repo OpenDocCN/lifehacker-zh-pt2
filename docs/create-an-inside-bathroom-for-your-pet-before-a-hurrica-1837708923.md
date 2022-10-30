@@ -1,6 +1,6 @@
 # 在飓风来临之前，为你的宠物建造一个室内浴室
 
-> 原文:[https://life hacker . com/create-an-inside-of-your-pet-before-a-hurrica-1837708923](https://lifehacker.com/create-an-inside-bathroom-for-your-pet-before-a-hurrica-1837708923)
+> 原文：<https://lifehacker.com/create-an-inside-bathroom-for-your-pet-before-a-hurrica-1837708923>
 
 如果你住在佛罗里达州附近的任何地方，不要忘记准备一个旅行袋 ，并在热带风暴多里安逼近时(很可能增强为 3 级或 4 级飓风)准备好疏散计划。
 

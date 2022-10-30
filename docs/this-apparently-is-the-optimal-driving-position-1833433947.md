@@ -1,6 +1,6 @@
 # 显然，这是最佳驾驶位置
 
-> 原文:[https://jalopnik . com/this-appearly-is-the-optimal-driving-position-1833433947](https://jalopnik.com/this-apparently-is-the-optimal-driving-position-1833433947)
+> 原文：<https://jalopnik.com/this-apparently-is-the-optimal-driving-position-1833433947>
 
 驾驶一辆汽车并不是简单地把你的屁股随意地放在座位上，然后从那里转动方向盘。实际上有一个正确的方法来调整你的座椅，以获得最大的舒适性、可控性和安全性。
 

@@ -1,6 +1,6 @@
 # 打电话给养蜂人，而不是灭虫人
 
-> 原文:[https://life hacker . com/call-a-bee keeper-not-an-extremor-1835268431](https://lifehacker.com/call-a-beekeeper-not-an-exterminator-1835268431)
+> 原文：<https://lifehacker.com/call-a-beekeeper-not-an-exterminator-1835268431>
 
 周日，圣地亚哥教士队可能没有为自己赢得任何新球迷，因为他们选择打电话给灭虫公司 来清除棒球场上讨厌的蜜蜂群。但这一行为确实激怒了足够多的人，成为一个很好的公共服务提醒:打电话给养蜂人移走一群蜜蜂，而不是灭虫员。
 

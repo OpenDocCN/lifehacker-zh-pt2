@@ -1,6 +1,6 @@
 # 用门挡和金属棒安全地闯入你的汽车
 
-> 原文:[https://life hacker . com/break-into-your car-safely with a door-stop-and-metal-r-5848743](https://lifehacker.com/break-into-your-car-safely-with-a-door-stop-and-metal-r-5848743)
+> 原文：<https://lifehacker.com/break-into-your-car-safely-with-a-door-stop-and-metal-r-5848743>
 
 在每个车主的一生中，都会有把钥匙锁在车里或者完全弄丢的时候。当然，你可以花钱请专业人士帮你撬开你的车...或者你可以自己学习如何做来节省时间和金钱。
 

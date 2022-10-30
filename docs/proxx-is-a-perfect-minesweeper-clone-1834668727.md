@@ -1,6 +1,6 @@
 # Proxx 是一个完美的扫雷艇克隆
 
-> 原文:[https://life hacker . com/proxx-is-a-perfect-mine sweeper-clone-1834668727](https://lifehacker.com/proxx-is-a-perfect-minesweeper-clone-1834668727)
+> 原文：<https://lifehacker.com/proxx-is-a-perfect-minesweeper-clone-1834668727>
 
 我一直不擅长扫雷，我想我上一次玩这个游戏的年龄肯定至少是我的一半。很难让*点击——你很好*、*点击——你死了*游戏玩法性感，但谷歌凭借其 [开源](https://github.com/GoogleChromeLabs/proxx) 迭代、[**Proxx**](https://proxx.app/)做了一件令人钦佩的工作。
 

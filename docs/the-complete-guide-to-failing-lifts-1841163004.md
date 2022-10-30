@@ -1,6 +1,6 @@
 # 电梯故障完全指南
 
-> 原文:[https://life hacker . com/the-complete-guide-to-failed-lifts-1841163004](https://lifehacker.com/the-complete-guide-to-failing-lifts-1841163004)
+> 原文：<https://lifehacker.com/the-complete-guide-to-failing-lifts-1841163004>
 
 如果沉重的杠铃让你害怕，你并不孤单。直到你有了一点经验(包括抬东西和看别人抬东西)，你可能会因为想到如果你不抬东西，一根横杆会砸到你身上而感到有点害怕。幸运的是，一旦你知道失败后会发生什么，失败就不再可怕了。所以让我们走一遍。
 

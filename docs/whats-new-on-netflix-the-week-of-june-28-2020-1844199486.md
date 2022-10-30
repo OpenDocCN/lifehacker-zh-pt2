@@ -1,6 +1,6 @@
 # 2020 年 6 月 28 日这一周网飞有什么新消息
 
-> 原文:[https://life hacker . com/whats-new-on-the-week-of-June-28-2020-1844199486](https://lifehacker.com/whats-new-on-netflix-the-week-of-june-28-2020-1844199486)
+> 原文：<https://lifehacker.com/whats-new-on-netflix-the-week-of-june-28-2020-1844199486>
 
 有人花了 26 年时间翻拍了 1984 年的恐怖经典*榆树街的噩梦*，但在 2020 年的内容战争中，没有人能让一处房产闲置那么久。因此，今年有两部 2002 年的日本惊悚片*重拍，你可能还记得另一部进口恐怖片 [，主角是一个长着又黑又湿的头发的小女孩](https://en.wikipedia.org/wiki/The_Ring_(franchise)) 。(还有一段是一只手从某人的后脑勺伸出来？今年一月，制片人山姆·雷米推出了《咒怨》(2004 年美国版，翻拍自 2002 年的日本原版)。对于副本的副本，它是...表面上看起来相当糟糕。*
 

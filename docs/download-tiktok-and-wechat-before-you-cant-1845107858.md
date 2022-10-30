@@ -1,6 +1,6 @@
 # 在不会之前下载抖音和微信
 
-> 原文:[https://life hacker . com/download-tiktok-和-微信-before-you-cant-1845107858](https://lifehacker.com/download-tiktok-and-wechat-before-you-cant-1845107858)
+> 原文：<https://lifehacker.com/download-tiktok-and-wechat-before-you-cant-1845107858>
 
 如果你曾经对抖音或微信感到好奇，在苹果应用商店和谷歌 Play 为美国用户移除应用之前，你只有几天时间来下载它们。到了 9 月 20 日(T3)周日(T2)，他们都会去 T4
 

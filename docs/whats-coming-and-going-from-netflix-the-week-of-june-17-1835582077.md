@@ -1,6 +1,6 @@
 # 2019 年 6 月 17 日这一周，网飞有哪些活动
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of-June-17-1835582077](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-june-17-1835582077)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-june-17-1835582077>
 
 感谢上帝在 Hulu 上发布了女仆的故事，因为网飞本周的产品乍一看都是垃圾。如果你是《T2》第一季的粉丝，那就去看看《木桶匠》、《T4 女孩被囚禁》、*！过你自己的生活，黑暗，*或*告白磁带，*你很幸运，因为所有这些节目的第二季都将在本周上映。否则，请欣赏《伊格莱西亚斯先生》，“滑稽的高中老师加布里埃尔·伊格莱西亚斯试图改变母校一些聪明但表现不佳的学生的生活。”这看起来有点网络喜剧的味道，但是《办公室》的奥斯卡和雪莉·谢波德都在里面，所以，也许？
 

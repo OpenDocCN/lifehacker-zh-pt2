@@ -1,6 +1,6 @@
 # 把你的屏幕改成灰度以对抗手机瘾
 
-> 原文:[https://life hacker . com/change-your-screen-to-gray-to-combat-phone-addicti-1795821843](https://lifehacker.com/change-your-screen-to-grayscale-to-combat-phone-addicti-1795821843)
+> 原文：<https://lifehacker.com/change-your-screen-to-grayscale-to-combat-phone-addicti-1795821843>
 
 如果你发现很难把视线从手机上移开，这是有原因的:它就是这样设计的。几年前，谷歌的前设计伦理学家和非营利组织 [的创始人花好时间](http://timewellspent.io/) 特里斯坦·哈里斯 [四处宣传](http://www.cbsnews.com/news/why-cant-we-put-down-our-smartphones-60-minutes/) ，谈论技术如何被设计成令人上瘾并劫持我们的注意力。他很有说服力，把手机的诱惑比作老虎机。
 

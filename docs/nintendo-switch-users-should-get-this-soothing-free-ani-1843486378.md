@@ -1,6 +1,6 @@
 # 任天堂 Switch 用户应该在这个周末得到这个舒缓的免费动物穿越俄罗斯方块主题
 
-> 原文:[https://life hacker . com/Nintendo-switch-users-should-get-this-corrupting-free-ani-1843486378](https://lifehacker.com/nintendo-switch-users-should-get-this-soothing-free-ani-1843486378)
+> 原文：<https://lifehacker.com/nintendo-switch-users-should-get-this-soothing-free-ani-1843486378>
 
 总的来说，在过去的几个月里，我的 Switch 只用来玩了三种游戏:马里奥赛车、俄罗斯方块和动物穿越。这个周末，这最后两个将在俄罗斯方块 99 中的动物穿越马克西姆斯杯上结合在一起。如果你“赢得”比赛，你将永远在俄罗斯方块应用程序中获得动物穿越主题的分数，我在这里告诉你，这是你想要的东西，即使你不玩动物穿越。
 

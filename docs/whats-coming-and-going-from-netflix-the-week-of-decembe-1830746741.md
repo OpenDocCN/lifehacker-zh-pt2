@@ -1,6 +1,6 @@
 # 2018 年 12 月 3 日这一周，网飞有哪些活动
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of decembe-1830746741](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-decembe-1830746741)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-decembe-1830746741>
 
 对于那些对安东尼·拉帕格利亚看不够的人来说，他们可能已经报名参加了圣丹斯的免费试播，也可能没有，只是为了看他在一部鲜为人知、鲜为人知的连续剧《里维埃拉》中的表现，本周带来了好消息。周五，LaPaglia 将回到小荧幕上，在《T2:恶血》(Bad Blood)和《T3》中饰演一名蒙特利尔黑帮老大，台词是“外交的时间已经结束了”和“我们要照顾我们的朋友”...只要你还是我的朋友”两句话都是极其严肃的。如果你喜欢有人被棒球棒打成肉酱的黑手党戏剧，欢迎回家。
 

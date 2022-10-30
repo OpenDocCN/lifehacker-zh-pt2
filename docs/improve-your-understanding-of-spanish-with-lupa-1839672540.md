@@ -1,6 +1,6 @@
 # 和 Lupa 一起提高你对西班牙语的理解
 
-> 原文:[https://life hacker . com/improve-you-understanding-of-Spanish-with-lupa-1839672540](https://lifehacker.com/improve-your-understanding-of-spanish-with-lupa-1839672540)
+> 原文：<https://lifehacker.com/improve-your-understanding-of-spanish-with-lupa-1839672540>
 
 当我试着学习西班牙语时，每个人都告诉我要听[Ambulante](https://radioambulante.org/en)电台。这是一个西班牙语的 NPR 节目，旨在将长篇新闻的深度带入播客世界。这很好——但我永远也听不清大家在说什么。
 

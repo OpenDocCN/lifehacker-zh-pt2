@@ -1,6 +1,6 @@
 # 你在犯这些常见的语法错误吗？
 
-> 原文:[https://life hacker . com/are-you-making-这些常见的语法错误-1836969914](https://lifehacker.com/are-you-making-these-common-grammatical-mistakes-1836969914)
+> 原文：<https://lifehacker.com/are-you-making-these-common-grammatical-mistakes-1836969914>
 
 没有人能像编辑一样意识到我们对英语的无情滥用。放错一个修改器，你的编辑器会(希望)让你知道。过度使用诸如“非常”、“只是”和“真的”这样的强化词，你的编辑会告诉你，你真的只是对你的写作没有任何帮助。我在 Lifehacker 的编辑已经正式让我改掉了过度使用“经常”的习惯，正如她指出的那样，这并不完全是*的错，*，只是“经常”的一种更长的说法
 

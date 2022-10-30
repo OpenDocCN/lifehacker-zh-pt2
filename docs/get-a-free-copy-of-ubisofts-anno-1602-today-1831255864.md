@@ -1,6 +1,6 @@
 # 今天就获得一份免费的育碧彦俊 1602
 
-> 原文:[https://life hacker . com/get-a-free-copy-of-ubi softs-anno-1602-today-1831255864](https://lifehacker.com/get-a-free-copy-of-ubisofts-anno-1602-today-1831255864)
+> 原文：<https://lifehacker.com/get-a-free-copy-of-ubisofts-anno-1602-today-1831255864>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-X88eXkjpx7E&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-X88eXkjpx7E&start=0) 
 

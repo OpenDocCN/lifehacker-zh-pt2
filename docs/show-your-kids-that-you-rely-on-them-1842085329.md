@@ -1,6 +1,6 @@
 # 让你的孩子知道你依赖他们
 
-> 原文:[https://life hacker . com/show-your-kids-that-you-depend-them-1842085329](https://lifehacker.com/show-your-kids-that-you-rely-on-them-1842085329)
+> 原文：<https://lifehacker.com/show-your-kids-that-you-rely-on-them-1842085329>
 
 孩子们在很多方面都依赖我们，包括他们还是婴儿时的基本所有事情，以及他们毕业成为“小孩子”时的大部分事情。但是根据一位心理学家的说法，帮助六七岁的 T2 儿童建立适应力和自信心的一个简单方法是依靠 T4 的帮助和支持。
 

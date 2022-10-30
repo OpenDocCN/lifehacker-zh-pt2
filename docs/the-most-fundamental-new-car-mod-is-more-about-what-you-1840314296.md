@@ -1,6 +1,6 @@
 # 最基本的新车模型更多的是关于你删除什么，而不是你添加什么
 
-> 原文:[https://jalopnik . com/the-most-fundamental-new-car-mod-is-more-about-what-you-1840314296](https://jalopnik.com/the-most-fundamental-new-car-mod-is-more-about-what-you-1840314296)
+> 原文：<https://jalopnik.com/the-most-fundamental-new-car-mod-is-more-about-what-you-1840314296>
 
 整个世界都致力于汽车改装和售后零件，旨在提高您的汽车性能。你可能会诗意地谈论哪种 mod 是最好的——但是来自奥尼尔拉力学校团队的 Wyatt Knox 对你们有一个非常热的看法:这不是你添加了什么。而是你拿走了什么。
 

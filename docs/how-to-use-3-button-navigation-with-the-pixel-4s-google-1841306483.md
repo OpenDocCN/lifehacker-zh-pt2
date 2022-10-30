@@ -1,6 +1,6 @@
 # 如何在 Pixel 4 的谷歌助手中使用 3 键导航
 
-> 原文:[https://life hacker . com/how-to-use-3-button-navigation-with-pixel-4s-Google-1841306483](https://lifehacker.com/how-to-use-3-button-navigation-with-the-pixel-4s-google-1841306483)
+> 原文：<https://lifehacker.com/how-to-use-3-button-navigation-with-the-pixel-4s-google-1841306483>
 
 那些拥有有点新的 Pixel 4 Android 智能手机的人可能已经注意到，谷歌强迫你使用手势导航来与谷歌助手 的 [更新版本互动。这不是世界末日，但如果你讨厌](https://9to5google.com/2019/10/25/pixel-4-new-assistant-review/) [划动](https://support.google.com/pixelphone/answer/6073614) 而不是点击屏幕底部的微小虚拟按钮，这可能会很烦人。
 

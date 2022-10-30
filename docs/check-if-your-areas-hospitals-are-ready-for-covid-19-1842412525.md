@@ -1,6 +1,6 @@
 # 检查你所在地区的医院是否为新冠肺炎做好了准备
 
-> 原文:[https://life hacker . com/check-if-your-areas-hospitals-is-ready-for-新冠肺炎-1842412525](https://lifehacker.com/check-if-your-areas-hospitals-are-ready-for-covid-19-1842412525)
+> 原文：<https://lifehacker.com/check-if-your-areas-hospitals-are-ready-for-covid-19-1842412525>
 
 随着新冠肺炎变得越来越普遍，最大的担忧之一是医疗机构可能会不堪重负。这就是为什么我们都在努力“ [拉平曲线](https://www.npr.org/sections/health-shots/2020/03/13/815502262/flattening-a-pandemics-curve-why-staying-home-now-can-save-lives) ”确保即使病毒传播，它也是以卫生系统可以处理的速度传播。
 

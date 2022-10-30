@@ -1,6 +1,6 @@
 # 2019 年 6 月网飞有什么来往
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-2019-6-1834948702](https://lifehacker.com/whats-coming-and-going-from-netflix-in-june-2019-1834948702)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-in-june-2019-1834948702>
 
 你需要在接下来的一两周内观看大量的好电影，因为在 6 月，网飞将失去*阿波罗 13 号，101 只斑点狗，13 号星期五，我是传奇，*双双*杀死比尔* s，*金发碧眼，红粉佳人，星际之门，不朽的园丁，银河守护者第二卷，* *现代启示录，第九区*和*钢琴师。消失的还不止这些。* 
 

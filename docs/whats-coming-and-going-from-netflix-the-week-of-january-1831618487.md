@@ -1,6 +1,6 @@
 # 2019 年 1 月 21 日这一周，网飞有什么动静
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of-January-1831618487](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-january-1831618487)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-january-1831618487>
 
 我对*黑土地崛起*(周五)感到兴奋，这是一部 BBC 剧，讲述了一名卢旺达种族灭绝的幸存者成为人权律师，最终参与了一个涉及非洲民兵领导人的案件。不管出于什么原因，约翰·古德曼在里面，这对于一个英国节目来说很奇怪，但我没有抱怨。
 

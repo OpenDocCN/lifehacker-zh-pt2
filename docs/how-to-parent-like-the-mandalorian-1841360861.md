@@ -1,6 +1,6 @@
 # 如何像曼达洛人一样为人父母
 
-> 原文:[https://life hacker . com/how-to-parent-like-the-manda lorian-1841360861](https://lifehacker.com/how-to-parent-like-the-mandalorian-1841360861)
+> 原文：<https://lifehacker.com/how-to-parent-like-the-mandalorian-1841360861>
 
 曼达洛人 以其新鲜的故事情节、朗朗上口的配乐、一些机器人和一些时髦的武器取悦了观众。但所有这些都比不上那个孩子，我们都叫他尤达宝宝，尽管我们知道他不是真正的*尤达。事实证明，曼达洛人不仅仅是一长串传奇中的又一部《星球大战》传奇。《曼达洛人》是一个关于单亲父母的故事。*
 

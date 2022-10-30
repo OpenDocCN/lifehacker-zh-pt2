@@ -1,6 +1,6 @@
 # 如果你患有瘫痪或行动障碍，如何获得免费的谷歌 Home Mini
 
-> 原文:[https://life hacker . com/how-to-get-a-free-Google-home-mini-if-you-living-with-1836735162](https://lifehacker.com/how-to-get-a-free-google-home-mini-if-youre-living-with-1836735162)
+> 原文：<https://lifehacker.com/how-to-get-a-free-google-home-mini-if-youre-living-with-1836735162>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-Rr58785yXGo&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-Rr58785yXGo&start=0) 
 

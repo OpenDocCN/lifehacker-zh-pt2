@@ -1,6 +1,6 @@
 # 2019 年 6 月 HBO 将迎来什么
 
-> 原文:[https://life hacker . com/whats-coming-to-HBO-in-June-2019-1835175818](https://lifehacker.com/whats-coming-to-hbo-in-june-2019-1835175818)
+> 原文：<https://lifehacker.com/whats-coming-to-hbo-in-june-2019-1835175818>
 
 《权力的游戏》可能最终会结束，但 HBO 这个月的表现很强劲，你有理由继续订阅。
 

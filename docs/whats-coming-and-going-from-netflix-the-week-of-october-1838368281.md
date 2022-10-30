@@ -1,6 +1,6 @@
 # 2019 年 10 月 7 日这一周，网飞有哪些来往
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of the-October-1838368281](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-october-1838368281)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-october-1838368281>
 
 新一季的《希特的小溪》将于周四上映，这真的是你多年来听到的最好的消息，T2，不是吗？我等不及网飞的回归，所以已经在流行电视上看了这一季(流行电视的另一个热门节目是一个关于艾伦·锡克的真人秀节目，名为*异常厚重*，似乎莫伊拉·罗斯会在这个节目中客串)。这一季中，Moira 在波斯尼亚拍摄*乌鸦有眼睛 III:啼叫，*一些次要角色的父母来访，以及一场真正令人惊叹的当地歌舞表演。这之后就剩一季了，好好品味吧。
 

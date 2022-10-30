@@ -1,6 +1,6 @@
 # 去年的冷冻火鸡还是不错的
 
-> 原文:[https://life hacker . com/last-years-frozen-turkey-is-still-good-1839923477](https://lifehacker.com/last-years-frozen-turkey-is-still-good-1839923477)
+> 原文：<https://lifehacker.com/last-years-frozen-turkey-is-still-good-1839923477>
 
 也许你在去年感恩节后的大甩卖中买了一只火鸡，或者你自愿为朋友的感恩节做饭，结果却叫了外卖。不管什么原因，如果你的冰箱里有一只一岁大的火鸡，我们有重要的消息:它仍然很好吃。
 

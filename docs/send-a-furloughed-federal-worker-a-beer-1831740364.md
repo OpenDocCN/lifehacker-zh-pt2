@@ -1,6 +1,6 @@
 # 你现在可以给休假的联邦工作人员送一瓶啤酒
 
-> 原文:[https://the take out . com/send-a-furlough ed-federal-worker-a-beer-1831740364](https://thetakeout.com/send-a-furloughed-federal-worker-a-beer-1831740364)
+> 原文：<https://thetakeout.com/send-a-furloughed-federal-worker-a-beer-1831740364>
 
 在这个国家，我们有很多不同的意见，但大多数人都同意，目前的政府关闭是可怕的。受打击最大的是那些刚刚过了发薪日却没有薪水的联邦雇员。许多企业和个人都在力所能及的地方帮助这些工人，从为他们提供免费餐的 [餐馆](https://www.westword.com/restaurants/denver-and-colorado-restaurants-offering-free-and-discounted-food-to-federal-employees-11106035) ，到 [加拿大的空中交通管制员给他们目前正在无薪工作的美国同事送比萨饼](https://www.cbc.ca/news/canada/newfoundland-labrador/air-traffic-controller-pizza-1.4976548) 。
 

@@ -1,6 +1,6 @@
 # 以下是亚马逊机油如何与大牌品牌相抗衡的
 
-> 原文:[https://jalopnik . com/heres-how-amazons-motor-oil-stacks-up-against-big-name-1832562073](https://jalopnik.com/heres-how-amazons-motor-oil-stacks-up-against-big-name-1832562073)
+> 原文：<https://jalopnik.com/heres-how-amazons-motor-oil-stacks-up-against-big-name-1832562073>
 
 自从 [亚马逊基础](https://jalopnik.com/amazon-is-selling-its-own-brand-of-motor-oil-now-and-it-1831153957) 宣布出售其自有品牌的合成机油以来，一个大问题就是“但它到底有多好？”现在，人们进行他们自己的家庭测试，看看亚马逊的油与我们所知道和喜爱的大品牌相比如何。
 

@@ -1,6 +1,6 @@
 # 如何重新观看 CNN 的民主党总统市政厅
 
-> 原文:[https://life hacker . com/how-to-rewatch-CNN-democratic-presidential-town-hall-1834241675](https://lifehacker.com/how-to-rewatch-cnns-democratic-presidential-town-hall-1834241675)
+> 原文：<https://lifehacker.com/how-to-rewatch-cnns-democratic-presidential-town-hall-1834241675>
 
 昨晚，美国有线电视新闻网(CNN)和哈佛大学肯尼迪政治学院(Harvard Kennedy School Institute of Politics)共同主办了首批大型市政厅活动之一，其中有五名候选人争夺民主党总统候选人提名:参议员卡玛拉·哈里斯、艾米·克洛布查尔、伯尼·桑德斯和伊丽莎白·沃伦，以及市长皮特·布蒂吉格。
 

@@ -1,6 +1,6 @@
 # 你应该像切面包一样切百吉饼吗？
 
-> 原文:[https://life hacker . com/should-you-slice-bagels-like-a-loaf-of-bread-1833606826](https://lifehacker.com/should-you-slice-bagels-like-a-loaf-of-bread-1833606826)
+> 原文：<https://lifehacker.com/should-you-slice-bagels-like-a-loaf-of-bread-1833606826>
 
 在我们最新一期的“黑客或怪人”节目中，我们来看看圣路易斯本地人的这条推特:
 

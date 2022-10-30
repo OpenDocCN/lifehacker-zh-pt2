@@ -1,6 +1,6 @@
 # 如何离婚，与离婚律师杰奎琳纽曼
 
-> 原文:[https://life hacker . com/how-to-get-a-diffuse-with-diffuse-lawyer-Jacqueline-ne-1840974545](https://lifehacker.com/how-to-get-a-divorce-with-divorce-lawyer-jacqueline-ne-1840974545)
+> 原文：<https://lifehacker.com/how-to-get-a-divorce-with-divorce-lawyer-jacqueline-ne-1840974545>
 
 在法律界，一月被非正式地称为“离婚月”“为了庆祝这个并不快乐的时刻，我们将为你带来一集，打破离婚的复杂世界。为了帮助我们理解法律的本质，我们邀请了杰奎琳·纽曼，她是一位纽约的婚姻律师，也是《离婚的新规则:保护你的财富、健康和幸福的十二个秘密》一书的作者。 “正如我们在采访中发现的，离婚是一个迷人的话题，即使你近期没有打算分手。
 

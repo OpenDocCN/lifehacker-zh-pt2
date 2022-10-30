@@ -1,6 +1,6 @@
 # 如何看待“堡垒之夜”中的新镭龙 RX 6000 GPU
 
-> 原文:[https://life hacker . com/how-to-see-the-new-radeon-rx-6000-GPU-in-fort nite-1845065759](https://lifehacker.com/how-to-see-the-new-radeon-rx-6000-gpu-in-fortnite-1845065759)
+> 原文：<https://lifehacker.com/how-to-see-the-new-radeon-rx-6000-gpu-in-fortnite-1845065759>
 
 AMD 最近推出了新的镭龙 RX 6000 图形卡系列。据说该卡达到了与英伟达旗舰产品 RTX 3080 GPU 相似的图形高度，但价格更低。为了激发人们对这款新卡的热情，AMD 正在以一种非传统的方式给客户提供一个虚拟的 GPU 体验:一个游戏内的*堡垒之夜*地图。
 

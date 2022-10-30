@@ -1,6 +1,6 @@
 # 如何(最终)在 PlayStation 4 上改名
 
-> 原文:[https://life hacker . com/how-to-finally-change-your-name-on-PlayStation-4-1833940641](https://lifehacker.com/how-to-finally-change-your-name-on-playstation-4-1833940641)
+> 原文：<https://lifehacker.com/how-to-finally-change-your-name-on-playstation-4-1833940641>
 
 时机已经到来:索尼终于 [宣布](https://blog.us.playstation.com/2019/04/10/online-id-change-on-psn-your-questions-answered/?fbclid=IwAR0ZtGYFu1ySGRa0E52tVdZvBe7n9PQd3elc80o-JNt2P-vccCnt6ZNkLQY) 将允许 PlayStation 4 用户更改他们的用户 id——当你在线玩游戏时使用的名字——从今天晚些时候开始。该功能已经推出很久了，游戏玩家，特别是我们这些自从为 PlayStation 3 创建 PlayStation ID 以来就一直被同一手柄束缚的人，应该感到欣慰。
 

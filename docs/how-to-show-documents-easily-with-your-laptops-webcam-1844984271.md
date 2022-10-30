@@ -1,6 +1,6 @@
 # 如何使用笔记本电脑的网络摄像头轻松显示文档
 
-> 原文:[https://life hacker . com/how-to-show-documents-easy-with your-laptops-web cam-1844984271](https://lifehacker.com/how-to-show-documents-easily-with-your-laptops-webcam-1844984271)
+> 原文：<https://lifehacker.com/how-to-show-documents-easily-with-your-laptops-webcam-1844984271>
 
 教师创造最好的黑客。句号。没有争论。他们管理他们监管的孩子数量的聪明方法——以及绕过旧设备的限制，这些旧设备通常不太好维护——总是让我感到惊讶和高兴。今天通过视频聊天分享文档的流行技巧也没什么不同，但是你不需要*成为一名教师来欣赏它。*
 

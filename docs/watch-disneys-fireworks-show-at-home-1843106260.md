@@ -1,6 +1,6 @@
 # 在家看迪士尼的烟火秀
 
-> 原文:[https://life hacker . com/watch-Disney-fireworks-show-in-home-1843106260](https://lifehacker.com/watch-disneys-fireworks-show-at-home-1843106260)
+> 原文：<https://lifehacker.com/watch-disneys-fireworks-show-at-home-1843106260>
 
 这些天我一直在想迪士尼世界。在疫情飓风来袭之前，我和丈夫正计划今年秋天带着我们九岁的儿子去那里旅行。早在二月份，当我们和陌生人一起排着长队，整天触摸扶手似乎是个好主意时，我们是多么天真。
 

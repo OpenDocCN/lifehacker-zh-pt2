@@ -1,6 +1,6 @@
 # 在家锻炼时如何防止受伤
 
-> 原文:[https://life hacker . com/how-to-prevent-injury-when you-out-of-home-work-1843106512](https://lifehacker.com/how-to-prevent-injuries-when-youre-working-out-at-home-1843106512)
+> 原文：<https://lifehacker.com/how-to-prevent-injuries-when-youre-working-out-at-home-1843106512>
 
 如果你在家庭锻炼中做傻事伤到了自己，请举手。就我而言，在进行舞蹈训练时，我把手伸进了天花板上的车库门开启器。而且*两次*现在我有一个哑铃在举到一半的时候掉了下来，因为我没有把颈圈拧紧。
 

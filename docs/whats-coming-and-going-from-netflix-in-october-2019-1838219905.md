@@ -1,6 +1,6 @@
 # 2019 年 10 月网飞有什么来往
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-2019-10-1838219905](https://lifehacker.com/whats-coming-and-going-from-netflix-in-october-2019-1838219905)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-in-october-2019-1838219905>
 
 欢迎来到《网飞十月》,这里有许多引人注目的明星原创，某个地方的一些高管正在咬牙切齿地扑粉，希望他们数百万美元的大牌赌博会成为热门。
 

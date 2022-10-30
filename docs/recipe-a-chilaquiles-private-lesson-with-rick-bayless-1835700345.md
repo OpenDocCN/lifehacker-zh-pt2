@@ -1,6 +1,6 @@
 # 里克·贝勒斯的奇拉奎莱斯私人课程
 
-> 原文:[https://the take out . com/recipe-a-chilaquiles-private-less-less-with-Rick-bay less-1835700345](https://thetakeout.com/recipe-a-chilaquiles-private-lesson-with-rick-bayless-1835700345)
+> 原文：<https://thetakeout.com/recipe-a-chilaquiles-private-lesson-with-rick-bayless-1835700345>
 
 几周前，我的收件箱里收到了一封电子邮件，问我是否有兴趣和里克一起上奇拉奎莱斯的课。当然，Chilaquiles 是墨西哥美食中令人欣慰的玉米饼包治百病，Rick 是芝加哥厨师 Rick Bayless，墨西哥福音传道者， [也是奥黑尔机场可以忍受的唯一原因。【T2](https://thetakeout.com/the-secret-to-bypassing-the-long-lines-at-ohares-most-p-1821404754)
 

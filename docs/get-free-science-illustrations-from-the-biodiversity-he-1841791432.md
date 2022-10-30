@@ -1,6 +1,6 @@
 # 从生物多样性遗产图书馆获得免费的科学插图
 
-> 原文:[https://life hacker . com/get-free-science-illustrations-from-the-diversity-he-1841791432](https://lifehacker.com/get-free-science-illustrations-from-the-biodiversity-he-1841791432)
+> 原文：<https://lifehacker.com/get-free-science-illustrations-from-the-biodiversity-he-1841791432>
 
 如果你正在寻找一种新的壁纸，一个纹身的想法，或者只是在过去的插图中寻找一段令人惊叹的时光， [生物多样性遗产图书馆](https://www.biodiversitylibrary.org/browse/collections) 为你准备了一份礼物。其数以千计的公共领域图像和数字化书籍也具有教育意义，收集了七个世纪以来全球范围内对自然世界的观察。
 

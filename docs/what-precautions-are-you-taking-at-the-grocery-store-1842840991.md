@@ -1,6 +1,6 @@
 # 你在杂货店采取了什么预防措施？
 
-> 原文:[https://life hacker . com/what-preventions-what-you-taking-in-the-杂货店-1842840991](https://lifehacker.com/what-precautions-are-you-taking-at-the-grocery-store-1842840991)
+> 原文：<https://lifehacker.com/what-precautions-are-you-taking-at-the-grocery-store-1842840991>
 
 距离疾控中心要求我们戴上布口罩才一周多一点。我听我们家主要的杂货店购物者说，它们突然流行起来了——他估计 60%到 80%的人都在使用某种面膜。
 

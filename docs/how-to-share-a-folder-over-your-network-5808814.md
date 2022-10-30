@@ -1,6 +1,6 @@
 # 如何通过网络共享文件夹
 
-> 原文:[https://life hacker . com/how-to-share-a-folder-over-your-network-5808814](https://lifehacker.com/how-to-share-a-folder-over-your-network-5808814)
+> 原文：<https://lifehacker.com/how-to-share-a-folder-over-your-network-5808814>
 
 需要与连接到网络的另一台设备共享文件或文件夹？在机器之间传输文件只需要对计算机的设置做一些更改。在这本初学者指南中，我们将向您展示无论您使用 Windows 还是 Mac OS，如何通过网络共享文件夹。
 

@@ -1,6 +1,6 @@
 # 如何观看纳斯卡的 iRacing 职业邀请赛系列周日
 
-> 原文:[https://life hacker . com/how-to-watch-nascars-iracing-pro-invitation-series-su-1843204785](https://lifehacker.com/how-to-watch-nascars-iracing-pro-invitational-series-su-1843204785)
+> 原文：<https://lifehacker.com/how-to-watch-nascars-iracing-pro-invitational-series-su-1843204785>
 
 虽然全国汽车比赛协会和其他所有运动一样，现在处于暂停状态，但周日你有机会观看一场虚拟的比赛，专业的赛车选手跳进模拟器而不是真正的汽车去比赛。
 

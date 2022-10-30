@@ -1,6 +1,6 @@
 # 如何安全使用一次性手套
 
-> 原文:[https://life hacker . com/how-to-use-disposable-gloves-safely-1842863806](https://lifehacker.com/how-to-use-disposable-gloves-safely-1842863806)
+> 原文：<https://lifehacker.com/how-to-use-disposable-gloves-safely-1842863806>
 
 美国疾病预防控制中心并不建议将 手套作为日常预防措施，但我知道很多人在外出时都选择戴一次性手套，例如， [在杂货店购物](https://lifehacker.com/what-precautions-are-you-taking-at-the-grocery-store-1842840991) 。如果你最终要使用手套，正确佩戴是很重要的。否则，他们可能会做更多的伤害他们的好。
 

@@ -1,6 +1,6 @@
 # 脱离现实的成人儿童文化指南
 
-> 原文:[https://life hacker . com/the-out-of-touch-成人-儿童-文化指南-1844960158](https://lifehacker.com/the-out-of-touch-adults-guide-to-kid-culture-1844960158)
+> 原文：<https://lifehacker.com/the-out-of-touch-adults-guide-to-kid-culture-1844960158>
 
 年轻人的世界可能是一个令人困惑和讨厌的地方，所以让我通过每周指南来帮助你了解这些该死的孩子的生活。(离我的草坪远点。)
 

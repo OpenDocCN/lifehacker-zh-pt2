@@ -1,6 +1,6 @@
 # 艺术家兼教育家珍妮·奥德尔的《如何无所事事》
 
-> 原文:[https://life hacker . com/how-to-do-not-with-artist-educator-Jenny-odell-1836967920](https://lifehacker.com/how-to-do-nothing-with-artist-and-educator-jenny-odell-1836967920)
+> 原文：<https://lifehacker.com/how-to-do-nothing-with-artist-and-educator-jenny-odell-1836967920>
 
 我们都认为自己是“无所事事”的专家，但盯着脸书发呆和真正让大脑休息是有区别的。什么都不做有具体的好处——比如真正活在你的生活中，注意你周围的事情。为了帮助我们建设性地放松，我们邀请了随笔作家兼 TED 演讲者【生活黑客】的人力资源专栏作家 [罗布·沃克](https://lifehacker.com/c/human-resource) ，以及艺术家兼教育家珍妮·奥德尔，她的新书 [*如何无所事事*](https://www.penguinrandomhouse.com/books/600671/how-to-do-nothing-by-jenny-odell/9781612197494/)*教我们如何抵制“注意力经济”我们建议你抬起脚闭上眼睛听。*
 

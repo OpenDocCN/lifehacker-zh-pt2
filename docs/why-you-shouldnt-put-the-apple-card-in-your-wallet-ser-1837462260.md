@@ -1,6 +1,6 @@
 # 为什么你不应该把苹果卡放在钱包里(严肃地说)
 
-> 原文:[https://life hacker . com/why-you-should-not-put-the-apple-card-in-your wallet-ser-1837462260](https://lifehacker.com/why-you-shouldnt-put-the-apple-card-in-your-wallet-ser-1837462260)
+> 原文：<https://lifehacker.com/why-you-shouldnt-put-the-apple-card-in-your-wallet-ser-1837462260>
 
 假设你在周二 注册的时候 [确定订购了实体版的苹果钛金卡，那么你们中的许多人可能会在本周收到你的苹果钛金卡。问题是:你可能不想把苹果的信用卡放在钱包里。](https://twocents.lifehacker.com/apple-card-is-now-available-for-everyone-1837403557) 
 

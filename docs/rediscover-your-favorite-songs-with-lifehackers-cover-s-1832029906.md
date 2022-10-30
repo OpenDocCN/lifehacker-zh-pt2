@@ -1,6 +1,6 @@
 # 使用 Lifehacker 的翻唱歌曲播放列表重新发现您最喜爱的歌曲
 
-> 原文:[https://life hacker . com/re discover-your-favorite-songs-with-life hackers-cover-s-1832029906](https://lifehacker.com/rediscover-your-favorite-songs-with-lifehackers-cover-s-1832029906)
+> 原文：<https://lifehacker.com/rediscover-your-favorite-songs-with-lifehackers-cover-s-1832029906>
 
 过去，所有的大歌手都共用同一本歌本:一套民间曲调、爵士乐标准和借用的百老汇数字。路易和埃拉和杜克和尼娜以及男孩乐队和女孩团体，他们都分享同样的歌曲，直到上世纪中叶，当事情稳定下来。现在我们认为流行歌曲是属于某个艺术家的。在流行音乐中，很多热门歌曲都是由同一个人和 [Sia](https://en.wikipedia.org/wiki/Category:Songs_written_by_Sia_(musician)) 创作的，但我们的文化奖励创作自己作品的歌手，一旦表演者让一首歌出名，我们就认为它是“他们的”，将这些“原创”与“翻唱”分开
 

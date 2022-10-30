@@ -1,6 +1,6 @@
 # 用泡泡纸做一个室内跳房子游戏
 
-> 原文:[https://life hacker . com/make-an-indoor-hopscotch-game-out-of-bubble-wrap-1839352981](https://lifehacker.com/make-an-indoor-hopscotch-game-out-of-bubble-wrap-1839352981)
+> 原文：<https://lifehacker.com/make-an-indoor-hopscotch-game-out-of-bubble-wrap-1839352981>
 
 跳房子是孩子们的最佳活动。它让他们保持相当的安全，同时让他们发泄一些精力。另外，这很有趣。但是当外面很冷或者下雨，孩子们需要跳跃的时候，你会怎么做呢？你用气泡膜把它带进室内。
 

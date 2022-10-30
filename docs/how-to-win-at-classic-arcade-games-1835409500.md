@@ -1,6 +1,6 @@
 # 如何在经典街机游戏中获胜
 
-> 原文:[https://life hacker . com/how-to-win-at-classic-arcade-games-1835409500](https://lifehacker.com/how-to-win-at-classic-arcade-games-1835409500)
+> 原文：<https://lifehacker.com/how-to-win-at-classic-arcade-games-1835409500>
 
 尽管我小时候有很多机会接触电脑游戏和游戏机(啊，那是超级任天堂娱乐系统的神奇之处)，但我喜欢去街机。虽然我可能花了太多时间试图掌握像 *Smash TV* 和*网络雪橇*这样的游戏，当然，还有像*金斧子*和*辛普森一家*这样的小游戏，但我也花了一些时间玩需要更多身体技巧的游戏:滑雪球，无数的篮球游戏，或者你必须把足球扔进洞里的游戏。
 

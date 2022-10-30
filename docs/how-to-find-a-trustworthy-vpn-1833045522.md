@@ -1,6 +1,6 @@
 # 如何找到一个值得信赖的 VPN
 
-> 原文:[https://life hacker . com/how-to-find-a-trust-VPN-1833045522](https://lifehacker.com/how-to-find-a-trustworthy-vpn-1833045522)
+> 原文：<https://lifehacker.com/how-to-find-a-trustworthy-vpn-1833045522>
 
 我们 [在这里](https://lifehacker.com/tag/vpn#_ga=2.36170400.14268030.1551722791-1864099547.1536779123) 谈论了很多关于 VPN(虚拟专用网络)的事情，这是有充分理由的。有许多理由可以说明为什么使用 VPN(合法的或非法的)对您最有利。随着越来越多的互联网用户变得精通技术和具有安全意识，VPN 已经成为主流。有些人甚至会让你相信，如今 VPN [不再是一个建议](https://lifehacker.com/how-to-set-up-opera-s-mobile-vpn-for-secure-browsing-on-1832436689) 而是一个需求。
 

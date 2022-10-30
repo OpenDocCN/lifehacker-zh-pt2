@@ -1,6 +1,6 @@
 # 如何把事情做好，生产力专家大卫·艾伦
 
-> 原文:[https://life hacker . com/how-to-get-things-done-with-productivity-expert-David-1838370690](https://lifehacker.com/how-to-get-things-done-with-productivity-expert-david-1838370690)
+> 原文：<https://lifehacker.com/how-to-get-things-done-with-productivity-expert-david-1838370690>
 
 本周我们和生产率传奇人物大卫·艾伦聊聊 GTD，或者“”把事情做好，这是他的黄金标准时间管理哲学。Lifehacker 的员工也分享他们的工作秘密。了解 Two Cents 作家 Lisa Rowan 使用什么样的老派方法来让自己保持正轨，社交媒体编辑 Tim Mulkerin 如何使用 Slack 进行组织，以及专职作家 Josh Ocampo 在对工作感到厌倦时会做什么。(T4)说真的，乔希，这怎么可能？ )
 

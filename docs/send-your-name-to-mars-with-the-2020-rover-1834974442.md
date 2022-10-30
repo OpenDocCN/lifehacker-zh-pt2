@@ -1,6 +1,6 @@
 # 用 2020 火星车把你的名字送上火星
 
-> 原文:[https://life hacker . com/send-your-name-with the-2020-rover-1834974442](https://lifehacker.com/send-your-name-to-mars-with-the-2020-rover-1834974442)
+> 原文：<https://lifehacker.com/send-your-name-to-mars-with-the-2020-rover-1834974442>
 
 如果你曾经渴望去火星旅行，现在是你的机会。嗯，好吧，*你*不能去火星旅行，但是你的*名字*可以，这是你能得到的最接近的了。
 

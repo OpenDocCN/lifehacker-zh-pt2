@@ -1,4 +1,4 @@
-> 原文:[https://www . av club . com/books-music-and-a-ghost-movie-for-your-kids-holiday-1830988430](https://www.avclub.com/books-music-and-a-spooky-movie-for-your-kids-holiday-1830988430)
+> 原文：<https://www.avclub.com/books-music-and-a-spooky-movie-for-your-kids-holiday-1830988430>
 
 这是一年中最美好的时光，就像歌里唱的那样，父母拿出所有旧的最爱和孩子一起享受的时光:*极地特快* ( [只看书，不看电影](https://tv.avclub.com/our-new-parenting-feature-kicks-off-with-a-look-at-the-1798286953#_ga=2.255792394.321249936.1544461732-22505766.1534172410) ) *，* [*一个查理布朗的圣诞节*](https://tv.avclub.com/a-charlie-brown-christmas-1798229036#_ga=2.255792394.321249936.1544461732-22505766.1534172410) ， [各种*格林奇*化身](https://aux.avclub.com/the-grinch-should-have-quit-after-stealing-christmas-th-1798255719#_ga=2.255792394.321249936.1544461732-22505766.1534172410)(不过，现在，如果你的节日特色清单感觉重复，*影音俱乐部*父母再次提供一些我们最喜欢的节日流行文化，与孩子们分享，包括一些田园诗般的书籍、图片等；一个经典的布偶客串明星；还有一部横跨圣诞节和万圣节的电影。
 

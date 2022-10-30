@@ -1,6 +1,6 @@
 # 如果脸书破坏了你的 iOS 应用，这里有一个解决办法
 
-> 原文:[https://life hacker . com/if-Facebook-broke-your-IOs-apps-heres-a-fix-1844336277](https://lifehacker.com/if-facebook-broke-your-ios-apps-heres-a-fix-1844336277)
+> 原文：<https://lifehacker.com/if-facebook-broke-your-ios-apps-heres-a-fix-1844336277>
 
 一个脸书漏洞导致大量 iOS 应用程序崩溃。据报道，Spotify、Bumble、Mario Kart Tour、PUBG Mobile、Tinder、Venmo 和其他一些网站都出现了崩溃。
 

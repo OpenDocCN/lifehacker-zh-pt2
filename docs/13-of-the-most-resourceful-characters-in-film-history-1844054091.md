@@ -1,6 +1,6 @@
 # 电影史上 13 个最足智多谋的角色
 
-> 原文:[https://life hacker . com/13-of-the-most-resource-characters-in-film-history-1844054091](https://lifehacker.com/13-of-the-most-resourceful-characters-in-film-history-1844054091)
+> 原文：<https://lifehacker.com/13-of-the-most-resourceful-characters-in-film-history-1844054091>
 
 生活黑客的生活方式有各种各样的方式，并不是所有的方式看起来都像我这样，通常是在日常生活中遇到一个问题，然后谷歌一下(“ [如何烹饪谋杀大黄蜂生活黑客](https://skillet.lifehacker.com/how-to-cook-a-murder-hornet-1843298411) ”)。
 

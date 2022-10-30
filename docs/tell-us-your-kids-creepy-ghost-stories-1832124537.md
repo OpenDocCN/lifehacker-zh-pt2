@@ -1,6 +1,6 @@
 # 告诉我们你孩子的恐怖鬼故事
 
-> 原文:[https://life hacker . com/tell-us-your-kids-creeping-ghost-stories-1832124537](https://lifehacker.com/tell-us-your-kids-creepy-ghost-stories-1832124537)
+> 原文：<https://lifehacker.com/tell-us-your-kids-creepy-ghost-stories-1832124537>
 
 有一次，当我的儿子大约 4 或 5 岁的时候，我告诉他我为他感到骄傲，我是多么幸运能成为他的妈妈。
 

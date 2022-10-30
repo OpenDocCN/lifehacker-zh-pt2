@@ -1,6 +1,6 @@
 # 教你的孩子如何应对网上的仇恨言论
 
-> 原文:[https://life hacker . com/teach-your-kids-how-response-to-hate-speech-online-1834722148](https://lifehacker.com/teach-your-kids-how-to-respond-to-hate-speech-online-1834722148)
+> 原文：<https://lifehacker.com/teach-your-kids-how-to-respond-to-hate-speech-online-1834722148>
 
 阻止我让我八岁的儿子和他所有的朋友一起玩流行的在线多人游戏的主要原因不是担心他会把个人信息泄露给讨厌的人。而是我不想让他接触到网上如此盛行的仇恨言论。
 

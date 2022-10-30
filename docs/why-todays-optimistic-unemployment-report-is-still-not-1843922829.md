@@ -1,6 +1,6 @@
 # 为什么今天乐观的失业报告仍然不是好消息
 
-> 原文:[https://life hacker . com/why-todays-乐观-失业-报告-仍未-1843922829](https://lifehacker.com/why-todays-optimistic-unemployment-report-is-still-not-1843922829)
+> 原文：<https://lifehacker.com/why-todays-optimistic-unemployment-report-is-still-not-1843922829>
 
 根据今天发布的就业报告，与自冠状病毒疫情开始以来笼罩经济的阴霾形成对比，美国的就业状况在 5 月份实际上有所改善。失业率降至 13.3%，新增就业岗位 250 万个。这意味着自美国劳工统计局开始追踪月度就业数据以来，4 月份 14.7%的失业率仍然是最高的。
 

@@ -1,6 +1,6 @@
 # 如何观看周日直播 SpaceX 的猎鹰 9 号在大西洋上空爆炸
 
-> 原文:[https://life hacker . com/how-to-watch-the-spacexs-falcon 9-blow-up-over-the-atlan-1841085960](https://lifehacker.com/how-to-watch-the-spacexs-falcon9-blow-up-over-the-atlan-1841085960)
+> 原文：<https://lifehacker.com/how-to-watch-the-spacexs-falcon9-blow-up-over-the-atlan-1841085960>
 
 SpaceX 预计将于周六对 Falco n 9 火箭进行逃逸测试，但“由于溅落和回收天气不佳”，不得不将该活动重新安排到周日相反，测试已被重新安排在周日，6 小时的测试窗口在东部时间上午 8 点正式开放。
 

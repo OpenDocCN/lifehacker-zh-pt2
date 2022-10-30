@@ -1,6 +1,6 @@
 # 安装 macOS Catalina 测试版的最安全方式
 
-> 原文:[https://life hacker . com/the-safesy-to-install-the-MAC OS-catalina-beta-1835836662](https://lifehacker.com/the-safest-way-to-install-the-macos-catalina-beta-1835836662)
+> 原文：<https://lifehacker.com/the-safest-way-to-install-the-macos-catalina-beta-1835836662>
 
 苹果所有最新操作系统版本 [的公开测试版终于发布了](https://twitter.com/marcoarment/status/1143227695838502913)(watch OS 除外)。我们总是警告人们在他们的主要设备上安装这些，因为你不希望你工作和社交所依赖的 iPhone 开始因为一个错误版本的 iOS 而冻结。
 

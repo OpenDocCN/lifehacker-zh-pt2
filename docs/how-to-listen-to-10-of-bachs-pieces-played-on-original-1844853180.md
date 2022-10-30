@@ -1,6 +1,6 @@
 # 如何聆听用原始巴洛克乐器演奏的 10 首巴赫作品
 
-> 原文:[https://life hacker . com/how-to-listen-to-10-of-bachs-pieces-played-on-original-1844853180](https://lifehacker.com/how-to-listen-to-10-of-bachs-pieces-played-on-original-1844853180)
+> 原文：<https://lifehacker.com/how-to-listen-to-10-of-bachs-pieces-played-on-original-1844853180>
 
 古典音乐的爱好者可能会有一个首选的作曲家、时期、或流派，在“古典音乐”的保护伞下有这么多的和[找到与你共鸣的特定作品或风格](https://lifehacker.com/how-to-find-classical-music-you-actually-like-1829062436) 是一种很棒的感觉。如果你对过去的任何一位大牌古典作曲家感兴趣(亨德尔、莫扎特、维瓦尔第、贝多芬等)，你可能会想知道这些作品首次亮相时是什么样的，使用的是那个时期的乐器。(也可能你没有，也没关系，也是。)
 

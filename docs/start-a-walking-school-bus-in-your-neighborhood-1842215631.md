@@ -1,6 +1,6 @@
 # 在你家附近开一辆“步行校车”
 
-> 原文:[https://life hacker . com/start-a-walking-school-bus-in-your-neighborhood-1842215631](https://lifehacker.com/start-a-walking-school-bus-in-your-neighborhood-1842215631)
+> 原文：<https://lifehacker.com/start-a-walking-school-bus-in-your-neighborhood-1842215631>
 
 九岁时，我的儿子和他的朋友最渴望两件事:更多的独立和更多的时间出去玩。我们也正好在从我们家到他学校的中间距离——我们住得太近，没有资格用校车接送，但又太远，让他一个人走这条路让我感到不舒服。因此，我和其他几位家长想出了一个解决方案:我们正在启动一个社区“步行校车”
 

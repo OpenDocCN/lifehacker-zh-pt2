@@ -1,6 +1,6 @@
 # 不要告诉你的孩子他们的医疗程序“一点都不疼”
 
-> 原文:[https://life hacker . com/stop-tell-your-kids-they-medical-procedure-wont-Hur-1834117305](https://lifehacker.com/stop-telling-your-kids-their-medical-procedure-wont-hur-1834117305)
+> 原文：<https://lifehacker.com/stop-telling-your-kids-their-medical-procedure-wont-hur-1834117305>
 
 我清楚地记得我女儿两岁时带她去抽血的情景。当她坐在实验室的椅子上，坐在我的腿上时，她是如此的开心。她向技术员招手，技术员微笑着向她招手。然后他抓住她的小胳膊，在上面扎了一针，她尖叫着血腥的谋杀。她再也没有像进入医疗机构那样高兴了。
 

@@ -1,6 +1,6 @@
 # 获得流动状态的免费环境工作音乐
 
-> 原文:[https://life hacker . com/get-free-ambient-work-music-with-flow-state-1832267396](https://lifehacker.com/get-free-ambient-work-music-with-flow-state-1832267396)
+> 原文：<https://lifehacker.com/get-free-ambient-work-music-with-flow-state-1832267396>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-8oYWfJuMGMA&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-8oYWfJuMGMA&start=0)
 

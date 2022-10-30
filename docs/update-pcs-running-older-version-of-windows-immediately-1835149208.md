@@ -1,6 +1,6 @@
 # 立即更新运行旧版本 Windows 的电脑
 
-> 原文:[https://life hacker . com/update-PCs-running-older-version-of-windows-immediately-1835149208](https://lifehacker.com/update-pcs-running-older-version-of-windows-immediately-1835149208)
+> 原文：<https://lifehacker.com/update-pcs-running-older-version-of-windows-immediately-1835149208>
 
 那些仍在运行 Windows 7 或更早版本的人需要安装关键补丁，以修复最近在旧版本 Windows 上发现的安全漏洞。
 

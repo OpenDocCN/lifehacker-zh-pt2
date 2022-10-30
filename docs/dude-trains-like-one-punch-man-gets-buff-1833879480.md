@@ -1,6 +1,6 @@
 # 这家伙训练得像一拳人，变得强壮
 
-> 原文:[https://kotaku . com/dude-trains-like-one-punch-man-gets-buff-1833879480](https://kotaku.com/dude-trains-like-one-punch-man-gets-buff-1833879480)
+> 原文：<https://kotaku.com/dude-trains-like-one-punch-man-gets-buff-1833879480>
 
 在动漫*一拳人*中，埼玉有一套锻炼程序，包括 100 个俯卧撑、100 个仰卧起坐、100 个深蹲和 10 公里跑。投资者 Sean Seah 真实地尝试了这种方法，结果当然是显而易见的。
 

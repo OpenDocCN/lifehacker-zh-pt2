@@ -1,6 +1,6 @@
 # 最好的油温测试工具仍然是温度计
 
-> 原文:[https://life hacker . com/the-best-oil-temperature-testing-hack-is-still-a-thermo-1842122966](https://lifehacker.com/the-best-oil-temperature-testing-hack-is-still-a-thermo-1842122966)
+> 原文：<https://lifehacker.com/the-best-oil-temperature-testing-hack-is-still-a-thermo-1842122966>
 
 黑客都是关于花更少的时间，使用更少的设备，让一个人的生活更容易。但是有时候没有捷径或替代品。有时候你不得不走远路，或者买合适的工具。一种这样的工具是数字温度计。
 

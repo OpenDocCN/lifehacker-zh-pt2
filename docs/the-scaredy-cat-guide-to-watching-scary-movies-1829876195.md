@@ -1,6 +1,6 @@
 # 看恐怖电影的惊吓猫指南
 
-> 原文:[https://life hacker . com/the-scared y-cat-guide-to-watching-thrill-movies-1829876195](https://lifehacker.com/the-scaredy-cat-guide-to-watching-scary-movies-1829876195)
+> 原文：<https://lifehacker.com/the-scaredy-cat-guide-to-watching-scary-movies-1829876195>
 
 你可以讨厌受到惊吓，但仍然想看恐怖电影。我是一个爱哭的小婴儿，但我没有让这阻止我享受 Babadook，或者先享受后憎恨 T2 10 clover field Lane，T3。我对这两者的策略都很简单:和一个朋友坐在沙发上看，停下来喝一杯。效果很好，每部电影结束后我只做了两个噩梦！在 GQ，我的同事 scaredy-waredy powder puff Jaya sa xena[推荐“和朋友睡在沙发上”的策略，](https://www.gq.com/story/a-cowards-guide-to-halloween-movies) 加上一些其他方法来应对恐怖电影，如果你不是一个死忠的恐怖片迷的话。
 

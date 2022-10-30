@@ -1,6 +1,6 @@
 # “性别揭秘派对”正式退休了
 
-> 原文:[https://life hacker . com/its-official-time-to-retire-the-gender-reveal-party-1844982995](https://lifehacker.com/its-officially-time-to-retire-the-gender-reveal-party-1844982995)
+> 原文：<https://lifehacker.com/its-officially-time-to-retire-the-gender-reveal-party-1844982995>
 
 如果你在过去十年中的任何时候怀孕过，你可能听说过性别揭秘派对的概念。这种趋势可以追溯到一位母亲，她在 2008 年举办了被广泛认为是第一次性别揭示派对。 [詹娜·卡维尼迪斯](https://twitter.com/HighGlossSauce?ref_src=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor) 切蛋糕露出粉色糖霜(是个女孩，乡亲们！)，以及她随后的博客帖子——以及这个想法本身——迅速传播开来。现在是时候停止了。
 

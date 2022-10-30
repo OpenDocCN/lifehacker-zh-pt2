@@ -1,6 +1,6 @@
 # 支持一本新书你能做的最好的事情
 
-> 原文:[https://life hacker . com/the-best-thing-you-can-do-to-support-a-new-book-1839838741](https://lifehacker.com/the-best-thing-you-can-do-to-support-a-new-book-1839838741)
+> 原文：<https://lifehacker.com/the-best-thing-you-can-do-to-support-a-new-book-1839838741>
 
 如果你最喜欢的作家有一本新书要出版，你可以做两件简单的事情来支持它
 

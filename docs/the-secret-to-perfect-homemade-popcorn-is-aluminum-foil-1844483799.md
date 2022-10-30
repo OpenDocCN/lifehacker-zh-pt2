@@ -1,6 +1,6 @@
 # 完美自制爆米花的秘诀是铝箔
 
-> 原文:[https://life hacker . com/the-secret-to-perfect-made-popcorn-is-铝箔-1844483799](https://lifehacker.com/the-secret-to-perfect-homemade-popcorn-is-aluminum-foil-1844483799)
+> 原文：<https://lifehacker.com/the-secret-to-perfect-homemade-popcorn-is-aluminum-foil-1844483799>
 
 爆米花不仅仅是一种小吃；对我来说，这是一种生活方式。我对这种生活方式的执着意味着我总是对学习新方法感兴趣，以加快 或 [的速度，或者提高](https://lifehacker.com/youre-not-using-enough-oil-to-pop-your-popcorn-1827137012) 我的技术——我最近发现了我认为是我完美爆米花程序的最后一部分。
 

@@ -1,6 +1,6 @@
 # 停止惩罚你孩子的良好行为
 
-> 原文:[https://life hacker . com/stop-penalty-your-kids-good-behavior-1835878675](https://lifehacker.com/stop-punishing-your-kids-good-behavior-1835878675)
+> 原文：<https://lifehacker.com/stop-punishing-your-kids-good-behavior-1835878675>
 
 有时候，我会遇到让我不舒服的育儿建议，那是因为我觉得暴露了。这是我在 Tumblr 上看到一个作者名叫 Olofa 的帖子时发生的。题目:“不惩罚你想看到的行为。”
 

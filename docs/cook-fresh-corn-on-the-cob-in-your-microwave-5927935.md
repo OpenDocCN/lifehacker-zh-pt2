@@ -1,6 +1,6 @@
 # 用微波炉烹饪新鲜的玉米棒
 
-> 原文:[https://life hacker . com/cook-fresh-the-corn-in-your-microwave-5927935](https://lifehacker.com/cook-fresh-corn-on-the-cob-in-your-microwave-5927935)
+> 原文：<https://lifehacker.com/cook-fresh-corn-on-the-cob-in-your-microwave-5927935>
 
 夏天可能结束了，但这并不意味着你不能吃玉米棒子。事实上，这是给你的下一餐增加一点夏日气息的好方法，让它更像一次野餐。你甚至可以在工作时享用新鲜的玉米棒，用湿纸巾盖住玉米，用微波炉烹饪。
 

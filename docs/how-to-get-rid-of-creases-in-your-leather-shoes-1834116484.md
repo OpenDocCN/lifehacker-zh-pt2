@@ -1,6 +1,6 @@
 # 如何去除皮鞋上的折痕
 
-> 原文:[https://life hacker . com/how-to-get-out-of-crease-in-your-leather-shoes-1834116484](https://lifehacker.com/how-to-get-rid-of-creases-in-your-leather-shoes-1834116484)
+> 原文：<https://lifehacker.com/how-to-get-rid-of-creases-in-your-leather-shoes-1834116484>
 
 当你拥有一双很棒的鞋子时，你会想要炫耀它们。但是你穿得越多，它们看起来就越糟糕——被打坏了，被难看的折痕破坏了。
 

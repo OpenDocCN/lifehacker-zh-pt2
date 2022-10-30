@@ -1,6 +1,6 @@
 # 使用这个 Chrome 扩展，立即从 YouTube 视频创建书面笔记
 
-> 原文:[https://life hacker . com/create-written-notes-from-YouTube-videos-instant-with-1835990145](https://lifehacker.com/create-written-notes-from-youtube-videos-instantly-with-1835990145)
+> 原文：<https://lifehacker.com/create-written-notes-from-youtube-videos-instantly-with-1835990145>
 
 YouTube 上有大量信息丰富的视频。当你在看一部你希望学到东西的电影时；然而，你必须为以后的话题做好自己的笔记。 [Gnotes](https://chrome.google.com/webstore/detail/gnotes/obfgjjmbheefniinlgjpikhioabmabnd) 是一个可以帮助解决这个问题的扩展。
 

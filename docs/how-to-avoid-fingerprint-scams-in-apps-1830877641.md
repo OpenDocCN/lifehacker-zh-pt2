@@ -1,6 +1,6 @@
 # 如何避免应用程序中的指纹骗局
 
-> 原文:[https://life hacker . com/how-to-avoid-fingerprint-scams-in-apps-1830877641](https://lifehacker.com/how-to-avoid-fingerprint-scams-in-apps-1830877641)
+> 原文：<https://lifehacker.com/how-to-avoid-fingerprint-scams-in-apps-1830877641>
 
 当一个应用程序允许你添加额外的安全性时，这是很棒的——例如，指纹扫描或面部深度图——以访问其内容。万一有人得到了你解锁的设备(或者猜出了你的 PIN 码)，如果他们没有你的手指或 [的脸](https://www.youtube.com/watch?v=_zQ3K-ylk-4) 在附近，他们访问关键应用程序，比如你的银行应用程序，将会更加棘手。
 

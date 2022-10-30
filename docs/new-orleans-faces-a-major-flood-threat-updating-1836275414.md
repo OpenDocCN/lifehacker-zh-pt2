@@ -1,6 +1,6 @@
 # 随着热带风暴巴里的逼近，新奥尔良面临严重的洪水威胁
 
-> 原文:[https://gizmodo . com/new-Orleans-faces-a-major-flood-threat-updating-1836275414](https://gizmodo.com/new-orleans-faces-a-major-flood-threat-updating-1836275414)
+> 原文：<https://gizmodo.com/new-orleans-faces-a-major-flood-threat-updating-1836275414>
 
 热带风暴巴里今天早上刚刚正式形成，但是水位已经 [压向新奥尔良的](https://earther.gizmodo.com/new-orleans-faces-catastrophic-flooding-ahead-of-possib-1836245310) 。退一步说，情况看起来很糟糕，我们地球人将密切关注路易斯安那州和该市为周末即将到来的飓风做准备。
 

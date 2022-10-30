@@ -1,6 +1,6 @@
 # 在你不得不处理财务紧急情况之前，做一个紧急预算
 
-> 原文:[https://life hacker . com/make-an-emergency-budget-before-you-have-to-deal-a-1835071390](https://lifehacker.com/make-an-emergency-budget-before-you-have-to-deal-with-a-1835071390)
+> 原文：<https://lifehacker.com/make-an-emergency-budget-before-you-have-to-deal-with-a-1835071390>
 
 阅读本网站的每个人都听说过一两件关于拥有 [应急基金](https://twocents.lifehacker.com/how-big-your-emergency-fund-should-be-1825319181) 的重要性的事情。但是当这种紧急情况出现时，你如何明智地使用这笔钱呢？
 

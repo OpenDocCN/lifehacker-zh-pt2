@@ -1,6 +1,6 @@
 # 如何发现溺水的游泳者
 
-> 原文:[https://life hacker . com/how-to-spot-the-dropping-1834257199](https://lifehacker.com/how-to-spot-swimmers-who-are-drowning-1834257199)
+> 原文：<https://lifehacker.com/how-to-spot-swimmers-who-are-drowning-1834257199>
 
 溺水应该很容易发现，对吧？受害者在水中挣扎，尖叫着求救。
 

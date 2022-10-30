@@ -1,6 +1,6 @@
 # 2019 年 3 月 25 日这一周，网飞有哪些活动
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week-of-March-2-1833496569](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-march-2-1833496569)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-march-2-1833496569>
 
 周五有一部名为《可卡因岛的传说》的真实纪录片来到网飞，它看起来非常荒谬，我的意思是我肯定会去看。Sayeth 对胶囊的描述:
 

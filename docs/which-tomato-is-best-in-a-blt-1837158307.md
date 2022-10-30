@@ -1,6 +1,6 @@
 # 哪种西红柿最好吃？
 
-> 原文:[https://the take out . com/which-tomato-is-best-in-a-a-BLT-1837158307](https://thetakeout.com/which-tomato-is-best-in-a-blt-1837158307)
+> 原文：<https://thetakeout.com/which-tomato-is-best-in-a-blt-1837158307>
 
 前几天在 Twitter 上，该网站的两位最大的食品名人就 BLT 三明治中番茄的使用进行了非常简短的交锋:
 

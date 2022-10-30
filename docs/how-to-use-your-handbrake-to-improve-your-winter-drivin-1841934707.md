@@ -1,6 +1,6 @@
 # 如何使用你的手刹来提高你的冬季驾驶
 
-> 原文:[https://jalopnik . com/how-to-use your-hand brake-to-improve-your the winter driving-1841934707](https://jalopnik.com/how-to-use-your-handbrake-to-improve-your-winter-drivin-1841934707)
+> 原文：<https://jalopnik.com/how-to-use-your-handbrake-to-improve-your-winter-drivin-1841934707>
 
 我来自德克萨斯州，现在住在东北部，看着我的加拿大丈夫在冬天驾驶汽车，我永远心存敬畏。几周前，在一场暴风雪中，他用手刹做出了一些疯狂的举动，让我看起来就像那个 [皮卡丘迷姆](https://www.dailydot.com/wp-content/uploads/2018/10/pikachu_surprised_meme-e1540570767482.png) 。然而，在雪道上自信驾驶并不是只有北方人才拥有的神秘天赋。下面是奥尼尔 [团队的 Wyatt Knox 提供的一个快速教程，教你如何在冬季驾驶中使用手刹来提高速度。](https://jalopnik.com/tag/team-oneil)
 

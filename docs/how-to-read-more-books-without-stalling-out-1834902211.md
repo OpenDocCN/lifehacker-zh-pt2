@@ -1,6 +1,6 @@
 # 如何在不拖延的情况下读更多的书
 
-> 原文:[https://life hacker . com/how-to-read-more-books-without-stall-out-1834902211](https://lifehacker.com/how-to-read-more-books-without-stalling-out-1834902211)
+> 原文：<https://lifehacker.com/how-to-read-more-books-without-stalling-out-1834902211>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-lIW5jBrrsS0&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-lIW5jBrrsS0&start=0) 
 

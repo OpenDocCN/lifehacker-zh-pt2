@@ -1,6 +1,6 @@
 # 关于 Slickwraps 数据泄露，您需要知道什么
 
-> 原文:[https://life hacker . com/what-you-need-to-know-the-slick wraps-data-breach-1841890120](https://lifehacker.com/what-you-need-to-know-about-the-slickwraps-data-breach-1841890120)
+> 原文：<https://lifehacker.com/what-you-need-to-know-about-the-slickwraps-data-breach-1841890120>
 
 如果你曾经用漂亮的定制乙烯基皮肤装饰过你的笔记本电脑或智能手机，很可能你是从 Slickwraps 那里得到它的——或者至少听说过现成和定制皮肤的流行创造者。不幸的是，Slickwraps 最近遭受了一次数据泄露，影响了超过 857，000 个帐户。如果你过去曾经从他们那里购买过东西，或者在该服务上创建了一个账户，你需要知道以下内容。
 

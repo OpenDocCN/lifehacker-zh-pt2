@@ -1,6 +1,6 @@
 # 如果你错过了健身房，试试这些家庭力量训练
 
-> 原文:[https://life hacker . com/try-these-the-home-strength-tools-if-you-missing-th-1842397038](https://lifehacker.com/try-these-at-home-strength-workouts-if-youre-missing-th-1842397038)
+> 原文：<https://lifehacker.com/try-these-at-home-strength-workouts-if-youre-missing-th-1842397038>
 
 在家锻炼是一种新常态，所以我们中的许多人通常会举重或进行力量训练，但本周他们不得不自己解决问题。好消息是，许多在线教练和健身人士本周已经推出了很棒的家庭锻炼。这里有一些我们最喜欢的。
 

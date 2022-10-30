@@ -1,6 +1,6 @@
 # 如何降低孩子吵闹玩具的音量
 
-> 原文:[https://life hacker . com/how-to-tone-down-your-toys-noise-toys-1838535664](https://lifehacker.com/how-to-tone-down-your-toddlers-noisy-toys-1838535664)
+> 原文：<https://lifehacker.com/how-to-tone-down-your-toddlers-noisy-toys-1838535664>
 
 当我的儿子蹒跚学步时，他有一个火车玩具，它总是在白天和晚上发出轧轧声。没有开关，这该死的东西被附身了，所以我们不得不把它埋在地下室，以便晚上睡觉。当它半夜(在我二楼的床上*把我吵醒时，我已经受够了。我知道我的孩子喜欢它，但是它不是火车就是他的母亲；我们中的一个必须离开。*
 

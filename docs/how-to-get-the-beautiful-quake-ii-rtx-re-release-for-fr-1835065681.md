@@ -1,6 +1,6 @@
 # 如何免费获得美丽的《雷神之锤 2 RTX 版》
 
-> 原文:[https://life hacker . com/how-to-get-the-beautiful-quake-ii-RTX-re-release-for-fr-1835065681](https://lifehacker.com/how-to-get-the-beautiful-quake-ii-rtx-re-release-for-fr-1835065681)
+> 原文：<https://lifehacker.com/how-to-get-the-beautiful-quake-ii-rtx-re-release-for-fr-1835065681>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-unGtBbhaPeU&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-unGtBbhaPeU&start=0) 
 

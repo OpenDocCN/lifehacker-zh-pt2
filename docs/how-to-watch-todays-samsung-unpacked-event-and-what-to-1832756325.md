@@ -1,6 +1,6 @@
 # 如何观看今天的三星 Unpacked 活动，以及可以期待什么
 
-> 原文:[https://life hacker . com/how-to-watch-todays-Samsung-unpacked-event-and-what-to-1832756325](https://lifehacker.com/how-to-watch-todays-samsung-unpacked-event-and-what-to-1832756325)
+> 原文：<https://lifehacker.com/how-to-watch-todays-samsung-unpacked-event-and-what-to-1832756325>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-ISjiJQGJ72o&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-ISjiJQGJ72o&start=0) 
 

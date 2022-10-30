@@ -1,6 +1,6 @@
 # 杀精避孕套不好
 
-> 原文:[https://life hacker . com/杀精-避孕套-不好-1841670199](https://lifehacker.com/spermicidal-condoms-are-no-good-1841670199)
+> 原文：<https://lifehacker.com/spermicidal-condoms-are-no-good-1841670199>
 
 说到节育，一个能杀死精子的避孕套听起来很划算，对吧？但事实证明，它们并不比普通避孕套更有效，而且它们实际上会增加你患性病的风险。
 

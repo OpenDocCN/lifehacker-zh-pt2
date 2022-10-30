@@ -1,6 +1,6 @@
 # 如何观看《捉鬼敢死队》重聚
 
-> 原文:[https://life hacker . com/how-to-watch-the-ghost busters-reunion-1844024390](https://lifehacker.com/how-to-watch-the-ghostbusters-reunion-1844024390)
+> 原文：<https://lifehacker.com/how-to-watch-the-ghostbusters-reunion-1844024390>
 
 乔什·加德又开始了。在利用他在隔离区的时间让经典电影的演员和工作人员重聚后，如" [《指环王》](https://lifehacker.com/how-to-watch-the-lord-of-the-rings-reunion-1843768181) ，" [【七宝奇谋】，](https://www.youtube.com/watch?v=-SF_VyXQpyo) [，【回到未来】](https://www.youtube.com/watch?v=crdYIUdUOhc) ， [，【飞溅】，](https://www.youtube.com/watch?v=MbFIgQoHSJM) ，他现在将《捉鬼敢死队》加入他的"" YouTube 系列。2020 年 6 月 15 日星期一，太平洋标准时间上午 9 点/美国东部时间下午 12 点，为我们带来 1984 年热门电影的团队的主要成员将加入 Gad，讨论他们在片场的时间。
 

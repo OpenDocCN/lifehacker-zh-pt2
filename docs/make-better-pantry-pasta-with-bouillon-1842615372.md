@@ -1,6 +1,6 @@
 # 用肉汤做更好的餐具室面食
 
-> 原文:[https://life hacker . com/make-better-pantry-pasta-with-bouillon-1842615372](https://lifehacker.com/make-better-pantry-pasta-with-bouillon-1842615372)
+> 原文：<https://lifehacker.com/make-better-pantry-pasta-with-bouillon-1842615372>
 
 肉汤块和糊状物是用单一成分添加一大堆风味的简单方法，但它们通常被保留用于汤、炖菜和肉汁。没必要这样限制他们。他们有如此多的东西可以给予。
 

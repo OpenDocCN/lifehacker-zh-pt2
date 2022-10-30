@@ -1,6 +1,6 @@
 # 看看这些重要的圣诞应用程序
 
-> 原文:[https://life hacker . com/the-best-holiday-websites-and-apps-1831173230](https://lifehacker.com/the-best-holiday-websites-and-apps-1831173230)
+> 原文：<https://lifehacker.com/the-best-holiday-websites-and-apps-1831173230>
 
 我不得不说，humbug.com 和节日没有任何联系——唉，marleywasdead.com 也是，但我确信，如果有人决定制作另一部动画版的《圣诞颂歌》,我会大吃一惊。(皮克斯？)
 

@@ -1,6 +1,6 @@
 # 如何换尿布
 
-> 原文:[https://lifehacker.com/how-to-change-a-diaper-1843390285](https://lifehacker.com/how-to-change-a-diaper-1843390285)
+> 原文：<https://lifehacker.com/how-to-change-a-diaper-1843390285>
 
 当然，很多人在成长过程中会有更年轻的兄弟姐妹或表兄弟姐妹，或者他们十几岁时会照看孩子，或者他们的朋友有孩子，或者他们只是有孩子。对这些人来说，换尿布似乎是一件不需要动脑筋的事情。但也有像我和我丈夫这样的人，他们从来没有这样做过，而是给我们自己的新生儿换了第一片尿布。
 

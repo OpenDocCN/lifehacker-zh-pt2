@@ -1,6 +1,6 @@
 # 如何找到一个更有道德的动物园
 
-> 原文:[https://life hacker . com/how-to-find-a-more-ethical-zoo-1835651807](https://lifehacker.com/how-to-find-a-more-ethical-zoo-1835651807)
+> 原文：<https://lifehacker.com/how-to-find-a-more-ethical-zoo-1835651807>
 
 就在不久前，辛辛那提动物园的大猩猩 Harambe 在一名三岁男孩跌入围栏后被射杀，这引发了近代史上一个特别黑暗的迷因。正是像这样的事件，以及过度拥挤的问题，使人们对各地动物园动物的总体待遇和福利提出了质疑。
 

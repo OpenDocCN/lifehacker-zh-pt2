@@ -1,6 +1,6 @@
 # 是时候用一些虚拟的森林浴来减轻压力了
 
-> 原文:[https://life hacker . com/its-time-to-reduce-stress with-some-virtual-forest-bath-1844408868](https://lifehacker.com/its-time-to-reduce-stress-with-some-virtual-forest-bath-1844408868)
+> 原文：<https://lifehacker.com/its-time-to-reduce-stress-with-some-virtual-forest-bath-1844408868>
 
 在森林里散步 [可以是深深的镇定](https://lifehacker.com/i-went-forest-bathing-in-central-park-and-it-didn-t-fee-1797481392) 。即使它只是在人迹罕至的地方，你正在拍蚊子，你也是在一个不同于你可能度过一生的房子和建筑的地方。一次远足或一次露营，甚至在公园里冥想半小时，都可以帮助你放松一分钟，无论是精神上还是身体上。
 

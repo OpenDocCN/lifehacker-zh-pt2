@@ -1,6 +1,6 @@
 # 观看这段 Youtube 视频，支持黑人的命也是命
 
-> 原文:[https://life hacker . com/support-black-lives-matter-by-watching-this-YouTube-vid-1843952737](https://lifehacker.com/support-black-lives-matter-by-watching-this-youtube-vid-1843952737)
+> 原文：<https://lifehacker.com/support-black-lives-matter-by-watching-this-youtube-vid-1843952737>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-bCgLa25fDHM&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-bCgLa25fDHM&start=0) 
 

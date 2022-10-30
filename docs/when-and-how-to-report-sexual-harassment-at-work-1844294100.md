@@ -1,4 +1,4 @@
-> 原文:[https://life hacker . com/when-and-how-to-report-性骚扰-1844294100](https://lifehacker.com/when-and-how-to-report-sexual-harassment-at-work-1844294100)
+> 原文：<https://lifehacker.com/when-and-how-to-report-sexual-harassment-at-work-1844294100>
 
 当你开始一份新工作时，如果你在工作中遇到任何形式的骚扰，你可能会被告知去找人力资源部——但这条途径并不总是对员工最有用的。事实上，根据 T4 zene fits[的一项新调查，五分之一的员工不信任他们的人力资源部门，超过三分之一的受访者说他们根本不去找人力资源部门解决任何问题，至少部分是因为他们害怕报复。当人们在工作中遭遇性骚扰时，这个问题尤其令人担忧。如果他们觉得不能信任人力资源部，他们还能做什么？](https://www.zenefits.com/workest/human-resources-helpful-or-horrible/)
 

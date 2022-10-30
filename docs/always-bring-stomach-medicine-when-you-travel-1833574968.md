@@ -1,6 +1,6 @@
 # 旅行的时候一定要带胃药
 
-> 原文:[https://life hacker . com/always-bring-body-medicine-when-you-travel-1833574968](https://lifehacker.com/always-bring-stomach-medicine-when-you-travel-1833574968)
+> 原文：<https://lifehacker.com/always-bring-stomach-medicine-when-you-travel-1833574968>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-7vaLdpqraK8&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-7vaLdpqraK8&start=0) 
 

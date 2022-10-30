@@ -1,6 +1,6 @@
 # 如何立即为您的设备准备 iOS 14 和 watchOS 7
 
-> 原文:[https://life hacker . com/how-to-prep-your-devices-for-IOs-14-and-watch OS-7-today-1845068276](https://lifehacker.com/how-to-prep-your-devices-for-ios-14-and-watchos-7-today-1845068276)
+> 原文：<https://lifehacker.com/how-to-prep-your-devices-for-ios-14-and-watchos-7-today-1845068276>
 
 啊，终于来了。苹果最新的 iPhone、iPad、Apple Watch 和 Apple TV 操作系统是时候向大众发布了。公共测试版，见鬼去吧。理论上，它们应该在太平洋时间今天上午 10 点左右到达，但在您等待各种设备准备好更新时，您可能需要做一些事情。
 

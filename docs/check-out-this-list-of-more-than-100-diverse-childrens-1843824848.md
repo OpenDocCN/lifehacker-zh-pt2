@@ -1,6 +1,6 @@
 # 看看这份包含 100 多种不同儿童书籍的清单
 
-> 原文:[https://life hacker . com/check-out-this-list-of-than-100-diverse-children-1843824848](https://lifehacker.com/check-out-this-list-of-more-than-100-diverse-childrens-1843824848)
+> 原文：<https://lifehacker.com/check-out-this-list-of-more-than-100-diverse-childrens-1843824848>
 
 鉴于乔治·弗洛伊德(George Floyd)去世后的一周所发生的事件，父母们——尤其是白人父母——应该扪心自问:我做得够吗？我让我的孩子接触到不同的声音和文化了吗？在我家，种族多样性和系统性种族主义是一个持续的话题吗？因为虽然弗洛伊德的死和随后全国各地的抗议活动提供了一个非常响亮而明确的信息，即种族是我们现在需要与我们的孩子谈论的事情*，它也是 [不会——或者不应该——消失的话题](https://lifehacker.com/keep-talking-to-your-kids-about-race-and-racism-1842036347) 。*
 

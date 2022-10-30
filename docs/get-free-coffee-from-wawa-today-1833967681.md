@@ -1,6 +1,6 @@
 # 今天从 Wawa 获得免费咖啡
 
-> 原文:[https://life hacker . com/get-free-coffee-from-wawa-today-1833967681](https://lifehacker.com/get-free-coffee-from-wawa-today-1833967681)
+> 原文：<https://lifehacker.com/get-free-coffee-from-wawa-today-1833967681>
 
 如果你错过了本&杰瑞的 [周二的免费冰淇淋](https://lifehacker.com/hot-to-get-free-ice-cream-at-ben-jerrys-today-1833910363) ，今天你又有了一次免费消费的机会——这次是一杯 [瓦瓦](https://www.wawa.com/about/locations/store-locator) 的咖啡。
 

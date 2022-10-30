@@ -1,6 +1,6 @@
 # 去拿“神圣的土豆！”4 月 3 日之前免费的 iOS 游戏
 
-> 原文:[https://life hacker . com/get-the-holy-potatos-IOs-games-to-April-3-1842620344](https://lifehacker.com/get-the-holy-potatoes-ios-games-for-free-until-april-3-1842620344)
+> 原文：<https://lifehacker.com/get-the-holy-potatoes-ios-games-for-free-until-april-3-1842620344>
 
 来自冠状病毒大隔离的为数不多的一线希望之一是，许多应用程序开发人员在自我隔离和不快乐的时候尽了自己的一份力量。日光工作室，流行的*“神圣的土豆！”【Android、iOS、PC 和 Mac 版的 simulation games 正在免费提供这三款游戏的 iPhone 和 iPadOS 版本。*
 

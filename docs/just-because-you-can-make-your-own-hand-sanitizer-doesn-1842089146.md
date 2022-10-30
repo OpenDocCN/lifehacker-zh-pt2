@@ -1,6 +1,6 @@
 # 仅仅因为你可以自己制作洗手液并不意味着你应该这样做
 
-> 原文:[https://life hacker . com/just-因为你能自制洗手液-does-1842089146](https://lifehacker.com/just-because-you-can-make-your-own-hand-sanitizer-doesn-1842089146)
+> 原文：<https://lifehacker.com/just-because-you-can-make-your-own-hand-sanitizer-doesn-1842089146>
 
 洗手液到处都卖完了。这就是现在生活的现实。但是现在有很多 DIY 食谱 ，你可以自己做，所以我开始测试它们。然后我遇到了问题。
 

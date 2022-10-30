@@ -1,6 +1,6 @@
 # 用烟雾打开运动传感器门
 
-> 原文:[https://life hacker . com/open-a-motion-sensor-door-with-vape-smoke-1830082005](https://lifehacker.com/open-a-motion-sensor-door-with-vape-smoke-1830082005)
+> 原文：<https://lifehacker.com/open-a-motion-sensor-door-with-vape-smoke-1830082005>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-KSvhlxINDEU&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-KSvhlxINDEU&start=0) 
 

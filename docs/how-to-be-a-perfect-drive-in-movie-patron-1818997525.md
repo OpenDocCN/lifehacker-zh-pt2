@@ -1,6 +1,6 @@
 # 如何成为理想的免下车电影院顾客
 
-> 原文:[https://life hacker . com/how-to-be-a-perfect-drive-in-movie-patron-1818997525](https://lifehacker.com/how-to-be-a-perfect-drive-in-movie-patron-1818997525)
+> 原文：<https://lifehacker.com/how-to-be-a-perfect-drive-in-movie-patron-1818997525>
 
 免下车电影院可能看起来像是过去的遗迹，但实际上仍然有大约 300 家 的 [分散在全国各地。无论你是想重温童年时被塞进父母旅行车的时光，还是第一次去旅行，有几件事你应该知道，以便为这次经历做好准备。](https://www.driveinmovie.com/united-states)
 

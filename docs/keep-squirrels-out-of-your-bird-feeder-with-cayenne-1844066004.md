@@ -1,6 +1,6 @@
 # 用卡宴让松鼠远离你的喂鸟器
 
-> 原文:[https://life hacker . com/keep-squirrels-out-of-your-bird-feeder-with cayenne-1844066004](https://lifehacker.com/keep-squirrels-out-of-your-bird-feeder-with-cayenne-1844066004)
+> 原文：<https://lifehacker.com/keep-squirrels-out-of-your-bird-feeder-with-cayenne-1844066004>
 
 松鼠霸占了你为邻居鸟类精心准备的所有种子吗？看着他们如此无耻地偷窃，你是否感到厌倦？—当当地的蓝鸟和红翼乌鸫在安全的距离观看时，什么不是它们的？粗鲁。为了缓解这个问题，你所要做的就是给鸟食加点香料。
 

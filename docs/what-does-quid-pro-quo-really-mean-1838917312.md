@@ -1,6 +1,6 @@
 # “交换条件”到底是什么意思？
 
-> 原文:[https://life hacker . com/what-do-quid-pro-quo-really-mean-1838917312](https://lifehacker.com/what-does-quid-pro-quo-really-mean-1838917312)
+> 原文：<https://lifehacker.com/what-does-quid-pro-quo-really-mean-1838917312>
 
 随着众议院民主党人对弹劾调查的压力越来越大，你可能听说过一个短语:“”比如，特朗普总统敦促乌克兰新当选总统调查前副总统乔·拜登和他的儿子亨特，这是交换条件的一部分吗？那到底是什么意思？
 

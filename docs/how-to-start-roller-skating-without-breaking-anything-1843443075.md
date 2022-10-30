@@ -1,6 +1,6 @@
 # 如何开始轮滑而不弄坏任何东西
 
-> 原文:[https://life hacker . com/how-to-start-roller-skying-without-breaking-what-1843443075](https://lifehacker.com/how-to-start-roller-skating-without-breaking-anything-1843443075)
+> 原文：<https://lifehacker.com/how-to-start-roller-skating-without-breaking-anything-1843443075>
 
 起初，我惊讶地发现我不是唯一一个在隔离区溜旱冰的人。我女儿找到了一双旧的玩具塑料溜冰鞋，仍然很适合她(只是勉强合脚),并翻出了几年前我用来玩德比的溜冰鞋。我们放了一些迪斯尼音乐，在车库里滑冰。
 

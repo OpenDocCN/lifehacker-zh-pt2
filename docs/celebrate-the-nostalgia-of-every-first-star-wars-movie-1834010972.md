@@ -1,6 +1,6 @@
 # 庆祝每一部《星球大战》电影预告的怀旧之情
 
-> 原文:[https://life hacker . com/庆祝每一部《星球大战》电影的怀旧之情-1834010972](https://lifehacker.com/celebrate-the-nostalgia-of-every-first-star-wars-movie-1834010972)
+> 原文：<https://lifehacker.com/celebrate-the-nostalgia-of-every-first-star-wars-movie-1834010972>
 
 我也许应该停止观看新的《星球大战》预告片，但我不会。我清楚地记得十几岁的大卫、大学年龄的大卫和工作的大卫第一次观看各种新的*星球大战*电影的第一个预告，因为感觉不太像。是的，即使是《T4》第一集:幽灵的威胁，它在当时看起来如此神奇，我一定看过，天哪，我都数不清看了多少遍。事后看来，这感觉有多傻。
 

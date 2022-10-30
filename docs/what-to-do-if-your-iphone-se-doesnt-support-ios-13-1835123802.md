@@ -1,6 +1,6 @@
 # 如果你的 iPhone SE 不支持 iOS 13 怎么办
 
-> 原文:[https://life hacker . com/what-to-do-if-your-iphone-se-donts-support-IOs-13-1835123802](https://lifehacker.com/what-to-do-if-your-iphone-se-doesnt-support-ios-13-1835123802)
+> 原文：<https://lifehacker.com/what-to-do-if-your-iphone-se-doesnt-support-ios-13-1835123802>
 
 苹果公司的大型 WWDC 活动就要开始了，还有什么比这更好的方式来开始庆祝活动呢——我们一如既往地没有被邀请——然后思考一下你可能无法在你的旧 iPhone 上使用的所有有趣的功能。
 

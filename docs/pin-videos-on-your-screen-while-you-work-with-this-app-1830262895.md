@@ -1,6 +1,6 @@
 # 使用此应用程序时，将视频固定在屏幕上
 
-> 原文:[https://life hacker . com/pin-videos-on-your-screen-while-you-work-with this-app-1830262895](https://lifehacker.com/pin-videos-on-your-screen-while-you-work-with-this-app-1830262895)
+> 原文：<https://lifehacker.com/pin-videos-on-your-screen-while-you-work-with-this-app-1830262895>
 
 如果您没有双显示器设置或超宽显示器，您在 PC 上进行多任务处理的选择将会受到限制。在你工作的时候放一个 YouTube 视频会更棘手，因为你在主窗口中做的任何事情——比如说 Excel——都会位于你试图观看的内容之上。并排运行两个窗口看起来也不太好。
 

@@ -1,6 +1,6 @@
 # 要想知道某样东西是否好，搜索一下你网友的帖子
 
-> 原文:[https://life hacker . com/to-find-out-if-something s-good-search-for-posts-from-y-1835664005](https://lifehacker.com/to-find-out-if-somethings-good-search-for-posts-from-y-1835664005)
+> 原文：<https://lifehacker.com/to-find-out-if-somethings-good-search-for-posts-from-y-1835664005>
 
 你不断听到某个电视节目、播客或视频游戏。如果你尝试一下，它是否适合你，它的*交易*是什么？你可以看预告片，看看最精彩的部分，或者在维基百科和 IMDb 上阅读，却不知道它实际上是什么*，比如*。或者你可以在网上看看你的朋友是怎么说的。
 

@@ -1,4 +1,4 @@
-> 原文:[https://life hacker . com/this-eggless-flour-pie-is-make-for the-this-times-1842906068](https://lifehacker.com/this-eggless-flourless-pie-was-made-for-these-times-1842906068)
+> 原文：<https://lifehacker.com/this-eggless-flourless-pie-was-made-for-these-times-1842906068>
 
 我尽量避免美食作家的陈词滥调，但对我来说，不谈论我的祖母是合理的困难。最近尤其具有挑战性，因为她过着这个疫情几乎不会改变的生活。她很少出门——由于行动不便，我们雇了人帮她购物——她不喜欢访客，而且她喜欢的大多数食物都是冷冻的或耐储存的。
 

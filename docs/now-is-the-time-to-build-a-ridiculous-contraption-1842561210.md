@@ -1,6 +1,6 @@
 # 现在是时候建造一个可笑的装置了
 
-> 原文:[https://life hacker . com/now-is-the-time-to-build-a-straightly-counting-1842561210](https://lifehacker.com/now-is-the-time-to-build-a-ridiculous-contraption-1842561210)
+> 原文：<https://lifehacker.com/now-is-the-time-to-build-a-ridiculous-contraption-1842561210>
 
 你曾经想和你的孩子一起建造一个可笑的装置吗？那种自制的机器，把一个简单的日常任务——比如，我不知道， [传递盐](https://www.youtube.com/watch?v=nORRgU8sGdE)——变得不必要的复杂，尽管很有效。也许你从来没有想过要花一整个周末想出一个新方法把一块肥皂放到别人手里，但是如果有时间，难道不是现在吗？
 

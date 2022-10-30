@@ -1,6 +1,6 @@
 # 为什么游戏玩家可能不需要 360 赫兹的显示器
 
-> 原文:[https://life hacker . com/why-gamers-possible-done-need-a-360hz-monitor-1840927809](https://lifehacker.com/why-gamers-probably-dont-need-a-360hz-monitor-1840927809)
+> 原文：<https://lifehacker.com/why-gamers-probably-dont-need-a-360hz-monitor-1840927809>
 
 Nvidia 和华硕 [在今年的 CES 上宣布](https://www.nvidia.com/en-us/geforce/news/nvidia-geforce-360hz-esports-gaming-monitor/) 他们已经创造了一款专注于电子竞技的电脑显示器，能够在 1080p 下运行 360Hz。你可能不需要一个，即使你在 *CS:GO* 上越来越好，感觉今年你终于能够提升你的游戏并做大。
 

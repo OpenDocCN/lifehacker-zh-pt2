@@ -1,6 +1,6 @@
 # 不要称之为“在家上学”
 
-> 原文:[https://life hacker . com/don-call-this-home schooling-1842791078](https://lifehacker.com/dont-call-this-homeschooling-1842791078)
+> 原文：<https://lifehacker.com/dont-call-this-homeschooling-1842791078>
 
 我的收件箱里收到了大量的电子邮件:公关人员向家长们提供来自家庭学校专家的评论或家庭学校课程，这些家长现在发现自己兼任全职教师，在我们生活的新的在线学习世界中导航。
 

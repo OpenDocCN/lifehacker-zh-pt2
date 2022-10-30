@@ -1,6 +1,6 @@
 # 如何骗一个蹒跚学步的孩子吃药
 
-> 原文:[https://life hacker . com/how-to-trick-a-幼儿服药-1843584863](https://lifehacker.com/how-to-trick-a-toddler-into-taking-medicine-1843584863)
+> 原文：<https://lifehacker.com/how-to-trick-a-toddler-into-taking-medicine-1843584863>
 
 幼儿和药物并不总是最好的搭配。他们生病了，或者正在长牙，你知道有些药会有帮助，但他们没有吃，逻辑也没有让你去任何地方。父母这些年来已经发展出 [几种不同的招数](https://lifehacker.com/how-to-give-your-kid-medicine-without-a-fight-1820043270) 来处理问题(给他们一个追赶者！蘸根棒棒糖进去！叫它‘超级英雄果汁’！)，但有时什么都不管用，你必须变得更有创造力。
 

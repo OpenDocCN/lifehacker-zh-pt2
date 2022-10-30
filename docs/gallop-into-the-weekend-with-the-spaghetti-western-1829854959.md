@@ -1,6 +1,6 @@
 # 带着“意大利面西部片”飞奔到周末
 
-> 原文:[https://life hacker . com/gallop into the weekend with the spaghetti-western-1829854959](https://lifehacker.com/gallop-into-the-weekend-with-the-spaghetti-western-1829854959)
+> 原文：<https://lifehacker.com/gallop-into-the-weekend-with-the-spaghetti-western-1829854959>
 
 各位周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。这周我要做一杯“西方主题”鸡尾酒，因为推特上的一个男人非常友好地邀请我。
 

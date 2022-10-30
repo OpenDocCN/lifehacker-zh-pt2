@@ -1,6 +1,6 @@
 # 你可以在客厅进行的最佳间歇训练
 
-> 原文:[https://life hacker . com/the-best-interval-workouts-you-can-do-in-your-living-ro-1839162550](https://lifehacker.com/the-best-interval-workouts-you-can-do-in-your-living-ro-1839162550)
+> 原文：<https://lifehacker.com/the-best-interval-workouts-you-can-do-in-your-living-ro-1839162550>
 
 这个月我们探索了 [不同类型的间歇训练](https://lifehacker.com/october-is-for-interval-workouts-1838751041) ，但是跑步和 [划船](https://vitals.lifehacker.com/how-to-do-intervals-on-a-rowing-machine-1838974151) 并不是你有氧运动的唯一方式。短时间的间歇很适合在家锻炼。
 

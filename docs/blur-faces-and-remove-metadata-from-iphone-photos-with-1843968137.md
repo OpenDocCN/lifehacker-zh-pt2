@@ -1,6 +1,6 @@
 # 使用此快捷键模糊面孔并移除 iPhone 照片中的元数据
 
-> 原文:[https://life hacker . com/blur-faces-and-remove-metadata-from-iphone-photos-with-1843968137](https://lifehacker.com/blur-faces-and-remove-metadata-from-iphone-photos-with-1843968137)
+> 原文：<https://lifehacker.com/blur-faces-and-remove-metadata-from-iphone-photos-with-1843968137>
 
 随着反对警察暴行和种族不公正的示威活动在全国各地持续进行，模糊面部和删除元数据的应用程序已经成为任何抗议者工具集的必要组成部分。这种应用程序可以防止不必要的监视和跟踪图像中的人*和*摄影师抓拍的照片。
 

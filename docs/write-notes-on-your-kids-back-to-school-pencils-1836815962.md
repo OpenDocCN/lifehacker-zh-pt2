@@ -1,6 +1,6 @@
 # 在你孩子的返校铅笔上写笔记
 
-> 原文:[https://life hacker . com/write-notes-on-your-kids-back-school-pencils-1836815962](https://lifehacker.com/write-notes-on-your-kids-back-to-school-pencils-1836815962)
+> 原文：<https://lifehacker.com/write-notes-on-your-kids-back-to-school-pencils-1836815962>
 
 几年前，当我儿子开始上幼儿园时，我发誓每天都要在他用锡纸包着的三明治上画一幅可爱的小画。只是一点小东西，让他想起家，让他知道我在想他，让他微笑或感到被爱。
 

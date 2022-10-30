@@ -1,6 +1,6 @@
 # 戴夫·皮尔奇正在主持虚拟阅读和汲取教训
 
-> 原文:[https://life hacker . com/dav-pilkey-is-hosting-virtual-readings-and-drawing-less-1842661151](https://lifehacker.com/dav-pilkey-is-hosting-virtual-readings-and-drawing-less-1842661151)
+> 原文：<https://lifehacker.com/dav-pilkey-is-hosting-virtual-readings-and-drawing-less-1842661151>
 
 戴夫·皮尔奇——裤衩船长和狗人儿童系列图书的作者和插图画家——和我们大多数人一样，被困在家里。因此，他与国会图书馆 的 [团队合作，为我们的孩子朗读，并帮助他们学习画一些他最喜爱的角色。](https://loc.gov/engage)
 

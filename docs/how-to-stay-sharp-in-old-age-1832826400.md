@@ -1,4 +1,4 @@
-> 原文:[https://life hacker . com/how-to-stay-sharp-in-age-1832826400](https://lifehacker.com/how-to-stay-sharp-in-old-age-1832826400)
+> 原文：<https://lifehacker.com/how-to-stay-sharp-in-old-age-1832826400>
 
 在衰老的所有常见后果中，没有什么比记忆力丧失更可怕的了。即使你从未无助地看着你所爱的人死于老年痴呆症——我保证这比听起来更糟糕——你也会很自然地想知道类似的事情是否会发生在你身上。
 

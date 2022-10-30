@@ -1,6 +1,6 @@
 # 从 1990 年的这些教学视频中学习 Rue McClanahan 的宠物护理
 
-> 原文:[https://life hacker . com/learn-pet-care-from-rue-mcclanahan-in-these-instruction-1844651824](https://lifehacker.com/learn-pet-care-from-rue-mcclanahan-in-these-instruction-1844651824)
+> 原文：<https://lifehacker.com/learn-pet-care-from-rue-mcclanahan-in-these-instruction-1844651824>
 
 新冠肺炎疫情重新唤起了人们对传统爱好的兴趣，比如手工艺、编织和园艺，以及其他能让我们在艰难时期感觉更好的活动。两种更受欢迎的消遣/应对机制是 [领养宠物](https://www.usatoday.com/story/life/2020/04/28/coronavirus-empties-animal-shelter-cages-but-pets-still-need-adopting/3023196001/) ，以及 [看《黄金女郎》](https://www.nytimes.com/2020/04/30/business/media/coronavirus-television-netflix-ratings.html)
 

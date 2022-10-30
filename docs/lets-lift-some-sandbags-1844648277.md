@@ -1,6 +1,6 @@
 # 让我们搬一些沙袋
 
-> 原文:[https://lifehacker.com/lets-lift-some-sandbags-1844648277](https://lifehacker.com/lets-lift-some-sandbags-1844648277)
+> 原文：<https://lifehacker.com/lets-lift-some-sandbags-1844648277>
 
 新的一个月，新的 [健身挑战](https://lifehacker.com/c/lifehacker-fitness-challenge) ，朋友们。是时候拿起沙袋了！然后放下。然后再捡起来。是的，继续走。再重复几次就好了。
 

@@ -1,6 +1,6 @@
 # Tinder 的新紧急按钮是与广告技术公司分享你的数据
 
-> 原文:[https://gizmodo . com/tinders-new-panic-button-is-sharing-your-data-with-ad-t-1841184919](https://gizmodo.com/tinders-new-panic-button-is-sharing-your-data-with-ad-t-1841184919)
+> 原文：<https://gizmodo.com/tinders-new-panic-button-is-sharing-your-data-with-ad-t-1841184919>
 
 Tinder 为一些被指控强奸的--[比](https://www.tampabay.com/news/crime/2019/10/24/man-shot-in-davis-islands-case-now-accused-of-raping-tinder-date/) - [恒星](https://www.washingtonpost.com/nation/2019/09/19/an-alleged-serial-rapist-met-victims-bumble-tinder-his-attorneys-say-women-were-there-hook-up/) [男性](https://www.stuff.co.nz/national/crime/117973796/man-denies-raping-tinder-date-and-offering-her-money-to-keep-quiet) 提供了一个约会平台——在一个可怕的案例中， [肢解](https://www.cnn.com/2019/06/25/us/defendant-murder-slash-throat-court/index.html)——他们通过该平台认识的女性。但即使公司做了正确的事情，仍有隐私权衡要考虑。
 

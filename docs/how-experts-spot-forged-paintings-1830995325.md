@@ -1,6 +1,6 @@
 # 专家如何识别假画
 
-> 原文:[https://life hacker . com/how-experts-spot-forged-paints-1830995325](https://lifehacker.com/how-experts-spot-forged-paintings-1830995325)
+> 原文：<https://lifehacker.com/how-experts-spot-forged-paintings-1830995325>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-Amu2mOsIz-w&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-Amu2mOsIz-w&start=0) 
 

@@ -1,6 +1,6 @@
 # 参观安东尼·鲍代恩最受欢迎的新泽西餐馆
 
-> 原文:[https://life hacker . com/visit-Anthony-bourdains-favorite-new-jersey-restaurants-1835615269](https://lifehacker.com/visit-anthony-bourdains-favorite-new-jersey-restaurants-1835615269)
+> 原文：<https://lifehacker.com/visit-anthony-bourdains-favorite-new-jersey-restaurants-1835615269>
 
 本周——在他去世一年后——新泽西官员以“美食之旅”纪念厨师安东尼·鲍代恩，庆祝他家乡的餐馆。
 

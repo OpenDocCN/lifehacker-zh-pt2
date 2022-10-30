@@ -1,6 +1,6 @@
 # 2020 年 4 月 15 日今晚看什么
 
-> 原文:[https://life hacker . com/今晚看什么-2020 年 4 月 15 日-1842882215](https://lifehacker.com/what-to-watch-tonight-april-15-2020-1842882215)
+> 原文：<https://lifehacker.com/what-to-watch-tonight-april-15-2020-1842882215>
 
 每天下午，我们都会收集一些最好的短视频、家庭音乐会和虚拟锻炼，值得一整天去看看。昨天 [我们发现了一种新的方式，可以从全国最大的健身房网络之一获得免费的个性化锻炼，观看费西合唱团的复古秀，还可以免费观看(或赶上)所有五季*公会*](https://lifehacker.com/what-to-watch-tonight-april-14-2020-1842863414)。
 

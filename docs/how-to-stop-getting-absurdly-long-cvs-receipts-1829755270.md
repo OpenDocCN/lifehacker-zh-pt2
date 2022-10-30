@@ -1,6 +1,6 @@
 # 如何停止收到冗长的简历收据
 
-> 原文:[https://life hacker . com/how-to-stop-getting-aburdly-long-CVS-receipts-1829755270](https://lifehacker.com/how-to-stop-getting-absurdly-long-cvs-receipts-1829755270)
+> 原文：<https://lifehacker.com/how-to-stop-getting-absurdly-long-cvs-receipts-1829755270>
 
 CVS 以其长得离谱的收据而闻名。如果每次买口香糖都得到相当于树枝的东西让你烦恼，以下是你可以停止这种疯狂行为的方法。
 

@@ -1,6 +1,6 @@
 # 2020 年 5 月 22-24 日这个周末看什么
 
-> 原文:[https://life hacker . com/本周末看什么-2020 年 5 月 22-24 日-1843609155](https://lifehacker.com/what-to-watch-this-weekend-may-22-24-2020-1843609155)
+> 原文：<https://lifehacker.com/what-to-watch-this-weekend-may-22-24-2020-1843609155>
 
 准备好迎接漫长的周末了吗？如果你想在接下来的三天里看些什么，我们已经在网上搜索了一些你最好的流媒体选项。
 

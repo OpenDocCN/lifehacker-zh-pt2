@@ -1,6 +1,6 @@
 # 如何减少糖的摄入，约尼·弗里霍夫博士
 
-> 原文:[https://life hacker . com/how-to-cut-down-on-sugar with-dr-yoni-freedhoff-1841428343](https://lifehacker.com/how-to-cut-down-on-sugar-with-dr-yoni-freedhoff-1841428343)
+> 原文：<https://lifehacker.com/how-to-cut-down-on-sugar-with-dr-yoni-freedhoff-1841428343>
 
 想减少糖的摄入量？本周，我们将在两位专家的帮助下学习如何做到这一点。首先，Kathleen DesMaisons，上瘾营养学大师和《土豆不是百忧解:糖瘾简单解决方案 》一书的作者，向我们介绍了她逐渐将糖从你的饮食中剔除的实用而有效的方法。然后我们采访了 Yoni Freedhoff 博士，他是《饮食疗法:为什么节食失败以及如何让你的节食奏效》一书的作者，他谈到了为什么我们应该避免饮食时尚以及我们应该关注哪些习惯。
 

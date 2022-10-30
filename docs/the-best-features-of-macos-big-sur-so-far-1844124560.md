@@ -1,6 +1,6 @@
 # 马科斯大苏尔最好的特色(到目前为止)
 
-> 原文:[https://life hacker . com/the-best-features-of-MAC OS-big-sur-so-far-1844124560](https://lifehacker.com/the-best-features-of-macos-big-sur-so-far-1844124560)
+> 原文：<https://lifehacker.com/the-best-features-of-macos-big-sur-so-far-1844124560>
 
 尽管“macOS Sausalito”可能会脱口而出，但大苏尔是加州的标志性建筑，代表着苹果今年的重大操作系统更新。这是多么大的更新啊。如果你讨厌 iOS 或 iPadOS 的外观，我有一些关于 macOS 的真正的坏消息。你可能想坐下来。
 

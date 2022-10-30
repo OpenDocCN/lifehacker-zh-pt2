@@ -1,6 +1,6 @@
 # 用你的吸尘器和一双紧身衣寻找小物品
 
-> 原文:[https://life hacker . com/find-small-items with your-vacuum and-a-pair-of-tighters-1831607552](https://lifehacker.com/find-small-items-with-your-vacuum-and-a-pair-of-tights-1831607552)
+> 原文：<https://lifehacker.com/find-small-items-with-your-vacuum-and-a-pair-of-tights-1831607552>
 
 出于某种原因，我们掉在地上的小东西从来都不是我们可以忍受失去的。不，它总是回到一对最喜欢的耳环，你的结婚戒指，或者一粒你不能错过的药丸。下一次这种情况发生时，不要惊慌——拿一些袜子和你的吸尘器。
 

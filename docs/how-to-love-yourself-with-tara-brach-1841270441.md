@@ -1,6 +1,6 @@
 # 如何爱自己，泰拉·布拉克
 
-> 原文:[https://life hacker . com/how-to-love-yourself with-Tara-brach-1841270441](https://lifehacker.com/how-to-love-yourself-with-tara-brach-1841270441)
+> 原文：<https://lifehacker.com/how-to-love-yourself-with-tara-brach-1841270441>
 
 本周，我们将跟随著名的心理治疗师和佛教冥想老师 Tara Brach 学习如何练习真正的自怜。塔拉是 [*激进的接受:以佛心*](https://www.amazon.com/Radical-Acceptance-Embracing-Heart-Buddha/dp/0553380990?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-love-yourself-with-tara-brach-1841270441&asc_source=&tag=kinjalifehackerlink-20) 拥抱你的生活，以及最近的 [*激进的慈悲:用雨*](https://www.amazon.com/Radical-Compassion-Learning-Yourself-Practice/dp/0525522816?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-love-yourself-with-tara-brach-1841270441&asc_source=&tag=kinjalifehackerlink-20) *的修行学习爱自己和你的世界的作者。*除了在她的职业生涯中发表过数百次关于正念和冥想的演讲之外，Tara 的同名播客每月的下载量也超过了 150 万次。
 

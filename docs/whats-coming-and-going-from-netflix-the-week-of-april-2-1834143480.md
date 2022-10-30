@@ -1,6 +1,6 @@
 # 2019 年 4 月 22 日这一周，网飞有哪些活动
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week-of-April-2-1834143480](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-april-2-1834143480)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-april-2-1834143480>
 
 无论在这场灾难性的变幻莫测的*中发生了什么，我认为你应该和蒂姆·罗宾逊*(周二 ) 一起离开，这既令人恐惧又耐人寻味，这也是本周你在网飞能做的最好的事情。据称，这是一部由喜剧中心 *Detroiters* 的《孤岛》为您带来的喜剧小品(我一定是看多了《网飞》，因为这是我第一次听说这部剧)。像瓦妮莎·贝尔和威尔·福特这样的 SNL 校友也出现了，我听说这个系列的特色是在加菲猫主题的房子里进行干预。如果你厌倦了成人游泳或迷幻药，这是给你的。
 

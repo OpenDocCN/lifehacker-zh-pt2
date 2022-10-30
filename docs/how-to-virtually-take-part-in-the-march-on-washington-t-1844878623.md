@@ -1,6 +1,6 @@
 # 如何虚拟地参与今天的华盛顿游行
 
-> 原文:[https://life hacker . com/how-to-virtual-take-in-March-on-Washington-t-1844878623](https://lifehacker.com/how-to-virtually-take-part-in-the-march-on-washington-t-1844878623)
+> 原文：<https://lifehacker.com/how-to-virtually-take-part-in-the-march-on-washington-t-1844878623>
 
 57 年前的今天，小马丁·路德·金博士站在林肯纪念堂的台阶上发表了他那不朽的“我有一个梦想”的演讲，结束了“华盛顿争取工作和自由大游行”。今天下午，另一场针对华盛顿的游行将在同一地点举行——这一次的特点是一些被警察杀害或枪杀的美国黑人家庭成员。如果你不能去华盛顿特区参加这个活动，今天就来看看这个节目。
 

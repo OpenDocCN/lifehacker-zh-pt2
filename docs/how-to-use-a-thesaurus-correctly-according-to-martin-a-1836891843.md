@@ -1,6 +1,6 @@
 # 根据马丁·艾米斯的说法，如何正确使用同义词词典
 
-> 原文:[https://life hacker . com/how-to-use-a-a-thesaurus-only-by-Martin-a-1836891843](https://lifehacker.com/how-to-use-a-thesaurus-correctly-according-to-martin-a-1836891843)
+> 原文：<https://lifehacker.com/how-to-use-a-thesaurus-correctly-according-to-martin-a-1836891843>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-UnWIsWoUQuk&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-UnWIsWoUQuk&start=0) 
 

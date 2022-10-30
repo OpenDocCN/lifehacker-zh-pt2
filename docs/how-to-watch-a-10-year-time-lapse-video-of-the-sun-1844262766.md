@@ -1,6 +1,6 @@
 # 如何观看太阳的 10 年延时视频
 
-> 原文:[https://life hacker . com/how-to-watch-a-10-time-lapse-of-sun-1844262766](https://lifehacker.com/how-to-watch-a-10-year-time-lapse-video-of-the-sun-1844262766)
+> 原文：<https://lifehacker.com/how-to-watch-a-10-year-time-lapse-video-of-the-sun-1844262766>
 
 小时候，我们被告知不要盯着(甚至不要直视 )太阳，因为它会伤害我们的眼睛。当然，这是有道理的，但这也增加了太阳的神秘。我们知道它很亮，但它到底长什么样？多亏了美国国家航空航天局，你再也不会感到惊讶了，因为他们最近发布了一段关于太阳的 [10 年延时视频](https://www.nasa.gov/feature/goddard/2020/watch-a-10-year-time-lapse-of-sun-from-nasa-s-sdo) 。以下是观看方法和您将看到的内容。
 

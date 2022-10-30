@@ -1,6 +1,6 @@
 # 如何在家修剪孩子的头发
 
-> 原文:[https://life hacker . com/how-to-trim-your-kid-s-hair-home-1842725624](https://lifehacker.com/how-to-trim-your-kid-s-hair-at-home-1842725624)
+> 原文：<https://lifehacker.com/how-to-trim-your-kid-s-hair-at-home-1842725624>
 
 在疫情大受欢迎的几个月前，我的儿子——他一直留着一个相当整洁的发型——突然决定他更喜欢这个发型。嗯，他要么喜欢它长一点，要么他真的不想一直坐着理发。更糟糕的是，我现在和一个 9 岁的男孩被隔离在一起，这个男孩从去年 12 月起就没有剪过头发。
 

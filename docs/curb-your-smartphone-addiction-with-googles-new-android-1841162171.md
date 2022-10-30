@@ -1,6 +1,6 @@
 # 用谷歌新的安卓应用抑制你的智能手机瘾
 
-> 原文:[https://life hacker . com/curb-your-smart phone-addiction-with-Google-new-Android-1841162171](https://lifehacker.com/curb-your-smartphone-addiction-with-googles-new-android-1841162171)
+> 原文：<https://lifehacker.com/curb-your-smartphone-addiction-with-googles-new-android-1841162171>
 
 Android: 你的 Android 配备了大量有用的工具来控制你对智能手机的依赖。但是像谷歌的“ [”数字健康](https://lifehacker.com/the-best-new-features-in-android-q-1834620582) ”功能的设置更多的是功能性而不是趣味性。他们会鼓励你少用你的设备，但他们缺乏某种天赋。
 

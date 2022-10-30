@@ -1,6 +1,6 @@
 # 使用这些热键自定义您的 Mac 屏幕截图
 
-> 原文:[https://life hacker . com/customize-your-MAC-screens-with-these-hotkeys-1841481397](https://lifehacker.com/customize-your-mac-screenshots-with-these-hotkeys-1841481397)
+> 原文：<https://lifehacker.com/customize-your-mac-screenshots-with-these-hotkeys-1841481397>
 
 我们之前讨论过一些快速截取 macOS 屏幕截图的小技巧——是的，我总是要查找哪个键盘快捷键能让你捕捉有和没有 [花哨边框和阴影](https://lifehacker.com/how-to-take-prettier-screenshots-on-a-mac-1828009545) 的窗口。但是常驻生活黑客金融女王出身的截图大师 [丽莎·罗文](https://kinja.com/lisatella) 最近向我透露了一个我以前不知道的 macOS 中的小屏幕黑客。我现在与你分享这个。
 

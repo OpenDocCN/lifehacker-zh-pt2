@@ -1,6 +1,6 @@
 # 如何在家里开心，与格雷琴·鲁宾
 
-> 原文:[https://life hacker . com/how-to-happy-home-with-gretchen-Rubin-1842836295](https://lifehacker.com/how-to-be-happy-at-home-with-gretchen-rubin-1842836295)
+> 原文：<https://lifehacker.com/how-to-be-happy-at-home-with-gretchen-rubin-1842836295>
 
 格雷琴·鲁宾本周加入我们，谈论她和她的家人在疫情期间是如何快乐地呆在家里的——以及我们如何也能如此。听她谈论那些帮助她在混乱的世界中保持内心平静的规则、惯例和哲学。
 

@@ -1,6 +1,6 @@
 # 我们在 2019 年工作过的最好的音乐
 
-> 原文:[https://life hacker . com/the-best-music-we-work-to-in-2019-1840562860](https://lifehacker.com/the-best-music-we-worked-to-in-2019-1840562860)
+> 原文：<https://lifehacker.com/the-best-music-we-worked-to-in-2019-1840562860>
 
 一半的 Lifehacker 员工不能开着音乐工作。另一半需要它。以下是我们今年在制作 Lifehacker 时听到的内容。
 

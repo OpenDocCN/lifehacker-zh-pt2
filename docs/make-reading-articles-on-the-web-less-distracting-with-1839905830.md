@@ -1,6 +1,6 @@
 # 有了 Chrome 扩展，阅读网页上的文章就不会那么令人分心
 
-> 原文:[https://life hacker . com/make-reading-articles-on-the-web-less-distracting-with-1839905830](https://lifehacker.com/make-reading-articles-on-the-web-less-distracting-with-1839905830)
+> 原文：<https://lifehacker.com/make-reading-articles-on-the-web-less-distracting-with-1839905830>
 
 有时候在网上阅读文章会让人分心。对你正在阅读的东西做笔记也会变得相当复杂，这取决于文章的复杂程度。 [Readermode](https://readermode.io/) 是 Chrome 的一个扩展，可以帮上忙。启用后，该扩展允许您自定义如何在网上查看文章，并直接在文章上突出显示和注释，以便您稍后可以回到重要的部分。
 

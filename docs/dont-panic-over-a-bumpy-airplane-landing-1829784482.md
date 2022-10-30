@@ -1,6 +1,6 @@
 # 不要因为飞机着陆颠簸而恐慌
 
-> 原文:[https://life hacker . com/don-t-panic-over-a-pound-a-plant-landing-1829784482](https://lifehacker.com/dont-panic-over-a-bumpy-airplane-landing-1829784482)
+> 原文：<https://lifehacker.com/dont-panic-over-a-bumpy-airplane-landing-1829784482>
 
 如果你是一个紧张的飞行员，任何类型的湍流都是令人担忧的。当你在着陆过程中离地面越来越近时，这尤其糟糕。有许多颠簸和颠簸在发生时会让人感到害怕——但这些都不是你训练出来的 T2 飞行员能应付的。
 

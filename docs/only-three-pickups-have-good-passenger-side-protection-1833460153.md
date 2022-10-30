@@ -1,6 +1,6 @@
 # 只有三款皮卡拥有良好的乘客侧保护:IIHS
 
-> 原文:[https://jalopnik . com/only-three-picks-have-good-passenger-side-protection-1833460153](https://jalopnik.com/only-three-pickups-have-good-passenger-side-protection-1833460153)
+> 原文：<https://jalopnik.com/only-three-pickups-have-good-passenger-side-protection-1833460153>
 
 自从 [高速公路安全保险研究所](https://jalopnik.com/tag/iihs) 在 2017 年开始让车辆接受其乘客侧小重叠碰撞测试以来，它一直很难通过。皮卡也不例外。
 

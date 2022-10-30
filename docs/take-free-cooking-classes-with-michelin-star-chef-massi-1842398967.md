@@ -1,6 +1,6 @@
 # 与米其林星级厨师马西莫·博图拉一起参加免费烹饪课程
 
-> 原文:[https://life hacker . com/take-free-cooking-classes-with-Michelin-star-chef-massi-1842398967](https://lifehacker.com/take-free-cooking-classes-with-michelin-star-chef-massi-1842398967)
+> 原文：<https://lifehacker.com/take-free-cooking-classes-with-michelin-star-chef-massi-1842398967>
 
 如果你本周在家做饭，而不是叫外卖或外卖，米其林明星厨师马西莫·博图拉(Massimo Bottura)会给你带来惊喜:他正在 Instagram 上教授烹饪课程。
 

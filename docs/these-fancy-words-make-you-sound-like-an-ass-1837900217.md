@@ -1,6 +1,6 @@
 # 这些华丽的词藻让你听起来像个蠢驴
 
-> 原文:[https://life hacker . com/these-fancy-words-make-you-sound-like-a-ass-1837900217](https://lifehacker.com/these-fancy-words-make-you-sound-like-an-ass-1837900217)
+> 原文：<https://lifehacker.com/these-fancy-words-make-you-sound-like-an-ass-1837900217>
 
 从前，我在一家报社工作。那家报纸正在寻找削减成本的方法，这意味着裁员、买断和强制无薪休假的组合。为了用更少的人创造同样多的内容，我们需要有创造性。管理层告诉我们，我们都应该想办法重新定位我们的新闻文章。
 

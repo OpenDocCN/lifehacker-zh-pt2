@@ -1,6 +1,6 @@
 # 去它的吧，直接把你的咖啡压进一罐炼乳里
 
-> 原文:[https://life hacker . com/screw-it-aero press-your-coffee-directly to-a-can-of-1842884491](https://lifehacker.com/screw-it-aeropress-your-coffee-directly-into-a-can-of-1842884491)
+> 原文：<https://lifehacker.com/screw-it-aeropress-your-coffee-directly-into-a-can-of-1842884491>
 
 如果你是一个聪明又有品味的人，你可能已经为你的 [检疫咖啡](https://skillet.lifehacker.com/these-emergency-coffee-creamers-might-be-hiding-in-your-1842649267) 购买了几罐炼乳。它是甜的、奶油状的、耐储存的，而且——正如我的这个非常聪明的推特用户所指出的——它也是*空气压制的完美尺寸。*
 

@@ -1,6 +1,6 @@
 # 以下是民主党总统候选人辩论第一天你错过的内容
 
-> 原文:[https://life hacker . com/the-best-and-worth-moments-from-day-one-of-the-democr-1835908634](https://lifehacker.com/the-best-and-worst-moments-from-day-one-of-the-democr-1835908634)
+> 原文：<https://lifehacker.com/the-best-and-worst-moments-from-day-one-of-the-democr-1835908634>
 
 如果你错过了，周三晚上是在迈阿密举行的两场民主党总统候选人辩论的第一场——发生了很多事情。贝托·奥罗克(Beto O'Rourke)与得克萨斯州众议员朱利安·卡斯特罗(Julian Castro)就移民问题进行了辩论，参议员伊丽莎白·沃伦最终批准了全民医疗保险(Medicare for all)，一些候选人在首次向全国观众介绍自己时大放异彩，而其他人则努力让自己的声音在候选人的海洋中被听到。
 

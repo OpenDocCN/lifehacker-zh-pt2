@@ -1,6 +1,6 @@
 # 去迪斯尼世界进行一次虚拟旅行
 
-> 原文:[https://life hacker . com/take-a-virtual-trip-to-Disney-world-1842589452](https://lifehacker.com/take-a-virtual-trip-to-disney-world-1842589452)
+> 原文：<https://lifehacker.com/take-a-virtual-trip-to-disney-world-1842589452>
 
 如果几周前，你告诉你的孩子，你们都将去迪斯尼世界旅行，然后加上一句警告，“在我们自己舒适的家里”，很可能会发生叛乱。但是，众所周知，情况已经发生了变化。标准降低了。现在，坐在客厅的沙发上玩飞溅山似乎不是一个坏主意。
 

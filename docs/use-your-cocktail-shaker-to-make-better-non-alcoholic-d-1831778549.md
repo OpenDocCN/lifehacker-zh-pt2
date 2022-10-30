@@ -1,6 +1,6 @@
 # 用你的鸡尾酒调酒器制作更好的不含酒精的饮料
 
-> 原文:[https://life hacker . com/use-your-cocktail-shaker-to-make-better-non-alcohol-d-1831778549](https://lifehacker.com/use-your-cocktail-shaker-to-make-better-non-alcoholic-d-1831778549)
+> 原文：<https://lifehacker.com/use-your-cocktail-shaker-to-make-better-non-alcoholic-d-1831778549>
 
 制作鸡尾酒时，摇壶有几个功能。它混合、充气并快速冷却配料，正如作家切尔西·法甘在 Twitter 上指出的那样，没有必要将这一工具局限于酒精欢乐时光。
 

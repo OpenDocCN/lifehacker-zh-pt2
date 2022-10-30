@@ -1,6 +1,6 @@
 # 如何下载微软 Chromium Edge 浏览器 Mac 版的泄露版本
 
-> 原文:[https://life hacker . com/how-to-download-the-leaved-version-of-Microsoft-chromi-1834720264](https://lifehacker.com/how-to-download-the-leaked-version-of-microsofts-chromi-1834720264)
+> 原文：<https://lifehacker.com/how-to-download-the-leaked-version-of-microsofts-chromi-1834720264>
 
 ***更新 5/20/19，下午 1:00:**微软发布了其基于 Chromium 的 MAC OS Edge 浏览器的第一个正式版本，你可以在这里找到*[](https://www.microsoftedgeinsider.com/en-us/download/)**——点击金丝雀频道的下拉菜单找到它。**
 

@@ -1,6 +1,6 @@
 # 如何在鲨鱼袭击中幸存
 
-> 原文:[https://life hacker . com/how-to-survive-a-shark-attack-1786074827](https://lifehacker.com/how-to-survive-a-shark-attack-1786074827)
+> 原文：<https://lifehacker.com/how-to-survive-a-shark-attack-1786074827>
 
 鲨鱼并不真的喜欢人类的味道，但它们糟糕的视力和海滩游客的溅水声会导致鲨鱼把你当成它们本来想吃的东西。如果你看到一只鱼鳍划过水面，而《大白鲨》*中的主题开始播放，你应该这么做。*
 

@@ -1,6 +1,6 @@
 # 用漏勺和管道清洁器娱乐你的孩子
 
-> 原文:[https://life hacker . com/entertain-your-culture-and-a colander-and-pipe-cleaner-1840995506](https://lifehacker.com/entertain-your-toddler-with-a-colander-and-pipe-cleaner-1840995506)
+> 原文：<https://lifehacker.com/entertain-your-toddler-with-a-colander-and-pipe-cleaner-1840995506>
 
 大多数父母都知道，虽然孩子们喜欢玩玩具，但他们更喜欢玩非玩具。 [实际的电视遥控器](https://offspring.lifehacker.com/the-best-baby-toy-might-be-a-tv-remote-1829231469) 而不是你买的亮塑料版。一个木勺和一个汤锅，而不是你认为他们会发疯的玩具鼓。在这个清单上，让我们添加:一个漏勺，加上一些管道清洁器。
 

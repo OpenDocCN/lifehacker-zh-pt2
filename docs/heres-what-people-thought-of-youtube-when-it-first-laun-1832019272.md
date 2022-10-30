@@ -1,6 +1,6 @@
 # 以下是 2000 年代中期 YouTube 刚推出时人们对它的看法
 
-> 原文:[https://gizmodo . com/heres-what-people-thought-when-it-first-laun-1832019272](https://gizmodo.com/heres-what-people-thought-of-youtube-when-it-first-laun-1832019272)
+> 原文：<https://gizmodo.com/heres-what-people-thought-of-youtube-when-it-first-laun-1832019272>
 
 15 年前，当 YouTube 首次推出时，许多人都不知道该如何看待它。任何人都可以上传视频到这项服务？为什么我想听一些讨厌的青少年在他们的卧室里说些什么？
 

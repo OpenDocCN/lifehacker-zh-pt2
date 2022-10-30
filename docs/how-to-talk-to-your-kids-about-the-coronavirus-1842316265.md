@@ -1,6 +1,6 @@
 # 如何和你的孩子谈论冠状病毒
 
-> 原文:[https://life hacker . com/how-to-talk-to-your-kids-the-coronavirus-1842316265](https://lifehacker.com/how-to-talk-to-your-kids-about-the-coronavirus-1842316265)
+> 原文：<https://lifehacker.com/how-to-talk-to-your-kids-about-the-coronavirus-1842316265>
 
 有一天，我九岁的儿子对我宣布:“如果我们学校的一个学生感染了冠状病毒，他们会让所有人停课。”。“为什么每个人都在谈论这个？”他在两个方面都是对的——他们可能会关闭他的学校(即使一名学生没有检测出疾病阳性),这是我们所到之处所有人都在谈论的事情。
 

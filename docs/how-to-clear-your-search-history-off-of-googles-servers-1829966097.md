@@ -1,6 +1,6 @@
 # 如何用谷歌的最新更新清除你在谷歌服务器上的搜索记录
 
-> 原文:[https://life hacker . com/how-to-clear-your-search-history-off-the-Google-servers-1829966097](https://lifehacker.com/how-to-clear-your-search-history-off-of-googles-servers-1829966097)
+> 原文：<https://lifehacker.com/how-to-clear-your-search-history-off-of-googles-servers-1829966097>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-Uvbz5mj6E00&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-Uvbz5mj6E00&start=0) 
 

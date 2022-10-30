@@ -1,6 +1,6 @@
 # 也不要冲洗面巾纸
 
-> 原文:[https://lifehacker.com/dont-flush-kleenex-either-1844497291](https://lifehacker.com/dont-flush-kleenex-either-1844497291)
+> 原文：<https://lifehacker.com/dont-flush-kleenex-either-1844497291>
 
 回到三月和四月，那些令人兴奋的早期疫情时代，没有什么比卫生纸更重要了。我们打算买下来弄脏然后扔掉的东西突然变得足够珍贵，以至于引发了杂货店过道里的斗殴和好事多 T3 失控的人群，许多人被迫寻找替代品。然而，大多数 TP 替代品的问题是，它们永远不应该被冲洗——这包括一个你可能认为相对良性的常见问题:面部组织。
 

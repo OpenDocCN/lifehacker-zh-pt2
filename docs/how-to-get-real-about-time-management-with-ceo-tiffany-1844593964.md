@@ -1,6 +1,6 @@
 # 首席执行官 Tiffany Dufu 告诉我们如何真正管理时间
 
-> 原文:[https://life hacker . com/how-to-get-real-about-time-management-with-CEO-Tiffany-1844593964](https://lifehacker.com/how-to-get-real-about-time-management-with-ceo-tiffany-1844593964)
+> 原文：<https://lifehacker.com/how-to-get-real-about-time-management-with-ceo-tiffany-1844593964>
 
 本周，我们将在蒂芙尼·杜芙的帮助下学习如何提高我们的时间管理技巧，她是的创始人兼首席执行官。剧透一下:有效的时间管理不是时间阻塞、任务清单或番茄工作法。相反，它更多的是关于如何明确你的优先事项，如何利用你的日历来完成事情，以及在争论哪些任务最重要时问自己的问题。
 

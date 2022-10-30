@@ -1,6 +1,6 @@
 # 如何“拥抱”患有自闭症的孩子
 
-> 原文:[https://life hacker . com/how-to-hug a-kid-with-autism-1834172258](https://lifehacker.com/how-to-hug-a-kid-with-autism-1834172258)
+> 原文：<https://lifehacker.com/how-to-hug-a-kid-with-autism-1834172258>
 
 这是自闭症意识月，为了纪念它，芝麻街向我们展示了如何更好地支持儿童。他们发布了几部新的短片，主角是该节目中第一个患有自闭症的角色朱莉娅。
 

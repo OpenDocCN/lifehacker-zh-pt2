@@ -1,4 +1,4 @@
-> 原文:[https://life hacker . com/im-comedian-demi-adejuyigbe-and-this-is-how-I-work-1839948702](https://lifehacker.com/im-comedian-demi-adejuyigbe-and-this-is-how-i-work-1839948702)
+> 原文：<https://lifehacker.com/im-comedian-demi-adejuyigbe-and-this-is-how-i-work-1839948702>
 
 黛米·阿德居伊格贝(Demi Adejuyigbe)曾为 *The Good Place* 和*詹姆斯·柯登*撰稿，共同主持了播客[*Punch Up The Jam*](https://punchupthejam.com/)和 [*吉尔莫盖伊*](http://www.gilmoreguysshow.com/) ，并将 9 月 21 日的变成了互联网假日。他写的假歌片尾曲为[](https://www.youtube.com/watch?v=gxtk8Syp2X8)*[](https://www.youtube.com/watch?v=BZ4atvktaPY)*[*滚出去*](https://www.youtube.com/watch?v=Qo1zR9Jmiek)[*无限战争*](https://www.youtube.com/watch?v=dG7GlmrHS78)[*准备好的玩家一个*](https://www.youtube.com/watch?v=VMBylNJQEbg)他因在互联网上乱搞而出名，但他现在最公开的项目是他在洛杉矶共同主持的现场喜剧表演。通过电子邮件，黛米告诉了我他的职业道路，他的大胆计划，以及他如何与墨西哥流浪乐队一起制作了 9 月 21 日的视频。**
 

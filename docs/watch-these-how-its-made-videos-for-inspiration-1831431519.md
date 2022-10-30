@@ -1,6 +1,6 @@
 # 观看这些“它是如何制作的”视频，寻找灵感
 
-> 原文:[https://life hacker . com/watch-these-how-made-videos-for-inspiration-1831431519](https://lifehacker.com/watch-these-how-its-made-videos-for-inspiration-1831431519)
+> 原文：<https://lifehacker.com/watch-these-how-its-made-videos-for-inspiration-1831431519>
 
 “它是如何制作的”视频的承诺是，它会让你大吃一惊。这在设计博客 Core77 收集的 2018 年最佳“过程色情”视频中显而易见。每个视频都会在你的大脑中捕捉到一些东西:哦，*这就是*工作原理！例如，这里有一台打印陶瓷的机器:
 

@@ -1,6 +1,6 @@
 # 如何停止对所有事情的过度反应
 
-> 原文:[https://life hacker . com/how-to-stop-over-reaction-to-everything-1680390482](https://lifehacker.com/how-to-stop-overreacting-to-everything-1680390482)
+> 原文：<https://lifehacker.com/how-to-stop-overreacting-to-everything-1680390482>
 
 偶尔的过度反应没有什么不对，但是如果你经常感到不安、愤怒或过度防御，这对你和你周围的人来说都是不愉快的。以下是停止的方法。
 

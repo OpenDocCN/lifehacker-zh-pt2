@@ -1,6 +1,6 @@
 # 我用低预算的习惯和愚蠢的技巧来让旧车活得更久
 
-> 原文:[https://jalopnik . com/low-budget-habits-and-goofy-tricks-I-use-to-keep old-ca-1840328844](https://jalopnik.com/low-budget-habits-and-goofy-tricks-i-use-to-keep-old-ca-1840328844)
+> 原文：<https://jalopnik.com/low-budget-habits-and-goofy-tricks-i-use-to-keep-old-ca-1840328844>
 
 在多年驾驶旧车的过程中，我养成了一些习惯，也许是迷信，我确信这些习惯帮助我的老爷车在路上行驶。为了其他人的退休年龄的汽车坚持生存，我将把我的一些秘密传授给你们这些没洗过的白痴。
 

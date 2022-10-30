@@ -1,6 +1,6 @@
 # 2019 年 4 月 29 日这一周，网飞将会发生什么
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week-of-April-2-1834338087](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-april-2-1834338087)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-april-2-1834338087>
 
 现在是五月，你的杯子满了——如果不是在你生活的所有领域，那么至少是最重要的一个领域:你躺在椅子上，一边吃着爆米花，一边交替看电视和玩手机(有人称这个区域为“客厅”)；我更喜欢“沙龙”或“客厅”)。我们有*击倒众议院*(周三)，一部关于 AOC 2018 年国会竞选的纪录片。(她会赢吗？我不会为你破坏它的！)或者，如果你喜欢清淡一点的食物，1983 年的《T2》中的《妈妈先生》(Mr. Mom 主演了《T4》之前的《鸟人》(Birdman )和青春期前的迈克尔·基顿，他在片中饰演一位全职父亲，他不会操作洗衣机，而他的妻子特瑞·加尔则喝着鸡尾酒，打着电话，做着其他只有男人才会做的事情。
 

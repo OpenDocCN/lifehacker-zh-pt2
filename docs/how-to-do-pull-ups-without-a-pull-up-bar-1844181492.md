@@ -1,6 +1,6 @@
 # 没有引体向上杠怎么做引体向上
 
-> 原文:[https://life hacker . com/how-do-pull-ups-without a-pull-up-bar-1844181492](https://lifehacker.com/how-to-do-pull-ups-without-a-pull-up-bar-1844181492)
+> 原文：<https://lifehacker.com/how-to-do-pull-ups-without-a-pull-up-bar-1844181492>
 
 在我们连续的简易家庭健身器材系列中，今天我们将谈论如何在家里做引体向上或倒立。如果你习惯在单杠上做引体向上或者使用像 lat pulldown 这样的绳索器械，那就很难用家用设备来重现了。但是你有几个选择。
 

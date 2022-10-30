@@ -1,6 +1,6 @@
 # 根据 Reddit，最被低估的歌曲
 
-> 原文:[https://life hacker . com/the-most-under-deflated-songs-by-Reddit-1839980608](https://lifehacker.com/the-most-underrated-songs-according-to-reddit-1839980608)
+> 原文：<https://lifehacker.com/the-most-underrated-songs-according-to-reddit-1839980608>
 
 [“10/10 是什么歌，却几乎没人听过？”](https://www.reddit.com/r/AskReddit/comments/du5j18/what_song_is_1010_yet_hardly_anyone_has_heard_of/) redditor 郁闷地问。AskReddit 用户回复了 435 首歌曲。redditor BubblyBullinidae[将它们放入 Spotify 播放列表](https://www.reddit.com/user/BubblyBullinidae/comments/dubbaf/the_almighty_spotify_playlist/) 。
 

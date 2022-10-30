@@ -1,6 +1,6 @@
 # 为喜欢音乐但讨厌阅读的孩子播放卡拉 ok 视频
 
-> 原文:[https://life hacker . com/play-karaoke-videos-for-your-kid-who-love-music-but-ha-1834418103](https://lifehacker.com/play-karaoke-videos-for-your-kid-who-loves-music-but-ha-1834418103)
+> 原文：<https://lifehacker.com/play-karaoke-videos-for-your-kid-who-loves-music-but-ha-1834418103>
 
 有些孩子是天生的书虫，喜欢花几个小时蜷缩在舒适的椅子上，看一堆章节书。有些孩子不是。
 

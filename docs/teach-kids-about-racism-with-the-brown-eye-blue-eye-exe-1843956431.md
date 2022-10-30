@@ -1,6 +1,6 @@
 # 用“棕眼蓝眼”练习来教育孩子种族主义
 
-> 原文:[https://life hacker . com/teach-kids-about-racism-with the brown-eye-blue-eye-exe-1843956431](https://lifehacker.com/teach-kids-about-racism-with-the-brown-eye-blue-eye-exe-1843956431)
+> 原文：<https://lifehacker.com/teach-kids-about-racism-with-the-brown-eye-blue-eye-exe-1843956431>
 
 简·埃利奥特(Jane Elliot)在她的职业生涯中试图让白人体会到有色人种一生中所经历的最轻微的歧视和种族主义。它始于 1968 年，在小马丁·路德·金遇刺后，她在三年级的教室里为学生们 设计了一个 [练习，在这个练习中，她按照眼睛的颜色来区分班级。这是一个社会实验的开始，她希望这个实验能够展示歧视的经历，这是一个我们——以及我们的孩子——今天仍然可以借鉴的练习。](https://janeelliott.com/) 
 

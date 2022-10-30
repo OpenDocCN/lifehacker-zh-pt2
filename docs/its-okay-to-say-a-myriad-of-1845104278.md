@@ -1,6 +1,6 @@
 # 可以说“无数”
 
-> 原文:[https://life hacker . com/its-okay-to-say-a myriad-of-1845104278](https://lifehacker.com/its-okay-to-say-a-myriad-of-1845104278)
+> 原文：<https://lifehacker.com/its-okay-to-say-a-myriad-of-1845104278>
 
 看看上面的照片。你会说那是无数只肮脏的橡胶鸭子吗？还是你看到了*无数的*脏鸭子？直到最近，我还会完全回避这个问题，称之为争议较小的东西，比如一大堆老鸭子。对我来说，前一种用法听起来总是自命不凡，但我已经看到了对后者足够多的愤怒，以至于认为它在语法上是不正确的。
 

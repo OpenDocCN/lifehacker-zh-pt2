@@ -1,6 +1,6 @@
 # 订户现在可以免费获得两个月的 Adobe 创意云
 
-> 原文:[https://life hacker . com/subscribers-can-now-get-two-months of adobes-creat-1842396082](https://lifehacker.com/subscribers-can-now-get-two-free-months-of-adobes-creat-1842396082)
+> 原文：<https://lifehacker.com/subscribers-can-now-get-two-free-months-of-adobes-creat-1842396082>
 
 对于在新冠肺炎疫情爆发期间在家工作时需要编辑软件的创意人员和自由职业者，Adobe 短暂地提供两个月的免费 Creative Cloud access——但仅针对现有订户。 [在你的 Adobe ID Adobe.com](https://account.adobe.com/)上登录，然后进入“计划”并点击取消你当前的订阅——但不要坚持到底。在取消过程中，寻找“优惠”链接，你应该看到特别折扣。点击优惠，这两个月的费用将自动计入你的账户。
 

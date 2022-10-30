@@ -1,6 +1,6 @@
 # 2019 年 8 月 12 日这一周，网飞有哪些活动
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of the-August-1837103845](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-august-1837103845)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-august-1837103845>
 
 《心灵捕手》写满了我的名字:广受好评，值得一试网飞原创系列关于连环杀手？一个坚实的夏季娱乐，如果有的话！除了我进不去！我认为我对《心灵捕手》的问题是 [我对传记片的问题是](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-march-1-1833208521) :我无法摆脱演员在描绘真实人物的事实，我花时间希望我在看一部关于这个主题的纪录片，而不是一部复制品。但我是少数！你将在下周末(周五)大吃一顿《思维猎人:第二季》。比尔和霍尔登最终会得到局里同事的尊重吗？(还是上赛季他们得到了一些尊重？第一季我只看了四集)。
 

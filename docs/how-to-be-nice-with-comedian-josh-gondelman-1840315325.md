@@ -1,6 +1,6 @@
 # 喜剧演员乔希·冈德尔曼的《如何做好人》
 
-> 原文:[https://life hacker . com/how-to-be-nice-with-comedian-Josh-gondelman-1840315325](https://lifehacker.com/how-to-be-nice-with-comedian-josh-gondelman-1840315325)
+> 原文：<https://lifehacker.com/how-to-be-nice-with-comedian-josh-gondelman-1840315325>
 
 Josh Gondelman，又名“喜剧中最好的人”，本周加入我们，谈论善良到底是什么，当它是一种*而不是*有益的品质，以及“善良”和“善良”之间的区别。乔希是皮博迪奖和艾美奖奖的喜剧作家，他上周与约翰·奥利弗一起合作了《今晚 T2》，目前是 Showtime 系列*的高级编剧和制片人。他还有一张名为《在工作日的夜晚跳舞》的独唱专辑和一本名为《 [不错的尝试:最佳意图和混合结果的故事](https://www.amazon.com/Nice-Try-Stories-Intentions-Results/dp/0062852752?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-be-nice-with-comedian-josh-gondelman-1840315325&asc_source=&tag=kinjalifehackerlink-20) 》的新书。*
 

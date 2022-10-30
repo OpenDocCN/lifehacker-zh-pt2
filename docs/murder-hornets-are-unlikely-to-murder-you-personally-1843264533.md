@@ -1,6 +1,6 @@
 # “谋杀黄蜂”不太可能谋杀你个人
 
-> 原文:[https://life hacker . com/murder-hornets-不大可能亲自谋杀你-1843264533](https://lifehacker.com/murder-hornets-are-unlikely-to-murder-you-personally-1843264533)
+> 原文：<https://lifehacker.com/murder-hornets-are-unlikely-to-murder-you-personally-1843264533>
 
 亚洲巨型黄蜂可能已经在太平洋西北 [生活了至少八个月了](https://www2.gov.bc.ca/assets/gov/farming-natural-resources-and-industry/agriculture-and-seafood/animal-and-crops/plant-health/pest_alert_asian_hornet.pdf) ，但是直到 [《纽约时报》称它们为“谋杀黄蜂”](https://www.nytimes.com/2020/05/02/us/asian-giant-hornet-washington.html) 我们才觉得恐慌。的确，它们对人类和蜂巢是危险的，但是仍然有时间阻止它们在北美定居。
 

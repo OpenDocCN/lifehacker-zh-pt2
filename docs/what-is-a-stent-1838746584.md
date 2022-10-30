@@ -1,6 +1,6 @@
 # 什么是支架？
 
-> 原文:[https://lifehacker.com/what-is-a-stent-1838746584](https://lifehacker.com/what-is-a-stent-1838746584)
+> 原文：<https://lifehacker.com/what-is-a-stent-1838746584>
 
 伯尼·桑德斯在心脏周围的动脉中放置了两个支架，导致他取消了竞选活动。放置支架是一个相当简单的医疗程序— 让我们来看看需要做些什么。
 

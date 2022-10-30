@@ -1,6 +1,6 @@
 # 最愚蠢的麻疹神话及其错误原因
 
-> 原文:[https://life hacker . com/the-stupid-Moses-Moses-Moses-myths-and-why-why-they-wrong-1832621687](https://lifehacker.com/the-stupidest-measles-myths-and-why-theyre-wrong-1832621687)
+> 原文：<https://lifehacker.com/the-stupidest-measles-myths-and-why-theyre-wrong-1832621687>
 
 亲爱的 Lifehacker 读者们，你们足够聪明，知道麻疹是不好的，麻疹疫苗是好的。但是有很多错误的信息在流传，特别是当疾病在华盛顿州的 T1 和纽约州的 T2 T3 爆发的时候。
 

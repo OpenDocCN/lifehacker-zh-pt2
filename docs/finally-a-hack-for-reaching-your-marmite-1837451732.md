@@ -1,6 +1,6 @@
 # 最后，一个达到你的马麦酱的黑客
 
-> 原文:[https://life hacker . com/finally-a-hack-for-reaching-your-marmite-1837451732](https://lifehacker.com/finally-a-hack-for-reaching-your-marmite-1837451732)
+> 原文：<https://lifehacker.com/finally-a-hack-for-reaching-your-marmite-1837451732>
 
 我们每个人都会遇到这种情况:你接近你的果酱罐底部，但你够不到最后一点。最终，你的冰箱或橱柜，无论哪一个合适，都装满了你舍不得扔掉的几乎空了的马麦酱罐子。就像每个人的一样！令人欣慰的是，马麦酱的制造者已经在马麦酱罐子的形状上做了一个“黑客”——我们都非常熟悉的形状。
 

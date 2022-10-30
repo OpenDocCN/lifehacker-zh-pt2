@@ -1,6 +1,6 @@
 # 荒谬游戏硬件的惊人起源
 
-> 原文:[https://gizmodo . com/the-surprise-origins-of-galaxy-gaming-hardware-design-1834637931](https://gizmodo.com/the-surprising-origins-of-absurd-gaming-hardware-design-1834637931)
+> 原文：<https://gizmodo.com/the-surprising-origins-of-absurd-gaming-hardware-design-1834637931>
 
 在过去的几个月里，我们与笔记本电脑制造商、游戏玩家和历史学家进行了交谈，以更好地了解游戏玩家的审美观。你知道我在说什么:闪烁的灯光和尖角。看起来像是从外星飞船上掉下来的电脑。至关重要的是，我们想知道我们是如何得到这种游戏美学的，以及随着游戏变得越来越主流，它将会发生什么。在上面的视频中，我们审视了美学的历史和未来。
 

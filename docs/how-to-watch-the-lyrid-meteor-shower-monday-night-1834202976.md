@@ -1,6 +1,6 @@
 # 如何在周一晚上观看天琴座流星雨
 
-> 原文:[https://life hacker . com/how-to-watch-the-lyrid-meteor-shower-Monday-night-1834202976](https://lifehacker.com/how-to-watch-the-lyrid-meteor-shower-monday-night-1834202976)
+> 原文：<https://lifehacker.com/how-to-watch-the-lyrid-meteor-shower-monday-night-1834202976>
 
 周一晚上，天琴座流星雨将会照亮夜空。流星雨实际上从 4 月 16 日-26 日持续 10 天，但其高峰期是 4 月 22 日-23 日。
 

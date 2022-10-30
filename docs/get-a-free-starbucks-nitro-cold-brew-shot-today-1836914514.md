@@ -1,6 +1,6 @@
 # 今天就获得一杯免费的星巴克硝基冰镇啤酒
 
-> 原文:[https://life hacker . com/get-a-free-Starbucks-nitro-cold-brew-shot-today-1836914514](https://lifehacker.com/get-a-free-starbucks-nitro-cold-brew-shot-today-1836914514)
+> 原文：<https://lifehacker.com/get-a-free-starbucks-nitro-cold-brew-shot-today-1836914514>
 
 星巴克在全国范围内推出了它的硝基冰镇咖啡，为了庆祝， [他们今天在](https://www.delish.com/food-news/a28566275/starbucks-free-nitro-cold-brew-shots/) 免费赠送，只要供应持续。去拿你的。
 

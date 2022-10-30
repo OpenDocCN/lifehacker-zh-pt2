@@ -1,6 +1,6 @@
 # 用吹叶机清除汽车上的积雪
 
-> 原文:[https://life hacker . com/clear-snow-off-your car with a leaf-blower-1830769243](https://lifehacker.com/clear-snow-off-your-car-with-a-leaf-blower-1830769243)
+> 原文：<https://lifehacker.com/clear-snow-off-your-car-with-a-leaf-blower-1830769243>
 
 冬天不再来了，它来了，但出于某种原因我们还是要离开房子。如果你害怕让你的车可以驾驶的工作，这里有一个相对简单的除雪方法。
 

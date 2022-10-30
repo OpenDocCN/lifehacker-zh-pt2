@@ -1,6 +1,6 @@
 # 让孩子们用神奇宝贝微笑应用程序刷牙
 
-> 原文:[https://life hacker . com/get-kids-to-brush-the-pokemon-smile-AP-1844068485](https://lifehacker.com/get-kids-to-brush-their-teeth-with-the-pokemon-smile-ap-1844068485)
+> 原文：<https://lifehacker.com/get-kids-to-brush-their-teeth-with-the-pokemon-smile-ap-1844068485>
 
 当谈到刷牙时，孩子们并不是最好或最有效的——如果你能让他们做的话。但是如果他们能像小火龙和 T2 一样刷牙，帮助拯救其他被抓的神奇宝贝(喘息！)导致蛀牙的细菌，嗯，这可能正是他们需要的动力。此外，如果他们刷得足够好，他们也可以抓住他们救的神奇宝贝。
 

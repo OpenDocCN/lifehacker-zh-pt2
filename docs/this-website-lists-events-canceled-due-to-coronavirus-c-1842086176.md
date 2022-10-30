@@ -1,6 +1,6 @@
 # 该网站列出了因冠状病毒问题而取消的活动
 
-> 原文:[https://life hacker . com/this-website-lists-events-canceled-due-to-coronavirus-c-1842086176](https://lifehacker.com/this-website-lists-events-canceled-due-to-coronavirus-c-1842086176)
+> 原文：<https://lifehacker.com/this-website-lists-events-canceled-due-to-coronavirus-c-1842086176>
 
 如果你计划今年春天去你家附近以外的地方参加一个活动，你可能会有这样的想法:“哦，我想知道那个会不会被取消。”
 

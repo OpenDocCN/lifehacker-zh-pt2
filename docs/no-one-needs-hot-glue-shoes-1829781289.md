@@ -1,6 +1,6 @@
 # 没有人需要热胶鞋
 
-> 原文:[https://life hacker . com/no-one-need-hot-glue-shoes-1829781289](https://lifehacker.com/no-one-needs-hot-glue-shoes-1829781289)
+> 原文：<https://lifehacker.com/no-one-needs-hot-glue-shoes-1829781289>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-dvdx4fHkbWI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-dvdx4fHkbWI&start=0) 
 

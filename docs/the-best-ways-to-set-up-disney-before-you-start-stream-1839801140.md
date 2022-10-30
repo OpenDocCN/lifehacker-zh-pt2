@@ -1,6 +1,6 @@
 # 开始流媒体播放前设置 Disney+的最佳方式
 
-> 原文:[https://life hacker . com/the-best-ways-to-set-up-Disney-before-you-start-stream-1839801140](https://lifehacker.com/the-best-ways-to-set-up-disney-before-you-start-stream-1839801140)
+> 原文：<https://lifehacker.com/the-best-ways-to-set-up-disney-before-you-start-stream-1839801140>
 
 终于，这一天到了——迪士尼+发布日，也就是。虽然今天打电话请病假，说自己得了可怕的曼达洛人(还有鼻塞)很诱人，但我在这里，我已经创建了一个指南，可以帮助你开始使用 Disney+。这包括如何在您的各种设备上快速安装应用程序，激活您的免费服务(如果您有资格参加某些促销活动)，以及调整哪些 Disney+设置以获得最佳流媒体体验。
 

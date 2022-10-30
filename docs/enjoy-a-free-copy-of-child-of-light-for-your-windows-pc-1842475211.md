@@ -1,6 +1,6 @@
 # 在你的 Windows 电脑上享受免费的《光之子》
 
-> 原文:[https://life hacker . com/enjoy-a-free-copy-of-child-of-light-for-your-windows-PC-1842475211](https://lifehacker.com/enjoy-a-free-copy-of-child-of-light-for-your-windows-pc-1842475211)
+> 原文：<https://lifehacker.com/enjoy-a-free-copy-of-child-of-light-for-your-windows-pc-1842475211>
 
 育碧华丽的平台游戏*光之子*在 2014 年大受欢迎。从那以后，我们都变老了一点，但游戏没有——现在，你只需点击几下鼠标，就可以从育碧获得一份免费拷贝。谁不喜欢免费游戏？
 

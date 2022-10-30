@@ -1,6 +1,6 @@
 # 冠状病毒疾病有一个官方名称:新冠肺炎
 
-> 原文:[https://life hacker . com/the-coronavirus-has-a-a-official-name-新冠肺炎-1841601530](https://lifehacker.com/the-coronavirus-has-an-official-name-covid-19-1841601530)
+> 原文：<https://lifehacker.com/the-coronavirus-has-an-official-name-covid-19-1841601530>
 
 在经历了数周的轻度和笨拙的标签名称(爱到型#2019-nCoV)之后，由来自武汉的冠状病毒引起的疾病终于有了一个朗朗上口、准确无误、非污名化的名字:新冠肺炎。
 

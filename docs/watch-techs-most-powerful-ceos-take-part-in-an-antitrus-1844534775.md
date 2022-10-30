@@ -1,6 +1,6 @@
 # 关注一下明天参加反垄断听证会的科技界最有权势的首席执行官
 
-> 原文:[https://life hacker . com/watch-techs-most-powerful-CEOs-take-part-in-an-antitrus-1844534775](https://lifehacker.com/watch-techs-most-powerful-ceos-take-part-in-an-antitrus-1844534775)
+> 原文：<https://lifehacker.com/watch-techs-most-powerful-ceos-take-part-in-an-antitrus-1844534775>
 
 四位最具影响力的科技行业首席执行官将于 7 月 29 日周三在众议院司法委员会(House Judiciary Committee)作证，以确定他们的公司是否针对规模较小的竞争对手公司实施了反竞争商业策略。听证会将通过 YouTube 直播，任何人都可以观看。
 

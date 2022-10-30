@@ -1,6 +1,6 @@
 # 2018 年关于金钱的最糟糕的东西
 
-> 原文:[https://life hacker . com/the-worst-stuff-written-on-money-2018-1831360785](https://lifehacker.com/the-worst-stuff-written-about-money-in-2018-1831360785)
+> 原文：<https://lifehacker.com/the-worst-stuff-written-about-money-in-2018-1831360785>
 
 无论是关于小费、股市还是储蓄习惯，人们在 2018 年都有很多不好的看法。我们没有把不好的意见藏在心里，而是在网上煽起了互联网愤怒的火焰。
 

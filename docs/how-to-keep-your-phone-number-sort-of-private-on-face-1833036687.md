@@ -1,6 +1,6 @@
 # 如何在脸书保持你的电话号码的私密性
 
-> 原文:[https://life hacker . com/how-to-keep-your-phone-number-sort-of-private-on-face-1833036687](https://lifehacker.com/how-to-keep-your-phone-number-sort-of-private-on-face-1833036687)
+> 原文：<https://lifehacker.com/how-to-keep-your-phone-number-sort-of-private-on-face-1833036687>
 
 脸书又成功了！
 

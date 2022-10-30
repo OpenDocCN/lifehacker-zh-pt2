@@ -1,6 +1,6 @@
 # 如何在人群中幸存
 
-> 原文:[https://life hacker . com/how-to-survive-a-human-stampede-1832365793](https://lifehacker.com/how-to-survive-a-human-stampede-1832365793)
+> 原文：<https://lifehacker.com/how-to-survive-a-human-stampede-1832365793>
 
 对人群的恐惧是一种非常真实的恐惧。当你在一群惊慌失措的人群中涌向出口时，这种恐惧似乎是完全理性的。
 

@@ -1,6 +1,6 @@
 # 2019 年 7 月 8 日这一周，网飞将会发生什么
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of July-8-1835818577](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-july-8-1835818577)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-july-8-1835818577>
 
 《欢乐满人间》将于本周二回归，所以我建议你在认为它对你来说太 PG 或者太家庭化之前先试一试。艾米莉·布朗特是令人愉快的，我们都知道。
 

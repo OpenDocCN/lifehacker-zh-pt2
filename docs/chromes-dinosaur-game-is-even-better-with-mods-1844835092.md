@@ -1,6 +1,6 @@
 # Chrome 的恐龙游戏有 Mods 就更好了
 
-> 原文:[https://life hacker . com/chromes-恐龙游戏比 mods-1844835092](https://lifehacker.com/chromes-dinosaur-game-is-even-better-with-mods-1844835092)
+> 原文：<https://lifehacker.com/chromes-dinosaur-game-is-even-better-with-mods-1844835092>
 
 每个人都喜欢 Chrome 恐龙游戏——这并不是它出现的原因，当你的网络连接出现问题，网络浏览器无法加载你试图访问的网站时，就会发生这种情况——但我 t *是*的一点乐趣，它帮助打发时间，同时等待~~你的网络自行修复~~你的故障排除来纠正问题。
 

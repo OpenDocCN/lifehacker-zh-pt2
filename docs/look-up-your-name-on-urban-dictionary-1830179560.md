@@ -1,6 +1,6 @@
 # 在城市词典中查找你的名字
 
-> 原文:[https://life hacker . com/look-up-your-name-on-urban-dictionary-1830179560](https://lifehacker.com/look-up-your-name-on-urban-dictionary-1830179560)
+> 原文：<https://lifehacker.com/look-up-your-name-on-urban-dictionary-1830179560>
 
 又一个地狱周接近尾声。让我们为下一个地狱周做准备吧。让我们放松一下，洗个澡，喝点安眠药，喝杯威士忌，，，在，[城市词典](https://www.urbandictionary.com/)，中查找我们的名字。
 

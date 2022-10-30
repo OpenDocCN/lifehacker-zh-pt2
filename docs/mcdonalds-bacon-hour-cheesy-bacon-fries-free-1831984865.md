@@ -1,6 +1,6 @@
 # 麦当劳的培根小时让你免费“放一块培根在上面”
 
-> 原文:[https://the take out . com/McDonalds-bacon-hour-cheesy-bacon-fries-free-1831984865](https://thetakeout.com/mcdonalds-bacon-hour-cheesy-bacon-fries-free-1831984865)
+> 原文：<https://thetakeout.com/mcdonalds-bacon-hour-cheesy-bacon-fries-free-1831984865>
 
 还记得那则狗狗零食的广告吗？那只狗狗在激烈的内心独白中，一遍又一遍地喊着“培根”？
 

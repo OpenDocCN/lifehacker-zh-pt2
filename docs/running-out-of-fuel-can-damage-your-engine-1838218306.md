@@ -1,6 +1,6 @@
 # 燃料耗尽会损坏你的引擎
 
-> 原文:[https://jalopnik . com/running-out-of-fuel-can-damage-your-engine-1838218306](https://jalopnik.com/running-out-of-fuel-can-damage-your-engine-1838218306)
+> 原文：<https://jalopnik.com/running-out-of-fuel-can-damage-your-engine-1838218306>
 
 我们都知道，耗尽汽车燃料是一件坏事，原因显而易见，比如它会让你陷入困境。你也很有可能听说过空跑会损坏你的车。但是实际上发生了什么呢？
 

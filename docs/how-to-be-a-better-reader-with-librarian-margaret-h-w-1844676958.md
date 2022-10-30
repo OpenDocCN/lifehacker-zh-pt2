@@ -1,6 +1,6 @@
 # 如何成为一个更好的读者，图书管理员玛格丽特·h·威廉森
 
-> 原文:[https://life hacker . com/how-to-be-a-better-reader-with-librarian-Margaret-h-w-1844676958](https://lifehacker.com/how-to-be-a-better-reader-with-librarian-margaret-h-w-1844676958)
+> 原文：<https://lifehacker.com/how-to-be-a-better-reader-with-librarian-margaret-h-w-1844676958>
 
 本周，在图书管理员兼播客玛格丽特·h·威廉森的帮助下，我们将学习如何成为更好的读者。请听 Margaret 分解我们应该如何思考我们对成为 【好】或“博览群书”的读者的定义是什么意思，以及我们可以用来改进我们自己的阅读游戏的策略——从利用有声读物到放弃此刻不吸引我们的书籍。
 

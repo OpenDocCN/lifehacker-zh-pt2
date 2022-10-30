@@ -1,6 +1,6 @@
 # 2019 年 2 月 11 日这一周，网飞有哪些活动
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week-of-februar-1832424132](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-februar-1832424132)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-februar-1832424132>
 
 听着，我不会对最新的漫画书到网飞原创系列*伞学院*做出任何承诺。这可能很糟糕，但前提(有超能力的疏远的兄弟姐妹在他们的父亲去世后重聚)和预告片有一些东西，有一种童话般的过滤和模糊的韦斯·安德森氛围(或者，至少是一个穿着红蓝夹克的年轻演员，看起来非常像马克斯·菲舍尔)，让我觉得这可能是一种乐趣。它是由杰瑞米·斯莱特创作的，他写了*《神奇四侠》——*，这可能是对它的一个打击——但艾伦·佩吉扮演其中一个孩子，你不得不承认，这很有趣。
 

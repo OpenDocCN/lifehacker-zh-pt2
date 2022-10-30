@@ -1,6 +1,6 @@
 # 我们最喜欢的 120 赫兹手机安卓游戏
 
-> 原文:[https://life hacker . com/our-favorite-Android-games-for-120hz-phones-1844705203](https://lifehacker.com/our-favorite-android-games-for-120hz-phones-1844705203)
+> 原文：<https://lifehacker.com/our-favorite-android-games-for-120hz-phones-1844705203>
 
 三星 Galaxy Note 20 Ultra 的 120Hz 显示屏非常适合游戏，其高刷新率h使游戏反应更灵敏，看起来更流畅。看到智能手机吹捧 120Hz 显示屏令人印象深刻，特别是考虑到许多高端电视、显示器和游戏控制台都难以达到这样持续的高刷新率。
 

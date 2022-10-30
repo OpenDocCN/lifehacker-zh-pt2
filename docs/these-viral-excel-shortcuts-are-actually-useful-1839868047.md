@@ -1,6 +1,6 @@
 # 这些病毒式的 Excel 快捷方式其实很有用
 
-> 原文:[https://life hacker . com/these-viral-excel-shortcut s-is-actually-used-1839868047](https://lifehacker.com/these-viral-excel-shortcuts-are-actually-useful-1839868047)
+> 原文：<https://lifehacker.com/these-viral-excel-shortcuts-are-actually-useful-1839868047>
 
 “你用 Excel 工作能有多快？”一段在互联网上疯传了一年多的视频问道。动画演示了一些高质量的 Excel 快捷方式:
 

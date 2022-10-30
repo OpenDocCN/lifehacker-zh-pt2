@@ -1,6 +1,6 @@
 # 你怎样把玉米上的丝去掉？不用麻烦了。
 
-> 原文:[https://thetakeout.com/how-to-remove-corn-silk-1836420867](https://thetakeout.com/how-to-remove-corn-silk-1836420867)
+> 原文：<https://thetakeout.com/how-to-remove-corn-silk-1836420867>
 
 像任何优秀的美国人一样，我喜欢各种形式的玉米，但甜玉米棒是独一无二的:松脆、怀旧、涂黄油滑溜溜。但是生活中没有什么是真正完美的。那些该死的玉米丝，那些蜿蜒在玉米粒之间的细毛，减缓了原本毫无痛苦的去皮过程。当然，如果我能发现的话，移除它们是有秘密的。
 

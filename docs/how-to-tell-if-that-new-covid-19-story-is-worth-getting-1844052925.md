@@ -1,6 +1,6 @@
 # 如何判断新的新冠肺炎故事是否值得兴奋
 
-> 原文:[https://life hacker . com/how-to-tell-if-the-new-新冠肺炎-story-is-worth-get-1844052925](https://lifehacker.com/how-to-tell-if-that-new-covid-19-story-is-worth-getting-1844052925)
+> 原文：<https://lifehacker.com/how-to-tell-if-that-new-covid-19-story-is-worth-getting-1844052925>
 
 也许有一天会有疫苗或奇迹治愈新冠肺炎。但如果这种情况发生，它不会立即从你的电视或社交媒体上大肆宣扬的新闻故事中显而易见。看起来很重要的大型研究一直都有，一旦你了解了整个故事，大多数研究结果都令人失望。
 

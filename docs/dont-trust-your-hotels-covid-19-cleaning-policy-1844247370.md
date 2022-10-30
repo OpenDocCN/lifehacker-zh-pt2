@@ -1,6 +1,6 @@
 # 不要相信你酒店的新冠肺炎清洁政策
 
-> 原文:[https://life hacker . com/dont-trust-your-hotels-新冠肺炎-cleaning-policy-1844247370](https://lifehacker.com/dont-trust-your-hotels-covid-19-cleaning-policy-1844247370)
+> 原文：<https://lifehacker.com/dont-trust-your-hotels-covid-19-cleaning-policy-1844247370>
 
 酒店太恶心了。好了，我说了。这是我们经常忘记的事情，尤其是如果我们住的地方比 Schitt's Creek 汽车旅馆稍微高级一点，但是你睡的任何地方，1)别人睡过的地方，2)别人必须打扫的地方，总是会让你失望。事情就是这样，我们不喜欢去想它，但这并不能让事实消失。
 

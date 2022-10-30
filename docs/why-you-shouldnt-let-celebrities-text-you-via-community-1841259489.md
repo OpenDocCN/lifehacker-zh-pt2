@@ -1,6 +1,6 @@
 # 为什么你不应该让名人通过社区给你发短信
 
-> 原文:[https://life hacker . com/why-you-should-let-smokes-text-you-via-community-1841259489](https://lifehacker.com/why-you-shouldnt-let-celebrities-text-you-via-community-1841259489)
+> 原文：<https://lifehacker.com/why-you-shouldnt-let-celebrities-text-you-via-community-1841259489>
 
 定向广告，那种可能出现在你的脸书 feed 或 Twitter 时间线上的广告，会给人一种咄咄逼人的感觉；毕竟，他们经常使用个人信息出现，比如你的位置、年龄或搜索历史。由于一项新服务在社交媒体上掀起波澜，他们可能会更密切地锁定你。
 

@@ -1,6 +1,6 @@
 # 如何去掉 Galaxy 手机上的三星广告
 
-> 原文:[https://life hacker . com/how-to-get-out-of-samsungs-ads-on-your-galaxy-phone-1844281263](https://lifehacker.com/how-to-get-rid-of-samsungs-ads-on-your-galaxy-phone-1844281263)
+> 原文：<https://lifehacker.com/how-to-get-rid-of-samsungs-ads-on-your-galaxy-phone-1844281263>
 
 我没有三星智能手机，但如果我有，我会对支付 1000-2000 美元购买一部充满原生广告的设备感到非常愤怒。对于三星来说，你并不微薄的投资显然是不够的，因为它已经开始在自己的设备上填充充满广告的默认应用程序。*手机 app 里甚至还有广告*。
 

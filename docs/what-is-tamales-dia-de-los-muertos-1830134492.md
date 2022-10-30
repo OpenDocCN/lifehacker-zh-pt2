@@ -1,6 +1,6 @@
 # 玉米粉蒸肉是一年中其他 364 天的美食
 
-> 原文:[https://thetakeout . com/what-is-tamales-dia-de-los-Muertos-1830134492](https://thetakeout.com/what-is-tamales-dia-de-los-muertos-1830134492)
+> 原文：<https://thetakeout.com/what-is-tamales-dia-de-los-muertos-1830134492>
 
 墨西哥人喜欢美食，我们当然也喜欢吃——幸运的是，这两者从不相互排斥。Día De Los Muertos(亡灵节)就是这样一个充满食物的墨西哥节日，经历了它的变化；以前在夏季开始时举行的庆祝活动现在是在秋季为期三天的活动。它从一个外国节日变成了奥斯卡获奖皮克斯电影 的中心主题——一旦某事与迪士尼相提并论，它就正式成为一个主流节日。
 

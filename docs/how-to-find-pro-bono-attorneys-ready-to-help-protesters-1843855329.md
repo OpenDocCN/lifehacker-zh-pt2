@@ -1,6 +1,6 @@
 # 如何找到愿意帮助抗议者的公益律师
 
-> 原文:[https://life hacker . com/how-to-find-probono-lawyers-ready-to-help-抗议者-1843855329](https://lifehacker.com/how-to-find-pro-bono-attorneys-ready-to-help-protesters-1843855329)
+> 原文：<https://lifehacker.com/how-to-find-pro-bono-attorneys-ready-to-help-protesters-1843855329>
 
 抗议——即使是和平抗议——伴随而来的风险之一是你可能会被逮捕。是的，第一修正案赋予了我们和平集会的权利——但是仅仅因为《权利法案》中有所规定并不意味着你不会发现自己处于这些权利被侵犯的境地。
 

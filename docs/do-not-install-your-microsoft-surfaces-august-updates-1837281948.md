@@ -1,6 +1,6 @@
 # 不要安装微软 Surface 8 月份的固件更新
 
-> 原文:[https://life hacker . com/do-not-install-your-Microsoft-surfaces-August-updates-1837281948](https://lifehacker.com/do-not-install-your-microsoft-surfaces-august-updates-1837281948)
+> 原文：<https://lifehacker.com/do-not-install-your-microsoft-surfaces-august-updates-1837281948>
 
 如果你有一台微软最新的 Surface 设备 Surface Book 2 或 Surface Pro 6——你会想暂停一会儿 Windows 更新，因为微软的最新固件绝对会让你的系统性能大打折扣。然而，如果你的笔记本电脑已经被冲洗过了，我们有一些如何修理它的方法。
 

@@ -1,6 +1,6 @@
 # 如何每次都找到最佳停车点
 
-> 原文:[https://life hacker . com/how-to-find-the-best-spot-every-time-1838741725](https://lifehacker.com/how-to-find-the-best-parking-spot-every-time-1838741725)
+> 原文：<https://lifehacker.com/how-to-find-the-best-parking-spot-every-time-1838741725>
 
 你是第一个找到空地就停车的人，还是努力找到离你要去的地方最近的空地的人？事实证明，这两种方法都不是在停车场导航的有效方法——从数学上来说，还有一个更好的选择。
 

@@ -1,6 +1,6 @@
 # 用这个工具来创建你的 Twitter Feed
 
-> 原文:[https://life hacker . com/konmari-your-Twitter-feed-with-this-tool-1832407341](https://lifehacker.com/konmari-your-twitter-feed-with-this-tool-1832407341)
+> 原文：<https://lifehacker.com/konmari-your-twitter-feed-with-this-tool-1832407341>
 
 我不可能*希望*到 [在推特](https://twitter.com/toomuchnick) 上关注近 4000 人。如果我关注的人少一些，我的时间表就会少一些混乱和焦虑。但是我很难不明白！这就是为什么我为了 [测试](https://lifehacker.com/clean-out-a-crowded-twitter-feed-with-manageflitter-1825105518#_ga=2.225825244.717281113.1549465422-1222396525.1547242489) [这么多不同的工具](https://lifehacker.com/how-to-unfollow-everyone-on-twitter-1827656872#_ga=2.100654808.717281113.1549465422-1222396525.1547242489) 就为了这个功能 。现在，以玛丽·近藤为主题的工具[Tokimeki Unfollow](https://tokimeki-unfollow.glitch.me/)正在帮我做一些深度清理，一次一个 un follow。
 

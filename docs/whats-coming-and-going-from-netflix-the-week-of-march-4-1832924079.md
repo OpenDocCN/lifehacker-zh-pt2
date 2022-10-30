@@ -1,6 +1,6 @@
 # 2019 年 3 月 4 日这一周，网飞有哪些活动
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week-of-March-4-1832924079](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-march-4-1832924079)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-march-4-1832924079>
 
 是谁订购了一部感人至深的喜剧系列片《里奇·格威斯之心》，讲述了一个男人以妻子的死为借口，像对待废物一样对待所有人的故事？网飞！你在想什么？没人对*后半生*(周五)，热尔韦的《黑色喜剧》(翻译:热尔韦的妻子叫他胖，热尔韦叫一个孩子胖，热尔韦叫公园里的陌生人胖——edgy！)谁的预告片的结局肯定是一首鼓舞人心的菲利普·菲利普斯歌曲！(我愿意相信 1:35 的那把鼓鼓囊囊的吉他是菲利普·菲利普斯的，如果不是，我不在乎——它是菲律宾的，属于“Viva La Vida”之后的一个令人尴尬的慢跑播放列表。)
 

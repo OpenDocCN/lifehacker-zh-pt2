@@ -1,6 +1,6 @@
 # 2019 年 5 月 20 日这一周，网飞将会发生什么
 
-> 原文:[https://life hacker . com/what-coming-and-going-from-the-week of-may-20-1834410042](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-may-20-1834410042)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-may-20-1834410042>
 
 让我们为艾莉森·威廉姆斯(你不常听到的一个词)成功摆脱恐怖电影主角*女孩*玛妮·麦克尔斯的角色给予一点赞扬。或者我们应该感谢乔丹·皮尔？我必须感谢某人本周以完美的的形式给我们带来的恐怖。威廉姆斯扮演一名大提琴手...哦，谁在乎剧情，在预告片中有一个人(*亲爱的白人*的洛根·布朗宁)在她前臂的皮肤下有某种奇怪的动物生命波动，威廉姆斯建议她用切肉刀把它剁碎。告诉我你不像我一样喜欢这个。
 

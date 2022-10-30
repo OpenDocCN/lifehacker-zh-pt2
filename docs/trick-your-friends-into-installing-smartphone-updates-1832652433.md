@@ -1,6 +1,6 @@
 # 诱骗您的朋友安装智能手机更新
 
-> 原文:[https://life hacker . com/trick-your-friends-into-installing-smart phone-updates-1832652433](https://lifehacker.com/trick-your-friends-into-installing-smartphone-updates-1832652433)
+> 原文：<https://lifehacker.com/trick-your-friends-into-installing-smartphone-updates-1832652433>
 
 即使苹果有时会把 iOS 的更新 [搞得很乱](https://gizmodo.com/disable-facetime-right-now-1832142571) ，但是*修复*这些问题 的更新 [很重要。以至于你真的应该在它们发布的当天就安装它们。然而，大多数人可能不会浏览网页，也不会浏览他们的设置应用程序，以查看新的 iOS 更新何时可用。](https://gizmodo.com/you-can-now-download-a-fix-for-that-scary-facetime-eave-1832435209)
 

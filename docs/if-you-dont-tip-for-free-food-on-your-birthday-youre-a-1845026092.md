@@ -1,6 +1,6 @@
 # 如果你生日时不付免费食物的小费，你就是个混蛋
 
-> 原文:[https://life hacker . com/if-you-don-tip-for-free-food-on-you-a-1845026092](https://lifehacker.com/if-you-dont-tip-for-free-food-on-your-birthday-youre-a-1845026092)
+> 原文：<https://lifehacker.com/if-you-dont-tip-for-free-food-on-your-birthday-youre-a-1845026092>
 
 我绝不是要批评那些为了微薄的利益而逃避一些不该做的事情的人——比如假装今天是你的生日，从餐馆里得到一个免费的纸杯蛋糕或任何东西。当你的朋友对你搞这种恶作剧时，这甚至有点滑稽，但前提是这种恶作剧很少发生；生日歌不仅讨厌，而且从“无害的乐趣”到“占餐馆便宜”也不需要太多。
 

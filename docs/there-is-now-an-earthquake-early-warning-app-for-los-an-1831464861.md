@@ -1,6 +1,6 @@
 # 现在有一个洛杉矶地震预警应用程序
 
-> 原文:[https://life hacker . com/there-is-now-a-an-los-an-1831464861](https://lifehacker.com/there-is-now-an-earthquake-early-warning-app-for-los-an-1831464861)
+> 原文：<https://lifehacker.com/there-is-now-an-earthquake-early-warning-app-for-los-an-1831464861>
 
 使用新的 ShakeAlertLA 应用程序，在洛杉矶县地区获得地震即将开始的即时警告是一个选项。终于，我的手机派上用场了。
 

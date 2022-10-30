@@ -1,6 +1,6 @@
 # 安装“桌面鹅”有可怕的鹅与你的电脑或 Mac 混乱[更新]
 
-> 原文:[https://life hacker . com/install-desktop-goose-to-have-the-drugly-goose-mess-w-1841356504](https://lifehacker.com/install-desktop-goose-to-have-the-horrible-goose-mess-w-1841356504)
+> 原文：<https://lifehacker.com/install-desktop-goose-to-have-the-horrible-goose-mess-w-1841356504>
 
 我喜欢极客的恶作剧，18 岁的 Sam Chiet 的新桌面软件 Goose 是随身携带在闪存盘上的完美应用。你的朋友会恨你的。你学校的 IT 部门会*真的*讨厌你。但是小比看 [*无题鹅游戏*](https://kotaku.com/untitled-goose-game-the-kotaku-review-1838264644) 的明星动物更有趣，也更傻，在你的 [Windows 或 Mac 桌面](https://samperson.itch.io/desktop-goose) 上游荡，按喇叭，偷你的鼠标光标(还有其他烦恼)。
 

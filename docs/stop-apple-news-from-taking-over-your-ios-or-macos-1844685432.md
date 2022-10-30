@@ -1,6 +1,6 @@
 # 阻止 Apple News+接管 iOS 或 macOS
 
-> 原文:[https://life hacker . com/stop-apple-news-from-taking-over-your-IOs-or-MAC OS-1844685432](https://lifehacker.com/stop-apple-news-from-taking-over-your-ios-or-macos-1844685432)
+> 原文：<https://lifehacker.com/stop-apple-news-from-taking-over-your-ios-or-macos-1844685432>
 
 即使你没有在玩 [iOS 14](https://lifehacker.com/how-to-get-started-with-the-ios-14-public-beta-1844324554) 或 [macOS Big Sur](https://lifehacker.com/the-best-features-of-macos-big-sur-so-far-1844124560) 但如果你是苹果新闻+订阅者，有一个设置你想知道。这是因为从 iOS 14 和 macOS Big Sur 的*开始，点击或点击新闻报道的网络链接将在 Apple News+中调出所述报道，而不是出版商的网站。*
 

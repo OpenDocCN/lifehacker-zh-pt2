@@ -1,6 +1,6 @@
 # 如何虚拟出席并参与燃烧的人
 
-> 原文:[https://life hacker . com/how-to-virtual-attend-and-party-in-burning-man-1844962167](https://lifehacker.com/how-to-virtually-attend-and-participate-in-burning-man-1844962167)
+> 原文：<https://lifehacker.com/how-to-virtually-attend-and-participate-in-burning-man-1844962167>
 
 每年，成千上万的人在劳动节的前一周来到内华达州的黑石沙漠参加火人节。自 1986 年以来，志趣相投的燃烧者们以反异化、激进包容、激进自我表达以及他们其余的 [10 原则](https://burningman.org/culture/philosophical-center/10-principles) (尽管实际上直到 2004 年才被写下来)的名义聚集在一起。
 

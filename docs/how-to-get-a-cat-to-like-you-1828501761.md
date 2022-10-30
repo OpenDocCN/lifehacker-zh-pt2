@@ -1,6 +1,6 @@
 # 如何让猫喜欢你
 
-> 原文:[https://life hacker . com/how-to-get-a-cat-to-like-you 1828501761](https://lifehacker.com/how-to-get-a-cat-to-like-you-1828501761)
+> 原文：<https://lifehacker.com/how-to-get-a-cat-to-like-you-1828501761>
 
 我嫉妒爱狗的人。你可以在街上遇到一只狗，只要走近它。一只典型的狗会立刻信任你。但是一般的猫肯定是*赢过*的。我和三位猫行为专家交谈过，他们解释了猫为什么会这样，并讲述了和别人的猫交朋友的策略，甚至是在一次静坐中。
 

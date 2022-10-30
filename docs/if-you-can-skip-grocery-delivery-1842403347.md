@@ -1,6 +1,6 @@
 # 如果可以的话，不要去杂货店送货
 
-> 原文:[https://life hacker . com/if-you-can-skip-杂货店送货-1842403347](https://lifehacker.com/if-you-can-skip-grocery-delivery-1842403347)
+> 原文：<https://lifehacker.com/if-you-can-skip-grocery-delivery-1842403347>
 
 杂货店现在是一个疯人院。瓶装水不见了，牛奶、鸡蛋和面包等主食纷纷下架，到处都找不到一卷卫生纸。除此之外，还要考虑在拥挤的商店中穿行的风险因素。为了避免暴露，许多人转向路边取货或送货。
 

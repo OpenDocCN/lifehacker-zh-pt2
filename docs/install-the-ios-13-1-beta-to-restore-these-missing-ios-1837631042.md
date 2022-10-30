@@ -1,6 +1,6 @@
 # 安装 iOS 13.1 测试版以恢复这些缺失的 iOS 13 功能
 
-> 原文:[https://life hacker . com/install-the-IOs-13-1-beta-to-restore-these-missing-IOs-1837631042](https://lifehacker.com/install-the-ios-13-1-beta-to-restore-these-missing-ios-1837631042)
+> 原文：<https://lifehacker.com/install-the-ios-13-1-beta-to-restore-these-missing-ios-1837631042>
 
 [Lifehacker's Complete Guide to iOS](https://appleios.kinja.com)) : title[![](../Images/71562cabb8ab94eee70dc08ff80378ef.png)](https://appleios.kinja.com)[Lifehacker's Complete Guide to iOS](https://appleios.kinja.com)Apple's iPhone is easy to learn, but difficult to master. Instead of spending hours sifting through settings yourself, check out our giant collection of guides, tips, and tricks for all things iOS.
 

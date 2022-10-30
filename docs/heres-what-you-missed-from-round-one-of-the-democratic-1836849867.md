@@ -1,6 +1,6 @@
 # 这是你在底特律错过的第一轮民主党辩论
 
-> 原文:[https://life hacker . com/heres-what-you-miss-from round-one-of-the-democratic-1836849867](https://lifehacker.com/heres-what-you-missed-from-round-one-of-the-democratic-1836849867)
+> 原文：<https://lifehacker.com/heres-what-you-missed-from-round-one-of-the-democratic-1836849867>
 
 周二晚上，10 名民主党总统候选人在底特律登台，讨论美国的移民、枪支暴力、气候变化、学生贷款债务和种族关系等问题。
 

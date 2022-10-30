@@ -1,6 +1,6 @@
 # 如何向狗介绍自己
 
-> 原文:[https://life hacker . com/how-to-yourself-to-a-dog-1794744432](https://lifehacker.com/how-to-introduce-yourself-to-a-dog-1794744432)
+> 原文：<https://lifehacker.com/how-to-introduce-yourself-to-a-dog-1794744432>
 
 狗是最好的人，所以当你第一次和它们打招呼时，很自然地想用爱来拥抱它们。大多数人都太好了，不想说出来，但这实际上是一种很糟糕的向狗介绍自己的方式。这里有一个更好的方法来给人留下好的第一印象。
 

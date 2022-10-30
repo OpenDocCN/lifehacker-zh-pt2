@@ -1,6 +1,6 @@
 # 如何不仅用书来装饰书架
 
-> 原文:[https://life hacker . com/how-to-decoration-a-bookshelf-than-just-books-1834984983](https://lifehacker.com/how-to-decorate-a-bookshelf-with-more-than-just-books-1834984983)
+> 原文：<https://lifehacker.com/how-to-decorate-a-bookshelf-with-more-than-just-books-1834984983>
 
 当然，书架是用来放书的。不可否认。我最喜欢的办公室书架设计是最简单的:所有的书从左到右，从上到下。但是生活空间中的书架既可以作为功能空间，也可以作为家居设计的核心。
 

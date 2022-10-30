@@ -1,6 +1,6 @@
 # 二月的健身挑战是:握力！
 
-> 原文:[https://life hacker . com/februarys-fitness-challenge-is-grip-1841383983](https://lifehacker.com/februarys-fitness-challenge-is-grip-1841383983)
+> 原文：<https://lifehacker.com/februarys-fitness-challenge-is-grip-1841383983>
 
 我们花很多时间锻炼我们的胳膊、腿、心脏、肺——但可能不是我们的手。这是一个遗憾，因为握力有助于其他锻炼，而且本身就是一个目标。我们将从最受欢迎，但矛盾的是最没用的手部练习开始:抓手。
 

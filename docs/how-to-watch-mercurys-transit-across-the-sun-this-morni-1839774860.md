@@ -1,6 +1,6 @@
 # 如何观看今早水星凌日
 
-> 原文:[https://life hacker . com/how-to-watch-mercurys-transit-cross-the-sun-this-morni-1839774860](https://lifehacker.com/how-to-watch-mercurys-transit-across-the-sun-this-morni-1839774860)
+> 原文：<https://lifehacker.com/how-to-watch-mercurys-transit-across-the-sun-this-morni-1839774860>
 
 上周，我们写了关于 [的一种方法，通过将它们与整个行星和星系的大小进行比较，来获得对你的问题的观点](https://lifehacker.com/get-perspective-on-your-problems-with-the-size-of-space-1839663190) 。
 

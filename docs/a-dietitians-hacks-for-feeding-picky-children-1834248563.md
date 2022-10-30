@@ -1,6 +1,6 @@
 # 营养师喂养挑食儿童的诀窍
 
-> 原文:[https://life hacker . com/a-营养师-hacks-for-feeding-挑食-儿童-1834248563](https://lifehacker.com/a-dietitians-hacks-for-feeding-picky-children-1834248563)
+> 原文：<https://lifehacker.com/a-dietitians-hacks-for-feeding-picky-children-1834248563>
 
 喂养孩子可能是一件困难的事情。当我们的孩子蹒跚学步时，我和邻居会在早上 9 点在厨房餐桌上交换战争故事。“我刚做了三份不同的早餐，”她会告诉我，“他一份都不吃。”最简单的办法就是让步:“给！好吧。只靠恐龙块和恐龙块过活！”你可能会说，从冰箱里撕开另一个袋子。但是孩子们确实需要“真正的”食物——水果、蔬菜、坚果和谷物——让他们养成吃这些食物的习惯是一个过程，这个过程应该在家里尽早开始。
 

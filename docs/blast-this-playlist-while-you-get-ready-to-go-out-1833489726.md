@@ -1,6 +1,6 @@
 # 当你准备出门的时候，打开这个播放列表
 
-> 原文:[https://life hacker . com/blast-this-playlist-while-you-get-ready-to-out-1833489726](https://lifehacker.com/blast-this-playlist-while-you-get-ready-to-go-out-1833489726)
+> 原文：<https://lifehacker.com/blast-this-playlist-while-you-get-ready-to-go-out-1833489726>
 
 当我准备去派对时，音乐是至关重要的。这是彻夜狂欢的序曲(或者是在某人起居室的沙发上拿着一个两块钱的透明塑料杯聊天的序曲)。在 Lifehacker 团队、Gizmodo 媒体同事和 Twitter 粉丝的帮助下，我已经准备了八个小时的赛前音乐。如果一首歌没有立即抓住你，向前跳。
 

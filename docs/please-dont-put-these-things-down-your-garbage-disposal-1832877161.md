@@ -1,6 +1,6 @@
 # 请不要把这些东西放进你的垃圾处理器
 
-> 原文:[https://life hacker . com/please-don-put-things-down-your-garbage-disposal-1832877161](https://lifehacker.com/please-dont-put-these-things-down-your-garbage-disposal-1832877161)
+> 原文：<https://lifehacker.com/please-dont-put-these-things-down-your-garbage-disposal-1832877161>
 
 垃圾处理器被设计用来处理大量的垃圾，但是远没有一些人所说的。尽管它们看起来很神奇，但这些强大的机器确实有其局限性——如果使用不当，你可能会像没有一样损坏你的管道。
 

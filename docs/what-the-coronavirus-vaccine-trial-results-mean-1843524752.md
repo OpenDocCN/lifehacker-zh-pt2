@@ -1,6 +1,6 @@
 # 冠状病毒疫苗试验结果意味着什么
 
-> 原文:[https://life hacker . com/what-the-the-coronavirus-vaccine-trial-results-mean-1843524752](https://lifehacker.com/what-the-coronavirus-vaccine-trial-results-mean-1843524752)
+> 原文：<https://lifehacker.com/what-the-coronavirus-vaccine-trial-results-mean-1843524752>
 
 大新闻:Moderna， [从事冠状病毒疫苗研究的](https://lifehacker.com/what-we-know-about-a-potential-covid-19-vaccine-1842480209) 公司之一，今天早上发布了他们 rna 疫苗 的 [一期试验结果。乍一看，这个消息令人兴奋:疫苗看起来很安全，志愿者产生了抗体。](https://investors.modernatx.com/static-files/2adbe91d-8eb4-4600-ae1d-020f129ab21c)
 

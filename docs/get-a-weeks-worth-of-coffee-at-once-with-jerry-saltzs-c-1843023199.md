@@ -1,6 +1,6 @@
 # 用杰瑞·萨尔茨有争议的 Java 程序一次获得一周的咖啡
 
-> 原文:[https://life hacker . com/get-a-weeks-worth-with-Jerry-saltzs-c-1843023199](https://lifehacker.com/get-a-weeks-worth-of-coffee-at-once-with-jerry-saltzs-c-1843023199)
+> 原文：<https://lifehacker.com/get-a-weeks-worth-of-coffee-at-once-with-jerry-saltzs-c-1843023199>
 
 上个月， [杰里·萨尔茨](https://twitter.com/jerrysaltz) ， [*纽约杂志*](https://www.vulture.com/author/jerry-saltz/) 的高级艺术评论家，也是《如何成为一名艺术家[](https://www.penguinrandomhouse.com/books/612484/how-to-be-an-artist-by-jerry-saltz/)*》的作者，在他概述了他非常规的每周咖啡日程后，在 Twitter 上疯传(我们对 [人们喝咖啡](https://lifehacker.com/why-you-shouldnt-stir-your-coffee-1825323842) )也略知一二。*
 

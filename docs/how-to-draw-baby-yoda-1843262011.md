@@ -1,6 +1,6 @@
 # 如何画尤达宝宝
 
-> 原文:[https://lifehacker.com/how-to-draw-baby-yoda-1843262011](https://lifehacker.com/how-to-draw-baby-yoda-1843262011)
+> 原文：<https://lifehacker.com/how-to-draw-baby-yoda-1843262011>
 
 还记得冠状病毒不是所有人谈论的话题吗？还记得主导谈话的话题是某个长着大耳朵、大眼睛的小家伙，有点像尤达，但样子可爱得不可思议的日子吗？当然，我指的是 [孩子](https://www.youtube.com/watch?v=E5YbEuypNlw&list=PLXsbMnnbPpLWY31v18tLFn1KHZQEw3CTy) ，在我们心中更为人所知的是尤达宝宝，还有伙计们——我想我们都该学习如何画他了。我肯定我说的“我们”可能是指“我们的孩子”
 

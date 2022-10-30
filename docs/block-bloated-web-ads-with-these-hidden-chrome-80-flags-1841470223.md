@@ -1,6 +1,6 @@
 # 用这些隐藏的 Chrome 80 标志阻止臃肿的网络广告
 
-> 原文:[https://life hacker . com/block-bulged-web-ads-with-these-hidden-chrome-80-flags-1841470223](https://lifehacker.com/block-bloated-web-ads-with-these-hidden-chrome-80-flags-1841470223)
+> 原文：<https://lifehacker.com/block-bloated-web-ads-with-these-hidden-chrome-80-flags-1841470223>
 
 Chrome 80 昨天下架了，通常的建议也适用。如果你的桌面浏览器还没有更新，或者你不确定，可以点击 Windows 浏览器右上角的三点图标或者 Mac 浏览器的“Chrome”菜单，访问它的“关于谷歌 Chrome”页面。
 

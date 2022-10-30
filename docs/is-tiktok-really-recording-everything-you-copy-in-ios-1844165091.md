@@ -1,6 +1,6 @@
 # 抖音真的会记录你在 iOS 中复制的所有东西吗？
 
-> 原文:[https://life hacker . com/is-tiktok-really-recording-everything-you-copy-in-IOs-1844165091](https://lifehacker.com/is-tiktok-really-recording-everything-you-copy-in-ios-1844165091)
+> 原文：<https://lifehacker.com/is-tiktok-really-recording-everything-you-copy-in-ios-1844165091>
 
 苹果的 [iOS 14](https://lifehacker.com/get-apples-ios-14-and-macos-big-sur-wallpapers-right-no-1844137276) 有一个很棒的新隐私功能，每当一个应用程序检查到你 iPhone 的剪贴板上有什么内容时，它就会给你发送一个通知。这听起来像是一个聪明的补充，但它也发现了几个应用程序的一些潜在的令人不安的行为。
 

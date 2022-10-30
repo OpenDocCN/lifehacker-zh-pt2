@@ -1,6 +1,6 @@
 # 挑选完美自行车的初学者指南
 
-> 原文:[https://life hacker . com/the-初学者指南挑选完美自行车-1782443592](https://lifehacker.com/the-beginners-guide-to-picking-the-perfect-bicycle-1782443592)
+> 原文：<https://lifehacker.com/the-beginners-guide-to-picking-the-perfect-bicycle-1782443592>
 
 我一直是一个自行车纯粹主义者。直到最近，我一直骑着我 10 岁生日时得到的那辆自行车。当然，它仍然带我去我需要去的地方，但绝对是时候升级了。作为一个初学者，我发现挑选合适的自行车并不像我想象的那么简单。从车架尺寸到额外功能，以下是如何找到您的完美座驾。
 

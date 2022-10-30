@@ -1,6 +1,6 @@
 # 是时候试试杰斐逊硬拉了
 
-> 原文:[https://life hacker . com/its-time-to-try-a-Jefferson-deadlift-1839987677](https://lifehacker.com/its-time-to-try-a-jefferson-deadlift-1839987677)
+> 原文：<https://lifehacker.com/its-time-to-try-a-jefferson-deadlift-1839987677>
 
 到目前为止，在我们的怪异托举挑战中，我要求你做一个 [单手硬拉](https://vitals.lifehacker.com/lets-get-weird-and-try-a-one-handed-deadlift-1839717740) 和一个 [单手哑铃抓举](https://vitals.lifehacker.com/this-weeks-weird-lift-is-the-one-hand-dumbbell-snatch-1839893931?rev=1574372309060) 。现在有一个解脱:在本周的举重中，我会让你把双手放在杠铃上。我们在做杰斐逊硬拉。
 

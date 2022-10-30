@@ -1,6 +1,6 @@
 # 帕内拉准备通心粉和奶酪的方式没有任何问题
 
-> 原文:[https://life hacker . com/then-nothing-not-错不了-the-way-panera-prepares-their-1839066102](https://lifehacker.com/theres-nothing-wrong-with-the-way-panera-prepares-their-1839066102)
+> 原文：<https://lifehacker.com/theres-nothing-wrong-with-the-way-panera-prepares-their-1839066102>
 
 除了迫使社会审视什么是真正的喜剧之外，抖音还推动了各种各样的讨论，包括政治性的和非政治性的。但是在一位用户发布了一张的幕后花絮后，人们开始谈论帕内拉的通心粉和奶酪，这些通心粉和奶酪是在塑料袋中从冷冻状态重新加热到极低温度的。
 

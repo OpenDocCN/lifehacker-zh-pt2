@@ -1,6 +1,6 @@
 # 通过问自己这个问题来缓解焦虑
 
-> 原文:[https://life hacker . com/ease-anxiety-by-question-yourself-this-question-1844407072](https://lifehacker.com/ease-anxiety-by-asking-yourself-this-question-1844407072)
+> 原文：<https://lifehacker.com/ease-anxiety-by-asking-yourself-this-question-1844407072>
 
 克服焦虑没有捷径。任何在焦虑中挣扎的人都知道这一点。许多人，即使在最好的时候，也会对每天的情况感到强烈或过度的担忧。我也不会把 2020 年归为“最好的时代”
 

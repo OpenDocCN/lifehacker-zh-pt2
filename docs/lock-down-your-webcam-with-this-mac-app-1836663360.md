@@ -1,6 +1,6 @@
 # 使用此 Mac 应用程序锁定您的网络摄像头
 
-> 原文:[https://life hacker . com/lock-down-your-web cam-with this-MAC-app-1836663360](https://lifehacker.com/lock-down-your-webcam-with-this-mac-app-1836663360)
+> 原文：<https://lifehacker.com/lock-down-your-webcam-with-this-mac-app-1836663360>
 
 [Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)) : title[![](../Images/80a55aae3a4e6ac59b23fae8fccddf22.png)](https://applemacos.kinja.com)[Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)Many people turn to Macs because they're incredibly easy to operate. That's true, but there's still plenty worth knowing before you can truly master your Mac.
 

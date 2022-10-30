@@ -1,4 +1,4 @@
-> 原文:[https://life hacker . com/im-musician-Dan-boeckner-of-operators-and-wolf-parade-1834989569](https://lifehacker.com/im-musician-dan-boeckner-of-operators-and-wolf-parade-1834989569)
+> 原文：<https://lifehacker.com/im-musician-dan-boeckner-of-operators-and-wolf-parade-1834989569>
 
 如果你关注新音乐，你可能知道丹·伯克纳来自，这是一个由他、电音精灵德沃伊卡和鼓手萨姆·布朗组成的黑暗和跳舞的合成流行乐队。(查看他们的新专辑，*晨曦*， [这里](https://operators.store-08.com/radiant-dawn/) 和 [这里](https://open.spotify.com/album/7fN8Uw230qeH6hR3beBSFd?si=VDrX8WwDTzq0ByYh4hKv1A) ， [他们的巡演日程这里](http://operatorsmusic.com/tour/) 。)如果这没有让你想起什么，你可能更熟悉 Wolf Parade，这是一个你可能在大学的大部分时间里都在听的独立摇滚乐队。但你肯定不知道的是，在音乐事业起飞之前，伯克纳曾在餐馆工作过，他对一系列真正令人印象深刻的美食、调味品和真正美味的薯片既有广博的知识，也有极大的热情。
 

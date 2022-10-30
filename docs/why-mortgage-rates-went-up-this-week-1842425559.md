@@ -1,6 +1,6 @@
 # 为什么本周抵押贷款利率上升
 
-> 原文:[https://life hacker . com/why-mortgage-rates-up-this-week-1842425559](https://lifehacker.com/why-mortgage-rates-went-up-this-week-1842425559)
+> 原文：<https://lifehacker.com/why-mortgage-rates-went-up-this-week-1842425559>
 
 本周早些时候，我回顾了美联储将利率下调至接近零的 T2 对你的资金意味着什么。其中的含义是:抵押贷款利率将大幅下降的预测。
 

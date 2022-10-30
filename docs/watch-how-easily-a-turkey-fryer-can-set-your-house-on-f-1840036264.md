@@ -1,6 +1,6 @@
 # 看看一个火鸡炸锅能多么容易地让你的房子着火
 
-> 原文:[https://life hacker . com/watch-how-easy-a-turkey-fryer-can-set-your-house-on-f-1840036264](https://lifehacker.com/watch-how-easily-a-turkey-fryer-can-set-your-house-on-f-1840036264)
+> 原文：<https://lifehacker.com/watch-how-easily-a-turkey-fryer-can-set-your-house-on-f-1840036264>
 
 油炸火鸡味道很好，至少我听说过，但是自己油炸一整只火鸡会有烧毁你房子的严重危险。消费者产品安全委员会，定期 [在假期](https://lifehacker.com/good-gifs-of-the-holidays-on-fire-from-the-government-1821130386) 放火，有 [一个新的视频](https://youtu.be/ASBf_qj0H7g?t=992) 向我们展示*不是*如何炸火鸡。
 

@@ -1,6 +1,6 @@
 # 2020 年 2 月网飞看什么
 
-> 原文:[https://life hacker . com/2020 年 2 月网飞有什么看点-1841156260](https://lifehacker.com/whats-to-watch-on-netflix-in-february-2020-1841156260)
+> 原文：<https://lifehacker.com/whats-to-watch-on-netflix-in-february-2020-1841156260>
 
 下个月，网飞将出演《安娜·卡列尼娜》、《肮脏的哈利》、《T1》、《T2》、《伊莉莎白》、《T3》、《T4》、《欲望都市 2》、《钢琴师》、《T7》以及《警察学院》系列的全部七部电影。
 

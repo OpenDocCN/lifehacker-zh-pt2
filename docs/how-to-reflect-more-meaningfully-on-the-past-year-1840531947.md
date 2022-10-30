@@ -1,6 +1,6 @@
 # 如何更有意义地反思过去的一年
 
-> 原文:[https://life hacker . com/how-to-reflect-more-meaningly-on-the-year-1840531947](https://lifehacker.com/how-to-reflect-more-meaningfully-on-the-past-year-1840531947)
+> 原文：<https://lifehacker.com/how-to-reflect-more-meaningfully-on-the-past-year-1840531947>
 
 随着年底的临近，你可能会意识到，再一次，你没有在 1 月 9 日之前保持一个决心。或者你甚至不记得你的决心是什么。或者更好的是，你没有下任何决心，因为这些年来你变得聪明了，不再希望自己失败。
 

@@ -1,6 +1,6 @@
 # 如何在 Wear OS 中启用隐藏鼓音序器奖励功能
 
-> 原文:[https://life hacker . com/how-to-enable-the-hidden-drum-sequencer-bonus-feature-I-1842024925](https://lifehacker.com/how-to-enable-the-hidden-drum-sequencer-bonus-feature-i-1842024925)
+> 原文：<https://lifehacker.com/how-to-enable-the-hidden-drum-sequencer-bonus-feature-i-1842024925>
 
 你的 Wear OS 智能手表上隐藏了一个有趣的小功能。虽然这可能不会让你成为下一个死神，但在睡前或日常通勤中极度拖延的时候，这是一种有趣的方式，可以让你的朋友放松一下，或者娱乐一下自己。
 

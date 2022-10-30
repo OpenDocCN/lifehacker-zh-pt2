@@ -1,6 +1,6 @@
 # 如果你要抗议，你需要这个 iPhone 快捷键
 
-> 原文:[https://life hacker . com/you-need-this-iphone-shortcut-if-you-抗议-1843824931](https://lifehacker.com/you-need-this-iphone-shortcut-if-youre-protesting-1843824931)
+> 原文：<https://lifehacker.com/you-need-this-iphone-shortcut-if-youre-protesting-1843824931>
 
 当你离开房子去抗议时，你可能很想把你的 iPhone 留在家里——我不怪你，因为当你被推倒在地或被橡皮子弹击中时，你昂贵的设备被摧毁的风险会增加——你可能需要重新考虑。你的 iPhone 可以是一个令人难以置信的新闻来源和一个强大的通信设备；如果你在出门前花几分钟时间设置一些重要的快捷方式，它也可以成为救命稻草。
 

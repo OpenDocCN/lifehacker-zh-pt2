@@ -1,6 +1,6 @@
 # 罢工和抵制的区别
 
-> 原文:[https://life hacker . com/the-difference-that-a-strike-and-a-cohibit-1844868974](https://lifehacker.com/the-difference-between-a-strike-and-a-boycott-1844868974)
+> 原文：<https://lifehacker.com/the-difference-between-a-strike-and-a-boycott-1844868974>
 
 如果你关注体育(或者即使你不关注)，你可能会注意到，无论是 NBA 的还是[【WNBA】](https://jezebel.com/wnba-boycotts-games-to-protest-murder-of-jacob-blake-1844862265)都没有参加他们昨天预定要参加的比赛。它始于密尔沃基雄鹿队 [拒绝与奥兰多魔术队](https://www.theroot.com/milwaukee-bucks-wont-let-america-look-away-boycott-gam-1844858865) 进行他们预定的季后赛，并迅速发展到根本没有篮球比赛、 [以及一些棒球和足球比赛](https://www.washingtonpost.com/sports/2020/08/26/bucks-boycott-nba-playoff-game) 也没有进行。
 

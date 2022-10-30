@@ -1,6 +1,6 @@
 # 走到“地板是熔岩”的幕后
 
-> 原文:[https://life hacker . com/go-幕后-of-floor-is-lava-1844388921](https://lifehacker.com/go-behind-the-scenes-of-floor-is-lava-1844388921)
+> 原文：<https://lifehacker.com/go-behind-the-scenes-of-floor-is-lava-1844388921>
 
 如果你没有花一个夏天看着人们从火山岩上弹开，消失在沸腾的熔岩坑中，你就错过了这些天生活中为数不多的乐趣之一。 [*地板是熔岩*](https://www.netflix.com/watch/81006858?source=35) 是游戏的大预算版本每个小孩都莫名其妙地在自己的客厅化妆，从脚凳到沙发再到茶几跳来跳去，以避免地板上充满想象中的熔岩。现在我们开始了解它的一些秘密。
 

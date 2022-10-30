@@ -1,4 +1,4 @@
-> 原文:[https://life hacker . com/what-does-peak-infection-mean-1842978669](https://lifehacker.com/what-does-peak-infection-mean-1842978669)
+> 原文：<https://lifehacker.com/what-does-peak-infection-mean-1842978669>
 
 我们现在处于这样一个时刻，美国的 [确诊新冠肺炎病例](https://www.nytimes.com/interactive/2020/us/coronavirus-us-cases.html) 数量在几十万，而死亡人数却在几万。尽管这些数字令人担忧，但增长率正在放缓，这表明我们洗手、呆在家里以及保持身体距离的努力正在取得成效。
 

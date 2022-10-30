@@ -1,6 +1,6 @@
 # 跟着这张 GIF 呼吸，减少你的焦虑
 
-> 原文:[https://life hacker . com/reduce-your-anxiety-by-breathing-along-this-gif-1839498094](https://lifehacker.com/reduce-your-anxiety-by-breathing-along-with-this-gif-1839498094)
+> 原文：<https://lifehacker.com/reduce-your-anxiety-by-breathing-along-with-this-gif-1839498094>
 
 你好。今天过得不好吗？
 

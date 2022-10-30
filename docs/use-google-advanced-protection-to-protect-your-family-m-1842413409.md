@@ -1,6 +1,6 @@
 # 使用谷歌高级保护来保护您的家庭成员免受 Android 恶意软件的侵害
 
-> 原文:[https://life hacker . com/use-Google-advanced-protection-to-protect-your-family-m-1842413409](https://lifehacker.com/use-google-advanced-protection-to-protect-your-family-m-1842413409)
+> 原文：<https://lifehacker.com/use-google-advanced-protection-to-protect-your-family-m-1842413409>
 
 谷歌 Play 商店无意中托管了恶意应用程序，似乎每隔一周就会发现一批新的恶意应用程序。Y 只要你遵守基本的数据安全协议，使用 [可靠的反恶意软件服务](https://lifehacker.com/double-check-that-your-android-antivirus-app-actually-w-1833414047) ，并随时警惕删除危险的应用程序，你应该没问题。但事情是这样的:这些可疑的应用程序开发者和黑客并没有瞄准那些保护他们设备安全的用户；他们的目标是你的朋友和家人，他们不知道这些风险(或者顽固地忽视它们)。
 

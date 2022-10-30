@@ -1,6 +1,6 @@
 # 如何帮助苏丹人民
 
-> 原文:[https://life hacker . com/how-to-help-the-people-of-Sudan-1835663327](https://lifehacker.com/how-to-help-the-people-of-sudan-1835663327)
+> 原文：<https://lifehacker.com/how-to-help-the-people-of-sudan-1835663327>
 
 六月是苏丹首都喀土穆 暴力的一个月，为平民领导的政府示威的和平抗议者在街上遭到了准军事部队的袭击。据估计，已有 100 多人死亡，数百人受伤。
 

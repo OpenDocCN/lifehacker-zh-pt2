@@ -1,4 +1,4 @@
-> 原文:[https://life hacker . com/how-to-deal-with-online-hate-1832241811](https://lifehacker.com/how-to-deal-with-online-hate-1832241811)
+> 原文：<https://lifehacker.com/how-to-deal-with-online-hate-1832241811>
 
 迪伦·马龙喜欢和他的敌人说话，直到他们不再是敌人。在他的播客 [*与恨我的人的对话*](http://www.dylanmarron.com/podcast/) 上，迪伦与那些给他发仇恨邮件、留下愤怒评论或在推特上发布关于他的坏话的人通电话。他还在网上主持其他侮辱过对方的人之间的对话，比如 [*Yo！这是种族主义者安德鲁·蒂和一个尴尬的来电者，还是阿曼达·帕尔默和一个推特批评家。迪伦的魅力和体贴让谈话令人惊讶地愉快，他和他的客人不可避免地找到了一些共同点——没有人牺牲他们的尊严或原谅低劣的行为。迪伦就如何应对互联网上的仇恨和批评给了 Lifehacker 一些建议——以及如何区分有用的批评、无礼和辱骂。*](https://www.earwolf.com/show/yo-is-this-racist/) 
 

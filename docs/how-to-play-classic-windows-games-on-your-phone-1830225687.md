@@ -1,6 +1,6 @@
 # 如何在手机上玩经典的 Windows 游戏
 
-> 原文:[https://life hacker . com/如何玩经典 windows 手机游戏-1830225687](https://lifehacker.com/how-to-play-classic-windows-games-on-your-phone-1830225687)
+> 原文：<https://lifehacker.com/how-to-play-classic-windows-games-on-your-phone-1830225687>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-k1x5rHjt6P4&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-k1x5rHjt6P4&start=0) 
 

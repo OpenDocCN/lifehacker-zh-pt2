@@ -1,6 +1,6 @@
 # 这证明了计算机和全轮驱动不是冬季轮胎的对手
 
-> 原文:[https://jalopnik . com/heres-proof-the-computers-and-all-wheel-drive-no-m-1830536284](https://jalopnik.com/heres-proof-that-computers-and-all-wheel-drive-are-no-m-1830536284)
+> 原文：<https://jalopnik.com/heres-proof-that-computers-and-all-wheel-drive-are-no-m-1830536284>
 
 在 之前，我们已经 [说过了，我们要再说一遍:如果你住在冬天很严重的地方，你真的需要](https://jalopnik.com/heres-why-you-need-winter-tires-as-shown-with-a-tricyc-1754259579) [在你的日常驾驶上考虑冬季轮胎](https://jalopnik.com/a-guide-to-how-you-should-buy-winter-tires-1821780963) 。是的，就算你有 [全驱](https://jalopnik.com/you-dont-need-all-wheel-drive-in-the-snow-1821806245) 。是的，即使轮胎店的收据上清楚地写着“一年四季”。这很有道理。
 

@@ -1,6 +1,6 @@
 # 如果你认为你得了新冠肺炎，该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-you-think-you-hacker-1841958386](https://lifehacker.com/what-to-do-if-you-think-you-have-covid-19-1841958386)
+> 原文：<https://lifehacker.com/what-to-do-if-you-think-you-have-covid-19-1841958386>
 
 随着 [冠状病毒正在传播](https://lifehacker.com/how-to-prepare-for-coronavirus-without-panicking-1841936747) 的消息，人们开始认为这只是时间问题——等等，*我*有冠状病毒吗？在这一点上，它仍然是非常罕见的，你的咳嗽更有可能是感冒或流感。尽管如此，你还是应该这么做。
 

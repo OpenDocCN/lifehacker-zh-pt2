@@ -1,6 +1,6 @@
 # 给你消极的内心声音一个名字
 
-> 原文:[https://life hacker . com/give-your-negative-inner-voice-a-name-1833910237](https://lifehacker.com/give-your-negative-inner-voice-a-name-1833910237)
+> 原文：<https://lifehacker.com/give-your-negative-inner-voice-a-name-1833910237>
 
 我们内心的批评家对我们来说可能是彻头彻尾的讨厌。他们告诉我们，我们不够聪明，不够有才华，不够有吸引力。即使在内心深处，我们不相信这是真的，内心的批评也很难被忽视。毕竟，这是我们自己的声音，我们的声音应该是可信的。
 

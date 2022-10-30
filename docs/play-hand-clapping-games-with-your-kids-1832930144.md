@@ -1,6 +1,6 @@
 # 和你的孩子玩拍手游戏
 
-> 原文:[https://life hacker . com/play-hand-appealing-games-with-your-kids-1832930144](https://lifehacker.com/play-hand-clapping-games-with-your-kids-1832930144)
+> 原文：<https://lifehacker.com/play-hand-clapping-games-with-your-kids-1832930144>
 
 几个月前，我和我的大家庭去了迪斯尼世界一周。如果你去过迪斯尼，你会知道大约 75%的经历都围绕着等待。几天后，当我排着特别长的队时，我 9 岁的侄女转向我说:“想玩游戏吗？”然后，她开始教我如何玩一个叫做 [的击掌游戏，游戏内容是这样的:](https://www.youtube.com/watch?v=B-p49J8Bd0w) 
 

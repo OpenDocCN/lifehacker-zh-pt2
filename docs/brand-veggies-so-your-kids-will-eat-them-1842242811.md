@@ -1,6 +1,6 @@
 # 给蔬菜打上商标，这样你的孩子就会吃了
 
-> 原文:[https://life hacker . com/brand-veggies-so-your-kids-will-eat-them-1842242811](https://lifehacker.com/brand-veggies-so-your-kids-will-eat-them-1842242811)
+> 原文：<https://lifehacker.com/brand-veggies-so-your-kids-will-eat-them-1842242811>
 
 有些孩子会对你的说法感到满意，你说花椰菜小花是“小树”，它们是怪物，必须吞食。其他孩子会说，“西兰花很恶心，吃树也很恶心，我才不吃那一套。”
 

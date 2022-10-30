@@ -1,6 +1,6 @@
 # 如果你在飞机上被降级了该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-if-you-degraded-on-a-flight-1840340558](https://lifehacker.com/what-to-do-if-youre-downgraded-on-a-flight-1840340558)
+> 原文：<https://lifehacker.com/what-to-do-if-youre-downgraded-on-a-flight-1840340558>
 
 上周，我们讨论了 [在](https://lifehacker.com/can-you-buy-a-second-seat-on-a-flight-just-because-1840245867) 航班上买第二个座位的来龙去脉，只是因为你觉得喜欢，妈的。本周，在航空公司让你花钱的其他方式中，金州勇士队的前 NBA 球员费斯图斯·埃泽利在推特上发布了他最近乘坐阿拉斯加航空公司航班的经历——当时航空公司显然对他的升级机票做出了过度承诺。
 

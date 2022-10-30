@@ -1,6 +1,6 @@
 # 每两周在 Epic Games 商店获得一个免费游戏
 
-> 原文:[https://life hacker . com/get-a-free-game-every-two-weekly-on-the-epic-games-store-1831098190](https://lifehacker.com/get-a-free-game-every-two-weeks-on-the-epic-games-store-1831098190)
+> 原文：<https://lifehacker.com/get-a-free-game-every-two-weeks-on-the-epic-games-store-1831098190>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-nv8lkz1a42M&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-nv8lkz1a42M&start=0) 
 

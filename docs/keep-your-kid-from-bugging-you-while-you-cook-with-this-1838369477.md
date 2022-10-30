@@ -1,6 +1,6 @@
 # 当你用这个游戏做饭时，不要让你的孩子打扰你
 
-> 原文:[https://life hacker . com/keep-your-kid-from-bugging-you-while-you-cook with this-1838369477](https://lifehacker.com/keep-your-kid-from-bugging-you-while-you-cook-with-this-1838369477)
+> 原文：<https://lifehacker.com/keep-your-kid-from-bugging-you-while-you-cook-with-this-1838369477>
 
 当我的第一个养子和我们住在一起一年的时候，他一直是我的影子。无论我去哪里，那个可爱的男孩都紧跟在我后面，尤其是准备晚餐的时候。我做饭的时候，他从来没有兴趣看表演；当我从餐厅走到厨房，从冰箱到水槽，从水槽到炉子时，他宁愿和我在一起，尽可能地靠近我。
 

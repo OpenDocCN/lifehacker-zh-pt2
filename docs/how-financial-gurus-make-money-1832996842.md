@@ -1,6 +1,6 @@
 # 金融大师如何赚钱
 
-> 原文:[https://life hacker . com/how-financial-gurus-make-money-1832996842](https://lifehacker.com/how-financial-gurus-make-money-1832996842)
+> 原文：<https://lifehacker.com/how-financial-gurus-make-money-1832996842>
 
 给我 1 美元，我就给你 10 个声称能把它变成 2 美元的“金钱大师”。
 

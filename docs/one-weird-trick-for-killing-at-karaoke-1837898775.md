@@ -1,6 +1,6 @@
 # 在卡拉 ok 杀人的一个奇怪技巧
 
-> 原文:[https://life hacker . com/one-verged-trick-for-killing-at-karaoke-1837898775](https://lifehacker.com/one-weird-trick-for-killing-at-karaoke-1837898775)
+> 原文：<https://lifehacker.com/one-weird-trick-for-killing-at-karaoke-1837898775>
 
 如果你不喜欢卡拉 ok，你很快就会。下次你被拉去参加成人合唱团时，你可以用一个技巧来博得满堂喝彩:改唱怪异的艾尔版本。
 

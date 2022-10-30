@@ -1,6 +1,6 @@
 # 我们仍然不知道“温和”新冠肺炎的所有长期后果
 
-> 原文:[https://life hacker . com/we-that-now-all-the-long-term-success-of-mi-1844560700](https://lifehacker.com/we-still-dont-know-all-the-long-term-consequences-of-mi-1844560700)
+> 原文：<https://lifehacker.com/we-still-dont-know-all-the-long-term-consequences-of-mi-1844560700>
 
 在新冠肺炎幸存是一回事。再次变得健康是另一回事。最近的研究发现，即使那些看起来没有生命危险的人也显示出心脏受损的迹象。我们不知道他们的未来会怎样。
 

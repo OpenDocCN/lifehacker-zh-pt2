@@ -1,4 +1,4 @@
-> 原文:[https://life hacker . com/im-college humors-Sam-Reich-and-this-is-how-I-work-1830139770](https://lifehacker.com/im-collegehumors-sam-reich-and-this-is-how-i-work-1830139770)
+> 原文：<https://lifehacker.com/im-collegehumors-sam-reich-and-this-is-how-i-work-1830139770>
 
 自 2000 年代中期以来，大学幽默视频为高预算互联网视频设定了标准，取笑诸如 [字体](https://www.youtube.com/watch?v=i3k5oY9AHHM)[评论区](https://www.youtube.com/watch?v=wLKP4BP-n6A)[*整肃*](https://www.youtube.com/watch?v=5TpY7ZjmFro)[【第二青春期】](https://www.youtube.com/watch?v=Veq4Oc8S7-I) [考试不及格](https://www.youtube.com/watch?v=UejWmvx1hR0)[与有钱朋友吃饭](https://www.youtube.com/watch?v=XN-u3q3wgtA)他们的突围系列包括 [杰克&阿米尔](http://www.collegehumor.com/jakeandamir)[几乎无法工作](http://www.collegehumor.com/hardlyworking)[恶作剧战争](http://www.collegehumor.com/prankwar)[重装步兵](http://www.collegehumor.com/troopers)[亚当废墟一切](http://www.collegehumor.com/adam-ruins-everything) 。
 

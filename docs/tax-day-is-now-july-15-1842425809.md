@@ -1,6 +1,6 @@
 # 纳税日现在是 7 月 15 日
 
-> 原文:[https://lifehacker.com/tax-day-is-now-july-15-1842425809](https://lifehacker.com/tax-day-is-now-july-15-1842425809)
+> 原文：<https://lifehacker.com/tax-day-is-now-july-15-1842425809>
 
 就在几天前 ，财政部长史蒂文·姆努钦宣布，你可以推迟 90 天缴纳所得税，只要你仍然在通常的 4 月 15 日截止日期前提交纳税申报表。
 

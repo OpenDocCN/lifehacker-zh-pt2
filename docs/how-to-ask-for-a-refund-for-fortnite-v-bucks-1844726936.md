@@ -1,6 +1,6 @@
 # 如何要求退还“堡垒之夜”V-Bucks
 
-> 原文:[https://life hacker . com/how-to-ask-a-return-for-fort nite-v-bucks-1844726936](https://lifehacker.com/how-to-ask-for-a-refund-for-fortnite-v-bucks-1844726936)
+> 原文：<https://lifehacker.com/how-to-ask-for-a-refund-for-fortnite-v-bucks-1844726936>
 
 多好的一天。Epic Games 正在起诉苹果和谷歌在其各种应用商店中涉嫌垄断行为，两家公司都在各自的应用商店中禁止了 Epic 最受欢迎的游戏*堡垒之夜*，因为它们试图回避两家公司从应用内购买中抽取的分成。
 

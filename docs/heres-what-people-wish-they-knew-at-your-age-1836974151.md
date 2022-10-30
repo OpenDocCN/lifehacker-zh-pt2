@@ -1,6 +1,6 @@
 # 以下是人们在你这个年龄希望知道的事情
 
-> 原文:[https://life hacker . com/heres-what-people-wish-they-know-in-your-age-1836974151](https://lifehacker.com/heres-what-people-wish-they-knew-at-your-age-1836974151)
+> 原文：<https://lifehacker.com/heres-what-people-wish-they-knew-at-your-age-1836974151>
 
 “你不必这么生气，”我希望我能在 16 岁时告诉自己。“找一份真正的工作，并坚持下去，”我希望我能在 23 岁时告诉自己。你不能告诉年轻时的自己你现在所知道的。但是你可以给每个同龄的人提建议。你可以在网站 [【嘿，来自未来的](https://heyfromthefuture.com/) 上读到其他人希望他们在你这个年龄就知道的东西。
 

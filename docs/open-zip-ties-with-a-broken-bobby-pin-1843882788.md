@@ -1,6 +1,6 @@
 # 用一个破发夹打开拉链
 
-> 原文:[https://life hacker . com/open-zip-ties-with-a-broken-bobby-pin-1843882788](https://lifehacker.com/open-zip-ties-with-a-broken-bobby-pin-1843882788)
+> 原文：<https://lifehacker.com/open-zip-ties-with-a-broken-bobby-pin-1843882788>
 
 如果你有一些不该绑在一起的东西——不管是什么，不管是什么原因——一个折断的发夹会是一个很好的释放工具。
 

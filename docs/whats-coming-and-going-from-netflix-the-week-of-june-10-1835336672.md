@@ -1,6 +1,6 @@
 # 2019 年 6 月 10 日这一周，网飞有哪些活动
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of-June-10-1835336672](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-june-10-1835336672)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-june-10-1835336672>
 
 你看过杰出的马丁·斯科塞斯关于滚石乐队的纪录片《照亮一盏灯》吗？为了喜欢这部电影，你甚至不必是一个石头迷。嗯，斯科塞斯又让一个摇滚医生去网飞了，这次是关于鲍勃·迪伦的。*滚雷时事讽刺剧*(周三)讲述的是迪伦 1975 年组织不善的小型巡回演出，琼·贝兹、乔尼·米切尔和《漫步者》的杰克·艾略特等好友参加了演出。如果你是迪伦的人，我看不出这有什么不好。如果你不是，它仍然值得一看，因为这个斯科塞斯的孩子是一个真正的后起之秀，有着美好的未来。
 

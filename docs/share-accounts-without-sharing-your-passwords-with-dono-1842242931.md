@@ -1,6 +1,6 @@
 # 与 DoNotPay 共享帐户，但不共享您的密码
 
-> 原文:[https://life hacker . com/share-accounts-without-share-your-passwords-with-dono-1842242931](https://lifehacker.com/share-accounts-without-sharing-your-passwords-with-dono-1842242931)
+> 原文：<https://lifehacker.com/share-accounts-without-sharing-your-passwords-with-dono-1842242931>
 
 人们一直在共享各种流媒体服务的密码。你是否亲自参与这种做法是你自己的道德灰色地带，但这是数字世界的一种常见做法:你用你网飞家族的一个名额和我交换，我会给你我的 Hulu 访问权。
 

@@ -1,6 +1,6 @@
 # 如何在 Instagram 上展示自然奇观，而不是一个鸡巴
 
-> 原文:[https://life hacker . com/how-to-insta gram-natural-wonders-without be a-dick-1834650087](https://lifehacker.com/how-to-instagram-natural-wonders-without-being-a-dick-1834650087)
+> 原文：<https://lifehacker.com/how-to-instagram-natural-wonders-without-being-a-dick-1834650087>
 
 今年 3 月，加州埃尔西诺湖(Lake Elsinore)的山区经历了一年一度的火红罂粟花盛开 Instagram 用户蜂拥而至，手里拿着相机和智能手机，把一切都搞砸了。
 

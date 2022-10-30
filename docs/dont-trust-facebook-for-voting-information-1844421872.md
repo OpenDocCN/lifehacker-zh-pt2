@@ -1,6 +1,6 @@
 # 不要相信脸书的投票信息
 
-> 原文:[https://life hacker . com/dont-trust-Facebook-for-voting-information-1844421872](https://lifehacker.com/dont-trust-facebook-for-voting-information-1844421872)
+> 原文：<https://lifehacker.com/dont-trust-facebook-for-voting-information-1844421872>
 
 无论如何，2020 年的选举都将是有争议的，那些相信像邮件投票这样的(合理的)系统在某种程度上延续了一些巨大的欺诈行为的人在脸书散布大量错误信息也就不足为奇了。
 

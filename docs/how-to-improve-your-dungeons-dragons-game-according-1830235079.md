@@ -1,6 +1,6 @@
 # 如何提高你的龙与地下城游戏，根据 D&D 权威山姆·威特沃
 
-> 原文:[https://life hacker . com/how-to-improve-your 龙与地下城游戏根据 1830235079](https://lifehacker.com/how-to-improve-your-dungeons-dragons-game-according-1830235079)
+> 原文：<https://lifehacker.com/how-to-improve-your-dungeons-dragons-game-according-1830235079>
 
 地下城&龙族既让人害怕又让人自由。一方面，你有一个只受你想象力限制的游戏，还有一本关于规则的大书，你可以随意忽略它。另一方面，如果你是地下城主，你必须走钢丝。给你的玩家足够的自由，让他们变得疯狂和有创造力是很重要的，但是你也需要限制他们一点，这样你才能真正完成你想玩的战役或故事情节。
 

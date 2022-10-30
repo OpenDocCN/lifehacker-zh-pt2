@@ -1,6 +1,6 @@
 # 使用 Chromecast 和这个应用程序将手机上的图片投射到电视上
 
-> 原文:[https://life hacker . com/cast-drawings-on-your-phone-to-your-television-using-a-1831530501](https://lifehacker.com/cast-drawings-on-your-phone-to-your-television-using-a-1831530501)
+> 原文：<https://lifehacker.com/cast-drawings-on-your-phone-to-your-television-using-a-1831530501>
 
 我们家的感恩节很盛大。每个人吃完饭后，我们通常会寻找一些孩子和老人都喜欢的“活动”,过去几年来，这一直是一个激烈的图片游戏。
 

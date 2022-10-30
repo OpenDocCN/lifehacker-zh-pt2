@@ -1,6 +1,6 @@
 # 堡垒之夜到底是怎么回事的家长指南
 
-> 原文:[https://kotaku . com/a-parents-guide-to-what-the-hell-going-with-fortn-1844731733](https://kotaku.com/a-parents-guide-to-what-the-hell-is-going-on-with-fortn-1844731733)
+> 原文：<https://kotaku.com/a-parents-guide-to-what-the-hell-is-going-on-with-fortn-1844731733>
 
 也许你是这样一位家长，就像现在的许多家长一样，在新冠肺炎疫情飓风肆虐的时候，你正在家里工作。如果你有十几岁喜欢玩游戏的孩子，他们可能会玩*堡垒之夜*。昨天，那个十几岁的游戏玩家来找你，想知道[*【堡垒之夜】*](https://kotaku.com/apple-removes-fortnite-from-app-store-1844717397) 是怎么回事。而你，亲爱的父母，不知道该告诉他们什么，因为自从你在 1995 年在吃豆人女士游戏机上输掉最后一个 25 美分硬币后，你就再也没玩过电子游戏了。我们是来帮忙的。
 

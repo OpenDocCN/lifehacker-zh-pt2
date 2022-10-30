@@ -1,6 +1,6 @@
 # 如何帮助受劳拉飓风影响的人们
 
-> 原文:[https://life hacker . com/how-to-help-people-impact-by-hurricane-Laura-1844866920](https://lifehacker.com/how-to-help-people-impacted-by-hurricane-laura-1844866920)
+> 原文：<https://lifehacker.com/how-to-help-people-impacted-by-hurricane-laura-1844866920>
 
 今天清晨，飓风劳拉在路易斯安那州卡梅伦附近登陆，袭击了该地区，风速高达每小时 150 英里。已经有一名确认死亡，路易斯安那州州长约翰·贝尔·爱德华兹说他预计接下来几天会有更多的报道。当路易斯安那州的[已经大面积受损时，劳拉继续向内陆](https://weather.com/storms/hurricane/news/2020-08-27-hurricane-laura-landfall-forecast-louisiana-inland-flooding-wind) 移动，破坏性的大风、孤立的龙卷风、风暴潮和内陆洪水都在预料之中。
 

@@ -1,6 +1,6 @@
 # 如何用一个耳塞听立体声音乐和播客
 
-> 原文:[https://life hacker . com/how-to-listen-to-stereo-music-and-podcast-in-one-earbu-1839728262](https://lifehacker.com/how-to-listen-to-stereo-music-and-podcasts-in-one-earbu-1839728262)
+> 原文：<https://lifehacker.com/how-to-listen-to-stereo-music-and-podcasts-in-one-earbu-1839728262>
 
 有时你想播放音乐、播客或有声读物，但你需要一只耳朵向世界开放，所以你只放了一只耳塞。但是如果歌曲、播客或 [清蒸火腿](https://www.youtube.com/watch?v=ay4qTTwbTqU) 的双耳 ASMR 配音是立体声的，那么有些声音只会从你没有使用的耳塞中传出。要听到所有内容，您可以在手机或电脑的辅助功能设置中切换开关。
 

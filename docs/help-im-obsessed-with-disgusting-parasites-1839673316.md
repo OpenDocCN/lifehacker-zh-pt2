@@ -1,6 +1,6 @@
 # 救命啊！我对恶心的寄生虫很着迷
 
-> 原文:[https://gizmodo . com/help-im-痴迷-恶心-寄生虫-1839673316](https://gizmodo.com/help-im-obsessed-with-disgusting-parasites-1839673316)
+> 原文：<https://gizmodo.com/help-im-obsessed-with-disgusting-parasites-1839673316>
 
 等我知道自己生病的时候，已经太晚了。我已经在*诊断*和*医学侦探*中筋疲力尽。只有当我转向真正的硬核狗屎，一个关于寄生虫的节目叫做*我体内的怪物*，我才意识到我有一个问题。
 

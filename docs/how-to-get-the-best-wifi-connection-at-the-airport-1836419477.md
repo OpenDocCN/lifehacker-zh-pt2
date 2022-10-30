@@ -1,6 +1,6 @@
 # 如何在机场获得最好的 Wifi 连接
 
-> 原文:[https://life hacker . com/how-to-get-the-best-wifi-connection-at-the-airport-1836419477](https://lifehacker.com/how-to-get-the-best-wifi-connection-at-the-airport-1836419477)
+> 原文：<https://lifehacker.com/how-to-get-the-best-wifi-connection-at-the-airport-1836419477>
 
 你坐在机场，准备(或放松)一天的旅行。你有一个完美的位置，靠近电源插座而不是讨厌的人。当你打开你的笔记本电脑，你意识到...你不知道怎么上最近的 wifi，甚至不知道它的密码是什么。
 

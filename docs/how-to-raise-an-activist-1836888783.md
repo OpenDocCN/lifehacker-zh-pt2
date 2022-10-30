@@ -1,6 +1,6 @@
 # 如何培养一个积极分子
 
-> 原文:[https://lifehacker.com/how-to-raise-an-activist-1836888783](https://lifehacker.com/how-to-raise-an-activist-1836888783)
+> 原文：<https://lifehacker.com/how-to-raise-an-activist-1836888783>
 
 在过去的几年里，我承认有过这样的时刻，我举起双手说，“要靠我们的孩子来收拾我们给他们制造的烂摊子。他们似乎已经比我们更有能力了。”当然，我更希望在我们把世界交给他们之前，我们能更好地处理枪支管制、气候变化和侵犯人权等问题。但是现实地说，在他们的一生中，他们很可能要攀登几座主要的环境和政治山峰。
 

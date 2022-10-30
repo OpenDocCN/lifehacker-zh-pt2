@@ -1,6 +1,6 @@
 # 如何将一张合适的纸折叠成一个漂亮的矩形
 
-> 原文:[https://life hacker . com/how-to-fold-a-fitted-sheet to-nice-flat-rectangle-5829980](https://lifehacker.com/how-to-fold-a-fitted-sheet-into-a-nice-flat-rectangle-5829980)
+> 原文：<https://lifehacker.com/how-to-fold-a-fitted-sheet-into-a-nice-flat-rectangle-5829980>
 
 折叠衣物是一件非常痛苦的事情，但是合身的床单却是独一无二的。那些圆形的弹性“角”永远不会匹配，即使你设法将床单的一面弄得半平，另一面也不可避免地会聚在一起。幸运的是，有一种技术确实有效。
 

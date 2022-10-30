@@ -1,6 +1,6 @@
 # 如果你刚买了一台新的苹果设备，你可以免费获得苹果电视+
 
-> 原文:[https://life hacker . com/how-to-get-free-apple-TV-with-your-apple-device-1838412966](https://lifehacker.com/how-to-get-free-apple-tv-with-your-apple-device-1838412966)
+> 原文：<https://lifehacker.com/how-to-get-free-apple-tv-with-your-apple-device-1838412966>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-eA7D4_qU9jo&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-eA7D4_qU9jo&start=0) 
 

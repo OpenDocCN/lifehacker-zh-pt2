@@ -1,6 +1,6 @@
 # 如何让 Edge Chromium 的地址栏不崩溃浏览器
 
-> 原文:[https://life hacker . com/how-to-keep-edge-chromiums-address-bar-from-crashing-th-1844572916](https://lifehacker.com/how-to-keep-edge-chromiums-address-bar-from-crashing-th-1844572916)
+> 原文：<https://lifehacker.com/how-to-keep-edge-chromiums-address-bar-from-crashing-th-1844572916>
 
 我以为我昨天疯了，但在下午的某个时候(加州时间)，我注意到在 Edge Chromium 的地址栏中键入任何内容都会导致浏览器在击几下键后崩溃。微软声称它已经修复了这个问题，但今天早些时候它又在我身上发生了，所以是时候部署一些解决方法了。
 

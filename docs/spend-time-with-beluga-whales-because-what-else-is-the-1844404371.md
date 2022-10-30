@@ -1,6 +1,6 @@
 # 花时间和白鲸在一起，因为除此之外还能做什么
 
-> 原文:[https://life hacker . com/花时间和白鲸在一起——因为那是另外一个什么 1844404371](https://lifehacker.com/spend-time-with-beluga-whales-because-what-else-is-the-1844404371)
+> 原文：<https://lifehacker.com/spend-time-with-beluga-whales-because-what-else-is-the-1844404371>
 
 听着，我们明白。在疫情的最初几个月里，所有的虚拟旅游文章和从笔记本电脑上看世界的小贴士都很有趣，那时一切都还很新奇。但是现在你已经在网上游览了世界各地的城市、博物馆和历史遗迹，你可能在寻找别的东西。那么请允许我们为您介绍一下这个 [的现场直播，水下](https://explore.org/livecams/beluga-whales/beluga-boat-cam-underwater) [白鲸](https://explore.org/livecams/beluga-whales/beluga-boat-cam-underwater) [凸轮](https://explore.org/livecams/beluga-whales/beluga-boat-cam-underwater) 。即使在非疫情时代，大多数人也不可能花时间近距离接触这些可爱的哺乳动物。以下是如何看到它们。
 

@@ -1,6 +1,6 @@
 # 如何观看今晚民主党候选人关于 LGBTQ 问题的论坛
 
-> 原文:[https://life hacker . com/how-to-watch-tonights-democratic-candidate-forum-on-LG b-1838282915](https://lifehacker.com/how-to-watch-tonights-democratic-candidate-forum-on-lgb-1838282915)
+> 原文：<https://lifehacker.com/how-to-watch-tonights-democratic-candidate-forum-on-lgb-1838282915>
 
 今晚，10 名民主党总统候选人将分别登上爱荷华州的舞台，讨论影响 LGBTQ 美国人的问题，如平等法案，禁止转换治疗，以及一些候选人在婚姻平等方面的争议记录。这将是关于 LGBTQ 问题的两个论坛中的第一个。(另一个定在 10 月。)
 

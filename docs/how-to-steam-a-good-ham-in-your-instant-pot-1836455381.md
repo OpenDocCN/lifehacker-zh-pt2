@@ -1,6 +1,6 @@
 # 如何在你的速食锅里蒸好火腿
 
-> 原文:[https://life hacker . com/how-to-steam a good-in-your-instant-pot-1836455381](https://lifehacker.com/how-to-steam-a-good-ham-in-your-instant-pot-1836455381)
+> 原文：<https://lifehacker.com/how-to-steam-a-good-ham-in-your-instant-pot-1836455381>
 
 像我们这一代最伟大的人一样，我的大脑已经完全被迷因 毒害了。虽然我不是一个挑剔的迷因消费者，但我确实有我的最爱——我想我已经在 YouTube 上至少看了两遍标志性的辛普森一家 [【蒸火腿】](https://www.youtube.com/watch?v=u8q5ORRjI_s) 剪辑的每一次迭代。(我最喜欢的是 [青天](https://www.youtube.com/watch?v=vqCHdVOzetc) 的清蒸火腿不过是个废人)不，我不会回答问题。谢谢！)
 

@@ -1,6 +1,6 @@
 # 如何在合唱团唱歌，根据一个冠军无伴奏合唱团
 
-> 原文:[https://life hacker . com/how-to-sing-in-a-chair-a-cappe-1832067033](https://lifehacker.com/how-to-sing-in-a-choir-according-to-a-champion-a-cappe-1832067033)
+> 原文：<https://lifehacker.com/how-to-sing-in-a-choir-according-to-a-champion-a-cappe-1832067033>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-VAIFTBFsaqQ&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-VAIFTBFsaqQ&start=0) 
 

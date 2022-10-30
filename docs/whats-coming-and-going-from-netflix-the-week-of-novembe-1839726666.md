@@ -1,6 +1,6 @@
 # 2019 年 11 月 11 日这一周，网飞有哪些活动
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of novembe-1839726666](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-novembe-1839726666)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-novembe-1839726666>
 
 镇上有了一个新的*王冠*，她由弗莱巴格的继母，每个人都喜欢的*明星*奥莉薇娅·柯尔曼扮演。我从未见过*王冠*，但我对科尔曼(*西洋镜*粉丝们，你们在哪里？)为了赶上周日的第三季首播，我打算抓紧时间看完前两季。海伦娜·伯翰·卡特扮演玛格利特公主，这也很令人激动。
 
