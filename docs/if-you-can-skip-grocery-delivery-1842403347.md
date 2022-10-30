@@ -1,11 +1,35 @@
 # 如果可以的话，不要去杂货店送货
 
-> 原文：<https://lifehacker.com/if-you-can-skip-grocery-delivery-1842403347>
+> 原文:[https://life hacker . com/if-you-can-skip-杂货店送货-1842403347](https://lifehacker.com/if-you-can-skip-grocery-delivery-1842403347)
 
 杂货店现在是一个疯人院。瓶装水不见了，牛奶、鸡蛋和面包等主食纷纷下架，到处都找不到一卷卫生纸。除此之外，还要考虑在拥挤的商店中穿行的风险因素。为了避免暴露，许多人转向路边取货或送货。
 
-
+Watch
 
 在你点击食品清单之前，花点时间想想那些依赖食品配送的人。正如朱莉·雷梅尔 [指出](https://twitter.com/julierehmeyer/status/1240356910445940737) 的那样，激增的送货需求让一些残疾人更难买到他们常用的杂货。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1240356910445940737&amp;autosize=1" autoresize="true" id="twitter-1240356910445940737" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY"><br/></p><p class="sc-77igqf-0 bOfvBY">幸运的是，还有其他方法可以减少购物时的暴露，并与其他人保持至少 6 英尺的距离。这里有一些策略来做到这一点，同时也为最需要的人释放递送服务。<br/></p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h294022"><strong>在下班时间购物</strong></h3><p class="sc-77igqf-0 bOfvBY">高峰时间通常在早上和晚上，周末也是如此。在非高峰时间购物，比如上午晚些时候或下午早些时候，将有助于减少你接触到的人的数量。衡量一家商店有多拥挤的一个快速简单的方法是:看看停车场里的汽车数量。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h294023"><strong>走寻常路</strong></h3><p class="sc-77igqf-0 bOfvBY">每个人都会想到好市多或乔氏百货，但那家较小的社区商店呢？无论你的第一或第二本能是什么，都要选择第三或第四。很有可能，当你在(相对)平静的购物时，其他人都是你的第一或第二选择。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h294024"><strong>有计划</strong></h3><p class="sc-77igqf-0 bOfvBY">你绝对需要的物品是什么，如果缺货，可以接受的替代品是什么，有哪些不错的物品？如果你需要的物品缺货，要有一个备用计划。可以得到淡炼乳而不是鲜牛奶吗？早餐可以用<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://minimalistbaker.com/southwest-tofu-scramble/&quot;,{&quot;metric25&quot;:1}]]" href="https://minimalistbaker.com/southwest-tofu-scramble/" target="_blank" rel="noopener noreferrer">豆腐炒</a> </span>代替鸡蛋吗？有一个后备计划意味着不必开车到不同的商店去寻找那一样东西。你在商店花的时间越少，暴露的风险就越小。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h294025"><strong>消毒</strong></h3><p class="sc-77igqf-0 bOfvBY">确保消毒你的手，在你接触购物车把手之前擦干净，避免和其他人接触。</p><p class="sc-77igqf-0 bOfvBY">最后:</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h294026">向工人们说声谢谢</h3><p class="sc-77igqf-0 bOfvBY">杂货店的员工冒着自身健康和安全的风险，努力工作，这样我们才能有我们需要的食物。同时，他们中的许多人没有带薪病假<span></span>。他们值得我们感谢。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1240356910445940737&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1240356910445940737&autosize=1) 
+
+幸运的是，还有其他方法可以减少购物时的暴露，并与其他人保持至少 6 英尺的距离。这里有一些策略来做到这一点，同时也为最需要的人释放递送服务。
+
+### **在下班时间购物**
+
+高峰时间通常在早上和晚上，周末也是如此。在非高峰时间购物，比如上午晚些时候或下午早些时候，将有助于减少你接触到的人的数量。衡量一家商店有多拥挤的一个快速简单的方法是:看看停车场里的汽车数量。
+
+### **走寻常路**
+
+每个人都会想到好市多或乔氏百货，但那家较小的社区商店呢？无论你的第一或第二本能是什么，都要选择第三或第四。很有可能，当你在(相对)平静的购物时，其他人都是你的第一或第二选择。
+
+### **有计划**
+
+你绝对需要的物品是什么，如果缺货，可以接受的替代品是什么，有哪些不错的物品？如果你需要的物品缺货，要有一个备用计划。可以得到淡炼乳而不是鲜牛奶吗？早餐可以用 [豆腐炒](https://minimalistbaker.com/southwest-tofu-scramble/) 代替鸡蛋吗？有一个后备计划意味着不必开车到不同的商店去寻找那一样东西。你在商店花的时间越少，暴露的风险就越小。
+
+### **消毒**
+
+确保消毒你的手，在你接触购物车把手之前擦干净，避免和其他人接触。
+
+最后:
+
+### 向工人们说声谢谢
+
+杂货店的员工冒着自身健康和安全的风险，努力工作，这样我们才能有我们需要的食物。同时，他们中的许多人没有带薪病假。他们值得我们感谢。

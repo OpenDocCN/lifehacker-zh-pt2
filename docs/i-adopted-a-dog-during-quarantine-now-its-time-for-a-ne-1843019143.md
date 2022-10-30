@@ -1,10 +1,10 @@
 # 我在隔离期间收养了一只狗，现在是时候开始新的旅程了！应该买什么车？
 
-> 原文：<https://jalopnik.com/i-adopted-a-dog-during-quarantine-now-its-time-for-a-ne-1843019143>
+> 原文:[https://jalopnik . com/I-adopted-a-dog-during-quarantine-now-its-time-for-a-ne-1843019143](https://jalopnik.com/i-adopted-a-dog-during-quarantine-now-its-time-for-a-ne-1843019143)
 
 布莱恩住在华盛顿，在隔离期间收养了一只小狗。现在，他将需要去兽医诊所，最终去狗公园，和小狗一起进行其他冒险，是时候升级他的老福特福克斯了。他想要一辆小巧的车，但对狗来说要足够大，而且开起来要有乐趣。他应该买什么车？
 
-
+Watch
 
 *(欢迎回到* [*应该买什么车*](http://jalopnik.com/tag/wcsyb) *？我们给真正的人买车的真正建议。)*
 
@@ -74,4 +74,14 @@
 
 我在做的时候减掉了五磅水的重量，但这是值得的。你需要迷你乡下人。
 
-<iframe data-src="https://jalopnik.com/embed/inset/iframe?id=youtube-video-Jf8DYK9VJbU&amp;start=0" data-chomp-id="Jf8DYK9VJbU" data-recommend-id="youtube://Jf8DYK9VJbU" id="youtube-Jf8DYK9VJbU" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="Jf8DYK9VJbU" data-recommend-id="youtube://Jf8DYK9VJbU" id="youtube-Jf8DYK9VJbU" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">我必须承认我从未开过，但我的前同事迈克尔·巴拉班开过，他喜欢这辆<span></span>。另外，Doug DeMuro 是一个粉丝，你可以在上面的视频中看到。</p><p class="sc-77igqf-0 bOfvBY">这款车有四个车门，相当高，但实际上比你的老款福克斯要短。此外，尽管它的重量不完全是 3300 磅，但涡轮增压 1.6 升直列四缸发动机在本节顶部显示的 John Cooper Works trim 中提供了 208 马力的强劲动力。</p><p class="sc-77igqf-0 bOfvBY">顺便说一下，那辆车在你的地区 卖<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 cYiQhX js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.facebook.com/marketplace/item/2678417178914057/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.facebook.com/marketplace/item/2678417178914057/" target="_blank" rel="noopener noreferrer">大约 20，000 美元，里程表上显示已经行驶了 63，141 英里。你可以找到其他型号，比如价格低得多的 S(仍然能提供 181 马力)。它很酷，很有趣，它能装下一只狗，还能自动进入停车位。</a></span></p><p class="sc-77igqf-0 bOfvBY">你需要迷你。</p><p class="sc-77igqf-0 bOfvBY">你要我们帮你找车吗？ <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 cYiQhX js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://docs.google.com/forms/d/e/1FAIpQLSd7AK82Sjg8O2EaIpmnWeW3NHu3kM79-Ln-S07WD3FG62u8bw/viewform&quot;,{&quot;metric25&quot;:1}]]" href="https://docs.google.com/forms/d/e/1FAIpQLSd7AK82Sjg8O2EaIpmnWeW3NHu3kM79-Ln-S07WD3FG62u8bw/viewform" target="_blank" rel="noopener noreferrer"> <em>在我们的表单上提交您的故事。</em> </a> </span></p> </body> </html></iframe>
+ [https://jalopnik.com/embed/inset/iframe?id=youtube-video-Jf8DYK9VJbU&start=0](https://jalopnik.com/embed/inset/iframe?id=youtube-video-Jf8DYK9VJbU&start=0) 
+
+我必须承认我从未开过，但我的前同事迈克尔·巴拉班开过，他喜欢这辆。另外，Doug DeMuro 是一个粉丝，你可以在上面的视频中看到。
+
+这款车有四个车门，相当高，但实际上比你的老款福克斯要短。此外，尽管它的重量不完全是 3300 磅，但涡轮增压 1.6 升直列四缸发动机在本节顶部显示的 John Cooper Works trim 中提供了 208 马力的强劲动力。
+
+顺便说一下，那辆车在你的地区 卖 [大约 20，000 美元，里程表上显示已经行驶了 63，141 英里。你可以找到其他型号，比如价格低得多的 S(仍然能提供 181 马力)。它很酷，很有趣，它能装下一只狗，还能自动进入停车位。](https://www.facebook.com/marketplace/item/2678417178914057/)
+
+你需要迷你。
+
+你要我们帮你找车吗？ [*在我们的表单上提交您的故事。*](https://docs.google.com/forms/d/e/1FAIpQLSd7AK82Sjg8O2EaIpmnWeW3NHu3kM79-Ln-S07WD3FG62u8bw/viewform)

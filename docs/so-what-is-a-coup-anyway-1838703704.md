@@ -1,12 +1,12 @@
 # 那么，究竟什么是政变呢？
 
-> 原文：<https://lifehacker.com/so-what-is-a-coup-anyway-1838703704>
+> 原文:[https://lifehacker.com/so-what-is-a-coup-anyway-1838703704](https://lifehacker.com/so-what-is-a-coup-anyway-1838703704)
 
 周二晚上，面对众议院民主党人对弹劾调查越来越大的压力，川普总统在推特上说，对 T2 的调查实际上是一场“政变”
 
 “随着我每天了解越来越多，我得出结论，正在发生的不是弹劾，而是政变……”何 [写了](https://twitter.com/realDonaldTrump/status/1179179573541511176) 。"...意图剥夺人民的权力，他们的投票，他们的自由，他们的第二修正案，宗教，军事，边境墙，以及他们作为美利坚合众国公民的天赋权利！”
 
-
+Watch
 
 ### 什么是政变？
 
@@ -26,4 +26,6 @@
 
 从他的推文来看，他正试图论证弹劾调查的非法性(尽管到目前为止没有什么是非法的)。如果他认为政变是企图夺取他的权力，他是对的，但他要么是误导了他的追随者，要么是故意将宪法规定的弹劾程序定义为反对总统的非法行为。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1179422987684077568&amp;autosize=1" autoresize="true" id="twitter-1179422987684077568" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">周三，川普继续他的一系列推文，用<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://twitter.com/realDonaldTrump/status/1179422987684077568&quot;,{&quot;metric25&quot;:1}]]" href="https://twitter.com/realDonaldTrump/status/1179422987684077568" target="_blank" rel="noopener noreferrer">攻击</a> </span>民主党人，并称正在进行的弹劾程序是“扯淡”有关弹劾调查的更新，请务必关注 CNN 的<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.cnn.com/politics/live-news/trump-ukraine-09-24-2019/index.html&quot;,{&quot;metric25&quot;:1}]]" href="https://www.cnn.com/politics/live-news/trump-ukraine-09-24-2019/index.html" target="_blank" rel="noopener noreferrer">实时更新<!-- --></a></span>。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1179422987684077568&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1179422987684077568&autosize=1) 
+
+周三，川普继续他的一系列推文，用 [攻击](https://twitter.com/realDonaldTrump/status/1179422987684077568) 民主党人，并称正在进行的弹劾程序是“扯淡”有关弹劾调查的更新，请务必关注 CNN 的 [实时更新](https://www.cnn.com/politics/live-news/trump-ukraine-09-24-2019/index.html)。

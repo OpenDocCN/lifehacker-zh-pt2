@@ -1,10 +1,10 @@
 # 为什么宫外孕不能“再植入”
 
-> 原文：<https://lifehacker.com/why-an-ectopic-pregnancy-cant-be-reimplanted-1840169746>
+> 原文:[https://life hacker . com/why-an-异位妊娠不能再植入-1840169746](https://lifehacker.com/why-an-ectopic-pregnancy-cant-be-reimplanted-1840169746)
 
 在过去的几年里，各州一直在考虑甚至通过旨在禁止堕胎的法案。俄亥俄州最近的一项法案包括一项条款，似乎要求医生“重新植入”一个宫外孕 ，这一程序在医学上并不存在。那么什么是宫外孕，为什么“再次植入”是不可能的呢？让我们来看看。
 
-
+Watch
 
 ### 什么是宫外孕？
 
@@ -30,4 +30,6 @@
 
 所以一旦你的医生意识到你有宫外孕，它必须被移除。而且一旦拿走了，就没地方放了。俄亥俄州的法案出台后，医学专家不得不向记者 耐心解释, [根本没有将宫外孕“再植入”子宫的程序。就是不存在。一旦胚胎被移除，就这样，怀孕就完成了。](https://www.vox.com/2019/9/11/20859034/ectopic-pregnancy-abortion-federalist-intrauterine-ohio-surgery)
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1196903987972386825&amp;autosize=1" autoresize="true" id="twitter-1196903987972386825" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">这意味着被诊断为宫外孕的人与经历过<span></span>流产的人处于相似的地位。这是毁灭性的，如果怀孕是想要的。反堕胎积极分子将一个虚构的医疗程序作为虚假的希望，这是很残忍的。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1196903987972386825&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1196903987972386825&autosize=1) 
+
+这意味着被诊断为宫外孕的人与经历过流产的人处于相似的地位。这是毁灭性的，如果怀孕是想要的。反堕胎积极分子将一个虚构的医疗程序作为虚假的希望，这是很残忍的。

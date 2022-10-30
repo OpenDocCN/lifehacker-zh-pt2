@@ -1,10 +1,10 @@
 # 如何在没有观察员的情况下安全地卧推
 
-> 原文：<https://lifehacker.com/how-to-bench-press-safely-without-a-spotter-1830337071>
+> 原文:[https://life hacker . com/how-to-bench-press-safety-without-a-spotter-1830337071](https://lifehacker.com/how-to-bench-press-safely-without-a-spotter-1830337071)
 
 举重通常是一种挑战:我真的能举起这么多吗？或者，我已经举了八次了，但是我能举第九次吗？所以你需要为失败后会发生什么做好准备。
 
-
+Watch
 
 如果你正在跟随 [我们的卧推挑战](https://vitals.lifehacker.com/novembers-challenge-is-bench-press-1830153476?rev=1541778462823#_ga=2.166678011.456604250.1541431870-1456718367.1520458611) ，那么你可能想要尝试挑战你的极限——但是要安全。
 
@@ -32,4 +32,6 @@
 
 如果你需要一个视觉， [这个视频](https://www.youtube.com/watch?v=Ru0scbx8DuI) 很好地分解了它。(公平的警告:视频的开头显示了叙述者在没有架子的情况下胸部落下 315 磅，但他没有死。如果你不想看，跳到 0:42。)
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-Ru0scbx8DuI&amp;start=0" data-chomp-id="Ru0scbx8DuI" data-recommend-id="youtube://Ru0scbx8DuI" id="youtube-Ru0scbx8DuI" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="Ru0scbx8DuI" data-recommend-id="youtube://Ru0scbx8DuI" id="youtube-Ru0scbx8DuI" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">你觉得卧推怎么样？准备好用杠铃来试试了吗，或者准备好抛弃你的观测员而用一些金属棒，这样在你需要的时候就不太可能分心了？</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-Ru0scbx8DuI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-Ru0scbx8DuI&start=0) 
+
+你觉得卧推怎么样？准备好用杠铃来试试了吗，或者准备好抛弃你的观测员而用一些金属棒，这样在你需要的时候就不太可能分心了？

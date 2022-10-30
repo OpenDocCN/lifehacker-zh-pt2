@@ -1,13 +1,42 @@
 # 如何在你的速食锅里蒸好火腿
 
-> 原文：<https://lifehacker.com/how-to-steam-a-good-ham-in-your-instant-pot-1836455381>
+> 原文:[https://life hacker . com/how-to-steam a good-in-your-instant-pot-1836455381](https://lifehacker.com/how-to-steam-a-good-ham-in-your-instant-pot-1836455381)
 
 像我们这一代最伟大的人一样，我的大脑已经完全被迷因 毒害了。虽然我不是一个挑剔的迷因消费者，但我确实有我的最爱——我想我已经在 YouTube 上至少看了两遍标志性的辛普森一家 [【蒸火腿】](https://www.youtube.com/watch?v=u8q5ORRjI_s) 剪辑的每一次迭代。(我最喜欢的是 [青天](https://www.youtube.com/watch?v=vqCHdVOzetc) 的清蒸火腿不过是个废人)不，我不会回答问题。谢谢！)
 
-
+Watch
 
 是什么让这个愚蠢的一次性小品如此经久不衰？也许荒诞的幽默，在 1996 年并不真正受到观众的欢迎，在这个日益混乱的时间线中是一种安慰。写这个词的人认为这是因为“蒸火腿”这个词简单到可以用在 上。但是这两种解释都掩盖了细节——斯金纳的褶边围裙是怎么回事？过于自信的“清蒸蛤蜊/清蒸火腿”调包？在流行文化中发现一个极其罕见的奥尔巴尼参考的热潮？对我来说，以上都是，再加上一些别的:“蒸火腿”让我想到了一种特定的汉堡。
 
 蒸火腿——嗯，蒸奶酪汉堡——完全是一种东西，只是不在奥尔巴尼。(我们并不是一个真正的汉堡城。)几乎只出现在康涅狄格州中部， [它们是美国最具标志性的超地域菜肴之一](https://www.atlasobscura.com/foods/steamed-cheeseburger-connecticut) 。一些小餐车使用定制的蒸汽柜来烹饪肉饼，并在单独大小的不锈钢托盘中融化奶酪。蒸奶酪汉堡的铁杆粉丝坚持认为它们是地球上最多汁、最牛肉的汉堡，我一直很想尝一个。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-zqf7eHkX0yg&amp;start=56" data-chomp-id="zqf7eHkX0yg" data-recommend-id="youtube://zqf7eHkX0yg" id="youtube-zqf7eHkX0yg" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="zqf7eHkX0yg" data-recommend-id="youtube://zqf7eHkX0yg" id="youtube-zqf7eHkX0yg" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">不过，短期内我不会选择去康涅狄格州中部——抱歉！—所以我决定尝试下一个最好的办法:在速溶锅里蒸一些火腿。你难道不知道，它<em>成功了</em>。就像，真的起作用了:这是我最喜欢的做汉堡的方法。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">尽管它的名字，速溶锅并不总是比其他烹饪方法快，但在这种情况下，它绝对是。你可以在十分钟内蒸两人份的芝士汉堡，包括准备和加压时间；如果你一个人吃饭，那就把时间缩短到五分钟左右。更好的是，没有尖叫的热煎锅要处理，没有飞溅的汉堡油要擦拭炉顶和/或墙壁，也没有在午后的阳光直射下等待木炭烟囱做它的事情，这样你就可以吃晚餐了。这是在家制作美味汉堡最快、最简单、最酷的方法。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">虽然简单，但我已经知道了一些成功蒸火腿的秘诀。首先，使用你能找到的脂肪含量最高的碎牛肉——至少 20%的脂肪。大部分的脂肪从汉堡中融化掉了，但是你需要一些来保持风味；瘦碎牛肉实际上会变得又硬又干。接下来，<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://skillet.lifehacker.com/thin-burgers-are-better-than-thick-ones-1827807997&quot;,{&quot;metric25&quot;:1}]]" href="https://skillet.lifehacker.com/thin-burgers-are-better-than-thick-ones-1827807997">让肉饼薄的一面</a> </span>这样就可以均匀的烤熟了。<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://lifehacker.com/you-probably-need-to-salt-your-burgers-more-1833972802&quot;,{&quot;metric25&quot;:1}]]" href="https://lifehacker.com/you-probably-need-to-salt-your-burgers-more-1833972802">大量的盐也是关键</a> </span>，因为大部分盐会溶解到融化的脂肪和肉汁中。最后，你根本不需要做很长时间的汉堡:在高压下做两三分钟就够了。</p><p class="sc-77igqf-0 bOfvBY">汉堡风格是一个沉重的话题，所以我会尽可能清楚地说明这一点:一个蒸汉堡与一个薄的带花边的馅饼 或一个两英寸厚、三分熟的巨型厨师汉堡是不同的体验。你不能从蒸汽中得到任何美拉德反应的好处，而且从高压锅里得到一个完美的三分熟的肉饼几乎是不可能的。如果你觉得汉堡没有这两样东西中的一个或两个在道德上是令人不快的，你可能想不去考虑这个问题——但这将是一个错误。加压蒸汽浴可以在几分钟内制作出味道浓郁、多汁的汉堡，还有大量的果汁。在加入奶酪之前，在肉饼上涂上黄油——顺便说一下，奶酪在残余的蒸汽中融化得非常完美——是必须的，就像在大量的脂肪中烘烤小面包，直到切割面几乎烧焦一样。结果是你可以从芝士汉堡中得到你想要的一切:大量的纯牛肉味，有史以来最融化的芝士，小面包上的一点油炸松脆，以及回家路上吃麦当劳的所有清理工作。不管你怎么打扮，蒸火腿都是一顿真正令人难忘的午餐。</p><h2 class="sc-1bwb26k-1 kpbNNd" id="h16866">蒸火腿(即即食锅芝士汉堡)</h2><p class="sc-77igqf-0 bOfvBY">我一次只测试了四个 1/4 磅的馅饼，因为这是我的六夸脱速溶壶可以轻松容纳的。如果你想做得更多，就从“每个馅饼两到三分钟”的原则开始，从这里开始。</p><p class="sc-77igqf-0 bOfvBY"><strong>配料:</strong></p><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>1/4-1 磅碎牛肉，至少 20%的脂肪</li><li>盐和胡椒调味</li><li>汉堡面包，外加黄油或烤油</li><li>配料选择:奶酪，芥末，番茄酱，蛋黄酱，特殊酱，洋葱，生菜，西红柿，泡菜，培根…你明白了吗</li></ul><p class="sc-77igqf-0 bOfvBY">将碎牛肉分成 1/4 磅的球，然后压平成 1/4-1/3 英寸厚的肉饼。两面都用盐和胡椒调味，用锡纸包好。根据你的即食锅的大小，你可以将它们单独包装，也可以将多个肉饼放在同一个包里；它们只需要平铺在一层。</p><p class="sc-77igqf-0 bOfvBY">在你的速溶锅里放一个蒸笼架，加入大约一英寸的水。将包装好的汉堡放在架子上，密封盖子，使用“手动”设置选择高压 2-3 分钟。当他们做饭时，用中火在铸铁或不粘锅里烤好你的面包。使用大量的黄油或油，不要害怕一点点烧焦——这是你唯一能找到的地方。</p><p class="sc-77igqf-0 bOfvBY">烹饪时间到了，让汉堡静置 2-3 分钟，然后手动释放压力。用钳子把热的锡纸包转移到盘子上，然后打开检查熟了没有。它们应该彻底煮熟，但根据你的速溶锅模型和你如何堆叠包装，上面的汉堡可能需要更长的时间。在这种情况下，只需重新密封任何未熟汉堡上的箔片，然后将它们放回锅中，在高压下再烤一两分钟，就可以完成了。</p><p class="sc-77igqf-0 bOfvBY">在你把汉堡从箔茧中拿出来之前，在每一个肉饼上涂上厚厚的一层肉汁，并在上面放上一片奶酪。让它们静置几分钟，让你收集你的配料，这样奶酪就会融化，馅饼就会吸收这些汁液。</p><p class="sc-77igqf-0 bOfvBY">搭配所有配菜和你喜欢的任何一面。昨天我的心情是<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://skillet.lifehacker.com/imperfect-pasta-is-the-secret-to-perfect-pasta-salad-1834981171&quot;,{&quot;metric25&quot;:1}]]" href="https://skillet.lifehacker.com/imperfect-pasta-is-the-secret-to-perfect-pasta-salad-1834981171"> mac salad </a> </span>，这意味着我的午餐感觉又像是 7 月 4 日一样。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-zqf7eHkX0yg&start=56](https://lifehacker.com/embed/inset/iframe?id=youtube-video-zqf7eHkX0yg&start=56) 
+
+不过，短期内我不会选择去康涅狄格州中部——抱歉！—所以我决定尝试下一个最好的办法:在速溶锅里蒸一些火腿。你难道不知道，它*成功了*。就像，真的起作用了:这是我最喜欢的做汉堡的方法。
+
+尽管它的名字，速溶锅并不总是比其他烹饪方法快，但在这种情况下，它绝对是。你可以在十分钟内蒸两人份的芝士汉堡，包括准备和加压时间；如果你一个人吃饭，那就把时间缩短到五分钟左右。更好的是，没有尖叫的热煎锅要处理，没有飞溅的汉堡油要擦拭炉顶和/或墙壁，也没有在午后的阳光直射下等待木炭烟囱做它的事情，这样你就可以吃晚餐了。这是在家制作美味汉堡最快、最简单、最酷的方法。
+
+虽然简单，但我已经知道了一些成功蒸火腿的秘诀。首先，使用你能找到的脂肪含量最高的碎牛肉——至少 20%的脂肪。大部分的脂肪从汉堡中融化掉了，但是你需要一些来保持风味；瘦碎牛肉实际上会变得又硬又干。接下来， [让肉饼薄的一面](https://skillet.lifehacker.com/thin-burgers-are-better-than-thick-ones-1827807997) 这样就可以均匀的烤熟了。 [大量的盐也是关键](https://lifehacker.com/you-probably-need-to-salt-your-burgers-more-1833972802) ，因为大部分盐会溶解到融化的脂肪和肉汁中。最后，你根本不需要做很长时间的汉堡:在高压下做两三分钟就够了。
+
+汉堡风格是一个沉重的话题，所以我会尽可能清楚地说明这一点:一个蒸汉堡与一个薄的带花边的馅饼 或一个两英寸厚、三分熟的巨型厨师汉堡是不同的体验。你不能从蒸汽中得到任何美拉德反应的好处，而且从高压锅里得到一个完美的三分熟的肉饼几乎是不可能的。如果你觉得汉堡没有这两样东西中的一个或两个在道德上是令人不快的，你可能想不去考虑这个问题——但这将是一个错误。加压蒸汽浴可以在几分钟内制作出味道浓郁、多汁的汉堡，还有大量的果汁。在加入奶酪之前，在肉饼上涂上黄油——顺便说一下，奶酪在残余的蒸汽中融化得非常完美——是必须的，就像在大量的脂肪中烘烤小面包，直到切割面几乎烧焦一样。结果是你可以从芝士汉堡中得到你想要的一切:大量的纯牛肉味，有史以来最融化的芝士，小面包上的一点油炸松脆，以及回家路上吃麦当劳的所有清理工作。不管你怎么打扮，蒸火腿都是一顿真正令人难忘的午餐。
+
+## 蒸火腿(即即食锅芝士汉堡)
+
+我一次只测试了四个 1/4 磅的馅饼，因为这是我的六夸脱速溶壶可以轻松容纳的。如果你想做得更多，就从“每个馅饼两到三分钟”的原则开始，从这里开始。
+
+**配料:**
+
+*   1/4-1 磅碎牛肉，至少 20%的脂肪
+*   盐和胡椒调味
+*   汉堡面包，外加黄油或烤油
+*   配料选择:奶酪，芥末，番茄酱，蛋黄酱，特殊酱，洋葱，生菜，西红柿，泡菜，培根…你明白了吗
+
+将碎牛肉分成 1/4 磅的球，然后压平成 1/4-1/3 英寸厚的肉饼。两面都用盐和胡椒调味，用锡纸包好。根据你的即食锅的大小，你可以将它们单独包装，也可以将多个肉饼放在同一个包里；它们只需要平铺在一层。
+
+在你的速溶锅里放一个蒸笼架，加入大约一英寸的水。将包装好的汉堡放在架子上，密封盖子，使用“手动”设置选择高压 2-3 分钟。当他们做饭时，用中火在铸铁或不粘锅里烤好你的面包。使用大量的黄油或油，不要害怕一点点烧焦——这是你唯一能找到的地方。
+
+烹饪时间到了，让汉堡静置 2-3 分钟，然后手动释放压力。用钳子把热的锡纸包转移到盘子上，然后打开检查熟了没有。它们应该彻底煮熟，但根据你的速溶锅模型和你如何堆叠包装，上面的汉堡可能需要更长的时间。在这种情况下，只需重新密封任何未熟汉堡上的箔片，然后将它们放回锅中，在高压下再烤一两分钟，就可以完成了。
+
+在你把汉堡从箔茧中拿出来之前，在每一个肉饼上涂上厚厚的一层肉汁，并在上面放上一片奶酪。让它们静置几分钟，让你收集你的配料，这样奶酪就会融化，馅饼就会吸收这些汁液。
+
+搭配所有配菜和你喜欢的任何一面。昨天我的心情是 [mac salad](https://skillet.lifehacker.com/imperfect-pasta-is-the-secret-to-perfect-pasta-salad-1834981171) ，这意味着我的午餐感觉又像是 7 月 4 日一样。

@@ -1,10 +1,10 @@
 # 哈德逊庭院的棚子在周日免费提供新的行为艺术
 
-> 原文：<https://lifehacker.com/the-shed-at-hudson-yards-is-making-new-performance-art-1843503650>
+> 原文:[https://life hacker . com/the-shed-at-Hudson-yards-is-making-new-performance-art-1843503650](https://lifehacker.com/the-shed-at-hudson-yards-is-making-new-performance-art-1843503650)
 
 如果你错过了过去几个月去看艺术展的机会，哈德逊庭院的小屋每周日都会在其网站上举办一场免费的数字艺术展，内容每隔一周更换一次，以展示新的艺术家。
 
-
+Watch
 
 正在进行的数字系列被称为近距离。
 
@@ -20,4 +20,10 @@
 
 *还有这一部， [从家里的范围看街舞](https://theshed.org/program/153-reggie-regg-roc-gray-and-the-d-r-e-a-m-ring) :* 
 
-*<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-2RhEvKbUGiE&amp;start=0" data-chomp-id="2RhEvKbUGiE" data-recommend-id="youtube://2RhEvKbUGiE" id="youtube-2RhEvKbUGiE" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="2RhEvKbUGiE" data-recommend-id="youtube://2RhEvKbUGiE" id="youtube-2RhEvKbUGiE" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">另一个探索社会距离和美国梦如何在城市社区中改变<!-- -->:<br/></p><div class="ooo3c9-0 cmUFVa align--bleed has-video media-large video-embed embed-frame"><span class="flex-video widescreen"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-fHt0-Na4KhU&amp;start=0" data-chomp-id="fHt0-Na4KhU" data-recommend-id="youtube://fHt0-Na4KhU" id="youtube-fHt0-Na4KhU" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/><span data-chomp-id="fHt0-Na4KhU" data-recommend-id="youtube://fHt0-Na4KhU" id="youtube-fHt0-Na4KhU" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">如果你在过去的几个月里错过了行为艺术，或者你只是想尝试一些新的东西，那么《佣金集》值得一看。如果你只是想利用你的隔离时间<!-- -->学习更多关于艺术的知识，MoMA <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://lifehacker.com/moma-now-offers-free-art-classes-online-1842928864&quot;,{&quot;metric25&quot;:1}]]" href="https://lifehacker.com/moma-now-offers-free-art-classes-online-1842928864">现在正通过 Coursera </a> </span>免费提供一堆，包括一个关于参与艺术的策略</p> </body> </html></iframe>*
+ *[https://lifehacker.com/embed/inset/iframe?id=youtube-video-2RhEvKbUGiE&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-2RhEvKbUGiE&start=0)* 
+
+*另一个探索社会距离和美国梦如何在城市社区中改变:* 
+
+ *[https://lifehacker.com/embed/inset/iframe?id=youtube-video-fHt0-Na4KhU&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-fHt0-Na4KhU&start=0)* 
+
+*如果你在过去的几个月里错过了行为艺术，或者你只是想尝试一些新的东西，那么《佣金集》值得一看。如果你只是想利用你的隔离时间学习更多关于艺术的知识，MoMA [现在正通过 Coursera](https://lifehacker.com/moma-now-offers-free-art-classes-online-1842928864) 免费提供一堆，包括一个关于参与艺术的策略*

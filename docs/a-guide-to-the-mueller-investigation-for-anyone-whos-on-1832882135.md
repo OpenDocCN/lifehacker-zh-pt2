@@ -1,12 +1,10 @@
-# a guide to the mueller investigation for anyone whos on 1832882135
-
-> 原文：<https://splinternews.com/a-guide-to-the-mueller-investigation-for-anyone-whos-on-1832882135>
+> 原文:[https://splitter news . com/a-guide-to-the-mueller-investigation-for-any-who-on-1832882135](https://splinternews.com/a-guide-to-the-mueller-investigation-for-anyone-whos-on-1832882135)
 
 如果你是一个值得庆幸的正常人，过着真实的生活，那么很有可能你只是在关注唐纳德·川普总统所谓的“”和其他人所说的“我猜是俄罗斯的事情”的错综复杂的细节也就是穆勒调查。
 
 在过去的两年里，前联邦调查局局长罗伯特·穆勒和他精心挑选的检察官团队一直在调查俄罗斯跨越大西洋在 2016 年总统选举中捣乱的时间、方式和原因，更重要的是，特朗普和他团队中的任何人是否帮助他们这样做。
 
-
+<label class="bxm4mm-13 juykRM">Advertisement</label>
 
 穆勒的调查将在某个时候幸运地结束，当它结束时，它将永远是一件大事。鉴于穆勒调查的规模、范围和影响——但没有任何实际报告(迄今为止...)为了搞清楚这一切——美国公众只剩下一块褪色的涂有茶叶的占卜板来弄清楚到底发生了什么。
 
@@ -14,7 +12,7 @@
 
 那么，你最不想做的事情就是做一个完全没有头绪的笨蛋，想知道所有这些砸到风扇上的破事是怎么回事。这是 tl。dr；这是对整个穆勒混乱局面的一个基本完整的概述，让你听起来(基本上)知道自己在说什么。开始了。
 
-
+<label class="bxm4mm-13 juykRM">Advertisement</label>
 
 ## 穆勒调查是什么*？*
 
@@ -26,7 +24,7 @@
 
 第二部分值得重申:“以及调查中直接产生或可能产生的任何问题。”换句话说，穆勒的任务不仅是调查特朗普的竞选活动是否在选举期间帮助了俄罗斯人，他还应该起诉他可能在此过程中发现的任何其他可能无关的罪行。
 
-
+<label class="bxm4mm-13 juykRM">Advertisement</label>
 
 ## 发生了什么事？
 
@@ -38,7 +36,7 @@
 
 正如我之前提到的，陷入穆勒罗网的一些人只是碰巧卷入近年来最大调查之一的小角色。比如荷兰律师亚历克斯·范德茨万(“谁？”正确)[2018 年 2 月](https://www.cnn.com/2018/02/20/politics/robert-mueller-rick-gates/index.html) 认罪，罪名是就前川普竞选主席保罗·马纳福特(Paul Manafort)遵守外国游说法律一事向穆勒团队撒谎。他坐了 [三十天牢](https://www.fox4now.com/news/national/dutch-lawyer-sentenced-to-30-days-in-mueller-probe) 。加州居民理查德·皮内多同样承认有罪，他被穆勒抓住，罪名是在他不知情的情况下创建假银行账户，供俄罗斯人在干涉行动中使用。他被判入狱六个月和软禁六个月。
 
-
+<label class="bxm4mm-13 juykRM">Advertisement</label>
 
 但与穆勒带来的一些庞然大物相比，这些都是微不足道的小鱼。
 
@@ -50,7 +48,7 @@
 
 虽然马纳福特的定罪——以及随后的 [认罪，并同意配合穆勒的调查](https://www.cnn.com/2018/09/14/politics/paul-manafort-guilty-plea/index.html)——与*没有直接关系，也不知道特朗普本人是否知道这件事(尽管它们肯定显示特朗普竞选团队中的一名最高级别官员参与了一些令人难以置信的黑暗 [俄罗斯周边](https://www.newyorker.com/news/news-desk/why-would-paul-manafort-share-polling-data-with-russia) 的事情)，但它肯定有助于描绘一幅被不道德的犯罪分子困扰的竞选画面。Manafort 的参与也留下了一种可能性，即在确保合作协议的过程中，他很可能会分享信息，让穆勒沿着特朗普食物链向更接近总统核心圈的人发展。*
 
-**
+*<label class="bxm4mm-13 juykRM">Advertisement</label>*
 
 *不幸的是，这让我们想到了罗杰·斯通。*
 
@@ -60,7 +58,7 @@
 
 *2018 年 2 月，穆勒的办公室向 [13 名俄罗斯国民和三家公司](https://www.justice.gov/file/1035477/download) 发出起诉书，他们指控这些人“从事干扰选举和政治进程的活动”，通过“冒充美国人和创建虚假的美国人物，运营旨在吸引美国观众的社交媒体页面和团体。”换句话说: [一个网上巨魔农场](https://www.justice.gov/file/1035477/download) ，据称“解决美国分裂的政治和社会问题，谎称由美国活动人士控制，而事实上，他们是由被告控制的。”*
 
-**
+*<label class="bxm4mm-13 juykRM">Advertisement</label>*
 
 *或许最重要的是:“被告组织的战略目标是在美国政治体系中制造不和，包括 2016 年美国总统选举。”*
 
@@ -110,7 +108,7 @@
 
 *叹气。这里事情就复杂了(-er)。因为穆勒不是镇上唯一的调查游戏。除了特别法律顾问办公室对俄罗斯干涉 2016 年总统选举的调查之外，纽约南区也在酝酿一系列单独的*调查，涉及 [特朗普组织](https://www.bloomberg.com/opinion/articles/2018-08-26/southern-district-of-new-york-will-tear-into-trump-organization) 和 [特朗普就职委员会](https://www.nbcnews.com/politics/donald-trump/trump-inaugural-committee-under-criminal-investigation-misuse-funds-pay-play-n947776)——这些调查可能证明 [对特朗普](https://www.nbcnews.com/politics/congress/cohen-testimony-suggests-ny-prosecutors-pose-major-danger-trump-n977461) 具有破坏性和危险性，因为穆勒可能会或可能不会提出任何东西。**
 
-**
+*<label class="bxm4mm-13 juykRM">Advertisement</label>*
 
 *正是 SDNY[最初以一系列金融犯罪起诉科恩](https://www.justsecurity.org/wp-content/uploads/2018/12/20181207-27-sentencing-memo-usa.pdf) ，包括那些与向斯托米·丹尼尔斯和凯伦·麦克道戈进行非法封口费付款有关的犯罪，据称 [是受川普本人](https://www.nbcnews.com/think/opinion/michael-cohen-named-trump-individual-1-here-s-why-prosecutors-ncna947016) 的指使。科恩最终 [认罪](https://splinternews.com/michael-cohen-reportedly-pleading-guilty-to-tons-of-cri-1828495763#_ga=2.101369346.204705836.1551712614-32427173.1546887722) ，并将从今年春天开始在监狱度过三年。*
 
@@ -122,10 +120,76 @@
 
 *民主党人也没有在暗中工作。*
 
-**
+*<label class="bxm4mm-13 juykRM">Advertisement</label>*
 
 *据报道，立法者 [将穆勒调查作为一种路线图](https://www.washingtonpost.com/world/national-security/access-to-muellers-report-and-evidence-may-be-guided-by-congress-clinton-email-case/2019/02/22/37ed63ea-36d9-11e9-a400-e481bf264fdc_story.html?utm_term=.28e2d30f3860) 来窥探特朗普的阴暗面，这意味着无论穆勒报告本身最终发生什么(我们马上就会谈到这一点)，他在过去两年中奠定的基础可能会继续在新一轮的调查中发挥作用，调查总统和他的罗格斯食尸鬼画廊一直在做什么。*
 
 *显然，白宫很激动。*
 
-*<iframe data-src="https://splinternews.com/embed/inset/iframe?id=twitter-1102943351563784193&amp;autosize=1" autoresize="true" id="twitter-1102943351563784193" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><h2 class="sc-1bwb26k-1 kpbNNd" id="h19900">但是我们真的能看到穆勒的发现吗？</h2><p class="sc-77igqf-0 bOfvBY">关于穆勒的最终报告有多少应该公之于众——如果有的话，华盛顿正在进行一场激烈的辩论。<br/></p><div class="bxm4mm-12 dFBBhS js_movable_ad_slot"><div class="bxm4mm-14 gFcZLy"><div is="bulbs-dfp" class="ad-container dfp dfp-slot-MID_BANNER ad-middleboard" data-ad-unit="MID_BANNER" data-targeting="{&quot;pos&quot;:&quot;mid_banner&quot;}"/><div class="bt-wrapper"><span data-uid="5d1b8a6cd5-384" class="bt-uid-tg" style="display:none !important;text-align:center" data-css-selector="ad-container.ad-middleboard"/></div></div></div><p class="sc-77igqf-0 bOfvBY">当穆勒完成他的报告时，他有义务将它交给司法部长威廉·巴尔——与他的前任不同，他显然没有回避任何与俄罗斯有关的事情。但是从那以后，事情就变得棘手了。</p><p class="sc-77igqf-0 bOfvBY">当穆勒提交最终报告时，巴尔需要通知国会，但除此之外，他在与立法者和公众分享什么方面有很大的自由。</p><p class="sc-77igqf-0 bOfvBY">虽然巴尔本人<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 gIacKn js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.lawfareblog.com/william-barrs-remarkable-non-commitments-about-mueller-report&quot;,{&quot;metric25&quot;:1}]]" href="https://www.lawfareblog.com/william-barrs-remarkable-non-commitments-about-mueller-report" target="_blank" rel="noopener noreferrer">在他的确认听证会</a> </span>上宣称“公众和国会将被告知特别顾问的工作结果”，但这在实际层面上究竟意味着什么却有很大的解释空间——具体来说是<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 gIacKn js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.nytimes.com/reuters/2019/03/05/world/europe/05reuters-usa-trump-russia-barr-analysis.html&quot;,{&quot;metric25&quot;:1}]]" href="https://www.nytimes.com/reuters/2019/03/05/world/europe/05reuters-usa-trump-russia-barr-analysis.html" target="_blank" rel="noopener noreferrer">，他自己的</a> </span>。这可能会让发布报告的斗争变得相当混乱，特别是考虑到 DOJ 不起诉在任总统的工作惯例，以及巴尔自己的声明“如果你不打算起诉某人，你就不会站在那里发布关于此人的负面信息。”</p><p class="sc-77igqf-0 bOfvBY">国会民主党人已经承诺，如果调查结果不公开，他们将传唤完整的报告 。</p><div class="bxm4mm-12 dFBBhS js_movable_ad_slot"><div class="bxm4mm-14 gFcZLy"><div is="bulbs-dfp" class="ad-container dfp dfp-slot-MID_BANNER ad-middleboard" data-ad-unit="MID_BANNER" data-targeting="{&quot;pos&quot;:&quot;mid_banner&quot;}"/><div class="bt-wrapper"><span data-uid="5d1b8a6cd5-384" class="bt-uid-tg" style="display:none !important;text-align:center" data-css-selector="ad-container.ad-middleboard"/></div></div></div><p class="sc-77igqf-0 bOfvBY">“我们将带鲍勃·穆勒到国会作证。如果有必要，我们将诉诸法庭，”众议院情报委员会主席众议员亚当·希夫<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 gIacKn js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://abcnews.go.com/Politics/week-transcript-24-19-rep-adam-schiff-andrew/story?id=61272409&quot;,{&quot;metric25&quot;:1}]]" href="https://abcnews.go.com/Politics/week-transcript-24-19-rep-adam-schiff-andrew/story?id=61272409" target="_blank" rel="noopener noreferrer">二月份在 ABC 新闻<em/></a></span>上说。“最后，我认为司法部明白他们必须将此公之于众。我认为(司法部长威廉·p·巴尔)最终也会明白这一点。”</p><p class="sc-77igqf-0 bOfvBY">引用穆勒调查结果中的“重大公共利益”，众议院议员也已经<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 gIacKn js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://judiciary.house.gov/sites/democrats.judiciary.house.gov/files/documents/2.22.2019%20Letter%20from%20Chairs%20to%20AG%20re%20Special%20Counsel%20Report.pdf&quot;,{&quot;metric25&quot;:1}]]" href="https://judiciary.house.gov/sites/democrats.judiciary.house.gov/files/documents/2.22.2019%20Letter%20from%20Chairs%20to%20AG%20re%20Special%20Counsel%20Report.pdf" target="_blank" rel="noopener noreferrer">写信给 DOJ </a> </span>，要求“毫不拖延地并在法律允许的最大范围内”公布这份报告</p><p class="sc-77igqf-0 bOfvBY">可以说，当穆勒最终完成他的调查时，据报道是在未来几周内发生的<span></span>，关于谁能看到他的发现的斗争将远远没有结束。</p><div class="bxm4mm-12 dFBBhS js_movable_ad_slot"><div class="bxm4mm-14 gFcZLy"><div is="bulbs-dfp" class="ad-container dfp dfp-slot-MID_BANNER ad-middleboard" data-ad-unit="MID_BANNER" data-targeting="{&quot;pos&quot;:&quot;mid_banner&quot;}"/><div class="bt-wrapper"><span data-uid="5d1b8a6cd5-384" class="bt-uid-tg" style="display:none !important;text-align:center" data-css-selector="ad-container.ad-middleboard"/></div></div></div><h2 class="sc-1bwb26k-1 kpbNNd" id="h19901">而特朗普是怎么看待这一切的？</h2><p class="sc-77igqf-0 bOfvBY">除了坚称是否发布这份报告完全取决于巴尔 之外，总统在谈到他对穆勒的工作的看法时一直非常专注。</p><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://splinternews.com/embed/inset/iframe?id=twitter-1023653191974625280&amp;autosize=1" autoresize="true" id="twitter-1023653191974625280" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://splinternews.com/embed/inset/iframe?id=twitter-1030241273784020993&amp;autosize=1" autoresize="true" id="twitter-1030241273784020993" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://splinternews.com/embed/inset/iframe?id=twitter-1032495180530835456&amp;autosize=1" autoresize="true" id="twitter-1032495180530835456" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><div class="bxm4mm-12 dFBBhS js_movable_ad_slot"><div class="bxm4mm-14 gFcZLy"><div is="bulbs-dfp" class="ad-container dfp dfp-slot-MID_BANNER ad-middleboard" data-ad-unit="MID_BANNER" data-targeting="{&quot;pos&quot;:&quot;mid_banner&quot;}"/><div class="bt-wrapper"><span data-uid="5d1b8a6cd5-384" class="bt-uid-tg" style="display:none !important;text-align:center" data-css-selector="ad-container.ad-middleboard"/></div></div></div><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://splinternews.com/embed/inset/iframe?id=twitter-1031154974942810114&amp;autosize=1" autoresize="true" id="twitter-1031154974942810114" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://splinternews.com/embed/inset/iframe?id=twitter-1070698825571012613&amp;autosize=1" autoresize="true" id="twitter-1070698825571012613" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://splinternews.com/embed/inset/iframe?id=twitter-1068116413498429445&amp;autosize=1" autoresize="true" id="twitter-1068116413498429445" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://splinternews.com/embed/inset/iframe?id=twitter-1027585937163931648&amp;autosize=1" autoresize="true" id="twitter-1027585937163931648" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><div class="bxm4mm-12 dFBBhS js_movable_ad_slot"><div class="bxm4mm-14 gFcZLy"><div is="bulbs-dfp" class="ad-container dfp dfp-slot-MID_BANNER ad-middleboard" data-ad-unit="MID_BANNER" data-targeting="{&quot;pos&quot;:&quot;mid_banner&quot;}"/><div class="bt-wrapper"><span data-uid="5d1b8a6cd5-384" class="bt-uid-tg" style="display:none !important;text-align:center" data-css-selector="ad-container.ad-middleboard"/></div></div></div><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://splinternews.com/embed/inset/iframe?id=twitter-1089340201204441088&amp;autosize=1" autoresize="true" id="twitter-1089340201204441088" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><p class="sc-77igqf-0 bOfvBY">你明白了。</p><h2 class="sc-1bwb26k-1 kpbNNd" id="h19902">那么，我们该何去何从呢？</h2><p class="sc-77igqf-0 bOfvBY">哈哈哈哈哈哈。伙计，你的猜测和我的一样好。</p><p class="sc-77igqf-0 bOfvBY">在穆勒真正提交他的神话般的报告之前，公众和大多数国会议员对他将说他发现了什么——以及该怎么办——几乎一无所知。铁杆“通俄门”信徒 认为这份报告将是一颗银弹，能让总统和他的整个家族在监狱度过余生。<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 gIacKn js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://theweek.com/speedreads/826967/6-10-americans-say-trump-hasnt-been-honest-about-russia--unless-watch-fox-news-cnn&quot;,{&quot;metric25&quot;:1}]]" href="https://theweek.com/speedreads/826967/6-10-americans-say-trump-hasnt-been-honest-about-russia--unless-watch-fox-news-cnn" target="_blank" rel="noopener noreferrer">自认是福克斯新闻频道观众的</a> </span>，接受了总统的暗示，认为整件事是一场闹剧。法律分析师——包括前美国律师出身的特朗普律师鲁迪·朱利安尼——认为无论穆勒发现什么，他都不能起诉一位在任总统。</p><div class="bxm4mm-12 dFBBhS js_movable_ad_slot"><div class="bxm4mm-14 gFcZLy"><div is="bulbs-dfp" class="ad-container dfp dfp-slot-MID_BANNER ad-middleboard" data-ad-unit="MID_BANNER" data-targeting="{&quot;pos&quot;:&quot;mid_banner&quot;}"/><div class="bt-wrapper"><span data-uid="5d1b8a6cd5-384" class="bt-uid-tg" style="display:none !important;text-align:center" data-css-selector="ad-container.ad-middleboard"/></div></div></div><h2 class="sc-1bwb26k-1 kpbNNd" id="h19903">好吧，但是会发生什么呢？</h2><p class="sc-77igqf-0 bOfvBY">很多。我们处于一个相当未知的领域，所以任何可能的情况充其量都是胡乱猜测，但大体上我们会看到一些可能的结果:</p><p class="sc-77igqf-0 bOfvBY">穆勒起诉特朗普。</p><p class="sc-77igqf-0 bOfvBY">这将是最大、最轰动的结果:一位在任总统因某种尚未确定的罪行被起诉。目前尚不清楚华盛顿的立法者将如何起诉特朗普，但这很有可能会引发国会民主党人对总统弹劾程序的讨论——如果不是直接促成的话。</p><p class="sc-77igqf-0 bOfvBY">穆勒没有起诉特朗普。</p><div class="bxm4mm-12 dFBBhS js_movable_ad_slot"><div class="bxm4mm-14 gFcZLy"><div is="bulbs-dfp" class="ad-container dfp dfp-slot-MID_BANNER ad-middleboard" data-ad-unit="MID_BANNER" data-targeting="{&quot;pos&quot;:&quot;mid_banner&quot;}"/><div class="bt-wrapper"><span data-uid="5d1b8a6cd5-384" class="bt-uid-tg" style="display:none !important;text-align:center" data-css-selector="ad-container.ad-middleboard"/></div></div></div><p class="sc-77igqf-0 bOfvBY">上海合作组织的报告很可能不太像是一份收费文件，而更像是一本指导国会采取行动的指南(或者不是！)自己。尽管如此，除了直接起诉(或指示国会启动弹劾程序)之外，特朗普和他的支持者可能会认为这是一个证据，证明整个调查是在浪费时间和金钱，而且没有任何勾结！<br/></p><p class="sc-77igqf-0 bOfvBY">穆勒的报告仍然是一个秘密。</p><p class="sc-77igqf-0 bOfvBY">如果发生这种情况，预计民主党人——以及<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 gIacKn js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://thehill.com/homenews/senate/425586-gop-senator-really-important-that-mueller-report-be-made-public&quot;,{&quot;metric25&quot;:1}]]" href="https://thehill.com/homenews/senate/425586-gop-senator-really-important-that-mueller-report-be-made-public" target="_blank" rel="noopener noreferrer">也许还有一些共和党人</a></span>——将<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 gIacKn js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.apnews.com/468ce93dd6554c2f85287643bebc0d6e&quot;,{&quot;metric25&quot;:1}]]" href="https://www.apnews.com/468ce93dd6554c2f85287643bebc0d6e" target="_blank" rel="noopener noreferrer">竭尽全力</a> </span>迫使 DOJ 尽可能向公众提供穆勒报告。根据众议员亚当·希夫的说法，这意味着使用国会传票，甚至在必要时将它<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 gIacKn js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.apnews.com/468ce93dd6554c2f85287643bebc0d6e&quot;,{&quot;metric25&quot;:1}]]" href="https://www.apnews.com/468ce93dd6554c2f85287643bebc0d6e" target="_blank" rel="noopener noreferrer">告上法庭</a> </span>。</p><p class="sc-77igqf-0 bOfvBY"><strong>2020 年大选。</strong></p><div class="bxm4mm-12 dFBBhS js_movable_ad_slot"><div class="bxm4mm-14 gFcZLy"><div is="bulbs-dfp" class="ad-container dfp dfp-slot-MID_BANNER ad-middleboard" data-ad-unit="MID_BANNER" data-targeting="{&quot;pos&quot;:&quot;mid_banner&quot;}"/><div class="bt-wrapper"><span data-uid="5d1b8a6cd5-384" class="bt-uid-tg" style="display:none !important;text-align:center" data-css-selector="ad-container.ad-middleboard"/></div></div></div><p class="sc-77igqf-0 bOfvBY">无论上述哪种情况成为现实，穆勒报告都有百分之百的机会在即将到来的总统选举中发挥重要作用；民主党人几乎肯定会利用其调查结果——和/或任何不公开这些调查结果的决定——尽他们所能，因为他们试图让特朗普成为一届总统。类似地，预计共和党人及其盟友会抓住哪怕是最小的一点可能的免责迹象，猛烈抨击民主党人浪费了公众的时间和金钱。</p><p class="sc-77igqf-0 bOfvBY">是的，总统可能会发很多微博。</p></div> </body> </html></iframe>*
+ *[https://splinternews.com/embed/inset/iframe?id=twitter-1102943351563784193&autosize=1](https://splinternews.com/embed/inset/iframe?id=twitter-1102943351563784193&autosize=1)* 
+
+## *但是我们真的能看到穆勒的发现吗？*
+
+*关于穆勒的最终报告有多少应该公之于众——如果有的话，华盛顿正在进行一场激烈的辩论。* 
+
+*<label class="bxm4mm-13 juykRM">Advertisement</label>*
+
+*当穆勒完成他的报告时，他有义务将它交给司法部长威廉·巴尔——与他的前任不同，他显然没有回避任何与俄罗斯有关的事情。但是从那以后，事情就变得棘手了。*
+
+*当穆勒提交最终报告时，巴尔需要通知国会，但除此之外，他在与立法者和公众分享什么方面有很大的自由。*
+
+*虽然巴尔本人 [在他的确认听证会](https://www.lawfareblog.com/william-barrs-remarkable-non-commitments-about-mueller-report) 上宣称“公众和国会将被告知特别顾问的工作结果”，但这在实际层面上究竟意味着什么却有很大的解释空间——具体来说是 [，他自己的](https://www.nytimes.com/reuters/2019/03/05/world/europe/05reuters-usa-trump-russia-barr-analysis.html) 。这可能会让发布报告的斗争变得相当混乱，特别是考虑到 DOJ 不起诉在任总统的工作惯例，以及巴尔自己的声明“如果你不打算起诉某人，你就不会站在那里发布关于此人的负面信息。”*
+
+*国会民主党人已经承诺，如果调查结果不公开，他们将传唤完整的报告 。*
+
+*<label class="bxm4mm-13 juykRM">Advertisement</label>*
+
+*“我们将带鲍勃·穆勒到国会作证。如果有必要，我们将诉诸法庭，”众议院情报委员会主席众议员亚当·希夫 [二月份在 ABC 新闻](https://abcnews.go.com/Politics/week-transcript-24-19-rep-adam-schiff-andrew/story?id=61272409)*上说。“最后，我认为司法部明白他们必须将此公之于众。我认为(司法部长威廉·p·巴尔)最终也会明白这一点。”**
+
+**引用穆勒调查结果中的“重大公共利益”，众议院议员也已经 [写信给 DOJ](https://judiciary.house.gov/sites/democrats.judiciary.house.gov/files/documents/2.22.2019%20Letter%20from%20Chairs%20to%20AG%20re%20Special%20Counsel%20Report.pdf) ，要求“毫不拖延地并在法律允许的最大范围内”公布这份报告**
+
+**可以说，当穆勒最终完成他的调查时，据报道是在未来几周内发生的，关于谁能看到他的发现的斗争将远远没有结束。**
+
+**<label class="bxm4mm-13 juykRM">Advertisement</label>**
+
+## **而特朗普是怎么看待这一切的？**
+
+**除了坚称是否发布这份报告完全取决于巴尔 之外，总统在谈到他对穆勒的工作的看法时一直非常专注。**
+
+ **[https://splinternews.com/embed/inset/iframe?id=twitter-1023653191974625280&autosize=1](https://splinternews.com/embed/inset/iframe?id=twitter-1023653191974625280&autosize=1)**  **[https://splinternews.com/embed/inset/iframe?id=twitter-1030241273784020993&autosize=1](https://splinternews.com/embed/inset/iframe?id=twitter-1030241273784020993&autosize=1)**  **[https://splinternews.com/embed/inset/iframe?id=twitter-1032495180530835456&autosize=1](https://splinternews.com/embed/inset/iframe?id=twitter-1032495180530835456&autosize=1)** **<label class="bxm4mm-13 juykRM">Advertisement</label>** **[https://splinternews.com/embed/inset/iframe?id=twitter-1031154974942810114&autosize=1](https://splinternews.com/embed/inset/iframe?id=twitter-1031154974942810114&autosize=1)**  **[https://splinternews.com/embed/inset/iframe?id=twitter-1070698825571012613&autosize=1](https://splinternews.com/embed/inset/iframe?id=twitter-1070698825571012613&autosize=1)**  **[https://splinternews.com/embed/inset/iframe?id=twitter-1068116413498429445&autosize=1](https://splinternews.com/embed/inset/iframe?id=twitter-1068116413498429445&autosize=1)**  **[https://splinternews.com/embed/inset/iframe?id=twitter-1027585937163931648&autosize=1](https://splinternews.com/embed/inset/iframe?id=twitter-1027585937163931648&autosize=1)** **<label class="bxm4mm-13 juykRM">Advertisement</label>** **[https://splinternews.com/embed/inset/iframe?id=twitter-1089340201204441088&autosize=1](https://splinternews.com/embed/inset/iframe?id=twitter-1089340201204441088&autosize=1)** 
+
+**你明白了。**
+
+## **那么，我们该何去何从呢？**
+
+**哈哈哈哈哈哈。伙计，你的猜测和我的一样好。**
+
+**在穆勒真正提交他的神话般的报告之前，公众和大多数国会议员对他将说他发现了什么——以及该怎么办——几乎一无所知。铁杆“通俄门”信徒 认为这份报告将是一颗银弹，能让总统和他的整个家族在监狱度过余生。 [自认是福克斯新闻频道观众的](https://theweek.com/speedreads/826967/6-10-americans-say-trump-hasnt-been-honest-about-russia--unless-watch-fox-news-cnn) ，接受了总统的暗示，认为整件事是一场闹剧。法律分析师——包括前美国律师出身的特朗普律师鲁迪·朱利安尼——认为无论穆勒发现什么，他都不能起诉一位在任总统。**
+
+**<label class="bxm4mm-13 juykRM">Advertisement</label>**
+
+## **好吧，但是会发生什么呢？**
+
+**很多。我们处于一个相当未知的领域，所以任何可能的情况充其量都是胡乱猜测，但大体上我们会看到一些可能的结果:**
+
+**穆勒起诉特朗普。**
+
+**这将是最大、最轰动的结果:一位在任总统因某种尚未确定的罪行被起诉。目前尚不清楚华盛顿的立法者将如何起诉特朗普，但这很有可能会引发国会民主党人对总统弹劾程序的讨论——如果不是直接促成的话。**
+
+**穆勒没有起诉特朗普。**
+
+**<label class="bxm4mm-13 juykRM">Advertisement</label>**
+
+**上海合作组织的报告很可能不太像是一份收费文件，而更像是一本指导国会采取行动的指南(或者不是！)自己。尽管如此，除了直接起诉(或指示国会启动弹劾程序)之外，特朗普和他的支持者可能会认为这是一个证据，证明整个调查是在浪费时间和金钱，而且没有任何勾结！** 
+
+**穆勒的报告仍然是一个秘密。**
+
+**如果发生这种情况，预计民主党人——以及 [也许还有一些共和党人](https://thehill.com/homenews/senate/425586-gop-senator-really-important-that-mueller-report-be-made-public)——将 [竭尽全力](https://www.apnews.com/468ce93dd6554c2f85287643bebc0d6e) 迫使 DOJ 尽可能向公众提供穆勒报告。根据众议员亚当·希夫的说法，这意味着使用国会传票，甚至在必要时将它 [告上法庭](https://www.apnews.com/468ce93dd6554c2f85287643bebc0d6e) 。**
+
+****2020 年大选。****
+
+**<label class="bxm4mm-13 juykRM">Advertisement</label>**
+
+**无论上述哪种情况成为现实，穆勒报告都有百分之百的机会在即将到来的总统选举中发挥重要作用；民主党人几乎肯定会利用其调查结果——和/或任何不公开这些调查结果的决定——尽他们所能，因为他们试图让特朗普成为一届总统。类似地，预计共和党人及其盟友会抓住哪怕是最小的一点可能的免责迹象，猛烈抨击民主党人浪费了公众的时间和金钱。**
+
+**是的，总统可能会发很多微博。**

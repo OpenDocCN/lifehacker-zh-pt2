@@ -1,10 +1,10 @@
 # 为什么你的锻炼有时感觉如此艰难
 
-> 原文：<https://lifehacker.com/why-your-workouts-feel-so-hard-sometimes-1839257373>
+> 原文:[https://life hacker . com/why-your-stoughts-feel so hard-times-1839257373](https://lifehacker.com/why-your-workouts-feel-so-hard-sometimes-1839257373)
 
 我们很多人都走过一条健身之路。首先，当每次锻炼来临的时候，你都要做:参加这个课程，或者跟着那个朋友去健身房。然后，你意识到你可以在你的运动中取得*进步*——无论是举重、跑步还是其他什么——然后你开始遵循一个旨在带你实现具体目标的计划。到目前为止一切顺利。
 
-
+Watch
 
 [新手收获](https://lifehacker.com/what-the-heck-newbie-gains-are-and-what-to-do-afterw-1716332727) 乐趣无穷，激励人心。每次锻炼，你都比以往跑得更远或举得更多。但是很快事情就慢下来了。也许你会气馁，但希望你能挺过去。不知不觉中，你又开始打 PRs(个人记录)了。毕竟，如果你训练多年，你知道你会变得更强壮。它必须发生。你只需要相信进展。
 
@@ -18,4 +18,8 @@
 
 当我看到举重教练汤姆·斯罗卡 在 Instagram 上发布的这个帖子时，我想起了粗糙补丁的这个原因。你绕着圆圈顺时针旋转，顶部是进步，底部是粗糙的补丁。他说，当你训练时，高潮会越来越高，但低谷(粗糙的地方)也会越来越低。但是要进步，你必须相信这个过程。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=instagram-B34utJVgmk7&amp;autosize=1" autoresize="true" id="instagram-B34utJVgmk7" data-recommended="false" width="598" height="676" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">是真的。这里有一个例子。今年早些时候，我试图将两个不同教练的训练结合起来(这种方式很疯狂，但那是另一回事)。我很快意识到我做了太多的锻炼，所以我后退了一点。之后不久，在一个相对轻松的星期里，我设法打了一堆惊喜公关。太棒了，我想，我变强了。</p><p class="sc-77igqf-0 bOfvBY">但是猜猜当我恢复训练量时发生了什么？我的身体处理一切都很好——我不觉得太累，我没有任何伤病——但这种令人惊讶的进步似乎已经消失了。我再也打不到同样的数字了。那是另一个艰难的时期。当见面日到来时，我得到了充分的休息和准备，你猜怎么着？我设置了一个全新的公关团队。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=instagram-B34utJVgmk7&autosize=1](https://lifehacker.com/embed/inset/iframe?id=instagram-B34utJVgmk7&autosize=1) 
+
+是真的。这里有一个例子。今年早些时候，我试图将两个不同教练的训练结合起来(这种方式很疯狂，但那是另一回事)。我很快意识到我做了太多的锻炼，所以我后退了一点。之后不久，在一个相对轻松的星期里，我设法打了一堆惊喜公关。太棒了，我想，我变强了。
+
+但是猜猜当我恢复训练量时发生了什么？我的身体处理一切都很好——我不觉得太累，我没有任何伤病——但这种令人惊讶的进步似乎已经消失了。我再也打不到同样的数字了。那是另一个艰难的时期。当见面日到来时，我得到了充分的休息和准备，你猜怎么着？我设置了一个全新的公关团队。

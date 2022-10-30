@@ -1,10 +1,10 @@
 # 如何使用 Nvidia 的最新驱动程序来限制您的电脑的帧速率
 
-> 原文：<https://lifehacker.com/how-to-use-nvidias-latest-drivers-to-cap-your-pcs-frame-1840853291>
+> 原文:[https://life hacker . com/how-to-use-nvidias-latest-drivers-to-cap-your-PCs-frame-1840853291](https://lifehacker.com/how-to-use-nvidias-latest-drivers-to-cap-your-pcs-frame-1840853291)
 
 Nvidia 的 GeForce 驱动程序的全新版本解锁了一个有用的小功能:通用帧速率上限。如果你厌倦了在你玩的每一个游戏中设置这个限制，这将为你节省一点时间——由于该功能在某种程度上被隐藏在 Nvidia 的控制面板中，并且没有大张旗鼓地出现，下面是如何找到它(以及它的作用)。
 
-
+Watch
 
 若要开始，请确保您已更新到最新的 GeForce 驱动程序。对于大多数人来说，这就像检查 [GeForce 体验](https://www.nvidia.com/en-us/geforce/geforce-experience/) 的更新一样简单:
 
@@ -18,4 +18,6 @@ Nvidia 的 GeForce 驱动程序的全新版本解锁了一个有用的小功能:
 
 如果您发现限制您的帧速率(结合启用或禁用 Vsync)可以在您经常玩的游戏中创造更好的体验，请继续使用它！如果你发现你的游戏反应较慢，调高数值——如果你的显卡能处理的话，是显示器刷新率的两倍——或者完全关闭。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-hjWSRTYV8e0&amp;start=0" data-chomp-id="hjWSRTYV8e0" data-recommend-id="youtube://hjWSRTYV8e0" id="youtube-hjWSRTYV8e0" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="hjWSRTYV8e0" data-recommend-id="youtube://hjWSRTYV8e0" id="youtube-hjWSRTYV8e0" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">有争议的设定并没有一个正确或错误的答案；这完全取决于你玩的游戏和你想要的体验。如果你想在<em> CS:GO，</em>中找到职业，我会完全避开这个场景。如果你喜欢玩单人角色扮演游戏，那就试一试，看看是否有所不同。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-hjWSRTYV8e0&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-hjWSRTYV8e0&start=0) 
+
+有争议的设定并没有一个正确或错误的答案；这完全取决于你玩的游戏和你想要的体验。如果你想在 *CS:GO，*中找到职业，我会完全避开这个场景。如果你喜欢玩单人角色扮演游戏，那就试一试，看看是否有所不同。

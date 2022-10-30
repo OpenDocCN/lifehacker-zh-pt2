@@ -1,10 +1,10 @@
 # 显然，这是最佳驾驶位置
 
-> 原文：<https://jalopnik.com/this-apparently-is-the-optimal-driving-position-1833433947>
+> 原文:[https://jalopnik . com/this-appearly-is-the-optimal-driving-position-1833433947](https://jalopnik.com/this-apparently-is-the-optimal-driving-position-1833433947)
 
 驾驶一辆汽车并不是简单地把你的屁股随意地放在座位上，然后从那里转动方向盘。实际上有一个正确的方法来调整你的座椅，以获得最大的舒适性、可控性和安全性。
 
-
+Watch
 
 最近，捷豹在其首席医疗官史蒂夫·伊利博士的帮助下，创建了一个完美驾驶位置的视频指南。显然，只有当你的汽车座椅可以灵活调节时，这个位置才是可行的，但谢天谢地，大多数现代汽车都很擅长这个。
 
@@ -28,4 +28,6 @@
 
 你可以看看下面的完整视频。
 
-<iframe data-src="https://jalopnik.com/embed/inset/iframe?id=youtube-video-XGfmPkMtlWY&amp;start=0" data-chomp-id="XGfmPkMtlWY" data-recommend-id="youtube://XGfmPkMtlWY" id="youtube-XGfmPkMtlWY" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="XGfmPkMtlWY" data-recommend-id="youtube://XGfmPkMtlWY" id="youtube-XGfmPkMtlWY" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY"><em>via</em><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 cYiQhX js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.motor1.com/news/314175/jaguar-perfect-driving-position-video/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.motor1.com/news/314175/jaguar-perfect-driving-position-video/" target="_blank" rel="noopener noreferrer"><em>motor 1</em></a></span></p> </body> </html></iframe>
+ [https://jalopnik.com/embed/inset/iframe?id=youtube-video-XGfmPkMtlWY&start=0](https://jalopnik.com/embed/inset/iframe?id=youtube-video-XGfmPkMtlWY&start=0) 
+
+*via*[*motor 1*](https://www.motor1.com/news/314175/jaguar-perfect-driving-position-video/)

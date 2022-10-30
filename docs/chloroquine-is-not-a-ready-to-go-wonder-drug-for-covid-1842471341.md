@@ -1,10 +1,10 @@
 # 对新冠肺炎来说，氯喹不是现成的特效药
 
-> 原文：<https://lifehacker.com/chloroquine-is-not-a-ready-to-go-wonder-drug-for-covid-1842471341>
+> 原文:[https://life hacker . com/chloro Quine-is-not-a-ready-to-go-covid-1842471341](https://lifehacker.com/chloroquine-is-not-a-ready-to-go-wonder-drug-for-covid-1842471341)
 
 氯喹是一种用于治疗疟疾和其他疾病的药物，总统最近在推特上表示，应该“立即投入使用”来治疗新冠肺炎。不幸的是，专家们并不这么认为，所以看在上帝的份上，请不要让你的医生朋友偷偷给你开处方。
 
-
+Watch
 
 ### 什么是氯喹？
 
@@ -22,4 +22,22 @@
 
 不幸的是，这些天似乎任何听到预印本的人都突然认为自己是专家。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1241367245143642113&amp;autosize=1" autoresize="true" id="twitter-1241367245143642113" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">事实证明，总统引用的对新冠肺炎患者使用氯喹的研究远非结论性的。首先，它非常小。另一个例子是，几名接受药物治疗的患者病情恶化，但<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://twitter.com/MamaDoctorJones/status/1241498707507494912&quot;,{&quot;metric25&quot;:1}]]" href="https://twitter.com/MamaDoctorJones/status/1241498707507494912" target="_blank" rel="noopener noreferrer">未计入</a> </span>结果。</p><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1241498707507494912&amp;autosize=1" autoresize="true" id="twitter-1241498707507494912" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><p class="sc-77igqf-0 bOfvBY">在 Buzzfeed 上，Dan Vergano 提供了关于这种药物 令人兴奋的证据的更多细节。简而言之:它并不引人注目，而且药物的副作用令人担忧。我们不确定它是否有效，结果可能是弊大于利。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h18109">万一我想备货呢？</h3><p class="sc-77igqf-0 bOfvBY">请不要。</p><p class="sc-77igqf-0 bOfvBY">在过去的一周里，人们对这种药物如此绝望，以至于药店里的<span></span>都快卖光了。一些州已经发布了限制使用这种药物的命令，但是可能已经太晚了。我在推特上看到狼疮患者说他们很难得到他们通常的处方，药剂师有类似<span>T5T7】的故事:</span></p><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1241816884166578176&amp;autosize=1" autoresize="true" id="twitter-1241816884166578176" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><p class="sc-77igqf-0 bOfvBY">没错，是处方药，但有些医生是<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.nytimes.com/2020/03/24/business/coronavirus-doctors-hoard-drugs.html&quot;,{&quot;metric25&quot;:1}]]" href="https://www.nytimes.com/2020/03/24/business/coronavirus-doctors-hoard-drugs.html" target="_blank" rel="noopener noreferrer">为自己</a> </span>和朋友写剧本。买不到处方氯喹的人正在购买鱼缸中使用的氯喹。在我研究这篇文章的时候，我不断在水族馆供应网站上看到氯喹的页面...都没货了。</p><p class="sc-77igqf-0 bOfvBY">这不仅仅是鱼类的问题:<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.nbcnews.com/health/health-news/man-dies-after-ingesting-chloroquine-attempt-prevent-coronavirus-n1167166&quot;,{&quot;metric25&quot;:1}]]" href="https://www.nbcnews.com/health/health-news/man-dies-after-ingesting-chloroquine-attempt-prevent-coronavirus-n1167166" target="_blank" rel="noopener noreferrer">一名男子在服用了原本为他们的锦鲤池塘购买的磷酸氯喹后死亡，他的妻子处于危急状态</a> </span>。请，请不要服用鱼类药物，也不要向你的医生朋友乞求不必要的处方。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1241367245143642113&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1241367245143642113&autosize=1) 
+
+事实证明，总统引用的对新冠肺炎患者使用氯喹的研究远非结论性的。首先，它非常小。另一个例子是，几名接受药物治疗的患者病情恶化，但 [未计入](https://twitter.com/MamaDoctorJones/status/1241498707507494912) 结果。
+
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1241498707507494912&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1241498707507494912&autosize=1) 
+
+在 Buzzfeed 上，Dan Vergano 提供了关于这种药物 令人兴奋的证据的更多细节。简而言之:它并不引人注目，而且药物的副作用令人担忧。我们不确定它是否有效，结果可能是弊大于利。
+
+### 万一我想备货呢？
+
+请不要。
+
+在过去的一周里，人们对这种药物如此绝望，以至于药店里的都快卖光了。一些州已经发布了限制使用这种药物的命令，但是可能已经太晚了。我在推特上看到狼疮患者说他们很难得到他们通常的处方，药剂师有类似T5T7】的故事:
+
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1241816884166578176&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1241816884166578176&autosize=1) 
+
+没错，是处方药，但有些医生是 [为自己](https://www.nytimes.com/2020/03/24/business/coronavirus-doctors-hoard-drugs.html) 和朋友写剧本。买不到处方氯喹的人正在购买鱼缸中使用的氯喹。在我研究这篇文章的时候，我不断在水族馆供应网站上看到氯喹的页面...都没货了。
+
+这不仅仅是鱼类的问题: [一名男子在服用了原本为他们的锦鲤池塘购买的磷酸氯喹后死亡，他的妻子处于危急状态](https://www.nbcnews.com/health/health-news/man-dies-after-ingesting-chloroquine-attempt-prevent-coronavirus-n1167166) 。请，请不要服用鱼类药物，也不要向你的医生朋友乞求不必要的处方。

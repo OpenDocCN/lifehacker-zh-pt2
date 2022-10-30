@@ -1,13 +1,43 @@
 # 获得今晚《星球大战：天行者崛起》门票的最佳秘诀
 
-> 原文：<https://lifehacker.com/the-most-effective-strategies-to-score-tickets-to-star-1839227054>
+> 原文:[https://life hacker . com/the-most-effective-strategies-to-score-tickets-to-star-1839227054](https://lifehacker.com/the-most-effective-strategies-to-score-tickets-to-star-1839227054)
 
 我迫不及待地想看《星球大战:天行者的崛起》，但我对今天的《T2》既兴奋又恐惧。原因如下:史诗般的天行者传奇最后一部电影的门票将于今晚晚些时候发售，对于数百万寻找电影首映周末座位的粉丝来说，这将是一场彻底的混乱。
 
-
+Watch
 
 模式和以前一样。今晚，在周一足球之夜，我们都将得到一部全新的天行者崛起预告片。在预告片期间的某个时间点，之后不久，甚至稍早于预告片，电影首映周末(12 月 20 日)的门票将开始发售。Fandango 会一如既往的融化。你要么无法访问该网站，要么更糟糕的是，你会被甩到网上排队，发现自己只能在电影上映六天后在你最喜欢的电影院买到一个后排座位。呃。
 
 我运气很好，买到了荒谬的流行电影的票，如《星球大战:最后的绝地武士》、《T2》、《复仇者联盟 4：终局之战》、《T3》等。——我有几个小技巧可以分享给你，让你在今天(ET) (据我所知)大约 8:00 p .【m .】门票正式发售时，*可能*会帮到你。没有保证。还有，不要坐我的位子。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1185556207836073985&amp;autosize=1" autoresize="true" id="twitter-1185556207836073985" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h18765">能避免就不要用 Fandango</h3><p class="sc-77igqf-0 bOfvBY">没有反对 Fandango 的；这是一个很棒的服务，我以前很喜欢那些唱歌的纸袋之类的东西。然而，它也是大多数人在网上购买电影票的默认地点——我敢打赌——当<em>天行者崛起</em>门票开始销售时，这个网站将会被彻底摧毁。欢迎您尝试作为备用计划，但是将所有鸡蛋放在 Fandango 篮子里可能会导致一些悲伤(以及在虚拟队列中的长时间等待)。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h18766">当有疑问时，避开最大的链条</h3><p class="sc-77igqf-0 bOfvBY">我知道，我知道；Cinemark 和 AMC 是大多数人去看电影的地方。然而，如果你所在的地区有一家同样好的独立影院——杀手放映机、杜比全景声(Dolby Atmos)等——考虑今天晚些时候访问他们的网站，而不是大型连锁影院。我想，你将会和少得多的人竞争门票，除非你当地的选择以“阿拉莫”开始，以“德拉夫豪斯”结束。(如果是这样，祝你好运。)</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">如果你能找到(或组织)一场更私密的电影放映，那就加分了。如果你附近有一些慈善活动，提供私人放映额外的现金，或者甚至一大群疯狂的星球大战粉丝组织一些特别的活动，这可能是一条可以去的路线，而不是在 Cinemark 首映周末获得一个席位。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h18767">也试试应用程序</h3><p class="sc-77igqf-0 bOfvBY">虽然我今晚可能仍然会在 Fandango-dot-com 上露营，但以防万一，我也会启动 Fandango 应用程序(以及 Cinemark 和 AMC)。虽然不能保证它们不会像网站那样不堪重负，但我很幸运地通过这种方式获得了门票。希望每个人都涌向他们的网络浏览器，忘记票务应用的存在。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h18768">尝试第三方票务应用</h3><p class="sc-77igqf-0 bOfvBY">我已经提到了 Fandango，但还有更不受欢迎的应用和服务(如<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.atomtickets.com&quot;,{&quot;metric25&quot;:1}]]" href="https://www.atomtickets.com" target="_blank" rel="noopener noreferrer"> Atom </a> </span>)可以用来在相同的影院购买相同电影的门票。和以前一样，随着 AMC、Cinemark、Fandango 等蜂拥而至，这些应用和服务不太可能成为<em>。，来了<em>星球大战</em>售票时间。就像韩·索罗一样，如果今晚晚些时候你的购票任务遇到了粉丝，你会想要准备好你所有的选择。</em></p><h3 class="sc-1bwb26k-1 kpbNNd" id="h18769">早点开始</h3><p class="sc-77igqf-0 bOfvBY">只是因为每个人都说，“哦，一旦预告片结束，门票就会开始出售”或类似的话，不要相信他们。如果我是你——我会自己做这件事——我会在整个下午开始查看我的各种票务应用、服务和网站。谁知道；Cinemark 可能会搞砸，意外地比你预期的早一个小时解锁售票，这样你就不用排队了。(更重要的是，你可能会在你想要的演出时间买到很棒的座位。)不要相信任何人。不断检查。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h18770">扫描社交媒体</h3><p class="sc-77igqf-0 bOfvBY">这几乎是不言而喻的，但我会关注我当地电影院的脸书页面——而且，一般来说，会查看 Twitter 上的人对购票的看法，甚至是对 T1/r/star warsT3 的看法。如果你能在人群蜂拥购票前提前十分钟得到提醒，那就足以让你找到你想要的座位。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h18771">试着去剧院本身</h3><p class="sc-77igqf-0 bOfvBY">如果你匆匆赶到计划去看《星球大战:天行者的崛起》的电影院，你可能会运气好，不用排队就能买到座位。我从来没有这样做过，所以我不能报道这种体验，但也许值得去(或派一个朋友去)看看你是否能避免疯狂的抢购。毕竟又不是你当地影院票房的电脑就要一拥而上。正确</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1185556207836073985&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1185556207836073985&autosize=1) 
+
+### 能避免就不要用 Fandango
+
+没有反对 Fandango 的；这是一个很棒的服务，我以前很喜欢那些唱歌的纸袋之类的东西。然而，它也是大多数人在网上购买电影票的默认地点——我敢打赌——当*天行者崛起*门票开始销售时，这个网站将会被彻底摧毁。欢迎您尝试作为备用计划，但是将所有鸡蛋放在 Fandango 篮子里可能会导致一些悲伤(以及在虚拟队列中的长时间等待)。
+
+### 当有疑问时，避开最大的链条
+
+我知道，我知道；Cinemark 和 AMC 是大多数人去看电影的地方。然而，如果你所在的地区有一家同样好的独立影院——杀手放映机、杜比全景声(Dolby Atmos)等——考虑今天晚些时候访问他们的网站，而不是大型连锁影院。我想，你将会和少得多的人竞争门票，除非你当地的选择以“阿拉莫”开始，以“德拉夫豪斯”结束。(如果是这样，祝你好运。)
+
+如果你能找到(或组织)一场更私密的电影放映，那就加分了。如果你附近有一些慈善活动，提供私人放映额外的现金，或者甚至一大群疯狂的星球大战粉丝组织一些特别的活动，这可能是一条可以去的路线，而不是在 Cinemark 首映周末获得一个席位。
+
+### 也试试应用程序
+
+虽然我今晚可能仍然会在 Fandango-dot-com 上露营，但以防万一，我也会启动 Fandango 应用程序(以及 Cinemark 和 AMC)。虽然不能保证它们不会像网站那样不堪重负，但我很幸运地通过这种方式获得了门票。希望每个人都涌向他们的网络浏览器，忘记票务应用的存在。
+
+### 尝试第三方票务应用
+
+我已经提到了 Fandango，但还有更不受欢迎的应用和服务(如 [Atom](https://www.atomtickets.com) )可以用来在相同的影院购买相同电影的门票。和以前一样，随着 AMC、Cinemark、Fandango 等蜂拥而至，这些应用和服务不太可能成为*。，来了*星球大战*售票时间。就像韩·索罗一样，如果今晚晚些时候你的购票任务遇到了粉丝，你会想要准备好你所有的选择。*
+
+### 早点开始
+
+只是因为每个人都说，“哦，一旦预告片结束，门票就会开始出售”或类似的话，不要相信他们。如果我是你——我会自己做这件事——我会在整个下午开始查看我的各种票务应用、服务和网站。谁知道；Cinemark 可能会搞砸，意外地比你预期的早一个小时解锁售票，这样你就不用排队了。(更重要的是，你可能会在你想要的演出时间买到很棒的座位。)不要相信任何人。不断检查。
+
+### 扫描社交媒体
+
+这几乎是不言而喻的，但我会关注我当地电影院的脸书页面——而且，一般来说，会查看 Twitter 上的人对购票的看法，甚至是对 T1/r/star warsT3 的看法。如果你能在人群蜂拥购票前提前十分钟得到提醒，那就足以让你找到你想要的座位。
+
+### 试着去剧院本身
+
+如果你匆匆赶到计划去看《星球大战:天行者的崛起》的电影院，你可能会运气好，不用排队就能买到座位。我从来没有这样做过，所以我不能报道这种体验，但也许值得去(或派一个朋友去)看看你是否能避免疯狂的抢购。毕竟又不是你当地影院票房的电脑就要一拥而上。正确

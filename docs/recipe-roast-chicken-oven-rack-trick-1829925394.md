@@ -1,7 +1,15 @@
 # 在烤箱架上烤一只鸡，让它美味的脂肪涂在你的蔬菜上
 
-> 原文：<https://thetakeout.com/recipe-roast-chicken-oven-rack-trick-1829925394>
+> 原文:[https://the take out . com/recipe-bake-chicken-oven-rack-trick-1829925394](https://thetakeout.com/recipe-roast-chicken-oven-rack-trick-1829925394)
 
 这种方法的灵感来自于杰米·奥利弗的《5 种食材——快速简单的食物》中的一集，他把整只鸡重重地放在烤箱的架子上。我仔细看了看。这样做可以吗？没有锅？没有像林肯原木一样复杂的胡萝卜排列来支撑烤盘里的鸡肉？溅出来的鸡汁会让我不太干净的烤箱冒烟吗？我原以为我会永远和我的烤鸡晚餐站在一起，但我被激起了兴趣。这个小把戏能让我回到烤鸡上来吗？
 
-<iframe data-src="https://thetakeout.com/embed/inset/iframe?id=youtube-video-H8HOs0qT6AQ&amp;start=335" data-chomp-id="H8HOs0qT6AQ" data-recommend-id="youtube://H8HOs0qT6AQ" id="youtube-H8HOs0qT6AQ" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="H8HOs0qT6AQ" data-recommend-id="youtube://H8HOs0qT6AQ" id="youtube-H8HOs0qT6AQ" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">我是这样做的:我拍干我 3 . 5 磅重的鸡肉，在上面撒上大量的犹太盐和胡椒。(我通常喜欢提前一天给我的鸡肉加盐，让它在冰箱里过夜——但即使一个小时也有帮助)。将烤箱架放在中间和底部。现在把烤箱加热到华氏 375 度。用橄榄油把鸡肉擦得很稀，直接把<em>放在烤箱中间的烤箱架上</em>。在它下面，放入一个平底锅，锅里放着几片切成大块的土豆和胡萝卜，加入一点橄榄油、盐和胡椒。烤鸡一个小时，中途翻动蔬菜。检查以确保鸡肉完全煮熟——你会在肉类温度计上看到大腿最厚的部分有 165 华氏度。小心地将鸡肉放入蔬菜锅中(不要倾斜鸡肉，因为里面有热乎乎的汁液！).</p><div class="bxm4mm-2 hKBnez"><div class="bxm4mm-1 goloRq instream-native-video instream-permalink instream-native-video--mobile"><div class="sc-1h0epat-0 lepUzz"><div class="sc-1h0epat-1 gRjwiT"><div class="sc-235a11-0 dYXfQa">Watch</div></div><div class="sc-1wkneyl-0 hxLRyg video-html5-playlist" data-playlist="192499,192194,191883" data-current="192499"><div class="video-html5-loaded"><div class="video-html5-player"><div class="lhhce6-0 bVyOPq video-html5 autoplay muted mobile" data-video-id="192499" data-position="sidebar" data-video-title="3 Easy Ways to Make Any Drink Stunning" data-video-network="the takeout" data-video-duration="111"></div></div></div></div></div></div></div><p class="sc-77igqf-0 bOfvBY">雕刻前让它休息 10-20 分钟。将蔬菜倒入任何累积的油滴中，然后和鸡肉一起食用。</p><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><p class="sc-77igqf-0 bOfvBY">那么，在架子上烹饪会有所不同吗？我想是的。皮肤变得更加古铜色和酥脆，因为底部从烧烤蔬菜释放的蒸汽中释放出来。它似乎味道也更好，但也许这只是鸡肉的戏剧——看着美味的脂肪滴落在你的土豆和蔬菜上，知道那会有多好吃。这就像巴黎的烤鸡店，旋转的鸡把鸡油涂在下面的厚土豆上。我一直开着烤箱灯，这样我就可以看了。我想这可能只是我新的烤鸡方式。谢谢杰米。</p><div id="mgid-container" data-placement="4" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809776ScriptRootC1321855"/><div class="mgidMidMobile" id="M809776ScriptRootC1321857"/></div> </body> </html></iframe>
+ [https://thetakeout.com/embed/inset/iframe?id=youtube-video-H8HOs0qT6AQ&start=335](https://thetakeout.com/embed/inset/iframe?id=youtube-video-H8HOs0qT6AQ&start=335) 
+
+我是这样做的:我拍干我 3 . 5 磅重的鸡肉，在上面撒上大量的犹太盐和胡椒。(我通常喜欢提前一天给我的鸡肉加盐，让它在冰箱里过夜——但即使一个小时也有帮助)。将烤箱架放在中间和底部。现在把烤箱加热到华氏 375 度。用橄榄油把鸡肉擦得很稀，直接把*放在烤箱中间的烤箱架上*。在它下面，放入一个平底锅，锅里放着几片切成大块的土豆和胡萝卜，加入一点橄榄油、盐和胡椒。烤鸡一个小时，中途翻动蔬菜。检查以确保鸡肉完全煮熟——你会在肉类温度计上看到大腿最厚的部分有 165 华氏度。小心地将鸡肉放入蔬菜锅中(不要倾斜鸡肉，因为里面有热乎乎的汁液！).
+
+Watch
+
+雕刻前让它休息 10-20 分钟。将蔬菜倒入任何累积的油滴中，然后和鸡肉一起食用。
+
+那么，在架子上烹饪会有所不同吗？我想是的。皮肤变得更加古铜色和酥脆，因为底部从烧烤蔬菜释放的蒸汽中释放出来。它似乎味道也更好，但也许这只是鸡肉的戏剧——看着美味的脂肪滴落在你的土豆和蔬菜上，知道那会有多好吃。这就像巴黎的烤鸡店，旋转的鸡把鸡油涂在下面的厚土豆上。我一直开着烤箱灯，这样我就可以看了。我想这可能只是我新的烤鸡方式。谢谢杰米。

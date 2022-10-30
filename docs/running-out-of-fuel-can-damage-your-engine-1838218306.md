@@ -1,11 +1,25 @@
 # 燃料耗尽会损坏你的引擎
 
-> 原文：<https://jalopnik.com/running-out-of-fuel-can-damage-your-engine-1838218306>
+> 原文:[https://jalopnik . com/running-out-of-fuel-can-damage-your-engine-1838218306](https://jalopnik.com/running-out-of-fuel-can-damage-your-engine-1838218306)
 
 我们都知道，耗尽汽车燃料是一件坏事，原因显而易见，比如它会让你陷入困境。你也很有可能听说过空跑会损坏你的车。但是实际上发生了什么呢？
 
-
+Watch
 
 这段由 [工程制作的视频解释了](https://www.youtube.com/watch?v=WWDFAPXsk9s) 在接下来的九分钟视频中全面深入地探讨了这个话题。这真他妈的令人着迷。在 之前我们已经讨论过这个话题 [，但是有时候换个视角也不错。](https://jalopnik.com/why-you-shouldnt-run-your-car-low-on-gas-1796273605) 
 
-<iframe data-src="https://jalopnik.com/embed/inset/iframe?id=youtube-video-WWDFAPXsk9s&amp;start=0" data-chomp-id="WWDFAPXsk9s" data-recommend-id="youtube://WWDFAPXsk9s" id="youtube-WWDFAPXsk9s" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="WWDFAPXsk9s" data-recommend-id="youtube://WWDFAPXsk9s" id="youtube-WWDFAPXsk9s" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">显然，发动机需要四样东西才能运转:氧气、火花、压缩和燃料。没有这些东西，它就会关闭，你哪儿也去不了。不再有燃烧。<br/></p><p class="sc-77igqf-0 bOfvBY">受燃油耗尽影响最明显的部分是燃油泵。它不是吸走你的汽油，而是突然吸走一堆空气。F <!-- -->燃料泵<!-- -->被设计成<!-- -->同时被<!-- -->燃料<!-- -->冷却<!-- -->，因为燃料通过泵被吸入<!-- -->到燃料喷射器。用空气代替燃料，你的泵开始变热。那显然不好。</p><p class="sc-77igqf-0 bOfvBY">然而，燃料耗尽意味着发动机不再工作。所以它关闭了。燃油泵吸入空气和加热的时间是最少的。但那是在空转的情况下。如果你在外面开着车，急刹车，急转弯，油箱里的汽油会四处飞溅。在这种情况下，燃油泵可能会在油箱中仍然有技术上的<!-- -->燃油时开始吸入热空气，因为燃油不一定总是在油箱底部。这本身并不可怕。但是，如果你经常这样做，那么燃油泵就会经常变热，从而磨损。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M674727ScriptRootC1321798"/><div class="mgidMidMobile" id="M674727ScriptRootC1321799"/></div><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">这就把我们带到了引擎本身。对发动机有什么影响？</p><p class="sc-77igqf-0 bOfvBY">视频指出，对引擎的影响通常取决于一些独特的场景。如果气体没有进入发动机的所有气缸，就会发生失火——但这种情况造成损害的可能性仍然很小。但是，如果你真的开得很急，你的引擎可能没有以合适的空燃比运行，因此会变热。</p><p class="sc-77igqf-0 bOfvBY">总的来说，很少会因为燃料不足而损坏你的车。如果你只做一次或两次，你不太可能有任何超级有害的影响。然而，经常耗尽燃料，你就有可能损坏发动机的重要部件。任何不得不更换燃油泵的人都会告诉你，这不便宜也不容易。<br/></p><p class="sc-77igqf-0 bOfvBY">安全总比后悔好。当你的油箱油少的时候，把它加满，不要像个混蛋一样开车。</p> </body> </html></iframe>
+ [https://jalopnik.com/embed/inset/iframe?id=youtube-video-WWDFAPXsk9s&start=0](https://jalopnik.com/embed/inset/iframe?id=youtube-video-WWDFAPXsk9s&start=0) 
+
+显然，发动机需要四样东西才能运转:氧气、火花、压缩和燃料。没有这些东西，它就会关闭，你哪儿也去不了。不再有燃烧。
+
+受燃油耗尽影响最明显的部分是燃油泵。它不是吸走你的汽油，而是突然吸走一堆空气。F 燃料泵被设计成同时被燃料冷却，因为燃料通过泵被吸入到燃料喷射器。用空气代替燃料，你的泵开始变热。那显然不好。
+
+然而，燃料耗尽意味着发动机不再工作。所以它关闭了。燃油泵吸入空气和加热的时间是最少的。但那是在空转的情况下。如果你在外面开着车，急刹车，急转弯，油箱里的汽油会四处飞溅。在这种情况下，燃油泵可能会在油箱中仍然有技术上的燃油时开始吸入热空气，因为燃油不一定总是在油箱底部。这本身并不可怕。但是，如果你经常这样做，那么燃油泵就会经常变热，从而磨损。
+
+这就把我们带到了引擎本身。对发动机有什么影响？
+
+视频指出，对引擎的影响通常取决于一些独特的场景。如果气体没有进入发动机的所有气缸，就会发生失火——但这种情况造成损害的可能性仍然很小。但是，如果你真的开得很急，你的引擎可能没有以合适的空燃比运行，因此会变热。
+
+总的来说，很少会因为燃料不足而损坏你的车。如果你只做一次或两次，你不太可能有任何超级有害的影响。然而，经常耗尽燃料，你就有可能损坏发动机的重要部件。任何不得不更换燃油泵的人都会告诉你，这不便宜也不容易。
+
+安全总比后悔好。当你的油箱油少的时候，把它加满，不要像个混蛋一样开车。

@@ -1,6 +1,6 @@
 # 6 个非常棒的燃烧能量的后院游戏
 
-> 原文：<https://lifehacker.com/6-great-energy-burning-backyard-games-for-little-kids-1844203883>
+> 原文:[https://life hacker . com/6-great-energy-burning-backyard-games-for-little-kids-1844203883](https://lifehacker.com/6-great-energy-burning-backyard-games-for-little-kids-1844203883)
 
 好了，我们到了。我们敲响了七月的大门，新冠肺炎病毒仍在我们的许多社区肆虐。也许你现在已经加入了一些社交距离较远的玩伴，或者也许你开始想出如何安全地去游乐场或朋友的游泳池。如果你还没有跑出后院，为你的小孩进行破坏能量的活动，我会印象深刻。如果你有，这里有一些你可能还没有尝试过的想法。
 
@@ -8,4 +8,64 @@
 
 这是音乐椅的一个巧妙变化，包括更多的奔跑和狩猎——加上颜色识别，作为一个不错的学术奖励。Instagram 上@ [dayswithgrey](https://www.instagram.com/dayswithgrey/) 的贝丝描述了该怎么做:用粉笔画一个大圆圈，然后用你手头的任何颜色将其分成不同颜色的部分。(让孩子们在每个部分涂上颜色，让你的钱发挥最大效用。)
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=instagram-CAqYlkhHABP&amp;autosize=1" autoresize="true" id="instagram-CAqYlkhHABP" data-recommended="false" width="598" height="676" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">接下来，<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.instagram.com/p/CAqYlkhHABP/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.instagram.com/p/CAqYlkhHABP/" target="_blank" rel="noopener noreferrer">她说</a> </span>，启动音乐:</p><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">当我坐在圆圈的另一边时，我播放了乐高电影 2 的原声音乐。感觉对了，音乐就停了，男生们就跑去从他们落地的颜色里抢东西。当他们回来时，音乐又开始响起，他们绕着圆圈走。</p></blockquote><p class="sc-77igqf-0 bOfvBY">你可以在照片中看到，她的孩子找到了一些东西，比如一个蓝色的桶，一个绿色的放大镜和一朵白色的花，以匹配他们降落的颜色。</p>&#13; <h3 class="sc-1bwb26k-1 kpbNNd" id="h294601">跳河</h3><p class="sc-77igqf-0 bOfvBY">任何让孩子们跳得多的东西都是能量破坏的赢家。这个想法来自戴夫·鲍德温在《父亲般的 T2》中的观点:讲故事，富有想象力的游戏，当然还有跳跃。它可以和你想要的或多或少的孩子一起玩(尽管孩子越多，竞争越激烈)；你只需要两个可以用作“河岸”的细长物体，比如棍子、绳子、胶带或粉笔。</p><p class="sc-77igqf-0 bOfvBY"><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.fatherly.com/play/activities/jump-the-river/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.fatherly.com/play/activities/jump-the-river/" target="_blank" rel="noopener noreferrer">鲍德温解释了</a> </span>下一步该怎么做:</p><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">游戏开始时，将两根绳子(或棍子、胶带或两排石头)彼此平行，相距不远。那是“河”在决定了你想让孩子们练习立定跳远还是跑步跳远之后，让他们在河边或者几英尺远的地方站成一排。根据孩子的年龄，在这一点上创造一个故事是很有趣的。你告诉他们，我们不仅仅是跳过两根棍子，而是在森林里进行一场史诗般的寻宝之旅，刚刚遇到了这条汹涌的河流。如果我们不跳过去，我们永远也找不到金子！</p></blockquote>&#13; <h3 class="sc-1bwb26k-1 kpbNNd" id="h294602">守护女王躲避球</h3><p class="sc-77igqf-0 bOfvBY">你可能没有足够的家庭成员来玩一个完整的后院躲避球游戏，但是你可能有足够的家庭成员来玩这个更有创意和更有趣的游戏。你只需要一个柔软的球，一个开放的户外空间，以及尽可能多的孩子和成年人。</p><p class="sc-77igqf-0 bOfvBY"><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://grandmaideas.com/guard-queen-dodgeball&quot;,{&quot;metric25&quot;:1}]]" href="http://grandmaideas.com/guard-queen-dodgeball" target="_blank" rel="noopener noreferrer">妮娜冲着奶奶点子解释了</a> </span>的规则:</p><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">选一个人当女王，一个人当保镖。形成一个大圆圈，女王和侍卫站在中间。玩家扔球，试图击中女王。女王必须站在一个地方。但是，她可以侧身或弯腰闪避球或侧身迈出一小步。她必须呆在 3 英尺的范围内。</p><p class="sc-77igqf-0 bOfvBY">保镖可以在任何地方阻挡扔向女王的球。他可以接住球，阻挡球，击出球——任何可以保护女王不被击中的东西。如果保镖接住球，他必须把球扔给圈内的一名球员。游戏继续进行，直到女王被球击中。然后，女王成为保镖，保镖加入圈子，扔球击中女王的人现在成为女王。</p></blockquote>&#13; <h3 class="sc-1bwb26k-1 kpbNNd" id="h294603">跳过它</h3><p class="sc-77igqf-0 bOfvBY">最好的消耗能量的游戏通常是孩子们自己想出来的；这就是为什么我喜欢这个由博主莎拉·迪斯的年轻儿子们创建的活动:<span></span>。基本上，两个玩家拿着夏天在沃尔玛或塔吉特百货公司玩具部常见的那种大充气球面对面站着。正如迪斯所写，他们轮流向对方扔球；对方必须跳过球，躲开球或接住球。如果他们被击中，他们就失去了一条“命”他们一开始就决定他们每个人有多少条命，一直玩到有人失去了所有的命。</p><p class="sc-77igqf-0 bOfvBY"><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://frugalfun4boys.com/ten-ways-for-kids-to-burn-off-energy/&quot;,{&quot;metric25&quot;:1}]]" href="https://frugalfun4boys.com/ten-ways-for-kids-to-burn-off-energy/" target="_blank" rel="noopener noreferrer">她说</a> </span>他们也喜欢玩这些变化:</p><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">忍者跳 It :规则相同，但你要尝试踢、膝、空手道劈、躲闪或接球。</p><p class="sc-77igqf-0 bOfvBY"><strong>跳剑吧</strong>:(他们说这是最棒的版本。)每个玩家都有一把 Nerf 剑。在这个版本中，球员不能用手，而是用剑来回击球。</p></blockquote>&#13; <h3 class="sc-1bwb26k-1 kpbNNd" id="h294604">阴影标签</h3><p class="sc-77igqf-0 bOfvBY">你一定很熟悉 Tag 和它的表亲，冻结 Tag。但是如果你和你的孩子从来没有玩过影子捉迷藏，你就错过了一个更难、更有趣的游戏版本。你必须用你的脚去触摸他们的影子，而不是去触摸其他的玩家来认定他们是“它”。你显然需要在阳光明媚的日子玩这个游戏——越接近中午，游戏难度越大——但这是一个很好的夏季选择。</p><p class="sc-77igqf-0 bOfvBY">对于那些试图跟踪自己的影子<em>和</em>标记他人可能会更加绊倒或沮丧的蹒跚学步的孩子，<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.thegeniusofplay.org/genius/play-ideas-tips/play-ideas/shadow-tag.aspx#.XvofTGpKjt1&quot;,{&quot;metric25&quot;:1}]]" href="https://www.thegeniusofplay.org/genius/play-ideas-tips/play-ideas/shadow-tag.aspx#.XvofTGpKjt1" target="_blank" rel="noopener noreferrer">玩耍的天才</a> </span>提供了这种(不那么耗费精力但仍然有趣的)选择:</p><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">不要跑，让所有的玩家假装成行动缓慢的恐龙，或者其他有趣的大型动物，比如大象。这对年轻玩家来说是一个公平的竞争环境，但对那些可能加入进来的年长的兄弟姐妹来说也很有趣。</p></blockquote>&#13; <h3 class="sc-1bwb26k-1 kpbNNd" id="h294605">彩色</h3><p class="sc-77igqf-0 bOfvBY">我们知道你认识马可·波罗；但是你玩过一个叫“颜色”的撞球游戏吗？这是一个类似的想法，一个“它”玩家试图标记其他玩家，但当 M.P .变得有点老时，有一个有趣的变化。</p><p class="sc-77igqf-0 bOfvBY">首先决定你会“使用”哪些颜色，不会使用哪些颜色，以免游戏因为玩家选择像矢车菊或紫褐色这样的离群值而拖延。你可以简单地用彩虹的颜色来保持它的基本。)接下来，作为“它”的人站在水池的边缘或甲板附近，背对着水。池中的玩家各自默默选择自己的颜色。“它”的那个人开始缓慢而清晰地叫出不同的颜色。</p><p class="sc-77igqf-0 bOfvBY"><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://itstillworks.com/12114799/how-to-play-pool-colors&quot;,{&quot;metric25&quot;:1}]]" href="https://itstillworks.com/12114799/how-to-play-pool-colors" target="_blank" rel="noopener noreferrer">仍然有效</a> </span>解释了下一步该做什么:</p><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">当“它”猜出某人的颜色时，那个人会迅速游到游泳池的另一边，到达安全的地方。其他人留在原地。</p><p class="sc-77igqf-0 bOfvBY">告诉孩子谁是“它”，当有人游走时，就跳进池子里。他必须抓住游泳者。如果他在游泳者到达泳池另一边的安全地点之前抓住了她，那么她就成了“它”如果“它”的孩子没有抓住游泳者，游戏继续进行。当有人被抓住时，回合结束。</p></blockquote><p class="sc-77igqf-0 bOfvBY">这是为年龄较大的孩子和游泳健将准备的，尽管出于安全原因，它仍然应该在成人的监督下进行。</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><small> <em>遇见地球上最聪明的父母！加入我们的</em> </small> <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.facebook.com/groups/2018785615043946/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.facebook.com/groups/2018785615043946/" target="_blank" rel="noopener noreferrer"> <small> <em>育儿脸书群</em> </small> </a> </span> <small> <em>。</em>T15】</small></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=instagram-CAqYlkhHABP&autosize=1](https://lifehacker.com/embed/inset/iframe?id=instagram-CAqYlkhHABP&autosize=1) 
+
+接下来， [她说](https://www.instagram.com/p/CAqYlkhHABP/) ，启动音乐:
+
+> 当我坐在圆圈的另一边时，我播放了乐高电影 2 的原声音乐。感觉对了，音乐就停了，男生们就跑去从他们落地的颜色里抢东西。当他们回来时，音乐又开始响起，他们绕着圆圈走。
+
+你可以在照片中看到，她的孩子找到了一些东西，比如一个蓝色的桶，一个绿色的放大镜和一朵白色的花，以匹配他们降落的颜色。
+
+### 跳河
+
+任何让孩子们跳得多的东西都是能量破坏的赢家。这个想法来自戴夫·鲍德温在《父亲般的 T2》中的观点:讲故事，富有想象力的游戏，当然还有跳跃。它可以和你想要的或多或少的孩子一起玩(尽管孩子越多，竞争越激烈)；你只需要两个可以用作“河岸”的细长物体，比如棍子、绳子、胶带或粉笔。
+
+[鲍德温解释了](https://www.fatherly.com/play/activities/jump-the-river/) 下一步该怎么做:
+
+> 游戏开始时，将两根绳子(或棍子、胶带或两排石头)彼此平行，相距不远。那是“河”在决定了你想让孩子们练习立定跳远还是跑步跳远之后，让他们在河边或者几英尺远的地方站成一排。根据孩子的年龄，在这一点上创造一个故事是很有趣的。你告诉他们，我们不仅仅是跳过两根棍子，而是在森林里进行一场史诗般的寻宝之旅，刚刚遇到了这条汹涌的河流。如果我们不跳过去，我们永远也找不到金子！
+
+### 守护女王躲避球
+
+你可能没有足够的家庭成员来玩一个完整的后院躲避球游戏，但是你可能有足够的家庭成员来玩这个更有创意和更有趣的游戏。你只需要一个柔软的球，一个开放的户外空间，以及尽可能多的孩子和成年人。
+
+[妮娜冲着奶奶点子解释了](http://grandmaideas.com/guard-queen-dodgeball) 的规则:
+
+> 选一个人当女王，一个人当保镖。形成一个大圆圈，女王和侍卫站在中间。玩家扔球，试图击中女王。女王必须站在一个地方。但是，她可以侧身或弯腰闪避球或侧身迈出一小步。她必须呆在 3 英尺的范围内。
+> 
+> 保镖可以在任何地方阻挡扔向女王的球。他可以接住球，阻挡球，击出球——任何可以保护女王不被击中的东西。如果保镖接住球，他必须把球扔给圈内的一名球员。游戏继续进行，直到女王被球击中。然后，女王成为保镖，保镖加入圈子，扔球击中女王的人现在成为女王。
+
+### 跳过它
+
+最好的消耗能量的游戏通常是孩子们自己想出来的；这就是为什么我喜欢这个由博主莎拉·迪斯的年轻儿子们创建的活动:。基本上，两个玩家拿着夏天在沃尔玛或塔吉特百货公司玩具部常见的那种大充气球面对面站着。正如迪斯所写，他们轮流向对方扔球；对方必须跳过球，躲开球或接住球。如果他们被击中，他们就失去了一条“命”他们一开始就决定他们每个人有多少条命，一直玩到有人失去了所有的命。
+
+[她说](https://frugalfun4boys.com/ten-ways-for-kids-to-burn-off-energy/) 他们也喜欢玩这些变化:
+
+> 忍者跳 It :规则相同，但你要尝试踢、膝、空手道劈、躲闪或接球。
+> 
+> **跳剑吧**:(他们说这是最棒的版本。)每个玩家都有一把 Nerf 剑。在这个版本中，球员不能用手，而是用剑来回击球。
+
+### 阴影标签
+
+你一定很熟悉 Tag 和它的表亲，冻结 Tag。但是如果你和你的孩子从来没有玩过影子捉迷藏，你就错过了一个更难、更有趣的游戏版本。你必须用你的脚去触摸他们的影子，而不是去触摸其他的玩家来认定他们是“它”。你显然需要在阳光明媚的日子玩这个游戏——越接近中午，游戏难度越大——但这是一个很好的夏季选择。
+
+对于那些试图跟踪自己的影子*和*标记他人可能会更加绊倒或沮丧的蹒跚学步的孩子， [玩耍的天才](https://www.thegeniusofplay.org/genius/play-ideas-tips/play-ideas/shadow-tag.aspx#.XvofTGpKjt1) 提供了这种(不那么耗费精力但仍然有趣的)选择:
+
+> 不要跑，让所有的玩家假装成行动缓慢的恐龙，或者其他有趣的大型动物，比如大象。这对年轻玩家来说是一个公平的竞争环境，但对那些可能加入进来的年长的兄弟姐妹来说也很有趣。
+
+### 彩色
+
+我们知道你认识马可·波罗；但是你玩过一个叫“颜色”的撞球游戏吗？这是一个类似的想法，一个“它”玩家试图标记其他玩家，但当 M.P .变得有点老时，有一个有趣的变化。
+
+首先决定你会“使用”哪些颜色，不会使用哪些颜色，以免游戏因为玩家选择像矢车菊或紫褐色这样的离群值而拖延。你可以简单地用彩虹的颜色来保持它的基本。)接下来，作为“它”的人站在水池的边缘或甲板附近，背对着水。池中的玩家各自默默选择自己的颜色。“它”的那个人开始缓慢而清晰地叫出不同的颜色。
+
+[仍然有效](https://itstillworks.com/12114799/how-to-play-pool-colors) 解释了下一步该做什么:
+
+> 当“它”猜出某人的颜色时，那个人会迅速游到游泳池的另一边，到达安全的地方。其他人留在原地。
+> 
+> 告诉孩子谁是“它”，当有人游走时，就跳进池子里。他必须抓住游泳者。如果他在游泳者到达泳池另一边的安全地点之前抓住了她，那么她就成了“它”如果“它”的孩子没有抓住游泳者，游戏继续进行。当有人被抓住时，回合结束。
+
+这是为年龄较大的孩子和游泳健将准备的，尽管出于安全原因，它仍然应该在成人的监督下进行。
+
+* * *
+
+<small>*遇见地球上最聪明的父母！加入我们的*</small> [<small>*育儿脸书群*</small>](https://www.facebook.com/groups/2018785615043946/) <small>*。*T15】</small>

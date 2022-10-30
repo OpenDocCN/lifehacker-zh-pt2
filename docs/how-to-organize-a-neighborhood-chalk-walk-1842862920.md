@@ -1,10 +1,10 @@
 # 如何组织邻里“粉笔行走”
 
-> 原文：<https://lifehacker.com/how-to-organize-a-neighborhood-chalk-walk-1842862920>
+> 原文:[https://life hacker . com/how-to-organize-a-neighborhood-chalk-walk-1842862920](https://lifehacker.com/how-to-organize-a-neighborhood-chalk-walk-1842862920)
 
 你有没有注意到最近你隔离区附近人行道上可爱的粉笔画数量增加了？被关起来的孩子们(和许多成年人)走上人行道，扔出一些小艺术品或一些鼓舞人心的话，让邻居欣赏，因为我们都尽可能地走在户外。因为在疫情期间，我们都在以各种可能的方式与他人联系，所以考虑通过组织一次社区粉笔行走来提升这种情绪。
 
-
+Watch
 
 我遇到过这种想法的几种不同的变体，因为我们中的许多人把我们所有的工作、教育和养育都带到了家里。就像我们建议的 [社交距离寻宝游戏](https://lifehacker.com/host-a-social-distancing-neighborhood-scavenger-hunt-1842427054) 一样，你可以和你的邻居协调日期、时间和任何其他你想要的参数。选择一个主题( [彩色玻璃粉笔艺术](http://www.philandmama.com/adventures/2020/4/4/we-made-a-stained-glass-sidewalk-chalk-art-and-think-you-should-too) )现在是一个真实的时刻——或者只是让人们画他们想画的东西——装饰你家外面的人行道，让从现在开始到下一次下雨之前散步的每个人享受。
 
@@ -16,4 +16,14 @@
 
 除了让孩子们做所有的工作，你还可以为他们做，为他们提供一种释放一些被压抑的能量的方式——比如 [乔迪·鲍迪斯特尔·古德劳](https://www.facebook.com/jody.b.goudreau/videos/10157490145962875) ，她为她的邻居的孩子们创造了一整套该死的粉笔障碍课程:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=fb-10157490145962875&amp;autosize=1" autoresize="true" id="fb-10157490145962875" data-recommended="false" width="640" height="360" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">下面是<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.instagram.com/p/B-9KZXiAUA2/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.instagram.com/p/B-9KZXiAUA2/" target="_blank" rel="noopener noreferrer">另一个好的</a> </span>，证明有些孩子<!-- -->对待<!-- -->“障碍课程<!-- -->”比其他人更认真:<br/></p><div class="ooo3c9-0 cmUFVa embed-frame"><span class="non-flex-video"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=instagram-B-9KZXiAUA2&amp;autosize=1" autoresize="true" id="instagram-B-9KZXiAUA2" data-recommended="false" width="598" height="676" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><p class="sc-77igqf-0 bOfvBY">F <!-- -->最后，你可以完全跳过邻里协调和详细的障碍跑道建设，当你<!-- -->带<!-- -->去散步时，只需<!-- -->递给<!-- -->你的孩子一支粉笔。在每个邻居的车道尽头停下来，让他们画一个心形或者一个笑脸或者写下一些充满希望的话。它会让看到它的人的一天变得明亮<!-- -->，你的孩子会因为偷偷散播一点快乐而感觉良好。</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><small> <em>遇见地球上最聪明的父母！加入我们的</em> </small> <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.facebook.com/groups/2018785615043946/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.facebook.com/groups/2018785615043946/" target="_blank" rel="noopener noreferrer"> <small> <em>育儿脸书群</em> </small> </a> </span> <small> <em>。</em> </small> <br/></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=fb-10157490145962875&autosize=1](https://lifehacker.com/embed/inset/iframe?id=fb-10157490145962875&autosize=1) 
+
+下面是 [另一个好的](https://www.instagram.com/p/B-9KZXiAUA2/) ，证明有些孩子对待“障碍课程”比其他人更认真:
+
+ [https://lifehacker.com/embed/inset/iframe?id=instagram-B-9KZXiAUA2&autosize=1](https://lifehacker.com/embed/inset/iframe?id=instagram-B-9KZXiAUA2&autosize=1) 
+
+F 最后，你可以完全跳过邻里协调和详细的障碍跑道建设，当你带去散步时，只需递给你的孩子一支粉笔。在每个邻居的车道尽头停下来，让他们画一个心形或者一个笑脸或者写下一些充满希望的话。它会让看到它的人的一天变得明亮，你的孩子会因为偷偷散播一点快乐而感觉良好。
+
+* * *
+
+<small>*遇见地球上最聪明的父母！加入我们的*</small> [<small>*育儿脸书群*</small>](https://www.facebook.com/groups/2018785615043946/) <small>*。*</small>

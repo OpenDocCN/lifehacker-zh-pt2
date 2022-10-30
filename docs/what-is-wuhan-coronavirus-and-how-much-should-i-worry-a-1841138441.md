@@ -1,10 +1,10 @@
 # 冠状病毒是什么，你应该对它有多担心？
 
-> 原文：<https://lifehacker.com/what-is-wuhan-coronavirus-and-how-much-should-i-worry-a-1841138441>
+> 原文:[https://life hacker . com/what-is-Wuhan-coronavirus-and-how-do-much-I-should-a-1841138441](https://lifehacker.com/what-is-wuhan-coronavirus-and-how-much-should-i-worry-a-1841138441)
 
 最近在中国发现了一种新的病毒性疾病，美国刚刚在一名最近抵达华盛顿州的旅行者中发现了首例病例。这种病毒是一种与 SARS 和 MERS 有关的冠状病毒，有时是致命的。
 
-
+Watch
 
 ### 谁生病了？
 
@@ -22,4 +22,24 @@
 
 由于这种病毒还很新，人们对它知之甚少，包括它到底有多致命。它的传染性似乎不如麻疹或流感，但仍足以令人担忧的是，旅行者正在接受筛查。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1219703958895308801&amp;autosize=1" autoresize="true" id="twitter-1219703958895308801" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h173130">它会在美国传播吗？</h3><p class="sc-77igqf-0 bOfvBY">有可能，这也是为什么<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.cdc.gov/coronavirus/2019-nCoV/summary.html#risk-assessment&quot;,{&quot;metric25&quot;:1}]]" href="https://www.cdc.gov/coronavirus/2019-nCoV/summary.html#risk-assessment" target="_blank" rel="noopener noreferrer">疾控中心正在密切关注</a> </span>的原因。他们最近宣布将在三个机场<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.cdc.gov/media/releases/2020/p0117-coronavirus-screening.html&quot;,{&quot;metric25&quot;:1}]]" href="https://www.cdc.gov/media/releases/2020/p0117-coronavirus-screening.html" target="_blank" rel="noopener noreferrer">对乘客进行筛查</a> </span>这三个机场是武汉人最常到达的地方:三藩市(SFO)、纽约州(JFK)和洛杉矶(LAX)。</p><p class="sc-77igqf-0 bOfvBY">世界卫生组织将于明天 召开关于该病毒的紧急会议，他们将在会上决定是否应将疫情视为突发公共卫生事件，如果是，将采取什么行动。</p><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1219317208205209600&amp;autosize=1" autoresize="true" id="twitter-1219317208205209600" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h173131">我该怎么办？</h3><p class="sc-77igqf-0 bOfvBY">CDC <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://wwwnc.cdc.gov/travel/notices/alert/novel-coronavirus-china&quot;,{&quot;metric25&quot;:1}]]" href="https://wwwnc.cdc.gov/travel/notices/alert/novel-coronavirus-china" target="_blank" rel="noopener noreferrer">发布了 2 级(3 级中的)旅行警告</a> </span>，这意味着我们应该“加强防范”如果你去武汉旅游:</p><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>避免接触病人、动物市场和任何种类的动物，无论是活的还是死的。</li><li>经常洗手。</li><li>当你回来时，准备好回答关于你的健康和旅行史的问题。</li></ul><p class="sc-77igqf-0 bOfvBY">疾病预防控制中心指出，“老年人和有潜在健康问题的人”似乎处于严重疾病的最大风险中，可能需要重新考虑他们的旅行计划。</p><p class="sc-77igqf-0 bOfvBY">除此之外，我们知道的不多。随着形势的发展，预计疾病预防控制中心将发布更多信息，并可能更新旅行警告。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1219703958895308801&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1219703958895308801&autosize=1) 
+
+### 它会在美国传播吗？
+
+有可能，这也是为什么 [疾控中心正在密切关注](https://www.cdc.gov/coronavirus/2019-nCoV/summary.html#risk-assessment) 的原因。他们最近宣布将在三个机场 [对乘客进行筛查](https://www.cdc.gov/media/releases/2020/p0117-coronavirus-screening.html) 这三个机场是武汉人最常到达的地方:三藩市(SFO)、纽约州(JFK)和洛杉矶(LAX)。
+
+世界卫生组织将于明天 召开关于该病毒的紧急会议，他们将在会上决定是否应将疫情视为突发公共卫生事件，如果是，将采取什么行动。
+
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1219317208205209600&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1219317208205209600&autosize=1) 
+
+### 我该怎么办？
+
+CDC [发布了 2 级(3 级中的)旅行警告](https://wwwnc.cdc.gov/travel/notices/alert/novel-coronavirus-china) ，这意味着我们应该“加强防范”如果你去武汉旅游:
+
+*   避免接触病人、动物市场和任何种类的动物，无论是活的还是死的。
+*   经常洗手。
+*   当你回来时，准备好回答关于你的健康和旅行史的问题。
+
+疾病预防控制中心指出，“老年人和有潜在健康问题的人”似乎处于严重疾病的最大风险中，可能需要重新考虑他们的旅行计划。
+
+除此之外，我们知道的不多。随着形势的发展，预计疾病预防控制中心将发布更多信息，并可能更新旅行警告。

@@ -1,10 +1,10 @@
 # 如何去除皮鞋上的折痕
 
-> 原文：<https://lifehacker.com/how-to-get-rid-of-creases-in-your-leather-shoes-1834116484>
+> 原文:[https://life hacker . com/how-to-get-out-of-crease-in-your-leather-shoes-1834116484](https://lifehacker.com/how-to-get-rid-of-creases-in-your-leather-shoes-1834116484)
 
 当你拥有一双很棒的鞋子时，你会想要炫耀它们。但是你穿得越多，它们看起来就越糟糕——被打坏了，被难看的折痕破坏了。
 
-
+Watch
 
 本周，推特用户 [@shanteldebonsu](https://twitter.com/shanteldebonsu/status/1117740672868659205) 发布了 [她关于去除你鞋子顶部那些烦人褶皱的建议](https://twitter.com/shanteldebonsu/status/1117740672868659205) 。
 
@@ -23,4 +23,6 @@
 
 如果这令人困惑的话，Shantel 还在 YouTube 上发布了一个视频，展示了它是如何做到的:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-vr_q-LBqwDw&amp;start=0" data-chomp-id="vr_q-LBqwDw" data-recommend-id="youtube://vr_q-LBqwDw" id="youtube-vr_q-LBqwDw" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="vr_q-LBqwDw" data-recommend-id="youtube://vr_q-LBqwDw" id="youtube-vr_q-LBqwDw" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">从 Twitter 上的情况来看，这是可行的！许多人回复了山特尔最初的帖子 ，并附上了他们无痕鞋子的照片。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-vr_q-LBqwDw&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-vr_q-LBqwDw&start=0) 
+
+从 Twitter 上的情况来看，这是可行的！许多人回复了山特尔最初的帖子 ，并附上了他们无痕鞋子的照片。

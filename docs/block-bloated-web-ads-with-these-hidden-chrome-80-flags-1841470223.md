@@ -1,10 +1,10 @@
 # 用这些隐藏的 Chrome 80 标志阻止臃肿的网络广告
 
-> 原文：<https://lifehacker.com/block-bloated-web-ads-with-these-hidden-chrome-80-flags-1841470223>
+> 原文:[https://life hacker . com/block-bulged-web-ads-with-these-hidden-chrome-80-flags-1841470223](https://lifehacker.com/block-bloated-web-ads-with-these-hidden-chrome-80-flags-1841470223)
 
 Chrome 80 昨天下架了，通常的建议也适用。如果你的桌面浏览器还没有更新，或者你不确定，可以点击 Windows 浏览器右上角的三点图标或者 Mac 浏览器的“Chrome”菜单，访问它的“关于谷歌 Chrome”页面。
 
-
+Watch
 
 Chrome 80 有很多新功能，包括一个很大的变化，可以防止网站向你发送垃圾通知请求——默认情况下，这些都可以隐藏在 omnibar 的一个按钮下。要启用它，你必须首先在你的 omnibar 中输入 *chrome://flags* ，然后搜索**“更安静的通知权限提示”**启用那个标志，重启浏览器，然后访问访问**设置>站点设置** *(在“隐私与安全”下)* **>通知**。打开**“使用更安静的消息”**以停止被烦人的通知提示骚扰。
 
@@ -20,4 +20,22 @@ Chrome 80 有很多新功能，包括一个很大的变化，可以防止网站�
 
 ### 开始对第三方浏览器 cookies 更加严格
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-GPz7onXjP_4&amp;start=0" data-chomp-id="GPz7onXjP_4" data-recommend-id="youtube://GPz7onXjP_4" id="youtube-GPz7onXjP_4" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="GPz7onXjP_4" data-recommend-id="youtube://GPz7onXjP_4" id="youtube-GPz7onXjP_4" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">谷歌还对 cookies 实施了一个新的分类系统，如果跨站点 cookies 没有将它们的<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://web.dev/samesite-cookies-explained/&quot;,{&quot;metric25&quot;:1}]]" href="https://web.dev/samesite-cookies-explained/" target="_blank" rel="noopener noreferrer">相同站点属性</a> </span>设置为“无”并使它们可以通过 HTTPS 访问，就会被屏蔽。所有未标记的 cookie 都被视为“lax”，因为它们只有在您浏览的域与 cookie 的域匹配时才有效。这些是<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://9to5google.com/2019/04/26/google-chrome-cookies-secure-samesite/&quot;,{&quot;metric25&quot;:1}]]" href="https://9to5google.com/2019/04/26/google-chrome-cookies-secure-samesite/" target="_blank" rel="noopener noreferrer">的技术部分</a> </span>，至少。至于为什么这很重要，谷歌的改变可以帮助抵御有问题的跨站点攻击，正如<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.cookiepro.com/blog/google-samesite-cookies/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.cookiepro.com/blog/google-samesite-cookies/" target="_blank" rel="noopener noreferrer"> CookiePro </a> </span>所详述的:</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY"><em>“让我们假设你通过他们的在线门户登录了你的银行账户。你有没有注意到有些网站会让你一直保持登录状态？那是因为一个会话 cookie——在你认证之后，网站已经在你的浏览器上设置了一个 cookie，允许你保持登录。当你在浏览一个不同的网站时，你点击了一条推文中的链接，看到了一个有趣的视频。不幸的是，该链接可能是跨站点请求伪造攻击(XSRF ),它会欺骗您的浏览器在您的银行登录会话中执行不需要的操作。</em></p><p class="sc-77igqf-0 bOfvBY">在 SameSite 之前，点击 XSRF 链接将执行交易，并附带到从您的银行生成的会话 cookie 上(这使您保持登录)。</p><p class="sc-77igqf-0 bOfvBY">在 SameSite 之后，如果链接来自外部网站，浏览器将不允许将 cookie 添加到已经认证的网站。"</p></blockquote><p class="sc-77igqf-0 bOfvBY">谷歌<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.chromium.org/updates/same-site&quot;,{&quot;metric25&quot;:1}]]" href="https://www.chromium.org/updates/same-site" target="_blank" rel="noopener noreferrer">将在未来几周推出</a> </span>对第三方 cookie 的新处理方式，但你可以在你的 Chrome 80 浏览器中抢先一步，拉起<em> chrome://flags </em>并启用<strong>“默认相同网站 cookie”、</strong>以及<strong>没有相同网站的 cookie 必须是安全的。”</strong></p><p class="sc-77igqf-0 bOfvBY">虽然这种变化<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://groups.google.com/a/chromium.org/forum/#!msg/blink-dev/AknSSyQTGYs/U4RVwbF2DwAJ&quot;,{&quot;metric25&quot;:1}]]" href="https://groups.google.com/a/chromium.org/forum/#!msg/blink-dev/AknSSyQTGYs/U4RVwbF2DwAJ" target="_blank" rel="noopener noreferrer">可能会破坏</a> </span>你经常访问的几个网站，但不管怎样，这是一种即将到来的变化——你只是比其他人更早看到而已。</p><hr class="gcp5ez-1 egkUKA"/><h3 class="sc-1bwb26k-1 kpbNNd" id="h7121">整理溢出的标签</h3><p class="sc-77igqf-0 bOfvBY">这里有一个额外的功能，我害怕开始使用，因为我仍然有太多的打开标签。调出<em> chrome://flags </em>并搜索<strong>标签组</strong>打开它，重新启动你的浏览器，现在你可以右击你的任何标签，开始将它们组织成组。选择“添加到新组”，然后右键单击为您自动创建的彩色选项卡(组)，为其命名或更改颜色。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-GPz7onXjP_4&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-GPz7onXjP_4&start=0) 
+
+谷歌还对 cookies 实施了一个新的分类系统，如果跨站点 cookies 没有将它们的 [相同站点属性](https://web.dev/samesite-cookies-explained/) 设置为“无”并使它们可以通过 HTTPS 访问，就会被屏蔽。所有未标记的 cookie 都被视为“lax”，因为它们只有在您浏览的域与 cookie 的域匹配时才有效。这些是 [的技术部分](https://9to5google.com/2019/04/26/google-chrome-cookies-secure-samesite/) ，至少。至于为什么这很重要，谷歌的改变可以帮助抵御有问题的跨站点攻击，正如 [CookiePro](https://www.cookiepro.com/blog/google-samesite-cookies/) 所详述的:
+
+> *“让我们假设你通过他们的在线门户登录了你的银行账户。你有没有注意到有些网站会让你一直保持登录状态？那是因为一个会话 cookie——在你认证之后，网站已经在你的浏览器上设置了一个 cookie，允许你保持登录。当你在浏览一个不同的网站时，你点击了一条推文中的链接，看到了一个有趣的视频。不幸的是，该链接可能是跨站点请求伪造攻击(XSRF ),它会欺骗您的浏览器在您的银行登录会话中执行不需要的操作。*
+> 
+> 在 SameSite 之前，点击 XSRF 链接将执行交易，并附带到从您的银行生成的会话 cookie 上(这使您保持登录)。
+> 
+> 在 SameSite 之后，如果链接来自外部网站，浏览器将不允许将 cookie 添加到已经认证的网站。"
+
+谷歌 [将在未来几周推出](https://www.chromium.org/updates/same-site) 对第三方 cookie 的新处理方式，但你可以在你的 Chrome 80 浏览器中抢先一步，拉起 *chrome://flags* 并启用**“默认相同网站 cookie”、**以及**没有相同网站的 cookie 必须是安全的。”**
+
+虽然这种变化 [可能会破坏](https://groups.google.com/a/chromium.org/forum/#!msg/blink-dev/AknSSyQTGYs/U4RVwbF2DwAJ) 你经常访问的几个网站，但不管怎样，这是一种即将到来的变化——你只是比其他人更早看到而已。
+
+* * *
+
+### 整理溢出的标签
+
+这里有一个额外的功能，我害怕开始使用，因为我仍然有太多的打开标签。调出 *chrome://flags* 并搜索**标签组**打开它，重新启动你的浏览器，现在你可以右击你的任何标签，开始将它们组织成组。选择“添加到新组”，然后右键单击为您自动创建的彩色选项卡(组)，为其命名或更改颜色。

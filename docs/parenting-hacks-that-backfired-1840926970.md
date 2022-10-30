@@ -1,11 +1,27 @@
 # 适得其反的育儿技巧
 
-> 原文：<https://lifehacker.com/parenting-hacks-that-backfired-1840926970>
+> 原文:[https://life hacker . com/parenting-hacks-that-back fired-1840926970](https://lifehacker.com/parenting-hacks-that-backfired-1840926970)
 
 作为一个每天都在积极寻找和撰写育儿技巧的人，我总是在寻找捷径和窍门，让你(和我自己)的生活稍微轻松一点。但并不是所有的黑客都是平等的，对一位家长来说非常有效的黑客对另一位家长来说可能完全是浪费时间。正如他们所说，你的里程可能会有所不同。
 
-
+Watch
 
 有时黑客根本不起作用；有时麻烦比它的价值还多；和*有时候*他们完全适得其反——正如 [波拉库卡](https://www.instagram.com/p/B7F5a-nHjtx/) 在 Instagram 上说明的:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=instagram-B7F5a-nHjtx&amp;autosize=1" autoresize="true" id="instagram-B7F5a-nHjtx" data-recommended="false" width="598" height="676" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">在写这篇文章的时候，我试着决定一个好的“井<em>，那个井</em>没有成功，现在成功了吗？”我自己生活中的例子(太多了)，我给我丈夫发了条短信让他加入进来。“什么是我们尝试过的真正适得其反的育儿技巧？”我问他。他的回答几乎立刻就来了:“布尿布。”</p><p class="sc-77igqf-0 bOfvBY">哦，对了，那一次事与愿违，太壮观了，我把它屏蔽掉了。你看，我们将会成为非常好的有环保意识的父母。我们可以通过连续几年不买一次性尿布来节省很多钱。我在怀孕期间做了所有的研究，并买了我确信完全合适的布尿布，有各种可爱的鲜艳颜色。价值数百美元(一项投资！)的布尿布。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">在我承认自己的真实感受之前，我们用了三天——也许四天<em>——</em>。“我讨厌这些，”我告诉丈夫。“我真的真的很讨厌他们。”它们不太合适。它们很脏。他们还向每天堆积如山的衣物中添加了更多的衣物。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">“好，我也是，”他说。“我们正在出售它们。”</p><p class="sc-77igqf-0 bOfvBY">我们没有省钱；我们赔钱了。我们没有拯救环境；我们又破坏了一点。与此同时，我有朋友很开心地给多个孩子穿衣服换尿布，没有任何问题。我的里程数变化很大。</p><p class="sc-77igqf-0 bOfvBY">我们都曾尝试过一些当时听起来不错的东西，但后来却不了了之。告诉我们:有哪些育儿技巧让你事与愿违？</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><small> <em>遇见地球上最聪明的父母！加入我们的</em> </small> <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.facebook.com/groups/2018785615043946/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.facebook.com/groups/2018785615043946/" target="_blank" rel="noopener noreferrer"> <small> <em>育儿脸书群</em> </small> </a> </span> <small> <em>。</em>T15】</small></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=instagram-B7F5a-nHjtx&autosize=1](https://lifehacker.com/embed/inset/iframe?id=instagram-B7F5a-nHjtx&autosize=1) 
+
+在写这篇文章的时候，我试着决定一个好的“井*，那个井*没有成功，现在成功了吗？”我自己生活中的例子(太多了)，我给我丈夫发了条短信让他加入进来。“什么是我们尝试过的真正适得其反的育儿技巧？”我问他。他的回答几乎立刻就来了:“布尿布。”
+
+哦，对了，那一次事与愿违，太壮观了，我把它屏蔽掉了。你看，我们将会成为非常好的有环保意识的父母。我们可以通过连续几年不买一次性尿布来节省很多钱。我在怀孕期间做了所有的研究，并买了我确信完全合适的布尿布，有各种可爱的鲜艳颜色。价值数百美元(一项投资！)的布尿布。
+
+在我承认自己的真实感受之前，我们用了三天——也许四天*——*。“我讨厌这些，”我告诉丈夫。“我真的真的很讨厌他们。”它们不太合适。它们很脏。他们还向每天堆积如山的衣物中添加了更多的衣物。
+
+“好，我也是，”他说。“我们正在出售它们。”
+
+我们没有省钱；我们赔钱了。我们没有拯救环境；我们又破坏了一点。与此同时，我有朋友很开心地给多个孩子穿衣服换尿布，没有任何问题。我的里程数变化很大。
+
+我们都曾尝试过一些当时听起来不错的东西，但后来却不了了之。告诉我们:有哪些育儿技巧让你事与愿违？
+
+* * *
+
+<small>*遇见地球上最聪明的父母！加入我们的*</small> [<small>*育儿脸书群*</small>](https://www.facebook.com/groups/2018785615043946/) <small>*。*T15】</small>

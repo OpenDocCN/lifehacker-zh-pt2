@@ -1,7 +1,22 @@
 # 用肉汤做更好的餐具室面食
 
-> 原文：<https://lifehacker.com/make-better-pantry-pasta-with-bouillon-1842615372>
+> 原文:[https://life hacker . com/make-better-pantry-pasta-with-bouillon-1842615372](https://lifehacker.com/make-better-pantry-pasta-with-bouillon-1842615372)
 
 肉汤块和糊状物是用单一成分添加一大堆风味的简单方法，但它们通常被保留用于汤、炖菜和肉汁。没必要这样限制他们。他们有如此多的东西可以给予。
 
-Watch<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=instagram-B95Px5OB6Pv&amp;autosize=1" autoresize="true" id="instagram-B95Px5OB6Pv" data-recommended="false" width="598" height="676" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">常伟在他的红酱中使用了<!-- -->鸡汤作为一种不那么秘密的成分，而<!-- --> the Better Than Bouillon 网站推荐将他们的产品<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.betterthanbouillon.com/recipes/cacio-e-pepe-pasta/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.betterthanbouillon.com/recipes/cacio-e-pepe-pasta/" target="_blank" rel="noopener noreferrer">直接添加到面食水中</a> </span>。肉汤在这些补充角色中很棒，但是如果你有一种你真正喜欢的味道——我现在非常喜欢 BTB 蘑菇——没有理由它不能成为你厨房面食中的明星。你只需要肉汤和黄油。</p><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><p class="sc-77igqf-0 bOfvBY">你可以用任何你想要的肉汤，但是我更喜欢比肉汤更好的产品。没有其他人有<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.betterthanbouillon.com/our-products/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.betterthanbouillon.com/our-products/" target="_blank" rel="noopener noreferrer">他们的<!-- -->范围</a> </span>，一茶匙的味道和一个普通的肉汤方块一样。一大勺——加上六大勺黄油——足以给一磅意大利面调味。这是你所知道和喜爱的简单的黄油面条，但是味道更好。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">一些 BTB 口味比其他口味更好。我喜欢这里的蘑菇、龙虾和烤大蒜，我打赌蛤蜊也不错；<!-- -->火腿或辣椒可能有点难吃。(<!-- -->不喜欢，<em>坏</em>——我会吃火腿面条，尤其是上面有一个煎蛋。好吧，没关系，我已经完全说服自己去吃火腿了。)<!-- --> <!-- -->如果你想使用不同形式的肉汤，先在黄油中加入两茶匙，搅拌，品尝，根据需要加入更多。一旦你调好了你的口味，加入你通常用来完成你的配餐面食的任何东西。我在我的蘑菇面里加了烤鸡肉丝、马槟榔和面包屑，味道非常完美。<br/> <br/>要制作自己的配餐面食，你需要:</p><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>1 磅干意大利面</li><li>6 汤匙黄油</li><li>比肉汤好 1 . 5 汤匙(任何你喜欢的口味)</li><li>冰箱或食品柜里有你需要用完的东西吗</li></ul><p class="sc-77igqf-0 bOfvBY">根据包装说明烹饪意大利面，<!-- -->但<!-- -->在沥干之前保留 1 杯意大利面水。沥干剩余的水<!-- -->，同时<!-- --><!-- -->将火调至中火，将黄油和 BTB 加入热意大利面锅中，搅拌直到黄油融化，糊状物完全融入黄油中。将面条放回锅里<!-- -->，用钳子夹起面条，根据需要加入面条水，搅拌成丝滑的酱汁。混合任何你想要的其他插件，并享受。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>
+Watch [https://lifehacker.com/embed/inset/iframe?id=instagram-B95Px5OB6Pv&autosize=1](https://lifehacker.com/embed/inset/iframe?id=instagram-B95Px5OB6Pv&autosize=1) 
+
+常伟在他的红酱中使用了鸡汤作为一种不那么秘密的成分，而 the Better Than Bouillon 网站推荐将他们的产品 [直接添加到面食水中](https://www.betterthanbouillon.com/recipes/cacio-e-pepe-pasta/) 。肉汤在这些补充角色中很棒，但是如果你有一种你真正喜欢的味道——我现在非常喜欢 BTB 蘑菇——没有理由它不能成为你厨房面食中的明星。你只需要肉汤和黄油。
+
+你可以用任何你想要的肉汤，但是我更喜欢比肉汤更好的产品。没有其他人有 [他们的范围](https://www.betterthanbouillon.com/our-products/) ，一茶匙的味道和一个普通的肉汤方块一样。一大勺——加上六大勺黄油——足以给一磅意大利面调味。这是你所知道和喜爱的简单的黄油面条，但是味道更好。
+
+一些 BTB 口味比其他口味更好。我喜欢这里的蘑菇、龙虾和烤大蒜，我打赌蛤蜊也不错；火腿或辣椒可能有点难吃。(不喜欢，*坏*——我会吃火腿面条，尤其是上面有一个煎蛋。好吧，没关系，我已经完全说服自己去吃火腿了。) 如果你想使用不同形式的肉汤，先在黄油中加入两茶匙，搅拌，品尝，根据需要加入更多。一旦你调好了你的口味，加入你通常用来完成你的配餐面食的任何东西。我在我的蘑菇面里加了烤鸡肉丝、马槟榔和面包屑，味道非常完美。
+
+要制作自己的配餐面食，你需要:
+
+*   1 磅干意大利面
+*   6 汤匙黄油
+*   比肉汤好 1 . 5 汤匙(任何你喜欢的口味)
+*   冰箱或食品柜里有你需要用完的东西吗
+
+根据包装说明烹饪意大利面，但在沥干之前保留 1 杯意大利面水。沥干剩余的水，同时将火调至中火，将黄油和 BTB 加入热意大利面锅中，搅拌直到黄油融化，糊状物完全融入黄油中。将面条放回锅里，用钳子夹起面条，根据需要加入面条水，搅拌成丝滑的酱汁。混合任何你想要的其他插件，并享受。

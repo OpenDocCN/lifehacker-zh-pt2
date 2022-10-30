@@ -1,10 +1,10 @@
 # 为什么在手机上播放音乐听不到人声？
 
-> 原文：<https://lifehacker.com/why-cant-i-hear-the-vocals-when-playing-music-on-my-pho-1835303640>
+> 原文:[https://life hacker . com/why-cant-I-heart-the-vocals-when-playing-music-on-my-pho-1835303640](https://lifehacker.com/why-cant-i-hear-the-vocals-when-playing-music-on-my-pho-1835303640)
 
 在本周的 [Tech 911](https://lifehacker.com/c/tech-911) 栏目中我们有一个好玩的。乍一看，这是一个如此奇怪的问题，以至于我甚至不会用一个崇高的介绍来介绍它。我会让《生活黑客》的读者**娜塔莉**来解释——是的，她把自己邮件的主题称为“YouTube 音频巫术”这就是这个故事的古怪之处。
 
-
+Watch
 
 她写道:
 
@@ -18,4 +18,28 @@
 
 首先，这是我们正在讨论的视频，所以你们都可以听一听，自己看看。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-pLL-Nd74l-8&amp;start=0" data-chomp-id="pLL-Nd74l-8" data-recommend-id="youtube://pLL-Nd74l-8" id="youtube-pLL-Nd74l-8" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="pLL-Nd74l-8" data-recommend-id="youtube://pLL-Nd74l-8" id="youtube-pLL-Nd74l-8" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">我最初的想法是，这个视频听起来很奇怪——好像人声几乎完全被挤出了混音，取而代之的是那些经典的 20 世纪 60 年代的吉他节奏。我认为视频的创作者应该受到指责，他们在上传到 YouTube 之前做了一些音频修改，以逃避后者的萎靡不振的机制，这当然是可能的。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">至于为什么当你通过设备的扬声器收听时，只能听到歌曲的背景音乐，而当你戴上耳机时，却能听到更完整的歌曲，这可能是因为你的设备只有一个单声道扬声器。不过，你应该还能听到人声——至少，我在我的电脑上用一个扬声器测试时可以听到(不可否认，这与你从智能手机上听到的声音有很大不同)。</p><p class="sc-77igqf-0 bOfvBY">更疯狂的是。在你的电子邮件中发给我的视频——我在上面链接的视频——我听到了(柔和的)人声，无论我是平移到左声道还是右声道。然而，考虑一下 YouTube 上的另一个“拜托邮差先生”视频，乍一看，它听起来比你的视频好得多:</p><div class="ooo3c9-0 cmUFVa align--bleed has-video media-large video-embed embed-frame"><span class="flex-video widescreen"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-Jzy4R8EbWJ4&amp;start=0" data-chomp-id="Jzy4R8EbWJ4" data-recommend-id="youtube://Jzy4R8EbWJ4" id="youtube-Jzy4R8EbWJ4" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/><span data-chomp-id="Jzy4R8EbWJ4" data-recommend-id="youtube://Jzy4R8EbWJ4" id="youtube-Jzy4R8EbWJ4" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">当我只听立体声混音的左声道时，除了乐队什么也听不到——几乎听不到任何人声。当我听正确的音轨时，我只能听到人声，几乎没有任何乐器。</p><p class="sc-77igqf-0 bOfvBY">由于你在邮件中给我链接了一个只有大约 19 万点击率的视频，但上面的视频是你搜索这首歌时出现的热门视频之一(点击率为 240 万)，我怀疑你实际上是在说<em>这首</em>的视频。不管出于什么原因，当你从扬声器播放这首歌时，你的智能手机只给你左声道。</p><p class="sc-77igqf-0 bOfvBY">至于你的设备为什么会这样，我也不完全确定。你的智能手机应该，呃，足够智能，能够将一个立体声源合并成一个单声道输出，如果这就是它所要处理的。(如果你的智能手机有立体声设置，也有可能一个扬声器工作不正常，所以我会听<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.youtube.com/watch?v=6TWJaFD6R2s&quot;,{&quot;metric25&quot;:1}]]" href="https://www.youtube.com/watch?v=6TWJaFD6R2s" target="_blank" rel="noopener noreferrer">和其他一些视频</a> </span>来测试是否是这种情况)。<br/></p><p class="sc-77igqf-0 bOfvBY">您可能想要检查设备的辅助功能设置，并查看“单声道音频”功能是否对您有所帮助(或者您的设备的音频平衡是否需要调整)。当然，最简单的解决办法是选择一个不同的视频来观看——或者只是在 Spotify、Apple Music、Google Play 或其他网站上查找这首歌。</p><p class="sc-77igqf-0 bOfvBY">然而，如果这是歌曲如何被混合的<span></span>，这最后一步不会对你有很大帮助。如果你的智能手机只播放你听的立体声歌曲的左声道，你就必须创建自己的立体声到单声道混音(这可能比你想处理的还要多)。</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><em> <small>你是否有一个让你夜不能寐的技术问题？厌倦了对您的 Windows 或 Mac 进行故障诊断？寻找关于应用程序、浏览器扩展或实用程序的建议来完成特定任务？让我们知道！在下面的评论或者邮件中告诉我们</small></em><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;mailto:david.murphy@lifehacker.com?subject=Tech%20911&quot;,{&quot;metric25&quot;:1}]]" href="mailto:david.murphy@lifehacker.com?subject=Tech%20911"><em><small/></em></a></span><em><small>。</small>T15】</em></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-pLL-Nd74l-8&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-pLL-Nd74l-8&start=0) 
+
+我最初的想法是，这个视频听起来很奇怪——好像人声几乎完全被挤出了混音，取而代之的是那些经典的 20 世纪 60 年代的吉他节奏。我认为视频的创作者应该受到指责，他们在上传到 YouTube 之前做了一些音频修改，以逃避后者的萎靡不振的机制，这当然是可能的。
+
+至于为什么当你通过设备的扬声器收听时，只能听到歌曲的背景音乐，而当你戴上耳机时，却能听到更完整的歌曲，这可能是因为你的设备只有一个单声道扬声器。不过，你应该还能听到人声——至少，我在我的电脑上用一个扬声器测试时可以听到(不可否认，这与你从智能手机上听到的声音有很大不同)。
+
+更疯狂的是。在你的电子邮件中发给我的视频——我在上面链接的视频——我听到了(柔和的)人声，无论我是平移到左声道还是右声道。然而，考虑一下 YouTube 上的另一个“拜托邮差先生”视频，乍一看，它听起来比你的视频好得多:
+
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-Jzy4R8EbWJ4&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-Jzy4R8EbWJ4&start=0) 
+
+当我只听立体声混音的左声道时，除了乐队什么也听不到——几乎听不到任何人声。当我听正确的音轨时，我只能听到人声，几乎没有任何乐器。
+
+由于你在邮件中给我链接了一个只有大约 19 万点击率的视频，但上面的视频是你搜索这首歌时出现的热门视频之一(点击率为 240 万)，我怀疑你实际上是在说*这首*的视频。不管出于什么原因，当你从扬声器播放这首歌时，你的智能手机只给你左声道。
+
+至于你的设备为什么会这样，我也不完全确定。你的智能手机应该，呃，足够智能，能够将一个立体声源合并成一个单声道输出，如果这就是它所要处理的。(如果你的智能手机有立体声设置，也有可能一个扬声器工作不正常，所以我会听 [和其他一些视频](https://www.youtube.com/watch?v=6TWJaFD6R2s) 来测试是否是这种情况)。
+
+您可能想要检查设备的辅助功能设置，并查看“单声道音频”功能是否对您有所帮助(或者您的设备的音频平衡是否需要调整)。当然，最简单的解决办法是选择一个不同的视频来观看——或者只是在 Spotify、Apple Music、Google Play 或其他网站上查找这首歌。
+
+然而，如果这是歌曲如何被混合的，这最后一步不会对你有很大帮助。如果你的智能手机只播放你听的立体声歌曲的左声道，你就必须创建自己的立体声到单声道混音(这可能比你想处理的还要多)。
+
+* * *
+
+*<small>你是否有一个让你夜不能寐的技术问题？厌倦了对您的 Windows 或 Mac 进行故障诊断？寻找关于应用程序、浏览器扩展或实用程序的建议来完成特定任务？让我们知道！在下面的评论或者邮件中告诉我们</small>*[*<small></small>*](mailto:david.murphy@lifehacker.com?subject=Tech%20911)<small>*<small>。</small>T15】*</small>
+
+<small></small>

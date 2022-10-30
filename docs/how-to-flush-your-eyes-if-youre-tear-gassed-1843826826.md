@@ -1,10 +1,10 @@
 # 如果被催泪瓦斯袭击，如何冲洗眼睛
 
-> 原文：<https://lifehacker.com/how-to-flush-your-eyes-if-youre-tear-gassed-1843826826>
+> 原文:[https://life hacker . com/how-to-flush your-eyes-if-you-tear-gases-1843826826](https://lifehacker.com/how-to-flush-your-eyes-if-youre-tear-gassed-1843826826)
 
 在本周针对警察暴行的抗议中，许多城市的警察选择了暴力升级。他们常用的一种工具是俗称催泪瓦斯的化学武器。如果你在抗议中遇到催泪瓦斯，以下是你应该做的。(第一步:用水冲洗眼睛。)
 
-
+Watch
 
 术语“催泪瓦斯”可以指任何防暴药剂 ，但在这篇文章中，我们谈论的是 CS 气体，这种东西从警察扔在地上的罐子中喷出。相反，如果你想知道如果你被胡椒喷雾了该怎么办，我们这里有一个 [指南](https://lifehacker.com/what-to-do-if-youve-been-pepper-sprayed-1843854396) 。
 
@@ -34,4 +34,16 @@
 
 如果你认为你可能会遇到催泪瓦斯，把你的水放在一个喷射瓶中。Keith Ng，一位在香港抗议中被催泪瓦斯袭击的记者， [推荐](https://twitter.com/keith_ng/status/1170885370709340161) 携带盐水(或者自来水，如果你没有盐水的话),在一个带有小尖头的喷射瓶中:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1170984079824547841&amp;autosize=1" autoresize="true" id="twitter-1170984079824547841" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">护目镜、面罩和全覆盖衣物将有助于首先防止催泪瓦斯接触你的身体，但化学物质的颗粒可能会进入你的保护层，并潜在地进入你的保护层之下，所以要意识到这一点。</p><p class="sc-77igqf-0 bOfvBY">暴露于催泪瓦斯后，请记住颗粒很可能仍在你的衣服、物品和头发上。小心地脱下并清洗你的衣服，然后冲个澡把你身上剩余的化学颗粒洗掉。</p><p class="sc-77igqf-0 bOfvBY"><em>更新于 2020 年 6 月 2 日上午 9:47，说明作为去污过程的一部分，如果您戴着隐形眼镜，您应该摘下隐形眼镜。</em></p><p class="sc-77igqf-0 bOfvBY"><em>更新于 2020 年 6 月 4 日下午 12:24。注意“催泪瓦斯”也可以指胡椒喷雾，并链接到我们关于如果你被胡椒喷雾该怎么办的帖子。</em></p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><em>寻找倡导黑人生活的方法？看看这个</em> <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://slack-redir.net/link?url=https%3A%2F%2Flifehacker.com%2Fwhere-to-donate-to-help-people-fighting-for-racial-just-1843852418&quot;,{&quot;metric25&quot;:1}]]" href="https://slack-redir.net/link?url=https%3A%2F%2Flifehacker.com%2Fwhere-to-donate-to-help-people-fighting-for-racial-just-1843852418" target="_blank" rel="noopener noreferrer"> <em>资源列表</em> </a> </span> <em>。</em></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1170984079824547841&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1170984079824547841&autosize=1) 
+
+护目镜、面罩和全覆盖衣物将有助于首先防止催泪瓦斯接触你的身体，但化学物质的颗粒可能会进入你的保护层，并潜在地进入你的保护层之下，所以要意识到这一点。
+
+暴露于催泪瓦斯后，请记住颗粒很可能仍在你的衣服、物品和头发上。小心地脱下并清洗你的衣服，然后冲个澡把你身上剩余的化学颗粒洗掉。
+
+*更新于 2020 年 6 月 2 日上午 9:47，说明作为去污过程的一部分，如果您戴着隐形眼镜，您应该摘下隐形眼镜。*
+
+*更新于 2020 年 6 月 4 日下午 12:24。注意“催泪瓦斯”也可以指胡椒喷雾，并链接到我们关于如果你被胡椒喷雾该怎么办的帖子。*
+
+* * *
+
+*寻找倡导黑人生活的方法？看看这个* [*资源列表*](https://slack-redir.net/link?url=https%3A%2F%2Flifehacker.com%2Fwhere-to-donate-to-help-people-fighting-for-racial-just-1843852418) *。*

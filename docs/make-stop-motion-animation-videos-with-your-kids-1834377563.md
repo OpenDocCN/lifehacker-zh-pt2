@@ -1,10 +1,10 @@
 # 和你的孩子一起制作定格动画视频
 
-> 原文：<https://lifehacker.com/make-stop-motion-animation-videos-with-your-kids-1834377563>
+> 原文:[https://life hacker . com/make-stop-motion-animation-videos-with-your-kids-1834377563](https://lifehacker.com/make-stop-motion-animation-videos-with-your-kids-1834377563)
 
 我儿子一直喜欢场景设置和讲故事。他是那种无论我们旅行的距离有多短，都会带上几个“家伙”的孩子，所以他可以表演一些场景，配有对话和音效。
 
-
+Watch
 
 像大多数八岁的孩子一样，他也喜欢看节目和电影。所以我最近想到，是时候通过制作自己的电影来帮助他将他对讲故事的热爱与对屏幕时间的热爱结合起来了。
 
@@ -30,4 +30,26 @@
 
 你越有耐心在两次拍摄之间做很小的改变，效果越好。我和我的儿子对我们创造的一个场景感到特别自豪，在这个场景中，一个乐高男孩滚下一段楼梯，站起来，走上台阶，打开顶部的门走进去。但要做到恰到好处还需要一点时间:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-gR5ET3Pi2OM&amp;start=0" data-chomp-id="gR5ET3Pi2OM" data-recommend-id="youtube://gR5ET3Pi2OM" id="youtube-gR5ET3Pi2OM" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="gR5ET3Pi2OM" data-recommend-id="youtube://gR5ET3Pi2OM" id="youtube-gR5ET3Pi2OM" data-recommended="false" class="js_recommend"/></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h292518">添加一些铃铛和哨子</h3><p class="sc-77igqf-0 bOfvBY">对照片时间轴满意后，您可以添加标题页、演职员表，甚至语音气泡。</p><p class="sc-77igqf-0 bOfvBY">基本的 Stop Motion Studio 应用对于<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://itunes.apple.com/us/app/stop-motion-studio/id441651297?mt=8&quot;,{&quot;metric25&quot;:1}]]" href="https://itunes.apple.com/us/app/stop-motion-studio/id441651297?mt=8" target="_blank" rel="noopener noreferrer"> iOS </a> </span>和<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://play.google.com/store/apps/details?id=com.cateater.stopmotionstudio&amp;hl=en_US&quot;,{&quot;metric25&quot;:1}]]" href="https://play.google.com/store/apps/details?id=com.cateater.stopmotionstudio&amp;hl=en_US" target="_blank" rel="noopener noreferrer"> Android </a> </span>是免费的，但是对于附加功能有应用内购买。我花了 99 美分来添加一些额外的东西，如果我的儿子想继续制作这些视频，我可能会为整个“功能包”支付 5 美元<br/></p><h3 class="sc-1bwb26k-1 kpbNNd" id="h292519">广泛地分享它</h3><p class="sc-77igqf-0 bOfvBY">一旦你的杰作完成，你可以保存它，导出到 YouTube、脸书或 Instagram，或者通过文本或电子邮件分享。</p><p class="sc-77igqf-0 bOfvBY">我将把这个灵感留给你们，这是我们第一次尝试定格动画。我们把它叫做<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.youtube.com/watch?v=r4sUa5tiHd0&quot;,{&quot;metric25&quot;:1}]]" href="https://www.youtube.com/watch?v=r4sUa5tiHd0" target="_blank" rel="noopener noreferrer">乘坐</a>直升机</span>，《一个傻家伙》工作室制作:</p><div class="ooo3c9-0 cmUFVa align--center has-video media-large video-embed embed-frame"><span class="flex-video widescreen"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-r4sUa5tiHd0&amp;start=0" data-chomp-id="r4sUa5tiHd0" data-recommend-id="youtube://r4sUa5tiHd0" id="youtube-r4sUa5tiHd0" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/><span data-chomp-id="r4sUa5tiHd0" data-recommend-id="youtube://r4sUa5tiHd0" id="youtube-r4sUa5tiHd0" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">当然，还有改进的空间，但考虑到这是我们的第一部视频，我们对自己相当满意。我们做得越多，我们对角度和流程的预期就越好，更不用说引人入胜的故事了。</p><p class="sc-77igqf-0 bOfvBY">如果没有别的，这是我们一起做的不同的事情，也很有趣。</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><small> <em>更多来自 Lifehacker，一定要在 Instagram 上关注我们</em></small><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.instagram.com/lifehackerdotcom/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.instagram.com/lifehackerdotcom/" target="_blank" rel="noopener noreferrer"><small><em>@ lifehackerdotcom</em></small></a></span><small><em>。</em> </small> <br/></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-gR5ET3Pi2OM&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-gR5ET3Pi2OM&start=0) 
+
+### 添加一些铃铛和哨子
+
+对照片时间轴满意后，您可以添加标题页、演职员表，甚至语音气泡。
+
+基本的 Stop Motion Studio 应用对于 [iOS](https://itunes.apple.com/us/app/stop-motion-studio/id441651297?mt=8) 和 [Android](https://play.google.com/store/apps/details?id=com.cateater.stopmotionstudio&hl=en_US) 是免费的，但是对于附加功能有应用内购买。我花了 99 美分来添加一些额外的东西，如果我的儿子想继续制作这些视频，我可能会为整个“功能包”支付 5 美元
+
+### 广泛地分享它
+
+一旦你的杰作完成，你可以保存它，导出到 YouTube、脸书或 Instagram，或者通过文本或电子邮件分享。
+
+我将把这个灵感留给你们，这是我们第一次尝试定格动画。我们把它叫做 [乘坐](https://www.youtube.com/watch?v=r4sUa5tiHd0)直升机，《一个傻家伙》工作室制作:
+
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-r4sUa5tiHd0&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-r4sUa5tiHd0&start=0) 
+
+当然，还有改进的空间，但考虑到这是我们的第一部视频，我们对自己相当满意。我们做得越多，我们对角度和流程的预期就越好，更不用说引人入胜的故事了。
+
+如果没有别的，这是我们一起做的不同的事情，也很有趣。
+
+* * *
+
+<small>*更多来自 Lifehacker，一定要在 Instagram 上关注我们*</small>[<small>*@ lifehackerdotcom*</small>](https://www.instagram.com/lifehackerdotcom/)<small>*。*</small>

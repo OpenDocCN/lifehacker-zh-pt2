@@ -1,10 +1,10 @@
 # 这个周末在网飞看什么
 
-> 原文：<https://lifehacker.com/what-to-watch-on-netflix-this-weekend-1841040366>
+> 原文:[https://life hacker . com/本周末网飞看点-1841040366](https://lifehacker.com/what-to-watch-on-netflix-this-weekend-1841040366)
 
 网飞一定认为我们都在电影院看奥斯卡的角逐者；否则他们为什么会留给我们这么少的像样的流水账来打发我们的长周末呢？别担心，我们会保护你的。以下是 Lifehacker 为你每天的小休时间选择在网飞播放的内容。
 
-
+Watch
 
 ### 1 月 17 日星期五:观看《大师》
 
@@ -22,4 +22,55 @@
 
 当然，在庆祝马丁·路德·金的国定假日，网飞不会播放任何关于他的电影。使用你父母的 HBO 登录网站，在 HBO Go 上观看关于《荒野之王》的纪录片。如果你真的坚持要看《网飞》的话，那就只能看最近上映的《格雷斯和弗兰基》第六季了。然后回来告诉我为什么有些人喜欢这个节目。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-OUi8Yg9Z85Q&amp;start=0" data-chomp-id="OUi8Yg9Z85Q" data-recommend-id="youtube://OUi8Yg9Z85Q" id="youtube-OUi8Yg9Z85Q" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="OUi8Yg9Z85Q" data-recommend-id="youtube://OUi8Yg9Z85Q" id="youtube-OUi8Yg9Z85Q" data-recommended="false" class="js_recommend"/></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h290876"><strong>本周到达</strong></h3><h4 class="sc-1bwb26k-1 kpbNNd" id="h290877"><strong>1 月 13 日星期一</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>杜德的治愈能力——网飞家族</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h290878"><strong>1 月 14 日星期二</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80221553&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80221553" target="_blank" rel="noopener noreferrer"> <em>奇波与神奇动物时代</em> </a> </span> <em> —网飞家族</em></li><li><em>主人</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h290879"><strong>1 月 15 日星期三</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>大胖骗子</em></li><li><em>谁杀了铁——Netflix 电影</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80017537&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80017537" target="_blank" rel="noopener noreferrer"> <em>格雷斯与弗兰基:第六季</em> </a> </span> <em> —网飞原著</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h290880">1 月 16 日星期四</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>Nino kuni——网飞动漫</em></li><li>史蒂夫·乔布斯</li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h290881">1 月 17 日星期五</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80995039&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80995039" target="_blank" rel="noopener noreferrer"> <em>战神</em> </a> </span> <em> —网飞原作</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80141782&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80141782" target="_blank" rel="noopener noreferrer"> <em>嘻哈进化:第四季</em> </a> </span> <em> —网飞原创</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80197526&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80197526" target="_blank" rel="noopener noreferrer"> <em>性教育:第二季</em> </a> </span> <em> —网飞原著</em></li><li><em>小房子国家:第二卷</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81127902&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81127902" target="_blank" rel="noopener noreferrer"> <em>泰勒·佩里的失宠</em> </a> </span> <em> —网飞电影</em></li><li><em>维维·多斯·维斯——网飞电影</em></li><li><em>谁能，谁能！——原 Netflix〔t1〕</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h290882">1 月 18 日星期六</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>金光闪闪的戒指</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h290883"><strong>1 月 20 日星期一</strong>T2】</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80234451&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80234451" target="_blank" rel="noopener noreferrer"> <em>家人团聚:第二部</em> </a> </span> <em> —网飞家人</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h290884">这周离开</h3><h4 class="sc-1bwb26k-1 kpbNNd" id="h290885">1 月 15 日离开</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>叉子超过刀子</em></li><li><em>重新排序</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h290886"><strong>1 月 17 日离开</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>短期 12 </em></li></ul> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-OUi8Yg9Z85Q&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-OUi8Yg9Z85Q&start=0) 
+
+### **本周到达**
+
+#### **1 月 13 日星期一**
+
+*   *杜德的治愈能力——网飞家族*
+
+#### **1 月 14 日星期二**
+
+*   [*奇波与神奇动物时代*](https://www.netflix.com/title/80221553) *—网飞家族*
+*   *主人*
+
+#### **1 月 15 日星期三**
+
+*   *大胖骗子*
+*   *谁杀了铁——Netflix 电影*
+*   [*格雷斯与弗兰基:第六季*](https://www.netflix.com/title/80017537) *—网飞原著*
+
+#### 1 月 16 日星期四
+
+*   *Nino kuni——网飞动漫*
+*   史蒂夫·乔布斯
+
+#### 1 月 17 日星期五
+
+*   [*战神*](https://www.netflix.com/title/80995039) *—网飞原作*
+*   [*嘻哈进化:第四季*](https://www.netflix.com/title/80141782) *—网飞原创*
+*   [*性教育:第二季*](https://www.netflix.com/title/80197526) *—网飞原著*
+*   *小房子国家:第二卷*
+*   [*泰勒·佩里的失宠*](https://www.netflix.com/title/81127902) *—网飞电影*
+*   *维维·多斯·维斯——网飞电影*
+*   *谁能，谁能！——原 Netflix〔t1〕*
+
+#### 1 月 18 日星期六
+
+*   *金光闪闪的戒指*
+
+#### **1 月 20 日星期一**T2】
+
+*   [*家人团聚:第二部*](https://www.netflix.com/title/80234451) *—网飞家人*
+
+### 这周离开
+
+#### 1 月 15 日离开
+
+*   *叉子超过刀子*
+*   *重新排序*
+
+#### **1 月 17 日离开**
+
+*   *短期 12*

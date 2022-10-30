@@ -1,10 +1,10 @@
 # 我是 Kaeo Milker，《风暴英雄》的制作总监，这就是我的工作方式
 
-> 原文：<https://lifehacker.com/im-kaeo-milker-heroes-of-the-storm-production-director-1830474725>
+> 原文:[https://life hacker . com/im-kaeo-milker-heroes-of-storm-production-director-1830474725](https://lifehacker.com/im-kaeo-milker-heroes-of-the-storm-production-director-1830474725)
 
 Kaeo Milker 在暴雪娱乐享受了漫长而令人大开眼界的职业生涯:QA，设施管理，招聘，现在，领导该公司在 MOBA 的大专营权，*风暴英雄*。不过，你可能更愿意听从他的建议，而不是跟着他走；虽然他是*英雄*船的船长，但他很快承认你不会在游戏排行榜上找到他。我们在今年的暴雪嘉年华上采访了 Kaeo，他就如何管理你*认为你应该作为职业做的事情和你*喜欢作为职业做的事情给出了一些很好的建议。**
 
-
+Watch
 
 * * *
 
@@ -123,4 +123,8 @@ Kaeo Milker 在暴雪娱乐享受了漫长而令人大开眼界的职业生涯:Q
 
 我认为有这样的事情，“嘿，你不擅长这个游戏，所以你怎么能做到这一点，”但对于我打电话的大多数事情来说，我有多好没有关系。更多的是我着眼于游戏的大局，思考什么是重要的，并听取玩家的反馈。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-KeASyfPmpo8&amp;start=0" data-chomp-id="KeASyfPmpo8" data-recommend-id="youtube://KeASyfPmpo8" id="youtube-KeASyfPmpo8" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="KeASyfPmpo8" data-recommend-id="youtube://KeASyfPmpo8" id="youtube-KeASyfPmpo8" data-recommended="false" class="js_recommend"/></span></div><h4 class="sc-1bwb26k-1 kpbNNd" id="h292623">你有最喜欢的<em>风暴英雄</em>角色吗？</h4><p class="sc-77igqf-0 bOfvBY">我们在一月份发布了一个名叫火焰的角色。通常我会玩一个新英雄，直到下一个英雄出来，我会弹来弹去。从一月份开始，我几乎不停地玩 Blaze，这有点疯狂。我爱上了他的衣服，他的能力互动的方式。他也有很多支持和逃脱的东西，所以他不会死很多。在<em>英雄</em>中，要成为更好的玩家，你能做的最好的事情之一就是停止死亡。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-KeASyfPmpo8&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-KeASyfPmpo8&start=0) 
+
+#### 你有最喜欢的*风暴英雄*角色吗？
+
+我们在一月份发布了一个名叫火焰的角色。通常我会玩一个新英雄，直到下一个英雄出来，我会弹来弹去。从一月份开始，我几乎不停地玩 Blaze，这有点疯狂。我爱上了他的衣服，他的能力互动的方式。他也有很多支持和逃脱的东西，所以他不会死很多。在*英雄*中，要成为更好的玩家，你能做的最好的事情之一就是停止死亡。

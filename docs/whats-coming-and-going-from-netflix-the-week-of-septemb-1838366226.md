@@ -1,7 +1,135 @@
 # 2019 年 9 月 30 日这一周，网飞将会发生什么
 
-> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-septemb-1838366226>
+> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of-septemb-1838366226](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-septemb-1838366226)
 
 改编自丹尼斯·刘(Dennis Liu)和杰森·皮珀堡(Jason Piperburg)的同名漫画，《抚养迪翁》(Raising Dion)(星期五)是一部拥有超能力的儿童系列片，主演，迈克尔·B·乔丹和一大堆有趣的 CGI。MBJ 也是执行制片人，所以你可能会想看看这部电影，特别是如果你还在为网飞和漫威的分手而哭泣，需要一些超级英雄来填补空缺的话。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-Z6koPaImHzY&amp;start=0" data-chomp-id="Z6koPaImHzY" data-recommend-id="youtube://Z6koPaImHzY" id="youtube-Z6koPaImHzY" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="Z6koPaImHzY" data-recommend-id="youtube://Z6koPaImHzY" id="youtube-Z6koPaImHzY" data-recommended="false" class="js_recommend"/></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h286935"><br/></h3><h3 class="sc-1bwb26k-1 kpbNNd" id="h286936">本周到达</h3><h4 class="sc-1bwb26k-1 kpbNNd" id="h286937"><strong>9 月 30 日星期一</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>哥谭:第五季</em></li><li><em>莫·吉利根:动力——网飞原创</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h286938"><strong>10 月 1 日星期二</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80167821&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80167821" target="_blank" rel="noopener noreferrer"> <em>《卡门·桑迪戈:第二季——网飞家族</em> </a> </span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81002876&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81002876" target="_blank" rel="noopener noreferrer"> <em>尼基·格拉泽:Bangin’—网飞原创</em> </a> </span></li><li><em> 93 天</em></li><li><em>上午 9 点</em></li><li>一只蜘蛛出现了</li><li><em>坏男孩</em></li><li><em>坏男孩 II </em></li><li><em>吹</em></li><li>来吧，幽灵特工:第一季</li><li><em>查理的天使</em></li><li><em>查理的天使:全速前进</em></li><li>奶酪陷阱:第一季</li><li>《芝加哥打字机》:第一季</li><li><em>崩溃</em></li><li><em>出口伤</em></li><li><em>好吃的汉堡</em></li><li><em>哈罗德&amp;库马尔从关塔那摩湾越狱</em></li><li><em>蜂蜜 2 </em></li><li><em>女巫的房子</em></li><li><em>拉各斯真实的假生活</em></li><li><em>黑衣人 II </em></li><li><em>战争中的妈妈们</em></li><li><em>无预约</em></li><li><em>十三罗汉</em></li><li><em>十二罗汉</em></li><li><em>单向:这是我们</em></li><li><em>发薪日</em></li><li>巴黎的老鼠:电影</li><li><em>尖叫 2 </em></li><li><em>塞纳</em></li><li><em>信号:第一季</em></li><li><em>罪恶之城</em></li><li><em>险恶的圈子</em></li><li>超女</li><li><em>超人归来</em></li><li><em>冲浪开始了</em></li><li><em>遗愿清单</em></li><li><em>摩登原始人</em></li><li><em>摇滚维加斯万岁中的摩登原始人</em></li><li><em>小岛</em></li><li><em>对海蓓娜斯的追求</em></li><li><em>鲁格拉特电影</em></li><li><em>时间旅行者的妻子</em></li><li><em>明日与你:第一季</em></li><li><em>猜火车</em></li><li><em>特洛伊</em></li><li>隧道:第一季</li><li><em>无人陪伴的未成年人</em></li><li><em>走出去</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h286939"><strong>10 月 2 日星期三</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>无证生活——网飞原著</em></li><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81094801&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81094801" target="_blank" rel="noopener noreferrer"><em>(Solteras)——网飞电影</em> </a> </span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80146284&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80146284" target="_blank" rel="noopener noreferrer"> <em>烂:第二季—网飞原著</em></a>T5】</span></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h286940"><strong>10 月 3 日星期四</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80217066&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80217066" target="_blank" rel="noopener noreferrer"> <em> Seis Manos —网飞动漫</em> </a> </span></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h286941"><strong>10 月 4 日星期五</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80117038&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80117038" target="_blank" rel="noopener noreferrer"> <em>大嘴:第三季—网飞原著</em> </a> </span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80214792&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80214792" target="_blank" rel="noopener noreferrer"> <em>惊现:第二季—网飞家族</em> </a> </span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80237905&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80237905" target="_blank" rel="noopener noreferrer"> <em>在高高的草丛中——网飞电影</em> </a> </span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80002479&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80002479" target="_blank" rel="noopener noreferrer"> <em>《浴血黑帮》:第五季—网飞原著</em> </a> </span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80117803&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80117803" target="_blank" rel="noopener noreferrer"> <em>迪翁—网飞原创</em></a>T5】</span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80124711&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80124711" target="_blank" rel="noopener noreferrer"> <em>超级怪兽:第三季—网飞家族</em> </a> </span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81021243&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81021243" target="_blank" rel="noopener noreferrer"> <em>超级怪兽:姜帆的第一个万圣节——网飞家族</em> </a> </span></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h286942"><strong>10 月 5 日星期六</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80215730&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80215730" target="_blank" rel="noopener noreferrer"> <em>传奇任务:神话大师——网飞家族</em></a>T5】</span></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h286943">这周离开</h3><h4 class="sc-1bwb26k-1 kpbNNd" id="h286944"><strong>10 月 1 日出发</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>人工智能</li><li>所有总统的人</li><li><em>雌雄大盗(1967) </em></li><li><em>开始吧:为了赢得比赛</em></li><li><em>卡巴莱(1972) </em></li><li><em>卡斯珀</em></li><li>热铁皮屋顶上的猫</li><li><em>查理和巧克力工厂(2005) </em></li><li><em>克洛弗菲尔德</em></li><li><em>解救</em></li><li><em>丫丫姐妹会的神圣秘密</em></li><li><em>帝国记录</em></li><li><em>进化</em></li><li><em>叉子超过刀子</em></li><li><em>弗朗西丝·哈</em></li><li><em>琼斯的自由状态</em></li><li><em>得到卡特</em></li><li><em>小妖精</em></li><li><em>乡下人</em></li><li>不切实际的小丑:第一季</li><li><em>在布鲁日</em></li><li>朱莉&amp;朱丽娅</li><li><em>湖景露台</em></li><li><em>杀机:系列 1-19 </em></li><li><em>痴迷</em></li><li><em>菠萝快车</em></li><li><em>排</em></li><li><em>智力竞赛节目</em></li><li>我配不上她</li><li><em>飙风天王</em></li><li><em>噩梦</em></li><li><em>旅行裤的姐妹情谊</em></li><li><em>旅行裤的姐妹情谊 2 </em></li><li>谁害怕弗吉尼亚·伍尔夫？</li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h286945"><strong>10 月 5 日出发</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>卑鄙的我 3 </em></li></ul><div class="bxm4mm-2 hKBnez"><div class="bxm4mm-1 goloRq instream-native-video instream-permalink instream-native-video--mobile"><div class="sc-1h0epat-0 lepUzz"><div class="sc-1h0epat-1 gRjwiT"><div class="sc-235a11-0 egwski">Watch</div></div><div class="sc-1wkneyl-0 hxLRyg video-html5-playlist" data-playlist="192590,192585,192428" data-current="192590"><div class="video-html5-loaded"><div class="video-html5-player"><div class="lhhce6-0 bVyOPq video-html5 autoplay muted mobile" data-video-id="192590" data-position="sidebar" data-video-title="How to Make a Quick and Easy Crumb Crust" data-video-network="lifehacker" data-video-duration="135"></div></div></div></div></div></div></div><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><div id="mgid-container" data-placement="1" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-Z6koPaImHzY&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-Z6koPaImHzY&start=0) 
+
+### 本周到达
+
+#### **9 月 30 日星期一**
+
+*   *哥谭:第五季*
+*   *莫·吉利根:动力——网飞原创*
+
+#### **10 月 1 日星期二**
+
+*   [*《卡门·桑迪戈:第二季——网飞家族*](https://www.netflix.com/title/80167821)
+*   [*尼基·格拉泽:Bangin’—网飞原创*](https://www.netflix.com/title/81002876)
+*   *93 天*
+*   *上午 9 点*
+*   一只蜘蛛出现了
+*   *坏男孩*
+*   *坏男孩 II*
+*   *吹*
+*   来吧，幽灵特工:第一季
+*   *查理的天使*
+*   *查理的天使:全速前进*
+*   奶酪陷阱:第一季
+*   《芝加哥打字机》:第一季
+*   *崩溃*
+*   *出口伤*
+*   *好吃的汉堡*
+*   *哈罗德&库马尔从关塔那摩湾越狱*
+*   *蜂蜜 2*
+*   *女巫的房子*
+*   *拉各斯真实的假生活*
+*   *黑衣人 II*
+*   *战争中的妈妈们*
+*   *无预约*
+*   *十三罗汉*
+*   *十二罗汉*
+*   *单向:这是我们*
+*   *发薪日*
+*   巴黎的老鼠:电影
+*   *尖叫 2*
+*   *塞纳*
+*   *信号:第一季*
+*   *罪恶之城*
+*   *险恶的圈子*
+*   超女
+*   *超人归来*
+*   *冲浪开始了*
+*   *遗愿清单*
+*   *摩登原始人*
+*   *摇滚维加斯万岁中的摩登原始人*
+*   *小岛*
+*   *对海蓓娜斯的追求*
+*   *鲁格拉特电影*
+*   *时间旅行者的妻子*
+*   *明日与你:第一季*
+*   *猜火车*
+*   *特洛伊*
+*   隧道:第一季
+*   *无人陪伴的未成年人*
+*   *走出去*
+
+#### **10 月 2 日星期三**
+
+*   *无证生活——网飞原著*
+*   [*(Solteras)——网飞电影*](https://www.netflix.com/title/81094801)
+*   [*烂:第二季—网飞原著*](https://www.netflix.com/title/80146284)T5】
+
+#### **10 月 3 日星期四**
+
+*   [*Seis Manos —网飞动漫*](https://www.netflix.com/title/80217066)
+
+#### **10 月 4 日星期五**
+
+*   [*大嘴:第三季—网飞原著*](https://www.netflix.com/title/80117038)
+*   [*惊现:第二季—网飞家族*](https://www.netflix.com/title/80214792)
+*   [*在高高的草丛中——网飞电影*](https://www.netflix.com/title/80237905)
+*   [*《浴血黑帮》:第五季—网飞原著*](https://www.netflix.com/title/80002479)
+*   [*迪翁—网飞原创*](https://www.netflix.com/title/80117803)T5】
+*   [*超级怪兽:第三季—网飞家族*](https://www.netflix.com/title/80124711)
+*   [*超级怪兽:姜帆的第一个万圣节——网飞家族*](https://www.netflix.com/title/81021243)
+
+#### **10 月 5 日星期六**
+
+*   [*传奇任务:神话大师——网飞家族*](https://www.netflix.com/title/80215730)T5】
+
+### 这周离开
+
+#### **10 月 1 日出发**
+
+*   人工智能
+*   所有总统的人
+*   *雌雄大盗(1967)*
+*   *开始吧:为了赢得比赛*
+*   *卡巴莱(1972)*
+*   *卡斯珀*
+*   热铁皮屋顶上的猫
+*   *查理和巧克力工厂(2005)*
+*   *克洛弗菲尔德*
+*   *解救*
+*   *丫丫姐妹会的神圣秘密*
+*   *帝国记录*
+*   *进化*
+*   *叉子超过刀子*
+*   *弗朗西丝·哈*
+*   *琼斯的自由状态*
+*   *得到卡特*
+*   *小妖精*
+*   *乡下人*
+*   不切实际的小丑:第一季
+*   *在布鲁日*
+*   朱莉&朱丽娅
+*   *湖景露台*
+*   *杀机:系列 1-19*
+*   *痴迷*
+*   *菠萝快车*
+*   *排*
+*   *智力竞赛节目*
+*   我配不上她
+*   *飙风天王*
+*   *噩梦*
+*   *旅行裤的姐妹情谊*
+*   *旅行裤的姐妹情谊 2*
+*   谁害怕弗吉尼亚·伍尔夫？
+
+#### **10 月 5 日出发**
+
+*   *卑鄙的我 3*
+
+Watch

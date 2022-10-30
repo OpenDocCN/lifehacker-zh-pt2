@@ -1,12 +1,12 @@
 # 在预购您的 Nvidia RTX 30 系列显卡之前，请阅读本文
 
-> 原文：<https://lifehacker.com/read-this-before-pre-ordering-your-nvidia-rtx-30-series-1845017144>
+> 原文:[https://life hacker . com/read-this-before-pre-ordering-your-NVIDIA-RTX-30-series-1845017144](https://lifehacker.com/read-this-before-pre-ordering-your-nvidia-rtx-30-series-1845017144)
 
 我知道，我知道。诱惑是巨大的，如果你是一个自己动手制作电脑的发烧友，厌倦了看着你的游戏在你把它们调到“超”质量设置时变得断断续续。Nvidia 的新 RTX 30 系列显卡是野兽。但是你应该预订一个吗？我不会。
 
+Watch
 
-
-不过，我受到了诱惑:即使英伟达的营销有点过度销售他们的功能，即使你选择最低端的 499 美元的英伟达 GeForce RTX 3070，你也会以合理的价格获得稳定的性能。据称，这款卡比 Nvidia 之前的旗舰 GeForce RTX 2080 Ti 更快——这款卡在推出时最低售价为 1000 美元。
+不过，我受到了诱惑:即使英伟达的营销有点过度销售他们的功能，即使你选择最低端的 499 美元的英伟达 GeForce RTX 3070，你也会以合理的价格获得稳定的性能。据称，这款卡比 Nvidia 之前的旗舰 GeForce RTX 2080 Ti更快——这款卡在推出时最低售价为 1000 美元。
 
 如果你要从比这更老的系统升级，这几乎是板上钉钉的事情，尤其是如果你的显卡是以数字“10”或更低开始的话。但我还是要戴上我的怀疑论者的帽子，成为那个令人讨厌的理性之声:*不要预购新的显卡。*
 
@@ -34,4 +34,14 @@ GeForce 30 系列显卡的推出恰逢其时。现在是九月；疫情-九月�
 
 简单来说，最新的显卡世代之争甚至还没有拉开序幕。没有理由立即升级；如果你已经坚持了这么长时间来升级，你可以再坚持几周。这是更明智的选择。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-NgcYLIvlp_k&amp;start=0" data-chomp-id="NgcYLIvlp_k" data-recommend-id="youtube://NgcYLIvlp_k" id="youtube-NgcYLIvlp_k" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="NgcYLIvlp_k" data-recommend-id="youtube://NgcYLIvlp_k" id="youtube-NgcYLIvlp_k" data-recommended="false" class="js_recommend"/></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h285183">权力的移动:无论如何预购，但...</h3><p class="sc-77igqf-0 bOfvBY">我写了这篇文章，甚至<em>我还在</em>考虑预购 30 系列显卡，因为如果有库存问题，我不想等上好几个月。如果我没能说服你<em>不</em>预购一张新卡，我不会见怪；然而，我建议你在一个有很好的退货政策(并且没有补货费)的零售商那里预购。</p><p class="sc-77igqf-0 bOfvBY">英伟达？<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Commerce&quot;,&quot;lifehacker - Read This Before Pre-Ordering Your Nvidia RTX 30-Series Graphics Card&quot;,&quot;&quot;]]" href="https://smile.amazon.com/gp/help/customer/display.html?asc_campaign=InlineText&amp;asc_refurl=https://lifehacker.com/read-this-before-pre-ordering-your-nvidia-rtx-30-series-1845017144&amp;asc_source=&amp;nodeId=GKM69DUUYKQWKWX7&amp;tag=kinjalifehackerlink-20#GUID-D26A35E8-EE23-4B88-8B62-B357ABA6DDEE__SECTION_3833ACAF573541FD92F4C9AFE381AC86&amp;sa-no-redirect=1" target="_blank" rel="nofollow" data-amazonasin="" data-amazontag="kinjalifehackerlink-20">亚马逊</a>T3】？<span>T5】B&amp;HT7】？假设你有一个未打开的显卡，你就可以开始了。新蛋？号码</span></span></p><p class="sc-77igqf-0 bOfvBY">如果你必须购买新的 Nvidia 显卡，但是尽可能长时间不使用它。你可能仍然不知道 AMD 的公告，除非我们在 10 月 28 日之前看到一些泄漏，所以我会尽可能在接近 9 月底的时候下你的 30 系列订单。</p><p class="sc-77igqf-0 bOfvBY">当然，现在你正在玩每个人都喜欢的显卡猜谜游戏:在你试图购买的显卡脱销之前，你能坚持多久？我敢肯定，一旦 Nvidia 的新卡推出，你就会对需求有所了解，这应该有望帮助你弄清楚是否值得等待或尽快扣动扳机。无论如何，考虑好的退货政策的力量，你可能会在以后得到更好的交易——或者完全更好的显卡。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-NgcYLIvlp_k&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-NgcYLIvlp_k&start=0) 
+
+### 权力的移动:无论如何预购，但...
+
+我写了这篇文章，甚至*我还在*考虑预购 30 系列显卡，因为如果有库存问题，我不想等上好几个月。如果我没能说服你*不*预购一张新卡，我不会见怪；然而，我建议你在一个有很好的退货政策(并且没有补货费)的零售商那里预购。
+
+英伟达？ [亚马逊](https://smile.amazon.com/gp/help/customer/display.html?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/read-this-before-pre-ordering-your-nvidia-rtx-30-series-1845017144&asc_source=&nodeId=GKM69DUUYKQWKWX7&tag=kinjalifehackerlink-20#GUID-D26A35E8-EE23-4B88-8B62-B357ABA6DDEE__SECTION_3833ACAF573541FD92F4C9AFE381AC86&sa-no-redirect=1)T3】？T5】B&HT7】？假设你有一个未打开的显卡，你就可以开始了。新蛋？号码
+
+如果你必须购买新的 Nvidia 显卡，但是尽可能长时间不使用它。你可能仍然不知道 AMD 的公告，除非我们在 10 月 28 日之前看到一些泄漏，所以我会尽可能在接近 9 月底的时候下你的 30 系列订单。
+
+当然，现在你正在玩每个人都喜欢的显卡猜谜游戏:在你试图购买的显卡脱销之前，你能坚持多久？我敢肯定，一旦 Nvidia 的新卡推出，你就会对需求有所了解，这应该有望帮助你弄清楚是否值得等待或尽快扣动扳机。无论如何，考虑好的退货政策的力量，你可能会在以后得到更好的交易——或者完全更好的显卡。

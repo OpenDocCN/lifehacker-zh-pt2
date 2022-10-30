@@ -1,13 +1,68 @@
 # 这就是精神病患者的真实面目
 
-> 原文：<https://lifehacker.com/heres-what-a-psychopath-actually-is-1830182457>
+> 原文:[https://life hacker . com/heres-what-a psychiatre-really-is-1830182457](https://lifehacker.com/heres-what-a-psychopath-actually-is-1830182457)
 
 我们一直都在使用“神经病”这个词，但它到底是什么意思呢？**T3】**
 
 对心理健康有很多误解，随便使用有更深含义的术语会进一步传播这些误解。所以让我们开始吧。在这种情况下，使用一个虚构的角色作为一个概念的模板，我们大多数人在现实生活中容易误解。Fansplainer 是一个由漫画爱好者埃文·盖瑞(完全披露:这位作家的朋友)创建的 [YouTube 频道](https://www.youtube.com/channel/UCu9Uo8exd0dLngWf7LHLE6w/videos) ，他在其中解释了流行漫画故事和人物背后的现实生活科学和政治。比如精神变态科学。
 
-
+Watch
 
 在他最近的视频中，Geary 检查了小丑在罗伯特·黑尔的 20 分精神病患者清单 上的分数:该清单包括对冲动、夸大自我估计、缺乏同理心等行为的评估，并按照 1 到 3 的评分标准进行评分。任何得分超过 30 分的人都处于危险区。如果你熟悉小丑，你可能会猜测他已经过了临界点。但是你不太可能认识太多真正的*小丑。*
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-hnCmdu-Rl_c&amp;start=0" data-chomp-id="hnCmdu-Rl_c" data-recommend-id="youtube://hnCmdu-Rl_c" id="youtube-hnCmdu-Rl_c" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="hnCmdu-Rl_c" data-recommend-id="youtube://hnCmdu-Rl_c" id="youtube-hnCmdu-Rl_c" data-recommended="false" class="js_recommend"/></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h288894">征兆<br/></h3><p class="sc-77igqf-0 bOfvBY">即使你知道诊断一个人不是医生是不合适的，你也可能忍不住要浏览一遍这个清单。(要明确的是:对你生活中的人进行纸上谈兵式的诊断是绝对不合适的，无论他们是同事、朋友，甚至是公众人物。)但是真正的<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.minddisorders.com/Flu-Inv/Hare-Psychopathy-Checklist.html&quot;,{&quot;metric25&quot;:1}]]" href="http://www.minddisorders.com/Flu-Inv/Hare-Psychopathy-Checklist.html" target="_blank" rel="noopener noreferrer">列</a> </span>为心理变态的标记却相当极端；虽然很多人都表现出这些特征中的一部分或多部分，但很少有人涵盖所有这些特征。仔细阅读它们，发现你所担心的人可能只是一个普通的混蛋，这可能会让你安心。一个真正的精神病患者的共同特征包括:</p><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>油嘴滑舌和表面魅力<br/></li><li>对自己的过高估计</li><li>刺激需求<br/></li><li>病理性说谎<br/></li><li>狡猾和控制欲<br/></li><li>缺乏悔恨或内疚<br/></li><li>肤浅的影响<strong> </strong>(肤浅的情绪反应)<br/></li><li>麻木不仁和缺乏同情心<br/></li><li>寄生生活方式<br/></li><li>不良行为控制<br/></li><li>性乱交<br/></li><li>早期行为问题<br/></li><li>缺乏现实的长期目标<br/></li><li>冲动<br/></li><li>不负责任<br/></li><li>不为自己的行为承担责任<br/></li><li>许多短期婚姻关系<br/></li><li>青少年犯罪<br/></li><li><!-- -->撤销有条件释放(即违反假释)的历史<br/></li><li>犯罪的多功能性<br/></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h288895"><strong>诊断的难度</strong></h3><p class="sc-77igqf-0 bOfvBY">你可能不知道太多真正的精神变态者的一个原因是因为没有太多；根据 Geary 的说法，他们约占总人口的 1 %,尽管在某些地方，如监狱或首席执行官中，他们的人数往往更多。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">诊断也很难得到。《精神障碍诊断和统计手册》将精神变态置于反社会人格障碍这一更大的总称之下。一些精神病学家将反社会者和精神病患者混为一谈，而另一些人将精神病患者定义为天生患有这种疾病，而反社会者有一些天性，但主要是后天培养造成的。正如吉尔里指出的那样，我们并不确切知道小丑的起源，所以很难说他是不是天生完美。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h288896">其他选项</h3><p class="sc-77igqf-0 bOfvBY">给某人贴上非常特殊的精神健康疾病的标签最终会改变我们对这种疾病的理解。例如，“精神病”这个词常见的口语误用，在临床上意味着你患有妄想和幻觉。如果有精神病发作的人犯了暴力行为，他们可以通过时间和药物恢复，然后经历悔恨或同情。精神病患者不会。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">精神变态是通过光谱来衡量的，因为这种状况的许多标志与其他问题重叠——比如自恋者的自我中心主义或躁狂发作时某人的冒险行为。那些人还不是神经病！你用微波炉加热鱼的同事可能也不是。然而，根据 Geary 的说法，小丑绝对是一个 20 点清单，一个有自己问题要解决的穿着蝙蝠装的人。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-hnCmdu-Rl_c&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-hnCmdu-Rl_c&start=0) 
+
+### 征兆
+
+即使你知道诊断一个人不是医生是不合适的，你也可能忍不住要浏览一遍这个清单。(要明确的是:对你生活中的人进行纸上谈兵式的诊断是绝对不合适的，无论他们是同事、朋友，甚至是公众人物。)但是真正的 [列](http://www.minddisorders.com/Flu-Inv/Hare-Psychopathy-Checklist.html) 为心理变态的标记却相当极端；虽然很多人都表现出这些特征中的一部分或多部分，但很少有人涵盖所有这些特征。仔细阅读它们，发现你所担心的人可能只是一个普通的混蛋，这可能会让你安心。一个真正的精神病患者的共同特征包括:
+
+*   油嘴滑舌和表面魅力
+
+*   对自己的过高估计
+*   刺激需求
+
+*   病理性说谎
+
+*   狡猾和控制欲
+
+*   缺乏悔恨或内疚
+
+*   肤浅的影响(肤浅的情绪反应)
+
+*   麻木不仁和缺乏同情心
+
+*   寄生生活方式
+
+*   不良行为控制
+
+*   性乱交
+
+*   早期行为问题
+
+*   缺乏现实的长期目标
+
+*   冲动
+
+*   不负责任
+
+*   不为自己的行为承担责任
+
+*   许多短期婚姻关系
+
+*   青少年犯罪
+
+*   撤销有条件释放(即违反假释)的历史
+
+*   犯罪的多功能性
+
+### **诊断的难度**
+
+你可能不知道太多真正的精神变态者的一个原因是因为没有太多；根据 Geary 的说法，他们约占总人口的 1 %,尽管在某些地方，如监狱或首席执行官中，他们的人数往往更多。
+
+诊断也很难得到。《精神障碍诊断和统计手册》将精神变态置于反社会人格障碍这一更大的总称之下。一些精神病学家将反社会者和精神病患者混为一谈，而另一些人将精神病患者定义为天生患有这种疾病，而反社会者有一些天性，但主要是后天培养造成的。正如吉尔里指出的那样，我们并不确切知道小丑的起源，所以很难说他是不是天生完美。
+
+### 其他选项
+
+给某人贴上非常特殊的精神健康疾病的标签最终会改变我们对这种疾病的理解。例如，“精神病”这个词常见的口语误用，在临床上意味着你患有妄想和幻觉。如果有精神病发作的人犯了暴力行为，他们可以通过时间和药物恢复，然后经历悔恨或同情。精神病患者不会。
+
+精神变态是通过光谱来衡量的，因为这种状况的许多标志与其他问题重叠——比如自恋者的自我中心主义或躁狂发作时某人的冒险行为。那些人还不是神经病！你用微波炉加热鱼的同事可能也不是。然而，根据 Geary 的说法，小丑绝对是一个 20 点清单，一个有自己问题要解决的穿着蝙蝠装的人。

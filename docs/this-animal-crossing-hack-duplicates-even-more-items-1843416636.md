@@ -1,10 +1,10 @@
 # 这个动物穿越黑客复制了更多的物品
 
-> 原文：<https://lifehacker.com/this-animal-crossing-hack-duplicates-even-more-items-1843416636>
+> 原文:[https://life hacker . com/this-animal-crossing-hack-duplicates-even-more-items-1843416636](https://lifehacker.com/this-animal-crossing-hack-duplicates-even-more-items-1843416636)
 
 好了，已经一周了，任天堂还没有干掉 [最后一个*动物穿越:新视野*](https://lifehacker.com/duplicate-all-your-items-in-animal-crossing-because-no-1843260796) hack 允许你免费复制某些物品。万一它真的出现了，或者如果你想要另一种方法，让你可以复制你拥有的每一个物品——小故障的圣杯——另一种方法出现了。下面是怎么做的。
 
-
+Watch
 
 和往常一样，在阅读描述的同时(或之后)看一段视频可能是你理解并完美执行它的最佳选择。首先，你需要招募一些朋友或家人来帮助你。你们都需要坐在同一个房间里，其中两个或更多的人“注册”到你的岛上——换句话说，他们需要能够在你的岛上拥有房子，你们都将通过一个共享的开关屏幕进行游戏。
 
@@ -20,4 +20,6 @@
 
 明白了吗？如果这听起来仍然有点棘手，下面是 YouTube[随心所欲游戏](https://www.youtube.com/channel/UCIMzs28GsYkwkNUR9synR5w) 的配套视频:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-bCAGAkv3IXQ&amp;start=0" data-chomp-id="bCAGAkv3IXQ" data-recommend-id="youtube://bCAGAkv3IXQ" id="youtube-bCAGAkv3IXQ" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="bCAGAkv3IXQ" data-recommend-id="youtube://bCAGAkv3IXQ" id="youtube-bCAGAkv3IXQ" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">和往常一样，不能保证这个小故障会持续很长时间。因此，如果你打算用它来创造一个充满昂贵的、消耗资源的项目的杰作岛，不要浪费时间。不然就给你回梗市<!-- -->。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-bCAGAkv3IXQ&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-bCAGAkv3IXQ&start=0) 
+
+和往常一样，不能保证这个小故障会持续很长时间。因此，如果你打算用它来创造一个充满昂贵的、消耗资源的项目的杰作岛，不要浪费时间。不然就给你回梗市。

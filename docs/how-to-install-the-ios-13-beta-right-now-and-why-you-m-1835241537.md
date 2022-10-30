@@ -1,10 +1,10 @@
 # 如何立即安装 iOS 13 测试版(以及为什么你可能想要等待)
 
-> 原文：<https://lifehacker.com/how-to-install-the-ios-13-beta-right-now-and-why-you-m-1835241537>
+> 原文:[https://life hacker . com/how-to-install-the-IOs-13-beta-right-now-and-why-you-m-1835241537](https://lifehacker.com/how-to-install-the-ios-13-beta-right-now-and-why-you-m-1835241537)
 
 本周， [苹果宣布下一个版本的 iOS](https://lifehacker.com/all-the-big-ios-13-changes-apple-announced-at-wwdc-19-1835216984) 正在开发中，他们将为 iPhone 的操作系统增加许多有趣的新功能。新版本 iOS 13 将包括大的新增功能，比如使用 Face ID 登录网站的功能，以及小的功能，比如好看的黑暗模式。当 iOS 13 今年秋天向所有人推出时，你会看到很多很酷的变化。
 
-
+Watch
 
 但是如果你不想等几个月，事实证明，从技术上来说，你不必等。按照传统，苹果向开发者发布了 iOS 13 的测试版，用于测试和更新他们的应用。这里有一个秘密:如果你愿意付费加入苹果的开发者计划，你今天就可以下载 iOS 13。
 
@@ -12,4 +12,30 @@
 
 像往常一样，重要的是要记住，像目前 iOS 13 的开发者测试版是有原因的。软件不稳定。它可能会导致你的手机崩溃，应用程序和数据可能会被删除，灾难可能会接踵而至。虽然我不能说 iOS 13 比过去的开发者测试版更稳定还是更不稳定，但 iOS 13 的变化数量让我相信这绝对是一个值得等待的一年，至少要等到 7 月份的公开测试版。显然，苹果也有同样的想法...
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1135630992972996608&amp;autosize=1" autoresize="true" id="twitter-1135630992972996608" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h49"><strong>今天如何获得 iOS 13</strong></h3><p class="sc-77igqf-0 bOfvBY">有了这些最初的警告，如果你还想继续，你必须加入<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://developer.apple.com/programs/&quot;,{&quot;metric25&quot;:1}]]" href="https://developer.apple.com/programs/" target="_blank" rel="noopener noreferrer">苹果开发者计划</a> </span>来下载 iOS 13。你将需要以下:<br/></p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>一台<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.apple.com/newsroom/2019/06/apple-previews-ios-13/?1559586061&quot;,{&quot;metric25&quot;:1}]]" href="https://www.apple.com/newsroom/2019/06/apple-previews-ios-13/?1559586061" target="_blank" rel="noopener noreferrer">兼容 iOS13 的设备</a></span>——这是一台 iPhone 6S 或更新的产品，最新的 iPod Touch，任何 iPad Pro，iPad gen 5 或 6，iPad Air gen 2 或 3，或 iPad Mini gen 4。</li><li>运行最新版本 MacOS (Mojave)的 Mac 电脑。</li><li>闪电转 USB 线。(或者 USB-C，取决于你用的是什么 Mac)。</li><li>iTunes，更新至最新版本。</li><li>苹果开发者许可证(或者信用卡和 99 美元)。</li></ul><p class="sc-77igqf-0 bOfvBY">转到开发者计划网站，单击右上角的蓝色“注册”按钮。对于开发新手来说，加入开发者计划是免费的——如果你正在读这篇文章，我想那可能就是你。你需要使用双因素认证登录到你的 Apple ID(如果你没有设置它，苹果有一些说明<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://support.apple.com/en-us/HT204915&quot;,{&quot;metric25&quot;:1}]]" href="https://support.apple.com/en-us/HT204915" target="_blank" rel="noopener noreferrer">这里</a> </span>)。然后你需要签署几份开发商合同。如果你只是打算摆弄这个应用程序，它们可能对你来说并不重要，但我建议你还是要阅读它们。最后，加入这个项目每年需要花费 99 美元，所以你需要准备好你的信用卡。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">一旦你进入该程序，在你的 Mac 上登录你的开发者账户，进入<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://developer.apple.com/download/&quot;,{&quot;metric25&quot;:1}]]" href="https://developer.apple.com/download/" target="_blank" rel="noopener noreferrer">苹果开发者下载网站</a> </span>并下载 iOS 13 测试版。</p><p class="sc-77igqf-0 bOfvBY">在你的 iPhone 或 iPad 上安装测试版。您需要使用电脑上的测试版手动“恢复”您的 iOS 设备，并从恢复映像安装它。将您的设备连接到 Mac，打开 iTunes，然后前往“设备摘要”页面。</p><p class="sc-77igqf-0 bOfvBY">在扣动扳机之前，我强烈建议你备份你的手机，并对备份进行存档，这样你就可以像以前一样重新安装你的手机了。正如<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://ios.gadgethacks.com/how-to/download-install-ios-13-your-iphone-right-now-0198342/&quot;,{&quot;metric25&quot;:1}]]" href="https://ios.gadgethacks.com/how-to/download-install-ios-13-your-iphone-right-now-0198342/" target="_blank" rel="noopener noreferrer"> Gadget Hacks </a> </span>所指出的，如果你依赖自动备份(或者不备份手机)，你将需要经历手动恢复最新版本 iOS 的过程，这是一个严重的痛苦。在设备摘要页面备份手机，然后前往 iTunes 偏好设置，选择“设备”选项卡。要找到你最新的备份，右键或苹果点击它，得到一个下拉菜单，选择“存档”<br/></p><p class="sc-77igqf-0 bOfvBY">好了，现在你备份了，是时候了。在 iTunes 的“设备摘要”页面上，按住 option 键，然后选择“检查更新”选择之前下载的 iOS 13 beta 文件，点击“打开”。设备将在安装时重新启动。<br/></p><h3 class="sc-1bwb26k-1 kpbNNd" id="h50">那看起来工作量很大...有办法避免这一切吗？</h3><p class="sc-77igqf-0 bOfvBY">如果你今天想要测试版就不用了。加入苹果开发者计划有很多方法，尽管我没有尝试过，而且听起来比这更复杂。<br/></p><p class="sc-77igqf-0 bOfvBY">如上所述，下个月会有一个公测版，下载起来会容易很多，使用起来也更安全。而且，对所有人都是免费的。如果你有兴趣加入公测，你应该关注<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://beta.apple.com/sp/betaprogram/&quot;,{&quot;metric25&quot;:1}]]" href="https://beta.apple.com/sp/betaprogram/" target="_blank" rel="noopener noreferrer">苹果测试软件程序</a> </span>网站和/或报名准备 iOS 13 进入公测。到时候我们会回来指导你如何安装公测版。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1135630992972996608&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1135630992972996608&autosize=1) 
+
+### **今天如何获得 iOS 13**
+
+有了这些最初的警告，如果你还想继续，你必须加入 [苹果开发者计划](https://developer.apple.com/programs/) 来下载 iOS 13。你将需要以下:
+
+*   一台 [兼容 iOS13 的设备](https://www.apple.com/newsroom/2019/06/apple-previews-ios-13/?1559586061)——这是一台 iPhone 6S 或更新的产品，最新的 iPod Touch，任何 iPad Pro，iPad gen 5 或 6，iPad Air gen 2 或 3，或 iPad Mini gen 4。
+*   运行最新版本 MacOS (Mojave)的 Mac 电脑。
+*   闪电转 USB 线。(或者 USB-C，取决于你用的是什么 Mac)。
+*   iTunes，更新至最新版本。
+*   苹果开发者许可证(或者信用卡和 99 美元)。
+
+转到开发者计划网站，单击右上角的蓝色“注册”按钮。对于开发新手来说，加入开发者计划是免费的——如果你正在读这篇文章，我想那可能就是你。你需要使用双因素认证登录到你的 Apple ID(如果你没有设置它，苹果有一些说明 [这里](https://support.apple.com/en-us/HT204915) )。然后你需要签署几份开发商合同。如果你只是打算摆弄这个应用程序，它们可能对你来说并不重要，但我建议你还是要阅读它们。最后，加入这个项目每年需要花费 99 美元，所以你需要准备好你的信用卡。
+
+一旦你进入该程序，在你的 Mac 上登录你的开发者账户，进入 [苹果开发者下载网站](https://developer.apple.com/download/) 并下载 iOS 13 测试版。
+
+在你的 iPhone 或 iPad 上安装测试版。您需要使用电脑上的测试版手动“恢复”您的 iOS 设备，并从恢复映像安装它。将您的设备连接到 Mac，打开 iTunes，然后前往“设备摘要”页面。
+
+在扣动扳机之前，我强烈建议你备份你的手机，并对备份进行存档，这样你就可以像以前一样重新安装你的手机了。正如 [Gadget Hacks](https://ios.gadgethacks.com/how-to/download-install-ios-13-your-iphone-right-now-0198342/) 所指出的，如果你依赖自动备份(或者不备份手机)，你将需要经历手动恢复最新版本 iOS 的过程，这是一个严重的痛苦。在设备摘要页面备份手机，然后前往 iTunes 偏好设置，选择“设备”选项卡。要找到你最新的备份，右键或苹果点击它，得到一个下拉菜单，选择“存档”
+
+好了，现在你备份了，是时候了。在 iTunes 的“设备摘要”页面上，按住 option 键，然后选择“检查更新”选择之前下载的 iOS 13 beta 文件，点击“打开”。设备将在安装时重新启动。
+
+### 那看起来工作量很大...有办法避免这一切吗？
+
+如果你今天想要测试版就不用了。加入苹果开发者计划有很多方法，尽管我没有尝试过，而且听起来比这更复杂。
+
+如上所述，下个月会有一个公测版，下载起来会容易很多，使用起来也更安全。而且，对所有人都是免费的。如果你有兴趣加入公测，你应该关注 [苹果测试软件程序](https://beta.apple.com/sp/betaprogram/) 网站和/或报名准备 iOS 13 进入公测。到时候我们会回来指导你如何安装公测版。

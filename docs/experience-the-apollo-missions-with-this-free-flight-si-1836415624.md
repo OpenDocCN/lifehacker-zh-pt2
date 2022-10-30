@@ -1,10 +1,10 @@
 # 体验这个免费的飞行模拟器阿波罗任务
 
-> 原文：<https://lifehacker.com/experience-the-apollo-missions-with-this-free-flight-si-1836415624>
+> 原文:[https://life hacker . com/experience-the-Apollo-missions-this-free-flight-si-1836415624](https://lifehacker.com/experience-the-apollo-missions-with-this-free-flight-si-1836415624)
 
 如果你想有一个更令人兴奋的 [阿波罗 11 号](https://io9.gizmodo.com/astronaut-neil-armstrong-on-why-hes-proud-to-be-a-nerd-1556439969) 周，很容易在你的电脑上免费尝试不同阿波罗任务的美丽模拟。你所需要的只是开源应用 [轨道飞行器](http://orbit.medphys.ucl.ac.uk/) 和 [项目阿波罗](https://sourceforge.net/projects/nassp/) 附加组件，这比去太空营要容易管理得多。
 
-
+Watch
 
 虽然 Orbiter 可以是一个相当硬核的飞行模拟器，但它(谢天谢地)为更休闲的玩家提供了不同程度的真实感和难度。换句话说，如果你只是想放大到月球并返回，你不会为了弄清楚你 60 年代的计算机 的来龙去脉而流汗。
 
@@ -14,4 +14,10 @@
 
 我们建议抓取一些官方的高分辨率纹理包和/或第三方图形包，这样你的太空之旅看起来就越好。一旦你启动了应用程序，确保你也下载了阿波罗 项目的 [插件。那是你通往月球的钥匙。](https://sourceforge.net/projects/nassp/)
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-sHaS6sYJsMg&amp;start=0" data-chomp-id="sHaS6sYJsMg" data-recommend-id="youtube://sHaS6sYJsMg" id="youtube-sHaS6sYJsMg" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="sHaS6sYJsMg" data-recommend-id="youtube://sHaS6sYJsMg" id="youtube-sHaS6sYJsMg" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">此外，太空相当安静——因为轨道飞行器没有内置声音，所以如果你想为你的旅行增加一点氛围，你还需要安装<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://orbit.medphys.ucl.ac.uk/faq.html#B8&quot;,{&quot;metric25&quot;:1}]]" href="http://orbit.medphys.ucl.ac.uk/faq.html#B8" target="_blank" rel="noopener noreferrer">和</a> </span>。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">一旦所有东西都安装好了，从<em> Orbiter </em>安装文件夹中启动 Orbiter_ng.exe 文件。您可以配置大量设置，但建议您打开“参数”选项卡下的“复杂飞行模型”、“有限燃料”、“重力梯度扭矩”和“非球形重力源”。</p><p class="sc-77igqf-0 bOfvBY">当你准备好开始游戏时，点击场景选项卡，选择一个轨道飞行器内置的场景或一个阿波罗附加模块，然后点击“启动”开始任务。如果你发现这太难了，还有<span></span>的一些教程。否则，花点时间去<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.orbiterwiki.org/wiki/Go_Play_In_Space&quot;,{&quot;metric25&quot;:1}]]" href="https://www.orbiterwiki.org/wiki/Go_Play_In_Space" target="_blank" rel="noopener noreferrer">去太空玩</a> </span>，这是一个超级有用的网站，旨在让你了解轨道飞行器的速度，而不会让你的非宇航员思维不知所措。(轨道飞行器论坛也是<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.orbiter-forum.com/tutorials.php&quot;,{&quot;metric25&quot;:1}]]" href="https://www.orbiter-forum.com/tutorials.php" target="_blank" rel="noopener noreferrer">一个优秀的资源</a> </span>。)<br/></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-sHaS6sYJsMg&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-sHaS6sYJsMg&start=0) 
+
+此外，太空相当安静——因为轨道飞行器没有内置声音，所以如果你想为你的旅行增加一点氛围，你还需要安装 [和](http://orbit.medphys.ucl.ac.uk/faq.html#B8) 。
+
+一旦所有东西都安装好了，从 *Orbiter* 安装文件夹中启动 Orbiter_ng.exe 文件。您可以配置大量设置，但建议您打开“参数”选项卡下的“复杂飞行模型”、“有限燃料”、“重力梯度扭矩”和“非球形重力源”。
+
+当你准备好开始游戏时，点击场景选项卡，选择一个轨道飞行器内置的场景或一个阿波罗附加模块，然后点击“启动”开始任务。如果你发现这太难了，还有的一些教程。否则，花点时间去 [去太空玩](https://www.orbiterwiki.org/wiki/Go_Play_In_Space) ，这是一个超级有用的网站，旨在让你了解轨道飞行器的速度，而不会让你的非宇航员思维不知所措。(轨道飞行器论坛也是 [一个优秀的资源](https://www.orbiter-forum.com/tutorials.php) 。)

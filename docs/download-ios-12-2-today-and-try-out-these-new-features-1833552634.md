@@ -1,10 +1,10 @@
 # 立即下载 iOS 12.2，体验这些新功能
 
-> 原文：<https://lifehacker.com/download-ios-12-2-today-and-try-out-these-new-features-1833552634>
+> 原文:[https://life hacker . com/download-IOs-12-2-today-and-try-out-these-new-features-1833552634](https://lifehacker.com/download-ios-12-2-today-and-try-out-these-new-features-1833552634)
 
 恰在此时——苹果发布日等——这家以服务为导向的科技巨头发布了其 iOS 操作系统的最新版本。如果你还没有，或者还没有收到 iOS 更新可用的通知，只需点击你的**设置**应用> **通用** > **软件更新**即可开始下载。这需要一段时间；我花了大约一个小时左右的时间在相当快的互联网连接上下载并安装了更新。
 
-
+Watch
 
 在你等待的时候，这里有一些你可以期待的更新的主要特性。
 
@@ -18,4 +18,68 @@
 
 ### 更多愚蠢的敌意
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-BLGsVSvwq7w&amp;start=140" data-chomp-id="BLGsVSvwq7w" data-recommend-id="youtube://BLGsVSvwq7w" id="youtube-BLGsVSvwq7w" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="BLGsVSvwq7w" data-recommend-id="youtube://BLGsVSvwq7w" id="youtube-BLGsVSvwq7w" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">如果你喜欢把你的头变成动物，并把古怪的小虚拟视频(或图片，如果你只是轻点你的假头)发送给你的朋友，你很幸运。你现在有一只长颈鹿、一只鲨鱼、一只疣猪和一只猫头鹰。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">(嘿，苹果:开一个“Animoji 应用商店”,让其他人创建安全的虚拟作品。你可能会获得更多的服务收入。)</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h19653">Siri 和苹果电视</h3><p class="sc-77igqf-0 bOfvBY">将您的 Apple TV 更新到 tvOS 12.2，将您的 iOS 设备更新到 iOS 12.2，您将能够更精细地控制 Apple TV 上的内容。正如<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.macrumors.com/2019/03/25/apple-releases-tvos-12-2/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.macrumors.com/2019/03/25/apple-releases-tvos-12-2/" target="_blank" rel="noopener noreferrer"> MacRumors </a> </span>所言:</p><p class="sc-77igqf-0 bOfvBY">“tvOS 12.2 在与 iOS 12.2 配对时，旨在允许用户要求 Siri 从 iOS 设备上播放 Apple TV 上的特定媒体。例如，你可以让 Siri 在客厅的电视上播放《摩登家庭》,或者在卧室的电视上播放《完美音调》。该功能适用于音乐、电视节目和电影。”</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h19654">那个“5G E”图标</h3><p class="sc-77igqf-0 bOfvBY">如果你是美国电话电报公司的用户，你可能会在 iPhone 的右上角看到一个新的“5G E”图标。你现在可以向你的朋友吹嘘你的移动连接比他们的更好，他们可以提醒你，“5G E”只是在&amp; T 的<span></span>说“更快的 LTE”，因为你的 iPhone(截至我们写这篇文章时)实际上并不支持 5G 连接。友谊是不是很伟大？</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h19655">更高质量的音频消息</h3><p class="sc-77igqf-0 bOfvBY">这是一个简单的问题，但苹果公司通过采用 24000 Hz 的不同编解码器(Opus)而不是之前的 8000 Hz 的 AMR 窄带编解码器，提高了您在信息中留下的音频信息的质量。干净利落。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h19656">更具体的屏幕“停机时间”</h3><p class="sc-77igqf-0 bOfvBY">现在，您可以通过 iOS 的屏幕时间功能定制您想要安排“停机”的日期和时间。提醒您，如果您的手机处于“停机”模式，您将只能使用某些应用程序(您选择的)和您设备的手机应用程序。就是这样。抱歉，脸书。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h19657">Group Facetime 又回来了！</h3><p class="sc-77igqf-0 bOfvBY">是的，那个可怕的<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://lifehacker.com/how-to-protect-yourself-against-apples-iphone-bugs-1832144982&quot;,{&quot;metric25&quot;:1}]]" href="https://lifehacker.com/how-to-protect-yourself-against-apples-iphone-bugs-1832144982">群组 Facetime bug </a> </span>允许其他人偷听你在做什么的功能已经消失了，这个功能又回来供所有人使用了。享受你的布拉迪波茨式的谈话。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h19658">订阅应用的促销</h3><p class="sc-77igqf-0 bOfvBY">苹果现在允许应用程序开发者为订阅提供促销价格，所以当你注册想要支付经常性费用的内容时，你应该更加明智。正如苹果的<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://developer.apple.com/documentation/ios_release_notes/ios_12_2_release_notes&quot;,{&quot;metric25&quot;:1}]]" href="https://developer.apple.com/documentation/ios_release_notes/ios_12_2_release_notes" target="_blank" rel="noopener noreferrer"> iOS 12.2 发行说明</a> </span>所描述的:</p><p class="sc-77igqf-0 bOfvBY">"...具有自动续费订阅的应用程序可以为现有和以前订阅的客户提供特定期限的折扣价。您可以使用订阅优惠来帮助赢回已取消订阅的订户，或者以特价升级到另一个订阅。即使客户已经完成了介绍性报价，他们也可以接受报价。”</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h19659">苹果地图中的空气质量</h3><p class="sc-77igqf-0 bOfvBY">如果你住在一个容易出现空气质量问题的地方(嗨，北加州)，你现在可以在苹果地图上查看空气质量指数了。唉，你不能在你的地图上叠加一些彩色滤镜来查看特定位置的空气状况，但是你会在右下角看到一个小指示器，显示你正在查看的任何位置(当放大足够大时)。</p><p class="sc-77igqf-0 bOfvBY">你也可以通过“设置”应用打开或关闭这一功能或天气状况。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h19660">对苹果产品(或与苹果协议配合使用的产品)的更多支持</h3><p class="sc-77igqf-0 bOfvBY">如果你有一个爱好者<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.apple.com/ios/home/accessories/#section-tv&quot;,{&quot;metric25&quot;:1}]]" href="https://www.apple.com/ios/home/accessories/#section-tv" target="_blank" rel="noopener noreferrer"> AirPlay 2 友好的电视</a> </span>，你现在可以将它添加到 HomeKit。同样，iOS 12.2 提供对<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://gizmodo.com/apple-quietly-released-new-airpods-while-you-were-aslee-1833431454&quot;,{&quot;metric25&quot;:1}]]" href="https://gizmodo.com/apple-quietly-released-new-airpods-while-you-were-aslee-1833431454">苹果最新 AirPods </a> </span>的全面支持，以及<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://gizmodo.com/the-logitech-crayon-is-a-great-ipad-stylus-for-kids-ar-1829370889&quot;,{&quot;metric25&quot;:1}]]" href="https://gizmodo.com/the-logitech-crayon-is-a-great-ipad-stylus-for-kids-ar-1829370889">罗技蜡笔</a> </span>(针对你的 iPad Pro)。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h19661">告诉 AirPlay 冷静下来</h3><p class="sc-77igqf-0 bOfvBY">现在，当您使用 AirPlay 将内容从 iOS 设备传输到 Apple TV 时，您可以做其他事情。正如苹果的描述所指出的，“AirPlay 视频多任务处理允许你浏览其他应用程序，以及在你的设备上本地播放其他短格式的音频和视频文件，而不中断 AirPlay。”</p><p class="sc-77igqf-0 bOfvBY">我认为 Redditor<span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.reddit.com/r/apple/comments/b5euyc/apple_releases_ios_122_with_apple_news_service/ejcyf5f/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.reddit.com/r/apple/comments/b5euyc/apple_releases_ios_122_with_apple_news_service/ejcyf5f/" target="_blank" rel="noopener noreferrer"><strong>rfguevar</strong></a></span>说得最好:“神圣的地狱，我高兴得在内心跳跃(在开会)”</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h19662">映射您最近的 Apple Pay 交易</h3><p class="sc-77igqf-0 bOfvBY">苹果对钱包界面进行了一些更新，让你最新的 Apple Pay 交易看起来更舒服。你将看到商家、位置和消费金额，点击列表将带你进入更详细的信息屏幕，包括显示零售商位置的地图。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h19663">空中力量的史诗处女作！</h3><p class="sc-77igqf-0 bOfvBY"><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://isairpoweroutyet.com/&quot;,{&quot;metric25&quot;:1}]]" href="https://isairpoweroutyet.com/" target="_blank" rel="noopener noreferrer">开玩笑</a> </span>。说到失望，苹果还在 iOS 12.2 中对 Apple Watch 的心电图设置过程进行了<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://9to5mac.com/2019/03/11/ios-12-2-nasty-surprise-for-ecg-users/&quot;,{&quot;metric25&quot;:1}]]" href="https://9to5mac.com/2019/03/11/ios-12-2-nasty-surprise-for-ecg-users/" target="_blank" rel="noopener noreferrer">地理围栏</a> </span>，所以那些不住在美国的人将无法初始化它。不好意思！</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h19664">将播客标记为已播放</h3><p class="sc-77igqf-0 bOfvBY">不管出于什么原因，苹果之前取消了在其播客应用程序中将播客标记为“播放”的功能——在按住或深按播客剧集后。嗯，这个功能在 iOS 12.2 中又回来了。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h19665">Safari 搜索更容易自动填充</h3><p class="sc-77igqf-0 bOfvBY">如果你喜欢在 iOS 上使用 Safari，苹果已经稍微调整了地址栏的自动填充功能。开始打东西。当您看到推荐的搜索短语出现在屏幕上时，您可以点击短语本身，立即转到该短语的搜索结果。不过，现在你也可以点击一个新的蓝色箭头图标，将文本<em>放在地址栏中，以防你想进一步修改你的搜索查询。</em></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-BLGsVSvwq7w&start=140](https://lifehacker.com/embed/inset/iframe?id=youtube-video-BLGsVSvwq7w&start=140) 
+
+如果你喜欢把你的头变成动物，并把古怪的小虚拟视频(或图片，如果你只是轻点你的假头)发送给你的朋友，你很幸运。你现在有一只长颈鹿、一只鲨鱼、一只疣猪和一只猫头鹰。
+
+(嘿，苹果:开一个“Animoji 应用商店”,让其他人创建安全的虚拟作品。你可能会获得更多的服务收入。)
+
+### Siri 和苹果电视
+
+将您的 Apple TV 更新到 tvOS 12.2，将您的 iOS 设备更新到 iOS 12.2，您将能够更精细地控制 Apple TV 上的内容。正如 [MacRumors](https://www.macrumors.com/2019/03/25/apple-releases-tvos-12-2/) 所言:
+
+“tvOS 12.2 在与 iOS 12.2 配对时，旨在允许用户要求 Siri 从 iOS 设备上播放 Apple TV 上的特定媒体。例如，你可以让 Siri 在客厅的电视上播放《摩登家庭》,或者在卧室的电视上播放《完美音调》。该功能适用于音乐、电视节目和电影。”
+
+### 那个“5G E”图标
+
+如果你是美国电话电报公司的用户，你可能会在 iPhone 的右上角看到一个新的“5G E”图标。你现在可以向你的朋友吹嘘你的移动连接比他们的更好，他们可以提醒你，“5G E”只是在& T 的说“更快的 LTE”，因为你的 iPhone(截至我们写这篇文章时)实际上并不支持 5G 连接。友谊是不是很伟大？
+
+### 更高质量的音频消息
+
+这是一个简单的问题，但苹果公司通过采用 24000 Hz 的不同编解码器(Opus)而不是之前的 8000 Hz 的 AMR 窄带编解码器，提高了您在信息中留下的音频信息的质量。干净利落。
+
+### 更具体的屏幕“停机时间”
+
+现在，您可以通过 iOS 的屏幕时间功能定制您想要安排“停机”的日期和时间。提醒您，如果您的手机处于“停机”模式，您将只能使用某些应用程序(您选择的)和您设备的手机应用程序。就是这样。抱歉，脸书。
+
+### Group Facetime 又回来了！
+
+是的，那个可怕的 [群组 Facetime bug](https://lifehacker.com/how-to-protect-yourself-against-apples-iphone-bugs-1832144982) 允许其他人偷听你在做什么的功能已经消失了，这个功能又回来供所有人使用了。享受你的布拉迪波茨式的谈话。
+
+### 订阅应用的促销
+
+苹果现在允许应用程序开发者为订阅提供促销价格，所以当你注册想要支付经常性费用的内容时，你应该更加明智。正如苹果的 [iOS 12.2 发行说明](https://developer.apple.com/documentation/ios_release_notes/ios_12_2_release_notes) 所描述的:
+
+"...具有自动续费订阅的应用程序可以为现有和以前订阅的客户提供特定期限的折扣价。您可以使用订阅优惠来帮助赢回已取消订阅的订户，或者以特价升级到另一个订阅。即使客户已经完成了介绍性报价，他们也可以接受报价。”
+
+### 苹果地图中的空气质量
+
+如果你住在一个容易出现空气质量问题的地方(嗨，北加州)，你现在可以在苹果地图上查看空气质量指数了。唉，你不能在你的地图上叠加一些彩色滤镜来查看特定位置的空气状况，但是你会在右下角看到一个小指示器，显示你正在查看的任何位置(当放大足够大时)。
+
+你也可以通过“设置”应用打开或关闭这一功能或天气状况。
+
+### 对苹果产品(或与苹果协议配合使用的产品)的更多支持
+
+如果你有一个爱好者 [AirPlay 2 友好的电视](https://www.apple.com/ios/home/accessories/#section-tv) ，你现在可以将它添加到 HomeKit。同样，iOS 12.2 提供对 [苹果最新 AirPods](https://gizmodo.com/apple-quietly-released-new-airpods-while-you-were-aslee-1833431454) 的全面支持，以及 [罗技蜡笔](https://gizmodo.com/the-logitech-crayon-is-a-great-ipad-stylus-for-kids-ar-1829370889) (针对你的 iPad Pro)。
+
+### 告诉 AirPlay 冷静下来
+
+现在，当您使用 AirPlay 将内容从 iOS 设备传输到 Apple TV 时，您可以做其他事情。正如苹果的描述所指出的，“AirPlay 视频多任务处理允许你浏览其他应用程序，以及在你的设备上本地播放其他短格式的音频和视频文件，而不中断 AirPlay。”
+
+我认为 Redditor[**rfguevar**](https://www.reddit.com/r/apple/comments/b5euyc/apple_releases_ios_122_with_apple_news_service/ejcyf5f/)说得最好:“神圣的地狱，我高兴得在内心跳跃(在开会)”
+
+### 映射您最近的 Apple Pay 交易
+
+苹果对钱包界面进行了一些更新，让你最新的 Apple Pay 交易看起来更舒服。你将看到商家、位置和消费金额，点击列表将带你进入更详细的信息屏幕，包括显示零售商位置的地图。
+
+### 空中力量的史诗处女作！
+
+[开玩笑](https://isairpoweroutyet.com/) 。说到失望，苹果还在 iOS 12.2 中对 Apple Watch 的心电图设置过程进行了 [地理围栏](https://9to5mac.com/2019/03/11/ios-12-2-nasty-surprise-for-ecg-users/) ，所以那些不住在美国的人将无法初始化它。不好意思！
+
+### 将播客标记为已播放
+
+不管出于什么原因，苹果之前取消了在其播客应用程序中将播客标记为“播放”的功能——在按住或深按播客剧集后。嗯，这个功能在 iOS 12.2 中又回来了。
+
+### Safari 搜索更容易自动填充
+
+如果你喜欢在 iOS 上使用 Safari，苹果已经稍微调整了地址栏的自动填充功能。开始打东西。当您看到推荐的搜索短语出现在屏幕上时，您可以点击短语本身，立即转到该短语的搜索结果。不过，现在你也可以点击一个新的蓝色箭头图标，将文本*放在地址栏中，以防你想进一步修改你的搜索查询。*

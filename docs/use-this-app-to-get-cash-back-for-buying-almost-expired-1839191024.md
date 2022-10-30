@@ -1,13 +1,23 @@
 # 使用此应用程序获取购买快过期食品的现金
 
-> 原文：<https://lifehacker.com/use-this-app-to-get-cash-back-for-buying-almost-expired-1839191024>
+> 原文:[https://life hacker . com/use-this-app-to-get-cash-back-for-pure-expired-1839191024](https://lifehacker.com/use-this-app-to-get-cash-back-for-buying-almost-expired-1839191024)
 
 在旧金山，我最喜欢的杂货店之一就是卖快过期食品的那家。这是一个仓库式的杂货店，商店里的所有东西都比普通杂货店便宜得多。你只需要做好准备，很快就可以吃或者冷冻你要买的东西。
 
-
+Watch
 
 我在那里做了很多疯狂的交易。现在有一个应用程序可以为你做类似的交易，只需从你经常去的当地杂货店购买快过期的食物。
 
 Cherripick 是一款类似于 Ibotta 的应用程序，为你购买临近保质期的食物提供返现。有了这个应用程序，你只需购买你想买的东西，拍下你的收据，然后拍下你的商品的有效期。就是这样。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-xzLhhUvr97A&amp;start=0" data-chomp-id="xzLhhUvr97A" data-recommend-id="youtube://xzLhhUvr97A" id="youtube-xzLhhUvr97A" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="xzLhhUvr97A" data-recommend-id="youtube://xzLhhUvr97A" id="youtube-xzLhhUvr97A" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">该应用目前正在安卓 上进行<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://play.google.com/apps/testing/com.cherripick.cherripickmobile&quot;,{&quot;metric25&quot;:1}]]" href="https://play.google.com/apps/testing/com.cherripick.cherripickmobile" target="_blank" rel="noopener noreferrer">公测，并计划下个月在 iOS 上推出。</a></span></p><p class="sc-77igqf-0 bOfvBY">它的创造者希望它将有助于消除一些食物浪费(这些物品一旦过期很可能会被杂货店扔掉)，同时在这个过程中为你节省少量现金。<br/></p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">你能拿回的金额取决于它是什么以及它离到期日有多近。你离得越近，回来的就越多。<br/></p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">就像我最喜欢的杂货店一样，你仍然想确保在这些东西真的过期之前做好吃的准备。虽然一些食品在过期后仍然值得食用，但很多食品也不安全，或者在过期后会变得不安全。放聪明点。<br/></p><p class="sc-77igqf-0 bOfvBY">也就是说，如果你今晚想买些吃的，而且快过期的食物看起来和它的同类一样好，那就值得使用这个应用程序，并在购买时节省一点现金。<br/></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-xzLhhUvr97A&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-xzLhhUvr97A&start=0) 
+
+该应用目前正在安卓 上进行 [公测，并计划下个月在 iOS 上推出。](https://play.google.com/apps/testing/com.cherripick.cherripickmobile)
+
+它的创造者希望它将有助于消除一些食物浪费(这些物品一旦过期很可能会被杂货店扔掉)，同时在这个过程中为你节省少量现金。
+
+你能拿回的金额取决于它是什么以及它离到期日有多近。你离得越近，回来的就越多。
+
+就像我最喜欢的杂货店一样，你仍然想确保在这些东西真的过期之前做好吃的准备。虽然一些食品在过期后仍然值得食用，但很多食品也不安全，或者在过期后会变得不安全。放聪明点。
+
+也就是说，如果你今晚想买些吃的，而且快过期的食物看起来和它的同类一样好，那就值得使用这个应用程序，并在购买时节省一点现金。

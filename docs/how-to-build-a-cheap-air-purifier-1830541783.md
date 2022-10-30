@@ -1,10 +1,10 @@
 # 如何打造便宜的空气净化器
 
-> 原文：<https://lifehacker.com/how-to-build-a-cheap-air-purifier-1830541783>
+> 原文:[https://life hacker . com/how-to-build-a 廉价空气净化器-1830541783](https://lifehacker.com/how-to-build-a-cheap-air-purifier-1830541783)
 
 一个高质量的 HEPA 空气净化器可以消除房间里几乎所有的烟雾、灰尘或过敏原颗粒，但一个 30 美元的装置可以消除大约 90%。如果你需要廉价清洁室内空气，值得一试。
 
-
+Watch
 
 要制造净化器，您只需:
 
@@ -14,4 +14,6 @@
 
 在这段视频中，密歇根大学卫生系统 [密歇根窦道中心](http://www.uofmhealth.org/medical-services/noseandsinus) 的主任 Jeffrey Terrell 演示了 DIY 净化器如何与价值 800 美元的工厂模型相比较。这不太好，但比什么都没有强多了。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-kH5APw_SLUU&amp;start=0" data-chomp-id="kH5APw_SLUU" data-recommend-id="youtube://kH5APw_SLUU" id="youtube-kH5APw_SLUU" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="kH5APw_SLUU" data-recommend-id="youtube://kH5APw_SLUU" id="youtube-kH5APw_SLUU" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">一旦你建立了这样一个系统，你可以把它放在卧室或任何你需要空气最干净的地方。这种类型的过滤器将捕获小至 1/3 微米的颗粒，这对于许多过敏原和野火烟雾中的许多颗粒来说已经足够了。然而，没有哪种过滤器能防止一氧化碳或刺激性气体，所以要确保尽可能地保护自己。</p><div id="mgid-container" data-placement="4" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-kH5APw_SLUU&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-kH5APw_SLUU&start=0) 
+
+一旦你建立了这样一个系统，你可以把它放在卧室或任何你需要空气最干净的地方。这种类型的过滤器将捕获小至 1/3 微米的颗粒，这对于许多过敏原和野火烟雾中的许多颗粒来说已经足够了。然而，没有哪种过滤器能防止一氧化碳或刺激性气体，所以要确保尽可能地保护自己。

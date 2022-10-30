@@ -1,10 +1,10 @@
 # 如何学习一门语言以便你能真正理解它
 
-> 原文：<https://lifehacker.com/how-to-study-a-language-so-you-can-actually-understand-1833844226>
+> 原文:[https://life hacker . com/how-to-study-a-language-so-you-can-actually-understand-1833844226](https://lifehacker.com/how-to-study-a-language-so-you-can-actually-understand-1833844226)
 
 当你到达一个新的国家时，在语言学习应用程序中升级和能够说并理解你的目标语言之间有很大的区别。与其想知道哪种应用或方法是“最好的”，不如考虑从多个方向学习你的语言。
 
-
+Watch
 
 ### 使用应用程序进行结构化练习
 
@@ -42,4 +42,8 @@ Duolingo 还提供一些语言的实时聊天，你可以花大约五分钟的�
 
 当我们询问你的语言学习技巧 时，一些评论者提到了额外的*！*为学习各种外语的美国学生创作的系列情景喜剧。他们傻傻的，夸张的，而且...实际上很容易理解。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-PRlVbNnqlNU&amp;start=0" data-chomp-id="PRlVbNnqlNU" data-recommend-id="youtube://PRlVbNnqlNU" id="youtube-PRlVbNnqlNU" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="PRlVbNnqlNU" data-recommend-id="youtube://PRlVbNnqlNU" id="youtube-PRlVbNnqlNU" data-recommended="false" class="js_recommend"/></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h296906">关注你的目标语言或国家的社交媒体</h3><p class="sc-77igqf-0 bOfvBY">为了练习阅读和写作你的目标语言的小片段，在社交媒体上寻找账号或标签。每次浏览 Instagram，你都会接触到一点这种语言，此外，你还会看到这个国家的样子，人们在做什么，他们在讨论什么新闻，从而打开一扇了解这个国家文化的小窗口。不时发表评论或回复也是一种有趣、简单、压力小的语言练习，让你不用离开家就能把新的语言技能运用到现实世界中。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-PRlVbNnqlNU&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-PRlVbNnqlNU&start=0) 
+
+### 关注你的目标语言或国家的社交媒体
+
+为了练习阅读和写作你的目标语言的小片段，在社交媒体上寻找账号或标签。每次浏览 Instagram，你都会接触到一点这种语言，此外，你还会看到这个国家的样子，人们在做什么，他们在讨论什么新闻，从而打开一扇了解这个国家文化的小窗口。不时发表评论或回复也是一种有趣、简单、压力小的语言练习，让你不用离开家就能把新的语言技能运用到现实世界中。

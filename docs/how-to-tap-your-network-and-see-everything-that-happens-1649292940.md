@@ -1,10 +1,10 @@
 # 如何利用你的网络，看到网络上发生的一切
 
-> 原文：<https://lifehacker.com/how-to-tap-your-network-and-see-everything-that-happens-1649292940>
+> 原文:[https://life hacker . com/how-tap-your-network-and-see-everything-that-occurs-1649292940](https://lifehacker.com/how-to-tap-your-network-and-see-everything-that-happens-1649292940)
 
 您的家庭网络以及与之相连的一切就像一个保险库。在你登录的背后隐藏着大量有价值的信息，从包含个人数据的未加密文件到可以被劫持并用于任何目的的设备。在本帖中，我们将向您展示如何规划您的网络，了解谁在与什么人交谈，以及如何发现可能正在消耗带宽的设备或进程(或者是您网络上的意外访客)。
 
-
+Watch
 
 简而言之:您将能够识别出您网络上的某些东西受到危害的迹象。我们假设您熟悉一些网络基础知识，比如如何找到路由器的设备列表以及 MAC 地址是什么。如果没有，那就去我们的 [认识你的网络夜校](http://lifehacker.com/know-your-network-the-complete-guide-5833254) 先刷一下吧。
 
@@ -38,4 +38,82 @@ Nmap 是一个非常强大的工具，但它不是最容易使用的。如果你
 
 ### 第三步:四处嗅嗅，看看每个人都在和谁说话
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-6X5TwvGXHP0&amp;start=0" data-chomp-id="6X5TwvGXHP0" data-recommend-id="youtube://6X5TwvGXHP0" id="youtube-6X5TwvGXHP0" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="6X5TwvGXHP0" data-recommend-id="youtube://6X5TwvGXHP0" id="youtube-6X5TwvGXHP0" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">现在，您应该有一个您知道和信任的设备列表，以及一个您发现连接到网络的设备列表。幸运的话，这里就完成了，所有的东西要么匹配，要么不言自明(例如，就像当前关闭的电视)。</p><p class="sc-77igqf-0 bOfvBY">但是，如果您看到任何您不认识的参与者，运行与设备不对应的服务(为什么我的 Roku 运行 postgresql？)，或者别的什么感觉掉了，是时候做一点嗅嗅了。也就是数据包嗅探。<br/></p><p class="sc-77igqf-0 bOfvBY">当两台计算机在您的网络上或通过互联网进行通信时，它们相互发送称为“数据包”的信息。放在一起，这些数据包产生了复杂的数据流，构成了我们观看的视频或下载的文档。数据包嗅探是捕获和检查这些信息的过程，以查看它们的去向和内容。<br/></p><h4 class="sc-1bwb26k-1 kpbNNd" id="h291395"><strong>安装 Wireshark </strong></h4><p class="sc-77igqf-0 bOfvBY">为此，我们需要<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.wireshark.org/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.wireshark.org/" target="_blank" rel="noopener noreferrer"> Wireshark </a> </span>。这是一个跨平台的网络监控工具，我们曾经在<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;http://lifehacker.com/a-guide-to-sniffing-out-passwords-and-cookies-and-how-5853483&quot;,{&quot;metric25&quot;:1}]]" href="http://lifehacker.com/a-guide-to-sniffing-out-passwords-and-cookies-and-how-5853483">中使用它来嗅探数据包，我们的指南是嗅出密码和 cookie</a></span>。在这种情况下，我们将以类似的方式使用它，但我们的目标不是捕获任何特定的内容，只是监视网络中传输的流量类型。</p><p class="sc-77igqf-0 bOfvBY">为此，您需要在“<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://wiki.wireshark.org/CaptureSetup/WLAN#Promiscuous_mode&quot;,{&quot;metric25&quot;:1}]]" href="http://wiki.wireshark.org/CaptureSetup/WLAN#Promiscuous_mode" target="_blank" rel="noopener noreferrer">混杂模式</a> </span>”下通过 wifi 运行 Wireshark 这意味着它不只是寻找进出你的电脑的数据包，而是收集它在你的网络上看到的任何数据包。</p><p class="sc-77igqf-0 bOfvBY">按照以下步骤进行设置:<br/></p><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>下载并安装 Wireshark</li><li>选择您的 wifi 适配器。</li><li>点击 Capture &gt; Options——正如你在上面的视频中看到的(由<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://hak5.org/&quot;,{&quot;metric25&quot;:1}]]" href="http://hak5.org/" target="_blank" rel="noopener noreferrer"> Hak5 </a> </span>的人提供)，你可以为该适配器选择“在混杂模式下捕获全部”。</li></ul><p class="sc-77igqf-0 bOfvBY">现在您可以开始捕获数据包了。当你开始捕捉时，你会得到很多信息。幸运的是，Wireshark 预见到了这一点，并使其易于过滤。</p><p class="sc-77igqf-0 bOfvBY">因为我们只是想看看您网络上的可疑参与者在做什么，所以请确保有问题的系统处于在线状态。去捕捉几分钟的流量。然后，您可以使用 Wireshark 的内置过滤器根据该设备的 IP 地址过滤流量。<br/></p><p class="sc-77igqf-0 bOfvBY">这样做可以让您快速查看该 IP 地址正在与谁通话，以及他们来回发送什么信息。您可以右键单击这些数据包中的任何一个进行检查，跟踪两端之间的对话，并按 IP 或对话过滤整个捕获。更多信息，请查看 Wireshark 的<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.wireshark.org/docs/wsug_html/#ChWorkDisplayFilterSection&quot;,{&quot;metric25&quot;:1}]]" href="https://www.wireshark.org/docs/wsug_html/#ChWorkDisplayFilterSection" target="_blank" rel="noopener noreferrer">详细过滤指令</a> </span>。</p><p class="sc-77igqf-0 bOfvBY">你可能不知道你在看什么(还不知道)，但这就是一个小侦探的用武之地。<br/></p><h4 class="sc-1bwb26k-1 kpbNNd" id="h291396"><strong>分析粗略活动</strong></h4><p class="sc-77igqf-0 bOfvBY">如果您看到可疑的计算机正在与一个陌生的 IP 地址对话，请使用<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://en.wikipedia.org/wiki/Nslookup&quot;,{&quot;metric25&quot;:1}]]" href="http://en.wikipedia.org/wiki/Nslookup" target="_blank" rel="noopener noreferrer"> nslookup </a> </span>命令(在 Windows 的命令提示符中，或者在 OS X 或 Linux 的终端中)获取其主机名。这可以告诉你很多关于你的电脑正在连接的网络的位置或类型。Wireshark 还会告诉您正在使用的端口，因此可以搜索端口号，看看有哪些应用程序在使用它。</p><p class="sc-77igqf-0 bOfvBY">例如，如果您有一台计算机通过 IRC 或文件传输常用的端口连接到一个陌生的主机名，那么您可能遇到了入侵者。当然，如果你发现设备通过电子邮件或 HTTP/HTTPS 等常用端口连接到知名服务，你可能只是偶然发现了你室友从未告诉你他拥有的平板电脑，或者隔壁有人偷了你的 wifi。无论哪种方式，您都将拥有自己解决问题所需的数据。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h291397"><strong>第四步:玩长时间游戏并记录你的收获</strong></h3><p class="sc-77igqf-0 bOfvBY">当然，当你在寻找他们的时候，并不是你网络上的每个坏演员都会在网上消失。到目前为止，我们已经教会了您如何检查连接的设备，扫描它们以识别它们的真实身份，然后嗅一嗅它们的流量以确保一切都是光明正大的。然而，如果可疑的电脑在晚上你睡觉的时候做着肮脏的工作，或者有人在你整天工作而不在身边检查的时候偷吃你的 wifi，你该怎么办？</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h291398"><strong>使用网络监控软件</strong></h4><p class="sc-77igqf-0 bOfvBY">有几种方法可以解决这个问题。一种选择是使用我们之前提到的类似于<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.glasswire.com/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.glasswire.com/" target="_blank" rel="noopener noreferrer"> Glasswire </a> </span>的程序。当有人连接到你的网络时，这个软件会提醒你。当你早上醒来或下班回家时，你可以看到在你不注意的时候发生了什么。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h291399"><strong>检查路由器日志</strong></h4><p class="sc-77igqf-0 bOfvBY">下一个选择是使用路由器的日志功能。在路由器的故障排除或安全选项中，通常隐藏着一个专用于日志记录的选项卡。您可以记录的数量和信息类型因路由器而异，但选项可能包括传入 IP、目的端口号、由您网络上的设备过滤的传出 IP 或 URL、内部 IP 地址及其 MAC 地址，以及您网络上的哪些设备已经通过 DHCP 向路由器登记了其 IP 地址(以及，通过代理，哪些设备还没有登记)。)它非常健壮，日志运行的时间越长，您可以捕获的信息就越多。</p><p class="sc-77igqf-0 bOfvBY">像 DD-WRT 和番茄这样的定制固件(我们已经向您展示了 <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;http://lifehacker.com/turn-your-60-router-into-a-user-friendly-super-router-344765&quot;,{&quot;metric25&quot;:1}]]" href="http://lifehacker.com/turn-your-60-router-into-a-user-friendly-super-router-344765">如何安装</a> </span>)允许您监控和记录带宽和连接的设备，只要您愿意，甚至可以将这些信息转储到一个文本文件中，供您以后筛选。根据您对路由器的设置，它甚至可以定期将该文件通过电子邮件发送给您，或者将其放在外置硬盘或 NAS 上。</p><p class="sc-77igqf-0 bOfvBY">不管怎样，使用你的路由器经常被忽略的日志记录功能是一个很好的方式来查看，例如，在午夜和每个人都上床睡觉后，你的游戏 PC 突然开始处理和传输大量出站数据，或者你有一个经常喜欢在你的 wifi 上跳跃并在奇数时间开始下载种子的水蛭。<br/></p><h4 class="sc-1bwb26k-1 kpbNNd" id="h291400"><strong>保持 Wireshark 运行</strong></h4><p class="sc-77igqf-0 bOfvBY">你最后的选择，也是核选择，是让 Wireshark 捕获几个小时或几天。这并不是没有听说过，许多网络管理员在真正分析奇怪的网络行为时都会这样做。这是一个很好的方式来牵制坏演员或聊天设备。然而，它确实需要让计算机长时间开着，不断地嗅探网络上的数据包，捕获通过它的一切，这些日志会占用相当大的空间。您可以通过按 IP 或流量类型过滤捕获来精简内容，但如果您不确定您在寻找什么，当您查看甚至几个小时的捕获时，您将有大量数据需要筛选。尽管如此，它肯定会告诉你你需要知道的一切。</p><p class="sc-77igqf-0 bOfvBY">在所有这些情况下，一旦您记录了足够的数据，您将能够找出谁在使用您的网络，何时使用，以及他们的设备是否与您之前制作的网络图相匹配。<br/></p><h3 class="sc-1bwb26k-1 kpbNNd" id="h291401"><strong>第五步:锁定你的网络</strong></h3><p class="sc-77igqf-0 bOfvBY">如果您已经跟踪到这里，您已经确定了应该能够连接到您的家庭网络的设备，那些真正连接的设备，确定了差异，并有希望弄清楚是否有任何不良行为者、意想不到的设备或水蛭在附近游荡。现在你要做的就是处理它们，令人惊讶的是，这是最简单的部分。</p><p class="sc-77igqf-0 bOfvBY">只要你<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;http://lifehacker.com/what-settings-should-i-change-on-my-wi-fi-router-5553789&quot;,{&quot;metric25&quot;:1}]]" href="http://lifehacker.com/what-settings-should-i-change-on-my-wi-fi-router-5553789">锁定你的路由器</a> </span>，Wifi 蚂蟥就会得到开机。在您执行任何其他操作之前，请更改路由器的密码，并关闭 WPS(如果它已打开)。如果有人设法直接登录到您的路由器，您不希望更改其他内容只是为了让他们登录并重新获得访问权限。请确保您使用的是一个很好的、很难被暴力破解的密码。<br/></p><p class="sc-77igqf-0 bOfvBY">接下来，检查固件更新。如果你的水蛭利用了你的路由器固件中的漏洞或弱点，这将阻止他们——当然，假设漏洞已经被修补。最后，确保你的无线安全模式设置为 WPA2(因为 WPA 和 WEP 是<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;http://lifehacker.com/how-to-crack-a-wi-fi-password-5953047&quot;,{&quot;metric25&quot;:1}]]" href="http://lifehacker.com/how-to-crack-a-wi-fi-password-5953047">非常容易破解</a> </span>)，并把你的 wifi 密码改为另一个好的、不能被暴力破解的长密码。然后，应该能够重新连接的设备是您提供了新密码的设备。<br/></p><p class="sc-77igqf-0 bOfvBY">这应该可以解决那些盗用你的 wifi，在你的网络而不是他们的网络上下载的人。这也有助于有线安全。如果可以的话，你还应该采取<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;http://lifehacker.com/the-most-important-security-settings-to-change-on-your-1573958554&quot;,{&quot;metric25&quot;:1}]]" href="http://lifehacker.com/the-most-important-security-settings-to-change-on-your-1573958554">几个额外的无线安全步骤</a> </span>，比如关闭远程管理或者禁用 UPnP。<br/></p><p class="sc-77igqf-0 bOfvBY">对于你的有线电脑上的坏演员，你有一些狩猎要做。如果它实际上是一个物理设备，它应该直接连接到您的路由器。开始追踪电缆，并与你的室友或家人交谈，看看发生了什么。最糟糕的情况是，你可以随时重新登录到你的路由器，并完全阻止可疑的 IP 地址。当它停止工作时，机顶盒或悄悄插入电源的计算机的主人会很快运行起来。</p><p class="sc-77igqf-0 bOfvBY">然而，这里更大的担忧是被入侵的计算机。例如，一台被劫持并加入僵尸网络进行通宵比特币挖掘的台式机，或者一台感染了恶意软件的机器，它会给家里打电话，并将你的个人信息发送到天知道的地方，这些都可能是坏事。</p><p class="sc-77igqf-0 bOfvBY">一旦将搜索范围缩小到特定的计算机，就该找出每台计算机的问题所在了。如果你真的担心，采取安全工程师的方法来解决问题:一旦你的机器被拥有，它们就不再值得信任。吹走它们，重新安装，并从备份中恢复。(<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;http://lifehacker.com/theres-no-excuse-for-not-backing-up-your-computer-do-1547987206&quot;,{&quot;metric25&quot;:1}]]" href="http://lifehacker.com/theres-no-excuse-for-not-backing-up-your-computer-do-1547987206">)你有备份你的数据，不是吗</a> </span>？)请确保您密切关注您的电脑—您不会希望从受感染的备份中恢复并重新开始该过程。<br/></p><p class="sc-77igqf-0 bOfvBY">如果你愿意卷起袖子，你可以给自己找一个可靠的防病毒工具和一个反恶意软件按需扫描程序(<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;http://lifehacker.com/the-difference-between-antivirus-and-anti-malware-and-1176942277&quot;,{&quot;metric25&quot;:1}]]" href="http://lifehacker.com/the-difference-between-antivirus-and-anti-malware-and-1176942277">是的，你需要两个</a> </span>)，并尝试清理有问题的电脑。如果您看到特定类型的应用程序的流量，请查看它是否不是恶意软件，或者只是某人安装的行为不良的东西。继续扫描，直到一切都变得干净，并继续检查电脑的流量，以确保一切正常。<br/></p><p class="sc-77igqf-0 bOfvBY">谈到网络监控和安全性，我们在这里只是触及了皮毛。专家们使用大量特定的工具和方法来保护他们的网络，但是如果你是你家和家人的网络管理员，这些步骤将对你有用。</p><p class="sc-77igqf-0 bOfvBY">根除网络上的可疑设备或水蛭可能是一个漫长的过程，需要侦查和警惕。尽管如此，我们并不是要鼓动妄想症。很可能你不会发现任何异常，那些缓慢的下载或糟糕的 wifi 速度完全是另外一回事。即便如此，知道如何探测网络以及如果发现不熟悉的东西该怎么做也是有好处的。记住把你的力量用在好的方面。</p><p class="sc-77igqf-0 bOfvBY"><em>这个故事最初发表于 2014 年 10 月，并在 2019 年 10 月更新了当前的信息和资源。2012 年 3 月 3 日更新了新的详细信息。</em></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-6X5TwvGXHP0&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-6X5TwvGXHP0&start=0) 
+
+现在，您应该有一个您知道和信任的设备列表，以及一个您发现连接到网络的设备列表。幸运的话，这里就完成了，所有的东西要么匹配，要么不言自明(例如，就像当前关闭的电视)。
+
+但是，如果您看到任何您不认识的参与者，运行与设备不对应的服务(为什么我的 Roku 运行 postgresql？)，或者别的什么感觉掉了，是时候做一点嗅嗅了。也就是数据包嗅探。
+
+当两台计算机在您的网络上或通过互联网进行通信时，它们相互发送称为“数据包”的信息。放在一起，这些数据包产生了复杂的数据流，构成了我们观看的视频或下载的文档。数据包嗅探是捕获和检查这些信息的过程，以查看它们的去向和内容。
+
+#### **安装 Wireshark**
+
+为此，我们需要 [Wireshark](https://www.wireshark.org/) 。这是一个跨平台的网络监控工具，我们曾经在 [中使用它来嗅探数据包，我们的指南是嗅出密码和 cookie](http://lifehacker.com/a-guide-to-sniffing-out-passwords-and-cookies-and-how-5853483)。在这种情况下，我们将以类似的方式使用它，但我们的目标不是捕获任何特定的内容，只是监视网络中传输的流量类型。
+
+为此，您需要在“ [混杂模式](http://wiki.wireshark.org/CaptureSetup/WLAN#Promiscuous_mode) ”下通过 wifi 运行 Wireshark 这意味着它不只是寻找进出你的电脑的数据包，而是收集它在你的网络上看到的任何数据包。
+
+按照以下步骤进行设置:
+
+*   下载并安装 Wireshark
+*   选择您的 wifi 适配器。
+*   点击 Capture > Options——正如你在上面的视频中看到的(由 [Hak5](http://hak5.org/) 的人提供)，你可以为该适配器选择“在混杂模式下捕获全部”。
+
+现在您可以开始捕获数据包了。当你开始捕捉时，你会得到很多信息。幸运的是，Wireshark 预见到了这一点，并使其易于过滤。
+
+因为我们只是想看看您网络上的可疑参与者在做什么，所以请确保有问题的系统处于在线状态。去捕捉几分钟的流量。然后，您可以使用 Wireshark 的内置过滤器根据该设备的 IP 地址过滤流量。
+
+这样做可以让您快速查看该 IP 地址正在与谁通话，以及他们来回发送什么信息。您可以右键单击这些数据包中的任何一个进行检查，跟踪两端之间的对话，并按 IP 或对话过滤整个捕获。更多信息，请查看 Wireshark 的 [详细过滤指令](https://www.wireshark.org/docs/wsug_html/#ChWorkDisplayFilterSection) 。
+
+你可能不知道你在看什么(还不知道)，但这就是一个小侦探的用武之地。
+
+#### **分析粗略活动**
+
+如果您看到可疑的计算机正在与一个陌生的 IP 地址对话，请使用 [nslookup](http://en.wikipedia.org/wiki/Nslookup) 命令(在 Windows 的命令提示符中，或者在 OS X 或 Linux 的终端中)获取其主机名。这可以告诉你很多关于你的电脑正在连接的网络的位置或类型。Wireshark 还会告诉您正在使用的端口，因此可以搜索端口号，看看有哪些应用程序在使用它。
+
+例如，如果您有一台计算机通过 IRC 或文件传输常用的端口连接到一个陌生的主机名，那么您可能遇到了入侵者。当然，如果你发现设备通过电子邮件或 HTTP/HTTPS 等常用端口连接到知名服务，你可能只是偶然发现了你室友从未告诉你他拥有的平板电脑，或者隔壁有人偷了你的 wifi。无论哪种方式，您都将拥有自己解决问题所需的数据。
+
+### **第四步:玩长时间游戏并记录你的收获**
+
+当然，当你在寻找他们的时候，并不是你网络上的每个坏演员都会在网上消失。到目前为止，我们已经教会了您如何检查连接的设备，扫描它们以识别它们的真实身份，然后嗅一嗅它们的流量以确保一切都是光明正大的。然而，如果可疑的电脑在晚上你睡觉的时候做着肮脏的工作，或者有人在你整天工作而不在身边检查的时候偷吃你的 wifi，你该怎么办？
+
+#### **使用网络监控软件**
+
+有几种方法可以解决这个问题。一种选择是使用我们之前提到的类似于 [Glasswire](https://www.glasswire.com/) 的程序。当有人连接到你的网络时，这个软件会提醒你。当你早上醒来或下班回家时，你可以看到在你不注意的时候发生了什么。
+
+#### **检查路由器日志**
+
+下一个选择是使用路由器的日志功能。在路由器的故障排除或安全选项中，通常隐藏着一个专用于日志记录的选项卡。您可以记录的数量和信息类型因路由器而异，但选项可能包括传入 IP、目的端口号、由您网络上的设备过滤的传出 IP 或 URL、内部 IP 地址及其 MAC 地址，以及您网络上的哪些设备已经通过 DHCP 向路由器登记了其 IP 地址(以及，通过代理，哪些设备还没有登记)。)它非常健壮，日志运行的时间越长，您可以捕获的信息就越多。
+
+像 DD-WRT 和番茄这样的定制固件(我们已经向您展示了 [如何安装](http://lifehacker.com/turn-your-60-router-into-a-user-friendly-super-router-344765) )允许您监控和记录带宽和连接的设备，只要您愿意，甚至可以将这些信息转储到一个文本文件中，供您以后筛选。根据您对路由器的设置，它甚至可以定期将该文件通过电子邮件发送给您，或者将其放在外置硬盘或 NAS 上。
+
+不管怎样，使用你的路由器经常被忽略的日志记录功能是一个很好的方式来查看，例如，在午夜和每个人都上床睡觉后，你的游戏 PC 突然开始处理和传输大量出站数据，或者你有一个经常喜欢在你的 wifi 上跳跃并在奇数时间开始下载种子的水蛭。
+
+#### **保持 Wireshark 运行**
+
+你最后的选择，也是核选择，是让 Wireshark 捕获几个小时或几天。这并不是没有听说过，许多网络管理员在真正分析奇怪的网络行为时都会这样做。这是一个很好的方式来牵制坏演员或聊天设备。然而，它确实需要让计算机长时间开着，不断地嗅探网络上的数据包，捕获通过它的一切，这些日志会占用相当大的空间。您可以通过按 IP 或流量类型过滤捕获来精简内容，但如果您不确定您在寻找什么，当您查看甚至几个小时的捕获时，您将有大量数据需要筛选。尽管如此，它肯定会告诉你你需要知道的一切。
+
+在所有这些情况下，一旦您记录了足够的数据，您将能够找出谁在使用您的网络，何时使用，以及他们的设备是否与您之前制作的网络图相匹配。
+
+### **第五步:锁定你的网络**
+
+如果您已经跟踪到这里，您已经确定了应该能够连接到您的家庭网络的设备，那些真正连接的设备，确定了差异，并有希望弄清楚是否有任何不良行为者、意想不到的设备或水蛭在附近游荡。现在你要做的就是处理它们，令人惊讶的是，这是最简单的部分。
+
+只要你 [锁定你的路由器](http://lifehacker.com/what-settings-should-i-change-on-my-wi-fi-router-5553789) ，Wifi 蚂蟥就会得到开机。在您执行任何其他操作之前，请更改路由器的密码，并关闭 WPS(如果它已打开)。如果有人设法直接登录到您的路由器，您不希望更改其他内容只是为了让他们登录并重新获得访问权限。请确保您使用的是一个很好的、很难被暴力破解的密码。
+
+接下来，检查固件更新。如果你的水蛭利用了你的路由器固件中的漏洞或弱点，这将阻止他们——当然，假设漏洞已经被修补。最后，确保你的无线安全模式设置为 WPA2(因为 WPA 和 WEP 是 [非常容易破解](http://lifehacker.com/how-to-crack-a-wi-fi-password-5953047) )，并把你的 wifi 密码改为另一个好的、不能被暴力破解的长密码。然后，应该能够重新连接的设备是您提供了新密码的设备。
+
+这应该可以解决那些盗用你的 wifi，在你的网络而不是他们的网络上下载的人。这也有助于有线安全。如果可以的话，你还应该采取 [几个额外的无线安全步骤](http://lifehacker.com/the-most-important-security-settings-to-change-on-your-1573958554) ，比如关闭远程管理或者禁用 UPnP。
+
+对于你的有线电脑上的坏演员，你有一些狩猎要做。如果它实际上是一个物理设备，它应该直接连接到您的路由器。开始追踪电缆，并与你的室友或家人交谈，看看发生了什么。最糟糕的情况是，你可以随时重新登录到你的路由器，并完全阻止可疑的 IP 地址。当它停止工作时，机顶盒或悄悄插入电源的计算机的主人会很快运行起来。
+
+然而，这里更大的担忧是被入侵的计算机。例如，一台被劫持并加入僵尸网络进行通宵比特币挖掘的台式机，或者一台感染了恶意软件的机器，它会给家里打电话，并将你的个人信息发送到天知道的地方，这些都可能是坏事。
+
+一旦将搜索范围缩小到特定的计算机，就该找出每台计算机的问题所在了。如果你真的担心，采取安全工程师的方法来解决问题:一旦你的机器被拥有，它们就不再值得信任。吹走它们，重新安装，并从备份中恢复。( [)你有备份你的数据，不是吗](http://lifehacker.com/theres-no-excuse-for-not-backing-up-your-computer-do-1547987206) ？)请确保您密切关注您的电脑—您不会希望从受感染的备份中恢复并重新开始该过程。
+
+如果你愿意卷起袖子，你可以给自己找一个可靠的防病毒工具和一个反恶意软件按需扫描程序( [是的，你需要两个](http://lifehacker.com/the-difference-between-antivirus-and-anti-malware-and-1176942277) )，并尝试清理有问题的电脑。如果您看到特定类型的应用程序的流量，请查看它是否不是恶意软件，或者只是某人安装的行为不良的东西。继续扫描，直到一切都变得干净，并继续检查电脑的流量，以确保一切正常。
+
+谈到网络监控和安全性，我们在这里只是触及了皮毛。专家们使用大量特定的工具和方法来保护他们的网络，但是如果你是你家和家人的网络管理员，这些步骤将对你有用。
+
+根除网络上的可疑设备或水蛭可能是一个漫长的过程，需要侦查和警惕。尽管如此，我们并不是要鼓动妄想症。很可能你不会发现任何异常，那些缓慢的下载或糟糕的 wifi 速度完全是另外一回事。即便如此，知道如何探测网络以及如果发现不熟悉的东西该怎么做也是有好处的。记住把你的力量用在好的方面。
+
+*这个故事最初发表于 2014 年 10 月，并在 2019 年 10 月更新了当前的信息和资源。2012 年 3 月 3 日更新了新的详细信息。*

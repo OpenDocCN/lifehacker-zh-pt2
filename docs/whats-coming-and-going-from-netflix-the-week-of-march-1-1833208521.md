@@ -1,7 +1,35 @@
 # 2019 年 3 月 18 日这一周，网飞有哪些活动
 
-> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-march-1-1833208521>
+> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week-of-March-1-1833208521](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-march-1-1833208521)
 
 我讨厌传记片！我更愿意看传记纪录片，而不是看演员假装成活生生的人。当然，你可能会因为你的表演获得奥斯卡奖(参见拉米·马雷克)，但我不完全确定为什么，因为在传记电影中表演涉及太多模仿，这似乎是浪费时间。给我拿真的麦考伊！(还是真正的水星！).出于这些原因，我本来打算讨厌网飞的杂色传记片《尘埃》(T1)，但后来我看了预告片。忘了《女王》的 CGI 再现吧——这部电影有镜头捕捉不到的性、毒品、火灾、斗殴和车祸。它看起来肮脏、令人发指，但也有几分不错——此外，它是根据因游戏而出名的*的尼尔·史特劳斯的书改编的，所以你知道这将是一场令人震惊的灾难！我可能会后悔，但我为这部垃圾电影打破了我的非传记片原则。* 
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video--NOp5ROn1HE&amp;start=0" data-chomp-id="-NOp5ROn1HE" data-recommend-id="youtube://-NOp5ROn1HE" id="youtube--NOp5ROn1HE" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="-NOp5ROn1HE" data-recommend-id="youtube://-NOp5ROn1HE" id="youtube--NOp5ROn1HE" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">艾米·舒默的新单口相声特辑<em/>(周二)<!-- -->的预告片看起来很糟糕，但我还是会看。她结婚了，还怀孕了，所以我有点激动地看到这些事情如何扭曲了她普遍的厌世情绪。我祈祷这个特别节目不会以一个“温暖人心”的音符结束。如果我们想对人性感觉良好，我们有<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-februar-1832562443&quot;,{&quot;metric25&quot;:1}]]" href="https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-februar-1832562443">一大堆雷·罗马诺特别节目</a> </span>可以看。<br/></p><div class="bxm4mm-2 hKBnez"><div class="bxm4mm-1 goloRq instream-native-video instream-permalink instream-native-video--mobile"><div class="sc-1h0epat-0 lepUzz"><div class="sc-1h0epat-1 gRjwiT"><div class="sc-235a11-0 egwski">Watch</div></div><div class="sc-1wkneyl-0 hxLRyg video-html5-playlist" data-playlist="192590,192585,192428" data-current="192590"><div class="video-html5-loaded"><div class="video-html5-player"><div class="lhhce6-0 bVyOPq video-html5 autoplay muted mobile" data-video-id="192590" data-position="sidebar" data-video-title="How to Make a Quick and Easy Crumb Crust" data-video-network="lifehacker" data-video-duration="135"></div></div></div></div></div></div></div><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><h3 class="sc-1bwb26k-1 kpbNNd" id="h292637"><br/></h3><div class="ooo3c9-0 cmUFVa align--bleed has-video media-large video-embed embed-frame"><span class="flex-video widescreen"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-SdOtvQkrNZY&amp;start=0" data-chomp-id="SdOtvQkrNZY" data-recommend-id="youtube://SdOtvQkrNZY" id="youtube-SdOtvQkrNZY" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/><span data-chomp-id="SdOtvQkrNZY" data-recommend-id="youtube://SdOtvQkrNZY" id="youtube-SdOtvQkrNZY" data-recommended="false" class="js_recommend"/></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h292638"><strong>本周到达</strong></h3><h4 class="sc-1bwb26k-1 kpbNNd" id="h292639"><strong>3 月 19 日星期二</strong>T2】</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>艾米·舒默成长—网飞原创</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h292640"><strong>3 月 21 日星期四</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>卡洛&amp;马利克—网飞原创</em>T2】</li><li><em>查理的彩色城市——网飞原创</em> <br/></li><li><em>德里犯罪—网飞原版</em>T2】</li><li><em>犯罪史:座谈会 netflix 原件</em> <br/></li><li><em>海市蜃楼——网飞电影</em> <br/></li><li><em>最美的东西——网飞原创</em> <br/></li><li><em>翻拍:迈阿密戏班大屠杀——网飞原版</em> <br/></li><li><em>卖夕阳—网飞原创</em> <br/></li><li><em>污垢——网飞电影</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h292641">这周离开</h3><h4 class="sc-1bwb26k-1 kpbNNd" id="h292642"><strong>3 月 18 日出发</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>美女与野兽</em></li></ul><div id="mgid-container" data-placement="2" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video--NOp5ROn1HE&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video--NOp5ROn1HE&start=0) 
+
+艾米·舒默的新单口相声特辑*(周二)的预告片看起来很糟糕，但我还是会看。她结婚了，还怀孕了，所以我有点激动地看到这些事情如何扭曲了她普遍的厌世情绪。我祈祷这个特别节目不会以一个“温暖人心”的音符结束。如果我们想对人性感觉良好，我们有 [一大堆雷·罗马诺特别节目](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-februar-1832562443) 可以看。* 
+
+*Watch* *[https://lifehacker.com/embed/inset/iframe?id=youtube-video-SdOtvQkrNZY&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-SdOtvQkrNZY&start=0)* 
+
+### ***本周到达***
+
+#### ***3 月 19 日星期二**T2】*
+
+*   **艾米·舒默成长—网飞原创**
+
+#### ***3 月 21 日星期四***
+
+*   **卡洛&马利克—网飞原创*T2】*
+*   **查理的彩色城市——网飞原创** 
+*   **德里犯罪—网飞原版*T2】*
+*   **犯罪史:座谈会 netflix 原件** 
+*   **海市蜃楼——网飞电影** 
+*   **最美的东西——网飞原创** 
+*   **翻拍:迈阿密戏班大屠杀——网飞原版** 
+*   **卖夕阳—网飞原创** 
+*   **污垢——网飞电影**
+
+### *这周离开*
+
+#### ***3 月 18 日出发***
+
+*   **美女与野兽**

@@ -1,10 +1,10 @@
 # 用这个网站停止用你的病毒之手触摸你该死的脸
 
-> 原文：<https://lifehacker.com/use-this-website-to-stop-touching-your-damn-face-with-y-1842154454>
+> 原文:[https://life hacker . com/use-this-website-to-stop-touch-your-damn-face with-y-1842154454](https://lifehacker.com/use-this-website-to-stop-touching-your-damn-face-with-y-1842154454)
 
 我喜欢简单的小工具，帮助你更好地改变你的行为——番茄红素；所有那些提醒你喝水的 apps 现在，好老“不要碰你的脸”点 com。
 
-
+Watch
 
 对于那些害怕冠状病毒的人，或者只是想养成更好的习惯，因为它与任何传染病有关，我建议暂时保留“ [不要碰你的脸](https://donottouchyourface.com/) ”作为固定的浏览器标签。或者，更好的办法是，让它在你孩子的电脑上运行，这样他们就不会再用粗糙的、没洗过的手去摸自己的脸了。
 
@@ -20,4 +20,4 @@
 
 虽然我看不到很多人会永远使用这个方法，但这仍然是一个有趣的摆脱坏习惯的小方法。照我说的做，不要照我做的做，好吗？
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-mA1wqjaeKj0&amp;start=0" data-chomp-id="mA1wqjaeKj0" data-recommend-id="youtube://mA1wqjaeKj0" id="youtube-mA1wqjaeKj0" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="mA1wqjaeKj0" data-recommend-id="youtube://mA1wqjaeKj0" id="youtube-mA1wqjaeKj0" data-recommended="false" class="js_recommend"/></span></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-mA1wqjaeKj0&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-mA1wqjaeKj0&start=0)

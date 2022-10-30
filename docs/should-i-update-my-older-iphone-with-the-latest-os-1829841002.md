@@ -1,10 +1,10 @@
 # 我应该用最新的操作系统更新我的旧 iPhone 吗？
 
-> 原文：<https://lifehacker.com/should-i-update-my-older-iphone-with-the-latest-os-1829841002>
+> 原文:[https://life hacker . com/should-I-update-my-older-iphone-with-the-latest-OS-1829841002](https://lifehacker.com/should-i-update-my-older-iphone-with-the-latest-os-1829841002)
 
 嗨！在本周的[Tech 911](https://lifehacker.com/c/tech-911)——试图回答你所有通过电子邮件提出的问题的专栏(请 [通过电子邮件向我们发送你的问题](mailto:david.murphy@lifehacker.com?subject=Tech%20911))——中，我们将关注一个比你最初想象的影响更多人的问题:更新。具体来说，你真的应该把你的手机升级到最新最好的软件或操作系统吗？如果更新让情况变得更糟怎么办？
 
-
+Watch
 
 Lifehacker 的读者迈克写道:
 
@@ -44,4 +44,14 @@ Lifehacker 的读者迈克写道:
 
 ****[](https://www.youtube.com/watch?v=5oTYhtEEZWI)****
 
-******<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-5oTYhtEEZWI&amp;start=0" data-chomp-id="5oTYhtEEZWI" data-recommend-id="youtube://5oTYhtEEZWI" id="youtube-5oTYhtEEZWI" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="5oTYhtEEZWI" data-recommend-id="youtube://5oTYhtEEZWI" id="youtube-5oTYhtEEZWI" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">我认为 iOS 12 更新是安全的——性能似乎很好，因为更新似乎没有让旧 iPhones 慢下来。至于你提到的空间问题，那是公平的。尝试将 iPhone 连接到电脑，并使用 iTunes 的更新版本将 iOS 12 安装到您的设备上。不要执行无线更新。这将为您节省尽可能多的空间。你也可以使用存储在你设备上的东西进行手术，我已经在<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://lifehacker.com/how-to-free-up-space-on-your-iphone-1827454635&quot;,{&quot;metric25&quot;:1}]]" href="https://lifehacker.com/how-to-free-up-space-on-your-iphone-1827454635">中介绍过</a> </span>在 iOS 中释放更多空间的一些技巧。</p><p class="sc-77igqf-0 bOfvBY">如果你想发疯——例如，因为你的设备显示大量空间用于一些神秘的“其他”类别——你也可以尝试一个更硬的更新选项。为你的 iPhone 创建一个新的备份，将其插入你的电脑，打开 iTunes，使用“恢复”功能安装 iOS 12 并从头开始，我用引号括起来，因为你最终会从你制作的备份中恢复你的 iPhone。</p><p class="sc-77igqf-0 bOfvBY">如果你需要更多的帮助或建议，请告诉我！一旦你安装了 iOS 12，一定要看一眼<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://lifehacker.com/the-best-new-features-to-try-in-ios-12-1829117648&quot;,{&quot;metric25&quot;:1}]]" href="https://lifehacker.com/the-best-new-features-to-try-in-ios-12-1829117648">你能用它做的所有漂亮的事情</a> </span>。</p><p class="sc-77igqf-0 bOfvBY"><em> <small>你是否有一个让你夜不能寐的技术问题？厌倦了对您的 Windows 或 Mac 进行故障诊断？寻找可以用来完成特定任务的应用程序、浏览器扩展或实用程序的建议？让我们知道！在下面的评论或者邮件中告诉我们</small></em><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;mailto:david.murphy@lifehacker.com?subject=Tech%20911&quot;,{&quot;metric25&quot;:1}]]" href="mailto:david.murphy@lifehacker.com?subject=Tech%20911"><em><small/></em></a></span><em><small>。</small>T15】</em></p> </body> </html></iframe>******
+ ******[https://lifehacker.com/embed/inset/iframe?id=youtube-video-5oTYhtEEZWI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-5oTYhtEEZWI&start=0)****** 
+
+******我认为 iOS 12 更新是安全的——性能似乎很好，因为更新似乎没有让旧 iPhones 慢下来。至于你提到的空间问题，那是公平的。尝试将 iPhone 连接到电脑，并使用 iTunes 的更新版本将 iOS 12 安装到您的设备上。不要执行无线更新。这将为您节省尽可能多的空间。你也可以使用存储在你设备上的东西进行手术，我已经在 [中介绍过](https://lifehacker.com/how-to-free-up-space-on-your-iphone-1827454635) 在 iOS 中释放更多空间的一些技巧。******
+
+******如果你想发疯——例如，因为你的设备显示大量空间用于一些神秘的“其他”类别——你也可以尝试一个更硬的更新选项。为你的 iPhone 创建一个新的备份，将其插入你的电脑，打开 iTunes，使用“恢复”功能安装 iOS 12 并从头开始，我用引号括起来，因为你最终会从你制作的备份中恢复你的 iPhone。******
+
+******如果你需要更多的帮助或建议，请告诉我！一旦你安装了 iOS 12，一定要看一眼 [你能用它做的所有漂亮的事情](https://lifehacker.com/the-best-new-features-to-try-in-ios-12-1829117648) 。******
+
+*******<small>你是否有一个让你夜不能寐的技术问题？厌倦了对您的 Windows 或 Mac 进行故障诊断？寻找可以用来完成特定任务的应用程序、浏览器扩展或实用程序的建议？让我们知道！在下面的评论或者邮件中告诉我们</small>*[*<small></small>*](mailto:david.murphy@lifehacker.com?subject=Tech%20911)<small>*<small>。</small>T15】*</small>******
+
+******<small></small>******

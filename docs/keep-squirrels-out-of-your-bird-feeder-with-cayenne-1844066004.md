@@ -1,10 +1,10 @@
 # 用卡宴让松鼠远离你的喂鸟器
 
-> 原文：<https://lifehacker.com/keep-squirrels-out-of-your-bird-feeder-with-cayenne-1844066004>
+> 原文:[https://life hacker . com/keep-squirrels-out-of-your-bird-feeder-with cayenne-1844066004](https://lifehacker.com/keep-squirrels-out-of-your-bird-feeder-with-cayenne-1844066004)
 
 松鼠霸占了你为邻居鸟类精心准备的所有种子吗？看着他们如此无耻地偷窃，你是否感到厌倦？—当当地的蓝鸟和红翼乌鸫在安全的距离观看时，什么不是它们的？粗鲁。为了缓解这个问题，你所要做的就是给鸟食加点香料。
 
-
+Watch
 
 [Reddit 用户 u/kaganey](https://www.reddit.com/r/LifeProTips/comments/h9qei9/lpt_mix_cayenne_pepper_in_with_your_birdseed_to/) 解释道:
 
@@ -16,4 +16,8 @@
 
 你可以把喂食器挂在一根柱子上(松鼠可能还会爬上来),然后，正如我们的资深健康编辑 Beth Skwarecki 建议的那样，在上面喷洒 PAM。不说别的，结果都是爆笑。请看， [这个 YouTube 视频](https://www.youtube.com/watch?time_continue=2&v=W-MdYjk0sF4&feature=emb_logo) :
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-W-MdYjk0sF4&amp;start=0" data-chomp-id="W-MdYjk0sF4" data-recommend-id="youtube://W-MdYjk0sF4" id="youtube-W-MdYjk0sF4" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="W-MdYjk0sF4" data-recommend-id="youtube://W-MdYjk0sF4" id="youtube-W-MdYjk0sF4" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">下雨后你也需要重新涂抹。</p><p class="sc-77igqf-0 bOfvBY">或者也许你喜欢松鼠，我不知道。在这种情况下，就让他们继续吃食物；这取决于你。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-W-MdYjk0sF4&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-W-MdYjk0sF4&start=0) 
+
+下雨后你也需要重新涂抹。
+
+或者也许你喜欢松鼠，我不知道。在这种情况下，就让他们继续吃食物；这取决于你。

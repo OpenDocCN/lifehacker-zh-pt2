@@ -1,10 +1,10 @@
 # 最佳密码管理器
 
-> 原文：<https://lifehacker.com/the-five-best-password-managers-5529133>
+> 原文:[https://life hacker . com/the-five-best-password-managers-5529133](https://lifehacker.com/the-five-best-password-managers-5529133)
 
 上周，我们要求您在您最喜欢的密码管理器 上填写 [。在梳理了您的回答，测试了一些新的回答，并了解了其他流行的选择之后，我们列出了最佳密码管理器。](https://lifehacker.com/tell-us-about-your-favorite-password-manager-1835910472) 
 
-
+Watch
 
 ### [](https://bitwarden.com/)****(免费)****
 
@@ -42,4 +42,10 @@
 
 ### ****[**1 密码**](https://1password.com/)**($ 3/月)******
 
-****<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-mcly2-b1W20&amp;start=0" data-chomp-id="mcly2-b1W20" data-recommend-id="youtube://mcly2-b1W20" id="youtube-mcly2-b1W20" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="mcly2-b1W20" data-recommend-id="youtube://mcly2-b1W20" id="youtube-mcly2-b1W20" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">虽然它可能比这份名单上的其他人得到的票数少，但<span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://1password.com/&quot;,{&quot;metric25&quot;:1}]]" href="https://1password.com/" target="_blank" rel="noopener noreferrer"><strong>1 密码</strong> </a> </span>完成了我们的选择。与我们列表中的其他人不同，1Password 是一个高级密码管理器，没有免费版本，只有 30 天免费试用<span></span>。</p><p class="sc-77igqf-0 bOfvBY">个人选项每月 3 美元，包括无限制的加密密码存储，1GB 的文件存储，2FA 保护，以及在国外为您的帐户增加额外安全性的“旅行模式”，以及跨 Mac，iOS，Windows，Android，Linux 和 Chrome OS 的多设备访问。1Password 是迄今为止我们最喜欢的<em>外观的</em>密码管理器，其凭证共享功能(适用于也使用 1Password 的其他家庭成员或同事)强大且易于使用。我们喜欢 1Password 用来向您展示您的密码是否<em>实际上</em>安全的所有不同技术，包括将它们与已知漏洞列表进行比较。</p><p class="sc-77igqf-0 bOfvBY"><em>这篇文章最初由艾伦·亨利于 2015 年 1 月发表，并于 2019 年 7 月 5 日更新，以提供更全面的最新信息。</em></p> </body> </html></iframe>****
+ ****[https://lifehacker.com/embed/inset/iframe?id=youtube-video-mcly2-b1W20&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-mcly2-b1W20&start=0)**** 
+
+****虽然它可能比这份名单上的其他人得到的票数少，但[**1 密码**](https://1password.com/) 完成了我们的选择。与我们列表中的其他人不同，1Password 是一个高级密码管理器，没有免费版本，只有 30 天免费试用。****
+
+****个人选项每月 3 美元，包括无限制的加密密码存储，1GB 的文件存储，2FA 保护，以及在国外为您的帐户增加额外安全性的“旅行模式”，以及跨 Mac，iOS，Windows，Android，Linux 和 Chrome OS 的多设备访问。1Password 是迄今为止我们最喜欢的*外观的*密码管理器，其凭证共享功能(适用于也使用 1Password 的其他家庭成员或同事)强大且易于使用。我们喜欢 1Password 用来向您展示您的密码是否*实际上*安全的所有不同技术，包括将它们与已知漏洞列表进行比较。****
+
+*****这篇文章最初由艾伦·亨利于 2015 年 1 月发表，并于 2019 年 7 月 5 日更新，以提供更全面的最新信息。*****

@@ -1,10 +1,10 @@
 # 如何培养一个积极分子
 
-> 原文：<https://lifehacker.com/how-to-raise-an-activist-1836888783>
+> 原文:[https://lifehacker.com/how-to-raise-an-activist-1836888783](https://lifehacker.com/how-to-raise-an-activist-1836888783)
 
 在过去的几年里，我承认有过这样的时刻，我举起双手说，“要靠我们的孩子来收拾我们给他们制造的烂摊子。他们似乎已经比我们更有能力了。”当然，我更希望在我们把世界交给他们之前，我们能更好地处理枪支管制、气候变化和侵犯人权等问题。但是现实地说，在他们的一生中，他们很可能要攀登几座主要的环境和政治山峰。
 
-
+Watch
 
 仅仅带他们和我们一起投票并认为这是他们的公民义务已经不够了(尽管，是的，我们也需要继续这样做)。我们不仅要培养他们关心他人，还要将这种关心付诸行动。
 
@@ -26,4 +26,22 @@
 
 *梅根汗·马克尔*
 
-*<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-tfaGleA4qYo&amp;start=0" data-chomp-id="tfaGleA4qYo" data-recommend-id="youtube://tfaGleA4qYo" id="youtube-tfaGleA4qYo" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="tfaGleA4qYo" data-recommend-id="youtube://tfaGleA4qYo" id="youtube-tfaGleA4qYo" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">Complex 有一个很大的儿童活动家<span></span>名单，他们年仅六岁，致力于解决各种问题，从教育到气候变化到儿童权利。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h289967">鼓励直接参与</h3><p class="sc-77igqf-0 bOfvBY">激进主义是一小步一小步的，但也是身体上的展示。为当地寄养机构的节日派对捐赠玩具很棒。实际上，和社工一起去买玩具，然后在派对上把礼物发给孩子们会更好。</p><p class="sc-77igqf-0 bOfvBY">孩子和成年人，就此而言，当他们与受影响的人互动时，会觉得与问题更有关联。这是战斗的燃料。通过社区、学校或网络团体找到其他与他们同龄的志趣相投的活动家也很有帮助，他们可以帮助他们感觉到他们在这项事业中有盟友。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h289968">和他们在一起</h3><p class="sc-77igqf-0 bOfvBY">告诉他们，对他们重要的东西对你也很重要。准备好他们在附近游说所需的写字板，帮忙装饰抗议的标志，打开你的客厅(并提供小吃),参加他们和其他活动人士组织的计划会议。</p><p class="sc-77igqf-0 bOfvBY">如果你认真对待他们，他们也会认真对待自己。然后，也许他们真的能够解决一些我们留给他们的烂摊子。</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><em>更多来自 Lifehacker 的内容，一定要在 Instagram 上关注我们</em><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.instagram.com/lifehackerdotcom/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.instagram.com/lifehackerdotcom/" target="_blank" rel="noopener noreferrer"><em>@ lifehackerdotcom</em></a></span><em>。</em></p> </body> </html></iframe>*
+ *[https://lifehacker.com/embed/inset/iframe?id=youtube-video-tfaGleA4qYo&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-tfaGleA4qYo&start=0)* 
+
+*Complex 有一个很大的儿童活动家名单，他们年仅六岁，致力于解决各种问题，从教育到气候变化到儿童权利。*
+
+### *鼓励直接参与*
+
+*激进主义是一小步一小步的，但也是身体上的展示。为当地寄养机构的节日派对捐赠玩具很棒。实际上，和社工一起去买玩具，然后在派对上把礼物发给孩子们会更好。*
+
+*孩子和成年人，就此而言，当他们与受影响的人互动时，会觉得与问题更有关联。这是战斗的燃料。通过社区、学校或网络团体找到其他与他们同龄的志趣相投的活动家也很有帮助，他们可以帮助他们感觉到他们在这项事业中有盟友。*
+
+### *和他们在一起*
+
+*告诉他们，对他们重要的东西对你也很重要。准备好他们在附近游说所需的写字板，帮忙装饰抗议的标志，打开你的客厅(并提供小吃),参加他们和其他活动人士组织的计划会议。*
+
+*如果你认真对待他们，他们也会认真对待自己。然后，也许他们真的能够解决一些我们留给他们的烂摊子。*
+
+* * *
+
+**更多来自 Lifehacker 的内容，一定要在 Instagram 上关注我们*[*@ lifehackerdotcom*](https://www.instagram.com/lifehackerdotcom/)*。**

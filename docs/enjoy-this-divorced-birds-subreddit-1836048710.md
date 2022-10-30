@@ -1,10 +1,10 @@
 # 享受这个“离婚鸟”子编辑
 
-> 原文：<https://lifehacker.com/enjoy-this-divorced-birds-subreddit-1836048710>
+> 原文:[https://life hacker . com/enjoy-this-dis 婚-birds-subreddit-1836048710](https://lifehacker.com/enjoy-this-divorced-birds-subreddit-1836048710)
 
 离婚太搞笑了！这就是为什么 HBO 制作了一整部剧以它命名(第三季刚刚开始，SJP 粉丝代表)。这也是为什么有一个有趣的分支叫做[/离婚鸟](https://www.reddit.com/r/DivorcedBirds/) 。它探索了你甚至没有意识到的关于离婚、分手、中年危机和重新开始的斗争的比喻。它展示了我们人类是如何看待自己在任何事物中的反映的。
 
-
+Watch
 
 每个拥有脸书账号的女人都会收到这样一条信息， [贴上一张 redditor little contract al 的秘书鸟](https://www.reddit.com/r/DivorcedBirds/comments/bmgxr8/hey_girl_i_just_discovered_the_most_amazing/) 的照片:
 
@@ -36,4 +36,8 @@ Redditor FashiOnFashOff [从一个](https://www.reddit.com/r/DivorcedBirds/comme
 
 *subreddit 的灵感来自 2018 年的一个一次性笑话:*
 
-*<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-955142297548677125&amp;autosize=1" autoresize="true" id="twitter-955142297548677125" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">沉寂之后，subreddit 最近又有了复苏，所以你会在<span></span>首页看到很多离婚鸟的新照片。这是一个坚实的笑话集，也是永远和你的伴侣在一起的巨大动力。</p><p class="sc-77igqf-0 bOfvBY">如果你喜欢这样，你可能也会喜欢 subred dits<span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.reddit.com/r/Birbs/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.reddit.com/r/Birbs/" target="_blank" rel="noopener noreferrer">r/Birbs</a></span>，<span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://reddit.com/r/BirdsBeingDicks&quot;,{&quot;metric25&quot;:1}]]" href="https://reddit.com/r/BirdsBeingDicks" target="_blank" rel="noopener noreferrer">r/birds beingdicks</a></span>，<span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.reddit.com/r/birdswitharms/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.reddit.com/r/birdswitharms/" target="_blank" rel="noopener noreferrer">r/birds with arms</a></span>，<span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.reddit.com/r/PartyParrot&quot;,{&quot;metric25&quot;:1}]]" href="https://www.reddit.com/r/PartyParrot" target="_blank" rel="noopener noreferrer">r/party parrot</a></span>，以及<a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.reddit.com/r/Catswithjobs/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.reddit.com/r/Catswithjobs/" target="_blank" rel="noopener noreferrer"> r/CatsWithJobs </a> ，或者<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://waitbutwhy.com/2014/10/dark-secrets-bird-world.html&quot;,{&quot;metric25&quot;:1}]]" href="https://waitbutwhy.com/2014/10/dark-secrets-bird-world.html" target="_blank" rel="noopener noreferrer">幽默/教育博客上的 bird collection 但是为什么要等一下</a></span></p> </body> </html></iframe>*
+ *[https://lifehacker.com/embed/inset/iframe?id=twitter-955142297548677125&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-955142297548677125&autosize=1)* 
+
+*沉寂之后，subreddit 最近又有了复苏，所以你会在首页看到很多离婚鸟的新照片。这是一个坚实的笑话集，也是永远和你的伴侣在一起的巨大动力。*
+
+*如果你喜欢这样，你可能也会喜欢 subred dits[r/Birbs](https://www.reddit.com/r/Birbs/)，[r/birds beingdicks](https://reddit.com/r/BirdsBeingDicks)，[r/birds with arms](https://www.reddit.com/r/birdswitharms/)，[r/party parrot](https://www.reddit.com/r/PartyParrot)，以及 [r/CatsWithJobs](https://www.reddit.com/r/Catswithjobs/) ，或者 [幽默/教育博客上的 bird collection 但是为什么要等一下](https://waitbutwhy.com/2014/10/dark-secrets-bird-world.html)*

@@ -1,10 +1,10 @@
 # 按照安东尼·鲍代恩的 Les Halles 食谱烹饪必须从法式洋葱汤开始
 
-> 原文：<https://thetakeout.com/anthony-bourdain-les-halles-cookbook-french-onion-soup-1833361381>
+> 原文:[https://the take out . com/Anthony-bourdain-les-halles-cookbook-French-onion-soup-1833361381](https://thetakeout.com/anthony-bourdain-les-halles-cookbook-french-onion-soup-1833361381)
 
 *这一周，*外卖员*彭凯文将根据安东尼·鲍代恩* Les Halles 烹饪书*烹饪，并写下他的经历。*
 
-
+Watch
 
 * * *
 
@@ -14,4 +14,42 @@
 
 在布尔丹去世后的九个月里，我一直在看他的电视和文学作品，我注意到自己与食物的关系正在从“新食物”转向“T2 经典食物”。曾经让我毛骨悚然的东西——盘子上的泡沫和圆点，以及其他自慰的美食——现在感觉俗气了。该死的， [郊区的红酱意大利连锁店赢得了我的芳心](https://thetakeout.com/a-food-snob-moves-to-the-suburbs-1829316972) ！Bourdain 是如何参与其中的？让我们不要忘记，在他成为环游世界的名人之前，他做了几十年的厨房杂役，最著名的是纽约现已关闭的 Les Halles 啤酒店的厨师。(他谈到第一次在 Les Halles 用餐时说:“太完美了。真正的交易。在多年徘徊于烹饪边缘、摆弄金属环和鳄梨之后，我终于回到了家。”)
 
-<iframe data-src="https://thetakeout.com/embed/inset/iframe?id=youtube-video-z2TZSFIG-54&amp;start=0" data-chomp-id="z2TZSFIG-54" data-recommend-id="youtube://z2TZSFIG-54" id="youtube-z2TZSFIG-54" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="z2TZSFIG-54" data-recommend-id="youtube://z2TZSFIG-54" id="youtube-z2TZSFIG-54" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">在重读他的作品时(我最喜欢的是<span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 iUaVFb js_link" data-ga="[[&quot;Commerce&quot;,&quot;thetakeout - Cooking through Anthony Bourdain&amp;#39;s &amp;lt;i&amp;gt;Les Halles Cookbook&amp;lt;/i&amp;gt; must begin with French onion soup&amp;lt;em&amp;gt;&amp;lt;/em&amp;gt;&quot;,&quot;1596913606&quot;]]" href="https://www.amazon.com/Nasty-Bits-Collected-Varietal-Usable/dp/1596913606?asc_campaign=InlineText&amp;asc_refurl=https://thetakeout.com/anthony-bourdain-les-halles-cookbook-french-onion-soup-1833361381&amp;asc_source=&amp;tag=kinjatakeoutlink-20" target="_blank" rel="nofollow" data-amazonasin="1596913606" data-amazontag="kinjatakeoutlink-20"><em/></a></span>，布尔丹的旅行随笔和短文集)，我感觉布尔丹在最好的餐馆里被宴请，实际上是在佩里戈尔松露和罗曼-康帝特级葡萄酒中沐浴，但他在柠檬和棕色黄油的完美烤焦的鲽鱼片中找到了一百万倍的满足感。或者能钉个<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 iUaVFb js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://thetakeout.com/recipe-how-to-master-cacio-e-pepe-1828138645&quot;,{&quot;metric25&quot;:1}]]" href="https://thetakeout.com/recipe-how-to-master-cacio-e-pepe-1828138645"> cacio e pepe </a> </span>的人。Bourdain 似乎是一个会觉得“热门新餐厅”这个词特别令人厌恶的人。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809776ScriptRootC1321855"/><div class="mgidMidMobile" id="M809776ScriptRootC1321857"/></div><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">所以，部分受已故的安东尼·鲍代恩的启发(打这些字的时候仍然感觉怪怪的)，我掉进了法国小酒馆食物的兔子洞。一碗丰盛的红酒牛肉。弗里斯和拉尔登斯沙拉。烤牛排上浇有大量的酒店黄油。我不仅想吃它，还想做它。</p><p class="sc-77igqf-0 bOfvBY">当我在 Twitter 上征求小酒馆食谱推荐时，我不应该对顶级建议感到惊讶。如果允许我最后一次追求多愁善感，我几乎认为这是命中注定的:</p><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://thetakeout.com/embed/inset/iframe?id=twitter-1100901626393620480&amp;autosize=1" autoresize="true" id="twitter-1100901626393620480" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><hr class="gcp5ez-1 ervlSQ"/><p class="sc-77igqf-0 bOfvBY">最近我花了很多时间阅读 Les Halles 的烹饪书 ，这是继 Bourdain 于 2000 年出版的真正畅销书<em>厨房机密</em>四年后出版的。如果你读过<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 iUaVFb js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://thetakeout.com/anthony-bourdain-cooks-for-his-harshest-critic-his-dau-1798253387&quot;,{&quot;metric25&quot;:1}]]" href="https://thetakeout.com/anthony-bourdain-cooks-for-his-harshest-critic-his-dau-1798253387">布尔丹的其他作品</a> </span>，你会发现其中的讽刺、幽默和真情实感:</p><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://thetakeout.com/embed/inset/iframe?id=twitter-1106686745163300865&amp;autosize=1" autoresize="true" id="twitter-1106686745163300865" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><p class="sc-77igqf-0 bOfvBY">这里的 110 种食谱没有多余的装饰；事实上，许多看起来具有欺骗性的补救措施。很多烹饪书都让我去寻找野生原料，从全食超市找到一个 10 美元的罐子，我用一次就永远忘了。也许这是 Bourdain 的指示的态度和简洁，但 Les Halles 烹饪书中的菜肴感觉删除了废话——找到一些好肉，调味，加入一些蔬菜香料，加入一些白葡萄酒，你会单独喝，结果会非常满意。</p><p class="sc-77igqf-0 bOfvBY">如果要达到深度满足，那么我应该做的第一个食谱是洋葱汤 Les Halles on pg。45——这家餐馆推出了古老的法式洋葱汤。</p><p class="sc-77igqf-0 bOfvBY">(注意:我已经决定<em>而不是</em>逐字转载书中的食谱，尽管我会提到使用的配料和我的调整。真的，这是我鼓励你<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 iUaVFb js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.bloomsbury.com/us/anthony-bourdains-les-halles-cookbook-9781582341804/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.bloomsbury.com/us/anthony-bourdains-les-halles-cookbook-9781582341804/" target="_blank" rel="noopener noreferrer">从你当地的书店</a> </span>购买食谱并跟随的方式。不过，如果你坚持，你可以在这里找到洋葱汤的配方。 </p><p class="sc-77igqf-0 bOfvBY">我之前做的法式洋葱汤一直乏善可陈。即使在速溶锅里用骨头做了牛肉汤，做出来的汤也总是很温和——尝起来像 75%的版本。烹饪 Les Halles 版本让我意识到法式洋葱汤所需的魅力并不来自动物蛋白。这是关于烹饪大量的洋葱，并花费必要的时间来释放和焦糖化洋葱的糖。这个食谱需要八个大洋葱，也就是说每人每罐一个完整的洋葱。我正确地决定将食谱减半。</p><p class="sc-77igqf-0 bOfvBY">即使切四个洋葱也是一件痛苦的事情，所以我可以为你的厨房推荐一个不可或缺的工具:<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 iUaVFb js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://en.wikipedia.org/wiki/Mandoline&quot;,{&quot;metric25&quot;:1}]]" href="https://en.wikipedia.org/wiki/Mandoline" target="_blank" rel="noopener noreferrer">曼陀林</a> </span>。这些成本低至 15 美元，将你的蔬菜刮得像纸一样薄，并将你的准备时间减少到四分之一。然而，在这里节省的时间后来被用来蒸洋葱。这本书声称需要 20 分钟才能达到“柔软和棕色”的状态，但任何吃过焦糖洋葱的人都知道需要两倍的时间。四片洋葱勉强放入我的 7 夸脱 Le Creuset 搪瓷荷兰烤箱，需要很大的操作才能将洋葱的顶层放到加热的锅底。即使使用了四分之三的黄油棒，洋葱也需要大约 45 分钟才能变香——那些味道浓郁的棕色小块粘在锅底。<br/></p><p class="sc-77igqf-0 bOfvBY">这是当我加入两汤匙葡萄酒和香醋时，它变成了甜洋葱糖的香味。然后，我将一夸脱的鸡汤倒在柔软的洋葱中，还加入了令我惊讶的培根丁、两片培根和一小袋<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 iUaVFb js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.thespruceeats.com/bouquet-garni-recipe-1805692&quot;,{&quot;metric25&quot;:1}]]" href="https://www.thespruceeats.com/bouquet-garni-recipe-1805692" target="_blank" rel="noopener noreferrer">花束</a> </span>(欧芹、百里香和月桂叶，这是一种在本书一半以上的食谱中使用的草药组合)。</p><p class="sc-77igqf-0 bOfvBY">因为这本书的食谱倾向于伯丹的直接语言，我偶尔发现自己在问“我现在做什么？”并即时进行调整。例如:我注意到在整个<em> Les Halles 烹饪书</em>中，Bourdain 在调料上有一点点的味道。盐和胡椒并不总是按数量列出，通常只是调味的一般说明。这不是敲门。我相信这对家庭厨师来说是一个有益的省略，因为它鼓励品尝和调整的习惯。(它还假设一个人的淡啤酒可能是另一个人的咸啤酒。)我还发现自己拿着一个装了很多洋葱的罐子，里面的液体似乎不够。我该不该加一杯水，调味，调整？答案是我当然应该——这是厨师的工作。<br/></p><p class="sc-77igqf-0 bOfvBY">炖了一个小时后，有趣的部分来了:我切下了几块法式长棍面包(我选择预烤我的)，切好的格鲁耶尔奶酪片(布尔丹坚持“真正的进口格鲁耶尔奶酪！”)，然后将它分层放在面包上和瓦罐的边缘，以实现悬挂烧焦奶酪的美学效果。一个“轰鸣的烤面包机”是必要的，这是我通过 65 美元的烤面包机得到的。我不得不磨碎比我认为需要的更多的奶酪，因为 Gruyere 是一种高脂肪的奶酪，它的大部分消失在液体油中。更重要的是，足够的奶酪是进行第一步的必要条件:用丙烷火炬将奶酪炸至酥脆的轨道。为了这一刻的快乐，买一个是值得的。</p><p class="sc-77igqf-0 bOfvBY">很快，我用勺子舀了一块软脆的法棍面包，外面裹着焦粘的奶酪，漂浮在金棕色的肉汤和软洋葱中。我咬了一口。汤比预期的要甜——波特酒散发出葡萄干的味道——但那美妙的奶酪香味正是汤所需要的美味。我认为，把生培根丁加入汤里，结果会是一团松松垮垮的东西；相反，煮熟的肉实际上分解了，增加了汤的烟熏深度。我能给这份食谱的最好赞美是它尝起来像是来自餐馆。<br/></p><p class="sc-77igqf-0 bOfvBY">对于一个如此简单的认识来说，这可能是太多的话了:我很惊讶洋葱、鸡汤和时间的简单组合可以做出我渴望在家做的小酒馆质量的菜。不需要装饰，不需要昂贵的烤骨头，只需要大自然赋予洋葱和葡萄的甜味。如果曾经有过这样的汤的话，这道菜容易让人印象深刻的比例是家庭厨师的优势。</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY">明天:红酒烩牛肉，也许是烹饪书中最容易掌握的食谱。</p> </body> </html></iframe>
+ [https://thetakeout.com/embed/inset/iframe?id=youtube-video-z2TZSFIG-54&start=0](https://thetakeout.com/embed/inset/iframe?id=youtube-video-z2TZSFIG-54&start=0) 
+
+在重读他的作品时(我最喜欢的是[](https://www.amazon.com/Nasty-Bits-Collected-Varietal-Usable/dp/1596913606?asc_campaign=InlineText&asc_refurl=https://thetakeout.com/anthony-bourdain-les-halles-cookbook-french-onion-soup-1833361381&asc_source=&tag=kinjatakeoutlink-20)*，布尔丹的旅行随笔和短文集)，我感觉布尔丹在最好的餐馆里被宴请，实际上是在佩里戈尔松露和罗曼-康帝特级葡萄酒中沐浴，但他在柠檬和棕色黄油的完美烤焦的鲽鱼片中找到了一百万倍的满足感。或者能钉个 [cacio e pepe](https://thetakeout.com/recipe-how-to-master-cacio-e-pepe-1828138645) 的人。Bourdain 似乎是一个会觉得“热门新餐厅”这个词特别令人厌恶的人。*
+
+*所以，部分受已故的安东尼·鲍代恩的启发(打这些字的时候仍然感觉怪怪的)，我掉进了法国小酒馆食物的兔子洞。一碗丰盛的红酒牛肉。弗里斯和拉尔登斯沙拉。烤牛排上浇有大量的酒店黄油。我不仅想吃它，还想做它。*
+
+*当我在 Twitter 上征求小酒馆食谱推荐时，我不应该对顶级建议感到惊讶。如果允许我最后一次追求多愁善感，我几乎认为这是命中注定的:*
+
+ *[https://thetakeout.com/embed/inset/iframe?id=twitter-1100901626393620480&autosize=1](https://thetakeout.com/embed/inset/iframe?id=twitter-1100901626393620480&autosize=1)* 
+
+* * *
+
+*最近我花了很多时间阅读 Les Halles 的烹饪书 ，这是继 Bourdain 于 2000 年出版的真正畅销书*厨房机密*四年后出版的。如果你读过 [布尔丹的其他作品](https://thetakeout.com/anthony-bourdain-cooks-for-his-harshest-critic-his-dau-1798253387) ，你会发现其中的讽刺、幽默和真情实感:*
+
+ *[https://thetakeout.com/embed/inset/iframe?id=twitter-1106686745163300865&autosize=1](https://thetakeout.com/embed/inset/iframe?id=twitter-1106686745163300865&autosize=1)* 
+
+*这里的 110 种食谱没有多余的装饰；事实上，许多看起来具有欺骗性的补救措施。很多烹饪书都让我去寻找野生原料，从全食超市找到一个 10 美元的罐子，我用一次就永远忘了。也许这是 Bourdain 的指示的态度和简洁，但 Les Halles 烹饪书中的菜肴感觉删除了废话——找到一些好肉，调味，加入一些蔬菜香料，加入一些白葡萄酒，你会单独喝，结果会非常满意。*
+
+*如果要达到深度满足，那么我应该做的第一个食谱是洋葱汤 Les Halles on pg。45——这家餐馆推出了古老的法式洋葱汤。*
+
+*(注意:我已经决定*而不是*逐字转载书中的食谱，尽管我会提到使用的配料和我的调整。真的，这是我鼓励你 [从你当地的书店](https://www.bloomsbury.com/us/anthony-bourdains-les-halles-cookbook-9781582341804/) 购买食谱并跟随的方式。不过，如果你坚持，你可以在这里找到洋葱汤的配方。*
+
+*我之前做的法式洋葱汤一直乏善可陈。即使在速溶锅里用骨头做了牛肉汤，做出来的汤也总是很温和——尝起来像 75%的版本。烹饪 Les Halles 版本让我意识到法式洋葱汤所需的魅力并不来自动物蛋白。这是关于烹饪大量的洋葱，并花费必要的时间来释放和焦糖化洋葱的糖。这个食谱需要八个大洋葱，也就是说每人每罐一个完整的洋葱。我正确地决定将食谱减半。*
+
+*即使切四个洋葱也是一件痛苦的事情，所以我可以为你的厨房推荐一个不可或缺的工具: [曼陀林](https://en.wikipedia.org/wiki/Mandoline) 。这些成本低至 15 美元，将你的蔬菜刮得像纸一样薄，并将你的准备时间减少到四分之一。然而，在这里节省的时间后来被用来蒸洋葱。这本书声称需要 20 分钟才能达到“柔软和棕色”的状态，但任何吃过焦糖洋葱的人都知道需要两倍的时间。四片洋葱勉强放入我的 7 夸脱 Le Creuset 搪瓷荷兰烤箱，需要很大的操作才能将洋葱的顶层放到加热的锅底。即使使用了四分之三的黄油棒，洋葱也需要大约 45 分钟才能变香——那些味道浓郁的棕色小块粘在锅底。* 
+
+*这是当我加入两汤匙葡萄酒和香醋时，它变成了甜洋葱糖的香味。然后，我将一夸脱的鸡汤倒在柔软的洋葱中，还加入了令我惊讶的培根丁、两片培根和一小袋 [花束](https://www.thespruceeats.com/bouquet-garni-recipe-1805692) (欧芹、百里香和月桂叶，这是一种在本书一半以上的食谱中使用的草药组合)。*
+
+*因为这本书的食谱倾向于伯丹的直接语言，我偶尔发现自己在问“我现在做什么？”并即时进行调整。例如:我注意到在整个 *Les Halles 烹饪书*中，Bourdain 在调料上有一点点的味道。盐和胡椒并不总是按数量列出，通常只是调味的一般说明。这不是敲门。我相信这对家庭厨师来说是一个有益的省略，因为它鼓励品尝和调整的习惯。(它还假设一个人的淡啤酒可能是另一个人的咸啤酒。)我还发现自己拿着一个装了很多洋葱的罐子，里面的液体似乎不够。我该不该加一杯水，调味，调整？答案是我当然应该——这是厨师的工作。* 
+
+*炖了一个小时后，有趣的部分来了:我切下了几块法式长棍面包(我选择预烤我的)，切好的格鲁耶尔奶酪片(布尔丹坚持“真正的进口格鲁耶尔奶酪！”)，然后将它分层放在面包上和瓦罐的边缘，以实现悬挂烧焦奶酪的美学效果。一个“轰鸣的烤面包机”是必要的，这是我通过 65 美元的烤面包机得到的。我不得不磨碎比我认为需要的更多的奶酪，因为 Gruyere 是一种高脂肪的奶酪，它的大部分消失在液体油中。更重要的是，足够的奶酪是进行第一步的必要条件:用丙烷火炬将奶酪炸至酥脆的轨道。为了这一刻的快乐，买一个是值得的。*
+
+*很快，我用勺子舀了一块软脆的法棍面包，外面裹着焦粘的奶酪，漂浮在金棕色的肉汤和软洋葱中。我咬了一口。汤比预期的要甜——波特酒散发出葡萄干的味道——但那美妙的奶酪香味正是汤所需要的美味。我认为，把生培根丁加入汤里，结果会是一团松松垮垮的东西；相反，煮熟的肉实际上分解了，增加了汤的烟熏深度。我能给这份食谱的最好赞美是它尝起来像是来自餐馆。* 
+
+*对于一个如此简单的认识来说，这可能是太多的话了:我很惊讶洋葱、鸡汤和时间的简单组合可以做出我渴望在家做的小酒馆质量的菜。不需要装饰，不需要昂贵的烤骨头，只需要大自然赋予洋葱和葡萄的甜味。如果曾经有过这样的汤的话，这道菜容易让人印象深刻的比例是家庭厨师的优势。*
+
+* * *
+
+*明天:红酒烩牛肉，也许是烹饪书中最容易掌握的食谱。*

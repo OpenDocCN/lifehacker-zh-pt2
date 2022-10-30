@@ -1,13 +1,23 @@
 # 在 YouTube 上免费观看《我们的星球》和其他网飞的节目
 
-> 原文：<https://lifehacker.com/watch-our-planet-and-other-netflix-shows-on-youtube-for-1842962047>
+> 原文:[https://life hacker . com/watch-our-planet-and-other-YouTube-on-1842962047](https://lifehacker.com/watch-our-planet-and-other-netflix-shows-on-youtube-for-1842962047)
 
 早在孩子们真正走进教室学习的时候，网飞就向希望在课堂上播放这些纪录片的教师免费提供了许多教育纪录片。随着疫情迫使大多数孩子回到家中进行一些不确定的""远程学习，网飞已经在 [YouTube](https://www.youtube.com/playlist?list=PLvahqwMqN4M0GRkZY8WkLZMb6Z-W7qbLA) 上放弃了许多这些纪录片，供我们所有人免费观看。
 
-
+Watch
 
 他们这样做是为了让老师仍然可以分配纪录片、电影和短片给学生观看，但家长也可以受益，因为他们可以有更多的教育屏幕时间供我们使用。其中一些——特别是 [*我们的星球*](https://www.netflix.com/title/80049832) 系列(来自*星球地球*的创作者)——也非常适合全家一起观看。
 
 你可以 [查看 30 多集](https://www.youtube.com/playlist?list=PLvahqwMqN4M0GRkZY8WkLZMb6Z-W7qbLA) 的完整列表，电影和短片 [在这里](https://www.youtube.com/playlist?list=PLvahqwMqN4M0GRkZY8WkLZMb6Z-W7qbLA) 。但是现在就开始吧，从*我们的星球* 第一集开始:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-list-GfO-3Oir-qM%2FPLvahqwMqN4M0GRkZY8WkLZMb6Z-W7qbLA&amp;start=0" data-chomp-id="PLvahqwMqN4M0GRkZY8WkLZMb6Z-W7qbLA" data-recommend-id="youtube://PLvahqwMqN4M0GRkZY8WkLZMb6Z-W7qbLA" id="youtube-PLvahqwMqN4M0GRkZY8WkLZMb6Z-W7qbLA" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="PLvahqwMqN4M0GRkZY8WkLZMb6Z-W7qbLA" data-recommend-id="youtube://PLvahqwMqN4M0GRkZY8WkLZMb6Z-W7qbLA" id="youtube-PLvahqwMqN4M0GRkZY8WkLZMb6Z-W7qbLA" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">其他书名还有<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80117833&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80117833" target="_blank" rel="noopener noreferrer"> <em>婴儿</em> </a> </span>(讲述一个孩子第一年的生活)<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80216752&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80216752" target="_blank" rel="noopener noreferrer"> <em>解说</em> </a> </span>(探讨时事和社会趋势)<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80239831&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80239831" target="_blank" rel="noopener noreferrer"> <em>锡安</em> </a> </span>(讲述一个出生时没有腿，在寄养家庭长大的年轻摔跤手)。</p><p class="sc-77igqf-0 bOfvBY">每个节目还附带额外的<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://media.netflix.com/en/company-blog/free-educational-documentaries&quot;,{&quot;metric25&quot;:1}]]" href="https://media.netflix.com/en/company-blog/free-educational-documentaries" target="_blank" rel="noopener noreferrer">教育资源</a> </span>。网飞表示，它还计划制作一些额外的 Q &amp;作为项目背后的一些创作者，这样学生和家长可以从他们身上学到更多。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">只是记得在观看前检查每个标题的分级，以确保它适合您孩子的年龄。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><small> <em>遇见地球上最聪明的父母！加入我们的</em> </small> <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.facebook.com/groups/2018785615043946/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.facebook.com/groups/2018785615043946/" target="_blank" rel="noopener noreferrer"> <small> <em>育儿脸书群</em> </small> </a> </span> <small> <em>。</em> </small> <br/></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-list-GfO-3Oir-qM%2FPLvahqwMqN4M0GRkZY8WkLZMb6Z-W7qbLA&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-list-GfO-3Oir-qM%2FPLvahqwMqN4M0GRkZY8WkLZMb6Z-W7qbLA&start=0) 
+
+其他书名还有 [*婴儿*](https://www.netflix.com/title/80117833) (讲述一个孩子第一年的生活) [*解说*](https://www.netflix.com/title/80216752) (探讨时事和社会趋势) [*锡安*](https://www.netflix.com/title/80239831) (讲述一个出生时没有腿，在寄养家庭长大的年轻摔跤手)。
+
+每个节目还附带额外的 [教育资源](https://media.netflix.com/en/company-blog/free-educational-documentaries) 。网飞表示，它还计划制作一些额外的 Q &作为项目背后的一些创作者，这样学生和家长可以从他们身上学到更多。
+
+只是记得在观看前检查每个标题的分级，以确保它适合您孩子的年龄。
+
+* * *
+
+<small>*遇见地球上最聪明的父母！加入我们的*</small> [<small>*育儿脸书群*</small>](https://www.facebook.com/groups/2018785615043946/) <small>*。*</small>

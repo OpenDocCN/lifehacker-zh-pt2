@@ -1,10 +1,10 @@
 # 可以用高清电视作为电脑显示器吗？
 
-> 原文：<https://lifehacker.com/is-it-okay-to-use-an-hdtv-as-a-computer-monitor-5884040>
+> 原文:[https://life hacker . com/is-it-okay-to-use-an-HDTV-as-a-computer-monitor-5884040](https://lifehacker.com/is-it-okay-to-use-an-hdtv-as-a-computer-monitor-5884040)
 
 每次去买新的电脑显示器，我都会问自己同一个问题:我为什么要这样做？为什么不通过我已经有的巨大的显示器，或者说我的大屁股电视来运行所有的东西呢？
 
-
+Watch
 
 从理论上来说，通过电视播放电脑图像似乎是最好的解决方案，但在你从购物清单中划掉“全新的桌面显示器”之前，有一些因素你应该考虑。这并不是说你*不能*做这个，或者做好这个；这并不是一个在*所有*情况下都有效的完美解决方案。
 
@@ -34,4 +34,18 @@
 
 #### **娱乐**
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-8Vp_agqzK7Y&amp;start=0" data-chomp-id="8Vp_agqzK7Y" data-recommend-id="youtube://8Vp_agqzK7Y" id="youtube-8Vp_agqzK7Y" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="8Vp_agqzK7Y" data-recommend-id="youtube://8Vp_agqzK7Y" id="youtube-8Vp_agqzK7Y" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">如果你想在高清电视显示器上玩游戏或看电影，你有一些额外的选择(和考虑)。最重要的是，你可以考虑使用 4K 电视作为双显示器设置中的第二台显示器。听我说完。</p><p class="sc-77igqf-0 bOfvBY">这样一来，您就可以将主显示器用于日常使用，这意味着您仍然可以在浏览网页、处理电子表格、发送电子邮件或做其他任何事情时拥有出色的体验。当你切换到电影或游戏模式时，你可以把它们转储到你附近的巨型电视上。假设您可以将键盘和鼠标(或控制器)拖到足够远的地方，并且不介意这样做的体验，我认为您会喜欢这种混合方式，甚至超过将 42 英寸以上的电视放在桌子上。</p><p class="sc-77igqf-0 bOfvBY">根据你正在观看的内容(或游戏中文本的大小)，你甚至可以买到比我们之前确定的规格更小的电视。你(希望)没有盯着屏幕上的微小文本，所以该集的色度二次采样可能不太重要。如果你只是在看很多电影，你可能根本不关心输入延迟或电视的刷新率(例如，如果它不能以 60Hz 的频率 4K)。</p><div class="ooo3c9-0 cmUFVa align--bleed has-video media-large video-embed embed-frame"><span class="flex-video widescreen"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-YjECJ9AJOxI&amp;start=0" data-chomp-id="YjECJ9AJOxI" data-recommend-id="youtube://YjECJ9AJOxI" id="youtube-YjECJ9AJOxI" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/><span data-chomp-id="YjECJ9AJOxI" data-recommend-id="youtube://YjECJ9AJOxI" id="youtube-YjECJ9AJOxI" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">如果你在玩游戏，你肯定会关心你的设备的输入延迟和刷新率——我想不出还有两个更重要的规格，因为你会想要尽可能精确的体验。你可能还会发现，某些游戏在你的电视上比其他游戏有更好的体验，所以，如果你最喜欢的游戏因为某种原因没有像你预期的那样好，比如有点模糊的文字，请做好失望的准备。</p><p class="sc-77igqf-0 bOfvBY">由于当你在看<em>疾速追杀</em>或玩<em>末日永恒</em>时，你的画面质量比你在电子表格中工作时更重要，你可能还想考虑一台支持<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.crutchfield.com/S-X2TRdZBgocu/learn/whats-the-difference-between-hdr-10-and-dolby-vision.html&quot;,{&quot;metric25&quot;:1}]]" href="https://www.crutchfield.com/S-X2TRdZBgocu/learn/whats-the-difference-between-hdr-10-and-dolby-vision.html" target="_blank" rel="noopener noreferrer"> HDR10 </a> </span>的电视(和显卡/ HDMI 2.0a 设置)，以获得更绚丽、更准确的色彩。</p><p class="sc-77igqf-0 bOfvBY">这篇文章最初发表于 2012 年 2 月 10 日，并于 2019 年 10 月 17 日更新了更多最新信息。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-8Vp_agqzK7Y&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-8Vp_agqzK7Y&start=0) 
+
+如果你想在高清电视显示器上玩游戏或看电影，你有一些额外的选择(和考虑)。最重要的是，你可以考虑使用 4K 电视作为双显示器设置中的第二台显示器。听我说完。
+
+这样一来，您就可以将主显示器用于日常使用，这意味着您仍然可以在浏览网页、处理电子表格、发送电子邮件或做其他任何事情时拥有出色的体验。当你切换到电影或游戏模式时，你可以把它们转储到你附近的巨型电视上。假设您可以将键盘和鼠标(或控制器)拖到足够远的地方，并且不介意这样做的体验，我认为您会喜欢这种混合方式，甚至超过将 42 英寸以上的电视放在桌子上。
+
+根据你正在观看的内容(或游戏中文本的大小)，你甚至可以买到比我们之前确定的规格更小的电视。你(希望)没有盯着屏幕上的微小文本，所以该集的色度二次采样可能不太重要。如果你只是在看很多电影，你可能根本不关心输入延迟或电视的刷新率(例如，如果它不能以 60Hz 的频率 4K)。
+
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-YjECJ9AJOxI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-YjECJ9AJOxI&start=0) 
+
+如果你在玩游戏，你肯定会关心你的设备的输入延迟和刷新率——我想不出还有两个更重要的规格，因为你会想要尽可能精确的体验。你可能还会发现，某些游戏在你的电视上比其他游戏有更好的体验，所以，如果你最喜欢的游戏因为某种原因没有像你预期的那样好，比如有点模糊的文字，请做好失望的准备。
+
+由于当你在看*疾速追杀*或玩*末日永恒*时，你的画面质量比你在电子表格中工作时更重要，你可能还想考虑一台支持 [HDR10](https://www.crutchfield.com/S-X2TRdZBgocu/learn/whats-the-difference-between-hdr-10-and-dolby-vision.html) 的电视(和显卡/ HDMI 2.0a 设置)，以获得更绚丽、更准确的色彩。
+
+这篇文章最初发表于 2012 年 2 月 10 日，并于 2019 年 10 月 17 日更新了更多最新信息。

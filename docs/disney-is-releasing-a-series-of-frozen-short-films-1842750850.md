@@ -1,11 +1,19 @@
 # 迪士尼正在发行一系列冷冻短片
 
-> 原文：<https://lifehacker.com/disney-is-releasing-a-series-of-frozen-short-films-1842750850>
+> 原文:[https://life hacker . com/Disney-is-release-a-series-of-freeze-short-films-1842750850](https://lifehacker.com/disney-is-releasing-a-series-of-frozen-short-films-1842750850)
 
 三月份，当迪士尼提前三个月向迪士尼+发布《冰雪奇缘 2》时，迪士尼听到并回应了各地父母的祈祷。这是一个 1 小时 43 分钟的亮点，我们现在知道这只是一个非常漫长，非常孤立的疫情的开始。但是迪士尼的动画师和演员现在都在家，就像其他人一样，所以他们决定聚在一起(象征性地)给我们带来一点额外的快乐。
 
-
+Watch
 
 [迪士尼动画本周在推特上发布](https://twitter.com/DisneyAnimation/status/1247147046886240256) 称，他们将推出一个新的数字系列，免费的【T4 与奥拉夫在家】——不需要迪士尼+会员。该系列的第一集名为“[Fun wwith Snow](https://www.youtube.com/watch?v=dL1kDLQ8-kg)”，于周三上映。此后又有两集新上映(每天一集):“ [独自在森林里](https://www.youtube.com/watch?v=Bskod_BtxpM) ”和“ [Fishin](https://www.youtube.com/watch?v=BiKZZQhk9YM) ”。"
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1247147046886240256&amp;autosize=1" autoresize="true" id="twitter-1247147046886240256" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">到目前为止，每部短片都是由 Hyrum Osmond 在家里制作动画，由<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://offspring.lifehacker.com/actor-josh-gad-will-read-to-your-kids-every-night-1842398287&quot;,{&quot;metric25&quot;:1}]]" href="https://offspring.lifehacker.com/actor-josh-gad-will-read-to-your-kids-every-night-1842398287">乔什·加德</a> </span>在家里配音，这位演员在两部《冰雪奇缘》电影中为奥拉夫配音。它们很短——每部大约 40 秒长——但是它们非常迷人。而每一部都可以在华特迪士尼动画工作室的<span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.youtube.com/channel/UC_976xMxPgzIa290Hqtk-9g&quot;,{&quot;metric25&quot;:1}]]" href="https://www.youtube.com/channel/UC_976xMxPgzIa290Hqtk-9g" target="_blank" rel="noopener noreferrer">YouTube 频道</a> </span>上观看。</p><p class="sc-77igqf-0 bOfvBY">该公司尚未透露该系列将制作多长时间，但在推特上表示，本周每天都会有更多剧集发布，所以我们至少还有几集可以期待。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><small> <em>遇见地球上最聪明的父母！加入我们的</em> </small> <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.facebook.com/groups/2018785615043946/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.facebook.com/groups/2018785615043946/" target="_blank" rel="noopener noreferrer"> <small> <em>育儿脸书群</em> </small> </a> </span> <small> <em>。</em> </small> <br/></p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1247147046886240256&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1247147046886240256&autosize=1) 
+
+到目前为止，每部短片都是由 Hyrum Osmond 在家里制作动画，由 [乔什·加德](https://offspring.lifehacker.com/actor-josh-gad-will-read-to-your-kids-every-night-1842398287) 在家里配音，这位演员在两部《冰雪奇缘》电影中为奥拉夫配音。它们很短——每部大约 40 秒长——但是它们非常迷人。而每一部都可以在华特迪士尼动画工作室的[YouTube 频道](https://www.youtube.com/channel/UC_976xMxPgzIa290Hqtk-9g) 上观看。
+
+该公司尚未透露该系列将制作多长时间，但在推特上表示，本周每天都会有更多剧集发布，所以我们至少还有几集可以期待。
+
+* * *
+
+<small>*遇见地球上最聪明的父母！加入我们的*</small> [<small>*育儿脸书群*</small>](https://www.facebook.com/groups/2018785615043946/) <small>*。*</small>

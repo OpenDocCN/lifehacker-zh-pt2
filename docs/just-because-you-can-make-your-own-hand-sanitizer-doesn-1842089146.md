@@ -1,10 +1,10 @@
 # 仅仅因为你可以自己制作洗手液并不意味着你应该这样做
 
-> 原文：<https://lifehacker.com/just-because-you-can-make-your-own-hand-sanitizer-doesn-1842089146>
+> 原文:[https://life hacker . com/just-因为你能自制洗手液-does-1842089146](https://lifehacker.com/just-because-you-can-make-your-own-hand-sanitizer-doesn-1842089146)
 
 洗手液到处都卖完了。这就是现在生活的现实。但是现在有很多 DIY 食谱 ，你可以自己做，所以我开始测试它们。然后我遇到了问题。
 
-
+Watch
 
 ### 不能保证 DIY 食谱真的有用
 
@@ -14,4 +14,37 @@
 
 第二，外用酒精对皮肤真的很苛刻。你的 DIY 洗手液不会像一瓶新鲜的 Purell 那样粘粘的，保湿的，因为像 Purell 这样的公司花费时间和金钱为每种产品开发正确的配方是有原因的。正如一位药剂师 [在推特](https://twitter.com/hsifyppah/status/1235223666935263239) 上指出的，这并不容易。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1235223666935263239&amp;autosize=1" autoresize="true" id="twitter-1235223666935263239" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">有一种官方的、世界卫生组织认可的洗手液配方 ，这种洗手液是由那些药品很难找到或者短缺的国家的药剂师制造的。在几个方面，它与你在网上找到的大多数食谱非常不同:</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>它需要过氧化氢来杀死可能存在于配料中或设备上的孢子</li><li>它建议不要添加香水或染料，除非你确定它们不太可能引起刺激或过敏(许多自制食谱需要精油，但<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://vitals.lifehacker.com/dont-assume-essential-oils-are-safe-for-skin-1831556025&quot;,{&quot;metric25&quot;:1}]]" href="https://vitals.lifehacker.com/dont-assume-essential-oils-are-safe-for-skin-1831556025">精油并不总是对皮肤安全</a> </span>)。)</li><li>它提供了在你完成后测量酒精含量的说明，以确保它被正确混合，并且在这个过程中没有太多的酒精蒸发</li><li>它指示你将瓶子“隔离”72 小时，这样新制成的凝胶可以杀死任何可能已经进入的细菌孢子。</li></ul><p class="sc-77igqf-0 bOfvBY">如果你准备做以上所有的事情，并严格按照指示去做，我想你可以自己制作洗手液。但是...为什么？</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h289220">DIY 洗手液就是没有意义</h3><p class="sc-77igqf-0 bOfvBY">不管怎样，我想试试这个食谱。我去了塔吉特百货，打算买些芦荟胶、酒精，也许还有一些甘油来试试世卫组织的版本。</p><p class="sc-77igqf-0 bOfvBY">我正在扫描货架寻找芦荟凝胶时，我不骗你，我无意中听到附近货架上的两个员工在谈论这个话题。事情是这样的:</p><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">"...有人说你可以用芦荟胶和伏特加自己做！我说，我要<em>喝</em>伏特加！”</p><p class="sc-77igqf-0 bOfvBY">(他们笑了。)</p><p class="sc-77igqf-0 bOfvBY">"现在，你为什么不能使用酒精？"</p><p class="sc-77igqf-0 bOfvBY">“你可以！但我们也没有了。”<br/></p></blockquote><p class="sc-77igqf-0 bOfvBY">好吧，那就到此为止。结果发现目标没有酒精、<em>和</em>过氧化氢，此外还被洗手液清洗干净。</p><p class="sc-77igqf-0 bOfvBY">(对了，不要用伏特加。它不仅比外用酒精贵，而且只有外用酒精的一半强度，在 DIY 洗手液配方中不起作用。那位女士说得对:伏特加是用来喝的。)</p><p class="sc-77igqf-0 bOfvBY">所以这里有一个问题给你，如果你正在考虑制作你自己的洗手液。为什么不只是...洗手？当然，当你不在水槽附近时，消毒剂是一种方便的权宜之计，但粗略的 DIY 版本真的更好吗？它可能实际上不起作用，而且可能会让你的手变得非常干燥。</p><p class="sc-77igqf-0 bOfvBY">除非在非常特殊的情况下(你在荒野中，但被人群包围，但你也没有明显的脏手)，你可能只需要再去一趟洗手间洗手。</p><p class="sc-77igqf-0 bOfvBY">好消息是:我去过的每家商店都把洗手液下架了，但是洗手液总是库存充足。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1235223666935263239&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1235223666935263239&autosize=1) 
+
+有一种官方的、世界卫生组织认可的洗手液配方 ，这种洗手液是由那些药品很难找到或者短缺的国家的药剂师制造的。在几个方面，它与你在网上找到的大多数食谱非常不同:
+
+*   它需要过氧化氢来杀死可能存在于配料中或设备上的孢子
+*   它建议不要添加香水或染料，除非你确定它们不太可能引起刺激或过敏(许多自制食谱需要精油，但 [精油并不总是对皮肤安全](https://vitals.lifehacker.com/dont-assume-essential-oils-are-safe-for-skin-1831556025) )。)
+*   它提供了在你完成后测量酒精含量的说明，以确保它被正确混合，并且在这个过程中没有太多的酒精蒸发
+*   它指示你将瓶子“隔离”72 小时，这样新制成的凝胶可以杀死任何可能已经进入的细菌孢子。
+
+如果你准备做以上所有的事情，并严格按照指示去做，我想你可以自己制作洗手液。但是...为什么？
+
+### DIY 洗手液就是没有意义
+
+不管怎样，我想试试这个食谱。我去了塔吉特百货，打算买些芦荟胶、酒精，也许还有一些甘油来试试世卫组织的版本。
+
+我正在扫描货架寻找芦荟凝胶时，我不骗你，我无意中听到附近货架上的两个员工在谈论这个话题。事情是这样的:
+
+> "...有人说你可以用芦荟胶和伏特加自己做！我说，我要*喝*伏特加！”
+> 
+> (他们笑了。)
+> 
+> "现在，你为什么不能使用酒精？"
+> 
+> “你可以！但我们也没有了。”
+
+好吧，那就到此为止。结果发现目标没有酒精、*和*过氧化氢，此外还被洗手液清洗干净。
+
+(对了，不要用伏特加。它不仅比外用酒精贵，而且只有外用酒精的一半强度，在 DIY 洗手液配方中不起作用。那位女士说得对:伏特加是用来喝的。)
+
+所以这里有一个问题给你，如果你正在考虑制作你自己的洗手液。为什么不只是...洗手？当然，当你不在水槽附近时，消毒剂是一种方便的权宜之计，但粗略的 DIY 版本真的更好吗？它可能实际上不起作用，而且可能会让你的手变得非常干燥。
+
+除非在非常特殊的情况下(你在荒野中，但被人群包围，但你也没有明显的脏手)，你可能只需要再去一趟洗手间洗手。
+
+好消息是:我去过的每家商店都把洗手液下架了，但是洗手液总是库存充足。

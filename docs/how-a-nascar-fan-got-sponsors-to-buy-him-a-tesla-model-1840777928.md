@@ -1,10 +1,10 @@
 # 一个纳斯卡迷如何让赞助商给他买了一辆带有戴尔·恩哈特献礼的特斯拉 Model 3
 
-> 原文：<https://jalopnik.com/how-a-nascar-fan-got-sponsors-to-buy-him-a-tesla-model-1840777928>
+> 原文:[https://jalopnik . com/how-a-NASCAR-fan-get-sponsors-to-buy-him-a-Tesla-model-1840777928](https://jalopnik.com/how-a-nascar-fan-got-sponsors-to-buy-him-a-tesla-model-1840777928)
 
 自从他在 2001 年代托纳 500 中去世后，戴尔·恩哈特可能已经成为美国赛车界最受尊敬的车手。这位恐吓者激励了一代 [纳斯卡](https://jalopnik.com/c/racing) 车迷，人们继续通过在各种东西上扔他的制服来表达敬意，包括这辆 [特斯拉 Model 3](https://jalopnik.com/tag/tesla-model-3) 。
 
-
+Watch
 
 老恩哈特的失事引发了赛车界的安全革命，但除此之外，他还激励了数百万人，甚至成为了一个迷因:升起地狱，赞美戴尔！Slate 声称 Sr 的迷因地位 [将他提升为狂热爱好者中的圣徒](https://slate.com/human-interest/2019/04/dale-earnhardt-memes-intimidator-nascar-rabbit-holes.html) 。
 
@@ -12,4 +12,40 @@
 
 这辆车是迪伦·辛诺特(Dylan Sinnott)的一个项目，他自称是“过气的游戏玩家”，他说他在寻找一些能激励人们的东西，一些在考虑他的下一辆项目车时会“不同”的东西，他降落在通用汽车公司的 Goodwrench 特斯拉上。鉴于这是互联网上的一辆特斯拉，有一个该项目的公告视频:
 
-<iframe data-src="https://jalopnik.com/embed/inset/iframe?id=youtube-video-JjQZ6l_BxYc&amp;start=0" data-chomp-id="JjQZ6l_BxYc" data-recommend-id="youtube://JjQZ6l_BxYc" id="youtube-JjQZ6l_BxYc" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="JjQZ6l_BxYc" data-recommend-id="youtube://JjQZ6l_BxYc" id="youtube-JjQZ6l_BxYc" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">他告诉 Jalopnik，27 岁的 Sinnott 毕业于计算机科学和市场营销专业，住在北卡罗来纳州夏洛特的“高速公路的阴影下”，他希望专注于一个营销项目，以改变他常规的 IT 咨询工作的节奏。一天，他的女朋友在吃饭时提到了 Model 3，他本能地开玩笑说:“戴尔买三辆？”他说，特斯拉 Model 3 立刻让他眼前一亮。<br/></p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M674727ScriptRootC1321798"/><div class="mgidMidMobile" id="M674727ScriptRootC1321799"/></div><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">“我想，‘如果我有足够多的赞助商，如果我按照纳斯卡的风格来做，我可能会免费得到这辆车。’辛诺特告诉 Jalopnik 说:“在老戴尔的车上，他会有 20 到 40 个赞助商，实际上我可能会得到它。”。</p><p class="sc-77igqf-0 bOfvBY">“我创建了一个文档，计算了所有的成本。显然，我不得不采用最大规格，努力做到更快。我制定了成本计划，税费，车轮和轮胎，包装，着色，陶瓷涂层，等等。辛诺特在电话里告诉我，“我们最终得到的数字是 73590 美元。”。</p><p class="sc-77igqf-0 bOfvBY">“所以我制定了需要多少赞助，并决定在不同地区销售这款车。我试图确保自己没有使用任何有版权的标识，因为我显然不想被起诉。”</p><p class="sc-77igqf-0 bOfvBY">辛诺特和帮助他的朋友想在 1 月 1 日开始这个项目，“所以我必须和特斯拉一起工作。最终，一些公司支付了过高的价格。特斯拉——我不知道他们是非法给我打了折扣，还是注销了一大部分，但我的总数最终比最初预计的少了大约 1 万到 1.5 万美元，”辛诺特说。</p><p class="sc-77igqf-0 bOfvBY">他声称，他一直等到有了 100%的赞助费，才让自己的宣传更严肃一点，因为他可以用现金买车。他在夏洛特当地商店向特斯拉销售团队解释了这个想法，并担心年底前会有一款 Model 3 性能模型。</p><p class="sc-77igqf-0 bOfvBY">由于时间紧迫，特斯拉设法安排交付了一款“隐形”性能模型，该模型在机械上与常规性能模型 3 相同，但没有性能轮胎和镀铬踏板。“无论如何，我不想要高性能轮胎，因为我不想要低轮廓轮胎，因为我觉得那样看起来很滑稽，”辛诺特告诉我。(<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 cYiQhX js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://jalopnik.com/the-only-good-thing-about-low-profile-tires-is-when-you-1837911877&quot;,{&quot;metric25&quot;:1}]]" href="https://jalopnik.com/the-only-good-thing-about-low-profile-tires-is-when-you-1837911877">明智的选择</a> </span>)。)</p><p class="sc-77igqf-0 bOfvBY">Sinnott 说，一些赞助商提供的额外资金开辟了免费广告位，这使他能够获得其他公司的许可，用他们的标志填充广告位，尽可能地与原车匹配，即使这些公司没有付钱。他说，他们与付费赞助商核实，以确保这是好的，一切都解决了。</p><p class="sc-77igqf-0 bOfvBY">他在 12 月 3 日收到了特斯拉，并在 12 月 19 日之前从包装店取回了特斯拉。到目前为止，他只开了大约 1000 英里。他还用青铜色外壳包裹了内部钢琴黑色装饰，“以避免指纹”，但除此之外，他计划尽可能保持汽车的库存。</p><p class="sc-77igqf-0 bOfvBY">Sinnot 向 Jalopnik 展示的一份预算表概述了每个赞助商的价值和地位。北卡罗来纳州夏洛特的 Sunsational Tint 证实了与 Sinnot 的安排，Jalopnik 也联系了 Bojangles，Cookout 和 3M 进行确认，但尚未得到回复。</p><p class="sc-77igqf-0 bOfvBY">鉴于雪佛兰有自己的电动汽车，而特斯拉不参加全国汽车比赛协会(NASCAR)的比赛，我就讽刺性地推了他一把。“我认为转基因制服在某种程度上具有讽刺意味。当我想到纳斯卡时，我会想到喧闹、令人讨厌、速度快的汽车，但当我想到特斯拉时，我认为它们与“令人生畏”正好相反，这有点滑稽，”他说。</p><p class="sc-77igqf-0 bOfvBY">“但当我模仿它时，它看起来很酷。我认为纳斯卡会觉得这很酷，特斯拉也会觉得这很酷。我认为它也弥合了这两种受众之间的差距。”</p><p class="sc-77igqf-0 bOfvBY">“对我来说，作为一名纳斯卡迷，过去几年很艰难。我认为 rallycross，F1，Forumla E 都变得越来越令人兴奋，不幸的是，我认为 NASCAR 变得不那么令人兴奋了。”辛诺特接受了最近宣布的<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 cYiQhX js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://jalopnik.com/hybrid-nascar-could-be-here-as-soon-as-2022-1838950895&quot;,{&quot;metric25&quot;:1}]]" href="https://jalopnik.com/hybrid-nascar-could-be-here-as-soon-as-2022-1838950895">混合动力纳斯卡计划</a> </span>，但也认为他们应该继续推进全电动，并命名特斯拉和福特，以及新的 Mach-E，作为两家他希望在比赛中看到的美国公司。<br/></p><p class="sc-77igqf-0 bOfvBY">“南方做得很好的一件事是爱国，尽管这很奇怪，但我觉得特斯拉是那种人们认不出它是通用和福特这样的美国公司的公司之一。”</p><p class="sc-77igqf-0 bOfvBY">Sinnott 最后希望戴尔项目的 Model 3 能够激励其他人在他们的项目汽车上发挥创意。如果他们想做什么，他想告诉他们，如果你能找到合适的方法，许多公司都愿意提供帮助。虽然他并没有对他到底做了什么做一个描述性的指导，但他确实想告诉人们，问一问不会有什么坏处。</p><hr class="gcp5ez-1 iFgCNh"/><p class="sc-77igqf-0 bOfvBY">Sinnott 计划将这辆车带到北卡罗来纳州的主要当地活动中，并用它去赛车跑道。他还试图与 NASCAR 合作，在今年的 Daytona 500 上展示他的特斯拉，并计划在今年晚些时候进行更多的旅行和更多的视频，所以请保持警惕。<br/></p><p class="sc-77igqf-0 bOfvBY">你可以在<span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 cYiQhX js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.reddit.com/user/iamjager/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.reddit.com/user/iamjager/" target="_blank" rel="noopener noreferrer">【Reddit】</a></span>和<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 cYiQhX js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://twitter.com/DylanSinnott&quot;,{&quot;metric25&quot;:1}]]" href="https://twitter.com/DylanSinnott" target="_blank" rel="noopener noreferrer"> Twitter </a> </span>上关注辛诺，而在<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 cYiQhX js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.youtube.com/channel/UCh0DXWjTN8KGQEjHfCMXTWQ&quot;,{&quot;metric25&quot;:1}]]" href="https://www.youtube.com/channel/UCh0DXWjTN8KGQEjHfCMXTWQ" target="_blank" rel="noopener noreferrer"> Strange Garage YouTube 频道</a> </span>上的一段视频应该会在下周上线，它将更详细地介绍他是如何为汽车筹集赞助商的。</p> </body> </html></iframe>
+ [https://jalopnik.com/embed/inset/iframe?id=youtube-video-JjQZ6l_BxYc&start=0](https://jalopnik.com/embed/inset/iframe?id=youtube-video-JjQZ6l_BxYc&start=0) 
+
+他告诉 Jalopnik，27 岁的 Sinnott 毕业于计算机科学和市场营销专业，住在北卡罗来纳州夏洛特的“高速公路的阴影下”，他希望专注于一个营销项目，以改变他常规的 IT 咨询工作的节奏。一天，他的女朋友在吃饭时提到了 Model 3，他本能地开玩笑说:“戴尔买三辆？”他说，特斯拉 Model 3 立刻让他眼前一亮。
+
+“我想，‘如果我有足够多的赞助商，如果我按照纳斯卡的风格来做，我可能会免费得到这辆车。’辛诺特告诉 Jalopnik 说:“在老戴尔的车上，他会有 20 到 40 个赞助商，实际上我可能会得到它。”。
+
+“我创建了一个文档，计算了所有的成本。显然，我不得不采用最大规格，努力做到更快。我制定了成本计划，税费，车轮和轮胎，包装，着色，陶瓷涂层，等等。辛诺特在电话里告诉我，“我们最终得到的数字是 73590 美元。”。
+
+“所以我制定了需要多少赞助，并决定在不同地区销售这款车。我试图确保自己没有使用任何有版权的标识，因为我显然不想被起诉。”
+
+辛诺特和帮助他的朋友想在 1 月 1 日开始这个项目，“所以我必须和特斯拉一起工作。最终，一些公司支付了过高的价格。特斯拉——我不知道他们是非法给我打了折扣，还是注销了一大部分，但我的总数最终比最初预计的少了大约 1 万到 1.5 万美元，”辛诺特说。
+
+他声称，他一直等到有了 100%的赞助费，才让自己的宣传更严肃一点，因为他可以用现金买车。他在夏洛特当地商店向特斯拉销售团队解释了这个想法，并担心年底前会有一款 Model 3 性能模型。
+
+由于时间紧迫，特斯拉设法安排交付了一款“隐形”性能模型，该模型在机械上与常规性能模型 3 相同，但没有性能轮胎和镀铬踏板。“无论如何，我不想要高性能轮胎，因为我不想要低轮廓轮胎，因为我觉得那样看起来很滑稽，”辛诺特告诉我。( [明智的选择](https://jalopnik.com/the-only-good-thing-about-low-profile-tires-is-when-you-1837911877) )。)
+
+Sinnott 说，一些赞助商提供的额外资金开辟了免费广告位，这使他能够获得其他公司的许可，用他们的标志填充广告位，尽可能地与原车匹配，即使这些公司没有付钱。他说，他们与付费赞助商核实，以确保这是好的，一切都解决了。
+
+他在 12 月 3 日收到了特斯拉，并在 12 月 19 日之前从包装店取回了特斯拉。到目前为止，他只开了大约 1000 英里。他还用青铜色外壳包裹了内部钢琴黑色装饰，“以避免指纹”，但除此之外，他计划尽可能保持汽车的库存。
+
+Sinnot 向 Jalopnik 展示的一份预算表概述了每个赞助商的价值和地位。北卡罗来纳州夏洛特的 Sunsational Tint 证实了与 Sinnot 的安排，Jalopnik 也联系了 Bojangles，Cookout 和 3M 进行确认，但尚未得到回复。
+
+鉴于雪佛兰有自己的电动汽车，而特斯拉不参加全国汽车比赛协会(NASCAR)的比赛，我就讽刺性地推了他一把。“我认为转基因制服在某种程度上具有讽刺意味。当我想到纳斯卡时，我会想到喧闹、令人讨厌、速度快的汽车，但当我想到特斯拉时，我认为它们与“令人生畏”正好相反，这有点滑稽，”他说。
+
+“但当我模仿它时，它看起来很酷。我认为纳斯卡会觉得这很酷，特斯拉也会觉得这很酷。我认为它也弥合了这两种受众之间的差距。”
+
+“对我来说，作为一名纳斯卡迷，过去几年很艰难。我认为 rallycross，F1，Forumla E 都变得越来越令人兴奋，不幸的是，我认为 NASCAR 变得不那么令人兴奋了。”辛诺特接受了最近宣布的 [混合动力纳斯卡计划](https://jalopnik.com/hybrid-nascar-could-be-here-as-soon-as-2022-1838950895) ，但也认为他们应该继续推进全电动，并命名特斯拉和福特，以及新的 Mach-E，作为两家他希望在比赛中看到的美国公司。
+
+“南方做得很好的一件事是爱国，尽管这很奇怪，但我觉得特斯拉是那种人们认不出它是通用和福特这样的美国公司的公司之一。”
+
+Sinnott 最后希望戴尔项目的 Model 3 能够激励其他人在他们的项目汽车上发挥创意。如果他们想做什么，他想告诉他们，如果你能找到合适的方法，许多公司都愿意提供帮助。虽然他并没有对他到底做了什么做一个描述性的指导，但他确实想告诉人们，问一问不会有什么坏处。
+
+* * *
+
+Sinnott 计划将这辆车带到北卡罗来纳州的主要当地活动中，并用它去赛车跑道。他还试图与 NASCAR 合作，在今年的 Daytona 500 上展示他的特斯拉，并计划在今年晚些时候进行更多的旅行和更多的视频，所以请保持警惕。
+
+你可以在[【Reddit】](https://www.reddit.com/user/iamjager/)和 [Twitter](https://twitter.com/DylanSinnott) 上关注辛诺，而在 [Strange Garage YouTube 频道](https://www.youtube.com/channel/UCh0DXWjTN8KGQEjHfCMXTWQ) 上的一段视频应该会在下周上线，它将更详细地介绍他是如何为汽车筹集赞助商的。

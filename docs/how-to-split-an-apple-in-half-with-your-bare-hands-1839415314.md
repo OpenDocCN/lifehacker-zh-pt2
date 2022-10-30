@@ -1,7 +1,31 @@
 # 如何徒手将苹果劈成两半
 
-> 原文：<https://lifehacker.com/how-to-split-an-apple-in-half-with-your-bare-hands-1839415314>
+> 原文:[https://life hacker . com/how-to-speed a apple-in-half-hands-1839415314](https://lifehacker.com/how-to-split-an-apple-in-half-with-your-bare-hands-1839415314)
 
 凯罗·路德前几天在推特上发布了一个视频，视频中他徒手将一个苹果分成两半。太神奇了！什么样的人能做到这一点？除了凯罗·路德肯定没人了！
 
-Watch<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1187758434281607170&amp;autosize=1" autoresize="true" id="twitter-1187758434281607170" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">但是亚当·费舍尔提供了一个不同的视角:</p><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1188153999184322562&amp;autosize=1" autoresize="true" id="twitter-1188153999184322562" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><p class="sc-77igqf-0 bOfvBY">我并不想贬低砸开苹果的成就。这是一种力量的壮举，不是每个人都能做到的。但是，能够做到这一点的人可能比想象中的要多得多。事实证明亚当是对的。</p><p class="sc-77igqf-0 bOfvBY">我在这个周末的一个会议上看到了他的推特，大厅里有一个巨大的苹果篮子，所以我可以尽快测试苹果分裂技巧。(我提到这个不仅仅是为了悬念和讲故事，也是为了解释为什么我在最初发布到社交媒体 的模糊视频中穿得如此花哨。)我看了几个 YouTube 上关于苹果劈叉的视频，但最终还是苹果教你。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h297162">如何敲开那个苹果</h3><p class="sc-77igqf-0 bOfvBY">首先，如果你的手很小，选择一个小苹果。确保苹果是松脆的；新鲜的甜脆饼干效果很好。(我的第一次尝试是一个中等规模的晚会，很艰难，但我做到了。考虑去掉茎，不是为了任何机械上的好处，只是为了在你挤压的时候它不会戳到你。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">然后:</p><ol data-type="List" data-style="Number" class="sc-1lmbno3-1 sizyJ"><li>找到拇指根部柔软多肉的肌肉。将双手拇指肉楔入苹果顶部的草皮。</li><li>尽可能用力从上到下压缩苹果。将苹果压在膝盖或其他方便的表面可能会有所帮助。</li><li>这样做的时候，把苹果拉开，就像打开一本书。</li></ol><p class="sc-77igqf-0 bOfvBY">如果你遇到麻烦，尝试一个更小或更脆的苹果。</p><p class="sc-77igqf-0 bOfvBY">不要气馁。我在酒店从篮子里拿了三个苹果，只能敲开其中一个。后来，当我回到家，我买了一袋小甜薯片，我可以很容易地把它们分开，我连续给我的孩子做了几个，然后鼓励他们尝试。没有一个成功了，但是我告诉他们明年当他们长大一点的时候再试一次。然后，突然没有人想吃任何苹果，所以我在这里独自啃着它们。总之。试一试吧——你可能会让自己大吃一惊！</p><p class="sc-77igqf-0 bOfvBY"><em>2012 年 3 月 4 日更新，新增详细信息。</em></p> </body> </html></iframe>
+Watch [https://lifehacker.com/embed/inset/iframe?id=twitter-1187758434281607170&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1187758434281607170&autosize=1) 
+
+但是亚当·费舍尔提供了一个不同的视角:
+
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1188153999184322562&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1188153999184322562&autosize=1) 
+
+我并不想贬低砸开苹果的成就。这是一种力量的壮举，不是每个人都能做到的。但是，能够做到这一点的人可能比想象中的要多得多。事实证明亚当是对的。
+
+我在这个周末的一个会议上看到了他的推特，大厅里有一个巨大的苹果篮子，所以我可以尽快测试苹果分裂技巧。(我提到这个不仅仅是为了悬念和讲故事，也是为了解释为什么我在最初发布到社交媒体 的模糊视频中穿得如此花哨。)我看了几个 YouTube 上关于苹果劈叉的视频，但最终还是苹果教你。
+
+### 如何敲开那个苹果
+
+首先，如果你的手很小，选择一个小苹果。确保苹果是松脆的；新鲜的甜脆饼干效果很好。(我的第一次尝试是一个中等规模的晚会，很艰难，但我做到了。考虑去掉茎，不是为了任何机械上的好处，只是为了在你挤压的时候它不会戳到你。
+
+然后:
+
+1.  找到拇指根部柔软多肉的肌肉。将双手拇指肉楔入苹果顶部的草皮。
+2.  尽可能用力从上到下压缩苹果。将苹果压在膝盖或其他方便的表面可能会有所帮助。
+3.  这样做的时候，把苹果拉开，就像打开一本书。
+
+如果你遇到麻烦，尝试一个更小或更脆的苹果。
+
+不要气馁。我在酒店从篮子里拿了三个苹果，只能敲开其中一个。后来，当我回到家，我买了一袋小甜薯片，我可以很容易地把它们分开，我连续给我的孩子做了几个，然后鼓励他们尝试。没有一个成功了，但是我告诉他们明年当他们长大一点的时候再试一次。然后，突然没有人想吃任何苹果，所以我在这里独自啃着它们。总之。试一试吧——你可能会让自己大吃一惊！
+
+*2012 年 3 月 4 日更新，新增详细信息。*

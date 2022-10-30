@@ -1,11 +1,41 @@
 # 如何在人群中幸存
 
-> 原文：<https://lifehacker.com/how-to-survive-a-human-stampede-1832365793>
+> 原文:[https://life hacker . com/how-to-survive-a-human-stampede-1832365793](https://lifehacker.com/how-to-survive-a-human-stampede-1832365793)
 
 对人群的恐惧是一种非常真实的恐惧。当你在一群惊慌失措的人群中涌向出口时，这种恐惧似乎是完全理性的。
 
-
+Watch
 
 就在本周，一群纽约人站在地铁站拥挤的小入口处，在离过往列车不到几英寸的地方等待。视频在 [推特](https://twitter.com/JuanBago/status/1092558369834053632) 上流传，人群不动，空间狭小。如果发生了紧急情况，比如火灾或火车失控，地铁乘客安全离开车站的几率充其量也是微乎其微。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1092558369834053632&amp;autosize=1" autoresize="true" id="twitter-1092558369834053632" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">但是，如果你在一个音乐会场地或体育场，那里的空间更加狭窄，人更加密集，那该怎么办呢？你是如何在人群拥挤和身体摇摆的情况下逃生的？我们采访了一位人群专家，他告诉我们如何在像人群踩踏这样的危险场景中幸存下来，以及当你周围的一切都陷入混乱时该如何应对。<br/></p><h3 class="sc-1bwb26k-1 kpbNNd" id="h292784">不要惊慌</h3><p class="sc-77igqf-0 bOfvBY">根据为音乐会场地提供建议的人群专家和人群管理策略创始人保罗·韦特海默的说法，踩踏事件的发生恰恰是因为人们恐慌，这就是为什么你不应该这样做。他说，一个负责任的场馆应该从一开始就明确紧急出口流程，但如果没有这些流程，就会引发混乱:</p><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">缺乏安全港的指导、信息和方向会造成混乱和糟糕的生命安全选择。它们引发自我保护防御、恐慌，并使人们蜂拥而至，为生存而相互竞争。</p></blockquote><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">与描述拥挤环境的电影相反，最大的威胁不一定是摔倒和被踩踏，而是当你直立时空气耗尽(称为<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.nytimes.com/2015/11/15/magazine/how-to-survive-a-stampede.html&quot;,{&quot;metric25&quot;:1}]]" href="https://www.nytimes.com/2015/11/15/magazine/how-to-survive-a-stampede.html" target="_blank" rel="noopener noreferrer">压缩性窒息</a> </span>)。保持冷静，集中注意力，时刻注意你周围的环境。Wertheimer 补充说，尽管你很想这样做，但不要大喊大叫，因为你会浪费氧气。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h292785"><strong>跟上人群</strong></h3><p class="sc-77igqf-0 bOfvBY">为了生存，人们很容易抗拒人群的运动，试图留在原地。根据 Wertheimer 的说法，这不是一个好的举措。你不太可能战胜人群的力量并冒着受伤的风险。相反，跟上整体步伐，避免跪着、停下来、推别人、捡起掉落的物品(不值得冒这个险！)</p><p class="sc-77igqf-0 bOfvBY">疾控中心 的<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.cdc.gov/features/travel-mass-gatherings/index.html&quot;,{&quot;metric25&quot;:1}]]" href="https://www.cdc.gov/features/travel-mass-gatherings/index.html" target="_blank" rel="noopener noreferrer">建议在大规模人群踩踏事件中采取“拳击手式”的方法:双手放在胸前，站稳脚跟。<br/></a></span></p><h3 class="sc-1bwb26k-1 kpbNNd" id="h292786">寻找其他出口</h3><p class="sc-77igqf-0 bOfvBY">是的，如果每个人都跑向出口，直觉上这似乎也是最好的选择——但这并不总是最明智的选择。“一般来说，[寻找最近的出口]是合理的建议，除非每个人都决定在同一时间做同样的事情，”Wertheimer 说。“人群拥挤是结果。我建议考虑另一个出口，即使它看起来更遥远。”</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h292787">搬到外围或者找一个稳定的结构<br/></h3><p class="sc-77igqf-0 bOfvBY">当你在人群中时，尽你所能走出人群的中心，那里是你最不可能找到出口的地方。在人群中以之字形迂回前进(而不是直线前进，直线只会把你前面的人推开)到人群的外围。</p><p class="sc-77igqf-0 bOfvBY">如果失败了，就找一个不动的建筑，人群将被迫分开，你可以安全地躲起来。也不要认为门口是一个安全的地方。根据纽约时报<span></span>的报道，像门道这样的区域创造了“多维推动”换句话说，他们创造了一个没有人能真正移动的空间，因为人群不是朝着一个方向，造成了人的瓶颈效应。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h292788">如果你摔倒了，护住你的头</h3><p class="sc-77igqf-0 bOfvBY">如果你发现自己躺在地上，尽可能爬起来。但是如果不可能的话，Wertheimer 建议你侧身蜷缩起来，用手臂护住头部，以减少伤害。一旦人群散去，尽你所能重新站起来，走向外围，这样你就可以安全地退出会场，确定方位，给你的亲人打电话。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1092558369834053632&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1092558369834053632&autosize=1) 
+
+但是，如果你在一个音乐会场地或体育场，那里的空间更加狭窄，人更加密集，那该怎么办呢？你是如何在人群拥挤和身体摇摆的情况下逃生的？我们采访了一位人群专家，他告诉我们如何在像人群踩踏这样的危险场景中幸存下来，以及当你周围的一切都陷入混乱时该如何应对。
+
+### 不要惊慌
+
+根据为音乐会场地提供建议的人群专家和人群管理策略创始人保罗·韦特海默的说法，踩踏事件的发生恰恰是因为人们恐慌，这就是为什么你不应该这样做。他说，一个负责任的场馆应该从一开始就明确紧急出口流程，但如果没有这些流程，就会引发混乱:
+
+> 缺乏安全港的指导、信息和方向会造成混乱和糟糕的生命安全选择。它们引发自我保护防御、恐慌，并使人们蜂拥而至，为生存而相互竞争。
+
+与描述拥挤环境的电影相反，最大的威胁不一定是摔倒和被踩踏，而是当你直立时空气耗尽(称为 [压缩性窒息](https://www.nytimes.com/2015/11/15/magazine/how-to-survive-a-stampede.html) )。保持冷静，集中注意力，时刻注意你周围的环境。Wertheimer 补充说，尽管你很想这样做，但不要大喊大叫，因为你会浪费氧气。
+
+### **跟上人群**
+
+为了生存，人们很容易抗拒人群的运动，试图留在原地。根据 Wertheimer 的说法，这不是一个好的举措。你不太可能战胜人群的力量并冒着受伤的风险。相反，跟上整体步伐，避免跪着、停下来、推别人、捡起掉落的物品(不值得冒这个险！)
+
+疾控中心 的 [建议在大规模人群踩踏事件中采取“拳击手式”的方法:双手放在胸前，站稳脚跟。](https://www.cdc.gov/features/travel-mass-gatherings/index.html) 
+
+### 寻找其他出口
+
+是的，如果每个人都跑向出口，直觉上这似乎也是最好的选择——但这并不总是最明智的选择。“一般来说，[寻找最近的出口]是合理的建议，除非每个人都决定在同一时间做同样的事情，”Wertheimer 说。“人群拥挤是结果。我建议考虑另一个出口，即使它看起来更遥远。”
+
+### 搬到外围或者找一个稳定的结构
+
+当你在人群中时，尽你所能走出人群的中心，那里是你最不可能找到出口的地方。在人群中以之字形迂回前进(而不是直线前进，直线只会把你前面的人推开)到人群的外围。
+
+如果失败了，就找一个不动的建筑，人群将被迫分开，你可以安全地躲起来。也不要认为门口是一个安全的地方。根据纽约时报的报道，像门道这样的区域创造了“多维推动”换句话说，他们创造了一个没有人能真正移动的空间，因为人群不是朝着一个方向，造成了人的瓶颈效应。
+
+### 如果你摔倒了，护住你的头
+
+如果你发现自己躺在地上，尽可能爬起来。但是如果不可能的话，Wertheimer 建议你侧身蜷缩起来，用手臂护住头部，以减少伤害。一旦人群散去，尽你所能重新站起来，走向外围，这样你就可以安全地退出会场，确定方位，给你的亲人打电话。

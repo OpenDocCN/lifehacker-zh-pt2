@@ -1,7 +1,246 @@
 # 2020 年 9 月，HBO Max 将迎来什么
 
-> 原文：<https://lifehacker.com/whats-coming-to-hbo-max-in-september-2020-1844827549>
+> 原文:[https://life hacker . com/whats-coming-to-HBO-max-in-September-2020-1844827549](https://lifehacker.com/whats-coming-to-hbo-max-in-september-2020-1844827549)
 
 随着疫情进入秋季，我们不得不面对现实；[*尽管*](https://www.theguardian.com/business/2020/aug/21/cinemas-await-tenet-release-to-test-movie-goers-appetite-for-big-screen-christopher-nolan)暂定上映，但 2021 年将会有 tentpole 电影的唯一原因是因为 2020 年的大部分电影首映都被取消了。你最喜欢的节目的新一季的拍摄被推迟，电影制作仍然没有恢复。那么，怎样才能让我们的眼球充满内容，并让我们每月为自己喜欢的流媒体服务支付 15 美元呢？嗯，这个月 HBO Max 将会给我们一部在隔离区构思、编剧和拍摄的新电影。9 月 12 日，该服务将首映*海岸精英，*由纽约剧作家保罗·鲁德尼克(*杰佛里*)编剧，杰伊·罗奇(*奥斯丁力量，游戏改变*)导演。这部电影的演员阵容包括贝特·迈德尔、莎拉·保罗森和伊萨·雷，它讲述了生活在纽约和洛杉矶的五个人试图应对新冠肺炎·疫情对他们舒适生活的影响。在 2020 年这个被诅咒的年份，我们准备好接受一部探索日常生活荒谬性的讽刺作品了吗？我想我们会找到答案的。( [恐怖搭上概念](https://www.engadget.com/host-review-shudder-horror-pandemic-130057058.html#:~:text=Shudder%E2%80%99s%20Host%20follows%20a%20group%20of%20friends%2C%20each,both%20through%20its%20narrative%20and%20its%20very%20existence.) 对我来说似乎更上一层楼，但管它呢。)
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-nE2lCR9bRiw&amp;start=0" data-chomp-id="nE2lCR9bRiw" data-recommend-id="youtube://nE2lCR9bRiw" id="youtube-nE2lCR9bRiw" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="nE2lCR9bRiw" data-recommend-id="youtube://nE2lCR9bRiw" id="youtube-nE2lCR9bRiw" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">否则，你将不得不将就今年早些时候的微薄电影产品——包括由伊莉斯<!-- -->伊丽莎白·莫斯主演的#MeToo 时代<em>隐形人</em>——以及由雷德利·斯科特导演的新的后启示录科幻系列<em>(9 月 3 日)。</em></p><div class="bxm4mm-2 hKBnez"><div class="bxm4mm-1 goloRq instream-native-video instream-permalink instream-native-video--mobile"><div class="sc-1h0epat-0 lepUzz"><div class="sc-1h0epat-1 gRjwiT"><div class="sc-235a11-0 egwski">Watch</div></div><div class="sc-1wkneyl-0 hxLRyg video-html5-playlist" data-playlist="192590,192585,192428" data-current="192590"><div class="video-html5-loaded"><div class="video-html5-player"><div class="lhhce6-0 bVyOPq video-html5 autoplay muted mobile" data-video-id="192590" data-position="sidebar" data-video-title="How to Make a Quick and Easy Crumb Crust" data-video-network="lifehacker" data-video-duration="135"></div></div></div></div></div></div></div><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><p class="sc-77igqf-0 bOfvBY">查看以下 HBO 流媒体服务的完整列表。旁边有(HBO)的片头在 HBO Max 和常规 HBO 上都有；其他都是 HBO Max 独家。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h172055"><strong>9 月 1 日上市</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>2018 年<em>93 女王</em></li><li><em>1983 年所有的权利动作</em>(HBO)</li><li>《农民宇航员》，2007 年(HBO)</li><li>荒地，1973 年</li><li>Ballmastrz: 9009 ，2018</li><li>2006 年，班迪达斯</li><li>2006 年，美国家庭影院</li><li><em>2012 年最佳异国风情万寿菊酒店</em></li><li><em>黑火药</em>，2012 年</li><li><em>血钻</em>，2006 年</li><li><em>保镖，</em> 1992</li><li>2000 年的布拉克秀</li><li>巴特菲尔德 8 号，1960 年</li><li>热铁皮屋顶上的猫，1958 年</li><li>《穴居人》，1981 年(HBO)</li><li>夏洛特的网，1973 年</li><li>《苹果酒屋规则》，1999 年</li><li>《上帝之城》，2003 年(HBO)</li><li>《克拉拉的心》，1988 年</li><li>职员，1994 年</li><li>《冷溪庄园》，2003 年(HBO)</li><li>刚果，1995 年</li><li><em>这次谈话</em>，1974 年</li><li>2010 年</li><li>本杰明·巴顿奇事，2008 年</li><li>日期电影，2006 年(HBO)</li><li>戴夫，1993 年</li><li><em>内心的魔鬼</em>，2012 年(HBO)</li><li>丫丫姐妹会的神圣秘密，2002 年</li><li>神秘博士第 12 季</li><li><em>热天午后，</em> 1975</li><li>多洛雷斯·克莱本，1995 年</li><li><em>选举，</em> 1999 年</li><li><em>致命诱惑，</em> 1987 年</li><li>新娘的父亲，1950 年</li><li><em>最终目的地 5 </em>，2011 年(HBO)</li><li>《凤凰的飞翔》，2004 年</li><li>法医档案二:第一季</li><li><em>走完这段距离</em>，2010 年</li><li>2006 年的好年景</li><li><em>油脂，</em> 1978</li><li>1989 年，哈林之夜</li><li>哈维·伯德曼:律师，2000 年</li><li>心碎的人，2001 年</li><li><em>一个隐藏的人生</em>，2019 (HBO)</li><li>1992 年，拉斯维加斯的蜜月</li><li>2006 年第一季</li><li>不切实际的笑话:第 5-8 季</li><li>不切实际的玩笑:2002 年聚会后</li><li>不切实际的玩笑:电影， 2020</li><li>2013 年<em>电视广告</em></li><li>《良伴》2004 年(HBO)</li><li><em>杰克逊，</em> 2016</li><li><em> JFK，</em> 1991</li><li><em>乔·佩拉与你对话</em>，2018</li><li>2012 年《旅程 2:神秘岛》(HBO)</li><li><em>欢乐的噪音，</em> 2012</li><li><em>临死前的一吻，</em> 1991 年(HBO)</li><li><em>湖边小屋，</em> 2006 年</li><li>1943 年，莱西回家了</li><li>第一季</li><li><em>依靠我，</em> 1989 年</li><li>与父亲一起生活，1947 年</li><li><em>小</em>，2019 (HBO)</li><li><em>小妇人</em>，1949 年</li><li><em>迷失太空，</em> 1998</li><li><em>一个人分开，</em> 2003</li><li>毛毛，《赤子之心的英雄》:第 1-30 集</li><li>马拉松男子，1976 年</li><li><em>墨西哥人</em>，2001 年</li><li>奇迹工作者第一季</li><li>1988 年的《午夜逃亡》</li><li>2008 年圣安娜的奇迹(HBO)</li><li><em>2000 年</em>选美小姐</li><li>2005 年，选美小姐 2:全副武装，美轮美奂</li><li><em>道德奥利奥:</em>第 1-3 季</li><li><em>数字谋杀，</em> 2002</li><li><em>网友，</em> 2018</li><li><em>观察与报道，</em> 2009</li><li><em>停播</em>，2011 年</li><li>一个军官和一个绅士，1982 年</li><li>好吧好吧！让我们成为英雄:第 1-3 季</li><li><em>手术师，</em> 2019 (HBO)</li><li><em>局外人，</em> 1983</li><li><em>翻越花园围墙，</em> 2014</li><li>《越过树篱》，2006 年(HBO)</li><li><em>《突破点》，</em> 1991 年(HBO)</li><li>士兵本杰明，1980 年</li><li>《普罗米修斯》，2012 年(HBO)</li><li>PT 109 ，1963 年</li><li><em>红色小红帽</em>，2011 年</li><li><em>替换者</em>，2000 年</li><li><em>副本</em>，2019 (HBO)</li><li><em>命运的逆转，</em> 1990 年</li><li><em>看得见风景的房间，</em> 1986 年(HBO)</li><li>密封 2021: 第 1-5 季</li><li><em>非礼勿视，</em> 2006 年(HBO)</li><li><em>2010 年《怪物史莱克》</em></li><li><em>没有天空，</em> 2018 年(HBO)</li><li>2011 年(未分级版本)(HBO)</li><li>2006 年，飞机上的蛇</li><li>面具之子，2005 年</li><li>Squidbillies: 第 1-12 季</li><li><em>明星 80，</em> 1983</li><li>1960 年，坎波贝洛的日出</li><li>超级监狱！第 1-4 季</li><li>田纳西·约翰逊，1942 年</li><li><em>三王</em>，1999 年</li><li>第一季</li><li>Tim 和 Eric 精彩的表演，干得好！第 1-5 季</li><li><em>太美:我们战斗的权利</em>，2018</li><li><em>两周通知</em>，2002 年</li><li><em> V 为仇杀，</em> 2006</li><li><em>维多利亚和阿卜杜勒，</em> 2017 (HBO)</li><li><em>婚礼歌手</em>，1998 年</li><li><em>韦斯·克雷文的新噩梦</em>，1994 年</li><li>《当我们是国王》1996 年</li><li>谁害怕弗吉尼亚·伍尔夫？ 1966 年</li><li><em>风与狮子</em>，1975 年</li><li>年轻的谢尔顿:第一至第三季</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h172056"><strong>9 月 3 日发布</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>被狼养大:</em>系列首播</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h172057"><strong>9 月 4 日发布</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em> Lo Dejo Cuando Quiera(我可以随时退出)</em> 2019 (HBO)</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h172058"><strong>9 月 5 日发布</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>伪装的间谍，</em> 2019 (HBO)</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h172059"><strong>9 月 10 日发布</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>平淡:</em>电影首映</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h172060"><strong>9 月 11 日发布</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>拘留冒险:</em>第一季</li><li><em> Huracán(又名飓风)</em>，2019 (HBO)</li><li><em>大制作，小制作:</em>第一季</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h172061"><strong>9 月 12 日发布</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>沿海精英</em>:电影首映(HBO)</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h172062"><strong>9 月 14 日发布</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>第三天:</em>剧集首播(HBO)</li><li>《我们就是我们》:剧集首播(HBO)</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h172063"><strong>9 月 15 日发布</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>第二季</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h172064"><strong>9 月 17 日发布</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>2020 年，威斯顿森林</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h172065"><strong>9 月 18 日发布</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>哈布拉现在</li><li>2019 年(HBO)</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h172066"><strong>9 月 19 日发布</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>隐形人</em>，2020 年</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h172067"><strong>9 月 23 日发布</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>《混沌特工》:第一部(HBO)</li><li>混乱的代理人:第二部(HBO)</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h172068"><strong>9 月 25 日发布</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>樊丹戈在长城，</em> 2020 (HBO)</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h172069"><strong>9 月 26 日发布</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>正义慈悲，</em> 2020 (HBO)</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h172070"><strong>9 月 27 日发布</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>Patria: 系列首播(HBO)</li></ul><h2 class="sc-1bwb26k-1 kpbNNd" id="h172071"><strong>HBO Max 将于 2020 年 9 月上映</strong></h2><h3 class="sc-1bwb26k-1 kpbNNd" id="h172072"><strong>离开 9 月 7 日</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>一个明星的诞生</em>，2018 年(HBO)</li><li><em>你给的仇恨，</em> 2018</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h172073"><strong>离开 9 月 8 日</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>《奥斯陆日记》</em>，2018 (HBO)</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h172074"><strong>9 月 28 日出发</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em> 24/7 大学足球</em>，2019 (HBO)</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h172075"><strong>离开 9 月 30 日</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>阿丽塔:战斗天使，</em> 2019 (HBO)</li><li><em>输入</em>，2019 年(HBO)</li><li>《现代启示录》，1979 年(HBO)</li><li>《世界末日》，1998 年</li><li><em>刀锋，</em> 1998</li><li>燃烧的马鞍，1974 年</li><li><em>波西米亚狂想曲</em>，2018 (HBO)</li><li><em>死者，</em> 2006 年</li><li><em>驱魔人</em>，1973 年</li><li><em>人鱼童话，</em> 1993</li><li><em>油脂，</em> 1978</li><li>1984 年，小淘气们</li><li><em>采访吸血鬼，</em> 1994 年</li><li><em>地心之旅</em>，2008 年</li><li>马达加斯加，2005 年</li><li>1983 年，《疯狂的麦克斯 2:公路战士》</li><li>窈窕奶爸，1993 年</li><li>1981 年，邮递员总是按铃两次</li><li><em>拯救大兵瑞恩，</em> 1998</li><li><em>轴，</em> 2019 (HBO)</li><li>太空堵塞，1996 年</li><li>2006 年，超人归来</li><li><em>特洛伊，</em> 2004</li><li>世界之战，2005 年</li><li>2005 年，婚礼傲客</li><li><em>婚礼歌手</em>，1998 年</li><li><em>野束，</em> 1969 年</li></ul><div id="mgid-container" data-placement="3" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-nE2lCR9bRiw&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-nE2lCR9bRiw&start=0) 
+
+否则，你将不得不将就今年早些时候的微薄电影产品——包括由伊莉斯伊丽莎白·莫斯主演的#MeToo 时代*隐形人*——以及由雷德利·斯科特导演的新的后启示录科幻系列*(9 月 3 日)。*
+
+Watch
+
+查看以下 HBO 流媒体服务的完整列表。旁边有(HBO)的片头在 HBO Max 和常规 HBO 上都有；其他都是 HBO Max 独家。
+
+### **9 月 1 日上市**
+
+*   2018 年*93 女王*
+*   *1983 年所有的权利动作*(HBO)
+*   《农民宇航员》，2007 年(HBO)
+*   荒地，1973 年
+*   Ballmastrz: 9009 ，2018
+*   2006 年，班迪达斯
+*   2006 年，美国家庭影院
+*   *2012 年最佳异国风情万寿菊酒店*
+*   *黑火药*，2012 年
+*   *血钻*，2006 年
+*   *保镖，* 1992
+*   2000 年的布拉克秀
+*   巴特菲尔德 8 号，1960 年
+*   热铁皮屋顶上的猫，1958 年
+*   《穴居人》，1981 年(HBO)
+*   夏洛特的网，1973 年
+*   《苹果酒屋规则》，1999 年
+*   《上帝之城》，2003 年(HBO)
+*   《克拉拉的心》，1988 年
+*   职员，1994 年
+*   《冷溪庄园》，2003 年(HBO)
+*   刚果，1995 年
+*   *这次谈话*，1974 年
+*   2010 年
+*   本杰明·巴顿奇事，2008 年
+*   日期电影，2006 年(HBO)
+*   戴夫，1993 年
+*   *内心的魔鬼*，2012 年(HBO)
+*   丫丫姐妹会的神圣秘密，2002 年
+*   神秘博士第 12 季
+*   *热天午后，* 1975
+*   多洛雷斯·克莱本，1995 年
+*   *选举，* 1999 年
+*   *致命诱惑，* 1987 年
+*   新娘的父亲，1950 年
+*   *最终目的地 5* ，2011 年(HBO)
+*   《凤凰的飞翔》，2004 年
+*   法医档案二:第一季
+*   *走完这段距离*，2010 年
+*   2006 年的好年景
+*   *油脂，* 1978
+*   1989 年，哈林之夜
+*   哈维·伯德曼:律师，2000 年
+*   心碎的人，2001 年
+*   *一个隐藏的人生*，2019 (HBO)
+*   1992 年，拉斯维加斯的蜜月
+*   2006 年第一季
+*   不切实际的笑话:第 5-8 季
+*   不切实际的玩笑:2002 年聚会后
+*   不切实际的玩笑:电影， 2020
+*   2013 年*电视广告*
+*   《良伴》2004 年(HBO)
+*   *杰克逊，* 2016
+*   *JFK，* 1991
+*   *乔·佩拉与你对话*，2018
+*   2012 年《旅程 2:神秘岛》(HBO)
+*   *欢乐的噪音，* 2012
+*   *临死前的一吻，* 1991 年(HBO)
+*   *湖边小屋，* 2006 年
+*   1943 年，莱西回家了
+*   第一季
+*   *依靠我，* 1989 年
+*   与父亲一起生活，1947 年
+*   *小*，2019 (HBO)
+*   *小妇人*，1949 年
+*   *迷失太空，* 1998
+*   *一个人分开，* 2003
+*   毛毛，《赤子之心的英雄》:第 1-30 集
+*   马拉松男子，1976 年
+*   *墨西哥人*，2001 年
+*   奇迹工作者第一季
+*   1988 年的《午夜逃亡》
+*   2008 年圣安娜的奇迹(HBO)
+*   *2000 年*选美小姐
+*   2005 年，选美小姐 2:全副武装，美轮美奂
+*   *道德奥利奥:*第 1-3 季
+*   *数字谋杀，* 2002
+*   *网友，* 2018
+*   *观察与报道，* 2009
+*   *停播*，2011 年
+*   一个军官和一个绅士，1982 年
+*   好吧好吧！让我们成为英雄:第 1-3 季
+*   *手术师，* 2019 (HBO)
+*   *局外人，* 1983
+*   *翻越花园围墙，* 2014
+*   《越过树篱》，2006 年(HBO)
+*   *《突破点》，* 1991 年(HBO)
+*   士兵本杰明，1980 年
+*   《普罗米修斯》，2012 年(HBO)
+*   PT 109 ，1963 年
+*   *红色小红帽*，2011 年
+*   *替换者*，2000 年
+*   *副本*，2019 (HBO)
+*   *命运的逆转，* 1990 年
+*   *看得见风景的房间，* 1986 年(HBO)
+*   密封 2021: 第 1-5 季
+*   *非礼勿视，* 2006 年(HBO)
+*   *2010 年《怪物史莱克》*
+*   *没有天空，* 2018 年(HBO)
+*   2011 年(未分级版本)(HBO)
+*   2006 年，飞机上的蛇
+*   面具之子，2005 年
+*   Squidbillies: 第 1-12 季
+*   *明星 80，* 1983
+*   1960 年，坎波贝洛的日出
+*   超级监狱！第 1-4 季
+*   田纳西·约翰逊，1942 年
+*   *三王*，1999 年
+*   第一季
+*   Tim 和 Eric 精彩的表演，干得好！第 1-5 季
+*   *太美:我们战斗的权利*，2018
+*   *两周通知*，2002 年
+*   *V 为仇杀，* 2006
+*   *维多利亚和阿卜杜勒，* 2017 (HBO)
+*   *婚礼歌手*，1998 年
+*   *韦斯·克雷文的新噩梦*，1994 年
+*   《当我们是国王》1996 年
+*   谁害怕弗吉尼亚·伍尔夫？ 1966 年
+*   *风与狮子*，1975 年
+*   年轻的谢尔顿:第一至第三季
+
+### **9 月 3 日发布**
+
+*   *被狼养大:*系列首播
+
+### **9 月 4 日发布**
+
+*   *Lo Dejo Cuando Quiera(我可以随时退出)* 2019 (HBO)
+
+### **9 月 5 日发布**
+
+*   *伪装的间谍，* 2019 (HBO)
+
+### **9 月 10 日发布**
+
+*   *平淡:*电影首映
+
+### **9 月 11 日发布**
+
+*   *拘留冒险:*第一季
+*   *Huracán(又名飓风)*，2019 (HBO)
+*   *大制作，小制作:*第一季
+
+### **9 月 12 日发布**
+
+*   *沿海精英*:电影首映(HBO)
+
+### **9 月 14 日发布**
+
+*   *第三天:*剧集首播(HBO)
+*   《我们就是我们》:剧集首播(HBO)
+
+### **9 月 15 日发布**
+
+*   第二季
+
+### **9 月 17 日发布**
+
+*   2020 年，威斯顿森林
+
+### **9 月 18 日发布**
+
+*   哈布拉现在
+*   2019 年(HBO)
+
+### **9 月 19 日发布**
+
+*   *隐形人*，2020 年
+
+### **9 月 23 日发布**
+
+*   《混沌特工》:第一部(HBO)
+*   混乱的代理人:第二部(HBO)
+
+### **9 月 25 日发布**
+
+*   *樊丹戈在长城，* 2020 (HBO)
+
+### **9 月 26 日发布**
+
+*   *正义慈悲，* 2020 (HBO)
+
+### **9 月 27 日发布**
+
+*   Patria: 系列首播(HBO)
+
+## **HBO Max 将于 2020 年 9 月上映**
+
+### **离开 9 月 7 日**
+
+*   *一个明星的诞生*，2018 年(HBO)
+*   *你给的仇恨，* 2018
+
+### **离开 9 月 8 日**
+
+*   *《奥斯陆日记》*，2018 (HBO)
+
+### **9 月 28 日出发**
+
+*   *24/7 大学足球*，2019 (HBO)
+
+### **离开 9 月 30 日**
+
+*   *阿丽塔:战斗天使，* 2019 (HBO)
+*   *输入*，2019 年(HBO)
+*   《现代启示录》，1979 年(HBO)
+*   《世界末日》，1998 年
+*   *刀锋，* 1998
+*   燃烧的马鞍，1974 年
+*   *波西米亚狂想曲*，2018 (HBO)
+*   *死者，* 2006 年
+*   *驱魔人*，1973 年
+*   *人鱼童话，* 1993
+*   *油脂，* 1978
+*   1984 年，小淘气们
+*   *采访吸血鬼，* 1994 年
+*   *地心之旅*，2008 年
+*   马达加斯加，2005 年
+*   1983 年，《疯狂的麦克斯 2:公路战士》
+*   窈窕奶爸，1993 年
+*   1981 年，邮递员总是按铃两次
+*   *拯救大兵瑞恩，* 1998
+*   *轴，* 2019 (HBO)
+*   太空堵塞，1996 年
+*   2006 年，超人归来
+*   *特洛伊，* 2004
+*   世界之战，2005 年
+*   2005 年，婚礼傲客
+*   *婚礼歌手*，1998 年
+*   *野束，* 1969 年

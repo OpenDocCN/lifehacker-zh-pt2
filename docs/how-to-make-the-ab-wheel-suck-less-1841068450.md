@@ -1,11 +1,31 @@
 # 如何让 Ab 轮吸的少
 
-> 原文：<https://lifehacker.com/how-to-make-the-ab-wheel-suck-less-1841068450>
+> 原文:[https://life hacker . com/how-to-make-ab-wheel-suck-less-1841068450](https://lifehacker.com/how-to-make-the-ab-wheel-suck-less-1841068450)
 
 在本月的 [Lifehacker 健身挑战赛](https://lifehacker.com/c/lifehacker-fitness-challenge) 中，我们将挑战 ab 轮，又名 ab 滚轮，又名“糟糕，我又摔了一跤。”上周我们 [做了一个轮子上的木板](https://vitals.lifehacker.com/its-time-to-tackle-the-ab-wheel-1840929234) ，但是今天我们打算用它做一个小小的调整。朋友们，我有一个令人震惊的消息要报告:它起作用了。
 
-
+Watch
 
 游戏规则是这样的:靠墙做。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=instagram-B7bznHmB5qu&amp;autosize=1" autoresize="true" id="instagram-B7bznHmB5qu" data-recommended="false" width="598" height="676" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h296842">如何正确滚动 ab 轮</h3><p class="sc-77igqf-0 bOfvBY">从膝盖放在垫子上开始，比如折叠的瑜伽垫。将方向盘放在你直臂的正下方，收拢你的身体核心，这样你的下背部稍微有点圆。像这样设置，这样一面墙就在轮子前面一英尺左右。保持你的核心收缩，肘部伸直，向外滚动直到车轮接触到墙壁，然后向内滚动。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">当你翻转身体的时候，确保你是用你的核心开始这个动作，而不是用你的手臂推动或者用你的臀部向后倾斜。这是<em>硬</em>，如果一开始你只是滚动几英寸也没关系。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h296843">为什么墙有帮助</h3><p class="sc-77igqf-0 bOfvBY">在展开运动的最后，我们往往是最弱的，这就是我们可能会让我们的背部下垂，或者干脆失去控制，摔个四脚朝天。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">这堵墙保护你不失去控制，也让你始终如一。每个代表都是一样长的，所以你不能过于热情，超越自己的能力。你也不能在没有注意到的情况下缩短一个代表。</p><p class="sc-77igqf-0 bOfvBY">确保你对自己诚实:确定墙壁的位置，让你在整个运动过程中保持强壮，对你的所有代表来说。这可能意味着你一开始离墙壁只有几英寸。</p><p class="sc-77igqf-0 bOfvBY">一旦你能以良好的状态做几次，后退一点，再试一次。另一方面，如果你发现自己在努力够到墙，或者你能感觉到你的身体在崩溃，那就靠近一点。</p><hr class="gcp5ez-1 egkUKA"/><p class="sc-77igqf-0 bOfvBY">我已经很多年没有尝试在 ab 轮上滚动了，所以也许我不应该感到惊讶，自从我上次尝试以来，我变得更强壮了一点。有了墙，我的 ab 轮体验出奇的好！以前做类似的练习时，我的下背部总是下垂疼痛。这一次，在我到达那个点之前，我设置了一堵墙来阻止我，我能够做几个强有力的代表。太棒了！试一试砌墙的技巧，或者如果你还没有完全准备好，继续做我们上周谈到的<span></span>木板也可以。告诉我们进展如何！<br/></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=instagram-B7bznHmB5qu&autosize=1](https://lifehacker.com/embed/inset/iframe?id=instagram-B7bznHmB5qu&autosize=1) 
+
+### 如何正确滚动 ab 轮
+
+从膝盖放在垫子上开始，比如折叠的瑜伽垫。将方向盘放在你直臂的正下方，收拢你的身体核心，这样你的下背部稍微有点圆。像这样设置，这样一面墙就在轮子前面一英尺左右。保持你的核心收缩，肘部伸直，向外滚动直到车轮接触到墙壁，然后向内滚动。
+
+当你翻转身体的时候，确保你是用你的核心开始这个动作，而不是用你的手臂推动或者用你的臀部向后倾斜。这是*硬*，如果一开始你只是滚动几英寸也没关系。
+
+### 为什么墙有帮助
+
+在展开运动的最后，我们往往是最弱的，这就是我们可能会让我们的背部下垂，或者干脆失去控制，摔个四脚朝天。
+
+这堵墙保护你不失去控制，也让你始终如一。每个代表都是一样长的，所以你不能过于热情，超越自己的能力。你也不能在没有注意到的情况下缩短一个代表。
+
+确保你对自己诚实:确定墙壁的位置，让你在整个运动过程中保持强壮，对你的所有代表来说。这可能意味着你一开始离墙壁只有几英寸。
+
+一旦你能以良好的状态做几次，后退一点，再试一次。另一方面，如果你发现自己在努力够到墙，或者你能感觉到你的身体在崩溃，那就靠近一点。
+
+* * *
+
+我已经很多年没有尝试在 ab 轮上滚动了，所以也许我不应该感到惊讶，自从我上次尝试以来，我变得更强壮了一点。有了墙，我的 ab 轮体验出奇的好！以前做类似的练习时，我的下背部总是下垂疼痛。这一次，在我到达那个点之前，我设置了一堵墙来阻止我，我能够做几个强有力的代表。太棒了！试一试砌墙的技巧，或者如果你还没有完全准备好，继续做我们上周谈到的木板也可以。告诉我们进展如何！

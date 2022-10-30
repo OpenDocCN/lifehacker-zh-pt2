@@ -1,13 +1,21 @@
 # 在哪里阅读穆勒报告
 
-> 原文：<https://lifehacker.com/where-to-read-the-mueller-report-1834140364>
+> 原文:[https://life hacker . com/where-to-read-the-mueller-report-1834140364](https://lifehacker.com/where-to-read-the-mueller-report-1834140364)
 
 最好戴上你的老花镜，因为期待已久的穆勒报告终于在这里——至少，在它的严重编辑形式中 [特朗普总统的律师](https://www.vox.com/2019/4/18/18484791/mueller-report-trump-barr-lawyers-white-house) 可能会或可能不会事先审查。很正常！
 
-
+Watch
 
 今天上午， [司法部长威廉·巴尔](https://www.cnn.com/politics/live-news/robert-mueller-report-public/index.html) 在报告发布前召开新闻发布会， [表示，穆勒审查了特朗普与可能妨碍司法公正有关的“10 集”](https://splinternews.com/william-barr-is-a-shameless-stooge-1834138143)——其中一集据称证明特朗普总统的团队在 2016 年大选中与俄罗斯“没有勾结”。
 
 在美国总统的其他极其正常的回应中，特朗普在烟雾弥漫的背景下大步离开时，在推特上引用了《权力的游戏》:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1118876219381026818&amp;autosize=1" autoresize="true" id="twitter-1118876219381026818" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">希望阅读报告并为自己做出决定？这份报告是<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.justice.gov/storage/report.pdf&quot;,{&quot;metric25&quot;:1}]]" href="https://www.justice.gov/storage/report.pdf" target="_blank" rel="noopener noreferrer">现在可以在司法部的<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.justice.gov/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.justice.gov/" target="_blank" rel="noopener noreferrer">网站</a> </span>上</a> </span>免费查看。</p><p class="sc-77igqf-0 bOfvBY">Barnes and Noble 也允许通过任何 Nook 平板电脑或 Nook Reading 应用程序免费预订，现在报告出来了，应该会自动下载。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><em> <small>更多来自 Lifehacker，一定要在 Instagram 上关注我们</small></em><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.instagram.com/lifehackerdotcom/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.instagram.com/lifehackerdotcom/" target="_blank" rel="noopener noreferrer"><em><small>@ lifehackerdotcom</small></em></a></span><em><small>。</small> </em> <br/></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1118876219381026818&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1118876219381026818&autosize=1) 
+
+希望阅读报告并为自己做出决定？这份报告是 [现在可以在司法部的](https://www.justice.gov/storage/report.pdf) [网站](https://www.justice.gov/) 上 免费查看。
+
+Barnes and Noble 也允许通过任何 Nook 平板电脑或 Nook Reading 应用程序免费预订，现在报告出来了，应该会自动下载。
+
+* * *
+
+*<small>更多来自 Lifehacker，一定要在 Instagram 上关注我们</small>*[*<small>@ lifehackerdotcom</small>*](https://www.instagram.com/lifehackerdotcom/)*<small>。</small>*

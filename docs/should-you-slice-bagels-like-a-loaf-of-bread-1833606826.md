@@ -1,7 +1,25 @@
 # 你应该像切面包一样切百吉饼吗？
 
-> 原文：<https://lifehacker.com/should-you-slice-bagels-like-a-loaf-of-bread-1833606826>
+> 原文:[https://life hacker . com/should-you-slice-bagels-like-a-loaf-of-bread-1833606826](https://lifehacker.com/should-you-slice-bagels-like-a-loaf-of-bread-1833606826)
 
 在我们最新一期的“黑客或怪人”节目中，我们来看看圣路易斯本地人的这条推特:
 
-Watch<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1110341506802552832&amp;autosize=1" autoresize="true" id="twitter-1110341506802552832" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">在这条推文中，Krautmann 声称他向他的同事介绍了这个“圣路易斯秘密”，即订购像一条面包一样切成横截面的百吉饼。</p><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><p class="sc-77igqf-0 bOfvBY">好吧。也许这件事应该保密。</p><p class="sc-77igqf-0 bOfvBY">如果你站在所有好的和真实的一边，你会注意到这种方法产生了许多大小不规则的切片，几乎完全消除了百吉饼耐嚼的外壳的吸引力，并产生了可以由任何类似面包的产品制成的可悲的小面包。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">与此同时，这个被 G-d 抛弃的“黑客”已经把我们的办公室撕成了碎片。<em/>life hacker 工作人员中的一些(错误的)成员认为这个想法是<em>而不是</em>一个噩梦般的地狱场景，指出这允许更小、更容易消费的部分，可以快速烘烤，更容易分享。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">但是其他人指出，更少的份量可能会导致过度消费。你可能吃了 12 个百吉饼，然后才意识到这相当于两个完整的百吉饼。(以笔者的拙见，我不知道任何人如何能在不被身体完全拒绝的情况下吃下这些食物中的任何一种。)</p><p class="sc-77igqf-0 bOfvBY">这无疑是自辛西娅·尼克松的<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://theslot.jezebel.com/jezebel-reviews-cynthia-nixons-highly-controversial-ci-1828950054#_ga=2.243546757.1837296093.1553520176-1723114163.1524514905&quot;,{&quot;metric25&quot;:1}]]" href="https://theslot.jezebel.com/jezebel-reviews-cynthia-nixons-highly-controversial-ci-1828950054#_ga=2.243546757.1837296093.1553520176-1723114163.1524514905">肉桂葡萄干面包圈丑闻</a> </span>以来最糟糕的面包圈(我很确定这让她输掉了选举)。</p><p class="sc-77igqf-0 bOfvBY">还值得指出的是，照片中令人悲伤的百吉饼来自<em> Panera Bread </em>，这给这个故事增加了又一个不幸的讽刺:Panera 的亿万富翁所有者(以及爱因斯坦百吉饼和 Krispy Kreme)最近出现在新闻中，当时他们谈到了该公司的<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.washingtonpost.com/history/2019/03/25/german-billionaire-family-that-owns-einstein-bros-bagels-admits-nazi-past/?noredirect=on&amp;utm_term=.174b804f578d&quot;,{&quot;metric25&quot;:1}]]" href="https://www.washingtonpost.com/history/2019/03/25/german-billionaire-family-that-owns-einstein-bros-bagels-admits-nazi-past/?noredirect=on&amp;utm_term=.174b804f578d" target="_blank" rel="noopener noreferrer">纳粹历史。</a> </span></p><p class="sc-77igqf-0 bOfvBY">当然，没有任何宗教或团体拥有这种美味，人们可以随心所欲地处理他们的烘焙食品。但作为一名纽约人，我在一所高中上学，每天上午吃点心的时间被称为“百吉饼休息时间”，我觉得这个概念令人反感。事实上，它消除了所有使百吉饼有吸引力的质地，这是令人不快的。它来自圣路易斯的事实令人不快。他们从 Panera 订购百吉饼的事实令人不快。Panera 的人说“你想让我们把百吉饼放进面包切片机？好的，好的！”令人不快。这就相当于一勺奶油奶酪泼在你脸上，一份鸡蛋奶油浇在你头上，热熏牛肉洒在油毡上。</p><p class="sc-77igqf-0 bOfvBY">我的朋友们，这太疯狂了。</p> </body> </html></iframe>
+Watch [https://lifehacker.com/embed/inset/iframe?id=twitter-1110341506802552832&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1110341506802552832&autosize=1) 
+
+在这条推文中，Krautmann 声称他向他的同事介绍了这个“圣路易斯秘密”，即订购像一条面包一样切成横截面的百吉饼。
+
+好吧。也许这件事应该保密。
+
+如果你站在所有好的和真实的一边，你会注意到这种方法产生了许多大小不规则的切片，几乎完全消除了百吉饼耐嚼的外壳的吸引力，并产生了可以由任何类似面包的产品制成的可悲的小面包。
+
+与此同时，这个被 G-d 抛弃的“黑客”已经把我们的办公室撕成了碎片。*life hacker 工作人员中的一些(错误的)成员认为这个想法是*而不是*一个噩梦般的地狱场景，指出这允许更小、更容易消费的部分，可以快速烘烤，更容易分享。*
+
+*但是其他人指出，更少的份量可能会导致过度消费。你可能吃了 12 个百吉饼，然后才意识到这相当于两个完整的百吉饼。(以笔者的拙见，我不知道任何人如何能在不被身体完全拒绝的情况下吃下这些食物中的任何一种。)*
+
+*这无疑是自辛西娅·尼克松的 [肉桂葡萄干面包圈丑闻](https://theslot.jezebel.com/jezebel-reviews-cynthia-nixons-highly-controversial-ci-1828950054#_ga=2.243546757.1837296093.1553520176-1723114163.1524514905) 以来最糟糕的面包圈(我很确定这让她输掉了选举)。*
+
+*还值得指出的是，照片中令人悲伤的百吉饼来自 *Panera Bread* ，这给这个故事增加了又一个不幸的讽刺:Panera 的亿万富翁所有者(以及爱因斯坦百吉饼和 Krispy Kreme)最近出现在新闻中，当时他们谈到了该公司的 [纳粹历史。](https://www.washingtonpost.com/history/2019/03/25/german-billionaire-family-that-owns-einstein-bros-bagels-admits-nazi-past/?noredirect=on&utm_term=.174b804f578d)*
+
+*当然，没有任何宗教或团体拥有这种美味，人们可以随心所欲地处理他们的烘焙食品。但作为一名纽约人，我在一所高中上学，每天上午吃点心的时间被称为“百吉饼休息时间”，我觉得这个概念令人反感。事实上，它消除了所有使百吉饼有吸引力的质地，这是令人不快的。它来自圣路易斯的事实令人不快。他们从 Panera 订购百吉饼的事实令人不快。Panera 的人说“你想让我们把百吉饼放进面包切片机？好的，好的！”令人不快。这就相当于一勺奶油奶酪泼在你脸上，一份鸡蛋奶油浇在你头上，热熏牛肉洒在油毡上。*
+
+*我的朋友们，这太疯狂了。*

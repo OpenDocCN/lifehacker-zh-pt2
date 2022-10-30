@@ -1,11 +1,37 @@
 # 关闭后如何帮助约书亚树国家公园
 
-> 原文：<https://lifehacker.com/how-to-help-joshua-tree-national-park-after-the-shutdow-1832261143>
+> 原文:[https://life hacker . com/how-to-help-Joshua-tree-national-park-after-the-shut Dow-1832261143](https://lifehacker.com/how-to-help-joshua-tree-national-park-after-the-shutdow-1832261143)
 
 本周，美国政府在关闭 35 天后重新开放。它对我们国家公园的影响是毁灭性的，毁坏了公共土地，危及了各地联邦工作人员的生计。幸运的是，这里有 T2、T4，你能做的很少，来帮助一个遭受重创的公园。
 
-
+Watch
 
 根据一些自然资源保护者 的说法，像南加州约书亚树国家公园这样的地方将需要几个世纪才能重新生长，这是工人休假和不受监督的破坏的结果。自关闭开始以来，砍伐树木、垃圾和在公园非法露营的照片在社交媒体上流传开来。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1083386123332636673&amp;autosize=1" autoresize="true" id="twitter-1083386123332636673" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">“在约书亚树国家公园，新年早晨香槟酒瓶散落在沙漠地面上，还有一件舞会礼服，”洛杉矶时报<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.latimes.com/local/lanow/la-me-ln-park-restrictions-20190102-story.html&quot;,{&quot;metric25&quot;:1}]]" href="https://www.latimes.com/local/lanow/la-me-ln-park-restrictions-20190102-story.html" target="_blank" rel="noopener noreferrer">写道。</a> </span>“有人踢了一棵标志性的树，也许是想看看它有多结实。人类的排泄物正在堆积。”</p><p class="sc-77igqf-0 bOfvBY">非营利组织约书亚树之友(Friends of Joshua Tree)致力于志愿清理工作，以遏制影响公园的问题，尽管如果政府在 2 月份再次关闭，公园很可能会处于类似的境地(甚至更糟)。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">你能做些什么来帮助约书亚树国家公园？以下是一些小贴士:</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h291854">志愿者</h3><p class="sc-77igqf-0 bOfvBY">如果你是加州本地人，你可以注册成为国家公园保护协会的<span></span>志愿者，帮助清理公园里散落的垃圾和其他废弃物。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h291855">Dona <!-- --> te</h3><p class="sc-77igqf-0 bOfvBY">如果你想在全国范围内产生影响，你可以通过<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.nps.gov/index.htm&quot;,{&quot;metric25&quot;:1}]]" href="https://www.nps.gov/index.htm" target="_blank" rel="noopener noreferrer">国家公园服务处</a> </span>直接向约书亚树国家公园 捐款。你可以指定你想把捐款花在哪里，所以一定要指定清理和保护工作。这里是关于你可以在哪里寄送支票的信息。</p><p class="sc-77igqf-0 bOfvBY">想帮助约书亚树的被关闭影响的休假工人吗？约书亚树之友推出了<span></span>无息小额贷款计划。借出几美元作为贷款，工人们将暂时免于停工。如果政府在二月份再次关门，这个项目将变得比以往任何时候都更有必要。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h291856">不要越野</h3><p class="sc-77igqf-0 bOfvBY">如果你计划去公园，你能帮上什么忙呢？不要越野。探索公园在当时似乎是一个好主意，但游客被禁止开车进入植被可能受到损害(或意外被砍伐)的区域。</p><p class="sc-77igqf-0 bOfvBY">如果你发现任何垃圾，尽你的一份力量捡起来，并意识到你自己的浪费。国家公园是一个公共空间，我们都应该意识到我们个人的影响，不管多小。</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><em> <small>更多来自 Lifehacker，一定要在 Instagram 上关注我们</small></em><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.instagram.com/lifehackerdotcom/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.instagram.com/lifehackerdotcom/" target="_blank" rel="noopener noreferrer"><em><small>@ lifehackerdotcom</small></em></a></span><em><small>。</small> </em> <br/></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1083386123332636673&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1083386123332636673&autosize=1) 
+
+“在约书亚树国家公园，新年早晨香槟酒瓶散落在沙漠地面上，还有一件舞会礼服，”洛杉矶时报 [写道。](https://www.latimes.com/local/lanow/la-me-ln-park-restrictions-20190102-story.html) “有人踢了一棵标志性的树，也许是想看看它有多结实。人类的排泄物正在堆积。”
+
+非营利组织约书亚树之友(Friends of Joshua Tree)致力于志愿清理工作，以遏制影响公园的问题，尽管如果政府在 2 月份再次关闭，公园很可能会处于类似的境地(甚至更糟)。
+
+你能做些什么来帮助约书亚树国家公园？以下是一些小贴士:
+
+### 志愿者
+
+如果你是加州本地人，你可以注册成为国家公园保护协会的志愿者，帮助清理公园里散落的垃圾和其他废弃物。
+
+### Dona te
+
+如果你想在全国范围内产生影响，你可以通过 [国家公园服务处](https://www.nps.gov/index.htm) 直接向约书亚树国家公园 捐款。你可以指定你想把捐款花在哪里，所以一定要指定清理和保护工作。这里是关于你可以在哪里寄送支票的信息。
+
+想帮助约书亚树的被关闭影响的休假工人吗？约书亚树之友推出了无息小额贷款计划。借出几美元作为贷款，工人们将暂时免于停工。如果政府在二月份再次关门，这个项目将变得比以往任何时候都更有必要。
+
+### 不要越野
+
+如果你计划去公园，你能帮上什么忙呢？不要越野。探索公园在当时似乎是一个好主意，但游客被禁止开车进入植被可能受到损害(或意外被砍伐)的区域。
+
+如果你发现任何垃圾，尽你的一份力量捡起来，并意识到你自己的浪费。国家公园是一个公共空间，我们都应该意识到我们个人的影响，不管多小。
+
+* * *
+
+*<small>更多来自 Lifehacker，一定要在 Instagram 上关注我们</small>*[*<small>@ lifehackerdotcom</small>*](https://www.instagram.com/lifehackerdotcom/)*<small>。</small>*

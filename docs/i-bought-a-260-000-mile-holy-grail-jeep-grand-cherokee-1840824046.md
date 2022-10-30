@@ -1,6 +1,6 @@
 # 我买了一辆 260，000 英里的“圣杯”吉普大切诺基，不知从哪里冒出来的。把它带回家几乎让我崩溃
 
-> 原文：<https://jalopnik.com/i-bought-a-260-000-mile-holy-grail-jeep-grand-cherokee-1840824046>
+> 原文:[https://jalopnik . com/I-buyed-a-260-000 英里-圣杯-吉普-大切诺基-1840824046](https://jalopnik.com/i-bought-a-260-000-mile-holy-grail-jeep-grand-cherokee-1840824046)
 
 “我想我要飞回家。我再也受不了了，”布兰登无精打采地坐在丹佛一家酒吧的角落里咕哝道。快到午夜了，我的朋友在混乱中，他的精神已经被连续 12 个小时的极端、高强度的扭动压垮了，那是我愚蠢地花 700 美元 买的罕见的手动变速箱吉普大切诺基。我们离家 1300 英里，我显然犯了一个严重的错误。
 
@@ -18,4 +18,162 @@
 
 在空旷光滑的道路上行驶了大约一个小时后，我们到达了奥拉西，安东尼带我们去了一个房子，房子的前院挂着几匹马。那是我第一次看到圣杯:
 
-<iframe data-src="https://jalopnik.com/embed/inset/iframe?id=instagram-B6HBXITHebs&amp;autosize=1" autoresize="true" id="instagram-B6HBXITHebs" data-recommended="false" width="598" height="676" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">这是...好吧。我想我期望云层散开，把一束明亮的阳光洒在一辆崭新的世界上第一辆全簧吉普车上。但是没有，任何地方都没有太阳，圣杯吉普车的状况相当一般。如果我没有生活在生锈的土地上 ，我可能会用一个没有“平均”那么慷慨的词</p><p class="sc-77igqf-0 bOfvBY">这幅画绝对是垃圾，被以前的主人扔进了垃圾桶。即使当我剥去一些黑色外层，原来的猎人绿色油漆工作和透明外套看起来严重日晒褪色。</p><p class="sc-77igqf-0 bOfvBY">内部很脏，方向盘的一些外层已经剥落，露出下面的红色塑料，后座的头枕不见了，手套箱的插销坏了，盖子一直在掉，两个门板都有裂缝，仪表板看起来也很脆，围绕着丑陋的售后收音机的中控台装饰坏了，所有东西上都有一层污垢。</p><p class="sc-77igqf-0 bOfvBY">圣杯吉普车——一辆我曾因其稀有而赞美过的车，我原以为它的整体状况还不错——内外都很丑陋。</p><p class="sc-77igqf-0 bOfvBY">但在我看来，这辆吉普车的特别之处绝不在于它的外观，而在于它的机械性能。而在那个区域，吉普车超出了我的预期。首先，车身结构看起来几乎 100%没有生锈，原来的车身底部防锈涂层仍然保持良好的状态。作为一个通常购买比现在的 少了更多平方英尺地板的车辆的人，这让我很惊讶。<br/></p><p class="sc-77igqf-0 bOfvBY">然后是启动吉普车的时候了。我跳进粗糙的内部，按下离合器(感觉有点黏糊糊的，但不可怕)，转动点火开关。发动机转动了几秒钟，但没有启动。我让起动机休息一下，再次转动钥匙，AMC 设计的 4.0 升直列六缸发动机就启动了，它的挺杆发出响亮的滴答声，蛇形皮带发出刺耳的声音。几秒钟之内，皮带开始加速，油泵使油在整个发动机中循环，发动机安静平稳地运转，就像我听过的最好的四升吉普一样。我发现这对于一台 260，000 英里的发动机来说很了不起。</p><p class="sc-77igqf-0 bOfvBY">但是我没有时间盯着这辆吉普车不生锈的车身或漂亮的直列六缸车，我必须把车开到 50 英里外大章克申的安东尼加热车库。根据安东尼的说法，鉴于离合器明显打滑<em>严重</em>，我担心我们可能不得不用尼龙牵引带和借来的雪佛兰 2500 来平拖吉普车。</p><p class="sc-77igqf-0 bOfvBY">尽管有这种风险，我还是让布兰登开着雪佛兰去附近一个镇上的高级汽车配件商店买一个飞轮，他们显然有库存。如果我们的离合器更换工作花了太长时间，我想，我们可能没有时间来加工飞轮。即使我们这样做了，飞轮也可能处于糟糕的状态，所以我认为手头上有一个好的飞轮是一个明智的举动，以防万一。</p><p class="sc-77igqf-0 bOfvBY">布兰登开车去商店，我和安东尼在吉普车的前排座位上扣好安全带。我从来没有驾驶过离合器打滑的车辆，所以这将会很有趣，特别是因为安东尼和我可能很快就会被困在一个偏僻的地方，等待布兰登来保释我们。我坐在极其舒适的布质座椅上，像 20 世纪 90 年代的几乎所有汽车一样(出于某种原因)，集成了头枕，我踩下离合器，将五速换挡杆向右猛拉四分之一英里，然后倒挡。我慢慢松开离合器，吉普车动了！</p><p class="sc-77igqf-0 bOfvBY">然后我换到了高速档，向左，升到了第一档，注意到了换挡杆的美妙的缺口。我慢慢松开离合器，吉普车前进了！我把车速开到每小时 15 或 20 英里，然后换到第二档。变化很大，我们现在已经超过 25 英里了！</p><p class="sc-77igqf-0 bOfvBY">我整个星期都在担心吉普车的离合器可能坏得太厉害，无法从奥拉西开到安东尼家，所以我想出了一个攻击计划:我会加快发动机的转速，并推迟换档，这样我就可以避免太用力踩油门，通过离合器传递大量负载。</p><div class="ooo3c9-0 cmUFVa embed-frame"><span class="non-flex-video"><iframe data-src="https://jalopnik.com/embed/inset/iframe?id=instagram-B6IzLAyHIzn&amp;autosize=1" autoresize="true" id="instagram-B6IzLAyHIzn" data-recommended="false" width="598" height="676" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><p class="sc-77igqf-0 bOfvBY">这一招非常奏效。我通常会确保让 4.0 升发动机达到 3000 转/分钟，然后将漂亮的五速换挡调到下一档，结果是，即使在奥拉西和大路口之间公认的中等坡度的山上，我唯一一次看到打滑的情况是在第五档爬最陡的坡。</p><p class="sc-77igqf-0 bOfvBY">我把吉普车开了 50 英里到 Grand Junction，平均时速约为 55 英里，非常平稳(除了 65 英里左右的振动)，没有戏剧性的驾驶，我只花了 700 美元买了一辆破车，我本以为不会开。不是，我很惊讶。但是布兰登和我进入了痛苦的地狱。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h289570">固定圣杯是地狱</h3><p class="sc-77igqf-0 bOfvBY">尽管我设法一瘸一拐地开着“ZJ”一代大切诺基跑了 50 多英里来到安东尼的家，只松了一两次离合器，但我绝不可能让一辆离合器坏了的 3600 磅重的 SUV 驶过落基山脉。此外，正如安东尼在初次试驾后告诉我的那样，方向盘有严重的问题。在我开车的时候，我听到了很多沉闷的声音，并感觉到前端明显松动和徘徊。布兰登和我显然有一些痛苦要做。<br/></p><p class="sc-77igqf-0 bOfvBY">但是我们有所准备。我们带来了所有我们认为需要的工具，我在网上订购了零件和工具，并把它们运到了安东尼在 Grand Junction 的修车厂，我们要求最近的汽车零件商店把一堆备用工具放在一边，这样我们一进城就可以把它们都拿走，我们还研究了更换离合器需要什么。更不用说，<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 cYiQhX js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://jalopnik.com/how-i-completely-rebuilt-my-jeeps-transmission-in-one-n-1787048965&quot;,{&quot;metric25&quot;:1}]]" href="https://jalopnik.com/how-i-completely-rebuilt-my-jeeps-transmission-in-one-n-1787048965">布兰登和我之前一起拆卸和重装过变速器</a> </span>和<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 cYiQhX js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;http://thegarage.jalopnik.com/this-weekend-will-be-a-critical-point-for-my-1948-jeep-1793157325?_ga=2.55978027.1684157623.1578289367-905925312.1553959229&quot;,{&quot;metric25&quot;:1}]]" href="http://thegarage.jalopnik.com/this-weekend-will-be-a-critical-point-for-my-1948-jeep-1793157325?_ga=2.55978027.1684157623.1578289367-905925312.1553959229">发动机</a> </span>，所以我们都不担心这项工作超出我们的技能水平。我们关心的是时间。</p><p class="sc-77igqf-0 bOfvBY">从奥拉西偷吉普车，从零件商店拿工具，从一些朋友那里借传输插孔<span></span>的弗雷德威廉姆斯(非常感谢弗雷德为我们牵线搭桥)，布兰登、安东尼和我直到周日下午 3 点左右才开始扭动，布兰登绝对必须在周四下午之前回到密歇根州，赶上他的航班回家度假。这意味着我和他必须最迟在星期二下午离开大章克申。</p><p class="sc-77igqf-0 bOfvBY">我们有 24 个小时的时间来做这个离合器工作，修理方向盘，并修补任何其他损坏的东西——这是一项令人难以置信的艰巨任务。</p><p class="sc-77igqf-0 bOfvBY">我们在转向问题上真的很幸运，因为在我来回转动方向盘后，Brandon 从下面观察，他发现了问题:unibody 上的跟踪杆支架松了。</p><p class="sc-77igqf-0 bOfvBY">这是一件大事，因为跟踪杆是阻止车轴横向移动的东西。如果支架松动，转动方向盘实际上会使车轴远离车辆中心，而不是像预期的那样转动前轮和转向车身。这个问题最终产生了一个非常奇怪的驾驶感觉。如果你仍然不相信这是一个大问题，那么考虑一下<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 cYiQhX js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://jalopnik.com/new-jeep-wrangler-frame-welds-are-failing-and-now-fca-i-1829551649&quot;,{&quot;metric25&quot;:1}]]" href="https://jalopnik.com/new-jeep-wrangler-frame-welds-are-failing-and-now-fca-i-1829551649">新款“JL”吉普牧马人不得不被召回，因为它的跟踪杆支架焊缝可能会脱落，并可能导致“转向响应能力下降”和“没有事先警告的车辆碰撞”</a>T3】</span></p><p class="sc-77igqf-0 bOfvBY">幸运的是，我们不需要焊接任何东西，因为 ZJ 的轨道杆是用螺栓固定在主体结构上的。所有的紧固件都松了，所以我们简单地在螺栓上涂了一些螺纹锁固剂，并按照规格拧紧了螺母。</p><p class="sc-77igqf-0 bOfvBY">方向盘修好后，我们将注意力转向位于发动机和变速器之间的离合器。发动机通过发动机支架固定在车身上，而变速器位于横梁上；人们普遍认为，卸下变速器比猛拉发动机更有意义，所以这就是布兰登和我所做的。</p><p class="sc-77igqf-0 bOfvBY">首先，我们必须取下固定在变速器后面的分动箱。但要做到这一点，我们必须取消后传动轴。它由四个紧固件固定在后轮轴上，并刚好滑入分动箱的滑动叉。拆除竖井用了不到五分钟。</p><p class="sc-77igqf-0 bOfvBY">拉着分动箱要花更多的力气。我们首先必须拆除横跨两个主要单体轨道并支撑变速器的横梁。为此，我们必须用千斤顶支撑住变速器，松开将变速器和排气管固定在横梁上的螺栓，然后取出将横梁两侧固定在车身上的两个螺栓。<br/></p><p class="sc-77igqf-0 bOfvBY">我们还从发动机的排气歧管上拆下了排气管，这样它就不会妨碍我们将要掉落的变速箱和分动箱。</p><p class="sc-77igqf-0 bOfvBY">除了降低横梁，移开排气管，拉动传动轴，布兰登和我解开了连接驾驶室内四轮驱动杆和分动箱的连杆(上图中悬挂在分动箱上的小杆)，我们拔掉了换档灯开关和车速传感器。我们还清空了箱子。</p><p class="sc-77igqf-0 bOfvBY">从那里，我们只需通过扭转千斤顶手柄降低传输。这也使分动箱和发动机的后部(同样，发动机通过电机支架连接到车身前端)下降了几英寸。额外的间隙是一个天赐之物，当它来放松所有的螺母举行转移到传输的背面的情况。</p><p class="sc-77igqf-0 bOfvBY">即使降低了 T-case，我们仍然花了很长时间来移除一个特定的紧固件，并且不得不取出一些扩展件和一个<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 cYiQhX js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.google.com/aclk?sa=l&amp;ai=DChcSEwi9t6zR5fHmAhWBnrMKHdvlDOkYABABGgJxbg&amp;sig=AOD64_2Nap0J3WWVi7H9PCXQ4d-z1ApsHA&amp;ctype=5&amp;q=&amp;ved=2ahUKEwiBuaXR5fHmAhXQMd8KHXs9Bo4Q9aACegQIDxA4&amp;adurl=&quot;,{&quot;metric25&quot;:1}]]" href="https://www.google.com/aclk?sa=l&amp;ai=DChcSEwi9t6zR5fHmAhWBnrMKHdvlDOkYABABGgJxbg&amp;sig=AOD64_2Nap0J3WWVi7H9PCXQ4d-z1ApsHA&amp;ctype=5&amp;q=&amp;ved=2ahUKEwiBuaXR5fHmAhXQMd8KHXs9Bo4Q9aACegQIDxA4&amp;adurl=" target="_blank" rel="noopener noreferrer">爪形套筒</a> </span>来最终将其松开。但最终，我们把分动箱放到了变速器千斤顶上，降低了它，并把它从车底拉了出来。</p><p class="sc-77igqf-0 bOfvBY">接下来，是时候将变速器与发动机分离了。我们已经排空了反式(你可以看到上面的液体；请注意所有来自同步器的黄铜)。从那里，安东尼拿出了启动马达，我断开了换档器(见下文)，我们三个人解开了将变速器钟形外壳固定在发动机上的许多螺栓。</p><p class="sc-77igqf-0 bOfvBY">将 4.0 升 Jeep 发动机固定到变速器的顶部两个螺栓是外部 torx 螺栓，我不会深入了解它们为何如此令人头疼，但我只想说，对于决定这是该应用的正确紧固件的人来说，地狱中有一个特殊的位置。</p><p class="sc-77igqf-0 bOfvBY">我们还必须解开离合器液压系统(特别是从动油缸),以便将驾驶员踩下离合器踏板的力传递给离合器分离叉。</p><p class="sc-77igqf-0 bOfvBY">那时，我们把变速器千斤顶移到变速器下面，用底盘支撑住发动机，我把变速器踢向吉普车的尾部。最终，钟形外壳与引擎分离了大约 18 英寸，揭示了我们的危险来源:<br/></p><p class="sc-77igqf-0 bOfvBY">上面的照片显示了压盘和飞轮，这两个都是我们用安东尼优秀的气动冲击扳手拆下来的。</p><div class="ooo3c9-0 cmUFVa embed-frame"><span class="non-flex-video"><iframe data-src="https://jalopnik.com/embed/inset/iframe?id=instagram-B6JqN6InZTa&amp;autosize=1" autoresize="true" id="instagram-B6JqN6InZTa" data-recommended="false" width="598" height="676" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><p class="sc-77igqf-0 bOfvBY">这揭示了一个严重磨损的离合器，它非常薄，铆钉几乎没有凹陷，它看起来像一个压盘，周围有同心磨损的痕迹。<br/></p><p class="sc-77igqf-0 bOfvBY">飞轮也有看起来像是热印的痕迹，尽管它总体上看起来相当不错:</p><p class="sc-77igqf-0 bOfvBY">在变速器壳体一侧是离合器分离叉，它由脚动离合器液压装置推动，迫使分离轴承(在变速器的输入轴轴承保持架上上下滑动)靠在压盘指状物上，将压盘从离合器片上分离和释放，最终将发动机从传动系统上断开。<br/></p><p class="sc-77igqf-0 bOfvBY">Brandon 更换了钟形外壳中的分离轴承，我负责发动机方面的工作，租借了一个导向轴承拆卸工具来拆卸压入曲轴中的导向轴承，变速器输入轴安装在该导向轴承上:<br/></p><p class="sc-77igqf-0 bOfvBY">然后，我用一把大锤和一些纸板将一个新的导向轴承(这是吉普车后部的 Luk 离合器套件的一部分)敲进曲轴，并安装了新的飞轮。</p><p class="sc-77igqf-0 bOfvBY">不幸的是，布兰登和我很难将六个飞轮螺栓扭转到规格，而不只是用扭矩扳手旋转发动机(我们试图用东西卡住飞轮，但无济于事)。因此，我们对 Anthony 的气动冲击扳手进行了一次愚蠢的“校准测试”,拧紧车轮螺母，以查看根据我的点击式扭矩扳手，什么压力设置和冲击持续时间对应于什么扭矩。</p><p class="sc-77igqf-0 bOfvBY">这是荒谬的不精确，但是，螺栓上的螺纹锁，我只是用愚蠢的测试结果来调整压缩机/油箱上显示的适当的气动压力，并在规定的时间内按住冲击扳手的扳机。飞轮上了螺栓，布兰登和我继续我们的一天，意识到我们有更大的问题要解决。</p><p class="sc-77igqf-0 bOfvBY">我将离合器放在飞轮上，将塑料校准工具(随套件一起提供)穿过离合器的花键，推入导向轴承。这确保了离合器与飞轮完全同心，这样输入轴可以穿过离合器的花键进入导向轴承。我拿着这个校准工具，同时逐渐扭转我安装在离合器片上的压力板，直到飞轮，当我拧紧时交替两边以确保均匀配合。</p><p class="sc-77igqf-0 bOfvBY">离合器套件就位后，我们将变速器滚回到发动机上。让发动机和变速器外壳螺栓孔对齐需要一些努力(上身力量，请注意，在这一点上，我们大约花了 10 个小时，在昏昏沉沉的睡眠中扭动背部)和一些长螺栓作为指南，但我们动力通过。</p><p class="sc-77igqf-0 bOfvBY">其他一切的安装都与拆卸相反，这是典型的<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 cYiQhX js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://en.wikipedia.org/wiki/Talk:Haynes_Manual#Assembly_is_the_reverse_of_disassembly&quot;,{&quot;metric25&quot;:1}]]" href="https://en.wikipedia.org/wiki/Talk:Haynes_Manual#Assembly_is_the_reverse_of_disassembly" target="_blank" rel="noopener noreferrer">海恩斯手动简化艰巨任务的方式</a> </span>。这很艰难。上图显示了我们用螺栓固定爱信五速并使用 trans 千斤顶抬起沉重的分动箱后的吉普车。但当然，这并没有真正完美地将它提升到变速器背面的正确位置，所以布兰登和我不得不基本上在旋转它的同时卧推机箱<em>以便</em>。此时，我们已经进行了将近 11 个小时；当时是凌晨两点</p><p class="sc-77igqf-0 bOfvBY">拧紧 T 型箱后，我们将千斤顶从变速器下方移到分动箱下方，这样我们就可以在变速器下方安装横梁。然后，我们安装了排气管、各种分动箱、传动机构和连接器，现在 trans 已经连接好，并由横梁固定住，布兰登和我去了我们的汽车旅馆——但不是在凌晨 3 点 16 分拍下这张我们肮脏的照片之前</p><p class="sc-77igqf-0 bOfvBY">我们乘坐雪佛兰 2500 前往汽车旅馆，在凌晨 3:40 左右到达时，接待我们的接待员告诉我们:“好的，入住时间是下午 3 点。”</p><p class="sc-77igqf-0 bOfvBY">布兰登和我，满身油污，此时都看着地面，因为我们太累了，支撑不住我们的头，慢慢地凝视着对方。他看着我的眼睛，我看着他的眼睛，在我们本可以看到“快乐”或“灵魂”的地方，我们看到的只是空虚。接待员告诉我们，因为我们来的太晚了，她不能给我们预定的房间，因为我们正式“不露面”了。快到凌晨 4 点的时候..我坚决地，但不知何故还是礼貌地，请她给她的经理打电话，我不在乎他是否睡着了。</p><p class="sc-77igqf-0 bOfvBY">这达到了目的。布兰登和我洗去了脸上的污垢(是的，上面毛巾上的污垢就是我脸上的)，那天晚上几乎是死在床上，五个小时后在肮脏的床单上醒来，准备完成这项工作。<br/></p><p class="sc-77igqf-0 bOfvBY">接下来的日子过得相当顺利，除了我意识到后驱动轴上的万向节被烤焦了，布兰登和安东尼不得不用平头刺穿机油滤清器取出机油，因为<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 cYiQhX js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://jalopnik.com/stop-screwing-your-oil-filter-on-so-damn-tight-1825757554&quot;,{&quot;metric25&quot;:1}]]" href="https://jalopnik.com/stop-screwing-your-oil-filter-on-so-damn-tight-1825757554">有个傻瓜把机油滤清器拧得太紧了</a> </span> : <br/></p><p class="sc-77igqf-0 bOfvBY">安东尼检查了差速器，以确保它们有油(他们有)，他修好了前雨刮器垫圈，布兰登和我更换了前刹车片，因为它们都坏了(布兰登最终打破了一个滑销，所以我不得不从我刚从沙漠路边买的新前轴上借一个)，安东尼和我给前刹车放气，我给变速器和分动箱加满油。<br/></p><p class="sc-77igqf-0 bOfvBY">我们扔进了传动轴和一个新的空气过滤器，安东尼更换了一堆烧坏的灯泡，他甚至想出了一个创造性的方法，用金枪鱼罐头盖作为弹簧夹来防止我们的大灯外壳脱落。(这是我去掉后的样子；安东尼实际上得到了很好的冲洗):</p><p class="sc-77igqf-0 bOfvBY">这个痛苦的故事还有很多，但如果有什么我想传达的，那就是前一天晚上从下午 3 点到凌晨 3 点不停地痛苦是真正的地狱，我相信这个片段已经很清楚了:</p><div class="ooo3c9-0 cmUFVa embed-frame"><span class="non-flex-video"><iframe data-src="https://jalopnik.com/embed/inset/iframe?id=instagram-B6Lbzwbn6HF&amp;autosize=1" autoresize="true" id="instagram-B6Lbzwbn6HF" data-recommended="false" width="598" height="676" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><p class="sc-77igqf-0 bOfvBY">我很快意识到，我和布兰登在这场磨难之后睡了五个小时是远远不够的。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h289571"><strong>首航和“丹佛酒吧事件”</strong></h3><p class="sc-77igqf-0 bOfvBY">周一下午两点多一点，我们把 ZJ 从安东尼的车库开出来，上街去看看我们是不是在什么地方搞砸了。我们没有。</p><p class="sc-77igqf-0 bOfvBY">吉普车开起来很漂亮。发动机很平稳，离合器接合到位，我前一天在 65 英里每小时的速度下感觉到的振动消失了，这可能要归功于新的后驱动轴万向节。即使我们没有更换在乘客一侧发现的弯曲的下控制臂，吉普车在路上直行也没有问题。布兰登和我向好心的 Jalopnik 读者道别，他慷慨地给我买了一辆汽车，邀请我们去他家修理，并挽起袖子帮助我们把车开上了路。</p><p class="sc-77igqf-0 bOfvBY">工具装好了，我买的车轴现在放在吉普车的后座上，布兰登跳上雪佛兰，我开车带着圣杯向东越过山口。</p><p class="sc-77igqf-0 bOfvBY">一切都非常好。大切诺基以 70 英里的速度在高速公路上行驶，虽然五档和后差速器有一点齿轮噪音，但基本上很安静。这太不可思议了，因为我没有忘记我开着一辆 260，000 英里的机器，这是我花 700 美元买的。本来不应该是<em>这么好的</em>！</p><p class="sc-77igqf-0 bOfvBY">我承认我很兴奋——累得要命，但能驾驶这样一台我从十几岁开始就梦想的稀有机器，特别是一个失败者向世界展示它还有很多生命，我感到无比兴奋:</p><div class="ooo3c9-0 cmUFVa embed-frame"><span class="non-flex-video"><iframe data-src="https://jalopnik.com/embed/inset/iframe?id=instagram-B6MVQ5THpEg&amp;autosize=1" autoresize="true" id="instagram-B6MVQ5THpEg" data-recommended="false" width="598" height="676" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><p class="sc-77igqf-0 bOfvBY">但在兴奋中，我忽略了我的朋友布兰登。我们一到丹佛，我很快就发现他的情况很糟糕。这一切都发生在这个酒吧里:<br/></p><div class="ooo3c9-0 cmUFVa embed-frame"><span class="non-flex-video"><iframe data-src="https://jalopnik.com/embed/inset/iframe?id=instagram-B6N15fFpfuT&amp;autosize=1" autoresize="true" id="instagram-B6N15fFpfuT" data-recommended="false" width="598" height="676" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><p class="sc-77igqf-0 bOfvBY">将卡车归还给车主后，我安排晚上 10 点 45 分在一家名为肯塔基酒店的酒吧与一些读者见面，因为与汽车爱好者朋友见面确实是这份工作最大的乐趣。到达后，我与读者和布兰登一起坐在酒吧里，大约五分钟后，布兰登起身走向酒吧后部，可能是去了洗手间。</p><p class="sc-77igqf-0 bOfvBY">我和贾洛普斯聊了 10 分钟，然后 20 分钟，然后 30 分钟，但布兰登没有回来。意识到即使是最棘手的消化问题也不应该花这么长时间，我离开了小组，走向酒吧的后面，却发现布兰登独自一人在角落里，瘫坐在椅子上，坐在一个神秘的闪闪发光的金属液体池中。</p><p class="sc-77igqf-0 bOfvBY">布兰登没有睡着；他似乎在打电话，努力寻找一家酒店，只是一般挣扎着存在。慢慢地，他抬头看着我，他眼中的空洞让我明白了那液体是什么:那是他的灵魂。在经历了令人难以忍受的无聊的精神航空公司航班<span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 cYiQhX js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://jalopnik.com/how-a-strangers-old-chevy-pickup-got-me-over-the-snowy-1840677828&quot;,{&quot;metric25&quot;:1}]]" href="https://jalopnik.com/how-a-strangers-old-chevy-pickup-got-me-over-the-snowy-1840677828">【随机读者】的旧皮卡</a> </span>翻山越岭、长达 12 个小时的艰苦会议、凌晨 4 点在汽车旅馆的糟糕争吵、5 个小时的睡眠，以及在黑暗中驱车 4 个小时翻山越岭回到丹佛之后，他们已经逃离了他。所有这些加起来，太多了。</p><p class="sc-77igqf-0 bOfvBY">“我想我要飞回家。我再也受不了了，”他咕哝着，没精打采地呆在角落里。此时，我告诉他我们要走了，向我在酒吧的新朋友道别，并为我们找了一家不错的酒店，在那里我们睡了 8 个多小时。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h289572">将圣杯开回 1300 英里外的密歇根</h3><div class="ooo3c9-0 cmUFVa embed-frame"><span class="non-flex-video"><iframe data-src="https://jalopnik.com/embed/inset/iframe?id=instagram-B6N5U9mnXIi&amp;autosize=1" autoresize="true" id="instagram-B6N5U9mnXIi" data-recommended="false" width="598" height="676" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><p class="sc-77igqf-0 bOfvBY">在酒店的那个晚上让布兰登恢复了活力，尽管他意识到自己可能会错过周四去看望父母的航班，但他还是决定和我一起去公路旅行。</p><p class="sc-77igqf-0 bOfvBY">这次旅行是非凡的。我们开车穿过布兰登的家乡内布拉斯加州，然后进入爱荷华州，然后是伊利诺伊州，然后是印第安纳州。吉普车完美行驶:<br/></p><div class="ooo3c9-0 cmUFVa embed-frame"><span class="non-flex-video"><iframe data-src="https://jalopnik.com/embed/inset/iframe?id=instagram-B6OPsrIHjAz&amp;autosize=1" autoresize="true" id="instagram-B6OPsrIHjAz" data-recommended="false" width="598" height="676" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><p class="sc-77igqf-0 bOfvBY">它只有 17 英里/加仑的成绩，但它是一辆老破车，这就是这些东西的工作原理。除此之外，一切都很好。发动机感觉很紧；变速器换档平稳，但恰到好处的缺口和足够长的投掷是有趣的；乘坐是体面的；收音机工作正常(好的，驾驶员侧扬声器坏了)；虽然有一点齿轮噪音，整个事情是没有戏剧性的。</p><div class="ooo3c9-0 cmUFVa embed-frame"><span class="non-flex-video"><iframe data-src="https://jalopnik.com/embed/inset/iframe?id=instagram-B6PXNqfnSnz&amp;autosize=1" autoresize="true" id="instagram-B6PXNqfnSnz" data-recommended="false" width="598" height="676" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><p class="sc-77igqf-0 bOfvBY">穿越美国产粮区的旅程是辉煌的。不知何故，我的<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 cYiQhX js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://jalopnik.com/heres-my-idiotic-plan-to-drive-the-broken-260-000-mile-1840388211&quot;,{&quot;metric25&quot;:1}]]" href="https://jalopnik.com/heres-my-idiotic-plan-to-drive-the-broken-260-000-mile-1840388211">白痴计划</a> </span>成功了。我从一个看不见的偏僻地方购买了一台 26 万英里长的机器，带着装有零件和工具的手提箱，乘坐 Spirit Airlines 航班飞往最近的大城市，在一场暴风雨中飞越了落基山脉，修理了一个坏的离合器和转向系统，并毫无问题地将这辆价值 700 美元的旧车开回了密歇根州。</p><p class="sc-77igqf-0 bOfvBY">在密歇根州，我把吉普车带到了它的诞生地——底特律的杰佛逊北装配厂——那是 20 世纪 90 年代初专门为 ZJ 大切诺基建造的大型工厂。这是一个感人的时刻，也是圣杯故事的恰当结局:</p><div class="ooo3c9-0 cmUFVa embed-frame"><span class="non-flex-video"><iframe data-src="https://jalopnik.com/embed/inset/iframe?id=instagram-B6Q1CG9FcJA&amp;autosize=1" autoresize="true" id="instagram-B6Q1CG9FcJA" data-recommended="false" width="598" height="676" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><p class="sc-77igqf-0 bOfvBY">有一个原因是，当我最初提出修理和驾驶一辆我以前从未见过的高里程吉普车穿越全国的计划时，我称这个计划为“<span></span>”白痴:成功是极其不可能的。但幸运的是，我带来了我的王牌，我的朋友布兰登，他一次又一次地证明了<span></span>他支持我度过了汽车行业最艰难的考验。我的圣杯吉普车可能是 1500 辆中的一辆，但布兰登是其中的一辆。</p> </body> </html></iframe>
+ [https://jalopnik.com/embed/inset/iframe?id=instagram-B6HBXITHebs&autosize=1](https://jalopnik.com/embed/inset/iframe?id=instagram-B6HBXITHebs&autosize=1) 
+
+这是...好吧。我想我期望云层散开，把一束明亮的阳光洒在一辆崭新的世界上第一辆全簧吉普车上。但是没有，任何地方都没有太阳，圣杯吉普车的状况相当一般。如果我没有生活在生锈的土地上 ，我可能会用一个没有“平均”那么慷慨的词
+
+这幅画绝对是垃圾，被以前的主人扔进了垃圾桶。即使当我剥去一些黑色外层，原来的猎人绿色油漆工作和透明外套看起来严重日晒褪色。
+
+内部很脏，方向盘的一些外层已经剥落，露出下面的红色塑料，后座的头枕不见了，手套箱的插销坏了，盖子一直在掉，两个门板都有裂缝，仪表板看起来也很脆，围绕着丑陋的售后收音机的中控台装饰坏了，所有东西上都有一层污垢。
+
+圣杯吉普车——一辆我曾因其稀有而赞美过的车，我原以为它的整体状况还不错——内外都很丑陋。
+
+但在我看来，这辆吉普车的特别之处绝不在于它的外观，而在于它的机械性能。而在那个区域，吉普车超出了我的预期。首先，车身结构看起来几乎 100%没有生锈，原来的车身底部防锈涂层仍然保持良好的状态。作为一个通常购买比现在的 少了更多平方英尺地板的车辆的人，这让我很惊讶。
+
+然后是启动吉普车的时候了。我跳进粗糙的内部，按下离合器(感觉有点黏糊糊的，但不可怕)，转动点火开关。发动机转动了几秒钟，但没有启动。我让起动机休息一下，再次转动钥匙，AMC 设计的 4.0 升直列六缸发动机就启动了，它的挺杆发出响亮的滴答声，蛇形皮带发出刺耳的声音。几秒钟之内，皮带开始加速，油泵使油在整个发动机中循环，发动机安静平稳地运转，就像我听过的最好的四升吉普一样。我发现这对于一台 260，000 英里的发动机来说很了不起。
+
+但是我没有时间盯着这辆吉普车不生锈的车身或漂亮的直列六缸车，我必须把车开到 50 英里外大章克申的安东尼加热车库。根据安东尼的说法，鉴于离合器明显打滑*严重*，我担心我们可能不得不用尼龙牵引带和借来的雪佛兰 2500 来平拖吉普车。
+
+尽管有这种风险，我还是让布兰登开着雪佛兰去附近一个镇上的高级汽车配件商店买一个飞轮，他们显然有库存。如果我们的离合器更换工作花了太长时间，我想，我们可能没有时间来加工飞轮。即使我们这样做了，飞轮也可能处于糟糕的状态，所以我认为手头上有一个好的飞轮是一个明智的举动，以防万一。
+
+布兰登开车去商店，我和安东尼在吉普车的前排座位上扣好安全带。我从来没有驾驶过离合器打滑的车辆，所以这将会很有趣，特别是因为安东尼和我可能很快就会被困在一个偏僻的地方，等待布兰登来保释我们。我坐在极其舒适的布质座椅上，像 20 世纪 90 年代的几乎所有汽车一样(出于某种原因)，集成了头枕，我踩下离合器，将五速换挡杆向右猛拉四分之一英里，然后倒挡。我慢慢松开离合器，吉普车动了！
+
+然后我换到了高速档，向左，升到了第一档，注意到了换挡杆的美妙的缺口。我慢慢松开离合器，吉普车前进了！我把车速开到每小时 15 或 20 英里，然后换到第二档。变化很大，我们现在已经超过 25 英里了！
+
+我整个星期都在担心吉普车的离合器可能坏得太厉害，无法从奥拉西开到安东尼家，所以我想出了一个攻击计划:我会加快发动机的转速，并推迟换档，这样我就可以避免太用力踩油门，通过离合器传递大量负载。
+
+ [https://jalopnik.com/embed/inset/iframe?id=instagram-B6IzLAyHIzn&autosize=1](https://jalopnik.com/embed/inset/iframe?id=instagram-B6IzLAyHIzn&autosize=1) 
+
+这一招非常奏效。我通常会确保让 4.0 升发动机达到 3000 转/分钟，然后将漂亮的五速换挡调到下一档，结果是，即使在奥拉西和大路口之间公认的中等坡度的山上，我唯一一次看到打滑的情况是在第五档爬最陡的坡。
+
+我把吉普车开了 50 英里到 Grand Junction，平均时速约为 55 英里，非常平稳(除了 65 英里左右的振动)，没有戏剧性的驾驶，我只花了 700 美元买了一辆破车，我本以为不会开。不是，我很惊讶。但是布兰登和我进入了痛苦的地狱。
+
+### 固定圣杯是地狱
+
+尽管我设法一瘸一拐地开着“ZJ”一代大切诺基跑了 50 多英里来到安东尼的家，只松了一两次离合器，但我绝不可能让一辆离合器坏了的 3600 磅重的 SUV 驶过落基山脉。此外，正如安东尼在初次试驾后告诉我的那样，方向盘有严重的问题。在我开车的时候，我听到了很多沉闷的声音，并感觉到前端明显松动和徘徊。布兰登和我显然有一些痛苦要做。
+
+但是我们有所准备。我们带来了所有我们认为需要的工具，我在网上订购了零件和工具，并把它们运到了安东尼在 Grand Junction 的修车厂，我们要求最近的汽车零件商店把一堆备用工具放在一边，这样我们一进城就可以把它们都拿走，我们还研究了更换离合器需要什么。更不用说， [布兰登和我之前一起拆卸和重装过变速器](https://jalopnik.com/how-i-completely-rebuilt-my-jeeps-transmission-in-one-n-1787048965) 和 [发动机](http://thegarage.jalopnik.com/this-weekend-will-be-a-critical-point-for-my-1948-jeep-1793157325?_ga=2.55978027.1684157623.1578289367-905925312.1553959229) ，所以我们都不担心这项工作超出我们的技能水平。我们关心的是时间。
+
+从奥拉西偷吉普车，从零件商店拿工具，从一些朋友那里借传输插孔的弗雷德威廉姆斯(非常感谢弗雷德为我们牵线搭桥)，布兰登、安东尼和我直到周日下午 3 点左右才开始扭动，布兰登绝对必须在周四下午之前回到密歇根州，赶上他的航班回家度假。这意味着我和他必须最迟在星期二下午离开大章克申。
+
+我们有 24 个小时的时间来做这个离合器工作，修理方向盘，并修补任何其他损坏的东西——这是一项令人难以置信的艰巨任务。
+
+我们在转向问题上真的很幸运，因为在我来回转动方向盘后，Brandon 从下面观察，他发现了问题:unibody 上的跟踪杆支架松了。
+
+这是一件大事，因为跟踪杆是阻止车轴横向移动的东西。如果支架松动，转动方向盘实际上会使车轴远离车辆中心，而不是像预期的那样转动前轮和转向车身。这个问题最终产生了一个非常奇怪的驾驶感觉。如果你仍然不相信这是一个大问题，那么考虑一下 [新款“JL”吉普牧马人不得不被召回，因为它的跟踪杆支架焊缝可能会脱落，并可能导致“转向响应能力下降”和“没有事先警告的车辆碰撞”](https://jalopnik.com/new-jeep-wrangler-frame-welds-are-failing-and-now-fca-i-1829551649)T3】
+
+幸运的是，我们不需要焊接任何东西，因为 ZJ 的轨道杆是用螺栓固定在主体结构上的。所有的紧固件都松了，所以我们简单地在螺栓上涂了一些螺纹锁固剂，并按照规格拧紧了螺母。
+
+方向盘修好后，我们将注意力转向位于发动机和变速器之间的离合器。发动机通过发动机支架固定在车身上，而变速器位于横梁上；人们普遍认为，卸下变速器比猛拉发动机更有意义，所以这就是布兰登和我所做的。
+
+首先，我们必须取下固定在变速器后面的分动箱。但要做到这一点，我们必须取消后传动轴。它由四个紧固件固定在后轮轴上，并刚好滑入分动箱的滑动叉。拆除竖井用了不到五分钟。
+
+拉着分动箱要花更多的力气。我们首先必须拆除横跨两个主要单体轨道并支撑变速器的横梁。为此，我们必须用千斤顶支撑住变速器，松开将变速器和排气管固定在横梁上的螺栓，然后取出将横梁两侧固定在车身上的两个螺栓。
+
+我们还从发动机的排气歧管上拆下了排气管，这样它就不会妨碍我们将要掉落的变速箱和分动箱。
+
+除了降低横梁，移开排气管，拉动传动轴，布兰登和我解开了连接驾驶室内四轮驱动杆和分动箱的连杆(上图中悬挂在分动箱上的小杆)，我们拔掉了换档灯开关和车速传感器。我们还清空了箱子。
+
+从那里，我们只需通过扭转千斤顶手柄降低传输。这也使分动箱和发动机的后部(同样，发动机通过电机支架连接到车身前端)下降了几英寸。额外的间隙是一个天赐之物，当它来放松所有的螺母举行转移到传输的背面的情况。
+
+即使降低了 T-case，我们仍然花了很长时间来移除一个特定的紧固件，并且不得不取出一些扩展件和一个 [爪形套筒](https://www.google.com/aclk?sa=l&ai=DChcSEwi9t6zR5fHmAhWBnrMKHdvlDOkYABABGgJxbg&sig=AOD64_2Nap0J3WWVi7H9PCXQ4d-z1ApsHA&ctype=5&q=&ved=2ahUKEwiBuaXR5fHmAhXQMd8KHXs9Bo4Q9aACegQIDxA4&adurl=) 来最终将其松开。但最终，我们把分动箱放到了变速器千斤顶上，降低了它，并把它从车底拉了出来。
+
+接下来，是时候将变速器与发动机分离了。我们已经排空了反式(你可以看到上面的液体；请注意所有来自同步器的黄铜)。从那里，安东尼拿出了启动马达，我断开了换档器(见下文)，我们三个人解开了将变速器钟形外壳固定在发动机上的许多螺栓。
+
+将 4.0 升 Jeep 发动机固定到变速器的顶部两个螺栓是外部 torx 螺栓，我不会深入了解它们为何如此令人头疼，但我只想说，对于决定这是该应用的正确紧固件的人来说，地狱中有一个特殊的位置。
+
+我们还必须解开离合器液压系统(特别是从动油缸),以便将驾驶员踩下离合器踏板的力传递给离合器分离叉。
+
+那时，我们把变速器千斤顶移到变速器下面，用底盘支撑住发动机，我把变速器踢向吉普车的尾部。最终，钟形外壳与引擎分离了大约 18 英寸，揭示了我们的危险来源:
+
+上面的照片显示了压盘和飞轮，这两个都是我们用安东尼优秀的气动冲击扳手拆下来的。
+
+ [https://jalopnik.com/embed/inset/iframe?id=instagram-B6JqN6InZTa&autosize=1](https://jalopnik.com/embed/inset/iframe?id=instagram-B6JqN6InZTa&autosize=1) 
+
+这揭示了一个严重磨损的离合器，它非常薄，铆钉几乎没有凹陷，它看起来像一个压盘，周围有同心磨损的痕迹。
+
+飞轮也有看起来像是热印的痕迹，尽管它总体上看起来相当不错:
+
+在变速器壳体一侧是离合器分离叉，它由脚动离合器液压装置推动，迫使分离轴承(在变速器的输入轴轴承保持架上上下滑动)靠在压盘指状物上，将压盘从离合器片上分离和释放，最终将发动机从传动系统上断开。
+
+Brandon 更换了钟形外壳中的分离轴承，我负责发动机方面的工作，租借了一个导向轴承拆卸工具来拆卸压入曲轴中的导向轴承，变速器输入轴安装在该导向轴承上:
+
+然后，我用一把大锤和一些纸板将一个新的导向轴承(这是吉普车后部的 Luk 离合器套件的一部分)敲进曲轴，并安装了新的飞轮。
+
+不幸的是，布兰登和我很难将六个飞轮螺栓扭转到规格，而不只是用扭矩扳手旋转发动机(我们试图用东西卡住飞轮，但无济于事)。因此，我们对 Anthony 的气动冲击扳手进行了一次愚蠢的“校准测试”,拧紧车轮螺母，以查看根据我的点击式扭矩扳手，什么压力设置和冲击持续时间对应于什么扭矩。
+
+这是荒谬的不精确，但是，螺栓上的螺纹锁，我只是用愚蠢的测试结果来调整压缩机/油箱上显示的适当的气动压力，并在规定的时间内按住冲击扳手的扳机。飞轮上了螺栓，布兰登和我继续我们的一天，意识到我们有更大的问题要解决。
+
+我将离合器放在飞轮上，将塑料校准工具(随套件一起提供)穿过离合器的花键，推入导向轴承。这确保了离合器与飞轮完全同心，这样输入轴可以穿过离合器的花键进入导向轴承。我拿着这个校准工具，同时逐渐扭转我安装在离合器片上的压力板，直到飞轮，当我拧紧时交替两边以确保均匀配合。
+
+离合器套件就位后，我们将变速器滚回到发动机上。让发动机和变速器外壳螺栓孔对齐需要一些努力(上身力量，请注意，在这一点上，我们大约花了 10 个小时，在昏昏沉沉的睡眠中扭动背部)和一些长螺栓作为指南，但我们动力通过。
+
+其他一切的安装都与拆卸相反，这是典型的 [海恩斯手动简化艰巨任务的方式](https://en.wikipedia.org/wiki/Talk:Haynes_Manual#Assembly_is_the_reverse_of_disassembly) 。这很艰难。上图显示了我们用螺栓固定爱信五速并使用 trans 千斤顶抬起沉重的分动箱后的吉普车。但当然，这并没有真正完美地将它提升到变速器背面的正确位置，所以布兰登和我不得不基本上在旋转它的同时卧推机箱*以便*。此时，我们已经进行了将近 11 个小时；当时是凌晨两点
+
+拧紧 T 型箱后，我们将千斤顶从变速器下方移到分动箱下方，这样我们就可以在变速器下方安装横梁。然后，我们安装了排气管、各种分动箱、传动机构和连接器，现在 trans 已经连接好，并由横梁固定住，布兰登和我去了我们的汽车旅馆——但不是在凌晨 3 点 16 分拍下这张我们肮脏的照片之前
+
+我们乘坐雪佛兰 2500 前往汽车旅馆，在凌晨 3:40 左右到达时，接待我们的接待员告诉我们:“好的，入住时间是下午 3 点。”
+
+布兰登和我，满身油污，此时都看着地面，因为我们太累了，支撑不住我们的头，慢慢地凝视着对方。他看着我的眼睛，我看着他的眼睛，在我们本可以看到“快乐”或“灵魂”的地方，我们看到的只是空虚。接待员告诉我们，因为我们来的太晚了，她不能给我们预定的房间，因为我们正式“不露面”了。快到凌晨 4 点的时候..我坚决地，但不知何故还是礼貌地，请她给她的经理打电话，我不在乎他是否睡着了。
+
+这达到了目的。布兰登和我洗去了脸上的污垢(是的，上面毛巾上的污垢就是我脸上的)，那天晚上几乎是死在床上，五个小时后在肮脏的床单上醒来，准备完成这项工作。
+
+接下来的日子过得相当顺利，除了我意识到后驱动轴上的万向节被烤焦了，布兰登和安东尼不得不用平头刺穿机油滤清器取出机油，因为 [有个傻瓜把机油滤清器拧得太紧了](https://jalopnik.com/stop-screwing-your-oil-filter-on-so-damn-tight-1825757554) :
+
+安东尼检查了差速器，以确保它们有油(他们有)，他修好了前雨刮器垫圈，布兰登和我更换了前刹车片，因为它们都坏了(布兰登最终打破了一个滑销，所以我不得不从我刚从沙漠路边买的新前轴上借一个)，安东尼和我给前刹车放气，我给变速器和分动箱加满油。
+
+我们扔进了传动轴和一个新的空气过滤器，安东尼更换了一堆烧坏的灯泡，他甚至想出了一个创造性的方法，用金枪鱼罐头盖作为弹簧夹来防止我们的大灯外壳脱落。(这是我去掉后的样子；安东尼实际上得到了很好的冲洗):
+
+这个痛苦的故事还有很多，但如果有什么我想传达的，那就是前一天晚上从下午 3 点到凌晨 3 点不停地痛苦是真正的地狱，我相信这个片段已经很清楚了:
+
+ [https://jalopnik.com/embed/inset/iframe?id=instagram-B6Lbzwbn6HF&autosize=1](https://jalopnik.com/embed/inset/iframe?id=instagram-B6Lbzwbn6HF&autosize=1) 
+
+我很快意识到，我和布兰登在这场磨难之后睡了五个小时是远远不够的。
+
+### **首航和“丹佛酒吧事件”**
+
+周一下午两点多一点，我们把 ZJ 从安东尼的车库开出来，上街去看看我们是不是在什么地方搞砸了。我们没有。
+
+吉普车开起来很漂亮。发动机很平稳，离合器接合到位，我前一天在 65 英里每小时的速度下感觉到的振动消失了，这可能要归功于新的后驱动轴万向节。即使我们没有更换在乘客一侧发现的弯曲的下控制臂，吉普车在路上直行也没有问题。布兰登和我向好心的 Jalopnik 读者道别，他慷慨地给我买了一辆汽车，邀请我们去他家修理，并挽起袖子帮助我们把车开上了路。
+
+工具装好了，我买的车轴现在放在吉普车的后座上，布兰登跳上雪佛兰，我开车带着圣杯向东越过山口。
+
+一切都非常好。大切诺基以 70 英里的速度在高速公路上行驶，虽然五档和后差速器有一点齿轮噪音，但基本上很安静。这太不可思议了，因为我没有忘记我开着一辆 260，000 英里的机器，这是我花 700 美元买的。本来不应该是*这么好的*！
+
+我承认我很兴奋——累得要命，但能驾驶这样一台我从十几岁开始就梦想的稀有机器，特别是一个失败者向世界展示它还有很多生命，我感到无比兴奋:
+
+ [https://jalopnik.com/embed/inset/iframe?id=instagram-B6MVQ5THpEg&autosize=1](https://jalopnik.com/embed/inset/iframe?id=instagram-B6MVQ5THpEg&autosize=1) 
+
+但在兴奋中，我忽略了我的朋友布兰登。我们一到丹佛，我很快就发现他的情况很糟糕。这一切都发生在这个酒吧里:
+
+ [https://jalopnik.com/embed/inset/iframe?id=instagram-B6N15fFpfuT&autosize=1](https://jalopnik.com/embed/inset/iframe?id=instagram-B6N15fFpfuT&autosize=1) 
+
+将卡车归还给车主后，我安排晚上 10 点 45 分在一家名为肯塔基酒店的酒吧与一些读者见面，因为与汽车爱好者朋友见面确实是这份工作最大的乐趣。到达后，我与读者和布兰登一起坐在酒吧里，大约五分钟后，布兰登起身走向酒吧后部，可能是去了洗手间。
+
+我和贾洛普斯聊了 10 分钟，然后 20 分钟，然后 30 分钟，但布兰登没有回来。意识到即使是最棘手的消化问题也不应该花这么长时间，我离开了小组，走向酒吧的后面，却发现布兰登独自一人在角落里，瘫坐在椅子上，坐在一个神秘的闪闪发光的金属液体池中。
+
+布兰登没有睡着；他似乎在打电话，努力寻找一家酒店，只是一般挣扎着存在。慢慢地，他抬头看着我，他眼中的空洞让我明白了那液体是什么:那是他的灵魂。在经历了令人难以忍受的无聊的精神航空公司航班[【随机读者】的旧皮卡](https://jalopnik.com/how-a-strangers-old-chevy-pickup-got-me-over-the-snowy-1840677828) 翻山越岭、长达 12 个小时的艰苦会议、凌晨 4 点在汽车旅馆的糟糕争吵、5 个小时的睡眠，以及在黑暗中驱车 4 个小时翻山越岭回到丹佛之后，他们已经逃离了他。所有这些加起来，太多了。
+
+“我想我要飞回家。我再也受不了了，”他咕哝着，没精打采地呆在角落里。此时，我告诉他我们要走了，向我在酒吧的新朋友道别，并为我们找了一家不错的酒店，在那里我们睡了 8 个多小时。
+
+### 将圣杯开回 1300 英里外的密歇根
+
+ [https://jalopnik.com/embed/inset/iframe?id=instagram-B6N5U9mnXIi&autosize=1](https://jalopnik.com/embed/inset/iframe?id=instagram-B6N5U9mnXIi&autosize=1) 
+
+在酒店的那个晚上让布兰登恢复了活力，尽管他意识到自己可能会错过周四去看望父母的航班，但他还是决定和我一起去公路旅行。
+
+这次旅行是非凡的。我们开车穿过布兰登的家乡内布拉斯加州，然后进入爱荷华州，然后是伊利诺伊州，然后是印第安纳州。吉普车完美行驶:
+
+ [https://jalopnik.com/embed/inset/iframe?id=instagram-B6OPsrIHjAz&autosize=1](https://jalopnik.com/embed/inset/iframe?id=instagram-B6OPsrIHjAz&autosize=1) 
+
+它只有 17 英里/加仑的成绩，但它是一辆老破车，这就是这些东西的工作原理。除此之外，一切都很好。发动机感觉很紧；变速器换档平稳，但恰到好处的缺口和足够长的投掷是有趣的；乘坐是体面的；收音机工作正常(好的，驾驶员侧扬声器坏了)；虽然有一点齿轮噪音，整个事情是没有戏剧性的。
+
+ [https://jalopnik.com/embed/inset/iframe?id=instagram-B6PXNqfnSnz&autosize=1](https://jalopnik.com/embed/inset/iframe?id=instagram-B6PXNqfnSnz&autosize=1) 
+
+穿越美国产粮区的旅程是辉煌的。不知何故，我的 [白痴计划](https://jalopnik.com/heres-my-idiotic-plan-to-drive-the-broken-260-000-mile-1840388211) 成功了。我从一个看不见的偏僻地方购买了一台 26 万英里长的机器，带着装有零件和工具的手提箱，乘坐 Spirit Airlines 航班飞往最近的大城市，在一场暴风雨中飞越了落基山脉，修理了一个坏的离合器和转向系统，并毫无问题地将这辆价值 700 美元的旧车开回了密歇根州。
+
+在密歇根州，我把吉普车带到了它的诞生地——底特律的杰佛逊北装配厂——那是 20 世纪 90 年代初专门为 ZJ 大切诺基建造的大型工厂。这是一个感人的时刻，也是圣杯故事的恰当结局:
+
+ [https://jalopnik.com/embed/inset/iframe?id=instagram-B6Q1CG9FcJA&autosize=1](https://jalopnik.com/embed/inset/iframe?id=instagram-B6Q1CG9FcJA&autosize=1) 
+
+有一个原因是，当我最初提出修理和驾驶一辆我以前从未见过的高里程吉普车穿越全国的计划时，我称这个计划为“”白痴:成功是极其不可能的。但幸运的是，我带来了我的王牌，我的朋友布兰登，他一次又一次地证明了他支持我度过了汽车行业最艰难的考验。我的圣杯吉普车可能是 1500 辆中的一辆，但布兰登是其中的一辆。

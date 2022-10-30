@@ -1,11 +1,103 @@
 # 2019 年 6 月 HBO 将迎来什么
 
-> 原文：<https://lifehacker.com/whats-coming-to-hbo-in-june-2019-1835175818>
+> 原文:[https://life hacker . com/whats-coming-to-HBO-in-June-2019-1835175818](https://lifehacker.com/whats-coming-to-hbo-in-june-2019-1835175818)
 
 《权力的游戏》可能最终会结束，但 HBO 这个月的表现很强劲，你有理由继续订阅。
 
-
+Watch
 
 《大谎言》第二季将于 6 月 9 日正式开播，HBO 的三部新剧集将于本月晚些时候首播。 *Los Espookys* 首映 s 6/14、*欣快感* a 6/16、*年和年* 6/24。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-NGArEzRhzT0&amp;start=0" data-chomp-id="NGArEzRhzT0" data-recommend-id="youtube://NGArEzRhzT0" id="youtube-NGArEzRhzT0" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="NGArEzRhzT0" data-recommend-id="youtube://NGArEzRhzT0" id="youtube-NGArEzRhzT0" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">该网络还将把 6 月 8 日的《一个明星的诞生》和 6 月 4 日的《15:17 到巴黎》等电影加入其流媒体库。<br/></p><p class="sc-77igqf-0 bOfvBY">这里有一个完整的概要</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h295623"><strong>6 月 1 日</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>2018 年皇家歌剧院的糟糕时光</em></li><li>2006 年啤酒节</li><li>打破所有规则，2004 年</li><li><em>阴谋论，1997 年</em></li><li>《达克曼》，1990 年</li><li>1996 年《黑暗人 2:杜兰特归来》</li><li>《黑暗魔人 3:黑暗魔人之死》，1996 年</li><li>一个懦弱孩子的日记:罗德里克规则，2011 年</li><li><em>下降到你，2000 年</em></li><li><em>有趣的游戏，2008 </em></li><li><em>1981 年万圣节二</em></li><li>1982 年万圣节三:女巫的季节</li><li><em>2002 年高犯罪率</em></li><li><em>入侵，2007 年</em></li><li>乔某人，2001 年</li><li><em>图例，2010 年</em></li><li><em>马克格鲁伯(加长版)，2010 年</em></li><li><em>只有孤独，1991 年</em></li><li><em>营救黎明，2007 </em></li><li><em>罗宾汉，2010 年</em></li><li><em>围城，1998 </em></li><li>2008 年的雪天使</li><li><em>始于 1997 年</em></li><li><em>车站代理，2003 年</em></li><li><em>史蒂夫·乔布斯，2015 年</em></li><li><em>我们是你的朋友，2015 </em></li><li>年轻的亚当，2004 年</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h295624"><strong>6 月 2 日</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em> Axios，第二季首播</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h295625"><strong>6 月 4 日</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>15:17 到达巴黎，2018 年</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h295626"><strong>6 月 6 日</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>冰冷的蓝色</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h295627"><strong>6 月 8 日</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>一个明星的诞生，2018 年</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h295628"><strong>6 月 9 日</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>大谎言第二季</em></li><li>《埃尔·贾丁·布朗斯》第二季首播</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h295629"><strong>6 月 11 日</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>冰在燃烧</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h295630"><strong>6 月 14 日</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>杰瑞·加西亚:这不是我的周末</li><li><em> Los Espookys，系列首映</em></li><li><em>年复一年，剧集首播</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h295631"><strong>6 月 15 日</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>你给的仇恨，2018 年</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h295632"><strong>6 月 16 日</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>欣快感，系列首映</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h295633"><strong>6 月 18 日</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>假发</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h295634"><strong>6 月 22 日</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>老头&amp;枪，2018 </em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h295635"><strong>6 月 26 日</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>真正的正义:布莱恩·史蒂文森为平等而战</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h295636"><strong>6 月 29 日</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>拉米·优素福:感受</li><li><em>罗宾汉，2018 </em></li></ul><p class="sc-77igqf-0 bOfvBY"><strong><em/></strong>T4】</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-NGArEzRhzT0&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-NGArEzRhzT0&start=0) 
+
+该网络还将把 6 月 8 日的《一个明星的诞生》和 6 月 4 日的《15:17 到巴黎》等电影加入其流媒体库。
+
+这里有一个完整的概要
+
+### **6 月 1 日**
+
+*   *2018 年皇家歌剧院的糟糕时光*
+*   2006 年啤酒节
+*   打破所有规则，2004 年
+*   *阴谋论，1997 年*
+*   《达克曼》，1990 年
+*   1996 年《黑暗人 2:杜兰特归来》
+*   《黑暗魔人 3:黑暗魔人之死》，1996 年
+*   一个懦弱孩子的日记:罗德里克规则，2011 年
+*   *下降到你，2000 年*
+*   *有趣的游戏，2008*
+*   *1981 年万圣节二*
+*   1982 年万圣节三:女巫的季节
+*   *2002 年高犯罪率*
+*   *入侵，2007 年*
+*   乔某人，2001 年
+*   *图例，2010 年*
+*   *马克格鲁伯(加长版)，2010 年*
+*   *只有孤独，1991 年*
+*   *营救黎明，2007*
+*   *罗宾汉，2010 年*
+*   *围城，1998*
+*   2008 年的雪天使
+*   *始于 1997 年*
+*   *车站代理，2003 年*
+*   *史蒂夫·乔布斯，2015 年*
+*   *我们是你的朋友，2015*
+*   年轻的亚当，2004 年
+
+### **6 月 2 日**
+
+*   *Axios，第二季首播*
+
+### **6 月 4 日**
+
+*   *15:17 到达巴黎，2018 年*
+
+### **6 月 6 日**
+
+*   *冰冷的蓝色*
+
+### **6 月 8 日**
+
+*   *一个明星的诞生，2018 年*
+
+### **6 月 9 日**
+
+*   *大谎言第二季*
+*   《埃尔·贾丁·布朗斯》第二季首播
+
+### **6 月 11 日**
+
+*   *冰在燃烧*
+
+### **6 月 14 日**
+
+*   杰瑞·加西亚:这不是我的周末
+*   *Los Espookys，系列首映*
+*   *年复一年，剧集首播*
+
+### **6 月 15 日**
+
+*   *你给的仇恨，2018 年*
+
+### **6 月 16 日**
+
+*   *欣快感，系列首映*
+
+### **6 月 18 日**
+
+*   *假发*
+
+### **6 月 22 日**
+
+*   *老头&枪，2018*
+
+### **6 月 26 日**
+
+*   真正的正义:布莱恩·史蒂文森为平等而战
+
+### **6 月 29 日**
+
+*   拉米·优素福:感受
+*   *罗宾汉，2018*
+
+*T4】*

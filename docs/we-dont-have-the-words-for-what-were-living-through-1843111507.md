@@ -1,10 +1,10 @@
 # 我们无法用语言来描述我们所经历的一切
 
-> 原文：<https://lifehacker.com/we-dont-have-the-words-for-what-were-living-through-1843111507>
+> 原文:[https://life hacker . com/we-don ' t-thewords for what ' s-being-through-1843111507](https://lifehacker.com/we-dont-have-the-words-for-what-were-living-through-1843111507)
 
 “隔离”从来都不完全正确。“重新开放”也不是一个准确的术语。作为一个社会，我们正在经历的是前所未有的，我们无法用语言来描述。我想那是因为我们不能说出那些我们几乎无法理解的东西的名字。
 
-
+Watch
 
 我第一次想起听到社交距离这个词是在中国官员取消 2 月份新年庆祝活动的背景下。这感觉就像一个鸟瞰的术语，你可以用它来俯视一个蚁群。到了三月，更受欢迎的术语是[](https://vitals.lifehacker.com/were-calling-it-physical-distancing-now-1842454451)*，这是一种认识，即我们并没有试图破坏社会联系，只是身体上的接近。当然，我们大多数人都呆在家里，尽可能远离其他人，但物理距离仍然感觉不适合整个社会的剧变。*
 
@@ -24,4 +24,12 @@
 
 *城市、州和国家将会放松限制——如果不是现在，那么很快就会有一天。我们已经做出了权衡:医院和杂货店仍然开放。家庭成员一起被隔离(或者不管我们叫它什么)。甚至在我们完全控制病毒之前，一些限制可能不得不放松。*
 
-*<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=instagram-B_aATM_jpor&amp;autosize=1" autoresize="true" id="instagram-B_aATM_jpor" data-recommended="false" width="598" height="676" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">我们将生活在灰色地带，可能会持续数年，在此期间，社会不会完全封闭，也不会完全开放。这也将是史无前例的:餐馆应该先开门，还是最后开门？学校应该落在光谱的什么位置？医院什么时候能恢复<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://vitals.lifehacker.com/how-long-will-your-elective-surgery-be-delayed-1842459948&quot;,{&quot;metric25&quot;:1}]]" href="https://vitals.lifehacker.com/how-long-will-your-elective-surgery-be-delayed-1842459948">择期手术</a> </span>？如果没有人阻止你<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://vitals.lifehacker.com/no-you-cant-just-visit-a-friend-1842518655&quot;,{&quot;metric25&quot;:1}]]" href="https://vitals.lifehacker.com/no-you-cant-just-visit-a-friend-1842518655">拜访朋友</a> </span>，你应该什么时候认为这样做是安全的？</p><p class="sc-77igqf-0 bOfvBY">重开这个词不足以描述这一切，我认为给它一个简单明了的名字会鼓励我们把它想象成一个电灯开关。我们过着正常的生活，然后突然一切都变得黑暗。但这并不意味着我们可以突然地把开关扳回另一个方向。</p><p class="sc-77igqf-0 bOfvBY">我们需要一个新词来形容这个。世卫组织谈论放松限制。一些州长谈到了 T2 阶段 T3 或 T4 水平 T5。</p><p class="sc-77igqf-0 bOfvBY">我们应该怎么称呼这一切呢？有没有更好的词来形容“当我们可以呆在家里的时候，因为我们害怕染上致命的疾病和/或尽我们所能遵守一些我们同意而一些我们不同意的命令”？“当一种致命的疾病还在传播的时候，重新开始接近人们”怎么样？你把这些现象称为什么？如果你能发明一个新词，它会是什么？</p> </body> </html></iframe>*
+ *[https://lifehacker.com/embed/inset/iframe?id=instagram-B_aATM_jpor&autosize=1](https://lifehacker.com/embed/inset/iframe?id=instagram-B_aATM_jpor&autosize=1)* 
+
+*我们将生活在灰色地带，可能会持续数年，在此期间，社会不会完全封闭，也不会完全开放。这也将是史无前例的:餐馆应该先开门，还是最后开门？学校应该落在光谱的什么位置？医院什么时候能恢复 [择期手术](https://vitals.lifehacker.com/how-long-will-your-elective-surgery-be-delayed-1842459948) ？如果没有人阻止你 [拜访朋友](https://vitals.lifehacker.com/no-you-cant-just-visit-a-friend-1842518655) ，你应该什么时候认为这样做是安全的？*
+
+*重开这个词不足以描述这一切，我认为给它一个简单明了的名字会鼓励我们把它想象成一个电灯开关。我们过着正常的生活，然后突然一切都变得黑暗。但这并不意味着我们可以突然地把开关扳回另一个方向。*
+
+*我们需要一个新词来形容这个。世卫组织谈论放松限制。一些州长谈到了 T2 阶段 T3 或 T4 水平 T5。*
+
+*我们应该怎么称呼这一切呢？有没有更好的词来形容“当我们可以呆在家里的时候，因为我们害怕染上致命的疾病和/或尽我们所能遵守一些我们同意而一些我们不同意的命令”？“当一种致命的疾病还在传播的时候，重新开始接近人们”怎么样？你把这些现象称为什么？如果你能发明一个新词，它会是什么？*

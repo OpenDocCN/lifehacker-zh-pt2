@@ -1,12 +1,12 @@
 # 关闭隔空投送以防止泄露您的电话号码
 
-> 原文：<https://lifehacker.com/turn-off-airdrop-to-keep-from-leaking-your-phone-number-1836909584>
+> 原文:[https://life hacker . com/turn-off-airdrop-to-keep-from-leaving-your-phone-number-1836909584](https://lifehacker.com/turn-off-airdrop-to-keep-from-leaking-your-phone-number-1836909584)
 
-
+[Lifehacker's Complete Guide to iOS](https://appleios.kinja.com)) : title[![](../Images/71562cabb8ab94eee70dc08ff80378ef.png)](https://appleios.kinja.com)[Lifehacker's Complete Guide to iOS](https://appleios.kinja.com)Apple's iPhone is easy to learn, but difficult to master. Instead of spending hours sifting through settings yourself, check out our giant collection of guides, tips, and tricks for all things iOS.
 
 当你在公共场所阻止某个陌生人给你发奇怪的图片或问候时，你最有可能遇到隔空投送。但是如果你需要在不同的设备之间传递文件，比如你刚刚在酒吧给朋友拍的有趣的照片，为了安全起见，等到你回家的时候。
 
-
+Watch
 
 根据 [最近的报道](https://hexway.io/blog/apple-bleee/) ，攻击者已经可以嗅出比你可能愿意透露的更多的关于你的细节，仅仅因为你的设备上激活了蓝牙。如果你启动隔空投送或使用 iOS 的便捷功能，允许你与朋友分享 wifi 密码，攻击者也可以提取你的完整电话号码。
 
@@ -20,4 +20,4 @@
 
 这还不错，因为这些都是相对次要的信息，不会真正影响你的日常隐私。我仍然会限制你在公共场所使用隔空投送和 wifi 共享。虽然不太可能有人会拿着笔记本电脑坐在那里等着提取你的电话号码，但你没有理由等不及通过 Airdrop 分享信息，直到你处于一个更私人的位置。否则，就发个短信或邮件。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-Bi602yAIBAw&amp;start=0" data-chomp-id="Bi602yAIBAw" data-recommend-id="youtube://Bi602yAIBAw" id="youtube-Bi602yAIBAw" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="Bi602yAIBAw" data-recommend-id="youtube://Bi602yAIBAw" id="youtube-Bi602yAIBAw" data-recommended="false" class="js_recommend"/></span></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-Bi602yAIBAw&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-Bi602yAIBAw&start=0)

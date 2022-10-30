@@ -1,10 +1,10 @@
 # 在美国境内飞行真的需要真实的身份证吗？
 
-> 原文：<https://lifehacker.com/will-you-really-need-a-real-id-to-fly-within-the-u-s-1833914044>
+> 原文:[https://life hacker . com/will-you-real-need-a-real-id-in-u-s-1833914044](https://lifehacker.com/will-you-really-need-a-real-id-to-fly-within-the-u-s-1833914044)
 
 早在 2018 年 1 月，像 [加州](https://www.dmv.ca.gov/portal/dmv/detail/pubs/newsrel/2018/2018_07) 、 [马萨诸塞州、](https://insights.travelandtransport.com/travel-and-transport/real-id-act-goes-into-effect-for-travelers-january-22-2018) 和罗德岛等州就开始陆续推出“真正的 ID”卡。好奇这是什么，它的各种要求或它可能对您产生的影响？以下是你需要知道的关于真实身份证的真正价值。
 
-
+Watch
 
 ### 我真的需要一个真实的身份证吗？
 
@@ -20,4 +20,28 @@
 
 如果您更新现有的标准许可证，您也不会自动获得一个真实的 ID。这通常需要亲临你的车管所，不像有些州允许标准的执照在线更新。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=instagram-BsbGBEjB1sD&amp;autosize=1" autoresize="true" id="instagram-BsbGBEjB1sD" data-recommended="false" width="598" height="676" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h176978">真正的 ID 是什么样的？</h3><p class="sc-77igqf-0 bOfvBY">很可能与你上一张驾照相同，但在右上角有一颗金色或黑色的星星。(在加州，还会附带一张熊的图片。)更新后的标准驾照的一角会盖有“<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.latimes.com/travel/la-tr-spot-real-id-20190317-story.html&quot;,{&quot;metric25&quot;:1}]]" href="https://www.latimes.com/travel/la-tr-spot-real-id-20190317-story.html" target="_blank" rel="noopener noreferrer">联邦限制适用</a> </span>”字样，或者换句话说，你只能通过你的特定 ID 乘坐航班。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h176979">我如何获得一个？</h3><p class="sc-77igqf-0 bOfvBY">首先，您需要弄清楚您的状态是否真正符合 ID。虽然大多数州都是如此，但一些州仍落后于这一进程，并已获得联邦政府的延期。您可以查看您所在州的<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://upgradedpoints.com/real-id-act&quot;,{&quot;metric25&quot;:1}]]" href="https://upgradedpoints.com/real-id-act" target="_blank" rel="noopener noreferrer">升级积分</a> </span>图表。如果你住在一个有延期的州，在延期生效之前，你必须耐心等待。</p><p class="sc-77igqf-0 bOfvBY">此外，由于每个州的运作方式不同，你应该知道你所在地区的流程可能不同。一定要在网上搜索你所在州的车管所和真实的身份证要求。(<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://upgradedpoints.com/real-id-act&quot;,{&quot;metric25&quot;:1}]]" href="https://upgradedpoints.com/real-id-act" target="_blank" rel="noopener noreferrer">升级点</a> </span>也在其网站上提供了官方州车管所的名单。)</p><p class="sc-77igqf-0 bOfvBY">安排好预约后，你很可能需要提供身份证明(比如出生证明)、社会安全号码卡、两份居住证明(比如水电费账单和银行对账单)，并预先支付少量费用，通常不超过 60 美元。</p><p class="sc-77igqf-0 bOfvBY">根据<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.nbcchicago.com/news/local/real-id-frequently-asked-questions-when-do-i-need-it-why-do-i-need-it-508244861.html&quot;,{&quot;metric25&quot;:1}]]" href="https://www.nbcchicago.com/news/local/real-id-frequently-asked-questions-when-do-i-need-it-why-do-i-need-it-508244861.html" target="_blank" rel="noopener noreferrer">状态</a> </span>，你通常会收到一个临时的纸质身份证，并在邮件中收到新的身份证(或者直接在车管所收到一个)。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h176980"><strong>是什么促使了这种变化？</strong></h3><p class="sc-77igqf-0 bOfvBY">追溯到 2005 年，<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.dhs.gov/real-id&quot;,{&quot;metric25&quot;:1}]]" href="https://www.dhs.gov/real-id" target="_blank" rel="noopener noreferrer">真实身份法案</a> </span>通过，旨在建立像驾照这样的身份识别的最低安全标准。是的，各州花了十多年时间才开始推出这种政策，并且在特朗普执政后遇到了争议，迫使<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.nyclu.org/en/real-id-immigrants-rights&quot;,{&quot;metric25&quot;:1}]]" href="https://www.nyclu.org/en/real-id-immigrants-rights" target="_blank" rel="noopener noreferrer">车管所代理</a> </span>对某人在美国的合法身份做出判断</p><p class="sc-77igqf-0 bOfvBY">由于它需要居住证明，对于没有稳定生活环境的人来说会变得很困难；<!-- -->移民权利’的倡导者早就反对<span></span>其实施。幸运的是，目前，这是一个可选的要求，对那些许可证即将到期的旅行者有好处。</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><em> <small>更多来自 Lifehacker，一定要在 Instagram 上关注我们</small></em><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.instagram.com/lifehackerdotcom/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.instagram.com/lifehackerdotcom/" target="_blank" rel="noopener noreferrer"><em><small>@ lifehackerdotcom</small></em></a></span><em><small>。</small> </em> <br/></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=instagram-BsbGBEjB1sD&autosize=1](https://lifehacker.com/embed/inset/iframe?id=instagram-BsbGBEjB1sD&autosize=1) 
+
+### 真正的 ID 是什么样的？
+
+很可能与你上一张驾照相同，但在右上角有一颗金色或黑色的星星。(在加州，还会附带一张熊的图片。)更新后的标准驾照的一角会盖有“ [联邦限制适用](https://www.latimes.com/travel/la-tr-spot-real-id-20190317-story.html) ”字样，或者换句话说，你只能通过你的特定 ID 乘坐航班。
+
+### 我如何获得一个？
+
+首先，您需要弄清楚您的状态是否真正符合 ID。虽然大多数州都是如此，但一些州仍落后于这一进程，并已获得联邦政府的延期。您可以查看您所在州的 [升级积分](https://upgradedpoints.com/real-id-act) 图表。如果你住在一个有延期的州，在延期生效之前，你必须耐心等待。
+
+此外，由于每个州的运作方式不同，你应该知道你所在地区的流程可能不同。一定要在网上搜索你所在州的车管所和真实的身份证要求。( [升级点](https://upgradedpoints.com/real-id-act) 也在其网站上提供了官方州车管所的名单。)
+
+安排好预约后，你很可能需要提供身份证明(比如出生证明)、社会安全号码卡、两份居住证明(比如水电费账单和银行对账单)，并预先支付少量费用，通常不超过 60 美元。
+
+根据 [状态](https://www.nbcchicago.com/news/local/real-id-frequently-asked-questions-when-do-i-need-it-why-do-i-need-it-508244861.html) ，你通常会收到一个临时的纸质身份证，并在邮件中收到新的身份证(或者直接在车管所收到一个)。
+
+### **是什么促使了这种变化？**
+
+追溯到 2005 年， [真实身份法案](https://www.dhs.gov/real-id) 通过，旨在建立像驾照这样的身份识别的最低安全标准。是的，各州花了十多年时间才开始推出这种政策，并且在特朗普执政后遇到了争议，迫使 [车管所代理](https://www.nyclu.org/en/real-id-immigrants-rights) 对某人在美国的合法身份做出判断
+
+由于它需要居住证明，对于没有稳定生活环境的人来说会变得很困难；移民权利’的倡导者早就反对其实施。幸运的是，目前，这是一个可选的要求，对那些许可证即将到期的旅行者有好处。
+
+* * *
+
+*<small>更多来自 Lifehacker，一定要在 Instagram 上关注我们</small>*[*<small>@ lifehackerdotcom</small>*](https://www.instagram.com/lifehackerdotcom/)*<small>。</small>*

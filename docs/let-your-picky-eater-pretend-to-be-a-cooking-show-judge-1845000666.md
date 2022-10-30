@@ -1,11 +1,21 @@
 # 让你挑食的人假装成烹饪节目评委
 
-> 原文：<https://lifehacker.com/let-your-picky-eater-pretend-to-be-a-cooking-show-judge-1845000666>
+> 原文:[https://life hacker . com/let-your-picture-eater-assist-to-be-a-cooking-show-judge-1845000666](https://lifehacker.com/let-your-picky-eater-pretend-to-be-a-cooking-show-judge-1845000666)
 
 让一个挑食的年轻人尝试不同的食物可能是一场长达数年的战斗。挑食者的父母可能会发现他们自己通过各种各样的提示和技巧来帮助他们的孩子在食物方面变得更有冒险精神。有些战术管用，有些管用一小会儿，有些根本不管用。但是，如果你的孩子喜欢烹饪节目，或者如果他们喜欢时不时地给你一个好的“T1”热菜“T2”，你可以试着让他们成为你晚餐烹饪节目的“T3”评委“T4”。
 
-
+Watch
 
 我希望我在儿子小的时候就想到了这一点，但这个想法的功劳来自演员兼喜剧演员杰克·约翰逊，他最近在凯莉·克莱森秀 上分享了这个想法:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-SE13BFYbYD4&amp;start=0" data-chomp-id="SE13BFYbYD4" data-recommend-id="youtube://SE13BFYbYD4" id="youtube-SE13BFYbYD4" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="SE13BFYbYD4" data-recommend-id="youtube://SE13BFYbYD4" id="youtube-SE13BFYbYD4" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">“在我有孩子之前，我只是不怎么做饭，”约翰逊告诉克拉克森。“所以我会做一些真正固体的东西，而他们在咬了一口后的反应会是，‘我还是吃麦片吧。’所以，我们已经看了很多烹饪节目，所以我让烹饪和我的孩子一起工作的方法是，当我给他们食物时，他们不是他们自己，他们是烹饪节目的评委...突然之间，他们吃了整顿饭，因为他们是法官。所以他们会说，‘我喜欢这种质地，但我不喜欢墨西哥玉米饼上的奶酪。"</p><p class="sc-77igqf-0 bOfvBY">然后，他的孩子会多吃几口，试图确定食物的哪些方面有效，哪些方面需要改进。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">此外，因为他的孩子(是双胞胎)只有六岁，约翰逊说他们正在努力正确使用数字排名系统。所以他们创造了一个新的评级系统，基于他们给一道菜的“酱”的等级。如果他们真的喜欢某样东西，他们会认为它是“额外的调料”</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><small> <em>遇见地球上最聪明的父母！加入我们的</em> </small> <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.facebook.com/groups/2018785615043946&quot;,{&quot;metric25&quot;:1}]]" href="https://www.facebook.com/groups/2018785615043946" target="_blank" rel="noopener noreferrer"> <small> <em>育儿脸书群</em> </small> </a> </span> <small> <em>。</em>T15】</small></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-SE13BFYbYD4&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-SE13BFYbYD4&start=0) 
+
+“在我有孩子之前，我只是不怎么做饭，”约翰逊告诉克拉克森。“所以我会做一些真正固体的东西，而他们在咬了一口后的反应会是，‘我还是吃麦片吧。’所以，我们已经看了很多烹饪节目，所以我让烹饪和我的孩子一起工作的方法是，当我给他们食物时，他们不是他们自己，他们是烹饪节目的评委...突然之间，他们吃了整顿饭，因为他们是法官。所以他们会说，‘我喜欢这种质地，但我不喜欢墨西哥玉米饼上的奶酪。"
+
+然后，他的孩子会多吃几口，试图确定食物的哪些方面有效，哪些方面需要改进。
+
+此外，因为他的孩子(是双胞胎)只有六岁，约翰逊说他们正在努力正确使用数字排名系统。所以他们创造了一个新的评级系统，基于他们给一道菜的“酱”的等级。如果他们真的喜欢某样东西，他们会认为它是“额外的调料”
+
+* * *
+
+<small>*遇见地球上最聪明的父母！加入我们的*</small> [<small>*育儿脸书群*</small>](https://www.facebook.com/groups/2018785615043946) <small>*。*T15】</small>

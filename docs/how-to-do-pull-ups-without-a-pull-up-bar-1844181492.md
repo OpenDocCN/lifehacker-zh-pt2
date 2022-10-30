@@ -1,10 +1,10 @@
 # 没有引体向上杠怎么做引体向上
 
-> 原文：<https://lifehacker.com/how-to-do-pull-ups-without-a-pull-up-bar-1844181492>
+> 原文:[https://life hacker . com/how-do-pull-ups-without a-pull-up-bar-1844181492](https://lifehacker.com/how-to-do-pull-ups-without-a-pull-up-bar-1844181492)
 
 在我们连续的简易家庭健身器材系列中，今天我们将谈论如何在家里做引体向上或倒立。如果你习惯在单杠上做引体向上或者使用像 lat pulldown 这样的绳索器械，那就很难用家用设备来重现了。但是你有几个选择。
 
-
+Watch
 
 ### 不要放弃酒吧的可能性
 
@@ -36,4 +36,10 @@
 
 任何对上拉起作用的东西也能对倒排起作用；你只需要让你的装置更贴近地面。例如，栏杆可以很好地工作。我最喜欢的室内变化是使用一张桌子:只需 [钻到桌子底下，用边缘](https://www.youtube.com/watch?v=jjSaYXeKiNk) 把自己拉起来。像往常一样，确保你使用的东西足够坚固，能够支撑你。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-jjSaYXeKiNk&amp;start=0" data-chomp-id="jjSaYXeKiNk" data-recommend-id="youtube://jjSaYXeKiNk" id="youtube-jjSaYXeKiNk" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="jjSaYXeKiNk" data-recommend-id="youtube://jjSaYXeKiNk" id="youtube-jjSaYXeKiNk" data-recommended="false" class="js_recommend"/></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h289581">小心树枝</h3><p class="sc-77igqf-0 bOfvBY">是的，你可以在<!-- -->树枝<!-- -->上做引体向上。但是通常情况下，一根足够细让你抓住的树枝也很可能是<!-- -->太弱而支撑不住你的重量。如果你不小心，你可能会抓住一根枯枝。(并且 d <!-- --> ead 分支可能会突然断裂。)</p><p class="sc-77igqf-0 bOfvBY">不过，如果你找到了完美的树枝，小心翼翼地享受—<span></span>。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-jjSaYXeKiNk&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-jjSaYXeKiNk&start=0) 
+
+### 小心树枝
+
+是的，你可以在树枝上做引体向上。但是通常情况下，一根足够细让你抓住的树枝也很可能是太弱而支撑不住你的重量。如果你不小心，你可能会抓住一根枯枝。(并且 d ead 分支可能会突然断裂。)
+
+不过，如果你找到了完美的树枝，小心翼翼地享受—。

@@ -1,7 +1,17 @@
 # 观看这些“它是如何制作的”视频，寻找灵感
 
-> 原文：<https://lifehacker.com/watch-these-how-its-made-videos-for-inspiration-1831431519>
+> 原文:[https://life hacker . com/watch-these-how-made-videos-for-inspiration-1831431519](https://lifehacker.com/watch-these-how-its-made-videos-for-inspiration-1831431519)
 
 “它是如何制作的”视频的承诺是，它会让你大吃一惊。这在设计博客 Core77 收集的 2018 年最佳“过程色情”视频中显而易见。每个视频都会在你的大脑中捕捉到一些东西:哦，*这就是*工作原理！例如，这里有一台打印陶瓷的机器:
 
-Watch<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=instagram-Bm3GbCJlbCv&amp;autosize=1" autoresize="true" id="instagram-Bm3GbCJlbCv" data-recommended="false" width="598" height="676" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">如果你问我印刷陶瓷是如何制作的，我可以捏造一个解释，但我无法想象这个大泡泡男孩。我喜欢认为这个启示，曾经如此微小地，扩展了我的思想。</p><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><p class="sc-77igqf-0 bOfvBY">不一定是一个直截了当的比喻——“如果你想留下印记，你必须适应你周围的形状”——而是一个微妙的提醒，即我周围的一切都是通过多个过程创造的，其中大部分是我试图也猜不出来的。每个系统、每个地方和每个人都是如此。当我与其中任何一个交互时，我会很好地考虑它们是如何错综复杂地组合在一起的。</p><p class="sc-77igqf-0 bOfvBY">我的父亲从事原型和制造工作，他过去常常通过抓一些附近的物体来娱乐我，并解释它是如何制造的。很多时候，答案是注射成型——他喜欢指出径向对称胡椒瓶侧面的接缝。有时他只能做出有根据的猜测。只要记住所有的东西都来自某个地方，这本身就是一个重要的教训。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">想象一下这样看待一个人:想想他们花了几十年的时间被抚养、被教育、准备靠自己成功；成长过程中不可磨灭的痕迹，即使后来信仰和行为发生最戏剧性的逆转也无法根除。这难道不会让我们更好地理解他人的观点吗？如果每一个无生命的物体都有一个令人惊讶的起源故事，怎么会有人不感兴趣呢？这难道不会教我们更加珍惜他人，考虑我们给彼此留下的印记吗？把每个人都看作是彼此正在进行的起源故事的一部分？</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">这就是我花一个小时观看行李箱热成型的哲学理由。</p> </body> </html></iframe>
+Watch [https://lifehacker.com/embed/inset/iframe?id=instagram-Bm3GbCJlbCv&autosize=1](https://lifehacker.com/embed/inset/iframe?id=instagram-Bm3GbCJlbCv&autosize=1) 
+
+如果你问我印刷陶瓷是如何制作的，我可以捏造一个解释，但我无法想象这个大泡泡男孩。我喜欢认为这个启示，曾经如此微小地，扩展了我的思想。
+
+不一定是一个直截了当的比喻——“如果你想留下印记，你必须适应你周围的形状”——而是一个微妙的提醒，即我周围的一切都是通过多个过程创造的，其中大部分是我试图也猜不出来的。每个系统、每个地方和每个人都是如此。当我与其中任何一个交互时，我会很好地考虑它们是如何错综复杂地组合在一起的。
+
+我的父亲从事原型和制造工作，他过去常常通过抓一些附近的物体来娱乐我，并解释它是如何制造的。很多时候，答案是注射成型——他喜欢指出径向对称胡椒瓶侧面的接缝。有时他只能做出有根据的猜测。只要记住所有的东西都来自某个地方，这本身就是一个重要的教训。
+
+想象一下这样看待一个人:想想他们花了几十年的时间被抚养、被教育、准备靠自己成功；成长过程中不可磨灭的痕迹，即使后来信仰和行为发生最戏剧性的逆转也无法根除。这难道不会让我们更好地理解他人的观点吗？如果每一个无生命的物体都有一个令人惊讶的起源故事，怎么会有人不感兴趣呢？这难道不会教我们更加珍惜他人，考虑我们给彼此留下的印记吗？把每个人都看作是彼此正在进行的起源故事的一部分？
+
+这就是我花一个小时观看行李箱热成型的哲学理由。

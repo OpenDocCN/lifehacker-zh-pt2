@@ -1,10 +1,10 @@
 # 如何从资助堕胎禁令的公司撤资
 
-> 原文：<https://lifehacker.com/how-to-divest-from-the-corporations-funding-abortion-ba-1834980204>
+> 原文:[https://life hacker . com/how-to-depict-from-the-corporations-funding-decimation-ba-1834980204](https://lifehacker.com/how-to-divest-from-the-corporations-funding-abortion-ba-1834980204)
 
 本周早些时候，贾德·勒古姆的大众信息通讯报道说，近年来，佐治亚州、密西西比州、阿拉巴马州、肯塔基州、密苏里州和俄亥俄州的六周堕胎禁令背后的六家公司 [向立法者](https://popular.info/p/these-six-corporations-are-financing)捐助了数十万美元。为了反击，全国的消费者已经开始组织抵制。
 
-
+Watch
 
 关于谁从谁那里拿了钱的完整列表，你应该 [阅读整个流行信息帖子](https://popular.info/p/these-six-corporations-are-financing) ，但这里有一个涉及公司和哪些候选人接受了最大捐赠的快速纲要:
 
@@ -37,4 +37,8 @@
 
 发现这一点比听起来要困难得多。堕胎禁令是一个州的问题，每个州都有不同的竞选财务法律和自己的捐款数据库。(如果你很好奇，全国州议会会议为每个选举周期出版了一份各州的小抄，你可以在这里找到。)虽然政治行动委员会应该公开他们的捐助者，但他们非常善于规避这一特殊要求——许多非营利组织没有义务告诉你他们的资金来自哪里。大众信息团队通过第一手资料了解到，所有这些使得调查州和市政竞选活动的捐款变得异常困难:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1130097081643884544&amp;autosize=1" autoresize="true" id="twitter-1130097081643884544" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">我昨天花了几个小时搜索凯·艾维的竞选捐款文件 ，试图核对<em>just</em>AT&amp;T 的捐款数字(大约自 2013 年以来为 11.3 万美元)<span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.opensecrets.org/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.opensecrets.org/" target="_blank" rel="noopener noreferrer">opensecrets.org</a></span>和<span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.followthemoney.org/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.followthemoney.org/" target="_blank" rel="noopener noreferrer">followthemoney.org</a></span>(两者在 2018 年的报价均为 8.5 万美元)。我做不到——我曾经是一名欺诈经理。这并不是说这些数字是胡说八道，只是核实这些数字极其繁琐。</p><p class="sc-77igqf-0 bOfvBY">底线是，如果你愿意并且有能力抵制沃尔玛或者在愤怒的推特上反复给美国电话电报公司贴标签，没有真正的理由不这样做。但请记住，反堕胎运动在很大程度上是一种草根现象。无论你采取什么其他行动，最有效的一个是向当地的生殖公正倡导组织 捐赠或者志愿服务。没有人比几十年来组织起来反对堕胎的人更了解反堕胎运动资金的生态系统，也没有人比他们更有能力全力与之斗争。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1130097081643884544&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1130097081643884544&autosize=1) 
+
+我昨天花了几个小时搜索凯·艾维的竞选捐款文件 ，试图核对*just*AT&T 的捐款数字(大约自 2013 年以来为 11.3 万美元)[opensecrets.org](https://www.opensecrets.org/)和[followthemoney.org](https://www.followthemoney.org/)(两者在 2018 年的报价均为 8.5 万美元)。我做不到——我曾经是一名欺诈经理。这并不是说这些数字是胡说八道，只是核实这些数字极其繁琐。
+
+底线是，如果你愿意并且有能力抵制沃尔玛或者在愤怒的推特上反复给美国电话电报公司贴标签，没有真正的理由不这样做。但请记住，反堕胎运动在很大程度上是一种草根现象。无论你采取什么其他行动，最有效的一个是向当地的生殖公正倡导组织 捐赠或者志愿服务。没有人比几十年来组织起来反对堕胎的人更了解反堕胎运动资金的生态系统，也没有人比他们更有能力全力与之斗争。

@@ -1,7 +1,17 @@
 # 为什么你应该在手机上留一个“哎呀”的便条
 
-> 原文：<https://lifehacker.com/why-you-should-keep-a-yikes-note-on-your-phone-1831243870>
+> 原文:[https://life hacker . com/why-you-should-keep-a-yikes-note-on-your-phone-1831243870](https://lifehacker.com/why-you-should-keep-a-yikes-note-on-your-phone-1831243870)
 
 你知道，当你和你的朋友或伴侣在某人面前做一些愚蠢/疯狂/令人愤怒的事情时，你想发出“这是疯狂的，的信号，对吗？“？但是扬起你的眉毛，甚至*看着对方可能会给做疯狂事情的人提供线索？ [微型弹夹](http://tinycartridge.com/) 合著者埃里克·卡奥利有一个巧妙的解决办法。* 
 
-Watch<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1072880647948169218&amp;autosize=1" autoresize="true" id="twitter-1072880647948169218" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">有时你可以只是看一眼或轻轻推一下。但是，正如 Caoili 告诉 Lifehacker 的，“很多时候，这是不可能的。如果你和家人在一起，当你们互相看着对方时，这一点非常明显。”</p><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><p class="sc-77igqf-0 bOfvBY">你们可以互相发短信。这是 Caoili 和他的伙伴通常做的，当它是安全的。但是，那些表现得不恰当的人似乎经常会有暂时增强的感觉——你只需要知道愤怒的苹果女士注意到了她身上的每一双眼睛。你不想成为那股能量的目标。</p><p class="sc-77igqf-0 bOfvBY">于是你淡定的掏出手机，拉起那张“yikes”的纸条，像<em>啊，你看这个东西我收到过或者看到过，跟现在的情况没有关系。</em></p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">“最近一次我拿出‘呀呀’手机，”Caoili 说，“我们在 L 号列车上。我们对面的某个人丢了手机，他们对此破口大骂。你不想泄露你的反应，也不想让他们把这种反应转向你。”</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">所以，把这个工具，连同你的<em>宋飞</em>式<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.youtube.com/watch?v=QMkmZXYbHng&quot;,{&quot;metric25&quot;:1}]]" href="https://www.youtube.com/watch?v=QMkmZXYbHng" target="_blank" rel="noopener noreferrer">秘密手势</a> </span>，你的假来电，以及你仔细校准过的面无表情，加到你的腰带上。</p> </body> </html></iframe>
+Watch [https://lifehacker.com/embed/inset/iframe?id=twitter-1072880647948169218&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1072880647948169218&autosize=1) 
+
+有时你可以只是看一眼或轻轻推一下。但是，正如 Caoili 告诉 Lifehacker 的，“很多时候，这是不可能的。如果你和家人在一起，当你们互相看着对方时，这一点非常明显。”
+
+你们可以互相发短信。这是 Caoili 和他的伙伴通常做的，当它是安全的。但是，那些表现得不恰当的人似乎经常会有暂时增强的感觉——你只需要知道愤怒的苹果女士注意到了她身上的每一双眼睛。你不想成为那股能量的目标。
+
+于是你淡定的掏出手机，拉起那张“yikes”的纸条，像*啊，你看这个东西我收到过或者看到过，跟现在的情况没有关系。*
+
+“最近一次我拿出‘呀呀’手机，”Caoili 说，“我们在 L 号列车上。我们对面的某个人丢了手机，他们对此破口大骂。你不想泄露你的反应，也不想让他们把这种反应转向你。”
+
+所以，把这个工具，连同你的*宋飞*式 [秘密手势](https://www.youtube.com/watch?v=QMkmZXYbHng) ，你的假来电，以及你仔细校准过的面无表情，加到你的腰带上。

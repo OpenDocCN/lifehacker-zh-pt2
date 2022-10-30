@@ -1,10 +1,10 @@
 # 如何立即为您的设备准备 iOS 14 和 watchOS 7
 
-> 原文：<https://lifehacker.com/how-to-prep-your-devices-for-ios-14-and-watchos-7-today-1845068276>
+> 原文:[https://life hacker . com/how-to-prep-your-devices-for-IOs-14-and-watch OS-7-today-1845068276](https://lifehacker.com/how-to-prep-your-devices-for-ios-14-and-watchos-7-today-1845068276)
 
 啊，终于来了。苹果最新的 iPhone、iPad、Apple Watch 和 Apple TV 操作系统是时候向大众发布了。公共测试版，见鬼去吧。理论上，它们应该在太平洋时间今天上午 10 点左右到达，但在您等待各种设备准备好更新时，您可能需要做一些事情。
 
-
+Watch
 
 ### 迁移到 iOS 14/iPadOS 14 之前要做什么
 
@@ -82,4 +82,6 @@
 
 放松点，蚱蜢，t 这里没有你可以点击来强制 AirPods Pro 固件更新的设置。你将不得不通过无数的障碍来触发一个更新，它可能不会工作。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1305767010232602624&amp;autosize=1" autoresize="true" id="twitter-1305767010232602624" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">如果这不起作用，那就继续用你的 AirPods Pro 吧。你最终将获得<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://gizmodo.com/airpods-pro-are-getting-a-very-powerful-software-upgrad-1844121059&quot;,{&quot;metric25&quot;:1}]]" href="https://gizmodo.com/airpods-pro-are-getting-a-very-powerful-software-upgrad-1844121059">空间音频</a></span>——以及越来越有用的“自动切换”功能，这使得在 AirPods Pro 上使用不同的苹果设备变得更加容易。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1305767010232602624&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1305767010232602624&autosize=1) 
+
+如果这不起作用，那就继续用你的 AirPods Pro 吧。你最终将获得 [空间音频](https://gizmodo.com/airpods-pro-are-getting-a-very-powerful-software-upgrad-1844121059)——以及越来越有用的“自动切换”功能，这使得在 AirPods Pro 上使用不同的苹果设备变得更加容易。

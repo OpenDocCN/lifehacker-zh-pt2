@@ -1,10 +1,10 @@
 # 你应该蹲多深？
 
-> 原文：<https://lifehacker.com/how-deep-should-you-squat-1841473363>
+> 原文:[https://lifehacker.com/how-deep-should-you-squat-1841473363](https://lifehacker.com/how-deep-should-you-squat-1841473363)
 
 我是一个能够欣赏世界上各种各样蹲姿的人。高蹲、低蹲、前蹲、后蹲——都很美。然而，互联网上的人们喜欢争论哪种蹲姿最好。所以这里有一个下蹲深度的小指南，以及如何找到适合你的下蹲姿势。
 
-
+Watch
 
 在我们开始之前，我想请你考虑一下*为什么*你在蹲着，因为这里可能有一个非常简单的答案。你参加比赛吗，或者你只是想以最适合你的方式变得更强？
 
@@ -14,4 +14,40 @@
 
 检查你的联合会规则手册，但通常规则是你的臀部折痕需要低于你的膝盖骨顶部。大致来说，这相当于你的大腿与地板平行，所以人们会把这个姿势描述为“平行” [这里有一段视频](https://www.youtube.com/watch?v=A-nyu4PHvLo) 展示了这个深度意味着什么，以及评委们是如何看待它的:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-A-nyu4PHvLo&amp;start=0" data-chomp-id="A-nyu4PHvLo" data-recommend-id="youtube://A-nyu4PHvLo" id="youtube-A-nyu4PHvLo" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="A-nyu4PHvLo" data-recommend-id="youtube://A-nyu4PHvLo" id="youtube-A-nyu4PHvLo" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">如果你准备参加比赛，你最好的办法是请你的教练或有经验的竞争者来看看你的深蹲。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">一些力量举重运动员的目标是蹲在水平线下一英寸的地方。这意味着你不会移动太多，额外的一英寸给了你一点空间，以防苛刻的评判或你的定位不完美。(记住，站台上没有镜子。)</p><p class="sc-77igqf-0 bOfvBY"><strong>其他人更喜欢蹲得尽可能低</strong>，并试图从蹲下的底部获得反弹。Greg Nuckols 在他关于如何深蹲 的广泛指南<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.strongerbyscience.com/how-to-squat/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.strongerbyscience.com/how-to-squat/" target="_blank" rel="noopener noreferrer">中推荐了这一点。这里的准确位置将取决于你的腿的大小(一些人的大腿在运动中更早地接触到小腿)和你感觉舒适的地方。</a></span></p><h3 class="sc-1bwb26k-1 kpbNNd" id="h286898">如果你是举重运动员</h3><p class="sc-77igqf-0 bOfvBY">如果你参加举重比赛(抓举和挺举)，除了你自己，没有人会评判你的深蹲深度。深蹲是这项运动中的一个辅助托举，它们的存在只是为了帮助你在主要托举中变得更强壮。</p><p class="sc-77igqf-0 bOfvBY">一般来说，举重运动员在清洁和抓举时会以非常低的蹲姿结束，所以他们经常深蹲来配合。但这对于增强力量来说可能不是必要的，所以有很多举重运动员只会蹲到平行或稍低的位置。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h286899">如果你只是为了力量而训练</h3><p class="sc-77igqf-0 bOfvBY">好吧，那如果你不参加任何以蹲为中心的运动呢？下面是蹲坑的肮脏秘密:<em>那就无所谓了</em>。</p><p class="sc-77igqf-0 bOfvBY">如果你蹲得太高，没有蹲警察会来抓你；然而，你的一些健身伙伴可能会质问你，因为你为什么不深入呢？</p><p class="sc-77igqf-0 bOfvBY">如果你只做部分深蹲，你可以移动更多的重量，每个健身房都有人会告诉你他们巨大的深蹲 PRs，但后来发现他们并没有接近平行。如果你在欺骗你的深蹲，这样你就可以吹嘘你的数字，你应该吞下你的自我，深蹲到平行。</p><p class="sc-77igqf-0 bOfvBY">同样地，如果你蹲得很低，蹲警察也不会来抓你...但是大约一周一次，一个陌生人会告诉你，你这样蹲着会毁了你的膝盖。你可以忽略它们。低蹲并不是天生对你的膝盖有害，所以如果你感觉很好，你可以继续坚持。我们在下蹲指南 中详细讨论了这个神话。</p><p class="sc-77igqf-0 bOfvBY">也就是说，<strong>如果你不喜欢蹲低，但你这么做是因为有人告诉你“应该”，你可以随意抛弃这个建议，蹲到你喜欢的水平</strong>。蹲在草地上不会让你成为一个更好的人。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h286900">如果你不能像你喜欢的那样深蹲</h3><p class="sc-77igqf-0 bOfvBY">人们经常会问深蹲的深度，因为他们想让 T1 蹲得更深，但是很难做到。</p><p class="sc-77igqf-0 bOfvBY">脚踝的灵活性经常是个问题。下蹲需要我们的脚踝弯曲，这样我们的脚才能平放在地板上。如果你接近深度时脚跟离开地面，你可能需要解决脚踝的问题。</p><p class="sc-77igqf-0 bOfvBY">一个简单的解决方法是抬高你的脚后跟。<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://lifehacker.com/what-shoes-to-wear-when-you-lift-weights-1837994384&quot;,{&quot;metric25&quot;:1}]]" href="https://lifehacker.com/what-shoes-to-wear-when-you-lift-weights-1837994384">举重鞋</a> </span>，有着坚实的鞋跟，专门为此而存在。它们会帮助你保持稳定(比跑鞋更稳定),让你的鞋跟足够高，这样你就可以毫无问题地找到你喜欢的位置。</p><p class="sc-77igqf-0 bOfvBY">另一个窍门是在地板上放一些重量板，并把你的脚后跟支撑在上面。我不喜欢这种沉重的深蹲，因为你必须背着沉重的杠铃才能进入位置，这让我感觉不稳定。但是有些人对这个技巧深信不疑，所以如果你认为它对你有用的话，就试一试吧(先用轻量级的)。</p><p class="sc-77igqf-0 bOfvBY">随着时间的推移，你还可以通过拉伸和泡沫滚动来锻炼脚踝的灵活性。尝试不同的站姿宽度和不同类型的深蹲(前蹲、高脚杯深蹲、高杠、低杠)，看看是否有一些对你来说比其他的更舒服。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-A-nyu4PHvLo&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-A-nyu4PHvLo&start=0) 
+
+如果你准备参加比赛，你最好的办法是请你的教练或有经验的竞争者来看看你的深蹲。
+
+一些力量举重运动员的目标是蹲在水平线下一英寸的地方。这意味着你不会移动太多，额外的一英寸给了你一点空间，以防苛刻的评判或你的定位不完美。(记住，站台上没有镜子。)
+
+**其他人更喜欢蹲得尽可能低**，并试图从蹲下的底部获得反弹。Greg Nuckols 在他关于如何深蹲 的广泛指南 [中推荐了这一点。这里的准确位置将取决于你的腿的大小(一些人的大腿在运动中更早地接触到小腿)和你感觉舒适的地方。](https://www.strongerbyscience.com/how-to-squat/)
+
+### 如果你是举重运动员
+
+如果你参加举重比赛(抓举和挺举)，除了你自己，没有人会评判你的深蹲深度。深蹲是这项运动中的一个辅助托举，它们的存在只是为了帮助你在主要托举中变得更强壮。
+
+一般来说，举重运动员在清洁和抓举时会以非常低的蹲姿结束，所以他们经常深蹲来配合。但这对于增强力量来说可能不是必要的，所以有很多举重运动员只会蹲到平行或稍低的位置。
+
+### 如果你只是为了力量而训练
+
+好吧，那如果你不参加任何以蹲为中心的运动呢？下面是蹲坑的肮脏秘密:*那就无所谓了*。
+
+如果你蹲得太高，没有蹲警察会来抓你；然而，你的一些健身伙伴可能会质问你，因为你为什么不深入呢？
+
+如果你只做部分深蹲，你可以移动更多的重量，每个健身房都有人会告诉你他们巨大的深蹲 PRs，但后来发现他们并没有接近平行。如果你在欺骗你的深蹲，这样你就可以吹嘘你的数字，你应该吞下你的自我，深蹲到平行。
+
+同样地，如果你蹲得很低，蹲警察也不会来抓你...但是大约一周一次，一个陌生人会告诉你，你这样蹲着会毁了你的膝盖。你可以忽略它们。低蹲并不是天生对你的膝盖有害，所以如果你感觉很好，你可以继续坚持。我们在下蹲指南 中详细讨论了这个神话。
+
+也就是说，**如果你不喜欢蹲低，但你这么做是因为有人告诉你“应该”，你可以随意抛弃这个建议，蹲到你喜欢的水平**。蹲在草地上不会让你成为一个更好的人。
+
+### 如果你不能像你喜欢的那样深蹲
+
+人们经常会问深蹲的深度，因为他们想让 T1 蹲得更深，但是很难做到。
+
+脚踝的灵活性经常是个问题。下蹲需要我们的脚踝弯曲，这样我们的脚才能平放在地板上。如果你接近深度时脚跟离开地面，你可能需要解决脚踝的问题。
+
+一个简单的解决方法是抬高你的脚后跟。 [举重鞋](https://lifehacker.com/what-shoes-to-wear-when-you-lift-weights-1837994384) ，有着坚实的鞋跟，专门为此而存在。它们会帮助你保持稳定(比跑鞋更稳定),让你的鞋跟足够高，这样你就可以毫无问题地找到你喜欢的位置。
+
+另一个窍门是在地板上放一些重量板，并把你的脚后跟支撑在上面。我不喜欢这种沉重的深蹲，因为你必须背着沉重的杠铃才能进入位置，这让我感觉不稳定。但是有些人对这个技巧深信不疑，所以如果你认为它对你有用的话，就试一试吧(先用轻量级的)。
+
+随着时间的推移，你还可以通过拉伸和泡沫滚动来锻炼脚踝的灵活性。尝试不同的站姿宽度和不同类型的深蹲(前蹲、高脚杯深蹲、高杠、低杠)，看看是否有一些对你来说比其他的更舒服。

@@ -1,10 +1,10 @@
 # 在 BundleHunt 的新应用包中查找打折的 Mac 应用
 
-> 原文：<https://lifehacker.com/find-discounted-mac-apps-in-bundlehunts-new-app-pack-1830279655>
+> 原文:[https://life hacker . com/find-discounted-MAC-apps-in-bundle hunts-new-app-pack-1830279655](https://lifehacker.com/find-discounted-mac-apps-in-bundlehunts-new-app-pack-1830279655)
 
 每个人都喜欢一个好的应用捆绑包，bundle hunt——为你的 Mac 设计的创造者——已经推出了全新的假日应用捆绑包。兴奋起来，因为你总共有 46 个大折扣的应用程序可供选择。
 
-
+Watch
 
 ### 捆绑包是如何工作的？
 
@@ -30,4 +30,12 @@
 
 ### [触觉触摸条](https://www.haptictouchbar.com/) ($5 > $1)
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-EZVnfrvN5Lg&amp;start=0" data-chomp-id="EZVnfrvN5Lg" data-recommend-id="youtube://EZVnfrvN5Lg" id="youtube-EZVnfrvN5Lg" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="EZVnfrvN5Lg" data-recommend-id="youtube://EZVnfrvN5Lg" id="youtube-EZVnfrvN5Lg" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">在 之前，我们已经介绍过这个小宝贝<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://lifehacker.com/if-you-hate-the-macbook-s-new-keyboard-try-the-haptic-1819445308&quot;,{&quot;metric25&quot;:1}]]" href="https://lifehacker.com/if-you-hate-the-macbook-s-new-keyboard-try-the-haptic-1819445308">，它仍然是你支持 Touch Bar 的 MacBook Pro 的一个有价值的补充。安装<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.haptictouchbar.com/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.haptictouchbar.com/" target="_blank" rel="noopener noreferrer">触觉触摸条</a> </span>，现在每当你戳 MacBook Pro 的触摸条上的数字键时，你就会获得物理反馈——你可以定制的振动。为什么苹果没有把这个功能直接烘焙到 macOS 中，我们永远不会知道。</a></span></p><h3 class="sc-1bwb26k-1 kpbNNd" id="h18380"><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://x-mirage.com/&quot;,{&quot;metric25&quot;:1}]]" href="http://x-mirage.com/" target="_blank" rel="noopener noreferrer">X-Mirage</a></span>(16 美元&gt;2 美元)</h3><p class="sc-77igqf-0 bOfvBY">您可以使用 Apple 的 AirPlay 将 iPhone 或 iPad 上的视频发送到 Apple TV，或将音乐流化到您的 HomePod 或其他支持 AirPlay 的扬声器，但您不能将设备上的任何内容流化到 Mac 台式机或笔记本电脑。毕竟，这些不是 AirPlay 接收器。</p><p class="sc-77igqf-0 bOfvBY">为了解决这个问题，你需要一个像<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://x-mirage.com/x-mirage/&quot;,{&quot;metric25&quot;:1}]]" href="http://x-mirage.com/x-mirage/" target="_blank" rel="noopener noreferrer"> X-Mirage </a> </span>这样的应用程序，它可以让你将 iPhone 或 iPad 的屏幕镜像到 Mac 上，播放视频或音乐，或者在比你微不足道的 iPhone 或大小适中的 iPad 大得多的屏幕上玩 iOS 游戏。如果你想疯狂一下，你甚至可以同时从多部 iPhones 或 ipad AirPlay 到你的 Mac 上。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-EZVnfrvN5Lg&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-EZVnfrvN5Lg&start=0) 
+
+在 之前，我们已经介绍过这个小宝贝 [，它仍然是你支持 Touch Bar 的 MacBook Pro 的一个有价值的补充。安装](https://lifehacker.com/if-you-hate-the-macbook-s-new-keyboard-try-the-haptic-1819445308) [触觉触摸条](https://www.haptictouchbar.com/) ，现在每当你戳 MacBook Pro 的触摸条上的数字键时，你就会获得物理反馈——你可以定制的振动。为什么苹果没有把这个功能直接烘焙到 macOS 中，我们永远不会知道。
+
+### [X-Mirage](http://x-mirage.com/)(16 美元>2 美元)
+
+您可以使用 Apple 的 AirPlay 将 iPhone 或 iPad 上的视频发送到 Apple TV，或将音乐流化到您的 HomePod 或其他支持 AirPlay 的扬声器，但您不能将设备上的任何内容流化到 Mac 台式机或笔记本电脑。毕竟，这些不是 AirPlay 接收器。
+
+为了解决这个问题，你需要一个像 [X-Mirage](http://x-mirage.com/x-mirage/) 这样的应用程序，它可以让你将 iPhone 或 iPad 的屏幕镜像到 Mac 上，播放视频或音乐，或者在比你微不足道的 iPhone 或大小适中的 iPad 大得多的屏幕上玩 iOS 游戏。如果你想疯狂一下，你甚至可以同时从多部 iPhones 或 ipad AirPlay 到你的 Mac 上。

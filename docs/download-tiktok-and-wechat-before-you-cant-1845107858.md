@@ -1,10 +1,10 @@
 # 在不会之前下载抖音和微信
 
-> 原文：<https://lifehacker.com/download-tiktok-and-wechat-before-you-cant-1845107858>
+> 原文:[https://life hacker . com/download-tiktok-和-微信-before-you-cant-1845107858](https://lifehacker.com/download-tiktok-and-wechat-before-you-cant-1845107858)
 
 如果你曾经对抖音或微信感到好奇，在苹果应用商店和谷歌 Play 为美国用户移除应用之前，你只有几天时间来下载它们。到了 9 月 20 日(T3)周日(T2)，他们都会去 T4
 
-
+Watch
 
 这是美国最终全面禁止这两款应用的第一步，禁令将于 11 月 12 日生效。根据美国商务部长威尔伯·罗斯[的说法，此举旨在“保障我们的国家安全，保护美国人免受中国共产党的威胁”。](https://www.engadget.com/tik-tok-and-we-chat-will-be-banned-from-us-app-stores-on-sunday-115345120.html)
 
@@ -20,4 +20,6 @@
 
 你*也许*可以在抖音和微信被禁后通过 VPN 安装、更新和使用它们，但不要指望它。(一个 d 即使你可以管理它，建立一个单独的国际帐户来恢复通过另一个国家的应用程序商店访问应用程序将是一件痛苦的事情。)
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1306969519374643203&amp;autosize=1" autoresize="true" id="twitter-1306969519374643203" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">那么，你能做什么？嗯，你还不如现在就从<span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://apps.apple.com/us/app/tiktok-trends-start-here/id835599320&quot;,{&quot;metric25&quot;:1}]]" href="https://apps.apple.com/us/app/tiktok-trends-start-here/id835599320" target="_blank" rel="noopener noreferrer">App Store</a></span><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://play.google.com/store/apps/details?id=com.ss.android.ugc.trill&amp;hl=en_US&quot;,{&quot;metric25&quot;:1}]]" href="https://play.google.com/store/apps/details?id=com.ss.android.ugc.trill&amp;hl=en_US" target="_blank" rel="noopener noreferrer">Google Play</a></span>，或者<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.apkmirror.com/apk/tiktok-inc/tik-tok-including-musical-ly&quot;,{&quot;metric25&quot;:1}]]" href="https://www.apkmirror.com/apk/tiktok-inc/tik-tok-including-musical-ly" target="_blank" rel="noopener noreferrer"> APK 镜像</a></span><!-- -->里抢抖音，趁早享受吧。谁知道呢:也许在不久的将来这一切都会改变，这取决于 11 月选举的进展。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1306969519374643203&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1306969519374643203&autosize=1) 
+
+那么，你能做什么？嗯，你还不如现在就从[App Store](https://apps.apple.com/us/app/tiktok-trends-start-here/id835599320)[Google Play](https://play.google.com/store/apps/details?id=com.ss.android.ugc.trill&hl=en_US)，或者 [APK 镜像](https://www.apkmirror.com/apk/tiktok-inc/tik-tok-including-musical-ly)里抢抖音，趁早享受吧。谁知道呢:也许在不久的将来这一切都会改变，这取决于 11 月选举的进展。

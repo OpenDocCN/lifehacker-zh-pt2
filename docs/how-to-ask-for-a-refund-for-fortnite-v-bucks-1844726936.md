@@ -1,10 +1,10 @@
 # 如何要求退还“堡垒之夜”V-Bucks
 
-> 原文：<https://lifehacker.com/how-to-ask-for-a-refund-for-fortnite-v-bucks-1844726936>
+> 原文:[https://life hacker . com/how-to-ask-a-return-for-fort nite-v-bucks-1844726936](https://lifehacker.com/how-to-ask-for-a-refund-for-fortnite-v-bucks-1844726936)
 
 多好的一天。Epic Games 正在起诉苹果和谷歌在其各种应用商店中涉嫌垄断行为，两家公司都在各自的应用商店中禁止了 Epic 最受欢迎的游戏*堡垒之夜*，因为它们试图回避两家公司从应用内购买中抽取的分成。
 
-
+Watch
 
 这对你有什么影响？好吧，首先，你不会从每一个应用商店获得堡垒之夜应用的更新。虽然你应该仍然可以在 Android 上下载新版本的应用程序——我会假设 Epic Games 至少会提供一种方法来做到这一点——但你仍然被困在 iOS 上，并且将无法参加 8 月 27 日到来的《T2》堡垒之夜第二章第三季(第四季)。
 
@@ -22,4 +22,4 @@
 
 你在任一平台上获得退款的可能性有多大？好吧，你可能想开始熟悉键盘和鼠标(不是 [开关或 PS4](https://www.epicgames.com/help/en-US/fortnite-c75/billing-support-c121/why-don-t-all-of-my-vbucks-transfer-across-platforms-a3305) ，我应该注意，因为你的 V-Buck 平衡不会转移):
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1294152542624989184&amp;autosize=1" autoresize="true" id="twitter-1294152542624989184" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1294152542624989184&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1294152542624989184&autosize=1)

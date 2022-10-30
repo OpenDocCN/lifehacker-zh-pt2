@@ -1,10 +1,10 @@
 # 如何成为马拉松观众喜爱的运动员
 
-> 原文：<https://lifehacker.com/how-to-be-the-marathon-spectator-runners-love-1834001745>
+> 原文:[https://life hacker . com/how-to-be-the-marathon-spectator-runners-love-1834001745](https://lifehacker.com/how-to-be-the-marathon-spectator-runners-love-1834001745)
 
 鼓励的欢呼声会极大地鼓舞士气，但每个马拉松运动员都有对观众的美好回忆，他在比赛的艰难时刻吃了完美的小吃或激励性的话语。以下是成为天使的方法。
 
-
+Watch
 
 ### 决定你想去哪里
 
@@ -33,4 +33,28 @@
 *   冷咖啡(本人没见过这个，但是 [有需求](https://twitter.com/BeeBrookshire/status/1014923341604499457) )
 *   饼干，蛋糕球，或者任何好吃的东西。这些人一整天都没有吃过任何好吃的东西。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1116450711133245440&amp;autosize=1" autoresize="true" id="twitter-1116450711133245440" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">记住，人们会用出汗的手抓零食，很少或没有协调性。(与 10 英里相比，他们对 20 英里处的清洁感兴趣要少得多)。做好相应的计划，让东西容易抢。小份比大份好；人们总是可以拿两个。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h288372">缓解炎热天气</h3><p class="sc-77igqf-0 bOfvBY">马拉松往往在春季和秋季举行，以避开一年中最热的天气。典型的马拉松比赛开始时天气寒冷，比赛过程中天气变暖。这意味着，在跑完 15 或 20 英里时，太阳可能会晒到那些已经感到筋疲力尽的跑步者。如果天气很热，考虑帮助人们降温:</p><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>如果你住在赛马场旁边，打开你的洒水车，或者只是拿着一个花园水管站在周围，让人们跑过去。</li><li>这个对孩子来说很棒:带一个超级湿漉漉的，还有一个鼓励跑步者要求喷水的标志。</li><li>带一个装满...嗯，任何冷的东西。<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://flavorice.com/&quot;,{&quot;metric25&quot;:1}]]" href="https://flavorice.com/" target="_blank" rel="noopener noreferrer"> Fla-vor-ice 冰棍</a> </span>很便宜，你可以用剪刀把它们剪成两半。</li></ul><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1116490028836892672&amp;autosize=1" autoresize="true" id="twitter-1116490028836892672" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h288373">给予动力</h3><p class="sc-77igqf-0 bOfvBY">这一类是最便宜的，但也可以是最周到的。你可以对跑步者说很多话，给他们坚持下去的力量。不是每个人都能接受你的信息，但是你会对某些人产生影响。</p><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>击掌。说真的，站在人行道上伸出手就行了。我会完全振作起来，跑到街对面和一个孩子击掌。</li><li>创意击掌，比如一张海报，上面写着“轻拍以获得动力”，或者穿上马里奥服装，来个拳头碰撞</li><li>在人们的围兜上喊出这个名字。很多马拉松让你把你的名字写在号码下面的围兜上，或者人们有时会把他们的名字写在他们的衬衫上。通过名字或描述为他们加油:“看起来很强壮，粉红色的衬衫！你能行的！"</li><li>有趣的标志，就像真正有趣的标志。我欣赏“有史以来最无聊的游行”，对于一个免费的香蕉 ，<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://twitter.com/kenner850kt/status/1015109493800218626&quot;,{&quot;metric25&quot;:1}]]" href="https://twitter.com/kenner850kt/status/1015109493800218626" target="_blank" rel="noopener noreferrer">似乎是很多工作幽默感各不相同，但尽你所能。</a></span></li><li>如果有人正处于特别困难的时期，考虑给一些鼓励的个人话语，像这样:</li></ul><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1116439176898076672&amp;autosize=1" autoresize="true" id="twitter-1116439176898076672" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1116450711133245440&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1116450711133245440&autosize=1) 
+
+记住，人们会用出汗的手抓零食，很少或没有协调性。(与 10 英里相比，他们对 20 英里处的清洁感兴趣要少得多)。做好相应的计划，让东西容易抢。小份比大份好；人们总是可以拿两个。
+
+### 缓解炎热天气
+
+马拉松往往在春季和秋季举行，以避开一年中最热的天气。典型的马拉松比赛开始时天气寒冷，比赛过程中天气变暖。这意味着，在跑完 15 或 20 英里时，太阳可能会晒到那些已经感到筋疲力尽的跑步者。如果天气很热，考虑帮助人们降温:
+
+*   如果你住在赛马场旁边，打开你的洒水车，或者只是拿着一个花园水管站在周围，让人们跑过去。
+*   这个对孩子来说很棒:带一个超级湿漉漉的，还有一个鼓励跑步者要求喷水的标志。
+*   带一个装满...嗯，任何冷的东西。 [Fla-vor-ice 冰棍](https://flavorice.com/) 很便宜，你可以用剪刀把它们剪成两半。
+
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1116490028836892672&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1116490028836892672&autosize=1) 
+
+### 给予动力
+
+这一类是最便宜的，但也可以是最周到的。你可以对跑步者说很多话，给他们坚持下去的力量。不是每个人都能接受你的信息，但是你会对某些人产生影响。
+
+*   击掌。说真的，站在人行道上伸出手就行了。我会完全振作起来，跑到街对面和一个孩子击掌。
+*   创意击掌，比如一张海报，上面写着“轻拍以获得动力”，或者穿上马里奥服装，来个拳头碰撞
+*   在人们的围兜上喊出这个名字。很多马拉松让你把你的名字写在号码下面的围兜上，或者人们有时会把他们的名字写在他们的衬衫上。通过名字或描述为他们加油:“看起来很强壮，粉红色的衬衫！你能行的！"
+*   有趣的标志，就像真正有趣的标志。我欣赏“有史以来最无聊的游行”，对于一个免费的香蕉 ， [似乎是很多工作幽默感各不相同，但尽你所能。](https://twitter.com/kenner850kt/status/1015109493800218626)
+*   如果有人正处于特别困难的时期，考虑给一些鼓励的个人话语，像这样:
+
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1116439176898076672&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1116439176898076672&autosize=1)

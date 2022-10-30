@@ -1,7 +1,18 @@
 # 使用 Google Home 为您的孩子录制并分享睡前故事
 
-> 原文：<https://lifehacker.com/record-and-share-bedtime-stories-for-your-kid-using-goo-1840005107>
+> 原文:[https://life hacker . com/record-and-share-bedrome-stories-for-your-kid-using-goo-1840005107](https://lifehacker.com/record-and-share-bedtime-stories-for-your-kid-using-goo-1840005107)
 
 对大多数父母来说， [与孩子](https://offspring.lifehacker.com/why-picture-books-are-perfect-bedtime-stories-1826481061) 分享夜间故事是宝贵的和重要的时间，但有时照顾孩子的责任落到了保姆和其他家庭成员身上。最新的 Google Home 更新增加了一个新的“我的故事时间”功能，让父母在他们不在家睡觉的时候为他们的孩子录制故事和其他信息。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-_4UTQy1GaYQ&amp;start=0" data-chomp-id="_4UTQy1GaYQ" data-recommend-id="youtube://_4UTQy1GaYQ" id="youtube-_4UTQy1GaYQ" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="_4UTQy1GaYQ" data-recommend-id="youtube://_4UTQy1GaYQ" id="youtube-_4UTQy1GaYQ" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">Google Home 和其他由 Google Assistant 驱动的设备还有其他与就寝和起床相关的应用程序，其中<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://lifehacker.com/let-the-teenage-mutant-ninja-turtles-wake-your-kid-up-1834894946&quot;,{&quot;metric25&quot;:1}]]" href="https://lifehacker.com/let-the-teenage-mutant-ninja-turtles-wake-your-kid-up-1834894946">包括来自受欢迎的卡通或电影角色</a> </span>的消息，但我的 Storytime 旨在缓解远程育儿的困难。它是由经常在夜间工作或旅行的父母(如军人)创建的，这样他们就可以保持联系，并在孩子的日常生活中发挥积极作用。它是这样工作的:</p><ol data-type="List" data-style="Number" class="sc-1lmbno3-1 sizyJ"><li>进入<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://mystorytime.com/&quot;,{&quot;metric25&quot;:1}]]" href="https://mystorytime.com/" target="_blank" rel="noopener noreferrer">我的故事时间网站</a> </span>点击“开始”</li><li>使用您在 Google Home 或 Google Nest 设备上使用的同一 Google 帐户登录。</li><li>下一页解释了记录和分享过程是如何工作的。通读步骤，然后按“下一步”，然后按“新故事”</li><li>按照屏幕上的说明录制或上传新的睡前故事或信息。</li><li>你也可以通过我的故事时间与其他家人和朋友分享你的录音(你可以在这里阅读谷歌关于我的故事时间的隐私和安全政策)。</li><li>一旦你的视频被上传，你的孩子就可以通过谷歌 Home 或 Nest 设备访问它们，只需说“嘿，谷歌，跟我讲故事吧。”</li></ol><div class="bxm4mm-2 hKBnez"><div class="bxm4mm-1 goloRq instream-native-video instream-permalink instream-native-video--mobile"><div class="sc-1h0epat-0 lepUzz"><div class="sc-1h0epat-1 gRjwiT"><div class="sc-235a11-0 egwski">Watch</div></div><div class="sc-1wkneyl-0 hxLRyg video-html5-playlist" data-playlist="192590,192585,192428" data-current="192590"><div class="video-html5-loaded"><div class="video-html5-player"><div class="lhhce6-0 bVyOPq video-html5 autoplay muted mobile" data-video-id="192590" data-position="sidebar" data-video-title="How to Make a Quick and Easy Crumb Crust" data-video-network="lifehacker" data-video-duration="135"></div></div></div></div></div></div></div><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><div id="mgid-container" data-placement="2" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-_4UTQy1GaYQ&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-_4UTQy1GaYQ&start=0) 
+
+Google Home 和其他由 Google Assistant 驱动的设备还有其他与就寝和起床相关的应用程序，其中 [包括来自受欢迎的卡通或电影角色](https://lifehacker.com/let-the-teenage-mutant-ninja-turtles-wake-your-kid-up-1834894946) 的消息，但我的 Storytime 旨在缓解远程育儿的困难。它是由经常在夜间工作或旅行的父母(如军人)创建的，这样他们就可以保持联系，并在孩子的日常生活中发挥积极作用。它是这样工作的:
+
+1.  进入 [我的故事时间网站](https://mystorytime.com/) 点击“开始”
+2.  使用您在 Google Home 或 Google Nest 设备上使用的同一 Google 帐户登录。
+3.  下一页解释了记录和分享过程是如何工作的。通读步骤，然后按“下一步”，然后按“新故事”
+4.  按照屏幕上的说明录制或上传新的睡前故事或信息。
+5.  你也可以通过我的故事时间与其他家人和朋友分享你的录音(你可以在这里阅读谷歌关于我的故事时间的隐私和安全政策)。
+6.  一旦你的视频被上传，你的孩子就可以通过谷歌 Home 或 Nest 设备访问它们，只需说“嘿，谷歌，跟我讲故事吧。”
+
+Watch

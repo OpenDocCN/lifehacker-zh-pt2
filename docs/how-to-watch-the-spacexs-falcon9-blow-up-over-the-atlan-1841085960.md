@@ -1,11 +1,25 @@
 # 如何观看周日直播 SpaceX 的猎鹰 9 号在大西洋上空爆炸
 
-> 原文：<https://lifehacker.com/how-to-watch-the-spacexs-falcon9-blow-up-over-the-atlan-1841085960>
+> 原文:[https://life hacker . com/how-to-watch-the-spacexs-falcon 9-blow-up-over-the-atlan-1841085960](https://lifehacker.com/how-to-watch-the-spacexs-falcon9-blow-up-over-the-atlan-1841085960)
 
 SpaceX 预计将于周六对 Falco n 9 火箭进行逃逸测试，但“由于溅落和回收天气不佳”，不得不将该活动重新安排到周日相反，测试已被重新安排在周日，6 小时的测试窗口在东部时间上午 8 点正式开放。
 
-
+Watch
 
 该测试旨在“展示在发射失败的情况下，Crew Dragon 安全逃离猎鹰 9 号火箭的能力。”这应该是这样的:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-mhrkdHshb3E&amp;start=0" data-chomp-id="mhrkdHshb3E" data-recommend-id="youtube://mhrkdHshb3E" id="youtube-mhrkdHshb3E" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="mhrkdHshb3E" data-recommend-id="youtube://mhrkdHshb3E" id="youtube-mhrkdHshb3E" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">如果一切按计划进行，宇航员龙太空舱将在大西洋上空与火箭分离，碎片将通过降落伞安全落入水中。<br/></p><p class="sc-77igqf-0 bOfvBY">测试是为了证明如果在发射过程中出现问题，宇航员可以安全地从火箭中弹出。最终，宇航员可能会乘坐类似的飞船前往国际空间站。</p><p class="sc-77igqf-0 bOfvBY">火箭将从佛罗里达州的美国宇航局肯尼迪航天中心起飞，发射逃逸将在飞行开始前 1 分 30 秒触发。猎鹰 9 号预计将在大西洋上空解体，飞船预计将在离岸降落伞下着陆。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">国家航空航天局将现场直播整个过程。它的广播将在美国东部时间早上 7:40 开始，第 0 次测试后的新闻发布会定于美国东部时间早上 9:30 举行。你可以<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.nasa.gov/press-release/nasa-to-provide-coverage-of-spacex-crew-dragon-launch-escape-test&quot;,{&quot;metric25&quot;:1}]]" href="https://www.nasa.gov/press-release/nasa-to-provide-coverage-of-spacex-crew-dragon-launch-escape-test" target="_blank" rel="noopener noreferrer">在这里</a> </span>或者在下面的嵌入式视频中查看:</p><div class="ooo3c9-0 cmUFVa align--center has-video media-large video-embed embed-frame"><span class="flex-video widescreen"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-21X5lGlDOfg&amp;start=0" data-chomp-id="21X5lGlDOfg" data-recommend-id="youtube://21X5lGlDOfg" id="youtube-21X5lGlDOfg" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/><span data-chomp-id="21X5lGlDOfg" data-recommend-id="youtube://21X5lGlDOfg" id="youtube-21X5lGlDOfg" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">SpaceX 还提供直播:</p><div class="ooo3c9-0 cmUFVa align--center has-video media-large video-embed embed-frame"><span class="flex-video widescreen"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-mhrkdHshb3E&amp;start=0" data-chomp-id="mhrkdHshb3E" data-recommend-id="youtube://mhrkdHshb3E" id="youtube-mhrkdHshb3E" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/><span data-chomp-id="mhrkdHshb3E" data-recommend-id="youtube://mhrkdHshb3E" id="youtube-mhrkdHshb3E" data-recommended="false" class="js_recommend"/></span></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-mhrkdHshb3E&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-mhrkdHshb3E&start=0) 
+
+如果一切按计划进行，宇航员龙太空舱将在大西洋上空与火箭分离，碎片将通过降落伞安全落入水中。
+
+测试是为了证明如果在发射过程中出现问题，宇航员可以安全地从火箭中弹出。最终，宇航员可能会乘坐类似的飞船前往国际空间站。
+
+火箭将从佛罗里达州的美国宇航局肯尼迪航天中心起飞，发射逃逸将在飞行开始前 1 分 30 秒触发。猎鹰 9 号预计将在大西洋上空解体，飞船预计将在离岸降落伞下着陆。
+
+国家航空航天局将现场直播整个过程。它的广播将在美国东部时间早上 7:40 开始，第 0 次测试后的新闻发布会定于美国东部时间早上 9:30 举行。你可以 [在这里](https://www.nasa.gov/press-release/nasa-to-provide-coverage-of-spacex-crew-dragon-launch-escape-test) 或者在下面的嵌入式视频中查看:
+
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-21X5lGlDOfg&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-21X5lGlDOfg&start=0) 
+
+SpaceX 还提供直播:
+
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-mhrkdHshb3E&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-mhrkdHshb3E&start=0)

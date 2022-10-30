@@ -1,10 +1,10 @@
 # 如何识别误导的人群照片
 
-> 原文：<https://lifehacker.com/how-to-spot-a-misleading-crowd-photo-1843679750>
+> 原文:[https://life hacker . com/how-to-spot-a-missing-crowd-photo-1843679750](https://lifehacker.com/how-to-spot-a-misleading-crowd-photo-1843679750)
 
 随着企业重新开业，人们去海滩和公园，你可能已经看到新闻照片或视频，显示人们挤进密集的人群，愉快地无视社交距离准则。但是这些照片可能会误导人，这要归功于一个相机技巧。
 
-
+Watch
 
 摄影师在拍摄人群时喜欢使用的一个相当常见的技巧是使用变焦或长焦镜头。这张 [压缩了一张](https://photographylife.com/what-is-lens-compression) 图片的前景和背景，让每个人看起来都靠得更近。例如，在一篇关于人群照片的文章 [《户外摄影指南》中写道](https://www.outdoorphotographyguide.com/video/tips-and-techniques-for-photographing-crowds-009788/#) 一个 300 毫米的镜头“压缩了人群，使其看起来更大但更紧凑，创造出更有活力、更放大的照片。”
 
@@ -22,4 +22,20 @@
 
 为了进一步了解不同的相机镜头长度如何改变人群的外观，景观设计师杰夫·卡特勒 [用几个不同的镜头](https://twitter.com/space2place/status/1259708688396255232) 拍摄了一个当地的海滩，以准确展示每个人看到的东西。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1259708694779973632&amp;autosize=1" autoresize="true" id="twitter-1259708694779973632" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">这种相机技巧也适用于视频:<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://twitter.com/morethanmySLE/status/1264369649271156739&quot;,{&quot;metric25&quot;:1}]]" href="https://twitter.com/morethanmySLE/status/1264369649271156739" target="_blank" rel="noopener noreferrer">中的<!-- -->这条推文</a> </span>是一个特别恶劣的例子，正如回复 中的<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://twitter.com/NameIsFun2Say/status/1265285791011311616&quot;,{&quot;metric25&quot;:1}]]" href="https://twitter.com/NameIsFun2Say/status/1265285791011311616" target="_blank" rel="noopener noreferrer">所指出的。马里兰州海洋城的这条木板路“拥挤”吗？在一个地方，无面具的人肯定比明智的要多，但是摄像机镜头夸大了密度:</a></span></p><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1265285791011311616&amp;autosize=1" autoresize="true" id="twitter-1265285791011311616" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><p class="sc-77igqf-0 bOfvBY">看视频自己数数。婴儿车里的男人在 0:03 出现，看起来就在站在前景中一动不动的女人身后:</p><p class="sc-77igqf-0 bOfvBY">...但是当视频中断时——20 步 13 秒后——<!-- -->他仍然在她身后。</p><p class="sc-77igqf-0 bOfvBY">当我们重新开放时，这些误导性的人群镜头是一个问题，因为人们很紧张。我们很多人都试图避开人群，这些照片让我们的邻居看起来好像忽视了物理距离的规则。也许他们中的一些人是，但情况可能没有照片显示的那么可怕。<br/></p><p class="sc-77igqf-0 bOfvBY">这是另一个例子，当规则要求桌子之间的距离超过通常的距离时，一家餐馆重新开张了。一张照片显示这些规则没有被遵守；另一个角度的照片(由 餐厅提供<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://twitter.com/RioMamboTexMex/status/1254081124692869124&quot;,{&quot;metric25&quot;:1}]]" href="https://twitter.com/RioMamboTexMex/status/1254081124692869124" target="_blank" rel="noopener noreferrer">)讲述了一个不同的故事。</a></span></p><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1254081124692869124&amp;autosize=1" autoresize="true" id="twitter-1254081124692869124" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><p class="sc-77igqf-0 bOfvBY">与此同时，这些照片和视频给了我们在社交媒体上相互争论的素材，导致紧张局势不断升级。我<!-- --> f 感染<em>没有</em>随着重新开放而上升——<!-- -->也许是因为人们在外出时很小心，保持适当的距离<!-- -->——<!-- -->你知道有人会翻出这些照片，声称一切都很拥挤，反正一切都很好<!-- -->。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1259708694779973632&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1259708694779973632&autosize=1) 
+
+这种相机技巧也适用于视频: [中的这条推文](https://twitter.com/morethanmySLE/status/1264369649271156739) 是一个特别恶劣的例子，正如回复 中的 [所指出的。马里兰州海洋城的这条木板路“拥挤”吗？在一个地方，无面具的人肯定比明智的要多，但是摄像机镜头夸大了密度:](https://twitter.com/NameIsFun2Say/status/1265285791011311616)
+
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1265285791011311616&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1265285791011311616&autosize=1) 
+
+看视频自己数数。婴儿车里的男人在 0:03 出现，看起来就在站在前景中一动不动的女人身后:
+
+...但是当视频中断时——20 步 13 秒后——他仍然在她身后。
+
+当我们重新开放时，这些误导性的人群镜头是一个问题，因为人们很紧张。我们很多人都试图避开人群，这些照片让我们的邻居看起来好像忽视了物理距离的规则。也许他们中的一些人是，但情况可能没有照片显示的那么可怕。
+
+这是另一个例子，当规则要求桌子之间的距离超过通常的距离时，一家餐馆重新开张了。一张照片显示这些规则没有被遵守；另一个角度的照片(由 餐厅提供 [)讲述了一个不同的故事。](https://twitter.com/RioMamboTexMex/status/1254081124692869124)
+
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1254081124692869124&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1254081124692869124&autosize=1) 
+
+与此同时，这些照片和视频给了我们在社交媒体上相互争论的素材，导致紧张局势不断升级。我 f 感染*没有*随着重新开放而上升——也许是因为人们在外出时很小心，保持适当的距离——你知道有人会翻出这些照片，声称一切都很拥挤，反正一切都很好。

@@ -1,10 +1,10 @@
 # 在全国冰淇淋日去哪里买冰淇淋
 
-> 原文：<https://lifehacker.com/where-to-get-ice-cream-deals-on-national-ice-cream-day-1844418020>
+> 原文:[https://life hacker . com/where-to-get-ice-cream-deals-on-national-ice cream-day-1844418020](https://lifehacker.com/where-to-get-ice-cream-deals-on-national-ice-cream-day-1844418020)
 
 在这一点上，似乎每个人，食物和无生命的物体都有自己的国庆节。虽然这看起来毫无意义，也很难跟踪，但有些日子(比如今天，7 月 19 日)让这些废话变得有价值。因为今天是全国冰淇淋日，我们可以买到今天的美味冰镇食品。这里是找到它们的地方。
 
-
+Watch
 
 ### 芭斯罗缤
 
@@ -12,4 +12,30 @@
 
 ### 卡沃尔
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1282762983165382657&amp;autosize=1" autoresize="true" id="twitter-1282762983165382657" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">试试 Carvel 的新口味，香草波旁太妃糖，7 月 19 日，任何大小的软杯或锥形杯都可以优惠 1 美元。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h17563">乳品皇后</h3><p class="sc-77igqf-0 bOfvBY">在 7 月 19 日星期日获得<span></span>1 美元优惠。该交易适用于任何尺寸，不包括儿童甜筒，并可在参与地点通过移动应用程序兑换。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h17564">友好的</h3><p class="sc-77igqf-0 bOfvBY">除了是全国冰淇淋日，这也是友好的 85 岁生日！他们的<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.friendlysrestaurants.com/login/?login=register&quot;,{&quot;metric25&quot;:1}]]" href="https://www.friendlysrestaurants.com/login/?login=register" target="_blank" rel="noopener noreferrer"> BFF Club </a> </span>忠诚度计划的成员可以在 7 月 19 日获得<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.goodmorningamerica.com/food/story/national-ice-cream-day-deals-freebies-scoop-july-71772006&quot;,{&quot;metric25&quot;:1}]]" href="https://www.goodmorningamerica.com/food/story/national-ice-cream-day-deals-freebies-scoop-july-71772006" target="_blank" rel="noopener noreferrer"> 85 美分的甜筒</a> </span>。如果你是 BFF 俱乐部的新成员，当你注册的时候，你会得到一个免费的甜筒。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h17565">失眠饼干</h3><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1282731631544078341&amp;autosize=1" autoresize="true" id="twitter-1282731631544078341" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><p class="sc-77igqf-0 bOfvBY">喜欢你夹在美味饼干中间的冰淇淋吗？如果是这样，那就利用失眠饼干提供的买一送一的“怪兽饼干”吧(你选一个冰淇淋口味和一个曲奇。他们会把你的冰淇淋和饼干混合在一起，夹在两块饼干中间端上来。)他们经常做的菜肴也是 BOGO 的，可以送货上门，也可以店内取货。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h17566">Sensodyne</h3><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1284110610284904448&amp;autosize=1" autoresize="true" id="twitter-1284110610284904448" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><p class="sc-77igqf-0 bOfvBY">从美国东部时间 7 月 19 日周日中午开始，<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://sensodyne-nicd2020.fooji.com/#rules&quot;,{&quot;metric25&quot;:1}]]" href="https://sensodyne-nicd2020.fooji.com/#rules" target="_blank" rel="noopener noreferrer">在 Sensodyne 牙膏公司</a> </span>发推文:“Sensodyne sundae+[冰淇淋表情符号]#赠品”，有机会获得一个自制圣代套装(可能还有一些牙膏)。遗憾的是，这只适用于芝加哥、洛杉矶、纽约、费城和旧金山的顾客。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h17567">全食超市</h3><p class="sc-77igqf-0 bOfvBY">从 7 月 15 日到 7 月 28 日，Prime 会员可以享受冰淇淋 和其他冷冻食品 35%的折扣。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1282762983165382657&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1282762983165382657&autosize=1) 
+
+试试 Carvel 的新口味，香草波旁太妃糖，7 月 19 日，任何大小的软杯或锥形杯都可以优惠 1 美元。
+
+### 乳品皇后
+
+在 7 月 19 日星期日获得1 美元优惠。该交易适用于任何尺寸，不包括儿童甜筒，并可在参与地点通过移动应用程序兑换。
+
+### 友好的
+
+除了是全国冰淇淋日，这也是友好的 85 岁生日！他们的 [BFF Club](https://www.friendlysrestaurants.com/login/?login=register) 忠诚度计划的成员可以在 7 月 19 日获得 [85 美分的甜筒](https://www.goodmorningamerica.com/food/story/national-ice-cream-day-deals-freebies-scoop-july-71772006) 。如果你是 BFF 俱乐部的新成员，当你注册的时候，你会得到一个免费的甜筒。
+
+### 失眠饼干
+
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1282731631544078341&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1282731631544078341&autosize=1) 
+
+喜欢你夹在美味饼干中间的冰淇淋吗？如果是这样，那就利用失眠饼干提供的买一送一的“怪兽饼干”吧(你选一个冰淇淋口味和一个曲奇。他们会把你的冰淇淋和饼干混合在一起，夹在两块饼干中间端上来。)他们经常做的菜肴也是 BOGO 的，可以送货上门，也可以店内取货。
+
+### Sensodyne
+
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1284110610284904448&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1284110610284904448&autosize=1) 
+
+从美国东部时间 7 月 19 日周日中午开始， [在 Sensodyne 牙膏公司](https://sensodyne-nicd2020.fooji.com/#rules) 发推文:“Sensodyne sundae+[冰淇淋表情符号]#赠品”，有机会获得一个自制圣代套装(可能还有一些牙膏)。遗憾的是，这只适用于芝加哥、洛杉矶、纽约、费城和旧金山的顾客。
+
+### 全食超市
+
+从 7 月 15 日到 7 月 28 日，Prime 会员可以享受冰淇淋 和其他冷冻食品 35%的折扣。

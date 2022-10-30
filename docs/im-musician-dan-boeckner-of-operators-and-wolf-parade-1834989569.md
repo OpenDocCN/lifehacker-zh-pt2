@@ -1,6 +1,4 @@
-# im musician dan boeckner of operators and wolf parade 1834989569
-
-> 原文：<https://lifehacker.com/im-musician-dan-boeckner-of-operators-and-wolf-parade-1834989569>
+> 原文:[https://life hacker . com/im-musician-Dan-boeckner-of-operators-and-wolf-parade-1834989569](https://lifehacker.com/im-musician-dan-boeckner-of-operators-and-wolf-parade-1834989569)
 
 如果你关注新音乐，你可能知道丹·伯克纳来自，这是一个由他、电音精灵德沃伊卡和鼓手萨姆·布朗组成的黑暗和跳舞的合成流行乐队。(查看他们的新专辑，*晨曦*， [这里](https://operators.store-08.com/radiant-dawn/) 和 [这里](https://open.spotify.com/album/7fN8Uw230qeH6hR3beBSFd?si=VDrX8WwDTzq0ByYh4hKv1A) ， [他们的巡演日程这里](http://operatorsmusic.com/tour/) 。)如果这没有让你想起什么，你可能更熟悉 Wolf Parade，这是一个你可能在大学的大部分时间里都在听的独立摇滚乐队。但你肯定不知道的是，在音乐事业起飞之前，伯克纳曾在餐馆工作过，他对一系列真正令人印象深刻的美食、调味品和真正美味的薯片既有广博的知识，也有极大的热情。
 
@@ -8,7 +6,7 @@
 
 **地点:**魁北克
 
-
+<label class="bxm4mm-13 juykRM">Advertisement</label>
 
 **当前演出:**操作员和狼游行的歌手和吉他手
 
@@ -24,7 +22,7 @@
 
 我知道。当我在食品部工作的时候，我讨厌在家做饭。我在食品行业工作时吃得很差。我觉得那可能是很平常的事情。
 
-
+<label class="bxm4mm-13 juykRM">Advertisement</label>
 
 #### 哦，这太普通了。你现在在家做饭吗？
 
@@ -38,7 +36,7 @@
 
 那是我厨房里的秘密储藏区。它基本上分为像花椒粒、干辣椒这样的四川材料，然后是一点点随意的日本烹饪材料，比如干 *ume* 咸梅子粉，但也有一些缅甸材料，这是我在与 Wolf Parade 巡回演出时发现的。我们在北卡罗莱纳州玩，就在这条街上，有一个墙上有洞的缅甸杂货店。我不打算说出这家店的名字，因为我不想为此公开抨击他们，但这真的很棒:他们出售所有这些很棒的缅甸产品，比如他们使用的特定种类的辣椒，磨碎的辣椒，但他们也出售槟榔果的配料，这是一种你咀嚼的兴奋剂。它是一种槟榔叶，makrut 石灰叶，然后是真正的坚果和生石灰粉。
 
-
+<label class="bxm4mm-13 juykRM">Advertisement</label>
 
 #### 我的天啊。
 
@@ -52,7 +50,7 @@
 
 正是如此。这肯定取决于地区。如果你在北美的沿海中心玩，很有可能你可以扔一块石头，你会找到一种你想吃的食物，或者符合你的饮食习惯的食物，等等。但是一旦你开始越来越靠近这个国家的中心，就很难找到食物，而且食物变得越来越糟糕。老实说，如果你在中西部旅游，星巴克几乎是你每天早餐的最佳选择。
 
-
+<label class="bxm4mm-13 juykRM">Advertisement</label>
 
 #### 你得到了什么？
 
@@ -70,7 +68,7 @@
 
 只是战后的口粮料理。就好像他们在闪电战期间实行配给制，每个人都像“好吧。对我们来说足够好了。我们喜欢这样。”
 
-
+<label class="bxm4mm-13 juykRM">Advertisement</label>
 
 我的意思是，我知道在英国有一整个世界的“高级”食物，但它的价格是 100 万美元一盘。他们确实有鸡肉和非常好的印度食物。那很好。但总的来说，无论推广者提供什么，欧洲都相当不错。如果你在意大利，在演出前出去吃东西是令人兴奋的。
 
@@ -84,7 +82,7 @@
 
 是啊。我和我的整个乐队在一起，穿着帅气的皮草，我们特意在南欧结束了这次巡演，这样我们就可以飞往锡拉丘兹的。这里有一个 [露天市场，主要是鱼市场](https://italoamericano.org/story/2016-2-21/market-ortigia) 它已经以这样或那样的形式存在了大概 800 多年。那里一直在进行某种食物交易。我认为它是西西里岛的最南端。感觉上差不多就是北非了。有很多摩尔人的影响。显然埃及人在那里；有一个广场，一个有池塘的小镇，周围生长着纸莎草，传说它是由来到锡拉丘兹的埃及探险家种植的。所以我去那里租了一套公寓，只有一个基本的煤气炉。晚上，我会去这些餐馆吃饭，试着弄清楚如何烹饪我正在吃的东西。然后我早上起床，去市场，买食物，做午餐，试着复制我前一天晚上吃的东西，除了午餐。
 
-
+<label class="bxm4mm-13 juykRM">Advertisement</label>
 
 #### 你有多成功？
 
@@ -102,7 +100,7 @@
 
 这通常是我早上的例行公事:只是把鲭鱼米饭扔在一起，回复电子邮件，喝一杯咖啡，鲭鱼米饭准备好了，吃了它，把电饭煲内胆扔进洗碗机，然后去工作室。
 
-
+<label class="bxm4mm-13 juykRM">Advertisement</label>
 
 #### 你通常喝哪种咖啡？
 
@@ -120,7 +118,7 @@
 
 去年，我和我的搭档看了奥利亚·赫拉克勒斯写的 [马穆什卡食谱](https://www.simonandschuster.com/books/Mamushka/Olia-Hercules/9781616289614) 。这是当代和更古老的乌克兰烹饪。我绝对喜欢它。她还写了一本关于烹饪的书。我想它就叫做“ [【考卡西斯](https://www.amazon.com/Kaukasis-Culinary-Journey-through-Azerbaijan/dp/1681883031?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-musician-dan-boeckner-of-operators-and-wolf-parade-1834989569&asc_source=&tag=kinjalifehackerlink-20) ”，但是里面有很多很棒的东西，我把那本烹饪书和这本书配在一起——把烹饪书配在一起很有趣——只是为了把它放在上下文中。
 
-
+<label class="bxm4mm-13 juykRM">Advertisement</label>
 
 这本烹饪书出版于革命前的俄国，在沙皇时代，本质上是家庭主妇指南。我的意思是这基本上就是标题。因此，它涵盖了从如何制作黄油到基本食品安全的所有东西，这些东西在今天已经非常过时和可怕了。怎么杀鸡之类的狗屁，你也知道...沙皇俄国。这本食谱本身是一件有趣的艺术品，因为它真的很有启发性。里面有一些基本食物的食谱，比如 *solyanka* ，这是一种基本的汤，里面有泡菜、西红柿和香肠，有点像“把所有东西都放在锅里”的汤。但是这些精心制作的食谱会让你联想到罗曼诺夫家族。肉冻菜，就像肉冻里的一整只鲈鱼，还有里面的炒鸡蛋。
 
@@ -130,7 +128,7 @@
 
 真的很棒。当我搬回蒙特利尔时，我不得不把一堆东西留在加利福尼亚，我留下的东西之一是我妈妈去世后留给我的一本巨大的《时间生活》烹饪书。如果我真的要做什么，那套烹饪书就是我经常会去的地方。我只是坐在那里通读那些书。我想是*时代生活烹饪世界*？这就像一本 26 卷的书，出版于 60 年代末，令人难以置信。我认为，你是在订阅的基础上购买的，这可能是许多美国人与其他文化交流的方式，尤其是在东方集团。
 
-
+<label class="bxm4mm-13 juykRM">Advertisement</label>
 
 他们有关于南斯拉夫烹饪、波兰烹饪、俄罗斯烹饪的书籍——他们可以无限制地接触这些与西方完全隔绝的国家。其中一些卷几乎是社会主义国际项目。他们揭穿了许多关于粮食短缺的神话，以及所有这些国家都生活在灰色、惨淡的粮食状况中的笼统想法。我认为 Magnus Nilsson 参考了他出版的北欧烹饪卷 中的那些书。
 
@@ -142,7 +140,7 @@
 
 我知道。我没有全部看过，但我确实看过。
 
-
+<label class="bxm4mm-13 juykRM">Advertisement</label>
 
 #### 你看过俄罗斯的那一集吗[弗拉基米尔·穆欣，他在莫斯科 的 [将现代技术应用于前苏联美食]？](http://whiterabbitmoscow.ru/en/)
 
@@ -160,7 +158,7 @@
 
 这是前南斯拉夫的马其顿共和国的主要民族食品之一。我经常去那里——我的伴侣 Devojka 是马其顿人，她的很多家人都住在那里。我们吃很多 ajvar，看到这些关于 ajvar 的文章出来我很震惊。我认为这是 Vice 的美食博客——这位英国厨师基本上就像是，“我要把 *ajvar* 做得很酷，但非常昂贵和令人满意，”这真他妈的滑稽，因为 *ajvar* 几乎没有营养价值，而且制作起来超级耗费劳动力。而且这真的只是一种美味的小吃，有[*rakia*](https://en.wikipedia.org/wiki/Rakia)*，*当地的硬豪饮。看到基本上是农民的食物被重新包装，并以其实际价值的几百倍卖给西方人，这很有趣。
 
-
+<label class="bxm4mm-13 juykRM">Advertisement</label>
 
 #### 是啊。这也发生在西方国家。这是几年前的事了，但我曾经在一份 200 美元的品尝菜单上看到过垃圾邮件。【编者注: [那是 135 美元](http://gothamist.com/2014/04/01/spam_brooklyn_hipsters.php) 。]
 
@@ -174,7 +172,7 @@
 
 一直都是。有一个几乎大男子主义的品质，我真的不喜欢。这很难解释，但这有点像“是的，我们是一家豪华餐厅，但你他妈的要吃垃圾邮件！你能相信吗？?"这就像烹饪相当于成为一个边缘人。这就像一个奇怪的阶级划分。你挪用了穷人的必需品，让他们无法获得。
 
-
+<label class="bxm4mm-13 juykRM">Advertisement</label>
 
 #### 这是野生的东西。这里有点变调:你有什么工作室小吃或者练习小吃吗？
 
@@ -192,7 +190,7 @@
 
 将鸡蛋煮熟，切碎，蛋黄酱，泡菜——非常重要——葱和莳萝。
 
-
+<label class="bxm4mm-13 juykRM">Advertisement</label>
 
 #### 你有特别喜欢的蛋黄酱品牌吗？
 
@@ -206,7 +204,7 @@
 
 我不是超级喜欢辣——我的意思是，我喜欢好吃的辣酱，但我很喜欢经典的。我很喜欢乔鲁拉。有点刺鼻。但是我真的喜欢四川辣酱和辣椒油。我用很多辣椒油。
 
-
+<label class="bxm4mm-13 juykRM">Advertisement</label>
 
 #### 四川酱有那种刺鼻的感觉，对吗？
 
@@ -224,7 +222,7 @@
 
 是啊，它是。我不知道怎么做，但味道就是不一样。蔬菜更好。
 
-
+<label class="bxm4mm-13 juykRM">Advertisement</label>
 
 #### 听起来差不多是对的。当你不能做饭的时候，你会留一些冷冻食品或方便食品吗？
 
@@ -236,7 +234,7 @@
 
 冰箱很冷，克莱尔。
 
-
+<label class="bxm4mm-13 juykRM">Advertisement</label>
 
 #### 你有最喜欢的宿醉餐吗？
 
@@ -254,10 +252,26 @@
 
 *我喜欢杜松子酒。*
 
-**
+*<label class="bxm4mm-13 juykRM">Advertisement</label>*
 
 #### *杜松子酒太棒了！*
 
 *所以我需要说的是，来自运营商的 Devojka，她的另一件事是她与所有来自纽约 [好样的](https://punchdrink.com/venues/attaboy/) 的家伙一起训练。这就像一个地下酒吧。这可能是我在纽约最喜欢的酒吧。在过去的几年里，她断断续续地和他们一起训练，并掌握了制作鸡尾酒的技巧。他们有一个饮料应用程序，她的一些饮料在应用程序上制作。她一直在公寓主持这些“ [【粉红豹】](https://www.instagram.com/pinkpanthermtl/) ”地下酒吧之夜。所以基本上我完全被鸡尾酒宠坏了。*
 
-*<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=instagram-Bpx82RaAhiU&amp;autosize=1" autoresize="true" id="instagram-Bpx82RaAhiU" data-recommended="false" width="598" height="676" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">我最喜欢的鸡尾酒是吉布森鸡尾酒，它基本上是一种干杜松子马提尼酒，里面有腌洋葱。她完全掌握了这一点，但也掌握了一堆其他方式更复杂的鸡尾酒。这很危险，因为我们每天晚上都喝得烂醉。这基本上就是在<em>辐射黎明——</em>新运营商记录的写作期间发生的事情。我们会做一些东西，然后当我们回到公寓时，Dev 会说“好吧，我正在为粉红豹做一份新菜单。试试这个。现在试试这个。试试这个。”然后，你知道，我就完了。</p><div class="bxm4mm-12 dFBBhS js_movable_ad_slot"><div class="bxm4mm-14 gFcZLy"><div is="bulbs-dfp" class="ad-container dfp dfp-slot-MID_BANNER ad-middleboard" data-ad-unit="MID_BANNER" data-targeting="{&quot;pos&quot;:&quot;mid_banner&quot;}"/><div class="bt-wrapper"><span data-uid="5d1b8a6cd5-384" class="bt-uid-tg" style="display:none !important;text-align:center" data-css-selector="ad-container.ad-middleboard"/></div></div></div><h4 class="sc-1bwb26k-1 kpbNNd" id="h290575">你有特别喜欢的杜松子酒品牌吗？</h4><p class="sc-77igqf-0 bOfvBY">我想是植物学家。 确实不错。我在不列颠哥伦比亚省温哥华岛的一个乡村小镇长大，温哥华岛是一个远离大陆海岸的大岛。最近，该省取消了对蒸馏酒生产线的限制，所以有很多私人酿酒厂开始营业，而且很多温哥华岛的杜松子酒非常棒。我认为它可以和国际轧棉厂竞争。<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://ampersanddistilling.com&quot;,{&quot;metric25&quot;:1}]]" href="http://ampersanddistilling.com" target="_blank" rel="noopener noreferrer">、</a>、</span>就是其中之一。</p><p class="sc-77igqf-0 bOfvBY">其中一些显然有点太“过时”，像“手工制作”输液太多。有一种来自加拿大的杜松子酒我非常喜欢——它是一种<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://gingineerist.com/defender-island-gin/&quot;,{&quot;metric25&quot;:1}]]" href="http://gingineerist.com/defender-island-gin/" target="_blank" rel="noopener noreferrer">后卫岛</a> </span>。它装在一个黑色的瓶子里，就像第五瓶一样，就像一个米奇。我认为它来自不列颠哥伦比亚省，它是用杜松子和迷迭香制成的，但烧杜松子和烧迷迭香。就像烟熏杜松子酒。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h290576">如果你只能选择一种盐、一种脂肪和一种酸，你会选择哪一种？<em/>T2】</h4><p class="sc-77igqf-0 bOfvBY">盐——我喜欢未经提炼的海盐。脂肪——我会选择猪油，比如猪脂肪，因为它非常美味。我是<em>瓦奇</em>的超级粉丝。就像你当零食吃的小块烤猪油。至于酸，我会说是柠檬。我喜欢味道不错、中等酸味的柠檬汁。<br/></p><p class="sc-77igqf-0 bOfvBY">为了简洁明了，我们编辑了这篇采访。T3】</p></div> </body> </html></iframe>*
+ *[https://lifehacker.com/embed/inset/iframe?id=instagram-Bpx82RaAhiU&autosize=1](https://lifehacker.com/embed/inset/iframe?id=instagram-Bpx82RaAhiU&autosize=1)* 
+
+*我最喜欢的鸡尾酒是吉布森鸡尾酒，它基本上是一种干杜松子马提尼酒，里面有腌洋葱。她完全掌握了这一点，但也掌握了一堆其他方式更复杂的鸡尾酒。这很危险，因为我们每天晚上都喝得烂醉。这基本上就是在*辐射黎明——*新运营商记录的写作期间发生的事情。我们会做一些东西，然后当我们回到公寓时，Dev 会说“好吧，我正在为粉红豹做一份新菜单。试试这个。现在试试这个。试试这个。”然后，你知道，我就完了。*
+
+*<label class="bxm4mm-13 juykRM">Advertisement</label>*
+
+#### *你有特别喜欢的杜松子酒品牌吗？*
+
+*我想是植物学家。 确实不错。我在不列颠哥伦比亚省温哥华岛的一个乡村小镇长大，温哥华岛是一个远离大陆海岸的大岛。最近，该省取消了对蒸馏酒生产线的限制，所以有很多私人酿酒厂开始营业，而且很多温哥华岛的杜松子酒非常棒。我认为它可以和国际轧棉厂竞争。 [、](http://ampersanddistilling.com)、就是其中之一。*
+
+*其中一些显然有点太“过时”，像“手工制作”输液太多。有一种来自加拿大的杜松子酒我非常喜欢——它是一种 [后卫岛](http://gingineerist.com/defender-island-gin/) 。它装在一个黑色的瓶子里，就像第五瓶一样，就像一个米奇。我认为它来自不列颠哥伦比亚省，它是用杜松子和迷迭香制成的，但烧杜松子和烧迷迭香。就像烟熏杜松子酒。*
+
+#### *如果你只能选择一种盐、一种脂肪和一种酸，你会选择哪一种？*T2】**
+
+**盐——我喜欢未经提炼的海盐。脂肪——我会选择猪油，比如猪脂肪，因为它非常美味。我是*瓦奇*的超级粉丝。就像你当零食吃的小块烤猪油。至于酸，我会说是柠檬。我喜欢味道不错、中等酸味的柠檬汁。** 
+
+**为了简洁明了，我们编辑了这篇采访。T3】**

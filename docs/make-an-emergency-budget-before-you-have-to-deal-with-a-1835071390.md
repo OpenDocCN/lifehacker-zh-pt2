@@ -1,11 +1,63 @@
 # 在你不得不处理财务紧急情况之前，做一个紧急预算
 
-> 原文：<https://lifehacker.com/make-an-emergency-budget-before-you-have-to-deal-with-a-1835071390>
+> 原文:[https://life hacker . com/make-an-emergency-budget-before-you-have-to-deal-a-1835071390](https://lifehacker.com/make-an-emergency-budget-before-you-have-to-deal-with-a-1835071390)
 
 阅读本网站的每个人都听说过一两件关于拥有 [应急基金](https://twocents.lifehacker.com/how-big-your-emergency-fund-should-be-1825319181) 的重要性的事情。但是当这种紧急情况出现时，你如何明智地使用这笔钱呢？
 
-
+Watch
 
 艾琳·洛瑞 [破千年](https://brokemillennial.com/) 最近在推特上问:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1131955843329679363&amp;autosize=1" autoresize="true" id="twitter-1131955843329679363" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">一些紧急费用相当于一次性的不便:一个漏气的轮胎，一颗脱落的牙齿。但是如果紧急情况会在你的生活中持续很长时间，是时候考虑你的末日预算了。<br/></p><p class="sc-77igqf-0 bOfvBY">这样做可以帮助你在紧张的时候进入自动驾驶状态。你可以打开 B 计划或 C 计划或 D 计划，简单地按照你自己留下的指示去做，而不是去考虑如何扩展你的资金来应对紧急时期。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">如果你以前从未考虑过重大的假设，以下是如何考虑它们，而不会出现让你在地板上喘息的全面恐慌发作(不保证，这里只是谨慎乐观)。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><h2 class="sc-1bwb26k-1 kpbNNd" id="h292370">不要等待紧急情况出现</h2><p class="sc-77igqf-0 bOfvBY">如果你一个月都在愉快地数着领工资的次数而不担心，那么停止这样做，开始考虑最坏的情况。如果你失业了会怎么样？如果你的伴侣失业了？如果你突然不得不支付自己的保险，或者有持续的医疗费用？如果汽车报废了，保险公司开出的支票比预期的要少？如果你的搭档掉进了洞里？</p><p class="sc-77igqf-0 bOfvBY">很抱歉成为那样的人，但如果你处于上述情况之一，你最不想做的事情就是说“亲爱的，既然你在可预见的未来被困在院子里的污水坑里，我们应该在哪里削减预算？”</p><p class="sc-77igqf-0 bOfvBY">现在就做，以避免以后的疯狂争夺。一旦你处于需要紧急预算的情况下，你将需要调整，但是你将从你的准备中知道足够多的东西来相对轻松地前进。</p><h2 class="sc-1bwb26k-1 kpbNNd" id="h292371">复制一份你当前的预算</h2><p class="sc-77igqf-0 bOfvBY">如果是电子表格，复制一份。如果你把这些都储存在一个应用程序里，把它写下来(数字的或模拟的，你自己选择)。这是你可以玩数字游戏的地方，看看你的应急基金能维持多久，如果你需要它让你漂浮一段时间的话。</p><p class="sc-77igqf-0 bOfvBY">如果你想玩多个场景，你可以无限复制你的预算，然后开始削减。但也许先从一个替代版本开始。</p><h2 class="sc-1bwb26k-1 kpbNNd" id="h292372">浏览你的订阅</h2><p class="sc-77igqf-0 bOfvBY">哪些容易取消？或许你可以暂停支付 Hulu/网飞/HBO/Spotify/Pandora/Audm/等的月费。给你一点额外的钱帮你度过难关。</p><p class="sc-77igqf-0 bOfvBY">我不主张花半天时间和你的互联网/有线电视/手机公司或健身房打电话，如果这会是一个巨大的麻烦。如果你知道如何调整你的服务，或者你没有陷入一份糟糕的合同，你可能会考虑在财务不幸的情况下取消这些服务。</p><h2 class="sc-1bwb26k-1 kpbNNd" id="h292373">回顾你的“有趣的东西”</h2><p class="sc-77igqf-0 bOfvBY">如果你的预算中有外出就餐、礼物、慈善或购买服装的项目，看看如果你把这些项目削减到零会发生什么。你可能仍然会时不时地买些外卖或礼物，但是大幅减少这些日常用品会在困难时期有所不同。</p><h2 class="sc-1bwb26k-1 kpbNNd" id="h292374">将债务支付减少到最低限度</h2><p class="sc-77igqf-0 bOfvBY">汽车、房子和学生贷款账单仍然需要支付，但是如果你已经支付了额外的费用，你可以暂时停止你的积极行动。</p><h2 class="sc-1bwb26k-1 kpbNNd" id="h292375">评估你的储蓄习惯</h2><p class="sc-77igqf-0 bOfvBY">如果你在储蓄或经纪账户中设置了自动转账，你可以关闭这些功能来获得额外的现金。</p><p class="sc-77igqf-0 bOfvBY">如果你有<span></span>的定期缴款进入退休账户，你可以停止这些，尽管我个人会建议这是最后的手段。今天压力很大的你应该感谢未来压力很大的你。</p><h2 class="sc-1bwb26k-1 kpbNNd" id="h292376">每次更新你的常规预算时，回顾一下你的末日预算</h2><p class="sc-77igqf-0 bOfvBY">一旦你对预算进行了细分，你就可以用你的应急基金金额除以你的月支出，来了解这笔钱能维持多久。</p><p class="sc-77igqf-0 bOfvBY">在你短暂的闲暇时间里，这是最没意思的活动，但请让我第一个告诉你这是值得你花时间去做的。当我今年春天被解雇时，我做的第一件事就是打开我的预算电子表格，复印一份，然后开始埋头苦干。当我知道我可以在找工作的时候漂浮几个月，这让我感到安心，但如果我完全不必立即考虑它，并且可以让自己在沙发上看 HGTV 发呆几个小时(几天)，那就更好了。</p><p class="sc-77igqf-0 bOfvBY">压力大的情况下并不是突然调整整个预算的最佳时机。在紧急情况发生之前做这件事。</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><br/> <em>更多来自 Lifehacker，一定要在 Instagram 上关注我们</em><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.instagram.com/lifehackerdotcom/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.instagram.com/lifehackerdotcom/" target="_blank" rel="noopener noreferrer"><em>@ lifehackerdotcom</em></a></span><em>。</em></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1131955843329679363&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1131955843329679363&autosize=1) 
+
+一些紧急费用相当于一次性的不便:一个漏气的轮胎，一颗脱落的牙齿。但是如果紧急情况会在你的生活中持续很长时间，是时候考虑你的末日预算了。
+
+这样做可以帮助你在紧张的时候进入自动驾驶状态。你可以打开 B 计划或 C 计划或 D 计划，简单地按照你自己留下的指示去做，而不是去考虑如何扩展你的资金来应对紧急时期。
+
+如果你以前从未考虑过重大的假设，以下是如何考虑它们，而不会出现让你在地板上喘息的全面恐慌发作(不保证，这里只是谨慎乐观)。
+
+## 不要等待紧急情况出现
+
+如果你一个月都在愉快地数着领工资的次数而不担心，那么停止这样做，开始考虑最坏的情况。如果你失业了会怎么样？如果你的伴侣失业了？如果你突然不得不支付自己的保险，或者有持续的医疗费用？如果汽车报废了，保险公司开出的支票比预期的要少？如果你的搭档掉进了洞里？
+
+很抱歉成为那样的人，但如果你处于上述情况之一，你最不想做的事情就是说“亲爱的，既然你在可预见的未来被困在院子里的污水坑里，我们应该在哪里削减预算？”
+
+现在就做，以避免以后的疯狂争夺。一旦你处于需要紧急预算的情况下，你将需要调整，但是你将从你的准备中知道足够多的东西来相对轻松地前进。
+
+## 复制一份你当前的预算
+
+如果是电子表格，复制一份。如果你把这些都储存在一个应用程序里，把它写下来(数字的或模拟的，你自己选择)。这是你可以玩数字游戏的地方，看看你的应急基金能维持多久，如果你需要它让你漂浮一段时间的话。
+
+如果你想玩多个场景，你可以无限复制你的预算，然后开始削减。但也许先从一个替代版本开始。
+
+## 浏览你的订阅
+
+哪些容易取消？或许你可以暂停支付 Hulu/网飞/HBO/Spotify/Pandora/Audm/等的月费。给你一点额外的钱帮你度过难关。
+
+我不主张花半天时间和你的互联网/有线电视/手机公司或健身房打电话，如果这会是一个巨大的麻烦。如果你知道如何调整你的服务，或者你没有陷入一份糟糕的合同，你可能会考虑在财务不幸的情况下取消这些服务。
+
+## 回顾你的“有趣的东西”
+
+如果你的预算中有外出就餐、礼物、慈善或购买服装的项目，看看如果你把这些项目削减到零会发生什么。你可能仍然会时不时地买些外卖或礼物，但是大幅减少这些日常用品会在困难时期有所不同。
+
+## 将债务支付减少到最低限度
+
+汽车、房子和学生贷款账单仍然需要支付，但是如果你已经支付了额外的费用，你可以暂时停止你的积极行动。
+
+## 评估你的储蓄习惯
+
+如果你在储蓄或经纪账户中设置了自动转账，你可以关闭这些功能来获得额外的现金。
+
+如果你有的定期缴款进入退休账户，你可以停止这些，尽管我个人会建议这是最后的手段。今天压力很大的你应该感谢未来压力很大的你。
+
+## 每次更新你的常规预算时，回顾一下你的末日预算
+
+一旦你对预算进行了细分，你就可以用你的应急基金金额除以你的月支出，来了解这笔钱能维持多久。
+
+在你短暂的闲暇时间里，这是最没意思的活动，但请让我第一个告诉你这是值得你花时间去做的。当我今年春天被解雇时，我做的第一件事就是打开我的预算电子表格，复印一份，然后开始埋头苦干。当我知道我可以在找工作的时候漂浮几个月，这让我感到安心，但如果我完全不必立即考虑它，并且可以让自己在沙发上看 HGTV 发呆几个小时(几天)，那就更好了。
+
+压力大的情况下并不是突然调整整个预算的最佳时机。在紧急情况发生之前做这件事。
+
+* * *
+
+*更多来自 Lifehacker，一定要在 Instagram 上关注我们*[*@ lifehackerdotcom*](https://www.instagram.com/lifehackerdotcom/)*。*

@@ -1,10 +1,10 @@
 # 这就是为什么我们不用火药来驱动汽车
 
-> 原文：<https://jalopnik.com/heres-why-we-dont-use-gunpowder-to-power-cars-1836730539>
+> 原文:[https://jalopnik . com/heres-why-we-don-use-powder-to-power-cars-1836730539](https://jalopnik.com/heres-why-we-dont-use-gunpowder-to-power-cars-1836730539)
 
 我 100%确定你们都在某个时候考虑过这个想法。枪支利用大爆炸来快速射出子弹，那么我们为什么不利用高速子弹背后的可怕力量来让汽车跑得和高速子弹一样快呢？科学，我的朋友们。科学是答案。
 
-
+Watch
 
 根据能量不能创造也不能消灭的科学原理，汽车必须将别处的能量转化为使其运动的动能。如今大多数汽车从石油产品中获取能量，越来越多的汽车从纯电力中获取能量。我们将在这里讨论石油。
 
@@ -26,4 +26,8 @@
 
 为了了解实际情况，我们来看看 1991 年左右的英国。
 
-<iframe data-src="https://jalopnik.com/embed/inset/iframe?id=youtube-video-iS_2JD5whRY&amp;start=0" data-chomp-id="iS_2JD5whRY" data-recommend-id="youtube://iS_2JD5whRY" id="youtube-iS_2JD5whRY" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="iS_2JD5whRY" data-recommend-id="youtube://iS_2JD5whRY" id="youtube-iS_2JD5whRY" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">机器的秘密生活将火药倒入一个迫击炮筒，然后试着用它发射一个啤酒罐。可悲的是，啤酒罐很快就掉了出来。但是当他们试图发射一个装有汽油的啤酒罐时？<!-- -->嗯，那东西真的动了。</p><p class="sc-77igqf-0 bOfvBY">你的车也是。</p> </body> </html></iframe>
+ [https://jalopnik.com/embed/inset/iframe?id=youtube-video-iS_2JD5whRY&start=0](https://jalopnik.com/embed/inset/iframe?id=youtube-video-iS_2JD5whRY&start=0) 
+
+机器的秘密生活将火药倒入一个迫击炮筒，然后试着用它发射一个啤酒罐。可悲的是，啤酒罐很快就掉了出来。但是当他们试图发射一个装有汽油的啤酒罐时？嗯，那东西真的动了。
+
+你的车也是。

@@ -1,10 +1,10 @@
 # 我们最后的初学者指南
 
-> 原文：<https://kotaku.com/a-beginners-guide-to-the-last-of-us-1844067596>
+> 原文:[https://kotaku . com/a-初学者指南-最后的我们-1844067596](https://kotaku.com/a-beginners-guide-to-the-last-of-us-1844067596)
 
 七年前的那个星期，顽皮狗发布了第三人称生存动作游戏《我们最后一个人》。它征服了粉丝和评论家，并在两个版本中售出了 2000 万份，巩固了它在伟大的电子游戏中的地位。现在续集即将上映:顽皮狗将于周五发布备受期待的续集《我们中的最后一个:第二部》。
 
-
+Watch
 
 《最后的我们:第二部》是第一部的直接延续。如果你没有玩过第一个游戏，你会很容易学会其中的技巧，但是，就故事而言，你会完全迷失。很多场景都有借鉴意义；有些是直接回调。人物和剧情事件参考了第一局发生的事情。可能你玩第一个已经七年了吧。可能你根本没碰过。与其玩或重玩 15 个小时的游戏，或者看六个小时的“电影版” [到](https://kotaku.com/the-last-of-us-turned-into-a-six-hour-movie-514181539#!) ，你需要知道的是。
 
@@ -87,4 +87,50 @@
 
 言语也没有做到最后几分钟的公正。你应该看看:
 
-<iframe data-src="https://kotaku.com/embed/inset/iframe?id=youtube-video-RZ0KvsIGzC8&amp;start=0" data-chomp-id="RZ0KvsIGzC8" data-recommend-id="youtube://RZ0KvsIGzC8" id="youtube-RZ0KvsIGzC8" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="RZ0KvsIGzC8" data-recommend-id="youtube://RZ0KvsIGzC8" id="youtube-RZ0KvsIGzC8" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">如果还不清楚，让我明白地说出来:乔尔会用这个世界换埃莉——真的。一颗金子般的心？也许吧。一个彻头彻尾的混蛋举动？绝对是。</p><h2 class="sc-1bwb26k-1 kpbNNd" id="h286162">哇哦。顽皮狗有没有用资料片来解决问题？</h2><p class="sc-77igqf-0 bOfvBY">2014 年，顽皮狗发布了<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 eRdxJX js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://kotaku.com/the-last-of-us-left-behind-the-kotaku-review-1521786675&quot;,{&quot;metric25&quot;:1}]]" href="https://kotaku.com/the-last-of-us-left-behind-the-kotaku-review-1521786675"> <em>我们最后的人:留下</em> </a> </span>，一个简短的独立资料片。(对于 PS4 玩家来说，它被收录在 2014 年的<em>最后的我们:重制。</em> ) <em>在两条情节线之间留下</em>切口。现代部分发生在乔尔严重受伤后不久。艾莉在一个废弃的购物中心寻找医疗用品，躲避(或杀死)食人族并一直被感染。气氛紧张，但对更大的故事来说并不十分重要。</p><p class="sc-77igqf-0 bOfvBY">所有的好东西都是通过倒叙来讲述的。<em>留下</em>的主要情节发生在<em>我们最后一个</em>开始的三周前。艾莉和她的老朋友<strong>莱利</strong>(她在结尾的演讲中提到的同一个)前往一个废弃的购物中心，因为象征。在那里，他们像普通青少年一样玩耍——跳舞、骑旋转木马、用水枪互相射击。艾莉恳求莱利不要带着萤火虫离开。他们接吻。</p><p class="sc-77igqf-0 bOfvBY">这是一个可爱的时刻，直到感染完全破坏它。在接下来的搏斗中，艾莉和莱利都被咬了。一旦脱离了直接伤害的方式，他们坐下来谈论接受死亡，赖利一拳打在 的肚子上:</p><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 jorAJZ"><p class="sc-77igqf-0 bOfvBY">“在今天之前，我们有一百万种死法，在明天之前，我们也有一百万种死法。但是我们为了能和彼此共度的每一秒钟而战斗。不管是两分钟还是两天，我们都不会放弃。我不想放弃。我的意见是:让我们静观其变。你知道，我们可以……充满诗意，一起失去理智。”</p></blockquote><p class="sc-77igqf-0 bOfvBY">莱利转身。如你所知，艾莉没有。</p><h2 class="sc-1bwb26k-1 kpbNNd" id="h286163">你是说这个游戏很有趣？</h2><p class="sc-77igqf-0 bOfvBY">我没有。任何通情达理的人都不会告诉你那件事。甚至在他对游戏<em>的<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 eRdxJX js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://kotaku.com/the-last-of-us-the-kotaku-review-511292998&quot;,{&quot;metric25&quot;:1}]]" href="https://kotaku.com/the-last-of-us-the-kotaku-review-511292998">的评论中，Kotaku </a></span></em>的 Kirk Hamilton 不厌其烦地将<em>我们最后的</em>描述为“不是一个‘有趣’的游戏。”柯克是正确的:这个游戏无论如何都不“有趣”——但是非常棒。</p><p class="sc-77igqf-0 bOfvBY">坦率地说，<em>我们中的最后一个</em>是第三人称射击游戏，尽管它可能是最近记忆中压力更大的第三人称射击游戏之一。你不会自动跳到封面上。你会死于几次撞击。安全港几秒钟后你的健康不会恢复。就生命值而言，你并不比你的对手更强。</p><p class="sc-77igqf-0 bOfvBY">你也不怎么开枪。事实上，我们最后一个人的弹药非常匮乏，以至于你的弹夹里通常只有一颗子弹。干掉人类敌人更像是一场偷偷摸摸和计划的游戏，而不是奔跑和射击(就像你在某个顽皮狗系列中所做的那样)。偷偷溜到他们身后，掐死他们，用砖头或 2×4 的棍子打他们——无论你需要做什么来占上风。</p><p class="sc-77igqf-0 bOfvBY">对抗感染者比对抗人类需要更谨慎的策略。乔尔和埃莉显然不是超级英雄，尽管他们都被赋予了一种超能力:上帝般的听力。没有隐身或者超人的力量那么爽，但是保命。<br/></p><p class="sc-77igqf-0 bOfvBY">在<em>我们最后一个</em>中，你可以进入<strong>“聆听模式”，</strong>在这种模式下，你蹲下来，可以辨认出附近敌人的形状和位置。正确部署它，你就能看穿墙壁。倾听模式对于抗击感染者至关重要，尤其是响片，除非它们产生噪音，否则无法定位人。</p><h2 class="sc-1bwb26k-1 kpbNNd" id="h286164">我想你告诉我这些是因为这对续集很重要。</h2><p class="sc-77igqf-0 bOfvBY">正确。我们中的最后一个:第二部没有重新发明轮子，因为它没有必要。续集的玩法大同小异，只是做了一些小改动，你可以边玩边学。在接下来的几天里，我们将会有更多关于如何掌握游戏性的内容。</p><h2 class="sc-1bwb26k-1 kpbNNd" id="h286165">酷毙了。在潜入续集之前，我还应该知道些什么？</h2><p class="sc-77igqf-0 bOfvBY">大多数幸存的主要演员——乔尔、埃莉、汤米和玛丽亚——都出现在第二部中。在《T2:我们最后的 T3》结束四年后，续集在杰克森开拍。除此之外，我真的不能分享太多而不破坏事情，但我知道你在一个非常不同的游戏中。</p><p class="sc-77igqf-0 bOfvBY">《我们最后一个人》是一个关于勇气、毅力和面对维加斯级别的困难生存的故事。但最重要的是，这是一个关于爱情的故事。与此同时，续集与此相去甚远。正如创意总监尼尔·德鲁克曼<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 eRdxJX js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://kotaku.com/the-last-of-us-2-will-be-a-game-about-hate-1789662506&quot;,{&quot;metric25&quot;:1}]]" href="https://kotaku.com/the-last-of-us-2-will-be-a-game-about-hate-1789662506">在 2016 年</a> </span>，<em>我们最后的人:第二部分</em>所透露的，是一款“关于仇恨”的游戏为一个音调不同的叙述做好准备。</p><p class="sc-77igqf-0 bOfvBY">在开始之前，你不需要用任何预告片来麻烦自己。如果你纯粹是为了寻找游戏性，观看索尼 5 月 27 日“游戏状态”活动的冗长预告 。</p><p class="sc-77igqf-0 bOfvBY">你也可以阅读广泛的评论。是的，<em>我们中的最后一个:Part 2 </em>目前正坐在<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 eRdxJX js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.metacritic.com/game/playstation-4/the-last-of-us-part-ii&quot;,{&quot;metric25&quot;:1}]]" href="https://www.metacritic.com/game/playstation-4/the-last-of-us-part-ii" target="_blank" rel="noopener noreferrer"> Metacritic </a> </span>的一个 96 上。但是如果你是<em> Kotaku </em> regular，<span>T9】你知道 </span> <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 eRdxJX js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://kotaku.com/amazon-adding-metacritic-scores-is-bad-news-for-everyon-1556940107&quot;,{&quot;metric25&quot;:1}]]" href="https://kotaku.com/amazon-adding-metacritic-scores-is-bad-news-for-everyon-1556940107">那是一个</a> </span> <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 eRdxJX js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://kotaku.com/a-look-at-metacritics-many-problems-1684984944&quot;,{&quot;metric25&quot;:1}]]" href="https://kotaku.com/a-look-at-metacritics-many-problems-1684984944">很大程度上</a> </span> <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 eRdxJX js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://kotaku.com/the-case-of-the-flawed-metacritic-study-463147686&quot;,{&quot;metric25&quot;:1}]]" href="https://kotaku.com/the-case-of-the-flawed-metacritic-study-463147686">无足轻重</a> </span> <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 eRdxJX js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://kotaku.com/warren-spector-sure-wishes-metacritic-was-less-relevant-507574004&quot;,{&quot;metric25&quot;:1}]]" href="https://kotaku.com/warren-spector-sure-wishes-metacritic-was-less-relevant-507574004">点</a> </span>。一个原始的数字没有人们的个人观点重要。第二部这款游戏可能比今年的任何一款游戏都不能用一个简单的数字来概括。</p><p class="sc-77igqf-0 bOfvBY">特别是，我会(惊喜！)喜欢把你引向<span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 eRdxJX js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://kotaku.com/the-last-of-us-part-ii-the-kotaku-review-1844006193&quot;,{&quot;metric25&quot;:1}]]" href="https://kotaku.com/the-last-of-us-part-ii-the-kotaku-review-1844006193"><em>筝乐</em>复习</a> </span>。像许多其他人一样，我很喜欢第二部。我们的评论家赖利并不是一个真正的粉丝——我们很快就会在页面上讨论这个问题。</p><h2 class="sc-1bwb26k-1 kpbNNd" id="h286166">太棒了。我想我准备好了。</h2><p class="sc-77igqf-0 bOfvBY">好吧，再多的准备也不能让你真正为第二部做好准备，但是，嘿，还是玩得开心点！</p> </body> </html></iframe>
+ [https://kotaku.com/embed/inset/iframe?id=youtube-video-RZ0KvsIGzC8&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-RZ0KvsIGzC8&start=0) 
+
+如果还不清楚，让我明白地说出来:乔尔会用这个世界换埃莉——真的。一颗金子般的心？也许吧。一个彻头彻尾的混蛋举动？绝对是。
+
+## 哇哦。顽皮狗有没有用资料片来解决问题？
+
+2014 年，顽皮狗发布了 [*我们最后的人:留下*](https://kotaku.com/the-last-of-us-left-behind-the-kotaku-review-1521786675) ，一个简短的独立资料片。(对于 PS4 玩家来说，它被收录在 2014 年的*最后的我们:重制。* ) *在两条情节线之间留下*切口。现代部分发生在乔尔严重受伤后不久。艾莉在一个废弃的购物中心寻找医疗用品，躲避(或杀死)食人族并一直被感染。气氛紧张，但对更大的故事来说并不十分重要。
+
+所有的好东西都是通过倒叙来讲述的。*留下*的主要情节发生在*我们最后一个*开始的三周前。艾莉和她的老朋友**莱利**(她在结尾的演讲中提到的同一个)前往一个废弃的购物中心，因为象征。在那里，他们像普通青少年一样玩耍——跳舞、骑旋转木马、用水枪互相射击。艾莉恳求莱利不要带着萤火虫离开。他们接吻。
+
+这是一个可爱的时刻，直到感染完全破坏它。在接下来的搏斗中，艾莉和莱利都被咬了。一旦脱离了直接伤害的方式，他们坐下来谈论接受死亡，赖利一拳打在 的肚子上:
+
+> “在今天之前，我们有一百万种死法，在明天之前，我们也有一百万种死法。但是我们为了能和彼此共度的每一秒钟而战斗。不管是两分钟还是两天，我们都不会放弃。我不想放弃。我的意见是:让我们静观其变。你知道，我们可以……充满诗意，一起失去理智。”
+
+莱利转身。如你所知，艾莉没有。
+
+## 你是说这个游戏很有趣？
+
+我没有。任何通情达理的人都不会告诉你那件事。甚至在他对游戏*的 [的评论中，Kotaku](https://kotaku.com/the-last-of-us-the-kotaku-review-511292998)* 的 Kirk Hamilton 不厌其烦地将*我们最后的*描述为“不是一个‘有趣’的游戏。”柯克是正确的:这个游戏无论如何都不“有趣”——但是非常棒。
+
+坦率地说，*我们中的最后一个*是第三人称射击游戏，尽管它可能是最近记忆中压力更大的第三人称射击游戏之一。你不会自动跳到封面上。你会死于几次撞击。安全港几秒钟后你的健康不会恢复。就生命值而言，你并不比你的对手更强。
+
+你也不怎么开枪。事实上，我们最后一个人的弹药非常匮乏，以至于你的弹夹里通常只有一颗子弹。干掉人类敌人更像是一场偷偷摸摸和计划的游戏，而不是奔跑和射击(就像你在某个顽皮狗系列中所做的那样)。偷偷溜到他们身后，掐死他们，用砖头或 2×4 的棍子打他们——无论你需要做什么来占上风。
+
+对抗感染者比对抗人类需要更谨慎的策略。乔尔和埃莉显然不是超级英雄，尽管他们都被赋予了一种超能力:上帝般的听力。没有隐身或者超人的力量那么爽，但是保命。
+
+在*我们最后一个*中，你可以进入**“聆听模式”，**在这种模式下，你蹲下来，可以辨认出附近敌人的形状和位置。正确部署它，你就能看穿墙壁。倾听模式对于抗击感染者至关重要，尤其是响片，除非它们产生噪音，否则无法定位人。
+
+## 我想你告诉我这些是因为这对续集很重要。
+
+正确。我们中的最后一个:第二部没有重新发明轮子，因为它没有必要。续集的玩法大同小异，只是做了一些小改动，你可以边玩边学。在接下来的几天里，我们将会有更多关于如何掌握游戏性的内容。
+
+## 酷毙了。在潜入续集之前，我还应该知道些什么？
+
+大多数幸存的主要演员——乔尔、埃莉、汤米和玛丽亚——都出现在第二部中。在《T2:我们最后的 T3》结束四年后，续集在杰克森开拍。除此之外，我真的不能分享太多而不破坏事情，但我知道你在一个非常不同的游戏中。
+
+《我们最后一个人》是一个关于勇气、毅力和面对维加斯级别的困难生存的故事。但最重要的是，这是一个关于爱情的故事。与此同时，续集与此相去甚远。正如创意总监尼尔·德鲁克曼 [在 2016 年](https://kotaku.com/the-last-of-us-2-will-be-a-game-about-hate-1789662506) ，*我们最后的人:第二部分*所透露的，是一款“关于仇恨”的游戏为一个音调不同的叙述做好准备。
+
+在开始之前，你不需要用任何预告片来麻烦自己。如果你纯粹是为了寻找游戏性，观看索尼 5 月 27 日“游戏状态”活动的冗长预告 。
+
+你也可以阅读广泛的评论。是的，*我们中的最后一个:Part 2* 目前正坐在 [Metacritic](https://www.metacritic.com/game/playstation-4/the-last-of-us-part-ii) 的一个 96 上。但是如果你是 *Kotaku* regular，T9】你知道 [那是一个](https://kotaku.com/amazon-adding-metacritic-scores-is-bad-news-for-everyon-1556940107) [很大程度上](https://kotaku.com/a-look-at-metacritics-many-problems-1684984944) [无足轻重](https://kotaku.com/the-case-of-the-flawed-metacritic-study-463147686) [点](https://kotaku.com/warren-spector-sure-wishes-metacritic-was-less-relevant-507574004) 。一个原始的数字没有人们的个人观点重要。第二部这款游戏可能比今年的任何一款游戏都不能用一个简单的数字来概括。
+
+特别是，我会(惊喜！)喜欢把你引向[*筝乐*复习](https://kotaku.com/the-last-of-us-part-ii-the-kotaku-review-1844006193) 。像许多其他人一样，我很喜欢第二部。我们的评论家赖利并不是一个真正的粉丝——我们很快就会在页面上讨论这个问题。
+
+## 太棒了。我想我准备好了。
+
+好吧，再多的准备也不能让你真正为第二部做好准备，但是，嘿，还是玩得开心点！

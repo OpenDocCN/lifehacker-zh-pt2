@@ -1,10 +1,10 @@
 # 当你在人群中自私时，每个人都讨厌你
 
-> 原文：<https://lifehacker.com/everyone-hates-you-when-youre-selfish-in-a-crowd-1838263711>
+> 原文:[https://life hacker . com/every one-hate-you-when-you-自私的人群-1838263711](https://lifehacker.com/everyone-hates-you-when-youre-selfish-in-a-crowd-1838263711)
 
 Reddit 肯定知道这是混蛋周。昨晚，r/AskReddit 上的第一个帖子问道， [“我们都同意的‘鸡巴举动’是什么？”](https://old.reddit.com/r/AskReddit/comments/d6dfbb/what_is_something_we_can_all_agree_on_being_a/) 由数千名 Reddit 用户同意的最佳答案，分享了一个主题:最普遍的迪克举动是在人群中自私。尤其是在那些*都想去某个地方*的人群中变得自私。例如:
 
-
+Watch
 
 *   插队
 *   将舱门挤出飞机
@@ -31,4 +31,4 @@ Redditors 一致认为他们*讨厌*这种狗屎。他们喜欢看到有人喊�
 
 该死的好吧，这是相当苛刻的，让我们都来听一首关于成为一个混球，由真正知道的人写的好歌。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-mqpwDJpI3Rc&amp;start=0" data-chomp-id="mqpwDJpI3Rc" data-recommend-id="youtube://mqpwDJpI3Rc" id="youtube-mqpwDJpI3Rc" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="mqpwDJpI3Rc" data-recommend-id="youtube://mqpwDJpI3Rc" id="youtube-mqpwDJpI3Rc" data-recommended="false" class="js_recommend"/></span></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-mqpwDJpI3Rc&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-mqpwDJpI3Rc&start=0)

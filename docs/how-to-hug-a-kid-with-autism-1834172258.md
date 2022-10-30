@@ -1,7 +1,15 @@
 # 如何“拥抱”患有自闭症的孩子
 
-> 原文：<https://lifehacker.com/how-to-hug-a-kid-with-autism-1834172258>
+> 原文:[https://life hacker . com/how-to-hug a-kid-with-autism-1834172258](https://lifehacker.com/how-to-hug-a-kid-with-autism-1834172258)
 
 这是自闭症意识月，为了纪念它，芝麻街向我们展示了如何更好地支持儿童。他们发布了几部新的短片，主角是该节目中第一个患有自闭症的角色朱莉娅。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-2yTIB3VAhQA&amp;start=0" data-chomp-id="2yTIB3VAhQA" data-recommend-id="youtube://2yTIB3VAhQA" id="youtube-2yTIB3VAhQA" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="2yTIB3VAhQA" data-recommend-id="youtube://2yTIB3VAhQA" id="youtube-2yTIB3VAhQA" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">在上面的视频中，朱莉娅和她神经典型的哥哥塞缪尔教艾比一种新的拥抱，因为朱莉娅不喜欢拥抱。一些自闭症患者对触摸有很强的敏感性，所以拥抱会让他们不知所措。朱莉娅更喜欢“海星拥抱”——你和另一个人都举起一只手，像海星一样张开手指，一起触摸指尖。</p><div class="bxm4mm-2 hKBnez"><div class="bxm4mm-1 goloRq instream-native-video instream-permalink instream-native-video--mobile"><div class="sc-1h0epat-0 lepUzz"><div class="sc-1h0epat-1 gRjwiT"><div class="sc-235a11-0 egwski">Watch</div></div><div class="sc-1wkneyl-0 hxLRyg video-html5-playlist" data-playlist="192590,192585,192428" data-current="192590"><div class="video-html5-loaded"><div class="video-html5-player"><div class="lhhce6-0 bVyOPq video-html5 autoplay muted mobile" data-video-id="192590" data-position="sidebar" data-video-title="How to Make a Quick and Easy Crumb Crust" data-video-network="lifehacker" data-video-duration="135"></div></div></div></div></div></div></div><p class="sc-77igqf-0 bOfvBY">对于有自闭症或感官问题的孩子，你可以建议一个海星式的拥抱，或者创造自己的“拥抱”一个鸡抱？(手肘碰在一起，像鸡一样拍打。)一个乌龟拥抱？(你们每人用拳头做一个“龟壳”，然后把龟壳搓在一起。)最好的办法是简单地问孩子他对什么感到舒服(或者问家长，如果他不能用语言表达他的偏好)。</p><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><p class="sc-77igqf-0 bOfvBY">根据芝麻街的倡议，在美国，68 名儿童中有 1 名被诊断患有自闭症(ASD)，该倡议名为<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://autism.sesamestreet.org/&quot;,{&quot;metric25&quot;:1}]]" href="https://autism.sesamestreet.org/" target="_blank" rel="noopener noreferrer">《芝麻街与自闭症:在所有儿童中看到惊人</a> </span>。该网站称:“虽然自闭症患者和同龄人之间确实存在显著差异，但所有孩子都想要同样的东西:感到安全、快乐和被爱。”</p><div id="mgid-container" data-placement="4" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-2yTIB3VAhQA&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-2yTIB3VAhQA&start=0) 
+
+在上面的视频中，朱莉娅和她神经典型的哥哥塞缪尔教艾比一种新的拥抱，因为朱莉娅不喜欢拥抱。一些自闭症患者对触摸有很强的敏感性，所以拥抱会让他们不知所措。朱莉娅更喜欢“海星拥抱”——你和另一个人都举起一只手，像海星一样张开手指，一起触摸指尖。
+
+Watch
+
+对于有自闭症或感官问题的孩子，你可以建议一个海星式的拥抱，或者创造自己的“拥抱”一个鸡抱？(手肘碰在一起，像鸡一样拍打。)一个乌龟拥抱？(你们每人用拳头做一个“龟壳”，然后把龟壳搓在一起。)最好的办法是简单地问孩子他对什么感到舒服(或者问家长，如果他不能用语言表达他的偏好)。
+
+根据芝麻街的倡议，在美国，68 名儿童中有 1 名被诊断患有自闭症(ASD)，该倡议名为 [《芝麻街与自闭症:在所有儿童中看到惊人](https://autism.sesamestreet.org/) 。该网站称:“虽然自闭症患者和同龄人之间确实存在显著差异，但所有孩子都想要同样的东西:感到安全、快乐和被爱。”

@@ -1,7 +1,22 @@
 # 在中途停留期间，步行穿过整个机场进行锻炼
 
-> 原文：<https://lifehacker.com/exercise-by-walking-the-whole-airport-during-your-layov-1834649511>
+> 原文:[https://life hacker . com/exercise-by-walking-the-all-airport-in-your-layov-1834649511](https://lifehacker.com/exercise-by-walking-the-whole-airport-during-your-layov-1834649511)
 
 机场很大(至少在大城市)，这通常是我们讨厌它们的地方。行李认领处离有多远？？但是如果你有时间消磨，可以考虑利用机场的巨大优势。走完全程，给自己计时。
 
-Watch<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1126548382980497409&amp;autosize=1" autoresize="true" id="twitter-1126548382980497409" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">这就是睡眠专家克里斯·温特最近在 所做的事情，他以轻快的 15:44 的速度在一个多小时内穿越了整个费城机场。他通过 DM 告诉我们，他在其他机场也这样做，甚至挑战其他人打破他的时间:</p><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1123363207048044544&amp;autosize=1" autoresize="true" id="twitter-1123363207048044544" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><p class="sc-77igqf-0 bOfvBY">温特博士说，他开始在机场散步只是为了适应日常生活。“因为我经常出差，有段时间我唯一的锻炼机会就是中途停留，”他说。然后他发现生成的地图(如果你使用健身追踪器的话)看起来非常棒。如果你想试试他的挑战方式，温特博士建议以下规则:</p><ol data-type="List" data-style="Number" class="sc-1lmbno3-1 sizyJ"><li>不要跑。其他机场旅客或工作人员不应该知道你在这么做。微妙。</li><li>必须在同一个地方开始和结束。这是一个循环，不是一端到另一端。</li><li>包是附带的。没有储物柜废话。</li><li>没有班车，但机动人行道是绝对允许的(尽管拥挤时会适得其反)。</li></ol><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">关于机动人行道的规则似乎已经成熟，但他说，它们“就像马里奥赛车中的一些动力项目。”</p><p class="sc-77igqf-0 bOfvBY">无论你是在机场快步走，还是只是低调地散散步，步行听起来都是一种很好的锻炼方式，可以在你等待航班起飞的时候消除无聊。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>
+Watch [https://lifehacker.com/embed/inset/iframe?id=twitter-1126548382980497409&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1126548382980497409&autosize=1) 
+
+这就是睡眠专家克里斯·温特最近在 所做的事情，他以轻快的 15:44 的速度在一个多小时内穿越了整个费城机场。他通过 DM 告诉我们，他在其他机场也这样做，甚至挑战其他人打破他的时间:
+
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1123363207048044544&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1123363207048044544&autosize=1) 
+
+温特博士说，他开始在机场散步只是为了适应日常生活。“因为我经常出差，有段时间我唯一的锻炼机会就是中途停留，”他说。然后他发现生成的地图(如果你使用健身追踪器的话)看起来非常棒。如果你想试试他的挑战方式，温特博士建议以下规则:
+
+1.  不要跑。其他机场旅客或工作人员不应该知道你在这么做。微妙。
+2.  必须在同一个地方开始和结束。这是一个循环，不是一端到另一端。
+3.  包是附带的。没有储物柜废话。
+4.  没有班车，但机动人行道是绝对允许的(尽管拥挤时会适得其反)。
+
+关于机动人行道的规则似乎已经成熟，但他说，它们“就像马里奥赛车中的一些动力项目。”
+
+无论你是在机场快步走，还是只是低调地散散步，步行听起来都是一种很好的锻炼方式，可以在你等待航班起飞的时候消除无聊。

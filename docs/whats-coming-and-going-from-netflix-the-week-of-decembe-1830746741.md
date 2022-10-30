@@ -1,7 +1,74 @@
 # 2018 年 12 月 3 日这一周，网飞有哪些活动
 
-> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-decembe-1830746741>
+> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of decembe-1830746741](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-decembe-1830746741)
 
 对于那些对安东尼·拉帕格利亚看不够的人来说，他们可能已经报名参加了圣丹斯的免费试播，也可能没有，只是为了看他在一部鲜为人知、鲜为人知的连续剧《里维埃拉》中的表现，本周带来了好消息。周五，LaPaglia 将回到小荧幕上，在《T2:恶血》(Bad Blood)和《T3》中饰演一名蒙特利尔黑帮老大，台词是“外交的时间已经结束了”和“我们要照顾我们的朋友”...只要你还是我的朋友”两句话都是极其严肃的。如果你喜欢有人被棒球棒打成肉酱的黑手党戏剧，欢迎回家。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-94J4qbWFZgc&amp;start=0" data-chomp-id="94J4qbWFZgc" data-recommend-id="youtube://94J4qbWFZgc" id="youtube-94J4qbWFZgc" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="94J4qbWFZgc" data-recommend-id="youtube://94J4qbWFZgc" id="youtube-94J4qbWFZgc" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">本周你的另一部热门影片是<em>Dumplin</em>(周五)，由詹妮弗·安妮斯顿主演，她饰演一位前选美皇后，她的女儿参加了一场选美比赛，“以证明自己符合标准并适合比赛。”听到瑞秋·格林带着德克萨斯口音，我担心这部电影会像《T2》中的《嫌隙》中的意大利裔加拿大人一样，是对南方人的讽刺。但扮演她女儿的女演员丹妮尔·麦克唐纳获得了一些好评，所以我持谨慎乐观的态度。</p><div class="bxm4mm-2 hKBnez"><div class="bxm4mm-1 goloRq instream-native-video instream-permalink instream-native-video--mobile"><div class="sc-1h0epat-0 lepUzz"><div class="sc-1h0epat-1 gRjwiT"><div class="sc-235a11-0 egwski">Watch</div></div><div class="sc-1wkneyl-0 hxLRyg video-html5-playlist" data-playlist="192590,192585,192428" data-current="192590"><div class="video-html5-loaded"><div class="video-html5-player"><div class="lhhce6-0 bVyOPq video-html5 autoplay muted mobile" data-video-id="192590" data-position="sidebar" data-video-title="How to Make a Quick and Easy Crumb Crust" data-video-network="lifehacker" data-video-duration="135"></div></div></div></div></div></div></div><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><h3 class="sc-1bwb26k-1 kpbNNd" id="h17915">本周到达</h3><p class="sc-77igqf-0 bOfvBY">网飞原创有链接到他们的预告片和观看页面。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h17916"><strong>12 月 3 日星期一</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>蓝色星球 II:第一季</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80199831&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80199831" target="_blank" rel="noopener noreferrer"> <em>英雄面具</em> </a> </span> <em>(表演)</em> <br/></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81029884&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81029884" target="_blank" rel="noopener noreferrer"> <em>《你的心声》:重启第二季</em> </a> </span> <em>(秀)</em> <br/></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h17917"><strong>12 月 4 日星期二</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>第九区</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h17918"><strong>12 月 6 日星期四</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>开心！:第一季</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h17919"><strong>12 月 7 日星期五</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/81016408&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/81016408" target="_blank" rel="noopener noreferrer"> <em> 5 星圣诞节</em> </a> </span> <em>(电影)</em></li><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80235940&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80235940" target="_blank" rel="noopener noreferrer"><em/></a></span><em>(表演)</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80189277&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80189277" target="_blank" rel="noopener noreferrer"> <em>【柏林之犬】</em> </a> </span> <em>(表演)</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80201490&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80201490" target="_blank" rel="noopener noreferrer"> <em>【杜普林】</em> </a> </span> <em>(电影)</em> <br/></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/81001412&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/81001412" target="_blank" rel="noopener noreferrer"> <em>自由发挥:圣诞十二嘶声</em> </a> </span> <em>(表演)</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80993105&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80993105" target="_blank" rel="noopener noreferrer"> <em>无忌:丛林传说</em> </a> </span> <em>(电影)</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/81019895&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/81019895" target="_blank" rel="noopener noreferrer"> <em>一针见血！假期！</em> </a> </span> <em>(展示)</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80237237&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80237237" target="_blank" rel="noopener noreferrer"> <em>新横尾:粉红圣诞</em> </a> </span> <em>(秀)</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80195199&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80195199" target="_blank" rel="noopener noreferrer"> <em>松隙</em> </a> </span> <em>(显示)</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80191044&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80191044" target="_blank" rel="noopener noreferrer"> <em>重制版:谁杀了果酱大师杰伦？</em> </a> </span> <em>(展示)</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80999067&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80999067" target="_blank" rel="noopener noreferrer"> <em>超级怪物和许愿星</em> </a> </span> <em>(表演)</em> <br/></li><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/81003741&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/81003741" target="_blank" rel="noopener noreferrer"><em/></a></span><em>(展示)</em> <br/></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80190087&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80190087" target="_blank" rel="noopener noreferrer"> <em>【勾搭计划】(计划核心)</em> </a> </span> <em>(展示)</em> <br/></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80198099&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80198099" target="_blank" rel="noopener noreferrer"> <em>《牧场》:第六部</em> </a> </span> <em>(展示)</em> <br/></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h17920"><strong>12 月 9 日星期日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>没有乳房是有天堂的:第 3 季</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h17921">这周离开</h3><h4 class="sc-1bwb26k-1 kpbNNd" id="h17922"><strong>离开 12 月 4 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>空气芽:第七局接回</em> <br/></li><li><em>空气芽:尖刺背</em> <br/></li><li><em>空气芽:世界幼犬</em> <br/></li><li><em>空中密友</em> <br/></li><li>汽车卡通:脱线的荒诞故事 <br/></li><li><em>群魔乱舞的哥们</em> <br/></li><li><em>泰山&amp;简</em>T2】</li><li>勇敢的小烤面包机去火星 <br/></li><li><em>勇敢的小烤面包机来营救</em> <br/></li><li><em>绯红之翼:火烈鸟之谜</em> <br/></li><li><em>寻找圣诞老人的爪子</em> <br/></li><li><em>小叮当</em> <br/></li><li><em>小叮当与大仙相救</em> <br/></li><li><em>小叮当和失落的宝藏</em> <br/></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h17923"><strong>12 月 7 日出发</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>巨魔</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h17924"><br/></h4><div id="mgid-container" data-placement="3" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-94J4qbWFZgc&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-94J4qbWFZgc&start=0) 
+
+本周你的另一部热门影片是*Dumplin*(周五)，由詹妮弗·安妮斯顿主演，她饰演一位前选美皇后，她的女儿参加了一场选美比赛，“以证明自己符合标准并适合比赛。”听到瑞秋·格林带着德克萨斯口音，我担心这部电影会像《T2》中的《嫌隙》中的意大利裔加拿大人一样，是对南方人的讽刺。但扮演她女儿的女演员丹妮尔·麦克唐纳获得了一些好评，所以我持谨慎乐观的态度。
+
+Watch
+
+### 本周到达
+
+网飞原创有链接到他们的预告片和观看页面。
+
+#### **12 月 3 日星期一**
+
+*   *蓝色星球 II:第一季*
+*   [*英雄面具*](http://www.netflix.com/title/80199831) *(表演)*
+
+*   [*《你的心声》:重启第二季*](https://www.netflix.com/title/81029884) *(秀)*
+
+#### **12 月 4 日星期二**
+
+*   *第九区*
+
+#### **12 月 6 日星期四**
+
+*   *开心！:第一季*
+
+#### **12 月 7 日星期五**
+
+*   [*5 星圣诞节*](http://www.netflix.com/title/81016408) *(电影)*
+*   [](http://www.netflix.com/title/80235940)**(表演)**
+*   *[*【柏林之犬】*](http://www.netflix.com/title/80189277) *(表演)**
+*   *[*【杜普林】*](http://www.netflix.com/title/80201490) *(电影)** 
+*   *[*自由发挥:圣诞十二嘶声*](http://www.netflix.com/title/81001412) *(表演)**
+*   *[*无忌:丛林传说*](http://www.netflix.com/title/80993105) *(电影)**
+*   *[*一针见血！假期！*](http://www.netflix.com/title/81019895) *(展示)**
+*   *[*新横尾:粉红圣诞*](http://www.netflix.com/title/80237237) *(秀)**
+*   *[*松隙*](http://www.netflix.com/title/80195199) *(显示)**
+*   *[*重制版:谁杀了果酱大师杰伦？*](http://www.netflix.com/title/80191044) *(展示)**
+*   *[*超级怪物和许愿星*](http://www.netflix.com/title/80999067) *(表演)** 
+*   *[](http://www.netflix.com/title/81003741)**(展示)*** 
+*   **[*【勾搭计划】(计划核心)*](http://www.netflix.com/title/80190087) *(展示)*** 
+*   **[*《牧场》:第六部*](http://www.netflix.com/title/80198099) *(展示)*** 
+
+#### ****12 月 9 日星期日****
+
+*   ***没有乳房是有天堂的:第 3 季***
+
+### **这周离开**
+
+#### ****离开 12 月 4 日****
+
+*   ***空气芽:第七局接回*** 
+*   ***空气芽:尖刺背*** 
+*   ***空气芽:世界幼犬*** 
+*   ***空中密友*** 
+*   **汽车卡通:脱线的荒诞故事** 
+*   ***群魔乱舞的哥们*** 
+*   ***泰山&简*T2】**
+*   **勇敢的小烤面包机去火星** 
+*   ***勇敢的小烤面包机来营救*** 
+*   ***绯红之翼:火烈鸟之谜*** 
+*   ***寻找圣诞老人的爪子*** 
+*   ***小叮当*** 
+*   ***小叮当与大仙相救*** 
+*   ***小叮当和失落的宝藏*** 
+
+#### ****12 月 7 日出发****
+
+*   ***巨魔***

@@ -1,10 +1,10 @@
 # 通过参与互助项目来实现社会变革
 
-> 原文：<https://lifehacker.com/enact-social-change-by-contributing-to-a-mutual-aid-pro-1836664170>
+> 原文:[https://life hacker . com/enact-social-change-by-contributing-to-a-mutual-aid-pro-1836664170](https://lifehacker.com/enact-social-change-by-contributing-to-a-mutual-aid-pro-1836664170)
 
 过去三年最令人沮丧的事情之一，也是我们半开玩笑地称之为“当前政治气候”的事情是，无论打多少电话给我们的代表，向美国公民自由联盟捐款，或者与脸书的远亲争论，似乎都不会有任何影响。道德在我们周围崩溃，人们在受苦，感觉唯一能做的就是抱怨没有人做任何事情。
 
-
+Watch
 
 (这并不是说你不应该仍然称你的国会议员为 。你应该。一定要打电话。仅仅是电话和社交媒体上的咆哮永远不会让我觉得自己像 T4。)
 
@@ -18,4 +18,32 @@
 
 迪安·斯派德和西罗·卡里略 的这段视频很好地解释了什么是互助，什么不是互助*。*
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-PopmGAvsggg&amp;start=0" data-chomp-id="PopmGAvsggg" data-recommend-id="youtube://PopmGAvsggg" id="youtube-PopmGAvsggg" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="PopmGAvsggg" data-recommend-id="youtube://PopmGAvsggg" id="youtube-PopmGAvsggg" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">简单地说，他们说:</p><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">这项工作的信息是，政府是性交，我们不能依靠它。你并不孤单。系统是问题，而不是被它针对的人。我们将把事情掌握在自己手中，并帮助彼此生存，而不是期待来自那些有着明显伤害历史的系统的帮助。</p></blockquote><h3 class="sc-1bwb26k-1 kpbNNd" id="h181977">一些互助的例子</h3><p class="sc-77igqf-0 bOfvBY">参与互助项目的人们为刚从监狱释放的人提供乘车、衣物和其他帮助。他们把食物、水和补给品放在沙漠里，那里的人们经常在试图穿越边境时死去。互助是任何东西，从食品项目和临时住房项目，到儿童保育集体和社区保释基金，帮助那些付不起保释金的人。</p><p class="sc-77igqf-0 bOfvBY">少数知名的互助组织有<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://foodnotbombs.net/new_site/index.php&quot;,{&quot;metric25&quot;:1}]]" href="http://foodnotbombs.net/new_site/index.php" target="_blank" rel="noopener noreferrer"> <strong>粮食不炸弹</strong> </a> </span>，它创建于上世纪 80 年代，旨在回收丢弃的食物并进行分发，以此作为抗议战争和贫困的一种方式；<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://mutualaiddisasterrelief.org/&quot;,{&quot;metric25&quot;:1}]]" href="https://mutualaiddisasterrelief.org/" target="_blank" rel="noopener noreferrer"> <strong>互助救灾</strong> </a> </span>，支持灾难幸存者互相提供资源；以及<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://forms.nomoredeaths.org/en/&quot;,{&quot;metric25&quot;:1}]]" href="http://forms.nomoredeaths.org/en/" target="_blank" rel="noopener noreferrer"> <strong>【不再有死亡】</strong> </a> </span>，旨在终结美墨边境移民死亡事件。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h181978">如何开始</h3><p class="sc-77igqf-0 bOfvBY">大门大队 为那些想开始互助项目但不熟悉动员的人提供了大量资源。他们的“<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://bigdoorbrigade.com/mutual-aid-toolbox/&quot;,{&quot;metric25&quot;:1}]]" href="http://bigdoorbrigade.com/mutual-aid-toolbox/" target="_blank" rel="noopener noreferrer">”互助工具箱</a> </span>”包含各种资源，包括网络研讨会、培训机会、文章，以及做类似工作的组织的链接。主题包括:</p><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://bigdoorbrigade.com/mutual-aid-toolbox/bystander-interventiontransformative-justicealternatives-to-police-responses-to-harm/&quot;,{&quot;metric25&quot;:1}]]" href="http://bigdoorbrigade.com/mutual-aid-toolbox/bystander-interventiontransformative-justicealternatives-to-police-responses-to-harm/" target="_blank" rel="noopener noreferrer">旁观者干预</a> </span></li><li><span></span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://bigdoorbrigade.com/mutual-aid-toolbox/health/&quot;,{&quot;metric25&quot;:1}]]" href="http://bigdoorbrigade.com/mutual-aid-toolbox/health/" target="_blank" rel="noopener noreferrer">医疗</a> </span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://bigdoorbrigade.com/mutual-aid-toolbox/immigration/&quot;,{&quot;metric25&quot;:1}]]" href="http://bigdoorbrigade.com/mutual-aid-toolbox/immigration/" target="_blank" rel="noopener noreferrer">移民</a> </span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://bigdoorbrigade.com/legal-support/&quot;,{&quot;metric25&quot;:1}]]" href="http://bigdoorbrigade.com/legal-support/" target="_blank" rel="noopener noreferrer">法律支持</a> </span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://bigdoorbrigade.com/mutual-aid-toolbox/prisoner-support/&quot;,{&quot;metric25&quot;:1}]]" href="http://bigdoorbrigade.com/mutual-aid-toolbox/prisoner-support/" target="_blank" rel="noopener noreferrer">囚犯支援</a> </span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://bigdoorbrigade.com/mutual-aid-toolbox/sex-trades-support/&quot;,{&quot;metric25&quot;:1}]]" href="http://bigdoorbrigade.com/mutual-aid-toolbox/sex-trades-support/" target="_blank" rel="noopener noreferrer">性交易支持</a> </span></li></ul><p class="sc-77igqf-0 bOfvBY">你现在有武器了；上前给予援助。</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><small> <em>更多来自 Lifehacker，一定要在 Instagram 上关注我们</em></small><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.instagram.com/lifehackerdotcom/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.instagram.com/lifehackerdotcom/" target="_blank" rel="noopener noreferrer"><small><em>@ lifehackerdotcom</em></small></a></span><small><em>。</em> </small> <br/></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-PopmGAvsggg&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-PopmGAvsggg&start=0) 
+
+简单地说，他们说:
+
+> 这项工作的信息是，政府是性交，我们不能依靠它。你并不孤单。系统是问题，而不是被它针对的人。我们将把事情掌握在自己手中，并帮助彼此生存，而不是期待来自那些有着明显伤害历史的系统的帮助。
+
+### 一些互助的例子
+
+参与互助项目的人们为刚从监狱释放的人提供乘车、衣物和其他帮助。他们把食物、水和补给品放在沙漠里，那里的人们经常在试图穿越边境时死去。互助是任何东西，从食品项目和临时住房项目，到儿童保育集体和社区保释基金，帮助那些付不起保释金的人。
+
+少数知名的互助组织有 [**粮食不炸弹**](http://foodnotbombs.net/new_site/index.php) ，它创建于上世纪 80 年代，旨在回收丢弃的食物并进行分发，以此作为抗议战争和贫困的一种方式； [**互助救灾**](https://mutualaiddisasterrelief.org/) ，支持灾难幸存者互相提供资源；以及 [**【不再有死亡】**](http://forms.nomoredeaths.org/en/) ，旨在终结美墨边境移民死亡事件。
+
+### 如何开始
+
+大门大队 为那些想开始互助项目但不熟悉动员的人提供了大量资源。他们的“ [”互助工具箱](http://bigdoorbrigade.com/mutual-aid-toolbox/) ”包含各种资源，包括网络研讨会、培训机会、文章，以及做类似工作的组织的链接。主题包括:
+
+*   [旁观者干预](http://bigdoorbrigade.com/mutual-aid-toolbox/bystander-interventiontransformative-justicealternatives-to-police-responses-to-harm/)
+
+*   [医疗](http://bigdoorbrigade.com/mutual-aid-toolbox/health/)
+*   [移民](http://bigdoorbrigade.com/mutual-aid-toolbox/immigration/)
+*   [法律支持](http://bigdoorbrigade.com/legal-support/)
+*   [囚犯支援](http://bigdoorbrigade.com/mutual-aid-toolbox/prisoner-support/)
+*   [性交易支持](http://bigdoorbrigade.com/mutual-aid-toolbox/sex-trades-support/)
+
+你现在有武器了；上前给予援助。
+
+* * *
+
+<small>*更多来自 Lifehacker，一定要在 Instagram 上关注我们*</small>[<small>*@ lifehackerdotcom*</small>](https://www.instagram.com/lifehackerdotcom/)<small>*。*</small>

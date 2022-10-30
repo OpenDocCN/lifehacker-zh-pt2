@@ -1,10 +1,10 @@
 # 如何用襁褓包裹婴儿
 
-> 原文：<https://lifehacker.com/how-to-swaddle-a-baby-1843445056>
+> 原文:[https://lifehacker.com/how-to-swaddle-a-baby-1843445056](https://lifehacker.com/how-to-swaddle-a-baby-1843445056)
 
 一般来说，婴儿、睡眠和毯子是不可分割的。多年来，美国儿科学会 一直建议的婴儿仰卧在一个没有松散被褥或柔软物体的结实的床面上睡觉。这个没有毯子的规定有一个例外:他用襁褓包裹。
 
-
+Watch
 
 你见过完美的襁褓——看看上面那个小小的花生！它创造了一个可爱的小脑袋放在一个包装完美的婴儿大小的玉米煎饼上的效果。这看起来非常不舒服，然而，婴儿似乎非常满足于这样被包裹起来。这是因为被包裹在这样一个温暖的环境中，就像是在母亲的子宫里一样，这是一种安慰。
 
@@ -24,4 +24,12 @@
 
 好了，现在是西奈山育儿中心的视频时间:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-pJCQf2Xxlrk&amp;start=0" data-chomp-id="pJCQf2Xxlrk" data-recommend-id="youtube://pJCQf2Xxlrk" id="youtube-pJCQf2Xxlrk" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="pJCQf2Xxlrk" data-recommend-id="youtube://pJCQf2Xxlrk" id="youtube-pJCQf2Xxlrk" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">为了确保襁褓不会太紧，你应该能够将两三个手指放在毯子和婴儿的胸部之间。襁褓后，观察过热的迹象，包括出汗、头发潮湿、脸颊发红、热疹和呼吸急促。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">襁褓并不适合所有的婴儿——有些人就是不喜欢。或者他们可能喜欢用襁褓裹住他们的躯干，但让他们的手臂自由活动。那也行！但是一旦你的宝宝表现出任何试图翻身的迹象(有时早在两个月大的时候)，你就应该停止襁褓，因为在襁褓中翻身会增加婴儿猝死综合症的风险。</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><small> <em>遇见地球上最聪明的父母！加入我们的</em> </small> <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.facebook.com/groups/2018785615043946/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.facebook.com/groups/2018785615043946/" target="_blank" rel="noopener noreferrer"> <small> <em>育儿脸书群</em> </small> </a> </span> <small> <em>。</em>T15】</small></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-pJCQf2Xxlrk&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-pJCQf2Xxlrk&start=0) 
+
+为了确保襁褓不会太紧，你应该能够将两三个手指放在毯子和婴儿的胸部之间。襁褓后，观察过热的迹象，包括出汗、头发潮湿、脸颊发红、热疹和呼吸急促。
+
+襁褓并不适合所有的婴儿——有些人就是不喜欢。或者他们可能喜欢用襁褓裹住他们的躯干，但让他们的手臂自由活动。那也行！但是一旦你的宝宝表现出任何试图翻身的迹象(有时早在两个月大的时候)，你就应该停止襁褓，因为在襁褓中翻身会增加婴儿猝死综合症的风险。
+
+* * *
+
+<small>*遇见地球上最聪明的父母！加入我们的*</small> [<small>*育儿脸书群*</small>](https://www.facebook.com/groups/2018785615043946/) <small>*。*T15】</small>

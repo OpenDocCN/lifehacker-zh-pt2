@@ -1,10 +1,10 @@
 # 2019 年 3 月网飞有什么来往
 
-> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-in-march-2019-1832754671>
+> 原文:[https://life hacker . com/whats-coming-and-going-from-Japan-in-March-2019-1832754671](https://lifehacker.com/whats-coming-and-going-from-netflix-in-march-2019-1832754671)
 
 这个三月的网飞，我们得到了*怀疑*，*笔记本*，*发条橙*，*阿波罗 13 号*，*卧虎藏龙*，还有原版*湿热的美国夏天*。原创节目和电影的名单很长，包括《发展受阻》第五季的后半部分。呼男孩。这里有新一季的粉丝吗？
 
-
+Watch
 
 但是原版电影《驾驭风的男孩》看起来很酷，动画选集《T2》《爱与死亡》《T8 机器人》《T3》也是如此。有一个新的卡通版本的*拖车公园男孩*。而*酷儿眼*第三季回归。
 
@@ -15,4 +15,267 @@
 *   [*强者黑引播客:强者黑传说*](https://na01.safelinks.protection.outlook.com/?url=http%3A%2F%2Fbit.ly%2FStrongBlackLeadApple&data=02%7C01%7CSarah.Vasquez%40edelman.com%7C805b42935d8440df594608d691d5c5a3%7Cb824bfb3918e43c2bb1cdcc1ba40a82b%7C0%7C0%7C636856744668227914&sdata=vRNz3dRIelhRyF3j5nilV4XYltsRUoYbGltxL11VcOc%3D&reserved=0)
 *   [*你不能编这个*](https://na01.safelinks.protection.outlook.com/?url=https%3A%2F%2Fitunes.apple.com%2Fus%2Fpodcast%2Fyou-cant-make-this-up%2Fid1375339408%3Fmt%3D2&data=02%7C01%7CSarah.Vasquez%40edelman.com%7C688ba33e77bf4d6aed6a08d68c6b5e33%7Cb824bfb3918e43c2bb1cdcc1ba40a82b%7C0%7C0%7C636850790172405699&sdata=iR1Bqc8HesFoWGTBjvIGY0zTxmtLHneLwkTSVn%2FvO%2BY%3D&reserved=0)
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-hadZIa-R3fw&amp;start=0" data-chomp-id="hadZIa-R3fw" data-recommend-id="youtube://hadZIa-R3fw" id="youtube-hadZIa-R3fw" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="hadZIa-R3fw" data-recommend-id="youtube://hadZIa-R3fw" id="youtube-hadZIa-R3fw" data-recommended="false" class="js_recommend"/></span></div><h2 class="sc-1bwb26k-1 kpbNNd" id="h17546"><strong>三月抵达</strong></h2><p class="sc-77igqf-0 bOfvBY">这是新节目、电影和喜剧特辑的完整列表。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h17547"><strong>3 月 1 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>发条橙</em></li><li><em>阿波罗 13 号</em> <br/></li><li><em>布达佩斯(法国)—网飞电影</em> <br/></li><li><em>板球热:孟买印度人——网飞原创</em>T2】</li><li><em>卧虎藏龙</em>T2】</li><li><em>拯救班克斯先生</em> <br/></li><li><em>艾玛</em> <br/></li><li><em>June bug</em>T2】</li><li><em>幼虫岛:第二季——网飞原著</em> <br/></li><li><em>失败者——网飞原创</em> <br/></li><li><em>音乐和歌词</em> <br/></li><li><em>尼克和诺拉的无限播放列表</em> <br/></li><li><em>北方救援—网飞原创</em> <br/></li><li><em>《江边》(JP)—网飞电影</em> <br/></li><li><em>司徒小</em> <br/></li><li><em>理发师陶德:舰队街的恶魔理发师</em> <br/></li><li><em>驾驭风的男孩——网飞电影</em> <br/></li><li><em>《拆弹部队》</em> <br/></li><li><em>笔记本</em> <br/></li><li><em>泰森</em></li><li><em>湿热的美国夏天</em></li><li><em>冬之骨</em> <br/></li><li><em>你的儿子(ES)—网飞电影</em> <br/></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h17548"><strong>3 月 2 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>浪漫是奖金本</em>(朝鲜)(每周六流媒体)<em> —网飞原创</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h17549"><strong>3 月 3 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>哈桑·米哈杰的《爱国者法案》:第二卷(每周日播放)<em> —网飞原著</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h17550"><strong>3 月 5 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>克里斯托弗·罗宾</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h17551"><strong>3 月 6 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>秘密城市:鹰之下:第二季——网飞原著</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h17552"><strong>3 月 7 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>怀疑</em></li><li><em>订单—网飞原件</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h17553"><strong>3 月 8 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>后半生——网飞原创</em> <br/></li><li>曼谷爱情故事:嘿，你！——网飞原创 <br/></li><li><em>曼谷爱情故事:天真无邪——网飞原创</em> <br/></li><li><em>蓝茉莉</em> <br/></li><li><em>方程式 1:生存的动力——网飞原创</em> <br/></li><li>猎人 X 猎人(2011):第 1-3 季 <br/></li><li><em>李先念——网飞原创</em> <br/></li><li><em>胡安妮塔——网飞电影</em> <br/></li><li><em>J 夫人(FR)——网飞电影</em> <br/></li><li><em>影子——网飞原创</em> <br/></li><li><em>间谍小子 2:梦幻岛</em>T2】</li><li><em>简·奥斯汀读书俱乐部</em> <br/></li><li><em>走路。骑马。竞技表演。—网飞电影</em> <br/></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h17554"><strong>3 月 12 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>吉米·卡尔:终极金曲精选之最——网飞原创</em></li><li><em>排屋:打开新的大门:第六部——网飞原作</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h17555"><strong>3 月 13 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>三重边疆——网飞电影</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h17556"><strong>3 月 15 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>一次别离</em> <br/></li><li><em>发展受阻:第五季 B—网飞原创</em> <br/></li><li><em>燃尽(FR)—网飞电影</em> <br/></li><li><em>干玛蒂娜(AR)—网飞电影</em> <br/></li><li><em>少女(BE)—网飞电影</em> <br/></li><li><em>如果我没有遇见你——网飞原创</em> <br/></li><li><em>功夫江湖</em> <br/></li><li><em>黑手党的手腕:第 2 季——原 Netflix</em><br/></li><li><em>爱情，死亡&amp;机器人——网飞原版</em>T2】</li><li><em>帕斯卡尔(我的)——网飞电影</em> <br/></li><li><em>酷儿眼:第三季——网飞原创</em> <br/></li><li><em>《机器人祖纳:第二季》——网飞原著</em> <br/></li><li><em>他人的生活</em> <br/></li><li><em>翻出查理—网飞原作</em> <br/></li><li><em>优优出手相救——网飞原创</em> <br/></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h17557"><strong>3 月 16 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>绿色之门——网飞原创</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h17558"><strong>3 月 19 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>艾米·舒默成长—网飞原创</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h17559"><strong>3 月 21 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>卡洛&amp;马利克—网飞原创</em>T2】</li><li><em>查理的彩色城市——网飞原创</em> <br/></li><li><em>德里犯罪—网飞原版</em>T2】</li><li><em>犯罪史:座谈会 netflix 原件</em> <br/></li><li><em>海市蜃楼——网飞电影</em> <br/></li><li><em>最美的东西——网飞原创</em> <br/></li><li><em>翻拍:迈阿密戏班大屠杀——网飞原版</em> <br/></li><li><em>卖夕阳—网飞原创</em> <br/></li><li><em>污垢——网飞电影</em> <br/></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h17560"><strong>3 月 26 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>内特·巴加茨:田纳西小子——网飞原著</li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h17561"><strong>3 月 28 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>爱诺丽爱之旅:亚洲之旅:第二季——网飞原创</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h17562">3 月 29 日</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>8 月 15 日(中)——网飞电影</em> <br/></li><li><em>巴约内塔(MX)—网飞电影</em> <br/></li><li><em>潜移默化——网飞原创</em> <br/></li><li><em>《圣克拉丽塔减肥法》:第三季——网飞原著</em> <br/></li><li><em>车匪路霸——网飞电影</em> <br/></li><li><em>可卡因岛的传说—网飞原创</em>T2】</li><li><em>汉奸——网飞原创</em>T2】</li><li><em>塔克和戴尔大战邪恶</em>T2】</li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h17563"><strong>3 月 30 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>如何逃脱谋杀:第五季</li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h17564"><strong>3 月 31 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>玛格丽塔的味道──原来的 Netflix</em><br/></li><li><em>科乔的葬礼</em> <br/></li><li><em>拖车公园男孩:动画系列——网飞原创</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h17565">3 月(日期不详)</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>《我的街区:第二季——网飞》原著</li></ul><h2 class="sc-1bwb26k-1 kpbNNd" id="h17566"><strong>最后一次通话</strong></h2><h4 class="sc-1bwb26k-1 kpbNNd" id="h17567"><strong>3 月 1 日出发</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>曼联 93</em>T2】</li><li><em>全能的布鲁斯</em> <br/></li><li><em>公平游戏——导演剪辑</em> <br/></li><li><em>捉鬼敢死队</em> <br/></li><li><em>捉鬼敢死队 2 </em> <br/></li><li><em>人质</em> <br/></li><li><em>珍珠港</em> <br/></li><li><em>早餐俱乐部</em> <br/></li><li><em>苹果酒屋规则</em> <br/></li><li><em>礼物</em> <br/></li><li><em>小痞子</em> <br/></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h17568"><strong>3 月 2 日出发</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>法律&amp;命令:特殊受害者单位:第十八年</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h17569"><strong>3 月 3 日出发</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>死亡女主角:第 1-6 季</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h17570"><strong>3 月 4 日出发</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>加勒比海盗:在世界的尽头</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h17571"><strong>3 月 5 日出发</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>新闻报道:百老汇音乐剧</li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h17572"><strong>3 月 8 日出发</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>点击</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h17573"><strong>3 月 16 日出发</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>宝贝妈妈</em> <br/></li><li><em>查理·圣·云</em> <br/></li><li><em>榜样</em> <br/></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h17574"><strong>3 月 18 日出发</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>美女与野兽</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h17575"><strong>3 月 31 日出发</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>五人组:第 1-6 季</em> <br/></li><li>真正的捉鬼敢死队:第 1-5 季</li></ul><div id="mgid-container" data-placement="4" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-hadZIa-R3fw&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-hadZIa-R3fw&start=0) 
+
+## **三月抵达**
+
+这是新节目、电影和喜剧特辑的完整列表。
+
+#### **3 月 1 日**
+
+*   *发条橙*
+*   *阿波罗 13 号*
+
+*   *布达佩斯(法国)—网飞电影*
+
+*   *板球热:孟买印度人——网飞原创*T2】
+*   *卧虎藏龙*T2】
+*   *拯救班克斯先生*
+
+*   *艾玛*
+
+*   *June bug*T2】
+*   *幼虫岛:第二季——网飞原著*
+
+*   *失败者——网飞原创*
+
+*   *音乐和歌词*
+
+*   *尼克和诺拉的无限播放列表*
+
+*   *北方救援—网飞原创*
+
+*   *《江边》(JP)—网飞电影*
+
+*   *司徒小*
+
+*   *理发师陶德:舰队街的恶魔理发师*
+
+*   *驾驭风的男孩——网飞电影*
+
+*   *《拆弹部队》*
+
+*   *笔记本*
+
+*   *泰森*
+*   *湿热的美国夏天*
+*   *冬之骨*
+
+*   *你的儿子(ES)—网飞电影*
+
+#### **3 月 2 日**
+
+*   *浪漫是奖金本*(朝鲜)(每周六流媒体) *—网飞原创*
+
+#### **3 月 3 日**
+
+*   哈桑·米哈杰的《爱国者法案》:第二卷(每周日播放) *—网飞原著*
+
+#### **3 月 5 日**
+
+*   *克里斯托弗·罗宾*
+
+#### **3 月 6 日**
+
+*   *秘密城市:鹰之下:第二季——网飞原著*
+
+#### **3 月 7 日**
+
+*   *怀疑*
+*   *订单—网飞原件*
+
+#### **3 月 8 日**
+
+*   *后半生——网飞原创*
+
+*   曼谷爱情故事:嘿，你！——网飞原创
+
+*   *曼谷爱情故事:天真无邪——网飞原创*
+
+*   *蓝茉莉*
+
+*   *方程式 1:生存的动力——网飞原创*
+
+*   猎人 X 猎人(2011):第 1-3 季
+
+*   *李先念——网飞原创*
+
+*   *胡安妮塔——网飞电影*
+
+*   *J 夫人(FR)——网飞电影*
+
+*   *影子——网飞原创*
+
+*   *间谍小子 2:梦幻岛*T2】
+*   *简·奥斯汀读书俱乐部*
+
+*   *走路。骑马。竞技表演。—网飞电影*
+
+#### **3 月 12 日**
+
+*   *吉米·卡尔:终极金曲精选之最——网飞原创*
+*   *排屋:打开新的大门:第六部——网飞原作*
+
+#### **3 月 13 日**
+
+*   *三重边疆——网飞电影*
+
+#### **3 月 15 日**
+
+*   *一次别离*
+
+*   *发展受阻:第五季 B—网飞原创*
+
+*   *燃尽(FR)—网飞电影*
+
+*   *干玛蒂娜(AR)—网飞电影*
+
+*   *少女(BE)—网飞电影*
+
+*   *如果我没有遇见你——网飞原创*
+
+*   *功夫江湖*
+
+*   *黑手党的手腕:第 2 季——原 Netflix*
+
+*   *爱情，死亡&机器人——网飞原版*T2】
+*   *帕斯卡尔(我的)——网飞电影*
+
+*   *酷儿眼:第三季——网飞原创*
+
+*   *《机器人祖纳:第二季》——网飞原著*
+
+*   *他人的生活*
+
+*   *翻出查理—网飞原作*
+
+*   *优优出手相救——网飞原创*
+
+#### **3 月 16 日**
+
+*   *绿色之门——网飞原创*
+
+#### **3 月 19 日**
+
+*   *艾米·舒默成长—网飞原创*
+
+#### **3 月 21 日**
+
+*   *卡洛&马利克—网飞原创*T2】
+*   *查理的彩色城市——网飞原创*
+
+*   *德里犯罪—网飞原版*T2】
+*   *犯罪史:座谈会 netflix 原件*
+
+*   *海市蜃楼——网飞电影*
+
+*   *最美的东西——网飞原创*
+
+*   *翻拍:迈阿密戏班大屠杀——网飞原版*
+
+*   *卖夕阳—网飞原创*
+
+*   *污垢——网飞电影*
+
+#### **3 月 26 日**
+
+*   内特·巴加茨:田纳西小子——网飞原著
+
+#### **3 月 28 日**
+
+*   *爱诺丽爱之旅:亚洲之旅:第二季——网飞原创*
+
+#### 3 月 29 日
+
+*   *8 月 15 日(中)——网飞电影*
+
+*   *巴约内塔(MX)—网飞电影*
+
+*   *潜移默化——网飞原创*
+
+*   *《圣克拉丽塔减肥法》:第三季——网飞原著*
+
+*   *车匪路霸——网飞电影*
+
+*   *可卡因岛的传说—网飞原创*T2】
+*   *汉奸——网飞原创*T2】
+*   *塔克和戴尔大战邪恶*T2】
+
+#### **3 月 30 日**
+
+*   如何逃脱谋杀:第五季
+
+#### **3 月 31 日**
+
+*   *玛格丽塔的味道──原来的 Netflix*
+
+*   *科乔的葬礼*
+
+*   *拖车公园男孩:动画系列——网飞原创*
+
+#### 3 月(日期不详)
+
+*   《我的街区:第二季——网飞》原著
+
+## **最后一次通话**
+
+#### **3 月 1 日出发**
+
+*   *曼联 93*T2】
+*   *全能的布鲁斯*
+
+*   *公平游戏——导演剪辑*
+
+*   *捉鬼敢死队*
+
+*   *捉鬼敢死队 2*
+
+*   *人质*
+
+*   *珍珠港*
+
+*   *早餐俱乐部*
+
+*   *苹果酒屋规则*
+
+*   *礼物*
+
+*   *小痞子*
+
+#### **3 月 2 日出发**
+
+*   *法律&命令:特殊受害者单位:第十八年*
+
+#### **3 月 3 日出发**
+
+*   *死亡女主角:第 1-6 季*
+
+#### **3 月 4 日出发**
+
+*   *加勒比海盗:在世界的尽头*
+
+#### **3 月 5 日出发**
+
+*   新闻报道:百老汇音乐剧
+
+#### **3 月 8 日出发**
+
+*   *点击*
+
+#### **3 月 16 日出发**
+
+*   *宝贝妈妈*
+
+*   *查理·圣·云*
+
+*   *榜样*
+
+#### **3 月 18 日出发**
+
+*   *美女与野兽*
+
+#### **3 月 31 日出发**
+
+*   *五人组:第 1-6 季*
+
+*   真正的捉鬼敢死队:第 1-5 季

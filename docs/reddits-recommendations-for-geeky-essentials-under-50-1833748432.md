@@ -1,10 +1,10 @@
 # Reddit 对 50 美元以下极客必需品的推荐
 
-> 原文：<https://lifehacker.com/reddits-recommendations-for-geeky-essentials-under-50-1833748432>
+> 原文:[https://life hacker . com/reddits-50 岁以下极客必备推荐-1833748432](https://lifehacker.com/reddits-recommendations-for-geeky-essentials-under-50-1833748432)
 
 每一个配得上( [塔可钟](https://skillet.lifehacker.com/make-taco-bell-salt-with-leftover-sauce-packets-1828393224) )盐的极客都有一堆他们离不开的科技装备。它不仅仅是一堆昂贵的东西:老派游戏机、一堆硬盘或一个被遗忘的旧智能手机抽屉。有很多必需品值得放在你的工具带、腰包或背包里——或者至少在少数几个关键时刻，当你需要一件特定的物品来完成一项技术任务时，手边要有。
 
-
+Watch
 
 我最近偶然发现了一个关于科技产品推荐的[*Reddit 主题*](https://www.reddit.com/r/AskReddit/comments/arj833/what_is_the_best_piece_of_tech_you_recommend_to/)*——更好的是，因为主题的焦点是你可以用不到 50 美元买到的令人惊叹的设备(在某些情况下，用不到 50 美元就能买到*方式*)。我浏览了每一个被投票通过的推荐，列出了一个值得你考虑的项目列表，并添加了一些我个人的推荐，但似乎没有得到任何 Reddit 的喜爱。*
 
@@ -120,4 +120,26 @@
 
 *一个什么？如果你对汽车没那么感兴趣，你可能不知道你的汽车——以及所有 1996 年以后生产的汽车——有车载诊断系统。这是“OBD”的部分。将一个插入您汽车的 OBD II 端口，就像这样:*
 
-*<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-45pLjXdkR1g&amp;start=0" data-chomp-id="45pLjXdkR1g" data-recommend-id="youtube://45pLjXdkR1g" id="youtube-45pLjXdkR1g" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="45pLjXdkR1g" data-recommend-id="youtube://45pLjXdkR1g" id="youtube-45pLjXdkR1g" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">然后，你可以使用智能手机应用程序来查看汽车的许多传感器试图告诉你什么。例如，你将能够获得更多关于为什么你的汽车的“检查引擎”灯突然亮起的信息，你甚至可能能够获得关于你的汽车在事故中的一系列细节(如果这些信息有助于表明你没有错，那么特别有用)。有线的 OBD II 设备可能比无线的便宜，但它们可能更多地用于诊断，而不是跟踪你的汽车状态——或者你去过哪里。</p><hr class="gcp5ez-1 egkUKA"/><h3 class="sc-1bwb26k-1 kpbNNd" id="h288421"><strong>杂七杂八的家居用品</strong></h3><h4 class="sc-1bwb26k-1 kpbNNd" id="h288422"><strong>浸入式搅拌机</strong></h4><p class="sc-77igqf-0 bOfvBY">是的，有很多价格略高于 50 美元的浸入式搅拌机。如果你是一个初出茅庐的厨师，只是需要一个快速简单的方法来将固体物质提炼成一种精细的糊状物——或者你所拥有的东西——那么得到一个你可以拿在手中绕着锅旋转的东西是一个很好的厨房升级。传统的搅拌机也可以工作，但它可能比你需要的火力要大一点，而且清理起来也不容易。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h288423"><strong>防水蓝牙音箱</strong></h4><p class="sc-77igqf-0 bOfvBY">如果你对智能扬声器不感兴趣，但你想要一个可以随身携带的东西，无论你在哪里工作都可以扑通一声放下——也就是说，比智能手机的扬声器音质更好的东西——考虑投资一个便携式(防水)蓝牙扬声器。</p><p class="sc-77igqf-0 bOfvBY">如果你打算带着你的扬声器去洗澡(或者去海滩)，防水部分是很棒的。如果你只是在做饭、叠衣服或户外工作时需要一些随身携带的东西，你可能会得到一个不防水的便携式扬声器，但你最好在这个交易中得到很大的好处。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h288424"><strong>一个家庭安全摄像头</strong></h4><p class="sc-77igqf-0 bOfvBY">你的家或公寓很可能永远不会被闯入，但你永远不知道。虽然一个家庭安全摄像头可能不足以阻止盗窃，但你可能会获得足够的证据来帮助警察抓住偷你东西的人。除此之外，还有很多其他拥有安全摄像头的好理由。也许你不信任你的室友(或者他们带过来的朋友)。也许你正在寻找为你的宠物在白天做的所有傻事创建 Instagram 视频。你可能只是想在度假的时候安心，一切都在它的完美位置——当然，你不在的时候没有任何东西会泄露。</p><p class="sc-77igqf-0 bOfvBY">找相机的时候，试着找一个至少能做到 1080p 分辨率的，白天<em>晚上</em>拍照的，可以连续录制到 SD 卡上的(而不是你可能要付费的云服务)。运动检测也是一个优势，如果你需要给你正在观看的任何东西一些指示(或者对你的宠物温和的责骂)，还可以通过摄像头对<em>说话。</em></p> </body> </html></iframe>*
+ *[https://lifehacker.com/embed/inset/iframe?id=youtube-video-45pLjXdkR1g&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-45pLjXdkR1g&start=0)* 
+
+*然后，你可以使用智能手机应用程序来查看汽车的许多传感器试图告诉你什么。例如，你将能够获得更多关于为什么你的汽车的“检查引擎”灯突然亮起的信息，你甚至可能能够获得关于你的汽车在事故中的一系列细节(如果这些信息有助于表明你没有错，那么特别有用)。有线的 OBD II 设备可能比无线的便宜，但它们可能更多地用于诊断，而不是跟踪你的汽车状态——或者你去过哪里。*
+
+* * *
+
+### ***杂七杂八的家居用品***
+
+#### ***浸入式搅拌机***
+
+*是的，有很多价格略高于 50 美元的浸入式搅拌机。如果你是一个初出茅庐的厨师，只是需要一个快速简单的方法来将固体物质提炼成一种精细的糊状物——或者你所拥有的东西——那么得到一个你可以拿在手中绕着锅旋转的东西是一个很好的厨房升级。传统的搅拌机也可以工作，但它可能比你需要的火力要大一点，而且清理起来也不容易。*
+
+#### ***防水蓝牙音箱***
+
+*如果你对智能扬声器不感兴趣，但你想要一个可以随身携带的东西，无论你在哪里工作都可以扑通一声放下——也就是说，比智能手机的扬声器音质更好的东西——考虑投资一个便携式(防水)蓝牙扬声器。*
+
+*如果你打算带着你的扬声器去洗澡(或者去海滩)，防水部分是很棒的。如果你只是在做饭、叠衣服或户外工作时需要一些随身携带的东西，你可能会得到一个不防水的便携式扬声器，但你最好在这个交易中得到很大的好处。*
+
+#### ***一个家庭安全摄像头***
+
+*你的家或公寓很可能永远不会被闯入，但你永远不知道。虽然一个家庭安全摄像头可能不足以阻止盗窃，但你可能会获得足够的证据来帮助警察抓住偷你东西的人。除此之外，还有很多其他拥有安全摄像头的好理由。也许你不信任你的室友(或者他们带过来的朋友)。也许你正在寻找为你的宠物在白天做的所有傻事创建 Instagram 视频。你可能只是想在度假的时候安心，一切都在它的完美位置——当然，你不在的时候没有任何东西会泄露。*
+
+*找相机的时候，试着找一个至少能做到 1080p 分辨率的，白天*晚上*拍照的，可以连续录制到 SD 卡上的(而不是你可能要付费的云服务)。运动检测也是一个优势，如果你需要给你正在观看的任何东西一些指示(或者对你的宠物温和的责骂)，还可以通过摄像头对*说话。**

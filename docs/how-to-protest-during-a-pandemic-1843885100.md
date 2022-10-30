@@ -1,10 +1,10 @@
 # 如何在疫情抗议
 
-> 原文：<https://lifehacker.com/how-to-protest-during-a-pandemic-1843885100>
+> 原文:[https://life hacker . com/how-to-抗议疫情-1843885100](https://lifehacker.com/how-to-protest-during-a-pandemic-1843885100)
 
 避免大型集会是过去几个月我们试图保持安全的一部分，但抗议活动与医院服务和(显然)外卖玛格丽塔酒有一些共同点:它们对我们作为一个社会的福祉至关重要。
 
-
+Watch
 
 我不能告诉你如何在疫情期间安全地抗议，因为流行病和抗议都有内在的风险。你已经知道的疫情的风险。抗议可能是危险的，不仅因为它们让你与其他人接触，还因为警察策略本身也是危险的。
 
@@ -46,4 +46,6 @@
 *   在室内逮捕和拘留抗议者增加了新冠肺炎病毒传播的风险
 *   催泪瓦斯，本周被警察广泛使用，根据军队研究， [可能导致呼吸道感染](https://twitter.com/bymikebaker/status/1268080646833860608?s=12)。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1268023940271820800&amp;autosize=1" autoresize="true" id="twitter-1268023940271820800" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">如果你担心抗议活动可能导致冠状病毒病例上升，解决这些抗议活动的<em>原因</em>——警察暴力——才是真正的解决方案。向你的民选官员施加压力，要求他们承担责任，解除警察部门的经费，并在<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.joincampaignzero.org/solutions&quot;,{&quot;metric25&quot;:1}]]" href="https://www.joincampaignzero.org/solutions" target="_blank" rel="noopener noreferrer">竞选零</a> </span>时阅读政策解决方案。哦，那么现在有什么更好的方式来要求改变呢？抗议。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1268023940271820800&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1268023940271820800&autosize=1) 
+
+如果你担心抗议活动可能导致冠状病毒病例上升，解决这些抗议活动的*原因*——警察暴力——才是真正的解决方案。向你的民选官员施加压力，要求他们承担责任，解除警察部门的经费，并在 [竞选零](https://www.joincampaignzero.org/solutions) 时阅读政策解决方案。哦，那么现在有什么更好的方式来要求改变呢？抗议。

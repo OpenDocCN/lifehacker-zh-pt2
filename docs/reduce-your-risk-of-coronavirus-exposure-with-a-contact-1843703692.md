@@ -1,7 +1,33 @@
 # 通过“接触预算”降低您接触冠状病毒的风险
 
-> 原文：<https://lifehacker.com/reduce-your-risk-of-coronavirus-exposure-with-a-contact-1843703692>
+> 原文:[https://life hacker . com/reduce-your-risk-of-a-contact-1843703692](https://lifehacker.com/reduce-your-risk-of-coronavirus-exposure-with-a-contact-1843703692)
 
 现在各州再次开放，许多人被要求回去工作，我们中的许多人被迫寻找新的风险和不确定性来源。考虑到这一点，流行病学家埃莉·默里(Ellie Murray)就如何考虑你的总体风险水平提出了一个建议:制定一个联系预算。
 
-Watch<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1264615815988613120&amp;autosize=1" autoresize="true" id="twitter-1264615815988613120" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">联系预算是一种从整体上考虑整体风险的方式，它考虑了你所有日常交往中的因素。就像我们为自己的财务做预算一样，我们可以以类似的方式考虑我们的日常互动和整体风险。</p><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><p class="sc-77igqf-0 bOfvBY">在一天结束时，当你想到你接触过的所有不同的人，在什么情况下，这些互动的总和是多少？有什么方法可以减少你的互动总数吗？</p><p class="sc-77igqf-0 bOfvBY">正如默里指出的，一个开始的方法是衡量你在禁闭期间接触的次数。这是你评估整体联系预算的基础。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1264644815662321665&amp;autosize=1" autoresize="true" id="twitter-1264644815662321665" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><p class="sc-77igqf-0 bOfvBY">对于我们中的许多人来说，我们没有选择是否可以继续在家工作。我们通过工作获得的日常互动水平会因我们的职业以及雇主制定的预防措施而异。如果你有自己的办公室，和认真洗手、戴口罩并保持 6 英尺距离的同事在一起，这种风险状况将与在杂货店或餐馆工作的人非常不同。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">如果你想知道你的职业在潜在风险方面的排名，纽约时报的一篇文章 评估了<!-- -->不同工作的总体风险，基于与他人的身体接近程度以及平均患病风险。牙医、护理人员、护士和乘务员都有与其职业相关的高风险水平，而伐木工、经济学家和天文学家的风险水平较低。如果你从事高风险职业，尝试减少其他可能的暴露源是个好主意。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h17814">找到减少整体暴露的方法</h3><p class="sc-77igqf-0 bOfvBY">当涉及到你生活的其他领域时，重要的是要想办法减少你可能暴露的机会，以一种有意义的并且适合你个人情况的方式。这意味着尽可能呆在家里，如果不能，减少可能的暴露。</p><p class="sc-77igqf-0 bOfvBY">在决定你的联系预算时，考虑你生活中的人以及他们能承受多大的风险也很重要。</p><p class="sc-77igqf-0 bOfvBY">“另一件要记住的事情是，在决定你自己的“联系预算”时，考虑你需要或想要联系的人&amp;他们能“承受”多大的风险也很重要，”默里说。“如果你希望能够安全地看到你年迈的祖母，那么你应该有一个较低的联系预算来确保她的安全。”</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h17815">“人、时间、空间和地点”</h3><p class="sc-77igqf-0 bOfvBY">当谈到减少你的联系预算时，可以考虑的一些最佳实践是限制你交往的人数，将时间保持在最低限度，尽可能在户外见面。这就是“人、时间、空间和地点”的概念发挥作用的地方。</p><p class="sc-77igqf-0 bOfvBY">将你的风险降低到零可能是不可能的，事实上各州重新开放意味着对一些人来说，将会有新的和不可避免的 T2 风险，但仍然值得寻找降低你整体风险的方法。联络预算会有所帮助。</p> </body> </html></iframe>
+Watch [https://lifehacker.com/embed/inset/iframe?id=twitter-1264615815988613120&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1264615815988613120&autosize=1) 
+
+联系预算是一种从整体上考虑整体风险的方式，它考虑了你所有日常交往中的因素。就像我们为自己的财务做预算一样，我们可以以类似的方式考虑我们的日常互动和整体风险。
+
+在一天结束时，当你想到你接触过的所有不同的人，在什么情况下，这些互动的总和是多少？有什么方法可以减少你的互动总数吗？
+
+正如默里指出的，一个开始的方法是衡量你在禁闭期间接触的次数。这是你评估整体联系预算的基础。
+
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1264644815662321665&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1264644815662321665&autosize=1) 
+
+对于我们中的许多人来说，我们没有选择是否可以继续在家工作。我们通过工作获得的日常互动水平会因我们的职业以及雇主制定的预防措施而异。如果你有自己的办公室，和认真洗手、戴口罩并保持 6 英尺距离的同事在一起，这种风险状况将与在杂货店或餐馆工作的人非常不同。
+
+如果你想知道你的职业在潜在风险方面的排名，纽约时报的一篇文章 评估了不同工作的总体风险，基于与他人的身体接近程度以及平均患病风险。牙医、护理人员、护士和乘务员都有与其职业相关的高风险水平，而伐木工、经济学家和天文学家的风险水平较低。如果你从事高风险职业，尝试减少其他可能的暴露源是个好主意。
+
+### 找到减少整体暴露的方法
+
+当涉及到你生活的其他领域时，重要的是要想办法减少你可能暴露的机会，以一种有意义的并且适合你个人情况的方式。这意味着尽可能呆在家里，如果不能，减少可能的暴露。
+
+在决定你的联系预算时，考虑你生活中的人以及他们能承受多大的风险也很重要。
+
+“另一件要记住的事情是，在决定你自己的“联系预算”时，考虑你需要或想要联系的人&他们能“承受”多大的风险也很重要，”默里说。“如果你希望能够安全地看到你年迈的祖母，那么你应该有一个较低的联系预算来确保她的安全。”
+
+### “人、时间、空间和地点”
+
+当谈到减少你的联系预算时，可以考虑的一些最佳实践是限制你交往的人数，将时间保持在最低限度，尽可能在户外见面。这就是“人、时间、空间和地点”的概念发挥作用的地方。
+
+将你的风险降低到零可能是不可能的，事实上各州重新开放意味着对一些人来说，将会有新的和不可避免的 T2 风险，但仍然值得寻找降低你整体风险的方法。联络预算会有所帮助。

@@ -1,9 +1,81 @@
 # 2020 年 8 月 30 日这一周，网飞将迎来什么
 
-> 原文：<https://lifehacker.com/whats-coming-to-netflix-the-week-of-august-30-2020-1844903435>
+> 原文:[https://life hacker . com/whats-coming-to-the-week of-August-2020-30-1844903435](https://lifehacker.com/whats-coming-to-netflix-the-week-of-august-30-2020-1844903435)
 
 你会离开家人三年去火星执行任务吗？通常情况下，这是一个简单的拒绝，但自从 3 月 11 日以来，我还没有一个人，所以前景听起来不错...有点吸引力。如果没有其他事情，我至少可以享受 9 月 4 日首播的新网飞剧集《远离城市》的体验。
 
 两次奥斯卡影后希拉里·斯万克首次亮相该电视剧，讲述了一个女人选择前往红色星球，将丈夫和十几岁的女儿留在地球上的故事。戏剧、悲剧、和许多含泪爱抚的面孔出现在电脑屏幕上，无论是在太空还是在地面。该剧来自创作者安德鲁·亨德拉克和制片人马特·里夫斯(*火星人*)和杰森·凯蒂姆斯(*周五之光*)，预告片承诺了你对这个场景和这些创作者的期望:*亲子关系*遇上*重力*。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-3f_REapPwio&amp;start=0" data-chomp-id="3f_REapPwio" data-recommend-id="youtube://3f_REapPwio" id="youtube-3f_REapPwio" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="3f_REapPwio" data-recommend-id="youtube://3f_REapPwio" id="youtube-3f_REapPwio" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">以下是本周进入和离开流媒体服务的所有内容，包括<em>我正在考虑结束事情</em>(9 月 4 日)，这是一部由编剧兼导演查理·考夫曼执导的真正迷幻的新电影(<em>《美丽心灵的永恒阳光》，提喻，纽约</em>)。</p><div class="bxm4mm-2 hKBnez"><div class="bxm4mm-1 goloRq instream-native-video instream-permalink instream-native-video--mobile"><div class="sc-1h0epat-0 lepUzz"><div class="sc-1h0epat-1 gRjwiT"><div class="sc-235a11-0 egwski">Watch</div></div><div class="sc-1wkneyl-0 hxLRyg video-html5-playlist" data-playlist="192590,192585,192428" data-current="192590"><div class="video-html5-loaded"><div class="video-html5-player"><div class="lhhce6-0 bVyOPq video-html5 autoplay muted mobile" data-video-id="192590" data-position="sidebar" data-video-title="How to Make a Quick and Easy Crumb Crust" data-video-network="lifehacker" data-video-duration="135"></div></div></div></div></div></div></div><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><h3 class="sc-1bwb26k-1 kpbNNd" id="h1001"><strong>8 月 31 日上市</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>皇家赌场</em></li><li><em>量子的慰藉</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h1002"><strong>9 月 1 日上市</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81303906&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81303906" target="_blank" rel="noopener noreferrer"> <em>书签:欢庆黑人之声</em> </a> </span> <em> </em> —网飞家族</li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81054409&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81054409" target="_blank" rel="noopener noreferrer"> <em>老板宝贝:得到那个宝贝！</em> </a> </span> <em> </em> —网飞家族</li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81307960&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81307960" target="_blank" rel="noopener noreferrer"> <em>:菲利佩·埃斯帕扎:糟糕的决定</em></a></span><em/>——网飞喜剧特辑</li><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81292345&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81292345" target="_blank" rel="noopener noreferrer"><em>/拉·帕蒂塔/赛</em></a></span><em/>—网飞电影</li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81035126&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81035126" target="_blank" rel="noopener noreferrer"> <em>真实:友谊日</em> </a> </span> <em> </em> —网飞家族</li><li><em>漂泊</em></li><li>蟒蛇</li><li><em>回到未来</em></li><li><em>回到未来第二部</em></li><li><em>回到未来第三部</em></li><li><em>理发店</em></li><li><em>芭比公主历险记</em></li><li>第一季到第三季</li><li><em>大海的孩子</em></li><li><em>锥头</em></li><li><em>荣耀</em></li><li><em>油脂</em></li><li><em>魔法麦克</em></li><li><em>提线木偶</em></li><li><em>布偶通缉令</em></li><li><em>不是另一部青少年电影</em></li><li><em>菠萝快车</em></li><li><em>占有</em></li><li><em>制片人</em> (2005 年)</li><li><em>承诺的梦幻岛:</em>第一季</li><li><em>穿靴子的猫</em></li><li><em>红龙</em></li><li><em>残留物</em></li><li><em>性冲动</em></li><li><em>妹子，妹子:</em>第 1-6 季</li><li><em>蓝精灵</em></li><li><em>野生动物</em></li><li>扎图拉</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h1003"><strong>9 月 2 日上市</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>坏男孩亿万富翁:印度 —网飞纪录片</li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81292974&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81292974" target="_blank" rel="noopener noreferrer"> <em>主厨桌:烧烤</em> </a> </span> <em> </em> —网飞纪实</li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81058434&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81058434" target="_blank" rel="noopener noreferrer"> <em>畸形人——你是我们中的一员</em></a></span>——网飞电影</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h1004"><strong>9 月 3 日上市</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81194685&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81194685" target="_blank" rel="noopener noreferrer"> <em>阿丰索·帕迪哈:阿尔玛·德·波布雷</em> </a> </span> <em> </em> —网飞喜剧特辑</li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://netflix.com/loveguaranteed&quot;,{&quot;metric25&quot;:1}]]" href="http://netflix.com/loveguaranteed" target="_blank" rel="noopener noreferrer"> <em>爱情，保底</em> </a> </span> <em> </em> —网飞电影</li><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81011098&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81011098" target="_blank" rel="noopener noreferrer"><em/></a></span>—网飞原创</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h1005"><strong>9 月 4 日上市</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80214512&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80214512" target="_blank" rel="noopener noreferrer"> <em>离去</em></a>T5】—网飞原创</span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80211559&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80211559" target="_blank" rel="noopener noreferrer"> <em>我在想结局的事情</em> </a> </span> <em> </em> —网飞电影</li><li><em>失落的 Okoroshi </em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81054417&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81054417" target="_blank" rel="noopener noreferrer"> <em>小马王:骑术学院:第二部</em> </a> </span> <em> </em> —网飞家族<br/></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h1006"><strong>离开 9 月 4 日</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>克里斯托弗·罗宾</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h1007"><strong>离开 9 月 5 日</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>从前:</em>第 1-7 季</li></ul><div id="mgid-container" data-placement="2" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-3f_REapPwio&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-3f_REapPwio&start=0) 
+
+以下是本周进入和离开流媒体服务的所有内容，包括*我正在考虑结束事情*(9 月 4 日)，这是一部由编剧兼导演查理·考夫曼执导的真正迷幻的新电影(*《美丽心灵的永恒阳光》，提喻，纽约*)。
+
+Watch
+
+### **8 月 31 日上市**
+
+*   *皇家赌场*
+*   *量子的慰藉*
+
+### **9 月 1 日上市**
+
+*   [*书签:欢庆黑人之声*](https://www.netflix.com/title/81303906) —网飞家族
+*   [*老板宝贝:得到那个宝贝！*](https://www.netflix.com/title/81054409) —网飞家族
+*   [*:菲利佩·埃斯帕扎:糟糕的决定*](https://www.netflix.com/title/81307960)*——网飞喜剧特辑*
+*   *[*/拉·帕蒂塔/赛*](https://www.netflix.com/title/81292345)*—网飞电影**
+*   **[*真实:友谊日*](https://www.netflix.com/title/81035126) —网飞家族**
+*   ***漂泊***
+*   **蟒蛇**
+*   ***回到未来***
+*   ***回到未来第二部***
+*   ***回到未来第三部***
+*   ***理发店***
+*   ***芭比公主历险记***
+*   **第一季到第三季**
+*   ***大海的孩子***
+*   ***锥头***
+*   ***荣耀***
+*   ***油脂***
+*   ***魔法麦克***
+*   ***提线木偶***
+*   ***布偶通缉令***
+*   ***不是另一部青少年电影***
+*   ***菠萝快车***
+*   ***占有***
+*   ***制片人* (2005 年)**
+*   ***承诺的梦幻岛:*第一季**
+*   ***穿靴子的猫***
+*   ***红龙***
+*   ***残留物***
+*   ***性冲动***
+*   ***妹子，妹子:*第 1-6 季**
+*   ***蓝精灵***
+*   ***野生动物***
+*   **扎图拉**
+
+### ****9 月 2 日上市****
+
+*   **坏男孩亿万富翁:印度 —网飞纪录片**
+*   **[*主厨桌:烧烤*](https://www.netflix.com/title/81292974) —网飞纪实**
+*   **[*畸形人——你是我们中的一员*](https://www.netflix.com/title/81058434)——网飞电影**
+
+### ****9 月 3 日上市****
+
+*   **[*阿丰索·帕迪哈:阿尔玛·德·波布雷*](https://www.netflix.com/title/81194685) —网飞喜剧特辑**
+*   **[*爱情，保底*](http://netflix.com/loveguaranteed) —网飞电影**
+*   **[](https://www.netflix.com/title/81011098)*—网飞原创***
+
+### *****9 月 4 日上市*****
+
+*   ***[*离去*](https://www.netflix.com/title/80214512)T5】—网飞原创***
+*   **[*我在想结局的事情*](https://www.netflix.com/title/80211559) —网飞电影**
+*   ***失落的 Okoroshi***
+*   **[*小马王:骑术学院:第二部*](https://www.netflix.com/title/81054417) —网飞家族** 
+
+### ****离开 9 月 4 日****
+
+*   ***克里斯托弗·罗宾***
+
+### ****离开 9 月 5 日****
+
+*   ***从前:*第 1-7 季**

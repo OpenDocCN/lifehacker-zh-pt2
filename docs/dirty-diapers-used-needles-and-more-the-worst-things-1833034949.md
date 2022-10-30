@@ -1,10 +1,10 @@
 # 脏尿布、用过的针头等等:美国人试图回收的最糟糕的东西
 
-> 原文：<https://gizmodo.com/dirty-diapers-used-needles-and-more-the-worst-things-1833034949>
+> 原文:[https://gizmodo . com/dirty-diapers-used-needles-and-more-the-worst-things-1833034949](https://gizmodo.com/dirty-diapers-used-needles-and-more-the-worst-things-1833034949)
 
 回收 [遇到麻烦](https://earther.gizmodo.com/recycling-is-broken-1833063010) 。这有很多原因，其中最主要的是中国 颁布的一系列关于回收商品 [的新禁令和限制。但是还有另一个相关的原因，为什么这么多美国人试图回收的东西现在被送进了焚化炉或垃圾填埋场。](https://earther.gizmodo.com/chinas-plastic-waste-ban-will-create-a-huge-issue-for-t-1826991472) 
 
-
+Watch
 
 我们在那里扔了很多垃圾。
 
@@ -22,4 +22,66 @@
 
 塑料袋被业内人士称为“缠结者”，听起来确实如此。它们包裹在分类设施的设备周围，防止*可回收的物品*被正确分离。结果呢？罐头包装在成捆的纸板中，中国在港口拒绝这些包装，因为它们被污染了。
 
-<iframe data-src="https://gizmodo.com/embed/inset/iframe?id=youtube-video-EDipC5oJG_A&amp;start=0" data-chomp-id="EDipC5oJG_A" data-recommend-id="youtube://EDipC5oJG_A" id="youtube-EDipC5oJG_A" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="EDipC5oJG_A" data-recommend-id="youtube://EDipC5oJG_A" id="youtube-EDipC5oJG_A" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">当袋子真的堵塞机器时，分类设施经常被迫关闭整条生产线，以便工人可以用手将令人讨厌的垃圾拉出来。这是浪费时间、精力和金钱。“他们造成了无尽的悲伤，”杰曼说。</p><p class="sc-77igqf-0 bOfvBY">与其以这种方式肆意破坏你当地的回收工厂，不如将你的塑料袋再次用于小垃圾桶或猫砂。或者，看看你当地的杂货店是否能回收它们。很有可能会。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h287925">奇怪的，绳子一样的东西</h3><p class="sc-77igqf-0 bOfvBY">你知道分拣设备还有什么问题吗？圣诞灯。软管。电线。跳绳。</p><p class="sc-77igqf-0 bOfvBY">“人们扔掉许多缠绕在我们机器上的长绳子，”杰曼说。</p><p class="sc-77igqf-0 bOfvBY">不要成为那种人。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h287926">电池和电子垃圾</h3><p class="sc-77igqf-0 bOfvBY">你不仅要把你那些被狗咬坏的电线放在蓝色的箱子里，还要把你所有的电子产品都放在那里。</p><p class="sc-77igqf-0 bOfvBY">全国各地有很多回收电子垃圾的设施。这些都不是从易拉罐中分拣瓶子的设施，把去年的 iPhone 放在你的路边回收站也不会把它送到正确的地方。更有可能的是，它最终会被填埋，导致各种有害毒素渗入环境。</p><div class="sc-1jaa1bu-0 ifBgoa align--bleed" id="115678"><div class="sc-1wkneyl-0 hxLRyg video-html5-playlist" data-playlist="115678" data-current="115678"><div class="video-html5-loaded"><div class="video-html5-player"><div class="lhhce6-0 bVyOPq video-html5 " data-video-id="115678" data-position="kinjavideo" data-video-title="Recycle Your Gadgets, Nerds" data-video-network="gizmodo" data-video-duration="130"></div></div></div></div></div><p class="sc-77igqf-0 bOfvBY">或者，当锂离子电池爆炸时会引发火灾，<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 kVnoAv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.washingtonpost.com/technology/2018/09/11/explosive-problem-with-recycling-ipads-iphones-other-gadgets-they-literally-catch-fire/?utm_term=.c30f2e5d1a9f&quot;,{&quot;metric25&quot;:1}]]" href="https://www.washingtonpost.com/technology/2018/09/11/explosive-problem-with-recycling-ipads-iphones-other-gadgets-they-literally-catch-fire/?utm_term=.c30f2e5d1a9f" target="_blank" rel="noopener noreferrer">常见的</a> </span>当这些电池被压碎、刮擦或掉落时。“据我所知，火灾几乎每天都在发生，”杰曼说。</p><p class="sc-77igqf-0 bOfvBY">许多由锂离子电池爆炸引起的火灾很快被分类设施(<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 kVnoAv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://gizmodo.com/stop-throwing-cellphone-batteries-in-the-trash-youre-f-1826166833&quot;,{&quot;metric25&quot;:1}]]" href="https://gizmodo.com/stop-throwing-cellphone-batteries-in-the-trash-youre-f-1826166833">或废物设施</a> </span>)的工作人员扑灭，他们已经习惯了智能手机时代这种令人不快的后果。但有时它们会失去控制，导致严重的问题，比如去年皇后区一家回收厂的五级火灾<span></span>一夜之间燃烧，迫使长岛铁路的四条支线关闭。</p><p class="sc-77igqf-0 bOfvBY">熟悉你所在城市的电子垃圾选择<span></span><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 kVnoAv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.call2recycle.org/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.call2recycle.org/" target="_blank" rel="noopener noreferrer">电池回收</a> </span>，这样你就不用为下一场巨大的垃圾火灾负责了。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h287927">食物和液体</h3><p class="sc-77igqf-0 bOfvBY">你正在进行每月一次的冰箱大扫除，你从冰箱后面拿出一罐半空的披萨酱。你看一眼它，意识到里面有一个蓬勃发展的生态系统，然后把它直接扔进回收站。</p><p class="sc-77igqf-0 bOfvBY">清洗那个结了壳的旧罐子听起来可能很痛苦，但是把一个脏罐子扔进回收站肯定会污染里面的其他东西。因为中国理所当然地厌倦了拿走我们沾满酱汁的纸板，它很可能会被扔进垃圾填埋场。</p><p class="sc-77igqf-0 bOfvBY">好消息是，大多数市政当局并不要求你的罐子和易拉罐在回收时非常干净:只需快速冲洗一下<span></span>就能去除任何可见的粘性物质。一罐可乐只需要倒空。</p><p class="sc-77igqf-0 bOfvBY">至于那个油乎乎的披萨盒？<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 kVnoAv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://lbre.stanford.edu/pssistanford-recycling/frequently-asked-questions/frequently-asked-questions-contamination&quot;,{&quot;metric25&quot;:1}]]" href="https://lbre.stanford.edu/pssistanford-recycling/frequently-asked-questions/frequently-asked-questions-contamination" target="_blank" rel="noopener noreferrer">扔进垃圾桶</a> </span>。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h287928">肮脏的针头</h3><p class="sc-77igqf-0 bOfvBY">在所有人都不应该在工作中处理的事情中，被脏针扎到是非常重要的。显然，在分拣厂工作的英雄们每天都面临着这种威胁。<br/></p><p class="sc-77igqf-0 bOfvBY">“我们认为发生的情况是，许多人家里都有注射剂，”Germain 说，他解释说，在一个人注射完每日胰岛素后，他们可能会将用过的针头放在塑料瓶中。</p><p class="sc-77igqf-0 bOfvBY">“当他们完成后，他们知道塑料瓶是可回收的。他们通常不认为首先会发生的事情是瓶子在卡车上爆裂，针头洒得到处都是，”她继续说道。</p><p class="sc-77igqf-0 bOfvBY">杰曼说，为了避免意外针刺(以及其他危险)，分拣机构现在很普遍地为员工提供防穿刺手套。尽管如此，总有东西被挤来挤去的危险，脏针在落到一块未受保护的皮肤上之前会暂时在空气中传播。杰曼说，虽然这“肯定不是每天都会发生”，但“肯定是不可取的”</p><p class="sc-77igqf-0 bOfvBY">不开玩笑。</p><p class="sc-77igqf-0 bOfvBY">关于如何正确处理针头的更多信息，从这本方便的 FDA 指南 开始。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h287929">用过的尿布</h3><p class="sc-77igqf-0 bOfvBY">我可以理解这个清单上的其他物品是如何不时地进入回收站的，不管是出于无知、懒惰，还是根深蒂固地认为某些东西应该被回收。我不明白为什么有人会认为一团浸透粪便的纤维应该放在蓝色的箱子里。</p><p class="sc-77igqf-0 bOfvBY">杰曼同意这个特殊物品的存在是“令人困惑的”但她确实有一套理论。</p><p class="sc-77igqf-0 bOfvBY">“我们不知道这有多合法，”她提醒道。但是，她说，她认为尿布被扔进回收箱是因为它们的包装通常是可回收的，并带有通用回收标志。</p><p class="sc-77igqf-0 bOfvBY">附件 A:</p><p class="sc-77igqf-0 bOfvBY">人们在看到回收标志时没有仔细阅读附属细则可能是许多回收问题的根源。(美国环保署甚至<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 kVnoAv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.epa.gov/sites/production/files/2018-03/documents/timpane_epa_li_slides312_ll_1.pdf&quot;,{&quot;metric25&quot;:1}]]" href="https://www.epa.gov/sites/production/files/2018-03/documents/timpane_epa_li_slides312_ll_1.pdf" target="_blank" rel="noopener noreferrer">引用</a> </span>作为这么多锂电池进入回收流程的可能原因。)当消费产品与其<span></span>的环境营销主张<span></span>产生误导或模棱两可时，也无济于事。<br/></p><p class="sc-77igqf-0 bOfvBY">显然，标签系统可以使用一些改进。但是作为权宜之计，只要记住:把字面上的大便扔进回收站是不行的。</p> </body> </html></iframe>
+ [https://gizmodo.com/embed/inset/iframe?id=youtube-video-EDipC5oJG_A&start=0](https://gizmodo.com/embed/inset/iframe?id=youtube-video-EDipC5oJG_A&start=0) 
+
+当袋子真的堵塞机器时，分类设施经常被迫关闭整条生产线，以便工人可以用手将令人讨厌的垃圾拉出来。这是浪费时间、精力和金钱。“他们造成了无尽的悲伤，”杰曼说。
+
+与其以这种方式肆意破坏你当地的回收工厂，不如将你的塑料袋再次用于小垃圾桶或猫砂。或者，看看你当地的杂货店是否能回收它们。很有可能会。
+
+### 奇怪的，绳子一样的东西
+
+你知道分拣设备还有什么问题吗？圣诞灯。软管。电线。跳绳。
+
+“人们扔掉许多缠绕在我们机器上的长绳子，”杰曼说。
+
+不要成为那种人。
+
+### 电池和电子垃圾
+
+你不仅要把你那些被狗咬坏的电线放在蓝色的箱子里，还要把你所有的电子产品都放在那里。
+
+全国各地有很多回收电子垃圾的设施。这些都不是从易拉罐中分拣瓶子的设施，把去年的 iPhone 放在你的路边回收站也不会把它送到正确的地方。更有可能的是，它最终会被填埋，导致各种有害毒素渗入环境。
+
+或者，当锂离子电池爆炸时会引发火灾， [常见的](https://www.washingtonpost.com/technology/2018/09/11/explosive-problem-with-recycling-ipads-iphones-other-gadgets-they-literally-catch-fire/?utm_term=.c30f2e5d1a9f) 当这些电池被压碎、刮擦或掉落时。“据我所知，火灾几乎每天都在发生，”杰曼说。
+
+许多由锂离子电池爆炸引起的火灾很快被分类设施( [或废物设施](https://gizmodo.com/stop-throwing-cellphone-batteries-in-the-trash-youre-f-1826166833) )的工作人员扑灭，他们已经习惯了智能手机时代这种令人不快的后果。但有时它们会失去控制，导致严重的问题，比如去年皇后区一家回收厂的五级火灾一夜之间燃烧，迫使长岛铁路的四条支线关闭。
+
+熟悉你所在城市的电子垃圾选择[电池回收](https://www.call2recycle.org/) ，这样你就不用为下一场巨大的垃圾火灾负责了。
+
+### 食物和液体
+
+你正在进行每月一次的冰箱大扫除，你从冰箱后面拿出一罐半空的披萨酱。你看一眼它，意识到里面有一个蓬勃发展的生态系统，然后把它直接扔进回收站。
+
+清洗那个结了壳的旧罐子听起来可能很痛苦，但是把一个脏罐子扔进回收站肯定会污染里面的其他东西。因为中国理所当然地厌倦了拿走我们沾满酱汁的纸板，它很可能会被扔进垃圾填埋场。
+
+好消息是，大多数市政当局并不要求你的罐子和易拉罐在回收时非常干净:只需快速冲洗一下就能去除任何可见的粘性物质。一罐可乐只需要倒空。
+
+至于那个油乎乎的披萨盒？ [扔进垃圾桶](https://lbre.stanford.edu/pssistanford-recycling/frequently-asked-questions/frequently-asked-questions-contamination) 。
+
+### 肮脏的针头
+
+在所有人都不应该在工作中处理的事情中，被脏针扎到是非常重要的。显然，在分拣厂工作的英雄们每天都面临着这种威胁。
+
+“我们认为发生的情况是，许多人家里都有注射剂，”Germain 说，他解释说，在一个人注射完每日胰岛素后，他们可能会将用过的针头放在塑料瓶中。
+
+“当他们完成后，他们知道塑料瓶是可回收的。他们通常不认为首先会发生的事情是瓶子在卡车上爆裂，针头洒得到处都是，”她继续说道。
+
+杰曼说，为了避免意外针刺(以及其他危险)，分拣机构现在很普遍地为员工提供防穿刺手套。尽管如此，总有东西被挤来挤去的危险，脏针在落到一块未受保护的皮肤上之前会暂时在空气中传播。杰曼说，虽然这“肯定不是每天都会发生”，但“肯定是不可取的”
+
+不开玩笑。
+
+关于如何正确处理针头的更多信息，从这本方便的 FDA 指南 开始。
+
+### 用过的尿布
+
+我可以理解这个清单上的其他物品是如何不时地进入回收站的，不管是出于无知、懒惰，还是根深蒂固地认为某些东西应该被回收。我不明白为什么有人会认为一团浸透粪便的纤维应该放在蓝色的箱子里。
+
+杰曼同意这个特殊物品的存在是“令人困惑的”但她确实有一套理论。
+
+“我们不知道这有多合法，”她提醒道。但是，她说，她认为尿布被扔进回收箱是因为它们的包装通常是可回收的，并带有通用回收标志。
+
+附件 A:
+
+人们在看到回收标志时没有仔细阅读附属细则可能是许多回收问题的根源。(美国环保署甚至 [引用](https://www.epa.gov/sites/production/files/2018-03/documents/timpane_epa_li_slides312_ll_1.pdf) 作为这么多锂电池进入回收流程的可能原因。)当消费产品与其的环境营销主张产生误导或模棱两可时，也无济于事。
+
+显然，标签系统可以使用一些改进。但是作为权宜之计，只要记住:把字面上的大便扔进回收站是不行的。

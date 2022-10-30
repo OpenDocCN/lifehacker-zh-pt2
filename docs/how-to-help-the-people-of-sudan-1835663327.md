@@ -1,10 +1,10 @@
 # 如何帮助苏丹人民
 
-> 原文：<https://lifehacker.com/how-to-help-the-people-of-sudan-1835663327>
+> 原文:[https://life hacker . com/how-to-help-the-people-of-Sudan-1835663327](https://lifehacker.com/how-to-help-the-people-of-sudan-1835663327)
 
 六月是苏丹首都喀土穆 暴力的一个月，为平民领导的政府示威的和平抗议者在街上遭到了准军事部队的袭击。据估计，已有 100 多人死亡，数百人受伤。
 
-
+Watch
 
 正如 [《卫报》专栏作家内斯林·马利克](https://www.theguardian.com/commentisfree/2019/jun/16/sudan-sudanese-people-killing-rape-revolution) 写道:
 
@@ -18,4 +18,36 @@
 
 联合国儿童基金会 已经在包括苏丹在内的 190 个国家和地区开展了 70 多年的人道主义项目。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1140908284083351553&amp;autosize=1" autoresize="true" id="twitter-1140908284083351553" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">根据上周发布在联合国儿童基金会网站 上的一份<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.unicefusa.org/stories/children-killed-and-injured-amid-escalating-violence-sudan/36062?utm_campaign=20190618_Emergencies&amp;utm_medium=Social&amp;utm_source=TwitterUnicefusa&amp;utm_content=SudanWebStory&amp;ms=Social_SOC_2019_Emergencies_20190618_TwitterUnicefusa_SudanWebStory_none_none&amp;initialms=Social_SOC_2019_Emergencies_20190618_TwitterUnicefusa_SudanWebStory_none_none&quot;,{&quot;metric25&quot;:1}]]" href="https://www.unicefusa.org/stories/children-killed-and-injured-amid-escalating-violence-sudan/36062?utm_campaign=20190618_Emergencies&amp;utm_medium=Social&amp;utm_source=TwitterUnicefusa&amp;utm_content=SudanWebStory&amp;ms=Social_SOC_2019_Emergencies_20190618_TwitterUnicefusa_SudanWebStory_none_none&amp;initialms=Social_SOC_2019_Emergencies_20190618_TwitterUnicefusa_SudanWebStory_none_none" target="_blank" rel="noopener noreferrer">声明，该组织将继续“向数百万儿童，包括那些流离失所或成为难民的儿童，提供疫苗、安全饮用水、严重急性营养不良的治疗和心理社会支持。”</a></span></p><p class="sc-77igqf-0 bOfvBY"><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://donate.unicefusa.org/page/contribute/help-children-in-sudan-now?_ga=2.244999685.1449727707.1560977304-1727351310.1560977304&quot;,{&quot;metric25&quot;:1}]]" href="https://donate.unicefusa.org/page/contribute/help-children-in-sudan-now?_ga=2.244999685.1449727707.1560977304-1727351310.1560977304" target="_blank" rel="noopener noreferrer">捐到联合国儿童基金会这里</a> </span>。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h296190">拯救儿童</h3><p class="sc-77igqf-0 bOfvBY"><span></span>救助儿童会自 1984 年以来一直在苏丹工作，帮助受冲突、流离失所、极端贫困、饥饿和缺乏基本服务影响的儿童及其家庭。</p><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1139558147641827328&amp;autosize=1" autoresize="true" id="twitter-1139558147641827328" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><p class="sc-77igqf-0 bOfvBY"><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.savethechildren.org/us/what-we-do/where-we-work/africa/sudan&quot;,{&quot;metric25&quot;:1}]]" href="https://www.savethechildren.org/us/what-we-do/where-we-work/africa/sudan" target="_blank" rel="noopener noreferrer">捐救这里的孩子</a> </span>。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h296191">喀土穆大学北美校友会</h3><p class="sc-77igqf-0 bOfvBY"><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://uokana.net/wp/about/&quot;,{&quot;metric25&quot;:1}]]" href="https://uokana.net/wp/about/" target="_blank" rel="noopener noreferrer"> UOKANA </a> </span>成立的目的是将校友与喀土木大学联系起来，支持喀土木大学的使命，并为美国校友提供一个交流的论坛。它正在脸书举办一场筹款活动，目标是筹集 50 万美元，“在苏丹历史上的这一关键时刻，为苏丹人民提供食物、水和医疗服务”</p><p class="sc-77igqf-0 bOfvBY"><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.facebook.com/donate/977085802497357/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.facebook.com/donate/977085802497357/" target="_blank" rel="noopener noreferrer">捐赠给脸书上的 UOKANA</a>这里</span>。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h296192">其他帮助方式</h3><p class="sc-77igqf-0 bOfvBY">如果你没有多余的钱来捐赠，但仍然想帮忙，以下是方法:</p><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>给你的代表 打电话，告诉他们你希望他们帮助苏丹人民。</li></ul><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.change.org/p/ant%C3%B3nio-guterres-the-secretary-general-of-the-united-nations-the-un-must-investigate-the-3rd-of-june-human-rights-violations-in-sudan-by-the-military?recruiter=7407336&amp;recruited_by_id=5333dd60-f3b1-012f-8a99-4040b09128dc&amp;utm_source=share_petition&amp;utm_medium=copylink&amp;utm_campaign=psf_combo_share_abi&amp;utm_term=psf_combo_share_abi&amp;share_bandit_exp=abi-15900667-en-GB&amp;share_bandit_var=v3&quot;,{&quot;metric25&quot;:1}]]" href="https://www.change.org/p/ant%C3%B3nio-guterres-the-secretary-general-of-the-united-nations-the-un-must-investigate-the-3rd-of-june-human-rights-violations-in-sudan-by-the-military?recruiter=7407336&amp;recruited_by_id=5333dd60-f3b1-012f-8a99-4040b09128dc&amp;utm_source=share_petition&amp;utm_medium=copylink&amp;utm_campaign=psf_combo_share_abi&amp;utm_term=psf_combo_share_abi&amp;share_bandit_exp=abi-15900667-en-GB&amp;share_bandit_var=v3" target="_blank" rel="noopener noreferrer">在 Change.org</a></span>的请愿书上签名，呼吁联合国调查军方在苏丹侵犯人权的行为，“因为苏丹人民认为过渡军事委员会没有能力”调查自己。</li></ul><p class="sc-77igqf-0 bOfvBY">随着更多资源的提供，我们将继续更新此列表。</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><small> <em>更多来自 Lifehacker，一定要在 Instagram 上关注我们</em></small><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.instagram.com/lifehackerdotcom/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.instagram.com/lifehackerdotcom/" target="_blank" rel="noopener noreferrer"><small><em>@ lifehackerdotcom</em></small></a></span><small><em>。</em> </small> <br/></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1140908284083351553&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1140908284083351553&autosize=1) 
+
+根据上周发布在联合国儿童基金会网站 上的一份 [声明，该组织将继续“向数百万儿童，包括那些流离失所或成为难民的儿童，提供疫苗、安全饮用水、严重急性营养不良的治疗和心理社会支持。”](https://www.unicefusa.org/stories/children-killed-and-injured-amid-escalating-violence-sudan/36062?utm_campaign=20190618_Emergencies&utm_medium=Social&utm_source=TwitterUnicefusa&utm_content=SudanWebStory&ms=Social_SOC_2019_Emergencies_20190618_TwitterUnicefusa_SudanWebStory_none_none&initialms=Social_SOC_2019_Emergencies_20190618_TwitterUnicefusa_SudanWebStory_none_none)
+
+[捐到联合国儿童基金会这里](https://donate.unicefusa.org/page/contribute/help-children-in-sudan-now?_ga=2.244999685.1449727707.1560977304-1727351310.1560977304) 。
+
+### 拯救儿童
+
+救助儿童会自 1984 年以来一直在苏丹工作，帮助受冲突、流离失所、极端贫困、饥饿和缺乏基本服务影响的儿童及其家庭。
+
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1139558147641827328&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1139558147641827328&autosize=1) 
+
+[捐救这里的孩子](https://www.savethechildren.org/us/what-we-do/where-we-work/africa/sudan) 。
+
+### 喀土穆大学北美校友会
+
+[UOKANA](https://uokana.net/wp/about/) 成立的目的是将校友与喀土木大学联系起来，支持喀土木大学的使命，并为美国校友提供一个交流的论坛。它正在脸书举办一场筹款活动，目标是筹集 50 万美元，“在苏丹历史上的这一关键时刻，为苏丹人民提供食物、水和医疗服务”
+
+[捐赠给脸书上的 UOKANA](https://www.facebook.com/donate/977085802497357/)这里。
+
+### 其他帮助方式
+
+如果你没有多余的钱来捐赠，但仍然想帮忙，以下是方法:
+
+*   给你的代表 打电话，告诉他们你希望他们帮助苏丹人民。
+
+*   [在 Change.org](https://www.change.org/p/ant%C3%B3nio-guterres-the-secretary-general-of-the-united-nations-the-un-must-investigate-the-3rd-of-june-human-rights-violations-in-sudan-by-the-military?recruiter=7407336&recruited_by_id=5333dd60-f3b1-012f-8a99-4040b09128dc&utm_source=share_petition&utm_medium=copylink&utm_campaign=psf_combo_share_abi&utm_term=psf_combo_share_abi&share_bandit_exp=abi-15900667-en-GB&share_bandit_var=v3)的请愿书上签名，呼吁联合国调查军方在苏丹侵犯人权的行为，“因为苏丹人民认为过渡军事委员会没有能力”调查自己。
+
+随着更多资源的提供，我们将继续更新此列表。
+
+* * *
+
+<small>*更多来自 Lifehacker，一定要在 Instagram 上关注我们*</small>[<small>*@ lifehackerdotcom*</small>](https://www.instagram.com/lifehackerdotcom/)<small>*。*</small>

@@ -1,10 +1,10 @@
 # Proxx 是一个完美的扫雷艇克隆
 
-> 原文：<https://lifehacker.com/proxx-is-a-perfect-minesweeper-clone-1834668727>
+> 原文:[https://life hacker . com/proxx-is-a-perfect-mine sweeper-clone-1834668727](https://lifehacker.com/proxx-is-a-perfect-minesweeper-clone-1834668727)
 
 我一直不擅长扫雷，我想我上一次玩这个游戏的年龄肯定至少是我的一半。很难让*点击——你很好*、*点击——你死了*游戏玩法性感，但谷歌凭借其 [开源](https://github.com/GoogleChromeLabs/proxx) 迭代、[**Proxx**](https://proxx.app/)做了一件令人钦佩的工作。
 
-
+Watch
 
 Proxx 的有趣之处不在于它是游戏的更新版本，拥有华丽的图形和动画(就扫雷而言)。这并不是谷歌投入时间复活这款 Windows 3.1 时代经典的原因。这款基于网络的游戏的天才之处在于，它基本上可以在任何东西上运行:从你的智能手机到你藏在抽屉里积灰的老式 T9 功能手机。此外，这款游戏总共只有 100KB，在你能够与之互动之前只需要下载 18KB，并且它以每秒 60 帧的速度渲染。
 
@@ -18,4 +18,4 @@ Proxx 的有趣之处不在于它是游戏的更新版本，拥有华丽的图�
 
 要了解更多关于谷歌如何(以及为什么)构建 Proxx 的信息，请查看今年谷歌 I/O 开发者大会上的两个演讲:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-rUUazNIZW7I&amp;start=1546" data-chomp-id="rUUazNIZW7I" data-recommend-id="youtube://rUUazNIZW7I" id="youtube-rUUazNIZW7I" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="rUUazNIZW7I" data-recommend-id="youtube://rUUazNIZW7I" id="youtube-rUUazNIZW7I" data-recommended="false" class="js_recommend"/></span></div><div class="ooo3c9-0 cmUFVa align--bleed has-video media-large video-embed embed-frame"><span class="flex-video widescreen"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-w8P5HLxcIO4&amp;start=354" data-chomp-id="w8P5HLxcIO4" data-recommend-id="youtube://w8P5HLxcIO4" id="youtube-w8P5HLxcIO4" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/><span data-chomp-id="w8P5HLxcIO4" data-recommend-id="youtube://w8P5HLxcIO4" id="youtube-w8P5HLxcIO4" data-recommended="false" class="js_recommend"/></span></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-rUUazNIZW7I&start=1546](https://lifehacker.com/embed/inset/iframe?id=youtube-video-rUUazNIZW7I&start=1546)  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-w8P5HLxcIO4&start=354](https://lifehacker.com/embed/inset/iframe?id=youtube-video-w8P5HLxcIO4&start=354)

@@ -1,13 +1,42 @@
 # 这些华丽的词藻让你听起来像个蠢驴
 
-> 原文：<https://lifehacker.com/these-fancy-words-make-you-sound-like-an-ass-1837900217>
+> 原文:[https://life hacker . com/these-fancy-words-make-you-sound-like-a-ass-1837900217](https://lifehacker.com/these-fancy-words-make-you-sound-like-an-ass-1837900217)
 
 从前，我在一家报社工作。那家报纸正在寻找削减成本的方法，这意味着裁员、买断和强制无薪休假的组合。为了用更少的人创造同样多的内容，我们需要有创造性。管理层告诉我们，我们都应该想办法重新定位我们的新闻文章。
 
-
+Watch
 
 对我们大多数人来说，这就像是一种谄媚的方式在说，“让我们在必要的时候重用一些垃圾吧，嗯？”你想让我们在什么东西上贴一个新的 led 然后放到另一个区域吗？好吧。但是让我们不要假装这是一些辉煌的新的新闻策略，称之为花哨的东西。
 
 他们还称强制无薪休假为“休假”你看，那些让你听起来像个傻瓜的花言巧语就在你周围。是时候让你知道了，这样你就可以停止使用它们了。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1169661978903830529&amp;autosize=1" autoresize="true" id="twitter-1169661978903830529" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">同意。并列就可以了。这些词也可以:</p><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><strong>利用</strong>。就说“用”你会用到它的。(另请参阅:利用率。)</li><li><strong>碎屑</strong>。碎屑是垃圾，你是知道的。</li><li><strong>过剩</strong>。太多了，嗯？(我也不太喜欢 myriad，只要我们在谈论说“一堆”的过度方式。)</li><li><strong>策展</strong>。嗯，当你选择和组织东西的时候，难道你不喜欢吗？</li><li><strong>作者</strong>。说“authored”而不是“written”并不会让你的文章给人留下更深刻的印象。(同上，执笔。)</li><li><strong>万能药</strong>。听起来像是疾病，而不是治疗方法，如果你问我。</li><li><strong>存在主义</strong>。你真聪明。</li><li><strong>元</strong>。这到底是什么意思？</li><li><strong>协同</strong>。哦，饶了我吧。这不是真的。</li><li><strong>倒数第二</strong>。我几乎可以保证你甚至没有使用这个权利。</li><li><strong>绚烂</strong>。什么？号码</li><li><strong>贫嘴</strong>。健谈。</li><li><strong>干部</strong>。团体。</li><li><strong>标牌</strong>。迹象。</li><li><strong>粘接性</strong>。只是呃。</li><li><strong>任何以-gate </strong>结尾的东西。</li></ul><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1169684299441795072&amp;autosize=1" autoresize="true" id="twitter-1169684299441795072" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">我累了。我不可能说出他们所有人的名字。这里有一个很好的测试来判断你使用的是一个普通的词还是一个会让人们内心叹息并假装喜欢你的花哨的词:有更简单的词吗？是吗？利用那个。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">我是不是在告诉你，你必须为我们这些白痴降低你的词汇量？不，我只是告诉你，如果你不这样做，你听起来像一个家伙。</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><em> <small>更多来自 Lifehacker，一定要在 Instagram 上关注我们</small></em><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.instagram.com/lifehackerdotcom/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.instagram.com/lifehackerdotcom/" target="_blank" rel="noopener noreferrer"><em><small>@ lifehackerdotcom</small></em></a></span><em><small>。</small> </em> <br/></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1169661978903830529&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1169661978903830529&autosize=1) 
+
+同意。并列就可以了。这些词也可以:
+
+*   **利用**。就说“用”你会用到它的。(另请参阅:利用率。)
+*   **碎屑**。碎屑是垃圾，你是知道的。
+*   **过剩**。太多了，嗯？(我也不太喜欢 myriad，只要我们在谈论说“一堆”的过度方式。)
+*   **策展**。嗯，当你选择和组织东西的时候，难道你不喜欢吗？
+*   **作者**。说“authored”而不是“written”并不会让你的文章给人留下更深刻的印象。(同上，执笔。)
+*   **万能药**。听起来像是疾病，而不是治疗方法，如果你问我。
+*   **存在主义**。你真聪明。
+*   **元**。这到底是什么意思？
+*   **协同**。哦，饶了我吧。这不是真的。
+*   **倒数第二**。我几乎可以保证你甚至没有使用这个权利。
+*   **绚烂**。什么？号码
+*   **贫嘴**。健谈。
+*   **干部**。团体。
+*   **标牌**。迹象。
+*   **粘接性**。只是呃。
+*   **任何以-gate** 结尾的东西。
+
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1169684299441795072&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1169684299441795072&autosize=1) 
+
+我累了。我不可能说出他们所有人的名字。这里有一个很好的测试来判断你使用的是一个普通的词还是一个会让人们内心叹息并假装喜欢你的花哨的词:有更简单的词吗？是吗？利用那个。
+
+我是不是在告诉你，你必须为我们这些白痴降低你的词汇量？不，我只是告诉你，如果你不这样做，你听起来像一个家伙。
+
+* * *
+
+*<small>更多来自 Lifehacker，一定要在 Instagram 上关注我们</small>*[*<small>@ lifehackerdotcom</small>*](https://www.instagram.com/lifehackerdotcom/)*<small>。</small>*

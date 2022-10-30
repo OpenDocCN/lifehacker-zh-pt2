@@ -1,10 +1,10 @@
 # 如何教孩子区分事实和观点
 
-> 原文：<https://lifehacker.com/how-to-teach-kids-the-difference-between-facts-and-opin-1844013184>
+> 原文:[https://life hacker . com/how-to-teach-kids-the-difference of-facts-and-opin-1844013184](https://lifehacker.com/how-to-teach-kids-the-difference-between-facts-and-opin-1844013184)
 
 事实和观点之间的区别是当今的热门话题。近年来越来越明显的是，这是一个很难理解的概念，甚至对一些成年人来说，更不用说孩子了。因此，无论何时，或者是否，你孩子的学校决定解决这个差异，父母在家加强课程是个好主意。
 
-
+Watch
 
 让我们从基础开始。
 
@@ -66,4 +66,25 @@
 
 莱尔德说，虽然这一课的内容非常适合高中学生，但基础知识可以在四年级或五年级就介绍给孩子们。这个 [的简短视频来自教学，没有虚饰](https://www.youtube.com/watch?v=DwdDClWP6i4) 提供了对事实和观点的简单介绍(没有他们长大后会学到的关于虚假事实的更复杂的细微差别):
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-DwdDClWP6i4&amp;start=0" data-chomp-id="DwdDClWP6i4" data-recommend-id="youtube://DwdDClWP6i4" id="youtube-DwdDClWP6i4" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="DwdDClWP6i4" data-recommend-id="youtube://DwdDClWP6i4" id="youtube-DwdDClWP6i4" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">你还可以在这个 Pinterest 板 中找到<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.pinterest.com/teachtutors/teaching-fact-vs-opinion/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.pinterest.com/teachtutors/teaching-fact-vs-opinion/" target="_blank" rel="noopener noreferrer">工作表集合，由语言病理学家、<!-- -->教育家和<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.teachtutors.com/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.teachtutors.com/" target="_blank" rel="noopener noreferrer"> Teach Tutors </a> </span>的<!-- -->创始人达纳·莫纳汉策划，这是一个使用同伴导师的信息和资源网站。</a></span></p><p class="sc-77igqf-0 bOfvBY">这一课在今天尤其重要，因为许多人不知道从哪里获得可靠的、真实的信息。</p><p class="sc-77igqf-0 bOfvBY">“这是我从成人和儿童身上看到的首要问题，”莱尔德说。“我如何知道这是否是可靠的信息？”</p><p class="sc-77igqf-0 bOfvBY">这些辨别假新闻 的技巧，通常是伪装成事实或不真实事实的观点，包括检查来源和使用事实核实网站的重要性。莱尔德还建议进行废话测试(这在他的学生中很受欢迎):</p><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><strong> C </strong>:信息 C <em>是当前的</em>？</li><li><strong> R </strong>:信息 R <em>是否可靠</em>？</li><li><strong> A </strong>:这个信息是由 A <em>权威</em>来源共享的吗？</li><li><strong> P </strong>:信息的<em>目的</em>是什么？是陈述事实还是说服你？</li></ul><p class="sc-77igqf-0 bOfvBY">当莱尔德让他的英语或新闻学学生写一篇议论文或专栏时，他会指导他们选择一个主题，但不要形成观点。他说，首先，做研究，然后用这些事实来发展你的观点。<br/></p><p class="sc-77igqf-0 bOfvBY">“我认为人们在社交媒体上犯的罪，学生们经常犯的罪，是他们有自己的观点，他们去挖掘支持他们观点的事实，”他说，“他们很难改变他们的想法，因为他们带着大量的偏见。”</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><small> <em>遇见地球上最聪明的父母！加入我们的</em> </small> <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.facebook.com/groups/2018785615043946/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.facebook.com/groups/2018785615043946/" target="_blank" rel="noopener noreferrer"> <small> <em>育儿脸书群</em> </small> </a> </span> <small> <em>。</em>T15】</small></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-DwdDClWP6i4&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-DwdDClWP6i4&start=0) 
+
+你还可以在这个 Pinterest 板 中找到 [工作表集合，由语言病理学家、教育家和](https://www.pinterest.com/teachtutors/teaching-fact-vs-opinion/) [Teach Tutors](https://www.teachtutors.com/) 的创始人达纳·莫纳汉策划，这是一个使用同伴导师的信息和资源网站。
+
+这一课在今天尤其重要，因为许多人不知道从哪里获得可靠的、真实的信息。
+
+“这是我从成人和儿童身上看到的首要问题，”莱尔德说。“我如何知道这是否是可靠的信息？”
+
+这些辨别假新闻 的技巧，通常是伪装成事实或不真实事实的观点，包括检查来源和使用事实核实网站的重要性。莱尔德还建议进行废话测试(这在他的学生中很受欢迎):
+
+*   **C** :信息 C *是当前的*？
+*   **R** :信息 R *是否可靠*？
+*   **A** :这个信息是由 A *权威*来源共享的吗？
+*   **P** :信息的*目的*是什么？是陈述事实还是说服你？
+
+当莱尔德让他的英语或新闻学学生写一篇议论文或专栏时，他会指导他们选择一个主题，但不要形成观点。他说，首先，做研究，然后用这些事实来发展你的观点。
+
+“我认为人们在社交媒体上犯的罪，学生们经常犯的罪，是他们有自己的观点，他们去挖掘支持他们观点的事实，”他说，“他们很难改变他们的想法，因为他们带着大量的偏见。”
+
+* * *
+
+<small>*遇见地球上最聪明的父母！加入我们的*</small> [<small>*育儿脸书群*</small>](https://www.facebook.com/groups/2018785615043946/) <small>*。*T15】</small>

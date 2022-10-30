@@ -1,10 +1,10 @@
 # 从 1990 年的这些教学视频中学习 Rue McClanahan 的宠物护理
 
-> 原文：<https://lifehacker.com/learn-pet-care-from-rue-mcclanahan-in-these-instruction-1844651824>
+> 原文:[https://life hacker . com/learn-pet-care-from-rue-mcclanahan-in-these-instruction-1844651824](https://lifehacker.com/learn-pet-care-from-rue-mcclanahan-in-these-instruction-1844651824)
 
 新冠肺炎疫情重新唤起了人们对传统爱好的兴趣，比如手工艺、编织和园艺，以及其他能让我们在艰难时期感觉更好的活动。两种更受欢迎的消遣/应对机制是 [领养宠物](https://www.usatoday.com/story/life/2020/04/28/coronavirus-empties-animal-shelter-cages-but-pets-still-need-adopting/3023196001/) ，以及 [看《黄金女郎》](https://www.nytimes.com/2020/04/30/business/media/coronavirus-television-netflix-ratings.html)
 
-
+Watch
 
 如果我们告诉你有一种方法可以将两者结合起来(除了阅读 [贝蒂·怀特关于动物的书籍](https://www.smithsonianmag.com/science-nature/betty-white-on-her-love-for-animals-92610121/) )会怎么样？是真的:有。它以 1990 年发布的一系列教学视频的形式出现，由 Rue McClanahan(因在标志性情景喜剧 [中扮演 Blanche Devereaux 而闻名)讲述宠物护理](https://www.kqed.org/arts/13884491/watch-golden-girl-rue-mcclanahans-hilarious-1990-videos-about-pet-care) 。以下是如何观看它们以及您必须期待的内容。
 
@@ -24,4 +24,6 @@
 
 猫的视频更容易获得，互联网档案馆提供了完整的 48 分钟版本 ，以及 YouTube 上的 [第一部分](https://www.youtube.com/watch?v=JaWTZ6jnTJ4) 、 [第二部分](https://www.youtube.com/watch?v=LbmVVmwkcQg&list=PLqpYgi5Tl4NahWqu-6MiWtJIFQGrsvRM8&index=99) 和 [第五部分](https://www.youtube.com/watch?v=WSnUQOsLvq8) 。可悲的是，从狗的视频中没有太多可用的信息，但幸运的是，有人(可能是格里菲思) [拍下了它最饥渴的时刻:](https://www.youtube.com/watch?time_continue=126&v=xVPafMq_ces&feature=emb_logo)
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-xVPafMq_ces&amp;start=0" data-chomp-id="xVPafMq_ces" data-recommend-id="youtube://xVPafMq_ces" id="youtube-xVPafMq_ces" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="xVPafMq_ces" data-recommend-id="youtube://xVPafMq_ces" id="youtube-xVPafMq_ces" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">如果有某个善良的人能看到完整的狗护理视频，并想把它上传到某个地方，我们不会生气。在那之前，无论哪里有录像带出售，你都要睁大眼睛寻找。谢谢你，Rue，成为宠物的朋友。<br/></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-xVPafMq_ces&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-xVPafMq_ces&start=0) 
+
+如果有某个善良的人能看到完整的狗护理视频，并想把它上传到某个地方，我们不会生气。在那之前，无论哪里有录像带出售，你都要睁大眼睛寻找。谢谢你，Rue，成为宠物的朋友。

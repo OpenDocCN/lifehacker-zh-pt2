@@ -1,13 +1,25 @@
 # 举办一个 10 分钟的“做一些你一直在逃避的事情”的聚会
 
-> 原文：<https://lifehacker.com/throw-a-do-something-youve-been-avoiding-party-for-10-m-1841206421>
+> 原文:[https://life hacker . com/throw-a-do-something-you-being-party for-10-m-1841206421](https://lifehacker.com/throw-a-do-something-youve-been-avoiding-party-for-10-m-1841206421)
 
 在你的待办事项清单上，一周又一周出现的烦人的事情是什么？缝补你最喜欢的衬衫上的线缝？清理你的桌子？整理一个月的邮件？
 
-
+Watch
 
 你大概可以在 10 分钟内完成。如果你有一个伙伴一起工作，也许你最终会停止逃避这项任务。
 
 这条建议来自推特上的 [OkieSpaceQueen](https://twitter.com/OkieSpaceQueen) ，她分享了花 10 分钟时间完成一项你一直在回避的任务的生产力。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1220106972109910016&amp;autosize=1" autoresize="true" id="twitter-1220106972109910016" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1220107399475945478&amp;autosize=1" autoresize="true" id="twitter-1220107399475945478" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">从推特交流中可以看到，Lifehacker 的高级健康编辑<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://kinja.com/bethskw&quot;,{&quot;metric25&quot;:1}]]" href="https://kinja.com/bethskw" target="_blank" rel="noopener noreferrer">贝丝·斯克沃茨基</a> </span>印象深刻。但我一个人住，我对此持怀疑态度。我最初认为，这种技巧取决于有人和你住在同一个住所，并且分开处理任务，但在时间和同居的双重压力下一起完成。“这让我想要一个喜欢的室友...10 分钟，”我说。“然后他们就可以离开了。”</p><p class="sc-77igqf-0 bOfvBY">但是贝丝建议通过短信进行 10 分钟的定时会话，在我们知道之前，贝丝、<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://kinja.com/vksmith&quot;,{&quot;metric25&quot;:1}]]" href="https://kinja.com/vksmith" target="_blank" rel="noopener noreferrer">、弗吉尼亚</a> </span>和我在 Lifehacker 的日历上设定了一个时间来测试它。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">在这一小时的前一刻，我们在 Slack 上打了个招呼，在智能手机上设置了定时器，然后开始工作。我把羽绒被放回我大号床上的羽绒被上，这个任务并不难，但是如果你允许的话，我会拖延很久。弗吉尼亚起草了一封她一直在回避的电子邮件。贝丝因为清理了她那该死的桌子而获得了最有成效奖。</p><p class="sc-77igqf-0 bOfvBY">当 10 分钟结束时，Beth 实际上要求更多的时间，以便她可以收起一些项目并完成任务。仔细想想，这可能是 10 分钟挑战的最大好处。一旦你看到你能在 10 分钟内完成多少事情，你就会开始做其他你能在一两分钟内完成的事情。</p><p class="sc-77igqf-0 bOfvBY">我对羽绒被的回避来自于我的假设，我认为要花 20 分钟才能完成，而实际上我只花了 7 分钟。我环顾了一下我的卧室，耸耸肩，开始从篮子里拿出干净的衣服放好。我没有在剩下的几分钟内做完所有的事情，但我在这一堆东西中留下了一点痕迹。</p><p class="sc-77igqf-0 bOfvBY">想到我们需要像这样团结在一起，通过网络，如果不是和我们自己家里的人，来完成一些小任务，感觉是如此的俗气。但是，如果你正在和那些你认为需要完成的事情做斗争，那就从 10 分钟开始，看看你能完成多少。你可能会一劳永逸地把这个任务从你的清单上划掉。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1220106972109910016&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1220106972109910016&autosize=1)  [https://lifehacker.com/embed/inset/iframe?id=twitter-1220107399475945478&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1220107399475945478&autosize=1) 
+
+从推特交流中可以看到，Lifehacker 的高级健康编辑 [贝丝·斯克沃茨基](https://kinja.com/bethskw) 印象深刻。但我一个人住，我对此持怀疑态度。我最初认为，这种技巧取决于有人和你住在同一个住所，并且分开处理任务，但在时间和同居的双重压力下一起完成。“这让我想要一个喜欢的室友...10 分钟，”我说。“然后他们就可以离开了。”
+
+但是贝丝建议通过短信进行 10 分钟的定时会话，在我们知道之前，贝丝、 [、弗吉尼亚](https://kinja.com/vksmith) 和我在 Lifehacker 的日历上设定了一个时间来测试它。
+
+在这一小时的前一刻，我们在 Slack 上打了个招呼，在智能手机上设置了定时器，然后开始工作。我把羽绒被放回我大号床上的羽绒被上，这个任务并不难，但是如果你允许的话，我会拖延很久。弗吉尼亚起草了一封她一直在回避的电子邮件。贝丝因为清理了她那该死的桌子而获得了最有成效奖。
+
+当 10 分钟结束时，Beth 实际上要求更多的时间，以便她可以收起一些项目并完成任务。仔细想想，这可能是 10 分钟挑战的最大好处。一旦你看到你能在 10 分钟内完成多少事情，你就会开始做其他你能在一两分钟内完成的事情。
+
+我对羽绒被的回避来自于我的假设，我认为要花 20 分钟才能完成，而实际上我只花了 7 分钟。我环顾了一下我的卧室，耸耸肩，开始从篮子里拿出干净的衣服放好。我没有在剩下的几分钟内做完所有的事情，但我在这一堆东西中留下了一点痕迹。
+
+想到我们需要像这样团结在一起，通过网络，如果不是和我们自己家里的人，来完成一些小任务，感觉是如此的俗气。但是，如果你正在和那些你认为需要完成的事情做斗争，那就从 10 分钟开始，看看你能完成多少。你可能会一劳永逸地把这个任务从你的清单上划掉。

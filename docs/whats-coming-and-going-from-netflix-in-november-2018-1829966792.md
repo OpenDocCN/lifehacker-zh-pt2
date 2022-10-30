@@ -1,10 +1,10 @@
 # 2018 年 11 月网飞有什么来往
 
-> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-in-november-2018-1829966792>
+> 原文:[https://life hacker . com/whats-coming-and-going-from-网飞 2018-11-1829966792](https://lifehacker.com/whats-coming-and-going-from-netflix-in-november-2018-1829966792)
 
 对网飞来说，11 月是一个稳定的月份。你已经有了新的*希瑞*，新一季的 *MST3K* ，一部之前未完成的奥逊·威尔斯电影，以及经典的*《英国病人》*、*《心灵捕手》*和*《第三种亲密接触》*。该网站只是失去了几部热门电影。这是 10 月份从网飞进出的所有东西。
 
-
+Watch
 
 ## **亮点**
 
@@ -40,4 +40,229 @@
 
 告别*陈月娇*、*狠心*、*铁木兰*、*帕丁顿*，全部三个*侏罗纪公园*、*、*以及前三个*提前登陆*。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-xHY5G7pdAhw&amp;start=0" data-chomp-id="xHY5G7pdAhw" data-recommend-id="youtube://xHY5G7pdAhw" id="youtube-xHY5G7pdAhw" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="xHY5G7pdAhw" data-recommend-id="youtube://xHY5G7pdAhw" id="youtube-xHY5G7pdAhw" data-recommended="false" class="js_recommend"/></span></div><h2 class="sc-1bwb26k-1 kpbNNd" id="h176561"><strong>11 月抵达</strong></h2><p class="sc-77igqf-0 bOfvBY">这是完整的清单。网飞原创有链接到他们的预告片和观看页面。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h176562"><strong>11 月 1 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80230507&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80230507" target="_blank" rel="noopener noreferrer"> <em>安吉拉的圣诞节</em></a>T5】</span></li><li>布拉姆·斯托克的《德拉库拉》</li><li><em>放马过来:在它身上赢得它</em>T2】</li><li><em>海角恐惧</em> <br/></li><li><em>男人的孩子</em> <br/></li><li><em>第三种亲密接触</em> <br/></li><li><em>克洛弗菲尔德</em> <br/></li><li>欧洲舞男 <br/></li><li><em>奇异博士</em>T2】</li><li><em>公平游戏——导演剪辑</em> <br/></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/81015562&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/81015562" target="_blank" rel="noopener noreferrer"> <em>如下:第三部</em> </a> </span> <br/></li><li><em>从黄昏到黎明</em> <br/></li><li><em>善意狩猎</em> <br/></li><li><em>李连杰的无畏</em> <br/></li><li><em>朱丽&amp;朱丽亚</em>T2】</li><li>卡特·威廉姆斯:皮条客编年史。1 <br/></li><li><em>国家讽刺漫画的动物之家</em> <br/></li><li><em>下一部复仇者联盟:明日英雄</em> <br/></li><li><em>绿巨人</em>星球<br/></li><li><em>恐怖电影 2 </em> <br/></li><li><em>恐怖电影 3 </em> <br/></li><li><em>欲望都市:电影</em> <br/></li><li><em>十六支蜡烛</em> <br/></li><li><em>臭死了！</em> <br/></li><li><em>英国病人</em> <br/></li><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80242033&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80242033" target="_blank" rel="noopener noreferrer"><em/></a></span></li><li><em>亚米斯德·莫平不为人知的故事</em></li><li><em>水之马:深渊传说</em>T2】</li><li><em>超越</em> <br/></li><li><em>去</em> <br/></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h176563"><strong>11 月 2 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80215087&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80215087" target="_blank" rel="noopener noreferrer"><em/></a></span><br/></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80186419&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80186419" target="_blank" rel="noopener noreferrer"> <em>《纸牌屋》:第六季</em> </a> </span> <br/></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80191051&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80191051" target="_blank" rel="noopener noreferrer"> <em>重操旧业:狡猾的迪克&amp;黑衣人</em> </a> </span> <br/></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80242446&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80242446" target="_blank" rel="noopener noreferrer"> <em>节假日日历</em> </a> </span> <br/></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80085566&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80085566" target="_blank" rel="noopener noreferrer"> <em>风的彼岸</em> </a> </span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80124722&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80124722" target="_blank" rel="noopener noreferrer"> <em>我死后他们会爱我</em> </a> </span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80178932&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80178932" target="_blank" rel="noopener noreferrer"> <em>巨魔:节拍继续！:第四季</em> </a> </span> <br/></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h176564"><strong>11 月 3 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>也被蒙蔽了！胡德大战邪恶</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h176565"><strong>11 月 4 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>迪士尼《加勒比海盗:在世界的尽头</em> <br/></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80239931&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80239931" target="_blank" rel="noopener noreferrer"> <em>【爱国者法案】与</em> </a> </span>(每周日分流)<br/></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h176566"><strong>11 月 5 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>同学会:第一季</em> <br/></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80225421&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80225421" target="_blank" rel="noopener noreferrer"> <em>约翰·雷吉扎莫的拉丁史</em> </a> </span> <br/></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h176567"><strong>11 月 7 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>进入森林</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h176568"><strong>11 月 8 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>树的海洋</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h176569"><strong>11 月 9 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80207839&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80207839" target="_blank" rel="noopener noreferrer"> <em>击败臭虫:第三季</em></a>T5】</span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/81022793&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/81022793" target="_blank" rel="noopener noreferrer"> <em>拉雷纳德尔流</em> </a> </span> <br/></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80169787&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80169787" target="_blank" rel="noopener noreferrer"> <em>荣誉勋章</em></a>T5】</span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80190859&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80190859" target="_blank" rel="noopener noreferrer"> <em>绿林好汉</em></a>T5】</span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80178292&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80178292" target="_blank" rel="noopener noreferrer"> <em>【小马王】:第七季</em> </a> </span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80218635&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80218635" target="_blank" rel="noopener noreferrer"> <em>超拽</em> </a> </span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/81001540&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/81001540" target="_blank" rel="noopener noreferrer"> <em>英国烘焙大展:收藏 6 </em> </a> </span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80151508&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80151508" target="_blank" rel="noopener noreferrer"> <em>《树屋侦探:第二季</em> </a> </span></li><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80201731&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80201731" target="_blank" rel="noopener noreferrer"><em/></a></span><br/></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h176570"><strong>11 月 12 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>绿色房间</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h176571"><strong>11 月 13 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80244848&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80244848" target="_blank" rel="noopener noreferrer"> <em>卢顿·万恩怀特三世:幸存双胞胎</em> </a> </span> <br/></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80993626&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80993626" target="_blank" rel="noopener noreferrer"> <em>哎呀我的鬼</em> </a> </span> <br/></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80194018&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80194018" target="_blank" rel="noopener noreferrer"> <em>战士</em> </a> </span> <br/></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h176572"><strong>11 月 15 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/81030893&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/81030893" target="_blank" rel="noopener noreferrer"> <em>愿魔鬼带走你</em></a>T5】</span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80196044&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80196044" target="_blank" rel="noopener noreferrer"> <em>剧组</em> </a> </span> <br/></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h176573"><strong>11 月 16 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80177400&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80177400" target="_blank" rel="noopener noreferrer"> <em>凸轮</em></a>T5】</span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80129824&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80129824" target="_blank" rel="noopener noreferrer"> <em>毒枭:墨西哥</em></a>T5】</span></li><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80989967&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80989967" target="_blank" rel="noopener noreferrer"><em>《Ponysitters 俱乐部:第二季</em> </a> </span></li><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80223557&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80223557" target="_blank" rel="noopener noreferrer"><em/></a></span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80179861&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80179861" target="_blank" rel="noopener noreferrer"> <em> She-Ra 与权力公主</em> </a> </span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80200267&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80200267" target="_blank" rel="noopener noreferrer"> <em>巴斯特·斯克鲁格的歌谣</em></a>T5】</span></li><li><em>分手</em> <br/></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80207604&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80207604" target="_blank" rel="noopener noreferrer"> <em>【康明斯基法】</em> </a> </span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80242926&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80242926" target="_blank" rel="noopener noreferrer"> <em>公主开关</em></a>T5<br/></span></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h176574"><strong>11 月 18 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>皮克斯的故事</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h176575"><strong>11 月 19 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80223909&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80223909" target="_blank" rel="noopener noreferrer"> <em>《最后的王国》:第三季</em> </a> </span></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h176576"><strong>11 月 20 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80182551&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80182551" target="_blank" rel="noopener noreferrer"> <em>库里帕里:梦行者</em></a>T5】</span></li><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80134642&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80134642" target="_blank" rel="noopener noreferrer"><em/></a></span></li><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/81021831&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/81021831" target="_blank" rel="noopener noreferrer"><em/></a></span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80201867&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80201867" target="_blank" rel="noopener noreferrer"> <em>期末表</em> </a> </span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80239932&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80239932" target="_blank" rel="noopener noreferrer"> <em>特雷弗·诺亚:帕特丽夏之子</em> </a> </span> <br/></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h176577"><strong>11 月 21 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80988835&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80988835" target="_blank" rel="noopener noreferrer"><em/></a></span></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h176578"><strong>11 月 22 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>二郎梦见寿司</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80228031&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80228031" target="_blank" rel="noopener noreferrer"> <em>神秘科学剧场 3000:战书</em> </a> </span></li><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80199682&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80199682" target="_blank" rel="noopener noreferrer"><em/></a></span><br/></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h176579"><strong>11 月 23 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80211886&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80211886" target="_blank" rel="noopener noreferrer"> <em>《边疆:第三季</em> </a> </span></li><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80235858&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80235858" target="_blank" rel="noopener noreferrer"><em/></a></span><br/></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80998907&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80998907" target="_blank" rel="noopener noreferrer"> <em>病假条</em></a>T5<span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80998907&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80998907" target="_blank" rel="noopener noreferrer"><em>病假条:第二季</em> </a> </span></span></li><li>建还是不建:第二季《T2》</li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h176580"><strong>11 月 25 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>我的小马友谊是神奇的:有史以来最好的礼物</li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h176581"><strong>11 月 27 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80216144&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80216144" target="_blank" rel="noopener noreferrer"> <em>与杰夫·罗斯碰撞话筒&amp;戴夫·阿特尔</em> </a> </span></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h176582"><strong>11 月 29 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>波科尤:第四季</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h176583"><strong>11 月 30 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80205694&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80205694" target="_blank" rel="noopener noreferrer"> <em> 1983 </em> </a> </span> <br/></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80238204&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80238204" target="_blank" rel="noopener noreferrer"> <em>一位圣诞王子:皇家婚礼</em> </a> </span> <br/></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80211575&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80211575" target="_blank" rel="noopener noreferrer"> <em>宝宝</em> </a> </span> <br/></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80191221&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80191221" target="_blank" rel="noopener noreferrer"> <em>死于魔法</em></a>T5】</span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80185307&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80185307" target="_blank" rel="noopener noreferrer"> <em> F 为亲情:第三季</em> </a> </span> <br/></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/81004245&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/81004245" target="_blank" rel="noopener noreferrer"> <em>快乐如拉扎罗</em> </a> </span> <br/></li><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/81018377&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/81018377" target="_blank" rel="noopener noreferrer"><em/></a>T5】</span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80117737&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80117737" target="_blank" rel="noopener noreferrer"> <em>《间谍小子:任务关键:第二季</em> </a> </span> <br/></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/81021528&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/81021528" target="_blank" rel="noopener noreferrer"> <em>世界是你的</em> </a> </span></li><li><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80991809&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80991809" target="_blank" rel="noopener noreferrer"> <em>共享时间</em> </a> <br/></li></ul><h2 class="sc-1bwb26k-1 kpbNNd" id="h176584"><strong>最后一次通话</strong></h2><h4 class="sc-1bwb26k-1 kpbNNd" id="h176585"><strong>11 月 1 日出发</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>集合</em> <br/>集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合</li><li><em>交火</em> <br/></li><li><em>残忍的意图</em> <br/></li><li><em>残忍的意图 2 </em> <br/></li><li><em>残忍的意图 3 </em> <br/></li><li><em>地狱男爵 II:黄金军团</em> <br/></li><li><em>侏罗纪公园</em>T2】</li><li><em>《侏罗纪公园三》</em> <br/></li><li><em> Oculus </em> <br/></li><li><em>现象</em> <br/></li><li><em>跑来找我</em> <br/></li><li><em>冒烟的王牌 2:刺客联盟</em> <br/></li><li><em>钢木兰</em> <br/></li><li><em>入侵</em>T2】</li><li><em>土地先于时间</em> <br/></li><li><em>时间 II 之前的土地:大峡谷探险</em> <br/></li><li><em>时间 III 之前的土地:伟大给予的时间</em> <br/></li><li><em>拉扎勒斯效应</em> <br/></li><li><em>失落的世界:侏罗纪公园</em> <br/></li><li><em>读者</em> <br/></li><li><em>悬而未决</em> <br/></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h176586"><strong>11 月 12 日出发</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>给卡琳娜</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h176587"><strong>11 月 16 日出发</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>帕丁顿</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h176588"><strong>11 月 17 日出发</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>卧底老板:第 1-5 季</em></li></ul> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-xHY5G7pdAhw&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-xHY5G7pdAhw&start=0) 
+
+## **11 月抵达**
+
+这是完整的清单。网飞原创有链接到他们的预告片和观看页面。
+
+#### **11 月 1 日**
+
+*   [*安吉拉的圣诞节*](http://www.netflix.com/title/80230507)T5】
+*   布拉姆·斯托克的《德拉库拉》
+*   *放马过来:在它身上赢得它*T2】
+*   *海角恐惧*
+
+*   *男人的孩子*
+
+*   *第三种亲密接触*
+
+*   *克洛弗菲尔德*
+
+*   欧洲舞男
+
+*   *奇异博士*T2】
+*   *公平游戏——导演剪辑*
+
+*   [*如下:第三部*](http://www.netflix.com/title/81015562)
+
+*   *从黄昏到黎明*
+
+*   *善意狩猎*
+
+*   *李连杰的无畏*
+
+*   *朱丽&朱丽亚*T2】
+*   卡特·威廉姆斯:皮条客编年史。1
+
+*   *国家讽刺漫画的动物之家*
+
+*   *下一部复仇者联盟:明日英雄*
+
+*   *绿巨人*星球
+
+*   *恐怖电影 2*
+
+*   *恐怖电影 3*
+
+*   *欲望都市:电影*
+
+*   *十六支蜡烛*
+
+*   *臭死了！*
+
+*   *英国病人*
+
+*   [](http://www.netflix.com/title/80242033)
+*   **亚米斯德·莫平不为人知的故事**
+*   **水之马:深渊传说*T2】*
+*   **超越** 
+*   **去** 
+
+#### ***11 月 2 日***
+
+*   *[](http://www.netflix.com/title/80215087)*
+*   **[*《纸牌屋》:第六季*](http://www.netflix.com/title/80186419)** 
+*   **[*重操旧业:狡猾的迪克&黑衣人*](http://www.netflix.com/title/80191051)** 
+*   **[*节假日日历*](http://www.netflix.com/title/80242446)** 
+*   **[*风的彼岸*](https://www.netflix.com/title/80085566)**
+*   **[*我死后他们会爱我*](http://www.netflix.com/title/80124722)**
+*   **[*巨魔:节拍继续！:第四季*](http://www.netflix.com/title/80178932)** 
+
+#### ****11 月 3 日****
+
+*   ***也被蒙蔽了！胡德大战邪恶***
+
+#### ****11 月 4 日****
+
+*   ***迪士尼《加勒比海盗:在世界的尽头*** 
+*   **[*【爱国者法案】与*](http://www.netflix.com/title/80239931) (每周日分流)** 
+
+#### ****11 月 5 日****
+
+*   ***同学会:第一季*** 
+*   **[*约翰·雷吉扎莫的拉丁史*](http://www.netflix.com/title/80225421)** 
+
+#### ****11 月 7 日****
+
+*   ***进入森林***
+
+#### ****11 月 8 日****
+
+*   ***树的海洋***
+
+#### ****11 月 9 日****
+
+*   **[*击败臭虫:第三季*](http://www.netflix.com/title/80207839)T5】**
+*   **[*拉雷纳德尔流*](http://www.netflix.com/title/81022793)** 
+*   **[*荣誉勋章*](http://www.netflix.com/title/80169787)T5】**
+*   **[*绿林好汉*](http://www.netflix.com/title/80190859)T5】**
+*   **[*【小马王】:第七季*](http://www.netflix.com/title/80178292)**
+*   **[*超拽*](http://www.netflix.com/title/80218635)**
+*   **[*英国烘焙大展:收藏 6*](http://www.netflix.com/title/81001540)**
+*   **[*《树屋侦探:第二季*](http://www.netflix.com/title/80151508)**
+*   **[](http://www.netflix.com/title/80201731)**
+
+#### *****11 月 12 日*****
+
+*   ****绿色房间****
+
+#### ****11 月 13 日****
+
+*   **[*卢顿·万恩怀特三世:幸存双胞胎*](http://www.netflix.com/title/80244848)** 
+*   **[*哎呀我的鬼*](http://www.netflix.com/title/80993626)** 
+*   **[*战士*](http://www.netflix.com/title/80194018)** 
+
+#### ****11 月 15 日****
+
+*   **[*愿魔鬼带走你*](http://www.netflix.com/title/81030893)T5】**
+*   **[*剧组*](http://www.netflix.com/title/80196044)** 
+
+#### ****11 月 16 日****
+
+*   **[*凸轮*](http://www.netflix.com/title/80177400)T5】**
+*   **[*毒枭:墨西哥*](http://www.netflix.com/title/80129824)T5】**
+*   **[*《Ponysitters 俱乐部:第二季*](http://www.netflix.com/title/80989967)**
+*   **[](http://www.netflix.com/title/80223557)**
+*   ***[*She-Ra 与权力公主*](http://www.netflix.com/title/80179861)***
+*   **[*巴斯特·斯克鲁格的歌谣*](http://www.netflix.com/title/80200267)T5】**
+*   ***分手*** 
+*   **[*【康明斯基法】*](http://www.netflix.com/title/80207604)**
+*   **[*公主开关*](http://www.netflix.com/title/80242926)T5** 
+
+#### ****11 月 18 日****
+
+*   ***皮克斯的故事***
+
+#### ****11 月 19 日****
+
+*   **[*《最后的王国》:第三季*](http://www.netflix.com/title/80223909)**
+
+#### ****11 月 20 日****
+
+*   **[*库里帕里:梦行者*](http://www.netflix.com/title/80182551)T5】**
+*   **[](http://www.netflix.com/title/80134642)**
+*   ***[](http://www.netflix.com/title/81021831)***
+*   ***[*期末表*](http://www.netflix.com/title/80201867)***
+*   **[*特雷弗·诺亚:帕特丽夏之子*](http://www.netflix.com/title/80239932)** 
+
+#### ****11 月 21 日****
+
+*   **[](http://www.netflix.com/title/80988835)**
+
+#### *****11 月 22 日*****
+
+*   ****二郎梦见寿司****
+*   **[*神秘科学剧场 3000:战书*](http://www.netflix.com/title/80228031)**
+*   **[](http://www.netflix.com/title/80199682)**
+
+#### *****11 月 23 日*****
+
+*   ***[*《边疆:第三季*](http://www.netflix.com/title/80211886)***
+*   **[](http://www.netflix.com/title/80235858)**
+*   ***[*病假条*](http://www.netflix.com/title/80998907)T5[*病假条:第二季*](http://www.netflix.com/title/80998907)***
+*   **建还是不建:第二季《T2》**
+
+#### ****11 月 25 日****
+
+*   **我的小马友谊是神奇的:有史以来最好的礼物**
+
+#### ****11 月 27 日****
+
+*   **[*与杰夫·罗斯碰撞话筒&戴夫·阿特尔*](http://www.netflix.com/title/80216144)**
+
+#### ****11 月 29 日****
+
+*   ***波科尤:第四季***
+
+#### ****11 月 30 日****
+
+*   **[*1983*](http://www.netflix.com/title/80205694)** 
+*   **[*一位圣诞王子:皇家婚礼*](http://www.netflix.com/title/80238204)** 
+*   **[*宝宝*](http://www.netflix.com/title/80211575)** 
+*   **[*死于魔法*](http://www.netflix.com/title/80191221)T5】**
+*   **[*F 为亲情:第三季*](http://www.netflix.com/title/80185307)** 
+*   **[*快乐如拉扎罗*](http://www.netflix.com/title/81004245)** 
+*   **[](http://www.netflix.com/title/81018377)*T5】***
+*   ***[*《间谍小子:任务关键:第二季*](http://www.netflix.com/title/80117737)*** 
+*   **[*世界是你的*](http://www.netflix.com/title/81021528)**
+*   **[*共享时间*](http://www.netflix.com/title/80991809)** 
+
+## ****最后一次通话****
+
+#### ****11 月 1 日出发****
+
+*   ***集合*
+    集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合集合**
+*   ***交火*** 
+*   ***残忍的意图*** 
+*   ***残忍的意图 2*** 
+*   ***残忍的意图 3*** 
+*   ***地狱男爵 II:黄金军团*** 
+*   ***侏罗纪公园*T2】**
+*   ***《侏罗纪公园三》*** 
+*   ***Oculus*** 
+*   ***现象*** 
+*   ***跑来找我*** 
+*   ***冒烟的王牌 2:刺客联盟*** 
+*   ***钢木兰*** 
+*   ***入侵*T2】**
+*   ***土地先于时间*** 
+*   ***时间 II 之前的土地:大峡谷探险*** 
+*   ***时间 III 之前的土地:伟大给予的时间*** 
+*   ***拉扎勒斯效应*** 
+*   ***失落的世界:侏罗纪公园*** 
+*   ***读者*** 
+*   ***悬而未决*** 
+
+#### ****11 月 12 日出发****
+
+*   ***给卡琳娜***
+
+#### ****11 月 16 日出发****
+
+*   ***帕丁顿***
+
+#### ****11 月 17 日出发****
+
+*   ***卧底老板:第 1-5 季***

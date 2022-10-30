@@ -1,10 +1,10 @@
 # 如何通过网络共享文件夹
 
-> 原文：<https://lifehacker.com/how-to-share-a-folder-over-your-network-5808814>
+> 原文:[https://life hacker . com/how-to-share-a-folder-over-your-network-5808814](https://lifehacker.com/how-to-share-a-folder-over-your-network-5808814)
 
 需要与连接到网络的另一台设备共享文件或文件夹？在机器之间传输文件只需要对计算机的设置做一些更改。在这本初学者指南中，我们将向您展示无论您使用 Windows 还是 Mac OS，如何通过网络共享文件夹。
 
-
+Watch
 
 ### **窗户**
 
@@ -38,4 +38,6 @@
 
 如果你想看到这一切，我们有一个视频带你走过这些步骤。公平的警告:该视频于 2011 年首次发布，虽然步骤和流程没有改变，但视觉效果会有所不同，这取决于您当前运行的系统。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-oLFfN0kPyWk&amp;start=0" data-chomp-id="oLFfN0kPyWk" data-recommend-id="youtube://oLFfN0kPyWk" id="youtube-oLFfN0kPyWk" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="oLFfN0kPyWk" data-recommend-id="youtube://oLFfN0kPyWk" id="youtube-oLFfN0kPyWk" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">本故事最初发表于 2011 年 6 月，并于 2019 年 11 月更新了最新信息。 <br/></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-oLFfN0kPyWk&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-oLFfN0kPyWk&start=0) 
+
+本故事最初发表于 2011 年 6 月，并于 2019 年 11 月更新了最新信息。

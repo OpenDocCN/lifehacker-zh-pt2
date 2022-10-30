@@ -1,9 +1,37 @@
 # 如何找到爱情，媒人弗兰基·巴山博士
 
-> 原文：<https://lifehacker.com/how-to-find-love-with-matchmaker-dr-frankie-bashan-1830990684>
+> 原文:[https://life hacker . com/how-to-find-love-with-match-dr-Frankie-Bashan-1830990684](https://lifehacker.com/how-to-find-love-with-matchmaker-dr-frankie-bashan-1830990684)
 
 在一个充斥着网上约会、鬼影和冷板凳的混乱世界里，我们如何开始寻找真爱呢？弗兰基·巴山 博士告诉我们，为什么人们使用像她这样的真实中介来约会。礼仪专家 [丹尼尔·波斯特·森宁](http://emilypost.com/bio/daniel-post-senning/) 讲述了火绒礼仪的错综复杂。而 Lifehacker 的美食编辑 [Claire Lower](https://skillet.lifehacker.com/) 调制出一款性感的三料鸡尾酒。
 
+Watch
 
+[https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/159ba615-227c-45d4-a927-62e1077cba30/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/159ba615-227c-45d4-a927-62e1077cba30/embed)
 
-<iframe data-src="https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/159ba615-227c-45d4-a927-62e1077cba30/embed" width="640px" height="360px" sandbox="allow-same-origin allow-scripts allow-forms" frameborder="0" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen" class="lazyload" scrolling="yes">T2】</span></p><p class="sc-77igqf-0 bOfvBY">收听上面的升级或者在所有通常提供播客的地方找到我们，包括<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://itunes.apple.com/us/podcast/lifehacker/id508117781?mt=2&quot;,{&quot;metric25&quot;:1}]]" href="https://itunes.apple.com/us/podcast/lifehacker/id508117781?mt=2" target="_blank" rel="noopener noreferrer">苹果播客</a></span><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://play.google.com/music/listen?u=0#/ps/Illldmn6f4jkwb32lslhae3laru&quot;,{&quot;metric25&quot;:1}]]" href="https://play.google.com/music/listen?u=0#/ps/Illldmn6f4jkwb32lslhae3laru" target="_blank" rel="noopener noreferrer">Google Play</a></span><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj&quot;,{&quot;metric25&quot;:1}]]" href="https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj" target="_blank" rel="noopener noreferrer">Spotify</a></span><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.iheart.com/podcast/8-The-Upgrade-by-Lifehacker-28037794/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.iheart.com/podcast/8-The-Upgrade-by-Lifehacker-28037794/" target="_blank" rel="noopener noreferrer">iHeartRadio</a></span><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.stitcher.com/podcast/lifehacker-podcast&quot;,{&quot;metric25&quot;:1}]]" href="https://www.stitcher.com/podcast/lifehacker-podcast" target="_blank" rel="noopener noreferrer">Stitcher</a></span>和 NPR 一号。<br/></p><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><p class="sc-77igqf-0 bOfvBY">如果你喜欢这一集，请在苹果播客上评价和评论我们，因为我们的爱语是“服务”，我们需要你在我们真正感受到你热情的深度之前为我们做些事情。<br/></p><h3 class="sc-1bwb26k-1 kpbNNd" id="h18237">在这一集中</h3><h4 class="sc-1bwb26k-1 kpbNNd" id="h18238">简介(0:00 - 4:53)</h4><p class="sc-77igqf-0 bOfvBY">其中爱丽丝和梅丽莎讨论了“板凳”和“面包烤熟”的概念，以及现在的约会是否真的比过去爱丽丝单身的日子更糟糕。<br/></p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><h4 class="sc-1bwb26k-1 kpbNNd" id="h18239">弗兰基·巴山博士的采访(5:01 - 30:20)</h4><p class="sc-77igqf-0 bOfvBY">我们与弗兰基博士讨论了在约会生活中设定适当的期望值，什么应该和不应该成为交易的破坏者，以及如何在网上约会中生存——或者放弃互联网肉类市场，在现实生活中寻找朋友。<br/></p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><h4 class="sc-1bwb26k-1 kpbNNd" id="h18240">三种成分的鸡尾酒:马提尼(32:30 - 35:05)</h4><p class="sc-77igqf-0 bOfvBY">克莱尔认为没有什么比一杯完美的马丁尼酒更诱人了，我们有什么好争论的呢？</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h18241">科技礼仪:在 Tinder 上应该如何表现？(35:15 - 51:42)</h4><p class="sc-77igqf-0 bOfvBY">在这一部分中，执行主编 Virginia K. Smith 采访了丹尼尔·波斯特·森宁，艾米丽·波斯特的曾曾孙和<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://emilypost.com/awesome-etiquette-podcast/&quot;,{&quot;metric25&quot;:1}]]" href="http://emilypost.com/awesome-etiquette-podcast/" target="_blank" rel="noopener noreferrer">令人敬畏的礼仪播客</a> </span>的共同主持人，讨论如何在 Tinder 上表现。听好了，火绒重影爱好者们！(鬼？幽灵？)<br/></p><h4 class="sc-1bwb26k-1 kpbNNd" id="h18242">本周升级(51:49 - 55:20)</h4><p class="sc-77igqf-0 bOfvBY">每周我们都会谈论一件对我们的生活产生重大影响的小事。本周:在 Etsy 上购买<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.etsy.com/shop/laplantaholic?fbclid=IwAR3jrCL4NeoDlDH7FljarSu7IlBMOOe8_N93tU9_-UPdL9KdyAxU-iWl7cg&quot;,{&quot;metric25&quot;:1}]]" href="https://www.etsy.com/shop/laplantaholic?fbclid=IwAR3jrCL4NeoDlDH7FljarSu7IlBMOOe8_N93tU9_-UPdL9KdyAxU-iWl7cg" target="_blank" rel="noopener noreferrer">大植物，减少酒精消费，在受到这位<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.instagram.com/enbrogue/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.instagram.com/enbrogue/" target="_blank" rel="noopener noreferrer">时尚博主</a> </span>的启发后，拥抱平底鞋生活方式。<br/></a></span></p> </body> </html></iframe>
+T2】
+
+收听上面的升级或者在所有通常提供播客的地方找到我们，包括 [苹果播客](https://itunes.apple.com/us/podcast/lifehacker/id508117781?mt=2)[Google Play](https://play.google.com/music/listen?u=0#/ps/Illldmn6f4jkwb32lslhae3laru)[Spotify](https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj)[iHeartRadio](https://www.iheart.com/podcast/8-The-Upgrade-by-Lifehacker-28037794/)[Stitcher](https://www.stitcher.com/podcast/lifehacker-podcast)和 NPR 一号。
+
+如果你喜欢这一集，请在苹果播客上评价和评论我们，因为我们的爱语是“服务”，我们需要你在我们真正感受到你热情的深度之前为我们做些事情。
+
+### 在这一集中
+
+#### 简介(0:00 - 4:53)
+
+其中爱丽丝和梅丽莎讨论了“板凳”和“面包烤熟”的概念，以及现在的约会是否真的比过去爱丽丝单身的日子更糟糕。
+
+#### 弗兰基·巴山博士的采访(5:01 - 30:20)
+
+我们与弗兰基博士讨论了在约会生活中设定适当的期望值，什么应该和不应该成为交易的破坏者，以及如何在网上约会中生存——或者放弃互联网肉类市场，在现实生活中寻找朋友。
+
+#### 三种成分的鸡尾酒:马提尼(32:30 - 35:05)
+
+克莱尔认为没有什么比一杯完美的马丁尼酒更诱人了，我们有什么好争论的呢？
+
+#### 科技礼仪:在 Tinder 上应该如何表现？(35:15 - 51:42)
+
+在这一部分中，执行主编 Virginia K. Smith 采访了丹尼尔·波斯特·森宁，艾米丽·波斯特的曾曾孙和 [令人敬畏的礼仪播客](http://emilypost.com/awesome-etiquette-podcast/) 的共同主持人，讨论如何在 Tinder 上表现。听好了，火绒重影爱好者们！(鬼？幽灵？)
+
+#### 本周升级(51:49 - 55:20)
+
+每周我们都会谈论一件对我们的生活产生重大影响的小事。本周:在 Etsy 上购买 [大植物，减少酒精消费，在受到这位](https://www.etsy.com/shop/laplantaholic?fbclid=IwAR3jrCL4NeoDlDH7FljarSu7IlBMOOe8_N93tU9_-UPdL9KdyAxU-iWl7cg) [时尚博主](https://www.instagram.com/enbrogue/) 的启发后，拥抱平底鞋生活方式。

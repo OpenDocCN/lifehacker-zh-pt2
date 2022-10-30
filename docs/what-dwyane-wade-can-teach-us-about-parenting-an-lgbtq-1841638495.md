@@ -1,10 +1,10 @@
 # Dwyane Wade 可以教我们如何养育一个 LGBTQ+的孩子
 
-> 原文：<https://lifehacker.com/what-dwyane-wade-can-teach-us-about-parenting-an-lgbtq-1841638495>
+> 原文:[https://life hacker . com/what-Dwyane-wade-can-teach-us-about-parenting-an-lgbtq-1841638495](https://lifehacker.com/what-dwyane-wade-can-teach-us-about-parenting-an-lgbtq-1841638495)
 
 前 NBA 球星德维恩·韦德(Dwyane Wade)与艾伦·德杰尼勒斯(Ellen DeGeneres)的对话片段本周在社交媒体上传播，这是一个温暖人心的例子，说明了如果孩子告诉他们自己是 LGBTQ+，每个父母应该如何反应。
 
-
+Watch
 
 当韦德的孩子——现在用 Zaya 这个名字，并使用她/她的代词——向她的父亲和他的妻子，演员加布里艾尔·尤尼恩询问这一变化时，他们做了三件事，可以作为我们其余人简单而有效的蓝图。
 
@@ -14,4 +14,22 @@
 
 > 我们非常认真地对待我们作为父母的角色和责任。所以，当我们的孩子带着问题回家时，当我们的孩子带着问题回家时，当我们的孩子带着任何东西回家时，作为父母，我们的工作是倾听他们，尽我们所能给他们最好的信息，最好的反馈，这不会因为性[或性别]现在涉及其中而改变。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-AG9-Q6UabfQ&amp;start=0" data-chomp-id="AG9-Q6UabfQ" data-recommend-id="youtube://AG9-Q6UabfQ" id="youtube-AG9-Q6UabfQ" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="AG9-Q6UabfQ" data-recommend-id="youtube://AG9-Q6UabfQ" id="youtube-AG9-Q6UabfQ" data-recommended="false" class="js_recommend"/></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h286464">给予无条件支持</h3><p class="sc-77igqf-0 bOfvBY">如果您的孩子认同 LGBTQ+，这是一个机会，不仅可以作为个人支持他们，还可以为整个社区提供支持和倡导。特别是作为公众人物，韦德的家人似乎已经明白他们在提高更广泛的 LGBTQ+社区的意识和接受度方面可以发挥的重要作用。他说:</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">有一次 Zaya 回家说:“嘿，叫我 Zaya，我准备好接受这个任务了，”我看着她说:“你是一个领导者。你是领导者，这是我们允许你发出声音的机会。”现在，是通过我们，因为她才 12 岁，但最终会是通过她。</p></blockquote><h3 class="sc-1bwb26k-1 kpbNNd" id="h286465">用信息武装自己</h3><p class="sc-77igqf-0 bOfvBY">你已经倾听了，你已经支持了，现在是时候教育你自己这个身份对你的孩子和他们的未来意味着什么。韦德说，他和他的妻子正在尽可能地获取信息，尤其是从社区内部的人那里:</p><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">现在我们的工作是...出去获取信息，接触我们所有的关系。我的妻子在[LGBTQ+show]<span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.imdb.com/title/tt7562112/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.imdb.com/title/tt7562112/" target="_blank" rel="noopener noreferrer"><em>Pose</em></a></span>的剧组里向大家伸出了手。我们只是试图找出尽可能多的信息，以确保我们给我们的孩子最好的机会成为她最好的自己。</p></blockquote><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">德杰尼勒斯还提到，韦德和他的家人正在与 GLSEN 组织 密切合作，该组织旨在为 LGBTQ 青年创造肯定的学习环境，并可以成为这些儿童及其亲人的良好资源。</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><small> <em>遇见地球上最聪明的父母！加入我们的</em> </small> <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.facebook.com/groups/2018785615043946/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.facebook.com/groups/2018785615043946/" target="_blank" rel="noopener noreferrer"> <small> <em>育儿脸书群</em> </small> </a> </span> <small> <em>。</em>T15】</small></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-AG9-Q6UabfQ&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-AG9-Q6UabfQ&start=0) 
+
+### 给予无条件支持
+
+如果您的孩子认同 LGBTQ+，这是一个机会，不仅可以作为个人支持他们，还可以为整个社区提供支持和倡导。特别是作为公众人物，韦德的家人似乎已经明白他们在提高更广泛的 LGBTQ+社区的意识和接受度方面可以发挥的重要作用。他说:
+
+> 有一次 Zaya 回家说:“嘿，叫我 Zaya，我准备好接受这个任务了，”我看着她说:“你是一个领导者。你是领导者，这是我们允许你发出声音的机会。”现在，是通过我们，因为她才 12 岁，但最终会是通过她。
+
+### 用信息武装自己
+
+你已经倾听了，你已经支持了，现在是时候教育你自己这个身份对你的孩子和他们的未来意味着什么。韦德说，他和他的妻子正在尽可能地获取信息，尤其是从社区内部的人那里:
+
+> 现在我们的工作是...出去获取信息，接触我们所有的关系。我的妻子在[LGBTQ+show][*Pose*](https://www.imdb.com/title/tt7562112/)的剧组里向大家伸出了手。我们只是试图找出尽可能多的信息，以确保我们给我们的孩子最好的机会成为她最好的自己。
+
+德杰尼勒斯还提到，韦德和他的家人正在与 GLSEN 组织 密切合作，该组织旨在为 LGBTQ 青年创造肯定的学习环境，并可以成为这些儿童及其亲人的良好资源。
+
+* * *
+
+<small>*遇见地球上最聪明的父母！加入我们的*</small> [<small>*育儿脸书群*</small>](https://www.facebook.com/groups/2018785615043946/) <small>*。*T15】</small>

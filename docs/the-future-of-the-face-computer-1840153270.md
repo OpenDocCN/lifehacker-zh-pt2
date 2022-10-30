@@ -1,12 +1,12 @@
 # 人脸计算机的未来
 
-> 原文：<https://gizmodo.com/the-future-of-the-face-computer-1840153270>
+> 原文:[https://gizmodo . com/the-future-of-the-face-computer-1840153270](https://gizmodo.com/the-future-of-the-face-computer-1840153270)
 
 对于消费者来说，智能眼镜无疑有一个艰难的开端。简单概括一下，它们很贵，看起来很傻，而且在现实生活中，它们不符合流行文化中为我们描绘的幻想。尽管像谷歌眼镜这样的东西技术先进，但第一次迭代与我们在电影中看到的完全不同。例如，你不能简单地看着一个人并了解他的一切。
 
 简而言之，智能眼镜是需要解决问题的解决方案。这是我们采访过的大多数专家(如果不是全部的话)都认同的结论。对于消费者来说，没有一个“杀手级应用”或令人信服的用例来抵消所有的负面影响。除了在企业方面。
 
-
+<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled The Future of the Face Computer](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://gizmodo.com/how-science-fiction-ruined-smart-glasses-1840035930)</aside>
 
 虽然谷歌眼镜受到了公众的追捧，但它实际上正受到企业的青睐。想想装配线上的工厂工人，建筑 3D 模型的建筑师，或者医院里的医生。这就是谷歌重新开始的原因。谷歌眼镜的消费者试点项目在 2015 年被关闭，它被并入 X——谷歌称之为“月球工厂”的实验室。企业版 [于 2017 年](https://gizmodo.com/google-glass-is-back-with-a-new-trick-it-doesnt-suck-at-1797017601) 首次亮相。快进到 2019 年，X 已经 [推出了 Glass 企业版的第二次迭代](https://gizmodo.com/google-glass-gets-a-fresh-update-with-more-powerful-gut-1834897004) 。
 
@@ -40,4 +40,10 @@ Frog Design 的设计师查克·尤斯特(Chuck Yust)表示:“真正推动用�
 
 “我们已经有能力生活在自己的现实中，”科幻小说家和未来学家玛德琳·阿什比说。“创造我们自己的现实，生活在我们的现实中，排斥他人，排斥事实——然后你会遇到其他问题。我认为这不仅让人们对智能眼镜感到紧张，也让人们对增强现实、虚拟现实和选择其他现实感到紧张。”
 
-<iframe data-src="https://gizmodo.com/embed/inset/iframe?id=youtube-video-Q4sLWqyRTig&amp;start=0" data-chomp-id="Q4sLWqyRTig" data-recommend-id="youtube://Q4sLWqyRTig" id="youtube-Q4sLWqyRTig" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="Q4sLWqyRTig" data-recommend-id="youtube://Q4sLWqyRTig" id="youtube-Q4sLWqyRTig" data-recommended="false" class="js_recommend"/></span><figcaption class="sc-1ptbguh-0 hxeMec caption">Part 1 of our 2-part series on the relationship between smart glasses and science fiction.</figcaption></div><p class="sc-77igqf-0 bOfvBY">尽管有这些疑虑，智能眼镜不会有任何发展。除了谷歌和微软，更多的科技巨头正在探索这一领域。<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 kVnoAv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://techcrunch.com/2019/12/10/north-ending-production-of-current-focals-smart-glasses-to-focus-on-focals-2-0/&quot;,{&quot;metric25&quot;:1}]]" href="https://techcrunch.com/2019/12/10/north-ending-production-of-current-focals-smart-glasses-to-focus-on-focals-2-0/" target="_blank" rel="noopener noreferrer">北天前刚刚公布了第二代眼镜</a> </span>。据传脸书正在<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 kVnoAv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://gizmodo.com/facebook-partners-with-ray-ban-to-help-make-its-smart-g-1838214062&quot;,{&quot;metric25&quot;:1}]]" href="https://gizmodo.com/facebook-partners-with-ray-ban-to-help-make-its-smart-g-1838214062">制作一副 AR 眼镜</a> </span>。有无数传言称，苹果将在 2022 年或 2023 年的某个时候拥有一对<span></span>。今年早些时候，亚马逊发布了一款科技含量更低的版本。也许他们中的一个会破解它——也许不会。毕竟，他们仍然需要找到一个杀手级应用，舒适而可定制的外形，并将价格降低到相对可承受的水平。除了硬件挑战，还有隐私、安全和监控等社会问题。在一家公司能够创造出一种足够令人信服的设备来弥合所有这些差距之前，智能眼镜最好还是一部科幻小说。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h286659"><em>订阅 YouTube 上的</em><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 kVnoAv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.youtube.com/channel/UCxFmw3IUMDUC1Hh7qDjtjZQ&quot;,{&quot;metric25&quot;:1}]]" href="https://www.youtube.com/channel/UCxFmw3IUMDUC1Hh7qDjtjZQ" target="_blank" rel="noopener noreferrer"><em>Gizmodo</em></a></span><em>获取科技深度潜水、评论等。</em></h4> </body> </html></iframe>
+ [https://gizmodo.com/embed/inset/iframe?id=youtube-video-Q4sLWqyRTig&start=0](https://gizmodo.com/embed/inset/iframe?id=youtube-video-Q4sLWqyRTig&start=0)
+
+<figcaption class="sc-1ptbguh-0 hxeMec caption">Part 1 of our 2-part series on the relationship between smart glasses and science fiction.</figcaption> 
+
+尽管有这些疑虑，智能眼镜不会有任何发展。除了谷歌和微软，更多的科技巨头正在探索这一领域。 [北天前刚刚公布了第二代眼镜](https://techcrunch.com/2019/12/10/north-ending-production-of-current-focals-smart-glasses-to-focus-on-focals-2-0/) 。据传脸书正在 [制作一副 AR 眼镜](https://gizmodo.com/facebook-partners-with-ray-ban-to-help-make-its-smart-g-1838214062) 。有无数传言称，苹果将在 2022 年或 2023 年的某个时候拥有一对。今年早些时候，亚马逊发布了一款科技含量更低的版本。也许他们中的一个会破解它——也许不会。毕竟，他们仍然需要找到一个杀手级应用，舒适而可定制的外形，并将价格降低到相对可承受的水平。除了硬件挑战，还有隐私、安全和监控等社会问题。在一家公司能够创造出一种足够令人信服的设备来弥合所有这些差距之前，智能眼镜最好还是一部科幻小说。
+
+#### *订阅 YouTube 上的*[*Gizmodo*](https://www.youtube.com/channel/UCxFmw3IUMDUC1Hh7qDjtjZQ)*获取科技深度潜水、评论等。*

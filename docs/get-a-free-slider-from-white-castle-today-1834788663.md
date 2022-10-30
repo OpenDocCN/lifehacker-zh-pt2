@@ -1,11 +1,25 @@
 # 今天就从白色城堡获得免费滑梯
 
-> 原文：<https://lifehacker.com/get-a-free-slider-from-white-castle-today-1834788663>
+> 原文:[https://life hacker . com/get-a-free-slider-from-white-castle-today-1834788663](https://lifehacker.com/get-a-free-slider-from-white-castle-today-1834788663)
 
 如果你错过了昨天阿根-达斯 的 [免费蛋卷冰淇淋，现在是你救赎自己的机会——用](https://lifehacker.com/get-a-free-ice-cream-cone-at-haagen-dazs-today-1834726847) [白色城堡](https://www.whitecastle.com/locations) 的免费滑盖和可乐。
 
-
+Watch
 
 五月是全国汉堡月，但今天是庆祝最小汉堡的日子:滑块。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1128661325788340224&amp;autosize=1" autoresize="true" id="twitter-1128661325788340224" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">这笔交易只在今天有效，而且只在原始滑块上有效；如果你想变得更有爱好，比如说，不可能的滑块或鸡圈滑块，你必须自己跳起来。</p><p class="sc-77igqf-0 bOfvBY">要获得这笔交易，请前往白色城堡网站上的“<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.whitecastle.com/value-offers&quot;,{&quot;metric25&quot;:1}]]" href="https://www.whitecastle.com/value-offers" target="_blank" rel="noopener noreferrer">超值优惠</a> </span>”部分，然后点击<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.whitecastle.com/value-offers/9307de1e-ad2c-4bc1-b2d6-e67430c19b1e&quot;,{&quot;metric25&quot;:1}]]" href="https://www.whitecastle.com/value-offers/9307de1e-ad2c-4bc1-b2d6-e67430c19b1e" target="_blank" rel="noopener noreferrer">今日滑块和饮品券</a> </span>。你可以打印或者通过电子邮件发送到你的手机上。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">如果你没有<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.whitecastle.com/locations&quot;,{&quot;metric25&quot;:1}]]" href="https://www.whitecastle.com/locations" target="_blank" rel="noopener noreferrer">白色城堡所在地</a> </span>靠近你(伤心！)，<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://people.com/food/white-castle-free-sliders-national-slider-day/?utm_medium=social&amp;xid=socialflow_twitter_peoplemag&amp;utm_campaign=peoplemagazine&amp;utm_source=twitter.com&quot;,{&quot;metric25&quot;:1}]]" href="https://people.com/food/white-castle-free-sliders-national-slider-day/?utm_medium=social&amp;xid=socialflow_twitter_peoplemag&amp;utm_campaign=peoplemagazine&amp;utm_source=twitter.com" target="_blank" rel="noopener noreferrer">该公司告诉 People.com</a></span>从冷冻食品通道购买滑块的顾客也可以获得一笔交易——这项交易将持续一个月:</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">对于杂货店的顾客来说，白色城堡还有另一项交易:当你在冷冻区购买两盒任何四或六计数滑块并使用 Checkout51 应用程序时，你将在结账时获得 1 美元的现金返还。</p></blockquote><p class="sc-77igqf-0 bOfvBY">它们可能很小——只有 2x2 英寸——但是，嘿，它们是免费的。</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><small> <em>更多来自 Lifehacker，一定要在 Instagram 上关注我们</em></small><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.instagram.com/lifehackerdotcom/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.instagram.com/lifehackerdotcom/" target="_blank" rel="noopener noreferrer"><small><em>@ lifehackerdotcom</em></small></a></span><small><em>。</em> </small> <br/></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1128661325788340224&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1128661325788340224&autosize=1) 
+
+这笔交易只在今天有效，而且只在原始滑块上有效；如果你想变得更有爱好，比如说，不可能的滑块或鸡圈滑块，你必须自己跳起来。
+
+要获得这笔交易，请前往白色城堡网站上的“ [超值优惠](https://www.whitecastle.com/value-offers) ”部分，然后点击 [今日滑块和饮品券](https://www.whitecastle.com/value-offers/9307de1e-ad2c-4bc1-b2d6-e67430c19b1e) 。你可以打印或者通过电子邮件发送到你的手机上。
+
+如果你没有 [白色城堡所在地](https://www.whitecastle.com/locations) 靠近你(伤心！)， [该公司告诉 People.com](https://people.com/food/white-castle-free-sliders-national-slider-day/?utm_medium=social&xid=socialflow_twitter_peoplemag&utm_campaign=peoplemagazine&utm_source=twitter.com)从冷冻食品通道购买滑块的顾客也可以获得一笔交易——这项交易将持续一个月:
+
+> 对于杂货店的顾客来说，白色城堡还有另一项交易:当你在冷冻区购买两盒任何四或六计数滑块并使用 Checkout51 应用程序时，你将在结账时获得 1 美元的现金返还。
+
+它们可能很小——只有 2x2 英寸——但是，嘿，它们是免费的。
+
+* * *
+
+<small>*更多来自 Lifehacker，一定要在 Instagram 上关注我们*</small>[<small>*@ lifehackerdotcom*</small>](https://www.instagram.com/lifehackerdotcom/)<small>*。*</small>

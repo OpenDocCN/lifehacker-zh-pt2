@@ -1,7 +1,68 @@
 # 2019 年 6 月 10 日这一周，网飞有哪些活动
 
-> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-june-10-1835336672>
+> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of-June-10-1835336672](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-june-10-1835336672)
 
 你看过杰出的马丁·斯科塞斯关于滚石乐队的纪录片《照亮一盏灯》吗？为了喜欢这部电影，你甚至不必是一个石头迷。嗯，斯科塞斯又让一个摇滚医生去网飞了，这次是关于鲍勃·迪伦的。*滚雷时事讽刺剧*(周三)讲述的是迪伦 1975 年组织不善的小型巡回演出，琼·贝兹、乔尼·米切尔和《漫步者》的杰克·艾略特等好友参加了演出。如果你是迪伦的人，我看不出这有什么不好。如果你不是，它仍然值得一看，因为这个斯科塞斯的孩子是一个真正的后起之秀，有着美好的未来。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-PS4gsWDSn68&amp;start=0" data-chomp-id="PS4gsWDSn68" data-recommend-id="youtube://PS4gsWDSn68" id="youtube-PS4gsWDSn68" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="PS4gsWDSn68" data-recommend-id="youtube://PS4gsWDSn68" id="youtube-PS4gsWDSn68" data-recommended="false" class="js_recommend"/></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h296438"><br/></h3><h3 class="sc-1bwb26k-1 kpbNNd" id="h296439">本周到达</h3><h4 class="sc-1bwb26k-1 kpbNNd" id="h296440"><strong>6 月 11 日星期二</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>拉尔夫断网</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h296441"><strong>6 月 12 日星期三</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>乔·科伊:火热来袭——网飞原创</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80221016&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80221016" target="_blank" rel="noopener noreferrer"> <em>【滚雷 Revue:一个鲍勃·迪伦的故事】马丁·斯科塞斯</em></a></span><em>——网飞电影</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h296442"><strong>6 月 13 日星期四</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81088277&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81088277" target="_blank" rel="noopener noreferrer"> <em>第三眼 2 </em> </a> </span> <em> —网飞电影</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80220816&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80220816" target="_blank" rel="noopener noreferrer"> <em>金</em> </a> </span> <em> —网飞原著</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80175351&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80175351" target="_blank" rel="noopener noreferrer"> <em>卡卡古瑞 xx </em> </a> </span> <em> —网飞动漫</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h296443"><strong>6 月 14 日星期五</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80198505&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80198505" target="_blank" rel="noopener noreferrer"> <em> Aggretsuko:第二季</em> </a> </span> <em> —网飞动漫</em></li><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80213115&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80213115" target="_blank" rel="noopener noreferrer"><em/></a></span><em>—网飞原著</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80213322&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80213322" target="_blank" rel="noopener noreferrer"> <em>清醒:百万美元游戏</em> </a> </span> <em> —网飞原创</em></li><li><em>战争中的查理特——网飞原作</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80245601&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80245601" target="_blank" rel="noopener noreferrer"> <em>灰姑娘流行</em> </a> </span> <em> —网飞电影</em></li><li><em>女友离婚指南:第五季</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80222951&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80222951" target="_blank" rel="noopener noreferrer"> <em>莱拉</em> </a> </span> <em> —网飞原创</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81034980&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81034980" target="_blank" rel="noopener noreferrer"> <em>人生超越我</em> </a> </span> <em> —网飞原创</em></li><li>马龙:第二季</li><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80242619&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80242619" target="_blank" rel="noopener noreferrer"><em/></a></span><em>—网飞电影</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81027195&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81027195" target="_blank" rel="noopener noreferrer"> <em>【单元 42】</em></a></span><em>—原始 netflix】</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h296444"><strong>6 月 15 日星期六</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>《实习医生格蕾》第十五季</li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h296445"><strong>6 月 16 日星期日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>警车</em> <br/></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h296446">本周离开<br/></h3><h4 class="sc-1bwb26k-1 kpbNNd" id="h296447"><strong>6 月 14 日出发</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>大设计:澳大利亚:第四季</em></li><li><em>我拥有澳大利亚最好的家:第一季</em></li><li>《我拥有英国最好的家》第一季</li><li><em>母亲</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h296448"><strong>6 月 15 日出发</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>现代启示录</em></li><li>极简主义:关于重要事物的纪录片</li><li><em>国家讽刺漫画家范·怀尔德</em></li><li><em>钢琴家</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h296449"><strong>6 月 16 日出发</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>死亡竞赛</em></li></ul><div class="bxm4mm-2 hKBnez"><div class="bxm4mm-1 goloRq instream-native-video instream-permalink instream-native-video--mobile"><div class="sc-1h0epat-0 lepUzz"><div class="sc-1h0epat-1 gRjwiT"><div class="sc-235a11-0 egwski">Watch</div></div><div class="sc-1wkneyl-0 hxLRyg video-html5-playlist" data-playlist="192590,192585,192428" data-current="192590"><div class="video-html5-loaded"><div class="video-html5-player"><div class="lhhce6-0 bVyOPq video-html5 autoplay muted mobile" data-video-id="192590" data-position="sidebar" data-video-title="How to Make a Quick and Easy Crumb Crust" data-video-network="lifehacker" data-video-duration="135"></div></div></div></div></div></div></div><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><div id="mgid-container" data-placement="1" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-PS4gsWDSn68&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-PS4gsWDSn68&start=0) 
+
+### 本周到达
+
+#### **6 月 11 日星期二**
+
+*   *拉尔夫断网*
+
+#### **6 月 12 日星期三**
+
+*   *乔·科伊:火热来袭——网飞原创*
+*   [*【滚雷 Revue:一个鲍勃·迪伦的故事】马丁·斯科塞斯*](https://www.netflix.com/title/80221016)*——网飞电影*
+
+#### **6 月 13 日星期四**
+
+*   [*第三眼 2*](https://www.netflix.com/title/81088277) *—网飞电影*
+*   [*金*](https://www.netflix.com/title/80220816) *—网飞原著*
+*   [*卡卡古瑞 xx*](https://www.netflix.com/title/80175351) *—网飞动漫*
+
+#### **6 月 14 日星期五**
+
+*   [*Aggretsuko:第二季*](https://www.netflix.com/title/80198505) *—网飞动漫*
+*   [](https://www.netflix.com/title/80213115)**—网飞原著**
+*   *[*清醒:百万美元游戏*](https://www.netflix.com/title/80213322) *—网飞原创**
+*   **战争中的查理特——网飞原作**
+*   *[*灰姑娘流行*](https://www.netflix.com/title/80245601) *—网飞电影**
+*   **女友离婚指南:第五季**
+*   *[*莱拉*](https://www.netflix.com/title/80222951) *—网飞原创**
+*   *[*人生超越我*](https://www.netflix.com/title/81034980) *—网飞原创**
+*   *马龙:第二季*
+*   *[](https://www.netflix.com/title/80242619)**—网飞电影***
+*   **[*【单元 42】*](https://www.netflix.com/title/81027195)*—原始 netflix】***
+
+#### ****6 月 15 日星期六****
+
+*   **《实习医生格蕾》第十五季**
+
+#### ****6 月 16 日星期日****
+
+*   ***警车*** 
+
+### **本周离开** 
+
+#### ****6 月 14 日出发****
+
+*   ***大设计:澳大利亚:第四季***
+*   ***我拥有澳大利亚最好的家:第一季***
+*   **《我拥有英国最好的家》第一季**
+*   ***母亲***
+
+#### ****6 月 15 日出发****
+
+*   ***现代启示录***
+*   **极简主义:关于重要事物的纪录片**
+*   ***国家讽刺漫画家范·怀尔德***
+*   ***钢琴家***
+
+#### ****6 月 16 日出发****
+
+*   ***死亡竞赛***
+
+**Watch**

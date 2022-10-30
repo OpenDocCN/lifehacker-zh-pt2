@@ -1,10 +1,10 @@
 # 如何在智能手机上运行诊断测试
 
-> 原文：<https://lifehacker.com/how-to-run-diagnostics-tests-on-your-smartphone-1834010973>
+> 原文:[https://life hacker . com/how-to-run-diagnostics-tests-on-your-smart phone-1834010973](https://lifehacker.com/how-to-run-diagnostics-tests-on-your-smartphone-1834010973)
 
 如果你从未在自己的智能手机上运行过诊断测试，那么这是值得的——特别是当你的手机开始显示其年龄时，或者如果你二手购买了一部“新”智能手机，并想感受一下它的状况。
 
-
+Watch
 
 当你的设备效率降低时，诊断工具也很有帮助，但是你不能确定原因。诊断扫描可以准确地指出手机的问题，或者至少提供足够的数据为您指明正确的方向，而不是使用猜测来排除手机的各种功能，直到您偶然找到解决方案。
 
@@ -37,4 +37,20 @@
 
 ### TestM ( [安卓](https://play.google.com/store/apps/details?id=com.testm.full&hl=en) 和 [iOS](https://itunes.apple.com/us/app/testm-check-phone-report/id1242371446?mt=8) )
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-7UBgKyb1hHI&amp;start=0" data-chomp-id="7UBgKyb1hHI" data-recommend-id="youtube://7UBgKyb1hHI" id="youtube-7UBgKyb1hHI" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="7UBgKyb1hHI" data-recommend-id="youtube://7UBgKyb1hHI" id="youtube-7UBgKyb1hHI" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">这个应用程序可以让你在 iPhone 和 Android 设备上运行快速评估和全面的硬件诊断。全扫描执行简单的动作，测试你的手机的主要硬件功能，包括摄像头；电池和充电；机载传感器；以及定位、蓝牙和蜂窝连接的性能。</p><p class="sc-77igqf-0 bOfvBY">每个测试都很简单，结果也很容易阅读。如果扫描发现有问题，该应用程序可以给你推荐附近的维修店。TestM 唯一的主要缺点是它在每次测试之间都会播放广告，这很烦人。一个高级的无广告版本可以 18 美元解锁，但这是一个很高的价格。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h18770">手机检查和测试(<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://play.google.com/store/apps/details?id=com.inpocketsoftware.andTest&amp;hl=en&quot;,{&quot;metric25&quot;:1}]]" href="https://play.google.com/store/apps/details?id=com.inpocketsoftware.andTest&amp;hl=en" target="_blank" rel="noopener noreferrer">安卓</a> </span>)</h3><p class="sc-77igqf-0 bOfvBY">手机检查和测试是一个看起来简单的应用程序，但它的功能远远不止检查你的手机硬件“工作”全面扫描包括深入的 CPU、存储和电池诊断，测试读数非常详细。这使得电话检查和测试没有 TestM 那么用户友好，但它是一个优秀的故障诊断工具，为您提供了大量的数据。<br/></p><p class="sc-77igqf-0 bOfvBY">虽然免费版本包含广告，但它们很少，你只需花 2 美元就可以升级到 Plus 来删除它们。Plus 版本还增加了一些测试工具，并允许您分别对每个硬件运行独立的测试，这比全面的系统扫描节省了时间。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h18771">电话诊断(<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://itunes.apple.com/us/app/phone-diagnostics/id1171677218?mt=8&quot;,{&quot;metric25&quot;:1}]]" href="https://itunes.apple.com/us/app/phone-diagnostics/id1171677218?mt=8" target="_blank" rel="noopener noreferrer"> iOS </a> </span>)</h3><p class="sc-77igqf-0 bOfvBY">就像 Android 手机的 TestM 应用程序一样，手机诊断有时可能充满广告，但隐藏在所有这些背后的是一套可靠的硬件功能测试。完整测试会根据您正在使用的 iPhone 型号测试所有主要的硬件功能。</p><p class="sc-77igqf-0 bOfvBY">与我们列出的其他应用程序不同，电话诊断允许用户对 iPhone 上的任何硬件功能进行即时独立测试，而不需要付费升级。<br/></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-7UBgKyb1hHI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-7UBgKyb1hHI&start=0) 
+
+这个应用程序可以让你在 iPhone 和 Android 设备上运行快速评估和全面的硬件诊断。全扫描执行简单的动作，测试你的手机的主要硬件功能，包括摄像头；电池和充电；机载传感器；以及定位、蓝牙和蜂窝连接的性能。
+
+每个测试都很简单，结果也很容易阅读。如果扫描发现有问题，该应用程序可以给你推荐附近的维修店。TestM 唯一的主要缺点是它在每次测试之间都会播放广告，这很烦人。一个高级的无广告版本可以 18 美元解锁，但这是一个很高的价格。
+
+### 手机检查和测试( [安卓](https://play.google.com/store/apps/details?id=com.inpocketsoftware.andTest&hl=en) )
+
+手机检查和测试是一个看起来简单的应用程序，但它的功能远远不止检查你的手机硬件“工作”全面扫描包括深入的 CPU、存储和电池诊断，测试读数非常详细。这使得电话检查和测试没有 TestM 那么用户友好，但它是一个优秀的故障诊断工具，为您提供了大量的数据。
+
+虽然免费版本包含广告，但它们很少，你只需花 2 美元就可以升级到 Plus 来删除它们。Plus 版本还增加了一些测试工具，并允许您分别对每个硬件运行独立的测试，这比全面的系统扫描节省了时间。
+
+### 电话诊断( [iOS](https://itunes.apple.com/us/app/phone-diagnostics/id1171677218?mt=8) )
+
+就像 Android 手机的 TestM 应用程序一样，手机诊断有时可能充满广告，但隐藏在所有这些背后的是一套可靠的硬件功能测试。完整测试会根据您正在使用的 iPhone 型号测试所有主要的硬件功能。
+
+与我们列出的其他应用程序不同，电话诊断允许用户对 iPhone 上的任何硬件功能进行即时独立测试，而不需要付费升级。

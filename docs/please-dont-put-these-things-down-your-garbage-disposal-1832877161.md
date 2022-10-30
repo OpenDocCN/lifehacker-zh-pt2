@@ -1,11 +1,45 @@
 # 请不要把这些东西放进你的垃圾处理器
 
-> 原文：<https://lifehacker.com/please-dont-put-these-things-down-your-garbage-disposal-1832877161>
+> 原文:[https://life hacker . com/please-don-put-things-down-your-garbage-disposal-1832877161](https://lifehacker.com/please-dont-put-these-things-down-your-garbage-disposal-1832877161)
 
 垃圾处理器被设计用来处理大量的垃圾，但是远没有一些人所说的。尽管它们看起来很神奇，但这些强大的机器确实有其局限性——如果使用不当，你可能会像没有一样损坏你的管道。
 
-
+Watch
 
 每个人都知道某些东西不属于垃圾处理器，但令人惊讶的是，很难得到一个关于这些东西到底是什么的直接答案。区分哪些东西可以处理，哪些不可以处理的最简单的方法是对它们的工作原理有一个大致的了解。很多人认为垃圾处理器有像搅拌机一样的旋转叶片，但实际上它们更接近平毛刺咖啡研磨机。当马达转动时，它迫使主处理室中的食物颗粒通过周边的一系列孔，将它们破碎成微小的颗粒。从那里，食物流入废水管道，开始它快乐的旅程:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-aPhizjllzfA&amp;start=0" data-chomp-id="aPhizjllzfA" data-recommend-id="youtube://aPhizjllzfA" id="youtube-aPhizjllzfA" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="aPhizjllzfA" data-recommend-id="youtube://aPhizjllzfA" id="youtube-aPhizjllzfA" data-recommended="false" class="js_recommend"/></span><figcaption class="sc-1ptbguh-0 hxeMec caption">Video via <span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.youtube.com/watch?v=aPhizjllzfA&quot;,{&quot;metric25&quot;:1}]]" href="https://www.youtube.com/watch?v=aPhizjllzfA" target="_blank" rel="noopener noreferrer">This Old House on YouTube</a></span>.</figcaption></div><p class="sc-77igqf-0 bOfvBY">最终，你的垃圾处理器只是你厨房水槽<span></span>的一个花哨的前门:你放进去的所有东西最终都会进入你的管道，只是变成小得多的碎片。为了让一块食物从垃圾处理场到废水处理厂，一路上不走大弯路，它需要足够柔软以通过研磨孔<em>和</em>，具有足够的水溶性以防止堵塞。这涵盖了你会吃的大多数东西，但一如既往，也有一些明显的例外。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h288573">非食品项目</h3><p class="sc-77igqf-0 bOfvBY">这应该是显而易见的，但是不要把任何不是食物的东西扔进你的垃圾桶。它被设计用来分解足够软可以咀嚼的东西——不是玻璃、金属，甚至是纸。前两个很容易避免，但不要忘记从产品或新的厨房用具上撕下贴纸和标签，然后扔进垃圾桶。虽然一两个不会造成太大的损害，但它们会在几年内积累起来。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h288574">任何真正困难的事情</h3><p class="sc-77igqf-0 bOfvBY">你的垃圾处理器是一个强大的研磨机，但这并不意味着它可以处理你喂它的任何东西。真正坚硬的东西——想想<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://skillet.lifehacker.com/you-can-eat-avocado-pits-but-that-doesnt-mean-you-shou-1798348737&quot;,{&quot;metric25&quot;:1}]]" href="https://skillet.lifehacker.com/you-can-eat-avocado-pits-but-that-doesnt-mean-you-shou-1798348737">果核</a> </span>、骨头、生肉、水果或坚果壳——根本不会分解。相反，它只会在房间里跳来跳去，变得越来越糟糕，直到你承认失败，把它扔进属于它的垃圾或堆肥里。如果太难嚼，那就太难磨了。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">当然，仅仅因为你的处置<em>可以</em>磨东西并不意味着<em>应该。蛋壳就是一个很好的例子:大多数垃圾最终会将它们分解，但它们对你的管道构成的威胁比垃圾本身更大。这些碎片不会完全溶解在水中，所以随着时间的推移，它们很容易堆积起来，甚至堵塞你的管道。</em></p><h3 class="sc-1bwb26k-1 kpbNNd" id="h288575">已知堵塞风险</h3><p class="sc-77igqf-0 bOfvBY">关于这一点，避免将潜在的堵塞物丢弃是非常重要的。这些是最坏的罪犯:</p><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><strong>油脂和油:</strong>不要将大量的油倒入任何下水道，即使是有处理装置的下水道也不要。烹饪油脂漂浮在废水上，粘附在你的管道壁上并捕获颗粒固体，直到它形成一个<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://lifehacker.com/what-can-you-do-about-drains-that-constantly-clog-5980913&quot;,{&quot;metric25&quot;:1}]]" href="https://lifehacker.com/what-can-you-do-about-drains-that-constantly-clog-5980913">巨大的塞子</a> </span>。让煎炸油冷却后扔进垃圾桶——或者过滤后再次使用。</li><li><strong>咖啡渣:</strong>脂肪浮在哪里，咖啡渣就沉在哪里。即使它们没有被堆积的油脂沉积物困住，它们也会聚集在管道的底部，最终完全阻止水的流动。扔掉它们，制成堆肥，<!-- -->或者留作花园肥料。</li><li>任何能吸收大量水分的东西:煮熟的或生的<strong> </strong>大米、面包、意大利面、谷物、面粉和淀粉吸水性太强，不能安全地通过管道。</li></ul><p class="sc-77igqf-0 bOfvBY">任何能卡在管道里的东西都可能会。当你有疑问时，想想如果你把它无限期地放在一碗水里会发生什么。如果它会自己溶解，这可能是好的；如果不会，就不要冒险。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h288576">纤维状或纤维状物质</h3><p class="sc-77igqf-0 bOfvBY">多亏了古老的常识，大多数人都知道不要把鸡骨头扔进垃圾处理器——但可能不会介意扔进一根芹菜。不幸的是，一些水果和蔬菜纤维太多，以至于它们令人惊讶的坚硬结构在处理过程中并不总是会分解。随着时间的推移，芹菜、玉米皮、菠萝、洋葱和大蒜皮、芦笋和朝鲜蓟等食物中的纤维会缠绕在一起，给电机带来不必要的压力，缩短其寿命。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h288577">任何东西都太多了</h3><p class="sc-77igqf-0 bOfvBY">通常情况下，当涉及到垃圾处理的时候，剂量就成了毒药。即使像胡萝卜皮这样无害的食物也会引起问题，如果你把它们塞满你的垃圾，然后打开马达。总是打开水龙头，慢慢地往里放东西，保持小块，扔掉任何让你停顿的东西——或者制造很多噪音的东西。</p><p class="sc-77igqf-0 bOfvBY">也就是说，在某种程度上，相反的情况也是如此。这里一汤匙凝结的熏肉脂肪或那里一把切碎的芹菜不会立即破坏你的管道或垃圾，但随着时间的推移，坏习惯会回来咬你的屁股。善待你的垃圾处理器——并不时地清理它(——它会在未来几年支持你。<br/></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-aPhizjllzfA&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-aPhizjllzfA&start=0)
+
+<figcaption class="sc-1ptbguh-0 hxeMec caption">Video via [This Old House on YouTube](https://www.youtube.com/watch?v=aPhizjllzfA).</figcaption> 
+
+最终，你的垃圾处理器只是你厨房水槽的一个花哨的前门:你放进去的所有东西最终都会进入你的管道，只是变成小得多的碎片。为了让一块食物从垃圾处理场到废水处理厂，一路上不走大弯路，它需要足够柔软以通过研磨孔*和*，具有足够的水溶性以防止堵塞。这涵盖了你会吃的大多数东西，但一如既往，也有一些明显的例外。
+
+### 非食品项目
+
+这应该是显而易见的，但是不要把任何不是食物的东西扔进你的垃圾桶。它被设计用来分解足够软可以咀嚼的东西——不是玻璃、金属，甚至是纸。前两个很容易避免，但不要忘记从产品或新的厨房用具上撕下贴纸和标签，然后扔进垃圾桶。虽然一两个不会造成太大的损害，但它们会在几年内积累起来。
+
+### 任何真正困难的事情
+
+你的垃圾处理器是一个强大的研磨机，但这并不意味着它可以处理你喂它的任何东西。真正坚硬的东西——想想 [果核](https://skillet.lifehacker.com/you-can-eat-avocado-pits-but-that-doesnt-mean-you-shou-1798348737) 、骨头、生肉、水果或坚果壳——根本不会分解。相反，它只会在房间里跳来跳去，变得越来越糟糕，直到你承认失败，把它扔进属于它的垃圾或堆肥里。如果太难嚼，那就太难磨了。
+
+当然，仅仅因为你的处置*可以*磨东西并不意味着*应该。蛋壳就是一个很好的例子:大多数垃圾最终会将它们分解，但它们对你的管道构成的威胁比垃圾本身更大。这些碎片不会完全溶解在水中，所以随着时间的推移，它们很容易堆积起来，甚至堵塞你的管道。*
+
+### 已知堵塞风险
+
+关于这一点，避免将潜在的堵塞物丢弃是非常重要的。这些是最坏的罪犯:
+
+*   **油脂和油:**不要将大量的油倒入任何下水道，即使是有处理装置的下水道也不要。烹饪油脂漂浮在废水上，粘附在你的管道壁上并捕获颗粒固体，直到它形成一个 [巨大的塞子](https://lifehacker.com/what-can-you-do-about-drains-that-constantly-clog-5980913) 。让煎炸油冷却后扔进垃圾桶——或者过滤后再次使用。
+*   **咖啡渣:**脂肪浮在哪里，咖啡渣就沉在哪里。即使它们没有被堆积的油脂沉积物困住，它们也会聚集在管道的底部，最终完全阻止水的流动。扔掉它们，制成堆肥，或者留作花园肥料。
+*   任何能吸收大量水分的东西:煮熟的或生的大米、面包、意大利面、谷物、面粉和淀粉吸水性太强，不能安全地通过管道。
+
+任何能卡在管道里的东西都可能会。当你有疑问时，想想如果你把它无限期地放在一碗水里会发生什么。如果它会自己溶解，这可能是好的；如果不会，就不要冒险。
+
+### 纤维状或纤维状物质
+
+多亏了古老的常识，大多数人都知道不要把鸡骨头扔进垃圾处理器——但可能不会介意扔进一根芹菜。不幸的是，一些水果和蔬菜纤维太多，以至于它们令人惊讶的坚硬结构在处理过程中并不总是会分解。随着时间的推移，芹菜、玉米皮、菠萝、洋葱和大蒜皮、芦笋和朝鲜蓟等食物中的纤维会缠绕在一起，给电机带来不必要的压力，缩短其寿命。
+
+### 任何东西都太多了
+
+通常情况下，当涉及到垃圾处理的时候，剂量就成了毒药。即使像胡萝卜皮这样无害的食物也会引起问题，如果你把它们塞满你的垃圾，然后打开马达。总是打开水龙头，慢慢地往里放东西，保持小块，扔掉任何让你停顿的东西——或者制造很多噪音的东西。
+
+也就是说，在某种程度上，相反的情况也是如此。这里一汤匙凝结的熏肉脂肪或那里一把切碎的芹菜不会立即破坏你的管道或垃圾，但随着时间的推移，坏习惯会回来咬你的屁股。善待你的垃圾处理器——并不时地清理它(——它会在未来几年支持你。

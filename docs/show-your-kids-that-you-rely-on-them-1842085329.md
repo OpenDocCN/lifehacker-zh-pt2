@@ -1,11 +1,27 @@
 # 让你的孩子知道你依赖他们
 
-> 原文：<https://lifehacker.com/show-your-kids-that-you-rely-on-them-1842085329>
+> 原文:[https://life hacker . com/show-your-kids-that-you-depend-them-1842085329](https://lifehacker.com/show-your-kids-that-you-rely-on-them-1842085329)
 
 孩子们在很多方面都依赖我们，包括他们还是婴儿时的基本所有事情，以及他们毕业成为“小孩子”时的大部分事情。但是根据一位心理学家的说法，帮助六七岁的 T2 儿童建立适应力和自信心的一个简单方法是依靠 T4 的帮助和支持。
 
-
+Watch
 
 组织心理学家兼作家亚当·格兰特在 [这段由](https://twitter.com/AdamMGrant/status/1221420168032800768) [世界经济论坛](https://www.weforum.org/) 制作的视频 中给出了他最喜欢的育儿建议:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1221420168032800768&amp;autosize=1" autoresize="true" id="twitter-1221420168032800768" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">“你需要感受到别人对你的依赖；我认为父母经常会在孩子身上忽略这一点，”他在视频中说道。“我们觉得教育他们、保护他们、关心他们是我们的工作。我们从来没有给他们机会通过帮助我们解决问题来建立他们自己的适应能力。因此，我认为我们可以将这一建议付诸行动的方法之一是偶尔向我们的孩子寻求指导。”<br/></p><p class="sc-77igqf-0 bOfvBY">格兰特说，他做到这一点的一个方法是和他的孩子谈论他自己的紧张情绪，比如说，他即将进行的一场大型演讲。他问他们应该如何管理这种焦虑，他们可能会给他提供一些建议，比如深呼吸，平静的呼吸，或者练习几次演讲，让自己更加适应。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">依靠孩子的帮助或建议向他们表明你对他们有信心，他们也可以为他人做出贡献。他说，下一次他们对某事感到焦虑时，他们可能会回想自己的建议来度过难关。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">我用自己九岁的儿子用小方法做到了这一点，我也看到了它如何帮助孩子们建立解决问题的技能。回到去年 11 月，当我和他在一家拥挤的商店里选购一棵新圣诞树时，我们发现我们想要的样式只剩下一棵了——而且它被挂在最上面的架子上，够不着。我抬头盯着它看了一会儿，然后扫视了一下周围，看看附近是否有商店的员工。我儿子毫不犹豫地说:“我呆在这里看着它，你去找人帮我们把它弄下来。”</p><p class="sc-77igqf-0 bOfvBY">这是几秒钟后我自己可能会得出的结论，但他对自己解决问题的能力有信心，不会等我自己想出来。我记得当我说“好主意”时，他看起来有多自豪。谢谢，伙计，我马上回来。”</p><p class="sc-77igqf-0 bOfvBY">所以，下次当你在思考一个让你紧张的工作演示或者你试图弄清楚如何同时做两件事的时候，问问你的孩子。他们可能有一些想法。</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><small> <em>遇见地球上最聪明的父母！加入我们的</em> </small> <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.facebook.com/groups/2018785615043946/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.facebook.com/groups/2018785615043946/" target="_blank" rel="noopener noreferrer"> <small> <em>育儿脸书群</em> </small> </a> </span> <small> <em>。</em>T15】</small></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1221420168032800768&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1221420168032800768&autosize=1) 
+
+“你需要感受到别人对你的依赖；我认为父母经常会在孩子身上忽略这一点，”他在视频中说道。“我们觉得教育他们、保护他们、关心他们是我们的工作。我们从来没有给他们机会通过帮助我们解决问题来建立他们自己的适应能力。因此，我认为我们可以将这一建议付诸行动的方法之一是偶尔向我们的孩子寻求指导。”
+
+格兰特说，他做到这一点的一个方法是和他的孩子谈论他自己的紧张情绪，比如说，他即将进行的一场大型演讲。他问他们应该如何管理这种焦虑，他们可能会给他提供一些建议，比如深呼吸，平静的呼吸，或者练习几次演讲，让自己更加适应。
+
+依靠孩子的帮助或建议向他们表明你对他们有信心，他们也可以为他人做出贡献。他说，下一次他们对某事感到焦虑时，他们可能会回想自己的建议来度过难关。
+
+我用自己九岁的儿子用小方法做到了这一点，我也看到了它如何帮助孩子们建立解决问题的技能。回到去年 11 月，当我和他在一家拥挤的商店里选购一棵新圣诞树时，我们发现我们想要的样式只剩下一棵了——而且它被挂在最上面的架子上，够不着。我抬头盯着它看了一会儿，然后扫视了一下周围，看看附近是否有商店的员工。我儿子毫不犹豫地说:“我呆在这里看着它，你去找人帮我们把它弄下来。”
+
+这是几秒钟后我自己可能会得出的结论，但他对自己解决问题的能力有信心，不会等我自己想出来。我记得当我说“好主意”时，他看起来有多自豪。谢谢，伙计，我马上回来。”
+
+所以，下次当你在思考一个让你紧张的工作演示或者你试图弄清楚如何同时做两件事的时候，问问你的孩子。他们可能有一些想法。
+
+* * *
+
+<small>*遇见地球上最聪明的父母！加入我们的*</small> [<small>*育儿脸书群*</small>](https://www.facebook.com/groups/2018785615043946/) <small>*。*T15】</small>

@@ -1,11 +1,49 @@
 # 如何识别和报告非法招聘信息
 
-> 原文：<https://lifehacker.com/how-to-identify-and-report-an-illegal-job-posting-1833295818>
+> 原文:[https://life hacker . com/how-to-identify-and-report-a-law-job-posting-1833295818](https://lifehacker.com/how-to-identify-and-report-an-illegal-job-posting-1833295818)
 
 本周早些时候，美食网站总监大卫·塔玛金兴奋地在推特上写道 他们需要一名“敏锐的、对烹饪着迷的编辑助理”在 48 小时内，这个帖子被媒体推特无情地烘烤，纽约州劳工部甚至被迫 介入。发生了什么事？
 
-
+Watch
 
 首先，让我们再来看看帖子本身:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1105813873649766401&amp;autosize=1" autoresize="true" id="twitter-1105813873649766401" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">对于任何读过不少“入门级”工作描述的人来说，这是令人沮丧但熟悉的东西:一家大公司想雇用一个人(“自然是在他/她的职业生涯开始时”)来做大约三名全职、有经验的员工的工作，小时工资不公开，没有福利。从工作与生活平衡的角度来看，这里有很多危险信号，但最初的帖子也存在一些非常现实的法律问题。“这份工作可能很糟糕”和“这实际上是非法的”之间只有一线之隔，所有求职者——尤其是年轻人，或者任何刚进入新行业的人——都需要知道这两者的区别。<br/></p><p class="sc-77igqf-0 bOfvBY">就招聘而言，最常见的侵权行为与工人分类和/或对受保护阶层成员的歧视有关。了解自己的权利以及如何举报非法活动是抵御剥削性劳动行为的第一道防线。以下是需要注意的事项。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h19734">工人分类、税法和劳动标准</h3><p class="sc-77igqf-0 bOfvBY">要理解为什么这份招聘启事会搞砸，你应该知道<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://lifehacker.com/the-difference-between-employee-and-contractor-and-why-1642130402&quot;,{&quot;metric25&quot;:1}]]" href="https://lifehacker.com/the-difference-between-employee-and-contractor-and-why-1642130402">独立承包人和</a> </span>雇员之间的区别。两者的主要区别在于由谁负责代扣所得税:独立承包人和自由职业者代扣代缴自己的税款，而雇员的税款由雇主自动代扣代缴。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">然而，税收并不是唯一起作用的东西；“独立承包人”的“独立”部分同样重要。如果你在为一家公司做自由职业者的工作，他们对你如何或在哪里完成工作完全没有发言权，只要你及时完成工作。根据纽约州劳工部的规定，独立承包商的活动不受监督、指导和控制。 “这意味着雇主不能要求自由职业者走进办公室，参加会议，或者告诉他们如何打发时间:</p><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1105851700181491712&amp;autosize=1" autoresize="true" id="twitter-1105851700181491712" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><p class="sc-77igqf-0 bOfvBY">法律上，没有“全职自由职业者”这种东西即使一份招聘广告要求自由职业者每周工作 40 小时，他们也不能强迫独立承包人遵守通常的周一至周五朝九晚五的时间表。这个奢华的招聘广告犯了一个错误，广告上的自由职业者职位不仅有全职员工的工作量，而且对工作地点有严格的要求:在他们的办公室，大概是在标准工作周。底线是:如果一份招聘启事详细说明了你将在何时、何地以及如何为他们工作，他们最好从你的薪水中扣缴税款——并且最好给你提供一份福利。<br/></p><p class="sc-77igqf-0 bOfvBY">由于工人分类决定了谁支付雇佣税以及何时支付，州和联邦劳工部都非常重视错误分类的投诉。康泰纳仕经历了惨痛的教训:</p><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1105831573419712513&amp;autosize=1" autoresize="true" id="twitter-1105831573419712513" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><p class="sc-77igqf-0 bOfvBY"><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://twitter.com/DavidTamarkin/status/1105857849454940161&quot;,{&quot;metric25&quot;:1}]]" href="https://twitter.com/DavidTamarkin/status/1105857849454940161" target="_blank" rel="noopener noreferrer"><!-- -->澄清了</a></span><!-- -->这份工作终究会是全职的，而且有福利:健康保险、401(k)和病假。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h19735">受保护的类别</h3><p class="sc-77igqf-0 bOfvBY">基于<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://en.wikipedia.org/wiki/Protected_group&quot;,{&quot;metric25&quot;:1}]]" href="https://en.wikipedia.org/wiki/Protected_group" target="_blank" rel="noopener noreferrer">受保护阶层</a> </span>的就业歧视在美国是非法的，而<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.eeoc.gov/index.cfm&quot;,{&quot;metric25&quot;:1}]]" href="https://www.eeoc.gov/index.cfm" target="_blank" rel="noopener noreferrer">平等机会就业委员会(EEOC) </a> </span>是负责执行处理这一问题的联邦法律的主要机构。以下是他们对<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.eeoc.gov/laws/practices/index.cfm#pre-employment_inquiries&quot;,{&quot;metric25&quot;:1}]]" href="https://www.eeoc.gov/laws/practices/index.cfm#pre-employment_inquiries" target="_blank" rel="noopener noreferrer">招聘广告</a> </span>的看法:</p><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">“如果雇主发布的招聘广告因某人的种族、肤色、宗教、性别(包括性别认同、性取向和怀孕)、国籍、年龄(40 岁或以上)、残疾或基因信息而显示出对其的偏好或阻止其申请工作，这是非法的。”</p></blockquote><p class="sc-77igqf-0 bOfvBY">换句话说，在招聘启事中指定对某个受保护阶层的某些成员的偏好是非法的:“入门级”没问题，但“我们正在寻找一名应届大学毕业生”就不是，因为这可能会阻碍 40 岁以上的人申请。措辞并不是招聘广告歧视的唯一形式:<span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.aclu.org/cases/facebook-eeoc-complaint-0&quot;,{&quot;metric25&quot;:1}]]" href="https://www.aclu.org/cases/facebook-eeoc-complaint-0" target="_blank" rel="noopener noreferrer">2018 年 EEOC 的一项投诉</a> </span>称，针对特定受众的脸书招聘广告会阻碍甚至阻止其他人申请，这可能违反联邦法律。</p><p class="sc-77igqf-0 bOfvBY">EEOC 标准也适用于工作推荐、招聘策略、申请和雇用实践，包括<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://lifehacker.com/the-most-common-illegal-job-interview-questions-you-sho-1706238105&quot;,{&quot;metric25&quot;:1}]]" href="https://lifehacker.com/the-most-common-illegal-job-interview-questions-you-sho-1706238105">面试问题</a> </span>、背景调查和申请测试。后者只能用来获取“决定一个人是否胜任工作的关键”信息，因此不涉及种族、年龄、宗教、残疾、性别等问题。<br/></p><p class="sc-77igqf-0 bOfvBY">大多数有人力资源部的雇主都知道他们在招聘启事中能说什么，不能说什么，所以公然违反 EEOC 教的情况很少发生；最初的美食家帖子根本不包含任何内容。尽管如此，时不时还是会有东西漏出来。一定要熟悉 EEOC 禁止的<span></span>行为，这样你就知道在找工作时要注意什么了。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h19736">如何举报违规行为</h3><p class="sc-77igqf-0 bOfvBY">一般来说，如果员工分类或其他劳动标准有问题，联系你所在州的劳工部是一个好的开始。然而，如果你看到一个基于受保护阶层的歧视性帖子，你可能想<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.eeoc.gov/employees/howtofile.cfm&quot;,{&quot;metric25&quot;:1}]]" href="https://www.eeoc.gov/employees/howtofile.cfm" target="_blank" rel="noopener noreferrer">向 EEOC </a> </span>投诉。</p><p class="sc-77igqf-0 bOfvBY">也就是说，劳工部和 EEOC 并不是唯一涉及<span></span>就业歧视的监管机构；正式的投诉过程很复杂，通常进展非常缓慢。这就是可见性可以有所帮助的地方:当康泰纳仕的工作像病毒一样传播开来时，人们开始在 NYS 劳工部发推特让他们参与进来，这很有效。如果你在野外遇到剥削性或非法的招聘信息，不要害怕发出一点声音。与你的朋友分享，在社交媒体上发布，尽你所能引起注意。工人们比以往任何时候都更需要为我们的权利大声疾呼——沉默只会导致进一步的剥削。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1105813873649766401&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1105813873649766401&autosize=1) 
+
+对于任何读过不少“入门级”工作描述的人来说，这是令人沮丧但熟悉的东西:一家大公司想雇用一个人(“自然是在他/她的职业生涯开始时”)来做大约三名全职、有经验的员工的工作，小时工资不公开，没有福利。从工作与生活平衡的角度来看，这里有很多危险信号，但最初的帖子也存在一些非常现实的法律问题。“这份工作可能很糟糕”和“这实际上是非法的”之间只有一线之隔，所有求职者——尤其是年轻人，或者任何刚进入新行业的人——都需要知道这两者的区别。
+
+就招聘而言，最常见的侵权行为与工人分类和/或对受保护阶层成员的歧视有关。了解自己的权利以及如何举报非法活动是抵御剥削性劳动行为的第一道防线。以下是需要注意的事项。
+
+### 工人分类、税法和劳动标准
+
+要理解为什么这份招聘启事会搞砸，你应该知道 [独立承包人和](https://lifehacker.com/the-difference-between-employee-and-contractor-and-why-1642130402) 雇员之间的区别。两者的主要区别在于由谁负责代扣所得税:独立承包人和自由职业者代扣代缴自己的税款，而雇员的税款由雇主自动代扣代缴。
+
+然而，税收并不是唯一起作用的东西；“独立承包人”的“独立”部分同样重要。如果你在为一家公司做自由职业者的工作，他们对你如何或在哪里完成工作完全没有发言权，只要你及时完成工作。根据纽约州劳工部的规定，独立承包商的活动不受监督、指导和控制。 “这意味着雇主不能要求自由职业者走进办公室，参加会议，或者告诉他们如何打发时间:
+
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1105851700181491712&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1105851700181491712&autosize=1) 
+
+法律上，没有“全职自由职业者”这种东西即使一份招聘广告要求自由职业者每周工作 40 小时，他们也不能强迫独立承包人遵守通常的周一至周五朝九晚五的时间表。这个奢华的招聘广告犯了一个错误，广告上的自由职业者职位不仅有全职员工的工作量，而且对工作地点有严格的要求:在他们的办公室，大概是在标准工作周。底线是:如果一份招聘启事详细说明了你将在何时、何地以及如何为他们工作，他们最好从你的薪水中扣缴税款——并且最好给你提供一份福利。
+
+由于工人分类决定了谁支付雇佣税以及何时支付，州和联邦劳工部都非常重视错误分类的投诉。康泰纳仕经历了惨痛的教训:
+
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1105831573419712513&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1105831573419712513&autosize=1) 
+
+[澄清了](https://twitter.com/DavidTamarkin/status/1105857849454940161)这份工作终究会是全职的，而且有福利:健康保险、401(k)和病假。
+
+### 受保护的类别
+
+基于 [受保护阶层](https://en.wikipedia.org/wiki/Protected_group) 的就业歧视在美国是非法的，而 [平等机会就业委员会(EEOC)](https://www.eeoc.gov/index.cfm) 是负责执行处理这一问题的联邦法律的主要机构。以下是他们对 [招聘广告](https://www.eeoc.gov/laws/practices/index.cfm#pre-employment_inquiries) 的看法:
+
+> “如果雇主发布的招聘广告因某人的种族、肤色、宗教、性别(包括性别认同、性取向和怀孕)、国籍、年龄(40 岁或以上)、残疾或基因信息而显示出对其的偏好或阻止其申请工作，这是非法的。”
+
+换句话说，在招聘启事中指定对某个受保护阶层的某些成员的偏好是非法的:“入门级”没问题，但“我们正在寻找一名应届大学毕业生”就不是，因为这可能会阻碍 40 岁以上的人申请。措辞并不是招聘广告歧视的唯一形式:[2018 年 EEOC 的一项投诉](https://www.aclu.org/cases/facebook-eeoc-complaint-0) 称，针对特定受众的脸书招聘广告会阻碍甚至阻止其他人申请，这可能违反联邦法律。
+
+EEOC 标准也适用于工作推荐、招聘策略、申请和雇用实践，包括 [面试问题](https://lifehacker.com/the-most-common-illegal-job-interview-questions-you-sho-1706238105) 、背景调查和申请测试。后者只能用来获取“决定一个人是否胜任工作的关键”信息，因此不涉及种族、年龄、宗教、残疾、性别等问题。
+
+大多数有人力资源部的雇主都知道他们在招聘启事中能说什么，不能说什么，所以公然违反 EEOC 教的情况很少发生；最初的美食家帖子根本不包含任何内容。尽管如此，时不时还是会有东西漏出来。一定要熟悉 EEOC 禁止的行为，这样你就知道在找工作时要注意什么了。
+
+### 如何举报违规行为
+
+一般来说，如果员工分类或其他劳动标准有问题，联系你所在州的劳工部是一个好的开始。然而，如果你看到一个基于受保护阶层的歧视性帖子，你可能想 [向 EEOC](https://www.eeoc.gov/employees/howtofile.cfm) 投诉。
+
+也就是说，劳工部和 EEOC 并不是唯一涉及就业歧视的监管机构；正式的投诉过程很复杂，通常进展非常缓慢。这就是可见性可以有所帮助的地方:当康泰纳仕的工作像病毒一样传播开来时，人们开始在 NYS 劳工部发推特让他们参与进来，这很有效。如果你在野外遇到剥削性或非法的招聘信息，不要害怕发出一点声音。与你的朋友分享，在社交媒体上发布，尽你所能引起注意。工人们比以往任何时候都更需要为我们的权利大声疾呼——沉默只会导致进一步的剥削。

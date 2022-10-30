@@ -1,10 +1,10 @@
 # 不要相信“全国饮酒日”的宣传
 
-> 原文：<https://lifehacker.com/dont-believe-the-national-drink-wine-day-hype-1832732995>
+> 原文:[https://life hacker . com/don-believe-the-national-drink-wine-day-hype-1832732995](https://lifehacker.com/dont-believe-the-national-drink-wine-day-hype-1832732995)
 
 当你意识到昨天是全国饮酒日时，你有没有放下一切，改变一天的日程安排？没有吗？但也许你(或你认识的人)分享了一两个以巨型酒杯为特色的迷因。因为你值得拥有。
 
-
+Watch
 
 谈论葡萄酒已经成了“我累了一天，我放弃了”的简写如果你是一个单身女人，你厌倦了这个世界的废话，你可以开玩笑说今晚是一个和你的猫和一箱酒呆在一起的夜晚。如果你是一位母亲，一整天都在照顾一个疲惫的蹒跚学步的孩子，却没有得到伴侣的支持或同情，你可以转向 F acebook，分享一个关于它是 wine clock 的模因。这是一种表达对世界上大大小小的问题感到沮丧的方式，而不必解释你为什么会有这种感觉。
 
@@ -12,4 +12,10 @@
 
 那么， [a 葡萄酒公司是全国饮酒日](http://nationaldrinkwineday.org/sponsors/) 的“2019 独家赞助商”应该也就不足为奇了，仿佛四个字典里的单词就能组合在一起，洽谈赞助合同。然后，像每一个其他的全国营销日一样，它成为当地电视台 F acebook page 的一个帖子，因为人们喜欢谈论~~他们有多紧张~~他们有多爱喝酒。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1097526564533796864&amp;autosize=1" autoresize="true" id="twitter-1097526564533796864" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">当我们寻找逃避问题的方法时，我们可以买很多东西。小说、电子游戏、冥想应用程序订阅——所有这些都是<!-- -->而不是<!-- -->积极有害的。另一方面，酒精饮料是<!-- -->。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">正如<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://twitter.com/pixie_casey/status/1097526564533796864&quot;,{&quot;metric25&quot;:1}]]" href="https://twitter.com/pixie_casey/status/1097526564533796864" target="_blank" rel="noopener noreferrer">作家皮西·凯西指出的</a> </span>，酒精与年轻女性死亡人数的上升有关。我们之前提到过<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://vitals.lifehacker.com/just-a-reminder-alcohol-causes-cancer-1795466874&quot;,{&quot;metric25&quot;:1}]]" href="https://vitals.lifehacker.com/just-a-reminder-alcohol-causes-cancer-1795466874">酒精会增加患几种癌症的风险</a> </span>。目前拥有 nationaldrinkwineday.com 领地的葡萄酒公司表示，他们希望“传播葡萄酒的爱和健康益处”葡萄酒也有一些明确的健康风险。</p><p class="sc-77igqf-0 bOfvBY">随着葡萄酒公司自愿将他们的产品作为应对你的问题的拐杖，他们也在帮助一些有害行为正常化:喝得太多，喝得太多，并为自己喝了多少而自豪。当事实上，如果酒迷因让你觉得被看见了，你<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://lifehacker.com/find-out-if-you-have-a-drinking-problem-with-this-onlin-1821923578&quot;,{&quot;metric25&quot;:1}]]" href="https://lifehacker.com/find-out-if-you-have-a-drinking-problem-with-this-onlin-1821923578">可能有问题</a> </span>。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1097526564533796864&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1097526564533796864&autosize=1) 
+
+当我们寻找逃避问题的方法时，我们可以买很多东西。小说、电子游戏、冥想应用程序订阅——所有这些都是而不是积极有害的。另一方面，酒精饮料是。
+
+正如 [作家皮西·凯西指出的](https://twitter.com/pixie_casey/status/1097526564533796864) ，酒精与年轻女性死亡人数的上升有关。我们之前提到过 [酒精会增加患几种癌症的风险](https://vitals.lifehacker.com/just-a-reminder-alcohol-causes-cancer-1795466874) 。目前拥有 nationaldrinkwineday.com 领地的葡萄酒公司表示，他们希望“传播葡萄酒的爱和健康益处”葡萄酒也有一些明确的健康风险。
+
+随着葡萄酒公司自愿将他们的产品作为应对你的问题的拐杖，他们也在帮助一些有害行为正常化:喝得太多，喝得太多，并为自己喝了多少而自豪。当事实上，如果酒迷因让你觉得被看见了，你 [可能有问题](https://lifehacker.com/find-out-if-you-have-a-drinking-problem-with-this-onlin-1821923578) 。

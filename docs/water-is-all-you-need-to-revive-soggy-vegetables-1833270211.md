@@ -1,13 +1,29 @@
 # 你只需要水就能让湿漉漉的蔬菜苏醒
 
-> 原文：<https://lifehacker.com/water-is-all-you-need-to-revive-soggy-vegetables-1833270211>
+> 原文:[https://life hacker . com/water-is-all-you-need to-revival-soggy-vegetables-1833270211](https://lifehacker.com/water-is-all-you-need-to-revive-soggy-vegetables-1833270211)
 
 生活中的许多东西在潮湿时会变湿，比如纸，或者昂贵的吹干的头发。但是植物不是这样工作的。水让它们更饱满、更脆、更脆。明白了这个事实，你就再也不会吃湿生菜了。
 
-
+Watch
 
 这是简单的物理学:植物是由微观细胞组成的，每一个细胞周围都有半固体壁。将这些细胞装满水，细胞就会像装满水的气球一样膨胀起来。只有当它们干枯的时候才会枯萎。
 
 不相信我？拿一棵无力的、被忽视的盆栽植物，给它浇点水。它会活跃起来，就像这样:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-fNyYuVarTIQ&amp;start=0" data-chomp-id="fNyYuVarTIQ" data-recommend-id="youtube://fNyYuVarTIQ" id="youtube-fNyYuVarTIQ" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="fNyYuVarTIQ" data-recommend-id="youtube://fNyYuVarTIQ" id="youtube-fNyYuVarTIQ" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">冰箱里的蔬菜也会发生同样的事情。你有没有注意到<em>保鲜盒</em>是冰箱中蔬菜保鲜时间更长的部分，它有壁，所以里面的东西不会很快变干。或者，如果你把你的芦笋放在一杯水里，它会一直保持新鲜，直到你吃掉它或者它自然死亡？或者袋装的小莴苣不会枯萎，但是留在柜台上的叶子在几个小时内会变成薄薄的一层？</p><p class="sc-77igqf-0 bOfvBY">不要只是从我这里拿走它——问问这个 redditor ，他写道“今天我去吃我的胡萝卜，发现它是弯曲的，”但发现胡萝卜在一杯水中几个小时后没有弯曲。或者<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.reddit.com/r/AskCulinary/comments/2anz3d/ive_heard_you_can_crisp_lettuce_leaves_by_soaking/cix1pl3/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.reddit.com/r/AskCulinary/comments/2anz3d/ive_heard_you_can_crisp_lettuce_leaves_by_soaking/cix1pl3/" target="_blank" rel="noopener noreferrer">这个</a> </span>，他报告说浸泡了一卡车悲伤的莴苣又变脆了。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h298198">你不相信我，但这是真的</h3><p class="sc-77igqf-0 bOfvBY">然而，尽管这些事实你可以在生物教科书中读到，也可以亲眼看到，但你们中的许多人不会相信我。</p><p class="sc-77igqf-0 bOfvBY">"我祖母用纸巾擦干每片莴苣叶……"你可能会说。(我很抱歉地告诉大家，我们已经<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://lifehacker.com/use-a-bath-towel-to-keep-salad-greens-fresh-30872154&quot;,{&quot;metric25&quot;:1}]]" href="https://lifehacker.com/use-a-bath-towel-to-keep-salad-greens-fresh-30872154">在 pas </a> </span> t 中说过类似的话。)好吧，下次她这样做时，在袋子里放几片叶子，也许用一张<em>湿</em>纸巾，你会发现你的比她的持久。</p><p class="sc-77igqf-0 bOfvBY">"我曾经在一些黑色、多汤、腐烂的莴苣上试过，但没用。"是的，这是水，不是时间机器。如果蔬菜已经烂了，你的脆船已经启航了。</p><p class="sc-77igqf-0 bOfvBY">“但是沙拉酱会让生菜枯萎！”是的，但不是因为它是液体。调味品通常含有盐或糖，它们会将植物细胞中的水分吸出。如果你不相信我，把一些新鲜的草莓放在一个有一堆糖的碗里。第二天早上，你会发现草莓已经枯萎，它们的汁液现在与糖混合在一起，成为你的华夫饼干的美味糖浆。糖或盐也会对莴苣产生同样的效果，但是咸的汤状莴苣在华夫饼上吃起来不太好<em>。</em></p><p class="sc-77igqf-0 bOfvBY">“这只有在你<em>也</em>的情况下才有效……”不。你不需要<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://lifehacker.com/revive-wilted-lettuce-with-half-a-lemon-and-ice-water-5799868&quot;,{&quot;metric25&quot;:1}]]" href="https://lifehacker.com/revive-wilted-lettuce-with-half-a-lemon-and-ice-water-5799868">冰和柠檬</a> </span>，或者任何特殊的咒语或温度操纵。只是水。自来水厂。感谢物理。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-fNyYuVarTIQ&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-fNyYuVarTIQ&start=0) 
+
+冰箱里的蔬菜也会发生同样的事情。你有没有注意到*保鲜盒*是冰箱中蔬菜保鲜时间更长的部分，它有壁，所以里面的东西不会很快变干。或者，如果你把你的芦笋放在一杯水里，它会一直保持新鲜，直到你吃掉它或者它自然死亡？或者袋装的小莴苣不会枯萎，但是留在柜台上的叶子在几个小时内会变成薄薄的一层？
+
+不要只是从我这里拿走它——问问这个 redditor ，他写道“今天我去吃我的胡萝卜，发现它是弯曲的，”但发现胡萝卜在一杯水中几个小时后没有弯曲。或者 [这个](https://www.reddit.com/r/AskCulinary/comments/2anz3d/ive_heard_you_can_crisp_lettuce_leaves_by_soaking/cix1pl3/) ，他报告说浸泡了一卡车悲伤的莴苣又变脆了。
+
+### 你不相信我，但这是真的
+
+然而，尽管这些事实你可以在生物教科书中读到，也可以亲眼看到，但你们中的许多人不会相信我。
+
+"我祖母用纸巾擦干每片莴苣叶……"你可能会说。(我很抱歉地告诉大家，我们已经 [在 pas](https://lifehacker.com/use-a-bath-towel-to-keep-salad-greens-fresh-30872154) t 中说过类似的话。)好吧，下次她这样做时，在袋子里放几片叶子，也许用一张*湿*纸巾，你会发现你的比她的持久。
+
+"我曾经在一些黑色、多汤、腐烂的莴苣上试过，但没用。"是的，这是水，不是时间机器。如果蔬菜已经烂了，你的脆船已经启航了。
+
+“但是沙拉酱会让生菜枯萎！”是的，但不是因为它是液体。调味品通常含有盐或糖，它们会将植物细胞中的水分吸出。如果你不相信我，把一些新鲜的草莓放在一个有一堆糖的碗里。第二天早上，你会发现草莓已经枯萎，它们的汁液现在与糖混合在一起，成为你的华夫饼干的美味糖浆。糖或盐也会对莴苣产生同样的效果，但是咸的汤状莴苣在华夫饼上吃起来不太好*。*
+
+“这只有在你*也*的情况下才有效……”不。你不需要 [冰和柠檬](https://lifehacker.com/revive-wilted-lettuce-with-half-a-lemon-and-ice-water-5799868) ，或者任何特殊的咒语或温度操纵。只是水。自来水厂。感谢物理。

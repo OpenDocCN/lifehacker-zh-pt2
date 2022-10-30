@@ -1,10 +1,10 @@
 # 给你消极的内心声音一个名字
 
-> 原文：<https://lifehacker.com/give-your-negative-inner-voice-a-name-1833910237>
+> 原文:[https://life hacker . com/give-your-negative-inner-voice-a-name-1833910237](https://lifehacker.com/give-your-negative-inner-voice-a-name-1833910237)
 
 我们内心的批评家对我们来说可能是彻头彻尾的讨厌。他们告诉我们，我们不够聪明，不够有才华，不够有吸引力。即使在内心深处，我们不相信这是真的，内心的批评也很难被忽视。毕竟，这是我们自己的声音，我们的声音应该是可信的。
 
-
+Watch
 
 Reddit 用户 u/RagingWaffles 在本帖 中有一个建议:为了让自己与内心的负面声音保持距离，给它一个名字:
 
@@ -28,4 +28,12 @@ Reddit 用户 u/RagingWaffles 在本帖 中有一个建议:为了让自己与内
 > 
 > 每次都管用。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-KL3WbzUAEok&amp;start=0" data-chomp-id="KL3WbzUAEok" data-recommend-id="youtube://KL3WbzUAEok" id="youtube-KL3WbzUAEok" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="KL3WbzUAEok" data-recommend-id="youtube://KL3WbzUAEok" id="youtube-KL3WbzUAEok" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">你内心消极的声音根本不可能战胜皮卡德上尉。</p><p class="sc-77igqf-0 bOfvBY"><strong>更新于 2019 年 4 月 9 日下午 5:15:</strong>署名改为承认最初的想法是由 u/RagingWaffles 最先发布到 Reddit 上的。</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><small> <em>更多来自 Lifehacker，一定要在 Instagram 上关注我们</em></small><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.instagram.com/lifehackerdotcom/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.instagram.com/lifehackerdotcom/" target="_blank" rel="noopener noreferrer"><small><em>@ lifehackerdotcom</em></small></a></span><small><em>。</em> </small> <br/></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-KL3WbzUAEok&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-KL3WbzUAEok&start=0) 
+
+你内心消极的声音根本不可能战胜皮卡德上尉。
+
+**更新于 2019 年 4 月 9 日下午 5:15:**署名改为承认最初的想法是由 u/RagingWaffles 最先发布到 Reddit 上的。
+
+* * *
+
+<small>*更多来自 Lifehacker，一定要在 Instagram 上关注我们*</small>[<small>*@ lifehackerdotcom*</small>](https://www.instagram.com/lifehackerdotcom/)<small>*。*</small>

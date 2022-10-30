@@ -1,11 +1,21 @@
 # 一份好得难以置信的牛排食谱？
 
-> 原文：<https://thetakeout.com/recipe-steak-au-poivre-marco-pierre-white-1832713940>
+> 原文:[https://the take out . com/recipe-steak-au-poi vre-Marco-pierre-white-1832713940](https://thetakeout.com/recipe-steak-au-poivre-marco-pierre-white-1832713940)
 
 马尔科·皮埃尔·怀特，如果你从未听说过这个名字，是 O.G .坏男孩英国厨师，一个臭名昭著的打破年轻的戈登·拉姆齐并让他流泪的人。 和拉姆齐一样，怀特以暴躁的举止闻名，但也是英国最伟大的厨师之一:1994 年，怀特是第一位获得米其林三星的英国厨师，拉姆齐本人在 2001 年也获得了这一荣誉。
 
-
+Watch
 
 怀特已经从餐馆的烹饪工作中退休，现在主要以美食名人和英国食品公司的品牌大使的身份出现在电视上。最近，我在 YouTube 上看到了 White 的一个烹饪视频，内容是牛排(steak au poivre ),这是一种经典的法国小酒馆风味的胡椒牛排。视频播放到一半时，我意识到这是一个鸡肉羹的广告:
 
-<iframe data-src="https://thetakeout.com/embed/inset/iframe?id=youtube-video-BfSl3WwqYls&amp;start=0" data-chomp-id="BfSl3WwqYls" data-recommend-id="youtube://BfSl3WwqYls" id="youtube-BfSl3WwqYls" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="BfSl3WwqYls" data-recommend-id="youtube://BfSl3WwqYls" id="youtube-BfSl3WwqYls" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">尽管它的产品定位并不微妙，但我对鸡精块如何融入牛排食谱很感兴趣。不是用盐和胡椒来调味牛肉，而是将白色碎肉汤块混合在橄榄油中，用这种美味的酱料涂抹牛排。乍听之下，这听起来很奇怪，但是我越想越觉得这就是我在家里做一顿饭的<em>确切地说是</em>方式。</p><p class="sc-77igqf-0 bOfvBY">制作怀特牛排非常简单。这似乎好得不像是真的，但该死的，它成功了。涂有肉汤调料的牛排很快就被烤焦了，锅里的调味汁和三种配料放在一起，两个人的晚餐不到 10 分钟就做好了。这个视频最有趣的地方在于，它是对一位厨师的迷人洞察，这位厨师不是按照严格的食谱烹饪，而是凭直觉烹饪。“为什么不能只是感觉呢？”怀特说着说着。当他把重奶油加入伍斯特郡酱锅中时，他的指示是:“当我喜欢它的颜色时，它就准备好了。”<em>这个</em>应该是我们大家做饭的方式。我们应该在烹饪的时候不断品尝，并做出相应的调整。假设我们在厨房里有一些敏锐的嗅觉，确切的食谱可能经常会被内脏和眼球所回避。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">这并不是制作牛排的终极方式，但烹饪起来却令人难以置信的满足。我将总结一下怀特的方法，并补充一些我自己的建议:买你能找到的最薄的眼袋。对于调味料，我用肉汤粉而不是小块，这样腌泡汁放在一起就不会那么乱了。我还用牛肉汤代替鸡肉，只是为了在最后一道菜里增加牛肉的味道。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809776ScriptRootC1321855"/><div class="mgidMidMobile" id="M809776ScriptRootC1321857"/></div><p class="sc-77igqf-0 bOfvBY">当你烤焦时，我建议用铸铁煎锅或不锈钢锅。因为我的牛排很薄，而且我想要很好的棕色，所以我用菜籽油(黄油太容易燃烧)在每一面用大火煮两分钟。我避免摆弄牛肉，这样它可以达到最大的颜色，而不会煮过头。</p><p class="sc-77igqf-0 bOfvBY">两分钟后，我把牛排放到盘子里(它会一直煮下去)。我把油倒出来，往热锅里加了很多伍斯特郡酱，然后把火调成了中火。在伍斯特郡酱起泡并减少后，我加入了重奶油和绿胡椒粒(你会发现绿胡椒粒被腌制和震碎)。就像怀特说的:“当我喜欢它的颜色时，那就是它准备好了。”我把牛排放回锅里，淋上酱汁，装盘，敲碎许多黑胡椒，然后马上开始吃。</p> </body> </html></iframe>
+ [https://thetakeout.com/embed/inset/iframe?id=youtube-video-BfSl3WwqYls&start=0](https://thetakeout.com/embed/inset/iframe?id=youtube-video-BfSl3WwqYls&start=0) 
+
+尽管它的产品定位并不微妙，但我对鸡精块如何融入牛排食谱很感兴趣。不是用盐和胡椒来调味牛肉，而是将白色碎肉汤块混合在橄榄油中，用这种美味的酱料涂抹牛排。乍听之下，这听起来很奇怪，但是我越想越觉得这就是我在家里做一顿饭的*确切地说是*方式。
+
+制作怀特牛排非常简单。这似乎好得不像是真的，但该死的，它成功了。涂有肉汤调料的牛排很快就被烤焦了，锅里的调味汁和三种配料放在一起，两个人的晚餐不到 10 分钟就做好了。这个视频最有趣的地方在于，它是对一位厨师的迷人洞察，这位厨师不是按照严格的食谱烹饪，而是凭直觉烹饪。“为什么不能只是感觉呢？”怀特说着说着。当他把重奶油加入伍斯特郡酱锅中时，他的指示是:“当我喜欢它的颜色时，它就准备好了。”*这个*应该是我们大家做饭的方式。我们应该在烹饪的时候不断品尝，并做出相应的调整。假设我们在厨房里有一些敏锐的嗅觉，确切的食谱可能经常会被内脏和眼球所回避。
+
+这并不是制作牛排的终极方式，但烹饪起来却令人难以置信的满足。我将总结一下怀特的方法，并补充一些我自己的建议:买你能找到的最薄的眼袋。对于调味料，我用肉汤粉而不是小块，这样腌泡汁放在一起就不会那么乱了。我还用牛肉汤代替鸡肉，只是为了在最后一道菜里增加牛肉的味道。
+
+当你烤焦时，我建议用铸铁煎锅或不锈钢锅。因为我的牛排很薄，而且我想要很好的棕色，所以我用菜籽油(黄油太容易燃烧)在每一面用大火煮两分钟。我避免摆弄牛肉，这样它可以达到最大的颜色，而不会煮过头。
+
+两分钟后，我把牛排放到盘子里(它会一直煮下去)。我把油倒出来，往热锅里加了很多伍斯特郡酱，然后把火调成了中火。在伍斯特郡酱起泡并减少后，我加入了重奶油和绿胡椒粒(你会发现绿胡椒粒被腌制和震碎)。就像怀特说的:“当我喜欢它的颜色时，那就是它准备好了。”我把牛排放回锅里，淋上酱汁，装盘，敲碎许多黑胡椒，然后马上开始吃。

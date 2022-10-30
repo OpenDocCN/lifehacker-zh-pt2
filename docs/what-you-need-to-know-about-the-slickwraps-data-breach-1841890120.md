@@ -1,13 +1,43 @@
 # 关于 Slickwraps 数据泄露，您需要知道什么
 
-> 原文：<https://lifehacker.com/what-you-need-to-know-about-the-slickwraps-data-breach-1841890120>
+> 原文:[https://life hacker . com/what-you-need-to-know-the-slick wraps-data-breach-1841890120](https://lifehacker.com/what-you-need-to-know-about-the-slickwraps-data-breach-1841890120)
 
 如果你曾经用漂亮的定制乙烯基皮肤装饰过你的笔记本电脑或智能手机，很可能你是从 Slickwraps 那里得到它的——或者至少听说过现成和定制皮肤的流行创造者。不幸的是，Slickwraps 最近遭受了一次数据泄露，影响了超过 857，000 个帐户。如果你过去曾经从他们那里购买过东西，或者在该服务上创建了一个账户，你需要知道以下内容。
 
-
+Watch
 
 ### 你的密码和个人财务数据应该是安全的
 
 攻击者利用 Slickwraps 服务器配置中的漏洞来访问客户数据库。一些这样做的人试图提供帮助，然后向 Slickwraps 的客户发送大量电子邮件，告诉他们他们的数据现在已经公开，但没有办法知道谁得到了这些数据库，也不知道他们打算用它们做什么。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1230918545380454400&amp;autosize=1" autoresize="true" id="twitter-1230918545380454400" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">这一漏洞的一线曙光是，如果你把它保存在 Slickwraps 的网站上，你的财务信息是受保护的。你的密码也没问题，尽管这并不重要，因为精明的 Lifehacker 读者已经采纳了我们的建议，为他们使用的每个网站和服务设置了强而唯一的密码<span></span>。根据泄密事件后发来的一封电子邮件<span></span>:</p><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY"><em>...2 月 22 日，我们发现一些非生产数据库中的信息被一个漏洞错误地公开了。在此期间，数据库被未授权方访问。</em></p><p class="sc-77igqf-0 bOfvBY">这些信息不包含密码或个人财务数据。"</p></blockquote><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h18032">至于你的地址...</h3><p class="sc-77igqf-0 bOfvBY">被访问的数据库中包含的数据包括客户姓名、电子邮件地址和实际地址。虽然这可能不足以让某人给你带来太多的痛苦，但它确实让你更容易受到潜在的网络钓鱼攻击。同样有可能的是，这些数据，加上来自其他漏洞的数据，是攻击者为您建立某种新帐户或服务所需的全部信息，或者更糟的是，在一个单独的服务上恢复您的密码，或者说服客户支持代理相信他们就是您。</p><p class="sc-77igqf-0 bOfvBY">否则，在这种情况下你也无能为力。虽然我不认为你需要变得疯狂并开始建立信用冻结，但追求一些免费的信用监测作为对任何违约的默认反应不会有什么坏处。如果有人能把你的地址和你的电子邮件联系起来，这不会对你有太大帮助，但对于这样的时刻来说，这是一个体面的总括姿态。<br/></p><p class="sc-77igqf-0 bOfvBY">除了使用你的浏览器对欺骗网站的保护措施之外，你最好的反应是将一个强大的广告拦截器和一些常识结合起来。如果或当你收到一封不请自来的电子邮件或信息，要求你做一些事情，特别是如果它有一些关于你的个人信息，让<em>觉得</em>好笑——像你的地址，随机插入请求中——要持怀疑态度。</p><p class="sc-77igqf-0 bOfvBY">在你回复它想要的任何信息(如果有的话)之前，先思考一下。单独给请求者发电子邮件或打电话，确认这是合法的请求。不要泄露你的信用卡信息、社会安全号码或任何其他关键数据，除非你能确认你没有被网络钓鱼。像往常一样，在点击网站链接时检查网址，以确保你没有将你的个人数据发送给骗子，而不是你的银行。<br/></p><p class="sc-77igqf-0 bOfvBY">不用说，重置你的 Slickwraps 密码。尽管密码没有被窃取，但当你使用的任何网站或服务遭遇数据事故时，这是你应该做的第一件事。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h18033">你可能是安全的，这取决于你如何在商店购物</h3><p class="sc-77igqf-0 bOfvBY">Slickwraps 数据库漏洞有一个奇怪的地方:如果你从该公司购买了任何东西，但作为<em>客人</em>结账，而不是记账，你完全没问题。在这种情况下，您的任何信息都不会因违规而泄露。同样，如果你在 2 月 22 日之后建立账户，你也是清白的。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h18034">如何检查您的帐户是否受到影响</h3><p class="sc-77igqf-0 bOfvBY">Slickwraps(或那些访问其数据库的人)<em>应该</em>已经向您发送了一条消息，表明您的信息受到了破坏的影响。如果你没有收到那封邮件，或者你只是想确认一下，你可以用<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://haveibeenpwned.com/&quot;,{&quot;metric25&quot;:1}]]" href="https://haveibeenpwned.com/" target="_blank" rel="noopener noreferrer">我被 pwn 了吗？</a> </span>验证您的凭证是否在泄露的数据库中。</p><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1230947044186943490&amp;autosize=1" autoresize="true" id="twitter-1230947044186943490" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><p class="sc-77igqf-0 bOfvBY">尽管如此，鉴于 Slickwraps 据称在数据库泄露的 之前很久就被告知其安全缺陷<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.droid-life.com/2020/02/21/slickwraps-appears-to-have-suffered-a-massive-data-breach/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.droid-life.com/2020/02/21/slickwraps-appears-to-have-suffered-a-massive-data-breach/" target="_blank" rel="noopener noreferrer">，你可能需要重新考虑在哪里购买设备皮肤。遭到网络攻击是一回事；忽视那些试图<em>帮助</em>在漏洞来袭之前修补你的数据库，然后在事后请求原谅的人是另一回事。</a></span></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1230918545380454400&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1230918545380454400&autosize=1) 
+
+这一漏洞的一线曙光是，如果你把它保存在 Slickwraps 的网站上，你的财务信息是受保护的。你的密码也没问题，尽管这并不重要，因为精明的 Lifehacker 读者已经采纳了我们的建议，为他们使用的每个网站和服务设置了强而唯一的密码。根据泄密事件后发来的一封电子邮件:
+
+> *...2 月 22 日，我们发现一些非生产数据库中的信息被一个漏洞错误地公开了。在此期间，数据库被未授权方访问。*
+> 
+> 这些信息不包含密码或个人财务数据。"
+
+### 至于你的地址...
+
+被访问的数据库中包含的数据包括客户姓名、电子邮件地址和实际地址。虽然这可能不足以让某人给你带来太多的痛苦，但它确实让你更容易受到潜在的网络钓鱼攻击。同样有可能的是，这些数据，加上来自其他漏洞的数据，是攻击者为您建立某种新帐户或服务所需的全部信息，或者更糟的是，在一个单独的服务上恢复您的密码，或者说服客户支持代理相信他们就是您。
+
+否则，在这种情况下你也无能为力。虽然我不认为你需要变得疯狂并开始建立信用冻结，但追求一些免费的信用监测作为对任何违约的默认反应不会有什么坏处。如果有人能把你的地址和你的电子邮件联系起来，这不会对你有太大帮助，但对于这样的时刻来说，这是一个体面的总括姿态。
+
+除了使用你的浏览器对欺骗网站的保护措施之外，你最好的反应是将一个强大的广告拦截器和一些常识结合起来。如果或当你收到一封不请自来的电子邮件或信息，要求你做一些事情，特别是如果它有一些关于你的个人信息，让*觉得*好笑——像你的地址，随机插入请求中——要持怀疑态度。
+
+在你回复它想要的任何信息(如果有的话)之前，先思考一下。单独给请求者发电子邮件或打电话，确认这是合法的请求。不要泄露你的信用卡信息、社会安全号码或任何其他关键数据，除非你能确认你没有被网络钓鱼。像往常一样，在点击网站链接时检查网址，以确保你没有将你的个人数据发送给骗子，而不是你的银行。
+
+不用说，重置你的 Slickwraps 密码。尽管密码没有被窃取，但当你使用的任何网站或服务遭遇数据事故时，这是你应该做的第一件事。
+
+### 你可能是安全的，这取决于你如何在商店购物
+
+Slickwraps 数据库漏洞有一个奇怪的地方:如果你从该公司购买了任何东西，但作为*客人*结账，而不是记账，你完全没问题。在这种情况下，您的任何信息都不会因违规而泄露。同样，如果你在 2 月 22 日之后建立账户，你也是清白的。
+
+### 如何检查您的帐户是否受到影响
+
+Slickwraps(或那些访问其数据库的人)*应该*已经向您发送了一条消息，表明您的信息受到了破坏的影响。如果你没有收到那封邮件，或者你只是想确认一下，你可以用 [我被 pwn 了吗？](https://haveibeenpwned.com/) 验证您的凭证是否在泄露的数据库中。
+
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1230947044186943490&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1230947044186943490&autosize=1) 
+
+尽管如此，鉴于 Slickwraps 据称在数据库泄露的 之前很久就被告知其安全缺陷 [，你可能需要重新考虑在哪里购买设备皮肤。遭到网络攻击是一回事；忽视那些试图*帮助*在漏洞来袭之前修补你的数据库，然后在事后请求原谅的人是另一回事。](https://www.droid-life.com/2020/02/21/slickwraps-appears-to-have-suffered-a-massive-data-breach/)

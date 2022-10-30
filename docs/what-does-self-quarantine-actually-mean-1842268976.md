@@ -1,10 +1,10 @@
 # 自我隔离实际上是什么意思？
 
-> 原文：<https://lifehacker.com/what-does-self-quarantine-actually-mean-1842268976>
+> 原文:[https://life hacker . com/what-do-self-quarantine-actually-mean-1842268976](https://lifehacker.com/what-does-self-quarantine-actually-mean-1842268976)
 
 你现在可能被要求“在家工作”,或者如果你可能已经接触了新冠肺炎病毒，就准备“自我隔离”。但是对于这涉及到什么还有一些困惑。你能在咖啡馆工作吗？遛狗？
 
-
+Watch
 
 首先，让我们明确一些定义:
 
@@ -35,4 +35,18 @@
 *   做庭院工作
 *   去跑步
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1237805524814417921&amp;autosize=1" autoresize="true" id="twitter-1237805524814417921" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">在这种情况下，你应该<em>绝对</em>避免在咖啡馆工作，在去工作或学校的餐馆吃饭，去参加活动或聚会，如果你不去购物或跑腿可能是最好的；找个人帮你做这件事。也不要举办任何聚会。把你的朋友带到你身边是一个聪明的想法，但却没有达到目的。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h15534">如果你知道你生病了</h3><p class="sc-77igqf-0 bOfvBY">如果你感染了新冠肺炎病毒(或者你认为是新冠肺炎病毒),你不是被隔离，而是被隔离。想法是一样的——避开人群——但是这次你知道你生病了。这意味着你会更加警惕在家中传播疾病的可能性。</p><p class="sc-77igqf-0 bOfvBY">疾病预防控制中心为有病人的家庭提供指导，包括让病人戴上口罩，如果可能的话，使用与其他家庭成员分开的卧室和浴室，如果你能安排的话。你也会想经常清洁表面。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h15535">如何准备检疫</h3><p class="sc-77igqf-0 bOfvBY">你不需要一百万卷卫生纸，也不需要一个装满末日物资的掩体。为未来可能的隔离做准备只是意味着你在家里呆几天不会有问题。</p><p class="sc-77igqf-0 bOfvBY">正如丽莎在我们关于如何储备 的指南中所写的那样，适当的供应包括几天额外的你通常会购买的任何东西。你需要洗手用的肥皂，可以维持一段时间的食品杂货(想想冷冻食品，不一定是干豆)，以及任何日常需要或生病时可能需要的医疗或健康相关用品，如纸巾。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1237805524814417921&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1237805524814417921&autosize=1) 
+
+在这种情况下，你应该*绝对*避免在咖啡馆工作，在去工作或学校的餐馆吃饭，去参加活动或聚会，如果你不去购物或跑腿可能是最好的；找个人帮你做这件事。也不要举办任何聚会。把你的朋友带到你身边是一个聪明的想法，但却没有达到目的。
+
+### 如果你知道你生病了
+
+如果你感染了新冠肺炎病毒(或者你认为是新冠肺炎病毒),你不是被隔离，而是被隔离。想法是一样的——避开人群——但是这次你知道你生病了。这意味着你会更加警惕在家中传播疾病的可能性。
+
+疾病预防控制中心为有病人的家庭提供指导，包括让病人戴上口罩，如果可能的话，使用与其他家庭成员分开的卧室和浴室，如果你能安排的话。你也会想经常清洁表面。
+
+### 如何准备检疫
+
+你不需要一百万卷卫生纸，也不需要一个装满末日物资的掩体。为未来可能的隔离做准备只是意味着你在家里呆几天不会有问题。
+
+正如丽莎在我们关于如何储备 的指南中所写的那样，适当的供应包括几天额外的你通常会购买的任何东西。你需要洗手用的肥皂，可以维持一段时间的食品杂货(想想冷冻食品，不一定是干豆)，以及任何日常需要或生病时可能需要的医疗或健康相关用品，如纸巾。

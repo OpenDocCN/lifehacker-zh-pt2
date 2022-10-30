@@ -1,6 +1,6 @@
 # 如何在这个周末获得免费的《杀手:赦免》
 
-> 原文：<https://lifehacker.com/how-to-get-a-free-copy-of-hitman-absolution-this-weeke-1844015039>
+> 原文:[https://life hacker . com/how-to-get-a-free-copy-of-hitman-absolution-this-week e-1844015039](https://lifehacker.com/how-to-get-a-free-copy-of-hitman-absolution-this-weeke-1844015039)
 
 我不在乎 IO Interactive 推出了多少个杀手游戏，我会玩其中的每一个游戏*，尽管它们都涉及到做完全相同的事情:仔细研究广阔的关卡，找到执行秘密暗杀的最佳地点。还有， 对我来说，争先恐后地完成你的目标，而不会在你的计划出问题时看起来像个十足的傻瓜。如果你觉得这是个好时机，那么你很幸运:这个周末你可以免费得到一本 2012 年的《杀手:赦免》。*
 
@@ -8,4 +8,10 @@
 
 *要做到这一点，现在就激活你的好游戏账户——或者创建一个，如果你没有的话——然后申请免费的副本。就这么简单。虽然老化游戏不会像 2018 年的 *Hitman 2* 那样具有图形刺激，但我相信你仍然会有很多乐趣来找出它允许你杀死目标 NPC 的所有奇怪方式。例如:*
 
-*<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-Hx3QZzL29Jo&amp;start=0" data-chomp-id="Hx3QZzL29Jo" data-recommend-id="youtube://Hx3QZzL29Jo" id="youtube-Hx3QZzL29Jo" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="Hx3QZzL29Jo" data-recommend-id="youtube://Hx3QZzL29Jo" id="youtube-Hx3QZzL29Jo" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">GOG 的赠品是其<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.gog.com/#giveaway&quot;,{&quot;metric25&quot;:1}]]" href="https://www.gog.com/#giveaway" target="_blank" rel="noopener noreferrer">夏季销售压轴</a> </span>的一部分，在此期间，你还可以以合理的价格获得大量其他经典游戏的分数(包括我最喜欢的<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.gog.com/game/diablo&quot;,{&quot;metric25&quot;:1}]]" href="https://www.gog.com/game/diablo" target="_blank" rel="noopener noreferrer"> <em>暗黑破坏神</em> + <em>地狱火</em>捆绑</a> </span>，这将花费你一杯花式星巴克咖啡的价格)。然而，如果你不想买任何东西也没关系；这不会影响你下载或玩《杀手:赦免》的能力。</p><p class="sc-77igqf-0 bOfvBY">然而，有一个<em>小陷阱——就像一个刺客在一个伟大的<em>杀手</em>级别上航行一样，你只有那么多的机会大赚一笔。限时免费赠送将于美国东部时间 6 月 15 日周一上午 9:00 结束。即使你不确定你是否会玩这个游戏，也没有理由不抓住它，永远把它和你的帐户联系起来，并把它添加到你最终要完成的游戏列表中。</em></p><p class="sc-77igqf-0 bOfvBY">这些天来,<em>杀手:赦免</em>零售价为 20 美元，所以这笔交易实际上是体面的；GOG 不只是在 7 美元的图书上贴上“大”数字折扣标签。当你挑选这款杀手游戏时，你也可以花一天时间查看你的<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.epicgames.com/store/en-US/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.epicgames.com/store/en-US/" target="_blank" rel="noopener noreferrer">史诗游戏</a> </span>商店账户，其中<em>方舟:生存进化</em>和<em>武士对决 Neogeo 收藏</em>在 6 月 18 日之前都是免费的。这周末你应该有很多事可做。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>*
+ *[https://lifehacker.com/embed/inset/iframe?id=youtube-video-Hx3QZzL29Jo&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-Hx3QZzL29Jo&start=0)* 
+
+*GOG 的赠品是其 [夏季销售压轴](https://www.gog.com/#giveaway) 的一部分，在此期间，你还可以以合理的价格获得大量其他经典游戏的分数(包括我最喜欢的 [*暗黑破坏神* + *地狱火*捆绑](https://www.gog.com/game/diablo) ，这将花费你一杯花式星巴克咖啡的价格)。然而，如果你不想买任何东西也没关系；这不会影响你下载或玩《杀手:赦免》的能力。*
+
+*然而，有一个*小陷阱——就像一个刺客在一个伟大的*杀手*级别上航行一样，你只有那么多的机会大赚一笔。限时免费赠送将于美国东部时间 6 月 15 日周一上午 9:00 结束。即使你不确定你是否会玩这个游戏，也没有理由不抓住它，永远把它和你的帐户联系起来，并把它添加到你最终要完成的游戏列表中。**
+
+*这些天来,*杀手:赦免*零售价为 20 美元，所以这笔交易实际上是体面的；GOG 不只是在 7 美元的图书上贴上“大”数字折扣标签。当你挑选这款杀手游戏时，你也可以花一天时间查看你的 [史诗游戏](https://www.epicgames.com/store/en-US/) 商店账户，其中*方舟:生存进化*和*武士对决 Neogeo 收藏*在 6 月 18 日之前都是免费的。这周末你应该有很多事可做。*

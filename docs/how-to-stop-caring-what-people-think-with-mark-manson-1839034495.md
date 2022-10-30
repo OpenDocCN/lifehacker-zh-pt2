@@ -1,9 +1,35 @@
 # 如何停止关心别人的想法，马克·曼森
 
-> 原文：<https://lifehacker.com/how-to-stop-caring-what-people-think-with-mark-manson-1839034495>
+> 原文:[https://life hacker . com/how-to-stop-care-what-people-think-with-mark-Manson-1839034495](https://lifehacker.com/how-to-stop-caring-what-people-think-with-mark-manson-1839034495)
 
 你有没有发现自己花了太多时间担心别人对你的看法？你准备好放下那些不必要的顾虑，让 T2 专注于其他更重要的事情了吗？本周在升级版中，我们将与《T4》的作者马克·曼森一起解决我们的问题，并重温我们对 2017 年《如何不在乎》集作家萨曼莎·艾尔比的采访。
 
+Watch
 
+[https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/dd216110-3e79-4f4c-908e-ace987a09b1c/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/dd216110-3e79-4f4c-908e-ace987a09b1c/embed)
 
-<iframe data-src="https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/dd216110-3e79-4f4c-908e-ace987a09b1c/embed" width="640px" height="360px" sandbox="allow-same-origin allow-scripts allow-forms" frameborder="0" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen" class="lazyload" scrolling="yes">T2】</span></p><p class="sc-77igqf-0 bOfvBY">收听上面的升级或者在所有通常提供播客的地方找到我们，包括<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://itunes.apple.com/us/podcast/lifehacker/id508117781?mt=2&quot;,{&quot;metric25&quot;:1}]]" href="https://itunes.apple.com/us/podcast/lifehacker/id508117781?mt=2" target="_blank" rel="noopener noreferrer">苹果播客</a></span><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://play.google.com/music/listen?u=0#/ps/Illldmn6f4jkwb32lslhae3laru&quot;,{&quot;metric25&quot;:1}]]" href="https://play.google.com/music/listen?u=0#/ps/Illldmn6f4jkwb32lslhae3laru" target="_blank" rel="noopener noreferrer">Google Play</a></span><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj&quot;,{&quot;metric25&quot;:1}]]" href="https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj" target="_blank" rel="noopener noreferrer">Spotify</a></span><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.iheart.com/podcast/8-The-Upgrade-by-Lifehacker-28037794/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.iheart.com/podcast/8-The-Upgrade-by-Lifehacker-28037794/" target="_blank" rel="noopener noreferrer">iHeartRadio</a></span><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.stitcher.com/podcast/lifehacker-podcast&quot;,{&quot;metric25&quot;:1}]]" href="https://www.stitcher.com/podcast/lifehacker-podcast" target="_blank" rel="noopener noreferrer">Stitcher</a></span>和 NPR 一号。</p><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><h3 class="sc-1bwb26k-1 kpbNNd" id="h288594">本周的集锦</h3><h4 class="sc-1bwb26k-1 kpbNNd" id="h288595">马克·曼森访谈</h4><p class="sc-77igqf-0 bOfvBY">他为什么写“微妙的艺术”，以及为什么任何人都应该写东西:<br/></p><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">[我写的]因为我需要它。我想这就是我写作的秘密——我写的东西，并不是因为其他人需要它。因为我需要它。你知道，我当时正为很多我不想为之烦恼的事情而烦恼。所以这种严厉、讽刺——很大程度上是针对我自己的...我主要是自言自语，并试图以此作为我所有工作的起点。</p></blockquote><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">关于“不在乎”的真正含义:</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">不是无所谓的问题。这是关于找到两三件真正有价值的事情，因为一旦你找到了它们，那么所有的小事都变得不那么重要了。这阻止了它对你的影响。所以当有人来找我说，“我太在乎别人怎么想了，”我的第一反应是你需要找到比别人怎么想更重要的东西。这就是问题所在。问题不在于你需要停止在意人们对你的评价。而是你需要找到其他更重要的东西，让他们想说什么就说什么，这不会改变你的想法。</p></blockquote><h4 class="sc-1bwb26k-1 kpbNNd" id="h288596">萨曼莎·艾尔比的采访</h4><p class="sc-77igqf-0 bOfvBY">关于她的朋友试图让她改变约会应用的个人资料:</p><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">我的网名是“屁悸动”她看着我，好像我刚从婴儿身上咬了一口。她说，你想去见谁？我就像，一个有趣的人！</p></blockquote><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">就像，我所有的照片都是我所能拍的最胖最胖的照片——其中一张我像弯着腰吃蛋糕。因为...如果我发了这个帖子，那么[我可能会遇到]一个我可能真的想与之建立六个月关系的人。如果我真的想遇见某个人，我必须做我自己。而《屁悸动》<em>就是</em>爆笑。如果你想和我在一起，你会觉得这很有趣。如果它让你想吐，那么，你知道，我们不会工作。</p></blockquote><p class="sc-77igqf-0 bOfvBY">想要了解更多马克的建议和山姆的搞笑故事，我们建议收听播客。很好玩！另外:我们分享一位听众最近的语音邮件。如果你想成为这个节目的主角，请拨打 347-687-8109，或者给 upgrade@lifehacker.com 发语音备忘录。下周我们将讨论公众演讲，所以如果你对这个话题有任何感受，请分享！</p> </body> </html></iframe>
+T2】
+
+收听上面的升级或者在所有通常提供播客的地方找到我们，包括 [苹果播客](https://itunes.apple.com/us/podcast/lifehacker/id508117781?mt=2)[Google Play](https://play.google.com/music/listen?u=0#/ps/Illldmn6f4jkwb32lslhae3laru)[Spotify](https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj)[iHeartRadio](https://www.iheart.com/podcast/8-The-Upgrade-by-Lifehacker-28037794/)[Stitcher](https://www.stitcher.com/podcast/lifehacker-podcast)和 NPR 一号。
+
+### 本周的集锦
+
+#### 马克·曼森访谈
+
+他为什么写“微妙的艺术”，以及为什么任何人都应该写东西:
+
+> [我写的]因为我需要它。我想这就是我写作的秘密——我写的东西，并不是因为其他人需要它。因为我需要它。你知道，我当时正为很多我不想为之烦恼的事情而烦恼。所以这种严厉、讽刺——很大程度上是针对我自己的...我主要是自言自语，并试图以此作为我所有工作的起点。
+
+关于“不在乎”的真正含义:
+
+> 不是无所谓的问题。这是关于找到两三件真正有价值的事情，因为一旦你找到了它们，那么所有的小事都变得不那么重要了。这阻止了它对你的影响。所以当有人来找我说，“我太在乎别人怎么想了，”我的第一反应是你需要找到比别人怎么想更重要的东西。这就是问题所在。问题不在于你需要停止在意人们对你的评价。而是你需要找到其他更重要的东西，让他们想说什么就说什么，这不会改变你的想法。
+
+#### 萨曼莎·艾尔比的采访
+
+关于她的朋友试图让她改变约会应用的个人资料:
+
+> 我的网名是“屁悸动”她看着我，好像我刚从婴儿身上咬了一口。她说，你想去见谁？我就像，一个有趣的人！
+
+> 就像，我所有的照片都是我所能拍的最胖最胖的照片——其中一张我像弯着腰吃蛋糕。因为...如果我发了这个帖子，那么[我可能会遇到]一个我可能真的想与之建立六个月关系的人。如果我真的想遇见某个人，我必须做我自己。而《屁悸动》*就是*爆笑。如果你想和我在一起，你会觉得这很有趣。如果它让你想吐，那么，你知道，我们不会工作。
+
+想要了解更多马克的建议和山姆的搞笑故事，我们建议收听播客。很好玩！另外:我们分享一位听众最近的语音邮件。如果你想成为这个节目的主角，请拨打 347-687-8109，或者给 upgrade@lifehacker.com 发语音备忘录。下周我们将讨论公众演讲，所以如果你对这个话题有任何感受，请分享！

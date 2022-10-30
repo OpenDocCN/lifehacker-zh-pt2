@@ -1,9 +1,33 @@
 # 如何照顾你的肠道健康
 
-> 原文：<https://lifehacker.com/how-to-take-care-of-your-gut-health-1838875310>
+> 原文:[https://life hacker . com/how-to-care-of-your-gut-health-1838875310](https://lifehacker.com/how-to-take-care-of-your-gut-health-1838875310)
 
 本周我们将讨论粪便移植、益生菌、肠道菌群等等。你胃肠道里的细菌会影响你的情绪吗？你的微生物群如何影响你的整体健康？我们访问了计算生物学家 Jose Clemente 博士的实验室，他和他的团队在那里研究肠易激疾病患者粪便移植的疗效。
 
+Watch
 
+[https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/704bad1d-32eb-4466-88b5-d1111f0039de/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/704bad1d-32eb-4466-88b5-d1111f0039de/embed)
 
-<iframe data-src="https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/704bad1d-32eb-4466-88b5-d1111f0039de/embed" width="640px" height="360px" sandbox="allow-same-origin allow-scripts allow-forms" frameborder="0" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen" class="lazyload" scrolling="yes">T2】</span></p><p class="sc-77igqf-0 bOfvBY">收听上面的升级或者在所有通常提供播客的地方找到我们，包括<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://itunes.apple.com/us/podcast/lifehacker/id508117781?mt=2&quot;,{&quot;metric25&quot;:1}]]" href="https://itunes.apple.com/us/podcast/lifehacker/id508117781?mt=2" target="_blank" rel="noopener noreferrer">苹果播客</a></span><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://play.google.com/music/listen?u=0#/ps/Illldmn6f4jkwb32lslhae3laru&quot;,{&quot;metric25&quot;:1}]]" href="https://play.google.com/music/listen?u=0#/ps/Illldmn6f4jkwb32lslhae3laru" target="_blank" rel="noopener noreferrer">Google Play</a></span><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj&quot;,{&quot;metric25&quot;:1}]]" href="https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj" target="_blank" rel="noopener noreferrer">Spotify</a></span><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.iheart.com/podcast/8-The-Upgrade-by-Lifehacker-28037794/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.iheart.com/podcast/8-The-Upgrade-by-Lifehacker-28037794/" target="_blank" rel="noopener noreferrer">iHeartRadio</a></span><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.stitcher.com/podcast/lifehacker-podcast&quot;,{&quot;metric25&quot;:1}]]" href="https://www.stitcher.com/podcast/lifehacker-podcast" target="_blank" rel="noopener noreferrer">Stitcher</a></span>和 NPR 一号。请订阅、评分和评论。</p><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><h3 class="sc-1bwb26k-1 kpbNNd" id="h174806">问克莱门特博士几个问题</h3><h4 class="sc-1bwb26k-1 kpbNNd" id="h174807">什么是微生物组？</h4><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">微生物群是我们体内细菌的集合。大多数情况下，当人们想到细菌时，他们会想到病原体，那些对你有害的东西。微生物群不是那样的。微生物群是为我们做事的细菌。例如，我们肠道中的许多细菌负责消化营养物质。…它们从营养中获取能量。它们分解纤维，产生某些我们身体不能产生的维生素。所以微生物群是对我们的健康非常重要的细菌有机体的集合。</p></blockquote><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><h4 class="sc-1bwb26k-1 kpbNNd" id="h174808">微生物群中有多少种不同类型的细菌？</h4><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">我想说，在美国的一个人身上，你可能会发现成百上千种不同的细菌，这取决于你对细菌种类的定义。没错。例如，我们所有人都有一种你可能知道的细菌:大肠杆菌。没错。我们所有人都有大肠杆菌，但是你的大肠杆菌和我的大肠杆菌不一样。所以这些生物变化非常快。他们很快获得突变。因此，即使我们有相同的物种，也不完全相同。所以我的大肠杆菌可能很擅长做某些你的不擅长的事情，反之亦然。所以我总是告诉人们很难给出一个精确的数字，因为很难统计。</p></blockquote><h4 class="sc-1bwb26k-1 kpbNNd" id="h174809">健康人的微生物组和炎症性肠病患者的微生物组有什么区别？</h4><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">在 IBD 患者中，微生物群的多样性要少得多。这又回到了贫困生态系统的概念:我们的物种越来越少，因为我们的物种越来越少，所以环境越来越脆弱...因此，我认为我们反复发现的一件事是，我们缺少能够产生某些具有抗炎特性的化合物的物种。</p></blockquote><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><h4 class="sc-1bwb26k-1 kpbNNd" id="h174810">粪便移植对患有 IBD 的人有什么作用？</h4><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">这个想法是我们要用健康捐赠者身上的微生物来替换病人身上的微生物。这在概念上类似于器官移植...所以基本上粪便移植的工作方式是你筛选一群捐赠者，所以他们必须通过某些标准——他们不能有任何类型的传染病，他们不能有几个月的抗生素。你正在把微生物从一个人身上转移到另一个人身上，[所以]你要确保你没有传递可能对病人造成伤害的东西。然后程序就相对简单了——你从捐献者那里获得粪便。你将它们混合，然后过滤混合物，通过结肠镜检查将混合物移植到病人体内。</p></blockquote><p class="sc-77igqf-0 bOfvBY">想了解更多关于粪便移植的知识吗，比如它们有多有效，以及它们在未来可能用于治疗哪些疾病和问题？想知道你是否应该服用益生菌？请收听这一集了解更多信息。</p> </body> </html></iframe>
+T2】
+
+收听上面的升级或者在所有通常提供播客的地方找到我们，包括 [苹果播客](https://itunes.apple.com/us/podcast/lifehacker/id508117781?mt=2)[Google Play](https://play.google.com/music/listen?u=0#/ps/Illldmn6f4jkwb32lslhae3laru)[Spotify](https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj)[iHeartRadio](https://www.iheart.com/podcast/8-The-Upgrade-by-Lifehacker-28037794/)[Stitcher](https://www.stitcher.com/podcast/lifehacker-podcast)和 NPR 一号。请订阅、评分和评论。
+
+### 问克莱门特博士几个问题
+
+#### 什么是微生物组？
+
+> 微生物群是我们体内细菌的集合。大多数情况下，当人们想到细菌时，他们会想到病原体，那些对你有害的东西。微生物群不是那样的。微生物群是为我们做事的细菌。例如，我们肠道中的许多细菌负责消化营养物质。…它们从营养中获取能量。它们分解纤维，产生某些我们身体不能产生的维生素。所以微生物群是对我们的健康非常重要的细菌有机体的集合。
+
+#### 微生物群中有多少种不同类型的细菌？
+
+> 我想说，在美国的一个人身上，你可能会发现成百上千种不同的细菌，这取决于你对细菌种类的定义。没错。例如，我们所有人都有一种你可能知道的细菌:大肠杆菌。没错。我们所有人都有大肠杆菌，但是你的大肠杆菌和我的大肠杆菌不一样。所以这些生物变化非常快。他们很快获得突变。因此，即使我们有相同的物种，也不完全相同。所以我的大肠杆菌可能很擅长做某些你的不擅长的事情，反之亦然。所以我总是告诉人们很难给出一个精确的数字，因为很难统计。
+
+#### 健康人的微生物组和炎症性肠病患者的微生物组有什么区别？
+
+> 在 IBD 患者中，微生物群的多样性要少得多。这又回到了贫困生态系统的概念:我们的物种越来越少，因为我们的物种越来越少，所以环境越来越脆弱...因此，我认为我们反复发现的一件事是，我们缺少能够产生某些具有抗炎特性的化合物的物种。
+
+#### 粪便移植对患有 IBD 的人有什么作用？
+
+> 这个想法是我们要用健康捐赠者身上的微生物来替换病人身上的微生物。这在概念上类似于器官移植...所以基本上粪便移植的工作方式是你筛选一群捐赠者，所以他们必须通过某些标准——他们不能有任何类型的传染病，他们不能有几个月的抗生素。你正在把微生物从一个人身上转移到另一个人身上，[所以]你要确保你没有传递可能对病人造成伤害的东西。然后程序就相对简单了——你从捐献者那里获得粪便。你将它们混合，然后过滤混合物，通过结肠镜检查将混合物移植到病人体内。
+
+想了解更多关于粪便移植的知识吗，比如它们有多有效，以及它们在未来可能用于治疗哪些疾病和问题？想知道你是否应该服用益生菌？请收听这一集了解更多信息。

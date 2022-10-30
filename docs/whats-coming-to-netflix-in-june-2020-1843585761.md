@@ -1,10 +1,10 @@
 # 2020 年 6 月，网飞将迎来什么
 
-> 原文：<https://lifehacker.com/whats-coming-to-netflix-in-june-2020-1843585761>
+> 原文:[https://life hacker . com/whats-coming-to-2020-6-1843585761](https://lifehacker.com/whats-coming-to-netflix-in-june-2020-1843585761)
 
 六月即将来临。为了帮助大家做好准备，网飞刚刚发布了下个月该平台将要发布和将要发布的内容列表。
 
-
+Watch
 
 网飞原著《富勒之家》和《13 个理由》的最后一季分别于 6 月 2 日和 6 月 5 日的第一周上映。本月，网飞还获得了斯派克·李的第一部直接流媒体电影《Da 5 Bloods》，它将于 6 月 12 日上映。然后在 6 月 26 日，“欧洲歌唱大赛:火灾传奇的故事”，一部由威尔·法瑞尔和瑞秋·麦克亚当斯主演的音乐纪录片，在平台上落下。
 
@@ -12,4 +12,301 @@
 
 以下是本月将要发生和将要发生的事情的完整概要:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-w1JDTqatpdE&amp;start=0" data-chomp-id="w1JDTqatpdE" data-recommend-id="youtube://w1JDTqatpdE" id="youtube-w1JDTqatpdE" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="w1JDTqatpdE" data-recommend-id="youtube://w1JDTqatpdE" id="youtube-w1JDTqatpdE" data-recommended="false" class="js_recommend"/></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h294636"><strong>6 月 1 日上市</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>勇敢的行为</li><li><em>所有的狗都去天堂</em></li><li><em>坏消息熊</em></li><li><em>恐怖角</em></li><li><em>卡斯珀</em></li><li><em>捕手小樱:克洛卡</em></li><li><em>捕手小樱:小樱卡</em></li><li><em>毫无头绪</em></li><li>椰子瓜第一季</li><li><em>外星人</em></li><li><em>治疗者</em></li><li><em>内线</em></li><li><em>色戒</em></li><li><em>观察并报告</em></li><li><em>牧师</em></li><li><em>沉默的羔羊</em></li><li><em>星河舰队</em></li><li>男孩</li><li><em>汽车</em> (1977)</li><li><em>灾难艺术家</em></li><li><em>求助</em></li><li><em>湖边小屋</em></li><li><em>女王</em></li><li><em>龙卷风</em></li><li><em> V 为仇杀</em></li><li>艰难前行:杜威·考克斯的故事</li><li><em>西区故事</em></li><li><em>你不要惹佐汉</em></li><li><em>黄道十二宫</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294637"><strong>6 月 2 日上市</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>独自一人</em>:第六季</li><li>富勒豪斯医生:告别季 n-网飞原创</li><li>盖斯·布洛克斯:我正在走的路:第一季</li><li><em>真实:彩虹救援</em> —网飞一家</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294638"><strong>6 月 3 日上市</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>淑女鸟</li><li><em>杀死冈瑟</em></li><li><em>拼字王</em> —网飞纪录片</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294639"><strong>6 月 4 日上市</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>叶鬼:大赛车传奇</em> —网飞动漫</li><li>你能听到我吗？/ M'entends-tu？ —网飞原创</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294640"><strong>6 月 5 日上市</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em> 13 个理由</em>:第四季——网飞原创</li><li><em>哽咽:帕赛博尔塔海</em>——网飞电影</li><li>汉尼拔:第 1-3 季</li><li><em>美国犯罪的最后日子</em> —网飞电影</li><li>《酷儿眼》:第五季——网飞原创</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294641"><strong>6 月 6 日上市</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>南方女王第四季</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294642"><strong>6 月 7 日上市</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>哈桑·米哈杰的《爱国者法案》:第 6 卷——网飞原创(每周新集)</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294643"><strong>6 月 8 日上市</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>在我倒下之前</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294644"><strong>6 月 10 日上市</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>科龙</em> —网飞原创</li><li><em> DC 明日传奇</em>:第五季</li><li><em>鲁诺·希尔</em> —网飞纪录片</li><li><em>中间人</em></li><li>我的先生第一季</li><li><em>现实 Z </em> —网飞原创</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294645"><strong>6 月 11 日提供</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>姿势</em>:第二季</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294646"><strong>6 月 12 日上市</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>沉迷于生活</em></li><li><em>大五血</em> —网飞电影</li><li>前后的约会:第二季——网飞原创</li><li><em> F 代表家庭</em>:第四季——网飞原创</li><li>乔·科伊:如鱼得水 —网飞喜剧特辑</li><li>奇波和神奇动物时代:第二季——网飞家族</li><li><em>一块:雪花石膏</em></li><li><em>海贼王:东蓝</em></li><li><em>海贼王:在冬岛进入斩波器</em></li><li><em>一块:进入大线</em></li><li>神奇宝贝之旅:系列 —网飞一家</li><li><em>王熙凤</em> —网飞原创</li><li><em>树林</em> —网飞原创</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294647"><strong>6 月 13 日上市</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>亚历克莎&amp;凯蒂:第四部——网飞一家</li><li>如何逃脱谋杀:第六季</li><li><em>米莉娅</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294648"><strong>6 月 14 日上市</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>玛塞拉:第三季——网飞原创</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294649"><strong>6 月 15 日上市</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>失败者</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294650"><strong>6 月 16 日上市</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>宝宝妈妈</em></li><li><em>查理·圣克劳德</em></li><li><em>黑暗</em></li><li><em>弗罗斯特/尼克松</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294651"><strong>6 月 17 日上市</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>与贝弗利·拉夫·林共度的夜晚</em></li><li>伊格莱西亚斯先生 : <em>第二部</em>——网飞原著</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294652"><strong>6 月 18 日上市</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>一发不可收拾</em> —网飞电影</li><li>顺序:第二季 —网飞原创</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294653"><strong>6 月 19 日上市</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>婴儿:第二部 —网飞纪录片</li><li><em>父亲士兵儿子</em> —网飞纪录片</li><li><em>感受节拍</em> —网飞电影</li><li><em>地板是熔岩</em> —网飞原作</li><li><em>遗失的子弹</em> —网飞电影</li><li>来自伊帕内玛的女孩:第二季——网飞原创</li><li><em>明天的路</em> —网飞电影</li><li><em>政治家</em> —网飞原创</li><li><em>韵时光小镇</em> —网飞家族</li><li><em>黄蜂网</em> —网飞电影</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294654"><strong>6 月 21 日上市</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>戈尔迪</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294655"><strong>6 月 22 日上市</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>黑暗的天空</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294656"><strong>6 月 23 日上市</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>埃里克·安德烈:让一切合法化 —网飞喜剧特辑</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294657"><strong>6 月 24 日上市</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>运动员 A</em>——网飞纪录片</li><li><em>疯狂美味</em> —网飞原创</li><li>没人知道我在这里/ Nadie sabe estoy aquí —网飞电影</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294658"><strong>6 月 26 日上市</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>阿马尔与维维耶 —网飞原创</li><li><em>欧洲歌唱大赛:火之传奇</em>的故事——网飞电影</li><li><em>主场比赛</em> —网飞纪录片</li><li><em>直线上升</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294659"><strong>6 月 29 日上市</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>布拉茨:电影</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294660"><strong>6 月 30 日上市</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em> Adú </em> —网飞电影</li><li><em> BNA </em> —网飞动漫</li><li>乔治·洛佩兹:我们只收一半费用——网飞喜剧特辑</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294661">最后一次通话</h3><h3 class="sc-1bwb26k-1 kpbNNd" id="h294662"><strong>6 月 1 日出发</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>国王的演讲</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294663"><strong>6 月 3 日出发</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>上帝没有死:黑暗中的一道光</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294664"><strong>6 月 4 日出发</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>完美的男人</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294665"><strong>6 月 7 日出发</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>平衡</em></li><li><em>来自巴黎的爱</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294666"><strong>离开 6 月 9 日</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>《广告狂人》第一至第七季</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294667"><strong>离开 6 月 10 日</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>对峙</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294668"><strong>6 月 11 日离开</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>乔纳森·斯特兰奇&amp;诺雷尔先生:第一季</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294669"><strong>6 月 12 日离开</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>龙心</em></li><li>龙之心 3:一个新的魔法师</li><li><em>龙心:新的开始</em></li><li><em>龙之心:心火之战</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294670"><strong>离开 6 月 13 日</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>小可爱和拳击手</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294671"><strong>6 月 16 日出发</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>斯坦福监狱实验</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294672"><strong>6 月 22 日出发</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>泰山</em></li><li><em>泰山 II </em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294673"><strong>6 月 24 日出发</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>复仇者联盟 3：无限战争</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294674"><strong>6 月 27 日出发</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>危险！:庆祝亚历克斯收藏</em></li><li><em>危险！:辛迪·斯托维尔系列</em></li><li><em>危险！:塞思·威尔逊收藏</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294675"><strong>6 月 29 日出发</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>我的屁股发疯的那一天！:第 1-2 季</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294676"><strong>6 月 30 日出发</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em> 21 </em></li><li><em>鬼哭狼嚎</em></li><li>《安迪·格里菲斯秀》第一季到第八季</li><li><em>吹</em></li><li>穿条纹睡衣的男孩</li><li><em>布鲁克林最好的</em></li><li><em>中央舞台</em></li><li><em>追艾米</em></li><li><em>欢呼</em>:第 1-11 季</li><li><em>奇蒂奇蒂邦邦</em></li><li><em>克洛伊</em></li><li><em>点击</em></li><li><em>克洛弗菲尔德</em></li><li>本杰明·巴顿奇事</li><li><em>公爵夫人</em></li><li>伊丽莎白</li><li>伊丽莎白:黄金时代</li><li><em>费里斯·布勒的休息日</em></li><li><em>幽灵骑士</em></li><li>快乐时光第一季</li><li><em>光是这里</em></li><li><em>盗梦空间</em></li><li><em>未包含的指令</em></li><li><em>说谎的发明</em></li><li>朱莉&amp;朱丽娅</li><li>凯特&amp;利奥波德</li><li><em>亲吻女孩们</em></li><li><em>最后的武士</em></li><li><em>无限</em>:第一季</li><li><em>小怪物</em></li><li><em>曼斯菲尔德庄园</em></li><li><em>佐罗的面具</em></li><li><em>矩阵</em></li><li><em>矩阵重新加载</em></li><li><em>矩阵革命</em></li><li><em>少数派报告</em></li><li><em>爱国者游戏</em></li><li><em>费城</em></li><li><em>极地特快</em></li><li><em>跑向魔女山</em></li><li><em>戒指</em></li><li><em>恐怖电影</em></li><li><em>条子</em></li><li><em>司徒小二</em></li><li><em>震颤</em></li><li>地震 2:余震</li><li><em>震颤 3:回归完美</em></li><li><em>震颤 4:传说开始</em></li><li><em>震颤 5:血统</em></li><li><em>下面是什么</em></li><li><em>应声虫</em></li></ul><div id="mgid-container" data-placement="4" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-w1JDTqatpdE&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-w1JDTqatpdE&start=0) 
+
+### **6 月 1 日上市**
+
+*   勇敢的行为
+*   *所有的狗都去天堂*
+*   *坏消息熊*
+*   *恐怖角*
+*   *卡斯珀*
+*   *捕手小樱:克洛卡*
+*   *捕手小樱:小樱卡*
+*   *毫无头绪*
+*   椰子瓜第一季
+*   *外星人*
+*   *治疗者*
+*   *内线*
+*   *色戒*
+*   *观察并报告*
+*   *牧师*
+*   *沉默的羔羊*
+*   *星河舰队*
+*   男孩
+*   *汽车* (1977)
+*   *灾难艺术家*
+*   *求助*
+*   *湖边小屋*
+*   *女王*
+*   *龙卷风*
+*   *V 为仇杀*
+*   艰难前行:杜威·考克斯的故事
+*   *西区故事*
+*   *你不要惹佐汉*
+*   *黄道十二宫*
+
+### **6 月 2 日上市**
+
+*   *独自一人*:第六季
+*   富勒豪斯医生:告别季 n-网飞原创
+*   盖斯·布洛克斯:我正在走的路:第一季
+*   *真实:彩虹救援* —网飞一家
+
+### **6 月 3 日上市**
+
+*   淑女鸟
+*   *杀死冈瑟*
+*   *拼字王* —网飞纪录片
+
+### **6 月 4 日上市**
+
+*   *叶鬼:大赛车传奇* —网飞动漫
+*   你能听到我吗？/ M'entends-tu？ —网飞原创
+
+### **6 月 5 日上市**
+
+*   *13 个理由*:第四季——网飞原创
+*   *哽咽:帕赛博尔塔海*——网飞电影
+*   汉尼拔:第 1-3 季
+*   *美国犯罪的最后日子* —网飞电影
+*   《酷儿眼》:第五季——网飞原创
+
+### **6 月 6 日上市**
+
+*   南方女王第四季
+
+### **6 月 7 日上市**
+
+*   哈桑·米哈杰的《爱国者法案》:第 6 卷——网飞原创(每周新集)
+
+### **6 月 8 日上市**
+
+*   *在我倒下之前*
+
+### **6 月 10 日上市**
+
+*   *科龙* —网飞原创
+*   *DC 明日传奇*:第五季
+*   *鲁诺·希尔* —网飞纪录片
+*   *中间人*
+*   我的先生第一季
+*   *现实 Z* —网飞原创
+
+### **6 月 11 日提供**
+
+*   *姿势*:第二季
+
+### **6 月 12 日上市**
+
+*   *沉迷于生活*
+*   *大五血* —网飞电影
+*   前后的约会:第二季——网飞原创
+*   *F 代表家庭*:第四季——网飞原创
+*   乔·科伊:如鱼得水 —网飞喜剧特辑
+*   奇波和神奇动物时代:第二季——网飞家族
+*   *一块:雪花石膏*
+*   *海贼王:东蓝*
+*   *海贼王:在冬岛进入斩波器*
+*   *一块:进入大线*
+*   神奇宝贝之旅:系列 —网飞一家
+*   *王熙凤* —网飞原创
+*   *树林* —网飞原创
+
+### **6 月 13 日上市**
+
+*   亚历克莎&凯蒂:第四部——网飞一家
+*   如何逃脱谋杀:第六季
+*   *米莉娅*
+
+### **6 月 14 日上市**
+
+*   玛塞拉:第三季——网飞原创
+
+### **6 月 15 日上市**
+
+*   *失败者*
+
+### **6 月 16 日上市**
+
+*   *宝宝妈妈*
+*   *查理·圣克劳德*
+*   *黑暗*
+*   *弗罗斯特/尼克松*
+
+### **6 月 17 日上市**
+
+*   *与贝弗利·拉夫·林共度的夜晚*
+*   伊格莱西亚斯先生 : *第二部*——网飞原著
+
+### **6 月 18 日上市**
+
+*   *一发不可收拾* —网飞电影
+*   顺序:第二季 —网飞原创
+
+### **6 月 19 日上市**
+
+*   婴儿:第二部 —网飞纪录片
+*   *父亲士兵儿子* —网飞纪录片
+*   *感受节拍* —网飞电影
+*   *地板是熔岩* —网飞原作
+*   *遗失的子弹* —网飞电影
+*   来自伊帕内玛的女孩:第二季——网飞原创
+*   *明天的路* —网飞电影
+*   *政治家* —网飞原创
+*   *韵时光小镇* —网飞家族
+*   *黄蜂网* —网飞电影
+
+### **6 月 21 日上市**
+
+*   戈尔迪
+
+### **6 月 22 日上市**
+
+*   *黑暗的天空*
+
+### **6 月 23 日上市**
+
+*   埃里克·安德烈:让一切合法化 —网飞喜剧特辑
+
+### **6 月 24 日上市**
+
+*   *运动员 A*——网飞纪录片
+*   *疯狂美味* —网飞原创
+*   没人知道我在这里/ Nadie sabe estoy aquí —网飞电影
+
+### **6 月 26 日上市**
+
+*   阿马尔与维维耶 —网飞原创
+*   *欧洲歌唱大赛:火之传奇*的故事——网飞电影
+*   *主场比赛* —网飞纪录片
+*   *直线上升*
+
+### **6 月 29 日上市**
+
+*   布拉茨:电影
+
+### **6 月 30 日上市**
+
+*   *Adú* —网飞电影
+*   *BNA* —网飞动漫
+*   乔治·洛佩兹:我们只收一半费用——网飞喜剧特辑
+
+### 最后一次通话
+
+### **6 月 1 日出发**
+
+*   *国王的演讲*
+
+### **6 月 3 日出发**
+
+*   上帝没有死:黑暗中的一道光
+
+### **6 月 4 日出发**
+
+*   *完美的男人*
+
+### **6 月 7 日出发**
+
+*   *平衡*
+*   *来自巴黎的爱*
+
+### **离开 6 月 9 日**
+
+*   《广告狂人》第一至第七季
+
+### **离开 6 月 10 日**
+
+*   *对峙*
+
+### **6 月 11 日离开**
+
+*   乔纳森·斯特兰奇&诺雷尔先生:第一季
+
+### **6 月 12 日离开**
+
+*   *龙心*
+*   龙之心 3:一个新的魔法师
+*   *龙心:新的开始*
+*   *龙之心:心火之战*
+
+### **离开 6 月 13 日**
+
+*   *小可爱和拳击手*
+
+### **6 月 16 日出发**
+
+*   *斯坦福监狱实验*
+
+### **6 月 22 日出发**
+
+*   *泰山*
+*   *泰山 II*
+
+### **6 月 24 日出发**
+
+*   *复仇者联盟 3：无限战争*
+
+### **6 月 27 日出发**
+
+*   *危险！:庆祝亚历克斯收藏*
+*   *危险！:辛迪·斯托维尔系列*
+*   *危险！:塞思·威尔逊收藏*
+
+### **6 月 29 日出发**
+
+*   我的屁股发疯的那一天！:第 1-2 季
+
+### **6 月 30 日出发**
+
+*   *21*
+*   *鬼哭狼嚎*
+*   《安迪·格里菲斯秀》第一季到第八季
+*   *吹*
+*   穿条纹睡衣的男孩
+*   *布鲁克林最好的*
+*   *中央舞台*
+*   *追艾米*
+*   *欢呼*:第 1-11 季
+*   *奇蒂奇蒂邦邦*
+*   *克洛伊*
+*   *点击*
+*   *克洛弗菲尔德*
+*   本杰明·巴顿奇事
+*   *公爵夫人*
+*   伊丽莎白
+*   伊丽莎白:黄金时代
+*   *费里斯·布勒的休息日*
+*   *幽灵骑士*
+*   快乐时光第一季
+*   *光是这里*
+*   *盗梦空间*
+*   *未包含的指令*
+*   *说谎的发明*
+*   朱莉&朱丽娅
+*   凯特&利奥波德
+*   *亲吻女孩们*
+*   *最后的武士*
+*   *无限*:第一季
+*   *小怪物*
+*   *曼斯菲尔德庄园*
+*   *佐罗的面具*
+*   *矩阵*
+*   *矩阵重新加载*
+*   *矩阵革命*
+*   *少数派报告*
+*   *爱国者游戏*
+*   *费城*
+*   *极地特快*
+*   *跑向魔女山*
+*   *戒指*
+*   *恐怖电影*
+*   *条子*
+*   *司徒小二*
+*   *震颤*
+*   地震 2:余震
+*   *震颤 3:回归完美*
+*   *震颤 4:传说开始*
+*   *震颤 5:血统*
+*   *下面是什么*
+*   *应声虫*

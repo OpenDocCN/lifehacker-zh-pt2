@@ -1,11 +1,17 @@
 # 在 5 月 1 日前免费获得一份《全面战争:幕府将军 2》
 
-> 原文：<https://lifehacker.com/score-a-free-copy-of-total-war-shogun-2-before-may-1-1843108674>
+> 原文:[https://life hacker . com/score-a-free-copy-of-town-2-before-may-1-1843108674](https://lifehacker.com/score-a-free-copy-of-total-war-shogun-2-before-may-1-1843108674)
 
 **Windows & Mac:** 人生最美好的东西都是免费的吧？虽然得到 [一些额外的温迪鸡块](https://lifehacker.com/its-free-nug-friday-at-the-wendys-drive-thru-1843041310) 很有趣，但我更喜欢能给我 100 多个小时娱乐的免费东西。这就是为什么我很高兴看到每个人都可以免费获得广受好评(并令人上瘾)的*全面战争:幕府将军 2，*这款游戏结合了超级有趣的自上而下的世界管理和令人难以置信的实时军队战斗。
 
-
+Watch
 
 自从 2000 年第一部【T2 幕府将军:全面战争上映以来，我甚至不愿去想我在《全面战争系列中投入了多少时间。现在，感觉就像有一个“全面战争”游戏，适用于你能想到的任何专营权或时间段——甚至包括战锤，但只是 Sigmar 的年龄，而不是 40K。( [一个男孩可以梦想](https://www.youtube.com/channel/UCFMtdiQILuTZr22sKUeAOOA) )。)
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-fxL0Gr3eKow&amp;start=0" data-chomp-id="fxL0Gr3eKow" data-recommend-id="youtube://fxL0Gr3eKow" id="youtube-fxL0Gr3eKow" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="fxL0Gr3eKow" data-recommend-id="youtube://fxL0Gr3eKow" id="youtube-fxL0Gr3eKow" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY"><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://store.steampowered.com/app/201270/Total_War_SHOGUN_2/&quot;,{&quot;metric25&quot;:1}]]" href="https://store.steampowered.com/app/201270/Total_War_SHOGUN_2/" target="_blank" rel="noopener noreferrer"> <em>《全面战争:幕府将军 2 </em> </a> </span>可能在 2011 年就已经出来了，但这仍然是度过一个下午(或者两个，或者很多)的绝佳方式。如果你以前从来没有玩过任何全面战争游戏，这可能不是一个更好的进入特许经营的方式。虽然它们都有自己的怪癖和独特的功能，但核心游戏仍然非常相似:通过在可爱的自上而下的地图上发出回合制命令来控制你的帝国，并在外交停止工作时与你的(希望是)庞大的军队进行实时战斗。</p><p class="sc-77igqf-0 bOfvBY">对这些游戏的一个警告是，它们不是星际争霸。强烈推荐聪明的战斗战术，因为简单地把你的近战单位当成虫族向前跑可能不会让你赢得很多战斗。建议在用你的步兵分散敌人注意力之前，让敌人吃你的箭，像<em>角斗士</em>那样，这样你就可以用你的骑兵从后面干掉他们。至少，我就是这样在封建的日本打出了我的帝国。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">要获得游戏的免费副本，只需在 5 月 1 日<span></span>(美国太平洋时间上午 10 点)之前点击<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://store.steampowered.com/app/201270/Total_War_SHOGUN_2/&quot;,{&quot;metric25&quot;:1}]]" href="https://store.steampowered.com/app/201270/Total_War_SHOGUN_2/" target="_blank" rel="noopener noreferrer"> <strong>蒸汽</strong></a>T5】，将其添加到您的购物车中，并完成交易。就是这样。你想玩多久就玩多久，如果你在早期的战斗中没有完全筋疲力尽的话，至少一个月。如果是这样的话，我恳求你继续玩下去；掌握它的基础需要一些时间，但是一旦你做到了，你就已经在开辟通往胜利的道路了。</span></p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-fxL0Gr3eKow&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-fxL0Gr3eKow&start=0) 
+
+[*《全面战争:幕府将军 2*](https://store.steampowered.com/app/201270/Total_War_SHOGUN_2/) 可能在 2011 年就已经出来了，但这仍然是度过一个下午(或者两个，或者很多)的绝佳方式。如果你以前从来没有玩过任何全面战争游戏，这可能不是一个更好的进入特许经营的方式。虽然它们都有自己的怪癖和独特的功能，但核心游戏仍然非常相似:通过在可爱的自上而下的地图上发出回合制命令来控制你的帝国，并在外交停止工作时与你的(希望是)庞大的军队进行实时战斗。
+
+对这些游戏的一个警告是，它们不是星际争霸。强烈推荐聪明的战斗战术，因为简单地把你的近战单位当成虫族向前跑可能不会让你赢得很多战斗。建议在用你的步兵分散敌人注意力之前，让敌人吃你的箭，像*角斗士*那样，这样你就可以用你的骑兵从后面干掉他们。至少，我就是这样在封建的日本打出了我的帝国。
+
+要获得游戏的免费副本，只需在 5 月 1 日(美国太平洋时间上午 10 点)之前点击 [**蒸汽**](https://store.steampowered.com/app/201270/Total_War_SHOGUN_2/)T5】，将其添加到您的购物车中，并完成交易。就是这样。你想玩多久就玩多久，如果你在早期的战斗中没有完全筋疲力尽的话，至少一个月。如果是这样的话，我恳求你继续玩下去；掌握它的基础需要一些时间，但是一旦你做到了，你就已经在开辟通往胜利的道路了。

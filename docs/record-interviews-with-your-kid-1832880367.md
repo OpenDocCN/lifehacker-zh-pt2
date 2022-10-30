@@ -1,10 +1,10 @@
 # 记录对你孩子的采访
 
-> 原文：<https://lifehacker.com/record-interviews-with-your-kid-1832880367>
+> 原文:[https://life hacker . com/record-interests-with-your-kid-1832880367](https://lifehacker.com/record-interviews-with-your-kid-1832880367)
 
 当我哥哥还是个孩子的时候，他有一台绿色的赫曼录音机。正如我妈妈讲述的那样，他会坐在自己的房间里，点击“录音”，开始诗意地讲述自己的生活。听起来有点像这样:“Myyyy naaaaaame 是大卫！我有。录音机！我可以。大喊。入之！”
 
-
+Watch
 
 然后他会把它带到楼下，让我和我们的父母听他的杰作。(把他当成一个早期的播客吧，不过是针对三个人的听众。)
 
@@ -26,4 +26,12 @@
 
 是否是正式的“面试”并不是重点。更重要的是让他们说话来捕捉他们的语气和他们的想法的创造性——更不用说可爱的发音错误了。这位父亲 更进了一步，决定在他四岁的孩子练习曲棍球的时候给他带上麦克风。光是听他叫麦当劳“BaDonalds”就值得一看:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-A3-L3YwU-iQ&amp;start=0" data-chomp-id="A3-L3YwU-iQ" data-recommend-id="youtube://A3-L3YwU-iQ" id="youtube-A3-L3YwU-iQ" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="A3-L3YwU-iQ" data-recommend-id="youtube://A3-L3YwU-iQ" id="youtube-A3-L3YwU-iQ" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">我最常看的是我儿子小时候拍的两个视频。其中一个是，当我们一家人一起玩<span></span>的时候，他在努力猜他是哪种“动物”(顺便说一句，强烈推荐那个游戏)。另一个是关于鬼魂是否真实的随机对话，我当时认出这是纯金的，并在中途开始录音。</p><p class="sc-77igqf-0 bOfvBY">仅仅 2-3 年后，他的声音已经变得如此不同。是时候再次为他录音了，因为我知道再过 2-3 年，他的声音会和今天大不相同。</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><small> <em>更多来自 Lifehacker，一定要在 Instagram 上关注我们</em></small><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.instagram.com/lifehackerdotcom/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.instagram.com/lifehackerdotcom/" target="_blank" rel="noopener noreferrer"><small><em>@ lifehackerdotcom</em></small></a></span><small><em>。</em> </small> <br/></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-A3-L3YwU-iQ&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-A3-L3YwU-iQ&start=0) 
+
+我最常看的是我儿子小时候拍的两个视频。其中一个是，当我们一家人一起玩的时候，他在努力猜他是哪种“动物”(顺便说一句，强烈推荐那个游戏)。另一个是关于鬼魂是否真实的随机对话，我当时认出这是纯金的，并在中途开始录音。
+
+仅仅 2-3 年后，他的声音已经变得如此不同。是时候再次为他录音了，因为我知道再过 2-3 年，他的声音会和今天大不相同。
+
+* * *
+
+<small>*更多来自 Lifehacker，一定要在 Instagram 上关注我们*</small>[<small>*@ lifehackerdotcom*</small>](https://www.instagram.com/lifehackerdotcom/)<small>*。*</small>

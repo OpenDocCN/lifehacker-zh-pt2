@@ -1,10 +1,10 @@
 # 通过在社交媒体上关注艺术家，向你的孩子展示动画电影是如何制作的
 
-> 原文：<https://lifehacker.com/show-your-kid-how-animated-films-are-made-by-following-1833746950>
+> 原文:[https://life hacker . com/show-your-kid-how-animated-films-make-by-following-1833746950](https://lifehacker.com/show-your-kid-how-animated-films-are-made-by-following-1833746950)
 
 在推特上，西蒙·威廉森给了我们一个 [精彩的综述](https://twitter.com/simonw/status/1077737871602110466) 来自*蜘蛛侠：平行宇宙的幕后内容，*直接来自艺术家们自己。(感谢 [Kottke](https://kottke.org/19/03/how-animators-created-the-spider-verse) 的提示。)两个想法:1)索尼允许这种程度的透明度值得称赞，2)每一个痴迷于《蜘蛛侠》的孩子*都需要*看到这一点。
 
-
+Watch
 
 在社交媒体——Twitter、Instagram 和脸书——上关注导演、动画师和工作人员是一个很好的方式，可以让你的孩子更深入地了解他们喜欢的节目(这比简单地给他们买所有东西要便宜得多)。这有点像带他们参观制作工作室——他们可以了解每个细节需要多少思考，第一次尝试如何从不完美，如何总是会有外部挑战，以及每个成功的项目如何需要大量的合作。
 
@@ -12,4 +12,30 @@
 
 ### 电影导演 Miguel Jiron 展示了一些电影的第一个故事板。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1076260484624470016&amp;autosize=1" autoresize="true" id="twitter-1076260484624470016" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h287592">作曲家丹尼尔·彭伯顿分享了音乐家如何在徘徊者场景中演奏打击乐。</h3><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1075179490031079425&amp;autosize=1" autoresize="true" id="twitter-1075179490031079425" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h287593">漫画家兼角色设计师 Jesus alon so Iglesias 透露了一些早期的设计图纸。</h3><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1103038302435921920&amp;autosize=1" autoresize="true" id="twitter-1103038302435921920" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h287594">视觉特效总监迈克尔·lasker‏讨论了《佩尼·帕克》的制作。</h3><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1088903814520791041&amp;autosize=1" autoresize="true" id="twitter-1088903814520791041" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h287595">动画师 Nick Kondo 分享了使用不同动画风格的挑战。</h3><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1074347729072021504&amp;autosize=1" autoresize="true" id="twitter-1074347729072021504" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h287596">联合编剧和联合导演罗德尼·罗斯曼谈到了团队面临的时间限制。</h3><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1096494336835866624&amp;autosize=1" autoresize="true" id="twitter-1096494336835866624" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h287597">罗斯曼还分享了这部电影的整个剧本。</h3><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1079057234959556608&amp;autosize=1" autoresize="true" id="twitter-1079057234959556608" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><p class="sc-77igqf-0 bOfvBY">下次你的孩子爱上 CG 电影时，看看演职员表，跟着一些制作人走。如果你的年轻粉丝对某个场景、风格或决定有什么特别的问题，尽管问他们。我相信他们很乐意分享更多的艺术过程。<br/></p><div id="mgid-container" data-placement="4" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1076260484624470016&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1076260484624470016&autosize=1) 
+
+### 作曲家丹尼尔·彭伯顿分享了音乐家如何在徘徊者场景中演奏打击乐。
+
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1075179490031079425&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1075179490031079425&autosize=1) 
+
+### 漫画家兼角色设计师 Jesus alon so Iglesias 透露了一些早期的设计图纸。
+
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1103038302435921920&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1103038302435921920&autosize=1) 
+
+### 视觉特效总监迈克尔·lasker‏讨论了《佩尼·帕克》的制作。
+
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1088903814520791041&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1088903814520791041&autosize=1) 
+
+### 动画师 Nick Kondo 分享了使用不同动画风格的挑战。
+
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1074347729072021504&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1074347729072021504&autosize=1) 
+
+### 联合编剧和联合导演罗德尼·罗斯曼谈到了团队面临的时间限制。
+
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1096494336835866624&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1096494336835866624&autosize=1) 
+
+### 罗斯曼还分享了这部电影的整个剧本。
+
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1079057234959556608&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1079057234959556608&autosize=1) 
+
+下次你的孩子爱上 CG 电影时，看看演职员表，跟着一些制作人走。如果你的年轻粉丝对某个场景、风格或决定有什么特别的问题，尽管问他们。我相信他们很乐意分享更多的艺术过程。

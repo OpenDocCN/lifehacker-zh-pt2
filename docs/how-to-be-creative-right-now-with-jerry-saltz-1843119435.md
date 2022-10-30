@@ -1,11 +1,47 @@
 # 如何现在就变得有创造力，杰瑞·萨尔茨
 
-> 原文：<https://lifehacker.com/how-to-be-creative-right-now-with-jerry-saltz-1843119435>
+> 原文:[https://life hacker . com/how-to-be-creative-right-now with-Jerry-saltz-1843119435](https://lifehacker.com/how-to-be-creative-right-now-with-jerry-saltz-1843119435)
 
 身体上的距离让你感到无聊吗？本周，在杰里·萨尔茨的帮助下，我们正在重振我们的创作本能，他是《纽约时报》畅销书《如何成为艺术家》的作者。听听 Jerry 讲述他在这些孤立的时代寻找灵感的秘密，以及他如何想象艺术世界将从全球疫情中崛起。他是否认为现在是很难有动力的时候？是的。他认为这意味着你应该停止创作吗？绝对不行，丫的'大宝宝们！
 
-
+Watch
 
 然后，听听 Lifehacker 的健康编辑 Beth Skwarecki 与流行病学家和传染病预防专家 Saskia Popescu 博士谈论戴口罩的正确和错误方式以及你在杂货店真正应该担心的事情。
 
-<iframe data-src="https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/bfb189cb-97c1-4cf8-8a0b-838903e140dc/embed" width="640px" height="360px" sandbox="allow-same-origin allow-scripts allow-forms" frameborder="0" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen" class="lazyload" scrolling="yes">T2】</span></p><p class="sc-77igqf-0 bOfvBY">听听上面的升级或者在所有通常提供播客的地方找到我们，包括<span></span><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://play.google.com/music/listen?u=0#/ps/Illldmn6f4jkwb32lslhae3laru&quot;,{&quot;metric25&quot;:1}]]" href="https://play.google.com/music/listen?u=0#/ps/Illldmn6f4jkwb32lslhae3laru" target="_blank" rel="noopener noreferrer">Google Play</a></span><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj&quot;,{&quot;metric25&quot;:1}]]" href="https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj" target="_blank" rel="noopener noreferrer">Spotify</a></span><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.iheart.com/podcast/8-The-Upgrade-by-Lifehacker-28037794/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.iheart.com/podcast/8-The-Upgrade-by-Lifehacker-28037794/" target="_blank" rel="noopener noreferrer">iHeartRadio</a></span><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.stitcher.com/podcast/lifehacker-podcast&quot;,{&quot;metric25&quot;:1}]]" href="https://www.stitcher.com/podcast/lifehacker-podcast" target="_blank" rel="noopener noreferrer">Stitcher</a></span>和 NPR 一号。<br/></p><h2 class="sc-1bwb26k-1 kpbNNd" id="h289403"><strong>本周集锦</strong></h2><h3 class="sc-1bwb26k-1 kpbNNd" id="h289404"><strong>来自杰里·萨尔茨的采访</strong></h3><p class="sc-77igqf-0 bOfvBY">关于被迫适应的好处:</p><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">达尔文说这不是最强者或最适者的适应。他的后半生都在试图澄清这一点。他说，我的意思是，最有适应能力的人才能生存。现在，我们都被迫去适应。梅丽莎，爱丽丝，你每天、每小时、每分钟都在忍受孤独，忍受你创造的东西，忍受你没有创造的东西。拖延现在变得更加明显，因为做这件事的方法越来越少。你在上面画的这些东西。你的祖先过去的五万年一定很有创造力，才会有三个像我们这样的白痴像这样对着他们的电脑大喊大叫。</p></blockquote><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">即使困难重重，也要坚持创新的重要性:</p><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">我会说如果你不想，就不要。但是在你的骨头里面已经做了你骨头做的事情。他们不会走到你非洲伟大祖先的未来这么远。所以我要说长大吧，你这个大宝贝。把你的屁股放到椅子上。把那该死的东西留在那里。永远不要告诉冰箱你的名字，因为那样它会叫你一整天。然后他妈的工作 22 分钟，做一些非常糟糕的事情。你知道你要跳的舞，就去跳。转六圈，用手机录下来，贴在 Instagram 上...你现在在做什么，我想你现在看到的是 18 个月...你将会带着它度过余生。你在为你自己、你的孩子、你的朋友塑造一些至关重要的东西。关于你的每一件事。你会记得这就像初吻，最后的再见。这不是不重要，这个时期。</p></blockquote><h3 class="sc-1bwb26k-1 kpbNNd" id="h289405"><strong>来自 Saskia Popescu 博士的采访</strong></h3><p class="sc-77igqf-0 bOfvBY">关于杂货店的健康和安全:</p><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">实际上，你知道，在新型冠状病毒的新冠肺炎，导致这种疾病的病毒并没有在食品包装和其他方面表现出任何传播。所以当我听到人们开始担心食品杂货时，我更关心的是，你在杂货店表现如何？你戴着一双手套，摸遍所有东西，然后摸手机吗？不要那样做。清洁你的手。我不太担心食品袋、包装和产品，我更担心有人去杂货店使用非常糟糕的感染控制措施。所以，如果你正在送货，或者如果你担心什么时候把食品带回家，我认为最重要的是洗手。</p></blockquote><p class="sc-77igqf-0 bOfvBY">在努力保护自己安全时，最重要的是要记住:</p><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">[A]当你在网上阅读所有这些东西时，你被淹没了，你被信息淹没了，这让你怀疑你做的每一件事，花一点时间认真想想你能控制什么，这就是清洁你的手，保持表面清洁，生病时呆在家里，你知道社交距离，回到最基本的是我总是说的。疾病预防控制中心的网站在回答这些问题上很有帮助，并且给你一些如何保护自己的现实的东西。所以不要太不知所措。不要掉进太多的兔子洞，要知道你已经掌握了保护自己的所有技能。只是要对它保持警惕。</p></blockquote><p class="sc-77igqf-0 bOfvBY">要了解更多关于如何保持你的创造力以及保护自己和他人安全的最有效方法，我们建议你听完整集！</p><p class="sc-77igqf-0 bOfvBY">对未来的剧集有什么反馈或想法吗？想上节目吗？请拨打 347-687-8109 给我们留言，或者给 upgrade@lifehacker.com 发送语音备忘录。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h289406"><strong>一集文字记录</strong></h3><p class=""><span class="clear-both flex-video video-600"><iframe data-src="https://www.scribd.com/embeds/458692119/content?start_page=1&amp;view_mode=scroll&amp;access_key=key-rTbtxcUZbIPen6g0J91W" width="100%" height="600px" sandbox="allow-same-origin allow-scripts allow-forms" frameborder="0" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen" class="lazyload" scrolling="yes"/>T2】</span></p> </body> </html></iframe>
+[https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/bfb189cb-97c1-4cf8-8a0b-838903e140dc/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/bfb189cb-97c1-4cf8-8a0b-838903e140dc/embed)
+
+T2】
+
+听听上面的升级或者在所有通常提供播客的地方找到我们，包括[Google Play](https://play.google.com/music/listen?u=0#/ps/Illldmn6f4jkwb32lslhae3laru)[Spotify](https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj)[iHeartRadio](https://www.iheart.com/podcast/8-The-Upgrade-by-Lifehacker-28037794/)[Stitcher](https://www.stitcher.com/podcast/lifehacker-podcast)和 NPR 一号。
+
+## **本周集锦**
+
+### **来自杰里·萨尔茨的采访**
+
+关于被迫适应的好处:
+
+> 达尔文说这不是最强者或最适者的适应。他的后半生都在试图澄清这一点。他说，我的意思是，最有适应能力的人才能生存。现在，我们都被迫去适应。梅丽莎，爱丽丝，你每天、每小时、每分钟都在忍受孤独，忍受你创造的东西，忍受你没有创造的东西。拖延现在变得更加明显，因为做这件事的方法越来越少。你在上面画的这些东西。你的祖先过去的五万年一定很有创造力，才会有三个像我们这样的白痴像这样对着他们的电脑大喊大叫。
+
+即使困难重重，也要坚持创新的重要性:
+
+> 我会说如果你不想，就不要。但是在你的骨头里面已经做了你骨头做的事情。他们不会走到你非洲伟大祖先的未来这么远。所以我要说长大吧，你这个大宝贝。把你的屁股放到椅子上。把那该死的东西留在那里。永远不要告诉冰箱你的名字，因为那样它会叫你一整天。然后他妈的工作 22 分钟，做一些非常糟糕的事情。你知道你要跳的舞，就去跳。转六圈，用手机录下来，贴在 Instagram 上...你现在在做什么，我想你现在看到的是 18 个月...你将会带着它度过余生。你在为你自己、你的孩子、你的朋友塑造一些至关重要的东西。关于你的每一件事。你会记得这就像初吻，最后的再见。这不是不重要，这个时期。
+
+### **来自 Saskia Popescu 博士的采访**
+
+关于杂货店的健康和安全:
+
+> 实际上，你知道，在新型冠状病毒的新冠肺炎，导致这种疾病的病毒并没有在食品包装和其他方面表现出任何传播。所以当我听到人们开始担心食品杂货时，我更关心的是，你在杂货店表现如何？你戴着一双手套，摸遍所有东西，然后摸手机吗？不要那样做。清洁你的手。我不太担心食品袋、包装和产品，我更担心有人去杂货店使用非常糟糕的感染控制措施。所以，如果你正在送货，或者如果你担心什么时候把食品带回家，我认为最重要的是洗手。
+
+在努力保护自己安全时，最重要的是要记住:
+
+> [A]当你在网上阅读所有这些东西时，你被淹没了，你被信息淹没了，这让你怀疑你做的每一件事，花一点时间认真想想你能控制什么，这就是清洁你的手，保持表面清洁，生病时呆在家里，你知道社交距离，回到最基本的是我总是说的。疾病预防控制中心的网站在回答这些问题上很有帮助，并且给你一些如何保护自己的现实的东西。所以不要太不知所措。不要掉进太多的兔子洞，要知道你已经掌握了保护自己的所有技能。只是要对它保持警惕。
+
+要了解更多关于如何保持你的创造力以及保护自己和他人安全的最有效方法，我们建议你听完整集！
+
+对未来的剧集有什么反馈或想法吗？想上节目吗？请拨打 347-687-8109 给我们留言，或者给 upgrade@lifehacker.com 发送语音备忘录。
+
+### **一集文字记录**
+
+[https://www.scribd.com/embeds/458692119/content?start_page=1&view_mode=scroll&access_key=key-rTbtxcUZbIPen6g0J91W](https://www.scribd.com/embeds/458692119/content?start_page=1&view_mode=scroll&access_key=key-rTbtxcUZbIPen6g0J91W)
+
+T2】

@@ -1,10 +1,10 @@
 # 买你孩子笨拙的学校照片
 
-> 原文：<https://lifehacker.com/buy-your-kids-awkward-school-picture-1833379070>
+> 原文:[https://life hacker . com/buy-your-kids-jumbly-school-picture-1833379070](https://lifehacker.com/buy-your-kids-awkward-school-picture-1833379070)
 
 年复一年，我的儿子总是带着自信的姿态和自然的微笑在学校照相日离开公园。除了他两岁半在托儿所的那一年。因为他的朋友总有一天会谷歌他的名字，我就不贴在这里了。相反，我会为你描绘一幅精神图景。
 
-
+Watch
 
 他穿着一件色彩鲜艳的条纹 polo 衫和卡其布短裤。他们让他坐在湖泊背景前的人造树桩上。摄影师给他拍了三张照片；有些是特写，有些是宽框。在每一个姿势中，他脸上都有一种略微不同但同样痛苦的表情。他显然哭了，他显然没有心情，看起来他们可能已经这样有一段时间了。
 
@@ -22,4 +22,18 @@
 
 也许这就是为什么 [当她的儿子在他的学校照片中做出我只能用“顽皮的咆哮”来形容的表情时，这位母亲如此吃惊](https://www.today.com/parents/kindergartner-s-school-photo-goes-viral-his-mom-can-t-t150500) :
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=fbpost-https%3A%2F%2Fwww.facebook.com%2Fandrielmiles%2Fposts%2F2657476957601395&amp;autosize=1" autoresize="true" id="fbpost-https://www.facebook.com/andrielmiles/posts/2657476957601395" data-recommended="false" width="640" height="360" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">起初，她不是一个粉丝，在《脸书邮报》上说:“我现在很生气！我检查了我儿子的书包，发现了这些！！！!"</p><p class="sc-77igqf-0 bOfvBY">但这张照片迅速走红，吸引了成千上万的赞和分享，以及大量正面的媒体报道。在她最初的帖子发布两天后，她改变了主意，说:“知道他愚蠢的照片给全世界带来了欢乐，我怎么能继续心慌？”</p><p class="sc-77igqf-0 bOfvBY">她买了照片。</p><p class="sc-77igqf-0 bOfvBY">她做出了正确的选择，去拥抱不完美。拥抱傻乎乎的表情或不自然的“我很努力，但实际上很疼”的微笑。以前时髦的发型，现在因为休息而变得时髦了。眨眼、做鬼脸以及融入绿色屏幕和<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.today.com/parents/kid-s-choice-green-shirt-results-hilarious-school-pictures-t136204&quot;,{&quot;metric25&quot;:1}]]" href="https://www.today.com/parents/kid-s-choice-green-shirt-results-hilarious-school-pictures-t136204" target="_blank" rel="noopener noreferrer">的绿色衬衫，让你的孩子的头看起来好像漂浮在一面美国国旗</a> </span>(特别是那个是守门员)。</p><p class="sc-77igqf-0 bOfvBY">如果你的孩子每年都把完美的学校照片带回家，而你觉得被遗忘了，那就在网上搜索“尴尬的学校照片”开始滚动，享受吧。</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><small> <em>更多来自 Lifehacker，一定要在 Instagram 上关注我们</em></small><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.instagram.com/lifehackerdotcom/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.instagram.com/lifehackerdotcom/" target="_blank" rel="noopener noreferrer"><small><em>@ lifehackerdotcom</em></small></a></span><small><em>。</em> </small> <br/></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=fbpost-https%3A%2F%2Fwww.facebook.com%2Fandrielmiles%2Fposts%2F2657476957601395&autosize=1](https://lifehacker.com/embed/inset/iframe?id=fbpost-https%3A%2F%2Fwww.facebook.com%2Fandrielmiles%2Fposts%2F2657476957601395&autosize=1) 
+
+起初，她不是一个粉丝，在《脸书邮报》上说:“我现在很生气！我检查了我儿子的书包，发现了这些！！！!"
+
+但这张照片迅速走红，吸引了成千上万的赞和分享，以及大量正面的媒体报道。在她最初的帖子发布两天后，她改变了主意，说:“知道他愚蠢的照片给全世界带来了欢乐，我怎么能继续心慌？”
+
+她买了照片。
+
+她做出了正确的选择，去拥抱不完美。拥抱傻乎乎的表情或不自然的“我很努力，但实际上很疼”的微笑。以前时髦的发型，现在因为休息而变得时髦了。眨眼、做鬼脸以及融入绿色屏幕和 [的绿色衬衫，让你的孩子的头看起来好像漂浮在一面美国国旗](https://www.today.com/parents/kid-s-choice-green-shirt-results-hilarious-school-pictures-t136204) (特别是那个是守门员)。
+
+如果你的孩子每年都把完美的学校照片带回家，而你觉得被遗忘了，那就在网上搜索“尴尬的学校照片”开始滚动，享受吧。
+
+* * *
+
+<small>*更多来自 Lifehacker，一定要在 Instagram 上关注我们*</small>[<small>*@ lifehackerdotcom*</small>](https://www.instagram.com/lifehackerdotcom/)<small>*。*</small>

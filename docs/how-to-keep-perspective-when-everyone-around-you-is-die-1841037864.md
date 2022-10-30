@@ -1,13 +1,39 @@
 # 当你周围的人都在节食时，如何保持正确的观点
 
-> 原文：<https://lifehacker.com/how-to-keep-perspective-when-everyone-around-you-is-die-1841037864>
+> 原文:[https://life hacker . com/how-to-keep-perspective-when every one-around-you-die-1841037864](https://lifehacker.com/how-to-keep-perspective-when-everyone-around-you-is-die-1841037864)
 
 似乎你认识的每个人每年一月的饮食都会变得奇怪——也许是 Whole30，也许是糖的“排毒”，也许是对 keto 的全心承诺。如果你没有跟上潮流，而且这一切都有点过头了，该怎么办？ [*反节食*作者、注册营养师克里斯蒂·哈里逊](https://christyharrison.com/) 为我们提供了一些建议。
 
-
+Watch
 
 ### 意识到很多“健康”是节食的另一个名字
 
 节食和减肥已经很少被冠以这些名字了。相反，如果你改变你的饮食方式，你会变瘦的想法经常被吹捧为健康饮食或其他生活方式改变的快乐副作用。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1211805368852111360&amp;autosize=1" autoresize="true" id="twitter-1211805368852111360" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">这就是为什么围绕健康或“感觉良好”进行营销的饮食模式最终会像饮食一样悄悄进入我们的大脑——它们是伪装的饮食，或者它们包含对较大身体的污名，也许没有说出来，但却隐含着很大的含义。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">因此，如果你试图避免饮食文化，请注意你可能也需要避免这一点。例如，取消关注或<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://vitals.lifehacker.com/mute-all-your-friends-who-have-annoying-resolutions-1840829735&quot;,{&quot;metric25&quot;:1}]]" href="https://vitals.lifehacker.com/mute-all-your-friends-who-have-annoying-resolutions-1840829735">静音</a> </span>任何 Instagram 账户，当他们发布关于健康和健康的消息时，只使用瘦子的照片。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h290455">设置边界</h3><p class="sc-77igqf-0 bOfvBY">好吧，所以你最好的朋友承诺戒糖，而你只是不想节食或限制食物。你如何保持你们的关系，而不争吵或花费你们所有的谈话来听她的新的，嗯，健康计划？</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">哈里森建议简单地设定界限。问问你的朋友，你是否可以避免谈论“我们正在吃什么，我们现在如何锻炼”，而是把话题转移到对你们两个都重要的其他事情上——毕竟，你们的友谊不仅仅是围绕食物建立的。</p><p class="sc-77igqf-0 bOfvBY">“我想如果他们是好朋友，他们会尊重你的要求，”哈里森说，即使他们不太明白。也许这次讨论会促使他们反思自己与节食的关系。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h290456">有一个自己的项目</h3><p class="sc-77igqf-0 bOfvBY">如果你倾向于沉迷于其他人正在做的事情——完全可以理解，因为我们是社会动物——这可能有助于决定你正在做什么，而不是限制或迷恋食物。</p><p class="sc-77igqf-0 bOfvBY">现在可能是一个探索<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://lifehacker.com/a-beginner-s-guide-to-intuitive-eating-1832765380&quot;,{&quot;metric25&quot;:1}]]" href="https://lifehacker.com/a-beginner-s-guide-to-intuitive-eating-1832765380">直觉饮食</a> </span>的好时机，或者如 Harrison 所说，“<em>真正的</em>直觉饮食，而不是那种假的饮食文化版本”，它期望你凭直觉通过饮食来变瘦。</p><p class="sc-77igqf-0 bOfvBY">相反，吃就可以了，不要指望你的食物选择会对你的身体产生某种特殊的魔力。哈里森说:“你有时间和空间专注于你的事业、你的人际关系、社会正义、你关心的事业、改变世界——除了饮食，你还有更多生活可以选择。”。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h290457">目光远大</h3><p class="sc-77igqf-0 bOfvBY">没有一种饮食是永恒的。如果人们能坚持到 30 岁，那么整个 30 岁就是一个让人精疲力尽的月份。许多新年决心在 1 月中旬前化为泡影，即使有人喜欢一种新的饮食方式并减肥，他们也可能在几个月内，也许一年内不再喜欢它。</p><p class="sc-77igqf-0 bOfvBY">你不需要把失败的可能性告诉你的朋友——记住，你要尊重彼此的界限，不要为食物争吵——但是想想你们五年后会在哪里可以帮助你保持正确的观点。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1211805368852111360&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1211805368852111360&autosize=1) 
+
+这就是为什么围绕健康或“感觉良好”进行营销的饮食模式最终会像饮食一样悄悄进入我们的大脑——它们是伪装的饮食，或者它们包含对较大身体的污名，也许没有说出来，但却隐含着很大的含义。
+
+因此，如果你试图避免饮食文化，请注意你可能也需要避免这一点。例如，取消关注或 [静音](https://vitals.lifehacker.com/mute-all-your-friends-who-have-annoying-resolutions-1840829735) 任何 Instagram 账户，当他们发布关于健康和健康的消息时，只使用瘦子的照片。
+
+### 设置边界
+
+好吧，所以你最好的朋友承诺戒糖，而你只是不想节食或限制食物。你如何保持你们的关系，而不争吵或花费你们所有的谈话来听她的新的，嗯，健康计划？
+
+哈里森建议简单地设定界限。问问你的朋友，你是否可以避免谈论“我们正在吃什么，我们现在如何锻炼”，而是把话题转移到对你们两个都重要的其他事情上——毕竟，你们的友谊不仅仅是围绕食物建立的。
+
+“我想如果他们是好朋友，他们会尊重你的要求，”哈里森说，即使他们不太明白。也许这次讨论会促使他们反思自己与节食的关系。
+
+### 有一个自己的项目
+
+如果你倾向于沉迷于其他人正在做的事情——完全可以理解，因为我们是社会动物——这可能有助于决定你正在做什么，而不是限制或迷恋食物。
+
+现在可能是一个探索 [直觉饮食](https://lifehacker.com/a-beginner-s-guide-to-intuitive-eating-1832765380) 的好时机，或者如 Harrison 所说，“*真正的*直觉饮食，而不是那种假的饮食文化版本”，它期望你凭直觉通过饮食来变瘦。
+
+相反，吃就可以了，不要指望你的食物选择会对你的身体产生某种特殊的魔力。哈里森说:“你有时间和空间专注于你的事业、你的人际关系、社会正义、你关心的事业、改变世界——除了饮食，你还有更多生活可以选择。”。
+
+### 目光远大
+
+没有一种饮食是永恒的。如果人们能坚持到 30 岁，那么整个 30 岁就是一个让人精疲力尽的月份。许多新年决心在 1 月中旬前化为泡影，即使有人喜欢一种新的饮食方式并减肥，他们也可能在几个月内，也许一年内不再喜欢它。
+
+你不需要把失败的可能性告诉你的朋友——记住，你要尊重彼此的界限，不要为食物争吵——但是想想你们五年后会在哪里可以帮助你保持正确的观点。

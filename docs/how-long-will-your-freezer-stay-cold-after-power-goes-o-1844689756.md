@@ -1,13 +1,30 @@
 # 停电后，你的冰箱还能冷藏多久？
 
-> 原文：<https://lifehacker.com/how-long-will-your-freezer-stay-cold-after-power-goes-o-1844689756>
+> 原文:[https://life hacker . com/how-long-when-your ' s lure-stay-cold-after power-go-o-1844689756](https://lifehacker.com/how-long-will-your-freezer-stay-cold-after-power-goes-o-1844689756)
 
 我相信反复思考最坏的情况通常是无益的，但我也是一名童子军，座右铭“做好准备”是我心灵中不可磨灭的一部分。为任何紧急情况“做好准备”的最好方法之一就是在冰箱里储存额外的食物。然而，冰箱需要电力，如果你失去电力，你的食物最终会解冻。这就是为什么我们有必要知道在长时间断电的情况下，你的冰箱能保持多长时间的低温。
 
-
+Watch
 
 幸运的是，来自加拿大的工程师和专业木工马蒂亚斯·万德尔为我们完成了这项艰巨的工作。
 
 在购买了一个新的 14 立方英尺的立式冰柜后，Wandel 很好奇断电后食物可以在设备中冷冻多长时间。因此，他安装了一个 TP-LINK HS110 智能插头，以跟踪冰箱在插入电源以保持正常温度时的功耗，以及配备温度传感器的 Raspberry Pi 迷你电脑，以跟踪冰箱在拔掉电源时的内部温度。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-iaKnR1Uz3bg&amp;start=0" data-chomp-id="iaKnR1Uz3bg" data-recommend-id="youtube://iaKnR1Uz3bg" id="youtube-iaKnR1Uz3bg" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="iaKnR1Uz3bg" data-recommend-id="youtube://iaKnR1Uz3bg" id="youtube-iaKnR1Uz3bg" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">Wandel 进行了多次实验，每次实验都在冰箱里放了不同数量的食物。他还进行了单独的测试，看看当冰箱空着的时候打开冰箱门会损失多少冷量，而当冰箱满了的时候(你可以从<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://woodgears.ca/heating/freezer.html&quot;,{&quot;metric25&quot;:1}]]" href="https://woodgears.ca/heating/freezer.html" target="_blank" rel="noopener noreferrer"> Wandel 的网站</a> </span>下载所有数据)。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h288985">如何在断电后尽可能长时间保持冰箱低温</h3><p class="sc-77igqf-0 bOfvBY">Wandel 的数据表明，一般的全长立式冰柜在断电后有 18-36 个小时的时间，直到冰柜不再冷。在你冰箱里的东西解冻之前，大多数人还有一天左右的时间。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">显然，具体时间因人而异，但有一些方法可以最大限度地利用冰箱的存储空间和位置，确保食物尽可能长时间保持冷冻状态:</p><p class="sc-77igqf-0 bOfvBY">(注:这些数字是针对全长立式冰柜的。Wandel 指出，即使在打开冰箱后，冰箱也能更长时间、更有效地保持低温，因为冷空气不会“掉出来”)</p><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>不要开门，如果你要开门，动作要快。门每打开 5 秒钟，总解冻时间就会减少 7-14 分钟，这取决于储存了多少食物。</li><li>冰箱里的食物数量会影响食物保持冷冻的时间。根据 Wandel 的数据，一个密集包装的冰柜保持低温的时间几乎是一个食物少而空间大的冰柜的两倍。</li><li>食物的种类也影响解冻时间；含水量少的小件物品解冻速度快，而含水量多的大件物品或食物解冻速度慢，有助于保持内部温度。优先考虑含水量高的大件物品，如冷冻肉、水果、蔬菜，如果有很多额外的空间，甚至可以放几袋或几块冰。</li><li>室温会影响解冻时间，所以如果可能的话，把你的冰箱放在一个冷的房间里。温暖的房间可以加快解冻时间约 25%。</li></ul><p class="sc-77igqf-0 bOfvBY">[ <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://woodgears.ca/heating/freezer.html&quot;,{&quot;metric25&quot;:1}]]" href="https://woodgears.ca/heating/freezer.html" target="_blank" rel="noopener noreferrer">木齿轮</a> </span> ]</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-iaKnR1Uz3bg&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-iaKnR1Uz3bg&start=0) 
+
+Wandel 进行了多次实验，每次实验都在冰箱里放了不同数量的食物。他还进行了单独的测试，看看当冰箱空着的时候打开冰箱门会损失多少冷量，而当冰箱满了的时候(你可以从 [Wandel 的网站](https://woodgears.ca/heating/freezer.html) 下载所有数据)。
+
+### 如何在断电后尽可能长时间保持冰箱低温
+
+Wandel 的数据表明，一般的全长立式冰柜在断电后有 18-36 个小时的时间，直到冰柜不再冷。在你冰箱里的东西解冻之前，大多数人还有一天左右的时间。
+
+显然，具体时间因人而异，但有一些方法可以最大限度地利用冰箱的存储空间和位置，确保食物尽可能长时间保持冷冻状态:
+
+(注:这些数字是针对全长立式冰柜的。Wandel 指出，即使在打开冰箱后，冰箱也能更长时间、更有效地保持低温，因为冷空气不会“掉出来”)
+
+*   不要开门，如果你要开门，动作要快。门每打开 5 秒钟，总解冻时间就会减少 7-14 分钟，这取决于储存了多少食物。
+*   冰箱里的食物数量会影响食物保持冷冻的时间。根据 Wandel 的数据，一个密集包装的冰柜保持低温的时间几乎是一个食物少而空间大的冰柜的两倍。
+*   食物的种类也影响解冻时间；含水量少的小件物品解冻速度快，而含水量多的大件物品或食物解冻速度慢，有助于保持内部温度。优先考虑含水量高的大件物品，如冷冻肉、水果、蔬菜，如果有很多额外的空间，甚至可以放几袋或几块冰。
+*   室温会影响解冻时间，所以如果可能的话，把你的冰箱放在一个冷的房间里。温暖的房间可以加快解冻时间约 25%。
+
+[ [木齿轮](https://woodgears.ca/heating/freezer.html) ]

@@ -1,7 +1,63 @@
 # 2019 年 6 月 3 日这一周，网飞有哪些活动
 
-> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-june-3-1835146665>
+> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of-June-3-1835146665](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-june-3-1835146665)
 
 有没有一个节目大家都认为是一流的？是的，那个节目是*黑镜*。还有第五季(已经有四季了？！我们在星期三得到*老，*朋友)滴。星期三！一周中的一个奇怪的日子来推出一个备受期待的系列！周一开始咳嗽和抱怨发冷，周三打电话请病假看起来完全合理。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-2bVik34nWws&amp;start=0" data-chomp-id="2bVik34nWws" data-recommend-id="youtube://2bVik34nWws" id="youtube-2bVik34nWws" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="2bVik34nWws" data-recommend-id="youtube://2bVik34nWws" id="youtube-2bVik34nWws" data-recommended="false" class="js_recommend"/></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h296053">本周到达</h3><h4 class="sc-1bwb26k-1 kpbNNd" id="h296054"><strong>6 月 3 日星期一</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>现在纪录片！:第三季</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80244783&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80244783" target="_blank" rel="noopener noreferrer"> <em>马里布营救:系列</em> </a> </span> <em> —网飞家族</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h296055"><strong>6 月 4 日星期二</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>米兰达现场演唱…欢迎你——网飞原创</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h296056"><strong>6 月 5 日星期三</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>一个无声的声音</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/70264888&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/70264888" target="_blank" rel="noopener noreferrer"> <em>黑镜:第五季</em> </a> </span> <em> —网飞原著</em></li><li><em>格林奇苏斯博士</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h296057"><strong>6 月 6 日星期四</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81030855&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81030855" target="_blank" rel="noopener noreferrer"><em>Alles ist gut</em></a></span><em>—网飞电影</em></li><li>大家都知道</li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h296058"><strong>6 月 7 日星期五</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80074220&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80074220" target="_blank" rel="noopener noreferrer"> <em> 3%:第三季</em> </a> </span> <em> —网飞原著</em></li><li>贝尔蒙特</li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80173387&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80173387" target="_blank" rel="noopener noreferrer"> <em>【黑人教父】</em> </a> </span> <em> —网飞电影</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81028317&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81028317" target="_blank" rel="noopener noreferrer"> <em>厨师秀</em> </a> </span> <em> —网飞原创</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80113647&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80113647" target="_blank" rel="noopener noreferrer"> <em>指定幸存者:第三季</em> </a> </span> <em> —网飞原著</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80121387&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80121387" target="_blank" rel="noopener noreferrer"> <em> Elisa &amp;马塞拉</em> </a> </span> <em> —网飞电影</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80227090&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80227090" target="_blank" rel="noopener noreferrer"> <em>我是妈妈</em> </a> </span> <em> —网飞电影</em></li><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81029736&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81029736" target="_blank" rel="noopener noreferrer"><em/></a></span><em>—网飞家族</em></li><li><em>摇滚我的心——网飞电影</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81006334&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81006334" target="_blank" rel="noopener noreferrer"> <em>超级怪物怪兽宠物</em> </a> </span> <em> —网飞家族</em></li><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80211563&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80211563" target="_blank" rel="noopener noreferrer"><em/></a></span><em>—网飞原著</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h296059"><strong>6 月 8 日星期六</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>柏林，我爱你</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h296060">这周离开</h3><h4 class="sc-1bwb26k-1 kpbNNd" id="h296061"><strong>6 月 4 日出发</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>第九区</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h296062"><strong>6 月 5 日出发</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>银河守护者第二卷</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h296063"><strong>6 月 6 日出发</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>独唱者</em></li></ul><div class="bxm4mm-2 hKBnez"><div class="bxm4mm-1 goloRq instream-native-video instream-permalink instream-native-video--mobile"><div class="sc-1h0epat-0 lepUzz"><div class="sc-1h0epat-1 gRjwiT"><div class="sc-235a11-0 egwski">Watch</div></div><div class="sc-1wkneyl-0 hxLRyg video-html5-playlist" data-playlist="192590,192585,192428" data-current="192590"><div class="video-html5-loaded"><div class="video-html5-player"><div class="lhhce6-0 bVyOPq video-html5 autoplay muted mobile" data-video-id="192590" data-position="sidebar" data-video-title="How to Make a Quick and Easy Crumb Crust" data-video-network="lifehacker" data-video-duration="135"></div></div></div></div></div></div></div><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><div id="mgid-container" data-placement="1" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-2bVik34nWws&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-2bVik34nWws&start=0) 
+
+### 本周到达
+
+#### **6 月 3 日星期一**
+
+*   *现在纪录片！:第三季*
+*   [*马里布营救:系列*](https://www.netflix.com/title/80244783) *—网飞家族*
+
+#### **6 月 4 日星期二**
+
+*   *米兰达现场演唱…欢迎你——网飞原创*
+
+#### **6 月 5 日星期三**
+
+*   *一个无声的声音*
+*   [*黑镜:第五季*](https://www.netflix.com/title/70264888) *—网飞原著*
+*   *格林奇苏斯博士*
+
+#### **6 月 6 日星期四**
+
+*   [*Alles ist gut*](https://www.netflix.com/title/81030855)*—网飞电影*
+*   大家都知道
+
+#### **6 月 7 日星期五**
+
+*   [*3%:第三季*](https://www.netflix.com/title/80074220) *—网飞原著*
+*   贝尔蒙特
+*   [*【黑人教父】*](https://www.netflix.com/title/80173387) *—网飞电影*
+*   [*厨师秀*](https://www.netflix.com/title/81028317) *—网飞原创*
+*   [*指定幸存者:第三季*](https://www.netflix.com/title/80113647) *—网飞原著*
+*   [*Elisa &马塞拉*](https://www.netflix.com/title/80121387) *—网飞电影*
+*   [*我是妈妈*](https://www.netflix.com/title/80227090) *—网飞电影*
+*   [](https://www.netflix.com/title/81029736)**—网飞家族**
+*   **摇滚我的心——网飞电影**
+*   *[*超级怪物怪兽宠物*](https://www.netflix.com/title/81006334) *—网飞家族**
+*   *[](https://www.netflix.com/title/80211563)**—网飞原著***
+
+#### ****6 月 8 日星期六****
+
+*   ***柏林，我爱你***
+
+### **这周离开**
+
+#### ****6 月 4 日出发****
+
+*   ***第九区***
+
+#### ****6 月 5 日出发****
+
+*   ***银河守护者第二卷***
+
+#### ****6 月 6 日出发****
+
+*   ***独唱者***
+
+**Watch**

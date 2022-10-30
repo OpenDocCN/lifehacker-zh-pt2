@@ -1,10 +1,10 @@
 # 如何提高下蹲时脚踝的灵活性
 
-> 原文：<https://lifehacker.com/how-to-improve-your-ankle-mobility-for-squats-1842315361>
+> 原文:[https://life hacker . com/how-to-improve-your-ankle-mobility for squats-1842315361](https://lifehacker.com/how-to-improve-your-ankle-mobility-for-squats-1842315361)
 
 在这些艰难的时刻，知道有些问题有简单的答案是件好事。如果你在深蹲时有困难，有时你只需要一点脚踝灵活性。即使你不在健身房，这也是你可以努力的。
 
-
+Watch
 
 脚踝的灵活性对深蹲很重要，因为当你的臀部和膝盖弯曲时，你的脚踝也需要弯曲。你越高，四肢越长，你可能越会注意到这一点。如果你的脚踝僵硬，你可能会对 [前蹲](https://vitals.lifehacker.com/how-to-do-front-squats-without-hurting-your-wrists-1840370568) 和高杠深蹲有最多的问题，低杠深蹲会好一点(杠就在你肩膀上方的下方)。
 
@@ -26,4 +26,8 @@
 
 [这个脚踝拉伸](https://youtu.be/eSS4-LF4VKM?t=139) ，如下图视频所示，专门针对那些区域。你想弯曲膝盖伸展小腿，而不是伸直。下图所示的伸展动作是靠在墙上的弓步动作，但不是集中在你的后脚，而是弯曲膝盖将你的重量压到你的前脚。(继续看一秒，加分练习。)
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-eSS4-LF4VKM&amp;start=139" data-chomp-id="eSS4-LF4VKM" data-recommend-id="youtube://eSS4-LF4VKM" id="youtube-eSS4-LF4VKM" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="eSS4-LF4VKM" data-recommend-id="youtube://eSS4-LF4VKM" id="youtube-eSS4-LF4VKM" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">你也可以在提举前在小腿上使用泡沫滚轴。看看那和<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://squatuniversity.com/2015/11/19/the-squat-fix-ankle-mobility-pt-3/&quot;,{&quot;metric25&quot;:1}]]" href="https://squatuniversity.com/2015/11/19/the-squat-fix-ankle-mobility-pt-3/" target="_blank" rel="noopener noreferrer">更脚踝灵活性练习这里</a> </span>。如果当你蹲着或做这些练习时，你的脚抽筋了，在你的脚下滚一个曲棍球。</p><p class="sc-77igqf-0 bOfvBY">在你尝试了所有这些之后，再试试你的深蹲，看看你是否能更舒适地到达深度。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-eSS4-LF4VKM&start=139](https://lifehacker.com/embed/inset/iframe?id=youtube-video-eSS4-LF4VKM&start=139) 
+
+你也可以在提举前在小腿上使用泡沫滚轴。看看那和 [更脚踝灵活性练习这里](https://squatuniversity.com/2015/11/19/the-squat-fix-ankle-mobility-pt-3/) 。如果当你蹲着或做这些练习时，你的脚抽筋了，在你的脚下滚一个曲棍球。
+
+在你尝试了所有这些之后，再试试你的深蹲，看看你是否能更舒适地到达深度。

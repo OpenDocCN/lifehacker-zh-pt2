@@ -1,13 +1,68 @@
 # 为什么等待下一代游戏机更好
 
-> 原文：<https://lifehacker.com/why-its-better-to-wait-for-that-next-gen-console-1845095919>
+> 原文:[https://life hacker . com/why-its-better-wait-the-next-gen-console-1845095919](https://lifehacker.com/why-its-better-to-wait-for-that-next-gen-console-1845095919)
 
 PlayStation 5 和 Xbox Series X 将在短短几周内发布，大量游戏玩家正试图在肯定会出现[稀少的假期供应](https://www.usgamer.net/articles/neither-the-xbox-series-x-or-ps5-are-really-ready-for-this-holiday) 之前获得他们的预购订单。人们很容易陷入对下一代的炒作、困惑、愤世嫉俗和焦虑之中。不过，这里有一个秘密:你最好等着购买你选择的系统。
 
-
+Watch
 
 虽然我相信 PS5 和 Xbox Series X 最终都会为游戏行业向前迈进一大步，但好消息是你现在还不必升级。很多人仍然不相信这些新游戏机 [值得升级](https://www.gamesindustry.biz/articles/2020-09-17-playstation-and-xbox-have-both-failed-to-sell-next-gen-opinion) 。事实上，大多数人可能不应该在发布时购买这两款游戏机，即使他们买得起。至少等几个月是个好主意。原因如下。
 
 ### 你需要一台真正好的电视来充分利用新游戏机
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-JiqGi3GMTko&amp;start=0" data-chomp-id="JiqGi3GMTko" data-recommend-id="youtube://JiqGi3GMTko" id="youtube-JiqGi3GMTko" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="JiqGi3GMTko" data-recommend-id="youtube://JiqGi3GMTko" id="youtube-JiqGi3GMTko" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">PS5 和 Xbox Series X 可以通过 HDR、高帧率和光线跟踪照明以 4K 分辨率渲染游戏。游戏肯定会在两个主机上看起来令人印象深刻，但除非你有一个电视或电脑显示器，也能实现 4K HDR 和高刷新率，否则许多视觉天赋将会丢失。<br/></p><p class="sc-77igqf-0 bOfvBY">体面的 4K 电视不再是很难得到的了，但是仅仅稍微多一点儿<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.nexttv.com/news/32-percent-of-us-tvs-are-smart-tvs&quot;,{&quot;metric25&quot;:1}]]" href="https://www.nexttv.com/news/32-percent-of-us-tvs-are-smart-tvs" target="_blank" rel="noopener noreferrer">到目前为止，三分之一拥有电视的美国家庭拥有 4K 电视</a></span><!-- -->。那么，我们可以假设，玩下一代游戏机的很大一部分人需要在购买新游戏机的同时购买一台新电视，才能看到全部好处。</p><p class="sc-77igqf-0 bOfvBY">即使在最好的情况下，购买一台新游戏机也很昂贵，但 2020 年已经出现了致命的疫情和破纪录的自然灾害，如野火、飓风和暴风雪。更糟糕的是，经济衰退的全部力量刚刚开始冲击我们。为<!-- -->一台新游戏机支付 300-600 美元，再为一台新电视支付几百美元，再加上每台游戏 40-70 美元<!-- -->，对许多人来说将是一个令人望而却步的昂贵套餐。这还不算<!-- -->添加任何你可能需要或想要的额外配件，比如控制器、耳机、充电站、摄像头等等。如果你等一段时间，你可以把这些购买的东西分散开来，而不会让自己负债一千或更多。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h294230">预购是一场噩梦；耐心很容易</h3><p class="sc-77igqf-0 bOfvBY">在新冠肺炎破坏经济，制造问题的报道，以及<!-- -->意外(和偶然)的可用性之间，<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://lifehacker.com/how-to-successfully-preorder-a-ps5-1845093710&quot;,{&quot;metric25&quot;:1}]]" href="https://lifehacker.com/how-to-successfully-preorder-a-ps5-1845093710"> PS5 的预<!-- -->订单情况是一片混乱</a> </span>。大多数网上预购在几分钟内就销售一空，黄牛们以超过两倍的建议零售价甩卖游戏机。发布日和假日供应也可能会减少。</p><p class="sc-77igqf-0 bOfvBY">Xbox 系列 X 和 S 有望更容易提前购买。下一代 Xbox 机型将于 9 月 22 日面向所有零售商开放预订。他们可能会在几秒钟内售罄，但至少这给了每个人准备的时间。</p><p class="sc-77igqf-0 bOfvBY">如果你不能在<!-- -->发布前预订新的游戏机，你的下一个选择是排队等待<!-- -->发售的那一天，但我<em>真的不建议</em>这么做。11 月下旬在外面等几个小时——通常是通宵——一般来说是个坏主意，但是在疫情的天气里尤其如此。</p><p class="sc-77igqf-0 bOfvBY">发布后会有更多的 ps5 和 Xboxes，随着时间的推移，它们会更容易得到。这个名字可以用在英伟达的 RTX 3080 或者其他你渴望得到的售罄的硬件上。</p><p class="sc-77igqf-0 bOfvBY">给自己省点麻烦(以及染上潜在致命病毒<!-- -->的机会<!-- -->)并等待供应水平<!-- -->正常化。M <!-- -->你在新游戏机上玩的任何游戏都可以在你已经拥有的硬件上运行。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h294231">是的，你可以在 PS4、Xbox One 或 PC 上玩大多数次世代游戏</h3><p class="sc-77igqf-0 bOfvBY">如果你因为供应不足或财务紧张而难以预定新主机，你的 PS4 和 Xbox One 将能够播放许多最热门的新游戏，直到 2021 年，甚至更久。<br/></p><p class="sc-77igqf-0 bOfvBY">与过去大多数主机代的飞跃不同，许多早期的 PS5 和 Xbox 系列 X 游戏将<em>也</em>出现在 PlayStation 4、Xbox One 甚至 PC 上。</p><p class="sc-77igqf-0 bOfvBY"><strong>第一方 PlayStation 5 游戏也在 PS4 上发布:</strong></p><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>地平线:禁忌之西</em></li><li><em>麻袋男孩:一次大冒险</em></li><li><em>蜘蛛侠:迈尔斯·莫拉莱斯</em></li></ul><p class="sc-77igqf-0 bOfvBY"><strong>第一方 Xbox 系列 X 游戏也在 Xbox One 上发布:</strong></p><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>随着黄昏的降临</em></li><li><em>交叉火力</em></li><li><em>光环无限</em></li><li><em>心理战 II(也即将登陆 PS4) </em></li><li><em>塞纳的传奇:地狱之刃 II </em></li><li><em>俄罗斯方块效果:连通(2021 年也要来 PS4)</em></li><li><em>糊糊的东西</em></li><li><strong>注:</strong>所有第一方开发的 Xbox Series X 游戏也将在发布时通过 PC 上的 Game Pass 在 PC 上提供。</li></ul><p class="sc-77igqf-0 bOfvBY">这些只是第一方游戏，可以在我们目前所知的旧硬件上玩。当你考虑到第三方跨代游戏和在新主机上重新发布的旧 PS4/Xbox One 游戏时，这个列表会变得更复杂。<br/></p><p class="sc-77igqf-0 bOfvBY">当然，PS4/Xbox One 版本在老款游戏机上的运行速度不会那么快，并且缺乏 PS5 和 Xbox Seris X 承诺的 4K、光线跟踪和高<!-- -->帧速率— <!-- -->，但一旦你有了新的游戏机，这些游戏中的大多数都可以免费升级到下一代版本<!-- -->(只要确保你<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://lifehacker.com/which-playstation-and-xbox-games-get-a-free-upgrade-1845030096?rev=1599857156190&quot;,{&quot;metric25&quot;:1}]]" href="https://lifehacker.com/which-playstation-and-xbox-games-get-a-free-upgrade-1845030096?rev=1599857156190">购买了正确的版本</a> </span>)。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h294232">反正独占游戏不多</h3><p class="sc-77igqf-0 bOfvBY">明确地说，跨性别支持是一个明智、对消费者友好的商业决策。但这也凸显了这两款次世代游戏机面临的最大问题:在发布时缺乏原创的游戏机专属游戏。</p><p class="sc-77igqf-0 bOfvBY">PS5 的推出阵容中，只有<em>阿童木的游戏室</em>、<em>恶魔之魂</em>和<em>毁灭全明星</em>是<!-- -->真正的 PS5 独占、<em> </em>而 Xbox 系列 X 什么都没有……<!-- -->。你可以在 PC 或 Xbox One 上玩所有的 Xbox 系列 X 发布游戏。</p><p class="sc-77igqf-0 bOfvBY">显然，游戏在新的游戏机上会看起来和玩起来更好，而且由于两个平台上都有一个向后兼容和跨代游戏的大型库，所以会有很多游戏可以玩。但是新游戏机的全部意义在于新游戏你不能在其他地方玩，而且现在还不是很多。</p><p class="sc-77igqf-0 bOfvBY">如果你对这两款游戏机都不感兴趣，请放心，你可以推迟购买这些新游戏机，至少等到它们更广泛地上市，并且它们的库在 T2 有所扩展。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-JiqGi3GMTko&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-JiqGi3GMTko&start=0) 
+
+PS5 和 Xbox Series X 可以通过 HDR、高帧率和光线跟踪照明以 4K 分辨率渲染游戏。游戏肯定会在两个主机上看起来令人印象深刻，但除非你有一个电视或电脑显示器，也能实现 4K HDR 和高刷新率，否则许多视觉天赋将会丢失。
+
+体面的 4K 电视不再是很难得到的了，但是仅仅稍微多一点儿 [到目前为止，三分之一拥有电视的美国家庭拥有 4K 电视](https://www.nexttv.com/news/32-percent-of-us-tvs-are-smart-tvs)。那么，我们可以假设，玩下一代游戏机的很大一部分人需要在购买新游戏机的同时购买一台新电视，才能看到全部好处。
+
+即使在最好的情况下，购买一台新游戏机也很昂贵，但 2020 年已经出现了致命的疫情和破纪录的自然灾害，如野火、飓风和暴风雪。更糟糕的是，经济衰退的全部力量刚刚开始冲击我们。为一台新游戏机支付 300-600 美元，再为一台新电视支付几百美元，再加上每台游戏 40-70 美元，对许多人来说将是一个令人望而却步的昂贵套餐。这还不算添加任何你可能需要或想要的额外配件，比如控制器、耳机、充电站、摄像头等等。如果你等一段时间，你可以把这些购买的东西分散开来，而不会让自己负债一千或更多。
+
+### 预购是一场噩梦；耐心很容易
+
+在新冠肺炎破坏经济，制造问题的报道，以及意外(和偶然)的可用性之间， [PS5 的预订单情况是一片混乱](https://lifehacker.com/how-to-successfully-preorder-a-ps5-1845093710) 。大多数网上预购在几分钟内就销售一空，黄牛们以超过两倍的建议零售价甩卖游戏机。发布日和假日供应也可能会减少。
+
+Xbox 系列 X 和 S 有望更容易提前购买。下一代 Xbox 机型将于 9 月 22 日面向所有零售商开放预订。他们可能会在几秒钟内售罄，但至少这给了每个人准备的时间。
+
+如果你不能在发布前预订新的游戏机，你的下一个选择是排队等待发售的那一天，但我*真的不建议*这么做。11 月下旬在外面等几个小时——通常是通宵——一般来说是个坏主意，但是在疫情的天气里尤其如此。
+
+发布后会有更多的 ps5 和 Xboxes，随着时间的推移，它们会更容易得到。这个名字可以用在英伟达的 RTX 3080 或者其他你渴望得到的售罄的硬件上。
+
+给自己省点麻烦(以及染上潜在致命病毒的机会)并等待供应水平正常化。M 你在新游戏机上玩的任何游戏都可以在你已经拥有的硬件上运行。
+
+### 是的，你可以在 PS4、Xbox One 或 PC 上玩大多数次世代游戏
+
+如果你因为供应不足或财务紧张而难以预定新主机，你的 PS4 和 Xbox One 将能够播放许多最热门的新游戏，直到 2021 年，甚至更久。
+
+与过去大多数主机代的飞跃不同，许多早期的 PS5 和 Xbox 系列 X 游戏将*也*出现在 PlayStation 4、Xbox One 甚至 PC 上。
+
+**第一方 PlayStation 5 游戏也在 PS4 上发布:**
+
+*   *地平线:禁忌之西*
+*   *麻袋男孩:一次大冒险*
+*   *蜘蛛侠:迈尔斯·莫拉莱斯*
+
+**第一方 Xbox 系列 X 游戏也在 Xbox One 上发布:**
+
+*   *随着黄昏的降临*
+*   *交叉火力*
+*   *光环无限*
+*   *心理战 II(也即将登陆 PS4)*
+*   *塞纳的传奇:地狱之刃 II*
+*   *俄罗斯方块效果:连通(2021 年也要来 PS4)*
+*   *糊糊的东西*
+*   **注:**所有第一方开发的 Xbox Series X 游戏也将在发布时通过 PC 上的 Game Pass 在 PC 上提供。
+
+这些只是第一方游戏，可以在我们目前所知的旧硬件上玩。当你考虑到第三方跨代游戏和在新主机上重新发布的旧 PS4/Xbox One 游戏时，这个列表会变得更复杂。
+
+当然，PS4/Xbox One 版本在老款游戏机上的运行速度不会那么快，并且缺乏 PS5 和 Xbox Seris X 承诺的 4K、光线跟踪和高帧速率— ，但一旦你有了新的游戏机，这些游戏中的大多数都可以免费升级到下一代版本(只要确保你 [购买了正确的版本](https://lifehacker.com/which-playstation-and-xbox-games-get-a-free-upgrade-1845030096?rev=1599857156190) )。
+
+### 反正独占游戏不多
+
+明确地说，跨性别支持是一个明智、对消费者友好的商业决策。但这也凸显了这两款次世代游戏机面临的最大问题:在发布时缺乏原创的游戏机专属游戏。
+
+PS5 的推出阵容中，只有*阿童木的游戏室*、*恶魔之魂*和*毁灭全明星*是真正的 PS5 独占、而 Xbox 系列 X 什么都没有……。你可以在 PC 或 Xbox One 上玩所有的 Xbox 系列 X 发布游戏。
+
+显然，游戏在新的游戏机上会看起来和玩起来更好，而且由于两个平台上都有一个向后兼容和跨代游戏的大型库，所以会有很多游戏可以玩。但是新游戏机的全部意义在于新游戏你不能在其他地方玩，而且现在还不是很多。
+
+如果你对这两款游戏机都不感兴趣，请放心，你可以推迟购买这些新游戏机，至少等到它们更广泛地上市，并且它们的库在 T2 有所扩展。

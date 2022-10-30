@@ -1,11 +1,25 @@
 # 在做出改变之前，先改变飞行员的生活
 
-> 原文：<https://lifehacker.com/pilot-life-changes-before-making-them-1843565346>
+> 原文:[https://life hacker . com/pilot-life-changes-before-make-them-1843565346](https://lifehacker.com/pilot-life-changes-before-making-them-1843565346)
 
 在我从西雅图搬到锡达拉皮兹之前，我在锡达拉皮兹的 Airbnb 预订了为期一周的住宿，这样我就可以做一次“实地考察”几年前，当我考虑从西雅图搬到波特兰时，我进行了类似的测试——尽管波特兰的实地考察没有让我相信我需要永久搬家，但我在锡达拉皮兹度过的一周以我签署了一套公寓的一年租约而告终。
 
-
+Watch
 
 我非常喜欢在完全投入之前测试、迭代和/或抛弃想法，这就是为什么我非常欣赏作家兼企业家 [大卫·卡达维](https://kadavy.net/) 最近关于 [为拟议的生活变化](https://twitter.com/kadavy/status/1255182518673956865) 创造试点的推文。就像，字面上的飞行员。就像我们在写电视剧一样。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1255182518673956865&amp;autosize=1" autoresize="true" id="twitter-1255182518673956865" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">如果你打算创作一部名为《妮可住在锡达拉皮兹》(Nicole Lives in Cedar Rapids)的电视节目，你会从编写和制作一集试播集开始——或者，就我而言，在锡达拉皮兹的 Airbnb 住上一周。然后你要评估飞行员的表现。好玩吗？迷人吗？这让你想继续看下去吗？你能从这个想法中得到六季和一部电影吗？</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">我知道，不是每个人都可以放下一切，在决定搬到一个新的城市之前，在那里度过一个星期——尤其是现在，当我们都应该呆在家里的时候——但你仍然可以找到方法，将试点概念纳入其他类型的决策。例如，经常阅读 Lifehacker 的读者可能记得，早在 4 月份，我试图调整我的日常工作，以适应一个新的举重习惯 。我最初的计划是把我的哑铃放在我的桌子旁边，每当我完成一项自由职业任务时，就做几次，但这并没有奏效。试点概念几乎立刻就失败了。</p><p class="sc-77igqf-0 bOfvBY">然而，飞行员可以调整。例如，我们都听说过飞行员被巧妙地重新拍摄以纳入演员阵容的变化——就我而言，我能够通过放弃一天做短套的想法，转而采用一周做两次更长套的更好想法，来制定一个可持续的重量套路。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">有时候，领航是系统的一部分:我们在结婚前与人约会，在注册季票前购买一日票，在我们的信用卡被收费前我们有七天的免费试用期。其他时候，我们必须自己想办法写剧本、挑选演员和拍摄试播集——然后我们必须决定是否继续制作剧集。</p><p class="sc-77igqf-0 bOfvBY">但是这就是飞行员概念的伟大之处。如果你运行一个试点，感觉不错，你已经学到了一些重要的东西。如果感觉不对，你学到了更重要的东西——可能会让你免于做出不明智的决定。如果你正在考虑做出你不容易收回的生活改变，试点概念可以让你避免做出你可能会后悔的选择。如果你正在考虑一个较小的生活变化，比如养成一个新习惯，试运行可以帮助你测试和调整你的想法，直到你得到一个可以维持一整季的东西。</p><p class="sc-77igqf-0 bOfvBY">你现在正在考虑哪种生活变化(大的或小的),在决定是否做出承诺之前，你如何引导它们？</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1255182518673956865&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1255182518673956865&autosize=1) 
+
+如果你打算创作一部名为《妮可住在锡达拉皮兹》(Nicole Lives in Cedar Rapids)的电视节目，你会从编写和制作一集试播集开始——或者，就我而言，在锡达拉皮兹的 Airbnb 住上一周。然后你要评估飞行员的表现。好玩吗？迷人吗？这让你想继续看下去吗？你能从这个想法中得到六季和一部电影吗？
+
+我知道，不是每个人都可以放下一切，在决定搬到一个新的城市之前，在那里度过一个星期——尤其是现在，当我们都应该呆在家里的时候——但你仍然可以找到方法，将试点概念纳入其他类型的决策。例如，经常阅读 Lifehacker 的读者可能记得，早在 4 月份，我试图调整我的日常工作，以适应一个新的举重习惯 。我最初的计划是把我的哑铃放在我的桌子旁边，每当我完成一项自由职业任务时，就做几次，但这并没有奏效。试点概念几乎立刻就失败了。
+
+然而，飞行员可以调整。例如，我们都听说过飞行员被巧妙地重新拍摄以纳入演员阵容的变化——就我而言，我能够通过放弃一天做短套的想法，转而采用一周做两次更长套的更好想法，来制定一个可持续的重量套路。
+
+<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Pilot Life Changes Before Making Them](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/do-this-dumbbell-workout-from-home-1842490289)</aside>
+
+有时候，领航是系统的一部分:我们在结婚前与人约会，在注册季票前购买一日票，在我们的信用卡被收费前我们有七天的免费试用期。其他时候，我们必须自己想办法写剧本、挑选演员和拍摄试播集——然后我们必须决定是否继续制作剧集。
+
+但是这就是飞行员概念的伟大之处。如果你运行一个试点，感觉不错，你已经学到了一些重要的东西。如果感觉不对，你学到了更重要的东西——可能会让你免于做出不明智的决定。如果你正在考虑做出你不容易收回的生活改变，试点概念可以让你避免做出你可能会后悔的选择。如果你正在考虑一个较小的生活变化，比如养成一个新习惯，试运行可以帮助你测试和调整你的想法，直到你得到一个可以维持一整季的东西。
+
+你现在正在考虑哪种生活变化(大的或小的),在决定是否做出承诺之前，你如何引导它们？

@@ -1,10 +1,10 @@
 # 被困医院近一个月怎么玩你的 PS4
 
-> 原文：<https://kotaku.com/how-to-play-your-ps4-when-you-re-stuck-in-a-hospital-fo-1832754790>
+> 原文:[https://kotaku . com/how-to-play-your-ps4-when-you-re-stick-in-a-hospital-fo-1832754790](https://kotaku.com/how-to-play-your-ps4-when-you-re-stuck-in-a-hospital-fo-1832754790)
 
 从 1 月 23 日到 2 月 18 日，我一直躺在医院的病床上，从一个手术过程中恢复过来，这个手术过程要求我几乎完全保持俯卧以便痊愈。幸运的是我来到医院时有备而来，并设法仍然播放了*王国之心 3* 、*跳跃力、顶点传说*和*圣歌*。我只需要合适的装备。
 
-
+Watch
 
 我去年住院期间，从 3 月 22 日到 7 月 3 日，没怎么玩游戏。 我最初的几个星期大部分时间都是无意识的。然后花了一个月的时间让我的胳膊和手指再次正常工作。一旦我能正常工作了，医院的电视太小太远了，无法正常播放。我摆弄着我的 iPad，在我的开关上玩了一会儿游戏，但大部分时间我只是看商业电视，叹了很多气。
 
@@ -54,4 +54,25 @@
 
 在我住院期间，这个开关发挥了很大作用。有时护士和技术人员没有把桌子推回到我的床上就离开了，而开关是我唯一够得着的东西。然后是上周三的任天堂直接展示 ，其中像*俄罗斯方块 99* 和*耀西精心制作的世界*演示这样的游戏立即上线。多亏了在我可笑的大医院包里放了我的开关，我才能够像某种跳跃很大的游戏瞪羚一样在那些新游戏上跳跃。
 
-<iframe data-src="https://kotaku.com/embed/inset/iframe?id=twitter-1095832049791823872&amp;autosize=1" autoresize="true" id="twitter-1095832049791823872" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><h4 class="sc-1bwb26k-1 kpbNNd" id="h287725"><strong>也许是这些</strong></h4><p class="sc-77igqf-0 bOfvBY">只要有新的 Etrian Odyssey 游戏可以玩，3DS 家族就还活着，<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 eRdxJX js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://kotaku.com/the-3ds-is-even-dying-better-than-the-vita-1832395229&quot;,{&quot;metric25&quot;:1}]]" href="https://kotaku.com/the-3ds-is-even-dying-better-than-the-vita-1832395229">不管 Ethan 怎么说</a> </span>。你玩过<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 eRdxJX js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://kotaku.com/bowser-jr-finally-gets-his-due-1831686429&quot;,{&quot;metric25&quot;:1}]]" href="https://kotaku.com/bowser-jr-finally-gets-his-due-1831686429"> <em>马里奥&amp;路易吉:布瑟内幕</em>吗？</a> </span>太好了。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h287726"><strong>各种杂物</strong></h3><p class="sc-77igqf-0 bOfvBY">虽然这些可爱的硬件是我在医院躺了近一个月而没有崩溃的主要原因，但如果没有这些额外的工具，我不可能做到这一点:</p><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>延长线——医院的电源插座并不总是方便的。</li><li>电源板——你永远没有足够的地方插东西。</li><li>倾斜的笔记本电脑支架——因为当你平躺在床上时很难打字。</li><li>轻便的耳机——因为没有人需要听你的游戏。</li><li>一把螺丝刀——因为我把轨迹球从桌子上撞了下来，不得不去修理。</li><li>零食——因为医院的食物很恶心。</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h287727"><strong>如今，游戏无处不在</strong></h3><p class="sc-77igqf-0 bOfvBY">无论你是隐居在豪华酒店，被困在机场，还是在医院的食物和床上洗澡之间寻找事情做，游戏都不需要被遗忘。有了合适的装备，你可以把一次虚假的旅行变成一次精彩的冒险。</p><p class="sc-77igqf-0 bOfvBY">除非他们让你脸朝下躺着。那你就完了。<br/></p> </body> </html></iframe>
+ [https://kotaku.com/embed/inset/iframe?id=twitter-1095832049791823872&autosize=1](https://kotaku.com/embed/inset/iframe?id=twitter-1095832049791823872&autosize=1) 
+
+#### **也许是这些**
+
+只要有新的 Etrian Odyssey 游戏可以玩，3DS 家族就还活着， [不管 Ethan 怎么说](https://kotaku.com/the-3ds-is-even-dying-better-than-the-vita-1832395229) 。你玩过 [*马里奥&路易吉:布瑟内幕*吗？](https://kotaku.com/bowser-jr-finally-gets-his-due-1831686429) 太好了。
+
+### **各种杂物**
+
+虽然这些可爱的硬件是我在医院躺了近一个月而没有崩溃的主要原因，但如果没有这些额外的工具，我不可能做到这一点:
+
+*   延长线——医院的电源插座并不总是方便的。
+*   电源板——你永远没有足够的地方插东西。
+*   倾斜的笔记本电脑支架——因为当你平躺在床上时很难打字。
+*   轻便的耳机——因为没有人需要听你的游戏。
+*   一把螺丝刀——因为我把轨迹球从桌子上撞了下来，不得不去修理。
+*   零食——因为医院的食物很恶心。
+
+### **如今，游戏无处不在**
+
+无论你是隐居在豪华酒店，被困在机场，还是在医院的食物和床上洗澡之间寻找事情做，游戏都不需要被遗忘。有了合适的装备，你可以把一次虚假的旅行变成一次精彩的冒险。
+
+除非他们让你脸朝下躺着。那你就完了。

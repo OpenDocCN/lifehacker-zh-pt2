@@ -1,10 +1,10 @@
 # 在任天堂在线商店关闭前处理好你所有的 Wii 业务
 
-> 原文：<https://lifehacker.com/handle-all-your-nintendo-wii-related-business-before-it-1831806411>
+> 原文:[https://life hacker . com/handle-all-your-Nintendo-Wii-related-business-before-it-1831806411](https://lifehacker.com/handle-all-your-nintendo-wii-related-business-before-it-1831806411)
 
 Wii 经历了一段美好的长期运行，但它将在 1 月 31 日变得有点孤独，届时任天堂计划关闭 Wii 商店频道。这意味着不再需要在网上购买游戏，不再需要下载你以前购买的游戏，也不再需要 Wii Transfer tool，它可以让你将数字购买的游戏从 Wii 转移到它的继任者 Wii U。通过关闭这些工具，任天堂实际上切断了对 Wii 的最后一丝支持。
 
-
+Watch
 
 值得任天堂称赞的是，这种变化已经来了很长时间。任天堂宣布计划在 2017 年 9 月“淘汰”你父母和/或祖父母最喜爱的游戏机。任天堂去年 3 月停止销售积分，这是用于在该平台上购买游戏的货币。此外，自 Wii 以来，任天堂已经发布了两款游戏机。是时候继续前进了，伙计们。
 
@@ -36,4 +36,12 @@ Wii 没有太大的存储空间，所以我建议清空网飞和任何其他需�
 
 ### 将您的数字游戏转移到 Wii U 上
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-eaeYXkQX1Xc&amp;start=0" data-chomp-id="eaeYXkQX1Xc" data-recommend-id="youtube://eaeYXkQX1Xc" id="youtube-eaeYXkQX1Xc" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="eaeYXkQX1Xc" data-recommend-id="youtube://eaeYXkQX1Xc" id="youtube-eaeYXkQX1Xc" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">最后，如果你有一台 Wii U，将你的数字游戏转移到这个平台上可能是有意义的，这个平台仍然有一个“活跃的”——读:可用——商店和生态系统。<br/></p><p class="sc-77igqf-0 bOfvBY">要将数据从 Wii 传输到 Wii U，你需要两台游戏机都连接到电视和互联网，以及一个至少有 512 MB 存储空间的 SD 卡。如果您使用的是一台电视机，您需要偶尔切换输入。Wii U 需要连接到你的任天堂账户。最后，任天堂建议你在 Wii U 上同步一个额外的 Wii 遥控器，如果可能的话。<br/></p><p class="sc-77igqf-0 bOfvBY">要启动传输，请从 Wii 上的商店频道和 Wii U 上的 e Shop 下载 Wii U transfer tool 应用程序。在两个控制台上激活它们，然后按照说明进行操作。根据任天堂的说明，你应该在过程开始时将 SD 卡插入 Wii U，并在那里启动传输。<br/></p><p class="sc-77igqf-0 bOfvBY">如果你需要更多的帮助，任天堂在其<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://en-americas-support.nintendo.com/app/answers/detail/a_id/1124/p/604&quot;,{&quot;metric25&quot;:1}]]" href="https://en-americas-support.nintendo.com/app/answers/detail/a_id/1124/p/604" target="_blank" rel="noopener noreferrer">支持网站</a> </span>上有非常详细的说明。你也可以在这一部分的顶部查看他们的视频教程。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-eaeYXkQX1Xc&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-eaeYXkQX1Xc&start=0) 
+
+最后，如果你有一台 Wii U，将你的数字游戏转移到这个平台上可能是有意义的，这个平台仍然有一个“活跃的”——读:可用——商店和生态系统。
+
+要将数据从 Wii 传输到 Wii U，你需要两台游戏机都连接到电视和互联网，以及一个至少有 512 MB 存储空间的 SD 卡。如果您使用的是一台电视机，您需要偶尔切换输入。Wii U 需要连接到你的任天堂账户。最后，任天堂建议你在 Wii U 上同步一个额外的 Wii 遥控器，如果可能的话。
+
+要启动传输，请从 Wii 上的商店频道和 Wii U 上的 e Shop 下载 Wii U transfer tool 应用程序。在两个控制台上激活它们，然后按照说明进行操作。根据任天堂的说明，你应该在过程开始时将 SD 卡插入 Wii U，并在那里启动传输。
+
+如果你需要更多的帮助，任天堂在其 [支持网站](https://en-americas-support.nintendo.com/app/answers/detail/a_id/1124/p/604) 上有非常详细的说明。你也可以在这一部分的顶部查看他们的视频教程。

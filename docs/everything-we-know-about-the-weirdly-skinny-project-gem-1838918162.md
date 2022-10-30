@@ -1,10 +1,10 @@
 # 我们所知道的关于怪异的超薄“宝石计划”智能手机的一切
 
-> 原文：<https://lifehacker.com/everything-we-know-about-the-weirdly-skinny-project-gem-1838918162>
+> 原文:[https://life hacker . com/everything-we-know-about the vergely-skinny-project-gem-1838918162](https://lifehacker.com/everything-we-know-about-the-weirdly-skinny-project-gem-1838918162)
 
 即将推出的“项目宝石”智能手机的早期细节终于出来了。这是谷歌前高管安迪·鲁宾创办的 [Essential](https://www.essential.com/) 公司的最新产品。这款手机本身看起来与之前的任何产品都不一样，这证实了长期以来的传言，即 Essential 一直在开发一款非正统的智能手机。
 
-
+Watch
 
 官方图片和早期泄露的信息展示了这款手机引人注目的视觉设计，这与我们对现代智能手机的预期有很大不同。额外的泄露和谣言指向 Gem 也有一个非常不同的用户体验。以下是我们目前对宝石计划的了解:
 
@@ -14,4 +14,20 @@
 
 你可能会注意到的第一件事是 Gem 独特的外形，它类似于电视或流媒体遥控器，而不是当代的智能手机。gem 当然不是唯一一款尝试新设计的手机，但它是我们在相当长一段时间内看到的最激进的变化之一。宝石设计的另一个值得注意的方面是金属色选项，根据你的视角，它有一个整洁的变色效果。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1181688540540764160&amp;autosize=1" autoresize="true" id="twitter-1181688540540764160" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">我们还瞥见了 Gem 的音量控制位置和设备背面基本上是一个指纹传感器的东西(XDA 推测<span></span>可能用于调用 Gem 的板载语音助手)。在 Gem 的背面还可以看到一个凸起的后置摄像头，在其屏幕的左上角似乎是一个前置打孔摄像头——尽管摄像头的规格目前是 TBD 的。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">说到规格，一些人预计 Gem 将运行在高通的中端骁龙 730 芯片组上，但目前还没有官方消息。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h286816">用户界面</h3><p class="sc-77igqf-0 bOfvBY">这些推文也让我们一瞥 Gem 独特的基于卡片的用户界面。在一些宣传照中，甚至出现了多个应用和/或小工具同时在屏幕上打开的<span></span>。当然，最终产品可能与我们在这些照片中看到的有很大不同，但 Gem 的外形和非正统的用户界面确实提出了一些问题——特别是关于手机如何处理为不同纵横比设计的应用程序。<br/></p><h3 class="sc-1bwb26k-1 kpbNNd" id="h286817">语音控制和人工智能助手</h3><p class="sc-77igqf-0 bOfvBY">来自 XDA 开发者 和<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.bloomberg.com/news/articles/2018-10-10/android-creator-is-said-to-build-ai-phone-that-texts-for-you&quot;,{&quot;metric25&quot;:1}]]" href="https://www.bloomberg.com/news/articles/2018-10-10/android-creator-is-said-to-build-ai-phone-that-texts-for-you" target="_blank" rel="noopener noreferrer">彭博</a> </span>的<span>报告表明，Gem 将比其他当代智能手机更依赖其 AI 助手。<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.essential.com/about#about&quot;,{&quot;metric25&quot;:1}]]" href="https://www.essential.com/about#about" target="_blank" rel="noopener noreferrer"> Essential 的设计理念</a> </span>是创造能够抑制上瘾智能手机行为的设备，该公司之前的智能手机<span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.essential.com/phone&quot;,{&quot;metric25&quot;:1}]]" href="https://www.essential.com/phone" target="_blank" rel="noopener noreferrer">PH-1 也是以类似的极简主义精神设计的</a> </span>。考虑到所有这些，看起来 Gem 将是另一个精简的智能手机，专注于...呃...<em>要点</em>，重点强调语音控制和语音到文本的输入，但这纯粹是我的猜测。</span></p><h3 class="sc-1bwb26k-1 kpbNNd" id="h286818">有效</h3><p class="sc-77igqf-0 bOfvBY">虽然 Essential 最终公开谈论了其即将推出的 Gem 智能手机，但它尚未确认发布日期、定价和最终颜色选择。该公司保证将很快分享更多信息，但我们不知道它正在考虑的时间表。如果这是一种安慰的话，Gem 的传闻规格和预期用户体验可能表明 Essential 的目标是中端价格点，这与该公司如何营销 PH-1 非常吻合，但这只是我根据我们目前所知的最佳猜测。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1181688540540764160&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1181688540540764160&autosize=1) 
+
+我们还瞥见了 Gem 的音量控制位置和设备背面基本上是一个指纹传感器的东西(XDA 推测可能用于调用 Gem 的板载语音助手)。在 Gem 的背面还可以看到一个凸起的后置摄像头，在其屏幕的左上角似乎是一个前置打孔摄像头——尽管摄像头的规格目前是 TBD 的。
+
+说到规格，一些人预计 Gem 将运行在高通的中端骁龙 730 芯片组上，但目前还没有官方消息。
+
+### 用户界面
+
+这些推文也让我们一瞥 Gem 独特的基于卡片的用户界面。在一些宣传照中，甚至出现了多个应用和/或小工具同时在屏幕上打开的。当然，最终产品可能与我们在这些照片中看到的有很大不同，但 Gem 的外形和非正统的用户界面确实提出了一些问题——特别是关于手机如何处理为不同纵横比设计的应用程序。
+
+### 语音控制和人工智能助手
+
+来自 XDA 开发者 和 [彭博](https://www.bloomberg.com/news/articles/2018-10-10/android-creator-is-said-to-build-ai-phone-that-texts-for-you) 的报告表明，Gem 将比其他当代智能手机更依赖其 AI 助手。 [Essential 的设计理念](https://www.essential.com/about#about) 是创造能够抑制上瘾智能手机行为的设备，该公司之前的智能手机[PH-1 也是以类似的极简主义精神设计的](https://www.essential.com/phone) 。考虑到所有这些，看起来 Gem 将是另一个精简的智能手机，专注于...呃...*要点*，重点强调语音控制和语音到文本的输入，但这纯粹是我的猜测。
+
+### 有效
+
+虽然 Essential 最终公开谈论了其即将推出的 Gem 智能手机，但它尚未确认发布日期、定价和最终颜色选择。该公司保证将很快分享更多信息，但我们不知道它正在考虑的时间表。如果这是一种安慰的话，Gem 的传闻规格和预期用户体验可能表明 Essential 的目标是中端价格点，这与该公司如何营销 PH-1 非常吻合，但这只是我根据我们目前所知的最佳猜测。

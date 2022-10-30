@@ -1,10 +1,10 @@
 # 如果你发现一个丢失的钱包，你可以把它投入邮箱来归还它
 
-> 原文：<https://lifehacker.com/if-you-find-a-lost-wallet-you-can-return-it-by-dropping-1833745884>
+> 原文:[https://life hacker . com/if-you-found-a-lost-wallet-you-can-drop-it-1833745884](https://lifehacker.com/if-you-find-a-lost-wallet-you-can-return-it-by-dropping-1833745884)
 
 如果你在地上发现了某人丢失的钱包，你可以做一个乐善好施的人*和*懒惰的人:把它放在蓝色的盒子里就行了。
 
-
+Watch
 
 redditor[u/Joe cat 2112](https://www.reddit.com/user/joecat2112)在 r/LifeProTips 中贴出了这个 [的有用花絮](https://www.reddit.com/r/LifeProTips/comments/9jih03/lpt_if_you_find_a_lost_wallet_in_the_us_you_can/?utm_source=ifttt) ，简单写道:
 
@@ -26,4 +26,6 @@ redditor[u/Joe cat 2112](https://www.reddit.com/user/joecat2112)在 r/LifeProTip
 
 YouTuber Mark Rober 在全国范围内进行了一项丢失钱包的实验，看看有多少“丢失”的钱包通过邮件被归还给他。并非所有人都是:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-jnL7sJYblGY&amp;start=0" data-chomp-id="jnL7sJYblGY" data-recommend-id="youtube://jnL7sJYblGY" id="youtube-jnL7sJYblGY" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="jnL7sJYblGY" data-recommend-id="youtube://jnL7sJYblGY" id="youtube-jnL7sJYblGY" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">OP <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.reddit.com/r/LifeProTips/comments/9jih03/lpt_if_you_find_a_lost_wallet_in_the_us_you_can/e6svog3/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.reddit.com/r/LifeProTips/comments/9jih03/lpt_if_you_find_a_lost_wallet_in_the_us_you_can/e6svog3/" target="_blank" rel="noopener noreferrer">承认</a> </span>他们是从罗伯那里得到这个线报的。如果视频没有说服你使用美国邮政，并且你仍然对每天给你送信的人保持警惕，你总是可以自己运送那个钱包。并支付邮资。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-jnL7sJYblGY&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-jnL7sJYblGY&start=0) 
+
+OP [承认](https://www.reddit.com/r/LifeProTips/comments/9jih03/lpt_if_you_find_a_lost_wallet_in_the_us_you_can/e6svog3/) 他们是从罗伯那里得到这个线报的。如果视频没有说服你使用美国邮政，并且你仍然对每天给你送信的人保持警惕，你总是可以自己运送那个钱包。并支付邮资。

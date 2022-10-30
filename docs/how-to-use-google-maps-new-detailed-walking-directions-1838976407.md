@@ -1,5 +1,24 @@
 # 如何使用谷歌地图新的详细步行路线
 
-> 原文：<https://lifehacker.com/how-to-use-google-maps-new-detailed-walking-directions-1838976407>
+> 原文:[https://life hacker . com/how-to-use-Google-maps-new-detailed-walking-directions-1838976407](https://lifehacker.com/how-to-use-google-maps-new-detailed-walking-directions-1838976407)
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-7PEbPYy56XI&amp;start=0" data-chomp-id="7PEbPYy56XI" data-recommend-id="youtube://7PEbPYy56XI" id="youtube-7PEbPYy56XI" data-recommended="true" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="7PEbPYy56XI" data-recommend-id="youtube://7PEbPYy56XI" id="youtube-7PEbPYy56XI" data-recommended="true" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">谷歌更新了谷歌地图，增加了步行导航的新功能，这使得该应用对步行出行的人更有帮助。谷歌地图新的详细语音导航，正如它被称为的那样，主要是为有视力障碍的用户设计的，尽管它可以很容易地使任何人受益。</p><div class="bxm4mm-2 hKBnez"><div class="bxm4mm-1 goloRq instream-native-video instream-permalink instream-native-video--mobile"><div class="sc-1h0epat-0 lepUzz"><div class="sc-1h0epat-1 gRjwiT"><div class="sc-235a11-0 egwski">Watch</div></div><div class="sc-1wkneyl-0 hxLRyg video-html5-playlist" data-playlist="192590,192585,192428" data-current="192590"><div class="video-html5-loaded"><div class="video-html5-player"><div class="lhhce6-0 bVyOPq video-html5 autoplay muted mobile" data-video-id="192590" data-position="sidebar" data-video-title="How to Make a Quick and Easy Crumb Crust" data-video-network="lifehacker" data-video-duration="135"></div></div></div></div></div></div></div><p class="sc-77igqf-0 bOfvBY">如果你和我一样，你会痴迷地反复检查你的谷歌地图方向，尤其是当你在一个陌生的地方走向一个新的目的地时。新的详细步行指示意味着你可以把手机放在口袋里，听语音指示，而不是不断查看手机来了解你在哪里。</p><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><p class="sc-77igqf-0 bOfvBY">谷歌地图新的步行路线现在将:</p><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>在导航开始时，清楚地定义估计的步行时间和距离。</li><li>当您接近繁忙的街道、十字路口等时，会向您发出警报。</li><li>告诉你离下一次转弯还有多长时间，以及你当前的主要方向。</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h290792">如何在谷歌地图中启用详细的语音导航<br/></h3><ol data-type="List" data-style="Number" class="sc-1lmbno3-1 sizyJ"><li>打开谷歌地图应用程序。</li><li>点击搜索栏旁边的<strong>三条堆叠线</strong>打开侧边菜单。</li><li>向下滚动并轻触<strong>“设置”</strong>，然后再次向下滚动并轻触<strong>“导航设置”</strong></li><li>在菜单底部找到<strong>“行走路线”</strong>，开启<strong>“详细语音指引”</strong></li></ol><div id="mgid-container" data-placement="3" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-7PEbPYy56XI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-7PEbPYy56XI&start=0) 
+
+谷歌更新了谷歌地图，增加了步行导航的新功能，这使得该应用对步行出行的人更有帮助。谷歌地图新的详细语音导航，正如它被称为的那样，主要是为有视力障碍的用户设计的，尽管它可以很容易地使任何人受益。
+
+Watch
+
+如果你和我一样，你会痴迷地反复检查你的谷歌地图方向，尤其是当你在一个陌生的地方走向一个新的目的地时。新的详细步行指示意味着你可以把手机放在口袋里，听语音指示，而不是不断查看手机来了解你在哪里。
+
+谷歌地图新的步行路线现在将:
+
+*   在导航开始时，清楚地定义估计的步行时间和距离。
+*   当您接近繁忙的街道、十字路口等时，会向您发出警报。
+*   告诉你离下一次转弯还有多长时间，以及你当前的主要方向。
+
+### 如何在谷歌地图中启用详细的语音导航
+
+1.  打开谷歌地图应用程序。
+2.  点击搜索栏旁边的**三条堆叠线**打开侧边菜单。
+3.  向下滚动并轻触**“设置”**，然后再次向下滚动并轻触**“导航设置”**
+4.  在菜单底部找到**“行走路线”**，开启**“详细语音指引”**

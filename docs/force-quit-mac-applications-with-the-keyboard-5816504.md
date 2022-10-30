@@ -1,7 +1,19 @@
 # 使用键盘强制退出 Mac 应用程序
 
-> 原文：<https://lifehacker.com/force-quit-mac-applications-with-the-keyboard-5816504>
+> 原文:[https://life hacker . com/force-quit-MAC-applications-with-the-keyboard-5816504](https://lifehacker.com/force-quit-mac-applications-with-the-keyboard-5816504)
 
 很少有什么事情比你在流媒体或网上冲浪时浏览器死机或 messenger 应用程序中途锁定更令人沮丧的了。那么，如果你在 Mac 上面对旋转的死亡沙滩球，而你正在使用的应用程序没有响应，该怎么办呢？
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-LDfuqrZfThM&amp;start=0" data-chomp-id="LDfuqrZfThM" data-recommend-id="youtube://LDfuqrZfThM" id="youtube-LDfuqrZfThM" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="LDfuqrZfThM" data-recommend-id="youtube://LDfuqrZfThM" id="youtube-LDfuqrZfThM" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">有一个快捷的键盘快捷键:只需按下<strong> Cmd+Opt+Shift+Escape </strong>几秒钟就可以退出前面的应用程序。你也可以按下<strong> Cmd+Opt+Esc </strong>调出强制退出菜单，选择你想要杀死的应用。</p><div class="bxm4mm-2 hKBnez"><div class="bxm4mm-1 goloRq instream-native-video instream-permalink instream-native-video--mobile"><div class="sc-1h0epat-0 lepUzz"><div class="sc-1h0epat-1 gRjwiT"><div class="sc-235a11-0 egwski">Watch</div></div><div class="sc-1wkneyl-0 hxLRyg video-html5-playlist" data-playlist="192590,192585,192428" data-current="192590"><div class="video-html5-loaded"><div class="video-html5-player"><div class="lhhce6-0 bVyOPq video-html5 autoplay muted mobile" data-video-id="192590" data-position="sidebar" data-video-title="How to Make a Quick and Easy Crumb Crust" data-video-network="lifehacker" data-video-duration="135"></div></div></div></div></div></div></div><p class="sc-77igqf-0 bOfvBY">上面的视频中概述了这些步骤——请记住，当前的 Mac OS 界面看起来与显示的略有不同。</p><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><p class="sc-77igqf-0 bOfvBY">只要您的鼠标或触控板功能正常，您还可以通过点按并按住 dock 图标(或右键单击)来强制退出应用程序，直到出现底部带有“退出”选项的菜单。把强制退出看作是 Mac 用户的“结束任务”。</p><p class="sc-77igqf-0 bOfvBY"><em>今日快捷方式突出了从桌面到移动设备再到网络的各种平台上的一个很棒的快捷方式。你可以在这里找到更多快捷方式</em><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;http://lifehacker.com/shortcutoftheday&quot;,{&quot;metric25&quot;:1}]]" href="http://lifehacker.com/shortcutoftheday"><em/></a></span><em>。</em></p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY"><em>本文最初发表于 2011 年，并于 2019 年 12 月更新，提供了更全面的最新信息。</em></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-LDfuqrZfThM&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-LDfuqrZfThM&start=0) 
+
+有一个快捷的键盘快捷键:只需按下 **Cmd+Opt+Shift+Escape** 几秒钟就可以退出前面的应用程序。你也可以按下 **Cmd+Opt+Esc** 调出强制退出菜单，选择你想要杀死的应用。
+
+Watch
+
+上面的视频中概述了这些步骤——请记住，当前的 Mac OS 界面看起来与显示的略有不同。
+
+只要您的鼠标或触控板功能正常，您还可以通过点按并按住 dock 图标(或右键单击)来强制退出应用程序，直到出现底部带有“退出”选项的菜单。把强制退出看作是 Mac 用户的“结束任务”。
+
+*今日快捷方式突出了从桌面到移动设备再到网络的各种平台上的一个很棒的快捷方式。你可以在这里找到更多快捷方式*[](http://lifehacker.com/shortcutoftheday)**。**
+
+**本文最初发表于 2011 年，并于 2019 年 12 月更新，提供了更全面的最新信息。**

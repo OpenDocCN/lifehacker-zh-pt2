@@ -1,10 +1,10 @@
 # 如何观看阿丽亚娜 5 号和猎鹰 9 号火箭今天发射
 
-> 原文：<https://lifehacker.com/how-to-watch-the-ariane-5-and-falcon-9-rockets-launch-t-1836999854>
+> 原文:[https://life hacker . com/how-to-watch-the-Ariane-5-and-falcon-9-rockets-launch-t-1836999854](https://lifehacker.com/how-to-watch-the-ariane-5-and-falcon-9-rockets-launch-t-1836999854)
 
 两枚携带大型通信卫星的火箭计划于今天在几个小时内相继发射，首先从南美发射，然后从北美发射。你可以通过直播观看每一场比赛。
 
-
+Watch
 
 ### 阿丽亚娜 5 号
 
@@ -14,4 +14,22 @@
 
 你可以在这里现场观看阿丽亚娜 5 号的发射:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-kQ8HecMG2qs&amp;start=0" data-chomp-id="kQ8HecMG2qs" data-recommend-id="youtube://kQ8HecMG2qs" id="youtube-kQ8HecMG2qs" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="kQ8HecMG2qs" data-recommend-id="youtube://kQ8HecMG2qs" id="youtube-kQ8HecMG2qs" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">报道将于东部时间下午 2:45 左右开始。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h290705">猎鹰 9 号</h3><p class="sc-77igqf-0 bOfvBY">接下来是 SpaceX 的猎鹰 9 号火箭，计划于东部时间下午 6 点 53 分至 8 点 21 分从佛罗里达州的卡纳维拉尔角空军基地发射。猎鹰 9 号已经在去年 7 月和 11 月飞行了两次，这将是它的最后一次任务。TechCrunch 报道称，猎鹰 9 号将携带一颗大型通信卫星，不会尝试“软着陆”返回地球；反而会坠入海洋。</p><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">这是因为 Amos-17 是 SpaceX 为以色列 Spacecomm 公司发射的卫星，重量超过 14000 磅，这意味着它需要猎鹰 9 号上的所有燃料才能达到目标轨道，没有剩余的燃料用于尝试受控体面。</p></blockquote><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">你可以在这里现场观看猎鹰 9 号的发射:</p><div class="ooo3c9-0 cmUFVa align--center has-video media-large video-embed embed-frame"><span class="flex-video widescreen"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-fZh82-WcCuo&amp;start=0" data-chomp-id="fZh82-WcCuo" data-recommend-id="youtube://fZh82-WcCuo" id="youtube-fZh82-WcCuo" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/><span data-chomp-id="fZh82-WcCuo" data-recommend-id="youtube://fZh82-WcCuo" id="youtube-fZh82-WcCuo" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">报道将在发射前大约 15 分钟开始。</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><em>更多来自 Lifehacker 的内容，一定要在 Instagram 上关注我们</em><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.instagram.com/lifehackerdotcom/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.instagram.com/lifehackerdotcom/" target="_blank" rel="noopener noreferrer"><em>@ lifehackerdotcom</em></a></span><em>。</em> <br/></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-kQ8HecMG2qs&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-kQ8HecMG2qs&start=0) 
+
+报道将于东部时间下午 2:45 左右开始。
+
+### 猎鹰 9 号
+
+接下来是 SpaceX 的猎鹰 9 号火箭，计划于东部时间下午 6 点 53 分至 8 点 21 分从佛罗里达州的卡纳维拉尔角空军基地发射。猎鹰 9 号已经在去年 7 月和 11 月飞行了两次，这将是它的最后一次任务。TechCrunch 报道称，猎鹰 9 号将携带一颗大型通信卫星，不会尝试“软着陆”返回地球；反而会坠入海洋。
+
+> 这是因为 Amos-17 是 SpaceX 为以色列 Spacecomm 公司发射的卫星，重量超过 14000 磅，这意味着它需要猎鹰 9 号上的所有燃料才能达到目标轨道，没有剩余的燃料用于尝试受控体面。
+
+你可以在这里现场观看猎鹰 9 号的发射:
+
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-fZh82-WcCuo&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-fZh82-WcCuo&start=0) 
+
+报道将在发射前大约 15 分钟开始。
+
+* * *
+
+*更多来自 Lifehacker 的内容，一定要在 Instagram 上关注我们*[*@ lifehackerdotcom*](https://www.instagram.com/lifehackerdotcom/)*。*

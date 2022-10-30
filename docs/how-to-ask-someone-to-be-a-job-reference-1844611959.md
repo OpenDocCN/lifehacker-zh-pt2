@@ -1,10 +1,10 @@
 # 如何请人做工作推荐人
 
-> 原文：<https://lifehacker.com/how-to-ask-someone-to-be-a-job-reference-1844611959>
+> 原文:[https://life hacker . com/how-to-ask-someone-to-be-a-job-reference-1844611959](https://lifehacker.com/how-to-ask-someone-to-be-a-job-reference-1844611959)
 
 尽管我们找工作的方式发生了很大的变化(我们已经从翻阅当地报纸的分类广告栏走了很长一段路),招聘过程现在基本上是虚拟的，但有一种做法似乎不会有任何进展:提供推荐信。
 
-
+Watch
 
 如果你对向别人寻求帮助感到焦虑，这可能是整个过程中你最不喜欢的部分。当涉及到推荐信时，你实际上是在要求某人代表你做无偿的工作。虽然对某人来说这可能是一个很大的要求，但有几种方法可以让你的参考生活变得更轻松，让你知道你感谢他们的帮助并尊重他们的时间。以下是如何让别人做你的工作推荐人，并确保你尽可能地提供帮助。
 
@@ -12,4 +12,44 @@
 
 这篇文章的灵感来自新闻编辑室和产品策略师艾玛·卡鲁·格罗乌姆 的一系列推文，在这些推文中，她提供了一些让某人成为你的推荐人的技巧。她的第一个建议是问对方是否有带宽。肯定这样做；这不仅是一种礼貌，而且也给了对方一个机会来诚实地告诉你他们是否有时间来帮助你。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1290655607981252610&amp;autosize=1" autoresize="true" id="twitter-1290655607981252610" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h290547">不要认为你有资格获得推荐</h3><p class="sc-77igqf-0 bOfvBY">这不是艾玛的思路，但有一点需要记住:请不要假设你以前的老板、教授或同事会成为你的推荐人。这不是他们工作的一部分，他们也不欠你什么(除非这是你之前讨论过的事情，在这种情况下，你可以跳过这一步)。因此，不要用“我需要一份[工作/项目/等等]的推荐信”来打开邮件，而是用整个询问他们的带宽的方法。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h290548">给他们足够的时间</h3><p class="sc-77igqf-0 bOfvBY">不要等到你的申请到期前才要求某人做你的推荐人——尤其是如果这涉及到写信的话。这是尊重他们时间的另一个方面。也许他们会很乐意在前一周写点什么，但是既然你已经和你的申请截止日期如此接近，这是不可能的，或者会给他们带来很大的压力。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">另一方面，如果你在申请截止日期前几个月就要求某人给你写信或做你的推荐人，你就给了他们一些他们必须跟踪的东西，实际上是更多的工作。额外的时间是一件好事，但是如果你真的提前很久联系他们，问问潜在的推荐人，他们是否希望你在截止日期前两周左右通过快速提醒与他们联系。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h290549">让他们的工作尽可能简单</h3><p class="sc-77igqf-0 bOfvBY">回到艾玛的话题，她也强调了帮助推荐人的重要性。告诉他们这个职位的情况，以及这个组织(你认为)对候选人的要求。给他们你应聘的那份简历，以及你的求职信，让他们了解你的相关经历或成就。</p><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1290655845165027330&amp;autosize=1" autoresize="true" id="twitter-1290655845165027330" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><p class="sc-77igqf-0 bOfvBY">同样，如果你想让他们在信中(或电话交谈中)强调什么，让推荐人知道。他们不会读心术，所以除非你明确告诉他们你希望他们提到什么——比如一个特殊的项目或奖项——否则他们会对你的工作经历进行自己的评估，并挑选出他们自己的亮点(可能不总是与你的一致)。<br/></p><h3 class="sc-1bwb26k-1 kpbNNd" id="h290550">提供潜在电话的信息</h3><p class="sc-77igqf-0 bOfvBY">如果你的推荐人通过电话为你担保，一定要告诉他们可能会给他们打电话的人的名字和电话号码。(或者，如果没有别的，至少是区号。)正如艾玛指出的那样，很多人不接他们不认识的随机号码和区号打来的电话。</p><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1290656299882086400&amp;autosize=1" autoresize="true" id="twitter-1290656299882086400" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h290551"><br/> <br/></h3><h3 class="sc-1bwb26k-1 kpbNNd" id="h290552">一旦你知道工作中发生了什么，就把它们填进去</h3><p class="sc-77igqf-0 bOfvBY">在这一点上，推荐人已经(至少在某种程度上)投入了，所以让他们知道发生了什么——即使你没有得到这份工作。如果你真的得到了这份工作，艾玛建议你自己告诉你的推荐人，这样他们就不会在社交媒体上或者从其他人那里听说了。</p><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1290656470988718081&amp;autosize=1" autoresize="true" id="twitter-1290656470988718081" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h290553">不要期待职业建议</h3><p class="sc-77igqf-0 bOfvBY">如果你没有得到这份工作，一定要让你的推荐人知道，但不要说了。向这个人寻求职业建议，或者帮助完善你的简历或求职信可能很诱人，但是不要这样做。(如果推荐人提出了要求，那是一回事，但不要马上提出另一个要求。)</p><p class="sc-77igqf-0 bOfvBY">此外，除非你非常了解你的推荐人，并且已经建立了这种类型的指导关系，否则不要要求他们提供个人和/或专业联系，或者让你与该领域的其他人“联系”。最后，不要问他们是否知道有人在招聘，或者对你应该申请的其他职位有什么建议——那是你的工作。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h290554">感谢他们</h3><p class="sc-77igqf-0 bOfvBY">不管你是否得到了这份工作，感谢这个人花时间和精力做你的推荐人。不需要太多——甚至一封快速的邮件也可以。这里的目的是向他们表示你感谢他们的帮助。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1290655607981252610&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1290655607981252610&autosize=1) 
+
+### 不要认为你有资格获得推荐
+
+这不是艾玛的思路，但有一点需要记住:请不要假设你以前的老板、教授或同事会成为你的推荐人。这不是他们工作的一部分，他们也不欠你什么(除非这是你之前讨论过的事情，在这种情况下，你可以跳过这一步)。因此，不要用“我需要一份[工作/项目/等等]的推荐信”来打开邮件，而是用整个询问他们的带宽的方法。
+
+### 给他们足够的时间
+
+不要等到你的申请到期前才要求某人做你的推荐人——尤其是如果这涉及到写信的话。这是尊重他们时间的另一个方面。也许他们会很乐意在前一周写点什么，但是既然你已经和你的申请截止日期如此接近，这是不可能的，或者会给他们带来很大的压力。
+
+另一方面，如果你在申请截止日期前几个月就要求某人给你写信或做你的推荐人，你就给了他们一些他们必须跟踪的东西，实际上是更多的工作。额外的时间是一件好事，但是如果你真的提前很久联系他们，问问潜在的推荐人，他们是否希望你在截止日期前两周左右通过快速提醒与他们联系。
+
+### 让他们的工作尽可能简单
+
+回到艾玛的话题，她也强调了帮助推荐人的重要性。告诉他们这个职位的情况，以及这个组织(你认为)对候选人的要求。给他们你应聘的那份简历，以及你的求职信，让他们了解你的相关经历或成就。
+
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1290655845165027330&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1290655845165027330&autosize=1) 
+
+同样，如果你想让他们在信中(或电话交谈中)强调什么，让推荐人知道。他们不会读心术，所以除非你明确告诉他们你希望他们提到什么——比如一个特殊的项目或奖项——否则他们会对你的工作经历进行自己的评估，并挑选出他们自己的亮点(可能不总是与你的一致)。
+
+### 提供潜在电话的信息
+
+如果你的推荐人通过电话为你担保，一定要告诉他们可能会给他们打电话的人的名字和电话号码。(或者，如果没有别的，至少是区号。)正如艾玛指出的那样，很多人不接他们不认识的随机号码和区号打来的电话。
+
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1290656299882086400&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1290656299882086400&autosize=1) 
+
+### 一旦你知道工作中发生了什么，就把它们填进去
+
+在这一点上，推荐人已经(至少在某种程度上)投入了，所以让他们知道发生了什么——即使你没有得到这份工作。如果你真的得到了这份工作，艾玛建议你自己告诉你的推荐人，这样他们就不会在社交媒体上或者从其他人那里听说了。
+
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1290656470988718081&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1290656470988718081&autosize=1) 
+
+### 不要期待职业建议
+
+如果你没有得到这份工作，一定要让你的推荐人知道，但不要说了。向这个人寻求职业建议，或者帮助完善你的简历或求职信可能很诱人，但是不要这样做。(如果推荐人提出了要求，那是一回事，但不要马上提出另一个要求。)
+
+此外，除非你非常了解你的推荐人，并且已经建立了这种类型的指导关系，否则不要要求他们提供个人和/或专业联系，或者让你与该领域的其他人“联系”。最后，不要问他们是否知道有人在招聘，或者对你应该申请的其他职位有什么建议——那是你的工作。
+
+### 感谢他们
+
+不管你是否得到了这份工作，感谢这个人花时间和精力做你的推荐人。不需要太多——甚至一封快速的邮件也可以。这里的目的是向他们表示你感谢他们的帮助。

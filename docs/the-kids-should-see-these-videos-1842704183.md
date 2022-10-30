@@ -1,10 +1,10 @@
 # 孩子们应该看看这些视频
 
-> 原文：<https://lifehacker.com/the-kids-should-see-these-videos-1842704183>
+> 原文:[https://life hacker . com/the-kids-should-see-these-videos-1842704183](https://lifehacker.com/the-kids-should-see-these-videos-1842704183)
 
 现在过多的屏幕时间几乎是必然的。我们都在尽最大努力在家工作*和*帮助我们的孩子完成在线学习任务*和*通过我们所有的设备与他们的朋友和家人联系。但是，即使我们做完了所有这些，一天中剩下的所有小时都被游戏日、运动和其他活动消耗掉了。现在，至少有一部分时间可能花在了屏幕上。
 
-
+Watch
 
 如果一些屏幕时间能少一些麻木，多一些教育意义，那就太好了。但是我们中的大多数人也没有足够的思维能力来整理这样一份清单。当然，现在外面的 [免费教育视频和其他资源](https://lifehacker.com/check-out-these-free-educational-apps-and-sites-1842363236) 的数量超过了“有用”的数量，并在第一周隔离期结束时直接进入“铺天盖地”的状态。不过，有一个网站已经为我们完成了繁重的工作。
 
@@ -16,4 +16,20 @@
 
 例如， [这个制作乐高披萨的定格动画](https://thekidshouldseethis.com/post/lego-pizza-bebop) 很狂野，会成为你孩子的新疫情目标:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-Y_fXmZt1j4k&amp;start=0" data-chomp-id="Y_fXmZt1j4k" data-recommend-id="youtube://Y_fXmZt1j4k" id="youtube-Y_fXmZt1j4k" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="Y_fXmZt1j4k" data-recommend-id="youtube://Y_fXmZt1j4k" id="youtube-Y_fXmZt1j4k" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">为了进一步策划已经策划好的，这里有<!-- -->个网站上突出显示的其他有趣的视频，这些视频是<!-- -->我喜欢的，也是<!-- -->你和你的孩子可能也会喜欢的:<br/></p><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://thekidshouldseethis.com/post/the-blanket-octopus&quot;,{&quot;metric25&quot;:1}]]" href="https://thekidshouldseethis.com/post/the-blanket-octopus" target="_blank" rel="noopener noreferrer">一只毯子章鱼展开它的网</a> </span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://thekidshouldseethis.com/post/why-dogs-lick-people&quot;,{&quot;metric25&quot;:1}]]" href="https://thekidshouldseethis.com/post/why-dogs-lick-people" target="_blank" rel="noopener noreferrer">狗为什么要舔人？</a>T3】</span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://thekidshouldseethis.com/post/a-2-5-minute-tour-of-the-galaxy&quot;,{&quot;metric25&quot;:1}]]" href="https://thekidshouldseethis.com/post/a-2-5-minute-tour-of-the-galaxy" target="_blank" rel="noopener noreferrer">这个 2.5 分钟的银河之旅</a> </span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://thekidshouldseethis.com/post/ten-easy-home-science-experiments-kids&quot;,{&quot;metric25&quot;:1}]]" href="https://thekidshouldseethis.com/post/ten-easy-home-science-experiments-kids" target="_blank" rel="noopener noreferrer">这十个简单的科学实验</a> </span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://thekidshouldseethis.com/post/sean-lomax-world-champion-whistler&quot;,{&quot;metric25&quot;:1}]]" href="https://thekidshouldseethis.com/post/sean-lomax-world-champion-whistler" target="_blank" rel="noopener noreferrer">世界冠军惠斯勒</a>T3】</span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://thekidshouldseethis.com/post/3d-city-anamorphic-drawing&quot;,{&quot;metric25&quot;:1}]]" href="https://thekidshouldseethis.com/post/3d-city-anamorphic-drawing" target="_blank" rel="noopener noreferrer">如何绘制 3D 城市</a> </span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://thekidshouldseethis.com/post/domino-cats&quot;,{&quot;metric25&quot;:1}]]" href="https://thekidshouldseethis.com/post/domino-cats" target="_blank" rel="noopener noreferrer">多米诺猫</a> </span></li></ul><p class="sc-77igqf-0 bOfvBY">当然，你也可以让<!-- -->你的孩子<!-- -->自由地在网站<!-- -->上漫游<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://thekidshouldseethis.com/&quot;,{&quot;metric25&quot;:1}]]" href="https://thekidshouldseethis.com/" target="_blank" rel="noopener noreferrer">，安全地了解<!-- -->所有的内容都是由 Nakaya 和她的孩子精心挑选的<!-- -->适合年龄、古怪、有趣和好玩的。</a></span></p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><small> <em>遇见地球上最聪明的父母！加入我们的</em> </small> <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.facebook.com/groups/2018785615043946/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.facebook.com/groups/2018785615043946/" target="_blank" rel="noopener noreferrer"> <small> <em>育儿脸书群</em> </small> </a> </span> <small> <em>。</em> </small> <br/></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-Y_fXmZt1j4k&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-Y_fXmZt1j4k&start=0) 
+
+为了进一步策划已经策划好的，这里有个网站上突出显示的其他有趣的视频，这些视频是我喜欢的，也是你和你的孩子可能也会喜欢的:
+
+*   [一只毯子章鱼展开它的网](https://thekidshouldseethis.com/post/the-blanket-octopus)
+*   [狗为什么要舔人？](https://thekidshouldseethis.com/post/why-dogs-lick-people)T3】
+*   [这个 2.5 分钟的银河之旅](https://thekidshouldseethis.com/post/a-2-5-minute-tour-of-the-galaxy)
+*   [这十个简单的科学实验](https://thekidshouldseethis.com/post/ten-easy-home-science-experiments-kids)
+*   [世界冠军惠斯勒](https://thekidshouldseethis.com/post/sean-lomax-world-champion-whistler)T3】
+*   [如何绘制 3D 城市](https://thekidshouldseethis.com/post/3d-city-anamorphic-drawing)
+*   [多米诺猫](https://thekidshouldseethis.com/post/domino-cats)
+
+当然，你也可以让你的孩子自由地在网站上漫游 [，安全地了解所有的内容都是由 Nakaya 和她的孩子精心挑选的适合年龄、古怪、有趣和好玩的。](https://thekidshouldseethis.com/)
+
+* * *
+
+<small>*遇见地球上最聪明的父母！加入我们的*</small> [<small>*育儿脸书群*</small>](https://www.facebook.com/groups/2018785615043946/) <small>*。*</small>

@@ -1,10 +1,10 @@
 # 如何享受独居生活
 
-> 原文：<https://lifehacker.com/how-to-enjoy-living-alone-1841671374>
+> 原文:[https://lifehacker.com/how-to-enjoy-living-alone-1841671374](https://lifehacker.com/how-to-enjoy-living-alone-1841671374)
 
 当我搬出四年前和前夫合住的房子时，我彻底崩溃了。我从 19 岁开始就和他保持着忠诚的关系，就在我 21 岁生日之前，我从母亲家直接搬到了他家。在我完成学士学位的两年里，我们分开住，但我有一个室友，他大多数周末都会来看我。突然独自生活的想法吓坏了我，但它绝对规则。
 
-
+Watch
 
 独自生活对每个人来说都是不同的，但这就是它的美妙之处——这是一种完全可定制的体验。然而，有一个学习曲线，特别是如果你的生活一直是伙伴式的、社区式的或家庭式的。
 
@@ -28,4 +28,18 @@
 
 此外，独自生活还有后勤方面的好处，这看起来有些愚蠢。能够用任何吸引你的随机物品或家具来填充(或不填充)一个空间是一种乐趣。我的公寓看起来像是被一只饥渴的浣熊装饰的，这让我很开心。我的眼睛只被迫注视给我带来快乐的*物体*，我的耳朵只听到令它们愉悦的音乐，温度永远不会超过宜人的 69 华氏度。如果你需要进一步的证据来证明一个真正定制的单人空间有多美，可以在 YouTube 上搜索单身公寓之旅。《艾米·塞德丽丝》是我的最爱。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-eYHE7UIVpTs&amp;start=0" data-chomp-id="eYHE7UIVpTs" data-recommend-id="youtube://eYHE7UIVpTs" id="youtube-eYHE7UIVpTs" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="eYHE7UIVpTs" data-recommend-id="youtube://eYHE7UIVpTs" id="youtube-eYHE7UIVpTs" data-recommended="false" class="js_recommend"/></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h289390">享受不用协调的生活</h3><p class="sc-77igqf-0 bOfvBY">搭档最乏味的事情之一就是不断的协调。“你什么时候回家？”以及“我们在吃什么？”有两个问题我一周只需要回答几次，因为我的搭档晚上工作，住在别处。实际上，挺好的。自从我离婚后，我交了更多的朋友，去了更多的地方，最终找到了我喜欢的爱好(有趣的是，是 DJ)。这并不是说我的乐队禁止任何这些活动，但是当你和某人住在一起时，一定数量的检查和安排是不可避免的。大部分时间独自一人也让一个人更有可能冒险出去与世界接触，因为，是的，独自一人会变得无聊，但完全控制在任何给定时间你能见到多少人会让与他人相处的时间变得更有目的和(我认为)特别。</p><p class="sc-77igqf-0 bOfvBY">我也发现独自吃饭更健康，或者至少更直观。我的前任是一名新陈代谢很快的男性铁人三项运动员，尽管我们的饮食需求并不总是同步，但我发现自己给他做饭比自己多，这在异性恋关系中很常见。现在唯一真正对<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://skillet.lifehacker.com/im-lifehacker-food-editor-claire-lower-and-this-is-how-1838199682&quot;,{&quot;metric25&quot;:1}]]" href="https://skillet.lifehacker.com/im-lifehacker-food-editor-claire-lower-and-this-is-how-1838199682">我的饮食</a> </span>有影响的是这份工作，显然这不是负担。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h289391">如果你不相信我，相信乌比</h3><p class="sc-77igqf-0 bOfvBY">我是看着乌比·戈德堡给某个温文尔雅的《星际迷航》船长提出明智的建议长大的，这让她在我心目中成为生活和生存方面的权威，这一点效果很好。早在 2016 年，当被《纽约时报》杂志<span></span>问及婚姻问题时，她毫不含糊地解释道，同居不适合她。“我一个人开心多了。戈德堡说:“我想和谁在一起多久就和谁在一起多久，但我不指望永远和谁在一起，也不指望和谁一起生活。”。“我不想有人在我的房子里。”</p><p class="sc-77igqf-0 bOfvBY">整段引文不错，但我最想的是最后一部分。我真的不希望有人在我的房子里，至少不是所有的时间，你也不必想要。</p><p class="sc-77igqf-0 bOfvBY"><small> <strong>美国东部时间 02/13/20 下午 5:23 更新</strong> : <em>引用保罗·多兰的话说，已婚人士说他们在配偶不在的时候“他妈的痛苦”已经被删除，因为它是</em> </small> <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.vox.com/future-perfect/2019/6/4/18650969/married-women-miserable-fake-paul-dolan-happiness&quot;,{&quot;metric25&quot;:1}]]" href="https://www.vox.com/future-perfect/2019/6/4/18650969/married-women-miserable-fake-paul-dolan-happiness" target="_blank" rel="noopener noreferrer"> <small> <em>不准确</em> </small> </a> </span> <small> <em>。</em> </small></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-eYHE7UIVpTs&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-eYHE7UIVpTs&start=0) 
+
+### 享受不用协调的生活
+
+搭档最乏味的事情之一就是不断的协调。“你什么时候回家？”以及“我们在吃什么？”有两个问题我一周只需要回答几次，因为我的搭档晚上工作，住在别处。实际上，挺好的。自从我离婚后，我交了更多的朋友，去了更多的地方，最终找到了我喜欢的爱好(有趣的是，是 DJ)。这并不是说我的乐队禁止任何这些活动，但是当你和某人住在一起时，一定数量的检查和安排是不可避免的。大部分时间独自一人也让一个人更有可能冒险出去与世界接触，因为，是的，独自一人会变得无聊，但完全控制在任何给定时间你能见到多少人会让与他人相处的时间变得更有目的和(我认为)特别。
+
+我也发现独自吃饭更健康，或者至少更直观。我的前任是一名新陈代谢很快的男性铁人三项运动员，尽管我们的饮食需求并不总是同步，但我发现自己给他做饭比自己多，这在异性恋关系中很常见。现在唯一真正对 [我的饮食](https://skillet.lifehacker.com/im-lifehacker-food-editor-claire-lower-and-this-is-how-1838199682) 有影响的是这份工作，显然这不是负担。
+
+### 如果你不相信我，相信乌比
+
+我是看着乌比·戈德堡给某个温文尔雅的《星际迷航》船长提出明智的建议长大的，这让她在我心目中成为生活和生存方面的权威，这一点效果很好。早在 2016 年，当被《纽约时报》杂志问及婚姻问题时，她毫不含糊地解释道，同居不适合她。“我一个人开心多了。戈德堡说:“我想和谁在一起多久就和谁在一起多久，但我不指望永远和谁在一起，也不指望和谁一起生活。”。“我不想有人在我的房子里。”
+
+整段引文不错，但我最想的是最后一部分。我真的不希望有人在我的房子里，至少不是所有的时间，你也不必想要。
+
+<small>**美国东部时间 02/13/20 下午 5:23 更新** : *引用保罗·多兰的话说，已婚人士说他们在配偶不在的时候“他妈的痛苦”已经被删除，因为它是*</small> [<small>*不准确*</small>](https://www.vox.com/future-perfect/2019/6/4/18650969/married-women-miserable-fake-paul-dolan-happiness) <small>*。*</small>

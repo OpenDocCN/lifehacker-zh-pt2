@@ -1,12 +1,12 @@
 # 如何在本周获得《刺客信条 2》的免费副本
 
-> 原文：<https://lifehacker.com/how-to-get-a-free-copy-of-assassin-s-creed-ii-this-week-1842861888>
+> 原文:[https://life hacker . com/how-to-get-a-free-copy-of-assassassin-s-creed-ii-this-week-1842861888](https://lifehacker.com/how-to-get-a-free-copy-of-assassin-s-creed-ii-this-week-1842861888)
 
 育碧的*刺客信条 II* 可能正在显示其年龄，但免费是免费的。
 
 这款游戏于 2009 年问世，从那以后，在五个不同的时间段里出现了七部不同的续集。这很好，因为每次我玩*刺客信条*的时候，我都觉得我仍然缺少一些从其他游戏中没有得到的重要情节。回顾《寻根》系列是一个让你熟悉正在发生的事情的好方法，特别是如果你刚刚开始玩最新的一部，*《刺客信条奥德赛》、*和*double——特别是*如果它不会让你付出任何代价的话。
 
-
+Watch
 
 育碧的报价带有通常的一系列警告。首先，这款免费游戏只适用于 Windows——从技术上讲，Uplay 只适用于 Windows，因为你完全可以在其他地方购买和下载 macOS 版的*刺客信条 II* 。啊，育碧。
 
@@ -18,4 +18,4 @@
 
 *嘿，如果你真的很棒，你可以在不到一个完整的八小时工作日内完成:*
 
-*<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-NmfR7nrBbFg&amp;start=0" data-chomp-id="NmfR7nrBbFg" data-recommend-id="youtube://NmfR7nrBbFg" id="youtube-NmfR7nrBbFg" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="NmfR7nrBbFg" data-recommend-id="youtube://NmfR7nrBbFg" id="youtube-NmfR7nrBbFg" data-recommended="false" class="js_recommend"/></span></div> </body> </html></iframe>*
+ *[https://lifehacker.com/embed/inset/iframe?id=youtube-video-NmfR7nrBbFg&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-NmfR7nrBbFg&start=0)*

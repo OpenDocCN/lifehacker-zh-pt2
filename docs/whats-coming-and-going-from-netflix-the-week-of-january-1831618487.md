@@ -1,7 +1,40 @@
 # 2019 年 1 月 21 日这一周，网飞有什么动静
 
-> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-january-1831618487>
+> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of-January-1831618487](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-january-1831618487)
 
 我对*黑土地崛起*(周五)感到兴奋，这是一部 BBC 剧，讲述了一名卢旺达种族灭绝的幸存者成为人权律师，最终参与了一个涉及非洲民兵领导人的案件。不管出于什么原因，约翰·古德曼在里面，这对于一个英国节目来说很奇怪，但我没有抱怨。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-ugxQuVPmVZU&amp;start=0" data-chomp-id="ugxQuVPmVZU" data-recommend-id="youtube://ugxQuVPmVZU" id="youtube-ugxQuVPmVZU" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="ugxQuVPmVZU" data-recommend-id="youtube://ugxQuVPmVZU" id="youtube-ugxQuVPmVZU" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">我可能是我们中唯一一个有点期待与黑仔的 docuseries <!-- --> <em>对话的人:周四的泰德·邦迪录音带</em>，<!-- -->但是<em>特兰西瓦尼亚酒店 3:暑假</em>在同一天到达，所以<!-- -->应该满足你们这些脆弱的<!-- -->猫，对于他们来说，一个连环杀手的承诺<!-- -->“来自死囚区的录音”听起来太可怕了。</p><div class="bxm4mm-2 hKBnez"><div class="bxm4mm-1 goloRq instream-native-video instream-permalink instream-native-video--mobile"><div class="sc-1h0epat-0 lepUzz"><div class="sc-1h0epat-1 gRjwiT"><div class="sc-235a11-0 egwski">Watch</div></div><div class="sc-1wkneyl-0 hxLRyg video-html5-playlist" data-playlist="192590,192585,192428" data-current="192590"><div class="video-html5-loaded"><div class="video-html5-player"><div class="lhhce6-0 bVyOPq video-html5 autoplay muted mobile" data-video-id="192590" data-position="sidebar" data-video-title="How to Make a Quick and Easy Crumb Crust" data-video-network="lifehacker" data-video-duration="135"></div></div></div></div></div></div></div><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><h3 class="sc-1bwb26k-1 kpbNNd" id="h296784">本周到达</h3><h4 class="sc-1bwb26k-1 kpbNNd" id="h296785"><strong>1 月 21 日星期一</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/81027156&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/81027156" target="_blank" rel="noopener noreferrer"> <em>正义</em></a>T5】</span></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h296786">1 月 24 日星期四</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80226709&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80226709" target="_blank" rel="noopener noreferrer"> <em>与黑仔的谈话:</em> </a> </span>泰德·邦迪录音带</li><li><em>特兰西瓦尼亚酒店 3:暑假</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h296787">1 月 25 日星期五</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80239629&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80239629" target="_blank" rel="noopener noreferrer"><em/></a></span><br/></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80144899&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80144899" target="_blank" rel="noopener noreferrer"> <em>黑土地崛起</em> </a> </span> <br/></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80197349&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80197349" target="_blank" rel="noopener noreferrer"> <em>俱乐部:第四季</em> </a> </span> <br/></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80180255&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80180255" target="_blank" rel="noopener noreferrer"> <em>王国</em></a>T5<br/></span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80223101&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80223101" target="_blank" rel="noopener noreferrer"> <em>【美第奇】</em> </a> </span> <br/></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80223052&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80223052" target="_blank" rel="noopener noreferrer"> <em>极地</em></a>T5<br/></span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/80186942&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/80186942" target="_blank" rel="noopener noreferrer"> <em>牢不可破的童菲·施密特第四季第二部</em> </a> </span> <br/></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h296788">1 月 27 日星期日</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>Z 国:第五季</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h296789">这周离开</h3><p class="sc-77igqf-0 bOfvBY">这周什么都不会离开！</p><div id="mgid-container" data-placement="3" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-ugxQuVPmVZU&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-ugxQuVPmVZU&start=0) 
+
+我可能是我们中唯一一个有点期待与黑仔的 docuseries *对话的人:周四的泰德·邦迪录音带*，但是*特兰西瓦尼亚酒店 3:暑假*在同一天到达，所以应该满足你们这些脆弱的猫，对于他们来说，一个连环杀手的承诺“来自死囚区的录音”听起来太可怕了。
+
+Watch
+
+### 本周到达
+
+#### **1 月 21 日星期一**
+
+*   [*正义*](http://www.netflix.com/title/81027156)T5】
+
+#### 1 月 24 日星期四
+
+*   [*与黑仔的谈话:*](http://www.netflix.com/title/80226709) 泰德·邦迪录音带
+*   *特兰西瓦尼亚酒店 3:暑假*
+
+#### 1 月 25 日星期五
+
+*   [](http://www.netflix.com/title/80239629)
+*   *[*黑土地崛起*](http://www.netflix.com/title/80144899)* 
+*   *[*俱乐部:第四季*](http://www.netflix.com/title/80197349)* 
+*   *[*王国*](http://www.netflix.com/title/80180255)T5* 
+*   *[*【美第奇】*](http://www.netflix.com/title/80223101)* 
+*   *[*极地*](http://www.netflix.com/title/80223052)T5* 
+*   *[*牢不可破的童菲·施密特第四季第二部*](http://www.netflix.com/title/80186942)* 
+
+#### *1 月 27 日星期日*
+
+*   *Z 国:第五季*
+
+### *这周离开*
+
+*这周什么都不会离开！*

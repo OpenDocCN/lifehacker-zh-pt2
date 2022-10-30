@@ -1,10 +1,10 @@
 # 如何获得更强的硬拉和悬挂支撑抓地力
 
-> 原文：<https://lifehacker.com/how-to-get-a-stronger-support-grip-for-deadlifts-and-ha-1841519693>
+> 原文:[https://life hacker . com/how-to-get-a-strong-support-grip-for-deadlifes-and-ha-1841519693](https://lifehacker.com/how-to-get-a-stronger-support-grip-for-deadlifts-and-ha-1841519693)
 
 当你第一次开始做硬拉时，你可能会想它们对你的背部、臀部和腿部有多难。但是一旦动作成为第二天性，另一个身体部位就开始发挥作用了:你的手。一旦重量变得足够重，你的握杆可能会难以支撑。
 
-
+Watch
 
 有很多方法可以立即提高你在硬拉中保持重量的能力，我们在这里 回顾一下 [。几乎每个人都使用交替握拍(一手下握，一手上手)或钩握。带子在很多情况下都很方便，尽管你不能在举重比赛中使用它们。但是几乎所有这些都需要*手中的一些*力量来实际保持这个位置。](https://vitals.lifehacker.com/how-to-hold-onto-a-deadlift-bar-1839783159)
 
@@ -28,4 +28,16 @@
 
 一旦你的握力很好，你就可以用像 [无拇指硬拉](https://www.instagram.com/p/B2pbPE9BJGN/) 这样的动作来打动你的朋友。这大约是我当时最大硬拉强度的 90%:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=instagram-B2pbPE9BJGN&amp;autosize=1" autoresize="true" id="instagram-B2pbPE9BJGN" data-recommended="false" width="598" height="676" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h295064">如何更好地在酒吧上吊</h3><p class="sc-77igqf-0 bOfvBY">如果你对悬挂和身体重心运动更感兴趣，原则是一样的，但是你是悬挂在横杆上，而不是横杆悬挂在你身上。</p><p class="sc-77igqf-0 bOfvBY">从双手悬挂开始。抓住栏杆，坚持住。随着这变得越来越容易，尝试这些变化:</p><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><strong>加权挂起</strong>。使用加重背心、倾斜带或两脚之间的哑铃，挑战双手支撑更多重量。</li><li><strong>单手挂</strong>。就像他们的声音一样！如果你擅长这些，一个有趣的练习是在酒吧上吊的时候脱掉衬衫或夹克。</li><li><strong>歪挂</strong>。这些有助于缩小单手和双手悬挂之间的差距。将一只手稳稳地放在吧台上，另一只手用一两个手指抓住。或者，在吧台上挂一条毛巾，一只手放在吧台上，另一只手抓住毛巾。</li></ul><p class="sc-77igqf-0 bOfvBY">我们现在已经讨论了挤压握杆训练和支撑握杆训练。接下来还有更多，良好的全方位握力训练将有助于手部力量的各个方面。所以请继续关注更多提高抓地力的方法，并让我们知道你的硬拉或悬挂进展如何！</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=instagram-B2pbPE9BJGN&autosize=1](https://lifehacker.com/embed/inset/iframe?id=instagram-B2pbPE9BJGN&autosize=1) 
+
+### 如何更好地在酒吧上吊
+
+如果你对悬挂和身体重心运动更感兴趣，原则是一样的，但是你是悬挂在横杆上，而不是横杆悬挂在你身上。
+
+从双手悬挂开始。抓住栏杆，坚持住。随着这变得越来越容易，尝试这些变化:
+
+*   **加权挂起**。使用加重背心、倾斜带或两脚之间的哑铃，挑战双手支撑更多重量。
+*   **单手挂**。就像他们的声音一样！如果你擅长这些，一个有趣的练习是在酒吧上吊的时候脱掉衬衫或夹克。
+*   **歪挂**。这些有助于缩小单手和双手悬挂之间的差距。将一只手稳稳地放在吧台上，另一只手用一两个手指抓住。或者，在吧台上挂一条毛巾，一只手放在吧台上，另一只手抓住毛巾。
+
+我们现在已经讨论了挤压握杆训练和支撑握杆训练。接下来还有更多，良好的全方位握力训练将有助于手部力量的各个方面。所以请继续关注更多提高抓地力的方法，并让我们知道你的硬拉或悬挂进展如何！

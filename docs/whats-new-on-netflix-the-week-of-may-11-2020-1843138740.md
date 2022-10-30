@@ -1,11 +1,58 @@
 # 2020 年 5 月 11 日这一周网飞有什么新消息
 
-> 原文：<https://lifehacker.com/whats-new-on-netflix-the-week-of-may-11-2020-1843138740>
+> 原文:[https://life hacker . com/whats-new-on-the-week-of-may-11-2020-1843138740](https://lifehacker.com/whats-new-on-netflix-the-week-of-may-11-2020-1843138740)
 
 牢不可破的童菲·施密特今天在新的互动特别节目中回到网飞，*牢不可破的童菲·施密特:童菲对牧师*。
 
-
+Watch
 
 在《选择你自己的冒险》特辑中，童菲即将与弗雷德里克(丹尼尔·雷德克里夫饰)结婚，但她发现牧师(乔恩·哈姆饰)可能还藏着另一个女孩地堡。拯救他们是她工作，因此也是你的工作。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-LZWmRUxOj9g&amp;start=0" data-chomp-id="LZWmRUxOj9g" data-recommend-id="youtube://LZWmRUxOj9g" id="youtube-LZWmRUxOj9g" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="LZWmRUxOj9g" data-recommend-id="youtube://LZWmRUxOj9g" id="youtube-LZWmRUxOj9g" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">5 月 14 日，《河谷镇》第四季将在流媒体服务上播出，5 月 15 日，你的孩子将会看到《T2》She-Ra 和《权力的公主》第三季。<br/></p><p class="sc-77igqf-0 bOfvBY">这是本周来自网飞的消息的完整摘要。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h294245"><strong>5 月 12 日</strong>可用<br/></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>真实:恐怖故事</li><li><em>牢不可破的童菲·施米特:童菲对牧师</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294246"><strong>5 月 13 日上市</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>错误的大小姐</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294247"><strong>5 月 14 日上市</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>河谷镇第四季</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294248"><strong>5 月 15 日上市</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>阿凡达:最后的帝国:</em>第 1-3 季</li><li><em> Chichipatos </em></li><li><em>第九区</em></li><li>我爱你，笨蛋</li><li><em>非人的资源</em></li><li>人类的魔法:第三季</li><li>She-Ra 和权力公主:第五季</li><li><em>白线</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294249"><strong>5 月 16 日上市</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>印度女皇和征服者</em></li><li><em>公敌</em></li><li><em>美联航 93 </em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294250"><strong>5 月 17 日上市</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>灵魂冲浪者</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294251"><strong>离开 5 月 15 日</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>无限</em></li><li>松树那边的地方</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h294252"><strong>离开 5 月 17 日</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>《皇家痛苦》:第 1-8 季</li></ul><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><div id="mgid-container" data-placement="4" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-LZWmRUxOj9g&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-LZWmRUxOj9g&start=0) 
+
+5 月 14 日，《河谷镇》第四季将在流媒体服务上播出，5 月 15 日，你的孩子将会看到《T2》She-Ra 和《权力的公主》第三季。
+
+这是本周来自网飞的消息的完整摘要。
+
+### **5 月 12 日**可用
+
+*   真实:恐怖故事
+*   *牢不可破的童菲·施米特:童菲对牧师*
+
+### **5 月 13 日上市**
+
+*   *错误的大小姐*
+
+### **5 月 14 日上市**
+
+*   河谷镇第四季
+
+### **5 月 15 日上市**
+
+*   *阿凡达:最后的帝国:*第 1-3 季
+*   *Chichipatos*
+*   *第九区*
+*   我爱你，笨蛋
+*   *非人的资源*
+*   人类的魔法:第三季
+*   She-Ra 和权力公主:第五季
+*   *白线*
+
+### **5 月 16 日上市**
+
+*   *印度女皇和征服者*
+*   *公敌*
+*   *美联航 93*
+
+### **5 月 17 日上市**
+
+*   *灵魂冲浪者*
+
+### **离开 5 月 15 日**
+
+*   *无限*
+*   松树那边的地方
+
+### **离开 5 月 17 日**
+
+*   《皇家痛苦》:第 1-8 季

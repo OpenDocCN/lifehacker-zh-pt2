@@ -1,11 +1,23 @@
 # 如何删除 Windows 10 伪装成“建议”的烦人广告
 
-> 原文：<https://lifehacker.com/how-to-remove-windows-10s-annoying-ads-masquerading-as-1841573435>
+> 原文:[https://life hacker . com/how-to-remove-windows-10s-angry-ads-masquerading-as-1841573435](https://lifehacker.com/how-to-remove-windows-10s-annoying-ads-masquerading-as-1841573435)
 
 在一个完美的世界里，每一台安装了 Windows 10 的新电脑——或者每一次新安装的 Windows 10——都不会出现烦人的应用程序和其他没人需要的臃肿软件。(不好意思，糖果粉碎传奇。)也不会有烦人的广告。虽然这并不是说微软在你的操作系统中放下了可口可乐或其他东西的大横幅，但看到它在你的开始菜单中为 Edge 浏览器摇旗呐喊令人沮丧。
 
-
+Watch
 
 至少，这是一些人现在比以往任何时候都注意到的。例如，如果你是 Firefox 用户，你可能会在 Windows 10 的开始菜单中看到这个小标注:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1226491043128004609&amp;autosize=1" autoresize="true" id="twitter-1226491043128004609" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">这不是微软的新做法。嗯，具体的广告是，是的，但微软将恼人的“建议”放入你的开始菜单，正如该公司所称的那样，已经成为 Windows 10 的一项交易有一段时间了。然而，永久禁用这些广告并不困难。</p><p class="sc-77igqf-0 bOfvBY">要禁用这些愚蠢的建议，调出你的 Windows 10 <strong>设置</strong>菜单。在那里，点击<strong>个性化</strong>，然后点击左侧边栏中的<strong>开始</strong>选项。寻找以下选项并禁用:<strong>“开始时偶尔显示建议”</strong></p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">如果你想走老派路线，你也可以使用类似于<span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://github.com/Open-Shell/Open-Shell-Menu&quot;,{&quot;metric25&quot;:1}]]" href="https://github.com/Open-Shell/Open-Shell-Menu" target="_blank" rel="noopener noreferrer">Open</a></span>–<span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://github.com/Open-Shell/Open-Shell-Menu&quot;,{&quot;metric25&quot;:1}]]" href="https://github.com/Open-Shell/Open-Shell-Menu" target="_blank" rel="noopener noreferrer">Shell</a></span>这样的开源应用来进一步调整你的开始菜单的外观(大概也是为了防止任何烦人的广告出现)。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">在设置应用程序中，点击<strong>锁定屏幕</strong>。如果你还没有使用图片或幻灯片作为背景，选择它，然后<em>取消选择</em>选项“在你的锁定屏幕上从 Windows 和 Cortana 获得有趣的事实、提示等”换句话说，你不想收到垃圾建议或广告。</p><p class="sc-77igqf-0 bOfvBY">最后，回到主<strong>设置</strong>屏幕，点击<strong>系统</strong>。在那里，点击左侧边栏中的<strong>“通知&amp;操作”</strong>。因为 Windows 有时会发出一些垃圾邮件和/或通过通知向您宣传微软产品，所以您需要取消选择<strong>“使用 Windows 时获取提示、技巧和建议”</strong>来将这些从您的数字生活中剔除。</p><p class="sc-77igqf-0 bOfvBY">你不得不这么做，这很令人恼火，但现在每当你看到新版 Windows 10 时，关闭微软的广告应该是你首先要做的事情之一。我不确定为什么微软不能将这些选项默认为关闭，因为人们<em>为出现这些“建议”的操作系统</em>付费，但这是一个快速解决方案——谢天谢地。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1226491043128004609&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1226491043128004609&autosize=1) 
+
+这不是微软的新做法。嗯，具体的广告是，是的，但微软将恼人的“建议”放入你的开始菜单，正如该公司所称的那样，已经成为 Windows 10 的一项交易有一段时间了。然而，永久禁用这些广告并不困难。
+
+要禁用这些愚蠢的建议，调出你的 Windows 10 **设置**菜单。在那里，点击**个性化**，然后点击左侧边栏中的**开始**选项。寻找以下选项并禁用:**“开始时偶尔显示建议”**
+
+如果你想走老派路线，你也可以使用类似于[Open](https://github.com/Open-Shell/Open-Shell-Menu)–[Shell](https://github.com/Open-Shell/Open-Shell-Menu)这样的开源应用来进一步调整你的开始菜单的外观(大概也是为了防止任何烦人的广告出现)。
+
+在设置应用程序中，点击**锁定屏幕**。如果你还没有使用图片或幻灯片作为背景，选择它，然后*取消选择*选项“在你的锁定屏幕上从 Windows 和 Cortana 获得有趣的事实、提示等”换句话说，你不想收到垃圾建议或广告。
+
+最后，回到主**设置**屏幕，点击**系统**。在那里，点击左侧边栏中的**“通知&操作”**。因为 Windows 有时会发出一些垃圾邮件和/或通过通知向您宣传微软产品，所以您需要取消选择**“使用 Windows 时获取提示、技巧和建议”**来将这些从您的数字生活中剔除。
+
+你不得不这么做，这很令人恼火，但现在每当你看到新版 Windows 10 时，关闭微软的广告应该是你首先要做的事情之一。我不确定为什么微软不能将这些选项默认为关闭，因为人们*为出现这些“建议”的操作系统*付费，但这是一个快速解决方案——谢天谢地。

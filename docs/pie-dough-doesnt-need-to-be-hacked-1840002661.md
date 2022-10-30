@@ -1,10 +1,10 @@
 # 馅饼面团不需要被黑
 
-> 原文：<https://lifehacker.com/pie-dough-doesnt-need-to-be-hacked-1840002661>
+> 原文:[https://life hacker . com/pie-dough-dont-need-to-be-hacked-1840002661](https://lifehacker.com/pie-dough-doesnt-need-to-be-hacked-1840002661)
 
 出于我永远无法完全理解的原因，馅饼制作中唯一有人试图破解的部分是最容易的。混合面团再简单不过了；你所做的只是用一点水将冷脂肪和面粉粘合在一起。这不是一个需要黑客入侵的过程。
 
-
+Watch
 
 另一方面，做馅饼是一件棘手的事情。但是没有人把同样神奇的、科学的黑客能量带到真正烦人的部分。把你的面团擀成一个完美的圆形 然后等待——等你的冰箱开始工作，等你的馅饼烤好，然后等它完全冷却——这是做馅饼的基本要素，你不能加快它们的速度。一旦你的面团碰到柜台，你的命运就掌握在上帝和热力学定律的手中。也许这就是为什么有这么多搅拌面团本身的技巧和诀窍；我们都渴望一种控制感，即使这只是一种错觉。
 
@@ -34,4 +34,8 @@
 
 当我说完美的馅饼皮只有一个秘密时，我是根据经验说的:依靠揉捏步骤，而不是最初的混合，来混合脂肪。与其花几分钟时间费力地用指尖将黄油切进面粉中，不如将冷黄油块扔进干配料中，轻轻搅平。在水中混合，把整个易碎的，蓬松的东西倒在一个柜台上，用你的手的根部涂抹面团几次，直到它粘在一起，就像这样:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-rrqXKq_AatY&amp;start=0" data-chomp-id="rrqXKq_AatY" data-recommend-id="youtube://rrqXKq_AatY" id="youtube-rrqXKq_AatY" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="rrqXKq_AatY" data-recommend-id="youtube://rrqXKq_AatY" id="youtube-rrqXKq_AatY" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">法国人称这种技术为 fraisage，但我称之为常识:冷脂肪可以做成酥皮糕点，而你的手是面团接触到的最温暖的东西。你用那些滚烫的小手指接触裸露的黄油(或猪油或起酥油)的时间越少，它就越不容易融化。一旦它被面粉完全覆盖，你就不必那么小心了——因此有了<em>脆皮</em>。</p><p class="sc-77igqf-0 bOfvBY">这就是你要做的全部。馅饼制作过程充满了过度思考和事后批评的机会；不要把最简单的部分复杂化。你要担心的已经够多了。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-rrqXKq_AatY&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-rrqXKq_AatY&start=0) 
+
+法国人称这种技术为 fraisage，但我称之为常识:冷脂肪可以做成酥皮糕点，而你的手是面团接触到的最温暖的东西。你用那些滚烫的小手指接触裸露的黄油(或猪油或起酥油)的时间越少，它就越不容易融化。一旦它被面粉完全覆盖，你就不必那么小心了——因此有了*脆皮*。
+
+这就是你要做的全部。馅饼制作过程充满了过度思考和事后批评的机会；不要把最简单的部分复杂化。你要担心的已经够多了。

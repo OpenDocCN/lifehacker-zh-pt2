@@ -1,7 +1,102 @@
 # 2019 年 4 月 1 日这一周，网飞有哪些活动
 
-> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-april-1-1833672697>
+> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week-of-April-1-1833672697](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-april-1-1833672697)
 
 美国能原谅凯文·哈特仇视同性恋的推特吗？那么对于*有利的一面*呢？周二，*不负责任，*哈特的“由他自己的错误激发的新鲜特别节目”将在网飞上映，我们将拭目以待。我仍在努力完成《雷·罗马诺》的，所以这个月我将跳过我的脱口秀，取而代之的是喝一大杯清凉的*我们的星球*，这是带给你*地球*的人的最新系列纪录片。英国国宝大卫·爱登堡再次讲述了这个 8 人故事，你知道他过去有一些令人遗憾的推文。*
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-aETNYyrqNYE&amp;start=0" data-chomp-id="aETNYyrqNYE" data-recommend-id="youtube://aETNYyrqNYE" id="youtube-aETNYyrqNYE" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="aETNYyrqNYE" data-recommend-id="youtube://aETNYyrqNYE" id="youtube-aETNYyrqNYE" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">我在开玩笑。但是他可能会！他 92 岁了。他从大萧条时期就开始发微博了。</p><div class="bxm4mm-2 hKBnez"><div class="bxm4mm-1 goloRq instream-native-video instream-permalink instream-native-video--mobile"><div class="sc-1h0epat-0 lepUzz"><div class="sc-1h0epat-1 gRjwiT"><div class="sc-235a11-0 egwski">Watch</div></div><div class="sc-1wkneyl-0 hxLRyg video-html5-playlist" data-playlist="192590,192585,192428" data-current="192590"><div class="video-html5-loaded"><div class="video-html5-player"><div class="lhhce6-0 bVyOPq video-html5 autoplay muted mobile" data-video-id="192590" data-position="sidebar" data-video-title="How to Make a Quick and Easy Crumb Crust" data-video-network="lifehacker" data-video-duration="135"></div></div></div></div></div></div></div><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><h3 class="sc-1bwb26k-1 kpbNNd" id="h182458"><strong>本周到达</strong></h3><h4 class="sc-1bwb26k-1 kpbNNd" id="h182459"><strong>4 月 1 日星期一</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80231373&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80231373" target="_blank" rel="noopener noreferrer"><em/></a></span><em>(系列)</em></li><li><em>过线</em></li><li>所有总统的人</li><li><em>雌雄大盗(1967) </em></li><li><em>解救</em></li><li><em>丫丫姐妹会的神圣秘密</em></li><li><em>进化</em></li><li><em>弗雷迪对杰森</em></li><li><em>2009 年 13 日星期五</em></li><li><em>我是传奇</em></li><li><em>湖景露台</em></li><li><em>怪物屋</em></li><li><em>痴迷</em></li><li>佩内洛普</li><li><em>菠萝快车</em></li><li><em>神奇宝贝系列:孙&amp;月:</em></li><li><em>附:我爱你</em></li><li><em>抓举</em></li><li><em>间谍小子</em></li><li><em>德州电锯杀人狂 3D </em></li><li><em>骨收集器</em></li><li><em>第五元素</em></li><li><em>黄金罗盘</em></li><li><em>旅行裤的姐妹情谊</em></li><li><em>旅行裤的姐妹情谊 2 </em></li><li><em>瓦尔基里</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h182460"><strong>4 月 2 日星期二</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80174687&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80174687" target="_blank" rel="noopener noreferrer"> <em>【凯文·哈特】:不负责任</em> </a> </span> <em>(喜剧特辑)</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h182461"><strong>4 月 3 日星期三</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81062674&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81062674" target="_blank" rel="noopener noreferrer"> <em>苏赞娜:活埋</em> </a> </span> <em>(电影)</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h182462"><strong>4 月 5 日星期五</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80223989&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80223989" target="_blank" rel="noopener noreferrer"> <em>《令人不寒而栗的萨布里娜历险记:第二部</em> </a> </span> <em>(系列)</em></li><li><em>在阴影里</em></li><li>遗产:第一季</li><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80049832&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80049832" target="_blank" rel="noopener noreferrer"><em/></a></span><em>(系列)</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81044884&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81044884" target="_blank" rel="noopener noreferrer"> <em>人物角色:集合</em> </a> </span> <em>(系列)</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80096545&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80096545" target="_blank" rel="noopener noreferrer"> <em>罗马帝国:卡利古拉:狂帝</em> </a> </span> <em>(系列)</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80115432&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80115432" target="_blank" rel="noopener noreferrer"> <em>【小马王】:第八季</em> </a> </span> <em>(系列)</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80241474&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80241474" target="_blank" rel="noopener noreferrer"> <em>【蒂华纳】</em> </a> </span> <em>(系列)</em></li><li><em>独角兽店(网飞电影)</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h182463">这周离开</h3><h4 class="sc-1bwb26k-1 kpbNNd" id="h182464"><strong>4 月 1 日出发</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>美国馅饼</em></li><li><em>比利·麦迪逊</em></li><li><em>蓝山之州:第 1-3 季</em></li><li><em>皇家赌场</em></li><li><em>钻石恒久远</em></li><li><em>改天再死</em></li><li>在引擎盖上喝果汁的时候，不要对中南部构成威胁</li><li><em>金手指</em></li><li><em>快乐的大脚</em></li><li>快乐的吉尔摩</li><li><em>加热</em></li><li>我爱你，伙计</li><li><em>洛杉矶机密</em></li><li><em>生与死</em></li><li><em>路德:系列 1-4 </em></li><li><em>八爪女</em></li><li><em>神奇宝贝:XY:第 1-2 季</em></li><li><em>七个</em></li><li>《欲望都市:电影》</li><li><em>生活采光</em></li><li><em>拿金枪的男人</em></li><li><em>爱我的间谍</em></li><li><em>世界不够用</em></li><li><em>维兰德:系列 1-4 </em></li><li><em>你只能活两次</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h182465"><strong>4 月 4 日出发</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em> Raw </em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h182466"><strong>4 月 7 日出发</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>星球大战:克隆人战争</li><li>《星球大战:克隆人战争》第 1-5 季</li><li>《星球大战:克隆人战争:失落的使命》</li></ul><div id="mgid-container" data-placement="2" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-aETNYyrqNYE&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-aETNYyrqNYE&start=0) 
+
+我在开玩笑。但是他可能会！他 92 岁了。他从大萧条时期就开始发微博了。
+
+Watch
+
+### **本周到达**
+
+#### **4 月 1 日星期一**
+
+*   [](https://www.netflix.com/title/80231373)**(系列)**
+*   **过线**
+*   *所有总统的人*
+*   **雌雄大盗(1967)**
+*   **解救**
+*   **丫丫姐妹会的神圣秘密**
+*   **进化**
+*   **弗雷迪对杰森**
+*   **2009 年 13 日星期五**
+*   **我是传奇**
+*   **湖景露台**
+*   **怪物屋**
+*   **痴迷**
+*   *佩内洛普*
+*   **菠萝快车**
+*   **神奇宝贝系列:孙&月:**
+*   **附:我爱你**
+*   **抓举**
+*   **间谍小子**
+*   **德州电锯杀人狂 3D**
+*   **骨收集器**
+*   **第五元素**
+*   **黄金罗盘**
+*   **旅行裤的姐妹情谊**
+*   **旅行裤的姐妹情谊 2**
+*   **瓦尔基里**
+
+#### ***4 月 2 日星期二***
+
+*   *[*【凯文·哈特】:不负责任*](https://www.netflix.com/title/80174687) *(喜剧特辑)**
+
+#### ***4 月 3 日星期三***
+
+*   *[*苏赞娜:活埋*](https://www.netflix.com/title/81062674) *(电影)**
+
+#### ***4 月 5 日星期五***
+
+*   *[*《令人不寒而栗的萨布里娜历险记:第二部*](https://www.netflix.com/title/80223989) *(系列)**
+*   **在阴影里**
+*   *遗产:第一季*
+*   *[](https://www.netflix.com/title/80049832)**(系列)***
+*   **[*人物角色:集合*](https://www.netflix.com/title/81044884) *(系列)***
+*   **[*罗马帝国:卡利古拉:狂帝*](https://www.netflix.com/title/80096545) *(系列)***
+*   **[*【小马王】:第八季*](https://www.netflix.com/title/80115432) *(系列)***
+*   **[*【蒂华纳】*](https://www.netflix.com/title/80241474) *(系列)***
+*   ***独角兽店(网飞电影)***
+
+### **这周离开**
+
+#### ****4 月 1 日出发****
+
+*   ***美国馅饼***
+*   ***比利·麦迪逊***
+*   ***蓝山之州:第 1-3 季***
+*   ***皇家赌场***
+*   ***钻石恒久远***
+*   ***改天再死***
+*   **在引擎盖上喝果汁的时候，不要对中南部构成威胁**
+*   ***金手指***
+*   ***快乐的大脚***
+*   **快乐的吉尔摩**
+*   ***加热***
+*   **我爱你，伙计**
+*   ***洛杉矶机密***
+*   ***生与死***
+*   ***路德:系列 1-4***
+*   ***八爪女***
+*   ***神奇宝贝:XY:第 1-2 季***
+*   ***七个***
+*   **《欲望都市:电影》**
+*   ***生活采光***
+*   ***拿金枪的男人***
+*   ***爱我的间谍***
+*   ***世界不够用***
+*   ***维兰德:系列 1-4***
+*   ***你只能活两次***
+
+#### ****4 月 4 日出发****
+
+*   ***Raw***
+
+#### ****4 月 7 日出发****
+
+*   **星球大战:克隆人战争**
+*   **《星球大战:克隆人战争》第 1-5 季**
+*   **《星球大战:克隆人战争:失落的使命》**

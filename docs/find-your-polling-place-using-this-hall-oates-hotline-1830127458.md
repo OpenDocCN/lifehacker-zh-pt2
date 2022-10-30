@@ -1,10 +1,10 @@
 # 使用霍尔奥茨热线找到您的投票地点
 
-> 原文：<https://lifehacker.com/find-your-polling-place-using-this-hall-oates-hotline-1830127458>
+> 原文:[https://life hacker . com/find-your-polling-place-using-this-hall-Oates-hotline-1830127458](https://lifehacker.com/find-your-polling-place-using-this-hall-oates-hotline-1830127458)
 
 中期选举将于下周举行。希望你已经知道你的投票站在哪里，或者已经提前投了票。如果你不知道它在哪里，需要一点帮助，霍尔&奥茨就在这里。
 
-
+Watch
 
 该乐队与 Twilio 合作创建了“走出投票站”,这是一条 Hall & Oates 热线，旨在帮助选民找到他们当地的投票站。有了它，从现在起到选举日，你可以拨打电话号码(+1(540) 4-VOATES)收听约翰·奥茨的录音信息。留言后，按任意数字即可收到一条短信，其中包含帮助您找到当地投票点的链接。你还将获得 Lyft 的链接，在那里你可以享受 50%的乘车优惠。
 
@@ -14,4 +14,4 @@
 
 另外，这里有一个“富家女”的视频，让你一直坚持到你拨通电话:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-AmHE65RAkSY&amp;start=0" data-chomp-id="AmHE65RAkSY" data-recommend-id="youtube://AmHE65RAkSY" id="youtube-AmHE65RAkSY" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="AmHE65RAkSY" data-recommend-id="youtube://AmHE65RAkSY" id="youtube-AmHE65RAkSY" data-recommended="false" class="js_recommend"/></span></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-AmHE65RAkSY&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-AmHE65RAkSY&start=0)

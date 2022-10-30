@@ -1,10 +1,10 @@
 # 冠状病毒期间帮助人们(远距离)的方法列表
 
-> 原文：<https://jezebel.com/a-list-of-ways-to-help-people-from-a-distance-during-1842358261>
+> 原文:[https://Jezebel . com/a-list-of-way-to-help-from-a-distance-during-1842358261](https://jezebel.com/a-list-of-ways-to-help-people-from-a-distance-during-1842358261)
 
 冠状病毒暴露了一个许多美国人已经知道是真实的现实:在我们故意削弱和不充分的社会安全网中存在着巨大的漏洞。我们可能都认识失业的人，不知道如何支付账单的人，担心自己和亲人健康的人，没有带薪病假或带薪假期的人，无家可归的人，被监禁的人，独居的老人，身患残疾的人，没有安全住所的人。
 
-
+Watch
 
 一个适当的反应需要大规模的政府干预——这似乎不会很快发生。我们的国家正被一群有着死亡欲望的无能小丑统治着，但是让我们记住，现在我们有办法去关心每一个其他人，即使是在远方。让我们保持安全，彼此温和，把我们的愤怒留给真正值得愤怒的人。
 
@@ -66,4 +66,6 @@ DC:DC 租户联盟的请愿书 要求冻结租金。
 
 加利福尼亚:
 
-<iframe data-src="https://jezebel.com/embed/inset/iframe?id=twitter-1239641334442418176&amp;autosize=1" autoresize="true" id="twitter-1239641334442418176" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><h2 class="sc-1bwb26k-1 kpbNNd" id="h17981">你有其他想法吗？你在自己的城市看到了什么？请在评论中分享！我们将定期更新该列表。</h2> </body> </html></iframe>
+ [https://jezebel.com/embed/inset/iframe?id=twitter-1239641334442418176&autosize=1](https://jezebel.com/embed/inset/iframe?id=twitter-1239641334442418176&autosize=1) 
+
+## 你有其他想法吗？你在自己的城市看到了什么？请在评论中分享！我们将定期更新该列表。

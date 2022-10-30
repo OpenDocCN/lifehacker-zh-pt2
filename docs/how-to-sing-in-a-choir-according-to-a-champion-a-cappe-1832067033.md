@@ -1,5 +1,45 @@
 # 如何在合唱团唱歌，根据一个冠军无伴奏合唱团
 
-> 原文：<https://lifehacker.com/how-to-sing-in-a-choir-according-to-a-champion-a-cappe-1832067033>
+> 原文:[https://life hacker . com/how-to-sing-in-a-chair-a-cappe-1832067033](https://lifehacker.com/how-to-sing-in-a-choir-according-to-a-champion-a-cappe-1832067033)
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-VAIFTBFsaqQ&amp;start=0" data-chomp-id="VAIFTBFsaqQ" data-recommend-id="youtube://VAIFTBFsaqQ" id="youtube-VAIFTBFsaqQ" data-recommended="true" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="VAIFTBFsaqQ" data-recommend-id="youtube://VAIFTBFsaqQ" id="youtube-VAIFTBFsaqQ" data-recommended="true" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">要在合唱团中取得成功，你不需要成为一名演奏家。你需要练习和学习的意愿，以及“倾听和模仿的基本能力”，无伴奏合唱团《哥谭市的塞壬 的艺术总监米拉·塔弗纳说。"幸运的是，这是一项相对通用的技能."塔弗纳、塞壬艺术助理总监 Kari Francis 和视觉协调员 Anna Chelak 向 Lifehacker 讲述了学习合唱的要点——这些要点帮助该乐队凭借上述表现赢得了去年秋天的<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://sweetadelines.com/competitionconvention/internationalcompetition/&quot;,{&quot;metric25&quot;:1}]]" href="https://sweetadelines.com/competitionconvention/internationalcompetition/" target="_blank" rel="noopener noreferrer"> Sweet Adelines 国际和声经典比赛</a> </span>。<br/></p><div class="bxm4mm-2 hKBnez"><div class="bxm4mm-1 goloRq instream-native-video instream-permalink instream-native-video--mobile"><div class="sc-1h0epat-0 lepUzz"><div class="sc-1h0epat-1 gRjwiT"><div class="sc-235a11-0 egwski">Watch</div></div><div class="sc-1wkneyl-0 hxLRyg video-html5-playlist" data-playlist="192590,192585,192428" data-current="192590"><div class="video-html5-loaded"><div class="video-html5-player"><div class="lhhce6-0 bVyOPq video-html5 autoplay muted mobile" data-video-id="192590" data-position="sidebar" data-video-title="How to Make a Quick and Easy Crumb Crust" data-video-network="lifehacker" data-video-duration="135"></div></div></div></div></div></div></div><h2 class="sc-1bwb26k-1 kpbNNd" id="h291876"><strong>利用你已经知道的东西</strong></h2><p class="sc-77igqf-0 bOfvBY">塔弗纳说，大多数加入合唱团的人已经知道的比他们想象的要多。如果他们有规律地听西方音乐，他们已经可以在基本水平上模仿和复制音符，甚至识别和声。无伴奏合唱是围绕着那些容易找到的和声进行的。“当某些音程以特定方式锁定时，会出现一种相当自然的声学现象，”她说。尤其是理发店的演唱是围绕着和声展开的，普通人无论是否理解其背后的音乐理论都能注意到这一点。</p><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><h2 class="sc-1bwb26k-1 kpbNNd" id="h291877"><strong>学习你的风格</strong></h2><p class="sc-77igqf-0 bOfvBY">哥谭市的塞壬擅长理发店和声，但他们也表演当代无伴奏合唱、爵士声乐和古典合唱。除了从不同的素材中取材，每一种风格都使用特定的布局和色调。这是很多歌手加入合唱团还需要学习的部分，需要小组排练，歌手一起学习风格。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">传统合唱音乐来自天主教堂的崇拜音乐——<em>无伴奏合唱</em>是意大利语，意为“以教堂的方式”——最初不包括任何乐器。弗朗西斯解释说:“鉴于合唱音乐在促进崇拜(而不是作为娱乐)方面的作用，在神圣的环境中，合唱音乐被期望以美丽纯净且通常不加修饰的声线清晰地宣告和/或增强大众普通或经文的文本。”</p><p class="sc-77igqf-0 bOfvBY">弗朗西斯说，宗教改革后，新教教会让那些不能像唱诗班那样练习的会众更容易理解他们的音乐。理发店将这些新教圣歌的元素与爵士乐和布鲁斯音乐的元素结合在一起。通过使用“仅仅是音准”而不是钢琴或风琴通常被调谐到的“同等音律”，并以紧密的和谐歌唱，理发店表演者产生了响亮的泛音，就是你现在可以通过唱“你好，你好，你好，你好！”在你的脑海里。这也是像这样的组织的主导风格</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">声乐爵士乐类似于理发店，但包括即兴创作、散射以及更复杂的和声和声乐灵活性。杰出的表演者包括曼哈顿转移和 Take 6。</p><p class="sc-77igqf-0 bOfvBY">当代无伴奏合唱在大学团体中很流行，这些团体通常<!-- -->规模较小，想要表演当前的流行音乐<!-- -->。由于需要操纵和匹配的声音更少，一个小型合唱团可以模仿乐器的轨道，进行更复杂的编排<!-- -->。<!-- -->这是你将从 Pentatonix、Rockapella、<!-- --> glee clubs 和<em> Pitch Perfect </em>中听到的风格。</p><h2 class="sc-1bwb26k-1 kpbNNd" id="h291878"><strong>保护你的声音</strong></h2><p class="sc-77igqf-0 bOfvBY">除了编曲和风格，合唱团的演唱也带来了常规表演的挑战。模仿错误的风格不仅会产生不匹配的声音，还会加重声带的负担。如果你模仿一个只需要一次完美录音的录音艺术家，你将无法在一次又一次的演出中保持你的声音。</p><p class="sc-77igqf-0 bOfvBY">弗朗西斯说，在警笛的大本营纽约，“人们很容易过度伸展和过度使用自己的声音”。许多歌手来的时候，他们的声带已经因为为了让别人听到而大喊大叫而受损。歌手必须学会保护自己的声音，他们遵循最经典的生活建议:多喝水。</p><p class="sc-77igqf-0 bOfvBY">合唱团演唱讲究的不仅仅是技术上的成就和完美的搭配。塞壬的大部分工作是寻找和传达每首歌背后的感情。</p><h2 class="sc-1bwb26k-1 kpbNNd" id="h291879"><strong>找到线后的情感</strong></h2><p class="sc-77igqf-0 bOfvBY">“如果我们选择了一首歌，我们就进入了这首歌的故事，”塔弗纳说。“是谁写的？故事情节是什么？副歌能和它衔接的多好？”合唱团的很多工作是讨论歌曲的感受，并通过角色扮演练习和逐行抒情分析等工具将这些感受融入到表演中。“我们不会说‘因为这首歌好听，所以我们要用这种流畅和抑扬顿挫的节奏来唱这首歌，’”切拉克说，“我们想通过我们投入研究的情感和工作来接近它。”</p><p class="sc-77igqf-0 bOfvBY">塞壬描述的过程听起来很像是给舞台和银幕导演的一条常见建议:不要给演员念台词，否则他们会专注于模仿你，而不是进行真正的表演。相反，传达你想要的情感和语气，这样他们可以用他们独特和真实的方式表达出来。Chelak 使用了“表演的真诚”这个短语——从真实的情感而不是简单地匹配指定的音调或音量来演唱。</p><p class="sc-77igqf-0 bOfvBY">像任何表演者一样，唱诗班思考他们想要对观众产生的影响:谁需要听这首歌，一首情感歌谣能给人带来什么样的治愈，它能传递什么样的赋权信息，唱诗班如何才能实现这一点？</p><p class="sc-77igqf-0 bOfvBY">切拉克说，在实践中，找到这种情感上的真诚包括大量特定部分的排练，分成小组，回家练习，然后回来一起微调。歌手们也学会了互相适应，控制自己的呼吸，而不是互相转移注意力。</p><p class="sc-77igqf-0 bOfvBY">这种发展过程对每首歌来说都是不同的；唱诗班不是工厂。这个团体中的每个人都在这里，因为他们想这样，他们准备好投入工作，他们希望有一个卓越的团体体验。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-VAIFTBFsaqQ&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-VAIFTBFsaqQ&start=0) 
+
+要在合唱团中取得成功，你不需要成为一名演奏家。你需要练习和学习的意愿，以及“倾听和模仿的基本能力”，无伴奏合唱团《哥谭市的塞壬 的艺术总监米拉·塔弗纳说。"幸运的是，这是一项相对通用的技能."塔弗纳、塞壬艺术助理总监 Kari Francis 和视觉协调员 Anna Chelak 向 Lifehacker 讲述了学习合唱的要点——这些要点帮助该乐队凭借上述表现赢得了去年秋天的 [Sweet Adelines 国际和声经典比赛](https://sweetadelines.com/competitionconvention/internationalcompetition/) 。
+
+Watch
+
+## **利用你已经知道的东西**
+
+塔弗纳说，大多数加入合唱团的人已经知道的比他们想象的要多。如果他们有规律地听西方音乐，他们已经可以在基本水平上模仿和复制音符，甚至识别和声。无伴奏合唱是围绕着那些容易找到的和声进行的。“当某些音程以特定方式锁定时，会出现一种相当自然的声学现象，”她说。尤其是理发店的演唱是围绕着和声展开的，普通人无论是否理解其背后的音乐理论都能注意到这一点。
+
+## **学习你的风格**
+
+哥谭市的塞壬擅长理发店和声，但他们也表演当代无伴奏合唱、爵士声乐和古典合唱。除了从不同的素材中取材，每一种风格都使用特定的布局和色调。这是很多歌手加入合唱团还需要学习的部分，需要小组排练，歌手一起学习风格。
+
+传统合唱音乐来自天主教堂的崇拜音乐——*无伴奏合唱*是意大利语，意为“以教堂的方式”——最初不包括任何乐器。弗朗西斯解释说:“鉴于合唱音乐在促进崇拜(而不是作为娱乐)方面的作用，在神圣的环境中，合唱音乐被期望以美丽纯净且通常不加修饰的声线清晰地宣告和/或增强大众普通或经文的文本。”
+
+弗朗西斯说，宗教改革后，新教教会让那些不能像唱诗班那样练习的会众更容易理解他们的音乐。理发店将这些新教圣歌的元素与爵士乐和布鲁斯音乐的元素结合在一起。通过使用“仅仅是音准”而不是钢琴或风琴通常被调谐到的“同等音律”，并以紧密的和谐歌唱，理发店表演者产生了响亮的泛音，就是你现在可以通过唱“你好，你好，你好，你好！”在你的脑海里。这也是像这样的组织的主导风格
+
+声乐爵士乐类似于理发店，但包括即兴创作、散射以及更复杂的和声和声乐灵活性。杰出的表演者包括曼哈顿转移和 Take 6。
+
+当代无伴奏合唱在大学团体中很流行，这些团体通常规模较小，想要表演当前的流行音乐。由于需要操纵和匹配的声音更少，一个小型合唱团可以模仿乐器的轨道，进行更复杂的编排。这是你将从 Pentatonix、Rockapella、 glee clubs 和 *Pitch Perfect* 中听到的风格。
+
+## **保护你的声音**
+
+除了编曲和风格，合唱团的演唱也带来了常规表演的挑战。模仿错误的风格不仅会产生不匹配的声音，还会加重声带的负担。如果你模仿一个只需要一次完美录音的录音艺术家，你将无法在一次又一次的演出中保持你的声音。
+
+弗朗西斯说，在警笛的大本营纽约，“人们很容易过度伸展和过度使用自己的声音”。许多歌手来的时候，他们的声带已经因为为了让别人听到而大喊大叫而受损。歌手必须学会保护自己的声音，他们遵循最经典的生活建议:多喝水。
+
+合唱团演唱讲究的不仅仅是技术上的成就和完美的搭配。塞壬的大部分工作是寻找和传达每首歌背后的感情。
+
+## **找到线后的情感**
+
+“如果我们选择了一首歌，我们就进入了这首歌的故事，”塔弗纳说。“是谁写的？故事情节是什么？副歌能和它衔接的多好？”合唱团的很多工作是讨论歌曲的感受，并通过角色扮演练习和逐行抒情分析等工具将这些感受融入到表演中。“我们不会说‘因为这首歌好听，所以我们要用这种流畅和抑扬顿挫的节奏来唱这首歌，’”切拉克说，“我们想通过我们投入研究的情感和工作来接近它。”
+
+塞壬描述的过程听起来很像是给舞台和银幕导演的一条常见建议:不要给演员念台词，否则他们会专注于模仿你，而不是进行真正的表演。相反，传达你想要的情感和语气，这样他们可以用他们独特和真实的方式表达出来。Chelak 使用了“表演的真诚”这个短语——从真实的情感而不是简单地匹配指定的音调或音量来演唱。
+
+像任何表演者一样，唱诗班思考他们想要对观众产生的影响:谁需要听这首歌，一首情感歌谣能给人带来什么样的治愈，它能传递什么样的赋权信息，唱诗班如何才能实现这一点？
+
+切拉克说，在实践中，找到这种情感上的真诚包括大量特定部分的排练，分成小组，回家练习，然后回来一起微调。歌手们也学会了互相适应，控制自己的呼吸，而不是互相转移注意力。
+
+这种发展过程对每首歌来说都是不同的；唱诗班不是工厂。这个团体中的每个人都在这里，因为他们想这样，他们准备好投入工作，他们希望有一个卓越的团体体验。

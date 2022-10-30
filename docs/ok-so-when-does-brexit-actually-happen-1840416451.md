@@ -1,10 +1,10 @@
 # 好吧，那么英国退出欧盟实际上是什么时候发生的？
 
-> 原文：<https://lifehacker.com/ok-so-when-does-brexit-actually-happen-1840416451>
+> 原文:[https://life hacker . com/ok-so-when-so-when-does-actually-occurrence-1840416451](https://lifehacker.com/ok-so-when-does-brexit-actually-happen-1840416451)
 
 随着鲍里斯·约翰逊赢得英国大选，你可能已经看到了一堆关于英国退出欧盟将如何发展的头条新闻。但事情没那么简单。让我们来分析一下这一事件及其对英国的意义，以及它(最终)对我们美国人的意义
 
-
+Watch
 
 ### 刚刚发生了什么？
 
@@ -46,4 +46,6 @@
 
 还没有，但是注意这个。一旦英国离开欧盟，它必须与美国达成新的贸易协议。特朗普总统对这一前景感到非常兴奋，他在深夜发推文祝贺约翰逊。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1205368801438707713&amp;autosize=1" autoresize="true" id="twitter-1205368801438707713" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">就你的个人财务状况而言，你可以预期，随着整个市场的波动，股市也会出现一些波动。如果你是长期投资，<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://twocents.lifehacker.com/to-get-through-a-stock-market-dip-think-of-it-as-a-sal-1837716026&quot;,{&quot;metric25&quot;:1}]]" href="https://twocents.lifehacker.com/to-get-through-a-stock-market-dip-think-of-it-as-a-sal-1837716026">记住不要太担心你看到的起伏—</a></span>——它最终会平稳的。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1205368801438707713&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1205368801438707713&autosize=1) 
+
+就你的个人财务状况而言，你可以预期，随着整个市场的波动，股市也会出现一些波动。如果你是长期投资， [记住不要太担心你看到的起伏—](https://twocents.lifehacker.com/to-get-through-a-stock-market-dip-think-of-it-as-a-sal-1837716026)——它最终会平稳的。

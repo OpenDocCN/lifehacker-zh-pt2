@@ -1,8 +1,8 @@
 # 如何选择高收益储蓄账户
 
-> 原文：<https://lifehacker.com/how-to-choose-a-high-yield-savings-account-1835461088>
+> 原文:[https://life hacker . com/how-to-choose-a-high-yield-saving-account-1835461088](https://lifehacker.com/how-to-choose-a-high-yield-savings-account-1835461088)
 
-
+Watch
 
 为了长期发展，有很多地方值得你投资。但是短期储蓄呢？你不应该也能从中赚点外快吗？
 
@@ -32,4 +32,24 @@
 
 过去五年，定期储蓄账户的全国平均水平一直在 0.10-0.20%的范围内徘徊，最近在 2019 年有所上升。(上面提到的 [0.10% APY](https://www.fdic.gov/regulations/resources/rates/) 是本文日期前一周的全国平均水平。)
 
-<iframe data-src="https://e.infogram.com/_/uLBue1wfWCS6LvaKf9Ph?src=embed" width="700px" height="650px" sandbox="allow-same-origin allow-scripts allow-forms" frameborder="0" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen" class="lazyload" scrolling="yes">T2】</span></p><p class="sc-77igqf-0 bOfvBY">对于高收益账户，寻找 2%左右的可变 APY。在写这篇文章的时候，我发现利率在 2.1-2.3%之间。</p><p class="sc-77igqf-0 bOfvBY">记住，这些 apy 不是一成不变的。如果美联储提高或降低利率 ，他们也可能改变<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://twocents.lifehacker.com/what-to-know-about-rising-interest-rates-1823891783&quot;,{&quot;metric25&quot;:1}]]" href="https://twocents.lifehacker.com/what-to-know-about-rising-interest-rates-1823891783">。</a></span></p><h3 class="sc-1bwb26k-1 kpbNNd" id="h176809">确保它被保险了</h3><p class="sc-77igqf-0 bOfvBY">联邦存款保险公司(FDIC)为银行提供的储蓄账户提供保险。国家信用合作社管理局(NCUA)为信用合作社提供的储蓄账户提供保险。快速查看一下，确保你考虑的账户有保险，好吗？</p><p class="sc-77igqf-0 bOfvBY">大多数金融机构都很清楚这一点，在主页或账户特征列表上注明了他们的 FDIC 状态。很多银行在名字旁边写着“联邦存款保险公司成员”。典型的限额是 250，000 美元。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h176810">你准备好选择它并忘记它了吗？</h3><p class="sc-77igqf-0 bOfvBY">一旦你决定选择高收益的储蓄账户，不要到处追逐利率。不值得将储蓄账户从 2.1%的 APY 转换为 2.3%的 APY。拥有一个储蓄账户的整个想法是让你的钱为你工作，而不是为了跟上利率而不得不搬家。由于利率波动，你可能会发现你的利率上升，而你什么都不用做。</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><em>更多来自 Lifehacker 的内容，一定要在 Instagram 上关注我们</em><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.instagram.com/lifehackerdotcom/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.instagram.com/lifehackerdotcom/" target="_blank" rel="noopener noreferrer"><em>@ lifehackerdotcom</em></a></span><em>。</em></p> </body> </html></iframe>
+[https://e.infogram.com/_/uLBue1wfWCS6LvaKf9Ph?src=embed](https://e.infogram.com/_/uLBue1wfWCS6LvaKf9Ph?src=embed)
+
+T2】
+
+对于高收益账户，寻找 2%左右的可变 APY。在写这篇文章的时候，我发现利率在 2.1-2.3%之间。
+
+记住，这些 apy 不是一成不变的。如果美联储提高或降低利率 ，他们也可能改变 [。](https://twocents.lifehacker.com/what-to-know-about-rising-interest-rates-1823891783)
+
+### 确保它被保险了
+
+联邦存款保险公司(FDIC)为银行提供的储蓄账户提供保险。国家信用合作社管理局(NCUA)为信用合作社提供的储蓄账户提供保险。快速查看一下，确保你考虑的账户有保险，好吗？
+
+大多数金融机构都很清楚这一点，在主页或账户特征列表上注明了他们的 FDIC 状态。很多银行在名字旁边写着“联邦存款保险公司成员”。典型的限额是 250，000 美元。
+
+### 你准备好选择它并忘记它了吗？
+
+一旦你决定选择高收益的储蓄账户，不要到处追逐利率。不值得将储蓄账户从 2.1%的 APY 转换为 2.3%的 APY。拥有一个储蓄账户的整个想法是让你的钱为你工作，而不是为了跟上利率而不得不搬家。由于利率波动，你可能会发现你的利率上升，而你什么都不用做。
+
+* * *
+
+*更多来自 Lifehacker 的内容，一定要在 Instagram 上关注我们*[*@ lifehackerdotcom*](https://www.instagram.com/lifehackerdotcom/)*。*

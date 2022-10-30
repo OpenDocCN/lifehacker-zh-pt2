@@ -1,7 +1,50 @@
 # 2019 年 6 月 17 日这一周，网飞有哪些活动
 
-> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-june-17-1835582077>
+> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of-June-17-1835582077](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-june-17-1835582077)
 
 感谢上帝在 Hulu 上发布了女仆的故事，因为网飞本周的产品乍一看都是垃圾。如果你是《T2》第一季的粉丝，那就去看看《木桶匠》、《T4 女孩被囚禁》、*！过你自己的生活，黑暗，*或*告白磁带，*你很幸运，因为所有这些节目的第二季都将在本周上映。否则，请欣赏《伊格莱西亚斯先生》，“滑稽的高中老师加布里埃尔·伊格莱西亚斯试图改变母校一些聪明但表现不佳的学生的生活。”这看起来有点网络喜剧的味道，但是《办公室》的奥斯卡和雪莉·谢波德都在里面，所以，也许？
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-DLFEIrEa4js&amp;start=0" data-chomp-id="DLFEIrEa4js" data-recommend-id="youtube://DLFEIrEa4js" id="youtube-DLFEIrEa4js" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="DLFEIrEa4js" data-recommend-id="youtube://DLFEIrEa4js" id="youtube-DLFEIrEa4js" data-recommended="false" class="js_recommend"/></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h296595"><br/></h3><h3 class="sc-1bwb26k-1 kpbNNd" id="h296596">本周到达</h3><h4 class="sc-1bwb26k-1 kpbNNd" id="h296597"><strong>6 月 17 日星期一</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>失踪:第三季——网飞原著</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h296598"><strong>6 月 18 日星期二</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>亚当·迪瓦恩:我们生命中最美好的时光——网飞原创</li><li><em>大杀器</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h296599"><strong>6 月 19 日星期三</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80216302&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80216302" target="_blank" rel="noopener noreferrer"> <em>节拍</em> </a> </span> <em> —网飞电影</em></li><li><em>民主的边缘——网飞电影</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h296600"><strong>6 月 20 日星期四</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>狼之歌— NETFLIX 电影</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h296601"><strong>6 月 21 日星期五</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>Ad Vitam——网飞原创</em></li><li><em>玻利瓦尔—网飞原创</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81023023&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81023023" target="_blank" rel="noopener noreferrer"> <em>《板球运动员》:第二季</em> </a> </span> <em> —网飞原著</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80161702&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80161702" target="_blank" rel="noopener noreferrer"> <em>《告白录音带:第二季</em> </a> </span> <em> —网飞原创</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80100172&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80100172" target="_blank" rel="noopener noreferrer"> <em>暗黑:第二季</em> </a> </span> <em> —网飞原著</em></li><li><em>福音战士的终结</em></li><li><em>福音战士:死亡(真实)</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80185178&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80185178" target="_blank" rel="noopener noreferrer"> <em>少女下狱:第二季</em> </a> </span> <em> —网飞原著</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80220541&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80220541" target="_blank" rel="noopener noreferrer"> <em>走吧！活出你的样子:第二季</em> </a> </span> <em> —网飞家族</em></li><li><em> Jaoon Kahan Bata Ae Dil — NETFLIX 电影</em></li><li><em>同样的血 netflix 电影</em></li><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80209013&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80209013" target="_blank" rel="noopener noreferrer"><em/></a></span><em>—网飞原作</em></li><li><em>霓虹创世纪福音战士</em></li><li><em>射手:第三季</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h296602">这周离开</h3><p class="sc-77igqf-0 bOfvBY">什么都不会离开！所有东西都留下来了！不要习惯！</p><div class="bxm4mm-2 hKBnez"><div class="bxm4mm-1 goloRq instream-native-video instream-permalink instream-native-video--mobile"><div class="sc-1h0epat-0 lepUzz"><div class="sc-1h0epat-1 gRjwiT"><div class="sc-235a11-0 egwski">Watch</div></div><div class="sc-1wkneyl-0 hxLRyg video-html5-playlist" data-playlist="192590,192585,192428" data-current="192590"><div class="video-html5-loaded"><div class="video-html5-player"><div class="lhhce6-0 bVyOPq video-html5 autoplay muted mobile" data-video-id="192590" data-position="sidebar" data-video-title="How to Make a Quick and Easy Crumb Crust" data-video-network="lifehacker" data-video-duration="135"></div></div></div></div></div></div></div><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><div id="mgid-container" data-placement="2" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-DLFEIrEa4js&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-DLFEIrEa4js&start=0) 
+
+### 本周到达
+
+#### **6 月 17 日星期一**
+
+*   *失踪:第三季——网飞原著*
+
+#### **6 月 18 日星期二**
+
+*   亚当·迪瓦恩:我们生命中最美好的时光——网飞原创
+*   *大杀器*
+
+#### **6 月 19 日星期三**
+
+*   [*节拍*](https://www.netflix.com/title/80216302) *—网飞电影*
+*   *民主的边缘——网飞电影*
+
+#### **6 月 20 日星期四**
+
+*   *狼之歌— NETFLIX 电影*
+
+#### **6 月 21 日星期五**
+
+*   *Ad Vitam——网飞原创*
+*   *玻利瓦尔—网飞原创*
+*   [*《板球运动员》:第二季*](https://www.netflix.com/title/81023023) *—网飞原著*
+*   [*《告白录音带:第二季*](https://www.netflix.com/title/80161702) *—网飞原创*
+*   [*暗黑:第二季*](https://www.netflix.com/title/80100172) *—网飞原著*
+*   *福音战士的终结*
+*   *福音战士:死亡(真实)*
+*   [*少女下狱:第二季*](https://www.netflix.com/title/80185178) *—网飞原著*
+*   [*走吧！活出你的样子:第二季*](https://www.netflix.com/title/80220541) *—网飞家族*
+*   *Jaoon Kahan Bata Ae Dil — NETFLIX 电影*
+*   *同样的血 netflix 电影*
+*   [](https://www.netflix.com/title/80209013)**—网飞原作**
+*   **霓虹创世纪福音战士**
+*   **射手:第三季**
+
+### *这周离开*
+
+*什么都不会离开！所有东西都留下来了！不要习惯！*
+
+*Watch*

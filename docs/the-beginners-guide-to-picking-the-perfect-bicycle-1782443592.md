@@ -1,10 +1,10 @@
 # 挑选完美自行车的初学者指南
 
-> 原文：<https://lifehacker.com/the-beginners-guide-to-picking-the-perfect-bicycle-1782443592>
+> 原文:[https://life hacker . com/the-初学者指南挑选完美自行车-1782443592](https://lifehacker.com/the-beginners-guide-to-picking-the-perfect-bicycle-1782443592)
 
 我一直是一个自行车纯粹主义者。直到最近，我一直骑着我 10 岁生日时得到的那辆自行车。当然，它仍然带我去我需要去的地方，但绝对是时候升级了。作为一个初学者，我发现挑选合适的自行车并不像我想象的那么简单。从车架尺寸到额外功能，以下是如何找到您的完美座驾。
 
-
+Watch
 
 ### **根据您的需求选择合适的自行车类型**
 
@@ -35,4 +35,62 @@
 
 ### **确保你的自行车适合你**
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-j6pUGA1mtTo&amp;start=0" data-chomp-id="j6pUGA1mtTo" data-recommend-id="youtube://j6pUGA1mtTo" id="youtube-j6pUGA1mtTo" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="j6pUGA1mtTo" data-recommend-id="youtube://j6pUGA1mtTo" id="youtube-j6pUGA1mtTo" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">我不是一个高女士，所以我的少年自行车做的工作，但它仍然太小了。我不仅看起来很可笑，而且很不舒服。不过，很难找到一辆成人自行车，因为大多数都很大，对我来说很难操纵。正如环环自行车向我解释的那样，自行车的车架尺寸必须恰到好处，否则，会很不舒服，很难控制。</p><p class="sc-77igqf-0 bOfvBY">你理想的车架尺寸是基于你选择的自行车类型、你的身高和你的内缝(从你的胯部到地面的距离)。这里有一些<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.ebicycles.com/article/bicycle-frame-size-charts.html&quot;,{&quot;metric25&quot;:1}]]" href="http://www.ebicycles.com/article/bicycle-frame-size-charts.html" target="_blank" rel="noopener noreferrer">车架尺寸图表</a> </span>可以帮助你根据所有这些因素挑选合适的自行车车架。或者，更好的是，使用这个<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.ebicycles.com/bicycle-tools/frame-sizer/&quot;,{&quot;metric25&quot;:1}]]" href="http://www.ebicycles.com/bicycle-tools/frame-sizer/" target="_blank" rel="noopener noreferrer">计算器来确定你的自行车车架尺寸</a> </span>。</p><p class="sc-77igqf-0 bOfvBY">还有<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.bicycle-riding-for-boomers.com/bicycle-sizing.html&quot;,{&quot;metric25&quot;:1}]]" href="http://www.bicycle-riding-for-boomers.com/bicycle-sizing.html" target="_blank" rel="noopener noreferrer">这里有一个快速的经验法则</a> </span>:镜架尺寸应该是你内缝的 0 . 65 倍左右。如果你有 25 英寸的内缝，你需要一辆 16 英寸车架的自行车。</p><p class="sc-77igqf-0 bOfvBY">大多数自行车商店会告诉你车架的尺寸，但也许你是从 Craigslist 或车库拍卖中买的，而车主对此一无所知。你至少可以通过站在自行车架上测量自行车和你的胯部之间大约有多少英寸来得到一个粗略的估计，正如上面视频中的<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.bicycle-and-bikes.com/bicycle-sizing.html&quot;,{&quot;metric25&quot;:1}]]" href="http://www.bicycle-and-bikes.com/bicycle-sizing.html" target="_blank" rel="noopener noreferrer">自行车和自行车演示的</a> </span>。而<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.ebicycles.com/article/what-size-bicycle-do-i-need.html&quot;,{&quot;metric25&quot;:1}]]" href="https://www.ebicycles.com/article/what-size-bicycle-do-i-need.html" target="_blank" rel="noopener noreferrer"> eBicycles 进一步解释道:</a> </span></p><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">如果你在赛车、旅行车或混合动力车的车架和你的胯部之间有一英寸左右的距离，那应该是合适的。对于山地车，到车架的距离应该更大。对于儿童来说，确保车架尺寸合适的最佳方法是让儿童坐在座椅上，能够将脚掌放在地面上并舒适地够到车把。如果他们站在中间的横杠上，你还应该确保横杠和胯部之间有 25-50 毫米的间隙。</p></blockquote><p class="sc-77igqf-0 bOfvBY">车把也很重要。毕竟，你希望能够够到它们，所以要确保你的座位和车把之间的距离是舒适的。<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.rei.com/learn/expert-advice/bicycle.html&quot;,{&quot;metric25&quot;:1}]]" href="https://www.rei.com/learn/expert-advice/bicycle.html" target="_blank" rel="noopener noreferrer">根据 REI </a> </span>的说法，座位在车把下面越远，一般乘坐起来越舒服。但是更高的把手可以让你给踏板施加更大的力量。车把的形状和位置也取决于你的自行车。</p><p class="sc-77igqf-0 bOfvBY">以下是一些常见的车把形状及其用途:<br/></p><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><strong>落杆</strong>:大多数公路车上都有。轻质且符合空气动力学，非常适合快速骑行。你的位置较低，弯腰驼背，这可能会让你的背部不舒服。</li><li><strong>扁条</strong>:常见于混合动力自行车上，有时也出现在公路车或山地车上。它们能让你以更舒适的姿势坐直，减少手、手腕和肩膀的压力。</li><li><strong>竖杆</strong>:山地车上常见。它们稍微向上和向后延伸，让你坐得更靠后，看得更远，并保持转向控制。</li><li><strong>小胡子棒</strong>:在一些公路和混合动力自行车上发现。有点像下降酒吧，但下降不深。根据 REI 的说法，“它们给你各种各样的手的位置，同时让你比用下降杆坐得更直。”</li></ul><p class="sc-77igqf-0 bOfvBY">一旦你决定了你想要什么类型的自行车和你需要的适合度，是时候决定你想从它的特性中得到什么了:齿轮，车轮尺寸，悬挂和刹车。<br/></p><h3 class="sc-1bwb26k-1 kpbNNd" id="h287129"><strong>了解你的档位、悬挂和刹车类型</strong></h3><p class="sc-77igqf-0 bOfvBY">当我还是个孩子的时候，10 速自行车是你能想到的最时髦的东西。如今，自行车配有各种各样的齿轮，其中有很多内容——足以写一篇完全独立的文章。不过，作为一个初学者，你需要知道的是，<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.rei.com/learn/expert-advice/bike-gears-and-shifting.html&quot;,{&quot;metric25&quot;:1}]]" href="https://www.rei.com/learn/expert-advice/bike-gears-and-shifting.html" target="_blank" rel="noopener noreferrer">根据 REI </a> </span> : <br/></p><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">简单来说，要考虑的最重要的事情是你的健康水平和你要骑行的地形。如果你要骑很多山，你发现爬山很有挑战性，那么你会想要选择更多的齿轮。如果你是一个强壮的自行车手，或者你只在平坦的地形上骑行，你不需要那么多的低速档来爬坡，这样你就可以用更少的档位，这样可以让你的自行车更轻。</p></blockquote><p class="sc-77igqf-0 bOfvBY">你可能也想考虑你的自行车的悬挂。如果你在崎岖不平的地方骑行，悬挂意味着让你保持良好的悬挂状态。如果你正在寻找一辆山地车，你可能想要一辆全悬挂或者至少是前悬挂的。全悬挂有助于保持控制，增加牵引力。前悬挂吸收冲击，使乘坐平稳，它也是混合动力车的理想选择。如果你买的是公路自行车，你的自行车可能根本不包括任何悬挂系统。</p><p class="sc-77igqf-0 bOfvBY">最后，还有刹车。有许多不同类型的刹车，它们都有优点和缺点。以下是最常见的:</p><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><strong>轮辋制动器</strong>:抓紧车轮轮辋的刹车垫。它们简单且易于维护，但它们会磨损轮辋，如果轮辋潮湿或泥泞，它们可能会不太有效。</li><li><strong>盘式制动器</strong>:这些是附在轮毂上的制动器。它们的检查和更换可能比轮辋制动器更复杂，但它们在不同的天气条件下工作得更好。</li><li>过山车刹车:这些是当你向后踩踏板时起作用的刹车。不需要太多的维护，而且它们对孩子很有好处，因为他们可能没有太多的手的力量。然而，当你骑自行车下坡时，它们可能并不理想。</li><li><strong>鼓式制动器</strong>:集成在轮毂内。它们维护成本低，耐气候。但是，如果鼓磨损了，轮毂和轮子可能也需要更换。</li></ul><p class="sc-77igqf-0 bOfvBY">根据自行车的不同，你可能对刹车没有太多的选择，但至少熟悉你的自行车带有哪种刹车是有好处的。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h287130"><strong>调整适合度并试驾</strong></h3><p class="sc-77igqf-0 bOfvBY">当我挑选了我的自行车，售货员调整了我的座位，我很困惑。我的脚几乎不能接触地面，这似乎是不对的。他向我解释说，他们不应该接触地面。理想情况下，我的膝盖在踩踏板时应该只是稍微弯曲，我的腿应该一直向下。<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://bicycleuniverse.info/eqp/fit.html&quot;,{&quot;metric25&quot;:1}]]" href="http://bicycleuniverse.info/eqp/fit.html" target="_blank" rel="noopener noreferrer">自行车宇宙解释了原因:</a> </span> <br/></p><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">当你踩踏板并且你的腿一直向下时(踏板在 6:00 的位置)，你的膝盖应该稍微弯曲。如果你的腿是直的(膝锁)，你的座位太高了。如果你的膝盖非常弯曲...你的座位太低了。这两个问题都会伤害你的膝盖，座椅高度太低会剥夺你的力量，让你更难乘坐...此外，在踏板平行于地面的正常骑行位置，您的前膝(几乎从前边缘)应该直接位于踏板轴(踏板的中间)上方。这样可以避免膝盖疼痛。</p></blockquote><p class="sc-77igqf-0 bOfvBY">他们补充说，你的座位角度也不应该向下倾斜。尽管胯部会感觉很舒服，但这会让你身体前倾，给你的手、胳膊和脖子带来压力。</p><p class="sc-77igqf-0 bOfvBY">骑着你的自行车试跑一圈。当你这样做的时候，有几件重要的事情需要留意<span></span>，每个 eBicycles:</p><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><strong>舒适</strong>:你对自己挑选的自行车的姿势感到舒适吗？如果是混动的，你坐直了没问题吧？如果这是一辆公路车，你会在上班的这段时间里骑着它舒服吗？<br/></li><li>驾驭地形的能力:理想情况下，你应该在不同的路面上试骑自行车。看看它如何处理弯道，丘陵和下坡。<br/></li><li>承载能力:如果你打算在自行车上携带物品，你会想看看当你负重时它是如何处理的。如果是轻型自行车，你可能会觉得骑起来很困难。正如<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.ebicycles.com/article/test-riding-a-bicycle.html&quot;,{&quot;metric25&quot;:1}]]" href="http://www.ebicycles.com/article/test-riding-a-bicycle.html" target="_blank" rel="noopener noreferrer"> eBicycles 建议</a> </span>的那样，你可能需要附件，比如拖车，或者你可能只需要一辆更重的混合动力车或山地车。<br/></li></ul><p class="sc-77igqf-0 bOfvBY">你也可以试骑多辆自行车，感受不同的风格。有很多选择，如果你不是自行车爱好者，这个过程可能会很复杂。这些只是最基本的，但它们应该可以帮助你开始挑选一辆最适合你的需求和舒适度的自行车。</p><p class="sc-77igqf-0 bOfvBY">这篇文章最初发表于 2016 年 6 月 23 日，并于 2019 年 10 月 3 日更新，以提供更全面的最新信息。2012 年 3 月 4 日更新了新的详细信息。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-j6pUGA1mtTo&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-j6pUGA1mtTo&start=0) 
+
+我不是一个高女士，所以我的少年自行车做的工作，但它仍然太小了。我不仅看起来很可笑，而且很不舒服。不过，很难找到一辆成人自行车，因为大多数都很大，对我来说很难操纵。正如环环自行车向我解释的那样，自行车的车架尺寸必须恰到好处，否则，会很不舒服，很难控制。
+
+你理想的车架尺寸是基于你选择的自行车类型、你的身高和你的内缝(从你的胯部到地面的距离)。这里有一些 [车架尺寸图表](http://www.ebicycles.com/article/bicycle-frame-size-charts.html) 可以帮助你根据所有这些因素挑选合适的自行车车架。或者，更好的是，使用这个 [计算器来确定你的自行车车架尺寸](http://www.ebicycles.com/bicycle-tools/frame-sizer/) 。
+
+还有 [这里有一个快速的经验法则](http://www.bicycle-riding-for-boomers.com/bicycle-sizing.html) :镜架尺寸应该是你内缝的 0 . 65 倍左右。如果你有 25 英寸的内缝，你需要一辆 16 英寸车架的自行车。
+
+大多数自行车商店会告诉你车架的尺寸，但也许你是从 Craigslist 或车库拍卖中买的，而车主对此一无所知。你至少可以通过站在自行车架上测量自行车和你的胯部之间大约有多少英寸来得到一个粗略的估计，正如上面视频中的 [自行车和自行车演示的](http://www.bicycle-and-bikes.com/bicycle-sizing.html) 。而 [eBicycles 进一步解释道:](https://www.ebicycles.com/article/what-size-bicycle-do-i-need.html)
+
+> 如果你在赛车、旅行车或混合动力车的车架和你的胯部之间有一英寸左右的距离，那应该是合适的。对于山地车，到车架的距离应该更大。对于儿童来说，确保车架尺寸合适的最佳方法是让儿童坐在座椅上，能够将脚掌放在地面上并舒适地够到车把。如果他们站在中间的横杠上，你还应该确保横杠和胯部之间有 25-50 毫米的间隙。
+
+车把也很重要。毕竟，你希望能够够到它们，所以要确保你的座位和车把之间的距离是舒适的。 [根据 REI](https://www.rei.com/learn/expert-advice/bicycle.html) 的说法，座位在车把下面越远，一般乘坐起来越舒服。但是更高的把手可以让你给踏板施加更大的力量。车把的形状和位置也取决于你的自行车。
+
+以下是一些常见的车把形状及其用途:
+
+*   **落杆**:大多数公路车上都有。轻质且符合空气动力学，非常适合快速骑行。你的位置较低，弯腰驼背，这可能会让你的背部不舒服。
+*   **扁条**:常见于混合动力自行车上，有时也出现在公路车或山地车上。它们能让你以更舒适的姿势坐直，减少手、手腕和肩膀的压力。
+*   **竖杆**:山地车上常见。它们稍微向上和向后延伸，让你坐得更靠后，看得更远，并保持转向控制。
+*   **小胡子棒**:在一些公路和混合动力自行车上发现。有点像下降酒吧，但下降不深。根据 REI 的说法，“它们给你各种各样的手的位置，同时让你比用下降杆坐得更直。”
+
+一旦你决定了你想要什么类型的自行车和你需要的适合度，是时候决定你想从它的特性中得到什么了:齿轮，车轮尺寸，悬挂和刹车。
+
+### **了解你的档位、悬挂和刹车类型**
+
+当我还是个孩子的时候，10 速自行车是你能想到的最时髦的东西。如今，自行车配有各种各样的齿轮，其中有很多内容——足以写一篇完全独立的文章。不过，作为一个初学者，你需要知道的是， [根据 REI](https://www.rei.com/learn/expert-advice/bike-gears-and-shifting.html) :
+
+> 简单来说，要考虑的最重要的事情是你的健康水平和你要骑行的地形。如果你要骑很多山，你发现爬山很有挑战性，那么你会想要选择更多的齿轮。如果你是一个强壮的自行车手，或者你只在平坦的地形上骑行，你不需要那么多的低速档来爬坡，这样你就可以用更少的档位，这样可以让你的自行车更轻。
+
+你可能也想考虑你的自行车的悬挂。如果你在崎岖不平的地方骑行，悬挂意味着让你保持良好的悬挂状态。如果你正在寻找一辆山地车，你可能想要一辆全悬挂或者至少是前悬挂的。全悬挂有助于保持控制，增加牵引力。前悬挂吸收冲击，使乘坐平稳，它也是混合动力车的理想选择。如果你买的是公路自行车，你的自行车可能根本不包括任何悬挂系统。
+
+最后，还有刹车。有许多不同类型的刹车，它们都有优点和缺点。以下是最常见的:
+
+*   **轮辋制动器**:抓紧车轮轮辋的刹车垫。它们简单且易于维护，但它们会磨损轮辋，如果轮辋潮湿或泥泞，它们可能会不太有效。
+*   **盘式制动器**:这些是附在轮毂上的制动器。它们的检查和更换可能比轮辋制动器更复杂，但它们在不同的天气条件下工作得更好。
+*   过山车刹车:这些是当你向后踩踏板时起作用的刹车。不需要太多的维护，而且它们对孩子很有好处，因为他们可能没有太多的手的力量。然而，当你骑自行车下坡时，它们可能并不理想。
+*   **鼓式制动器**:集成在轮毂内。它们维护成本低，耐气候。但是，如果鼓磨损了，轮毂和轮子可能也需要更换。
+
+根据自行车的不同，你可能对刹车没有太多的选择，但至少熟悉你的自行车带有哪种刹车是有好处的。
+
+### **调整适合度并试驾**
+
+当我挑选了我的自行车，售货员调整了我的座位，我很困惑。我的脚几乎不能接触地面，这似乎是不对的。他向我解释说，他们不应该接触地面。理想情况下，我的膝盖在踩踏板时应该只是稍微弯曲，我的腿应该一直向下。 [自行车宇宙解释了原因:](http://bicycleuniverse.info/eqp/fit.html)
+
+> 当你踩踏板并且你的腿一直向下时(踏板在 6:00 的位置)，你的膝盖应该稍微弯曲。如果你的腿是直的(膝锁)，你的座位太高了。如果你的膝盖非常弯曲...你的座位太低了。这两个问题都会伤害你的膝盖，座椅高度太低会剥夺你的力量，让你更难乘坐...此外，在踏板平行于地面的正常骑行位置，您的前膝(几乎从前边缘)应该直接位于踏板轴(踏板的中间)上方。这样可以避免膝盖疼痛。
+
+他们补充说，你的座位角度也不应该向下倾斜。尽管胯部会感觉很舒服，但这会让你身体前倾，给你的手、胳膊和脖子带来压力。
+
+骑着你的自行车试跑一圈。当你这样做的时候，有几件重要的事情需要留意，每个 eBicycles:
+
+*   **舒适**:你对自己挑选的自行车的姿势感到舒适吗？如果是混动的，你坐直了没问题吧？如果这是一辆公路车，你会在上班的这段时间里骑着它舒服吗？
+
+*   驾驭地形的能力:理想情况下，你应该在不同的路面上试骑自行车。看看它如何处理弯道，丘陵和下坡。
+
+*   承载能力:如果你打算在自行车上携带物品，你会想看看当你负重时它是如何处理的。如果是轻型自行车，你可能会觉得骑起来很困难。正如 [eBicycles 建议](http://www.ebicycles.com/article/test-riding-a-bicycle.html) 的那样，你可能需要附件，比如拖车，或者你可能只需要一辆更重的混合动力车或山地车。
+
+你也可以试骑多辆自行车，感受不同的风格。有很多选择，如果你不是自行车爱好者，这个过程可能会很复杂。这些只是最基本的，但它们应该可以帮助你开始挑选一辆最适合你的需求和舒适度的自行车。
+
+这篇文章最初发表于 2016 年 6 月 23 日，并于 2019 年 10 月 3 日更新，以提供更全面的最新信息。2012 年 3 月 4 日更新了新的详细信息。

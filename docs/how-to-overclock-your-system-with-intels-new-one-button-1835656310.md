@@ -1,10 +1,10 @@
 # 如何使用英特尔全新的一键式实用程序对您的系统进行超频
 
-> 原文：<https://lifehacker.com/how-to-overclock-your-system-with-intels-new-one-button-1835656310>
+> 原文:[https://life hacker . com/how-to-over clock-your-system-with-Intel-new-one-button-1835656310](https://lifehacker.com/how-to-overclock-your-system-with-intels-new-one-button-1835656310)
 
 **Windows:** 英特尔让你的 CPU 超频变得容易多了——把它推到超过它的默认时钟速度，让它甚至更快，冒着潜在烧焦你的芯片的风险。只有一个大警告:你将需要六个受支持的第九代 CPU 中的一个(都在 Coffee Lake 家族中)才能享受其新的简单的超频实用程序。你还需要在你的一个驱动器上有 16GB 的空闲空间，但我怀疑这对大多数寻求超频系统的系统构建者来说是个问题。
 
-
+Watch
 
 首先说一下 CPU。不要安装(仅限 Windows)[**英特尔性能最大化器**](https://www.intel.com/content/www/us/en/products/docs/processors/core/performance-maximizer.html) ，除非您正处于以下状态之一:
 
@@ -29,4 +29,12 @@ Wccftech 的基思·梅(Keith May)指出，当实用程序完成时——这个�
 
 问题？正如 May 所描述的，他的系统可能已经达到了 5.1GHz，但并没有保持很长时间:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-MarU1t5R4mU&amp;start=350" data-chomp-id="MarU1t5R4mU" data-recommend-id="youtube://MarU1t5R4mU" id="youtube-MarU1t5R4mU" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="MarU1t5R4mU" data-recommend-id="youtube://MarU1t5R4mU" id="youtube-MarU1t5R4mU" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">虽然他在他的<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.maxon.net/en/products/cinebench-r20-overview/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.maxon.net/en/products/cinebench-r20-overview/" target="_blank" rel="noopener noreferrer"> Cinebench </a> </span>基准测试中看到了一些轻微的性能提升，但英特尔超频也将他最热的测量核心的温度提高了 10 摄氏度。同样，这些都是超频的预期结果，但 May 听起来对最终结果并不太兴奋:他的芯片平均增加了约 100 MHz 的全核心。</p><p class="sc-77igqf-0 bOfvBY">“也许你的里程会比我多，一开始我真的很兴奋——我想，伙计，5.1 英里。那很酷。我只把这个东西推到了 5 千兆赫，”梅说。</p><p class="sc-77igqf-0 bOfvBY">我们的建议？和往常一样，如果你想超频你的系统，就拿一些<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://lifehacker.com/how-to-create-a-portable-version-of-cinebench-r20-1833201374&quot;,{&quot;metric25&quot;:1}]]" href="https://lifehacker.com/how-to-create-a-portable-version-of-cinebench-r20-1833201374">前后基准</a> </span>来看看额外的损耗是否值得。使用<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.hwinfo.com/download/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.hwinfo.com/download/" target="_blank" rel="noopener noreferrer"> <strong> HWiNFO </strong> </a> </span>等实用程序来了解系统运行前后的情况(电压、时钟速度和温度)，这样您就可以更好地了解英特尔的实用程序对您的帮助有多大。</p><p class="sc-77igqf-0 bOfvBY">如果你手动超频，你可能会看到最好的结果，但这不是每个人都愿意做的事情。英特尔的工具很简单，即使它可能不会将您的系统推向巅峰。确保你做了一些调查，看看是否值得。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-MarU1t5R4mU&start=350](https://lifehacker.com/embed/inset/iframe?id=youtube-video-MarU1t5R4mU&start=350) 
+
+虽然他在他的 [Cinebench](https://www.maxon.net/en/products/cinebench-r20-overview/) 基准测试中看到了一些轻微的性能提升，但英特尔超频也将他最热的测量核心的温度提高了 10 摄氏度。同样，这些都是超频的预期结果，但 May 听起来对最终结果并不太兴奋:他的芯片平均增加了约 100 MHz 的全核心。
+
+“也许你的里程会比我多，一开始我真的很兴奋——我想，伙计，5.1 英里。那很酷。我只把这个东西推到了 5 千兆赫，”梅说。
+
+我们的建议？和往常一样，如果你想超频你的系统，就拿一些 [前后基准](https://lifehacker.com/how-to-create-a-portable-version-of-cinebench-r20-1833201374) 来看看额外的损耗是否值得。使用 [**HWiNFO**](https://www.hwinfo.com/download/) 等实用程序来了解系统运行前后的情况(电压、时钟速度和温度)，这样您就可以更好地了解英特尔的实用程序对您的帮助有多大。
+
+如果你手动超频，你可能会看到最好的结果，但这不是每个人都愿意做的事情。英特尔的工具很简单，即使它可能不会将您的系统推向巅峰。确保你做了一些调查，看看是否值得。

@@ -1,10 +1,10 @@
 # 使用 RoutineHub 让您最喜爱的 iOS 快捷方式保持最新
 
-> 原文：<https://lifehacker.com/keep-your-your-favorite-ios-shortcuts-up-to-date-with-r-1829712094>
+> 原文:[https://life hacker . com/keep-your-favorite-IOs-shortcut s-update-with-r-1829712094](https://lifehacker.com/keep-your-your-favorite-ios-shortcuts-up-to-date-with-r-1829712094)
 
 不管出于什么原因，苹果推出了 iOS 12 的快捷方式应用程序，但没有为用户提供任何类型的集中中心来存储和分享他们创建的有用快捷方式。因此，这种情况发生了:你在网上找到了一个简洁的快捷方式，你在你的 iOS 设备上打开 Safari 并通过一些共享的 iCloud 链接安装它，它就永远在你的设备上了。如果快捷方式的开发人员更新它以包括更多功能(或修复错误)，您将永远不会收到任何类型的提示来让您了解更改——除非您重新发现快捷方式并注意到一些新内容。
 
-
+Watch
 
 换句话说，快捷方式需要一个应用商店，或者至少是一个用户可以上传、查找和更新快捷方式的地方。我怀疑苹果公司有任何计划在短期内实现这一点，所以我很高兴有人做到了:[**RoutineHub**](https://routinehub.co/)。
 
@@ -14,4 +14,4 @@
 
 这是整个更新过程的工作方式，由 UpdateKit 的创建者(和 RoutinePub 的共同创建者)Mike Beasley 提供。如果你只是想看看当你的一个快捷方式有了新版本时是什么样子，请跳到视频中的 1:15:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-xpuN4CG4HFY&amp;start=0" data-chomp-id="xpuN4CG4HFY" data-recommend-id="youtube://xpuN4CG4HFY" id="youtube-xpuN4CG4HFY" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="xpuN4CG4HFY" data-recommend-id="youtube://xpuN4CG4HFY" id="youtube-xpuN4CG4HFY" data-recommended="false" class="js_recommend"/></span></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-xpuN4CG4HFY&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-xpuN4CG4HFY&start=0)

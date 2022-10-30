@@ -1,10 +1,10 @@
 # 如何通过健身 Instagram 获得灵感，而不是气馁
 
-> 原文：<https://lifehacker.com/how-to-be-inspired-not-discouraged-by-fitness-instagr-1835950968>
+> 原文:[https://life hacker . com/how-to-be-inspired-not-distress-by-fitness-instagr-1835950968](https://lifehacker.com/how-to-be-inspired-not-discouraged-by-fitness-instagr-1835950968)
 
 健身 Instagram 可以成为强大灵感的来源。这也可能是一个令人窒息的泥沼，到处都是不可思议的健康人，他们做着你做梦也想不到的事情，卖着你突然需要的产品。以下是如何使用它，让你在检查你的订阅后感觉更好，而不是更糟。
 
-
+Watch
 
 ### 在你的健身之旅中，跟随在你前面的人
 
@@ -29,4 +29,28 @@
 
 一些报道只展示了他们训练的亮点:需要数年柔韧性训练的瑜伽姿势，他们在首次成功前失败了数百次的跑酷动作，硬拉只有令人瞠目结舌的磅数，因为那个举重运动员从十几岁开始就一直在训练。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=instagram-BxpHMoPgCiR&amp;autosize=1" autoresize="true" id="instagram-BxpHMoPgCiR" data-recommended="false" width="598" height="676" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">集锦吸引了 Instagram 的粉丝，但我发现观看这个过程更有趣。有时候，更有名或更专业的人会更小心地管理他们的账户，所以你会得到更多的亮点和更少的过程。但是，没有员工或社交媒体策略的人可能更有可能只是发布他们现在正在进行的培训——所以请确保不要只关注名人。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h176744">看故事</h3><p class="sc-77igqf-0 bOfvBY">如果你一直忽略 Instagram 上的故事，帮自己一个忙，看看吧。故事是不会出现在一个人的常规订阅中的帖子；相反，当这个人的个人资料图片周围有一个彩色圆圈时，你可以通过点击它来找到他们。(是的，这是一个怪异的设计选择，我不假装解释。)</p><p class="sc-77igqf-0 bOfvBY">故事在 24 小时后消失，所以人们倾向于发布他们现在正在做的事情，而不是定期发布他们将或多或少永久保留在个人资料中的内容。换句话说，它们非常适合展示训练的过程。</p><p class="sc-77igqf-0 bOfvBY">每个人用不同的方式使用他们的亮点，但我喜欢看到人们发布一些他们今天在健身房做的任何事情的剪辑，甚至是他们不在健身房时做的事情。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h176745">帖子，不要只滚动</h3><p class="sc-77igqf-0 bOfvBY">你想在 Instagram 上活跃到什么程度取决于你，但加入并与其他人互动也有好处。不要只是滚动别人的东西，考虑一下你的过程看起来像什么，你的精彩片段卷可能包含什么<em>。</em></p><p class="sc-77igqf-0 bOfvBY">我有一些朋友在故事中给彼此贴标签，以此来提醒自己去锻炼，或者友好地挑战自己去尝试新的动作(这提醒了我，我欠某人一些猴子棒仰卧起坐)。对某人的故事做出反应或回复，这就开始了你们两人之间的<span></span>直接信息对话。通过这种方式，我得到并给出了一些很好的反馈。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h176746">不要觉得你什么都要尝试</h3><p class="sc-77igqf-0 bOfvBY">特别是如果你对你所做的事情有冒险精神，你可能很快就会有更多的锻炼想法，而你可能没有时间去尝试。但是请记住，你正在进行你自己的健身之旅——不管这对你意味着什么——最终，当你坚持自己的计划时，你会最快乐。</p><p class="sc-77igqf-0 bOfvBY">就像你不会期望你的举重运动员尝试瑜伽大师的每一个动作，反之亦然，如果你尝试了太多新事物，以至于你永远没有机会做好它们中的任何一个，你也不会进步。所以，如果你想尝试所有的事情，停下来想一想:我喜欢做什么？我想要达到什么目标？</p><p class="sc-77igqf-0 bOfvBY">然后用你对这些问题的回答来决定把什么放进你的日常生活中。当然，可能偶尔会有愚蠢的挑战(我这么说是因为我最近在<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.instagram.com/p/BzT7MlrhJRy/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.instagram.com/p/BzT7MlrhJRy/" target="_blank" rel="noopener noreferrer">甜甜圈深蹲</a> </span>中创造了个人记录)，但当我们选择短期<!-- -->和长期目标并拥抱将让我们达到目标的过程时，我们大多数人都是最幸福的。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=instagram-BxpHMoPgCiR&autosize=1](https://lifehacker.com/embed/inset/iframe?id=instagram-BxpHMoPgCiR&autosize=1) 
+
+集锦吸引了 Instagram 的粉丝，但我发现观看这个过程更有趣。有时候，更有名或更专业的人会更小心地管理他们的账户，所以你会得到更多的亮点和更少的过程。但是，没有员工或社交媒体策略的人可能更有可能只是发布他们现在正在进行的培训——所以请确保不要只关注名人。
+
+### 看故事
+
+如果你一直忽略 Instagram 上的故事，帮自己一个忙，看看吧。故事是不会出现在一个人的常规订阅中的帖子；相反，当这个人的个人资料图片周围有一个彩色圆圈时，你可以通过点击它来找到他们。(是的，这是一个怪异的设计选择，我不假装解释。)
+
+故事在 24 小时后消失，所以人们倾向于发布他们现在正在做的事情，而不是定期发布他们将或多或少永久保留在个人资料中的内容。换句话说，它们非常适合展示训练的过程。
+
+每个人用不同的方式使用他们的亮点，但我喜欢看到人们发布一些他们今天在健身房做的任何事情的剪辑，甚至是他们不在健身房时做的事情。
+
+### 帖子，不要只滚动
+
+你想在 Instagram 上活跃到什么程度取决于你，但加入并与其他人互动也有好处。不要只是滚动别人的东西，考虑一下你的过程看起来像什么，你的精彩片段卷可能包含什么*。*
+
+我有一些朋友在故事中给彼此贴标签，以此来提醒自己去锻炼，或者友好地挑战自己去尝试新的动作(这提醒了我，我欠某人一些猴子棒仰卧起坐)。对某人的故事做出反应或回复，这就开始了你们两人之间的直接信息对话。通过这种方式，我得到并给出了一些很好的反馈。
+
+### 不要觉得你什么都要尝试
+
+特别是如果你对你所做的事情有冒险精神，你可能很快就会有更多的锻炼想法，而你可能没有时间去尝试。但是请记住，你正在进行你自己的健身之旅——不管这对你意味着什么——最终，当你坚持自己的计划时，你会最快乐。
+
+就像你不会期望你的举重运动员尝试瑜伽大师的每一个动作，反之亦然，如果你尝试了太多新事物，以至于你永远没有机会做好它们中的任何一个，你也不会进步。所以，如果你想尝试所有的事情，停下来想一想:我喜欢做什么？我想要达到什么目标？
+
+然后用你对这些问题的回答来决定把什么放进你的日常生活中。当然，可能偶尔会有愚蠢的挑战(我这么说是因为我最近在 [甜甜圈深蹲](https://www.instagram.com/p/BzT7MlrhJRy/) 中创造了个人记录)，但当我们选择短期和长期目标并拥抱将让我们达到目标的过程时，我们大多数人都是最幸福的。

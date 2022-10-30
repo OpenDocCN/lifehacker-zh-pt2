@@ -1,10 +1,10 @@
 # 你应该在 NDA 签名吗？
 
-> 原文：<https://lifehacker.com/should-you-sign-that-nda-1832883551>
+> 原文:[https://lifehacker.com/should-you-sign-that-nda-1832883551](https://lifehacker.com/should-you-sign-that-nda-1832883551)
 
 想为特朗普总统工作吗？显然，这需要 [三个](https://www.vox.com/the-big-idea/2018/8/16/17695150/omarosa-nondisclosure-agreements-white-house-secrecy-trump) 签署 [保密协议](https://www.thedailybeast.com/trump-white-house-is-forcing-interns-to-sign-ndas-and-threatening-them-with-financial-ruin)[s](https://www.thedailybeast.com/trump-white-house-is-forcing-interns-to-sign-ndas-and-threatening-them-with-financial-ruin)——以及迫在眉睫的威胁，如果你选择打破它，他会在经济上和法律上毁了你(没有压力！).
 
-
+Watch
 
 NDA 比你想象的更普遍(尽管签署一份带有 T2 严重后果的协议，比如彻底毁灭你的生活，可能没那么普遍)。如果你在任何有商业秘密的公司工作，你很可能会签署某种形式的 NDA。但是我们应该无条件接受他们吗？
 
@@ -52,4 +52,10 @@ NDA 比你想象的更普遍(尽管签署一份带有 T2 严重后果的协议�
 
 是的，是的，他是。我们会从白宫高级职员或实习生那里发现什么吗？好吧，鉴于他的前雇员 [罗莎·马尼高尔特-纽曼](https://www.vox.com/the-big-idea/2018/8/16/17695150/omarosa-nondisclosure-agreements-white-house-secrecy-trump) 写了一本关于她在白宫的书，NDA s 可能无法执行(也许甚至违反了第一修正案)。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1029038164248338432&amp;autosize=1" autoresize="true" id="twitter-1029038164248338432" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">最近，一名前特朗普竞选团队成员 甚至提起了集体诉讼，试图让所有竞选者的 NDA <!-- -->出局。所以看起来我们很快就会从特朗普的工作人员那里听到(和读到)很多。</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><em> <small>更多来自 Lifehacker，一定要在 Instagram 上关注我们</small></em><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.instagram.com/lifehackerdotcom/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.instagram.com/lifehackerdotcom/" target="_blank" rel="noopener noreferrer"><em><small>@ lifehackerdotcom</small></em></a></span><em><small>。</small> </em> <br/></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1029038164248338432&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1029038164248338432&autosize=1) 
+
+最近，一名前特朗普竞选团队成员 甚至提起了集体诉讼，试图让所有竞选者的 NDA 出局。所以看起来我们很快就会从特朗普的工作人员那里听到(和读到)很多。
+
+* * *
+
+*<small>更多来自 Lifehacker，一定要在 Instagram 上关注我们</small>*[*<small>@ lifehackerdotcom</small>*](https://www.instagram.com/lifehackerdotcom/)*<small>。</small>*

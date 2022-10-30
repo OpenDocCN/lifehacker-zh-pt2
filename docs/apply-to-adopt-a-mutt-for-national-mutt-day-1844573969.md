@@ -1,10 +1,10 @@
 # 为国家狗日申请领养一只狗
 
-> 原文：<https://lifehacker.com/apply-to-adopt-a-mutt-for-national-mutt-day-1844573969>
+> 原文:[https://life hacker . com/apply-to-adopt-a-a-mutt-for-national-mutt-day-1844573969](https://lifehacker.com/apply-to-adopt-a-mutt-for-national-mutt-day-1844573969)
 
 爱狗人士欢欣鼓舞——今天是全国狗狗日！动物权利倡导者科琳·佩吉于 2005 年创立了这个一年两次的节日(庆祝 7 月 31 日和 12 月 2 日的 T2 ),意在庆祝我们生活中的混血狗。
 
-
+Watch
 
 宠物收养在疫情的早期阶段急剧上升，因为受保护的狗和猫找到了永久的家。对许多人来说，这是一个飞跃的绝佳时机，尤其是那些独居的人；当被困在家里，远离通勤、朋友和家人时，还有什么比这更好的时间来建立关系、适应环境和乘坐便车呢？尤其是对狗的需求如此之大，以至于收容所都出现了短缺，在暂时的平静期拒绝了想养狗的人。
 
@@ -16,4 +16,12 @@
 
 > 不仅所谓的“纯种”狗充满了遗传疾病，而且狗的品种甚至不是真的。我们编造了他们。我们谈论狗的品种，就好像大自然是那样创造它们的，就好像每一只杂种狗都是不同纯种狗的混合体...但事实上，杂种狗是自然健康状态下的狗，纯种繁殖是人类为了自娱自乐而创造的一种基因操纵形式。
 
-<iframe data-src="https://www.youtube.com/embed/aCv10_WvGxo" width="560px" height="315px" sandbox="allow-same-origin allow-scripts allow-forms" frameborder="0" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen" class="lazyload" scrolling="yes">T2】</span></p><p class="sc-77igqf-0 bOfvBY">随着我们中的许多人对纯种狗的理解逐渐加深，我们对杂种狗的欣赏也发生了变化。那些被认为肮脏、不可爱的小狗已经不再被污名化，被人们所接受。</p><p class="sc-77igqf-0 bOfvBY">在收养一只宠物 之前，有很多事情要考虑，但是如果你准备申请成为一个骄傲的杂种狗主人，你可以从申请当地的收容所开始，或者在你附近找一个像美国防止虐待动物协会(ASPCA) 提供的<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.aspca.org/adopt-pet/find-shelter&quot;,{&quot;metric25&quot;:1}]]" href="https://www.aspca.org/adopt-pet/find-shelter" target="_blank" rel="noopener noreferrer">那样的定位器。</a></span></p><p class="sc-77igqf-0 bOfvBY">还没准备好迎接飞跃？考虑将<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://lifehacker.com/how-to-foster-an-animal-for-the-first-time-1837407555&quot;,{&quot;metric25&quot;:1}]]" href="https://lifehacker.com/how-to-foster-an-animal-for-the-first-time-1837407555">作为狗</a> </span>或<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://lifehacker.com/if-you-cant-have-pets-volunteer-to-hang-out-with-anima-1833611125&quot;,{&quot;metric25&quot;:1}]]" href="https://lifehacker.com/if-you-cant-have-pets-volunteer-to-hang-out-with-anima-1833611125">的短期寄养，在当地收容所</a> </span>做志愿者。如果你已经有了自己的狗狗，今天就给它们额外的爱吧。你已经知道这是真的:M<!-- -->utt 是伟大的宠物。</p> </body> </html></iframe>
+[https://www.youtube.com/embed/aCv10_WvGxo](https://www.youtube.com/embed/aCv10_WvGxo)
+
+T2】
+
+随着我们中的许多人对纯种狗的理解逐渐加深，我们对杂种狗的欣赏也发生了变化。那些被认为肮脏、不可爱的小狗已经不再被污名化，被人们所接受。
+
+在收养一只宠物 之前，有很多事情要考虑，但是如果你准备申请成为一个骄傲的杂种狗主人，你可以从申请当地的收容所开始，或者在你附近找一个像美国防止虐待动物协会(ASPCA) 提供的 [那样的定位器。](https://www.aspca.org/adopt-pet/find-shelter)
+
+还没准备好迎接飞跃？考虑将 [作为狗](https://lifehacker.com/how-to-foster-an-animal-for-the-first-time-1837407555) 或 [的短期寄养，在当地收容所](https://lifehacker.com/if-you-cant-have-pets-volunteer-to-hang-out-with-anima-1833611125) 做志愿者。如果你已经有了自己的狗狗，今天就给它们额外的爱吧。你已经知道这是真的:Mutt 是伟大的宠物。

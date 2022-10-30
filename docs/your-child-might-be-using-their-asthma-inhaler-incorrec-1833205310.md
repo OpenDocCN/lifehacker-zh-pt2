@@ -1,10 +1,10 @@
 # 您的孩子可能没有正确使用哮喘吸入器
 
-> 原文：<https://lifehacker.com/your-child-might-be-using-their-asthma-inhaler-incorrec-1833205310>
+> 原文:[https://life hacker . com/your-child-may-be-use-their-asthma-Israel-correc-1833205310](https://lifehacker.com/your-child-might-be-using-their-asthma-inhaler-incorrec-1833205310)
 
 正确使用哮喘吸入器是一个棘手的多步骤过程。如果你做得不正确，你就不能获得药物的全部益处，有可能使哮喘恶化，或者使药物看起来不起作用。
 
-
+Watch
 
 不幸的是，Perri Klass 博士为《纽约时报》[写道，一项新的研究](https://www.sciencedirect.com/science/article/pii/S2213219819301709?via%3Dihub) 显示，许多患者没有正确服用哮喘药物。特别是，无论是孩子还是成年人，都不会在两次吸烟之间等待必要的一分钟。
 
@@ -18,4 +18,12 @@
 
 4.等待一分钟，然后重复该过程。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-0bU6fCN44FA&amp;start=0" data-chomp-id="0bU6fCN44FA" data-recommend-id="youtube://0bU6fCN44FA" id="youtube-0bU6fCN44FA" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="0bU6fCN44FA" data-recommend-id="youtube://0bU6fCN44FA" id="youtube-0bU6fCN44FA" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">5.每次使用后漱口或刷牙。</p><p class="sc-77igqf-0 bOfvBY">即使你已经教了你的孩子正确的吸入方法——即使你认为他们已经掌握了技巧——你也应该尽可能地继续监督他们，以确保他们没有走捷径。</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><small> <em>更多来自 Lifehacker，一定要在 Instagram 上关注我们</em></small><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.instagram.com/lifehackerdotcom/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.instagram.com/lifehackerdotcom/" target="_blank" rel="noopener noreferrer"><small><em>@ lifehackerdotcom</em></small></a></span><small><em>。</em> </small> <br/></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-0bU6fCN44FA&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-0bU6fCN44FA&start=0) 
+
+5.每次使用后漱口或刷牙。
+
+即使你已经教了你的孩子正确的吸入方法——即使你认为他们已经掌握了技巧——你也应该尽可能地继续监督他们，以确保他们没有走捷径。
+
+* * *
+
+<small>*更多来自 Lifehacker，一定要在 Instagram 上关注我们*</small>[<small>*@ lifehackerdotcom*</small>](https://www.instagram.com/lifehackerdotcom/)<small>*。*</small>

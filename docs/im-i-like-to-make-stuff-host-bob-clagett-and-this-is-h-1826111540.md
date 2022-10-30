@@ -1,10 +1,10 @@
 # 我是“我喜欢做东西”的主持人鲍勃·克拉杰特，这就是我的工作方式
 
-> 原文：<https://lifehacker.com/im-i-like-to-make-stuff-host-bob-clagett-and-this-is-h-1826111540>
+> 原文:[https://life hacker . com/im-I-like-to-make-stuff-host-bob-clagett-and-this-is-h-1826111540](https://lifehacker.com/im-i-like-to-make-stuff-host-bob-clagett-and-this-is-h-1826111540)
 
 鲍勃·克拉杰特打造的东西:一把 [暗门](https://www.youtube.com/watch?v=V3NGBo2M1Ps) ，一把 [后院滑索](https://www.youtube.com/watch?v=h8JqU5Df_aw&t=2s) ，一把 [木制武士刀](https://www.youtube.com/watch?v=2nshBD9EbxE) 。他也向你展示了如何制作它们，在 [我喜欢制作东西](https://www.youtube.com/channel/UC6x7GwJxuoABSosgVXDYtTw) ，一个拥有超过 210 万订户的 YouTube 频道和 [一个有详细说明和计划的博客](https://www.iliketomakestuff.com/) 。我们和他谈论了他最喜欢的工作室工具，他在那里计划所有项目的应用程序，以及与他的家人一起工作。
 
-
+Watch
 
 * * *
 
@@ -24,4 +24,78 @@
 
 关于我的工作，我最喜欢的一点是，我很少有两次同一天。我一边解决问题，一边制作东西和电影。有时候我会录制播客或者为视频配音。有时候我会直播我正在做的事情。这真的总是很不一样，我喜欢这样！
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-V3rxHJPOWHg&amp;start=0" data-chomp-id="V3rxHJPOWHg" data-recommend-id="youtube://V3rxHJPOWHg" id="youtube-V3rxHJPOWHg" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="V3rxHJPOWHg" data-recommend-id="youtube://V3rxHJPOWHg" id="youtube-V3rxHJPOWHg" data-recommended="false" class="js_recommend"/></span></div><h4 class="sc-1bwb26k-1 kpbNNd" id="h20389">你生活中离不开哪些应用程序、小工具或工具？</h4><p class="sc-77igqf-0 bOfvBY">我在店里使用很多工具，但用得最多的可能是我的多功能工具。这是一辆<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Commerce&quot;,&quot;lifehacker - I&amp;#39;m &amp;#39;I Like to Make Stuff&amp;#39; Host Bob Clagett, and This Is How I Work&quot;,&quot;B001R93IQQ&quot;]]" href="https://www.amazon.com/Gerber-Crucial-Multi-Tool-Gray-30-000016/dp/B001R93IQQ/?asc_campaign=InlineText&amp;asc_refurl=https://lifehacker.com/im-i-like-to-make-stuff-host-bob-clagett-and-this-is-h-1826111540&amp;asc_source=&amp;tag=kinjalifehackerlink-20" target="_blank" rel="nofollow" data-amazonasin="B001R93IQQ" data-amazontag="kinjalifehackerlink-20">嘉宝至关重要</a> </span>，完全符合我的需求。</p><p class="sc-77igqf-0 bOfvBY">至于应用程序，我在一个名为<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://airtable.com/&quot;,{&quot;metric25&quot;:1}]]" href="https://airtable.com/" target="_blank" rel="noopener noreferrer"> AirTable </a> </span>的免费应用程序上运行大部分业务。这太棒了，让组织(尤其是小团队)变得更加容易。我也非常喜欢使用 IFTTT 来连接我使用的所有不同的服务。这让他们每个人都觉得更有用，因为他们都一起工作，交换信息。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h20390">你的工作空间是什么样的？</h4><p class="sc-77igqf-0 bOfvBY">嗯，我有几个。商店被分成了一个木工和金属加工区，但是现在有了很多空间，几乎所有的东西都是可移动的。这些工具经常被移动到需要它们的地方。整个商店就像是在进行中的工作。我的办公室是三维印刷/整理站、电子工作区和总体控制中心的结合体。我们还有一整面白板墙，我们每天都用它来勾画和集思广益。</p><p class="sc-77igqf-0 bOfvBY">我的整个空间对我来说是相当新的，所以我认为随着我使用它的时间越长，它会不断发展和变化。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h20391">去生活帮最好的捷径是什么？</h4><p class="sc-77igqf-0 bOfvBY">我用手机上的 IFTTT 应用程序记录潜在的项目想法。当它打开时，有一个大的文本字段和一个按钮。我输入一个想法或关键词，点击按钮，然后关闭应用程序。在幕后，该文本被推送到我的 AirTable 项目想法列表中，并标记为“传入”,这样我就知道以后必须重新查看它，看看它实际上是不是一个好主意。捕捉这些想法的过程非常简单，现在我没有借口不去做，这意味着我不会丢失想法，但我也不必记住它们。</p><div class="ooo3c9-0 cmUFVa align--bleed has-video media-large video-embed embed-frame"><span class="flex-video widescreen"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-4UOJOm_EcDE&amp;start=0" data-chomp-id="4UOJOm_EcDE" data-recommend-id="youtube://4UOJOm_EcDE" id="youtube-4UOJOm_EcDE" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/><span data-chomp-id="4UOJOm_EcDE" data-recommend-id="youtube://4UOJOm_EcDE" id="youtube-4UOJOm_EcDE" data-recommended="false" class="js_recommend"/></span></div><h4 class="sc-1bwb26k-1 kpbNNd" id="h20392">带我们经历一个你在工作中的有趣、不寻常或挑剔的过程。</h4><p class="sc-77igqf-0 bOfvBY">自从去年我家搬离编辑所在的州，我们的编辑流程变得复杂多了。我们为一个项目拍摄所有的视频，然后我的摄影师梳理视频，删除无用的片段。之后，他将所有内容导入 Final Cut Pro X 并创建代理文件(所有内容的低分辨率版本)。它们需要几个小时才能从 4K 渲染到 720p，然后压缩成一个文件，并转移到我的本地服务器上。</p><p class="sc-77igqf-0 bOfvBY">我的编辑通过 FTP 登录服务器并下载代理镜头(通常仍为 20+GB)。然后，编辑为视频做全部编辑、音乐和颜色分级。完成后，他只将 inal Cut Pro 项目文件上传到服务器。我下载了他的文件，然后告诉 Final Cut Pro where 文件在哪里，<!-- -->并以全分辨率重新渲染编辑。渲染完成后，在制作最终的渲染视频文件之前，我会添加画外音并进行最小的编辑调整。</p><p class="sc-77igqf-0 bOfvBY">相比之下，编辑以前只是每周来我家一次，编辑几个小时:)</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h20393">帮助你完成工作的人是谁，你如何依赖他们？</h4><p class="sc-77igqf-0 bOfvBY">当然，我在很多很多方面都依赖我的好妻子。她非常支持我，在我努力发展生意的时候，她做了大量的工作来维持我们六口之家的运转。</p><p class="sc-77igqf-0 bOfvBY">Josh 是一名全职员工，负责视频的拍摄，围绕视频发布制作大量的社交媒体内容，管理在线商店和履行，并经常进行大量的原型制作和 CAD 工作，以加快项目进展。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h20394">和家人一起工作，在家人身边工作是什么感觉？最大的利弊是什么？</h4><p class="sc-77igqf-0 bOfvBY">对我个人来说，在家工作很棒，因为我们有一个非常严格的规定，在我工作的日子里可以接近我。当然，如果我的妻子或孩子需要我，我会停下任何事情，但是他们知道我在正常的工作时间里没有时间处理一些小事。我非常努力地保持半正常的工作时间，并把这些时间真正集中在工作上，这样我会感到富有成效。</p><p class="sc-77igqf-0 bOfvBY">我发现，如果我觉得自己一直很有效率，在一天结束时，我会更容易关闭工作模式。当我和家人在一起时，我想百分百和他们在一起。我努力把工作时间留给工作，把家庭时间留给家庭。</p><p class="sc-77igqf-0 bOfvBY">在家工作的挑战主要是努力保持工作状态。例如，我会在工作的时候四处看看房子，看看有什么需要改进的地方。我必须抑制住停止制作视频并去完成任务的冲动。幸运的是，我的商店和办公室都在地下室，所以这让我在工作日的大部分时间都呆在自己的空间里。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h20395">你如何记录你必须做的事情？</h4><p class="sc-77igqf-0 bOfvBY">就像我之前提到的，AirTable 是我们现在最依赖的工具。它本质上是一个关系数据库，看起来像一个基于 web 的电子表格。我用它来安排日程，做列表和任务，跟踪赞助商/广告数据等等。我们也最常通过<span></span>交流。它非常方便，也可以与大多数组织工具集成。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h20396"><strong>如何充电或休息？</strong></h4><p class="sc-77igqf-0 bOfvBY">我刚刚<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.youtube.com/watch?v=rzVJrBOsf0M&quot;,{&quot;metric25&quot;:1}]]" href="https://www.youtube.com/watch?v=rzVJrBOsf0M" target="_blank" rel="noopener noreferrer">造了一个乒乓球台</a> </span>，所以这几天它被大量用作休息的方式。从更大的范围来说，老实说，自从我开始全职做这个工作以来，我一直非常努力，以至于我没有给自己足够的时间充电，但这是我一直在努力改变的事情。</p><p class="sc-77igqf-0 bOfvBY">最近，我和妻子去了一次远离一切的旅行，并有意尝试一周不去想工作。这比我想象的要有用得多。有时候，我们只需要离开一会儿。此外，乒乓球和搭建乐高积木也是改变思维齿轮的好方法。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h20397">你最喜欢的副业是什么？</h4><p class="sc-77igqf-0 bOfvBY">哈！副业？那就像有人问我最喜欢的爱好一样:)。我的整个职业生涯曾经是副业，现在基本上是唯一的项目。我真的拥有世界上最酷的工作，在这个地方，我可以不断地改变工作的任何部分，包括我的兴趣。我喜欢的一切都有可能以最好的方式成为作品的一部分！</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h20398">你目前在读什么，或者有什么推荐？</h4><p class="sc-77igqf-0 bOfvBY">我推荐阅读<span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Commerce&quot;,&quot;lifehacker - I&amp;#39;m &amp;#39;I Like to Make Stuff&amp;#39; Host Bob Clagett, and This Is How I Work&quot;,&quot;1936891026&quot;]]" href="https://www.amazon.com/War-Art-Through-Creative-Battles/dp/1936891026/ref=asap_bc?asc_campaign=InlineText&amp;asc_refurl=https://lifehacker.com/im-i-like-to-make-stuff-host-bob-clagett-and-this-is-h-1826111540&amp;asc_source=&amp;ie=UTF8&amp;tag=kinjalifehackerlink-20" target="_blank" rel="nofollow" data-amazonasin="1936891026" data-amazontag="kinjalifehackerlink-20"><em/></a></span>的战争艺术，C. S .刘易斯和卡尔文和霍布斯。所有这些都抓住了让我们兴奋的东西的不同部分(在我看来)。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h20399">你还希望谁来回答这些问题？</h4><p class="sc-77igqf-0 bOfvBY">来自<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.youtube.com/channel/UC27YZdcPTZM24PgjztxanEQ&quot;,{&quot;metric25&quot;:1}]]" href="https://www.youtube.com/channel/UC27YZdcPTZM24PgjztxanEQ" target="_blank" rel="noopener noreferrer">受罚道具学院</a> </span>的比尔多兰。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h20400">你收到过的最好的建议是什么？</h4><p class="sc-77igqf-0 bOfvBY">我的朋友吉米·迪瑞斯塔说“如果一切顺利呢？”我们倾向于认为，在所有可能发生的坏事中，最糟糕的情况是最有可能发生的。一切都有可能是正确的，那么为什么不把它作为默认呢？想象一下事情会变得多好，这更令人鼓舞。</p><h4 class="sc-1bwb26k-1 kpbNNd" id="h20401">你仍在努力解决的问题是什么？</h4><p class="sc-77igqf-0 bOfvBY">我仍然不知道如何使用我已经习惯的时间表和过程来制作更大的项目(我的观众也已经习惯了)。我仍在试图找出如何做到这一点，而不会对我的做事方式做出重大(且有风险的)改变。</p><p class="sc-77igqf-0 bOfvBY">鉴于我上面提到的建议，我确实意识到这个问题的讽刺之处。很难看到一个业务或流程运行良好，朝着正确的方向发展，并决定改变一些可能有负面影响的东西。我目前正在导航，并试图找出它。</p><div class="ooo3c9-0 cmUFVa align--bleed has-video media-large video-embed embed-frame"><span class="flex-video widescreen"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-a0d-wT6YS4w&amp;start=0" data-chomp-id="a0d-wT6YS4w" data-recommend-id="youtube://a0d-wT6YS4w" id="youtube-a0d-wT6YS4w" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/><span data-chomp-id="a0d-wT6YS4w" data-recommend-id="youtube://a0d-wT6YS4w" id="youtube-a0d-wT6YS4w" data-recommended="false" class="js_recommend"/></span></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-V3rxHJPOWHg&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-V3rxHJPOWHg&start=0) 
+
+#### 你生活中离不开哪些应用程序、小工具或工具？
+
+我在店里使用很多工具，但用得最多的可能是我的多功能工具。这是一辆 [嘉宝至关重要](https://www.amazon.com/Gerber-Crucial-Multi-Tool-Gray-30-000016/dp/B001R93IQQ/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-i-like-to-make-stuff-host-bob-clagett-and-this-is-h-1826111540&asc_source=&tag=kinjalifehackerlink-20) ，完全符合我的需求。
+
+至于应用程序，我在一个名为 [AirTable](https://airtable.com/) 的免费应用程序上运行大部分业务。这太棒了，让组织(尤其是小团队)变得更加容易。我也非常喜欢使用 IFTTT 来连接我使用的所有不同的服务。这让他们每个人都觉得更有用，因为他们都一起工作，交换信息。
+
+#### 你的工作空间是什么样的？
+
+嗯，我有几个。商店被分成了一个木工和金属加工区，但是现在有了很多空间，几乎所有的东西都是可移动的。这些工具经常被移动到需要它们的地方。整个商店就像是在进行中的工作。我的办公室是三维印刷/整理站、电子工作区和总体控制中心的结合体。我们还有一整面白板墙，我们每天都用它来勾画和集思广益。
+
+我的整个空间对我来说是相当新的，所以我认为随着我使用它的时间越长，它会不断发展和变化。
+
+#### 去生活帮最好的捷径是什么？
+
+我用手机上的 IFTTT 应用程序记录潜在的项目想法。当它打开时，有一个大的文本字段和一个按钮。我输入一个想法或关键词，点击按钮，然后关闭应用程序。在幕后，该文本被推送到我的 AirTable 项目想法列表中，并标记为“传入”,这样我就知道以后必须重新查看它，看看它实际上是不是一个好主意。捕捉这些想法的过程非常简单，现在我没有借口不去做，这意味着我不会丢失想法，但我也不必记住它们。
+
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-4UOJOm_EcDE&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-4UOJOm_EcDE&start=0) 
+
+#### 带我们经历一个你在工作中的有趣、不寻常或挑剔的过程。
+
+自从去年我家搬离编辑所在的州，我们的编辑流程变得复杂多了。我们为一个项目拍摄所有的视频，然后我的摄影师梳理视频，删除无用的片段。之后，他将所有内容导入 Final Cut Pro X 并创建代理文件(所有内容的低分辨率版本)。它们需要几个小时才能从 4K 渲染到 720p，然后压缩成一个文件，并转移到我的本地服务器上。
+
+我的编辑通过 FTP 登录服务器并下载代理镜头(通常仍为 20+GB)。然后，编辑为视频做全部编辑、音乐和颜色分级。完成后，他只将 inal Cut Pro 项目文件上传到服务器。我下载了他的文件，然后告诉 Final Cut Pro where 文件在哪里，并以全分辨率重新渲染编辑。渲染完成后，在制作最终的渲染视频文件之前，我会添加画外音并进行最小的编辑调整。
+
+相比之下，编辑以前只是每周来我家一次，编辑几个小时:)
+
+#### 帮助你完成工作的人是谁，你如何依赖他们？
+
+当然，我在很多很多方面都依赖我的好妻子。她非常支持我，在我努力发展生意的时候，她做了大量的工作来维持我们六口之家的运转。
+
+Josh 是一名全职员工，负责视频的拍摄，围绕视频发布制作大量的社交媒体内容，管理在线商店和履行，并经常进行大量的原型制作和 CAD 工作，以加快项目进展。
+
+#### 和家人一起工作，在家人身边工作是什么感觉？最大的利弊是什么？
+
+对我个人来说，在家工作很棒，因为我们有一个非常严格的规定，在我工作的日子里可以接近我。当然，如果我的妻子或孩子需要我，我会停下任何事情，但是他们知道我在正常的工作时间里没有时间处理一些小事。我非常努力地保持半正常的工作时间，并把这些时间真正集中在工作上，这样我会感到富有成效。
+
+我发现，如果我觉得自己一直很有效率，在一天结束时，我会更容易关闭工作模式。当我和家人在一起时，我想百分百和他们在一起。我努力把工作时间留给工作，把家庭时间留给家庭。
+
+在家工作的挑战主要是努力保持工作状态。例如，我会在工作的时候四处看看房子，看看有什么需要改进的地方。我必须抑制住停止制作视频并去完成任务的冲动。幸运的是，我的商店和办公室都在地下室，所以这让我在工作日的大部分时间都呆在自己的空间里。
+
+#### 你如何记录你必须做的事情？
+
+就像我之前提到的，AirTable 是我们现在最依赖的工具。它本质上是一个关系数据库，看起来像一个基于 web 的电子表格。我用它来安排日程，做列表和任务，跟踪赞助商/广告数据等等。我们也最常通过交流。它非常方便，也可以与大多数组织工具集成。
+
+#### **如何充电或休息？**
+
+我刚刚 [造了一个乒乓球台](https://www.youtube.com/watch?v=rzVJrBOsf0M) ，所以这几天它被大量用作休息的方式。从更大的范围来说，老实说，自从我开始全职做这个工作以来，我一直非常努力，以至于我没有给自己足够的时间充电，但这是我一直在努力改变的事情。
+
+最近，我和妻子去了一次远离一切的旅行，并有意尝试一周不去想工作。这比我想象的要有用得多。有时候，我们只需要离开一会儿。此外，乒乓球和搭建乐高积木也是改变思维齿轮的好方法。
+
+#### 你最喜欢的副业是什么？
+
+哈！副业？那就像有人问我最喜欢的爱好一样:)。我的整个职业生涯曾经是副业，现在基本上是唯一的项目。我真的拥有世界上最酷的工作，在这个地方，我可以不断地改变工作的任何部分，包括我的兴趣。我喜欢的一切都有可能以最好的方式成为作品的一部分！
+
+#### 你目前在读什么，或者有什么推荐？
+
+我推荐阅读[](https://www.amazon.com/War-Art-Through-Creative-Battles/dp/1936891026/ref=asap_bc?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-i-like-to-make-stuff-host-bob-clagett-and-this-is-h-1826111540&asc_source=&ie=UTF8&tag=kinjalifehackerlink-20)*的战争艺术，C. S .刘易斯和卡尔文和霍布斯。所有这些都抓住了让我们兴奋的东西的不同部分(在我看来)。*
+
+#### *你还希望谁来回答这些问题？*
+
+*来自 [受罚道具学院](https://www.youtube.com/channel/UC27YZdcPTZM24PgjztxanEQ) 的比尔多兰。*
+
+#### *你收到过的最好的建议是什么？*
+
+*我的朋友吉米·迪瑞斯塔说“如果一切顺利呢？”我们倾向于认为，在所有可能发生的坏事中，最糟糕的情况是最有可能发生的。一切都有可能是正确的，那么为什么不把它作为默认呢？想象一下事情会变得多好，这更令人鼓舞。*
+
+#### *你仍在努力解决的问题是什么？*
+
+*我仍然不知道如何使用我已经习惯的时间表和过程来制作更大的项目(我的观众也已经习惯了)。我仍在试图找出如何做到这一点，而不会对我的做事方式做出重大(且有风险的)改变。*
+
+*鉴于我上面提到的建议，我确实意识到这个问题的讽刺之处。很难看到一个业务或流程运行良好，朝着正确的方向发展，并决定改变一些可能有负面影响的东西。我目前正在导航，并试图找出它。*
+
+ *[https://lifehacker.com/embed/inset/iframe?id=youtube-video-a0d-wT6YS4w&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-a0d-wT6YS4w&start=0)*

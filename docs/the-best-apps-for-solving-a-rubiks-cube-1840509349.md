@@ -1,10 +1,10 @@
 # 解魔方的最佳应用
 
-> 原文：<https://lifehacker.com/the-best-apps-for-solving-a-rubiks-cube-1840509349>
+> 原文:[https://life hacker . com/the-best-apps-for-solving-a-Rubik-cube-1840509349](https://lifehacker.com/the-best-apps-for-solving-a-rubiks-cube-1840509349)
 
 一个魔方或“魔方”可以有 43 万亿种配置方式，每种配置技术上可以在 [20 步或更少](http://www.cube20.org/) 内解决。实际上，最专业的人类立方体解算者通常需要 40 步以上。但是这些移动应用程序可以更快地解决它——或者它们可以像专家一样教你如何解决。这些是最好的。
 
-
+Watch
 
 有很多立方体求解应用程序，每一个都有自己的怪癖和缺陷。不管你用哪一种，你都会遇到这样或那样的问题。所以，要有耐心，在转到另一个应用程序之前，给每个应用程序一些尝试的机会。
 
@@ -60,4 +60,10 @@
 
 如果你还看几个关于解决问题的视频，所有这些应用程序都会更有用。试试 [这个连线教程](https://www.youtube.com/watch?v=R-R0KrXvWbc) ，或者 [这个求解者的自制视频](https://www.youtube.com/watch?v=aTG-M98z4R4) ，或者 [这个充满泛 peppy 音乐的视频](https://www.youtube.com/watch?v=KGvQRaK1mvs) 。他们的方法有些不同，但不足以让你迷惑。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-R-R0KrXvWbc&amp;start=0" data-chomp-id="R-R0KrXvWbc" data-recommend-id="youtube://R-R0KrXvWbc" id="youtube-R-R0KrXvWbc" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="R-R0KrXvWbc" data-recommend-id="youtube://R-R0KrXvWbc" id="youtube-R-R0KrXvWbc" data-recommended="false" class="js_recommend"/></span></div><h2 class="sc-1bwb26k-1 kpbNNd" id="h286444"><strong>不值得一试</strong></h2><h4 class="sc-1bwb26k-1 kpbNNd" id="h286445"><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://apps.apple.com/us/app/rubiks-solver/id1439750998&quot;,{&quot;metric25&quot;:1}]]" href="https://apps.apple.com/us/app/rubiks-solver/id1439750998" target="_blank" rel="noopener noreferrer"> <strong>魔方</strong></a></span><strong>:</strong><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://play.google.com/store/apps/details?id=com.rubiksphotocube.solver&amp;hl=en_US&quot;,{&quot;metric25&quot;:1}]]" href="https://play.google.com/store/apps/details?id=com.rubiksphotocube.solver&amp;hl=en_US" target="_blank" rel="noopener noreferrer"><strong>安卓</strong></a></span><strong>/</strong><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://apps.apple.com/us/app/rubiks-solver/id1439750998&quot;,{&quot;metric25&quot;:1}]]" href="https://apps.apple.com/us/app/rubiks-solver/id1439750998" target="_blank" rel="noopener noreferrer"><strong>iOS</strong></a></span><strong>，免费，无广告/$2 为所有功能</strong></h4><p class="sc-77igqf-0 bOfvBY">官方魔方教学 app 一塌糊涂。它的界面不直观。自己解立方体的教程很难懂，在图和<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.youtube.com/watch?v=DpUG5c_KDFc&amp;list=PLVE0Oz4ggE938H9fc9X2spIHf29d0B_a2&amp;index=2&amp;t=0s&quot;,{&quot;metric25&quot;:1}]]" href="https://www.youtube.com/watch?v=DpUG5c_KDFc&amp;list=PLVE0Oz4ggE938H9fc9X2spIHf29d0B_a2&amp;index=2&amp;t=0s" target="_blank" rel="noopener noreferrer">写的很烂的视频</a> </span>之间来回跳转。因为一个错误，你甚至要开始使用这个应用程序，你必须请求两次验证邮件。不要因为它是官方应用就在它上面浪费你的时间(或者你的两块钱)。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-R-R0KrXvWbc&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-R-R0KrXvWbc&start=0) 
+
+## **不值得一试**
+
+#### [**魔方**](https://apps.apple.com/us/app/rubiks-solver/id1439750998)**:**[**安卓**](https://play.google.com/store/apps/details?id=com.rubiksphotocube.solver&hl=en_US)**/**[**iOS**](https://apps.apple.com/us/app/rubiks-solver/id1439750998)**，免费，无广告/$2 为所有功能**
+
+官方魔方教学 app 一塌糊涂。它的界面不直观。自己解立方体的教程很难懂，在图和 [写的很烂的视频](https://www.youtube.com/watch?v=DpUG5c_KDFc&list=PLVE0Oz4ggE938H9fc9X2spIHf29d0B_a2&index=2&t=0s) 之间来回跳转。因为一个错误，你甚至要开始使用这个应用程序，你必须请求两次验证邮件。不要因为它是官方应用就在它上面浪费你的时间(或者你的两块钱)。

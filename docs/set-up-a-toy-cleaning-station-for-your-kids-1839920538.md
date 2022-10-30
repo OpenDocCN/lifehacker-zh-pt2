@@ -1,7 +1,15 @@
 # 为你的孩子建立一个玩具清洗站
 
-> 原文：<https://lifehacker.com/set-up-a-toy-cleaning-station-for-your-kids-1839920538>
+> 原文:[https://life hacker . com/set-up-a-toy-cleaning-station-for-your-kids-1839920538](https://lifehacker.com/set-up-a-toy-cleaning-station-for-your-kids-1839920538)
 
 对于小孩子来说，我最喜欢的活动类型是让他们忙起来，然后完成另一个目标。就像他们帮你整理衣物或“准备”晚餐一样。孩子们喜欢动手的活动，他们喜欢乐于助人。这位妈妈用这个简单的玩具清洗站解决了这两个问题:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=instagram-B3XmPMBH8dZ&amp;autosize=1" autoresize="true" id="instagram-B3XmPMBH8dZ" data-recommended="false" width="598" height="676" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><div class="bxm4mm-2 hKBnez"><div class="bxm4mm-1 goloRq instream-native-video instream-permalink instream-native-video--mobile"><div class="sc-1h0epat-0 lepUzz"><div class="sc-1h0epat-1 gRjwiT"><div class="sc-235a11-0 egwski">Watch</div></div><div class="sc-1wkneyl-0 hxLRyg video-html5-playlist" data-playlist="192590,192585,192428" data-current="192590"><div class="video-html5-loaded"><div class="video-html5-player"><div class="lhhce6-0 bVyOPq video-html5 autoplay muted mobile" data-video-id="192590" data-position="sidebar" data-video-title="How to Make a Quick and Easy Crumb Crust" data-video-network="lifehacker" data-video-duration="135"></div></div></div></div></div></div></div><p class="sc-77igqf-0 bOfvBY">你只需要一个塑料盆、几个小容器、水、洗碗精、一块海绵或抹布，以及一个你不介意被肥皂水溅到的表面。户外可能是你进行这项活动的最佳选择，但是如果这不是一个选择，把一些毛巾扔在泥室或浴室的地板上，或者使用几个较小的浴缸，直接把整个装置放入浴缸中。</p><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><p class="sc-77igqf-0 bOfvBY">正如格雷 T3【days with grey】指出的那样，孩子们不一定要把玩具弄得很脏才能玩得进去，但他们可能需要好好擦洗一下。</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><small> <em>遇见地球上最聪明的父母！加入我们的</em> </small> <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.facebook.com/groups/2018785615043946/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.facebook.com/groups/2018785615043946/" target="_blank" rel="noopener noreferrer"> <small> <em>育儿脸书群</em> </small> </a> </span> <small> <em>。</em>T15】</small></p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><div id="mgid-container" data-placement="4" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=instagram-B3XmPMBH8dZ&autosize=1](https://lifehacker.com/embed/inset/iframe?id=instagram-B3XmPMBH8dZ&autosize=1) Watch
+
+你只需要一个塑料盆、几个小容器、水、洗碗精、一块海绵或抹布，以及一个你不介意被肥皂水溅到的表面。户外可能是你进行这项活动的最佳选择，但是如果这不是一个选择，把一些毛巾扔在泥室或浴室的地板上，或者使用几个较小的浴缸，直接把整个装置放入浴缸中。
+
+正如格雷 T3【days with grey】指出的那样，孩子们不一定要把玩具弄得很脏才能玩得进去，但他们可能需要好好擦洗一下。
+
+* * *
+
+<small>*遇见地球上最聪明的父母！加入我们的*</small> [<small>*育儿脸书群*</small>](https://www.facebook.com/groups/2018785615043946/) <small>*。*T15】</small>

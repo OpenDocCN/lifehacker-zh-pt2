@@ -1,11 +1,21 @@
 # 最基本的新车模型更多的是关于你删除什么，而不是你添加什么
 
-> 原文：<https://jalopnik.com/the-most-fundamental-new-car-mod-is-more-about-what-you-1840314296>
+> 原文:[https://jalopnik . com/the-most-fundamental-new-car-mod-is-more-about-what-you-1840314296](https://jalopnik.com/the-most-fundamental-new-car-mod-is-more-about-what-you-1840314296)
 
 整个世界都致力于汽车改装和售后零件，旨在提高您的汽车性能。你可能会诗意地谈论哪种 mod 是最好的——但是来自奥尼尔拉力学校团队的 Wyatt Knox 对你们有一个非常热的看法:这不是你添加了什么。而是你拿走了什么。
 
-
+Watch
 
 没错，各位。在你花上数千美元购买花哨的轮胎、扰流板和更坚硬的防滚架之前，试着关闭一些驾驶辅助功能，如果你的车是最近生产的，这些功能是不可避免的。*然后*做出重大决策。
 
-<iframe data-src="https://jalopnik.com/embed/inset/iframe?id=youtube-video-KRWG06dg-rc&amp;start=0" data-chomp-id="KRWG06dg-rc" data-recommend-id="youtube://KRWG06dg-rc" id="youtube-KRWG06dg-rc" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="KRWG06dg-rc" data-recommend-id="youtube://KRWG06dg-rc" id="youtube-KRWG06dg-rc" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">如果你真的想知道你的车开起来是什么样的，你会在关闭你的牵引力控制系统、防抱死刹车系统和稳定性控制系统后弄清楚。诺克斯说，如果它影响刹车、加速或转弯，你应该关掉它，看看会发生什么。如果你想知道如何关掉所有多余的垃圾，你可以在这里 了解一下<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 cYiQhX js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.youtube.com/watch?v=IURlUusGTow&quot;,{&quot;metric25&quot;:1}]]" href="https://www.youtube.com/watch?v=IURlUusGTow" target="_blank" rel="noopener noreferrer">。</a></span></p><p class="sc-77igqf-0 bOfvBY">他指出，这很像从你的自行车上卸下训练轮:一开始很笨拙，但后来你就掌握了窍门。我是说，我从小开着没有动力方向盘和 ABS 的车长大。我遇到了相反的问题，爬在一个有着让驾驶变得更容易的花哨技术功能的东西的轮子后面，就像试图在陆地上游泳一样。神圣的狗屎这是<em>怪异</em>。这太简单了。</p><p class="sc-77igqf-0 bOfvBY">当你把那些让驾驶变得更容易的东西都拿走的时候，它迫使你完善你的驾驶技术，同时实际上，你知道，弄清楚你的车是如何运转的。<em>你是在</em>驾驶自己的车，而不是在搬运重物的车。很有可能，如果你从来没有驾驶过没有那些小电子保姆的任何东西，你会意识到你可能比你想象的更糟糕。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M674727ScriptRootC1321798"/><div class="mgidMidMobile" id="M674727ScriptRootC1321799"/></div><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">你越早关掉那些无关紧要的东西，你就能越早看到驾驶技术的进步。这很好。</p><p class="sc-77igqf-0 bOfvBY">在这一点上，你可以决定你是否需要任何<em>其他</em>模块或升级。但是说真的。在你弄清楚如何在没有任何额外电子辅助的情况下驾驶你的汽车之前，不要费事花钱买什么东西。</p> </body> </html></iframe>
+ [https://jalopnik.com/embed/inset/iframe?id=youtube-video-KRWG06dg-rc&start=0](https://jalopnik.com/embed/inset/iframe?id=youtube-video-KRWG06dg-rc&start=0) 
+
+如果你真的想知道你的车开起来是什么样的，你会在关闭你的牵引力控制系统、防抱死刹车系统和稳定性控制系统后弄清楚。诺克斯说，如果它影响刹车、加速或转弯，你应该关掉它，看看会发生什么。如果你想知道如何关掉所有多余的垃圾，你可以在这里 了解一下 [。](https://www.youtube.com/watch?v=IURlUusGTow)
+
+他指出，这很像从你的自行车上卸下训练轮:一开始很笨拙，但后来你就掌握了窍门。我是说，我从小开着没有动力方向盘和 ABS 的车长大。我遇到了相反的问题，爬在一个有着让驾驶变得更容易的花哨技术功能的东西的轮子后面，就像试图在陆地上游泳一样。神圣的狗屎这是*怪异*。这太简单了。
+
+当你把那些让驾驶变得更容易的东西都拿走的时候，它迫使你完善你的驾驶技术，同时实际上，你知道，弄清楚你的车是如何运转的。*你是在*驾驶自己的车，而不是在搬运重物的车。很有可能，如果你从来没有驾驶过没有那些小电子保姆的任何东西，你会意识到你可能比你想象的更糟糕。
+
+你越早关掉那些无关紧要的东西，你就能越早看到驾驶技术的进步。这很好。
+
+在这一点上，你可以决定你是否需要任何*其他*模块或升级。但是说真的。在你弄清楚如何在没有任何额外电子辅助的情况下驾驶你的汽车之前，不要费事花钱买什么东西。

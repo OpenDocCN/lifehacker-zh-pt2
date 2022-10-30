@@ -1,10 +1,10 @@
 # 脱离现实的成人儿童文化指南
 
-> 原文：<https://lifehacker.com/the-out-of-touch-adults-guide-to-kid-culture-1844960158>
+> 原文:[https://life hacker . com/the-out-of-touch-成人-儿童-文化指南-1844960158](https://lifehacker.com/the-out-of-touch-adults-guide-to-kid-culture-1844960158)
 
 年轻人的世界可能是一个令人困惑和讨厌的地方，所以让我通过每周指南来帮助你了解这些该死的孩子的生活。(离我的草坪远点。)
 
-
+Watch
 
 ### **返校风潮:“变焦轰炸”回归**
 
@@ -40,4 +40,10 @@
 
 Lady Gaga 获得了“Tricon”奖，但孩子们可能对 K-Pop 轰动 BTS 更感兴趣，BTS 获得了最佳流行音乐、最佳组合、最佳 K-Pop 和最佳编舞奖。我不知道 A-Pop 和 K-Pop，但这些孩子的表演让这场表演大放异彩:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-zJCdkOpU90g&amp;start=0" data-chomp-id="zJCdkOpU90g" data-recommend-id="youtube://zJCdkOpU90g" id="youtube-zJCdkOpU90g" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="zJCdkOpU90g" data-recommend-id="youtube://zJCdkOpU90g" id="youtube-zJCdkOpU90g" data-recommended="false" class="js_recommend"/></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h293614"><strong>对于书呆子来说:视频游戏的一周</strong></h3><p class="sc-77igqf-0 bOfvBY">除非它在 2020 年被取消，否则圣诞节就要来了，随之而来的是无数期待已久的视频游戏。本周大上映的是<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://avengers.square-enix-games.com/en-us&quot;,{&quot;metric25&quot;:1}]]" href="https://avengers.square-enix-games.com/en-us" target="_blank" rel="noopener noreferrer"> <em>漫威的《复仇者联盟》</em> </a> </span> <em>。</em>超级英雄游戏在 PlayStation 游戏机、Xbox One 和 PC 上推出<em>、</em>和<em> </em>因其单人战役而受到批评，并因其多人游戏而受到批评。<br/></p><p class="sc-77igqf-0 bOfvBY">在任天堂游戏的另类宇宙中，大 N 宣布<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.nintendo.com/games/detail/super-mario-3d-all-stars-switch&quot;,{&quot;metric25&quot;:1}]]" href="https://www.nintendo.com/games/detail/super-mario-3d-all-stars-switch" target="_blank" rel="noopener noreferrer"> <em>超级马里奥 3D 全明星</em> </a> </span>将于 9 月 18 日来到任天堂 Switch。该版本包含三款最具代表性的马里奥 3D 平台的切换版本，<em>超级马里奥 64、</em>和<em>超级马里奥银河</em>。我当年打败了超级马里奥 64，我迫不及待地想看我 13 岁的儿子摆弄它怪异的控制。当然，自从《毁灭战士》上映以来，他每次都让我抽烟，但是他将无法控制那该死的滴答时钟水平。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-zJCdkOpU90g&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-zJCdkOpU90g&start=0) 
+
+### **对于书呆子来说:视频游戏的一周**
+
+除非它在 2020 年被取消，否则圣诞节就要来了，随之而来的是无数期待已久的视频游戏。本周大上映的是 [*漫威的《复仇者联盟》*](https://avengers.square-enix-games.com/en-us) *。*超级英雄游戏在 PlayStation 游戏机、Xbox One 和 PC 上推出*、*和因其单人战役而受到批评，并因其多人游戏而受到批评。
+
+在任天堂游戏的另类宇宙中，大 N 宣布 [*超级马里奥 3D 全明星*](https://www.nintendo.com/games/detail/super-mario-3d-all-stars-switch) 将于 9 月 18 日来到任天堂 Switch。该版本包含三款最具代表性的马里奥 3D 平台的切换版本，*超级马里奥 64、*和*超级马里奥银河*。我当年打败了超级马里奥 64，我迫不及待地想看我 13 岁的儿子摆弄它怪异的控制。当然，自从《毁灭战士》上映以来，他每次都让我抽烟，但是他将无法控制那该死的滴答时钟水平。

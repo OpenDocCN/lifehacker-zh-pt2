@@ -1,11 +1,127 @@
 # 2019 年 7 月 1 日这一周，网飞有哪些活动
 
-> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-july-1-1835738736>
+> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of July-1-1835738736](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-july-1-1835738736)
 
 网飞在 7 月 4 日假期给你提供了一个不错的新东西，那就是第三季*奇异事物*(周四)。不是粉丝？看起来这将是《T2》和《T4》的双重特色:谁知道呢？送给你。
 
-
+Watch
 
 所有的*矩阵*和所有的*木乃伊*将在周一离开，还有我个人最喜欢的默认的，当我只想笑的时候，*婚礼傲客。*没关系— *铁娘子*周六到，我听说也一样有趣。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-XcnHOQ-cHa0&amp;start=0" data-chomp-id="XcnHOQ-cHa0" data-recommend-id="youtube://XcnHOQ-cHa0" id="youtube-XcnHOQ-cHa0" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="XcnHOQ-cHa0" data-recommend-id="youtube://XcnHOQ-cHa0" id="youtube-XcnHOQ-cHa0" data-recommended="false" class="js_recommend"/></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h18156"><strong>本周到达</strong></h3><h4 class="sc-1bwb26k-1 kpbNNd" id="h18157"><strong>7 月 1 日星期一</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81072109&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81072109" target="_blank" rel="noopener noreferrer"> <em>指定幸存者:60 天</em> </a> </span> <em> —网飞原著</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80238020&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80238020" target="_blank" rel="noopener noreferrer"> <em>凯瑟琳·瑞恩:闪粉房</em> </a> </span> <em> —网飞原著</em></li><li>爱丽丝不再住在这里了</li><li><em> Astro Boy </em></li><li><em> Caddyshack </em></li><li><em> Caddyshack 2 </em></li><li><em>查理和巧克力工厂(2005) </em></li><li><em> Cheech &amp; Chong 烟消云散</em></li><li><em>克洛弗菲尔德</em></li><li><em>跑向魔女山</em></li><li><em>冰冻的河流</em></li><li><em> Inkheart </em></li><li>杀死爱尔兰人</li><li>水中的女士</li><li><em>小怪物</em></li><li><em>意思是梦</em></li><li><em>平均街道</em></li><li><em>【特大心灵】</em></li><li><em>罗丹斯之夜</em></li><li>保罗·布拉特:商场警察</li><li><em>费城</em></li><li><em>雨人</em></li><li><em>路屋</em></li><li><em>扫帚上的房间</em></li><li><em>尖叫 3 </em></li><li><em>星空&amp;厨</em></li><li><em>刷卡</em></li><li><em>箭鱼</em></li><li><em>出租车司机</em></li><li><em>奥斯威辛集中营的会计</em></li><li><em>美国人</em></li><li><em>伊莱之书</em></li><li><em>格林兄弟</em></li><li><em>宿醉</em></li><li><em>粉红豹</em></li><li><em>粉红豹 2 </em></li><li><em>针对女性的战争</em></li><li>谁在敲我的门？</li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h18158"><strong>7 月 2 日星期二</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80242137&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80242137" target="_blank" rel="noopener noreferrer"> <em>曼谷爱情故事:恋爱对象</em> </a> </span> <em> —网飞原著</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80241590&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80241590" target="_blank" rel="noopener noreferrer"> <em>曼谷爱情故事:请命</em> </a> </span> <em> —网飞原著</em></li><li><em>好女巫:第四季</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h18159"><strong>7 月 3 日星期三</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80211648&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80211648" target="_blank" rel="noopener noreferrer"> <em>末代沙皇</em> </a> </span> <em> —网飞原作</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80217769&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80217769" target="_blank" rel="noopener noreferrer"> <em> Yummy 木乃伊:第二季</em> </a> </span> <em> —网飞原创</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h18160"><strong>7 月 4 日星期四</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>卡可古瑞:第二季</li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80057281&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80057281" target="_blank" rel="noopener noreferrer"> <em>久违的事情 3 </em> </a> </span> <em> —网飞原创</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h18161"><strong>7 月 5 日星期五</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>黑暗中:第一季</li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h18162"><strong>7 月 6 日星期六</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80134695&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80134695" target="_blank" rel="noopener noreferrer"> <em>自由发挥:第三季</em> </a> </span> <em> —网飞家族</em></li><li><em>铁娘子</em></li><li><em>西西里鬼故事</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h18163">这周离开</h3><h4 class="sc-1bwb26k-1 kpbNNd" id="h18164"><strong>7 月 1 日离开</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>妖怪-法律</em></li><li>奥斯汀·鲍尔斯:国际神秘人</li><li>奥斯汀·鲍尔斯:骚扰我的间谍</li><li><em>血钻</em></li><li><em>谎言之体</em></li><li><em>公牛杜伦</em></li><li><em>追艾米</em></li><li><em>酷手卢克</em></li><li><em>肯定，也许</em></li><li>你听说摩根一家的事了吗？</li><li><em>日瓦戈医生</em></li><li><em>海豚的故事</em></li><li><em>阿呆和阿呆</em></li><li><em>伊甸园以东</em></li><li>《黑仔》第一季</li><li><em>需要两个</em></li><li><em>马里布的头号通缉犯</em></li><li><em>潘的迷宫</em></li><li><em>醉醺醺的爱情</em></li><li><em>沉默的羔羊</em></li><li><em>乡下佬圣徒</em></li><li><em>面试</em></li><li><em>矩阵</em></li><li><em>矩阵重新加载</em></li><li><em>矩阵革命</em></li><li><em>木乃伊</em></li><li><em>木乃伊归来</em></li><li><em>木乃伊:龙帝之墓</em></li><li><em>终结者</em></li><li><em>德州电锯杀人狂:开端</em></li><li><em>野束</em></li><li>特纳和胡奇</li><li><em>瓦尔基里</em></li><li><em>婚礼傲客</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h18165"><strong>7 月 2 日出发</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>加勒比海盗:死无对证</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h18166"><strong>7 月 4 日出发</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>橱柜里的印第安人</em></li></ul><div id="mgid-container" data-placement="2" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-XcnHOQ-cHa0&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-XcnHOQ-cHa0&start=0) 
+
+### **本周到达**
+
+#### **7 月 1 日星期一**
+
+*   [*指定幸存者:60 天*](https://www.netflix.com/title/81072109) *—网飞原著*
+*   [*凯瑟琳·瑞恩:闪粉房*](https://www.netflix.com/title/80238020) *—网飞原著*
+*   爱丽丝不再住在这里了
+*   *Astro Boy*
+*   *Caddyshack*
+*   *Caddyshack 2*
+*   *查理和巧克力工厂(2005)*
+*   *Cheech & Chong 烟消云散*
+*   *克洛弗菲尔德*
+*   *跑向魔女山*
+*   *冰冻的河流*
+*   *Inkheart*
+*   杀死爱尔兰人
+*   水中的女士
+*   *小怪物*
+*   *意思是梦*
+*   *平均街道*
+*   *【特大心灵】*
+*   *罗丹斯之夜*
+*   保罗·布拉特:商场警察
+*   *费城*
+*   *雨人*
+*   *路屋*
+*   *扫帚上的房间*
+*   *尖叫 3*
+*   *星空&厨*
+*   *刷卡*
+*   *箭鱼*
+*   *出租车司机*
+*   *奥斯威辛集中营的会计*
+*   *美国人*
+*   *伊莱之书*
+*   *格林兄弟*
+*   *宿醉*
+*   *粉红豹*
+*   *粉红豹 2*
+*   *针对女性的战争*
+*   谁在敲我的门？
+
+#### **7 月 2 日星期二**
+
+*   [*曼谷爱情故事:恋爱对象*](https://www.netflix.com/title/80242137) *—网飞原著*
+*   [*曼谷爱情故事:请命*](https://www.netflix.com/title/80241590) *—网飞原著*
+*   *好女巫:第四季*
+
+#### **7 月 3 日星期三**
+
+*   [*末代沙皇*](https://www.netflix.com/title/80211648) *—网飞原作*
+*   [*Yummy 木乃伊:第二季*](https://www.netflix.com/title/80217769) *—网飞原创*
+
+#### **7 月 4 日星期四**
+
+*   卡可古瑞:第二季
+*   [*久违的事情 3*](https://www.netflix.com/title/80057281) *—网飞原创*
+
+#### **7 月 5 日星期五**
+
+*   黑暗中:第一季
+
+#### **7 月 6 日星期六**
+
+*   [*自由发挥:第三季*](https://www.netflix.com/title/80134695) *—网飞家族*
+*   *铁娘子*
+*   *西西里鬼故事*
+
+### 这周离开
+
+#### **7 月 1 日离开**
+
+*   *妖怪-法律*
+*   奥斯汀·鲍尔斯:国际神秘人
+*   奥斯汀·鲍尔斯:骚扰我的间谍
+*   *血钻*
+*   *谎言之体*
+*   *公牛杜伦*
+*   *追艾米*
+*   *酷手卢克*
+*   *肯定，也许*
+*   你听说摩根一家的事了吗？
+*   *日瓦戈医生*
+*   *海豚的故事*
+*   *阿呆和阿呆*
+*   *伊甸园以东*
+*   《黑仔》第一季
+*   *需要两个*
+*   *马里布的头号通缉犯*
+*   *潘的迷宫*
+*   *醉醺醺的爱情*
+*   *沉默的羔羊*
+*   *乡下佬圣徒*
+*   *面试*
+*   *矩阵*
+*   *矩阵重新加载*
+*   *矩阵革命*
+*   *木乃伊*
+*   *木乃伊归来*
+*   *木乃伊:龙帝之墓*
+*   *终结者*
+*   *德州电锯杀人狂:开端*
+*   *野束*
+*   特纳和胡奇
+*   *瓦尔基里*
+*   *婚礼傲客*
+
+#### **7 月 2 日出发**
+
+*   *加勒比海盗:死无对证*
+
+#### **7 月 4 日出发**
+
+*   *橱柜里的印第安人*

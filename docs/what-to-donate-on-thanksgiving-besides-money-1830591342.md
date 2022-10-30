@@ -1,10 +1,10 @@
 # 感恩节捐什么(除了钱)
 
-> 原文：<https://lifehacker.com/what-to-donate-on-thanksgiving-besides-money-1830591342>
+> 原文:[https://life hacker . com/1830591342](https://lifehacker.com/what-to-donate-on-thanksgiving-besides-money-1830591342)
 
 我们已经确定，食品供应站 [可以最好地使用现金](https://lifehacker.com/donate-money-not-food-to-your-local-food-bank-1830561819)——他们可以进一步扩展，为他们的客户群购买最合适的东西。不管出于什么原因，如果这不是你能够或倾向于做的事情，在这个假期仍然有一些有用的捐赠方式。
 
-
+Watch
 
 作者卡瑞·安·迪里西奥分享了一个非常有用的推特帖子 ，根据她自己在食物银行工作的经验，告诉她应该捐什么。就像我们说过的，迪里西奥认为金钱是最好的捐赠。她也承认，由于种种原因，人们往往不喜欢这样做。因此，如果你必须交出精心包装的护理包或冰箱里剩下的东西，这里有一些事情需要考虑。
 
@@ -38,4 +38,8 @@
 
 备餐室里有大量急需的非食物物品。最大的一个是尿布:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1064208969550520320&amp;autosize=1" autoresize="true" id="twitter-1064208969550520320" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">其他建议包括结实的可重复使用的手提袋、卫生用品、卫生棉条和护垫、食用油、肥皂和清洁用品。你也可以捐赠宠物食品，但应该先咨询一下你要捐赠的食品柜，因为不是所有的食品柜都会接受。</p><p class="sc-77igqf-0 bOfvBY">但首先，捐钱。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1064208969550520320&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1064208969550520320&autosize=1) 
+
+其他建议包括结实的可重复使用的手提袋、卫生用品、卫生棉条和护垫、食用油、肥皂和清洁用品。你也可以捐赠宠物食品，但应该先咨询一下你要捐赠的食品柜，因为不是所有的食品柜都会接受。
+
+但首先，捐钱。

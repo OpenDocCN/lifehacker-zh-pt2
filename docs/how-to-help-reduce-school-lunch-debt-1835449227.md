@@ -1,10 +1,10 @@
 # 如何帮助减少学校午餐债务
 
-> 原文：<https://lifehacker.com/how-to-help-reduce-school-lunch-debt-1835449227>
+> 原文:[https://life hacker . com/how-to-help-reduce-school-lunch-debt-1835449227](https://lifehacker.com/how-to-help-reduce-school-lunch-debt-1835449227)
 
 本月早些时候，罗德岛的一个学区给一些学生——那些没有支付学校餐费的学生——冷黄油和果冻三明治(以及牛奶和蔬菜),而不是其他所有学生都可以获得的热餐，这成为了头条新闻。
 
-
+Watch
 
 学校午餐债务是一场噩梦，这已经成为一个普遍的现实，引发了羞辱孩子或“午餐羞辱”他们的做法，因为他们无法支付一顿午餐的全部费用，通过拘留或为他们提供冷或湿的替代食物等做法。
 
@@ -24,4 +24,14 @@
 
 如果你想向某个特定的学区捐款，当地的 GoFundMe 会全力以赴；你应该联系与 GoFundMe 相关的学区，确保它的 [经过了](https://lifehacker.com/four-tips-for-spotting-fake-gofundme-campaigns-1794432378) 的适当审查。你也可以选择接触一个有午餐债务的学区，看看你是否能在他们的同意下开始你自己的资助努力。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1138215396199321600&amp;autosize=1" autoresize="true" id="twitter-1138215396199321600" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">最后，联系你当地的国会代表，提出学校午餐债务的问题；这对他们来说并不奇怪，但是力量来自于数字(和大量的电话)。正如<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://civileats.com/2019/05/21/can-we-stop-kids-from-being-shamed-over-school-lunch-debt/&quot;,{&quot;metric25&quot;:1}]]" href="https://civileats.com/2019/05/21/can-we-stop-kids-from-being-shamed-over-school-lunch-debt/" target="_blank" rel="noopener noreferrer"> Civil Eats </a> </span>所写，今年晚些时候，国会还将重新授权影响全国<!-- -->学校午餐的儿童营养计划。这些项目最后一次被重新授权是在 2010 年，并没有明确解决当前的午餐债务问题。</p><p class="sc-77igqf-0 bOfvBY">“在儿童营养重新授权过程中，国会有机会改变一些增加学生午餐债务的规定，”<span></span>纳德拉·尼特尔写道。“它可能会改变学校报销学生餐的方式，哪些地区有资格获得社区资格规定，以及家庭必须满足的标准才能获得免费午餐。”</p><p class="sc-77igqf-0 bOfvBY">所以，给你的代表发个信息(或者给他们打个电话！)并让他们知道有改变的可能。午餐羞辱不应该存在，但当我们走向 2020 年时，<em>应该成为一个必要的话题。</em></p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><em> <small>更多来自 Lifehacker，一定要在 Instagram 上关注我们</small></em><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.instagram.com/lifehackerdotcom/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.instagram.com/lifehackerdotcom/" target="_blank" rel="noopener noreferrer"><em><small>@ lifehackerdotcom</small></em></a></span><em><small>。</small> </em> <br/></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1138215396199321600&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1138215396199321600&autosize=1) 
+
+最后，联系你当地的国会代表，提出学校午餐债务的问题；这对他们来说并不奇怪，但是力量来自于数字(和大量的电话)。正如 [Civil Eats](https://civileats.com/2019/05/21/can-we-stop-kids-from-being-shamed-over-school-lunch-debt/) 所写，今年晚些时候，国会还将重新授权影响全国学校午餐的儿童营养计划。这些项目最后一次被重新授权是在 2010 年，并没有明确解决当前的午餐债务问题。
+
+“在儿童营养重新授权过程中，国会有机会改变一些增加学生午餐债务的规定，”纳德拉·尼特尔写道。“它可能会改变学校报销学生餐的方式，哪些地区有资格获得社区资格规定，以及家庭必须满足的标准才能获得免费午餐。”
+
+所以，给你的代表发个信息(或者给他们打个电话！)并让他们知道有改变的可能。午餐羞辱不应该存在，但当我们走向 2020 年时，*应该成为一个必要的话题。*
+
+* * *
+
+*<small>更多来自 Lifehacker，一定要在 Instagram 上关注我们</small>*[*<small>@ lifehackerdotcom</small>*](https://www.instagram.com/lifehackerdotcom/)*<small>。</small>*

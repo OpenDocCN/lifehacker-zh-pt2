@@ -1,10 +1,10 @@
 # 你对感恩的误解是什么
 
-> 原文：<https://lifehacker.com/what-youre-getting-wrong-about-gratitude-1834306532>
+> 原文:[https://life hacker . com/what-you-get-error-about-感恩-1834306532](https://lifehacker.com/what-youre-getting-wrong-about-gratitude-1834306532)
 
 当我们还是个孩子的时候，我们学到的关于礼貌的第一件事就是尽早地、经常地使用“请”和“谢谢”。但是我们没有教对，因为每个人都做错了，而且他们做错的方式多种多样。所以这里有一个复习，关于如何*而不是*有效地表达真正的感谢。
 
-
+Watch
 
 ### 说“谢谢”并不总是让你看起来心存感激
 
@@ -34,4 +34,16 @@
 
 不对。人类是以自我为中心的。还记得乔伊·崔比昂尼让我们相信世上没有好事吗？
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-ahDxg3hc5pM&amp;start=0" data-chomp-id="ahDxg3hc5pM" data-recommend-id="youtube://ahDxg3hc5pM" id="youtube-ahDxg3hc5pM" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="ahDxg3hc5pM" data-recommend-id="youtube://ahDxg3hc5pM" id="youtube-ahDxg3hc5pM" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">事实证明，<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://hbr.org/2016/06/stop-making-gratitude-all-about-you&quot;,{&quot;metric25&quot;:1}]]" href="https://hbr.org/2016/06/stop-making-gratitude-all-about-you" target="_blank" rel="noopener noreferrer">的研究支持了</a> </span>的观点。我们做好事让自己对<em>感觉更好:</em></p><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">是的，你的帮助者希望你快乐，但是乐于助人的动机通常与我们的自我价值感直接相关。我们提供帮助是因为我们想成为好人，实现我们的目标和价值观，并且，不可否认的是，想要被人钦佩。</p></blockquote><p class="sc-77igqf-0 bOfvBY">所以，当你感谢某人时，使用“<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://journals.sagepub.com/doi/pdf/10.1177/1948550616651681&quot;,{&quot;metric25&quot;:1}]]" href="https://journals.sagepub.com/doi/pdf/10.1177/1948550616651681" target="_blank" rel="noopener noreferrer">其他——赞美</a> </span>”这样的短语更侧重于承认和肯定给予者的行为。不要说“谢谢你，这真的让我的一天轻松多了”，而要说“谢谢你特意去……”或者不要说“这让我很开心”，而要说“你很擅长……”</p><p class="sc-77igqf-0 bOfvBY">想想送礼者的行为和它对他们的评价，而不是那些行为给你的感觉。(然后在你的感恩日记中写下这件事让你有什么感受。)</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><small> <em>更多来自 Lifehacker，一定要在 Instagram 上关注我们</em></small><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.instagram.com/lifehackerdotcom/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.instagram.com/lifehackerdotcom/" target="_blank" rel="noopener noreferrer"><small><em>@ lifehackerdotcom</em></small></a></span><small><em>。</em> </small> <br/></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-ahDxg3hc5pM&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-ahDxg3hc5pM&start=0) 
+
+事实证明， [的研究支持了](https://hbr.org/2016/06/stop-making-gratitude-all-about-you) 的观点。我们做好事让自己对*感觉更好:*
+
+> 是的，你的帮助者希望你快乐，但是乐于助人的动机通常与我们的自我价值感直接相关。我们提供帮助是因为我们想成为好人，实现我们的目标和价值观，并且，不可否认的是，想要被人钦佩。
+
+所以，当你感谢某人时，使用“ [其他——赞美](https://journals.sagepub.com/doi/pdf/10.1177/1948550616651681) ”这样的短语更侧重于承认和肯定给予者的行为。不要说“谢谢你，这真的让我的一天轻松多了”，而要说“谢谢你特意去……”或者不要说“这让我很开心”，而要说“你很擅长……”
+
+想想送礼者的行为和它对他们的评价，而不是那些行为给你的感觉。(然后在你的感恩日记中写下这件事让你有什么感受。)
+
+* * *
+
+<small>*更多来自 Lifehacker，一定要在 Instagram 上关注我们*</small>[<small>*@ lifehackerdotcom*</small>](https://www.instagram.com/lifehackerdotcom/)<small>*。*</small>

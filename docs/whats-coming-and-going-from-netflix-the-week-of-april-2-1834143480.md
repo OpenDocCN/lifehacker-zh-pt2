@@ -1,7 +1,50 @@
 # 2019 年 4 月 22 日这一周，网飞有哪些活动
 
-> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-april-2-1834143480>
+> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week-of-April-2-1834143480](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-april-2-1834143480)
 
 无论在这场灾难性的变幻莫测的*中发生了什么，我认为你应该和蒂姆·罗宾逊*(周二 ) 一起离开，这既令人恐惧又耐人寻味，这也是本周你在网飞能做的最好的事情。据称，这是一部由喜剧中心 *Detroiters* 的《孤岛》为您带来的喜剧小品(我一定是看多了《网飞》，因为这是我第一次听说这部剧)。像瓦妮莎·贝尔和威尔·福特这样的 SNL 校友也出现了，我听说这个系列的特色是在加菲猫主题的房子里进行干预。如果你厌倦了成人游泳或迷幻药，这是给你的。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-vrZkGgoVSFk&amp;start=0" data-chomp-id="vrZkGgoVSFk" data-recommend-id="youtube://vrZkGgoVSFk" id="youtube-vrZkGgoVSFk" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="vrZkGgoVSFk" data-recommend-id="youtube://vrZkGgoVSFk" id="youtube-vrZkGgoVSFk" data-recommended="false" class="js_recommend"/></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h296860"><strong>本周到达</strong></h3><h4 class="sc-1bwb26k-1 kpbNNd" id="h296861"><strong>4 月 22 日星期一</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80175934&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80175934" target="_blank" rel="noopener noreferrer"><em>Pinky Malinky:Part 2</em></a></span><em>(系列)</em></li><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80194558&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80194558" target="_blank" rel="noopener noreferrer"><em/></a></span><em>-新剧集(连续剧)</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h296862"><strong>4 月 23 日星期二</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>我觉得你应该和蒂姆·罗宾逊(网飞系列)一起离开</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h296863"><strong>4 月 24 日星期三</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>粘合(网飞系列)</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h296864"><strong>4 月 25 日星期四</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>可恶的八:扩展版</em></li><li><em>丑陋的真相</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h296865">4 月 26 日星期五</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80189829&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80189829" target="_blank" rel="noopener noreferrer"> <em>《保护者》:第二季</em> </a> </span> <em>(系列)</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80191049&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80191049" target="_blank" rel="noopener noreferrer"> <em>重制版:十字路口的恶魔</em> </a> </span> <em>(系列)</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80179762&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80179762" target="_blank" rel="noopener noreferrer"> <em> She-Ra 与权力公主:第二季</em> </a> </span> <em>(系列)</em></li><li><em>街头美食(网飞系列)</em></li><li><em>蓝宝石</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80238711&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80238711" target="_blank" rel="noopener noreferrer"> <em>美国佬</em> </a> </span> <em>(系列)</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h296866">4 月 27 日星期六</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>美国蜂蜜</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h296867"><strong>4 月 28 日星期日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>女士钢材:第 5 季</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h296868">这周离开</h3><p class="sc-77igqf-0 bOfvBY">什么都没有离开。一切都会好起来的！</p><div class="bxm4mm-2 hKBnez"><div class="bxm4mm-1 goloRq instream-native-video instream-permalink instream-native-video--mobile"><div class="sc-1h0epat-0 lepUzz"><div class="sc-1h0epat-1 gRjwiT"><div class="sc-235a11-0 egwski">Watch</div></div><div class="sc-1wkneyl-0 hxLRyg video-html5-playlist" data-playlist="192590,192585,192428" data-current="192590"><div class="video-html5-loaded"><div class="video-html5-player"><div class="lhhce6-0 bVyOPq video-html5 autoplay muted mobile" data-video-id="192590" data-position="sidebar" data-video-title="How to Make a Quick and Easy Crumb Crust" data-video-network="lifehacker" data-video-duration="135"></div></div></div></div></div></div></div><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><div id="mgid-container" data-placement="2" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-vrZkGgoVSFk&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-vrZkGgoVSFk&start=0) 
+
+### **本周到达**
+
+#### **4 月 22 日星期一**
+
+*   [*Pinky Malinky:Part 2*](https://www.netflix.com/title/80175934)*(系列)*
+*   [](https://www.netflix.com/title/80194558)**-新剧集(连续剧)**
+
+#### ***4 月 23 日星期二***
+
+*   **我觉得你应该和蒂姆·罗宾逊(网飞系列)一起离开**
+
+#### ***4 月 24 日星期三***
+
+*   **粘合(网飞系列)**
+
+#### ***4 月 25 日星期四***
+
+*   **可恶的八:扩展版**
+*   **丑陋的真相**
+
+#### *4 月 26 日星期五*
+
+*   *[*《保护者》:第二季*](https://www.netflix.com/title/80189829) *(系列)**
+*   *[*重制版:十字路口的恶魔*](https://www.netflix.com/title/80191049) *(系列)**
+*   *[*She-Ra 与权力公主:第二季*](https://www.netflix.com/title/80179762) *(系列)**
+*   **街头美食(网飞系列)**
+*   **蓝宝石**
+*   *[*美国佬*](https://www.netflix.com/title/80238711) *(系列)**
+
+#### *4 月 27 日星期六*
+
+*   **美国蜂蜜**
+
+#### ***4 月 28 日星期日***
+
+*   **女士钢材:第 5 季**
+
+### *这周离开*
+
+*什么都没有离开。一切都会好起来的！*
+
+*Watch*

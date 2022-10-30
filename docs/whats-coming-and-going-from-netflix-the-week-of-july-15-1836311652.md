@@ -1,11 +1,44 @@
 # 2019 年 7 月 15 日这一周，网飞有哪些活动
 
-> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-july-15-1836311652>
+> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of July-15-1836311652](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-july-15-1836311652)
 
 杰瑞·宋飞又回到了许多豪华车的车轮后面(它看起来像一辆轻便摩托车？)随着下一集*喜剧演员坐在车里喝咖啡*在周五落下帷幕。布里奇特·埃弗雷特、艾迪·墨菲、马修·布罗德里克、杰米·福克斯和塞斯·罗根都是这一次无害的低承诺泡沫的一部分。如果你喜欢稍微庄重一点的，我可以建议你看《T2:酷儿眼:第四季(也是周五)，在这部剧中，五人组将饰演乔纳森的高中乐队老师吗？
 
-
+Watch
 
 如果你讨厌所有这些选项， [我强烈推荐一个英国程序](https://lifehacker.com/heres-what-to-watch-when-its-hot-as-hell-and-you-refuse-1836225893) 来享受高质量的空调盛宴。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-9du4v9_8PRA&amp;start=0" data-chomp-id="9du4v9_8PRA" data-recommend-id="youtube://9du4v9_8PRA" id="youtube-9du4v9_8PRA" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="9du4v9_8PRA" data-recommend-id="youtube://9du4v9_8PRA" id="youtube-9du4v9_8PRA" data-recommended="false" class="js_recommend"/></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h174107"><strong>本周抵达</strong> <br/></h3><h4 class="sc-1bwb26k-1 kpbNNd" id="h174108"><strong>7 月 16 日星期二</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>分手</em></li><li><em>公主和青蛙</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81003981&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81003981" target="_blank" rel="noopener noreferrer"> <em>科学怪人的怪物，科学怪人</em> </a> </span> <em> —网飞原创</em></li><li><em> Wynonna Earp:第三季</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h174109">7 月 17 日星期三</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80175934&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80175934" target="_blank" rel="noopener noreferrer"> <em> Pinky Malinky:第三部</em> </a> </span> <em> —网飞家族</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h174110">7 月 18 日星期四</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>秘密的执念——网飞电影</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h174111">7 月 19 日星期五</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80171362&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80171362" target="_blank" rel="noopener noreferrer"> <em>汽车里喝咖啡的喜剧演员:新 2019:现磨</em> </a> </span> <em> —网飞原创</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80179782&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80179782" target="_blank" rel="noopener noreferrer"> <em>《裤衩队长传奇》:第三季</em> </a> </span> <em> —网飞家族</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80192098&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80192098" target="_blank" rel="noopener noreferrer"> <em>《纸牌屋:第三部</em> </a> </span> <em> —网飞原著</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/lastchanceu&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/lastchanceu" target="_blank" rel="noopener noreferrer"> <em>最后的机会 U: INDY: Part 2 </em> </a> </span> <em> —网飞原创</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80160037&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80160037" target="_blank" rel="noopener noreferrer"> <em>酷儿眼:第四季</em> </a> </span> <em> —网飞原著</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80186926&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80186926" target="_blank" rel="noopener noreferrer"> <em>圣斗士星矢:十二生肖骑士</em> </a> </span> <em> —网飞动漫</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80996338&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80996338" target="_blank" rel="noopener noreferrer"> <em>打字机</em> </a></span></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h174112">这周离开</h3><h4 class="sc-1bwb26k-1 kpbNNd" id="h174113"><strong>7 月 16 日出发</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>美国黑帮</em></li></ul><div id="mgid-container" data-placement="2" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-9du4v9_8PRA&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-9du4v9_8PRA&start=0) 
+
+### **本周抵达**
+
+#### **7 月 16 日星期二**
+
+*   *分手*
+*   *公主和青蛙*
+*   [*科学怪人的怪物，科学怪人*](https://www.netflix.com/title/81003981) *—网飞原创*
+*   *Wynonna Earp:第三季*
+
+#### 7 月 17 日星期三
+
+*   [*Pinky Malinky:第三部*](https://www.netflix.com/title/80175934) *—网飞家族*
+
+#### 7 月 18 日星期四
+
+*   *秘密的执念——网飞电影*
+
+#### 7 月 19 日星期五
+
+*   [*汽车里喝咖啡的喜剧演员:新 2019:现磨*](https://www.netflix.com/title/80171362) *—网飞原创*
+*   [*《裤衩队长传奇》:第三季*](https://www.netflix.com/title/80179782) *—网飞家族*
+*   [*《纸牌屋:第三部*](https://www.netflix.com/title/80192098) *—网飞原著*
+*   [*最后的机会 U: INDY: Part 2*](http://www.netflix.com/lastchanceu) *—网飞原创*
+*   [*酷儿眼:第四季*](https://www.netflix.com/title/80160037) *—网飞原著*
+*   [*圣斗士星矢:十二生肖骑士*](https://www.netflix.com/title/80186926) *—网飞动漫*
+*   [*打字机*](https://www.netflix.com/title/80996338)
+
+### 这周离开
+
+#### **7 月 16 日出发**
+
+*   *美国黑帮*

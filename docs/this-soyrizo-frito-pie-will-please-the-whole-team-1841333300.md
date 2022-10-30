@@ -1,10 +1,8 @@
-# this soyrizo frito pie will please the whole team 1841333300
-
-> 原文：<https://lifehacker.com/this-soyrizo-frito-pie-will-please-the-whole-team-1841333300>
+> 原文:[https://life hacker . com/this-soy rizo-frito-pie-will-please-the-all-team-1841333300](https://lifehacker.com/this-soyrizo-frito-pie-will-please-the-whole-team-1841333300)
 
 一般来说，我并不喜欢那些试图模仿“真实”东西的肉类替代品。蔬菜不是肉，也永远不会是肉，这没关系。话虽如此，我还是想马上反驳自己，为假肉技术的极致唱赞歌:塑料管里的 soyrizo。这一类别中的其他佼佼者——、各种形式的豆腐和晨星素食香肠馅饼——可能因其自身的优点而美味，但你绝不会将它们误认为动物产品。然而，Soyrizo 自成一派。在某种程度上，你可以将素食肉冒充成动物肉，强烈的蒜味，霓虹橙大豆酱完全搞定了它。
 
-
+<label class="bxm4mm-13 juykRM">Advertisement</label>
 
 所有这些使得 soyrizo 成为聚会小吃的完美基地，不管谁在参加聚会，也不管他们喜欢吃什么。纯素食主义者和素食主义者已经知道发生了什么，但这一次，毫不夸张地说，肉食者可能不知道他们没有吃猪肉。(对大豆过敏的人肯定想避免，尽管，所以记住这一点。)如果你这个周末要举办一场超级碗派对，需要取悦有各种不同饮食限制的客人，我认为没有什么比 soyrizo Frito pie 更好的了。
 
@@ -12,4 +10,38 @@
 
 如果你觉得包包有点恶心，你并不孤单。已故的传奇人物和偶像安东尼·鲍代恩在新墨西哥被招待吃油炸饼时，用令人不安的准确性总结了这次经历:“ [感觉就像你在袋子里装着温热的大便。](https://skillet.lifehacker.com/how-to-make-a-vegan-roast-youll-actually-want-to-eat-1830335306)
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-8TvL-Wg81oE&amp;start=0" data-chomp-id="8TvL-Wg81oE" data-recommend-id="youtube://8TvL-Wg81oE" id="youtube-8TvL-Wg81oE" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="8TvL-Wg81oE" data-recommend-id="youtube://8TvL-Wg81oE" id="youtube-8TvL-Wg81oE" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">我不能否认托尼的评价，但是这个包的优点远远超过缺点。用单独的手持包裹提供本质上是蘸酱的食物，这意味着没有人会试图将完美量的蘸酱舀到薄薄的纸盘上。这也不鼓励双蘸和蘸猪-每个党有蘸猪；这是一个事实——消除了从芯片到盘子再到嘴的过程中不可避免的溢出。最重要的是，我怎么强调都不为过，法式馅饼刘海。断言干酪辣酱浇在去骨的玉米坚果上味道很好并不完全是开创性的，但有时整体超过了部分的总和。加入腌制的墨西哥胡椒、酸奶油，也许再撒上一点洋葱末，你就拥有了终极的派对小吃。<br/> <br/>如前所述，这显然不是素食主义者——但 soyrizo 和原味 Fritos 都是。对于一个完全不含动物产品的版本，你可以不吃乳制品，而吃双倍的通心粉和豆子。为那些想吃酸奶油和奶酪的人端上酸奶油和奶酪，纯素的或普通的。</p><p class="sc-77igqf-0 bOfvBY">要制作一大锅这种香辣、美味的奶酪酱，你需要:<br/><br/>2 汤匙中性油<br/>1 个 12 盎司包装的 soyrizo，从塑料管筒中取出<br/>1 个 10 盎司罐装番茄丁和青椒丁，如 Ro-Tel，或更多<br/>1 个 15 盎司罐装豆子，任何种类，沥干<br/>1 个 12 盎司罐装淡炼乳<br/>4 盎司奶油奶酪<br/>1 磅袋装碎奶酪， 任何种类<br/>辣酱的选择，品尝<br/>盐和味精，品尝<br/> <br/>如果使用速溶锅，在“更多”嫩煎设置上加热油； 如果使用慢炖锅，用中高火加热大锅中的油。加入 soyrizo 和布朗好，搅拌，以避免烧焦。加入炼乳和奶油奶酪。当奶油芝士完全融化后，慢慢加入袋装芝士丝搅拌。最后，倒入土豆和豆子，煨一下。用辣酱、盐和/或味精调味。</p><div class="bxm4mm-12 dFBBhS js_movable_ad_slot"><div class="bxm4mm-14 gFcZLy"><div is="bulbs-dfp" class="ad-container dfp dfp-slot-MID_BANNER ad-middleboard" data-ad-unit="MID_BANNER" data-targeting="{&quot;pos&quot;:&quot;mid_banner&quot;}"/><div class="bt-wrapper"><span data-uid="5d1b8a6cd5-384" class="bt-uid-tg" style="display:none !important;text-align:center" data-css-selector="ad-container.ad-middleboard"/></div></div></div><p class="sc-77igqf-0 bOfvBY">把你的速食锅调到“慢煮”档，根据你需要保温的时间设定烹饪时间。(对于普通的慢炖锅，将锅里的东西转移到慢炖锅的插入物中，并将温度设置为低。)它需要不时地搅拌，但它应该保持温暖而不会分离长达六到八个小时。</p><p class="sc-77igqf-0 bOfvBY">在你的客人到达之前，在速食锅或慢炖锅附近安排一个可爱的浇头自助餐。以下是我用过的东西:<br/><br/>·零食大小的油炸玉米片或其他玉米片袋<br/>·酸奶油<br/>·更多的奶酪<br/>·切碎的红洋葱<br/>·腌制的墨西哥胡椒<br/>·切碎的芫荽叶<br/>·勺子，显然是<br/> <br/>如果你能找到的只是一包多力多滋，别担心——我调查了<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://skillet.lifehacker.com/build-your-nachos-on-doritos-1832164510&quot;,{&quot;metric25&quot;:1}]]" href="https://skillet.lifehacker.com/build-your-nachos-on-doritos-1832164510">酷牧场<em>和</em>玉米片奶酪多力多滋令人震惊，我知道。</a></span></p></div> </body> </html></iframe>
+<label class="bxm4mm-13 juykRM">Advertisement</label> [https://lifehacker.com/embed/inset/iframe?id=youtube-video-8TvL-Wg81oE&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-8TvL-Wg81oE&start=0) 
+
+我不能否认托尼的评价，但是这个包的优点远远超过缺点。用单独的手持包裹提供本质上是蘸酱的食物，这意味着没有人会试图将完美量的蘸酱舀到薄薄的纸盘上。这也不鼓励双蘸和蘸猪-每个党有蘸猪；这是一个事实——消除了从芯片到盘子再到嘴的过程中不可避免的溢出。最重要的是，我怎么强调都不为过，法式馅饼刘海。断言干酪辣酱浇在去骨的玉米坚果上味道很好并不完全是开创性的，但有时整体超过了部分的总和。加入腌制的墨西哥胡椒、酸奶油，也许再撒上一点洋葱末，你就拥有了终极的派对小吃。
+
+如前所述，这显然不是素食主义者——但 soyrizo 和原味 Fritos 都是。对于一个完全不含动物产品的版本，你可以不吃乳制品，而吃双倍的通心粉和豆子。为那些想吃酸奶油和奶酪的人端上酸奶油和奶酪，纯素的或普通的。
+
+要制作一大锅这种香辣、美味的奶酪酱，你需要:
+
+2 汤匙中性油
+1 个 12 盎司包装的 soyrizo，从塑料管筒中取出
+1 个 10 盎司罐装番茄丁和青椒丁，如 Ro-Tel，或更多
+1 个 15 盎司罐装豆子，任何种类，沥干
+1 个 12 盎司罐装淡炼乳
+4 盎司奶油奶酪
+1 磅袋装碎奶酪， 任何种类
+辣酱的选择，品尝
+盐和味精，品尝
+
+如果使用速溶锅，在“更多”嫩煎设置上加热油； 如果使用慢炖锅，用中高火加热大锅中的油。加入 soyrizo 和布朗好，搅拌，以避免烧焦。加入炼乳和奶油奶酪。当奶油芝士完全融化后，慢慢加入袋装芝士丝搅拌。最后，倒入土豆和豆子，煨一下。用辣酱、盐和/或味精调味。
+
+<label class="bxm4mm-13 juykRM">Advertisement</label>
+
+把你的速食锅调到“慢煮”档，根据你需要保温的时间设定烹饪时间。(对于普通的慢炖锅，将锅里的东西转移到慢炖锅的插入物中，并将温度设置为低。)它需要不时地搅拌，但它应该保持温暖而不会分离长达六到八个小时。
+
+在你的客人到达之前，在速食锅或慢炖锅附近安排一个可爱的浇头自助餐。以下是我用过的东西:
+
+·零食大小的油炸玉米片或其他玉米片袋
+·酸奶油
+·更多的奶酪
+·切碎的红洋葱
+·腌制的墨西哥胡椒
+·切碎的芫荽叶
+·勺子，显然是
+
+如果你能找到的只是一包多力多滋，别担心——我调查了 [酷牧场*和*玉米片奶酪多力多滋令人震惊，我知道。](https://skillet.lifehacker.com/build-your-nachos-on-doritos-1832164510)

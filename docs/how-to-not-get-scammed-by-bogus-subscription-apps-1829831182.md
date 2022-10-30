@@ -1,10 +1,10 @@
 # 如何不被虚假订阅应用欺骗
 
-> 原文：<https://lifehacker.com/how-to-not-get-scammed-by-bogus-subscription-apps-1829831182>
+> 原文:[https://life hacker . com/how-to-not-get-scammed-by-dog-subscription-apps-1829831182](https://lifehacker.com/how-to-not-get-scammed-by-bogus-subscription-apps-1829831182)
 
 在科技地狱里，有一个专门的角落留给了那些试图引诱人们为一个不起眼的产品支付巨额费用的应用程序开发人员。
 
-
+Watch
 
 我说的不是那种因为你最喜欢的乐队的专辑从 Spotify 上掉了下来而生气的情况。如果必须的话，退出服务。没问题。相反，我指的是 [正在进行的](https://techcrunch.com/2018/10/15/sneaky-subscriptions-are-plaguing-the-app-store/) 诈骗或可疑应用程序提供常见功能订阅的问题。或者，更糟糕的是，应用程序开发商提供超短的“免费试用”，自动转换为订阅，直到你被账单卡住时，你才意识到这一点。
 
@@ -44,4 +44,4 @@ Scammy 应用喜欢显示暗示你*必须*注册订阅才能继续使用应用�
 
 根据应用程序显示订阅提示的方式(以及一些人如何点击错误的按钮来“关闭”它，最终导致他们注册订阅)，创作者展示了应用程序可以欺骗你注册一些你可能没有打算注册的东西的许多不同方式。尽管这个视频是为 iOS 用户准备的，但作为一个消息灵通的 Android 粉丝，这并无大碍。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-KYRJhLRUUho&amp;start=0" data-chomp-id="KYRJhLRUUho" data-recommend-id="youtube://KYRJhLRUUho" id="youtube-KYRJhLRUUho" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="KYRJhLRUUho" data-recommend-id="youtube://KYRJhLRUUho" id="youtube-KYRJhLRUUho" data-recommended="false" class="js_recommend"/></span></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-KYRJhLRUUho&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-KYRJhLRUUho&start=0)

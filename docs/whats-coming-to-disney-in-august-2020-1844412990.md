@@ -1,6 +1,6 @@
 # 2020 年 8 月迪士尼+要来什么
 
-> 原文：<https://lifehacker.com/whats-coming-to-disney-in-august-2020-1844412990>
+> 原文:[https://life hacker . com/whats-coming-to-Disney-in-August-2020-1844412990](https://lifehacker.com/whats-coming-to-disney-in-august-2020-1844412990)
 
 2020 年，迪士尼在商业、媒体和文化领域是一股无处不在的力量，很难想象它曾经不是世界上最强大的品牌之一。但是回到 20 世纪 80 年代，华特建造的工作室陷入了困境——尽管迪士尼世界从来就不是地球上最快乐的地方(嗯， [也许除了现在的](https://boingboing.net/2020/07/15/disneys-reopening-video-but.html) )，几十年前，该公司的电影是一场灾难，其曾经传奇的动画部门 [无法制作出一部热门作品](https://www.denofgeek.com/movies/exploring-disneys-fascinating-dark-phase-of-the-70s-and-80s/) ，其不断下跌的股票使其 [成为主要的收购目标](https://www.douglipp.com/blog/when-mickey-mouse-nearly-died-how-it-saved-the-walt-disney-company/) 。
 
@@ -8,4 +8,56 @@
 
 查看以下纪录片的预告片；这部电影将于 8 月 7 日在 Disney+上首映。](https://en.wikipedia.org/wiki/Disney_Renaissance)
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-8QxEh4iadnw&amp;start=0" data-chomp-id="8QxEh4iadnw" data-recommend-id="youtube://8QxEh4iadnw" id="youtube-8QxEh4iadnw" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="8QxEh4iadnw" data-recommend-id="youtube://8QxEh4iadnw" id="youtube-8QxEh4iadnw" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">以下是 2020 年 8 月即将登陆 Disney+的所有内容。<br/></p><h3 class="sc-1bwb26k-1 kpbNNd" id="h292759"><strong>8 月有新集落下的剧集</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>迪士尼家庭周日</em>(系列大结局)</li><li>和比尔·法玛尔过着狗一样的生活</li><li><em>布偶现在</em></li><li><em>在迪士尼的一天</em></li><li><em>现实生活中的皮克斯</em></li><li>怪异却真实！</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h292760"><strong>8 月 7 日星期五上市</strong></h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>中国隐藏的王国</em></li><li>霍华德(迪士尼+首映)</li><li><em>波斯王子:时间之沙</em></li><li><em>星球大战银河边缘:冒险等待着你</em></li><li><em>花生电影</em></li><li><em> UFO 欧洲:不为人知的故事(S1) </em></li><li><em> X 战警</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h292761">8 月 14 日星期五</h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>阿拉斯加动物救援 (S1)</li><li><em>蚁人 2：黄蜂女现身</em></li><li><em>印度的野生豹子</em></li><li><em>丛林动物救援</em> (S1)</li><li><em>魔术营</em>(迪士尼+首映)</li><li><em>自然繁荣时间</em> (S1)</li><li>独一无二的伊凡(迪士尼+首映)</li><li>山姆动物园管理员挑战赛 (S1)</li><li><em>斯库巴山姆的世界</em> (S1)</li><li><em>魂不守舍</em> (S1)</li><li><em> T.O.T.S </em>。(S1)</li><li><em>最伟大的表演者</em></li><li>印度野猫 (S1)</li><li><em>僵尸 2 </em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h292762">8 月 21 日星期五</h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>回到泰坦尼克号</em></li><li><em>美女与野兽</em></li><li><em>火星:红色星球</em>上的一天<br/></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h292763">8 月 28 日星期五</h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>爱丽丝透过镜子</em></li><li><em>神奇四侠</em></li><li>电影:坎迪斯对抗宇宙</li></ul><div class="bxm4mm-2 hKBnez"><div class="bxm4mm-1 goloRq instream-native-video instream-permalink instream-native-video--mobile"><div class="sc-1h0epat-0 lepUzz"><div class="sc-1h0epat-1 gRjwiT"><div class="sc-235a11-0 egwski">Watch</div></div><div class="sc-1wkneyl-0 hxLRyg video-html5-playlist" data-playlist="192590,192585,192428" data-current="192590"><div class="video-html5-loaded"><div class="video-html5-player"><div class="lhhce6-0 bVyOPq video-html5 autoplay muted mobile" data-video-id="192590" data-position="sidebar" data-video-title="How to Make a Quick and Easy Crumb Crust" data-video-network="lifehacker" data-video-duration="135"></div></div></div></div></div></div></div><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><div id="mgid-container" data-placement="2" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-8QxEh4iadnw&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-8QxEh4iadnw&start=0) 
+
+以下是 2020 年 8 月即将登陆 Disney+的所有内容。
+
+### **8 月有新集落下的剧集**
+
+*   *迪士尼家庭周日*(系列大结局)
+*   和比尔·法玛尔过着狗一样的生活
+*   *布偶现在*
+*   *在迪士尼的一天*
+*   *现实生活中的皮克斯*
+*   怪异却真实！
+
+### **8 月 7 日星期五上市**
+
+*   *中国隐藏的王国*
+*   霍华德(迪士尼+首映)
+*   *波斯王子:时间之沙*
+*   *星球大战银河边缘:冒险等待着你*
+*   *花生电影*
+*   *UFO 欧洲:不为人知的故事(S1)*
+*   *X 战警*
+
+### 8 月 14 日星期五
+
+*   阿拉斯加动物救援 (S1)
+*   *蚁人 2：黄蜂女现身*
+*   *印度的野生豹子*
+*   *丛林动物救援* (S1)
+*   *魔术营*(迪士尼+首映)
+*   *自然繁荣时间* (S1)
+*   独一无二的伊凡(迪士尼+首映)
+*   山姆动物园管理员挑战赛 (S1)
+*   *斯库巴山姆的世界* (S1)
+*   *魂不守舍* (S1)
+*   *T.O.T.S* 。(S1)
+*   *最伟大的表演者*
+*   印度野猫 (S1)
+*   *僵尸 2*
+
+### 8 月 21 日星期五
+
+*   *回到泰坦尼克号*
+*   *美女与野兽*
+*   *火星:红色星球*上的一天
+
+### 8 月 28 日星期五
+
+*   *爱丽丝透过镜子*
+*   *神奇四侠*
+*   电影:坎迪斯对抗宇宙
+
+Watch

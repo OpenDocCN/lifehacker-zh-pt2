@@ -1,10 +1,10 @@
 # 如何避免应用程序中的指纹骗局
 
-> 原文：<https://lifehacker.com/how-to-avoid-fingerprint-scams-in-apps-1830877641>
+> 原文:[https://life hacker . com/how-to-avoid-fingerprint-scams-in-apps-1830877641](https://lifehacker.com/how-to-avoid-fingerprint-scams-in-apps-1830877641)
 
 当一个应用程序允许你添加额外的安全性时，这是很棒的——例如，指纹扫描或面部深度图——以访问其内容。万一有人得到了你解锁的设备(或者猜出了你的 PIN 码)，如果他们没有你的手指或 [的脸](https://www.youtube.com/watch?v=_zQ3K-ylk-4) 在附近，他们访问关键应用程序，比如你的银行应用程序，将会更加棘手。
 
-
+Watch
 
 不太妙的是，当 scammy 应用程序试图使用你的设备的安全功能来欺骗你。正如 [Engadget](https://www.engadget.com/2018/12/04/app-store-scammers-touch-id/) 最近报道的那样，这正是最近在一些 iOS 应用中发生的事情。(我们认为，Android 也是如此，因为没有一个平台能幸免于那些想利用易受骗的用户快速赚钱的人。)
 
@@ -12,4 +12,36 @@
 
 让我们来看看 iOS 版的“健身平衡”应用程序，这款应用程序已经从 App Store 下架。该应用程序会弹出一个屏幕，要求你“扫描你的指纹，以查看个人卡路里跟踪器和饮食。”一个小小的倒计时器也会开始，没有任何理由。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1068222012059860992&amp;autosize=1" autoresize="true" id="twitter-1068222012059860992" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">你的脑海中应该响起一个小小的警报，因为这个请求听起来非常可疑(而且语法不正确——这是这个“功能”可能并不那么有用的另一个迹象)。请求本身不是标准的系统提示，这是第二个危险信号。那个倒计时器呢？当被要求使用指纹或面部进行身份验证时，你可能从未遇到过这种情况。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">点击上面的嵌入视频，你会看到这个骗局是如何运作的。当你的指纹被“扫描”时，应用程序会弹出一个支付窗口，用于应用内购买。因为你已经把手指放在了智能手机的阅读器上，你会同意购买——仅仅 120 美元。呀。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h296449">如何抵御恼人的应用程序诈骗</h3><p class="sc-77igqf-0 bOfvBY">总会有一些新的骗局让你担心。然而，在使用新的应用程序时，有一些通用的提示你应该考虑，以更好地保护自己免受那些寻求快速赚钱的不受欢迎的开发者的攻击。</p><p class="sc-77igqf-0 bOfvBY"><strong>如果看起来或感觉怪异，不要做</strong></p><p class="sc-77igqf-0 bOfvBY">如果你已经使用智能手机相当长的时间，你应该习惯于标准的惯例:你如何支付应用程序或应用内购买，当你使用你的设备的指纹或面部识别功能时，提示看起来像什么，应用程序(或你的操作系统)何时何地要求你使用你的手指或面部登录，等等。</p><p class="sc-77igqf-0 bOfvBY">如果一个应用程序建议的程序看起来有点不对劲——比如长时间按住智能手机的指纹传感器，而这通常只是快速按压——你应该小心行事。如果一个应用程序希望你以不同的方式持续按下手指以“注册”你的指纹，即使你已经在 Android 或 iOS 中这样做了，或者如果应用程序在要求你验证时没有使用系统提示，也是如此。</p><p class="sc-77igqf-0 bOfvBY"><strong>阅读。的。评论。</strong></p><p class="sc-77igqf-0 bOfvBY">每当你想尝试新的应用程序时，一定要阅读评论。不要只看评论，想想他们在说什么。如果一个应用程序有 15 个五星评价，看起来都很普通，或者更糟糕的是，听起来有点垃圾，那么它们很可能是不合法的。这并不意味着你不应该下载该应用程序，但你会想保持警惕，以确保你确实获得了该应用程序承诺的体验。小心诱饵调包、<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://lifehacker.com/how-to-not-get-scammed-by-bogus-subscription-apps-1829831182&quot;,{&quot;metric25&quot;:1}]]" href="https://lifehacker.com/how-to-not-get-scammed-by-bogus-subscription-apps-1829831182">高价订阅</a> </span>，或者前面提到的“被骗去买了一个非常贵的内购”问题。</p><p class="sc-77igqf-0 bOfvBY">事实上，在下载之前，你应该能够在 App Store 和 Google Play 上<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://lifehacker.com/how-to-find-an-ios-apps-in-app-purchases-before-you-buy-1830080008&quot;,{&quot;metric25&quot;:1}]]" href="https://lifehacker.com/how-to-find-an-ios-apps-in-app-purchases-before-you-buy-1830080008">查看一个应用的应用内购买</a> </span>。如果一个应用程序像 IAP 一样提供一些非常昂贵的一次性购买，而且这不是很有意义的事情——例如，为医疗参考应用程序中的额外内容付费——你应该感到担心。</p><p class="sc-77igqf-0 bOfvBY"><strong>检查您的购买历史，并要求退款诈骗</strong></p><p class="sc-77igqf-0 bOfvBY">当你在<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://support.apple.com/en-us/HT204088&quot;,{&quot;metric25&quot;:1}]]" href="https://support.apple.com/en-us/HT204088" target="_blank" rel="noopener noreferrer"> iOS </a> </span>或<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://support.google.com/googleplay/answer/2850369?hl=en&quot;,{&quot;metric25&quot;:1}]]" href="https://support.google.com/googleplay/answer/2850369?hl=en" target="_blank" rel="noopener noreferrer"> Android </a> </span>上进行应用或应用内购买时，很容易看到。无论您何时消费，您都应该通过您帐户的主要电子邮件地址接收电子邮件。注意这些——或者定期检查你的购买历史——以确保你没有意外购买你不想买的东西。</p><p class="sc-77igqf-0 bOfvBY">如果发生这种情况，您可以向苹果公司(通过任何发票上的“<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://support.apple.com/en-us/HT204088&quot;,{&quot;metric25&quot;:1}]]" href="https://support.apple.com/en-us/HT204088" target="_blank" rel="noopener noreferrer">报告问题</a> </span>)或谷歌公司(通过您的订单历史<span>)申请退款。如果你显然是被骗购买的，只要你解释清楚，两家公司都应该退还你的购物款。你越早要求退款越好，所以确保你在购买应用程序或某种应用程序内内容时收到这些电子邮件。</span></p><p class="sc-77igqf-0 bOfvBY"><strong>禁止购买指纹或面部认证</strong></p><p class="sc-77igqf-0 bOfvBY">如果你真的想要安全，你可以选择输入一个又长又麻烦的密码，而不是用手指或面部来验证从 App Store 或 Google Play(或在你下载的应用内)购买的东西。这至少会给你一些额外的时间来确认你真的想买 app 想让你买的东西。</p><p class="sc-77igqf-0 bOfvBY">您可以在 iOS 设置应用程序中禁用 Face ID 和触控 ID 的购买功能。在 Android 上，在 Google Play 中调出设置菜单，寻找“指纹认证”选项。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1068222012059860992&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1068222012059860992&autosize=1) 
+
+你的脑海中应该响起一个小小的警报，因为这个请求听起来非常可疑(而且语法不正确——这是这个“功能”可能并不那么有用的另一个迹象)。请求本身不是标准的系统提示，这是第二个危险信号。那个倒计时器呢？当被要求使用指纹或面部进行身份验证时，你可能从未遇到过这种情况。
+
+点击上面的嵌入视频，你会看到这个骗局是如何运作的。当你的指纹被“扫描”时，应用程序会弹出一个支付窗口，用于应用内购买。因为你已经把手指放在了智能手机的阅读器上，你会同意购买——仅仅 120 美元。呀。
+
+### 如何抵御恼人的应用程序诈骗
+
+总会有一些新的骗局让你担心。然而，在使用新的应用程序时，有一些通用的提示你应该考虑，以更好地保护自己免受那些寻求快速赚钱的不受欢迎的开发者的攻击。
+
+**如果看起来或感觉怪异，不要做**
+
+如果你已经使用智能手机相当长的时间，你应该习惯于标准的惯例:你如何支付应用程序或应用内购买，当你使用你的设备的指纹或面部识别功能时，提示看起来像什么，应用程序(或你的操作系统)何时何地要求你使用你的手指或面部登录，等等。
+
+如果一个应用程序建议的程序看起来有点不对劲——比如长时间按住智能手机的指纹传感器，而这通常只是快速按压——你应该小心行事。如果一个应用程序希望你以不同的方式持续按下手指以“注册”你的指纹，即使你已经在 Android 或 iOS 中这样做了，或者如果应用程序在要求你验证时没有使用系统提示，也是如此。
+
+**阅读。的。评论。**
+
+每当你想尝试新的应用程序时，一定要阅读评论。不要只看评论，想想他们在说什么。如果一个应用程序有 15 个五星评价，看起来都很普通，或者更糟糕的是，听起来有点垃圾，那么它们很可能是不合法的。这并不意味着你不应该下载该应用程序，但你会想保持警惕，以确保你确实获得了该应用程序承诺的体验。小心诱饵调包、 [高价订阅](https://lifehacker.com/how-to-not-get-scammed-by-bogus-subscription-apps-1829831182) ，或者前面提到的“被骗去买了一个非常贵的内购”问题。
+
+事实上，在下载之前，你应该能够在 App Store 和 Google Play 上 [查看一个应用的应用内购买](https://lifehacker.com/how-to-find-an-ios-apps-in-app-purchases-before-you-buy-1830080008) 。如果一个应用程序像 IAP 一样提供一些非常昂贵的一次性购买，而且这不是很有意义的事情——例如，为医疗参考应用程序中的额外内容付费——你应该感到担心。
+
+**检查您的购买历史，并要求退款诈骗**
+
+当你在 [iOS](https://support.apple.com/en-us/HT204088) 或 [Android](https://support.google.com/googleplay/answer/2850369?hl=en) 上进行应用或应用内购买时，很容易看到。无论您何时消费，您都应该通过您帐户的主要电子邮件地址接收电子邮件。注意这些——或者定期检查你的购买历史——以确保你没有意外购买你不想买的东西。
+
+如果发生这种情况，您可以向苹果公司(通过任何发票上的“ [报告问题](https://support.apple.com/en-us/HT204088) )或谷歌公司(通过您的订单历史)申请退款。如果你显然是被骗购买的，只要你解释清楚，两家公司都应该退还你的购物款。你越早要求退款越好，所以确保你在购买应用程序或某种应用程序内内容时收到这些电子邮件。
+
+**禁止购买指纹或面部认证**
+
+如果你真的想要安全，你可以选择输入一个又长又麻烦的密码，而不是用手指或面部来验证从 App Store 或 Google Play(或在你下载的应用内)购买的东西。这至少会给你一些额外的时间来确认你真的想买 app 想让你买的东西。
+
+您可以在 iOS 设置应用程序中禁用 Face ID 和触控 ID 的购买功能。在 Android 上，在 Google Play 中调出设置菜单，寻找“指纹认证”选项。

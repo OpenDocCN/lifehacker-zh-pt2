@@ -1,10 +1,10 @@
 # 你可以在客厅进行的最佳间歇训练
 
-> 原文：<https://lifehacker.com/the-best-interval-workouts-you-can-do-in-your-living-ro-1839162550>
+> 原文:[https://life hacker . com/the-best-interval-workouts-you-can-do-in-your-living-ro-1839162550](https://lifehacker.com/the-best-interval-workouts-you-can-do-in-your-living-ro-1839162550)
 
 这个月我们探索了 [不同类型的间歇训练](https://lifehacker.com/october-is-for-interval-workouts-1838751041) ，但是跑步和 [划船](https://vitals.lifehacker.com/how-to-do-intervals-on-a-rowing-machine-1838974151) 并不是你有氧运动的唯一方式。短时间的间歇很适合在家锻炼。
 
-
+Watch
 
 要制定自己的例行程序，首先要选择一个时间表。一分钟的努力加上一分钟的休息是非常简单的；你不会发现自己在欺骗困难的部分或者匆忙地度过休息时间。(当然还有 [其他选项](https://vitals.lifehacker.com/the-three-most-effective-interval-workouts-1714674056) 。)
 
@@ -12,4 +12,4 @@
 
 想要点灵感吗？我们喜欢 SELF 的 [这个无器械 30 分钟 HIIT 套路，FitnessBlender](https://www.youtube.com/watch?v=ml6cT4AZdqI) 的这个 [20 分钟套路，HIIT](https://www.youtube.com/watch?v=cZnsLVArIt8) 组的这个[10 分钟版本。](https://www.youtube.com/watch?v=yv2XE_Ut3KU)
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-ml6cT4AZdqI&amp;start=0" data-chomp-id="ml6cT4AZdqI" data-recommend-id="youtube://ml6cT4AZdqI" id="youtube-ml6cT4AZdqI" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="ml6cT4AZdqI" data-recommend-id="youtube://ml6cT4AZdqI" id="youtube-ml6cT4AZdqI" data-recommended="false" class="js_recommend"/></span></div><div id="mgid-container" data-placement="4" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-ml6cT4AZdqI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-ml6cT4AZdqI&start=0)

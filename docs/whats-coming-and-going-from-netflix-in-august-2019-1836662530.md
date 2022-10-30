@@ -1,10 +1,10 @@
 # 2019 年 8 月网飞有什么来往
 
-> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-in-august-2019-1836662530>
+> 原文:[https://life hacker . com/whats-coming-and-going-from-2019-8-1836662530](https://lifehacker.com/whats-coming-and-going-from-netflix-in-august-2019-1836662530)
 
 GLOW 回来了，他们在拉斯维加斯，让我们希望这个节目继续是一个温暖人心的闹剧，没有真正可怕的事情发生。亲爱的白人、*德里女孩*、*希瑞*和*猎头*也回来了。黑暗水晶*又有了新的前传*。以下是八月份网飞还会发生什么。
 
-
+Watch
 
 马龙·韦恩斯这个月是六胞胎。蒂凡尼·哈迪斯和西蒙·阿姆斯特尔有喜剧特别节目。新的纪录片包括在《走进动画》节目中对动画电影制作人的采访，以及对强大的基督教原教旨主义组织《T2 家庭》的调查。
 
@@ -12,4 +12,250 @@ GLOW 回来了，他们在拉斯维加斯，让我们希望这个节目继续是
 
 8 月 1 日之后，在拉斯韦加斯不再有*恐惧和厌恶*、*热绒毛*、*发胶*(两个版本)、*疤面煞星*、*第五元素*、*拆弹部队*、*大师*、*骚扰者*或*僵尸乐园*。*十二生肖*、*四十岁的处女*和*老无所依*几天后离开。《银河系漫游指南》也是如此，但你应该去看书。或者听原来的广播节目。或者看以前的电视剧。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-O1nIAhRMQMI&amp;start=0" data-chomp-id="O1nIAhRMQMI" data-recommend-id="youtube://O1nIAhRMQMI" id="youtube-O1nIAhRMQMI" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="O1nIAhRMQMI" data-recommend-id="youtube://O1nIAhRMQMI" id="youtube-O1nIAhRMQMI" data-recommended="false" class="js_recommend"/></span></div><h2 class="sc-1bwb26k-1 kpbNNd" id="h175239">八月到达</h2><p class="sc-77igqf-0 bOfvBY">这是新节目、电影和喜剧特辑的完整列表。链接到预告片和观看网飞原创的页面。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><h4 class="sc-1bwb26k-1 kpbNNd" id="h175240">日期未知</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80115328&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80115328" target="_blank" rel="noopener noreferrer"> <em>神圣游戏:第二季</em> </a> </span> <em> —网飞原著</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h175241">8 月 1 日</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>我们结束了吗？</li><li>博伊卡:无可争议的</li><li><em>四个婚礼和一个葬礼</em></li><li><em>土拨鼠日</em></li><li><em>喇叭</em></li><li>杰姬·布朗</li><li><em>木星上升</em></li><li><em>偶尔</em></li><li><em>惊慌的房间</em></li><li><em>洛基</em></li><li><em>洛基 II </em></li><li><em>洛奇三</em></li><li><em>洛基四</em></li><li><em>洛基五世</em></li><li>《欲望都市:电影》</li><li><em>总要有所付出</em></li><li><em>银行抢劫案</em></li><li><em>宅兔</em></li><li>罪人:朱利安</li><li>王福，感谢你所做的一切！朱莉·纽玛</li><li><em>傻瓜为什么会谈恋爱</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h175242">8 月 2 日</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80108159&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80108159" target="_blank" rel="noopener noreferrer"> <em>问童话:第三季</em> </a> </span> <em> —网飞家族</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80245353&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80245353" target="_blank" rel="noopener noreferrer"> <em>篮球或者一无所有</em> </a> </span> <em> —网飞原创</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80095698&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80095698" target="_blank" rel="noopener noreferrer"> <em>亲爱的白人:第三卷</em> </a> </span> <em> —网飞原著</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80238565&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80238565" target="_blank" rel="noopener noreferrer"> <em>德里少女:第二季</em> </a> </span> <em> —网飞原著</em></li><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80211623&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80211623" target="_blank" rel="noopener noreferrer"><em/></a></span><em>—网飞电影</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80179762&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80179762" target="_blank" rel="noopener noreferrer"> <em> She-Ra 与权力公主:第三季</em> </a> </span> <em> —网飞家族</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h175243">8 月 4 日</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80239931&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80239931" target="_blank" rel="noopener noreferrer"> <em>《爱国者法案》与哈桑·明哈吉:第四卷</em> </a> </span> <em> —网飞原著</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h175244">8 月 5 日</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81143771&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81143771" target="_blank" rel="noopener noreferrer"> <em>进入动漫</em> </a> </span> <em> —网飞原创</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80231658&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80231658" target="_blank" rel="noopener noreferrer"> <em>无良尼克:第二部</em> </a> </span> <em> —网飞家族</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h175245">8 月 6 日</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>螺旋球</li><li>塞巴斯蒂安·马尼斯卡科:你为什么要这么做</li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h175246">8 月 8 日</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81079322&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81079322" target="_blank" rel="noopener noreferrer"> <em>美元</em> </a> </span> <em> —网飞原版</em></li><li>《简·处女》第五季</li><li>朱迪·穆迪和不坏的夏天</li><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80239462&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80239462" target="_blank" rel="noopener noreferrer"><em/></a></span><em>—网飞原著</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80230293&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80230293" target="_blank" rel="noopener noreferrer"> <em>吴刺客</em> </a> </span> <em> —原著</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h175247">8 月 9 日</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80100929&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80100929" target="_blank" rel="noopener noreferrer"> <em>有线女:第四季</em> </a> </span> <em> —网飞原著</em></li><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80063867&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80063867" target="_blank" rel="noopener noreferrer"><em/></a></span><em>—网飞原创</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80114988&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80114988" target="_blank" rel="noopener noreferrer"> <em>辉光:第三季</em> </a> </span> <em> —网飞原著</em></li><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80243216&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80243216" target="_blank" rel="noopener noreferrer"><em/></a></span><em>—网飞家族</em></li><li>iZombie:第五季</li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81091977&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81091977" target="_blank" rel="noopener noreferrer"> <em> Rocko 的现代生活:静死</em> </a> </span> <em> —网飞家族</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80217315&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80217315" target="_blank" rel="noopener noreferrer"> <em>辛托尼亚</em> </a> </span> <em> —网飞原创</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81094271&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81094271" target="_blank" rel="noopener noreferrer"> <em>小马王:小马的故事</em> </a> </span> <em> —网飞家族</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h175248">8 月 13 日</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>骑士瀑布:第二季</li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81002933&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81002933" target="_blank" rel="noopener noreferrer"> <em>蒂凡尼·哈迪斯赠送:他们准备好了</em> </a> </span> <em> —网飞原创</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h175249">8 月 14 日</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>第六季</li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h175250">8 月 15 日</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80195357&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80195357" target="_blank" rel="noopener noreferrer"> <em>巨炮</em> </a> </span> <em> —网飞动漫</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h175251">8 月 16 日</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81040407&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81040407" target="_blank" rel="noopener noreferrer"> <em> 45 转</em> </a> </span> <em> —网飞原装</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81106517&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81106517" target="_blank" rel="noopener noreferrer"> <em>阿帕奇:特维斯</em> </a> </span> <em> —网飞原创</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81026915&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81026915" target="_blank" rel="noopener noreferrer"> <em>比我们好</em> </a> </span> <em> —网飞原创</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80201543&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80201543" target="_blank" rel="noopener noreferrer"> <em>诊断</em> </a> </span> <em> —网飞原创</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80205594&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80205594" target="_blank" rel="noopener noreferrer"> <em>弗龙特拉</em> </a> </span> <em> —网飞原创</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81091957&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81091957" target="_blank" rel="noopener noreferrer"> <em>侵略者 Zim:进入弗洛普斯</em> </a> </span> <em> —网飞家族</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80235578&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80235578" target="_blank" rel="noopener noreferrer"> <em>【小瑞士】</em> </a> </span> <em> —网飞电影</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80114855&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80114855" target="_blank" rel="noopener noreferrer"> <em>《猎头:第二季</em> </a> </span> <em> —网飞原著</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81003033&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81003033" target="_blank" rel="noopener noreferrer"> <em> QB1:超越灯火:第三季</em> </a> </span> <em> —网飞原著</em></li><li><em>无私</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80231419&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80231419" target="_blank" rel="noopener noreferrer"> <em>六胞胎</em> </a> </span> <em> —网飞电影</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81006335&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81006335" target="_blank" rel="noopener noreferrer"> <em>超级怪物返校</em> </a> </span> <em> —网飞家族</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81078331&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81078331" target="_blank" rel="noopener noreferrer"> <em>受害者编号 8 </em> </a> </span> <em> —网飞原创</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h175252">8 月 17 日</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>《惩罚者》(2004) </em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h175253">8 月 20 日</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>纽约黑帮</em></li><li><em>西蒙·阿姆斯特尔:放飞——网飞原创</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h175254">8 月 21 日</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81090071&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81090071" target="_blank" rel="noopener noreferrer"> <em>美国工厂</em> </a> </span> <em> —网飞原装</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80189648&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80189648" target="_blank" rel="noopener noreferrer"> <em>超空间</em> </a> </span> <em> —网飞原创</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h175255">8 月 22 日</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80168068&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80168068" target="_blank" rel="noopener noreferrer"><em/></a></span><em>—网飞原创</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h175256">8 月 23 日</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>辣椒:至高无上的生命——原创 netflix】</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80200027&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80200027" target="_blank" rel="noopener noreferrer"> <em>英雄面具:第二部</em> </a> </span> <em> —网飞动漫</em></li><li><em>锈谷修复者——网飞原创</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h175257">8 月 27 日</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81004322&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81004322" target="_blank" rel="noopener noreferrer"> <em>百万英镑菜单:第二季</em> </a> </span> <em> —网飞原著</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80117560&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80117560" target="_blank" rel="noopener noreferrer"> <em>巨魔:节拍继续！:第七季</em> </a> </span> <em> —网飞家族</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h175258">8 月 29 日</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80999781&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80999781" target="_blank" rel="noopener noreferrer"> <em>【爱上客栈】</em> </a> </span> <em> —网飞电影</em></li><li><em>卡尔德克—网飞电影</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80198991&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80198991" target="_blank" rel="noopener noreferrer"> <em>《打工妈妈》第三季</em> </a> </span> <em> —网飞原著</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h175259">8 月 30 日</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>A 榜——网飞原创</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80992137&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80992137" target="_blank" rel="noopener noreferrer"> <em>颂歌&amp;星期二</em> </a> </span> <em> —网飞动漫</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80148535&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80148535" target="_blank" rel="noopener noreferrer"> <em>黑暗水晶:抵抗时代</em> </a> </span> <em> —网飞原创</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81029611&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81029611" target="_blank" rel="noopener noreferrer"> <em>《掉落的现金:第二季</em> </a> </span> <em> —网飞原著</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81034010&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81034010" target="_blank" rel="noopener noreferrer"> <em>大类</em></a><em>—Netflix 电影</em></span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80211492&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80211492" target="_blank" rel="noopener noreferrer"> <em>威武小比恩:第二季</em> </a> </span> <em> —网飞家族</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80204364&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80204364" target="_blank" rel="noopener noreferrer"> <em>造型好莱坞</em> </a> </span> <em> —网飞原创</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80063599&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80063599" target="_blank" rel="noopener noreferrer"> <em>真与彩虹王国:狂野 Yetis </em> </a> </span> <em> —网飞家族</em></li><li><em>网飞原创</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h175260">8 月 31 日</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>《包络贝》:第一季</em></li></ul><h2 class="sc-1bwb26k-1 kpbNNd" id="h175261">最后一次通话</h2><h4 class="sc-1bwb26k-1 kpbNNd" id="h175262">8 月 1 日离开</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>灰姑娘的故事</em></li><li><em>灰姑娘的故事:从前的一首歌</em></li><li><em>另一个灰姑娘的故事</em></li><li><em>奥斯汀·宝沃斯黄金会员</em></li><li><em>贝弗利山吉娃娃</em></li><li>《楚金顿:第 1-5 季》</li><li>天堂之死:第 1-7 季</li><li>拉斯维加斯的恐惧和厌恶</li><li><em>最终目的地</em></li><li><em>最终目的地 2 </em></li><li><em>最终目的地 3 </em></li><li><em>善意狩猎</em></li><li><em>戈斯福德公园</em></li><li><em>发胶(1988) </em></li><li><em>发胶(2007) </em></li><li><em>热绒毛</em></li><li><em>只是朋友</em></li><li><em>军团</em></li><li><em>闹鬼</em></li><li><em>疤面煞星</em></li><li><em>秘书处</em></li><li><em>蝴蝶效应</em></li><li><em>蝴蝶效应 2 </em></li><li><em>达芬奇密码</em></li><li><em>第五元素</em></li><li><em>最终目的地</em></li><li><em>拆弹部队</em></li><li><em>主人</em></li><li><em>村庄</em></li><li><em> W. </em></li><li><em>彩色二战</em></li><li><em>第二次世界大战:1941 年和超人：钢铁之躯:S1 </em></li><li><em>僵尸之地</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h175263">8 月 2 日离开</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>创始人</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h175264">8 月 5 日离开</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>母亲和女儿</em></li><li><em>慢电视:收藏</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h175265">8 月 6 日离开</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>爱你的罗茜</em></li><li><em>黄道十二宫</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h175266">8 月 8 日离开</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>表情符号电影</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h175267">8 月 11 日离开</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>老无所依</li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h175268">8 月 14 日离开</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>皇室成员:第一季</li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h175269">8 月 15 日离开</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>第二次世界大战:1942 年和希特勒的软肋:第一季</li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h175270">8 月 16 日离开</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>40 岁的处女</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h175271">8 月 20 日离开</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>银河系漫游指南</li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h175272">8 月 21 日离开</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>美丽的生物</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h175273">8 月 28 日离开</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>风河</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h175274">8 月 30 日离开</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>烧焦了</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h175275">8 月 31 日离开</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>稻草狗</em></li></ul> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-O1nIAhRMQMI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-O1nIAhRMQMI&start=0) 
+
+## 八月到达
+
+这是新节目、电影和喜剧特辑的完整列表。链接到预告片和观看网飞原创的页面。
+
+#### 日期未知
+
+*   [*神圣游戏:第二季*](https://www.netflix.com/title/80115328) *—网飞原著*
+
+#### 8 月 1 日
+
+*   我们结束了吗？
+*   博伊卡:无可争议的
+*   *四个婚礼和一个葬礼*
+*   *土拨鼠日*
+*   *喇叭*
+*   杰姬·布朗
+*   *木星上升*
+*   *偶尔*
+*   *惊慌的房间*
+*   *洛基*
+*   *洛基 II*
+*   *洛奇三*
+*   *洛基四*
+*   *洛基五世*
+*   《欲望都市:电影》
+*   *总要有所付出*
+*   *银行抢劫案*
+*   *宅兔*
+*   罪人:朱利安
+*   王福，感谢你所做的一切！朱莉·纽玛
+*   *傻瓜为什么会谈恋爱*
+
+#### 8 月 2 日
+
+*   [*问童话:第三季*](https://www.netflix.com/title/80108159) *—网飞家族*
+*   [*篮球或者一无所有*](https://www.netflix.com/title/80245353) *—网飞原创*
+*   [*亲爱的白人:第三卷*](https://www.netflix.com/title/80095698) *—网飞原著*
+*   [*德里少女:第二季*](https://www.netflix.com/title/80238565) *—网飞原著*
+*   [](https://www.netflix.com/title/80211623)**—网飞电影**
+*   *[*She-Ra 与权力公主:第三季*](https://www.netflix.com/title/80179762) *—网飞家族**
+
+#### *8 月 4 日*
+
+*   *[*《爱国者法案》与哈桑·明哈吉:第四卷*](https://www.netflix.com/title/80239931) *—网飞原著**
+
+#### *8 月 5 日*
+
+*   *[*进入动漫*](https://www.netflix.com/title/81143771) *—网飞原创**
+*   *[*无良尼克:第二部*](https://www.netflix.com/title/80231658) *—网飞家族**
+
+#### *8 月 6 日*
+
+*   *螺旋球*
+*   *塞巴斯蒂安·马尼斯卡科:你为什么要这么做*
+
+#### *8 月 8 日*
+
+*   *[*美元*](https://www.netflix.com/title/81079322) *—网飞原版**
+*   *《简·处女》第五季*
+*   *朱迪·穆迪和不坏的夏天*
+*   *[](https://www.netflix.com/title/80239462)**—网飞原著***
+*   **[*吴刺客*](https://www.netflix.com/title/80230293) *—原著***
+
+#### **8 月 9 日**
+
+*   **[*有线女:第四季*](https://www.netflix.com/title/80100929) *—网飞原著***
+*   **[](https://www.netflix.com/title/80063867)**—网飞原创****
+*   **[*辉光:第三季*](https://www.netflix.com/title/80114988) *—网飞原著***
+*   **[](https://www.netflix.com/title/80243216)**—网飞家族****
+*   **iZombie:第五季**
+*   **[*Rocko 的现代生活:静死*](https://www.netflix.com/title/81091977) *—网飞家族***
+*   **[*辛托尼亚*](https://www.netflix.com/title/80217315) *—网飞原创***
+*   **[*小马王:小马的故事*](https://www.netflix.com/title/81094271) *—网飞家族***
+
+#### **8 月 13 日**
+
+*   **骑士瀑布:第二季**
+*   **[*蒂凡尼·哈迪斯赠送:他们准备好了*](https://www.netflix.com/title/81002933) *—网飞原创***
+
+#### **8 月 14 日**
+
+*   **第六季**
+
+#### **8 月 15 日**
+
+*   **[*巨炮*](https://www.netflix.com/title/80195357) *—网飞动漫***
+
+#### **8 月 16 日**
+
+*   **[*45 转*](https://www.netflix.com/title/81040407) *—网飞原装***
+*   **[*阿帕奇:特维斯*](https://www.netflix.com/title/81106517) *—网飞原创***
+*   **[*比我们好*](https://www.netflix.com/title/81026915) *—网飞原创***
+*   **[*诊断*](https://www.netflix.com/title/80201543) *—网飞原创***
+*   **[*弗龙特拉*](https://www.netflix.com/title/80205594) *—网飞原创***
+*   **[*侵略者 Zim:进入弗洛普斯*](https://www.netflix.com/title/81091957) *—网飞家族***
+*   **[*【小瑞士】*](https://www.netflix.com/title/80235578) *—网飞电影***
+*   **[*《猎头:第二季*](https://www.netflix.com/title/80114855) *—网飞原著***
+*   **[*QB1:超越灯火:第三季*](https://www.netflix.com/title/81003033) *—网飞原著***
+*   ***无私***
+*   **[*六胞胎*](https://www.netflix.com/title/80231419) *—网飞电影***
+*   **[*超级怪物返校*](https://www.netflix.com/title/81006335) *—网飞家族***
+*   **[*受害者编号 8*](https://www.netflix.com/title/81078331) *—网飞原创***
+
+#### **8 月 17 日**
+
+*   ***《惩罚者》(2004)***
+
+#### **8 月 20 日**
+
+*   ***纽约黑帮***
+*   ***西蒙·阿姆斯特尔:放飞——网飞原创***
+
+#### **8 月 21 日**
+
+*   **[*美国工厂*](https://www.netflix.com/title/81090071) *—网飞原装***
+*   **[*超空间*](https://www.netflix.com/title/80189648) *—网飞原创***
+
+#### **8 月 22 日**
+
+*   **[](https://www.netflix.com/title/80168068)**—网飞原创****
+
+#### **8 月 23 日**
+
+*   ***辣椒:至高无上的生命——原创 netflix】***
+*   **[*英雄面具:第二部*](https://www.netflix.com/title/80200027) *—网飞动漫***
+*   ***锈谷修复者——网飞原创***
+
+#### **8 月 27 日**
+
+*   **[*百万英镑菜单:第二季*](https://www.netflix.com/title/81004322) *—网飞原著***
+*   **[*巨魔:节拍继续！:第七季*](https://www.netflix.com/title/80117560) *—网飞家族***
+
+#### **8 月 29 日**
+
+*   **[*【爱上客栈】*](https://www.netflix.com/title/80999781) *—网飞电影***
+*   ***卡尔德克—网飞电影***
+*   **[*《打工妈妈》第三季*](https://www.netflix.com/title/80198991) *—网飞原著***
+
+#### **8 月 30 日**
+
+*   ***A 榜——网飞原创***
+*   **[*颂歌&星期二*](https://www.netflix.com/title/80992137) *—网飞动漫***
+*   **[*黑暗水晶:抵抗时代*](https://www.netflix.com/title/80148535) *—网飞原创***
+*   **[*《掉落的现金:第二季*](https://www.netflix.com/title/81029611) *—网飞原著***
+*   **[*大类*](https://www.netflix.com/title/81034010)*—Netflix 电影***
+*   **[*威武小比恩:第二季*](https://www.netflix.com/title/80211492) *—网飞家族***
+*   **[*造型好莱坞*](https://www.netflix.com/title/80204364) *—网飞原创***
+*   **[*真与彩虹王国:狂野 Yetis*](https://www.netflix.com/title/80063599) *—网飞家族***
+*   ***网飞原创***
+
+#### **8 月 31 日**
+
+*   ***《包络贝》:第一季***
+
+## **最后一次通话**
+
+#### **8 月 1 日离开**
+
+*   ***灰姑娘的故事***
+*   ***灰姑娘的故事:从前的一首歌***
+*   ***另一个灰姑娘的故事***
+*   ***奥斯汀·宝沃斯黄金会员***
+*   ***贝弗利山吉娃娃***
+*   **《楚金顿:第 1-5 季》**
+*   **天堂之死:第 1-7 季**
+*   **拉斯维加斯的恐惧和厌恶**
+*   ***最终目的地***
+*   ***最终目的地 2***
+*   ***最终目的地 3***
+*   ***善意狩猎***
+*   ***戈斯福德公园***
+*   ***发胶(1988)***
+*   ***发胶(2007)***
+*   ***热绒毛***
+*   ***只是朋友***
+*   ***军团***
+*   ***闹鬼***
+*   ***疤面煞星***
+*   ***秘书处***
+*   ***蝴蝶效应***
+*   ***蝴蝶效应 2***
+*   ***达芬奇密码***
+*   ***第五元素***
+*   ***最终目的地***
+*   ***拆弹部队***
+*   ***主人***
+*   ***村庄***
+*   ***W.***
+*   ***彩色二战***
+*   ***第二次世界大战:1941 年和超人：钢铁之躯:S1***
+*   ***僵尸之地***
+
+#### **8 月 2 日离开**
+
+*   ***创始人***
+
+#### **8 月 5 日离开**
+
+*   ***母亲和女儿***
+*   ***慢电视:收藏***
+
+#### **8 月 6 日离开**
+
+*   ***爱你的罗茜***
+*   ***黄道十二宫***
+
+#### **8 月 8 日离开**
+
+*   ***表情符号电影***
+
+#### **8 月 11 日离开**
+
+*   **老无所依**
+
+#### **8 月 14 日离开**
+
+*   **皇室成员:第一季**
+
+#### **8 月 15 日离开**
+
+*   **第二次世界大战:1942 年和希特勒的软肋:第一季**
+
+#### **8 月 16 日离开**
+
+*   ***40 岁的处女***
+
+#### **8 月 20 日离开**
+
+*   **银河系漫游指南**
+
+#### **8 月 21 日离开**
+
+*   ***美丽的生物***
+
+#### **8 月 28 日离开**
+
+*   ***风河***
+
+#### **8 月 30 日离开**
+
+*   ***烧焦了***
+
+#### **8 月 31 日离开**
+
+*   ***稻草狗***

@@ -1,13 +1,57 @@
 # 你应该尝试“非学校教育”吗？
 
-> 原文：<https://lifehacker.com/should-you-give-unschooling-a-try-1843184632>
+> 原文:[https://life hacker . com/should-you-give-unschooling-a-try-1843184632](https://lifehacker.com/should-you-give-unschooling-a-try-1843184632)
 
 我们中的大多数人已经和孩子在家呆了至少一个月了。我的孩子们从 3 月 6 日就已经回家了(但是谁会去计算呢？)，尽管我们很乐意保持必要的距离，但我非常渴望有一天我可以把我的女儿交给他们耐心而合格的专业教育者，而不是整天打电话和使用数字学习平台。
 
-
+Watch
 
 家长们看着日历慢动作流逝，试图赶上对数字化学习的新兴期望，并感叹没有时间或精力来创建我们自己的家庭教育综合体。
 
 当我在脸书 上看到儿童心理医生 [艾米丽·w·金](https://www.dremilyking.com/) 的这个帖子时，我们才进入隔离学校一周。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=fbpost-https%3A%2F%2Fwww.facebook.com%2Fdremilyking%2Fphotos%2Fa.1726227680949573%2F2595763937329272&amp;autosize=1" autoresize="true" id="fbpost-https://www.facebook.com/dremilyking/photos/a.1726227680949573/2595763937329272" data-recommended="false" width="640" height="360" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">眼看就要流泪，准备把 iPad 扔出窗外，我终于觉得被人看见了。我们能保持这种状态(全职育儿、工作和教学)到六月吗？如果事情没有恢复正常，我们能在秋天再做一次吗？也许，像我一样，你曾幻想在 2020 年放弃结构化教育……把你的孩子关在后院，只有当他们偶然发现对不倒翁虫子或其他东西有博士水平的理解时，才让他们回来。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">我的幻想让我调查了一个我以前听说过的术语——非学校教育——以及一种非常规的教育方法是否能减轻我们这些不情愿的家长教师现在感受到的压力。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h290369">什么是学校教育？</h3><p class="sc-77igqf-0 bOfvBY">非学校教育这个术语是由教育家<span></span>于 1977 年引入的，他是公立学校系统替代方案的倡导者。霍尔特认为，孩子们可以通过自己的好奇心接受教育，而不是坐在教室里，遵循规定的课程和考试时间表，父母可以提供资源和支持。</p><p class="sc-77igqf-0 bOfvBY">我能在这里停下来说一下我是多么感激老师和学校以及他们所做的一切吗？尤其是现在？也就是说，许多家庭选择非学校教育的方式，他们的孩子也茁壮成长。</p><p class="sc-77igqf-0 bOfvBY">一份 2017 年<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://jual.nipissingu.ca/wp-content/uploads/sites/25/2017/12/v11224.pdf&quot;,{&quot;metric25&quot;:1}]]" href="https://jual.nipissingu.ca/wp-content/uploads/sites/25/2017/12/v11224.pdf" target="_blank" rel="noopener noreferrer">的文献综述</a> </span>估计有 100 万美国儿童从事非学校教育。这是一种不遵循任何课程或试图重现课堂体验的家庭学校。你可能听说过它叫做自由放养学习，世界学校教育，或者<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://lifehacker.com/im-jill-krause-a-roadschooling-mom-and-this-is-how-i-1826932456&quot;,{&quot;metric25&quot;:1}]]" href="https://lifehacker.com/im-jill-krause-a-roadschooling-mom-and-this-is-how-i-1826932456">道路学校</a> </span>。那么它在现实世界中是什么样子的呢？</p><p class="sc-77igqf-0 bOfvBY">抱歉，没有旅游指南——这就是问题所在。</p><p class="sc-77igqf-0 bOfvBY">“非学校教育的美妙在于寻找答案，”利奥·巴巴乌塔在<span></span>非学校教育初学者指南网站上写道。“如果有人知道所有的答案，就不会有搜索。所以，我想教给非学校教育的父母和孩子的是，寻找是一切的乐趣。”</p><p class="sc-77igqf-0 bOfvBY">如果你还在考虑这个想法——作为结束这个怪异学年的一种方式，在夏天最大限度地学习，或者作为下一学年的家庭实验——下面是非学校教育的基础。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h290370">孩子的选择</h3><p class="sc-77igqf-0 bOfvBY">你的孩子感兴趣的东西将完全推动非学校教育的发展。没有任何外部要求，以满足任何阅读或数学里程碑。非学校教育的孩子学习阅读和数学，因为这些是他们追求兴趣所需要的工具。</p><p class="sc-77igqf-0 bOfvBY">你可能已经知道你的孩子痴迷于机器人或者乐高，这就是你的出发点。但是如果你不知道从哪里开始，不要担心。下一个元素将有助于揭示和培养她的兴趣领域。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h290371">丰富的学习环境</h3><p class="sc-77igqf-0 bOfvBY">这很难定义，但很可能你家里已经有了一个丰富的学习环境。你能接触到书吗？安全的互联网内容？户外空间？朋友和家人(即使现在是虚拟的)？可以创造性地重新利用的材料？这些要素都不是必需的，但是几个要素加在一起可以帮助孩子开始探索之路。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h290372">没有作业或测试</h3><p class="sc-77igqf-0 bOfvBY">我是一个遵守规则、热爱标准化考试、挥舞成绩单的女孩。如果你不给我 A，我怎么知道我过得好不好？嗯，非学校教育的信徒可能会说，这个系统给了孩子们一种不自然的被评价和排序的需求。</p><p class="sc-77igqf-0 bOfvBY">然而，由于目标是由非学校教育中的每个孩子定义的，他们不需要分数来衡量成功。非学校教育在所有 50 个州都是合法的 ，尽管每个州可能有不同的法律来规定你如何接近或报告他们的进展。)</p><p class="sc-77igqf-0 bOfvBY">即使你的家庭不准备放弃传统学校及其所有的好处，你也可以通过非学校教育的想法来缓解现在令人窒息的结构和期望。自从学校关闭以来，孩子们和家长被数字资源和学习机会淹没了。不要把它们想成堆积如山的作业，而要把它们想成“选择你自己的冒险”菜单。你的家是一个非传统文本的图书馆和一个创造性材料的宝库，只等着孩子的想法把它们组合在一起。</p><p class="sc-77igqf-0 bOfvBY">问题是自我导向学习的基石。当你的孩子问问题时，跟着他说！当你的孩子遇到障碍时，用一个问题来引导他！挖掘你的直觉，尊重孩子的直觉学习方式。</p><p class="sc-77igqf-0 bOfvBY">如果你的思绪又回到了自然拼音和新数学上，允许自己在 9 月份再次担心这些事情。很有可能，如果你的孩子由一位家长抚养，他会潜心研究教育学，以确定在全球危机时期对整个家庭有效的最佳、最全面的教育方法，那么不管下一学年是什么样子，他们都可能会变得很好。</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><small> <em>遇见地球上最聪明的父母！加入我们的</em> </small> <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.facebook.com/groups/2018785615043946/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.facebook.com/groups/2018785615043946/" target="_blank" rel="noopener noreferrer"> <small> <em>育儿脸书群</em> </small> </a> </span> <small> <em>。</em>T15】</small></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=fbpost-https%3A%2F%2Fwww.facebook.com%2Fdremilyking%2Fphotos%2Fa.1726227680949573%2F2595763937329272&autosize=1](https://lifehacker.com/embed/inset/iframe?id=fbpost-https%3A%2F%2Fwww.facebook.com%2Fdremilyking%2Fphotos%2Fa.1726227680949573%2F2595763937329272&autosize=1) 
+
+眼看就要流泪，准备把 iPad 扔出窗外，我终于觉得被人看见了。我们能保持这种状态(全职育儿、工作和教学)到六月吗？如果事情没有恢复正常，我们能在秋天再做一次吗？也许，像我一样，你曾幻想在 2020 年放弃结构化教育……把你的孩子关在后院，只有当他们偶然发现对不倒翁虫子或其他东西有博士水平的理解时，才让他们回来。
+
+我的幻想让我调查了一个我以前听说过的术语——非学校教育——以及一种非常规的教育方法是否能减轻我们这些不情愿的家长教师现在感受到的压力。
+
+### 什么是学校教育？
+
+非学校教育这个术语是由教育家于 1977 年引入的，他是公立学校系统替代方案的倡导者。霍尔特认为，孩子们可以通过自己的好奇心接受教育，而不是坐在教室里，遵循规定的课程和考试时间表，父母可以提供资源和支持。
+
+我能在这里停下来说一下我是多么感激老师和学校以及他们所做的一切吗？尤其是现在？也就是说，许多家庭选择非学校教育的方式，他们的孩子也茁壮成长。
+
+一份 2017 年 [的文献综述](https://jual.nipissingu.ca/wp-content/uploads/sites/25/2017/12/v11224.pdf) 估计有 100 万美国儿童从事非学校教育。这是一种不遵循任何课程或试图重现课堂体验的家庭学校。你可能听说过它叫做自由放养学习，世界学校教育，或者 [道路学校](https://lifehacker.com/im-jill-krause-a-roadschooling-mom-and-this-is-how-i-1826932456) 。那么它在现实世界中是什么样子的呢？
+
+抱歉，没有旅游指南——这就是问题所在。
+
+“非学校教育的美妙在于寻找答案，”利奥·巴巴乌塔在非学校教育初学者指南网站上写道。“如果有人知道所有的答案，就不会有搜索。所以，我想教给非学校教育的父母和孩子的是，寻找是一切的乐趣。”
+
+如果你还在考虑这个想法——作为结束这个怪异学年的一种方式，在夏天最大限度地学习，或者作为下一学年的家庭实验——下面是非学校教育的基础。
+
+### 孩子的选择
+
+你的孩子感兴趣的东西将完全推动非学校教育的发展。没有任何外部要求，以满足任何阅读或数学里程碑。非学校教育的孩子学习阅读和数学，因为这些是他们追求兴趣所需要的工具。
+
+你可能已经知道你的孩子痴迷于机器人或者乐高，这就是你的出发点。但是如果你不知道从哪里开始，不要担心。下一个元素将有助于揭示和培养她的兴趣领域。
+
+### 丰富的学习环境
+
+这很难定义，但很可能你家里已经有了一个丰富的学习环境。你能接触到书吗？安全的互联网内容？户外空间？朋友和家人(即使现在是虚拟的)？可以创造性地重新利用的材料？这些要素都不是必需的，但是几个要素加在一起可以帮助孩子开始探索之路。
+
+### 没有作业或测试
+
+我是一个遵守规则、热爱标准化考试、挥舞成绩单的女孩。如果你不给我 A，我怎么知道我过得好不好？嗯，非学校教育的信徒可能会说，这个系统给了孩子们一种不自然的被评价和排序的需求。
+
+然而，由于目标是由非学校教育中的每个孩子定义的，他们不需要分数来衡量成功。非学校教育在所有 50 个州都是合法的 ，尽管每个州可能有不同的法律来规定你如何接近或报告他们的进展。)
+
+即使你的家庭不准备放弃传统学校及其所有的好处，你也可以通过非学校教育的想法来缓解现在令人窒息的结构和期望。自从学校关闭以来，孩子们和家长被数字资源和学习机会淹没了。不要把它们想成堆积如山的作业，而要把它们想成“选择你自己的冒险”菜单。你的家是一个非传统文本的图书馆和一个创造性材料的宝库，只等着孩子的想法把它们组合在一起。
+
+问题是自我导向学习的基石。当你的孩子问问题时，跟着他说！当你的孩子遇到障碍时，用一个问题来引导他！挖掘你的直觉，尊重孩子的直觉学习方式。
+
+如果你的思绪又回到了自然拼音和新数学上，允许自己在 9 月份再次担心这些事情。很有可能，如果你的孩子由一位家长抚养，他会潜心研究教育学，以确定在全球危机时期对整个家庭有效的最佳、最全面的教育方法，那么不管下一学年是什么样子，他们都可能会变得很好。
+
+* * *
+
+<small>*遇见地球上最聪明的父母！加入我们的*</small> [<small>*育儿脸书群*</small>](https://www.facebook.com/groups/2018785615043946/) <small>*。*T15】</small>

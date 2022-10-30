@@ -1,10 +1,10 @@
 # 如果有人“偷”了你的宝宝名字，你该怎么办
 
-> 原文：<https://lifehacker.com/what-you-should-do-if-someone-steals-your-baby-name-1838098451>
+> 原文:[https://life hacker . com/what-you-due-do-if someone-stock-your-baby-name-1838098451](https://lifehacker.com/what-you-should-do-if-someone-steals-your-baby-name-1838098451)
 
 多年来你已经选好了最完美的婴儿名字。从你记事起，你就发誓你的宝贝女儿有一天会被命名为莫莉·伊丽莎白。如果你高中时最好的朋友——谁知道呢——没有宣布她新女儿的名字(令人震惊！)莫莉·伊丽莎白。
 
-
+Watch
 
 是故意的吗？她真的忘记了吗？这有可能是某种奇怪的巧合吗？她是一个混蛋谁迂回怀孕第一，所以她可以窃取你的名字，还是她只是碰巧选择了同一个，因为这是发生的事情？
 
@@ -22,4 +22,22 @@
 
 夏洛特真的还可以给她未来的女儿取名为“谢拉”，两个谢拉会很好:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-7iqGth3ke2k&amp;start=0" data-chomp-id="7iqGth3ke2k" data-recommend-id="youtube://7iqGth3ke2k" id="youtube-7iqGth3ke2k" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="7iqGth3ke2k" data-recommend-id="youtube://7iqGth3ke2k" id="youtube-7iqGth3ke2k" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">如果，比方说，你和你的嫂子都怀孕了，她先叫了你最喜欢的名字，现在你们有了堂兄妹，只隔几个月，分别叫杰克逊和杰克逊，你可能会有不同的感觉。在这种情况下，您可以:</p><p class="sc-77igqf-0 bOfvBY">1.说见鬼去吧，你也在用。很多亲戚都有相同的名字，而且他们可能会有不同的昵称。</p><p class="sc-77igqf-0 bOfvBY">2.选择其他相近但又有点不同的。艾拉而不是艾玛什么的。</p><p class="sc-77igqf-0 bOfvBY">3.用你的第二个选择。那个也很不错。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h181637">要知道，最终，你(可能)不会在乎</h3><p class="sc-77igqf-0 bOfvBY">无论你选择继续你现在复制的第一个选择，还是选择其他的，最终，你将无法想象你的孩子除了他们的名字以外还有什么。如果你选择了一个不同的名字，你甚至会感到宽慰，因为你现在是多么喜欢这个新名字。</p><p class="sc-77igqf-0 bOfvBY">(如果你还需要一个新名字，莫莉·伊丽莎白实际上是我最喜欢的女孩名字。因为我不会再有孩子了，所以我在此允许你们使用它。前进吧，让世界充满莫莉·伊丽莎白！)</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><small> <em>我们的</em> </small> <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.facebook.com/groups/2018785615043946/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.facebook.com/groups/2018785615043946/" target="_blank" rel="noopener noreferrer"> <small> <em>育儿脸书集团</em> </small> </a> </span> <small> <em>上周曾颇有关于偷婴儿名字的谈话。</em> </small> <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.facebook.com/groups/2018785615043946/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.facebook.com/groups/2018785615043946/" target="_blank" rel="noopener noreferrer"> <small> <em>加入我们</em> </small> </a> </span> <small> <em>来称重吧！</em> </small></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-7iqGth3ke2k&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-7iqGth3ke2k&start=0) 
+
+如果，比方说，你和你的嫂子都怀孕了，她先叫了你最喜欢的名字，现在你们有了堂兄妹，只隔几个月，分别叫杰克逊和杰克逊，你可能会有不同的感觉。在这种情况下，您可以:
+
+1.说见鬼去吧，你也在用。很多亲戚都有相同的名字，而且他们可能会有不同的昵称。
+
+2.选择其他相近但又有点不同的。艾拉而不是艾玛什么的。
+
+3.用你的第二个选择。那个也很不错。
+
+### 要知道，最终，你(可能)不会在乎
+
+无论你选择继续你现在复制的第一个选择，还是选择其他的，最终，你将无法想象你的孩子除了他们的名字以外还有什么。如果你选择了一个不同的名字，你甚至会感到宽慰，因为你现在是多么喜欢这个新名字。
+
+(如果你还需要一个新名字，莫莉·伊丽莎白实际上是我最喜欢的女孩名字。因为我不会再有孩子了，所以我在此允许你们使用它。前进吧，让世界充满莫莉·伊丽莎白！)
+
+* * *
+
+<small>*我们的*</small> [<small>*育儿脸书集团*</small>](https://www.facebook.com/groups/2018785615043946/) <small>*上周曾颇有关于偷婴儿名字的谈话。*</small> [<small>*加入我们*</small>](https://www.facebook.com/groups/2018785615043946/) <small>*来称重吧！*</small>

@@ -1,10 +1,10 @@
 # 以下是人们在你这个年龄希望知道的事情
 
-> 原文：<https://lifehacker.com/heres-what-people-wish-they-knew-at-your-age-1836974151>
+> 原文:[https://life hacker . com/heres-what-people-wish-they-know-in-your-age-1836974151](https://lifehacker.com/heres-what-people-wish-they-knew-at-your-age-1836974151)
 
 “你不必这么生气，”我希望我能在 16 岁时告诉自己。“找一份真正的工作，并坚持下去，”我希望我能在 23 岁时告诉自己。你不能告诉年轻时的自己你现在所知道的。但是你可以给每个同龄的人提建议。你可以在网站 [【嘿，来自未来的](https://heyfromthefuture.com/) 上读到其他人希望他们在你这个年龄就知道的东西。
 
-
+Watch
 
 在这个网站上，你可以 [阅读从 13 岁到 50 岁的每个年龄段的建议](https://heyfromthefuture.com/age/) ，或者注册给出你自己的建议，并对他人的建议进行投票。我们最喜欢的一些:
 
@@ -20,4 +20,4 @@
 
 如果阅读适合你年龄的建议让你觉得太老或太年轻，看看网站上的其他年龄。人们永远不会停止成长。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-ELQOnEgzt-I&amp;start=0" data-chomp-id="ELQOnEgzt-I" data-recommend-id="youtube://ELQOnEgzt-I" id="youtube-ELQOnEgzt-I" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="ELQOnEgzt-I" data-recommend-id="youtube://ELQOnEgzt-I" id="youtube-ELQOnEgzt-I" data-recommended="false" class="js_recommend"/></span></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-ELQOnEgzt-I&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-ELQOnEgzt-I&start=0)

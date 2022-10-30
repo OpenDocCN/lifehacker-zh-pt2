@@ -1,13 +1,57 @@
 # 你的草莓里真的有小虫子吗？
 
-> 原文：<https://lifehacker.com/are-there-really-little-bugs-in-your-strawberries-1843607740>
+> 原文:[https://life hacker . com/你的草莓里真的有小虫子吗-1843607740](https://lifehacker.com/are-there-really-little-bugs-in-your-strawberries-1843607740)
 
 互联网上流传着一段抖音的视频(以及伴随而来的 [Buzzfeed 文章](https://www.buzzfeed.com/kristatorres/little-bugs-live-in-strawberries-so-you-should-al) )，视频中显示了一些像小虫一样的虫子从浸泡在盐水中的新鲜草莓中爬出来。这是真的吗？我们是否在不知不觉中享受了三莓冻糕中的幼虫？我们是不是应该*再也不吃水果了*？为了找到答案，我咨询了一些专家。
 
-
+Watch
 
 下面是简短的回答:这个*是*一个真实的可能发生的事情，但并不常见。无论是食品安全专家还是细菌专家都建议用盐水清洗你的水果。
 
 ### 这段视频中到底发生了什么？
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=tiktok-6828636698579193094&amp;autosize=1" autoresize="true" id="tiktok-6828636698579193094" data-recommended="false" width="640" height="360" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">制作视频的克里斯塔·托雷斯写道:“我在一个碗里装满室温水，倒入一吨海盐(大约五大勺)，放入草莓，然后等了大约 30 分钟。”然后她注意到从草莓中爬出来的白色小虫，并断定它们是斑翅果蝇的幼虫。</p><p class="sc-77igqf-0 bOfvBY">从视频中还不清楚她是否正确地识别了物种，但一会儿会有更多关于这方面的内容。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">昆虫学家汉娜·伯拉克 告诉我，盐水浸泡实际上是种植者和批发商用来检查浆果中苍蝇幼虫的一种技术。她在北卡罗来纳州立大学帮助浆果种植者进行害虫管理。浆果从种植者手中卖给批发商(批发商将它们包装成蛤壳状的盒子)，然后再从那里转售给<!-- -->超市。“如果(批发商)在来自种植者的水果中发现幼虫，他们会马上把来自种植者的所有水果送回去，”伯拉克说。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">因为他们只测试每批货物中的一个水果样本，所以不能保证其余的浆果没有幼虫，但这里的总体想法是尽量减少任何充满虫子的浆果进入供应链<!-- -->的机会。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h288819">所有草莓里都有这样的虫子吗？</h3><p class="sc-77igqf-0 bOfvBY">号<!-- --> B <!-- -->但是那里<!-- -->可能是<em>一些</em>草莓<!-- -->里的虫子<!-- -->。</p><p class="sc-77igqf-0 bOfvBY">你知道果蝇吧？那些出现在你放在柜台上太久的熟透的水果周围的小家伙？他们通常是黑腹果蝇或 T2 果蝇，伯拉克说，如果不是他们的亲戚的话。你已经见过并拍掉<!-- -->一百万次的成虫，通过在水果柔软的部分产卵来繁殖。这些卵孵化成极小的幼虫——也就是蛆——看起来就像抖音视频中的“蠕虫”。最终幼虫变大，变成苍蝇，生命循环往复。</p><p class="sc-77igqf-0 bOfvBY">通常你会在受损或过熟的水果中发现这些家伙，但有一种叫做<em>铃木果蝇</em>的物种，它使用一种<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://entnemdept.ufl.edu/creatures/fruit/flies/drosophila_suzukii.htm&quot;,{&quot;metric25&quot;:1}]]" href="http://entnemdept.ufl.edu/creatures/fruit/flies/drosophila_suzukii.htm" target="_blank" rel="noopener noreferrer">锯齿产卵器</a> </span>(一种，嗯，屁股钉)在水果仍在植物上生长时将其卵注入新鲜的浆果中。</p><p class="sc-77igqf-0 bOfvBY">正如 Buzzfeed 的文章所说，“雌性将卵射入刚刚开始成熟的水果内部，尤其是蓝莓、草莓和覆盆子。这意味着所有浆果中都可能有这些虫子！”</p><p class="sc-77igqf-0 bOfvBY">但是伯拉克告诉我，没有办法知道视频中的幼虫是否是铃木 d . T1，因为所有 T2 果蝇 T3 幼虫看起来都一样。由于种植者和批发商尽最大努力不让<em> D. suzukii </em>进入食品供应，这不太可能:<!-- -->这些幼虫也可能来自在杂货店或克里斯塔·托雷斯的<!-- -->厨房里嗡嗡作响的果蝇。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h288820">不小心吃了这些虫子会有危害吗？</h3><p class="sc-77igqf-0 bOfvBY">没有。他们潜伏在你的浆果里的想法<!-- -->可能令人倒胃口，<!-- -->但他们不会伤害你。北卡罗来纳州立大学的食品安全专家<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://cals.ncsu.edu/agricultural-and-human-sciences/people/bjchapma&quot;,{&quot;metric25&quot;:1}]]" href="https://cals.ncsu.edu/agricultural-and-human-sciences/people/bjchapma" target="_blank" rel="noopener noreferrer">本·查普曼</a> </span>说:“你可以吃，但是有点恶心。”。</p><p class="sc-77igqf-0 bOfvBY">“‘天然’蛋白质，”<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://twitter.com/CourtneyACrist/status/1263254139955343360&quot;,{&quot;metric25&quot;:1}]]" href="https://twitter.com/CourtneyACrist/status/1263254139955343360" target="_blank" rel="noopener noreferrer">当我问及此事时，</a> </span>食品安全专家考特尼·克里斯特在推特上写道。</p><p class="sc-77igqf-0 bOfvBY">“如果你在吃浆果，我想你可能曾经吃过这些，”昆虫学家乔·巴朗格 T3 说。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h288821">不好意思，食物里的虫子很恶心</h3><p class="sc-77igqf-0 bOfvBY">有效的观点。但是既然你提出来了，这就没什么新鲜的了。你知道蔬菜生长在室外的泥土里，而且那里有很多虫子吗？Ballenger 漫不经心地提到<!-- -->他’<!-- -->d 最近从他的生菜中挑出了一种植物虫子(也就是说，我不是在开玩笑，它的真实名字)。植物虫子将它们的唾液注入叶子，然后吸出产生的浆液。你可能吃过很多植物虫子的唾液。</p><p class="sc-77igqf-0 bOfvBY">同样，查普曼注意到<!-- -->鲜鱼中的蠕虫是如此普遍，<!-- --> <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://ehs.ncpublichealth.com/faf/docs/foodprot/NC-Sushi-SashimiTrainingDocumentFinalWebVersion-2012.pdf&quot;,{&quot;metric25&quot;:1}]]" href="https://ehs.ncpublichealth.com/faf/docs/foodprot/NC-Sushi-SashimiTrainingDocumentFinalWebVersion-2012.pdf" target="_blank" rel="noopener noreferrer">寿司店被要求在供应生鱼之前将其冷冻，</a> </span>以杀死任何蠕虫。这意味着蠕虫还在那里，它们只是死了。</p><p class="sc-77igqf-0 bOfvBY">我可以继续，但我不会。可以这么说，你可能吃过很多你不愿去想的东西。或者正如 Ballenger 所说:“如果你看得太仔细，几乎任何东西都是恶心的。”</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h288822">好吧，那我该怎么处理我的草莓呢？</h3><p class="sc-77igqf-0 bOfvBY">我交谈过的每个人都说了同样的话:你不需要把它们浸泡在盐水中或做任何特殊的事情。定期冲洗就可以了。</p><p class="sc-77igqf-0 bOfvBY">伯拉克指出，你应该把浆果放在冰箱里。这使得它们能保存更长时间，并且能让它们远离在你柜台周围嗡嗡作响的果蝇。<!-- --> B <!-- -->责任:<!-- --> A <!-- -->冷藏三天后，你的浆果中的果蝇卵或幼虫很可能会死亡，至少。</p><p class="sc-77igqf-0 bOfvBY">所有经典的草莓保存建议 仍然适用，<!-- -->另一个重要的建议是<em>而不是</em>清洗你的草莓，直到你可以吃它们。清洗会轻微损坏浆果，为霉菌和微生物进入皮肤创造机会。所以只要拿一把你想吃的浆果，洗干净，剩下的放在冰箱里，下次再吃。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=tiktok-6828636698579193094&autosize=1](https://lifehacker.com/embed/inset/iframe?id=tiktok-6828636698579193094&autosize=1) 
+
+制作视频的克里斯塔·托雷斯写道:“我在一个碗里装满室温水，倒入一吨海盐(大约五大勺)，放入草莓，然后等了大约 30 分钟。”然后她注意到从草莓中爬出来的白色小虫，并断定它们是斑翅果蝇的幼虫。
+
+从视频中还不清楚她是否正确地识别了物种，但一会儿会有更多关于这方面的内容。
+
+昆虫学家汉娜·伯拉克 告诉我，盐水浸泡实际上是种植者和批发商用来检查浆果中苍蝇幼虫的一种技术。她在北卡罗来纳州立大学帮助浆果种植者进行害虫管理。浆果从种植者手中卖给批发商(批发商将它们包装成蛤壳状的盒子)，然后再从那里转售给超市。“如果(批发商)在来自种植者的水果中发现幼虫，他们会马上把来自种植者的所有水果送回去，”伯拉克说。
+
+因为他们只测试每批货物中的一个水果样本，所以不能保证其余的浆果没有幼虫，但这里的总体想法是尽量减少任何充满虫子的浆果进入供应链的机会。
+
+### 所有草莓里都有这样的虫子吗？
+
+号 B 但是那里可能是*一些*草莓里的虫子。
+
+你知道果蝇吧？那些出现在你放在柜台上太久的熟透的水果周围的小家伙？他们通常是黑腹果蝇或 T2 果蝇，伯拉克说，如果不是他们的亲戚的话。你已经见过并拍掉一百万次的成虫，通过在水果柔软的部分产卵来繁殖。这些卵孵化成极小的幼虫——也就是蛆——看起来就像抖音视频中的“蠕虫”。最终幼虫变大，变成苍蝇，生命循环往复。
+
+通常你会在受损或过熟的水果中发现这些家伙，但有一种叫做*铃木果蝇*的物种，它使用一种 [锯齿产卵器](http://entnemdept.ufl.edu/creatures/fruit/flies/drosophila_suzukii.htm) (一种，嗯，屁股钉)在水果仍在植物上生长时将其卵注入新鲜的浆果中。
+
+正如 Buzzfeed 的文章所说，“雌性将卵射入刚刚开始成熟的水果内部，尤其是蓝莓、草莓和覆盆子。这意味着所有浆果中都可能有这些虫子！”
+
+但是伯拉克告诉我，没有办法知道视频中的幼虫是否是铃木 d . T1，因为所有 T2 果蝇 T3 幼虫看起来都一样。由于种植者和批发商尽最大努力不让 *D. suzukii* 进入食品供应，这不太可能:这些幼虫也可能来自在杂货店或克里斯塔·托雷斯的厨房里嗡嗡作响的果蝇。
+
+### 不小心吃了这些虫子会有危害吗？
+
+没有。他们潜伏在你的浆果里的想法可能令人倒胃口，但他们不会伤害你。北卡罗来纳州立大学的食品安全专家 [本·查普曼](https://cals.ncsu.edu/agricultural-and-human-sciences/people/bjchapma) 说:“你可以吃，但是有点恶心。”。
+
+“‘天然’蛋白质，” [当我问及此事时，](https://twitter.com/CourtneyACrist/status/1263254139955343360) 食品安全专家考特尼·克里斯特在推特上写道。
+
+“如果你在吃浆果，我想你可能曾经吃过这些，”昆虫学家乔·巴朗格 T3 说。
+
+### 不好意思，食物里的虫子很恶心
+
+有效的观点。但是既然你提出来了，这就没什么新鲜的了。你知道蔬菜生长在室外的泥土里，而且那里有很多虫子吗？Ballenger 漫不经心地提到他’d 最近从他的生菜中挑出了一种植物虫子(也就是说，我不是在开玩笑，它的真实名字)。植物虫子将它们的唾液注入叶子，然后吸出产生的浆液。你可能吃过很多植物虫子的唾液。
+
+同样，查普曼注意到鲜鱼中的蠕虫是如此普遍， [寿司店被要求在供应生鱼之前将其冷冻，](https://ehs.ncpublichealth.com/faf/docs/foodprot/NC-Sushi-SashimiTrainingDocumentFinalWebVersion-2012.pdf) 以杀死任何蠕虫。这意味着蠕虫还在那里，它们只是死了。
+
+我可以继续，但我不会。可以这么说，你可能吃过很多你不愿去想的东西。或者正如 Ballenger 所说:“如果你看得太仔细，几乎任何东西都是恶心的。”
+
+### 好吧，那我该怎么处理我的草莓呢？
+
+我交谈过的每个人都说了同样的话:你不需要把它们浸泡在盐水中或做任何特殊的事情。定期冲洗就可以了。
+
+伯拉克指出，你应该把浆果放在冰箱里。这使得它们能保存更长时间，并且能让它们远离在你柜台周围嗡嗡作响的果蝇。 B 责任: A 冷藏三天后，你的浆果中的果蝇卵或幼虫很可能会死亡，至少。
+
+所有经典的草莓保存建议 仍然适用，另一个重要的建议是*而不是*清洗你的草莓，直到你可以吃它们。清洗会轻微损坏浆果，为霉菌和微生物进入皮肤创造机会。所以只要拿一把你想吃的浆果，洗干净，剩下的放在冰箱里，下次再吃。

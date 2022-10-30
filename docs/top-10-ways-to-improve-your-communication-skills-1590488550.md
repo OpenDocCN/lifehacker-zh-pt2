@@ -1,10 +1,10 @@
 # 提高沟通技巧的最佳方法
 
-> 原文：<https://lifehacker.com/top-10-ways-to-improve-your-communication-skills-1590488550>
+> 原文:[https://life hacker . com/top-10-ways-to-improve-your-communication-skills-1590488550](https://lifehacker.com/top-10-ways-to-improve-your-communication-skills-1590488550)
 
 我们在很小的时候就学会了说话，但我们大多数人都没有接受过如何与他人有效沟通的正式培训。这很不幸，因为这是最重要的生活技能之一，而且是你一生都要用到的技能。无论你是想在社交生活中更好地交流，还是想在工作中更好地表达自己的想法，这里有一些学习如何更有效地交流的基本技巧。
 
-
+Watch
 
 ### **注意你的肢体语言**
 
@@ -48,4 +48,12 @@ Ums 和 ahs 对改善你的演讲或日常对话没什么帮助。去掉 [让](h
 
 ### **激发你的同情心**
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-UzPMMSKfKZQ&amp;start=0" data-chomp-id="UzPMMSKfKZQ" data-recommend-id="youtube://UzPMMSKfKZQ" id="youtube-UzPMMSKfKZQ" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="UzPMMSKfKZQ" data-recommend-id="youtube://UzPMMSKfKZQ" id="youtube-UzPMMSKfKZQ" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">交流是双向的。如果你练习<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://lifehacker.com/why-empathy-is-your-most-important-skill-and-how-to-pr-1505011685&quot;,{&quot;metric25&quot;:1}]]" href="https://lifehacker.com/why-empathy-is-your-most-important-skill-and-how-to-pr-1505011685">采取对立的观点</a> </span>，你就可以减少在试图真正与他人交流时有时会出现的<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://vitals.lifehacker.com/science-just-got-closer-to-finding-our-empathy-genes-1823683583&quot;,{&quot;metric25&quot;:1}]]" href="https://vitals.lifehacker.com/science-just-got-closer-to-finding-our-empathy-genes-1823683583">困难和焦虑</a> </span>。(例如，当你的另一半说她累得不想说话时，你要知道她真正的意思是什么。)<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://lifehacker.com/the-importance-of-empathy-in-everyday-life-1791961488&quot;,{&quot;metric25&quot;:1}]]" href="https://lifehacker.com/the-importance-of-empathy-in-everyday-life-1791961488">培养同理心</a> </span>帮助你更好地理解甚至是你与他人交流中未说出口的部分，帮助你更有效地回应。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h295200"><strong>听着，<em>真的</em>听着</strong></h3><p class="sc-77igqf-0 bOfvBY">最后，结合以上大部分要点，你能做的提高沟通技巧的最好的事情就是<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://lifehacker.com/how-can-i-improve-my-listening-skills-1333981305&quot;,{&quot;metric25&quot;:1}]]" href="https://lifehacker.com/how-can-i-improve-my-listening-skills-1333981305">学会真正倾听</a></span>——集中注意力，让对方不间断地说话。我们知道这很难，但是一个好的对话是一堆单词<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;http://lifehacker.com/youre-not-listening-30777632&quot;,{&quot;metric25&quot;:1}]]" href="http://lifehacker.com/youre-not-listening-30777632">和听力</a> </span>的优雅连接。然后，即使<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;http://lifehacker.com/how-to-listen-when-your-communication-styles-dont-matc-1443833493&quot;,{&quot;metric25&quot;:1}]]" href="http://lifehacker.com/how-to-listen-when-your-communication-styles-dont-matc-1443833493">你们的沟通风格不匹配</a> </span>，至少你们俩在同一页上工作。希望其他人也能专心听你说话。</p><p class="sc-77igqf-0 bOfvBY">这篇文章最初发表于 2014 年 6 月 14 日，并于 2019 年 7 月 10 日更新，以提供更全面的最新信息。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-UzPMMSKfKZQ&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-UzPMMSKfKZQ&start=0) 
+
+交流是双向的。如果你练习 [采取对立的观点](https://lifehacker.com/why-empathy-is-your-most-important-skill-and-how-to-pr-1505011685) ，你就可以减少在试图真正与他人交流时有时会出现的 [困难和焦虑](https://vitals.lifehacker.com/science-just-got-closer-to-finding-our-empathy-genes-1823683583) 。(例如，当你的另一半说她累得不想说话时，你要知道她真正的意思是什么。) [培养同理心](https://lifehacker.com/the-importance-of-empathy-in-everyday-life-1791961488) 帮助你更好地理解甚至是你与他人交流中未说出口的部分，帮助你更有效地回应。
+
+### **听着，*真的*听着**
+
+最后，结合以上大部分要点，你能做的提高沟通技巧的最好的事情就是 [学会真正倾听](https://lifehacker.com/how-can-i-improve-my-listening-skills-1333981305)——集中注意力，让对方不间断地说话。我们知道这很难，但是一个好的对话是一堆单词 [和听力](http://lifehacker.com/youre-not-listening-30777632) 的优雅连接。然后，即使 [你们的沟通风格不匹配](http://lifehacker.com/how-to-listen-when-your-communication-styles-dont-matc-1443833493) ，至少你们俩在同一页上工作。希望其他人也能专心听你说话。
+
+这篇文章最初发表于 2014 年 6 月 14 日，并于 2019 年 7 月 10 日更新，以提供更全面的最新信息。

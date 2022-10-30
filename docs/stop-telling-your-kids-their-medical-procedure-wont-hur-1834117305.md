@@ -1,11 +1,25 @@
 # 不要告诉你的孩子他们的医疗程序“一点都不疼”
 
-> 原文：<https://lifehacker.com/stop-telling-your-kids-their-medical-procedure-wont-hur-1834117305>
+> 原文:[https://life hacker . com/stop-tell-your-kids-they-medical-procedure-wont-Hur-1834117305](https://lifehacker.com/stop-telling-your-kids-their-medical-procedure-wont-hur-1834117305)
 
 我清楚地记得我女儿两岁时带她去抽血的情景。当她坐在实验室的椅子上，坐在我的腿上时，她是如此的开心。她向技术员招手，技术员微笑着向她招手。然后他抓住她的小胳膊，在上面扎了一针，她尖叫着血腥的谋杀。她再也没有像进入医疗机构那样高兴了。
 
-
+Watch
 
 也许我无法让一个两岁的孩子为即将到来的痛苦做好充分的准备，但作为一名家长，我应该尝试一下。在推特上，北卡罗来纳的儿科医生查德·海斯给了 t [他的建议](https://twitter.com/chadhayesmd/status/1118226868975669249) :“不要在医疗程序是否会造成伤害的问题上对孩子撒谎。用适合孩子发展的语言告诉他们，会发生什么。会是什么感觉。会持续多久。为什么它是必要的。害怕没关系，哭也没关系。”
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1118226868975669249&amp;autosize=1" autoresize="true" id="twitter-1118226868975669249" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">他在给医生写信，但我相信他的话对父母来说也很重要。我们经常试图通过说这些话来让可怕的事情<em>没什么大不了的。</em></p><p class="sc-77igqf-0 bOfvBY">“不会痛的。”</p><p class="sc-77igqf-0 bOfvBY">“那一点也不坏，是吗？”</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY"><em>“你很好！”</em></p><p class="sc-77igqf-0 bOfvBY">问题是，如果一个手术真的伤害了你，你的孩子会开始对你失去信任。还有医生。和其他权威人士。<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://twitter.com/ischemgeek/status/1118291864950538245&quot;,{&quot;metric25&quot;:1}]]" href="https://twitter.com/ischemgeek/status/1118291864950538245" target="_blank" rel="noopener noreferrer">正如推特用户 ischemegeek 写的</a> </span>:“唯一比对孩子撒谎说某件事是否会伤害他们更糟糕的事情就是隐瞒他们的痛苦。”</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">相反，正如 Hayes 所建议的，冷静客观地告诉你的孩子将要发生什么，为什么。(在这里，表现出一些自信是很重要的——如果你内心对一个镜头/切口/等等感到恐惧。他们会从你的声音中察觉出来。)然后提前计划好<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://vitals.lifehacker.com/these-cheat-sheets-help-you-reduce-the-pain-of-your-kid-1781903759&quot;,{&quot;metric25&quot;:1}]]" href="https://vitals.lifehacker.com/these-cheat-sheets-help-you-reduce-the-pain-of-your-kid-1781903759">减少自己的痛苦</a> </span>。你可以给你的孩子一些选择，给他们一种控制感——也许他们可以挑选一个最喜欢的填充动物，或者在手术开始前数到三，或者事先选择一个特殊的创可贴。</p><p class="sc-77igqf-0 bOfvBY">最后，不管他们如何回应，给他们一个拥抱，告诉他们你为他们这样做而感到骄傲。也许<em>他们会</em>甚至说，“嘿，这毕竟不是那么糟糕。”</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1118226868975669249&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1118226868975669249&autosize=1) 
+
+他在给医生写信，但我相信他的话对父母来说也很重要。我们经常试图通过说这些话来让可怕的事情*没什么大不了的。*
+
+“不会痛的。”
+
+“那一点也不坏，是吗？”
+
+*“你很好！”*
+
+问题是，如果一个手术真的伤害了你，你的孩子会开始对你失去信任。还有医生。和其他权威人士。 [正如推特用户 ischemegeek 写的](https://twitter.com/ischemgeek/status/1118291864950538245) :“唯一比对孩子撒谎说某件事是否会伤害他们更糟糕的事情就是隐瞒他们的痛苦。”
+
+相反，正如 Hayes 所建议的，冷静客观地告诉你的孩子将要发生什么，为什么。(在这里，表现出一些自信是很重要的——如果你内心对一个镜头/切口/等等感到恐惧。他们会从你的声音中察觉出来。)然后提前计划好 [减少自己的痛苦](https://vitals.lifehacker.com/these-cheat-sheets-help-you-reduce-the-pain-of-your-kid-1781903759) 。你可以给你的孩子一些选择，给他们一种控制感——也许他们可以挑选一个最喜欢的填充动物，或者在手术开始前数到三，或者事先选择一个特殊的创可贴。
+
+最后，不管他们如何回应，给他们一个拥抱，告诉他们你为他们这样做而感到骄傲。也许*他们会*甚至说，“嘿，这毕竟不是那么糟糕。”

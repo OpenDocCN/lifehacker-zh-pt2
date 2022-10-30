@@ -1,13 +1,39 @@
 # 如何对社交说不
 
-> 原文：<https://lifehacker.com/how-to-say-no-to-socializing-1843532583>
+> 原文:[https://life hacker . com/how-to-say-no-to-socialization-1843532583](https://lifehacker.com/how-to-say-no-to-socializing-1843532583)
 
 尽管 [专家](https://www.statnews.com/2020/04/30/reopening-some-states-heightens-risk-others/) 多次警告说这样做仍然不安全，各州还是重新开放。与此同时，我们都得了幽居症——这是可以理解的——这意味着在未来的几周和几个月里，你可能需要权衡自己的个人安全与那些想与你和你的家人交往的人的意愿。
 
-
+Watch
 
 也许是想在餐馆见面的朋友，或者是想举办一次聚会的家庭成员，或者是非常非常想见到他们孙子的祖父母。
 
 当涉及到这类请求时，意识到风险是很重要的——这包括意识到当地在指导方针和案例数量方面的情况——但相信自己的直觉并能够在建议对你不安全时说不也很重要。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1262180221559672835&amp;autosize=1" autoresize="true" id="twitter-1262180221559672835" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">尽管说“不”让人不舒服，尤其是当你把坏消息告诉你爱的人时，能够这样做是一种非常有价值的技能——不仅仅是在疫情期间。如果你发现自己处于一个需要对朋友或家人说“不”的困难但必要的境地，这里有一些策略可以采用。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h17604">迅速回答</h3><p class="sc-77igqf-0 bOfvBY">说不真的很难，尤其是当你对你关心的人说不的时候，尤其是当你不想让 T1 说不，但你觉得你需要说不的时候，因为你对你感觉到的但别人可能没有意识到的风险感到不舒服。出于这个原因，你可能会发现自己拖延给出答案，无论是回复生日聚会，同意参加朋友的晚宴，还是去参加家庭聚会。没有人想错过一个重要的事件，但是在这些时候，为了保持(或感觉)安全，你可能不得不这样做。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">最好<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.themuse.com/advice/how-to-say-no-to-anyone-even-a-good-friend&quot;,{&quot;metric25&quot;:1}]]" href="https://www.themuse.com/advice/how-to-say-no-to-anyone-even-a-good-friend" target="_blank" rel="noopener noreferrer">立即给出你的答案</a> </span>而不是将讨论推迟到以后，这样你就不会花费大量时间担心你将会收到的反应。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h17605">简要解释原因</h3><p class="sc-77igqf-0 bOfvBY">严格来说，你并不欠任何人一个为什么做某事感到不舒服的答案，但如果你对你关心的人说不，最好给出一个简短的理由。 “我觉得这样做不太舒服”，“我担心还有太多的病例”，“我担心是因为我是高风险人群”，或者“我担心是因为我和高风险人群住在一起”，这些都是很好的理由，应该得到你的朋友和家人的尊重。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h17606">提出替代方案</h3><p class="sc-77igqf-0 bOfvBY">很有可能，你的朋友和家人提议这些聚会是因为过去的几个月很艰难，他们很想你。孤独可不是闹着玩的，尤其是对于独居或在情感上挣扎的人来说。我们都怀念与我们关心的人共处一室的日子。想再抱抱人是人之常情。</p><p class="sc-77igqf-0 bOfvBY">如果是这种情况，那么提出一个替代方案是一个好主意。例如，你们可以在公园见面，每人带自己的食物和椅子，进行一次<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://vitals.lifehacker.com/how-safe-is-it-to-socialize-outdoors-1843339830&quot;,{&quot;metric25&quot;:1}]]" href="https://vitals.lifehacker.com/how-safe-is-it-to-socialize-outdoors-1843339830">的物理距离会面</a> </span>。或者你们可以做一个<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://offspring.lifehacker.com/how-to-share-a-meal-when-youre-physically-distancing-1843394813&quot;,{&quot;metric25&quot;:1}]]" href="https://offspring.lifehacker.com/how-to-share-a-meal-when-youre-physically-distancing-1843394813">物理距离的用餐分享</a> </span>:你们每个人可以准备一道菜，安全地送到彼此的家里，然后在 Zoom 上一起吃饭。你可以找到另一种有创意的方式来庆祝生日或庆祝家庭团聚。</p><p class="sc-77igqf-0 bOfvBY">尽管这可能与面对面的聚会不一样，但这仍然是一种表达你关心并希望保持联系的方式，即使是在最艰难的时候。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h17607">没有就是没有</h3><p class="sc-77igqf-0 bOfvBY">Y <!-- -->你需要弄清楚的是<!-- --> <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.bustle.com/p/how-to-say-no-to-your-friends-because-its-not-always-easy-to-share-your-needs-15643915&quot;,{&quot;metric25&quot;:1}]]" href="https://www.bustle.com/p/how-to-say-no-to-your-friends-because-its-not-always-easy-to-share-your-needs-15643915" target="_blank" rel="noopener noreferrer">没有就是没有</a> </span>。如果，即使在谈论了你不参加聚会的原因<!-- -->后，你仍然受到<!-- -->压力<!-- -->，简单地再次说“不”就可以结束谈话。理想情况下，你的朋友和家人会尊重你的决定，即使他们不同意你的观点。如果事情<!-- -->变得激烈，稍后<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.huffpost.com/entry/7-tips-for-saying-no-to-a_b_828759&quot;,{&quot;metric25&quot;:1}]]" href="https://www.huffpost.com/entry/7-tips-for-saying-no-to-a_b_828759" target="_blank" rel="noopener noreferrer">重温对话可能是一个好主意</a> </span>，当每个人都不那么情绪化时，为了谈论在那种<!-- -->关系中需要什么样的限制和界限<!-- -->看起来像什么。</p><p class="sc-77igqf-0 bOfvBY">最终，在接下来的几个月里，你<!-- -->需要相信自己的直觉<!-- -->并学会在你被要求做的事情<!-- -->感到不安全的情况下说不<!-- -->。希望通过一点练习和正确的方法，它<!-- -->会随着<!-- -->时间<!-- -->变得更容易。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1262180221559672835&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1262180221559672835&autosize=1) 
+
+尽管说“不”让人不舒服，尤其是当你把坏消息告诉你爱的人时，能够这样做是一种非常有价值的技能——不仅仅是在疫情期间。如果你发现自己处于一个需要对朋友或家人说“不”的困难但必要的境地，这里有一些策略可以采用。
+
+### 迅速回答
+
+说不真的很难，尤其是当你对你关心的人说不的时候，尤其是当你不想让 T1 说不，但你觉得你需要说不的时候，因为你对你感觉到的但别人可能没有意识到的风险感到不舒服。出于这个原因，你可能会发现自己拖延给出答案，无论是回复生日聚会，同意参加朋友的晚宴，还是去参加家庭聚会。没有人想错过一个重要的事件，但是在这些时候，为了保持(或感觉)安全，你可能不得不这样做。
+
+最好 [立即给出你的答案](https://www.themuse.com/advice/how-to-say-no-to-anyone-even-a-good-friend) 而不是将讨论推迟到以后，这样你就不会花费大量时间担心你将会收到的反应。
+
+### 简要解释原因
+
+严格来说，你并不欠任何人一个为什么做某事感到不舒服的答案，但如果你对你关心的人说不，最好给出一个简短的理由。 “我觉得这样做不太舒服”，“我担心还有太多的病例”，“我担心是因为我是高风险人群”，或者“我担心是因为我和高风险人群住在一起”，这些都是很好的理由，应该得到你的朋友和家人的尊重。
+
+### 提出替代方案
+
+很有可能，你的朋友和家人提议这些聚会是因为过去的几个月很艰难，他们很想你。孤独可不是闹着玩的，尤其是对于独居或在情感上挣扎的人来说。我们都怀念与我们关心的人共处一室的日子。想再抱抱人是人之常情。
+
+如果是这种情况，那么提出一个替代方案是一个好主意。例如，你们可以在公园见面，每人带自己的食物和椅子，进行一次 [的物理距离会面](https://vitals.lifehacker.com/how-safe-is-it-to-socialize-outdoors-1843339830) 。或者你们可以做一个 [物理距离的用餐分享](https://offspring.lifehacker.com/how-to-share-a-meal-when-youre-physically-distancing-1843394813) :你们每个人可以准备一道菜，安全地送到彼此的家里，然后在 Zoom 上一起吃饭。你可以找到另一种有创意的方式来庆祝生日或庆祝家庭团聚。
+
+尽管这可能与面对面的聚会不一样，但这仍然是一种表达你关心并希望保持联系的方式，即使是在最艰难的时候。
+
+### 没有就是没有
+
+Y 你需要弄清楚的是 [没有就是没有](https://www.bustle.com/p/how-to-say-no-to-your-friends-because-its-not-always-easy-to-share-your-needs-15643915) 。如果，即使在谈论了你不参加聚会的原因后，你仍然受到压力，简单地再次说“不”就可以结束谈话。理想情况下，你的朋友和家人会尊重你的决定，即使他们不同意你的观点。如果事情变得激烈，稍后 [重温对话可能是一个好主意](https://www.huffpost.com/entry/7-tips-for-saying-no-to-a_b_828759) ，当每个人都不那么情绪化时，为了谈论在那种关系中需要什么样的限制和界限看起来像什么。
+
+最终，在接下来的几个月里，你需要相信自己的直觉并学会在你被要求做的事情感到不安全的情况下说不。希望通过一点练习和正确的方法，它会随着时间变得更容易。

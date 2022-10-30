@@ -1,11 +1,21 @@
 # 与童书作者兼插画师莫·威廉姆一起涂鸦
 
-> 原文：<https://lifehacker.com/doodle-with-childrens-book-author-and-illustrator-mo-wi-1842376859>
+> 原文:[https://life hacker . com/doodle-with-children-book-author-and-illustrator-mo-wi-1842376859](https://lifehacker.com/doodle-with-childrens-book-author-and-illustrator-mo-wi-1842376859)
 
 接下来几周的每个工作日，作家兼插画家莫·威廉都会在午餐时间邀请孩子们去他的工作室创作一些他钟爱的角色。从本周开始，新一集的《与莫·威廉 共进午餐涂鸦》将于美国东部时间下午 1 点发布，并将随时在线播放。
 
-
+Watch
 
 周一贴的第一集。在这幅画中，威廉姆是肯尼迪中心的教育艺术家，他向孩子们展示了如何画他最著名的角色之一——鸽子:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-RmzjCPQv3y8&amp;start=0" data-chomp-id="RmzjCPQv3y8" data-recommend-id="youtube://RmzjCPQv3y8" id="youtube-RmzjCPQv3y8" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="RmzjCPQv3y8" data-recommend-id="youtube://RmzjCPQv3y8" id="youtube-RmzjCPQv3y8" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">对孩子们来说，这是一个有趣的休息时间，但是嘿，<!-- -->涂鸦对成年人来说也很有趣。我们得以一窥威廉姆工作室的内部，包括<!-- -->丁身后的一些抽屉，里面存放着他每本书的原画。在第一集中，他向我们展示了他最初为<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://pigeonpresents.com/books/dont-let-the-pigeon-drive-the-bus/&quot;,{&quot;metric25&quot;:1}]]" href="http://pigeonpresents.com/books/dont-let-the-pigeon-drive-the-bus/" target="_blank" rel="noopener noreferrer"> <em>【别让鸽子开公交车】</em> </a> </span>所画的草图与最终成品的不同之处。<br/></p><p class="sc-77igqf-0 bOfvBY">每个涂鸦环节将包括一个<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.kennedy-center.org/globalassets/education/education-landing-page/mo-willems/mokc_draw-pigeon_v1.pdf&quot;,{&quot;metric25&quot;:1}]]" href="https://www.kennedy-center.org/globalassets/education/education-landing-page/mo-willems/mokc_draw-pigeon_v1.pdf" target="_blank" rel="noopener noreferrer">可下载的活动页面</a> </span>，上面有如何画出当天人物的逐步说明。孩子们也可以向 LUNCHDOODLES@kennedy-center.org 的 Willems 提问，他可能会在未来的涂鸦课上回答这些问题。</p><p class="sc-77igqf-0 bOfvBY">“你可能会被孤立，但你并不孤独，”Willems 在肯尼迪中心的网站 上写道。“你是艺术创造者。我们一起做一些吧。”</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><small> <em>遇见地球上最聪明的父母！加入我们的</em> </small> <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.facebook.com/groups/2018785615043946/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.facebook.com/groups/2018785615043946/" target="_blank" rel="noopener noreferrer"> <small> <em>育儿脸书群</em> </small> </a> </span> <small> <em>。</em> </small> <br/></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-RmzjCPQv3y8&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-RmzjCPQv3y8&start=0) 
+
+对孩子们来说，这是一个有趣的休息时间，但是嘿，涂鸦对成年人来说也很有趣。我们得以一窥威廉姆工作室的内部，包括丁身后的一些抽屉，里面存放着他每本书的原画。在第一集中，他向我们展示了他最初为 [*【别让鸽子开公交车】*](http://pigeonpresents.com/books/dont-let-the-pigeon-drive-the-bus/) 所画的草图与最终成品的不同之处。
+
+每个涂鸦环节将包括一个 [可下载的活动页面](https://www.kennedy-center.org/globalassets/education/education-landing-page/mo-willems/mokc_draw-pigeon_v1.pdf) ，上面有如何画出当天人物的逐步说明。孩子们也可以向 LUNCHDOODLES@kennedy-center.org 的 Willems 提问，他可能会在未来的涂鸦课上回答这些问题。
+
+“你可能会被孤立，但你并不孤独，”Willems 在肯尼迪中心的网站 上写道。“你是艺术创造者。我们一起做一些吧。”
+
+* * *
+
+<small>*遇见地球上最聪明的父母！加入我们的*</small> [<small>*育儿脸书群*</small>](https://www.facebook.com/groups/2018785615043946/) <small>*。*</small>

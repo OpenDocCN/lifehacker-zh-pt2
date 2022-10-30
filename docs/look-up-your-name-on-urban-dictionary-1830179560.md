@@ -1,11 +1,19 @@
 # 在城市词典中查找你的名字
 
-> 原文：<https://lifehacker.com/look-up-your-name-on-urban-dictionary-1830179560>
+> 原文:[https://life hacker . com/look-up-your-name-on-urban-dictionary-1830179560](https://lifehacker.com/look-up-your-name-on-urban-dictionary-1830179560)
 
 又一个地狱周接近尾声。让我们为下一个地狱周做准备吧。让我们放松一下，洗个澡，喝点安眠药，喝杯威士忌，，，在，[城市词典](https://www.urbandictionary.com/)，中查找我们的名字。
 
-
+Watch
 
 在美国，大多数名字的最高定义是一个长长的赞美，是对所有永远不会让你失望的[费利西亚](https://www.urbandictionary.com/define.php?term=Felicia)[凯文](https://www.urbandictionary.com/define.php?term=Kevin) 和 [乔吉斯](https://www.urbandictionary.com/define.php?term=Jorge) 的颂歌。对于很多名字，有一长串充满赞美的定义。阅读它们就像洗个热水澡。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-852715483887304704&amp;autosize=1" autoresize="true" id="twitter-852715483887304704" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">不是每个人都会得到称赞。抱歉，<!-- --> <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.urbandictionary.com/define.php?term=Brad&quot;,{&quot;metric25&quot;:1}]]" href="https://www.urbandictionary.com/define.php?term=Brad" target="_blank" rel="noopener noreferrer">布拉德</a> </span>。但是，即使最上面的几个定义是令人讨厌的，第一个长定义也可能是黄金的。(跳到定义 5，布拉德。)这些赞美可能并不都适用于你——例如，它们可能有点不规范——但想想所有有你名字的人，以及他们所有想要告诉网站他们有多棒的朋友，这是一件好事。</p><p class="sc-77igqf-0 bOfvBY">而且我真的相信是朋友写的这些——听起来不像是有人自称牛逼。听起来像年鉴签名或婚礼祝酒辞。它们是爱的表达，阅读它们(为了你自己或他人)会让你欣赏那份爱。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">如果你从头到尾都在听<em>回复所有</em>，你会在这一集的结尾从主持人的标语中认出这种事情。在演职员表中，他们总是溜进一个关于马特·利伯的赞美性比喻，他是<em>回复所有</em>的出版商 Gimlet Media 的联合创始人。"马特·利伯是一条荡过池塘的绳子.""马特·利伯是一只新来的小狗，它终于可以一觉睡到天亮了.""马特·利伯在公园里打盹."有一个<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://mattlieber.com/&quot;,{&quot;metric25&quot;:1}]]" href="http://mattlieber.com/" target="_blank" rel="noopener noreferrer">网站收集了这些标语</a> </span>。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">你没有自己的播客主持人为你编造赞美，但你有城市词典。沉浸在所有的爱中，欣赏它是如何浮上一个主要用来解释毒品、侮辱和神秘的性行为的网站的表面的。一个目前在首页定义“无坚果十一月”的网站。你的名字，不管它是什么，甚至融化了城市词典冰冷的心。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-852715483887304704&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-852715483887304704&autosize=1) 
+
+不是每个人都会得到称赞。抱歉， [布拉德](https://www.urbandictionary.com/define.php?term=Brad) 。但是，即使最上面的几个定义是令人讨厌的，第一个长定义也可能是黄金的。(跳到定义 5，布拉德。)这些赞美可能并不都适用于你——例如，它们可能有点不规范——但想想所有有你名字的人，以及他们所有想要告诉网站他们有多棒的朋友，这是一件好事。
+
+而且我真的相信是朋友写的这些——听起来不像是有人自称牛逼。听起来像年鉴签名或婚礼祝酒辞。它们是爱的表达，阅读它们(为了你自己或他人)会让你欣赏那份爱。
+
+如果你从头到尾都在听*回复所有*，你会在这一集的结尾从主持人的标语中认出这种事情。在演职员表中，他们总是溜进一个关于马特·利伯的赞美性比喻，他是*回复所有*的出版商 Gimlet Media 的联合创始人。"马特·利伯是一条荡过池塘的绳子.""马特·利伯是一只新来的小狗，它终于可以一觉睡到天亮了.""马特·利伯在公园里打盹."有一个 [网站收集了这些标语](http://mattlieber.com/) 。
+
+你没有自己的播客主持人为你编造赞美，但你有城市词典。沉浸在所有的爱中，欣赏它是如何浮上一个主要用来解释毒品、侮辱和神秘的性行为的网站的表面的。一个目前在首页定义“无坚果十一月”的网站。你的名字，不管它是什么，甚至融化了城市词典冰冷的心。

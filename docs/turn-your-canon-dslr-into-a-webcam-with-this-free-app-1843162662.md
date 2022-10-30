@@ -1,10 +1,10 @@
 # 用这个免费的应用程序把你的佳能 DSLR 变成一个网络摄像头
 
-> 原文：<https://lifehacker.com/turn-your-canon-dslr-into-a-webcam-with-this-free-app-1843162662>
+> 原文:[https://life hacker . com/turn-your-canon-dslr-to-a-web cam-with this-free-app-1843162662](https://lifehacker.com/turn-your-canon-dslr-into-a-webcam-with-this-free-app-1843162662)
 
 如果你是佳能 DSLR 的专业摄影师(或者只是碰巧身边有一个)，现在你可以使用你的相机作为网络摄像头，这要感谢新推出的 EOS 网络摄像头实用程序测试版应用程序。
 
-
+Watch
 
 对于任何希望升级网络摄像头视频质量的人来说，这是一个好消息。隔离生活导致远程会议、群组视频聊天和由 YouTube 上新兴内容创作者上传的、 Twitch 等的数量激增。在这一点上，一个好的网络摄像头是必要的，尽管我们许多人都配备了内置摄像头的笔记本电脑和智能手机，但 DSLR 可以大大提高你的视频质量。
 
@@ -12,10 +12,30 @@
 
 顾名思义，佳能的 EOS 网络摄像头测试软件仍处于测试阶段，目前仅支持少数精选的佳能数码单反:
 
-同样，这款应用目前只兼容 Windows 10，但佳能表示未来可能会支持其他操作系统。目前它也仅限于美国用户。
+同样，这款应用目前只兼容Windows 10，但佳能表示未来可能会支持其他操作系统。目前它也仅限于美国用户。
 
 不可否认，这是一个相当多的限制列表，所以我们在本指南的结尾包括了一个简短的其他应用程序，这些应用程序允许你将 DSLR 用作 Mac 和 Windows 用户的网络摄像头。不过现在，让我们讨论一下如何让佳能的新网络摄像头应用启动并运行。
 
 ### 如何安装和使用佳能的 EOS 网络摄像头实用程序
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-msJAkr3FsUM&amp;start=0" data-chomp-id="msJAkr3FsUM" data-recommend-id="youtube://msJAkr3FsUM" id="youtube-msJAkr3FsUM" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="msJAkr3FsUM" data-recommend-id="youtube://msJAkr3FsUM" id="youtube-msJAkr3FsUM" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">除了支持的相机和 Windows 10 PC 之外，您还需要一根与相机兼容的 USB 电缆，以便您可以将其连接到 PC。USB 连接的确切类型因型号而异，但你可以在<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.usa.canon.com/internet/portal/us/home/support&quot;,{&quot;metric25&quot;:1}]]" href="https://www.usa.canon.com/internet/portal/us/home/support" target="_blank" rel="noopener noreferrer">佳能的支持页面上查看你需要什么<!-- -->线缆。</a> </span>如果你已经满足了这些要求，你现在可以设置 EOS 网络摄像头实用软件。</p><ol data-type="List" data-style="Number" class="sc-1lmbno3-1 sizyJ"><li>下载<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://1.shortstack.com/VChq6Z&quot;,{&quot;metric25&quot;:1}]]" href="https://1.shortstack.com/VChq6Z" target="_blank" rel="noopener noreferrer">佳能 EOS 网络摄像头测试版</a> </span>。您可能需要提供您的相机的序列号来访问下载。你可以在相机电池槽的底部或者原始包装/用户资料中找到它<!-- -->。</li><li>运行安装文件，并按照屏幕上的说明完成安装。</li><li>通过 USB 连接您的佳能 DSLR。</li><li>运行佳能 EOS 网络摄像头实用程序<!-- -->并按照屏幕上的说明连接您的相机。</li><li>您现在应该能够在 Zoom、OBS、Facebook Messenger <!-- -->等程序中选择相机作为网络摄像头或视频源(<strong>注:</strong>EOS 网络摄像头实用程序需要在后台运行以保持连接，所以在您使用完相机之前不要关闭它)。</li></ol><h3 class="sc-1bwb26k-1 kpbNNd" id="h183659">将 DSLR 用作网络摄像头的其他方法</h3><p class="sc-77igqf-0 bOfvBY">如果佳能的 EOS 网络摄像头实用程序不支持您的相机或 PC，还有其他方法可以将您的 DSLR 用作网络摄像头:</p><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://sparkosoft.com/how-to-use-dslr-as-webcam.&quot;,{&quot;metric25&quot;:1}]]" href="https://sparkosoft.com/how-to-use-dslr-as-webcam." target="_blank" rel="noopener noreferrer"><strong>spark ocam</strong></a></span><strong>for Windows</strong><!-- -->可以免费下载，但会在你的视频上留下一个恼人的水印<!-- -->。你可以通过购买许可证来移除水印:每年 70 美元的许可证<!-- -->或 100 美元的终身访问。</li><li>Mac 用户，<!-- -->尝试<!-- -->免费程序<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://camtwiststudio.com/&quot;,{&quot;metric25&quot;:1}]]" href="http://camtwiststudio.com/" target="_blank" rel="noopener noreferrer"> <strong> CamTwist 工作室</strong> </a> </span>代替。</li><li>另一种选择是走外部硬件路线，用像<span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.elgato.com/en/gaming/cam-link-4k&quot;,{&quot;metric25&quot;:1}]]" href="https://www.elgato.com/en/gaming/cam-link-4k" target="_blank" rel="noopener noreferrer"><strong>Elgato CamLink</strong></a></span>这样的摄像机采集卡。</li></ul><p class="sc-77igqf-0 bOfvBY">诚然，与即插即用的 EOS 网络摄像头实用选项<!-- -->相比，这些替代选项的设置更复杂— <!-- -->也更昂贵— <!-- -->，但它们仍应能完成工作。</p><p class="sc-77igqf-0 bOfvBY">[ <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://petapixel.com/2020/04/28/this-new-canon-software-turns-your-canon-ilc-into-a-webcam/&quot;,{&quot;metric25&quot;:1}]]" href="https://petapixel.com/2020/04/28/this-new-canon-software-turns-your-canon-ilc-into-a-webcam/" target="_blank" rel="noopener noreferrer">千万亿像素</a> </span></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-msJAkr3FsUM&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-msJAkr3FsUM&start=0) 
+
+除了支持的相机和 Windows 10 PC 之外，您还需要一根与相机兼容的 USB 电缆，以便您可以将其连接到 PC。USB 连接的确切类型因型号而异，但你可以在 [佳能的支持页面上查看你需要什么线缆。](https://www.usa.canon.com/internet/portal/us/home/support) 如果你已经满足了这些要求，你现在可以设置 EOS 网络摄像头实用软件。
+
+1.  下载 [佳能 EOS 网络摄像头测试版](https://1.shortstack.com/VChq6Z) 。您可能需要提供您的相机的序列号来访问下载。你可以在相机电池槽的底部或者原始包装/用户资料中找到它。
+2.  运行安装文件，并按照屏幕上的说明完成安装。
+3.  通过 USB 连接您的佳能 DSLR。
+4.  运行佳能 EOS 网络摄像头实用程序并按照屏幕上的说明连接您的相机。
+5.  您现在应该能够在 Zoom、OBS、Facebook Messenger 等程序中选择相机作为网络摄像头或视频源(**注:**EOS 网络摄像头实用程序需要在后台运行以保持连接，所以在您使用完相机之前不要关闭它)。
+
+### 将 DSLR 用作网络摄像头的其他方法
+
+如果佳能的 EOS 网络摄像头实用程序不支持您的相机或 PC，还有其他方法可以将您的 DSLR 用作网络摄像头:
+
+*   [**spark ocam**](https://sparkosoft.com/how-to-use-dslr-as-webcam.)**for Windows**可以免费下载，但会在你的视频上留下一个恼人的水印。你可以通过购买许可证来移除水印:每年 70 美元的许可证或 100 美元的终身访问。
+*   Mac 用户，尝试免费程序 [**CamTwist 工作室**](http://camtwiststudio.com/) 代替。
+*   另一种选择是走外部硬件路线，用像[**Elgato CamLink**](https://www.elgato.com/en/gaming/cam-link-4k)这样的摄像机采集卡。
+
+诚然，与即插即用的 EOS 网络摄像头实用选项相比，这些替代选项的设置更复杂— 也更昂贵— ，但它们仍应能完成工作。
+
+[ [千万亿像素](https://petapixel.com/2020/04/28/this-new-canon-software-turns-your-canon-ilc-into-a-webcam/)

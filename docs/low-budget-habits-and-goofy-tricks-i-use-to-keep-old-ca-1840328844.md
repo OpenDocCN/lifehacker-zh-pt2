@@ -1,10 +1,10 @@
 # 我用低预算的习惯和愚蠢的技巧来让旧车活得更久
 
-> 原文：<https://jalopnik.com/low-budget-habits-and-goofy-tricks-i-use-to-keep-old-ca-1840328844>
+> 原文:[https://jalopnik . com/low-budget-habits-and-goofy-tricks-I-use-to-keep old-ca-1840328844](https://jalopnik.com/low-budget-habits-and-goofy-tricks-i-use-to-keep-old-ca-1840328844)
 
 在多年驾驶旧车的过程中，我养成了一些习惯，也许是迷信，我确信这些习惯帮助我的老爷车在路上行驶。为了其他人的退休年龄的汽车坚持生存，我将把我的一些秘密传授给你们这些没洗过的白痴。
 
-
+Watch
 
 你应该怀疑我在汽车巫术和致力于让汽车免于报废方面的资历吗:现在我有两辆车，每辆都超过 200，000 英里(第三辆紧随其后！)和另一个 45 岁的。而且都跑了！至少从技术上来说。
 
@@ -50,4 +50,26 @@
 
 选择被路人和其他停车的人发现的机会最少的停车点。这是汽车呆子的经典。
 
-<iframe data-src="https://jalopnik.com/embed/inset/iframe?id=instagram-B6BrpP0FEzX&amp;autosize=1" autoresize="true" id="instagram-B6BrpP0FEzX" data-recommended="false" width="598" height="676" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">即使你的车很棒，额外的擦伤和颠簸也不会让你感觉更好。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h294136">尽量不要将方向盘转到底</h3><p class="sc-77igqf-0 bOfvBY">2019 年，很多“老车”还在液压转向。这意味着有一个泵推动液体，将你转动方向盘的动作转化为前轮改变方向。</p><p class="sc-77igqf-0 bOfvBY">你把它转得越远，泵就越难工作。寿命更长的泵使用寿命更长。诚然，这种逻辑可以移植到许多事情上(比如如果你不使用刹车，你就永远不会磨损你的刹车片)，但转向往往很容易引起机械上的共鸣；你可能不经常转到全锁。当转向有问题时，很难忽视这一点。比如:变得很吵。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h294137">警惕旧车的保险索赔</h3><p class="sc-77igqf-0 bOfvBY">我们可能会启动一个专门的研究项目，深入调查这个问题，但简而言之，如果你有一辆车不够旧，不足以成为“经典”，但也不够新，不足以被大多数人认为值得保留全保，那么在汽车保险领域要小心行事。<br/></p><p class="sc-77igqf-0 bOfvBY">保险公司会很快处理掉一辆旧车，而不是修理它，如果有人在你的车达到一定年龄后试图减少你的保险，我也不会感到惊讶。</p><p class="sc-77igqf-0 bOfvBY">我的总体建议是仔细检查你的旧车是如何投保的，最重要的是，弄清楚它是如何被评估的。有时候，一辆车对你来说可能比你的保险公司更有价值，如果是这样的话，你应该想办法在之前<em>纠正这种情况，你需要提出索赔。<br/></em></p><hr class="gcp5ez-1 iFgCNh"/><p class="sc-77igqf-0 bOfvBY">我喜欢老式汽车。即使我没有，我也买不起新的硬件。我也不愿意在维护上花太多钱，我不是一个真正伟大的机械师 ，所以我通常不得不放松我的装备以使它持久。<br/></p><p class="sc-77igqf-0 bOfvBY">到目前为止对我来说还不错。试试看。不要让好车去早坟！</p> </body> </html></iframe>
+ [https://jalopnik.com/embed/inset/iframe?id=instagram-B6BrpP0FEzX&autosize=1](https://jalopnik.com/embed/inset/iframe?id=instagram-B6BrpP0FEzX&autosize=1) 
+
+即使你的车很棒，额外的擦伤和颠簸也不会让你感觉更好。
+
+### 尽量不要将方向盘转到底
+
+2019 年，很多“老车”还在液压转向。这意味着有一个泵推动液体，将你转动方向盘的动作转化为前轮改变方向。
+
+你把它转得越远，泵就越难工作。寿命更长的泵使用寿命更长。诚然，这种逻辑可以移植到许多事情上(比如如果你不使用刹车，你就永远不会磨损你的刹车片)，但转向往往很容易引起机械上的共鸣；你可能不经常转到全锁。当转向有问题时，很难忽视这一点。比如:变得很吵。
+
+### 警惕旧车的保险索赔
+
+我们可能会启动一个专门的研究项目，深入调查这个问题，但简而言之，如果你有一辆车不够旧，不足以成为“经典”，但也不够新，不足以被大多数人认为值得保留全保，那么在汽车保险领域要小心行事。
+
+保险公司会很快处理掉一辆旧车，而不是修理它，如果有人在你的车达到一定年龄后试图减少你的保险，我也不会感到惊讶。
+
+我的总体建议是仔细检查你的旧车是如何投保的，最重要的是，弄清楚它是如何被评估的。有时候，一辆车对你来说可能比你的保险公司更有价值，如果是这样的话，你应该想办法在之前*纠正这种情况，你需要提出索赔。* 
+
+* * *
+
+我喜欢老式汽车。即使我没有，我也买不起新的硬件。我也不愿意在维护上花太多钱，我不是一个真正伟大的机械师 ，所以我通常不得不放松我的装备以使它持久。
+
+到目前为止对我来说还不错。试试看。不要让好车去早坟！

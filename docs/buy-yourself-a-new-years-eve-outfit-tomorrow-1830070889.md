@@ -1,10 +1,10 @@
 # 明天给自己买套新年前夜的行头
 
-> 原文：<https://lifehacker.com/buy-yourself-a-new-years-eve-outfit-tomorrow-1830070889>
+> 原文:[https://life hacker . com/buy-yourself-a-new-years-eve-tool-tomorrow-1830070889](https://lifehacker.com/buy-yourself-a-new-years-eve-outfit-tomorrow-1830070889)
 
 明天是你在万圣节弹出式商店购物的日子。75 折买假发。买便宜的化妆品。但最重要的是，给自己买一套除夕夜服装。我的意思不是在除夕夜去参加化妆舞会；我的意思是穿着你在 11 月 1 日花 5 美元买的漂亮衣服去参加一个普通的聚会。
 
-
+Watch
 
 新年前夜的服装不一定要遵循一个主题。它必须看起来有趣。所以，抓住任何能给一套好衣服增添情趣的羽毛围巾、人造毛皮夹克和其他装备——或者创造一套这样的衣服。
 
@@ -12,4 +12,24 @@
 
 去年我偶然发现了新年前夜的服装，当时我有一些假期购物的退货。三杯酒下肚，我从卧室里抓起一件闪亮但不实用的金色外套，戴着标签穿了一个小时。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=instagram-BdaeknjH7iW&amp;autosize=1" autoresize="true" id="instagram-BdaeknjH7iW" data-recommended="false" width="598" height="676" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">金色在除夕夜感觉很好，黑色、白色和银色也一样。但是任何明亮、闪亮或有趣的东西都可以。你可以看起来像是穿着“戏服”，也可以看起来像是穿着日常生活中永远不会穿的傻衣服。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">这和打扮花里胡哨很不一样。如果你穿西装或礼服去参加一个非正式的聚会，你看起来会觉得尴尬或势利。人家会问你是哪个党派的。但是穿上一些傻傻的、华而不实的东西，你就属于你参加的任何派对。现在你是它的生命。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><h2 class="sc-1bwb26k-1 kpbNNd" id="h288430">不要饿着肚子购物</h2><p class="sc-77igqf-0 bOfvBY">在你开始逛万圣节商店之前，买一大袋剩余的糖果(或者带上你从邻居小孩那里偷来的糖果)和零食。如果你想买太多普通的东西，那就吃迷你里斯吧。</p><h2 class="sc-1bwb26k-1 kpbNNd" id="h288431">重复使用你的垃圾</h2><p class="sc-77igqf-0 bOfvBY">也许通过购买这种一次性垃圾，你正在延续我们对环境不友好的消费文化，但可能比你全价购买要少得多。尽管如此，只要你没有穿一两次就毁了你的服装，就把它捐给慈善机构，送给一个孩子，或者留着以后再穿。听着，反正它会被扔进垃圾桶的。</p><h2 class="sc-1bwb26k-1 kpbNNd" id="h288432">搭配一些自制的东西</h2><div class="ooo3c9-0 cmUFVa align--bleed has-video media-large video-embed embed-frame"><span class="flex-video widescreen"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-apwIwoC-ENI&amp;start=0" data-chomp-id="apwIwoC-ENI" data-recommend-id="youtube://apwIwoC-ENI" id="youtube-apwIwoC-ENI" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/><span data-chomp-id="apwIwoC-ENI" data-recommend-id="youtube://apwIwoC-ENI" id="youtube-apwIwoC-ENI" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">你的除夕夜样书并不是真正的《了不起的盖茨比》，而是《T2》的《幻影线》。看看雷诺兹·伍德库克为了寻找他的爱人阿尔玛而经过的盛装狂欢者。这些人生活在一个前派对城市的世界里。他们不能在商店里买一整套由塑料和毛毡制成的服装。如果他们想穿得古怪，他们必须有创意。他们必须制作自己滑稽的巨型牛仔帽，或者自己的巨型小猎犬头。</p><p class="sc-77igqf-0 bOfvBY">自己做点东西，和你那些商店里买的便宜货搭配。就像<em>幻影线</em>的醉酒狂欢者。不要像《T2》中的主演夫妇一样，在所有人都回家之前，不知何故，说服整个乐队继续在舞台上演奏，而清理工作已经开始了。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=instagram-BdaeknjH7iW&autosize=1](https://lifehacker.com/embed/inset/iframe?id=instagram-BdaeknjH7iW&autosize=1) 
+
+金色在除夕夜感觉很好，黑色、白色和银色也一样。但是任何明亮、闪亮或有趣的东西都可以。你可以看起来像是穿着“戏服”，也可以看起来像是穿着日常生活中永远不会穿的傻衣服。
+
+这和打扮花里胡哨很不一样。如果你穿西装或礼服去参加一个非正式的聚会，你看起来会觉得尴尬或势利。人家会问你是哪个党派的。但是穿上一些傻傻的、华而不实的东西，你就属于你参加的任何派对。现在你是它的生命。
+
+## 不要饿着肚子购物
+
+在你开始逛万圣节商店之前，买一大袋剩余的糖果(或者带上你从邻居小孩那里偷来的糖果)和零食。如果你想买太多普通的东西，那就吃迷你里斯吧。
+
+## 重复使用你的垃圾
+
+也许通过购买这种一次性垃圾，你正在延续我们对环境不友好的消费文化，但可能比你全价购买要少得多。尽管如此，只要你没有穿一两次就毁了你的服装，就把它捐给慈善机构，送给一个孩子，或者留着以后再穿。听着，反正它会被扔进垃圾桶的。
+
+## 搭配一些自制的东西
+
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-apwIwoC-ENI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-apwIwoC-ENI&start=0) 
+
+你的除夕夜样书并不是真正的《了不起的盖茨比》，而是《T2》的《幻影线》。看看雷诺兹·伍德库克为了寻找他的爱人阿尔玛而经过的盛装狂欢者。这些人生活在一个前派对城市的世界里。他们不能在商店里买一整套由塑料和毛毡制成的服装。如果他们想穿得古怪，他们必须有创意。他们必须制作自己滑稽的巨型牛仔帽，或者自己的巨型小猎犬头。
+
+自己做点东西，和你那些商店里买的便宜货搭配。就像*幻影线*的醉酒狂欢者。不要像《T2》中的主演夫妇一样，在所有人都回家之前，不知何故，说服整个乐队继续在舞台上演奏，而清理工作已经开始了。

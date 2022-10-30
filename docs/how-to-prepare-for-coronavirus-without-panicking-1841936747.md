@@ -1,10 +1,10 @@
 # 如何做好应对冠状病毒的准备而不恐慌
 
-> 原文：<https://lifehacker.com/how-to-prepare-for-coronavirus-without-panicking-1841936747>
+> 原文:[https://life hacker . com/how-to-prepare-for-coronavirus-without-panic-1841936747](https://lifehacker.com/how-to-prepare-for-coronavirus-without-panicking-1841936747)
 
 新冠肺炎到目前为止已经传播到了 [34 个国家](https://www.who.int/docs/default-source/coronaviruse/situation-reports/20200225-sitrep-36-covid-19.pdf?sfvrsn=2791b4e0_2) 。尽管这种疾病在中国以外仍然很罕见，在美国也只有少数几个病例，但在它被控制之前，有理由预计这种疾病会传播得更广。这并不意味着我们现在(或永远)需要恐慌，但做好准备是明智的。
 
-
+Watch
 
 ### 说真的，别慌
 
@@ -12,4 +12,55 @@
 
 世卫组织导演 [在最近的新闻发布会](https://twitter.com/WHO/status/1231959508823543810) 上说，疫情需要广泛、严厉，并对整个社会产生严重影响。这并不能描述我们目前所看到的。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1231959730207285248&amp;autosize=1" autoresize="true" id="twitter-1231959730207285248" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">政府和医疗服务如此紧急反应的全部原因是他们试图阻止这种情况的发生。到目前为止，它似乎在起作用:中国的病例已经在减缓，许多重病患者已经康复。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h294938">标记值得信赖的信息源</h3><p class="sc-77igqf-0 bOfvBY">有很多关于冠状病毒的错误信息，还有<span></span>的骗局和神话正在蔓延。将几个来源加入书签，这样你就可以随着情况的发展进行检查:</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>世界卫生组织的<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.who.int/emergencies/diseases/novel-coronavirus-2019&quot;,{&quot;metric25&quot;:1}]]" href="https://www.who.int/emergencies/diseases/novel-coronavirus-2019" target="_blank" rel="noopener noreferrer">新冠肺炎页</a>T3】</span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.cdc.gov/coronavirus/2019-ncov/index.html&quot;,{&quot;metric25&quot;:1}]]" href="https://www.cdc.gov/coronavirus/2019-ncov/index.html" target="_blank" rel="noopener noreferrer">疾病预防控制中心的新冠肺炎页面，提供美国特有的信息</a> </span>(包括对旅行者的警告)</li><li>您当地(市、县和/或州)的卫生部门</li></ul><p class="sc-77igqf-0 bOfvBY">如果病毒来到你所在的地方，这些本地网页将特别重要。他们将提供针对你所在地区的信息和指导方针，很可能包括有多少人受到影响的最新信息。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h294939">了解病毒的真相</h3><p class="sc-77igqf-0 bOfvBY">新冠肺炎的症状类似流感，尽管世界卫生组织的玛利亚·范·克霍夫在一次问答中说，流鼻涕和打喷嚏不是这种疾病的典型症状。相反，人们更常见的是干咳，并可能出现呼吸急促。其他症状包括发烧、肌肉疼痛和总体感觉不适。</p><p class="sc-77igqf-0 bOfvBY">她强调，如果你呼吸急促或胸痛，寻求医疗护理是很重要的，因为这可能表明你的病情更加严重。即使病因不是冠状病毒，这些也是严重的症状，所以不要忽视它们。</p><p class="sc-77igqf-0 bOfvBY">迄今为止，似乎 80%的病毒感染者病情较轻，但更严重的病例可能会很严重，甚至致命。更有可能出现严重病例的人包括 60 岁以上的人，或患有心血管疾病或慢性呼吸系统疾病等潜在疾病的人。</p><p class="sc-77igqf-0 bOfvBY">在我写这篇文章的时候，没有针对这种病毒的疫苗，也没有治愈这种疾病的方法，尽管目前有实验性的疫苗和治疗方法正在测试中。尽管疾病预防控制中心正在努力使快速检测成为可能，但检测你是否感染了病毒需要几天时间才能得到结果。我们每天都在了解更多关于这种病毒的信息，所以请不时查看世卫组织和疾病预防控制中心的网站以获取更新。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h294940">注重有效的预防手段</h3><p class="sc-77igqf-0 bOfvBY">导致新冠肺炎的病毒通过飞沫传播。这意味着，当感染者咳嗽或呼吸时，病毒可能存在于他们排入空气的唾液或其他液体中。(Ew。)</p><p class="sc-77igqf-0 bOfvBY">但这实际上是一个好消息，因为水滴太重了，无法悬浮在空气中。它们还没走多远就落地了。因此，即使有人生病了，如果你离他们三到六英尺远，你也不会有太大的危险。这也意味着这种疾病不会通过空气传播，所以你不必担心通风系统或与病人共处一室。你必须小心触摸那些可能有水滴沉淀的表面，这就是为什么洗手如此重要。</p><p class="sc-77igqf-0 bOfvBY">你知道避免由飞沫传播的疾病(包括感冒和流感)的基本知识，但是让我们再来复习一遍:</p><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>经常洗手，包括吃饭前和触摸眼睛、鼻子或嘴巴前。</li><li>练习“呼吸礼仪”，咳嗽或打喷嚏时用手肘或纸巾(妥善处理)代替手。</li><li>如果你生病了，就呆在家里，避免与看起来生病的人密切接触。</li><li>消毒你所关心的任何表面。杀死其他冠状病毒的漂白剂和其他消毒剂在这里很可能会起作用。</li></ul><p class="sc-77igqf-0 bOfvBY">一个口罩<span></span>(如果有的话)帮不了你多少，你最好把口罩留给医护人员，他们比你更需要它们。但是如果你确实戴着口罩——例如，如果你自己生病了——<span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.who.int/emergencies/diseases/novel-coronavirus-2019/advice-for-public/when-and-how-to-use-masks&quot;,{&quot;metric25&quot;:1}]]" href="https://www.who.int/emergencies/diseases/novel-coronavirus-2019/advice-for-public/when-and-how-to-use-masks" target="_blank" rel="noopener noreferrer">确保你正确使用它</a> </span>。</p><p class="sc-77igqf-0 bOfvBY">同样，随着我们对该病毒的了解越来越多，请关注这些值得信赖的来源，了解保持安全的最佳方式的更新。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h294941">考虑一下你会如何处理生活中的干扰</h3><p class="sc-77igqf-0 bOfvBY">如果你所在地区的情况变得严重，“社会距离”方法可能会被用来阻止人们聚在一起交流细菌。这意味着学校可能会关闭，例如，他们在 2009 年 H1N1 流感蔓延时在美国一些地区关闭<span></span>。在中国，由于冠状病毒开始传播，一些农历新年庆祝活动被取消。这里可能会发生类似的关闭和取消。</p><p class="sc-77igqf-0 bOfvBY">还可以鼓励雇主扩大病假政策，允许员工在家工作。如果你在工作场所雇佣员工或有影响力，现在开始考虑这些政策可能还不算太早。</p><p class="sc-77igqf-0 bOfvBY">在严重疫情爆发的情况下，医疗机构可能会因冠状病毒患者或有疾病症状的患者而格外忙碌。像口罩这样的个人防护用品已经供不应求。如果您经常需要医疗护理，与您的提供者讨论如何计划可能是有意义的，例如，他们是否建议手头有额外的药物或用品。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h294942">更新你的家庭应急用品</h3><p class="sc-77igqf-0 bOfvBY">全面的后世界末日场景是极不可能的，但为生活中任何原因的小干扰做好准备总是好的。如果计划被取消，或者因为你自己生病而需要呆在家里，你会很高兴手头有瓶装水和不易腐烂的食物。你的<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://lifehacker.com/nows-the-time-to-consolidate-your-home-emergency-kit-1825238093&quot;,{&quot;metric25&quot;:1}]]" href="https://lifehacker.com/nows-the-time-to-consolidate-your-home-emergency-kit-1825238093">家庭应急包</a> </span>也将在冬季风暴、自然灾害、停电和其他异常事件中派上用场。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1231959730207285248&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1231959730207285248&autosize=1) 
+
+政府和医疗服务如此紧急反应的全部原因是他们试图阻止这种情况的发生。到目前为止，它似乎在起作用:中国的病例已经在减缓，许多重病患者已经康复。
+
+### 标记值得信赖的信息源
+
+有很多关于冠状病毒的错误信息，还有的骗局和神话正在蔓延。将几个来源加入书签，这样你就可以随着情况的发展进行检查:
+
+*   世界卫生组织的 [新冠肺炎页](https://www.who.int/emergencies/diseases/novel-coronavirus-2019)T3】
+*   [疾病预防控制中心的新冠肺炎页面，提供美国特有的信息](https://www.cdc.gov/coronavirus/2019-ncov/index.html) (包括对旅行者的警告)
+*   您当地(市、县和/或州)的卫生部门
+
+如果病毒来到你所在的地方，这些本地网页将特别重要。他们将提供针对你所在地区的信息和指导方针，很可能包括有多少人受到影响的最新信息。
+
+### 了解病毒的真相
+
+新冠肺炎的症状类似流感，尽管世界卫生组织的玛利亚·范·克霍夫在一次问答中说，流鼻涕和打喷嚏不是这种疾病的典型症状。相反，人们更常见的是干咳，并可能出现呼吸急促。其他症状包括发烧、肌肉疼痛和总体感觉不适。
+
+她强调，如果你呼吸急促或胸痛，寻求医疗护理是很重要的，因为这可能表明你的病情更加严重。即使病因不是冠状病毒，这些也是严重的症状，所以不要忽视它们。
+
+迄今为止，似乎 80%的病毒感染者病情较轻，但更严重的病例可能会很严重，甚至致命。更有可能出现严重病例的人包括 60 岁以上的人，或患有心血管疾病或慢性呼吸系统疾病等潜在疾病的人。
+
+在我写这篇文章的时候，没有针对这种病毒的疫苗，也没有治愈这种疾病的方法，尽管目前有实验性的疫苗和治疗方法正在测试中。尽管疾病预防控制中心正在努力使快速检测成为可能，但检测你是否感染了病毒需要几天时间才能得到结果。我们每天都在了解更多关于这种病毒的信息，所以请不时查看世卫组织和疾病预防控制中心的网站以获取更新。
+
+### 注重有效的预防手段
+
+导致新冠肺炎的病毒通过飞沫传播。这意味着，当感染者咳嗽或呼吸时，病毒可能存在于他们排入空气的唾液或其他液体中。(Ew。)
+
+但这实际上是一个好消息，因为水滴太重了，无法悬浮在空气中。它们还没走多远就落地了。因此，即使有人生病了，如果你离他们三到六英尺远，你也不会有太大的危险。这也意味着这种疾病不会通过空气传播，所以你不必担心通风系统或与病人共处一室。你必须小心触摸那些可能有水滴沉淀的表面，这就是为什么洗手如此重要。
+
+你知道避免由飞沫传播的疾病(包括感冒和流感)的基本知识，但是让我们再来复习一遍:
+
+*   经常洗手，包括吃饭前和触摸眼睛、鼻子或嘴巴前。
+*   练习“呼吸礼仪”，咳嗽或打喷嚏时用手肘或纸巾(妥善处理)代替手。
+*   如果你生病了，就呆在家里，避免与看起来生病的人密切接触。
+*   消毒你所关心的任何表面。杀死其他冠状病毒的漂白剂和其他消毒剂在这里很可能会起作用。
+
+一个口罩(如果有的话)帮不了你多少，你最好把口罩留给医护人员，他们比你更需要它们。但是如果你确实戴着口罩——例如，如果你自己生病了——[确保你正确使用它](https://www.who.int/emergencies/diseases/novel-coronavirus-2019/advice-for-public/when-and-how-to-use-masks) 。
+
+同样，随着我们对该病毒的了解越来越多，请关注这些值得信赖的来源，了解保持安全的最佳方式的更新。
+
+### 考虑一下你会如何处理生活中的干扰
+
+如果你所在地区的情况变得严重，“社会距离”方法可能会被用来阻止人们聚在一起交流细菌。这意味着学校可能会关闭，例如，他们在 2009 年 H1N1 流感蔓延时在美国一些地区关闭。在中国，由于冠状病毒开始传播，一些农历新年庆祝活动被取消。这里可能会发生类似的关闭和取消。
+
+还可以鼓励雇主扩大病假政策，允许员工在家工作。如果你在工作场所雇佣员工或有影响力，现在开始考虑这些政策可能还不算太早。
+
+在严重疫情爆发的情况下，医疗机构可能会因冠状病毒患者或有疾病症状的患者而格外忙碌。像口罩这样的个人防护用品已经供不应求。如果您经常需要医疗护理，与您的提供者讨论如何计划可能是有意义的，例如，他们是否建议手头有额外的药物或用品。
+
+### 更新你的家庭应急用品
+
+全面的后世界末日场景是极不可能的，但为生活中任何原因的小干扰做好准备总是好的。如果计划被取消，或者因为你自己生病而需要呆在家里，你会很高兴手头有瓶装水和不易腐烂的食物。你的 [家庭应急包](https://lifehacker.com/nows-the-time-to-consolidate-your-home-emergency-kit-1825238093) 也将在冬季风暴、自然灾害、停电和其他异常事件中派上用场。

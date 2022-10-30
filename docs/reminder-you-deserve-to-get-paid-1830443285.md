@@ -1,13 +1,27 @@
 # 提醒:你应该得到报酬
 
-> 原文：<https://lifehacker.com/reminder-you-deserve-to-get-paid-1830443285>
+> 原文:[https://life hacker . com/reminder-you worth-to-get-payed-1830443285](https://lifehacker.com/reminder-you-deserve-to-get-paid-1830443285)
 
 我们在 Deadspin 的朋友写了一篇有针对性但相当无关痛痒的文章，是关于 NJ.com 为一份“听起来确实像是最好的写作工作”的招聘广告，但严格来说是兼职的，给记者挣的是津贴，而不是薪水。
 
-
+Watch
 
 在媒体界，这并不是闻所未闻。作家、记者、编辑、摄影师，还有令人不寒而栗的“内容创作者”被例行告知要免费工作，为了曝光、为了荣誉，无论什么，只要不是为了“钱”。一旦你这样做了...嗯，不清楚具体是多少年，但是一旦你“支付了你的费用”，这些专业人士被告知，*然后*也许你会得到报酬。当然不会太多。有津贴，没有福利。
 
 抱歉，我没有说得更好，但这是一个扯淡的系统。人们应该得到公平的工作报酬。但是，即使指出这一点，似乎也是有争议的。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1062728969278185472&amp;autosize=1" autoresize="true" id="twitter-1062728969278185472" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">有...梅根·格伦威尔截屏的推文中的论点有很多很多错误。首先，10 年或 20 年前郊区的 3 万美元与 2018 年大都市的 3 万美元不一样。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">那是一个相当明显的观点。另一个原因是，低薪工作一点也不浪漫。在所有不同的行业，员工都被期望工作更长的时间，更加努力地工作，磨练自己的技能，为项目做贡献，承担更多的工作，而且大部分是免费的。我们吹嘘自己忙得除了工作没有时间做任何事情。但是免费工作并不意味着你想要更多或者更擅长这份工作——它只是意味着你已经有能力这样做了。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">所以，我再说一遍:大家。值得。a .生活。工资。这应该是没有争议的。见鬼，每个人都应该得到比他们仅仅“生活”所需更多的钱。在美国，这包括医疗保险和对退休账户的贡献，因为我们的社会目前的结构是，我们的雇主在很大程度上决定我们是否有医疗保险，并希望有一天退休。</p><p class="sc-77igqf-0 bOfvBY">说“嗯，我做过无薪实习生，看看现在的我”，好像这应该是这个星球上每一个想在这个领域工作的人的标准，这进一步限制了可以拥有这些工作和写这些故事的人的类型(白人、中产阶级、富人、男性)，在一个严重缺乏多样化思想和观点的行业<span></span>。正如生活黑客作家尼克·道格拉斯指出的:</p><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1062762297767198721&amp;autosize=1" autoresize="true" id="twitter-1062762297767198721" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><p class="sc-77igqf-0 bOfvBY">我不知道为什么有些人觉得必须提倡其他人必须破产和痛苦才能做有价值的工作。努力使收支平衡不会让你成为一个更好的记者或作家，只会让你紧张。这不是浪漫，这不是一种荣誉，也不是一部 20 秒的电影蒙太奇，其中勇敢的主角面临一些艰难的时刻，但随后获得了一个大独家新闻，并乘着随之而来的成功浪潮。只是你公司少花一点钱的一种方式。如果你在做一个节拍记者的工作，有理由说，你值得一个节拍记者的工资。</p><p class="sc-77igqf-0 bOfvBY">当然，这没有简单的方法。你不可能放弃一份薪水不高的工作，希望会有更好的工作出现——我们都需要钱。但要求他人“缴纳会费”只会延续不平等的循环，就体育新闻而言，留给你的是一群白人男性作家，他们都在推特上发布相同的内容，指出这是一种糟糕的系统。这对他们来说很好，但如果所有工人都能得到公平的工资就更好了。<br/></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1062728969278185472&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1062728969278185472&autosize=1) 
+
+有...梅根·格伦威尔截屏的推文中的论点有很多很多错误。首先，10 年或 20 年前郊区的 3 万美元与 2018 年大都市的 3 万美元不一样。
+
+那是一个相当明显的观点。另一个原因是，低薪工作一点也不浪漫。在所有不同的行业，员工都被期望工作更长的时间，更加努力地工作，磨练自己的技能，为项目做贡献，承担更多的工作，而且大部分是免费的。我们吹嘘自己忙得除了工作没有时间做任何事情。但是免费工作并不意味着你想要更多或者更擅长这份工作——它只是意味着你已经有能力这样做了。
+
+所以，我再说一遍:大家。值得。a .生活。工资。这应该是没有争议的。见鬼，每个人都应该得到比他们仅仅“生活”所需更多的钱。在美国，这包括医疗保险和对退休账户的贡献，因为我们的社会目前的结构是，我们的雇主在很大程度上决定我们是否有医疗保险，并希望有一天退休。
+
+说“嗯，我做过无薪实习生，看看现在的我”，好像这应该是这个星球上每一个想在这个领域工作的人的标准，这进一步限制了可以拥有这些工作和写这些故事的人的类型(白人、中产阶级、富人、男性)，在一个严重缺乏多样化思想和观点的行业。正如生活黑客作家尼克·道格拉斯指出的:
+
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1062762297767198721&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1062762297767198721&autosize=1) 
+
+我不知道为什么有些人觉得必须提倡其他人必须破产和痛苦才能做有价值的工作。努力使收支平衡不会让你成为一个更好的记者或作家，只会让你紧张。这不是浪漫，这不是一种荣誉，也不是一部 20 秒的电影蒙太奇，其中勇敢的主角面临一些艰难的时刻，但随后获得了一个大独家新闻，并乘着随之而来的成功浪潮。只是你公司少花一点钱的一种方式。如果你在做一个节拍记者的工作，有理由说，你值得一个节拍记者的工资。
+
+当然，这没有简单的方法。你不可能放弃一份薪水不高的工作，希望会有更好的工作出现——我们都需要钱。但要求他人“缴纳会费”只会延续不平等的循环，就体育新闻而言，留给你的是一群白人男性作家，他们都在推特上发布相同的内容，指出这是一种糟糕的系统。这对他们来说很好，但如果所有工人都能得到公平的工资就更好了。

@@ -1,10 +1,10 @@
 # 2019 年你需要了解的 HDMI 2.1 和 8K 电视
 
-> 原文：<https://lifehacker.com/what-you-need-to-know-about-hdmi-2-1-and-8k-tvs-in-2019-1831842410>
+> 原文:[https://life hacker . com/what-you-need-to-know-about-HDMI-2-1-and-8k-TVs-in-2019-1831842410](https://lifehacker.com/what-you-need-to-know-about-hdmi-2-1-and-8k-tvs-in-2019-1831842410)
 
 2019 年你会听到很多关于 [HDMI 2.1](https://lifehacker.com/everything-you-need-to-know-about-hdmi-2-1-1792406703) 的消息。这是自近二十年前取代之前的 A/V 连接以来，消费者一直使用的 A/V 连接格式的最新版本，随着 8K 电视准备好进入你的客厅，HDMI 2.1 是一个必要的、备受期待的升级。
 
-
+Watch
 
 虽然 HDMI 2.1 端口和电缆看起来与我们现在使用的相同，但这一最新的更新版本与以前的版本有很多不同，它将不可避免地取代 2013 年推出的 HDMI 2.0 标准。它包含了许多新功能，能够提供令人难以置信的高质量视频。在某些方面，它也比以前的 HDMI 版本更复杂，限制更多。
 
@@ -49,4 +49,8 @@ HDMI 2.1 还带来了许多其他 A/V 功能和增强功能，包括:
 
 这并不是说没有任何 8K 内容，但这是微不足道的，只有少数电影和 YouTube 视频可用。8K 蓝光和 8K 蓝光播放器还不存在，8K 有线电视盒或流媒体设备也不存在。即使这样，第一代 8K 电视也可能不兼容，因为 2019 年上市的最初型号可能不完全支持 HDMI 2.1。此外，HDMI 2.0 能够以 24 和 30 fps 的速度播放 8K 视频，这是目前大多数电影和电视节目拍摄的帧率。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-hVvEISFw9w0&amp;start=0" data-chomp-id="hVvEISFw9w0" data-recommend-id="youtube://hVvEISFw9w0" id="youtube-hVvEISFw9w0" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="hVvEISFw9w0" data-recommend-id="youtube://hVvEISFw9w0" id="youtube-hVvEISFw9w0" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">唯一有正当理由比其他人更快升级到 HDMI 2.1 的消费者是游戏玩家和铁杆家庭影院爱好者。即使到那时，大多数主机游戏玩家都将不得不等待微软和索尼的重大发现——可能在 2020 年——这应该会给电视制造商足够的时间来尽可能多地加入 HDMI 2.1 功能(和分辨率)。</p><p class="sc-77igqf-0 bOfvBY">换句话说，现在买一台 8K 电视，然后等着其他东西赶上来，会有点傻；当你准备好购买 8K 电视时，购买 8K 电视，因为那时你将有比现在好得多的产品可供选择。也许电视的尺寸<span></span>也会更合理一点。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-hVvEISFw9w0&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-hVvEISFw9w0&start=0) 
+
+唯一有正当理由比其他人更快升级到 HDMI 2.1 的消费者是游戏玩家和铁杆家庭影院爱好者。即使到那时，大多数主机游戏玩家都将不得不等待微软和索尼的重大发现——可能在 2020 年——这应该会给电视制造商足够的时间来尽可能多地加入 HDMI 2.1 功能(和分辨率)。
+
+换句话说，现在买一台 8K 电视，然后等着其他东西赶上来，会有点傻；当你准备好购买 8K 电视时，购买 8K 电视，因为那时你将有比现在好得多的产品可供选择。也许电视的尺寸也会更合理一点。

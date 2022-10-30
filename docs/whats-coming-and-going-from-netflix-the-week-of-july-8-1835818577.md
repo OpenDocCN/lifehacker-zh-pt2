@@ -1,11 +1,64 @@
 # 2019 年 7 月 8 日这一周，网飞将会发生什么
 
-> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-july-8-1835818577>
+> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of July-8-1835818577](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-july-8-1835818577)
 
 《欢乐满人间》将于本周二回归，所以我建议你在认为它对你来说太 PG 或者太家庭化之前先试一试。艾米莉·布朗特是令人愉快的，我们都知道。
 
-
+Watch
 
 当然，你也可以疯狂地转向另一个方向，近距离观看*(周五)，这看起来很暴力和恐怖，但也有几分好处。安东尼·麦凯扮演一个带着怀孕妻子的急诊室护士，还有一些不诚实的警察和马西娅·盖伊·哈登参与其中。(我不确定 MGH 是否在扮演一个坏警察——请收听并找出答案。)*
 
-*<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video--3jsfXDZLIY&amp;start=0" data-chomp-id="-3jsfXDZLIY" data-recommend-id="youtube://-3jsfXDZLIY" id="youtube--3jsfXDZLIY" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="-3jsfXDZLIY" data-recommend-id="youtube://-3jsfXDZLIY" id="youtube--3jsfXDZLIY" data-recommended="false" class="js_recommend"/></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h290422"><br/></h3><h3 class="sc-1bwb26k-1 kpbNNd" id="h290423">本周到达</h3><h4 class="sc-1bwb26k-1 kpbNNd" id="h290424"><strong>7 月 9 日星期二</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>玛丽·波平斯归来</em></li><li><em>怪癖</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h290425"><strong>7 月 10 日星期三</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80234451&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80234451" target="_blank" rel="noopener noreferrer"> <em>家人团聚</em> </a> </span> <em> —网飞家人</em></li><li>《大设计》:第十季</li><li><em>大设计:第 15 季</em></li><li><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81036520&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81036520" target="_blank" rel="noopener noreferrer"> <em>补片:纪录片</em></a><em>—原 netflix】</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h290426"><strong>7 月 11 日星期四</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81024041&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81024041" target="_blank" rel="noopener noreferrer"> <em>【末世城市】</em> </a> </span> <em> —网飞电影</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h290427">7 月 12 日星期五</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80179784&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80179784" target="_blank" rel="noopener noreferrer"><em>3 下:世外桃源:第二部</em> </a> </span> <em> —网飞家族</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80221109&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80221109" target="_blank" rel="noopener noreferrer"> <em> 4 拉塔斯</em> </a> </span> <em> —网飞电影</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80215147&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80215147" target="_blank" rel="noopener noreferrer"> <em>被吹走</em> </a> </span> <em> —网飞原作</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80141270&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80141270" target="_blank" rel="noopener noreferrer"> <em>奖金家族:第三季</em> </a> </span> <em> —网飞原著</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80210245&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80210245" target="_blank" rel="noopener noreferrer"> <em>极限订婚</em> </a> </span> <em> —网飞原创</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81044248&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81044248" target="_blank" rel="noopener noreferrer"> <em>绑架斯特拉</em></a>T5<em>—网飞电影</em></span></li><li>《路易斯·米格尔》系列:第一季</li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80221677&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80221677" target="_blank" rel="noopener noreferrer"> <em>直射</em> </a> </span> <em> —网飞电影</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81040704&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81040704" target="_blank" rel="noopener noreferrer"> <em> Taco 编年史</em> </a> </span> <em> —网飞原创</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81056491&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81056491" target="_blank" rel="noopener noreferrer"> <em>真实曲调:歌曲</em> </a> </span> <em> —网飞家族</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h290428">7 月 13 日星期六</h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>抱歉天使</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h290429">这周离开</h3><h4 class="sc-1bwb26k-1 kpbNNd" id="h290430"><strong>7 月 9 日出发</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>狮子</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h290431"><strong>7 月 10 日离开</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>第一部史诗电影《裤衩队长》</li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h290432"><strong>7 月 12 日离开</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>消失的婴儿消失了</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h290433"><strong>7 月 14 日离开</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>移民</em></li></ul><div id="mgid-container" data-placement="2" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>*
+ *[https://lifehacker.com/embed/inset/iframe?id=youtube-video--3jsfXDZLIY&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video--3jsfXDZLIY&start=0)* 
+
+### *本周到达*
+
+#### ***7 月 9 日星期二***
+
+*   **玛丽·波平斯归来**
+*   **怪癖**
+
+#### ***7 月 10 日星期三***
+
+*   *[*家人团聚*](https://www.netflix.com/title/80234451) *—网飞家人**
+*   *《大设计》:第十季*
+*   **大设计:第 15 季**
+*   *[*补片:纪录片*](https://www.netflix.com/title/81036520)*—原 netflix】**
+
+#### ***7 月 11 日星期四***
+
+*   *[*【末世城市】*](https://www.netflix.com/title/81024041) *—网飞电影**
+
+#### *7 月 12 日星期五*
+
+*   *[*3 下:世外桃源:第二部*](https://www.netflix.com/title/80179784) *—网飞家族**
+*   *[*4 拉塔斯*](https://www.netflix.com/title/80221109) *—网飞电影**
+*   *[*被吹走*](https://www.netflix.com/title/80215147) *—网飞原作**
+*   *[*奖金家族:第三季*](https://www.netflix.com/title/80141270) *—网飞原著**
+*   *[*极限订婚*](https://www.netflix.com/title/80210245) *—网飞原创**
+*   *[*绑架斯特拉*](https://www.netflix.com/title/81044248)T5*—网飞电影**
+*   *《路易斯·米格尔》系列:第一季*
+*   *[*直射*](https://www.netflix.com/title/80221677) *—网飞电影**
+*   *[*Taco 编年史*](https://www.netflix.com/title/81040704) *—网飞原创**
+*   *[*真实曲调:歌曲*](https://www.netflix.com/title/81056491) *—网飞家族**
+
+#### *7 月 13 日星期六*
+
+*   **抱歉天使**
+
+### *这周离开*
+
+#### ***7 月 9 日出发***
+
+*   **狮子**
+
+#### ***7 月 10 日离开***
+
+*   *第一部史诗电影《裤衩队长》*
+
+#### ***7 月 12 日离开***
+
+*   **消失的婴儿消失了**
+
+#### ***7 月 14 日离开***
+
+*   **移民**

@@ -1,11 +1,29 @@
 # 有人可以呼吸，但仍然需要心肺复苏术
 
-> 原文：<https://lifehacker.com/someone-can-be-breathing-and-still-need-cpr-1838244560>
+> 原文:[https://life hacker . com/someone-can-be-breathing and still-need-CPR-1838244560](https://lifehacker.com/someone-can-be-breathing-and-still-need-cpr-1838244560)
 
 我上过一些 CPR 课程，我承认我带着一个错误的印象离开了，那就是一个需要 CPR 的人会没有反应，甚至完全不呼吸。但是心脏骤停的一个常见症状是 [濒死呼吸](https://www.medicalnewstoday.com/articles/321974.php) ，这看起来像是人在喘气或打鼾。
 
-
+Watch
 
 这是一个演员在演示濒死呼吸的样子。如果你会想“哦，他摔倒了，但他还有呼吸，他没事”，请知道在这种情况下，一个人需要 911 电话和心肺复苏术。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-CBMxH4xtE8w&amp;start=0" data-chomp-id="CBMxH4xtE8w" data-recommend-id="youtube://CBMxH4xtE8w" id="youtube-CBMxH4xtE8w" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="CBMxH4xtE8w" data-recommend-id="youtube://CBMxH4xtE8w" id="youtube-CBMxH4xtE8w" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">这就是为什么 CPR 课程实际上告诉你要注意一个“呼吸不正常”的人。濒死呼吸不是正常呼吸；这是大脑缺氧时的一种反射。</p><p class="sc-77igqf-0 bOfvBY">从某种意义上说，这是一个好迹象，因为这意味着这个人的脑干仍然活跃。心脏骤停时有濒死呼吸的人比没有濒死呼吸的人更有可能存活<span></span>，尽管令人悲伤的事实是无论如何几率都很低。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h289863">看到有人虚脱喘气怎么办</h3><p class="sc-77igqf-0 bOfvBY">如果一个人在你面前倒下了，并且他们在喘气、呻吟或打鼾，那么是时候采取行动了<span></span>。(您可以<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.verywellhealth.com/hands-only-cpr-no-pulse-check-needed-3971057&quot;,{&quot;metric25&quot;:1}]]" href="https://www.verywellhealth.com/hands-only-cpr-no-pulse-check-needed-3971057" target="_blank" rel="noopener noreferrer">跳过对脉冲</a> </span>的检查，这只是需要额外的时间。如果这个人真的活得好好的，他们会把你推开或者让你停下来。)如果你最近接受过 CPR 训练，做你被训练做的任何事情。对我们大多数人来说，一般的建议是:</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>开始只用手的 CPR(快速胸部按压，<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://vitals.lifehacker.com/you-can-now-do-cpr-to-more-than-just-disco-music-1793521390&quot;,{&quot;metric25&quot;:1}]]" href="https://vitals.lifehacker.com/you-can-now-do-cpr-to-more-than-just-disco-music-1793521390">到保持“活着”</a> </span>的节奏)</li><li>让人打 911</li><li>如果可能的话，让某人寻找一个 AED(自动体外除颤器)设备，在许多公共场所都有</li></ul><p class="sc-77igqf-0 bOfvBY">亚利桑那州的萨弗心脏中心<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://heart.arizona.edu/heart-health/learn-cpr/gasping-sign-cardiac-arrest&quot;,{&quot;metric25&quot;:1}]]" href="https://heart.arizona.edu/heart-health/learn-cpr/gasping-sign-cardiac-arrest" target="_blank" rel="noopener noreferrer">指出</a> </span>濒死呼吸实际上可能比口对口人工呼吸更能让空气进入胸腔。所以没有必要对着人的嘴呼吸。徒手心肺复苏<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://lifehacker.com/all-the-first-aid-stuff-thats-changed-since-you-first-l-1742121480&quot;,{&quot;metric25&quot;:1}]]" href="https://lifehacker.com/all-the-first-aid-stuff-thats-changed-since-you-first-l-1742121480">无论如何都是现在的首选方法</a> </span>。</p><p class="sc-77igqf-0 bOfvBY">多亏了安妮·玛丽·坎宁安的这个推特帖子 ，我了解了濒死呼吸，她是一名医生，最近看到有人心脏骤停，起初误以为发生了什么。她分享了一些关于濒死呼吸的事实，并链接了上面的视频。她说:“我是一名训练有素的健康专家，如果我没有立即意识到心脏骤停，你也不会。”</p><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1174035618671841281&amp;autosize=1" autoresize="true" id="twitter-1174035618671841281" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-CBMxH4xtE8w&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-CBMxH4xtE8w&start=0) 
+
+这就是为什么 CPR 课程实际上告诉你要注意一个“呼吸不正常”的人。濒死呼吸不是正常呼吸；这是大脑缺氧时的一种反射。
+
+从某种意义上说，这是一个好迹象，因为这意味着这个人的脑干仍然活跃。心脏骤停时有濒死呼吸的人比没有濒死呼吸的人更有可能存活，尽管令人悲伤的事实是无论如何几率都很低。
+
+### 看到有人虚脱喘气怎么办
+
+如果一个人在你面前倒下了，并且他们在喘气、呻吟或打鼾，那么是时候采取行动了。(您可以 [跳过对脉冲](https://www.verywellhealth.com/hands-only-cpr-no-pulse-check-needed-3971057) 的检查，这只是需要额外的时间。如果这个人真的活得好好的，他们会把你推开或者让你停下来。)如果你最近接受过 CPR 训练，做你被训练做的任何事情。对我们大多数人来说，一般的建议是:
+
+*   开始只用手的 CPR(快速胸部按压， [到保持“活着”](https://vitals.lifehacker.com/you-can-now-do-cpr-to-more-than-just-disco-music-1793521390) 的节奏)
+*   让人打 911
+*   如果可能的话，让某人寻找一个 AED(自动体外除颤器)设备，在许多公共场所都有
+
+亚利桑那州的萨弗心脏中心 [指出](https://heart.arizona.edu/heart-health/learn-cpr/gasping-sign-cardiac-arrest) 濒死呼吸实际上可能比口对口人工呼吸更能让空气进入胸腔。所以没有必要对着人的嘴呼吸。徒手心肺复苏 [无论如何都是现在的首选方法](https://lifehacker.com/all-the-first-aid-stuff-thats-changed-since-you-first-l-1742121480) 。
+
+多亏了安妮·玛丽·坎宁安的这个推特帖子 ，我了解了濒死呼吸，她是一名医生，最近看到有人心脏骤停，起初误以为发生了什么。她分享了一些关于濒死呼吸的事实，并链接了上面的视频。她说:“我是一名训练有素的健康专家，如果我没有立即意识到心脏骤停，你也不会。”
+
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1174035618671841281&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1174035618671841281&autosize=1)

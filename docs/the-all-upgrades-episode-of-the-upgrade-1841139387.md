@@ -1,9 +1,21 @@
 # 升级版的全升级集
 
-> 原文：<https://lifehacker.com/the-all-upgrades-episode-of-the-upgrade-1841139387>
+> 原文:[https://life hacker . com/the-all-upgrades-episode-of-the-upgrade-1841139387](https://lifehacker.com/the-all-upgrades-episode-of-the-upgrade-1841139387)
 
 在本周的节目中，Alice 和 Melissa 回顾了过去几集的升级，看看他们是如何坚持下来的，从 chrome 扩展到心态的转变。有一点点骄傲，一点点羞愧，还有一大堆进步。到这一集结束时，你会变得如此完美，以至于你不知道下一集要做什么！
 
+Watch
 
+[https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/50a1b5f4-0486-4c02-b067-e4dc8b807ec3/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/50a1b5f4-0486-4c02-b067-e4dc8b807ec3/embed)
 
-<iframe data-src="https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/50a1b5f4-0486-4c02-b067-e4dc8b807ec3/embed" width="640px" height="360px" sandbox="allow-same-origin allow-scripts allow-forms" frameborder="0" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen" class="lazyload" scrolling="yes">T2】</span></p><p class="sc-77igqf-0 bOfvBY">收听上面的升级或者在所有通常提供播客的地方找到我们，包括<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://itunes.apple.com/us/podcast/lifehacker/id508117781?mt=2&quot;,{&quot;metric25&quot;:1}]]" href="https://itunes.apple.com/us/podcast/lifehacker/id508117781?mt=2" target="_blank" rel="noopener noreferrer">苹果播客</a></span><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://play.google.com/music/listen?u=0#/ps/Illldmn6f4jkwb32lslhae3laru&quot;,{&quot;metric25&quot;:1}]]" href="https://play.google.com/music/listen?u=0#/ps/Illldmn6f4jkwb32lslhae3laru" target="_blank" rel="noopener noreferrer">Google Play</a></span><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj&quot;,{&quot;metric25&quot;:1}]]" href="https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj" target="_blank" rel="noopener noreferrer">Spotify</a></span><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.iheart.com/podcast/8-The-Upgrade-by-Lifehacker-28037794/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.iheart.com/podcast/8-The-Upgrade-by-Lifehacker-28037794/" target="_blank" rel="noopener noreferrer">iHeartRadio</a></span><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.stitcher.com/podcast/lifehacker-podcast&quot;,{&quot;metric25&quot;:1}]]" href="https://www.stitcher.com/podcast/lifehacker-podcast" target="_blank" rel="noopener noreferrer">Stitcher</a></span>和 NPR 一号。</p><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><p class="sc-77igqf-0 bOfvBY">对我们有任何反馈或想法吗？想上节目吗？请拨打 347-687-8109 给我们留言，或者给 upgrade@lifehacker.com 发送语音备忘录。<br/></p><h3 class="sc-1bwb26k-1 kpbNNd" id="h173490"><strong>一集文字记录</strong></h3><p class=""><span class="clear-both flex-video video-600"><iframe data-src="https://www.scribd.com/embeds/443789281/content?start_page=1&amp;view_mode=scroll&amp;access_key=key-rLJ93gi7f6FgrQH7lRL4&amp;show_recommendations=true" width="100%" height="600px" sandbox="allow-same-origin allow-scripts allow-forms" frameborder="0" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen" class="lazyload" scrolling="yes"/>T2】</span></p><div id="mgid-container" data-placement="3" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>
+T2】
+
+收听上面的升级或者在所有通常提供播客的地方找到我们，包括 [苹果播客](https://itunes.apple.com/us/podcast/lifehacker/id508117781?mt=2)[Google Play](https://play.google.com/music/listen?u=0#/ps/Illldmn6f4jkwb32lslhae3laru)[Spotify](https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj)[iHeartRadio](https://www.iheart.com/podcast/8-The-Upgrade-by-Lifehacker-28037794/)[Stitcher](https://www.stitcher.com/podcast/lifehacker-podcast)和 NPR 一号。
+
+对我们有任何反馈或想法吗？想上节目吗？请拨打 347-687-8109 给我们留言，或者给 upgrade@lifehacker.com 发送语音备忘录。
+
+### **一集文字记录**
+
+[https://www.scribd.com/embeds/443789281/content?start_page=1&view_mode=scroll&access_key=key-rLJ93gi7f6FgrQH7lRL4&show_recommendations=true](https://www.scribd.com/embeds/443789281/content?start_page=1&view_mode=scroll&access_key=key-rLJ93gi7f6FgrQH7lRL4&show_recommendations=true)
+
+T2】

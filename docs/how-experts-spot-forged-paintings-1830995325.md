@@ -1,5 +1,20 @@
 # 专家如何识别假画
 
-> 原文：<https://lifehacker.com/how-experts-spot-forged-paintings-1830995325>
+> 原文:[https://life hacker . com/how-experts-spot-forged-paints-1830995325](https://lifehacker.com/how-experts-spot-forged-paintings-1830995325)
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-Amu2mOsIz-w&amp;start=0" data-chomp-id="Amu2mOsIz-w" data-recommend-id="youtube://Amu2mOsIz-w" id="youtube-Amu2mOsIz-w" data-recommended="true" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="Amu2mOsIz-w" data-recommend-id="youtube://Amu2mOsIz-w" id="youtube-Amu2mOsIz-w" data-recommended="true" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">艺术品市场的疯狂价格使艺术品伪造成为一个潜在的高利润行业。那么艺术品买家如何辨别真正的未被发现的艺术品和赝品呢？为了分析和鉴别赝品，专家们必须运用他们的艺术史知识，加上艺术家的材料和技术背后的科学。在上面的视频中，法医科学家 Thiago Piwowarczyk 和艺术史学家 Jeffrey Taylor 向 Wired 展示了他们是如何鉴别出杰森·布拉克滴水画的赝品的(这些画实际上是出了名的难以伪造)。</p><div class="bxm4mm-2 hKBnez"><div class="bxm4mm-1 goloRq instream-native-video instream-permalink instream-native-video--mobile"><div class="sc-1h0epat-0 lepUzz"><div class="sc-1h0epat-1 gRjwiT"><div class="sc-235a11-0 egwski">Watch</div></div><div class="sc-1wkneyl-0 hxLRyg video-html5-playlist" data-playlist="192590,192585,192428" data-current="192590"><div class="video-html5-loaded"><div class="video-html5-player"><div class="lhhce6-0 bVyOPq video-html5 autoplay muted mobile" data-video-id="192590" data-position="sidebar" data-video-title="How to Make a Quick and Easy Crumb Crust" data-video-network="lifehacker" data-video-duration="135"></div></div></div></div></div></div></div><p class="sc-77igqf-0 bOfvBY">伪造的迹象可以采取多种形式。波洛克赝品的特征包括:</p><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>随附文件中的事实错误</li><li>与波洛克风格不符的绘画技巧的迹象</li><li>一幅钉在一起的画布，在当时并不常见</li><li>显示画布伪造“老化”的化学物质</li></ul><p class="sc-77igqf-0 bOfvBY">这只是消除这种草率伪造的一个例子。观看视频，看看 Piwowarczyk 和 Taylor 在分析这幅画时还捕捉到了什么。</p><p class="sc-77igqf-0 bOfvBY">(via<span>T1】科特基 T3)</span></p><div id="mgid-container" data-placement="4" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-Amu2mOsIz-w&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-Amu2mOsIz-w&start=0) 
+
+艺术品市场的疯狂价格使艺术品伪造成为一个潜在的高利润行业。那么艺术品买家如何辨别真正的未被发现的艺术品和赝品呢？为了分析和鉴别赝品，专家们必须运用他们的艺术史知识，加上艺术家的材料和技术背后的科学。在上面的视频中，法医科学家 Thiago Piwowarczyk 和艺术史学家 Jeffrey Taylor 向 Wired 展示了他们是如何鉴别出杰森·布拉克滴水画的赝品的(这些画实际上是出了名的难以伪造)。
+
+Watch
+
+伪造的迹象可以采取多种形式。波洛克赝品的特征包括:
+
+*   随附文件中的事实错误
+*   与波洛克风格不符的绘画技巧的迹象
+*   一幅钉在一起的画布，在当时并不常见
+*   显示画布伪造“老化”的化学物质
+
+这只是消除这种草率伪造的一个例子。观看视频，看看 Piwowarczyk 和 Taylor 在分析这幅画时还捕捉到了什么。
+
+(viaT1】科特基 T3)

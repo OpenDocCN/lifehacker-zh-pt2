@@ -1,10 +1,10 @@
 # “性别揭秘派对”正式退休了
 
-> 原文：<https://lifehacker.com/its-officially-time-to-retire-the-gender-reveal-party-1844982995>
+> 原文:[https://life hacker . com/its-official-time-to-retire-the-gender-reveal-party-1844982995](https://lifehacker.com/its-officially-time-to-retire-the-gender-reveal-party-1844982995)
 
 如果你在过去十年中的任何时候怀孕过，你可能听说过性别揭秘派对的概念。这种趋势可以追溯到一位母亲，她在 2008 年举办了被广泛认为是第一次性别揭示派对。 [詹娜·卡维尼迪斯](https://twitter.com/HighGlossSauce?ref_src=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor) 切蛋糕露出粉色糖霜(是个女孩，乡亲们！)，以及她随后的博客帖子——以及这个想法本身——迅速传播开来。现在是时候停止了。
 
-
+Watch
 
 性别揭秘派对之所以存在问题，有一个显而易见的原因，那就是在最初的派对风靡十几年后，我们中的许多人已经开始更好地理解和承认这一点。一个人出生时被指定的性别并不一定是他所认同的性别。
 
@@ -22,4 +22,16 @@
 
 不幸的是，这不是第一次性别揭露党被指责引发了一场野火。2017 年烧毁 4.7 万英亩的亚利桑那州锯木厂火灾是由一名下班的边境巡逻特工 引发的 [:](https://tucson.com/news/local/video-shows-explosion-at-border-agents-gender-reveal-party-that-sparked-arizona-wildfire/article_8bdd526a-f1bc-11e8-ae15-73c74c343664.html)
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-vZYkVTzS5E4&amp;start=0" data-chomp-id="vZYkVTzS5E4" data-recommend-id="youtube://vZYkVTzS5E4" id="youtube-vZYkVTzS5E4" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="vZYkVTzS5E4" data-recommend-id="youtube://vZYkVTzS5E4" id="youtube-vZYkVTzS5E4" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">去年，爱荷华州的一位<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.washingtonpost.com/nation/2019/10/28/woman-killed-by-shrapnel-gender-reveal-party-explosion-iowa&quot;,{&quot;metric25&quot;:1}]]" href="https://www.washingtonpost.com/nation/2019/10/28/woman-killed-by-shrapnel-gender-reveal-party-explosion-iowa" target="_blank" rel="noopener noreferrer">祖母在一次性别揭秘派对上被自制爆炸装置的弹片击中，不幸身亡</a> </span>。</p><p class="sc-77igqf-0 bOfvBY">甚至 Karvunidis，这位多年前用粉色糖霜切蛋糕的妈妈，也在这些派对上恳求人们停止 :</p><div class="ooo3c9-0 cmUFVa embed-frame"><span class="non-flex-video"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=fbpost-https%3A%2F%2Fwww.facebook.com%2FHighGlossSauce%2Fposts%2F3526972507321132&amp;autosize=1" autoresize="true" id="fbpost-https://www.facebook.com/HighGlossSauce/posts/3526972507321132" data-recommended="false" width="640" height="360" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><p class="sc-77igqf-0 bOfvBY">性别大揭秘的时代来了又去。去庆祝点别的吧，把烟火留在家里。</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><small> <em>遇见地球上最聪明的父母！加入我们的</em> </small> <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.facebook.com/groups/2018785615043946&quot;,{&quot;metric25&quot;:1}]]" href="https://www.facebook.com/groups/2018785615043946" target="_blank" rel="noopener noreferrer"> <small> <em>育儿脸书群</em> </small> </a> </span> <small> <em>。</em>T15】</small></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-vZYkVTzS5E4&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-vZYkVTzS5E4&start=0) 
+
+去年，爱荷华州的一位 [祖母在一次性别揭秘派对上被自制爆炸装置的弹片击中，不幸身亡](https://www.washingtonpost.com/nation/2019/10/28/woman-killed-by-shrapnel-gender-reveal-party-explosion-iowa) 。
+
+甚至 Karvunidis，这位多年前用粉色糖霜切蛋糕的妈妈，也在这些派对上恳求人们停止 :
+
+ [https://lifehacker.com/embed/inset/iframe?id=fbpost-https%3A%2F%2Fwww.facebook.com%2FHighGlossSauce%2Fposts%2F3526972507321132&autosize=1](https://lifehacker.com/embed/inset/iframe?id=fbpost-https%3A%2F%2Fwww.facebook.com%2FHighGlossSauce%2Fposts%2F3526972507321132&autosize=1) 
+
+性别大揭秘的时代来了又去。去庆祝点别的吧，把烟火留在家里。
+
+* * *
+
+<small>*遇见地球上最聪明的父母！加入我们的*</small> [<small>*育儿脸书群*</small>](https://www.facebook.com/groups/2018785615043946) <small>*。*T15】</small>

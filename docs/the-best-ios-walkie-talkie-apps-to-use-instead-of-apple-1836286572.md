@@ -1,10 +1,10 @@
 # 最好用的 iOS 对讲机应用程序，而不是苹果的
 
-> 原文：<https://lifehacker.com/the-best-ios-walkie-talkie-apps-to-use-instead-of-apple-1836286572>
+> 原文:[https://life hacker . com/the-best-IOs-walkie-talkie-talkie-apps-to-use-of-apple-1836286572](https://lifehacker.com/the-best-ios-walkie-talkie-apps-to-use-instead-of-apple-1836286572)
 
 在 [发现一个可能让其他人偷听谈话的漏洞](https://gizmodo.com/apple-disables-watch-walkie-talkie-app-due-to-security-1836274902) 后，苹果公司暂时禁用了 Apple Watch 的 [对讲机](https://support.apple.com/en-us/HT208917) 应用程序。虽然苹果公司表示没有窃听事件的报告，但该应用程序被禁用，直到漏洞被修补(尽管它仍会安装在你的设备上)。
 
-
+Watch
 
 很高兴知道苹果正在修复 ，但这让 Apple Watch 用户没有了该设备更独特的功能之一， [迪克·特雷西](https://www.youtube.com/watch?v=lCHzE3B-DFE) 。如果你不想等苹果来修理对讲机，有大量的 [第三方替代品](https://lifehacker.com/find-ethical-open-source-alternatives-to-almost-every-a-1833746899) 可以填补空白。以下是我们最喜欢的对讲机替代品:
 
@@ -32,4 +32,10 @@
 
 ### [](https://apps.apple.com/us/app/firechat/id719829352)
 
-**<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-GogPPT3ePGQ&amp;start=0" data-chomp-id="GogPPT3ePGQ" data-recommend-id="youtube://GogPPT3ePGQ" id="youtube-GogPPT3ePGQ" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="GogPPT3ePGQ" data-recommend-id="youtube://GogPPT3ePGQ" id="youtube-GogPPT3ePGQ" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">最后一个选择并不是真正的对讲机应用程序，它甚至不使用语音信息，但离线、分散的通信应用程序<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://apps.apple.com/us/app/firechat/id719829352#?platform=iphone&quot;,{&quot;metric25&quot;:1}]]" href="https://apps.apple.com/us/app/firechat/id719829352#?platform=iphone" target="_blank" rel="noopener noreferrer"> <strong> Firechat </strong> </a> </span>比列表中的其他应用程序更接近真正的“对讲机”技术。原因如下。</p><p class="sc-77igqf-0 bOfvBY">Firechat 与这份名单上的其他应用不同，它使用蓝牙和点对点 wifi，因此安装了该应用的 iOS(或<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://play.google.com/store/apps/details?id=com.opengarden.firechat&amp;hl=en_US&quot;,{&quot;metric25&quot;:1}]]" href="https://play.google.com/store/apps/details?id=com.opengarden.firechat&amp;hl=en_US" target="_blank" rel="noopener noreferrer"> Android </a> </span>)设备即使没有定期的互联网连接，也可以直接相互发送消息。该应用程序的开发者声称，它适用于相距高达 200 英尺的设备——例如，下次有人从你的徒步旅行队中脱离时，它非常适合于跟踪你的聚会。</p><p class="sc-77igqf-0 bOfvBY">Firechat 还允许用户在大型群组之间创建本地私人通信网络，随着更多用户的登录，这可以增加可用的消息传递范围和传递速度。</p> </body> </html></iframe>**
+ **[https://lifehacker.com/embed/inset/iframe?id=youtube-video-GogPPT3ePGQ&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-GogPPT3ePGQ&start=0)** 
+
+**最后一个选择并不是真正的对讲机应用程序，它甚至不使用语音信息，但离线、分散的通信应用程序 [**Firechat**](https://apps.apple.com/us/app/firechat/id719829352#?platform=iphone) 比列表中的其他应用程序更接近真正的“对讲机”技术。原因如下。**
+
+**Firechat 与这份名单上的其他应用不同，它使用蓝牙和点对点 wifi，因此安装了该应用的 iOS(或 [Android](https://play.google.com/store/apps/details?id=com.opengarden.firechat&hl=en_US) )设备即使没有定期的互联网连接，也可以直接相互发送消息。该应用程序的开发者声称，它适用于相距高达 200 英尺的设备——例如，下次有人从你的徒步旅行队中脱离时，它非常适合于跟踪你的聚会。**
+
+**Firechat 还允许用户在大型群组之间创建本地私人通信网络，随着更多用户的登录，这可以增加可用的消息传递范围和传递速度。**

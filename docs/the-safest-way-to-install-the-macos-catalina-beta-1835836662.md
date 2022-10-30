@@ -1,11 +1,20 @@
 # 安装 macOS Catalina 测试版的最安全方式
 
-> 原文：<https://lifehacker.com/the-safest-way-to-install-the-macos-catalina-beta-1835836662>
+> 原文:[https://life hacker . com/the-safesy-to-install-the-MAC OS-catalina-beta-1835836662](https://lifehacker.com/the-safest-way-to-install-the-macos-catalina-beta-1835836662)
 
 苹果所有最新操作系统版本 [的公开测试版终于发布了](https://twitter.com/marcoarment/status/1143227695838502913)(watch OS 除外)。我们总是警告人们在他们的主要设备上安装这些，因为你不希望你工作和社交所依赖的 iPhone 开始因为一个错误版本的 iOS 而冻结。
 
-
+Watch
 
 如果你是 Mac 用户，你很容易做到。而不是更换你的操作系统——糟糕！—您可以在您的驱动器上创建一个全新的卷，并在那里安装 macOS Catalina。然后你就可以随时选择是启动你信任的旧 macOS 还是全新的测试版，当你玩完之后，你可以很容易地从你的系统中删除 Catalina 测试版。除非您的系统空间紧张，否则没有理由不选择 Catalina beta 版。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1143227695838502913&amp;autosize=1" autoresize="true" id="twitter-1143227695838502913" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">苹果公司有<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://support.apple.com/en-us/HT208891&quot;,{&quot;metric25&quot;:1}]]" href="https://support.apple.com/en-us/HT208891" target="_blank" rel="noopener noreferrer">一个伟大的纲要</a> </span>你需要做的一切来实现这一点。以下是关键点:</p><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>在你做任何事情之前备份你的系统(以防万一)</li><li>打开“磁盘工具”，在最左侧的边栏中选择您当前的宗卷，然后点按工具栏上“宗卷”下的+图标以添加新的 APFS 宗卷。</li><li>确保你注册了<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://beta.apple.com/&quot;,{&quot;metric25&quot;:1}]]" href="http://beta.apple.com/" target="_blank" rel="noopener noreferrer">苹果测试软件项目</a> </span>。当您下载 macOS Catalina 并准备安装它时，选择新的宗卷，而不是现有的宗卷作为目标。</li><li>安装 macOS Catalina 后，通过使用“系统偏好设置”中的“启动磁盘”或在 Mac 启动时按住 Option 键，在操作系统之间切换。</li></ul><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">要删除 macOS Catalina，您只需删除安装它的 APFS 宗卷。打开“磁盘工具”,突出显示该卷，然后单击“卷”下面的-图标来删除它——就这么简单。</p><div id="mgid-container" data-placement="4" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1143227695838502913&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1143227695838502913&autosize=1) 
+
+苹果公司有 [一个伟大的纲要](https://support.apple.com/en-us/HT208891) 你需要做的一切来实现这一点。以下是关键点:
+
+*   在你做任何事情之前备份你的系统(以防万一)
+*   打开“磁盘工具”，在最左侧的边栏中选择您当前的宗卷，然后点按工具栏上“宗卷”下的+图标以添加新的 APFS 宗卷。
+*   确保你注册了 [苹果测试软件项目](http://beta.apple.com/) 。当您下载 macOS Catalina 并准备安装它时，选择新的宗卷，而不是现有的宗卷作为目标。
+*   安装 macOS Catalina 后，通过使用“系统偏好设置”中的“启动磁盘”或在 Mac 启动时按住 Option 键，在操作系统之间切换。
+
+要删除 macOS Catalina，您只需删除安装它的 APFS 宗卷。打开“磁盘工具”,突出显示该卷，然后单击“卷”下面的-图标来删除它——就这么简单。

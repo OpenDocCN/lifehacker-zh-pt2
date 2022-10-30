@@ -1,10 +1,10 @@
 # 我真的需要锻炼前补充吗？
 
-> 原文：<https://lifehacker.com/do-i-really-need-a-pre-workout-supplement-1835693628>
+> 原文:[https://life hacker . com/do-I-really-need-a-pre-workout-supplement-1835693628](https://lifehacker.com/do-i-really-need-a-pre-workout-supplement-1835693628)
 
 逛逛任何一家维生素商店，你会发现自己迷失在药丸和粉末的过道中，每一种都声称通过增强你的、能量或恢复来有益于你的锻炼。健身前补充剂，旨在跑步或举重前消耗，现在特别热，新品种不断涌现。但是他们到底是做什么的呢？它们值得争论或者花费吗？
 
-
+Watch
 
 ### 锻炼前补充剂到底是什么？
 
@@ -28,4 +28,30 @@
 
 理论上，所有这些成分加在一起应该有助于提高能量，对吗？看来是这样基于 [一](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4947244/) [几](https://jissn.biomedcentral.com/articles/10.1186/s12970-014-0040-0) [的研究](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC3361498/) 。然而，埃默里大学的一位医学教授认为，这主要是一种安慰剂效应，可能会让你在健身房中获得心理优势。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=instagram-By8ZZvDDvch&amp;autosize=1" autoresize="true" id="instagram-By8ZZvDDvch" data-recommended="false" width="598" height="676" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h174562">你真的需要它们吗？</h3><p class="sc-77igqf-0 bOfvBY">如果你还不知道:不，你真的不需要它们。</p><p class="sc-77igqf-0 bOfvBY">就我个人而言，我已经喝了很多咖啡，所以额外的咖啡因补充剂对我的益处可能不如对经常睡眠不足的人的益处大。此外，由于我晚上锻炼，晚上 9 点摄入咖啡因对我的睡眠时间表并不好。成本也是一个问题；与一杯简单的咖啡相比，锻炼前补充剂相当昂贵。</p><p class="sc-77igqf-0 bOfvBY">一般来说，你也可能会从锻炼前获得一些与平时饮食相同的好处，比如在锻炼前吃碳水化合物。“香蕉、低糖运动饮料和咖啡——冷饮或硝基咖啡的额外加分——都是你实际上可以发音的好选择，”<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.gq.com/story/pre-workout-supplements-guide&quot;,{&quot;metric25&quot;:1}]]" href="https://www.gq.com/story/pre-workout-supplements-guide" target="_blank" rel="noopener noreferrer"> GQ 的</a> </span>艾米丽·阿巴特写道。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h174563">我如何服用它们？</h3><p class="sc-77igqf-0 bOfvBY">如果你确实想服用锻炼前补充剂，我们应该重申:它们没有受到严格监管。出于这个原因，你在购买补充剂时应该小心，因为它可能不会在标签上列出它所含的每一种成分。</p><p class="sc-77igqf-0 bOfvBY">有些补充剂是由类似<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.nsfsport.com/certified-products/search-results.php&quot;,{&quot;metric25&quot;:1}]]" href="http://www.nsfsport.com/certified-products/search-results.php" target="_blank" rel="noopener noreferrer"> NSF 国际</a> </span>或<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.informed-choice.org/supplement-search&quot;,{&quot;metric25&quot;:1}]]" href="https://www.informed-choice.org/supplement-search" target="_blank" rel="noopener noreferrer">知情选择</a> </span>的独立机构认证的；你可以在他们的网站上搜索补充资料。</p><p class="sc-77igqf-0 bOfvBY">大多数补充剂的标签上都应该有说明。虽然锻炼前的时间没有得到很好的研究，但 2008 年的一项研究<span></span>表明，咖啡因可以在短短 10 分钟内生效，并在大约 45 分钟内达到血液中的最大浓度(这取决于你的体重和你摄入的咖啡因量)。这种<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.gnc.com/pre-workout-supplements-2/387602.html?cgid=pre-workout-supplements-2#start=1&quot;,{&quot;metric25&quot;:1}]]" href="https://www.gnc.com/pre-workout-supplements-2/387602.html?cgid=pre-workout-supplements-2#start=1" target="_blank" rel="noopener noreferrer">品牌</a> </span>的锻炼前补充剂每勺含有 275 毫克咖啡因——大致相当于两罐 16 盎司<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.businessinsider.com/caffeine-daily-serving-2017-6&quot;,{&quot;metric25&quot;:1}]]" href="https://www.businessinsider.com/caffeine-daily-serving-2017-6" target="_blank" rel="noopener noreferrer">红牛</a> </span>的咖啡因含量——建议在锻炼前 20-30 分钟食用。</p><p class="sc-77igqf-0 bOfvBY">如果你担心可能的副作用，或者锻炼前补充剂可能会干扰你正在服用的任何药物，你应该咨询医生。</p><p class="sc-77igqf-0 bOfvBY">正如<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.self.com/story/pre-workout-supplements&quot;,{&quot;metric25&quot;:1}]]" href="https://www.self.com/story/pre-workout-supplements" target="_blank" rel="noopener noreferrer"> Self </a> </span>所写，你可能会遇到一些头晕、恶心、脸红或神经过敏的感觉，就像喝咖啡一样。在我第一次使用预锻炼后，我经历了另一个有趣的副作用:<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.reddit.com/r/Fitness/comments/3f1520/used_preworkout_yesterday_for_the_first_time_is/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.reddit.com/r/Fitness/comments/3f1520/used_preworkout_yesterday_for_the_first_time_is/" target="_blank" rel="noopener noreferrer">痒</a> </span>，这显然是一些预锻炼补充剂的一个非常常见的后果。</p><p class="sc-77igqf-0 bOfvBY">出于这个原因，如果你特别担心补充剂中隐藏的东西，给你的医生打个电话也无妨。</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><em> <small>更多来自 Lifehacker，一定要在 Instagram 上关注我们</small></em><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.instagram.com/lifehackerdotcom/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.instagram.com/lifehackerdotcom/" target="_blank" rel="noopener noreferrer"><em><small>@ lifehackerdotcom</small></em></a></span><em><small>。</small> </em> <br/></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=instagram-By8ZZvDDvch&autosize=1](https://lifehacker.com/embed/inset/iframe?id=instagram-By8ZZvDDvch&autosize=1) 
+
+### 你真的需要它们吗？
+
+如果你还不知道:不，你真的不需要它们。
+
+就我个人而言，我已经喝了很多咖啡，所以额外的咖啡因补充剂对我的益处可能不如对经常睡眠不足的人的益处大。此外，由于我晚上锻炼，晚上 9 点摄入咖啡因对我的睡眠时间表并不好。成本也是一个问题；与一杯简单的咖啡相比，锻炼前补充剂相当昂贵。
+
+一般来说，你也可能会从锻炼前获得一些与平时饮食相同的好处，比如在锻炼前吃碳水化合物。“香蕉、低糖运动饮料和咖啡——冷饮或硝基咖啡的额外加分——都是你实际上可以发音的好选择，” [GQ 的](https://www.gq.com/story/pre-workout-supplements-guide) 艾米丽·阿巴特写道。
+
+### 我如何服用它们？
+
+如果你确实想服用锻炼前补充剂，我们应该重申:它们没有受到严格监管。出于这个原因，你在购买补充剂时应该小心，因为它可能不会在标签上列出它所含的每一种成分。
+
+有些补充剂是由类似 [NSF 国际](http://www.nsfsport.com/certified-products/search-results.php) 或 [知情选择](https://www.informed-choice.org/supplement-search) 的独立机构认证的；你可以在他们的网站上搜索补充资料。
+
+大多数补充剂的标签上都应该有说明。虽然锻炼前的时间没有得到很好的研究，但 2008 年的一项研究表明，咖啡因可以在短短 10 分钟内生效，并在大约 45 分钟内达到血液中的最大浓度(这取决于你的体重和你摄入的咖啡因量)。这种 [品牌](https://www.gnc.com/pre-workout-supplements-2/387602.html?cgid=pre-workout-supplements-2#start=1) 的锻炼前补充剂每勺含有 275 毫克咖啡因——大致相当于两罐 16 盎司 [红牛](https://www.businessinsider.com/caffeine-daily-serving-2017-6) 的咖啡因含量——建议在锻炼前 20-30 分钟食用。
+
+如果你担心可能的副作用，或者锻炼前补充剂可能会干扰你正在服用的任何药物，你应该咨询医生。
+
+正如 [Self](https://www.self.com/story/pre-workout-supplements) 所写，你可能会遇到一些头晕、恶心、脸红或神经过敏的感觉，就像喝咖啡一样。在我第一次使用预锻炼后，我经历了另一个有趣的副作用: [痒](https://www.reddit.com/r/Fitness/comments/3f1520/used_preworkout_yesterday_for_the_first_time_is/) ，这显然是一些预锻炼补充剂的一个非常常见的后果。
+
+出于这个原因，如果你特别担心补充剂中隐藏的东西，给你的医生打个电话也无妨。
+
+* * *
+
+*<small>更多来自 Lifehacker，一定要在 Instagram 上关注我们</small>*[*<small>@ lifehackerdotcom</small>*](https://www.instagram.com/lifehackerdotcom/)*<small>。</small>*

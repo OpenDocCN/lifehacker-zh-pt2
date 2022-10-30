@@ -1,11 +1,19 @@
 # 给自己一个蹩脚的奖励
 
-> 原文：<https://lifehacker.com/give-yourself-a-crappy-reward-1837840724>
+> 原文:[https://life hacker . com/给自己一个蹩脚的奖励-1837840724](https://lifehacker.com/give-yourself-a-crappy-reward-1837840724)
 
 奖励自己可能会适得其反。如果你告诉自己“我只会在健身房的时候听我最喜欢的播客”，只需要一瞬间的软弱就能意识到你可以作弊，想听就随时听。相反，试试这个:奖励自己一些没有任何享受价值的东西。就像日历上的勾号。
 
-
+Watch
 
 我第一次听到这个建议是在作家蒂姆·克莱尔的播客 T3 中。他说，如果你想保持动力，奖励必须如此糟糕，以至于你实际上不是在为奖励而工作。他说，他每天写作时都会在日历上打一个勾号，到了周末，足够多的勾号就能获得一颗金星。另一位作家 Jill Twiss 最近 [发推文](https://twitter.com/jilltwiss/status/1167227995960094720) 说她奖励自己去健身房的贴纸:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1167227995960094720&amp;autosize=1" autoresize="true" id="twitter-1167227995960094720" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">Clare 告诉 Lifehacker，这种技术已经为他的健身习惯和写作发挥了作用，并且有一种理论认为，一个蹩脚的奖励可以让你对这个习惯更加感兴趣，因为<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.simplypsychology.org/cognitive-dissonance.html&quot;,{&quot;metric25&quot;:1}]]" href="https://www.simplypsychology.org/cognitive-dissonance.html" target="_blank" rel="noopener noreferrer">认知失调</a> </span> : <br/></p><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">根据这一理论，为了象征性的奖励而改变我们的行为会导致我们大脑中的不匹配，因此，通过改变我们对事物、活动等的价值的信念，比改变现在已经确立的习惯更容易解决这种令人不快、令人分心的“不和谐”。</p></blockquote><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">不管是什么原因，它似乎对我们很多人都有效。我有一个日历，在上面我标出了每天的锻炼时间(“L”代表举重，或者一个数字代表里程，比如“3”，如果我跑了 3 英里)。随着时间的推移，这个系统为我进化了；我过去常常用颜色标记日子。不管怎样，我喜欢浏览日历，看到周和月被填满。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">最好的部分:欺骗是毫无意义的。你要做什么— <!-- -->在你没有实际去健身房的时候骗自己？但是建立这一排数字或标签本身就是一种奖励。你实际上是在奖励自己坚持了自己的习惯。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1167227995960094720&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1167227995960094720&autosize=1) 
+
+Clare 告诉 Lifehacker，这种技术已经为他的健身习惯和写作发挥了作用，并且有一种理论认为，一个蹩脚的奖励可以让你对这个习惯更加感兴趣，因为 [认知失调](https://www.simplypsychology.org/cognitive-dissonance.html) :
+
+> 根据这一理论，为了象征性的奖励而改变我们的行为会导致我们大脑中的不匹配，因此，通过改变我们对事物、活动等的价值的信念，比改变现在已经确立的习惯更容易解决这种令人不快、令人分心的“不和谐”。
+
+不管是什么原因，它似乎对我们很多人都有效。我有一个日历，在上面我标出了每天的锻炼时间(“L”代表举重，或者一个数字代表里程，比如“3”，如果我跑了 3 英里)。随着时间的推移，这个系统为我进化了；我过去常常用颜色标记日子。不管怎样，我喜欢浏览日历，看到周和月被填满。
+
+最好的部分:欺骗是毫无意义的。你要做什么— 在你没有实际去健身房的时候骗自己？但是建立这一排数字或标签本身就是一种奖励。你实际上是在奖励自己坚持了自己的习惯。

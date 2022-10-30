@@ -1,10 +1,10 @@
 # 如何参加周一的“Taps Across America”
 
-> 原文：<https://lifehacker.com/how-to-participate-in-taps-across-america-monday-1843643065>
+> 原文:[https://life hacker . com/how-to-party-in-taps-across-America-Monday-1843643065](https://lifehacker.com/how-to-participate-in-taps-across-america-monday-1843643065)
 
 明天是阵亡将士纪念日。虽然今年的庆祝活动可能会有所不同，但哥伦比亚广播公司试图保留一项传统 :玩水龙头。
 
-
+Watch
 
 明天下午 3 点，组织者要求每个人玩 taps。类似于保健工作者的掌声，这个想法是街头将充满标志性的军事曲调。
 
@@ -14,4 +14,4 @@
 
 如果你希望你的表演有可能与大众分享，哥伦比亚广播公司正在收集全国各地人们演奏的视频记录 ，并计划在周二的哥伦比亚广播公司晚间新闻上播放一些的视频。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-Bfe4TxvUOiw&amp;start=0" data-chomp-id="Bfe4TxvUOiw" data-recommend-id="youtube://Bfe4TxvUOiw" id="youtube-Bfe4TxvUOiw" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="Bfe4TxvUOiw" data-recommend-id="youtube://Bfe4TxvUOiw" id="youtube-Bfe4TxvUOiw" data-recommended="false" class="js_recommend"/></span></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-Bfe4TxvUOiw&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-Bfe4TxvUOiw&start=0)

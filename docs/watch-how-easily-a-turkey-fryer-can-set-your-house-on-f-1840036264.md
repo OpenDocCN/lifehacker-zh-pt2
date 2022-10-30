@@ -1,7 +1,25 @@
 # 看看一个火鸡炸锅能多么容易地让你的房子着火
 
-> 原文：<https://lifehacker.com/watch-how-easily-a-turkey-fryer-can-set-your-house-on-f-1840036264>
+> 原文:[https://life hacker . com/watch-how-easy-a-turkey-fryer-can-set-your-house-on-f-1840036264](https://lifehacker.com/watch-how-easily-a-turkey-fryer-can-set-your-house-on-f-1840036264)
 
 油炸火鸡味道很好，至少我听说过，但是自己油炸一整只火鸡会有烧毁你房子的严重危险。消费者产品安全委员会，定期 [在假期](https://lifehacker.com/good-gifs-of-the-holidays-on-fire-from-the-government-1821130386) 放火，有 [一个新的视频](https://youtu.be/ASBf_qj0H7g?t=992) 向我们展示*不是*如何炸火鸡。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-ASBf_qj0H7g&amp;start=992" data-chomp-id="ASBf_qj0H7g" data-recommend-id="youtube://ASBf_qj0H7g" id="youtube-ASBf_qj0H7g" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="ASBf_qj0H7g" data-recommend-id="youtube://ASBf_qj0H7g" id="youtube-ASBf_qj0H7g" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">为了制作这个视频，消费品安全委员会的人拿了一只没有完全解冻的火鸡，并把它放入一个装满热油并预热太久的油炸锅中。石油溢出，四处飞溅，不久一切都着火了。你可能已经知道不要在厨房里放火鸡炸锅，但是你可能认为把它放在车库的角落里是安全的。一个<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.youtube.com/watch?v=kjUynq0HXdQ&quot;,{&quot;metric25&quot;:1}]]" href="https://www.youtube.com/watch?v=kjUynq0HXdQ" target="_blank" rel="noopener noreferrer">前一年的视频</a> </span>展示了一个门廊上类似的不安全场景。这两个地方都离易燃物体不够远，比如你的房子。</p><div class="ooo3c9-0 cmUFVa align--bleed has-video media-large video-embed embed-frame"><span class="flex-video widescreen"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-kjUynq0HXdQ&amp;start=0" data-chomp-id="kjUynq0HXdQ" data-recommend-id="youtube://kjUynq0HXdQ" id="youtube-kjUynq0HXdQ" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/><span data-chomp-id="kjUynq0HXdQ" data-recommend-id="youtube://kjUynq0HXdQ" id="youtube-kjUynq0HXdQ" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">在这两种情况下，油炸锅的火熄灭了，但危险还没有结束。大多数人的第一反应是试图用水灭火，但这实际上使情况变得更糟。看到那些带着水管和(因为这是演示，他们很聪明)消防员装备进去的人了吗？他们灭火的努力只是四处喷洒燃烧的油。</p><div class="bxm4mm-2 hKBnez"><div class="bxm4mm-1 goloRq instream-native-video instream-permalink instream-native-video--mobile"><div class="sc-1h0epat-0 lepUzz"><div class="sc-1h0epat-1 gRjwiT"><div class="sc-235a11-0 egwski">Watch</div></div><div class="sc-1wkneyl-0 hxLRyg video-html5-playlist" data-playlist="192590,192585,192428" data-current="192590"><div class="video-html5-loaded"><div class="video-html5-player"><div class="lhhce6-0 bVyOPq video-html5 autoplay muted mobile" data-video-id="192590" data-position="sidebar" data-video-title="How to Make a Quick and Easy Crumb Crust" data-video-network="lifehacker" data-video-duration="135"></div></div></div></div></div></div></div><p class="sc-77igqf-0 bOfvBY">CPSC 社交媒体专家 Joseph Galbo 说，视频中所有增加风险的因素，如冷冻火鸡，过量的热油，向火上喷水，“这些年来我们一直看到人们在做的事情，非常不安全”。</p><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><p class="sc-77igqf-0 bOfvBY">如果你仍然想油炸火鸡，消费品安全委员会说你可以通过以下方式降低火灾风险:</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><ol data-type="List" data-style="Number" class="sc-1lmbno3-1 sizyJ"><li>按照油炸锅附带的说明</li><li>只在离家安全的地方煎炸火鸡，最好是在远离树叶或易燃碎片的地面上</li><li>不要用水灭火。打 911。</li></ol><p class="sc-77igqf-0 bOfvBY">国家消防协会，另一个不喜欢看到人们放火焚烧房屋的组织，<span></span>建议，如果你没有无油火鸡炸锅，你可能应该直接从餐馆购买油炸火鸡。我们不得不承认:<!-- --> T <!-- --> akeout 是个生活帮。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-ASBf_qj0H7g&start=992](https://lifehacker.com/embed/inset/iframe?id=youtube-video-ASBf_qj0H7g&start=992) 
+
+为了制作这个视频，消费品安全委员会的人拿了一只没有完全解冻的火鸡，并把它放入一个装满热油并预热太久的油炸锅中。石油溢出，四处飞溅，不久一切都着火了。你可能已经知道不要在厨房里放火鸡炸锅，但是你可能认为把它放在车库的角落里是安全的。一个 [前一年的视频](https://www.youtube.com/watch?v=kjUynq0HXdQ) 展示了一个门廊上类似的不安全场景。这两个地方都离易燃物体不够远，比如你的房子。
+
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-kjUynq0HXdQ&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-kjUynq0HXdQ&start=0) 
+
+在这两种情况下，油炸锅的火熄灭了，但危险还没有结束。大多数人的第一反应是试图用水灭火，但这实际上使情况变得更糟。看到那些带着水管和(因为这是演示，他们很聪明)消防员装备进去的人了吗？他们灭火的努力只是四处喷洒燃烧的油。
+
+Watch
+
+CPSC 社交媒体专家 Joseph Galbo 说，视频中所有增加风险的因素，如冷冻火鸡，过量的热油，向火上喷水，“这些年来我们一直看到人们在做的事情，非常不安全”。
+
+如果你仍然想油炸火鸡，消费品安全委员会说你可以通过以下方式降低火灾风险:
+
+1.  按照油炸锅附带的说明
+2.  只在离家安全的地方煎炸火鸡，最好是在远离树叶或易燃碎片的地面上
+3.  不要用水灭火。打 911。
+
+国家消防协会，另一个不喜欢看到人们放火焚烧房屋的组织，建议，如果你没有无油火鸡炸锅，你可能应该直接从餐馆购买油炸火鸡。我们不得不承认: T akeout 是个生活帮。

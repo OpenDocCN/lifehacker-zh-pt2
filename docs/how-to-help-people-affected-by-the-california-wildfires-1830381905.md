@@ -1,10 +1,10 @@
 # 如何帮助受加州野火影响的人们
 
-> 原文：<https://lifehacker.com/how-to-help-people-affected-by-the-california-wildfires-1830381905>
+> 原文:[https://life hacker . com/how-to-help-people-affected-by-the-California-wild fires-1830381905](https://lifehacker.com/how-to-help-people-affected-by-the-california-wildfires-1830381905)
 
 加州正在与三场同时发生的野火作战，这场大火已经摧毁了近 20 万英亩的森林，并导致 31 人死亡。超过 250，000 人已经被疏散， [据](https://www.cbsnews.com/live-news/california-fires-camp-malibu-woolsey-evacuation-containment-evacuations-death-toll-live-updates/) CBS 新闻报道，数千所房屋被夷为平地。以下是你可以提供帮助的方式。
 
-
+Watch
 
 ### 爱彼迎（美国短租平台）
 
@@ -52,7 +52,7 @@
 
 ### **LAFD 基金会**
 
-洛杉矶消防局基金会目前在他们的 [主页](http://supportlafd.org/) 上接受捐款，但他们也接受 [汽车捐款](https://careasy.org/nonprofit/Los-Angeles-Fire-Department-Foundation) ，这些捐款将用于协助消防员和第一反应者 [根据 ng](https://variety.com/2018/biz/news/how-to-help-california-wildfires-1203026928/)VVarietey。长期来看，资助 LAFD 支持该部门的培训、青年项目、拓展和设备。
+洛杉矶消防局基金会目前在他们的 [主页](http://supportlafd.org/) 上接受捐款，但他们也接受 [汽车捐款](https://careasy.org/nonprofit/Los-Angeles-Fire-Department-Foundation) ，这些捐款将用于协助消防员和第一反应者 [根据ng](https://variety.com/2018/biz/news/how-to-help-california-wildfires-1203026928/)VVarietey。长期来看，资助 LAFD 支持该部门的培训、青年项目、拓展和设备。
 
 ### 记得捐钱
 
@@ -60,4 +60,6 @@
 
 虽然一些避难所仍在接收物品，但其他避难所很难储存物品。如果你是 br 莺莺的衣服，按照尺寸和性别做一些预先分类，如果相关的话。这使得衣服更容易分发给最有可能使用它们的人。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1061033108244316160&amp;autosize=1" autoresize="true" id="twitter-1061033108244316160" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">于 11/16 更新以反映新信息。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1061033108244316160&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1061033108244316160&autosize=1) 
+
+于 11/16 更新以反映新信息。

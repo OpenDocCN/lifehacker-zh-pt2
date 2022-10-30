@@ -1,10 +1,10 @@
 # 在你家附近开一辆“步行校车”
 
-> 原文：<https://lifehacker.com/start-a-walking-school-bus-in-your-neighborhood-1842215631>
+> 原文:[https://life hacker . com/start-a-walking-school-bus-in-your-neighborhood-1842215631](https://lifehacker.com/start-a-walking-school-bus-in-your-neighborhood-1842215631)
 
 九岁时，我的儿子和他的朋友最渴望两件事:更多的独立和更多的时间出去玩。我们也正好在从我们家到他学校的中间距离——我们住得太近，没有资格用校车接送，但又太远，让他一个人走这条路让我感到不舒服。因此，我和其他几位家长想出了一个解决方案:我们正在启动一个社区“步行校车”
 
-
+Watch
 
 事情是这样的:一位家长(不住在我们附近)将把他们的两个孩子送到上班路上最远的房子。孩子们现在总共有四个，他们将离开，向东走几个街区到我家，在那里他们将“接”我的儿子；然后他们会继续沿着预定的路线去学校。人数上会有安全感，他们会得到一点额外的体力活动——以及独立的满足感和额外的联系时间。
 
@@ -27,4 +27,12 @@
 
 “我不认为需要有一个固定的年龄，独立的行动能力会自动转移给孩子，”他在纪录片中继续说道。“我认为，对于孩子来说，什么时候能够在自己的社区和城市里自由自在地旅行和活动，这在很大程度上取决于他们自己。”
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-OKOXfa8NfTY&amp;start=0" data-chomp-id="OKOXfa8NfTY" data-recommend-id="youtube://OKOXfa8NfTY" id="youtube-OKOXfa8NfTY" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="OKOXfa8NfTY" data-recommend-id="youtube://OKOXfa8NfTY" id="youtube-OKOXfa8NfTY" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">福克纳还指出，这种类型的独立行动可能始于步行上学和放学，但它可以超越这一点。<br/></p><p class="sc-77igqf-0 bOfvBY">“这实际上是关于到达你所在社区的任何目的地，无论是去商店还是去公园，”他说。“我认为如果你步行去公园，你会去公园锻炼身体。我们当然从研究中得知，当孩子们在公园时，他们独自一人和其他孩子一起玩时，比有父母照看时更加活跃...限制他们。”</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><small> <em>见见地球上最聪明的父母！加入我们的</em> </small> <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.facebook.com/groups/2018785615043946/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.facebook.com/groups/2018785615043946/" target="_blank" rel="noopener noreferrer"> <small> <em>养育脸书集团</em> </small> </a> </span> <small> <em>。</em> </small> <br/></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-OKOXfa8NfTY&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-OKOXfa8NfTY&start=0) 
+
+福克纳还指出，这种类型的独立行动可能始于步行上学和放学，但它可以超越这一点。
+
+“这实际上是关于到达你所在社区的任何目的地，无论是去商店还是去公园，”他说。“我认为如果你步行去公园，你会去公园锻炼身体。我们当然从研究中得知，当孩子们在公园时，他们独自一人和其他孩子一起玩时，比有父母照看时更加活跃...限制他们。”
+
+* * *
+
+<small>*见见地球上最聪明的父母！加入我们的*</small> [<small>*养育脸书集团*</small>](https://www.facebook.com/groups/2018785615043946/) <small>*。*</small>

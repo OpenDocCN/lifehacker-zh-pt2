@@ -1,10 +1,10 @@
 # 与 DoNotPay 共享帐户，但不共享您的密码
 
-> 原文：<https://lifehacker.com/share-accounts-without-sharing-your-passwords-with-dono-1842242931>
+> 原文:[https://life hacker . com/share-accounts-without-share-your-passwords-with-dono-1842242931](https://lifehacker.com/share-accounts-without-sharing-your-passwords-with-dono-1842242931)
 
 人们一直在共享各种流媒体服务的密码。你是否亲自参与这种做法是你自己的道德灰色地带，但这是数字世界的一种常见做法:你用你网飞家族的一个名额和我交换，我会给你我的 Hulu 访问权。
 
-
+Watch
 
 然而，共享密码从根本上来说是个坏主意。即使你为你的每一个流媒体服务设置了一个伟大的、强大的、独特的密码，这仍然是一个坏主意；如果你为多个账户使用相同或相似的密码，这是一个糟糕的想法。
 
@@ -12,4 +12,16 @@
 
 > *DoNotPay 不存储 cookies，也无权访问它们。我们使用 VGS[非常好的安全性]，它提供加密和 PCI II 合规性，受到许多金融科技公司的信任。cookies 在传输过程中也会被加密，只有与您共享它们的人才能看到。*
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1237023309658599424&amp;autosize=1" autoresize="true" id="twitter-1237023309658599424" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">如果你对这个过程感到满意——我只使用这个扩展与我信任的朋友分享登录会话，而不是整个互联网——开始在你的 Chrome 浏览器中安装这个扩展。打开一个订阅服务的网站，比如网飞，点击扩展登录你的 DoNotPay 账户(或者<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://donotpay.com/login&quot;,{&quot;metric25&quot;:1}]]" href="https://donotpay.com/login" target="_blank" rel="noopener noreferrer">创建一个免费的</a> </span>)。你不必为了分享账户而放弃你的信用卡信息(为了从 DoNotPay 的其他服务中收款),所以如果感觉不舒服就不要这么做。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">回到网飞，再次点击扩展，你会看到这个窗口弹出:</p><p class="sc-77igqf-0 bOfvBY">点击“生成一个链接”按钮，您将看到以下屏幕:</p><p class="sc-77igqf-0 bOfvBY">然后，您可以将该链接直接通过电子邮件发送给朋友，并将其隐私状态更改为公开(您的朋友可以查看您共享的服务)或私人(您必须共享该链接，任何人才能知道它的存在)。如果你点击“链接”标签，你会看到你生成的每一个神奇的链接:</p><p class="sc-77igqf-0 bOfvBY">当你与朋友分享一个链接时，他们必须提供自己的电话号码给 DoNotPay，才能使用你的流媒体服务。所以，是的，这是 DoNotPay 的一个非常聪明的营销策略，我们只希望他们能极其小心地对待这些数据。考虑到他们的目标似乎是坚持到底，让你尽可能多的获得现金和其他服务(合法的或有点合法的)，我并不那么慌张。至于流媒体服务，我们将看到他们对此的接受程度...</p><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1237049324246163466&amp;autosize=1" autoresize="true" id="twitter-1237049324246163466" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1237023309658599424&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1237023309658599424&autosize=1) 
+
+如果你对这个过程感到满意——我只使用这个扩展与我信任的朋友分享登录会话，而不是整个互联网——开始在你的 Chrome 浏览器中安装这个扩展。打开一个订阅服务的网站，比如网飞，点击扩展登录你的 DoNotPay 账户(或者 [创建一个免费的](https://donotpay.com/login) )。你不必为了分享账户而放弃你的信用卡信息(为了从 DoNotPay 的其他服务中收款),所以如果感觉不舒服就不要这么做。
+
+回到网飞，再次点击扩展，你会看到这个窗口弹出:
+
+点击“生成一个链接”按钮，您将看到以下屏幕:
+
+然后，您可以将该链接直接通过电子邮件发送给朋友，并将其隐私状态更改为公开(您的朋友可以查看您共享的服务)或私人(您必须共享该链接，任何人才能知道它的存在)。如果你点击“链接”标签，你会看到你生成的每一个神奇的链接:
+
+当你与朋友分享一个链接时，他们必须提供自己的电话号码给 DoNotPay，才能使用你的流媒体服务。所以，是的，这是 DoNotPay 的一个非常聪明的营销策略，我们只希望他们能极其小心地对待这些数据。考虑到他们的目标似乎是坚持到底，让你尽可能多的获得现金和其他服务(合法的或有点合法的)，我并不那么慌张。至于流媒体服务，我们将看到他们对此的接受程度...
+
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1237049324246163466&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1237049324246163466&autosize=1)

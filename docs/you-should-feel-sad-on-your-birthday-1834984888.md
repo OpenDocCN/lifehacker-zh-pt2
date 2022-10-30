@@ -1,10 +1,10 @@
 # 你应该在生日那天感到悲伤
 
-> 原文：<https://lifehacker.com/you-should-feel-sad-on-your-birthday-1834984888>
+> 原文:[https://life hacker . com/you-should-feel-sad-on-your-birthday-1834984888](https://lifehacker.com/you-should-feel-sad-on-your-birthday-1834984888)
 
 每个人有时候都喜欢小小的哭泣；这就是为什么有悲伤的歌曲和电影和书籍。即使你的实际生活进展顺利，一点选择性的忧郁也能锻炼你的情绪，它能让你精神和身体焕然一新。有些时候特别适合:雨天、深夜和生日。
 
-
+Watch
 
 最好的生日仍然包含一个不可避免的悲伤:它提醒你过去和未来的分离，时间的单行道，没有回到去年的你。你在成长，你在衰老，你是凡人。你的现状越幸福，有一天你会失去越多——在你最好的情况下，你会在世界失去你的那一天失去一切。
 
@@ -30,4 +30,20 @@
 
 个人品味决定了一切，你应该选择你最熟悉的音乐。(配乐的悲伤歌曲真的很有用，或者你从过去的具体事件中想起的歌曲。)但我最喜欢的是一首实际上是关于在你生日时感到孤独的歌曲:艾伦主教的《来自你床上的消息》它清淡、欢快，尝起来像盐水。这真的让我有了一种生日悲伤假期的感觉。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-i932KyRLi1w&amp;start=0" data-chomp-id="i932KyRLi1w" data-recommend-id="youtube://i932KyRLi1w" id="youtube-i932KyRLi1w" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="i932KyRLi1w" data-recommend-id="youtube://i932KyRLi1w" id="youtube-i932KyRLi1w" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">从几首长期喜爱的歌曲开始，循环播放一些填充歌曲(不太珍贵的歌曲，你可以重复而不会耗尽它们的能量)，以至少三首让你更乐观的歌曲结束。我有一个完整的“宿醉”播放列表，只用于轻微悲伤或渴望的情绪，所以当我准备好了，我就切换到那个。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h289374">不要用你的电话</h3><p class="sc-77igqf-0 bOfvBY">即使滚动 Instagram 确实会让你陷入嫉妒的 FOMO 恐惧，也不值得冒险让你看到让你开心的东西，毁了这一刻。几乎你在手机上做的任何事情都会减少悲伤；这就是手机的用途。你可以播放一些音频，但仅此而已。</p><p class="sc-77igqf-0 bOfvBY">散步和淋浴是好的，但是最理想的活动是洗澡，最好是喝一杯或者看一本书。(不是杂志；还是那句话，破坏气氛的风险太大。)</p><p class="sc-77igqf-0 bOfvBY">你可以看电影——总是一些你以前看过的东西。也许是一部悲伤的电视剧，但你真的应该尝试一部电影，即使你只有时间跳到你最喜欢的场景。电影更适合沉迷，因为它们真的可以在第二幕的最后徘徊，因为它们承载了你最后一次观看的更具体的记忆。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h289375">知道你在难过什么吗</h3><p class="sc-77igqf-0 bOfvBY">在你生日那天感到悲伤并不取决于某一天、某一年或某一生过得不好。在不景气的一年，你可能会关注细节——也许你今年刚刚单身，也许你失去了某人，也许你在一个新的地方感到孤独。在一个客观上快乐的生日上，甚至会有一种负罪感的快感。</p><p class="sc-77igqf-0 bOfvBY">但更重要的是发掘关于生日的普遍真理:我们觉得过一个我们没有努力过的特殊日子很奇怪；这种强迫性的庆祝凸显了我们不庆祝的所有理由；有一天我们所有的生日都会结束。不管我们有多幸运，这些都是我们不得不面对的事实。那些我们已经学会处理的问题，这样我们才能继续我们的生活。又一首伤感的歌之后。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-i932KyRLi1w&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-i932KyRLi1w&start=0) 
+
+从几首长期喜爱的歌曲开始，循环播放一些填充歌曲(不太珍贵的歌曲，你可以重复而不会耗尽它们的能量)，以至少三首让你更乐观的歌曲结束。我有一个完整的“宿醉”播放列表，只用于轻微悲伤或渴望的情绪，所以当我准备好了，我就切换到那个。
+
+### 不要用你的电话
+
+即使滚动 Instagram 确实会让你陷入嫉妒的 FOMO 恐惧，也不值得冒险让你看到让你开心的东西，毁了这一刻。几乎你在手机上做的任何事情都会减少悲伤；这就是手机的用途。你可以播放一些音频，但仅此而已。
+
+散步和淋浴是好的，但是最理想的活动是洗澡，最好是喝一杯或者看一本书。(不是杂志；还是那句话，破坏气氛的风险太大。)
+
+你可以看电影——总是一些你以前看过的东西。也许是一部悲伤的电视剧，但你真的应该尝试一部电影，即使你只有时间跳到你最喜欢的场景。电影更适合沉迷，因为它们真的可以在第二幕的最后徘徊，因为它们承载了你最后一次观看的更具体的记忆。
+
+### 知道你在难过什么吗
+
+在你生日那天感到悲伤并不取决于某一天、某一年或某一生过得不好。在不景气的一年，你可能会关注细节——也许你今年刚刚单身，也许你失去了某人，也许你在一个新的地方感到孤独。在一个客观上快乐的生日上，甚至会有一种负罪感的快感。
+
+但更重要的是发掘关于生日的普遍真理:我们觉得过一个我们没有努力过的特殊日子很奇怪；这种强迫性的庆祝凸显了我们不庆祝的所有理由；有一天我们所有的生日都会结束。不管我们有多幸运，这些都是我们不得不面对的事实。那些我们已经学会处理的问题，这样我们才能继续我们的生活。又一首伤感的歌之后。

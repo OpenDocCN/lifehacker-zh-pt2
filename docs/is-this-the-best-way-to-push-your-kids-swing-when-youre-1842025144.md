@@ -1,11 +1,25 @@
 # 当你忙的时候，这是“推”你孩子荡秋千的最好方法吗？
 
-> 原文：<https://lifehacker.com/is-this-the-best-way-to-push-your-kids-swing-when-youre-1842025144>
+> 原文:[https://life hacker . com/is-this-the-best-way to-push-your-kids-swing-when-you-1842025144](https://lifehacker.com/is-this-the-best-way-to-push-your-kids-swing-when-youre-1842025144)
 
 在我们今天开始之前，你应该有两条相关的信息:1 .我喜欢一个好的育儿技巧和 2。我从来不喜欢无休止地站在那里推着孩子荡秋千。因此，我应该成熟地支持任何努力来破解这个苦差事。然而， [这段视频](https://www.youtube.com/watch?v=p96Fa1JJbVU&feature=youtu.be) 中，一位家长从他们四楼公寓的窗户推(嗯，拉)着他们的孩子荡秋千，这让我很困惑。
 
-
+Watch
 
 [Digg 通过 ViralHog](https://digg.com/video/swing-line-apartment) 发布了这个视频—[——并附有一个问题:“我们无法判断这个育儿技巧是天才还是疯狂。”这是 Digg 问我们的方式:这是一个黑客还是一个怪人？各位，这就是我们在这里的目的。首先，你自己看看:](https://www.youtube.com/watch?v=p96Fa1JJbVU&feature=youtu.be)
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-p96Fa1JJbVU&amp;start=0" data-chomp-id="p96Fa1JJbVU" data-recommend-id="youtube://p96Fa1JJbVU" id="youtube-p96Fa1JJbVU" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="p96Fa1JJbVU" data-recommend-id="youtube://p96Fa1JJbVU" id="youtube-p96Fa1JJbVU" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">我最初的想法是，<em>这个</em>到底有什么意义？还不完全清楚绳子是如何被来回拉动的，但我想我看到一只戴着黑手套的手在窗外进进出出。这只能意味着站立和摆动推仍然在发生(而不是以某种方式被自动化)，只是从比通常更远、更高的位置。</p><p class="sc-77igqf-0 bOfvBY">所以我不得不问自己:这种方法有什么好处？在窗户附近是否有一些需要立即处理的杂务(并且只需要用一只手)？我无法想象他们会用另一只手洗碗或准备晚餐。他们会监督电缆工吗？他们会不会正在进行一场成人电话对话，而不被无辜者听到？</p><p class="sc-77igqf-0 bOfvBY">也许一个婴儿正在打盹，而这个孩子正在乞求荡秋千，他的父母就像这样，“你知道吗？如果你能打个结，我们就能做到。”现在他们仍然要拉车，但他们也在喧闹繁忙的生活中找回了几分幸福宁静的时光。这将是一个创造性的解决方案，使他们的一天更轻松，也避免了发脾气，如果这不是为人父母的定义，那么我是在错误的工作。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">因此，尽管我很想对此嗤之以鼻，并给它贴上古怪的标签，但我必须在这里保持公平。如果你恰好处于这种情况下——离你家窗户几十码的地方有一个秋千，你有一根很长的绳子，你的孩子足够大了，可以自己走到秋千那里并打一个结，你必须(或想)待在里面——这是“推”他们荡秋千的最好方法。</p><p class="sc-77igqf-0 bOfvBY">当然，你也可以教他们如何摆动双腿，自己荡秋千，但那是以后的事了。</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><small> <em>遇见地球上最聪明的父母！加入我们的</em> </small> <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.facebook.com/groups/2018785615043946/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.facebook.com/groups/2018785615043946/" target="_blank" rel="noopener noreferrer"> <small> <em>育儿脸书群</em> </small> </a> </span> <small> <em>。</em>T15】</small></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-p96Fa1JJbVU&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-p96Fa1JJbVU&start=0) 
+
+我最初的想法是，*这个*到底有什么意义？还不完全清楚绳子是如何被来回拉动的，但我想我看到一只戴着黑手套的手在窗外进进出出。这只能意味着站立和摆动推仍然在发生(而不是以某种方式被自动化)，只是从比通常更远、更高的位置。
+
+所以我不得不问自己:这种方法有什么好处？在窗户附近是否有一些需要立即处理的杂务(并且只需要用一只手)？我无法想象他们会用另一只手洗碗或准备晚餐。他们会监督电缆工吗？他们会不会正在进行一场成人电话对话，而不被无辜者听到？
+
+也许一个婴儿正在打盹，而这个孩子正在乞求荡秋千，他的父母就像这样，“你知道吗？如果你能打个结，我们就能做到。”现在他们仍然要拉车，但他们也在喧闹繁忙的生活中找回了几分幸福宁静的时光。这将是一个创造性的解决方案，使他们的一天更轻松，也避免了发脾气，如果这不是为人父母的定义，那么我是在错误的工作。
+
+因此，尽管我很想对此嗤之以鼻，并给它贴上古怪的标签，但我必须在这里保持公平。如果你恰好处于这种情况下——离你家窗户几十码的地方有一个秋千，你有一根很长的绳子，你的孩子足够大了，可以自己走到秋千那里并打一个结，你必须(或想)待在里面——这是“推”他们荡秋千的最好方法。
+
+当然，你也可以教他们如何摆动双腿，自己荡秋千，但那是以后的事了。
+
+* * *
+
+<small>*遇见地球上最聪明的父母！加入我们的*</small> [<small>*育儿脸书群*</small>](https://www.facebook.com/groups/2018785615043946/) <small>*。*T15】</small>

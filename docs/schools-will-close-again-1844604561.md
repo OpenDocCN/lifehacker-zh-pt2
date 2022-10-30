@@ -1,10 +1,10 @@
 # 学校将再次关闭
 
-> 原文：<https://lifehacker.com/schools-will-close-again-1844604561>
+> 原文:[https://lifehacker.com/schools-will-close-again-1844604561](https://lifehacker.com/schools-will-close-again-1844604561)
 
 随着冠状病毒数量在一些地区激增，在其他地区保持稳定或下降，人们很容易忘记我们从哪里开始。数字越大，我们越不会感到震惊。还记得吗，就在两个月前，当《纽约时报》制作了这个图形 来帮助我们感受 10 万美国人死亡这一不可思议的里程碑事件的影响？自那以后，我们又增加了近 60，000 例死亡病例，并且我们正在迅速接近 500 万例确诊病例。
 
-
+Watch
 
 昨天早上，正如疫情飓风开始以来我每天早上所做的一样，我浏览了当地报纸，寻找我所在州(宾夕法尼亚州)和我所在地区(位于费城北部、与新泽西州接壤的利哈伊山谷)的最新病例数。自三月以来，宾夕法尼亚州第一次报告没有新的死亡病例。该州新增病例 565 例，其中我所在的地区只有大约 7 例。鉴于我们靠近费城、新泽西和纽约市，这个地区在早期是一个热点。
 
@@ -16,4 +16,18 @@
 
 我怎么知道这个？因为我们都知道这一点。我们知道我们的孩子需要上学，需要和他们的同龄人在一起，需要积极参加运动、乐队和音乐。我们也知道这只是几周或几天的事情，或者就目前为止至少有一所学校 的 [而言，仅仅*几个小时*阳性检测结果就会源源不断地传来，我们都会说，“嗯，我们知道这不会持续太久。”](https://www.nytimes.com/2020/08/01/us/schools-reopening-indiana-coronavirus.html)
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1288175826694012929&amp;autosize=1" autoresize="true" id="twitter-1288175826694012929" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">此外，我们不得不重开学校，因为在获得完成虚拟课堂所需的技术方面存在差距。我们必须向所有依赖于学校营养项目的孩子开放，也要向他们开放专门的学习服务，或者行为、情感或精神健康服务。我们必须开放，这样父母才能工作。</p><p class="sc-77igqf-0 bOfvBY">我们觉得我们必须尝试，即使我们知道它会失败，即使我们知道人们会因此而死亡。《大西洋月刊》<span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.theatlantic.com/ideas/archive/2020/08/push-reopen-schools-fail/614869/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.theatlantic.com/ideas/archive/2020/08/push-reopen-schools-fail/614869/" target="_blank" rel="noopener noreferrer">的执行编辑 Adrienne LaFrance 报道:</a></span></p><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">“这种开放学校的努力肯定会失败，”彼得·霍特兹说，他是儿科医生和分子病毒学家，也是贝勒医学院国家热带医学院的院长。在疫情的整个过程中，我一直在与霍特兹和几位流行病学家通信，并在最近几周注意到他们观点的鲜明性。“对低年级学生的社会距离期望和面具要求是不现实的，”Hotez 告诉我。“在高传播社区，新冠肺炎病毒进入学校是不可避免的。在高病毒传播社区的学校开学两周内，老师们就会生病。只要有一名教师因 COVID 而住院，一切都会停止。”</p></blockquote><p class="sc-77igqf-0 bOfvBY">与 3 月和 4 月时相比，我们现在对病毒如何传播有了更多的了解，当时我们仍在强调是否要对我们的食品杂货进行消毒，以及我们是否可以停止触摸我们的脸。现在我们知道，我们的安全，我们的孩子和学校工作人员的安全，不仅取决于我们采取的预防措施，还取决于每个人采取的预防措施(T2)。还有<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.washingtonpost.com/nation/2020/08/03/mask-mandatory-pennsylvania-shooting-police/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.washingtonpost.com/nation/2020/08/03/mask-mandatory-pennsylvania-shooting-police/" target="_blank" rel="noopener noreferrer">我住的城镇附近的一个家伙</a> </span>最近向一名雪茄店店员开枪(最终还向警察开枪)，因为他想摘下他的无面罩雪茄，所以我对普通大众的信心相当薄弱。</p><p class="sc-77igqf-0 bOfvBY">即便如此，尽管我们现在知道口罩和物理距离有多重要，以及避免拥挤和封闭空间有多重要，但仍有很多我们不知道的。我们喜欢坚持这样的信念，即如果儿童被感染，他们的风险通常较低，或者年幼的儿童不会像年长的儿童和成人那样传播病毒，但因为我们这么早就关闭了学校(这是我们应该做的)，我们真的不知道当大量儿童突然受到潜在感染时会发生什么。而且这种病毒存在的时间还不够长，我们还不知道<span></span>对患有轻微病例的人的长期后果。</p><p class="sc-77igqf-0 bOfvBY">尽管我们的学校很小心，尽管我们提醒我们的孩子为什么戴口罩很重要，尽管我们的老师试图保持距离并消毒所有的东西，但你知道，在教学中，这是行不通的。</p><p class="sc-77igqf-0 bOfvBY">所以现在振作起来。如果您的地区仍然计划亲自重新开放，即使是混合时间表，即使所有可能的预防措施到位:这是暂时的。你们学校又要关门了，快了。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1288175826694012929&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1288175826694012929&autosize=1) 
+
+此外，我们不得不重开学校，因为在获得完成虚拟课堂所需的技术方面存在差距。我们必须向所有依赖于学校营养项目的孩子开放，也要向他们开放专门的学习服务，或者行为、情感或精神健康服务。我们必须开放，这样父母才能工作。
+
+我们觉得我们必须尝试，即使我们知道它会失败，即使我们知道人们会因此而死亡。《大西洋月刊》[的执行编辑 Adrienne LaFrance 报道:](https://www.theatlantic.com/ideas/archive/2020/08/push-reopen-schools-fail/614869/)
+
+> “这种开放学校的努力肯定会失败，”彼得·霍特兹说，他是儿科医生和分子病毒学家，也是贝勒医学院国家热带医学院的院长。在疫情的整个过程中，我一直在与霍特兹和几位流行病学家通信，并在最近几周注意到他们观点的鲜明性。“对低年级学生的社会距离期望和面具要求是不现实的，”Hotez 告诉我。“在高传播社区，新冠肺炎病毒进入学校是不可避免的。在高病毒传播社区的学校开学两周内，老师们就会生病。只要有一名教师因 COVID 而住院，一切都会停止。”
+
+与 3 月和 4 月时相比，我们现在对病毒如何传播有了更多的了解，当时我们仍在强调是否要对我们的食品杂货进行消毒，以及我们是否可以停止触摸我们的脸。现在我们知道，我们的安全，我们的孩子和学校工作人员的安全，不仅取决于我们采取的预防措施，还取决于每个人采取的预防措施(T2)。还有 [我住的城镇附近的一个家伙](https://www.washingtonpost.com/nation/2020/08/03/mask-mandatory-pennsylvania-shooting-police/) 最近向一名雪茄店店员开枪(最终还向警察开枪)，因为他想摘下他的无面罩雪茄，所以我对普通大众的信心相当薄弱。
+
+即便如此，尽管我们现在知道口罩和物理距离有多重要，以及避免拥挤和封闭空间有多重要，但仍有很多我们不知道的。我们喜欢坚持这样的信念，即如果儿童被感染，他们的风险通常较低，或者年幼的儿童不会像年长的儿童和成人那样传播病毒，但因为我们这么早就关闭了学校(这是我们应该做的)，我们真的不知道当大量儿童突然受到潜在感染时会发生什么。而且这种病毒存在的时间还不够长，我们还不知道对患有轻微病例的人的长期后果。
+
+尽管我们的学校很小心，尽管我们提醒我们的孩子为什么戴口罩很重要，尽管我们的老师试图保持距离并消毒所有的东西，但你知道，在教学中，这是行不通的。
+
+所以现在振作起来。如果您的地区仍然计划亲自重新开放，即使是混合时间表，即使所有可能的预防措施到位:这是暂时的。你们学校又要关门了，快了。

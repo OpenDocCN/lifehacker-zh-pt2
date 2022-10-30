@@ -1,11 +1,25 @@
 # 众议院新冠肺炎法案将使冠状病毒检测对所有人免费
 
-> 原文：<https://lifehacker.com/the-house-covid-19-bill-would-make-coronavirus-testing-1842292608>
+> 原文:[https://life hacker . com/the-house-新冠肺炎-比尔-会制造冠状病毒-测试-1842292608](https://lifehacker.com/the-house-covid-19-bill-would-make-coronavirus-testing-1842292608)
 
 许多健康保险公司已经自愿选择免除新冠肺炎测试的共付额、免赔额、共同保险和其他费用。现在，众议院民主党人正在努力通过家庭第一冠状病毒应对法案 ，该法案将使任何参加医疗保健计划的人，包括医疗保险和医疗补助计划的人，以及未参保的人，都可以免费进行冠状病毒检测。
 
-
+Watch
 
 正如凯泽家族基金会负责卫生政策的执行副总裁拉里·莱维特 [在推特](https://twitter.com/larry_levitt/status/1237954754199744513) 上解释的那样，众议院新冠肺炎法案将要求所有医疗计划免除冠状病毒检测的患者分摊费用:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1237954754199744513&amp;autosize=1" autoresize="true" id="twitter-1237954754199744513" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">该法案包括一个部分，即“要求国家灾难医疗系统报销向没有保险的个人提供的新冠肺炎诊断测试的费用。”它还包括紧急带薪病假、增强的失业保险、通过 SNAP 和类似计划提供的额外粮食安全支持以及其他社会福利。</p><p class="sc-77igqf-0 bOfvBY">众议院新冠肺炎法案计划在今天晚些时候在众议院进行审议，我们将保持这篇文章的更新。议案通过了，现在是法律了。 <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://lifehacker.com/what-you-need-to-know-about-the-families-first-coronavi-1842427176&quot;,{&quot;metric25&quot;:1}]]" href="https://lifehacker.com/what-you-need-to-know-about-the-families-first-coronavi-1842427176"> <em>下面是你需要知道的</em> </a> </span> <em>。】</em></p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">如果你有一个高免赔额的健康计划(通常称为 HDHP)，<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.irs.gov/pub/irs-drop/n-20-15.pdf&quot;,{&quot;metric25&quot;:1}]]" href="https://www.irs.gov/pub/irs-drop/n-20-15.pdf" target="_blank" rel="noopener noreferrer">美国国税局刚刚通过了一项通知</a> </span>允许 hdhp 保持他们的高免赔额状态，即使那些计划允许免费冠状病毒测试:<br/></p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">为了促进国家对 2019 新型冠状病毒(新冠肺炎)的反应，本通知规定，在发布进一步的指导意见之前，满足《国内税收法典》(《法典》)第 223(c)(2)(A)节规定的高免赔额健康计划(HDHP)要求的健康计划，不会仅仅因为该健康计划提供与新冠肺炎病毒检测和治疗相关的无免赔额或免赔额低于 HDHP 最低免赔额(仅限自己或家庭)的健康福利，就不能成为第 223(c)(2)(A)节规定的 HDHP。因此，根据第 223(c)(1)节的规定，受 HDHP 保护的个人不会被取消成为合格个人的资格，该合格个人可以向健康储蓄账户(HSA)缴纳税收优惠。</p></blockquote><p class="sc-77igqf-0 bOfvBY">换句话说:HDHPs 通常要求您在保险公司开始分担护理费用之前支付高额免赔额，但无免赔额的预防性护理除外，如年度健康女性检查。从好的方面来看，你可以在健康储蓄账户(HSA)中存下税前美元，如果你不把它们花在医疗保健上，这些钱可以转换成退休金。</p><p class="sc-77igqf-0 bOfvBY">因此，国税局决定让 HDHPs 覆盖冠状病毒测试，而不要求你动用高额免赔额，也不使你没有资格向 HSA 捐款，这是一件大事。</p><p class="sc-77igqf-0 bOfvBY">这也提醒我们，我们的医疗保险系统有点荒谬，但至少我们的政府在冠状病毒疫情期间试图做正确的事情。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1237954754199744513&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1237954754199744513&autosize=1) 
+
+该法案包括一个部分，即“要求国家灾难医疗系统报销向没有保险的个人提供的新冠肺炎诊断测试的费用。”它还包括紧急带薪病假、增强的失业保险、通过 SNAP 和类似计划提供的额外粮食安全支持以及其他社会福利。
+
+众议院新冠肺炎法案计划在今天晚些时候在众议院进行审议，我们将保持这篇文章的更新。议案通过了，现在是法律了。 [*下面是你需要知道的*](https://lifehacker.com/what-you-need-to-know-about-the-families-first-coronavi-1842427176) *。】*
+
+如果你有一个高免赔额的健康计划(通常称为 HDHP)， [美国国税局刚刚通过了一项通知](https://www.irs.gov/pub/irs-drop/n-20-15.pdf) 允许 hdhp 保持他们的高免赔额状态，即使那些计划允许免费冠状病毒测试:
+
+> 为了促进国家对 2019 新型冠状病毒(新冠肺炎)的反应，本通知规定，在发布进一步的指导意见之前，满足《国内税收法典》(《法典》)第 223(c)(2)(A)节规定的高免赔额健康计划(HDHP)要求的健康计划，不会仅仅因为该健康计划提供与新冠肺炎病毒检测和治疗相关的无免赔额或免赔额低于 HDHP 最低免赔额(仅限自己或家庭)的健康福利，就不能成为第 223(c)(2)(A)节规定的 HDHP。因此，根据第 223(c)(1)节的规定，受 HDHP 保护的个人不会被取消成为合格个人的资格，该合格个人可以向健康储蓄账户(HSA)缴纳税收优惠。
+
+换句话说:HDHPs 通常要求您在保险公司开始分担护理费用之前支付高额免赔额，但无免赔额的预防性护理除外，如年度健康女性检查。从好的方面来看，你可以在健康储蓄账户(HSA)中存下税前美元，如果你不把它们花在医疗保健上，这些钱可以转换成退休金。
+
+因此，国税局决定让 HDHPs 覆盖冠状病毒测试，而不要求你动用高额免赔额，也不使你没有资格向 HSA 捐款，这是一件大事。
+
+这也提醒我们，我们的医疗保险系统有点荒谬，但至少我们的政府在冠状病毒疫情期间试图做正确的事情。

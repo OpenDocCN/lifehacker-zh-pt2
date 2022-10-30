@@ -1,13 +1,37 @@
 # 关于边际税率应该知道什么
 
-> 原文：<https://lifehacker.com/what-to-know-about-marginal-tax-rates-1831544185>
+> 原文:[https://life hacker . com/what-to-know-about-marginal-tax-rates-1831544185](https://lifehacker.com/what-to-know-about-marginal-tax-rates-1831544185)
 
 你可能听说过，上周末，新任国会女议员亚历山大·奥卡西奥-科尔特斯在接受《60 分钟采访时说，有先例表明，美国富人中的“顶层”——在这里指的是收入超过 1000 万美元的人——支付的边际税率“ [高达 60%或 70%](https://www.marketwatch.com/story/ocasio-cortez-suggests-individual-tax-rates-as-high-as-70-2019-01-04)。”
 
-
+Watch
 
 “这并不意味着所有 1000 万美元都要按极高的税率征税。但这意味着，随着你越往上爬，你应该做出更多贡献，”她说。
 
 保守派声称这种税收对富人不公平。尽管少数党党鞭应该更清楚这一点，但众议员史蒂夫·斯卡利斯(Steve Scalise)似乎表示，这样的税率将意味着政府将“拿走”70%的高收入者的收入。但在美国，所得税并不是这样运作的。这是因为我们的收入是按“边际”税率征税的，正如这位国会女议员在采访中暗示的那样。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1081579535114608640&amp;autosize=1" autoresize="true" id="twitter-1081579535114608640" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">这是什么意思？这意味着不同收入水平的人对同一个人的税率越来越高。你可能提到的税级并不是你为所有收入支付的有效税率。这是你在最高收入水平时支付的税率，你在税级门槛以上赚的钱。例如，以 2019 年的个人税级为例(如果你的收入超过旁边列出的金额，你将按每个税率纳税):</p><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>百分之十:0 美元</li><li>12%:9700 美元</li><li>22%:39475 美元</li><li>24%:8.42 万美元</li><li>32 %: 160725 美元</li><li>35%:20.41 万美元</li><li>37%:51.03 万美元</li></ul><p class="sc-77igqf-0 bOfvBY">例如，如果你今年的收入是 161，000 美元，你就不会被征收 32%的全额税。随着收入的增加，你将在上述四个等级中的每一个等级上纳税，在联邦一级，对超过 160，725 美元的收入征收 32%的税:</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>最初 9700 美元的 10%</li><li>9701 美元到 39475 美元之间的 12%</li><li>39，476 美元至 84，200 美元之间金额的 22%</li><li>84，201 美元至 160，725 美元之间金额的 24%</li><li>超过 160，725 美元金额的 32%</li></ul><p class="sc-77igqf-0 bOfvBY">以此类推，如果你赚的比那个例子多。奥卡西奥-科尔特斯建议，对收入超过 1000 万美元的人征收 70%的税，而不是对收入超过 1000 万美元的人征收 70%的税。以奥卡西奥-科尔特斯为例，谁年收入超过 1000 万美元？根据经济政策研究所 的 2016 年<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.epi.org/publication/income-inequality-in-the-us/#epi-toc-3&quot;,{&quot;metric25&quot;:1}]]" href="http://www.epi.org/publication/income-inequality-in-the-us/#epi-toc-3" target="_blank" rel="noopener noreferrer">报告，美国最富有的 1%的家庭年收入至少为 389，436 美元，尽管平均水平接近 115 万美元。所以我们说的是百分之一的百分比。</a></span></p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">2019 年，最高<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://twocents.lifehacker.com/these-are-the-2019-tax-brackets-1831021335&quot;,{&quot;metric25&quot;:1}]]" href="https://twocents.lifehacker.com/these-are-the-2019-tax-brackets-1831021335">边际税率</a> </span>为 37%。从历史上看，这是相当低的。根据<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://taxfoundation.org/us-federal-individual-income-tax-rates-history-1913-2013-nominal-and-inflation-adjusted-brackets/&quot;,{&quot;metric25&quot;:1}]]" href="https://taxfoundation.org/us-federal-individual-income-tax-rates-history-1913-2013-nominal-and-inflation-adjusted-brackets/" target="_blank" rel="noopener noreferrer">税收基金会</a> </span>，你可以追溯到 1981 年，找到 70%的边际税率，这是对个人收入超过 108，300 美元的个人。在此之前的一段时间里，“顶层”的收入者被征收超过 90%的税。奥卡西奥-科尔特斯的声明(在这一点上不是政策建议)符合<span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.vox.com/policy-and-politics/2019/1/4/18168431/alexandria-ocasio-cortez-70-percent&quot;,{&quot;metric25&quot;:1}]]" href="https://www.vox.com/policy-and-politics/2019/1/4/18168431/alexandria-ocasio-cortez-70-percent" target="_blank" rel="noopener noreferrer">progressive economi</a></span>c 的建议。</p><p class="sc-77igqf-0 bOfvBY">总之，联邦政府不会拿走高收入者 70%的钱。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1081579535114608640&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1081579535114608640&autosize=1) 
+
+这是什么意思？这意味着不同收入水平的人对同一个人的税率越来越高。你可能提到的税级并不是你为所有收入支付的有效税率。这是你在最高收入水平时支付的税率，你在税级门槛以上赚的钱。例如，以 2019 年的个人税级为例(如果你的收入超过旁边列出的金额，你将按每个税率纳税):
+
+*   百分之十:0 美元
+*   12%:9700 美元
+*   22%:39475 美元
+*   24%:8.42 万美元
+*   32 %: 160725 美元
+*   35%:20.41 万美元
+*   37%:51.03 万美元
+
+例如，如果你今年的收入是 161，000 美元，你就不会被征收 32%的全额税。随着收入的增加，你将在上述四个等级中的每一个等级上纳税，在联邦一级，对超过 160，725 美元的收入征收 32%的税:
+
+*   最初 9700 美元的 10%
+*   9701 美元到 39475 美元之间的 12%
+*   39，476 美元至 84，200 美元之间金额的 22%
+*   84，201 美元至 160，725 美元之间金额的 24%
+*   超过 160，725 美元金额的 32%
+
+以此类推，如果你赚的比那个例子多。奥卡西奥-科尔特斯建议，对收入超过 1000 万美元的人征收 70%的税，而不是对收入超过 1000 万美元的人征收 70%的税。以奥卡西奥-科尔特斯为例，谁年收入超过 1000 万美元？根据经济政策研究所 的 2016 年 [报告，美国最富有的 1%的家庭年收入至少为 389，436 美元，尽管平均水平接近 115 万美元。所以我们说的是百分之一的百分比。](http://www.epi.org/publication/income-inequality-in-the-us/#epi-toc-3)
+
+2019 年，最高 [边际税率](https://twocents.lifehacker.com/these-are-the-2019-tax-brackets-1831021335) 为 37%。从历史上看，这是相当低的。根据 [税收基金会](https://taxfoundation.org/us-federal-individual-income-tax-rates-history-1913-2013-nominal-and-inflation-adjusted-brackets/) ，你可以追溯到 1981 年，找到 70%的边际税率，这是对个人收入超过 108，300 美元的个人。在此之前的一段时间里，“顶层”的收入者被征收超过 90%的税。奥卡西奥-科尔特斯的声明(在这一点上不是政策建议)符合[progressive economi](https://www.vox.com/policy-and-politics/2019/1/4/18168431/alexandria-ocasio-cortez-70-percent)c 的建议。
+
+总之，联邦政府不会拿走高收入者 70%的钱。

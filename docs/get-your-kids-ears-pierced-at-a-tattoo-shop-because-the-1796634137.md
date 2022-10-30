@@ -1,10 +1,10 @@
 # 为什么你应该让你的孩子在纹身店穿耳洞
 
-> 原文：<https://lifehacker.com/get-your-kids-ears-pierced-at-a-tattoo-shop-because-the-1796634137>
+> 原文:[https://life hacker . com/get-your-kids-at-a-tattoo-shop-the-1796634137](https://lifehacker.com/get-your-kids-ears-pierced-at-a-tattoo-shop-because-the-1796634137)
 
 我 10 岁的时候打了耳洞。我姑姑带我去商场的克莱尔商店，在那里我浏览了一个诞生石耳环的展示，挑了一对闪闪发光的水晶耳环，然后坐在椅子上，拥抱了这只巨大的安慰熊，一名年轻的员工用穿孔枪瞄准了我的耳垂。三十秒后，我穿了耳洞！
 
-
+Watch
 
 三天后，我有硬皮绿色的东西从我穿的耳洞里流出来，很难受。
 
@@ -16,4 +16,16 @@
 
 如果你对带小埃拉去一个叫“大老爹”的地方感到紧张，那里墙上有骷髅艺术，额头上有钉子，不要紧张。实际上，越来越多的穿孔者提倡父母在纹身店而不是商场给孩子穿耳洞(或其他部位)。Instagram 照片相当惊人。洛杉矶 [人体电子纹身](http://bodyelectrictattoo.com/) 的老板布莱恩·凯斯·汤普森定期上传他最年轻客户的照片。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=instagram-BSH3fJGl5cG&amp;autosize=1" autoresize="true" id="instagram-BSH3fJGl5cG" data-recommended="false" width="598" height="676" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">下面是这个过程的视频:</p><div class="ooo3c9-0 cmUFVa align--bleed has-video media-large video-embed embed-frame"><span class="flex-video widescreen"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-8eM3gGYSG3o&amp;start=0" data-chomp-id="8eM3gGYSG3o" data-recommend-id="youtube://8eM3gGYSG3o" id="youtube-8eM3gGYSG3o" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/><span data-chomp-id="8eM3gGYSG3o" data-recommend-id="youtube://8eM3gGYSG3o" id="youtube-8eM3gGYSG3o" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">好的穿孔店非常干净。设备由高压灭菌器灭菌，高压灭菌器是医疗行业使用的通过高温高压杀死微生物和孢子的设备。用于快速愈合的干净切口的针在使用后被扔掉。</p><p class="sc-77igqf-0 bOfvBY">穿孔机通常有广泛的培训。“穿孔艺术家经常经历一年或更长时间的实习，参加<span></span>血源性病原体课程，经常在客户出现医疗紧急情况时进行心肺复苏术，必须了解善后护理、潜在的医疗问题以及每种穿孔类型的正确珠宝选择，在学习执行这些操作时，必须在非常密切的监控下多次观看这些操作，”<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://thestir.cafemom.com/toddlers_preschoolers/129361/dont_pierce_your_daughters_ears&quot;,{&quot;metric25&quot;:1}]]" href="https://thestir.cafemom.com/toddlers_preschoolers/129361/dont_pierce_your_daughters_ears" target="_blank" rel="noopener noreferrer">克里斯蒂·哈斯克尔在 CafeMom </a> </span>写道。</p><p class="sc-77igqf-0 bOfvBY">要找到一家声誉好的商店，阅读评论并提前打电话，确保它欢迎儿童。</p><p class="sc-77igqf-0 bOfvBY"><em>本文最初发表于 2017 年，由伊丽莎白·段丽阳于 2020 年 3 月 10 日更新。更新包括以下内容:检查链接的准确性，改变特征图像和更新格式，以反映当前的风格。</em></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=instagram-BSH3fJGl5cG&autosize=1](https://lifehacker.com/embed/inset/iframe?id=instagram-BSH3fJGl5cG&autosize=1) 
+
+下面是这个过程的视频:
+
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-8eM3gGYSG3o&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-8eM3gGYSG3o&start=0) 
+
+好的穿孔店非常干净。设备由高压灭菌器灭菌，高压灭菌器是医疗行业使用的通过高温高压杀死微生物和孢子的设备。用于快速愈合的干净切口的针在使用后被扔掉。
+
+穿孔机通常有广泛的培训。“穿孔艺术家经常经历一年或更长时间的实习，参加血源性病原体课程，经常在客户出现医疗紧急情况时进行心肺复苏术，必须了解善后护理、潜在的医疗问题以及每种穿孔类型的正确珠宝选择，在学习执行这些操作时，必须在非常密切的监控下多次观看这些操作，” [克里斯蒂·哈斯克尔在 CafeMom](https://thestir.cafemom.com/toddlers_preschoolers/129361/dont_pierce_your_daughters_ears) 写道。
+
+要找到一家声誉好的商店，阅读评论并提前打电话，确保它欢迎儿童。
+
+*本文最初发表于 2017 年，由伊丽莎白·段丽阳于 2020 年 3 月 10 日更新。更新包括以下内容:检查链接的准确性，改变特征图像和更新格式，以反映当前的风格。*

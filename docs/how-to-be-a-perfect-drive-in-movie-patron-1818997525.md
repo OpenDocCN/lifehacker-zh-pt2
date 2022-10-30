@@ -1,10 +1,10 @@
 # 如何成为理想的免下车电影院顾客
 
-> 原文：<https://lifehacker.com/how-to-be-a-perfect-drive-in-movie-patron-1818997525>
+> 原文:[https://life hacker . com/how-to-be-a-perfect-drive-in-movie-patron-1818997525](https://lifehacker.com/how-to-be-a-perfect-drive-in-movie-patron-1818997525)
 
 免下车电影院可能看起来像是过去的遗迹，但实际上仍然有大约 300 家 的 [分散在全国各地。无论你是想重温童年时被塞进父母旅行车的时光，还是第一次去旅行，有几件事你应该知道，以便为这次经历做好准备。](https://www.driveinmovie.com/united-states)
 
-
+Watch
 
 ### **关掉你的灯(全部)**
 
@@ -12,4 +12,38 @@
 
 此外，一定要关掉你汽车的顶灯，因为它们也会分散别人的注意力。如果你需要车内照明，带上手电筒或使用手机。避免把脚放在刹车踏板上，这样那些亮红色的尾灯就不会让你后面的人看不见了。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video--aJn4HD2FcE&amp;start=0" data-chomp-id="-aJn4HD2FcE" data-recommend-id="youtube://-aJn4HD2FcE" id="youtube--aJn4HD2FcE" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="-aJn4HD2FcE" data-recommend-id="youtube://-aJn4HD2FcE" id="youtube--aJn4HD2FcE" data-recommended="false" class="js_recommend"/></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h183860">关掉你的车，使用便携式收音机</h3><p class="sc-77igqf-0 bOfvBY">如果可以的话，在看电影的时候完全关掉你的车，尤其是如果它有日间行车灯的话。你的引擎声会让人分心，汽车尾气也是如此。这意味着你需要根据天气穿着，并提前计划。如果外面很热，穿上轻便舒适的衣服，这样你就不用开车开空调了。如果很冷，穿暖和点，带些毯子。幕间休息时，你可以一直开着空调或加热器。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">许多汽车影院使用调频收音机来播放电影声音，但是你不想用立体声耗尽你汽车的电池。所以<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://tipsforfamilytrips.com/utah/drive-movie-tips-families/&quot;,{&quot;metric25&quot;:1}]]" href="https://tipsforfamilytrips.com/utah/drive-movie-tips-families/" target="_blank" rel="noopener noreferrer">带一个电池供电的便携式收音机或者</a> </span>来代替。无论你如何定位，你都可以听到这部电影。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h183861">注意他人的看法</h3><p class="sc-77igqf-0 bOfvBY">由于汽车电影院是在户外，而且停满了各种类型的车辆，所以影院对每个人能看多清楚屏幕的控制要少得多。这就是为什么<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://ask.metafilter.com/158177/Drivein-tips-for-a-complete-novice&quot;,{&quot;metric25&quot;:1}]]" href="http://ask.metafilter.com/158177/Drivein-tips-for-a-complete-novice" target="_blank" rel="noopener noreferrer">你必须考虑别人的观点</a> </span>。带着像货车和卡车这样的大型车辆，就相当于带着一顶滑稽的超大礼帽去普通的电影院。</p><p class="sc-77igqf-0 bOfvBY">如果你想回到你的空间，打开你的 SUV 或掀背车的后舱门，用东西绑住舱门，这样它就不会从你的车顶打开。尽管很诱人，但不要爬上你的车顶去看电影。</p><p class="sc-77igqf-0 bOfvBY">许多人在汽车电影院甚至不坐在车里。你可以把车停在更靠后的地方，带上野营椅或折叠椅，放在你车前的停车位上。只是一定要保持车与车之间的距离，这样你的邻居和其他路人就有空间通过。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h183862"><strong>留意孩子</strong></h3><p class="sc-77igqf-0 bOfvBY">不管是你的孩子还是别人的，<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://theparanormalist.wordpress.com/2013/06/19/the-ultimate-drive-in-movie-checklist-why-to-go-what-to-bring-how-to-maximize-the-fun/&quot;,{&quot;metric25&quot;:1}]]" href="https://theparanormalist.wordpress.com/2013/06/19/the-ultimate-drive-in-movie-checklist-why-to-go-what-to-bring-how-to-maximize-the-fun/" target="_blank" rel="noopener noreferrer">孩子可能会到处跑</a> </span>。当你寻找一个停车位的时候，慢慢地小心地穿过停车场。如果你带着你的孩子，试着让他们不要四处游荡。穿过停车场的汽车和过道可能会很危险。</p><div class="ooo3c9-0 cmUFVa align--bleed has-video media-large video-embed embed-frame"><span class="flex-video widescreen"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-hsNMJp8G5tA&amp;start=0" data-chomp-id="hsNMJp8G5tA" data-recommend-id="youtube://hsNMJp8G5tA" id="youtube-hsNMJp8G5tA" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/><span data-chomp-id="hsNMJp8G5tA" data-recommend-id="youtube://hsNMJp8G5tA" id="youtube-hsNMJp8G5tA" data-recommended="false" class="js_recommend"/></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h183863"><strong>逛小吃店</strong></h3><p class="sc-77igqf-0 bOfvBY">听着，把外面的食物和饮料偷偷带进不允许的汽车影院并不难。这可能是你做过的最简单的走私了。但是请记住，免下车电影院，以及大多数电影院，因为他们的优惠销售而生存下来。如果你想偷偷喝点饮料，没问题，但至少要去小吃店买点东西。如果你想继续享受汽车电影院，不要成为它倒闭的原因。</p><p class="sc-77igqf-0 bOfvBY">也就是说，在电影开始前、幕间休息时以及电影结束后，小吃店和洗手间会非常忙碌。所以一旦电影开始就去处理那些东西。反正你可能已经看过他们正在上映的电影了。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h183864"><strong>期待双重功能并尝试享受体验</strong></h3><p class="sc-77igqf-0 bOfvBY">大多数汽车影院都有双重特色，<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://ask.metafilter.com/158177/Drivein-tips-for-a-complete-novice&quot;,{&quot;metric25&quot;:1}]]" href="http://ask.metafilter.com/158177/Drivein-tips-for-a-complete-novice" target="_blank" rel="noopener noreferrer">所以准备好度过一个漫长的夜晚</a> </span>。你想什么时候离开都可以，但你也可以充分利用这段经历。只是不要期待全新的电影，保证适合儿童的电影，或者两部电影以任何方式很好地结合在一起。</p><p class="sc-77igqf-0 bOfvBY">同样值得一提的是，汽车电影院绝不是看电影的最佳方式。旧投影仪在旧屏幕上显示的图像不会是高清晰度的，声音可能会很糟糕，坐在汽车座位上或户外的草坪椅子上被蚊子吃掉也不是舒适的最高境界。你去免下车餐馆是为了体验一下，感受一下气氛，和朋友或家人出去玩，和你的宝贝兔子抱在一起，也许还会亲热一下。如果你不同意，就不要去。</p><p class="sc-77igqf-0 bOfvBY"><em>这个故事最初发表于 2017 年，并于 2020 年 3 月 3 日更新了新信息。</em></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video--aJn4HD2FcE&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video--aJn4HD2FcE&start=0) 
+
+### 关掉你的车，使用便携式收音机
+
+如果可以的话，在看电影的时候完全关掉你的车，尤其是如果它有日间行车灯的话。你的引擎声会让人分心，汽车尾气也是如此。这意味着你需要根据天气穿着，并提前计划。如果外面很热，穿上轻便舒适的衣服，这样你就不用开车开空调了。如果很冷，穿暖和点，带些毯子。幕间休息时，你可以一直开着空调或加热器。
+
+许多汽车影院使用调频收音机来播放电影声音，但是你不想用立体声耗尽你汽车的电池。所以 [带一个电池供电的便携式收音机或者](https://tipsforfamilytrips.com/utah/drive-movie-tips-families/) 来代替。无论你如何定位，你都可以听到这部电影。
+
+### 注意他人的看法
+
+由于汽车电影院是在户外，而且停满了各种类型的车辆，所以影院对每个人能看多清楚屏幕的控制要少得多。这就是为什么 [你必须考虑别人的观点](http://ask.metafilter.com/158177/Drivein-tips-for-a-complete-novice) 。带着像货车和卡车这样的大型车辆，就相当于带着一顶滑稽的超大礼帽去普通的电影院。
+
+如果你想回到你的空间，打开你的 SUV 或掀背车的后舱门，用东西绑住舱门，这样它就不会从你的车顶打开。尽管很诱人，但不要爬上你的车顶去看电影。
+
+许多人在汽车电影院甚至不坐在车里。你可以把车停在更靠后的地方，带上野营椅或折叠椅，放在你车前的停车位上。只是一定要保持车与车之间的距离，这样你的邻居和其他路人就有空间通过。
+
+### **留意孩子**
+
+不管是你的孩子还是别人的， [孩子可能会到处跑](https://theparanormalist.wordpress.com/2013/06/19/the-ultimate-drive-in-movie-checklist-why-to-go-what-to-bring-how-to-maximize-the-fun/) 。当你寻找一个停车位的时候，慢慢地小心地穿过停车场。如果你带着你的孩子，试着让他们不要四处游荡。穿过停车场的汽车和过道可能会很危险。
+
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-hsNMJp8G5tA&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-hsNMJp8G5tA&start=0) 
+
+### **逛小吃店**
+
+听着，把外面的食物和饮料偷偷带进不允许的汽车影院并不难。这可能是你做过的最简单的走私了。但是请记住，免下车电影院，以及大多数电影院，因为他们的优惠销售而生存下来。如果你想偷偷喝点饮料，没问题，但至少要去小吃店买点东西。如果你想继续享受汽车电影院，不要成为它倒闭的原因。
+
+也就是说，在电影开始前、幕间休息时以及电影结束后，小吃店和洗手间会非常忙碌。所以一旦电影开始就去处理那些东西。反正你可能已经看过他们正在上映的电影了。
+
+### **期待双重功能并尝试享受体验**
+
+大多数汽车影院都有双重特色， [所以准备好度过一个漫长的夜晚](http://ask.metafilter.com/158177/Drivein-tips-for-a-complete-novice) 。你想什么时候离开都可以，但你也可以充分利用这段经历。只是不要期待全新的电影，保证适合儿童的电影，或者两部电影以任何方式很好地结合在一起。
+
+同样值得一提的是，汽车电影院绝不是看电影的最佳方式。旧投影仪在旧屏幕上显示的图像不会是高清晰度的，声音可能会很糟糕，坐在汽车座位上或户外的草坪椅子上被蚊子吃掉也不是舒适的最高境界。你去免下车餐馆是为了体验一下，感受一下气氛，和朋友或家人出去玩，和你的宝贝兔子抱在一起，也许还会亲热一下。如果你不同意，就不要去。
+
+*这个故事最初发表于 2017 年，并于 2020 年 3 月 3 日更新了新信息。*

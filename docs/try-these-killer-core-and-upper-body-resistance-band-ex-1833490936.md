@@ -1,10 +1,10 @@
 # 试试这些黑仔核心和上身阻力带练习
 
-> 原文：<https://lifehacker.com/try-these-killer-core-and-upper-body-resistance-band-ex-1833490936>
+> 原文:[https://life hacker . com/try-these-killer-core-and-upper-body-resistance-band-ex-1833490936](https://lifehacker.com/try-these-killer-core-and-upper-body-resistance-band-ex-1833490936)
 
 虽然几乎任何运动都有阻力带版本，但只有少数运动中阻力带是最好的方法之一。这里有一些我最喜欢的，重点是上半身的动作。加入我们的 [抵抗乐队挑战](https://lifehacker.com/the-march-fitness-challenge-is-the-resistance-band-wor-1832996075) ，给他们一个尝试吧！
 
-
+Watch
 
 ### 帕洛夫出版社
 
@@ -20,4 +20,4 @@
 
 这个比较出名一点，但是绝对值得一提！在引体向上的拉杆上绕一个长的阻力带，然后用你的脚或膝盖踩进去。乐队会在运动的底部给你一些帮助，但在顶部会少一些。 [这里有一段视频](https://www.youtube.com/watch?v=ZHllQTJf7eA) 展示了它的样子:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-ZHllQTJf7eA&amp;start=0" data-chomp-id="ZHllQTJf7eA" data-recommend-id="youtube://ZHllQTJf7eA" id="youtube-ZHllQTJf7eA" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="ZHllQTJf7eA" data-recommend-id="youtube://ZHllQTJf7eA" id="youtube-ZHllQTJf7eA" data-recommended="false" class="js_recommend"/></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h298027"><br/></h3> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-ZHllQTJf7eA&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-ZHllQTJf7eA&start=0)

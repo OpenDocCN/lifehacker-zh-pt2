@@ -1,7 +1,45 @@
 # 2019 年 4 月 8 日这一周，网飞有哪些活动
 
-> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-april-8-1833809211>
+> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of-April-8-1833809211](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-april-8-1833809211)
 
 本周，贝尔·格里尔斯真的处于进退两难的境地，你可以在这个名为 *You vs. Wild* (周三)*的互动系列中选择他自己的冒险。*他应该爬上悬挂的悬崖顶，面对饥饿的美洲狮，还是跳进岩石深渊？他应该吃掉这个巨大的活幼虫，还是随它去？“如果你不做出正确的选择，我可能不会有好结果，”他在预告片中警告说，暗示如果你选择错误，他就会死，我想我们都同意，这是一个空洞的承诺。尽管如此，如果任何类型的系列有助于游戏化和互动性，它绝对是你决定一个人是否在冰冷的广阔天地行走或爬行的一个系列。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-pwcr3cc0LZM&amp;start=0" data-chomp-id="pwcr3cc0LZM" data-recommend-id="youtube://pwcr3cc0LZM" id="youtube-pwcr3cc0LZM" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="pwcr3cc0LZM" data-recommend-id="youtube://pwcr3cc0LZM" id="youtube-pwcr3cc0LZM" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">喜剧演员加德·艾尔马莱主演了系列剧<em>巨大在法国</em>(周五)，其中的笑话是“法国的杰瑞·宋飞”搬到了美国，没有人知道他是谁，也没有人尊重他。这看起来有点滑稽，但在去年的<span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.thisamericanlife.org/596/becoming-a-badger&quot;,{&quot;metric25&quot;:1}]]" href="https://www.thisamericanlife.org/596/becoming-a-badger" target="_blank" rel="noopener noreferrer">spa<!-- -->te</a></span>of<span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.youtube.com/watch?v=UIMYWg1RHrc&quot;,{&quot;metric25&quot;:1}]]" href="https://www.youtube.com/watch?v=UIMYWg1RHrc" target="_blank" rel="noopener noreferrer">播客</a> </span>对 Almaleh 的采访之后，对他可以“不能走在街上”有多狂野的观察变得有点陈腐了，他在一个国家出名，而美国人却不知道他的名气。是的，大卫·霍索夫在德国很有名！这个世界难道不是一个又大又疯狂的地方吗？<br/></p><div class="ooo3c9-0 cmUFVa align--bleed has-video media-large video-embed embed-frame"><span class="flex-video widescreen"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-0AG7tsCshXI&amp;start=0" data-chomp-id="0AG7tsCshXI" data-recommend-id="youtube://0AG7tsCshXI" id="youtube-0AG7tsCshXI" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/><span data-chomp-id="0AG7tsCshXI" data-recommend-id="youtube://0AG7tsCshXI" id="youtube-0AG7tsCshXI" data-recommended="false" class="js_recommend"/></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h287560"><br/></h3><h3 class="sc-1bwb26k-1 kpbNNd" id="h287561"><strong>本周到达</strong></h3><h4 class="sc-1bwb26k-1 kpbNNd" id="h287562"><strong>4 月 9 日星期二</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80117560&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80117560" target="_blank" rel="noopener noreferrer"> <em>巨魔:节拍继续！:第六季</em> </a> </span> <em>(系列)</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h287563"><strong>4 月 10 日星期三</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>新女孩:第七季</li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80227574&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80227574" target="_blank" rel="noopener noreferrer"> <em>你 vs 野</em> </a> </span> <em>(连载)</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h287564"><strong>4 月 11 日星期四</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80198988&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80198988" target="_blank" rel="noopener noreferrer"><em/></a></span><em>(系列)</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h287565"><strong>4 月 12 日星期五</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>想象中的土地(网飞电影)</em></li><li><em>创可贴</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80211621&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80211621" target="_blank" rel="noopener noreferrer"> <em>巨大的法兰西</em> </a> </span> <em>(系列)</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80211492&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80211492" target="_blank" rel="noopener noreferrer"> <em>威武小比恩</em> </a> </span> <em>(系列)</em></li><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81019888&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81019888" target="_blank" rel="noopener noreferrer"><em/></a></span><em>(电影)</em></li><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81021447&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81021447" target="_blank" rel="noopener noreferrer"><em/></a></span><em>(电影)</em></li><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80987458&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80987458" target="_blank" rel="noopener noreferrer"><em/></a></span><em>(系列)</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81018120&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81018120" target="_blank" rel="noopener noreferrer"> <em>你会带谁去荒岛？</em> </a> </span> <em>(电影)</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h287566">这周离开</h3><h4 class="sc-1bwb26k-1 kpbNNd" id="h287567"><strong>4 月 13 日出发</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>电子游戏高中:第 1-3 季</em></li></ul><div class="bxm4mm-2 hKBnez"><div class="bxm4mm-1 goloRq instream-native-video instream-permalink instream-native-video--mobile"><div class="sc-1h0epat-0 lepUzz"><div class="sc-1h0epat-1 gRjwiT"><div class="sc-235a11-0 egwski">Watch</div></div><div class="sc-1wkneyl-0 hxLRyg video-html5-playlist" data-playlist="192590,192585,192428" data-current="192590"><div class="video-html5-loaded"><div class="video-html5-player"><div class="lhhce6-0 bVyOPq video-html5 autoplay muted mobile" data-video-id="192590" data-position="sidebar" data-video-title="How to Make a Quick and Easy Crumb Crust" data-video-network="lifehacker" data-video-duration="135"></div></div></div></div></div></div></div><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><div id="mgid-container" data-placement="2" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-pwcr3cc0LZM&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-pwcr3cc0LZM&start=0) 
+
+喜剧演员加德·艾尔马莱主演了系列剧*巨大在法国*(周五)，其中的笑话是“法国的杰瑞·宋飞”搬到了美国，没有人知道他是谁，也没有人尊重他。这看起来有点滑稽，但在去年的[spate](https://www.thisamericanlife.org/596/becoming-a-badger)of[播客](https://www.youtube.com/watch?v=UIMYWg1RHrc) 对 Almaleh 的采访之后，对他可以“不能走在街上”有多狂野的观察变得有点陈腐了，他在一个国家出名，而美国人却不知道他的名气。是的，大卫·霍索夫在德国很有名！这个世界难道不是一个又大又疯狂的地方吗？
+
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-0AG7tsCshXI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-0AG7tsCshXI&start=0) 
+
+### **本周到达**
+
+#### **4 月 9 日星期二**
+
+*   [*巨魔:节拍继续！:第六季*](https://www.netflix.com/title/80117560) *(系列)*
+
+#### **4 月 10 日星期三**
+
+*   新女孩:第七季
+*   [*你 vs 野*](https://www.netflix.com/title/80227574) *(连载)*
+
+#### **4 月 11 日星期四**
+
+*   [](https://www.netflix.com/title/80198988)**(系列)**
+
+#### ***4 月 12 日星期五***
+
+*   **想象中的土地(网飞电影)**
+*   **创可贴**
+*   *[*巨大的法兰西*](https://www.netflix.com/title/80211621) *(系列)**
+*   *[*威武小比恩*](https://www.netflix.com/title/80211492) *(系列)**
+*   *[](https://www.netflix.com/title/81019888)**(电影)***
+*   **[](https://www.netflix.com/title/81021447)**(电影)****
+*   **[](https://www.netflix.com/title/80987458)**(系列)****
+*   **[*你会带谁去荒岛？*](https://www.netflix.com/title/81018120) *(电影)***
+
+### **这周离开**
+
+#### ****4 月 13 日出发****
+
+*   ***电子游戏高中:第 1-3 季***
+
+**Watch**

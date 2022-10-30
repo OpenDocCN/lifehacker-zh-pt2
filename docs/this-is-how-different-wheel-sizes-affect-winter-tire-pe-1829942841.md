@@ -1,10 +1,10 @@
 # 这就是不同车轮尺寸对冬季轮胎性能的影响
 
-> 原文：<https://jalopnik.com/this-is-how-different-wheel-sizes-affect-winter-tire-pe-1829942841>
+> 原文:[https://jalopnik . com/this-is-how-different-what-affect-winter-tire-PE-1829942841](https://jalopnik.com/this-is-how-different-wheel-sizes-affect-winter-tire-pe-1829942841)
 
 大约是一年中的这个时候，大多数人开始考虑购买冬季轮胎，为寒冷多雪的月份做准备。我们以前写过关于 [冬季轮胎](https://jalopnik.com/a-guide-to-how-you-should-buy-winter-tires-1821780963) 的重要性，但是这里告诉你如何决定买什么尺寸的轮胎。
 
-
+Watch
 
 [轮胎评论](https://jalopnik.com/tag/tyre-reviews) 带着关于冬季轮胎以及不同尺寸如何影响轮胎性能和感觉的全面视频回来了。为了进行测试，主持人乔纳森·本森准备了三套冬季轮胎:16 英寸 205s、17 英寸 22 5s 和 18 英寸 225s。
 
@@ -28,4 +28,4 @@
 
 你可以在这里看一下完整的测试。一如往常，购买轮胎取决于你在寻找什么，以及你生活在什么样的环境中。
 
-<iframe data-src="https://jalopnik.com/embed/inset/iframe?id=youtube-video-mhQh3IfXac0&amp;start=0" data-chomp-id="mhQh3IfXac0" data-recommend-id="youtube://mhQh3IfXac0" id="youtube-mhQh3IfXac0" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="mhQh3IfXac0" data-recommend-id="youtube://mhQh3IfXac0" id="youtube-mhQh3IfXac0" data-recommended="false" class="js_recommend"/></span></div> </body> </html></iframe>
+ [https://jalopnik.com/embed/inset/iframe?id=youtube-video-mhQh3IfXac0&start=0](https://jalopnik.com/embed/inset/iframe?id=youtube-video-mhQh3IfXac0&start=0)

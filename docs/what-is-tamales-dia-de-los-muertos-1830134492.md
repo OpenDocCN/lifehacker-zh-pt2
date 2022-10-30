@@ -1,10 +1,10 @@
 # 玉米粉蒸肉是一年中其他 364 天的美食
 
-> 原文：<https://thetakeout.com/what-is-tamales-dia-de-los-muertos-1830134492>
+> 原文:[https://thetakeout . com/what-is-tamales-dia-de-los-Muertos-1830134492](https://thetakeout.com/what-is-tamales-dia-de-los-muertos-1830134492)
 
 墨西哥人喜欢美食，我们当然也喜欢吃——幸运的是，这两者从不相互排斥。Día De Los Muertos(亡灵节)就是这样一个充满食物的墨西哥节日，经历了它的变化；以前在夏季开始时举行的庆祝活动现在是在秋季为期三天的活动。它从一个外国节日变成了奥斯卡获奖皮克斯电影 的中心主题——一旦某事与迪士尼相提并论，它就正式成为一个主流节日。
 
-
+Watch
 
 不管 Día De Los Muertos 经历了日期和受欢迎程度的变化，一个共同的线索仍然存在:食物。墨西哥纪念死亡节的一部分是由活着的家庭成员建立的色彩鲜艳、装饰华丽的祭坛，作为对死者灵魂的祭品。人们相信，在这个节日里，我们所爱的人的灵魂会回家一段时间。这些圣坛的中心是一张圣坛所供奉的人的照片，周围是各种礼物、水果、蜡烛以及给孩子们灵魂的糖果和给成年人灵魂的龙舌兰酒。(这些灵魂是饥饿的，我怀疑来世还有米其林评级的餐厅，所以自制食物是另一个重要的祭坛成分。)在最常见的食物中，玉米粉蒸肉是最受欢迎的:甜的玉米粉蒸肉适合儿童，辣的适合成年人。
 
@@ -24,4 +24,10 @@
 
 在目前的形式下，芝加哥玉米卷仍然是它自己独特的变体。与其他玉米粉蒸肉不同，芝加哥玉米粉蒸肉是用纸包着的，除了庆祝凌晨 3 点醉醺醺地离开酒吧之外，不会留到特殊场合
 
-<iframe data-src="https://thetakeout.com/embed/inset/iframe?id=youtube-video-TOXXh24HnmY&amp;start=0" data-chomp-id="TOXXh24HnmY" data-recommend-id="youtube://TOXXh24HnmY" id="youtube-TOXXh24HnmY" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="TOXXh24HnmY" data-recommend-id="youtube://TOXXh24HnmY" id="youtube-TOXXh24HnmY" data-recommended="false" class="js_recommend"/></span></div><h2 class="sc-1bwb26k-1 kpbNNd" id="h297415"><strong>关于馅料，宝贝</strong></h2><p class="sc-77igqf-0 bOfvBY">玉米粉蒸肉的配料和馅料无穷无尽；对于厨师和家庭厨师来说，它们真的是一块空白的画布。你会在玉米粉蒸肉中发现一些常见的配料是鸡丝、猪肉、奶酪和豆类，但也有甜的玉米粉蒸肉作为甜点。古代的阿兹特克人，似乎从一些史前时尚食谱中吸取了一页，用火烈鸟、蝾螈和青蛙来填充他们的玉米粉蒸肉。你现在有了像克劳迪娅·桑多瓦尔 一样的创造性思维，用玉米真菌(huitlacoche)作为配料制作美味的玉米粉蒸肉食谱。谢天谢地，没有规则。</p><p class="sc-77igqf-0 bOfvBY">无论你喜欢什么口味，总有一款玉米粉蒸肉适合你。如果你在寻找纯素食玉米粉蒸肉，来我们家过圣诞节时尝尝我姐姐做的那一批(只要确保你带了一些啤酒来分享)。如果是凌晨 2 点，你已经吃了太多的冷火腿，你发现自己在芝加哥，寻找克劳迪奥塔梅尔家伙有效地在酒吧吊他的货物；他每天都做玉米粉蒸肉，而且总是热乎乎的，随时可以吃。关键是走出去，用最简单的方法了解玉米粉蒸肉——通过吃它们。</p> </body> </html></iframe>
+ [https://thetakeout.com/embed/inset/iframe?id=youtube-video-TOXXh24HnmY&start=0](https://thetakeout.com/embed/inset/iframe?id=youtube-video-TOXXh24HnmY&start=0) 
+
+## **关于馅料，宝贝**
+
+玉米粉蒸肉的配料和馅料无穷无尽；对于厨师和家庭厨师来说，它们真的是一块空白的画布。你会在玉米粉蒸肉中发现一些常见的配料是鸡丝、猪肉、奶酪和豆类，但也有甜的玉米粉蒸肉作为甜点。古代的阿兹特克人，似乎从一些史前时尚食谱中吸取了一页，用火烈鸟、蝾螈和青蛙来填充他们的玉米粉蒸肉。你现在有了像克劳迪娅·桑多瓦尔 一样的创造性思维，用玉米真菌(huitlacoche)作为配料制作美味的玉米粉蒸肉食谱。谢天谢地，没有规则。
+
+无论你喜欢什么口味，总有一款玉米粉蒸肉适合你。如果你在寻找纯素食玉米粉蒸肉，来我们家过圣诞节时尝尝我姐姐做的那一批(只要确保你带了一些啤酒来分享)。如果是凌晨 2 点，你已经吃了太多的冷火腿，你发现自己在芝加哥，寻找克劳迪奥塔梅尔家伙有效地在酒吧吊他的货物；他每天都做玉米粉蒸肉，而且总是热乎乎的，随时可以吃。关键是走出去，用最简单的方法了解玉米粉蒸肉——通过吃它们。

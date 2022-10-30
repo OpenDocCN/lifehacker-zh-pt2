@@ -1,10 +1,10 @@
 # 入睡的最佳播客
 
-> 原文：<https://lifehacker.com/the-best-podcasts-for-falling-asleep-1830255561>
+> 原文:[https://life hacker . com/the-best-podcast-for-入睡-1830255561](https://lifehacker.com/the-best-podcasts-for-falling-asleep-1830255561)
 
 现在地球上每个人都有一个播客，你可以为任何主题或需求找到一个——事实上你可以从整个名单中挑选你最喜欢的。比如说你需要一个足够有趣的播客来阻止你的大脑陷入深夜焦虑；安静到足以让你在床上平静；无聊到你不会再熬夜等一个小时。我们查看了一些最受推荐的入睡播客，选择了最好的，并添加了几个我们自己最喜欢的。我们也
 
-
+Watch
 
 ## 挑选你的播客
 
@@ -64,4 +64,6 @@
 
 ***如果你能估计多快能入睡——这可能需要一些尝试和错误——那么使用你的播客应用程序的睡眠定时器来自动关闭。睡眠计时器通常位于带有时钟图标的按钮下方。以下是如何在 Apple Podcasts 上激活它:***
 
-***<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-989595022399037440&amp;autosize=1" autoresize="true" id="twitter-989595022399037440" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">如果一集不适合你，跳到下一集。一个好的睡前播客不会要求你跟踪一个正在进行的故事线。它足够宽容，你可以随时进出。现在睡个好觉，愿你梦见伊拉·格拉斯。</p> </body> </html></iframe>***
+ ***[https://lifehacker.com/embed/inset/iframe?id=twitter-989595022399037440&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-989595022399037440&autosize=1)*** 
+
+***如果一集不适合你，跳到下一集。一个好的睡前播客不会要求你跟踪一个正在进行的故事线。它足够宽容，你可以随时进出。现在睡个好觉，愿你梦见伊拉·格拉斯。***

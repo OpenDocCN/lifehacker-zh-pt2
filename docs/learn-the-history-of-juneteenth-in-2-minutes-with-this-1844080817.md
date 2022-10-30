@@ -1,11 +1,23 @@
 # 观看此视频，在两分钟内了解 Juneteenth 的历史
 
-> 原文：<https://lifehacker.com/learn-the-history-of-juneteenth-in-2-minutes-with-this-1844080817>
+> 原文:[https://life hacker . com/learn-the-history-of-June tenth-with-this-1844080817](https://lifehacker.com/learn-the-history-of-juneteenth-in-2-minutes-with-this-1844080817)
 
 虽然六月十日在今年的公众意识中非常突出，但它并不是一个新概念。这一天是为了纪念 T2 内战的结束和南方联盟中被奴役的 T4 黑人的解放，这一天已经庆祝了好几代。六月十一日也不是假日，而是美国的节日。越来越多的公司现在承认 6 月 14 日为法定假日，并给员工放假一天。将它宣布为联邦法定假日的努力也在进行中。
 
-
+Watch
 
 ### 那么，什么是六月十五日？
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-YDpNoHD0dQE&amp;start=0" data-chomp-id="YDpNoHD0dQE" data-recommend-id="youtube://YDpNoHD0dQE" id="youtube-YDpNoHD0dQE" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="YDpNoHD0dQE" data-recommend-id="youtube://YDpNoHD0dQE" id="youtube-YDpNoHD0dQE" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">上面的视频用两分钟的时间给你介绍一下<!-- --> Juneteeth 的简史。但简而言之，这一天是为了纪念 1865 年 6 月 19 日(T2)发生的事件(T3)，少将·戈登·格兰杰<!-- -->领导的联邦士兵通知德克萨斯加尔维斯顿被奴役的黑人，他们获得了自由。尽管今天是我们庆祝的日子，但重要的是要注意，被奴役的穷人已经通过亚伯拉罕·林肯于两年半前的 1863 年 1 月 1 日签署的《解放宣言》获得了自由。</p><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><p class="sc-77igqf-0 bOfvBY">《解放奴隶宣言》并没有禁止所有州的奴隶制，只是禁止南部邦联的奴隶制。美国的一些联邦州——如肯塔基和特拉华等 T2——直到那年的 12 月份仍有合法的奴隶制。同样，<!-- -->美国<!-- --><!-- -->宪法<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.history.com/this-day-in-history/13th-amendment-ratified&quot;,{&quot;metric25&quot;:1}]]" href="https://www.history.com/this-day-in-history/13th-amendment-ratified" target="_blank" rel="noopener noreferrer">第十三修正案</a> </span>仍然没有完全<!-- -->废除奴隶制，<!-- -->因为它仍然<!-- -->允许作为一种犯罪的惩罚。</p><p class="sc-77igqf-0 bOfvBY">少将·戈登·格兰杰在 1865 年的那一天<!-- -->大声念出的<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.juneteenth.com/general_order_no_3.htm&quot;,{&quot;metric25&quot;:1}]]" href="http://www.juneteenth.com/general_order_no_3.htm" target="_blank" rel="noopener noreferrer">将军令第 3 号</a> </span>上写着:</p><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">“德克萨斯人民被告知，根据美国政府的公告，所有的奴隶都是自由的。这涉及到以前的主人和奴隶之间的权利和财产权的绝对平等，他们之间迄今存在的关系变成了雇主和雇佣劳动者之间的关系。”</p></blockquote><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">六月十五日成了一个欢庆的日子，也是一个将 T2 和 T4 人被奴役的历史联系起来的日子，这些人是幸存者和幸存者。到了<!-- -->日，食物、乐趣和时尚都融入了六月十五日的庆祝活动中，因为<!-- -->奴隶总是被给予最糟糕的<!-- -->残羹剩饭，没有多少庆祝的时间<!-- -->并且被禁止穿着特定的服装和以特定的方式穿着。</p><p class="sc-77igqf-0 bOfvBY">不管六月十五日是你日历上的一个熟悉的固定时间，还是这是你第一次真正意识到它的存在，一定要让自己了解它背后的意义。这不应该被看作是又一天的休假。<!-- -->T3】</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-YDpNoHD0dQE&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-YDpNoHD0dQE&start=0) 
+
+上面的视频用两分钟的时间给你介绍一下 Juneteeth 的简史。但简而言之，这一天是为了纪念 1865 年 6 月 19 日(T2)发生的事件(T3)，少将·戈登·格兰杰领导的联邦士兵通知德克萨斯加尔维斯顿被奴役的黑人，他们获得了自由。尽管今天是我们庆祝的日子，但重要的是要注意，被奴役的穷人已经通过亚伯拉罕·林肯于两年半前的 1863 年 1 月 1 日签署的《解放宣言》获得了自由。
+
+《解放奴隶宣言》并没有禁止所有州的奴隶制，只是禁止南部邦联的奴隶制。美国的一些联邦州——如肯塔基和特拉华等 T2——直到那年的 12 月份仍有合法的奴隶制。同样，美国宪法 [第十三修正案](https://www.history.com/this-day-in-history/13th-amendment-ratified) 仍然没有完全废除奴隶制，因为它仍然允许作为一种犯罪的惩罚。
+
+少将·戈登·格兰杰在 1865 年的那一天大声念出的 [将军令第 3 号](http://www.juneteenth.com/general_order_no_3.htm) 上写着:
+
+> “德克萨斯人民被告知，根据美国政府的公告，所有的奴隶都是自由的。这涉及到以前的主人和奴隶之间的权利和财产权的绝对平等，他们之间迄今存在的关系变成了雇主和雇佣劳动者之间的关系。”
+
+六月十五日成了一个欢庆的日子，也是一个将 T2 和 T4 人被奴役的历史联系起来的日子，这些人是幸存者和幸存者。到了日，食物、乐趣和时尚都融入了六月十五日的庆祝活动中，因为奴隶总是被给予最糟糕的残羹剩饭，没有多少庆祝的时间并且被禁止穿着特定的服装和以特定的方式穿着。
+
+不管六月十五日是你日历上的一个熟悉的固定时间，还是这是你第一次真正意识到它的存在，一定要让自己了解它背后的意义。这不应该被看作是又一天的休假。T3】

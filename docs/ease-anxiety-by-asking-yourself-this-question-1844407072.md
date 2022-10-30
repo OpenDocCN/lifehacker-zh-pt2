@@ -1,11 +1,37 @@
 # 通过问自己这个问题来缓解焦虑
 
-> 原文：<https://lifehacker.com/ease-anxiety-by-asking-yourself-this-question-1844407072>
+> 原文:[https://life hacker . com/ease-anxiety-by-question-yourself-this-question-1844407072](https://lifehacker.com/ease-anxiety-by-asking-yourself-this-question-1844407072)
 
 克服焦虑没有捷径。任何在焦虑中挣扎的人都知道这一点。许多人，即使在最好的时候，也会对每天的情况感到强烈或过度的担忧。我也不会把 2020 年归为“最好的时代”
 
-
+Watch
 
 但是偶尔有人会想出一个简单实用的方法来重新构建持久的——而且常常是毫无根据的——焦虑的想法。对我来说，这一周，来自 [推特](https://twitter.com/Nabela/status/1282915155962146817) :
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1282915155962146817&amp;autosize=1" autoresize="true" id="twitter-1282915155962146817" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY"><br/> <em>想了解更多关于焦虑或恐慌发作的信息，请看下面的视频:</em></p><div class="sc-1jaa1bu-0 ifBgoa align--bleed" id="185125"><div class="sc-1wkneyl-0 hxLRyg video-html5-playlist" data-playlist="185125" data-current="185125"><div class="video-html5-loaded"><div class="video-html5-player"><div class="lhhce6-0 bVyOPq video-html5 " data-video-id="185125" data-position="kinjavideo" data-video-title="How to Get Through a Panic Attack" data-video-network="lifehacker" data-video-duration="237"></div></div></div></div></div><p class="sc-77igqf-0 bOfvBY">我越想这个问题——谁告诉你的？——我能想到的运用它的情况越多，从大的焦虑到小的焦虑。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">我的老板认为我在那个项目上做得很糟糕。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">谁告诉你的？</p><p class="sc-77igqf-0 bOfvBY">我最好的朋友一周没给我打电话了；她生我的气。</p><p class="sc-77igqf-0 bOfvBY">谁告诉你的？</p><p class="sc-77igqf-0 bOfvBY">我是个糟糕的父母/兄弟姐妹/伴侣/朋友。</p><p class="sc-77igqf-0 bOfvBY">谁告诉你的？</p><p class="sc-77igqf-0 bOfvBY">我不够强大，不够优秀，不够有天赋，不够有经验。</p><p class="sc-77igqf-0 bOfvBY">谁告诉你的？ <br/></p><p class="sc-77igqf-0 bOfvBY">问自己信息的来源迫使你对自己的焦虑做一些内部事实检查。它会提示你评估你是如何得出某个结论的，以及你是否反应过度或过早下结论。</p><p class="sc-77igqf-0 bOfvBY">是的，也许你的老板通常会告诉你在一个长期项目结束时你是如何做得很好的，但这次，他们没有。有许多潜在的原因是<em>而不是</em>关于你如何做得很糟糕——他们很忙，他们分心，他们认为你知道你做得很好，因为你总是做得很好！</p><p class="sc-77igqf-0 bOfvBY">要求自己支持自己的结论是评估你的恐惧是否有事实根据的一种方法，或者你是否可能会比实际情况看得更远。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1282915155962146817&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1282915155962146817&autosize=1) 
+
+*想了解更多关于焦虑或恐慌发作的信息，请看下面的视频:*
+
+我越想这个问题——谁告诉你的？——我能想到的运用它的情况越多，从大的焦虑到小的焦虑。
+
+我的老板认为我在那个项目上做得很糟糕。
+
+谁告诉你的？
+
+我最好的朋友一周没给我打电话了；她生我的气。
+
+谁告诉你的？
+
+我是个糟糕的父母/兄弟姐妹/伴侣/朋友。
+
+谁告诉你的？
+
+我不够强大，不够优秀，不够有天赋，不够有经验。
+
+谁告诉你的？
+
+问自己信息的来源迫使你对自己的焦虑做一些内部事实检查。它会提示你评估你是如何得出某个结论的，以及你是否反应过度或过早下结论。
+
+是的，也许你的老板通常会告诉你在一个长期项目结束时你是如何做得很好的，但这次，他们没有。有许多潜在的原因是*而不是*关于你如何做得很糟糕——他们很忙，他们分心，他们认为你知道你做得很好，因为你总是做得很好！
+
+要求自己支持自己的结论是评估你的恐惧是否有事实根据的一种方法，或者你是否可能会比实际情况看得更远。

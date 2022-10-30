@@ -1,13 +1,49 @@
 # 如何跑一个轻松的蛋糕
 
-> 原文：<https://thetakeout.com/how-to-run-a-cakewalk-that-takes-the-cake-1831067433>
+> 原文:[https://the take out . com/how-to-run-a-cakewalk-the-take-the-cake-the-cake-1831067433](https://thetakeout.com/how-to-run-a-cakewalk-that-takes-the-cake-1831067433)
 
 如果你不确定 cakewalk 是什么，你并不孤单:我曾经坐在一个社区委员会里，想把节日聚会的活动包括在内，但是我不得不查阅维基百科来弄清楚 cakewalk 到底需要什么。我一点也不知道，几年后，我自己将在我孩子的学校里跑着 cakewalk。
 
-
+Watch
 
 基本上，cakewalk 就是有蛋糕的音乐椅。数字放在地板上，播放音乐。音乐停止。号码已经选好了。如果你和那个数字站在同一个地方，那么你可以从一堆慷慨捐赠的蛋糕中挑选一个蛋糕。你会得到一个蛋糕！*你会得到一个蛋糕！*cakewalk 实际上有相当长的历史， [根据 NPR](https://www.npr.org/sections/codeswitch/2013/12/23/256566647/the-extraordinary-story-of-why-a-cakewalk-wasnt-always-easy) 的说法:它源于内战前的一种仪式，由非裔美国人在种植园举行，他们取笑种植园主的花哨散步。这就是短语“拿走蛋糕”的来源，同样，很明显，“这是一件轻而易举的事情”，表示通过做一些简单的事情赢得奖励，比如踩在一个有数字的正方形上。
 
 我不能因为建立了这个有趣的学校活动而居功；我们附近的一个有趣的家庭已经开始这样做了，他们志趣相投，精通音乐，是我们家年度卡拉 ok 聚会的共同主持人。他们是真正将 cakewalk 放在地图上的人，现在已经连续八年了。因此，当他们今年不得不出城参加工艺品交易会时，我们的名字被替换掉了。坦率地说，我认为这只是因为他们知道我们有必要的音频设备。
 
-<iframe data-src="https://thetakeout.com/embed/inset/iframe?id=youtube-video-D4xr6VD56-U&amp;start=0" data-chomp-id="D4xr6VD56-U" data-recommend-id="youtube://D4xr6VD56-U" id="youtube-D4xr6VD56-U" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="D4xr6VD56-U" data-recommend-id="youtube://D4xr6VD56-U" id="youtube-D4xr6VD56-U" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">尽管如此，<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 iUaVFb js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://thetakeout.com/how-to-conquer-shortbread-the-temperamental-monster-of-1821860450&quot;,{&quot;metric25&quot;:1}]]" href="https://thetakeout.com/how-to-conquer-shortbread-the-temperamental-monster-of-1821860450">我不是一个伟大的面包师</a></span><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 iUaVFb js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://thetakeout.com/my-husband-makes-christmas-delicious-but-complicated-1831023628&quot;,{&quot;metric25&quot;:1}]]" href="https://thetakeout.com/my-husband-makes-christmas-delicious-but-complicated-1831023628">我的丈夫布莱恩</a> </span>和我本人都不以我们对孩子惊人的耐心而闻名(问问我们的孩子就知道了)。我们那位极其慷慨、组织良好的朋友带着所有的工具——层压楼层号、设置地图、钱箱——过来进行 cakewalk 训练。像“这应该很容易；毕竟是小菜一碟！”被抛来抛去几次，以示适度的欢闹。</p><p class="sc-77igqf-0 bOfvBY">现在，我已经是层压数字两边的老手了，我发现这个有趣的社区活动提供了一些宝贵的人生经验。此外，运行 cakewalk 肯定有正确的方法和错误的方法。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809776ScriptRootC1321855"/><div class="mgidMidMobile" id="M809776ScriptRootC1321857"/></div><hr class="gcp5ez-1 ervlSQ"/><h2 class="sc-1bwb26k-1 kpbNNd" id="h290942">1.你得把你的蛋糕炫耀一下</h2><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">第一年我带了一个蛋糕去 cakewalk，那是一个非常美味的苹果蛋糕，我在那个季节非常喜欢。不幸的是，它坐在蛋糕长凳上，像舞会上的壁花一样痛苦地无人爱。我没有意识到小孩子并不关心自制的苹果美味:他们关心的是尽可能多的可见巧克力的华而不实、五颜六色的糖霜。最终，我的苹果蛋糕被当地学校理事会的主席选中，他后来向我保证，苹果蛋糕确实很好吃。但是我再也没有犯那个错误了。第二年，我直接去了超市，买了我能找到的最闪亮的蛋糕:看起来像一个迷你热浴盆桶，除了木板是 Kit-Kats 和水是 M&amp;Ms</p><p class="sc-77igqf-0 bOfvBY">幸运的是，随着 cakewalk legacy 的发展，我们当地的许多家庭变得更有创造力。许多孩子在 cakewalk 之前的周五晚上愉快地烘烤他们自己的作品，上面点缀着一英寸厚的糖衣和节日棉花糖和糖果棒。我们今年的第一个赢家直接拿走了她自己带来的纸杯蛋糕，上面都有写着北极的拐杖糖路标。我真的不能责怪她。</p><p class="sc-77igqf-0 bOfvBY">这里的寓意是:闪光销售。如果你不想成为桌子上剩下的最后一块蛋糕，你就必须让事情变得更加精彩。</p><h2 class="sc-1bwb26k-1 kpbNNd" id="h290943">2.微调您的播放列表</h2><div class="ooo3c9-0 cmUFVa align--bleed has-video media-large video-embed embed-frame"><span class="flex-video widescreen"><iframe data-src="https://thetakeout.com/embed/inset/iframe?id=youtube-video-4m1EFMoRFvY&amp;start=0" data-chomp-id="4m1EFMoRFvY" data-recommend-id="youtube://4m1EFMoRFvY" id="youtube-4m1EFMoRFvY" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/><span data-chomp-id="4m1EFMoRFvY" data-recommend-id="youtube://4m1EFMoRFvY" id="youtube-4m1EFMoRFvY" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">考虑到我丈夫的音乐癖好，以及我们周围不仅有孩子，还有他们的父母、老师和学校管理人员，我恳求他尽量保持播放列表的整洁。几年前，在一次街区聚会上，我们得到了这一惨痛的教训，不小心播放了 DNCE 的《海边的蛋糕》 的非无线电友好版本，吓坏了的父母们目瞪口呆地看着。不管怎样，孩子们都要绕着蛋糕游行，但像碧昂斯的《单身女士》和布鲁诺·马斯唱的《上城的恐惧》这样的歌曲，受到父母和孩子们的喜爱，让事情变得更加愉快。人群很快就形成了，一直延伸到体育馆。显然<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 iUaVFb js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.youtube.com/watch?v=sRYNYb30nxU&quot;,{&quot;metric25&quot;:1}]]" href="https://www.youtube.com/watch?v=sRYNYb30nxU" target="_blank" rel="noopener noreferrer">“我相信一种叫做爱情的东西”</a> </span>被黑暗撑得比我预想的还要好。</p><p class="sc-77igqf-0 bOfvBY">当播放史奇雷克斯的歌曲时，我有一个心跳停止的时刻。“这首歌里不是有骂人的吗？”我问布莱恩。“就在尽头，”他向我保证道。我们和其他人一样热爱野兽男孩，但你必须小心学校活动中的亵渎行为。但在最后一轮，布莱恩继续演奏耶稣蜥蜴的《达力来了》，这首挽歌似乎反映了当时每个人都筋疲力尽了。</p><div class="ooo3c9-0 cmUFVa align--bleed has-video media-large video-embed embed-frame"><span class="flex-video widescreen"><iframe data-src="https://thetakeout.com/embed/inset/iframe?id=youtube-video-g0MgbQHh-Xg&amp;start=0" data-chomp-id="g0MgbQHh-Xg" data-recommend-id="youtube://g0MgbQHh-Xg" id="youtube-g0MgbQHh-Xg" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/><span data-chomp-id="g0MgbQHh-Xg" data-recommend-id="youtube://g0MgbQHh-Xg" id="youtube-g0MgbQHh-Xg" data-recommended="false" class="js_recommend"/></span></div><h2 class="sc-1bwb26k-1 kpbNNd" id="h290944">3.你可能要给精神奖励</h2><p class="sc-77igqf-0 bOfvBY">你可能会问，这是小菜一碟还是蛋糕舞会？实际上，两者都有。由于每个人的慷慨和聪明，我们有大约 56 个蛋糕可以分发。事实上，有太多的蛋糕，我们开始在特别的双蛋糕回合中给最好的 cakewalk 舞者颁发精神奖，因为害怕剩下的蛋糕(我拒绝带回家)。我儿子的一个朋友脚几乎不着地，马上就拿走了第一个精神奖。</p><p class="sc-77igqf-0 bOfvBY">精神奖励也可以让你玩一点碰运气的游戏。我们把数字折叠了又折叠，我们每次都有完全公正的人来挑选，然而，有一段时间，11 号空间一直保持着连胜。我不认为，在几十轮比赛中，我们会选第二名。同一个孩子赢了三次。命运的规则变化无常。</p><p class="sc-77igqf-0 bOfvBY">在我们的 cakewalk 培训中，我们的朋友提到，每年，他和他的妻子都不同意说出第五次尝试并且非常想要那个蛋糕的小孩的号码。他提出抗议，声称希望保持 cakewalk 的完整性完好无损。我完全明白他妻子的观点，但布莱恩坚定地同意我们朋友的观点。“哦，当然，”他宣称。“不会有那些废话，”他说，挥去了一个幼儿园小朋友的眼泪，他只是想要一个点缀着糖屑的明亮装饰的纸杯蛋糕。</p><p class="sc-77igqf-0 bOfvBY">精神奖是解决这个问题的一种方法。真的，如果有人愿意为一块蛋糕跳起舞来，我倾向于给他们。为了让那个哭闹的孩子得到她的蛋糕，你也可以编造一个类似“相亲奖”的头衔。但是，命运是一个残酷的情妇，也许 cakewalk 是孩子们学习这一严酷而宝贵的课程的好地方。你可以轻松地学到很多关于生活的东西。<br/></p><p class="sc-77igqf-0 bOfvBY">最后，我想我们跑了大约 40 轮 cakewalk，15 个人每轮支付 1 美元，赚了大约 600 美元。是的，它不会平衡地区预算或任何东西，但它给工艺博览会增加了一些节日的乐趣。把钱交给学校理事会司库，把叠好的数字打包后，我回家睡了一生中最大的一个午觉。不幸的是，我的儿子已经带着他的朋友和他们的获奖蛋糕来我们家了，所以我反而被玩激光游戏的嗜糖男孩们所困扰。尽管如此，当我给做了那个特别的巧克力蛋糕的小女孩看男孩们是如何破坏它的照片时，她还是很高兴……当然，这一切都是为了一个好的理由。</p> </body> </html></iframe>
+ [https://thetakeout.com/embed/inset/iframe?id=youtube-video-D4xr6VD56-U&start=0](https://thetakeout.com/embed/inset/iframe?id=youtube-video-D4xr6VD56-U&start=0) 
+
+尽管如此， [我不是一个伟大的面包师](https://thetakeout.com/how-to-conquer-shortbread-the-temperamental-monster-of-1821860450)[我的丈夫布莱恩](https://thetakeout.com/my-husband-makes-christmas-delicious-but-complicated-1831023628) 和我本人都不以我们对孩子惊人的耐心而闻名(问问我们的孩子就知道了)。我们那位极其慷慨、组织良好的朋友带着所有的工具——层压楼层号、设置地图、钱箱——过来进行 cakewalk 训练。像“这应该很容易；毕竟是小菜一碟！”被抛来抛去几次，以示适度的欢闹。
+
+现在，我已经是层压数字两边的老手了，我发现这个有趣的社区活动提供了一些宝贵的人生经验。此外，运行 cakewalk 肯定有正确的方法和错误的方法。
+
+* * *
+
+## 1.你得把你的蛋糕炫耀一下
+
+第一年我带了一个蛋糕去 cakewalk，那是一个非常美味的苹果蛋糕，我在那个季节非常喜欢。不幸的是，它坐在蛋糕长凳上，像舞会上的壁花一样痛苦地无人爱。我没有意识到小孩子并不关心自制的苹果美味:他们关心的是尽可能多的可见巧克力的华而不实、五颜六色的糖霜。最终，我的苹果蛋糕被当地学校理事会的主席选中，他后来向我保证，苹果蛋糕确实很好吃。但是我再也没有犯那个错误了。第二年，我直接去了超市，买了我能找到的最闪亮的蛋糕:看起来像一个迷你热浴盆桶，除了木板是 Kit-Kats 和水是 M&Ms
+
+幸运的是，随着 cakewalk legacy 的发展，我们当地的许多家庭变得更有创造力。许多孩子在 cakewalk 之前的周五晚上愉快地烘烤他们自己的作品，上面点缀着一英寸厚的糖衣和节日棉花糖和糖果棒。我们今年的第一个赢家直接拿走了她自己带来的纸杯蛋糕，上面都有写着北极的拐杖糖路标。我真的不能责怪她。
+
+这里的寓意是:闪光销售。如果你不想成为桌子上剩下的最后一块蛋糕，你就必须让事情变得更加精彩。
+
+## 2.微调您的播放列表
+
+ [https://thetakeout.com/embed/inset/iframe?id=youtube-video-4m1EFMoRFvY&start=0](https://thetakeout.com/embed/inset/iframe?id=youtube-video-4m1EFMoRFvY&start=0) 
+
+考虑到我丈夫的音乐癖好，以及我们周围不仅有孩子，还有他们的父母、老师和学校管理人员，我恳求他尽量保持播放列表的整洁。几年前，在一次街区聚会上，我们得到了这一惨痛的教训，不小心播放了 DNCE 的《海边的蛋糕》 的非无线电友好版本，吓坏了的父母们目瞪口呆地看着。不管怎样，孩子们都要绕着蛋糕游行，但像碧昂斯的《单身女士》和布鲁诺·马斯唱的《上城的恐惧》这样的歌曲，受到父母和孩子们的喜爱，让事情变得更加愉快。人群很快就形成了，一直延伸到体育馆。显然 [“我相信一种叫做爱情的东西”](https://www.youtube.com/watch?v=sRYNYb30nxU) 被黑暗撑得比我预想的还要好。
+
+当播放史奇雷克斯的歌曲时，我有一个心跳停止的时刻。“这首歌里不是有骂人的吗？”我问布莱恩。“就在尽头，”他向我保证道。我们和其他人一样热爱野兽男孩，但你必须小心学校活动中的亵渎行为。但在最后一轮，布莱恩继续演奏耶稣蜥蜴的《达力来了》，这首挽歌似乎反映了当时每个人都筋疲力尽了。
+
+ [https://thetakeout.com/embed/inset/iframe?id=youtube-video-g0MgbQHh-Xg&start=0](https://thetakeout.com/embed/inset/iframe?id=youtube-video-g0MgbQHh-Xg&start=0) 
+
+## 3.你可能要给精神奖励
+
+你可能会问，这是小菜一碟还是蛋糕舞会？实际上，两者都有。由于每个人的慷慨和聪明，我们有大约 56 个蛋糕可以分发。事实上，有太多的蛋糕，我们开始在特别的双蛋糕回合中给最好的 cakewalk 舞者颁发精神奖，因为害怕剩下的蛋糕(我拒绝带回家)。我儿子的一个朋友脚几乎不着地，马上就拿走了第一个精神奖。
+
+精神奖励也可以让你玩一点碰运气的游戏。我们把数字折叠了又折叠，我们每次都有完全公正的人来挑选，然而，有一段时间，11 号空间一直保持着连胜。我不认为，在几十轮比赛中，我们会选第二名。同一个孩子赢了三次。命运的规则变化无常。
+
+在我们的 cakewalk 培训中，我们的朋友提到，每年，他和他的妻子都不同意说出第五次尝试并且非常想要那个蛋糕的小孩的号码。他提出抗议，声称希望保持 cakewalk 的完整性完好无损。我完全明白他妻子的观点，但布莱恩坚定地同意我们朋友的观点。“哦，当然，”他宣称。“不会有那些废话，”他说，挥去了一个幼儿园小朋友的眼泪，他只是想要一个点缀着糖屑的明亮装饰的纸杯蛋糕。
+
+精神奖是解决这个问题的一种方法。真的，如果有人愿意为一块蛋糕跳起舞来，我倾向于给他们。为了让那个哭闹的孩子得到她的蛋糕，你也可以编造一个类似“相亲奖”的头衔。但是，命运是一个残酷的情妇，也许 cakewalk 是孩子们学习这一严酷而宝贵的课程的好地方。你可以轻松地学到很多关于生活的东西。
+
+最后，我想我们跑了大约 40 轮 cakewalk，15 个人每轮支付 1 美元，赚了大约 600 美元。是的，它不会平衡地区预算或任何东西，但它给工艺博览会增加了一些节日的乐趣。把钱交给学校理事会司库，把叠好的数字打包后，我回家睡了一生中最大的一个午觉。不幸的是，我的儿子已经带着他的朋友和他们的获奖蛋糕来我们家了，所以我反而被玩激光游戏的嗜糖男孩们所困扰。尽管如此，当我给做了那个特别的巧克力蛋糕的小女孩看男孩们是如何破坏它的照片时，她还是很高兴……当然，这一切都是为了一个好的理由。

@@ -1,11 +1,29 @@
 # 当你们距离很远时，如何分享一顿饭
 
-> 原文：<https://lifehacker.com/how-to-share-a-meal-when-youre-physically-distancing-1843394813>
+> 原文:[https://life hacker . com/how-to-share-a-meal-when-you-physical-distance-1843394813](https://lifehacker.com/how-to-share-a-meal-when-youre-physically-distancing-1843394813)
 
 看起来——至少在宾夕法尼亚州的部分地区——餐馆周日人满为患，顾客想要(期待？)他们通常为母亲节准备的特别庆祝餐。如此多的人涌入像红龙虾和橄榄园这样的地方，至少根据和 [推特](https://twitter.com/KevinHornePSU/status/1259594232844746756) 的说法，结果是排队的人特别多，脾气也特别暴躁。在这个节日里，人们应该更多地庆祝和尊重各地的母亲，而不是尽可能多的吃面包条。
 
-
+Watch
 
 虽然在疫情期间，直接从餐厅 (尤其是当地的企业)点餐是支持他们的好方法，但以早午餐和晚餐拥挤闻名的一天可能不是这么做的最佳时机。相反，我可以提供另一个建议吗？在一个随机的星期四支持你当地的生意。然而，在假日里，与附近的爱人一起进餐。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1259594232844746756&amp;autosize=1" autoresize="true" id="twitter-1259594232844746756" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">我们在复活节开始分享晚餐，这是我和丈夫一贯主持的一个节日。复活节那天，我们对整个疫情事件还相当陌生，我决心不要因为冠状病毒而牺牲我们的传统早午餐。我也不打算为我们做一份火腿、一个鸡蛋沙锅、甜面包、一份水果沙拉和一大罐桑格利亚汽酒。</p><p class="sc-77igqf-0 bOfvBY">所以我告诉我的亲家，我们会把他们的那一半装起来，放在那里。作为回报，我婆婆说她会做脆皮土豆，这是她每年为这顿饭做的贡献，我们可以在放下剩下的时候再去拿。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">我们采取了与订餐或路边取货时相同的预防措施:戴口罩、多洗手、不要近距离接触。他们住在离我们正好七分钟路程的地方，所以当我丈夫带着快递离开时，我发了短信。我婆婆把土豆放在前廊上。他放下我们的食物，拿起她的，然后我们就走了。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">我们没有在一起，但因为我们一起计划，同时吃，互相发短信说一切都很好，这有点像我们在一起的感觉。我们非常喜欢它，所以我们发誓要再做一次。几周后，我突然很想吃肉酱。不过，我的食谱做了一大罐酱，所以我通常只在有客人来的时候做。所以我打电话给我的岳母，问他们是否可以从我们手里拿走一半，她主动提出做自制的意大利面来搭配它(得分！).</p><p class="sc-77igqf-0 bOfvBY">她为五月节做了玉米卷饼、米饭和豆子，我儿子做了一份玉米片，我做了甜点。母亲节那天，我的岳父做了一些美味的鸡肉，我的丈夫做了一些同样美味的苹果香肠馅(加上一点蔬菜),我们再一次交换了位置。</p><p class="sc-77igqf-0 bOfvBY">最初，我们确实担心分享食物而不分享公司可能会有点悲伤。但是想到不能在<em>分享所有</em>的庆祝活动，我感到更加难过，现在联合用餐计划是我们真正喜欢的事情。</p><p class="sc-77igqf-0 bOfvBY">随着我们未来几周或几个月的持续社交距离，我们有足够的机会与家人、朋友或邻居交换膳食成分。即将到来的生日、毕业典礼、父亲节、夏季烧烤和随机的周日晚上，你可以和你爱的人一起享用一顿特殊的晚餐——以一种半字面半比喻的方式。</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><small> <em>遇见地球上最聪明的父母！加入我们的</em> </small> <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.facebook.com/groups/2018785615043946/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.facebook.com/groups/2018785615043946/" target="_blank" rel="noopener noreferrer"> <small> <em>育儿脸书群</em> </small> </a> </span> <small> <em>。</em>T15】</small></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1259594232844746756&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1259594232844746756&autosize=1) 
+
+我们在复活节开始分享晚餐，这是我和丈夫一贯主持的一个节日。复活节那天，我们对整个疫情事件还相当陌生，我决心不要因为冠状病毒而牺牲我们的传统早午餐。我也不打算为我们做一份火腿、一个鸡蛋沙锅、甜面包、一份水果沙拉和一大罐桑格利亚汽酒。
+
+所以我告诉我的亲家，我们会把他们的那一半装起来，放在那里。作为回报，我婆婆说她会做脆皮土豆，这是她每年为这顿饭做的贡献，我们可以在放下剩下的时候再去拿。
+
+我们采取了与订餐或路边取货时相同的预防措施:戴口罩、多洗手、不要近距离接触。他们住在离我们正好七分钟路程的地方，所以当我丈夫带着快递离开时，我发了短信。我婆婆把土豆放在前廊上。他放下我们的食物，拿起她的，然后我们就走了。
+
+我们没有在一起，但因为我们一起计划，同时吃，互相发短信说一切都很好，这有点像我们在一起的感觉。我们非常喜欢它，所以我们发誓要再做一次。几周后，我突然很想吃肉酱。不过，我的食谱做了一大罐酱，所以我通常只在有客人来的时候做。所以我打电话给我的岳母，问他们是否可以从我们手里拿走一半，她主动提出做自制的意大利面来搭配它(得分！).
+
+她为五月节做了玉米卷饼、米饭和豆子，我儿子做了一份玉米片，我做了甜点。母亲节那天，我的岳父做了一些美味的鸡肉，我的丈夫做了一些同样美味的苹果香肠馅(加上一点蔬菜),我们再一次交换了位置。
+
+最初，我们确实担心分享食物而不分享公司可能会有点悲伤。但是想到不能在*分享所有*的庆祝活动，我感到更加难过，现在联合用餐计划是我们真正喜欢的事情。
+
+随着我们未来几周或几个月的持续社交距离，我们有足够的机会与家人、朋友或邻居交换膳食成分。即将到来的生日、毕业典礼、父亲节、夏季烧烤和随机的周日晚上，你可以和你爱的人一起享用一顿特殊的晚餐——以一种半字面半比喻的方式。
+
+* * *
+
+<small>*遇见地球上最聪明的父母！加入我们的*</small> [<small>*育儿脸书群*</small>](https://www.facebook.com/groups/2018785615043946/) <small>*。*T15】</small>

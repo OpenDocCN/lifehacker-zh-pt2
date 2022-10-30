@@ -1,10 +1,10 @@
 # 如何在流沙中生存
 
-> 原文：<https://lifehacker.com/how-to-survive-quicksand-1833226335>
+> 原文:[https://lifehacker.com/how-to-survive-quicksand-1833226335](https://lifehacker.com/how-to-survive-quicksand-1833226335)
 
 作为一个孩子，我知道流沙的两件事:对于丛林中的卡通人物来说，这是一个的危险；在现实生活中，只有当你把它当成固体时，它才是粘性的。假装是水，你就能游出来。
 
-
+Watch
 
 但事情并不总是那么简单。最近，一名男子被困在犹他州锡安国家公园的流沙中长达 12 个小时 。他出不来，他的女朋友也出不来，第一个赶到的公园护林员也出不来，当护林员试图用绳子拉的时候，他说感觉他的腿要被扯断了。最终一队公园管理员把他救了出来。他被困的时候几乎一直在下雪，他需要接受 [低温](https://vitals.lifehacker.com/how-to-stay-safe-in-extreme-cold-1832163446) 治疗。
 
@@ -12,4 +12,30 @@
 
 流沙是固体颗粒(如沙子)和水的混合物。当你的脚踩下去的时候，你的重量会把水从颗粒之间挤出来。那会让你被困在几乎坚硬的泥土中。看看这个视频 ，主持人走上看起来像坚实的地面，然后下沉。几分钟后，他被一滩被置换的水包围了。此外，他比他预期的要困一些:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-7_wp2pqUVwQ&amp;start=74" data-chomp-id="7_wp2pqUVwQ" data-recommend-id="youtube://7_wp2pqUVwQ" id="youtube-7_wp2pqUVwQ" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="7_wp2pqUVwQ" data-recommend-id="youtube://7_wp2pqUVwQ" id="youtube-7_wp2pqUVwQ" data-recommended="false" class="js_recommend"/></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h290906">第一次被卡住时该怎么办</h3><p class="sc-77igqf-0 bOfvBY">你被卡住是因为你有很多重量(你的整个身体)压在一个小脚印(你的脚印)上。脱下背包或任何增加体重的装备，让自己变得更轻。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">如果你是水平的，就很难下沉，所以在你的腿被卡住之前，考虑试着躺在泥里。如果你有任何可以分散重量的东西，比如登山杖或任何形状像平板的东西，把它放在泥上，用它来支撑。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">最好试着向后出去，仰卧而不是俯卧，因为你不太可能把脸陷入泥中。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h290907">如何解救真正被困的人</h3><p class="sc-77igqf-0 bOfvBY">一旦你的腿卡住了，你就处于非常不利的地位。你的徒步伙伴不能仅仅用一根绳子把你拉出来，因为空气没有办法进入你用腿制造的空间。基本上，你创造了一个如此强大的真空，把你拉出来需要<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.livescience.com/9373-quicksand-myth-debunked-float-free.html&quot;,{&quot;metric25&quot;:1}]]" href="https://www.livescience.com/9373-quicksand-myth-debunked-float-free.html" target="_blank" rel="noopener noreferrer">同样的力量才能举起一个 ca </a> </span> r</p><p class="sc-77igqf-0 bOfvBY">在下面的视频中，一名海岸警卫队队员用木板围住一名被困人员，以便他们能够跪下工作。然后，他们将水灌入人周围的沙子中，并挖出沉淀物。</p><div class="ooo3c9-0 cmUFVa align--bleed has-video media-large video-embed embed-frame"><span class="flex-video widescreen"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-a2VJqud3Ls8&amp;start=0" data-chomp-id="a2VJqud3Ls8" data-recommend-id="youtube://a2VJqud3Ls8" id="youtube-a2VJqud3Ls8" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/><span data-chomp-id="a2VJqud3Ls8" data-recommend-id="youtube://a2VJqud3Ls8" id="youtube-a2VJqud3Ls8" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">在我们上面看到的视频中，主持人靠自己拯救了自己——勉强——通过用他的腿做一些小动作，让水沉淀到他下面的空间。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h290908">如何首先避免流沙</h3><p class="sc-77igqf-0 bOfvBY">不要小看流沙。人们通常不会被淹死，但你肯定会被困住，容易中暑、体温过低或其他危险的天气。</p><p class="sc-77igqf-0 bOfvBY">从了解流沙可能出现的地方开始，小心沼泽、滩涂和其他沼泽地区。地下冒出的水是一个明确的警告信号。如果你对地面的坚实程度有任何怀疑，就用棍子敲敲你面前的地面。流沙将会明显坍塌。</p><p class="sc-77igqf-0 bOfvBY">在这些地区，遵循基本的野外安全尤为重要:如果可能的话，带上电话或无线电，告诉别人你要去哪里，打算什么时候回来。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-7_wp2pqUVwQ&start=74](https://lifehacker.com/embed/inset/iframe?id=youtube-video-7_wp2pqUVwQ&start=74) 
+
+### 第一次被卡住时该怎么办
+
+你被卡住是因为你有很多重量(你的整个身体)压在一个小脚印(你的脚印)上。脱下背包或任何增加体重的装备，让自己变得更轻。
+
+如果你是水平的，就很难下沉，所以在你的腿被卡住之前，考虑试着躺在泥里。如果你有任何可以分散重量的东西，比如登山杖或任何形状像平板的东西，把它放在泥上，用它来支撑。
+
+最好试着向后出去，仰卧而不是俯卧，因为你不太可能把脸陷入泥中。
+
+### 如何解救真正被困的人
+
+一旦你的腿卡住了，你就处于非常不利的地位。你的徒步伙伴不能仅仅用一根绳子把你拉出来，因为空气没有办法进入你用腿制造的空间。基本上，你创造了一个如此强大的真空，把你拉出来需要 [同样的力量才能举起一个 ca](https://www.livescience.com/9373-quicksand-myth-debunked-float-free.html) r
+
+在下面的视频中，一名海岸警卫队队员用木板围住一名被困人员，以便他们能够跪下工作。然后，他们将水灌入人周围的沙子中，并挖出沉淀物。
+
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-a2VJqud3Ls8&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-a2VJqud3Ls8&start=0) 
+
+在我们上面看到的视频中，主持人靠自己拯救了自己——勉强——通过用他的腿做一些小动作，让水沉淀到他下面的空间。
+
+### 如何首先避免流沙
+
+不要小看流沙。人们通常不会被淹死，但你肯定会被困住，容易中暑、体温过低或其他危险的天气。
+
+从了解流沙可能出现的地方开始，小心沼泽、滩涂和其他沼泽地区。地下冒出的水是一个明确的警告信号。如果你对地面的坚实程度有任何怀疑，就用棍子敲敲你面前的地面。流沙将会明显坍塌。
+
+在这些地区，遵循基本的野外安全尤为重要:如果可能的话，带上电话或无线电，告诉别人你要去哪里，打算什么时候回来。

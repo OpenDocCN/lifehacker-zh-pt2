@@ -1,10 +1,10 @@
 # 罢工和抵制的区别
 
-> 原文：<https://lifehacker.com/the-difference-between-a-strike-and-a-boycott-1844868974>
+> 原文:[https://life hacker . com/the-difference-that-a-strike-and-a-cohibit-1844868974](https://lifehacker.com/the-difference-between-a-strike-and-a-boycott-1844868974)
 
 如果你关注体育(或者即使你不关注)，你可能会注意到，无论是 NBA 的还是[【WNBA】](https://jezebel.com/wnba-boycotts-games-to-protest-murder-of-jacob-blake-1844862265)都没有参加他们昨天预定要参加的比赛。它始于密尔沃基雄鹿队 [拒绝与奥兰多魔术队](https://www.theroot.com/milwaukee-bucks-wont-let-america-look-away-boycott-gam-1844858865) 进行他们预定的季后赛，并迅速发展到根本没有篮球比赛、 [以及一些棒球和足球比赛](https://www.washingtonpost.com/sports/2020/08/26/bucks-boycott-nba-playoff-game) 也没有进行。
 
-
+Watch
 
 没有比赛这一事实是不可否认的(也是前所未有的)，但是对于如何确切地称呼这种突然缺少运动的现象，似乎有很多困惑。“抵制”、“罢工”、“停工”和非常温和的“推迟”都被工人(即球员)、管理层和/或媒体用来描述所发生的事情，但这些词都有非常特定的含义和内涵，尤其是“抵制”和“罢工”。
 
@@ -16,4 +16,22 @@
 
 这些工人拒绝作为一个有组织的团体来抗议警察的暴行，并要求为雅各布·布雷克 讨回公道，这使得这成为一次罢工，而不是抵制。(球员没有告诉他们的球迷不要购买 NBA 的门票或商品，或者告诉其他公司不要与 NBA 做生意，这只是抵制可能看起来像的两个例子。)
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1298763459165904898&amp;autosize=1" autoresize="true" id="twitter-1298763459165904898" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">那么为什么詹姆斯和其他球员会称之为“抵制”呢？这可能与罢工的合法性有关。</p><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1298722302163423232&amp;autosize=1" autoresize="true" id="twitter-1298722302163423232" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><p class="sc-77igqf-0 bOfvBY">像许多集体谈判协议一样，NBA 有一个“不罢工，不停工”的条款，明确禁止这种事情。(如果你们中的任何人打算很快就一份新合同进行谈判，尽量不要把这一条款包括在内！)这使得这一行动成为“野猫罢工”，从技术上来说这是不合法的(可能会有非常严重的法律后果)，但它<em>是</em>极其恶劣的。据《洛杉矶时报》<a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.latimes.com/sports/story/2020-08-26/nba-players-boycott-why-thats-not-the-correct-term&quot;,{&quot;metric25&quot;:1}]]" href="https://www.latimes.com/sports/story/2020-08-26/nba-players-boycott-why-thats-not-the-correct-term" target="_blank" rel="noopener noreferrer">采访的两位劳动法专家称，罢工的野猫性质可能是我们看到球员公开使用“抵制”一词的原因:</a></p><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">“从纯粹的法律角度来看，我会把这些野猫罢工称为，”在罗耀拉法学院(Loyola Law School)教授体育法的副教授约瑟夫·隆戈(Joseph Longo)说。他也是一名律师和 MLB 球员经纪人。</p><p class="sc-77igqf-0 bOfvBY">...</p><p class="sc-77igqf-0 bOfvBY">“我认为这是停工的委婉说法，”南加州大学法律讲师、劳工和就业法律师托马斯·伦茨(Thomas Lenz)在谈到球员将延期比赛描述为抵制时说。“当员工决定停止服务时……从技术上讲，这是罢工活动。”</p></blockquote><p class="sc-77igqf-0 bOfvBY">NBA 会对这些球员采取法律行动吗？可能吧，如果他们想的话。(以我的经验来看，老板们不会在乎你如何给停工打上烙印；你可以称之为“抵制”或“奶酪之旅”，他们仍然会做出反应，好像你在罢工一样。)但是考虑到这些工人罢工的目的，对他们迅速采取法律行动看起来很糟糕。他们不是为自己争取更高的工资、医疗保健或更好的工作条件；他们为社会公正和改变而罢工，拒绝让世界上他们那个角落的事情继续下去，就像一切都是正常和没问题的一样。</p><p class="sc-77igqf-0 bOfvBY">尽管 NBA 昨晚发布了一份声明<span></span>宣布比赛“延期”并将“改期”，但感觉(至少对我来说)不像是 NBA 在做决定。这是集体行动。这是工人领导的。这是一次罢工。</p><p class="sc-77igqf-0 bOfvBY"><strong> 08/27/2020，美国东部时间下午 2:59:</strong><em>这个故事被更新，以包括一个抵制可能看起来像什么的例子。</em></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1298763459165904898&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1298763459165904898&autosize=1) 
+
+那么为什么詹姆斯和其他球员会称之为“抵制”呢？这可能与罢工的合法性有关。
+
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1298722302163423232&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1298722302163423232&autosize=1) 
+
+像许多集体谈判协议一样，NBA 有一个“不罢工，不停工”的条款，明确禁止这种事情。(如果你们中的任何人打算很快就一份新合同进行谈判，尽量不要把这一条款包括在内！)这使得这一行动成为“野猫罢工”，从技术上来说这是不合法的(可能会有非常严重的法律后果)，但它*是*极其恶劣的。据《洛杉矶时报》[采访的两位劳动法专家称，罢工的野猫性质可能是我们看到球员公开使用“抵制”一词的原因:](https://www.latimes.com/sports/story/2020-08-26/nba-players-boycott-why-thats-not-the-correct-term)
+
+> “从纯粹的法律角度来看，我会把这些野猫罢工称为，”在罗耀拉法学院(Loyola Law School)教授体育法的副教授约瑟夫·隆戈(Joseph Longo)说。他也是一名律师和 MLB 球员经纪人。
+> 
+> ...
+> 
+> “我认为这是停工的委婉说法，”南加州大学法律讲师、劳工和就业法律师托马斯·伦茨(Thomas Lenz)在谈到球员将延期比赛描述为抵制时说。“当员工决定停止服务时……从技术上讲，这是罢工活动。”
+
+NBA 会对这些球员采取法律行动吗？可能吧，如果他们想的话。(以我的经验来看，老板们不会在乎你如何给停工打上烙印；你可以称之为“抵制”或“奶酪之旅”，他们仍然会做出反应，好像你在罢工一样。)但是考虑到这些工人罢工的目的，对他们迅速采取法律行动看起来很糟糕。他们不是为自己争取更高的工资、医疗保健或更好的工作条件；他们为社会公正和改变而罢工，拒绝让世界上他们那个角落的事情继续下去，就像一切都是正常和没问题的一样。
+
+尽管 NBA 昨晚发布了一份声明宣布比赛“延期”并将“改期”，但感觉(至少对我来说)不像是 NBA 在做决定。这是集体行动。这是工人领导的。这是一次罢工。
+
+**08/27/2020，美国东部时间下午 2:59:***这个故事被更新，以包括一个抵制可能看起来像什么的例子。*

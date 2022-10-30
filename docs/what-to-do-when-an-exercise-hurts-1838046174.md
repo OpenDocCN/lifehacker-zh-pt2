@@ -1,7 +1,20 @@
 # 当运动疼痛时该怎么办
 
-> 原文：<https://lifehacker.com/what-to-do-when-an-exercise-hurts-1838046174>
+> 原文:[https://life hacker . com/1838046174](https://lifehacker.com/what-to-do-when-an-exercise-hurts-1838046174)
 
 休息不是一切。虽然你可能会忍不住在第一次疼痛时停止锻炼，但小伤通常可以在你坚持训练时痊愈。你也可以感到酸痛或受伤，但没有任何明显的伤害。那么，当你在健身时，有些东西开始疼了，你该怎么办呢？
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-mdwj5ORPmX0&amp;start=0" data-chomp-id="mdwj5ORPmX0" data-recommend-id="youtube://mdwj5ORPmX0" id="youtube-mdwj5ORPmX0" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="mdwj5ORPmX0" data-recommend-id="youtube://mdwj5ORPmX0" id="youtube-mdwj5ORPmX0" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">这段视频 总结了很多教练、医生和理疗师正在使用的方法。演讲者奥斯汀·巴拉基是一名医生和举重运动员，他写了很多关于训练期间的<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.barbellmedicine.com/blog/catastrophizing/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.barbellmedicine.com/blog/catastrophizing/" target="_blank" rel="noopener noreferrer">疼痛不是我们总是不得不害怕的</a> </span>的东西。他推荐了一个四步走的方法:</p><div class="bxm4mm-2 hKBnez"><div class="bxm4mm-1 goloRq instream-native-video instream-permalink instream-native-video--mobile"><div class="sc-1h0epat-0 lepUzz"><div class="sc-1h0epat-1 gRjwiT"><div class="sc-235a11-0 egwski">Watch</div></div><div class="sc-1wkneyl-0 hxLRyg video-html5-playlist" data-playlist="192590,192585,192428" data-current="192590"><div class="video-html5-loaded"><div class="video-html5-player"><div class="lhhce6-0 bVyOPq video-html5 autoplay muted mobile" data-video-id="192590" data-position="sidebar" data-video-title="How to Make a Quick and Easy Crumb Crust" data-video-network="lifehacker" data-video-duration="135"></div></div></div></div></div></div></div><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><ol data-type="List" data-style="Number" class="sc-1lmbno3-1 sizyJ"><li><strong>评估发生了什么</strong>，并确保没有严重伤害。(如果你是医生，这很容易；如果我们不确定，其余的人应该寻求专业帮助。)</li><li>降低你正在使用的重量，直到你找到一个你可以毫无痛苦地举起的重量。所以，如果你蹲 200 磅的时候膝盖疼，你仍然可以坚持蹲 100 磅。总比根本不蹲强！如果没有合适的重量，继续下一步。</li><li><strong>减少动作幅度</strong>避免引起疼痛的特定动作。所以如果你的膝盖在下蹲的最深处感到疼痛，你可以在身后放一个盒子，只蹲到你坐在盒子上。</li><li><strong>如果前面的步骤不足以减轻疼痛，考虑类似的练习</strong>。为了避免失去太多的训练进度，你需要选择与你最初尝试的尽可能相似的练习。</li></ol><p class="sc-77igqf-0 bOfvBY">当我感到某处明显不严重的疼痛时，我已经开始用这种方法了。当你从“当我做这个动作时会痛”到“哦，等等，如果我把杠铃拿掉一点点，我可以做得很好”，这是一种奇妙的感觉</p><p class="sc-77igqf-0 bOfvBY">虽然有些疼痛，但在下一次锻炼时，你可能会感觉焕然一新；其他时候，你可能会在康复期间面临几周甚至几个月的修改训练。如果你的疼痛持续，或者你出于任何原因对此感到担忧，一定要去检查一下。但是你可能会惊讶于你仍然能够做的事情。</p><div id="mgid-container" data-placement="4" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-mdwj5ORPmX0&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-mdwj5ORPmX0&start=0) 
+
+这段视频 总结了很多教练、医生和理疗师正在使用的方法。演讲者奥斯汀·巴拉基是一名医生和举重运动员，他写了很多关于训练期间的 [疼痛不是我们总是不得不害怕的](https://www.barbellmedicine.com/blog/catastrophizing/) 的东西。他推荐了一个四步走的方法:
+
+Watch
+
+1.  **评估发生了什么**，并确保没有严重伤害。(如果你是医生，这很容易；如果我们不确定，其余的人应该寻求专业帮助。)
+2.  降低你正在使用的重量，直到你找到一个你可以毫无痛苦地举起的重量。所以，如果你蹲 200 磅的时候膝盖疼，你仍然可以坚持蹲 100 磅。总比根本不蹲强！如果没有合适的重量，继续下一步。
+3.  **减少动作幅度**避免引起疼痛的特定动作。所以如果你的膝盖在下蹲的最深处感到疼痛，你可以在身后放一个盒子，只蹲到你坐在盒子上。
+4.  **如果前面的步骤不足以减轻疼痛，考虑类似的练习**。为了避免失去太多的训练进度，你需要选择与你最初尝试的尽可能相似的练习。
+
+当我感到某处明显不严重的疼痛时，我已经开始用这种方法了。当你从“当我做这个动作时会痛”到“哦，等等，如果我把杠铃拿掉一点点，我可以做得很好”，这是一种奇妙的感觉
+
+虽然有些疼痛，但在下一次锻炼时，你可能会感觉焕然一新；其他时候，你可能会在康复期间面临几周甚至几个月的修改训练。如果你的疼痛持续，或者你出于任何原因对此感到担忧，一定要去检查一下。但是你可能会惊讶于你仍然能够做的事情。

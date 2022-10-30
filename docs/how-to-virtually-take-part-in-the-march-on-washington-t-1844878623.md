@@ -1,10 +1,10 @@
 # 如何虚拟地参与今天的华盛顿游行
 
-> 原文：<https://lifehacker.com/how-to-virtually-take-part-in-the-march-on-washington-t-1844878623>
+> 原文:[https://life hacker . com/how-to-virtual-take-in-March-on-Washington-t-1844878623](https://lifehacker.com/how-to-virtually-take-part-in-the-march-on-washington-t-1844878623)
 
 57 年前的今天，小马丁·路德·金博士站在林肯纪念堂的台阶上发表了他那不朽的“我有一个梦想”的演讲，结束了“华盛顿争取工作和自由大游行”。今天下午，另一场针对华盛顿的游行将在同一地点举行——这一次的特点是一些被警察杀害或枪杀的美国黑人家庭成员。如果你不能去华盛顿特区参加这个活动，今天就来看看这个节目。
 
-
+Watch
 
 ### 游行将涉及什么？
 
@@ -29,4 +29,6 @@
 
 ### 如何观看承诺进行曲
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-XBj-n8_6XW4&amp;start=0" data-chomp-id="XBj-n8_6XW4" data-recommend-id="youtube://XBj-n8_6XW4" id="youtube-XBj-n8_6XW4" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="XBj-n8_6XW4" data-recommend-id="youtube://XBj-n8_6XW4" id="youtube-XBj-n8_6XW4" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">今天早上 7 点左右，参与者开始聚集在林肯纪念堂。主要赛事从美国东部时间上午 11 点持续到下午 3 点。你可以在 NAM 或<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://2020march.com/watch&quot;,{&quot;metric25&quot;:1}]]" href="https://2020march.com/watch" target="_blank" rel="noopener noreferrer"> 2020 年 3 月</a> </span>网站上<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://nationalactionnetwork.net/commitment-march-on-washington-dc&quot;,{&quot;metric25&quot;:1}]]" href="https://nationalactionnetwork.net/commitment-march-on-washington-dc" target="_blank" rel="noopener noreferrer">播放进行曲，或者通过上面嵌入的直播，由<span></span>提供。还可以从<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.youtube.com/watch?v=a9FwZJx7aq8&quot;,{&quot;metric25&quot;:1}]]" href="https://www.youtube.com/watch?v=a9FwZJx7aq8" target="_blank" rel="noopener noreferrer">《华盛顿邮报》</a> </span>和<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.cbsnews.com/live&quot;,{&quot;metric25&quot;:1}]]" href="https://www.cbsnews.com/live" target="_blank" rel="noopener noreferrer"> CBS 新闻</a> </span>获得信息流。这与亲临现场并不一样，但你也可以通过将直播分享到你的社交媒体个人资料来表达你的支持和声援——并邀请其他人也这样做。你还可以<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.cosmopolitan.com/politics/a33648884/how-to-help-fund-protestors-2020-march-on-washington/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.cosmopolitan.com/politics/a33648884/how-to-help-fund-protestors-2020-march-on-washington/" target="_blank" rel="noopener noreferrer">向支持</a> </span>游行的组织捐款，并筹集资金为与会者提供交通工具。</a></span></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-XBj-n8_6XW4&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-XBj-n8_6XW4&start=0) 
+
+今天早上 7 点左右，参与者开始聚集在林肯纪念堂。主要赛事从美国东部时间上午 11 点持续到下午 3 点。你可以在 NAM 或 [2020 年 3 月](https://2020march.com/watch) 网站上 [播放进行曲，或者通过上面嵌入的直播，由提供。还可以从](https://nationalactionnetwork.net/commitment-march-on-washington-dc) [《华盛顿邮报》](https://www.youtube.com/watch?v=a9FwZJx7aq8) 和 [CBS 新闻](https://www.cbsnews.com/live) 获得信息流。这与亲临现场并不一样，但你也可以通过将直播分享到你的社交媒体个人资料来表达你的支持和声援——并邀请其他人也这样做。你还可以 [向支持](https://www.cosmopolitan.com/politics/a33648884/how-to-help-fund-protestors-2020-march-on-washington/) 游行的组织捐款，并筹集资金为与会者提供交通工具。

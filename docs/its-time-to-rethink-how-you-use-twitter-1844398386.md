@@ -1,10 +1,10 @@
 # 是时候重新考虑你如何使用 Twitter 了
 
-> 原文：<https://lifehacker.com/its-time-to-rethink-how-you-use-twitter-1844398386>
+> 原文:[https://life hacker . com/its-time-to-rethink-how-you-use-Twitter-1844398386](https://lifehacker.com/its-time-to-rethink-how-you-use-twitter-1844398386)
 
 昨天，Twitter 的安全遭到巨大破坏，导致各种高调的账户——从比尔·盖茨到巴拉克·奥巴马，甚至是一直沉默的苹果——在 Twitter 上发布骗局，引诱人们向匿名比特币钱包汇款。对于我们一段时间以来看到的最大的社交媒体黑客攻击之一，你无能为力，但现在你可以采取*步骤来抵御未来的灾难。* 
 
-
+Watch
 
 嗯，除了 [停用你的推特账号](https://help.twitter.com/en/managing-your-account/trouble-deactivating-twitter-account) ，那就是。
 
@@ -36,4 +36,30 @@
 
 ### 按计划删除您的 DMs
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1283518615497711616&amp;autosize=1" autoresize="true" id="twitter-1283518615497711616" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">你可能没有在 Twitter 上公开发布很多谴责的内容，但谁知道你通过直接消息分享或发送了什么。如果有人染指了你的账户，你可能不想让他们看到你的直接信息。但是，如果你像我一样，你从来没有真正检查和整理过你的旧的私人谈话——当你可以什么都不做并且忘记它们的时候，为什么要麻烦呢？</p><p class="sc-77igqf-0 bOfvBY">为了安全起见，我建议定期删除您的 DMs。如果你知道你永远都不需要提及一段更老的对话，为什么要毫无理由地保留它呢？往坏里说这是安全隐患，往好里说是不方便。(尽管 Twitter <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://techcrunch.com/2019/02/15/twitter-direct-messages/&quot;,{&quot;metric25&quot;:1}]]" href="https://techcrunch.com/2019/02/15/twitter-direct-messages/" target="_blank" rel="noopener noreferrer">并没有真正消除它们</a> </span>，但至少进入你账户的人不会从它们包含的任何内容中受益。)</p><p class="sc-77igqf-0 bOfvBY">坏消息呢？我还没有找到一个伟大的工具，将做到这一点是免费的。<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.dmdestroyer.com/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.dmdestroyer.com/" target="_blank" rel="noopener noreferrer"> <strong> DM 毁灭者</strong> </a> </span>是一种选择，但它会让你花掉 5 美元——一杯咖啡，而且对那些不想付费管理内容的人也是一种威慑。我认为这是值得的，但这只是我的看法。</p><p class="sc-77igqf-0 bOfvBY">你也可以试试<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://martani.github.io/Twitter-Archive-Eraser/&quot;,{&quot;metric25&quot;:1}]]" href="https://martani.github.io/Twitter-Archive-Eraser/" target="_blank" rel="noopener noreferrer"> <strong> Twitter 存档橡皮擦</strong> </a> </span>，但不能保证它一定能删除你的直接消息(正如 app <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://martani.github.io/Twitter-Archive-Eraser/&quot;,{&quot;metric25&quot;:1}]]" href="https://martani.github.io/Twitter-Archive-Eraser/" target="_blank" rel="noopener noreferrer">对</a> </span>的描述)。有一个免费版本你可以尝试，但你仅限于过去六个月的内容——如果你想在不支付特权的情况下销毁一切，那就没用了。</p><p class="sc-77igqf-0 bOfvBY">总有人工方式，包括“留下”每一条直接信息(Twitter 版本的删除)。很乏味，但能保证你的安全。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h1246">就这样吗？</h3><div class="ooo3c9-0 cmUFVa embed-frame"><span class="twitter-embed"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1283591846464233474&amp;autosize=1" autoresize="true" id="twitter-1283591846464233474" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/></span></div><p class="sc-77igqf-0 bOfvBY">没错。在这种“黑客”的情况下，这实际上更像是一种社会工程和/或直接贿赂的壮举，你没有什么可以做的来保护你的帐户。伟大的密码？双因素认证？当有人获得了 Twitter 系统的超级用户权限时(或者这一次在技术层面上发生的任何事情)，它们没有多大用处。</p><p class="sc-77igqf-0 bOfvBY">我怀疑这种情况会在 Twitter 上再次发生吗？不完全是。Twitter 将对管理权限进行大规模审查，这肯定会包括对基于硬件的安全工具的再投资，人们需要在系统中实际存在这些工具，以便在 Twitter 的内部工具上运行任何主要操作。此外，准备好更多的审计。</p><p class="sc-77igqf-0 bOfvBY">如果 Twitter 为用户推出一个类似的安全设置，要求你在账户上做任何事情之前有一个物理设备，我会喜欢吗？当然，但同样，如果敌人来自内部，这并不重要。防止有人试图闯入你的帐户是一回事；当城堡的国王或王后在追杀你时，保护自己就困难多了。</p><p class="sc-77igqf-0 bOfvBY">所以我更喜欢我的方法。与其试图防范你无法真正减轻的攻击，不如简单地让你的账户缺乏有用的信息，以至于即使有人闯入也无法利用他们所拥有的信息。</p><p class="sc-77igqf-0 bOfvBY">如果有人闯入你的账户并发布垃圾信息，这也帮不了你。你能做的就是希望你的追随者足够聪明，能够意识到什么是你的，什么不是。</p><p class="sc-77igqf-0 bOfvBY">尽管如此，考虑到这次攻击<em>可能</em>有多严重，Twitter 不应该在这次攻击中获得免费通行证。(真奇怪，我们现在没有卷入第三次世界大战)。然而，你可以高枕无忧，因为你知道你已经无能为力了。只有你能决定这是不是最后一根稻草，或者你可以回去拿更多。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1283518615497711616&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1283518615497711616&autosize=1) 
+
+你可能没有在 Twitter 上公开发布很多谴责的内容，但谁知道你通过直接消息分享或发送了什么。如果有人染指了你的账户，你可能不想让他们看到你的直接信息。但是，如果你像我一样，你从来没有真正检查和整理过你的旧的私人谈话——当你可以什么都不做并且忘记它们的时候，为什么要麻烦呢？
+
+为了安全起见，我建议定期删除您的 DMs。如果你知道你永远都不需要提及一段更老的对话，为什么要毫无理由地保留它呢？往坏里说这是安全隐患，往好里说是不方便。(尽管 Twitter [并没有真正消除它们](https://techcrunch.com/2019/02/15/twitter-direct-messages/) ，但至少进入你账户的人不会从它们包含的任何内容中受益。)
+
+坏消息呢？我还没有找到一个伟大的工具，将做到这一点是免费的。 [**DM 毁灭者**](https://www.dmdestroyer.com/) 是一种选择，但它会让你花掉 5 美元——一杯咖啡，而且对那些不想付费管理内容的人也是一种威慑。我认为这是值得的，但这只是我的看法。
+
+你也可以试试 [**Twitter 存档橡皮擦**](https://martani.github.io/Twitter-Archive-Eraser/) ，但不能保证它一定能删除你的直接消息(正如 app [对](https://martani.github.io/Twitter-Archive-Eraser/) 的描述)。有一个免费版本你可以尝试，但你仅限于过去六个月的内容——如果你想在不支付特权的情况下销毁一切，那就没用了。
+
+总有人工方式，包括“留下”每一条直接信息(Twitter 版本的删除)。很乏味，但能保证你的安全。
+
+### 就这样吗？
+
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1283591846464233474&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1283591846464233474&autosize=1) 
+
+没错。在这种“黑客”的情况下，这实际上更像是一种社会工程和/或直接贿赂的壮举，你没有什么可以做的来保护你的帐户。伟大的密码？双因素认证？当有人获得了 Twitter 系统的超级用户权限时(或者这一次在技术层面上发生的任何事情)，它们没有多大用处。
+
+我怀疑这种情况会在 Twitter 上再次发生吗？不完全是。Twitter 将对管理权限进行大规模审查，这肯定会包括对基于硬件的安全工具的再投资，人们需要在系统中实际存在这些工具，以便在 Twitter 的内部工具上运行任何主要操作。此外，准备好更多的审计。
+
+如果 Twitter 为用户推出一个类似的安全设置，要求你在账户上做任何事情之前有一个物理设备，我会喜欢吗？当然，但同样，如果敌人来自内部，这并不重要。防止有人试图闯入你的帐户是一回事；当城堡的国王或王后在追杀你时，保护自己就困难多了。
+
+所以我更喜欢我的方法。与其试图防范你无法真正减轻的攻击，不如简单地让你的账户缺乏有用的信息，以至于即使有人闯入也无法利用他们所拥有的信息。
+
+如果有人闯入你的账户并发布垃圾信息，这也帮不了你。你能做的就是希望你的追随者足够聪明，能够意识到什么是你的，什么不是。
+
+尽管如此，考虑到这次攻击*可能*有多严重，Twitter 不应该在这次攻击中获得免费通行证。(真奇怪，我们现在没有卷入第三次世界大战)。然而，你可以高枕无忧，因为你知道你已经无能为力了。只有你能决定这是不是最后一根稻草，或者你可以回去拿更多。

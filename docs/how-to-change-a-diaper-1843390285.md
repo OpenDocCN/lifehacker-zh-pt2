@@ -1,10 +1,10 @@
 # 如何换尿布
 
-> 原文：<https://lifehacker.com/how-to-change-a-diaper-1843390285>
+> 原文:[https://lifehacker.com/how-to-change-a-diaper-1843390285](https://lifehacker.com/how-to-change-a-diaper-1843390285)
 
 当然，很多人在成长过程中会有更年轻的兄弟姐妹或表兄弟姐妹，或者他们十几岁时会照看孩子，或者他们的朋友有孩子，或者他们只是有孩子。对这些人来说，换尿布似乎是一件不需要动脑筋的事情。但也有像我和我丈夫这样的人，他们从来没有这样做过，而是给我们自己的新生儿换了第一片尿布。
 
-
+Watch
 
 这是一件令人伤脑筋的事情，作为一个新的父母，被期望有这种瞬间的母性或父性本能*以及*知道如何换尿布。这是一件事后看来非常明显，但一开始又非常令人困惑的事情。所以首先，我将*告诉*你如何换尿布。然后我会*告诉*你如何换尿布。然后你会*知道*如何换尿布。
 
@@ -28,4 +28,10 @@
 
 好了，现在我们来看看 [真正的换尿布](https://www.youtube.com/watch?time_continue=1&v=lKVOAp7SPhw&feature=emb_logo) 的动作，好吗？(这并不是对帮宝适品牌的特别认可，而是对他们换尿布技能的认可。)
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-lKVOAp7SPhw&amp;start=0" data-chomp-id="lKVOAp7SPhw" data-recommend-id="youtube://lKVOAp7SPhw" id="youtube-lKVOAp7SPhw" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="lKVOAp7SPhw" data-recommend-id="youtube://lKVOAp7SPhw" id="youtube-lKVOAp7SPhw" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">最后，对于一次性尿布，我总是喜欢将它们折叠起来，并紧紧地重新扣紧拉环(如视频所示)，以使脏尿布更加紧凑，不那么凌乱。对于布尿布，请参见<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://lifehacker.com/what-you-need-to-know-before-you-start-cloth-diapering-1841793159&quot;,{&quot;metric25&quot;:1}]]" href="https://lifehacker.com/what-you-need-to-know-before-you-start-cloth-diapering-1841793159">这份完整的指南</a> </span>了解清洁技巧。<br/></p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><small> <em>遇见地球上最聪明的父母！加入我们的</em> </small> <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.facebook.com/groups/2018785615043946/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.facebook.com/groups/2018785615043946/" target="_blank" rel="noopener noreferrer"> <small> <em>育儿脸书群</em> </small> </a> </span> <small> <em>。</em> </small> <br/></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-lKVOAp7SPhw&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-lKVOAp7SPhw&start=0) 
+
+最后，对于一次性尿布，我总是喜欢将它们折叠起来，并紧紧地重新扣紧拉环(如视频所示)，以使脏尿布更加紧凑，不那么凌乱。对于布尿布，请参见 [这份完整的指南](https://lifehacker.com/what-you-need-to-know-before-you-start-cloth-diapering-1841793159) 了解清洁技巧。
+
+* * *
+
+<small>*遇见地球上最聪明的父母！加入我们的*</small> [<small>*育儿脸书群*</small>](https://www.facebook.com/groups/2018785615043946/) <small>*。*</small>

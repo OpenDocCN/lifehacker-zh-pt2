@@ -1,13 +1,31 @@
 # 不要称之为“在家上学”
 
-> 原文：<https://lifehacker.com/dont-call-this-homeschooling-1842791078>
+> 原文:[https://life hacker . com/don-call-this-home schooling-1842791078](https://lifehacker.com/dont-call-this-homeschooling-1842791078)
 
 我的收件箱里收到了大量的电子邮件:公关人员向家长们提供来自家庭学校专家的评论或家庭学校课程，这些家长现在发现自己兼任全职教师，在我们生活的新的在线学习世界中导航。
 
-
+Watch
 
 我一直在考虑写一篇文章，概述一些好的资源，供你在疫情“在家教育”孩子时使用，但我一直犹豫不决。一方面，一些学校现在确实没有给家长太多指导，而我们中的一些人确实需要额外的帮助；另一方面，外面有一大堆父母已经*被*埋在工作压力、财务压力和家庭压力之下，哦，对了，中午有一个缩放教室会议，周一要交一包作业，他们不需要我在他们的盘子里放任何其他东西。
 
 关于这个话题的一些事情让人觉得很恶心。直到我看到这条推特，我才真正找到原因:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1247641420539838464&amp;autosize=1" autoresize="true" id="twitter-1247641420539838464" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">称之为“<span></span>”如果你喜欢或者，我不知道，“完全扯淡”如果你觉得残酷诚实。应该有一个术语来描述父母现在正在做的事情，但它不是“家庭学校”，就像现在正在发生的事情是<em>而不是</em>等同于常规的在线教育一样。</p><p class="sc-77igqf-0 bOfvBY">在家上学是一种有意的行为。这需要父母真正的承诺(他们通常不在外面工作)。有网上和当地的家庭学校社区和合作社，它们共享资源，相互支持，一起上课、实地考察或参加社会活动。是的，在家上学的孩子仍然<em>离开家</em>。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">回到 2012 年，当一切正常时，杰米·马丁为<span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.parents.com/kids/education/home-schooling/homeschooling-101-what-is-homeschooling/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.parents.com/kids/education/home-schooling/homeschooling-101-what-is-homeschooling/" target="_blank" rel="noopener noreferrer">【Parents.com】</a></span>写了一篇“在家上学 101”的文章，讨论成为在家上学父母的要求:<br/></p><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">畅销书<em> Teach Your Own </em>的作者【约翰】霍尔特认为，父母在家教育孩子最重要的事情是“喜欢他们的<em>，享受他们的陪伴、他们的身体存在、他们的能量、愚蠢和激情。他们必须享受他们所有的谈话和问题，同时享受回答这些问题的乐趣。”对于大多数在家上学的父母来说，唯一的先决条件是渴望这样做，以及对教育过程的奉献。</em></p></blockquote><p class="sc-77igqf-0 bOfvBY">你们都感受到那种渴望了吗？对教育过程的奉献是否深植于你的灵魂之中？</p><p class="sc-77igqf-0 bOfvBY">我的观点是，我们现在不需要给自己任何额外的压力。随着越来越多的州宣布学校确实将在本学年剩余时间内关闭，我们需要做一些事情来帮助我们的孩子继续学习，无论是通过我们各个学区组织的在线学习项目，还是通过我们自己的努力拼凑一些东西，无论是 T2 还是 T4。</p><p class="sc-77igqf-0 bOfvBY">但是我们永远也不会达到你脑海中的形象，一个有创造力又有条理的家庭教育妈妈，把学习用品整齐地放在五颜六色的箱子里，活页夹里装满了活动。这不一样。这是暂时的。这就是应急远程教学和应急远程学习。</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><small> <em>遇见地球上最聪明的父母！加入我们的</em> </small> <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.facebook.com/groups/2018785615043946/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.facebook.com/groups/2018785615043946/" target="_blank" rel="noopener noreferrer"> <small> <em>育儿脸书群</em> </small> </a> </span> <small> <em>。</em> </small> <br/></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1247641420539838464&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1247641420539838464&autosize=1) 
+
+称之为“”如果你喜欢或者，我不知道，“完全扯淡”如果你觉得残酷诚实。应该有一个术语来描述父母现在正在做的事情，但它不是“家庭学校”，就像现在正在发生的事情是*而不是*等同于常规的在线教育一样。
+
+在家上学是一种有意的行为。这需要父母真正的承诺(他们通常不在外面工作)。有网上和当地的家庭学校社区和合作社，它们共享资源，相互支持，一起上课、实地考察或参加社会活动。是的，在家上学的孩子仍然*离开家*。
+
+回到 2012 年，当一切正常时，杰米·马丁为[【Parents.com】](https://www.parents.com/kids/education/home-schooling/homeschooling-101-what-is-homeschooling/)写了一篇“在家上学 101”的文章，讨论成为在家上学父母的要求:
+
+> 畅销书 *Teach Your Own* 的作者【约翰】霍尔特认为，父母在家教育孩子最重要的事情是“喜欢他们的*，享受他们的陪伴、他们的身体存在、他们的能量、愚蠢和激情。他们必须享受他们所有的谈话和问题，同时享受回答这些问题的乐趣。”对于大多数在家上学的父母来说，唯一的先决条件是渴望这样做，以及对教育过程的奉献。*
+
+你们都感受到那种渴望了吗？对教育过程的奉献是否深植于你的灵魂之中？
+
+我的观点是，我们现在不需要给自己任何额外的压力。随着越来越多的州宣布学校确实将在本学年剩余时间内关闭，我们需要做一些事情来帮助我们的孩子继续学习，无论是通过我们各个学区组织的在线学习项目，还是通过我们自己的努力拼凑一些东西，无论是 T2 还是 T4。
+
+但是我们永远也不会达到你脑海中的形象，一个有创造力又有条理的家庭教育妈妈，把学习用品整齐地放在五颜六色的箱子里，活页夹里装满了活动。这不一样。这是暂时的。这就是应急远程教学和应急远程学习。
+
+* * *
+
+<small>*遇见地球上最聪明的父母！加入我们的*</small> [<small>*育儿脸书群*</small>](https://www.facebook.com/groups/2018785615043946/) <small>*。*</small>

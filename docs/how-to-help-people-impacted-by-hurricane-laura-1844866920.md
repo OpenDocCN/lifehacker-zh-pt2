@@ -1,12 +1,12 @@
 # 如何帮助受劳拉飓风影响的人们
 
-> 原文：<https://lifehacker.com/how-to-help-people-impacted-by-hurricane-laura-1844866920>
+> 原文:[https://life hacker . com/how-to-help-people-impact-by-hurricane-Laura-1844866920](https://lifehacker.com/how-to-help-people-impacted-by-hurricane-laura-1844866920)
 
 今天清晨，飓风劳拉在路易斯安那州卡梅伦附近登陆，袭击了该地区，风速高达每小时 150 英里。已经有一名确认死亡，路易斯安那州州长约翰·贝尔·爱德华兹说他预计接下来几天会有更多的报道。当路易斯安那州的[已经大面积受损时，劳拉继续向内陆](https://weather.com/storms/hurricane/news/2020-08-27-hurricane-laura-landfall-forecast-louisiana-inland-flooding-wind) 移动，破坏性的大风、孤立的龙卷风、风暴潮和内陆洪水都在预料之中。
 
 (如果你需要一些关于各种天气术语的澄清， [我们刚刚做了一个讲解器](https://lifehacker.com/what-to-know-about-storm-terminology-before-the-next-bi-1844737150?rev=1597806326363) 告诉你在这样的情况下需要知道什么。)
 
-
+Watch
 
 还有， [正如我们之前也讨论过的，](https://lifehacker.com/how-to-shelter-from-a-storm-during-a-pandemic-1844698438) 疫情期间发生的飓风(或任何自然灾害)会让本已困难的情况变得更加糟糕。M 任何无家可归、断电的人可能会从地区避难所寻求帮助，那里可能会很拥挤——这使他们成为传染病传播的理想场所(即使没有疫情也是如此)。
 
@@ -52,4 +52,6 @@
 
 像往常一样，红十字会在路易斯安那州和德克萨斯州提供援助。出于疫情/卫生原因，红十字会路易斯安那州和得克萨斯州海湾分支机构都要求捐款，而不是货物，并表示捐款“将提供住所，膳食，救援物资等”
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1298821272143630336&amp;autosize=1" autoresize="true" id="twitter-1298821272143630336" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">你可以通过<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.redcross.org/donate/donation.html&quot;,{&quot;metric25&quot;:1}]]" href="https://www.redcross.org/donate/donation.html" target="_blank" rel="noopener noreferrer">访问他们的网站</a> </span>，拨打 800-RED-CROSS 或给劳拉发短信 90999 来捐赠 10 美元。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1298821272143630336&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1298821272143630336&autosize=1) 
+
+你可以通过 [访问他们的网站](https://www.redcross.org/donate/donation.html) ，拨打 800-RED-CROSS 或给劳拉发短信 90999 来捐赠 10 美元。

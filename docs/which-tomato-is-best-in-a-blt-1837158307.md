@@ -1,7 +1,47 @@
 # 哪种西红柿最好吃？
 
-> 原文：<https://thetakeout.com/which-tomato-is-best-in-a-blt-1837158307>
+> 原文:[https://the take out . com/which-tomato-is-best-in-a-a-BLT-1837158307](https://thetakeout.com/which-tomato-is-best-in-a-blt-1837158307)
 
 前几天在 Twitter 上，该网站的两位最大的食品名人就 BLT 三明治中番茄的使用进行了非常简短的交锋:
 
-<iframe data-src="https://thetakeout.com/embed/inset/iframe?id=twitter-1158453834634559488&amp;autosize=1" autoresize="true" id="twitter-1158453834634559488" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><div class="bxm4mm-2 hKBnez"><div class="bxm4mm-1 goloRq instream-native-video instream-permalink instream-native-video--mobile"><div class="sc-1h0epat-0 lepUzz"><div class="sc-1h0epat-1 gRjwiT"><div class="sc-235a11-0 dYXfQa">Watch</div></div><div class="sc-1wkneyl-0 hxLRyg video-html5-playlist" data-playlist="192499,192194,191883" data-current="192499"><div class="video-html5-loaded"><div class="video-html5-player"><div class="lhhce6-0 bVyOPq video-html5 autoplay muted mobile" data-video-id="192499" data-position="sidebar" data-video-title="3 Easy Ways to Make Any Drink Stunning" data-video-network="the takeout" data-video-duration="111"></div></div></div></div></div></div></div><p class="sc-77igqf-0 bOfvBY">常伟的中心论点是，旺季的西红柿对 BLT 来说可能是太好了，商品超市的西红柿有助于整体平衡。<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 iUaVFb js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://thetakeout.com/the-a-v-club-s-guide-to-the-best-cookbooks-of-the-cent-1798288584&quot;,{&quot;metric25&quot;:1}]]" href="https://thetakeout.com/the-a-v-club-s-guide-to-the-best-cookbooks-of-the-cent-1798288584"> <em>食物实验室</em> </a> </span>作者 J. Kenji Lopez-Alt 似乎不这么认为。解决这场争论的唯一方法是我们自己尝试一下——同时，这也是做 BLT 三明治的一个借口。</p><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><p class="sc-77igqf-0 bOfvBY">在这个实验中，我们用三种不同的西红柿做了三种 BLTs:一个标准的超市牛排西红柿，<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 iUaVFb js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://thetakeout.com/recipe-fried-green-tomatoes-1828063799&quot;,{&quot;metric25&quot;:1}]]" href="https://thetakeout.com/recipe-fried-green-tomatoes-1828063799">，一个油炸绿西红柿</a> </span>，还有一个来自农贸市场的传家宝。</p><hr class="gcp5ez-1 ervlSQ"/><h2 class="sc-1bwb26k-1 kpbNNd" id="h174249">超市牛排番茄</h2><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">对于我的控制，我选择了标准的红色牛排番茄——常伟的首选番茄。我祈祷它是在附近的某个地方自然成熟的，而不是在越野驾驶中加了乙烯。<br/></p><p class="sc-77igqf-0 bOfvBY">很好吃。BLT 中的这种番茄没有任何问题。其实吃起来很怀旧，很安慰。这让我想起了慵懒的夏季晚餐，那时传家宝无处不在，美国人因为在冬天买西红柿而感到羞耻。它们比传家宝更干燥，质地更坚固，这有助于保持三明治的完整性，而不是在面包中间变成糊状。我喜欢这个版本。这个版本我早就知道了。如果我没有尝试下一个西红柿，我会对这个三明治感到满意。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809776ScriptRootC1321855"/><div class="mgidMidMobile" id="M809776ScriptRootC1321857"/></div><hr class="gcp5ez-1 ervlSQ"/><h2 class="sc-1bwb26k-1 kpbNNd" id="h174250">祖传番茄</h2><p class="sc-77igqf-0 bOfvBY">贤治是对的。一个传家宝番茄完全提升了 BLT。如果你有一段时间没有做 BLT，现在是时候了。<em>现在！</em>去一个农贸市场。<br/></p><p class="sc-77igqf-0 bOfvBY">黄色/橙色传家宝<!-- -->西红柿是低酸西红柿，所以我会选择紫色或深红色的西红柿，当你切开它时，它看起来像一颗牛心。即使它重两磅，花了你 11 美元，也要买下来。想象它是你三明治的主要成分，甚至比培根更重要。</p><p class="sc-77igqf-0 bOfvBY">我想我现在甚至可以感觉到——这是一个大胆的声明——传家宝番茄的最高使命是在 BLT 三明治中。我知道，我知道，意式面包怎么样？卡布里沙拉？新鲜的沙拉和番茄酱？但是传家宝提供的甜味深度照亮了咸肉和奶油蛋黄酱。太完美了。</p><hr class="gcp5ez-1 ervlSQ"/><h2 class="sc-1bwb26k-1 kpbNNd" id="h174251">油炸绿番茄</h2><p class="sc-77igqf-0 bOfvBY">青番茄本身太酸，不能直接吃。像一个优秀的南方厨师一样，我用盐腌它们，让它们在一些酪乳中变得醇厚，然后将西红柿拖过玉米粉-面粉混合物，然后在培根油中浅炸它们。<br/></p><p class="sc-77igqf-0 bOfvBY">油炸绿番茄是 BLT 的一个很好的版本，尽管在炎热的厨房里肯定要做更多的工作。油炸绿番茄片很脆，味道很浓，几乎有柠檬味。它是培根和蛋黄酱的绝佳搭档，微妙但仍足以证明它的存在。他们口味的绿色实际上给三明治增添了更多的田园风味。我还是更喜欢油炸绿番茄本身，最好是沾有奶油的那种？是的。在冬天，我会选择油炸西红柿来做一道美味的 BLT，哪怕只是为了对夏天最短暂的点头？是的。</p><hr class="gcp5ez-1 ervlSQ"/><h2 class="sc-1bwb26k-1 kpbNNd" id="h174252">我在 BLT 的番茄排名</h2><ol data-type="List" data-style="Number" class="sc-1lmbno3-1 sizyJ"><li><strong>传家宝</strong></li><li><strong>炒青</strong></li><li><strong>超市牛排</strong></li></ol><p class="sc-77igqf-0 bOfvBY">当我写这篇文章的时候，已经是八月中旬了，正好是中西部西红柿季节的开始，有很多选择可以测试你自己的 BLT 三明治。只是传家宝番茄让竞争变得非常不公平。<br/></p> </body> </html></iframe>
+ [https://thetakeout.com/embed/inset/iframe?id=twitter-1158453834634559488&autosize=1](https://thetakeout.com/embed/inset/iframe?id=twitter-1158453834634559488&autosize=1) Watch
+
+常伟的中心论点是，旺季的西红柿对 BLT 来说可能是太好了，商品超市的西红柿有助于整体平衡。 [*食物实验室*](https://thetakeout.com/the-a-v-club-s-guide-to-the-best-cookbooks-of-the-cent-1798288584) 作者 J. Kenji Lopez-Alt 似乎不这么认为。解决这场争论的唯一方法是我们自己尝试一下——同时，这也是做 BLT 三明治的一个借口。
+
+在这个实验中，我们用三种不同的西红柿做了三种 BLTs:一个标准的超市牛排西红柿， [，一个油炸绿西红柿](https://thetakeout.com/recipe-fried-green-tomatoes-1828063799) ，还有一个来自农贸市场的传家宝。
+
+* * *
+
+## 超市牛排番茄
+
+对于我的控制，我选择了标准的红色牛排番茄——常伟的首选番茄。我祈祷它是在附近的某个地方自然成熟的，而不是在越野驾驶中加了乙烯。
+
+很好吃。BLT 中的这种番茄没有任何问题。其实吃起来很怀旧，很安慰。这让我想起了慵懒的夏季晚餐，那时传家宝无处不在，美国人因为在冬天买西红柿而感到羞耻。它们比传家宝更干燥，质地更坚固，这有助于保持三明治的完整性，而不是在面包中间变成糊状。我喜欢这个版本。这个版本我早就知道了。如果我没有尝试下一个西红柿，我会对这个三明治感到满意。
+
+* * *
+
+## 祖传番茄
+
+贤治是对的。一个传家宝番茄完全提升了 BLT。如果你有一段时间没有做 BLT，现在是时候了。*现在！*去一个农贸市场。
+
+黄色/橙色传家宝西红柿是低酸西红柿，所以我会选择紫色或深红色的西红柿，当你切开它时，它看起来像一颗牛心。即使它重两磅，花了你 11 美元，也要买下来。想象它是你三明治的主要成分，甚至比培根更重要。
+
+我想我现在甚至可以感觉到——这是一个大胆的声明——传家宝番茄的最高使命是在 BLT 三明治中。我知道，我知道，意式面包怎么样？卡布里沙拉？新鲜的沙拉和番茄酱？但是传家宝提供的甜味深度照亮了咸肉和奶油蛋黄酱。太完美了。
+
+* * *
+
+## 油炸绿番茄
+
+青番茄本身太酸，不能直接吃。像一个优秀的南方厨师一样，我用盐腌它们，让它们在一些酪乳中变得醇厚，然后将西红柿拖过玉米粉-面粉混合物，然后在培根油中浅炸它们。
+
+油炸绿番茄是 BLT 的一个很好的版本，尽管在炎热的厨房里肯定要做更多的工作。油炸绿番茄片很脆，味道很浓，几乎有柠檬味。它是培根和蛋黄酱的绝佳搭档，微妙但仍足以证明它的存在。他们口味的绿色实际上给三明治增添了更多的田园风味。我还是更喜欢油炸绿番茄本身，最好是沾有奶油的那种？是的。在冬天，我会选择油炸西红柿来做一道美味的 BLT，哪怕只是为了对夏天最短暂的点头？是的。
+
+* * *
+
+## 我在 BLT 的番茄排名
+
+1.  **传家宝**
+2.  **炒青**
+3.  **超市牛排**
+
+当我写这篇文章的时候，已经是八月中旬了，正好是中西部西红柿季节的开始，有很多选择可以测试你自己的 BLT 三明治。只是传家宝番茄让竞争变得非常不公平。

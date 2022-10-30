@@ -1,13 +1,53 @@
 # 这些昆虫不是“谋杀黄蜂”,所以请停止杀害它们
 
-> 原文：<https://lifehacker.com/these-insects-are-not-murder-hornets-so-please-stop-kil-1843293983>
+> 原文:[https://life hacker . com/these-昆虫-不是-谋杀-黄蜂-所以请-停止-杀死-1843293983](https://lifehacker.com/these-insects-are-not-murder-hornets-so-please-stop-kil-1843293983)
 
 是的，亚洲大黄蜂体型大，而且有条纹。但其他几种昆虫也是如此。如果你看到一些看起来有点像 [的东西，这些你听说过太多关于](https://vitals.lifehacker.com/murder-hornets-are-unlikely-to-murder-you-personally-1843264533) 的“谋杀大黄蜂”，你可能会忍不住杀死它和/或说服自己末日真的到来了。但是请不要。这几乎可以肯定是认错人了。
 
-
+Watch
 
 记住:入侵的黄蜂只在华盛顿州被报道过，即使在那里它们也是极其罕见的。(还有，请回忆一下，他们是 [而不是出来谋杀你的](https://vitals.lifehacker.com/murder-hornets-are-unlikely-to-murder-you-personally-1843264533) 。)
 
 昆虫学家 [马特·贝尔托内](https://www.ces.ncsu.edu/profile/matt-bertone/) 说:“(绝大多数)美国人一辈子都不会看到亚洲巨型大黄蜂。”。他在北卡罗来纳州立大学分校接受昆虫鉴定请求，最近 [发推文](https://twitter.com/Bertonemyia/status/1257778732510699522) 说他的收件箱里装满了疑似亚洲巨型大黄蜂的照片。没有一只是亚洲巨黄蜂。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1257778732510699522&amp;autosize=1" autoresize="true" id="twitter-1257778732510699522" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">现在，一只<em>完全有可能出现在北卡罗莱纳州，或者其他还没有发现黄蜂的地方。如果你认为你是第一次看到，给你当地的分支机构发一张照片是正确的做法。</em></p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">但是你也可以通过了解你当地的大型条纹森林来为你当地的昆虫学家省去一点麻烦。即使你看到的东西很大，不像你以前见过的任何大黄蜂，那也可能是因为你看到了一些特殊的东西:蜜蜂或蜂后从冬眠中醒来，开始今年的蜂群，就像它们每年春天做的那样。(蚁后比同类的典型个体要大。)</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">昆虫学家称，以下几种昆虫被人们误认为是亚洲大黄蜂。提醒一下:亚洲巨黄蜂实际上不叫“谋杀黄蜂”，它们对谋杀你没有特别的兴趣。所以无论如何都不要惊慌。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h6740">欧洲大黄蜂</h3><p class="sc-77igqf-0 bOfvBY">从技术上讲，这些黄蜂是入侵性的，但它们已经在美国生活了 100 多年，它们不会去任何地方。这是宾州州立大学关于他们的一份资料<span></span>。<br/></p><p class="sc-77igqf-0 bOfvBY">欧洲大黄蜂通常有 1 英寸长，蚁后大约有 1.4 英寸。他们大致住在美国的东半部。</p><p class="sc-77igqf-0 bOfvBY">欧洲大黄蜂有不规则的褐色和黄色条纹；<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://sites.tufts.edu/pollinators/2020/05/stop-calling-it-the-murder-hornet/&quot;,{&quot;metric25&quot;:1}]]" href="https://sites.tufts.edu/pollinators/2020/05/stop-calling-it-the-murder-hornet/" target="_blank" rel="noopener noreferrer">这张比较</a> </span>来自塔夫脱授粉者主动展示的一张并排照片。欧洲大黄蜂的头大多是深红色的。亚洲巨黄蜂有橙色的头和更清晰的橙色和黑色条纹。</p><p class="sc-77igqf-0 bOfvBY">欧洲黄蜂在中空的树上筑巢，偶尔也会在房子的墙上筑巢，但它们也是其他类型黄蜂的捕食者，所以这不一定是件坏事。宾夕法尼亚州立大学昆虫学家迈克尔·斯克瓦拉说:“当房主找到一个鸟巢，但它不是太麻烦时(并且附近地区没有人对蜜蜂和黄蜂叮咬过敏)，我建议他们尽可能不要打扰它们。”</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h6741">蝉杀手</h3><p class="sc-77igqf-0 bOfvBY">这些是独居的黄蜂，它们在夏天出现，以蝉为食。雄性可以积极捍卫自己的领地，但它们没有刺。雌性通常不会打扰你，除非你是蝉。这是肯塔基大学 T3 的一份关于他们的资料。</p><p class="sc-77igqf-0 bOfvBY">蝉杀手可以长达 2 英寸，并且有多种物种生活在美国的不同地区。(这里有一张<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://benthamopen.com/contents/pdf/TOENTOJ/TOENTOJ-5-31.pdf&quot;,{&quot;metric25&quot;:1}]]" href="https://benthamopen.com/contents/pdf/TOENTOJ/TOENTOJ-5-31.pdf" target="_blank" rel="noopener noreferrer">地图</a> </span>)。)东蝉杀手的腹部长而尖，大部分是黑色的。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h6742">南方黄夹克</h3><p class="sc-77igqf-0 bOfvBY">你以前见过黄夹克，它们看起来不太像亚洲巨型大黄蜂。但贝尔托内和斯克瓦拉都告诉我，他们在调查《大黄蜂谋杀案》时偶尔会遇到南方黄夹克女王。蚁后比同类中的其他蚁后更大，看起来是橙色和黑色的，而不是黄色和黑色的。他们主要居住在东南部。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h6743">大黄蜂女王</h3><p class="sc-77igqf-0 bOfvBY">大黄蜂已经很大了，而蚁后更大。大黄蜂有很多种类，但它们通常看起来毛茸茸的，嗯，有点像蜜蜂。授粉者保护组织 Xerces society<span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://twitter.com/xercessociety/status/1257754536569118722&quot;,{&quot;metric25&quot;:1}]]" href="https://twitter.com/xercessociety/status/1257754536569118722" target="_blank" rel="noopener noreferrer">注意到</a> </span>人们把大黄蜂皇后误认为亚洲巨型黄蜂。由于亚洲黄蜂的一个主要担忧是它们可能对蜜蜂构成威胁，杀死蜂后无助于这一事业。</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY">这些是美国最常见的大型条纹昆虫，但每个地区都有自己的同类。如果你不确定，应用程序<span></span>可以帮助你根据照片识别物种。如果你住在华盛顿州或其附近，该州农业部已经收集了当地昆虫的<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://agr.wa.gov/departments/insects-pests-and-weeds/insects/hornets/size-comparisons?fbclid=IwAR2WKstPwrjTMdZNfsuvKP1tTDeiRjgjZ4Yvc9wkh1FSjGBM4cNAeQKI8Qo&quot;,{&quot;metric25&quot;:1}]]" href="https://agr.wa.gov/departments/insects-pests-and-weeds/insects/hornets/size-comparisons?fbclid=IwAR2WKstPwrjTMdZNfsuvKP1tTDeiRjgjZ4Yvc9wkh1FSjGBM4cNAeQKI8Qo" target="_blank" rel="noopener noreferrer">这张对比图</a> </span>，你可能会误认为是亚洲巨型黄蜂。</p><p class="sc-77igqf-0 bOfvBY">塔夫茨传粉者倡议组织的 Rachael Bonoan 补充说，除了上述情况，德国黄夹克、纸黄蜂和秃头黄蜂都是太平洋西北黄蜂，体型较大，但都没有亚洲巨型大黄蜂大。</p><p class="sc-77igqf-0 bOfvBY">如果你确实认为你看到了一只亚洲巨型大黄蜂，向你当地的农业推广办公室报告。如果你住在华盛顿，你可以用<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://invasivespecies.wa.gov/report-a-sighting/invasive-insects/&quot;,{&quot;metric25&quot;:1}]]" href="https://invasivespecies.wa.gov/report-a-sighting/invasive-insects/" target="_blank" rel="noopener noreferrer">这个表格</a> </span>来做一个报告。<br/></p><p class="sc-77igqf-0 bOfvBY">这篇文章于 2020 年 5 月 6 日下午 5:07 更新，以澄清欧洲大黄蜂头部的颜色。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1257778732510699522&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1257778732510699522&autosize=1) 
+
+现在，一只*完全有可能出现在北卡罗莱纳州，或者其他还没有发现黄蜂的地方。如果你认为你是第一次看到，给你当地的分支机构发一张照片是正确的做法。*
+
+但是你也可以通过了解你当地的大型条纹森林来为你当地的昆虫学家省去一点麻烦。即使你看到的东西很大，不像你以前见过的任何大黄蜂，那也可能是因为你看到了一些特殊的东西:蜜蜂或蜂后从冬眠中醒来，开始今年的蜂群，就像它们每年春天做的那样。(蚁后比同类的典型个体要大。)
+
+昆虫学家称，以下几种昆虫被人们误认为是亚洲大黄蜂。提醒一下:亚洲巨黄蜂实际上不叫“谋杀黄蜂”，它们对谋杀你没有特别的兴趣。所以无论如何都不要惊慌。
+
+### 欧洲大黄蜂
+
+从技术上讲，这些黄蜂是入侵性的，但它们已经在美国生活了 100 多年，它们不会去任何地方。这是宾州州立大学关于他们的一份资料。
+
+欧洲大黄蜂通常有 1 英寸长，蚁后大约有 1.4 英寸。他们大致住在美国的东半部。
+
+欧洲大黄蜂有不规则的褐色和黄色条纹； [这张比较](https://sites.tufts.edu/pollinators/2020/05/stop-calling-it-the-murder-hornet/) 来自塔夫脱授粉者主动展示的一张并排照片。欧洲大黄蜂的头大多是深红色的。亚洲巨黄蜂有橙色的头和更清晰的橙色和黑色条纹。
+
+欧洲黄蜂在中空的树上筑巢，偶尔也会在房子的墙上筑巢，但它们也是其他类型黄蜂的捕食者，所以这不一定是件坏事。宾夕法尼亚州立大学昆虫学家迈克尔·斯克瓦拉说:“当房主找到一个鸟巢，但它不是太麻烦时(并且附近地区没有人对蜜蜂和黄蜂叮咬过敏)，我建议他们尽可能不要打扰它们。”
+
+### 蝉杀手
+
+这些是独居的黄蜂，它们在夏天出现，以蝉为食。雄性可以积极捍卫自己的领地，但它们没有刺。雌性通常不会打扰你，除非你是蝉。这是肯塔基大学 T3 的一份关于他们的资料。
+
+蝉杀手可以长达 2 英寸，并且有多种物种生活在美国的不同地区。(这里有一张 [地图](https://benthamopen.com/contents/pdf/TOENTOJ/TOENTOJ-5-31.pdf) )。)东蝉杀手的腹部长而尖，大部分是黑色的。
+
+### 南方黄夹克
+
+你以前见过黄夹克，它们看起来不太像亚洲巨型大黄蜂。但贝尔托内和斯克瓦拉都告诉我，他们在调查《大黄蜂谋杀案》时偶尔会遇到南方黄夹克女王。蚁后比同类中的其他蚁后更大，看起来是橙色和黑色的，而不是黄色和黑色的。他们主要居住在东南部。
+
+### 大黄蜂女王
+
+大黄蜂已经很大了，而蚁后更大。大黄蜂有很多种类，但它们通常看起来毛茸茸的，嗯，有点像蜜蜂。授粉者保护组织 Xerces society[注意到](https://twitter.com/xercessociety/status/1257754536569118722) 人们把大黄蜂皇后误认为亚洲巨型黄蜂。由于亚洲黄蜂的一个主要担忧是它们可能对蜜蜂构成威胁，杀死蜂后无助于这一事业。
+
+* * *
+
+这些是美国最常见的大型条纹昆虫，但每个地区都有自己的同类。如果你不确定，应用程序可以帮助你根据照片识别物种。如果你住在华盛顿州或其附近，该州农业部已经收集了当地昆虫的 [这张对比图](https://agr.wa.gov/departments/insects-pests-and-weeds/insects/hornets/size-comparisons?fbclid=IwAR2WKstPwrjTMdZNfsuvKP1tTDeiRjgjZ4Yvc9wkh1FSjGBM4cNAeQKI8Qo) ，你可能会误认为是亚洲巨型黄蜂。
+
+塔夫茨传粉者倡议组织的 Rachael Bonoan 补充说，除了上述情况，德国黄夹克、纸黄蜂和秃头黄蜂都是太平洋西北黄蜂，体型较大，但都没有亚洲巨型大黄蜂大。
+
+如果你确实认为你看到了一只亚洲巨型大黄蜂，向你当地的农业推广办公室报告。如果你住在华盛顿，你可以用 [这个表格](https://invasivespecies.wa.gov/report-a-sighting/invasive-insects/) 来做一个报告。
+
+这篇文章于 2020 年 5 月 6 日下午 5:07 更新，以澄清欧洲大黄蜂头部的颜色。

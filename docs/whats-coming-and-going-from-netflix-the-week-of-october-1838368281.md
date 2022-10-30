@@ -1,7 +1,62 @@
 # 2019 年 10 月 7 日这一周，网飞有哪些来往
 
-> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-october-1838368281>
+> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of the-October-1838368281](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-october-1838368281)
 
 新一季的《希特的小溪》将于周四上映，这真的是你多年来听到的最好的消息，T2，不是吗？我等不及网飞的回归，所以已经在流行电视上看了这一季(流行电视的另一个热门节目是一个关于艾伦·锡克的真人秀节目，名为*异常厚重*，似乎莫伊拉·罗斯会在这个节目中客串)。这一季中，Moira 在波斯尼亚拍摄*乌鸦有眼睛 III:啼叫，*一些次要角色的父母来访，以及一场真正令人惊叹的当地歌舞表演。这之后就剩一季了，好好品味吧。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-3sZQ5gcLEZo&amp;start=0" data-chomp-id="3sZQ5gcLEZo" data-recommend-id="youtube://3sZQ5gcLEZo" id="youtube-3sZQ5gcLEZo" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="3sZQ5gcLEZo" data-recommend-id="youtube://3sZQ5gcLEZo" id="youtube-3sZQ5gcLEZo" data-recommended="false" class="js_recommend"/></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h297454">本周到达</h3><h4 class="sc-1bwb26k-1 kpbNNd" id="h297455"><strong>10 月 7 日星期一</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81135440&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81135440" target="_blank" rel="noopener noreferrer"> <em>比赛！网球少年—网飞原创</em> </a> </span></li><li><em>水占卜者</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h297456"><strong>10 月 8 日星期二</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>德翁·科尔:科尔·哈特——网飞原创</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81021976&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81021976" target="_blank" rel="noopener noreferrer"> <em>裤衩船长的鬼故事——网飞家族</em> </a> </span></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h297457"><strong>10 月 9 日星期三</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>之后<em/></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80216665&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80216665" target="_blank" rel="noopener noreferrer"> <em>节奏+流量—网飞原创</em> </a> </span></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h297458"><strong>10 月 10 日星期四</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>《希特的小溪》第五季</li><li><em>群青岩浆——网飞动漫</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h297459"><strong>10 月 11 日星期五</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>埃尔卡米诺:绝命电影——网飞电视事件</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81133621&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81133621" target="_blank" rel="noopener noreferrer"> <em>爱情的森林——网飞电影</em></a>T5】</span></li><li><em>断裂——网飞电影</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80195378&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80195378" target="_blank" rel="noopener noreferrer"> <em>闹鬼:第二季—网飞原著</em> </a> </span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80179905&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80179905" target="_blank" rel="noopener noreferrer"> <em>贪得无厌:第二季—网飞原创</em> </a> </span></li><li><em>影响力——Netflix 电影</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80190086&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80190086" target="_blank" rel="noopener noreferrer"> <em>计划核心:第二季—网飞原创</em> </a> </span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81110383&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81110383" target="_blank" rel="noopener noreferrer"> <em>《莫蒂·沃伦布吕赫的觉醒》——网飞电影</em> </a> </span></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80212481&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80212481" target="_blank" rel="noopener noreferrer"> <em>优优来营救:第二季—网飞一家</em> </a> </span></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h297460"><strong>10 月 12 日星期六</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81034012&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81034012" target="_blank" rel="noopener noreferrer"><em>—网飞电影</em> </a> </span></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h297461">这周离开</h3><h4 class="sc-1bwb26k-1 kpbNNd" id="h297462"><strong>10 月 7 日出发</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>大卫·布赖恩:什么是魔法？</li><li><em>尖叫 4 </em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h297463"><strong>10 月 9 日出发</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>小女巫满头雾水</em></li><li><em>小女巫学院:魔法游行</em></li><li><em>剑术在线 II:第一季</em></li><li><em>2019 年 10 月 15 日离开</em></li><li>国际米兰:第 1-7 季</li></ul><div class="bxm4mm-2 hKBnez"><div class="bxm4mm-1 goloRq instream-native-video instream-permalink instream-native-video--mobile"><div class="sc-1h0epat-0 lepUzz"><div class="sc-1h0epat-1 gRjwiT"><div class="sc-235a11-0 egwski">Watch</div></div><div class="sc-1wkneyl-0 hxLRyg video-html5-playlist" data-playlist="192590,192585,192428" data-current="192590"><div class="video-html5-loaded"><div class="video-html5-player"><div class="lhhce6-0 bVyOPq video-html5 autoplay muted mobile" data-video-id="192590" data-position="sidebar" data-video-title="How to Make a Quick and Easy Crumb Crust" data-video-network="lifehacker" data-video-duration="135"></div></div></div></div></div></div></div><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><div id="mgid-container" data-placement="1" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-3sZQ5gcLEZo&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-3sZQ5gcLEZo&start=0) 
+
+### 本周到达
+
+#### **10 月 7 日星期一**
+
+*   [*比赛！网球少年—网飞原创*](https://www.netflix.com/title/81135440)
+*   *水占卜者*
+
+#### **10 月 8 日星期二**
+
+*   *德翁·科尔:科尔·哈特——网飞原创*
+*   [*裤衩船长的鬼故事——网飞家族*](https://www.netflix.com/title/81021976)
+
+#### **10 月 9 日星期三**
+
+*   之后
+*   *[*节奏+流量—网飞原创*](https://www.netflix.com/title/80216665)*
+
+#### ***10 月 10 日星期四***
+
+*   *《希特的小溪》第五季*
+*   **群青岩浆——网飞动漫**
+
+#### ***10 月 11 日星期五***
+
+*   **埃尔卡米诺:绝命电影——网飞电视事件**
+*   *[*爱情的森林——网飞电影*](https://www.netflix.com/title/81133621)T5】*
+*   **断裂——网飞电影**
+*   *[*闹鬼:第二季—网飞原著*](https://www.netflix.com/title/80195378)*
+*   *[*贪得无厌:第二季—网飞原创*](https://www.netflix.com/title/80179905)*
+*   **影响力——Netflix 电影**
+*   *[*计划核心:第二季—网飞原创*](https://www.netflix.com/title/80190086)*
+*   *[*《莫蒂·沃伦布吕赫的觉醒》——网飞电影*](https://www.netflix.com/title/81110383)*
+*   *[*优优来营救:第二季—网飞一家*](https://www.netflix.com/title/80212481)*
+
+#### ***10 月 12 日星期六***
+
+*   *[*—网飞电影*](https://www.netflix.com/title/81034012)*
+
+### *这周离开*
+
+#### ***10 月 7 日出发***
+
+*   *大卫·布赖恩:什么是魔法？*
+*   **尖叫 4**
+
+#### ***10 月 9 日出发***
+
+*   **小女巫满头雾水**
+*   **小女巫学院:魔法游行**
+*   **剑术在线 II:第一季**
+*   **2019 年 10 月 15 日离开**
+*   *国际米兰:第 1-7 季*
+
+*Watch*

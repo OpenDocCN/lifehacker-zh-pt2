@@ -1,11 +1,15 @@
 # 要求“更多黄油”是第一次约会的明智之举
 
-> 原文：<https://lifehacker.com/requesting-more-butter-is-a-brilliant-first-date-move-1841360002>
+> 原文:[https://life hacker . com/requesting-more-butter-is-a-brilliant-first-date-move-1841360002](https://lifehacker.com/requesting-more-butter-is-a-brilliant-first-date-move-1841360002)
 
 许多餐馆会拿出“餐桌上用的”面包，但大多数餐馆都没有足够的黄油来供应面包。就像只提供奇数个可食用项目的开胃菜一样，不清楚他们是否在黄油上吝啬以制造冲突，或者是否出于某种财政考虑，但不管怎样，我都不喜欢它。
 
-
+Watch
 
 定量配给几汤匙撒有四片马尔登盐的黄油，这样它们就够吃半个手工肉饼了，这简直是一场饥饿游戏。稀缺创造了不确定性(我是不是一个在面包上涂太多黄油的粗鲁的懒汉？)，慌了(黄油！它在缩小！)，而且只是一般的不安。这些东西在任何时候都是不可取的，但在第一次约会时，它们是完全不需要的。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1216531352272691200&amp;autosize=1" autoresize="true" id="twitter-1216531352272691200" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">这就是为什么我的朋友黑貂——恰好是<!-- --> GQ <!-- --> — <!-- -->的<span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.gq.com/story/first-date-power-move&quot;,{&quot;metric25&quot;:1}]]" href="https://www.gq.com/story/first-date-power-move" target="_blank" rel="noopener noreferrer">f<!-- -->orest<!-- -->第一次约会的学者</a> </span>很聪明。毫无疑问，大胆自信地为餐桌点更多黄油绝对是第一次约会的动力之举。它散发出 BDE，并向你的约会对象(以及餐厅里任何一个关注你的人)广播，你在这里度过了一段美好的时光，不管这段时间有多长。你乐于满足自己的欲望，不害怕快乐，并拒绝让别人来决定你享用多少奶油养殖乳制品，因为你不是一个追随者。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">但是你是提供者。你考虑周到，关注周围人的需求，能够以礼貌但直接的方式与服务行业的专业人士互动。你他妈的是个成年人了，这就是我要说的，这就是你第一次约会要表现的样子。(我的意思是，我相信柏拉图式的朋友和家人会感谢你要黄油，这样他们就不必要了，但这是最有效的第一印象。)所以，下次第一次约会时，要额外的黄油。你甚至不必等待供应减少；提前思考也很性感。</p><div id="mgid-container" data-placement="4" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1216531352272691200&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1216531352272691200&autosize=1) 
+
+这就是为什么我的朋友黑貂——恰好是 GQ — 的[forest第一次约会的学者](https://www.gq.com/story/first-date-power-move) 很聪明。毫无疑问，大胆自信地为餐桌点更多黄油绝对是第一次约会的动力之举。它散发出 BDE，并向你的约会对象(以及餐厅里任何一个关注你的人)广播，你在这里度过了一段美好的时光，不管这段时间有多长。你乐于满足自己的欲望，不害怕快乐，并拒绝让别人来决定你享用多少奶油养殖乳制品，因为你不是一个追随者。
+
+但是你是提供者。你考虑周到，关注周围人的需求，能够以礼貌但直接的方式与服务行业的专业人士互动。你他妈的是个成年人了，这就是我要说的，这就是你第一次约会要表现的样子。(我的意思是，我相信柏拉图式的朋友和家人会感谢你要黄油，这样他们就不必要了，但这是最有效的第一印象。)所以，下次第一次约会时，要额外的黄油。你甚至不必等待供应减少；提前思考也很性感。

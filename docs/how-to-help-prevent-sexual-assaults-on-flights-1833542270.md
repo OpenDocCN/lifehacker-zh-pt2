@@ -1,7 +1,59 @@
 # 如何帮助预防航班上的性侵犯
 
-> 原文：<https://lifehacker.com/how-to-help-prevent-sexual-assaults-on-flights-1833542270>
+> 原文:[https://life hacker . com/how-to-help-prevent-on-flight-1833542270](https://lifehacker.com/how-to-help-prevent-sexual-assaults-on-flights-1833542270)
 
 记者 Joanna Chiu 最近目睹了许多人都经历过的事情:一个令人毛骨悚然的家伙在飞机上对被堵在他旁边的女孩说了令人毛骨悚然的话。
 
-Watch<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1110079640998023168&amp;autosize=1" autoresize="true" id="twitter-1110079640998023168" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">在这种情况下，邱说，女孩是一个十几岁的孩子，与家人失散了，这使得该男子更容易与她聊天，戏弄她，并最终向她索要一张黄色照片。</p><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><p class="sc-77igqf-0 bOfvBY">你可能会认为飞机上的近距离会对性骚扰者和性侵犯者起到威慑作用，但是根据美国联邦调查局 的说法，飞机上的性侵犯正在上升——或者至少，被报道的越来越多。乘客需要意识到风险，以保证自己和周围人的安全。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h18111">不要透露个人信息</h3><p class="sc-77igqf-0 bOfvBY">不管对话开始时看起来有多友好，你都有可能无意中透露出自己的一些信息，让自己更容易成为攻击目标。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">塔米·亚德-麦克拉肯是弗吉尼亚州个人防御工业公司的老板，也是一名认证的冲突沟通讲师，他告诉《纽约时报》 说，乘客需要注意他们向陌生人透露的信息。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">“你说的一切都是信息，”她说。"在随意的社交场合，人们不会考虑自己说了些什么。"</p><p class="sc-77igqf-0 bOfvBY">她记得无意中听到一个女人告诉她的邻座，因为离婚，过去的六个月过得很艰难。“这是给那些正在寻找目标的人的情报，”她说。</p></blockquote><h3 class="sc-1bwb26k-1 kpbNNd" id="h18112"><strong>放下扶手</strong></h3><p class="sc-77igqf-0 bOfvBY">在飞机上很难创造任何“个人空间”。但是，如果你坐在一个陌生人旁边，你可以做的一件事就是制造一点障碍，那就是一直把扶手放下来，不管它们看起来多么无害。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h18113">结束不想要的对话</h3><p class="sc-77igqf-0 bOfvBY">如果你开始有那种被困在我不喜欢的谈话中的感觉，结束它。令人毛骨悚然的人——或者潜在的攻击者——不会完全接受暗示，所以你需要迅速而直接。</p><p class="sc-77igqf-0 bOfvBY">拿出一本书、平板电脑或笔记本电脑，说你需要补上工作。在飞机上随身携带耳塞，这样你就可以在需要时戴上耳塞假装听音乐或播客。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h18114"><strong>了解风险因素</strong></h3><p class="sc-77igqf-0 bOfvBY">联邦调查局表示，大多数袭击发生在妇女和无人陪伴的未成年人身上，特别是那些坐在中间或靠窗座位的人，因为他们正在睡觉，身上盖着毯子或夹克。尤其是对于一个独自旅行的孩子，尽量预订一个靠走廊的座位，这样乘务员和其他乘客更容易看到他们。<br/></p><h3 class="sc-1bwb26k-1 kpbNNd" id="h18115"><strong>努力保持警惕</strong></h3><p class="sc-77igqf-0 bOfvBY">美国联邦调查局特工大卫·盖茨 建议不要将酒精与安眠药或其他药物混合使用，因为这会增加你受到攻击的风险。“不要用酒精或药物把自己弄昏，”他说。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h18116">引起对行为的注意</h3><p class="sc-77igqf-0 bOfvBY">如果有人以不受欢迎的方式触摸你，告诉他们停下来。罪犯经常会和受害者擦肩而过，看看他们会有什么反应。立即回应类似“请不要碰我的腿。”如果这种情况持续存在，你可以给他们一个警告，比如，“不要碰我，否则我会叫空姐。”或者，正如前狱警、<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.nytimes.com/2019/03/23/travel/airline-flights-sexual-assault.html?login=email&amp;auth=login-email&quot;,{&quot;metric25&quot;:1}]]" href="https://www.nytimes.com/2019/03/23/travel/airline-flights-sexual-assault.html?login=email&amp;auth=login-email" target="_blank" rel="noopener noreferrer">自卫作家罗里·米勒在《泰晤士报》</a> </span>中所说，你可能想引起周围人的注意:</p><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">“如果你大声说出来，让每个人都看着你，‘嘿，你这个变态，把你的手拿开’，”他说，“每个人都会看着你，然后一直看下去。‘变态’是自卫的神奇词汇。”</p></blockquote><p class="sc-77igqf-0 bOfvBY">如果联系持续，请按呼叫按钮或离开座位找到一个，通知空服员。空乘人员可以将你转移到一个更安全的座位，并且通常可以在足够的时间内通知执法部门，让他们在飞机着陆时等待询问罪犯。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h18117">如果你看到什么，说点什么</h3><p class="sc-77igqf-0 bOfvBY">一个被骚扰或攻击的人可能会因为太害怕、太尴尬或太困惑而不敢为自己说话。在飞机上密切关注你周围发生的事情；如果你看到有人陷入不舒服或不想要的情况，大声说出来。</p><p class="sc-77igqf-0 bOfvBY">乔安娜·邱 起初她想在飞机上睡觉，但当她听到 30 多岁的男子和少女之间的对话发出警报声时，她保持了警惕。当他凑近她问她要一张“脏照片”时，邱说她“转过身来，愤怒地低声说出我对此的想法。”</p><p class="sc-77igqf-0 bOfvBY">女孩后面的另一名妇女也大声支持，告诉她可以换座位。警惕其他乘客易受攻击的警告信号，并毫不犹豫地参与进来。</p><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><small> <em>更多来自 Lifehacker，一定要在 Instagram 上关注我们</em></small><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.instagram.com/lifehackerdotcom/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.instagram.com/lifehackerdotcom/" target="_blank" rel="noopener noreferrer"><small><em>@ lifehackerdotcom</em></small></a></span><small><em>。</em> </small> <br/></p> </body> </html></iframe>
+Watch [https://lifehacker.com/embed/inset/iframe?id=twitter-1110079640998023168&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1110079640998023168&autosize=1) 
+
+在这种情况下，邱说，女孩是一个十几岁的孩子，与家人失散了，这使得该男子更容易与她聊天，戏弄她，并最终向她索要一张黄色照片。
+
+你可能会认为飞机上的近距离会对性骚扰者和性侵犯者起到威慑作用，但是根据美国联邦调查局 的说法，飞机上的性侵犯正在上升——或者至少，被报道的越来越多。乘客需要意识到风险，以保证自己和周围人的安全。
+
+### 不要透露个人信息
+
+不管对话开始时看起来有多友好，你都有可能无意中透露出自己的一些信息，让自己更容易成为攻击目标。
+
+塔米·亚德-麦克拉肯是弗吉尼亚州个人防御工业公司的老板，也是一名认证的冲突沟通讲师，他告诉《纽约时报》 说，乘客需要注意他们向陌生人透露的信息。
+
+> “你说的一切都是信息，”她说。"在随意的社交场合，人们不会考虑自己说了些什么。"
+> 
+> 她记得无意中听到一个女人告诉她的邻座，因为离婚，过去的六个月过得很艰难。“这是给那些正在寻找目标的人的情报，”她说。
+
+### **放下扶手**
+
+在飞机上很难创造任何“个人空间”。但是，如果你坐在一个陌生人旁边，你可以做的一件事就是制造一点障碍，那就是一直把扶手放下来，不管它们看起来多么无害。
+
+### 结束不想要的对话
+
+如果你开始有那种被困在我不喜欢的谈话中的感觉，结束它。令人毛骨悚然的人——或者潜在的攻击者——不会完全接受暗示，所以你需要迅速而直接。
+
+拿出一本书、平板电脑或笔记本电脑，说你需要补上工作。在飞机上随身携带耳塞，这样你就可以在需要时戴上耳塞假装听音乐或播客。
+
+### **了解风险因素**
+
+联邦调查局表示，大多数袭击发生在妇女和无人陪伴的未成年人身上，特别是那些坐在中间或靠窗座位的人，因为他们正在睡觉，身上盖着毯子或夹克。尤其是对于一个独自旅行的孩子，尽量预订一个靠走廊的座位，这样乘务员和其他乘客更容易看到他们。
+
+### **努力保持警惕**
+
+美国联邦调查局特工大卫·盖茨 建议不要将酒精与安眠药或其他药物混合使用，因为这会增加你受到攻击的风险。“不要用酒精或药物把自己弄昏，”他说。
+
+### 引起对行为的注意
+
+如果有人以不受欢迎的方式触摸你，告诉他们停下来。罪犯经常会和受害者擦肩而过，看看他们会有什么反应。立即回应类似“请不要碰我的腿。”如果这种情况持续存在，你可以给他们一个警告，比如，“不要碰我，否则我会叫空姐。”或者，正如前狱警、 [自卫作家罗里·米勒在《泰晤士报》](https://www.nytimes.com/2019/03/23/travel/airline-flights-sexual-assault.html?login=email&auth=login-email) 中所说，你可能想引起周围人的注意:
+
+> “如果你大声说出来，让每个人都看着你，‘嘿，你这个变态，把你的手拿开’，”他说，“每个人都会看着你，然后一直看下去。‘变态’是自卫的神奇词汇。”
+
+如果联系持续，请按呼叫按钮或离开座位找到一个，通知空服员。空乘人员可以将你转移到一个更安全的座位，并且通常可以在足够的时间内通知执法部门，让他们在飞机着陆时等待询问罪犯。
+
+### 如果你看到什么，说点什么
+
+一个被骚扰或攻击的人可能会因为太害怕、太尴尬或太困惑而不敢为自己说话。在飞机上密切关注你周围发生的事情；如果你看到有人陷入不舒服或不想要的情况，大声说出来。
+
+乔安娜·邱 起初她想在飞机上睡觉，但当她听到 30 多岁的男子和少女之间的对话发出警报声时，她保持了警惕。当他凑近她问她要一张“脏照片”时，邱说她“转过身来，愤怒地低声说出我对此的想法。”
+
+女孩后面的另一名妇女也大声支持，告诉她可以换座位。警惕其他乘客易受攻击的警告信号，并毫不犹豫地参与进来。
+
+* * *
+
+<small>*更多来自 Lifehacker，一定要在 Instagram 上关注我们*</small>[<small>*@ lifehackerdotcom*</small>](https://www.instagram.com/lifehackerdotcom/)<small>*。*</small>

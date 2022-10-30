@@ -1,11 +1,65 @@
 # 如何停止对所有事情的过度反应
 
-> 原文：<https://lifehacker.com/how-to-stop-overreacting-to-everything-1680390482>
+> 原文:[https://life hacker . com/how-to-stop-over-reaction-to-everything-1680390482](https://lifehacker.com/how-to-stop-overreacting-to-everything-1680390482)
 
 偶尔的过度反应没有什么不对，但是如果你经常感到不安、愤怒或过度防御，这对你和你周围的人来说都是不愉快的。以下是停止的方法。
 
-
+Watch
 
 ### **知道反应和过度反应的区别**
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-BbZwk1FZ4XE&amp;start=0" data-chomp-id="BbZwk1FZ4XE" data-recommend-id="youtube://BbZwk1FZ4XE" id="youtube-BbZwk1FZ4XE" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="BbZwk1FZ4XE" data-recommend-id="youtube://BbZwk1FZ4XE" id="youtube-BbZwk1FZ4XE" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">知道反应和过度反应的区别很重要，因为不是所有强烈的反应都是过度反应。感受你的情绪并相应地表达自己是完全没问题的。就像在物理学中，每一个作用力都可以有一个大小相等方向相反的反作用力。如果某件事真的令人心烦意乱，你可以感到心烦意乱。如果某件事让你有理由生气，你可以生气。</p><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><p class="sc-77igqf-0 bOfvBY">当你开始过度反应时，问题就出现了。比如，你忘了拿牛奶，这不是对别人大喊大叫的理由。你忘了，不是他们，更重要的是:这只是牛奶。过度反应不会让情况变得更好。假设有人忘了牛奶，现在你准备的饭不知何故被毁了。对他们大喊大叫不会让你喝到牛奶，现在你在你和对方之间制造了一个新的问题。压力会让我们反应过度，但过度反应不会释放任何压力。它所做的只是在我们的环境中制造更多的压力。</p><p class="sc-77igqf-0 bOfvBY">有两种主要的过度反应者:内部的和外部的。内部反应过度者会纠结于那些不顺心的事情，无法去想其他的事情。他们的过度反应会影响他们的快乐，并让快乐妨碍他们想做的事情。例如，一个内心反应过度的人整天都在抱怨有人把他们挡在车流中，永远无法忘记这个事实。他们可能会开始思考，“为什么是我？”或者“这总是发生在我身上”，造成很大的压力。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">正如健全心智组织的苏珊解释的那样，外部过度反应堆是更经典的<span></span>。当事情不尽如人意的时候，他们会大喊大叫，尖叫，或者回击。不管你自己的倾向如何，永远记住<em>有些</em>反应是合理的——尤其是当你<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;http://lifehacker.com/become-a-better-listener-by-responding-not-reacting-1676147450&quot;,{&quot;metric25&quot;:1}]]" href="http://lifehacker.com/become-a-better-listener-by-responding-not-reacting-1676147450">反应而不是</a> </span>反应的时候。诀窍是要意识到你是在反应还是反应过度。这并不总是很容易弄清楚，但希望到最后你会有一个更好的想法，你可以做些什么来减少你反应过度的机会。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h288646"><strong>确定你的触发因素</strong></h3><p class="sc-77igqf-0 bOfvBY">大多数时候，我们有特定的触发因素导致我们反应过度。我们都有一个按钮，每隔一段时间，总有人知道如何按下它。做好准备是防止过度反应的最好方法，所以想想那些真正对你影响最大的事情。如果你了解它们，当这些时刻到来时，你可以学会更好地控制自己。</p><p class="sc-77igqf-0 bOfvBY">就我个人而言，我知道当人们暗示我做了或做了某事而没有提供例子时，我反应过度了。有人用“你总是做这个或那个”来概括会激怒我，我会反应过度——以一种不太好的方式——要求一个具体的例子来说明我实际上什么时候做了这个或那个。</p><p class="sc-77igqf-0 bOfvBY">所以想想过去的一个月和所有让你心烦的事情。不管是否合理，找出最困扰你的事情。这可能是拒绝、批评，甚至是一些与你无关的事情，比如一个看起来无知的朋友，滔滔不绝地讲述你知道不是真实的事实<span></span>。</p><p class="sc-77igqf-0 bOfvBY">同样重要的是，要考虑基本的促成因素，如睡眠不足、饥饿或口渴，或者过度劳累。上次你反应过度的时候，你和你的身体是怎么回事？你有一段时间没吃东西了吗？那天你喝过水吗？忙碌的一周结束了吗？所有这些事情都会让最平静的人变成爱发脾气的孩子。我知道我自己也很“焦虑”。弄清楚是什么触发了你的炸弹，这样你就知道在下次 爆炸之前拆除它<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;http://lifehacker.com/fill-out-this-one-minute-form-every-day-and-find-out-wh-5901651&quot;,{&quot;metric25&quot;:1}]]" href="http://lifehacker.com/fill-out-this-one-minute-form-every-day-and-find-out-wh-5901651">。</a></span></p><h3 class="sc-1bwb26k-1 kpbNNd" id="h288647"><strong>做任何事之前先呼吸</strong></h3><p class="sc-77igqf-0 bOfvBY">当你正危险地徘徊在某个触发点附近时，你能做的最好的事情就是确保在做出反应之前暂停一下。即使你独自一人，心理世界的朱莉·汉克斯建议你<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://psychcentral.com/blog/archives/2013/03/04/how-to-stop-overreacting/&quot;,{&quot;metric25&quot;:1}]]" href="http://psychcentral.com/blog/archives/2013/03/04/how-to-stop-overreacting/" target="_blank" rel="noopener noreferrer">练习深呼吸</a> </span>:</p><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">当你感觉要失控时，深呼吸。深呼吸减缓你的战斗或逃跑反应，让你平静你的神经系统，选择一个更深思熟虑和更有成效的反应。下次有人在路上拦住你时，试着深呼吸。在我最近的脸书民意调查中，驾驶时的过度反应是最常被引用的过度反应场景。想象一下，如果所有的司机在回应、做手势或大声说脏话之前都先喘口气。</p></blockquote><p class="sc-77igqf-0 bOfvBY">听起来很简单，深呼吸可以让你平静下来，给你时间去认真思考刚刚发生的事情。也许你过早下结论，现在你有时间从头到尾思考问题。或者深呼吸让你意识到扔控制器可能会弄坏它。想象自己是一壶即将沸腾的水。没有什么能让你在一瞬间完全冷静下来，但是花一点时间呼吸并把自己从热源中分离出来会让事情不会变得一团糟。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h288648"><strong>听你的个人控制塔</strong></h3><p class="sc-77igqf-0 bOfvBY">一旦你喘过气，就向你的控制塔报到。想象你是一名飞行员，你不能做任何事情，直到你得到他们的许可。心理学家阿琳·k·昂格尔推荐你<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.drsgaryjoannmeierspsychologists.ca/uploads/UU3d5kqW/march_2015_issue_219.pdf&quot;,{&quot;metric25&quot;:1}]]" href="https://www.drsgaryjoannmeierspsychologists.ca/uploads/UU3d5kqW/march_2015_issue_219.pdf" target="_blank" rel="noopener noreferrer">永远用</a> </span>明确事物:</p><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><strong>冻结:</strong>注意你内心的变化(紧张、温度、心率)。保持呼吸，冷静下来。</li><li><strong>分析:</strong>理性思考刚刚发生的事情。找到一种富有同情心的方式，避免把发生在你身上的事情个人化。</li><li><strong>行动:</strong>用“我”的陈述来表达自己，或者让自己脱离这种情况。如果你仍然心烦意乱，想办法疏导你的感受。</li></ul><p class="sc-77igqf-0 bOfvBY">这个系统给了你系统地处理令人沮丧的情况的工具。情绪仍然会存在，但是你可以阻止它们爆发出来，并把它们重新引导到更有成效的事情上。当谈到回避过度反应时，你会惊讶于一点点时间能做多少。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h288649"><strong>展望过去和未来</strong></h3><p class="sc-77igqf-0 bOfvBY">当你走出那一刻后，总要花些时间对发生的事情有所了解。这对一些人来说可能更困难，但是回顾过去是很重要的。不要责备自己反应过度，而是要学习。问自己几个大问题:我为什么这么做？我能做些什么不同的事情？这有关系吗？如果你很难回顾你的行为，把你自己从事件中分离出来，给它一些距离。其他人会怎么看？其他人会如何处理？管理你的视角是最难做的事情之一，但从长远来看，这将对你帮助最大。</p><p class="sc-77igqf-0 bOfvBY">有了洞察力，你不仅应该回顾你的所作所为，还应该向前看。检查你的期望，确保它们是现实的。没有非黑即白，所以不要假设一切都是好的或坏的。人和环境都处于灰色地带。正如 Live Love Work 的克里斯塔·贝尔解释的那样，我们的许多过度反应都来自于对他人的期望过高。想想其他人想要什么，或者他们对事物的感受。<strong>反应过度本来就是自私的</strong>。不要认为你有资格得到某些东西。通过花一些时间来管理你的期望，你可以减少你反应过度的机会。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h288650">不要压抑你的情绪</h3><p class="sc-77igqf-0 bOfvBY">有时过度反应的发生是因为事情没有被触及。如果某件事困扰了你很长时间，那么最微小的刺痛也能让气球爆炸。如果可能的话，谈谈过去，解决你可能有的任何情感遗留问题。如果你没有，你会遇到精神病学家朱迪思·西格尔所说的<span></span>“泛滥”:</p><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">除了处理手头的挑战性时刻，你可能会发现每一个旧的和负面的情绪记忆都淹没了你...</p></blockquote><p class="sc-77igqf-0 bOfvBY">当问题出现时或尽可能快地解决问题。把它发泄出来，这样你就可以放下它，继续前进。找一个你可以发泄的朋友或重要的人。只要他们不是问题的一部分——你信任他们——当他们愿意听的时候就说出来。如果不能发泄到某人身上，<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;http://lifehacker.com/why-you-should-keep-a-journal-and-how-to-start-yours-1547057185&quot;,{&quot;metric25&quot;:1}]]" href="http://lifehacker.com/why-you-should-keep-a-journal-and-how-to-start-yours-1547057185">把它写在纸上</a> </span>。记日记，写一封信；尽一切努力卸货。当你的炸弹爆炸时，情感包袱会成为更多的燃料。</p><p class="sc-77igqf-0 bOfvBY"><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;http://lifehacker.com/how-and-why-to-develop-your-mental-toughness-1619305771&quot;,{&quot;metric25&quot;:1}]]" href="http://lifehacker.com/how-and-why-to-develop-your-mental-toughness-1619305771">日子不好过，弄个头盔</a> </span>。当事情不按你的方式发展时，除了失去冷静，还有很多选择。表达你自己，并对事情做出相应的反应，但是帮你自己和你周围的人一个忙，在定时炸弹开始之前阻止它。</p><p class="sc-77igqf-0 bOfvBY">这篇文章最初发表于 2015 年 1 月 9 日，并于 2019 年 9 月 26 日更新了新照片和链接。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-BbZwk1FZ4XE&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-BbZwk1FZ4XE&start=0) 
+
+知道反应和过度反应的区别很重要，因为不是所有强烈的反应都是过度反应。感受你的情绪并相应地表达自己是完全没问题的。就像在物理学中，每一个作用力都可以有一个大小相等方向相反的反作用力。如果某件事真的令人心烦意乱，你可以感到心烦意乱。如果某件事让你有理由生气，你可以生气。
+
+当你开始过度反应时，问题就出现了。比如，你忘了拿牛奶，这不是对别人大喊大叫的理由。你忘了，不是他们，更重要的是:这只是牛奶。过度反应不会让情况变得更好。假设有人忘了牛奶，现在你准备的饭不知何故被毁了。对他们大喊大叫不会让你喝到牛奶，现在你在你和对方之间制造了一个新的问题。压力会让我们反应过度，但过度反应不会释放任何压力。它所做的只是在我们的环境中制造更多的压力。
+
+有两种主要的过度反应者:内部的和外部的。内部反应过度者会纠结于那些不顺心的事情，无法去想其他的事情。他们的过度反应会影响他们的快乐，并让快乐妨碍他们想做的事情。例如，一个内心反应过度的人整天都在抱怨有人把他们挡在车流中，永远无法忘记这个事实。他们可能会开始思考，“为什么是我？”或者“这总是发生在我身上”，造成很大的压力。
+
+正如健全心智组织的苏珊解释的那样，外部过度反应堆是更经典的。当事情不尽如人意的时候，他们会大喊大叫，尖叫，或者回击。不管你自己的倾向如何，永远记住*有些*反应是合理的——尤其是当你 [反应而不是](http://lifehacker.com/become-a-better-listener-by-responding-not-reacting-1676147450) 反应的时候。诀窍是要意识到你是在反应还是反应过度。这并不总是很容易弄清楚，但希望到最后你会有一个更好的想法，你可以做些什么来减少你反应过度的机会。
+
+### **确定你的触发因素**
+
+大多数时候，我们有特定的触发因素导致我们反应过度。我们都有一个按钮，每隔一段时间，总有人知道如何按下它。做好准备是防止过度反应的最好方法，所以想想那些真正对你影响最大的事情。如果你了解它们，当这些时刻到来时，你可以学会更好地控制自己。
+
+就我个人而言，我知道当人们暗示我做了或做了某事而没有提供例子时，我反应过度了。有人用“你总是做这个或那个”来概括会激怒我，我会反应过度——以一种不太好的方式——要求一个具体的例子来说明我实际上什么时候做了这个或那个。
+
+所以想想过去的一个月和所有让你心烦的事情。不管是否合理，找出最困扰你的事情。这可能是拒绝、批评，甚至是一些与你无关的事情，比如一个看起来无知的朋友，滔滔不绝地讲述你知道不是真实的事实。
+
+同样重要的是，要考虑基本的促成因素，如睡眠不足、饥饿或口渴，或者过度劳累。上次你反应过度的时候，你和你的身体是怎么回事？你有一段时间没吃东西了吗？那天你喝过水吗？忙碌的一周结束了吗？所有这些事情都会让最平静的人变成爱发脾气的孩子。我知道我自己也很“焦虑”。弄清楚是什么触发了你的炸弹，这样你就知道在下次 爆炸之前拆除它 [。](http://lifehacker.com/fill-out-this-one-minute-form-every-day-and-find-out-wh-5901651)
+
+### **做任何事之前先呼吸**
+
+当你正危险地徘徊在某个触发点附近时，你能做的最好的事情就是确保在做出反应之前暂停一下。即使你独自一人，心理世界的朱莉·汉克斯建议你 [练习深呼吸](http://psychcentral.com/blog/archives/2013/03/04/how-to-stop-overreacting/) :
+
+> 当你感觉要失控时，深呼吸。深呼吸减缓你的战斗或逃跑反应，让你平静你的神经系统，选择一个更深思熟虑和更有成效的反应。下次有人在路上拦住你时，试着深呼吸。在我最近的脸书民意调查中，驾驶时的过度反应是最常被引用的过度反应场景。想象一下，如果所有的司机在回应、做手势或大声说脏话之前都先喘口气。
+
+听起来很简单，深呼吸可以让你平静下来，给你时间去认真思考刚刚发生的事情。也许你过早下结论，现在你有时间从头到尾思考问题。或者深呼吸让你意识到扔控制器可能会弄坏它。想象自己是一壶即将沸腾的水。没有什么能让你在一瞬间完全冷静下来，但是花一点时间呼吸并把自己从热源中分离出来会让事情不会变得一团糟。
+
+### **听你的个人控制塔**
+
+一旦你喘过气，就向你的控制塔报到。想象你是一名飞行员，你不能做任何事情，直到你得到他们的许可。心理学家阿琳·k·昂格尔推荐你 [永远用](https://www.drsgaryjoannmeierspsychologists.ca/uploads/UU3d5kqW/march_2015_issue_219.pdf) 明确事物:
+
+*   **冻结:**注意你内心的变化(紧张、温度、心率)。保持呼吸，冷静下来。
+*   **分析:**理性思考刚刚发生的事情。找到一种富有同情心的方式，避免把发生在你身上的事情个人化。
+*   **行动:**用“我”的陈述来表达自己，或者让自己脱离这种情况。如果你仍然心烦意乱，想办法疏导你的感受。
+
+这个系统给了你系统地处理令人沮丧的情况的工具。情绪仍然会存在，但是你可以阻止它们爆发出来，并把它们重新引导到更有成效的事情上。当谈到回避过度反应时，你会惊讶于一点点时间能做多少。
+
+### **展望过去和未来**
+
+当你走出那一刻后，总要花些时间对发生的事情有所了解。这对一些人来说可能更困难，但是回顾过去是很重要的。不要责备自己反应过度，而是要学习。问自己几个大问题:我为什么这么做？我能做些什么不同的事情？这有关系吗？如果你很难回顾你的行为，把你自己从事件中分离出来，给它一些距离。其他人会怎么看？其他人会如何处理？管理你的视角是最难做的事情之一，但从长远来看，这将对你帮助最大。
+
+有了洞察力，你不仅应该回顾你的所作所为，还应该向前看。检查你的期望，确保它们是现实的。没有非黑即白，所以不要假设一切都是好的或坏的。人和环境都处于灰色地带。正如 Live Love Work 的克里斯塔·贝尔解释的那样，我们的许多过度反应都来自于对他人的期望过高。想想其他人想要什么，或者他们对事物的感受。**反应过度本来就是自私的**。不要认为你有资格得到某些东西。通过花一些时间来管理你的期望，你可以减少你反应过度的机会。
+
+### 不要压抑你的情绪
+
+有时过度反应的发生是因为事情没有被触及。如果某件事困扰了你很长时间，那么最微小的刺痛也能让气球爆炸。如果可能的话，谈谈过去，解决你可能有的任何情感遗留问题。如果你没有，你会遇到精神病学家朱迪思·西格尔所说的“泛滥”:
+
+> 除了处理手头的挑战性时刻，你可能会发现每一个旧的和负面的情绪记忆都淹没了你...
+
+当问题出现时或尽可能快地解决问题。把它发泄出来，这样你就可以放下它，继续前进。找一个你可以发泄的朋友或重要的人。只要他们不是问题的一部分——你信任他们——当他们愿意听的时候就说出来。如果不能发泄到某人身上， [把它写在纸上](http://lifehacker.com/why-you-should-keep-a-journal-and-how-to-start-yours-1547057185) 。记日记，写一封信；尽一切努力卸货。当你的炸弹爆炸时，情感包袱会成为更多的燃料。
+
+[日子不好过，弄个头盔](http://lifehacker.com/how-and-why-to-develop-your-mental-toughness-1619305771) 。当事情不按你的方式发展时，除了失去冷静，还有很多选择。表达你自己，并对事情做出相应的反应，但是帮你自己和你周围的人一个忙，在定时炸弹开始之前阻止它。
+
+这篇文章最初发表于 2015 年 1 月 9 日，并于 2019 年 9 月 26 日更新了新照片和链接。

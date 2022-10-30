@@ -1,11 +1,124 @@
 # 2019 年 4 月 29 日这一周，网飞将会发生什么
 
-> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-april-2-1834338087>
+> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week-of-April-2-1834338087](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-april-2-1834338087)
 
 现在是五月，你的杯子满了——如果不是在你生活的所有领域，那么至少是最重要的一个领域:你躺在椅子上，一边吃着爆米花，一边交替看电视和玩手机(有人称这个区域为“客厅”)；我更喜欢“沙龙”或“客厅”)。我们有*击倒众议院*(周三)，一部关于 AOC 2018 年国会竞选的纪录片。(她会赢吗？我不会为你破坏它的！)或者，如果你喜欢清淡一点的食物，1983 年的《T2》中的《妈妈先生》(Mr. Mom 主演了《T4》之前的《鸟人》(Birdman )和青春期前的迈克尔·基顿，他在片中饰演一位全职父亲，他不会操作洗衣机，而他的妻子特瑞·加尔则喝着鸡尾酒，打着电话，做着其他只有男人才会做的事情。
 
-
+Watch
 
 没有吗？好的，那么你肯定会喜欢*图卡&伯蒂*，一部由 *Bojack 骑士*漫画家丽莎·哈纳华特创作的新动画系列，其中蒂凡尼·哈迪斯和黄阿丽为住在同一栋公寓楼的 30 多岁的小鸟配音。我知道！有时候，网飞似乎真的有你的号码。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-ZybYIJtbcu0&amp;start=0" data-chomp-id="ZybYIJtbcu0" data-recommend-id="youtube://ZybYIJtbcu0" id="youtube-ZybYIJtbcu0" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="ZybYIJtbcu0" data-recommend-id="youtube://ZybYIJtbcu0" id="youtube-ZybYIJtbcu0" data-recommended="false" class="js_recommend"/></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h123"><strong>本周到达</strong></h3><h4 class="sc-1bwb26k-1 kpbNNd" id="h124"><strong>4 月 29 日星期一</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>燃烧</em></li><li><em>模仿游戏</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h125"><strong>4 月 30 日星期二</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>安东尼·杰塞尔尼克:产科病房失火</li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80204451&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80204451" target="_blank" rel="noopener noreferrer"> <em>【叶鬼】:第二部</em> </a> </span> <em>(系列)</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80992853&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80992853" target="_blank" rel="noopener noreferrer"> <em>入口:动画</em> </a> </span> <em>(系列)</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h126"><strong>5 月 1 日星期三</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://www.netflix.com/title/81080637&quot;,{&quot;metric25&quot;:1}]]" href="http://www.netflix.com/title/81080637" target="_blank" rel="noopener noreferrer"> <em>推倒房子</em> </a> </span> <em> —网飞电影</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81049260&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81049260" target="_blank" rel="noopener noreferrer"> <em>穆纳菲克 2 </em> </a> </span> <em> —网飞电影</em></li><li><em>天使&amp;恶魔</em></li><li>奥斯汀·鲍尔斯:国际神秘人</li><li>奥斯汀·鲍尔斯:骚扰我的间谍</li><li><em>卡斯珀</em></li><li><em>追逐自由</em></li><li>叛乱第一部&amp;第二部</li><li><em>苏斯博士《戴帽子的猫》</em></li><li><em>阿呆和阿呆</em></li><li>拉斯维加斯的恐惧和厌恶</li><li><em>戈斯福德公园</em></li><li><em>小妖精</em></li><li><em>发胶(1988) </em></li><li><em>哈罗德&amp;库马尔从关塔那摩湾越狱</em></li><li>她唯一的选择</li><li><em>乡下人</em></li><li>《黑仔》第二季</li><li>约翰&amp;洋子:我们头顶上只有天空</li><li><em>只是朋友</em></li><li><em>革命道路</em></li><li>新墨西哥州罗斯威尔:第一季</li><li><em>疤面煞星</em></li><li><em>尖叫</em></li><li><em>扫雪机</em></li><li><em>夺取生命</em></li><li><em>达芬奇密码</em></li><li><em>《黑暗水晶》(1982) </em></li><li><em>矩阵</em></li><li><em>矩阵重新加载</em></li><li><em>矩阵革命</em></li><li><em>带着爱去罗马</em></li><li><em>婚礼傲客</em></li><li>谁害怕弗吉尼亚·伍尔夫？</li><li><em>僵尸之地</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h127"><strong>5 月 2 日星期四</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>殖民地:第三季</em></li><li><em>奥林巴斯已经沦陷</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h128"><strong>5 月 3 日</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81031939&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81031939" target="_blank" rel="noopener noreferrer"><em/></a></span><em>—网飞电影</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80208662&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80208662" target="_blank" rel="noopener noreferrer"> <em>尽在我家</em> </a> </span> <em> —网飞原创</em></li><li><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81030855&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81030855" target="_blank" rel="noopener noreferrer"><em>Alles ist gut</em></a></span><em>—网飞电影</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80198459&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80198459" target="_blank" rel="noopener noreferrer"> <em>【纸杯蛋糕】&amp;迪诺-总务处:第二季</em> </a> </span> <em> —网飞原著</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80219707&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80219707" target="_blank" rel="noopener noreferrer"> <em>死于我</em> </a> </span> <em> —网飞原创</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/81028570&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/81028570" target="_blank" rel="noopener noreferrer"> <em>十恶不赦，恶贯满盈</em> </a> </span> <em> —网飞电影</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80207066&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80207066" target="_blank" rel="noopener noreferrer"> <em>退缩</em> </a> </span> <em> —网飞原创</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80244640&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80244640" target="_blank" rel="noopener noreferrer"> <em>赵弼时:黎明之怒</em> </a> </span> <em> —网飞电影</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80999729&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80999729" target="_blank" rel="noopener noreferrer"> <em>去年夏天</em> </a> </span> <em> —网飞电影</em></li><li><em>妈妈先生</em></li><li><em>超自然:第 14 季</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80063599&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80063599" target="_blank" rel="noopener noreferrer"> <em>真实与彩虹王国:蘑菇镇</em> </a> </span> <em> —网飞原创</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80198137&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80198137" target="_blank" rel="noopener noreferrer"> <em>吐槽&amp;伯蒂</em> </a> </span> <em> —网飞原创</em></li><li><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.netflix.com/title/80225312&quot;,{&quot;metric25&quot;:1}]]" href="https://www.netflix.com/title/80225312" target="_blank" rel="noopener noreferrer"> <em>卧底</em> </a> </span> <em> —网飞原创</em></li></ul><h4 class="sc-1bwb26k-1 kpbNNd" id="h129"><strong>5 月 4 日星期六</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>像箭头一样</em></li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h130">这周离开</h3><h4 class="sc-1bwb26k-1 kpbNNd" id="h131"><strong>5 月 1 日出发</strong></h4><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>8 英里</li><li>巧克力</li><li><em>冷正义:收藏 3 </em></li><li><em>与狼共舞</em></li><li><em>迪士尼歌舞青春 3:高三</em></li><li><em>诺博士</em></li><li>纯洁心灵的永恒阳光</li><li><em>只为你的眼睛</em></li><li><em>从黄昏到黎明</em></li><li><em>来自俄罗斯的爱情</em></li><li><em>哥斯拉</em></li><li><em>黄金眼</em></li><li><em>招待所</em></li><li><em>钳口</em></li><li><em>钳口 2 </em></li><li><em>钳口 3 </em></li><li><em>大白鲨:复仇</em></li><li><em>杀人执照</em></li><li>女王特勤局</li><li>十六支蜡烛</li><li><em>滑动门</em></li><li><em> Somm </em></li><li><em> Somm:进入瓶子</em></li><li><em>鸟笼</em></li><li><em>十二金刚</em></li><li><em>英国病人</em></li><li><em>可爱的骨头</em></li><li><em>笔记本</em></li><li><em>另一个博林女孩</em></li><li><em>明天永不消逝</em></li><li><em>守望者</em></li></ul><div id="mgid-container" data-placement="2" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-ZybYIJtbcu0&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-ZybYIJtbcu0&start=0) 
+
+### **本周到达**
+
+#### **4 月 29 日星期一**
+
+*   *燃烧*
+*   *模仿游戏*
+
+#### **4 月 30 日星期二**
+
+*   安东尼·杰塞尔尼克:产科病房失火
+*   [*【叶鬼】:第二部*](https://www.netflix.com/title/80204451) *(系列)*
+*   [*入口:动画*](https://www.netflix.com/title/80992853) *(系列)*
+
+#### **5 月 1 日星期三**
+
+*   [*推倒房子*](http://www.netflix.com/title/81080637) *—网飞电影*
+*   [*穆纳菲克 2*](https://www.netflix.com/title/81049260) *—网飞电影*
+*   *天使&恶魔*
+*   奥斯汀·鲍尔斯:国际神秘人
+*   奥斯汀·鲍尔斯:骚扰我的间谍
+*   *卡斯珀*
+*   *追逐自由*
+*   叛乱第一部&第二部
+*   *苏斯博士《戴帽子的猫》*
+*   *阿呆和阿呆*
+*   拉斯维加斯的恐惧和厌恶
+*   *戈斯福德公园*
+*   *小妖精*
+*   *发胶(1988)*
+*   *哈罗德&库马尔从关塔那摩湾越狱*
+*   她唯一的选择
+*   *乡下人*
+*   《黑仔》第二季
+*   约翰&洋子:我们头顶上只有天空
+*   *只是朋友*
+*   *革命道路*
+*   新墨西哥州罗斯威尔:第一季
+*   *疤面煞星*
+*   *尖叫*
+*   *扫雪机*
+*   *夺取生命*
+*   *达芬奇密码*
+*   *《黑暗水晶》(1982)*
+*   *矩阵*
+*   *矩阵重新加载*
+*   *矩阵革命*
+*   *带着爱去罗马*
+*   *婚礼傲客*
+*   谁害怕弗吉尼亚·伍尔夫？
+*   *僵尸之地*
+
+#### **5 月 2 日星期四**
+
+*   *殖民地:第三季*
+*   *奥林巴斯已经沦陷*
+
+#### **5 月 3 日**
+
+*   [](https://www.netflix.com/title/81031939)**—网飞电影**
+*   *[*尽在我家*](https://www.netflix.com/title/80208662) *—网飞原创**
+*   *[*Alles ist gut*](https://www.netflix.com/title/81030855)*—网飞电影**
+*   *[*【纸杯蛋糕】&迪诺-总务处:第二季*](https://www.netflix.com/title/80198459) *—网飞原著**
+*   *[*死于我*](https://www.netflix.com/title/80219707) *—网飞原创**
+*   *[*十恶不赦，恶贯满盈*](https://www.netflix.com/title/81028570) *—网飞电影**
+*   *[*退缩*](https://www.netflix.com/title/80207066) *—网飞原创**
+*   *[*赵弼时:黎明之怒*](https://www.netflix.com/title/80244640) *—网飞电影**
+*   *[*去年夏天*](https://www.netflix.com/title/80999729) *—网飞电影**
+*   **妈妈先生**
+*   **超自然:第 14 季**
+*   *[*真实与彩虹王国:蘑菇镇*](https://www.netflix.com/title/80063599) *—网飞原创**
+*   *[*吐槽&伯蒂*](https://www.netflix.com/title/80198137) *—网飞原创**
+*   *[*卧底*](https://www.netflix.com/title/80225312) *—网飞原创**
+
+#### ***5 月 4 日星期六***
+
+*   **像箭头一样**
+
+### *这周离开*
+
+#### ***5 月 1 日出发***
+
+*   *8 英里*
+*   *巧克力*
+*   **冷正义:收藏 3**
+*   **与狼共舞**
+*   **迪士尼歌舞青春 3:高三**
+*   **诺博士**
+*   *纯洁心灵的永恒阳光*
+*   **只为你的眼睛**
+*   **从黄昏到黎明**
+*   **来自俄罗斯的爱情**
+*   **哥斯拉**
+*   **黄金眼**
+*   **招待所**
+*   **钳口**
+*   **钳口 2**
+*   **钳口 3**
+*   **大白鲨:复仇**
+*   **杀人执照**
+*   *女王特勤局*
+*   *十六支蜡烛*
+*   **滑动门**
+*   **Somm**
+*   **Somm:进入瓶子**
+*   **鸟笼**
+*   **十二金刚**
+*   **英国病人**
+*   **可爱的骨头**
+*   **笔记本**
+*   **另一个博林女孩**
+*   **明天永不消逝**
+*   **守望者**

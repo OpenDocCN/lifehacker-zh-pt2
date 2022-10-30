@@ -1,10 +1,10 @@
 # 关注一下明天参加反垄断听证会的科技界最有权势的首席执行官
 
-> 原文：<https://lifehacker.com/watch-techs-most-powerful-ceos-take-part-in-an-antitrus-1844534775>
+> 原文:[https://life hacker . com/watch-techs-most-powerful-CEOs-take-part-in-an-antitrus-1844534775](https://lifehacker.com/watch-techs-most-powerful-ceos-take-part-in-an-antitrus-1844534775)
 
 四位最具影响力的科技行业首席执行官将于 7 月 29 日周三在众议院司法委员会(House Judiciary Committee)作证，以确定他们的公司是否针对规模较小的竞争对手公司实施了反竞争商业策略。听证会将通过 YouTube 直播，任何人都可以观看。
 
-
+Watch
 
 众议院小组委员会将就反竞争行为向亚马逊的杰夫·贝索斯、苹果的蒂姆·库克、谷歌的桑德尔·皮帅和脸书的马克·扎克伯格提出质询，包括所谓的“复制-收购-扼杀”和“锁定”策略。
 
@@ -22,4 +22,4 @@
 
 然而最终证明，这场听证会是一件大事，你可以通过嵌入下面的 YouTube 视频或众议院司法委员会官方 YouTube 页面 上的 [观看。](https://www.youtube.com/watch?v=WBFDQvIrWYM)
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-WBFDQvIrWYM&amp;start=0" data-chomp-id="WBFDQvIrWYM" data-recommend-id="youtube://WBFDQvIrWYM" id="youtube-WBFDQvIrWYM" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="WBFDQvIrWYM" data-recommend-id="youtube://WBFDQvIrWYM" id="youtube-WBFDQvIrWYM" data-recommended="false" class="js_recommend"/></span></div> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-WBFDQvIrWYM&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-WBFDQvIrWYM&start=0)

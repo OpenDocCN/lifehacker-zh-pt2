@@ -1,10 +1,10 @@
 # 孩子夜间呕吐灾难幸存指南
 
-> 原文：<https://lifehacker.com/a-guide-to-surviving-your-kids-nighttime-vomit-disaster-1834835112>
+> 原文:[https://life hacker . com/a-guide-to-surviving-your-kids-night-呕吐灾难-1834835112](https://lifehacker.com/a-guide-to-surviving-your-kids-nighttime-vomit-disaster-1834835112)
 
 我女儿第一次呕吐的时候，我吓得大叫，然后她就哭了。她两岁，从日托所感染了胃病。我觉得自己是个糟糕的妈妈，于是说:“哦，对不起，宝贝——没关系，没关系，没关系。”但是这并不好。她又吐了。我又大叫。她又哭了。这一刻我赢不了。
 
-
+Watch
 
 从那以后，在我们家经历了多年的各种疾病之后，我开始接受孩子呕吐的事实。有时，在最糟糕的情况下，它发生在半夜。作为父母，你无法阻止，但你可以尽量限制伤害。我已经制定了一个行动计划。
 
@@ -44,4 +44,6 @@
 
 不要因为打开*寻找多莉*和你的孩子在下午剩下的时间里分神而感到内疚。稍后，一旦她恢复到 100%，如果她有任何困难，你可以复习下一次如何瞄准得更好。在这个视频中，父母教他们的孩子如何在桶里呕吐(我保证，没有真的呕吐)。这是一项被高度忽视的生活技能。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-jQs25fD_uow&amp;start=0" data-chomp-id="jQs25fD_uow" data-recommend-id="youtube://jQs25fD_uow" id="youtube-jQs25fD_uow" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="jQs25fD_uow" data-recommend-id="youtube://jQs25fD_uow" id="youtube-jQs25fD_uow" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY"><em>特别感谢安娜，</em> <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.facebook.com/groups/2018785615043946/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.facebook.com/groups/2018785615043946/" target="_blank" rel="noopener noreferrer"> <em>后代脸书集团</em> </a> </span> <em>的成员，她提出了一个关于半夜清理呕吐物的“最佳操作顺序”的问题，启发了本指南。我们希望你的小宝贝感觉好些了。</em> <br/></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-jQs25fD_uow&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-jQs25fD_uow&start=0) 
+
+*特别感谢安娜，* [*后代脸书集团*](https://www.facebook.com/groups/2018785615043946/) *的成员，她提出了一个关于半夜清理呕吐物的“最佳操作顺序”的问题，启发了本指南。我们希望你的小宝贝感觉好些了。*

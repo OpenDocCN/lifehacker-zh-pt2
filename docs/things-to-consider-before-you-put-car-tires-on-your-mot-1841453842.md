@@ -1,10 +1,10 @@
 # 给摩托车装上汽车轮胎之前要考虑的事情
 
-> 原文：<https://jalopnik.com/things-to-consider-before-you-put-car-tires-on-your-mot-1841453842>
+> 原文:[https://jalopnik . com/things-to-consider-before-you-put-car-tires-on-you-mot-1841453842](https://jalopnik.com/things-to-consider-before-you-put-car-tires-on-your-mot-1841453842)
 
 既然 [我肯定*不是*摩托车骑手](https://jalopnik.com/i-got-my-motorcycle-license-and-i-still-have-zero-desir-1796146436) ，我实际上不知道人们有时会把汽车轮胎换到他们的摩托车上。不过，我对此很好奇。如果你想尝试一下，这里有一些事情需要考虑。
 
-
+Watch
 
 事实证明，进行这种交换的人显然被称为“ [”黑暗势力](https://www.haulnride.com/the-dark-side-the-love-of-car-tires-on-motorcycles) ”《T4》[骑手杂志](https://ridermagazine.com/2016/05/20/tales-from-the-dark-side-putting-car-tires-on-motorcycles/)2016 年的一篇报道曾这样描述他们:
 
@@ -30,4 +30,8 @@
 
 这个伟大的视频详细说明了其余部分。
 
-<iframe data-src="https://jalopnik.com/embed/inset/iframe?id=youtube-video-hEZeR9E3JyY&amp;start=0" data-chomp-id="hEZeR9E3JyY" data-recommend-id="youtube://hEZeR9E3JyY" id="youtube-hEZeR9E3JyY" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="hEZeR9E3JyY" data-recommend-id="youtube://hEZeR9E3JyY" id="youtube-hEZeR9E3JyY" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">告诉我:你是黑暗势力吗？你觉得怎么样？</p><p class="sc-77igqf-0 bOfvBY">敬戴夫！</p> </body> </html></iframe>
+ [https://jalopnik.com/embed/inset/iframe?id=youtube-video-hEZeR9E3JyY&start=0](https://jalopnik.com/embed/inset/iframe?id=youtube-video-hEZeR9E3JyY&start=0) 
+
+告诉我:你是黑暗势力吗？你觉得怎么样？
+
+敬戴夫！

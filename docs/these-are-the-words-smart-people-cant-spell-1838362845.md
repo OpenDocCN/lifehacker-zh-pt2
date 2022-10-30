@@ -1,7 +1,46 @@
 # 这些是聪明人不会拼写的单词
 
-> 原文：<https://lifehacker.com/these-are-the-words-smart-people-cant-spell-1838362845>
+> 原文:[https://life hacker . com/these-is-the-words-smart-people-cant-spell-1838362845](https://lifehacker.com/these-are-the-words-smart-people-cant-spell-1838362845)
 
 语言学家和 [*因为互联网*](https://www.amazon.com/Because-Internet-Understanding-Rules-Language-ebook/dp/B076GNS3J4?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/these-are-the-words-smart-people-cant-spell-1838362845&asc_source=&tag=kinjalifehackerlink-20) 作者格雷琴·麦卡洛克要求她的推特粉丝分享那些他们不依靠拼写检查实际上不会拼写的单词。她得到的答案会安慰和陶冶你。
 
-Watch<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1175950693057929217&amp;autosize=1" autoresize="true" id="twitter-1175950693057929217" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">作家、教师、工程师、学者和其他聪明人分享了他们的问题词汇。以下是一些最受欢迎的回答，以及我们的拼写提示:</p><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><strong>节奏:</strong>是一个<em> rh </em>和<em> th </em>，每个后面跟着一个字母。</li><li><strong>判断:</strong>本判断中没有<em> e </em>动作。</li><li><strong>官僚主义:</strong>代表<em>美丽</em>我想起了一个卡通人物说的话“你是 bee-eee-aaa-youuutiful！”在你的头脑中，以同样的方式发<em>官僚</em>中<em> eau </em>的音。想起一个<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Commerce&quot;,&quot;lifehacker - These Are the Words Smart People Can&amp;#39;t Spell&quot;,&quot;B01L9858QM&quot;]]" href="https://www.amazon.com/Beautiful-Bureaucrat-Novel-Helen-Phillips/dp/B01L9858QM?asc_campaign=InlineText&amp;asc_refurl=https://lifehacker.com/these-are-the-words-smart-people-cant-spell-1838362845&amp;asc_source=&amp;tag=kinjalifehackerlink-20" target="_blank" rel="nofollow" data-amazonasin="B01L9858QM" data-amazontag="kinjalifehackerlink-20">漂亮的官僚</a> </span>。</li><li>资产阶级:他们在世界各地都喝波旁酒(T2，geo，T3)...你要独自面对《T4》这部电影。</li><li>紫红色:你会认为<em> s </em>先走。但是紫红色操你。</li><li>等级:你在等级中地位更高(<em> i-er </em>)。</li><li><strong>真空:</strong> <em>见</em>污物一次，sc <em> oo </em> p 它两次。</li><li>千禧一代:他们什么都想要两个！(呃抱歉。)</li><li>生意:很忙。或者，你乘公共汽车去做生意。</li><li><strong>特权:</strong> <em>我</em>没有<em>的腿</em>站着。</li><li>令人作呕:画面 a<em>nau</em>tical<em>se</em>asick m<em>ous</em>e</li><li><strong>尼采:</strong>你在<em> zee 学校</em>了解他。</li><li><strong>斐波那契:</strong> <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://twitter.com/ReadHPR/status/1175968650232238082&quot;,{&quot;metric25&quot;:1}]]" href="https://twitter.com/ReadHPR/status/1175968650232238082" target="_blank" rel="noopener noreferrer">数学教育家 H. P .里德</a> </span>有一个很棒的窍门:“b、n 和 c 跟随斐波那契数列 1，1，2 的开始。”</li><li><strong>依赖:</strong>都是<em> e </em>的</li><li>抵抗:像法国人一样说。</li><li><strong>维护:</strong>主室有十只蚂蚁。</li><li><strong>骚扰:</strong>一个<em> r </em>和两个<em> ss </em>的，像(抱歉)“你<!-- --> r 屁股。”</li><li><strong>尴尬:</strong>两个<em> r </em>的，两个<em> ss </em>的，在脑子里滚着<em> r </em>说出来。</li><li><strong>涂鸦:</strong>喷漆去<em> fffff </em>。<br/></li><li><strong>开胃菜:</strong>称之为小吃。</li></ul><p class="sc-77igqf-0 bOfvBY">双<em> c </em>和<em> s </em>是一个常见的问题。很难一下子学会所有这些，但是这里有:</p><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>偶尔，你咳嗽咳嗽打喷嚏。</li><li>容纳:你要容纳两个孩子和两个男人。</li><li><strong>必要:</strong> <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://twitter.com/blank_monster/status/1175966787671941120&quot;,{&quot;metric25&quot;:1}]]" href="https://twitter.com/blank_monster/status/1175966787671941120" target="_blank" rel="noopener noreferrer">推特用户 Tye </a> </span>说一件衬衫有一个<em> c </em> ollar 和两个<em> s </em> leeves 是必要的。</li><li><strong>西兰花:</strong> <span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://twitter.com/sarambsimon/status/1175984230930821121&quot;,{&quot;metric25&quot;:1}]]" href="https://twitter.com/sarambsimon/status/1175984230930821121" target="_blank" rel="noopener noreferrer">记者萨拉西蒙</a> </span>图片一位<em> l </em> ady 给两位<em> c </em> ats 上西兰花。</li></ul><p class="sc-77igqf-0 bOfvBY">图书管理员韦恩·琼斯(Wayne Jones)指出了一个关于他如何拼写不出餐馆的经典帕特里斯·奥尼尔笑话(从 4:18 开始):</p><div class="ooo3c9-0 cmUFVa align--bleed has-video media-large video-embed embed-frame"><span class="flex-video widescreen"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-h1BY56bZyLk&amp;start=258" data-chomp-id="h1BY56bZyLk" data-recommend-id="youtube://h1BY56bZyLk" id="youtube-h1BY56bZyLk" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/><span data-chomp-id="h1BY56bZyLk" data-recommend-id="youtube://h1BY56bZyLk" id="youtube-h1BY56bZyLk" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">如果你有同样的问题，想象一下一头公牛颠覆了中国:一头在餐馆里的公牛。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">更多强硬言论见<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://twitter.com/GretchenAMcC/status/1175950693057929217&quot;,{&quot;metric25&quot;:1}]]" href="https://twitter.com/GretchenAMcC/status/1175950693057929217" target="_blank" rel="noopener noreferrer">原 Twitter 帖子</a> </span>。</p> </body> </html></iframe>
+Watch [https://lifehacker.com/embed/inset/iframe?id=twitter-1175950693057929217&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1175950693057929217&autosize=1) 
+
+作家、教师、工程师、学者和其他聪明人分享了他们的问题词汇。以下是一些最受欢迎的回答，以及我们的拼写提示:
+
+*   **节奏:**是一个 *rh* 和 *th* ，每个后面跟着一个字母。
+*   **判断:**本判断中没有 *e* 动作。
+*   **官僚主义:**代表*美丽*我想起了一个卡通人物说的话“你是 bee-eee-aaa-youuutiful！”在你的头脑中，以同样的方式发*官僚*中 *eau* 的音。想起一个 [漂亮的官僚](https://www.amazon.com/Beautiful-Bureaucrat-Novel-Helen-Phillips/dp/B01L9858QM?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/these-are-the-words-smart-people-cant-spell-1838362845&asc_source=&tag=kinjalifehackerlink-20) 。
+*   资产阶级:他们在世界各地都喝波旁酒(T2，geo，T3)...你要独自面对《T4》这部电影。
+*   紫红色:你会认为 *s* 先走。但是紫红色操你。
+*   等级:你在等级中地位更高( *i-er* )。
+*   **真空:** *见*污物一次，sc *oo* p 它两次。
+*   千禧一代:他们什么都想要两个！(呃抱歉。)
+*   生意:很忙。或者，你乘公共汽车去做生意。
+*   **特权:** *我*没有*的腿*站着。
+*   令人作呕:画面 a*nau*tical*se*asick m*ous*e
+*   **尼采:**你在 *zee 学校*了解他。
+*   **斐波那契:** [数学教育家 H. P .里德](https://twitter.com/ReadHPR/status/1175968650232238082) 有一个很棒的窍门:“b、n 和 c 跟随斐波那契数列 1，1，2 的开始。”
+*   **依赖:**都是 *e* 的
+*   抵抗:像法国人一样说。
+*   **维护:**主室有十只蚂蚁。
+*   **骚扰:**一个 *r* 和两个 *ss* 的，像(抱歉)“你 r 屁股。”
+*   **尴尬:**两个 *r* 的，两个 *ss* 的，在脑子里滚着 *r* 说出来。
+*   **涂鸦:**喷漆去 *fffff* 。
+
+*   **开胃菜:**称之为小吃。
+
+双 *c* 和 *s* 是一个常见的问题。很难一下子学会所有这些，但是这里有:
+
+*   偶尔，你咳嗽咳嗽打喷嚏。
+*   容纳:你要容纳两个孩子和两个男人。
+*   **必要:** [推特用户 Tye](https://twitter.com/blank_monster/status/1175966787671941120) 说一件衬衫有一个 *c* ollar 和两个 *s* leeves 是必要的。
+*   **西兰花:** [记者萨拉西蒙](https://twitter.com/sarambsimon/status/1175984230930821121) 图片一位 *l* ady 给两位 *c* ats 上西兰花。
+
+图书管理员韦恩·琼斯(Wayne Jones)指出了一个关于他如何拼写不出餐馆的经典帕特里斯·奥尼尔笑话(从 4:18 开始):
+
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-h1BY56bZyLk&start=258](https://lifehacker.com/embed/inset/iframe?id=youtube-video-h1BY56bZyLk&start=258) 
+
+如果你有同样的问题，想象一下一头公牛颠覆了中国:一头在餐馆里的公牛。
+
+更多强硬言论见 [原 Twitter 帖子](https://twitter.com/GretchenAMcC/status/1175950693057929217) 。

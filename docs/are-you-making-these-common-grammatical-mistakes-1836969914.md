@@ -1,11 +1,48 @@
 # 你在犯这些常见的语法错误吗？
 
-> 原文：<https://lifehacker.com/are-you-making-these-common-grammatical-mistakes-1836969914>
+> 原文:[https://life hacker . com/are-you-making-这些常见的语法错误-1836969914](https://lifehacker.com/are-you-making-these-common-grammatical-mistakes-1836969914)
 
 没有人能像编辑一样意识到我们对英语的无情滥用。放错一个修改器，你的编辑器会(希望)让你知道。过度使用诸如“非常”、“只是”和“真的”这样的强化词，你的编辑会告诉你，你真的只是对你的写作没有任何帮助。我在 Lifehacker 的编辑已经正式让我改掉了过度使用“经常”的习惯，正如她指出的那样，这并不完全是*的错，*，只是“经常”的一种更长的说法
 
-
+Watch
 
 现在，《华盛顿邮报》的健康和科学编辑劳拉·赫尔穆特 来到这里，帮助我们从其他方面改变英语。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1158039072067264515&amp;autosize=1" autoresize="true" id="twitter-1158039072067264515" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">她列出了她个人最喜欢的(最不喜欢的？)在<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://twitter.com/laurahelmuth/status/1158039072067264515?s=21&quot;,{&quot;metric25&quot;:1}]]" href="https://twitter.com/laurahelmuth/status/1158039072067264515?s=21" target="_blank" rel="noopener noreferrer">推特</a> </span>上失误，然后她的追随者附和着多了宝石。这是那种我可以整天阅读的帖子，我已经这样做了，为了与你分享最好的。<br/></p><h3 class="sc-1bwb26k-1 kpbNNd" id="h292055">劳拉送的</h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>“巨大”是指非常坏的事情，而不是非常大的事情。</li><li>“男人和女人”在几乎所有情况下都应该是“人”。这个世界已经性别过度了。</li><li>“出名”是一个你几乎不需要的词。如果你的读者知道一个人或一件事，你不需要告诉他们它很有名。如果你的读者不知道某件事，称之为著名可能会让你的读者在你的故事中感到无知或不受欢迎。(一个例外是，正如一位追随者指出的，如果某人现在相对不知名，但在过去却是个大人物，那就说这个人“在她那个时代很有名”。)</li><li>它的拼写是“impostor”而不是“imposter”，这是我在一个关于冒名顶替综合症的故事中被引用后才知道的。</li><li>在某些情况下，用“spawn”做比喻是没问题的，但请记住，它的字面意思是鱼或青蛙射出卵子或精子。</li><li>避免“某某相信”，因为你不知道他们相信什么，只知道他们说什么。</li></ul><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h292056">从她的追随者那里</h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>倒数第二意味着“倒数第二”，而不是“远远超过最终”<br/></li><li>把“事实”放在某事之前是没有必要的。</li><li>“为了。”只是“to”做同样的工作。</li><li>应使用宾语代词“我”时使用“我”。例句:“他带我和简去了商店。”知道什么是对的诀窍？去掉句子中的另一个人。“他带我去商店”听起来不太对劲。</li><li>有头衔的和有头衔的。这篇论文的标题是 XYZ。我的狗是个好女孩，有权吃饼干。<br/></li><li>试图从我的词汇中消除“实际上”，主要是口语词汇。没有增加任何东西。</li><li>“而原因是……”是多余的。就说，“原因是……”</li><li>独一无二意味着独一无二，它是绝对的，没有独特的程度。非常独特，更独特，最独特等。，都是没有意义的。</li><li>从技术上来说，这不是一个错误，但是在提出观点之前使用一个未经证实的“有趣的”是令人讨厌的，尤其是如果在同一篇论文中多次使用。</li><li>我经常看到误用的另一个词是“沉默寡言”它不是“不情愿”的同义词。意思是“守口如瓶”，或者“沉默寡言”</li><li>我发现“不同”这个词通常是不必要的——12 个不同的人...<br/></li><li>毫不起眼。描述一下，妈的。</li></ul><p class="sc-77igqf-0 bOfvBY">只是为了好玩，我要把我自己最讨厌的东西扔进去——当你真正的意思是“多于”或“少于”(数量)时，使用“超过”或“低于”(描述空间中的物理关系)。票价超过 10 美元？不，它们的价格超过了 10 美元。</p><p class="sc-77igqf-0 bOfvBY">当然，我们必须有一定的灵活性；语言随着时间而进化。语言的目的是交流，如果你在一个非正式的环境中被理解——嗯，通常，这就是你所需要的。<br/></p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><hr class="gcp5ez-0 hKlTiw"/><p class="sc-77igqf-0 bOfvBY"><em>更多来自 Lifehacker 的内容，一定要在 Instagram 上关注我们</em><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.instagram.com/lifehackerdotcom/&quot;,{&quot;metric25&quot;:1}]]" href="https://www.instagram.com/lifehackerdotcom/" target="_blank" rel="noopener noreferrer"><em>@ lifehackerdotcom</em></a></span><em>。</em></p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1158039072067264515&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1158039072067264515&autosize=1) 
+
+她列出了她个人最喜欢的(最不喜欢的？)在 [推特](https://twitter.com/laurahelmuth/status/1158039072067264515?s=21) 上失误，然后她的追随者附和着多了宝石。这是那种我可以整天阅读的帖子，我已经这样做了，为了与你分享最好的。
+
+### 劳拉送的
+
+*   “巨大”是指非常坏的事情，而不是非常大的事情。
+*   “男人和女人”在几乎所有情况下都应该是“人”。这个世界已经性别过度了。
+*   “出名”是一个你几乎不需要的词。如果你的读者知道一个人或一件事，你不需要告诉他们它很有名。如果你的读者不知道某件事，称之为著名可能会让你的读者在你的故事中感到无知或不受欢迎。(一个例外是，正如一位追随者指出的，如果某人现在相对不知名，但在过去却是个大人物，那就说这个人“在她那个时代很有名”。)
+*   它的拼写是“impostor”而不是“imposter”，这是我在一个关于冒名顶替综合症的故事中被引用后才知道的。
+*   在某些情况下，用“spawn”做比喻是没问题的，但请记住，它的字面意思是鱼或青蛙射出卵子或精子。
+*   避免“某某相信”，因为你不知道他们相信什么，只知道他们说什么。
+
+### 从她的追随者那里
+
+*   倒数第二意味着“倒数第二”，而不是“远远超过最终”
+
+*   把“事实”放在某事之前是没有必要的。
+*   “为了。”只是“to”做同样的工作。
+*   应使用宾语代词“我”时使用“我”。例句:“他带我和简去了商店。”知道什么是对的诀窍？去掉句子中的另一个人。“他带我去商店”听起来不太对劲。
+*   有头衔的和有头衔的。这篇论文的标题是 XYZ。我的狗是个好女孩，有权吃饼干。
+
+*   试图从我的词汇中消除“实际上”，主要是口语词汇。没有增加任何东西。
+*   “而原因是……”是多余的。就说，“原因是……”
+*   独一无二意味着独一无二，它是绝对的，没有独特的程度。非常独特，更独特，最独特等。，都是没有意义的。
+*   从技术上来说，这不是一个错误，但是在提出观点之前使用一个未经证实的“有趣的”是令人讨厌的，尤其是如果在同一篇论文中多次使用。
+*   我经常看到误用的另一个词是“沉默寡言”它不是“不情愿”的同义词。意思是“守口如瓶”，或者“沉默寡言”
+*   我发现“不同”这个词通常是不必要的——12 个不同的人...
+
+*   毫不起眼。描述一下，妈的。
+
+只是为了好玩，我要把我自己最讨厌的东西扔进去——当你真正的意思是“多于”或“少于”(数量)时，使用“超过”或“低于”(描述空间中的物理关系)。票价超过 10 美元？不，它们的价格超过了 10 美元。
+
+当然，我们必须有一定的灵活性；语言随着时间而进化。语言的目的是交流，如果你在一个非正式的环境中被理解——嗯，通常，这就是你所需要的。
+
+* * *
+
+*更多来自 Lifehacker 的内容，一定要在 Instagram 上关注我们*[*@ lifehackerdotcom*](https://www.instagram.com/lifehackerdotcom/)*。*

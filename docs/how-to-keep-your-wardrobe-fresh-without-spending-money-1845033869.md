@@ -1,10 +1,10 @@
 # 如何不花钱让衣柜保持清新
 
-> 原文：<https://lifehacker.com/how-to-keep-your-wardrobe-fresh-without-spending-money-1845033869>
+> 原文:[https://life hacker . com/how-to-keep your-crowd-without-spending money-1845033869](https://lifehacker.com/how-to-keep-your-wardrobe-fresh-without-spending-money-1845033869)
 
 对很多人来说，今年我们与服装的关系发生了很大变化。仅仅几个月前，我们还在整理行头(我不严格地使用这个词)去上班、见朋友或做其他户外活动。现在，我们的日常着装决定可以归结为普通的软裤、考究的软裤，以及整天穿着睡衣。
 
-
+Watch
 
 然而，对于一些人来说，为大流行后的生活购买新衣服和饰品的诱惑仍然存在。会是什么季节？时尚潮流还算一种东西吗？我们能够保持我们已经习惯的一定程度的舒适吗？谁知道呢！但只要我们还在里面，这就是换装的最佳时机。以下是 CNN 最近的一篇文章 中的一些技巧 [，教你如何做到不花任何(或至少不花太多)钱。](https://www.cnn.com/style/article/guide-old-clothes-sept/index.html)
 
@@ -30,4 +30,8 @@
 
 但是，我们这些没有高级缝纫技术的人可以做很多事情。例如，你可以把一件 [旧衬衫变成一个面罩，配上与之相配的头带](https://www.youtube.com/watch?v=ucGPOFbXyAQ) (或者大手帕，如果你喜欢的话)，根本不用缝任何东西:
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-ucGPOFbXyAQ&amp;start=0" data-chomp-id="ucGPOFbXyAQ" data-recommend-id="youtube://ucGPOFbXyAQ" id="youtube-ucGPOFbXyAQ" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="ucGPOFbXyAQ" data-recommend-id="youtube://ucGPOFbXyAQ" id="youtube-ucGPOFbXyAQ" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">这基本上是 2020 年的版本，那时我们用丢弃的衣服制作自己的发圈，尽管它们似乎又成为了一件事？无论如何，有很多视频<span></span>也可以带你经历这个过程。</p><p class="sc-77igqf-0 bOfvBY">这些只是最基本的。为了获得其他想法，夏尔马和阿莱茵推荐看看 YouTubers 上的<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.youtube.com/channel/UCqP8HosuK1VRD60wBaEEFtA&quot;,{&quot;metric25&quot;:1}]]" href="https://www.youtube.com/channel/UCqP8HosuK1VRD60wBaEEFtA" target="_blank" rel="noopener noreferrer">【安妮卡维多利亚】</a> </span>和<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://www.youtube.com/user/coolirpa&quot;,{&quot;metric25&quot;:1}]]" href="https://www.youtube.com/user/coolirpa" target="_blank" rel="noopener noreferrer">四月杨</a> </span>(又名 Coolirpa)，他们发布了各种升级和再利用的视频。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-ucGPOFbXyAQ&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-ucGPOFbXyAQ&start=0) 
+
+这基本上是 2020 年的版本，那时我们用丢弃的衣服制作自己的发圈，尽管它们似乎又成为了一件事？无论如何，有很多视频也可以带你经历这个过程。
+
+这些只是最基本的。为了获得其他想法，夏尔马和阿莱茵推荐看看 YouTubers 上的 [【安妮卡维多利亚】](https://www.youtube.com/channel/UCqP8HosuK1VRD60wBaEEFtA) 和 [四月杨](https://www.youtube.com/user/coolirpa) (又名 Coolirpa)，他们发布了各种升级和再利用的视频。

@@ -1,10 +1,10 @@
 # 以下是你在底特律错过的第二轮民主党总统候选人辩论
 
-> 原文：<https://lifehacker.com/heres-what-you-missed-from-round-two-of-the-democratic-1836880645>
+> 原文:[https://life hacker . com/heres-what-you-miss-from round-two-of-the-democratic-1836880645](https://lifehacker.com/heres-what-you-missed-from-round-two-of-the-democratic-1836880645)
 
 周三晚上，又有 10 名候选人登上底特律的舞台，参加第二轮民主党总统候选人辩论，讨论医疗保健、气候变化和警察改革等问题——但乔·拜登是每个候选人心中的明确主题。
 
-
+Watch
 
 几乎每个候选人都把矛头指向了前副总统，包括科里·布克、卡玛拉·哈里斯和柯尔斯顿·吉利布兰德，他们每个人都批评了他的政治记录。与周二的第一轮辩论 不同——相比之下，第一轮辩论似乎很枯燥——每个候选人都寻求在全国聚光灯下的时刻，作为最后一分钟吸引注意力(和筹款)。
 
@@ -12,4 +12,56 @@
 
 ### 拜登告诉哈里斯在辩论前要“放轻松”
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-bk4PZ9kyPqk&amp;start=0" data-chomp-id="bk4PZ9kyPqk" data-recommend-id="youtube://bk4PZ9kyPqk" id="youtube-bk4PZ9kyPqk" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"><span data-chomp-id="bk4PZ9kyPqk" data-recommend-id="youtube://bk4PZ9kyPqk" id="youtube-bk4PZ9kyPqk" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">在周二的辩论开始前，拜登开玩笑地请求哈里斯在台上接近这位前副总统:“对我宽容点，孩子”——这可能是对他们在<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://lifehacker.com/heres-what-you-missed-on-day-two-of-the-democratic-deba-1835927829&quot;,{&quot;metric25&quot;:1}]]" href="https://lifehacker.com/heres-what-you-missed-on-day-two-of-the-democratic-deba-1835927829">迈阿密</a> </span>辩论期间关于公共汽车的交流的回应。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">在辩论后的采访 中，哈里斯说她“真的没有想太多”在推特上，哈里斯的新闻秘书<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://twitter.com/IanSams/status/1156717770836533250&quot;,{&quot;metric25&quot;:1}]]" href="https://twitter.com/IanSams/status/1156717770836533250" target="_blank" rel="noopener noreferrer">伊恩·萨姆斯</a> </span>质疑拜登在问候参议员时使用“孩子”一词。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h17182">卡斯特罗在移民问题上与拜登辩论，明确表示过境应该合法化</h3><p class="sc-77igqf-0 bOfvBY">朱利安·卡斯特罗(Julian Castro)在迈阿密的辩论中因在移民问题上与贝托·奥罗克(Beto O'Rourke)展开辩论而受到严重关注，他在同一问题上与拜登达成一致。在辩论中，拜登重申他支持将越境定为刑事犯罪。卡斯特罗的回应是利用边境上持续的家庭分离作为证据，证明这不再是一种犯罪。</p><p class="sc-77igqf-0 bOfvBY">“首先，副总统先生，看起来我们中的一个人吸取了过去的教训，而另一个人没有，”卡斯特罗在掌声中说道。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h17183">哈里斯再次就拜登在公共汽车上的记录展开辩论</h3><div class="ooo3c9-0 cmUFVa align--center has-video media-large video-embed embed-frame"><span class="flex-video widescreen"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-pm5JiXCkVLQ&amp;start=0" data-chomp-id="pm5JiXCkVLQ" data-recommend-id="youtube://pm5JiXCkVLQ" id="youtube-pm5JiXCkVLQ" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/><span data-chomp-id="pm5JiXCkVLQ" data-recommend-id="youtube://pm5JiXCkVLQ" id="youtube-pm5JiXCkVLQ" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">当辩论回到拜登的公车记录时，哈里斯明确表示，这位前副总统和她立场不同。“如果那些种族隔离主义者得逞，我就不会成为美国参议院的成员，科里·布克也不会成为美国参议院的成员，巴拉克·奥巴马也不会提名他担任现在的职位，”她说，后来她声称拜登没有承认他有争议的记录。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h17184">布克和拜登就刑事司法改革进行了辩论，告诉拜登不要再吃他的“Kool-aid”</h3><div class="ooo3c9-0 cmUFVa align--center has-video media-large video-embed embed-frame"><span class="flex-video widescreen"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-t5YarBjEl0I&amp;start=0" data-chomp-id="t5YarBjEl0I" data-recommend-id="youtube://t5YarBjEl0I" id="youtube-t5YarBjEl0I" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/><span data-chomp-id="t5YarBjEl0I" data-recommend-id="youtube://t5YarBjEl0I" id="youtube-t5YarBjEl0I" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">在讨论布克对他的刑事司法改革计划的批评时，拜登指出了布克作为新泽西州纽瓦克市市长的记录。(布克设立了一个备受争议的拦截搜身项目，该项目严重依赖种族定性。)</p><p class="sc-77igqf-0 bOfvBY">布克最终打断了他。“副总统先生，在我的社区里有一种说法，你正在品尝库尔援助，但你甚至不知道它的味道，”这位新泽西州参议员说。“你需要来纽瓦克市，看看我们实施的改革。”</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h17185">白思豪对警察杀害埃里克·加纳做出回应</h3><p class="sc-77igqf-0 bOfvBY">辩论初期，抗议者打断了布克和比尔·白思豪讨论医疗保健问题，要求解雇纽约警官丹尼尔·潘塔莱奥；2014 年，Pantaleo 掐死了 Eric Garner，但没有受到联邦政府的谋杀指控。<br/></p><p class="sc-77igqf-0 bOfvBY">当晚晚些时候，话题转向埃里克·加纳，包括卡斯特罗、吉利布兰德和哈里斯在内的候选人呼吁解雇他。白思豪回应说，“正义”将很快得到伸张。“好吧，让我告诉你。我知道加纳一家。他们经历了巨大的痛苦。他们在等待正义，并将得到正义。正义终将到来。我对此有信心，未来 30 天，在纽约。”</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h17186">吉利布兰德大声说出拜登在职业女性方面的记录，拜登获得了掌声</h3><div class="ooo3c9-0 cmUFVa align--center has-video media-large video-embed embed-frame"><span class="flex-video widescreen"><iframe data-src="https://lifehacker.com/embed/inset/iframe?id=youtube-video-D8MfyxIkz5A&amp;start=0" data-chomp-id="D8MfyxIkz5A" data-recommend-id="youtube://D8MfyxIkz5A" id="youtube-D8MfyxIkz5A" data-recommended="false" width="800" height="450" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"/><span data-chomp-id="D8MfyxIkz5A" data-recommend-id="youtube://D8MfyxIkz5A" id="youtube-D8MfyxIkz5A" data-recommended="false" class="js_recommend"/></span></div><p class="sc-77igqf-0 bOfvBY">在一次关于性别薪酬差距的讨论中，吉利布兰德直接向拜登提问，质疑他作为参议员时写的一篇专栏文章；据吉利布兰德称，拜登曾写道，职业女性会导致“家庭的恶化”。</p><p class="sc-77igqf-0 bOfvBY">拜登为自己辩护说，吉利布兰德最近支持他的一项呼吁大学校园平等的提案。“你和我一起来到锡拉丘兹大学，说那里很棒。我对确保女性受到平等对待的关注充满热情。我不知道发生了什么，只知道你现在正在竞选总统，”拜登在人群的掌声中说道。</p><p class="sc-77igqf-0 bOfvBY">(哈里斯后来加入讨论，批评拜登最近在<span></span>海德修正案上逆转立场；多年来，拜登一直支持禁止联邦资助堕胎的修正案，但这位前副总统在 6 月份改变了立场。)</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h17187">荣誉奖</h3><p class="sc-77igqf-0 bOfvBY">杨安泽(在他的开场白中):“我们需要做与我们现在正在做的事情相反的事情，与唐纳德·川普相反的是一个喜欢数学的亚洲人。”</p><p class="sc-77igqf-0 bOfvBY">朱利安·卡斯特罗(在他的开场白中):“我不想让美国再次变得什么都不是。我不希望我们倒退。我们不会回到过去。我们不会回到我们来的地方。我们将继续前进。”</p><p class="sc-77igqf-0 bOfvBY">杰伊·英斯利(关于移民问题):“我认为我们遗漏了两个核心声明，我们不能再允许一个白人民族主义者入主白宫，第一...第二，我们必须让美国一如既往地成为一个避难所。”</p><p class="sc-77igqf-0 bOfvBY">Kirsten Gillibrand(关于绿色新政):“所以，当我成为总统后，我要做的第一件事就是让椭圆形办公室充满活力。我要做的第二件事是，我将重新参与全球气候变化。”</p><p class="sc-77igqf-0 bOfvBY">乔·拜登(在闭幕词中):“这是美利坚合众国。当我们一起行动时，我们从来没有，从来没有，从来没有无法克服任何问题。如果你同意我的观点，就去找 joe30330，帮我打这场仗。”(Joe30330.com 重定向到一个不属于副总统的恶搞竞选网站。拜登后来澄清说，观众应该通过短信 30330 了解竞选活动的最新消息。)</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-bk4PZ9kyPqk&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-bk4PZ9kyPqk&start=0) 
+
+在周二的辩论开始前，拜登开玩笑地请求哈里斯在台上接近这位前副总统:“对我宽容点，孩子”——这可能是对他们在 [迈阿密](https://lifehacker.com/heres-what-you-missed-on-day-two-of-the-democratic-deba-1835927829) 辩论期间关于公共汽车的交流的回应。
+
+在辩论后的采访 中，哈里斯说她“真的没有想太多”在推特上，哈里斯的新闻秘书 [伊恩·萨姆斯](https://twitter.com/IanSams/status/1156717770836533250) 质疑拜登在问候参议员时使用“孩子”一词。
+
+### 卡斯特罗在移民问题上与拜登辩论，明确表示过境应该合法化
+
+朱利安·卡斯特罗(Julian Castro)在迈阿密的辩论中因在移民问题上与贝托·奥罗克(Beto O'Rourke)展开辩论而受到严重关注，他在同一问题上与拜登达成一致。在辩论中，拜登重申他支持将越境定为刑事犯罪。卡斯特罗的回应是利用边境上持续的家庭分离作为证据，证明这不再是一种犯罪。
+
+“首先，副总统先生，看起来我们中的一个人吸取了过去的教训，而另一个人没有，”卡斯特罗在掌声中说道。
+
+### 哈里斯再次就拜登在公共汽车上的记录展开辩论
+
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-pm5JiXCkVLQ&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-pm5JiXCkVLQ&start=0) 
+
+当辩论回到拜登的公车记录时，哈里斯明确表示，这位前副总统和她立场不同。“如果那些种族隔离主义者得逞，我就不会成为美国参议院的成员，科里·布克也不会成为美国参议院的成员，巴拉克·奥巴马也不会提名他担任现在的职位，”她说，后来她声称拜登没有承认他有争议的记录。
+
+### 布克和拜登就刑事司法改革进行了辩论，告诉拜登不要再吃他的“Kool-aid”
+
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-t5YarBjEl0I&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-t5YarBjEl0I&start=0) 
+
+在讨论布克对他的刑事司法改革计划的批评时，拜登指出了布克作为新泽西州纽瓦克市市长的记录。(布克设立了一个备受争议的拦截搜身项目，该项目严重依赖种族定性。)
+
+布克最终打断了他。“副总统先生，在我的社区里有一种说法，你正在品尝库尔援助，但你甚至不知道它的味道，”这位新泽西州参议员说。“你需要来纽瓦克市，看看我们实施的改革。”
+
+### 白思豪对警察杀害埃里克·加纳做出回应
+
+辩论初期，抗议者打断了布克和比尔·白思豪讨论医疗保健问题，要求解雇纽约警官丹尼尔·潘塔莱奥；2014 年，Pantaleo 掐死了 Eric Garner，但没有受到联邦政府的谋杀指控。
+
+当晚晚些时候，话题转向埃里克·加纳，包括卡斯特罗、吉利布兰德和哈里斯在内的候选人呼吁解雇他。白思豪回应说，“正义”将很快得到伸张。“好吧，让我告诉你。我知道加纳一家。他们经历了巨大的痛苦。他们在等待正义，并将得到正义。正义终将到来。我对此有信心，未来 30 天，在纽约。”
+
+### 吉利布兰德大声说出拜登在职业女性方面的记录，拜登获得了掌声
+
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video-D8MfyxIkz5A&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-D8MfyxIkz5A&start=0) 
+
+在一次关于性别薪酬差距的讨论中，吉利布兰德直接向拜登提问，质疑他作为参议员时写的一篇专栏文章；据吉利布兰德称，拜登曾写道，职业女性会导致“家庭的恶化”。
+
+拜登为自己辩护说，吉利布兰德最近支持他的一项呼吁大学校园平等的提案。“你和我一起来到锡拉丘兹大学，说那里很棒。我对确保女性受到平等对待的关注充满热情。我不知道发生了什么，只知道你现在正在竞选总统，”拜登在人群的掌声中说道。
+
+(哈里斯后来加入讨论，批评拜登最近在海德修正案上逆转立场；多年来，拜登一直支持禁止联邦资助堕胎的修正案，但这位前副总统在 6 月份改变了立场。)
+
+### 荣誉奖
+
+杨安泽(在他的开场白中):“我们需要做与我们现在正在做的事情相反的事情，与唐纳德·川普相反的是一个喜欢数学的亚洲人。”
+
+朱利安·卡斯特罗(在他的开场白中):“我不想让美国再次变得什么都不是。我不希望我们倒退。我们不会回到过去。我们不会回到我们来的地方。我们将继续前进。”
+
+杰伊·英斯利(关于移民问题):“我认为我们遗漏了两个核心声明，我们不能再允许一个白人民族主义者入主白宫，第一...第二，我们必须让美国一如既往地成为一个避难所。”
+
+Kirsten Gillibrand(关于绿色新政):“所以，当我成为总统后，我要做的第一件事就是让椭圆形办公室充满活力。我要做的第二件事是，我将重新参与全球气候变化。”
+
+乔·拜登(在闭幕词中):“这是美利坚合众国。当我们一起行动时，我们从来没有，从来没有，从来没有无法克服任何问题。如果你同意我的观点，就去找 joe30330，帮我打这场仗。”(Joe30330.com 重定向到一个不属于副总统的恶搞竞选网站。拜登后来澄清说，观众应该通过短信 30330 了解竞选活动的最新消息。)

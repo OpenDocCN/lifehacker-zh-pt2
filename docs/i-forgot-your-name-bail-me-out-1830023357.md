@@ -1,7 +1,15 @@
 # 我忘了你的名字，保释我出来
 
-> 原文：<https://lifehacker.com/i-forgot-your-name-bail-me-out-1830023357>
+> 原文:[https://life hacker . com/I-forget-your-name-bail-me-out-1830023357](https://lifehacker.com/i-forgot-your-name-bail-me-out-1830023357)
 
 也许我得了。也许我只是个混蛋。但是我经常碰到熟人，记不起他们的名字。如果我和我的妻子在一起，她知道该怎么做:她会立即介绍自己，这样他们就可以回说他们的名字。我不这么做可能看起来有点粗鲁，但至少我的秘密是安全的。我知道我不是唯一需要帮助的人。超过 14000 人转发了电视作家杜恩·帕金斯的这段自白:
 
-Watch<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=twitter-1053499873973100545&amp;autosize=1" autoresize="true" id="twitter-1053499873973100545" data-recommended="false" width="500" height="159" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><p class="sc-77igqf-0 bOfvBY">见鬼，这只是开始。我可能忘记的不仅仅是他们的名字。所以不要只是自我介绍，问问对方是怎么认识我的，或者一些其他的闲聊来帮助我安置他们。通常这会让我的大脑清醒过来，当我试图判断这是一个老同事、大学熟人还是 Twitter 上的共同好友时，我不必表现得含糊不清和冷漠。</p><div class="sc-1xxadal-0 jICWEe js_related-stories-inset"/><p class="sc-77igqf-0 bOfvBY">如果你是那个走过来打招呼的人，在一些他妈的上下文中滑动。不要让我在这里做记忆测试。稍微隐藏一下，直截了当的说出来，甚至用一句“我想我们在 Tim 的派对上见过”的游戏场就好像你 100%不知道我们五年前一起玩过《卡坦的定居者》。一个小小的提醒可能会让我恢复记忆，如果没有，你还是会给我足够的时间去伪装。否则，第二次谈话不会给你留下任何新的记忆。你会进入我的“那些让我陷入尴尬对话的人”的心理大桶你会难过，我也会难过，我们都希望我们从未相遇。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">我在努力改变。但是我需要一些帮助。相信我，我会报答你的。我会说出我的名字，我会提出我们最后一次约会的时间，我是一个专家，可以让我的熟人知道什么是可信的否认。有时会有点尴尬，但绝不会像以前的“嘿...你！”</p><p class="sc-77igqf-0 bOfvBY">而如果你认识我，而我不小心听从了同事 Claire 的<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://lifehacker.com/wreck-someones-day-with-a-simple-nice-to-meet-you-1829913512#_ga=2.43731749.1007362126.1540214291-1297080755.1497980211&quot;,{&quot;metric25&quot;:1}]]" href="https://lifehacker.com/wreck-someones-day-with-a-simple-nice-to-meet-you-1829913512#_ga=2.43731749.1007362126.1540214291-1297080755.1497980211">邪恶建议</a> </span>第五次告诉你我“很高兴见到你”，请不要耿耿于怀。知道你是一个特别值得纪念的人，而我只是最差的。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div> </body> </html></iframe>
+Watch [https://lifehacker.com/embed/inset/iframe?id=twitter-1053499873973100545&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1053499873973100545&autosize=1) 
+
+见鬼，这只是开始。我可能忘记的不仅仅是他们的名字。所以不要只是自我介绍，问问对方是怎么认识我的，或者一些其他的闲聊来帮助我安置他们。通常这会让我的大脑清醒过来，当我试图判断这是一个老同事、大学熟人还是 Twitter 上的共同好友时，我不必表现得含糊不清和冷漠。
+
+如果你是那个走过来打招呼的人，在一些他妈的上下文中滑动。不要让我在这里做记忆测试。稍微隐藏一下，直截了当的说出来，甚至用一句“我想我们在 Tim 的派对上见过”的游戏场就好像你 100%不知道我们五年前一起玩过《卡坦的定居者》。一个小小的提醒可能会让我恢复记忆，如果没有，你还是会给我足够的时间去伪装。否则，第二次谈话不会给你留下任何新的记忆。你会进入我的“那些让我陷入尴尬对话的人”的心理大桶你会难过，我也会难过，我们都希望我们从未相遇。
+
+我在努力改变。但是我需要一些帮助。相信我，我会报答你的。我会说出我的名字，我会提出我们最后一次约会的时间，我是一个专家，可以让我的熟人知道什么是可信的否认。有时会有点尴尬，但绝不会像以前的“嘿...你！”
+
+而如果你认识我，而我不小心听从了同事 Claire 的 [邪恶建议](https://lifehacker.com/wreck-someones-day-with-a-simple-nice-to-meet-you-1829913512#_ga=2.43731749.1007362126.1540214291-1297080755.1497980211) 第五次告诉你我“很高兴见到你”，请不要耿耿于怀。知道你是一个特别值得纪念的人，而我只是最差的。

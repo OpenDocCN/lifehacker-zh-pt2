@@ -1,13 +1,87 @@
 # 用维基百科上最好的助记法多记忆
 
-> 原文：<https://lifehacker.com/memorize-more-with-the-best-mnemonics-from-wikipedia-1838262718>
+> 原文:[https://life hacker . com/memory-more-with-the-best-mnemonics-from-Wikipedia-1838262718](https://lifehacker.com/memorize-more-with-the-best-mnemonics-from-wikipedia-1838262718)
 
 对于记忆术来说，没有太聪明或太愚蠢的事情。他们可以教你特定神经紊乱的特征，或者他们可以教你如何打开一个罐子。这里有一些你可能还不知道的最聪明的记忆辅助工具，维基百科 中的 [。](https://en.wikipedia.org/wiki/List_of_mnemonics) 
 
-
+Watch
 
 ### 月亮的圆缺
 
 你知道月亮会有盈亏，但是这里有一个方法来告诉你它现在在做什么:它的相位是 D，O，c。所以如果新月像 D 一样向右凸出，那它就是满月。如果它像 C 一样在左边，那么它正在变成新月。(南半球的情况正好相反。)每次我看到月亮，我都会说它是盈是亏。我的妻子很喜欢它，我们无法联系到她置评。
 
-<iframe data-src="https://lifehacker.com/embed/inset/iframe?id=tumblr-post-111796352958-serrasangel&amp;autosize=1" autoresize="true" id="tumblr-post-111796352958-serrasangel" data-recommended="false" width="640" height="800" class="core-inset lazyload" frameborder="0" scrolling="no" allowfullscreen="" webkitallowfullscreen="webkitAllowFullScreen" mozallowfullscreen="mozallowfullscreen"></span></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h174882">吉他弦</h3><p class="sc-77igqf-0 bOfvBY">标准调音吉他上每根弦的音符有很多记忆方法，但这些是最好的:</p><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>非常 T2 平均 T4 平均最终</li><li>at<strong>a</strong>l<strong>d</strong>ay，<strong> G </strong>和<strong> B </strong> ig <strong> E </strong> asy</li><li>Eddy<strong>A</strong>te<strong>D</strong>ynamite。<strong>G</strong>ood<strong>B</strong>ye<strong>E</strong>ddy</li></ul><p class="sc-77igqf-0 bOfvBY">对于尤克里里琴来说，是<strong>G</strong>ood<strong>C</strong>ooks<strong>E</strong>at<strong>A</strong>-lot。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h174883">航空飞行检查</h3><p class="sc-77igqf-0 bOfvBY">在飞行过程中，飞行员会进行多项检查，其中任何一项都有助记符。所有助记单词听起来都像是北约音标<span></span>的替代词。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>预着陆:GUMPS - <strong> G </strong> as，<strong>U</strong>under carriage，<strong>M</strong>ixure，<strong> P </strong> ropeller，<strong>S</strong>speed。<br/></li><li>预决赛:玛莎- <strong> M </strong> issed(程序)，<strong>A</strong>l 度(极限)，<strong> R </strong> adios(设定)，<strong> T </strong> ime(极限)，<strong> H </strong> eading(决赛)，<strong> A </strong> irspeed(下降)</li><li>预高空花- <strong> F </strong> low(使能)<strong>L</strong>igts(测试)<strong> O </strong> xygen(带电)<strong>W</strong>at(湿度)<strong>E</strong>electricity(开)<strong> R </strong> adio(检查)</li><li>飞行前-文书工作-箭头- <strong> A </strong>适任(证书)、<strong> R </strong>登记、<strong> R </strong>所需(图表)、<strong> O </strong>操作(检查表)、<strong> W </strong>八、平衡</li><li>旋转恢复-扑克- <strong> P </strong>下降(关)，<strong>O</strong>P 下降(满舵)，<strong> K </strong>倾斜(襟翼等)，<strong> E </strong>提肌(轻快地向前)，<strong> R </strong> ecover(从俯冲开始)<br/></li></ul><p class="sc-77igqf-0 bOfvBY">有一种很长的落地检查叫做，不开玩笑，<span></span>。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h174884">鲑鱼品种</h3><p class="sc-77igqf-0 bOfvBY">郊狼户外生活博客 说，对渔民来说，有五种主要的鲑鱼，下面是如何记住它们:</p><blockquote data-type="BlockQuote" class="sc-8hxd3p-0 ehyFRB"><p class="sc-77igqf-0 bOfvBY">Chum 是你的拇指，Sockeye 是你的食指(想象一下把别人的眼睛戳出来)，king 是你的中指，Silver 是你的无名指，Pink 是你的小指。</p></blockquote><p class="sc-77igqf-0 bOfvBY">每个物种都有多个名字，还有其他的没有包括在这里，所以我不知道这个记忆术实际上会让你在<em>最致命的捕获</em>上走多远。但是感觉很巧妙。如果有任何可食用的鲑鱼不包括在内，只是为了简单起见，我们应该停止食用它们。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h174885">可逆痴呆的原因</h3><p class="sc-77igqf-0 bOfvBY">嘿，这没那么悲伤，这是关于可逆的痴呆症，耶！虽然大多数记忆法使用任何最适合的单词或短语来记忆，但这种方法可以方便地说出你正在记忆的东西:</p><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>地毯/ <strong>抑郁</strong></li><li>衰老</li><li>多发性梗塞/T2</li><li>环境</li><li>营养不良</li><li>8 种毒素</li><li><strong>我</strong> schemia</li><li>一种酒精</li></ul><p class="sc-77igqf-0 bOfvBY">这会成为中场休息时的一大亮点。如果你喜欢那个，你应该看看那个不可信的自杀风险评估量表<span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://en.wikipedia.org/wiki/SAD_PERSONS_scale&quot;,{&quot;metric25&quot;:1}]]" href="https://en.wikipedia.org/wiki/SAD_PERSONS_scale" target="_blank" rel="noopener noreferrer">s . a . d . p . e . r . s . o . n . s .</a>T3！哈哈，不要用那个！说真的不要。</span></p><h3 class="sc-1bwb26k-1 kpbNNd" id="h174886">拼写</h3><p class="sc-77igqf-0 bOfvBY">基于单词的助记法非常适合拼写:</p><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li><em>我们</em>是<em>怪异</em></li><li>一个<em>校长</em>是你<em>的死党</em>；一个<em>原理</em>是一个 ru <em>乐</em></li><li>一句<em>恭维</em>让你置身于<em>石灰</em>光中；一个<em>补语</em>增加一些东西使<em> e </em>足够</li><li><em>节奏</em> : <strong> R </strong>节奏<strong>H</strong>elps<strong>Y</strong>our<strong>T</strong>wo<strong>H</strong>IPS<strong>M</strong>ove</li><li><em>助记符</em> : <strong> M </strong>魔音<strong>N</strong>ow<strong>E</strong>rase<strong>M</strong>an<strong>O</strong>ldest<strong>N</strong>呕吐，<strong>I</strong>N 不足<strong> C </strong>脑<strong> S </strong>存储</li><li>你想把和<em>一只老鼠</em>分开</li><li>一个<em>朋友</em>直到<em>结束</em></li><li><em>美丽</em>:<strong>B</strong>ig<strong>E</strong>lephants<strong>A</strong>re<strong>U</strong>Gly</li></ul><h3 class="sc-1bwb26k-1 kpbNNd" id="h174887">各种各样的</h3><ul data-type="List" data-style="Bullet" class="sc-1lmbno3-0 dpuHif"><li>度量值的大 SI 前缀(<em> exa-，peta-，tera-，giga-，mega- kilo-，hecto-，deca-</em>):<strong>E</strong>very<strong>p</strong>erson<strong>t</strong>hat<strong>g</strong>ave<strong>m</strong>E<strong>k</strong>isses<strong>h</strong>as<strong>d</strong>iarrea</li><li>计算热损失(P=I <sup> 2 </sup> R):一闪一闪小星星，功率等于 I 的平方 R。</li><li>英国王朝(诺曼、金雀花、兰开斯特、约克、都铎、斯图亚特、汉诺威、温莎):<strong> N </strong> o <strong> P </strong>兰<strong> L </strong>艾克<strong>Y</strong>ours<strong>T</strong>o<strong>S</strong>study<strong>H</strong>history<strong>W</strong>isely</li><li>中国的朝代(夏、商、周、秦、汉、晋、南北朝、隋、唐、宋、元、明、清):<strong>佘</strong> <strong>沙</strong>梅地<strong>曹</strong> se <strong> Chin </strong> ese <strong>韩</strong> d <strong>金</strong> gles(和)<strong>S</strong>I<strong>N</strong>fully<strong>Swee<strong/></strong></li><li>一份一份的在 T2 山上。斯塔拉<strong> g </strong>螨虫在<strong> g </strong>回合。</li><li>五大湖，从最大到最小(苏必利尔湖、休伦湖、密西根湖、伊利湖、安大略湖):<strong>S</strong>super<strong>H</strong>eroes<strong>M</strong>ust<strong>E</strong>at<strong>O</strong>ATS</li><li>元素周期表上的前 20 种元素(H、he、Li、Be、B、C、N、O、F、Ne、Na、Mg、Al、Si、P、S、Cl、Ar、K、Ca): <strong> H </strong> arry，<strong>He</strong><strong>Li</strong>KES<strong>Be</strong>er<strong>B</strong>y<strong>C</strong>upfuls，<strong> n </strong> ot <strong> o </strong> ver 【T16<strong>Si</strong>nce<strong>p</strong>ast<strong>s</strong>IX<strong>cl</strong>OS ing，<strong>ar</strong>e<strong>k</strong>egs<strong>ca</strong>n 取消？</li><li>区分无害的王蛇和有毒的珊瑚蛇的颜色模式:“黑色旁边的红色是杰克的朋友。黄色旁边的红色会杀死一个人。(极端奈德弗兰德斯盛传。)</li></ul><p class="sc-77igqf-0 bOfvBY">在维基百科列出的<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://en.wikipedia.org/wiki/List_of_visual_mnemonics&quot;,{&quot;metric25&quot;:1}]]" href="https://en.wikipedia.org/wiki/List_of_visual_mnemonics" target="_blank" rel="noopener noreferrer">视觉记忆法</a> </span>和学习记忆法<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://en.wikipedia.org/wiki/List_of_medical_mnemonics&quot;,{&quot;metric25&quot;:1}]]" href="https://en.wikipedia.org/wiki/List_of_medical_mnemonics" target="_blank" rel="noopener noreferrer">医学</a></span><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://en.wikipedia.org/wiki/Category:Aviation_mnemonics&quot;,{&quot;metric25&quot;:1}]]" href="https://en.wikipedia.org/wiki/Category:Aviation_mnemonics" target="_blank" rel="noopener noreferrer">航空</a></span><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://en.wikipedia.org/wiki/List_of_firefighting_mnemonics&quot;,{&quot;metric25&quot;:1}]]" href="https://en.wikipedia.org/wiki/List_of_firefighting_mnemonics" target="_blank" rel="noopener noreferrer">消防</a></span><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://en.wikipedia.org/wiki/Morse_code_mnemonics&quot;,{&quot;metric25&quot;:1}]]" href="https://en.wikipedia.org/wiki/Morse_code_mnemonics" target="_blank" rel="noopener noreferrer">莫尔斯电码</a></span><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://en.wikipedia.org/wiki/Latin_mnemonics&quot;,{&quot;metric25&quot;:1}]]" href="https://en.wikipedia.org/wiki/Latin_mnemonics" target="_blank" rel="noopener noreferrer">拉丁语</a></span><span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://en.wikipedia.org/wiki/List_of_physics_mnemonics&quot;,{&quot;metric25&quot;:1}]]" href="https://en.wikipedia.org/wiki/List_of_physics_mnemonics" target="_blank" rel="noopener noreferrer">物理</a></span><span>看<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;https://en.wikipedia.org/wiki/Japanese_wordplay#Goroawase&quot;,{&quot;metric25&quot;:1}]]" href="https://en.wikipedia.org/wiki/Japanese_wordplay#Goroawase" target="_blank" rel="noopener noreferrer">日本学生如何用文字游戏</a> </span>记忆数字。并阅读<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;External link&quot;,&quot;http://mentalfloss.com/article/72722/11-tricks-keeping-world-history-straight&quot;,{&quot;metric25&quot;:1}]]" href="http://mentalfloss.com/article/72722/11-tricks-keeping-world-history-straight" target="_blank" rel="noopener noreferrer"> Mental Floss 的历史记忆列表</a> </span>。</span></p><p class="sc-77igqf-0 bOfvBY">打开罐子或拧上灯泡的记忆术是:右手紧，左手松。那将永远留在你的脑海里。</p> </body> </html></iframe>
+ [https://lifehacker.com/embed/inset/iframe?id=tumblr-post-111796352958-serrasangel&autosize=1](https://lifehacker.com/embed/inset/iframe?id=tumblr-post-111796352958-serrasangel&autosize=1) 
+
+### 吉他弦
+
+标准调音吉他上每根弦的音符有很多记忆方法，但这些是最好的:
+
+*   非常 T2 平均 T4 平均最终
+*   at**a**l**d**ay， **G** 和 **B** ig **E** asy
+*   Eddy**A**te**D**ynamite。**G**ood**B**ye**E**ddy
+
+对于尤克里里琴来说，是**G**ood**C**ooks**E**at**A**-lot。
+
+### 航空飞行检查
+
+在飞行过程中，飞行员会进行多项检查，其中任何一项都有助记符。所有助记单词听起来都像是北约音标的替代词。
+
+*   预着陆:GUMPS - **G** as，**U**under carriage，**M**ixure， **P** ropeller，**S**speed。
+
+*   预决赛:玛莎- **M** issed(程序)，**A**l 度(极限)， **R** adios(设定)， **T** ime(极限)， **H** eading(决赛)， **A** irspeed(下降)
+*   预高空花- **F** low(使能)**L**igts(测试) **O** xygen(带电)**W**at(湿度)**E**electricity(开) **R** adio(检查)
+*   飞行前-文书工作-箭头- **A** 适任(证书)、 **R** 登记、 **R** 所需(图表)、 **O** 操作(检查表)、 **W** 八、平衡
+*   旋转恢复-扑克- **P** 下降(关)，**O**P 下降(满舵)， **K** 倾斜(襟翼等)， **E** 提肌(轻快地向前)， **R** ecover(从俯冲开始)
+
+有一种很长的落地检查叫做，不开玩笑，。
+
+### 鲑鱼品种
+
+郊狼户外生活博客 说，对渔民来说，有五种主要的鲑鱼，下面是如何记住它们:
+
+> Chum 是你的拇指，Sockeye 是你的食指(想象一下把别人的眼睛戳出来)，king 是你的中指，Silver 是你的无名指，Pink 是你的小指。
+
+每个物种都有多个名字，还有其他的没有包括在这里，所以我不知道这个记忆术实际上会让你在*最致命的捕获*上走多远。但是感觉很巧妙。如果有任何可食用的鲑鱼不包括在内，只是为了简单起见，我们应该停止食用它们。
+
+### 可逆痴呆的原因
+
+嘿，这没那么悲伤，这是关于可逆的痴呆症，耶！虽然大多数记忆法使用任何最适合的单词或短语来记忆，但这种方法可以方便地说出你正在记忆的东西:
+
+*   地毯/ **抑郁**
+*   衰老
+*   多发性梗塞/T2
+*   环境
+*   营养不良
+*   8 种毒素
+*   **我** schemia
+*   一种酒精
+
+这会成为中场休息时的一大亮点。如果你喜欢那个，你应该看看那个不可信的自杀风险评估量表[s . a . d . p . e . r . s . o . n . s .](https://en.wikipedia.org/wiki/SAD_PERSONS_scale)T3！哈哈，不要用那个！说真的不要。
+
+### 拼写
+
+基于单词的助记法非常适合拼写:
+
+*   *我们*是*怪异*
+*   一个*校长*是你*的死党*；一个*原理*是一个 ru *乐*
+*   一句*恭维*让你置身于*石灰*光中；一个*补语*增加一些东西使 *e* 足够
+*   *节奏* : **R** 节奏**H**elps**Y**our**T**wo**H**IPS**M**ove
+*   *助记符* : **M** 魔音**N**ow**E**rase**M**an**O**ldest**N**呕吐，**I**N 不足 **C** 脑 **S** 存储
+*   你想把和*一只老鼠*分开
+*   一个*朋友*直到*结束*
+*   *美丽*:**B**ig**E**lephants**A**re**U**Gly
+
+### 各种各样的
+
+*   度量值的大 SI 前缀( *exa-，peta-，tera-，giga-，mega- kilo-，hecto-，deca-*):**E**very**p**erson**t**hat**g**ave**m**E**k**isses**h**as**d**iarrea
+*   计算热损失(P=I <sup>2</sup> R):一闪一闪小星星，功率等于 I 的平方 R。
+*   英国王朝(诺曼、金雀花、兰开斯特、约克、都铎、斯图亚特、汉诺威、温莎): **N** o **P** 兰 **L** 艾克**Y**ours**T**o**S**study**H**history**W**isely
+*   中国的朝代(夏、商、周、秦、汉、晋、南北朝、隋、唐、宋、元、明、清):**佘** **沙**梅地**曹** se **Chin** ese **韩** d **金** gles(和)**S**I**N**fully**Swee**
+*   **一份一份的在 T2 山上。斯塔拉 **g** 螨虫在 **g** 回合。**
+*   **五大湖，从最大到最小(苏必利尔湖、休伦湖、密西根湖、伊利湖、安大略湖):**S**super**H**eroes**M**ust**E**at**O**ATS**
+*   **元素周期表上的前 20 种元素(H、he、Li、Be、B、C、N、O、F、Ne、Na、Mg、Al、Si、P、S、Cl、Ar、K、Ca): **H** arry，**He****Li**KES**Be**er**B**y**C**upfuls， **n** ot **o** ver 【T16**Si**nce**p**ast**s**IX**cl**OS ing，**ar**e**k**egs**ca**n 取消？**
+*   **区分无害的王蛇和有毒的珊瑚蛇的颜色模式:“黑色旁边的红色是杰克的朋友。黄色旁边的红色会杀死一个人。(极端奈德弗兰德斯盛传。)**
+
+**在维基百科列出的 [视觉记忆法](https://en.wikipedia.org/wiki/List_of_visual_mnemonics) 和学习记忆法 [医学](https://en.wikipedia.org/wiki/List_of_medical_mnemonics)[航空](https://en.wikipedia.org/wiki/Category:Aviation_mnemonics)[消防](https://en.wikipedia.org/wiki/List_of_firefighting_mnemonics)[莫尔斯电码](https://en.wikipedia.org/wiki/Morse_code_mnemonics)[拉丁语](https://en.wikipedia.org/wiki/Latin_mnemonics)[物理](https://en.wikipedia.org/wiki/List_of_physics_mnemonics)看 [日本学生如何用文字游戏](https://en.wikipedia.org/wiki/Japanese_wordplay#Goroawase) 记忆数字。并阅读 [Mental Floss 的历史记忆列表](http://mentalfloss.com/article/72722/11-tricks-keeping-world-history-straight) 。**
+
+**打开罐子或拧上灯泡的记忆术是:右手紧，左手松。那将永远留在你的脑海里。**
