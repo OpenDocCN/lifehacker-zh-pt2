@@ -1,3 +1,5 @@
+# as streamers spread dangerous conspiracy theories twit 1843684035
+
 > 原文：<https://kotaku.com/as-streamers-spread-dangerous-conspiracy-theories-twit-1843684035>
 
 在过去的几天里，一个惊人的标题流传开来: [“调查显示，一半的福克斯新闻频道观众认为比尔·盖茨在利用疫情给他们植入芯片。”](https://www.independent.co.uk/news/world/americas/fox-news-bill-gates-conspiracy-pandemic-donald-trump-vaccine-republicans-a9529301.html) 这种想法当然是无稽之谈，但冠状病毒阴谋论几乎像病毒本身一样在 YouTube、脸书和 Twitter 等网站精心设计的算法网络中传播，以至于它们现在成了全国话题的一部分。因此，你可能会认为 Twitch，另一个大规模且越来越相关的平台，也会遭遇类似的问题。但事实并非如此——至少在规模上不如竞争对手。然而，它自身也存在普遍的阴谋论问题。

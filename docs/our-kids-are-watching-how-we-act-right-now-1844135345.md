@@ -1,3 +1,5 @@
+# our kids are watching how we act right now 1844135345
+
 > 原文：<https://lifehacker.com/our-kids-are-watching-how-we-act-right-now-1844135345>
 
 我曾经写过如何在孩子成长的过程中与他们进行各种各样的“”的大型谈话——这些谈话太多了，我们已经将它们分成了自己的 [部分，这样你就可以很容易地阅读它们](https://lifehacker.com/c/big-talks) 。现在，作为父母，我们不能避免与他们谈论任何具有挑战性的话题——全球健康危机、系统性种族主义、LGBTQ 权利、仇恨言论、白人至上、同意。至少如果我们希望他们这一代比我们这一代做得更好的话，就不会这样。

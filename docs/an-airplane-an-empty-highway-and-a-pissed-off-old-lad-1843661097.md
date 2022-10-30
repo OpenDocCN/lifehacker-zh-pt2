@@ -1,3 +1,5 @@
+# an airplane an empty highway and a pissed off old lad 1843661097
+
 > 原文：<https://www.avclub.com/an-airplane-an-empty-highway-and-a-pissed-off-old-lad-1843661097>
 
 如果你在 2000 年 6 月上网，你可能会看到以下内容:几页 gif、 *Homestar Runner* 和一个三分钟的片段，一架商业客机在洛杉矶一条废弃的高速公路上紧急降落在一辆 SUV 的顶部。

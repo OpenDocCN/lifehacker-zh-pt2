@@ -1,3 +1,5 @@
+# how a harry potter mobile game teaches us to cope with 1842970329
+
 > 原文：<https://www.avclub.com/how-a-harry-potter-mobile-game-teaches-us-to-cope-with-1842970329>
 
 *警告:2020 年二月和三月*哈利波特:霍格沃茨之谜*的章节将在前面讨论。*

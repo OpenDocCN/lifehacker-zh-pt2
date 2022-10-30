@@ -1,3 +1,5 @@
+# the best way to record a remote podcast guest or co hos 1827807494
+
 > 原文：<https://lifehacker.com/the-best-way-to-record-a-remote-podcast-guest-or-co-hos-1827807494>
 
 你知道什么最烦人吗？收听一个为一个真正伟大的嘉宾做广告的播客，却发现对这位嘉宾 30 分钟的采访是一段电话录音。

@@ -1,3 +1,5 @@
+# im actress anjali bhimani and this is how i work 1830462542
+
 > 原文：<https://lifehacker.com/im-actress-anjali-bhimani-and-this-is-how-i-work-1830462542>
 
 你可能会从《守望先锋》中认出 Anjali Bhimani 的声音。你可能在《百老汇》或者《T2》《摩登家庭》《T3》《T4》《疯狂前女友》《T5》《T6》《硅谷》《T7》等剧中见过她。而且你可以在 [*我们还活着:边疆*](https://www.projectalpha.com/browse/#svod?method=show&showId=H5lTkK5RgS6umWVWQoxJwikNmrwbOW4a) 中看到她，来自极客&杂物和传奇数字网络的真人 RPG 网络系列。她还参演过电影、配音，甚至是歌剧。我们采访了比曼尼，了解了她广泛的表演经验，她是如何进入角色的，以及她那难以置信的繁忙，以粉丝为中心的日程安排。

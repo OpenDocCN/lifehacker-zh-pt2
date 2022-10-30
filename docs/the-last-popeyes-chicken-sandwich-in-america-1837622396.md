@@ -1,3 +1,5 @@
+# the last popeyes chicken sandwich in america 1837622396
+
 > 原文：<https://jezebel.com/the-last-popeyes-chicken-sandwich-in-america-1837622396>
 
 八月中旬的某个时候，大力水手路易斯安那厨房悄悄地推出了一款辣鸡肉三明治，风靡全国。我第一次知道这个三明治是因为 Jezebel 自己的影响者 Clover Hope，她有一天悄悄告诉大家，她在 Popeyes 尝了一个辣鸡肉三明治，感觉“非常好”。虽然 Clover 的声明通常是正确的，应该随时注意，但我忽略了我们文化编辑的这些实地报道，并在很大程度上忽略了三明治，它在互联网上以一种我并不特别喜欢的方式升温。

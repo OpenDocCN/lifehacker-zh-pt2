@@ -1,3 +1,5 @@
+# fire emblem three houses the kotaku review 1836675912
+
 > 原文：<https://kotaku.com/fire-emblem-three-houses-the-kotaku-review-1836675912>
 
 *火徽:三宅*是一款有趣时代的游戏。

@@ -1,3 +1,5 @@
+# this soyrizo frito pie will please the whole team 1841333300
+
 > 原文：<https://lifehacker.com/this-soyrizo-frito-pie-will-please-the-whole-team-1841333300>
 
 一般来说，我并不喜欢那些试图模仿“真实”东西的肉类替代品。蔬菜不是肉，也永远不会是肉，这没关系。话虽如此，我还是想马上反驳自己，为假肉技术的极致唱赞歌:塑料管里的 soyrizo。这一类别中的其他佼佼者——、各种形式的豆腐和晨星素食香肠馅饼——可能因其自身的优点而美味，但你绝不会将它们误认为动物产品。然而，Soyrizo 自成一派。在某种程度上，你可以将素食肉冒充成动物肉，强烈的蒜味，霓虹橙大豆酱完全搞定了它。

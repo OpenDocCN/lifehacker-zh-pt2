@@ -1,3 +1,5 @@
+# how to get filthy rich in america without anyone knowin 1832195983
+
 > 原文：<https://splinternews.com/how-to-get-filthy-rich-in-america-without-anyone-knowin-1832195983>
 
 在乔·里基茨 77 年来获得的所有资产中——有很多——怀俄明州的一个牧场尤其令他心动。他称之为 [黄石公园，没有拥挤的人群](http://www.jacksonfork.com/littlejacksonhole/) :一条几乎有曼哈顿那么大的地产带，沿着一条宽阔的河流，直穿过两座阿尔卑斯山覆盖的山脉。

@@ -1,3 +1,5 @@
+# how to protest human rights abuses at u s detention ce 1835731469
+
 > 原文：<https://lifehacker.com/how-to-protest-human-rights-abuses-at-u-s-detention-ce-1835731469>
 
 我们许多人对美国南部边境的状况感到绝望、愤怒和震惊。得知我们的政府将儿童与他们的家庭分离，将人们塞进拥挤的拘留室，并阻止难民获得食物、肥皂和干净衣服等基本必需品，这是毁灭性的。如果你在问自己，你能做些什么来抗议在美国寻求庇护的个人和家庭受到的不人道待遇，这里有一些你现在可以采取的行动。

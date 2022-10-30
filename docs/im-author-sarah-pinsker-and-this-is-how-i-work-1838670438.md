@@ -1,3 +1,5 @@
+# im author sarah pinsker and this is how i work 1838670438
+
 > 原文：<https://lifehacker.com/im-author-sarah-pinsker-and-this-is-how-i-work-1838670438>
 
 有许多来自不同宇宙的莎拉·平斯克。他们聚集在 SarahCon，一个由科学家 Sarah Pinsker 举办的会议。其中一个萨拉杀了另一个。这是《然后还有(N-One)》的前提，我读的第一个故事是真实的莎拉·平斯克写的，她是科幻、奇幻和恐怖小说的作者。平斯克的第一部故事集 [*迟早一切都落入大海*](https://www.amazon.com/Sooner-Later-Everything-Falls-Into/dp/1618731556/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-author-sarah-pinsker-and-this-is-how-i-work-1838670438&asc_source=&tag=kinjalifehackerlink-20)3 月问世；她的第一部小说[](https://www.amazon.com/Song-New-Day-Sarah-Pinsker/dp/1984802585?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-author-sarah-pinsker-and-this-is-how-i-work-1838670438&asc_source=&tag=kinjalifehackerlink-20)*于九月问世。我和她谈论了她的写作、音乐和非营利事业。*

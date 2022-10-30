@@ -1,3 +1,5 @@
+# welcome to jezebels cancel tournament 2019 1840153868
+
 > 原文：<https://jezebel.com/welcome-to-jezebels-cancel-tournament-2019-1840153868>
 
 没有哪个短语比“取消文化”在 2019 年引发了更多的愤怒和困惑。以至于这个概念本身变得毫无意义。就像妖怪或婚姻作为一种制度一样，取消文化是一种既真实又不真实的力量。无形的，可怕的，令人不安的——一个 [“对许多美国人来说恐惧的来源](https://thehill.com/hilltv/rising/462383-yang-cancel-culture-has-become-source-of-fear-for-americans) ”根据杨安泽的说法——取消文化似乎凭空出现，从面临取消的人那里夺走一切神圣的东西(通常是名誉、金钱、名声)。*嘘！是我，取消文化。*

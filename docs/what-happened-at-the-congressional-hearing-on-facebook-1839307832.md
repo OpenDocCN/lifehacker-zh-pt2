@@ -1,3 +1,5 @@
+# what happened at the congressional hearing on facebook 1839307832
+
 > 原文：<https://lifehacker.com/what-happened-at-the-congressional-hearing-on-facebook-1839307832>
 
 [天秤座的季节结束了。](https://en.wikipedia.org/wiki/Astrological_sign#Dates_table)10 月 23 日，脸书创始人、图灵测试辍学生马克·扎克伯格向国会作证了五个小时，讲述了脸书希望明年推出的加密货币——但现在可能永远不会推出。事情是这样的。

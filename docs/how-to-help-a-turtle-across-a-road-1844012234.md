@@ -1,3 +1,5 @@
+# how to help a turtle across a road 1844012234
+
 > 原文：<https://lifehacker.com/how-to-help-a-turtle-across-a-road-1844012234>
 
 如果你曾经见过一只乌龟过马路——这在春天和初夏很常见——如果你能把它安全地赶走，你就能帮助乌龟和司机。

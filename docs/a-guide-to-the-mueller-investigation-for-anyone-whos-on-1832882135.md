@@ -1,3 +1,5 @@
+# a guide to the mueller investigation for anyone whos on 1832882135
+
 > 原文：<https://splinternews.com/a-guide-to-the-mueller-investigation-for-anyone-whos-on-1832882135>
 
 如果你是一个值得庆幸的正常人，过着真实的生活，那么很有可能你只是在关注唐纳德·川普总统所谓的“”和其他人所说的“我猜是俄罗斯的事情”的错综复杂的细节也就是穆勒调查。

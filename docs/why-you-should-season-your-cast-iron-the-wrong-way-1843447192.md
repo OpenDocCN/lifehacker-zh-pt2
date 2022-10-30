@@ -1,3 +1,5 @@
+# why you should season your cast iron the wrong way 1843447192
+
 > 原文：<https://lifehacker.com/why-you-should-season-your-cast-iron-the-wrong-way-1843447192>
 
 去年年底，我发现自己处于十字路口。十年半之后，我真的厌倦了处理我的铸铁煎锅。不知从哪里来的，它突然拒绝接受调味料——拖着它到处走加重了我 30 岁那年患上的慢性手腕疼痛。我有两个选择:要么找出问题所在，要么永远放弃铸铁。

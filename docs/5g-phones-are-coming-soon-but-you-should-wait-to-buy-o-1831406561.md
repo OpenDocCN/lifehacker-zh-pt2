@@ -1,3 +1,5 @@
+# 5g phones are coming soon but you should wait to buy o 1831406561
+
 > 原文：<https://lifehacker.com/5g-phones-are-coming-soon-but-you-should-wait-to-buy-o-1831406561>
 
 随着几乎所有美国主要手机服务提供商准备推出 5G 网络，你可能会看到 2019 年被宣传为“5G 革命”或类似事件的开始。

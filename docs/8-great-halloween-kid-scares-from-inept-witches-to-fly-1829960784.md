@@ -1,3 +1,5 @@
+# 8 great halloween kid scares from inept witches to fly 1829960784
+
 > 原文：<https://www.avclub.com/8-great-halloween-kid-scares-from-inept-witches-to-fly-1829960784>
 
 随着年龄的增长，万圣节变得更加险恶——只要看看现在多厅影院里的跳楼恐慌就知道了。但对于孩子们来说，万圣节仍然是纯粹的乐趣而不是恐怖，在幽灵季节到来之前，唯一能让年终假期变得有意义的是礼物。因此，离这个大日子还有不到一周的时间，我们鼓励你投入到我们的阅读和观看选项中，以确保你和你的孩子从一年中最美好的时光中获得最大的收获。

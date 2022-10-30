@@ -1,3 +1,5 @@
+# beyond monster mash 60 minutes of killer tunes for y 1829998360
+
 > 原文：<https://www.avclub.com/beyond-monster-mash-60-minutes-of-killer-tunes-for-y-1829998360>
 
 对于你这个周末的万圣节派对，，虽然重复播放“，[怪物土豆泥](https://www.youtube.com/watch?v=SOFCQ2bfmHw)，”很有诱惑力，但你希望你的客人在这个充满魔力的时刻留下来，对吗？

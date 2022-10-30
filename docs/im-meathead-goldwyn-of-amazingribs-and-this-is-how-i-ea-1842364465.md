@@ -1,3 +1,5 @@
+# im meathead goldwyn of amazingribs and this is how i ea 1842364465
+
 > 原文：<https://lifehacker.com/im-meathead-goldwyn-of-amazingribs-and-this-is-how-i-ea-1842364465>
 
 很明显，Meathead Goldwyn 对肉类了解很多——但必须指出的是，在近半个世纪的吃喝生活之后，他也知道很多其他事情。他的网站[【AmazingRibs.com】](https://amazingribs.com)，不仅是烧烤和以肉为中心的烧烤智慧的字体，也是关于、一些 [鸡尾酒食谱](https://amazingribs.com/tested-recipes/drink-recipes/mojitos-con-mojo-recipe) 和大量食品科学的信息资源。Meathead 非常慷慨，他很乐意在电话上分享他多年来积累的一些食物知识，包括他对真正的意大利黑醋的热爱，他对捆绑的不屑，以及他如何制作真正的烤奶酪三明治。

@@ -1,3 +1,5 @@
+# i baked sourdough bread from a viral tweet and it didnt 1843042838
+
 > 原文：<https://lifehacker.com/i-baked-sourdough-bread-from-a-viral-tweet-and-it-didnt-1843042838>
 
 烘焙酸面团面包已经成为社会隔离时代非必要特权的陈词滥调。这是一项耗时的在家工作，不知何故，我的新闻订阅上的每个博主都决定发布这方面的内容，我对此嗤之以鼻。但是，在仅仅根据一条病毒式推特及其推友的建议烤了一个面包之后，我意识到，也许这些面包师正在做一些正确的事情。毕竟，他们是享受新鲜出炉的面包的人，这个过程并没有我想象的那么困难。

@@ -1,3 +1,5 @@
+# advice for the end of the world lasik water storage 1837181145
+
 > 原文：<https://jezebel.com/advice-for-the-end-of-the-world-lasik-water-storage-1837181145>
 
 对于 Jezebel 的前员工 Ellie Shechet 来说，几乎总是到了抓狂的时候。厄运——个人的、职业的、全球的——正等着我们，向我们招手。没有人向她征求意见，但我们还是给了她一个专栏。给世界末日的建议*是一个限量版的给灾难性思考者的建议专栏，作者是一位灾难性思考者，身处灾难迫近的时代。*
