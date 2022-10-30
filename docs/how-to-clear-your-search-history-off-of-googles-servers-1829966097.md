@@ -6,7 +6,7 @@
 
 谷歌， [我们个人数据最大的仓库之一](https://lifehacker.com/google-knows-even-more-about-you-than-facebook-1825508058) ，刚刚更新了谷歌搜索 — 又名[Google-dot-com](https://www.google.com/)—让你更容易查看和编辑公司存储的搜索数据。谷歌搜索页面现在在搜索栏下面有一个链接，可以直接带你到一个新的数据隐私中心，让你滚动浏览和删除你的搜索历史的一部分。它还能让你轻松访问“谷歌范围”的控件，比如跟踪谷歌网站上的 [活动](https://myaccount.google.com/activitycontrols/search?utm_source=search-privacy-advisor) 和 [广告个性化](https://adssettings.google.com/authenticated?utm_source=search-privacy-advisor) 。
 
-Watch
+
 
 要明确的是，这些都是我们已经可以通过谷歌的账户设置菜单访问的控件。公司收集的数据量和我们影响它的能力没有改变。然而，对于那些最近关心数据隐私的用户，或者只是喜欢频繁删除我们的搜索历史的用户，该功能使该过程执行起来更快，也更容易理解。
 

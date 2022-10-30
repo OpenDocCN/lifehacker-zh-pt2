@@ -4,7 +4,7 @@
 
 在我们今天开始之前，你应该有两条相关的信息:1 .我喜欢一个好的育儿技巧和 2。我从来不喜欢无休止地站在那里推着孩子荡秋千。因此，我应该成熟地支持任何努力来破解这个苦差事。然而， [这段视频](https://www.youtube.com/watch?v=p96Fa1JJbVU&feature=youtu.be) 中，一位家长从他们四楼公寓的窗户推(嗯，拉)着他们的孩子荡秋千，这让我很困惑。
 
-Watch
+
 
 [Digg 通过 ViralHog](https://digg.com/video/swing-line-apartment) 发布了这个视频—[——并附有一个问题:“我们无法判断这个育儿技巧是天才还是疯狂。”这是 Digg 问我们的方式:这是一个黑客还是一个怪人？各位，这就是我们在这里的目的。首先，你自己看看:](https://www.youtube.com/watch?v=p96Fa1JJbVU&feature=youtu.be)
 

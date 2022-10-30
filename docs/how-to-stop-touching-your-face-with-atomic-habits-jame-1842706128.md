@@ -4,7 +4,7 @@
 
 《纽约时报》畅销书作家 James Clear 本周加入了我们的升级活动，帮助我们在这个恐慌时期养成重要的新习惯——从基础日常习惯到最终抛弃在疫情期间让我们不安全的习惯。詹姆斯是 2018 年《原子习惯:建立好习惯的简单方法》一书的作者。T15】
 
-Watch
+
 
 [https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/bc6fb2b0-be77-465c-b29d-4a4f3af510ff/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/bc6fb2b0-be77-465c-b29d-4a4f3af510ff/embed)
 

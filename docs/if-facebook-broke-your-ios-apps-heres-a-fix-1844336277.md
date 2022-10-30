@@ -4,7 +4,7 @@
 
 一个脸书漏洞导致大量 iOS 应用程序崩溃。据报道，Spotify、Bumble、Mario Kart Tour、PUBG Mobile、Tinder、Venmo 和其他一些网站都出现了崩溃。
 
-Watch
+
 
 这个问题不是由脸书 iOS 应用程序本身引起的，而是集成到受影响应用程序中的脸书相关功能引起的，例如使用你的脸书帐户登录或使用类似功能和共享功能。
 

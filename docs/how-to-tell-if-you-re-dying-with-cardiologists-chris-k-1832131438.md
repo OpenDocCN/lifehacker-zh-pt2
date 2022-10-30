@@ -4,7 +4,7 @@
 
 我们花了很多时间担心死亡:我们自己的死亡，以及我们所爱的人的死亡。本周我们来看看我们对死亡的深深恐惧和假设，看看我们是否能减轻一些对死亡的焦虑。
 
-Watch
+
 
 [https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/1b84f9a8-2d37-4cea-aaad-a4417a78259f/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/1b84f9a8-2d37-4cea-aaad-a4417a78259f/embed)
 

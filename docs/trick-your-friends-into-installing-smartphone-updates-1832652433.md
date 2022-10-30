@@ -4,7 +4,7 @@
 
 即使苹果有时会把 iOS 的更新 [搞得很乱](https://gizmodo.com/disable-facetime-right-now-1832142571) ，但是*修复*这些问题 的更新 [很重要。以至于你真的应该在它们发布的当天就安装它们。然而，大多数人可能不会浏览网页，也不会浏览他们的设置应用程序，以查看新的 iOS 更新何时可用。](https://gizmodo.com/you-can-now-download-a-fix-for-that-scary-facetime-eave-1832435209)
 
-Watch
+
 
 然而，如果你是那种关注这类事情的人——或者你有一个痴迷苹果的朋友——这里有一个有趣的小技巧，你可以用它来鼓励其他人去获取重要的更新。而且，不，不是 iOS 特有的；如果你和你的朋友忠诚于 Android，它也同样适用。
 

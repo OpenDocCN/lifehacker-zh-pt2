@@ -4,7 +4,7 @@
 
 时机已经到来:索尼终于 [宣布](https://blog.us.playstation.com/2019/04/10/online-id-change-on-psn-your-questions-answered/?fbclid=IwAR0ZtGYFu1ySGRa0E52tVdZvBe7n9PQd3elc80o-JNt2P-vccCnt6ZNkLQY) 将允许 PlayStation 4 用户更改他们的用户 id——当你在线玩游戏时使用的名字——从今天晚些时候开始。该功能已经推出很久了，游戏玩家，特别是我们这些自从为 PlayStation 3 创建 PlayStation ID 以来就一直被同一手柄束缚的人，应该感到欣慰。
 
-Watch
+
 
 对于如此令人垂涎的东西，你必须深入挖掘 PS4 的菜单才能得到它。在您的控制台上，进入设置菜单，选择“帐户管理”，然后选择“帐户信息”，然后选择“个人资料”，最后选择“在线 ID”专业提示:通过您在[【PlayStation.com】](https://www.playstation.com/en-us/)上的个人资料更改您的 ID 实际上要容易得多。为此，请登录您的帐户，转到“PSN 个人资料”并单击“编辑”按钮。
 

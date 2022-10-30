@@ -4,7 +4,7 @@
 
 今年我们已经庆祝了 [全国披萨日](https://lifehacker.com/where-to-get-free-and-discounted-pizza-today-for-nation-1832492015) 和 [全国墨西哥卷饼日](https://lifehacker.com/where-to-score-deals-today-for-national-burrito-day-1833816979) ，现在我们来到了另一个虚构的节日，在那里你有可能获得免费食物:全国椒盐卷饼日。
 
-Watch
+
 
 许多精致的椒盐卷饼店正在用折扣和赠品来庆祝这一天(4 月 26 日)。
 

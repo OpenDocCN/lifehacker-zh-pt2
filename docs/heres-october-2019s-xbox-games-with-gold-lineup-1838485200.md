@@ -4,7 +4,7 @@
 
 十月份的 Xbox Live 黄金游戏是恐怖、动作和适合家庭的的结合。一如既往，只有当你拥有有效的 Xbox Live 黄金订阅时，它们才是免费的。
 
-Watch
+
 
 10 月的 [带金](https://news.xbox.com/en-us/2019/09/26/games-with-gold-october-2019/)游戏有:
 

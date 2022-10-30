@@ -4,7 +4,7 @@
 
 你如何管理一个多平台的家庭？不是每个人都完全忠于苹果、谷歌、微软或任何其他科技公司。你可能拥有一部 iPhone，并使用 Windows PC。也许你更喜欢你的 Android 的摄像头和你的 MacBook 的键盘。也许你只是一个超级极客，你喜欢设备，仅此而已。
 
-Watch
+
 
 本周的 Tech 911 问答不是通常的电子邮件，而是来自 life hacker reader[Dave](https://twitter.com/davedenis/status/1303160966851432450)的推文(没有关系)。他写道:
 

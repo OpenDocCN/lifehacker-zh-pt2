@@ -4,7 +4,7 @@
 
 苹果再一次发现自己陷入了一个令人瞠目结舌的 iOS 漏洞，这将你的安全和隐私置于危险之中。而且，不，这不是通常的“有人找到了绕过你使用的任何认证方法的方法”交易，那种 [往往会在 iOS 发布](https://www.macrumors.com/2018/09/29/iphone-passcode-bypass-contacts-photos/) 前后弹出 [。这是一个大问题:FaceTime 的一个漏洞允许另一个人窃听你的设备。](https://nakedsecurity.sophos.com/2018/11/02/another-day-another-update-another-iphone-lockscreen-bypass/) 
 
-Watch
+
 
 我先说好消息。在我写这篇文章的时候，苹果已经关闭了 Group FaceTime，这样可以防止别人听到你在做什么。该公司还承诺本周通过另一次更新来解决这个问题。
 

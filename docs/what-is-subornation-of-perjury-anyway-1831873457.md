@@ -4,7 +4,7 @@
 
 昨晚，BuzzFeed News 公布了证据表明 [唐纳德·特朗普积极指示他的前私人顾问迈克尔·科恩](https://www.buzzfeednews.com/article/jasonleopold/trump-russia-cohen-moscow-tower-mueller-investigation) 就特朗普大厦项目向国会撒谎。如果你醒来时看到 Twitter 上充斥着律师们对唆使他人做伪证的尖叫，而你又不太确定这意味着什么，那么你需要知道以下这些。
 
-Watch
+
 
 ### 一个人如何收买伪证？
 

@@ -4,7 +4,7 @@
 
 我坚信，让挑食的人吃东西没有太多的窍门。挑食的父母需要更加努力地为他们的孩子提供健康、均衡的膳食，这样他们的孩子每天早上、中午和晚上都不会大吵大闹。当然， [食物选择](https://offspring.lifehacker.com/let-your-kid-eat-with-food-picks-1836892766) 可能是一个孩子开始啃食甜瓜所需要的一切。但下一个孩子可能会被“ [品尝盘子](https://offspring.lifehacker.com/use-a-taste-plate-to-get-picky-eaters-to-try-new-food-1796917875) ”说服或者也许你会有更好的运气，在 [维恩图](https://offspring.lifehacker.com/feed-your-picky-kids-and-you-with-venn-diagram-meals-1836499243) 中想到你家人的饭菜。
 
-Watch
+
 
 很有可能，如果你的孩子很挑剔，你已经尝试了几种不同的策略并取得了不同的成功。今天，我在这里给你提供多一个选择:为你的小孩创建早餐、午餐和晚餐“菜单”。
 

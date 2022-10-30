@@ -4,7 +4,7 @@
 
 让我们面对现实吧，现在的经济感觉有点悲观。因此，在个人理财顾问拉米特·塞西的帮助下，我们本周将学习如何在财务上保护自己。听听他和爱丽丝·布拉德利以及 Lifehacker 的个人理财作家丽莎·罗文谈论他在这个经济危机时期的实用建议。拉米特是《纽约时报》*纽约时报*畅销书 [*我会教你变得富有*](https://www.amazon.com/Will-Teach-You-Rich-Second/dp/1523505745/ref=dp_ob_title_bk?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-protect-your-money-with-ramit-sethi-1843606131&asc_source=&tag=kinjalifehackerlink-20) 的作者和[IWillTeachYouToBeRich.com](https://www.iwillteachyoutoberich.com/)的创始人。
 
-Watch
+
 
 在他们的对话之后，请继续收听 Lifehacker 的健康编辑 Beth Skwarecki 与医学实验室科学家 Constantine Kanakis 博士的对话。Kanakis 博士回答了 Lifehacker 读者关于新冠肺炎测试各个方面的问题——从它们的可靠性到进行抗体测试的最佳时间。
 

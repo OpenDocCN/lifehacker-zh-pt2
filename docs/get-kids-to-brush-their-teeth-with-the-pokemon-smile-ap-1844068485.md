@@ -4,7 +4,7 @@
 
 当谈到刷牙时，孩子们并不是最好或最有效的——如果你能让他们做的话。但是如果他们能像小火龙和 T2 一样刷牙，帮助拯救其他被抓的神奇宝贝(喘息！)导致蛀牙的细菌，嗯，这可能正是他们需要的动力。此外，如果他们刷得足够好，他们也可以抓住他们救的神奇宝贝。
 
-Watch
+
 
 神奇宝贝本周在 [iOS](https://apps.apple.com/app/id1512331079) 和 [Android](https://play.google.com/store/apps/details?id=jp.pokemon.pokemonsmile) 上发布了 [神奇宝贝微笑应用](https://www.cnet.com/news/pokemon-smile-is-free-app-for-brushing-your-teeth/#ftag=CADf328eec) ，以帮助孩子们在刷牙时少吸一点——并减少让他们尝试的战斗。该应用程序的增强现实效果让孩子们在刷牙时“戴上”神奇宝贝帽子，专注于他们正在使用的手机或平板电脑右下角指示的位置。下面简单介绍一下 [的工作原理](https://www.youtube.com/watch?time_continue=66&v=BHK1bYwZxsI&feature=emb_logo) :
 

@@ -4,7 +4,7 @@
 
 在这个国家，我们有很多不同的意见，但大多数人都同意，目前的政府关闭是可怕的。受打击最大的是那些刚刚过了发薪日却没有薪水的联邦雇员。许多企业和个人都在力所能及的地方帮助这些工人，从为他们提供免费餐的 [餐馆](https://www.westword.com/restaurants/denver-and-colorado-restaurants-offering-free-and-discounted-food-to-federal-employees-11106035) ，到 [加拿大的空中交通管制员给他们目前正在无薪工作的美国同事送比萨饼](https://www.cbc.ca/news/canada/newfoundland-labrador/air-traffic-controller-pizza-1.4976548) 。
 
-Watch
+
 
 你可能想知道你能帮上什么忙。现在， [*华盛顿都市报*报道](https://www.washingtoncitypaper.com/food/article/21041036/how-to-buy-a-beer-for-a-furloughed-worker-at-a-dc-brewery) ，感谢新网站[PayItFurloughed.com](https://payitfurloughed.com/)，你至少可以给一个休假的工人送一两杯啤酒。正如华盛顿网站在其介绍页面上解释的那样，“啤酒让一切都变得更好，所以我们为受政府关闭影响的联邦雇员购买当地手工酿造的啤酒。”
 

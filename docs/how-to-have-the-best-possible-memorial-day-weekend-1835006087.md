@@ -4,7 +4,7 @@
 
 及时行乐！这是夏天的第一个周末。(6 月 20 日是书呆子的天文学屁话。)开始 [穿一身白色](https://verysmartbrothas.theroot.com/why-this-all-white-memorial-day-weekend-sale-at-macys-i-1834982986) 在户外吃肉的时间。但是如果你没有计划好你的周末，你可能会在沙发或电脑椅上呆上三天，留下零记忆。让我们通过制定计划来减少遗憾。
 
-Watch
+
 
 ### 制定一个坏天气计划
 

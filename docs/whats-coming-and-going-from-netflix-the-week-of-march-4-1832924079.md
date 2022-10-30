@@ -8,7 +8,7 @@
 
 本周网飞的发行情况并不好。雪上加霜的是，*新闻记者*将于周二离开。你将不得不继续观看[*危险*存档](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-februar-1832798238)——肯·詹宁斯和赢得 300 万美元的家伙回来参加几十年的战斗！
 
-Watch
+
 
 ### 本周到达
 

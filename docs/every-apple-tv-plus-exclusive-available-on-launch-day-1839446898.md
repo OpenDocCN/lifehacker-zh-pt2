@@ -4,7 +4,7 @@
 
 Apple TV Plus 将于 11 月 1 日星期五发布，尽管 5 美元的月价格标签和 [缓慢扩展的设备支持](https://lifehacker.com/how-to-get-the-apple-tv-app-on-your-roku-1839102237) 使其 [对于热情的苹果粉丝来说很容易销售，但那些尚未购买更广泛的苹果生态系统的人可能需要一些说服力，才能支付现金购买另一个月订阅服务。](https://lifehacker.com/how-to-get-free-apple-tv-with-your-apple-device-1838412966) 
 
-Watch
+
 
 对于像 Apple TV Plus 这样的流媒体平台来说，最好的方法就是利用它的原创内容，苹果正在拿出一些现金来说服观望的客户进行跳跃。为了帮助犹豫不决的用户和早期用户，我们制作了一个快速指南，介绍将在第一天通过 Apple TV Plus 提供的所有独家节目，并强调了用户可以在该平台的前几周看到的其他几个新增内容。
 

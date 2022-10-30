@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-choose-a-high-yield-savings-account-1835461088>
 
-Watch
+
 
 为了长期发展，有很多地方值得你投资。但是短期储蓄呢？你不应该也能从中赚点外快吗？
 

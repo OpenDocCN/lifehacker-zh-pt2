@@ -4,7 +4,7 @@
 
 数字化黑胶唱片比翻录 CD 要难得多。一个外置光驱价格 [【亚马逊](https://www.amazon.com/dp/B00ODDE33U?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-digitize-vinyl-records-without-a-record-player-1835451031&asc_source=&tag=kinjalifehackerlink-20)26 美元；一台带数字输出的电唱机价格[【250 美元】或更多](https://www.amazon.com/Audio-Technica-AT-LP120-USB-Direct-Drive-Professional-Turntable/dp/B002S1CJ2Q/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-digitize-vinyl-records-without-a-record-player-1835451031&asc_source=&tag=kinjalifehackerlink-20) 。另外，你必须使用特殊的软件，指定每首曲目的开始和结束，写出所有的元数据，并确保唱片播放流畅。或者你可以让别人帮你做。以下是方法。
 
-Watch
+
 
 ### **与黑胶爱好者搭档**
 

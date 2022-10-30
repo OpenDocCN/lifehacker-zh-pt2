@@ -4,7 +4,7 @@
 
 性短信和性很像，与其说是一种直觉，不如说是一种习得的技能。你可能会发现自己把“性”这个词扔向墙壁，看看会粘上什么，结果好坏参半。如果你想在一个安全的空间展开你的性短信翅膀，为什么不给机器人发短信呢？
 
-Watch
+
 
 短信服务 Slutbot 是由在线性教练应用程序 [Juicebox](https://www.juiceboxit.com/) 创建的。据作家杰斯·乔为 Mashable 报道，这是一款 [免费的色情短信应用](https://mashable.com/article/sexting-for-beginners-chatbot-slutbot-juicebox/#b4h4vVVCfmq4) 。Joho 给这个机器人发了一条短信，想看看它到底能做什么，看起来好像很多。在下面的简短宣传视频中，你可以看到聊天机器人让一些新用户脸红，因为它提出了一些非常详细的建议，比如同时使用振动器和一些关于舔猫的明确评论。
 

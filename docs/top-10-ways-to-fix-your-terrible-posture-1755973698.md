@@ -4,7 +4,7 @@
 
 作为一个成年人，你可能不会像小学老师或家长过去那样，经常有人对你的姿势评头论足。但是，当我们长大后，坐直了，不要无精打采，这一点可以说更加重要。当然， [有好的姿势看起来更好](https://lifehacker.com/this-cartoon-explains-how-important-it-is-to-have-good-1722813018) ，但是，我们如何坐、站和走 [影响我们的健康和我们的情绪](http://lifehacker.com/the-science-behind-posture-and-how-it-affects-your-brai-1463291618) 。如果你需要一些姿势方面的帮助，这里有一些你可能想尝试的事情。
 
-Watch
+
 
 ### **测试你的姿势，学会正确站立**
 

@@ -4,7 +4,7 @@
 
 想为特朗普总统工作吗？显然，这需要 [三个](https://www.vox.com/the-big-idea/2018/8/16/17695150/omarosa-nondisclosure-agreements-white-house-secrecy-trump) 签署 [保密协议](https://www.thedailybeast.com/trump-white-house-is-forcing-interns-to-sign-ndas-and-threatening-them-with-financial-ruin)[s](https://www.thedailybeast.com/trump-white-house-is-forcing-interns-to-sign-ndas-and-threatening-them-with-financial-ruin)——以及迫在眉睫的威胁，如果你选择打破它，他会在经济上和法律上毁了你(没有压力！).
 
-Watch
+
 
 NDA 比你想象的更普遍(尽管签署一份带有 T2 严重后果的协议，比如彻底毁灭你的生活，可能没那么普遍)。如果你在任何有商业秘密的公司工作，你很可能会签署某种形式的 NDA。但是我们应该无条件接受他们吗？
 

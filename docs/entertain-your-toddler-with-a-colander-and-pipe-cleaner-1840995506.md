@@ -4,7 +4,7 @@
 
 大多数父母都知道，虽然孩子们喜欢玩玩具，但他们更喜欢玩非玩具。 [实际的电视遥控器](https://offspring.lifehacker.com/the-best-baby-toy-might-be-a-tv-remote-1829231469) 而不是你买的亮塑料版。一个木勺和一个汤锅，而不是你认为他们会发疯的玩具鼓。在这个清单上，让我们添加:一个漏勺，加上一些管道清洁器。
 
-Watch
+
 
 我不记得我是在哪里第一次看到这个组合的，但在谷歌上快速搜索“ [”漏勺和管道清洁器活动](https://www.google.com/search?q=colander+and+pipe+cleaner+activity&tbm=isch&source=univ&sa=X&ved=2ahUKEwiFx4elz93mAhXYQs0KHWzBBFoQsAR6BAgHEAE&biw=1358&bih=639) ，可以看出这是一个被借用了好几次的想法。T 把漏勺扔在地板上(或者厨房的桌子上，如果你想玩花样的话),给你的孩子一些又细又长的东西，可以穿过这些孔。管道清洁器特别棒，因为它们很容易弯曲和操作。
 

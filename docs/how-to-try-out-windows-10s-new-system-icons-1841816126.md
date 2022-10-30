@@ -4,7 +4,7 @@
 
 Windows 10 将很快获得大量新的系统图标，给操作系统的外观带来急需的更新(先于 Windows 10X)。这些图标慢慢出现在 Windows 10 的测试版本中，如果你是 Windows 内部人员[，你可以提前查看它们。如果你不想处理测试版，你能做的最好的事情就是远远地呆呆地看着](https://lifehacker.com/get-the-newest-version-of-windows-forever-with-windows-1775733312) [整套新设计](https://medium.com/microsoft-design/iconic-icons-designing-the-world-of-windows-5e70e25e5416)——直到它们最终发布 Windows 10，这应该很快了。
 
-Watch
+
 
 我认为新设计看起来很棒；2015 年推出的单色轮廓已被色彩丰富、富有表现力的造型所取代。不幸的是，并不是每个人都对焕然一新的外观感到兴奋。但是最大的问题不是新图标，而是你的开始菜单的单色背景。
 

@@ -4,7 +4,7 @@
 
 自从这项服务推出以来，苹果电视应用程序已经可以在几乎所有苹果设备 上使用 [，并且在过去几年里开始出现在部分三星智能电视上。截至今天，苹果电视(终于)可以在众多 Roku 设备上使用。](https://lifehacker.com/how-to-get-free-apple-tv-with-your-apple-device-1838412966)
 
-Watch
+
 
 至于苹果为什么要另辟蹊径，苹果即将在 11 月 1 日 推出其 [Apple TV+服务。像网飞、Hulu 和亚马逊视频一样，Apple TV+将拥有自己的独家节目库，你在其他任何地方都找不到。因此，在 Roku 上拥有官方的 Apple TV 应用程序意味着大量非苹果产品——包括 Roku 驱动的流媒体盒子、软件狗和智能电视——将能够访问 Apple TV+及其独家内容。](https://lifehacker.com/everything-from-todays-apple-event-that-actually-matter-1838013573)
 

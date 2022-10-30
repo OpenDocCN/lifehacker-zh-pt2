@@ -4,7 +4,7 @@
 
 如果你在地上发现了某人丢失的钱包，你可以做一个乐善好施的人*和*懒惰的人:把它放在蓝色的盒子里就行了。
 
-Watch
+
 
 redditor[u/Joe cat 2112](https://www.reddit.com/user/joecat2112)在 r/LifeProTips 中贴出了这个 [的有用花絮](https://www.reddit.com/r/LifeProTips/comments/9jih03/lpt_if_you_find_a_lost_wallet_in_the_us_you_can/?utm_source=ifttt) ，简单写道:
 

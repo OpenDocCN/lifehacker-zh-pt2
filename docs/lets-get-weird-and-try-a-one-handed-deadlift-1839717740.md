@@ -4,7 +4,7 @@
 
 我们在 Lifehacker 健身挑战赛中做了很多不同的练习，从 [杠铃举](https://vitals.lifehacker.com/how-was-your-month-of-bench-press-1830766132) 到 [耐力运动](https://vitals.lifehacker.com/how-to-add-a-long-run-to-your-running-routine-1834309307) 到 [瑜伽](https://vitals.lifehacker.com/decembers-fitness-challenge-is-yoga-1830827794) 等等。不过，这个月将会很特别:我们将进行一些你可能从未尝试过的托举。
 
-Watch
+
 
 在过去的几个月里，我花了很多自己的时间在健身房探索全能举重，这是一项涉及举重的运动，大多数人要么忘记了，要么根本没听说过，要么太胆小不敢尝试。还有很多单手托举，比如哪个 [曾经是很早奥运会的东西](https://en.wikipedia.org/wiki/Weightlifting_at_the_1896_Summer_Olympics_%E2%80%93_Men%27s_one_hand_lift) 却失宠了。
 

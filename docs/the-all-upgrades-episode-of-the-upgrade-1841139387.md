@@ -4,7 +4,7 @@
 
 在本周的节目中，Alice 和 Melissa 回顾了过去几集的升级，看看他们是如何坚持下来的，从 chrome 扩展到心态的转变。有一点点骄傲，一点点羞愧，还有一大堆进步。到这一集结束时，你会变得如此完美，以至于你不知道下一集要做什么！
 
-Watch
+
 
 [https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/50a1b5f4-0486-4c02-b067-e4dc8b807ec3/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/50a1b5f4-0486-4c02-b067-e4dc8b807ec3/embed)
 

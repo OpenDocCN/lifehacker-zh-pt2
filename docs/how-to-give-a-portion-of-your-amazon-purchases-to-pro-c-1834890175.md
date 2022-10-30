@@ -4,7 +4,7 @@
 
 如果你是亚马逊的顾客*和*，你对六周堕胎禁令签署成为法律感到厌恶，你可以设置你的账户直接支持堕胎组织。
 
-Watch
+
 
 通过 [亚马逊的“微笑”计划](https://smile.amazon.com/gp/chpf/about/ref=smi_se_dshb_aas_saas?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-give-a-portion-of-your-amazon-purchases-to-pro-c-1834890175&asc_source=&tag=kinjalifehackerlink-20) ，你可以从 100 多万个非营利组织中进行选择，这些组织有资格获得亚马逊的一部分销售额，以支持他们的使命。
 

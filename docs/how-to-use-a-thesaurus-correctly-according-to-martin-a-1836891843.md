@@ -6,7 +6,7 @@
 
 马丁·艾米斯使用同义词词典。这位英国小说家和评论家被认为是一种势利小人，而同义词库被认为是业余作家试图听起来聪明而滥用的危险工具，但正如你可能已经猜到的那样，埃米斯使用同义词库的方式与大学新生非常不同。在上面的大思考视频(via [开放文化](http://www.openculture.com/2019/07/martin-amis-explains-how-to-use-a-thesaurus-to-actually-improve-your-writing.html) )中，他描述了使用同义词库的更好方法。
 
-Watch
+
 
 就像 [上百万篇关于写作风格的文章警告](https://slate.com/human-interest/2014/08/writing-clearly-in-student-papers-the-right-click-thesaurus-and-rogeting-are-ruining-writing.html) 的那样，同义词词典的危险在于，你可能会用一个不恰当的词替换一个恰当的词。你可能会用自命不凡的“抄写员”来代替非常好的词“作家”，或者用“停止”来代替“停止”，或者一些其他类型的学期论文废话。
 

@@ -4,7 +4,7 @@
 
 从今天开始，你可以将谷歌助手的“给我讲个故事”功能带在身边。
 
-Watch
+
 
 这项功能是去年为 Google Home 推出的，允许你说“嘿，Google，给我讲个故事”来触发你的 Google Home、Mini、Hub 或 Max 给你的孩子讲个小故事。现在，同样的功能也适用于 iOS 和 Android 设备。
 

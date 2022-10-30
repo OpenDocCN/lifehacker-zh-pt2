@@ -4,7 +4,7 @@
 
 如果你是戴口罩的新手，并且是三分之二戴处方眼镜的美国成年人 中的 [之一，你可能已经注意到一个问题:模糊的镜片。这听起来微不足道，但既然](https://www.thevisioncouncil.org/sites/default/files/Q415-Topline-Overview-Presentation-Stats-with-Notes-FINAL.PDF) [疾病预防控制中心已经建议每个人在外出时戴上布口罩](https://lifehacker.com/do-homemade-face-masks-help-stop-the-spread-of-the-coro-1842514179) ，以帮助防止冠状病毒的传播，这曾经是某些职业的问题，现在正在影响其他人。
 
-Watch
+
 
 在这个疫情开始之前，我花了一年半的时间长时间戴口罩 [，同时照顾我的母亲](https://lifehacker.com/how-to-write-and-deliver-a-eulogy-1839419280) ，她正在接受白血病化疗和干细胞移植治疗。我们被告知，她有一个没有任何疫苗的婴儿的免疫系统，并被建议在她周围戴口罩。作为一个戴眼镜的人，这提出了一个挑战:当你的眼镜一直蒙着雾时，很难完成工作。
 

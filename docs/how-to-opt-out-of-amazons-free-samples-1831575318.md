@@ -4,7 +4,7 @@
 
 在邮件中收到免费的东西总是很有趣，尤其是如果它们是一个惊喜——无论是朋友或爱人的礼物，还是亚马逊微妙的鼓励，让你应该尝试一下赞助的产品。
 
-Watch
+
 
 至少，根据最近来自 [Axios](https://www.axios.com/amazon-ad-strategy-free-samples-based-on-consumer-data-5ce0fe5b-6112-4d59-8d28-39278f457b6d.html) 的一份报告，这是亚马逊让你接触“你可能喜欢的产品”的最新策略。如果亚马逊从你的浏览或购物历史中获得一种感觉，你可能会发现一种产品“”，并且一位广告商给了亚马逊一堆免费样品，你可能会发现一件礼物放在你的门口，没有任何通知说它正在路上——除非你收到关于即将发货的 [UPS 或联邦快递](https://lifehacker.com/how-to-track-incoming-packages-like-a-pro-for-free-1829681982) 警报。
 

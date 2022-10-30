@@ -4,7 +4,7 @@
 
 我喜欢极客的恶作剧，18 岁的 Sam Chiet 的新桌面软件 Goose 是随身携带在闪存盘上的完美应用。你的朋友会恨你的。你学校的 IT 部门会*真的*讨厌你。但是小比看 [*无题鹅游戏*](https://kotaku.com/untitled-goose-game-the-kotaku-review-1838264644) 的明星动物更有趣，也更傻，在你的 [Windows 或 Mac 桌面](https://samperson.itch.io/desktop-goose) 上游荡，按喇叭，偷你的鼠标光标(还有其他烦恼)。
 
-Watch
+
 
 ***更新 2019 年 2 月 5 日:**我们已经更新了这篇文章，以提及这款应用的 Mac 版本，这是开发人员 Sam Chiet 在我们写完最初的故事后发布的。现在，没有人能幸免于这只鹅。*
 

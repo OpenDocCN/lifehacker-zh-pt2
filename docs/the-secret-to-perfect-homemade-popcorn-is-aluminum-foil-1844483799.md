@@ -4,7 +4,7 @@
 
 爆米花不仅仅是一种小吃；对我来说，这是一种生活方式。我对这种生活方式的执着意味着我总是对学习新方法感兴趣，以加快 或 [的速度，或者提高](https://lifehacker.com/youre-not-using-enough-oil-to-pop-your-popcorn-1827137012) 我的技术——我最近发现了我认为是我完美爆米花程序的最后一部分。
 
-Watch
+
 
 当然，我是从 YouTube 上学会的。在新冠肺炎隔离大约一个月后，Polygon 视频制作人 [布莱恩·大卫·吉尔伯特在他的个人频道](https://www.youtube.com/watch?v=3fG8rNHUspU) 上发布了一个关于“胡椒”的视频，这是一种标志性的调制食品，使用老干妈辣椒酥和 gochugaru 来获得美味、辛辣的感觉。
 

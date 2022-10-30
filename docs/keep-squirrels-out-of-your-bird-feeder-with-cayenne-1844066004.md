@@ -4,7 +4,7 @@
 
 松鼠霸占了你为邻居鸟类精心准备的所有种子吗？看着他们如此无耻地偷窃，你是否感到厌倦？—当当地的蓝鸟和红翼乌鸫在安全的距离观看时，什么不是它们的？粗鲁。为了缓解这个问题，你所要做的就是给鸟食加点香料。
 
-Watch
+
 
 [Reddit 用户 u/kaganey](https://www.reddit.com/r/LifeProTips/comments/h9qei9/lpt_mix_cayenne_pepper_in_with_your_birdseed_to/) 解释道:
 

@@ -4,7 +4,7 @@
 
 Tinder 为一些被指控强奸的--[比](https://www.tampabay.com/news/crime/2019/10/24/man-shot-in-davis-islands-case-now-accused-of-raping-tinder-date/) - [恒星](https://www.washingtonpost.com/nation/2019/09/19/an-alleged-serial-rapist-met-victims-bumble-tinder-his-attorneys-say-women-were-there-hook-up/) [男性](https://www.stuff.co.nz/national/crime/117973796/man-denies-raping-tinder-date-and-offering-her-money-to-keep-quiet) 提供了一个约会平台——在一个可怕的案例中， [肢解](https://www.cnn.com/2019/06/25/us/defendant-murder-slash-throat-court/index.html)——他们通过该平台认识的女性。但即使公司做了正确的事情，仍有隐私权衡要考虑。
 
-Watch
+
 
 虽然该公司似乎仍然缺乏一些基本的安全措施，比如说， [先发制人地筛查已知的性犯罪者](https://www.buzzfeednews.com/article/hillaryflynn/tinder-lets-known-sex-offenders-use-the-app-its-not-the) ，但该公司*周四宣布了最新的努力，以遏制其多年来积累的声誉: [“应急按钮”](https://gizmodo.com/tinder-is-getting-a-panic-button-specifically-tailored-1841179910) ，将每个用户与紧急响应者联系起来。在一家名为 Noonlight 的公司的帮助下，Tinder 用户将能够分享他们的约会细节——以及他们的特定位置——以备执法部门需要介入。*
 

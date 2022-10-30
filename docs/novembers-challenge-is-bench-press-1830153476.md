@@ -4,7 +4,7 @@
 
 我们已经 [蹲起](https://vitals.lifehacker.com/julys-fitness-challenge-is-squats-1827051624) 和 [硬拉](https://vitals.lifehacker.com/how-was-your-month-of-deadlifts-1830124247) ，所以是时候解决 [卧推](https://lifehacker.com/everything-you-need-to-know-to-master-the-bench-press-s-1769031371) 了。我们为每个人都留有空间:即使你从未尝试过，也许有点害怕把酒吧摔在你的脸上，你仍然可以加入。
 
-Watch
+
 
 可能最简单的开始方法是用一对哑铃，一手一个。这种锻炼肌肉的方式与单个大杠铃不同，所以即使你习惯了杠铃，你也可以尝试哑铃卧推来改变一下节奏。
 

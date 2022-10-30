@@ -4,7 +4,7 @@
 
 如果你担心美国邮政署​明显缺乏处理即将到来的邮寄选票所需的资金，一条短信可以帮助你。在 Twitter 上， [@Resistbot](https://twitter.com/resistbot) 主动提出通过短信或直接信息交换的方式代表你给代表们写信。
 
-Watch
+
 
 (如果你想，“等等，USPS 怎么了，”请 [花点时间到这里赶上](https://lifehacker.com/help-save-the-usps-with-one-call-1844726967) 。我知道*现在一切看起来都很重要，但这很可能会影响选举的结果，因为大量的选票没有计算在内。)*
 

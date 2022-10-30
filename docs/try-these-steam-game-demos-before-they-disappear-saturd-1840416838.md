@@ -4,7 +4,7 @@
 
 昨晚举行了游戏颁奖。虽然我们确实喜欢漂亮的奖杯(并为外部世界 [没有获得最高荣誉](https://kotaku.com/sekiro-wins-game-of-the-year-at-the-2019-game-awards-1840403746) 而感到难过)，但这一事件不仅仅是像素盛况。在这个大日子的同时，还有一个 PC“游戏节”正在进行——全部在 [Steam](https://store.steampowered.com/sale/thesteamgamefestival) 上进行——其中有一些很棒的限时演示，你现在就可以玩。
 
-Watch
+
 
 您可以在周六下午 1 点左右(美国东部时间)之前试用这些演示，我建议您今晚清空自己的时间表。毕竟，这是你第一次有机会尝试经典 [*系统冲击*](https://www.youtube.com/watch?v=TvzXqhh_ktQ)*的改版，这绝对值得你花些时间。我也推荐看看 [*腐肉*](https://www.youtube.com/watch?v=o-L0_TJ4i-o) ，看着毛骨悚然(又好玩)的 AF。*
 

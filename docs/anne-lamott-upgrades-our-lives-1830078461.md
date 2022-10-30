@@ -4,7 +4,7 @@
 
 安妮·拉莫特(Anne Lamott)是一位进步的政治活动家和作家，畅销书有《一鸟接一鸟[【旅行礼遇】](https://www.amazon.com/Traveling-Mercies-Some-Thoughts-Faith-dp-0385496095/dp/0385496095/ref=mt_paperback?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/anne-lamott-upgrades-our-lives-1830078461&asc_source=&me=&qid=1540834326&tag=kinjalifehackerlink-20)[【操作指南】](https://www.amazon.com/Operating-Instructions-Journal-Sons-First/dp/1400079098/ref=tmm_pap_swatch_0?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/anne-lamott-upgrades-our-lives-1830078461&asc_source=&qid=1540834352&sr=1-1&tag=kinjalifehackerlink-20)[B 计划](https://www.amazon.com/Plan-B-Further-Thoughts-Faith-ebook/dp/B000P2A49A/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/anne-lamott-upgrades-our-lives-1830078461&asc_source=&ie=UTF8&keywords=plan b by anne lamott&qid=1540834378&s=books&sr=1-1&tag=kinjalifehackerlink-20) ，以及她的最新作品 [【几乎无所不包:希望笔记](https://www.amazon.com/gp/product/B07B78CR8B/ref=dbs_a_def_rwt_hsch_vapi_tkin_p1_i0?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/anne-lamott-upgrades-our-lives-1830078461&asc_source=&tag=kinjalifehackerlink-20) 。我们是安妮·拉莫特的粉丝，所以我们决定将《升级版》的一整集献给她。我们和安妮几乎无话不谈，包括但不限于:如何应对新闻循环；在大悲剧面前，同情我们的小挫折；帮助如何成为控制的一种形式；将我们的内在与他人的外在进行比较；以及参观车管所的恐惧。
 
-Watch
+
 
 [https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/a4144ccb-5cdc-45c3-937a-2bf523f4dbdc/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/a4144ccb-5cdc-45c3-937a-2bf523f4dbdc/embed)
 

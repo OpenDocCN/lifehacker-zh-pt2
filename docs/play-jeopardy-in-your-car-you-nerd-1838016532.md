@@ -4,7 +4,7 @@
 
 播客、有声读物和音乐可以让你的日常生活不那么枯燥，但对于那些想要更多互动和精神参与的人来说，你现在可以通过智能手机使用 **Drivetime** 应用程序( [Android](https://play.google.com/store/apps/details?id=fm.drivetime.original&hl=en_US) ， [iOS](https://apps.apple.com/us/app/drivetime/id1357342274) )玩*亚历克斯·崔贝克主持的【危险】。*
 
-Watch
+
 
 该应用与索尼合作，通过向用户提供免费的每日剧集来庆祝《危险边缘》第 36 季。玩 Drivetime 的 *Jeopardy* 比赛不一定需要开车，但游戏是语音控制的——很容易提供答案*和*同时注意交通。
 

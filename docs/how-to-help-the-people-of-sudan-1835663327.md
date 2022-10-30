@@ -4,7 +4,7 @@
 
 六月是苏丹首都喀土穆 暴力的一个月，为平民领导的政府示威的和平抗议者在街上遭到了准军事部队的袭击。据估计，已有 100 多人死亡，数百人受伤。
 
-Watch
+
 
 正如 [《卫报》专栏作家内斯林·马利克](https://www.theguardian.com/commentisfree/2019/jun/16/sudan-sudanese-people-killing-rape-revolution) 写道:
 

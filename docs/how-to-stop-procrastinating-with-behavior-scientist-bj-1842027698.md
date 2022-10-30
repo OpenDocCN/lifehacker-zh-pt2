@@ -4,7 +4,7 @@
 
 你把事情拖到最后一分钟吗？你是数百万倾向于推迟到达你的待办事项列表的人之一吗？那么你很幸运——行为科学家 BJ·福格在这一集加入我们，谈论如何停止拖延，这要归功于他对行为的研究方法。BJ 是斯坦福大学行为设计实验室的创始人，也是《纽约时报》畅销书 [*【微小的习惯:改变一切的微小变化】*](https://www.amazon.com/Tiny-Habits-Changes-Change-Everything/dp/0358003326?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-stop-procrastinating-with-behavior-scientist-bj-1842027698&asc_source=&tag=kinjalifehackerlink-20) 的作者。
 
-Watch
+
 
 [https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/ed324293-a6ee-4b15-b4d0-30f993a58139/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/ed324293-a6ee-4b15-b4d0-30f993a58139/embed)
 

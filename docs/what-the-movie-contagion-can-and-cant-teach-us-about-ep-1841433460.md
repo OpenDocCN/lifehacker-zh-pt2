@@ -8,7 +8,7 @@
 
 自 2019 年以来，这部电影的受欢迎程度已经 [飙升](https://www.indiewire.com/2020/01/contagion-coronavirus-steven-soderbergh-streaming-boost-1202207137/)——nCoV 开始登上头条。从流行病学的角度来看，它做对了很多事情——但它也把所有事情都戏剧化了一点。这里有一个什么是现实的，什么是不现实的快速纲要。
 
-Watch
+
 
 剧透就在前方；你花了九年时间看这部电影。
 

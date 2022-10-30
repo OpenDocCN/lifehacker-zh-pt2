@@ -4,7 +4,7 @@
 
 继[*PUBG*](https://kotaku.com/playerunknowns-battlegrounds-mobile-is-a-pretty-decent-1823840220)T5[*堡垒之夜*](https://kotaku.com/fortnite-comes-to-android-today-but-there-are-catches-1828224066) 之后，动视将《使命召唤》的传奇多人游戏带到了 iOS 和 Android 设备的*使命召唤:移动*。该游戏将包括经典的使命召唤多人模式，如团队死亡比赛和免费开放，以及粉丝最喜欢的地图，如 Nuketown。 
 
-Watch
+
 
 *使命召唤:移动版*将于今年晚些时候发布，届时将可以从 iOS 应用商店和 Google Play 免费下载，但发行商 Activision 将在发布之前举行测试活动，让玩家有机会提前玩游戏，你现在就可以预先注册。
 

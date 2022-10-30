@@ -4,7 +4,7 @@
 
 我记得 2013 年苹果首次在 iOS 上推出隔空投送的时候。一个不同的版本已经在 Mac 上存在了一段时间，它无关紧要，因为当你可以在不同的 iphone*和笔记本电脑*之间拍摄文件时，隔空投送更有用，而不仅仅是后者。当时，我心想，“好吧，这就是未来。”
 
-Watch
+
 
 一晃七年过去了，Android 终于有了自己的原生分享功能。它被称为“附近共享”，你可以用它在安卓设备之间发送文件和其他内容——如网址，并有望在未来某个时候支持“其他平台”(谷歌 [调侃](https://www.androidpolice.com/2020/06/30/nearby-sharing-androids-airdrop-competitor-is-rolling-out-now-in-beta) )。我不会对你的 Android 和 iPhone 之间的跨平台共享抱太大希望，但至少有一天共享到 Windows 和 Linux 系统似乎是可行的。
 

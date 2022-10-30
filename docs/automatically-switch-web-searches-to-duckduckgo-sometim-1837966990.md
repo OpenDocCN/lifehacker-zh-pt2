@@ -4,7 +4,7 @@
 
 在某种程度上，谷歌已经使其搜索功能成为互联网的固有功能。这是我们大多数人使用网络的一部分，即使我们非常想切换到另一个搜索引擎，也会有点复杂。
 
-Watch
+
 
 [duck duck 有时](https://chrome.google.com/webstore/detail/duckducksometimes/khbjelepmeiljelecnngalpigkjaoaga?) 是一个 Chrome 扩展，可以自动将一定比例的谷歌搜索重定向到 DuckDuckGo 而不是谷歌。
 

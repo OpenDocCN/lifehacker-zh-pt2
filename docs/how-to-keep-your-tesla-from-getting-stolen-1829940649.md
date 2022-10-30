@@ -6,7 +6,7 @@
 
 本周早些时候，英国埃塞克斯郡的一名特斯拉车主发布了他的 [Model S 被一对窃贼偷走](https://gizmodo.com/hackers-allegedly-caught-on-video-stealing-tesla-model-1829905478) 的监控录像，这两个窃贼能用智能手机和平板电脑解锁并启动汽车。通过劫持车主的钥匙链，他们能够进入，打开汽车，禁用远程跟踪，并与他的花式骑走了！
 
-Watch
+
 
 虽然“保证你的特斯拉汽车的安全”可能是我们曾经解决的最棘手的问题之一，但许多汽车使用无钥匙进入，因此存在类似的安全问题。正如 [The Verge](https://www.theverge.com/2018/10/22/18008514/tesla-model-s-stolen-key-fob-hack-watch-video) 所指出的，包括 [大众](https://jalopnik.com/almost-every-volkswagen-built-since-1995-is-vulnerable-1785159844) 和 [奔驰](https://jalopnik.com/thieves-steal-a-car-in-20-seconds-by-remotely-cloning-t-1826451687) 在内的许多汽车制造商，多年来不得不与利用其钥匙上的安全漏洞的偷车贼作斗争。
 

@@ -4,7 +4,7 @@
 
 你可能厌倦了听到冠状病毒，而据我们所知，它只在地球上存在了 7 个月左右。人能得两次吗？[Vox](https://www.vox.com/2020/7/12/21321653/getting-covid-19-twice-reinfection-antibody-herd-immunity?utm_campaign=vox&utm_content=entry&utm_medium=social&utm_source=twitter)报道的一个最近的案例表明，答案可能是肯定的，但有太多的未知数来确认这是否是真的、或它的含义。这里有一些需要牢记的事情。
 
-Watch
+
 
 ### 测试结果并不完美
 

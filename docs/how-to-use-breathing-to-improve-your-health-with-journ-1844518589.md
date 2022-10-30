@@ -4,7 +4,7 @@
 
 本周，在记者詹姆斯·内斯特的帮助下，我们将学习如何更好地呼吸，以及这样做如何极大地改善我们的整体健康。詹姆斯是新书 [*呼吸:一门失传艺术的新科学*](https://www.amazon.com/Breath-New-Science-Lost-Art/dp/0735213615/ref=pd_bxgy_img_2/144-4139754-6076840?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-use-breathing-to-improve-your-health-with-journ-1844518589&asc_source=&pd_rd_i=0735213615&pd_rd_r=3e56d32e-ca0f-4407-b681-0a2e8e1d9e8c&pd_rd_w=56Vec&pd_rd_wg=fmdvI&pf_rd_p=ce6c479b-ef53-49a6-845b-bbbf35c28dd3&pf_rd_r=ZQMD2N25XFW6MASTFV51&psc=1&refRID=ZQMD2N25XFW6MASTFV51&tag=kinjalifehackerlink-20) 的作者，该书涵盖了对我们有时难以呼吸的许多方式的广泛研究——从哮喘、过敏到打鼾——以及我们可以为此做些什么。他与 Lifehacker 主编 Alice Bradley 讨论了用嘴呼吸的危险，我们复杂的鼻腔如何改善我们吸入的空气质量，以及训练自己用鼻子呼吸如何能够降低血压，帮助缓解焦虑，增强免疫系统。
 
-Watch
+
 
 [https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/e3081eea-362a-481a-ac87-abf48fe20f8b/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/e3081eea-362a-481a-ac87-abf48fe20f8b/embed)
 

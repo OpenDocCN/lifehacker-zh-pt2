@@ -4,7 +4,7 @@
 
 第二个大的 [像素功能于本周推出](https://www.blog.google/products/pixel/more-pixel-features-dropping) ，为谷歌的每款 Pixel 手机增加了一些新功能。其中的一些新功能已经在 Android 11 的预览版 [中发现，甚至有几个](https://lifehacker.com/how-to-test-the-best-features-in-the-android-11-preview-1841979306) [在非官方的](https://lifehacker.com/how-to-get-googles-car-crash-detection-app-on-older-pix-1841834525) 中提前泄露，但你会在本次更新中获得最终版本。
 
-Watch
+
 
 很像 [第一功能掉落](https://lifehacker.com/everything-google-is-launching-in-its-first-pixel-featu-1840345270) ，你得到的具体功能取决于你的设备。自然，Pixel 4 获得了最多的新功能，但可以说，从 Pixel 2 开始的所有产品都至少有一些新功能添加到了他们的工具带上。但是，如果你仍然使用原装 Pixel 或 Pixel XL，你将一无所获——这些手机不再受支持。
 

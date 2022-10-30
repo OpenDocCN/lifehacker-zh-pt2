@@ -4,7 +4,7 @@
 
 谷歌宣布，Chrome 浏览器的最新更新 Chrome 73、 [已经开始向 Windows](https://chromereleases.googleblog.com/2019/03/stable-channel-update-for-desktop_12.html) 、Mac 和 Linux 平台推出。虽然这些更新通常包括安全修复、系统级变化和开发人员的新工具，但 Chrome 73 也包括一些面向普通用户的新功能，包括备受期待的黑暗模式，尽管它们的可用性会因你使用的平台而异。
 
-Watch
+
 
 让我们回顾一下 Chrome 73 中的新功能，它们将在何时何地可用，以及如何启用它们。
 

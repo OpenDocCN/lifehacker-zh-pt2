@@ -4,7 +4,7 @@
 
 我总是找借口把酸奶油放在我的嘴里。我用所有常见的方式食用它(墨西哥玉米卷、玉米片、蘸酱)，但我也知道把它加入剩余的意大利面(是的，甚至是番茄酱！)然后用玉米片奶酪多力多滋蘸着舀到我脸上。这就是为什么我从未想过把它添加到焦糖中，这让我感到惊讶。
 
-Watch
+
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Add Sour Cream to Your Caramel Sauce](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/make-the-ultimate-salted-caramel-with-msg-1837100417)</aside>
 

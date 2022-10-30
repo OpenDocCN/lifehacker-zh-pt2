@@ -4,7 +4,7 @@
 
 在本周的《升级》节目中，我们将讨论如何说真话，以及如何知道你周围的人何时不诚实。我们将听到 MSNBC 主持人兼作家劳伦斯·奥唐奈讲述他的书《致命力量》背后的故事——一名手无寸铁的黑人被谋杀，随后警察掩盖了真相。梅丽莎与作家兼半职业扑克玩家 [彼得·奥尔森](https://www.amazon.com/gp/product/0517703300/ref=dbs_a_def_rwt_bibl_vppi_i2?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-tell-the-truth-with-msnbcs-lawrence-odonnell-1830390301&asc_source=&tag=kinjalifehackerlink-20) 聊天，讲述他以前作为博彩公司的生活，以及如何辨别某人是否在说谎。Lifehacker 的执行编辑弗吉尼亚·史密斯告诉我们一个来自 Lifehacker 档案的故事:“ [如何发现某人在说谎(并让他们说实话)。”](https://lifehacker.com/how-to-detect-when-someones-lying-and-get-them-to-tell-5959952)T11】
 
-Watch
+
 
 [https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/33fc0c21-d599-40ea-acde-6aa54ea48264/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/33fc0c21-d599-40ea-acde-6aa54ea48264/embed)
 

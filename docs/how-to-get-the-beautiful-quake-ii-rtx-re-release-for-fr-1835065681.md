@@ -6,7 +6,7 @@
 
 经典第一人称射击游戏*雷神之锤 II* 将重新发布，并有一些令人敬畏的图形更新。更好的是，从 6 月 6 日开始，你可以完全免费下载——尽管你需要在你的 PC 或笔记本电脑上安装一个坚固的 Nvidia GPU 才能玩它。
 
-Watch
+
 
 这款游戏的新版本被命名为 [*雷神之锤二 RTX*](https://www.nvidia.com/en-us/geforce/news/quake-ii-rtx-june-6-release-date/) ，由 Nvidia 和 Bethesda(拥有最初的*雷神之锤二*开发工作室，id 软件)共同开发，以展示 Nvidia 的 RTX 系列显卡的强大功能。
 

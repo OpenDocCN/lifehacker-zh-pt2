@@ -4,7 +4,7 @@
 
 使用新的 ShakeAlertLA 应用程序，在洛杉矶县地区获得地震即将开始的即时警告是一个选项。终于，我的手机派上用场了。
 
-Watch
+
 
 据美国广播公司新闻报道，该应用程序可供苹果和安卓手机下载，并且能够在地震来袭前 20 秒 [向人们发出警报](https://abc7.com/technology/earthquake-early-warning-app-for-la-county-available-for-download/5005402/) 。这听起来可能不多，但它可能是生与死的区别。
 

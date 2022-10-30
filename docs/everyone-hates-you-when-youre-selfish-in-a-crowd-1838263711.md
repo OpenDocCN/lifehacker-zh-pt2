@@ -4,7 +4,7 @@
 
 Reddit 肯定知道这是混蛋周。昨晚，r/AskReddit 上的第一个帖子问道， [“我们都同意的‘鸡巴举动’是什么？”](https://old.reddit.com/r/AskReddit/comments/d6dfbb/what_is_something_we_can_all_agree_on_being_a/) 由数千名 Reddit 用户同意的最佳答案，分享了一个主题:最普遍的迪克举动是在人群中自私。尤其是在那些*都想去某个地方*的人群中变得自私。例如:
 
-Watch
+
 
 *   插队
 *   将舱门挤出飞机

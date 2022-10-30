@@ -4,7 +4,7 @@
 
 Robinhood 用户在周一经历了惨痛的教训，当每个人都想立刻交易时会发生什么。股票交易应用程序在周一的大部分时间里都无法运行，周二早上又恢复了运行，导致用户 [被锁定在账户](https://gizmodo.com/stock-trading-app-robinhood-experiences-widespread-outa-1842042516) 之外，无法在主要市场反弹期间完成交易。
 
-Watch
+
 
 虽然最初有很多关于导致中断的猜测，但该公司 [昨天证实](https://blog.robinhood.com/news/2020/3/3/an-update-from-robinhoods-founders) 在市场条件下创纪录的交易量和账户注册量使其系统不堪重负。
 

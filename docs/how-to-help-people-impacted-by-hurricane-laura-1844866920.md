@@ -6,7 +6,7 @@
 
 (如果你需要一些关于各种天气术语的澄清， [我们刚刚做了一个讲解器](https://lifehacker.com/what-to-know-about-storm-terminology-before-the-next-bi-1844737150?rev=1597806326363) 告诉你在这样的情况下需要知道什么。)
 
-Watch
+
 
 还有， [正如我们之前也讨论过的，](https://lifehacker.com/how-to-shelter-from-a-storm-during-a-pandemic-1844698438) 疫情期间发生的飓风(或任何自然灾害)会让本已困难的情况变得更加糟糕。M 任何无家可归、断电的人可能会从地区避难所寻求帮助，那里可能会很拥挤——这使他们成为传染病传播的理想场所(即使没有疫情也是如此)。
 

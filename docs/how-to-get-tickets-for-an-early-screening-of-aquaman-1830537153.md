@@ -4,7 +4,7 @@
 
 亚马逊本周宣布，将在电影正式上映前六天为亚马逊 Prime 会员举行一系列《水行侠》的早期放映。根据[《The Verge】](https://www.theverge.com/2018/11/19/18102455/amazon-prime-early-aquaman-screenings-december-15)的消息，这部电影将于 12 月 15 日晚 7 点在美国 1000 家影院上映。
 
-Watch
+
 
 如果你不熟悉的话， *Aquaman* 是 DC Comics 电影世界的下一部作品。杰森·莫玛——你可能更熟悉《T2 权力的游戏》中的卓戈·卡奥——饰演亚瑟·库瑞，正义联盟的成员，亚特兰蒂斯海底文明的王位继承人。
 

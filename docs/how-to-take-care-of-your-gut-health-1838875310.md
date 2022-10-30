@@ -4,7 +4,7 @@
 
 本周我们将讨论粪便移植、益生菌、肠道菌群等等。你胃肠道里的细菌会影响你的情绪吗？你的微生物群如何影响你的整体健康？我们访问了计算生物学家 Jose Clemente 博士的实验室，他和他的团队在那里研究肠易激疾病患者粪便移植的疗效。
 
-Watch
+
 
 [https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/704bad1d-32eb-4466-88b5-d1111f0039de/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/704bad1d-32eb-4466-88b5-d1111f0039de/embed)
 

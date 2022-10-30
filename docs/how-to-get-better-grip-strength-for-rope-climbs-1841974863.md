@@ -4,7 +4,7 @@
 
 这个月我们学到了每一种握法都有点不同。我们已经学过了[撑握](https://vitals.lifehacker.com/how-to-get-a-stronger-support-grip-for-deadlifts-and-ha-1841519693)[捏握](https://vitals.lifehacker.com/how-to-strengthen-your-pinch-grip-1841693061)[开握](https://vitals.lifehacker.com/lets-train-our-open-hand-grip-1841830862) 。现在让我们来看一些有点奇怪的东西:你需要抓住垂直的东西，比如绳子。
 
-Watch
+
 
 你在其他区域的握力会对你有帮助，但是你的手腕在不同的位置。如果你抓的东西相当粗，比如一根大的攀岩绳，你张开手的力量就特别重要。
 

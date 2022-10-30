@@ -4,7 +4,7 @@
 
 大约在一年中的这个时候，小孩子们学会了如何描绘自己的手，并把这种描绘变成一只火鸡的图片。但是现在感恩节已经过去了，如果他们还在追踪那些手指，有另一种(可以说是更酷的)方法将它们变成艺术:画一只看起来立体的手。
 
-Watch
+
 
 这个想法来自于 Kinja 用户 MoetaRabona，他在 Youtube 上发布了一个 [这个教程的链接，在](https://www.youtube.com/watch?v=YNEXzvnD7mI&feature=youtu.be) [另一个后代帖子](https://offspring.lifehacker.com/play-these-pencil-and-paper-games-with-your-kid-1839717287) 的评论中:
 

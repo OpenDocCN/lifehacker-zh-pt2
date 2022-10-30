@@ -4,7 +4,7 @@
 
 仅仅因为你可以在网上买东西，并不意味着你应该这样做。三氯乙酸是一种化学去死皮的主要成分，你可以从美学家或皮肤科医生那里得到，它很容易获得，但是高浓度的使用并不安全。
 
-Watch
+
 
 那是因为在你的皮肤上涂强酸 [实际上会侵蚀皮肤表层](https://labmuffin.com/fact-check-friday-what-is-a-chemical-peel/)——如果酸足够强，深层也会被侵蚀。 [奥德赛报道](https://www.theodysseyonline.com/diy-chemical-peel) 在 Instagram 和 YouTube 上，DIY 皮肤削皮已经成为一件事，经常以不适合家庭使用的酸为特色。展示这些果皮的化妆师经常以看起来像严重烧伤而告终。
 

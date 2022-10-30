@@ -4,7 +4,7 @@
 
 [复活节](https://www.cnn.com/2019/04/22/asia/sri-lanka-investigation-easter-attacks/index.html) 斯里兰卡发生 9 起爆炸案，造成 290 人死亡，500 多人受伤，其中包括多名美国公民。
 
-Watch
+
 
 周日上午 8 点 45 分左右，爆炸发生在 Negomonbo，Batticaloa 和 Colombo 的教堂。爆炸还发生在一些酒店，包括肉桂大酒店，热带酒店，金斯伯里，香格里拉，以及在德马塔戈达的住宅区。
 

@@ -8,7 +8,7 @@
 
 你应该在你的首选 iPhone 或 iPad 上安装 iOS 的公测版吗？大多数人对此持谨慎态度——尤其是在测试版还处于早期阶段的时候，因为你永远不知道什么样的 bug 会破坏你用 iPhone 做的事情(或者你最喜欢的应用程序)。
 
-Watch
+
 
 然而，我们现在是苹果 iOS 12.1 公开测试的第四个版本，所以你可以试一试，不用太担心。加入进来，你就可以玩一些功能，比如一辆数字翻斗车的新表情符号，Group FaceTime ( [最后是](https://lifehacker.com/what-to-use-for-video-calls-instead-of-facetime-1828527644) )，对你的肖像照片进行事后深度控制(仅限 iPhone XS 和 XS Max 用户)，以及 eSIM(如果你的运营商支持的话)，等等。
 

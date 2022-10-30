@@ -6,7 +6,7 @@
 
 ***更新:*** 看来 [开发者计划下周从 Itch.io 拉游戏](https://radiusgordello.itch.io/unreal-pt/devlog/63152/announcement-update-107-changelog) 。如果你还没有下载并计划玩它，在另一个版本的 *P.T.* 消失之前赶快抓住它。原故事如下。
 
-Watch
+
 
 P.T. 是有史以来最奇怪的视频游戏之一，不仅仅是因为它是 PlayStation 4 上一款优秀的简短形式的恐怖/益智游戏，还因为最初的游戏实际上已经从互联网上删除，多年来一直无法下载。
 

@@ -4,7 +4,7 @@
 
 你觉得筋疲力尽了吗？你有没有发现自己工作的时间比以前多了，而不是少了，甚至是在家工作的时候？屡获殊荣的记者 Celeste Headlee 本周加入了我们的升级节目，谈论忙碌的有毒文化如何伤害我们的大脑和身体，以及我们可以做些什么。Celeste 是 [*的作者，我们需要谈谈:如何进行有意义的对话*](https://smile.amazon.com/We-Need-Talk-Conversations-Matter-ebook/dp/B01NAID961/ref=sr_1_2?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-do-less-with-journalist-celeste-headlee-1842961409&asc_source=&crid=16WZ9GXENO6QE&dchild=1&keywords=celeste headlee&qid=1587135636&s=books&sprefix=celeste headlee,aps,154&sr=1-2&tag=kinjalifehackerlink-20) ，以及最近的 [*无所事事:如何摆脱过度劳累、工作过度和工作不足*](https://smile.amazon.com/Do-Nothing-Overworking-Overdoing-Underliving-ebook/dp/B07TX4NWZ2/ref=reads_cwrtbar_2/132-3520905-1437736?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-do-less-with-journalist-celeste-headlee-1842961409&asc_source=&pd_rd_i=B07TX4NWZ2&pd_rd_r=20d5e5e9-0d27-42c9-9a1d-b1062894a2de&pd_rd_w=UyrOE&pd_rd_wg=eublW&pf_rd_p=f7e50e46-03c7-4eda-9ad4-faa4a79972b4&pf_rd_r=WVGFPJ2SJVZR89VW8MAV&psc=1&refRID=WVGFPJ2SJVZR89VW8MAV&tag=kinjalifehackerlink-20) 。
 
-Watch
+
 
 在稍后的节目中，听听 Lifehacker 的健康编辑 Beth Skwarecki 与来自综合咨询心理服务的心理健康专家 Sanam Hafeez 博士的谈话，谈谈如何为我们自己和我们的孩子度过这个心理压力大的时期。
 

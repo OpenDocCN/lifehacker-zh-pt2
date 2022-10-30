@@ -4,7 +4,7 @@
 
 在 [发现一个可能让其他人偷听谈话的漏洞](https://gizmodo.com/apple-disables-watch-walkie-talkie-app-due-to-security-1836274902) 后，苹果公司暂时禁用了 Apple Watch 的 [对讲机](https://support.apple.com/en-us/HT208917) 应用程序。虽然苹果公司表示没有窃听事件的报告，但该应用程序被禁用，直到漏洞被修补(尽管它仍会安装在你的设备上)。
 
-Watch
+
 
 很高兴知道苹果正在修复 ，但这让 Apple Watch 用户没有了该设备更独特的功能之一， [迪克·特雷西](https://www.youtube.com/watch?v=lCHzE3B-DFE) 。如果你不想等苹果来修理对讲机，有大量的 [第三方替代品](https://lifehacker.com/find-ethical-open-source-alternatives-to-almost-every-a-1833746899) 可以填补空白。以下是我们最喜欢的对讲机替代品:
 

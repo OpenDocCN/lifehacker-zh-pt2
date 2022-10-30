@@ -4,7 +4,7 @@
 
 在冠状病毒关闭期间，我们最喜爱的作家、演员和组织现在都站出来提供资源和情感支持，b ut 芝麻街本周获胜。F 首先他们给我们提供了一个 [疫情 p laydate](https://lifehacker.com/check-out-elmos-pandemic-playdate-special-1842836663) 特别节目，现在他们给的孩子们选择“呼叫”一个心爱的角色来获得关于度过危机的建议*和*给我们一个动画短片系列，叫做 [怪物冥想](https://www.sesameworkshop.org/press-room/press-releases/sesame-street-and-headspace-team-encourage-kids-practice-meditation-and)
 
-Watch
+
 
 [格罗弗](https://www.instagram.com/p/B-7lrc3h2SG/) 和 [奥斯卡](https://www.instagram.com/p/B-7mHkKBLzd/) 各有的录音留言，给孩子(或者大人，说实话)。一个是甜美向上；另一个是，嗯，不高兴。这两首歌都是为南加州公共广播电台 [KPCC](https://laist.com/2020/04/13/coronavirus-sesame-street-psa.php) 录制的，并在新闻编辑室的公共事务节目 [与拉里·曼托](https://www.scpr.org/programs/airtalk/) 的空中对话中首播。你可以在网上听消息*或者*你可以打 626-831-9333 听电话录音。
 

@@ -4,7 +4,7 @@
 
 回收 [遇到麻烦](https://earther.gizmodo.com/recycling-is-broken-1833063010) 。这有很多原因，其中最主要的是中国 颁布的一系列关于回收商品 [的新禁令和限制。但是还有另一个相关的原因，为什么这么多美国人试图回收的东西现在被送进了焚化炉或垃圾填埋场。](https://earther.gizmodo.com/chinas-plastic-waste-ban-will-create-a-huge-issue-for-t-1826991472) 
 
-Watch
+
 
 我们在那里扔了很多垃圾。
 

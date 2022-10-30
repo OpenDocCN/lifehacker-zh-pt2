@@ -4,7 +4,7 @@
 
 去年，我们写过一个令人困扰的问题，Airbnb 出租的 [带有隐藏摄像头](https://lifehacker.com/how-to-find-hidden-cameras-in-your-airbnb-1829779293) ，监视客人。(回到[4 月](https://www.cnn.com/2019/04/05/europe/ireland-airbnb-hidden-camera-scli-intl/index.html) ，一个家庭甚至发现了一个隐藏的摄像头，对他们在爱尔兰 Airbnb 的住宿进行直播。)但在我们最新一期的 [Hack or Wack](https://lifehacker.com/c/hack-or-wack) 中，我们提出了另一个重要的相关问题:如果*知道*你会在 YouTube 上直播你的整个住宿过程，你会愿意预订一家便宜的酒店或 Airbnb 吗？
 
-Watch
+
 
 这个场景并不是假设的——日本福冈的一家酒店老板允许客人以 100 日元的价格住在他出租的房子里，如果他们愿意在 [酒店的 YouTube 页面](https://www.youtube.com/channel/UCfGp5tr2rRZCWhALrp9BBkw) 上直播他们的体验，只需 1 美元，该页面目前有超过 6000 名订户。评论者可以在游客旅行期间直接与他们聊天，也可以在他们流的时候与他们聊天。
 

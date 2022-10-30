@@ -4,7 +4,7 @@
 
 太多时候，擅长创造事物的人被提升为创造事物的人的主管，而没有任何关于如何领导的培训。那么如何成为一个好老板呢？你在工作中学会了领导技能，还是需要特殊的指导？本周我们将揭晓答案。首先，我们将通过 Lifehacker 的全新职业建议专栏“人力资源”的作者来了解一个好老板的素质:罗布·沃克[:。然后，高管教练](https://www.nytimes.com/by/rob-walker) [詹妮弗·戈德曼-韦兹勒](http://alignmentstrategiesgroup.com/) 告诉我们她是如何帮助老板们做到最好的。最后，Ruby on Rails 的创始人和 Basecamp 的联合创始人[David Heinemeier Hansson](https://www.amazon.com/gp/product/0062874780/ref=dbs_a_def_rwt_bibl_vppi_i0?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-be-a-good-boss-with-basecamp-s-david-heinemeier-1832438020&asc_source=&tag=kinjalifehackerlink-20)，告诉我们如何用五个步骤打造一个不疯狂的工作场所。
 
-Watch
+
 
 [https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/def069b7-2bb5-42c3-b3a1-69fd8710ff3d/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/def069b7-2bb5-42c3-b3a1-69fd8710ff3d/embed)
 

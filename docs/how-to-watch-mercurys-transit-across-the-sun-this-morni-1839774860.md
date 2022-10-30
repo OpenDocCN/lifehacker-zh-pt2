@@ -4,7 +4,7 @@
 
 上周，我们写了关于 [的一种方法，通过将它们与整个行星和星系的大小进行比较，来获得对你的问题的观点](https://lifehacker.com/get-perspective-on-your-problems-with-the-size-of-space-1839663190) 。
 
-Watch
+
 
 如果你想感觉更加无足轻重，从美国东部时间今天早上 7:35 开始，大约五个半小时，水星将穿过太阳表面；水星凌日，正如它所提到的，每个世纪只发生 [13 次](https://www.nytimes.com/2019/11/11/science/mercury-transit-2019.html) ，直到 2032 年才会再次发生。(对于美国人来说，你要到 2049 年才能亲眼看到它。)
 

@@ -4,7 +4,7 @@
 
 还记得冠状病毒不是所有人谈论的话题吗？还记得主导谈话的话题是某个长着大耳朵、大眼睛的小家伙，有点像尤达，但样子可爱得不可思议的日子吗？当然，我指的是 [孩子](https://www.youtube.com/watch?v=E5YbEuypNlw&list=PLXsbMnnbPpLWY31v18tLFn1KHZQEw3CTy) ，在我们心中更为人所知的是尤达宝宝，还有伙计们——我想我们都该学习如何画他了。我肯定我说的“我们”可能是指“我们的孩子”
 
-Watch
+
 
 幸运的是，迪士尼有一个专门为喜爱《星球大战》的孩子们开设的 [YouTube 频道](https://www.youtube.com/channel/UCDe7m0POuwkL1gwnQ-FVhMw) ，它的播放列表充满了各种与《星球大战》相关的活动。其中一个人正在学习如何画一些我们最喜欢的角色、生物、船只和配件。小孩(或大人)可以学习如何画出 [死星、光剑](https://www.youtube.com/watch?v=_BFRsXtkVkA&list=PLXsbMnnbPpLWY31v18tLFn1KHZQEw3CTy&index=15) 、光剑 [千年隼](https://www.youtube.com/watch?v=p5mD7Xn__G8&list=PLXsbMnnbPpLWY31v18tLFn1KHZQEw3CTy&index=11) 、光剑和光剑 [凯洛·伦](https://www.youtube.com/watch?v=5ijM0Wm5KAQ&list=PLXsbMnnbPpLWY31v18tLFn1KHZQEw3CTy&index=2) 。当然，这些你都可以画。*或*你可以画出:
 

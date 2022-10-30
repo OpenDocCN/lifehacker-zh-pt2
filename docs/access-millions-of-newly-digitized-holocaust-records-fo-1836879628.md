@@ -4,7 +4,7 @@
 
 多亏了新的数字化档案 ，大屠杀和纳粹迫害的记录变得更加容易获取。Ancestry.com 和国际纳粹迫害研究中心 [阿罗森档案馆](https://arolsen-archives.org/en/search-explore/search-online-archive/) 的一项联合行动已经将那个时代的数百万份档案数字化。与族谱研究网站的许多其他功能不同， [这个档案将对所有人免费开放](https://www.ancestry.com/alwaysremember) ，无论订阅与否。
 
-Watch
+
 
 根据 Ancestry 的博客 上的一篇文章，该收藏包含数百万个名字和其他一些受大屠杀和纳粹迫害影响的人的信息。虽然这些记录以前就有，但要获得它们要困难得多，需要手动索取文件副本。现在它们都可以在网上搜索到。
 

@@ -4,7 +4,7 @@
 
 我们回来了！本周我们将学习谈判的来龙去脉。我们将会发现如何让一个人说“是”，当他们都在说“不”的时候；机器人何时以及如何为我们谈判；以及怎样做才能得到你应得的加薪。加入我们的是作家、播客和个人理财专家 [法诺什·托拉比](http://farnoosh.tv/) 。Farnoosh 是《T4》[*的作者，她提出了更多:养家糊口的女人的 10 条规则*](https://www.amazon.com/When-She-Makes-More-Breadwinning/dp/1594632162/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-negotiate-like-a-pro-with-personal-finance-expe-1834416148&asc_source=&crid=3H4B265HD6BMM&keywords=farnoosh torabi&qid=1556637527&s=gateway&sprefix=Farnoosh tora,aps,199&sr=8-1&tag=kinjalifehackerlink-20) 和 [*让自己变得富有:获得建立你的财务生活所需要的心态和纪律*](https://www.amazon.com/gp/product/0137079273/ref=dbs_a_def_rwt_bibl_vppi_i2?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-negotiate-like-a-pro-with-personal-finance-expe-1834416148&asc_source=&tag=kinjalifehackerlink-20) 和 [*所以钱。*](https://www.amazon.com/gp/product/0137079273/ref=dbs_a_def_rwt_bibl_vppi_i2?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-negotiate-like-a-pro-with-personal-finance-expe-1834416148&asc_source=&tag=kinjalifehackerlink-20)
 
-Watch
+
 
 [https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/3738060d-baf7-408b-993c-79dccf3507df/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/3738060d-baf7-408b-993c-79dccf3507df/embed)
 

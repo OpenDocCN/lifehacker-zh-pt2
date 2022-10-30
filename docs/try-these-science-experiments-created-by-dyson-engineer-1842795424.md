@@ -4,7 +4,7 @@
 
 戴森的工程师想知道: [你的孩子准备好迎接挑战了吗](https://www.jamesdysonfoundation.com/resources/challenge-cards.html) ？嗯，也许他们以前不是，但他们现在已经回家一个月了，他们已经无聊透顶了。现在是尝试新事物的好时机。
 
-Watch
+
 
 詹姆斯·戴森基金会设计了 [44 项科学与工程挑战](https://www.jamesdysonfoundation.com/content/dam/pdf/US%20challenge%20cards%20with%20cover.pdf?)——可能更为人所知的是科学实验——孩子们可以在家里做。它们包括许多你已经在厨房或房子周围拥有的原料或工具。挑战包括创建:
 

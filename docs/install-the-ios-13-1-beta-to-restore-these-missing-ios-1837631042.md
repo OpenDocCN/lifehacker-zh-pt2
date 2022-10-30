@@ -6,7 +6,7 @@
 
 iOS 13.0 [甚至还没有*出*](https://lifehacker.com/how-to-enroll-in-the-ios-13-macos-catalina-and-ipados-1835814672)已经到了开始测试 iOS 13.1 的时候了。这个新版本的 iOS 绝对值得一试，因为它添加了苹果从 iOS 13 的各个版本中删除的一些功能。
 
-Watch
+
 
 下面快速浏览一下 [如果你选择进入 iOS 13.1 beta 测试，你可以期待什么](https://developer.apple.com/documentation/ios_ipados_release_notes/ios_ipados_13_1_beta_release_notes) 。(如果你还没有看到更新的选项，并且你在公共测试版中，考虑切换到 [开发者测试版](https://betaprofiles.com/) ):
 

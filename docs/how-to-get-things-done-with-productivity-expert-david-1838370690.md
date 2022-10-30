@@ -4,7 +4,7 @@
 
 本周我们和生产率传奇人物大卫·艾伦聊聊 GTD，或者“”把事情做好，这是他的黄金标准时间管理哲学。Lifehacker 的员工也分享他们的工作秘密。了解 Two Cents 作家 Lisa Rowan 使用什么样的老派方法来让自己保持正轨，社交媒体编辑 Tim Mulkerin 如何使用 Slack 进行组织，以及专职作家 Josh Ocampo 在对工作感到厌倦时会做什么。(T4)说真的，乔希，这怎么可能？ )
 
-Watch
+
 
 [https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/542246f6-2dbe-4cdc-b150-65299794f225/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/542246f6-2dbe-4cdc-b150-65299794f225/embed)
 

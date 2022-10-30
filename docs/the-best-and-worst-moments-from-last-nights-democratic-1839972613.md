@@ -4,7 +4,7 @@
 
 结束了漫长的一天 [弹劾听证会证词](https://www.cnn.com/2019/11/20/politics/gordon-sondland-hearing-takeaways/index.html)[昨晚的民主辩论](https://www.washingtonpost.com/politics/2019/11/21/transcript-november-democratic-debate/) 中，10 名总统候选人就充足的带薪家庭假、妇女生育权和罗伊诉韦德案以及美国在香港持续抗议和暴力中的作用等问题进行了辩论。
 
-Watch
+
 
 如果你完全错过了这场辩论，或者正在耐心等待，直到拥挤的民主党候选人减少到不到 10 名，然后才能跟上，下面你会发现第五场民主党辩论的几个亮点，包括一场关于乔·拜登在讨论大麻时是否“兴奋”的辩论，以及一场关于总统竞选中性别双重标准的更大讨论。
 

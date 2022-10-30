@@ -7,7 +7,7 @@
 今天， [FIDO 联盟和环球网财团(WC3)](https://fidoalliance.org/android-now-fido2-certified-accelerating-global-migration-beyond-passwords/)
 [宣布](https://fidoalliance.org/android-now-fido2-certified-accelerating-global-migration-beyond-passwords/)Android OS 已经获得 [FIDO2 认证](https://fidoalliance.org/fido2/) 。这将使 Android 用户能够使用他们的指纹——而不是密码— 登录网站和其他服务,开发人员现在可以在他们的 web 应用程序和登录页面中添加无密码认证,以及在 Google Play 服务自动更新后添加他们的原生 Android 应用程序。
 
-Watch
+
 
 虽然许多 Android 设备和应用程序之前都包含了基于指纹的登录，但 FIDO2 的实现是不同的，它在 Android 上的采用意味着我们可能正在慢慢接近密码过时的未来。
 

@@ -4,7 +4,7 @@
 
 对于在 PC 上玩辐射 76 的玩家来说，假期并不快乐。MMORPG 出现了一种新的黑客技术，允许某人窃取另一个玩家库存中的所有东西，似乎只需动动手指。
 
-Watch
+
 
 根据追踪辐射出版商 Bethesda 社区的 YouTuber 网站 [Juicehead](https://www.youtube.com/watch?v=w7FtkkDhw_I) 的一份视频报告，这种作弊行为独立于辐射 76 的玩家对玩家交易系统，黑客可以在其他玩家足够接近并看到你时立即锁定他们。Reddit 和 Bethesda 的辐射 76 论坛上的一些玩家已经报告说他们的东西被盗了。
 

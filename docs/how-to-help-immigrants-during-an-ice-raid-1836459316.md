@@ -4,7 +4,7 @@
 
 上周，特朗普总统 [证实了](https://abcnews.go.com/Politics/cities-brace-ice-deportation-raids-trump-threats-spread/story?id=64268222) 的传言，即移民和海关执法局将在美国各地进行突击检查，影响到纽约、休斯顿、芝加哥和洛杉矶等城市的移民社区。作为回应，许多移民权利倡导者和组织通过提高对移民合法权利的认识，遏制了 ICE 突袭行动。
 
-Watch
+
 
 “芝加哥北部移民和家庭服务中心 Centro Romero 的经理苏珊娜·萨尔加多(Susana Salgado)说，老师们过去一周都在教暑期项目的学生，如果 ice 特工上门，他们应该怎么做，”《纽约时报》 写道。“‘我们告诉他们回答时要小心，即使他们认为，‘哦，是送披萨的。"
 

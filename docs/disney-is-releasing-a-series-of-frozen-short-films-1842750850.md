@@ -4,7 +4,7 @@
 
 三月份，当迪士尼提前三个月向迪士尼+发布《冰雪奇缘 2》时，迪士尼听到并回应了各地父母的祈祷。这是一个 1 小时 43 分钟的亮点，我们现在知道这只是一个非常漫长，非常孤立的疫情的开始。但是迪士尼的动画师和演员现在都在家，就像其他人一样，所以他们决定聚在一起(象征性地)给我们带来一点额外的快乐。
 
-Watch
+
 
 [迪士尼动画本周在推特上发布](https://twitter.com/DisneyAnimation/status/1247147046886240256) 称，他们将推出一个新的数字系列，免费的【T4 与奥拉夫在家】——不需要迪士尼+会员。该系列的第一集名为“[Fun wwith Snow](https://www.youtube.com/watch?v=dL1kDLQ8-kg)”，于周三上映。此后又有两集新上映(每天一集):“ [独自在森林里](https://www.youtube.com/watch?v=Bskod_BtxpM) ”和“ [Fishin](https://www.youtube.com/watch?v=BiKZZQhk9YM) ”。"
 

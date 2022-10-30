@@ -4,7 +4,7 @@
 
 本周，在图书管理员兼播客玛格丽特·h·威廉森的帮助下，我们将学习如何成为更好的读者。请听 Margaret 分解我们应该如何思考我们对成为 【好】或“博览群书”的读者的定义是什么意思，以及我们可以用来改进我们自己的阅读游戏的策略——从利用有声读物到放弃此刻不吸引我们的书籍。
 
-Watch
+
 
 除了图书管理员之外，玛格丽特还是 NPR 的 [流行文化欢乐时光](https://www.npr.org/podcasts/510282/pop-culture-happy-hour) 和的播客 [预约电视](https://atvpodcast.com/) 的共同主持人。她还合著了时事通讯 [两个专横的女人](http://tinyletter.com/twobossydames) 。
 

@@ -4,7 +4,7 @@
 
 谷歌 Chrome 的一个安全漏洞是上周 主动攻击下的[；虽然谷歌最新的 Chrome 更新(希望)自动修复了你浏览器中的问题，但重要的是你再次检查你运行的是最新版本(72.0.3626.121)。](https://www.zdnet.com/article/google-reveals-chrome-zero-day-under-active-attacks/)
 
-Watch
+
 
 但是不要相信我们的话。当 Chrome 的安全和桌面工程负责人 建议你现在更新——“就在此刻”——你应该花几秒钟检查你的浏览器版本。
 

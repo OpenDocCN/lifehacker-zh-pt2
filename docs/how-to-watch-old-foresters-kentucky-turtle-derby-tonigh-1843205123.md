@@ -4,7 +4,7 @@
 
 今天是肯塔基赛马会的原定日期。虽然实际的赛事被重新安排在 9 月份，但本周末 [仍有许多与德比相关的活动在进行](https://lifehacker.com/how-to-watch-the-virtual-kentucky-derby-this-weekend-1843183973) 包括伍德福德保护区酿酒大师的薄荷朱利酒课程，电视直播的虚拟赛马，以及现在的海龟德比。
 
-Watch
+
 
 是的，你没看错:海龟德比。
 

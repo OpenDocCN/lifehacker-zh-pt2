@@ -4,7 +4,7 @@
 
 《办公室》于 2013 年停播，同年 Slack 向公众推出。这意味着，可悲的是，我们在 Dunder-Mifflin 的英雄们无法体验服役的快乐和痛苦。但是如果他们做了呢？
 
-Watch
+
 
 来自 MSCHF [的企业家们在 Slack](https://theofficeslack.com/) 中重现了这一标志性节目的每一集，你可以收听并实时观看每天的活动。
 

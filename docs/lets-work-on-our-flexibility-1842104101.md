@@ -4,7 +4,7 @@
 
 我在灵活性方面做得不够。我的意思是，我可以移动得足够好，做所有对我来说重要的托举和锻炼，我告诉自己这才是真正重要的。但后来我看到那些明显在灵活性上做了努力的人，他们能做的事情让我吃惊。也许这个月我们可以从他们的书里借鉴一页？
 
-Watch
+
 
 长期读者会记得，我们在 2018 年 3 月 也做了一次 [灵活性挑战。那时候，你可以自己选择伸展动作，而这次我们会更专注一点。但是这些旧帖子仍然值得一读，因为它们](https://vitals.lifehacker.com/the-march-fitness-challenge-is-all-about-flexibility-1823426153) [打破了一些关于拉伸](https://lifehacker.com/the-truth-about-stretching-when-it-helps-and-when-it-d-1718270464) 的神话，并给了你一些额外的入门指导。
 

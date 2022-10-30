@@ -4,7 +4,7 @@
 
 2020 年，由于 PlayStation 5 和 Xbox Series X，我们将看到视频游戏的一个大飞跃，电视制造商正在为此引入新技术。TCL 和 [Vizio](https://www.theverge.com/2020/1/5/21049756/vizio-new-4k-tvs-oled-p-series-quantum-x-ces-2020) 本周都宣布，他们的一些新电视将支持个人电脑和游戏机的可变刷新率，这一功能将有助于游戏在电视上更流畅地运行。( [LG](https://arstechnica.com/gadgets/2019/01/lg-announces-its-2019-oled-tv-lineup-plus-an-8k-monstrosity/) 去年也将其添加到其部分高端有机发光二极管电视中)。
 
-Watch
+
 
 可变刷新率在 PC 游戏玩家中是一个众所周知的功能，因为它在现代游戏显示器上是一个非常常见的功能。因为这对于游戏机玩家或者对电视更感兴趣的人来说是新的，所以让我们来谈谈可变刷新率能为你做些什么。
 

@@ -4,7 +4,7 @@
 
 今天， [ProPublica](https://www.propublica.org/article/evenflo-maker-of-the-big-kid-booster-seat-put-profits-over-child-safety) 发表了一份令人不安的报告，内容是关于 Evenflo 和其他公司出售的安全带定位增高座椅的安全性，这是对父母的一个重要提醒:永远要首先遵循 [美国儿科学会的指导方针](https://www.healthychildren.org/English/safety-prevention/on-the-go/Pages/Car-Safety-Seats-Information-for-Families.aspx) 。制造商对最低身高和体重的建议可能不像他们声称的那样安全。
 
-Watch
+
 
 问题的关键是 Evenflo 的大儿童加高座椅对体重只有 30 磅的儿童是否安全，这是它宣传安全的最低要求，至少直到最近。但是由 ProPublica 获得的 Evenflo 自己的侧面碰撞测试镜头 说明了在这样的碰撞中，一个孩子可能会经历严重的头部、颈部或脊椎损伤——或者死亡。
 

@@ -4,7 +4,7 @@
 
 早在 2018 年 1 月，像 [加州](https://www.dmv.ca.gov/portal/dmv/detail/pubs/newsrel/2018/2018_07) 、 [马萨诸塞州、](https://insights.travelandtransport.com/travel-and-transport/real-id-act-goes-into-effect-for-travelers-january-22-2018) 和罗德岛等州就开始陆续推出“真正的 ID”卡。好奇这是什么，它的各种要求或它可能对您产生的影响？以下是你需要知道的关于真实身份证的真正价值。
 
-Watch
+
 
 ### 我真的需要一个真实的身份证吗？
 

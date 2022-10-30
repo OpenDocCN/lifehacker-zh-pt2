@@ -4,7 +4,7 @@
 
 在本月的 [Lifehacker 健身挑战赛](https://lifehacker.com/c/lifehacker-fitness-challenge) 中，我们将挑战 ab 轮，又名 ab 滚轮，又名“糟糕，我又摔了一跤。”上周我们 [做了一个轮子上的木板](https://vitals.lifehacker.com/its-time-to-tackle-the-ab-wheel-1840929234) ，但是今天我们打算用它做一个小小的调整。朋友们，我有一个令人震惊的消息要报告:它起作用了。
 
-Watch
+
 
 游戏规则是这样的:靠墙做。
 

@@ -4,7 +4,7 @@
 
 随着飓风道林继续沿着加拿大东海岸行进，我们才刚刚开始了解它迄今为止造成的破坏，特别是在巴哈马这样的重灾区。
 
-Watch
+
 
 上周，我们 [分享了](https://lifehacker.com/how-to-help-hurricane-dorian-relief-efforts-1837833970) 关于如何帮助那些受飓风影响的人的建议。不幸的是，受影响地区的动物也深受其害；据 [报道](https://www.huffpost.com/entry/humane-society-of-grand-bahama-dorian_n_5d7199a4e4b0fd4168e7e0ad) 上周末，超过 100 只动物因洪水泛滥而死于巴哈马群岛的一个收容所。(在脸书 庇护所的 [上的一个帖子里，执行主任说狗舍被淹没在五英尺深的水中。156 狗和猫](https://www.facebook.com/permalink.php?story_fbid=2587796364565402&id=162364503775279) [幸存](https://www.huffpost.com/entry/humane-society-of-grand-bahama-dorian_n_5d7199a4e4b0fd4168e7e0ad) 。)
 

@@ -4,7 +4,7 @@
 
 我问你迄今为止做过的最好的家庭锻炼，这个月的每个星期我们都要选择一个一起做。本周，这将是一个老掉牙的好东西(谢谢，[safety Cynthia](https://vitals.lifehacker.com/1842676997)):Richard Simmons。
 
-Watch
+
 
 席梦思有一个 [的 YouTube 频道，里面全是宝石](https://www.youtube.com/user/TheWeightSaint/) ，包括 [五分钟](https://www.youtube.com/watch?v=6aE7w4bDZqg&list=PLIgY6_EtUOyL9JwW1bujrV6qo1sF2v1pt) 和 [10 分钟](https://www.youtube.com/watch?v=xLvgUexoPP0&list=PLIgY6_EtUOyIlTYKnhMuLmpiH9tSJos5I)的锻炼列表。如果你以前从未尝试过他的训练，你可能想看一看这个介绍，它展示了你会反复看到的基本动作。
 

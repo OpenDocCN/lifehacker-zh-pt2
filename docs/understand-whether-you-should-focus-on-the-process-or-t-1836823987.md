@@ -4,7 +4,7 @@
 
 当我在大学的时候，我有一个指导老师，他一直告诉我要关注过程，而不是结果。我不太善于遵循这个建议，部分原因是我没有真正理解它的含义。
 
-Watch
+
 
 其实我也不确定自己是不是完全理解了，直到看到这张 [RadReads](https://radreads.co/) 的 Khe Hy 在《丹麦随机杂志》上找到的和 [在 Instagram](https://www.instagram.com/p/B0aZUBYp53X/) 上分享的图片:
 

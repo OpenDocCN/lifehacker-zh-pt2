@@ -6,7 +6,7 @@
 
 画中画(PIP)视频播放是 Android 的 Chrome 应用程序上用户最喜欢的功能，现在你可以在你的 Chrome 桌面浏览器上获得它——只要你已经更新到 [Chrome 70](https://lifehacker.com/how-to-disable-chromes-automatic-sign-ins-in-version-70-1829819727) ，也就是说。
 
-Watch
+
 
 ### 如何在 Chrome 70 中观看视频 PIP
 

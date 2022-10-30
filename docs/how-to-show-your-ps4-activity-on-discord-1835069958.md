@@ -4,7 +4,7 @@
 
 如果你和所有通过不和谐游戏的朋友聊天，炫耀你正在玩的游戏是很有意义的。这是一个对话的开始，它告诉你的朋友你正在使用什么控制台，甚至可能让他们知道你的心情。(每个人都有自己的舒适游戏)。
 
-Watch
+
 
 如果你在 PC 或 Xbox One 上玩游戏，在 Discord 上分享你的活动就像下载一个应用程序并登录一样简单。在 PlayStation 4 上，这有点棘手:PS4 没有官方的 Discord 集成，但一个第三方开发者创建了一个 [Discord 应用](https://tusticles.com/PlayStationDiscord/) ，它将显示你的 PS4 活动，类似于 Discord 在其自己的平台上的做法。
 

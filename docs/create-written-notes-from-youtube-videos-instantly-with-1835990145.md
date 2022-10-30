@@ -4,7 +4,7 @@
 
 YouTube 上有大量信息丰富的视频。当你在看一部你希望学到东西的电影时；然而，你必须为以后的话题做好自己的笔记。 [Gnotes](https://chrome.google.com/webstore/detail/gnotes/obfgjjmbheefniinlgjpikhioabmabnd) 是一个可以帮助解决这个问题的扩展。
 
-Watch
+
 
 当你在观看 YouTube 视频时，你可能想要注释，Chrome 扩展可以实时创建这些注释。
 

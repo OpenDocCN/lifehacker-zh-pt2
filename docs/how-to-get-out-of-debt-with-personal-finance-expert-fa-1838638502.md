@@ -4,7 +4,7 @@
 
 在这一集的升级中，我们将解决债务问题。令人不堪重负、焦虑不安的债务。面对如此沉重的负担，可能很难知道从哪里开始，但幸运的是，我们得到了一些帮助。首先，我们将听取 Lifehacker 的特约撰稿人 Lisa Rowan 的意见，她将回答 Upgrade listener 和 Lifehacker reader 提出的关于信用卡的问题。然后，我们请来了个人理财专家(也是播客 的朋友)法努什·托拉比，他指导我们如何开始处理债务。 
 
-Watch
+
 
 [https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/69728b8e-a37c-4193-95e1-af5a60b6540a/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/69728b8e-a37c-4193-95e1-af5a60b6540a/embed)
 

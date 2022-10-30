@@ -4,7 +4,7 @@
 
 [“10/10 是什么歌，却几乎没人听过？”](https://www.reddit.com/r/AskReddit/comments/du5j18/what_song_is_1010_yet_hardly_anyone_has_heard_of/) redditor 郁闷地问。AskReddit 用户回复了 435 首歌曲。redditor BubblyBullinidae[将它们放入 Spotify 播放列表](https://www.reddit.com/user/BubblyBullinidae/comments/dubbaf/the_almighty_spotify_playlist/) 。
 
-Watch
+
 
 [https://open.spotify.com/embed/user/qb2j1wjtzlu5xqgmzzb9xgmkz/playlist/1E8HDaDy8mM2otQwsFqRiD](https://open.spotify.com/embed/user/qb2j1wjtzlu5xqgmzzb9xgmkz/playlist/1E8HDaDy8mM2otQwsFqRiD)
 

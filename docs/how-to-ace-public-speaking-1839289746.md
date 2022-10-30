@@ -4,7 +4,7 @@
 
 本周，我们将在专家卡明·加洛的帮助下提高我们的公开演讲技巧，卡明·加洛是《像 TED 一样说话:世界顶尖头脑的 9 个公开演讲秘密 的作者，他告诉我们在演讲时故事和情感的重要性。然后听听 Lifehacker 的美食编辑 Claire Lower 讲述她自己的故事，她是如何从一个怯场的家庭学校学生变成演讲队冠军的。
 
-Watch
+
 
 [https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/2744d7d2-8d9c-46d4-aec1-798376aa1156/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/2744d7d2-8d9c-46d4-aec1-798376aa1156/embed)
 

@@ -4,7 +4,7 @@
 
 每一个配得上( [塔可钟](https://skillet.lifehacker.com/make-taco-bell-salt-with-leftover-sauce-packets-1828393224) )盐的极客都有一堆他们离不开的科技装备。它不仅仅是一堆昂贵的东西:老派游戏机、一堆硬盘或一个被遗忘的旧智能手机抽屉。有很多必需品值得放在你的工具带、腰包或背包里——或者至少在少数几个关键时刻，当你需要一件特定的物品来完成一项技术任务时，手边要有。
 
-Watch
+
 
 我最近偶然发现了一个关于科技产品推荐的[*Reddit 主题*](https://www.reddit.com/r/AskReddit/comments/arj833/what_is_the_best_piece_of_tech_you_recommend_to/)*——更好的是，因为主题的焦点是你可以用不到 50 美元买到的令人惊叹的设备(在某些情况下，用不到 50 美元就能买到*方式*)。我浏览了每一个被投票通过的推荐，列出了一个值得你考虑的项目列表，并添加了一些我个人的推荐，但似乎没有得到任何 Reddit 的喜爱。*
 

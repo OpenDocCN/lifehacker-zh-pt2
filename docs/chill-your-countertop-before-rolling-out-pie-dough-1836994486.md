@@ -4,7 +4,7 @@
 
 在夏天制作糕点意味着与热力学定律进行一场艰苦的斗争。即使你已经采取了一切可能的预防措施来保持你的原料——和你的工具——凉爽宜人，馅饼 [面团](https://lifehacker.com/for-better-pie-crust-resort-to-violence-1798295233) 仍然很容易在它到达你的柜台时融化。
 
-Watch
+
 
 虽然有时候好人也会遭遇不幸，但这个厨房噩梦是完全可以预防的。你所要做的就是花几分钟时间确保你的台面和你的食材一样凉。这个技巧来自 Stella Parks， [，他建议用两个装满冰水的加仑大小的自封袋](https://www.seriouseats.com/2016/09/how-to-avoid-soft-and-sticky-dough-butter-temperature.html) 来冷却你的工作台面，就像这样:
 

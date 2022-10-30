@@ -4,7 +4,7 @@
 
 如果你是 WhatsApp 的大用户，我恳求你:停止公开发布你的群聊链接。告诉你小组里的每个人也要克制这种冲动。只需要一个不太懂技术的用户偶然给任何对搜索运营商有一点点了解的人一个加入你的小组、看到你的成员的电话号码，并引起各种各样的乐趣的方法。
 
-Watch
+
 
 不相信我？ [自己看](https://www.google.com/search?rlz=1C1GCEA_enUS876US876&sxsrf=ALeKk02YcDASfUWWX2HgWbm2ZT5xneB1-A%3A1582315658484&ei=ijhQXqKEHY30-gS3nYmICg&q=site%3Ahttp%3A%2F%2Fchat.whatsapp.com+AND+intitle%3A%22WhatsApp+Group+Invite%22&oq=site%3Ahttp%3A%2F%2Fchat.whatsapp.com+AND+intitle%3A%22WhatsApp+Group+Invite%22&gs_l=psy-ab.3...15231.22963..23130...0.0..0.71.681.11......0....1j2..gws-wiz.baAAFgqT05A&ved=0ahUKEwii8fuVuePnAhUNup4KHbdOAqEQ4dUDCAs&uact=5) 。
 

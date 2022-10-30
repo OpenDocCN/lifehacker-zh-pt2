@@ -4,7 +4,7 @@
 
 想看你孩子的画在纸上浮动吗？让他们试试谢尔盖·厄本的这个科学实验，又名 [、达德实验室](https://thedadlab.com/) 。他从他的书 [*爸爸实验室:父母和孩子的 50 个令人敬畏的科学项目*](https://www.amazon.com/TheDadLab-Awesome-Science-Projects-Parents/dp/0525542698?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/make-floating-pictures-with-your-kid-1836684027&asc_source=&tag=kinjalifehackerlink-20) *中与我们分享。*
 
-Watch
+
 
 这项活动很简单，但令人印象深刻。(你几乎肯定会发出“呜哇”的声音。)这是科学，这是艺术，这是你夏天 [“无聊罐”的绝佳补充](https://offspring.lifehacker.com/create-boredom-jars-with-your-kid-1834547469)T3】
 

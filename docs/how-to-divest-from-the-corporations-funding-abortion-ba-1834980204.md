@@ -4,7 +4,7 @@
 
 本周早些时候，贾德·勒古姆的大众信息通讯报道说，近年来，佐治亚州、密西西比州、阿拉巴马州、肯塔基州、密苏里州和俄亥俄州的六周堕胎禁令背后的六家公司 [向立法者](https://popular.info/p/these-six-corporations-are-financing)捐助了数十万美元。为了反击，全国的消费者已经开始组织抵制。
 
-Watch
+
 
 关于谁从谁那里拿了钱的完整列表，你应该 [阅读整个流行信息帖子](https://popular.info/p/these-six-corporations-are-financing) ，但这里有一个涉及公司和哪些候选人接受了最大捐赠的快速纲要:
 

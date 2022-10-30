@@ -4,7 +4,7 @@
 
 上周，[Race Forward](https://www.raceforward.org/about/staff/dominique-apollon-phd)[的研究副总裁多米尼克·阿波龙(Dominique Apollon)在推特上发布了他手上绑着绷带的照片](https://twitter.com/ApollonTweets/status/1119276463016951808?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1119276463016951808&ref_url=https%3A%2F%2Fwww.nbcnews.com%2Fnews%2Fnbcblk%2Fblack-man-s-reaction-matching-skin-tone-bandage-strikes-chord-n998671)——这些照片在网上疯传，为有色人种的融入问题提供了启示。
 
-Watch
+
 
 他在最初的 [推文](https://twitter.com/ApollonTweets/status/1119276463016951808?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1119276463016951808&ref_url=https%3A%2F%2Fkinja.com%2Fajax%2Finset%2Fiframe%3Fautosize%3D1%26id%3Dtwitter-1119276463016951808) 中写道:“这让我绕着太阳跑了 45 圈，但在我的生命中，我第一次知道在我自己的肤色中贴上‘创可贴’是什么感觉。”。“在第一张照片中，你几乎看不出来。说真的，我忍住了眼泪。”
 

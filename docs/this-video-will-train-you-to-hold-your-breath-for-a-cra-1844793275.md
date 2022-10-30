@@ -4,7 +4,7 @@
 
 作为一个终身哮喘患者，我是最不可能赢得屏住呼吸比赛的人(这很好，因为这意味着我也最有可能赢得“你认识的最酷的人”比赛，因为没有什么比在寒冷的日子里慢跑后气喘吁吁更糟糕的了)。但是由于过去几周我一直在练习一种呼吸冥想的方法，我觉得自己已经准备好迎接所有的挑战了。(除了 [大卫·布赖恩](https://davidblaine.com/world-record/#:~:text=On%20april%2030%2C%202008%2C%20David,for%20oxygen%20assisted%20static%20apnea.)；撇开肺活量不谈，他只是 [看起来像个鸡巴](https://www.vox.com/a/sexual-harassment-assault-allegations-list/david-blaine) 。)
 
-Watch
+
 
 它来自荷兰的“极限运动员”维姆·霍夫，他保持着在寒冷的气温下水下游泳和在冰上跑半程马拉松的世界纪录，这很大程度上表明他是我的对立面 [、呼吸方面的](https://www.mayoclinic.org/diseases-conditions/exercise-induced-asthma/symptoms-causes/syc-20372300#:~:text=Exercised%2Dinduced%20asthma%20is%20a,kun%2DSTRIK%2Dshun).) 。 [在他的网站](https://www.wimhofmethod.com/) 上，霍夫推销他自封的维姆·霍夫方法，“基于三根支柱的基础； [呼吸](https://www.wimhofmethod.com/breathing-exercises)[冷疗](https://www.wimhofmethod.com/cold-therapy)[承诺](https://www.wimhofmethod.com/how-to-increase-willpower) ”当 [听起来让人神清气爽的时候](https://lifehacker.com/appreciate-the-miracle-that-is-ice-1844628598) 在布鲁克林这个闷热的夏天，我最感兴趣的是第一个。(至于承诺，呃，我可以接受也可以不接受。)
 

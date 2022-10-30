@@ -4,7 +4,7 @@
 
 说到节育，一个能杀死精子的避孕套听起来很划算，对吧？但事实证明，它们并不比普通避孕套更有效，而且它们实际上会增加你患性病的风险。
 
-Watch
+
 
 世界卫生组织的立场是 [杀精避孕套甚至不应该出售](https://twitter.com/WHO/status/1227969439733338113) ，“由于副作用”通常使用的杀精剂壬苯醇醚-9 会刺激阴道和肛门组织。( [)计划生育注意到](https://www.plannedparenthood.org/learn/teens/ask-experts/what-does-nonoxynol-9-means) 这主要是那些一天使用多次，或者有肛交的人的问题。)
 

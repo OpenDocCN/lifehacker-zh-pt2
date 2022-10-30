@@ -4,7 +4,7 @@
 
 有些事情就是不为人知。这些天，这是很多事情。从冠状病毒成为威胁的那一刻起，没有回答的问题就远远多于已经回答的问题。当一个病毒只有五个月大的时候，你可能能知道多少*？*
 
-Watch
+
 
 这种不确定性就是为什么我们已经看到许多关于有“没有证据”某种冠状病毒相关的东西的声明流传。世界卫生组织一月份有一句著名的话 [没有证据表明人与人之间的传播](https://www.voanews.com/science-health/who-does-not-rule-out-human-human-spread-new-coronavirus)；最近，他们 [发推文](https://twitter.com/WHO/status/1254160944638447618/photo/1) 称，没有证据表明从冠状病毒中康复的人对其有免疫力。
 

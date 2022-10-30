@@ -4,7 +4,7 @@
 
 汉堡王正拖着它最大的竞争对手——这让任何想在汉堡上获得极大优惠的人受益。以下是你可以利用的方法。
 
-Watch
+
 
 如果你在一家麦当劳，你还没有点餐，你现在就是汉堡王的目标受众。该公司正在向任何站在麦当劳里通过他们的应用程序 点 [、根据](https://www.bk.com/?_branch_match_id=539633812515568289) 点 [的人提供一分钱的巨无霸。这次推广是为了该应用的重新发布——它使用地理围栏来确定你是否在麦当劳 600 英尺以内。所以真的，你只需要在停车场。](https://www.cnbc.com/2018/12/04/burger-king-sells-whoppers-for-a-penny-at-mcdonalds-locations.html?__source=twitter%7Cmain)
 

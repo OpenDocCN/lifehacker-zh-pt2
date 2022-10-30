@@ -4,7 +4,7 @@
 
 直到现在，世界卫生组织还不想称新冠肺炎为疫情。今天他们决定开始使用这个词。
 
-Watch
+
 
 虽然这一步备受期待，但它纯粹是象征性的。几周前，他们 [宣布](https://vitals.lifehacker.com/coronavirus-is-now-a-public-health-emergency-what-does-1841362692) 冠状病毒为“国际关注的公共卫生突发事件”，或 PHEIC，这是与 [国际卫生条例](https://www.who.int/ihr/procedures/pheic/en/) 相关的官方名称。
 

@@ -4,7 +4,7 @@
 
 当你可以制造一个复杂的装置来帮助你完成任务时，为什么还要去完成简单的日常任务呢？这是由 [鲁比·戈德堡公司](https://www.rubegoldberg.com) 主办的年度比赛背后的想法，以纪念漫画家 [鲁比·戈德堡](https://www.rubegoldberg.com/rube-the-artist) 他的漫画经常描绘以令人费解的方式执行日常任务的设备。在今年的比赛中，学生们被要求创造一种设备，最终将震动并倾倒一箱书呆子。
 
-Watch
+
 
 2021 Rube Goldberg 机器竞赛 的 [现已开放注册，书呆子将赞助前 100 个团队——多达 1400 个学生/家庭团体——免费注册。](https://www.rubegoldberg.com/contests-landing)
 

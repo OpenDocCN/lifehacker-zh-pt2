@@ -4,7 +4,7 @@
 
 嗨！在本周的[Tech 911](https://lifehacker.com/c/tech-911)——试图回答你所有通过电子邮件提出的问题的专栏(请 [通过电子邮件向我们发送你的问题](mailto:david.murphy@lifehacker.com?subject=Tech%20911))——中，我们将关注一个比你最初想象的影响更多人的问题:更新。具体来说，你真的应该把你的手机升级到最新最好的软件或操作系统吗？如果更新让情况变得更糟怎么办？
 
-Watch
+
 
 Lifehacker 的读者迈克写道:
 

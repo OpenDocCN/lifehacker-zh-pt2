@@ -4,7 +4,7 @@
 
 我认为我对 Excel 很在行。我熟悉数据透视表，我喜欢用公式和条件格式自动化任何事情，我对 vlookup 的熟练程度不亚于令人敬畏的新 xlookup 。然而，Excel 宏是一个全新的领域，我只希望我能像 Dylan Tallchief 那样使用它们。
 
-Watch
+
 
 Tallchief 前几天在 YouTube 上发布了他的最新作品，这是一个疯狂的电子表格，可以兼作架子鼓。这就像在你的桌面上有一个新手版本或 Ableton——或一些基于网络的工具 [用于](https://onlinesequencer.net/) [创建](http://funklet.com/) [简单的](https://www.audiotool.com/) [节拍](https://www.audiotool.com/)——一样。
 

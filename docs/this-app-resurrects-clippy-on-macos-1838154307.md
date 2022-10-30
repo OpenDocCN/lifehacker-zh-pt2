@@ -4,7 +4,7 @@
 
 早在我们 [与智能设备上的人工智能助手](https://lifehacker.com/how-to-delete-voice-recordings-with-alexa-google-assis-1836977240) 交谈之前，我们就有了 Clippy——活泼的，微软 Office 的动画回形针吉祥物，它绝对不是一点都不烦人的提示和上下文操作，“帮助”用户导航 Word、Excel 和 Office 套件的其他部分。
 
-Watch
+
 
 Clippy(他的全名实际上是“Clippit”)并不太受欢迎，这导致他最终在任职短短四年后被免职。然而，事后看来，这个小助手是超前的。当然，大多数用户立即禁用了 Clippy，但拥有一个交互式助手的概念已经被像[【Alexa】](https://lifehacker.com/tag/alexa)[谷歌助手](https://lifehacker.com/tag/google-assistant)[Siri](https://lifehacker.com/tag/siri)和 [Cortana](https://lifehacker.com/tag/cortana) 这样的人所证实。不给可怜的老克利皮一些支持似乎是不公平的。除了一套微软团队表情符号之外，微软一直让原型人工智能助手退休，这就是为什么我们很高兴看到他在 Mac 和 iOS 上(非官方)回归，这要感谢开发者 Devran“Cosmo”Uenal 在 Github 上的 [Clippy 应用程序。](https://github.com/Cosmo/Clippy)
 

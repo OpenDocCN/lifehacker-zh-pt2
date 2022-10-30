@@ -4,7 +4,7 @@
 
 最好戴上你的老花镜，因为期待已久的穆勒报告终于在这里——至少，在它的严重编辑形式中 [特朗普总统的律师](https://www.vox.com/2019/4/18/18484791/mueller-report-trump-barr-lawyers-white-house) 可能会或可能不会事先审查。很正常！
 
-Watch
+
 
 今天上午， [司法部长威廉·巴尔](https://www.cnn.com/politics/live-news/robert-mueller-report-public/index.html) 在报告发布前召开新闻发布会， [表示，穆勒审查了特朗普与可能妨碍司法公正有关的“10 集”](https://splinternews.com/william-barr-is-a-shameless-stooge-1834138143)——其中一集据称证明特朗普总统的团队在 2016 年大选中与俄罗斯“没有勾结”。
 

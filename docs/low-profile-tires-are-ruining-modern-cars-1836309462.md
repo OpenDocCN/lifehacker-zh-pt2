@@ -4,7 +4,7 @@
 
 去年夏天我在法国拥有的大众 Up GTI[是一个梦想](https://jalopnik.com/the-2018-volkswagen-up-gti-is-as-fun-as-tiny-cars-get-1826079451) 。它也有 17 英寸的车轮和低轮廓轮胎。在离海岸不远的地方，我碾过了路上一块看似无害的小石头。大约在接下来的 10 秒钟内，我就知道 [出事了](https://jalopnik.com/erik-shilling-is-having-a-very-nice-time-in-france-1825829425) 。
 
-Watch
+
 
 如今，低轮廓轮胎风靡一时，主要是为了美观，因为汽车制造商想要突出“性能”或其他什么。但是大多数人，甚至那些自认为是超级超超性能的人， [都不需要这些](https://jalopnik.com/bring-back-big-sidewalls-1831232854) 的垃圾橡胶块。
 

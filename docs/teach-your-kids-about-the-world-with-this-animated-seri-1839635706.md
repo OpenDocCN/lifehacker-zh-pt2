@@ -4,7 +4,7 @@
 
 如果你的孩子兴趣广泛——而且注意力持续时间短——他们可能会喜欢上 [Triviatopia](https://www.youtube.com/channel/UCOkdrnEls8BYXVLGnyRyk9A) ，这是 YouTube 上的一系列教育动画视频，涉及从科学、历史和艺术到技术和环境的方方面面。
 
-Watch
+
 
 每个视频都只有两分钟多长，由六个古怪的角色组成，他们穿越时空，环游世界，进行各种冒险。该系列由 crea ted 制作，播出了几集孩子们感兴趣的主题，包括 [恐龙](https://www.youtube.com/watch?v=wk4oQNfln70&list=PLNve_r_tbl8D6v8tldGK4L08VNmQr9SOv&index=5)[海洋生物](https://www.youtube.com/watch?v=8fDhR_4q2Ns&list=PLNve_r_tbl8D6v8tldGK4L08VNmQr9SOv&index=2)[体育](https://www.youtube.com/watch?v=CKmff5vdSvQ&list=PLNve_r_tbl8D6v8tldGK4L08VNmQr9SOv&index=7&t=0s) 和 [机器人](https://www.youtube.com/watch?v=52QWhilD1ew&list=PLNve_r_tbl8D6v8tldGK4L08VNmQr9SOv&index=8) 。但这也是父母介绍更大的时事话题的好方法，比如 [回收](https://www.youtube.com/watch?v=vzqwYU13TdI) 和 [气候危机](https://www.youtube.com/watch?v=hcj_EK82yNY&feature=youtu.be) :
 

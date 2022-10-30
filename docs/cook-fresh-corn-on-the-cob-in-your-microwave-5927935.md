@@ -8,7 +8,7 @@
 
 [美食博客 Chowhound](https://www.chowhound.com/videos#!/show/all/120462/corn-on-the-cob-in-your-cubicle) 分享你可以轻松地用微波炉烹饪玉米，首先去除玉米的外壳和丝，用湿纸巾包裹玉米穗，微波加热不超过五分钟。把它从微波炉里拿出来，让耳朵冷却下来，然后开始吃。
 
-Watch
+
 
 另一种方法耗时较长，但可能更简单。它来自 YouTube 视频中一个名叫肯的人:
 

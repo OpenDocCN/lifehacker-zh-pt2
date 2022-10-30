@@ -4,7 +4,7 @@
 
 我对麦克芬和麦克芬式早餐三明治的喜爱不是秘密。嫩嫩的英式松饼、咸咸的肉、融化的奶酪和完美的圆形鸡蛋构成了一顿美味的早餐。在家里制作自己的版本并不是一件非常困难的事情，但是圆形的蒸鸡蛋是至关重要的。
 
-Watch
+
 
 你可以用一个 ramekin 和 [快速到达一个麦克芬](https://lifehacker.com/make-an-even-better-egg-mcmuffin-in-five-minutes-1838218899) ，但是如果你更喜欢炉子烹饪的情况(或者只是没有微波炉)，一个冰块会出奇地有用。正如吉姆·福尔曼(我的新爷爷)在他迷人的教学视频“ [如何烹饪圆形鸡蛋](https://www.youtube.com/watch?v=QKfHa6ZvyBw&feature=emb_title) ”中解释的那样，“要做一个完美的松饼蛋，你需要两样东西:一个硅胶圈(拿 [带可折叠手柄的](https://www.amazon.com/Silicone-Egg-Rings-Round-Breakfast/dp/B01KPNZ786?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/use-an-ice-cube-to-steam-a-perfectly-round-egg-1841063857&asc_source=&tag=kinjalifehackerlink-20) )和一个冰块。环的原因是显而易见的——它有助于鸡蛋在烹饪时保持完美的圆形形状(吉姆发现梅森罐环会泄漏且有粘性),但冰块才是真正安静而聪明的黑客。
 

@@ -4,7 +4,7 @@
 
 自疫情疫情开始以来，我们已经看到可预防死亡 的上升，主要是因为人们太害怕去看医生。因此，本周我们想在心脏病专家马克·艾森伯格和克里斯·凯利的帮助下改变这种状况，他们告诉我们预约远程会诊的简便性，如何准备，以及哪些症状值得去看医生。马克和克里斯是这本书的作者， [*我是不是要死了？！:你的症状的完整指南——以及下一步该做什么*](https://www.amazon.com/Am-Dying-Complete-Guide-Symptoms-ebook/dp/B078GKRP4B?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-see-a-doctor-during-the-pandemic-with-cardiolog-1844081955&asc_source=&tag=kinjalifehackerlink-20#:~:text=In%20Am%20I%20Dying%3F!,turn%20out%20to%20be%20minor.) 同时运行非常有用的网站[amidying.com](https://amidying.com/)。
 
-Watch
+
 
 [https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/85576f51-1fda-482b-b3cc-9db30fd75831/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/85576f51-1fda-482b-b3cc-9db30fd75831/embed)
 

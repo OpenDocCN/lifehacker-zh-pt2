@@ -4,7 +4,7 @@
 
 举重比赛的三个项目——深蹲、卧推和硬拉——很容易在家学习和训练。所以我们中的很多人都练习了这些托举，不管我们是否有机会在比赛中炫耀。因此，如果你一直在家里的健身房里闲逛，并且可能喜欢一场小型的友好比赛，请在 Reddit 和 Instagram 上查看正在*举行的# GarageGymCompetition[。](https://www.reddit.com/r/homegym/comments/bnoylp/the_garagegymcompetition_is_officially_open_for/)*
 
-Watch
+
 
 规则很简单:你在家里的健身房里做一个深蹲，一个长凳，一个硬拉，然后在一个帖子里把这三个视频都上传到 Instagram， [标签为#GarageGymCompetition](https://www.instagram.com/explore/tags/garagegymcompetition/) 。
 

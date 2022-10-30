@@ -4,7 +4,7 @@
 
 虽然几乎任何运动都有阻力带版本，但只有少数运动中阻力带是最好的方法之一。这里有一些我最喜欢的，重点是上半身的动作。加入我们的 [抵抗乐队挑战](https://lifehacker.com/the-march-fitness-challenge-is-the-resistance-band-wor-1832996075) ，给他们一个尝试吧！
 
-Watch
+
 
 ### 帕洛夫出版社
 

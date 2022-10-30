@@ -6,7 +6,7 @@
 
 要在合唱团中取得成功，你不需要成为一名演奏家。你需要练习和学习的意愿，以及“倾听和模仿的基本能力”，无伴奏合唱团《哥谭市的塞壬 的艺术总监米拉·塔弗纳说。"幸运的是，这是一项相对通用的技能."塔弗纳、塞壬艺术助理总监 Kari Francis 和视觉协调员 Anna Chelak 向 Lifehacker 讲述了学习合唱的要点——这些要点帮助该乐队凭借上述表现赢得了去年秋天的 [Sweet Adelines 国际和声经典比赛](https://sweetadelines.com/competitionconvention/internationalcompetition/) 。
 
-Watch
+
 
 ## **利用你已经知道的东西**
 

@@ -4,7 +4,7 @@
 
 你可能已经看过下面的 [视频](https://www.youtube.com/watch?v=HwLzAdriec0&amp=&feature=youtu.be) 关于新冠肺炎患者的一种呼吸技巧。在这段视频中，英国皇后医院的医生 Sarfaraz Munshi 展示了一种帮助新冠肺炎患者的技术。
 
-Watch
+
 
 “一旦你有活动性感染，你需要让大量的空气进入你的肺底部，”Munshi 在视频中说。
 

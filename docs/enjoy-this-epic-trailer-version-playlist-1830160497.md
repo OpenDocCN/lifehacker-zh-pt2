@@ -4,7 +4,7 @@
 
 我喜欢过于戏剧化的翻唱歌曲，就是你在电影预告片中听到的那种，一些女士在舞台上低声说“他做了捣碎机，他做了怪物捣碎机”，而《盗梦空间》的声音盖过了机器人巫师龙卷风的镜头。我以两种心情演奏它们:感觉非常戏剧化和兴奋，或者感觉很傻。所以我选了几十首这样的歌曲，做了一个戏剧性的，令人尴尬的 Spotify 播放列表。
 
-Watch
+
 
 [https://open.spotify.com/embed?uri=spotify%3Auser%3Atoomuchnick%3Aplaylist%3A13Q0etfBdPXcnwp6X3z7Yf](https://open.spotify.com/embed?uri=spotify%3Auser%3Atoomuchnick%3Aplaylist%3A13Q0etfBdPXcnwp6X3z7Yf)
 

@@ -4,7 +4,7 @@
 
 这个故事是在疫情之前写的——但现在我们在这里，囤积卫生纸，担心下一次短缺，尼克·道格拉斯的信息感觉更加及时，甚至紧迫。所以我们把这个给你，作为一个提醒，布卫生纸永远不应该被考虑。一切都很糟糕，但不是那么*糟糕。Eds。*
 
-Watch
+
 
 “家庭布”是卫生纸的可重复使用的替代品，由破布、旧 t 恤、缝制的布料或购买的抹布制成。它们大多是用来擦尿的，但是有些家庭用它们来擦便便和月经。这种做法(一直到现代都很普遍)现在主要出现在环保和“节俭”的商店里[博客](http://www.pennilessparenting.com/2010/06/reusable-toilet-paper-family-cloth.html) 和。前阵子 BuzzFeed 发表了 [一篇关于湿巾的同情解说](https://www.buzzfeed.com/terripous/what-is-the-family-cloth-and-why-should-you-use-it-an) 。(结尾请读者用“对他们好，对我不好！”或者“我会在某个时候尝试一下。”)在它变得更长之前，让我们澄清一下:“Family clot h”不是生活帮。
 

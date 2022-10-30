@@ -4,7 +4,7 @@
 
 Chrome: 并不是所有的黑客都必须让你成为生产力奇才。有些只需要让你开心，给你发邮件的人增加一点快乐(或困惑)。至少，这是我能想到的描述 Chrome 扩展“[”Gmail 建议诗](https://chrome.google.com/webstore/detail/suggested-poems-for-gmail/kjjcalmhcemhafjcoanjjllfjdfnnhid) ”的最佳方式，“这是一个聪明的小服务，给谷歌 Gmail 的正常建议自动回复投下了一颗文学炸弹。
 
-Watch
+
 
 扩展非常简单。安装它，通用的 Gmail 自动回复如“太好了！”或者“听起来不错”，你有时会在你收到的电子邮件底部看到这个建议，转化成更有趣的东西。正如扩展的描述所示:
 

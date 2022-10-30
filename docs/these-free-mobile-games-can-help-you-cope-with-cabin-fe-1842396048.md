@@ -8,7 +8,7 @@
 
 如果你从未尝试过早期 iOS 应用程序商店最受欢迎的塔防系列**王国冲刺**，你会喜欢上它的。开发商铁皮工作室在该系列中制作了两个旧作品，*王国冲击起源*和*王国冲击前沿*可以在 ios 和 Android 上免费下载，直到“3 月 22/23 日”(这些游戏也可以通过 Steam 在 PC 上下载，但不是免费的。)每个版本的《王国快攻》都有自己的怪癖——建造新的塔和阻挡新的敌人——所以如果你喜欢塔防，你应该会有一段时间忙得不可开交。
 
-Watch
+
 
 *   *王国狂奔:起源* ( [iOS](https://apps.apple.com/us/app/kingdom-rush-origins/id904737816) ， [Android](https://play.google.com/store/apps/details?id=com.ironhidegames.android.kingdomrushorigins&hl=en_US) )
 *   *王国狂奔:边疆* ( [iOS](https://apps.apple.com/us/app/kingdom-rush-frontiers/id598581396) ， [安卓](https://play.google.com/store/apps/details?id=com.ironhidegames.android.kingdomrushfrontiers&hl=en_US) )

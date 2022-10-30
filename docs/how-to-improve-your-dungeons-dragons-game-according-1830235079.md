@@ -4,7 +4,7 @@
 
 地下城&龙族既让人害怕又让人自由。一方面，你有一个只受你想象力限制的游戏，还有一本关于规则的大书，你可以随意忽略它。另一方面，如果你是地下城主，你必须走钢丝。给你的玩家足够的自由，让他们变得疯狂和有创造力是很重要的，但是你也需要限制他们一点，这样你才能真正完成你想玩的战役或故事情节。
 
-Watch
+
 
 Lifehacker 最近有幸与—D&D《华丽的 [*地下城&龙族艺术&奥秘:一部视觉史*](https://www.amazon.com/Dungeons-Dragons-Art-Arcana-History/dp/0399580948?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-improve-your-dungeons-dragons-game-according-1830235079&asc_source=&tag=kinjalifehackerlink-20)*以及多产的 [万物阴暗面的配音者](https://www.youtube.com/watch?v=8PayYz9vyQ0) 。在我们长达一小时的谈话中， Witwer 分享了他几十年来玩*地下城&龙*的经验中的一些很棒的技巧。*
 

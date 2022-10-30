@@ -4,7 +4,7 @@
 
 三星 Galaxy Note 20 Ultra 的 120Hz 显示屏非常适合游戏，其高刷新率h使游戏反应更灵敏，看起来更流畅。看到智能手机吹捧 120Hz 显示屏令人印象深刻，特别是考虑到许多高端电视、显示器和游戏控制台都难以达到这样持续的高刷新率。
 
-Watch
+
 
 如果你正在寻找可以充分利用手机高刷新率显示屏的 Android 游戏，Android Police [汇编了一份 Google Play 上支持 120 小时 z 游戏的 200 多种游戏列表](https://www.androidpolice.com/2020/08/12/here-are-hundreds-of-high-refresh-rate-games-to-play-on-the-120hz-galaxy-note20-ultra/) 。有各种各样的游戏类型，从策略、角色扮演游戏和射击游戏，到益智游戏、冒险游戏和平台游戏。
 
